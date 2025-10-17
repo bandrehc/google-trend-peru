@@ -1,3 +1,59 @@
+### blast slam iv (N/A, 17/10/2025 11:28 Lima)
+
+- **BLAST Slam IV: Schedule, Standings, Results**: [Link](https://hawk.live/posts/blast-slam-iv-schedule-standings-results)
+- **Team Falcons, Tundra Esports start fast at BLAST Slam IV**: [Link](https://deadspin.com/team-falcons-tundra-esports-start-fast-at-blast-slam-iv/)
+- **Top Dota 2 Teams Confirmed for BLAST Dota Slam Singapore 2025**: [Link](https://finance.yahoo.com/news/top-dota-2-teams-confirmed-102600801.html)
+
+
+### liga 1 posiciones (N/A, 17/10/2025 11:28 Lima)
+
+- **Tabla de posiciones de la Liga 1 Perú 2025: así van los equipos tras la fecha 14 del Torneo Clausura y Acumulada**: [Link](https://www.infobae.com/peru/deportes/2025/10/14/tabla-de-posiciones-de-la-liga-1-peru-2025-en-vivo-asi-van-los-equipos-tras-la-fecha-14-del-torneo-clausura-y-acumulada/)
+- **Tabla de posiciones de Liga 1 EN VIVO: así va el Clausura y Acumulado**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/tabla-de-liga-1-2025-como-van-las-posiciones-del-torneo-clausura-y-acumulado-partidos-y-resultados-noticia/)
+- **Acumulado de Liga 1: tabla de posiciones y resultados de la fecha 14 del Torneo Clausura 2025**: [Link](https://depor.com/futbol-peruano/descentralizado/acumulado-liga-1-2025-peru-tabla-de-posiciones-y-resultados-de-fecha-14-del-torneo-clausura-2025-noticia/)
+
+
+### al ittihad (N/A, 17/10/2025 11:28 Lima)
+
+- **Al-Feiha vs Al-Ittihad Prediction: Ittihad must bounce back to winning ways**: [Link](https://www.telecomasia.net/sports-betting/tips/football/saudi-pro-league/al-feiha-vs-al-ittihad-prediction-for-the-match-on-october-17-2025/)
+- **Al Fayha vs Al Ittihad Preview, prediction, lineups, betting tips & odds | Saudi Pro League 2025-26**: [Link](https://khelnow.com/football/world-football-al-fayha-vs-al-ittihad-preview-202510)
+- **Where to Watch Al-Fayha vs Al Ittihad Live?**: [Link](https://www.sportsdunia.com/football-news/where-to-watch-al-fayha-vs-al-ittihad-live-stream)
+
+
+### gorosito (N/A, 17/10/2025 11:28 Lima)
+
+- **Franco Navarro Jr. sobre renovación de Néstor Gorosito: “Hay un acuerdo, estamos conformes ambas partes”**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/franco-navarro-jr-sobre-renovacion-de-nestor-gorosito-hay-un-acuerdo-estamos-conformes-ambas-partes-alianza-lima-ultimas-noticia/)
+- **"Esto todavía no acaba": Paolo Guerrero aún ve con chances a Alianza Lima de lograr el Torneo Clausura**: [Link](https://rpp.pe/futbol/descentralizado/alianza-lima-paolo-guerrero-sobre-el-torneo-clausuraesto-todavia-no-acaba-noticia-1659487)
+- **Alianza Lima confía en seguir escalando en la tabla: Lo que sabe el Comando Técnico de su renovación**: [Link](https://depor.com/futbol-peruano/descentralizado/alianza-lima-vs-sport-boys-gustavo-zapata-hablo-sobre-la-renovacion-de-nestor-gorosito-y-las-ultimas-aspiraciones-del-plantel-liga-1-noticia/)
+
+
+### cronograma de retiro de afp (N/A, 17/10/2025 11:28 Lima)
+
+- **Retiro AFP 2025: Cada administradora activará ‘link’ para hacer la solicitud desde el 21 de octubre**: [Link](https://www.infobae.com/peru/2025/10/13/retiro-afp-2025-solicitud-se-hara-via-link-oficial-de-cada-administradora-desde-este-martes-21-de-octubre/)
+- **¡Retiro de AFP hasta 4 UIT! Conoce la nueva ley del Congreso 👏**: [Link](https://comunicaciones.congreso.gob.pe/tv-congreso/retiro-de-afp-hasta-4-uit-conoce-la-nueva-ley-del-congreso-%F0%9F%91%8F/)
+- **Afiliados del Sistema Privado de Pensiones podrán aumentar el monto máximo de retiro AFP desde 1 de enero de 2026: ¿por qué motivo sería?**: [Link](https://larepublica.pe/economia/2025/10/16/afiliados-del-sistema-privado-de-pensiones-podran-aumentar-el-monto-maximo-de-retiro-afp-desde-1-de-enero-de-2026-por-que-motivo-seria-atmp-1121712)
+
+
+### luis cordero jon tay (N/A, 17/10/2025 11:28 Lima)
+
+- **Plantean que la Sunat permita deducir pérdidas por extorsión del impuesto a la renta con solo una declaración jurada**: [Link](https://lpderecho.pe/sunat-deducir-perdidas-extorsion-impuesto-renta-declaracion-jurada/)
+- **Congresista presenta proyecto de ley para que empresas puedan deducir las extorsiones del impuesto a la renta**: [Link](https://elcomercio.pe/politica/congresista-gustavo-cordero-presenta-proyecto-de-ley-para-que-empresas-puedan-deducir-las-extorsiones-del-impuesto-a-la-renta-ultimas-noticia/)
+- **Congreso propone que extorsiones se deduzcan del impuesto a la renta con declaración jurada**: [Link](https://www.infobae.com/peru/2025/10/16/congreso-propone-que-extorsiones-se-deduzcan-del-impuesto-a-la-renta-solo-con-declaracion-jurada/)
+
+
+### el peruano normas legales (N/A, 17/10/2025 11:28 Lima)
+
+- **El Peruano te informa: consulta aquí las principales normas legales para hoy, viernes 17 de Octubre del 2025**: [Link](https://elperuano.pe/noticia/281053-el-peruano-te-informa-consulta-aqui-las-principales-normas-legales-para-hoy-viernes-17-de-octubre-del-2025)
+- **Estas son las normas legales más importantes del viernes 17 de octubre del 2025**: [Link](https://www.apnoticias.pe/peru/andina/estas-son-las-normas-legales-mas-importantes-del-viernes-17-de-octubre-del-2025-1463732)
+- **Protege tu información: nueva norma refuerza la seguridad digital en las entidades públicas. Infórmate aquí**: [Link](https://www.elperuano.pe/noticia/281054-protege-tu-informacion-nueva-norma-refuerza-la-seguridad-digital-en-las-entidades-publicas-informate-aqui)
+
+
+### eutanasia (N/A, 17/10/2025 11:28 Lima)
+
+- **Uruguay legaliza la eutanasia con la ley de "muerte digna"**: [Link](https://caretas.pe/mundo/uruguay-legaliza-la-eutanasia-con-la-ley-de-muerte-digna/)
+- **Tras el aborto, matrimonio igualitario y la Ley Trans, Uruguay aprueba la eutanasia activa**: [Link](https://andina.pe/agencia/noticia-tras-aborto-matrimonio-igualitario-y-ley-trans-uruguay-aprueba-eutanasia-activa-1048513.aspx)
+- **Uruguay se prepara para aprobar la legalización de la eutanasia: Senado debatirá el proyecto de ley este miércoles**: [Link](https://larepublica.pe/mundo/2025/10/15/uruguay-se-prepara-para-aprobar-la-legalizacion-de-la-eutanasia-senado-debatira-el-proyecto-de-ley-este-miercoles-938235)
+
+
 ### lurin (N/A, 17/10/2025 07:50 Lima)
 
 - **Chofer de combi murió y tres pasajeros resultaron heridos en ataque armado en Lurín [VIDEO]**: [Link](https://rpp.pe/lima/policiales/lurin-chofer-de-combi-murio-y-tres-pasajeros-resultaron-heridos-en-ataque-armado-video-noticia-1659750)
