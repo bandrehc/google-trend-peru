@@ -70,7 +70,7 @@ def update_markdown(new_items, markdown_file, processed_file):
         f.write("\n".join(processed_hashes))
 
 # Configuration
-rss_url = 'https://trends.google.com/trending/rss?geo=MA'
+rss_url = 'https://trends.google.com/trending/rss?geo=PE'
 markdown_file = 'trending_news.md'
 processed_file = 'processed_hashes.txt'
 
