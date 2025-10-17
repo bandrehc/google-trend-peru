@@ -1,8 +1,8 @@
-name: RSS Checker PERU
+name: RSS Checker Peru
 
 on:
   schedule:
-    - cron: "0 */4 * * *" # CADA 4 HORAS
+    - cron: "0 */4 * * *"
   workflow_dispatch:
 
 jobs:
@@ -21,7 +21,7 @@ jobs:
     - name: Install dependencies
       run: |
         python -m pip install --upgrade pip
-        pip install requests
+        pip install requests pytz
 
     - name: Run RSS Checker
       run: |
@@ -36,5 +36,5 @@ jobs:
         git config --global user.name "github-actions"
         git config --global user.email "actions@github.com"
         git add trending_news.md README.md processed_hashes.txt
-        git commit -m "Update trending news and README"
-        git push https://${{ secrets.PAT_TOKEN }}@github.com/bandrehc/google-trend-peru.git HEAD:main
+        git commit -m "Actualizar tendencias Perú" || echo "Sin cambios"
+        git push https://${{ secrets.PAT_TOKEN }}@github.com/${{ github.repository }} HEAD:mains
