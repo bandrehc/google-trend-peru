@@ -1,3 +1,10 @@
+### union berlin vs (N/A, 17/10/2025 03:31 Lima)
+
+- **Football accumulator tips for Friday October 17: Back our acca at 9-1 with bet365**: [Link](https://www.racingpost.com/sport/football-tips/football-acca-tips/football-accumulator-tips-for-friday-october-17-back-our-acca-at-9-1-with-bet365-aqvrF0M2h0Zf/)
+- **Union Berlin vs. Borussia Mönchengladbach preview: Visitors targeting first win**: [Link](https://bulinews.com/union-berlin-borussia-monchengladbach-preview-visitors-targeting-first-win)
+- **talkSPORT tips – Best football bets and expert advice for Friday 17 October**: [Link](https://talksport.com/football/3649439/betting-tips-best-football-bets-friday-17-october/)
+
+
 ### argentina vs marruecos sub 20 (N/A, 17/10/2025 00:19 Lima)
 
 - **El elegido de Messi vale una final**: [Link](https://as.com/futbol/internacional/el-elegido-de-messi-vale-una-final-f202510-n/)
