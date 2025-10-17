@@ -1,3 +1,70 @@
+### joaquín panichelli (N/A, 17/10/2025 15:26 Lima)
+
+- **Joaquín Panichelli convirtió un golazo para el empate de Estrasburgo ante PSG**: [Link](https://www.espn.com.ar/futbol/francia/nota/_/id/15825638/video-joaquin-panichelli-convirtio-un-golazo-para-el-empate-de-estrasburgo-ante-psg)
+- **El ex River que la rompe en Francia y lucirá un parche especial ante el PSG por su rendimiento**: [Link](https://radiodelsolpehuajo.com.ar/articulo/2025/10/el-ex-river-que-la-rompe-en-francia-y-lucira-un-parche-especial-ante-el-psg-por-su-rendimiento.php)
+- **Panichelli recibió el parche de goleador de la Ligue 1**: [Link](https://www.ole.com.ar/futbol-internacional/francia/panichelli-recibio-parche-goleador-ligue-1_3_RGHqQ5NLGc.html)
+
+
+### guéla doué (N/A, 17/10/2025 15:26 Lima)
+
+- **Desire Doue and brother Guela Doue both record assist for PSG and Strasbourg in Ligue 1 clash**: [Link](https://tribuna.com/en/news/2025-10-17-desire-doue-and-brother-guela-doue-both-record-assist-for-psg-and-strasbourg-in-ligue-1-c/)
+
+
+### gonzalo bueno (N/A, 17/10/2025 15:26 Lima)
+
+- **Gonzalo Bueno va por su primera victoria ante Thiago Monteiro: fecha, hora y dónde ver partido por octavos de final de Curitiba**: [Link](https://www.infobae.com/peru/deportes/2025/10/15/gonzalo-bueno-va-por-su-primera-victoria-ante-thiago-monteiro-fecha-hora-y-donde-ver-partido-por-octavos-de-final-de-curitiba/)
+- **Gonzalo Bueno se metió a cuartos de final del Challenger Curitiba**: [Link](https://ovacion.pe/noticias/tenis/gonzalo-bueno-se-metio-cuartos-final-del-challenger-curitiba)
+- **Gonzalo Bueno debuta con victoria en el Challenger de Curitiba y avanza a octavos de final**: [Link](https://buenapepa.pe/gonzalo-bueno-debuta-con-victoria-en-el-challenger-de-curitiba/)
+
+
+### julio enciso (N/A, 17/10/2025 15:26 Lima)
+
+- **¡Julio Enciso anunciado titular en el Estrasburgo para enfrentar al PSG!**: [Link](https://www.versus.com.py/hoy/2025/10/17/julio-enciso-anunciado-titular-en-el-estrasburgo-para-enfrentar-al-psg/)
+- **¡Julio Enciso anunciado titular en el Estrasburgo para enfrentar al PSG!**: [Link](https://onefootball.com/es/noticias/julio-enciso-anunciado-titular-en-el-estrasburgo-para-enfrentar-al-psg-41819365)
+
+
+### punta cana (N/A, 17/10/2025 15:26 Lima)
+
+- **La libertad de prensa en alerta en el continente: Martha Ramos, SIP**: [Link](https://alianzademediosmx.org/noticias/la-libertad-de-prensa-en-alerta-en-el-continente-martha-ramos-sip/3497)
+- **Crisis de Confianza pone en jaque a medios y multilateralismo: OEA**: [Link](https://lasillarota.com/mundo/2025/10/17/crisis-de-confianza-pone-en-jaque-medios-multilateralismo-oea-563026.html)
+- **OEA felicita a Abinader por liderazgo de RD en la libertad de prensa en América Latina**: [Link](https://noticiashoraxhora.com/lo-que-esta-pasando/oea-felicita-a-abinader-por-liderazgo-de-rd-en-la-libertad-de-prensa-en-america-latina/)
+
+
+### ibrahim mbaye (N/A, 17/10/2025 15:26 Lima)
+
+- **Au PSG, Luis Enrique mise sur les Titis parisiens : jusqu'où peuvent aller Senny Mayulu et Ibrahim Mbaye ?**: [Link](https://www.africaradio.com/actualite-111534-au-psg-luis-enrique-mise-sur-les-titis-parisiens-jusqu-ou-peuvent-aller-senny-mayulu-et-ibrahim-mbaye)
+- **Zaïre-Emery - Doué : La révolution validée au PSG !**: [Link](https://le10sport.com/football/ligue1/psg/zaireemery-doue-la-revolution-validee-au-psg-761540)
+- **"Le PSG est un club formateur" : Patrick Vieira admiratif du nombre de titis parisiens qui éclosent chaque saison**: [Link](https://tribuna.com/fr/news/2025-10-16-le-psg-est-un-club-formateur-patrick-vieira-admiratif-du-nombre-de-titis-parisiens-qui-ec/)
+
+
+### psg vs. racing de estrasburgo (N/A, 17/10/2025 15:26 Lima)
+
+- **Exquisita asistencia de Valentín Barco para Estrasburgo ante PSG**: [Link](https://www.espn.com.pe/futbol/francia/nota/_/id/15825740/video-exquisita-asistencia-de-valentin-barco-para-estrasburgo-ante-psg)
+- **Liga de Francia: RC Strasbourg necesita el triunfo ante PSG para llegar a la cima**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-de-francia-rc-strasbourg-necesita-el-triunfo-ante-psg-para-llegar-a-la-cima-noticia-1659607)
+- **PSG vs Estrasburgo: ¡Juega en la Ligue 1 y gana un viaje al Caribe gracias a Meridianbet!**: [Link](https://ovacion.pe/noticias/nota-promocional/psg-vs-estrasburgo-juega-ligue-1-gana-un-viaje-al-caribe-gracias)
+
+
+### psg (N/A, 17/10/2025 15:26 Lima)
+
+- **Le PSG honore 23 femmes atteintes du cancer du sein avant le match contre Strasbourg**: [Link](https://tribuna.com/fr/news/2025-10-17-le-psg-honore-23-femmes-atteintes-du-cancer-du-sein-avant-le-match-contre-strasbourg/)
+- **Ligue 1 McDonald’s : « La meilleure équipe du monde », affirme Liam Rosenior avant d’affronter le Paris Saint-Germain**: [Link](https://www.dazn.com/fr-FR/news/football/ligue-1-mcdonalds-la-meilleure-equipe-du-monde-affirme-liam-rosenior-avant-daffronter-le-paris-saint-germain/1wf7s4s6pcldq135jd598sa43x)
+- **Le but du 2-1 de Diego Moreira pour Strasbourg face au PSG en vidéo**: [Link](https://www.lequipe.fr/Football/Actualites/Le-but-du-2-1-de-diego-moreira-pour-strasbourg-face-au-psg-en-video/1602489)
+
+
+### nicolás maduro (N/A, 17/10/2025 15:26 Lima)
+
+- **Trump: "Maduro no quiere j***r con EE.UU." y por eso ofreció los recursos de Venezuela**: [Link](https://cnnespanol.cnn.com/2025/10/17/eeuu/trump-maduro-acceso-recursos-naturales-venezuela-trax)
+- **#NicolásMaduro ofreció a #EEUU dejar de enviarle #petróleo a #China, distanciarse de #Rusia e #Irán, y dar facilidades a empresas estadounidense en petróleo, gas y minería. La única condición a cambio fue mantener el actual estatus quo en #Venezuela.**: [Link](https://www.facebook.com/DIARIODECUBA/photos/nicol%C3%A1smaduro-ofreci%C3%B3-a-eeuu-dejar-de-enviarle-petr%C3%B3leo-a-china-distanciarse-de-/1370490174433030/)
+- **Donald Trump dijo que Nicolás Maduro le ofreció “de todo” para evitar un conflicto con Estados Unidos**: [Link](https://www.infobae.com/estados-unidos/2025/10/17/donald-trump-dijo-que-nicolas-maduro-le-ofrecio-de-todo-para-evitar-un-conflicto-con-estados-unidos/)
+
+
+### psg vs (N/A, 17/10/2025 15:26 Lima)
+
+- **LIVE! PSG vs Strasbourg in Ligue 1 on beIN SPORTS**: [Link](https://www.beinsports.com/en-us/soccer/ligue-1/articles/live-psg-vs-strasbourg-in-ligue-1-on-bein-sports-2025-10-17)
+- **France Soccer League One**: [Link](https://www.couriernews.com/sports/france-soccer-league-one/image_d1548583-3096-59f8-8cc7-d1c409d938d9.html)
+- **Can PSG Break Their Injury Curse and Turn the Tide in Football?**: [Link](https://emegypt.net/1013140)
+
+
 ### blast slam iv (N/A, 17/10/2025 11:28 Lima)
 
 - **BLAST Slam IV: Schedule, Standings, Results**: [Link](https://hawk.live/posts/blast-slam-iv-schedule-standings-results)
