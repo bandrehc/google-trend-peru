@@ -1,3 +1,10 @@
+### lurin (N/A, 17/10/2025 07:50 Lima)
+
+- **Chofer de combi murió y tres pasajeros resultaron heridos en ataque armado en Lurín [VIDEO]**: [Link](https://rpp.pe/lima/policiales/lurin-chofer-de-combi-murio-y-tres-pasajeros-resultaron-heridos-en-ataque-armado-video-noticia-1659750)
+- **Asesinan a chofer y copiloto de combi con ruta Chepén–Lurín al cierre de su jornada**: [Link](https://elcomercio.pe/lima/policiales/asesinan-a-chofer-y-copiloto-de-combi-con-ruta-chepenlurin-al-cierre-de-su-jornada-ultimas-noticia/)
+- **Sicarios balean combi llena de pasajeros en Lurín: Hay dos muertos y cuatro heridos**: [Link](https://trome.com/actualidad/policiales/lurin-sicarios-asesinan-chofer-y-dejan-heridos-a-pasajeros-dentro-de-una-combi-video-historias-policiales-noticia/)
+
+
 ### union berlin vs (N/A, 17/10/2025 03:31 Lima)
 
 - **Football accumulator tips for Friday October 17: Back our acca at 9-1 with bet365**: [Link](https://www.racingpost.com/sport/football-tips/football-acca-tips/football-accumulator-tips-for-friday-october-17-back-our-acca-at-9-1-with-bet365-aqvrF0M2h0Zf/)
