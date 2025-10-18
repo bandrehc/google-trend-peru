@@ -1,3 +1,69 @@
+### puebla - tijuana (N/A, 17/10/2025 20:44 Lima)
+
+- **Pronóstico Puebla Tijuana - Liga MX 17/10/25**: [Link](https://www.sportytrader.com/es/pronosticos/puebla-tijuana-297531/)
+- **Apertura 2025: La franja enfrenta a la jauría**: [Link](https://www.informador.mx/deportes/Apertura-2025-La-franja-enfrenta-a-la-jauria-20251017-0020.html)
+- **Busca Puebla salir de crisis y triunfar ante Xolos**: [Link](https://cronicapuebla.com/deportes/busca-puebla-salir-de-crisis-y-triunfar-ante-xolos)
+
+
+### lanus vs godoy cruz (N/A, 17/10/2025 20:44 Lima)
+
+- **Lanús vs Godoy Cruz Stats & Insights**: [Link](https://www.betshoot.com/football/19362282-Lan%C3%BAs-vs-Godoy-Cruz-prediction/)
+
+
+### serie a de ecuador (N/A, 17/10/2025 20:44 Lima)
+
+- **Delfín vs Macará, por la LigaPro: día, hora y cómo verlo por TV**: [Link](https://www.ole.com.ar/ecuador/liga-pro/delfin-macara-liga-pro-horario-dia-ver-cetaceo-ambato-calendario-futbol-ecuatoriano_0_Vp4V814u8u.html)
+- **Delfin SC vs Macará: pronósticos, cuotas, transmisión y datos para apostar!**: [Link](https://www.apwin.com/es/pronosticos/delfin-sc-vs-macara-pronostico-liga-pro-19-10-2025/)
+- **Delfín vs. Macará, EN VIVO: dónde ver por TV y ONLINE**: [Link](https://www.tycsports.com/ecuador/futbol-de-ecuador/delfin-vs-macara-en-vivo-donde-ver-por-tv-y-online-id693048.html)
+
+
+### unión magdalena - envigado (N/A, 17/10/2025 20:44 Lima)
+
+- **Pronóstico Unión Magdalena Santa Marta Envigado FC - Liga Postobon 17/10/25**: [Link](https://www.sportytrader.com/es/pronosticos/union-magdalena-santa-marta-envigado-fc-297649/)
+- **¡Día clave para descender o seguir exhalando vida en la A! Unión recibe a Envigado con la obligación de ganarle**: [Link](https://impactonews.co/dia-clave-para-descender-o-seguir-exhalando-vida-en-la-a-union-recibe-a-envigado-con-la-obligacion-de-ganarle/)
+- **Unión - Envigado en vivo online: Liga BetPlay, en directo**: [Link](https://colombia.as.com/futbol/union-envigado-en-vivo-online-liga-betplay-en-directo-f202510-n/)
+
+
+### ldu vs (N/A, 17/10/2025 20:44 Lima)
+
+- **Liga de Quito e Independiente del Valle al tanto: definidos los árbitros para las primeras semifinales por Libertadores y Sudamericana**: [Link](https://www.espn.com.ar/futbol/copa-libertadores/nota/_/id/15826633/liga-de-quito-independiente-del-valle-arbitros-semifinales-libertadores-y-sudamericana)
+- **Los árbitros para la ida**: [Link](https://www.conmebol.com/noticias/los-arbitros-para-la-ida/)
+- **Racing y Lanús conocen los árbitros para la ida de las semifinales de Libertadores y Sudamericana 2025**: [Link](https://espndeportes.espn.com/futbol/copa-libertadores/nota/_/id/15826056/racing-lanus-arbitros-semifinales-libertadores-sudamericana-2025)
+
+
+### ldu quito - barcelona sc (N/A, 17/10/2025 20:44 Lima)
+
+- **VER El Canal del Fútbol EN VIVO: Liga de Quito-Barcelona SC GRATIS**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/el-canal-del-futbol-hoy-en-vivo-futbol-libre-tv-liga-de-quito-vs-barcelona-sc-hoy-gratis-via-teleamazonas-por-hexagonal-de-liga-pro-video-noticia/)
+- **Liga de Quito vs Barcelona EN VIVO: hora, canal y dónde ver transmisión del partido**: [Link](https://libero.pe/futbol-internacional/2025/10/17/liga-de-quito-vs-barcelona-en-vivo-hoy-fecha-2-del-hexagonal-ligapro-ecuador-2025-via-canal-del-futbol-zapping-tv-1340433)
+- **Pronóstico LDU Quito - Barcelona SC. Liga Pro | 18/10/2025**: [Link](https://gainblers.com/pe/pronosticos/futbol/ecuador/liga-pro/pronostico-ldu-quito-barcelona-sc-18-10-2025/)
+
+
+### lanus (N/A, 17/10/2025 20:44 Lima)
+
+- **La anécdota de Izquierdoz con Russo: "Miguel es el fútbol, estar en un vestuario, saber manejar situaciones"**: [Link](https://www.espn.com.ar/futbol/argentina/nota/_/id/15822351/cali-izquierdoz-lanus-miguel-angel-russo-futbol-boca)
+- **Boca Juniors: cenizas de Miguel Ángel Russo fueron esparcidas en La Bombonera**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/boca-juniors-cenizas-de-miguel-angel-russo-fueron-esparcidas-en-la-bombonera-noticia/)
+- **Tal como lo había pedido, los restos de Miguel Ángel Russo ya descansan en La Bombonera**: [Link](https://espndeportes.espn.com/futbol/argentina/nota/_/id/15820507/las-cenizas-de-miguel-angel-russo-boca-la-bombonera-leandro-paredes)
+
+
+### argentinos jrs. - newell's (N/A, 17/10/2025 20:44 Lima)
+
+- **Argentinos recibe a Newell's en la fecha 13 del Torneo Clausura**: [Link](https://espndeportes.espn.com/futbol/argentina/nota/_/id/15815371/argentinos-vs-newells-old-boys-fecha-13-torneo-clausura-equipo-fecha-hora-y-tv-en-vivo)
+- **San Martín de San Juan vs Independiente: estadísticas previas y datos en directo | Liga Profesional Argentina 2025**: [Link](https://as.com/resultados/futbol/argentina/2025/directo/regular_a_13_516747/)
+- **Argentinos vs Newell`s por la fecha 13 de Liga Profesional EN VIVO. Seguilo minuto a minuto por la web de TN.**: [Link](https://tn.com.ar/deportes/futbol/2025/10/17/argentinos-vs-newells-en-vivo-por-la-fecha-13-de-la-liga-profesional-hora-donde-ver-y-formaciones/)
+
+
+### independiente medellin vs (N/A, 17/10/2025 20:44 Lima)
+
+Sin noticias relacionadas disponibles.
+
+
+### lanús - godoy cruz (N/A, 17/10/2025 20:44 Lima)
+
+- **Lanús recibe a Godoy Cruz por la fecha 13 del Torneo Clausura**: [Link](https://www.ole.com.ar/lanus/lanus-recibe-godoy-cruz-clausura_0_LzL9d7rRcX.html)
+- **Los últimos antecedentes en La Fortaleza**: [Link](https://www.vavel.com/ar/futbol-argentino/2025/10/16/godoy-cruz/1237797-los-ultimos-antecedentes-en-la-fortaleza.html)
+- **Ver EN VIVO Argentinos Juniors vs. Newell`s: dónde seguir por TV y ONLINE en streaming**: [Link](https://www.tycsports.com/liga-profesional-de-futbol/argentinos-juniors-vs-newells-en-vivo-donde-ver-por-tv-y-online-id692782.html)
+
+
 ### joaquín panichelli (N/A, 17/10/2025 15:26 Lima)
 
 - **Joaquín Panichelli convirtió un golazo para el empate de Estrasburgo ante PSG**: [Link](https://www.espn.com.ar/futbol/francia/nota/_/id/15825638/video-joaquin-panichelli-convirtio-un-golazo-para-el-empate-de-estrasburgo-ante-psg)
