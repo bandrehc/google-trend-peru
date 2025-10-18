@@ -1,3 +1,45 @@
+### tigres - necaxa (N/A, 17/10/2025 23:26 Lima)
+
+- **Liga MX: Tigres vs. Necaxa sufre retraso por tráfico en Monterrey**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/15827531/tigres-vs-necaxa-retraso-trafico-monterrey-liga-mx-2025)
+- **Jornada 13 Apertura 2025: Gignac se desafía a sí mismo; Anthony Martial, a despertar ante Pumas**: [Link](https://www.si.com/mx/liga-mx/jornada-13-apertura-2025-gignac-desafia-si-mismo-anthony-martial-despertar-pumas)
+- **Gol de Díber Cambindo: Tigres 0 - 1 Necaxa | Jornada 13 | Liga BBVA MX | Apertura 2025**: [Link](https://www.tvazteca.com/aztecadeportes/gol-diber-cambindo-tigres-0-1-necaxa-jornada-13-liga-bbva-mx-apertura-2025)
+
+
+### atl. san luis - atlas (N/A, 17/10/2025 23:26 Lima)
+
+- **Pronóstico Atlético San Luis vs Atlas jornada 13 Liga MX Apertura 2025**: [Link](https://www.sportytrader.com/es/pronosticos/san-luis-atlas-297215/)
+- **Liga MX: Atl. de San Luis quiere volver a ganar ante Atlas**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-atl-de-san-luis-quiere-volver-a-ganar-ante-atlas-noticia-1659695)
+- **Plan "Estadio Seguro" implementará 800 efectivos en partido Atlético de San Luis vs Atlas**: [Link](https://elheraldoslp.com.mx/new/2025/10/17/plan-estadio-seguro-implementara-800-efectivos-en-partido-atletico-de-san-luis-vs-atlas/)
+
+
+### karol g (N/A, 17/10/2025 23:26 Lima)
+
+- **Victoria’s Secret Fashion Show 2025 Pink Carpet Arrivals, Live Updates**: [Link](https://wwd.com/fashion-news/fashion-scoops/gallery/victorias-secret-fashion-show-2025-arrivals-photos-1238304144/)
+- **Karol G's Victoria's Secret Fashion Show 2025 Performance Look Explored "A Different Kind of Sensuality"**: [Link](https://www.inkl.com/news/karol-g-s-victoria-s-secret-fashion-show-2025-performance-look-explored-a-different-kind-of-sensuality)
+- **Karol G Is ‘Serving That Latina Vibe’ in Red Lace Catsuit, Fans Say**: [Link](https://www.yahoo.com/entertainment/celebrity/articles/karol-g-serving-latina-vibe-230501714.html)
+
+
+### rammstein (N/A, 17/10/2025 23:26 Lima)
+
+- **Till Lindemann (Rammstein): Autogrammstunde mit Joey Kelly wird verlegt**: [Link](https://sonic-seducer.de/till-lindemann-rammstein-autogrammstunde-mit-joey-kelly-wird-verlegt/)
+- **Till Lindemann verändert Ort seiner Autogrammstunde: „Anfeindungen, Einschüchterungsversuche, Drohungen“**: [Link](https://www.berliner-zeitung.de/kultur-vergnuegen/musik/till-lindemann-veraendert-ort-seiner-autogrammstunde-anfeindungen-einschuechterungsversuche-drohungen-li.10001420)
+- **Till Lindemann will mit seinen Fans unbedingt auf Tuchfühlung gehen**: [Link](https://www.rollingstone.de/till-lindemann-meet-and-greet-meine-welt-3066621/)
+
+
+### justin bieber (N/A, 17/10/2025 23:26 Lima)
+
+- **Justin Bieber Wows Crowd With Deep Three-Pointers In Basketball Game**: [Link](https://www.tmz.com/2025/10/17/justin-bieber-basketball-the-league/)
+- **Hot Pics — See What Your Fave Celebs Are Up To This Fall!**: [Link](https://okmagazine.com/p/hot-pics-okmagazine-october-fall-2025/)
+- **Justin Bieber Shows Off Muscles and Array of Tattoos in SKYLRK Jersey During Basketball Game**: [Link](https://www.yahoo.com/entertainment/celebrity/articles/justin-bieber-shows-off-muscles-195705712.html)
+
+
+### boyacá chicó - santa fe (N/A, 17/10/2025 23:26 Lima)
+
+- **Santa Fe empató con el penúltimo y enredó su paso a los cuadrangulares**: [Link](https://espndeportes.espn.com/futbol/colombia/nota/_/id/15822667/chico-vs-santa-fe-empato-complica-clasificacion-cuadrangulares)
+- **Santa Fe inicia gira de visitante por los puntos para seguir en los 8**: [Link](https://www.espn.com.ar/futbol/colombia/nota/_/id/15822667/chico-vs-santa-fe-fecha-16-eliminatoria-equipo-fecha-hora-y-tv-en-vivo)
+- **Santa Fe estuvo cerca de marcar un golazo ante Boyacá Chicó**: [Link](https://www.winsports.co/futbol-colombiano/noticias/santa-fe-estuvo-cerca-de-marcar-un-golazo-ante-boyaca-chico-387284)
+
+
 ### puebla - tijuana (N/A, 17/10/2025 20:44 Lima)
 
 - **Pronóstico Puebla Tijuana - Liga MX 17/10/25**: [Link](https://www.sportytrader.com/es/pronosticos/puebla-tijuana-297531/)
