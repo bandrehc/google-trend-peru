@@ -1,3 +1,71 @@
+### bayer vs (N/A, 18/10/2025 11:26 Lima)
+
+- **Leverkusen beat Mainz 4-3 in an amazing Bundesliga goal-fest**: [Link](https://bulinews.com/mainzvsleverkusen)
+- **Germany Soccer Bundesliga**: [Link](https://www.wvnews.com/sports/pro/germany-soccer-bundesliga/image_158bfc30-b57c-5d6a-b020-8f1a1c534bfa.html)
+- **Grimaldo Brace Helps Bayer Leverkusen Beat Mainz in Seven-Goal Thriller**: [Link](https://www.tribalfootball.com/article/soccer-bundesliga-grimaldo-brace-helps-bayer-leverkusen-beat-mainz-in-seven-goal-thriller-a3baf0ce-b3f2-4e84-abd6-64b0a55fa8b3)
+
+
+### posiciones de la liga (N/A, 18/10/2025 11:26 Lima)
+
+- **Acumulado de Liga 1: tabla de posiciones y resultados de la fecha 14 del Torneo Clausura 2025**: [Link](https://depor.com/futbol-peruano/descentralizado/acumulado-liga-1-2025-peru-tabla-de-posiciones-y-resultados-de-fecha-14-del-torneo-clausura-2025-noticia/)
+- **Tabla de posiciones de Liga 1 EN VIVO: así va el Clausura y Acumulado**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/tabla-de-liga-1-2025-como-van-las-posiciones-del-torneo-clausura-y-acumulado-partidos-y-resultados-noticia/)
+- **Así va la lucha por no descender de la Liga 1 2025: posiciones y partidos que le quedan a los equipos en el Torneo Clausura**: [Link](https://www.infobae.com/peru/deportes/2025/10/16/asi-va-la-lucha-por-no-descender-de-la-liga-1-2025-posiciones-y-partidos-que-le-quedan-a-los-equipos-en-el-torneo-clausura/)
+
+
+### besiktas vs (N/A, 18/10/2025 11:26 Lima)
+
+- **How to watch today's Besiktas vs Genclerbirligi Super Lig game: Live stream, TV channel, and start time**: [Link](https://www.goal.com/en-us/news/watch-besiktas-vs-genclerbirligi-super-lig-game-live-stream-tv-channel-start-time/blt50413a6c60169a5c)
+- **Preview: Besiktas vs Genclerbirligi - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/besiktas/preview/besiktas-vs-genclerbirligi-prediction-team-news-lineups_583743.html)
+- **Besiktas vs Genclerbirligi Prediction: The Black Eagles Take Flight Toward Triumph!**: [Link](https://www.telecomasia.net/sports-betting/tips/football/turkey-super-league/besiktas-vs-genclerbirligi-prediction-for-the-match-on-october-18-2025/)
+
+
+### fcb (N/A, 18/10/2025 11:26 Lima)
+
+- **Barça and Girona express support for victims of Storm Alice in Terres de l'Ebre**: [Link](https://www.fcbarcelona.com/en/club/news/4384097/barca-and-girona-express-support-for-victims-of-storm-alice-in-terres-de-lebre)
+- **▷ ESPN EN VIVO GRATIS — dónde puedes ver FC Barcelona vs. Girona por TV y Online**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/espn-en-vivo-gratis-ver-partido-fc-barcelona-vs-girona-en-directo-por-laliga-2025-2026-via-futbol-tv-nnda-nnse-noticia/)
+- **LaLiga EA Sports: Barcelona enfrenta a Girona para subirse a la cima**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-barcelona-enfrenta-a-girona-para-subirse-a-la-cima-noticia-1659745)
+
+
+### torino vs (N/A, 18/10/2025 11:26 Lima)
+
+- **Preview: Torino vs Napoli - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/torino/preview/torino-vs-napoli-prediction-team-news-lineups_583678.html)
+- **David Neres: A Chance to Shine**: [Link](https://www.ilmattino.it/en/david_neres_a_chance_to_shine-9130629.html)
+- **Football, Conte ahead of Torino-Napoli: “Buongiorno and Politano recovered”**: [Link](https://lapresse.us/sports/2025/10/17/football-conte-ahead-of-torino-napoli-buongiorno-and-politano-recovered/)
+
+
+### bayern - dortmund (N/A, 18/10/2025 11:26 Lima)
+
+- **Alle Highlights, Tore, Videos und Fotos: Verfolge den Der-Klassiker-Liveticker von Tribuna.com direkt aus der Allianz Arena**: [Link](https://tribuna.com/de/blogs/alle-highlights-tore-videos-und-fotos-verfolge-den-derklassi/)
+- **FC Bayern - BVB: Die offiziellen Aufstellungen**: [Link](https://www.dazn.com/de-DE/news/fussball/fc-bayern-bvb-die-offiziellen-aufstellungen-borussia-dortmund-bundesliga/21lsw639c9m21rtsoogw1a0g2)
+- **Fußball-Bundesliga: Bayern ohne Gnabry in den Bundesliga-Gipfel**: [Link](https://www.zeit.de/news/2025-10/18/bayern-ohne-gnabry-in-den-bundesliga-gipfel)
+
+
+### fulham - arsenal (N/A, 18/10/2025 11:26 Lima)
+
+- **Confirmed Arsenal team to face Fulham – Zubimendi replaces Odegaard**: [Link](https://www.justarsenal.com/confirmed-arsenal-team-to-face-fulham-zubimendi-replaces-odegaard/402194)
+- **Arsenal’s Injury Issues Laughed Off by Fulham Manager Marco Silva**: [Link](https://www.fotmob.com/embed/news/01k7ve6h6f4h/arsenals-injury-issues-laughed-off-fulham-manager-marco-silva)
+- **Fulham v Arsenal Predicted Starting Lineups for Premier League Match Amid Odegaard Update**: [Link](https://www.givemesport.com/fulham-arsenal-starting-lineups-premier-league-match-2025-26/)
+
+
+### villarreal - real betis (N/A, 18/10/2025 11:26 Lima)
+
+- **Villarreal - Betis | Pellegrini 'amenaza' el gran día de Marcelino: previa, análisis, pronóstico y predicción**: [Link](https://www.marca.com/futbol/primera-division/2025/10/18/villarreal-betis-pellegrini-amenaza-gran-dia-marcelino-previa-analisis-pronostico-prediccion.html)
+- **LaLiga EA Sports: Villarreal quiere vencer y quitarle la racha positiva a Betis**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-villarreal-quiere-vencer-y-quitarle-la-racha-positiva-a-betis-noticia-1659758)
+- **La Champions de los ‘mortales’**: [Link](https://as.com/futbol/primera/la-champions-de-los-mortales-f202510-n/)
+
+
+### eli junior kroupi (N/A, 18/10/2025 11:26 Lima)
+
+- **Eli Junior Kroupi is the real deal: Why the teenager could be Bournemouth's first £80m player**: [Link](https://www.fourfourtwo.com/news/eli-junior-kroupi-is-the-real-deal-why-the-teenager-could-be-bournemouths-first-gbp80m-player)
+
+
+### torino - napoli (N/A, 18/10/2025 11:26 Lima)
+
+- **LIVE Alle 18 Torino-Napoli, le ufficiali: Baroni con Simeone e Adams, Hojlund e McTominay ko**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Torino/18-10-2025/torino-napoli-live-diretta-serie-a.shtml)
+- **A Dazn: «Siamo ottimisti, il nostro principio di gioco è l'aggressione. Non è giusto parlare di Baroni o della società, dobbiamo crescere tutti insieme»**: [Link](https://www.facebook.com/story.php?story_fbid=1328890799249572&id=100063859936263)
+- **Hojlund e Lukaku infortunati, chi è l'alternativa a Lucca come punta del Napoli? Solo 15 minuti fin qui**: [Link](https://www.goal.com/it/liste/hojlund-e-lukaku-infortunati-chi-e-l-alternativa-a-lucca-come-punta-del-napoli-solo-15-minuti-fin-qui/blt74d8c9bafd6b95d4)
+
+
 ### solicitud retiro afp (N/A, 18/10/2025 07:43 Lima)
 
 - **Retiro AFP 2025: Cada administradora activará ‘link’ para hacer la solicitud desde el 21 de octubre**: [Link](https://www.infobae.com/peru/2025/10/13/retiro-afp-2025-solicitud-se-hara-via-link-oficial-de-cada-administradora-desde-este-martes-21-de-octubre/)
