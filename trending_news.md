@@ -1,3 +1,73 @@
+### comerciantes unidos - alianza atlético (N/A, 18/10/2025 15:23 Lima)
+
+- **Comerciantes Unidos vs Alianza Atlético en vivo: Hora, canal tv y dónde ver el Clausura**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/comerciantes-unidos-vs-alianza-atletico-hoy-en-vivo-via-l1-max-hora-del-partido-y-donde-ver-futbol-gratis-por-la-fecha-15-del-torneo-clausura-de-liga-1-2025-tdpe-noticia/)
+- **Liga 1: Comerciantes Unidos y Alianza Atlético se encuentran en la fecha 15**: [Link](https://rpp.pe/futbol/descentralizado/liga-1-comerciantes-unidos-y-alianza-atletico-se-encuentran-en-la-fecha-15-noticia-1659788)
+- **Liga 1: Alianza Atlético solo piensa en su rival de turno**: [Link](https://diariocorreo.pe/deportes/liga-1-alianza-atletico-solo-piensa-en-su-rival-de-turno-noticia/)
+
+
+### leicester city - portsmouth (N/A, 18/10/2025 15:23 Lima)
+
+- **Leicester vs Portsmouth Confirmed Lineups for October 18**: [Link](https://lastwordonsports.com/football/2025/10/18/leicester-vs-portsmouth-confirmed-lineups-october/)
+- **Leicester v Pompey team news**: [Link](https://www.portsmouthfc.co.uk/news/2025/october/18/pompey-unchanged-at-leicester/)
+- **Leicester transfer pursuit dismissed as fake amid Portsmouth game boost**: [Link](https://foxesofleicester.com/leicester-transfer-pursuit-dismissed-as-fake-amid-portsmouth-game-boost)
+
+
+### adt vs universitario (N/A, 18/10/2025 15:23 Lima)
+
+- **Cuestión de números: ¿Universitario puede lograr el tricampeonato de la Liga1 ante Sporting Cristal?**: [Link](https://rpp.pe/futbol/descentralizado/universitario-puede-lograr-el-tricampeonato-de-liga1-ante-sporting-cristal-torneo-clausura-cusco-fc-noticia-1659918)
+- **Universitario y la posibilidad de ser tricampeón de la Liga 1 a costa de Sporting Cristal**: [Link](https://www.espn.com.ar/futbol/peru/nota/_/id/15817244/universitario-y-la-posibilidad-de-ser-tricampeon-de-la-liga-1-a-costa-de-sporting-cristal)
+- **Universitario puede ser tricampeón en el partido ante Sporting Cristal: ¿Qué resultados necesita para conseguirlo?**: [Link](https://www.infobae.com/peru/deportes/2025/10/15/universitario-puede-ser-tricampeon-en-el-partido-ante-sporting-cristal-que-resultados-necesita-para-conseguirlo/)
+
+
+### colombia sub-20 - francia sub-20 (N/A, 18/10/2025 15:23 Lima)
+
+- **VER, Colombia-Francia Sub 20 EN VIVO por Gol Caracol y DIRECTV**: [Link](https://elcomercio.pe/deporte-total/colombia/colombia-vs-francia-sub-20-en-vivo-gratis-hoy-via-futbol-libre-tv-gol-caracol-horarios-canales-tv-y-donde-ver-partido-por-tercer-lugar-del-mundial-sub-20-video-noticia/)
+- **Podio y Neiser goleador, lo que busca Colombia en cierre del Mundial Sub 20 de Chile 2025**: [Link](https://www.espn.com.ar/futbol/nota/_/id/15825553/colombia-vs-francia-objetivos-podio-neiser-villarreal-goleador)
+- **El ‘streamer’ argentino Luquitas Rodríguez, habló sobre la mentalidad del jugador colombiano tras la eliminación del Mundial Sub-20: “Juegan sin contexto”**: [Link](https://www.infobae.com/colombia/deportes/2025/10/16/la-teoria-de-luquitas-rodriguez-el-streamer-argentino-tras-la-caida-de-la-seleccion-colombia-sobre-la-mentalidad-del-jugador-cafetero-hasta-en-un-mundial-sub-20/)
+
+
+### ajax - az (N/A, 18/10/2025 15:23 Lima)
+
+- **Ajax begint met Gloukh aan thuisduel met AZ**: [Link](https://www.rtl.nl/nieuws/sport/artikel/5534224/ajax-begint-met-gloukh-aan-thuisduel-met-az)
+- **LIVE eredivisie | Berghuis voorlopig uit de roulatie bij Ajax, Edvardsen vermoedelijke vervanger tegen AZ**: [Link](https://www.ad.nl/voetbal/live-eredivisie-berghuis-voorlopig-uit-de-roulatie-bij-ajax-edvardsen-vermoedelijke-vervanger-tegen-az~a2486c1a/)
+- **Mijnans vertrouwt op winst tegen Ajax: "Spelen wij altijd goed"**: [Link](https://www.ajax1.nl/mijnans-vertrouwt-op-winst-tegen-ajax-spelen-wij-altijd-goed/)
+
+
+### alcaraz vs sinner (N/A, 18/10/2025 15:23 Lima)
+
+- **Six Kings Slam 2025: Everything to Know About Riyadh Season’s Tennis Showcase**: [Link](https://www.netflix.com/tudum/articles/riyadh-season-six-kings-slam-tennis)
+- **Six Kings Slam prize money: How much is on the line as Alcaraz and Sinner compete for biggest payday in tennis?**: [Link](https://www.independent.co.uk/sport/tennis/six-kings-slam-prize-money-winner-b2847792.html)
+- **Alcaraz vs Sinner Live 𝐬𝐭𝐫𝐞𝐚𝐦 Free 18 October 2025**: [Link](https://www.thealbertan.com/classifieds/homes-rentals-and-real-estate/open-houses/2034823)
+
+
+### inter (N/A, 18/10/2025 15:23 Lima)
+
+- **Dybala: From collapsed Inter transfer to possible Roma surprise in Serie A showdown**: [Link](https://football-italia.net/dybala-collapsed-inter-transfer-roma-surprise/)
+- **Can Roma dream of the Scudetto? Gasperini responds firmly before the clash with Inter**: [Link](https://telegrafi.com/en/Can-Roma-dream-of-the-Scudetto-Gasperini-answers-bluntly-before-the-match-with-Inter/)
+- **Lautaro, Esposito, and Bonny: who rests against Roma? Chivu’s answer raises doubts**: [Link](https://tribuna.com/en/news/2025-10-17-lautaro-esposito-and-bonny-who-rests-against-roma-chivus-answer-raises-doubts/)
+
+
+### pasto - atlético nacional (N/A, 18/10/2025 15:23 Lima)
+
+- **Con técnico ratificado, Nacional visita al antepenúltimo del FPC**: [Link](https://espndeportes.espn.com/futbol/colombia/nota/_/id/15824732/pasto-vs-nacional-fecha-16-liga-betplay-equipo-fecha-hora-y-tv-en-vivo)
+- **Pronóstico Deportivo Pasto Atlético Nacional - Liga Postobon 18/10/25**: [Link](https://www.sportytrader.com/es/pronosticos/deportivo-pasto-atletico-nacional-297344/)
+- **Deportivo Cali vs América de Cali: Apuestas, Pronóstico y Cuotas**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/internacional/2025/octubre/pronostico-deportivo-cali-vs-america-de-cali-18-10-25)
+
+
+### independiente rivadavia - banfield (N/A, 18/10/2025 15:23 Lima)
+
+- **EN VIVO: Banfield se lleva la victoria parcial 2-0 sobre Independiente Riv. (M)**: [Link](https://www.directvsports.com/futbol/EN-VIVO-Banfield-se-lleva-la-victoria-parcial-2-0-sobre-Independiente-Riv.-M-20251015-0029.html)
+- **Independiente Rivadavia vs Banfield, por el Torneo Clausura: minuto a minuto, en directo**: [Link](https://www.clarin.com/deportes/independiente-rivadavia-vs-banfield-torneo-clausura-minuto-minuto-directo_0_U41EYl1SOl.html)
+- **Ver EN VIVO Independiente Riv. (M) vs. Banfield: dónde seguir por TV y ONLINE en streaming**: [Link](https://www.tycsports.com/liga-profesional-de-futbol/independiente-riv-m-vs-banfield-en-vivo-donde-ver-por-tv-y-online-id692965.html)
+
+
+### ajax vs (N/A, 18/10/2025 15:23 Lima)
+
+- **Preview: Ajax vs. AZ - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/ajax/preview/ajax-vs-az-prediction-team-news-lineups_583733.html)
+- **Ajax vs AZ: Heitinga Finalizes Strategy for Crucial Match**: [Link](https://www.el-balad.com/6736400)
+- **AFC Ajax vs AZ Alkmaar: Prediction, Preview and Team News – 18/10/25**: [Link](https://ghanasoccernet.com/bookmaker-ratings/tips/afc-ajax-vs-az-alkmaar-prediction-preview-and-team-news-18-10-25/)
+
+
 ### bayer vs (N/A, 18/10/2025 11:26 Lima)
 
 - **Leverkusen beat Mainz 4-3 in an amazing Bundesliga goal-fest**: [Link](https://bulinews.com/mainzvsleverkusen)
