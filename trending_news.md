@@ -1,3 +1,31 @@
+### luis pacheco mandujano (N/A, 18/10/2025 03:28 Lima)
+
+- **Delia Espinoza y la JNJ: ¿Qué sucederá tras el fallo cautelar que dispone su retorno como fiscal de la Nación?**: [Link](https://elcomercio.pe/politica/delia-espinoza-y-la-jnj-que-sucedera-tras-el-fallo-cautelar-que-dispone-su-retorno-como-fiscal-de-la-nacion-tlc-audio-noticia/)
+- **Luis Pacheco Mandujano dice que decisión del Poder Judicial de reponer a Delia Espinoza como fiscal de la Nación es “para tumbar a José Jerí”**: [Link](https://www.expreso.com.pe/judicial/luis-pacheco-mandujano-dice-que-decision-del-poder-judicial-de-reponer-a-delia-espinoza-como-fiscal-de-la-nacion-es-para-tumbar-a-jose-jeri-noticia/1231855/)
+- **Alertan que JNJ buscaría incumplir reposición de Delia Espinoza como fiscal de la Nación**: [Link](https://larepublica.pe/politica/2025/10/17/alertan-que-jnj-buscaria-incumplir-reposicion-de-delia-espinoza-como-fiscal-de-la-nacion-hnews-871692)
+
+
+### stake (N/A, 18/10/2025 03:28 Lima)
+
+- **Bessent Stakes Credibility and Taxpayer Money on Argentina Bet**: [Link](https://www.nytimes.com/2025/10/17/us/politics/trump-argentina-bailout-bessent.html)
+- **Bessent says US bought pesos again, currency slips**: [Link](https://www.reuters.com/world/americas/bessent-says-us-bought-pesos-again-currency-dips-2025-10-17/)
+- **Why Trump is giving Argentina a $20 billion lifeline to help its flailing economy**: [Link](https://www.pbs.org/newshour/show/why-trump-is-giving-argentina-a-20-billion-lifeline-to-help-its-flailing-economy)
+
+
+### cambio del dolar peru (N/A, 18/10/2025 03:28 Lima)
+
+- **Precio del dólar sigue cayendo sin parar: Así cerró el tipo de cambio hoy 17 de octubre en Perú**: [Link](https://www.infobae.com/peru/2025/10/17/dolar-cotizacion-de-apertura-hoy-17-de-octubre-en-peru/)
+- **¿Seguirá cayendo el dólar o se estabilizará? Expertos analizan la tendencia bajista, tras el cierre en S/ 3.38**: [Link](https://rpp.pe/economia/economia/precio-del-dolar-expertos-analizan-factores-de-tendencia-bajista-tras-cierre-de-hoy-en-peru-de-338-soles-noticia-1659671)
+- **Dólar cae 10% ante el sol, ¿qué figura prominente lo ancla pese a caos político?**: [Link](https://gestion.pe/tu-dinero/dolar-cae-10-ante-el-sol-que-figura-prominente-lo-ancla-pese-a-caos-politico-proyecciones-del-dolar-crisis-politica-bbva-jeri-tipo-de-cambio-en-peru-noticia/)
+
+
+### fonavi (N/A, 18/10/2025 03:28 Lima)
+
+- **Lista 22 del Fonavi será el último cobro del 2025: Se proyecta para fines de diciembre**: [Link](https://www.infobae.com/peru/2025/10/11/ultimo-cobro-del-fonavi-del-2025-lista-22-se-proyecta-a-pagar-en-diciembre/)
+- **Solo con DNI: fonavistas podrán acceder a la devolución de aportes durante octubre de 2025. ¿Cómo acceder si eres beneficiario?**: [Link](https://elpopular.pe/actualidad/2025/10/17/solo-con-dni-fonavistas-podran-acceder-a-la-devolucion-de-aportes-durante-octubre-de-2025-como-acceder-si-eres-beneficiario-1395190)
+- **Fonavi: cómo saber con tu DNI si tienes un pago pendiente que será devuelto en octubre**: [Link](https://larepublica.pe/economia/2025/10/13/fonavi-como-saber-con-tu-dni-si-tienes-un-pago-pendiente-que-sera-devuelto-en-octubre-evat-233792)
+
+
 ### tigres - necaxa (N/A, 17/10/2025 23:26 Lima)
 
 - **Liga MX: Tigres vs. Necaxa sufre retraso por tráfico en Monterrey**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/15827531/tigres-vs-necaxa-retraso-trafico-monterrey-liga-mx-2025)
