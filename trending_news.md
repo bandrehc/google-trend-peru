@@ -1,3 +1,52 @@
+### solicitud retiro afp (N/A, 18/10/2025 07:43 Lima)
+
+- **Retiro AFP 2025: Cada administradora activará ‘link’ para hacer la solicitud desde el 21 de octubre**: [Link](https://www.infobae.com/peru/2025/10/13/retiro-afp-2025-solicitud-se-hara-via-link-oficial-de-cada-administradora-desde-este-martes-21-de-octubre/)
+- **¡Retiro de AFP hasta 4 UIT! Conoce la nueva ley del Congreso 👏**: [Link](https://comunicaciones.congreso.gob.pe/tv-congreso/retiro-de-afp-hasta-4-uit-conoce-la-nueva-ley-del-congreso-%F0%9F%91%8F/)
+- **Solo por pensión de alimentos los fondos de la AFP pueden ser embargados hasta en 30%**: [Link](https://rpp.pe/lima/actualidad/solo-por-pension-de-alimentos-los-fondos-de-la-afp-pueden-ser-embargados-hasta-en-30-noticia-1659125)
+
+
+### miss grand international 2025 (N/A, 18/10/2025 07:43 Lima)
+
+- **Final del Miss Grand Internacional 2025: fecha, hora y dónde ver EN VIVO**: [Link](https://elcomercio.pe/tvmas/television/donde-ver-la-final-del-miss-grand-internacional-2025-en-vivo-via-grand-tv-youtube-a-que-hora-inicia-fecha-y-como-seguir-la-participacion-de-flavia-lopez-tdpe-noticia/)
+- **Miss Grand International 2025: ¿Cómo votar por Flavia López para que ingrese al Top 20 del certamen?**: [Link](https://www.infobae.com/peru/2025/10/09/miss-grand-international-como-votar-por-flavia-lopez-para-que-ingresar-al-top-20-del-certamen/)
+- **Miss Grand International 2025: Todo lo que necesitas saber sobre el evento donde participará Flavia López**: [Link](https://elcomercio.pe/luces/miss-grand-international-2025-todo-lo-que-necesitas-saber-sobre-el-evento-donde-participara-flavia-lopez-noticia/)
+
+
+### hora peru (N/A, 18/10/2025 07:43 Lima)
+
+- **Así fue el desfile Victoria’s Secret 2025: la colombiana Karol G, Twice y hasta una modelo embarazada**: [Link](https://cnnespanol.cnn.com/2025/10/16/entretenimiento/video/victorias-secret-desfile-2025-karol-g-twice-embarazada-showbiz)
+- **Así fue el ‘Victoria’s Secret Fashion Show’: sonó a Colombia con la presentación de Karol G y Valentina Castro debutó junto a los “ángeles”**: [Link](https://www.infobae.com/colombia/2025/10/15/en-vivo-siga-aqui-la-transmision-en-vivo-del-victorias-secret-fashion-show-2025-con-presencia-colombiana/)
+- **¿Cuánto pesan realmente las alas usadas por las modelos en el Victoria’s Secret Fashion Show?**: [Link](https://www.eltiempo.com/cultura/gente/cuanto-pesan-realmente-las-alas-usadas-por-las-modelos-en-el-victoria-s-secret-fashion-show-3500091)
+
+
+### sevilla - r.c.d. mallorca (N/A, 18/10/2025 07:43 Lima)
+
+- **Sevilla - Mallorca en directo | La Liga EA Sports en vivo**: [Link](https://www.marca.com/futbol/laliga-ea-sports/sevilla-mallorca/2025/10/18/01_0101_20251018_179_181-directo.html)
+- **Sevilla vs Mallorca: Apuestas, Pronóstico y Cuotas**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2025/octubre/pronostico-sevilla-vs-mallorca-18-10-25)
+- **Sevilla recibe a Mallorca por la fecha 9 de LaLiga**: [Link](https://www.espn.com.ar/futbol/espana/nota/_/id/15822702/sevilla-vs-mallorca-fecha-9-laliga-alexis-sanchez-fecha-hora-tv-en-vivo)
+
+
+### señor de los milagros (N/A, 18/10/2025 07:43 Lima)
+
+- **Señor de los Milagros recorre las calles del Centro de Lima en su segunda procesión del año**: [Link](https://rpp.pe/lima/actualidad/senor-de-los-milagros-recorre-las-calles-del-centro-de-lima-en-su-segunda-procesion-del-ano-noticia-1659898)
+- **Señor de los Milagros: así será su segundo recorrido este sábado 18 de octubre del Cristo Morado | LIMA**: [Link](https://elcomercio.pe/lima/transporte/senor-de-los-milagros-asi-sera-su-segundo-recorrido-este-sabado-18-de-octubre-cristo-morado-ultimas-noticia/)
+- **Señor de los Milagros llegará a Palacio de Gobierno este sábado 18 de octubre: ¿A qué hora inicia el segundo recorrido?**: [Link](https://www.infobae.com/peru/2025/10/17/senor-de-los-milagros-llegara-a-palacio-de-gobierno-este-sabado-18-de-octubre-a-que-hora-inicia-el-segundo-recorrido/)
+
+
+### nottingham forest - chelsea (N/A, 18/10/2025 07:43 Lima)
+
+- **Premier League LIVE: Nottingham Forest vs Chelsea scores & updates**: [Link](https://www.bbc.com/sport/football/live/c5yq2nd7z05t)
+- **Enzo Maresca confirms team news for Nottingham Forest | News | Official Site**: [Link](https://www.chelseafc.com/en/news/article/enzo-maresca-confirms-team-news-for-nottingham-forest)
+- **Worrying Moises Caicedo stat as Chelsea bench midfield superstar**: [Link](https://chelsea.news/2025/10/caicedo-stat-chelsea-bench-superstar/)
+
+
+### nicolás maduro (N/A, 18/10/2025 07:43 Lima)
+
+- **Trump: "Maduro no quiere j***r con EE.UU." y por eso ofreció los recursos de Venezuela**: [Link](https://cnnespanol.cnn.com/2025/10/17/eeuu/trump-maduro-acceso-recursos-naturales-venezuela-trax)
+- **Explosiva amenaza de Trump a Maduro: “No andes jodiendo con los Estados Unidos”**: [Link](https://as.com/videos/actualidad/explosiva-amenaza-de-trump-a-maduro-no-andes-jodiendo-con-los-estados-unidos-f202510-v/)
+- **Donald Trump dijo que Nicolás Maduro le ofreció “de todo” para evitar un conflicto con Estados Unidos**: [Link](https://www.infobae.com/estados-unidos/2025/10/17/donald-trump-dijo-que-nicolas-maduro-le-ofrecio-de-todo-para-evitar-un-conflicto-con-estados-unidos/)
+
+
 ### luis pacheco mandujano (N/A, 18/10/2025 03:28 Lima)
 
 - **Delia Espinoza y la JNJ: ¿Qué sucederá tras el fallo cautelar que dispone su retorno como fiscal de la Nación?**: [Link](https://elcomercio.pe/politica/delia-espinoza-y-la-jnj-que-sucedera-tras-el-fallo-cautelar-que-dispone-su-retorno-como-fiscal-de-la-nacion-tlc-audio-noticia/)
