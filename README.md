@@ -1,3 +1,73 @@
+### deportivo cali - américa (N/A, 18/10/2025 21:01 Lima)
+
+- **Liga BetPlay: América pide "veedores arbitrales" para el clásico ante Cali**: [Link](https://www.espn.com.ar/futbol/colombia/nota/_/id/15825828/america-pide-veedores-arbitrales-clasico-deportivo-cali-liga-betplay)
+- **VER WIN SPORTS EN VIVO: Cali vs. América por Liga BetPlay**: [Link](https://elcomercio.pe/deporte-total/colombia/win-sports-en-vivo-futbol-libre-tv-cali-vs-america-hoy-gratis-via-win-play-por-clasico-caleno-link-video-noticia/)
+- **Pronóstico Deportivo Cali América de Cali - Liga Postobon 18/10/25**: [Link](https://www.sportytrader.com/es/pronosticos/deportivo-cali-america-de-cali-298101/)
+
+
+### shelao (N/A, 18/10/2025 21:01 Lima)
+
+- **Cómo ver Stream Fighters 4 de Westcol en Kick HOY: paso a paso para no perderte los combates y shows**: [Link](https://www.infobae.com/peru/deportes/2025/10/18/como-ver-stream-fighters-4-de-westcol-en-kick-hoy-paso-a-paso-para-no-perderte-los-combates-y-shows/)
+- **Karely Ruiz vs Karina García EN VIVO Hoy. Shelao convierte el primer KO en la historia de Stream Fighters 2025**: [Link](https://www.marca.com/mx/boxeo/2025/10/18/68f3c6f9c30c377a8efe726a-directo.html)
+- **Stream Fighters 4: horario, peleadores confirmados y artistas invitados para HOY 18 de octubre**: [Link](https://caracol.com.co/2025/10/18/stream-fighters-4-horario-peleadores-confirmados-y-artistas-invitados-para-hoy-18-de-octubre/)
+
+
+### monterrey - pumas (N/A, 18/10/2025 21:01 Lima)
+
+- **VER Monterrey vs. Pumas en vivo: transmisión del partido por Liga MX**: [Link](https://elcomercio.pe/deporte-total/mexico/monterrey-vs-pumas-en-vivo-hoy-gratis-por-liga-mx-via-tudn-canal-5-vix-amazon-prime-futbol-libre-tv-a-que-hora-juegan-canal-de-transmision-y-donde-ver-por-torneo-apertura-video-noticia/)
+- **Liga MX: CF Monterrey necesita sumar de a 3 para escalar a la cima**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-cf-monterrey-necesita-sumar-de-a-3-para-escalar-a-la-cima-noticia-1659845)
+- **¿Por qué no juega Jorge ‘Corcho’ Rodríguez en Rayados vs. Pumas por el Apertura 2025?**: [Link](https://bolavip.com/mx/ligamx/por-que-no-juega-jorge-corcho-rodriguez-en-rayados-vs-pumas-por-el-apertura-2025)
+
+
+### whitecaps - fc dallas (N/A, 18/10/2025 21:01 Lima)
+
+- **Vancouver Whitecaps chase history as Dallas fight for survival on MLS Decision Day**: [Link](https://playingfor90.com/vancouver-whitecaps-chase-history-as-dallas-fight-for-survival-on-mls-decision-day-01k7vj1h2sp8)
+- **Coffee with the Caps, Friday October 17**: [Link](https://thethirdsub.ca/2025/10/17/coffee-with-the-caps-friday-october-17/)
+- **Preview: 'Caps look to clinch first in the West on Decision Day | Watch on MLS Season Pass, TSN**: [Link](https://www.whitecapsfc.com/news/preview-caps-look-to-clinch-first)
+
+
+### colorado - lafc (N/A, 18/10/2025 21:01 Lima)
+
+- **Player Status Report | LAFC at Colorado - 2025 MLS Season**: [Link](https://www.lafc.com/news/player-status-report-lafc-at-colorado-2025-mls-season-october-18)
+- **Son Heung-min Returns for LAFC's Playoff-Deciding Final Match**: [Link](https://www.chosun.com/english/sports-en/2025/10/19/VPZFEIQPYRH35FKFS33YO5BCGI/)
+- **Colorado Rapids host Los Angeles FC in conference action**: [Link](https://www.heraldbulletin.com/sports/national_sports/colorado-rapids-host-los-angeles-fc-in-conference-action/article_1154c0b8-d2ef-5f96-a1e9-b2d20cd78d2a.html)
+
+
+### new england - chicago fire (N/A, 18/10/2025 21:01 Lima)
+
+- **Revolution end second straight no-playoff season with home draw against Fire**: [Link](https://www.bostonglobe.com/2025/10/18/sports/mls-revolution-chicago-fire-score/)
+- **Match Recap: Stoppage Time Goal Clinches Home Playoff Match for Chicago in a 2-2 draw at New England Revolution**: [Link](https://www.chicagofirefc.com/news/match-recap-stoppage-time-goal-clinches-home-playoff-match-for-chicago-in-a-2-2-draw-at-new-england-revolution)
+- **Fire building momentum ahead of finale vs. Revs**: [Link](https://www.unionleader.com/sports/soccer/fire-building-momentum-ahead-of-finale-vs-revs/article_0ad2a52c-4592-5330-962a-9735ed531114.html)
+
+
+### sam rivers (N/A, 18/10/2025 21:01 Lima)
+
+- **RIP Sam Rivers**: [Link](https://numetalagenda.com/news/story/rip-sam-rivers/)
+- **’90s Rock Band Limp Bizkit Mourns Death of Band Member**: [Link](https://parade.com/news/90s-rock-band-limp-bizkit-mourns-death-of-band-member)
+- **WrestleMania Performer and Limp Bizkit Bassist Sam Rivers Dead at 48**: [Link](https://www.ringsidenews.com/wrestlemania-performer-limp-bizkit-bassist-sam-rivers-dead-48/)
+
+
+### tabla de posiciones liga 1 clausura (N/A, 18/10/2025 21:01 Lima)
+
+- **Así se jugará la fecha 15 del Clausura de la Liga 1 2025**: [Link](https://www.espn.com.pe/futbol/peru/nota/_/id/15822366/programacion-de-la-fecha-15-del-clausura-liga-1-de-peru)
+- **Tabla de posiciones de Liga 1 2025 EN VIVO: acumulado y resultados de la fecha 15 del Clausura**: [Link](https://depor.com/futbol-peruano/descentralizado/tabla-de-posiciones-liga-1-peru-2025-en-vivo-resultados-de-la-fecha-15-torneo-clausura-universitario-de-deportes-cusco-fc-sporting-cristal-alianza-lima-noticia/)
+- **Programación de la fecha 15 del Torneo Clausura de la Liga 1 2025: partidos, horarios y canales de TV**: [Link](https://www.infobae.com/peru/deportes/2025/10/17/programacion-de-la-fecha-15-del-torneo-clausura-de-la-liga-1-2025-partidos-horarios-y-canales-de-tv/)
+
+
+### toluca - querétaro (N/A, 18/10/2025 21:01 Lima)
+
+- **Liga MX: Toluca FC enfrenta a Querétaro buscando seguir en la cima de la tabla**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-toluca-fc-enfrenta-a-queretaro-buscando-seguir-en-la-cima-de-la-tabla-noticia-1659826)
+- **¡Tienes que cerrar el estadio! Alexis Vega anota gol a lo Panenka contra Querétaro**: [Link](https://www.record.com.mx/futbol/liga-mx/toluca/tienes-que-cerrar-el-estadio-alexis-vega-anota-gol-lo-panenka-contra)
+- **¿Por qué no juega Federico Pereira en Toluca vs. Querétaro por la jornada 13 del Apertura 2025?**: [Link](https://bolavip.com/mx/ligamx/por-que-no-juega-federico-pereira-en-toluca-vs-queretaro-por-la-jornada-13-del-apertura-2025)
+
+
+### cusco (N/A, 18/10/2025 21:01 Lima)
+
+- **Aeropuerto de Cusco proyecta movilizar 5 millones de pasajeros este año**: [Link](https://gestion.pe/peru/aeropuerto-de-cusco-proyecta-movilizar-5-millones-de-pasajeros-este-ano-noticia/)
+- **Por primera vez en su historia el aeropuerto de Cusco superará los 5 millones de pasajeros en un año**: [Link](https://www.aviacionline.com/por-primera-vez-en-su-historia-el-aeropuerto-de-cusco-superara-los-5-millones-de-pasajeros-en-un-ano)
+- **Cusco rompe récord histórico: aeropuerto superará los cinco millones de pasajeros en 2025**: [Link](https://www.expreso.com.pe/actualidad/cusco-rompe-record-historico-aeropuerto-superara-los-cinco-millones-de-pasajeros-en-2025-corpac-latam-velasco-astete-noticia/1232284/)
+
+
 ### comerciantes unidos - alianza atlético (N/A, 18/10/2025 15:23 Lima)
 
 - **Comerciantes Unidos vs Alianza Atlético en vivo: Hora, canal tv y dónde ver el Clausura**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/comerciantes-unidos-vs-alianza-atletico-hoy-en-vivo-via-l1-max-hora-del-partido-y-donde-ver-futbol-gratis-por-la-fecha-15-del-torneo-clausura-de-liga-1-2025-tdpe-noticia/)
