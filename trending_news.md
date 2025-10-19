@@ -1,3 +1,73 @@
+### atalanta vs (N/A, 19/10/2025 11:26 Lima)
+
+- **Preview: Atalanta vs Lazio - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/atalanta-bc/preview/atalanta-vs-lazio-prediction-team-news-lineups_583760.html)
+- **Atalanta vs Lazio – Ivan Juric speaks before key game against Biancocelesti**: [Link](https://football-italia.net/atalanta-vs-lazio-ivan-juric/)
+- **Lazio's Tactical Gambit Against Atalanta**: [Link](https://www.ilmessaggero.it/en/lazio_s_tactical_gambit_against_atalanta-9131455.html)
+
+
+### cristal vs (N/A, 19/10/2025 11:26 Lima)
+
+- **Alan Diez fulminó a Franco Velazco por polémico comentario contra Sporting Cristal: “No vale imitar a Jean Ferrari”**: [Link](https://www.infobae.com/peru/deportes/2025/10/18/alan-diez-fulmino-a-franco-velazco-por-polemico-comentario-contra-sporting-cristal-no-vale-imitar-a-jean-ferrari/)
+- **Julio César Uribe en desacuerdo: Sporting Cristal vs Universitario se juega solo con hinchada local**: [Link](https://depor.com/futbol-peruano/descentralizado/sporting-cristal-vs-universitario-se-jugara-en-el-estadio-nacional-solo-con-hinchada-local-a-pesar-de-que-julio-cesar-uribe-abrio-la-posibilidad-de-jugar-con-ambas-hinchadas-liga-1-video-noticia/)
+- **Uribe y la dura respuesta a Velazco por hablar del Gallardo**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/uribe-le-dio-firme-respuesta-velazco-criticar-gallardo-n451393)
+
+
+### coquimbo unido - colo-colo (N/A, 19/10/2025 11:26 Lima)
+
+- **Coquimbo Unido recibe a Colo Colo por la fecha 24 de la Liga de Primera 2025**: [Link](https://www.espn.com.ar/futbol/chile/nota/_/id/15155160/coquimbo-vs-colo-colo-fecha-24-liga-de-primera-2025-equipo-fecha-hora)
+- **Ortiz y el duelo ante Coquimbo: "Como institución grande, tenemos que ir a proponer"**: [Link](https://espndeportes.espn.com/futbol/chile/nota/_/id/15825636/fernando-ortiz-y-el-duelo-ante-coquimbo-unido-como-institucion-grande-tenemos-que-ir-a-proponer)
+- **La sorpresiva decisión que golpeó a Pavez**: [Link](https://chile.as.com/futbol/la-sorpresiva-decision-que-golpeo-a-pavez-f202510-n/)
+
+
+### real sociedad (N/A, 19/10/2025 11:26 Lima)
+
+- **Celta - Real Sociedad live**: [Link](https://www.marca.com/en/soccer/laliga-ea-sports/celta-real-sociedad/2025/10/19/01_0101_20251019_176_188-live.html)
+- **RC Celta de Vigo vs. Real Sociedad Prediction, Picks, Live Odds - October 19**: [Link](https://www.bleachernation.com/picks/2025/10/18/rc-celta-de-vigo-vs-real-sociedad-prediction-picks-live-odds-october-19/)
+- **How to Watch RC Celta de Vigo vs. Real Sociedad: Live Stream, TV Channel, Start Time | 10/19/2025**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/10/15/how-to-watch-rc-celta-de-vigo-vs-real-sociedad-live-stream-tv-10-19-2025/86708358007/)
+
+
+### levante - rayo vallecano (N/A, 19/10/2025 11:26 Lima)
+
+- **Pronóstico Levante Rayo Vallecano - LaLiga 19/10/25**: [Link](https://www.sportytrader.com/es/pronosticos/levante-rayo-vallecano-298114/)
+- **Levante - Rayo Vallecano, en directo: LaLiga EA Sports, en vivo**: [Link](https://as.com/futbol/primera/levante-rayo-vallecano-en-directo-laliga-ea-sports-en-vivo-f202510-d/)
+- **Levante - Rayo | Dos rivales con el guapo subido: previa, posibles onces y pronóstico**: [Link](https://www.marca.com/futbol/primera-division/2025/10/18/levante-rayo-dos-rivales-guapo-subido-previa-posibles-onces-pronostico.html)
+
+
+### senne lammens (N/A, 19/10/2025 11:26 Lima)
+
+- **LIVE - Hij krijgt meteen knuffels! Met uitstekende beenveeg houdt Lammens United recht in topper tegen Liverpool**: [Link](https://sporza.be/nl/matches/voetbal/buitenland/eng/premier-league/2025-2026/regulier/08/liverpool-manchester-united-live-hij-krijgt-meteen-knuffels-met-uitstekende-beenveeg-houdt-lammens-united-recht-in-topper-tegen-liverpool~1750778163951/)
+- **“Stress? Heb ik totaal geen last meer van”: zelfs op bezoek bij Liverpool staat Senne Lammens onbezorgd onder de lat bij Man United**: [Link](https://www.hbvl.be/sport/voetbal/stress-heb-ik-totaal-geen-last-meer-van-zelfs-op-bezoek-bij-liverpool-staat-senne-lammens-onbezorgd-onder-de-lat-bij-man-united/98395822.html)
+- **Lammens ook in de basis tegen Liverpool? “Goed mogelijk dat hij opnieuw start”**: [Link](https://www.voetbalprimeur.be/nieuws/1703121/senne-lammens-op-doel-tegen-liverpool.html)
+
+
+### atalanta - lazio (N/A, 19/10/2025 11:26 Lima)
+
+- **LIVE Alle 18 Atalanta-Lazio: Juric con Lookman titolare, Sarri con Zaccagni**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Atalanta/19-10-2025/atalanta-lazio-live-diretta-serie-a.shtml)
+- **Lazio, Marusic: "Abbiamo preparato la partita, è importante per noi"**: [Link](https://www.lazialita.com/2025/10/19/lazio-marusic-abbiamo-preparato-la-partita-e-importante-per-noi/)
+- **Live Atalanta - Lazio - Serie A: Punteggi & Highlights Calcio - 19/10/2025**: [Link](https://www.eurosport.it/calcio/serie-a/2025-2026/live-atalanta-lazio_mtc1598794/live-commentary.shtml)
+
+
+### liverpool (N/A, 19/10/2025 11:26 Lima)
+
+- **Liverpool vs Manchester United live: Score and latest Premier League updates**: [Link](https://www.telegraph.co.uk/football/2025/10/19/liverpool-vs-man-utd-score-latest-premier-league-updates/)
+- **Gary Neville immediate Man United reaction says it all after shock start vs Liverpool**: [Link](https://www.manchestereveningnews.co.uk/sport/football/football-news/breaking-gary-neville-delivers-immediate-32707428)
+- **Michael Oliver branded a 'disgrace' as Liverpool fans cry referee 'corruption' after Man Utd 'benefit from loophole' for Bryan Mbeumo goal & survive 'clear' penalty calls**: [Link](https://www.goal.com/en-qa/lists/michael-oliver-disgrace-liverpool-fans-referee-corruption-man-utd-loophole-bryan-mbeumo-goal-penalty-calls/blt26b5d7f51e4216ab)
+
+
+### liverpool football club (N/A, 19/10/2025 11:26 Lima)
+
+- **Ex-Liverpool transfer chief joining Chelsea after 12 years**: [Link](https://www.thisisanfield.com/2025/10/ex-liverpool-transfer-chief-joining-chelsea-after-12-years-at-anfield/)
+- **Chelsea in discussions to appoint former Liverpool scouting director Dave Fallows - The Athletic**: [Link](https://www.nytimes.com/athletic/6729021/2025/10/18/dave-fallows-director-chelsea-liverpool/)
+- **Chelsea hire Jurgen Klopp’s former Liverpool recruitment expert**: [Link](https://www.telegraph.co.uk/football/2025/10/18/chelsea-hire-jurgen-klopp-former-liverpool-recruitment/)
+
+
+### heracles - feyenoord (N/A, 19/10/2025 11:26 Lima)
+
+- **Feyenoord begeeft zich in schiettent in Almelo • Hattrick voor Ueda**: [Link](https://nos.nl/liveblog/2587002-feyenoord-begeeft-zich-in-schiettent-in-almelo-hattrick-voor-ueda)
+- **LIVE eredivisie | Sem Steijn en Anis Hadj Moussa voeren score na rust verder op voor Feyenoord tegen zwak Heracles**: [Link](https://www.bd.nl/voetbal/live-eredivisie-sem-steijn-en-anis-hadj-moussa-voeren-score-na-rust-verder-op-voor-feyenoord-tegen-zwak-heracles~ab9f66f6/)
+- **LIVE | Wedstrijd is hervat; Heracles Almelo verder met Te Wierik en Kulenovic**: [Link](https://www.destentor.nl/almelo/live-wedstrijd-is-hervat-heracles-almelo-verder-met-te-wierik-en-kulenovic~af5af0fb/)
+
+
 ### tottenham - aston villa (N/A, 19/10/2025 07:43 Lima)
 
 - **Tottenham vs Aston Villa Confirmed Lineups for October 19**: [Link](https://lastwordonsports.com/football/2025/10/19/tottenham-vs-aston-villa-confirmed-lineups-october/)
