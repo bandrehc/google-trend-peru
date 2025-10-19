@@ -1,3 +1,24 @@
+### clima lima (N/A, 19/10/2025 03:26 Lima)
+
+- **Senamhi, pronóstico del clima HOY en Lima: temperaturas mínimas y máximas para este sábado 18 de octubre de 2025**: [Link](https://www.expreso.com.pe/actualidad/senamhi-pronostico-del-clima-hoy-en-lima-temperaturas-minimas-y-maximas-para-este-sabado-18-de-octubre-de-2025-invierno-verano-otono-primavera-soleado-calor-humedad-neblina-tiempo-noticia/1232114/)
+- **Clima en Lima: temperatura y probabilidad de lluvia para este 17 de octubre**: [Link](https://www.infobae.com/peru/2025/10/17/clima-en-lima-temperatura-y-probabilidad-de-lluvia-para-este-17-de-octubre/)
+- **Clima hoy en Lima, Perú: el pronóstico del tiempo para este domingo 19 octubre de 2025**: [Link](https://www.clarin.com/informacion-general/clima-hoy-lima-peru-pronostico-tiempo-domingo-19-octubre-2025_0_VeSp2RZjyA.html)
+
+
+### tottenham vs (N/A, 19/10/2025 03:26 Lima)
+
+- **'In contention' - Thomas Frank offers most optimistic Tottenham striker injury update yet**: [Link](https://hotspurhq.com/in-contention-thomas-frank-offers-most-optimistic-tottenham-striker-injury-update-yet-01k7ta624zpq)
+- **Are Kolo Muani and Solanke fit for Gameweek 8?**: [Link](https://www.fantasyfootballscout.co.uk/2025/10/17/are-kolo-muani-and-solanke-fit-for-gameweek-8/)
+- **Spurs vs Villa | Every word of Thomas Frank's pre-match press conference**: [Link](https://www.tottenhamhotspur.com/news/2025/october/spurs-vs-villa-every-word-of-thomas-franks-pre-match-press-conference/)
+
+
+### como vs juventus (N/A, 19/10/2025 03:26 Lima)
+
+- **Como vs Juventus: Apuestas, Pronóstico y Cuotas**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/2025/octubre/pronostico-como-vs-juventus-19-10-25)
+- **Yildiz desafía a Nico Paz**: [Link](https://as.com/futbol/internacional/yildiz-desafia-a-nico-paz-f202510-n/)
+- **Serie A: Juventus quiere el liderato del torneo frente a Como 1907**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-juventus-quiere-el-liderato-del-torneo-frente-a-como-1907-noticia-1659883)
+
+
 ### yina calderón (N/A, 18/10/2025 23:27 Lima)
 
 - **EN VIVO| ‘Stream Fighters 4′ de Westcol en el Coliseo Medplus: Yina Calderón y Andrea Valdiri protagonizan el combate principal**: [Link](https://www.infobae.com/colombia/2025/10/18/en-vivo-stream-fighters-4-de-westcol-en-el-coliseo-medplus-yina-calderon-y-andrea-valdiri-protagonizan-el-combate-principal/)
