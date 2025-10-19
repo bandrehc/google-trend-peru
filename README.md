@@ -1,3 +1,66 @@
+### tottenham - aston villa (N/A, 19/10/2025 07:43 Lima)
+
+- **Tottenham vs Aston Villa Confirmed Lineups for October 19**: [Link](https://lastwordonsports.com/football/2025/10/19/tottenham-vs-aston-villa-confirmed-lineups-october/)
+- **Sunday's 32/1 Score Or Assist Predictions**: [Link](https://andysbetclub.co.uk/predictions/player-score-or-assist-betting-tips/)
+- **Spurs vs Villa | Every word of Thomas Frank's pre-match press conference**: [Link](https://www.tottenhamhotspur.com/news/2025/october/spurs-vs-villa-every-word-of-thomas-franks-pre-match-press-conference/)
+
+
+### elche vs (N/A, 19/10/2025 07:43 Lima)
+
+- **Apuestas y Pronóstico del Elche vs Athletic Club 19/10/25**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2025/octubre/pronostico-elche-vs-athletic-club-19-10-25)
+- **LaLiga EA Sports: Por la fecha 9, Elche recibirá a Athletic Bilbao**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-por-la-fecha-9-elche-recibira-a-athletic-bilbao-noticia-1659884)
+- **Sarabia presenta candidatura**: [Link](https://as.com/futbol/primera/sarabia-presenta-candidatura-f202510-n/)
+
+
+### dundee - celtic f. c. (N/A, 19/10/2025 07:43 Lima)
+
+- **Celtic starting XI to face Dundee at Dens Park**: [Link](https://www.celticfc.com/news/2025/october/19/celtic-starting-xi-to-face-dundee-at-dens-park/)
+- **Team’s Up – Yang starts as Maeda and Bernardo miss out**: [Link](https://thecelticstar.com/teams-up-yang-starts-as-maeda-and-bernardo-miss-out/)
+- **SlipsTips’ Tips: Bhoys to bag 11/10 Bet Builder**: [Link](https://mrfixitstips.co.uk/slipstips-tips-bhoys-to-bag-11-10-bet-builder/)
+
+
+### cuándo juega universitario (N/A, 19/10/2025 07:43 Lima)
+
+- **Alan Diez fulminó a Franco Velazco por polémico comentario contra Sporting Cristal: “No vale imitar a Jean Ferrari”**: [Link](https://www.infobae.com/peru/deportes/2025/10/18/alan-diez-fulmino-a-franco-velazco-por-polemico-comentario-contra-sporting-cristal-no-vale-imitar-a-jean-ferrari/)
+- **¡El Nacional será celeste! El duelo entre Sporting Cristal vs. Universitario se jugará solo con hinchada local**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/sporting-cristal-vs-universitario-se-jugara-con-hinchada-local-en-el-estadio-nacional-por-liga-1-noticia/)
+- **Uribe y la dura respuesta a Velazco por hablar del Gallardo**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/uribe-le-dio-firme-respuesta-velazco-criticar-gallardo-n451393)
+
+
+### juventus vs (N/A, 19/10/2025 07:43 Lima)
+
+- **Nico Paz and Kenan Yildiz duel for Como vs. Juventus present and future**: [Link](https://football-italia.net/nico-paz-and-kenan-yildiz-duel-como-juventus/)
+- **Maximo Perrone vs. Juventus – Player props & odds to score a goal on October 19**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/10/18/maximo-perrone-soccer-player-props-10-19-2025/86770208007/)
+- **Match Preview Como Vs Juventus**: [Link](https://comofootball.com/en/match-preview-como-vs-juventus-en/)
+
+
+### liga italiana (N/A, 19/10/2025 07:43 Lima)
+
+- **Serie A, tifosi del Como in silenzio per 15' contro la partita a Perth**: [Link](https://www.sportmediaset.mediaset.it/calcio/serie-a-tifosi-del-como-in-silenzio-per-15--contro-la-partita-a-perth_104815903-202502k.shtml)
+- **Il caso. La curva dei lariani in rivolta per la sfida col Milan in Australia**: [Link](https://www.ilgiorno.it/sport/il-caso-la-curva-dei-9e46246c)
+- **Serie A in Australia: cosa resta del calcio?**: [Link](https://www.ilprimatonazionale.it/sport/serie-a-in-australia-cosa-resta-del-calcio-304496/)
+
+
+### juventus (N/A, 19/10/2025 07:43 Lima)
+
+- **Serie A: in campo Como-Juventus 1-0 LIVE**: [Link](https://www.ansa.it/sito/notizie/sport/calcio/2025/10/19/serie-a-in-campo-como-juventus-0-0-live_de4ba846-9ad7-4cb0-9e8c-0d9a253d096b.html)
+- **Nico Paz stravince la sfida dei numeri 10 con Yildiz e dà ragione a Platini: i meriti del Como, le colpe della Juventus**: [Link](https://www.calciomercato.com/liste/nico-paz-stravince-la-sfida-dei-numeri-10-con-yildiz-e-da-ragione-a-platini-i-meriti-del-como-le-colpe-della-juventus/blt27c626fe4c4e6c54)
+- **Serie A, Como-Juventus 2-0. Alle 15 Genoa-Parma e Cagliari-Bologna**: [Link](https://tg24.sky.it/sport/2025/10/19/serie-a-partite-oggi-risultati-gol-highlights-video)
+
+
+### precio dolar hoy peru (N/A, 19/10/2025 07:43 Lima)
+
+- **Precio del dólar en Perú: cotización en compra y venta del domingo 19 de octubre**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-2025-a-cuanto-esta-el-dolar-este-domingo-19-de-octubre-tipo-de-cambio-segun-bcrp-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
+- **¿Seguirá cayendo el dólar o se estabilizará? Expertos analizan la tendencia bajista, tras el cierre en S/ 3.38**: [Link](https://rpp.pe/economia/economia/precio-del-dolar-expertos-analizan-factores-de-tendencia-bajista-tras-cierre-de-hoy-en-peru-de-338-soles-noticia-1659671)
+- **Precio del dólar cayó sin parar: Así se cotiza el tipo de cambio hoy 18 de octubre en Perú**: [Link](https://www.infobae.com/peru/2025/10/17/dolar-cotizacion-de-apertura-hoy-17-de-octubre-en-peru/)
+
+
+### como - juventus (N/A, 19/10/2025 07:43 Lima)
+
+- **Como - Juventus, en directo**: [Link](https://as.com/futbol/internacional/como-juventus-en-directo-f202510-n/)
+- **Nico Paz dio una asistencia clave para el gol de Como ante Juventus en la Serie A**: [Link](https://www.espn.com.ar/futbol/italia/nota/_/id/15834214/nico-paz-asistencia-clave-gol-de-como-ante-juventus-en-serie-a)
+- **Como - Juventus en directo | Serie A hoy en vivo**: [Link](https://www.marca.com/futbol/serie-a/como-juventus/2025/10/19/01_0107_20251019_1065_128-directo.html)
+
+
 ### clima lima (N/A, 19/10/2025 03:26 Lima)
 
 - **Senamhi, pronóstico del clima HOY en Lima: temperaturas mínimas y máximas para este sábado 18 de octubre de 2025**: [Link](https://www.expreso.com.pe/actualidad/senamhi-pronostico-del-clima-hoy-en-lima-temperaturas-minimas-y-maximas-para-este-sabado-18-de-octubre-de-2025-invierno-verano-otono-primavera-soleado-calor-humedad-neblina-tiempo-noticia/1232114/)
