@@ -1,3 +1,73 @@
+### franco mastantuono (N/A, 19/10/2025 15:24 Lima)
+
+- **Estadísticas de Franco Mastantuono con Real Madrid vs Getafe**: [Link](https://www.365scores.com/es/news/estadisticas-de-franco-mastantuono-hoy/)
+- **Mastantuono y su estadística de clase mundial en un Real Madrid que se planta y no jugará los primeros 15 segundos contra el Getafe**: [Link](https://www.ole.com.ar/futbol-internacional/espana/franco-mastantuono-real-madrid-getafe-estadistica-clase-mundial-extremo-remates-jugara-segundos_0_05CatZIBu1.html)
+- **Bronca Mastantuono-Alaba**: [Link](https://as.com/futbol/primera/bronca-mastantuono-alaba-f202510-n/)
+
+
+### universitario vs ayacucho (N/A, 19/10/2025 15:24 Lima)
+
+- **Universitario vs Ayacucho FC VIVO: ¿a qué hora juegan y dónde ver la fecha 15 del Torneo Clausura?**: [Link](https://rpp.pe/futbol/descentralizado/universitario-vs-ayacucho-fc-en-vivo-a-que-hora-juegan-en-lima-y-donde-ver-fecha-15-torneo-clausura-2025-via-golperu-partidos-de-hoy-noticia-1659970)
+- **Universitario vs Ayacucho FC: Instrucciones para el proceso de acreditación**: [Link](https://universitario.pe/noticias/noticias-primer-equipo/universitario-vs-ayacucho-fc-instrucciones-para-el-proceso-de-acreditacion-2)
+- **Jorge Fossati calificó de “bobos” a detractores de Álex Valera y afirmó que Universitario está en “desventaja” tras programación en Liga 1 2025**: [Link](https://www.infobae.com/peru/deportes/2025/10/17/jorge-fossati-califico-de-bobos-a-detractores-de-alex-valera-y-afirmo-que-universitario-esta-en-desventaja-tras-programacion-en-liga-1-2025/)
+
+
+### garcilaso vs cristal (N/A, 19/10/2025 15:24 Lima)
+
+- **Cuándo juegan Deportivo Garcilaso vs. Sporting Cristal por la Liga 1: equipo, fecha, hora y TV en vivo**: [Link](https://www.espn.com.ar/futbol/peru/nota/_/id/15829589/sporting-cristal-vs-deportivo-garcilaso-clausura-liga-1-de-peru-equipo-fecha-hora-tv-vivo)
+- **Deportivo Garcilaso vs. Sporting Cristal: ¿a qué hora juegan y dónde ver EN VIVO por la fecha 15 del Clausura?**: [Link](https://rpp.pe/futbol/descentralizado/sporting-cristal-vs-deportivo-garcilaso-en-vivo-ver-l1max-transmision-en-cusco-fecha-15-torneo-clausura-2025-link-gratis-partidos-de-hoy-noticia-1659953)
+- **Alineaciones de Sporting Cristal vs Garcilaso: el novedoso once de Autuori para ganar en Cusco**: [Link](https://libero.pe/futbol-peruano/sporting-cristal/2025/10/18/alineaciones-de-sporting-cristal-vs-deportivo-garcilaso-torneo-clausura-2025-formacion-del-partido-de-hoy-1405494)
+
+
+### aucas - emelec (N/A, 19/10/2025 15:24 Lima)
+
+- **Guillermo Duró recalcó la importancia del duelo contra Aucas**: [Link](https://www.espn.com.ar/futbol/ecuador/nota/_/id/15832582/guillermo-duro-recalco-la-importancia-del-duelo-contra-aucas)
+- **[En vivo] Aucas vs. Emelec por el segundo hexagonal de la Liga Ecuabet**: [Link](https://www.eluniverso.com/deportes/campeonato-ecuatoriano/en-vivo-aucas-vs-emelec-por-el-segundo-hexagonal-de-la-liga-ecuabet-nota/)
+- **Juan Pablo Buch, entrenador del Aucas: “Hay que encarar el partido contra Emelec con mucha inteligencia”**: [Link](https://www.ecuavisa.com/deportes/futbol-nacional/juan-pablo-buch-entrenador-aucas-encarar-partido-emelec-ligapro-OK10290079)
+
+
+### atlético grau - utc cajamarca (N/A, 19/10/2025 15:24 Lima)
+
+- **UTC vs Atletico Grau EN VIVO: sigue la transmisión del Torneo Clausura**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/atletico-grau-vs-utc-en-vivo-hora-y-donde-ver-el-torneo-clausura-2025-video-liga-1-l1play-l1max-resumen-y-goles-tdpe-noticia/)
+- **Liga 1: Grau se enfrentará ante UTC por la fecha 15**: [Link](https://rpp.pe/futbol/descentralizado/liga-1-grau-se-enfrentara-ante-utc-por-la-fecha-15-noticia-1659917)
+- **Atlético Grau vs Universidad Técnica pronostico y comparación de cuotas 19.10.2025**: [Link](https://www.livetipsportal.com/es/pronosticos-apuestas-deportivas/atletico-grau-vs-universidad-tecnica-primera-division-11445134/)
+
+
+### blast slam iv (N/A, 19/10/2025 15:24 Lima)
+
+- **BLAST Slam IV: playoff match!**: [Link](https://navi.gg/en/publications/d2-blast-slam-iv-vs-aurora)
+- **Team Falcons, Tundra Esports start fast at BLAST Slam IV**: [Link](https://www.yardbarker.com/general_sports/articles/team_falcons_tundra_esports_start_fast_at_blast_slam_iv/s1_17061_42901178)
+- **Top Dota 2 Teams Confirmed for BLAST Dota Slam Singapore 2025**: [Link](https://finance.yahoo.com/news/top-dota-2-teams-confirmed-102600801.html)
+
+
+### union comercio (N/A, 19/10/2025 15:24 Lima)
+
+- **Unión Comercio vs CD Moquegua EN VIVO: juega por la semifinal vuelta de la Liga2**: [Link](https://rpp.pe/futbol/segunda-division/union-comercio-vs-ucv-moquegua-en-vivo-que-canal-transmite-vuelta-semifinal-de-liga-2-2025-por-tv-partidos-de-hoy-noticia-1659952)
+- **Liga 2: Resultados de los partidos de las semifinales de la segunda división**: [Link](https://www.futbolperuano.com/liga-2/noticias/liga-2-resultados-de-los-partidos-de-las-semifinales-de-la-segunda-division-543934)
+- **Así van los playoffs de la Segunda División por el ascenso a la Liga 1**: [Link](https://espndeportes.espn.com/futbol/peru/nota/_/id/15810006/asi-van-los-playoffs-de-la-segunda-division-por-el-ascenso-a-la-liga-1)
+
+
+### kylian mbappé (N/A, 19/10/2025 15:24 Lima)
+
+- **Kylian Mbappé to be ready for Real Madrid’s match vs Getafe - report**: [Link](https://www.managingmadrid.com/real-madrid-cf-players/99353/kylian-mbappe-to-be-ready-for-real-madrids-match-vs-getafe-report)
+- **Deschamps discusses Nkunku’s condition and Maignan as captain: “Volume, technical, mastery”**: [Link](https://sempremilan.com/deschamps-nkunku-condition-maignan-captain)
+- **Mbappe cleared to play as Real Madrid announce Getafe squad**: [Link](https://www.besoccer.com/new/mbappe-cleared-to-play-as-real-madrid-announce-getafe-squad-1377694)
+
+
+### liga 2 (N/A, 19/10/2025 15:24 Lima)
+
+- **FC Cajamarca vs César Vallejo EN VIVO: se enfrentan por la semifinal vuelta de la Liga2**: [Link](https://rpp.pe/futbol/segunda-division/fc-cajamarca-vs-cesar-vallejo-en-vivo-a-que-hora-y-donde-ver-vuelta-semifinal-de-liga-2-2025-via-youtube-fpf-partidos-de-hoy-noticia-1659930)
+- **FC CAJAMARCA ELIMINA A CÉSAR VALLEJO Y ESTÁ EN LA FINAL DE LA LIGA 2**: [Link](https://sinrodeoscajamarca.com/fc-cajamarca-elimina-a-cesar-vallejo-y-esta-en-la-final-de-la-liga-2/)
+- **FC Cajamarca va con todo por su pase a la final de la Liga 2 ante UCV**: [Link](https://larotativa.pe/fc-cajamarca-va-con-todo-por-su-pase-a-la-final-de-la-liga-2-ante-ucv/)
+
+
+### dgo (N/A, 19/10/2025 15:24 Lima)
+
+- **DIRECTV EN VIVO GRATIS: cómo ver Argentina vs. Marruecos por TV y DGO online | Final Mundial Sub-20 2025**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/directv-en-vivo-gratis-como-ver-partido-argentina-vs-marruecos-por-futbol-tv-y-dgo-online-final-mundial-sub-20-2025-nnda-nnse-noticia/)
+- **Real Madrid visita a Getafe buscando mantener la cima de LaLiga**: [Link](https://www.espn.com.pe/futbol/espana/nota/_/id/15814003/getafe-vs-real-madrid-fecha-9-laliga-fecha-hora-estadio-y-tv-en-vivo)
+- **VER Real Madrid vs. Getafe en vivo: transmisión del partido por LaLiga**: [Link](https://elcomercio.pe/deporte-total/espana/real-madrid-vs-getafe-en-vivo-directo-por-laliga-via-movistar-plus-laliga-tv-amazon-prime-directv-futbol-libre-tv-a-que-hora-juegan-que-canal-televisa-y-donde-ver-partido-de-hoy-video-noticia/)
+
+
 ### atalanta vs (N/A, 19/10/2025 11:26 Lima)
 
 - **Preview: Atalanta vs Lazio - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/atalanta-bc/preview/atalanta-vs-lazio-prediction-team-news-lineups_583760.html)
