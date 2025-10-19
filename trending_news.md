@@ -1,3 +1,52 @@
+### yina calderón (N/A, 18/10/2025 23:27 Lima)
+
+- **EN VIVO| ‘Stream Fighters 4′ de Westcol en el Coliseo Medplus: Yina Calderón y Andrea Valdiri protagonizan el combate principal**: [Link](https://www.infobae.com/colombia/2025/10/18/en-vivo-stream-fighters-4-de-westcol-en-el-coliseo-medplus-yina-calderon-y-andrea-valdiri-protagonizan-el-combate-principal/)
+- **🥊 Quién ganó la pelea Yina Calderón vs. Andrea Valdiri EN VIVO AHORA por Stream Fighters 4 — resultados en directo**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/quien-gano-la-pelea-yina-calderon-vs-andrea-valdiri-en-vivo-por-la-estelar-del-stream-fighters-4-resultados-final-en-directo-nnda-nnrt-noticia/)
+- **La creadora de contenido barranquillera no se guardó nada y lanzó una frase que encendió las redes, asegurando que su rival sigue cada detalle de su vida y anticipando un duelo lleno de tensión**: [Link](https://www.facebook.com/infobaecolombia/photos/la-creadora-de-contenido-barranquillera-no-se-guard%C3%B3-nada-y-lanz%C3%B3-una-frase-que-/1253884780087615/)
+
+
+### la galaxy - minnesota (N/A, 18/10/2025 23:27 Lima)
+
+- **Loons Fall to Galaxy with Lackluster Decision Day Performance**: [Link](https://www.mnufc.com/news/loons-fall-to-galaxy-with-lackluster-decision-day-performance)
+- **How to watch today's LA Galaxy vs Minnesota United MLS game: Live stream, TV channel, and start time**: [Link](https://www.goal.com/en-us/news/watch-la-galaxy-vs-minnesota-united-mls-game-live-stream-tv-channel-start-time/blt8ba3ca84ba834514)
+- **Season Ticket Member of the Year vs Minnesota United FC: Milma & Elmy Escalante | October 18, 2025**: [Link](https://www.lagalaxy.com/news/season-ticket-member-of-the-match-vs-minnesota-united-fc-milma-elmy-escalante-october-18-2025)
+
+
+### pumas vs (N/A, 18/10/2025 23:27 Lima)
+
+- **Universitario vs Gimnasia EN VIVO HOY: punto a punto del partido por la Noche de las Pumas 2025**: [Link](https://www.infobae.com/peru/deportes/2025/10/18/universitario-vs-gimnasia-en-vivo-hoy-canal-de-youtube-noche-de-las-pumas-2025-resumen-resultado/)
+- **Gimnasia le arruinó la noche a Universitario y le ganó 3-0 en su presentación**: [Link](https://bolavip.com/pe/voley/universitario-vs-gimnasia-en-vivo-online-y-gratis-por-la-noche-de-las-pumas)
+- **La Noche de las Pumas 2025: Así fue la presentación del equipo de vóley de Universitario**: [Link](https://diariocorreo.pe/deportes/la-noche-de-las-pumas-2025-asi-fue-la-presentacion-del-equipo-de-voley-de-universitario-de-deportes-noticia/)
+
+
+### cruz azul - américa (N/A, 18/10/2025 23:27 Lima)
+
+- **América, el némesis de Nicolás Larcamón en la Liga MX**: [Link](https://www.espn.com.ar/futbol/selecciones/nota/_/id/15814566/cruz-azul-vs-america-nicolas-larcamon-nemesis)
+- **En dónde ver Cruz Azul vs. América por Clásico Joven**: [Link](https://elcomercio.pe/deporte-total/mexico/donde-ver-cruz-azul-vs-america-hoy-en-vivo-canales-de-transmision-del-clasico-joven-por-liga-mx-noticia/)
+- **Cruz Azul vs América EN VIVO: minuto a minuto del partido de la jornada 13 en el Olímpico Universitario**: [Link](https://www.infobae.com/mexico/deportes/2025/10/19/cruz-azul-vs-america-hoy-en-vivo-minuto-a-minuto-del-partido-de-la-jornada-13-y-del-clasico-joven/)
+
+
+### monterrey vs pumas (N/A, 18/10/2025 23:27 Lima)
+
+- **La otra toma del gol de Sergio Ramos a Keylor Navas en México**: [Link](https://as.com/us/videos/la-otra-toma-del-gol-de-sergio-ramos-a-keylor-navas-en-mexico-f202510-v/)
+- **Rayados vs Pumas: Sergio Ramos y Keylor Navas tendrán reencuentro histórico en el Apertura 2025 de la Liga MX**: [Link](https://vanguardia.com.mx/deportes/futbol/rayados-vs-pumas-sergio-ramos-y-keylor-navas-tendran-reencuentro-historico-en-el-apertura-2025-de-la-liga-mx-EC17736525)
+- **Ramos le ganó a Navas: cruce de leyendas con triunfo para el defensor**: [Link](https://www.ambito.com/mexico/deportes/ramos-le-gano-navas-cruce-leyendas-triunfo-el-defensor-n6203633)
+
+
+### brendan allen (N/A, 18/10/2025 23:27 Lima)
+
+- **Prelim Results | UFC Vancouver**: [Link](https://www.ufc.com/news/ufc-fight-night-de-ridder-vs-allen-vancouver-event-tonight-prelim-live-results)
+- **Live Now! UFC Vancouver ‘De Ridder vs. Allen’ Play-by-Play, Results & Round Scoring**: [Link](https://www.sherdog.com/news/news/UFC-Vancouver-De-Ridder-vs-Allen-PlaybyPlay-Results-Round-Scoring-198748)
+- **Khamzat Chimaev shares savage five-word reaction to Reinier de Ridder 'giving up' at UFC Vancouver**: [Link](https://bloodyelbow.com/2025/10/18/khamzat-chimaev-shares-damning-five-word-reaction-to-reiner-de-ridder-giving-up-at-ufc-vancouver/)
+
+
+### guadalajara - mazatlán (N/A, 18/10/2025 23:27 Lima)
+
+- **Chivas triunfó ante un Mazatlán FC que ofreció poca resistencia**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/15833610/chivas-vs-maztlan-liga-mx-2025-goles-hormiga-gonzalez)
+- **Liga MX: Mazatlán quiere vencer y quitarle la racha positiva a Chivas**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-mazatlan-quiere-vencer-y-quitarle-la-racha-positiva-a-chivas-noticia-1659846)
+- **Cade Cowell y Alan Pulido fueron descartados por Milito, pero podrían tener su revancha muy pronto**: [Link](https://chivaspasion.bolavip.com/ligamx/cade-cowell-y-alan-pulido-fueron-descartados-por-milito-pero-podrian-tener-su-revancha-muy-pronto)
+
+
 ### deportivo cali - américa (N/A, 18/10/2025 21:01 Lima)
 
 - **Liga BetPlay: América pide "veedores arbitrales" para el clásico ante Cali**: [Link](https://www.espn.com.ar/futbol/colombia/nota/_/id/15825828/america-pide-veedores-arbitrales-clasico-deportivo-cali-liga-betplay)
