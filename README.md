@@ -1,3 +1,69 @@
+### precio del dólar (N/A, 20/10/2025 07:51 Lima)
+
+- **Precio del dólar en Perú, domingo 19 de octubre: a cuánto cerró el tipo de cambio hoy**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-2025-a-cuanto-esta-el-dolar-este-domingo-19-de-octubre-tipo-de-cambio-segun-bcrp-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
+- **Precio del dólar sigue en caída: Así se cotiza el tipo de cambio hoy 19 de octubre en Perú**: [Link](https://www.infobae.com/peru/2025/10/17/dolar-cotizacion-de-apertura-hoy-17-de-octubre-en-peru/)
+- **Precio del dólar Perú y tipo de cambio hoy 20 de octubre del 2025**: [Link](https://rpp.pe/economia/economia/precio-del-dolar-peru-y-tipo-de-cambio-hoy-20-de-octubre-del-2025-noticia-1660073)
+
+
+### señor de los milagros (N/A, 20/10/2025 07:51 Lima)
+
+- **Cardenal Barreto celebra la misa al Señor de los Milagros en el Vaticano**: [Link](https://www.vaticannews.va/es/vaticano/news/2025-10/en-san-pietro-el-cardenal-barreto-celebra-la-misa-por-el-senor.html)
+- **La gran procesión internacional del Señor de los Milagros en el Vaticano será transmitida y recibirá la bendición del Papa León XIV**: [Link](https://www.infobae.com/peru/2025/10/15/la-gran-procesion-internacional-del-senor-de-los-milagros-en-el-vaticano-sera-transmitida-y-culminara-con-la-bendicion-del-papa-leon-xiv/)
+- **Papa León XIV bendijo la imagen del Señor de los Milagros en Roma**: [Link](https://caretas.pe/mundo/papa-leon-xiv-bendijo-la-imagen-del-senor-de-los-milagros-en-roma/)
+
+
+### cronograma retiro afp (N/A, 20/10/2025 07:51 Lima)
+
+- **Retiro de AFP: ¿Qué administradoras tienen link y en cuáles se solicita por agencia virtual?**: [Link](https://www.infobae.com/peru/2025/10/18/retiro-de-afp-que-administradoras-tienen-link-y-en-cuales-se-solicita-por-agencia-virtual/)
+- **Octavo Retiro AFP 2025: ¿Cómo solicitar el desembolso de tu dinero?**: [Link](https://elcomercio.pe/respuestas/tramites/retiro-afp-2025-como-solicitar-el-desembolso-de-hasta-4-uit-de-manera-sencilla-y-online-tdpe-noticia/)
+- **¡Retiro de AFP hasta 4 UIT! Conoce la nueva ley del Congreso 👏**: [Link](https://comunicaciones.congreso.gob.pe/tv-congreso/retiro-de-afp-hasta-4-uit-conoce-la-nueva-ley-del-congreso-%F0%9F%91%8F/)
+
+
+### hora (N/A, 20/10/2025 07:51 Lima)
+
+- **Pedro Sánchez propondrá a la Unión Europea acabar con el cambio de hora porque “ya no tiene sentido”**: [Link](https://www.infobae.com/espana/2025/10/20/pedro-sanchez-propondra-a-la-union-europea-acabar-con-el-cambio-de-hora-porque-ya-no-tiene-sentido/)
+- **Con el cambio de horario en España este 26 de octubre 2025: ¿Se duerme más o menos? | tdpe | RESPUESTAS**: [Link](https://elcomercio.pe/respuestas/espana/con-el-cambio-de-horario-en-espana-este-26-de-octubre-2025-se-duerme-mas-o-menos-tdpe-noticia/)
+- **"Me parece una broma la solemnidad con la que te diriges para hablar de la hora", Rubén Amón, sobre la**: [Link](https://www.ondacero.es/noticias/espana/parece-broma-solemnidad-que-diriges-hablar-hora-ruben-amon-propuesta-pedro-sanchez_2025102068f5f90b7e4993614beca817.html)
+
+
+### temblor hoy perú (N/A, 20/10/2025 07:51 Lima)
+
+- **IGP Temblor en Perú Lima hoy 20 de octubre magnitud y epicentro último sismo**: [Link](https://rpp.pe/lima/desastres-naturales/temblor-en-peru-hoy-19-de-octubre-magnitud-y-epicentro-del-sismo-segun-igp-live-3007)
+- **Temblor hoy en Perú, lunes 20 de octubre: sismo de magnitud 4.1 afectoʻ la región Huanuco**: [Link](https://andina.pe/agencia/noticia-temblor-hoy-peru-lunes-20-octubre-sismo-magnitud-41-afecto%CA%BB-region-huanuco-1048935.aspx)
+- **Tres sismos en 48 horas remecen el sur de la región de Lima**: [Link](https://www.redpat.tv/detalle/tres-sismos-en-48-horas-remecen-el-sur-de-la-region-de-lima)
+
+
+### hbo (N/A, 20/10/2025 07:51 Lima)
+
+- **Weapons en HBO Max: fecha de estreno confirmada de la película La hora de la desaparición en streaming | MAG**: [Link](https://elcomercio.pe/mag/fama/que-ver/weapons-en-hbo-max-fecha-de-estreno-confirmada-de-la-pelicula-la-hora-de-la-desaparicion-en-streaming-nndaml-noticia/)
+
+
+### hbo max (N/A, 20/10/2025 07:51 Lima)
+
+- **Weapons en HBO Max: fecha de estreno confirmada de la película La hora de la desaparición en streaming | MAG**: [Link](https://elcomercio.pe/mag/fama/que-ver/weapons-en-hbo-max-fecha-de-estreno-confirmada-de-la-pelicula-la-hora-de-la-desaparicion-en-streaming-nndaml-noticia/)
+
+
+### liga de campeones de la uefa (N/A, 20/10/2025 07:51 Lima)
+
+- **Programación Champions League 2025-2026: fixture de la fecha 3 con Barcelona y Real Madrid por la fase de liga**: [Link](https://larepublica.pe/deportes/2025/10/19/calendario-de-la-uefa-champions-league-2025-partidos-y-resultados-de-la-fecha-3-856634)
+- **Con el 'clásico' en el horizonte**: [Link](https://www.noticiasdenavarra.com/futbol/2025/10/19/clasico-horizonte-10235904.html)
+- **Champions League, grandes duelos en la jornada 3 del torneo europeo**: [Link](https://onefootball.com/es/noticias/champions-league-grandes-duelos-en-la-jornada-3-del-torneo-europeo-41829493)
+
+
+### twitter (N/A, 20/10/2025 07:51 Lima)
+
+- **FLOKI Soars as Elon Musk Rekindles the Meme Spark**: [Link](https://www.onesafe.io/blog/floki-price-elon-musk-meme-surge)
+- **FLOKI price jumps 30% after Elon Musk’s “Floki is back” post**: [Link](https://invezz.com/news/2025/10/20/floki-price-jumps-30-after-elon-musks-floki-is-back-post/)
+- **FLOKI Crypto Holds Key Demand Zone as Buyers Eye Breakout Potential**: [Link](https://bravenewcoin.com/insights/floki-crypto-holds-key-demand-zone-as-buyers-eye-breakout-potential)
+
+
+### canva (N/A, 20/10/2025 07:51 Lima)
+
+- **Huge global outage impacts Amazon, Fortnite and Snapchat | CNN Business**: [Link](https://www.cnn.com/business/live-news/amazon-tech-outage-10-20-25-intl)
+- **Well-known internet sites hit by Amazon Web Services outage**: [Link](https://www.foxbusiness.com/technology/well-known-internet-sites-hit-amazon-web-services-outage)
+- **Amazon’s AWS Disruption Creates Outages for Hundreds of Websites for Hours**: [Link](https://www.nytimes.com/2025/10/20/business/aws-down-internet-outage.html)
+
+
 ### amazon (N/A, 20/10/2025 03:32 Lima)
 
 - **A lot of the internet just stopped working**: [Link](https://www.the-independent.com/tech/snapchat-roblox-duolingo-fortnite-down-not-working-b2848289.html)
@@ -958,32 +1024,3 @@ Sin noticias relacionadas disponibles.
 - **Conoce detalles y cómo quedaron las tablas luego de la fecha 14 del Clausura**: [Link](https://ovacion.pe/noticias/liga1-te-apuesto-2025/conoce-detalles-quedaron-las-tablas-luego-fecha-14-del-clausura)
 
 
-### green day (N/A, 17/10/2025 00:19 Lima)
-
-- **Green Day, Twenty One Pilots, Cage the Elephant Lead 2026 ALTer Ego Festival Lineup**: [Link](https://www.rollingstone.com/music/music-news/alter-ego-festival-2026-green-day-twenty-one-pilots-1235446804/)
-- **LA Counting Down To ALTer EGO ’26**: [Link](https://ramp247.com/label-love/la-counting-down-to-alter-ego-26/)
-- **iHeartMedia Unveils Lineup For 2026 iHeartRadio ALTer EGO Presented by Capital One With Twenty One Pilots And More**: [Link](https://celebrityaccess.com/2025/10/15/iheartmedia-unveils-lineup-for-2026-iheartradio-alter-ego-presented-by-capital-one-with-twenty-one-pilots-and-more/)
-
-
-### estado de emergencia (N/A, 17/10/2025 00:19 Lima)
-
-- **Estado de emergencia en Lima Metropolitana se oficializará en los próximos días: Premier no descartó instaurar un toque de queda**: [Link](https://www.infobae.com/peru/2025/10/17/estado-de-emergencia-en-lima-metropolitana-se-oficializara-en-los-proximos-dias-premier-no-descarto-instaurar-un-toque-de-queda/)
-- **Congresista Wilson Soto solicita al Presidente de la República Jerí declarar en Estado de Emergencia la ciudad de Lima ante ola de delincuencia**: [Link](https://comunicaciones.congreso.gob.pe/damos-cuenta/congresista-wilson-soto-solicita-al-presidente-de-la-republica-declarar-en-estado-de-emergencia-la-ciudad-de-lima-ante-ola-de-delincuencia/)
-- **Gobierno declarará estado de emergencia en Lima Metropolitana ante incremento de la delincuencia**: [Link](https://elcomercio.pe/lima/gobierno-declarara-en-emergencia-lima-metropolitana-ante-incremento-de-la-delincuencia-ultimas-noticia/)
-
-
-### tatiana astengo (N/A, 17/10/2025 00:19 Lima)
-
-- **Rodrigo González acusa a artistas de oportunismo luego de marcha: “Miserables, nauseabundos, solo aparecen para la foto”**: [Link](https://www.infobae.com/peru/2025/10/17/rodrigo-gonzalez-acusa-a-artistas-de-oportunismo-luego-de-marcha-miserables-nauseabundos-solo-aparecen-para-la-foto/)
-- **Magaly Medina sobre Mónica Sánchez, Tatiana Astengo y otros: "¿Son artistas u oportunistas?"**: [Link](https://www.atv.pe/noticia/magaly-medina-sobre-monica-sanchez-tatiana-astengo-y-otros-son-artistas-o-oportunistas/)
-- **Rodrigo González tras violenta protesta: "Los rojos nauseabundos salen para la foto, con la batuta de la 'Perricholi'"**: [Link](https://willax.pe/entretenimiento/rodrigo-gonzalez-violenta-protesta-perricholi-willax)
-
-
-### boys (N/A, 17/10/2025 00:19 Lima)
-
-- **3 teams chasing elusive 3-peat as WPIAL announces boys, girls soccer playoff pairings**: [Link](https://tribhssn.triblive.com/south-park-bentworth-boys-south-fayette-girls-chasing-wpial-soccer-3-peat/)
-- **WPIAL girls soccer playoffs preview: Predicted champs, top seeds and teams to watch**: [Link](https://www.post-gazette.com/sports/high-school-soccer/2025/10/15/wpial-girls-playoffs-preview-norwin-peters/stories/202510150046)
-- **High School Boys Soccer Standings and Final WPIAL Playoff Bracket Projections**: [Link](https://pittsburghsoccernow.com/2025/10/14/high-school-boys-soccer-standings-and-final-wpial-playoff-bracket-projections/)
-
-
-# Tendencias Google Peru
