@@ -1,3 +1,70 @@
+### concierto san marcos hoy (N/A, 19/10/2025 20:58 Lima)
+
+- **Imagine Dragons en Lima: horario, accesos, setlist y más para su concierto en el Estadio San Marcos**: [Link](https://www.infobae.com/peru/2025/10/19/imagine-dragons-en-lima-horario-accesos-setlist-y-mas-para-su-concierto-en-el-estadio-san-marcos/)
+- **Imagine Dragons en Lima: setlist de canciones, horarios y lo que se sabe sobre su concierto en el estadio San Marcos**: [Link](https://rpp.pe/musica/conciertos/imagine-dragons-en-lima-setlist-con-canciones-horario-mapa-y-lo-que-se-sabe-sobre-concierto-en-estadio-san-marcos-noticia-1659866)
+- **Metro de Santiago anuncia extensión de horario en Línea 1 y Línea 5: estas estaciones funcionarán hasta más tarde el martes 21 de octubre**: [Link](https://www.encancha.cl/enlahora/movilidad/2025/10/19/metro-de-santiago-anuncia-extension-de-horario-en-linea-1-y-linea-5-estas-estaciones-funcionaran-hasta-mas-tarde-el-martes-21-de-octubre/)
+
+
+### goiás - chapecoense (N/A, 19/10/2025 20:58 Lima)
+
+- **Time que liderou a Série B por 16 rodadas despenca para 6º lugar**: [Link](https://noataque.com.br/futebol/brasileirao-serie-b/time/goias/noticia/2025/10/19/time-que-liderou-a-serie-b-por-16-rodadas-despenca-para-6o-lugar/)
+- **Chapecoense vence o Goiás fora de casa e é vice-líder da Série B**: [Link](https://ndmais.com.br/futebol/chapecoense-vence-o-goias-fora-de-casa-e-e-vice-lider-da-serie-b/)
+- **Goiás: Carille ganha reforço para jogo contra a Chapecoense**: [Link](https://esmeraldino.com/carille-reforco-chapecoense/)
+
+
+### tabla de posiciones liga 1 acumulado (N/A, 19/10/2025 20:58 Lima)
+
+- **Tabla de posiciones de la Liga 1 Perú 2025 EN VIVO: así van los equipos en la fecha 15 del Torneo Clausura y Acumulada**: [Link](https://www.infobae.com/peru/deportes/2025/10/18/tabla-de-posiciones-liga-1-peru-2025-en-vivo-hoy-acumulada-fecha-15-torneo-clausura-programacion-resultados/)
+- **Así se jugará la fecha 15 del Clausura de la Liga 1 2025**: [Link](https://www.espn.com.pe/futbol/peru/nota/_/id/15822366/programacion-de-la-fecha-15-del-clausura-liga-1-de-peru)
+- **Tabla de posiciones de Liga 1 2025 EN VIVO: acumulado y resultados de la fecha 15 del Clausura**: [Link](https://depor.com/futbol-peruano/descentralizado/tabla-de-posiciones-liga-1-peru-2025-en-vivo-resultados-de-la-fecha-15-torneo-clausura-universitario-de-deportes-cusco-fc-sporting-cristal-alianza-lima-noticia/)
+
+
+### othmane maamma (N/A, 19/10/2025 20:58 Lima)
+
+- **Avis d'expert exclusif : qui remportera la finale de la Coupe du monde U-20 au Chili ?**: [Link](https://foot-africa.com/actualites/avis-dexpert-exclusif-qui-remportera-la-finale-de-la-coupe-du-monde-u-20-au-chili-925664/)
+- **"Il reste un dernier effort" : Le joli message d'Achraf Hakimi aux joueurs du Maroc avant la finale de la Coupe du Monde U20**: [Link](https://tribuna.com/fr/blogs/il-reste-un-dernier-effort-le-joli-message-dachraf-hakimi-au/)
+- **Le Maroc, l’autre géant du football mondial**: [Link](https://www.bladi.net/maroc-autre-geant-football-mondial,117460.html)
+
+
+### rodrigo paz (N/A, 19/10/2025 20:58 Lima)
+
+- **Elecciones de Bolivia 2025, en vivo: votaciones, resultados y más**: [Link](https://cnnespanol.cnn.com/latinoamerica/live-news/resultados-elecciones-bolivia-2025-quiroga-paz-orix)
+- **Rodrigo Paz ganó un histórico balotaje y se convirtió en el presidente electo de Bolivia**: [Link](https://www.infobae.com/america/america-latina/2025/10/20/rodrigo-paz-gano-un-historico-balotaje-y-se-convirtio-en-el-presidente-electo-de-bolivia/)
+- **Quiénes son Rodrigo Paz y Tuto Quiroga, los aspirantes a presidente de Bolivia (y por quién se decantará el voto de la izquierda)**: [Link](https://elcomercio.pe/mundo/latinoamerica/quienes-son-rodrigo-paz-y-jorge-tuto-quiroga-los-aspirantes-a-presidente-de-bolivia-y-por-quien-se-decantara-el-voto-de-izquierda-tras-casi-20-anos-en-el-poder-noticia/)
+
+
+### yassir zabiri (N/A, 19/10/2025 20:58 Lima)
+
+- **Exclusive expert opinion: Who will win the U-20 World Cup final in Chile?**: [Link](https://foot-africa.com/en/news/exclusive-expert-opinion-who-will-win-the-u-20-world-cup-final-in-chile-925664/)
+- **Hakimi Sends Encouragement to Morocco U20 Ahead of World Cup Final**: [Link](https://www.moroccoworldnews.com/2025/10/264184/hakimi-sends-encouragement-to-morocco-u20-ahead-of-world-cup-final/)
+- **Argentina U20 starting eleven for U20 World Cup final**: [Link](https://mundoalbiceleste.com/2025/10/19/argentina-u20-starting-eleven-for-u20-world-cup-final/)
+
+
+### libertad fc - u. católica (N/A, 19/10/2025 20:58 Lima)
+
+Sin noticias relacionadas disponibles.
+
+
+### union minas (N/A, 19/10/2025 20:58 Lima)
+
+- **UNT ganó, pero no le alcanzó para eliminar a Unión Minas y se despide de la Etapa Nacional de la Copa Perú**: [Link](https://www.futbolperuano.com/copa-peru/noticias/unt-vs-union-minas-se-enfrentan-en-vivo-online-por-la-vuelta-de-los-octavos-de-final-de-la-copa-peru-2025-543958)
+- **Copa Perú: Unión Minas goleó a Universidad Nacional de Tumbes en la ida de los cuartos**: [Link](https://tudiariohuanuco.pe/deporte/copa-peru-union-minas-goleo-a-universidad-nacional-de-tumbes-en-la-ida-de-los-cuartos/)
+- **Unión Minas pone un pie en los cuartos de final de la Copa Perú tras golear a UNT de Tumbes en condición de local**: [Link](https://www.futbolperuano.com/copa-peru/noticias/union-minas-pone-un-pie-en-los-cuartos-de-final-de-la-copa-peru-tras-golear-a-unt-de-tumbes-en-condicion-de-local-543118)
+
+
+### bahia vs gremio (N/A, 19/10/2025 20:58 Lima)
+
+- **With 4 out, Mano names Bahia v Grêmio squad, likely line-up here**: [Link](https://ca.sports.yahoo.com/news/4-mano-names-bahia-v-203000864.html)
+- **Grêmio unsure about Alysson, but boosted by three returns**: [Link](https://ca.sports.yahoo.com/news/gr-mio-unsure-alysson-boosted-132700317.html)
+
+
+### coritiba - paranaense (N/A, 19/10/2025 20:58 Lima)
+
+- **Coritiba x Athletico ao vivo 19/10: onde assistir, horário, escalações e palpites**: [Link](https://portaln10.com.br/todocanal/televisao/coritiba-x-athletico-ao-vivo-19-10-onde-assistir-horario-escalacoes-e-palpites/)
+- **Quem foi o melhor do Atletiba? E o pior? Confira as notas de cada jogador**: [Link](https://www.bandab.com.br/esporte/futebol/melhor-pior-atletiba-notas-couto-pereira-serie-b-2025/)
+- **Odair Hellmann detona arbitragem do Atletiba e responde se demitiria a si mesmo se fosse diretor do Athletico**: [Link](https://www.bemparana.com.br/esportes/atletico-paranaense/odair-hellmann-detona-arbitragem-do-atletiba-e-responde-se-demitiria-a-si-mesmo-se-fosse-diretor-do-athletico/)
+
+
 ### franco mastantuono (N/A, 19/10/2025 15:24 Lima)
 
 - **Estadísticas de Franco Mastantuono con Real Madrid vs Getafe**: [Link](https://www.365scores.com/es/news/estadisticas-de-franco-mastantuono-hoy/)
