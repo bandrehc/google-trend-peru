@@ -1,3 +1,45 @@
+### liga de campeones de la afc (N/A, 20/10/2025 11:30 Lima)
+
+- **Shanghai Shenhua vs FC Seoul: pronósticos, cuotas, transmisión y datos para apostar!**: [Link](https://www.apwin.com/es/pronosticos/shanghai-shenhua-vs-fc-seoul-pronostico-afc-champions-league-22-10-2025/)
+- **Melbourne City FC vs Buriram United: pronósticos, cuotas, transmisión y datos para apostar!**: [Link](https://www.apwin.com/es/pronosticos/melbourne-city-fc-vs-buriram-united-pronostico-afc-champions-league-21-10-2025/)
+- **Al Hilal vs Al Sadd: pronósticos, cuotas, transmisión y datos para apostar!**: [Link](https://www.apwin.com/es/pronosticos/al-hilal-vs-al-sadd-pronostico-afc-champions-league-21-10-2025/)
+
+
+### sport huancayo vs alianza lima (N/A, 20/10/2025 11:30 Lima)
+
+- **A qué hora juega Alianza Lima vs Sport Huancayo HOY: partido por el Torneo Clausura de la Liga 1 2025**: [Link](https://www.infobae.com/peru/deportes/2025/10/19/a-que-hora-juega-alianza-lima-vs-sport-huancayo-partido-fecha-15-torneo-clausura-liga-1-2025-horario/)
+- **Liga 1 Max online: cómo ver partido de Alianza Lima vs. Sport Huancayo por Torneo Clausura**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/liga-1-max-en-vivo-gratis-futbol-libre-tv-alianza-lima-vs-sport-huancayo-hoy-por-internet-por-liga-1-video-noticia/)
+- **Sin Quevedo y con el regreso de Gorosito: Convocados de Alianza Lima vs. Sport Huancayo**: [Link](https://depor.com/futbol-peruano/descentralizado/alianza-lima-vs-sport-huancayo-convocados-de-nestor-gorosito-por-torneo-clausura-2025-liga-1-noticia/)
+
+
+### keiko fujimori (N/A, 20/10/2025 11:30 Lima)
+
+- **URGENTE: declaran fundado hábeas corpus de Keiko Fujimori en caso Cócteles [Expediente 02109-2024-PHC/TC]**: [Link](https://lpderecho.pe/declaran-fundado-habeas-corpus-de-keiko-fujimori-en-caso-cocteles-expediente-02109-2024-phc-tc/)
+- **Tribunal Constitucional deja sin efecto investigación contra Keiko Fujimori en caso 'Cócteles'**: [Link](https://rpp.pe/politica/judiciales/tribunal-constitucional-deja-sin-efecto-investigacion-contra-keiko-fujimori-en-caso-cocteles-noticia-1660104)
+- **TC declara improcedente hábeas corpus de Keiko Fujimori**: [Link](https://www.elperuano.pe/noticia/281280-caso-cocteles-tc-reafirma-limites-del-habeas-corpus-y-su-uso-en-casos-penales-complejos)
+
+
+### poder judicial (N/A, 20/10/2025 11:30 Lima)
+
+- **Tomás Gálvez sobre reposición de Delia Espinoza: “A la Fiscalía de la Nación todavía no se notifica nada”**: [Link](https://elcomercio.pe/politica/justicia/tomas-galvez-sobre-reposicion-de-delia-espinoza-a-la-fiscalia-de-la-nacion-todavia-no-se-notifica-nada-junta-nacional-de-justicia-jnj-ultimas-noticia/)
+- **JNJ buscaría leguleyada para no reponer a fiscal Delia Espinoza | PICO A PICO con Mabel Cáceres (VIDEO)**: [Link](https://elbuho.pe/2025/10/jnj-buscaria-leguleyada-para-no-reponer-a-fiscal-delia-espinoza-pico-a-pico-con-mabel-caceres-video/)
+- **Tomás Gálvez: La Fiscalía de la Nación es una entidad que no se centra ni se concentra en personas**: [Link](https://canaln.pe/actualidad/tomas-galvez-ministerio-publico-institucion-que-trasciende-personas-n487618)
+
+
+### sga (N/A, 20/10/2025 11:30 Lima)
+
+- **What's next for OKC? Three paths forward for SGA and the champs**: [Link](https://www.espn.com/nba/story/_/id/46629011/oklahoma-city-thunder-repeat-champions-2025-2026-nba-finals-history-breakdown)
+- **Oklahoma City Thunder 2025-26 season preview: Can the champs snap the repeat curse?**: [Link](https://sports.yahoo.com/nba/article/oklahoma-city-thunder-2025-26-season-preview-can-the-champs-snap-the-repeat-curse-134149241.html)
+- **NBA opening night: Thunder chase repeat, Doncic leads Lakers' charge in James' absence**: [Link](https://www.reuters.com/sports/nba-opening-night-thunder-chase-repeat-doncic-leads-lakers-charge-james-absence-2025-10-20/)
+
+
+### aws (N/A, 20/10/2025 11:30 Lima)
+
+- **Huge global outage impacts Amazon, Fortnite and Snapchat | CNN Business**: [Link](https://www.cnn.com/business/live-news/amazon-tech-outage-10-20-25-intl)
+- **Coinbase, Robinhood down as Amazon outage briefly cripples the internet**: [Link](https://fortune.com/crypto/2025/10/20/coinbase-robinhood-aws-outage-snapchat-hulu-crypto-services/)
+- **Amazon Says Website Outages Ease After Disruption**: [Link](https://www.nytimes.com/live/2025/10/20/business/aws-down-internet-outage)
+
+
 ### precio del dólar (N/A, 20/10/2025 07:51 Lima)
 
 - **Precio del dólar en Perú, domingo 19 de octubre: a cuánto cerró el tipo de cambio hoy**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-2025-a-cuanto-esta-el-dolar-este-domingo-19-de-octubre-tipo-de-cambio-segun-bcrp-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
@@ -980,47 +1022,5 @@ Sin noticias relacionadas disponibles.
 - **Football accumulator tips for Friday October 17: Back our acca at 9-1 with bet365**: [Link](https://www.racingpost.com/sport/football-tips/football-acca-tips/football-accumulator-tips-for-friday-october-17-back-our-acca-at-9-1-with-bet365-aqvrF0M2h0Zf/)
 - **Union Berlin vs. Borussia Mönchengladbach preview: Visitors targeting first win**: [Link](https://bulinews.com/union-berlin-borussia-monchengladbach-preview-visitors-targeting-first-win)
 - **talkSPORT tips – Best football bets and expert advice for Friday 17 October**: [Link](https://talksport.com/football/3649439/betting-tips-best-football-bets-friday-17-october/)
-
-
-### argentina vs marruecos sub 20 (N/A, 17/10/2025 00:19 Lima)
-
-- **El elegido de Messi vale una final**: [Link](https://as.com/futbol/internacional/el-elegido-de-messi-vale-una-final-f202510-n/)
-- **Mundial Sub-20: Marruecos y Argentina disputarán final inédita**: [Link](https://espndeportes.espn.com/futbol/selecciones/nota/_/id/15817281/mundial-sub-20-como-que-la-final-partido-horario-2025)
-- **José Pékerman, en ESPN Equipo F: "Los chicos y el cuerpo técnico merecen el título"**: [Link](https://www.espn.com.ar/futbol/nota/_/id/15822701/jose-pekerman-espn-equipo-f-argentina-merece-el-titulo)
-
-
-### cambio del dólar hoy peru (N/A, 17/10/2025 00:19 Lima)
-
-- **Precio del dólar en caída libre: Así cerró el tipo de cambio hoy 16 de octubre en Perú**: [Link](https://www.infobae.com/peru/2025/10/15/dolar-cotizacion-de-apertura-hoy-15-de-octubre-en-peru/)
-- **Dólar en picada en medio de turbulencia política, ¿romperá el piso de S/ 3.40 o rebotará?**: [Link](https://gestion.pe/tu-dinero/dolar-en-picada-en-medio-de-turbulencia-politica-rompera-el-piso-de-s340-o-rebotara-proyecciones-del-dolar-tipo-de-cambio-dolar-en-crisis-politica-tendencia-del-dolar-noticia/)
-- **¿Seguirá cayendo el dólar o se estabilizará? Expertos analizan la tendencia bajista, tras el cierre en S/ 3.38**: [Link](https://rpp.pe/economia/economia/precio-del-dolar-expertos-analizan-factores-de-tendencia-bajista-tras-cierre-de-hoy-en-peru-de-338-soles-noticia-1659671)
-
-
-### fernando rospigliosi renuncia (N/A, 17/10/2025 00:19 Lima)
-
-- **Las urgencias de la transición**: [Link](https://caretas.pe/edicion_2735/las-urgencias-de-la-transicion/)
-- **Manual de una pose presidencial, por Hugo Coya | OPINION**: [Link](https://elcomercio.pe/opinion/columnistas/manual-de-una-pose-presidencial-por-hugo-coya-noticia/)
-- **Ni tan cerca que queme al santo, ni tan lejos que no lo alumbre**: [Link](https://peru21.pe/opinion/ni-tan-cerca-que-queme-al-santo-ni-tan-lejos-que-no-lo-alumbre/)
-
-
-### olimpia vs motagua (N/A, 17/10/2025 00:19 Lima)
-
-- **CD Olimpia - Motagua, en vivo: Clásico de Honduras, en directo**: [Link](https://as.com/us/futbol/cd-olimpia-motagua-en-vivo-clasico-de-honduras-en-directo-f202510-n/)
-- **¡ESTÁS LISTO PARA #ServiryProteger ?**: [Link](https://www.facebook.com/PoliciaNacionaldeHonduras/posts/est%C3%A1s-listo-para-serviryproteger-/1142659744723667/?locale=es_LA)
-- **Javier López: «Los clásicos siempre son complicados»**: [Link](https://www.latribuna.hn/2025/10/16/javier-lopez-los-clasicos-siempre-son-complicados/)
-
-
-### herediano vs (N/A, 17/10/2025 00:19 Lima)
-
-- **VER FUTV EN VIVO, Herediano vs. Alajuelense HOY por clásico de Costa Rica**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/futv-en-vivo-futbol-libre-tv-herediano-vs-alajuelense-online-gratis-via-futv-premium-por-clasico-de-costa-rica-video-noticia/)
-- **Las buenas sensaciones de Ronaldo Cisneros para enfrentar el Clásico tras doblete ante el Herediano**: [Link](https://www.nacion.com/puro-deporte/futbol/las-buenas-sensaciones-de-ronaldo-cisneros-para/ABM5SJUFKJHN3CZEBJ665WUF7Q/story/)
-- **¿Cuándo fue la última vez que Óscar Ramírez derrotó a Jafet Soto?**: [Link](https://www.teletica.com/club-sport-herediano/cuando-fue-la-ultima-vez-que-oscar-ramirez-derroto-a-jafet-soto_394438)
-
-
-### tabla de posiciones liga 1 (N/A, 17/10/2025 00:19 Lima)
-
-- **Acumulado de Liga 1 2025: tabla y resultados de la fecha 14 del Torneo Clausura**: [Link](https://depor.com/futbol-peruano/descentralizado/acumulado-liga-1-2025-peru-tabla-de-posiciones-y-resultados-de-fecha-14-del-torneo-clausura-2025-noticia/)
-- **Tabla de Liga 1 2025: cómo van las posiciones del Clausura y Acumulado**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/tabla-de-liga-1-2025-como-van-las-posiciones-del-torneo-clausura-y-acumulado-partidos-y-resultados-noticia/)
-- **Conoce detalles y cómo quedaron las tablas luego de la fecha 14 del Clausura**: [Link](https://ovacion.pe/noticias/liga1-te-apuesto-2025/conoce-detalles-quedaron-las-tablas-luego-fecha-14-del-clausura)
 
 
