@@ -1,3 +1,73 @@
+### tabla liga 1 (N/A, 20/10/2025 15:27 Lima)
+
+- **Tabla de posiciones de la Liga 1 Perú 2025 EN VIVO: así van los equipos en la fecha 15 del Torneo Clausura y Acumulada**: [Link](https://www.infobae.com/peru/deportes/2025/10/18/tabla-de-posiciones-liga-1-peru-2025-en-vivo-hoy-acumulada-fecha-15-torneo-clausura-programacion-resultados/)
+- **Así se jugará la fecha 15 del Clausura de la Liga 1 2025**: [Link](https://www.espn.com.pe/futbol/peru/nota/_/id/15822366/programacion-de-la-fecha-15-del-clausura-liga-1-de-peru)
+- **Tabla de posiciones de Liga 1 2025 EN VIVO: acumulado y resultados de la fecha 15 del Clausura**: [Link](https://depor.com/futbol-peruano/descentralizado/tabla-de-posiciones-liga-1-peru-2025-en-vivo-resultados-de-la-fecha-15-torneo-clausura-universitario-de-deportes-cusco-fc-sporting-cristal-alianza-lima-noticia/)
+
+
+### liga1 (N/A, 20/10/2025 15:27 Lima)
+
+- **Universitario y la semana más importante del 2025: ¿Cuántos millones están en juego para los cremas que anhelan levantar el ‘Tri’?**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/universitario-y-la-semana-mas-importante-del-2025-cuantos-millones-estan-en-juego-para-los-cremas-que-anhelan-levantar-el-tri-liga-1-te-apuesto-noticia/)
+- **Los partidos que disputará Universitario en una semana**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/cruciales-partidos-que-disputara-universitario-semana-n451403)
+- **Cuestión de números: ¿Universitario puede lograr el tricampeonato de la Liga1 ante Sporting Cristal?**: [Link](https://rpp.pe/futbol/descentralizado/universitario-puede-lograr-el-tricampeonato-de-liga1-ante-sporting-cristal-torneo-clausura-cusco-fc-noticia-1659918)
+
+
+### al vs (N/A, 20/10/2025 15:27 Lima)
+
+- **Driven since Week 1 loss, red-hot Tide rout Vols**: [Link](https://www.espn.com/college-football/story/_/id/46644440/alabama-lights-tennessee-4th-straight-win-vs-ranked-team)
+- **2 Alabama stars split SEC defensive player of the week award**: [Link](https://www.al.com/alabamafootball/2025/10/2-alabama-stars-split-sec-defensive-player-of-the-week-award.html)
+- **Rucker: It couldn’t happen again. Until it did.**: [Link](https://www.wbir.com/article/sports/college/vols/vols-football/wes-rucker-it-couldnt-happen-again-until-it-did-vols-tennessee-alabama/51-41f9ac13-1a63-469b-bc41-c8e31cf7e2a5)
+
+
+### melissa klug (N/A, 20/10/2025 15:27 Lima)
+
+- **Melissa Klug aclara comunicado de ruptura con Jesús Barco: “Lo siento”**: [Link](https://www.infobae.com/peru/2025/10/20/melissa-klug-aclara-comunicado-de-ruptura-con-jesus-barco-lo-siento/)
+- **Evelyn Vela indirecta por ruptura Melissa Klug y Jesús**: [Link](https://www.americatv.com.pe/america-hoy/evelyn-vela-lanzo-indirecta-ruptura-melissa-klug-y-jesus-noticia-161020)
+- **Melissa Klug se ARREPIENTE tras comunicado sobre el fin de su relación con Jesús Barco: “Fue un error”**: [Link](https://www.atv.pe/noticia/melissa-klug-se-arrepiente-tras-comunicado-sobre-el-fin-de-su-relacion-con-jesus-barco-fue-un-error/)
+
+
+### u vs (N/A, 20/10/2025 15:27 Lima)
+
+- **A qué hora juega Universitario vs Ayacucho FC HOY: duelo en el Nacional por el Torneo Clausura de la Liga 1 2025**: [Link](https://www.infobae.com/peru/deportes/2025/10/19/a-que-hora-juega-universitario-vs-ayacucho-fc-partido-fecha-15-torneo-clausura-liga-1-2025-horario/)
+- **Universitario vs Ayacucho FC: Instrucciones para el proceso de acreditación**: [Link](https://universitario.pe/noticias/noticias-primer-equipo/universitario-vs-ayacucho-fc-instrucciones-para-el-proceso-de-acreditacion-2)
+- **Sin Edison Flores ni Rodrigo Ureña: el equipo titular que alista Jorge Fossati para recibir a Ayacucho FC**: [Link](https://bolavip.com/pe/universitario/sin-edison-flores-ni-rodrigo-urena-el-equipo-titular-que-alista-jorge-fossati-para-recibir-a-ayacucho-fc)
+
+
+### valencia cf (N/A, 20/10/2025 15:27 Lima)
+
+- **Gaya iguala a Parejo en partidos con el Valencia CF**: [Link](https://www.superdeporte.es/valencia-cf/2025/10/20/jose-luis-gaya-gaya-valencia-cf-122828577.html)
+- **Carlos Larrínaga: Donald Trump y el Nobel de la Paz**: [Link](https://www.diariovasco.com/opinion/carlos-larrinaga-donald-trump-nobel-paz-20251020235912-nt.html)
+- **Israel asesina a miembros de Hamás tras cruzar la 'línea amarilla' en Gaza**: [Link](https://www.laverdad.es/internacional/israel-asesina-miembros-hamas-tras-cruzar-linea-20251019210009-virc.html)
+
+
+### xiomy kanashiro (N/A, 20/10/2025 15:27 Lima)
+
+- **Jefferson Farfán: papá de Xiomy Kanashiro lanzó advertencia**: [Link](https://www.americatv.com.pe/america-hoy/jefferson-farfan-papa-xiomy-kanashiro-le-envio-advertencia-noticia-161021)
+- **¿Se casaron? Jefferson Farfán y Xiomy Kanashiro lucen presuntos anillos de matrimonio**: [Link](https://www.atv.pe/noticia/se-casaron-jefferson-farfan-y-xiomy-kanashiro-lucen-presuntos-anillos-de-matrimonio/)
+- **Janet: Xiomy y Farfán buscan iglesia**: [Link](https://ojo.pe/ojo-show/janet-xiomy-y-farfan-buscan-iglesia-noticia/)
+
+
+### daniel naroditsky (N/A, 20/10/2025 15:27 Lima)
+
+- **Grandmaster, Popular Commentator Daniel Naroditsky Tragically Passes Away At 29**: [Link](https://www.chess.com/news/view/grandmaster-daniel-naroditsky-dies-at-29)
+- **Charlotte chess phenomenon dies unexpectedly at 29**: [Link](https://www.wbtv.com/2025/10/20/charlotte-chess-phenomenon-dies-unexpectedly-29/)
+- **Bay Area Chess Grandmaster, Streamer Daniel Naroditsky Dead at 29**: [Link](https://hoodline.com/2025/10/bay-area-chess-grandmaster-streamer-daniel-naroditsky-dead-at-29/)
+
+
+### alavés - valencia c. f. (N/A, 20/10/2025 15:27 Lima)
+
+- **Alavés - Valencia, en directo: LaLiga EA Sports hoy en vivo**: [Link](https://as.com/futbol/primera/alaves-valencia-en-directo-laliga-ea-sports-hoy-en-vivo-f202510-d/)
+- **Examen de madurez competitiva del Valencia contra la solidez del Alavés**: [Link](https://www.mundodeportivo.com/futbol/laliga/20251020/1002553463/examen-madurez-competitiva-valencia-solidez-alaves.html)
+- **Coudet repite once, con Calebe en la derecha y Carlos Vicente en el banquillo**: [Link](https://www.elcorreo.com/alaves/coudet-repite-once-calebe-derecha-carlos-vicente-20251020200803-nt.html)
+
+
+### universitario (N/A, 20/10/2025 15:27 Lima)
+
+- **¡El Nacional será celeste! El duelo entre Sporting Cristal vs. Universitario se jugará solo con hinchada local**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/sporting-cristal-vs-universitario-se-jugara-con-hinchada-local-en-el-estadio-nacional-por-liga-1-noticia/)
+- **“Los consideramos un clásico”: Martín Távara en la previa del duelo con Universitario**: [Link](https://depor.com/futbol-peruano/descentralizado/sporting-cristal-martin-tavara-hablo-sobre-seguir-en-la-pelea-del-torneo-clausura-en-la-previa-del-duelo-con-universitario-liga-1-noticia/)
+- **¡Último minuto! Sporting Cristal vs. Universitario: Partido corre el riesgo de volver a suspenderse**: [Link](https://bolavip.com/pe/liga-1/ultimo-minuto-sporting-cristal-vs-universitario-partido-corre-el-riesgo-de-volver-a-suspenderse)
+
+
 ### liga de campeones de la afc (N/A, 20/10/2025 11:30 Lima)
 
 - **Shanghai Shenhua vs FC Seoul: pronósticos, cuotas, transmisión y datos para apostar!**: [Link](https://www.apwin.com/es/pronosticos/shanghai-shenhua-vs-fc-seoul-pronostico-afc-champions-league-22-10-2025/)
@@ -952,75 +1022,5 @@ Sin noticias relacionadas disponibles.
 - **LIVE! PSG vs Strasbourg in Ligue 1 on beIN SPORTS**: [Link](https://www.beinsports.com/en-us/soccer/ligue-1/articles/live-psg-vs-strasbourg-in-ligue-1-on-bein-sports-2025-10-17)
 - **France Soccer League One**: [Link](https://www.couriernews.com/sports/france-soccer-league-one/image_d1548583-3096-59f8-8cc7-d1c409d938d9.html)
 - **Can PSG Break Their Injury Curse and Turn the Tide in Football?**: [Link](https://emegypt.net/1013140)
-
-
-### blast slam iv (N/A, 17/10/2025 11:28 Lima)
-
-- **BLAST Slam IV: Schedule, Standings, Results**: [Link](https://hawk.live/posts/blast-slam-iv-schedule-standings-results)
-- **Team Falcons, Tundra Esports start fast at BLAST Slam IV**: [Link](https://deadspin.com/team-falcons-tundra-esports-start-fast-at-blast-slam-iv/)
-- **Top Dota 2 Teams Confirmed for BLAST Dota Slam Singapore 2025**: [Link](https://finance.yahoo.com/news/top-dota-2-teams-confirmed-102600801.html)
-
-
-### liga 1 posiciones (N/A, 17/10/2025 11:28 Lima)
-
-- **Tabla de posiciones de la Liga 1 Perú 2025: así van los equipos tras la fecha 14 del Torneo Clausura y Acumulada**: [Link](https://www.infobae.com/peru/deportes/2025/10/14/tabla-de-posiciones-de-la-liga-1-peru-2025-en-vivo-asi-van-los-equipos-tras-la-fecha-14-del-torneo-clausura-y-acumulada/)
-- **Tabla de posiciones de Liga 1 EN VIVO: así va el Clausura y Acumulado**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/tabla-de-liga-1-2025-como-van-las-posiciones-del-torneo-clausura-y-acumulado-partidos-y-resultados-noticia/)
-- **Acumulado de Liga 1: tabla de posiciones y resultados de la fecha 14 del Torneo Clausura 2025**: [Link](https://depor.com/futbol-peruano/descentralizado/acumulado-liga-1-2025-peru-tabla-de-posiciones-y-resultados-de-fecha-14-del-torneo-clausura-2025-noticia/)
-
-
-### al ittihad (N/A, 17/10/2025 11:28 Lima)
-
-- **Al-Feiha vs Al-Ittihad Prediction: Ittihad must bounce back to winning ways**: [Link](https://www.telecomasia.net/sports-betting/tips/football/saudi-pro-league/al-feiha-vs-al-ittihad-prediction-for-the-match-on-october-17-2025/)
-- **Al Fayha vs Al Ittihad Preview, prediction, lineups, betting tips & odds | Saudi Pro League 2025-26**: [Link](https://khelnow.com/football/world-football-al-fayha-vs-al-ittihad-preview-202510)
-- **Where to Watch Al-Fayha vs Al Ittihad Live?**: [Link](https://www.sportsdunia.com/football-news/where-to-watch-al-fayha-vs-al-ittihad-live-stream)
-
-
-### gorosito (N/A, 17/10/2025 11:28 Lima)
-
-- **Franco Navarro Jr. sobre renovación de Néstor Gorosito: “Hay un acuerdo, estamos conformes ambas partes”**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/franco-navarro-jr-sobre-renovacion-de-nestor-gorosito-hay-un-acuerdo-estamos-conformes-ambas-partes-alianza-lima-ultimas-noticia/)
-- **"Esto todavía no acaba": Paolo Guerrero aún ve con chances a Alianza Lima de lograr el Torneo Clausura**: [Link](https://rpp.pe/futbol/descentralizado/alianza-lima-paolo-guerrero-sobre-el-torneo-clausuraesto-todavia-no-acaba-noticia-1659487)
-- **Alianza Lima confía en seguir escalando en la tabla: Lo que sabe el Comando Técnico de su renovación**: [Link](https://depor.com/futbol-peruano/descentralizado/alianza-lima-vs-sport-boys-gustavo-zapata-hablo-sobre-la-renovacion-de-nestor-gorosito-y-las-ultimas-aspiraciones-del-plantel-liga-1-noticia/)
-
-
-### cronograma de retiro de afp (N/A, 17/10/2025 11:28 Lima)
-
-- **Retiro AFP 2025: Cada administradora activará ‘link’ para hacer la solicitud desde el 21 de octubre**: [Link](https://www.infobae.com/peru/2025/10/13/retiro-afp-2025-solicitud-se-hara-via-link-oficial-de-cada-administradora-desde-este-martes-21-de-octubre/)
-- **¡Retiro de AFP hasta 4 UIT! Conoce la nueva ley del Congreso 👏**: [Link](https://comunicaciones.congreso.gob.pe/tv-congreso/retiro-de-afp-hasta-4-uit-conoce-la-nueva-ley-del-congreso-%F0%9F%91%8F/)
-- **Afiliados del Sistema Privado de Pensiones podrán aumentar el monto máximo de retiro AFP desde 1 de enero de 2026: ¿por qué motivo sería?**: [Link](https://larepublica.pe/economia/2025/10/16/afiliados-del-sistema-privado-de-pensiones-podran-aumentar-el-monto-maximo-de-retiro-afp-desde-1-de-enero-de-2026-por-que-motivo-seria-atmp-1121712)
-
-
-### luis cordero jon tay (N/A, 17/10/2025 11:28 Lima)
-
-- **Plantean que la Sunat permita deducir pérdidas por extorsión del impuesto a la renta con solo una declaración jurada**: [Link](https://lpderecho.pe/sunat-deducir-perdidas-extorsion-impuesto-renta-declaracion-jurada/)
-- **Congresista presenta proyecto de ley para que empresas puedan deducir las extorsiones del impuesto a la renta**: [Link](https://elcomercio.pe/politica/congresista-gustavo-cordero-presenta-proyecto-de-ley-para-que-empresas-puedan-deducir-las-extorsiones-del-impuesto-a-la-renta-ultimas-noticia/)
-- **Congreso propone que extorsiones se deduzcan del impuesto a la renta con declaración jurada**: [Link](https://www.infobae.com/peru/2025/10/16/congreso-propone-que-extorsiones-se-deduzcan-del-impuesto-a-la-renta-solo-con-declaracion-jurada/)
-
-
-### el peruano normas legales (N/A, 17/10/2025 11:28 Lima)
-
-- **El Peruano te informa: consulta aquí las principales normas legales para hoy, viernes 17 de Octubre del 2025**: [Link](https://elperuano.pe/noticia/281053-el-peruano-te-informa-consulta-aqui-las-principales-normas-legales-para-hoy-viernes-17-de-octubre-del-2025)
-- **Estas son las normas legales más importantes del viernes 17 de octubre del 2025**: [Link](https://www.apnoticias.pe/peru/andina/estas-son-las-normas-legales-mas-importantes-del-viernes-17-de-octubre-del-2025-1463732)
-- **Protege tu información: nueva norma refuerza la seguridad digital en las entidades públicas. Infórmate aquí**: [Link](https://www.elperuano.pe/noticia/281054-protege-tu-informacion-nueva-norma-refuerza-la-seguridad-digital-en-las-entidades-publicas-informate-aqui)
-
-
-### eutanasia (N/A, 17/10/2025 11:28 Lima)
-
-- **Uruguay legaliza la eutanasia con la ley de "muerte digna"**: [Link](https://caretas.pe/mundo/uruguay-legaliza-la-eutanasia-con-la-ley-de-muerte-digna/)
-- **Tras el aborto, matrimonio igualitario y la Ley Trans, Uruguay aprueba la eutanasia activa**: [Link](https://andina.pe/agencia/noticia-tras-aborto-matrimonio-igualitario-y-ley-trans-uruguay-aprueba-eutanasia-activa-1048513.aspx)
-- **Uruguay se prepara para aprobar la legalización de la eutanasia: Senado debatirá el proyecto de ley este miércoles**: [Link](https://larepublica.pe/mundo/2025/10/15/uruguay-se-prepara-para-aprobar-la-legalizacion-de-la-eutanasia-senado-debatira-el-proyecto-de-ley-este-miercoles-938235)
-
-
-### lurin (N/A, 17/10/2025 07:50 Lima)
-
-- **Chofer de combi murió y tres pasajeros resultaron heridos en ataque armado en Lurín [VIDEO]**: [Link](https://rpp.pe/lima/policiales/lurin-chofer-de-combi-murio-y-tres-pasajeros-resultaron-heridos-en-ataque-armado-video-noticia-1659750)
-- **Asesinan a chofer y copiloto de combi con ruta Chepén–Lurín al cierre de su jornada**: [Link](https://elcomercio.pe/lima/policiales/asesinan-a-chofer-y-copiloto-de-combi-con-ruta-chepenlurin-al-cierre-de-su-jornada-ultimas-noticia/)
-- **Sicarios balean combi llena de pasajeros en Lurín: Hay dos muertos y cuatro heridos**: [Link](https://trome.com/actualidad/policiales/lurin-sicarios-asesinan-chofer-y-dejan-heridos-a-pasajeros-dentro-de-una-combi-video-historias-policiales-noticia/)
-
-
-### union berlin vs (N/A, 17/10/2025 03:31 Lima)
-
-- **Football accumulator tips for Friday October 17: Back our acca at 9-1 with bet365**: [Link](https://www.racingpost.com/sport/football-tips/football-acca-tips/football-accumulator-tips-for-friday-october-17-back-our-acca-at-9-1-with-bet365-aqvrF0M2h0Zf/)
-- **Union Berlin vs. Borussia Mönchengladbach preview: Visitors targeting first win**: [Link](https://bulinews.com/union-berlin-borussia-monchengladbach-preview-visitors-targeting-first-win)
-- **talkSPORT tips – Best football bets and expert advice for Friday 17 October**: [Link](https://talksport.com/football/3649439/betting-tips-best-football-bets-friday-17-october/)
 
 
