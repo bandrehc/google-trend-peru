@@ -1,3 +1,24 @@
+### amazon (N/A, 20/10/2025 03:32 Lima)
+
+- **A lot of the internet just stopped working**: [Link](https://www.the-independent.com/tech/snapchat-roblox-duolingo-fortnite-down-not-working-b2848289.html)
+- **Huge internet outage knocks out Snapchat, Amazon and multiple other websites and apps**: [Link](https://news.sky.com/story/huge-internet-outage-knocks-out-snapchat-amazon-and-multiple-other-websites-and-apps-13453810)
+- **Multiple websites including Amazon’s cloud unit down for thousands of users**: [Link](https://www.timesofisrael.com/liveblog_entry/multiple-websites-including-amazons-cloud-unit-down-for-thousands-of-users/)
+
+
+### nadie nos vio partir (N/A, 20/10/2025 03:32 Lima)
+
+- **Quién es Tamara Trottner, la autora del libro de Nadie nos vio partir | MAG**: [Link](https://elcomercio.pe/mag/fama/que-ver/quien-es-tamara-trottner-la-autora-del-libro-de-nadie-nos-vio-partir-nnda-nnlt-noticia/)
+- **Nadie nos vio partir: Sinopsis, quién es quién y cuál es la historia real de la serie**: [Link](https://www.elespectador.com/revista-vea/peliculas-series-y-novelas/nadie-nos-vio-partir-sinopsis-quien-es-quien-y-cual-es-la-historia-real-de-la-serie/)
+- **‘Nadie nos vio partir’ reparto: lista completa de actores y personajes de la serie mexicana en Netflix**: [Link](https://es-us.noticias.yahoo.com/vio-netflix-reparto-lista-actores-182414068.html)
+
+
+### dan reynolds (N/A, 20/10/2025 03:32 Lima)
+
+- **Imagine Dragons en Lima: horario, accesos, setlist y más para su concierto en el Estadio San Marcos**: [Link](https://www.infobae.com/peru/2025/10/19/imagine-dragons-en-lima-horario-accesos-setlist-y-mas-para-su-concierto-en-el-estadio-san-marcos/)
+- **Imagine Dragons en Perú: ¡Descubre el posible setlist de su gira Loom World Tour!**: [Link](https://blog.joinnus.com/imagine-dragons-en-peru-descubre-el-posible-setlist-de-su-gira-loom-world-tour/)
+- **Imagine Dragons en Lima: setlist de canciones, horarios y lo que se sabe sobre su concierto en el estadio San Marcos**: [Link](https://rpp.pe/musica/conciertos/imagine-dragons-en-lima-setlist-con-canciones-horario-mapa-y-lo-que-se-sabe-sobre-concierto-en-estadio-san-marcos-noticia-1659866)
+
+
 ### patricia chirinos (N/A, 19/10/2025 23:29 Lima)
 
 - **Patricia Chirinos pide a José Jerí que ordene intervención de las FF. AA. y prohíba el uso de motocicletas a nivel nacional**: [Link](https://lpderecho.pe/patricia-chirinos-pide-jose-jeri-ordene-intervencion-ff-aa-prohiba-uso-motocicletas-nivel-nacional/)
