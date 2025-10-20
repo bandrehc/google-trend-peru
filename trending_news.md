@@ -1,3 +1,30 @@
+### patricia chirinos (N/A, 19/10/2025 23:29 Lima)
+
+- **Patricia Chirinos pide a José Jerí que ordene intervención de las FF. AA. y prohíba el uso de motocicletas a nivel nacional**: [Link](https://lpderecho.pe/patricia-chirinos-pide-jose-jeri-ordene-intervencion-ff-aa-prohiba-uso-motocicletas-nivel-nacional/)
+- **Patricia Chirinos pide a Jerí prohíba el uso de motocicletas**: [Link](https://noticiaspiura30.pe/patricia-chirinos-pide-a-jeri-prohiba-el-uso-de-motocicletas/)
+- **Otorgan cinco días hábiles para presentar informe final sobre caso de designación de Daniel Salaverry como presidente de Perúpetro**: [Link](https://comunicaciones.congreso.gob.pe/noticias/otorgan-cinco-dias-habiles-para-presentar-informe-final-sobre-caso-de-designacion-de-daniel-salaverry-como-presidente-de-perupetro/)
+
+
+### lapadula (N/A, 19/10/2025 23:29 Lima)
+
+- **Jefferson Farfán le pidió a Gianluca Lapadula jugar por Alianza Lima junto a Luis Advíncula y lanzó sorpresiva promesa: “Yo pongo de la mía”**: [Link](https://www.infobae.com/peru/deportes/2025/10/17/jefferson-farfan-le-pidio-a-gianluca-lapadula-jugar-por-alianza-lima-junto-a-luis-advincula-y-lanzo-sorpresiva-promesa-yo-pongo-de-la-mia/)
+- **¿‘Foquita’ abre billetera para que Gianluca Lapadula llegue a Alianza Lima? [VIDEO]**: [Link](https://trome.com/deportes/futbol-peruano/jefferson-farfan-abre-billetera-para-que-gianluca-lapadula-llegue-a-alianza-lima-video-liga-1-serie-b-spezia-noticia/)
+- **Jefferson Farfán le pide a Gianluca Lapadula que fiche por Alianza Lima**: [Link](https://www.futbolperuano.com/liga-1/noticias/jefferson-farfan-le-pide-a-gianluca-lapadula-fichar-por-alianza-lima-543969)
+
+
+### renzo reggiardo (N/A, 19/10/2025 23:29 Lima)
+
+- **“La izquierda caviar quiere que Jerí se vaya de Palacio”**: [Link](https://elcomercio.pe/politica/actualidad/renzo-reggiardo-barreto-alcalde-de-lima-la-izquierda-caviar-quiere-que-jose-jeri-se-vaya-de-palacio-municipalidad-rafael-lopez-aliaga-inseguridad-ciudadana-noticia/)
+- **Dina, Jerí, la izquierda y los Z**: [Link](https://reinadelaselva.pe/dina-jeri-la-izquierda-y-los-z/)
+- **Congresista Milagros Jáuregui señala a Ruth Luque, Susel Paredes y Flor Pablo: “Tienen una agenda desestabilizadora”**: [Link](https://www.expreso.com.pe/politica/congresista-milagros-jauregui-senala-a-ruth-luque-susel-paredes-y-flor-pablo-tienen-una-agenda-desestabilizadora-generacion-z-noticia/1230623/)
+
+
+### gremio vs (N/A, 19/10/2025 23:29 Lima)
+
+- **Pronóstico Bahia - Gremio. Brasileirao Serie A | 20/10/2025**: [Link](https://gainblers.com/pe/pronosticos/futbol/brasil/brasileirao-serie-a/pronostico-bahia-gremio-20-10-2025/)
+- **Pronóstico Bahia - Gremio. Brasileirao Serie A | 20/10/2025**: [Link](https://gainblers.com/pe/pronosticos/futbol/brasil/brasileirao-serie-a/pronostico-bahia-gremio-20-10-2025/)
+
+
 ### concierto san marcos hoy (N/A, 19/10/2025 20:58 Lima)
 
 - **Imagine Dragons en Lima: horario, accesos, setlist y más para su concierto en el Estadio San Marcos**: [Link](https://www.infobae.com/peru/2025/10/19/imagine-dragons-en-lima-horario-accesos-setlist-y-mas-para-su-concierto-en-el-estadio-san-marcos/)
