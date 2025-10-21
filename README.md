@@ -1,3 +1,10 @@
+### barcelona vs olympiacos (N/A, 21/10/2025 07:52 Lima)
+
+- **Barcelona vs. Olympiacos, por la Champions League 2025/2026: previa, posibles alineaciones, hora y cómo ver por TV e internet**: [Link](https://cnnespanol.cnn.com/2025/10/20/deportes/champions-league-barcelona-olympiacos-previa-alineaciones-orix)
+- **Apuestas y pronósticos Barcelona vs Olympiacos: la 'china' de Mendilibar previa al Clásico**: [Link](https://www.marca.com/apuestas-deportivas/predicciones/2025/10/20/apuestas-pronosticos-barcelona-vs-olympiacos-china-mendilibar-previa-clasico.html)
+- **ESPN hoy gratis, Barcelona vs. Olimpiacos online por UEFA Champions League**: [Link](https://elcomercio.pe/deporte-total/champions-league/espn-en-vivo-futbol-libre-tv-barcelona-vs-olimpiacos-hoy-gratis-via-movistar-liga-de-campeones-disney-plus-tnt-sports-amazon-prime-max-por-champions-league-video-noticia/)
+
+
 ### pafos fc (N/A, 21/10/2025 03:34 Lima)
 
 - **Preview:Kairat vs Pafos - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/kairat/preview/kairat-vs-pafos-prediction-team-news-lineups_583878.html)
@@ -1016,12 +1023,5 @@ Sin noticias relacionadas disponibles.
 - **Victoria’s Secret Fashion Show 2025 Pink Carpet Arrivals, Live Updates**: [Link](https://wwd.com/fashion-news/fashion-scoops/gallery/victorias-secret-fashion-show-2025-arrivals-photos-1238304144/)
 - **Karol G's Victoria's Secret Fashion Show 2025 Performance Look Explored "A Different Kind of Sensuality"**: [Link](https://www.inkl.com/news/karol-g-s-victoria-s-secret-fashion-show-2025-performance-look-explored-a-different-kind-of-sensuality)
 - **Karol G Is ‘Serving That Latina Vibe’ in Red Lace Catsuit, Fans Say**: [Link](https://www.yahoo.com/entertainment/celebrity/articles/karol-g-serving-latina-vibe-230501714.html)
-
-
-### rammstein (N/A, 17/10/2025 23:26 Lima)
-
-- **Till Lindemann (Rammstein): Autogrammstunde mit Joey Kelly wird verlegt**: [Link](https://sonic-seducer.de/till-lindemann-rammstein-autogrammstunde-mit-joey-kelly-wird-verlegt/)
-- **Till Lindemann verändert Ort seiner Autogrammstunde: „Anfeindungen, Einschüchterungsversuche, Drohungen“**: [Link](https://www.berliner-zeitung.de/kultur-vergnuegen/musik/till-lindemann-veraendert-ort-seiner-autogrammstunde-anfeindungen-einschuechterungsversuche-drohungen-li.10001420)
-- **Till Lindemann will mit seinen Fans unbedingt auf Tuchfühlung gehen**: [Link](https://www.rollingstone.de/till-lindemann-meet-and-greet-meine-welt-3066621/)
 
 
