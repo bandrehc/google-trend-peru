@@ -1,3 +1,67 @@
+### temblor hoy (N/A, 20/10/2025 20:52 Lima)
+
+- **Tacna: un sismo de magnitud 4.1 se sintió esta tarde en Ilabaya**: [Link](https://rpp.pe/peru/tacna/tacna-un-sismo-de-magnitud-41-se-sintio-esta-tarde-en-ilabaya-noticia-1659961)
+- **Sismos en Lima y Apurímac: movimientos leves alertan a la población**: [Link](https://caretas.pe/nacional/sismos-en-lima-y-apurimac-movimientos-leves-alertan-a-la-poblacion/)
+- **🔴🔵El IGP reportó un movimiento telúrico a las 3:30 a.m. con una intensidad de III en Chilca, sin reportes de daños ni víctimas que lamentar. 🌐Más información en: https://www.exitosanoticias.pe**: [Link](https://www.facebook.com/Exitosanoticias/posts/el-igp-report%C3%B3-un-movimiento-tel%C3%BArico-a-las-330-am-con-una-intensidad-de-iii-en-/1248925693937153/)
+
+
+### partidos de universitario (N/A, 20/10/2025 20:52 Lima)
+
+- **Qué necesita Universitario para lograr el título del Clausura y ser tricampeón nacional**: [Link](https://www.espn.com.pe/futbol/peru/nota/_/id/15717777/que-necesita-universitario-para-ser-tricampeon-nacional-liga-1-de-peru)
+- **Universitario ya no podrá ser tricampeón de la Liga 1 a costa de Sporting Cristal**: [Link](https://www.espn.com.ar/futbol/peru/nota/_/id/15817244/universitario-ya-no-podra-ser-tricampeon-de-la-liga-1-a-costa-de-sporting-cristal)
+- **Los partidos que disputará Universitario en una semana**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/cruciales-partidos-que-disputara-universitario-semana-n451403)
+
+
+### medellín - santa fe (N/A, 20/10/2025 20:52 Lima)
+
+- **WIN Sports EN VIVO: Medellín-Santa Fe HOY por Liga Betplay**: [Link](https://elcomercio.pe/deporte-total/colombia/medellin-vs-santa-fe-en-vivo-gratis-hoy-via-futbol-libre-tv-win-sports-rcn-horarios-canales-y-donde-ver-partido-por-liga-betplay-video-noticia/)
+- **¿Quiénes serían los titulares del DIM para buscar su “revancha” contra Santa Fe por Liga en el Atanasio? | El Colombiano**: [Link](https://www.elcolombiano.com/deportes/futbol/dim-vs-santa-fe-liga-betplay-2025-fecha-14-antecedentes-posibles-titulares-NB30130159)
+- **Santa Fe busca salir del bache y hace cuentas para afianzarse entre los ocho: este lunes visita al Medellín; hora y TV del partido**: [Link](https://www.eltiempo.com/deportes/futbol-colombiano/santa-fe-busca-salir-del-bache-y-hace-cuentas-para-afianzarse-entre-los-ocho-este-lunes-visita-al-medellin-hora-y-tv-del-partido-3501203)
+
+
+### u va (N/A, 20/10/2025 20:52 Lima)
+
+- **Dartmouth’s Feedback on the Compact**: [Link](https://president.dartmouth.edu/news/2025/10/dartmouths-feedback-compact)
+- **Brown University president declines invitation for Brown to join federal Compact**: [Link](https://www.brown.edu/news/2025-10-15/brown-response-federal-compact)
+- **Update from Interim President Kim**: [Link](https://we-are.usc.edu/2025/10/16/update-from-interim-president-kim/)
+
+
+### el nacional - dep. cuenca (N/A, 20/10/2025 20:52 Lima)
+
+Sin noticias relacionadas disponibles.
+
+
+### santos vs vitoria (N/A, 20/10/2025 20:52 Lima)
+
+- **Santos vs. Vitória (21 Oct, 2025) Live Score**: [Link](https://www.espn.in/football/match/_/gameId/732870)
+
+
+### blue jays - mariners (N/A, 20/10/2025 20:52 Lima)
+
+- **Mariners vs. Blue Jays score and live updates: Latest news and analysis from today’s ALCS Game 7**: [Link](https://www.nytimes.com/athletic/live-blogs/mariners-vs-blue-jays-live-updates-mlb-alcs-game-7-score-result/JGdi5hDpePCt/)
+- **Guerrero hits 6th postseason homer and Blue Jays beat Mariners 6-2 to force Game 7 of ALCS**: [Link](https://apnews.com/article/mariners-blue-jays-score-alcs-guerrero-yesavage-29562a434684fd0dcf952c200f0f2fbb)
+- **Dan Wilson tweaks lineup ahead of historic Game 7**: [Link](https://www.sportingnews.com/us/mlb/seattle-mariners/news/dan-wilson-tweaks-lineup-ahead-historic-game-7/2b98003a2793c64ef9f9c54a)
+
+
+### cuándo juega la u (N/A, 20/10/2025 20:52 Lima)
+
+Sin noticias relacionadas disponibles.
+
+
+### la u (N/A, 20/10/2025 20:52 Lima)
+
+- **Fabián Hormazábal tras su renovación con la U: "Poder seguir me llena de motivación"**: [Link](https://www.espn.com.pe/futbol/copa-sudamericana/nota/_/id/15841426/fabian-hormazabal-motivado-por-renovacion-con-universidad-chile-hasta-2028)
+- **Universitario vs Ayacucho FC EN VIVO HOY: minuto a minuto por Torneo Clausura de la Liga 1 2025**: [Link](https://www.infobae.com/peru/deportes/2025/10/20/universitario-vs-ayacucho-fc-en-vivo-hoy-golperu-monumental-fecha-15-torneo-clausura-liga-1-2025-goles-resumen-resultado/)
+- **Universitario vs. Ayacucho FC EN VIVO por GOLPERU: minuto a minuto y canal gratis**: [Link](https://depor.com/futbol-peruano/descentralizado/ver-universitario-vs-ayacucho-fc-en-vivo-hoy-minuto-a-minuto-golperu-futbol-libre-tv-movistar-tv-canales-por-internet-en-directo-online-torneo-clausura-2025-noticia/)
+
+
+### atlético tucumán - san lorenzo (N/A, 20/10/2025 20:52 Lima)
+
+- **Pronósticos Atlético Tucumán vs San Lorenzo: el Ciclón busca un poco de paz**: [Link](https://bolavip.com/ar/apuestas/pronosticos/atletico-tucuman-vs-san-lorenzo-20-10-2025)
+- **Fútbol libre por celular: cómo ver en vivo Atlético Tucumán vs. San Lorenzo**: [Link](https://www.minutouno.com/deportes/futbol-libre-celular-como-ver-vivo-atletico-tucuman-vs-san-lorenzo-n6204055)
+- **El motivo por el que Atlético Tucumán decidió no concentrar antes de enfrentar a San Lorenzo**: [Link](https://www.ole.com.ar/atletico-tucuman/atletico-tucuman-concentracion-san-lorenzo-deuda-protesta_0_ayyvPB9SmO.html)
+
+
 ### tabla liga 1 (N/A, 20/10/2025 15:27 Lima)
 
 - **Tabla de posiciones de la Liga 1 Perú 2025 EN VIVO: así van los equipos en la fecha 15 del Torneo Clausura y Acumulada**: [Link](https://www.infobae.com/peru/deportes/2025/10/18/tabla-de-posiciones-liga-1-peru-2025-en-vivo-hoy-acumulada-fecha-15-torneo-clausura-programacion-resultados/)
@@ -955,72 +1019,5 @@ Sin noticias relacionadas disponibles.
 - **Lanús recibe a Godoy Cruz por la fecha 13 del Torneo Clausura**: [Link](https://www.ole.com.ar/lanus/lanus-recibe-godoy-cruz-clausura_0_LzL9d7rRcX.html)
 - **Los últimos antecedentes en La Fortaleza**: [Link](https://www.vavel.com/ar/futbol-argentino/2025/10/16/godoy-cruz/1237797-los-ultimos-antecedentes-en-la-fortaleza.html)
 - **Ver EN VIVO Argentinos Juniors vs. Newell`s: dónde seguir por TV y ONLINE en streaming**: [Link](https://www.tycsports.com/liga-profesional-de-futbol/argentinos-juniors-vs-newells-en-vivo-donde-ver-por-tv-y-online-id692782.html)
-
-
-### joaquín panichelli (N/A, 17/10/2025 15:26 Lima)
-
-- **Joaquín Panichelli convirtió un golazo para el empate de Estrasburgo ante PSG**: [Link](https://www.espn.com.ar/futbol/francia/nota/_/id/15825638/video-joaquin-panichelli-convirtio-un-golazo-para-el-empate-de-estrasburgo-ante-psg)
-- **El ex River que la rompe en Francia y lucirá un parche especial ante el PSG por su rendimiento**: [Link](https://radiodelsolpehuajo.com.ar/articulo/2025/10/el-ex-river-que-la-rompe-en-francia-y-lucira-un-parche-especial-ante-el-psg-por-su-rendimiento.php)
-- **Panichelli recibió el parche de goleador de la Ligue 1**: [Link](https://www.ole.com.ar/futbol-internacional/francia/panichelli-recibio-parche-goleador-ligue-1_3_RGHqQ5NLGc.html)
-
-
-### guéla doué (N/A, 17/10/2025 15:26 Lima)
-
-- **Desire Doue and brother Guela Doue both record assist for PSG and Strasbourg in Ligue 1 clash**: [Link](https://tribuna.com/en/news/2025-10-17-desire-doue-and-brother-guela-doue-both-record-assist-for-psg-and-strasbourg-in-ligue-1-c/)
-
-
-### gonzalo bueno (N/A, 17/10/2025 15:26 Lima)
-
-- **Gonzalo Bueno va por su primera victoria ante Thiago Monteiro: fecha, hora y dónde ver partido por octavos de final de Curitiba**: [Link](https://www.infobae.com/peru/deportes/2025/10/15/gonzalo-bueno-va-por-su-primera-victoria-ante-thiago-monteiro-fecha-hora-y-donde-ver-partido-por-octavos-de-final-de-curitiba/)
-- **Gonzalo Bueno se metió a cuartos de final del Challenger Curitiba**: [Link](https://ovacion.pe/noticias/tenis/gonzalo-bueno-se-metio-cuartos-final-del-challenger-curitiba)
-- **Gonzalo Bueno debuta con victoria en el Challenger de Curitiba y avanza a octavos de final**: [Link](https://buenapepa.pe/gonzalo-bueno-debuta-con-victoria-en-el-challenger-de-curitiba/)
-
-
-### julio enciso (N/A, 17/10/2025 15:26 Lima)
-
-- **¡Julio Enciso anunciado titular en el Estrasburgo para enfrentar al PSG!**: [Link](https://www.versus.com.py/hoy/2025/10/17/julio-enciso-anunciado-titular-en-el-estrasburgo-para-enfrentar-al-psg/)
-- **¡Julio Enciso anunciado titular en el Estrasburgo para enfrentar al PSG!**: [Link](https://onefootball.com/es/noticias/julio-enciso-anunciado-titular-en-el-estrasburgo-para-enfrentar-al-psg-41819365)
-
-
-### punta cana (N/A, 17/10/2025 15:26 Lima)
-
-- **La libertad de prensa en alerta en el continente: Martha Ramos, SIP**: [Link](https://alianzademediosmx.org/noticias/la-libertad-de-prensa-en-alerta-en-el-continente-martha-ramos-sip/3497)
-- **Crisis de Confianza pone en jaque a medios y multilateralismo: OEA**: [Link](https://lasillarota.com/mundo/2025/10/17/crisis-de-confianza-pone-en-jaque-medios-multilateralismo-oea-563026.html)
-- **OEA felicita a Abinader por liderazgo de RD en la libertad de prensa en América Latina**: [Link](https://noticiashoraxhora.com/lo-que-esta-pasando/oea-felicita-a-abinader-por-liderazgo-de-rd-en-la-libertad-de-prensa-en-america-latina/)
-
-
-### ibrahim mbaye (N/A, 17/10/2025 15:26 Lima)
-
-- **Au PSG, Luis Enrique mise sur les Titis parisiens : jusqu'où peuvent aller Senny Mayulu et Ibrahim Mbaye ?**: [Link](https://www.africaradio.com/actualite-111534-au-psg-luis-enrique-mise-sur-les-titis-parisiens-jusqu-ou-peuvent-aller-senny-mayulu-et-ibrahim-mbaye)
-- **Zaïre-Emery - Doué : La révolution validée au PSG !**: [Link](https://le10sport.com/football/ligue1/psg/zaireemery-doue-la-revolution-validee-au-psg-761540)
-- **"Le PSG est un club formateur" : Patrick Vieira admiratif du nombre de titis parisiens qui éclosent chaque saison**: [Link](https://tribuna.com/fr/news/2025-10-16-le-psg-est-un-club-formateur-patrick-vieira-admiratif-du-nombre-de-titis-parisiens-qui-ec/)
-
-
-### psg vs. racing de estrasburgo (N/A, 17/10/2025 15:26 Lima)
-
-- **Exquisita asistencia de Valentín Barco para Estrasburgo ante PSG**: [Link](https://www.espn.com.pe/futbol/francia/nota/_/id/15825740/video-exquisita-asistencia-de-valentin-barco-para-estrasburgo-ante-psg)
-- **Liga de Francia: RC Strasbourg necesita el triunfo ante PSG para llegar a la cima**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-de-francia-rc-strasbourg-necesita-el-triunfo-ante-psg-para-llegar-a-la-cima-noticia-1659607)
-- **PSG vs Estrasburgo: ¡Juega en la Ligue 1 y gana un viaje al Caribe gracias a Meridianbet!**: [Link](https://ovacion.pe/noticias/nota-promocional/psg-vs-estrasburgo-juega-ligue-1-gana-un-viaje-al-caribe-gracias)
-
-
-### psg (N/A, 17/10/2025 15:26 Lima)
-
-- **Le PSG honore 23 femmes atteintes du cancer du sein avant le match contre Strasbourg**: [Link](https://tribuna.com/fr/news/2025-10-17-le-psg-honore-23-femmes-atteintes-du-cancer-du-sein-avant-le-match-contre-strasbourg/)
-- **Ligue 1 McDonald’s : « La meilleure équipe du monde », affirme Liam Rosenior avant d’affronter le Paris Saint-Germain**: [Link](https://www.dazn.com/fr-FR/news/football/ligue-1-mcdonalds-la-meilleure-equipe-du-monde-affirme-liam-rosenior-avant-daffronter-le-paris-saint-germain/1wf7s4s6pcldq135jd598sa43x)
-- **Le but du 2-1 de Diego Moreira pour Strasbourg face au PSG en vidéo**: [Link](https://www.lequipe.fr/Football/Actualites/Le-but-du-2-1-de-diego-moreira-pour-strasbourg-face-au-psg-en-video/1602489)
-
-
-### nicolás maduro (N/A, 17/10/2025 15:26 Lima)
-
-- **Trump: "Maduro no quiere j***r con EE.UU." y por eso ofreció los recursos de Venezuela**: [Link](https://cnnespanol.cnn.com/2025/10/17/eeuu/trump-maduro-acceso-recursos-naturales-venezuela-trax)
-- **#NicolásMaduro ofreció a #EEUU dejar de enviarle #petróleo a #China, distanciarse de #Rusia e #Irán, y dar facilidades a empresas estadounidense en petróleo, gas y minería. La única condición a cambio fue mantener el actual estatus quo en #Venezuela.**: [Link](https://www.facebook.com/DIARIODECUBA/photos/nicol%C3%A1smaduro-ofreci%C3%B3-a-eeuu-dejar-de-enviarle-petr%C3%B3leo-a-china-distanciarse-de-/1370490174433030/)
-- **Donald Trump dijo que Nicolás Maduro le ofreció “de todo” para evitar un conflicto con Estados Unidos**: [Link](https://www.infobae.com/estados-unidos/2025/10/17/donald-trump-dijo-que-nicolas-maduro-le-ofrecio-de-todo-para-evitar-un-conflicto-con-estados-unidos/)
-
-
-### psg vs (N/A, 17/10/2025 15:26 Lima)
-
-- **LIVE! PSG vs Strasbourg in Ligue 1 on beIN SPORTS**: [Link](https://www.beinsports.com/en-us/soccer/ligue-1/articles/live-psg-vs-strasbourg-in-ligue-1-on-bein-sports-2025-10-17)
-- **France Soccer League One**: [Link](https://www.couriernews.com/sports/france-soccer-league-one/image_d1548583-3096-59f8-8cc7-d1c409d938d9.html)
-- **Can PSG Break Their Injury Curse and Turn the Tide in Football?**: [Link](https://emegypt.net/1013140)
 
 
