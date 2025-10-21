@@ -1,3 +1,73 @@
+### al hilal (N/A, 21/10/2025 11:30 Lima)
+
+- **Leonardo and Nunez on target as Hilal thrash Ettifaq 5-0**: [Link](https://www.arabnews.com/node/2619368/sport)
+- **Full Match: Al Ettifaq vs Al Hilal**: [Link](https://10.com.au/roshn-saudi-league/episodes/20252026/full-match-al-ettifaq-vs-al-hilal/tpv251019vwulj)
+- **Al Ettifaq vs Al Hilal Preview, prediction, lineups, betting tips & odds | Saudi Pro League 2025-26**: [Link](https://khelnow.com/football/world-football-al-ettifaq-vs-al-hilal-preview-202510)
+
+
+### kairat - pafos (N/A, 21/10/2025 11:30 Lima)
+
+- **Champions League: Kairat Almaty se enfrenta ante la visita Pafos por la fecha 3**: [Link](https://rpp.pe/futbol/ligas-internacionales/champions-league-kairat-almaty-se-enfrenta-ante-la-visita-pafos-por-la-fecha-3-noticia-1660078)
+- **Preview:Kairat vs Pafos - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/kairat/preview/kairat-vs-pafos-prediction-team-news-lineups_583878.html)
+- **Pafos FC’s social media draws more fans than the match itself**: [Link](https://kz.kursiv.media/en/2025-10-21/engk-nknk-pafos-fcs-social-media-draws-more-fans-than-the-match-itself/)
+
+
+### ed sheeran peru (N/A, 21/10/2025 11:30 Lima)
+
+- **ED SHEERAN VUELVE A LIMA LUEGO DE NUEVE AÑOS: CONOCE AQUÍ LOS PRECIOS**: [Link](https://blog.ticketmaster.pe/concierto/ed-sheeran-vuelve-a-lima-luego-de-nueve-anos-conoce-aqui-los-precios-3148/)
+- **Ed Sheeran vuelve al Perú: trae su Loop Tour al Estadio Nacional tras nueve años de ausencia**: [Link](https://rpp.pe/musica/conciertos/ed-sheeran-vuelve-a-lima-2026-anuncian-concierto-en-estadio-nacional-por-loop-tour-cuando-sera-noticia-1660267)
+- **Ed Sheeran vuelve a Perú luego de 9 años para un concierto en el Estadio Nacional**: [Link](https://elcomercio.pe/luces/musica/ed-sheeran-vuelve-a-peru-luego-de-9-anos-para-un-concierto-en-el-estadio-nacional-celebs-ultimas-noticia/)
+
+
+### uefa (N/A, 21/10/2025 11:30 Lima)
+
+- **Abdülkerim Bardakcı: “Taraftarımız bizim için inanılmaz itici bir güç”**: [Link](https://www.galatasaray.org/haber/futbol/sampiyonlar-ligi/abdulkerim-bardakci-taraftarimiz-bizim-icin-inanilmaz-itici-bir-guc/58675)
+- **Kjetil Knutsen: Yarın önemli bir sınav vereceğiz**: [Link](https://www.dha.com.tr/spor/kjetil-knutsen-yarin-onemli-bir-sinav-verecegiz-2743080)
+- **Abdülkerim Bardakcı: Liverpool galibiyetinin önemli olması için bu kazanmamız lazım**: [Link](https://www.fanatik.com.tr/video/video-abdulkerim-bardakci-liverpool-galibiyetinin-onemli-olmasi-icin-bu-kazanmamiz-lazim-2598277)
+
+
+### barcelona - olympiacos (N/A, 21/10/2025 11:30 Lima)
+
+- **¿A qué hora inicia y qué canal TV transmitirá FC Barcelona vs. Olympiacos EN VIVO hoy 21 de octubre por Champions League 2025?**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/a-que-hora-juega-y-que-canal-transmite-fc-barcelona-vs-olympiacos-en-vivo-hoy-21-de-octubre-por-champions-league-2025-en-mexico-usa-y-espana-nnda-nnrt-noticia/)
+- **Champions League: Olympiacos se enfrentará a Barcelona por la fecha 3**: [Link](https://rpp.pe/futbol/ligas-internacionales/champions-league-olympiacos-se-enfrentara-a-barcelona-por-la-fecha-3-noticia-1660079)
+- **Barcelona, en crisis de ataque antes del duelo con Olympiacos por la Champions League**: [Link](https://www.espn.com.pe/futbol/champions-league/nota/_/id/15818960/barcelona-en-crisis-de-ataque-antes-del-duelo-con-olympiacos-por-la-champions-league)
+
+
+### dro fernández (N/A, 21/10/2025 11:30 Lima)
+
+- **¿Quién es Dro Fernández? La sorpresa de Flick en Champions vs Olympiacos**: [Link](https://www.365scores.com/es/news/dro-fernandez-quien-es-vs-olympiacos/)
+- **Dro y Araujo, la cara y la cruz de un once**: [Link](https://www.marca.com/futbol/barcelona/2025/10/21/dro-araujo-cara-cruz-once.html)
+- **El debut que le faltaba a Dro en el Barcelona: titular en la Champions con 17 años ante Olympiacos**: [Link](https://www.larazon.es/deportes/futbol/debut-que-faltaba-dro-barcelona-titular-champions-17-anos-olympiacos_2025102168f7b318d5a0685a0ecc2795.html)
+
+
+### sanae takaichi (N/A, 21/10/2025 11:30 Lima)
+
+- **Japan's first female leader: A historic moment with caveats**: [Link](https://www.bbc.com/news/articles/cze6dgxlzwxo)
+- **Sanae Takaichi is Japan’s New Prime Minister, and She’s a Heavy Metal Drummer**: [Link](https://www.nytimes.com/2025/10/21/world/asia/sanae-takaichi-japan-prime-minister.html)
+- **S. Korea says to continue cooperation with Japan under new PM**: [Link](https://www.chinadailyasia.com/article/622106)
+
+
+### suspenden clases 23 y 24 de octubre (N/A, 21/10/2025 11:30 Lima)
+
+- **Este 24 de octubre empieza un feriado largo por Ley de hace 65 años: Solo para una ciudad**: [Link](https://www.infobae.com/peru/2025/10/17/este-24-de-octubre-empieza-un-feriado-largo-solo-para-una-ciudad-por-ley-de-hace-65-anos/)
+- **NO se suspenden las clases este 23 y 24 de octubre por día no laborable: esto indica El Peruano**: [Link](https://elcomercio.pe/respuestas/tramites/no-se-suspenden-las-clases-este-23-y-24-de-octubre-por-dia-no-laborable-lee-lo-que-dice-el-peruano-tdpe-noticia/)
+- **¿Se suspenden las clases escolares este jueves 23 y viernes 24 de octubre a nivel nacional? Esto señala El Peruano**: [Link](https://elpopular.pe/actualidad/2025/10/19/se-suspenden-las-clases-escolares-este-jueves-23-y-viernes-24-de-octubre-a-nivel-nacional-esto-senala-el-peruano-687781)
+
+
+### soda stereo peru (N/A, 21/10/2025 11:30 Lima)
+
+- **Soda Stereo vuelve a Lima: fecha, lugar y entradas para el show que reunirá a Gustavo Cerati, Zeta Bosio y Charly Alberti**: [Link](https://www.infobae.com/peru/2025/10/21/soda-stereo-vuelve-a-lima-fecha-lugar-y-entradas-para-el-show-que-reunira-a-charly-alberti-zeta-bosio-y-gustavo-cerati/)
+- **Soda Stereo confirma concierto en Perú como parte de su gira “Ecos”: ¿Cuándo será el show?**: [Link](https://elcomercio.pe/luces/musica/soda-stereo-confirma-concierto-en-peru-como-parte-de-su-gira-ecos-gustavo-cerati-celebs-ultimas-noticia/)
+- **¿Soda Stereo vuelve al Perú? Calles limeñas lucen afiches de la agrupación**: [Link](https://andina.pe/agencia/noticia-soda-stereo-vuelve-al-peru-calles-limenas-lucen-afiches-de-agrupacion-1048918.aspx)
+
+
+### prima (N/A, 21/10/2025 11:30 Lima)
+
+- **Vision Restored Using Prosthetic Retinal Implant**: [Link](https://www.nytimes.com/2025/10/20/health/retinal-implant-macular-degeneration.html)
+- **Eye prosthesis is the first to restore sight lost to macular degeneration**: [Link](https://med.stanford.edu/news/all-news/2025/10/eye-prosthesis.html)
+- **Life-changing eye implant helps blind patients read again**: [Link](https://www.bbc.com/news/articles/c0qpz39jpj7o)
+
+
 ### barcelona vs olympiacos (N/A, 21/10/2025 07:52 Lima)
 
 - **Barcelona vs. Olympiacos, por la Champions League 2025/2026: previa, posibles alineaciones, hora y cómo ver por TV e internet**: [Link](https://cnnespanol.cnn.com/2025/10/20/deportes/champions-league-barcelona-olympiacos-previa-alineaciones-orix)
@@ -953,75 +1023,5 @@ Sin noticias relacionadas disponibles.
 - **Sevilla - Mallorca en directo | La Liga EA Sports en vivo**: [Link](https://www.marca.com/futbol/laliga-ea-sports/sevilla-mallorca/2025/10/18/01_0101_20251018_179_181-directo.html)
 - **Sevilla vs Mallorca: Apuestas, Pronóstico y Cuotas**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2025/octubre/pronostico-sevilla-vs-mallorca-18-10-25)
 - **Sevilla recibe a Mallorca por la fecha 9 de LaLiga**: [Link](https://www.espn.com.ar/futbol/espana/nota/_/id/15822702/sevilla-vs-mallorca-fecha-9-laliga-alexis-sanchez-fecha-hora-tv-en-vivo)
-
-
-### señor de los milagros (N/A, 18/10/2025 07:43 Lima)
-
-- **Señor de los Milagros recorre las calles del Centro de Lima en su segunda procesión del año**: [Link](https://rpp.pe/lima/actualidad/senor-de-los-milagros-recorre-las-calles-del-centro-de-lima-en-su-segunda-procesion-del-ano-noticia-1659898)
-- **Señor de los Milagros: así será su segundo recorrido este sábado 18 de octubre del Cristo Morado | LIMA**: [Link](https://elcomercio.pe/lima/transporte/senor-de-los-milagros-asi-sera-su-segundo-recorrido-este-sabado-18-de-octubre-cristo-morado-ultimas-noticia/)
-- **Señor de los Milagros llegará a Palacio de Gobierno este sábado 18 de octubre: ¿A qué hora inicia el segundo recorrido?**: [Link](https://www.infobae.com/peru/2025/10/17/senor-de-los-milagros-llegara-a-palacio-de-gobierno-este-sabado-18-de-octubre-a-que-hora-inicia-el-segundo-recorrido/)
-
-
-### nottingham forest - chelsea (N/A, 18/10/2025 07:43 Lima)
-
-- **Premier League LIVE: Nottingham Forest vs Chelsea scores & updates**: [Link](https://www.bbc.com/sport/football/live/c5yq2nd7z05t)
-- **Enzo Maresca confirms team news for Nottingham Forest | News | Official Site**: [Link](https://www.chelseafc.com/en/news/article/enzo-maresca-confirms-team-news-for-nottingham-forest)
-- **Worrying Moises Caicedo stat as Chelsea bench midfield superstar**: [Link](https://chelsea.news/2025/10/caicedo-stat-chelsea-bench-superstar/)
-
-
-### nicolás maduro (N/A, 18/10/2025 07:43 Lima)
-
-- **Trump: "Maduro no quiere j***r con EE.UU." y por eso ofreció los recursos de Venezuela**: [Link](https://cnnespanol.cnn.com/2025/10/17/eeuu/trump-maduro-acceso-recursos-naturales-venezuela-trax)
-- **Explosiva amenaza de Trump a Maduro: “No andes jodiendo con los Estados Unidos”**: [Link](https://as.com/videos/actualidad/explosiva-amenaza-de-trump-a-maduro-no-andes-jodiendo-con-los-estados-unidos-f202510-v/)
-- **Donald Trump dijo que Nicolás Maduro le ofreció “de todo” para evitar un conflicto con Estados Unidos**: [Link](https://www.infobae.com/estados-unidos/2025/10/17/donald-trump-dijo-que-nicolas-maduro-le-ofrecio-de-todo-para-evitar-un-conflicto-con-estados-unidos/)
-
-
-### luis pacheco mandujano (N/A, 18/10/2025 03:28 Lima)
-
-- **Delia Espinoza y la JNJ: ¿Qué sucederá tras el fallo cautelar que dispone su retorno como fiscal de la Nación?**: [Link](https://elcomercio.pe/politica/delia-espinoza-y-la-jnj-que-sucedera-tras-el-fallo-cautelar-que-dispone-su-retorno-como-fiscal-de-la-nacion-tlc-audio-noticia/)
-- **Luis Pacheco Mandujano dice que decisión del Poder Judicial de reponer a Delia Espinoza como fiscal de la Nación es “para tumbar a José Jerí”**: [Link](https://www.expreso.com.pe/judicial/luis-pacheco-mandujano-dice-que-decision-del-poder-judicial-de-reponer-a-delia-espinoza-como-fiscal-de-la-nacion-es-para-tumbar-a-jose-jeri-noticia/1231855/)
-- **Alertan que JNJ buscaría incumplir reposición de Delia Espinoza como fiscal de la Nación**: [Link](https://larepublica.pe/politica/2025/10/17/alertan-que-jnj-buscaria-incumplir-reposicion-de-delia-espinoza-como-fiscal-de-la-nacion-hnews-871692)
-
-
-### stake (N/A, 18/10/2025 03:28 Lima)
-
-- **Bessent Stakes Credibility and Taxpayer Money on Argentina Bet**: [Link](https://www.nytimes.com/2025/10/17/us/politics/trump-argentina-bailout-bessent.html)
-- **Bessent says US bought pesos again, currency slips**: [Link](https://www.reuters.com/world/americas/bessent-says-us-bought-pesos-again-currency-dips-2025-10-17/)
-- **Why Trump is giving Argentina a $20 billion lifeline to help its flailing economy**: [Link](https://www.pbs.org/newshour/show/why-trump-is-giving-argentina-a-20-billion-lifeline-to-help-its-flailing-economy)
-
-
-### cambio del dolar peru (N/A, 18/10/2025 03:28 Lima)
-
-- **Precio del dólar sigue cayendo sin parar: Así cerró el tipo de cambio hoy 17 de octubre en Perú**: [Link](https://www.infobae.com/peru/2025/10/17/dolar-cotizacion-de-apertura-hoy-17-de-octubre-en-peru/)
-- **¿Seguirá cayendo el dólar o se estabilizará? Expertos analizan la tendencia bajista, tras el cierre en S/ 3.38**: [Link](https://rpp.pe/economia/economia/precio-del-dolar-expertos-analizan-factores-de-tendencia-bajista-tras-cierre-de-hoy-en-peru-de-338-soles-noticia-1659671)
-- **Dólar cae 10% ante el sol, ¿qué figura prominente lo ancla pese a caos político?**: [Link](https://gestion.pe/tu-dinero/dolar-cae-10-ante-el-sol-que-figura-prominente-lo-ancla-pese-a-caos-politico-proyecciones-del-dolar-crisis-politica-bbva-jeri-tipo-de-cambio-en-peru-noticia/)
-
-
-### fonavi (N/A, 18/10/2025 03:28 Lima)
-
-- **Lista 22 del Fonavi será el último cobro del 2025: Se proyecta para fines de diciembre**: [Link](https://www.infobae.com/peru/2025/10/11/ultimo-cobro-del-fonavi-del-2025-lista-22-se-proyecta-a-pagar-en-diciembre/)
-- **Solo con DNI: fonavistas podrán acceder a la devolución de aportes durante octubre de 2025. ¿Cómo acceder si eres beneficiario?**: [Link](https://elpopular.pe/actualidad/2025/10/17/solo-con-dni-fonavistas-podran-acceder-a-la-devolucion-de-aportes-durante-octubre-de-2025-como-acceder-si-eres-beneficiario-1395190)
-- **Fonavi: cómo saber con tu DNI si tienes un pago pendiente que será devuelto en octubre**: [Link](https://larepublica.pe/economia/2025/10/13/fonavi-como-saber-con-tu-dni-si-tienes-un-pago-pendiente-que-sera-devuelto-en-octubre-evat-233792)
-
-
-### tigres - necaxa (N/A, 17/10/2025 23:26 Lima)
-
-- **Liga MX: Tigres vs. Necaxa sufre retraso por tráfico en Monterrey**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/15827531/tigres-vs-necaxa-retraso-trafico-monterrey-liga-mx-2025)
-- **Jornada 13 Apertura 2025: Gignac se desafía a sí mismo; Anthony Martial, a despertar ante Pumas**: [Link](https://www.si.com/mx/liga-mx/jornada-13-apertura-2025-gignac-desafia-si-mismo-anthony-martial-despertar-pumas)
-- **Gol de Díber Cambindo: Tigres 0 - 1 Necaxa | Jornada 13 | Liga BBVA MX | Apertura 2025**: [Link](https://www.tvazteca.com/aztecadeportes/gol-diber-cambindo-tigres-0-1-necaxa-jornada-13-liga-bbva-mx-apertura-2025)
-
-
-### atl. san luis - atlas (N/A, 17/10/2025 23:26 Lima)
-
-- **Pronóstico Atlético San Luis vs Atlas jornada 13 Liga MX Apertura 2025**: [Link](https://www.sportytrader.com/es/pronosticos/san-luis-atlas-297215/)
-- **Liga MX: Atl. de San Luis quiere volver a ganar ante Atlas**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-atl-de-san-luis-quiere-volver-a-ganar-ante-atlas-noticia-1659695)
-- **Plan "Estadio Seguro" implementará 800 efectivos en partido Atlético de San Luis vs Atlas**: [Link](https://elheraldoslp.com.mx/new/2025/10/17/plan-estadio-seguro-implementara-800-efectivos-en-partido-atletico-de-san-luis-vs-atlas/)
-
-
-### karol g (N/A, 17/10/2025 23:26 Lima)
-
-- **Victoria’s Secret Fashion Show 2025 Pink Carpet Arrivals, Live Updates**: [Link](https://wwd.com/fashion-news/fashion-scoops/gallery/victorias-secret-fashion-show-2025-arrivals-photos-1238304144/)
-- **Karol G's Victoria's Secret Fashion Show 2025 Performance Look Explored "A Different Kind of Sensuality"**: [Link](https://www.inkl.com/news/karol-g-s-victoria-s-secret-fashion-show-2025-performance-look-explored-a-different-kind-of-sensuality)
-- **Karol G Is ‘Serving That Latina Vibe’ in Red Lace Catsuit, Fans Say**: [Link](https://www.yahoo.com/entertainment/celebrity/articles/karol-g-serving-latina-vibe-230501714.html)
 
 
