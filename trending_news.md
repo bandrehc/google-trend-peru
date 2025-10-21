@@ -1,3 +1,24 @@
+### pafos fc (N/A, 21/10/2025 03:34 Lima)
+
+- **Preview:Kairat vs Pafos - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/kairat/preview/kairat-vs-pafos-prediction-team-news-lineups_583878.html)
+- **Kairat Almaty v Paphos Best Bet Preview**: [Link](https://andysbetclub.co.uk/predictions/kairat-almaty-v-pafos-best-bet-preview/)
+- **Kairat Almaty vs Pafos FC Prediction and Betting Tips | October 21st 2025**: [Link](https://www.sportskeeda.com/football/kairat-almaty-vs-pafos-fc-prediction-betting-tips-october-21st-2025)
+
+
+### olympiacos (N/A, 21/10/2025 03:34 Lima)
+
+- **Barcelona vs. Olimpiacos por Champions League: horario, canal de transmisión y cómo ver**: [Link](https://elcomercio.pe/deporte-total/champions-league/barcelona-vs-olimpiacos-en-vivo-online-gratis-por-champions-league-a-que-hora-juegan-canal-tv-y-donde-ver-por-internet-via-movistar-espn-disney-plus-tnt-sports-max-movistar-video-noticia/)
+- **Champions League: Olympiacos se enfrentará a Barcelona por la fecha 3**: [Link](https://rpp.pe/futbol/ligas-internacionales/champions-league-olympiacos-se-enfrentara-a-barcelona-por-la-fecha-3-noticia-1660079)
+- **FC Barcelona — Olympiacos EN VIVO: a qué hora juega, qué canal transmite y dónde ver en directo por Champions League 2025 en USA y México**: [Link](https://gestion.pe/mix/sports/fc-barcelona-olympiacos-en-vivo-a-que-hora-juega-que-canal-transmite-y-donde-ver-en-directo-por-champions-league-2025-en-usa-y-mexico-nnda-nnse-noticia/)
+
+
+### universitario vs cristal (N/A, 21/10/2025 03:34 Lima)
+
+- **Jesús Castillo se perderá el clásico con Universitario vs. Sporting Cristal**: [Link](https://www.espn.com.ar/futbol/peru/nota/_/id/15842879/universitario-ausencia-de-castillo-vs-sporting-cristal-liga-1-de-peru)
+- **Se pierde el partido contra Cristal: Andy Polo fue expulsado en el Universitario vs Ayacucho F.C. | VIDEO**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/expulsion-de-andy-polo-hoy-en-el-universitario-vs-ayacucho-por-liga-1-video-noticia/)
+- **Universitario y las dos duras bajas que tendrá ante Cristal**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/universitario-y-dos-sensibles-bajas-que-tendra-ante-cristal-n451421)
+
+
 ### melanie martinez (N/A, 20/10/2025 23:28 Lima)
 
 - **Hija de Cristian Domínguez revela que el cantante le aseguró que no volvería con Karla Tarazona**: [Link](https://elcomercio.pe/tvmas/farandula/hija-de-cristian-dominguez-revela-que-el-cantante-le-aseguro-que-no-volveria-con-karla-tarazona-ultimas-noticia/)
@@ -1002,26 +1023,5 @@ Sin noticias relacionadas disponibles.
 - **Till Lindemann (Rammstein): Autogrammstunde mit Joey Kelly wird verlegt**: [Link](https://sonic-seducer.de/till-lindemann-rammstein-autogrammstunde-mit-joey-kelly-wird-verlegt/)
 - **Till Lindemann verändert Ort seiner Autogrammstunde: „Anfeindungen, Einschüchterungsversuche, Drohungen“**: [Link](https://www.berliner-zeitung.de/kultur-vergnuegen/musik/till-lindemann-veraendert-ort-seiner-autogrammstunde-anfeindungen-einschuechterungsversuche-drohungen-li.10001420)
 - **Till Lindemann will mit seinen Fans unbedingt auf Tuchfühlung gehen**: [Link](https://www.rollingstone.de/till-lindemann-meet-and-greet-meine-welt-3066621/)
-
-
-### justin bieber (N/A, 17/10/2025 23:26 Lima)
-
-- **Justin Bieber Wows Crowd With Deep Three-Pointers In Basketball Game**: [Link](https://www.tmz.com/2025/10/17/justin-bieber-basketball-the-league/)
-- **Hot Pics — See What Your Fave Celebs Are Up To This Fall!**: [Link](https://okmagazine.com/p/hot-pics-okmagazine-october-fall-2025/)
-- **Justin Bieber Shows Off Muscles and Array of Tattoos in SKYLRK Jersey During Basketball Game**: [Link](https://www.yahoo.com/entertainment/celebrity/articles/justin-bieber-shows-off-muscles-195705712.html)
-
-
-### boyacá chicó - santa fe (N/A, 17/10/2025 23:26 Lima)
-
-- **Santa Fe empató con el penúltimo y enredó su paso a los cuadrangulares**: [Link](https://espndeportes.espn.com/futbol/colombia/nota/_/id/15822667/chico-vs-santa-fe-empato-complica-clasificacion-cuadrangulares)
-- **Santa Fe inicia gira de visitante por los puntos para seguir en los 8**: [Link](https://www.espn.com.ar/futbol/colombia/nota/_/id/15822667/chico-vs-santa-fe-fecha-16-eliminatoria-equipo-fecha-hora-y-tv-en-vivo)
-- **Santa Fe estuvo cerca de marcar un golazo ante Boyacá Chicó**: [Link](https://www.winsports.co/futbol-colombiano/noticias/santa-fe-estuvo-cerca-de-marcar-un-golazo-ante-boyaca-chico-387284)
-
-
-### puebla - tijuana (N/A, 17/10/2025 20:44 Lima)
-
-- **Pronóstico Puebla Tijuana - Liga MX 17/10/25**: [Link](https://www.sportytrader.com/es/pronosticos/puebla-tijuana-297531/)
-- **Apertura 2025: La franja enfrenta a la jauría**: [Link](https://www.informador.mx/deportes/Apertura-2025-La-franja-enfrenta-a-la-jauria-20251017-0020.html)
-- **Busca Puebla salir de crisis y triunfar ante Xolos**: [Link](https://cronicapuebla.com/deportes/busca-puebla-salir-de-crisis-y-triunfar-ante-xolos)
 
 
