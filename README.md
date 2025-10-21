@@ -1,3 +1,66 @@
+### melanie martinez (N/A, 20/10/2025 23:28 Lima)
+
+- **Hija de Cristian Domínguez revela que el cantante le aseguró que no volvería con Karla Tarazona**: [Link](https://elcomercio.pe/tvmas/farandula/hija-de-cristian-dominguez-revela-que-el-cantante-le-aseguro-que-no-volveria-con-karla-tarazona-ultimas-noticia/)
+- **Christian Domínguez ante críticas de su hija mayor: "Si es necesario buscaré ayuda profesional"**: [Link](https://peru21.pe/espectaculos/christian-dominguez-ante-criticas-de-su-hija-mayor-karla-tarazona/)
+- **Mamá de Camila Domínguez ROMPE SU SILENCIO y se pronuncia por POLÉMICA con Christian Domínguez: "Mi hija no miente"**: [Link](https://elpopular.pe/espectaculos/2025/10/20/mama-de-camila-dominguez-rompe-su-silencio-y-se-pronuncia-por-polemica-con-christian-dominguez-mi-hija-no-miente-458980)
+
+
+### arsenal vs. olympiacos (N/A, 20/10/2025 23:28 Lima)
+
+- **Champions League Matchday 3 possible line-ups and team news**: [Link](https://www.uefa.com/uefachampionsleague/news/029e-1f0111b71c24-4c3aebb69ea2-1000--champions-league-matchday-3-possible-line-ups-and-team-news/)
+- **UCL Matchday 3 Best Bets: Five High-Value Goal Scorer Picks**: [Link](https://www.sportytrader.com/us/news/ucl-goal-scorer-picks-matchday-3-2025/)
+- **Footy Fix: Barcelona, Arsenal, Manchester City headline Champions League action on Paramount+ and CBS Sports**: [Link](https://www.newsbreak.com/cbs-sports-1740733/4302747615449-footy-fix-barcelona-arsenal-manchester-city-headline-champions-league-action-on-paramount-and-cbs-sports)
+
+
+### fixture liga 1 (N/A, 20/10/2025 23:28 Lima)
+
+- **Última localía de Universitario en Torneo Clausura: Liga 1 anunció programación de fecha 18**: [Link](https://depor.com/futbol-peruano/descentralizado/programacion-fecha-18-torneo-clausura-2025-en-liga-1-cuando-juega-universitario-vs-deportivo-garcilaso-sporting-cristal-alianza-lima-noticia/)
+- **Liga 1 podría hacer importante cambio en el Universitario vs. Garcilaso por amistosos de Perú**: [Link](https://www.eldiez.com.pe/liga-1/liga-1-podria-cambiar-de-fecha-el-universitario-de-deportes-vs-deportivo-garcilaso-por-amistosos-de-la-seleccion-peruana-noticia/)
+- **Partido de Universitario puede sufrir cambio de día y hora por esta poderosa razón**: [Link](https://libero.pe/futbol-peruano/universitario/2025/10/18/partido-de-universitario-puede-sufrir-cambio-de-dia-hora-poderosa-razon-1672182)
+
+
+### adt vs universitario (N/A, 20/10/2025 23:28 Lima)
+
+- **Así se jugará la fecha 16 del Clausura de la Liga 1 2025**: [Link](https://www.espn.com.ar/futbol/peru/nota/_/id/15842907/programacion-de-la-fecha-16-del-clausura-liga-1-de-peru)
+- **Así se jugará la jornada 16 del Torneo Clausura**: [Link](https://ovacion.pe/noticias/liga1-te-apuesto-2025/asi-se-jugara-jornada-16-del-torneo-clausura)
+- **Así se jugará la fecha 16 del Torneo Clausura de la Liga 1**: [Link](https://www.futbolperuano.com/liga-1/noticias/liga-1-como-se-jugara-la-fecha-16-del-torneo-clausura-de-la-primera-division-544220)
+
+
+### qué pasó con amazon hoy (N/A, 20/10/2025 23:28 Lima)
+
+- **Resumen de la caída global de Amazon, Fortnite, Facebook, Roblox y más**: [Link](https://cnnespanol.cnn.com/economia/live-news/fallos-amazon-web-service-snapchat-facebook-fortnite-trax)
+- **Una falla global en la nube de Amazon genera problemas a cientos de aplicaciones de empresas como Snapchat, Zoom y varios bancos**: [Link](https://www.bbc.com/mundo/articles/cly941r41w4o)
+- **Un apagón en los servicios web de Amazon deja inactivas a las apps y plataformas más importantes en todo el mundo**: [Link](https://www.clarin.com/mundo/apagon-servicios-web-amazon-deja-inactivas-apps-plataformas-importantes_0_varHMlo8XP.html)
+
+
+### liam gallagher (N/A, 20/10/2025 23:28 Lima)
+
+- **Yo Soy 2025: imitador de Liam Gallagher sorprende al jurado tras llegar por sexta vez al casting**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-2025-imitador-de-liam-gallagher-sorprende-al-jurado-tras-llegar-por-sexta-vez-al-casting_20251020/)
+- **Oasis reveal huge update as Bonehead's replacement confirmed**: [Link](https://www.mirror.co.uk/3am/celebrity-news/breaking-oasis-reveal-huge-update-36102828)
+- **Oasis issue update on Bonehead replacement**: [Link](https://www.facebook.com/ManchesterEveningNews/photos/oasis-issue-update-on-bonehead-replacement/1271892941639735/)
+
+
+### monaco (N/A, 20/10/2025 23:28 Lima)
+
+- **Charlène de Monaco divine et ultra chic dans un look oversize, la nouvelle tendance de l’automne**: [Link](https://www.purepeople.com/article/charlene-de-monaco-divine-et-ultra-chic-dans-un-look-oversize-la-nouvelle-tendance-de-l-automne_a543767/1)
+- **La Princesse Charlène honore Mireille Calmes, pionnière de l'inclusion sportive des personnes en situation de handicap**: [Link](https://www.monaco-tribune.com/2025/10/la-princesse-charlene-honore-mireille-calmes-pionniere-de-linclusion-sportive-des-personnes-en-situation-de-handicap/)
+- **Inauguration princière du siège rénové de la SMEG**: [Link](https://lagazettedemonaco.com/actualites/societe/inauguration-princiere-du-siege-renove-de-la-smeg)
+
+
+### alejandro landero (N/A, 20/10/2025 23:28 Lima)
+
+- **Famoso actor de Televisa es encontrado viviendo en la calle junto a sus mascotas: vecinos piden ayuda**: [Link](https://rpp.pe/famosos/celebridades/alejandro-landero-actor-de-rosa-salvaje-es-encontrado-viviendo-en-las-calles-de-mexico-junto-a-sus-mascotas-noticia-1660186)
+- **Actor de Rosa Salvaje vive en situación de calle: se niega a abandonar a sus mascotas**: [Link](https://www.univision.com/famosos/alejandro-landero-actor-rosa-salvaje-situacion-calle)
+- **Exestrella de Televisa es captada en situación de calle en CDMX**: [Link](https://onefootball.com/fr/news/exestrella-de-televisa-es-captada-en-situacion-de-calle-en-cdmx-41833275)
+
+
+### sabrina carpenter (N/A, 20/10/2025 23:28 Lima)
+
+- **Sabrina Carpenter drops the F-bomb — twice — during live ‘SNL’ performance**: [Link](https://nypost.com/2025/10/19/entertainment/sabrina-carpenter-drops-f-bomb-twice-during-snl-performance/)
+- **On ‘Saturday Night Live,’ a Milestone for Domingo**: [Link](https://www.nytimes.com/2025/10/19/arts/television/snl-sabrina-carpenter-trump-george-santos.html)
+- **‘SNL’s Domingo Sketch Just Earned A Historically Dubious Distinction From Fans**: [Link](https://www.cracked.com/article_48826_snls-domingo-sketch-just-earned-a-historically-dubious-distinction-from-fans.html)
+
+
 ### temblor hoy (N/A, 20/10/2025 20:52 Lima)
 
 - **Tacna: un sismo de magnitud 4.1 se sintió esta tarde en Ilabaya**: [Link](https://rpp.pe/peru/tacna/tacna-un-sismo-de-magnitud-41-se-sintio-esta-tarde-en-ilabaya-noticia-1659961)
@@ -960,64 +1023,5 @@ Sin noticias relacionadas disponibles.
 - **Pronóstico Puebla Tijuana - Liga MX 17/10/25**: [Link](https://www.sportytrader.com/es/pronosticos/puebla-tijuana-297531/)
 - **Apertura 2025: La franja enfrenta a la jauría**: [Link](https://www.informador.mx/deportes/Apertura-2025-La-franja-enfrenta-a-la-jauria-20251017-0020.html)
 - **Busca Puebla salir de crisis y triunfar ante Xolos**: [Link](https://cronicapuebla.com/deportes/busca-puebla-salir-de-crisis-y-triunfar-ante-xolos)
-
-
-### lanus vs godoy cruz (N/A, 17/10/2025 20:44 Lima)
-
-- **Lanús vs Godoy Cruz Stats & Insights**: [Link](https://www.betshoot.com/football/19362282-Lan%C3%BAs-vs-Godoy-Cruz-prediction/)
-
-
-### serie a de ecuador (N/A, 17/10/2025 20:44 Lima)
-
-- **Delfín vs Macará, por la LigaPro: día, hora y cómo verlo por TV**: [Link](https://www.ole.com.ar/ecuador/liga-pro/delfin-macara-liga-pro-horario-dia-ver-cetaceo-ambato-calendario-futbol-ecuatoriano_0_Vp4V814u8u.html)
-- **Delfin SC vs Macará: pronósticos, cuotas, transmisión y datos para apostar!**: [Link](https://www.apwin.com/es/pronosticos/delfin-sc-vs-macara-pronostico-liga-pro-19-10-2025/)
-- **Delfín vs. Macará, EN VIVO: dónde ver por TV y ONLINE**: [Link](https://www.tycsports.com/ecuador/futbol-de-ecuador/delfin-vs-macara-en-vivo-donde-ver-por-tv-y-online-id693048.html)
-
-
-### unión magdalena - envigado (N/A, 17/10/2025 20:44 Lima)
-
-- **Pronóstico Unión Magdalena Santa Marta Envigado FC - Liga Postobon 17/10/25**: [Link](https://www.sportytrader.com/es/pronosticos/union-magdalena-santa-marta-envigado-fc-297649/)
-- **¡Día clave para descender o seguir exhalando vida en la A! Unión recibe a Envigado con la obligación de ganarle**: [Link](https://impactonews.co/dia-clave-para-descender-o-seguir-exhalando-vida-en-la-a-union-recibe-a-envigado-con-la-obligacion-de-ganarle/)
-- **Unión - Envigado en vivo online: Liga BetPlay, en directo**: [Link](https://colombia.as.com/futbol/union-envigado-en-vivo-online-liga-betplay-en-directo-f202510-n/)
-
-
-### ldu vs (N/A, 17/10/2025 20:44 Lima)
-
-- **Liga de Quito e Independiente del Valle al tanto: definidos los árbitros para las primeras semifinales por Libertadores y Sudamericana**: [Link](https://www.espn.com.ar/futbol/copa-libertadores/nota/_/id/15826633/liga-de-quito-independiente-del-valle-arbitros-semifinales-libertadores-y-sudamericana)
-- **Los árbitros para la ida**: [Link](https://www.conmebol.com/noticias/los-arbitros-para-la-ida/)
-- **Racing y Lanús conocen los árbitros para la ida de las semifinales de Libertadores y Sudamericana 2025**: [Link](https://espndeportes.espn.com/futbol/copa-libertadores/nota/_/id/15826056/racing-lanus-arbitros-semifinales-libertadores-sudamericana-2025)
-
-
-### ldu quito - barcelona sc (N/A, 17/10/2025 20:44 Lima)
-
-- **VER El Canal del Fútbol EN VIVO: Liga de Quito-Barcelona SC GRATIS**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/el-canal-del-futbol-hoy-en-vivo-futbol-libre-tv-liga-de-quito-vs-barcelona-sc-hoy-gratis-via-teleamazonas-por-hexagonal-de-liga-pro-video-noticia/)
-- **Liga de Quito vs Barcelona EN VIVO: hora, canal y dónde ver transmisión del partido**: [Link](https://libero.pe/futbol-internacional/2025/10/17/liga-de-quito-vs-barcelona-en-vivo-hoy-fecha-2-del-hexagonal-ligapro-ecuador-2025-via-canal-del-futbol-zapping-tv-1340433)
-- **Pronóstico LDU Quito - Barcelona SC. Liga Pro | 18/10/2025**: [Link](https://gainblers.com/pe/pronosticos/futbol/ecuador/liga-pro/pronostico-ldu-quito-barcelona-sc-18-10-2025/)
-
-
-### lanus (N/A, 17/10/2025 20:44 Lima)
-
-- **La anécdota de Izquierdoz con Russo: "Miguel es el fútbol, estar en un vestuario, saber manejar situaciones"**: [Link](https://www.espn.com.ar/futbol/argentina/nota/_/id/15822351/cali-izquierdoz-lanus-miguel-angel-russo-futbol-boca)
-- **Boca Juniors: cenizas de Miguel Ángel Russo fueron esparcidas en La Bombonera**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/boca-juniors-cenizas-de-miguel-angel-russo-fueron-esparcidas-en-la-bombonera-noticia/)
-- **Tal como lo había pedido, los restos de Miguel Ángel Russo ya descansan en La Bombonera**: [Link](https://espndeportes.espn.com/futbol/argentina/nota/_/id/15820507/las-cenizas-de-miguel-angel-russo-boca-la-bombonera-leandro-paredes)
-
-
-### argentinos jrs. - newell's (N/A, 17/10/2025 20:44 Lima)
-
-- **Argentinos recibe a Newell's en la fecha 13 del Torneo Clausura**: [Link](https://espndeportes.espn.com/futbol/argentina/nota/_/id/15815371/argentinos-vs-newells-old-boys-fecha-13-torneo-clausura-equipo-fecha-hora-y-tv-en-vivo)
-- **San Martín de San Juan vs Independiente: estadísticas previas y datos en directo | Liga Profesional Argentina 2025**: [Link](https://as.com/resultados/futbol/argentina/2025/directo/regular_a_13_516747/)
-- **Argentinos vs Newell`s por la fecha 13 de Liga Profesional EN VIVO. Seguilo minuto a minuto por la web de TN.**: [Link](https://tn.com.ar/deportes/futbol/2025/10/17/argentinos-vs-newells-en-vivo-por-la-fecha-13-de-la-liga-profesional-hora-donde-ver-y-formaciones/)
-
-
-### independiente medellin vs (N/A, 17/10/2025 20:44 Lima)
-
-Sin noticias relacionadas disponibles.
-
-
-### lanús - godoy cruz (N/A, 17/10/2025 20:44 Lima)
-
-- **Lanús recibe a Godoy Cruz por la fecha 13 del Torneo Clausura**: [Link](https://www.ole.com.ar/lanus/lanus-recibe-godoy-cruz-clausura_0_LzL9d7rRcX.html)
-- **Los últimos antecedentes en La Fortaleza**: [Link](https://www.vavel.com/ar/futbol-argentino/2025/10/16/godoy-cruz/1237797-los-ultimos-antecedentes-en-la-fortaleza.html)
-- **Ver EN VIVO Argentinos Juniors vs. Newell`s: dónde seguir por TV y ONLINE en streaming**: [Link](https://www.tycsports.com/liga-profesional-de-futbol/argentinos-juniors-vs-newells-en-vivo-donde-ver-por-tv-y-online-id692782.html)
 
 
