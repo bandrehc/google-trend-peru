@@ -1,3 +1,73 @@
+### paris (N/A, 21/10/2025 15:27 Lima)
+
+- **Novak Djokovic déclare forfait pour le Rolex Paris Masters, Benjamin Bonzi le remplace**: [Link](https://www.lequipe.fr/Tennis/Actualites/Novak-djokovic-declare-forfait-pour-le-rolex-paris-masters-benjamin-bonzi-le-remplace/1603565)
+- **Tennis : une fois de plus pas de Novak Djokovic au Masters 1000 de Paris, Valentin Vacherot, le vainqueur à Shanghai sera bien là**: [Link](https://www.ladepeche.fr/2025/10/21/tennis-une-fois-de-plus-pas-de-novak-djokovic-au-masters-1000-de-paris-valentin-vacherot-le-vainqueur-a-shanghai-sera-bien-la-13006532.php)
+- **Masters de Paris. Forfait, Novak Djokovic boude le tournoi pour la deuxième année d’affilée .**: [Link](https://angers.maville.com/sport/detail_-masters-de-paris.-forfait-novak-djokovic-boude-le-tournoi-pour-la-deuxieme-annee-d-affilee-_-7030978_actu.Htm)
+
+
+### napoli (N/A, 21/10/2025 15:27 Lima)
+
+- **PSV, esempio di disciplina di Bosz: Dest si presenta tardi al raduno e finisce in panchina**: [Link](https://gianlucadimarzio.com/psv-dest-bosz-napoli-champions-league-2025/)
+- **Idea De Bruyne falso nueve? Conte ci pensa ma dipende anche da un altro calciatore.**: [Link](https://www.virgilio.it/italia/napoli/notizielocali/idea_de_bruyne_falso_nueve_conte_ci_pensa_ma_dipende_anche_da_un_altro_calciatore_-75905897.html)
+- **PSV-Napoli, Conte a Sky: ''Per Lucca è una grande opportunità, sta cercando di alzare il livello!''**: [Link](https://www.napolicalcionews.it/news-calcio-napoli/PSV-Napoli--Conte-a-Sky---Per-Lucca-e-una-grande-opportunita--sta-cercando-di-alzare-il-livello---143501.aspx)
+
+
+### arsenal football club (N/A, 21/10/2025 15:27 Lima)
+
+- **Arsenal news: Gunners' defence could break Premier League record**: [Link](https://www.bbc.co.uk/sport/football/articles/c8dr9r69jrvo)
+- **The secrets of how no-nonsense Gabriel Heinze is making Arsenal's record-breaking defence even stronger**: [Link](https://www.dailymail.co.uk/sport/football/article-15209741/Gabriel-Heinze-Arsenal-defence-Mikel-Arteta.html)
+- **Arsenal’s defence so good they are on course to equal Chelsea’s record**: [Link](https://www.telegraph.co.uk/football/2025/10/21/arsenal-defence-match-chelsea-record-goals-conceded-arteta/)
+
+
+### leverkusen vs (N/A, 21/10/2025 15:27 Lima)
+
+- **BVB startet mit Bellingham in Kopenhagen, Bayer trifft auf den Titelverteidiger**: [Link](https://www.focus.de/sport/fussball/bvb-wiedersehen-mit-moukoko-in-kopenhagen-bayer-trifft-auf-den-titelverteidiger_436f8aa3-2c76-4cb9-8f32-1a848900e8f5.html)
+- **Champions League: Leverkusens gegen "die Besten der Welt"**: [Link](https://www.zdfheute.de/sport/fussball-champions-league-bayer-leverkusen-paris-saint-germain-100.html)
+- **"Vielleicht ist er nur zum Angst machen dabei"**: [Link](https://www.sport1.de/news/fussball/champions-league/2025/10/vielleicht-ist-er-nur-zum-angst-machen-dabei)
+
+
+### napoli vs (N/A, 21/10/2025 15:27 Lima)
+
+- **PSV se mide con Napoli en la tercera fecha de la Champions League**: [Link](https://www.espn.com.pe/futbol/champions-league/nota/_/id/15842886/psv-vs-napoli-fecha-3-fase-liga-champions-league-equipo-fecha-hora-tv-en-vivo)
+- **Champions League: PSV y Napoli se miden por la fecha 3**: [Link](https://rpp.pe/futbol/ligas-internacionales/champions-league-psv-y-napoli-se-miden-por-la-fecha-3-noticia-1660097)
+- **PSV vs Napoli: UEFA Champions League stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cwy757jgz9vt)
+
+
+### atletico de madrid (N/A, 21/10/2025 15:27 Lima)
+
+- **▷ A qué hora y por qué canal ver transmisión Arsenal vs. Atlético de Madrid EN VIVO y EN DIRECTO por Champions League**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/a-que-hora-juega-y-que-canal-transmite-arsenal-vs-atletico-madrid-en-vivo-hoy-21-de-octubre-por-champions-league-2025-en-mexico-usa-y-espana-nnda-nnrt-noticia/)
+- **Champions League: Arsenal recibirá a Atlético de Madrid por la fecha 3**: [Link](https://rpp.pe/futbol/ligas-internacionales/champions-league-arsenal-recibira-a-atletico-de-madrid-por-la-fecha-3-noticia-1660094)
+- **Diego Simeone y Julián Álvarez anticiparon la visita de Atlético Madrid ante Arsenal**: [Link](https://www.espn.com.pe/futbol/champions-league/nota/_/id/15841167/diego-simeone-julian-alvarez-anticiparon-atletico-madrid-arsenal-champions-league)
+
+
+### dortmund (N/A, 21/10/2025 15:27 Lima)
+
+- **Hammer unter die Latte: Nmecha eröffnet sehenswert | Match-Clip Champions League | Video**: [Link](https://www.kicker.de/hammer-unter-die-latte-nmecha-eroeffnet-sehenswert-1157783/video)
+- **Die Fakten zum Spiel in Kopenhagen**: [Link](https://www.bvb.de/de/de/aktuelles/news/news.html/2025/10/19/Die-Fakten-zum-Spiel-in-Kopenhagen.html)
+- **Niko Kovac findet das neue Format der Champions League interessant: Der BVB-Trainer nennt, was ihm daran gefällt**: [Link](https://tribuna.com/de/news/2025-10-21-niko-kovac-findet-das-neue-format-der-champions-league-interessant-der-bvbtrainer-nennt-w/)
+
+
+### manchester city (N/A, 21/10/2025 15:27 Lima)
+
+- **Preview:Villarreal vs Man City - prediction, team news**: [Link](https://www.sportsmole.co.uk/football/man-city/champions-league/preview/villarreal-vs-man-city-prediction-team-news-lineups_583888.html)
+- **Villareal v Manchester City: Gut Feelings**: [Link](https://bitterandblue.sbnation.com/manchester-city-blue-takes-bitter-and-blue/35801/villareal-v-manchester-city-gut-feelings)
+- **Preview: Manchester City visit the Yellow Submarine**: [Link](https://www.fotmob.com/topnews/23474-preview-manchester-city-visit-yellow-submarine?utm_source=fotmob)
+
+
+### dortmund vs (N/A, 21/10/2025 15:27 Lima)
+
+- **FC Bayern: "Mussten leiden"! Was war los in der 2. Halbzeit?**: [Link](https://miasanrot.de/fc-bayern-bvb-borussia-dortmund-taktik-analyse/)
+- **Ein Titel geht Jahr um Jahr an den BVB und der FC Bayern schaut zu**: [Link](https://www.wetterauer-zeitung.de/sport/fussball/an-den-bvb-und-der-fc-bayern-schaut-zu-ein-titel-geht-jahr-um-jahr-zr-93987286.html)
+- **Upamecano-Vertragspoker erhitzt die Bayern-Gemüter**: [Link](https://www.merkur.de/sport/fc-bayern/upamecano-vertragspoker-erhitzt-die-gemueter-fc-bayern-zr-93992068.html)
+
+
+### city vs (N/A, 21/10/2025 15:27 Lima)
+
+- **Leicester City team news v Hull as Jordan Ayew and Patson Daka start amid four changes**: [Link](https://www.leicestermercury.co.uk/sport/football/football-news/leicester-city-team-news-v-10589558)
+- **Football Bet of the Day: Follow The Tigers for goals on Tuesday**: [Link](https://mrfixitstips.co.uk/football-bet-of-the-day-follow-the-tigers-for-goals-on-tuesday/)
+- **Championship Tips for Midweek: Back goals when Leicester visit the MKM**: [Link](https://betting.betfair.com/football/championship/championship-tips-and-predictions-for-tuesday-and-wednesday-191025-904.html)
+
+
 ### al hilal (N/A, 21/10/2025 11:30 Lima)
 
 - **Leonardo and Nunez on target as Hilal thrash Ettifaq 5-0**: [Link](https://www.arabnews.com/node/2619368/sport)
@@ -955,73 +1025,5 @@ Sin noticias relacionadas disponibles.
 - **Barça and Girona express support for victims of Storm Alice in Terres de l'Ebre**: [Link](https://www.fcbarcelona.com/en/club/news/4384097/barca-and-girona-express-support-for-victims-of-storm-alice-in-terres-de-lebre)
 - **▷ ESPN EN VIVO GRATIS — dónde puedes ver FC Barcelona vs. Girona por TV y Online**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/espn-en-vivo-gratis-ver-partido-fc-barcelona-vs-girona-en-directo-por-laliga-2025-2026-via-futbol-tv-nnda-nnse-noticia/)
 - **LaLiga EA Sports: Barcelona enfrenta a Girona para subirse a la cima**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-barcelona-enfrenta-a-girona-para-subirse-a-la-cima-noticia-1659745)
-
-
-### torino vs (N/A, 18/10/2025 11:26 Lima)
-
-- **Preview: Torino vs Napoli - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/torino/preview/torino-vs-napoli-prediction-team-news-lineups_583678.html)
-- **David Neres: A Chance to Shine**: [Link](https://www.ilmattino.it/en/david_neres_a_chance_to_shine-9130629.html)
-- **Football, Conte ahead of Torino-Napoli: “Buongiorno and Politano recovered”**: [Link](https://lapresse.us/sports/2025/10/17/football-conte-ahead-of-torino-napoli-buongiorno-and-politano-recovered/)
-
-
-### bayern - dortmund (N/A, 18/10/2025 11:26 Lima)
-
-- **Alle Highlights, Tore, Videos und Fotos: Verfolge den Der-Klassiker-Liveticker von Tribuna.com direkt aus der Allianz Arena**: [Link](https://tribuna.com/de/blogs/alle-highlights-tore-videos-und-fotos-verfolge-den-derklassi/)
-- **FC Bayern - BVB: Die offiziellen Aufstellungen**: [Link](https://www.dazn.com/de-DE/news/fussball/fc-bayern-bvb-die-offiziellen-aufstellungen-borussia-dortmund-bundesliga/21lsw639c9m21rtsoogw1a0g2)
-- **Fußball-Bundesliga: Bayern ohne Gnabry in den Bundesliga-Gipfel**: [Link](https://www.zeit.de/news/2025-10/18/bayern-ohne-gnabry-in-den-bundesliga-gipfel)
-
-
-### fulham - arsenal (N/A, 18/10/2025 11:26 Lima)
-
-- **Confirmed Arsenal team to face Fulham – Zubimendi replaces Odegaard**: [Link](https://www.justarsenal.com/confirmed-arsenal-team-to-face-fulham-zubimendi-replaces-odegaard/402194)
-- **Arsenal’s Injury Issues Laughed Off by Fulham Manager Marco Silva**: [Link](https://www.fotmob.com/embed/news/01k7ve6h6f4h/arsenals-injury-issues-laughed-off-fulham-manager-marco-silva)
-- **Fulham v Arsenal Predicted Starting Lineups for Premier League Match Amid Odegaard Update**: [Link](https://www.givemesport.com/fulham-arsenal-starting-lineups-premier-league-match-2025-26/)
-
-
-### villarreal - real betis (N/A, 18/10/2025 11:26 Lima)
-
-- **Villarreal - Betis | Pellegrini 'amenaza' el gran día de Marcelino: previa, análisis, pronóstico y predicción**: [Link](https://www.marca.com/futbol/primera-division/2025/10/18/villarreal-betis-pellegrini-amenaza-gran-dia-marcelino-previa-analisis-pronostico-prediccion.html)
-- **LaLiga EA Sports: Villarreal quiere vencer y quitarle la racha positiva a Betis**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-villarreal-quiere-vencer-y-quitarle-la-racha-positiva-a-betis-noticia-1659758)
-- **La Champions de los ‘mortales’**: [Link](https://as.com/futbol/primera/la-champions-de-los-mortales-f202510-n/)
-
-
-### eli junior kroupi (N/A, 18/10/2025 11:26 Lima)
-
-- **Eli Junior Kroupi is the real deal: Why the teenager could be Bournemouth's first £80m player**: [Link](https://www.fourfourtwo.com/news/eli-junior-kroupi-is-the-real-deal-why-the-teenager-could-be-bournemouths-first-gbp80m-player)
-
-
-### torino - napoli (N/A, 18/10/2025 11:26 Lima)
-
-- **LIVE Alle 18 Torino-Napoli, le ufficiali: Baroni con Simeone e Adams, Hojlund e McTominay ko**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Torino/18-10-2025/torino-napoli-live-diretta-serie-a.shtml)
-- **A Dazn: «Siamo ottimisti, il nostro principio di gioco è l'aggressione. Non è giusto parlare di Baroni o della società, dobbiamo crescere tutti insieme»**: [Link](https://www.facebook.com/story.php?story_fbid=1328890799249572&id=100063859936263)
-- **Hojlund e Lukaku infortunati, chi è l'alternativa a Lucca come punta del Napoli? Solo 15 minuti fin qui**: [Link](https://www.goal.com/it/liste/hojlund-e-lukaku-infortunati-chi-e-l-alternativa-a-lucca-come-punta-del-napoli-solo-15-minuti-fin-qui/blt74d8c9bafd6b95d4)
-
-
-### solicitud retiro afp (N/A, 18/10/2025 07:43 Lima)
-
-- **Retiro AFP 2025: Cada administradora activará ‘link’ para hacer la solicitud desde el 21 de octubre**: [Link](https://www.infobae.com/peru/2025/10/13/retiro-afp-2025-solicitud-se-hara-via-link-oficial-de-cada-administradora-desde-este-martes-21-de-octubre/)
-- **¡Retiro de AFP hasta 4 UIT! Conoce la nueva ley del Congreso 👏**: [Link](https://comunicaciones.congreso.gob.pe/tv-congreso/retiro-de-afp-hasta-4-uit-conoce-la-nueva-ley-del-congreso-%F0%9F%91%8F/)
-- **Solo por pensión de alimentos los fondos de la AFP pueden ser embargados hasta en 30%**: [Link](https://rpp.pe/lima/actualidad/solo-por-pension-de-alimentos-los-fondos-de-la-afp-pueden-ser-embargados-hasta-en-30-noticia-1659125)
-
-
-### miss grand international 2025 (N/A, 18/10/2025 07:43 Lima)
-
-- **Final del Miss Grand Internacional 2025: fecha, hora y dónde ver EN VIVO**: [Link](https://elcomercio.pe/tvmas/television/donde-ver-la-final-del-miss-grand-internacional-2025-en-vivo-via-grand-tv-youtube-a-que-hora-inicia-fecha-y-como-seguir-la-participacion-de-flavia-lopez-tdpe-noticia/)
-- **Miss Grand International 2025: ¿Cómo votar por Flavia López para que ingrese al Top 20 del certamen?**: [Link](https://www.infobae.com/peru/2025/10/09/miss-grand-international-como-votar-por-flavia-lopez-para-que-ingresar-al-top-20-del-certamen/)
-- **Miss Grand International 2025: Todo lo que necesitas saber sobre el evento donde participará Flavia López**: [Link](https://elcomercio.pe/luces/miss-grand-international-2025-todo-lo-que-necesitas-saber-sobre-el-evento-donde-participara-flavia-lopez-noticia/)
-
-
-### hora peru (N/A, 18/10/2025 07:43 Lima)
-
-- **Así fue el desfile Victoria’s Secret 2025: la colombiana Karol G, Twice y hasta una modelo embarazada**: [Link](https://cnnespanol.cnn.com/2025/10/16/entretenimiento/video/victorias-secret-desfile-2025-karol-g-twice-embarazada-showbiz)
-- **Así fue el ‘Victoria’s Secret Fashion Show’: sonó a Colombia con la presentación de Karol G y Valentina Castro debutó junto a los “ángeles”**: [Link](https://www.infobae.com/colombia/2025/10/15/en-vivo-siga-aqui-la-transmision-en-vivo-del-victorias-secret-fashion-show-2025-con-presencia-colombiana/)
-- **¿Cuánto pesan realmente las alas usadas por las modelos en el Victoria’s Secret Fashion Show?**: [Link](https://www.eltiempo.com/cultura/gente/cuanto-pesan-realmente-las-alas-usadas-por-las-modelos-en-el-victoria-s-secret-fashion-show-3500091)
-
-
-### sevilla - r.c.d. mallorca (N/A, 18/10/2025 07:43 Lima)
-
-- **Sevilla - Mallorca en directo | La Liga EA Sports en vivo**: [Link](https://www.marca.com/futbol/laliga-ea-sports/sevilla-mallorca/2025/10/18/01_0101_20251018_179_181-directo.html)
-- **Sevilla vs Mallorca: Apuestas, Pronóstico y Cuotas**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2025/octubre/pronostico-sevilla-vs-mallorca-18-10-25)
-- **Sevilla recibe a Mallorca por la fecha 9 de LaLiga**: [Link](https://www.espn.com.ar/futbol/espana/nota/_/id/15822702/sevilla-vs-mallorca-fecha-9-laliga-alexis-sanchez-fecha-hora-tv-en-vivo)
 
 
