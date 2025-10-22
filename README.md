@@ -1,3 +1,59 @@
+### athletic - qarabağ (N/A, 22/10/2025 11:32 Lima)
+
+- **Preview:Athletic Bilbao vs Qarabag FK - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/athletic-bilbao/champions-league/preview/athletic-bilbao-vs-qarabag-prediction-team-news-lineups_583960.html)
+- **Former player of "Qarabağ" who played against "Atletik": I am also among those who think so.**: [Link](https://medianews.az/en/qarabagin-atletike-qarsi-oynamis-sabiq-futbolcusu)
+- **“Qarabağ”'s match today will be equivalent to a final - Football commentator**: [Link](https://modern.az/en/idman/540031/qarabags-match-today-will-be-equivalent-to-a-final-football-commentator/)
+
+
+### galatasaray - bodø/glimt (N/A, 22/10/2025 11:32 Lima)
+
+- **Preview:Galatasaray vs Bodo/Glimt - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/galatasaray/champions-league/preview/galatasaray-vs-bodoglimt-prediction-team-news-lineups_584003.html)
+- **Discover the Fascinating World of Kök Söktürdü**: [Link](https://emegypt.net/1018599)
+- **Osimhen Poised to Shatter Galatasaray’s European Scoring Record**: [Link](https://www.footballinnigeria.com.ng/football-events-and-tournaments/osimhen-poised-to-shatter-galatasarays-european-scoring-record/)
+
+
+### real madrid vs juventus pronostico (N/A, 22/10/2025 11:32 Lima)
+
+- **Real Madrid - Juventus, en directo: última hora de la Champions League, hoy en vivo**: [Link](https://as.com/futbol/champions/real-madrid-juventus-en-directo-ultima-hora-de-la-champions-league-hoy-en-vivo-f202510-d/)
+- **ESPN hoy gratis, Real Madrid vs. Juventus online por UEFA Champions League**: [Link](https://elcomercio.pe/deporte-total/champions-league/espn-en-vivo-futbol-libre-tv-real-madrid-vs-juventus-online-gratis-via-disney-plus-caliente-tv-amazon-prime-movistar-movistar-liga-de-campeones-por-champions-league-video-noticia/)
+- **Último entrenamiento antes del partido contra la Juventus**: [Link](https://www.realmadrid.com/es-ES/noticias/futbol/primer-equipo/entrenamientos/el-equipo-se-esta-entrenando-21-10-2025)
+
+
+### atletico bilbao (N/A, 22/10/2025 11:32 Lima)
+
+- **Athletic Club vs Getafe: Predictions, Betting odds, Lineups, Preview**: [Link](https://www.bwin.com/en/news/match-preview-athletic-club-getafe-la-liga-gameweek-10/)
+- **Athletic busca su primer triunfo ante un Qarabag que quiere seguir sorprendiendo**: [Link](https://www.espn.com.pe/futbol/champions-league/nota/_/id/15842962/athletic-club-vs-qarabag-fecha-3-fase-liga-champions-league-equipo-fecha-hora-tv-en-vivo)
+- **Champions League: Athletic Bilbao se enfrentará ante Qarabag por la fecha 3**: [Link](https://rpp.pe/futbol/ligas-internacionales/champions-league-athletic-bilbao-se-enfrentara-ante-qarabag-por-la-fecha-3-noticia-1660237)
+
+
+### dni electrónico gratis (N/A, 22/10/2025 11:32 Lima)
+
+- **Trámite de DNI electrónico gratis para este 23 de octubre: conoce dónde y quiénes son los beneficios**: [Link](https://www.infobae.com/peru/2025/10/21/tramite-de-dni-electronico-gratis-para-este-23-de-octubre-conoce-donde-y-quienes-son-los-beneficios/)
+- **Municipalidades TRAMITARÁN DNI ELECTRÓNICO GRATIS: Lista de distritos**: [Link](https://peru21.pe/peru/municipalidades-tramitaran-dni-electronico-gratis-lista-de-distritos/)
+- **Trámite de DNI electrónico GRATUITO para este 27 de octubre: vecinos de San Martín de Porres serán beneficiados**: [Link](https://libero.pe/tiempoextra/2025/10/21/tramite-de-dni-electronico-gratuito-27-de-octubre-vecinos-de-san-martin-de-porres-seran-beneficiados-1037001)
+
+
+### metropolitano (N/A, 22/10/2025 11:32 Lima)
+
+- **Presidente José Jerí participa en juramentación de Renzo Reggiardo como alcalde de Lima**: [Link](https://elperuano.pe/noticia/281354-presidente-jose-jeri-participo-en-juramentacion-de-renzo-reggiardo-como-alcalde-de-lima)
+- **¿Cuál es el futuro de las obras viales en Lima tras salida de López Aliaga? La tarea pendiente de Reggiardo**: [Link](https://elcomercio.pe/lima/cual-es-el-futuro-de-las-obras-viales-en-lima-tras-salida-de-lopez-aliaga-la-tarea-pendiente-de-reggiardo-noticia/)
+- **Consejo Fiscal advierte supuesta deuda millonaria dejada por gestión de Rafael López Aliaga**: [Link](https://panamericana.pe/24horas/locales/456636-consejo-fiscal-advierte-supuesta-deuda-millonaria-dejada-gestion-rafael-lopez-aliaga)
+
+
+### goa - al-nassr (N/A, 22/10/2025 11:32 Lima)
+
+- **FC Goa must weather Al Nassr storm without Ronaldo**: [Link](https://rollingout.com/2025/10/22/fc-goa-must-weather-al-nassr-ronaldo/)
+- **Fans are asking: Will Ronaldo play in the AFC Champions League 2 Match in India?**: [Link](https://ca.sports.yahoo.com/news/fans-asking-ronaldo-play-afc-141000606.html)
+- **Cristiano Ronaldo left at home! Jorge Jesus explains decision to leave in-form Al-Nassr superstar out of AFC Champions League clash with Goa**: [Link](https://www.goal.com/en-sa/lists/cristiano-ronaldo-jorge-jesus-explains-al-nassr-superstar-afc-champions-league-clash-goa/blt0367b8143a185c0c)
+
+
+### solicitud retiro afp (N/A, 22/10/2025 11:32 Lima)
+
+- **Retiro de AFP: Esta es la fecha límite para el depósito según cuando hiciste la solicitud**: [Link](https://www.infobae.com/peru/2025/10/22/retiro-de-afp-esta-es-la-fecha-limite-para-el-deposito-segun-la-fecha-de-solicitud/)
+- **Retiro AFP 2025: el link oficial para registrar tu solicitud de desembolso de hasta 4 UIT de tus fondos**: [Link](https://rpp.pe/economia/economia/retiro-afp-2025-link-oficial-para-registrar-tu-solicitud-y-pasos-para-solicitar-desembolso-4-uit-de-fondos-noticia-1660126)
+- **Segundo día del retiro AFP 2025: revisa el cronograma y portales oficiales para solicitar hasta S/ 21,400**: [Link](https://caretas.pe/home_web/home_principal_secundario/segundo-dia-del-retiro-afp-2025-revisa-el-cronograma-y-portales-oficiales-para-solicitar-hasta-s-21400/)
+
+
 ### hora peru (N/A, 22/10/2025 07:53 Lima)
 
 - **La FPV retrocede y reprograma el debut de Alianza Lima en la Liga Peruana de Vóley 2025/26 permitiendo desarrollo de la Noche Blanquiazul**: [Link](https://www.infobae.com/peru/deportes/2025/10/21/la-fpv-retrocede-y-reprograma-el-debut-de-alianza-lima-en-la-liga-peruana-de-voley-202526-permitiendo-desarrollo-de-la-noche-blanquiazul/)
@@ -966,61 +1022,5 @@ Sin noticias relacionadas disponibles.
 - **Serie A, tifosi del Como in silenzio per 15' contro la partita a Perth**: [Link](https://www.sportmediaset.mediaset.it/calcio/serie-a-tifosi-del-como-in-silenzio-per-15--contro-la-partita-a-perth_104815903-202502k.shtml)
 - **Il caso. La curva dei lariani in rivolta per la sfida col Milan in Australia**: [Link](https://www.ilgiorno.it/sport/il-caso-la-curva-dei-9e46246c)
 - **Serie A in Australia: cosa resta del calcio?**: [Link](https://www.ilprimatonazionale.it/sport/serie-a-in-australia-cosa-resta-del-calcio-304496/)
-
-
-### juventus (N/A, 19/10/2025 07:43 Lima)
-
-- **Serie A: in campo Como-Juventus 1-0 LIVE**: [Link](https://www.ansa.it/sito/notizie/sport/calcio/2025/10/19/serie-a-in-campo-como-juventus-0-0-live_de4ba846-9ad7-4cb0-9e8c-0d9a253d096b.html)
-- **Nico Paz stravince la sfida dei numeri 10 con Yildiz e dà ragione a Platini: i meriti del Como, le colpe della Juventus**: [Link](https://www.calciomercato.com/liste/nico-paz-stravince-la-sfida-dei-numeri-10-con-yildiz-e-da-ragione-a-platini-i-meriti-del-como-le-colpe-della-juventus/blt27c626fe4c4e6c54)
-- **Serie A, Como-Juventus 2-0. Alle 15 Genoa-Parma e Cagliari-Bologna**: [Link](https://tg24.sky.it/sport/2025/10/19/serie-a-partite-oggi-risultati-gol-highlights-video)
-
-
-### precio dolar hoy peru (N/A, 19/10/2025 07:43 Lima)
-
-- **Precio del dólar en Perú: cotización en compra y venta del domingo 19 de octubre**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-2025-a-cuanto-esta-el-dolar-este-domingo-19-de-octubre-tipo-de-cambio-segun-bcrp-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
-- **¿Seguirá cayendo el dólar o se estabilizará? Expertos analizan la tendencia bajista, tras el cierre en S/ 3.38**: [Link](https://rpp.pe/economia/economia/precio-del-dolar-expertos-analizan-factores-de-tendencia-bajista-tras-cierre-de-hoy-en-peru-de-338-soles-noticia-1659671)
-- **Precio del dólar cayó sin parar: Así se cotiza el tipo de cambio hoy 18 de octubre en Perú**: [Link](https://www.infobae.com/peru/2025/10/17/dolar-cotizacion-de-apertura-hoy-17-de-octubre-en-peru/)
-
-
-### como - juventus (N/A, 19/10/2025 07:43 Lima)
-
-- **Como - Juventus, en directo**: [Link](https://as.com/futbol/internacional/como-juventus-en-directo-f202510-n/)
-- **Nico Paz dio una asistencia clave para el gol de Como ante Juventus en la Serie A**: [Link](https://www.espn.com.ar/futbol/italia/nota/_/id/15834214/nico-paz-asistencia-clave-gol-de-como-ante-juventus-en-serie-a)
-- **Como - Juventus en directo | Serie A hoy en vivo**: [Link](https://www.marca.com/futbol/serie-a/como-juventus/2025/10/19/01_0107_20251019_1065_128-directo.html)
-
-
-### clima lima (N/A, 19/10/2025 03:26 Lima)
-
-- **Senamhi, pronóstico del clima HOY en Lima: temperaturas mínimas y máximas para este sábado 18 de octubre de 2025**: [Link](https://www.expreso.com.pe/actualidad/senamhi-pronostico-del-clima-hoy-en-lima-temperaturas-minimas-y-maximas-para-este-sabado-18-de-octubre-de-2025-invierno-verano-otono-primavera-soleado-calor-humedad-neblina-tiempo-noticia/1232114/)
-- **Clima en Lima: temperatura y probabilidad de lluvia para este 17 de octubre**: [Link](https://www.infobae.com/peru/2025/10/17/clima-en-lima-temperatura-y-probabilidad-de-lluvia-para-este-17-de-octubre/)
-- **Clima hoy en Lima, Perú: el pronóstico del tiempo para este domingo 19 octubre de 2025**: [Link](https://www.clarin.com/informacion-general/clima-hoy-lima-peru-pronostico-tiempo-domingo-19-octubre-2025_0_VeSp2RZjyA.html)
-
-
-### tottenham vs (N/A, 19/10/2025 03:26 Lima)
-
-- **'In contention' - Thomas Frank offers most optimistic Tottenham striker injury update yet**: [Link](https://hotspurhq.com/in-contention-thomas-frank-offers-most-optimistic-tottenham-striker-injury-update-yet-01k7ta624zpq)
-- **Are Kolo Muani and Solanke fit for Gameweek 8?**: [Link](https://www.fantasyfootballscout.co.uk/2025/10/17/are-kolo-muani-and-solanke-fit-for-gameweek-8/)
-- **Spurs vs Villa | Every word of Thomas Frank's pre-match press conference**: [Link](https://www.tottenhamhotspur.com/news/2025/october/spurs-vs-villa-every-word-of-thomas-franks-pre-match-press-conference/)
-
-
-### como vs juventus (N/A, 19/10/2025 03:26 Lima)
-
-- **Como vs Juventus: Apuestas, Pronóstico y Cuotas**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/2025/octubre/pronostico-como-vs-juventus-19-10-25)
-- **Yildiz desafía a Nico Paz**: [Link](https://as.com/futbol/internacional/yildiz-desafia-a-nico-paz-f202510-n/)
-- **Serie A: Juventus quiere el liderato del torneo frente a Como 1907**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-juventus-quiere-el-liderato-del-torneo-frente-a-como-1907-noticia-1659883)
-
-
-### yina calderón (N/A, 18/10/2025 23:27 Lima)
-
-- **EN VIVO| ‘Stream Fighters 4′ de Westcol en el Coliseo Medplus: Yina Calderón y Andrea Valdiri protagonizan el combate principal**: [Link](https://www.infobae.com/colombia/2025/10/18/en-vivo-stream-fighters-4-de-westcol-en-el-coliseo-medplus-yina-calderon-y-andrea-valdiri-protagonizan-el-combate-principal/)
-- **🥊 Quién ganó la pelea Yina Calderón vs. Andrea Valdiri EN VIVO AHORA por Stream Fighters 4 — resultados en directo**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/quien-gano-la-pelea-yina-calderon-vs-andrea-valdiri-en-vivo-por-la-estelar-del-stream-fighters-4-resultados-final-en-directo-nnda-nnrt-noticia/)
-- **La creadora de contenido barranquillera no se guardó nada y lanzó una frase que encendió las redes, asegurando que su rival sigue cada detalle de su vida y anticipando un duelo lleno de tensión**: [Link](https://www.facebook.com/infobaecolombia/photos/la-creadora-de-contenido-barranquillera-no-se-guard%C3%B3-nada-y-lanz%C3%B3-una-frase-que-/1253884780087615/)
-
-
-### la galaxy - minnesota (N/A, 18/10/2025 23:27 Lima)
-
-- **Loons Fall to Galaxy with Lackluster Decision Day Performance**: [Link](https://www.mnufc.com/news/loons-fall-to-galaxy-with-lackluster-decision-day-performance)
-- **How to watch today's LA Galaxy vs Minnesota United MLS game: Live stream, TV channel, and start time**: [Link](https://www.goal.com/en-us/news/watch-la-galaxy-vs-minnesota-united-mls-game-live-stream-tv-channel-start-time/blt8ba3ca84ba834514)
-- **Season Ticket Member of the Year vs Minnesota United FC: Milma & Elmy Escalante | October 18, 2025**: [Link](https://www.lagalaxy.com/news/season-ticket-member-of-the-match-vs-minnesota-united-fc-milma-elmy-escalante-october-18-2025)
 
 
