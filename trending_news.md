@@ -1,3 +1,30 @@
+### hora peru (N/A, 22/10/2025 07:53 Lima)
+
+- **La FPV retrocede y reprograma el debut de Alianza Lima en la Liga Peruana de Vóley 2025/26 permitiendo desarrollo de la Noche Blanquiazul**: [Link](https://www.infobae.com/peru/deportes/2025/10/21/la-fpv-retrocede-y-reprograma-el-debut-de-alianza-lima-en-la-liga-peruana-de-voley-202526-permitiendo-desarrollo-de-la-noche-blanquiazul/)
+- **¡Vive la Noche Blanquiazul de Vóley en América TV y tvGO!**: [Link](https://www.americatv.com.pe/deportes/polideportivo/vive-noche-blanquiazul-voley-america-tv-y-tvgo-n451412)
+- **Alianza Lima vs. Fluminense / River Plate por Noche Blanquiazul de Vóley 2025: fecha, hora y canales de TV**: [Link](https://depor.com/full-deportes/alianza-lima-vs-river-plate-y-fluminense-fecha-horarios-canales-de-tv-y-donde-ver-transmision-gratis-por-america-tv-por-noche-blanquiazul-de-voley-2025-noticia/)
+
+
+### manuela camacho (N/A, 22/10/2025 07:53 Lima)
+
+- **Manuela Camacho anuncia acciones legales contra Carlos Orozco tras la difusión de datos personales de su esposo**: [Link](https://www.infobae.com/peru/2025/10/22/manuela-camacho-anuncia-acciones-legales-contra-carlos-orozco-tras-la-difusion-de-datos-personales-de-su-esposo/)
+- **Manuela Camacho denunciará a podcast 'Ouke' de Carlos Orozco por exponer datos personales de su esposo: “Estamos procediendo legalmente”**: [Link](https://larepublica.pe/streamers/2025/10/20/manuela-camacho-denunciara-a-podcast-ouke-de-carlos-orozco-por-exponer-datos-personales-de-su-esposo-estamos-procediendo-legalmente-evat-745580)
+
+
+### frankfurt vs. bayern (N/A, 22/10/2025 07:53 Lima)
+
+- **Football accumulator tips for Wednesday, October 22: Back our Champions League acca at 8-1 with bet365**: [Link](https://www.racingpost.com/sport/football-tips/football-acca-tips/football-accumulator-tips-for-wednesday-october-22-back-our-champions-league-acca-at-8-1-with-bet365-aorPe4v61cdy/)
+- **UEFA Champions League Predictions: Matchday 10/22**: [Link](https://www.si.com/soccer/uefa-champions-league-predictions-matchday-10-22-25)
+- **Champions League Matchday 3 Best Bets on Wednesday: Back Liverpool to Bounce Back in Frankfurt**: [Link](https://www.sportscasting.com/uk/news/champions-league-matchday-3-best-bets-wednesday/)
+
+
+### qarabag vs (N/A, 22/10/2025 07:53 Lima)
+
+- **Athletic busca su primer triunfo ante un Qarabag que quiere seguir sorprendiendo**: [Link](https://www.espn.com.pe/futbol/champions-league/nota/_/id/15842962/athletic-club-vs-qarabag-fecha-3-fase-liga-champions-league-equipo-fecha-hora-tv-en-vivo)
+- **Champions League: Athletic Bilbao se enfrentará ante Qarabag por la fecha 3**: [Link](https://rpp.pe/futbol/ligas-internacionales/champions-league-athletic-bilbao-se-enfrentara-ante-qarabag-por-la-fecha-3-noticia-1660237)
+- **Athletic Bilbao vs. Qarabag: Un pronóstico innegociable**: [Link](https://gainblers.com/pe/pronosticos/futbol/europa/champions-league/athletic-bilbao-vs-qarabag-un-pronostico-innegociable/)
+
+
 ### mormon church (N/A, 22/10/2025 03:34 Lima)
 
 - **'Surviving Mormonism': 'RHOSLC's Heather Gay To Star In Bravo Limited Series About Mormon Church**: [Link](https://deadline.com/2025/10/surviving-mormonism-real-housewives-salt-lake-city-heather-gay-bravo-1236593551/)
@@ -995,33 +1022,5 @@ Sin noticias relacionadas disponibles.
 - **Loons Fall to Galaxy with Lackluster Decision Day Performance**: [Link](https://www.mnufc.com/news/loons-fall-to-galaxy-with-lackluster-decision-day-performance)
 - **How to watch today's LA Galaxy vs Minnesota United MLS game: Live stream, TV channel, and start time**: [Link](https://www.goal.com/en-us/news/watch-la-galaxy-vs-minnesota-united-mls-game-live-stream-tv-channel-start-time/blt8ba3ca84ba834514)
 - **Season Ticket Member of the Year vs Minnesota United FC: Milma & Elmy Escalante | October 18, 2025**: [Link](https://www.lagalaxy.com/news/season-ticket-member-of-the-match-vs-minnesota-united-fc-milma-elmy-escalante-october-18-2025)
-
-
-### pumas vs (N/A, 18/10/2025 23:27 Lima)
-
-- **Universitario vs Gimnasia EN VIVO HOY: punto a punto del partido por la Noche de las Pumas 2025**: [Link](https://www.infobae.com/peru/deportes/2025/10/18/universitario-vs-gimnasia-en-vivo-hoy-canal-de-youtube-noche-de-las-pumas-2025-resumen-resultado/)
-- **Gimnasia le arruinó la noche a Universitario y le ganó 3-0 en su presentación**: [Link](https://bolavip.com/pe/voley/universitario-vs-gimnasia-en-vivo-online-y-gratis-por-la-noche-de-las-pumas)
-- **La Noche de las Pumas 2025: Así fue la presentación del equipo de vóley de Universitario**: [Link](https://diariocorreo.pe/deportes/la-noche-de-las-pumas-2025-asi-fue-la-presentacion-del-equipo-de-voley-de-universitario-de-deportes-noticia/)
-
-
-### cruz azul - américa (N/A, 18/10/2025 23:27 Lima)
-
-- **América, el némesis de Nicolás Larcamón en la Liga MX**: [Link](https://www.espn.com.ar/futbol/selecciones/nota/_/id/15814566/cruz-azul-vs-america-nicolas-larcamon-nemesis)
-- **En dónde ver Cruz Azul vs. América por Clásico Joven**: [Link](https://elcomercio.pe/deporte-total/mexico/donde-ver-cruz-azul-vs-america-hoy-en-vivo-canales-de-transmision-del-clasico-joven-por-liga-mx-noticia/)
-- **Cruz Azul vs América EN VIVO: minuto a minuto del partido de la jornada 13 en el Olímpico Universitario**: [Link](https://www.infobae.com/mexico/deportes/2025/10/19/cruz-azul-vs-america-hoy-en-vivo-minuto-a-minuto-del-partido-de-la-jornada-13-y-del-clasico-joven/)
-
-
-### monterrey vs pumas (N/A, 18/10/2025 23:27 Lima)
-
-- **La otra toma del gol de Sergio Ramos a Keylor Navas en México**: [Link](https://as.com/us/videos/la-otra-toma-del-gol-de-sergio-ramos-a-keylor-navas-en-mexico-f202510-v/)
-- **Rayados vs Pumas: Sergio Ramos y Keylor Navas tendrán reencuentro histórico en el Apertura 2025 de la Liga MX**: [Link](https://vanguardia.com.mx/deportes/futbol/rayados-vs-pumas-sergio-ramos-y-keylor-navas-tendran-reencuentro-historico-en-el-apertura-2025-de-la-liga-mx-EC17736525)
-- **Ramos le ganó a Navas: cruce de leyendas con triunfo para el defensor**: [Link](https://www.ambito.com/mexico/deportes/ramos-le-gano-navas-cruce-leyendas-triunfo-el-defensor-n6203633)
-
-
-### brendan allen (N/A, 18/10/2025 23:27 Lima)
-
-- **Prelim Results | UFC Vancouver**: [Link](https://www.ufc.com/news/ufc-fight-night-de-ridder-vs-allen-vancouver-event-tonight-prelim-live-results)
-- **Live Now! UFC Vancouver ‘De Ridder vs. Allen’ Play-by-Play, Results & Round Scoring**: [Link](https://www.sherdog.com/news/news/UFC-Vancouver-De-Ridder-vs-Allen-PlaybyPlay-Results-Round-Scoring-198748)
-- **Khamzat Chimaev shares savage five-word reaction to Reinier de Ridder 'giving up' at UFC Vancouver**: [Link](https://bloodyelbow.com/2025/10/18/khamzat-chimaev-shares-damning-five-word-reaction-to-reiner-de-ridder-giving-up-at-ufc-vancouver/)
 
 
