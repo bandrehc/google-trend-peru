@@ -1,3 +1,73 @@
+### alexander isak (N/A, 22/10/2025 15:27 Lima)
+
+- **Arsene Wenger shares his honest verdict on Alexander Isak’s start to life at Liverpool**: [Link](https://www.rousingthekop.com/2025/10/22/arsene-wenger-shares-his-honest-verdict-on-alexander-isaks-start-to-life-at-liverpool/)
+- **Former Liverpool player sums up issue with Arne Slot's team that fans 'don't want to say'**: [Link](https://www.liverpool.com/liverpool-fc-news/features/former-liverpool-player-sums-up-32725379)
+- **Patience, Not Panic: Isak and Wirtz Need Time to Shine**: [Link](https://worldfootballindex.com/2025/10/patience-not-panic-isak-and-wirtz-need-time-to-shine/)
+
+
+### chelsea fc (N/A, 22/10/2025 15:27 Lima)
+
+- **'Not playing Conference League' - Enzo Maresca slammed by Chelsea fans**: [Link](https://theprideoflondon.com/not-playing-conference-league-enzo-maresca-chelsea-fans)
+- **Weghorst left with blood pouring down head after collision... but laughs off 's*** Andy Carroll' chant from Chelsea fans**: [Link](https://www.thesun.co.uk/sport/37095149/wout-weghorst-blood-head-chant-chelsea-ajax/)
+- **Chelsea looking to end 30-year Ajax record as Blues prepare for Champions League clash**: [Link](https://www.thechelseachronicle.com/news/chelsea-looking-to-end-30-year-ajax-record-as-blues-prepare-for-champions-league-clash/)
+
+
+### atalanta vs slavia praha (N/A, 22/10/2025 15:27 Lima)
+
+- **UEFA Youth League: Atalanta 2-0 Slavia Praha**: [Link](https://en.atalanta.it/news/uefa-youth-league-atalanta-2-0-slavia-praha)
+- **Preview:Atalanta BC vs. Slavia Prague - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/atalanta-bc/champions-league/preview/atalanta-vs-slavia-prague-prediction-team-news-lineups_583975.html)
+- **Atalanta vs Slavia Praha: Predictions, Betting odds, Lineups, Preview**: [Link](https://www.coral.co.uk/en/news/match-preview-atalanta-slavia-praha-champions-league-gameweek-3/)
+
+
+### dušan vlahović (N/A, 22/10/2025 15:27 Lima)
+
+- **PSG-Linked Star Wanted by Barcelona, Tottenham Given €15M Price Tag**: [Link](https://psgtalk.com/2025/10/barcelona-tottenham-target-vlahovic-psg-transfer/)
+- **Serie A star striker prefers a move to Tottenham over Premier League rivals**: [Link](https://www.spurs-web.com/spurs-news/serie-a-star-striker-prefers-a-move-to-tottenham-over-premier-league-rivals/)
+- **Chelsea and Manchester United in battle for Serie A star**: [Link](https://onefootball.com/de/news/chelsea-and-manchester-united-in-battle-for-serie-a-star-41840997)
+
+
+### cristian castro (N/A, 22/10/2025 15:27 Lima)
+
+- **Cristian Castro llegó a Lima para su concierto en Costa 21**: [Link](https://www.americatv.com.pe/noticias/espectaculos/cristian-castro-aterrizo-lima-su-concierto-costa-21-n512184)
+- **Cristian Castro agradece el cariño de los peruanos: habla de Gian Marco, Jaime Bayly y promete vivir en Lima**: [Link](https://www.infobae.com/peru/2025/10/22/cristian-castro-agradece-el-carino-de-los-peruanos-habla-de-gian-marco-jaime-bayly-y-promete-vivir-en-lima/)
+- **Cristian Castro en Perú: ¡Descubre el posible setlist de su gira Hits Tour 2025!**: [Link](https://blog.joinnus.com/cristian-castro-en-peru-descubre-el-posible-setlist-de-su-gira-hits-tour-2025/)
+
+
+### isabel preysler (N/A, 22/10/2025 15:27 Lima)
+
+- **Lo que dicen las cartas que Mario Vargas Llosa le envió a Isabel Preysler: “Qué revolución has causado en mi vida, amor mío”**: [Link](https://elpais.com/gente/2025-10-22/lo-que-dicen-las-cartas-que-mario-vargas-llosa-le-envio-a-isabel-preysler-que-revolucion-has-causado-en-mi-vida-amor-mio.html)
+- **Isabel Preysler publica íntimas cartas de amor de Mario Vargas Llosa y afirma: "Él era feliz conmigo"**: [Link](https://rpp.pe/famosos/celebridades/isabel-preysler-publica-intimas-cartas-de-amor-de-mario-vargas-llosa-en-su-libro-mi-verdadera-historia-noticia-1660424)
+- **"Te diré cosas hermosas y dulces al oído mientras te hago el amor": Isabel Preysler publica las apasionadas cartas de amor de Mario Vargas Llosa**: [Link](https://www.vanitatis.elconfidencial.com/famosos/2025-10-22/isabel-preysler-cartas-amor-mario-vargas-llosa-pasion-hago-el-amor_4232718/)
+
+
+### mónaco vs (N/A, 22/10/2025 15:27 Lima)
+
+- **¡EN VIVO! Mónaco recibe a Tottenham en busca de su primera victoria en Champions**: [Link](https://www.espn.com.pe/futbol/champions-league/nota/_/id/15851018/monaco-vs-tottenham-por-la-uefa-champions-league-equipo-fecha-hora-y-tv-en-vivo)
+- **¿A qué hora juega AS Mónaco vs. Tottenham Hotspur y dónde ver EN VIVO la Champions League?**: [Link](https://libero.pe/futbol-internacional/champions-league/2025/10/21/as-monaco-vs-tottenham-hotspur-champions-league-2025-hora-juega-donde-ver-canal-transmite-en-vivo-1924461)
+- **Champions League: Se enfrentan Mónaco y Tottenham por la fecha 3**: [Link](https://rpp.pe/futbol/ligas-internacionales/champions-league-se-enfrentan-monaco-y-tottenham-por-la-fecha-3-noticia-1660265)
+
+
+### liverpool vs (N/A, 22/10/2025 15:27 Lima)
+
+- **Liverpool vs Real Madrid tickets: Watch the massive Champions League game at Anfield**: [Link](https://talksport.com/shopping/3667802/liverpool-vs-real-madrid-tickets-anfield/)
+- **Liverpool vs. Real Madrid tickets: Prices, cheapest seats, how to buy for 2025 Champions League match**: [Link](https://www.sportingnews.com/uk/tickets/news/liverpool-vs-real-madrid-tickets-prices-seats-2025-champions-league/9881acd71b153dc7fef87d35)
+- **Champions League LIVE: Chelsea vs Ajax, Frankfurt vs Liverpool, Monaco vs Tottenham - scores & radio**: [Link](https://www.bbc.com/sport/football/live/c1kwp92z2l3t)
+
+
+### liverpool fc (N/A, 22/10/2025 15:27 Lima)
+
+- **How letters from Bill Shankly inspired new book about Liverpool FC**: [Link](https://theguideliverpool.com/how-letters-from-bill-shankly-inspired-new-book-about-liverpool-fc/)
+- **edie Net-Zero Awards: Winner case studies**: [Link](https://www.edie.net/edie-net-zero-awards-winner-case-studies/)
+- **'Proud moment' - Liverpool FC honoured with top award**: [Link](https://www.liverpoolworld.uk/news/proud-moment-liverpool-fc-honoured-with-top-award-5369980)
+
+
+### bet365 (N/A, 22/10/2025 15:27 Lima)
+
+- **Best Promos for Tip Off Tuesday | Top NBA Week 1 Offers**: [Link](https://www.oddsshark.com/industry-news/nba-top-tip-off-promos)
+- **Miami Heat vs Orlando Magic: bet365 Bonus Code "LSBONUS" $200 Welcome Offer**: [Link](https://www.livescore.com/en/news/nba/promos/miami-heat-at-orlando-magic-bet365-bonus-code/)
+- **Who won King of the Court? DraftKings winner for season-opening night on Oct. 21**: [Link](https://sports.yahoo.com/article/won-king-court-draftkings-winner-121343303.html)
+
+
 ### athletic - qarabağ (N/A, 22/10/2025 11:32 Lima)
 
 - **Preview:Athletic Bilbao vs Qarabag FK - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/athletic-bilbao/champions-league/preview/athletic-bilbao-vs-qarabag-prediction-team-news-lineups_583960.html)
@@ -952,75 +1022,5 @@ Sin noticias relacionadas disponibles.
 - **LIVE - Hij krijgt meteen knuffels! Met uitstekende beenveeg houdt Lammens United recht in topper tegen Liverpool**: [Link](https://sporza.be/nl/matches/voetbal/buitenland/eng/premier-league/2025-2026/regulier/08/liverpool-manchester-united-live-hij-krijgt-meteen-knuffels-met-uitstekende-beenveeg-houdt-lammens-united-recht-in-topper-tegen-liverpool~1750778163951/)
 - **“Stress? Heb ik totaal geen last meer van”: zelfs op bezoek bij Liverpool staat Senne Lammens onbezorgd onder de lat bij Man United**: [Link](https://www.hbvl.be/sport/voetbal/stress-heb-ik-totaal-geen-last-meer-van-zelfs-op-bezoek-bij-liverpool-staat-senne-lammens-onbezorgd-onder-de-lat-bij-man-united/98395822.html)
 - **Lammens ook in de basis tegen Liverpool? “Goed mogelijk dat hij opnieuw start”**: [Link](https://www.voetbalprimeur.be/nieuws/1703121/senne-lammens-op-doel-tegen-liverpool.html)
-
-
-### atalanta - lazio (N/A, 19/10/2025 11:26 Lima)
-
-- **LIVE Alle 18 Atalanta-Lazio: Juric con Lookman titolare, Sarri con Zaccagni**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Atalanta/19-10-2025/atalanta-lazio-live-diretta-serie-a.shtml)
-- **Lazio, Marusic: "Abbiamo preparato la partita, è importante per noi"**: [Link](https://www.lazialita.com/2025/10/19/lazio-marusic-abbiamo-preparato-la-partita-e-importante-per-noi/)
-- **Live Atalanta - Lazio - Serie A: Punteggi & Highlights Calcio - 19/10/2025**: [Link](https://www.eurosport.it/calcio/serie-a/2025-2026/live-atalanta-lazio_mtc1598794/live-commentary.shtml)
-
-
-### liverpool (N/A, 19/10/2025 11:26 Lima)
-
-- **Liverpool vs Manchester United live: Score and latest Premier League updates**: [Link](https://www.telegraph.co.uk/football/2025/10/19/liverpool-vs-man-utd-score-latest-premier-league-updates/)
-- **Gary Neville immediate Man United reaction says it all after shock start vs Liverpool**: [Link](https://www.manchestereveningnews.co.uk/sport/football/football-news/breaking-gary-neville-delivers-immediate-32707428)
-- **Michael Oliver branded a 'disgrace' as Liverpool fans cry referee 'corruption' after Man Utd 'benefit from loophole' for Bryan Mbeumo goal & survive 'clear' penalty calls**: [Link](https://www.goal.com/en-qa/lists/michael-oliver-disgrace-liverpool-fans-referee-corruption-man-utd-loophole-bryan-mbeumo-goal-penalty-calls/blt26b5d7f51e4216ab)
-
-
-### liverpool football club (N/A, 19/10/2025 11:26 Lima)
-
-- **Ex-Liverpool transfer chief joining Chelsea after 12 years**: [Link](https://www.thisisanfield.com/2025/10/ex-liverpool-transfer-chief-joining-chelsea-after-12-years-at-anfield/)
-- **Chelsea in discussions to appoint former Liverpool scouting director Dave Fallows - The Athletic**: [Link](https://www.nytimes.com/athletic/6729021/2025/10/18/dave-fallows-director-chelsea-liverpool/)
-- **Chelsea hire Jurgen Klopp’s former Liverpool recruitment expert**: [Link](https://www.telegraph.co.uk/football/2025/10/18/chelsea-hire-jurgen-klopp-former-liverpool-recruitment/)
-
-
-### heracles - feyenoord (N/A, 19/10/2025 11:26 Lima)
-
-- **Feyenoord begeeft zich in schiettent in Almelo • Hattrick voor Ueda**: [Link](https://nos.nl/liveblog/2587002-feyenoord-begeeft-zich-in-schiettent-in-almelo-hattrick-voor-ueda)
-- **LIVE eredivisie | Sem Steijn en Anis Hadj Moussa voeren score na rust verder op voor Feyenoord tegen zwak Heracles**: [Link](https://www.bd.nl/voetbal/live-eredivisie-sem-steijn-en-anis-hadj-moussa-voeren-score-na-rust-verder-op-voor-feyenoord-tegen-zwak-heracles~ab9f66f6/)
-- **LIVE | Wedstrijd is hervat; Heracles Almelo verder met Te Wierik en Kulenovic**: [Link](https://www.destentor.nl/almelo/live-wedstrijd-is-hervat-heracles-almelo-verder-met-te-wierik-en-kulenovic~af5af0fb/)
-
-
-### tottenham - aston villa (N/A, 19/10/2025 07:43 Lima)
-
-- **Tottenham vs Aston Villa Confirmed Lineups for October 19**: [Link](https://lastwordonsports.com/football/2025/10/19/tottenham-vs-aston-villa-confirmed-lineups-october/)
-- **Sunday's 32/1 Score Or Assist Predictions**: [Link](https://andysbetclub.co.uk/predictions/player-score-or-assist-betting-tips/)
-- **Spurs vs Villa | Every word of Thomas Frank's pre-match press conference**: [Link](https://www.tottenhamhotspur.com/news/2025/october/spurs-vs-villa-every-word-of-thomas-franks-pre-match-press-conference/)
-
-
-### elche vs (N/A, 19/10/2025 07:43 Lima)
-
-- **Apuestas y Pronóstico del Elche vs Athletic Club 19/10/25**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2025/octubre/pronostico-elche-vs-athletic-club-19-10-25)
-- **LaLiga EA Sports: Por la fecha 9, Elche recibirá a Athletic Bilbao**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-por-la-fecha-9-elche-recibira-a-athletic-bilbao-noticia-1659884)
-- **Sarabia presenta candidatura**: [Link](https://as.com/futbol/primera/sarabia-presenta-candidatura-f202510-n/)
-
-
-### dundee - celtic f. c. (N/A, 19/10/2025 07:43 Lima)
-
-- **Celtic starting XI to face Dundee at Dens Park**: [Link](https://www.celticfc.com/news/2025/october/19/celtic-starting-xi-to-face-dundee-at-dens-park/)
-- **Team’s Up – Yang starts as Maeda and Bernardo miss out**: [Link](https://thecelticstar.com/teams-up-yang-starts-as-maeda-and-bernardo-miss-out/)
-- **SlipsTips’ Tips: Bhoys to bag 11/10 Bet Builder**: [Link](https://mrfixitstips.co.uk/slipstips-tips-bhoys-to-bag-11-10-bet-builder/)
-
-
-### cuándo juega universitario (N/A, 19/10/2025 07:43 Lima)
-
-- **Alan Diez fulminó a Franco Velazco por polémico comentario contra Sporting Cristal: “No vale imitar a Jean Ferrari”**: [Link](https://www.infobae.com/peru/deportes/2025/10/18/alan-diez-fulmino-a-franco-velazco-por-polemico-comentario-contra-sporting-cristal-no-vale-imitar-a-jean-ferrari/)
-- **¡El Nacional será celeste! El duelo entre Sporting Cristal vs. Universitario se jugará solo con hinchada local**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/sporting-cristal-vs-universitario-se-jugara-con-hinchada-local-en-el-estadio-nacional-por-liga-1-noticia/)
-- **Uribe y la dura respuesta a Velazco por hablar del Gallardo**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/uribe-le-dio-firme-respuesta-velazco-criticar-gallardo-n451393)
-
-
-### juventus vs (N/A, 19/10/2025 07:43 Lima)
-
-- **Nico Paz and Kenan Yildiz duel for Como vs. Juventus present and future**: [Link](https://football-italia.net/nico-paz-and-kenan-yildiz-duel-como-juventus/)
-- **Maximo Perrone vs. Juventus – Player props & odds to score a goal on October 19**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/10/18/maximo-perrone-soccer-player-props-10-19-2025/86770208007/)
-- **Match Preview Como Vs Juventus**: [Link](https://comofootball.com/en/match-preview-como-vs-juventus-en/)
-
-
-### liga italiana (N/A, 19/10/2025 07:43 Lima)
-
-- **Serie A, tifosi del Como in silenzio per 15' contro la partita a Perth**: [Link](https://www.sportmediaset.mediaset.it/calcio/serie-a-tifosi-del-como-in-silenzio-per-15--contro-la-partita-a-perth_104815903-202502k.shtml)
-- **Il caso. La curva dei lariani in rivolta per la sfida col Milan in Australia**: [Link](https://www.ilgiorno.it/sport/il-caso-la-curva-dei-9e46246c)
-- **Serie A in Australia: cosa resta del calcio?**: [Link](https://www.ilprimatonazionale.it/sport/serie-a-in-australia-cosa-resta-del-calcio-304496/)
 
 
