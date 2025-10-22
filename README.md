@@ -1,3 +1,71 @@
+### estado de emergencia lima (N/A, 21/10/2025 20:55 Lima)
+
+- **José Jerí anuncia estado de emergencia por 30 días en Lima y Callao para frenar la criminalidad**: [Link](https://elcomercio.pe/lima/seguridad/estado-de-emergencia-lima-y-callao-por-30-dias-para-enfrentar-criminalidad-pcm-jose-jeri-ultimas-noticia/)
+- **Presidente José Jerí anuncia estado de emergencia en Lima Metropolitana y el Callao**: [Link](https://elperuano.pe/noticia/281375-presidente-jose-jeri-anuncia-estado-de-emergencia-en-lima-metropolitana-y-el-callao)
+- **El Gobierno interino de Perú prepara un estado de emergencia en Lima ante la crisis de violencia**: [Link](https://elpais.com/america/2025-10-17/el-gobierno-interino-de-peru-prepara-un-estado-de-emergencia-en-lima-ante-la-crisis-de-violencia.html)
+
+
+### mensaje a la nación (N/A, 21/10/2025 20:55 Lima)
+
+- **Presidente Jerí brindará esta noche un mensaje a la Nación**: [Link](https://andina.pe/agencia/noticia-presidente-jeri-brindara-esta-noche-un-mensaje-a-nacion-1049162.aspx)
+- **Presidente Jerí reafirma compromiso del Gobierno con un Estado ágil y cercano al ciudadano**: [Link](https://elperuano.pe/noticia/281355-presidente-jeri-reafirma-compromiso-del-gobierno-con-un-estado-agil-y-cercano-al-ciudadano)
+- **José Jerí coordina con premier Ernesto Álvarez nueva política de puertas abiertas para fortalecer diálogo con ciudadanía: así implementan medida**: [Link](https://www.expreso.com.pe/politica/jose-jeri-coordina-con-premier-ernesto-alvarez-nueva-politica-de-puertas-abiertas-para-fortalecer-dialogo-con-ciudadania-asi-implementan-medida-oscar-arriola-consejo-de-ministros-vicente-noticia/1231921/)
+
+
+### deportivo pereira (N/A, 21/10/2025 20:55 Lima)
+
+Sin noticias relacionadas disponibles.
+
+
+### liga mx (N/A, 21/10/2025 20:55 Lima)
+
+- **Liga MX: Horarios y cómo ver la Jornada 14 del Apertura 2025**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/15843238/liga-mx-jornada-14-horarios-donde-ver-apertura-2025)
+- **¡Arranca la Jornada 14! Comienza hoy con el américa vs puebla**: [Link](https://superchannel12.com/679150/arranca-la-jornada-comienza-hoy-con-el-america-vs-puebla)
+- **Apertura 2025: Partidos más relevantes rumbo a Play-In y Liguilla**: [Link](https://espndeportes.espn.com/futbol/mexico/nota/_/id/15841599/liga-mx-apertura-2025-partidos-relevantes-play-in-liguilla)
+
+
+### lakers - warriors (N/A, 21/10/2025 20:55 Lima)
+
+- **Live Updates: Warriors vs. Lakers, Luka Donćić and Steph Curry in season opener**: [Link](https://www.nba.com/news/live-updates-warriors-lakers-season-opener)
+- **TST Best Bets: October 21st 2025**: [Link](https://www.thesportingtribune.com/2025/10/21/tstbestbets-goldenstate-lakers-ducks-kings)
+- **Mark Medina: Warriors coach Steve Kerr declined to …**: [Link](https://www.hoopshype.com/story/sports/nba/rumors/2025/10/21/mark-medina-warriors-coach-steve-kerr-declined-to/86826014007/)
+
+
+### necaxa - cruz azul (N/A, 21/10/2025 20:55 Lima)
+
+- **Necaxa vs Cruz Azul: posibles alineaciones, J14 Apertura 2025**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/15845237/necaxa-vs-cruz-azul-alineaciones-jornada-14-apertura-2025)
+- **PARTIDO Necaxa-Cruz Azul EN DIRECTO, por Azteca 7 ONLINE**: [Link](https://elcomercio.pe/deporte-total/mexico/necaxa-vs-cruz-azul-en-vivo-online-gratis-hoy-via-azteca-7-claro-sports-vix-futbol-libre-tv-horarios-canales-y-donde-ver-partido-por-liga-mx-video-noticia/)
+- **Liga MX: Cruz Azul enfrenta a Necaxa para subirse a la cima**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-cruz-azul-enfrenta-a-necaxa-para-subirse-a-la-cima-noticia-1660156)
+
+
+### oklahoma city thunder (N/A, 21/10/2025 20:55 Lima)
+
+- **Thunder Poised for NBA Glory; Saints Shakeup; Trade Rumors Abound**: [Link](https://www.devdiscourse.com/article/sports-games/3670050-thunder-poised-for-nba-glory-saints-shakeup-trade-rumors-abound)
+- **How Thunder's confidence ‘oozes' on and off court**: [Link](https://www.nbcmiami.com/video/news/sports/how-thunders-confidence-oozes-on-and-off-court/3709707/)
+- **SGA's encore**: [Link](https://www.nytimes.com/athletic/live-blogs/rockets-vs-thunder-live-updates-nba-opening-night-score-result/8adF3hMOREhM/CqnDlttdR3Gc/)
+
+
+### bolivar vs (N/A, 21/10/2025 20:55 Lima)
+
+- **Mientras San Lorenzo está al borde de la quiebra, un club fundado por Marcelo Tinelli consiguió un históric...**: [Link](https://bolavip.com/ar/futbolargentino/mientras-san-lorenzo-esta-al-borde-de-la-quiebra-un-club-fundado-por-marcelo-tinelli-consiguio-un-historico-ascenso)
+- **Ciudad de Bolívar le ganó la final a Atlético de Rafaela y debutará en la Primera Nacional**: [Link](https://onefootball.com/es/noticias/ciudad-de-bolivar-le-gano-la-final-a-atletico-de-rafaela-y-debutara-en-la-primera-nacional-41834222)
+- **Bolívar sube al cielo: una ciudad entera en la cima del fútbol de ascenso**: [Link](https://laverdadonline.com/bolivar-sube-al-cielo-una-ciudad-entera-en-la-cima-del-futbol-de-ascenso/)
+
+
+### nba en vivo (N/A, 21/10/2025 20:55 Lima)
+
+- **Vuelve la NBA: 5 cosas a las que prestarle atención en la nueva temporada**: [Link](https://cnnespanol.cnn.com/2025/10/20/deportes/claves-nba-2025-2026-temporada-lebron-curry-orix)
+- **NBA 2025-26: ¿Qué equipo ganará las Finales y quién será el MVP?**: [Link](https://espndeportes.espn.com/basquetbol/nota/_/id/15844419/nba-2025-26-predicciones-temporada-este-oeste-finales-campeones-mvp)
+- **Arranca la NBA: el último baile de LeBron, la dinastía Thunder y los meritorios al anillo**: [Link](https://www.marca.com/baloncesto/nba/2025/10/21/arranca-nba-ultimo-baile-lebron-dinastia-thunder-meritorios-anillo.html)
+
+
+### américa - puebla (N/A, 21/10/2025 20:55 Lima)
+
+- **América vs Puebla: posibles alineaciones, J14 Apertura 2025**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/15844844/america-vs-puebla-alineaciones-jornada-14-apertura-2025)
+- **América vs Puebla: Dónde ver el partido de Saint-Maximin, horario y canal del duelo de la Jornada 14**: [Link](https://www.marca.com/mx/futbol/liga-mx/2025/10/21/68f78d4646163f8a4c8b45bb.html)
+- **Querétaro vs. Chivas, EN VIVO: dónde ver por TV y ONLINE**: [Link](https://www.tycsports.com/mexico/liga-mx/queretaro-vs-chivas-en-vivo-donde-ver-por-tv-y-online-id693586.html)
+
+
 ### paris (N/A, 21/10/2025 15:27 Lima)
 
 - **Novak Djokovic déclare forfait pour le Rolex Paris Masters, Benjamin Bonzi le remplace**: [Link](https://www.lequipe.fr/Tennis/Actualites/Novak-djokovic-declare-forfait-pour-le-rolex-paris-masters-benjamin-bonzi-le-remplace/1603565)
@@ -955,75 +1023,5 @@ Sin noticias relacionadas disponibles.
 - **VER, Colombia-Francia Sub 20 EN VIVO por Gol Caracol y DIRECTV**: [Link](https://elcomercio.pe/deporte-total/colombia/colombia-vs-francia-sub-20-en-vivo-gratis-hoy-via-futbol-libre-tv-gol-caracol-horarios-canales-tv-y-donde-ver-partido-por-tercer-lugar-del-mundial-sub-20-video-noticia/)
 - **Podio y Neiser goleador, lo que busca Colombia en cierre del Mundial Sub 20 de Chile 2025**: [Link](https://www.espn.com.ar/futbol/nota/_/id/15825553/colombia-vs-francia-objetivos-podio-neiser-villarreal-goleador)
 - **El ‘streamer’ argentino Luquitas Rodríguez, habló sobre la mentalidad del jugador colombiano tras la eliminación del Mundial Sub-20: “Juegan sin contexto”**: [Link](https://www.infobae.com/colombia/deportes/2025/10/16/la-teoria-de-luquitas-rodriguez-el-streamer-argentino-tras-la-caida-de-la-seleccion-colombia-sobre-la-mentalidad-del-jugador-cafetero-hasta-en-un-mundial-sub-20/)
-
-
-### ajax - az (N/A, 18/10/2025 15:23 Lima)
-
-- **Ajax begint met Gloukh aan thuisduel met AZ**: [Link](https://www.rtl.nl/nieuws/sport/artikel/5534224/ajax-begint-met-gloukh-aan-thuisduel-met-az)
-- **LIVE eredivisie | Berghuis voorlopig uit de roulatie bij Ajax, Edvardsen vermoedelijke vervanger tegen AZ**: [Link](https://www.ad.nl/voetbal/live-eredivisie-berghuis-voorlopig-uit-de-roulatie-bij-ajax-edvardsen-vermoedelijke-vervanger-tegen-az~a2486c1a/)
-- **Mijnans vertrouwt op winst tegen Ajax: "Spelen wij altijd goed"**: [Link](https://www.ajax1.nl/mijnans-vertrouwt-op-winst-tegen-ajax-spelen-wij-altijd-goed/)
-
-
-### alcaraz vs sinner (N/A, 18/10/2025 15:23 Lima)
-
-- **Six Kings Slam 2025: Everything to Know About Riyadh Season’s Tennis Showcase**: [Link](https://www.netflix.com/tudum/articles/riyadh-season-six-kings-slam-tennis)
-- **Six Kings Slam prize money: How much is on the line as Alcaraz and Sinner compete for biggest payday in tennis?**: [Link](https://www.independent.co.uk/sport/tennis/six-kings-slam-prize-money-winner-b2847792.html)
-- **Alcaraz vs Sinner Live 𝐬𝐭𝐫𝐞𝐚𝐦 Free 18 October 2025**: [Link](https://www.thealbertan.com/classifieds/homes-rentals-and-real-estate/open-houses/2034823)
-
-
-### inter (N/A, 18/10/2025 15:23 Lima)
-
-- **Dybala: From collapsed Inter transfer to possible Roma surprise in Serie A showdown**: [Link](https://football-italia.net/dybala-collapsed-inter-transfer-roma-surprise/)
-- **Can Roma dream of the Scudetto? Gasperini responds firmly before the clash with Inter**: [Link](https://telegrafi.com/en/Can-Roma-dream-of-the-Scudetto-Gasperini-answers-bluntly-before-the-match-with-Inter/)
-- **Lautaro, Esposito, and Bonny: who rests against Roma? Chivu’s answer raises doubts**: [Link](https://tribuna.com/en/news/2025-10-17-lautaro-esposito-and-bonny-who-rests-against-roma-chivus-answer-raises-doubts/)
-
-
-### pasto - atlético nacional (N/A, 18/10/2025 15:23 Lima)
-
-- **Con técnico ratificado, Nacional visita al antepenúltimo del FPC**: [Link](https://espndeportes.espn.com/futbol/colombia/nota/_/id/15824732/pasto-vs-nacional-fecha-16-liga-betplay-equipo-fecha-hora-y-tv-en-vivo)
-- **Pronóstico Deportivo Pasto Atlético Nacional - Liga Postobon 18/10/25**: [Link](https://www.sportytrader.com/es/pronosticos/deportivo-pasto-atletico-nacional-297344/)
-- **Deportivo Cali vs América de Cali: Apuestas, Pronóstico y Cuotas**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/internacional/2025/octubre/pronostico-deportivo-cali-vs-america-de-cali-18-10-25)
-
-
-### independiente rivadavia - banfield (N/A, 18/10/2025 15:23 Lima)
-
-- **EN VIVO: Banfield se lleva la victoria parcial 2-0 sobre Independiente Riv. (M)**: [Link](https://www.directvsports.com/futbol/EN-VIVO-Banfield-se-lleva-la-victoria-parcial-2-0-sobre-Independiente-Riv.-M-20251015-0029.html)
-- **Independiente Rivadavia vs Banfield, por el Torneo Clausura: minuto a minuto, en directo**: [Link](https://www.clarin.com/deportes/independiente-rivadavia-vs-banfield-torneo-clausura-minuto-minuto-directo_0_U41EYl1SOl.html)
-- **Ver EN VIVO Independiente Riv. (M) vs. Banfield: dónde seguir por TV y ONLINE en streaming**: [Link](https://www.tycsports.com/liga-profesional-de-futbol/independiente-riv-m-vs-banfield-en-vivo-donde-ver-por-tv-y-online-id692965.html)
-
-
-### ajax vs (N/A, 18/10/2025 15:23 Lima)
-
-- **Preview: Ajax vs. AZ - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/ajax/preview/ajax-vs-az-prediction-team-news-lineups_583733.html)
-- **Ajax vs AZ: Heitinga Finalizes Strategy for Crucial Match**: [Link](https://www.el-balad.com/6736400)
-- **AFC Ajax vs AZ Alkmaar: Prediction, Preview and Team News – 18/10/25**: [Link](https://ghanasoccernet.com/bookmaker-ratings/tips/afc-ajax-vs-az-alkmaar-prediction-preview-and-team-news-18-10-25/)
-
-
-### bayer vs (N/A, 18/10/2025 11:26 Lima)
-
-- **Leverkusen beat Mainz 4-3 in an amazing Bundesliga goal-fest**: [Link](https://bulinews.com/mainzvsleverkusen)
-- **Germany Soccer Bundesliga**: [Link](https://www.wvnews.com/sports/pro/germany-soccer-bundesliga/image_158bfc30-b57c-5d6a-b020-8f1a1c534bfa.html)
-- **Grimaldo Brace Helps Bayer Leverkusen Beat Mainz in Seven-Goal Thriller**: [Link](https://www.tribalfootball.com/article/soccer-bundesliga-grimaldo-brace-helps-bayer-leverkusen-beat-mainz-in-seven-goal-thriller-a3baf0ce-b3f2-4e84-abd6-64b0a55fa8b3)
-
-
-### posiciones de la liga (N/A, 18/10/2025 11:26 Lima)
-
-- **Acumulado de Liga 1: tabla de posiciones y resultados de la fecha 14 del Torneo Clausura 2025**: [Link](https://depor.com/futbol-peruano/descentralizado/acumulado-liga-1-2025-peru-tabla-de-posiciones-y-resultados-de-fecha-14-del-torneo-clausura-2025-noticia/)
-- **Tabla de posiciones de Liga 1 EN VIVO: así va el Clausura y Acumulado**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/tabla-de-liga-1-2025-como-van-las-posiciones-del-torneo-clausura-y-acumulado-partidos-y-resultados-noticia/)
-- **Así va la lucha por no descender de la Liga 1 2025: posiciones y partidos que le quedan a los equipos en el Torneo Clausura**: [Link](https://www.infobae.com/peru/deportes/2025/10/16/asi-va-la-lucha-por-no-descender-de-la-liga-1-2025-posiciones-y-partidos-que-le-quedan-a-los-equipos-en-el-torneo-clausura/)
-
-
-### besiktas vs (N/A, 18/10/2025 11:26 Lima)
-
-- **How to watch today's Besiktas vs Genclerbirligi Super Lig game: Live stream, TV channel, and start time**: [Link](https://www.goal.com/en-us/news/watch-besiktas-vs-genclerbirligi-super-lig-game-live-stream-tv-channel-start-time/blt50413a6c60169a5c)
-- **Preview: Besiktas vs Genclerbirligi - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/besiktas/preview/besiktas-vs-genclerbirligi-prediction-team-news-lineups_583743.html)
-- **Besiktas vs Genclerbirligi Prediction: The Black Eagles Take Flight Toward Triumph!**: [Link](https://www.telecomasia.net/sports-betting/tips/football/turkey-super-league/besiktas-vs-genclerbirligi-prediction-for-the-match-on-october-18-2025/)
-
-
-### fcb (N/A, 18/10/2025 11:26 Lima)
-
-- **Barça and Girona express support for victims of Storm Alice in Terres de l'Ebre**: [Link](https://www.fcbarcelona.com/en/club/news/4384097/barca-and-girona-express-support-for-victims-of-storm-alice-in-terres-de-lebre)
-- **▷ ESPN EN VIVO GRATIS — dónde puedes ver FC Barcelona vs. Girona por TV y Online**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/espn-en-vivo-gratis-ver-partido-fc-barcelona-vs-girona-en-directo-por-laliga-2025-2026-via-futbol-tv-nnda-nnse-noticia/)
-- **LaLiga EA Sports: Barcelona enfrenta a Girona para subirse a la cima**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-barcelona-enfrenta-a-girona-para-subirse-a-la-cima-noticia-1659745)
 
 
