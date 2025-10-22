@@ -1,3 +1,38 @@
+### mormon church (N/A, 22/10/2025 03:34 Lima)
+
+- **'Surviving Mormonism': 'RHOSLC's Heather Gay To Star In Bravo Limited Series About Mormon Church**: [Link](https://deadline.com/2025/10/surviving-mormonism-real-housewives-salt-lake-city-heather-gay-bravo-1236593551/)
+- **A ‘Real Housewives of Salt Lake City’ star will confront the LDS Church in a new documentary series**: [Link](https://www.sltrib.com/artsliving/2025/10/21/surviving-mormonism-heather-gay/)
+- **RHOSLC’s Heather Gay Investigates ‘The Real Secret Lives’ of Mormons in Explosive New Series**: [Link](https://www.aol.com/articles/rhoslc-heather-gay-investigates-real-171257142.html)
+
+
+### galatasaray (N/A, 22/10/2025 03:34 Lima)
+
+- **Galatasaray Liverpool zaferini taçlandırmak için Bodo karşısında! İşte muhtemel 11'ler**: [Link](https://spor.haber7.com/sampiyonlar-ligi/haber/3573389-galatasaray-liverpool-zaferini-taclandirmak-icin-bodo-karsisinda-iste-muhtemel-11ler)
+- **Kök söktürdü!**: [Link](https://www.sabah.com.tr/yazarlar/spor/timurlenk/2025/10/22/kok-sokturdu)
+- **Bodo Glimt hangi ülkenin takımı? Bodo Glimt hangi ligde oynuyor: kadro değeri ve başarıları neler?**: [Link](https://www.ahaber.com.tr/viral/galeri/liste/bodo-glimt-hangi-ulkenin-takimi-bodo-glimt-hangi-ligde-oynuyor-kadro-degeri-ve-basarilari-neler)
+
+
+### monaco fc (N/A, 22/10/2025 03:34 Lima)
+
+- **Highlights from Matchday 8 in Ligue 1 between Angers and Monaco**: [Link](https://www.asmonaco.com/en/as-monaco-tv/highlights-ligue-1-matchday-8-angers-sco-1-1-as-monaco/)
+- **Folarin Balogun builds on USMNT momentum by scoring goal off bench in Monaco's draw with Angers**: [Link](https://www.goal.com/en-sa/lists/folarin-balogun-usmnt-monaco-angers/blt98f5b116390c43c5)
+- **Prosper Peter vs. AS Monaco – Player props & odds to score a goal on October 18**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/10/18/prosper-peter-soccer-player-props-10-18-2025/86764159007/)
+
+
+### athletic bilbao vs (N/A, 22/10/2025 03:34 Lima)
+
+- **Athletic busca su primer triunfo ante un Qarabag que quiere seguir sorprendiendo**: [Link](https://www.espn.com.pe/futbol/champions-league/nota/_/id/15842962/athletic-club-vs-qarabag-fecha-3-fase-liga-champions-league-equipo-fecha-hora-tv-en-vivo)
+- **Champions League: Athletic Bilbao se enfrentará ante Qarabag por la fecha 3**: [Link](https://rpp.pe/futbol/ligas-internacionales/champions-league-athletic-bilbao-se-enfrentara-ante-qarabag-por-la-fecha-3-noticia-1660237)
+- **Preview:Athletic Bilbao vs Qarabag FK - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/athletic-bilbao/champions-league/preview/athletic-bilbao-vs-qarabag-prediction-team-news-lineups_583960.html)
+
+
+### chaos zero nightmare (N/A, 22/10/2025 03:34 Lima)
+
+- **Chaos Zero Nightmare Reimagines Mobile RPGs Through Cosmic Horror**: [Link](https://currently.att.yahoo.com/att/chaos-zero-nightmare-reimagines-mobile-155019019.html)
+- **[GUIDE] Chaos Zero Nightmare Character Tier List October 2025**: [Link](https://www.gamerbraves.com/guide-chaos-zero-nightmare-character-tier-list-october-2025/)
+- **Chaos Zero Nightmare redeem codes and how to use them (October 2025)**: [Link](https://gamingonphone.com/guides/chaos-zero-nightmare-redeem-codes-and-how-to-use-them/)
+
+
 ### deportivo pereira - envigado (N/A, 21/10/2025 23:28 Lima)
 
 - **Sorpresa en la Copa BetPlay: Envigado elimina al Pereira y se clasifica a semifinales**: [Link](https://www.espn.com.ar/futbol/colombia/nota/_/id/15843749/sorpresa-en-la-copa-betplay-envigado-elimina-al-pereira-y-se-clasifica-a-semifinales)
@@ -988,40 +1023,5 @@ Sin noticias relacionadas disponibles.
 - **Prelim Results | UFC Vancouver**: [Link](https://www.ufc.com/news/ufc-fight-night-de-ridder-vs-allen-vancouver-event-tonight-prelim-live-results)
 - **Live Now! UFC Vancouver ‘De Ridder vs. Allen’ Play-by-Play, Results & Round Scoring**: [Link](https://www.sherdog.com/news/news/UFC-Vancouver-De-Ridder-vs-Allen-PlaybyPlay-Results-Round-Scoring-198748)
 - **Khamzat Chimaev shares savage five-word reaction to Reinier de Ridder 'giving up' at UFC Vancouver**: [Link](https://bloodyelbow.com/2025/10/18/khamzat-chimaev-shares-damning-five-word-reaction-to-reiner-de-ridder-giving-up-at-ufc-vancouver/)
-
-
-### guadalajara - mazatlán (N/A, 18/10/2025 23:27 Lima)
-
-- **Chivas triunfó ante un Mazatlán FC que ofreció poca resistencia**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/15833610/chivas-vs-maztlan-liga-mx-2025-goles-hormiga-gonzalez)
-- **Liga MX: Mazatlán quiere vencer y quitarle la racha positiva a Chivas**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-mazatlan-quiere-vencer-y-quitarle-la-racha-positiva-a-chivas-noticia-1659846)
-- **Cade Cowell y Alan Pulido fueron descartados por Milito, pero podrían tener su revancha muy pronto**: [Link](https://chivaspasion.bolavip.com/ligamx/cade-cowell-y-alan-pulido-fueron-descartados-por-milito-pero-podrian-tener-su-revancha-muy-pronto)
-
-
-### deportivo cali - américa (N/A, 18/10/2025 21:01 Lima)
-
-- **Liga BetPlay: América pide "veedores arbitrales" para el clásico ante Cali**: [Link](https://www.espn.com.ar/futbol/colombia/nota/_/id/15825828/america-pide-veedores-arbitrales-clasico-deportivo-cali-liga-betplay)
-- **VER WIN SPORTS EN VIVO: Cali vs. América por Liga BetPlay**: [Link](https://elcomercio.pe/deporte-total/colombia/win-sports-en-vivo-futbol-libre-tv-cali-vs-america-hoy-gratis-via-win-play-por-clasico-caleno-link-video-noticia/)
-- **Pronóstico Deportivo Cali América de Cali - Liga Postobon 18/10/25**: [Link](https://www.sportytrader.com/es/pronosticos/deportivo-cali-america-de-cali-298101/)
-
-
-### shelao (N/A, 18/10/2025 21:01 Lima)
-
-- **Cómo ver Stream Fighters 4 de Westcol en Kick HOY: paso a paso para no perderte los combates y shows**: [Link](https://www.infobae.com/peru/deportes/2025/10/18/como-ver-stream-fighters-4-de-westcol-en-kick-hoy-paso-a-paso-para-no-perderte-los-combates-y-shows/)
-- **Karely Ruiz vs Karina García EN VIVO Hoy. Shelao convierte el primer KO en la historia de Stream Fighters 2025**: [Link](https://www.marca.com/mx/boxeo/2025/10/18/68f3c6f9c30c377a8efe726a-directo.html)
-- **Stream Fighters 4: horario, peleadores confirmados y artistas invitados para HOY 18 de octubre**: [Link](https://caracol.com.co/2025/10/18/stream-fighters-4-horario-peleadores-confirmados-y-artistas-invitados-para-hoy-18-de-octubre/)
-
-
-### monterrey - pumas (N/A, 18/10/2025 21:01 Lima)
-
-- **VER Monterrey vs. Pumas en vivo: transmisión del partido por Liga MX**: [Link](https://elcomercio.pe/deporte-total/mexico/monterrey-vs-pumas-en-vivo-hoy-gratis-por-liga-mx-via-tudn-canal-5-vix-amazon-prime-futbol-libre-tv-a-que-hora-juegan-canal-de-transmision-y-donde-ver-por-torneo-apertura-video-noticia/)
-- **Liga MX: CF Monterrey necesita sumar de a 3 para escalar a la cima**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-cf-monterrey-necesita-sumar-de-a-3-para-escalar-a-la-cima-noticia-1659845)
-- **¿Por qué no juega Jorge ‘Corcho’ Rodríguez en Rayados vs. Pumas por el Apertura 2025?**: [Link](https://bolavip.com/mx/ligamx/por-que-no-juega-jorge-corcho-rodriguez-en-rayados-vs-pumas-por-el-apertura-2025)
-
-
-### whitecaps - fc dallas (N/A, 18/10/2025 21:01 Lima)
-
-- **Vancouver Whitecaps chase history as Dallas fight for survival on MLS Decision Day**: [Link](https://playingfor90.com/vancouver-whitecaps-chase-history-as-dallas-fight-for-survival-on-mls-decision-day-01k7vj1h2sp8)
-- **Coffee with the Caps, Friday October 17**: [Link](https://thethirdsub.ca/2025/10/17/coffee-with-the-caps-friday-october-17/)
-- **Preview: 'Caps look to clinch first in the West on Decision Day | Watch on MLS Season Pass, TSN**: [Link](https://www.whitecapsfc.com/news/preview-caps-look-to-clinch-first)
 
 
