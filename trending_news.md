@@ -1,3 +1,73 @@
+### deportivo pereira - envigado (N/A, 21/10/2025 23:28 Lima)
+
+- **Sorpresa en la Copa BetPlay: Envigado elimina al Pereira y se clasifica a semifinales**: [Link](https://www.espn.com.ar/futbol/colombia/nota/_/id/15843749/sorpresa-en-la-copa-betplay-envigado-elimina-al-pereira-y-se-clasifica-a-semifinales)
+- **Deportivo Pereira recibe a Envigado por los cuartos de final con una baja sensible en defensa**: [Link](https://www.lapatria.com/deportes/deportivo-pereira-recibe-envigado-por-los-cuartos-de-final-con-una-baja-sensible-en)
+- **Envigado chocará ante DIM en ‘semis’ de Copa tras eliminar a Pereira en vibrante definición**: [Link](https://caracol.com.co/2025/10/22/envigado-chocara-ante-dim-en-semis-de-copa-tras-eliminar-a-pereira-en-vibrante-definicion/)
+
+
+### jesus barcos (N/A, 21/10/2025 23:28 Lima)
+
+- **Alianza Universidad separó a Carlos Ascues, Alexi Gómez y Jesús Barco por indisciplina: el firme comunicado del club huanuqueño**: [Link](https://www.infobae.com/peru/deportes/2025/10/21/alianza-universidad-separo-a-carlos-ascues-alexi-gomez-y-jesus-barco-por-indisciplina-el-firme-comunicado-del-club-huanuqueno/)
+- **Sin pareja y sin chamba: Alianza Universidad separa a Jesús Barco tras imágenes de Magaly TV | VIDEO**: [Link](https://trome.com/espectaculos/tv/jesus-barco-pareja-de-melissa-klug-fue-separado-del-alianza-universidad-de-huanuco-hiena-gomez-y-carlos-ascues-noticia/)
+- **Purga en Alianza Universidad: club separó a tres jugadores por actos de indisciplina**: [Link](https://depor.com/futbol-peruano/descentralizado/purga-en-alianza-universidad-club-separo-a-jesus-barcos-carlos-ascues-y-alexi-gomez-por-actos-de-indisciplina-noticia/)
+
+
+### galatasaray vs (N/A, 21/10/2025 23:28 Lima)
+
+- **Galatasaray out to keep Champions League mojo burning against Bodo | Daily Sabah**: [Link](https://www.dailysabah.com/sports/football/galatasaray-out-to-keep-champions-league-mojo-burning-against-bodo)
+- **Preview:Galatasaray vs Bodo/Glimt - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/galatasaray/champions-league/preview/galatasaray-vs-bodoglimt-prediction-team-news-lineups_584003.html)
+- **Wednesday’s Goals Accumulator Tips: Turkish delight anticipated in 3/1 Acca**: [Link](https://mrfixitstips.co.uk/wednesdays-goals-accumulator-tips-turkish-delight-anticipated-in-3-1-acca/)
+
+
+### melissa klug (N/A, 21/10/2025 23:28 Lima)
+
+- **Las imágenes de Jesús Barco que habrían desatado el comunicado de Melissa Klug: en una piscina, con mujeres y amigos en Huánuco**: [Link](https://www.infobae.com/peru/2025/10/21/las-imagenes-de-jesus-barco-que-habrian-desatado-el-comunicado-de-melissa-klug-en-una-piscina-con-mujeres-y-amigos-en-huanuco/)
+- **Melissa Klug revela por qué eliminó el comunicado de su separación de Jesús Barco**: [Link](https://elcomercio.pe/tvmas/farandula/melissa-klug-revela-por-que-elimino-el-comunicado-de-su-separacion-de-jesus-barco-ultimas-noticia/)
+- **Jesús Barco manda indirecta tras su ampay en una piscina**: [Link](https://www.americatv.com.pe/noticias/espectaculos/jesus-barco-y-su-reaccion-su-ampay-piscina-n512135)
+
+
+### mazatlan vs (N/A, 21/10/2025 23:28 Lima)
+
+- **Liga MX: Se enfrentan Mazatlán y Santos Laguna por la fecha 14**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-se-enfrentan-mazatlan-y-santos-laguna-por-la-fecha-14-noticia-1660173)
+- **Meraz positivo con el futuro de los Cañonros**: [Link](https://www.msn.com/es-mx/deportes/futbol/meraz-positivo-con-el-futuro-de-los-ca%C3%B1onros/ar-AA1OQMSh)
+- **Seguridad para duelo entre Mazatlán FC y Santos en el Estadio El Encanto está lista**: [Link](https://www.noroeste.com.mx/deportes/futbol/seguridad-para-duelo-entre-mazatlan-fc-y-santos-en-el-estadio-el-encanto-esta-lista-JH16885268)
+
+
+### santos bravos (N/A, 21/10/2025 23:28 Lima)
+
+- **Santos Bravos, final en vivo: horarios, integrantes y dónde ver el debut de la boyband latina de HYBE**: [Link](https://www.infobae.com/entretenimiento/2025/10/21/la-gran-final-de-santos-bravos-horarios-y-donde-ver-el-debut-de-la-boyband-latina-de-hybe/)
+- **Santos Bravos final EN VIVO: link oficial para ver el debut de la boy band de HYBE**: [Link](https://elcomercio.pe/saltar-intro/streaming/series/santos-bravos-final-auditorio-nacional-de-mexico-donde-y-a-que-hora-ver-en-vivo-alejandro-aramburu-pablo-carns-iannis-alex-debut-hybe-noticia/)
+- **Alejandro Aramburú: El sueño peruano que vibra en Santos Bravos**: [Link](https://blog.joinnus.com/alejandro-aramburu-el-sueno-peruano-que-vibra-en-santos-bravos/)
+
+
+### monterrey vs (N/A, 21/10/2025 23:28 Lima)
+
+- **Liga MX: CF Monterrey y FC Juárez se miden por la fecha 14**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-cf-monterrey-y-fc-juarez-se-miden-por-la-fecha-14-noticia-1660174)
+- **“¿Y ese quién lo mete?”: Victoria Ruffo responde a Vadhir Derbez tras defender a su padre, Eugenio**: [Link](https://www.facebook.com/MilenioDiario/posts/y-ese-qui%C3%A9n-lo-mete-victoria-ruffo-responde-a-vadhir-derbez-tras-defender-a-su-p/1284291500394985/)
+- **Luis Cárdenas sería titular con Rayados ante Juárez**: [Link](https://www.mediotiempo.com/futbol/liga-mx/luis-cardenas-seria-titular-con-rayados-ante-juarez)
+
+
+### monterrey - juárez (N/A, 21/10/2025 23:28 Lima)
+
+- **Monterrey vs Juarez LIVE Score Updates: half-time (2-0)**: [Link](https://www.vavel.com/en-us/mexican-soccer/2025/10/22/1238434-monterrey-vs-juarez-live-updates-in-liga-mx.html)
+- **Trouble for Rayados: Domenec Torrent to Face Juárez with 4 Key Players Out Due to Injury**: [Link](https://www.soyfutbol.com/en/leagues/trouble-for-rayados-domenec-torrent-to-face-juarez-with-4-key-players-out-due-to-injury-20251021-0038.html)
+- **Club de Fútbol Monterrey Rayados, A.C. - FC Juárez prediction & tips 22.10.2025**: [Link](https://www.transfermarkt.com/betting/tips/cf-monterrey-vs-fc-juarez-prediction-22-10-2025/)
+
+
+### diario el peruano (N/A, 21/10/2025 23:28 Lima)
+
+- **Los 200 años de El Peruano: hoy es la ceremonia principal por su aniversario**: [Link](https://elperuano.pe/noticia/281316-los-200-anos-de-el-peruano-hoy-es-la-ceremonia-principal-por-su-aniversario)
+- **El Peruano digitaliza más de medio millón de páginas y recibe reconocimiento de la Unesco**: [Link](https://andina.pe/agencia/noticia-el-peruano-digitaliza-mas-medio-millon-paginas-y-recibe-reconocimiento-de-unesco-1049171.aspx)
+- **BCRP pone en circulación flamante moneda de S/1 por aniversario del diario oficial El Peruano**: [Link](https://www.infobae.com/peru/2025/10/16/el-bcrp-pone-en-circulacion-flamante-moneda-por-aniversario-del-diario-oficial-el-peruano/)
+
+
+### el peruano normas legales (N/A, 21/10/2025 23:28 Lima)
+
+- **El Peruano te informa: consulta aquí las principales normas legales para hoy, martes 21 de Octubre del 2025**: [Link](https://www.elperuano.pe/noticia/281309-el-peruano-te-informa-consulta-aqui-las-principales-normas-legales-para-hoy-martes-21-de-octubre-del-2025)
+- **Estas son las normas legales más importantes del martes 21 de octubre del 2025**: [Link](https://andina.pe/agencia/noticia-estas-son-las-normas-legales-mas-importantes-del-martes-21-octubre-del-2025-1049063.aspx)
+- **El Peruano te informa: consulta aquí las principales normas legales para hoy, lunes 20 de Octubre del 2025**: [Link](https://elperuano.pe/noticia/281232-el-peruano-te-informa-consulta-aqui-las-principales-normas-legales-para-hoy-lunes-20-de-octubre-del-2025)
+
+
 ### estado de emergencia lima (N/A, 21/10/2025 20:55 Lima)
 
 - **José Jerí anuncia estado de emergencia por 30 días en Lima y Callao para frenar la criminalidad**: [Link](https://elcomercio.pe/lima/seguridad/estado-de-emergencia-lima-y-callao-por-30-dias-para-enfrentar-criminalidad-pcm-jose-jeri-ultimas-noticia/)
@@ -953,75 +1023,5 @@ Sin noticias relacionadas disponibles.
 - **Vancouver Whitecaps chase history as Dallas fight for survival on MLS Decision Day**: [Link](https://playingfor90.com/vancouver-whitecaps-chase-history-as-dallas-fight-for-survival-on-mls-decision-day-01k7vj1h2sp8)
 - **Coffee with the Caps, Friday October 17**: [Link](https://thethirdsub.ca/2025/10/17/coffee-with-the-caps-friday-october-17/)
 - **Preview: 'Caps look to clinch first in the West on Decision Day | Watch on MLS Season Pass, TSN**: [Link](https://www.whitecapsfc.com/news/preview-caps-look-to-clinch-first)
-
-
-### colorado - lafc (N/A, 18/10/2025 21:01 Lima)
-
-- **Player Status Report | LAFC at Colorado - 2025 MLS Season**: [Link](https://www.lafc.com/news/player-status-report-lafc-at-colorado-2025-mls-season-october-18)
-- **Son Heung-min Returns for LAFC's Playoff-Deciding Final Match**: [Link](https://www.chosun.com/english/sports-en/2025/10/19/VPZFEIQPYRH35FKFS33YO5BCGI/)
-- **Colorado Rapids host Los Angeles FC in conference action**: [Link](https://www.heraldbulletin.com/sports/national_sports/colorado-rapids-host-los-angeles-fc-in-conference-action/article_1154c0b8-d2ef-5f96-a1e9-b2d20cd78d2a.html)
-
-
-### new england - chicago fire (N/A, 18/10/2025 21:01 Lima)
-
-- **Revolution end second straight no-playoff season with home draw against Fire**: [Link](https://www.bostonglobe.com/2025/10/18/sports/mls-revolution-chicago-fire-score/)
-- **Match Recap: Stoppage Time Goal Clinches Home Playoff Match for Chicago in a 2-2 draw at New England Revolution**: [Link](https://www.chicagofirefc.com/news/match-recap-stoppage-time-goal-clinches-home-playoff-match-for-chicago-in-a-2-2-draw-at-new-england-revolution)
-- **Fire building momentum ahead of finale vs. Revs**: [Link](https://www.unionleader.com/sports/soccer/fire-building-momentum-ahead-of-finale-vs-revs/article_0ad2a52c-4592-5330-962a-9735ed531114.html)
-
-
-### sam rivers (N/A, 18/10/2025 21:01 Lima)
-
-- **RIP Sam Rivers**: [Link](https://numetalagenda.com/news/story/rip-sam-rivers/)
-- **’90s Rock Band Limp Bizkit Mourns Death of Band Member**: [Link](https://parade.com/news/90s-rock-band-limp-bizkit-mourns-death-of-band-member)
-- **WrestleMania Performer and Limp Bizkit Bassist Sam Rivers Dead at 48**: [Link](https://www.ringsidenews.com/wrestlemania-performer-limp-bizkit-bassist-sam-rivers-dead-48/)
-
-
-### tabla de posiciones liga 1 clausura (N/A, 18/10/2025 21:01 Lima)
-
-- **Así se jugará la fecha 15 del Clausura de la Liga 1 2025**: [Link](https://www.espn.com.pe/futbol/peru/nota/_/id/15822366/programacion-de-la-fecha-15-del-clausura-liga-1-de-peru)
-- **Tabla de posiciones de Liga 1 2025 EN VIVO: acumulado y resultados de la fecha 15 del Clausura**: [Link](https://depor.com/futbol-peruano/descentralizado/tabla-de-posiciones-liga-1-peru-2025-en-vivo-resultados-de-la-fecha-15-torneo-clausura-universitario-de-deportes-cusco-fc-sporting-cristal-alianza-lima-noticia/)
-- **Programación de la fecha 15 del Torneo Clausura de la Liga 1 2025: partidos, horarios y canales de TV**: [Link](https://www.infobae.com/peru/deportes/2025/10/17/programacion-de-la-fecha-15-del-torneo-clausura-de-la-liga-1-2025-partidos-horarios-y-canales-de-tv/)
-
-
-### toluca - querétaro (N/A, 18/10/2025 21:01 Lima)
-
-- **Liga MX: Toluca FC enfrenta a Querétaro buscando seguir en la cima de la tabla**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-toluca-fc-enfrenta-a-queretaro-buscando-seguir-en-la-cima-de-la-tabla-noticia-1659826)
-- **¡Tienes que cerrar el estadio! Alexis Vega anota gol a lo Panenka contra Querétaro**: [Link](https://www.record.com.mx/futbol/liga-mx/toluca/tienes-que-cerrar-el-estadio-alexis-vega-anota-gol-lo-panenka-contra)
-- **¿Por qué no juega Federico Pereira en Toluca vs. Querétaro por la jornada 13 del Apertura 2025?**: [Link](https://bolavip.com/mx/ligamx/por-que-no-juega-federico-pereira-en-toluca-vs-queretaro-por-la-jornada-13-del-apertura-2025)
-
-
-### cusco (N/A, 18/10/2025 21:01 Lima)
-
-- **Aeropuerto de Cusco proyecta movilizar 5 millones de pasajeros este año**: [Link](https://gestion.pe/peru/aeropuerto-de-cusco-proyecta-movilizar-5-millones-de-pasajeros-este-ano-noticia/)
-- **Por primera vez en su historia el aeropuerto de Cusco superará los 5 millones de pasajeros en un año**: [Link](https://www.aviacionline.com/por-primera-vez-en-su-historia-el-aeropuerto-de-cusco-superara-los-5-millones-de-pasajeros-en-un-ano)
-- **Cusco rompe récord histórico: aeropuerto superará los cinco millones de pasajeros en 2025**: [Link](https://www.expreso.com.pe/actualidad/cusco-rompe-record-historico-aeropuerto-superara-los-cinco-millones-de-pasajeros-en-2025-corpac-latam-velasco-astete-noticia/1232284/)
-
-
-### comerciantes unidos - alianza atlético (N/A, 18/10/2025 15:23 Lima)
-
-- **Comerciantes Unidos vs Alianza Atlético en vivo: Hora, canal tv y dónde ver el Clausura**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/comerciantes-unidos-vs-alianza-atletico-hoy-en-vivo-via-l1-max-hora-del-partido-y-donde-ver-futbol-gratis-por-la-fecha-15-del-torneo-clausura-de-liga-1-2025-tdpe-noticia/)
-- **Liga 1: Comerciantes Unidos y Alianza Atlético se encuentran en la fecha 15**: [Link](https://rpp.pe/futbol/descentralizado/liga-1-comerciantes-unidos-y-alianza-atletico-se-encuentran-en-la-fecha-15-noticia-1659788)
-- **Liga 1: Alianza Atlético solo piensa en su rival de turno**: [Link](https://diariocorreo.pe/deportes/liga-1-alianza-atletico-solo-piensa-en-su-rival-de-turno-noticia/)
-
-
-### leicester city - portsmouth (N/A, 18/10/2025 15:23 Lima)
-
-- **Leicester vs Portsmouth Confirmed Lineups for October 18**: [Link](https://lastwordonsports.com/football/2025/10/18/leicester-vs-portsmouth-confirmed-lineups-october/)
-- **Leicester v Pompey team news**: [Link](https://www.portsmouthfc.co.uk/news/2025/october/18/pompey-unchanged-at-leicester/)
-- **Leicester transfer pursuit dismissed as fake amid Portsmouth game boost**: [Link](https://foxesofleicester.com/leicester-transfer-pursuit-dismissed-as-fake-amid-portsmouth-game-boost)
-
-
-### adt vs universitario (N/A, 18/10/2025 15:23 Lima)
-
-- **Cuestión de números: ¿Universitario puede lograr el tricampeonato de la Liga1 ante Sporting Cristal?**: [Link](https://rpp.pe/futbol/descentralizado/universitario-puede-lograr-el-tricampeonato-de-liga1-ante-sporting-cristal-torneo-clausura-cusco-fc-noticia-1659918)
-- **Universitario y la posibilidad de ser tricampeón de la Liga 1 a costa de Sporting Cristal**: [Link](https://www.espn.com.ar/futbol/peru/nota/_/id/15817244/universitario-y-la-posibilidad-de-ser-tricampeon-de-la-liga-1-a-costa-de-sporting-cristal)
-- **Universitario puede ser tricampeón en el partido ante Sporting Cristal: ¿Qué resultados necesita para conseguirlo?**: [Link](https://www.infobae.com/peru/deportes/2025/10/15/universitario-puede-ser-tricampeon-en-el-partido-ante-sporting-cristal-que-resultados-necesita-para-conseguirlo/)
-
-
-### colombia sub-20 - francia sub-20 (N/A, 18/10/2025 15:23 Lima)
-
-- **VER, Colombia-Francia Sub 20 EN VIVO por Gol Caracol y DIRECTV**: [Link](https://elcomercio.pe/deporte-total/colombia/colombia-vs-francia-sub-20-en-vivo-gratis-hoy-via-futbol-libre-tv-gol-caracol-horarios-canales-tv-y-donde-ver-partido-por-tercer-lugar-del-mundial-sub-20-video-noticia/)
-- **Podio y Neiser goleador, lo que busca Colombia en cierre del Mundial Sub 20 de Chile 2025**: [Link](https://www.espn.com.ar/futbol/nota/_/id/15825553/colombia-vs-francia-objetivos-podio-neiser-villarreal-goleador)
-- **El ‘streamer’ argentino Luquitas Rodríguez, habló sobre la mentalidad del jugador colombiano tras la eliminación del Mundial Sub-20: “Juegan sin contexto”**: [Link](https://www.infobae.com/colombia/deportes/2025/10/16/la-teoria-de-luquitas-rodriguez-el-streamer-argentino-tras-la-caida-de-la-seleccion-colombia-sobre-la-mentalidad-del-jugador-cafetero-hasta-en-un-mundial-sub-20/)
 
 
