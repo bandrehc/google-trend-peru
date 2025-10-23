@@ -1,3 +1,73 @@
+### mario vargas llosa (N/A, 22/10/2025 23:28 Lima)
+
+- **La autobiografía de Isabel Preysler en 10 frases: del “estás muy mal educado” al “cuando se me desmoronó la nariz todos quisieron salir corriendo”**: [Link](https://elpais.com/gente/2025-10-23/la-autobiografia-de-isabel-preysler-en-10-frases-del-estas-muy-mal-educado-al-cuando-se-me-desmorono-la-nariz-todos-quisieron-salir-corriendo.html)
+- **La incómoda reacción de Álvaro Vargas Llosa ante la revelación de las memorias de Isabel Preysler**: [Link](https://www.infobae.com/peru/2025/10/22/la-incomoda-reaccion-de-alvaro-vargas-llosa-ante-la-revelacion-de-las-memorias-de-isabel-preysler/)
+- **Isabel Preysler publica íntimas cartas de amor de Mario Vargas Llosa y afirma: "Él era feliz conmigo"**: [Link](https://rpp.pe/famosos/celebridades/isabel-preysler-publica-intimas-cartas-de-amor-de-mario-vargas-llosa-en-su-libro-mi-verdadera-historia-noticia-1660424)
+
+
+### portland timbers (N/A, 22/10/2025 23:28 Lima)
+
+- **Reeling Timbers look to rebound during Wednesday’s wild card playoff round**: [Link](https://www.oregonlive.com/timbers/2025/10/reeling-timbers-look-to-rebound-during-wednesdays-wild-card-playoff-round.html)
+- **LIVE/FREE: Portland vs Real Salt Lake LIVE STREA.Ms MLS GAME TODAY On (10/22/25)**: [Link](https://www.griceconnect.com/classifieds/homes-rentals-and-real-estate/open-houses/2037570)
+- **Real Salt Lake Timbers Soccer**: [Link](https://www.couriernews.com/sports/real-salt-lake-timbers-soccer/image_c7ef702b-4d76-5876-9783-65efaa64b485.html)
+
+
+### joinnus soda stereo (N/A, 22/10/2025 23:28 Lima)
+
+- **Soda Stereo en Perú: precios de entradas y preventa para el show que traerá de vuelta a Gustavo Cerati**: [Link](https://www.infobae.com/peru/2025/10/21/soda-stereo-en-peru-precios-de-entradas-y-preventa-para-el-show-que-traera-de-vuelta-a-gustavo-cerati/)
+- **Soda Stereo en Lima 2026: ¡Así puedes comprar tus entradas para el concierto!**: [Link](https://blog.joinnus.com/soda-stereo-en-lima-2026-asi-puedes-comprar-tus-entradas-para-el-concierto/)
+- **Soda Stereo en Lima: precios y cómo comprar entradas para su concierto en Arena 1**: [Link](https://rpp.pe/musica/conciertos/soda-stereo-en-lima-2026-precios-y-como-comprar-entradas-en-joinnus-para-concierto-con-gustavo-cerati-virtual-en-arena-1-noticia-1660451)
+
+
+### atlas - león (N/A, 22/10/2025 23:28 Lima)
+
+- **Liga MX: León quiere romper su racha negativa y ganar frente a Atlas**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-leon-quiere-romper-su-racha-negativa-y-ganar-frente-a-atlas-noticia-1660350)
+- **Introducing ChatGPT Atlas**: [Link](https://openai.com/index/introducing-chatgpt-atlas/)
+- **The battle for the future of the internet is underway**: [Link](https://www.cnn.com/2025/10/22/tech/openai-chatgpt-atlas-browser-google-chrome-ai)
+
+
+### tijuana - toluca (N/A, 22/10/2025 23:28 Lima)
+
+- **Tijuana vs Toluca EN VIVO Hoy. Gilberto Mora vs Alexis Vega en Liga MX 2025**: [Link](https://www.marca.com/mx/futbol/liga-mx/tijuana-toluca/2025/10/23/01_0159_20251023_4690_1286-directo.html)
+- **Pronóstico Tijuana Deportivo Toluca FC - Liga MX 22/10/25**: [Link](https://www.sportytrader.com/es/pronosticos/tijuana-deportivo-toluca-298599/)
+- **Liga MX: Toluca FC necesita sumar de a 3 puntos para mantenerse en la cima**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-toluca-fc-necesita-sumar-de-a-3-puntos-para-mantenerse-en-la-cima-noticia-1660351)
+
+
+### liga mx (N/A, 22/10/2025 23:28 Lima)
+
+- **Chivas decepcionó ante Querétaro y cortó racha de duelos invicto**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/15853386/queretaro-vs-chivas-liga-mx-2025-goles-resultado)
+- **El ‘Ecua-Queretaro gano con Jhojan Julio y Jonathan Perlaza para ilusionarse con Playoffs de Liga MX**: [Link](https://www.futbolecuador.com/site/noticia/el-ecua-queretaro-gano-con-jhojan-julio-y-jonathan-perlaza-para-ilusionarse-con-playoffs-de-liga-mx/164102)
+- **La reacción de Gabriel Milito al ver el gol de Querétaro tras error de Rubén González**: [Link](https://www.elfutbolero.com.mx/ligamx/la-reaccion-de-gabriel-milito-al-ver-el-gol-de-queretaro-tras-error-de-ruben-gonzalez-20251023-144734.html)
+
+
+### pumas - atl. san luis (N/A, 22/10/2025 23:28 Lima)
+
+- **Liga MX: Atl. de San Luis se enfrentará a Pumas UNAM por la fecha 14**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-atl-de-san-luis-se-enfrentara-a-pumas-unam-por-la-fecha-14-noticia-1660352)
+- **Pumas' Keylor Navas reveals the position he dreamed of playing before becoming a legendary goalkeeper**: [Link](https://www.foxsports.com/articles/soccer/pumas-keylor-navas-reveals-the-position-he-dreamed-of-playing-before-becoming-a-legendary-goalkeeper)
+- **Liga MX: Pumas' Epic Blunder in Passing Up Arsenal Star Gabriel Martinelli**: [Link](https://www.soyfutbol.com/en/news/liga-mx-pumas-epic-blunder-in-passing-up-arsenal-star-gabriel-martinelli-20251022-0034.html)
+
+
+### copa sudamericana (N/A, 22/10/2025 23:28 Lima)
+
+- **Gabriel Castellón: "Ante Lanús, los detalles van a marcar la diferencia"**: [Link](https://www.espn.com.ar/futbol/copa-sudamericana/nota/_/id/15849647/gabriel-castellon-ante-lanus-los-detalles-van-a-marcar-la-diferencia)
+- **¡Con sed de revancha! Universidad de Chile vuelve a verse las caras con Lanús por la CONMEBOL Sudamericana**: [Link](https://espndeportes.espn.com/futbol/copa-sudamericana/nota/_/id/15847268/universidad-de-chile-vuelve-a-verse-las-caras-con-lanus-conmebol-sudamericana-semifinales-2025)
+- **Gustavo Álvarez habló sobre el partido con Lanús: “Nosotros vamos a jugar como una verdadera final”**: [Link](https://tribuna.com/es/news/2025-10-23-gustavo-alvarez-hablo-sobre-el-partido-con-lanus-nosotros-vamos-a-jugar-como-una-verdader/)
+
+
+### boston celtics (N/A, 22/10/2025 23:28 Lima)
+
+- **HOW TO WATCH SIXERS-CELTS AND ‘INSIDE THE NBA’**: [Link](https://bvmsports.com/2025/10/22/how-to-watch-sixers-celts-and-inside-the-nba/)
+- **Dominick Barlow News: Starting in 76ers debut**: [Link](https://www.rotowire.com/basketball/headlines/dominick-barlow-news-starting-in-76ers-debut-500144)
+- **10/22 Game Preview: 76ers at Celtics**: [Link](https://www.nba.com/celtics/news/gamepreview-20251022-phibos)
+
+
+### tomahawk (N/A, 22/10/2025 23:28 Lima)
+
+- **Trump calls for Ukraine to be carved up with Russia after tense meeting with Zelenskyy**: [Link](https://www.cnbc.com/2025/10/20/trump-shifts-weight-behind-putin-after-tense-meeting-with-zelenskyy.html)
+- **US-made Tomahawk is a tried and tested missile – but it’s out of Ukraine’s reach for now**: [Link](https://www.cnn.com/2025/10/20/europe/us-tomahawk-missile-ukraine-analysis-intl)
+- **Trump urged Ukraine's Zelenskiy to make concessions to Russia in tense meeting, sources say**: [Link](https://www.reuters.com/world/trump-urged-zelenskiy-cut-deal-with-putin-or-risk-facing-destruction-ft-reports-2025-10-19/)
+
+
 ### américa tv (N/A, 22/10/2025 20:51 Lima)
 
 Sin noticias relacionadas disponibles.
@@ -953,72 +1023,5 @@ Sin noticias relacionadas disponibles.
 - **Exclusive expert opinion: Who will win the U-20 World Cup final in Chile?**: [Link](https://foot-africa.com/en/news/exclusive-expert-opinion-who-will-win-the-u-20-world-cup-final-in-chile-925664/)
 - **Hakimi Sends Encouragement to Morocco U20 Ahead of World Cup Final**: [Link](https://www.moroccoworldnews.com/2025/10/264184/hakimi-sends-encouragement-to-morocco-u20-ahead-of-world-cup-final/)
 - **Argentina U20 starting eleven for U20 World Cup final**: [Link](https://mundoalbiceleste.com/2025/10/19/argentina-u20-starting-eleven-for-u20-world-cup-final/)
-
-
-### libertad fc - u. católica (N/A, 19/10/2025 20:58 Lima)
-
-Sin noticias relacionadas disponibles.
-
-
-### union minas (N/A, 19/10/2025 20:58 Lima)
-
-- **UNT ganó, pero no le alcanzó para eliminar a Unión Minas y se despide de la Etapa Nacional de la Copa Perú**: [Link](https://www.futbolperuano.com/copa-peru/noticias/unt-vs-union-minas-se-enfrentan-en-vivo-online-por-la-vuelta-de-los-octavos-de-final-de-la-copa-peru-2025-543958)
-- **Copa Perú: Unión Minas goleó a Universidad Nacional de Tumbes en la ida de los cuartos**: [Link](https://tudiariohuanuco.pe/deporte/copa-peru-union-minas-goleo-a-universidad-nacional-de-tumbes-en-la-ida-de-los-cuartos/)
-- **Unión Minas pone un pie en los cuartos de final de la Copa Perú tras golear a UNT de Tumbes en condición de local**: [Link](https://www.futbolperuano.com/copa-peru/noticias/union-minas-pone-un-pie-en-los-cuartos-de-final-de-la-copa-peru-tras-golear-a-unt-de-tumbes-en-condicion-de-local-543118)
-
-
-### bahia vs gremio (N/A, 19/10/2025 20:58 Lima)
-
-- **With 4 out, Mano names Bahia v Grêmio squad, likely line-up here**: [Link](https://ca.sports.yahoo.com/news/4-mano-names-bahia-v-203000864.html)
-- **Grêmio unsure about Alysson, but boosted by three returns**: [Link](https://ca.sports.yahoo.com/news/gr-mio-unsure-alysson-boosted-132700317.html)
-
-
-### coritiba - paranaense (N/A, 19/10/2025 20:58 Lima)
-
-- **Coritiba x Athletico ao vivo 19/10: onde assistir, horário, escalações e palpites**: [Link](https://portaln10.com.br/todocanal/televisao/coritiba-x-athletico-ao-vivo-19-10-onde-assistir-horario-escalacoes-e-palpites/)
-- **Quem foi o melhor do Atletiba? E o pior? Confira as notas de cada jogador**: [Link](https://www.bandab.com.br/esporte/futebol/melhor-pior-atletiba-notas-couto-pereira-serie-b-2025/)
-- **Odair Hellmann detona arbitragem do Atletiba e responde se demitiria a si mesmo se fosse diretor do Athletico**: [Link](https://www.bemparana.com.br/esportes/atletico-paranaense/odair-hellmann-detona-arbitragem-do-atletiba-e-responde-se-demitiria-a-si-mesmo-se-fosse-diretor-do-athletico/)
-
-
-### franco mastantuono (N/A, 19/10/2025 15:24 Lima)
-
-- **Estadísticas de Franco Mastantuono con Real Madrid vs Getafe**: [Link](https://www.365scores.com/es/news/estadisticas-de-franco-mastantuono-hoy/)
-- **Mastantuono y su estadística de clase mundial en un Real Madrid que se planta y no jugará los primeros 15 segundos contra el Getafe**: [Link](https://www.ole.com.ar/futbol-internacional/espana/franco-mastantuono-real-madrid-getafe-estadistica-clase-mundial-extremo-remates-jugara-segundos_0_05CatZIBu1.html)
-- **Bronca Mastantuono-Alaba**: [Link](https://as.com/futbol/primera/bronca-mastantuono-alaba-f202510-n/)
-
-
-### universitario vs ayacucho (N/A, 19/10/2025 15:24 Lima)
-
-- **Universitario vs Ayacucho FC VIVO: ¿a qué hora juegan y dónde ver la fecha 15 del Torneo Clausura?**: [Link](https://rpp.pe/futbol/descentralizado/universitario-vs-ayacucho-fc-en-vivo-a-que-hora-juegan-en-lima-y-donde-ver-fecha-15-torneo-clausura-2025-via-golperu-partidos-de-hoy-noticia-1659970)
-- **Universitario vs Ayacucho FC: Instrucciones para el proceso de acreditación**: [Link](https://universitario.pe/noticias/noticias-primer-equipo/universitario-vs-ayacucho-fc-instrucciones-para-el-proceso-de-acreditacion-2)
-- **Jorge Fossati calificó de “bobos” a detractores de Álex Valera y afirmó que Universitario está en “desventaja” tras programación en Liga 1 2025**: [Link](https://www.infobae.com/peru/deportes/2025/10/17/jorge-fossati-califico-de-bobos-a-detractores-de-alex-valera-y-afirmo-que-universitario-esta-en-desventaja-tras-programacion-en-liga-1-2025/)
-
-
-### garcilaso vs cristal (N/A, 19/10/2025 15:24 Lima)
-
-- **Cuándo juegan Deportivo Garcilaso vs. Sporting Cristal por la Liga 1: equipo, fecha, hora y TV en vivo**: [Link](https://www.espn.com.ar/futbol/peru/nota/_/id/15829589/sporting-cristal-vs-deportivo-garcilaso-clausura-liga-1-de-peru-equipo-fecha-hora-tv-vivo)
-- **Deportivo Garcilaso vs. Sporting Cristal: ¿a qué hora juegan y dónde ver EN VIVO por la fecha 15 del Clausura?**: [Link](https://rpp.pe/futbol/descentralizado/sporting-cristal-vs-deportivo-garcilaso-en-vivo-ver-l1max-transmision-en-cusco-fecha-15-torneo-clausura-2025-link-gratis-partidos-de-hoy-noticia-1659953)
-- **Alineaciones de Sporting Cristal vs Garcilaso: el novedoso once de Autuori para ganar en Cusco**: [Link](https://libero.pe/futbol-peruano/sporting-cristal/2025/10/18/alineaciones-de-sporting-cristal-vs-deportivo-garcilaso-torneo-clausura-2025-formacion-del-partido-de-hoy-1405494)
-
-
-### aucas - emelec (N/A, 19/10/2025 15:24 Lima)
-
-- **Guillermo Duró recalcó la importancia del duelo contra Aucas**: [Link](https://www.espn.com.ar/futbol/ecuador/nota/_/id/15832582/guillermo-duro-recalco-la-importancia-del-duelo-contra-aucas)
-- **[En vivo] Aucas vs. Emelec por el segundo hexagonal de la Liga Ecuabet**: [Link](https://www.eluniverso.com/deportes/campeonato-ecuatoriano/en-vivo-aucas-vs-emelec-por-el-segundo-hexagonal-de-la-liga-ecuabet-nota/)
-- **Juan Pablo Buch, entrenador del Aucas: “Hay que encarar el partido contra Emelec con mucha inteligencia”**: [Link](https://www.ecuavisa.com/deportes/futbol-nacional/juan-pablo-buch-entrenador-aucas-encarar-partido-emelec-ligapro-OK10290079)
-
-
-### atlético grau - utc cajamarca (N/A, 19/10/2025 15:24 Lima)
-
-- **UTC vs Atletico Grau EN VIVO: sigue la transmisión del Torneo Clausura**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/atletico-grau-vs-utc-en-vivo-hora-y-donde-ver-el-torneo-clausura-2025-video-liga-1-l1play-l1max-resumen-y-goles-tdpe-noticia/)
-- **Liga 1: Grau se enfrentará ante UTC por la fecha 15**: [Link](https://rpp.pe/futbol/descentralizado/liga-1-grau-se-enfrentara-ante-utc-por-la-fecha-15-noticia-1659917)
-- **Atlético Grau vs Universidad Técnica pronostico y comparación de cuotas 19.10.2025**: [Link](https://www.livetipsportal.com/es/pronosticos-apuestas-deportivas/atletico-grau-vs-universidad-tecnica-primera-division-11445134/)
-
-
-### blast slam iv (N/A, 19/10/2025 15:24 Lima)
-
-- **BLAST Slam IV: playoff match!**: [Link](https://navi.gg/en/publications/d2-blast-slam-iv-vs-aurora)
-- **Team Falcons, Tundra Esports start fast at BLAST Slam IV**: [Link](https://www.yardbarker.com/general_sports/articles/team_falcons_tundra_esports_start_fast_at_blast_slam_iv/s1_17061_42901178)
-- **Top Dota 2 Teams Confirmed for BLAST Dota Slam Singapore 2025**: [Link](https://finance.yahoo.com/news/top-dota-2-teams-confirmed-102600801.html)
 
 
