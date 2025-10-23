@@ -1,3 +1,73 @@
+### lille (N/A, 23/10/2025 15:25 Lima)
+
+- **Preview:Lille vs PAOK - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/lille/europa-league/preview/lille-vs-paok-prediction-team-news-lineups_584009.html)
+- **Lille predicted XI v PAOK Salonique: Hamza Igamane to start ahead of Olivier Giroud**: [Link](https://www.getfootballnewsfrance.com/2025/lille-predicted-xi-v-paok-salonique-hamza-igamane-to-start-ahead-of-olivier-giroud/)
+- **Guidance for fans travelling to Lille**: [Link](https://www.paokfc.gr/en/news/20251021-odigie-gia-tous-ekdromeis-sto-lille/)
+
+
+### mainz 05 - zrinjski (N/A, 23/10/2025 15:25 Lima)
+
+- **“Matches are the best kind of training”**: [Link](https://www.mainz05.de/en/news-en/press-conference-mostar-uecl-2526)
+- **Mainz - Hsk Zrinjski Mostar: Live Score, Stream and H2H results 23/10/2025**: [Link](https://tribuna.com/en/match/102773238/)
+- **Confirmed lineups: Mainz 05 vs. Zrinjski Mostar**: [Link](https://bulinews.com/confirmed-lineups-mainz-05-zrinjski-mostar)
+
+
+### mainz vs (N/A, 23/10/2025 15:25 Lima)
+
+- **Ex-Juwel erklärt Eintracht-„Privileg“ vor Rückkehr nach Deutschland**: [Link](https://www.fr.de/eintracht-frankfurt/ex-juwel-erklaert-eintracht-privileg-vor-rueckkehr-nach-deutschland-zr-94001001.html)
+- **Mainz schont Quartett in der Conference League**: [Link](https://www.ligainsider.de/1-fsv-mainz-05/17/mainz-schont-quartett-in-der-conference-league-403808/)
+- **Mainz 05: So stimmen sich 3.200 Mostar-Fans in der Stadt ein**: [Link](https://www.allgemeine-zeitung.de/lokales/mainz/stadt-mainz/mainz-05-so-stimmen-sich-3200-mostar-fans-in-der-stadt-ein-5090589)
+
+
+### malmo vs (N/A, 23/10/2025 15:25 Lima)
+
+- **Malmö FF vs Dinamo Zagreb: UEFA Europa League stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c5yp7w8z7qdt)
+- **Coach Kovačević and Dominguez: We are looking forward to the match, we want to confirm our role as favorites on the field**: [Link](https://gnkdinamo.hr/en/news/article/coach-kovacevic-and-dominguez-we-are-looking-forward-to-the-match-we-want-to-confirm-our-role-as-favorites-on-the-field)
+- **Malmo vs Dinamo Zagreb Preview & Prediction | 2025-26 UEFA Europa League | League Phase**: [Link](https://www.thestatszone.com/malmo-vs-dinamo-zagreb-preview-prediction-2025-26-uefa-europa-league-league-phase-154523)
+
+
+### as roma (N/A, 23/10/2025 15:25 Lima)
+
+- **Roma-Viktoria Plzen | UFFICIALI: le scelte su Dybala e Dovbyk, Ziolkowski ✅**: [Link](https://onefootball.com/id/berita/roma-viktoria-plzen-ufficiali-le-scelte-su-dybala-e-dovbyk-ziolkowski-41847236)
+- **Roma - Viktoria Plzen, le formazioni ufficiali di Gasperini e Hysky**: [Link](https://www.virgilio.it/italia/roma/notizielocali/roma_viktoria_plzen_le_formazioni_ufficiali_di_gasperini_e_hysky-75918184.html)
+- **Roma-Viktoria Plzen LIVE, risultato in diretta della partita di Europa League**: [Link](https://www.fanpage.it/sport/live/roma-viktoria-plzen-live-risultato-in-diretta-della-partita-di-europa-league/)
+
+
+### freiburg (N/A, 23/10/2025 15:25 Lima)
+
+- **Liveticker | SC Freiburg - FC Utrecht : | 3. Spieltag | Europa League 2025/26**: [Link](https://www.kicker.de/freiburg-gegen-utrecht-2025-europa-league-5170490/ticker)
+- **Schuster hofft auf Osterhage gegen Leverkusen**: [Link](https://www.ligainsider.de/patrick-osterhage_20826/schuster-hofft-auf-osterhage-gegen-leverkusen-403739/)
+- **Fans aus Utrecht entern die Freiburger Altstadt**: [Link](https://www.badische-zeitung.de/fans-aus-utrecht-entern-die-freiburger-altstadt)
+
+
+### roma vs (N/A, 23/10/2025 15:25 Lima)
+
+- **Roma busca recuperarse ante un Viktoria Plzen que sueña con la clasificación**: [Link](https://www.espn.com.pe/futbol/uefa-europa-league/nota/_/id/15847853/roma-vs-viktoria-plzen-europa-league-equipo-fecha-hora-tv-en-vivo)
+- **Pronóstico Roma - Plzen. Europa League | 23/10/2025**: [Link](https://gainblers.com/pe/pronosticos/futbol/europa/europa-league/pronostico-roma-plzen-23-10-2025/)
+- **Europa League: Roma y Viktoria Plzen se encuentran en la fecha 3**: [Link](https://rpp.pe/futbol/ligas-internacionales/europa-league-roma-y-viktoria-plzen-se-encuentran-en-la-fecha-3-noticia-1660433)
+
+
+### losc - paok (N/A, 23/10/2025 15:25 Lima)
+
+- **Habitué des surprises en Europe, comment Bruno Genesio (LOSC) prépare-t-il son groupe ?**: [Link](https://lepetitlillois.com/2025/10/23/habitue-des-surprises-en-europe-comment-bruno-genesio-losc-prepare-t-il-son-groupe/)
+- **Ligue Europa : Programme et enjeux de la J3**: [Link](https://africafootunited.com/ligue-europa-programme-et-enjeux-de-la-j3/)
+- **Direct vidéo Lille - PAOK : 0-2, Meïté et Zivkovic jettent un froid sur le stade Pierre Mauroy**: [Link](https://www.rtbf.be/article/europa-league-thomas-meunier-et-lille-veulent-enchainer-face-au-paok-direct-video-21h-11620039)
+
+
+### roma (N/A, 23/10/2025 15:25 Lima)
+
+- **Eventi a Roma nel weekend dal 24 al 26 ottobre 2025**: [Link](https://www.romaweekend.it/articoli/eventi-roma-weekend-266/)
+- **Che fare a Roma e Litorale romano nel weekend dal 24 al 26 ottobre: dove si entra gratis**: [Link](https://canaledieci.it/2025/10/23/che-fare-a-roma-e-litorale-romano-nel-weekend-dal-24-al-26-ottobre-dove-si-entra-gratis/)
+- **Roma-Viktoria Plzen | UFFICIALI: le scelte su Dybala e Dovbyk, Ziolkowski ✅**: [Link](https://onefootball.com/id/berita/roma-viktoria-plzen-ufficiali-le-scelte-su-dybala-e-dovbyk-ziolkowski-41847236)
+
+
+### taylor fritz (N/A, 23/10/2025 15:25 Lima)
+
+- **ATP Basel Best Bets Including Korda vs Humbert**: [Link](https://lastwordonsports.com/tennis/2025/10/21/atp-basel-best-bets-including-korda-vs-humbert/)
+- **Fritz founders in Basel**: [Link](https://www.puntodebreak.com/en/2025/10/23/fritz-founders-in-basel)
+- **Tennis, ATP – Swiss Indoors 2025: Humbert beats Korda**: [Link](https://www.tennismajors.com/atp/swiss-indoors-humbert-through-to-second-round-838226.html)
+
+
 ### olympique lyon (N/A, 23/10/2025 11:30 Lima)
 
 - **OL : Les supporters de Bâle narguent le préfet**: [Link](https://www.foot01.com/ol/ol-les-supporters-de-bale-narguent-le-prefet)
@@ -958,75 +1028,5 @@ Sin noticias relacionadas disponibles.
 - **Shanghai Shenhua vs FC Seoul: pronósticos, cuotas, transmisión y datos para apostar!**: [Link](https://www.apwin.com/es/pronosticos/shanghai-shenhua-vs-fc-seoul-pronostico-afc-champions-league-22-10-2025/)
 - **Melbourne City FC vs Buriram United: pronósticos, cuotas, transmisión y datos para apostar!**: [Link](https://www.apwin.com/es/pronosticos/melbourne-city-fc-vs-buriram-united-pronostico-afc-champions-league-21-10-2025/)
 - **Al Hilal vs Al Sadd: pronósticos, cuotas, transmisión y datos para apostar!**: [Link](https://www.apwin.com/es/pronosticos/al-hilal-vs-al-sadd-pronostico-afc-champions-league-21-10-2025/)
-
-
-### sport huancayo vs alianza lima (N/A, 20/10/2025 11:30 Lima)
-
-- **A qué hora juega Alianza Lima vs Sport Huancayo HOY: partido por el Torneo Clausura de la Liga 1 2025**: [Link](https://www.infobae.com/peru/deportes/2025/10/19/a-que-hora-juega-alianza-lima-vs-sport-huancayo-partido-fecha-15-torneo-clausura-liga-1-2025-horario/)
-- **Liga 1 Max online: cómo ver partido de Alianza Lima vs. Sport Huancayo por Torneo Clausura**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/liga-1-max-en-vivo-gratis-futbol-libre-tv-alianza-lima-vs-sport-huancayo-hoy-por-internet-por-liga-1-video-noticia/)
-- **Sin Quevedo y con el regreso de Gorosito: Convocados de Alianza Lima vs. Sport Huancayo**: [Link](https://depor.com/futbol-peruano/descentralizado/alianza-lima-vs-sport-huancayo-convocados-de-nestor-gorosito-por-torneo-clausura-2025-liga-1-noticia/)
-
-
-### keiko fujimori (N/A, 20/10/2025 11:30 Lima)
-
-- **URGENTE: declaran fundado hábeas corpus de Keiko Fujimori en caso Cócteles [Expediente 02109-2024-PHC/TC]**: [Link](https://lpderecho.pe/declaran-fundado-habeas-corpus-de-keiko-fujimori-en-caso-cocteles-expediente-02109-2024-phc-tc/)
-- **Tribunal Constitucional deja sin efecto investigación contra Keiko Fujimori en caso 'Cócteles'**: [Link](https://rpp.pe/politica/judiciales/tribunal-constitucional-deja-sin-efecto-investigacion-contra-keiko-fujimori-en-caso-cocteles-noticia-1660104)
-- **TC declara improcedente hábeas corpus de Keiko Fujimori**: [Link](https://www.elperuano.pe/noticia/281280-caso-cocteles-tc-reafirma-limites-del-habeas-corpus-y-su-uso-en-casos-penales-complejos)
-
-
-### poder judicial (N/A, 20/10/2025 11:30 Lima)
-
-- **Tomás Gálvez sobre reposición de Delia Espinoza: “A la Fiscalía de la Nación todavía no se notifica nada”**: [Link](https://elcomercio.pe/politica/justicia/tomas-galvez-sobre-reposicion-de-delia-espinoza-a-la-fiscalia-de-la-nacion-todavia-no-se-notifica-nada-junta-nacional-de-justicia-jnj-ultimas-noticia/)
-- **JNJ buscaría leguleyada para no reponer a fiscal Delia Espinoza | PICO A PICO con Mabel Cáceres (VIDEO)**: [Link](https://elbuho.pe/2025/10/jnj-buscaria-leguleyada-para-no-reponer-a-fiscal-delia-espinoza-pico-a-pico-con-mabel-caceres-video/)
-- **Tomás Gálvez: La Fiscalía de la Nación es una entidad que no se centra ni se concentra en personas**: [Link](https://canaln.pe/actualidad/tomas-galvez-ministerio-publico-institucion-que-trasciende-personas-n487618)
-
-
-### sga (N/A, 20/10/2025 11:30 Lima)
-
-- **What's next for OKC? Three paths forward for SGA and the champs**: [Link](https://www.espn.com/nba/story/_/id/46629011/oklahoma-city-thunder-repeat-champions-2025-2026-nba-finals-history-breakdown)
-- **Oklahoma City Thunder 2025-26 season preview: Can the champs snap the repeat curse?**: [Link](https://sports.yahoo.com/nba/article/oklahoma-city-thunder-2025-26-season-preview-can-the-champs-snap-the-repeat-curse-134149241.html)
-- **NBA opening night: Thunder chase repeat, Doncic leads Lakers' charge in James' absence**: [Link](https://www.reuters.com/sports/nba-opening-night-thunder-chase-repeat-doncic-leads-lakers-charge-james-absence-2025-10-20/)
-
-
-### aws (N/A, 20/10/2025 11:30 Lima)
-
-- **Huge global outage impacts Amazon, Fortnite and Snapchat | CNN Business**: [Link](https://www.cnn.com/business/live-news/amazon-tech-outage-10-20-25-intl)
-- **Coinbase, Robinhood down as Amazon outage briefly cripples the internet**: [Link](https://fortune.com/crypto/2025/10/20/coinbase-robinhood-aws-outage-snapchat-hulu-crypto-services/)
-- **Amazon Says Website Outages Ease After Disruption**: [Link](https://www.nytimes.com/live/2025/10/20/business/aws-down-internet-outage)
-
-
-### precio del dólar (N/A, 20/10/2025 07:51 Lima)
-
-- **Precio del dólar en Perú, domingo 19 de octubre: a cuánto cerró el tipo de cambio hoy**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-2025-a-cuanto-esta-el-dolar-este-domingo-19-de-octubre-tipo-de-cambio-segun-bcrp-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
-- **Precio del dólar sigue en caída: Así se cotiza el tipo de cambio hoy 19 de octubre en Perú**: [Link](https://www.infobae.com/peru/2025/10/17/dolar-cotizacion-de-apertura-hoy-17-de-octubre-en-peru/)
-- **Precio del dólar Perú y tipo de cambio hoy 20 de octubre del 2025**: [Link](https://rpp.pe/economia/economia/precio-del-dolar-peru-y-tipo-de-cambio-hoy-20-de-octubre-del-2025-noticia-1660073)
-
-
-### señor de los milagros (N/A, 20/10/2025 07:51 Lima)
-
-- **Cardenal Barreto celebra la misa al Señor de los Milagros en el Vaticano**: [Link](https://www.vaticannews.va/es/vaticano/news/2025-10/en-san-pietro-el-cardenal-barreto-celebra-la-misa-por-el-senor.html)
-- **La gran procesión internacional del Señor de los Milagros en el Vaticano será transmitida y recibirá la bendición del Papa León XIV**: [Link](https://www.infobae.com/peru/2025/10/15/la-gran-procesion-internacional-del-senor-de-los-milagros-en-el-vaticano-sera-transmitida-y-culminara-con-la-bendicion-del-papa-leon-xiv/)
-- **Papa León XIV bendijo la imagen del Señor de los Milagros en Roma**: [Link](https://caretas.pe/mundo/papa-leon-xiv-bendijo-la-imagen-del-senor-de-los-milagros-en-roma/)
-
-
-### cronograma retiro afp (N/A, 20/10/2025 07:51 Lima)
-
-- **Retiro de AFP: ¿Qué administradoras tienen link y en cuáles se solicita por agencia virtual?**: [Link](https://www.infobae.com/peru/2025/10/18/retiro-de-afp-que-administradoras-tienen-link-y-en-cuales-se-solicita-por-agencia-virtual/)
-- **Octavo Retiro AFP 2025: ¿Cómo solicitar el desembolso de tu dinero?**: [Link](https://elcomercio.pe/respuestas/tramites/retiro-afp-2025-como-solicitar-el-desembolso-de-hasta-4-uit-de-manera-sencilla-y-online-tdpe-noticia/)
-- **¡Retiro de AFP hasta 4 UIT! Conoce la nueva ley del Congreso 👏**: [Link](https://comunicaciones.congreso.gob.pe/tv-congreso/retiro-de-afp-hasta-4-uit-conoce-la-nueva-ley-del-congreso-%F0%9F%91%8F/)
-
-
-### hora (N/A, 20/10/2025 07:51 Lima)
-
-- **Pedro Sánchez propondrá a la Unión Europea acabar con el cambio de hora porque “ya no tiene sentido”**: [Link](https://www.infobae.com/espana/2025/10/20/pedro-sanchez-propondra-a-la-union-europea-acabar-con-el-cambio-de-hora-porque-ya-no-tiene-sentido/)
-- **Con el cambio de horario en España este 26 de octubre 2025: ¿Se duerme más o menos? | tdpe | RESPUESTAS**: [Link](https://elcomercio.pe/respuestas/espana/con-el-cambio-de-horario-en-espana-este-26-de-octubre-2025-se-duerme-mas-o-menos-tdpe-noticia/)
-- **"Me parece una broma la solemnidad con la que te diriges para hablar de la hora", Rubén Amón, sobre la**: [Link](https://www.ondacero.es/noticias/espana/parece-broma-solemnidad-que-diriges-hablar-hora-ruben-amon-propuesta-pedro-sanchez_2025102068f5f90b7e4993614beca817.html)
-
-
-### temblor hoy perú (N/A, 20/10/2025 07:51 Lima)
-
-- **IGP Temblor en Perú Lima hoy 20 de octubre magnitud y epicentro último sismo**: [Link](https://rpp.pe/lima/desastres-naturales/temblor-en-peru-hoy-19-de-octubre-magnitud-y-epicentro-del-sismo-segun-igp-live-3007)
-- **Temblor hoy en Perú, lunes 20 de octubre: sismo de magnitud 4.1 afectoʻ la región Huanuco**: [Link](https://andina.pe/agencia/noticia-temblor-hoy-peru-lunes-20-octubre-sismo-magnitud-41-afecto%CA%BB-region-huanuco-1048935.aspx)
-- **Tres sismos en 48 horas remecen el sur de la región de Lima**: [Link](https://www.redpat.tv/detalle/tres-sismos-en-48-horas-remecen-el-sur-de-la-region-de-lima)
 
 
