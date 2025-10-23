@@ -1,3 +1,45 @@
+### feyenoord (N/A, 23/10/2025 03:33 Lima)
+
+- **Uitleg • Wat zeggen de UEFA-regels over het verplaatsen van een Europa League-wedstrijd?**: [Link](https://1908.nl/artikelen/uitleg-wat-zeggen-de-uefa-regels-over-het-verplaatsen-van-een-europa-league-wedstrijd)
+- **Robin van Persie krijgt lachers op hand in Feyenoord-kleedkamer bij bekendmaken opstelling tegen Panathinaikos**: [Link](https://www.telegraaf.nl/sport/voetbal/robin-van-persie-krijgt-lachers-op-hand-in-feyenoord-kleedkamer-bij-bekendmaken-opstelling-tegen-panathinaikos/99410300.html)
+- **Dit is de gevaarlijkste speler van Feyenoord-opponent Panathinaikos**: [Link](https://www.voetbalprimeur.nl/nieuws/1704534/dit-is-de-gevaarlijkste-speler-van-feyenoord-opponent-panathinaikos.html)
+
+
+### cristal vs universitario (N/A, 23/10/2025 03:33 Lima)
+
+- **A qué hora juega Universitario vs Sporting Cristal: partido pendiente por el Torneo Clausura de la Liga 1 2025**: [Link](https://www.infobae.com/peru/deportes/2025/10/22/a-que-hora-juega-universitario-vs-sporting-cristal-partido-pendiente-fecha-14-torneo-clausura-liga-1-2025-horario/)
+- **Sporting Cristal va por el golpe: la alineación que alista Autuori para recibir a Universitario**: [Link](https://rpp.pe/futbol/descentralizado/sporting-cristal-vs-universitario-alineacion-rimense-con-luis-abram-en-estadio-nacional-por-torneo-clausura-2025-fotos-noticia-1660506)
+- **Sergio Leal: “Tiene un sabor especial ganarle a Universitario porque es uno de los clásicos”**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/sergio-leal-tiene-un-sabor-especial-ganarle-a-universitario-porque-es-uno-de-los-clasicos-sporting-cristal-ultimas-noticia/)
+
+
+### feyenoord vs (N/A, 23/10/2025 03:33 Lima)
+
+- **Kick-off times for Feyenoord and AZ Alkmaar matches changed due to weather conditions**: [Link](https://www.uefa.com/uefaeuropaleague/news/029e-1f05e575bff7-98f28e3b46f5-1000--kick-off-times-for-feyenoord-and-az-alkmaar-matches-changed-/)
+- **Europa League Matchday 3 Best Bets: Back Rogers To Star for Aston Villa In The Netherlands**: [Link](https://www.sportscasting.com/uk/news/europa-league-matchday-3-best-bets-23-10-25/)
+- **Feyenoord vs. Panathinaikos - Boxscore - October 23, 2025**: [Link](https://www.foxsports.com/soccer/europa-league-feyenoord-vs-panathinaikos-oct-23-2025-game-boxscore-644382?tab=boxscore)
+
+
+### jnj delia espinoza (N/A, 23/10/2025 03:33 Lima)
+
+- **JNJ determina que Delia Espinoza no retornará como Fiscal de la Nación**: [Link](https://rpp.pe/politica/judiciales/delia-espinoza-ya-no-sera-fiscal-de-la-nacion-jnj-noticia-1660534)
+- **Delia Espinoza: Subcomisión del Congreso admite denuncia por no acatar reposición de Patricia Benavides**: [Link](https://elcomercio.pe/politica/congreso/delia-espinoza-subcomision-de-acusaciones-constitucionales-del-congreso-admite-denuncia-por-no-acatar-reposicion-de-patricia-benavides-junta-nacional-de-justicia-jnj-ultimas-noticia/)
+- **JNJ acata mandato judicial y tramita reposición de Delia Espinoza**: [Link](https://caretas.pe/politica/jnj-acata-mandato-judicial-y-tramita-reposicion-de-delia-espinoza/)
+
+
+### joinnus (N/A, 23/10/2025 03:33 Lima)
+
+- **Soda Stereo en Perú: precios de entradas y preventa para el show que traerá de vuelta a Gustavo Cerati**: [Link](https://www.infobae.com/peru/2025/10/21/soda-stereo-en-peru-precios-de-entradas-y-preventa-para-el-show-que-traera-de-vuelta-a-gustavo-cerati/)
+- **Soda Stereo en Lima 2026: ¡Así puedes comprar tus entradas para el concierto!**: [Link](https://blog.joinnus.com/soda-stereo-en-lima-2026-asi-puedes-comprar-tus-entradas-para-el-concierto/)
+- **Soda Stereo en Lima: precios y cómo comprar entradas para su concierto en Arena 1**: [Link](https://rpp.pe/musica/conciertos/soda-stereo-en-lima-2026-precios-y-como-comprar-entradas-en-joinnus-para-concierto-con-gustavo-cerati-virtual-en-arena-1-noticia-1660451)
+
+
+### atlas (N/A, 23/10/2025 03:33 Lima)
+
+- **Introducing ChatGPT Atlas**: [Link](https://openai.com/index/introducing-chatgpt-atlas/)
+- **The battle for the future of the internet is underway**: [Link](https://www.cnn.com/2025/10/22/tech/openai-chatgpt-atlas-browser-google-chrome-ai)
+- **OpenAI’s new browser is a broadside shot at Google**: [Link](https://techcrunch.com/2025/10/21/openais-new-browser-is-a-broadside-shot-at-google/)
+
+
 ### mario vargas llosa (N/A, 22/10/2025 23:28 Lima)
 
 - **La autobiografía de Isabel Preysler en 10 frases: del “estás muy mal educado” al “cuando se me desmoronó la nariz todos quisieron salir corriendo”**: [Link](https://elpais.com/gente/2025-10-23/la-autobiografia-de-isabel-preysler-en-10-frases-del-estas-muy-mal-educado-al-cuando-se-me-desmorono-la-nariz-todos-quisieron-salir-corriendo.html)
@@ -981,47 +1023,5 @@ Sin noticias relacionadas disponibles.
 
 - **Pronóstico Bahia - Gremio. Brasileirao Serie A | 20/10/2025**: [Link](https://gainblers.com/pe/pronosticos/futbol/brasil/brasileirao-serie-a/pronostico-bahia-gremio-20-10-2025/)
 - **Pronóstico Bahia - Gremio. Brasileirao Serie A | 20/10/2025**: [Link](https://gainblers.com/pe/pronosticos/futbol/brasil/brasileirao-serie-a/pronostico-bahia-gremio-20-10-2025/)
-
-
-### concierto san marcos hoy (N/A, 19/10/2025 20:58 Lima)
-
-- **Imagine Dragons en Lima: horario, accesos, setlist y más para su concierto en el Estadio San Marcos**: [Link](https://www.infobae.com/peru/2025/10/19/imagine-dragons-en-lima-horario-accesos-setlist-y-mas-para-su-concierto-en-el-estadio-san-marcos/)
-- **Imagine Dragons en Lima: setlist de canciones, horarios y lo que se sabe sobre su concierto en el estadio San Marcos**: [Link](https://rpp.pe/musica/conciertos/imagine-dragons-en-lima-setlist-con-canciones-horario-mapa-y-lo-que-se-sabe-sobre-concierto-en-estadio-san-marcos-noticia-1659866)
-- **Metro de Santiago anuncia extensión de horario en Línea 1 y Línea 5: estas estaciones funcionarán hasta más tarde el martes 21 de octubre**: [Link](https://www.encancha.cl/enlahora/movilidad/2025/10/19/metro-de-santiago-anuncia-extension-de-horario-en-linea-1-y-linea-5-estas-estaciones-funcionaran-hasta-mas-tarde-el-martes-21-de-octubre/)
-
-
-### goiás - chapecoense (N/A, 19/10/2025 20:58 Lima)
-
-- **Time que liderou a Série B por 16 rodadas despenca para 6º lugar**: [Link](https://noataque.com.br/futebol/brasileirao-serie-b/time/goias/noticia/2025/10/19/time-que-liderou-a-serie-b-por-16-rodadas-despenca-para-6o-lugar/)
-- **Chapecoense vence o Goiás fora de casa e é vice-líder da Série B**: [Link](https://ndmais.com.br/futebol/chapecoense-vence-o-goias-fora-de-casa-e-e-vice-lider-da-serie-b/)
-- **Goiás: Carille ganha reforço para jogo contra a Chapecoense**: [Link](https://esmeraldino.com/carille-reforco-chapecoense/)
-
-
-### tabla de posiciones liga 1 acumulado (N/A, 19/10/2025 20:58 Lima)
-
-- **Tabla de posiciones de la Liga 1 Perú 2025 EN VIVO: así van los equipos en la fecha 15 del Torneo Clausura y Acumulada**: [Link](https://www.infobae.com/peru/deportes/2025/10/18/tabla-de-posiciones-liga-1-peru-2025-en-vivo-hoy-acumulada-fecha-15-torneo-clausura-programacion-resultados/)
-- **Así se jugará la fecha 15 del Clausura de la Liga 1 2025**: [Link](https://www.espn.com.pe/futbol/peru/nota/_/id/15822366/programacion-de-la-fecha-15-del-clausura-liga-1-de-peru)
-- **Tabla de posiciones de Liga 1 2025 EN VIVO: acumulado y resultados de la fecha 15 del Clausura**: [Link](https://depor.com/futbol-peruano/descentralizado/tabla-de-posiciones-liga-1-peru-2025-en-vivo-resultados-de-la-fecha-15-torneo-clausura-universitario-de-deportes-cusco-fc-sporting-cristal-alianza-lima-noticia/)
-
-
-### othmane maamma (N/A, 19/10/2025 20:58 Lima)
-
-- **Avis d'expert exclusif : qui remportera la finale de la Coupe du monde U-20 au Chili ?**: [Link](https://foot-africa.com/actualites/avis-dexpert-exclusif-qui-remportera-la-finale-de-la-coupe-du-monde-u-20-au-chili-925664/)
-- **"Il reste un dernier effort" : Le joli message d'Achraf Hakimi aux joueurs du Maroc avant la finale de la Coupe du Monde U20**: [Link](https://tribuna.com/fr/blogs/il-reste-un-dernier-effort-le-joli-message-dachraf-hakimi-au/)
-- **Le Maroc, l’autre géant du football mondial**: [Link](https://www.bladi.net/maroc-autre-geant-football-mondial,117460.html)
-
-
-### rodrigo paz (N/A, 19/10/2025 20:58 Lima)
-
-- **Elecciones de Bolivia 2025, en vivo: votaciones, resultados y más**: [Link](https://cnnespanol.cnn.com/latinoamerica/live-news/resultados-elecciones-bolivia-2025-quiroga-paz-orix)
-- **Rodrigo Paz ganó un histórico balotaje y se convirtió en el presidente electo de Bolivia**: [Link](https://www.infobae.com/america/america-latina/2025/10/20/rodrigo-paz-gano-un-historico-balotaje-y-se-convirtio-en-el-presidente-electo-de-bolivia/)
-- **Quiénes son Rodrigo Paz y Tuto Quiroga, los aspirantes a presidente de Bolivia (y por quién se decantará el voto de la izquierda)**: [Link](https://elcomercio.pe/mundo/latinoamerica/quienes-son-rodrigo-paz-y-jorge-tuto-quiroga-los-aspirantes-a-presidente-de-bolivia-y-por-quien-se-decantara-el-voto-de-izquierda-tras-casi-20-anos-en-el-poder-noticia/)
-
-
-### yassir zabiri (N/A, 19/10/2025 20:58 Lima)
-
-- **Exclusive expert opinion: Who will win the U-20 World Cup final in Chile?**: [Link](https://foot-africa.com/en/news/exclusive-expert-opinion-who-will-win-the-u-20-world-cup-final-in-chile-925664/)
-- **Hakimi Sends Encouragement to Morocco U20 Ahead of World Cup Final**: [Link](https://www.moroccoworldnews.com/2025/10/264184/hakimi-sends-encouragement-to-morocco-u20-ahead-of-world-cup-final/)
-- **Argentina U20 starting eleven for U20 World Cup final**: [Link](https://mundoalbiceleste.com/2025/10/19/argentina-u20-starting-eleven-for-u20-world-cup-final/)
 
 
