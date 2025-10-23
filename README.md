@@ -1,3 +1,71 @@
+### américa tv (N/A, 22/10/2025 20:51 Lima)
+
+Sin noticias relacionadas disponibles.
+
+
+### copa sudamericana 2025 (N/A, 22/10/2025 20:51 Lima)
+
+- **Gabriel Castellón: "Ante Lanús, los detalles van a marcar la diferencia"**: [Link](https://www.espn.com.ar/futbol/copa-sudamericana/nota/_/id/15849647/gabriel-castellon-ante-lanus-los-detalles-van-a-marcar-la-diferencia)
+- **¡Con sed de revancha! Universidad de Chile vuelve a verse las caras con Lanús por la CONMEBOL Sudamericana**: [Link](https://espndeportes.espn.com/futbol/copa-sudamericana/nota/_/id/15847268/universidad-de-chile-vuelve-a-verse-las-caras-con-lanus-conmebol-sudamericana-semifinales-2025)
+- **Gustavo Álvarez habló sobre el partido con Lanús: “Nosotros vamos a jugar como una verdadera final”**: [Link](https://tribuna.com/es/news/2025-10-23-gustavo-alvarez-hablo-sobre-el-partido-con-lanus-nosotros-vamos-a-jugar-como-una-verdader/)
+
+
+### querétaro - guadalajara (N/A, 22/10/2025 20:51 Lima)
+
+- **Chivas vs. Querétaro hoy en vivo: horario, canal de transmisión y dónde ver por Liga MX**: [Link](https://elcomercio.pe/deporte-total/mexico/chivas-vs-queretaro-en-vivo-online-gratis-hoy-via-caliente-tv-futbol-libre-tv-fox-sports-vix-amazon-prime-horarios-canales-y-donde-ver-partido-por-liga-mx-video-noticia/)
+- **"Él era feliz conmigo" 🗣️ Isabel Preysler pública apasionadas cartas de amor de Mario Vargas Llosa https://mile.io/3L3HVBl**: [Link](https://www.facebook.com/MilenioDiario/photos/%C3%A9l-era-feliz-conmigo-%EF%B8%8Fisabel-preysler-p%C3%BAblica-apasionadas-cartas-de-amor-de-mari/1285193200304815/)
+- **¡Regaló un gol de vestidor! El terrible ‘oso’ de Fernando González en el Chivas vs. Querétaro**: [Link](https://chivaspasion.bolavip.com/ligamx/regalo-un-gol-de-vestidor-el-terrible-oso-de-fernando-gonzalez-en-el-chivas-vs-queretaro)
+
+
+### jorge carrascal (N/A, 22/10/2025 20:51 Lima)
+
+- **Jorge Carrascal, el crack colombiano que llegó al Flamengo en su mejor momento**: [Link](https://www.eldestapeweb.com/deportes/copa-libertadores-2025/jorge-carrascal-el-crack-colombiano-que-llego-al-flamengo-en-su-mejor-momento-2025102222120)
+- **No lo llamó Lorenzo esta vez y siguió encendido en su club: mete presión para el Mundial 2026**: [Link](https://www.semana.com/deportes/articulo/no-lo-llamo-lorenzo-esta-vez-y-siguio-encendido-en-su-club-mete-presion-para-el-mundial-2026/202553/)
+- **Leyenda del Atlético de Madrid elogió a ex Millonarios: "es especial"**: [Link](https://eldeportivo.com.co/colombianos-en-el-exterior/leyenda-del-atletico-de-madrid-elogio-a-ex-millonarios-es-especial/)
+
+
+### www.america tv (N/A, 22/10/2025 20:51 Lima)
+
+- **Programación de la Noche Blanquiazul 2025 de Alianza Lima: partidos, horarios y canal TV del cuadrangular de vóley**: [Link](https://www.infobae.com/peru/deportes/2025/10/22/programacion-de-la-noche-blanquiazul-2025-de-alianza-lima-partidos-horarios-y-canal-tv-del-cuadrangular-de-voley/)
+- **¡Vive la Noche Blanquiazul de Vóley en América TV y tvGO!**: [Link](https://www.americatv.com.pe/deportes/polideportivo/vive-noche-blanquiazul-voley-america-tv-y-tvgo-n451412)
+- **La FPV cedió a su petición: Alianza Lima confirmó cambio de horario en su partido debut de la Liga Peruana de Vóley**: [Link](https://depor.com/futbol-peruano/descentralizado/alianza-lima-fpv-aprobo-cambio-de-horario-en-duelo-frente-a-kazoku-no-peru-para-no-chocar-con-la-noche-blanquiazul-liga-peruana-de-voley-noticia/)
+
+
+### voto de confianza (N/A, 22/10/2025 20:51 Lima)
+
+- **Congreso otorgó voto de confianza al gabinete de Ernesto Álvarez con 79 votos a favor**: [Link](https://comunicaciones.congreso.gob.pe/noticias/congreso-otorgo-voto-de-confianza-al-gabinete-de-ernesto-alvarez-con-62-votos-a-favor/)
+- **Bancadas se pronuncian y piden a Ernesto Álvarez lucha frontal contra inseguridad ciudadana y no descuidar inversiones**: [Link](https://comunicaciones.congreso.gob.pe/noticias/bancadas-se-pronuncian-y-piden-a-ernesto-alvarez-lucha-frontal-contra-inseguridad-ciudadana-y-no-descuidar-inversiones/)
+- **Gobierno solicitará al Congreso facultades legislativas por 90 días por "situación crítica" de la inseguridad ciudadana**: [Link](https://rpp.pe/politica/congreso/gobierno-de-ernesto-alvarez-solicitara-facultades-legislativas-por-90-dias-para-combatir-inseguridad-ciudadana-noticia-1660554)
+
+
+### pachuca - tigres (N/A, 22/10/2025 20:51 Lima)
+
+- **Pachuca vs. Tigres, Liga MX: horario, canal de transmisión y dónde ver por Torneo Apertura**: [Link](https://elcomercio.pe/deporte-total/mexico/pachuca-vs-tigres-en-vivo-online-gratis-hoy-via-caliente-tv-fox-sports-futbol-libre-tv-tudn-amazon-prime-horarios-canales-y-donde-ver-partido-por-liga-mx-video-noticia/)
+- **Liga MX: Pachuca y Tigres se encuentran en la fecha 14**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-pachuca-y-tigres-se-encuentran-en-la-fecha-14-noticia-1660333)
+- **¿Por qué no juega Oussama Idrissi en Pachuca vs. Tigres UANL por la jornada 14 del Apertura 2025?**: [Link](https://bolavip.com/mx/ligamx/por-que-no-juega-oussama-idrissi-en-pachuca-vs-tigres-uanl-por-la-jornada-14-del-apertura-2025)
+
+
+### atlético nacional (N/A, 22/10/2025 20:51 Lima)
+
+- **Copa Betplay: Nacional derrota a Once Caldas y avanza a las semifinales**: [Link](https://espndeportes.espn.com/futbol/colombia/nota/_/id/15847139/copa-betplay-nacional-derrota-a-once-caldas-y-avanza-a-las-semifinales)
+- **Atlético Nacional vs. Once Caldas, Copa Colombia: horario, canal de transmisión y dónde ver por cuartos de final**: [Link](https://elcomercio.pe/deporte-total/colombia/atletico-nacional-vs-once-caldas-en-vivo-online-gratis-via-win-sports-futbol-libre-tv-y-fanatiz-horarios-canales-y-donde-ver-partido-por-copa-colombia-2025-video-noticia/)
+- **Atlético Nacional vs Once Caldas hoy: Resultado EN VIVO, minuto a minuto y goles del partido**: [Link](https://www.365scores.com/es/news/atletico-nacional-vs-once-copa-vivo/)
+
+
+### celtics - 76ers (N/A, 22/10/2025 20:51 Lima)
+
+- **HOW TO WATCH SIXERS-CELTS AND ‘INSIDE THE NBA’**: [Link](https://bvmsports.com/2025/10/22/how-to-watch-sixers-celts-and-inside-the-nba/)
+- **Dominick Barlow News: Starting in 76ers debut**: [Link](https://www.rotowire.com/basketball/headlines/dominick-barlow-news-starting-in-76ers-debut-500144)
+- **10/22 Game Preview: 76ers at Celtics**: [Link](https://www.nba.com/celtics/news/gamepreview-20251022-phibos)
+
+
+### conmebol (N/A, 22/10/2025 20:51 Lima)
+
+- **Universitario de Deportes es el primer club peruano clasificado a la Copa Libertadores 2026**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/universitario-de-deportes-es-el-primer-club-peruano-clasificado-a-la-copa-libertadores-2026-ultimas-noticia/)
+- **¡Saca cara por el Perú! Universitario es uno de los 10 equipos clasificados hasta ahora a la Copa Libertadores 2026**: [Link](https://rpp.pe/futbol/copa-libertadores/universitario-en-copa-libertadores-2025-estos-son-los-equipos-clasificados-hasta-ahora-noticia-1660358)
+- **Conmebol los aplaude: Universitario es el primer club peruano clasificado a la Copa Libertadores 2026**: [Link](https://depor.com/futbol-peruano/copa-libertadores/el-primer-club-peruano-la-conmebol-y-la-bienvenida-a-universitario-en-la-copa-libertadores-2026-noticia/)
+
+
 ### alexander isak (N/A, 22/10/2025 15:27 Lima)
 
 - **Arsene Wenger shares his honest verdict on Alexander Isak’s start to life at Liverpool**: [Link](https://www.rousingthekop.com/2025/10/22/arsene-wenger-shares-his-honest-verdict-on-alexander-isaks-start-to-life-at-liverpool/)
@@ -952,75 +1020,5 @@ Sin noticias relacionadas disponibles.
 - **BLAST Slam IV: playoff match!**: [Link](https://navi.gg/en/publications/d2-blast-slam-iv-vs-aurora)
 - **Team Falcons, Tundra Esports start fast at BLAST Slam IV**: [Link](https://www.yardbarker.com/general_sports/articles/team_falcons_tundra_esports_start_fast_at_blast_slam_iv/s1_17061_42901178)
 - **Top Dota 2 Teams Confirmed for BLAST Dota Slam Singapore 2025**: [Link](https://finance.yahoo.com/news/top-dota-2-teams-confirmed-102600801.html)
-
-
-### union comercio (N/A, 19/10/2025 15:24 Lima)
-
-- **Unión Comercio vs CD Moquegua EN VIVO: juega por la semifinal vuelta de la Liga2**: [Link](https://rpp.pe/futbol/segunda-division/union-comercio-vs-ucv-moquegua-en-vivo-que-canal-transmite-vuelta-semifinal-de-liga-2-2025-por-tv-partidos-de-hoy-noticia-1659952)
-- **Liga 2: Resultados de los partidos de las semifinales de la segunda división**: [Link](https://www.futbolperuano.com/liga-2/noticias/liga-2-resultados-de-los-partidos-de-las-semifinales-de-la-segunda-division-543934)
-- **Así van los playoffs de la Segunda División por el ascenso a la Liga 1**: [Link](https://espndeportes.espn.com/futbol/peru/nota/_/id/15810006/asi-van-los-playoffs-de-la-segunda-division-por-el-ascenso-a-la-liga-1)
-
-
-### kylian mbappé (N/A, 19/10/2025 15:24 Lima)
-
-- **Kylian Mbappé to be ready for Real Madrid’s match vs Getafe - report**: [Link](https://www.managingmadrid.com/real-madrid-cf-players/99353/kylian-mbappe-to-be-ready-for-real-madrids-match-vs-getafe-report)
-- **Deschamps discusses Nkunku’s condition and Maignan as captain: “Volume, technical, mastery”**: [Link](https://sempremilan.com/deschamps-nkunku-condition-maignan-captain)
-- **Mbappe cleared to play as Real Madrid announce Getafe squad**: [Link](https://www.besoccer.com/new/mbappe-cleared-to-play-as-real-madrid-announce-getafe-squad-1377694)
-
-
-### liga 2 (N/A, 19/10/2025 15:24 Lima)
-
-- **FC Cajamarca vs César Vallejo EN VIVO: se enfrentan por la semifinal vuelta de la Liga2**: [Link](https://rpp.pe/futbol/segunda-division/fc-cajamarca-vs-cesar-vallejo-en-vivo-a-que-hora-y-donde-ver-vuelta-semifinal-de-liga-2-2025-via-youtube-fpf-partidos-de-hoy-noticia-1659930)
-- **FC CAJAMARCA ELIMINA A CÉSAR VALLEJO Y ESTÁ EN LA FINAL DE LA LIGA 2**: [Link](https://sinrodeoscajamarca.com/fc-cajamarca-elimina-a-cesar-vallejo-y-esta-en-la-final-de-la-liga-2/)
-- **FC Cajamarca va con todo por su pase a la final de la Liga 2 ante UCV**: [Link](https://larotativa.pe/fc-cajamarca-va-con-todo-por-su-pase-a-la-final-de-la-liga-2-ante-ucv/)
-
-
-### dgo (N/A, 19/10/2025 15:24 Lima)
-
-- **DIRECTV EN VIVO GRATIS: cómo ver Argentina vs. Marruecos por TV y DGO online | Final Mundial Sub-20 2025**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/directv-en-vivo-gratis-como-ver-partido-argentina-vs-marruecos-por-futbol-tv-y-dgo-online-final-mundial-sub-20-2025-nnda-nnse-noticia/)
-- **Real Madrid visita a Getafe buscando mantener la cima de LaLiga**: [Link](https://www.espn.com.pe/futbol/espana/nota/_/id/15814003/getafe-vs-real-madrid-fecha-9-laliga-fecha-hora-estadio-y-tv-en-vivo)
-- **VER Real Madrid vs. Getafe en vivo: transmisión del partido por LaLiga**: [Link](https://elcomercio.pe/deporte-total/espana/real-madrid-vs-getafe-en-vivo-directo-por-laliga-via-movistar-plus-laliga-tv-amazon-prime-directv-futbol-libre-tv-a-que-hora-juegan-que-canal-televisa-y-donde-ver-partido-de-hoy-video-noticia/)
-
-
-### atalanta vs (N/A, 19/10/2025 11:26 Lima)
-
-- **Preview: Atalanta vs Lazio - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/atalanta-bc/preview/atalanta-vs-lazio-prediction-team-news-lineups_583760.html)
-- **Atalanta vs Lazio – Ivan Juric speaks before key game against Biancocelesti**: [Link](https://football-italia.net/atalanta-vs-lazio-ivan-juric/)
-- **Lazio's Tactical Gambit Against Atalanta**: [Link](https://www.ilmessaggero.it/en/lazio_s_tactical_gambit_against_atalanta-9131455.html)
-
-
-### cristal vs (N/A, 19/10/2025 11:26 Lima)
-
-- **Alan Diez fulminó a Franco Velazco por polémico comentario contra Sporting Cristal: “No vale imitar a Jean Ferrari”**: [Link](https://www.infobae.com/peru/deportes/2025/10/18/alan-diez-fulmino-a-franco-velazco-por-polemico-comentario-contra-sporting-cristal-no-vale-imitar-a-jean-ferrari/)
-- **Julio César Uribe en desacuerdo: Sporting Cristal vs Universitario se juega solo con hinchada local**: [Link](https://depor.com/futbol-peruano/descentralizado/sporting-cristal-vs-universitario-se-jugara-en-el-estadio-nacional-solo-con-hinchada-local-a-pesar-de-que-julio-cesar-uribe-abrio-la-posibilidad-de-jugar-con-ambas-hinchadas-liga-1-video-noticia/)
-- **Uribe y la dura respuesta a Velazco por hablar del Gallardo**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/uribe-le-dio-firme-respuesta-velazco-criticar-gallardo-n451393)
-
-
-### coquimbo unido - colo-colo (N/A, 19/10/2025 11:26 Lima)
-
-- **Coquimbo Unido recibe a Colo Colo por la fecha 24 de la Liga de Primera 2025**: [Link](https://www.espn.com.ar/futbol/chile/nota/_/id/15155160/coquimbo-vs-colo-colo-fecha-24-liga-de-primera-2025-equipo-fecha-hora)
-- **Ortiz y el duelo ante Coquimbo: "Como institución grande, tenemos que ir a proponer"**: [Link](https://espndeportes.espn.com/futbol/chile/nota/_/id/15825636/fernando-ortiz-y-el-duelo-ante-coquimbo-unido-como-institucion-grande-tenemos-que-ir-a-proponer)
-- **La sorpresiva decisión que golpeó a Pavez**: [Link](https://chile.as.com/futbol/la-sorpresiva-decision-que-golpeo-a-pavez-f202510-n/)
-
-
-### real sociedad (N/A, 19/10/2025 11:26 Lima)
-
-- **Celta - Real Sociedad live**: [Link](https://www.marca.com/en/soccer/laliga-ea-sports/celta-real-sociedad/2025/10/19/01_0101_20251019_176_188-live.html)
-- **RC Celta de Vigo vs. Real Sociedad Prediction, Picks, Live Odds - October 19**: [Link](https://www.bleachernation.com/picks/2025/10/18/rc-celta-de-vigo-vs-real-sociedad-prediction-picks-live-odds-october-19/)
-- **How to Watch RC Celta de Vigo vs. Real Sociedad: Live Stream, TV Channel, Start Time | 10/19/2025**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/10/15/how-to-watch-rc-celta-de-vigo-vs-real-sociedad-live-stream-tv-10-19-2025/86708358007/)
-
-
-### levante - rayo vallecano (N/A, 19/10/2025 11:26 Lima)
-
-- **Pronóstico Levante Rayo Vallecano - LaLiga 19/10/25**: [Link](https://www.sportytrader.com/es/pronosticos/levante-rayo-vallecano-298114/)
-- **Levante - Rayo Vallecano, en directo: LaLiga EA Sports, en vivo**: [Link](https://as.com/futbol/primera/levante-rayo-vallecano-en-directo-laliga-ea-sports-en-vivo-f202510-d/)
-- **Levante - Rayo | Dos rivales con el guapo subido: previa, posibles onces y pronóstico**: [Link](https://www.marca.com/futbol/primera-division/2025/10/18/levante-rayo-dos-rivales-guapo-subido-previa-posibles-onces-pronostico.html)
-
-
-### senne lammens (N/A, 19/10/2025 11:26 Lima)
-
-- **LIVE - Hij krijgt meteen knuffels! Met uitstekende beenveeg houdt Lammens United recht in topper tegen Liverpool**: [Link](https://sporza.be/nl/matches/voetbal/buitenland/eng/premier-league/2025-2026/regulier/08/liverpool-manchester-united-live-hij-krijgt-meteen-knuffels-met-uitstekende-beenveeg-houdt-lammens-united-recht-in-topper-tegen-liverpool~1750778163951/)
-- **“Stress? Heb ik totaal geen last meer van”: zelfs op bezoek bij Liverpool staat Senne Lammens onbezorgd onder de lat bij Man United**: [Link](https://www.hbvl.be/sport/voetbal/stress-heb-ik-totaal-geen-last-meer-van-zelfs-op-bezoek-bij-liverpool-staat-senne-lammens-onbezorgd-onder-de-lat-bij-man-united/98395822.html)
-- **Lammens ook in de basis tegen Liverpool? “Goed mogelijk dat hij opnieuw start”**: [Link](https://www.voetbalprimeur.be/nieuws/1703121/senne-lammens-op-doel-tegen-liverpool.html)
 
 
