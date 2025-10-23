@@ -1,3 +1,17 @@
+### resultados de la tinka hoy (N/A, 23/10/2025 08:02 Lima)
+
+- **Sorteo de La Tinka: revisa aquí los resultados y jugada del domingo 19 de octubre**: [Link](https://elcomercio.pe/respuestas/loterias/la-tinka-hoy-domingo-19-de-octubre-en-vivo-resultados-del-ultimo-sorteo-numeros-y-jugada-ganadora-pozo-millonario-loteria-resultado-si-o-si-boliyapa-intralot-lbposting-noticia/)
+- **La Tinka sorprende con 11 ganadores: ¿cuántos acertaron en el sorteo del 19 de octubre de 2025?**: [Link](https://www.infobae.com/peru/2025/10/20/resultados-de-la-tinka-numeros-ganadores-del-domingo-19-de-octubre-de-2025/)
+- **La Tinka: revisa AQUÍ los resultados del miércoles 22 de octubre de 2025**: [Link](https://www.expreso.com.pe/variedades/la-tinka-revisa-aqui-los-resultados-del-miercoles-22-de-octubre-de-2025-sorteo-loteria-pozo-aciertos-peru-noticia/1233459/)
+
+
+### hora peru (N/A, 23/10/2025 08:02 Lima)
+
+- **ABB en Perú: empresas mineras del país están diluyendo hasta US$125.000 por hora en electricidad sin darle ningún uso**: [Link](https://www.infobae.com/peru/2025/10/20/abb-las-empresas-mineras-en-peru-estan-diluyendo-hasta-us125000-por-hora-en-electricidad-sin-darle-ningun-uso/)
+- **Temblor hoy en Perú, miércoles 22 de octubre: sismo de magnitud 4.0 sacude Chimbote**: [Link](https://andina.pe/agencia/noticia-temblor-hoy-peru-miercoles-22-octubre-sismo-magnitud-40-sacude-chimbote-1049183.aspx)
+- **Dos sismos de regular magnitud remecieron Arequipa en menos de una hora**: [Link](https://rpp.pe/peru/arequipa/arequipa-dos-sismos-remecieron-la-region-en-menos-de-una-hora-noticia-1660498)
+
+
 ### feyenoord (N/A, 23/10/2025 03:33 Lima)
 
 - **Uitleg • Wat zeggen de UEFA-regels over het verplaatsen van een Europa League-wedstrijd?**: [Link](https://1908.nl/artikelen/uitleg-wat-zeggen-de-uefa-regels-over-het-verplaatsen-van-een-europa-league-wedstrijd)
@@ -1010,18 +1024,5 @@ Sin noticias relacionadas disponibles.
 - **Jefferson Farfán le pidió a Gianluca Lapadula jugar por Alianza Lima junto a Luis Advíncula y lanzó sorpresiva promesa: “Yo pongo de la mía”**: [Link](https://www.infobae.com/peru/deportes/2025/10/17/jefferson-farfan-le-pidio-a-gianluca-lapadula-jugar-por-alianza-lima-junto-a-luis-advincula-y-lanzo-sorpresiva-promesa-yo-pongo-de-la-mia/)
 - **¿‘Foquita’ abre billetera para que Gianluca Lapadula llegue a Alianza Lima? [VIDEO]**: [Link](https://trome.com/deportes/futbol-peruano/jefferson-farfan-abre-billetera-para-que-gianluca-lapadula-llegue-a-alianza-lima-video-liga-1-serie-b-spezia-noticia/)
 - **Jefferson Farfán le pide a Gianluca Lapadula que fiche por Alianza Lima**: [Link](https://www.futbolperuano.com/liga-1/noticias/jefferson-farfan-le-pide-a-gianluca-lapadula-fichar-por-alianza-lima-543969)
-
-
-### renzo reggiardo (N/A, 19/10/2025 23:29 Lima)
-
-- **“La izquierda caviar quiere que Jerí se vaya de Palacio”**: [Link](https://elcomercio.pe/politica/actualidad/renzo-reggiardo-barreto-alcalde-de-lima-la-izquierda-caviar-quiere-que-jose-jeri-se-vaya-de-palacio-municipalidad-rafael-lopez-aliaga-inseguridad-ciudadana-noticia/)
-- **Dina, Jerí, la izquierda y los Z**: [Link](https://reinadelaselva.pe/dina-jeri-la-izquierda-y-los-z/)
-- **Congresista Milagros Jáuregui señala a Ruth Luque, Susel Paredes y Flor Pablo: “Tienen una agenda desestabilizadora”**: [Link](https://www.expreso.com.pe/politica/congresista-milagros-jauregui-senala-a-ruth-luque-susel-paredes-y-flor-pablo-tienen-una-agenda-desestabilizadora-generacion-z-noticia/1230623/)
-
-
-### gremio vs (N/A, 19/10/2025 23:29 Lima)
-
-- **Pronóstico Bahia - Gremio. Brasileirao Serie A | 20/10/2025**: [Link](https://gainblers.com/pe/pronosticos/futbol/brasil/brasileirao-serie-a/pronostico-bahia-gremio-20-10-2025/)
-- **Pronóstico Bahia - Gremio. Brasileirao Serie A | 20/10/2025**: [Link](https://gainblers.com/pe/pronosticos/futbol/brasil/brasileirao-serie-a/pronostico-bahia-gremio-20-10-2025/)
 
 
