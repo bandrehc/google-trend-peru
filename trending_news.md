@@ -1,3 +1,73 @@
+### olympique lyon (N/A, 23/10/2025 11:30 Lima)
+
+- **OL : Les supporters de Bâle narguent le préfet**: [Link](https://www.foot01.com/ol/ol-les-supporters-de-bale-narguent-le-prefet)
+- **FC Bâle : Xherdan Shaqiri écrase tout sur son passage en Suisse**: [Link](https://www.footmercato.net/a4700787034166039540-fc-bale-xherdan-shaqiri-ecrase-tout-sur-son-passage-en-suisse)
+- **En direct : Lyon - Bâle (0-0) - C3 - J3 - OL-Bâle**: [Link](https://www.sofoot.com/articles/en-direct-lyon-bale)
+
+
+### fenerbahçe - stuttgart (N/A, 23/10/2025 11:30 Lima)
+
+- **Fenerbahçe - Stuttgart maçı CANLI YAYIN - Futbol Haberleri**: [Link](https://www.haberturk.com/fenerbahce-stuttgart-maci-canli-yayin-3832142-spor)
+- **Domenico Tedesco: "Kazanmak için istekliyiz ve açız"**: [Link](https://www.ntvspor.net/foto-galeri/domenico-tedesco-kazanmak-icin-istekliyiz-ve-aciz-411598)
+- **FENERBAHÇE AVRUPA LİGİ PUAN DURUMU VE SIRALAMASI || Fenerbahçe'nin Avrupa Ligi'nde puanı kaç, kaçıncı sırada? İşte Fenerbahçe puan tablosu ve Avrupa Ligi maç...**: [Link](http://mobil.hurriyet.com.tr/sporarena/galeri-fenerbahcenin-avrupa-liginde-puani-kac-kacinci-sirada-42993719)
+
+
+### rapid viena - fiorentina (N/A, 23/10/2025 11:30 Lima)
+
+- **Preview:Rapid Vienna vs. Fiorentina - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/rapid-vienna/europa-conference-league/preview/rapid-vienna-vs-fiorentina-prediction-team-news-lineups_584039.html)
+- **Rapid Wien vs Fiorentina: Preview**: [Link](https://www.violanation.com/conference-league/20346/rapid-wien-fiorentina-conference-league-preview-score-lineup-prediction)
+- **A night of rotation. Piccoli is there, but Gud isn't yet. Fortini and Parisi are on the wings. And Viti (re)emerges in defense.**: [Link](https://sport.quotidiano.net/en/calcio/fiorentina/una-notte-a-tutto-turnover-28275a64)
+
+
+### rayo vallecano (N/A, 23/10/2025 11:30 Lima)
+
+- **Rayo Vallecano vs Deportivo Alavés: predictions, stats, tips & odds**: [Link](https://www.squawka.com/en/news/match-preview-rayo-vallecano-vs-alaves-26-10-25-la-liga/)
+- **Hacken vs Rayo Vallecano Prediction: Madrid will continue to win the Conference League**: [Link](https://www.telecomasia.net/sports-betting/tips/football/uefa-conference-league/hacken-vs-rayo-vallecano-prediction-for-the-match-on-october-23-2025/)
+- **Conference League News: BK Häcken vs Rayo Vallecano Confirmed Line-ups**: [Link](https://footballpredictions.net/bk-hacken-v-rayo-vallecano-team-news-confirmed-lineups)
+
+
+### go ahead eagles - aston villa (N/A, 23/10/2025 11:30 Lima)
+
+- **Liverpool accept request as manager reveals helping hand for Aston Villa Europa League clash**: [Link](https://www.mirror.co.uk/sport/football/news/liverpool-villa-go-ahead-eagles-36117346)
+- **Unai Emery sets out his priorities ahead of Europa League clash at Go Ahead Eagles**: [Link](https://www.expressandstar.com/sport/2025/10/22/unai-emery-sets-out-his-priorities-ahead-of-europa-league-clash-at-go-ahead-eagles/)
+- **Go Ahead Eagles v Aston Villa betting offer: Bet £10 and get £30 in free bets with bet365**: [Link](https://talksport.com/betting/3668654/go-ahead-eagles-aston-villa-betting-offer-free-bets/)
+
+
+### krc genk - real betis (N/A, 23/10/2025 11:30 Lima)
+
+- **Fink gaat dieper in op vormdip Karetsas: “Moeilijk als ze een tweede Messi van je maken”**: [Link](https://www.hln.be/racing-genk/fink-gaat-dieper-in-op-vormdip-karetsas-moeilijk-als-ze-een-tweede-messi-van-je-maken~a2d1ade8/)
+- **Storm Benjamin heeft geen invloed op Racing Genk - Real Betis, Europa League-match van Feyenoord wel uitgesteld**: [Link](https://www.nieuwsblad.be/sport/storm-benjamin-heeft-geen-invloed-op-racing-genk-real-betis-europa-league-match-van-feyenoord-wel-uitgesteld/99659023.html)
+- **KRC Genk – Real Betis gaat voorlopig gewoon door zoals gepland**: [Link](https://www.krcgenk.be/nl/nieuws/6104/krc-genk-real-betis-gaat-voorlopig-gewoon-door-zoals-gepland)
+
+
+### emily en parís (N/A, 23/10/2025 11:30 Lima)
+
+- **‘Emily in Paris’ se muda a Roma en el tráiler oficial de su temporada 5**: [Link](https://www.infobae.com/entretenimiento/2025/10/22/emily-in-paris-se-muda-a-roma-en-el-trailer-oficial-de-su-temporada-5/)
+- **'Emily in Paris' llega a Italia: Lily Collins conquistará Roma en la temporada 5 de la serie de Netflix**: [Link](https://rpp.pe/tv/netflix/emily-in-paris-llega-a-italia-lily-collins-conquistara-roma-en-la-temporada-5-de-la-serie-de-netflix-noticia-1660522)
+- **Netflix lanza el primer teaser de la temporada 5 de Emily in Paris**: [Link](https://marieclaire.com.mx/emily-in-paris-temporada-5-teaser/)
+
+
+### ticket master (N/A, 23/10/2025 11:30 Lima)
+
+- **Ticketmaster vows crackdown on scalper accounts that buy up most tickets**: [Link](https://www.cbc.ca/news/investigates/ticketmaster-crackdown-scalpers-9.6948616)
+- **Ticketmaster Claims New Rules Will Limit Scalpers As It Faces FTC Lawsuit**: [Link](https://www.forbes.com/sites/conormurray/2025/10/20/ticketmaster-promises-overhaul-crackdown-targets-scalpers/)
+- **Ticketmaster terminates TradeDesk scalping program to avoid ‘reputational harm’**: [Link](https://www.thestar.com/news/canada/ticketmaster-terminates-tradedesk-scalping-program-to-avoid-reputational-harm/article_02790a44-5669-4b34-979f-1c0bc1bb1750.html)
+
+
+### teleticket (N/A, 23/10/2025 11:30 Lima)
+
+- **Morat confirma concierto en Arequipa como parte de su gira “Asuntos pendientes”**: [Link](https://elcomercio.pe/luces/musica/morat-confirma-concierto-en-arequipa-como-parte-de-su-gira-asuntos-pendientes-ultimas-noticia/)
+- **Morat anuncia concierto único en Perú como parte de su gira ‘Asuntos pendientes’**: [Link](https://rpp.pe/musica/conciertos/morat-en-arequipa-2025-confirman-concierto-con-unica-fecha-en-peru-por-su-tour-asuntos-pendientes-noticia-1660631)
+- **Morat confirma concierto en Perú 2025 y Arequipa será la única fecha: día, lugar y detalles de la preventa de entradas en Teleticket**: [Link](https://larepublica.pe/entretenimiento/2025/10/23/morat-confirma-concierto-en-peru-2025-y-arequipa-sera-la-unica-fecha-dia-lugar-y-detalles-de-la-preventa-de-entradas-en-teleticket-2068137)
+
+
+### ed sheeran peru (N/A, 23/10/2025 11:30 Lima)
+
+- **Ed Sheeran regresa al Perú y cantará en el Estadio Nacional: fecha, lugar y entradas para ver al cantante británico**: [Link](https://www.infobae.com/peru/2025/10/22/ed-sheeran-regresa-al-peru-y-cantara-en-el-estadio-nacional-fecha-lugar-y-entradas-para-ver-al-cantante-britanico/)
+- **Ed Sheeran vuelve a Perú luego de 9 años para un concierto en el Estadio Nacional**: [Link](https://elcomercio.pe/luces/musica/ed-sheeran-vuelve-a-peru-luego-de-9-anos-para-un-concierto-en-el-estadio-nacional-celebs-ultimas-noticia/)
+- **Ed Sheeran confirma su regreso a Lima al Estadio Nacional**: [Link](https://andina.pe/agencia/noticia-ed-sheeran-confirma-su-regreso-a-lima-al-estadio-nacional-1049181.aspx)
+
+
 ### resultados de la tinka hoy (N/A, 23/10/2025 08:02 Lima)
 
 - **Sorteo de La Tinka: revisa aquí los resultados y jugada del domingo 19 de octubre**: [Link](https://elcomercio.pe/respuestas/loterias/la-tinka-hoy-domingo-19-de-octubre-en-vivo-resultados-del-ultimo-sorteo-numeros-y-jugada-ganadora-pozo-millonario-loteria-resultado-si-o-si-boliyapa-intralot-lbposting-noticia/)
@@ -958,71 +1028,5 @@ Sin noticias relacionadas disponibles.
 - **IGP Temblor en Perú Lima hoy 20 de octubre magnitud y epicentro último sismo**: [Link](https://rpp.pe/lima/desastres-naturales/temblor-en-peru-hoy-19-de-octubre-magnitud-y-epicentro-del-sismo-segun-igp-live-3007)
 - **Temblor hoy en Perú, lunes 20 de octubre: sismo de magnitud 4.1 afectoʻ la región Huanuco**: [Link](https://andina.pe/agencia/noticia-temblor-hoy-peru-lunes-20-octubre-sismo-magnitud-41-afecto%CA%BB-region-huanuco-1048935.aspx)
 - **Tres sismos en 48 horas remecen el sur de la región de Lima**: [Link](https://www.redpat.tv/detalle/tres-sismos-en-48-horas-remecen-el-sur-de-la-region-de-lima)
-
-
-### hbo (N/A, 20/10/2025 07:51 Lima)
-
-- **Weapons en HBO Max: fecha de estreno confirmada de la película La hora de la desaparición en streaming | MAG**: [Link](https://elcomercio.pe/mag/fama/que-ver/weapons-en-hbo-max-fecha-de-estreno-confirmada-de-la-pelicula-la-hora-de-la-desaparicion-en-streaming-nndaml-noticia/)
-
-
-### hbo max (N/A, 20/10/2025 07:51 Lima)
-
-- **Weapons en HBO Max: fecha de estreno confirmada de la película La hora de la desaparición en streaming | MAG**: [Link](https://elcomercio.pe/mag/fama/que-ver/weapons-en-hbo-max-fecha-de-estreno-confirmada-de-la-pelicula-la-hora-de-la-desaparicion-en-streaming-nndaml-noticia/)
-
-
-### liga de campeones de la uefa (N/A, 20/10/2025 07:51 Lima)
-
-- **Programación Champions League 2025-2026: fixture de la fecha 3 con Barcelona y Real Madrid por la fase de liga**: [Link](https://larepublica.pe/deportes/2025/10/19/calendario-de-la-uefa-champions-league-2025-partidos-y-resultados-de-la-fecha-3-856634)
-- **Con el 'clásico' en el horizonte**: [Link](https://www.noticiasdenavarra.com/futbol/2025/10/19/clasico-horizonte-10235904.html)
-- **Champions League, grandes duelos en la jornada 3 del torneo europeo**: [Link](https://onefootball.com/es/noticias/champions-league-grandes-duelos-en-la-jornada-3-del-torneo-europeo-41829493)
-
-
-### twitter (N/A, 20/10/2025 07:51 Lima)
-
-- **FLOKI Soars as Elon Musk Rekindles the Meme Spark**: [Link](https://www.onesafe.io/blog/floki-price-elon-musk-meme-surge)
-- **FLOKI price jumps 30% after Elon Musk’s “Floki is back” post**: [Link](https://invezz.com/news/2025/10/20/floki-price-jumps-30-after-elon-musks-floki-is-back-post/)
-- **FLOKI Crypto Holds Key Demand Zone as Buyers Eye Breakout Potential**: [Link](https://bravenewcoin.com/insights/floki-crypto-holds-key-demand-zone-as-buyers-eye-breakout-potential)
-
-
-### canva (N/A, 20/10/2025 07:51 Lima)
-
-- **Huge global outage impacts Amazon, Fortnite and Snapchat | CNN Business**: [Link](https://www.cnn.com/business/live-news/amazon-tech-outage-10-20-25-intl)
-- **Well-known internet sites hit by Amazon Web Services outage**: [Link](https://www.foxbusiness.com/technology/well-known-internet-sites-hit-amazon-web-services-outage)
-- **Amazon’s AWS Disruption Creates Outages for Hundreds of Websites for Hours**: [Link](https://www.nytimes.com/2025/10/20/business/aws-down-internet-outage.html)
-
-
-### amazon (N/A, 20/10/2025 03:32 Lima)
-
-- **A lot of the internet just stopped working**: [Link](https://www.the-independent.com/tech/snapchat-roblox-duolingo-fortnite-down-not-working-b2848289.html)
-- **Huge internet outage knocks out Snapchat, Amazon and multiple other websites and apps**: [Link](https://news.sky.com/story/huge-internet-outage-knocks-out-snapchat-amazon-and-multiple-other-websites-and-apps-13453810)
-- **Multiple websites including Amazon’s cloud unit down for thousands of users**: [Link](https://www.timesofisrael.com/liveblog_entry/multiple-websites-including-amazons-cloud-unit-down-for-thousands-of-users/)
-
-
-### nadie nos vio partir (N/A, 20/10/2025 03:32 Lima)
-
-- **Quién es Tamara Trottner, la autora del libro de Nadie nos vio partir | MAG**: [Link](https://elcomercio.pe/mag/fama/que-ver/quien-es-tamara-trottner-la-autora-del-libro-de-nadie-nos-vio-partir-nnda-nnlt-noticia/)
-- **Nadie nos vio partir: Sinopsis, quién es quién y cuál es la historia real de la serie**: [Link](https://www.elespectador.com/revista-vea/peliculas-series-y-novelas/nadie-nos-vio-partir-sinopsis-quien-es-quien-y-cual-es-la-historia-real-de-la-serie/)
-- **‘Nadie nos vio partir’ reparto: lista completa de actores y personajes de la serie mexicana en Netflix**: [Link](https://es-us.noticias.yahoo.com/vio-netflix-reparto-lista-actores-182414068.html)
-
-
-### dan reynolds (N/A, 20/10/2025 03:32 Lima)
-
-- **Imagine Dragons en Lima: horario, accesos, setlist y más para su concierto en el Estadio San Marcos**: [Link](https://www.infobae.com/peru/2025/10/19/imagine-dragons-en-lima-horario-accesos-setlist-y-mas-para-su-concierto-en-el-estadio-san-marcos/)
-- **Imagine Dragons en Perú: ¡Descubre el posible setlist de su gira Loom World Tour!**: [Link](https://blog.joinnus.com/imagine-dragons-en-peru-descubre-el-posible-setlist-de-su-gira-loom-world-tour/)
-- **Imagine Dragons en Lima: setlist de canciones, horarios y lo que se sabe sobre su concierto en el estadio San Marcos**: [Link](https://rpp.pe/musica/conciertos/imagine-dragons-en-lima-setlist-con-canciones-horario-mapa-y-lo-que-se-sabe-sobre-concierto-en-estadio-san-marcos-noticia-1659866)
-
-
-### patricia chirinos (N/A, 19/10/2025 23:29 Lima)
-
-- **Patricia Chirinos pide a José Jerí que ordene intervención de las FF. AA. y prohíba el uso de motocicletas a nivel nacional**: [Link](https://lpderecho.pe/patricia-chirinos-pide-jose-jeri-ordene-intervencion-ff-aa-prohiba-uso-motocicletas-nivel-nacional/)
-- **Patricia Chirinos pide a Jerí prohíba el uso de motocicletas**: [Link](https://noticiaspiura30.pe/patricia-chirinos-pide-a-jeri-prohiba-el-uso-de-motocicletas/)
-- **Otorgan cinco días hábiles para presentar informe final sobre caso de designación de Daniel Salaverry como presidente de Perúpetro**: [Link](https://comunicaciones.congreso.gob.pe/noticias/otorgan-cinco-dias-habiles-para-presentar-informe-final-sobre-caso-de-designacion-de-daniel-salaverry-como-presidente-de-perupetro/)
-
-
-### lapadula (N/A, 19/10/2025 23:29 Lima)
-
-- **Jefferson Farfán le pidió a Gianluca Lapadula jugar por Alianza Lima junto a Luis Advíncula y lanzó sorpresiva promesa: “Yo pongo de la mía”**: [Link](https://www.infobae.com/peru/deportes/2025/10/17/jefferson-farfan-le-pidio-a-gianluca-lapadula-jugar-por-alianza-lima-junto-a-luis-advincula-y-lanzo-sorpresiva-promesa-yo-pongo-de-la-mia/)
-- **¿‘Foquita’ abre billetera para que Gianluca Lapadula llegue a Alianza Lima? [VIDEO]**: [Link](https://trome.com/deportes/futbol-peruano/jefferson-farfan-abre-billetera-para-que-gianluca-lapadula-llegue-a-alianza-lima-video-liga-1-serie-b-spezia-noticia/)
-- **Jefferson Farfán le pide a Gianluca Lapadula que fiche por Alianza Lima**: [Link](https://www.futbolperuano.com/liga-1/noticias/jefferson-farfan-le-pide-a-gianluca-lapadula-fichar-por-alianza-lima-543969)
 
 
