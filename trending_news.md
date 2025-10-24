@@ -1,3 +1,24 @@
+### real madrid vs barcelona (N/A, 24/10/2025 07:51 Lima)
+
+- **El análisis de El Clásico: todas las preguntas sin resolver antes del Real Madrid vs Barcelona**: [Link](https://as.com/futbol/videos/el-analisis-de-el-clasico-todas-las-preguntas-sin-resolver-antes-del-real-madrid-vs-barcelona-f202510-v/)
+- **La hora de Real Madrid: aprovechar las lesiones de Barcelona y el gran momento de Mbappé**: [Link](https://www.espn.com.ar/futbol/espana/nota/_/id/15856139/la-hora-de-real-madrid-aprovechar-las-lesiones-de-barcelona-y-el-gran-momento-de-mbappe)
+- **Hará falta más en el Clásico**: [Link](https://www.marca.com/futbol/real-madrid/2025/10/22/insuficiente-clasico.html)
+
+
+### retiro afp 2025 (N/A, 24/10/2025 07:51 Lima)
+
+- **Retiro de AFP: Esta es la fecha límite para el depósito según el día en que hiciste la solicitud**: [Link](https://www.infobae.com/peru/2025/10/22/retiro-de-afp-esta-es-la-fecha-limite-para-el-deposito-segun-la-fecha-de-solicitud/)
+- **Link, Retiro AFP: guía para solicitar hasta 4 UIT según cronograma por DNI**: [Link](https://elcomercio.pe/respuestas/tramites/link-del-retiro-afp-2025-hoy-solicita-segun-tu-dni-en-plataforma-oficial-hasta-s-21-400-soles-o-4-uit-de-tus-fondos-tdpe-noticia/)
+- **▷ Link retiro de AFP 2025 — revisa hoy cómo enviar la solicitud de registro con tu DNI hoy, 23 de octubre**: [Link](https://gestion.pe/mix/mi-bolsillo/link-retiro-de-afp-2025-consulta-aqui-como-enviar-la-solicitud-de-registro-con-tu-dni-este-22-y-23-de-octubre-nnda-nnrt-noticia/)
+
+
+### precio del dólar perú (N/A, 24/10/2025 07:51 Lima)
+
+- **Precio del dólar en Perú, jueves 23 de octubre: a cuánto cerró el tipo de cambio hoy**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-a-cuanto-esta-el-dolar-y-tipo-de-cambio-este-jueves-23-de-octubre-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
+- **Precio del dólar Perú y tipo de cambio hoy 24 de octubre del 2025**: [Link](https://rpp.pe/economia/economia/precio-del-dolar-peru-y-tipo-de-cambio-hoy-24-de-octubre-del-2025-noticia-1660760)
+- **Dólar hoy: ¡Cae a menos de 3.41 soles! Descubre cómo influyen los factores externos**: [Link](https://satelite.pe/dolar-hoy-cae-a-menos-de-3-41-soles-descubre-como-influyen-los-factores-externos)
+
+
 ### municipalidades dni electronico (N/A, 24/10/2025 03:31 Lima)
 
 - **Trámite de DNI electrónico gratis para este 26 de octubre: conoce dónde y qué servicios son los disponibles**: [Link](https://www.infobae.com/peru/2025/10/23/tramite-de-dni-electronico-gratis-para-este-26-de-octubre-conoce-donde-y-que-servicios-son-los-disponibles/)
@@ -1009,26 +1030,5 @@ Sin noticias relacionadas disponibles.
 - **Hija de Cristian Domínguez revela que el cantante le aseguró que no volvería con Karla Tarazona**: [Link](https://elcomercio.pe/tvmas/farandula/hija-de-cristian-dominguez-revela-que-el-cantante-le-aseguro-que-no-volveria-con-karla-tarazona-ultimas-noticia/)
 - **Christian Domínguez ante críticas de su hija mayor: "Si es necesario buscaré ayuda profesional"**: [Link](https://peru21.pe/espectaculos/christian-dominguez-ante-criticas-de-su-hija-mayor-karla-tarazona/)
 - **Mamá de Camila Domínguez ROMPE SU SILENCIO y se pronuncia por POLÉMICA con Christian Domínguez: "Mi hija no miente"**: [Link](https://elpopular.pe/espectaculos/2025/10/20/mama-de-camila-dominguez-rompe-su-silencio-y-se-pronuncia-por-polemica-con-christian-dominguez-mi-hija-no-miente-458980)
-
-
-### arsenal vs. olympiacos (N/A, 20/10/2025 23:28 Lima)
-
-- **Champions League Matchday 3 possible line-ups and team news**: [Link](https://www.uefa.com/uefachampionsleague/news/029e-1f0111b71c24-4c3aebb69ea2-1000--champions-league-matchday-3-possible-line-ups-and-team-news/)
-- **UCL Matchday 3 Best Bets: Five High-Value Goal Scorer Picks**: [Link](https://www.sportytrader.com/us/news/ucl-goal-scorer-picks-matchday-3-2025/)
-- **Footy Fix: Barcelona, Arsenal, Manchester City headline Champions League action on Paramount+ and CBS Sports**: [Link](https://www.newsbreak.com/cbs-sports-1740733/4302747615449-footy-fix-barcelona-arsenal-manchester-city-headline-champions-league-action-on-paramount-and-cbs-sports)
-
-
-### fixture liga 1 (N/A, 20/10/2025 23:28 Lima)
-
-- **Última localía de Universitario en Torneo Clausura: Liga 1 anunció programación de fecha 18**: [Link](https://depor.com/futbol-peruano/descentralizado/programacion-fecha-18-torneo-clausura-2025-en-liga-1-cuando-juega-universitario-vs-deportivo-garcilaso-sporting-cristal-alianza-lima-noticia/)
-- **Liga 1 podría hacer importante cambio en el Universitario vs. Garcilaso por amistosos de Perú**: [Link](https://www.eldiez.com.pe/liga-1/liga-1-podria-cambiar-de-fecha-el-universitario-de-deportes-vs-deportivo-garcilaso-por-amistosos-de-la-seleccion-peruana-noticia/)
-- **Partido de Universitario puede sufrir cambio de día y hora por esta poderosa razón**: [Link](https://libero.pe/futbol-peruano/universitario/2025/10/18/partido-de-universitario-puede-sufrir-cambio-de-dia-hora-poderosa-razon-1672182)
-
-
-### adt vs universitario (N/A, 20/10/2025 23:28 Lima)
-
-- **Así se jugará la fecha 16 del Clausura de la Liga 1 2025**: [Link](https://www.espn.com.ar/futbol/peru/nota/_/id/15842907/programacion-de-la-fecha-16-del-clausura-liga-1-de-peru)
-- **Así se jugará la jornada 16 del Torneo Clausura**: [Link](https://ovacion.pe/noticias/liga1-te-apuesto-2025/asi-se-jugara-jornada-16-del-torneo-clausura)
-- **Así se jugará la fecha 16 del Torneo Clausura de la Liga 1**: [Link](https://www.futbolperuano.com/liga-1/noticias/liga-1-como-se-jugara-la-fecha-16-del-torneo-clausura-de-la-primera-division-544220)
 
 
