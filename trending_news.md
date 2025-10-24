@@ -1,3 +1,73 @@
+### juan pablo ii college - comerciantes unidos (N/A, 24/10/2025 15:26 Lima)
+
+- **Dónde ver, Juan Pablo II vs Comerciantes Unidos hoy EN VIVO por el Torneo Clausura**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/juan-pablo-ii-vs-comerciantes-unidos-en-vivo-via-l1-max-horario-canal-tv-y-mas-de-la-fecha-16-del-torneo-clausura-de-la-liga-1-2025-tdpe-noticia/)
+- **Transmisión EN VIVO: Juan Pablo II vs. Comerciantes Unidos vía Liga 1 Max por internet gratis**: [Link](https://depor.com/futbol-peruano/descentralizado/juan-pablo-ii-vs-comerciantes-unidos-en-vivo-en-directo-hoy-liga-1-max-l1-play-futbol-libre-tv-ver-gratis-online-directv-dgo-torneo-clausura-2025-video-noticia/)
+- **Juan Pablo II College vs Comerciantes Unidos: Pronóstico, Cuotas y Apuestas - Primera División**: [Link](https://www.casasdeapuestas.com/pronosticos/juan-pablo-ii-college-comerciantes-unidos-20251024/)
+
+
+### laura bozzo (N/A, 24/10/2025 15:26 Lima)
+
+- **Laura Bozzo confesó que le fue infiel a Cristian Zuárez**: [Link](https://www.americatv.com.pe/noticias/espectaculos/laura-bozzo-se-confeso-y-dijo-que-le-fue-infiel-cristian-zuarez-n512265)
+- **Laura Bozzo confesó que le fue infiel a su expareja 24 años menor por error**: [Link](https://www.mega.cl/programas/el-internado/mejores-momentos/205094-laura-bozzo-confeso-fue-infiel-expareja-24-menor-error.html)
+- **Laura Bozzo admite entre risas que fue infiel a Cristian Zuárez por un rumor sin fundamento: “Le puse los cuernos, pero por si acaso”**: [Link](https://www.infobae.com/peru/2025/10/24/laura-bozzo-admite-entre-risas-que-fue-infiel-a-cristian-zuarez-por-un-rumor-sin-fundamento-le-puse-los-cuernos-pero-por-si-acaso/)
+
+
+### paris vs (N/A, 24/10/2025 15:26 Lima)
+
+- **"Des retombées économiques estimées à 4 millions d'euros", un marathon rentable pour le territoire... mais aussi pour l'organisateur**: [Link](https://france3-regions.franceinfo.fr/occitanie/haute-garonne/toulouse/des-retombees-economiques-estimees-a-4-millions-d-euros-un-marathon-rentable-pour-le-territoire-mais-aussi-pour-l-organisateur-3238435.html)
+- **Marathon de Toulouse : rues fermées, parkings inaccessibles, métro à l'arrêt, les perturbations à prévoir**: [Link](https://lopinion.com/articles/actualite/30842_marathon-toulouse-rues-parkings-metro-perturbations)
+- **Courses, ambiance, perturbations : ce qu’il faut savoir sur le Marathon de Toulouse 2025**: [Link](https://www.lejournaltoulousain.fr/occitanie/haute-garonne/toulouse/courses-ambiance-perturbations-faut-savoir-marathon-de-toulouse-2025-342700/)
+
+
+### paris fc - nantes (N/A, 24/10/2025 15:26 Lima)
+
+- **EN DIRECT - Paris FC-Nantes : un coup de génie d’Abline donne l’avantage aux Canaris**: [Link](https://www.lefigaro.fr/sports/football/live/ligue-1/2025/2568511/paris-fc-nantes)
+- **PRONOS PARIS RMC Le pari foot de Jérôme Rothen et Lionel Charbonnier du 24 octobre – L1**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-foot-de-jerome-rothen-et-lionel-charbonnier-du-24-octobre-l1_AN-202510240672.html)
+- **Ligue 1 : Matthis Abline ouvre son compteur cette saison avec un chef d'oeuvre face au Paris FC ! (vidéo)**: [Link](https://madeinfoot.ouest-france.fr/infos/article-ligue-1-matthis-abline-ouvre-son-compteur-cette-saison-avec-un-chef-d-oeuvre-face-au-paris-fc-video-500421.html)
+
+
+### primera división de arabia saudita (N/A, 24/10/2025 15:26 Lima)
+
+- **Al Nassr vs. Al Hazm: horarios y canales para ver Saudi Pro League**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/al-nassr-vs-al-hazm-en-vivo-gratis-hoy-via-futbol-libre-tv-con-cristiano-ronaldo-horarios-canales-tv-y-donde-ver-partido-por-saudi-pro-league-video-noticia/)
+- **Al Hazm vs Al Nassr: cómo ver el partido por TV y streaming, últimas noticias y pronóstico**: [Link](https://www.si.com/es-us/futbol/al-hazm-vs-al-nassr-tv-streaming-25-10-2025)
+- **Al Hazm vs Al Nassr: pronósticos, cuotas, transmisión y datos para apostar!**: [Link](https://www.apwin.com/es/pronosticos/al-hazm-vs-al-nassr-pronostico-saudita-professional-league-25-10-2025/)
+
+
+### turkish airlines euroleague (N/A, 24/10/2025 15:26 Lima)
+
+- **Six Feet and Under Club: Carsen Edwards**: [Link](https://www.euroleaguebasketball.net/en/euroleague/videos/six-feet-and-under-club-carsen-edwards/)
+- **Israeli basketball clubs to resume hosting EuroLeague games on December 1**: [Link](https://www.aljazeera.com/sports/2025/10/21/israeli-basketball-clubs-to-resume-hosting-euroleague-games-on-december-1)
+- **Fenerbahce and Efes’ joint statement on decision about Israel**: [Link](https://www.eurohoops.net/en/euroleague/1884111/fenerbahce-and-efes-joint-statement-on-decision-about-israel/)
+
+
+### españa - suecia (N/A, 24/10/2025 15:26 Lima)
+
+- **España - Suecia en directo: semifinales de la UEFA Nations League hoy en vivo**: [Link](https://as.com/futbol/femenino/espana-suecia-en-directo-semifinales-de-la-uefa-nations-league-hoy-en-vivo-f202510-d/)
+- **España - Suecia en directo | Semifinales Nations League Femenina hoy en vivo**: [Link](https://www.marca.com/futbol/uefa-nations-league-femenina/espana-suecia/2025/10/24/01_01122_20251024_7649_6246-directo.html)
+- **VÍDEO | Las lágrimas ejemplares de Mapi León al volver con España tras 1.192 días: "He renacido"**: [Link](https://espanol.eurosport.com/futbol/uefa-women-s-nations-league/2025/video-mapi-leon-lagrimas-sentimiento-vuelta-espana-ave-fenix-he-renacido_sto23234240/story.shtml)
+
+
+### milan vs (N/A, 24/10/2025 15:26 Lima)
+
+- **CM: Meeting history – De Winter set to show progression against former coach**: [Link](https://sempremilan.com/de-winter-show-progression-former-coach)
+- **Allegri sets minimum points target for Milan’s Champions League qualification**: [Link](https://football-italia.net/allegri-minimum-milan-points-target-ucl/)
+- **AC MILAN v PISA: THE OFFICIAL LINE-UPS**: [Link](https://sports.yahoo.com/article/ac-milan-v-pisa-official-173500760.html)
+
+
+### bayern - olympiacos (N/A, 24/10/2025 15:26 Lima)
+
+- **Statements in view of the game against Bayern Munich**: [Link](https://www.olympiacosbc.gr/en/news-en/latest-news-en/11566-statements-in-view-of-the-game-against-bayern-munich.html)
+- **FC Bayern vs. Olympiacos: Key Match Insights You Need to Know**: [Link](https://emegypt.net/1021027)
+- **FC Bayern vs. Olympiacos: Essential Match Details You Should Know**: [Link](https://www.el-balad.com/6743643)
+
+
+### real sociedad - sevilla (N/A, 24/10/2025 15:26 Lima)
+
+- **Real Sociedad - Sevilla en directo: LaLiga EA Sports hoy, en vivo**: [Link](https://as.com/futbol/primera/real-sociedad-sevilla-en-directo-laliga-ea-sports-hoy-en-vivo-f202510-d/)
+- **Real Sociedad - Sevilla, en directo | LaLiga EA Sports hoy en vivo**: [Link](https://www.marca.com/futbol/laliga-ea-sports/real-sociedad-sevilla/2025/10/24/01_0101_20251024_188_179-directo.html)
+- **Sevilla visita a Real Sociedad por la fecha 10 de LaLiga**: [Link](https://www.espn.com.ar/futbol/espana/nota/_/id/15852782/real-sociedad-vs-sevilla-fecha-10-laliga-alexis-sanchez-fecha-hora-tv-en-vivo)
+
+
 ### real sociedad vs sevilla (N/A, 24/10/2025 11:30 Lima)
 
 - **Sevilla visita a Real Sociedad por la fecha 10 de LaLiga**: [Link](https://www.espn.com.pe/futbol/espana/nota/_/id/15852782/real-sociedad-vs-sevilla-fecha-10-laliga-alexis-sanchez-fecha-hora-tv-en-vivo)
@@ -960,75 +1030,5 @@ Sin noticias relacionadas disponibles.
 - **FC Bayern: "Mussten leiden"! Was war los in der 2. Halbzeit?**: [Link](https://miasanrot.de/fc-bayern-bvb-borussia-dortmund-taktik-analyse/)
 - **Ein Titel geht Jahr um Jahr an den BVB und der FC Bayern schaut zu**: [Link](https://www.wetterauer-zeitung.de/sport/fussball/an-den-bvb-und-der-fc-bayern-schaut-zu-ein-titel-geht-jahr-um-jahr-zr-93987286.html)
 - **Upamecano-Vertragspoker erhitzt die Bayern-Gemüter**: [Link](https://www.merkur.de/sport/fc-bayern/upamecano-vertragspoker-erhitzt-die-gemueter-fc-bayern-zr-93992068.html)
-
-
-### city vs (N/A, 21/10/2025 15:27 Lima)
-
-- **Leicester City team news v Hull as Jordan Ayew and Patson Daka start amid four changes**: [Link](https://www.leicestermercury.co.uk/sport/football/football-news/leicester-city-team-news-v-10589558)
-- **Football Bet of the Day: Follow The Tigers for goals on Tuesday**: [Link](https://mrfixitstips.co.uk/football-bet-of-the-day-follow-the-tigers-for-goals-on-tuesday/)
-- **Championship Tips for Midweek: Back goals when Leicester visit the MKM**: [Link](https://betting.betfair.com/football/championship/championship-tips-and-predictions-for-tuesday-and-wednesday-191025-904.html)
-
-
-### al hilal (N/A, 21/10/2025 11:30 Lima)
-
-- **Leonardo and Nunez on target as Hilal thrash Ettifaq 5-0**: [Link](https://www.arabnews.com/node/2619368/sport)
-- **Full Match: Al Ettifaq vs Al Hilal**: [Link](https://10.com.au/roshn-saudi-league/episodes/20252026/full-match-al-ettifaq-vs-al-hilal/tpv251019vwulj)
-- **Al Ettifaq vs Al Hilal Preview, prediction, lineups, betting tips & odds | Saudi Pro League 2025-26**: [Link](https://khelnow.com/football/world-football-al-ettifaq-vs-al-hilal-preview-202510)
-
-
-### kairat - pafos (N/A, 21/10/2025 11:30 Lima)
-
-- **Champions League: Kairat Almaty se enfrenta ante la visita Pafos por la fecha 3**: [Link](https://rpp.pe/futbol/ligas-internacionales/champions-league-kairat-almaty-se-enfrenta-ante-la-visita-pafos-por-la-fecha-3-noticia-1660078)
-- **Preview:Kairat vs Pafos - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/kairat/preview/kairat-vs-pafos-prediction-team-news-lineups_583878.html)
-- **Pafos FC’s social media draws more fans than the match itself**: [Link](https://kz.kursiv.media/en/2025-10-21/engk-nknk-pafos-fcs-social-media-draws-more-fans-than-the-match-itself/)
-
-
-### ed sheeran peru (N/A, 21/10/2025 11:30 Lima)
-
-- **ED SHEERAN VUELVE A LIMA LUEGO DE NUEVE AÑOS: CONOCE AQUÍ LOS PRECIOS**: [Link](https://blog.ticketmaster.pe/concierto/ed-sheeran-vuelve-a-lima-luego-de-nueve-anos-conoce-aqui-los-precios-3148/)
-- **Ed Sheeran vuelve al Perú: trae su Loop Tour al Estadio Nacional tras nueve años de ausencia**: [Link](https://rpp.pe/musica/conciertos/ed-sheeran-vuelve-a-lima-2026-anuncian-concierto-en-estadio-nacional-por-loop-tour-cuando-sera-noticia-1660267)
-- **Ed Sheeran vuelve a Perú luego de 9 años para un concierto en el Estadio Nacional**: [Link](https://elcomercio.pe/luces/musica/ed-sheeran-vuelve-a-peru-luego-de-9-anos-para-un-concierto-en-el-estadio-nacional-celebs-ultimas-noticia/)
-
-
-### uefa (N/A, 21/10/2025 11:30 Lima)
-
-- **Abdülkerim Bardakcı: “Taraftarımız bizim için inanılmaz itici bir güç”**: [Link](https://www.galatasaray.org/haber/futbol/sampiyonlar-ligi/abdulkerim-bardakci-taraftarimiz-bizim-icin-inanilmaz-itici-bir-guc/58675)
-- **Kjetil Knutsen: Yarın önemli bir sınav vereceğiz**: [Link](https://www.dha.com.tr/spor/kjetil-knutsen-yarin-onemli-bir-sinav-verecegiz-2743080)
-- **Abdülkerim Bardakcı: Liverpool galibiyetinin önemli olması için bu kazanmamız lazım**: [Link](https://www.fanatik.com.tr/video/video-abdulkerim-bardakci-liverpool-galibiyetinin-onemli-olmasi-icin-bu-kazanmamiz-lazim-2598277)
-
-
-### barcelona - olympiacos (N/A, 21/10/2025 11:30 Lima)
-
-- **¿A qué hora inicia y qué canal TV transmitirá FC Barcelona vs. Olympiacos EN VIVO hoy 21 de octubre por Champions League 2025?**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/a-que-hora-juega-y-que-canal-transmite-fc-barcelona-vs-olympiacos-en-vivo-hoy-21-de-octubre-por-champions-league-2025-en-mexico-usa-y-espana-nnda-nnrt-noticia/)
-- **Champions League: Olympiacos se enfrentará a Barcelona por la fecha 3**: [Link](https://rpp.pe/futbol/ligas-internacionales/champions-league-olympiacos-se-enfrentara-a-barcelona-por-la-fecha-3-noticia-1660079)
-- **Barcelona, en crisis de ataque antes del duelo con Olympiacos por la Champions League**: [Link](https://www.espn.com.pe/futbol/champions-league/nota/_/id/15818960/barcelona-en-crisis-de-ataque-antes-del-duelo-con-olympiacos-por-la-champions-league)
-
-
-### dro fernández (N/A, 21/10/2025 11:30 Lima)
-
-- **¿Quién es Dro Fernández? La sorpresa de Flick en Champions vs Olympiacos**: [Link](https://www.365scores.com/es/news/dro-fernandez-quien-es-vs-olympiacos/)
-- **Dro y Araujo, la cara y la cruz de un once**: [Link](https://www.marca.com/futbol/barcelona/2025/10/21/dro-araujo-cara-cruz-once.html)
-- **El debut que le faltaba a Dro en el Barcelona: titular en la Champions con 17 años ante Olympiacos**: [Link](https://www.larazon.es/deportes/futbol/debut-que-faltaba-dro-barcelona-titular-champions-17-anos-olympiacos_2025102168f7b318d5a0685a0ecc2795.html)
-
-
-### sanae takaichi (N/A, 21/10/2025 11:30 Lima)
-
-- **Japan's first female leader: A historic moment with caveats**: [Link](https://www.bbc.com/news/articles/cze6dgxlzwxo)
-- **Sanae Takaichi is Japan’s New Prime Minister, and She’s a Heavy Metal Drummer**: [Link](https://www.nytimes.com/2025/10/21/world/asia/sanae-takaichi-japan-prime-minister.html)
-- **S. Korea says to continue cooperation with Japan under new PM**: [Link](https://www.chinadailyasia.com/article/622106)
-
-
-### suspenden clases 23 y 24 de octubre (N/A, 21/10/2025 11:30 Lima)
-
-- **Este 24 de octubre empieza un feriado largo por Ley de hace 65 años: Solo para una ciudad**: [Link](https://www.infobae.com/peru/2025/10/17/este-24-de-octubre-empieza-un-feriado-largo-solo-para-una-ciudad-por-ley-de-hace-65-anos/)
-- **NO se suspenden las clases este 23 y 24 de octubre por día no laborable: esto indica El Peruano**: [Link](https://elcomercio.pe/respuestas/tramites/no-se-suspenden-las-clases-este-23-y-24-de-octubre-por-dia-no-laborable-lee-lo-que-dice-el-peruano-tdpe-noticia/)
-- **¿Se suspenden las clases escolares este jueves 23 y viernes 24 de octubre a nivel nacional? Esto señala El Peruano**: [Link](https://elpopular.pe/actualidad/2025/10/19/se-suspenden-las-clases-escolares-este-jueves-23-y-viernes-24-de-octubre-a-nivel-nacional-esto-senala-el-peruano-687781)
-
-
-### soda stereo peru (N/A, 21/10/2025 11:30 Lima)
-
-- **Soda Stereo vuelve a Lima: fecha, lugar y entradas para el show que reunirá a Gustavo Cerati, Zeta Bosio y Charly Alberti**: [Link](https://www.infobae.com/peru/2025/10/21/soda-stereo-vuelve-a-lima-fecha-lugar-y-entradas-para-el-show-que-reunira-a-charly-alberti-zeta-bosio-y-gustavo-cerati/)
-- **Soda Stereo confirma concierto en Perú como parte de su gira “Ecos”: ¿Cuándo será el show?**: [Link](https://elcomercio.pe/luces/musica/soda-stereo-confirma-concierto-en-peru-como-parte-de-su-gira-ecos-gustavo-cerati-celebs-ultimas-noticia/)
-- **¿Soda Stereo vuelve al Perú? Calles limeñas lucen afiches de la agrupación**: [Link](https://andina.pe/agencia/noticia-soda-stereo-vuelve-al-peru-calles-limenas-lucen-afiches-de-agrupacion-1048918.aspx)
 
 
