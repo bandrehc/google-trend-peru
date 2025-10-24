@@ -1,3 +1,71 @@
+### barcelona vs real madrid (N/A, 23/10/2025 23:27 Lima)
+
+- **¿Qué equipo crees que llega mejor al Clásico: Real Madrid o Barcelona?**: [Link](https://as.com/futbol/primera/que-equipo-crees-que-llega-mejor-al-clasico-real-madrid-o-barcelona-f202510-d/)
+- **Hará falta más en el Clásico**: [Link](https://www.marca.com/futbol/real-madrid/2025/10/22/insuficiente-clasico.html)
+- **A qué hora juega Real Madrid vs. Barcelona El Clásico de España**: [Link](https://www.espn.com.ar/futbol/espana/nota/_/id/15855279/real-madrid-vs-barcelona-a-que-hora-juegan-el-clasico-de-espana-laliga)
+
+
+### roman reigns (N/A, 23/10/2025 23:27 Lima)
+
+- **Roman Reigns vs John Cena Singles Record Is Embarrassing for the 17x WWE Champion**: [Link](https://fandomwire.com/roman-reigns-vs-john-cena-singles-record-is-embarrassing-for-the-17x-wwe-champion/)
+- **LA Knight & Other WWE Superstars Who Will Win Their First World Title In 2026**: [Link](https://www.thesportster.com/wwe-la-knight-other-superstars-first-world-championship/)
+- **5 Stars Who Need To Win Gold In WWE Before 2025 Ends**: [Link](https://itrwrestling.com/features/5-stars-who-need-to-win-gold-in-wwe-before-2025-ends/)
+
+
+### laura bozzo (N/A, 23/10/2025 23:27 Lima)
+
+- **Laura Bozzo se corona como la ‘tía reality’: Su paso por los programas de competencia**: [Link](https://www.atv.pe/noticia/laura-bozzo-se-corona-como-la-tia-reality-su-paso-por-los-programas-de-competencia/)
+- **Laura Bozzo admite entre risas que fue infiel a Cristian Zuárez por un rumor sin fundamento: “Le puse los cuernos, pero por si acaso”**: [Link](https://www.infobae.com/peru/2025/10/24/laura-bozzo-admite-entre-risas-que-fue-infiel-a-cristian-zuarez-por-un-rumor-sin-fundamento-le-puse-los-cuernos-pero-por-si-acaso/)
+- **Laura Bozzo revelará cómo se vengó de supuesta infidelidad de pareja menor en el capítulo 7 de El Internado**: [Link](https://www.mega.cl/programas/el-internado/avances/205012-avance-laura-bozzo-revelara-como-vengo-supuesta-infidelidad-pareja-menor.html)
+
+
+### amy lee (N/A, 23/10/2025 23:27 Lima)
+
+- **The Genesis of the New Hardcore Holy Trinity as Told by Poppy (Exclusive)**: [Link](https://www.vice.com/en/article/the-genesis-of-the-new-hardcore-holy-trinity-as-told-by-poppy-exclusive/)
+
+
+### tabla de posiciones liga 1 clausura (N/A, 23/10/2025 23:27 Lima)
+
+- **Así se jugará la fecha 16 del Clausura de la Liga 1 2025**: [Link](https://www.espn.com.pe/futbol/peru/nota/_/id/15842907/programacion-de-la-fecha-16-del-clausura-liga-1-de-peru)
+- **Así quedó la tabla de posiciones del Torneo Clausura 2025 tras el Sporting Cristal vs. Universitario**: [Link](https://bolavip.com/pe/liga-1/asi-quedo-la-tabla-de-posiciones-del-torneo-clausura-2025-tras-el-sporting-cristal-vs-universitario)
+- **Tabla de posiciones Acumulado Liga 1 y Clausura: clasificación con los resultados de la fecha 15**: [Link](https://libero.pe/futbol-peruano/liga-1/2025/10/19/tabla-de-posiciones-acumulado-liga-1-2025-clausura-fecha-15-286128)
+
+
+### adt vs universitario (N/A, 23/10/2025 23:27 Lima)
+
+- **Universitario y su objetivo en Tarma: el primero en ganar desde la vuelta del ADT a Primera**: [Link](https://espndeportes.espn.com/futbol/peru/nota/_/id/15858397/universitario-objetivo-tarma-ganar-desde-vuelta-adt-a-primera)
+- **ADT presentará dos bajas sustanciales en juego ante Universitario de Deportes por Torneo Clausura de la Liga 1 2025**: [Link](https://www.infobae.com/peru/deportes/2025/10/23/adt-presentara-dos-bajas-sustanciales-en-juego-ante-universitario-de-deportes-por-torneo-clausura-de-la-liga-1-2025/)
+- **ADT vs. Universitario EN VIVO: hora, día y dónde ver en vivo partido fecha 16 del Torneo Clausura 2025**: [Link](https://bolavip.com/pe/liga-1/adt-vs-universitario-en-vivo-hora-dia-y-donde-ver-en-vivo-partido-fecha-16-del-torneo-clausura-2025)
+
+
+### tabla liga 1 peru (N/A, 23/10/2025 23:27 Lima)
+
+- **Así se jugará los playoffs rumbo a la Libertadores 2026 si hoy terminara el Torneo Clausura**: [Link](https://libero.pe/futbol-peruano/liga-1/2025/10/21/liga-1-asi-se-jugarian-playoffs-rumbo-copa-libertadores-2025-hoy-terminara-torneo-clausura-703542)
+- **Cambio de reglas para definir al subcampeón de la Liga 1 en este 2025**: [Link](https://www.futbolperuano.com/liga-1/noticias/la-novedosa-definicion-del-subcampeon-de-la-liga-1-2025-544411)
+- **De ser Perú 2: ¿Alianza Lima iría a fase de grupos de la Copa Libertadores 2026?**: [Link](https://www.futbolperuano.com/liga-1/noticias/de-acabar-como-peru-2-alianza-lima-iria-a-la-fase-de-grupos-de-la-copa-libertadores-2026-544307)
+
+
+### partidos de liga 1 (N/A, 23/10/2025 23:27 Lima)
+
+- **La región que podría igualar a Lima y Cusco con 3 clubes en la Liga 1**: [Link](https://www.futbolperuano.com/liga-1/noticias/la-region-que-podria-igualar-a-lima-y-cusco-en-aportar-3-clubes-a-la-liga-1-en-2026-544590)
+- **Al igual que Lima y Cusco: la región del Perú que podría tener a 3 equipos en primera división el 2026**: [Link](https://larepublica.pe/deportes/2025/10/22/al-igual-que-lima-y-cusco-la-region-del-peru-que-podria-tener-a-3-equipos-en-primera-division-el-2026-674982)
+- **Así se jugará la fecha 16 del Clausura de la Liga 1 2025**: [Link](https://www.espn.com.pe/futbol/peru/nota/_/id/15842907/programacion-de-la-fecha-16-del-clausura-liga-1-de-peru)
+
+
+### benavente (N/A, 23/10/2025 23:27 Lima)
+
+- **Las "XVI Jornadas de Naturaleza y Montaña" de Benavente acercan cuatro modos distintos de disfrutar del medio natural**: [Link](https://www.laopiniondezamora.es/benavente/2025/10/23/xvi-jornadas-naturaleza-montana-benavente-122944585.html)
+- **Benavente celebra las XVI Jornadas de Naturaleza y Montaña: un homenaje al espíritu aventurero y al amor por la naturaleza**: [Link](https://www.benaventedigital.es/benavente-celebra-las-xvi-jornadas-de-naturaleza-y-montana-un-homenaje-al-espiritu-aventurero-y-al-amor-por-la-naturaleza/)
+- **Las Jornadas de Naturaleza y Montaña de Benavente cumplen 16 años con nuevas propuestas y protagonistas de altura**: [Link](https://www.zamoranews.com/articulo/benavente/jornadas-naturaleza-montana-benavente-cumplen-16-anos-nuevas-propuestas-protagonistas-altura/20251023153447358778.html)
+
+
+### conmebol (N/A, 23/10/2025 23:27 Lima)
+
+- **Perú vs Colombia: fecha, hora y dónde ver la Liga de Naciones Conmebol por el Mundial Femenino 2027**: [Link](https://depor.com/futbol-peruano/seleccion-peruana/peru-vs-colombia-en-vivo-fecha-hora-canal-de-tv-y-donde-ver-la-liga-de-naciones-conmebol-por-el-mundial-femenino-2027-noticia/)
+- **Todo sobre la Liga de Naciones Femenina 2025-26**: [Link](https://www.futbolperuano.com/futbol-femenino/liga-naciones-conmebol/liga-de-naciones-femenina-conmebol-2025-26-guia-completa-formato-y-fixture-544545)
+- **Perú vs. Colombia: Día y hora del partido de la Liga de Naciones Femenina de Sudamérica**: [Link](https://andina.pe/agencia/noticia-peru-vs-colombia-dia-y-hora-del-partido-de-liga-naciones-femenina-sudamerica-1049373.aspx)
+
+
 ### partidos de universitario (N/A, 23/10/2025 20:47 Lima)
 
 - **Franco Velazco: el partido contra Cristal, su fe en el tricampeonato y la respuesta a Gorosito**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/universitario-franco-velazco-sobre-partido-ante-sporting-cristal-su-fe-en-el-tricampeonato-y-la-respuesta-a-nestor-gorosito-video-noticia/)
@@ -962,69 +1030,5 @@ Sin noticias relacionadas disponibles.
 - **Tacna: un sismo de magnitud 4.1 se sintió esta tarde en Ilabaya**: [Link](https://rpp.pe/peru/tacna/tacna-un-sismo-de-magnitud-41-se-sintio-esta-tarde-en-ilabaya-noticia-1659961)
 - **Sismos en Lima y Apurímac: movimientos leves alertan a la población**: [Link](https://caretas.pe/nacional/sismos-en-lima-y-apurimac-movimientos-leves-alertan-a-la-poblacion/)
 - **🔴🔵El IGP reportó un movimiento telúrico a las 3:30 a.m. con una intensidad de III en Chilca, sin reportes de daños ni víctimas que lamentar. 🌐Más información en: https://www.exitosanoticias.pe**: [Link](https://www.facebook.com/Exitosanoticias/posts/el-igp-report%C3%B3-un-movimiento-tel%C3%BArico-a-las-330-am-con-una-intensidad-de-iii-en-/1248925693937153/)
-
-
-### partidos de universitario (N/A, 20/10/2025 20:52 Lima)
-
-- **Qué necesita Universitario para lograr el título del Clausura y ser tricampeón nacional**: [Link](https://www.espn.com.pe/futbol/peru/nota/_/id/15717777/que-necesita-universitario-para-ser-tricampeon-nacional-liga-1-de-peru)
-- **Universitario ya no podrá ser tricampeón de la Liga 1 a costa de Sporting Cristal**: [Link](https://www.espn.com.ar/futbol/peru/nota/_/id/15817244/universitario-ya-no-podra-ser-tricampeon-de-la-liga-1-a-costa-de-sporting-cristal)
-- **Los partidos que disputará Universitario en una semana**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/cruciales-partidos-que-disputara-universitario-semana-n451403)
-
-
-### medellín - santa fe (N/A, 20/10/2025 20:52 Lima)
-
-- **WIN Sports EN VIVO: Medellín-Santa Fe HOY por Liga Betplay**: [Link](https://elcomercio.pe/deporte-total/colombia/medellin-vs-santa-fe-en-vivo-gratis-hoy-via-futbol-libre-tv-win-sports-rcn-horarios-canales-y-donde-ver-partido-por-liga-betplay-video-noticia/)
-- **¿Quiénes serían los titulares del DIM para buscar su “revancha” contra Santa Fe por Liga en el Atanasio? | El Colombiano**: [Link](https://www.elcolombiano.com/deportes/futbol/dim-vs-santa-fe-liga-betplay-2025-fecha-14-antecedentes-posibles-titulares-NB30130159)
-- **Santa Fe busca salir del bache y hace cuentas para afianzarse entre los ocho: este lunes visita al Medellín; hora y TV del partido**: [Link](https://www.eltiempo.com/deportes/futbol-colombiano/santa-fe-busca-salir-del-bache-y-hace-cuentas-para-afianzarse-entre-los-ocho-este-lunes-visita-al-medellin-hora-y-tv-del-partido-3501203)
-
-
-### u va (N/A, 20/10/2025 20:52 Lima)
-
-- **Dartmouth’s Feedback on the Compact**: [Link](https://president.dartmouth.edu/news/2025/10/dartmouths-feedback-compact)
-- **Brown University president declines invitation for Brown to join federal Compact**: [Link](https://www.brown.edu/news/2025-10-15/brown-response-federal-compact)
-- **Update from Interim President Kim**: [Link](https://we-are.usc.edu/2025/10/16/update-from-interim-president-kim/)
-
-
-### el nacional - dep. cuenca (N/A, 20/10/2025 20:52 Lima)
-
-Sin noticias relacionadas disponibles.
-
-
-### santos vs vitoria (N/A, 20/10/2025 20:52 Lima)
-
-- **Santos vs. Vitória (21 Oct, 2025) Live Score**: [Link](https://www.espn.in/football/match/_/gameId/732870)
-
-
-### blue jays - mariners (N/A, 20/10/2025 20:52 Lima)
-
-- **Mariners vs. Blue Jays score and live updates: Latest news and analysis from today’s ALCS Game 7**: [Link](https://www.nytimes.com/athletic/live-blogs/mariners-vs-blue-jays-live-updates-mlb-alcs-game-7-score-result/JGdi5hDpePCt/)
-- **Guerrero hits 6th postseason homer and Blue Jays beat Mariners 6-2 to force Game 7 of ALCS**: [Link](https://apnews.com/article/mariners-blue-jays-score-alcs-guerrero-yesavage-29562a434684fd0dcf952c200f0f2fbb)
-- **Dan Wilson tweaks lineup ahead of historic Game 7**: [Link](https://www.sportingnews.com/us/mlb/seattle-mariners/news/dan-wilson-tweaks-lineup-ahead-historic-game-7/2b98003a2793c64ef9f9c54a)
-
-
-### cuándo juega la u (N/A, 20/10/2025 20:52 Lima)
-
-Sin noticias relacionadas disponibles.
-
-
-### la u (N/A, 20/10/2025 20:52 Lima)
-
-- **Fabián Hormazábal tras su renovación con la U: "Poder seguir me llena de motivación"**: [Link](https://www.espn.com.pe/futbol/copa-sudamericana/nota/_/id/15841426/fabian-hormazabal-motivado-por-renovacion-con-universidad-chile-hasta-2028)
-- **Universitario vs Ayacucho FC EN VIVO HOY: minuto a minuto por Torneo Clausura de la Liga 1 2025**: [Link](https://www.infobae.com/peru/deportes/2025/10/20/universitario-vs-ayacucho-fc-en-vivo-hoy-golperu-monumental-fecha-15-torneo-clausura-liga-1-2025-goles-resumen-resultado/)
-- **Universitario vs. Ayacucho FC EN VIVO por GOLPERU: minuto a minuto y canal gratis**: [Link](https://depor.com/futbol-peruano/descentralizado/ver-universitario-vs-ayacucho-fc-en-vivo-hoy-minuto-a-minuto-golperu-futbol-libre-tv-movistar-tv-canales-por-internet-en-directo-online-torneo-clausura-2025-noticia/)
-
-
-### atlético tucumán - san lorenzo (N/A, 20/10/2025 20:52 Lima)
-
-- **Pronósticos Atlético Tucumán vs San Lorenzo: el Ciclón busca un poco de paz**: [Link](https://bolavip.com/ar/apuestas/pronosticos/atletico-tucuman-vs-san-lorenzo-20-10-2025)
-- **Fútbol libre por celular: cómo ver en vivo Atlético Tucumán vs. San Lorenzo**: [Link](https://www.minutouno.com/deportes/futbol-libre-celular-como-ver-vivo-atletico-tucuman-vs-san-lorenzo-n6204055)
-- **El motivo por el que Atlético Tucumán decidió no concentrar antes de enfrentar a San Lorenzo**: [Link](https://www.ole.com.ar/atletico-tucuman/atletico-tucuman-concentracion-san-lorenzo-deuda-protesta_0_ayyvPB9SmO.html)
-
-
-### tabla liga 1 (N/A, 20/10/2025 15:27 Lima)
-
-- **Tabla de posiciones de la Liga 1 Perú 2025 EN VIVO: así van los equipos en la fecha 15 del Torneo Clausura y Acumulada**: [Link](https://www.infobae.com/peru/deportes/2025/10/18/tabla-de-posiciones-liga-1-peru-2025-en-vivo-hoy-acumulada-fecha-15-torneo-clausura-programacion-resultados/)
-- **Así se jugará la fecha 15 del Clausura de la Liga 1 2025**: [Link](https://www.espn.com.pe/futbol/peru/nota/_/id/15822366/programacion-de-la-fecha-15-del-clausura-liga-1-de-peru)
-- **Tabla de posiciones de Liga 1 2025 EN VIVO: acumulado y resultados de la fecha 15 del Clausura**: [Link](https://depor.com/futbol-peruano/descentralizado/tabla-de-posiciones-liga-1-peru-2025-en-vivo-resultados-de-la-fecha-15-torneo-clausura-universitario-de-deportes-cusco-fc-sporting-cristal-alianza-lima-noticia/)
 
 
