@@ -1,3 +1,71 @@
+### partidos de universitario (N/A, 23/10/2025 20:47 Lima)
+
+- **Franco Velazco: el partido contra Cristal, su fe en el tricampeonato y la respuesta a Gorosito**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/universitario-franco-velazco-sobre-partido-ante-sporting-cristal-su-fe-en-el-tricampeonato-y-la-respuesta-a-nestor-gorosito-video-noticia/)
+- **Universitario rumbo al tricampeonato: ¿qué resultados necesita para ganar el Torneo Clausura 2025?**: [Link](https://www.infobae.com/peru/deportes/2025/10/21/universitario-rumbo-al-tricampeonato-que-resultados-necesita-para-ganar-el-torneo-clausura-2025/)
+- **Universitario ya no podrá ser tricampeón de la Liga 1 a costa de Sporting Cristal**: [Link](https://espndeportes.espn.com/futbol/peru/nota/_/id/15817244/universitario-ya-no-podra-ser-tricampeon-de-la-liga-1-a-costa-de-sporting-cristal)
+
+
+### liga1 (N/A, 23/10/2025 20:47 Lima)
+
+- **Néstor Gorosito renueva con Alianza Lima hasta 2026**: [Link](https://espndeportes.espn.com/futbol/peru/nota/_/id/15784312/nestor-pipo-gorosito-renovo-contrato-con-alianza-lima)
+- **Gorosito lanzó picante mensaje tras renovar en Alianza Lima**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/gorosito-lanzo-picante-mensaje-renovar-alianza-lima-n451455)
+- **¿El ‘Tunche’ Rivera es el culpable de que Alianza Lima no ganara el Apertura? Esto reveló ‘Pipo’ Gorosito sobre el delantero merengue: “Por eso ellos...”**: [Link](https://elcomercio.pe/respuestas/deportes/el-tunche-rivera-es-el-culpable-de-que-alianza-lima-no-ganara-el-apertura-esto-revelo-pipo-gorosito-sobre-el-delantero-merengue-por-eso-ellos-tdpe-noticia/)
+
+
+### pelota libre (N/A, 23/10/2025 20:47 Lima)
+
+- **En 30 minutos: Lanús vence 2-0 a U. de Chile en Santiago por Copa Sudamericana | VIDEO**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/goles-de-u-de-chile-vs-lanus-por-semifinal-de-la-copa-sudamericana-gol-de-rodrigo-castillo-video-noticia/)
+- **Di Yorio descontó ante Lanús y le dio vida a Universidad de Chile**: [Link](https://espndeportes.espn.com/futbol/copa-sudamericana/nota/_/id/15857034/video-di-yorio-desconto-ante-lanus-y-le-dio-vida-a-universidad-de-chile)
+- **Castillo puso arriba a Lanús ante U de Chile en una ráfaga por la Sudamericana**: [Link](https://www.espn.com.ar/futbol/copa-sudamericana/nota/_/id/15856862/video-castillo-puso-arriba-a-lanus-ante-u-de-chile-con-un-golazo-por-la-sudamericana)
+
+
+### u (N/A, 23/10/2025 20:47 Lima)
+
+- **All but 2 Universities Decline a Trump Offer of Preferential Funding**: [Link](https://www.nytimes.com/2025/10/20/us/politics/universities-funding-compact.html)
+- **As deadline for Trump’s colleges compact looms, schools signal dissent**: [Link](https://www.npr.org/2025/10/20/nx-s1-5579618/trump-college-university-compact-uva-mit-dartmouth)
+- **Another university declines Trump’s offer for priority funding**: [Link](https://www.pbs.org/newshour/show/another-university-declines-trumps-offer-for-priority-funding)
+
+
+### golperu (N/A, 23/10/2025 20:47 Lima)
+
+- **Universitario le ganó agónicamente 2-1 a Ayacucho FC y se acerca cada vez más al tricampeonato**: [Link](https://www.espn.com.pe/futbol/peru/nota/_/id/15825932/universitario-vs-ayacucho-fc-por-liga1-equipo-fecha-hora-y-tv-en-vivo)
+- **Franco Velazco: “La garra está en el ADN de la ‘U’. Estábamos con un jugador menos y, pese a ello, logramos el triunfo en un partido muy difícil”**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/franco-velazco-la-garra-esta-en-el-adn-del-jugador-de-la-u-estabamos-con-un-jugador-menos-y-pese-a-ello-logramos-el-gol-del-triunfo-en-un-partido-muy-dificil-liga-1-te-apuesto-ultimas-noticia/)
+- **Rivera habló de su agónico gol y le dejó mensaje a Cristal**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/jose-rivera-hablo-su-agonico-gol-y-le-dejo-mensaje-cristal-n451420)
+
+
+### directv (N/A, 23/10/2025 20:47 Lima)
+
+Sin noticias relacionadas disponibles.
+
+
+### belgrano - argentinos jrs. (N/A, 23/10/2025 20:47 Lima)
+
+- **Golazo de Zelarayán para adelantar a Belgrano ante Argentinos Juniors**: [Link](https://www.espn.com.ar/futbol/argentina/nota/_/id/15857504/video-gol-de-lucas-zelarayan-belgrano-vs-argentinos-juniors-copa-argentina)
+- **Alberdi se mudó a Rosario: las fotos del éxodo de los hinchas de Belgrano**: [Link](https://www.cadena3.com/noticia/belgrano/alberdi-se-mudo-a-rosario-las-fotos-del-exodo-de-los-hinchas-de-belgrano_478024)
+- **Artime: "Cambiaría todo lo que viví en Belgrano por este partido"**: [Link](https://canalc.com.ar/artime-cambiaria-todo-lo-que-vivi-en-belgrano-por-este-partido/)
+
+
+### ldu quito - palmeiras (N/A, 23/10/2025 20:47 Lima)
+
+- **Liga de Quito - Palmeiras hoy, en vivo: Copa Libertadores en directo**: [Link](https://as.com/futbol/internacional/liga-de-quito-palmeiras-hoy-en-vivo-copa-libertadores-en-directo-f202510-d/)
+- **Quiñónez fabricó un penal y Alzugaray lo definió para el segundo de Liga ante Palmeiras**: [Link](https://www.espn.com.ar/futbol/copa-libertadores/nota/_/id/15857545/video-gol-liga-de-quito-palmeiras-lisandro-alzugaray-penal-libertadores)
+- **Gabriel Villamil selló un golazo para poner arriba a Liga de Quito ante Palmeiras en la Libertadores**: [Link](https://espndeportes.espn.com/futbol/copa-libertadores/nota/_/id/15857456/video-gol-liga-de-quito-palmeiras-gabriel-villamil-libertadores)
+
+
+### sporting cristal - universitario (N/A, 23/10/2025 20:47 Lima)
+
+- **Universitario visita a Sporting Cristal en busca de acercarse más hacia su tricampeonato**: [Link](https://www.espn.com.pe/futbol/peru/nota/_/id/15845373/universitario-vs-sporting-cristal-fecha-14-clausura-liga-1-de-peru-equipo-fecha-hora-y-tv-en-vivo)
+- **VER LIGA 1 MAX EN VIVO: Cristal-Universitario por DirecTV y Zapping TV**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/liga-1-max-en-vivo-gratis-futbol-libre-tv-cristal-vs-universitario-hoy-online-por-liga-1-video-noticia/)
+- **Alineaciones de Universitario vs Sporting Cristal HOY: posibles titulares para choque pendiente del Torneo Clausura 2025**: [Link](https://www.infobae.com/peru/deportes/2025/10/23/alineaciones-universitario-vs-sporting-cristal-equipos-titulares-partido-pendiente-fecha-14-torneo-clausura-liga-1-2025/)
+
+
+### palmeiras (N/A, 23/10/2025 20:47 Lima)
+
+- **Renata Ruel bate o martelo sobre lances polêmicos em LDU x Palmeiras**: [Link](https://www.lance.com.br/fora-de-campo/renata-ruel-bate-o-martelo-sobre-lances-polemicos-em-ldu-x-palmeiras.html)
+- **Libertadores: KTO tem R$10 em aposta grátis para LDU x Palmeiras**: [Link](https://www.terra.com.br/apostas/libertadores-kto-tem-r10-em-aposta-gratis-para-ldu-x-palmeiras,95ccaec550d69af1facd539f36cf7e86s8tomevn.html)
+- **Abel Ferreira prepara Palmeiras com 3 mudanças, e colocará Raphael Veiga, Emi Martínez e Murilo na equipe**: [Link](https://br.bolavip.com/palmeiras/abel-ferreira-prepara-palmeiras-com-3-mudancas-e-colocara-raphael-veiga-emi-martinez-e-murilo-na-equipe)
+
+
 ### lille (N/A, 23/10/2025 15:25 Lima)
 
 - **Preview:Lille vs PAOK - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/lille/europa-league/preview/lille-vs-paok-prediction-team-news-lineups_584009.html)
@@ -958,75 +1026,5 @@ Sin noticias relacionadas disponibles.
 - **Tabla de posiciones de la Liga 1 Perú 2025 EN VIVO: así van los equipos en la fecha 15 del Torneo Clausura y Acumulada**: [Link](https://www.infobae.com/peru/deportes/2025/10/18/tabla-de-posiciones-liga-1-peru-2025-en-vivo-hoy-acumulada-fecha-15-torneo-clausura-programacion-resultados/)
 - **Así se jugará la fecha 15 del Clausura de la Liga 1 2025**: [Link](https://www.espn.com.pe/futbol/peru/nota/_/id/15822366/programacion-de-la-fecha-15-del-clausura-liga-1-de-peru)
 - **Tabla de posiciones de Liga 1 2025 EN VIVO: acumulado y resultados de la fecha 15 del Clausura**: [Link](https://depor.com/futbol-peruano/descentralizado/tabla-de-posiciones-liga-1-peru-2025-en-vivo-resultados-de-la-fecha-15-torneo-clausura-universitario-de-deportes-cusco-fc-sporting-cristal-alianza-lima-noticia/)
-
-
-### liga1 (N/A, 20/10/2025 15:27 Lima)
-
-- **Universitario y la semana más importante del 2025: ¿Cuántos millones están en juego para los cremas que anhelan levantar el ‘Tri’?**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/universitario-y-la-semana-mas-importante-del-2025-cuantos-millones-estan-en-juego-para-los-cremas-que-anhelan-levantar-el-tri-liga-1-te-apuesto-noticia/)
-- **Los partidos que disputará Universitario en una semana**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/cruciales-partidos-que-disputara-universitario-semana-n451403)
-- **Cuestión de números: ¿Universitario puede lograr el tricampeonato de la Liga1 ante Sporting Cristal?**: [Link](https://rpp.pe/futbol/descentralizado/universitario-puede-lograr-el-tricampeonato-de-liga1-ante-sporting-cristal-torneo-clausura-cusco-fc-noticia-1659918)
-
-
-### al vs (N/A, 20/10/2025 15:27 Lima)
-
-- **Driven since Week 1 loss, red-hot Tide rout Vols**: [Link](https://www.espn.com/college-football/story/_/id/46644440/alabama-lights-tennessee-4th-straight-win-vs-ranked-team)
-- **2 Alabama stars split SEC defensive player of the week award**: [Link](https://www.al.com/alabamafootball/2025/10/2-alabama-stars-split-sec-defensive-player-of-the-week-award.html)
-- **Rucker: It couldn’t happen again. Until it did.**: [Link](https://www.wbir.com/article/sports/college/vols/vols-football/wes-rucker-it-couldnt-happen-again-until-it-did-vols-tennessee-alabama/51-41f9ac13-1a63-469b-bc41-c8e31cf7e2a5)
-
-
-### melissa klug (N/A, 20/10/2025 15:27 Lima)
-
-- **Melissa Klug aclara comunicado de ruptura con Jesús Barco: “Lo siento”**: [Link](https://www.infobae.com/peru/2025/10/20/melissa-klug-aclara-comunicado-de-ruptura-con-jesus-barco-lo-siento/)
-- **Evelyn Vela indirecta por ruptura Melissa Klug y Jesús**: [Link](https://www.americatv.com.pe/america-hoy/evelyn-vela-lanzo-indirecta-ruptura-melissa-klug-y-jesus-noticia-161020)
-- **Melissa Klug se ARREPIENTE tras comunicado sobre el fin de su relación con Jesús Barco: “Fue un error”**: [Link](https://www.atv.pe/noticia/melissa-klug-se-arrepiente-tras-comunicado-sobre-el-fin-de-su-relacion-con-jesus-barco-fue-un-error/)
-
-
-### u vs (N/A, 20/10/2025 15:27 Lima)
-
-- **A qué hora juega Universitario vs Ayacucho FC HOY: duelo en el Nacional por el Torneo Clausura de la Liga 1 2025**: [Link](https://www.infobae.com/peru/deportes/2025/10/19/a-que-hora-juega-universitario-vs-ayacucho-fc-partido-fecha-15-torneo-clausura-liga-1-2025-horario/)
-- **Universitario vs Ayacucho FC: Instrucciones para el proceso de acreditación**: [Link](https://universitario.pe/noticias/noticias-primer-equipo/universitario-vs-ayacucho-fc-instrucciones-para-el-proceso-de-acreditacion-2)
-- **Sin Edison Flores ni Rodrigo Ureña: el equipo titular que alista Jorge Fossati para recibir a Ayacucho FC**: [Link](https://bolavip.com/pe/universitario/sin-edison-flores-ni-rodrigo-urena-el-equipo-titular-que-alista-jorge-fossati-para-recibir-a-ayacucho-fc)
-
-
-### valencia cf (N/A, 20/10/2025 15:27 Lima)
-
-- **Gaya iguala a Parejo en partidos con el Valencia CF**: [Link](https://www.superdeporte.es/valencia-cf/2025/10/20/jose-luis-gaya-gaya-valencia-cf-122828577.html)
-- **Carlos Larrínaga: Donald Trump y el Nobel de la Paz**: [Link](https://www.diariovasco.com/opinion/carlos-larrinaga-donald-trump-nobel-paz-20251020235912-nt.html)
-- **Israel asesina a miembros de Hamás tras cruzar la 'línea amarilla' en Gaza**: [Link](https://www.laverdad.es/internacional/israel-asesina-miembros-hamas-tras-cruzar-linea-20251019210009-virc.html)
-
-
-### xiomy kanashiro (N/A, 20/10/2025 15:27 Lima)
-
-- **Jefferson Farfán: papá de Xiomy Kanashiro lanzó advertencia**: [Link](https://www.americatv.com.pe/america-hoy/jefferson-farfan-papa-xiomy-kanashiro-le-envio-advertencia-noticia-161021)
-- **¿Se casaron? Jefferson Farfán y Xiomy Kanashiro lucen presuntos anillos de matrimonio**: [Link](https://www.atv.pe/noticia/se-casaron-jefferson-farfan-y-xiomy-kanashiro-lucen-presuntos-anillos-de-matrimonio/)
-- **Janet: Xiomy y Farfán buscan iglesia**: [Link](https://ojo.pe/ojo-show/janet-xiomy-y-farfan-buscan-iglesia-noticia/)
-
-
-### daniel naroditsky (N/A, 20/10/2025 15:27 Lima)
-
-- **Grandmaster, Popular Commentator Daniel Naroditsky Tragically Passes Away At 29**: [Link](https://www.chess.com/news/view/grandmaster-daniel-naroditsky-dies-at-29)
-- **Charlotte chess phenomenon dies unexpectedly at 29**: [Link](https://www.wbtv.com/2025/10/20/charlotte-chess-phenomenon-dies-unexpectedly-29/)
-- **Bay Area Chess Grandmaster, Streamer Daniel Naroditsky Dead at 29**: [Link](https://hoodline.com/2025/10/bay-area-chess-grandmaster-streamer-daniel-naroditsky-dead-at-29/)
-
-
-### alavés - valencia c. f. (N/A, 20/10/2025 15:27 Lima)
-
-- **Alavés - Valencia, en directo: LaLiga EA Sports hoy en vivo**: [Link](https://as.com/futbol/primera/alaves-valencia-en-directo-laliga-ea-sports-hoy-en-vivo-f202510-d/)
-- **Examen de madurez competitiva del Valencia contra la solidez del Alavés**: [Link](https://www.mundodeportivo.com/futbol/laliga/20251020/1002553463/examen-madurez-competitiva-valencia-solidez-alaves.html)
-- **Coudet repite once, con Calebe en la derecha y Carlos Vicente en el banquillo**: [Link](https://www.elcorreo.com/alaves/coudet-repite-once-calebe-derecha-carlos-vicente-20251020200803-nt.html)
-
-
-### universitario (N/A, 20/10/2025 15:27 Lima)
-
-- **¡El Nacional será celeste! El duelo entre Sporting Cristal vs. Universitario se jugará solo con hinchada local**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/sporting-cristal-vs-universitario-se-jugara-con-hinchada-local-en-el-estadio-nacional-por-liga-1-noticia/)
-- **“Los consideramos un clásico”: Martín Távara en la previa del duelo con Universitario**: [Link](https://depor.com/futbol-peruano/descentralizado/sporting-cristal-martin-tavara-hablo-sobre-seguir-en-la-pelea-del-torneo-clausura-en-la-previa-del-duelo-con-universitario-liga-1-noticia/)
-- **¡Último minuto! Sporting Cristal vs. Universitario: Partido corre el riesgo de volver a suspenderse**: [Link](https://bolavip.com/pe/liga-1/ultimo-minuto-sporting-cristal-vs-universitario-partido-corre-el-riesgo-de-volver-a-suspenderse)
-
-
-### liga de campeones de la afc (N/A, 20/10/2025 11:30 Lima)
-
-- **Shanghai Shenhua vs FC Seoul: pronósticos, cuotas, transmisión y datos para apostar!**: [Link](https://www.apwin.com/es/pronosticos/shanghai-shenhua-vs-fc-seoul-pronostico-afc-champions-league-22-10-2025/)
-- **Melbourne City FC vs Buriram United: pronósticos, cuotas, transmisión y datos para apostar!**: [Link](https://www.apwin.com/es/pronosticos/melbourne-city-fc-vs-buriram-united-pronostico-afc-champions-league-21-10-2025/)
-- **Al Hilal vs Al Sadd: pronósticos, cuotas, transmisión y datos para apostar!**: [Link](https://www.apwin.com/es/pronosticos/al-hilal-vs-al-sadd-pronostico-afc-champions-league-21-10-2025/)
 
 
