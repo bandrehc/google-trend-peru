@@ -1,3 +1,45 @@
+### municipalidades dni electronico (N/A, 24/10/2025 03:31 Lima)
+
+- **Trámite de DNI electrónico gratis para este 26 de octubre: conoce dónde y qué servicios son los disponibles**: [Link](https://www.infobae.com/peru/2025/10/23/tramite-de-dni-electronico-gratis-para-este-26-de-octubre-conoce-donde-y-que-servicios-son-los-disponibles/)
+- **Municipalidades TRAMITARÁN DNI ELECTRÓNICO GRATIS: Lista de distritos**: [Link](https://peru21.pe/peru/municipalidades-tramitaran-dni-electronico-gratis-lista-de-distritos/)
+- **DNI electrónico gratuito este 25 de octubre: dónde se entregará y quiénes pueden recibirlo | tdpe | RESPUESTAS**: [Link](https://elcomercio.pe/respuestas/tramites/dni-electronico-gratuito-este-25-de-octubre-donde-se-entregara-y-quienes-pueden-recibirlo-tdpe-noticia/)
+
+
+### premios billboard 2025 (N/A, 24/10/2025 03:31 Lima)
+
+- **Telemundo transmitió los Premios Billboard de la Música Latina 2025**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/telemundo-en-vivo-gratis-donde-ver-los-premios-billboard-de-la-musica-latina-2025-por-tv-y-online-nnda-nnrt-noticia/)
+- **Bad Bunny, un Daddy Yankee cristiano y música para el mundial marcaron los Latin Billboard**: [Link](https://cnnespanol.cnn.com/2025/10/24/entretenimiento/bad-bunny-daddy-yankee-premios-latin-billboard-efe)
+- **Latin Billboard 2025: lista completa de nominados, con Bad Bunny, Karol G y Rauw Alejandro entre los favoritos**: [Link](https://rpp.pe/musica/internacional/latin-billboard-2025-lista-completa-de-nominados-de-premios-de-la-musica-latina-noticia-1660621)
+
+
+### nba (N/A, 24/10/2025 03:31 Lima)
+
+- **NBA stars and mafia among dozens arrested in illegal gambling crackdown**: [Link](https://www.bbc.com/news/articles/cvgmpp3x5x5o)
+- **Portland Trail Blazers coach Chauncey Billups charged in illegal poker operation tied to Mafia**: [Link](https://abcnews.go.com/US/miami-heat-terry-rozier-charged-nba-betting/story?id=126789368)
+- **Damon Jones alleged to have traded info on LeBron James missing 2023 Lakers game - The Athletic**: [Link](https://www.nytimes.com/athletic/6743596/2025/10/23/lebon-james-damon-jones-nba-gambling-investigation/)
+
+
+### warriors vs (N/A, 24/10/2025 03:31 Lima)
+
+- **Game Thread: Denver Nuggets vs Golden State Warriors. October 23rd, 2025.**: [Link](https://bvmsports.com/2025/10/23/game-thread-denver-nuggets-vs-golden-state-warriors-october-23rd-2025/)
+- **Where to watch Nuggets vs. Warriors free stream today**: [Link](https://www.masslive.com/tv/2025/10/where-to-watch-nuggets-vs-warriors-free-stream-today.html)
+- **Golden State Warriors Top Dunks vs. Denver Nuggets**: [Link](https://www.nba.com/warriors/videos/golden-state-warriors-top-dunks-vs-denver-nuggets-20)
+
+
+### tabla acumulada liga 1 2025 (N/A, 24/10/2025 03:31 Lima)
+
+- **Así se jugará los playoffs rumbo a la Libertadores 2026 si hoy terminara el Torneo Clausura**: [Link](https://libero.pe/futbol-peruano/liga-1/2025/10/21/liga-1-asi-se-jugarian-playoffs-rumbo-copa-libertadores-2025-hoy-terminara-torneo-clausura-703542)
+- **Cambio de reglas para definir al subcampeón de la Liga 1 en este 2025**: [Link](https://www.futbolperuano.com/liga-1/noticias/la-novedosa-definicion-del-subcampeon-de-la-liga-1-2025-544411)
+- **De ser Perú 2: ¿Alianza Lima iría a fase de grupos de la Copa Libertadores 2026?**: [Link](https://www.futbolperuano.com/liga-1/noticias/de-acabar-como-peru-2-alianza-lima-iria-a-la-fase-de-grupos-de-la-copa-libertadores-2026-544307)
+
+
+### club alianza lima (N/A, 24/10/2025 03:31 Lima)
+
+- **“El año que viene debemos salir campeones”: la promesa de Gorosito tras renovar al 2026, su idea sobre Paolo y Barcos y un mea culpa por un año sin títulos**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/alianza-lima-el-ano-que-viene-debemos-salir-campeones-la-promesa-de-nestor-gorosito-tras-renovar-al-2026-su-idea-sobre-paolo-y-barcos-y-un-mea-culpa-por-un-ano-sin-titulos-tlcnota-noticia/)
+- **Néstor Gorosito renueva con Alianza Lima hasta 2026**: [Link](https://espndeportes.espn.com/futbol/peru/nota/_/id/15784312/nestor-pipo-gorosito-renovo-contrato-con-alianza-lima)
+- **Gorosito lanzó picante mensaje tras renovar en Alianza Lima**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/gorosito-lanzo-picante-mensaje-renovar-alianza-lima-n451455)
+
+
 ### barcelona vs real madrid (N/A, 23/10/2025 23:27 Lima)
 
 - **¿Qué equipo crees que llega mejor al Clásico: Real Madrid o Barcelona?**: [Link](https://as.com/futbol/primera/que-equipo-crees-que-llega-mejor-al-clasico-real-madrid-o-barcelona-f202510-d/)
@@ -988,47 +1030,5 @@ Sin noticias relacionadas disponibles.
 - **Así se jugará la fecha 16 del Clausura de la Liga 1 2025**: [Link](https://www.espn.com.ar/futbol/peru/nota/_/id/15842907/programacion-de-la-fecha-16-del-clausura-liga-1-de-peru)
 - **Así se jugará la jornada 16 del Torneo Clausura**: [Link](https://ovacion.pe/noticias/liga1-te-apuesto-2025/asi-se-jugara-jornada-16-del-torneo-clausura)
 - **Así se jugará la fecha 16 del Torneo Clausura de la Liga 1**: [Link](https://www.futbolperuano.com/liga-1/noticias/liga-1-como-se-jugara-la-fecha-16-del-torneo-clausura-de-la-primera-division-544220)
-
-
-### qué pasó con amazon hoy (N/A, 20/10/2025 23:28 Lima)
-
-- **Resumen de la caída global de Amazon, Fortnite, Facebook, Roblox y más**: [Link](https://cnnespanol.cnn.com/economia/live-news/fallos-amazon-web-service-snapchat-facebook-fortnite-trax)
-- **Una falla global en la nube de Amazon genera problemas a cientos de aplicaciones de empresas como Snapchat, Zoom y varios bancos**: [Link](https://www.bbc.com/mundo/articles/cly941r41w4o)
-- **Un apagón en los servicios web de Amazon deja inactivas a las apps y plataformas más importantes en todo el mundo**: [Link](https://www.clarin.com/mundo/apagon-servicios-web-amazon-deja-inactivas-apps-plataformas-importantes_0_varHMlo8XP.html)
-
-
-### liam gallagher (N/A, 20/10/2025 23:28 Lima)
-
-- **Yo Soy 2025: imitador de Liam Gallagher sorprende al jurado tras llegar por sexta vez al casting**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-2025-imitador-de-liam-gallagher-sorprende-al-jurado-tras-llegar-por-sexta-vez-al-casting_20251020/)
-- **Oasis reveal huge update as Bonehead's replacement confirmed**: [Link](https://www.mirror.co.uk/3am/celebrity-news/breaking-oasis-reveal-huge-update-36102828)
-- **Oasis issue update on Bonehead replacement**: [Link](https://www.facebook.com/ManchesterEveningNews/photos/oasis-issue-update-on-bonehead-replacement/1271892941639735/)
-
-
-### monaco (N/A, 20/10/2025 23:28 Lima)
-
-- **Charlène de Monaco divine et ultra chic dans un look oversize, la nouvelle tendance de l’automne**: [Link](https://www.purepeople.com/article/charlene-de-monaco-divine-et-ultra-chic-dans-un-look-oversize-la-nouvelle-tendance-de-l-automne_a543767/1)
-- **La Princesse Charlène honore Mireille Calmes, pionnière de l'inclusion sportive des personnes en situation de handicap**: [Link](https://www.monaco-tribune.com/2025/10/la-princesse-charlene-honore-mireille-calmes-pionniere-de-linclusion-sportive-des-personnes-en-situation-de-handicap/)
-- **Inauguration princière du siège rénové de la SMEG**: [Link](https://lagazettedemonaco.com/actualites/societe/inauguration-princiere-du-siege-renove-de-la-smeg)
-
-
-### alejandro landero (N/A, 20/10/2025 23:28 Lima)
-
-- **Famoso actor de Televisa es encontrado viviendo en la calle junto a sus mascotas: vecinos piden ayuda**: [Link](https://rpp.pe/famosos/celebridades/alejandro-landero-actor-de-rosa-salvaje-es-encontrado-viviendo-en-las-calles-de-mexico-junto-a-sus-mascotas-noticia-1660186)
-- **Actor de Rosa Salvaje vive en situación de calle: se niega a abandonar a sus mascotas**: [Link](https://www.univision.com/famosos/alejandro-landero-actor-rosa-salvaje-situacion-calle)
-- **Exestrella de Televisa es captada en situación de calle en CDMX**: [Link](https://onefootball.com/fr/news/exestrella-de-televisa-es-captada-en-situacion-de-calle-en-cdmx-41833275)
-
-
-### sabrina carpenter (N/A, 20/10/2025 23:28 Lima)
-
-- **Sabrina Carpenter drops the F-bomb — twice — during live ‘SNL’ performance**: [Link](https://nypost.com/2025/10/19/entertainment/sabrina-carpenter-drops-f-bomb-twice-during-snl-performance/)
-- **On ‘Saturday Night Live,’ a Milestone for Domingo**: [Link](https://www.nytimes.com/2025/10/19/arts/television/snl-sabrina-carpenter-trump-george-santos.html)
-- **‘SNL’s Domingo Sketch Just Earned A Historically Dubious Distinction From Fans**: [Link](https://www.cracked.com/article_48826_snls-domingo-sketch-just-earned-a-historically-dubious-distinction-from-fans.html)
-
-
-### temblor hoy (N/A, 20/10/2025 20:52 Lima)
-
-- **Tacna: un sismo de magnitud 4.1 se sintió esta tarde en Ilabaya**: [Link](https://rpp.pe/peru/tacna/tacna-un-sismo-de-magnitud-41-se-sintio-esta-tarde-en-ilabaya-noticia-1659961)
-- **Sismos en Lima y Apurímac: movimientos leves alertan a la población**: [Link](https://caretas.pe/nacional/sismos-en-lima-y-apurimac-movimientos-leves-alertan-a-la-poblacion/)
-- **🔴🔵El IGP reportó un movimiento telúrico a las 3:30 a.m. con una intensidad de III en Chilca, sin reportes de daños ni víctimas que lamentar. 🌐Más información en: https://www.exitosanoticias.pe**: [Link](https://www.facebook.com/Exitosanoticias/posts/el-igp-report%C3%B3-un-movimiento-tel%C3%BArico-a-las-330-am-con-una-intensidad-de-iii-en-/1248925693937153/)
 
 
