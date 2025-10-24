@@ -1,3 +1,45 @@
+### real sociedad vs sevilla (N/A, 24/10/2025 11:30 Lima)
+
+- **Sevilla visita a Real Sociedad por la fecha 10 de LaLiga**: [Link](https://www.espn.com.pe/futbol/espana/nota/_/id/15852782/real-sociedad-vs-sevilla-fecha-10-laliga-alexis-sanchez-fecha-hora-tv-en-vivo)
+- **LaLiga EA Sports: Sevilla visita a Real Sociedad por la fecha 10**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-sevilla-visita-a-real-sociedad-por-la-fecha-10-noticia-1660611)
+- **Pronóstico Real Sociedad - Sevilla. LaLiga | 24/10/2025**: [Link](https://gainblers.com/pe/pronosticos/futbol/espana/liga-primera-division/pronostico-real-sociedad-sevilla-24-10-2025/)
+
+
+### werder bremen (N/A, 24/10/2025 11:30 Lima)
+
+- **„Ich bin innerlich unter Strom“: Ruhepol gegen Seitenlinien-Tiger: Werder gegen Union bietet auch ein Duell der Coaches**: [Link](https://www.deichstube.de/news/werder-bremen-union-berlin-auch-coach-duell-ruhepol-horst-steffen-gegen-seitenlinien-tiger-steffen-baumgart-bundesliga-heimspiel-94004125.html)
+- **Union-Kapitän Trimmel droht Gelb-Sperre, ausgerechnet Schiri Schlager pfeift**: [Link](https://www.berliner-kurier.de/union/union-kapitaen-trimmel-droht-gelb-sperre-ausgerechnet-schiri-schlager-pfeift-li.10002312)
+- **Werder Bremen: Der Ex kehrt zurück: Vorsicht vor Berlin-Blitz Burke!**: [Link](https://www.bild.de/sport/fussball/werder-bremen-der-ex-kehrt-zurueck-vorsicht-vor-berlin-blitz-burke-68fa02328578985b5d13245b)
+
+
+### paris fc (N/A, 24/10/2025 11:30 Lima)
+
+- **How to Watch Paris FC vs. FC Nantes: Live Stream, TV Channel, Start Time | 10/24/2025**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/10/20/how-to-watch-paris-fc-vs-fc-nantes-live-stream-tv-10-24-2025/86808103007/)
+- **Nantes predicted XI v Paris FC: Mostafa Mohamed to be dropped?**: [Link](https://www.getfootballnewsfrance.com/2025/nantes-predicted-xi-v-paris-fc-mostafa-mohamed-to-be-dropped/)
+- **Paris FC vs Nantes Prediction, 10/24/2025 Soccer Pick, Tips and Odds**: [Link](https://www.docsports.com/free-picks/soccer/2025/paris-fc-vs-nantes-prediction-10-24-2025-soccer-pick-tips-and-odds.html)
+
+
+### precio dolar perú (N/A, 24/10/2025 11:30 Lima)
+
+- **Precio del dólar en Perú: tipo de cambio hoy, viernes 24 de octubre**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-a-cuanto-esta-el-dolar-y-tipo-de-cambio-este-viernes-24-de-octubre-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
+- **¿Cuál es la cotización del dólar hoy viernes 24 de octubre del 2025?**: [Link](https://andina.pe/agencia/noticia-cual-es-cotizacion-del-dolar-hoy-viernes-24-octubre-del-2025-1049494.aspx)
+- **Dólar hoy: ¡Cae a menos de 3.41 soles! Descubre cómo influyen los factores externos**: [Link](https://satelite.pe/dolar-hoy-cae-a-menos-de-3-41-soles-descubre-como-influyen-los-factores-externos)
+
+
+### néstor gorosito (N/A, 24/10/2025 11:30 Lima)
+
+- **“El año que viene debemos salir campeones”: la promesa de Gorosito tras renovar al 2026, su idea sobre Paolo y Barcos y un mea culpa por un año sin títulos**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/alianza-lima-el-ano-que-viene-debemos-salir-campeones-la-promesa-de-nestor-gorosito-tras-renovar-al-2026-su-idea-sobre-paolo-y-barcos-y-un-mea-culpa-por-un-ano-sin-titulos-tlcnota-noticia/)
+- **Néstor Gorosito renueva con Alianza Lima hasta 2026**: [Link](https://espndeportes.espn.com/futbol/peru/nota/_/id/15784312/nestor-pipo-gorosito-renovo-contrato-con-alianza-lima)
+- **Gorosito lanzó picante mensaje tras renovar en Alianza Lima**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/gorosito-lanzo-picante-mensaje-renovar-alianza-lima-n451455)
+
+
+### retiro afp habitat (N/A, 24/10/2025 11:30 Lima)
+
+- **Retiro AFP 2025: La fecha límite para el depósito según el día en que hiciste la solicitud**: [Link](https://www.infobae.com/peru/2025/10/22/retiro-de-afp-esta-es-la-fecha-limite-para-el-deposito-segun-la-fecha-de-solicitud/)
+- **Link, Retiro AFP: guía para solicitar hasta 4 UIT según cronograma por DNI**: [Link](https://elcomercio.pe/respuestas/tramites/link-del-retiro-afp-2025-hoy-solicita-segun-tu-dni-en-plataforma-oficial-hasta-s-21-400-soles-o-4-uit-de-tus-fondos-tdpe-noticia/)
+- **▷ Link retiro de AFP 2025 — revisa hoy cómo enviar la solicitud de registro con tu DNI hoy, 23 de octubre**: [Link](https://gestion.pe/mix/mi-bolsillo/link-retiro-de-afp-2025-consulta-aqui-como-enviar-la-solicitud-de-registro-con-tu-dni-este-22-y-23-de-octubre-nnda-nnrt-noticia/)
+
+
 ### real madrid vs barcelona (N/A, 24/10/2025 07:51 Lima)
 
 - **El análisis de El Clásico: todas las preguntas sin resolver antes del Real Madrid vs Barcelona**: [Link](https://as.com/futbol/videos/el-analisis-de-el-clasico-todas-las-preguntas-sin-resolver-antes-del-real-madrid-vs-barcelona-f202510-v/)
@@ -988,47 +1030,5 @@ Sin noticias relacionadas disponibles.
 - **Soda Stereo vuelve a Lima: fecha, lugar y entradas para el show que reunirá a Gustavo Cerati, Zeta Bosio y Charly Alberti**: [Link](https://www.infobae.com/peru/2025/10/21/soda-stereo-vuelve-a-lima-fecha-lugar-y-entradas-para-el-show-que-reunira-a-charly-alberti-zeta-bosio-y-gustavo-cerati/)
 - **Soda Stereo confirma concierto en Perú como parte de su gira “Ecos”: ¿Cuándo será el show?**: [Link](https://elcomercio.pe/luces/musica/soda-stereo-confirma-concierto-en-peru-como-parte-de-su-gira-ecos-gustavo-cerati-celebs-ultimas-noticia/)
 - **¿Soda Stereo vuelve al Perú? Calles limeñas lucen afiches de la agrupación**: [Link](https://andina.pe/agencia/noticia-soda-stereo-vuelve-al-peru-calles-limenas-lucen-afiches-de-agrupacion-1048918.aspx)
-
-
-### prima (N/A, 21/10/2025 11:30 Lima)
-
-- **Vision Restored Using Prosthetic Retinal Implant**: [Link](https://www.nytimes.com/2025/10/20/health/retinal-implant-macular-degeneration.html)
-- **Eye prosthesis is the first to restore sight lost to macular degeneration**: [Link](https://med.stanford.edu/news/all-news/2025/10/eye-prosthesis.html)
-- **Life-changing eye implant helps blind patients read again**: [Link](https://www.bbc.com/news/articles/c0qpz39jpj7o)
-
-
-### barcelona vs olympiacos (N/A, 21/10/2025 07:52 Lima)
-
-- **Barcelona vs. Olympiacos, por la Champions League 2025/2026: previa, posibles alineaciones, hora y cómo ver por TV e internet**: [Link](https://cnnespanol.cnn.com/2025/10/20/deportes/champions-league-barcelona-olympiacos-previa-alineaciones-orix)
-- **Apuestas y pronósticos Barcelona vs Olympiacos: la 'china' de Mendilibar previa al Clásico**: [Link](https://www.marca.com/apuestas-deportivas/predicciones/2025/10/20/apuestas-pronosticos-barcelona-vs-olympiacos-china-mendilibar-previa-clasico.html)
-- **ESPN hoy gratis, Barcelona vs. Olimpiacos online por UEFA Champions League**: [Link](https://elcomercio.pe/deporte-total/champions-league/espn-en-vivo-futbol-libre-tv-barcelona-vs-olimpiacos-hoy-gratis-via-movistar-liga-de-campeones-disney-plus-tnt-sports-amazon-prime-max-por-champions-league-video-noticia/)
-
-
-### pafos fc (N/A, 21/10/2025 03:34 Lima)
-
-- **Preview:Kairat vs Pafos - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/kairat/preview/kairat-vs-pafos-prediction-team-news-lineups_583878.html)
-- **Kairat Almaty v Paphos Best Bet Preview**: [Link](https://andysbetclub.co.uk/predictions/kairat-almaty-v-pafos-best-bet-preview/)
-- **Kairat Almaty vs Pafos FC Prediction and Betting Tips | October 21st 2025**: [Link](https://www.sportskeeda.com/football/kairat-almaty-vs-pafos-fc-prediction-betting-tips-october-21st-2025)
-
-
-### olympiacos (N/A, 21/10/2025 03:34 Lima)
-
-- **Barcelona vs. Olimpiacos por Champions League: horario, canal de transmisión y cómo ver**: [Link](https://elcomercio.pe/deporte-total/champions-league/barcelona-vs-olimpiacos-en-vivo-online-gratis-por-champions-league-a-que-hora-juegan-canal-tv-y-donde-ver-por-internet-via-movistar-espn-disney-plus-tnt-sports-max-movistar-video-noticia/)
-- **Champions League: Olympiacos se enfrentará a Barcelona por la fecha 3**: [Link](https://rpp.pe/futbol/ligas-internacionales/champions-league-olympiacos-se-enfrentara-a-barcelona-por-la-fecha-3-noticia-1660079)
-- **FC Barcelona — Olympiacos EN VIVO: a qué hora juega, qué canal transmite y dónde ver en directo por Champions League 2025 en USA y México**: [Link](https://gestion.pe/mix/sports/fc-barcelona-olympiacos-en-vivo-a-que-hora-juega-que-canal-transmite-y-donde-ver-en-directo-por-champions-league-2025-en-usa-y-mexico-nnda-nnse-noticia/)
-
-
-### universitario vs cristal (N/A, 21/10/2025 03:34 Lima)
-
-- **Jesús Castillo se perderá el clásico con Universitario vs. Sporting Cristal**: [Link](https://www.espn.com.ar/futbol/peru/nota/_/id/15842879/universitario-ausencia-de-castillo-vs-sporting-cristal-liga-1-de-peru)
-- **Se pierde el partido contra Cristal: Andy Polo fue expulsado en el Universitario vs Ayacucho F.C. | VIDEO**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/expulsion-de-andy-polo-hoy-en-el-universitario-vs-ayacucho-por-liga-1-video-noticia/)
-- **Universitario y las dos duras bajas que tendrá ante Cristal**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/universitario-y-dos-sensibles-bajas-que-tendra-ante-cristal-n451421)
-
-
-### melanie martinez (N/A, 20/10/2025 23:28 Lima)
-
-- **Hija de Cristian Domínguez revela que el cantante le aseguró que no volvería con Karla Tarazona**: [Link](https://elcomercio.pe/tvmas/farandula/hija-de-cristian-dominguez-revela-que-el-cantante-le-aseguro-que-no-volveria-con-karla-tarazona-ultimas-noticia/)
-- **Christian Domínguez ante críticas de su hija mayor: "Si es necesario buscaré ayuda profesional"**: [Link](https://peru21.pe/espectaculos/christian-dominguez-ante-criticas-de-su-hija-mayor-karla-tarazona/)
-- **Mamá de Camila Domínguez ROMPE SU SILENCIO y se pronuncia por POLÉMICA con Christian Domínguez: "Mi hija no miente"**: [Link](https://elpopular.pe/espectaculos/2025/10/20/mama-de-camila-dominguez-rompe-su-silencio-y-se-pronuncia-por-polemica-con-christian-dominguez-mi-hija-no-miente-458980)
 
 
