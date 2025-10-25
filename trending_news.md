@@ -1,3 +1,59 @@
+### dolar hoy peru (N/A, 25/10/2025 03:27 Lima)
+
+- **Precio del dólar vuelve a caer: Así cerró el tipo de cambio hoy 23 de octubre en Perú**: [Link](https://www.infobae.com/peru/2025/10/22/peru-cotizacion-de-apertura-del-dolar-hoy-22-de-octubre-de-usd-a-pen/)
+- **Precio del dólar en Perú del viernes 24 de octubre: a cuánto cerró el tipo de cambio**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-a-cuanto-esta-el-dolar-y-tipo-de-cambio-este-viernes-24-de-octubre-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
+- **El dólar ha sufrido una «tremenda caída del 9%»**: [Link](https://radiouno.pe/noticias/256610/el-dolar-ha-sufrido-una-tremenda-caida-del-9/)
+
+
+### chelsea vs sunderland (N/A, 25/10/2025 03:27 Lima)
+
+- **Training gallery: Sunderland in our sights | News | Official Site**: [Link](https://www.chelseafc.com/en/news/article/training-gallery-sunderland-in-our-sights)
+- **Haway The Podcast | MATCHDAY PREVIEW | Chelsea v SAFC | It’s A Tough Test In The Capital For Sunderland!**: [Link](https://rokerreport.sbnation.com/haway-the-podcast/111733/haway-the-podcast-matchday-preview-chelsea-v-safc-its-a-tough-test-in-the-capital-for-sunderland)
+- **Estevao benched, Joao Pedro role confirmed in eight changes - Predicted Chelsea XI vs Sunderland**: [Link](https://www.football.london/chelsea-fc/news/estevao-benched-joao-pedro-role-32743303)
+
+
+### ufc 321 (N/A, 25/10/2025 03:27 Lima)
+
+- **Who’s fighting on the UFC card tonight, October 25, 2025? – Full UFC 321 main and prelim card lineup, fighter records, and key highlights**: [Link](https://www.sportskeeda.com/mma/news-who-s-fighting-ufc-card-tonight-october-25-2025-full-ufc-321-main-prelim-card-lineup-fighter-records-key-highlights)
+- **‘All the hype is real’: Dricus du Plessis predicts Tom Aspinall vs. Ciryl Gane headliner at UFC 321**: [Link](https://www.mmafighting.com/ufc/450420/all-the-hype-is-real-dricus-du-plessis-predicts-tom-aspinall-vs-ciryl-gane-headliner-at-ufc-321)
+- **Major Storylines Heading Into UFC 321: Weigh-In Drama, Team Khabib in Spotlight, Co-Main Under Fire**: [Link](https://www.essentiallysports.com/ufc-mma-news-major-storylines-heading-into-ufc-321-weigh-in-drama-team-khabib-in-spotlight-co-main-under-fire/)
+
+
+### cometa 3i atlas nasa (N/A, 25/10/2025 03:27 Lima)
+
+- **El cometa 3I/ATLAS: ¿Podrán las misiones Europa Clipper de la NASA y Hera de ESA atravesar su cola? | MAG**: [Link](https://elcomercio.pe/mag/respuestas/ciencias/el-cometa-3iatlas-podran-las-misiones-europa-clipper-de-la-nasa-y-hera-de-esa-atravesar-su-cola-nnda-nnni-noticia/)
+- **Los orbitadores de Marte capturan las imágenes más cercanas del raro visitante interestelar 3I/ATLAS**: [Link](https://larepublica.pe/ciencia/2025/10/19/las-sondas-orbitantes-de-marte-capturan-las-imagenes-mas-cercanas-del-raro-visitante-interestelar-3iatlas-1672152)
+- **El problema del científico despierta la advertencia mientras los visitantes de Itlerylar se esconden detrás del sol de la mañana**: [Link](https://www.elpueblo.pe/noticias-internacionales/el-problema-del-cientifico-despierta-la-advertencia-mientras-los-visitantes-de-itlerylar-se-esconden-detras-del-sol-de-la-manana/85305/)
+
+
+### nba (N/A, 25/10/2025 03:27 Lima)
+
+- **Indictment Alleging Participation in Sports Betting Scheme**: [Link](https://www.nytimes.com/interactive/2025/10/23/nyregion/nba-betting-scheme-indictment.html)
+- **Portland Trail Blazers coach Chauncey Billups charged in illegal poker operation tied to Mafia**: [Link](https://abcnews.go.com/US/miami-heat-terry-rozier-charged-nba-betting/story?id=126789368)
+- **Billups, Rozier arrested in gambling investigations**: [Link](https://www.espn.com/nba/story/_/id/46695228/sources-terry-rozier-arrested-part-gambling-inquiry)
+
+
+### lakers vs (N/A, 25/10/2025 03:27 Lima)
+
+- **How to watch Lakers vs. Timberwolves NBA game tonight on Prime Video: Start time, free stream**: [Link](https://www.pennlive.com/tv/2025/10/how-to-watch-lakers-vs-timberwolves-nba-game-tonight-on-prime-video-start-time-free-stream.html)
+- **Fanatics Sportsbook Promo: Get Up To A $2,000 FanCash Bonus Starting With A Bet On Timberwolves-Lakers**: [Link](https://www.covers.com/daily-promos/fanatics-sportsbook-promo-nba-timberwolves-lakers-10-24-2025)
+- **Lakers vs Wolves! Lakers’ Starters, Rotations, And A Chance For Revenge**: [Link](https://bvmsports.com/2025/10/24/lakers-vs-wolves-lakers-starters-rotations-and-a-chance-for-revenge/)
+
+
+### miguel boyer (N/A, 25/10/2025 03:27 Lima)
+
+- **"Te diré cosas hermosas y dulces al oído mientras te hago el amor": Isabel Preysler publica las apasionadas cartas de amor de Mario Vargas Llosa**: [Link](https://www.vanitatis.elconfidencial.com/famosos/2025-10-22/isabel-preysler-cartas-amor-mario-vargas-llosa-pasion-hago-el-amor_4232718/)
+- **Familia de Mario Vargas Llosa evalúa demandar a Isabel Preysler por publicar cartas íntimas del Nobel: “Un auténtico desprestigio”**: [Link](https://www.infobae.com/peru/2025/10/24/mario-vargas-llosa-familia-de-mario-vargas-llosa-evalua-demandar-a-isabel-preysler-por-publicar-cartas-intimas-de-su-padre-un-autentico-desprestigio/)
+- **Isabel Preysler aclara la polémica que más ha dañado a los Vargas Llosa: quién pagaba la buena vida en Puerta del Hierro del escritor**: [Link](https://www.mujerhoy.com/celebrities/isabel-preysler-memorias-polemica-vargas-llosa-gastos-casa-moraleja-20251023120454-nt.html)
+
+
+### antonio tafur (N/A, 25/10/2025 03:27 Lima)
+
+- **Antonio Tafur habla de su nueva vida en EEUU con su esposo: "Ya tengo mis papeles en regla, ha sido una bendición"**: [Link](https://www.atv.pe/noticia/antonio-tafur-habla-de-su-nueva-vida-en-eeuu-con-su-esposo-ya-tengo-mis-papeles-en-regla-ha-sido-una-bendicion/)
+- **Antonio Tafur, amigo de Rosángela, revela si adoptará un hijo con su esposo: ¿Qué dijo?**: [Link](https://trome.com/espectaculos/tv/antonio-tafur-amigo-de-rosangela-espinoza-revela-si-adoptara-un-hijo-con-esposo-foto-video-farandula-noticia/)
+- **Antonio Tafur bromea sobre la 'clave de éxito' de su matrimonio: "Yo hago los planes y él pone la plata"**: [Link](https://www.atv.pe/noticia/antonio-tafur-bromea-sobre-la-clave-de-exito-de-su-matrimonio-yo-hago-los-planes-y-el-pone-la-plata/)
+
+
 ### america (N/A, 24/10/2025 23:26 Lima)
 
 - **Relocalización, energía y tecnología: el nuevo mapa estratégico entre América Latina y Estados Unidos**: [Link](https://www.infobae.com/peru/2025/10/24/relocalizacion-energia-y-tecnologia-el-nuevo-mapa-estrategico-entre-america-latina-y-estados-unidos/)
@@ -972,61 +1028,5 @@ Sin noticias relacionadas disponibles.
 - **Sorpresa en la Copa BetPlay: Envigado elimina al Pereira y se clasifica a semifinales**: [Link](https://www.espn.com.ar/futbol/colombia/nota/_/id/15843749/sorpresa-en-la-copa-betplay-envigado-elimina-al-pereira-y-se-clasifica-a-semifinales)
 - **Deportivo Pereira recibe a Envigado por los cuartos de final con una baja sensible en defensa**: [Link](https://www.lapatria.com/deportes/deportivo-pereira-recibe-envigado-por-los-cuartos-de-final-con-una-baja-sensible-en)
 - **Envigado chocará ante DIM en ‘semis’ de Copa tras eliminar a Pereira en vibrante definición**: [Link](https://caracol.com.co/2025/10/22/envigado-chocara-ante-dim-en-semis-de-copa-tras-eliminar-a-pereira-en-vibrante-definicion/)
-
-
-### jesus barcos (N/A, 21/10/2025 23:28 Lima)
-
-- **Alianza Universidad separó a Carlos Ascues, Alexi Gómez y Jesús Barco por indisciplina: el firme comunicado del club huanuqueño**: [Link](https://www.infobae.com/peru/deportes/2025/10/21/alianza-universidad-separo-a-carlos-ascues-alexi-gomez-y-jesus-barco-por-indisciplina-el-firme-comunicado-del-club-huanuqueno/)
-- **Sin pareja y sin chamba: Alianza Universidad separa a Jesús Barco tras imágenes de Magaly TV | VIDEO**: [Link](https://trome.com/espectaculos/tv/jesus-barco-pareja-de-melissa-klug-fue-separado-del-alianza-universidad-de-huanuco-hiena-gomez-y-carlos-ascues-noticia/)
-- **Purga en Alianza Universidad: club separó a tres jugadores por actos de indisciplina**: [Link](https://depor.com/futbol-peruano/descentralizado/purga-en-alianza-universidad-club-separo-a-jesus-barcos-carlos-ascues-y-alexi-gomez-por-actos-de-indisciplina-noticia/)
-
-
-### galatasaray vs (N/A, 21/10/2025 23:28 Lima)
-
-- **Galatasaray out to keep Champions League mojo burning against Bodo | Daily Sabah**: [Link](https://www.dailysabah.com/sports/football/galatasaray-out-to-keep-champions-league-mojo-burning-against-bodo)
-- **Preview:Galatasaray vs Bodo/Glimt - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/galatasaray/champions-league/preview/galatasaray-vs-bodoglimt-prediction-team-news-lineups_584003.html)
-- **Wednesday’s Goals Accumulator Tips: Turkish delight anticipated in 3/1 Acca**: [Link](https://mrfixitstips.co.uk/wednesdays-goals-accumulator-tips-turkish-delight-anticipated-in-3-1-acca/)
-
-
-### melissa klug (N/A, 21/10/2025 23:28 Lima)
-
-- **Las imágenes de Jesús Barco que habrían desatado el comunicado de Melissa Klug: en una piscina, con mujeres y amigos en Huánuco**: [Link](https://www.infobae.com/peru/2025/10/21/las-imagenes-de-jesus-barco-que-habrian-desatado-el-comunicado-de-melissa-klug-en-una-piscina-con-mujeres-y-amigos-en-huanuco/)
-- **Melissa Klug revela por qué eliminó el comunicado de su separación de Jesús Barco**: [Link](https://elcomercio.pe/tvmas/farandula/melissa-klug-revela-por-que-elimino-el-comunicado-de-su-separacion-de-jesus-barco-ultimas-noticia/)
-- **Jesús Barco manda indirecta tras su ampay en una piscina**: [Link](https://www.americatv.com.pe/noticias/espectaculos/jesus-barco-y-su-reaccion-su-ampay-piscina-n512135)
-
-
-### mazatlan vs (N/A, 21/10/2025 23:28 Lima)
-
-- **Liga MX: Se enfrentan Mazatlán y Santos Laguna por la fecha 14**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-se-enfrentan-mazatlan-y-santos-laguna-por-la-fecha-14-noticia-1660173)
-- **Meraz positivo con el futuro de los Cañonros**: [Link](https://www.msn.com/es-mx/deportes/futbol/meraz-positivo-con-el-futuro-de-los-ca%C3%B1onros/ar-AA1OQMSh)
-- **Seguridad para duelo entre Mazatlán FC y Santos en el Estadio El Encanto está lista**: [Link](https://www.noroeste.com.mx/deportes/futbol/seguridad-para-duelo-entre-mazatlan-fc-y-santos-en-el-estadio-el-encanto-esta-lista-JH16885268)
-
-
-### santos bravos (N/A, 21/10/2025 23:28 Lima)
-
-- **Santos Bravos, final en vivo: horarios, integrantes y dónde ver el debut de la boyband latina de HYBE**: [Link](https://www.infobae.com/entretenimiento/2025/10/21/la-gran-final-de-santos-bravos-horarios-y-donde-ver-el-debut-de-la-boyband-latina-de-hybe/)
-- **Santos Bravos final EN VIVO: link oficial para ver el debut de la boy band de HYBE**: [Link](https://elcomercio.pe/saltar-intro/streaming/series/santos-bravos-final-auditorio-nacional-de-mexico-donde-y-a-que-hora-ver-en-vivo-alejandro-aramburu-pablo-carns-iannis-alex-debut-hybe-noticia/)
-- **Alejandro Aramburú: El sueño peruano que vibra en Santos Bravos**: [Link](https://blog.joinnus.com/alejandro-aramburu-el-sueno-peruano-que-vibra-en-santos-bravos/)
-
-
-### monterrey vs (N/A, 21/10/2025 23:28 Lima)
-
-- **Liga MX: CF Monterrey y FC Juárez se miden por la fecha 14**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-cf-monterrey-y-fc-juarez-se-miden-por-la-fecha-14-noticia-1660174)
-- **“¿Y ese quién lo mete?”: Victoria Ruffo responde a Vadhir Derbez tras defender a su padre, Eugenio**: [Link](https://www.facebook.com/MilenioDiario/posts/y-ese-qui%C3%A9n-lo-mete-victoria-ruffo-responde-a-vadhir-derbez-tras-defender-a-su-p/1284291500394985/)
-- **Luis Cárdenas sería titular con Rayados ante Juárez**: [Link](https://www.mediotiempo.com/futbol/liga-mx/luis-cardenas-seria-titular-con-rayados-ante-juarez)
-
-
-### monterrey - juárez (N/A, 21/10/2025 23:28 Lima)
-
-- **Monterrey vs Juarez LIVE Score Updates: half-time (2-0)**: [Link](https://www.vavel.com/en-us/mexican-soccer/2025/10/22/1238434-monterrey-vs-juarez-live-updates-in-liga-mx.html)
-- **Trouble for Rayados: Domenec Torrent to Face Juárez with 4 Key Players Out Due to Injury**: [Link](https://www.soyfutbol.com/en/leagues/trouble-for-rayados-domenec-torrent-to-face-juarez-with-4-key-players-out-due-to-injury-20251021-0038.html)
-- **Club de Fútbol Monterrey Rayados, A.C. - FC Juárez prediction & tips 22.10.2025**: [Link](https://www.transfermarkt.com/betting/tips/cf-monterrey-vs-fc-juarez-prediction-22-10-2025/)
-
-
-### diario el peruano (N/A, 21/10/2025 23:28 Lima)
-
-- **Los 200 años de El Peruano: hoy es la ceremonia principal por su aniversario**: [Link](https://elperuano.pe/noticia/281316-los-200-anos-de-el-peruano-hoy-es-la-ceremonia-principal-por-su-aniversario)
-- **El Peruano digitaliza más de medio millón de páginas y recibe reconocimiento de la Unesco**: [Link](https://andina.pe/agencia/noticia-el-peruano-digitaliza-mas-medio-millon-paginas-y-recibe-reconocimiento-de-unesco-1049171.aspx)
-- **BCRP pone en circulación flamante moneda de S/1 por aniversario del diario oficial El Peruano**: [Link](https://www.infobae.com/peru/2025/10/16/el-bcrp-pone-en-circulacion-flamante-moneda-por-aniversario-del-diario-oficial-el-peruano/)
 
 
