@@ -1,3 +1,73 @@
+### alexander zverev (N/A, 25/10/2025 11:27 Lima)
+
+- **Hot Shot: Zverev bosses Musetti with fierce forehands in Vienna 2025**: [Link](https://www.atptour.com/en/video/hot-shot-zverev-bosses-musetti-with-fierce-forehands-in-vienna-2025)
+- **Alexander Zverev vs Lorenzo Musetti Preview: Head-to-Head and Prediction for Vienna Open 2025**: [Link](https://www.profootballnetwork.com/tennis/alexander-zverev-vs-lorenzo-musetti-head-to-head-prediction-vienna-open-2025/)
+- **Vienna 2025: Alexander Zverev vs Lorenzo Musetti preview, head-to-head, prediction, odds, and betting tips | Erste Bank Open**: [Link](https://www.sportskeeda.com/tennis/vienna-2025-alexander-zverev-vs-lorenzo-musetti-preview-head-to-head-prediction-odds-betting-tips-erste-bank-open)
+
+
+### inter de milán (N/A, 25/10/2025 11:27 Lima)
+
+- **Napoli vs Inter: Apuestas, Pronóstico y Cuotas**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/2025/octubre/pronostico-napoli-vs-inter-25-10-25)
+- **El reencuentro más polémico de la Serie A: Conte y Chivu vuelven a enfrentarse en el banquillo**: [Link](https://www.marca.com/futbol/liga-italiana/2025/10/24/reencuentro-polemico-serie-conte-chivu-vuelven-enfrentarse-banquillo.html)
+- **Partido de Napoli-Inter HOY EN VIVO con Lautaro Martínez: formaciones y dónde ver**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/napoli-vs-inter-en-vivo-gratis-hoy-via-futbol-libre-tv-espn-horarios-canales-tv-y-donde-ver-partido-por-serie-a-video-noticia/)
+
+
+### manchester united - brighton (N/A, 25/10/2025 11:27 Lima)
+
+- **Premier League LIVE: Chelsea vs Sunderland & Newcastle v Fulham - scores & updates**: [Link](https://www.bbc.com/sport/football/live/c5ykwrp7jk3t)
+- **Man Utd confirm Rúben Amorim XI vs Brighton as Benjamin Šeško decision made (Premier League)**: [Link](https://utddistrict.co.uk/manchester-united-confirm-ruben-amorim-xi-vs-brighton-as-benjamin-sesko-decision-made-premier-league/25/10/2025/)
+- **Premier League side with most consecutive wins at Old Trafford threaten again**: [Link](https://www.besoccer.com/new/premier-league-side-with-most-consecutive-wins-at-old-trafford-threaten-again-1378279)
+
+
+### dortmund - colonia (N/A, 25/10/2025 11:27 Lima)
+
+- **Dortmund vs Colonia Pronóstico | Bundesliga 25/10/2025**: [Link](https://www.apuestas-deportivas.es/pronostico/dortmund-vs-colonia-pronostico-bundesliga-25-10-2025/)
+- **Borussia Dortmund vs Colonia: pronóstico, apuestas, cuotas para el partido 25/10/2025**: [Link](https://legalbet.es/centro-apuestas/borussia-dortmund-keln-25-10-2025/)
+- **Borussia Dortmund - 1. FC Köln en directo**: [Link](https://www.elmundo.es/deportes/futbol/bundesliga/borussia-dortmund-1-fc-koln/2025/10/25/01_0108_20251025_157_387-directo.html)
+
+
+### athletic - getafe (N/A, 25/10/2025 11:27 Lima)
+
+- **Athletic - Getafe, en directo: LaLiga EA Sports hoy, en vivo**: [Link](https://as.com/futbol/primera/athletic-getafe-en-directo-laliga-ea-sports-hoy-en-vivo-f202510-d/)
+- **Apuestas y Pronóstico del Athletic Club vs Getafe 25/10/25**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2025/octubre/pronostico-athletic-club-vs-getafe-25-10-25)
+- **LaLiga EA Sports: Athletic Bilbao recibirá a Getafe por la fecha 10**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-athletic-bilbao-recibira-a-getafe-por-la-fecha-10-noticia-1660766)
+
+
+### napoli - inter (N/A, 25/10/2025 11:27 Lima)
+
+- **Napoli-Inter, diretta Serie A: risultato in tempo reale, il big match tra Conte e Chivu**: [Link](https://www.tuttosport.com/news/calcio/serie-a/2025/10/25-144054416/napoli-inter_diretta_serie_a_risultato_in_tempo_reale_il_big_match_tra_conte_e_chivu)
+- **A Dazn: «È successo anche a noi, sappiamo cosa significa. Chivu è l'uomo giusto, è riuscito a ridarci entusiasmo»**: [Link](https://www.facebook.com/story.php?story_fbid=1335550271916958&id=100063859936263)
+- **Le formazioni di Napoli - Inter: le scelte di Conte**: [Link](https://www.virgilio.it/italia/napoli/notizielocali/le_formazioni_di_napoli_inter_le_scelte_di_conte-75926982.html)
+
+
+### napoli vs inter (N/A, 25/10/2025 11:27 Lima)
+
+- **Football Tracker: Napoli hosting Inter in Serie A blockbuster, PSG & Man Utd in action**: [Link](https://www.flashscore.com/news/football-tracker-napoli-hosting-inter-in-serie-a-blockbuster-psg-man-utd-in-action/8QLdZZs9/)
+- **Lucca and Bonny take diverging paths after summer transfers**: [Link](https://football-italia.net/lucca-bonny-diverging-paths-summer-transfers/)
+- **Manna: ‘Napoli not looking for alibis or a negative vortex’**: [Link](https://onefootball.com/de/news/manna-napoli-not-looking-for-alibis-or-a-negative-vortex-41855761)
+
+
+### paris vs (N/A, 25/10/2025 11:27 Lima)
+
+- **Brest vs PSG LIVE Score Achraf Hakimi scores a brace (0-2)**: [Link](https://www.vavel.com/en-us/soccer/2025/10/25/1238919-brest-vs-psg-live-score-in-ligue-1.html)
+- **Luis Enrique unfazed by PSG losing Ligue 1 top spot ahead of Brest clash**: [Link](https://www.beinsports.com/en-asia/football/ligue-1/articles/luis-enrique-unfazed-by-psg-losing-ligue-1-top-spot-ahead-of-brest-clash-2025-10-24)
+- **Where to Watch Stade Brest 29 vs. Paris Saint-Germain: TV Channel, Start Time and Live Stream**: [Link](https://www.bleachernation.com/how-to-watch/2025/10/24/where-to-watch-stade-brest-29-vs-paris-saint-germain-tv-channel-start-time-and-live-stream-2/)
+
+
+### hamburg - wolfsburg (N/A, 25/10/2025 11:27 Lima)
+
+- **HSV mit Chancenwucher - VfL Wolfsburg siegt glücklich im Volkspark**: [Link](https://www.ndr.de/sport/fussball/hsv-mit-chancenwucher-vfl-wolfsburg-siegt-gluecklich-im-volkspark,hsv-wolfsburg-106.html)
+- **Daghim und Grabara beenden Wolfsburgs Durststrecke**: [Link](https://www.kicker.de/hsv-gegen-wolfsburg-2025-bundesliga-5050821/spielbericht)
+- **Dreier im Nordduell**: [Link](https://www.vfl-wolfsburg.de/newsdetails/news-detail/detail/news/dreier-im-nordduell)
+
+
+### avellino - spezia (N/A, 25/10/2025 11:27 Lima)
+
+- **«Arrabbiato per i quattro gol ma siamo in linea sul nostro obiettivo. Salvo la Curva Sud e Tutino»**: [Link](https://www.orticalab.it/Arrabbiato-per-i-quattro-gol-ma-siamo)
+- **Lo Spezia dilaga ad Avellino e l'Entella pareggia col Pescara a Chiavari**: [Link](https://telenord.it/lo-spezia-dilaga-ad-avellino-e-l-entella-pareggia-col-pescara-a-chiavari-95677)
+- **Aiello: “Dobbiamo ripartire, l’obiettivo resta consolidare la categoria”**: [Link](https://www.anteprima24.it/avellino/aiello-dobbiamo-ripartire-lobiettivo-resta-consolidare-la-categoria/)
+
+
 ### parma - como (N/A, 25/10/2025 07:42 Lima)
 
 - **Serie A: Parma se enfrenta ante la visita Como 1907 por la fecha 8**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-parma-se-enfrenta-ante-la-visita-como-1907-por-la-fecha-8-noticia-1660750)
@@ -959,74 +1029,5 @@ Sin noticias relacionadas disponibles.
 - **Athletic Club vs Getafe: Predictions, Betting odds, Lineups, Preview**: [Link](https://www.bwin.com/en/news/match-preview-athletic-club-getafe-la-liga-gameweek-10/)
 - **Athletic busca su primer triunfo ante un Qarabag que quiere seguir sorprendiendo**: [Link](https://www.espn.com.pe/futbol/champions-league/nota/_/id/15842962/athletic-club-vs-qarabag-fecha-3-fase-liga-champions-league-equipo-fecha-hora-tv-en-vivo)
 - **Champions League: Athletic Bilbao se enfrentará ante Qarabag por la fecha 3**: [Link](https://rpp.pe/futbol/ligas-internacionales/champions-league-athletic-bilbao-se-enfrentara-ante-qarabag-por-la-fecha-3-noticia-1660237)
-
-
-### dni electrónico gratis (N/A, 22/10/2025 11:32 Lima)
-
-- **Trámite de DNI electrónico gratis para este 23 de octubre: conoce dónde y quiénes son los beneficios**: [Link](https://www.infobae.com/peru/2025/10/21/tramite-de-dni-electronico-gratis-para-este-23-de-octubre-conoce-donde-y-quienes-son-los-beneficios/)
-- **Municipalidades TRAMITARÁN DNI ELECTRÓNICO GRATIS: Lista de distritos**: [Link](https://peru21.pe/peru/municipalidades-tramitaran-dni-electronico-gratis-lista-de-distritos/)
-- **Trámite de DNI electrónico GRATUITO para este 27 de octubre: vecinos de San Martín de Porres serán beneficiados**: [Link](https://libero.pe/tiempoextra/2025/10/21/tramite-de-dni-electronico-gratuito-27-de-octubre-vecinos-de-san-martin-de-porres-seran-beneficiados-1037001)
-
-
-### metropolitano (N/A, 22/10/2025 11:32 Lima)
-
-- **Presidente José Jerí participa en juramentación de Renzo Reggiardo como alcalde de Lima**: [Link](https://elperuano.pe/noticia/281354-presidente-jose-jeri-participo-en-juramentacion-de-renzo-reggiardo-como-alcalde-de-lima)
-- **¿Cuál es el futuro de las obras viales en Lima tras salida de López Aliaga? La tarea pendiente de Reggiardo**: [Link](https://elcomercio.pe/lima/cual-es-el-futuro-de-las-obras-viales-en-lima-tras-salida-de-lopez-aliaga-la-tarea-pendiente-de-reggiardo-noticia/)
-- **Consejo Fiscal advierte supuesta deuda millonaria dejada por gestión de Rafael López Aliaga**: [Link](https://panamericana.pe/24horas/locales/456636-consejo-fiscal-advierte-supuesta-deuda-millonaria-dejada-gestion-rafael-lopez-aliaga)
-
-
-### goa - al-nassr (N/A, 22/10/2025 11:32 Lima)
-
-- **FC Goa must weather Al Nassr storm without Ronaldo**: [Link](https://rollingout.com/2025/10/22/fc-goa-must-weather-al-nassr-ronaldo/)
-- **Fans are asking: Will Ronaldo play in the AFC Champions League 2 Match in India?**: [Link](https://ca.sports.yahoo.com/news/fans-asking-ronaldo-play-afc-141000606.html)
-- **Cristiano Ronaldo left at home! Jorge Jesus explains decision to leave in-form Al-Nassr superstar out of AFC Champions League clash with Goa**: [Link](https://www.goal.com/en-sa/lists/cristiano-ronaldo-jorge-jesus-explains-al-nassr-superstar-afc-champions-league-clash-goa/blt0367b8143a185c0c)
-
-
-### solicitud retiro afp (N/A, 22/10/2025 11:32 Lima)
-
-- **Retiro de AFP: Esta es la fecha límite para el depósito según cuando hiciste la solicitud**: [Link](https://www.infobae.com/peru/2025/10/22/retiro-de-afp-esta-es-la-fecha-limite-para-el-deposito-segun-la-fecha-de-solicitud/)
-- **Retiro AFP 2025: el link oficial para registrar tu solicitud de desembolso de hasta 4 UIT de tus fondos**: [Link](https://rpp.pe/economia/economia/retiro-afp-2025-link-oficial-para-registrar-tu-solicitud-y-pasos-para-solicitar-desembolso-4-uit-de-fondos-noticia-1660126)
-- **Segundo día del retiro AFP 2025: revisa el cronograma y portales oficiales para solicitar hasta S/ 21,400**: [Link](https://caretas.pe/home_web/home_principal_secundario/segundo-dia-del-retiro-afp-2025-revisa-el-cronograma-y-portales-oficiales-para-solicitar-hasta-s-21400/)
-
-
-### hora peru (N/A, 22/10/2025 07:53 Lima)
-
-- **La FPV retrocede y reprograma el debut de Alianza Lima en la Liga Peruana de Vóley 2025/26 permitiendo desarrollo de la Noche Blanquiazul**: [Link](https://www.infobae.com/peru/deportes/2025/10/21/la-fpv-retrocede-y-reprograma-el-debut-de-alianza-lima-en-la-liga-peruana-de-voley-202526-permitiendo-desarrollo-de-la-noche-blanquiazul/)
-- **¡Vive la Noche Blanquiazul de Vóley en América TV y tvGO!**: [Link](https://www.americatv.com.pe/deportes/polideportivo/vive-noche-blanquiazul-voley-america-tv-y-tvgo-n451412)
-- **Alianza Lima vs. Fluminense / River Plate por Noche Blanquiazul de Vóley 2025: fecha, hora y canales de TV**: [Link](https://depor.com/full-deportes/alianza-lima-vs-river-plate-y-fluminense-fecha-horarios-canales-de-tv-y-donde-ver-transmision-gratis-por-america-tv-por-noche-blanquiazul-de-voley-2025-noticia/)
-
-
-### manuela camacho (N/A, 22/10/2025 07:53 Lima)
-
-- **Manuela Camacho anuncia acciones legales contra Carlos Orozco tras la difusión de datos personales de su esposo**: [Link](https://www.infobae.com/peru/2025/10/22/manuela-camacho-anuncia-acciones-legales-contra-carlos-orozco-tras-la-difusion-de-datos-personales-de-su-esposo/)
-- **Manuela Camacho denunciará a podcast 'Ouke' de Carlos Orozco por exponer datos personales de su esposo: “Estamos procediendo legalmente”**: [Link](https://larepublica.pe/streamers/2025/10/20/manuela-camacho-denunciara-a-podcast-ouke-de-carlos-orozco-por-exponer-datos-personales-de-su-esposo-estamos-procediendo-legalmente-evat-745580)
-
-
-### frankfurt vs. bayern (N/A, 22/10/2025 07:53 Lima)
-
-- **Football accumulator tips for Wednesday, October 22: Back our Champions League acca at 8-1 with bet365**: [Link](https://www.racingpost.com/sport/football-tips/football-acca-tips/football-accumulator-tips-for-wednesday-october-22-back-our-champions-league-acca-at-8-1-with-bet365-aorPe4v61cdy/)
-- **UEFA Champions League Predictions: Matchday 10/22**: [Link](https://www.si.com/soccer/uefa-champions-league-predictions-matchday-10-22-25)
-- **Champions League Matchday 3 Best Bets on Wednesday: Back Liverpool to Bounce Back in Frankfurt**: [Link](https://www.sportscasting.com/uk/news/champions-league-matchday-3-best-bets-wednesday/)
-
-
-### qarabag vs (N/A, 22/10/2025 07:53 Lima)
-
-- **Athletic busca su primer triunfo ante un Qarabag que quiere seguir sorprendiendo**: [Link](https://www.espn.com.pe/futbol/champions-league/nota/_/id/15842962/athletic-club-vs-qarabag-fecha-3-fase-liga-champions-league-equipo-fecha-hora-tv-en-vivo)
-- **Champions League: Athletic Bilbao se enfrentará ante Qarabag por la fecha 3**: [Link](https://rpp.pe/futbol/ligas-internacionales/champions-league-athletic-bilbao-se-enfrentara-ante-qarabag-por-la-fecha-3-noticia-1660237)
-- **Athletic Bilbao vs. Qarabag: Un pronóstico innegociable**: [Link](https://gainblers.com/pe/pronosticos/futbol/europa/champions-league/athletic-bilbao-vs-qarabag-un-pronostico-innegociable/)
-
-
-### mormon church (N/A, 22/10/2025 03:34 Lima)
-
-- **'Surviving Mormonism': 'RHOSLC's Heather Gay To Star In Bravo Limited Series About Mormon Church**: [Link](https://deadline.com/2025/10/surviving-mormonism-real-housewives-salt-lake-city-heather-gay-bravo-1236593551/)
-- **A ‘Real Housewives of Salt Lake City’ star will confront the LDS Church in a new documentary series**: [Link](https://www.sltrib.com/artsliving/2025/10/21/surviving-mormonism-heather-gay/)
-- **RHOSLC’s Heather Gay Investigates ‘The Real Secret Lives’ of Mormons in Explosive New Series**: [Link](https://www.aol.com/articles/rhoslc-heather-gay-investigates-real-171257142.html)
-
-
-### galatasaray (N/A, 22/10/2025 03:34 Lima)
-
-- **Galatasaray Liverpool zaferini taçlandırmak için Bodo karşısında! İşte muhtemel 11'ler**: [Link](https://spor.haber7.com/sampiyonlar-ligi/haber/3573389-galatasaray-liverpool-zaferini-taclandirmak-icin-bodo-karsisinda-iste-muhtemel-11ler)
-- **Kök söktürdü!**: [Link](https://www.sabah.com.tr/yazarlar/spor/timurlenk/2025/10/22/kok-sokturdu)
-- **Bodo Glimt hangi ülkenin takımı? Bodo Glimt hangi ligde oynuyor: kadro değeri ve başarıları neler?**: [Link](https://www.ahaber.com.tr/viral/galeri/liste/bodo-glimt-hangi-ulkenin-takimi-bodo-glimt-hangi-ligde-oynuyor-kadro-degeri-ve-basarilari-neler)
 
 
