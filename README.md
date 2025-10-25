@@ -1,3 +1,69 @@
+### deportivo pereira - águilas doradas (N/A, 24/10/2025 20:48 Lima)
+
+- **Pereira vs. Águilas Doradas: jugadores no se presentan por "falta de pagos"**: [Link](https://www.espn.com.ar/futbol/colombia/nota/_/id/15862065/liga-betplay-deportivo-pereira-vs-aguilas-doradas-jugadores-no-se-presentan-falta-pagos)
+- **Por incumplimiento en sus pagos, jugadores de equipo dirigido por reconocido venezolano suspenderían sus actividades deportivas**: [Link](https://www.ntn24.com/noticias-deportes/por-incumplimiento-en-sus-pagos-jugadores-de-equipo-dirigido-por-reconocido-venezolano-suspenderian-sus-actividades-deportivas-586759)
+- **El cuadro risaraldense pasa por una situación crítica a nivel económico en los últimos meses, lo que llevó a los jugadores profesionales del club a tener complicaciones**: [Link](https://www.facebook.com/story.php?story_fbid=1260489319427161&id=100063983144594)
+
+
+### américa - junior (N/A, 24/10/2025 20:48 Lima)
+
+Sin noticias relacionadas disponibles.
+
+
+### river (N/A, 24/10/2025 20:48 Lima)
+
+- **Pollution in the Yaguarón Stream: the toxic footprint left by the Atanor chemical plant in the Paraná River**: [Link](https://noticiasambientales.com/environment-en/pollution-in-the-yaguaron-stream-the-toxic-footprint-left-by-the-atanor-chemical-plant-in-the-parana-river/)
+- **Manchester Regional shuts out Saddle River Day - Boys soccer recap**: [Link](https://www.nj.com/highschoolsports/2025/10/manchester-regional-shuts-out-saddle-river-day-boys-soccer-recap.html)
+- **Westwood football caps regular season with 'Bird Bowl' victory over River Dell**: [Link](https://www.northjersey.com/story/sports/high-school/football/2025/10/24/westwood-nj-football-caps-regular-season-win-river-dell/86807659007/)
+
+
+### juárez - puebla (N/A, 24/10/2025 20:48 Lima)
+
+- **Liga MX: Puebla quiere dejar el último lugar de la tabla ante FC Juárez**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-puebla-quiere-dejar-el-ultimo-lugar-de-la-tabla-ante-fc-juarez-noticia-1660678)
+- **Pronóstico FC Juarez Puebla - Liga MX 24/10/25**: [Link](https://www.sportytrader.com/es/pronosticos/fc-juarez-puebla-299453/)
+- **⚽ ¡No lo dejes pasar! Checa a qué HORA y en DÓNDE VER a Juárez vs Puebla en la Liga MX 🐴🆚🎽**: [Link](https://www.facebook.com/MilenioDiario/posts/-no-lo-dejes-pasarcheca-a-qu%C3%A9-hora-y-en-d%C3%B3nde-ver-a-ju%C3%A1rez-vs-puebla-en-la-liga-/1287232073434261/)
+
+
+### independiente rivadavia - river plate (N/A, 24/10/2025 20:48 Lima)
+
+- **River vs. Independiente Rivadavia, por la Copa Argentina: seguilo EN VIVO**: [Link](https://www.tycsports.com/copa-argentina/argentina-copa-argentina-2025-independiente-riv-m-vs-river-plate-semifinal-1-id694011.html)
+- **VER TYC SPORTS EN VIVO: River vs. Independiente Rivadavia por Torneo Clausura**: [Link](https://elcomercio.pe/deporte-total/argentina/tyc-sports-en-vivo-pelota-libre-tv-river-vs-independiente-rivadavia-hoy-gratis-via-futbol-libre-tv-tyc-play-por-copa-argentina-2025-link-video-noticia/)
+- **River vs. Independiente Rivadavia, EN VIVO: se define el segundo finalista de la Copa Argentina**: [Link](https://www.ole.com.ar/copa-argentina/river-vs-independiente-rivadavia-partido-copa-argentina-minuto-minuto_0_CraqiDjS7X.html)
+
+
+### peru vs colombia femenino (N/A, 24/10/2025 20:48 Lima)
+
+- **Comienza la CONMEBOL Liga de Naciones Femenina**: [Link](https://www.conmebol.com/noticias/comienza-la-conmebol-liga-de-naciones-femenina/)
+- **Perú vs. Colombia en vivo: transmisión por Liga de Naciones Femenina**: [Link](https://elcomercio.pe/deporte-total/seleccion/peru-vs-colombia-femenino-en-vivo-online-gratis-por-liga-de-naciones-via-directv-gol-caracol-rcn-y-futbol-libre-tv-a-que-hora-juegan-canal-que-transmite-y-donde-ver-partido-por-internet-video-noticia/)
+- **Doblete de Leicy en debut con victoria de Colombia en Liga de Naciones Femenina Conmebol**: [Link](https://www.espn.com.ar/futbol/copa-america/nota/_/id/15849942/colombia-vs-peru-victoria-doblete-leicy-santos-fecha-1-liga-de-naciones-femenina-conmebol)
+
+
+### bolivar (N/A, 24/10/2025 20:48 Lima)
+
+- **Hotel Bolívar renovará imagen: ¿qué sucederá con las tiendas que son parte del edificio?**: [Link](https://gestion.pe/economia/empresas/hotel-bolivar-renovara-imagen-que-sucedera-con-las-tiendas-que-son-parte-del-edificio-noticia/)
+- **Manual de Uso y Protocolo de Aprovechamiento de la Plaza de Bolívar: herramientas para su conservación**: [Link](https://idpc.gov.co/noticias/manual-de-uso-y-protocolo-de-aprovechamiento-de-la-plaza-de-bolivar/)
+- **Estados Unidos sanciona al presidente de Colombia, Gustavo Petro**: [Link](https://cnnespanol.cnn.com/2025/10/24/eeuu/estados-unidos-sanciona-gustavo-petro-trax)
+
+
+### blue jays - dodgers (N/A, 24/10/2025 20:48 Lima)
+
+- **Who will win Dodgers-Blue Jays World Series? MLB scouts, execs and managers make their predictions**: [Link](https://www.espn.com/mlb/story/_/id/46687649/world-series-2025-mlb-toronto-blue-jays-los-angeles-dodgers-insiders-predictions-scouts)
+- **Real Madrid: Kylian Mbappé named player of the month for the second time**: [Link](https://ca.sports.yahoo.com/news/real-madrid-kylian-mbapp-named-165500528.html)
+- **World Series Game 1 Open Thread**: [Link](https://www.overthemonster.com/mlb-news/24480902/world-series-game-1-game-time-tv-broadcast-info-discussion)
+
+
+### orense vs (N/A, 24/10/2025 20:48 Lima)
+
+Sin noticias relacionadas disponibles.
+
+
+### knicks - celtics (N/A, 24/10/2025 20:48 Lima)
+
+- **Knicks vs Celtics Preview w/ Jack Simone of Hardwood Houdini & How Bout Them Celtics? | PREGAME POD**: [Link](https://bvmsports.com/2025/10/24/knicks-vs-celtics-preview-w-jack-simone-of-hardwood-houdini-how-bout-them-celtics-pregame-pod/)
+- **BetMGM Promo Code NYPDM1600: Get a 20% first deposit match up to $1,600 for Knicks vs. Celtics**: [Link](https://nypost.com/2025/10/24/betting/betmgm-promo-code-nypdm1600-get-a-20-first-deposit-match-up-to-1600-for-knicks-vs-celtics/)
+- **How to watch Celtics game free today**: [Link](https://www.masslive.com/tv/2025/10/how-to-watch-celtics-game-free-today.html-2)
+
+
 ### juan pablo ii college - comerciantes unidos (N/A, 24/10/2025 15:26 Lima)
 
 - **Dónde ver, Juan Pablo II vs Comerciantes Unidos hoy EN VIVO por el Torneo Clausura**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/juan-pablo-ii-vs-comerciantes-unidos-en-vivo-via-l1-max-horario-canal-tv-y-mas-de-la-fecha-16-del-torneo-clausura-de-la-liga-1-2025-tdpe-noticia/)
@@ -960,75 +1026,5 @@ Sin noticias relacionadas disponibles.
 - **Vuelve la NBA: 5 cosas a las que prestarle atención en la nueva temporada**: [Link](https://cnnespanol.cnn.com/2025/10/20/deportes/claves-nba-2025-2026-temporada-lebron-curry-orix)
 - **NBA 2025-26: ¿Qué equipo ganará las Finales y quién será el MVP?**: [Link](https://espndeportes.espn.com/basquetbol/nota/_/id/15844419/nba-2025-26-predicciones-temporada-este-oeste-finales-campeones-mvp)
 - **Arranca la NBA: el último baile de LeBron, la dinastía Thunder y los meritorios al anillo**: [Link](https://www.marca.com/baloncesto/nba/2025/10/21/arranca-nba-ultimo-baile-lebron-dinastia-thunder-meritorios-anillo.html)
-
-
-### américa - puebla (N/A, 21/10/2025 20:55 Lima)
-
-- **América vs Puebla: posibles alineaciones, J14 Apertura 2025**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/15844844/america-vs-puebla-alineaciones-jornada-14-apertura-2025)
-- **América vs Puebla: Dónde ver el partido de Saint-Maximin, horario y canal del duelo de la Jornada 14**: [Link](https://www.marca.com/mx/futbol/liga-mx/2025/10/21/68f78d4646163f8a4c8b45bb.html)
-- **Querétaro vs. Chivas, EN VIVO: dónde ver por TV y ONLINE**: [Link](https://www.tycsports.com/mexico/liga-mx/queretaro-vs-chivas-en-vivo-donde-ver-por-tv-y-online-id693586.html)
-
-
-### paris (N/A, 21/10/2025 15:27 Lima)
-
-- **Novak Djokovic déclare forfait pour le Rolex Paris Masters, Benjamin Bonzi le remplace**: [Link](https://www.lequipe.fr/Tennis/Actualites/Novak-djokovic-declare-forfait-pour-le-rolex-paris-masters-benjamin-bonzi-le-remplace/1603565)
-- **Tennis : une fois de plus pas de Novak Djokovic au Masters 1000 de Paris, Valentin Vacherot, le vainqueur à Shanghai sera bien là**: [Link](https://www.ladepeche.fr/2025/10/21/tennis-une-fois-de-plus-pas-de-novak-djokovic-au-masters-1000-de-paris-valentin-vacherot-le-vainqueur-a-shanghai-sera-bien-la-13006532.php)
-- **Masters de Paris. Forfait, Novak Djokovic boude le tournoi pour la deuxième année d’affilée .**: [Link](https://angers.maville.com/sport/detail_-masters-de-paris.-forfait-novak-djokovic-boude-le-tournoi-pour-la-deuxieme-annee-d-affilee-_-7030978_actu.Htm)
-
-
-### napoli (N/A, 21/10/2025 15:27 Lima)
-
-- **PSV, esempio di disciplina di Bosz: Dest si presenta tardi al raduno e finisce in panchina**: [Link](https://gianlucadimarzio.com/psv-dest-bosz-napoli-champions-league-2025/)
-- **Idea De Bruyne falso nueve? Conte ci pensa ma dipende anche da un altro calciatore.**: [Link](https://www.virgilio.it/italia/napoli/notizielocali/idea_de_bruyne_falso_nueve_conte_ci_pensa_ma_dipende_anche_da_un_altro_calciatore_-75905897.html)
-- **PSV-Napoli, Conte a Sky: ''Per Lucca è una grande opportunità, sta cercando di alzare il livello!''**: [Link](https://www.napolicalcionews.it/news-calcio-napoli/PSV-Napoli--Conte-a-Sky---Per-Lucca-e-una-grande-opportunita--sta-cercando-di-alzare-il-livello---143501.aspx)
-
-
-### arsenal football club (N/A, 21/10/2025 15:27 Lima)
-
-- **Arsenal news: Gunners' defence could break Premier League record**: [Link](https://www.bbc.co.uk/sport/football/articles/c8dr9r69jrvo)
-- **The secrets of how no-nonsense Gabriel Heinze is making Arsenal's record-breaking defence even stronger**: [Link](https://www.dailymail.co.uk/sport/football/article-15209741/Gabriel-Heinze-Arsenal-defence-Mikel-Arteta.html)
-- **Arsenal’s defence so good they are on course to equal Chelsea’s record**: [Link](https://www.telegraph.co.uk/football/2025/10/21/arsenal-defence-match-chelsea-record-goals-conceded-arteta/)
-
-
-### leverkusen vs (N/A, 21/10/2025 15:27 Lima)
-
-- **BVB startet mit Bellingham in Kopenhagen, Bayer trifft auf den Titelverteidiger**: [Link](https://www.focus.de/sport/fussball/bvb-wiedersehen-mit-moukoko-in-kopenhagen-bayer-trifft-auf-den-titelverteidiger_436f8aa3-2c76-4cb9-8f32-1a848900e8f5.html)
-- **Champions League: Leverkusens gegen "die Besten der Welt"**: [Link](https://www.zdfheute.de/sport/fussball-champions-league-bayer-leverkusen-paris-saint-germain-100.html)
-- **"Vielleicht ist er nur zum Angst machen dabei"**: [Link](https://www.sport1.de/news/fussball/champions-league/2025/10/vielleicht-ist-er-nur-zum-angst-machen-dabei)
-
-
-### napoli vs (N/A, 21/10/2025 15:27 Lima)
-
-- **PSV se mide con Napoli en la tercera fecha de la Champions League**: [Link](https://www.espn.com.pe/futbol/champions-league/nota/_/id/15842886/psv-vs-napoli-fecha-3-fase-liga-champions-league-equipo-fecha-hora-tv-en-vivo)
-- **Champions League: PSV y Napoli se miden por la fecha 3**: [Link](https://rpp.pe/futbol/ligas-internacionales/champions-league-psv-y-napoli-se-miden-por-la-fecha-3-noticia-1660097)
-- **PSV vs Napoli: UEFA Champions League stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cwy757jgz9vt)
-
-
-### atletico de madrid (N/A, 21/10/2025 15:27 Lima)
-
-- **▷ A qué hora y por qué canal ver transmisión Arsenal vs. Atlético de Madrid EN VIVO y EN DIRECTO por Champions League**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/a-que-hora-juega-y-que-canal-transmite-arsenal-vs-atletico-madrid-en-vivo-hoy-21-de-octubre-por-champions-league-2025-en-mexico-usa-y-espana-nnda-nnrt-noticia/)
-- **Champions League: Arsenal recibirá a Atlético de Madrid por la fecha 3**: [Link](https://rpp.pe/futbol/ligas-internacionales/champions-league-arsenal-recibira-a-atletico-de-madrid-por-la-fecha-3-noticia-1660094)
-- **Diego Simeone y Julián Álvarez anticiparon la visita de Atlético Madrid ante Arsenal**: [Link](https://www.espn.com.pe/futbol/champions-league/nota/_/id/15841167/diego-simeone-julian-alvarez-anticiparon-atletico-madrid-arsenal-champions-league)
-
-
-### dortmund (N/A, 21/10/2025 15:27 Lima)
-
-- **Hammer unter die Latte: Nmecha eröffnet sehenswert | Match-Clip Champions League | Video**: [Link](https://www.kicker.de/hammer-unter-die-latte-nmecha-eroeffnet-sehenswert-1157783/video)
-- **Die Fakten zum Spiel in Kopenhagen**: [Link](https://www.bvb.de/de/de/aktuelles/news/news.html/2025/10/19/Die-Fakten-zum-Spiel-in-Kopenhagen.html)
-- **Niko Kovac findet das neue Format der Champions League interessant: Der BVB-Trainer nennt, was ihm daran gefällt**: [Link](https://tribuna.com/de/news/2025-10-21-niko-kovac-findet-das-neue-format-der-champions-league-interessant-der-bvbtrainer-nennt-w/)
-
-
-### manchester city (N/A, 21/10/2025 15:27 Lima)
-
-- **Preview:Villarreal vs Man City - prediction, team news**: [Link](https://www.sportsmole.co.uk/football/man-city/champions-league/preview/villarreal-vs-man-city-prediction-team-news-lineups_583888.html)
-- **Villareal v Manchester City: Gut Feelings**: [Link](https://bitterandblue.sbnation.com/manchester-city-blue-takes-bitter-and-blue/35801/villareal-v-manchester-city-gut-feelings)
-- **Preview: Manchester City visit the Yellow Submarine**: [Link](https://www.fotmob.com/topnews/23474-preview-manchester-city-visit-yellow-submarine?utm_source=fotmob)
-
-
-### dortmund vs (N/A, 21/10/2025 15:27 Lima)
-
-- **FC Bayern: "Mussten leiden"! Was war los in der 2. Halbzeit?**: [Link](https://miasanrot.de/fc-bayern-bvb-borussia-dortmund-taktik-analyse/)
-- **Ein Titel geht Jahr um Jahr an den BVB und der FC Bayern schaut zu**: [Link](https://www.wetterauer-zeitung.de/sport/fussball/an-den-bvb-und-der-fc-bayern-schaut-zu-ein-titel-geht-jahr-um-jahr-zr-93987286.html)
-- **Upamecano-Vertragspoker erhitzt die Bayern-Gemüter**: [Link](https://www.merkur.de/sport/fc-bayern/upamecano-vertragspoker-erhitzt-die-gemueter-fc-bayern-zr-93992068.html)
 
 
