@@ -1,3 +1,72 @@
+### liverpol vs (N/A, 25/10/2025 15:24 Lima)
+
+- **Eintracht Frankfurt 1 Liverpool 5: Ekitike impresses, a new system and set-piece goals - The Athletic**: [Link](https://www.nytimes.com/athletic/6740284/2025/10/22/eintracht-frankfurt-liverpool-analysis/)
+- **Liverpool bounce back in Frankfurt and Chelsea’s teenagers thrash Ajax – Football Weekly**: [Link](https://www.theguardian.com/football/audio/2025/oct/23/liverpool-bounce-back-in-frankfurt-and-chelseas-teenagers-thrash-ajax-football-weekly)
+- **Salah not in Liverpool starting XI vs. Frankfurt**: [Link](https://www.espn.com/soccer/story/_/id/46686004/frankfurt-vs-liverpool-mohamed-salah-named-bench-arne-slot)
+
+
+### alianza atlético - cienciano (N/A, 25/10/2025 15:24 Lima)
+
+- **Alianza Atlético vs Cienciano EN VIVO: hora, canal tv y dónde ver el Torneo Clausura**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/alianza-atletico-vs-cienciano-en-vivo-por-la-liga-1-a-que-hora-y-donde-ver-futbol-gratis-y-en-directo-por-el-torneo-clausura-tdpe-noticia/)
+- **Liga 1: Alianza Atlético y Cienciano se encuentran en la fecha 16**: [Link](https://rpp.pe/futbol/descentralizado/liga-1-alianza-atletico-y-cienciano-se-encuentran-en-la-fecha-16-noticia-1660806)
+- **Liga 1: Los “Churres” salen a asegurar la clasificación**: [Link](https://diariocorreo.pe/deportes/liga-1-los-churres-salen-a-asegurar-la-clasificacion-noticia/)
+
+
+### fluminense - internacional (N/A, 25/10/2025 15:24 Lima)
+
+- **Zubeldía volta atrás e muda Fluminense para enfrentar o Internacional**: [Link](https://www.otempo.com.br/sports/futebol-nacional/fluminense/2025/10/25/zubeldia-volta-atras-e-muda-fluminense-para-enfrentar-o-internacional)
+- **Com mudança de esquema, Inter está escalado para enfrentar o Fluminense**: [Link](https://gauchazh.clicrbs.com.br/esportes/inter/noticia/2025/10/com-mudanca-de-esquema-inter-esta-escalado-para-enfrentar-o-fluminense-cmh6oj70i010p01eznxxqgk62.html)
+- **Mansur fala que espera por um jogo fraco tecnicamente entre Fluminense e Internacional**: [Link](https://ge.globo.com/sportv/programas/troca-de-passes/video/mansur-fala-que-espera-por-um-jogo-fraco-tecnicamente-entre-fluminense-e-internacional-14042684.ghtml)
+
+
+### cerro - peñarol (N/A, 25/10/2025 15:24 Lima)
+
+- **Así fue la última visita de Peñarol al Tróccoli**: [Link](https://espndeportes.espn.com/futbol/uruguay/nota/_/id/15855657/partido-cerro-penarol-clausura-2020-debut-mauricio-larriera-valentin-rodriguez)
+- **PEÑAROL VA AL TRÓCCOLI**: [Link](https://onefootball.com/es/noticias/penarol-va-al-troccoli-41853333)
+- **Cerro vs. Peñarol, EN VIVO: dónde ver por TV y ONLINE**: [Link](https://www.tycsports.com/uruguay/futbol-de-uruguay/cerro-vs-penarol-en-vivo-donde-ver-por-tv-y-online-id694396.html)
+
+
+### umar nurmagomedov (N/A, 25/10/2025 15:24 Lima)
+
+- **UFC 321 results: Umar Nurmagomedov outclasses Mario Bautista, vows to become champion**: [Link](https://sports.yahoo.com/mma/breaking-news/article/ufc-321-results-umar-nurmagomedov-outclasses-mario-bautista-vows-to-become-champion-194702116.html)
+- **Dana White challenges Umar Nurmagomedov to ‘put on a show’ at UFC 321 if he wants title shot**: [Link](https://www.mmafighting.com/ufc-events-ppv/451356/dana-white-challenges-umar-nurmagomedov-to-put-on-a-show-at-ufc-321-if-he-wants-title-shot)
+- **UFC 321’s Umar Nurmagomedov abandoning Khabib career aspirations for Georges St-Pierre’s path**: [Link](https://www.mmamania.com/ufc-321-fight-card-aspinall-vs-gane-start-time-preview-live-results-abu-dhabi/398049/ufc-321s-umar-nurmagomedov-abandoning-khabib-career-aspirations-for-georges-st-pierres-path)
+
+
+### noche blanquiazul voley 2025 (N/A, 25/10/2025 15:24 Lima)
+
+- **Alianza Lima vs Fluminense vóley EN VIVO HOY: punto a punto del partido por la Noche Blanquiazul 2025**: [Link](https://www.infobae.com/peru/deportes/2025/10/25/alianza-lima-vs-fluminense-en-vivo-hoy-canal-america-television-noche-blanquiazul-2025-resumen-resultado/)
+- **Noche Blanquiazul 2025 hoy: horario, canal de transmisión y cómo ver presentación de Alianza Lima Vóley**: [Link](https://elcomercio.pe/deporte-total/voley/alianza-lima-voley-noche-blanquiazul-en-vivo-online-gratis-via-america-tv-canal-4-tvgo-a-que-hora-inicia-canal-que-transmite-y-donde-ver-hoy-video-noticia/)
+- **Noche Blanquiazul 2025: conoce el fixture, canal de TV y detalles del cuadrangular**: [Link](https://andina.pe/agencia/noticia-noche-blanquiazul-2025-conoce-fixture-canal-tv-y-detalles-del-cuadrangular-1049633.aspx)
+
+
+### liverpool football club (N/A, 25/10/2025 15:24 Lima)
+
+- **Internationals: Three LFC Women players involved on Saturday**: [Link](https://www.liverpoolfc.com/news/internationals-three-lfc-women-players-involved-saturday)
+- **Revealed: Liverpool’s stance on accepting Mohamed Salah offer ahead of January**: [Link](https://www.footballinsider247.com/revealed-liverpools-stance-on-accepting-mohamed-salah-offer-ahead-of-january/)
+- **Arne Slot plays down Mo Salah’s reaction to being dropped**: [Link](https://www.thisisanfield.com/2025/10/arne-slot-plays-down-mo-salahs-reaction-to-being-dropped/)
+
+
+### benfica - arouca (N/A, 25/10/2025 15:24 Lima)
+
+- **AO VIVO: Arranca a partida no Estádio da Luz**: [Link](https://www.flashscore.pt/noticias/futebol-liga-portugal-betclic-ao-vivo-arranca-a-partida-no-estadio-da-luz/CGwPsGme/)
+- **Pavlidis bisa em penáltis e aumenta vantagem do Benfica (vídeo)**: [Link](https://sapo.pt/artigo/pavlidis-bisa-em-penaltis-e-aumenta-vantagem-do-benfica-video-68fd2d3c36c84c1df4fc2700)
+- **Mourinho revoluciona e aposta em Prestianni de início**: [Link](https://www.jn.pt/desporto/artigo/mourinho-revoluciona-e-aposta-em-prestianni-de-inicio/18012711)
+
+
+### benfica vs (N/A, 25/10/2025 15:24 Lima)
+
+- **Preview:Benfica vs Arouca - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/benfica/preview/benfica-vs-arouca-prediction-team-news-lineups_584243.html)
+- **Predicted Lineups and Player Updates for Benfica vs Arouca 25/10/25 - Primeira Liga News**: [Link](https://footballpredictions.net/predicted-lineups-arouca-v-benfica-25-10-2025)
+
+
+### ayacucho (N/A, 25/10/2025 15:24 Lima)
+
+- **INEI continúa desarrollando la última etapa del censo con apoyo de la Policía Nacional**: [Link](https://andina.pe/agencia/noticia-inei-continua-desarrollando-ultima-etapa-del-censo-apoyo-de-policia-nacional-1049547.aspx)
+- **INEI advierte posibles inconsistencias en el conteo poblacional de Juliaca por inconvenientes en el Censo 2025**: [Link](https://ladecana.pe/inei-advierte-posibles-inconsistencias-en-el-conteo-poblacional-de-juliaca-por-inconvenientes-en-el-censo-2025/)
+- **¿El INEI está por terminar el censo? Ya va en 95 % nacional**: [Link](https://www.americatv.com.pe/noticias/actualidad/ya-fuiste-censado-inei-reporta-avance-95-viviendas-n512233)
+
+
 ### alexander zverev (N/A, 25/10/2025 11:27 Lima)
 
 - **Hot Shot: Zverev bosses Musetti with fierce forehands in Vienna 2025**: [Link](https://www.atptour.com/en/video/hot-shot-zverev-bosses-musetti-with-fierce-forehands-in-vienna-2025)
@@ -959,75 +1028,5 @@ Sin noticias relacionadas disponibles.
 - **PSG-Linked Star Wanted by Barcelona, Tottenham Given €15M Price Tag**: [Link](https://psgtalk.com/2025/10/barcelona-tottenham-target-vlahovic-psg-transfer/)
 - **Serie A star striker prefers a move to Tottenham over Premier League rivals**: [Link](https://www.spurs-web.com/spurs-news/serie-a-star-striker-prefers-a-move-to-tottenham-over-premier-league-rivals/)
 - **Chelsea and Manchester United in battle for Serie A star**: [Link](https://onefootball.com/de/news/chelsea-and-manchester-united-in-battle-for-serie-a-star-41840997)
-
-
-### cristian castro (N/A, 22/10/2025 15:27 Lima)
-
-- **Cristian Castro llegó a Lima para su concierto en Costa 21**: [Link](https://www.americatv.com.pe/noticias/espectaculos/cristian-castro-aterrizo-lima-su-concierto-costa-21-n512184)
-- **Cristian Castro agradece el cariño de los peruanos: habla de Gian Marco, Jaime Bayly y promete vivir en Lima**: [Link](https://www.infobae.com/peru/2025/10/22/cristian-castro-agradece-el-carino-de-los-peruanos-habla-de-gian-marco-jaime-bayly-y-promete-vivir-en-lima/)
-- **Cristian Castro en Perú: ¡Descubre el posible setlist de su gira Hits Tour 2025!**: [Link](https://blog.joinnus.com/cristian-castro-en-peru-descubre-el-posible-setlist-de-su-gira-hits-tour-2025/)
-
-
-### isabel preysler (N/A, 22/10/2025 15:27 Lima)
-
-- **Lo que dicen las cartas que Mario Vargas Llosa le envió a Isabel Preysler: “Qué revolución has causado en mi vida, amor mío”**: [Link](https://elpais.com/gente/2025-10-22/lo-que-dicen-las-cartas-que-mario-vargas-llosa-le-envio-a-isabel-preysler-que-revolucion-has-causado-en-mi-vida-amor-mio.html)
-- **Isabel Preysler publica íntimas cartas de amor de Mario Vargas Llosa y afirma: "Él era feliz conmigo"**: [Link](https://rpp.pe/famosos/celebridades/isabel-preysler-publica-intimas-cartas-de-amor-de-mario-vargas-llosa-en-su-libro-mi-verdadera-historia-noticia-1660424)
-- **"Te diré cosas hermosas y dulces al oído mientras te hago el amor": Isabel Preysler publica las apasionadas cartas de amor de Mario Vargas Llosa**: [Link](https://www.vanitatis.elconfidencial.com/famosos/2025-10-22/isabel-preysler-cartas-amor-mario-vargas-llosa-pasion-hago-el-amor_4232718/)
-
-
-### mónaco vs (N/A, 22/10/2025 15:27 Lima)
-
-- **¡EN VIVO! Mónaco recibe a Tottenham en busca de su primera victoria en Champions**: [Link](https://www.espn.com.pe/futbol/champions-league/nota/_/id/15851018/monaco-vs-tottenham-por-la-uefa-champions-league-equipo-fecha-hora-y-tv-en-vivo)
-- **¿A qué hora juega AS Mónaco vs. Tottenham Hotspur y dónde ver EN VIVO la Champions League?**: [Link](https://libero.pe/futbol-internacional/champions-league/2025/10/21/as-monaco-vs-tottenham-hotspur-champions-league-2025-hora-juega-donde-ver-canal-transmite-en-vivo-1924461)
-- **Champions League: Se enfrentan Mónaco y Tottenham por la fecha 3**: [Link](https://rpp.pe/futbol/ligas-internacionales/champions-league-se-enfrentan-monaco-y-tottenham-por-la-fecha-3-noticia-1660265)
-
-
-### liverpool vs (N/A, 22/10/2025 15:27 Lima)
-
-- **Liverpool vs Real Madrid tickets: Watch the massive Champions League game at Anfield**: [Link](https://talksport.com/shopping/3667802/liverpool-vs-real-madrid-tickets-anfield/)
-- **Liverpool vs. Real Madrid tickets: Prices, cheapest seats, how to buy for 2025 Champions League match**: [Link](https://www.sportingnews.com/uk/tickets/news/liverpool-vs-real-madrid-tickets-prices-seats-2025-champions-league/9881acd71b153dc7fef87d35)
-- **Champions League LIVE: Chelsea vs Ajax, Frankfurt vs Liverpool, Monaco vs Tottenham - scores & radio**: [Link](https://www.bbc.com/sport/football/live/c1kwp92z2l3t)
-
-
-### liverpool fc (N/A, 22/10/2025 15:27 Lima)
-
-- **How letters from Bill Shankly inspired new book about Liverpool FC**: [Link](https://theguideliverpool.com/how-letters-from-bill-shankly-inspired-new-book-about-liverpool-fc/)
-- **edie Net-Zero Awards: Winner case studies**: [Link](https://www.edie.net/edie-net-zero-awards-winner-case-studies/)
-- **'Proud moment' - Liverpool FC honoured with top award**: [Link](https://www.liverpoolworld.uk/news/proud-moment-liverpool-fc-honoured-with-top-award-5369980)
-
-
-### bet365 (N/A, 22/10/2025 15:27 Lima)
-
-- **Best Promos for Tip Off Tuesday | Top NBA Week 1 Offers**: [Link](https://www.oddsshark.com/industry-news/nba-top-tip-off-promos)
-- **Miami Heat vs Orlando Magic: bet365 Bonus Code "LSBONUS" $200 Welcome Offer**: [Link](https://www.livescore.com/en/news/nba/promos/miami-heat-at-orlando-magic-bet365-bonus-code/)
-- **Who won King of the Court? DraftKings winner for season-opening night on Oct. 21**: [Link](https://sports.yahoo.com/article/won-king-court-draftkings-winner-121343303.html)
-
-
-### athletic - qarabağ (N/A, 22/10/2025 11:32 Lima)
-
-- **Preview:Athletic Bilbao vs Qarabag FK - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/athletic-bilbao/champions-league/preview/athletic-bilbao-vs-qarabag-prediction-team-news-lineups_583960.html)
-- **Former player of "Qarabağ" who played against "Atletik": I am also among those who think so.**: [Link](https://medianews.az/en/qarabagin-atletike-qarsi-oynamis-sabiq-futbolcusu)
-- **“Qarabağ”'s match today will be equivalent to a final - Football commentator**: [Link](https://modern.az/en/idman/540031/qarabags-match-today-will-be-equivalent-to-a-final-football-commentator/)
-
-
-### galatasaray - bodø/glimt (N/A, 22/10/2025 11:32 Lima)
-
-- **Preview:Galatasaray vs Bodo/Glimt - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/galatasaray/champions-league/preview/galatasaray-vs-bodoglimt-prediction-team-news-lineups_584003.html)
-- **Discover the Fascinating World of Kök Söktürdü**: [Link](https://emegypt.net/1018599)
-- **Osimhen Poised to Shatter Galatasaray’s European Scoring Record**: [Link](https://www.footballinnigeria.com.ng/football-events-and-tournaments/osimhen-poised-to-shatter-galatasarays-european-scoring-record/)
-
-
-### real madrid vs juventus pronostico (N/A, 22/10/2025 11:32 Lima)
-
-- **Real Madrid - Juventus, en directo: última hora de la Champions League, hoy en vivo**: [Link](https://as.com/futbol/champions/real-madrid-juventus-en-directo-ultima-hora-de-la-champions-league-hoy-en-vivo-f202510-d/)
-- **ESPN hoy gratis, Real Madrid vs. Juventus online por UEFA Champions League**: [Link](https://elcomercio.pe/deporte-total/champions-league/espn-en-vivo-futbol-libre-tv-real-madrid-vs-juventus-online-gratis-via-disney-plus-caliente-tv-amazon-prime-movistar-movistar-liga-de-campeones-por-champions-league-video-noticia/)
-- **Último entrenamiento antes del partido contra la Juventus**: [Link](https://www.realmadrid.com/es-ES/noticias/futbol/primer-equipo/entrenamientos/el-equipo-se-esta-entrenando-21-10-2025)
-
-
-### atletico bilbao (N/A, 22/10/2025 11:32 Lima)
-
-- **Athletic Club vs Getafe: Predictions, Betting odds, Lineups, Preview**: [Link](https://www.bwin.com/en/news/match-preview-athletic-club-getafe-la-liga-gameweek-10/)
-- **Athletic busca su primer triunfo ante un Qarabag que quiere seguir sorprendiendo**: [Link](https://www.espn.com.pe/futbol/champions-league/nota/_/id/15842962/athletic-club-vs-qarabag-fecha-3-fase-liga-champions-league-equipo-fecha-hora-tv-en-vivo)
-- **Champions League: Athletic Bilbao se enfrentará ante Qarabag por la fecha 3**: [Link](https://rpp.pe/futbol/ligas-internacionales/champions-league-athletic-bilbao-se-enfrentara-ante-qarabag-por-la-fecha-3-noticia-1660237)
 
 
