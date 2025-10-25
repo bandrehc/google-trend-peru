@@ -1,3 +1,73 @@
+### america (N/A, 24/10/2025 23:26 Lima)
+
+- **Relocalización, energía y tecnología: el nuevo mapa estratégico entre América Latina y Estados Unidos**: [Link](https://www.infobae.com/peru/2025/10/24/relocalizacion-energia-y-tecnologia-el-nuevo-mapa-estrategico-entre-america-latina-y-estados-unidos/)
+- **Nuevo frente energético entre EE. UU. y China pasa por América**: [Link](https://mascontainer.com/nuevo-frente-energetico-entre-ee-uu-y-china-pasa-por-america/)
+- **Ciudad del Este, en Paraguay, en la mira de EE. UU. por su energía estratégica**: [Link](https://www.revistaeconomia.com/ciudad-del-este-en-paraguay-en-la-mira-de-ee-uu-por-su-energia-estrategica/)
+
+
+### mario vargas llosa (N/A, 24/10/2025 23:26 Lima)
+
+- **Familia de Mario Vargas Llosa evalúa demandar a Isabel Preysler por publicar cartas íntimas del Nobel: “Un auténtico desprestigio”**: [Link](https://www.infobae.com/peru/2025/10/24/mario-vargas-llosa-familia-de-mario-vargas-llosa-evalua-demandar-a-isabel-preysler-por-publicar-cartas-intimas-de-su-padre-un-autentico-desprestigio/)
+- **"Te diré cosas hermosas y dulces al oído mientras te hago el amor": Isabel Preysler publica las apasionadas cartas de amor de Mario Vargas Llosa**: [Link](https://www.vanitatis.elconfidencial.com/famosos/2025-10-22/isabel-preysler-cartas-amor-mario-vargas-llosa-pasion-hago-el-amor_4232718/)
+- **La autobiografía de Isabel Preysler en 10 frases: del “estás muy mal educado” al “cuando se me desmoronó la nariz todos quisieron salir corriendo”**: [Link](https://elpais.com/gente/2025-10-23/la-autobiografia-de-isabel-preysler-en-10-frases-del-estas-muy-mal-educado-al-cuando-se-me-desmorono-la-nariz-todos-quisieron-salir-corriendo.html)
+
+
+### america vs (N/A, 24/10/2025 23:26 Lima)
+
+- **¿Quién es Patricio Salas? La sorpresa en el Mazatlán vs América**: [Link](https://www.365scores.com/es/news/patricio-salas-hoy-quien-es-vs-mazatlan/)
+- **André Jardine le descubrió su nueva posición en el partido del Club América vs Puebla**: [Link](https://americamonumental.bolavip.com/ligamx/andre-jardine-le-descubrio-su-nueva-posicion-en-el-partido-del-club-america-vs-puebla)
+- **¿Quién es el delantero que podría sentar a Maximin en el América? Ya tuvo minutos en la última fecha**: [Link](https://www.tvazteca.com/aztecadeportes/quien-es-patricio-salas-delantero-podria-sentar-maximin-america-pb-notas)
+
+
+### categoría primera a (N/A, 24/10/2025 23:26 Lima)
+
+- **Nacional sale por la clasificación con su goleador Morelos ante un DIM con bajas**: [Link](https://www.espn.com.ar/futbol/colombia/nota/_/id/15860430/nacional-vs-medellin-fecha-17-liga-betplay-equipo-fecha-hora-y-tv-en-vivo)
+- **DT Diego Arias sobre Marino previo al clásico ante Medellín: "Confiamos en que va a hacer goles importantes"**: [Link](https://onefootball.com/en/news/dt-diego-arias-sobre-marino-previo-al-clasico-ante-medellin-confiamos-en-que-va-a-hacer-goles-importantes-41851770)
+- **El clásico paisa se escuchará por la Radio Nacional de Colombia | Señal Colombia**: [Link](https://www.senalcolombia.tv/deportes/nacional-vs-medellin-domingo-26-octubre-radio-nacional)
+
+
+### mon laferte (N/A, 24/10/2025 23:26 Lima)
+
+- **Uforia New Music Picks: Grupo Frontera, Elena Rose, Gabito Ballesteros, Mon Laferte y más**: [Link](https://www.univision.com/musica/uforia-new-music-picks-grupo-frontera-elena-rose-gabito-ballesteros-mon-laferte-y-mas)
+- **Kapo, Yandel, Rauw Alejandro, Mon Laferte y Armenta, entre estrenos musicales semanales**: [Link](https://revistaq.mx/espectaculos/kapo-yandel-rauw-alejandro-mon-laferte-y-armenta-entre-estrenos-musicales-semanales/)
+- **Mon Laferte, TIMØ y Anddy Caicedo: los mejores lanzamientos para disfrutar el fin de semana**: [Link](https://www.publimetro.co/entretenimiento/2025/10/24/mon-laferte-timo-y-anddy-caicedo-los-mejores-lanzamientos-para-disfrutar-el-fin-de-semana/)
+
+
+### marcha 25 de octubre (N/A, 24/10/2025 23:26 Lima)
+
+- **Marcha 25 de octubre: Transportistas se unirán a la nueva protesta contra el gobierno de José Jerí**: [Link](https://www.infobae.com/peru/2025/10/24/marcha-25-de-octubretransportistas-se-uniran-a-la-nueva-protesta-contra-el-gobierno-de-jose-jeri/)
+- **Vicente Tiburcio asegura que habrá garantías en marchas del 25 de octubre, pero bajo el marco del estado de emergencia**: [Link](https://rpp.pe/politica/gobierno/vicente-tiburcio-asegura-que-habra-garantias-en-marchas-del-25-de-octubre-pero-bajo-el-marco-del-estado-de-emergencia-noticia-1660849)
+- **‘Generación Z’ convoca marcha nacional por justicia para Eduardo Ruiz en medio del estado de emergencia**: [Link](https://caretas.pe/politica/generacion-z-convoca-marcha-nacional-por-justicia-para-eduardo-ruiz-en-medio-del-estado-de-emergencia/)
+
+
+### nba en vivo (N/A, 24/10/2025 23:26 Lima)
+
+- **Warriors sobreviven a los 50 de Gordon y Curry brilla en el clutch**: [Link](https://espndeportes.espn.com/basquetbol/nota/_/id/15859027/nba-nuggets-vs-warriors-steph-curry-gordon)
+- **Nikola Jokic suma un nuevo triple-doble e iguala a una leyenda NBA**: [Link](https://www.mundodeportivo.com/baloncesto/nba/20251024/1002556480/nikola-jokic-suma-nuevo-triple-doble-e-iguala-leyenda-nba.html)
+- **Stephen Curry es el fuego eterno**: [Link](https://as.com/baloncesto/nba/stephen-curry-es-el-fuego-eterno-f202510-n/)
+
+
+### mlb (N/A, 24/10/2025 23:26 Lima)
+
+- **Blue Jays' Daulton Varsho crushes a two-run homer to tie game at 2-2 against Dodgers**: [Link](https://www.foxsports.com/watch-vertical/fmc-2enxo0ezazsqedkh)
+- **World Series Roundtable**: [Link](https://www.jhunewsletter.com/article/2025/10/world-series-roundtable)
+- **Real Madrid: Kylian Mbappé named player of the month for the second time**: [Link](https://ca.sports.yahoo.com/news/real-madrid-kylian-mbapp-named-165500528.html)
+
+
+### concierto hoy lima (N/A, 24/10/2025 23:26 Lima)
+
+- **José Jerí declara el estado de emergencia en Lima y Callao: “Las guerras se ganan con acciones, no con palabras”**: [Link](https://elpais.com/america/2025-10-22/jose-jeri-declara-el-estado-de-emergencia-en-lima-y-callao-las-guerras-se-ganan-con-acciones-no-con-palabras.html)
+- **“Presidente, no vaya”: la ‘maldición’ que aleja a los jefes de Estado de las cárceles, según exjefe del INPE**: [Link](https://www.infobae.com/peru/2025/10/24/presidente-no-vaya-la-maldicion-que-aleja-a-los-jefes-de-estado-de-las-carceles-segun-exjefe-del-inpe/)
+- **Gobierno declara estado de emergencia en Lima y Callao por 30 días [Decreto Supremo 124-2025-PCM]**: [Link](https://lpderecho.pe/gobierno-jose-jeri-estado-emergencia-lima-callao/)
+
+
+### mazatlán - américa (N/A, 24/10/2025 23:26 Lima)
+
+- **América vs. Mazatlán en vivo: transmisión del partido por Liga MX**: [Link](https://elcomercio.pe/deporte-total/mexico/america-vs-mazatlan-en-vivo-online-gratis-por-liga-mx-via-tv-azteca-caliente-tv-amazon-prime-fox-futbol-libre-tv-a-que-hora-juegan-canal-que-transmite-y-donde-ver-por-internet-video-noticia/)
+- **Liga MX: Club América necesita los tres puntos para ser puntero**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-club-america-necesita-los-tres-puntos-para-ser-puntero-noticia-1660699)
+- **El pronóstico de la Inteligencia Artificial de ChatGPT para el partido Mazatlán vs América**: [Link](https://www.si.com/es-us/futbol/pronostico-inteligencia-artificial-chatgpt-mazatlan-vs-america-25-10-2025)
+
+
 ### deportivo pereira - águilas doradas (N/A, 24/10/2025 20:48 Lima)
 
 - **Pereira vs. Águilas Doradas: jugadores no se presentan por "falta de pagos"**: [Link](https://www.espn.com.ar/futbol/colombia/nota/_/id/15862065/liga-betplay-deportivo-pereira-vs-aguilas-doradas-jugadores-no-se-presentan-falta-pagos)
@@ -958,73 +1028,5 @@ Sin noticias relacionadas disponibles.
 - **Los 200 años de El Peruano: hoy es la ceremonia principal por su aniversario**: [Link](https://elperuano.pe/noticia/281316-los-200-anos-de-el-peruano-hoy-es-la-ceremonia-principal-por-su-aniversario)
 - **El Peruano digitaliza más de medio millón de páginas y recibe reconocimiento de la Unesco**: [Link](https://andina.pe/agencia/noticia-el-peruano-digitaliza-mas-medio-millon-paginas-y-recibe-reconocimiento-de-unesco-1049171.aspx)
 - **BCRP pone en circulación flamante moneda de S/1 por aniversario del diario oficial El Peruano**: [Link](https://www.infobae.com/peru/2025/10/16/el-bcrp-pone-en-circulacion-flamante-moneda-por-aniversario-del-diario-oficial-el-peruano/)
-
-
-### el peruano normas legales (N/A, 21/10/2025 23:28 Lima)
-
-- **El Peruano te informa: consulta aquí las principales normas legales para hoy, martes 21 de Octubre del 2025**: [Link](https://www.elperuano.pe/noticia/281309-el-peruano-te-informa-consulta-aqui-las-principales-normas-legales-para-hoy-martes-21-de-octubre-del-2025)
-- **Estas son las normas legales más importantes del martes 21 de octubre del 2025**: [Link](https://andina.pe/agencia/noticia-estas-son-las-normas-legales-mas-importantes-del-martes-21-octubre-del-2025-1049063.aspx)
-- **El Peruano te informa: consulta aquí las principales normas legales para hoy, lunes 20 de Octubre del 2025**: [Link](https://elperuano.pe/noticia/281232-el-peruano-te-informa-consulta-aqui-las-principales-normas-legales-para-hoy-lunes-20-de-octubre-del-2025)
-
-
-### estado de emergencia lima (N/A, 21/10/2025 20:55 Lima)
-
-- **José Jerí anuncia estado de emergencia por 30 días en Lima y Callao para frenar la criminalidad**: [Link](https://elcomercio.pe/lima/seguridad/estado-de-emergencia-lima-y-callao-por-30-dias-para-enfrentar-criminalidad-pcm-jose-jeri-ultimas-noticia/)
-- **Presidente José Jerí anuncia estado de emergencia en Lima Metropolitana y el Callao**: [Link](https://elperuano.pe/noticia/281375-presidente-jose-jeri-anuncia-estado-de-emergencia-en-lima-metropolitana-y-el-callao)
-- **El Gobierno interino de Perú prepara un estado de emergencia en Lima ante la crisis de violencia**: [Link](https://elpais.com/america/2025-10-17/el-gobierno-interino-de-peru-prepara-un-estado-de-emergencia-en-lima-ante-la-crisis-de-violencia.html)
-
-
-### mensaje a la nación (N/A, 21/10/2025 20:55 Lima)
-
-- **Presidente Jerí brindará esta noche un mensaje a la Nación**: [Link](https://andina.pe/agencia/noticia-presidente-jeri-brindara-esta-noche-un-mensaje-a-nacion-1049162.aspx)
-- **Presidente Jerí reafirma compromiso del Gobierno con un Estado ágil y cercano al ciudadano**: [Link](https://elperuano.pe/noticia/281355-presidente-jeri-reafirma-compromiso-del-gobierno-con-un-estado-agil-y-cercano-al-ciudadano)
-- **José Jerí coordina con premier Ernesto Álvarez nueva política de puertas abiertas para fortalecer diálogo con ciudadanía: así implementan medida**: [Link](https://www.expreso.com.pe/politica/jose-jeri-coordina-con-premier-ernesto-alvarez-nueva-politica-de-puertas-abiertas-para-fortalecer-dialogo-con-ciudadania-asi-implementan-medida-oscar-arriola-consejo-de-ministros-vicente-noticia/1231921/)
-
-
-### deportivo pereira (N/A, 21/10/2025 20:55 Lima)
-
-Sin noticias relacionadas disponibles.
-
-
-### liga mx (N/A, 21/10/2025 20:55 Lima)
-
-- **Liga MX: Horarios y cómo ver la Jornada 14 del Apertura 2025**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/15843238/liga-mx-jornada-14-horarios-donde-ver-apertura-2025)
-- **¡Arranca la Jornada 14! Comienza hoy con el américa vs puebla**: [Link](https://superchannel12.com/679150/arranca-la-jornada-comienza-hoy-con-el-america-vs-puebla)
-- **Apertura 2025: Partidos más relevantes rumbo a Play-In y Liguilla**: [Link](https://espndeportes.espn.com/futbol/mexico/nota/_/id/15841599/liga-mx-apertura-2025-partidos-relevantes-play-in-liguilla)
-
-
-### lakers - warriors (N/A, 21/10/2025 20:55 Lima)
-
-- **Live Updates: Warriors vs. Lakers, Luka Donćić and Steph Curry in season opener**: [Link](https://www.nba.com/news/live-updates-warriors-lakers-season-opener)
-- **TST Best Bets: October 21st 2025**: [Link](https://www.thesportingtribune.com/2025/10/21/tstbestbets-goldenstate-lakers-ducks-kings)
-- **Mark Medina: Warriors coach Steve Kerr declined to …**: [Link](https://www.hoopshype.com/story/sports/nba/rumors/2025/10/21/mark-medina-warriors-coach-steve-kerr-declined-to/86826014007/)
-
-
-### necaxa - cruz azul (N/A, 21/10/2025 20:55 Lima)
-
-- **Necaxa vs Cruz Azul: posibles alineaciones, J14 Apertura 2025**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/15845237/necaxa-vs-cruz-azul-alineaciones-jornada-14-apertura-2025)
-- **PARTIDO Necaxa-Cruz Azul EN DIRECTO, por Azteca 7 ONLINE**: [Link](https://elcomercio.pe/deporte-total/mexico/necaxa-vs-cruz-azul-en-vivo-online-gratis-hoy-via-azteca-7-claro-sports-vix-futbol-libre-tv-horarios-canales-y-donde-ver-partido-por-liga-mx-video-noticia/)
-- **Liga MX: Cruz Azul enfrenta a Necaxa para subirse a la cima**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-cruz-azul-enfrenta-a-necaxa-para-subirse-a-la-cima-noticia-1660156)
-
-
-### oklahoma city thunder (N/A, 21/10/2025 20:55 Lima)
-
-- **Thunder Poised for NBA Glory; Saints Shakeup; Trade Rumors Abound**: [Link](https://www.devdiscourse.com/article/sports-games/3670050-thunder-poised-for-nba-glory-saints-shakeup-trade-rumors-abound)
-- **How Thunder's confidence ‘oozes' on and off court**: [Link](https://www.nbcmiami.com/video/news/sports/how-thunders-confidence-oozes-on-and-off-court/3709707/)
-- **SGA's encore**: [Link](https://www.nytimes.com/athletic/live-blogs/rockets-vs-thunder-live-updates-nba-opening-night-score-result/8adF3hMOREhM/CqnDlttdR3Gc/)
-
-
-### bolivar vs (N/A, 21/10/2025 20:55 Lima)
-
-- **Mientras San Lorenzo está al borde de la quiebra, un club fundado por Marcelo Tinelli consiguió un históric...**: [Link](https://bolavip.com/ar/futbolargentino/mientras-san-lorenzo-esta-al-borde-de-la-quiebra-un-club-fundado-por-marcelo-tinelli-consiguio-un-historico-ascenso)
-- **Ciudad de Bolívar le ganó la final a Atlético de Rafaela y debutará en la Primera Nacional**: [Link](https://onefootball.com/es/noticias/ciudad-de-bolivar-le-gano-la-final-a-atletico-de-rafaela-y-debutara-en-la-primera-nacional-41834222)
-- **Bolívar sube al cielo: una ciudad entera en la cima del fútbol de ascenso**: [Link](https://laverdadonline.com/bolivar-sube-al-cielo-una-ciudad-entera-en-la-cima-del-futbol-de-ascenso/)
-
-
-### nba en vivo (N/A, 21/10/2025 20:55 Lima)
-
-- **Vuelve la NBA: 5 cosas a las que prestarle atención en la nueva temporada**: [Link](https://cnnespanol.cnn.com/2025/10/20/deportes/claves-nba-2025-2026-temporada-lebron-curry-orix)
-- **NBA 2025-26: ¿Qué equipo ganará las Finales y quién será el MVP?**: [Link](https://espndeportes.espn.com/basquetbol/nota/_/id/15844419/nba-2025-26-predicciones-temporada-este-oeste-finales-campeones-mvp)
-- **Arranca la NBA: el último baile de LeBron, la dinastía Thunder y los meritorios al anillo**: [Link](https://www.marca.com/baloncesto/nba/2025/10/21/arranca-nba-ultimo-baile-lebron-dinastia-thunder-meritorios-anillo.html)
 
 
