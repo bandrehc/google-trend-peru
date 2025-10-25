@@ -1,3 +1,31 @@
+### parma - como (N/A, 25/10/2025 07:42 Lima)
+
+- **Serie A: Parma se enfrenta ante la visita Como 1907 por la fecha 8**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-parma-se-enfrenta-ante-la-visita-como-1907-por-la-fecha-8-noticia-1660750)
+- **Parma vs Como: pronóstico, apuestas, cuotas para el partido 25/10/2025**: [Link](https://legalbet.es/centro-apuestas/parma-como-1907-26-10-2025/)
+- **Parma vs Como: pronósticos, cuotas, transmisión y datos para apostar!**: [Link](https://www.apwin.com/es/pronosticos/parma-vs-como-pronostico-serie-a-25-10-2025/)
+
+
+### sydney - central coast (N/A, 25/10/2025 07:42 Lima)
+
+- **Round 2: Sydney Fc V Central Coast Mariners Ep. 184**: [Link](https://10.com.au/a-league/episodes/20252026/episode-184/tpv251025nwqgx)
+- **‘You have to be there!’ – Campuzano dissects his clever finish | A-League Men | 26 Oct 2025**: [Link](https://aleagues.com.au/videos/id/you-have-to-be-there-campuzano-dissects-his-clever-finish/6383942449112/)
+- **Talay confident Sydney’s Spanish ace will find scoring touch**: [Link](https://www.theaustralian.com.au/breaking-news/sydney-fc-coach-ufuk-talay-says-newlook-sky-blues-attack-is-a-work-in-progress/news-story/7a582813feba7d099b089c300d9daac7)
+
+
+### pedro castillo (N/A, 25/10/2025 07:42 Lima)
+
+- **Culmina audiencia de denuncia contra Pedro Castillo y Betssy Chávez por golpe de Estado**: [Link](https://comunicaciones.congreso.gob.pe/noticias/culmina-audiencia-de-denuncia-contra-pedro-castillo-y-betssy-chavez-por-golpe-de-estado/)
+- **Pedro Castillo llama “basura” a Fernando Rospigliosi en plena sesión de la Subcomisión**: [Link](https://www.infobae.com/peru/2025/10/24/pedro-castillo-llama-basura-a-fernando-rospigliosi-en-plena-sesion-de-la-subcomision/)
+- **Pedro Castillo: Avanza proceso en el Congreso que busca inhabilitarlo por golpe de Estado**: [Link](https://elcomercio.pe/politica/actualidad/pedro-castillo-avanza-proceso-en-el-congreso-que-busca-inhabilitarlo-por-golpe-de-estado-ultimas-noticia/)
+
+
+### precio del dólar perú (N/A, 25/10/2025 07:42 Lima)
+
+- **Precio del dólar cayó otra vez: Así cerró el tipo de cambio hoy 24 de octubre en Perú**: [Link](https://www.infobae.com/peru/2025/10/24/valor-de-apertura-del-dolar-en-peru-este-24-de-octubre-de-usd-a-pen/)
+- **El dólar ha sufrido una «tremenda caída del 9%»**: [Link](https://radiouno.pe/noticias/256610/el-dolar-ha-sufrido-una-tremenda-caida-del-9/)
+- **Dólar hoy: ¡Cae a menos de 3.41 soles! Descubre cómo influyen los factores externos**: [Link](https://satelite.pe/dolar-hoy-cae-a-menos-de-3-41-soles-descubre-como-influyen-los-factores-externos)
+
+
 ### dolar hoy peru (N/A, 25/10/2025 03:27 Lima)
 
 - **Precio del dólar vuelve a caer: Así cerró el tipo de cambio hoy 23 de octubre en Perú**: [Link](https://www.infobae.com/peru/2025/10/22/peru-cotizacion-de-apertura-del-dolar-hoy-22-de-octubre-de-usd-a-pen/)
@@ -1000,33 +1028,5 @@ Sin noticias relacionadas disponibles.
 - **Galatasaray Liverpool zaferini taçlandırmak için Bodo karşısında! İşte muhtemel 11'ler**: [Link](https://spor.haber7.com/sampiyonlar-ligi/haber/3573389-galatasaray-liverpool-zaferini-taclandirmak-icin-bodo-karsisinda-iste-muhtemel-11ler)
 - **Kök söktürdü!**: [Link](https://www.sabah.com.tr/yazarlar/spor/timurlenk/2025/10/22/kok-sokturdu)
 - **Bodo Glimt hangi ülkenin takımı? Bodo Glimt hangi ligde oynuyor: kadro değeri ve başarıları neler?**: [Link](https://www.ahaber.com.tr/viral/galeri/liste/bodo-glimt-hangi-ulkenin-takimi-bodo-glimt-hangi-ligde-oynuyor-kadro-degeri-ve-basarilari-neler)
-
-
-### monaco fc (N/A, 22/10/2025 03:34 Lima)
-
-- **Highlights from Matchday 8 in Ligue 1 between Angers and Monaco**: [Link](https://www.asmonaco.com/en/as-monaco-tv/highlights-ligue-1-matchday-8-angers-sco-1-1-as-monaco/)
-- **Folarin Balogun builds on USMNT momentum by scoring goal off bench in Monaco's draw with Angers**: [Link](https://www.goal.com/en-sa/lists/folarin-balogun-usmnt-monaco-angers/blt98f5b116390c43c5)
-- **Prosper Peter vs. AS Monaco – Player props & odds to score a goal on October 18**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/10/18/prosper-peter-soccer-player-props-10-18-2025/86764159007/)
-
-
-### athletic bilbao vs (N/A, 22/10/2025 03:34 Lima)
-
-- **Athletic busca su primer triunfo ante un Qarabag que quiere seguir sorprendiendo**: [Link](https://www.espn.com.pe/futbol/champions-league/nota/_/id/15842962/athletic-club-vs-qarabag-fecha-3-fase-liga-champions-league-equipo-fecha-hora-tv-en-vivo)
-- **Champions League: Athletic Bilbao se enfrentará ante Qarabag por la fecha 3**: [Link](https://rpp.pe/futbol/ligas-internacionales/champions-league-athletic-bilbao-se-enfrentara-ante-qarabag-por-la-fecha-3-noticia-1660237)
-- **Preview:Athletic Bilbao vs Qarabag FK - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/athletic-bilbao/champions-league/preview/athletic-bilbao-vs-qarabag-prediction-team-news-lineups_583960.html)
-
-
-### chaos zero nightmare (N/A, 22/10/2025 03:34 Lima)
-
-- **Chaos Zero Nightmare Reimagines Mobile RPGs Through Cosmic Horror**: [Link](https://currently.att.yahoo.com/att/chaos-zero-nightmare-reimagines-mobile-155019019.html)
-- **[GUIDE] Chaos Zero Nightmare Character Tier List October 2025**: [Link](https://www.gamerbraves.com/guide-chaos-zero-nightmare-character-tier-list-october-2025/)
-- **Chaos Zero Nightmare redeem codes and how to use them (October 2025)**: [Link](https://gamingonphone.com/guides/chaos-zero-nightmare-redeem-codes-and-how-to-use-them/)
-
-
-### deportivo pereira - envigado (N/A, 21/10/2025 23:28 Lima)
-
-- **Sorpresa en la Copa BetPlay: Envigado elimina al Pereira y se clasifica a semifinales**: [Link](https://www.espn.com.ar/futbol/colombia/nota/_/id/15843749/sorpresa-en-la-copa-betplay-envigado-elimina-al-pereira-y-se-clasifica-a-semifinales)
-- **Deportivo Pereira recibe a Envigado por los cuartos de final con una baja sensible en defensa**: [Link](https://www.lapatria.com/deportes/deportivo-pereira-recibe-envigado-por-los-cuartos-de-final-con-una-baja-sensible-en)
-- **Envigado chocará ante DIM en ‘semis’ de Copa tras eliminar a Pereira en vibrante definición**: [Link](https://caracol.com.co/2025/10/22/envigado-chocara-ante-dim-en-semis-de-copa-tras-eliminar-a-pereira-en-vibrante-definicion/)
 
 
