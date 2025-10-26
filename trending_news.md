@@ -1,3 +1,43 @@
+### 3i atlas (N/A, 26/10/2025 03:28 Lima)
+
+- **The Imminent Solar Conjunction of 3I/ATLAS**: [Link](https://avi-loeb.medium.com/the-imminent-solar-conjunction-of-3i-atlas-264a6ccd441c)
+- **Manhattan-size interstellar object 3I/ATLAS emitting metal alloy never seen in nature: Harvard scientist**: [Link](https://nypost.com/2025/10/18/science/manhattan-sized-interstellar-object-3i-atlas-emitting-alloy-never-seen-in-nature-harvard-scientist/)
+- **NASA takes major steps to protect Earth from mysterious 'Manhattan-size' comet**: [Link](https://www.unilad.com/technology/space/comet-31-atlas-nasa-protect-earth-404292-20251025)
+
+
+### damiano david (N/A, 26/10/2025 03:28 Lima)
+
+- **Yo Soy 2025: Joao SORPRENDE con su imitación y caracterización de Damiano David, ¿Cómo le fue en el casting?**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-2025-joao-sorprende-con-su-imitacion-y-caracterizacion-de-damiano-david-como-le-fue-en-el-casting_20251026/)
+- **REPORT: DAMIANO DAVID 2025 AUSTRALIAN TOUR – SYDNEY & MELBOURNE**: [Link](https://australianmusician.com.au/report-damiano-david-2025-australian-tour-sydney-melbourne/)
+
+
+### arsenal vs crystal palace (N/A, 26/10/2025 03:28 Lima)
+
+- **Arteta delivers Gabriel update ahead of Palace | Press conference | News**: [Link](https://www.arsenal.com/news/arteta-delivers-gabriel-update-ahead-palace)
+- **'We know that it's a special match for Ebs': Arteta on Eze facing former side Crystal Palace**: [Link](https://tribuna.com/en/news/2025-10-25-we-know-that-its-a-special-match-for-ebs-arteta-on-eze-facing-former-side-crystal-palace/)
+- **Predicted Arsenal lineup against Crystal Palace: Trossard to start; Mosquera in for Gabriel**: [Link](https://thehardtackle.com/news/2025/10/26/predicted-arsenal-lineup-against-crystal-palace-trossard-to-start-mosquera-in-for-gabriel/)
+
+
+### friaje (N/A, 26/10/2025 03:28 Lima)
+
+- **Vuelve el frío: Senamhi anuncia llegada de nuevo friaje a Perú que afectará varias regiones del país**: [Link](https://www.infobae.com/peru/2025/10/26/vuelve-el-frio-senamhi-anuncia-llegada-de-nuevo-friaje-a-peru-que-afectara-varias-regiones-del-pais/)
+- **Indeci recomienda medidas de preparación ante descenso de temperatura diurna en la selva**: [Link](https://andina.pe/agencia/noticia-indeci-recomienda-medidas-preparacion-ante-descenso-temperatura-diurna-la-selva-1049658.aspx)
+- **Nuevo friaje ingresará por el sur del país y afectará varias regiones de la selva**: [Link](https://caretas.pe/nacional/nuevo-friaje-ingresara-por-el-sur-del-pais-y-afectara-varias-regiones-de-la-selva/)
+
+
+### lucia de la cruz (N/A, 26/10/2025 03:28 Lima)
+
+- **Lucía de la Cruz rompe en llanto y revela grave error: “De amar mucho, de idolatrar a mis hijos”**: [Link](https://trome.com/espectaculos/tv/lucia-de-la-cruz-rompe-en-llanto-y-revela-grave-error-de-amar-mucho-de-idolatrar-a-mis-hijos-foto-video-farandula-noticia/)
+- **Lucía de la Cruz: "Amo la música, es el complemento de mi vida"**: [Link](https://www.tvperu.gob.pe/novedades/miradas/lucia-de-la-cruz-amo-la-musica-es-el-complemento-de-mi-vida)
+
+
+### mlb (N/A, 26/10/2025 03:28 Lima)
+
+- **Shohei Ohtani Praised Amid Rob Manfred’s Revelation on MLB’s Bold Plan for 2028 LA Olympics**: [Link](https://www.essentiallysports.com/mlb-baseball-news-shohei-ohtani-praised-amid-rob-manfreds-revelation-on-mlbs-bold-plan-for-twenty-twenty-eight-la-olympics/)
+- **Manfred appears optimistic about MLB players in LA28, hurdles remain**: [Link](https://www.sportsbusinessjournal.com/Articles/2025/10/25/manfred-appears-optimistic-about-mlb-players-in-la28-hurdles-remain/)
+- **Rob Manfred thinks MLB players will be part of the 2028 Olympics**: [Link](https://www.bostonglobe.com/2025/10/25/sports/rob-manfred-mlb-world-series/)
+
+
 ### susana baca (N/A, 25/10/2025 23:27 Lima)
 
 - **Susana Baca: "Estaba en UCI. Desperté gracias a que muchísima gente rezó por mí"**: [Link](https://peru21.pe/espectaculos/susana-baca-estaba-en-uci-desperte-gracias-que-muchisima-gente-rezo-por-mi/)
@@ -986,47 +1026,5 @@ Sin noticias relacionadas disponibles.
 - **Soda Stereo en Perú: precios de entradas y preventa para el show que traerá de vuelta a Gustavo Cerati**: [Link](https://www.infobae.com/peru/2025/10/21/soda-stereo-en-peru-precios-de-entradas-y-preventa-para-el-show-que-traera-de-vuelta-a-gustavo-cerati/)
 - **Soda Stereo en Lima 2026: ¡Así puedes comprar tus entradas para el concierto!**: [Link](https://blog.joinnus.com/soda-stereo-en-lima-2026-asi-puedes-comprar-tus-entradas-para-el-concierto/)
 - **Soda Stereo en Lima: precios y cómo comprar entradas para su concierto en Arena 1**: [Link](https://rpp.pe/musica/conciertos/soda-stereo-en-lima-2026-precios-y-como-comprar-entradas-en-joinnus-para-concierto-con-gustavo-cerati-virtual-en-arena-1-noticia-1660451)
-
-
-### atlas - león (N/A, 22/10/2025 23:28 Lima)
-
-- **Liga MX: León quiere romper su racha negativa y ganar frente a Atlas**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-leon-quiere-romper-su-racha-negativa-y-ganar-frente-a-atlas-noticia-1660350)
-- **Introducing ChatGPT Atlas**: [Link](https://openai.com/index/introducing-chatgpt-atlas/)
-- **The battle for the future of the internet is underway**: [Link](https://www.cnn.com/2025/10/22/tech/openai-chatgpt-atlas-browser-google-chrome-ai)
-
-
-### tijuana - toluca (N/A, 22/10/2025 23:28 Lima)
-
-- **Tijuana vs Toluca EN VIVO Hoy. Gilberto Mora vs Alexis Vega en Liga MX 2025**: [Link](https://www.marca.com/mx/futbol/liga-mx/tijuana-toluca/2025/10/23/01_0159_20251023_4690_1286-directo.html)
-- **Pronóstico Tijuana Deportivo Toluca FC - Liga MX 22/10/25**: [Link](https://www.sportytrader.com/es/pronosticos/tijuana-deportivo-toluca-298599/)
-- **Liga MX: Toluca FC necesita sumar de a 3 puntos para mantenerse en la cima**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-toluca-fc-necesita-sumar-de-a-3-puntos-para-mantenerse-en-la-cima-noticia-1660351)
-
-
-### liga mx (N/A, 22/10/2025 23:28 Lima)
-
-- **Chivas decepcionó ante Querétaro y cortó racha de duelos invicto**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/15853386/queretaro-vs-chivas-liga-mx-2025-goles-resultado)
-- **El ‘Ecua-Queretaro gano con Jhojan Julio y Jonathan Perlaza para ilusionarse con Playoffs de Liga MX**: [Link](https://www.futbolecuador.com/site/noticia/el-ecua-queretaro-gano-con-jhojan-julio-y-jonathan-perlaza-para-ilusionarse-con-playoffs-de-liga-mx/164102)
-- **La reacción de Gabriel Milito al ver el gol de Querétaro tras error de Rubén González**: [Link](https://www.elfutbolero.com.mx/ligamx/la-reaccion-de-gabriel-milito-al-ver-el-gol-de-queretaro-tras-error-de-ruben-gonzalez-20251023-144734.html)
-
-
-### pumas - atl. san luis (N/A, 22/10/2025 23:28 Lima)
-
-- **Liga MX: Atl. de San Luis se enfrentará a Pumas UNAM por la fecha 14**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-atl-de-san-luis-se-enfrentara-a-pumas-unam-por-la-fecha-14-noticia-1660352)
-- **Pumas' Keylor Navas reveals the position he dreamed of playing before becoming a legendary goalkeeper**: [Link](https://www.foxsports.com/articles/soccer/pumas-keylor-navas-reveals-the-position-he-dreamed-of-playing-before-becoming-a-legendary-goalkeeper)
-- **Liga MX: Pumas' Epic Blunder in Passing Up Arsenal Star Gabriel Martinelli**: [Link](https://www.soyfutbol.com/en/news/liga-mx-pumas-epic-blunder-in-passing-up-arsenal-star-gabriel-martinelli-20251022-0034.html)
-
-
-### copa sudamericana (N/A, 22/10/2025 23:28 Lima)
-
-- **Gabriel Castellón: "Ante Lanús, los detalles van a marcar la diferencia"**: [Link](https://www.espn.com.ar/futbol/copa-sudamericana/nota/_/id/15849647/gabriel-castellon-ante-lanus-los-detalles-van-a-marcar-la-diferencia)
-- **¡Con sed de revancha! Universidad de Chile vuelve a verse las caras con Lanús por la CONMEBOL Sudamericana**: [Link](https://espndeportes.espn.com/futbol/copa-sudamericana/nota/_/id/15847268/universidad-de-chile-vuelve-a-verse-las-caras-con-lanus-conmebol-sudamericana-semifinales-2025)
-- **Gustavo Álvarez habló sobre el partido con Lanús: “Nosotros vamos a jugar como una verdadera final”**: [Link](https://tribuna.com/es/news/2025-10-23-gustavo-alvarez-hablo-sobre-el-partido-con-lanus-nosotros-vamos-a-jugar-como-una-verdader/)
-
-
-### boston celtics (N/A, 22/10/2025 23:28 Lima)
-
-- **HOW TO WATCH SIXERS-CELTS AND ‘INSIDE THE NBA’**: [Link](https://bvmsports.com/2025/10/22/how-to-watch-sixers-celts-and-inside-the-nba/)
-- **Dominick Barlow News: Starting in 76ers debut**: [Link](https://www.rotowire.com/basketball/headlines/dominick-barlow-news-starting-in-76ers-debut-500144)
-- **10/22 Game Preview: 76ers at Celtics**: [Link](https://www.nba.com/celtics/news/gamepreview-20251022-phibos)
 
 
