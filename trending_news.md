@@ -1,3 +1,71 @@
+### moquegua (N/A, 26/10/2025 15:25 Lima)
+
+- **Temblor en Perú, hoy 26 de octubre: magnitud y epicentro del sismo según IGP**: [Link](https://rpp.pe/lima/desastres-naturales/temblor-en-peru-hoy-25-de-octubre-magnitud-y-epicentro-del-sismo-segun-igp-live-3016)
+- **Temblor en Perú: dos sismos remecieron Ica en lo que va de hoy**: [Link](https://andina.pe/agencia/noticia-temblor-peru-dos-sismos-remecieron-ica-lo-va-hoy-1049652.aspx)
+- **Terremoto moderado mag. 4.1 - Departamento de Ayacucho, 85 km al noreste de Provincia de Nazca, Perú, miércoles 22 oct 2025 a las 23:54 (Hora Lima)**: [Link](https://www.volcanodiscovery.com/es/sismos/informe-sismo/22305272/mag4quake-Oct-23-2025-Central-Peru.html)
+
+
+### fc cajamarca vs (N/A, 26/10/2025 15:25 Lima)
+
+- **CD Moquegua vs. FC Cajamarca EN VIVO vía YouTube: se enfrentan por la final ida de la Liga2 2025**: [Link](https://rpp.pe/futbol/segunda-division/cd-moquegua-vs-fc-cajamarca-en-vivo-a-que-hora-juegan-y-como-ver-final-de-liga-2-2025-ida-via-youtube-fpf-online-partidos-de-hoy-segunda-division-noticia-1661005)
+- **Liga 2: Unión Comercio y la Universidad César Vallejo aún pueden ascender a la Liga 1 del 2026**: [Link](https://www.futbolperuano.com/liga-2/noticias/union-comercio-y-la-universidad-cesar-vallejo-aun-pueden-ascender-a-liga-1-544117)
+- **Final confirmada: resultados, resumen y goles de las semifinales de la Liga 2**: [Link](https://bolavip.com/pe/futbol-peruano/final-confirmada-resultados-resumen-y-goles-de-las-semifinales-de-la-liga-2)
+
+
+### union saint-gilloise (N/A, 26/10/2025 15:25 Lima)
+
+- **Predicted Lineups and Player Updates for Union Saint-Gilloise vs Sint-Truidense VV 26/10/25 - First Division A News**: [Link](https://footballpredictions.net/predicted-lineups-sint-truiden-v-union-saint-gilloise-26-10-2025)
+
+
+### adt - universitario (N/A, 26/10/2025 15:25 Lima)
+
+- **Con una sorpresa de último momento: la alineación de Universitario para enfrentar a ADT en busca del ‘tri’**: [Link](https://depor.com/futbol-peruano/descentralizado/universitario-vs-adt-alineacion-de-los-cremas-formacion-titulares-por-torneo-clausura-en-tarma-liga-1-noticia/)
+- **En viaje a Jauja: Vuelo de Universitario de Deportes tuvo que retornar a Lima**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/universitario-vuelo-de-la-u-rumbo-a-tarma-tuvo-que-retornara-a-lima-noticia/)
+- **Hinchas ingresaron a la fuerza al Estadio Unión Tarma previo al partido de Universitario [VIDEO]**: [Link](https://rpp.pe/futbol/descentralizado/universitario-vs-adt-hinchas-ingresaron-a-la-fuerza-a-estadio-previo-al-partido-en-tarma-por-clausura-2025-video-noticia-1661072)
+
+
+### rayo vallecano - alavés (N/A, 26/10/2025 15:25 Lima)
+
+- **Rayo Vallecano - Alavés en directo: LaLiga EA Sports hoy, en vivo**: [Link](https://as.com/futbol/primera/rayo-vallecano-alaves-en-directo-laliga-ea-sports-hoy-en-vivo-f202510-d/)
+- **Apuestas y Pronóstico del Rayo Vallecano vs Alavés 26/10/25**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2025/octubre/pronostico-rayo-vallecano-vs-alaves-26-10-25)
+- **Coudet dibuja una alineación 'a la carta': «No es quién inicie, es qué necesitamos»**: [Link](https://www.elcorreo.com/alaves/alaves-rayo-vallecano-coudet-dibuja-alineacion-carta-inicie-ver-necesitamos-20251026204457-nt.html)
+
+
+### lyon fc (N/A, 26/10/2025 15:25 Lima)
+
+- **OL : Paulo Fonseca, déjà l'un des meilleurs entraineurs de l'histoire du club**: [Link](https://www.dailymercato.com/news/ol-paulo-fonseca-deja-lun-des-meilleurs-entraineurs-de-lhistoire-du-club)
+- **Afonso Moreira scelle la victoire lyonnaise**: [Link](https://fr.uefa.com/uefaeuropaleague/video/029e-1f07d10cac13-690196cbe84c-1000--afonso-moreira-scelle-la-victoire-lyonnaise/)
+- **Bâle : Tolisso, Magnin était conscient du danger**: [Link](https://m.maxifoot.fr/bale/tolisso-magnin-etait-conscient-du-danger-foot-443312.htm)
+
+
+### lazio - juventus (N/A, 26/10/2025 15:25 Lima)
+
+- **Lazio-Juventus, al fischio d’inizio arriva il messaggio della Curva Nord: la foto**: [Link](https://onefootball.com/id/berita/lazio-juventus-al-fischio-dinizio-arriva-il-messaggio-della-curva-nord-la-foto-41861606)
+- **Guendouzi a Dazn: «Abbiamo cambiato modo di giocare. Dobbiamo giocare come contro l'Atalanta» - Lazio**: [Link](https://www.lazionews24.com/lazio-juve-guendouzi-dazn-parole/)
+- **Modesto su Tudor: "Lazio-Juve decisiva per lui? Rispondo così. David, Vlahovic e Koopmeiners…"**: [Link](https://www.tuttosport.com/news/calcio/serie-a/juventus/2025/10/26-144093310/modesto_su_tudor_lazio-juve_decisiva_per_lui_rispondo_cos_david_vlahovic_e_koopmeiners)
+
+
+### lyon - racing de estrasburgo (N/A, 26/10/2025 15:25 Lima)
+
+- **OL : pour Merah, Fonseca fait ses choix "en fonction de l’adversaire"**: [Link](https://www.olympique-et-lyonnais.com/ol-pour-merah-fonseca-fait-ses-choix-en-fonction-de-ladversaire,383428.html)
+- **Les stats avant Olympique Lyonnais-Racing (J9)**: [Link](https://www.rcstrasbourgalsace.fr/les-stats-avant-olympique-lyonnais-racing-j9/)
+- **OL : La supercherie lyonnaise va prendre fin**: [Link](https://www.msn.com/fr-fr/sport/other/ol-la-supercherie-lyonnaise-va-prendre-fin/ar-AA1PcZLY)
+
+
+### erick noriega (N/A, 26/10/2025 15:25 Lima)
+
+- **¡Confirmado! DT de Gremio tomó drástica medida con Erick Noriega tras goleada frente a Bahía**: [Link](https://libero.pe/futbol-internacional/2025/10/26/gremio-vs-juventude-dt-mano-menezes-tomo-drastica-medida-erick-noriega-goleada-frente-bahia-brasileirao-2025-1604564)
+- **Hinchas de Gremio más que conformes con Noriega: "Es el más regular"**: [Link](https://peru21.pe/deportes/hinchas-de-gremio-mas-que-conformes-con-noriega-es-el-mas-regular/)
+- **Mano Menezes sigue conforme con desempeño de Erick Noriega: “Confiamos en él”**: [Link](https://depor.com/futbol-peruano/peruanos-en-el-mundo/erick-noriega-recibio-nuevos-elogios-de-parte-de-mano-menezes-dt-de-gremio-tras-triunfo-ante-sao-paolo-brasileirao-noticia/)
+
+
+### sporting (N/A, 26/10/2025 15:25 Lima)
+
+- **Casa cheia em Tondela e Sporting CP regressa aos triunfos**: [Link](https://www.ligaportugal.pt/news/25720/casa-cheia-em-tondela-e-sporting-cp-regressa-aos-triunfos)
+- **Rui Borges: “Os jogadores tiveram prazer a jogar, foi isso que lhes pedi”**: [Link](https://tribuna.expresso.pt/sporting/2025-10-26-rui-borges-os-jogadores-tiveram-prazer-a-jogar-foi-isso-que-lhes-pedi-a6f2f326)
+- **A felicidade e diversão de quem não se fartou de ir à Fonte**: [Link](https://observador.pt/2025/10/26/pedro-a-felicidade-e-a-diversao-de-um-leao-que-nao-se-fartou-de-ir-a-fontes-em-terra-de-beiroes-a-cronica-do-tondela-sporting/)
+
+
 ### elecciones argentina (N/A, 26/10/2025 11:27 Lima)
 
 - **Videoanálisis | Lo que está en juego en las elecciones legislativas de Argentina**: [Link](https://elpais.com/argentina/2025-10-26/videoanalisis-lo-que-esta-en-juego-en-las-elecciones-legislativas-de-argentina.html)
@@ -954,75 +1022,5 @@ Sin noticias relacionadas disponibles.
 - **Preview:Lille vs PAOK - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/lille/europa-league/preview/lille-vs-paok-prediction-team-news-lineups_584009.html)
 - **Lille predicted XI v PAOK Salonique: Hamza Igamane to start ahead of Olivier Giroud**: [Link](https://www.getfootballnewsfrance.com/2025/lille-predicted-xi-v-paok-salonique-hamza-igamane-to-start-ahead-of-olivier-giroud/)
 - **Guidance for fans travelling to Lille**: [Link](https://www.paokfc.gr/en/news/20251021-odigie-gia-tous-ekdromeis-sto-lille/)
-
-
-### mainz 05 - zrinjski (N/A, 23/10/2025 15:25 Lima)
-
-- **“Matches are the best kind of training”**: [Link](https://www.mainz05.de/en/news-en/press-conference-mostar-uecl-2526)
-- **Mainz - Hsk Zrinjski Mostar: Live Score, Stream and H2H results 23/10/2025**: [Link](https://tribuna.com/en/match/102773238/)
-- **Confirmed lineups: Mainz 05 vs. Zrinjski Mostar**: [Link](https://bulinews.com/confirmed-lineups-mainz-05-zrinjski-mostar)
-
-
-### mainz vs (N/A, 23/10/2025 15:25 Lima)
-
-- **Ex-Juwel erklärt Eintracht-„Privileg“ vor Rückkehr nach Deutschland**: [Link](https://www.fr.de/eintracht-frankfurt/ex-juwel-erklaert-eintracht-privileg-vor-rueckkehr-nach-deutschland-zr-94001001.html)
-- **Mainz schont Quartett in der Conference League**: [Link](https://www.ligainsider.de/1-fsv-mainz-05/17/mainz-schont-quartett-in-der-conference-league-403808/)
-- **Mainz 05: So stimmen sich 3.200 Mostar-Fans in der Stadt ein**: [Link](https://www.allgemeine-zeitung.de/lokales/mainz/stadt-mainz/mainz-05-so-stimmen-sich-3200-mostar-fans-in-der-stadt-ein-5090589)
-
-
-### malmo vs (N/A, 23/10/2025 15:25 Lima)
-
-- **Malmö FF vs Dinamo Zagreb: UEFA Europa League stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c5yp7w8z7qdt)
-- **Coach Kovačević and Dominguez: We are looking forward to the match, we want to confirm our role as favorites on the field**: [Link](https://gnkdinamo.hr/en/news/article/coach-kovacevic-and-dominguez-we-are-looking-forward-to-the-match-we-want-to-confirm-our-role-as-favorites-on-the-field)
-- **Malmo vs Dinamo Zagreb Preview & Prediction | 2025-26 UEFA Europa League | League Phase**: [Link](https://www.thestatszone.com/malmo-vs-dinamo-zagreb-preview-prediction-2025-26-uefa-europa-league-league-phase-154523)
-
-
-### as roma (N/A, 23/10/2025 15:25 Lima)
-
-- **Roma-Viktoria Plzen | UFFICIALI: le scelte su Dybala e Dovbyk, Ziolkowski ✅**: [Link](https://onefootball.com/id/berita/roma-viktoria-plzen-ufficiali-le-scelte-su-dybala-e-dovbyk-ziolkowski-41847236)
-- **Roma - Viktoria Plzen, le formazioni ufficiali di Gasperini e Hysky**: [Link](https://www.virgilio.it/italia/roma/notizielocali/roma_viktoria_plzen_le_formazioni_ufficiali_di_gasperini_e_hysky-75918184.html)
-- **Roma-Viktoria Plzen LIVE, risultato in diretta della partita di Europa League**: [Link](https://www.fanpage.it/sport/live/roma-viktoria-plzen-live-risultato-in-diretta-della-partita-di-europa-league/)
-
-
-### freiburg (N/A, 23/10/2025 15:25 Lima)
-
-- **Liveticker | SC Freiburg - FC Utrecht : | 3. Spieltag | Europa League 2025/26**: [Link](https://www.kicker.de/freiburg-gegen-utrecht-2025-europa-league-5170490/ticker)
-- **Schuster hofft auf Osterhage gegen Leverkusen**: [Link](https://www.ligainsider.de/patrick-osterhage_20826/schuster-hofft-auf-osterhage-gegen-leverkusen-403739/)
-- **Fans aus Utrecht entern die Freiburger Altstadt**: [Link](https://www.badische-zeitung.de/fans-aus-utrecht-entern-die-freiburger-altstadt)
-
-
-### roma vs (N/A, 23/10/2025 15:25 Lima)
-
-- **Roma busca recuperarse ante un Viktoria Plzen que sueña con la clasificación**: [Link](https://www.espn.com.pe/futbol/uefa-europa-league/nota/_/id/15847853/roma-vs-viktoria-plzen-europa-league-equipo-fecha-hora-tv-en-vivo)
-- **Pronóstico Roma - Plzen. Europa League | 23/10/2025**: [Link](https://gainblers.com/pe/pronosticos/futbol/europa/europa-league/pronostico-roma-plzen-23-10-2025/)
-- **Europa League: Roma y Viktoria Plzen se encuentran en la fecha 3**: [Link](https://rpp.pe/futbol/ligas-internacionales/europa-league-roma-y-viktoria-plzen-se-encuentran-en-la-fecha-3-noticia-1660433)
-
-
-### losc - paok (N/A, 23/10/2025 15:25 Lima)
-
-- **Habitué des surprises en Europe, comment Bruno Genesio (LOSC) prépare-t-il son groupe ?**: [Link](https://lepetitlillois.com/2025/10/23/habitue-des-surprises-en-europe-comment-bruno-genesio-losc-prepare-t-il-son-groupe/)
-- **Ligue Europa : Programme et enjeux de la J3**: [Link](https://africafootunited.com/ligue-europa-programme-et-enjeux-de-la-j3/)
-- **Direct vidéo Lille - PAOK : 0-2, Meïté et Zivkovic jettent un froid sur le stade Pierre Mauroy**: [Link](https://www.rtbf.be/article/europa-league-thomas-meunier-et-lille-veulent-enchainer-face-au-paok-direct-video-21h-11620039)
-
-
-### roma (N/A, 23/10/2025 15:25 Lima)
-
-- **Eventi a Roma nel weekend dal 24 al 26 ottobre 2025**: [Link](https://www.romaweekend.it/articoli/eventi-roma-weekend-266/)
-- **Che fare a Roma e Litorale romano nel weekend dal 24 al 26 ottobre: dove si entra gratis**: [Link](https://canaledieci.it/2025/10/23/che-fare-a-roma-e-litorale-romano-nel-weekend-dal-24-al-26-ottobre-dove-si-entra-gratis/)
-- **Roma-Viktoria Plzen | UFFICIALI: le scelte su Dybala e Dovbyk, Ziolkowski ✅**: [Link](https://onefootball.com/id/berita/roma-viktoria-plzen-ufficiali-le-scelte-su-dybala-e-dovbyk-ziolkowski-41847236)
-
-
-### taylor fritz (N/A, 23/10/2025 15:25 Lima)
-
-- **ATP Basel Best Bets Including Korda vs Humbert**: [Link](https://lastwordonsports.com/tennis/2025/10/21/atp-basel-best-bets-including-korda-vs-humbert/)
-- **Fritz founders in Basel**: [Link](https://www.puntodebreak.com/en/2025/10/23/fritz-founders-in-basel)
-- **Tennis, ATP – Swiss Indoors 2025: Humbert beats Korda**: [Link](https://www.tennismajors.com/atp/swiss-indoors-humbert-through-to-second-round-838226.html)
-
-
-### olympique lyon (N/A, 23/10/2025 11:30 Lima)
-
-- **OL : Les supporters de Bâle narguent le préfet**: [Link](https://www.foot01.com/ol/ol-les-supporters-de-bale-narguent-le-prefet)
-- **FC Bâle : Xherdan Shaqiri écrase tout sur son passage en Suisse**: [Link](https://www.footmercato.net/a4700787034166039540-fc-bale-xherdan-shaqiri-ecrase-tout-sur-son-passage-en-suisse)
-- **En direct : Lyon - Bâle (0-0) - C3 - J3 - OL-Bâle**: [Link](https://www.sofoot.com/articles/en-direct-lyon-bale)
 
 
