@@ -1,3 +1,73 @@
+### elecciones argentina (N/A, 26/10/2025 11:27 Lima)
+
+- **Videoanálisis | Lo que está en juego en las elecciones legislativas de Argentina**: [Link](https://elpais.com/argentina/2025-10-26/videoanalisis-lo-que-esta-en-juego-en-las-elecciones-legislativas-de-argentina.html)
+- **Qué se juegan Milei, la oposición y Trump en las elecciones legislativas de Argentina**: [Link](https://www.bbc.com/mundo/articles/c620g32532jo)
+- **Elecciones: Milei pone a prueba su Gobierno y Kicillof busca afianzarse como candidato del peronismo**: [Link](https://www.clarin.com/politica/elecciones-milei-pone-prueba-gobierno-kicillof-busca-afianzarse-candidato-peronismo_0_4diIkQng2R.html)
+
+
+### jude bellingham (N/A, 26/10/2025 11:27 Lima)
+
+- **Real Madrid vs Barcelona - El Clasico LIVE: Score, team news and updates as Jude Bellingham and Marcus...**: [Link](https://www.dailymail.co.uk/sport/football/article-15228229/Real-Madrid-vs-Barcelona-El-Clasico-LIVE-Score-team-news-updates-Jude-Bellingham-Trent-Alexander-Arnold-Marcus-Rashford.html)
+- **Football Daily | El clásico is back with an English twist to a game thankfully on Spanish soil**: [Link](https://www.theguardian.com/football/2025/oct/24/el-clasico-real-madrid-barcelona-english-twist-spanish-soil-football-daily-newsletter)
+- **Have two English players ever played against each other in the El Clasico before?**: [Link](https://www.thesun.co.uk/sport/37077045/have-two-english-players-played-in-el-clasico-before/)
+
+
+### rashford (N/A, 26/10/2025 11:27 Lima)
+
+- **Rashford: Spoke to Barça before over Utd exit**: [Link](https://www.espn.co.uk/football/story/_/id/46697555/marcus-rashford-previous-barcelona-man-united-transfer-talks-loan)
+- **Barcelona forward gets another chance to settle scores with Real Madrid star**: [Link](https://semprebarca.com/barcelona-forward-gets-another-chance-to-settle-scores-with-real-madrid-star/)
+- **How a top player prepares for a match: Marcus Rashford reveals his pre-match routine**: [Link](https://tribuna.com/en/blogs/how-a-top-player-prepares-for-a-match-marcus-rashford-reveal/)
+
+
+### flashscore (N/A, 26/10/2025 11:27 Lima)
+
+- **European live updates: Madrid vs. Barcelona a thriller; Eze lifts Arsenal, Man City lose**: [Link](https://africa.espn.com/football/story/_/id/46700719/european-live-updates-arsenal-crystal-palace-manchester-city-aston-villa-real-madrid-barcelona)
+- **THE BIG ONE: El Clásico highlights a must-watch week on SuperSport**: [Link](https://supersport.com/football/general/news/7521865c-c3b4-442f-b86b-f45269022519/the-big-one-el-cl-sico-highlights-a-must-watch-week-on-supersport)
+- **League football: 5 matches to watch this weekend**: [Link](https://www.vanguardngr.com/2025/10/league-football-5-matches-to-watch-this-weekend-3/)
+
+
+### lewandowski (N/A, 26/10/2025 11:27 Lima)
+
+- **Lewandowski wykluczony w Barcelonie! Szatnia miała dosyć Piłka nożna**: [Link](https://www.sport.pl/pilka/7,65082,32349662,szatnia-barcelony-miala-dosc-lewandowskiego-co-za-wiesci-z.html)
+- **Lewandowski podpadł w szatni Barcelony. I to czym! Prawda wyszła na jaw**: [Link](https://wiadomosci.radiozet.pl/sport/lewandowski-podpadl-w-szatni-barcelony-i-to-czym-prawda-wyszla-na-jaw)
+- **Robert Lewandowski podpadł graczom Barcelony**: [Link](https://kanalsportowy.pl/pilka-nozna/zachowanie-lewandowskiego-nie-podobalo-sie-graczom-barcelony/)
+
+
+### everton - tottenham (N/A, 26/10/2025 11:27 Lima)
+
+- **Everton vs Tottenham Confirmed Lineups for October 26**: [Link](https://lastwordonsports.com/football/2025/10/26/everton-vs-tottenham-hotspur-confirmed-lineups-october/)
+- **Preview: Everton host Thomas Frank’s Spurs**: [Link](https://www.fotmob.com/topnews/23609-preview-everton-host-thomas-franks-spurs?utm_source=fotmob)
+- **Everton set for drastic defensive change vs Tottenham as Merlin Rohl provides solution**: [Link](https://www.goodisonnews.com/2025/10/25/everton-set-for-drastic-defensive-change-vs-tottenham-as-merlin-rohl-provides-solution/)
+
+
+### pirlo (N/A, 26/10/2025 11:27 Lima)
+
+- **Serginho: "Milan mi piaci. Modric e Leao top, ma che lavoro Allegri"**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Milan/24-10-2025/serginho-intervista-milan-mi-piaci-modric-e-leao-top-occhio-al-pisa-di-gilardino.shtml)
+- **Che onore per il club d'Eccellenza: in visita un'ex stella del Milan**: [Link](https://www.tuttocampo.it/Sicilia/News/1787025/che-onore-per-il-club-d-eccellenza-in-visita-un-ex-stella-del-milan)
+- **Serginho: «A marzo la sfida con Inter e Napoli...»**: [Link](https://www.internews24.com/serginho-ambizioni-scudetto-milan-inter-napoli/)
+
+
+### partido libre (N/A, 26/10/2025 11:27 Lima)
+
+- **Rixi Moncada: No buscaré proteger el capital sino a los hondureños**: [Link](https://www.telesurtv.net/rixi-moncada-no-proteger-capital-hondurenos/)
+- **EH Verifica realizará este jueves 23 de octubre la segunda edición del Verificatón en Tegucigalpa**: [Link](https://www.elheraldo.hn/elheraldoplus/factchecking/analisis/eh-verifica-realizara-jueves-23-octubre-segunda-edicion-verificaton-tegucigalpa-DL27868597)
+- **El conversatorio De frente con Rixi Moncada 2025 by USAP Honduras**: [Link](https://iconosmag.com/categoria-actualidad/categoria-honduras-504/conversatorio-de-frente-rixi-moncada-partido-libertad-refundacion-libre-usap-honduras-powered-arizona-state-university/)
+
+
+### rayo (N/A, 26/10/2025 11:27 Lima)
+
+- **Longtime partner ruled out as suspect in death of woman found on Bridgeport street, police say**: [Link](https://www.ctpost.com/news/article/bridgeport-homicide-rayo-mairena-deglis-perez-21118367.php)
+- **Neighbors react to death of Bridgeport mother found shot near daughter**: [Link](https://www.wtnh.com/news/connecticut/fairfield/bridgeport-community-reacts-to-death-of-mother-found-shot-near-daughter/)
+- **One-year-old child found unharmed several yards from mother’s murdered body, police say**: [Link](https://www.wfsb.com/2025/10/22/police-find-woman-with-severe-injuries/)
+
+
+### álvaro carreras (N/A, 26/10/2025 11:27 Lima)
+
+- **La hora de la verdad para Carreras: ¿Es o no es el 'anti-Lamine'?**: [Link](https://www.sport.es/es/noticias/real-madrid/hora-carreras-o-anti-lamine-122993981)
+- **Carreras, la esperanza del Madrid para contener a Lamine Yamal: "Es sorprendente el impacto que ha tenido"**: [Link](https://www.elmundo.es/deportes/futbol/2025/10/25/68fcfce321efa0d57f8b4570.html)
+- **Carreras, escudo ‘antiLamine’**: [Link](https://as.com/futbol/primera/carreras-escudo-antilamine-f202510-n/)
+
+
 ### hearts - celtic f. c. (N/A, 26/10/2025 07:44 Lima)
 
 - **Celtic starting XI to face Hearts at Tynecastle**: [Link](https://www.celticfc.com/news/2025/october/26/celtic-starting-xi-to-face-hearts-at-tynecastle/)
@@ -954,75 +1024,5 @@ Sin noticias relacionadas disponibles.
 - **OL : Les supporters de Bâle narguent le préfet**: [Link](https://www.foot01.com/ol/ol-les-supporters-de-bale-narguent-le-prefet)
 - **FC Bâle : Xherdan Shaqiri écrase tout sur son passage en Suisse**: [Link](https://www.footmercato.net/a4700787034166039540-fc-bale-xherdan-shaqiri-ecrase-tout-sur-son-passage-en-suisse)
 - **En direct : Lyon - Bâle (0-0) - C3 - J3 - OL-Bâle**: [Link](https://www.sofoot.com/articles/en-direct-lyon-bale)
-
-
-### fenerbahçe - stuttgart (N/A, 23/10/2025 11:30 Lima)
-
-- **Fenerbahçe - Stuttgart maçı CANLI YAYIN - Futbol Haberleri**: [Link](https://www.haberturk.com/fenerbahce-stuttgart-maci-canli-yayin-3832142-spor)
-- **Domenico Tedesco: "Kazanmak için istekliyiz ve açız"**: [Link](https://www.ntvspor.net/foto-galeri/domenico-tedesco-kazanmak-icin-istekliyiz-ve-aciz-411598)
-- **FENERBAHÇE AVRUPA LİGİ PUAN DURUMU VE SIRALAMASI || Fenerbahçe'nin Avrupa Ligi'nde puanı kaç, kaçıncı sırada? İşte Fenerbahçe puan tablosu ve Avrupa Ligi maç...**: [Link](http://mobil.hurriyet.com.tr/sporarena/galeri-fenerbahcenin-avrupa-liginde-puani-kac-kacinci-sirada-42993719)
-
-
-### rapid viena - fiorentina (N/A, 23/10/2025 11:30 Lima)
-
-- **Preview:Rapid Vienna vs. Fiorentina - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/rapid-vienna/europa-conference-league/preview/rapid-vienna-vs-fiorentina-prediction-team-news-lineups_584039.html)
-- **Rapid Wien vs Fiorentina: Preview**: [Link](https://www.violanation.com/conference-league/20346/rapid-wien-fiorentina-conference-league-preview-score-lineup-prediction)
-- **A night of rotation. Piccoli is there, but Gud isn't yet. Fortini and Parisi are on the wings. And Viti (re)emerges in defense.**: [Link](https://sport.quotidiano.net/en/calcio/fiorentina/una-notte-a-tutto-turnover-28275a64)
-
-
-### rayo vallecano (N/A, 23/10/2025 11:30 Lima)
-
-- **Rayo Vallecano vs Deportivo Alavés: predictions, stats, tips & odds**: [Link](https://www.squawka.com/en/news/match-preview-rayo-vallecano-vs-alaves-26-10-25-la-liga/)
-- **Hacken vs Rayo Vallecano Prediction: Madrid will continue to win the Conference League**: [Link](https://www.telecomasia.net/sports-betting/tips/football/uefa-conference-league/hacken-vs-rayo-vallecano-prediction-for-the-match-on-october-23-2025/)
-- **Conference League News: BK Häcken vs Rayo Vallecano Confirmed Line-ups**: [Link](https://footballpredictions.net/bk-hacken-v-rayo-vallecano-team-news-confirmed-lineups)
-
-
-### go ahead eagles - aston villa (N/A, 23/10/2025 11:30 Lima)
-
-- **Liverpool accept request as manager reveals helping hand for Aston Villa Europa League clash**: [Link](https://www.mirror.co.uk/sport/football/news/liverpool-villa-go-ahead-eagles-36117346)
-- **Unai Emery sets out his priorities ahead of Europa League clash at Go Ahead Eagles**: [Link](https://www.expressandstar.com/sport/2025/10/22/unai-emery-sets-out-his-priorities-ahead-of-europa-league-clash-at-go-ahead-eagles/)
-- **Go Ahead Eagles v Aston Villa betting offer: Bet £10 and get £30 in free bets with bet365**: [Link](https://talksport.com/betting/3668654/go-ahead-eagles-aston-villa-betting-offer-free-bets/)
-
-
-### krc genk - real betis (N/A, 23/10/2025 11:30 Lima)
-
-- **Fink gaat dieper in op vormdip Karetsas: “Moeilijk als ze een tweede Messi van je maken”**: [Link](https://www.hln.be/racing-genk/fink-gaat-dieper-in-op-vormdip-karetsas-moeilijk-als-ze-een-tweede-messi-van-je-maken~a2d1ade8/)
-- **Storm Benjamin heeft geen invloed op Racing Genk - Real Betis, Europa League-match van Feyenoord wel uitgesteld**: [Link](https://www.nieuwsblad.be/sport/storm-benjamin-heeft-geen-invloed-op-racing-genk-real-betis-europa-league-match-van-feyenoord-wel-uitgesteld/99659023.html)
-- **KRC Genk – Real Betis gaat voorlopig gewoon door zoals gepland**: [Link](https://www.krcgenk.be/nl/nieuws/6104/krc-genk-real-betis-gaat-voorlopig-gewoon-door-zoals-gepland)
-
-
-### emily en parís (N/A, 23/10/2025 11:30 Lima)
-
-- **‘Emily in Paris’ se muda a Roma en el tráiler oficial de su temporada 5**: [Link](https://www.infobae.com/entretenimiento/2025/10/22/emily-in-paris-se-muda-a-roma-en-el-trailer-oficial-de-su-temporada-5/)
-- **'Emily in Paris' llega a Italia: Lily Collins conquistará Roma en la temporada 5 de la serie de Netflix**: [Link](https://rpp.pe/tv/netflix/emily-in-paris-llega-a-italia-lily-collins-conquistara-roma-en-la-temporada-5-de-la-serie-de-netflix-noticia-1660522)
-- **Netflix lanza el primer teaser de la temporada 5 de Emily in Paris**: [Link](https://marieclaire.com.mx/emily-in-paris-temporada-5-teaser/)
-
-
-### ticket master (N/A, 23/10/2025 11:30 Lima)
-
-- **Ticketmaster vows crackdown on scalper accounts that buy up most tickets**: [Link](https://www.cbc.ca/news/investigates/ticketmaster-crackdown-scalpers-9.6948616)
-- **Ticketmaster Claims New Rules Will Limit Scalpers As It Faces FTC Lawsuit**: [Link](https://www.forbes.com/sites/conormurray/2025/10/20/ticketmaster-promises-overhaul-crackdown-targets-scalpers/)
-- **Ticketmaster terminates TradeDesk scalping program to avoid ‘reputational harm’**: [Link](https://www.thestar.com/news/canada/ticketmaster-terminates-tradedesk-scalping-program-to-avoid-reputational-harm/article_02790a44-5669-4b34-979f-1c0bc1bb1750.html)
-
-
-### teleticket (N/A, 23/10/2025 11:30 Lima)
-
-- **Morat confirma concierto en Arequipa como parte de su gira “Asuntos pendientes”**: [Link](https://elcomercio.pe/luces/musica/morat-confirma-concierto-en-arequipa-como-parte-de-su-gira-asuntos-pendientes-ultimas-noticia/)
-- **Morat anuncia concierto único en Perú como parte de su gira ‘Asuntos pendientes’**: [Link](https://rpp.pe/musica/conciertos/morat-en-arequipa-2025-confirman-concierto-con-unica-fecha-en-peru-por-su-tour-asuntos-pendientes-noticia-1660631)
-- **Morat confirma concierto en Perú 2025 y Arequipa será la única fecha: día, lugar y detalles de la preventa de entradas en Teleticket**: [Link](https://larepublica.pe/entretenimiento/2025/10/23/morat-confirma-concierto-en-peru-2025-y-arequipa-sera-la-unica-fecha-dia-lugar-y-detalles-de-la-preventa-de-entradas-en-teleticket-2068137)
-
-
-### ed sheeran peru (N/A, 23/10/2025 11:30 Lima)
-
-- **Ed Sheeran regresa al Perú y cantará en el Estadio Nacional: fecha, lugar y entradas para ver al cantante británico**: [Link](https://www.infobae.com/peru/2025/10/22/ed-sheeran-regresa-al-peru-y-cantara-en-el-estadio-nacional-fecha-lugar-y-entradas-para-ver-al-cantante-britanico/)
-- **Ed Sheeran vuelve a Perú luego de 9 años para un concierto en el Estadio Nacional**: [Link](https://elcomercio.pe/luces/musica/ed-sheeran-vuelve-a-peru-luego-de-9-anos-para-un-concierto-en-el-estadio-nacional-celebs-ultimas-noticia/)
-- **Ed Sheeran confirma su regreso a Lima al Estadio Nacional**: [Link](https://andina.pe/agencia/noticia-ed-sheeran-confirma-su-regreso-a-lima-al-estadio-nacional-1049181.aspx)
-
-
-### resultados de la tinka hoy (N/A, 23/10/2025 08:02 Lima)
-
-- **Sorteo de La Tinka: revisa aquí los resultados y jugada del domingo 19 de octubre**: [Link](https://elcomercio.pe/respuestas/loterias/la-tinka-hoy-domingo-19-de-octubre-en-vivo-resultados-del-ultimo-sorteo-numeros-y-jugada-ganadora-pozo-millonario-loteria-resultado-si-o-si-boliyapa-intralot-lbposting-noticia/)
-- **La Tinka sorprende con 11 ganadores: ¿cuántos acertaron en el sorteo del 19 de octubre de 2025?**: [Link](https://www.infobae.com/peru/2025/10/20/resultados-de-la-tinka-numeros-ganadores-del-domingo-19-de-octubre-de-2025/)
-- **La Tinka: revisa AQUÍ los resultados del miércoles 22 de octubre de 2025**: [Link](https://www.expreso.com.pe/variedades/la-tinka-revisa-aqui-los-resultados-del-miercoles-22-de-octubre-de-2025-sorteo-loteria-pozo-aciertos-peru-noticia/1233459/)
 
 
