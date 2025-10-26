@@ -1,3 +1,36 @@
+### susana baca (N/A, 25/10/2025 23:27 Lima)
+
+- **Susana Baca: "Estaba en UCI. Desperté gracias a que muchísima gente rezó por mí"**: [Link](https://peru21.pe/espectaculos/susana-baca-estaba-en-uci-desperte-gracias-que-muchisima-gente-rezo-por-mi/)
+- **Susana Baca regresa a la televisión a un año de salir de UCI y hace sensible confesión: "Desperté gracias a que muchísima gente rezó por mí"**: [Link](https://larepublica.pe/entretenimiento/2025/10/25/susana-baca-regresa-a-la-television-a-un-ano-de-salir-de-uci-y-hace-sensible-confesion-desperte-gracias-a-que-muchisima-gente-rezo-por-mi-548325)
+
+
+### the weeknd (N/A, 25/10/2025 23:27 Lima)
+
+- **“Yo soy”: Imitador obtiene una segunda oportunidad, cambia de personaje y pasa a la segunda ronda**: [Link](https://elcomercio.pe/tvmas/farandula/yo-soy-imitador-obtiene-una-segunda-oportunidad-cambia-de-personaje-y-pasa-a-la-segunda-ronda-ultimas-noticia/)
+- **Yo Soy 2025: participante regresa por SEGUNDA VEZ al casting con su imitación de The Weeknd, ¿Esta vez logrará pasar a la siguiente etapa?**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-2025-participante-regresa-por-segunda-vez-al-casting-con-su-imitacion-de-the-weeknd-esta-vez-lograra-pasar-a-la-siguiente-etapa_20251025/)
+- **Yo Soy 2025: Participante tiene SEGUNDA OPORTUNIDAD y sorprende al jurado como Elvis Presley**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-2025-participante-tiene-segunda-oportunidad-y-sorprende-al-jurado-como-elvis-presley_20251023/)
+
+
+### nuggets - suns (N/A, 25/10/2025 23:27 Lima)
+
+- **Recap: Denver Nuggets go wire to wire against Phoenix Suns and get first win of the NBA regular season, 133-111.**: [Link](https://www.denverstiffs.com/recap-denver-nuggets-go-wire-to-wire-against-phoenix-suns-and-get-first-win-of-the-nba-regular-season-133-111/)
+- **Suns Nuggets Basketball**: [Link](https://www.hjnews.com/sports/nation/suns-nuggets-basketball/image_b2673edb-da8e-5885-9fbc-1bdabacef21c.html)
+- **Duane Rankin: Suns injury report at Nuggets: …**: [Link](https://www.hoopshype.com/story/sports/nba/rumors/2025/10/25/duane-rankin-suns-injury-report-at-nuggets/86904319007/)
+
+
+### cruz azul - monterrey (N/A, 25/10/2025 23:27 Lima)
+
+- **Cruz Azul vs Monterrey: posibles alineaciones para la Jornada 15**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/15862888/cruz-azul-vs-monterrey-alineaciones-jornada-15-apertura-2025)
+- **🟢 Canal 5 (TUDN) EN VIVO GRATIS — ver partido Cruz Azul vs. Monterrey EN DIRECTO por tv abierta**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/tudn-y-canal-5-en-vivo-gratis-donde-ver-partido-cruz-azul-vs-cf-monterrey-por-tv-abierta-y-futbol-online-nnda-nnrt-noticia/)
+- **Pronóstico Cruz Azul Monterrey - Liga MX 25/10/25**: [Link](https://www.sportytrader.com/es/pronosticos/cruz-azul-monterrey-299869/)
+
+
+### clash royale (N/A, 25/10/2025 23:27 Lima)
+
+- **How to watch Supercell World Championships 2025: Clash of Clans, Clash Royale, and Brawl Stars Finals**: [Link](https://escharts.com/news/how-watch-supercell-games-world-championships)
+- **COC World Championship 2025: Dates, Teams, Format, Prize Pool, and More**: [Link](https://earlygame.in/news/esports/coc-world-championship-2025-dates-teams-format-prize-pool-and-more)
+
+
 ### guadalajara - atlas (N/A, 25/10/2025 20:57 Lima)
 
 - **Chivas vs Atlas: posibles alineaciones de la Jornada 15**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/15863201/chivas-vs-atlas-alineaciones-formaciones-jornada-15-liga-mx)
@@ -995,38 +1028,5 @@ Sin noticias relacionadas disponibles.
 - **HOW TO WATCH SIXERS-CELTS AND ‘INSIDE THE NBA’**: [Link](https://bvmsports.com/2025/10/22/how-to-watch-sixers-celts-and-inside-the-nba/)
 - **Dominick Barlow News: Starting in 76ers debut**: [Link](https://www.rotowire.com/basketball/headlines/dominick-barlow-news-starting-in-76ers-debut-500144)
 - **10/22 Game Preview: 76ers at Celtics**: [Link](https://www.nba.com/celtics/news/gamepreview-20251022-phibos)
-
-
-### tomahawk (N/A, 22/10/2025 23:28 Lima)
-
-- **Trump calls for Ukraine to be carved up with Russia after tense meeting with Zelenskyy**: [Link](https://www.cnbc.com/2025/10/20/trump-shifts-weight-behind-putin-after-tense-meeting-with-zelenskyy.html)
-- **US-made Tomahawk is a tried and tested missile – but it’s out of Ukraine’s reach for now**: [Link](https://www.cnn.com/2025/10/20/europe/us-tomahawk-missile-ukraine-analysis-intl)
-- **Trump urged Ukraine's Zelenskiy to make concessions to Russia in tense meeting, sources say**: [Link](https://www.reuters.com/world/trump-urged-zelenskiy-cut-deal-with-putin-or-risk-facing-destruction-ft-reports-2025-10-19/)
-
-
-### américa tv (N/A, 22/10/2025 20:51 Lima)
-
-Sin noticias relacionadas disponibles.
-
-
-### copa sudamericana 2025 (N/A, 22/10/2025 20:51 Lima)
-
-- **Gabriel Castellón: "Ante Lanús, los detalles van a marcar la diferencia"**: [Link](https://www.espn.com.ar/futbol/copa-sudamericana/nota/_/id/15849647/gabriel-castellon-ante-lanus-los-detalles-van-a-marcar-la-diferencia)
-- **¡Con sed de revancha! Universidad de Chile vuelve a verse las caras con Lanús por la CONMEBOL Sudamericana**: [Link](https://espndeportes.espn.com/futbol/copa-sudamericana/nota/_/id/15847268/universidad-de-chile-vuelve-a-verse-las-caras-con-lanus-conmebol-sudamericana-semifinales-2025)
-- **Gustavo Álvarez habló sobre el partido con Lanús: “Nosotros vamos a jugar como una verdadera final”**: [Link](https://tribuna.com/es/news/2025-10-23-gustavo-alvarez-hablo-sobre-el-partido-con-lanus-nosotros-vamos-a-jugar-como-una-verdader/)
-
-
-### querétaro - guadalajara (N/A, 22/10/2025 20:51 Lima)
-
-- **Chivas vs. Querétaro hoy en vivo: horario, canal de transmisión y dónde ver por Liga MX**: [Link](https://elcomercio.pe/deporte-total/mexico/chivas-vs-queretaro-en-vivo-online-gratis-hoy-via-caliente-tv-futbol-libre-tv-fox-sports-vix-amazon-prime-horarios-canales-y-donde-ver-partido-por-liga-mx-video-noticia/)
-- **"Él era feliz conmigo" 🗣️ Isabel Preysler pública apasionadas cartas de amor de Mario Vargas Llosa https://mile.io/3L3HVBl**: [Link](https://www.facebook.com/MilenioDiario/photos/%C3%A9l-era-feliz-conmigo-%EF%B8%8Fisabel-preysler-p%C3%BAblica-apasionadas-cartas-de-amor-de-mari/1285193200304815/)
-- **¡Regaló un gol de vestidor! El terrible ‘oso’ de Fernando González en el Chivas vs. Querétaro**: [Link](https://chivaspasion.bolavip.com/ligamx/regalo-un-gol-de-vestidor-el-terrible-oso-de-fernando-gonzalez-en-el-chivas-vs-queretaro)
-
-
-### jorge carrascal (N/A, 22/10/2025 20:51 Lima)
-
-- **Jorge Carrascal, el crack colombiano que llegó al Flamengo en su mejor momento**: [Link](https://www.eldestapeweb.com/deportes/copa-libertadores-2025/jorge-carrascal-el-crack-colombiano-que-llego-al-flamengo-en-su-mejor-momento-2025102222120)
-- **No lo llamó Lorenzo esta vez y siguió encendido en su club: mete presión para el Mundial 2026**: [Link](https://www.semana.com/deportes/articulo/no-lo-llamo-lorenzo-esta-vez-y-siguio-encendido-en-su-club-mete-presion-para-el-mundial-2026/202553/)
-- **Leyenda del Atlético de Madrid elogió a ex Millonarios: "es especial"**: [Link](https://eldeportivo.com.co/colombianos-en-el-exterior/leyenda-del-atletico-de-madrid-elogio-a-ex-millonarios-es-especial/)
 
 
