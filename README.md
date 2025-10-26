@@ -1,3 +1,71 @@
+### hearts - celtic f. c. (N/A, 26/10/2025 07:44 Lima)
+
+- **Celtic starting XI to face Hearts at Tynecastle**: [Link](https://www.celticfc.com/news/2025/october/26/celtic-starting-xi-to-face-hearts-at-tynecastle/)
+- **Chris Sutton makes big Hearts vs Celtic claim on Sky Sports**: [Link](https://thecelticbhoys.com/chris-sutton-makes-hearts-vs-celtic-claim-sky-sports)
+- **Sebastian Tounekti warns Celtic that Hearts are ‘100%’ title challengers**: [Link](https://www.67hailhail.com/news/sebastian-tounekti-warns-celtic-that-hearts-are-100-title-challengers/)
+
+
+### weather (N/A, 26/10/2025 07:44 Lima)
+
+- **Weather Whiz: October 26**: [Link](https://au.news.yahoo.com/weather-whiz-october-26-100000341.html)
+- **Weather Of The World: October 20-26**: [Link](https://www.aol.com/articles/weather-world-october-20-26-100000815.html)
+- **Weather Whiz: October 26**: [Link](https://www.aol.com/articles/weather-whiz-october-26-100000267.html)
+
+
+### r.c.d. mallorca - levante (N/A, 26/10/2025 07:44 Lima)
+
+- **LaLiga EA Sports: Mallorca se enfrenta ante la visita Levante por la fecha 10**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-mallorca-se-enfrenta-ante-la-visita-levante-por-la-fecha-10-noticia-1660917)
+- **Mallorca - Levante en directo - La Liga: Resultados y resúmenes de Fútbol - 26/10/2025**: [Link](https://espanol.eurosport.com/futbol/la-liga/2025-2026/live-mallorca-levante_mtc1610652/live-commentary.shtml)
+- **"Cuando vas último, vas con el culo prieto"**: [Link](https://www.mundodeportivo.com/futbol/mallorca/20251025/1002557312/vas-ultimo-vas-culo-prieto.html)
+
+
+### leverkusen vs (N/A, 26/10/2025 07:44 Lima)
+
+- **Bundesliga heute: Leverkusen - Freiburg LIVE im TV, Liveticker & Livestream**: [Link](https://www.sport1.de/news/fussball/bundesliga/2025/10/bundesliga-heute-leverkusen-freiburg-live-im-tv-liveticker-livestream)
+- **Hjulmand vor #B04SCF: „Wollen diesen bounce back“**: [Link](https://www.bayer04.de/de-de/news/werkself-tv/hjulmand-vor-b04scf-wollen-diesen-bounce-back)
+- **Fotos: SC Freiburg gegen Bayer Leverkusen – die Historie in Bildern**: [Link](https://www.badische-zeitung.de/fotos-sc-freiburg-gegen-bayer-leverkusen-die-historie-in-bildern)
+
+
+### torino vs (N/A, 26/10/2025 07:44 Lima)
+
+- **Football Tracker: Torino hosting rock-bottom Genoa in Serie A, El Clasico to follow**: [Link](https://www.flashscore.com/news/football-tracker-torino-hosting-rock-bottom-genoa-in-serie-a-el-clasico-to-follow/8QLdZZs9/)
+- **Serie A: Torino vs. Genoa – Confirmed line-ups and updates**: [Link](https://football-italia.net/serie-a-torino-genoa-confirmed-line-ups/)
+- **Where to Watch Torino FC vs. Genoa CFC: TV Channel, Start Time and Live Stream**: [Link](https://www.bleachernation.com/how-to-watch/2025/10/25/where-to-watch-torino-fc-vs-genoa-cfc-tv-channel-start-time-and-live-stream-2/)
+
+
+### universitario vs adt (N/A, 26/10/2025 07:44 Lima)
+
+- **La ‘U’, 8 títulos y una economía que es la envidia del país: cuántos millones acumulará en premios si se reafirma su hegemonía con el tricampeonato**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/universitario-hoy-la-u-8-titulos-y-una-economia-que-es-la-envidia-del-pais-cuantos-millones-acumulara-en-premios-si-se-reafirma-su-hegemonia-con-el-tricampeonato-liga-1-te-apuesto-noticia/)
+- **Locura en Tarma: el tremendo banderazo de los hinchas de Universitario antes de duelo ante ADT [VIDEO]**: [Link](https://rpp.pe/futbol/descentralizado/universitario-vs-adt-el-tremendo-banderazo-de-hinchas-cremas-antes-de-duelo-em-tarma-noticia-1661021)
+- **A qué hora juega Universitario vs ADT HOY: partido clave en Tarma por Torneo Clausura de la Liga 1 2025**: [Link](https://www.infobae.com/peru/deportes/2025/10/25/a-que-hora-juega-universitario-vs-adt-partido-tarma-fecha-16-torneo-clausura-liga-1-2025-horario/)
+
+
+### torino - genoa (N/A, 26/10/2025 07:44 Lima)
+
+Sin noticias relacionadas disponibles.
+
+
+### twente - ajax (N/A, 26/10/2025 07:44 Lima)
+
+- **LIVE eredivisie | Heitinga houdt tegen Twente vast aan Chelsea-basiself: Pasveer en McConnell starten**: [Link](https://www.ad.nl/voetbal/live-eredivisie-heitinga-houdt-tegen-twente-vast-aan-chelsea-basiself-pasveer-en-mcconnell-starten~a4eb02c2/)
+- **Ajax-supporters pakken groots uit met spandoek in Grolsch Veste**: [Link](https://www.twentefans.nl/ajax-supporters-pakken-groots-uit-met-spandoek-in-grolsch-veste/)
+- **Weghorst slaat meteen na rust toe en scoort in De Veste: 1-1**: [Link](https://www.tubantia.nl/fc-twente/weghorst-slaat-meteen-na-rust-toe-en-scoort-in-de-veste-1-1~af3543935/)
+
+
+### win (N/A, 26/10/2025 07:44 Lima)
+
+- **Manning injured as Longhorns rally for OT win**: [Link](https://www.espn.com/college-football/story/_/id/46726750/injured-arch-manning-exits-texas-rallies-ot-victory)
+- **Arch Manning hurt during Texas' dramatic comeback win over Mississippi State**: [Link](https://www.foxnews.com/sports/arch-manning-hurt-during-texas-dramatic-comeback-win-over-mississippi-state)
+- **Matthew Caldwell audibled to the game-winning TD throw**: [Link](https://www.burntorangenation.com/texas-longhorns-football/97357/matthew-caldwell-audibled-to-the-game-winning-td-throw)
+
+
+### hola (N/A, 26/10/2025 07:44 Lima)
+
+- **TINI lanza 'Down' y Rauw Alejandro estrena 'Silencio'**: [Link](https://www.hola.com/us-es/entretenimiento/20251025863456/tini-rauw-alejandro-viernes-musica-nueva/)
+- **Tini Stoessel: de Violetta a FUTTTURA**: [Link](https://www.c5n.com/ratingcero/tini-stoessel-violetta-futttura-n218751)
+- **"Down" es el nuevo himno de liberación de Tini**: [Link](https://www.lacoope.net/musica/down-nuevo-himno-liberacion-tini-n20907)
+
+
 ### 3i atlas (N/A, 26/10/2025 03:28 Lima)
 
 - **The Imminent Solar Conjunction of 3I/ATLAS**: [Link](https://avi-loeb.medium.com/the-imminent-solar-conjunction-of-3i-atlas-264a6ccd441c)
@@ -956,75 +1024,5 @@ Sin noticias relacionadas disponibles.
 - **Sorteo de La Tinka: revisa aquí los resultados y jugada del domingo 19 de octubre**: [Link](https://elcomercio.pe/respuestas/loterias/la-tinka-hoy-domingo-19-de-octubre-en-vivo-resultados-del-ultimo-sorteo-numeros-y-jugada-ganadora-pozo-millonario-loteria-resultado-si-o-si-boliyapa-intralot-lbposting-noticia/)
 - **La Tinka sorprende con 11 ganadores: ¿cuántos acertaron en el sorteo del 19 de octubre de 2025?**: [Link](https://www.infobae.com/peru/2025/10/20/resultados-de-la-tinka-numeros-ganadores-del-domingo-19-de-octubre-de-2025/)
 - **La Tinka: revisa AQUÍ los resultados del miércoles 22 de octubre de 2025**: [Link](https://www.expreso.com.pe/variedades/la-tinka-revisa-aqui-los-resultados-del-miercoles-22-de-octubre-de-2025-sorteo-loteria-pozo-aciertos-peru-noticia/1233459/)
-
-
-### hora peru (N/A, 23/10/2025 08:02 Lima)
-
-- **ABB en Perú: empresas mineras del país están diluyendo hasta US$125.000 por hora en electricidad sin darle ningún uso**: [Link](https://www.infobae.com/peru/2025/10/20/abb-las-empresas-mineras-en-peru-estan-diluyendo-hasta-us125000-por-hora-en-electricidad-sin-darle-ningun-uso/)
-- **Temblor hoy en Perú, miércoles 22 de octubre: sismo de magnitud 4.0 sacude Chimbote**: [Link](https://andina.pe/agencia/noticia-temblor-hoy-peru-miercoles-22-octubre-sismo-magnitud-40-sacude-chimbote-1049183.aspx)
-- **Dos sismos de regular magnitud remecieron Arequipa en menos de una hora**: [Link](https://rpp.pe/peru/arequipa/arequipa-dos-sismos-remecieron-la-region-en-menos-de-una-hora-noticia-1660498)
-
-
-### feyenoord (N/A, 23/10/2025 03:33 Lima)
-
-- **Uitleg • Wat zeggen de UEFA-regels over het verplaatsen van een Europa League-wedstrijd?**: [Link](https://1908.nl/artikelen/uitleg-wat-zeggen-de-uefa-regels-over-het-verplaatsen-van-een-europa-league-wedstrijd)
-- **Robin van Persie krijgt lachers op hand in Feyenoord-kleedkamer bij bekendmaken opstelling tegen Panathinaikos**: [Link](https://www.telegraaf.nl/sport/voetbal/robin-van-persie-krijgt-lachers-op-hand-in-feyenoord-kleedkamer-bij-bekendmaken-opstelling-tegen-panathinaikos/99410300.html)
-- **Dit is de gevaarlijkste speler van Feyenoord-opponent Panathinaikos**: [Link](https://www.voetbalprimeur.nl/nieuws/1704534/dit-is-de-gevaarlijkste-speler-van-feyenoord-opponent-panathinaikos.html)
-
-
-### cristal vs universitario (N/A, 23/10/2025 03:33 Lima)
-
-- **A qué hora juega Universitario vs Sporting Cristal: partido pendiente por el Torneo Clausura de la Liga 1 2025**: [Link](https://www.infobae.com/peru/deportes/2025/10/22/a-que-hora-juega-universitario-vs-sporting-cristal-partido-pendiente-fecha-14-torneo-clausura-liga-1-2025-horario/)
-- **Sporting Cristal va por el golpe: la alineación que alista Autuori para recibir a Universitario**: [Link](https://rpp.pe/futbol/descentralizado/sporting-cristal-vs-universitario-alineacion-rimense-con-luis-abram-en-estadio-nacional-por-torneo-clausura-2025-fotos-noticia-1660506)
-- **Sergio Leal: “Tiene un sabor especial ganarle a Universitario porque es uno de los clásicos”**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/sergio-leal-tiene-un-sabor-especial-ganarle-a-universitario-porque-es-uno-de-los-clasicos-sporting-cristal-ultimas-noticia/)
-
-
-### feyenoord vs (N/A, 23/10/2025 03:33 Lima)
-
-- **Kick-off times for Feyenoord and AZ Alkmaar matches changed due to weather conditions**: [Link](https://www.uefa.com/uefaeuropaleague/news/029e-1f05e575bff7-98f28e3b46f5-1000--kick-off-times-for-feyenoord-and-az-alkmaar-matches-changed-/)
-- **Europa League Matchday 3 Best Bets: Back Rogers To Star for Aston Villa In The Netherlands**: [Link](https://www.sportscasting.com/uk/news/europa-league-matchday-3-best-bets-23-10-25/)
-- **Feyenoord vs. Panathinaikos - Boxscore - October 23, 2025**: [Link](https://www.foxsports.com/soccer/europa-league-feyenoord-vs-panathinaikos-oct-23-2025-game-boxscore-644382?tab=boxscore)
-
-
-### jnj delia espinoza (N/A, 23/10/2025 03:33 Lima)
-
-- **JNJ determina que Delia Espinoza no retornará como Fiscal de la Nación**: [Link](https://rpp.pe/politica/judiciales/delia-espinoza-ya-no-sera-fiscal-de-la-nacion-jnj-noticia-1660534)
-- **Delia Espinoza: Subcomisión del Congreso admite denuncia por no acatar reposición de Patricia Benavides**: [Link](https://elcomercio.pe/politica/congreso/delia-espinoza-subcomision-de-acusaciones-constitucionales-del-congreso-admite-denuncia-por-no-acatar-reposicion-de-patricia-benavides-junta-nacional-de-justicia-jnj-ultimas-noticia/)
-- **JNJ acata mandato judicial y tramita reposición de Delia Espinoza**: [Link](https://caretas.pe/politica/jnj-acata-mandato-judicial-y-tramita-reposicion-de-delia-espinoza/)
-
-
-### joinnus (N/A, 23/10/2025 03:33 Lima)
-
-- **Soda Stereo en Perú: precios de entradas y preventa para el show que traerá de vuelta a Gustavo Cerati**: [Link](https://www.infobae.com/peru/2025/10/21/soda-stereo-en-peru-precios-de-entradas-y-preventa-para-el-show-que-traera-de-vuelta-a-gustavo-cerati/)
-- **Soda Stereo en Lima 2026: ¡Así puedes comprar tus entradas para el concierto!**: [Link](https://blog.joinnus.com/soda-stereo-en-lima-2026-asi-puedes-comprar-tus-entradas-para-el-concierto/)
-- **Soda Stereo en Lima: precios y cómo comprar entradas para su concierto en Arena 1**: [Link](https://rpp.pe/musica/conciertos/soda-stereo-en-lima-2026-precios-y-como-comprar-entradas-en-joinnus-para-concierto-con-gustavo-cerati-virtual-en-arena-1-noticia-1660451)
-
-
-### atlas (N/A, 23/10/2025 03:33 Lima)
-
-- **Introducing ChatGPT Atlas**: [Link](https://openai.com/index/introducing-chatgpt-atlas/)
-- **The battle for the future of the internet is underway**: [Link](https://www.cnn.com/2025/10/22/tech/openai-chatgpt-atlas-browser-google-chrome-ai)
-- **OpenAI’s new browser is a broadside shot at Google**: [Link](https://techcrunch.com/2025/10/21/openais-new-browser-is-a-broadside-shot-at-google/)
-
-
-### mario vargas llosa (N/A, 22/10/2025 23:28 Lima)
-
-- **La autobiografía de Isabel Preysler en 10 frases: del “estás muy mal educado” al “cuando se me desmoronó la nariz todos quisieron salir corriendo”**: [Link](https://elpais.com/gente/2025-10-23/la-autobiografia-de-isabel-preysler-en-10-frases-del-estas-muy-mal-educado-al-cuando-se-me-desmorono-la-nariz-todos-quisieron-salir-corriendo.html)
-- **La incómoda reacción de Álvaro Vargas Llosa ante la revelación de las memorias de Isabel Preysler**: [Link](https://www.infobae.com/peru/2025/10/22/la-incomoda-reaccion-de-alvaro-vargas-llosa-ante-la-revelacion-de-las-memorias-de-isabel-preysler/)
-- **Isabel Preysler publica íntimas cartas de amor de Mario Vargas Llosa y afirma: "Él era feliz conmigo"**: [Link](https://rpp.pe/famosos/celebridades/isabel-preysler-publica-intimas-cartas-de-amor-de-mario-vargas-llosa-en-su-libro-mi-verdadera-historia-noticia-1660424)
-
-
-### portland timbers (N/A, 22/10/2025 23:28 Lima)
-
-- **Reeling Timbers look to rebound during Wednesday’s wild card playoff round**: [Link](https://www.oregonlive.com/timbers/2025/10/reeling-timbers-look-to-rebound-during-wednesdays-wild-card-playoff-round.html)
-- **LIVE/FREE: Portland vs Real Salt Lake LIVE STREA.Ms MLS GAME TODAY On (10/22/25)**: [Link](https://www.griceconnect.com/classifieds/homes-rentals-and-real-estate/open-houses/2037570)
-- **Real Salt Lake Timbers Soccer**: [Link](https://www.couriernews.com/sports/real-salt-lake-timbers-soccer/image_c7ef702b-4d76-5876-9783-65efaa64b485.html)
-
-
-### joinnus soda stereo (N/A, 22/10/2025 23:28 Lima)
-
-- **Soda Stereo en Perú: precios de entradas y preventa para el show que traerá de vuelta a Gustavo Cerati**: [Link](https://www.infobae.com/peru/2025/10/21/soda-stereo-en-peru-precios-de-entradas-y-preventa-para-el-show-que-traera-de-vuelta-a-gustavo-cerati/)
-- **Soda Stereo en Lima 2026: ¡Así puedes comprar tus entradas para el concierto!**: [Link](https://blog.joinnus.com/soda-stereo-en-lima-2026-asi-puedes-comprar-tus-entradas-para-el-concierto/)
-- **Soda Stereo en Lima: precios y cómo comprar entradas para su concierto en Arena 1**: [Link](https://rpp.pe/musica/conciertos/soda-stereo-en-lima-2026-precios-y-como-comprar-entradas-en-joinnus-para-concierto-con-gustavo-cerati-virtual-en-arena-1-noticia-1660451)
 
 
