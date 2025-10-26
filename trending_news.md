@@ -1,3 +1,73 @@
+### guadalajara - atlas (N/A, 25/10/2025 20:57 Lima)
+
+- **Chivas vs Atlas: posibles alineaciones de la Jornada 15**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/15863201/chivas-vs-atlas-alineaciones-formaciones-jornada-15-liga-mx)
+- **Conoce el protocolo de seguridad para el Clásico Tapatío**: [Link](https://onefootball.com/es/noticias/conoce-el-protocolo-de-seguridad-para-el-clasico-tapatio-41857165)
+- **Djuka y su inicio goleador en México, gracias a un Clásico Tapatío**: [Link](https://espndeportes.espn.com/futbol/mexico/nota/_/id/15858617/chivas-vs-atlas-goles-djuka-clasico-tapatio-uros-durdevic)
+
+
+### u vs adt (N/A, 25/10/2025 20:57 Lima)
+
+- **Universitario y el objetivo de un logro inédito: ser campeón invicto de un torneo corto de la Liga 1**: [Link](https://espndeportes.espn.com/futbol/peru/nota/_/id/15858397/universitario-objetivo-tarma-ser-campeon-invicto-torneo-corto-liga-1-de-peru)
+- **‘Jauja es crema’: Universitario de Deportes se dirige a Tarma para su duelo ante ADT por Liga 1**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/universitario-llego-a-jauja-y-se-dirige-a-tarma-para-disputar-partido-con-adt-por-liga-1-noticia/)
+- **Liga 1 y la curiosa medida la 'U' gana el 'Tri' ante ADT**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/liga-1-tomo-llamativa-medida-si-universitario-logra-tri-ante-adt-n451468)
+
+
+### once caldas - unión magdalena (N/A, 25/10/2025 20:57 Lima)
+
+- **Pronóstico Once Caldas Unión Magdalena Santa Marta - Liga Postobon 25/10/25**: [Link](https://www.sportytrader.com/es/pronosticos/once-caldas-union-magdalena-santa-marta-300058/)
+- **Siga el minuto a minuto del partido entre el Once Caldas y el Unión Magdalena.**: [Link](https://www.facebook.com/story.php?story_fbid=1272134861607364&id=100064325876463)
+- **La barra del Once Caldas y el reclamo para técnicos y jugadores antes de recibir a Unión Magdalena**: [Link](https://www.lapatria.com/deportes/la-barra-del-once-caldas-y-el-reclamo-para-tecnicos-y-jugadores-antes-de-recibir-union)
+
+
+### tabla clausura liga 1 (N/A, 25/10/2025 20:57 Lima)
+
+- **Tabla de posiciones de la Liga 1 Perú 2025 EN VIVO HOY: así van los equipos en la fecha 16 del Torneo Clausura y Acumulada**: [Link](https://www.infobae.com/peru/deportes/2025/10/25/tabla-de-posiciones-liga-1-peru-2025-en-vivo-hoy-acumulada-fecha-16-torneo-clausura-programacion-resultados/)
+- **Tabla de posiciones de la Liga 1 EN VIVO HOY: así va tras la victoria de Cusco FC**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/tabla-de-posiciones-liga-1-2025-en-vivo-resultados-posiciones-del-clausura-y-acumulado-noticia/)
+- **Programación fecha 16 del Torneo Clausura Liga1 Te Apuesto**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/programacion-fecha-16-torneo-clausura-liga1-te-apuesto-n451465)
+
+
+### león - pumas (N/A, 25/10/2025 20:57 Lima)
+
+- **León vs Pumas EN VIVO HOY por Liga MX: ver partido**: [Link](https://elcomercio.pe/deporte-total/mexico/leon-vs-pumas-en-vivo-online-gratis-por-liga-mx-via-caliente-tv-fox-sports-amazon-prime-tudn-futbol-libre-tv-a-que-hora-juegan-canal-de-transmision-y-donde-ver-por-torneo-apertura-video-noticia/)
+- **Pronóstico Club Leon Pumas UNAM - Liga MX 25/10/25**: [Link](https://www.sportytrader.com/es/pronosticos/leon-pumas-unam-299885/)
+- **¿Debe sacrificarse la tradición por la innovación? Así ha cambiado el pan de muerto en el tiempo, un alimento ofrendado a nuestros difuntos 💀 https://mile.io/49mUnpP**: [Link](https://www.facebook.com/MilenioDiario/photos/debe-sacrificarse-la-tradici%C3%B3n-por-la-innovaci%C3%B3n-as%C3%AD-ha-cambiado-el-pan-de-muert/1288220096668792/)
+
+
+### dep. cuenca - aucas (N/A, 25/10/2025 20:57 Lima)
+
+- **(EN VIVO) Deportivo Cuenca vs. SD Aucas | LigaPro | Hexagonal 2**: [Link](https://onefootball.com/es/noticias/en-vivo-deportivo-cuenca-vs-sd-aucas-ligapro-hexagonal-2-41857979)
+- **El gol de Bruno Miranda en Aucas contra Deportivo Cuenca**: [Link](https://www.ole.com.ar/ecuador/gol-bruno-miranda-aucas-deportivo-cuenca_3_pdHqpMehB6.html)
+- **Deportivo Cuenca vs SD Aucas: pronósticos, cuotas, transmisión y datos para apostar!**: [Link](https://www.apwin.com/es/pronosticos/deportivo-cuenca-vs-sd-aucas-pronostico-liga-pro-26-10-2025/)
+
+
+### blue jays - dodgers (N/A, 25/10/2025 20:57 Lima)
+
+- **Blue Jays 11-4 Dodgers (Oct 24, 2025) Final Score**: [Link](https://www.espn.com/mlb/game/_/gameId/401809297/dodgers-blue-jays)
+- **The composure that comes with experience ahead of Game 2**: [Link](https://sports.yahoo.com/article/composure-comes-experience-ahead-game-180000305.html)
+- **(LIVE)** Blue Jays vs Dodgers Live On Free 𝗦𝘁𝗮𝗿𝗲𝗮𝗺ing MLB World Series Game 2**: [Link](https://www.prpeak.com/classifieds/real-estate-rentals/accommodation-wanted/2039958)
+
+
+### incendio lima (N/A, 25/10/2025 20:57 Lima)
+
+- **Nuevo incendio en Centro de Lima: Bomberos no descartan que personas estén atrapadas en galería de Barrios Altos**: [Link](https://www.infobae.com/peru/2025/10/25/nuevo-incendio-en-centro-de-lima-galeria-se-quema-en-jiron-huanta-de-barrios-altos/)
+- **Incendio en Barrios Altos: más de 10 unidades de Bomberos controlan las llamas**: [Link](https://elcomercio.pe/lima/sucesos/incendio-en-barrios-altos-mas-de-10-unidades-de-bomberos-en-la-zona-ultimas-noticia/)
+- **Mario Casaretto sobre incendio en Cercado de Lima: “Es una galería y unos 20 puestos que están siendo consumidos”**: [Link](https://rpp.pe/lima/actualidad/mario-casaretto-sobre-incendio-en-cercado-de-lima-es-una-galeria-y-unos-20-puestos-que-estan-siendo-consumidos-noticia-1661014)
+
+
+### são paulo - bahía (N/A, 25/10/2025 20:57 Lima)
+
+- **Morumbi tem setor de arquibancada interditado contra o Bahia para instalação de palco para shows: veja imagens**: [Link](https://onefootball.com/es/noticias/morumbi-tem-setor-de-arquibancada-interditado-contra-o-bahia-para-instalacao-de-palco-para-shows-veja-imagens-41855545)
+- **São Paulo tem Luciano e Lucas no ataque contra o Bahia; veja escalações**: [Link](https://www.uol.com.br/esporte/futebol/ultimas-noticias/2025/10/25/sao-paulo-x-bahia-brasileirao-escalacoes.htm)
+- **Com muitos desfalques, Crespo define escalação do São Paulo contra o Bahia**: [Link](https://www.lance.com.br/sao-paulo/com-muitos-desfalques-crespo-define-escalacao-do-sao-paulo-para-enfrentar-o-bahia.html)
+
+
+### incendio centro de lima (N/A, 25/10/2025 20:57 Lima)
+
+- **Incendio en el Centro de Lima: Emergencia cerca al Congreso deja 4 bomberos heridos y alerta por colapso de inmueble**: [Link](https://www.infobae.com/peru/2025/10/25/incendio-en-el-centro-de-lima-bomberos-atienden-emergencia-cerca-al-congreso-de-la-republica/)
+- **Incendio en el Centro de Lima moviliza a diez unidades de bomberos**: [Link](https://caretas.pe/nacional/incendio-en-el-centro-de-lima-moviliza-a-diez-unidades-de-bomberos/)
+- **Centro de Lima: Gobierno evalúa declarar en emergencia la zona afectada por incendio en el jirón Junín últimas | LIMA**: [Link](https://elcomercio.pe/lima/centro-de-lima-gobierno-evalua-declarar-en-emergencia-la-zona-afectada-por-incendio-en-el-jiron-junin-ultimas-noticia/)
+
+
 ### liverpol vs (N/A, 25/10/2025 15:24 Lima)
 
 - **Eintracht Frankfurt 1 Liverpool 5: Ekitike impresses, a new system and set-piece goals - The Athletic**: [Link](https://www.nytimes.com/athletic/6740284/2025/10/22/eintracht-frankfurt-liverpool-analysis/)
@@ -958,75 +1028,5 @@ Sin noticias relacionadas disponibles.
 - **Jorge Carrascal, el crack colombiano que llegó al Flamengo en su mejor momento**: [Link](https://www.eldestapeweb.com/deportes/copa-libertadores-2025/jorge-carrascal-el-crack-colombiano-que-llego-al-flamengo-en-su-mejor-momento-2025102222120)
 - **No lo llamó Lorenzo esta vez y siguió encendido en su club: mete presión para el Mundial 2026**: [Link](https://www.semana.com/deportes/articulo/no-lo-llamo-lorenzo-esta-vez-y-siguio-encendido-en-su-club-mete-presion-para-el-mundial-2026/202553/)
 - **Leyenda del Atlético de Madrid elogió a ex Millonarios: "es especial"**: [Link](https://eldeportivo.com.co/colombianos-en-el-exterior/leyenda-del-atletico-de-madrid-elogio-a-ex-millonarios-es-especial/)
-
-
-### www.america tv (N/A, 22/10/2025 20:51 Lima)
-
-- **Programación de la Noche Blanquiazul 2025 de Alianza Lima: partidos, horarios y canal TV del cuadrangular de vóley**: [Link](https://www.infobae.com/peru/deportes/2025/10/22/programacion-de-la-noche-blanquiazul-2025-de-alianza-lima-partidos-horarios-y-canal-tv-del-cuadrangular-de-voley/)
-- **¡Vive la Noche Blanquiazul de Vóley en América TV y tvGO!**: [Link](https://www.americatv.com.pe/deportes/polideportivo/vive-noche-blanquiazul-voley-america-tv-y-tvgo-n451412)
-- **La FPV cedió a su petición: Alianza Lima confirmó cambio de horario en su partido debut de la Liga Peruana de Vóley**: [Link](https://depor.com/futbol-peruano/descentralizado/alianza-lima-fpv-aprobo-cambio-de-horario-en-duelo-frente-a-kazoku-no-peru-para-no-chocar-con-la-noche-blanquiazul-liga-peruana-de-voley-noticia/)
-
-
-### voto de confianza (N/A, 22/10/2025 20:51 Lima)
-
-- **Congreso otorgó voto de confianza al gabinete de Ernesto Álvarez con 79 votos a favor**: [Link](https://comunicaciones.congreso.gob.pe/noticias/congreso-otorgo-voto-de-confianza-al-gabinete-de-ernesto-alvarez-con-62-votos-a-favor/)
-- **Bancadas se pronuncian y piden a Ernesto Álvarez lucha frontal contra inseguridad ciudadana y no descuidar inversiones**: [Link](https://comunicaciones.congreso.gob.pe/noticias/bancadas-se-pronuncian-y-piden-a-ernesto-alvarez-lucha-frontal-contra-inseguridad-ciudadana-y-no-descuidar-inversiones/)
-- **Gobierno solicitará al Congreso facultades legislativas por 90 días por "situación crítica" de la inseguridad ciudadana**: [Link](https://rpp.pe/politica/congreso/gobierno-de-ernesto-alvarez-solicitara-facultades-legislativas-por-90-dias-para-combatir-inseguridad-ciudadana-noticia-1660554)
-
-
-### pachuca - tigres (N/A, 22/10/2025 20:51 Lima)
-
-- **Pachuca vs. Tigres, Liga MX: horario, canal de transmisión y dónde ver por Torneo Apertura**: [Link](https://elcomercio.pe/deporte-total/mexico/pachuca-vs-tigres-en-vivo-online-gratis-hoy-via-caliente-tv-fox-sports-futbol-libre-tv-tudn-amazon-prime-horarios-canales-y-donde-ver-partido-por-liga-mx-video-noticia/)
-- **Liga MX: Pachuca y Tigres se encuentran en la fecha 14**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-pachuca-y-tigres-se-encuentran-en-la-fecha-14-noticia-1660333)
-- **¿Por qué no juega Oussama Idrissi en Pachuca vs. Tigres UANL por la jornada 14 del Apertura 2025?**: [Link](https://bolavip.com/mx/ligamx/por-que-no-juega-oussama-idrissi-en-pachuca-vs-tigres-uanl-por-la-jornada-14-del-apertura-2025)
-
-
-### atlético nacional (N/A, 22/10/2025 20:51 Lima)
-
-- **Copa Betplay: Nacional derrota a Once Caldas y avanza a las semifinales**: [Link](https://espndeportes.espn.com/futbol/colombia/nota/_/id/15847139/copa-betplay-nacional-derrota-a-once-caldas-y-avanza-a-las-semifinales)
-- **Atlético Nacional vs. Once Caldas, Copa Colombia: horario, canal de transmisión y dónde ver por cuartos de final**: [Link](https://elcomercio.pe/deporte-total/colombia/atletico-nacional-vs-once-caldas-en-vivo-online-gratis-via-win-sports-futbol-libre-tv-y-fanatiz-horarios-canales-y-donde-ver-partido-por-copa-colombia-2025-video-noticia/)
-- **Atlético Nacional vs Once Caldas hoy: Resultado EN VIVO, minuto a minuto y goles del partido**: [Link](https://www.365scores.com/es/news/atletico-nacional-vs-once-copa-vivo/)
-
-
-### celtics - 76ers (N/A, 22/10/2025 20:51 Lima)
-
-- **HOW TO WATCH SIXERS-CELTS AND ‘INSIDE THE NBA’**: [Link](https://bvmsports.com/2025/10/22/how-to-watch-sixers-celts-and-inside-the-nba/)
-- **Dominick Barlow News: Starting in 76ers debut**: [Link](https://www.rotowire.com/basketball/headlines/dominick-barlow-news-starting-in-76ers-debut-500144)
-- **10/22 Game Preview: 76ers at Celtics**: [Link](https://www.nba.com/celtics/news/gamepreview-20251022-phibos)
-
-
-### conmebol (N/A, 22/10/2025 20:51 Lima)
-
-- **Universitario de Deportes es el primer club peruano clasificado a la Copa Libertadores 2026**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/universitario-de-deportes-es-el-primer-club-peruano-clasificado-a-la-copa-libertadores-2026-ultimas-noticia/)
-- **¡Saca cara por el Perú! Universitario es uno de los 10 equipos clasificados hasta ahora a la Copa Libertadores 2026**: [Link](https://rpp.pe/futbol/copa-libertadores/universitario-en-copa-libertadores-2025-estos-son-los-equipos-clasificados-hasta-ahora-noticia-1660358)
-- **Conmebol los aplaude: Universitario es el primer club peruano clasificado a la Copa Libertadores 2026**: [Link](https://depor.com/futbol-peruano/copa-libertadores/el-primer-club-peruano-la-conmebol-y-la-bienvenida-a-universitario-en-la-copa-libertadores-2026-noticia/)
-
-
-### alexander isak (N/A, 22/10/2025 15:27 Lima)
-
-- **Arsene Wenger shares his honest verdict on Alexander Isak’s start to life at Liverpool**: [Link](https://www.rousingthekop.com/2025/10/22/arsene-wenger-shares-his-honest-verdict-on-alexander-isaks-start-to-life-at-liverpool/)
-- **Former Liverpool player sums up issue with Arne Slot's team that fans 'don't want to say'**: [Link](https://www.liverpool.com/liverpool-fc-news/features/former-liverpool-player-sums-up-32725379)
-- **Patience, Not Panic: Isak and Wirtz Need Time to Shine**: [Link](https://worldfootballindex.com/2025/10/patience-not-panic-isak-and-wirtz-need-time-to-shine/)
-
-
-### chelsea fc (N/A, 22/10/2025 15:27 Lima)
-
-- **'Not playing Conference League' - Enzo Maresca slammed by Chelsea fans**: [Link](https://theprideoflondon.com/not-playing-conference-league-enzo-maresca-chelsea-fans)
-- **Weghorst left with blood pouring down head after collision... but laughs off 's*** Andy Carroll' chant from Chelsea fans**: [Link](https://www.thesun.co.uk/sport/37095149/wout-weghorst-blood-head-chant-chelsea-ajax/)
-- **Chelsea looking to end 30-year Ajax record as Blues prepare for Champions League clash**: [Link](https://www.thechelseachronicle.com/news/chelsea-looking-to-end-30-year-ajax-record-as-blues-prepare-for-champions-league-clash/)
-
-
-### atalanta vs slavia praha (N/A, 22/10/2025 15:27 Lima)
-
-- **UEFA Youth League: Atalanta 2-0 Slavia Praha**: [Link](https://en.atalanta.it/news/uefa-youth-league-atalanta-2-0-slavia-praha)
-- **Preview:Atalanta BC vs. Slavia Prague - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/atalanta-bc/champions-league/preview/atalanta-vs-slavia-prague-prediction-team-news-lineups_583975.html)
-- **Atalanta vs Slavia Praha: Predictions, Betting odds, Lineups, Preview**: [Link](https://www.coral.co.uk/en/news/match-preview-atalanta-slavia-praha-champions-league-gameweek-3/)
-
-
-### dušan vlahović (N/A, 22/10/2025 15:27 Lima)
-
-- **PSG-Linked Star Wanted by Barcelona, Tottenham Given €15M Price Tag**: [Link](https://psgtalk.com/2025/10/barcelona-tottenham-target-vlahovic-psg-transfer/)
-- **Serie A star striker prefers a move to Tottenham over Premier League rivals**: [Link](https://www.spurs-web.com/spurs-news/serie-a-star-striker-prefers-a-move-to-tottenham-over-premier-league-rivals/)
-- **Chelsea and Manchester United in battle for Serie A star**: [Link](https://onefootball.com/de/news/chelsea-and-manchester-united-in-battle-for-serie-a-star-41840997)
 
 
