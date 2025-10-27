@@ -1,3 +1,73 @@
+### luka dončić (N/A, 27/10/2025 15:24 Lima)
+
+- **Doncic sidelined with finger sprain, leg contusion**: [Link](https://www.espn.com/nba/story/_/id/46735044/doncic-least-1-week-finger-sprain-leg-contusion)
+- **Khobi Price: In light of the Lakers being without Luka …**: [Link](https://www.hoopshype.com/story/sports/nba/rumors/2025/10/26/khobi-price-in-light-of-the-lakers-being-without-luka/86921986007/)
+- **NBA World Reacts To Los Angeles Lakers Luka Doncic Announcement**: [Link](https://www.profootballnetwork.com/nba/nba-world-reacts-to-los-angeles-lakers-luka-doncic-announcement/)
+
+
+### colo colo (N/A, 27/10/2025 15:24 Lima)
+
+- **Colo Colo vs. Deportes Limache**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/colo-colo-vs-deportes-limache-en-vivo-hoy-gratis-por-campeonato-nacional-via-max-tnt-sports-futbol-libre-tv-a-que-hora-juegan-canal-que-transmite-y-donde-ver-online-por-internet-video-noticia/)
+- **Fernando Ortiz: «Jugar un lunes y en un estadio que no es el nuestro no es lo ideal, pero igual nuestra hinchada va a apoyar**: [Link](https://onefootball.com/de/news/fernando-ortiz-jugar-un-lunes-y-en-un-estadio-que-no-es-el-nuestro-no-es-lo-ideal-pero-igual-nuestra-hinchada-va-a-apoyar-41856896)
+- **Colo Colo se enfrenta a Limache con la clasificación a Copa Sudamericana como el único objetivo posible**: [Link](https://www.latercera.com/el-deportivo/noticia/colo-colo-se-enfrenta-a-limache-con-la-clasificacion-a-copa-sudamericana-como-el-unico-objetivo-posible/)
+
+
+### primera división (N/A, 27/10/2025 15:24 Lima)
+
+- **Parte médico de Carvajal**: [Link](https://www.realmadrid.com/es-ES/noticias/futbol/primer-equipo/partes-medicos/parte-medico-de-carvajal-27-10-2025)
+- **Carvajal, KO entre seis y diez semanas**: [Link](https://as.com/futbol/carvajal-ko-entre-seis-y-diez-semanas-f202510-n/)
+- **Carvajal, entre dos y tres meses de baja**: [Link](https://www.marca.com/futbol/real-madrid/2025/10/27/carvajal-dos-tres-meses-baja.html)
+
+
+### moreirense - porto (N/A, 27/10/2025 15:24 Lima)
+
+- **Vasco Botelho: “Podemos bater a forte pressão que o FC Porto faz”**: [Link](https://onefootball.com/de/news/vasco-botelho-podemos-bater-a-forte-pressao-que-o-fc-porto-faz-41861740)
+- **Hoje vai ser notícia**: [Link](https://tvi.iol.pt/noticias/hoje-vai-ser-noticia/fc-porto/hoje-vai-ser-noticia-176155200)
+- **Moreirense x Porto no Campeonato Português: onde assistir ao vivo, horário e escalação**: [Link](https://www.estadao.com.br/esportes/futebol/moreirense-x-porto-no-campeonato-portugues-onde-assistir-ao-vivo-horario-e-escalacao/)
+
+
+### real betis vs (N/A, 27/10/2025 15:24 Lima)
+
+- **'I have no doubt that Baena is a game-changer'**: [Link](https://www.besoccer.com/new/i-have-no-doubt-that-baena-is-a-game-changer-1378940)
+- **Simeone urges Atleti to improve ahead of Betis clash**: [Link](https://www.beinsports.com/en-nz/football/laliga/articles-video/simeone-urges-atleti-to-improve-ahead-of-betis-clash-2025-10-26)
+- **Pablo Barrios Rivas vs. Real Betis – Player props & odds to score a goal on October 27**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/10/27/pablo-barrios-rivas-soccer-player-props-10-27-2025/86924124007/)
+
+
+### real betis - atlético madrid (N/A, 27/10/2025 15:24 Lima)
+
+- **Betis - Atlético de Madrid, en directo: LaLiga EA Sports, en vivo**: [Link](https://as.com/futbol/primera/betis-atletico-de-madrid-en-directo-laliga-ea-sports-en-vivo-f202510-d/)
+- **Pellegrini-Simeone, toda una eternidad en la Liga**: [Link](https://elpais.com/deportes/futbol/2025-10-27/pellegrini-simeone-toda-una-eternidad-en-la-liga.html)
+- **Olybet: apuesta gratis hasta 10 euros para apostar en el partido Real Betis vs Atlético de Madrid + sorteo de entradas**: [Link](https://legalbet.es/bonos/olybet-apuesta-gratis-hasta-10-euros-para-apostar-en-el-partido-real-betis-vs-atletico-de-madrid-sorteo-de-entradas/)
+
+
+### porto vs (N/A, 27/10/2025 15:24 Lima)
+
+- **FC Porto vs. Rio Ave - Boxscore - February 22, 2026**: [Link](https://www.foxsports.com/soccer/primeria-liga-fc-porto-vs-rio-ave-feb-22-2026-game-boxscore-633801?tab=boxscore)
+- **Moreirense vs FC Porto Prediction: Will The Dragons Be The First Team To Come Away Unscathed?**: [Link](https://www.telecomasia.net/sports-betting/tips/football/portugal-primeira-liga/moreirense-vs-fc-porto-prediction-for-the-match-on-october-27-2025/)
+- **Botelho da Costa: “We’ll find space to hurt FC Porto”**: [Link](https://onefootball.com/pt-br/noticias/botelho-da-costa-well-find-space-to-hurt-fc-porto-41862114)
+
+
+### malmö - hammarby (N/A, 27/10/2025 15:24 Lima)
+
+- **Krossen: Utbuat på hemmaplan**: [Link](https://www.expressen.se/sport/fotboll/allsvenskan/bajen-kross-i-malmo--hemmalaget-utbuad/)
+- **Nattsvart för MFF – krossat och utbuat mot Hammarby: ”Utklassning”**: [Link](https://www.sverigesradio.se/artikel/nattsvart-for-mff-krossat-och-utbuat-mot-hammarby)
+- **Fotboll: Överlägset Hammarby bröt 17-årig svit – säkrade andraplatsen**: [Link](https://www.svt.se/sport/fotboll/overlagset-hammarby-brot-17-arig-svit-sakrade-andraplatsen)
+
+
+### barracas central - boca juniors (N/A, 27/10/2025 15:24 Lima)
+
+- **Boca vs. Barracas en vivo por Liga Argentina: horario, canal y dónde ver partido**: [Link](https://elcomercio.pe/deporte-total/argentina/boca-vs-barracas-central-en-vivo-hoy-gratis-por-liga-argentina-a-que-hora-juegan-canal-tv-y-donde-ver-partido-via-espn-premium-espn-disney-plus-futbol-libre-tv-video-noticia/)
+- **Tremendo golazo de Insúa para adelantar a Barracas Central contra Boca**: [Link](https://www.espn.com.ar/futbol/argentina/nota/_/id/15877356/video-gol-de-rodrigo-insua-barracas-central-vs-boca-marchesin)
+- **Con una bandera de Paredes el Estadio Claudio Tapia recibe a Boca**: [Link](https://www.ole.com.ar/boca-juniors/bandera-paredes-estadio-claudio-tapia-recibe-boca_3_5NQCQeZ7ms.html)
+
+
+### césar hinostroza (N/A, 27/10/2025 15:24 Lima)
+
+- **Corte Suprema aprobó solicitar a Bélgica la extradición de César Hinostroza**: [Link](https://rpp.pe/politica/judiciales/corte-suprema-aprobo-solicitar-a-belgica-la-extradicion-de-cesar-hinostroza-noticia-1661085)
+- **🔵🔴⚽ ¡Hoy, domingo 26 de octubre en #RadioExitosa! A partir de las 11:00 a. m., no te pierdas la narración del partido Sporting Cristal vs. Chankas CYC, desde el Estadio Alberto Gallardo, correspondiente a la fecha 16 del Torneo Clausura 2025 de la Liga 1.**: [Link](https://www.facebook.com/Exitosanoticias/photos/-hoy-domingo-26-de-octubre-en-radioexitosa-a-partir-de-las-1100-a-m-no-te-pierda/1259294682900254/)
+- **El Tribunal Supremo de Perú aprueba solicitar la extradición del exjuez César Hinostroza desde Bélgica**: [Link](https://www.democrata.es/internacional/tribunal-supremo-peru-aprueba-solicitar-extradicion-exjuez-cesar-hinostroza-belgica/)
+
+
 ### gaziantep - fenerbahçe (N/A, 27/10/2025 11:32 Lima)
 
 - **Süper Lig'de Fenerbahçe, Gaziantep FK deplasmanında - Fenerbahçe - Spor Haberleri**: [Link](https://www.milliyet.com.tr/skorer/live-super-ligde-fenerbahce-gaziantep-fk-deplasmaninda-7471651)
@@ -953,75 +1023,5 @@ Sin noticias relacionadas disponibles.
 - **Laura Bozzo confesó que le fue infiel a Cristian Zuárez**: [Link](https://www.americatv.com.pe/noticias/espectaculos/laura-bozzo-se-confeso-y-dijo-que-le-fue-infiel-cristian-zuarez-n512265)
 - **Laura Bozzo confesó que le fue infiel a su expareja 24 años menor por error**: [Link](https://www.mega.cl/programas/el-internado/mejores-momentos/205094-laura-bozzo-confeso-fue-infiel-expareja-24-menor-error.html)
 - **Laura Bozzo admite entre risas que fue infiel a Cristian Zuárez por un rumor sin fundamento: “Le puse los cuernos, pero por si acaso”**: [Link](https://www.infobae.com/peru/2025/10/24/laura-bozzo-admite-entre-risas-que-fue-infiel-a-cristian-zuarez-por-un-rumor-sin-fundamento-le-puse-los-cuernos-pero-por-si-acaso/)
-
-
-### paris vs (N/A, 24/10/2025 15:26 Lima)
-
-- **"Des retombées économiques estimées à 4 millions d'euros", un marathon rentable pour le territoire... mais aussi pour l'organisateur**: [Link](https://france3-regions.franceinfo.fr/occitanie/haute-garonne/toulouse/des-retombees-economiques-estimees-a-4-millions-d-euros-un-marathon-rentable-pour-le-territoire-mais-aussi-pour-l-organisateur-3238435.html)
-- **Marathon de Toulouse : rues fermées, parkings inaccessibles, métro à l'arrêt, les perturbations à prévoir**: [Link](https://lopinion.com/articles/actualite/30842_marathon-toulouse-rues-parkings-metro-perturbations)
-- **Courses, ambiance, perturbations : ce qu’il faut savoir sur le Marathon de Toulouse 2025**: [Link](https://www.lejournaltoulousain.fr/occitanie/haute-garonne/toulouse/courses-ambiance-perturbations-faut-savoir-marathon-de-toulouse-2025-342700/)
-
-
-### paris fc - nantes (N/A, 24/10/2025 15:26 Lima)
-
-- **EN DIRECT - Paris FC-Nantes : un coup de génie d’Abline donne l’avantage aux Canaris**: [Link](https://www.lefigaro.fr/sports/football/live/ligue-1/2025/2568511/paris-fc-nantes)
-- **PRONOS PARIS RMC Le pari foot de Jérôme Rothen et Lionel Charbonnier du 24 octobre – L1**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-foot-de-jerome-rothen-et-lionel-charbonnier-du-24-octobre-l1_AN-202510240672.html)
-- **Ligue 1 : Matthis Abline ouvre son compteur cette saison avec un chef d'oeuvre face au Paris FC ! (vidéo)**: [Link](https://madeinfoot.ouest-france.fr/infos/article-ligue-1-matthis-abline-ouvre-son-compteur-cette-saison-avec-un-chef-d-oeuvre-face-au-paris-fc-video-500421.html)
-
-
-### primera división de arabia saudita (N/A, 24/10/2025 15:26 Lima)
-
-- **Al Nassr vs. Al Hazm: horarios y canales para ver Saudi Pro League**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/al-nassr-vs-al-hazm-en-vivo-gratis-hoy-via-futbol-libre-tv-con-cristiano-ronaldo-horarios-canales-tv-y-donde-ver-partido-por-saudi-pro-league-video-noticia/)
-- **Al Hazm vs Al Nassr: cómo ver el partido por TV y streaming, últimas noticias y pronóstico**: [Link](https://www.si.com/es-us/futbol/al-hazm-vs-al-nassr-tv-streaming-25-10-2025)
-- **Al Hazm vs Al Nassr: pronósticos, cuotas, transmisión y datos para apostar!**: [Link](https://www.apwin.com/es/pronosticos/al-hazm-vs-al-nassr-pronostico-saudita-professional-league-25-10-2025/)
-
-
-### turkish airlines euroleague (N/A, 24/10/2025 15:26 Lima)
-
-- **Six Feet and Under Club: Carsen Edwards**: [Link](https://www.euroleaguebasketball.net/en/euroleague/videos/six-feet-and-under-club-carsen-edwards/)
-- **Israeli basketball clubs to resume hosting EuroLeague games on December 1**: [Link](https://www.aljazeera.com/sports/2025/10/21/israeli-basketball-clubs-to-resume-hosting-euroleague-games-on-december-1)
-- **Fenerbahce and Efes’ joint statement on decision about Israel**: [Link](https://www.eurohoops.net/en/euroleague/1884111/fenerbahce-and-efes-joint-statement-on-decision-about-israel/)
-
-
-### españa - suecia (N/A, 24/10/2025 15:26 Lima)
-
-- **España - Suecia en directo: semifinales de la UEFA Nations League hoy en vivo**: [Link](https://as.com/futbol/femenino/espana-suecia-en-directo-semifinales-de-la-uefa-nations-league-hoy-en-vivo-f202510-d/)
-- **España - Suecia en directo | Semifinales Nations League Femenina hoy en vivo**: [Link](https://www.marca.com/futbol/uefa-nations-league-femenina/espana-suecia/2025/10/24/01_01122_20251024_7649_6246-directo.html)
-- **VÍDEO | Las lágrimas ejemplares de Mapi León al volver con España tras 1.192 días: "He renacido"**: [Link](https://espanol.eurosport.com/futbol/uefa-women-s-nations-league/2025/video-mapi-leon-lagrimas-sentimiento-vuelta-espana-ave-fenix-he-renacido_sto23234240/story.shtml)
-
-
-### milan vs (N/A, 24/10/2025 15:26 Lima)
-
-- **CM: Meeting history – De Winter set to show progression against former coach**: [Link](https://sempremilan.com/de-winter-show-progression-former-coach)
-- **Allegri sets minimum points target for Milan’s Champions League qualification**: [Link](https://football-italia.net/allegri-minimum-milan-points-target-ucl/)
-- **AC MILAN v PISA: THE OFFICIAL LINE-UPS**: [Link](https://sports.yahoo.com/article/ac-milan-v-pisa-official-173500760.html)
-
-
-### bayern - olympiacos (N/A, 24/10/2025 15:26 Lima)
-
-- **Statements in view of the game against Bayern Munich**: [Link](https://www.olympiacosbc.gr/en/news-en/latest-news-en/11566-statements-in-view-of-the-game-against-bayern-munich.html)
-- **FC Bayern vs. Olympiacos: Key Match Insights You Need to Know**: [Link](https://emegypt.net/1021027)
-- **FC Bayern vs. Olympiacos: Essential Match Details You Should Know**: [Link](https://www.el-balad.com/6743643)
-
-
-### real sociedad - sevilla (N/A, 24/10/2025 15:26 Lima)
-
-- **Real Sociedad - Sevilla en directo: LaLiga EA Sports hoy, en vivo**: [Link](https://as.com/futbol/primera/real-sociedad-sevilla-en-directo-laliga-ea-sports-hoy-en-vivo-f202510-d/)
-- **Real Sociedad - Sevilla, en directo | LaLiga EA Sports hoy en vivo**: [Link](https://www.marca.com/futbol/laliga-ea-sports/real-sociedad-sevilla/2025/10/24/01_0101_20251024_188_179-directo.html)
-- **Sevilla visita a Real Sociedad por la fecha 10 de LaLiga**: [Link](https://www.espn.com.ar/futbol/espana/nota/_/id/15852782/real-sociedad-vs-sevilla-fecha-10-laliga-alexis-sanchez-fecha-hora-tv-en-vivo)
-
-
-### real sociedad vs sevilla (N/A, 24/10/2025 11:30 Lima)
-
-- **Sevilla visita a Real Sociedad por la fecha 10 de LaLiga**: [Link](https://www.espn.com.pe/futbol/espana/nota/_/id/15852782/real-sociedad-vs-sevilla-fecha-10-laliga-alexis-sanchez-fecha-hora-tv-en-vivo)
-- **LaLiga EA Sports: Sevilla visita a Real Sociedad por la fecha 10**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-sevilla-visita-a-real-sociedad-por-la-fecha-10-noticia-1660611)
-- **Pronóstico Real Sociedad - Sevilla. LaLiga | 24/10/2025**: [Link](https://gainblers.com/pe/pronosticos/futbol/espana/liga-primera-division/pronostico-real-sociedad-sevilla-24-10-2025/)
-
-
-### werder bremen (N/A, 24/10/2025 11:30 Lima)
-
-- **„Ich bin innerlich unter Strom“: Ruhepol gegen Seitenlinien-Tiger: Werder gegen Union bietet auch ein Duell der Coaches**: [Link](https://www.deichstube.de/news/werder-bremen-union-berlin-auch-coach-duell-ruhepol-horst-steffen-gegen-seitenlinien-tiger-steffen-baumgart-bundesliga-heimspiel-94004125.html)
-- **Union-Kapitän Trimmel droht Gelb-Sperre, ausgerechnet Schiri Schlager pfeift**: [Link](https://www.berliner-kurier.de/union/union-kapitaen-trimmel-droht-gelb-sperre-ausgerechnet-schiri-schlager-pfeift-li.10002312)
-- **Werder Bremen: Der Ex kehrt zurück: Vorsicht vor Berlin-Blitz Burke!**: [Link](https://www.bild.de/sport/fussball/werder-bremen-der-ex-kehrt-zurueck-vorsicht-vor-berlin-blitz-burke-68fa02328578985b5d13245b)
 
 
