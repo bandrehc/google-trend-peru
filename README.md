@@ -1,3 +1,31 @@
+### samsung (N/A, 27/10/2025 03:33 Lima)
+
+- **Samsung Galaxy S26 Ultra Release Date: New Details Update The Schedule**: [Link](https://www.forbes.com/sites/ewanspence/2025/10/24/samsung-galaxy-s26-ultra-release-date-galaxy-unpacked-galaxy-s26-edge-new-galaxy-s26/)
+- **If the Galaxy S26 leaks are true, I'd tell small phone fans to buy this instead**: [Link](https://www.androidauthority.com/samsung-galaxy-s26-leaks-true-buy-this-phone-3608871/)
+- **Galaxy S26, iPhone 18 to arrive months later than expected: is this the new normal?**: [Link](https://www.phonearena.com/news/galaxy-s26-iphone-18-to-arrive-months-later-is-this-the-new-normal_id175140)
+
+
+### saga (N/A, 27/10/2025 03:33 Lima)
+
+- **Travel Saga Tourism Brings Back Exciting New Year 2026 Celebration Packages in Dubai**: [Link](https://www.tribuneindia.com/news/business/travel-saga-tourism-brings-back-exciting-new-year-2026-celebration-packages-in-dubai/)
+- **BNB Travel and Tours launches new year desert safari dune buggy packages in Dubai**: [Link](https://gulfnews.com/gn-focus/bnb-travel-and-tours-launches-new-year-desert-safari-dune-buggy-packages-in-dubai-1.500317181)
+- **Welcome 2026 with Style: New Year Party Packages in Dubai’s Glittering Skyline**: [Link](https://www.travelandtourworld.com/news/article/welcome-2026-with-style-new-year-party-packages-in-dubais-glittering-skyline/)
+
+
+### jetsmart (N/A, 27/10/2025 03:33 Lima)
+
+- **Una aerolínea low cost amplía su red aérea: nuevas rutas desde Argentina hacia Brasil, Colombia y Ecuador**: [Link](https://www.lavoz.com.ar/negocios/una-aerolinea-low-cost-amplia-su-red-aerea-nuevas-rutas-desde-argentina-hacia-brasil-colombia-y-ecuador/)
+- **JetSmart suma frecuencias internacionales**: [Link](https://aviationclubcenter.com/index.php/2025/10/26/jetsmart-suma-frecuencias-internacionales/)
+- **“La región tiene espacio para el modelo ultra-low-cost”: una entrevista con Estuardo Ortiz, CEO de JetSMART**: [Link](https://www.aviacionline.com/la-region-tiene-espacio-para-el-modelo-ultra-low-cost-una-entrevista-con-estuardo-ortiz-ceo-de-jetsmart)
+
+
+### lucinda vasquez (N/A, 27/10/2025 03:33 Lima)
+
+- **Congresista Lucinda Vásquez forzó a sus trabajadores parlamentarios a realizarle pedicura y cocinarle en horas de trabajo**: [Link](https://www.infobae.com/peru/2025/10/27/congresista-lucinda-vasquez-forzo-a-sus-trabajadores-parlamentarios-a-realizarle-pedicura-y-cocinarle-en-horas-de-trabajo/)
+- **Asesor de congresista Lucinda Vásquez es captado cortando uñas de los pies a parlamentaria en horario laboral**: [Link](https://rpp.pe/politica/congreso/asesor-de-congresista-lucinda-vasquez-es-captado-cortando-unas-de-los-pies-a-parlamentaria-en-horario-laboral-noticia-1661118)
+- **Denuncian que congresista Lucinda Vásquez utiliza a asesores para cortarse las uñas y prepararle el desayuno**: [Link](https://elcomercio.pe/politica/congreso/lucinda-vasquez-denuncian-que-congresista-utiliza-a-asesores-para-cortarse-las-unas-y-prepararle-el-desayuno-ultimas-noticia/)
+
+
 ### latam (N/A, 26/10/2025 23:33 Lima)
 
 - **LAP posterga cobro de TUUA internacional en el Jorge Chávez hasta el 7 de diciembre**: [Link](https://elperuano.pe/noticia/281608-lap-posterga-cobro-de-tuua-internacional-en-el-jorge-chavez-hasta-el-7-de-diciembre)
@@ -997,33 +1025,5 @@ Sin noticias relacionadas disponibles.
 - **NBA stars and mafia among dozens arrested in illegal gambling crackdown**: [Link](https://www.bbc.com/news/articles/cvgmpp3x5x5o)
 - **Portland Trail Blazers coach Chauncey Billups charged in illegal poker operation tied to Mafia**: [Link](https://abcnews.go.com/US/miami-heat-terry-rozier-charged-nba-betting/story?id=126789368)
 - **Damon Jones alleged to have traded info on LeBron James missing 2023 Lakers game - The Athletic**: [Link](https://www.nytimes.com/athletic/6743596/2025/10/23/lebon-james-damon-jones-nba-gambling-investigation/)
-
-
-### warriors vs (N/A, 24/10/2025 03:31 Lima)
-
-- **Game Thread: Denver Nuggets vs Golden State Warriors. October 23rd, 2025.**: [Link](https://bvmsports.com/2025/10/23/game-thread-denver-nuggets-vs-golden-state-warriors-october-23rd-2025/)
-- **Where to watch Nuggets vs. Warriors free stream today**: [Link](https://www.masslive.com/tv/2025/10/where-to-watch-nuggets-vs-warriors-free-stream-today.html)
-- **Golden State Warriors Top Dunks vs. Denver Nuggets**: [Link](https://www.nba.com/warriors/videos/golden-state-warriors-top-dunks-vs-denver-nuggets-20)
-
-
-### tabla acumulada liga 1 2025 (N/A, 24/10/2025 03:31 Lima)
-
-- **Así se jugará los playoffs rumbo a la Libertadores 2026 si hoy terminara el Torneo Clausura**: [Link](https://libero.pe/futbol-peruano/liga-1/2025/10/21/liga-1-asi-se-jugarian-playoffs-rumbo-copa-libertadores-2025-hoy-terminara-torneo-clausura-703542)
-- **Cambio de reglas para definir al subcampeón de la Liga 1 en este 2025**: [Link](https://www.futbolperuano.com/liga-1/noticias/la-novedosa-definicion-del-subcampeon-de-la-liga-1-2025-544411)
-- **De ser Perú 2: ¿Alianza Lima iría a fase de grupos de la Copa Libertadores 2026?**: [Link](https://www.futbolperuano.com/liga-1/noticias/de-acabar-como-peru-2-alianza-lima-iria-a-la-fase-de-grupos-de-la-copa-libertadores-2026-544307)
-
-
-### club alianza lima (N/A, 24/10/2025 03:31 Lima)
-
-- **“El año que viene debemos salir campeones”: la promesa de Gorosito tras renovar al 2026, su idea sobre Paolo y Barcos y un mea culpa por un año sin títulos**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/alianza-lima-el-ano-que-viene-debemos-salir-campeones-la-promesa-de-nestor-gorosito-tras-renovar-al-2026-su-idea-sobre-paolo-y-barcos-y-un-mea-culpa-por-un-ano-sin-titulos-tlcnota-noticia/)
-- **Néstor Gorosito renueva con Alianza Lima hasta 2026**: [Link](https://espndeportes.espn.com/futbol/peru/nota/_/id/15784312/nestor-pipo-gorosito-renovo-contrato-con-alianza-lima)
-- **Gorosito lanzó picante mensaje tras renovar en Alianza Lima**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/gorosito-lanzo-picante-mensaje-renovar-alianza-lima-n451455)
-
-
-### barcelona vs real madrid (N/A, 23/10/2025 23:27 Lima)
-
-- **¿Qué equipo crees que llega mejor al Clásico: Real Madrid o Barcelona?**: [Link](https://as.com/futbol/primera/que-equipo-crees-que-llega-mejor-al-clasico-real-madrid-o-barcelona-f202510-d/)
-- **Hará falta más en el Clásico**: [Link](https://www.marca.com/futbol/real-madrid/2025/10/22/insuficiente-clasico.html)
-- **A qué hora juega Real Madrid vs. Barcelona El Clásico de España**: [Link](https://www.espn.com.ar/futbol/espana/nota/_/id/15855279/real-madrid-vs-barcelona-a-que-hora-juegan-el-clasico-de-espana-laliga)
 
 
