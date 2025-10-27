@@ -1,3 +1,73 @@
+### san diego fc (N/A, 26/10/2025 21:02 Lima)
+
+- **For San Diego FC, a historic inaugural MLS season is equal parts philosophy and community**: [Link](https://www.theguardian.com/football/2025/oct/25/san-diego-fc-mls-playoffs)
+- **San Diego - Portland live**: [Link](https://www.marca.com/en/soccer/major-league-soccer/san-diego-portland/2025/10/27/01_0164_20251027_21280_1581-live.html)
+- **Playoffs return to Mission Valley — and this time, it’s San Diego FC’s turn**: [Link](https://eastvillagetimes.com/playoffs-return-to-mission-valley-and-this-time-its-san-diego-fcs-turn/)
+
+
+### toluca - pachuca (N/A, 26/10/2025 21:02 Lima)
+
+- **Toluca vs. Pachuca en vivo, Liga MX: horario, canal TV y dónde ver por Torneo Apertura**: [Link](https://elcomercio.pe/deporte-total/mexico/toluca-vs-pachuca-en-vivo-hoy-gratis-por-liga-mx-via-caliente-tv-amazon-prime-vix-futbol-libre-tv-a-que-hora-juegan-canal-de-transmision-y-donde-ver-online-video-noticia/)
+- **Liga MX: Toluca FC quiere mantenerse en la punta del campeonato**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-toluca-fc-quiere-mantenerse-en-la-punta-del-campeonato-noticia-1660999)
+- **Toluca recibe a Pachuca en el Infierno**: [Link](https://oem.com.mx/elsoldetoluca/deportes/toluca-recibe-a-pachuca-en-el-infierno-26467963)
+
+
+### kings - lakers (N/A, 26/10/2025 21:02 Lima)
+
+- **Sacramento Kings vs. Los Angeles Lakers - October 26, 2025 | Live Scores, Updates, Odds, Injury News and Recaps**: [Link](https://beritasriwijaya.co.id/sacramento-kings-vs-los-angeles-lakers-october-26-2025-live-scores-updates-odds-injury-news-and-recaps/)
+- **Lakers vs Kings Prediction, Picks & Odds for Tonight’s NBA Game**: [Link](https://sports.yahoo.com/article/lakers-vs-kings-prediction-picks-190000424.html)
+- **Kings vs. Lakers: Beat LA**: [Link](https://kingsherald.com/articles/kings-vs-lakers-beat-la/)
+
+
+### santos - querétaro (N/A, 26/10/2025 21:02 Lima)
+
+- **Santos vs. Queretaro (26 de Oct., 2025) Resultados en Vivo**: [Link](https://espndeportes.espn.com/futbol/partido/_/juegoId/736747)
+- **Santos Laguna vence 3-1 a Querétaro y se mete al Play-In**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/15874628/santos-vs-queretaro-liga-mx-apertura-2025-clasificacion-play-in)
+- **Tenemos que jugar los siguientes 3 partidos como si fueran finales: Lucas Ariel Rodríguez**: [Link](https://codiceinformativo.com/2025/10/tenemos-que-jugar-los-siguientes-3-partidos-como-si-fueran-finales-lucas-ariel-rodriguez/)
+
+
+### alianza vs river voley (N/A, 26/10/2025 21:02 Lima)
+
+- **Alianza Lima vs River Plate vóley EN VIVO HOY: punto a punto del partido por la Noche Blanquiazul 2025**: [Link](https://www.infobae.com/peru/deportes/2025/10/26/alianza-lima-vs-river-plate-en-vivo-hoy-canal-america-television-noche-blanquiazul-2025-resumen-resultado/)
+- **Debut por lo alto: Alianza Lima venció 3-0 a Kazoku por la fecha 1 de la Liga Peruana de Vóley 2025**: [Link](https://rpp.pe/voley/mas-voley/alianza-lima-vs-kazoku-no-peru-en-vivo-a-que-hora-inicia-y-como-ver-fecha-1-liga-peruana-de-voley-2025-26-via-latina-gratis-voley-en-vivo-noticia-1660985)
+- **¡Sigue la Noche Blanquiazul Vóley Apuesta Total 2025 EN VIVO por América TV!**: [Link](https://www.americatv.com.pe/deportes/polideportivo/vive-noche-blanquiazul-voley-america-tv-y-tvgo-n451412)
+
+
+### atlético nacional - medellín (N/A, 26/10/2025 21:02 Lima)
+
+- **Liga Betplay: Nacional golea al Medellín y da un paso firme hacia los cuadrangulares**: [Link](https://www.espn.com.ar/futbol/colombia/nota/_/id/15860430/liga-betplay-nacional-golea-al-medellin-y-da-un-paso-firme-hacia-los-cuadrangulares)
+- **Qué canal pasa Atlético Nacional vs DIM hoy: dónde ver el partido gratis y en vivo de la Liga BetPlay**: [Link](https://www.365scores.com/es/news/atletico-nacional-vs-dim-donde-ver-vivo/)
+- **Atlético Nacional vs. Independiente Medellín - EN VIVO: ya lo gana el Verdolaga con gol de Marino Hinestroza**: [Link](https://www.infobae.com/colombia/deportes/2025/10/26/atletico-nacional-vs-independiente-medellin-en-vivo-clasico-paisa-de-la-fecha-17-de-la-liga-betplay-ii-2025/)
+
+
+### whitecaps - fc dallas (N/A, 26/10/2025 21:02 Lima)
+
+- **MLS Cup Playoffs: FC Dallas falls 3-0 to Vancouver Whitecaps**: [Link](https://www.bigdsoccer.com/fc-dallas-vs-vancouver-whitecaps-2025-playoffs-recap-scores-match-one/)
+- **Whitecaps FC dominate Dallas to win playoff Game 1 in Vancouver**: [Link](https://nelsonstar.com/2025/10/26/whitecaps-fc-dominate-dallas-to-win-playoff-game-1-in-vancouver/)
+- **Thomas Muller scores, Vancouver Whitecaps open MLS playoffs with 3-0 victory over FC Dallas**: [Link](https://www.tsn.ca/soccer/article/muller-scores-whitecaps-open-mls-playoffs-with-victory-over-fc-dallas/)
+
+
+### palmeiras - cruzeiro (N/A, 26/10/2025 21:02 Lima)
+
+- **Cruzeiro enche setor visitante do Allianz Parque em jogo contra o Palmeiras pelo Brasileiro**: [Link](https://www.centraldatoca.com.br/torcida/2025/10/26/cruzeiro-enche-setor-visitante-do-allianz-parque-em-jogo-contra-o-palmeiras-pelo-brasileiro/)
+- **PC de Oliveira diz que Gustavo Gómez deveria ter sido expulso contra o Cruzeiro no Allianz Parque**: [Link](https://br.bolavip.com/campeonato-brasileirao/pc-de-oliveira-diz-que-gustavo-gomez-deveria-ter-sido-expulso-contra-o-cruzeiro-no-allianz-parque)
+- **Roger Flores vê erro grave da arbitragem em Palmeiras x Cruzeiro: 'Não entendi'**: [Link](https://www.otempo.com.br/sports/fora-de-campo/2025/10/26/roger-flores-ve-erro-grave-da-arbitragem-em-palmeiras-x-cruzeiro-nao-entendi)
+
+
+### marathon (N/A, 26/10/2025 21:02 Lima)
+
+- **Bundle up runners! DC region will be chilly during Marine Corps Marathon**: [Link](https://wtop.com/weather-news/2025/10/bundle-up-runners-dc-region-will-be-chilly-during-marine-corps-marathon/)
+- **APTOPIX MarineCorpsMarathon**: [Link](https://www.wvnews.com/newsfeed/us/aptopix-marinecorpsmarathon/image_e6d51009-03eb-541b-9e70-2cedb0ebc716.html)
+- **Dumfries local Kyle King wins men's race for 3rd time in Marine Corps Marathon**: [Link](https://www.nbcwashington.com/video/news/local/dumfries-local-kyle-king-wins-mens-race-for-3rd-time-in-marine-corps-marathon/4006984/)
+
+
+### sebastián britos (N/A, 26/10/2025 21:02 Lima)
+
+- **Sebastián Britos es expulsado en el Universitario vs ADT | VIDEO**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/sebastian-britos-expulsado-hoy-en-el-universitario-vs-adt-por-torneo-clausura-de-liga-1-video-noticia/)
+- **Inesperada decisión de Kevin Ortega: tarjeta roja para Britos en Universitario vs. ADT**: [Link](https://depor.com/futbol-peruano/descentralizado/tarjeta-roja-para-sebastian-britos-universitario-vs-adt-ver-expulsion-al-portero-en-tarma-liga-1-video-noticia/)
+- **Insólita expulsión de Sebastián Britos por polémico gesto en Universitario vs ADT por el Torneo Clausura de la Liga 1 2025**: [Link](https://www.infobae.com/peru/deportes/2025/10/26/insolita-expulsion-de-sebastian-britos-por-polemico-gesto-en-universitario-vs-adt-por-el-torneo-clausura-de-la-liga-1-2025/)
+
+
 ### moquegua (N/A, 26/10/2025 15:25 Lima)
 
 - **Temblor en Perú, hoy 26 de octubre: magnitud y epicentro del sismo según IGP**: [Link](https://rpp.pe/lima/desastres-naturales/temblor-en-peru-hoy-25-de-octubre-magnitud-y-epicentro-del-sismo-segun-igp-live-3016)
@@ -954,73 +1024,5 @@ Sin noticias relacionadas disponibles.
 - **Franco Velazco: el partido contra Cristal, su fe en el tricampeonato y la respuesta a Gorosito**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/universitario-franco-velazco-sobre-partido-ante-sporting-cristal-su-fe-en-el-tricampeonato-y-la-respuesta-a-nestor-gorosito-video-noticia/)
 - **Universitario rumbo al tricampeonato: ¿qué resultados necesita para ganar el Torneo Clausura 2025?**: [Link](https://www.infobae.com/peru/deportes/2025/10/21/universitario-rumbo-al-tricampeonato-que-resultados-necesita-para-ganar-el-torneo-clausura-2025/)
 - **Universitario ya no podrá ser tricampeón de la Liga 1 a costa de Sporting Cristal**: [Link](https://espndeportes.espn.com/futbol/peru/nota/_/id/15817244/universitario-ya-no-podra-ser-tricampeon-de-la-liga-1-a-costa-de-sporting-cristal)
-
-
-### liga1 (N/A, 23/10/2025 20:47 Lima)
-
-- **Néstor Gorosito renueva con Alianza Lima hasta 2026**: [Link](https://espndeportes.espn.com/futbol/peru/nota/_/id/15784312/nestor-pipo-gorosito-renovo-contrato-con-alianza-lima)
-- **Gorosito lanzó picante mensaje tras renovar en Alianza Lima**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/gorosito-lanzo-picante-mensaje-renovar-alianza-lima-n451455)
-- **¿El ‘Tunche’ Rivera es el culpable de que Alianza Lima no ganara el Apertura? Esto reveló ‘Pipo’ Gorosito sobre el delantero merengue: “Por eso ellos...”**: [Link](https://elcomercio.pe/respuestas/deportes/el-tunche-rivera-es-el-culpable-de-que-alianza-lima-no-ganara-el-apertura-esto-revelo-pipo-gorosito-sobre-el-delantero-merengue-por-eso-ellos-tdpe-noticia/)
-
-
-### pelota libre (N/A, 23/10/2025 20:47 Lima)
-
-- **En 30 minutos: Lanús vence 2-0 a U. de Chile en Santiago por Copa Sudamericana | VIDEO**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/goles-de-u-de-chile-vs-lanus-por-semifinal-de-la-copa-sudamericana-gol-de-rodrigo-castillo-video-noticia/)
-- **Di Yorio descontó ante Lanús y le dio vida a Universidad de Chile**: [Link](https://espndeportes.espn.com/futbol/copa-sudamericana/nota/_/id/15857034/video-di-yorio-desconto-ante-lanus-y-le-dio-vida-a-universidad-de-chile)
-- **Castillo puso arriba a Lanús ante U de Chile en una ráfaga por la Sudamericana**: [Link](https://www.espn.com.ar/futbol/copa-sudamericana/nota/_/id/15856862/video-castillo-puso-arriba-a-lanus-ante-u-de-chile-con-un-golazo-por-la-sudamericana)
-
-
-### u (N/A, 23/10/2025 20:47 Lima)
-
-- **All but 2 Universities Decline a Trump Offer of Preferential Funding**: [Link](https://www.nytimes.com/2025/10/20/us/politics/universities-funding-compact.html)
-- **As deadline for Trump’s colleges compact looms, schools signal dissent**: [Link](https://www.npr.org/2025/10/20/nx-s1-5579618/trump-college-university-compact-uva-mit-dartmouth)
-- **Another university declines Trump’s offer for priority funding**: [Link](https://www.pbs.org/newshour/show/another-university-declines-trumps-offer-for-priority-funding)
-
-
-### golperu (N/A, 23/10/2025 20:47 Lima)
-
-- **Universitario le ganó agónicamente 2-1 a Ayacucho FC y se acerca cada vez más al tricampeonato**: [Link](https://www.espn.com.pe/futbol/peru/nota/_/id/15825932/universitario-vs-ayacucho-fc-por-liga1-equipo-fecha-hora-y-tv-en-vivo)
-- **Franco Velazco: “La garra está en el ADN de la ‘U’. Estábamos con un jugador menos y, pese a ello, logramos el triunfo en un partido muy difícil”**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/franco-velazco-la-garra-esta-en-el-adn-del-jugador-de-la-u-estabamos-con-un-jugador-menos-y-pese-a-ello-logramos-el-gol-del-triunfo-en-un-partido-muy-dificil-liga-1-te-apuesto-ultimas-noticia/)
-- **Rivera habló de su agónico gol y le dejó mensaje a Cristal**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/jose-rivera-hablo-su-agonico-gol-y-le-dejo-mensaje-cristal-n451420)
-
-
-### directv (N/A, 23/10/2025 20:47 Lima)
-
-Sin noticias relacionadas disponibles.
-
-
-### belgrano - argentinos jrs. (N/A, 23/10/2025 20:47 Lima)
-
-- **Golazo de Zelarayán para adelantar a Belgrano ante Argentinos Juniors**: [Link](https://www.espn.com.ar/futbol/argentina/nota/_/id/15857504/video-gol-de-lucas-zelarayan-belgrano-vs-argentinos-juniors-copa-argentina)
-- **Alberdi se mudó a Rosario: las fotos del éxodo de los hinchas de Belgrano**: [Link](https://www.cadena3.com/noticia/belgrano/alberdi-se-mudo-a-rosario-las-fotos-del-exodo-de-los-hinchas-de-belgrano_478024)
-- **Artime: "Cambiaría todo lo que viví en Belgrano por este partido"**: [Link](https://canalc.com.ar/artime-cambiaria-todo-lo-que-vivi-en-belgrano-por-este-partido/)
-
-
-### ldu quito - palmeiras (N/A, 23/10/2025 20:47 Lima)
-
-- **Liga de Quito - Palmeiras hoy, en vivo: Copa Libertadores en directo**: [Link](https://as.com/futbol/internacional/liga-de-quito-palmeiras-hoy-en-vivo-copa-libertadores-en-directo-f202510-d/)
-- **Quiñónez fabricó un penal y Alzugaray lo definió para el segundo de Liga ante Palmeiras**: [Link](https://www.espn.com.ar/futbol/copa-libertadores/nota/_/id/15857545/video-gol-liga-de-quito-palmeiras-lisandro-alzugaray-penal-libertadores)
-- **Gabriel Villamil selló un golazo para poner arriba a Liga de Quito ante Palmeiras en la Libertadores**: [Link](https://espndeportes.espn.com/futbol/copa-libertadores/nota/_/id/15857456/video-gol-liga-de-quito-palmeiras-gabriel-villamil-libertadores)
-
-
-### sporting cristal - universitario (N/A, 23/10/2025 20:47 Lima)
-
-- **Universitario visita a Sporting Cristal en busca de acercarse más hacia su tricampeonato**: [Link](https://www.espn.com.pe/futbol/peru/nota/_/id/15845373/universitario-vs-sporting-cristal-fecha-14-clausura-liga-1-de-peru-equipo-fecha-hora-y-tv-en-vivo)
-- **VER LIGA 1 MAX EN VIVO: Cristal-Universitario por DirecTV y Zapping TV**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/liga-1-max-en-vivo-gratis-futbol-libre-tv-cristal-vs-universitario-hoy-online-por-liga-1-video-noticia/)
-- **Alineaciones de Universitario vs Sporting Cristal HOY: posibles titulares para choque pendiente del Torneo Clausura 2025**: [Link](https://www.infobae.com/peru/deportes/2025/10/23/alineaciones-universitario-vs-sporting-cristal-equipos-titulares-partido-pendiente-fecha-14-torneo-clausura-liga-1-2025/)
-
-
-### palmeiras (N/A, 23/10/2025 20:47 Lima)
-
-- **Renata Ruel bate o martelo sobre lances polêmicos em LDU x Palmeiras**: [Link](https://www.lance.com.br/fora-de-campo/renata-ruel-bate-o-martelo-sobre-lances-polemicos-em-ldu-x-palmeiras.html)
-- **Libertadores: KTO tem R$10 em aposta grátis para LDU x Palmeiras**: [Link](https://www.terra.com.br/apostas/libertadores-kto-tem-r10-em-aposta-gratis-para-ldu-x-palmeiras,95ccaec550d69af1facd539f36cf7e86s8tomevn.html)
-- **Abel Ferreira prepara Palmeiras com 3 mudanças, e colocará Raphael Veiga, Emi Martínez e Murilo na equipe**: [Link](https://br.bolavip.com/palmeiras/abel-ferreira-prepara-palmeiras-com-3-mudancas-e-colocara-raphael-veiga-emi-martinez-e-murilo-na-equipe)
-
-
-### lille (N/A, 23/10/2025 15:25 Lima)
-
-- **Preview:Lille vs PAOK - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/lille/europa-league/preview/lille-vs-paok-prediction-team-news-lineups_584009.html)
-- **Lille predicted XI v PAOK Salonique: Hamza Igamane to start ahead of Olivier Giroud**: [Link](https://www.getfootballnewsfrance.com/2025/lille-predicted-xi-v-paok-salonique-hamza-igamane-to-start-ahead-of-olivier-giroud/)
-- **Guidance for fans travelling to Lille**: [Link](https://www.paokfc.gr/en/news/20251021-odigie-gia-tous-ekdromeis-sto-lille/)
 
 
