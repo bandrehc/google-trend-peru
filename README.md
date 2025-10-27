@@ -1,3 +1,72 @@
+### latam (N/A, 26/10/2025 23:33 Lima)
+
+- **LAP posterga cobro de TUUA internacional en el Jorge Chávez hasta el 7 de diciembre**: [Link](https://elperuano.pe/noticia/281608-lap-posterga-cobro-de-tuua-internacional-en-el-jorge-chavez-hasta-el-7-de-diciembre)
+- **Gobierno suspende cobro de nueva tarifa en aeropuerto Jorge Chávez tras críticas al TUUA**: [Link](https://caretas.pe/nacional/gobierno-suspende-cobro-de-nueva-tarifa-en-aeropuerto-jorge-chavez-tras-criticas-al-tuua/)
+- **Gremios de aerolíneas, turismo y comercio piden al Gobierno atender urgente el tema de la TUUA para conexiones internacionales**: [Link](https://elcomercio.pe/economia/peru/gremios-de-aerolineas-turismo-y-comercio-piden-al-gobierno-atender-urgente-el-cobro-de-la-tuua-para-conexiones-internacionales-noticia/)
+
+
+### lakers (N/A, 26/10/2025 23:33 Lima)
+
+- **Lakers' Gabe Vincent: Suffers ankle sprain**: [Link](https://beritasriwijaya.co.id/lakers-gabe-vincent-suffers-ankle-sprain/)
+- **Lakers Lose Another Starter Amid Luka Doncic Injury News**: [Link](https://athlonsports.com/nba/los-angeles-lakers/lakers-lose-another-starter-luka-doncic-injury-news-gabe-vincent)
+- **Injured Lakers Starter Ruled Out for Rest of Kings Showdown**: [Link](https://www.si.com/nba/lakers/onsi/news/injured-lakers-starter-ruled-out-for-rest-of-kings-showdown)
+
+
+### cyber (N/A, 26/10/2025 23:33 Lima)
+
+- **M&S ends IT service desk contract with Indian provider after cyber attack**: [Link](https://www.ft.com/content/289ec371-2ed4-425a-9bd0-c34e6db397ba)
+- **'Not due to cyber attack': TCS dismisses UK media report; reveals why Marks & Spencer didn't renew contra**: [Link](https://timesofindia.indiatimes.com/business/india-business/not-due-to-cyber-attack-tcs-dismisses-uk-media-report-reveals-why-marks-spencer-didnt-renew-contract/articleshow/124837333.cms)
+- **Marks & Spencer Cuts Ties with Tata Consultancy Services After ₹3,200 Crore Cyberattack Loss**: [Link](https://the420.in/marks-and-spencer-tcs-cyberattack-contract-termination-uk-india/)
+
+
+### nadeska widausky quien es (N/A, 26/10/2025 23:33 Lima)
+
+- **El Valor de la Verdad EN VIVO: Nadeska Widausky se confiesa sin filtros y promete sacudir el sillón rojo con su historia**: [Link](https://www.infobae.com/peru/2025/10/26/el-valor-de-la-verdad-en-vivo-nadeska-widausky-se-confiesa-sin-filtros-y-promete-sacudir-el-sillon-rojo-con-su-historia/)
+- **Nadeska Widausky en 'El valor de la verdad': todas sus confesiones sobre Jefferson Farfán, Christian Cueva, Gerald Oropeza y más**: [Link](https://rpp.pe/famosos/farandula/nadeska-widausky-en-el-valor-de-la-verdad-todas-sus-confesiones-sobre-jefferson-farfan-christian-cueva-gerald-oropeza-y-mas-noticia-1661120)
+- **Nadeska Widausky en ‘EVDLV’ EN VIVO: ¿Qué preguntas responderá?**: [Link](https://trome.com/espectaculos/tv/nadeska-widausky-en-el-valor-de-la-verdad-en-vivo-que-preguntas-respondera-y-en-que-plataformas-ver-el-estreno-de-evdlv-gerald-oropeza-edwin-sierra-video-fotos-farandula-noticia/)
+
+
+### kings league (N/A, 26/10/2025 23:33 Lima)
+
+- **Lamine Yamal humilla a Ibai Llanos tras ganar su primer "clásico" en la Kings League: "No pueden con nosotros"**: [Link](https://libero.pe/esports/2025/10/24/lamine-yamal-humilla-ibai-llanos-ganar-su-primer-clasico-en-kings-league-pueden-nosotros-kings-cup-spain-capital-cf-vs-porcinos-fc-1299528)
+- **Riyadh Season Kings League MENA Kicks Off with Intense Football Action**: [Link](https://www.spa.gov.sa/en/N2428101)
+
+
+### 3i atlas (N/A, 26/10/2025 23:33 Lima)
+
+- **The Imminent Solar Conjunction of 3I/ATLAS**: [Link](https://avi-loeb.medium.com/the-imminent-solar-conjunction-of-3i-atlas-264a6ccd441c)
+- **Comet 3I/ATLAS could soon shower NASA's Jupiter probe in charged particles.**: [Link](https://www.space.com/astronomy/comets/comet-3i-atlas-could-soon-shower-nasas-jupiter-probe-in-charged-particles-will-it-reveal-more-about-the-interstellar-invader)
+- **Manhattan-sized space object 3I/ATLAS has grown a tail — a possible sign of alien ‘maneuver’: Harvard scientist**: [Link](https://nypost.com/2025/10/25/world-news/manhattan-sized-interstellar-object-3i-atlas-has-grown-a-tail-as-it-approaches-the-sun-which-could-be-sign-of-a-maneuver/)
+
+
+### san luis vs (N/A, 26/10/2025 23:33 Lima)
+
+- **Necaxa frustra al Atlético de San Luis en memorable partido**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/15875105/altetico-de-san-luis-vs-necaxa-resumen-goles-posiciones-play-in-liga-mx)
+- **Liga MX: Necaxa se enfrentará a Atl. de San Luis por la fecha 15**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-necaxa-se-enfrentara-a-atl-de-san-luis-por-la-fecha-15-noticia-1660998)
+- **⚽ ¡No va gratis! Te decimos a qué HORA y en DÓNDE VER a Atlético de San Luis vs Necaxa en la Liga MX ⛪🆚⚡**: [Link](https://www.facebook.com/MilenioDiario/photos/-no-va-gratiste-decimos-a-qu%C3%A9-hora-y-en-d%C3%B3nde-ver-a-atl%C3%A9tico-de-san-luis-vs-neca/1289153056575496/)
+
+
+### lucinda vásquez (N/A, 26/10/2025 23:33 Lima)
+
+- **Asesor de congresista Lucinda Vásquez es captado cortando uñas de los pies a parlamentaria en horario laboral**: [Link](https://rpp.pe/politica/congreso/asesor-de-congresista-lucinda-vasquez-es-captado-cortando-unas-de-los-pies-a-parlamentaria-en-horario-laboral-noticia-1661118)
+- **Congresista Lucinda Vásquez forzó a sus trabajadores parlamentarios a realizarle pedicura y cocinarle en horas de trabajo**: [Link](https://www.infobae.com/peru/2025/10/27/congresista-lucinda-vasquez-forzo-a-sus-trabajadores-parlamentarios-a-realizarle-pedicura-y-cocinarle-en-horas-de-trabajo/)
+- **Denuncian que congresista Lucinda Vásquez utiliza a asesores para cortarse las uñas y prepararle el desayuno**: [Link](https://elcomercio.pe/politica/congreso/lucinda-vasquez-denuncian-que-congresista-utiliza-a-asesores-para-cortarse-las-unas-y-prepararle-el-desayuno-ultimas-noticia/)
+
+
+### welcome to derry hbo max (N/A, 26/10/2025 23:33 Lima)
+
+- **‘Welcome to Derry’ Review: HBO’s ‘It’ Prequel Series Is the Wrong Kind of Clown Show**: [Link](https://www.indiewire.com/criticism/shows/welcome-to-derry-review-it-hbo-series-1235156516/)
+- **HBO’s New ‘It: Welcome to Derry’ Series Completely Ruins Stephen King’s Epic**: [Link](https://www.thedailybeast.com/obsessed/hbos-new-it-welcome-to-derry-series-completely-ruins-stephen-kings-epic/)
+- **The most WTF scares from 'IT: Welcome to Derry' episode 1, ranked**: [Link](https://mashable.com/article/it-welcome-to-derry-wtf-moments-scares-ranked)
+
+
+### atl. san luis - necaxa (N/A, 26/10/2025 23:33 Lima)
+
+- **Real Madrid vs. Barcelona (26 de Oct., 2025) Resultados en Vivo**: [Link](https://www.espn.com.ar/futbol/partido/_/juegoId/748236)
+- **MLB Gameday: Dodgers 4, Blue Jays 11 Resultado Final (24/10/2025)**: [Link](https://www.mlb.com/es/gameday/dodgers-vs-blue-jays/2025/10/24/813027/final/wrap)
+- **Aston Villa vs. Man City (26 de Oct., 2025) Resultados en Vivo**: [Link](https://www.espn.com.ar/futbol/partido/_/juegoId/740677)
+
+
 ### san diego fc (N/A, 26/10/2025 21:02 Lima)
 
 - **For San Diego FC, a historic inaugural MLS season is equal parts philosophy and community**: [Link](https://www.theguardian.com/football/2025/oct/25/san-diego-fc-mls-playoffs)
@@ -956,73 +1025,5 @@ Sin noticias relacionadas disponibles.
 - **¿Qué equipo crees que llega mejor al Clásico: Real Madrid o Barcelona?**: [Link](https://as.com/futbol/primera/que-equipo-crees-que-llega-mejor-al-clasico-real-madrid-o-barcelona-f202510-d/)
 - **Hará falta más en el Clásico**: [Link](https://www.marca.com/futbol/real-madrid/2025/10/22/insuficiente-clasico.html)
 - **A qué hora juega Real Madrid vs. Barcelona El Clásico de España**: [Link](https://www.espn.com.ar/futbol/espana/nota/_/id/15855279/real-madrid-vs-barcelona-a-que-hora-juegan-el-clasico-de-espana-laliga)
-
-
-### roman reigns (N/A, 23/10/2025 23:27 Lima)
-
-- **Roman Reigns vs John Cena Singles Record Is Embarrassing for the 17x WWE Champion**: [Link](https://fandomwire.com/roman-reigns-vs-john-cena-singles-record-is-embarrassing-for-the-17x-wwe-champion/)
-- **LA Knight & Other WWE Superstars Who Will Win Their First World Title In 2026**: [Link](https://www.thesportster.com/wwe-la-knight-other-superstars-first-world-championship/)
-- **5 Stars Who Need To Win Gold In WWE Before 2025 Ends**: [Link](https://itrwrestling.com/features/5-stars-who-need-to-win-gold-in-wwe-before-2025-ends/)
-
-
-### laura bozzo (N/A, 23/10/2025 23:27 Lima)
-
-- **Laura Bozzo se corona como la ‘tía reality’: Su paso por los programas de competencia**: [Link](https://www.atv.pe/noticia/laura-bozzo-se-corona-como-la-tia-reality-su-paso-por-los-programas-de-competencia/)
-- **Laura Bozzo admite entre risas que fue infiel a Cristian Zuárez por un rumor sin fundamento: “Le puse los cuernos, pero por si acaso”**: [Link](https://www.infobae.com/peru/2025/10/24/laura-bozzo-admite-entre-risas-que-fue-infiel-a-cristian-zuarez-por-un-rumor-sin-fundamento-le-puse-los-cuernos-pero-por-si-acaso/)
-- **Laura Bozzo revelará cómo se vengó de supuesta infidelidad de pareja menor en el capítulo 7 de El Internado**: [Link](https://www.mega.cl/programas/el-internado/avances/205012-avance-laura-bozzo-revelara-como-vengo-supuesta-infidelidad-pareja-menor.html)
-
-
-### amy lee (N/A, 23/10/2025 23:27 Lima)
-
-- **The Genesis of the New Hardcore Holy Trinity as Told by Poppy (Exclusive)**: [Link](https://www.vice.com/en/article/the-genesis-of-the-new-hardcore-holy-trinity-as-told-by-poppy-exclusive/)
-
-
-### tabla de posiciones liga 1 clausura (N/A, 23/10/2025 23:27 Lima)
-
-- **Así se jugará la fecha 16 del Clausura de la Liga 1 2025**: [Link](https://www.espn.com.pe/futbol/peru/nota/_/id/15842907/programacion-de-la-fecha-16-del-clausura-liga-1-de-peru)
-- **Así quedó la tabla de posiciones del Torneo Clausura 2025 tras el Sporting Cristal vs. Universitario**: [Link](https://bolavip.com/pe/liga-1/asi-quedo-la-tabla-de-posiciones-del-torneo-clausura-2025-tras-el-sporting-cristal-vs-universitario)
-- **Tabla de posiciones Acumulado Liga 1 y Clausura: clasificación con los resultados de la fecha 15**: [Link](https://libero.pe/futbol-peruano/liga-1/2025/10/19/tabla-de-posiciones-acumulado-liga-1-2025-clausura-fecha-15-286128)
-
-
-### adt vs universitario (N/A, 23/10/2025 23:27 Lima)
-
-- **Universitario y su objetivo en Tarma: el primero en ganar desde la vuelta del ADT a Primera**: [Link](https://espndeportes.espn.com/futbol/peru/nota/_/id/15858397/universitario-objetivo-tarma-ganar-desde-vuelta-adt-a-primera)
-- **ADT presentará dos bajas sustanciales en juego ante Universitario de Deportes por Torneo Clausura de la Liga 1 2025**: [Link](https://www.infobae.com/peru/deportes/2025/10/23/adt-presentara-dos-bajas-sustanciales-en-juego-ante-universitario-de-deportes-por-torneo-clausura-de-la-liga-1-2025/)
-- **ADT vs. Universitario EN VIVO: hora, día y dónde ver en vivo partido fecha 16 del Torneo Clausura 2025**: [Link](https://bolavip.com/pe/liga-1/adt-vs-universitario-en-vivo-hora-dia-y-donde-ver-en-vivo-partido-fecha-16-del-torneo-clausura-2025)
-
-
-### tabla liga 1 peru (N/A, 23/10/2025 23:27 Lima)
-
-- **Así se jugará los playoffs rumbo a la Libertadores 2026 si hoy terminara el Torneo Clausura**: [Link](https://libero.pe/futbol-peruano/liga-1/2025/10/21/liga-1-asi-se-jugarian-playoffs-rumbo-copa-libertadores-2025-hoy-terminara-torneo-clausura-703542)
-- **Cambio de reglas para definir al subcampeón de la Liga 1 en este 2025**: [Link](https://www.futbolperuano.com/liga-1/noticias/la-novedosa-definicion-del-subcampeon-de-la-liga-1-2025-544411)
-- **De ser Perú 2: ¿Alianza Lima iría a fase de grupos de la Copa Libertadores 2026?**: [Link](https://www.futbolperuano.com/liga-1/noticias/de-acabar-como-peru-2-alianza-lima-iria-a-la-fase-de-grupos-de-la-copa-libertadores-2026-544307)
-
-
-### partidos de liga 1 (N/A, 23/10/2025 23:27 Lima)
-
-- **La región que podría igualar a Lima y Cusco con 3 clubes en la Liga 1**: [Link](https://www.futbolperuano.com/liga-1/noticias/la-region-que-podria-igualar-a-lima-y-cusco-en-aportar-3-clubes-a-la-liga-1-en-2026-544590)
-- **Al igual que Lima y Cusco: la región del Perú que podría tener a 3 equipos en primera división el 2026**: [Link](https://larepublica.pe/deportes/2025/10/22/al-igual-que-lima-y-cusco-la-region-del-peru-que-podria-tener-a-3-equipos-en-primera-division-el-2026-674982)
-- **Así se jugará la fecha 16 del Clausura de la Liga 1 2025**: [Link](https://www.espn.com.pe/futbol/peru/nota/_/id/15842907/programacion-de-la-fecha-16-del-clausura-liga-1-de-peru)
-
-
-### benavente (N/A, 23/10/2025 23:27 Lima)
-
-- **Las "XVI Jornadas de Naturaleza y Montaña" de Benavente acercan cuatro modos distintos de disfrutar del medio natural**: [Link](https://www.laopiniondezamora.es/benavente/2025/10/23/xvi-jornadas-naturaleza-montana-benavente-122944585.html)
-- **Benavente celebra las XVI Jornadas de Naturaleza y Montaña: un homenaje al espíritu aventurero y al amor por la naturaleza**: [Link](https://www.benaventedigital.es/benavente-celebra-las-xvi-jornadas-de-naturaleza-y-montana-un-homenaje-al-espiritu-aventurero-y-al-amor-por-la-naturaleza/)
-- **Las Jornadas de Naturaleza y Montaña de Benavente cumplen 16 años con nuevas propuestas y protagonistas de altura**: [Link](https://www.zamoranews.com/articulo/benavente/jornadas-naturaleza-montana-benavente-cumplen-16-anos-nuevas-propuestas-protagonistas-altura/20251023153447358778.html)
-
-
-### conmebol (N/A, 23/10/2025 23:27 Lima)
-
-- **Perú vs Colombia: fecha, hora y dónde ver la Liga de Naciones Conmebol por el Mundial Femenino 2027**: [Link](https://depor.com/futbol-peruano/seleccion-peruana/peru-vs-colombia-en-vivo-fecha-hora-canal-de-tv-y-donde-ver-la-liga-de-naciones-conmebol-por-el-mundial-femenino-2027-noticia/)
-- **Todo sobre la Liga de Naciones Femenina 2025-26**: [Link](https://www.futbolperuano.com/futbol-femenino/liga-naciones-conmebol/liga-de-naciones-femenina-conmebol-2025-26-guia-completa-formato-y-fixture-544545)
-- **Perú vs. Colombia: Día y hora del partido de la Liga de Naciones Femenina de Sudamérica**: [Link](https://andina.pe/agencia/noticia-peru-vs-colombia-dia-y-hora-del-partido-de-liga-naciones-femenina-sudamerica-1049373.aspx)
-
-
-### partidos de universitario (N/A, 23/10/2025 20:47 Lima)
-
-- **Franco Velazco: el partido contra Cristal, su fe en el tricampeonato y la respuesta a Gorosito**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/universitario-franco-velazco-sobre-partido-ante-sporting-cristal-su-fe-en-el-tricampeonato-y-la-respuesta-a-nestor-gorosito-video-noticia/)
-- **Universitario rumbo al tricampeonato: ¿qué resultados necesita para ganar el Torneo Clausura 2025?**: [Link](https://www.infobae.com/peru/deportes/2025/10/21/universitario-rumbo-al-tricampeonato-que-resultados-necesita-para-ganar-el-torneo-clausura-2025/)
-- **Universitario ya no podrá ser tricampeón de la Liga 1 a costa de Sporting Cristal**: [Link](https://espndeportes.espn.com/futbol/peru/nota/_/id/15817244/universitario-ya-no-podra-ser-tricampeon-de-la-liga-1-a-costa-de-sporting-cristal)
 
 
