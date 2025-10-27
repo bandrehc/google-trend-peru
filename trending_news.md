@@ -1,3 +1,52 @@
+### gaziantep - fenerbahçe (N/A, 27/10/2025 11:32 Lima)
+
+- **Süper Lig'de Fenerbahçe, Gaziantep FK deplasmanında - Fenerbahçe - Spor Haberleri**: [Link](https://www.milliyet.com.tr/skorer/live-super-ligde-fenerbahce-gaziantep-fk-deplasmaninda-7471651)
+- **Süper Ligin 10. haftasında VAR hakemleri belli oldu**: [Link](https://www.saraymedya.com/haber/super-ligin-10-haftasinda-var-hakemleri-belli-oldu_209723/)
+- **Fenerbahçe'de hedef galibiyet! Zorlu maçta rakip Gaziantep FK**: [Link](https://www.gunes.com/spor/fenerbahcede-hedef-galibiyet-zorlu-macta-rakip-gaziantep-fk-1222796)
+
+
+### good time (N/A, 27/10/2025 11:32 Lima)
+
+- **Is Now a Good Time to Buy RGF Capital Markets Limited Stock Key Indicators Reviewed - Stock Buyback Announcements & Small Entry Cost Trading**: [Link](https://www.earlytimes.in/video/Is-Now-a-Good-Time-to-Buy-RGF-Capital-Markets-Limited-Stock-Key-Indicators-Reviewed)
+- **After 46 years, Good Time Charlie’s says goodbye as DoSeum moves in**: [Link](https://www.expressnews.com/news/article/broadway-good-time-charlies-childrens-museum-pearl-21110108.php)
+- **San Antonio’s Good Time Charlie’s says goodbye after 46 years as DoSeum moves in**: [Link](https://spectrumlocalnews.com/tx/south-texas-el-paso/news/2025/10/24/good-time-charlies-closure-doseum-moves-in)
+
+
+### feriados 2025 (N/A, 27/10/2025 11:32 Lima)
+
+- **Estos son los feriados y días no laborables que quedan para el 2025 en Perú**: [Link](https://elcomercio.pe/respuestas/cuando/calendario-de-feriados-2025-para-el-sector-publico-y-privado-en-peru-proximo-feriado-de-octubre-y-noviembre-tdpe-noticia/)
+- **¿Confirman feriado largo desde este viernes 31 de octubre a nivel nacional? Esto señala El Peruano**: [Link](https://elpopular.pe/actualidad/feriados/2025/10/26/confirman-feriado-largo-desde-este-viernes-31-de-octubre-a-nivel-nacional-esto-senala-el-peruano-307554)
+- **Este es el monto adicional que deberás recibir por trabajar el próximo feriado del 1 de noviembre**: [Link](https://libero.pe/tiempoextra/2025/10/26/es-monto-adicional-deberas-recibir-trabajar-proximo-feriado-del-1-de-noviembre-594256)
+
+
+### la tinka pozo millonario (N/A, 27/10/2025 11:32 Lima)
+
+- **La Tinka del domingo 26 de octubre de 2025: descubre los ganadores del último sorteo**: [Link](https://www.infobae.com/peru/2025/10/27/la-tinka-del-domingo-26-de-octubre-de-2025-descubre-los-ganadores-del-ultimo-sorteo/)
+- **La Tinka: resultados y ganadores del domingo 26 de octubre**: [Link](https://elcomercio.pe/respuestas/loterias/la-tinka-hoy-domingo-26-de-octubre-en-vivo-resultados-del-ultimo-sorteo-numeros-y-jugada-ganadora-pozo-millonario-loteria-resultado-si-o-si-boliyapa-intralot-lbposting-noticia/)
+- **Resultado La Tinka HOY, domingo 26 de octubre: números ganadores del Pozo Millonario**: [Link](https://libero.pe/ocio/2025/10/26/resultado-tinka-hoy-domingo-26-de-octubre-numeros-ganadores-del-pozo-millonario-intralot-2319150)
+
+
+### retiro afp cronograma (N/A, 27/10/2025 11:32 Lima)
+
+- **Link Retiro AFP 2025: consulta aquí dónde enviar tu solicitud hoy para retirar hasta S/ 21,400**: [Link](https://gestion.pe/mix/mi-bolsillo/link-retiro-afp-2025-consulta-aqui-como-enviar-tu-solicitud-hoy-para-retirar-hasta-s-21400-prima-habitat-integra-nnda-nnrt-noticia/)
+- **Guía del Octavo RETIRO AFP 2025: Cronograma según DNI, paso a paso y qué necesitas para iniciar el trámite**: [Link](https://elcomercio.pe/respuestas/tramites/guia-del-octavo-retiro-afp-2025-cronograma-segun-dni-paso-a-paso-y-que-necesitas-para-iniciar-el-tramite-online-tdpe-noticia/)
+- **[GUÍA] Retiro de AFP 2025: todos los pasos a seguir para registrar tu solicitud y acceder a tus fondos**: [Link](https://rpp.pe/economia/economia/retiro-afp-2025-estos-son-los-pasos-para-registrar-tu-solicitud-por-el-desembolso-de-tus-fondos-noticia-1660521)
+
+
+### avianca (N/A, 27/10/2025 11:32 Lima)
+
+- **Avianca LifeMiles Award Sale For Travel Through January 31, 2026 (Book By October 28)**: [Link](https://loyaltylobby.com/2025/10/24/avianca-lifemiles-award-sale-for-travel-through-january-31-2026-book-by-october-28/)
+- **flyCAA, Air Côte d’Ivoire, and Avianca Cancel 29 Flights Across Lubumbashi, Brazzaville, Bogotá, and More, Distressing Passengers and Majorly Affecting Air Travel in Africa**: [Link](https://www.travelandtourworld.com/news/article/flycaa-air-cote-divoire-and-avianca-cancel-29-flights-across-lubumbashi-brazzaville-bogota-and-more-distressing-passengers-and-majorly-affecting-air-travel-in-africa/)
+- **cancelled flights today**: [Link](https://www.travelandtourworld.com/news/article/tag/cancelled-flights-today/)
+
+
+### hora peru (N/A, 27/10/2025 11:32 Lima)
+
+- **Temblor en Perú hoy, lunes 27 de octubre: magnitud y epicentro según reporte del IGP**: [Link](https://elcomercio.pe/respuestas/temblor-en-peru-hoy-ultimos-sismos-de-octubre-en-vivo-cual-fue-la-magnitud-y-epicentro-segun-ultimo-reporte-del-igp-instituto-geofisico-del-peru-lima-callao-ica-lbposting-noticia/)
+- **Sismo de magnitud 4.4 con epicentro en Ica, Ica**: [Link](https://www.infobae.com/peru/2025/10/25/sismo-de-magnitud-44-con-epicentro-en-ica-ica/)
+- **Temblor en Perú: dos sismos remecieron Ica en lo que va de hoy**: [Link](https://andina.pe/agencia/noticia-temblor-peru-dos-sismos-remecieron-ica-lo-va-hoy-1049652.aspx)
+
+
 ### hora españa (N/A, 27/10/2025 07:52 Lima)
 
 Sin noticias relacionadas disponibles.
@@ -974,54 +1023,5 @@ Sin noticias relacionadas disponibles.
 - **„Ich bin innerlich unter Strom“: Ruhepol gegen Seitenlinien-Tiger: Werder gegen Union bietet auch ein Duell der Coaches**: [Link](https://www.deichstube.de/news/werder-bremen-union-berlin-auch-coach-duell-ruhepol-horst-steffen-gegen-seitenlinien-tiger-steffen-baumgart-bundesliga-heimspiel-94004125.html)
 - **Union-Kapitän Trimmel droht Gelb-Sperre, ausgerechnet Schiri Schlager pfeift**: [Link](https://www.berliner-kurier.de/union/union-kapitaen-trimmel-droht-gelb-sperre-ausgerechnet-schiri-schlager-pfeift-li.10002312)
 - **Werder Bremen: Der Ex kehrt zurück: Vorsicht vor Berlin-Blitz Burke!**: [Link](https://www.bild.de/sport/fussball/werder-bremen-der-ex-kehrt-zurueck-vorsicht-vor-berlin-blitz-burke-68fa02328578985b5d13245b)
-
-
-### paris fc (N/A, 24/10/2025 11:30 Lima)
-
-- **How to Watch Paris FC vs. FC Nantes: Live Stream, TV Channel, Start Time | 10/24/2025**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/10/20/how-to-watch-paris-fc-vs-fc-nantes-live-stream-tv-10-24-2025/86808103007/)
-- **Nantes predicted XI v Paris FC: Mostafa Mohamed to be dropped?**: [Link](https://www.getfootballnewsfrance.com/2025/nantes-predicted-xi-v-paris-fc-mostafa-mohamed-to-be-dropped/)
-- **Paris FC vs Nantes Prediction, 10/24/2025 Soccer Pick, Tips and Odds**: [Link](https://www.docsports.com/free-picks/soccer/2025/paris-fc-vs-nantes-prediction-10-24-2025-soccer-pick-tips-and-odds.html)
-
-
-### precio dolar perú (N/A, 24/10/2025 11:30 Lima)
-
-- **Precio del dólar en Perú: tipo de cambio hoy, viernes 24 de octubre**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-a-cuanto-esta-el-dolar-y-tipo-de-cambio-este-viernes-24-de-octubre-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
-- **¿Cuál es la cotización del dólar hoy viernes 24 de octubre del 2025?**: [Link](https://andina.pe/agencia/noticia-cual-es-cotizacion-del-dolar-hoy-viernes-24-octubre-del-2025-1049494.aspx)
-- **Dólar hoy: ¡Cae a menos de 3.41 soles! Descubre cómo influyen los factores externos**: [Link](https://satelite.pe/dolar-hoy-cae-a-menos-de-3-41-soles-descubre-como-influyen-los-factores-externos)
-
-
-### néstor gorosito (N/A, 24/10/2025 11:30 Lima)
-
-- **“El año que viene debemos salir campeones”: la promesa de Gorosito tras renovar al 2026, su idea sobre Paolo y Barcos y un mea culpa por un año sin títulos**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/alianza-lima-el-ano-que-viene-debemos-salir-campeones-la-promesa-de-nestor-gorosito-tras-renovar-al-2026-su-idea-sobre-paolo-y-barcos-y-un-mea-culpa-por-un-ano-sin-titulos-tlcnota-noticia/)
-- **Néstor Gorosito renueva con Alianza Lima hasta 2026**: [Link](https://espndeportes.espn.com/futbol/peru/nota/_/id/15784312/nestor-pipo-gorosito-renovo-contrato-con-alianza-lima)
-- **Gorosito lanzó picante mensaje tras renovar en Alianza Lima**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/gorosito-lanzo-picante-mensaje-renovar-alianza-lima-n451455)
-
-
-### retiro afp habitat (N/A, 24/10/2025 11:30 Lima)
-
-- **Retiro AFP 2025: La fecha límite para el depósito según el día en que hiciste la solicitud**: [Link](https://www.infobae.com/peru/2025/10/22/retiro-de-afp-esta-es-la-fecha-limite-para-el-deposito-segun-la-fecha-de-solicitud/)
-- **Link, Retiro AFP: guía para solicitar hasta 4 UIT según cronograma por DNI**: [Link](https://elcomercio.pe/respuestas/tramites/link-del-retiro-afp-2025-hoy-solicita-segun-tu-dni-en-plataforma-oficial-hasta-s-21-400-soles-o-4-uit-de-tus-fondos-tdpe-noticia/)
-- **▷ Link retiro de AFP 2025 — revisa hoy cómo enviar la solicitud de registro con tu DNI hoy, 23 de octubre**: [Link](https://gestion.pe/mix/mi-bolsillo/link-retiro-de-afp-2025-consulta-aqui-como-enviar-la-solicitud-de-registro-con-tu-dni-este-22-y-23-de-octubre-nnda-nnrt-noticia/)
-
-
-### real madrid vs barcelona (N/A, 24/10/2025 07:51 Lima)
-
-- **El análisis de El Clásico: todas las preguntas sin resolver antes del Real Madrid vs Barcelona**: [Link](https://as.com/futbol/videos/el-analisis-de-el-clasico-todas-las-preguntas-sin-resolver-antes-del-real-madrid-vs-barcelona-f202510-v/)
-- **La hora de Real Madrid: aprovechar las lesiones de Barcelona y el gran momento de Mbappé**: [Link](https://www.espn.com.ar/futbol/espana/nota/_/id/15856139/la-hora-de-real-madrid-aprovechar-las-lesiones-de-barcelona-y-el-gran-momento-de-mbappe)
-- **Hará falta más en el Clásico**: [Link](https://www.marca.com/futbol/real-madrid/2025/10/22/insuficiente-clasico.html)
-
-
-### retiro afp 2025 (N/A, 24/10/2025 07:51 Lima)
-
-- **Retiro de AFP: Esta es la fecha límite para el depósito según el día en que hiciste la solicitud**: [Link](https://www.infobae.com/peru/2025/10/22/retiro-de-afp-esta-es-la-fecha-limite-para-el-deposito-segun-la-fecha-de-solicitud/)
-- **Link, Retiro AFP: guía para solicitar hasta 4 UIT según cronograma por DNI**: [Link](https://elcomercio.pe/respuestas/tramites/link-del-retiro-afp-2025-hoy-solicita-segun-tu-dni-en-plataforma-oficial-hasta-s-21-400-soles-o-4-uit-de-tus-fondos-tdpe-noticia/)
-- **▷ Link retiro de AFP 2025 — revisa hoy cómo enviar la solicitud de registro con tu DNI hoy, 23 de octubre**: [Link](https://gestion.pe/mix/mi-bolsillo/link-retiro-de-afp-2025-consulta-aqui-como-enviar-la-solicitud-de-registro-con-tu-dni-este-22-y-23-de-octubre-nnda-nnrt-noticia/)
-
-
-### precio del dólar perú (N/A, 24/10/2025 07:51 Lima)
-
-- **Precio del dólar en Perú, jueves 23 de octubre: a cuánto cerró el tipo de cambio hoy**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-a-cuanto-esta-el-dolar-y-tipo-de-cambio-este-jueves-23-de-octubre-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
-- **Precio del dólar Perú y tipo de cambio hoy 24 de octubre del 2025**: [Link](https://rpp.pe/economia/economia/precio-del-dolar-peru-y-tipo-de-cambio-hoy-24-de-octubre-del-2025-noticia-1660760)
-- **Dólar hoy: ¡Cae a menos de 3.41 soles! Descubre cómo influyen los factores externos**: [Link](https://satelite.pe/dolar-hoy-cae-a-menos-de-3-41-soles-descubre-como-influyen-los-factores-externos)
 
 
