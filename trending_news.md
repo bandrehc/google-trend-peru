@@ -1,3 +1,22 @@
+### hora españa (N/A, 27/10/2025 07:52 Lima)
+
+Sin noticias relacionadas disponibles.
+
+
+### nasa (N/A, 27/10/2025 07:52 Lima)
+
+- **Flagstaff-based company wins $30M contract for NASA space rescue mission**: [Link](https://www.kjzz.org/fronteras-desk/2025-10-27/flagstaff-based-company-wins-30m-contract-for-nasa-space-rescue-mission)
+- **Three Earth-sized planets discovered in a compact binary system**: [Link](https://www.eurekalert.org/news-releases/1103259)
+- **NASA Data Uncovers Hidden Three Planets in Extreme Star System, And They're Just Like Earth**: [Link](https://dailygalaxy.com/2025/10/nasa-uncovers-three-planets-like-earth/)
+
+
+### vuelos (N/A, 27/10/2025 07:52 Lima)
+
+- **¿Se canceló tu viaje? Revisa el estatus de las operaciones del AICM**: [Link](https://www.infobae.com/mexico/2025/10/22/se-cancelo-tu-viaje-revisa-el-estatus-de-las-operaciones-del-aicm/)
+- **AICM EN VIVO: estos son los vuelos cancelados y demorados de este sábado**: [Link](https://www.infobae.com/mexico/2025/10/25/aicm-en-vivo-estos-son-los-vuelos-cancelados-y-demorados-de-este-sabado/)
+- **Estado de los vuelos en vivo: demoras y cancelaciones en el AICM**: [Link](https://www.infobae.com/mexico/2025/10/25/estado-de-los-vuelos-en-vivo-demoras-y-cancelaciones-en-el-aicm/)
+
+
 ### samsung (N/A, 27/10/2025 03:33 Lima)
 
 - **Samsung Galaxy S26 Ultra Release Date: New Details Update The Schedule**: [Link](https://www.forbes.com/sites/ewanspence/2025/10/24/samsung-galaxy-s26-ultra-release-date-galaxy-unpacked-galaxy-s26-edge-new-galaxy-s26/)
@@ -1004,26 +1023,5 @@ Sin noticias relacionadas disponibles.
 - **Precio del dólar en Perú, jueves 23 de octubre: a cuánto cerró el tipo de cambio hoy**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-a-cuanto-esta-el-dolar-y-tipo-de-cambio-este-jueves-23-de-octubre-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
 - **Precio del dólar Perú y tipo de cambio hoy 24 de octubre del 2025**: [Link](https://rpp.pe/economia/economia/precio-del-dolar-peru-y-tipo-de-cambio-hoy-24-de-octubre-del-2025-noticia-1660760)
 - **Dólar hoy: ¡Cae a menos de 3.41 soles! Descubre cómo influyen los factores externos**: [Link](https://satelite.pe/dolar-hoy-cae-a-menos-de-3-41-soles-descubre-como-influyen-los-factores-externos)
-
-
-### municipalidades dni electronico (N/A, 24/10/2025 03:31 Lima)
-
-- **Trámite de DNI electrónico gratis para este 26 de octubre: conoce dónde y qué servicios son los disponibles**: [Link](https://www.infobae.com/peru/2025/10/23/tramite-de-dni-electronico-gratis-para-este-26-de-octubre-conoce-donde-y-que-servicios-son-los-disponibles/)
-- **Municipalidades TRAMITARÁN DNI ELECTRÓNICO GRATIS: Lista de distritos**: [Link](https://peru21.pe/peru/municipalidades-tramitaran-dni-electronico-gratis-lista-de-distritos/)
-- **DNI electrónico gratuito este 25 de octubre: dónde se entregará y quiénes pueden recibirlo | tdpe | RESPUESTAS**: [Link](https://elcomercio.pe/respuestas/tramites/dni-electronico-gratuito-este-25-de-octubre-donde-se-entregara-y-quienes-pueden-recibirlo-tdpe-noticia/)
-
-
-### premios billboard 2025 (N/A, 24/10/2025 03:31 Lima)
-
-- **Telemundo transmitió los Premios Billboard de la Música Latina 2025**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/telemundo-en-vivo-gratis-donde-ver-los-premios-billboard-de-la-musica-latina-2025-por-tv-y-online-nnda-nnrt-noticia/)
-- **Bad Bunny, un Daddy Yankee cristiano y música para el mundial marcaron los Latin Billboard**: [Link](https://cnnespanol.cnn.com/2025/10/24/entretenimiento/bad-bunny-daddy-yankee-premios-latin-billboard-efe)
-- **Latin Billboard 2025: lista completa de nominados, con Bad Bunny, Karol G y Rauw Alejandro entre los favoritos**: [Link](https://rpp.pe/musica/internacional/latin-billboard-2025-lista-completa-de-nominados-de-premios-de-la-musica-latina-noticia-1660621)
-
-
-### nba (N/A, 24/10/2025 03:31 Lima)
-
-- **NBA stars and mafia among dozens arrested in illegal gambling crackdown**: [Link](https://www.bbc.com/news/articles/cvgmpp3x5x5o)
-- **Portland Trail Blazers coach Chauncey Billups charged in illegal poker operation tied to Mafia**: [Link](https://abcnews.go.com/US/miami-heat-terry-rozier-charged-nba-betting/story?id=126789368)
-- **Damon Jones alleged to have traded info on LeBron James missing 2023 Lakers game - The Athletic**: [Link](https://www.nytimes.com/athletic/6743596/2025/10/23/lebon-james-damon-jones-nba-gambling-investigation/)
 
 
