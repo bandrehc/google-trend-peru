@@ -1,3 +1,71 @@
+### minnesota vs (N/A, 27/10/2025 20:51 Lima)
+
+- **Nikola Jokic Player Props, Odds, and Lines vs. Minnesota Timberwolves**: [Link](https://news.bet365.com/en-us/article/nikola-jokic-player-props-odds-and-lines-vs-minnesota-timberwolves/2025102721071496311)
+- **Perfect opportunity for Nuggets to bust out secret weapon on Monday night**: [Link](https://nugglove.com/perfect-opportunity-nuggets-bust-out-secret-weapon-monday-night)
+- **FanDuel promo code: Bet $5, get $300 in bonus bets if your bet wins for Nuggets vs. Timberwolves**: [Link](https://nypost.com/2025/10/27/betting/fanduel-promo-code-bet-5-get-300-in-bonus-bets-if-your-bet-wins-for-nuggets-vs-timberwolves/)
+
+
+### pedro neto (N/A, 27/10/2025 20:51 Lima)
+
+- **Sunderland told they've done something 'unbelievable' after starting this season at a disadvantage**: [Link](https://tbrfootball.com/sunderland-told-theyve-done-something-unbelievable-after-starting-this-season-at-a-disadvantage/)
+- **Enzo Maresca on the need for consistency | News | Official Site**: [Link](https://www.chelseafc.com/en/news/article/enzo-maresca-on-the-need-for-consistency)
+- **“Anonymous” Chelsea man “dominated” on his big break with just 10 touches**: [Link](https://chelsea.news/2025/10/guiu-dominated-big-break-anonymous/)
+
+
+### paranaense vs (N/A, 27/10/2025 20:51 Lima)
+
+- **Clube Athletico Paranaense vs Amazonas FC - AM pronostico y comparación de cuotas 28.10.2025**: [Link](https://www.livetipsportal.com/es/pronosticos-apuestas-deportivas/athletico-paranaense-vs-amazonas-fc-am-serie-b-10976192/)
+
+
+### mavericks - thunder (N/A, 27/10/2025 20:51 Lima)
+
+- **Mavericks-Thunder preview: Reigning MVP has hit the ground running**: [Link](https://www.nba.com/mavs/news/mavericks-thunder-preview-reigning-mvp-has-hit-the-ground-running)
+- **Mavericks set to host NBA champion OKC Thunder on second night of back-to-back**: [Link](https://www.si.com/nba/mavericks/onsi/news/dallas-mavericks-set-host-nba-champion-okc-thunder-second-night-back-to-back-)
+- **Thunder vs Mavericks live updates: Shai Gilgeous-Alexander, OKC visit Cooper Flagg, Dallas**: [Link](https://www.oklahoman.com/story/sports/nba/thunder/2025/10/27/thunder-mavericks-score-live-updates-nba-game-highlights-stats-injury-report/86931907007/)
+
+
+### dodgers - blue jays (N/A, 27/10/2025 20:51 Lima)
+
+- **Dodgers vs. Blue Jays (Oct 25, 2025) Live Score**: [Link](https://www.espn.com/mlb/game/_/gameId/401809298)
+- **‘Game on, friends’: Toronto Zoo accepts bet from Los Angeles counterpart over Blue Jays-Dodgers World Series**: [Link](https://www.thestar.com/news/gta/game-on-friends-toronto-zoo-accepts-bet-from-los-angeles-counterpart-over-blue-jays-dodgers/article_e8cf40e3-ceec-42f4-9583-8440927df610.html)
+- **How to Bet on the World Series at BET99 in Canada**: [Link](https://www.sportsbettingdime.com/news/betting/how-to-bet-world-series-canada-bet99/)
+
+
+### duet night abyss (N/A, 27/10/2025 20:51 Lima)
+
+- **Duet Night Abyss Global Release: Launch Time, Platforms, and Key Features Explained**: [Link](https://azat.tv/en/duet-night-abyss-global-release-launch-time-platforms-key-features/)
+- **What Kind Of Impact Will Duet Night Abyss’ Monetization Have On Gacha Games?**: [Link](https://www.mmobomb.com/duet-night-abyss-monetization-gacha-games)
+- **Duet Night Abyss Livestream Shares Key Features About Upcoming Gachaless Anime Title**: [Link](https://www.gamegrin.com/news/duet-night-abyss-livestream-shares-key-features-about-upcoming-gachaless-anime-title/)
+
+
+### pasto - deportivo pereira (N/A, 27/10/2025 20:51 Lima)
+
+- **Pronóstico Deportivo Pasto Deportivo Pereira - Liga Postobon 27/10/25**: [Link](https://www.sportytrader.com/es/pronosticos/deportivo-pasto-deportivo-pereira-300465/)
+- **Deportivo Pasto vs Deportivo Pereira, en vivo el partido de la Liga BetPlay 2025-II**: [Link](https://www.clarosports.com/colombia/liga-bet-play/deportivo-pasto-vs-deportivo-pereira-en-vivo-el-partido-de-la-liga-betplay-2025-ii/)
+- **🔴EN VIVO | Pasto vs. Pereria por la fecha 18 de la Liga Colombiana: siga acá la transmisión**: [Link](https://caracol.com.co/2025/10/28/en-vivo-pasto-vs-pereria-por-la-fecha-18-de-la-liga-colombiana-siga-aca-la-transmision/)
+
+
+### bolivar vs (N/A, 27/10/2025 20:51 Lima)
+
+- **Bolívar vs Real Tomayapo: resultado EN VIVO y estadísticas de la Copa Paceña**: [Link](https://www.365scores.com/es/news/bolivar-vs-real-tomayapo-en-vivo-pacena/)
+- **Bolívar convierte por primera vez en el año siete goles en un mismo partido**: [Link](https://www.vision360.bo/noticias/2025/10/21/33757-bolivar-convierte-por-primera-vez-en-el-ano-siete-goles-en-un-mismo-partido)
+- **Bolívar remonta y golea a Real Tomayapo en Tarija por el torneo seriado**: [Link](https://eju.tv/2025/10/bolivar-remonta-y-golea-a-real-tomayapo-en-tarija-por-el-torneo-seriado/)
+
+
+### paranaense - amazonas (N/A, 27/10/2025 20:51 Lima)
+
+- **Palpite Atlético Paranaense x Amazonas FC - Brasileirão Série B, 27/10/2025**: [Link](https://www.sportytrader.com/pt-br/palpites/atletico-paranaense-amazonas-fc-am-300444/)
+- **Dois confrontos fecham a 34ª rodada da Série B nesta segunda-feira**: [Link](https://www.cbf.com.br/futebol-brasileiro/noticias/copa-do-brasil/sub-20/dois-confrontos-fecham-a-34-rodada-da-serie-b-nesta-segunda-feira)
+- **Athletico busca reabilitação na Série B e sonha com arrancada rumo ao G4**: [Link](https://litoranea.fm/athletico-busca-reabilitacao-na-serie-b-e-sonha-com-arrancada-rumo-ao-g4/)
+
+
+### paranaense (N/A, 27/10/2025 20:51 Lima)
+
+- **Pessimismo do varejo está no pior patamar desde a pandemia**: [Link](https://www1.folha.uol.com.br/mercado/2025/10/pessimismo-do-varejo-esta-no-pior-patamar-desde-a-pandemia.shtml)
+- **Índice de Consumo dos paranaenses registra alta de 0,7% em outubro**: [Link](https://cbncuritiba.com.br/materias/indice-de-consumo-dos-paranaenses-registra-alta-de-07-em-outubro/)
+- **Famílias em Campo Grande reduzem gastos e percebem crédito mais difícil**: [Link](https://www.capitalnews.com.br/economia-e-agronegocio/economia/familias-em-campo-grande-reduzem-gastos-e-percebem-credito-mais-dificil/430247)
+
+
 ### luka dončić (N/A, 27/10/2025 15:24 Lima)
 
 - **Doncic sidelined with finger sprain, leg contusion**: [Link](https://www.espn.com/nba/story/_/id/46735044/doncic-least-1-week-finger-sprain-leg-contusion)
@@ -955,73 +1023,5 @@ Sin noticias relacionadas disponibles.
 ### américa - junior (N/A, 24/10/2025 20:48 Lima)
 
 Sin noticias relacionadas disponibles.
-
-
-### river (N/A, 24/10/2025 20:48 Lima)
-
-- **Pollution in the Yaguarón Stream: the toxic footprint left by the Atanor chemical plant in the Paraná River**: [Link](https://noticiasambientales.com/environment-en/pollution-in-the-yaguaron-stream-the-toxic-footprint-left-by-the-atanor-chemical-plant-in-the-parana-river/)
-- **Manchester Regional shuts out Saddle River Day - Boys soccer recap**: [Link](https://www.nj.com/highschoolsports/2025/10/manchester-regional-shuts-out-saddle-river-day-boys-soccer-recap.html)
-- **Westwood football caps regular season with 'Bird Bowl' victory over River Dell**: [Link](https://www.northjersey.com/story/sports/high-school/football/2025/10/24/westwood-nj-football-caps-regular-season-win-river-dell/86807659007/)
-
-
-### juárez - puebla (N/A, 24/10/2025 20:48 Lima)
-
-- **Liga MX: Puebla quiere dejar el último lugar de la tabla ante FC Juárez**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-puebla-quiere-dejar-el-ultimo-lugar-de-la-tabla-ante-fc-juarez-noticia-1660678)
-- **Pronóstico FC Juarez Puebla - Liga MX 24/10/25**: [Link](https://www.sportytrader.com/es/pronosticos/fc-juarez-puebla-299453/)
-- **⚽ ¡No lo dejes pasar! Checa a qué HORA y en DÓNDE VER a Juárez vs Puebla en la Liga MX 🐴🆚🎽**: [Link](https://www.facebook.com/MilenioDiario/posts/-no-lo-dejes-pasarcheca-a-qu%C3%A9-hora-y-en-d%C3%B3nde-ver-a-ju%C3%A1rez-vs-puebla-en-la-liga-/1287232073434261/)
-
-
-### independiente rivadavia - river plate (N/A, 24/10/2025 20:48 Lima)
-
-- **River vs. Independiente Rivadavia, por la Copa Argentina: seguilo EN VIVO**: [Link](https://www.tycsports.com/copa-argentina/argentina-copa-argentina-2025-independiente-riv-m-vs-river-plate-semifinal-1-id694011.html)
-- **VER TYC SPORTS EN VIVO: River vs. Independiente Rivadavia por Torneo Clausura**: [Link](https://elcomercio.pe/deporte-total/argentina/tyc-sports-en-vivo-pelota-libre-tv-river-vs-independiente-rivadavia-hoy-gratis-via-futbol-libre-tv-tyc-play-por-copa-argentina-2025-link-video-noticia/)
-- **River vs. Independiente Rivadavia, EN VIVO: se define el segundo finalista de la Copa Argentina**: [Link](https://www.ole.com.ar/copa-argentina/river-vs-independiente-rivadavia-partido-copa-argentina-minuto-minuto_0_CraqiDjS7X.html)
-
-
-### peru vs colombia femenino (N/A, 24/10/2025 20:48 Lima)
-
-- **Comienza la CONMEBOL Liga de Naciones Femenina**: [Link](https://www.conmebol.com/noticias/comienza-la-conmebol-liga-de-naciones-femenina/)
-- **Perú vs. Colombia en vivo: transmisión por Liga de Naciones Femenina**: [Link](https://elcomercio.pe/deporte-total/seleccion/peru-vs-colombia-femenino-en-vivo-online-gratis-por-liga-de-naciones-via-directv-gol-caracol-rcn-y-futbol-libre-tv-a-que-hora-juegan-canal-que-transmite-y-donde-ver-partido-por-internet-video-noticia/)
-- **Doblete de Leicy en debut con victoria de Colombia en Liga de Naciones Femenina Conmebol**: [Link](https://www.espn.com.ar/futbol/copa-america/nota/_/id/15849942/colombia-vs-peru-victoria-doblete-leicy-santos-fecha-1-liga-de-naciones-femenina-conmebol)
-
-
-### bolivar (N/A, 24/10/2025 20:48 Lima)
-
-- **Hotel Bolívar renovará imagen: ¿qué sucederá con las tiendas que son parte del edificio?**: [Link](https://gestion.pe/economia/empresas/hotel-bolivar-renovara-imagen-que-sucedera-con-las-tiendas-que-son-parte-del-edificio-noticia/)
-- **Manual de Uso y Protocolo de Aprovechamiento de la Plaza de Bolívar: herramientas para su conservación**: [Link](https://idpc.gov.co/noticias/manual-de-uso-y-protocolo-de-aprovechamiento-de-la-plaza-de-bolivar/)
-- **Estados Unidos sanciona al presidente de Colombia, Gustavo Petro**: [Link](https://cnnespanol.cnn.com/2025/10/24/eeuu/estados-unidos-sanciona-gustavo-petro-trax)
-
-
-### blue jays - dodgers (N/A, 24/10/2025 20:48 Lima)
-
-- **Who will win Dodgers-Blue Jays World Series? MLB scouts, execs and managers make their predictions**: [Link](https://www.espn.com/mlb/story/_/id/46687649/world-series-2025-mlb-toronto-blue-jays-los-angeles-dodgers-insiders-predictions-scouts)
-- **Real Madrid: Kylian Mbappé named player of the month for the second time**: [Link](https://ca.sports.yahoo.com/news/real-madrid-kylian-mbapp-named-165500528.html)
-- **World Series Game 1 Open Thread**: [Link](https://www.overthemonster.com/mlb-news/24480902/world-series-game-1-game-time-tv-broadcast-info-discussion)
-
-
-### orense vs (N/A, 24/10/2025 20:48 Lima)
-
-Sin noticias relacionadas disponibles.
-
-
-### knicks - celtics (N/A, 24/10/2025 20:48 Lima)
-
-- **Knicks vs Celtics Preview w/ Jack Simone of Hardwood Houdini & How Bout Them Celtics? | PREGAME POD**: [Link](https://bvmsports.com/2025/10/24/knicks-vs-celtics-preview-w-jack-simone-of-hardwood-houdini-how-bout-them-celtics-pregame-pod/)
-- **BetMGM Promo Code NYPDM1600: Get a 20% first deposit match up to $1,600 for Knicks vs. Celtics**: [Link](https://nypost.com/2025/10/24/betting/betmgm-promo-code-nypdm1600-get-a-20-first-deposit-match-up-to-1600-for-knicks-vs-celtics/)
-- **How to watch Celtics game free today**: [Link](https://www.masslive.com/tv/2025/10/how-to-watch-celtics-game-free-today.html-2)
-
-
-### juan pablo ii college - comerciantes unidos (N/A, 24/10/2025 15:26 Lima)
-
-- **Dónde ver, Juan Pablo II vs Comerciantes Unidos hoy EN VIVO por el Torneo Clausura**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/juan-pablo-ii-vs-comerciantes-unidos-en-vivo-via-l1-max-horario-canal-tv-y-mas-de-la-fecha-16-del-torneo-clausura-de-la-liga-1-2025-tdpe-noticia/)
-- **Transmisión EN VIVO: Juan Pablo II vs. Comerciantes Unidos vía Liga 1 Max por internet gratis**: [Link](https://depor.com/futbol-peruano/descentralizado/juan-pablo-ii-vs-comerciantes-unidos-en-vivo-en-directo-hoy-liga-1-max-l1-play-futbol-libre-tv-ver-gratis-online-directv-dgo-torneo-clausura-2025-video-noticia/)
-- **Juan Pablo II College vs Comerciantes Unidos: Pronóstico, Cuotas y Apuestas - Primera División**: [Link](https://www.casasdeapuestas.com/pronosticos/juan-pablo-ii-college-comerciantes-unidos-20251024/)
-
-
-### laura bozzo (N/A, 24/10/2025 15:26 Lima)
-
-- **Laura Bozzo confesó que le fue infiel a Cristian Zuárez**: [Link](https://www.americatv.com.pe/noticias/espectaculos/laura-bozzo-se-confeso-y-dijo-que-le-fue-infiel-cristian-zuarez-n512265)
-- **Laura Bozzo confesó que le fue infiel a su expareja 24 años menor por error**: [Link](https://www.mega.cl/programas/el-internado/mejores-momentos/205094-laura-bozzo-confeso-fue-infiel-expareja-24-menor-error.html)
-- **Laura Bozzo admite entre risas que fue infiel a Cristian Zuárez por un rumor sin fundamento: “Le puse los cuernos, pero por si acaso”**: [Link](https://www.infobae.com/peru/2025/10/24/laura-bozzo-admite-entre-risas-que-fue-infiel-a-cristian-zuarez-por-un-rumor-sin-fundamento-le-puse-los-cuernos-pero-por-si-acaso/)
 
 
