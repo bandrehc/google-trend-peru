@@ -1,3 +1,24 @@
+### copa del rey (N/A, 28/10/2025 03:33 Lima)
+
+- **El Oviedo de Carrión busca seguir creciendo en la Copa del Rey**: [Link](https://as.com/futbol/copa_del_rey/el-oviedo-de-carrion-busca-seguir-creciendo-en-la-copa-del-rey-f202510-n/)
+- **El Ourense CF afronta la segunda edición de su sueño en la Copa del Rey**: [Link](https://www.lavozdegalicia.es/noticia/ourense/2025/10/28/segunda-edicion-sueno-copa/0003_202510O28C5991.htm)
+- **Los azules ya preparan la primera eliminatoria de la Copa del Rey**: [Link](https://www.lne.es/real-oviedo/2025/10/27/azules-preparan-primera-eliminatoria-copa-123050651.html)
+
+
+### nasa (N/A, 28/10/2025 03:33 Lima)
+
+- **MAGA Mouthpieces Turn Their Backs on Trump Goon’s NASA Bid**: [Link](https://www.thedailybeast.com/maga-mouthpieces-turn-their-backs-on-sean-duffys-nasa-bid/)
+- **Trump says he doesn't plan to name the ballroom after himself. Probably going to call it the presidential ballroom or something like that, he said. He said he hasn't decided, he told us before leaving for Asia.**: [Link](https://x.com/JenniferJJacobs/status/1981924155592265933)
+- **Duffy’s Bad Day**: [Link](https://www.notus.org/newsletters/duffys-bad-day)
+
+
+### timberwolves - nuggets (N/A, 28/10/2025 03:33 Lima)
+
+- **Nikola Jokic Makes NBA History as 25-Point Triple-Double Downs Timberwolves Without Anthony Edwards**: [Link](https://www.essentiallysports.com/nba-active-basketball-news-nikola-jokic-makes-nba-history-as-twenty-five-point-triple-double-downs-minnesota-timberwolves-without-anthony-edwards/)
+- **Jamal Murray powers Nuggets to end Wolves’ tormenting streak**: [Link](https://denversports.com/nba/denver-nuggets/end-wolves-win-streak/2126357)
+- **Jokić's new triple-double, Denver defeats Minnesota**: [Link](https://en.vijesti.me/sports-e/basketball/780767/New-triple-double-for-Jokic--Denver-defeats-Minnesota)
+
+
 ### mlb (N/A, 27/10/2025 23:28 Lima)
 
 - **Who will win Dodgers-Blue Jays World Series? MLB scouts, execs and managers make their predictions**: [Link](https://www.espn.com/mlb/story/_/id/46687649/world-series-2025-mlb-toronto-blue-jays-los-angeles-dodgers-insiders-predictions-scouts)
@@ -1004,26 +1025,5 @@ Sin noticias relacionadas disponibles.
 - **Uforia New Music Picks: Grupo Frontera, Elena Rose, Gabito Ballesteros, Mon Laferte y más**: [Link](https://www.univision.com/musica/uforia-new-music-picks-grupo-frontera-elena-rose-gabito-ballesteros-mon-laferte-y-mas)
 - **Kapo, Yandel, Rauw Alejandro, Mon Laferte y Armenta, entre estrenos musicales semanales**: [Link](https://revistaq.mx/espectaculos/kapo-yandel-rauw-alejandro-mon-laferte-y-armenta-entre-estrenos-musicales-semanales/)
 - **Mon Laferte, TIMØ y Anddy Caicedo: los mejores lanzamientos para disfrutar el fin de semana**: [Link](https://www.publimetro.co/entretenimiento/2025/10/24/mon-laferte-timo-y-anddy-caicedo-los-mejores-lanzamientos-para-disfrutar-el-fin-de-semana/)
-
-
-### marcha 25 de octubre (N/A, 24/10/2025 23:26 Lima)
-
-- **Marcha 25 de octubre: Transportistas se unirán a la nueva protesta contra el gobierno de José Jerí**: [Link](https://www.infobae.com/peru/2025/10/24/marcha-25-de-octubretransportistas-se-uniran-a-la-nueva-protesta-contra-el-gobierno-de-jose-jeri/)
-- **Vicente Tiburcio asegura que habrá garantías en marchas del 25 de octubre, pero bajo el marco del estado de emergencia**: [Link](https://rpp.pe/politica/gobierno/vicente-tiburcio-asegura-que-habra-garantias-en-marchas-del-25-de-octubre-pero-bajo-el-marco-del-estado-de-emergencia-noticia-1660849)
-- **‘Generación Z’ convoca marcha nacional por justicia para Eduardo Ruiz en medio del estado de emergencia**: [Link](https://caretas.pe/politica/generacion-z-convoca-marcha-nacional-por-justicia-para-eduardo-ruiz-en-medio-del-estado-de-emergencia/)
-
-
-### nba en vivo (N/A, 24/10/2025 23:26 Lima)
-
-- **Warriors sobreviven a los 50 de Gordon y Curry brilla en el clutch**: [Link](https://espndeportes.espn.com/basquetbol/nota/_/id/15859027/nba-nuggets-vs-warriors-steph-curry-gordon)
-- **Nikola Jokic suma un nuevo triple-doble e iguala a una leyenda NBA**: [Link](https://www.mundodeportivo.com/baloncesto/nba/20251024/1002556480/nikola-jokic-suma-nuevo-triple-doble-e-iguala-leyenda-nba.html)
-- **Stephen Curry es el fuego eterno**: [Link](https://as.com/baloncesto/nba/stephen-curry-es-el-fuego-eterno-f202510-n/)
-
-
-### mlb (N/A, 24/10/2025 23:26 Lima)
-
-- **Blue Jays' Daulton Varsho crushes a two-run homer to tie game at 2-2 against Dodgers**: [Link](https://www.foxsports.com/watch-vertical/fmc-2enxo0ezazsqedkh)
-- **World Series Roundtable**: [Link](https://www.jhunewsletter.com/article/2025/10/world-series-roundtable)
-- **Real Madrid: Kylian Mbappé named player of the month for the second time**: [Link](https://ca.sports.yahoo.com/news/real-madrid-kylian-mbapp-named-165500528.html)
 
 
