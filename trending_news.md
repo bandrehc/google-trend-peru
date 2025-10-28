@@ -1,3 +1,73 @@
+### maju mantilla (N/A, 28/10/2025 15:28 Lima)
+
+- **Falleció Elvia García Linares, madre de Maju Mantilla a los 75 años**: [Link](https://www.infobae.com/peru/2025/10/28/fallecio-elvia-garcia-madre-de-maju-mantilla/)
+- **Muere Elvia García, madre de Maju Mantilla, a los 75 años: familia y amigos le dan el último adiós en Miraflores**: [Link](https://larepublica.pe/espectaculos/2025/10/28/muere-elvia-garcia-madre-de-maju-mantilla-a-los-75-anos-familia-y-amigos-le-dan-el-ultimo-adios-en-miraflores-830200)
+- **Fallece la mamá de Maju Mantilla a los 75 años de edad**: [Link](https://www.atv.pe/noticia/fallece-la-mama-de-maju-mantilla-a-los-75-anos-de-edad/)
+
+
+### leipzig (N/A, 28/10/2025 15:28 Lima)
+
+- **Neue Spitze des Präsidiums für vier Jahre - Lydia Grün ist neue Präsidentin des Deutschen Musikrats**: [Link](https://www.radiodrei.de/programm/schema/sendungen/radio3_am_nachmittag/archiv/20251028_1600/radio3_aktuell_1640.html)
+- **Deutscher Musikrat ehrt Krüger, Grütters, Hülsmann & Mertens**: [Link](https://www.verbandsbuero.de/deutscher-musikrat-ehrt-krueger-gruetters-huelsmann-mertens/)
+- **Gemeinsam für ein starkes Musikleben: Präsidium des Deutschen Musikrats mit Prof. Lydia Grün als Präsidentin neu gewählt**: [Link](https://www.musikrat.de/media/aktuelles/meldung/gemeinsam-fuer-ein-starkes-musikleben-praesidium-des-deutschen-musikrats-mit-prof-lydia-gruen-als-praesidentin-neu-gewaehlt)
+
+
+### energie cottbus - rb leipzig (N/A, 28/10/2025 15:28 Lima)
+
+- **RB Leipzig: TSG Hoffenheim macht Werbung fürs „Unbeliebtico“ - News vom 28.10.2025**: [Link](https://www.lvz.de/sport/regional/rb-leipzig-tsg-hoffenheim-macht-werbung-fuers-unbeliebtico-news-vom-28-10-2025-FEUNU4PZA4TRPOCCO5RAO35JFA.html)
+- **Willi Orban vor dem nächsten Rekord – Fakten zu #FCERBL**: [Link](https://www.ubirataonline.com.br/willi-orban-vor-dem-nachsten-rekord-fakten-zu-fcerbl/)
+- **Cottbus-Experte Werner will Stress in der Lausitz vermeiden**: [Link](https://www.blick.de/sport/cottbus-experte-werner-will-stress-in-der-lausitz-vermeiden-artikel14007230)
+
+
+### mönchengladbach - karlsruher (N/A, 28/10/2025 15:28 Lima)
+
+- **Borussia Mönchengladbach: Philipp Sander kämpft auch für Eugen Polanski**: [Link](https://www.bild.de/sport/fussball/borussia-moenchengladbach-philipp-sander-kaempft-auch-fuer-eugen-polanski-68ff9e69c008edcf0c85551f)
+- **Gladbach gegen den Karlsruher SC: Darum kann der Pokal für Borussia psychologisch wertvoll sein**: [Link](https://rp-online.de/sport/fussball/borussia/gladbach-der-dfb-pokal-bietet-polanskis-team-chancen_aid-137774485)
+- **Kastanienwurf, Pfostenbruch, Fohlen und mehr...**: [Link](https://www.ksc.de/profis/saison/dfb-pokal/show/article/kastanienwurf-pfostenbruch-fohlen-und-mehr/)
+
+
+### cometa 3i atlas (N/A, 28/10/2025 15:28 Lima)
+
+- **NASA não acionou protocolo de defesa contra visitante interestelar, garante especialista**: [Link](https://olhardigital.com.br/2025/10/27/ciencia-e-espaco/nasa-nao-acionou-protocolo-de-defesa-contra-visitante-interestelar-garante-especialista/)
+- **Cometa 3I/ATLAS atravessará a rota de sondas ativas nos próximos dias**: [Link](https://www.metropoles.com/ciencia/cometa-3i-atlas-atravessa-rota-sondas)
+- **NASA aciona alerta global contra ameaças espaciais; cometa "imprevisível"**: [Link](https://www.msn.com/pt-br/noticias/ciencia-e-tecnologia/nasa-aciona-alerta-global-contra-amea%C3%A7as-espaciais-cometa-imprevis%C3%ADvel/ar-AA1Pd3rD?cvid=6900a3d66578472f8ec1556f783fa8b3&ocid=hpmsn)
+
+
+### grimsby town - brentford (N/A, 28/10/2025 15:28 Lima)
+
+- **Andrews: Squad to be utilised for Grimsby tie**: [Link](https://www.brentfordfc.com/en/news/article/first-team-grimsby-town-v-brentford-carabao-cup-keith-andrews)
+- **My day with Grimsby's cup heroes - and what makes the Mariners special**: [Link](https://www.dailymail.co.uk/sport/football/article-15232187/Grimsby-cup-heroes-Brentford-Man-Utd.html)
+- **Tuesday's EFL Cup and League One predictions, betting odds and tips: No sting in the tail for the Premier League Bees**: [Link](https://www.racingpost.com/sport/football-tips/efl-cup/tuesday-football-tips-efl-cup-league-one-ayARb8X7whbK/)
+
+
+### wycombe wanderers - fulham (N/A, 28/10/2025 15:28 Lima)
+
+- **Former Gunner suffers another injury**: [Link](https://dailycannon.com/2025/10/smith-rowe-fulham-hamstring-injury/)
+- **EFL Cup: Super Eagles star out of contention as Fulham prepare for Wycombe Wanderers**: [Link](https://soccernet.ng/2025/10/super-eagles-fulham-wycombe-wanderers.html)
+- **First Half: Wycombe 1-0 Fulham**: [Link](https://www.wwfc.com/news/2025/october/28/wycombe-vs-fulham/)
+
+
+### atalanta - milan (N/A, 28/10/2025 15:28 Lima)
+
+- **Atalanta-Milan: Formazioni ufficiali e Cronaca in diretta**: [Link](https://sport.virgilio.it/dirette/live/serie-a/28-10-2025/atalanta-milan/2558588/)
+- **Tare svela a quali condizioni interverrà il Milan sul mercato a gennaio e sugli infortuni: "Non era previsto"**: [Link](https://tribuna.com/it/news/2025-10-28-tare-svela-a-quali-condizioni-interverra-il-milan-sul-mercato-a-gennaio-e-sugli-infortuni/)
+- **Sfida al Milan delle assenze. Ma con un'Atalanta malata di "pareggite" c'è poco da stare... Allegri**: [Link](https://www.valbrembanaweb.com/redazionale/sfida-al-milan-delle-assenze-ma-con-unatalanta-malata-di-pareggite-ce-poco-da-stare-allegri/)
+
+
+### suecia - españa (N/A, 28/10/2025 15:28 Lima)
+
+- **Suecia 0 - España 1: resumen, goles y resultado de las semifinales de la UEFA Nations League**: [Link](https://as.com/futbol/femenino/suecia-espana-en-directo-semifinales-de-la-uefa-nations-league-hoy-en-vivo-f202510-d/)
+- **Suecia - España en directo | Semifinales Nations League Femenina hoy en vivo**: [Link](https://www.marca.com/futbol/uefa-nations-league-femenina/suecia-espana/2025/10/28/01_01122_20251028_6246_7649-directo.html)
+- **Suecia-España: Alineaciones probables, estadísticas y cómo ver por TV y online (19:00)**: [Link](https://espanol.eurosport.com/futbol/uefa-women-s-nations-league/2025/suecia-espana-alineaciones-probables-previa-estadisticas-horario-como-donde-ver-television-online-streaming-hoy_sto23235298/story.shtml)
+
+
+### atalanta vs milan (N/A, 28/10/2025 15:28 Lima)
+
+- **Gallery: ‘Lookman-Leao at full speed’, ‘Max pushes Milan’ – Today’s front pages in Italy**: [Link](https://sempremilan.com/front-pages-28-october-atalanta-milan)
+- **Juric: ‘Sorry for Tudor; Atalanta must improve in every area’**: [Link](https://football-italia.net/juric-sorry-for-tudor-atalanta-must-improve/)
+- **Ruben Loftus-Cheek vs. Atalanta – Player props & odds to score a goal on October 28**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/10/28/ruben-loftus-cheek-soccer-player-props-10-28-2025/86940144007/)
+
+
 ### al hilal (N/A, 28/10/2025 11:33 Lima)
 
 - **Al Okhdood vs Al Hilal: Live streaming, TV channel, kick-off time & where to watch King's Cup 2025-26**: [Link](https://khelnow.com/football/world-football-al-okhdood-vs-al-hilal-where-to-watch-kings-cup-202510)
@@ -955,75 +1025,5 @@ Sin noticias relacionadas disponibles.
 - **Athletic - Getafe, en directo: LaLiga EA Sports hoy, en vivo**: [Link](https://as.com/futbol/primera/athletic-getafe-en-directo-laliga-ea-sports-hoy-en-vivo-f202510-d/)
 - **Apuestas y Pronóstico del Athletic Club vs Getafe 25/10/25**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2025/octubre/pronostico-athletic-club-vs-getafe-25-10-25)
 - **LaLiga EA Sports: Athletic Bilbao recibirá a Getafe por la fecha 10**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-athletic-bilbao-recibira-a-getafe-por-la-fecha-10-noticia-1660766)
-
-
-### napoli - inter (N/A, 25/10/2025 11:27 Lima)
-
-- **Napoli-Inter, diretta Serie A: risultato in tempo reale, il big match tra Conte e Chivu**: [Link](https://www.tuttosport.com/news/calcio/serie-a/2025/10/25-144054416/napoli-inter_diretta_serie_a_risultato_in_tempo_reale_il_big_match_tra_conte_e_chivu)
-- **A Dazn: «È successo anche a noi, sappiamo cosa significa. Chivu è l'uomo giusto, è riuscito a ridarci entusiasmo»**: [Link](https://www.facebook.com/story.php?story_fbid=1335550271916958&id=100063859936263)
-- **Le formazioni di Napoli - Inter: le scelte di Conte**: [Link](https://www.virgilio.it/italia/napoli/notizielocali/le_formazioni_di_napoli_inter_le_scelte_di_conte-75926982.html)
-
-
-### napoli vs inter (N/A, 25/10/2025 11:27 Lima)
-
-- **Football Tracker: Napoli hosting Inter in Serie A blockbuster, PSG & Man Utd in action**: [Link](https://www.flashscore.com/news/football-tracker-napoli-hosting-inter-in-serie-a-blockbuster-psg-man-utd-in-action/8QLdZZs9/)
-- **Lucca and Bonny take diverging paths after summer transfers**: [Link](https://football-italia.net/lucca-bonny-diverging-paths-summer-transfers/)
-- **Manna: ‘Napoli not looking for alibis or a negative vortex’**: [Link](https://onefootball.com/de/news/manna-napoli-not-looking-for-alibis-or-a-negative-vortex-41855761)
-
-
-### paris vs (N/A, 25/10/2025 11:27 Lima)
-
-- **Brest vs PSG LIVE Score Achraf Hakimi scores a brace (0-2)**: [Link](https://www.vavel.com/en-us/soccer/2025/10/25/1238919-brest-vs-psg-live-score-in-ligue-1.html)
-- **Luis Enrique unfazed by PSG losing Ligue 1 top spot ahead of Brest clash**: [Link](https://www.beinsports.com/en-asia/football/ligue-1/articles/luis-enrique-unfazed-by-psg-losing-ligue-1-top-spot-ahead-of-brest-clash-2025-10-24)
-- **Where to Watch Stade Brest 29 vs. Paris Saint-Germain: TV Channel, Start Time and Live Stream**: [Link](https://www.bleachernation.com/how-to-watch/2025/10/24/where-to-watch-stade-brest-29-vs-paris-saint-germain-tv-channel-start-time-and-live-stream-2/)
-
-
-### hamburg - wolfsburg (N/A, 25/10/2025 11:27 Lima)
-
-- **HSV mit Chancenwucher - VfL Wolfsburg siegt glücklich im Volkspark**: [Link](https://www.ndr.de/sport/fussball/hsv-mit-chancenwucher-vfl-wolfsburg-siegt-gluecklich-im-volkspark,hsv-wolfsburg-106.html)
-- **Daghim und Grabara beenden Wolfsburgs Durststrecke**: [Link](https://www.kicker.de/hsv-gegen-wolfsburg-2025-bundesliga-5050821/spielbericht)
-- **Dreier im Nordduell**: [Link](https://www.vfl-wolfsburg.de/newsdetails/news-detail/detail/news/dreier-im-nordduell)
-
-
-### avellino - spezia (N/A, 25/10/2025 11:27 Lima)
-
-- **«Arrabbiato per i quattro gol ma siamo in linea sul nostro obiettivo. Salvo la Curva Sud e Tutino»**: [Link](https://www.orticalab.it/Arrabbiato-per-i-quattro-gol-ma-siamo)
-- **Lo Spezia dilaga ad Avellino e l'Entella pareggia col Pescara a Chiavari**: [Link](https://telenord.it/lo-spezia-dilaga-ad-avellino-e-l-entella-pareggia-col-pescara-a-chiavari-95677)
-- **Aiello: “Dobbiamo ripartire, l’obiettivo resta consolidare la categoria”**: [Link](https://www.anteprima24.it/avellino/aiello-dobbiamo-ripartire-lobiettivo-resta-consolidare-la-categoria/)
-
-
-### parma - como (N/A, 25/10/2025 07:42 Lima)
-
-- **Serie A: Parma se enfrenta ante la visita Como 1907 por la fecha 8**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-parma-se-enfrenta-ante-la-visita-como-1907-por-la-fecha-8-noticia-1660750)
-- **Parma vs Como: pronóstico, apuestas, cuotas para el partido 25/10/2025**: [Link](https://legalbet.es/centro-apuestas/parma-como-1907-26-10-2025/)
-- **Parma vs Como: pronósticos, cuotas, transmisión y datos para apostar!**: [Link](https://www.apwin.com/es/pronosticos/parma-vs-como-pronostico-serie-a-25-10-2025/)
-
-
-### sydney - central coast (N/A, 25/10/2025 07:42 Lima)
-
-- **Round 2: Sydney Fc V Central Coast Mariners Ep. 184**: [Link](https://10.com.au/a-league/episodes/20252026/episode-184/tpv251025nwqgx)
-- **‘You have to be there!’ – Campuzano dissects his clever finish | A-League Men | 26 Oct 2025**: [Link](https://aleagues.com.au/videos/id/you-have-to-be-there-campuzano-dissects-his-clever-finish/6383942449112/)
-- **Talay confident Sydney’s Spanish ace will find scoring touch**: [Link](https://www.theaustralian.com.au/breaking-news/sydney-fc-coach-ufuk-talay-says-newlook-sky-blues-attack-is-a-work-in-progress/news-story/7a582813feba7d099b089c300d9daac7)
-
-
-### pedro castillo (N/A, 25/10/2025 07:42 Lima)
-
-- **Culmina audiencia de denuncia contra Pedro Castillo y Betssy Chávez por golpe de Estado**: [Link](https://comunicaciones.congreso.gob.pe/noticias/culmina-audiencia-de-denuncia-contra-pedro-castillo-y-betssy-chavez-por-golpe-de-estado/)
-- **Pedro Castillo llama “basura” a Fernando Rospigliosi en plena sesión de la Subcomisión**: [Link](https://www.infobae.com/peru/2025/10/24/pedro-castillo-llama-basura-a-fernando-rospigliosi-en-plena-sesion-de-la-subcomision/)
-- **Pedro Castillo: Avanza proceso en el Congreso que busca inhabilitarlo por golpe de Estado**: [Link](https://elcomercio.pe/politica/actualidad/pedro-castillo-avanza-proceso-en-el-congreso-que-busca-inhabilitarlo-por-golpe-de-estado-ultimas-noticia/)
-
-
-### precio del dólar perú (N/A, 25/10/2025 07:42 Lima)
-
-- **Precio del dólar cayó otra vez: Así cerró el tipo de cambio hoy 24 de octubre en Perú**: [Link](https://www.infobae.com/peru/2025/10/24/valor-de-apertura-del-dolar-en-peru-este-24-de-octubre-de-usd-a-pen/)
-- **El dólar ha sufrido una «tremenda caída del 9%»**: [Link](https://radiouno.pe/noticias/256610/el-dolar-ha-sufrido-una-tremenda-caida-del-9/)
-- **Dólar hoy: ¡Cae a menos de 3.41 soles! Descubre cómo influyen los factores externos**: [Link](https://satelite.pe/dolar-hoy-cae-a-menos-de-3-41-soles-descubre-como-influyen-los-factores-externos)
-
-
-### dolar hoy peru (N/A, 25/10/2025 03:27 Lima)
-
-- **Precio del dólar vuelve a caer: Así cerró el tipo de cambio hoy 23 de octubre en Perú**: [Link](https://www.infobae.com/peru/2025/10/22/peru-cotizacion-de-apertura-del-dolar-hoy-22-de-octubre-de-usd-a-pen/)
-- **Precio del dólar en Perú del viernes 24 de octubre: a cuánto cerró el tipo de cambio**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-a-cuanto-esta-el-dolar-y-tipo-de-cambio-este-viernes-24-de-octubre-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
-- **El dólar ha sufrido una «tremenda caída del 9%»**: [Link](https://radiouno.pe/noticias/256610/el-dolar-ha-sufrido-una-tremenda-caida-del-9/)
 
 
