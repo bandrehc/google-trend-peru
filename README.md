@@ -1,3 +1,31 @@
+### mlb (N/A, 27/10/2025 23:28 Lima)
+
+- **Who will win Dodgers-Blue Jays World Series? MLB scouts, execs and managers make their predictions**: [Link](https://www.espn.com/mlb/story/_/id/46687649/world-series-2025-mlb-toronto-blue-jays-los-angeles-dodgers-insiders-predictions-scouts)
+- **Best World Series Betting Sites, Apps, Odds & Promos for Blue Jays vs Dodgers Game 3**: [Link](https://ftw.usatoday.com/story/sports/mlb/2025/10/27/best-world-series-betting-sites-apps-odds-promos-blue-jays-dodgers-game-3/86837230007/)
+- **Where to watch Blue Jays vs. Dodgers World Series Game 3 for free today**: [Link](https://www.cleveland.com/tv/2025/10/where-to-watch-blue-jays-vs-dodgers-world-series-game-3-for-free-today.html)
+
+
+### dodgers (N/A, 27/10/2025 23:28 Lima)
+
+- **Dodger fans rain boos down on George Springer as Game 3 begins - The Athletic**: [Link](https://www.nytimes.com/athletic/6755120/2025/10/27/george-springer-blue-jays-dodgers-world-series-boos/)
+- **Toronto Blue Jays manager John Schneider said his team's starting hitter George Springer would not b..**: [Link](https://www.mk.co.kr/en/sports/11453130)
+- **Dave Roberts Subtly Encourages Dodgers Fans to Boo Controversial $150M Blue Jays Star With Sly Shade**: [Link](https://www.essentiallysports.com/mlb-baseball-news-dave-roberts-subtly-encourages-dodgers-fans-to-boo-controversial-one-fifety-million-dollar-blue-jays-star-with-sly-shade/)
+
+
+### lakers - trail blazers (N/A, 27/10/2025 23:28 Lima)
+
+- **Trail Blazers vs Lakers Prediction, Pick, Odds for Monday, October 27**: [Link](https://www.actionnetwork.com/nba/trail-blazers-vs-lakers-prediction-pick-odds-for-monday-october-27)
+- **Los Angeles hosts Portland following Reaves' 51-point performance**: [Link](https://www.washingtonpost.com/sports/nba/2025/10/27/trail-blazers-lakers-preview/aa534dce-b2fa-11f0-88c1-4e2f98984a34_story.html)
+- **Final Injury Report for Trail Blazers-Lakers, Will Luka Doncic, Jaxson Hayes Play?**: [Link](https://sports.yahoo.com/article/final-injury-report-trail-blazers-223000834.html)
+
+
+### warriors - grizzlies (N/A, 27/10/2025 23:28 Lima)
+
+- **Preview: Warriors welcome injured Grizzlies to Chase Center**: [Link](https://www.goldenstateofmind.com/warriors-game-previews/104276/preview-warriors-welcome-injured-grizzlies-to-chase-center)
+- **Grizzlies vs. Warriors Prediction, Odds and Best NBA Prop Bets for Monday, Oct. 27**: [Link](https://www.si.com/betting/grizzlies-vs-warriors-prediction-odds-and-best-nba-prop-bets-for-monday-oct-27)
+- **Memphis Grizzlies Injury Report vs Golden State Warriors (October 27, 2025)**: [Link](https://www.msn.com/en-in/entertainment/hollywood/memphis-grizzlies-vs-golden-state-warriors-regular-season-injury-report-who-s-playing-who-s-out-and-more-october-27-2025/ar-AA1PhJiT)
+
+
 ### minnesota vs (N/A, 27/10/2025 20:51 Lima)
 
 - **Nikola Jokic Player Props, Odds, and Lines vs. Minnesota Timberwolves**: [Link](https://news.bet365.com/en-us/article/nikola-jokic-player-props-odds-and-lines-vs-minnesota-timberwolves/2025102721071496311)
@@ -997,31 +1025,5 @@ Sin noticias relacionadas disponibles.
 - **Blue Jays' Daulton Varsho crushes a two-run homer to tie game at 2-2 against Dodgers**: [Link](https://www.foxsports.com/watch-vertical/fmc-2enxo0ezazsqedkh)
 - **World Series Roundtable**: [Link](https://www.jhunewsletter.com/article/2025/10/world-series-roundtable)
 - **Real Madrid: Kylian Mbappé named player of the month for the second time**: [Link](https://ca.sports.yahoo.com/news/real-madrid-kylian-mbapp-named-165500528.html)
-
-
-### concierto hoy lima (N/A, 24/10/2025 23:26 Lima)
-
-- **José Jerí declara el estado de emergencia en Lima y Callao: “Las guerras se ganan con acciones, no con palabras”**: [Link](https://elpais.com/america/2025-10-22/jose-jeri-declara-el-estado-de-emergencia-en-lima-y-callao-las-guerras-se-ganan-con-acciones-no-con-palabras.html)
-- **“Presidente, no vaya”: la ‘maldición’ que aleja a los jefes de Estado de las cárceles, según exjefe del INPE**: [Link](https://www.infobae.com/peru/2025/10/24/presidente-no-vaya-la-maldicion-que-aleja-a-los-jefes-de-estado-de-las-carceles-segun-exjefe-del-inpe/)
-- **Gobierno declara estado de emergencia en Lima y Callao por 30 días [Decreto Supremo 124-2025-PCM]**: [Link](https://lpderecho.pe/gobierno-jose-jeri-estado-emergencia-lima-callao/)
-
-
-### mazatlán - américa (N/A, 24/10/2025 23:26 Lima)
-
-- **América vs. Mazatlán en vivo: transmisión del partido por Liga MX**: [Link](https://elcomercio.pe/deporte-total/mexico/america-vs-mazatlan-en-vivo-online-gratis-por-liga-mx-via-tv-azteca-caliente-tv-amazon-prime-fox-futbol-libre-tv-a-que-hora-juegan-canal-que-transmite-y-donde-ver-por-internet-video-noticia/)
-- **Liga MX: Club América necesita los tres puntos para ser puntero**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-club-america-necesita-los-tres-puntos-para-ser-puntero-noticia-1660699)
-- **El pronóstico de la Inteligencia Artificial de ChatGPT para el partido Mazatlán vs América**: [Link](https://www.si.com/es-us/futbol/pronostico-inteligencia-artificial-chatgpt-mazatlan-vs-america-25-10-2025)
-
-
-### deportivo pereira - águilas doradas (N/A, 24/10/2025 20:48 Lima)
-
-- **Pereira vs. Águilas Doradas: jugadores no se presentan por "falta de pagos"**: [Link](https://www.espn.com.ar/futbol/colombia/nota/_/id/15862065/liga-betplay-deportivo-pereira-vs-aguilas-doradas-jugadores-no-se-presentan-falta-pagos)
-- **Por incumplimiento en sus pagos, jugadores de equipo dirigido por reconocido venezolano suspenderían sus actividades deportivas**: [Link](https://www.ntn24.com/noticias-deportes/por-incumplimiento-en-sus-pagos-jugadores-de-equipo-dirigido-por-reconocido-venezolano-suspenderian-sus-actividades-deportivas-586759)
-- **El cuadro risaraldense pasa por una situación crítica a nivel económico en los últimos meses, lo que llevó a los jugadores profesionales del club a tener complicaciones**: [Link](https://www.facebook.com/story.php?story_fbid=1260489319427161&id=100063983144594)
-
-
-### américa - junior (N/A, 24/10/2025 20:48 Lima)
-
-Sin noticias relacionadas disponibles.
 
 
