@@ -1,3 +1,31 @@
+### paro (N/A, 28/10/2025 07:50 Lima)
+
+- **Callao: chofer de combi fue baleado en la avenida Néstor Gambetta | Últimas | LIMA**: [Link](https://elcomercio.pe/lima/policiales/callao-chofer-de-combi-fue-baleado-en-la-avenida-nestor-gambetta-ultimas-noticia/)
+- **Sicarios asesinan a conductor en el Callao y transportistas bloquean avenida**: [Link](https://caretas.pe/nacional/sicarios-asesinan-a-conductor-en-el-callao-y-transportistas-bloquean-avenida/)
+- **Ventanilla: Bloquean avenida Gambetta en protesta por incremento de extorsiones**: [Link](https://gestion.pe/peru/ventanilla-bloquean-avenida-gambetta-en-protesta-por-extorsiones-y-asesinato-a-conductor-noticia/)
+
+
+### paro de transportistas (N/A, 28/10/2025 07:50 Lima)
+
+- **🔴🔵#ExitosaPerú🇵🇪🇵🇪 | En entrevista con Exitosa, el vicepresidente de la Alianza Nacional de Transportistas, Julio Campos, aseguró que el estado de emergencia no es una medida eficaz contra la inseguridad ciudadana. 📻 95.5 FM 📡 6.1 señal digital abier**: [Link](https://www.facebook.com/story.php?story_fbid=1257385513091171&id=100064592023543)
+- **Transportistas anuncian paro nacional en noviembre y cuestionan estado de emergencia de José Jerí: “La situación se ha agravado”**: [Link](https://larepublica.pe/sociedad/2025/10/27/transportistas-anuncian-paro-nacional-en-noviembre-y-cuestionan-estado-de-emergencia-de-jose-jeri-la-situacion-se-ha-agravado-ntpe-734859)
+- **Asociación Nacional de Conductores cuestiona medidas del gobierno contra crimen: "Se ha agravado not**: [Link](https://www.apnoticias.pe/peru/exitosa-noticias/asociacion-nacional-de-conductores-cuestiona-medidas-del-gobierno-contra-crimen-se-ha-agravado-notablemente-1465965)
+
+
+### recorrido señor de los milagros (N/A, 28/10/2025 07:50 Lima)
+
+- **Señor de los Milagros EN VIVO: sigue el quinto recorrido procesional de la sagrada imagen**: [Link](https://elcomercio.pe/lima/sucesos/senor-de-los-milagros-hoy-en-vivo-quinto-recorrido-procesional-detalles-y-horario-del-martes-28-de-octubre-de-2025-lbposting-noticia/)
+- **Conoce las desvíos del transporte público por el quinto recorrido del Señor de los Milagros**: [Link](https://caretas.pe/nacional/conoce-las-desvios-del-transporte-publico-por-el-quinto-recorrido-del-senor-de-los-milagros/)
+- **Señor de los Milagros recorre las calles de Lima en su quinta procesión del año**: [Link](https://rpp.pe/videos/la-rotativa-del-aire/senor-de-los-milagros-recorre-las-calles-de-lima-en-su-quinta-procesion-del-ano-noticia-1661278)
+
+
+### retiro afp retiro (N/A, 28/10/2025 07:50 Lima)
+
+- **Retiro-AFP 2025, LINK: Inicia tu trámite desde hoy y accede al desembolso de hasta 4 UIT**: [Link](https://elcomercio.pe/respuestas/tramites/link-retiro-afp-hoy-quien-solicita-hoy-el-desembolso-de-hasta-4-uit-consulta-con-dni-el-cronograma-y-plataforma-oficial-tdpe-noticia/)
+- **Retiro AFP 2025: afiliados tienen tres oportunidades para presentar solicitud**: [Link](https://andina.pe/agencia/noticia-retiro-afp-2025-afiliados-tienen-tres-oportunidades-para-presentar-solicitud-1049510.aspx)
+- **[GUÍA] Retiro de AFP 2025: estos son los pasos a seguir para presentar tu solicitud y así acceder a tus fondos**: [Link](https://rpp.pe/economia/economia/retiro-afp-2025-estos-son-los-pasos-para-registrar-tu-solicitud-por-el-desembolso-de-tus-fondos-noticia-1660521)
+
+
 ### copa del rey (N/A, 28/10/2025 03:33 Lima)
 
 - **El Oviedo de Carrión busca seguir creciendo en la Copa del Rey**: [Link](https://as.com/futbol/copa_del_rey/el-oviedo-de-carrion-busca-seguir-creciendo-en-la-copa-del-rey-f202510-n/)
@@ -997,33 +1025,5 @@ Sin noticias relacionadas disponibles.
 - **Relocalización, energía y tecnología: el nuevo mapa estratégico entre América Latina y Estados Unidos**: [Link](https://www.infobae.com/peru/2025/10/24/relocalizacion-energia-y-tecnologia-el-nuevo-mapa-estrategico-entre-america-latina-y-estados-unidos/)
 - **Nuevo frente energético entre EE. UU. y China pasa por América**: [Link](https://mascontainer.com/nuevo-frente-energetico-entre-ee-uu-y-china-pasa-por-america/)
 - **Ciudad del Este, en Paraguay, en la mira de EE. UU. por su energía estratégica**: [Link](https://www.revistaeconomia.com/ciudad-del-este-en-paraguay-en-la-mira-de-ee-uu-por-su-energia-estrategica/)
-
-
-### mario vargas llosa (N/A, 24/10/2025 23:26 Lima)
-
-- **Familia de Mario Vargas Llosa evalúa demandar a Isabel Preysler por publicar cartas íntimas del Nobel: “Un auténtico desprestigio”**: [Link](https://www.infobae.com/peru/2025/10/24/mario-vargas-llosa-familia-de-mario-vargas-llosa-evalua-demandar-a-isabel-preysler-por-publicar-cartas-intimas-de-su-padre-un-autentico-desprestigio/)
-- **"Te diré cosas hermosas y dulces al oído mientras te hago el amor": Isabel Preysler publica las apasionadas cartas de amor de Mario Vargas Llosa**: [Link](https://www.vanitatis.elconfidencial.com/famosos/2025-10-22/isabel-preysler-cartas-amor-mario-vargas-llosa-pasion-hago-el-amor_4232718/)
-- **La autobiografía de Isabel Preysler en 10 frases: del “estás muy mal educado” al “cuando se me desmoronó la nariz todos quisieron salir corriendo”**: [Link](https://elpais.com/gente/2025-10-23/la-autobiografia-de-isabel-preysler-en-10-frases-del-estas-muy-mal-educado-al-cuando-se-me-desmorono-la-nariz-todos-quisieron-salir-corriendo.html)
-
-
-### america vs (N/A, 24/10/2025 23:26 Lima)
-
-- **¿Quién es Patricio Salas? La sorpresa en el Mazatlán vs América**: [Link](https://www.365scores.com/es/news/patricio-salas-hoy-quien-es-vs-mazatlan/)
-- **André Jardine le descubrió su nueva posición en el partido del Club América vs Puebla**: [Link](https://americamonumental.bolavip.com/ligamx/andre-jardine-le-descubrio-su-nueva-posicion-en-el-partido-del-club-america-vs-puebla)
-- **¿Quién es el delantero que podría sentar a Maximin en el América? Ya tuvo minutos en la última fecha**: [Link](https://www.tvazteca.com/aztecadeportes/quien-es-patricio-salas-delantero-podria-sentar-maximin-america-pb-notas)
-
-
-### categoría primera a (N/A, 24/10/2025 23:26 Lima)
-
-- **Nacional sale por la clasificación con su goleador Morelos ante un DIM con bajas**: [Link](https://www.espn.com.ar/futbol/colombia/nota/_/id/15860430/nacional-vs-medellin-fecha-17-liga-betplay-equipo-fecha-hora-y-tv-en-vivo)
-- **DT Diego Arias sobre Marino previo al clásico ante Medellín: "Confiamos en que va a hacer goles importantes"**: [Link](https://onefootball.com/en/news/dt-diego-arias-sobre-marino-previo-al-clasico-ante-medellin-confiamos-en-que-va-a-hacer-goles-importantes-41851770)
-- **El clásico paisa se escuchará por la Radio Nacional de Colombia | Señal Colombia**: [Link](https://www.senalcolombia.tv/deportes/nacional-vs-medellin-domingo-26-octubre-radio-nacional)
-
-
-### mon laferte (N/A, 24/10/2025 23:26 Lima)
-
-- **Uforia New Music Picks: Grupo Frontera, Elena Rose, Gabito Ballesteros, Mon Laferte y más**: [Link](https://www.univision.com/musica/uforia-new-music-picks-grupo-frontera-elena-rose-gabito-ballesteros-mon-laferte-y-mas)
-- **Kapo, Yandel, Rauw Alejandro, Mon Laferte y Armenta, entre estrenos musicales semanales**: [Link](https://revistaq.mx/espectaculos/kapo-yandel-rauw-alejandro-mon-laferte-y-armenta-entre-estrenos-musicales-semanales/)
-- **Mon Laferte, TIMØ y Anddy Caicedo: los mejores lanzamientos para disfrutar el fin de semana**: [Link](https://www.publimetro.co/entretenimiento/2025/10/24/mon-laferte-timo-y-anddy-caicedo-los-mejores-lanzamientos-para-disfrutar-el-fin-de-semana/)
 
 
