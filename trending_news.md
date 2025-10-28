@@ -1,3 +1,59 @@
+### al hilal (N/A, 28/10/2025 11:33 Lima)
+
+- **Al Okhdood vs Al Hilal: Live streaming, TV channel, kick-off time & where to watch King's Cup 2025-26**: [Link](https://khelnow.com/football/world-football-al-okhdood-vs-al-hilal-where-to-watch-kings-cup-202510)
+- **Al Okhdood vs Al Hilal Preview, prediction, lineups, betting tips & odds | King's Cup 2025-26**: [Link](https://khelnow.com/football/world-football-al-okhdood-vs-al-hilal-preview-202510)
+- **Al Okhdood vs Al Hilal: Live streaming, TV channel, kick-off time & where to watch King's Cup 2025-26**: [Link](https://khelnow.com/football/world-football-al-okhdood-vs-al-hilal-where-to-watch-kings-cup-202510)
+
+
+### grokipedia (N/A, 28/10/2025 11:33 Lima)
+
+- **Elon Musk's Grokipedia Pushes Far-Right Talking Points**: [Link](https://www.wired.com/story/elon-musk-launches-grokipedia-wikipedia-competitor/)
+- **Musk launches Grokipedia to rival 'left-biased' Wikipedia**: [Link](https://www.yahoo.com/news/articles/musk-launches-grokipedia-rival-left-154555025.html)
+- **Elon Musk Challenges Wikipedia With His Own A.I. Encyclopedia**: [Link](https://www.nytimes.com/2025/10/27/technology/grokipedia-launch-elon-musk.html)
+
+
+### retiro afp 2025 (N/A, 28/10/2025 11:33 Lima)
+
+- **Retiro de AFP 2025: desde hoy 28 de octubre, este nuevo grupo ya puede tramitarlo**: [Link](https://www.infobae.com/peru/2025/10/26/desde-el-28-de-octubre-este-nuevo-grupo-podra-solicitar-el-retiro-de-afp-revisa-aqui-el-cronograma-2025/)
+- **🧾 Link Retiro AFP 2025: consulta aquí dónde enviar tu solicitud hoy para retirar hasta S/ 21,400 de las 4 UIT**: [Link](https://gestion.pe/mix/mi-bolsillo/link-retiro-afp-2025-consulta-aqui-donde-enviar-tu-solicitud-hoy-para-retirar-hasta-s-21400-de-las-4-uit-cronograma-prima-habitat-integra-nnda-nnrt-noticia/)
+- **Retiro AFP 2025: afiliados tienen tres oportunidades para presentar solicitud**: [Link](https://andina.pe/agencia/noticia-retiro-afp-2025-afiliados-tienen-tres-oportunidades-para-presentar-solicitud-1049510.aspx)
+
+
+### jamaica (N/A, 28/10/2025 11:33 Lima)
+
+- **Jamaica’s Major Airports Closed Ahead of Hurricane Melissa**: [Link](https://jis.gov.jm/jamaicas-major-airports-closed-ahead-of-hurricane-melissa/)
+- **Hurricane Melissa live updates: Power cuts hit Jamaica as storm nears**: [Link](https://www.bbc.com/news/live/cvgvexdjp1xt)
+- **Hurricane Melissa on path to historic Jamaica landfall as conditions worsen: Live updates**: [Link](https://www.cnn.com/weather/live-news/hurricane-melissa-jamaica-landfall-tuesday-climate)
+
+
+### code (N/A, 28/10/2025 11:33 Lima)
+
+- **Dabble Promo Code WTOP: Claim $25 Bonus for NBA This Week**: [Link](https://wtop.com/sports/2025/10/dabble-promo-code-wtop-claim-25-bonus-for-nba-this-week/)
+- **Dabble Fantasy Promo Code HANDLE Scores $25 Sign-Up Bonus for Week 8 NFL Games Today**: [Link](https://sportshandle.com/dabble-fantasy-promo-code-handle-scores-25-signup-bonus-week-8-nfl-games-today/)
+- **Dabble promo code GRINDERS: Net $25 no deposit sports equinox promo**: [Link](https://rotogrinders.com/articles/dabble-promo-code-grinders-net-25-no-deposit-sports-equinox-promo-4154028)
+
+
+### javier eduardo franco castillo (N/A, 28/10/2025 11:33 Lima)
+
+- **Designan a Javier Eduardo Franco Castillo como nuevo jefe de la Sunat: predecesor duró menos de un mes en el cargo**: [Link](https://rpp.pe/politica/gobierno/designan-a-javier-eduardo-franco-castillo-como-nuevo-jefe-de-la-sunat-predecesor-duro-menos-de-un-mes-en-el-cargo-noticia-1661273)
+- **Poder Ejecutivo designó a Javier Eduardo Franco Castillo como nuevo superintendente de la Sunat**: [Link](https://www.elperuano.pe/noticia/281743-poder-ejecutivo-designo-a-javier-eduardo-franco-castillo-como-nuevo-superintendente-de-la-sunat)
+- **¿Un nuevo cambio en Sunat? La discusión sobre la mesa de PCM**: [Link](https://gestion.pe/economia/un-nuevo-cambio-en-sunat-la-discusion-sobre-la-mesa-de-pcm-noticia/)
+
+
+### dfb pokal (N/A, 28/10/2025 11:33 Lima)
+
+- **#SGEBVB – Wild ?**: [Link](https://onefootball.com/de/news/sgebvb-wild-41867289)
+- **Gutes Omen? Als Trainer überstand Niko Kovac immer die ersten beiden Runden im DFB-Pokal**: [Link](https://tribuna.com/de/news/2025-10-28-gutes-omen-als-trainer-uberstand-niko-kovac-immer-die-ersten-beiden-runden-im-dfbpokal/)
+- **Als sich die Dortmunder und Frankfurter Fans verbündeten | Wisst ihr noch ...? | Video**: [Link](https://www.kicker.at/als-sich-die-dortmunder-und-frankfurter-fans-verbuendeten-1159843/video)
+
+
+### san judas tadeo (N/A, 28/10/2025 11:33 Lima)
+
+- **Qué santo se recuerda hoy, 28 de octubre**: [Link](https://www.perfil.com/noticias/cultura/san-judas-tadeo-el-apostol-de-las-causas-desesperadas-a35.phtml)
+- **Metro CDMX y Metrobús hoy 28 de octubre: hay ajustes en líneas por celebraciones a San Judas Tadeo**: [Link](https://www.infobae.com/mexico/2025/10/28/metro-cdmx-y-metrobus-hoy-28-de-octubre/)
+- **“San Judas nunca nos deja solos”: Miles de regios se unen en fe y devoción en su día**: [Link](https://www.milenio.com/comunidad/con-veladoras-promesas-la-fe-une-miles-monterrey-san-judas-tadeo)
+
+
 ### paro (N/A, 28/10/2025 07:50 Lima)
 
 - **Callao: chofer de combi fue baleado en la avenida Néstor Gambetta | Últimas | LIMA**: [Link](https://elcomercio.pe/lima/policiales/callao-chofer-de-combi-fue-baleado-en-la-avenida-nestor-gambetta-ultimas-noticia/)
@@ -969,61 +1025,5 @@ Sin noticias relacionadas disponibles.
 - **Precio del dólar vuelve a caer: Así cerró el tipo de cambio hoy 23 de octubre en Perú**: [Link](https://www.infobae.com/peru/2025/10/22/peru-cotizacion-de-apertura-del-dolar-hoy-22-de-octubre-de-usd-a-pen/)
 - **Precio del dólar en Perú del viernes 24 de octubre: a cuánto cerró el tipo de cambio**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-a-cuanto-esta-el-dolar-y-tipo-de-cambio-este-viernes-24-de-octubre-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
 - **El dólar ha sufrido una «tremenda caída del 9%»**: [Link](https://radiouno.pe/noticias/256610/el-dolar-ha-sufrido-una-tremenda-caida-del-9/)
-
-
-### chelsea vs sunderland (N/A, 25/10/2025 03:27 Lima)
-
-- **Training gallery: Sunderland in our sights | News | Official Site**: [Link](https://www.chelseafc.com/en/news/article/training-gallery-sunderland-in-our-sights)
-- **Haway The Podcast | MATCHDAY PREVIEW | Chelsea v SAFC | It’s A Tough Test In The Capital For Sunderland!**: [Link](https://rokerreport.sbnation.com/haway-the-podcast/111733/haway-the-podcast-matchday-preview-chelsea-v-safc-its-a-tough-test-in-the-capital-for-sunderland)
-- **Estevao benched, Joao Pedro role confirmed in eight changes - Predicted Chelsea XI vs Sunderland**: [Link](https://www.football.london/chelsea-fc/news/estevao-benched-joao-pedro-role-32743303)
-
-
-### ufc 321 (N/A, 25/10/2025 03:27 Lima)
-
-- **Who’s fighting on the UFC card tonight, October 25, 2025? – Full UFC 321 main and prelim card lineup, fighter records, and key highlights**: [Link](https://www.sportskeeda.com/mma/news-who-s-fighting-ufc-card-tonight-october-25-2025-full-ufc-321-main-prelim-card-lineup-fighter-records-key-highlights)
-- **‘All the hype is real’: Dricus du Plessis predicts Tom Aspinall vs. Ciryl Gane headliner at UFC 321**: [Link](https://www.mmafighting.com/ufc/450420/all-the-hype-is-real-dricus-du-plessis-predicts-tom-aspinall-vs-ciryl-gane-headliner-at-ufc-321)
-- **Major Storylines Heading Into UFC 321: Weigh-In Drama, Team Khabib in Spotlight, Co-Main Under Fire**: [Link](https://www.essentiallysports.com/ufc-mma-news-major-storylines-heading-into-ufc-321-weigh-in-drama-team-khabib-in-spotlight-co-main-under-fire/)
-
-
-### cometa 3i atlas nasa (N/A, 25/10/2025 03:27 Lima)
-
-- **El cometa 3I/ATLAS: ¿Podrán las misiones Europa Clipper de la NASA y Hera de ESA atravesar su cola? | MAG**: [Link](https://elcomercio.pe/mag/respuestas/ciencias/el-cometa-3iatlas-podran-las-misiones-europa-clipper-de-la-nasa-y-hera-de-esa-atravesar-su-cola-nnda-nnni-noticia/)
-- **Los orbitadores de Marte capturan las imágenes más cercanas del raro visitante interestelar 3I/ATLAS**: [Link](https://larepublica.pe/ciencia/2025/10/19/las-sondas-orbitantes-de-marte-capturan-las-imagenes-mas-cercanas-del-raro-visitante-interestelar-3iatlas-1672152)
-- **El problema del científico despierta la advertencia mientras los visitantes de Itlerylar se esconden detrás del sol de la mañana**: [Link](https://www.elpueblo.pe/noticias-internacionales/el-problema-del-cientifico-despierta-la-advertencia-mientras-los-visitantes-de-itlerylar-se-esconden-detras-del-sol-de-la-manana/85305/)
-
-
-### nba (N/A, 25/10/2025 03:27 Lima)
-
-- **Indictment Alleging Participation in Sports Betting Scheme**: [Link](https://www.nytimes.com/interactive/2025/10/23/nyregion/nba-betting-scheme-indictment.html)
-- **Portland Trail Blazers coach Chauncey Billups charged in illegal poker operation tied to Mafia**: [Link](https://abcnews.go.com/US/miami-heat-terry-rozier-charged-nba-betting/story?id=126789368)
-- **Billups, Rozier arrested in gambling investigations**: [Link](https://www.espn.com/nba/story/_/id/46695228/sources-terry-rozier-arrested-part-gambling-inquiry)
-
-
-### lakers vs (N/A, 25/10/2025 03:27 Lima)
-
-- **How to watch Lakers vs. Timberwolves NBA game tonight on Prime Video: Start time, free stream**: [Link](https://www.pennlive.com/tv/2025/10/how-to-watch-lakers-vs-timberwolves-nba-game-tonight-on-prime-video-start-time-free-stream.html)
-- **Fanatics Sportsbook Promo: Get Up To A $2,000 FanCash Bonus Starting With A Bet On Timberwolves-Lakers**: [Link](https://www.covers.com/daily-promos/fanatics-sportsbook-promo-nba-timberwolves-lakers-10-24-2025)
-- **Lakers vs Wolves! Lakers’ Starters, Rotations, And A Chance For Revenge**: [Link](https://bvmsports.com/2025/10/24/lakers-vs-wolves-lakers-starters-rotations-and-a-chance-for-revenge/)
-
-
-### miguel boyer (N/A, 25/10/2025 03:27 Lima)
-
-- **"Te diré cosas hermosas y dulces al oído mientras te hago el amor": Isabel Preysler publica las apasionadas cartas de amor de Mario Vargas Llosa**: [Link](https://www.vanitatis.elconfidencial.com/famosos/2025-10-22/isabel-preysler-cartas-amor-mario-vargas-llosa-pasion-hago-el-amor_4232718/)
-- **Familia de Mario Vargas Llosa evalúa demandar a Isabel Preysler por publicar cartas íntimas del Nobel: “Un auténtico desprestigio”**: [Link](https://www.infobae.com/peru/2025/10/24/mario-vargas-llosa-familia-de-mario-vargas-llosa-evalua-demandar-a-isabel-preysler-por-publicar-cartas-intimas-de-su-padre-un-autentico-desprestigio/)
-- **Isabel Preysler aclara la polémica que más ha dañado a los Vargas Llosa: quién pagaba la buena vida en Puerta del Hierro del escritor**: [Link](https://www.mujerhoy.com/celebrities/isabel-preysler-memorias-polemica-vargas-llosa-gastos-casa-moraleja-20251023120454-nt.html)
-
-
-### antonio tafur (N/A, 25/10/2025 03:27 Lima)
-
-- **Antonio Tafur habla de su nueva vida en EEUU con su esposo: "Ya tengo mis papeles en regla, ha sido una bendición"**: [Link](https://www.atv.pe/noticia/antonio-tafur-habla-de-su-nueva-vida-en-eeuu-con-su-esposo-ya-tengo-mis-papeles-en-regla-ha-sido-una-bendicion/)
-- **Antonio Tafur, amigo de Rosángela, revela si adoptará un hijo con su esposo: ¿Qué dijo?**: [Link](https://trome.com/espectaculos/tv/antonio-tafur-amigo-de-rosangela-espinoza-revela-si-adoptara-un-hijo-con-esposo-foto-video-farandula-noticia/)
-- **Antonio Tafur bromea sobre la 'clave de éxito' de su matrimonio: "Yo hago los planes y él pone la plata"**: [Link](https://www.atv.pe/noticia/antonio-tafur-bromea-sobre-la-clave-de-exito-de-su-matrimonio-yo-hago-los-planes-y-el-pone-la-plata/)
-
-
-### america (N/A, 24/10/2025 23:26 Lima)
-
-- **Relocalización, energía y tecnología: el nuevo mapa estratégico entre América Latina y Estados Unidos**: [Link](https://www.infobae.com/peru/2025/10/24/relocalizacion-energia-y-tecnologia-el-nuevo-mapa-estrategico-entre-america-latina-y-estados-unidos/)
-- **Nuevo frente energético entre EE. UU. y China pasa por América**: [Link](https://mascontainer.com/nuevo-frente-energetico-entre-ee-uu-y-china-pasa-por-america/)
-- **Ciudad del Este, en Paraguay, en la mira de EE. UU. por su energía estratégica**: [Link](https://www.revistaeconomia.com/ciudad-del-este-en-paraguay-en-la-mira-de-ee-uu-por-su-energia-estrategica/)
 
 
