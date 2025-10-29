@@ -1,3 +1,69 @@
+### city (N/A, 29/10/2025 15:27 Lima)
+
+- **¡Manchester City ha usado nueve camisetas en 2025! Aquí un ranking**: [Link](https://www.espn.com.pe/futbol/inglaterra/nota/_/id/15882311/manchester-city-ha-usado-nueve-camisetas-en-2025-ranking)
+- **Detroit Voters Prepare to Elect New Mayor in First Open-Seat Race in 12 Years**: [Link](https://news.ssbcrack.com/detroit-voters-prepare-to-elect-new-mayor-in-first-open-seat-race-in-12-years/)
+- **WXYZ Channel 7 hosts 2025 mayoral debate**: [Link](https://oaklandpostonline.com/55235/showcase/wxyz-channel-7-hosts-2025-mayoral-debate/)
+
+
+### inter (N/A, 29/10/2025 15:27 Lima)
+
+- **Inter y Fiorentina se enfrentan en un duelo de realidades, por la Serie A**: [Link](https://www.espn.com.pe/futbol/italia/nota/_/id/15876219/inter-vs-fiorentina-serie-a-equipo-novena-fecha-hora-tv-en-vivo)
+- **Serie A: Inter busca derrotar a Fiorentina para subirse al liderato**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-inter-busca-derrotar-a-fiorentina-para-subirse-al-liderato-noticia-1661311)
+- **Pronóstico Inter - Fiorentina. Serie A | 29/10/2025**: [Link](https://gainblers.com/pe/pronosticos/futbol/italia/serie-a/pronostico-inter-fiorentina-29-10-2025/)
+
+
+### genoa - cremonese (N/A, 29/10/2025 15:27 Lima)
+
+Sin noticias relacionadas disponibles.
+
+
+### metz vs (N/A, 29/10/2025 15:27 Lima)
+
+- **Liga de Francia: Lens quiere el liderato del torneo frente a Metz**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-de-francia-lens-quiere-el-liderato-del-torneo-frente-a-metz-noticia-1661290)
+
+
+### inter vs (N/A, 29/10/2025 15:27 Lima)
+
+- **Preview:Inter Milan vs Fiorentina - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/inter-milan/preview/inter-milan-vs-fiorentina-prediction-team-news-lineups_584473.html)
+- **Inter Milan Vs Fiorentina – Italy Prodigy Desperate To Get Off The Mark At Meazza: “Hope The Goal At San Siro Comes”**: [Link](https://sempreinter.com/2025/10/29/inter-milan-fiorentina-pio-esposito-san-siro-goal/)
+- **Inter Milan Vs Fiorentina – Italy Teen Striker Urges Teammates To Forget Napoli Loss: “In The Past” Adds “I’ll Ask Dzeko For His Shirt”**: [Link](https://ca.sports.yahoo.com/news/inter-milan-vs-fiorentina-italy-200000314.html)
+
+
+### paris fc - lyon (N/A, 29/10/2025 15:27 Lima)
+
+- **EN DIRECT Multiplex Ligue 1 : Tolisso debloque déjà le compteur pour l'OL... Suivez les matchs avec nous**: [Link](https://www.20minutes.fr/sport/football/4182342-20251029-direct-multiplex-ligue-1-feu-artifice-buts-finir-soiree-beaute-suivez-matchs)
+- **Paris FC - OL : Abner et De Carvalho lancés dans le onze**: [Link](https://www.olympique-et-lyonnais.com/paris-fc-ol-abner-et-de-carvalho-lances-dans-le-onze,383677.html)
+- **PRONOS PARIS RMC Le pari football de Lionel Charbonnier du 29 octobre – Ligue 1**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-football-de-lionel-charbonnier-du-29-octobre-ligue-1_AN-202510280519.html)
+
+
+### spezia - calcio padova (N/A, 29/10/2025 15:27 Lima)
+
+- **Malmoe-Dinamo Zagabria 1-1: risultato finale e highlights**: [Link](https://sport.virgilio.it/dirette/live/europa-league/23-10-2025/malmoe-dinamo-zagabria/2602000/)
+- **Spezia Padova, formazioni ufficiali e risultato in diretta live**: [Link](https://sport.sky.it/calcio/serie-b/partite/2025/giornata-10/spezia-padova/risultato-gol)
+- **Pronostico Malmö - Dinamo Zagabria - Europa League**: [Link](https://www.sportytrader.it/pronostici/malmo-dinamo-zagabria-298867/)
+
+
+### copa inglesa (N/A, 29/10/2025 15:27 Lima)
+
+- **Cuando Pablo Hernández ganó la Copa (inglesa)**: [Link](https://castellonaldia.elmundo.es/deportes/cd-castellon/cuando-pablo-hernandez-gano-la-copa-inglesa-cd-castellon-futbol-copa-del-rey-GP25083261)
+- **Arsenal - Brighton hoy, en vivo: EFL Cup en directo**: [Link](https://as.com/futbol/internacional/arsenal-brighton-hoy-en-vivo-efl-cup-en-directo-f202510-d/)
+- **Arsenal vs Brighton: Apuestas, Pronóstico y Cuotas**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/2025/octubre/pronostico-arsenal-vs-brighton-29-10-25)
+
+
+### bologna vs (N/A, 29/10/2025 15:27 Lima)
+
+- **Serie A: Se enfrentan Bologna y Torino por la fecha 9**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-se-enfrentan-bologna-y-torino-por-la-fecha-9-noticia-1661310)
+- **Bologna vs Torino FC pronostico y comparación de cuotas 29.10.2025**: [Link](https://www.livetipsportal.com/es/pronosticos-apuestas-deportivas/bologna-vs-fc-torino-serie-a-11128845/)
+- **Santiago Thomas Castro vs. Torino FC – Player props & odds to score a goal on October 29**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/10/29/santiago-thomas-castro-soccer-player-props-10-29-2025/86958520007/)
+
+
+### nantes - mónaco (N/A, 29/10/2025 15:27 Lima)
+
+- **Pronóstico Toronto Raptors - Milwaukee Bucks - NBA**: [Link](https://www.sportytrader.es/pronosticos/toronto-raptors-milwaukee-bucks-300099/)
+- **Real Jaén - Eldense en directo | Copa del Rey hoy en vivo**: [Link](https://www.marca.com/futbol/copa-del-rey/real-jaen-eldense/2025/10/29/01_0105_20251029_2512_10182-directo.html)
+- **Giannis Antetokounmpo, y un récord insólito después de los tres primeros partidos con los Milwaukee Bucks**: [Link](https://www.sportingnews.com/es/nba/milwaukee-bucks/news/giannis-antetokounmpo-record-insolito-tres-primeros-partidos-milwaukee-bucks-nba/a30213f7d272c4a66bba8115)
+
+
 ### paderborn - leverkusen (N/A, 29/10/2025 11:33 Lima)
 
 - **Vazquez fehlt diesmal nicht wegen Verletzung - Tillman hofft auf Bayern**: [Link](https://www.kicker.de/vazquez-fehlt-diesmal-nicht-wegen-verletzung-tillman-hofft-auf-bayern-984048/artikel)
@@ -958,72 +1024,5 @@ Sin noticias relacionadas disponibles.
 - **LIVE eredivisie | Heitinga houdt tegen Twente vast aan Chelsea-basiself: Pasveer en McConnell starten**: [Link](https://www.ad.nl/voetbal/live-eredivisie-heitinga-houdt-tegen-twente-vast-aan-chelsea-basiself-pasveer-en-mcconnell-starten~a4eb02c2/)
 - **Ajax-supporters pakken groots uit met spandoek in Grolsch Veste**: [Link](https://www.twentefans.nl/ajax-supporters-pakken-groots-uit-met-spandoek-in-grolsch-veste/)
 - **Weghorst slaat meteen na rust toe en scoort in De Veste: 1-1**: [Link](https://www.tubantia.nl/fc-twente/weghorst-slaat-meteen-na-rust-toe-en-scoort-in-de-veste-1-1~af3543935/)
-
-
-### win (N/A, 26/10/2025 07:44 Lima)
-
-- **Manning injured as Longhorns rally for OT win**: [Link](https://www.espn.com/college-football/story/_/id/46726750/injured-arch-manning-exits-texas-rallies-ot-victory)
-- **Arch Manning hurt during Texas' dramatic comeback win over Mississippi State**: [Link](https://www.foxnews.com/sports/arch-manning-hurt-during-texas-dramatic-comeback-win-over-mississippi-state)
-- **Matthew Caldwell audibled to the game-winning TD throw**: [Link](https://www.burntorangenation.com/texas-longhorns-football/97357/matthew-caldwell-audibled-to-the-game-winning-td-throw)
-
-
-### hola (N/A, 26/10/2025 07:44 Lima)
-
-- **TINI lanza 'Down' y Rauw Alejandro estrena 'Silencio'**: [Link](https://www.hola.com/us-es/entretenimiento/20251025863456/tini-rauw-alejandro-viernes-musica-nueva/)
-- **Tini Stoessel: de Violetta a FUTTTURA**: [Link](https://www.c5n.com/ratingcero/tini-stoessel-violetta-futttura-n218751)
-- **"Down" es el nuevo himno de liberación de Tini**: [Link](https://www.lacoope.net/musica/down-nuevo-himno-liberacion-tini-n20907)
-
-
-### 3i atlas (N/A, 26/10/2025 03:28 Lima)
-
-- **The Imminent Solar Conjunction of 3I/ATLAS**: [Link](https://avi-loeb.medium.com/the-imminent-solar-conjunction-of-3i-atlas-264a6ccd441c)
-- **Manhattan-size interstellar object 3I/ATLAS emitting metal alloy never seen in nature: Harvard scientist**: [Link](https://nypost.com/2025/10/18/science/manhattan-sized-interstellar-object-3i-atlas-emitting-alloy-never-seen-in-nature-harvard-scientist/)
-- **NASA takes major steps to protect Earth from mysterious 'Manhattan-size' comet**: [Link](https://www.unilad.com/technology/space/comet-31-atlas-nasa-protect-earth-404292-20251025)
-
-
-### damiano david (N/A, 26/10/2025 03:28 Lima)
-
-- **Yo Soy 2025: Joao SORPRENDE con su imitación y caracterización de Damiano David, ¿Cómo le fue en el casting?**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-2025-joao-sorprende-con-su-imitacion-y-caracterizacion-de-damiano-david-como-le-fue-en-el-casting_20251026/)
-- **REPORT: DAMIANO DAVID 2025 AUSTRALIAN TOUR – SYDNEY & MELBOURNE**: [Link](https://australianmusician.com.au/report-damiano-david-2025-australian-tour-sydney-melbourne/)
-
-
-### arsenal vs crystal palace (N/A, 26/10/2025 03:28 Lima)
-
-- **Arteta delivers Gabriel update ahead of Palace | Press conference | News**: [Link](https://www.arsenal.com/news/arteta-delivers-gabriel-update-ahead-palace)
-- **'We know that it's a special match for Ebs': Arteta on Eze facing former side Crystal Palace**: [Link](https://tribuna.com/en/news/2025-10-25-we-know-that-its-a-special-match-for-ebs-arteta-on-eze-facing-former-side-crystal-palace/)
-- **Predicted Arsenal lineup against Crystal Palace: Trossard to start; Mosquera in for Gabriel**: [Link](https://thehardtackle.com/news/2025/10/26/predicted-arsenal-lineup-against-crystal-palace-trossard-to-start-mosquera-in-for-gabriel/)
-
-
-### friaje (N/A, 26/10/2025 03:28 Lima)
-
-- **Vuelve el frío: Senamhi anuncia llegada de nuevo friaje a Perú que afectará varias regiones del país**: [Link](https://www.infobae.com/peru/2025/10/26/vuelve-el-frio-senamhi-anuncia-llegada-de-nuevo-friaje-a-peru-que-afectara-varias-regiones-del-pais/)
-- **Indeci recomienda medidas de preparación ante descenso de temperatura diurna en la selva**: [Link](https://andina.pe/agencia/noticia-indeci-recomienda-medidas-preparacion-ante-descenso-temperatura-diurna-la-selva-1049658.aspx)
-- **Nuevo friaje ingresará por el sur del país y afectará varias regiones de la selva**: [Link](https://caretas.pe/nacional/nuevo-friaje-ingresara-por-el-sur-del-pais-y-afectara-varias-regiones-de-la-selva/)
-
-
-### lucia de la cruz (N/A, 26/10/2025 03:28 Lima)
-
-- **Lucía de la Cruz rompe en llanto y revela grave error: “De amar mucho, de idolatrar a mis hijos”**: [Link](https://trome.com/espectaculos/tv/lucia-de-la-cruz-rompe-en-llanto-y-revela-grave-error-de-amar-mucho-de-idolatrar-a-mis-hijos-foto-video-farandula-noticia/)
-- **Lucía de la Cruz: "Amo la música, es el complemento de mi vida"**: [Link](https://www.tvperu.gob.pe/novedades/miradas/lucia-de-la-cruz-amo-la-musica-es-el-complemento-de-mi-vida)
-
-
-### mlb (N/A, 26/10/2025 03:28 Lima)
-
-- **Shohei Ohtani Praised Amid Rob Manfred’s Revelation on MLB’s Bold Plan for 2028 LA Olympics**: [Link](https://www.essentiallysports.com/mlb-baseball-news-shohei-ohtani-praised-amid-rob-manfreds-revelation-on-mlbs-bold-plan-for-twenty-twenty-eight-la-olympics/)
-- **Manfred appears optimistic about MLB players in LA28, hurdles remain**: [Link](https://www.sportsbusinessjournal.com/Articles/2025/10/25/manfred-appears-optimistic-about-mlb-players-in-la28-hurdles-remain/)
-- **Rob Manfred thinks MLB players will be part of the 2028 Olympics**: [Link](https://www.bostonglobe.com/2025/10/25/sports/rob-manfred-mlb-world-series/)
-
-
-### susana baca (N/A, 25/10/2025 23:27 Lima)
-
-- **Susana Baca: "Estaba en UCI. Desperté gracias a que muchísima gente rezó por mí"**: [Link](https://peru21.pe/espectaculos/susana-baca-estaba-en-uci-desperte-gracias-que-muchisima-gente-rezo-por-mi/)
-- **Susana Baca regresa a la televisión a un año de salir de UCI y hace sensible confesión: "Desperté gracias a que muchísima gente rezó por mí"**: [Link](https://larepublica.pe/entretenimiento/2025/10/25/susana-baca-regresa-a-la-television-a-un-ano-de-salir-de-uci-y-hace-sensible-confesion-desperte-gracias-a-que-muchisima-gente-rezo-por-mi-548325)
-
-
-### the weeknd (N/A, 25/10/2025 23:27 Lima)
-
-- **“Yo soy”: Imitador obtiene una segunda oportunidad, cambia de personaje y pasa a la segunda ronda**: [Link](https://elcomercio.pe/tvmas/farandula/yo-soy-imitador-obtiene-una-segunda-oportunidad-cambia-de-personaje-y-pasa-a-la-segunda-ronda-ultimas-noticia/)
-- **Yo Soy 2025: participante regresa por SEGUNDA VEZ al casting con su imitación de The Weeknd, ¿Esta vez logrará pasar a la siguiente etapa?**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-2025-participante-regresa-por-segunda-vez-al-casting-con-su-imitacion-de-the-weeknd-esta-vez-lograra-pasar-a-la-siguiente-etapa_20251025/)
-- **Yo Soy 2025: Participante tiene SEGUNDA OPORTUNIDAD y sorprende al jurado como Elvis Presley**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-2025-participante-tiene-segunda-oportunidad-y-sorprende-al-jurado-como-elvis-presley_20251023/)
 
 
