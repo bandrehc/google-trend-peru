@@ -1,3 +1,24 @@
+### warriors - clippers (N/A, 28/10/2025 23:30 Lima)
+
+- **Warriors, Clippers trusting their experience as season begins**: [Link](https://www.nba.com/news/warriors-clippers-trust-experience-season-begins)
+- **Anthony Slater: Everyone expected is available for the …**: [Link](https://www.hoopshype.com/story/sports/nba/rumors/2025/10/28/anthony-slater-everyone-expected-is-available-for-the/86952370007/)
+- **FanDuel promo code: Wager $5, get $300 in bonus bets if your bet wins for Clippers vs. Warriors**: [Link](https://nypost.com/2025/10/28/betting/fanduel-promo-code-bet-5-get-300-in-bonus-bets-if-your-bet-wins-for-clippers-vs-warriors/)
+
+
+### copa libertadores (N/A, 28/10/2025 23:30 Lima)
+
+- **Racing busca dar vuelta la serie ante Flamengo y meterse en la gran final de la Copa Libertadores**: [Link](https://www.espn.com.ar/futbol/copa-libertadores/nota/_/id/15880237/racing-vs-flamengo-partido-de-vuelta-semifinales-copa-libertadores-2025-equipo-fecha-hora-y-tv-en-vivo)
+- **Costas eligió al reemplazante de Sosa y tiene dos dudas en el equipo de Racing para enfrentar a Flamengo en la Libertadores**: [Link](https://espndeportes.espn.com/futbol/copa-libertadores/nota/_/id/15880061/formacion-racing-vs-flamengo-partido-vuelta-semifinal-copa-libertadores-2025)
+- **Telefe en vivo, Racing vs. Flamengo hoy por semifinal de vuelta de la Copa Libertadores 2025**: [Link](https://elcomercio.pe/deporte-total/argentina/telefe-en-vivo-pelota-libre-tv-racing-vs-flamengo-hoy-gratis-online-via-mi-telefe-y-pluto-tv-por-semifinales-copa-libertadores-video-noticia/)
+
+
+### libertadores (N/A, 28/10/2025 23:30 Lima)
+
+- **Rivalidade entrará em campo em Racing x Flamengo; entenda**: [Link](https://jogada10.com.br/rivalidade-entrara-em-campo-em-racing-x-flamengo-entenda/)
+- **Avellaneda ou Buenos Aires? De onde é o Racing, rival do Flamengo**: [Link](https://placar.com.br/copa-libertadores/avellaneda-ou-buenos-aires-de-onde-e-o-racing-rival-do-flamengo)
+- **Luxemburgo dá dica para Filipe Luís conseguir classificar Flamengo contra o Racing: “Três atacantes que ven...**: [Link](https://br.bolavip.com/campeonato-libertadores/luxemburgo-da-dica-para-filipe-luis-conseguir-classificar-flamengo-contra-o-racing-tres-atacantes-que-venham-recompor)
+
+
 ### nasa cometa 3i atlas (N/A, 28/10/2025 20:58 Lima)
 
 - **Detectan posibles “maniobras inteligentes” en el cometa interestelar 3I/ATLAS: un experto afirma que estaría desacelerando de forma controlada | MAG**: [Link](https://elcomercio.pe/mag/respuestas/ciencias/detectan-posibles-maniobras-inteligentes-en-el-cometa-3iatlas-un-experto-afirma-que-estaria-desacelerando-de-forma-controlada-nnda-nnrt-noticia/)
@@ -1005,26 +1026,5 @@ Sin noticias relacionadas disponibles.
 - **Alianza Atlético vs Cienciano EN VIVO: hora, canal tv y dónde ver el Torneo Clausura**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/alianza-atletico-vs-cienciano-en-vivo-por-la-liga-1-a-que-hora-y-donde-ver-futbol-gratis-y-en-directo-por-el-torneo-clausura-tdpe-noticia/)
 - **Liga 1: Alianza Atlético y Cienciano se encuentran en la fecha 16**: [Link](https://rpp.pe/futbol/descentralizado/liga-1-alianza-atletico-y-cienciano-se-encuentran-en-la-fecha-16-noticia-1660806)
 - **Liga 1: Los “Churres” salen a asegurar la clasificación**: [Link](https://diariocorreo.pe/deportes/liga-1-los-churres-salen-a-asegurar-la-clasificacion-noticia/)
-
-
-### fluminense - internacional (N/A, 25/10/2025 15:24 Lima)
-
-- **Zubeldía volta atrás e muda Fluminense para enfrentar o Internacional**: [Link](https://www.otempo.com.br/sports/futebol-nacional/fluminense/2025/10/25/zubeldia-volta-atras-e-muda-fluminense-para-enfrentar-o-internacional)
-- **Com mudança de esquema, Inter está escalado para enfrentar o Fluminense**: [Link](https://gauchazh.clicrbs.com.br/esportes/inter/noticia/2025/10/com-mudanca-de-esquema-inter-esta-escalado-para-enfrentar-o-fluminense-cmh6oj70i010p01eznxxqgk62.html)
-- **Mansur fala que espera por um jogo fraco tecnicamente entre Fluminense e Internacional**: [Link](https://ge.globo.com/sportv/programas/troca-de-passes/video/mansur-fala-que-espera-por-um-jogo-fraco-tecnicamente-entre-fluminense-e-internacional-14042684.ghtml)
-
-
-### cerro - peñarol (N/A, 25/10/2025 15:24 Lima)
-
-- **Así fue la última visita de Peñarol al Tróccoli**: [Link](https://espndeportes.espn.com/futbol/uruguay/nota/_/id/15855657/partido-cerro-penarol-clausura-2020-debut-mauricio-larriera-valentin-rodriguez)
-- **PEÑAROL VA AL TRÓCCOLI**: [Link](https://onefootball.com/es/noticias/penarol-va-al-troccoli-41853333)
-- **Cerro vs. Peñarol, EN VIVO: dónde ver por TV y ONLINE**: [Link](https://www.tycsports.com/uruguay/futbol-de-uruguay/cerro-vs-penarol-en-vivo-donde-ver-por-tv-y-online-id694396.html)
-
-
-### umar nurmagomedov (N/A, 25/10/2025 15:24 Lima)
-
-- **UFC 321 results: Umar Nurmagomedov outclasses Mario Bautista, vows to become champion**: [Link](https://sports.yahoo.com/mma/breaking-news/article/ufc-321-results-umar-nurmagomedov-outclasses-mario-bautista-vows-to-become-champion-194702116.html)
-- **Dana White challenges Umar Nurmagomedov to ‘put on a show’ at UFC 321 if he wants title shot**: [Link](https://www.mmafighting.com/ufc-events-ppv/451356/dana-white-challenges-umar-nurmagomedov-to-put-on-a-show-at-ufc-321-if-he-wants-title-shot)
-- **UFC 321’s Umar Nurmagomedov abandoning Khabib career aspirations for Georges St-Pierre’s path**: [Link](https://www.mmamania.com/ufc-321-fight-card-aspinall-vs-gane-start-time-preview-live-results-abu-dhabi/398049/ufc-321s-umar-nurmagomedov-abandoning-khabib-career-aspirations-for-georges-st-pierres-path)
 
 
