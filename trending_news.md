@@ -1,3 +1,73 @@
+### nasa cometa 3i atlas (N/A, 28/10/2025 20:58 Lima)
+
+- **Detectan posibles “maniobras inteligentes” en el cometa interestelar 3I/ATLAS: un experto afirma que estaría desacelerando de forma controlada | MAG**: [Link](https://elcomercio.pe/mag/respuestas/ciencias/detectan-posibles-maniobras-inteligentes-en-el-cometa-3iatlas-un-experto-afirma-que-estaria-desacelerando-de-forma-controlada-nnda-nnrt-noticia/)
+- **Cometa 3I/ATLAS: ¿Qué se sabe de este objeto interestelar y qué ocurrirá el 29 de octubre?**: [Link](https://rpp.pe/ciencia/espacio/cometa-3i-atlas-que-es-cuando-se-acercara-a-la-tierra-segun-nasa-y-que-ocurrira-este-29-de-octubre-con-objeto-interestelar-noticia-1661232)
+- **El cometa 3I/ATLAS desconcierta a la ciencia: cambia su cola de dirección y un astrofísico sugiere que podría ser tecnología no humana**: [Link](https://gestion.pe/mix/respuestas/el-cometa-3iatlas-desconcierta-a-la-ciencia-cambia-su-cola-de-direccion-y-un-astrofisico-sugiere-que-podria-ser-tecnologia-no-humana-nnda-nnrt-noticia/)
+
+
+### ignacio buse (N/A, 28/10/2025 20:58 Lima)
+
+- **Ignacio Buse y Juan Pablo Varillas recibieron la ‘wild card’ del Lima Challenger 2: tres peruanos disputarán el cuadro principal**: [Link](https://www.infobae.com/peru/deportes/2025/10/23/ignacio-buse-y-juan-pablo-varillas-recibieron-la-wild-card-del-lima-challenger-2-tres-peruanos-disputaran-el-cuadro-principal/)
+- **Challenger de Lima II: Ignacio Buse promete “hacer respetar la casa” ante el uruguayo Roncadelli**: [Link](https://panamericana.pe/deportes/457156-challenger-lima-ii-ignacio-buse-promete-respetar-casa-uruguayo-roncadelli)
+- **¡Vamos, 'Nachito'! Ignacio Buse vs Federico Gómez por el Challenger de Lima**: [Link](https://peru21.pe/deportes/ignacio-buse-vs-federico-gomez-en-vivo-hora-canal-sets-resultado-lima/)
+
+
+### copa libertadores 2025 (N/A, 28/10/2025 20:58 Lima)
+
+- **Racing busca dar vuelta la serie ante Flamengo y meterse en la gran final de la Copa Libertadores**: [Link](https://www.espn.com.ar/futbol/copa-libertadores/nota/_/id/15880237/racing-vs-flamengo-partido-de-vuelta-semifinales-copa-libertadores-2025-equipo-fecha-hora-y-tv-en-vivo)
+- **Costas eligió al reemplazante de Sosa y tiene dos dudas en el equipo de Racing para enfrentar a Flamengo en la Libertadores**: [Link](https://espndeportes.espn.com/futbol/copa-libertadores/nota/_/id/15880061/formacion-racing-vs-flamengo-partido-vuelta-semifinal-copa-libertadores-2025)
+- **Telefe en vivo, Racing vs. Flamengo hoy por semifinal de vuelta de la Copa Libertadores 2025**: [Link](https://elcomercio.pe/deporte-total/argentina/telefe-en-vivo-pelota-libre-tv-racing-vs-flamengo-hoy-gratis-online-via-mi-telefe-y-pluto-tv-por-semifinales-copa-libertadores-video-noticia/)
+
+
+### thunder - kings (N/A, 28/10/2025 20:58 Lima)
+
+- **Chet Holmgren, Thunder out to stay unbeaten vs. visiting Kings**: [Link](https://www.thesportsleader.com/2025/10/28/chet-holmgren-thunder-out-to-stay-unbeaten-vs-visiting-kings/)
+- **League Pass Game of the Day: Kings vs. Thunder (8 ET)**: [Link](https://www.nba.com/news/league-pass-game-of-the-day-kings-vs-thunder-8-et)
+- **Sacramento Kings-Thunder Matchup of the Game: Zach LaVine vs Shai Gilgeous-Alexander**: [Link](https://www.si.com/nba/kings/onsi/sacramento-kings-news/kings-thunder-matchup-of-the-game-zach-lavine-vs-shai-gilgeous-alexander)
+
+
+### blooming (N/A, 28/10/2025 20:58 Lima)
+
+- **A blooming tradition: Joe Leuzzi Flowers keeps colour and community alive at QVM**: [Link](https://www.cbdnews.com.au/a-blooming-tradition-joe-leuzzi-flowers-keeps-colour-and-community-alive-at-qvm/)
+- **Transitioning to fall: Here are 5 colorful plants that will thrive in your garden now**: [Link](https://www.theadvocate.com/baton_rouge/entertainment_life/home_garden/marigolds-chrysanthemums-crotons-ornamental-peppers-kale-cabbage/article_ba883b18-53b1-4b8d-811e-3812a1b59feb.html)
+- **Perennials for fall color!**: [Link](https://timesenterprise.com/2025/10/27/perennials-for-fall-color/)
+
+
+### metformina (N/A, 28/10/2025 20:58 Lima)
+
+- **Atención pacientes diabéticos: retiran lote de Metformina 850 mg por seguridad. Verifica tu medicamento**: [Link](https://www.elperuano.pe/noticia/281818-atencion-pacientes-diabeticos-retiran-lote-de-metformina-850-mg-por-seguridad-verifica-tu-medicamento)
+- **Indecopi informa retiro de medicamento para la diabetes tras detectarse partícula extraña en comprimido**: [Link](https://canaln.pe/actualidad/indecopi-alerta-sobre-retiro-medicamento-metformina-lima-n487861)
+- **Metformina: retiran del mercado lote de fármaco para diabetes ¿De qué laboratorio?**: [Link](https://andina.pe/agencia/noticia-metformina-retiran-del-mercado-lote-farmaco-para-diabetes-de-laboratorio-1049965.aspx)
+
+
+### atlético mineiro (N/A, 28/10/2025 20:58 Lima)
+
+- **Por que Hulk e Scarpa estão fora do time em Atlético-MG x Del Valle**: [Link](https://www.sportingnews.com/br/futebol/noticias/por-que-hulk-scarpa-estao-fora-time-atletico-del-valle/8911a013466045ed57ef8ba8)
+- **Sul-Americana: veja o golaço de Bernard em Atlético-MG x Del Valle**: [Link](https://www.cnnbrasil.com.br/esportes/futebol/futebol-internacional/sulamericana/veja-o-golaco-de-bernard-em-atletico-mg-x-del-valle-pela-sul-americana/)
+- **Atuação de Dudu em Atlético-MG x Del Valle chama atenção: 'Absurdo'**: [Link](https://www.lance.com.br/fora-de-campo/atuacao-de-dudu-em-atletico-mg-x-del-valle-chama-atencao-absurdo.html)
+
+
+### claudio spinelli (N/A, 28/10/2025 20:58 Lima)
+
+- **Universitario va con todo: El tipo de goleador extranjero que buscan y los nombres en carpeta**: [Link](https://bolavip.com/pe/liga-1/universitario-va-con-todo-el-tipo-de-goleador-extranjero-que-buscan-y-los-nombres-en-carpeta)
+- **Se reveló si Claudio Spinelli podría llegar a Universitario en 2026: "Le gusta a Álvaro Barco"**: [Link](https://www.eldiez.com.pe/internacional/universitario-de-deportes-se-revelo-si-claudio-spinelli-podria-llegar-a-la-u-en-2026-le-gusta-a-alvaro-barco-noticia/)
+- **Se confirmó si Universitario dará el batacazo con el fichaje de Claudio Spinelli tras el tri: "Hoy..."**: [Link](https://libero.pe/futbol-peruano/universitario/2025/10/28/claudio-spinelli-se-confirmo-universitario-dara-batacazo-fichaje-del-delantero-tri-hoy-video-2093924)
+
+
+### raul noblecilla (N/A, 28/10/2025 20:58 Lima)
+
+- **Sala expulsa a Raúl Noblecilla de juicio oral y lo suspende por dos meses tras presentar supuesto certificado médico falso**: [Link](https://lpderecho.pe/sala-expulsa-raul-noblecilla-suspende-dos-meses/)
+- **“Váyase, señor”: El momento en el que expulsan a Raúl Noblecilla del juicio contra Pedro Castillo**: [Link](https://www.infobae.com/peru/2025/10/28/vayase-senor-el-momento-en-el-que-expulsan-a-raul-noblecilla-del-juicio-contra-pedro-castillo/)
+- **Golpe de Estado: Suspenden a abogado de Betssy Chávez, Raúl Noblecilla, por dos meses | perú | POLITICA**: [Link](https://diariocorreo.pe/politica/golpe-de-estado-suspenden-a-abogado-de-betssy-chavez-raul-noblecilla-por-dos-meses-peru-noticia/)
+
+
+### atlético mineiro - independiente del valle (N/A, 28/10/2025 20:58 Lima)
+
+- **VER GRATS, Independiente del Valle vs. Atlético Mineiro EN VIVO por ESPN ONLINE**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/independiente-del-valle-vs-atletico-mineiro-en-vivo-online-gratis-por-copa-sudamericana-2025-a-que-hora-juegan-canal-que-transmite-y-donde-ver-por-espn-disney-plus-directv-futbol-libre-tv-video-noticia/)
+- **Independiente del Valle vs Atlético Mineiro: fecha, hora y canal del partido por semifinales de la Copa Sudamericana**: [Link](https://larepublica.pe/deportes/2025/10/26/independiente-del-valle-vs-atletico-mineiro-fecha-hora-y-canal-del-partido-por-semifinales-de-la-copa-sudamericana-448682)
+- **Martes sale primer finalista de la Copa Sudamericana entre Atlético Mineiro e Independiente del Vall**: [Link](https://www.apnoticias.pe/peru/diario-uno/martes-sale-primer-finalista-de-la-copa-sudamericana-entre-atletico-mineiro-e-independiente-del-valle-1466039)
+
+
 ### maju mantilla (N/A, 28/10/2025 15:28 Lima)
 
 - **Falleció Elvia García Linares, madre de Maju Mantilla a los 75 años**: [Link](https://www.infobae.com/peru/2025/10/28/fallecio-elvia-garcia-madre-de-maju-mantilla/)
@@ -956,74 +1026,5 @@ Sin noticias relacionadas disponibles.
 - **UFC 321 results: Umar Nurmagomedov outclasses Mario Bautista, vows to become champion**: [Link](https://sports.yahoo.com/mma/breaking-news/article/ufc-321-results-umar-nurmagomedov-outclasses-mario-bautista-vows-to-become-champion-194702116.html)
 - **Dana White challenges Umar Nurmagomedov to ‘put on a show’ at UFC 321 if he wants title shot**: [Link](https://www.mmafighting.com/ufc-events-ppv/451356/dana-white-challenges-umar-nurmagomedov-to-put-on-a-show-at-ufc-321-if-he-wants-title-shot)
 - **UFC 321’s Umar Nurmagomedov abandoning Khabib career aspirations for Georges St-Pierre’s path**: [Link](https://www.mmamania.com/ufc-321-fight-card-aspinall-vs-gane-start-time-preview-live-results-abu-dhabi/398049/ufc-321s-umar-nurmagomedov-abandoning-khabib-career-aspirations-for-georges-st-pierres-path)
-
-
-### noche blanquiazul voley 2025 (N/A, 25/10/2025 15:24 Lima)
-
-- **Alianza Lima vs Fluminense vóley EN VIVO HOY: punto a punto del partido por la Noche Blanquiazul 2025**: [Link](https://www.infobae.com/peru/deportes/2025/10/25/alianza-lima-vs-fluminense-en-vivo-hoy-canal-america-television-noche-blanquiazul-2025-resumen-resultado/)
-- **Noche Blanquiazul 2025 hoy: horario, canal de transmisión y cómo ver presentación de Alianza Lima Vóley**: [Link](https://elcomercio.pe/deporte-total/voley/alianza-lima-voley-noche-blanquiazul-en-vivo-online-gratis-via-america-tv-canal-4-tvgo-a-que-hora-inicia-canal-que-transmite-y-donde-ver-hoy-video-noticia/)
-- **Noche Blanquiazul 2025: conoce el fixture, canal de TV y detalles del cuadrangular**: [Link](https://andina.pe/agencia/noticia-noche-blanquiazul-2025-conoce-fixture-canal-tv-y-detalles-del-cuadrangular-1049633.aspx)
-
-
-### liverpool football club (N/A, 25/10/2025 15:24 Lima)
-
-- **Internationals: Three LFC Women players involved on Saturday**: [Link](https://www.liverpoolfc.com/news/internationals-three-lfc-women-players-involved-saturday)
-- **Revealed: Liverpool’s stance on accepting Mohamed Salah offer ahead of January**: [Link](https://www.footballinsider247.com/revealed-liverpools-stance-on-accepting-mohamed-salah-offer-ahead-of-january/)
-- **Arne Slot plays down Mo Salah’s reaction to being dropped**: [Link](https://www.thisisanfield.com/2025/10/arne-slot-plays-down-mo-salahs-reaction-to-being-dropped/)
-
-
-### benfica - arouca (N/A, 25/10/2025 15:24 Lima)
-
-- **AO VIVO: Arranca a partida no Estádio da Luz**: [Link](https://www.flashscore.pt/noticias/futebol-liga-portugal-betclic-ao-vivo-arranca-a-partida-no-estadio-da-luz/CGwPsGme/)
-- **Pavlidis bisa em penáltis e aumenta vantagem do Benfica (vídeo)**: [Link](https://sapo.pt/artigo/pavlidis-bisa-em-penaltis-e-aumenta-vantagem-do-benfica-video-68fd2d3c36c84c1df4fc2700)
-- **Mourinho revoluciona e aposta em Prestianni de início**: [Link](https://www.jn.pt/desporto/artigo/mourinho-revoluciona-e-aposta-em-prestianni-de-inicio/18012711)
-
-
-### benfica vs (N/A, 25/10/2025 15:24 Lima)
-
-- **Preview:Benfica vs Arouca - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/benfica/preview/benfica-vs-arouca-prediction-team-news-lineups_584243.html)
-- **Predicted Lineups and Player Updates for Benfica vs Arouca 25/10/25 - Primeira Liga News**: [Link](https://footballpredictions.net/predicted-lineups-arouca-v-benfica-25-10-2025)
-
-
-### ayacucho (N/A, 25/10/2025 15:24 Lima)
-
-- **INEI continúa desarrollando la última etapa del censo con apoyo de la Policía Nacional**: [Link](https://andina.pe/agencia/noticia-inei-continua-desarrollando-ultima-etapa-del-censo-apoyo-de-policia-nacional-1049547.aspx)
-- **INEI advierte posibles inconsistencias en el conteo poblacional de Juliaca por inconvenientes en el Censo 2025**: [Link](https://ladecana.pe/inei-advierte-posibles-inconsistencias-en-el-conteo-poblacional-de-juliaca-por-inconvenientes-en-el-censo-2025/)
-- **¿El INEI está por terminar el censo? Ya va en 95 % nacional**: [Link](https://www.americatv.com.pe/noticias/actualidad/ya-fuiste-censado-inei-reporta-avance-95-viviendas-n512233)
-
-
-### alexander zverev (N/A, 25/10/2025 11:27 Lima)
-
-- **Hot Shot: Zverev bosses Musetti with fierce forehands in Vienna 2025**: [Link](https://www.atptour.com/en/video/hot-shot-zverev-bosses-musetti-with-fierce-forehands-in-vienna-2025)
-- **Alexander Zverev vs Lorenzo Musetti Preview: Head-to-Head and Prediction for Vienna Open 2025**: [Link](https://www.profootballnetwork.com/tennis/alexander-zverev-vs-lorenzo-musetti-head-to-head-prediction-vienna-open-2025/)
-- **Vienna 2025: Alexander Zverev vs Lorenzo Musetti preview, head-to-head, prediction, odds, and betting tips | Erste Bank Open**: [Link](https://www.sportskeeda.com/tennis/vienna-2025-alexander-zverev-vs-lorenzo-musetti-preview-head-to-head-prediction-odds-betting-tips-erste-bank-open)
-
-
-### inter de milán (N/A, 25/10/2025 11:27 Lima)
-
-- **Napoli vs Inter: Apuestas, Pronóstico y Cuotas**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/2025/octubre/pronostico-napoli-vs-inter-25-10-25)
-- **El reencuentro más polémico de la Serie A: Conte y Chivu vuelven a enfrentarse en el banquillo**: [Link](https://www.marca.com/futbol/liga-italiana/2025/10/24/reencuentro-polemico-serie-conte-chivu-vuelven-enfrentarse-banquillo.html)
-- **Partido de Napoli-Inter HOY EN VIVO con Lautaro Martínez: formaciones y dónde ver**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/napoli-vs-inter-en-vivo-gratis-hoy-via-futbol-libre-tv-espn-horarios-canales-tv-y-donde-ver-partido-por-serie-a-video-noticia/)
-
-
-### manchester united - brighton (N/A, 25/10/2025 11:27 Lima)
-
-- **Premier League LIVE: Chelsea vs Sunderland & Newcastle v Fulham - scores & updates**: [Link](https://www.bbc.com/sport/football/live/c5ykwrp7jk3t)
-- **Man Utd confirm Rúben Amorim XI vs Brighton as Benjamin Šeško decision made (Premier League)**: [Link](https://utddistrict.co.uk/manchester-united-confirm-ruben-amorim-xi-vs-brighton-as-benjamin-sesko-decision-made-premier-league/25/10/2025/)
-- **Premier League side with most consecutive wins at Old Trafford threaten again**: [Link](https://www.besoccer.com/new/premier-league-side-with-most-consecutive-wins-at-old-trafford-threaten-again-1378279)
-
-
-### dortmund - colonia (N/A, 25/10/2025 11:27 Lima)
-
-- **Dortmund vs Colonia Pronóstico | Bundesliga 25/10/2025**: [Link](https://www.apuestas-deportivas.es/pronostico/dortmund-vs-colonia-pronostico-bundesliga-25-10-2025/)
-- **Borussia Dortmund vs Colonia: pronóstico, apuestas, cuotas para el partido 25/10/2025**: [Link](https://legalbet.es/centro-apuestas/borussia-dortmund-keln-25-10-2025/)
-- **Borussia Dortmund - 1. FC Köln en directo**: [Link](https://www.elmundo.es/deportes/futbol/bundesliga/borussia-dortmund-1-fc-koln/2025/10/25/01_0108_20251025_157_387-directo.html)
-
-
-### athletic - getafe (N/A, 25/10/2025 11:27 Lima)
-
-- **Athletic - Getafe, en directo: LaLiga EA Sports hoy, en vivo**: [Link](https://as.com/futbol/primera/athletic-getafe-en-directo-laliga-ea-sports-hoy-en-vivo-f202510-d/)
-- **Apuestas y Pronóstico del Athletic Club vs Getafe 25/10/25**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2025/octubre/pronostico-athletic-club-vs-getafe-25-10-25)
-- **LaLiga EA Sports: Athletic Bilbao recibirá a Getafe por la fecha 10**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-athletic-bilbao-recibira-a-getafe-por-la-fecha-10-noticia-1660766)
 
 
