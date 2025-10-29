@@ -1,3 +1,38 @@
+### reniec (N/A, 29/10/2025 03:34 Lima)
+
+- **Alerta en RENIEC: ciudadanos denuncian posible filtración de datos personales en el padrón electoral 2026**: [Link](https://caretas.pe/politica/alerta-en-reniec-ciudadanos-denuncian-posible-filtracion-de-datos-personales-en-el-padron-electoral-2026/)
+- **Elecciones 2026: electores ya pueden revisar si sus datos figuran correctamente en la Lista del Padrón Inicial**: [Link](https://rpp.pe/peru/actualidad/elecciones-2026-electores-ya-pueden-revisar-si-sus-datos-figuran-correctamente-en-la-lista-del-padron-inicial-noticia-1661242)
+- **Elecciones 2026: Reniec publica padrón inicial electoral hasta el 31 de octubre**: [Link](https://www.exitosanoticias.pe/politica/elecciones-2026-reniec-publica-padron-inicial-electoral-31-octubre-n161617)
+
+
+### pago de pensiones 19990 (N/A, 29/10/2025 03:34 Lima)
+
+- **Cronograma de pagos del Banco de la Nación para noviembre 2025: Las fechas para cobrar**: [Link](https://www.infobae.com/peru/2025/10/25/cronograma-de-pagos-del-banco-de-la-nacion-en-noviembre-2025-para-el-sector-publico/)
+- **ONP alista pago de pensiones de noviembre a más de 770 000 asegurados en todo el país**: [Link](https://www.elperuano.pe/noticia/281786-onp-alista-pago-de-pensiones-de-noviembre-a-mas-de-770000-asegurados-en-todo-el-pais)
+- **🔴 Pagos a pensionistas ONP y trabajadores del sector público, noviembre 2025: cronograma según Banco de la Nación**: [Link](https://www.facebook.com/diario.expreso/posts/-pagos-a-pensionistas-onp-y-trabajadores-del-sector-p%C3%BAblico-noviembre-2025-crono/1246161777541431/)
+
+
+### nasa (N/A, 29/10/2025 03:34 Lima)
+
+- **Stargazing: Spaghettification, Witch Head Nebula and other cosmic creepers**: [Link](https://www.post-gazette.com/life/recreation/2025/10/28/black-widow-spider-nebula-witch-head-black-holes/stories/202510280001)
+- **NASA spots a spooky face glowing on the sun just in time for Halloween (photo)**: [Link](https://www.space.com/astronomy/sun/nasa-spots-a-spooky-face-glowing-on-the-sun-just-in-time-for-halloween-photo)
+- **Five spooky Hallowe'en sights from the boundless depths of space**: [Link](https://www.theweathernetwork.com/en/news/science/space/spooky-astronomical-sights-from-the-cosmos-2025)
+
+
+### warriors (N/A, 29/10/2025 03:34 Lima)
+
+- **Jonathan Kuminga replaces Warriors veteran in the starting lineup**: [Link](https://basketnews.com/news-233935-jonathan-kuminga-replaces-al-horford-in-warriors-starting-five.html)
+- **Clippers' James Harden: Paces Los Angeles in loss**: [Link](https://www.cbssports.com/fantasy/basketball/news/clippers-james-harden-paces-los-angeles-in-loss/)
+- **Game Recap: Warriors 98, Clippers 79**: [Link](https://www.nba.com/watch/video/game-recap-warriors-98-clippers-79)
+
+
+### warriors vs (N/A, 29/10/2025 03:34 Lima)
+
+- **NBA: Golden State Warriors vs. Los Angeles Clippers**: [Link](https://english.news.cn/20251029/bd374fdf73eb4113b4a43775e42f0282/c.html)
+- **Anthony Slater: Everyone expected is available for the …**: [Link](https://www.hoopshype.com/story/sports/nba/rumors/2025/10/28/anthony-slater-everyone-expected-is-available-for-the/86952370007/)
+- **FanDuel promo code: Wager $5, get $300 in bonus bets if your bet wins for Clippers vs. Warriors**: [Link](https://nypost.com/2025/10/28/betting/fanduel-promo-code-bet-5-get-300-in-bonus-bets-if-your-bet-wins-for-clippers-vs-warriors/)
+
+
 ### warriors - clippers (N/A, 28/10/2025 23:30 Lima)
 
 - **Warriors, Clippers trusting their experience as season begins**: [Link](https://www.nba.com/news/warriors-clippers-trust-experience-season-begins)
@@ -991,40 +1026,5 @@ Sin noticias relacionadas disponibles.
 - **Blue Jays 11-4 Dodgers (Oct 24, 2025) Final Score**: [Link](https://www.espn.com/mlb/game/_/gameId/401809297/dodgers-blue-jays)
 - **The composure that comes with experience ahead of Game 2**: [Link](https://sports.yahoo.com/article/composure-comes-experience-ahead-game-180000305.html)
 - **(LIVE)** Blue Jays vs Dodgers Live On Free 𝗦𝘁𝗮𝗿𝗲𝗮𝗺ing MLB World Series Game 2**: [Link](https://www.prpeak.com/classifieds/real-estate-rentals/accommodation-wanted/2039958)
-
-
-### incendio lima (N/A, 25/10/2025 20:57 Lima)
-
-- **Nuevo incendio en Centro de Lima: Bomberos no descartan que personas estén atrapadas en galería de Barrios Altos**: [Link](https://www.infobae.com/peru/2025/10/25/nuevo-incendio-en-centro-de-lima-galeria-se-quema-en-jiron-huanta-de-barrios-altos/)
-- **Incendio en Barrios Altos: más de 10 unidades de Bomberos controlan las llamas**: [Link](https://elcomercio.pe/lima/sucesos/incendio-en-barrios-altos-mas-de-10-unidades-de-bomberos-en-la-zona-ultimas-noticia/)
-- **Mario Casaretto sobre incendio en Cercado de Lima: “Es una galería y unos 20 puestos que están siendo consumidos”**: [Link](https://rpp.pe/lima/actualidad/mario-casaretto-sobre-incendio-en-cercado-de-lima-es-una-galeria-y-unos-20-puestos-que-estan-siendo-consumidos-noticia-1661014)
-
-
-### são paulo - bahía (N/A, 25/10/2025 20:57 Lima)
-
-- **Morumbi tem setor de arquibancada interditado contra o Bahia para instalação de palco para shows: veja imagens**: [Link](https://onefootball.com/es/noticias/morumbi-tem-setor-de-arquibancada-interditado-contra-o-bahia-para-instalacao-de-palco-para-shows-veja-imagens-41855545)
-- **São Paulo tem Luciano e Lucas no ataque contra o Bahia; veja escalações**: [Link](https://www.uol.com.br/esporte/futebol/ultimas-noticias/2025/10/25/sao-paulo-x-bahia-brasileirao-escalacoes.htm)
-- **Com muitos desfalques, Crespo define escalação do São Paulo contra o Bahia**: [Link](https://www.lance.com.br/sao-paulo/com-muitos-desfalques-crespo-define-escalacao-do-sao-paulo-para-enfrentar-o-bahia.html)
-
-
-### incendio centro de lima (N/A, 25/10/2025 20:57 Lima)
-
-- **Incendio en el Centro de Lima: Emergencia cerca al Congreso deja 4 bomberos heridos y alerta por colapso de inmueble**: [Link](https://www.infobae.com/peru/2025/10/25/incendio-en-el-centro-de-lima-bomberos-atienden-emergencia-cerca-al-congreso-de-la-republica/)
-- **Incendio en el Centro de Lima moviliza a diez unidades de bomberos**: [Link](https://caretas.pe/nacional/incendio-en-el-centro-de-lima-moviliza-a-diez-unidades-de-bomberos/)
-- **Centro de Lima: Gobierno evalúa declarar en emergencia la zona afectada por incendio en el jirón Junín últimas | LIMA**: [Link](https://elcomercio.pe/lima/centro-de-lima-gobierno-evalua-declarar-en-emergencia-la-zona-afectada-por-incendio-en-el-jiron-junin-ultimas-noticia/)
-
-
-### liverpol vs (N/A, 25/10/2025 15:24 Lima)
-
-- **Eintracht Frankfurt 1 Liverpool 5: Ekitike impresses, a new system and set-piece goals - The Athletic**: [Link](https://www.nytimes.com/athletic/6740284/2025/10/22/eintracht-frankfurt-liverpool-analysis/)
-- **Liverpool bounce back in Frankfurt and Chelsea’s teenagers thrash Ajax – Football Weekly**: [Link](https://www.theguardian.com/football/audio/2025/oct/23/liverpool-bounce-back-in-frankfurt-and-chelseas-teenagers-thrash-ajax-football-weekly)
-- **Salah not in Liverpool starting XI vs. Frankfurt**: [Link](https://www.espn.com/soccer/story/_/id/46686004/frankfurt-vs-liverpool-mohamed-salah-named-bench-arne-slot)
-
-
-### alianza atlético - cienciano (N/A, 25/10/2025 15:24 Lima)
-
-- **Alianza Atlético vs Cienciano EN VIVO: hora, canal tv y dónde ver el Torneo Clausura**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/alianza-atletico-vs-cienciano-en-vivo-por-la-liga-1-a-que-hora-y-donde-ver-futbol-gratis-y-en-directo-por-el-torneo-clausura-tdpe-noticia/)
-- **Liga 1: Alianza Atlético y Cienciano se encuentran en la fecha 16**: [Link](https://rpp.pe/futbol/descentralizado/liga-1-alianza-atletico-y-cienciano-se-encuentran-en-la-fecha-16-noticia-1660806)
-- **Liga 1: Los “Churres” salen a asegurar la clasificación**: [Link](https://diariocorreo.pe/deportes/liga-1-los-churres-salen-a-asegurar-la-clasificacion-noticia/)
 
 
