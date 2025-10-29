@@ -1,3 +1,24 @@
+### feriados octubre 2025 (N/A, 29/10/2025 07:53 Lima)
+
+- **Este es el próximo feriado largo 2025 en Perú: trabajadores gozarán de cuatro días de descanso**: [Link](https://www.infobae.com/peru/2025/10/28/feriado-largo-en-peru-2025-estos-trabajadores-tendran-cuatro-dias-de-descanso/)
+- **Se acerca el feriado del 1 de noviembre: revisa tus derechos si te toca laborar ese día**: [Link](https://elperuano.pe/noticia/281788-se-acerca-el-feriado-del-1-de-noviembre-revisa-tus-derechos-si-te-toca-laborar-ese-dia)
+- **¿Ya puedes hacer planes? El Gobierno aclaró si habrá o no feriado largo de 31 de octubre al 2 de noviembre**: [Link](https://elcomercio.pe/respuestas/que/ya-puedes-hacer-planes-el-gobierno-aclaro-si-habra-o-no-feriado-largo-de-31-de-octubre-al-2-de-noviembre-tdpe-noticia/)
+
+
+### ralstonia pickettii (N/A, 29/10/2025 07:53 Lima)
+
+- **Edetoxin contaminado: MINSA confirma ingreso legal del fármaco a Perú**: [Link](https://caretas.pe/nacional/edetoxin-contaminado-minsa-confirma-ingreso-legal-del-farmaco-a-peru/)
+- **Ralstonia pickettii: un brote que reabre el debate sobre el control de medicamentos en Perú**: [Link](https://elcomercio.pe/peru/contaminacion-por-ralstonia-picketti-reabre-debate-sobre-control-de-medicamentos-importados-edetoxin-noticia/)
+- **Viceministro de Salud tras detección de bacteria en sedante: "Hay más de 60 de medicamentos de laboratorio indio"**: [Link](https://www.atv.pe/noticia/viceministro-de-salud-tras-deteccion-de-bacteria-en-sedante-hay-mas-de-60-de-medicamentos-de-laboratorio-indio/)
+
+
+### 31 atlas (N/A, 29/10/2025 07:53 Lima)
+
+- **Interstellar comet 3I/ATLAS blasts a jet towards the sun in new telescope image**: [Link](https://www.space.com/astronomy/comets/comet-3i-atlas-blasts-a-jet-towards-the-sun-in-new-telescope-image)
+- **The Acid Test of 3I/ATLAS at Perihelion**: [Link](https://avi-loeb.medium.com/the-acid-test-of-3i-atlas-at-perihelion-ce131eca8485)
+- **Two spacecraft will pass right through comet 3I/ATLAS' tail**: [Link](https://www.livescience.com/space/space-exploration/two-spacecraft-will-pass-right-through-comet-3i-atlas-tail)
+
+
 ### reniec (N/A, 29/10/2025 03:34 Lima)
 
 - **Alerta en RENIEC: ciudadanos denuncian posible filtración de datos personales en el padrón electoral 2026**: [Link](https://caretas.pe/politica/alerta-en-reniec-ciudadanos-denuncian-posible-filtracion-de-datos-personales-en-el-padron-electoral-2026/)
@@ -1005,26 +1026,5 @@ Sin noticias relacionadas disponibles.
 - **Tabla de posiciones de la Liga 1 Perú 2025 EN VIVO HOY: así van los equipos en la fecha 16 del Torneo Clausura y Acumulada**: [Link](https://www.infobae.com/peru/deportes/2025/10/25/tabla-de-posiciones-liga-1-peru-2025-en-vivo-hoy-acumulada-fecha-16-torneo-clausura-programacion-resultados/)
 - **Tabla de posiciones de la Liga 1 EN VIVO HOY: así va tras la victoria de Cusco FC**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/tabla-de-posiciones-liga-1-2025-en-vivo-resultados-posiciones-del-clausura-y-acumulado-noticia/)
 - **Programación fecha 16 del Torneo Clausura Liga1 Te Apuesto**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/programacion-fecha-16-torneo-clausura-liga1-te-apuesto-n451465)
-
-
-### león - pumas (N/A, 25/10/2025 20:57 Lima)
-
-- **León vs Pumas EN VIVO HOY por Liga MX: ver partido**: [Link](https://elcomercio.pe/deporte-total/mexico/leon-vs-pumas-en-vivo-online-gratis-por-liga-mx-via-caliente-tv-fox-sports-amazon-prime-tudn-futbol-libre-tv-a-que-hora-juegan-canal-de-transmision-y-donde-ver-por-torneo-apertura-video-noticia/)
-- **Pronóstico Club Leon Pumas UNAM - Liga MX 25/10/25**: [Link](https://www.sportytrader.com/es/pronosticos/leon-pumas-unam-299885/)
-- **¿Debe sacrificarse la tradición por la innovación? Así ha cambiado el pan de muerto en el tiempo, un alimento ofrendado a nuestros difuntos 💀 https://mile.io/49mUnpP**: [Link](https://www.facebook.com/MilenioDiario/photos/debe-sacrificarse-la-tradici%C3%B3n-por-la-innovaci%C3%B3n-as%C3%AD-ha-cambiado-el-pan-de-muert/1288220096668792/)
-
-
-### dep. cuenca - aucas (N/A, 25/10/2025 20:57 Lima)
-
-- **(EN VIVO) Deportivo Cuenca vs. SD Aucas | LigaPro | Hexagonal 2**: [Link](https://onefootball.com/es/noticias/en-vivo-deportivo-cuenca-vs-sd-aucas-ligapro-hexagonal-2-41857979)
-- **El gol de Bruno Miranda en Aucas contra Deportivo Cuenca**: [Link](https://www.ole.com.ar/ecuador/gol-bruno-miranda-aucas-deportivo-cuenca_3_pdHqpMehB6.html)
-- **Deportivo Cuenca vs SD Aucas: pronósticos, cuotas, transmisión y datos para apostar!**: [Link](https://www.apwin.com/es/pronosticos/deportivo-cuenca-vs-sd-aucas-pronostico-liga-pro-26-10-2025/)
-
-
-### blue jays - dodgers (N/A, 25/10/2025 20:57 Lima)
-
-- **Blue Jays 11-4 Dodgers (Oct 24, 2025) Final Score**: [Link](https://www.espn.com/mlb/game/_/gameId/401809297/dodgers-blue-jays)
-- **The composure that comes with experience ahead of Game 2**: [Link](https://sports.yahoo.com/article/composure-comes-experience-ahead-game-180000305.html)
-- **(LIVE)** Blue Jays vs Dodgers Live On Free 𝗦𝘁𝗮𝗿𝗲𝗮𝗺ing MLB World Series Game 2**: [Link](https://www.prpeak.com/classifieds/real-estate-rentals/accommodation-wanted/2039958)
 
 
