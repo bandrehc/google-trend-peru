@@ -1,3 +1,50 @@
+### paderborn - leverkusen (N/A, 29/10/2025 11:33 Lima)
+
+- **Vazquez fehlt diesmal nicht wegen Verletzung - Tillman hofft auf Bayern**: [Link](https://www.kicker.de/vazquez-fehlt-diesmal-nicht-wegen-verletzung-tillman-hofft-auf-bayern-984048/artikel)
+- **Torwartfrage in Leverkusen: Darf Blaswich im Pokal ran, Herr Hjulmand?**: [Link](https://www.bild.de/sport/fussball/torwartfrage-in-leverkusen-darf-blaswich-im-pokal-ran-herr-hjulmand-6900821cef02c303905fa96a)
+- **Wichtige Hinweise**: [Link](https://www.scp07.de/Newsarchiv/Wichtige-Hinweise-93.html)
+
+
+### expo china (N/A, 29/10/2025 11:33 Lima)
+
+- **2025 China Marine Economy Expo (CMEE) Opens in Shenzhen**: [Link](https://finance.yahoo.com/news/2025-china-marine-economy-expo-100100605.html)
+
+
+### alexander zverev (N/A, 29/10/2025 11:33 Lima)
+
+- **Tennis, ATP – Paris Masters 2025: Zverev takes out Ugo Carabelli**: [Link](https://www.tennismajors.com/atp/paris-masters-zverev-challenged-by-carabelli-but-zverev-into-last-16-839017.html)
+- **Camilo Ugo Carabelli vs. Alexander Zverev Prediction for ATP Paris, France Men's Singles 2025**: [Link](https://www.dimers.com/bet-hub/ten/schedule/2025_1_atp_2661_204117_57163)
+- **ATP Paris Best Bets Including Zverev vs Ugo Carabelli**: [Link](https://lastwordonsports.com/tennis/2025/10/28/atp-paris-best-bets-including-zverev-vs-ugo-carabelli/)
+
+
+### microsoft (N/A, 29/10/2025 11:33 Lima)
+
+- **OpenAI Restructures as For-Profit Company**: [Link](https://www.nytimes.com/2025/10/28/technology/openai-restructure-for-profit-company.html)
+- **OpenAI has an AGI problem — and Microsoft just made it worse**: [Link](https://www.theverge.com/ai-artificial-intelligence/808434/openai-for-profit-restructuring-microsoft-deal-agi-wars)
+- **Microsoft CEO Satya Nadella says Bill Gates warned him that investing in OpenAI would be like setting $1 billion on fire**: [Link](https://finance.yahoo.com/news/microsoft-ceo-satya-nadella-says-040415454.html)
+
+
+### 3i atlas hoy (N/A, 29/10/2025 11:33 Lima)
+
+- **Cometa 3I/ATLAS: ¿Qué es lo que se sabe de este objeto interestelar y qué ocurrirá este 29 de octubre?**: [Link](https://rpp.pe/ciencia/espacio/cometa-3i-atlas-que-es-cuando-se-acercara-a-la-tierra-segun-nasa-y-que-ocurrira-este-29-de-octubre-con-objeto-interestelar-noticia-1661232)
+- **¿Ha activado la NASA el protocolo de defensa planetaria por 3i/Atlas? Qué es verdad y qué no de la situación del misterioso cometa**: [Link](https://www.nationalgeographic.com.es/ciencia/ha-activado-nasa-protocolo-defensa-planetaria-por-cometa-3iatlas_26543)
+- **☄️ 3I/ATLAS: el visitante interestelar expulsa un chorro gigante hacia el Sol**: [Link](https://www.techno-science.net/es/noticias/3i-atlas-el-visitante-interestelar-expulsa-chorro-gigante-hacia-el-sol-N27748.html)
+
+
+### valentin vacherot (N/A, 29/10/2025 11:33 Lima)
+
+- **Tennis, ATP – Paris Masters 2025: Vacherot knocks out Rinderknech**: [Link](https://www.tennismajors.com/atp/paris-masters-vacherot-books-spot-in-last-16-838999.html)
+- **Valentin Vacherot vs. Arthur Rinderknech Head-to-Head, Prediction and Betting Odds for ATP Paris Masters 2025 Round-2**: [Link](https://theplayoffs.news/en/valentin-vacherot-vs-arthur-rinderknech-head-to-head-prediction-and-betting-odds-for-atp-paris-masters-2025-round-2/)
+- **2025 Rolex Paris Masters: Vacherot [40th] vs. Lehecka [18th] Prediction, Odds and Match Preview**: [Link](https://sportsbookwire.usatoday.com/story/sports/sports-betting/2025/10/25/valentin-vacherot-vs-jiri-lehecka-rolex-paris-masters-tennis-odds-lines-betting-10-28-2025/86906136007/)
+
+
+### son del duke (N/A, 29/10/2025 11:33 Lima)
+
+- **Renuncia masiva en Son del Duke: tres integrantes de la orquesta dan un paso al costado**: [Link](https://www.infobae.com/peru/2025/10/29/renuncia-masiva-en-son-del-duke-tres-integrantes-de-la-orquesta-dan-un-paso-al-costado/)
+- **Renuncias simultáneas sacuden a Son del Duke: artistas anuncian su salida para "priorizar su bienestar emocional"**: [Link](https://rpp.pe/musica/nacional/son-del-duke-enfrenta-renuncias-en-cadena-artistas-se-despiden-de-la-agrupacion-noticia-1661464)
+- **Ale Seijas vocalista del Son del Duke anuncia su retiro**: [Link](https://www.americatv.com.pe/noticias/espectaculos/ale-seijas-cantante-son-duke-se-retira-agrupacion-n512387)
+
+
 ### feriados octubre 2025 (N/A, 29/10/2025 07:53 Lima)
 
 - **Este es el próximo feriado largo 2025 en Perú: trabajadores gozarán de cuatro días de descanso**: [Link](https://www.infobae.com/peru/2025/10/28/feriado-largo-en-peru-2025-estos-trabajadores-tendran-cuatro-dias-de-descanso/)
@@ -978,53 +1025,5 @@ Sin noticias relacionadas disponibles.
 - **“Yo soy”: Imitador obtiene una segunda oportunidad, cambia de personaje y pasa a la segunda ronda**: [Link](https://elcomercio.pe/tvmas/farandula/yo-soy-imitador-obtiene-una-segunda-oportunidad-cambia-de-personaje-y-pasa-a-la-segunda-ronda-ultimas-noticia/)
 - **Yo Soy 2025: participante regresa por SEGUNDA VEZ al casting con su imitación de The Weeknd, ¿Esta vez logrará pasar a la siguiente etapa?**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-2025-participante-regresa-por-segunda-vez-al-casting-con-su-imitacion-de-the-weeknd-esta-vez-lograra-pasar-a-la-siguiente-etapa_20251025/)
 - **Yo Soy 2025: Participante tiene SEGUNDA OPORTUNIDAD y sorprende al jurado como Elvis Presley**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-2025-participante-tiene-segunda-oportunidad-y-sorprende-al-jurado-como-elvis-presley_20251023/)
-
-
-### nuggets - suns (N/A, 25/10/2025 23:27 Lima)
-
-- **Recap: Denver Nuggets go wire to wire against Phoenix Suns and get first win of the NBA regular season, 133-111.**: [Link](https://www.denverstiffs.com/recap-denver-nuggets-go-wire-to-wire-against-phoenix-suns-and-get-first-win-of-the-nba-regular-season-133-111/)
-- **Suns Nuggets Basketball**: [Link](https://www.hjnews.com/sports/nation/suns-nuggets-basketball/image_b2673edb-da8e-5885-9fbc-1bdabacef21c.html)
-- **Duane Rankin: Suns injury report at Nuggets: …**: [Link](https://www.hoopshype.com/story/sports/nba/rumors/2025/10/25/duane-rankin-suns-injury-report-at-nuggets/86904319007/)
-
-
-### cruz azul - monterrey (N/A, 25/10/2025 23:27 Lima)
-
-- **Cruz Azul vs Monterrey: posibles alineaciones para la Jornada 15**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/15862888/cruz-azul-vs-monterrey-alineaciones-jornada-15-apertura-2025)
-- **🟢 Canal 5 (TUDN) EN VIVO GRATIS — ver partido Cruz Azul vs. Monterrey EN DIRECTO por tv abierta**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/tudn-y-canal-5-en-vivo-gratis-donde-ver-partido-cruz-azul-vs-cf-monterrey-por-tv-abierta-y-futbol-online-nnda-nnrt-noticia/)
-- **Pronóstico Cruz Azul Monterrey - Liga MX 25/10/25**: [Link](https://www.sportytrader.com/es/pronosticos/cruz-azul-monterrey-299869/)
-
-
-### clash royale (N/A, 25/10/2025 23:27 Lima)
-
-- **How to watch Supercell World Championships 2025: Clash of Clans, Clash Royale, and Brawl Stars Finals**: [Link](https://escharts.com/news/how-watch-supercell-games-world-championships)
-- **COC World Championship 2025: Dates, Teams, Format, Prize Pool, and More**: [Link](https://earlygame.in/news/esports/coc-world-championship-2025-dates-teams-format-prize-pool-and-more)
-
-
-### guadalajara - atlas (N/A, 25/10/2025 20:57 Lima)
-
-- **Chivas vs Atlas: posibles alineaciones de la Jornada 15**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/15863201/chivas-vs-atlas-alineaciones-formaciones-jornada-15-liga-mx)
-- **Conoce el protocolo de seguridad para el Clásico Tapatío**: [Link](https://onefootball.com/es/noticias/conoce-el-protocolo-de-seguridad-para-el-clasico-tapatio-41857165)
-- **Djuka y su inicio goleador en México, gracias a un Clásico Tapatío**: [Link](https://espndeportes.espn.com/futbol/mexico/nota/_/id/15858617/chivas-vs-atlas-goles-djuka-clasico-tapatio-uros-durdevic)
-
-
-### u vs adt (N/A, 25/10/2025 20:57 Lima)
-
-- **Universitario y el objetivo de un logro inédito: ser campeón invicto de un torneo corto de la Liga 1**: [Link](https://espndeportes.espn.com/futbol/peru/nota/_/id/15858397/universitario-objetivo-tarma-ser-campeon-invicto-torneo-corto-liga-1-de-peru)
-- **‘Jauja es crema’: Universitario de Deportes se dirige a Tarma para su duelo ante ADT por Liga 1**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/universitario-llego-a-jauja-y-se-dirige-a-tarma-para-disputar-partido-con-adt-por-liga-1-noticia/)
-- **Liga 1 y la curiosa medida la 'U' gana el 'Tri' ante ADT**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/liga-1-tomo-llamativa-medida-si-universitario-logra-tri-ante-adt-n451468)
-
-
-### once caldas - unión magdalena (N/A, 25/10/2025 20:57 Lima)
-
-- **Pronóstico Once Caldas Unión Magdalena Santa Marta - Liga Postobon 25/10/25**: [Link](https://www.sportytrader.com/es/pronosticos/once-caldas-union-magdalena-santa-marta-300058/)
-- **Siga el minuto a minuto del partido entre el Once Caldas y el Unión Magdalena.**: [Link](https://www.facebook.com/story.php?story_fbid=1272134861607364&id=100064325876463)
-- **La barra del Once Caldas y el reclamo para técnicos y jugadores antes de recibir a Unión Magdalena**: [Link](https://www.lapatria.com/deportes/la-barra-del-once-caldas-y-el-reclamo-para-tecnicos-y-jugadores-antes-de-recibir-union)
-
-
-### tabla clausura liga 1 (N/A, 25/10/2025 20:57 Lima)
-
-- **Tabla de posiciones de la Liga 1 Perú 2025 EN VIVO HOY: así van los equipos en la fecha 16 del Torneo Clausura y Acumulada**: [Link](https://www.infobae.com/peru/deportes/2025/10/25/tabla-de-posiciones-liga-1-peru-2025-en-vivo-hoy-acumulada-fecha-16-torneo-clausura-programacion-resultados/)
-- **Tabla de posiciones de la Liga 1 EN VIVO HOY: así va tras la victoria de Cusco FC**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/tabla-de-posiciones-liga-1-2025-en-vivo-resultados-posiciones-del-clausura-y-acumulado-noticia/)
-- **Programación fecha 16 del Torneo Clausura Liga1 Te Apuesto**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/programacion-fecha-16-torneo-clausura-liga1-te-apuesto-n451465)
 
 
