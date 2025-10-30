@@ -1,3 +1,17 @@
+### lakers (N/A, 30/10/2025 03:32 Lima)
+
+- **Player Grades: Lakers vs. Wolves**: [Link](https://www.silverscreenandroll.com/lakers-analysis/98970/player-grades-lakers-vs-wolves-austin-reaves-deandre-ayton-jake-laravia-rui-hachimura)
+- **NBA Notes: Lakers' Buzzer-Beater, Rockets' Rebounding Dominance, and Bulls' Perfect Start**: [Link](https://bvmsports.com/2025/10/30/nba-notes-lakers-buzzer-beater-rockets-rebounding-dominance-and-bulls-perfect-start/)
+- **LaRavia, Reaves lead Lakers to thrilling win over Timberwolves**: [Link](https://www.geosuper.tv/latest/50150-laravia-reaves-lead-lakers-to-thrilling-win-over-timberwolves)
+
+
+### libertadores 2025 (N/A, 30/10/2025 03:32 Lima)
+
+- **Libertadores: Quanto custa ir para Lima ver o Flamengo na final? Veja preços de avião e ônibus**: [Link](https://oglobo.globo.com/esportes/noticia/2025/10/29/libertadores-quanto-custa-ir-para-lima-ver-o-flamengo-na-final-veja-precos-de-aviao-e-onibus.ghtml)
+- **CONMEBOL confirma Imply® ElevenTickets como ticketeira oficial da Final da CONMEBOL Libertadores**: [Link](https://imply.com/pt/conmebol-confirma-imply-eleventickets-como-ticketeira-oficial-da-final-da-conmebol-libertadores/)
+- **Ingressos para a final da Libertadores 2025: confira pré-inscrição e valores**: [Link](https://www.gazetaesportiva.com/apostas/noticias/ingressos-para-a-final-da-libertadores-2025-confira-pre-inscricao-e-valores)
+
+
 ### twitch (N/A, 29/10/2025 23:28 Lima)
 
 - **Twitch x hololive production Collaboration Online Event “holoday”**: [Link](https://hololive.hololivepro.com/en/news/20251029-01-163/)
@@ -1008,19 +1022,5 @@ Sin noticias relacionadas disponibles.
 - **Lazio-Juventus, al fischio d’inizio arriva il messaggio della Curva Nord: la foto**: [Link](https://onefootball.com/id/berita/lazio-juventus-al-fischio-dinizio-arriva-il-messaggio-della-curva-nord-la-foto-41861606)
 - **Guendouzi a Dazn: «Abbiamo cambiato modo di giocare. Dobbiamo giocare come contro l'Atalanta» - Lazio**: [Link](https://www.lazionews24.com/lazio-juve-guendouzi-dazn-parole/)
 - **Modesto su Tudor: "Lazio-Juve decisiva per lui? Rispondo così. David, Vlahovic e Koopmeiners…"**: [Link](https://www.tuttosport.com/news/calcio/serie-a/juventus/2025/10/26-144093310/modesto_su_tudor_lazio-juve_decisiva_per_lui_rispondo_cos_david_vlahovic_e_koopmeiners)
-
-
-### lyon - racing de estrasburgo (N/A, 26/10/2025 15:25 Lima)
-
-- **OL : pour Merah, Fonseca fait ses choix "en fonction de l’adversaire"**: [Link](https://www.olympique-et-lyonnais.com/ol-pour-merah-fonseca-fait-ses-choix-en-fonction-de-ladversaire,383428.html)
-- **Les stats avant Olympique Lyonnais-Racing (J9)**: [Link](https://www.rcstrasbourgalsace.fr/les-stats-avant-olympique-lyonnais-racing-j9/)
-- **OL : La supercherie lyonnaise va prendre fin**: [Link](https://www.msn.com/fr-fr/sport/other/ol-la-supercherie-lyonnaise-va-prendre-fin/ar-AA1PcZLY)
-
-
-### erick noriega (N/A, 26/10/2025 15:25 Lima)
-
-- **¡Confirmado! DT de Gremio tomó drástica medida con Erick Noriega tras goleada frente a Bahía**: [Link](https://libero.pe/futbol-internacional/2025/10/26/gremio-vs-juventude-dt-mano-menezes-tomo-drastica-medida-erick-noriega-goleada-frente-bahia-brasileirao-2025-1604564)
-- **Hinchas de Gremio más que conformes con Noriega: "Es el más regular"**: [Link](https://peru21.pe/deportes/hinchas-de-gremio-mas-que-conformes-con-noriega-es-el-mas-regular/)
-- **Mano Menezes sigue conforme con desempeño de Erick Noriega: “Confiamos en él”**: [Link](https://depor.com/futbol-peruano/peruanos-en-el-mundo/erick-noriega-recibio-nuevos-elogios-de-parte-de-mano-menezes-dt-de-gremio-tras-triunfo-ante-sao-paolo-brasileirao-noticia/)
 
 
