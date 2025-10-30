@@ -1,3 +1,66 @@
+### twitch (N/A, 29/10/2025 23:28 Lima)
+
+- **Twitch x hololive production Collaboration Online Event “holoday”**: [Link](https://hololive.hololivepro.com/en/news/20251029-01-163/)
+- **Twitch heard you wanted more vtubers so it signed a deal with the most popular vtuber agency in the world**: [Link](https://www.pcgamer.com/gaming-industry/twitch-heard-you-wanted-more-vtubers-so-it-signed-a-deal-with-the-most-popular-vtuber-agency-in-the-world/)
+- **Streamer Nina Lin Apologizes Over Resurfaced Footage of 2...**: [Link](https://www.complex.com/pop-culture/a/markelibert/streamer-nina-lin-apologizes-resurfaced-footage-2024-incident)
+
+
+### onp 19990 (N/A, 29/10/2025 23:28 Lima)
+
+- **Cronograma ONP de noviembre 2025: Fechas del pago de pensiones en el Banco de la Nación**: [Link](https://www.infobae.com/peru/2025/10/26/cronograma-onp-de-noviembre-2025-fechas-del-pago-de-pensiones-en-el-banco-de-la-nacion/)
+- **Pago ONP 19990 de noviembre: ¿Cuál es el cronograma para el cobro de pensiones en el Banco de la Nación?**: [Link](https://rpp.pe/economia/economia/pago-onp-19990-en-noviembre-2025-este-es-el-cronograma-completo-y-desde-cuando-inicia-el-cobro-de-pensiones-en-banco-de-la-nacion-noticia-1661214)
+- **Banco de la Nación publica el cronograma de pagos de noviembre 2025: revisa aquí las fechas más importantes**: [Link](https://elpopular.pe/actualidad/2025/10/27/banco-de-la-nacion-publica-el-cronograma-de-pagos-de-noviembre-2025-revisa-aqui-las-fechas-mas-importantes-1100142)
+
+
+### lanus vs u de chile (N/A, 29/10/2025 23:28 Lima)
+
+- **La probable formación de Universidad de Chile para la revancha con Lanús por la CONMEBOL Sudamericana**: [Link](https://www.espn.com.ar/futbol/copa-sudamericana/nota/_/id/15885244/formacion-universidad-de-chile-vs-lanus-semifinal-vuelta-conmebol-sudamericana)
+- **Lanús vs. U. de Chile: horarios y canales de transmisión para ver partido por Copa Sudamericana**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/lanus-vs-u-de-chile-en-vivo-gratis-hoy-via-futbol-libre-tv-espn-directv-horarios-canales-tv-y-donde-ver-semifinal-de-copa-sudamericana-video-noticia/)
+- **El ex Independiente que agiliza trámites para jugar un repechaje mundialista**: [Link](https://www.fmalpina.com.ar/articulo/el-ex-independiente-que-agiliza-tramites-para-jugar-un-repechaje-mundialista.php)
+
+
+### lafc - austin fc (N/A, 29/10/2025 23:28 Lima)
+
+- **Player Availability Report: LAFC vs. Austin FC | Oct. 29, 2025**: [Link](https://www.austinfc.com/news/player-availability-report-lafc-vs-austin-fc-oct-29-2025)
+- **Son and Bouanga's Telepathy Stuns MLS**: [Link](https://www.chosun.com/english/sports-en/2025/10/30/BJTO2HLZQNBHXLKRTRX3JGYJF4/)
+- **Los Angeles FC vs. Austin FC Game 1 prediction, pick for Wednesday 10/29/25**: [Link](https://dknetwork.draftkings.com/2025/10/29/los-angeles-fc-vs-austin-fc-game-1-prediction-pick-for-wednesday-10-29-25/)
+
+
+### final copa libertadores 2025 (N/A, 29/10/2025 23:28 Lima)
+
+- **¡Rumbo a Lima! Conmebol destaca al Estadio Monumental por ser una vez más escenario de una final de Copa Libertadores**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/rumbo-a-lima-conmebol-destaca-al-estadio-monumental-por-ser-una-vez-mas-escenario-de-una-final-de-copa-libertadores-ultimas-noticia/)
+- **Salió el pre-registro para venta de entradas de la final de Copa Libertadores: así puedes hacerlo**: [Link](https://latinanoticias.pe/deportes/link-pre-registro-final-de-copa-libertadores-2025-como-registrarme-y-cuando-salen-las-entradas_20251027/)
+- **Perú declaró un estado de emergencia y peligra la celebración de la final de la Copa Libertadores en el país - informes**: [Link](https://tribuna.com/es/news/2025-10-23-peru-declaro-un-estado-de-emergencia-y-peligra-la-celebracion-de-la-final-de-la-copa-libe/)
+
+
+### palmeiras vs ldu (N/A, 29/10/2025 23:28 Lima)
+
+- **Liga de Quito vs. Palmeiras: horarios y canales de transmisión para ver partido por Copa Libertadores**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/liga-de-quito-vs-palmeiras-en-vivo-gratis-hoy-via-futbol-libre-tv-espn-horarios-canales-tv-y-donde-ver-semifinal-de-copa-libertadores-video-noticia/)
+- **Copa Libertadores: Palmeiras y Liga de Quito se juegan todo por un pase a la final**: [Link](https://rpp.pe/futbol/ligas-internacionales/copa-libertadores-palmeiras-y-liga-de-quito-se-juegan-todo-por-un-pase-a-la-final-noticia-1661541)
+- **Palmeiras vs LDU de Quito: pronóstico por la semifinal de vuelta de la Copa Libertadores 2025**: [Link](https://www.futbolperuano.com/copa-libertadores/noticias/palmeiras-vs-ldu-de-quito-en-vivo-online-por-la-semifinal-de-vuelta-de-la-copa-libertadores-2025-546266)
+
+
+### mavericks - pacers (N/A, 29/10/2025 23:28 Lima)
+
+- **Mavs eke out 107-105 victory over Pacers**: [Link](https://www.nba.com/mavs/news/mavs-eke-out-107-105-victory-over-pacers)
+- **Mavericks' Cooper Flagg: Double-doubles in win**: [Link](https://www.cbssports.com/fantasy/basketball/news/mavericks-cooper-flagg-double-doubles-in-win/)
+- **Pacers Mavericks Basketball**: [Link](https://www.couriernews.com/sports/pacers-mavericks-basketball/image_b34e5437-3f63-5a9b-8f92-e1c29241c9f1.html)
+
+
+### filipe luis (N/A, 29/10/2025 23:28 Lima)
+
+- **¿Se cortará la racha? La última vez que la final de Copa Libertadores no tuvo a brasileños**: [Link](https://libero.pe/futbol-internacional/copa-libertadores/2025/10/29/se-cortara-racha-ultima-vez-final-de-copa-libertadores-tuvo-brasilenos-389122)
+- **Racing vs. Flamengo: Canales para ver hoy la crucial semifinal de la Copa Libertadores**: [Link](https://andina.pe/agencia/noticia-racing-vs-flamengo-canales-para-ver-hoy-crucial-semifinal-de-copa-libertadores-1050013.aspx)
+- **Regresa a Lima: Flamengo clasificó la final de la Copa Libertadores tras empatar 0-0 con Racing**: [Link](https://peru21.pe/deportes/flamengo-clasifico-la-final-de-la-copa-libertadores-tras-empatar-0-0-con-racing/)
+
+
+### facundo cambeses (N/A, 29/10/2025 23:28 Lima)
+
+- **Puso la cara: la atajada de Cambeses que salvó del gol a Racing vs. Flamengo | VIDEO**: [Link](https://elcomercio.pe/deporte-total/argentina/facundo-cambeses-hoy-con-racing-vs-flamengo-mira-la-atajada-con-la-cara-en-partido-por-copa-libertadores-video-noticia/)
+- **Facundo Cambeses, clave para sostener el cero en el arco de Racing ante los embates de Flamengo**: [Link](https://www.tycsports.com/racing-club/facundo-cambeses-clave-para-sostener-cero-arco-racing-ante-embates-flamengo-id695338.html)
+- **Costas la anécdota con Cambeses y su amor por Racing**: [Link](https://www.lacomuderacing.com/costas-la-anecdota-con-cambeses-y-su-amor-por-racing/)
+
+
 ### agustín rossi (N/A, 29/10/2025 20:57 Lima)
 
 - **Rossi y Cambeses salvan sus arcos: Racing y Flamengo casi anotan en los primeros 15′ | VIDEO**: [Link](https://elcomercio.pe/deporte-total/argentina/rossi-y-cambeses-salvan-sus-arcos-racing-y-flamengo-casi-anotan-en-los-primeros-15-video-noticia/)
@@ -959,68 +1022,5 @@ Sin noticias relacionadas disponibles.
 - **¡Confirmado! DT de Gremio tomó drástica medida con Erick Noriega tras goleada frente a Bahía**: [Link](https://libero.pe/futbol-internacional/2025/10/26/gremio-vs-juventude-dt-mano-menezes-tomo-drastica-medida-erick-noriega-goleada-frente-bahia-brasileirao-2025-1604564)
 - **Hinchas de Gremio más que conformes con Noriega: "Es el más regular"**: [Link](https://peru21.pe/deportes/hinchas-de-gremio-mas-que-conformes-con-noriega-es-el-mas-regular/)
 - **Mano Menezes sigue conforme con desempeño de Erick Noriega: “Confiamos en él”**: [Link](https://depor.com/futbol-peruano/peruanos-en-el-mundo/erick-noriega-recibio-nuevos-elogios-de-parte-de-mano-menezes-dt-de-gremio-tras-triunfo-ante-sao-paolo-brasileirao-noticia/)
-
-
-### sporting (N/A, 26/10/2025 15:25 Lima)
-
-- **Casa cheia em Tondela e Sporting CP regressa aos triunfos**: [Link](https://www.ligaportugal.pt/news/25720/casa-cheia-em-tondela-e-sporting-cp-regressa-aos-triunfos)
-- **Rui Borges: “Os jogadores tiveram prazer a jogar, foi isso que lhes pedi”**: [Link](https://tribuna.expresso.pt/sporting/2025-10-26-rui-borges-os-jogadores-tiveram-prazer-a-jogar-foi-isso-que-lhes-pedi-a6f2f326)
-- **A felicidade e diversão de quem não se fartou de ir à Fonte**: [Link](https://observador.pt/2025/10/26/pedro-a-felicidade-e-a-diversao-de-um-leao-que-nao-se-fartou-de-ir-a-fontes-em-terra-de-beiroes-a-cronica-do-tondela-sporting/)
-
-
-### elecciones argentina (N/A, 26/10/2025 11:27 Lima)
-
-- **Videoanálisis | Lo que está en juego en las elecciones legislativas de Argentina**: [Link](https://elpais.com/argentina/2025-10-26/videoanalisis-lo-que-esta-en-juego-en-las-elecciones-legislativas-de-argentina.html)
-- **Qué se juegan Milei, la oposición y Trump en las elecciones legislativas de Argentina**: [Link](https://www.bbc.com/mundo/articles/c620g32532jo)
-- **Elecciones: Milei pone a prueba su Gobierno y Kicillof busca afianzarse como candidato del peronismo**: [Link](https://www.clarin.com/politica/elecciones-milei-pone-prueba-gobierno-kicillof-busca-afianzarse-candidato-peronismo_0_4diIkQng2R.html)
-
-
-### jude bellingham (N/A, 26/10/2025 11:27 Lima)
-
-- **Real Madrid vs Barcelona - El Clasico LIVE: Score, team news and updates as Jude Bellingham and Marcus...**: [Link](https://www.dailymail.co.uk/sport/football/article-15228229/Real-Madrid-vs-Barcelona-El-Clasico-LIVE-Score-team-news-updates-Jude-Bellingham-Trent-Alexander-Arnold-Marcus-Rashford.html)
-- **Football Daily | El clásico is back with an English twist to a game thankfully on Spanish soil**: [Link](https://www.theguardian.com/football/2025/oct/24/el-clasico-real-madrid-barcelona-english-twist-spanish-soil-football-daily-newsletter)
-- **Have two English players ever played against each other in the El Clasico before?**: [Link](https://www.thesun.co.uk/sport/37077045/have-two-english-players-played-in-el-clasico-before/)
-
-
-### rashford (N/A, 26/10/2025 11:27 Lima)
-
-- **Rashford: Spoke to Barça before over Utd exit**: [Link](https://www.espn.co.uk/football/story/_/id/46697555/marcus-rashford-previous-barcelona-man-united-transfer-talks-loan)
-- **Barcelona forward gets another chance to settle scores with Real Madrid star**: [Link](https://semprebarca.com/barcelona-forward-gets-another-chance-to-settle-scores-with-real-madrid-star/)
-- **How a top player prepares for a match: Marcus Rashford reveals his pre-match routine**: [Link](https://tribuna.com/en/blogs/how-a-top-player-prepares-for-a-match-marcus-rashford-reveal/)
-
-
-### flashscore (N/A, 26/10/2025 11:27 Lima)
-
-- **European live updates: Madrid vs. Barcelona a thriller; Eze lifts Arsenal, Man City lose**: [Link](https://africa.espn.com/football/story/_/id/46700719/european-live-updates-arsenal-crystal-palace-manchester-city-aston-villa-real-madrid-barcelona)
-- **THE BIG ONE: El Clásico highlights a must-watch week on SuperSport**: [Link](https://supersport.com/football/general/news/7521865c-c3b4-442f-b86b-f45269022519/the-big-one-el-cl-sico-highlights-a-must-watch-week-on-supersport)
-- **League football: 5 matches to watch this weekend**: [Link](https://www.vanguardngr.com/2025/10/league-football-5-matches-to-watch-this-weekend-3/)
-
-
-### lewandowski (N/A, 26/10/2025 11:27 Lima)
-
-- **Lewandowski wykluczony w Barcelonie! Szatnia miała dosyć Piłka nożna**: [Link](https://www.sport.pl/pilka/7,65082,32349662,szatnia-barcelony-miala-dosc-lewandowskiego-co-za-wiesci-z.html)
-- **Lewandowski podpadł w szatni Barcelony. I to czym! Prawda wyszła na jaw**: [Link](https://wiadomosci.radiozet.pl/sport/lewandowski-podpadl-w-szatni-barcelony-i-to-czym-prawda-wyszla-na-jaw)
-- **Robert Lewandowski podpadł graczom Barcelony**: [Link](https://kanalsportowy.pl/pilka-nozna/zachowanie-lewandowskiego-nie-podobalo-sie-graczom-barcelony/)
-
-
-### everton - tottenham (N/A, 26/10/2025 11:27 Lima)
-
-- **Everton vs Tottenham Confirmed Lineups for October 26**: [Link](https://lastwordonsports.com/football/2025/10/26/everton-vs-tottenham-hotspur-confirmed-lineups-october/)
-- **Preview: Everton host Thomas Frank’s Spurs**: [Link](https://www.fotmob.com/topnews/23609-preview-everton-host-thomas-franks-spurs?utm_source=fotmob)
-- **Everton set for drastic defensive change vs Tottenham as Merlin Rohl provides solution**: [Link](https://www.goodisonnews.com/2025/10/25/everton-set-for-drastic-defensive-change-vs-tottenham-as-merlin-rohl-provides-solution/)
-
-
-### pirlo (N/A, 26/10/2025 11:27 Lima)
-
-- **Serginho: "Milan mi piaci. Modric e Leao top, ma che lavoro Allegri"**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Milan/24-10-2025/serginho-intervista-milan-mi-piaci-modric-e-leao-top-occhio-al-pisa-di-gilardino.shtml)
-- **Che onore per il club d'Eccellenza: in visita un'ex stella del Milan**: [Link](https://www.tuttocampo.it/Sicilia/News/1787025/che-onore-per-il-club-d-eccellenza-in-visita-un-ex-stella-del-milan)
-- **Serginho: «A marzo la sfida con Inter e Napoli...»**: [Link](https://www.internews24.com/serginho-ambizioni-scudetto-milan-inter-napoli/)
-
-
-### partido libre (N/A, 26/10/2025 11:27 Lima)
-
-- **Rixi Moncada: No buscaré proteger el capital sino a los hondureños**: [Link](https://www.telesurtv.net/rixi-moncada-no-proteger-capital-hondurenos/)
-- **EH Verifica realizará este jueves 23 de octubre la segunda edición del Verificatón en Tegucigalpa**: [Link](https://www.elheraldo.hn/elheraldoplus/factchecking/analisis/eh-verifica-realizara-jueves-23-octubre-segunda-edicion-verificaton-tegucigalpa-DL27868597)
-- **El conversatorio De frente con Rixi Moncada 2025 by USAP Honduras**: [Link](https://iconosmag.com/categoria-actualidad/categoria-honduras-504/conversatorio-de-frente-rixi-moncada-partido-libertad-refundacion-libre-usap-honduras-powered-arizona-state-university/)
 
 
