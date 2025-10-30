@@ -1,3 +1,31 @@
+### keiko fujimori (N/A, 30/10/2025 07:51 Lima)
+
+- **Keiko Fujimori será candidata a la Presidencia por cuarta vez: estos son los aspirantes a la Vicepresidencia, Senado y Cámara de Diputados por Fuerza Popular**: [Link](https://www.infobae.com/peru/2025/10/29/keiko-fujimori-sera-candidata-a-la-presidencia-por-cuarta-vez-estos-son-los-aspirantes-a-la-vicepresidencia-senado-y-camara-de-diputados-por-fuerza-popular/)
+- **Keiko Fujimori lanzará oficialmente su candidatura presidencial en Trujillo este jueves 30**: [Link](https://caretas.pe/politica/keiko-fujimori-lanzara-oficialmente-su-candidatura-presidencial-en-trujillo-este-jueves-30/)
+- **Keiko Fujimori perfila una cuarta postulación a la Presidencia: ¿Irá al Senado? ¿Cómo llega a esta elección? ¿Y cuál es su real objetivo?**: [Link](https://elcomercio.pe/politica/elecciones/keiko-fujimori-perfila-una-cuarta-postulacion-a-la-presidencia-ira-al-senado-como-llega-a-esta-eleccion-y-cual-es-su-real-objetivo-quienes-mas-integran-lista-tlcnota-noticia/)
+
+
+### karla bacigalupo (N/A, 30/10/2025 07:51 Lima)
+
+- **Karla Bacigalupo entre las favoritas del Miss Universo 2025, según missólogo internacional**: [Link](https://www.infobae.com/peru/2025/10/29/karla-bacigalupo-entre-las-favoritas-del-miss-universo-2025-segun-missologo-internacional/)
+- **Karla Bacigalupo rumbo a Tailandia para representar al Perú en el Miss Universo 2025**: [Link](https://peru21.pe/espectaculos/karla-bacigalupo-rumbo-tailandia-para-representar-al-peru-en-el-miss-universo-2025/)
+- **Karla Bacigalupo: la elegancia y determinación de Perú rumbo al Miss Universo**: [Link](https://www.diariolasamericas.com/florida/karla-bacigalupo-la-elegancia-y-determinacion-peru-rumbo-al-miss-universo-n5384357)
+
+
+### retiro afp 2025 solicitud denegada (N/A, 30/10/2025 07:51 Lima)
+
+- **Retiro de AFP 2025: ¿Cómo saber si mi solicitud fue denegada y tengo que enviar otra?**: [Link](https://www.infobae.com/peru/2025/10/29/retiro-de-afp-2025-como-saber-si-mi-solicitud-fue-denegada-y-tendre-que-enviar-otra/)
+- **Retiro de AFP 2025: mira en este link si te toca tramitar solicitud hasta por S/ 21,400**: [Link](https://elperuano.pe/noticia/281868-retiro-de-afp-2025-mira-en-este-link-si-te-toca-tramitar-solicitud-hasta-por-s-21400)
+- **Octavo Retiro AFP de hasta 4 UIT: Cuándo y cómo realizar el trámite sin errores y ONLINE**: [Link](https://elcomercio.pe/respuestas/tramites/todo-sobre-el-nuevo-retiro-afp-2025-mira-como-hacer-el-tramite-link-fechas-y-requisitos-tdpe-noticia/)
+
+
+### los angeles fc (N/A, 30/10/2025 07:51 Lima)
+
+- **Lionel Messi's Total Pay in MLS Reaches $20 Million - But There's a New No. 2**: [Link](https://www.foxsports.com/stories/mls/lionel-messis-total-pay-mls-reaches-20-million-theres-new-no-2)
+- **Son Heung-Min earning $11.15 million in deal with Los Angeles FC**: [Link](https://www.timeswv.com/sports/son-heung-min-earning-11-15-million-in-deal-with-los-angeles-fc/article_2993ac85-4baf-56d6-a323-d763326f2517.html)
+- **💵 Messi tops MLS salary rankings, Müller and De Paul miss out**: [Link](https://ca.sports.yahoo.com/news/messi-tops-mls-salary-rankings-103600618.html)
+
+
 ### lakers (N/A, 30/10/2025 03:32 Lima)
 
 - **Player Grades: Lakers vs. Wolves**: [Link](https://www.silverscreenandroll.com/lakers-analysis/98970/player-grades-lakers-vs-wolves-austin-reaves-deandre-ayton-jake-laravia-rui-hachimura)
@@ -994,33 +1022,5 @@ Sin noticias relacionadas disponibles.
 ### union saint-gilloise (N/A, 26/10/2025 15:25 Lima)
 
 - **Predicted Lineups and Player Updates for Union Saint-Gilloise vs Sint-Truidense VV 26/10/25 - First Division A News**: [Link](https://footballpredictions.net/predicted-lineups-sint-truiden-v-union-saint-gilloise-26-10-2025)
-
-
-### adt - universitario (N/A, 26/10/2025 15:25 Lima)
-
-- **Con una sorpresa de último momento: la alineación de Universitario para enfrentar a ADT en busca del ‘tri’**: [Link](https://depor.com/futbol-peruano/descentralizado/universitario-vs-adt-alineacion-de-los-cremas-formacion-titulares-por-torneo-clausura-en-tarma-liga-1-noticia/)
-- **En viaje a Jauja: Vuelo de Universitario de Deportes tuvo que retornar a Lima**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/universitario-vuelo-de-la-u-rumbo-a-tarma-tuvo-que-retornara-a-lima-noticia/)
-- **Hinchas ingresaron a la fuerza al Estadio Unión Tarma previo al partido de Universitario [VIDEO]**: [Link](https://rpp.pe/futbol/descentralizado/universitario-vs-adt-hinchas-ingresaron-a-la-fuerza-a-estadio-previo-al-partido-en-tarma-por-clausura-2025-video-noticia-1661072)
-
-
-### rayo vallecano - alavés (N/A, 26/10/2025 15:25 Lima)
-
-- **Rayo Vallecano - Alavés en directo: LaLiga EA Sports hoy, en vivo**: [Link](https://as.com/futbol/primera/rayo-vallecano-alaves-en-directo-laliga-ea-sports-hoy-en-vivo-f202510-d/)
-- **Apuestas y Pronóstico del Rayo Vallecano vs Alavés 26/10/25**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2025/octubre/pronostico-rayo-vallecano-vs-alaves-26-10-25)
-- **Coudet dibuja una alineación 'a la carta': «No es quién inicie, es qué necesitamos»**: [Link](https://www.elcorreo.com/alaves/alaves-rayo-vallecano-coudet-dibuja-alineacion-carta-inicie-ver-necesitamos-20251026204457-nt.html)
-
-
-### lyon fc (N/A, 26/10/2025 15:25 Lima)
-
-- **OL : Paulo Fonseca, déjà l'un des meilleurs entraineurs de l'histoire du club**: [Link](https://www.dailymercato.com/news/ol-paulo-fonseca-deja-lun-des-meilleurs-entraineurs-de-lhistoire-du-club)
-- **Afonso Moreira scelle la victoire lyonnaise**: [Link](https://fr.uefa.com/uefaeuropaleague/video/029e-1f07d10cac13-690196cbe84c-1000--afonso-moreira-scelle-la-victoire-lyonnaise/)
-- **Bâle : Tolisso, Magnin était conscient du danger**: [Link](https://m.maxifoot.fr/bale/tolisso-magnin-etait-conscient-du-danger-foot-443312.htm)
-
-
-### lazio - juventus (N/A, 26/10/2025 15:25 Lima)
-
-- **Lazio-Juventus, al fischio d’inizio arriva il messaggio della Curva Nord: la foto**: [Link](https://onefootball.com/id/berita/lazio-juventus-al-fischio-dinizio-arriva-il-messaggio-della-curva-nord-la-foto-41861606)
-- **Guendouzi a Dazn: «Abbiamo cambiato modo di giocare. Dobbiamo giocare come contro l'Atalanta» - Lazio**: [Link](https://www.lazionews24.com/lazio-juve-guendouzi-dazn-parole/)
-- **Modesto su Tudor: "Lazio-Juve decisiva per lui? Rispondo così. David, Vlahovic e Koopmeiners…"**: [Link](https://www.tuttosport.com/news/calcio/serie-a/juventus/2025/10/26-144093310/modesto_su_tudor_lazio-juve_decisiva_per_lui_rispondo_cos_david_vlahovic_e_koopmeiners)
 
 
