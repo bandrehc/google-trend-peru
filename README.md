@@ -1,3 +1,31 @@
+### floyd roger myers jr (N/A, 30/10/2025 11:32 Lima)
+
+- **'Fresh Prince of Bel Air' Child Actor Floyd Roger Myers Jr. Dead at 42**: [Link](https://www.tmz.com/2025/10/29/floyd-roger-myers-jr-dead/)
+- **Cause of Death Revealed for ‘Fresh Prince’ Star Floyd Roger Myers, 42**: [Link](https://www.mensjournal.com/entertainment/floyd-roger-myers-fresh-prince-cause-of-death)
+- **'Fresh Prince of Bel-Air' child actor Floyd Roger Myers Jr. dies at 42**: [Link](https://www.nbcnews.com/news/us-news/fresh-prince-bel-air-child-actor-floyd-roger-myers-jr-dies-42-rcna240727)
+
+
+### lince iberico (N/A, 30/10/2025 11:32 Lima)
+
+- **Un fotógrafo graba por primera vez a un lince ibérico blanco: el misterioso color de ‘Satureja’**: [Link](https://elpais.com/clima-y-medio-ambiente/2025-10-29/un-fotografo-graba-por-primera-vez-a-un-lince-iberico-blanco-el-misterioso-color-de-satureja.html)
+- **Raro lince ibérico leucístico captado en foto por primera vez España**: [Link](https://cnnespanol.cnn.com/2025/10/30/espana/video/lince-iberico-blanco-fotografia-orix)
+- **La verdad tras la imagen viral del lince 'albino' captado en Jaén**: [Link](https://www.elmundo.es/ciencia-y-salud/medio-ambiente/2025/10/30/6903297721efa00d208b4590-video.html)
+
+
+### ninel conde (N/A, 30/10/2025 11:32 Lima)
+
+- **Reconocida actriz y cantante de ‘Rebelde’ se sometió a riesgosa cirugía y recibió críticas: “Deja de hacerte cosas raras”**: [Link](https://www.semana.com/gente/articulo/reconocida-actriz-y-cantante-de-rebelde-se-sometio-a-riesgosa-cirugia-y-recibio-criticas-deja-de-hacerte-cosas-raras/202535/)
+- **El antes y después de Ninel Conde: así luce con su nuevo color de ojos**: [Link](https://mexico.as.com/tikitakas/el-antes-y-despues-de-ninel-conde-asi-luce-con-su-nuevo-color-de-ojos-f202510-n/)
+- **¿Es peligroso? Éste es el COSTOSO procedimiento al que se han sometido celebridades como Ninel Conde y Alma Cero para cambiar el color de sus ojos**: [Link](https://www.msn.com/es-mx/salud/noticias-medicas/es-peligroso-%C3%A9ste-es-el-costoso-procedimiento-al-que-se-han-sometido-celebridades-como-ninel-conde-y-alma-cero-para-cambiar-el-color-de-sus-ojos/ar-AA1PrGLd?cvid=690389bfb84c428ea228755c7d24d6e0&ocid=hpmsn)
+
+
+### entel (N/A, 30/10/2025 11:32 Lima)
+
+- **Así devolverá Entel los cobros indebidos por el servicio de roaming en Argentina**: [Link](https://www.entnerd.com/asi-devolvera-entel-los-cobros-indebidos-por-el-servicio-de-roaming-en-argentina/)
+- **Comienzan compensaciones a cerca de 90 mil clientes por cobros de roaming en viajes a Argentina: ¿Cómo será el pago?**: [Link](https://www.cnnchile.com/pais/comienzan-compensaciones-90-mil-clientes-cobros-roaming-viajes-argentina-como-sera-pago_20251030/)
+- **Falla masiva en servicios de Entel afecta a miles de usuarios en Chile**: [Link](https://www.meganoticias.cl/nacional/504039-que-paso-con-entel-sin-internet-caida-servicio-datos-moviles-wifi-30-10-2025.html)
+
+
 ### keiko fujimori (N/A, 30/10/2025 07:51 Lima)
 
 - **Keiko Fujimori será candidata a la Presidencia por cuarta vez: estos son los aspirantes a la Vicepresidencia, Senado y Cámara de Diputados por Fuerza Popular**: [Link](https://www.infobae.com/peru/2025/10/29/keiko-fujimori-sera-candidata-a-la-presidencia-por-cuarta-vez-estos-son-los-aspirantes-a-la-vicepresidencia-senado-y-camara-de-diputados-por-fuerza-popular/)
@@ -996,31 +1024,5 @@ Sin noticias relacionadas disponibles.
 - **Bundle up runners! DC region will be chilly during Marine Corps Marathon**: [Link](https://wtop.com/weather-news/2025/10/bundle-up-runners-dc-region-will-be-chilly-during-marine-corps-marathon/)
 - **APTOPIX MarineCorpsMarathon**: [Link](https://www.wvnews.com/newsfeed/us/aptopix-marinecorpsmarathon/image_e6d51009-03eb-541b-9e70-2cedb0ebc716.html)
 - **Dumfries local Kyle King wins men's race for 3rd time in Marine Corps Marathon**: [Link](https://www.nbcwashington.com/video/news/local/dumfries-local-kyle-king-wins-mens-race-for-3rd-time-in-marine-corps-marathon/4006984/)
-
-
-### sebastián britos (N/A, 26/10/2025 21:02 Lima)
-
-- **Sebastián Britos es expulsado en el Universitario vs ADT | VIDEO**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/sebastian-britos-expulsado-hoy-en-el-universitario-vs-adt-por-torneo-clausura-de-liga-1-video-noticia/)
-- **Inesperada decisión de Kevin Ortega: tarjeta roja para Britos en Universitario vs. ADT**: [Link](https://depor.com/futbol-peruano/descentralizado/tarjeta-roja-para-sebastian-britos-universitario-vs-adt-ver-expulsion-al-portero-en-tarma-liga-1-video-noticia/)
-- **Insólita expulsión de Sebastián Britos por polémico gesto en Universitario vs ADT por el Torneo Clausura de la Liga 1 2025**: [Link](https://www.infobae.com/peru/deportes/2025/10/26/insolita-expulsion-de-sebastian-britos-por-polemico-gesto-en-universitario-vs-adt-por-el-torneo-clausura-de-la-liga-1-2025/)
-
-
-### moquegua (N/A, 26/10/2025 15:25 Lima)
-
-- **Temblor en Perú, hoy 26 de octubre: magnitud y epicentro del sismo según IGP**: [Link](https://rpp.pe/lima/desastres-naturales/temblor-en-peru-hoy-25-de-octubre-magnitud-y-epicentro-del-sismo-segun-igp-live-3016)
-- **Temblor en Perú: dos sismos remecieron Ica en lo que va de hoy**: [Link](https://andina.pe/agencia/noticia-temblor-peru-dos-sismos-remecieron-ica-lo-va-hoy-1049652.aspx)
-- **Terremoto moderado mag. 4.1 - Departamento de Ayacucho, 85 km al noreste de Provincia de Nazca, Perú, miércoles 22 oct 2025 a las 23:54 (Hora Lima)**: [Link](https://www.volcanodiscovery.com/es/sismos/informe-sismo/22305272/mag4quake-Oct-23-2025-Central-Peru.html)
-
-
-### fc cajamarca vs (N/A, 26/10/2025 15:25 Lima)
-
-- **CD Moquegua vs. FC Cajamarca EN VIVO vía YouTube: se enfrentan por la final ida de la Liga2 2025**: [Link](https://rpp.pe/futbol/segunda-division/cd-moquegua-vs-fc-cajamarca-en-vivo-a-que-hora-juegan-y-como-ver-final-de-liga-2-2025-ida-via-youtube-fpf-online-partidos-de-hoy-segunda-division-noticia-1661005)
-- **Liga 2: Unión Comercio y la Universidad César Vallejo aún pueden ascender a la Liga 1 del 2026**: [Link](https://www.futbolperuano.com/liga-2/noticias/union-comercio-y-la-universidad-cesar-vallejo-aun-pueden-ascender-a-liga-1-544117)
-- **Final confirmada: resultados, resumen y goles de las semifinales de la Liga 2**: [Link](https://bolavip.com/pe/futbol-peruano/final-confirmada-resultados-resumen-y-goles-de-las-semifinales-de-la-liga-2)
-
-
-### union saint-gilloise (N/A, 26/10/2025 15:25 Lima)
-
-- **Predicted Lineups and Player Updates for Union Saint-Gilloise vs Sint-Truidense VV 26/10/25 - First Division A News**: [Link](https://footballpredictions.net/predicted-lineups-sint-truiden-v-union-saint-gilloise-26-10-2025)
 
 
