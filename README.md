@@ -1,3 +1,73 @@
+### julio velarde (N/A, 30/10/2025 15:26 Lima)
+
+- **José Jerí, Denisse Miralles y Julio Velarde se reunieron para fortalecer la confianza y el crecimiento del país**: [Link](https://rpp.pe/economia/economia/jose-jeri-mef-y-bcr-se-reunieron-presidente-tuvo-encuentro-con-denisse-miralles-y-julio-velarde-para-fortalecer-confianza-y-crecimiento-del-pais-noticia-1661571)
+- **José Jerí reafirmó compromiso con estabilidad económica**: [Link](https://caretas.pe/politica/jose-jeri-reafirmo-compromiso-con-estabilidad-economica/)
+- **Gobierno reafirma compromiso con la estabilidad económica y la solidez fiscal del país**: [Link](https://elperuano.pe/noticia/281914-gobierno-reafirma-compromiso-con-la-estabilidad-economica-y-la-solidez-fiscal-del-pais)
+
+
+### feriados (N/A, 30/10/2025 15:26 Lima)
+
+- **Es oficial: este es el próximo feriado largo 2025 en Perú que traerá cuatro días de descanso**: [Link](https://www.infobae.com/peru/2025/10/28/feriado-largo-en-peru-2025-estos-trabajadores-tendran-cuatro-dias-de-descanso/)
+- **Feriados en noviembre 2025 en Perú: conoce todos los días no laborables del mes y prepárate para hacer planes**: [Link](https://elcomercio.pe/respuestas/cuando/feriados-en-noviembre-2025-en-peru-conoce-todos-los-dias-no-laborables-del-mes-y-preparate-para-hacer-planes-tdpe-noticia/)
+- **¿Cuántos feriados largos restan en el 2025? Esto dice el calendario nacional**: [Link](https://libero.pe/tiempoextra/2025/10/28/cuantos-feriados-largos-restan-en-2025-esto-dice-calendario-nacional-1689604)
+
+
+### stranger things (N/A, 30/10/2025 15:26 Lima)
+
+- **Stranger Things 5 Trailer: The Epic Final Battle Begins**: [Link](https://www.netflix.com/tudum/articles/stranger-things-season-5-trailer)
+- **'Stranger Things 5' first look at Vecna 'rebuilt' and more Duffer secrets from trailer (exclusive)**: [Link](https://ew.com/stranger-things-creators-break-down-season-5-trailer-first-look-vecna-exclusive-11839033)
+- **Queen and Stranger Things: The Weight of Living Forever**: [Link](https://miscelana.com/2025/10/30/queen-and-stranger-things-who-wants-to-live-forever/)
+
+
+### pisa vs (N/A, 30/10/2025 15:26 Lima)
+
+- **Pisa-Lazio - Serie A 2025/2026 Statistical Preview**: [Link](https://www.whoscored.com/matches/1901200/preview/italy-serie-a-2025-2026-pisa-lazio)
+- **Pisa's Midfield Evolution**: [Link](https://www.ilmessaggero.it/en/pisa_s_midfield_evolution-9157215.html)
+- **Pisa-Lazio: The Tuscans are chasing their first win, while Lazio are aiming for a European spot. Lineups and TV channels**: [Link](https://sport.quotidiano.net/en/calcio/pisa/pisa-lazio-toscani-caccia-del-primo-successo-laziali-per-la-zona-europa-formazioni-e-tv-ffb14281)
+
+
+### pedro gallese (N/A, 30/10/2025 15:26 Lima)
+
+- **“Inter Miami ve con buenos ojos a Gallese”: desde la MLS analizan el futuro del ‘Pulpo’ y qué falta para que juegue con Messi el 2026**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/seleccion-peruana-inter-miami-ve-con-buenos-ojos-a-pedro-gallese-desde-la-mls-analizan-el-futuro-del-pulpo-y-que-falta-para-que-juegue-con-lionel-messi-el-2026-alianza-lima-tlcnota-noticia/)
+- **El futuro de Gallese: ¿Universitario y Alianza Lima son opciones?**: [Link](https://espndeportes.espn.com/futbol/nota/_/id/15888369/el-futuro-de-gallese-universitario-y-alianza-lima-son-opciones)
+- **El arquero de selección candidato a reforzar al Inter Miami, que busca armar un nuevo “Dream Team” alrededor de Messi en 2026**: [Link](https://www.infobae.com/deportes/2025/10/29/el-arquero-de-seleccion-candidato-a-reforzar-al-inter-miami-que-busca-armar-un-nuevo-dream-team-alrededor-de-messi-en-2026/)
+
+
+### peru mucho gusto 2025 (N/A, 30/10/2025 15:26 Lima)
+
+- **Platos de las 25 regiones del país en un solo lugar y con ingreso completamente gratis: todo sobre Perú Mucho Gusto Lima 2025**: [Link](https://elcomercio.pe/provecho/peru-mucho-gusto-lima-2025-fechas-precios-platos-y-entradas-para-el-evento-gratis-mas-grande-de-gastronomia-en-la-ciudad-noticia/)
+- **Presidente José Jerí participa en inauguración de feria gastronómica "Perú Mucho Gusto"**: [Link](https://andina.pe/agencia/noticia-presidente-jose-jeri-participa-inauguracion-feria-gastronomica-peru-mucho-gusto-1050194.aspx)
+- **Feria Perú Mucho Gusto busca récord en turistas extranjeros y triplicar venta de emprendedores | ECONOMIA**: [Link](https://gestion.pe/economia/feria-peru-mucho-gusto-busca-record-en-turistas-extranjeros-y-triplicar-venta-de-emprendedores-noticia/)
+
+
+### chavin de huantar pelicula (N/A, 30/10/2025 15:26 Lima)
+
+- **Almirante Carlos Tello, héroe de Chavín de Huántar: Terroristas extorsionaban al Estado**: [Link](https://www.expreso.com.pe/actualidad/almirante-carlos-tello-heroe-de-chavin-de-huantar-terroristas-extorsionaban-al-estado-generacion-z-noticia/1235299/)
+- **Bruno Pinasco se quiebra en el escenario al presentar película peruana y el público lo ovaciona: “Gracias por salvarnos”**: [Link](https://larepublica.pe/espectaculos/2025/10/26/bruno-pinasco-se-quiebra-en-el-escenario-al-presentar-pelicula-peruana-y-el-publico-lo-ovaciona-gracias-por-salvarnos-2552030)
+- **Hijo del general Juan Valer sobre su participación en 'Chavín de Huántar, el rescate del siglo': "Tener un padre héroe es bastante difícil"**: [Link](https://willax.pe/actualidad/hijo-general-valer-pelicula-chavin-de-huantar-willax)
+
+
+### lazio (N/A, 30/10/2025 15:26 Lima)
+
+- **LIVE Pisa-Lazio 0-0 Serie A 2025/2026: Primi 10 Minuti Di Studio**: [Link](https://sport.virgilio.it/dirette/live/serie-a/30-10-2025/pisa-lazio/2558596/)
+- **Pisa-Lazio, Gilardino: "Conosciamo la Lazio e le sue qualità ma siamo positivi"**: [Link](https://onefootball.com/pt-br/noticias/pisa-lazio-gilardino-conosciamo-la-lazio-e-le-sue-qualita-ma-siamo-positivi-41880826)
+- **Serie A: in campo alle 20,45 Pisa-Lazio DIRETTA**: [Link](https://www.ansa.it/sito/notizie/sport/calcio/2025/10/30/serie-a-in-campo-alle-2045-pisa-lazio-diretta_47bcb368-2861-4d79-b2b0-ee274e26c6bc.html)
+
+
+### jannik sinner (N/A, 30/10/2025 15:26 Lima)
+
+- **Sinner se la ride, Bergs si dispera: il punto è uno show!**: [Link](https://video.gazzetta.it/tennis/atp/highlights/video-sinner-se-la-ride-bergs-si-dispera-il-punto-show-all-atp-di-parigi/7f39a05d-8e0e-4d4f-a948-12427b831xlk)
+- **Continua la corsa dell'altoatesino per tornare in vetta alla classifica mondiale. Niente da fare invece per Sonego che cede al terzo set. Tutti i dettagli su Rainews.it**: [Link](https://www.facebook.com/story.php?story_fbid=1298214399011744&id=100064695876217)
+- **Tennis Tracker: Sonego out con Medvedev, Sinner batte Cerundolo e vola ai quarti**: [Link](https://www.diretta.it/news/tennis-parigi-atp-singolare-tennis-tracker-sonego-out-con-medvedev-sinner-batte-cerundolo-e-vola-ai-quarti/Y50LLdCj/)
+
+
+### lazio vs (N/A, 30/10/2025 15:26 Lima)
+
+- **Sarri Considers Making Two Changes to Lazio Lineup That Beat Juventus**: [Link](https://thelaziali.com/2025/10/29/sarri-considers-making-two-changes-lazio-lineup-that-beat-juventus/)
+- **Mattia Zaccagni vs. Juventus – Player props & odds to score a goal on October 26**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/10/26/mattia-zaccagni-soccer-player-props-10-26-2025/86912305007/)
+- **European football: Basic piles more misery on Juventus with Lazio winner**: [Link](https://www.theguardian.com/football/2025/oct/26/european-football-lazio-juventus-roma-lille-leverkusen)
+
+
 ### floyd roger myers jr (N/A, 30/10/2025 11:32 Lima)
 
 - **'Fresh Prince of Bel Air' Child Actor Floyd Roger Myers Jr. Dead at 42**: [Link](https://www.tmz.com/2025/10/29/floyd-roger-myers-jr-dead/)
@@ -954,75 +1024,5 @@ Sin noticias relacionadas disponibles.
 - **‘Welcome to Derry’ Review: HBO’s ‘It’ Prequel Series Is the Wrong Kind of Clown Show**: [Link](https://www.indiewire.com/criticism/shows/welcome-to-derry-review-it-hbo-series-1235156516/)
 - **HBO’s New ‘It: Welcome to Derry’ Series Completely Ruins Stephen King’s Epic**: [Link](https://www.thedailybeast.com/obsessed/hbos-new-it-welcome-to-derry-series-completely-ruins-stephen-kings-epic/)
 - **The most WTF scares from 'IT: Welcome to Derry' episode 1, ranked**: [Link](https://mashable.com/article/it-welcome-to-derry-wtf-moments-scares-ranked)
-
-
-### atl. san luis - necaxa (N/A, 26/10/2025 23:33 Lima)
-
-- **Real Madrid vs. Barcelona (26 de Oct., 2025) Resultados en Vivo**: [Link](https://www.espn.com.ar/futbol/partido/_/juegoId/748236)
-- **MLB Gameday: Dodgers 4, Blue Jays 11 Resultado Final (24/10/2025)**: [Link](https://www.mlb.com/es/gameday/dodgers-vs-blue-jays/2025/10/24/813027/final/wrap)
-- **Aston Villa vs. Man City (26 de Oct., 2025) Resultados en Vivo**: [Link](https://www.espn.com.ar/futbol/partido/_/juegoId/740677)
-
-
-### san diego fc (N/A, 26/10/2025 21:02 Lima)
-
-- **For San Diego FC, a historic inaugural MLS season is equal parts philosophy and community**: [Link](https://www.theguardian.com/football/2025/oct/25/san-diego-fc-mls-playoffs)
-- **San Diego - Portland live**: [Link](https://www.marca.com/en/soccer/major-league-soccer/san-diego-portland/2025/10/27/01_0164_20251027_21280_1581-live.html)
-- **Playoffs return to Mission Valley — and this time, it’s San Diego FC’s turn**: [Link](https://eastvillagetimes.com/playoffs-return-to-mission-valley-and-this-time-its-san-diego-fcs-turn/)
-
-
-### toluca - pachuca (N/A, 26/10/2025 21:02 Lima)
-
-- **Toluca vs. Pachuca en vivo, Liga MX: horario, canal TV y dónde ver por Torneo Apertura**: [Link](https://elcomercio.pe/deporte-total/mexico/toluca-vs-pachuca-en-vivo-hoy-gratis-por-liga-mx-via-caliente-tv-amazon-prime-vix-futbol-libre-tv-a-que-hora-juegan-canal-de-transmision-y-donde-ver-online-video-noticia/)
-- **Liga MX: Toluca FC quiere mantenerse en la punta del campeonato**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-toluca-fc-quiere-mantenerse-en-la-punta-del-campeonato-noticia-1660999)
-- **Toluca recibe a Pachuca en el Infierno**: [Link](https://oem.com.mx/elsoldetoluca/deportes/toluca-recibe-a-pachuca-en-el-infierno-26467963)
-
-
-### kings - lakers (N/A, 26/10/2025 21:02 Lima)
-
-- **Sacramento Kings vs. Los Angeles Lakers - October 26, 2025 | Live Scores, Updates, Odds, Injury News and Recaps**: [Link](https://beritasriwijaya.co.id/sacramento-kings-vs-los-angeles-lakers-october-26-2025-live-scores-updates-odds-injury-news-and-recaps/)
-- **Lakers vs Kings Prediction, Picks & Odds for Tonight’s NBA Game**: [Link](https://sports.yahoo.com/article/lakers-vs-kings-prediction-picks-190000424.html)
-- **Kings vs. Lakers: Beat LA**: [Link](https://kingsherald.com/articles/kings-vs-lakers-beat-la/)
-
-
-### santos - querétaro (N/A, 26/10/2025 21:02 Lima)
-
-- **Santos vs. Queretaro (26 de Oct., 2025) Resultados en Vivo**: [Link](https://espndeportes.espn.com/futbol/partido/_/juegoId/736747)
-- **Santos Laguna vence 3-1 a Querétaro y se mete al Play-In**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/15874628/santos-vs-queretaro-liga-mx-apertura-2025-clasificacion-play-in)
-- **Tenemos que jugar los siguientes 3 partidos como si fueran finales: Lucas Ariel Rodríguez**: [Link](https://codiceinformativo.com/2025/10/tenemos-que-jugar-los-siguientes-3-partidos-como-si-fueran-finales-lucas-ariel-rodriguez/)
-
-
-### alianza vs river voley (N/A, 26/10/2025 21:02 Lima)
-
-- **Alianza Lima vs River Plate vóley EN VIVO HOY: punto a punto del partido por la Noche Blanquiazul 2025**: [Link](https://www.infobae.com/peru/deportes/2025/10/26/alianza-lima-vs-river-plate-en-vivo-hoy-canal-america-television-noche-blanquiazul-2025-resumen-resultado/)
-- **Debut por lo alto: Alianza Lima venció 3-0 a Kazoku por la fecha 1 de la Liga Peruana de Vóley 2025**: [Link](https://rpp.pe/voley/mas-voley/alianza-lima-vs-kazoku-no-peru-en-vivo-a-que-hora-inicia-y-como-ver-fecha-1-liga-peruana-de-voley-2025-26-via-latina-gratis-voley-en-vivo-noticia-1660985)
-- **¡Sigue la Noche Blanquiazul Vóley Apuesta Total 2025 EN VIVO por América TV!**: [Link](https://www.americatv.com.pe/deportes/polideportivo/vive-noche-blanquiazul-voley-america-tv-y-tvgo-n451412)
-
-
-### atlético nacional - medellín (N/A, 26/10/2025 21:02 Lima)
-
-- **Liga Betplay: Nacional golea al Medellín y da un paso firme hacia los cuadrangulares**: [Link](https://www.espn.com.ar/futbol/colombia/nota/_/id/15860430/liga-betplay-nacional-golea-al-medellin-y-da-un-paso-firme-hacia-los-cuadrangulares)
-- **Qué canal pasa Atlético Nacional vs DIM hoy: dónde ver el partido gratis y en vivo de la Liga BetPlay**: [Link](https://www.365scores.com/es/news/atletico-nacional-vs-dim-donde-ver-vivo/)
-- **Atlético Nacional vs. Independiente Medellín - EN VIVO: ya lo gana el Verdolaga con gol de Marino Hinestroza**: [Link](https://www.infobae.com/colombia/deportes/2025/10/26/atletico-nacional-vs-independiente-medellin-en-vivo-clasico-paisa-de-la-fecha-17-de-la-liga-betplay-ii-2025/)
-
-
-### whitecaps - fc dallas (N/A, 26/10/2025 21:02 Lima)
-
-- **MLS Cup Playoffs: FC Dallas falls 3-0 to Vancouver Whitecaps**: [Link](https://www.bigdsoccer.com/fc-dallas-vs-vancouver-whitecaps-2025-playoffs-recap-scores-match-one/)
-- **Whitecaps FC dominate Dallas to win playoff Game 1 in Vancouver**: [Link](https://nelsonstar.com/2025/10/26/whitecaps-fc-dominate-dallas-to-win-playoff-game-1-in-vancouver/)
-- **Thomas Muller scores, Vancouver Whitecaps open MLS playoffs with 3-0 victory over FC Dallas**: [Link](https://www.tsn.ca/soccer/article/muller-scores-whitecaps-open-mls-playoffs-with-victory-over-fc-dallas/)
-
-
-### palmeiras - cruzeiro (N/A, 26/10/2025 21:02 Lima)
-
-- **Cruzeiro enche setor visitante do Allianz Parque em jogo contra o Palmeiras pelo Brasileiro**: [Link](https://www.centraldatoca.com.br/torcida/2025/10/26/cruzeiro-enche-setor-visitante-do-allianz-parque-em-jogo-contra-o-palmeiras-pelo-brasileiro/)
-- **PC de Oliveira diz que Gustavo Gómez deveria ter sido expulso contra o Cruzeiro no Allianz Parque**: [Link](https://br.bolavip.com/campeonato-brasileirao/pc-de-oliveira-diz-que-gustavo-gomez-deveria-ter-sido-expulso-contra-o-cruzeiro-no-allianz-parque)
-- **Roger Flores vê erro grave da arbitragem em Palmeiras x Cruzeiro: 'Não entendi'**: [Link](https://www.otempo.com.br/sports/fora-de-campo/2025/10/26/roger-flores-ve-erro-grave-da-arbitragem-em-palmeiras-x-cruzeiro-nao-entendi)
-
-
-### marathon (N/A, 26/10/2025 21:02 Lima)
-
-- **Bundle up runners! DC region will be chilly during Marine Corps Marathon**: [Link](https://wtop.com/weather-news/2025/10/bundle-up-runners-dc-region-will-be-chilly-during-marine-corps-marathon/)
-- **APTOPIX MarineCorpsMarathon**: [Link](https://www.wvnews.com/newsfeed/us/aptopix-marinecorpsmarathon/image_e6d51009-03eb-541b-9e70-2cedb0ebc716.html)
-- **Dumfries local Kyle King wins men's race for 3rd time in Marine Corps Marathon**: [Link](https://www.nbcwashington.com/video/news/local/dumfries-local-kyle-king-wins-mens-race-for-3rd-time-in-marine-corps-marathon/4006984/)
 
 
