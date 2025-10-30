@@ -1,3 +1,69 @@
+### agustín rossi (N/A, 29/10/2025 20:57 Lima)
+
+- **Rossi y Cambeses salvan sus arcos: Racing y Flamengo casi anotan en los primeros 15′ | VIDEO**: [Link](https://elcomercio.pe/deporte-total/argentina/rossi-y-cambeses-salvan-sus-arcos-racing-y-flamengo-casi-anotan-en-los-primeros-15-video-noticia/)
+
+
+### marcos rojo (N/A, 29/10/2025 20:57 Lima)
+
+- **Los afiches contra Marcos Rojo que aparecieron antes de la revancha de Racing contra Flamengo**: [Link](https://www.tycsports.com/racing-club/afiches-racing-marcos-rojo-aparecieron-revancha-flamengo-copa-libertadores-id695215.html)
+- **Afiches contra Marcos Rojo en la previa de Racing - Flamengo: ¿quién los puso?**: [Link](https://www.ole.com.ar/racing/racing-libertadores-marcos-rojo-afiches-flamengo_0_525yy7kVEx.html)
+- **La verdad detrás de los insultantes carteles para Marcos Rojo en Avellaneda a horas de Racing vs. Flamengo**: [Link](https://www.msn.com/es-ar/noticias/other/la-verdad-detr%C3%A1s-de-los-insultantes-carteles-para-marcos-rojo-en-avellaneda-a-horas-de-racing-vs-flamengo/ar-AA1PregM?cvid=6902bd7b44a7438c8d14767a27b6074b&ocid=hpmsn)
+
+
+### giorgian de arrascaeta (N/A, 29/10/2025 20:57 Lima)
+
+- **Arrascaeta é o meio-campista com mais gols no mundo em 2025; veja ranking**: [Link](https://www.terra.com.br/esportes/flamengo/arrascaeta-e-o-meio-campista-com-mais-gols-no-mundo-em-2025-veja-ranking,0f8d5fd0cf21c12e53499a70d6c3e466spbm09qd.html)
+- **Sem Pedro, fase artilheira de Arrascaeta vira trunfo por final da Libertadores**: [Link](https://odia.ig.com.br/esporte/flamengo/2025/10/7153578-sem-pedro-fase-artilheira-de-arrascaeta-vira-trunfo-por-final-da-libertadores.html)
+- **Arrascaeta, do Flamengo, dispara na artilharia global em 2025 e conquista corações com gols explosivos**: [Link](https://www.torcidaflamengo.com.br/news.asp?nID=177788)
+
+
+### guillermo varela (N/A, 29/10/2025 20:57 Lima)
+
+Sin noticias relacionadas disponibles.
+
+
+### erick pulgar (N/A, 29/10/2025 20:57 Lima)
+
+- **Hinchas de Flamengo se rinden a los pies de Erick Pulgar tras valiosa victoria con Racing**: [Link](https://redgol.cl/copa-libertadores/hinchas-de-flamengo-se-rinden-a-los-pies-de-erick-pulgar-tras-valiosa-victoria-con-racing)
+- **Jugó en la Juventus, el City y el Real Madrid y así habla de un chileno: “Es un crack”**: [Link](https://chile.as.com/futbol/chilenos-por-el-mundo/jugo-en-la-juve-el-city-y-el-real-madrid-y-asi-habla-de-erick-pulgar-es-un-crack-f202510-n/)
+- **Semifinales de Copa Libertadores: hinchas del Flamengo piden a gritos a Erick Pulgar como titular**: [Link](https://www.encancha.cl/chilenos-por-el-mundo/2025/10/22/semifinales-de-copa-libertadores-hinchas-del-flamengo-piden-a-gritos-a-erick-pulgar-como-titular/)
+
+
+### timberwolves - lakers (N/A, 29/10/2025 20:57 Lima)
+
+- **Are Anthony Edwards, LeBron James, and Luka Doncic playing today, Oct. 29, in Timberwolves vs Lakers?**: [Link](https://bolavip.com/en/nba/are-anthony-edwards-lebron-james-and-luka-doncic-playing-today-oct-29-in-timberwolves-vs-lakers)
+- **Lakers HC JJ Redick Provides Injury Update For Key Players**: [Link](https://lastwordonsports.com/basketball/2025/10/29/lakers-injury-update-key-players-lebron-james-luka-doncic-adou-thiero/)
+- **bet365 bonus code NYPBET: Bet $5, get $200 in bonus bets for Lakers vs. Timberwolves**: [Link](https://nypost.com/2025/10/29/betting/bet365-bonus-code-nypbet-bet-5-get-200-in-bonus-bets-for-lakers-vs-timberwolves/)
+
+
+### jorge carrascal (N/A, 29/10/2025 20:57 Lima)
+
+- **El invicto de Carrascal frente a Racing: del 5-0 con River al desafío con Flamengo**: [Link](https://www.espn.com.ar/futbol/copa-libertadores/nota/_/id/15884484/el-invicto-de-carrascal-frente-a-racing-del-5-0-con-river-al-desafio-con-flamengo)
+- **De las navajas y peleas callejeras a héroe en la Copa Libertadores: la dura historia de superación de Jorge Carrascal**: [Link](https://www.ole.com.ar/usa/futbol-internacional/de-las-navajas-peleas-callejeras-a-heroe-en-copa-libertadores-la-dura-historia-de-superacion-de-jorge-carrascal_0_A2qSvqLAw0.html)
+- **El cuadro de Río de Janeiro quedó a un paso de la final de la Copa Libertadores, y ahora deberá cerrar su clasificación en Avellaneda (Argentina)**: [Link](https://www.facebook.com/infobaecolombia/photos/el-cuadro-de-r%C3%ADo-de-janeiro-qued%C3%B3-a-un-paso-de-la-final-de-la-copa-libertadores-/1259691436173616/)
+
+
+### millonarios - once caldas (N/A, 29/10/2025 20:57 Lima)
+
+- **Link, Millonarios vs. Once Caldas en vivo hoy | ¿cómo ver?**: [Link](https://elcomercio.pe/deporte-total/colombia/millonarios-vs-once-caldas-en-vivo-online-gratis-por-liga-betplay-via-win-sports-y-futbol-libre-tv-horarios-canales-tv-y-donde-ver-partido-de-hoy-video-noticia/)
+- **Qué canal pasa Millonarios vs Once Caldas hoy: dónde ver el partido gratis y en vivo de la Liga BetPlay**: [Link](https://www.365scores.com/es/news/canal-millonarios-vs-once-caldas-en-vivo/)
+- **El historial de Millonarios en octubre 29 por torneos oficiales**: [Link](https://onefootball.com/es/noticias/el-historial-de-millonarios-en-octubre-29-por-torneos-oficiales-41873736)
+
+
+### gonzalo plata (N/A, 29/10/2025 20:57 Lima)
+
+- **Felipe Luis sorprende en la formación de Flamengo con Racing**: [Link](https://www.racingdealma.com.ar/formacion-de-flamengo-con-racing/)
+- **Así formará Flamengo en la vuelta de las semifinales de la Libertadores ante Racing**: [Link](https://tribuna.com/es/news/2025-10-29-asi-formara-flamengo-en-la-vuelta-de-las-semifinales-de-la-libertadores-ante-racing/)
+- **Flamengo se entrenó en el predio de Defensa y Justicia**: [Link](https://deportv.gob.ar/futbol/flamengo-entreno-predio-defensa-justicia-copa-libertadores-racing-club-nid:8399)
+
+
+### palmeiras vs liga de quito (N/A, 29/10/2025 20:57 Lima)
+
+- **Liga de Quito vs. Palmeiras: horarios y canales de transmisión para ver partido por Copa Libertadores**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/liga-de-quito-vs-palmeiras-en-vivo-gratis-hoy-via-futbol-libre-tv-espn-horarios-canales-tv-y-donde-ver-semifinal-de-copa-libertadores-video-noticia/)
+- **Copa Libertadores: Palmeiras y Liga de Quito se juegan todo por un pase a la final**: [Link](https://rpp.pe/futbol/ligas-internacionales/copa-libertadores-palmeiras-y-liga-de-quito-se-juegan-todo-por-un-pase-a-la-final-noticia-1661541)
+- **Palmeiras vs LDU de Quito: pronóstico por la semifinal de vuelta de la Copa Libertadores 2025**: [Link](https://www.futbolperuano.com/copa-libertadores/noticias/palmeiras-vs-ldu-de-quito-en-vivo-online-por-la-semifinal-de-vuelta-de-la-copa-libertadores-2025-546266)
+
+
 ### city (N/A, 29/10/2025 15:27 Lima)
 
 - **¡Manchester City ha usado nueve camisetas en 2025! Aquí un ranking**: [Link](https://www.espn.com.pe/futbol/inglaterra/nota/_/id/15882311/manchester-city-ha-usado-nueve-camisetas-en-2025-ranking)
@@ -956,73 +1022,5 @@ Sin noticias relacionadas disponibles.
 - **Rixi Moncada: No buscaré proteger el capital sino a los hondureños**: [Link](https://www.telesurtv.net/rixi-moncada-no-proteger-capital-hondurenos/)
 - **EH Verifica realizará este jueves 23 de octubre la segunda edición del Verificatón en Tegucigalpa**: [Link](https://www.elheraldo.hn/elheraldoplus/factchecking/analisis/eh-verifica-realizara-jueves-23-octubre-segunda-edicion-verificaton-tegucigalpa-DL27868597)
 - **El conversatorio De frente con Rixi Moncada 2025 by USAP Honduras**: [Link](https://iconosmag.com/categoria-actualidad/categoria-honduras-504/conversatorio-de-frente-rixi-moncada-partido-libertad-refundacion-libre-usap-honduras-powered-arizona-state-university/)
-
-
-### rayo (N/A, 26/10/2025 11:27 Lima)
-
-- **Longtime partner ruled out as suspect in death of woman found on Bridgeport street, police say**: [Link](https://www.ctpost.com/news/article/bridgeport-homicide-rayo-mairena-deglis-perez-21118367.php)
-- **Neighbors react to death of Bridgeport mother found shot near daughter**: [Link](https://www.wtnh.com/news/connecticut/fairfield/bridgeport-community-reacts-to-death-of-mother-found-shot-near-daughter/)
-- **One-year-old child found unharmed several yards from mother’s murdered body, police say**: [Link](https://www.wfsb.com/2025/10/22/police-find-woman-with-severe-injuries/)
-
-
-### álvaro carreras (N/A, 26/10/2025 11:27 Lima)
-
-- **La hora de la verdad para Carreras: ¿Es o no es el 'anti-Lamine'?**: [Link](https://www.sport.es/es/noticias/real-madrid/hora-carreras-o-anti-lamine-122993981)
-- **Carreras, la esperanza del Madrid para contener a Lamine Yamal: "Es sorprendente el impacto que ha tenido"**: [Link](https://www.elmundo.es/deportes/futbol/2025/10/25/68fcfce321efa0d57f8b4570.html)
-- **Carreras, escudo ‘antiLamine’**: [Link](https://as.com/futbol/primera/carreras-escudo-antilamine-f202510-n/)
-
-
-### hearts - celtic f. c. (N/A, 26/10/2025 07:44 Lima)
-
-- **Celtic starting XI to face Hearts at Tynecastle**: [Link](https://www.celticfc.com/news/2025/october/26/celtic-starting-xi-to-face-hearts-at-tynecastle/)
-- **Chris Sutton makes big Hearts vs Celtic claim on Sky Sports**: [Link](https://thecelticbhoys.com/chris-sutton-makes-hearts-vs-celtic-claim-sky-sports)
-- **Sebastian Tounekti warns Celtic that Hearts are ‘100%’ title challengers**: [Link](https://www.67hailhail.com/news/sebastian-tounekti-warns-celtic-that-hearts-are-100-title-challengers/)
-
-
-### weather (N/A, 26/10/2025 07:44 Lima)
-
-- **Weather Whiz: October 26**: [Link](https://au.news.yahoo.com/weather-whiz-october-26-100000341.html)
-- **Weather Of The World: October 20-26**: [Link](https://www.aol.com/articles/weather-world-october-20-26-100000815.html)
-- **Weather Whiz: October 26**: [Link](https://www.aol.com/articles/weather-whiz-october-26-100000267.html)
-
-
-### r.c.d. mallorca - levante (N/A, 26/10/2025 07:44 Lima)
-
-- **LaLiga EA Sports: Mallorca se enfrenta ante la visita Levante por la fecha 10**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-mallorca-se-enfrenta-ante-la-visita-levante-por-la-fecha-10-noticia-1660917)
-- **Mallorca - Levante en directo - La Liga: Resultados y resúmenes de Fútbol - 26/10/2025**: [Link](https://espanol.eurosport.com/futbol/la-liga/2025-2026/live-mallorca-levante_mtc1610652/live-commentary.shtml)
-- **"Cuando vas último, vas con el culo prieto"**: [Link](https://www.mundodeportivo.com/futbol/mallorca/20251025/1002557312/vas-ultimo-vas-culo-prieto.html)
-
-
-### leverkusen vs (N/A, 26/10/2025 07:44 Lima)
-
-- **Bundesliga heute: Leverkusen - Freiburg LIVE im TV, Liveticker & Livestream**: [Link](https://www.sport1.de/news/fussball/bundesliga/2025/10/bundesliga-heute-leverkusen-freiburg-live-im-tv-liveticker-livestream)
-- **Hjulmand vor #B04SCF: „Wollen diesen bounce back“**: [Link](https://www.bayer04.de/de-de/news/werkself-tv/hjulmand-vor-b04scf-wollen-diesen-bounce-back)
-- **Fotos: SC Freiburg gegen Bayer Leverkusen – die Historie in Bildern**: [Link](https://www.badische-zeitung.de/fotos-sc-freiburg-gegen-bayer-leverkusen-die-historie-in-bildern)
-
-
-### torino vs (N/A, 26/10/2025 07:44 Lima)
-
-- **Football Tracker: Torino hosting rock-bottom Genoa in Serie A, El Clasico to follow**: [Link](https://www.flashscore.com/news/football-tracker-torino-hosting-rock-bottom-genoa-in-serie-a-el-clasico-to-follow/8QLdZZs9/)
-- **Serie A: Torino vs. Genoa – Confirmed line-ups and updates**: [Link](https://football-italia.net/serie-a-torino-genoa-confirmed-line-ups/)
-- **Where to Watch Torino FC vs. Genoa CFC: TV Channel, Start Time and Live Stream**: [Link](https://www.bleachernation.com/how-to-watch/2025/10/25/where-to-watch-torino-fc-vs-genoa-cfc-tv-channel-start-time-and-live-stream-2/)
-
-
-### universitario vs adt (N/A, 26/10/2025 07:44 Lima)
-
-- **La ‘U’, 8 títulos y una economía que es la envidia del país: cuántos millones acumulará en premios si se reafirma su hegemonía con el tricampeonato**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/universitario-hoy-la-u-8-titulos-y-una-economia-que-es-la-envidia-del-pais-cuantos-millones-acumulara-en-premios-si-se-reafirma-su-hegemonia-con-el-tricampeonato-liga-1-te-apuesto-noticia/)
-- **Locura en Tarma: el tremendo banderazo de los hinchas de Universitario antes de duelo ante ADT [VIDEO]**: [Link](https://rpp.pe/futbol/descentralizado/universitario-vs-adt-el-tremendo-banderazo-de-hinchas-cremas-antes-de-duelo-em-tarma-noticia-1661021)
-- **A qué hora juega Universitario vs ADT HOY: partido clave en Tarma por Torneo Clausura de la Liga 1 2025**: [Link](https://www.infobae.com/peru/deportes/2025/10/25/a-que-hora-juega-universitario-vs-adt-partido-tarma-fecha-16-torneo-clausura-liga-1-2025-horario/)
-
-
-### torino - genoa (N/A, 26/10/2025 07:44 Lima)
-
-Sin noticias relacionadas disponibles.
-
-
-### twente - ajax (N/A, 26/10/2025 07:44 Lima)
-
-- **LIVE eredivisie | Heitinga houdt tegen Twente vast aan Chelsea-basiself: Pasveer en McConnell starten**: [Link](https://www.ad.nl/voetbal/live-eredivisie-heitinga-houdt-tegen-twente-vast-aan-chelsea-basiself-pasveer-en-mcconnell-starten~a4eb02c2/)
-- **Ajax-supporters pakken groots uit met spandoek in Grolsch Veste**: [Link](https://www.twentefans.nl/ajax-supporters-pakken-groots-uit-met-spandoek-in-grolsch-veste/)
-- **Weghorst slaat meteen na rust toe en scoort in De Veste: 1-1**: [Link](https://www.tubantia.nl/fc-twente/weghorst-slaat-meteen-na-rust-toe-en-scoort-in-de-veste-1-1~af3543935/)
 
 
