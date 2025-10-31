@@ -1,3 +1,73 @@
+### olimpia vs (N/A, 30/10/2025 23:29 Lima)
+
+- **Olimpia-Alajuelense EN VIVO: cuánto va la semifinal por Copa Centroamericana**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/olimpia-vs-liga-alajuelense-en-vivo-gratis-hoy-via-futbol-libre-tv-espn-disney-plus-horarios-canales-tv-y-donde-ver-semifinal-de-copa-centroamericana-video-noticia/)
+- **Boniek García expresa su deseo de regresar a las canchas para el Olimpia vs Alajuelense**: [Link](https://www.diez.hn/videos/boniek-garcia-expresa-su-deseo-de-regresar-a-las-canchas-para-el-olimpia-vs-alajuelense-JF27996294)
+- **Policía Nacional de Honduras**: [Link](https://www.facebook.com/PoliciaNacionaldeHonduras/photos/d41d8cd9/1154373126885662/)
+
+
+### spurs - heat (N/A, 30/10/2025 23:29 Lima)
+
+- **Victor Wembanyama dominates Heat: 27 points, 18 rebounds, 5 blocks**: [Link](https://www.nba.com/watch/video/victor-wembanyama-27-points-highlights-vs-miami-heat)
+- **Kel'el Ware disappoints, but one star shows out in Heat's loss to Spurs**: [Link](https://www.si.com/nba/heat/onsi/news/kel-el-ware-disappoints-but-one-star-shows-out-in-heat-s-loss-to-spurs-01k8vp5cr3rk)
+- **3 Takeaways as Wembanyama's Spurs make history**: [Link](https://www.expressnews.com/sports/spurs/article/3-takeaways-wembanyama-s-spurs-make-history-21130316.php)
+
+
+### feriado largo (N/A, 30/10/2025 23:29 Lima)
+
+- **Es oficial: este es el próximo feriado largo 2025 en Perú que traerá cuatro días de descanso**: [Link](https://www.infobae.com/peru/2025/10/28/feriado-largo-en-peru-2025-estos-trabajadores-tendran-cuatro-dias-de-descanso/)
+- **Feriados en noviembre 2025 en Perú: conoce todos los días no laborables del mes y prepárate para hacer planes**: [Link](https://elcomercio.pe/respuestas/cuando/feriados-en-noviembre-2025-en-peru-conoce-todos-los-dias-no-laborables-del-mes-y-preparate-para-hacer-planes-tdpe-noticia/)
+- **Feriados 2025 en Perú: lista de fechas libres pendientes hasta fin de año**: [Link](https://www.expreso.com.pe/economia/feriados-2025-en-peru-lista-de-fechas-libres-pendientes-hasta-fin-de-ano-lima-regiones-provincias-noticia/1234809/)
+
+
+### final copa sudamericana 2025 (N/A, 30/10/2025 23:29 Lima)
+
+- **Atención Lanús: cuándo y dónde es la final de la Copa Sudamericana vs. Atlético Mineiro**: [Link](https://www.ole.com.ar/futbol-internacional/sudamericana/final-copa-sudamericana-2025_0_TP2NftY3Ae.html)
+- **Se definen a los finalistas hacia la Gran Conquista**: [Link](https://www.conmebol.com/noticias/se-definen-a-los-finalistas-hacia-la-gran-conquista/)
+- **Títulos internacionales de Lanús y finales jugadas**: [Link](https://www.365scores.com/es/news/titulos-internacionales-lanus-finales/)
+
+
+### tiago nunes (N/A, 30/10/2025 23:29 Lima)
+
+- **Ex-auxiliar do Corinthians relembra bastidores e fala em falta de valorização de técnico**: [Link](https://www.meutimao.com.br/noticias-do-corinthians/519275/ex-auxiliar-do-corinthians-relembra-bastidores-e-fala-em-falta-de-valorizacao-de-tecnico)
+- **Tiago Nunes dá a volta por cima e pode recolocar a LDU na final da Libertadores após 17 anos**: [Link](https://www.ogol.com.br/noticias/tiago-nunes-da-a-volta-por-cima-e-pode-recolocar-a-ldu-na-final-da-libertadores-apos-17-anos/962257)
+- **Palmeiras x LDU: time equatoriano tem novidades para tentar voltar à final da Libertadores após 17 anos**: [Link](https://somosfanaticos.fans/br/copa-libertadores/palmeiras-x-ldu-time-equatoriano-tem-novidades-para-tentar-voltar-a-final-da-libertadores-apos-17-anos)
+
+
+### palmeira (N/A, 30/10/2025 23:29 Lima)
+
+- **Palmeira que ‘anda’? Entenda por que planta nativa carrega mito de caminhar pela floresta**: [Link](https://g1.globo.com/sp/campinas-regiao/terra-da-gente/noticia/2025/10/29/palmeira-que-anda-entenda-por-que-planta-nativa-carrega-mito-de-caminhar-pela-floresta.ghtml)
+- **Árvore com "pernas de aranha" que se acreditava caminhar tem seu segredo explicado**: [Link](https://defatoonline.com.br/mundo/arvore-com-pernas-de-aranha-que-se-acreditava-caminhar-tem-seu-segredo-explicado/)
+- **Existe palmeira que anda? O que é mito e o que é ciência por trás da Socratea exorrhiza, espécie amazônica que viralizou**: [Link](https://g1.globo.com/meio-ambiente/noticia/2025/10/25/existe-palmeira-que-anda-o-que-e-mito-e-o-que-e-ciencia-por-tras-da-socratea-exorrhiza-especie-amazonica-que-viralizou.ghtml)
+
+
+### cuando es la final de la libertadores 2025 (N/A, 30/10/2025 23:29 Lima)
+
+- **Flamengo vuelve a la final de la Copa Libertadores en busca del cuarto título**: [Link](https://cnnespanol.cnn.com/2025/10/29/deportes/flamengo-final-copa-libertadores-efe)
+- **Filipe Luis acaricia la gloria**: [Link](https://as.com/futbol/internacional/filipe-luis-acaricia-la-gloria-f202510-n/)
+- **El mensaje de Diego Milito tras la eliminación y fin del sueño de Racing en la Libertadores**: [Link](https://www.espn.com.ar/futbol/copa-libertadores/nota/_/id/15890635/el-mensaje-de-diego-milito-tras-la-eliminacion-y-fin-del-sueno-de-racing-en-la-libertadores)
+
+
+### final libertadores 2025 (N/A, 30/10/2025 23:29 Lima)
+
+- **CONMEBOL y PUMA presentan el balón oficial de la Final de la CONMEBOL Libertadores 2025**: [Link](https://www.conmebol.com/noticias/conmebol-y-puma-presentan-el-balon-oficial-de-la-final-de-la-conmebol-libertadores-2025/)
+- **¿Cuándo es la Final de la Copa Libertadores 2025? Fecha, sede y cuándo se juega la final**: [Link](https://as.com/futbol/internacional/cuando-es-la-final-de-la-copa-libertadores-2025-fecha-sede-y-cuando-se-juega-la-final-f202510-n/)
+- **Cuándo se juega la final de la Copa Libertadores 2025**: [Link](https://www.ole.com.ar/futbol-internacional/libertadores/juega-final-copa-libertadores-2025-flamengo-dia-ver_0_WVHXQP8iPp.html)
+
+
+### raphael veiga (N/A, 30/10/2025 23:29 Lima)
+
+- **Goleiro Domínguez enrola contra o Palmeiras e árbitro Wilmar Roldán permite cera da LDU**: [Link](https://br.bolavip.com/campeonato-libertadores/goleiro-dominguez-enrola-contra-o-palmeiras-e-arbitro-wilmar-roldan-permite-cera-da-ldu)
+- **Allan detalha papo com Abel, e Veiga diz que sempre vai dar 'cara a tapa'**: [Link](https://www.bol.uol.com.br/esporte/2025/10/31/veiga-palmeiras-ldu.htm)
+- **Vitor Roque exalta torcida e celebra classificação: 'Mágica'**: [Link](https://www.lance.com.br/palmeiras/vitor-roque-exalta-torcida-e-celebra-classificacao-magica.html)
+
+
+### palmeras vs (N/A, 30/10/2025 23:29 Lima)
+
+- **Palmeiras beats Liga Deportiva 4-0 to reach Copa Libertadores final**: [Link](https://www.10tv.com/article/syndication/associatedpress/palmeiras-beats-liga-deportiva-4-0-to-reach-copa-libertadores-final/616-252297c5-4699-4316-87a4-a6622e645090)
+- **APTOPIX Brazil Ecuador Soccer Copa Libertadores**: [Link](https://www.chronicleonline.com/sports/soccer/brazil-ecuador-soccer-copa-libertadores/image_d7589a60-6a0c-5b0c-9b93-05afbe84ee29.html)
+- **Ecuador's Liga de Quito beats Brazil's Palmeiras 3-0 in 1st leg of Copa Libertadores semifinal**: [Link](https://apnews.com/article/copa-libertadores-soccer-liga-de-quito-palmeiras-e195f3bc31fb1e93303bcd95f3a28f9a)
+
+
 ### palmeiras versus (N/A, 30/10/2025 20:54 Lima)
 
 - **Palmeiras vs. LDU Quito: Copa Libertadores betting odds, prediction, pick**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/10/30/palmeiras-vs-ldu-quito-libertadores-betting-odds-prediction-pick/86983103007/)
@@ -955,73 +1025,5 @@ Sin noticias relacionadas disponibles.
 - **Estos son los feriados y días no laborables que quedan para el 2025 en Perú**: [Link](https://elcomercio.pe/respuestas/cuando/calendario-de-feriados-2025-para-el-sector-publico-y-privado-en-peru-proximo-feriado-de-octubre-y-noviembre-tdpe-noticia/)
 - **¿Confirman feriado largo desde este viernes 31 de octubre a nivel nacional? Esto señala El Peruano**: [Link](https://elpopular.pe/actualidad/feriados/2025/10/26/confirman-feriado-largo-desde-este-viernes-31-de-octubre-a-nivel-nacional-esto-senala-el-peruano-307554)
 - **Este es el monto adicional que deberás recibir por trabajar el próximo feriado del 1 de noviembre**: [Link](https://libero.pe/tiempoextra/2025/10/26/es-monto-adicional-deberas-recibir-trabajar-proximo-feriado-del-1-de-noviembre-594256)
-
-
-### la tinka pozo millonario (N/A, 27/10/2025 11:32 Lima)
-
-- **La Tinka del domingo 26 de octubre de 2025: descubre los ganadores del último sorteo**: [Link](https://www.infobae.com/peru/2025/10/27/la-tinka-del-domingo-26-de-octubre-de-2025-descubre-los-ganadores-del-ultimo-sorteo/)
-- **La Tinka: resultados y ganadores del domingo 26 de octubre**: [Link](https://elcomercio.pe/respuestas/loterias/la-tinka-hoy-domingo-26-de-octubre-en-vivo-resultados-del-ultimo-sorteo-numeros-y-jugada-ganadora-pozo-millonario-loteria-resultado-si-o-si-boliyapa-intralot-lbposting-noticia/)
-- **Resultado La Tinka HOY, domingo 26 de octubre: números ganadores del Pozo Millonario**: [Link](https://libero.pe/ocio/2025/10/26/resultado-tinka-hoy-domingo-26-de-octubre-numeros-ganadores-del-pozo-millonario-intralot-2319150)
-
-
-### retiro afp cronograma (N/A, 27/10/2025 11:32 Lima)
-
-- **Link Retiro AFP 2025: consulta aquí dónde enviar tu solicitud hoy para retirar hasta S/ 21,400**: [Link](https://gestion.pe/mix/mi-bolsillo/link-retiro-afp-2025-consulta-aqui-como-enviar-tu-solicitud-hoy-para-retirar-hasta-s-21400-prima-habitat-integra-nnda-nnrt-noticia/)
-- **Guía del Octavo RETIRO AFP 2025: Cronograma según DNI, paso a paso y qué necesitas para iniciar el trámite**: [Link](https://elcomercio.pe/respuestas/tramites/guia-del-octavo-retiro-afp-2025-cronograma-segun-dni-paso-a-paso-y-que-necesitas-para-iniciar-el-tramite-online-tdpe-noticia/)
-- **[GUÍA] Retiro de AFP 2025: todos los pasos a seguir para registrar tu solicitud y acceder a tus fondos**: [Link](https://rpp.pe/economia/economia/retiro-afp-2025-estos-son-los-pasos-para-registrar-tu-solicitud-por-el-desembolso-de-tus-fondos-noticia-1660521)
-
-
-### avianca (N/A, 27/10/2025 11:32 Lima)
-
-- **Avianca LifeMiles Award Sale For Travel Through January 31, 2026 (Book By October 28)**: [Link](https://loyaltylobby.com/2025/10/24/avianca-lifemiles-award-sale-for-travel-through-january-31-2026-book-by-october-28/)
-- **flyCAA, Air Côte d’Ivoire, and Avianca Cancel 29 Flights Across Lubumbashi, Brazzaville, Bogotá, and More, Distressing Passengers and Majorly Affecting Air Travel in Africa**: [Link](https://www.travelandtourworld.com/news/article/flycaa-air-cote-divoire-and-avianca-cancel-29-flights-across-lubumbashi-brazzaville-bogota-and-more-distressing-passengers-and-majorly-affecting-air-travel-in-africa/)
-- **cancelled flights today**: [Link](https://www.travelandtourworld.com/news/article/tag/cancelled-flights-today/)
-
-
-### hora peru (N/A, 27/10/2025 11:32 Lima)
-
-- **Temblor en Perú hoy, lunes 27 de octubre: magnitud y epicentro según reporte del IGP**: [Link](https://elcomercio.pe/respuestas/temblor-en-peru-hoy-ultimos-sismos-de-octubre-en-vivo-cual-fue-la-magnitud-y-epicentro-segun-ultimo-reporte-del-igp-instituto-geofisico-del-peru-lima-callao-ica-lbposting-noticia/)
-- **Sismo de magnitud 4.4 con epicentro en Ica, Ica**: [Link](https://www.infobae.com/peru/2025/10/25/sismo-de-magnitud-44-con-epicentro-en-ica-ica/)
-- **Temblor en Perú: dos sismos remecieron Ica en lo que va de hoy**: [Link](https://andina.pe/agencia/noticia-temblor-peru-dos-sismos-remecieron-ica-lo-va-hoy-1049652.aspx)
-
-
-### hora españa (N/A, 27/10/2025 07:52 Lima)
-
-Sin noticias relacionadas disponibles.
-
-
-### nasa (N/A, 27/10/2025 07:52 Lima)
-
-- **Flagstaff-based company wins $30M contract for NASA space rescue mission**: [Link](https://www.kjzz.org/fronteras-desk/2025-10-27/flagstaff-based-company-wins-30m-contract-for-nasa-space-rescue-mission)
-- **Three Earth-sized planets discovered in a compact binary system**: [Link](https://www.eurekalert.org/news-releases/1103259)
-- **NASA Data Uncovers Hidden Three Planets in Extreme Star System, And They're Just Like Earth**: [Link](https://dailygalaxy.com/2025/10/nasa-uncovers-three-planets-like-earth/)
-
-
-### vuelos (N/A, 27/10/2025 07:52 Lima)
-
-- **¿Se canceló tu viaje? Revisa el estatus de las operaciones del AICM**: [Link](https://www.infobae.com/mexico/2025/10/22/se-cancelo-tu-viaje-revisa-el-estatus-de-las-operaciones-del-aicm/)
-- **AICM EN VIVO: estos son los vuelos cancelados y demorados de este sábado**: [Link](https://www.infobae.com/mexico/2025/10/25/aicm-en-vivo-estos-son-los-vuelos-cancelados-y-demorados-de-este-sabado/)
-- **Estado de los vuelos en vivo: demoras y cancelaciones en el AICM**: [Link](https://www.infobae.com/mexico/2025/10/25/estado-de-los-vuelos-en-vivo-demoras-y-cancelaciones-en-el-aicm/)
-
-
-### samsung (N/A, 27/10/2025 03:33 Lima)
-
-- **Samsung Galaxy S26 Ultra Release Date: New Details Update The Schedule**: [Link](https://www.forbes.com/sites/ewanspence/2025/10/24/samsung-galaxy-s26-ultra-release-date-galaxy-unpacked-galaxy-s26-edge-new-galaxy-s26/)
-- **If the Galaxy S26 leaks are true, I'd tell small phone fans to buy this instead**: [Link](https://www.androidauthority.com/samsung-galaxy-s26-leaks-true-buy-this-phone-3608871/)
-- **Galaxy S26, iPhone 18 to arrive months later than expected: is this the new normal?**: [Link](https://www.phonearena.com/news/galaxy-s26-iphone-18-to-arrive-months-later-is-this-the-new-normal_id175140)
-
-
-### saga (N/A, 27/10/2025 03:33 Lima)
-
-- **Travel Saga Tourism Brings Back Exciting New Year 2026 Celebration Packages in Dubai**: [Link](https://www.tribuneindia.com/news/business/travel-saga-tourism-brings-back-exciting-new-year-2026-celebration-packages-in-dubai/)
-- **BNB Travel and Tours launches new year desert safari dune buggy packages in Dubai**: [Link](https://gulfnews.com/gn-focus/bnb-travel-and-tours-launches-new-year-desert-safari-dune-buggy-packages-in-dubai-1.500317181)
-- **Welcome 2026 with Style: New Year Party Packages in Dubai’s Glittering Skyline**: [Link](https://www.travelandtourworld.com/news/article/welcome-2026-with-style-new-year-party-packages-in-dubais-glittering-skyline/)
-
-
-### jetsmart (N/A, 27/10/2025 03:33 Lima)
-
-- **Una aerolínea low cost amplía su red aérea: nuevas rutas desde Argentina hacia Brasil, Colombia y Ecuador**: [Link](https://www.lavoz.com.ar/negocios/una-aerolinea-low-cost-amplia-su-red-aerea-nuevas-rutas-desde-argentina-hacia-brasil-colombia-y-ecuador/)
-- **JetSmart suma frecuencias internacionales**: [Link](https://aviationclubcenter.com/index.php/2025/10/26/jetsmart-suma-frecuencias-internacionales/)
-- **“La región tiene espacio para el modelo ultra-low-cost”: una entrevista con Estuardo Ortiz, CEO de JetSMART**: [Link](https://www.aviacionline.com/la-region-tiene-espacio-para-el-modelo-ultra-low-cost-una-entrevista-con-estuardo-ortiz-ceo-de-jetsmart)
 
 
