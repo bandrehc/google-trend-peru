@@ -1,3 +1,38 @@
+### twitch (N/A, 31/10/2025 03:31 Lima)
+
+- **Justin Bieber 'Excited and Working Hard' as He Prepares for First Headlining Coachella Set: Source (Exclusive)**: [Link](https://people.com/justin-bieber-excited-working-hard-coachella-prep-exclusive-11839821)
+- **Truth About Justin Bieber’s Twitch Debut — Source**: [Link](https://www.realitytea.com/2025/10/30/justin-bieber-twitch-coachella-fans/)
+- **Justin Bieber gives update on career plans after Swag success**: [Link](https://www.thenews.com.pk/latest/1354544-justin-bieber-gives-update-on-career-plans-after-swag-success)
+
+
+### valtteri bottas (N/A, 31/10/2025 03:31 Lima)
+
+- **What we know about Perez and Cadillac's Ferrari F1 test**: [Link](https://www.the-race.com/formula-1/what-we-know-about-perez-and-cadillacs-ferrari-f1-test/)
+- **Sergio Perez confirmed for Ferrari drive after signing F1 comeback deal**: [Link](https://www.express.co.uk/sport/f1-autosport/2125872/Sergio-Perez-Ferrari-Cadillac-test)
+- **Perez’s F1 return takes shape with Ferrari test at Imola**: [Link](https://www.gpblog.com/en/news/perezs-f1-return-takes-shape-with-ferrari-test-at-imola)
+
+
+### abel ferreira (N/A, 31/10/2025 03:31 Lima)
+
+- **Abel chora, admite mágoa com parte da torcida verde e ganha afago de Leila Pereira**: [Link](https://www1.folha.uol.com.br/esporte/2025/10/abel-chora-admite-magoa-com-parte-da-torcida-verde-e-ganha-afago-de-leila-pereira.shtml)
+- **Leila Pereira reage à vitória do Palmeiras sobre a LDU: ‘Noite mágica’**: [Link](https://noataque.com.br/futebol/libertadores-da-america/time/palmeiras/noticia/2025/10/31/leila-pereira-reage-a-vitoria-do-palmeiras-sobre-a-ldu-noite-magica/)
+- **6h Remontada na Libertadores. Palmeiras de Abel Ferreira na final**: [Link](https://www.rtp.pt/noticias/noticiario-antena1/6h-remontada-na-libertadores-palmeiras-de-abel-ferreira-na-final_a1_1695063)
+
+
+### olimpia vs alajuelense (N/A, 31/10/2025 03:31 Lima)
+
+- **Olimpia-Alajuelense EN VIVO: cómo va la semifinal**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/olimpia-vs-liga-alajuelense-en-vivo-gratis-hoy-via-futbol-libre-tv-espn-disney-plus-horarios-canales-tv-y-donde-ver-semifinal-de-copa-centroamericana-video-noticia/)
+- **La Liga sacó su casta de León y jugará la final de la Copa Centroamericana ante Xelajú**: [Link](https://espndeportes.espn.com/futbol/costa-rica/nota/_/id/15892953/olimpia-alajuelense-semifinal-copa-centroamericana-empate-anthony-hernandez)
+- **¡Taquito mundial! Bengtson se sacó un conejo del sombrero y Benguché abrió el marcador en el Olimpia vs Alajuelense**: [Link](https://www.diez.hn/videos/taquito-mundial-bengtson-se-saco-un-conejo-del-sombrero-y-benguche-abrio-el-marcador-en-el-olimpia-vs-alajuelense-PF27997989)
+
+
+### final sudamericana 2025 (N/A, 31/10/2025 03:31 Lima)
+
+- **Va por la tercera y la vencida: Lanús tendrá su revancha ante Atlético Mineiro**: [Link](https://www.espn.com.ar/futbol/copa-sudamericana/nota/_/id/15893136/todos-los-partidos-de-lanus-vs-atletico-mineiro-final-asuncion)
+- **Se definen a los finalistas hacia la Gran Conquista**: [Link](https://www.conmebol.com/noticias/se-definen-a-los-finalistas-hacia-la-gran-conquista/)
+- **Atención Lanús: cuándo y dónde es la final de la Copa Sudamericana vs. Atlético Mineiro**: [Link](https://www.ole.com.ar/futbol-internacional/sudamericana/final-copa-sudamericana-2025_0_TP2NftY3Ae.html)
+
+
 ### olimpia vs (N/A, 30/10/2025 23:29 Lima)
 
 - **Olimpia-Alajuelense EN VIVO: cuánto va la semifinal por Copa Centroamericana**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/olimpia-vs-liga-alajuelense-en-vivo-gratis-hoy-via-futbol-libre-tv-espn-disney-plus-horarios-canales-tv-y-donde-ver-semifinal-de-copa-centroamericana-video-noticia/)
@@ -990,40 +1025,5 @@ Sin noticias relacionadas disponibles.
 - **Krossen: Utbuat på hemmaplan**: [Link](https://www.expressen.se/sport/fotboll/allsvenskan/bajen-kross-i-malmo--hemmalaget-utbuad/)
 - **Nattsvart för MFF – krossat och utbuat mot Hammarby: ”Utklassning”**: [Link](https://www.sverigesradio.se/artikel/nattsvart-for-mff-krossat-och-utbuat-mot-hammarby)
 - **Fotboll: Överlägset Hammarby bröt 17-årig svit – säkrade andraplatsen**: [Link](https://www.svt.se/sport/fotboll/overlagset-hammarby-brot-17-arig-svit-sakrade-andraplatsen)
-
-
-### barracas central - boca juniors (N/A, 27/10/2025 15:24 Lima)
-
-- **Boca vs. Barracas en vivo por Liga Argentina: horario, canal y dónde ver partido**: [Link](https://elcomercio.pe/deporte-total/argentina/boca-vs-barracas-central-en-vivo-hoy-gratis-por-liga-argentina-a-que-hora-juegan-canal-tv-y-donde-ver-partido-via-espn-premium-espn-disney-plus-futbol-libre-tv-video-noticia/)
-- **Tremendo golazo de Insúa para adelantar a Barracas Central contra Boca**: [Link](https://www.espn.com.ar/futbol/argentina/nota/_/id/15877356/video-gol-de-rodrigo-insua-barracas-central-vs-boca-marchesin)
-- **Con una bandera de Paredes el Estadio Claudio Tapia recibe a Boca**: [Link](https://www.ole.com.ar/boca-juniors/bandera-paredes-estadio-claudio-tapia-recibe-boca_3_5NQCQeZ7ms.html)
-
-
-### césar hinostroza (N/A, 27/10/2025 15:24 Lima)
-
-- **Corte Suprema aprobó solicitar a Bélgica la extradición de César Hinostroza**: [Link](https://rpp.pe/politica/judiciales/corte-suprema-aprobo-solicitar-a-belgica-la-extradicion-de-cesar-hinostroza-noticia-1661085)
-- **🔵🔴⚽ ¡Hoy, domingo 26 de octubre en #RadioExitosa! A partir de las 11:00 a. m., no te pierdas la narración del partido Sporting Cristal vs. Chankas CYC, desde el Estadio Alberto Gallardo, correspondiente a la fecha 16 del Torneo Clausura 2025 de la Liga 1.**: [Link](https://www.facebook.com/Exitosanoticias/photos/-hoy-domingo-26-de-octubre-en-radioexitosa-a-partir-de-las-1100-a-m-no-te-pierda/1259294682900254/)
-- **El Tribunal Supremo de Perú aprueba solicitar la extradición del exjuez César Hinostroza desde Bélgica**: [Link](https://www.democrata.es/internacional/tribunal-supremo-peru-aprueba-solicitar-extradicion-exjuez-cesar-hinostroza-belgica/)
-
-
-### gaziantep - fenerbahçe (N/A, 27/10/2025 11:32 Lima)
-
-- **Süper Lig'de Fenerbahçe, Gaziantep FK deplasmanında - Fenerbahçe - Spor Haberleri**: [Link](https://www.milliyet.com.tr/skorer/live-super-ligde-fenerbahce-gaziantep-fk-deplasmaninda-7471651)
-- **Süper Ligin 10. haftasında VAR hakemleri belli oldu**: [Link](https://www.saraymedya.com/haber/super-ligin-10-haftasinda-var-hakemleri-belli-oldu_209723/)
-- **Fenerbahçe'de hedef galibiyet! Zorlu maçta rakip Gaziantep FK**: [Link](https://www.gunes.com/spor/fenerbahcede-hedef-galibiyet-zorlu-macta-rakip-gaziantep-fk-1222796)
-
-
-### good time (N/A, 27/10/2025 11:32 Lima)
-
-- **Is Now a Good Time to Buy RGF Capital Markets Limited Stock Key Indicators Reviewed - Stock Buyback Announcements & Small Entry Cost Trading**: [Link](https://www.earlytimes.in/video/Is-Now-a-Good-Time-to-Buy-RGF-Capital-Markets-Limited-Stock-Key-Indicators-Reviewed)
-- **After 46 years, Good Time Charlie’s says goodbye as DoSeum moves in**: [Link](https://www.expressnews.com/news/article/broadway-good-time-charlies-childrens-museum-pearl-21110108.php)
-- **San Antonio’s Good Time Charlie’s says goodbye after 46 years as DoSeum moves in**: [Link](https://spectrumlocalnews.com/tx/south-texas-el-paso/news/2025/10/24/good-time-charlies-closure-doseum-moves-in)
-
-
-### feriados 2025 (N/A, 27/10/2025 11:32 Lima)
-
-- **Estos son los feriados y días no laborables que quedan para el 2025 en Perú**: [Link](https://elcomercio.pe/respuestas/cuando/calendario-de-feriados-2025-para-el-sector-publico-y-privado-en-peru-proximo-feriado-de-octubre-y-noviembre-tdpe-noticia/)
-- **¿Confirman feriado largo desde este viernes 31 de octubre a nivel nacional? Esto señala El Peruano**: [Link](https://elpopular.pe/actualidad/feriados/2025/10/26/confirman-feriado-largo-desde-este-viernes-31-de-octubre-a-nivel-nacional-esto-senala-el-peruano-307554)
-- **Este es el monto adicional que deberás recibir por trabajar el próximo feriado del 1 de noviembre**: [Link](https://libero.pe/tiempoextra/2025/10/26/es-monto-adicional-deberas-recibir-trabajar-proximo-feriado-del-1-de-noviembre-594256)
 
 
