@@ -1,3 +1,17 @@
+### palmeiras vs flamengo (N/A, 31/10/2025 07:50 Lima)
+
+- **CONMEBOL y PUMA presentan el balón oficial de la Final de la CONMEBOL Libertadores 2025**: [Link](https://www.conmebol.com/noticias/conmebol-y-puma-presentan-el-balon-oficial-de-la-final-de-la-conmebol-libertadores-2025/)
+- **Flamengo vs. Palmeiras, por la final de la Copa Libertadores: qué día, a qué hora y dónde juegan**: [Link](https://www.ole.com.ar/futbol-internacional/libertadores/juega-final-copa-libertadores-2025-flamengo-dia-ver_0_WVHXQP8iPp.html)
+- **Copa Libertadores: Pdte. de la CBF a favor de que final pase de Lima a Brasil**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/copa-libertadores-presidente-de-la-cbf-a-favor-de-que-final-pase-de-lima-a-brasil-noticia/)
+
+
+### partidos de copa libertadores (N/A, 31/10/2025 07:50 Lima)
+
+- **Partidos de hoy, 30 de octubre: Horario y canal EN VIVO**: [Link](https://www.americatv.com.pe/deportes/futbol-mundial/partidos-hoy-30-octubre-horarios-y-transmisiones-n451533)
+- **Partidos de hoy, jueves 30 de octubre del 2025: horarios y canales TV para ver EN VIVO Copa Libertadores y Sudamericana**: [Link](https://rpp.pe/futbol/futbol-mundial/partidos-de-hoy-peru-jueves-30-de-octubre-del-2025-horarios-y-canales-tv-ver-futbol-en-vivo-noticia-1661534)
+- **Partidos de hoy, jueves 30 de octubre: horarios y dónde puedo ver fútbol en vivo**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/partidos-de-hoy-jueves-30-de-octubre-del-2025-resultados-horarios-canales-tv-y-donde-ver-futbol-en-vivo-noticia/)
+
+
 ### twitch (N/A, 31/10/2025 03:31 Lima)
 
 - **Justin Bieber 'Excited and Working Hard' as He Prepares for First Headlining Coachella Set: Source (Exclusive)**: [Link](https://people.com/justin-bieber-excited-working-hard-coachella-prep-exclusive-11839821)
@@ -1011,19 +1025,5 @@ Sin noticias relacionadas disponibles.
 - **Betis - Atlético de Madrid, en directo: LaLiga EA Sports, en vivo**: [Link](https://as.com/futbol/primera/betis-atletico-de-madrid-en-directo-laliga-ea-sports-en-vivo-f202510-d/)
 - **Pellegrini-Simeone, toda una eternidad en la Liga**: [Link](https://elpais.com/deportes/futbol/2025-10-27/pellegrini-simeone-toda-una-eternidad-en-la-liga.html)
 - **Olybet: apuesta gratis hasta 10 euros para apostar en el partido Real Betis vs Atlético de Madrid + sorteo de entradas**: [Link](https://legalbet.es/bonos/olybet-apuesta-gratis-hasta-10-euros-para-apostar-en-el-partido-real-betis-vs-atletico-de-madrid-sorteo-de-entradas/)
-
-
-### porto vs (N/A, 27/10/2025 15:24 Lima)
-
-- **FC Porto vs. Rio Ave - Boxscore - February 22, 2026**: [Link](https://www.foxsports.com/soccer/primeria-liga-fc-porto-vs-rio-ave-feb-22-2026-game-boxscore-633801?tab=boxscore)
-- **Moreirense vs FC Porto Prediction: Will The Dragons Be The First Team To Come Away Unscathed?**: [Link](https://www.telecomasia.net/sports-betting/tips/football/portugal-primeira-liga/moreirense-vs-fc-porto-prediction-for-the-match-on-october-27-2025/)
-- **Botelho da Costa: “We’ll find space to hurt FC Porto”**: [Link](https://onefootball.com/pt-br/noticias/botelho-da-costa-well-find-space-to-hurt-fc-porto-41862114)
-
-
-### malmö - hammarby (N/A, 27/10/2025 15:24 Lima)
-
-- **Krossen: Utbuat på hemmaplan**: [Link](https://www.expressen.se/sport/fotboll/allsvenskan/bajen-kross-i-malmo--hemmalaget-utbuad/)
-- **Nattsvart för MFF – krossat och utbuat mot Hammarby: ”Utklassning”**: [Link](https://www.sverigesradio.se/artikel/nattsvart-for-mff-krossat-och-utbuat-mot-hammarby)
-- **Fotboll: Överlägset Hammarby bröt 17-årig svit – säkrade andraplatsen**: [Link](https://www.svt.se/sport/fotboll/overlagset-hammarby-brot-17-arig-svit-sakrade-andraplatsen)
 
 
