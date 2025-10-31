@@ -1,3 +1,71 @@
+### it (N/A, 31/10/2025 15:26 Lima)
+
+- **The story of MTV: The downfall of music disrupter**: [Link](https://theconversation.com/the-story-of-mtv-the-downfall-of-music-disrupter-268099)
+- **Former VJ Daisy Fuentes On MTV Amid Major Changes: “It’s Been A Bit Sad For A While”**: [Link](https://deadline.com/2025/10/vj-daisy-fuentes-mtv-major-changes-paramount-1236604304/)
+- **Goodnight, MTV Gen X fades along with the network**: [Link](https://unherd.com/2025/10/goodnight-mtv/)
+
+
+### alexander zverev (N/A, 31/10/2025 15:26 Lima)
+
+- **ATP Paris Best Bets Including Zverev vs Davidovich Fokina**: [Link](https://lastwordonsports.com/tennis/2025/10/29/atp-paris-best-bets-including-zverev-vs-davidovich-fokina/)
+- **Rolex Paris Masters Betting Odds and Match Previews for October 30, 2025, Men's Singles**: [Link](https://sportsbookwire.usatoday.com/story/sports/sports-betting/2025/10/30/rolex-paris-masters-betting-odds-favorites-match-previews-10-29-2025-mens/86978415007/)
+- **Tennis, ATP – Paris Masters 2025: Zverev beats Davidovich Fokina**: [Link](https://www.tennismajors.com/atp/paris-masters-zverev-into-last-eight-the-quarterfinals-are-set-839148.html)
+
+
+### mira (N/A, 31/10/2025 15:26 Lima)
+
+- **Christian Domínguez y Karla Tarazona ¿protagonizan tenso momento EN VIVO?: Esto pasó**: [Link](https://trome.com/espectaculos/tv/christian-dominguez-y-karla-tarazona-protagonizan-tenso-momento-en-vivo-mira-lo-que-paso-foto-video-farandula-noticia/)
+- **Karla Tarazona SE PELEA con Christian Domínguez en vivo y él revela CÓMO ES en realidad: "Te gusta faltar el respeto"**: [Link](https://elpopular.pe/espectaculos/2025/10/30/karla-tarazona-se-pelea-con-christian-dominguez-en-vivo-y-el-revela-como-es-en-realidad-te-gusta-faltar-el-respeto-570000)
+- **Mira in KPop Demon Hunters : Everything to Know about the ‘Black Sheep’ Dancer**: [Link](https://www.netflix.com/tudum/articles/kpop-demon-hunters-mira-bio)
+
+
+### sporting lisboa (N/A, 31/10/2025 15:26 Lima)
+
+- **Aí está a esperada revolução de Rui Borges no onze do Sporting**: [Link](https://sapo.pt/artigo/ai-esta-a-esperada-revolucao-de-rui-borges-no-onze-do-sporting-690508c7fe793977d68bfcb6)
+- **Em direto/ Sporting-Alverca. Lisboetas reencontram-se em Alvalade, agora para o Campeonato**: [Link](https://observador.pt/liveblogs/sporting-alverca-lisboetas-reencontram-se-em-alvalade-agora-para-o-campeonato/)
+- **Em direto. Sporting - Alverca**: [Link](https://rr.pt/bola-branca/noticia/sporting/2025/10/31/em-direto-sporting-alverca/445902/)
+
+
+### augsburgo vs (N/A, 31/10/2025 15:26 Lima)
+
+- **Dos grandes sorpresas en la plantilla del Borussia Dortmund**: [Link](https://www.ucvradio.pe/mas-actualidad/dos-grandes-sorpresas-en-la-plantilla-del-borussia-dortmund/36584/)
+
+
+### kpop (N/A, 31/10/2025 15:26 Lima)
+
+- **Derpy Tiger in KPop Demon Hunters : Everything to Know About the Cutest Demon Cat**: [Link](https://www.netflix.com/tudum/articles/kpop-demon-hunters-derpy-tiger-bio)
+- **Making KPop Demon Hunters sound magical meant finding the right harmonies**: [Link](https://www.theverge.com/entertainment/809871/kpop-demon-hunters-sound-design-interview-michael-babcock)
+- **‘K-Pop Demon Hunters’ returns to theaters with new tracks and footage**: [Link](https://www.local10.com/entertainment/2025/10/30/k-pop-demon-hunters-returns-to-theaters-with-new-tracks-and-footage/)
+
+
+### getafe - girona (N/A, 31/10/2025 15:26 Lima)
+
+- **Getafe - Girona en directo: LaLiga EA Sports hoy, en vivo**: [Link](https://as.com/futbol/primera/getafe-girona-en-directo-laliga-ea-sports-hoy-en-vivo-f202510-d/)
+- **Getafe vs Girona: Apuestas, Pronóstico y Cuotas**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2025/octubre/pronostico-getafe-vs-girona-31-10-25)
+- **Partidos de fútbol de hoy: horario, canal y dónde ver por TV**: [Link](https://www.mundodeportivo.com/horarios/futbol/20251031/1002560406/partidos-futbol-hoy-horario-canal-donde-ver-tv.html)
+
+
+### guerreras kpop (N/A, 31/10/2025 15:26 Lima)
+
+- **‘Las guerreras K-pop’, ‘Minecraft’, ‘Labubu’ , ‘El Lorax ' y más: estos son los disfraces más buscados en Google para Halloween 2025**: [Link](https://elcomercio.pe/respuestas/cual/las-guerreras-k-pop-minecraft-labubu-el-lorax-y-mas-estos-son-los-disfraces-mas-buscados-en-google-para-halloween-2025-tdpe-noticia/)
+- **Halloween 2025: las películas y series que marcan tendencia en disfraces este 31 de octubre**: [Link](https://rpp.pe/tv/streaming/halloween-2025-estas-peliculas-y-series-marcan-tendencia-para-disfraces-el-31-de-octubre-las-guerreras-k-pop-noticia-1661342)
+- **Disfraces de Halloween para parejas de famosos, Adivina Quién**: [Link](https://www.ucvradio.pe/noticias-del-mundo/disfraces-de-halloween-para-parejas-de-famosos-adivina-quien/34732/)
+
+
+### sinner (N/A, 31/10/2025 15:26 Lima)
+
+- **Jannik Sinner defeats Shelton to reach 2025 Paris Masters semi-finals, edging closer to reclaiming ATP No. 1 ranking**: [Link](https://www.olympics.com/en/news/jannik-sinner-defeats-shelton-to-reach-paris-masters-semi-finals)
+- **Rolex Paris Masters Betting Odds and Match Previews for October 31, 2025, Men's Singles**: [Link](https://sportsbookwire.usatoday.com/story/sports/sports-betting/2025/10/31/rolex-paris-masters-betting-odds-favorites-match-previews-10-30-2025-mens/87001322007/)
+- **Sinner Storms Past Shelton for 24th Consecutive Indoor Hard Court Win**: [Link](http://tennisnow.com/sinner-storms-past-shelton-for-24th-consecutive-indoor-hard-court-win/)
+
+
+### augsburgo - dortmund (N/A, 31/10/2025 15:26 Lima)
+
+- **Julian Brandt in der Startelf, Emre Can auf der Bank: BVB-Aufstellung gegen Augsburg ist da**: [Link](https://tribuna.com/de/news/2025-10-31-julian-brandt-in-der-startelf-emre-can-auf-der-bank-bvbaufstellung-gegen-augsburg-ist-da/)
+- **Dortmunds Schlotterbeck auch für Duell mit City fraglich**: [Link](https://www.main-spitze.de/sport/fussball/fussball-bundesliga/dortmunds-schlotterbeck-auch-fuer-duell-mit-city-fraglich-5120460)
+- **Jetzt live: Kann Zesiger die Augsburger Löcher-Abwehr stabilisieren?**: [Link](https://sport.ch/topnews/1540816/jetzt-live-kann-zesiger-die-augsburger-loecher-abwehr-stabilisieren)
+
+
 ### ppk (N/A, 31/10/2025 11:30 Lima)
 
 - **Pedro Pablo Kuczynski anuncia su precandidatura al Senado por el partido Fuerza y Libertad**: [Link](https://rpp.pe/politica/elecciones/pedro-pablo-kuczynski-anuncia-su-precandidatura-al-senado-por-el-partido-fuerza-y-libertad-noticia-1661811)
@@ -955,73 +1023,5 @@ Sin noticias relacionadas disponibles.
 - **Nikola Jokic Makes NBA History as 25-Point Triple-Double Downs Timberwolves Without Anthony Edwards**: [Link](https://www.essentiallysports.com/nba-active-basketball-news-nikola-jokic-makes-nba-history-as-twenty-five-point-triple-double-downs-minnesota-timberwolves-without-anthony-edwards/)
 - **Jamal Murray powers Nuggets to end Wolves’ tormenting streak**: [Link](https://denversports.com/nba/denver-nuggets/end-wolves-win-streak/2126357)
 - **Jokić's new triple-double, Denver defeats Minnesota**: [Link](https://en.vijesti.me/sports-e/basketball/780767/New-triple-double-for-Jokic--Denver-defeats-Minnesota)
-
-
-### mlb (N/A, 27/10/2025 23:28 Lima)
-
-- **Who will win Dodgers-Blue Jays World Series? MLB scouts, execs and managers make their predictions**: [Link](https://www.espn.com/mlb/story/_/id/46687649/world-series-2025-mlb-toronto-blue-jays-los-angeles-dodgers-insiders-predictions-scouts)
-- **Best World Series Betting Sites, Apps, Odds & Promos for Blue Jays vs Dodgers Game 3**: [Link](https://ftw.usatoday.com/story/sports/mlb/2025/10/27/best-world-series-betting-sites-apps-odds-promos-blue-jays-dodgers-game-3/86837230007/)
-- **Where to watch Blue Jays vs. Dodgers World Series Game 3 for free today**: [Link](https://www.cleveland.com/tv/2025/10/where-to-watch-blue-jays-vs-dodgers-world-series-game-3-for-free-today.html)
-
-
-### dodgers (N/A, 27/10/2025 23:28 Lima)
-
-- **Dodger fans rain boos down on George Springer as Game 3 begins - The Athletic**: [Link](https://www.nytimes.com/athletic/6755120/2025/10/27/george-springer-blue-jays-dodgers-world-series-boos/)
-- **Toronto Blue Jays manager John Schneider said his team's starting hitter George Springer would not b..**: [Link](https://www.mk.co.kr/en/sports/11453130)
-- **Dave Roberts Subtly Encourages Dodgers Fans to Boo Controversial $150M Blue Jays Star With Sly Shade**: [Link](https://www.essentiallysports.com/mlb-baseball-news-dave-roberts-subtly-encourages-dodgers-fans-to-boo-controversial-one-fifety-million-dollar-blue-jays-star-with-sly-shade/)
-
-
-### lakers - trail blazers (N/A, 27/10/2025 23:28 Lima)
-
-- **Trail Blazers vs Lakers Prediction, Pick, Odds for Monday, October 27**: [Link](https://www.actionnetwork.com/nba/trail-blazers-vs-lakers-prediction-pick-odds-for-monday-october-27)
-- **Los Angeles hosts Portland following Reaves' 51-point performance**: [Link](https://www.washingtonpost.com/sports/nba/2025/10/27/trail-blazers-lakers-preview/aa534dce-b2fa-11f0-88c1-4e2f98984a34_story.html)
-- **Final Injury Report for Trail Blazers-Lakers, Will Luka Doncic, Jaxson Hayes Play?**: [Link](https://sports.yahoo.com/article/final-injury-report-trail-blazers-223000834.html)
-
-
-### warriors - grizzlies (N/A, 27/10/2025 23:28 Lima)
-
-- **Preview: Warriors welcome injured Grizzlies to Chase Center**: [Link](https://www.goldenstateofmind.com/warriors-game-previews/104276/preview-warriors-welcome-injured-grizzlies-to-chase-center)
-- **Grizzlies vs. Warriors Prediction, Odds and Best NBA Prop Bets for Monday, Oct. 27**: [Link](https://www.si.com/betting/grizzlies-vs-warriors-prediction-odds-and-best-nba-prop-bets-for-monday-oct-27)
-- **Memphis Grizzlies Injury Report vs Golden State Warriors (October 27, 2025)**: [Link](https://www.msn.com/en-in/entertainment/hollywood/memphis-grizzlies-vs-golden-state-warriors-regular-season-injury-report-who-s-playing-who-s-out-and-more-october-27-2025/ar-AA1PhJiT)
-
-
-### minnesota vs (N/A, 27/10/2025 20:51 Lima)
-
-- **Nikola Jokic Player Props, Odds, and Lines vs. Minnesota Timberwolves**: [Link](https://news.bet365.com/en-us/article/nikola-jokic-player-props-odds-and-lines-vs-minnesota-timberwolves/2025102721071496311)
-- **Perfect opportunity for Nuggets to bust out secret weapon on Monday night**: [Link](https://nugglove.com/perfect-opportunity-nuggets-bust-out-secret-weapon-monday-night)
-- **FanDuel promo code: Bet $5, get $300 in bonus bets if your bet wins for Nuggets vs. Timberwolves**: [Link](https://nypost.com/2025/10/27/betting/fanduel-promo-code-bet-5-get-300-in-bonus-bets-if-your-bet-wins-for-nuggets-vs-timberwolves/)
-
-
-### pedro neto (N/A, 27/10/2025 20:51 Lima)
-
-- **Sunderland told they've done something 'unbelievable' after starting this season at a disadvantage**: [Link](https://tbrfootball.com/sunderland-told-theyve-done-something-unbelievable-after-starting-this-season-at-a-disadvantage/)
-- **Enzo Maresca on the need for consistency | News | Official Site**: [Link](https://www.chelseafc.com/en/news/article/enzo-maresca-on-the-need-for-consistency)
-- **“Anonymous” Chelsea man “dominated” on his big break with just 10 touches**: [Link](https://chelsea.news/2025/10/guiu-dominated-big-break-anonymous/)
-
-
-### paranaense vs (N/A, 27/10/2025 20:51 Lima)
-
-- **Clube Athletico Paranaense vs Amazonas FC - AM pronostico y comparación de cuotas 28.10.2025**: [Link](https://www.livetipsportal.com/es/pronosticos-apuestas-deportivas/athletico-paranaense-vs-amazonas-fc-am-serie-b-10976192/)
-
-
-### mavericks - thunder (N/A, 27/10/2025 20:51 Lima)
-
-- **Mavericks-Thunder preview: Reigning MVP has hit the ground running**: [Link](https://www.nba.com/mavs/news/mavericks-thunder-preview-reigning-mvp-has-hit-the-ground-running)
-- **Mavericks set to host NBA champion OKC Thunder on second night of back-to-back**: [Link](https://www.si.com/nba/mavericks/onsi/news/dallas-mavericks-set-host-nba-champion-okc-thunder-second-night-back-to-back-)
-- **Thunder vs Mavericks live updates: Shai Gilgeous-Alexander, OKC visit Cooper Flagg, Dallas**: [Link](https://www.oklahoman.com/story/sports/nba/thunder/2025/10/27/thunder-mavericks-score-live-updates-nba-game-highlights-stats-injury-report/86931907007/)
-
-
-### dodgers - blue jays (N/A, 27/10/2025 20:51 Lima)
-
-- **Dodgers vs. Blue Jays (Oct 25, 2025) Live Score**: [Link](https://www.espn.com/mlb/game/_/gameId/401809298)
-- **‘Game on, friends’: Toronto Zoo accepts bet from Los Angeles counterpart over Blue Jays-Dodgers World Series**: [Link](https://www.thestar.com/news/gta/game-on-friends-toronto-zoo-accepts-bet-from-los-angeles-counterpart-over-blue-jays-dodgers/article_e8cf40e3-ceec-42f4-9583-8440927df610.html)
-- **How to Bet on the World Series at BET99 in Canada**: [Link](https://www.sportsbettingdime.com/news/betting/how-to-bet-world-series-canada-bet99/)
-
-
-### duet night abyss (N/A, 27/10/2025 20:51 Lima)
-
-- **Duet Night Abyss Global Release: Launch Time, Platforms, and Key Features Explained**: [Link](https://azat.tv/en/duet-night-abyss-global-release-launch-time-platforms-key-features/)
-- **What Kind Of Impact Will Duet Night Abyss’ Monetization Have On Gacha Games?**: [Link](https://www.mmobomb.com/duet-night-abyss-monetization-gacha-games)
-- **Duet Night Abyss Livestream Shares Key Features About Upcoming Gachaless Anime Title**: [Link](https://www.gamegrin.com/news/duet-night-abyss-livestream-shares-key-features-about-upcoming-gachaless-anime-title/)
 
 
