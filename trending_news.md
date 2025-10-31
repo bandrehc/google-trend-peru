@@ -1,3 +1,71 @@
+### palmeiras versus (N/A, 30/10/2025 20:54 Lima)
+
+- **Palmeiras vs. LDU Quito: Copa Libertadores betting odds, prediction, pick**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/10/30/palmeiras-vs-ldu-quito-libertadores-betting-odds-prediction-pick/86983103007/)
+- **Brazil Ecuador Soccer Copa Libertadores**: [Link](https://www.couriernews.com/sports/brazil-ecuador-soccer-copa-libertadores/image_3b9d2304-77ee-5b85-b03d-96c0040b2c7e.html)
+- **How to watch Palmeiras vs LDU Quito in the USA: Live Stream and TV for 2025 Copa Libertadores**: [Link](https://worldsoccertalk.com/watch-on-us-tv/how-to-watch-palmeiras-vs-ldu-quito-in-the-usa-live-stream-and-tv-for-2025-copa-libertadores/)
+
+
+### atlético nacional (N/A, 30/10/2025 20:54 Lima)
+
+- **Liga BetPlay: Así será la alineación de Nacional vs Llaneros**: [Link](https://www.espn.com.ar/futbol/colombia/nota/_/id/15892079/liga-betplay-2025-alineaciones-titulares-de-nacional-vs-llaneros-hoy)
+- **🔴EN VIVO | Llaneros vs. Nacional por un cupo a los 8 de la Liga Colombiana: siga acá el partidazo**: [Link](https://caracol.com.co/2025/10/31/en-vivo-llaneros-vs-nacional-por-un-cupo-a-los-8-de-la-liga-colombiana-siga-aca-el-partidazo/)
+- **Pronóstico Llaneros FC Atlético Nacional - Liga Postobon 30/10/25**: [Link](https://www.sportytrader.com/es/pronosticos/llaneros-fc-atletico-nacional-301503/)
+
+
+### allan (N/A, 30/10/2025 20:54 Lima)
+
+- **The Tao Of Allan Nascinmento**: [Link](https://www.ufc.com/news/the-tao-of-allan-nascimento-ufc-vegas-110)
+- **Cody Durden vs. Allan Nascimento prediction, odds, pick for UFC Vegas 110**: [Link](https://clutchpoints.com/betting/cody-durden-vs-allan-nascimento-prediction-odds-pick-for-ufc-vegas-110)
+- **Allan Nascimento vs Rafael Estevam Prediction 11/1/25 UFC Fight Night 263 Picks**: [Link](https://www.tonyspicks.com/2025/10/29/allan-nascimento-vs-rafael-estevam-prediction-11-1-25-ufc-fight-night-263-picks/)
+
+
+### vitor roque (N/A, 30/10/2025 20:54 Lima)
+
+- **La quiso terminar solo: Vitor Roque se pierde gol con Palmeiras vs. Liga de Quito | VIDEO**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/palmeiras-vs-liga-de-quito-vitor-roque-fallo-increible-ocasion-de-gol-en-partido-por-copa-libertadores-video-noticia/)
+- **Tottenham y Chelsea tras los pasos de Vitor Roque**: [Link](https://ovacion.pe/noticias/futbol-internacional/tottenham-chelsea-tras-pasos-vitor-roque)
+- **Liga de Quito defiende su ventaja ante Palmeiras para llegar a la final de la Libertadores**: [Link](https://www.espn.com.pe/futbol/copa-libertadores/nota/_/id/15876444/palmeiras-vs-liga-de-quito-por-conmebol-libertadores-equipo-fecha-hora-y-tv-en-vivo)
+
+
+### vladimiro montesinos (N/A, 30/10/2025 20:54 Lima)
+
+- **Vladimiro Montesinos no será liberado el 2026: INPE confirma nueva condena por 6 años**: [Link](https://andina.pe/agencia/noticia-vladimiro-montesinos-no-sera-liberado-2026-inpe-confirma-nueva-condena-6-anos-1050190.aspx)
+- **Exasesor de Alberto Fujimori seguirá preso hasta 2032 tras recibir nueva condena**: [Link](https://deultimominuto.net/internacionales/asesor-fujimori-preso-hasta-2032/)
+- **Vladimiro Montesinos no saldrá de la cárcel en 2026: INPE confirmó nueva condena | PERU**: [Link](https://gestion.pe/peru/politica/vladimiro-montesinos-no-saldra-de-la-carcel-en-2026-inpe-confirmo-nueva-condena-noticia/)
+
+
+### the strongest vs oriente petrolero (N/A, 30/10/2025 20:54 Lima)
+
+Sin noticias relacionadas disponibles.
+
+
+### scream (N/A, 30/10/2025 20:54 Lima)
+
+- **‘Scream 7’ Trailer Revives Backlash Over Melissa Barrera Firing As Fans Call For Boycott**: [Link](https://deadline.com/2025/10/scream-7-trailer-backlash-boycott-melissa-barrera-firing-1236603348/)
+- **’Tis the (spooky) season: ‘Scream 7’ and ‘Stranger Things 5’ trailers deliver double dose of scares**: [Link](https://www.cnn.com/2025/10/30/entertainment/scream-stranger-things-trailers)
+- **‘Scream 7’ Trailer: Neve Campbell Returns to Face Ghostface in the Franchise’s Next Chapter**: [Link](https://www.hollywoodreporter.com/movies/movie-news/scream-7-trailer-neve-campbell-ghostface-1236413232/)
+
+
+### ignacio buse (N/A, 30/10/2025 20:54 Lima)
+
+- **Ignacio Buse vs. Juan Torres EN VIVO: se enfrentan por octavos de final del Challenger de Lima**: [Link](https://rpp.pe/tenis/mas-tenis/ignacio-buse-vs-olivieri-en-vivo-octavos-final-lima-challenger-2025-a-que-hora-juegan-y-donde-ver-por-tv-via-atp-tour-link-gratis-partidos-de-hoy-noticia-1661601)
+- **Ignacio Buse quiere hacer respetar la casa: Tenista peruano debutará el martes en Challenger de Lima**: [Link](https://www.exitosanoticias.pe/deportes/ignacio-buse-quiere-hacer-respetar-casa-tenista-peruano-debutara-martes-challenger-lima-n161633)
+- **¡Con pie derecho! Buse venció a Roncadelli y avanzó a octavos en Los Inkas Open 2025**: [Link](https://ovacion.pe/noticias/tenis/pie-derecho-buse-vencio-roncadelli-avanzo-octavos-inkas-open-2025)
+
+
+### palmeiras (N/A, 30/10/2025 20:54 Lima)
+
+- **Vitor Roque leva cartão amarelo em vitória parcial do Palmeiras contra LDU**: [Link](https://www.mixvale.com.br/2025/10/30/vitor-roque-leva-cartao-amarelo-em-vitoria-parcial-do-palmeiras-contra-ldu/)
+- **Felipe Melo se rende ao Flamengo em rede nacional após classificação na Libertadores: “um time que sabe jogar”**: [Link](https://br.bolavip.com/amp/campeonato-libertadores/felipe-melo-se-rende-ao-flamengo-em-rede-nacional-apos-classificacao-na-libertadores-um-time-que-sabe-jogar)
+- **Vídeo: torcedores fazem festa em chegada de ônibus do Palmeiras; veja**: [Link](https://www.metropoles.com/esportes/video-torcedores-fazem-festa-em-chegada-de-onibus-do-palmeiras-veja)
+
+
+### bucks - warriors (N/A, 30/10/2025 20:54 Lima)
+
+- **Live Updates: Top moments from Warriors-Bucks, Heat-Spurs**: [Link](https://www.nba.com/news/live-updates-warriors-bucks-heat-suports)
+- **LIVE~Spurs vs Heat Live On Free NBA Game 2025**: [Link](https://www.piquenewsmagazine.com/classifieds/business-services/accountingbookkeeping/2042178)
+- **Is Stephen Curry playing tonight against the Milwaukee Bucks? Latest update on the Golden State Warriors star’s injury report (October 30, 2025)**: [Link](https://www.msn.com/en-in/sports/other/is-stephen-curry-playing-tonight-against-the-milwaukee-bucks-latest-update-on-the-golden-state-warriors-star-s-injury-report-october-30-2025/ar-AA1Pwd0u)
+
+
 ### julio velarde (N/A, 30/10/2025 15:26 Lima)
 
 - **José Jerí, Denisse Miralles y Julio Velarde se reunieron para fortalecer la confianza y el crecimiento del país**: [Link](https://rpp.pe/economia/economia/jose-jeri-mef-y-bcr-se-reunieron-presidente-tuvo-encuentro-con-denisse-miralles-y-julio-velarde-para-fortalecer-confianza-y-crecimiento-del-pais-noticia-1661571)
@@ -955,74 +1023,5 @@ Sin noticias relacionadas disponibles.
 - **Una aerolínea low cost amplía su red aérea: nuevas rutas desde Argentina hacia Brasil, Colombia y Ecuador**: [Link](https://www.lavoz.com.ar/negocios/una-aerolinea-low-cost-amplia-su-red-aerea-nuevas-rutas-desde-argentina-hacia-brasil-colombia-y-ecuador/)
 - **JetSmart suma frecuencias internacionales**: [Link](https://aviationclubcenter.com/index.php/2025/10/26/jetsmart-suma-frecuencias-internacionales/)
 - **“La región tiene espacio para el modelo ultra-low-cost”: una entrevista con Estuardo Ortiz, CEO de JetSMART**: [Link](https://www.aviacionline.com/la-region-tiene-espacio-para-el-modelo-ultra-low-cost-una-entrevista-con-estuardo-ortiz-ceo-de-jetsmart)
-
-
-### lucinda vasquez (N/A, 27/10/2025 03:33 Lima)
-
-- **Congresista Lucinda Vásquez forzó a sus trabajadores parlamentarios a realizarle pedicura y cocinarle en horas de trabajo**: [Link](https://www.infobae.com/peru/2025/10/27/congresista-lucinda-vasquez-forzo-a-sus-trabajadores-parlamentarios-a-realizarle-pedicura-y-cocinarle-en-horas-de-trabajo/)
-- **Asesor de congresista Lucinda Vásquez es captado cortando uñas de los pies a parlamentaria en horario laboral**: [Link](https://rpp.pe/politica/congreso/asesor-de-congresista-lucinda-vasquez-es-captado-cortando-unas-de-los-pies-a-parlamentaria-en-horario-laboral-noticia-1661118)
-- **Denuncian que congresista Lucinda Vásquez utiliza a asesores para cortarse las uñas y prepararle el desayuno**: [Link](https://elcomercio.pe/politica/congreso/lucinda-vasquez-denuncian-que-congresista-utiliza-a-asesores-para-cortarse-las-unas-y-prepararle-el-desayuno-ultimas-noticia/)
-
-
-### latam (N/A, 26/10/2025 23:33 Lima)
-
-- **LAP posterga cobro de TUUA internacional en el Jorge Chávez hasta el 7 de diciembre**: [Link](https://elperuano.pe/noticia/281608-lap-posterga-cobro-de-tuua-internacional-en-el-jorge-chavez-hasta-el-7-de-diciembre)
-- **Gobierno suspende cobro de nueva tarifa en aeropuerto Jorge Chávez tras críticas al TUUA**: [Link](https://caretas.pe/nacional/gobierno-suspende-cobro-de-nueva-tarifa-en-aeropuerto-jorge-chavez-tras-criticas-al-tuua/)
-- **Gremios de aerolíneas, turismo y comercio piden al Gobierno atender urgente el tema de la TUUA para conexiones internacionales**: [Link](https://elcomercio.pe/economia/peru/gremios-de-aerolineas-turismo-y-comercio-piden-al-gobierno-atender-urgente-el-cobro-de-la-tuua-para-conexiones-internacionales-noticia/)
-
-
-### lakers (N/A, 26/10/2025 23:33 Lima)
-
-- **Lakers' Gabe Vincent: Suffers ankle sprain**: [Link](https://beritasriwijaya.co.id/lakers-gabe-vincent-suffers-ankle-sprain/)
-- **Lakers Lose Another Starter Amid Luka Doncic Injury News**: [Link](https://athlonsports.com/nba/los-angeles-lakers/lakers-lose-another-starter-luka-doncic-injury-news-gabe-vincent)
-- **Injured Lakers Starter Ruled Out for Rest of Kings Showdown**: [Link](https://www.si.com/nba/lakers/onsi/news/injured-lakers-starter-ruled-out-for-rest-of-kings-showdown)
-
-
-### cyber (N/A, 26/10/2025 23:33 Lima)
-
-- **M&S ends IT service desk contract with Indian provider after cyber attack**: [Link](https://www.ft.com/content/289ec371-2ed4-425a-9bd0-c34e6db397ba)
-- **'Not due to cyber attack': TCS dismisses UK media report; reveals why Marks & Spencer didn't renew contra**: [Link](https://timesofindia.indiatimes.com/business/india-business/not-due-to-cyber-attack-tcs-dismisses-uk-media-report-reveals-why-marks-spencer-didnt-renew-contract/articleshow/124837333.cms)
-- **Marks & Spencer Cuts Ties with Tata Consultancy Services After ₹3,200 Crore Cyberattack Loss**: [Link](https://the420.in/marks-and-spencer-tcs-cyberattack-contract-termination-uk-india/)
-
-
-### nadeska widausky quien es (N/A, 26/10/2025 23:33 Lima)
-
-- **El Valor de la Verdad EN VIVO: Nadeska Widausky se confiesa sin filtros y promete sacudir el sillón rojo con su historia**: [Link](https://www.infobae.com/peru/2025/10/26/el-valor-de-la-verdad-en-vivo-nadeska-widausky-se-confiesa-sin-filtros-y-promete-sacudir-el-sillon-rojo-con-su-historia/)
-- **Nadeska Widausky en 'El valor de la verdad': todas sus confesiones sobre Jefferson Farfán, Christian Cueva, Gerald Oropeza y más**: [Link](https://rpp.pe/famosos/farandula/nadeska-widausky-en-el-valor-de-la-verdad-todas-sus-confesiones-sobre-jefferson-farfan-christian-cueva-gerald-oropeza-y-mas-noticia-1661120)
-- **Nadeska Widausky en ‘EVDLV’ EN VIVO: ¿Qué preguntas responderá?**: [Link](https://trome.com/espectaculos/tv/nadeska-widausky-en-el-valor-de-la-verdad-en-vivo-que-preguntas-respondera-y-en-que-plataformas-ver-el-estreno-de-evdlv-gerald-oropeza-edwin-sierra-video-fotos-farandula-noticia/)
-
-
-### kings league (N/A, 26/10/2025 23:33 Lima)
-
-- **Lamine Yamal humilla a Ibai Llanos tras ganar su primer "clásico" en la Kings League: "No pueden con nosotros"**: [Link](https://libero.pe/esports/2025/10/24/lamine-yamal-humilla-ibai-llanos-ganar-su-primer-clasico-en-kings-league-pueden-nosotros-kings-cup-spain-capital-cf-vs-porcinos-fc-1299528)
-- **Riyadh Season Kings League MENA Kicks Off with Intense Football Action**: [Link](https://www.spa.gov.sa/en/N2428101)
-
-
-### 3i atlas (N/A, 26/10/2025 23:33 Lima)
-
-- **The Imminent Solar Conjunction of 3I/ATLAS**: [Link](https://avi-loeb.medium.com/the-imminent-solar-conjunction-of-3i-atlas-264a6ccd441c)
-- **Comet 3I/ATLAS could soon shower NASA's Jupiter probe in charged particles.**: [Link](https://www.space.com/astronomy/comets/comet-3i-atlas-could-soon-shower-nasas-jupiter-probe-in-charged-particles-will-it-reveal-more-about-the-interstellar-invader)
-- **Manhattan-sized space object 3I/ATLAS has grown a tail — a possible sign of alien ‘maneuver’: Harvard scientist**: [Link](https://nypost.com/2025/10/25/world-news/manhattan-sized-interstellar-object-3i-atlas-has-grown-a-tail-as-it-approaches-the-sun-which-could-be-sign-of-a-maneuver/)
-
-
-### san luis vs (N/A, 26/10/2025 23:33 Lima)
-
-- **Necaxa frustra al Atlético de San Luis en memorable partido**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/15875105/altetico-de-san-luis-vs-necaxa-resumen-goles-posiciones-play-in-liga-mx)
-- **Liga MX: Necaxa se enfrentará a Atl. de San Luis por la fecha 15**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-necaxa-se-enfrentara-a-atl-de-san-luis-por-la-fecha-15-noticia-1660998)
-- **⚽ ¡No va gratis! Te decimos a qué HORA y en DÓNDE VER a Atlético de San Luis vs Necaxa en la Liga MX ⛪🆚⚡**: [Link](https://www.facebook.com/MilenioDiario/photos/-no-va-gratiste-decimos-a-qu%C3%A9-hora-y-en-d%C3%B3nde-ver-a-atl%C3%A9tico-de-san-luis-vs-neca/1289153056575496/)
-
-
-### lucinda vásquez (N/A, 26/10/2025 23:33 Lima)
-
-- **Asesor de congresista Lucinda Vásquez es captado cortando uñas de los pies a parlamentaria en horario laboral**: [Link](https://rpp.pe/politica/congreso/asesor-de-congresista-lucinda-vasquez-es-captado-cortando-unas-de-los-pies-a-parlamentaria-en-horario-laboral-noticia-1661118)
-- **Congresista Lucinda Vásquez forzó a sus trabajadores parlamentarios a realizarle pedicura y cocinarle en horas de trabajo**: [Link](https://www.infobae.com/peru/2025/10/27/congresista-lucinda-vasquez-forzo-a-sus-trabajadores-parlamentarios-a-realizarle-pedicura-y-cocinarle-en-horas-de-trabajo/)
-- **Denuncian que congresista Lucinda Vásquez utiliza a asesores para cortarse las uñas y prepararle el desayuno**: [Link](https://elcomercio.pe/politica/congreso/lucinda-vasquez-denuncian-que-congresista-utiliza-a-asesores-para-cortarse-las-unas-y-prepararle-el-desayuno-ultimas-noticia/)
-
-
-### welcome to derry hbo max (N/A, 26/10/2025 23:33 Lima)
-
-- **‘Welcome to Derry’ Review: HBO’s ‘It’ Prequel Series Is the Wrong Kind of Clown Show**: [Link](https://www.indiewire.com/criticism/shows/welcome-to-derry-review-it-hbo-series-1235156516/)
-- **HBO’s New ‘It: Welcome to Derry’ Series Completely Ruins Stephen King’s Epic**: [Link](https://www.thedailybeast.com/obsessed/hbos-new-it-welcome-to-derry-series-completely-ruins-stephen-kings-epic/)
-- **The most WTF scares from 'IT: Welcome to Derry' episode 1, ranked**: [Link](https://mashable.com/article/it-welcome-to-derry-wtf-moments-scares-ranked)
 
 
