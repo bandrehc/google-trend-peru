@@ -1,3 +1,71 @@
+### ppk (N/A, 31/10/2025 11:30 Lima)
+
+- **Pedro Pablo Kuczynski anuncia su precandidatura al Senado por el partido Fuerza y Libertad**: [Link](https://rpp.pe/politica/elecciones/pedro-pablo-kuczynski-anuncia-su-precandidatura-al-senado-por-el-partido-fuerza-y-libertad-noticia-1661811)
+- **PPK: Fuerza y Libertad inscribe a Pedro Pablo Kuczynski como candidato al Senado | PERU**: [Link](https://gestion.pe/peru/politica/ppk-fuerza-y-libertad-inscribe-a-pedro-pablo-kuczynski-como-candidato-al-senado-noticia/)
+- **PPK al Senado en las Elecciones 2026: Partido Fuerza y Libertad lo inscribe como candidato**: [Link](https://larepublica.pe/politica/2025/10/31/ppk-al-senado-en-las-elecciones-de-peru-2026-partido-fuerza-y-libertad-inscribe-a-pedro-pablo-kuczynski-como-candidato-hnews-1685470)
+
+
+### mef (N/A, 31/10/2025 11:30 Lima)
+
+- **MEF ahora descarta modelo híbrido APP y G2G para Líneas 3 y 4 del Metro de Lima**: [Link](https://gestion.pe/economia/mef-ahora-descarta-modelo-hibrido-app-y-g2g-para-lineas-3-y-4-del-metro-de-lima-noticia/)
+- **Homologación del incentivo único CAFAE no tendrá reglamento del MEF hasta noviembre**: [Link](https://www.infobae.com/peru/2025/10/29/homologacion-del-incetivo-cafae-no-tendra-reglamento-hasta-noviembre-asi-avanza-el-mef/)
+- **Homologación del incentivo Cafae no contará con reglamento del MEF hasta noviembre**: [Link](https://diarioviral.pe/economia/homologacion-del-incentivo-cafae-no-contara-con-reglamento-del-mef-hasta-noviembre-48235)
+
+
+### al hilal vs (N/A, 31/10/2025 11:30 Lima)
+
+Sin noticias relacionadas disponibles.
+
+
+### peru mucho gusto 2025 (N/A, 31/10/2025 11:30 Lima)
+
+- **“Perú Mucho Gusto”: restaurante trajo dos toneladas de cerdo para hacer chancho al palo**: [Link](https://andina.pe/agencia/noticia-peru-mucho-gusto-restaurante-trajo-dos-toneladas-cerdo-para-hacer-chancho-al-palo-1050239.aspx)
+- **Feria Perú Mucho Gusto busca récord en turistas extranjeros y triplicar venta de emprendedores | ECONOMIA**: [Link](https://gestion.pe/economia/feria-peru-mucho-gusto-busca-record-en-turistas-extranjeros-y-triplicar-venta-de-emprendedores-noticia/)
+- **Platos de las 25 regiones del país en un solo lugar y con ingreso completamente gratis: todo sobre Perú Mucho Gusto Lima 2025**: [Link](https://elcomercio.pe/provecho/peru-mucho-gusto-lima-2025-fechas-precios-platos-y-entradas-para-el-evento-gratis-mas-grande-de-gastronomia-en-la-ciudad-noticia/)
+
+
+### al hilal - al-shabab (N/A, 31/10/2025 11:30 Lima)
+
+- **Al Hilal - Al Shabab: What time and on which channel to watch the match live?**: [Link](https://foot-africa.com/en/news/al-hilal-al-shabab-what-time-and-on-which-channel-to-watch-the-match-live-940103/)
+- **Preview:Al-Hilal vs Al Shabab - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/al-hilal/preview/al-hilal-vs-al-shabab-prediction-team-news-lineups_584614.html)
+- **Al Hilal vs Al Shabab Preview, prediction, lineups, betting tips & odds | Saudi Pro League 2025-26**: [Link](https://khelnow.com/football/world-football-al-hilal-vs-al-shabab-preview-202510)
+
+
+### valentin vacherot (N/A, 31/10/2025 11:30 Lima)
+
+- **Auger-Aliassime moves closer to Turin following Paris QF win**: [Link](https://www.atptour.com/en/news/felix-vacherot-paris-2025-friday)
+- **Tennis: Auger-Aliassime ends Vacherot run to reach Paris Masters semis - Omni sports - Sports**: [Link](https://english.ahram.org.eg/NewsContent/6/56/555957/Sports/Omni-sports/Tennis-AugerAliassime-ends-Vacherot-run-to-reach-P.aspx)
+- **How Auger-Aliassime narrowed 390-point gap to ATP Finals**: [Link](https://rollingout.com/2025/10/31/auger-aliassime-paris-turin-atp-finals/)
+
+
+### dia de los muertos (N/A, 31/10/2025 11:30 Lima)
+
+- **Día de los Muertos: ¿Cómo hacer un altar de la Santa Muerte?**: [Link](https://www.atv.pe/noticia/dia-de-los-muertos-como-hacer-un-altar-de-la-santa-muerte/)
+- **10 imágenes de Tarjetas del Día de Muertos 2025 para imprimir y enviar en WhatsApp, Instagram y Facebook este 1 y 2 de noviembre**: [Link](https://elcomercio.pe/mag/usa/local-us/10-imagenes-de-tarjetas-del-dia-de-muertos-2025-para-imprimir-y-enviar-en-whatsapp-instagram-y-facebook-este-1-y-2-de-noviembre-nnda-nnse-noticia/)
+- **Frases de Día de Muertos Cortas: 25 Mensajes Bonitos, para Reflexionar y Poner en el Altar**: [Link](https://www.nmas.com.mx/tendencias/frases-de-dia-de-muertos-cortas-25-mensajes-bonitos-para-reflexionar/)
+
+
+### halloween 2025 (N/A, 31/10/2025 11:30 Lima)
+
+- **Halloween 2025: Jade, Demi Lovato and Megan Thee Stallion reveal their costumes**: [Link](https://www.bbc.com/news/articles/c4gpwn5v072o)
+- **See Kim Kardashian, Demi Lovato and More Celebs Celebrate Halloween 2025 in Costume**: [Link](https://www.eonline.com/news/1424034/halloween-2025-every-celebrity-costume-what-stars-dressed-up-as)
+- **The Spookiest (and Funniest) Celebrity Halloween Costumes of 2025**: [Link](https://www.yahoo.com/entertainment/celebrity/articles/spookiest-funniest-celebrity-halloween-costumes-150200649.html)
+
+
+### que se celebra el 31 de octubre (N/A, 31/10/2025 11:30 Lima)
+
+- **¿Por qué se celebra Halloween hoy, 31 de octubre?: el origen de la fecha**: [Link](https://www.infobae.com/america/mundo/2025/10/31/por-que-se-celebra-halloween-hoy-31-de-octubre-el-origen-de-la-fecha/)
+- **Halloween no tiene origen estadounidense, tiene raíces celtas europeas**: [Link](https://es.euronews.com/cultura/2025/10/31/la-celebracion-de-halloween-no-es-originaria-de-eeuu-raices-celtas-y-cristianas-europeas)
+- **¿Cómo una tradición celta de más de 2 mil años se transformó en Halloween?**: [Link](https://www.latercera.com/videos/noticia/como-una-tradicion-celta-de-mas-de-2-mil-anos-se-transformo-en-halloween/)
+
+
+### musica criolla peruana (N/A, 31/10/2025 11:30 Lima)
+
+- **La música criolla celebra su jarana en Lima, en franca resistencia contra zombis y brujas**: [Link](https://www.abc.es/cultura/musica/musica-criolla-celebra-jarana-lima-franca-resistencia-20251030174238-vi.html)
+- **Halloween y el Día de la Canción Criolla: eventos, conciertos y actividades para celebrar el 31 de octubre**: [Link](https://www.infobae.com/peru/2025/10/30/halloween-y-el-dia-de-la-cancion-criolla-eventos-conciertos-y-actividades-para-celebrar-el-31-de-octubre/)
+- **La canción criolla, por siempre vigente [INFORME]**: [Link](https://rpp.pe/musica/nacional/la-cancion-criolla-por-siempre-vigente-informe-noticia-1661668)
+
+
 ### palmeiras vs flamengo (N/A, 31/10/2025 07:50 Lima)
 
 - **CONMEBOL y PUMA presentan el balón oficial de la Final de la CONMEBOL Libertadores 2025**: [Link](https://www.conmebol.com/noticias/conmebol-y-puma-presentan-el-balon-oficial-de-la-final-de-la-conmebol-libertadores-2025/)
@@ -955,75 +1023,5 @@ Sin noticias relacionadas disponibles.
 - **Duet Night Abyss Global Release: Launch Time, Platforms, and Key Features Explained**: [Link](https://azat.tv/en/duet-night-abyss-global-release-launch-time-platforms-key-features/)
 - **What Kind Of Impact Will Duet Night Abyss’ Monetization Have On Gacha Games?**: [Link](https://www.mmobomb.com/duet-night-abyss-monetization-gacha-games)
 - **Duet Night Abyss Livestream Shares Key Features About Upcoming Gachaless Anime Title**: [Link](https://www.gamegrin.com/news/duet-night-abyss-livestream-shares-key-features-about-upcoming-gachaless-anime-title/)
-
-
-### pasto - deportivo pereira (N/A, 27/10/2025 20:51 Lima)
-
-- **Pronóstico Deportivo Pasto Deportivo Pereira - Liga Postobon 27/10/25**: [Link](https://www.sportytrader.com/es/pronosticos/deportivo-pasto-deportivo-pereira-300465/)
-- **Deportivo Pasto vs Deportivo Pereira, en vivo el partido de la Liga BetPlay 2025-II**: [Link](https://www.clarosports.com/colombia/liga-bet-play/deportivo-pasto-vs-deportivo-pereira-en-vivo-el-partido-de-la-liga-betplay-2025-ii/)
-- **🔴EN VIVO | Pasto vs. Pereria por la fecha 18 de la Liga Colombiana: siga acá la transmisión**: [Link](https://caracol.com.co/2025/10/28/en-vivo-pasto-vs-pereria-por-la-fecha-18-de-la-liga-colombiana-siga-aca-la-transmision/)
-
-
-### bolivar vs (N/A, 27/10/2025 20:51 Lima)
-
-- **Bolívar vs Real Tomayapo: resultado EN VIVO y estadísticas de la Copa Paceña**: [Link](https://www.365scores.com/es/news/bolivar-vs-real-tomayapo-en-vivo-pacena/)
-- **Bolívar convierte por primera vez en el año siete goles en un mismo partido**: [Link](https://www.vision360.bo/noticias/2025/10/21/33757-bolivar-convierte-por-primera-vez-en-el-ano-siete-goles-en-un-mismo-partido)
-- **Bolívar remonta y golea a Real Tomayapo en Tarija por el torneo seriado**: [Link](https://eju.tv/2025/10/bolivar-remonta-y-golea-a-real-tomayapo-en-tarija-por-el-torneo-seriado/)
-
-
-### paranaense - amazonas (N/A, 27/10/2025 20:51 Lima)
-
-- **Palpite Atlético Paranaense x Amazonas FC - Brasileirão Série B, 27/10/2025**: [Link](https://www.sportytrader.com/pt-br/palpites/atletico-paranaense-amazonas-fc-am-300444/)
-- **Dois confrontos fecham a 34ª rodada da Série B nesta segunda-feira**: [Link](https://www.cbf.com.br/futebol-brasileiro/noticias/copa-do-brasil/sub-20/dois-confrontos-fecham-a-34-rodada-da-serie-b-nesta-segunda-feira)
-- **Athletico busca reabilitação na Série B e sonha com arrancada rumo ao G4**: [Link](https://litoranea.fm/athletico-busca-reabilitacao-na-serie-b-e-sonha-com-arrancada-rumo-ao-g4/)
-
-
-### paranaense (N/A, 27/10/2025 20:51 Lima)
-
-- **Pessimismo do varejo está no pior patamar desde a pandemia**: [Link](https://www1.folha.uol.com.br/mercado/2025/10/pessimismo-do-varejo-esta-no-pior-patamar-desde-a-pandemia.shtml)
-- **Índice de Consumo dos paranaenses registra alta de 0,7% em outubro**: [Link](https://cbncuritiba.com.br/materias/indice-de-consumo-dos-paranaenses-registra-alta-de-07-em-outubro/)
-- **Famílias em Campo Grande reduzem gastos e percebem crédito mais difícil**: [Link](https://www.capitalnews.com.br/economia-e-agronegocio/economia/familias-em-campo-grande-reduzem-gastos-e-percebem-credito-mais-dificil/430247)
-
-
-### luka dončić (N/A, 27/10/2025 15:24 Lima)
-
-- **Doncic sidelined with finger sprain, leg contusion**: [Link](https://www.espn.com/nba/story/_/id/46735044/doncic-least-1-week-finger-sprain-leg-contusion)
-- **Khobi Price: In light of the Lakers being without Luka …**: [Link](https://www.hoopshype.com/story/sports/nba/rumors/2025/10/26/khobi-price-in-light-of-the-lakers-being-without-luka/86921986007/)
-- **NBA World Reacts To Los Angeles Lakers Luka Doncic Announcement**: [Link](https://www.profootballnetwork.com/nba/nba-world-reacts-to-los-angeles-lakers-luka-doncic-announcement/)
-
-
-### colo colo (N/A, 27/10/2025 15:24 Lima)
-
-- **Colo Colo vs. Deportes Limache**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/colo-colo-vs-deportes-limache-en-vivo-hoy-gratis-por-campeonato-nacional-via-max-tnt-sports-futbol-libre-tv-a-que-hora-juegan-canal-que-transmite-y-donde-ver-online-por-internet-video-noticia/)
-- **Fernando Ortiz: «Jugar un lunes y en un estadio que no es el nuestro no es lo ideal, pero igual nuestra hinchada va a apoyar**: [Link](https://onefootball.com/de/news/fernando-ortiz-jugar-un-lunes-y-en-un-estadio-que-no-es-el-nuestro-no-es-lo-ideal-pero-igual-nuestra-hinchada-va-a-apoyar-41856896)
-- **Colo Colo se enfrenta a Limache con la clasificación a Copa Sudamericana como el único objetivo posible**: [Link](https://www.latercera.com/el-deportivo/noticia/colo-colo-se-enfrenta-a-limache-con-la-clasificacion-a-copa-sudamericana-como-el-unico-objetivo-posible/)
-
-
-### primera división (N/A, 27/10/2025 15:24 Lima)
-
-- **Parte médico de Carvajal**: [Link](https://www.realmadrid.com/es-ES/noticias/futbol/primer-equipo/partes-medicos/parte-medico-de-carvajal-27-10-2025)
-- **Carvajal, KO entre seis y diez semanas**: [Link](https://as.com/futbol/carvajal-ko-entre-seis-y-diez-semanas-f202510-n/)
-- **Carvajal, entre dos y tres meses de baja**: [Link](https://www.marca.com/futbol/real-madrid/2025/10/27/carvajal-dos-tres-meses-baja.html)
-
-
-### moreirense - porto (N/A, 27/10/2025 15:24 Lima)
-
-- **Vasco Botelho: “Podemos bater a forte pressão que o FC Porto faz”**: [Link](https://onefootball.com/de/news/vasco-botelho-podemos-bater-a-forte-pressao-que-o-fc-porto-faz-41861740)
-- **Hoje vai ser notícia**: [Link](https://tvi.iol.pt/noticias/hoje-vai-ser-noticia/fc-porto/hoje-vai-ser-noticia-176155200)
-- **Moreirense x Porto no Campeonato Português: onde assistir ao vivo, horário e escalação**: [Link](https://www.estadao.com.br/esportes/futebol/moreirense-x-porto-no-campeonato-portugues-onde-assistir-ao-vivo-horario-e-escalacao/)
-
-
-### real betis vs (N/A, 27/10/2025 15:24 Lima)
-
-- **'I have no doubt that Baena is a game-changer'**: [Link](https://www.besoccer.com/new/i-have-no-doubt-that-baena-is-a-game-changer-1378940)
-- **Simeone urges Atleti to improve ahead of Betis clash**: [Link](https://www.beinsports.com/en-nz/football/laliga/articles-video/simeone-urges-atleti-to-improve-ahead-of-betis-clash-2025-10-26)
-- **Pablo Barrios Rivas vs. Real Betis – Player props & odds to score a goal on October 27**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/10/27/pablo-barrios-rivas-soccer-player-props-10-27-2025/86924124007/)
-
-
-### real betis - atlético madrid (N/A, 27/10/2025 15:24 Lima)
-
-- **Betis - Atlético de Madrid, en directo: LaLiga EA Sports, en vivo**: [Link](https://as.com/futbol/primera/betis-atletico-de-madrid-en-directo-laliga-ea-sports-en-vivo-f202510-d/)
-- **Pellegrini-Simeone, toda una eternidad en la Liga**: [Link](https://elpais.com/deportes/futbol/2025-10-27/pellegrini-simeone-toda-una-eternidad-en-la-liga.html)
-- **Olybet: apuesta gratis hasta 10 euros para apostar en el partido Real Betis vs Atlético de Madrid + sorteo de entradas**: [Link](https://legalbet.es/bonos/olybet-apuesta-gratis-hasta-10-euros-para-apostar-en-el-partido-real-betis-vs-atletico-de-madrid-sorteo-de-entradas/)
 
 
