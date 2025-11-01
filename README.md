@@ -1,3 +1,52 @@
+### atl. san luis - juárez (N/A, 31/10/2025 23:26 Lima)
+
+- **Palmeiras vs. LDU (30 de Oct., 2025) Resultados en Vivo**: [Link](https://espndeportes.espn.com/futbol/partido/_/juegoId/759127)
+- **Juventus vs. Udinese (29 de Oct., 2025) Resultados en Vivo**: [Link](https://espndeportes.espn.com/futbol/partido/_/juegoId/736867)
+- **UD Logroñés vs. Ponferradina (30 de Oct., 2025) Resultados en Vivo**: [Link](https://www.espn.com.ar/futbol/partido/_/juegoId/759775)
+
+
+### partidos de liga 1 (N/A, 31/10/2025 23:26 Lima)
+
+- **Partidos de hoy, viernes 31 de octubre de 2025: programación, canales TV y resultados en vivo**: [Link](https://www.infobae.com/peru/deportes/2025/10/31/partidos-de-hoy-viernes-31-de-octubre-de-2025-programacion-canales-tv-y-resultados-en-vivo/)
+- **Partidos de hoy, viernes 31 de octubre del 2025: horarios y canales TV para ver EN VIVO Liga 1 y LaLiga**: [Link](https://rpp.pe/futbol/futbol-mundial/partidos-de-hoy-peru-viernes-31-de-octubre-del-2025-horarios-y-canales-tv-ver-futbol-en-vivo-noticia-1661657)
+- **Partidos de hoy, sábado 1 de noviembre: horarios y dónde ver fútbol en vivo**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/partidos-de-hoy-sabado-1-de-noviembre-del-2025-resultados-horarios-canales-tv-y-donde-ver-futbol-en-vivo-noticia/)
+
+
+### liga1 (N/A, 31/10/2025 23:26 Lima)
+
+- **Lucha por evitar el descenso: ¿qué equipos están en riesgo y qué necesitan para permanecer en la Liga1?**: [Link](https://rpp.pe/futbol/descentralizado/sport-boys-en-liga1-2025-que-equipos-estan-en-riesgo-y-que-necesitan-para-mantenerse-en-primera-noticia-1661565)
+- **El fantasma de la baja: ¿Qué necesitan los clubes que pelean el descenso para salvarse en la Liga 1 2025?**: [Link](https://depor.com/futbol-peruano/descentralizado/descenso-liga-1-2025-que-resultados-necesitan-para-salvarse-de-la-baja-ayacucho-fc-utc-alianza-universidad-y-juan-pablo-ii-liga-2-2026-noticia/)
+- **¿Cuántos equipos finalmente se irán al descenso en la actual Liga 1?**: [Link](https://www.futbolperuano.com/liga-1/noticias/cuantos-equipos-descienden-en-la-liga-1-2025-546044)
+
+
+### puebla - cruz azul (N/A, 31/10/2025 23:26 Lima)
+
+- **Puebla vs Cruz Azul: alineaciones, J16, Apertura 2025**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/15892193/puebla-vs-cruz-azul-alineaciones-formaciones-liga-mx-apertura-2025)
+- **¿A qué horas juegan y por qué canales TV mirar Puebla vs. Cruz Azul EN VIVO y GRATIS el 31 de octubre por la Liga MX 2025?**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/a-que-hora-juega-y-que-canal-transmite-puebla-vs-cruz-azul-en-vivo-hoy-31-de-octubre-por-clasico-regio-2025-de-la-liga-mx-2025-canales-tv-nnda-nnse-noticia/)
+- **Liga MX: Cruz Azul va en busca de un triunfo ante Puebla para trepar a la punta**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-cruz-azul-va-en-busca-de-un-triunfo-ante-puebla-para-trepar-a-la-punta-noticia-1661725)
+
+
+### oktoberfest (N/A, 31/10/2025 23:26 Lima)
+
+- **Raise a stein to the 27th Elder Care Oktoberfest this weekend**: [Link](https://www.tallahassee.com/story/entertainment/restaurants/2025/10/31/raise-a-glass-to-27th-elder-care-oktoberfest-charity-bottle-share/86972690007/)
+- **A TikToker From Texas Decided To Fly To Germany To Experience Oktoberfest, But He Says It Was Basically A County Fair**: [Link](https://twistedsifter.com/2025/10/a-tiktoker-from-texas-decided-to-fly-to-germany-to-experience-oktoberfest-but-he-says-it-was-basically-a-county-fair/)
+- **65th Oktoberfest promises more entertainment**: [Link](https://neweralive.na/65th-oktoberfest-promises-more-entertainment/)
+
+
+### tarjeta roja (N/A, 31/10/2025 23:26 Lima)
+
+- **El Barça, en ‘Defcon1′**: [Link](https://as.com/futbol/el-barca-en-defcon1-f202510-n/)
+- **Barcelona pierde a su cerebro: las cartas de Flick ante la baja de Pedri**: [Link](https://www.espn.com.ar/futbol/espana/nota/_/id/15894607/barcelona-pierde-a-su-cerebro-las-cartas-de-flick-ante-la-baja-de-pedri)
+- **El Barça sin Pedri, por el escáner y con sorpresas**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20251031/1002560999/barca-pedri-escaner-sorpresas.html)
+
+
+### universitario vs garcilaso (N/A, 31/10/2025 23:26 Lima)
+
+- **Martín Pérez Guedes: “La gente se merece que uno siempre esté al 100% y bien predispuesto desde el lugar que te toque” | VIDEO**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/martin-perez-guedes-la-gente-se-merece-que-uno-siempre-este-al-100-y-bien-predispuesto-desde-el-lugar-que-te-toque-video-ultimas-noticia/)
+- **Así fue la vuelta a los entrenamientos del tricampeón peruano**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/asi-fue-vuelta-entrenamientos-tricampeon-peruano-n451534)
+- **Pérez Guedes sobre su título favorito con Universitario: “Si tuviera que elegir uno, sería...”**: [Link](https://depor.com/futbol-peruano/descentralizado/universitario-martin-perez-guedes-eligio-el-titulo-que-mas-le-gusto-ganar-con-el-club-liga-1-video-noticia/)
+
+
 ### necaxa - santos (N/A, 31/10/2025 20:57 Lima)
 
 - **Liga MX: Necaxa se enfrenta ante la visita Santos Laguna por la fecha 16**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-necaxa-se-enfrenta-ante-la-visita-santos-laguna-por-la-fecha-16-noticia-1661705)
@@ -972,54 +1021,5 @@ Sin noticias relacionadas disponibles.
 - **Atalanta-Milan: Formazioni ufficiali e Cronaca in diretta**: [Link](https://sport.virgilio.it/dirette/live/serie-a/28-10-2025/atalanta-milan/2558588/)
 - **Tare svela a quali condizioni interverrà il Milan sul mercato a gennaio e sugli infortuni: "Non era previsto"**: [Link](https://tribuna.com/it/news/2025-10-28-tare-svela-a-quali-condizioni-interverra-il-milan-sul-mercato-a-gennaio-e-sugli-infortuni/)
 - **Sfida al Milan delle assenze. Ma con un'Atalanta malata di "pareggite" c'è poco da stare... Allegri**: [Link](https://www.valbrembanaweb.com/redazionale/sfida-al-milan-delle-assenze-ma-con-unatalanta-malata-di-pareggite-ce-poco-da-stare-allegri/)
-
-
-### suecia - españa (N/A, 28/10/2025 15:28 Lima)
-
-- **Suecia 0 - España 1: resumen, goles y resultado de las semifinales de la UEFA Nations League**: [Link](https://as.com/futbol/femenino/suecia-espana-en-directo-semifinales-de-la-uefa-nations-league-hoy-en-vivo-f202510-d/)
-- **Suecia - España en directo | Semifinales Nations League Femenina hoy en vivo**: [Link](https://www.marca.com/futbol/uefa-nations-league-femenina/suecia-espana/2025/10/28/01_01122_20251028_6246_7649-directo.html)
-- **Suecia-España: Alineaciones probables, estadísticas y cómo ver por TV y online (19:00)**: [Link](https://espanol.eurosport.com/futbol/uefa-women-s-nations-league/2025/suecia-espana-alineaciones-probables-previa-estadisticas-horario-como-donde-ver-television-online-streaming-hoy_sto23235298/story.shtml)
-
-
-### atalanta vs milan (N/A, 28/10/2025 15:28 Lima)
-
-- **Gallery: ‘Lookman-Leao at full speed’, ‘Max pushes Milan’ – Today’s front pages in Italy**: [Link](https://sempremilan.com/front-pages-28-october-atalanta-milan)
-- **Juric: ‘Sorry for Tudor; Atalanta must improve in every area’**: [Link](https://football-italia.net/juric-sorry-for-tudor-atalanta-must-improve/)
-- **Ruben Loftus-Cheek vs. Atalanta – Player props & odds to score a goal on October 28**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/10/28/ruben-loftus-cheek-soccer-player-props-10-28-2025/86940144007/)
-
-
-### al hilal (N/A, 28/10/2025 11:33 Lima)
-
-- **Al Okhdood vs Al Hilal: Live streaming, TV channel, kick-off time & where to watch King's Cup 2025-26**: [Link](https://khelnow.com/football/world-football-al-okhdood-vs-al-hilal-where-to-watch-kings-cup-202510)
-- **Al Okhdood vs Al Hilal Preview, prediction, lineups, betting tips & odds | King's Cup 2025-26**: [Link](https://khelnow.com/football/world-football-al-okhdood-vs-al-hilal-preview-202510)
-- **Al Okhdood vs Al Hilal: Live streaming, TV channel, kick-off time & where to watch King's Cup 2025-26**: [Link](https://khelnow.com/football/world-football-al-okhdood-vs-al-hilal-where-to-watch-kings-cup-202510)
-
-
-### grokipedia (N/A, 28/10/2025 11:33 Lima)
-
-- **Elon Musk's Grokipedia Pushes Far-Right Talking Points**: [Link](https://www.wired.com/story/elon-musk-launches-grokipedia-wikipedia-competitor/)
-- **Musk launches Grokipedia to rival 'left-biased' Wikipedia**: [Link](https://www.yahoo.com/news/articles/musk-launches-grokipedia-rival-left-154555025.html)
-- **Elon Musk Challenges Wikipedia With His Own A.I. Encyclopedia**: [Link](https://www.nytimes.com/2025/10/27/technology/grokipedia-launch-elon-musk.html)
-
-
-### retiro afp 2025 (N/A, 28/10/2025 11:33 Lima)
-
-- **Retiro de AFP 2025: desde hoy 28 de octubre, este nuevo grupo ya puede tramitarlo**: [Link](https://www.infobae.com/peru/2025/10/26/desde-el-28-de-octubre-este-nuevo-grupo-podra-solicitar-el-retiro-de-afp-revisa-aqui-el-cronograma-2025/)
-- **🧾 Link Retiro AFP 2025: consulta aquí dónde enviar tu solicitud hoy para retirar hasta S/ 21,400 de las 4 UIT**: [Link](https://gestion.pe/mix/mi-bolsillo/link-retiro-afp-2025-consulta-aqui-donde-enviar-tu-solicitud-hoy-para-retirar-hasta-s-21400-de-las-4-uit-cronograma-prima-habitat-integra-nnda-nnrt-noticia/)
-- **Retiro AFP 2025: afiliados tienen tres oportunidades para presentar solicitud**: [Link](https://andina.pe/agencia/noticia-retiro-afp-2025-afiliados-tienen-tres-oportunidades-para-presentar-solicitud-1049510.aspx)
-
-
-### jamaica (N/A, 28/10/2025 11:33 Lima)
-
-- **Jamaica’s Major Airports Closed Ahead of Hurricane Melissa**: [Link](https://jis.gov.jm/jamaicas-major-airports-closed-ahead-of-hurricane-melissa/)
-- **Hurricane Melissa live updates: Power cuts hit Jamaica as storm nears**: [Link](https://www.bbc.com/news/live/cvgvexdjp1xt)
-- **Hurricane Melissa on path to historic Jamaica landfall as conditions worsen: Live updates**: [Link](https://www.cnn.com/weather/live-news/hurricane-melissa-jamaica-landfall-tuesday-climate)
-
-
-### code (N/A, 28/10/2025 11:33 Lima)
-
-- **Dabble Promo Code WTOP: Claim $25 Bonus for NBA This Week**: [Link](https://wtop.com/sports/2025/10/dabble-promo-code-wtop-claim-25-bonus-for-nba-this-week/)
-- **Dabble Fantasy Promo Code HANDLE Scores $25 Sign-Up Bonus for Week 8 NFL Games Today**: [Link](https://sportshandle.com/dabble-fantasy-promo-code-handle-scores-25-signup-bonus-week-8-nfl-games-today/)
-- **Dabble promo code GRINDERS: Net $25 no deposit sports equinox promo**: [Link](https://rotogrinders.com/articles/dabble-promo-code-grinders-net-25-no-deposit-sports-equinox-promo-4154028)
 
 
