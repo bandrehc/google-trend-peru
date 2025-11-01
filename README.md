@@ -1,3 +1,71 @@
+### necaxa - santos (N/A, 31/10/2025 20:57 Lima)
+
+- **Liga MX: Necaxa se enfrenta ante la visita Santos Laguna por la fecha 16**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-necaxa-se-enfrenta-ante-la-visita-santos-laguna-por-la-fecha-16-noticia-1661705)
+- **Atajada espectacular de Unsain evita el Primero de Santos | Santos vs Necaxa Jornada**: [Link](https://www.tvazteca.com/aztecadeportes/atajada-espectacular-unsain-evita-el-primero-santos-santos-vs-necaxa-jornada)
+- **Jugador de Necaxa dirá adiós ante Santos Laguna: ¡noche de despedidas en el Estadio Victoria!**: [Link](https://bolavip.com/mx/ligamx/jugador-de-necaxa-dira-adios-ante-santos-laguna-noche-de-despedidas-en-el-estadio-victoria)
+
+
+### grizzlies - lakers (N/A, 31/10/2025 20:57 Lima)
+
+- **How to Watch Grizzlies vs. Lakers: TV Channel, Live Streaming, Tip-Off Time**: [Link](https://sports.yahoo.com/article/watch-grizzlies-vs-lakers-tv-203044560.html)
+- **Lakers vs Grizzlies: Best NBA Player Props and Picks for Oct. 31**: [Link](https://www.thelines.com/lakers-vs-grizzlies-best-nba-player-props-and-picks-for-oct-31/)
+- **Marcus Smart (quadriceps) likely to return Friday**: [Link](https://www.fantasypros.com/nba/news/549254/marcus-smart-quadriceps-likely-to-return-friday.php)
+
+
+### newells vs (N/A, 31/10/2025 20:57 Lima)
+
+- **EN VIVO: Unión se impone 1 a 0 ante Newell`s**: [Link](https://www.directvsports.com/futbol/EN-VIVO-Union-se-impone-1-a-0-ante-Newells-20251028-0002.html)
+- **Newell’s vs Unión hoy: resultado EN VIVO y goles por la Liga Profesional**: [Link](https://www.365scores.com/es/news/newells-vs-union-hoy-resultado-en-vivo/)
+- **Newell's ante Unión: el llamativo dato estadístico que favorece a los rojinegros cuando juegan en su estadio**: [Link](https://www.lacapital.com.ar/ovacion/newells-union-el-llamativo-dato-estadistico-que-favorece-los-rojinegros-cuando-juegan-su-estadio-n10227348.html)
+
+
+### rbd (N/A, 31/10/2025 20:57 Lima)
+
+- **Dulce María anuncia segundo embarazo**: [Link](https://www.americatv.com.pe/noticias/espectaculos/dulce-maria-anuncia-su-segundo-embarazo-n512386)
+- **Dulce María, exintegrante de RBD, anuncia su segundo embarazo: "Ha llegado en el momento perfecto"**: [Link](https://rpp.pe/famosos/celebridades/dulce-maria-exintegrante-de-rbd-anuncia-su-segundo-embarazo-ha-llegado-en-el-momento-perfecto-noticia-1661361)
+- **Dulce María, ex RBD, anunció su segundo embarazo**: [Link](https://www.ritmoromantica.pe/noticias/musica/dulce-maria-ex-rbd-anuncio-su-segundo-embarazo-instagram/)
+
+
+### demon slayer (N/A, 31/10/2025 20:57 Lima)
+
+- **Demon Slayer Just Confirmed a Disappointing Infinity Castle Part 2 Update**: [Link](https://comicbook.com/anime/news/demon-slayer-just-confirmed-a-disappointing-infinity-castle-part-2-update/)
+- **Demon Slayer: 9 Strongest Characters Alive in Infinity Castle Part 2**: [Link](https://gamerant.com/demon-slayer-infinity-castle-part-2-strongest-characters-alive/)
+- **Demon Slayer Shares New Look At the Infinity Castle Cast**: [Link](https://comicbook.com/anime/news/demon-slayer-shares-new-look-at-the-infinity-castle-cast/)
+
+
+### blue jays - dodgers (N/A, 31/10/2025 20:57 Lima)
+
+- **Mookie Betts & Will Smith Spark THREE-RUN Inning to give Dodgers a 3-0 lead vs. Blue Jays**: [Link](https://www.foxsports.com/watch/fmc-pphf2jt97xkavpni)
+- **Chasing October: Live analysis of World Series Game 6**: [Link](https://www.thescore.com/mlb/news/3382696/chasing-october-live-analysis-of-world-series-game-6)
+- **How to watch Toronto Blue Jays World Series game tonight: MLB free live stream**: [Link](https://www.cleveland.com/tv/2025/10/how-to-watch-toronto-blue-jays-world-series-game-tonight-mlb-free-live-stream.html)
+
+
+### alianza lima - melgar (N/A, 31/10/2025 20:57 Lima)
+
+- **Tabla de posiciones de Liga 1 2025: acumulado y resultado de la fecha 17 del Torneo Clausura**: [Link](https://depor.com/futbol-peruano/descentralizado/tabla-de-posiciones-liga-1-peru-2025-en-vivo-resultados-de-la-fecha-17-del-torneo-clausura-universitario-de-deportes-sporting-cristal-alianza-lima-noticia/)
+- **Alianza Lima: ¿Qué se juega hoy ante Melgar, por qué es clave ganar pese a que la ‘U’ ya es tricampeón y cómo se beneficia Cristal?**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/alianza-lima-que-se-juega-hoy-ante-melgar-por-que-es-clave-ganar-pese-a-que-la-u-ya-es-tricampeon-y-como-se-beneficia-sporting-cristal-liga-1-te-apuesto-tlcnota-noticia/)
+- **Novedades en el ataque: la posible alineación de Alianza Lima para enfrentar a Melgar en Matute [FOTOS]**: [Link](https://rpp.pe/futbol/descentralizado/alianza-lima-vs-melgar-alineacion-de-gorosito-por-la-fecha-17-del-clausura-en-matute-liga-1-2025-noticia-1661664)
+
+
+### delfín - dep. cuenca (N/A, 31/10/2025 20:57 Lima)
+
+Sin noticias relacionadas disponibles.
+
+
+### ignacio buse (N/A, 31/10/2025 20:57 Lima)
+
+- **A paso firme: Ignacio Buse avanza a los cuartos de final de Los Inkas Open 2025 | VIDEO**: [Link](https://elcomercio.pe/deporte-total/tenis/a-paso-firme-ignacio-buse-avanza-a-los-cuartos-de-final-de-los-inkas-open-2025-video-noticia/)
+- **Ignacio Buse derrota al argentino Juan Torres y avanza a los cuartos de final del Challenger de Lima**: [Link](https://rpp.pe/tenis/mas-tenis/ignacio-buse-vs-olivieri-en-vivo-octavos-final-lima-challenger-2025-a-que-hora-juegan-y-donde-ver-por-tv-via-atp-tour-link-gratis-partidos-de-hoy-noticia-1661601)
+- **“Nacho” Buse venció a Roncadelli y avanzó a octavos en Los Inkas Open 2025**: [Link](https://www.apnoticias.pe/peru/diario-uno/nacho-buse-vencio-a-roncadelli-y-avanzo-a-octavos-en-los-inkas-open-2025-1466480)
+
+
+### 76ers - celtics (N/A, 31/10/2025 20:57 Lima)
+
+- **“He’s on the Scouting Report Now”: Paul Pierce Is Sure Celtics Will Beat VJ Edgecombe and Sixers in NBA Cup Opener**: [Link](https://thesportsrush.com/nba-news-hes-on-the-scouting-report-now-paul-pierce-is-sure-celtics-will-beat-vj-edgecombe-and-sixers-in-nba-cup-opener/)
+- **Tiny Nick's Gambling Picks 10/31**: [Link](https://zonecoverage.com/2025/gambling/tiny-nicks-gambling-picks-10-31-6/)
+- **Put money on Maxey, 76ers to beat Brown, Celtics**: [Link](https://www.nbcsports.com/watch/nba/boston-celtics-76ers-nba-betting-preview-take-philadelphia-to-win-cover)
+
+
 ### it (N/A, 31/10/2025 15:26 Lima)
 
 - **The story of MTV: The downfall of music disrupter**: [Link](https://theconversation.com/the-story-of-mtv-the-downfall-of-music-disrupter-268099)
@@ -953,75 +1021,5 @@ Sin noticias relacionadas disponibles.
 - **Dabble Promo Code WTOP: Claim $25 Bonus for NBA This Week**: [Link](https://wtop.com/sports/2025/10/dabble-promo-code-wtop-claim-25-bonus-for-nba-this-week/)
 - **Dabble Fantasy Promo Code HANDLE Scores $25 Sign-Up Bonus for Week 8 NFL Games Today**: [Link](https://sportshandle.com/dabble-fantasy-promo-code-handle-scores-25-signup-bonus-week-8-nfl-games-today/)
 - **Dabble promo code GRINDERS: Net $25 no deposit sports equinox promo**: [Link](https://rotogrinders.com/articles/dabble-promo-code-grinders-net-25-no-deposit-sports-equinox-promo-4154028)
-
-
-### javier eduardo franco castillo (N/A, 28/10/2025 11:33 Lima)
-
-- **Designan a Javier Eduardo Franco Castillo como nuevo jefe de la Sunat: predecesor duró menos de un mes en el cargo**: [Link](https://rpp.pe/politica/gobierno/designan-a-javier-eduardo-franco-castillo-como-nuevo-jefe-de-la-sunat-predecesor-duro-menos-de-un-mes-en-el-cargo-noticia-1661273)
-- **Poder Ejecutivo designó a Javier Eduardo Franco Castillo como nuevo superintendente de la Sunat**: [Link](https://www.elperuano.pe/noticia/281743-poder-ejecutivo-designo-a-javier-eduardo-franco-castillo-como-nuevo-superintendente-de-la-sunat)
-- **¿Un nuevo cambio en Sunat? La discusión sobre la mesa de PCM**: [Link](https://gestion.pe/economia/un-nuevo-cambio-en-sunat-la-discusion-sobre-la-mesa-de-pcm-noticia/)
-
-
-### dfb pokal (N/A, 28/10/2025 11:33 Lima)
-
-- **#SGEBVB – Wild ?**: [Link](https://onefootball.com/de/news/sgebvb-wild-41867289)
-- **Gutes Omen? Als Trainer überstand Niko Kovac immer die ersten beiden Runden im DFB-Pokal**: [Link](https://tribuna.com/de/news/2025-10-28-gutes-omen-als-trainer-uberstand-niko-kovac-immer-die-ersten-beiden-runden-im-dfbpokal/)
-- **Als sich die Dortmunder und Frankfurter Fans verbündeten | Wisst ihr noch ...? | Video**: [Link](https://www.kicker.at/als-sich-die-dortmunder-und-frankfurter-fans-verbuendeten-1159843/video)
-
-
-### san judas tadeo (N/A, 28/10/2025 11:33 Lima)
-
-- **Qué santo se recuerda hoy, 28 de octubre**: [Link](https://www.perfil.com/noticias/cultura/san-judas-tadeo-el-apostol-de-las-causas-desesperadas-a35.phtml)
-- **Metro CDMX y Metrobús hoy 28 de octubre: hay ajustes en líneas por celebraciones a San Judas Tadeo**: [Link](https://www.infobae.com/mexico/2025/10/28/metro-cdmx-y-metrobus-hoy-28-de-octubre/)
-- **“San Judas nunca nos deja solos”: Miles de regios se unen en fe y devoción en su día**: [Link](https://www.milenio.com/comunidad/con-veladoras-promesas-la-fe-une-miles-monterrey-san-judas-tadeo)
-
-
-### paro (N/A, 28/10/2025 07:50 Lima)
-
-- **Callao: chofer de combi fue baleado en la avenida Néstor Gambetta | Últimas | LIMA**: [Link](https://elcomercio.pe/lima/policiales/callao-chofer-de-combi-fue-baleado-en-la-avenida-nestor-gambetta-ultimas-noticia/)
-- **Sicarios asesinan a conductor en el Callao y transportistas bloquean avenida**: [Link](https://caretas.pe/nacional/sicarios-asesinan-a-conductor-en-el-callao-y-transportistas-bloquean-avenida/)
-- **Ventanilla: Bloquean avenida Gambetta en protesta por incremento de extorsiones**: [Link](https://gestion.pe/peru/ventanilla-bloquean-avenida-gambetta-en-protesta-por-extorsiones-y-asesinato-a-conductor-noticia/)
-
-
-### paro de transportistas (N/A, 28/10/2025 07:50 Lima)
-
-- **🔴🔵#ExitosaPerú🇵🇪🇵🇪 | En entrevista con Exitosa, el vicepresidente de la Alianza Nacional de Transportistas, Julio Campos, aseguró que el estado de emergencia no es una medida eficaz contra la inseguridad ciudadana. 📻 95.5 FM 📡 6.1 señal digital abier**: [Link](https://www.facebook.com/story.php?story_fbid=1257385513091171&id=100064592023543)
-- **Transportistas anuncian paro nacional en noviembre y cuestionan estado de emergencia de José Jerí: “La situación se ha agravado”**: [Link](https://larepublica.pe/sociedad/2025/10/27/transportistas-anuncian-paro-nacional-en-noviembre-y-cuestionan-estado-de-emergencia-de-jose-jeri-la-situacion-se-ha-agravado-ntpe-734859)
-- **Asociación Nacional de Conductores cuestiona medidas del gobierno contra crimen: "Se ha agravado not**: [Link](https://www.apnoticias.pe/peru/exitosa-noticias/asociacion-nacional-de-conductores-cuestiona-medidas-del-gobierno-contra-crimen-se-ha-agravado-notablemente-1465965)
-
-
-### recorrido señor de los milagros (N/A, 28/10/2025 07:50 Lima)
-
-- **Señor de los Milagros EN VIVO: sigue el quinto recorrido procesional de la sagrada imagen**: [Link](https://elcomercio.pe/lima/sucesos/senor-de-los-milagros-hoy-en-vivo-quinto-recorrido-procesional-detalles-y-horario-del-martes-28-de-octubre-de-2025-lbposting-noticia/)
-- **Conoce las desvíos del transporte público por el quinto recorrido del Señor de los Milagros**: [Link](https://caretas.pe/nacional/conoce-las-desvios-del-transporte-publico-por-el-quinto-recorrido-del-senor-de-los-milagros/)
-- **Señor de los Milagros recorre las calles de Lima en su quinta procesión del año**: [Link](https://rpp.pe/videos/la-rotativa-del-aire/senor-de-los-milagros-recorre-las-calles-de-lima-en-su-quinta-procesion-del-ano-noticia-1661278)
-
-
-### retiro afp retiro (N/A, 28/10/2025 07:50 Lima)
-
-- **Retiro-AFP 2025, LINK: Inicia tu trámite desde hoy y accede al desembolso de hasta 4 UIT**: [Link](https://elcomercio.pe/respuestas/tramites/link-retiro-afp-hoy-quien-solicita-hoy-el-desembolso-de-hasta-4-uit-consulta-con-dni-el-cronograma-y-plataforma-oficial-tdpe-noticia/)
-- **Retiro AFP 2025: afiliados tienen tres oportunidades para presentar solicitud**: [Link](https://andina.pe/agencia/noticia-retiro-afp-2025-afiliados-tienen-tres-oportunidades-para-presentar-solicitud-1049510.aspx)
-- **[GUÍA] Retiro de AFP 2025: estos son los pasos a seguir para presentar tu solicitud y así acceder a tus fondos**: [Link](https://rpp.pe/economia/economia/retiro-afp-2025-estos-son-los-pasos-para-registrar-tu-solicitud-por-el-desembolso-de-tus-fondos-noticia-1660521)
-
-
-### copa del rey (N/A, 28/10/2025 03:33 Lima)
-
-- **El Oviedo de Carrión busca seguir creciendo en la Copa del Rey**: [Link](https://as.com/futbol/copa_del_rey/el-oviedo-de-carrion-busca-seguir-creciendo-en-la-copa-del-rey-f202510-n/)
-- **El Ourense CF afronta la segunda edición de su sueño en la Copa del Rey**: [Link](https://www.lavozdegalicia.es/noticia/ourense/2025/10/28/segunda-edicion-sueno-copa/0003_202510O28C5991.htm)
-- **Los azules ya preparan la primera eliminatoria de la Copa del Rey**: [Link](https://www.lne.es/real-oviedo/2025/10/27/azules-preparan-primera-eliminatoria-copa-123050651.html)
-
-
-### nasa (N/A, 28/10/2025 03:33 Lima)
-
-- **MAGA Mouthpieces Turn Their Backs on Trump Goon’s NASA Bid**: [Link](https://www.thedailybeast.com/maga-mouthpieces-turn-their-backs-on-sean-duffys-nasa-bid/)
-- **Trump says he doesn't plan to name the ballroom after himself. Probably going to call it the presidential ballroom or something like that, he said. He said he hasn't decided, he told us before leaving for Asia.**: [Link](https://x.com/JenniferJJacobs/status/1981924155592265933)
-- **Duffy’s Bad Day**: [Link](https://www.notus.org/newsletters/duffys-bad-day)
-
-
-### timberwolves - nuggets (N/A, 28/10/2025 03:33 Lima)
-
-- **Nikola Jokic Makes NBA History as 25-Point Triple-Double Downs Timberwolves Without Anthony Edwards**: [Link](https://www.essentiallysports.com/nba-active-basketball-news-nikola-jokic-makes-nba-history-as-twenty-five-point-triple-double-downs-minnesota-timberwolves-without-anthony-edwards/)
-- **Jamal Murray powers Nuggets to end Wolves’ tormenting streak**: [Link](https://denversports.com/nba/denver-nuggets/end-wolves-win-streak/2126357)
-- **Jokić's new triple-double, Denver defeats Minnesota**: [Link](https://en.vijesti.me/sports-e/basketball/780767/New-triple-double-for-Jokic--Denver-defeats-Minnesota)
 
 
