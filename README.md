@@ -1,3 +1,38 @@
+### villarreal - rayo vallecano (N/A, 01/11/2025 07:44 Lima)
+
+- **Villarreal - Rayo, en directo: LaLiga EA Sports hoy en vivo**: [Link](https://as.com/futbol/primera/villarreal-rayo-en-directo-laliga-ea-sports-hoy-en-vivo-f202511-d/)
+- **LaLiga EA Sports: Rayo Vallecano quiere aumentar su racha positiva con otra victoria**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-rayo-vallecano-quiere-aumentar-su-racha-positiva-con-otra-victoria-noticia-1661764)
+- **Apuestas y Pronóstico del Villarreal vs Rayo Vallecano 01/11/25**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2025/noviembre/pronostico-villarreal-vs-rayo-vallecano-01-11-25)
+
+
+### noviembre (N/A, 01/11/2025 07:44 Lima)
+
+- **¿Es oficial el feriado largo del 3 y 4 de noviembre? Revisa lo publicado en El Peruano**: [Link](https://elcomercio.pe/respuestas/cuando/es-oficial-el-feriado-largo-del-3-y-4-de-noviembre-revisa-lo-publicado-en-el-peruano-noticia/)
+- **¿Las clases escolares se suspenden este lunes 3 de noviembre? Minedu responde**: [Link](https://larepublica.pe/sociedad/2025/10/31/las-clases-escolares-se-suspenden-este-lunes-3-de-noviembre-minedu-responde-1475290)
+- **¿El 2 de noviembre es feriado? Conoce qué se celebra y si te corresponderá descansar**: [Link](https://libero.pe/tiempoextra/2025/10/31/2-de-noviembre-es-feriado-conoce-se-celebra-te-correspondera-descansar-2547208)
+
+
+### que se celebra hoy (N/A, 01/11/2025 07:44 Lima)
+
+- **Holywins**: [Link](https://www.diainternacionalde.com/ficha/holywins-vs-halloween)
+- **Los colegios religiosos recuperan la celebración de ‘Todos los Santos’**: [Link](https://www.archisevilla.org/los-colegios-religiosos-recuperan-la-celebracion-de-todos-los-santos/)
+- **La Conferencia Episcopal recuerda a los católicos que tienen una fiesta “más grande” que Halloween**: [Link](https://www.lavanguardia.com/sociedad/20251031/11218187/conferencia-episcopal-recuerda-catolicos-fiesta-mas-grande-halloween-agenciaslv20251031.html)
+
+
+### videos (N/A, 01/11/2025 07:44 Lima)
+
+- **Visible from space, bloody sands expose the slaughter of tens of thousands in Sudan**: [Link](https://www.nbcnews.com/world/africa/sudan-africa-civil-war-rapid-support-forces-el-fasher-massacre-rcna240708)
+- **Thousands missing, new horrors emerge after RSF taking of Sudan’s el-Fasher**: [Link](https://www.aljazeera.com/news/2025/11/1/thousands-missing-new-horrors-emerge-after-rsf-taking-of-sudan-el-fasher)
+- **Twenty Years Later, Atrocities Haunt Darfur Again**: [Link](https://www.nytimes.com/2025/10/31/world/africa/darfur-sudan-atrocities.html)
+
+
+### calendario 2025 (N/A, 01/11/2025 07:44 Lima)
+
+- **¿Feriado o día laborable?: qué dice el calendario oficial sobre el 31 de octubre de 2025 en Perú**: [Link](https://elcomercio.pe/respuestas/que/feriado-o-dia-laborable-que-dice-el-calendario-oficial-sobre-el-31-de-octubre-de-2025-en-peru-tdpe-noticia/)
+- **¿Se suspenden las clases escolares este jueves 30 y viernes 31 de octubre? Lo que dice Minedu**: [Link](https://larepublica.pe/sociedad/2025/10/26/se-suspenden-las-clases-escolares-este-jueves-30-y-viernes-31-de-octubre-a-nivel-nacional-minedu-responde-1990638)
+- **¿Se suspenden las clases escolares este viernes 31 de octubre a nivel nacional? Esto señala El Peruano**: [Link](https://elpopular.pe/actualidad/2025/10/26/se-suspenden-las-clases-escolares-este-viernes-31-de-octubre-a-nivel-nacional-esto-senala-el-peruano-857896)
+
+
 ### newcastle jets - sydney (N/A, 01/11/2025 03:28 Lima)
 
 - **Newcastle Jets vs Sydney FC Prediction and Betting Tips | November 1st 2025**: [Link](https://www.sportskeeda.com/football/newcastle-jets-vs-sydney-fc-prediction-betting-tips-november-1st-2025)
@@ -986,40 +1021,5 @@ Sin noticias relacionadas disponibles.
 - **Atención pacientes diabéticos: retiran lote de Metformina 850 mg por seguridad. Verifica tu medicamento**: [Link](https://www.elperuano.pe/noticia/281818-atencion-pacientes-diabeticos-retiran-lote-de-metformina-850-mg-por-seguridad-verifica-tu-medicamento)
 - **Indecopi informa retiro de medicamento para la diabetes tras detectarse partícula extraña en comprimido**: [Link](https://canaln.pe/actualidad/indecopi-alerta-sobre-retiro-medicamento-metformina-lima-n487861)
 - **Metformina: retiran del mercado lote de fármaco para diabetes ¿De qué laboratorio?**: [Link](https://andina.pe/agencia/noticia-metformina-retiran-del-mercado-lote-farmaco-para-diabetes-de-laboratorio-1049965.aspx)
-
-
-### atlético mineiro (N/A, 28/10/2025 20:58 Lima)
-
-- **Por que Hulk e Scarpa estão fora do time em Atlético-MG x Del Valle**: [Link](https://www.sportingnews.com/br/futebol/noticias/por-que-hulk-scarpa-estao-fora-time-atletico-del-valle/8911a013466045ed57ef8ba8)
-- **Sul-Americana: veja o golaço de Bernard em Atlético-MG x Del Valle**: [Link](https://www.cnnbrasil.com.br/esportes/futebol/futebol-internacional/sulamericana/veja-o-golaco-de-bernard-em-atletico-mg-x-del-valle-pela-sul-americana/)
-- **Atuação de Dudu em Atlético-MG x Del Valle chama atenção: 'Absurdo'**: [Link](https://www.lance.com.br/fora-de-campo/atuacao-de-dudu-em-atletico-mg-x-del-valle-chama-atencao-absurdo.html)
-
-
-### claudio spinelli (N/A, 28/10/2025 20:58 Lima)
-
-- **Universitario va con todo: El tipo de goleador extranjero que buscan y los nombres en carpeta**: [Link](https://bolavip.com/pe/liga-1/universitario-va-con-todo-el-tipo-de-goleador-extranjero-que-buscan-y-los-nombres-en-carpeta)
-- **Se reveló si Claudio Spinelli podría llegar a Universitario en 2026: "Le gusta a Álvaro Barco"**: [Link](https://www.eldiez.com.pe/internacional/universitario-de-deportes-se-revelo-si-claudio-spinelli-podria-llegar-a-la-u-en-2026-le-gusta-a-alvaro-barco-noticia/)
-- **Se confirmó si Universitario dará el batacazo con el fichaje de Claudio Spinelli tras el tri: "Hoy..."**: [Link](https://libero.pe/futbol-peruano/universitario/2025/10/28/claudio-spinelli-se-confirmo-universitario-dara-batacazo-fichaje-del-delantero-tri-hoy-video-2093924)
-
-
-### raul noblecilla (N/A, 28/10/2025 20:58 Lima)
-
-- **Sala expulsa a Raúl Noblecilla de juicio oral y lo suspende por dos meses tras presentar supuesto certificado médico falso**: [Link](https://lpderecho.pe/sala-expulsa-raul-noblecilla-suspende-dos-meses/)
-- **“Váyase, señor”: El momento en el que expulsan a Raúl Noblecilla del juicio contra Pedro Castillo**: [Link](https://www.infobae.com/peru/2025/10/28/vayase-senor-el-momento-en-el-que-expulsan-a-raul-noblecilla-del-juicio-contra-pedro-castillo/)
-- **Golpe de Estado: Suspenden a abogado de Betssy Chávez, Raúl Noblecilla, por dos meses | perú | POLITICA**: [Link](https://diariocorreo.pe/politica/golpe-de-estado-suspenden-a-abogado-de-betssy-chavez-raul-noblecilla-por-dos-meses-peru-noticia/)
-
-
-### atlético mineiro - independiente del valle (N/A, 28/10/2025 20:58 Lima)
-
-- **VER GRATS, Independiente del Valle vs. Atlético Mineiro EN VIVO por ESPN ONLINE**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/independiente-del-valle-vs-atletico-mineiro-en-vivo-online-gratis-por-copa-sudamericana-2025-a-que-hora-juegan-canal-que-transmite-y-donde-ver-por-espn-disney-plus-directv-futbol-libre-tv-video-noticia/)
-- **Independiente del Valle vs Atlético Mineiro: fecha, hora y canal del partido por semifinales de la Copa Sudamericana**: [Link](https://larepublica.pe/deportes/2025/10/26/independiente-del-valle-vs-atletico-mineiro-fecha-hora-y-canal-del-partido-por-semifinales-de-la-copa-sudamericana-448682)
-- **Martes sale primer finalista de la Copa Sudamericana entre Atlético Mineiro e Independiente del Vall**: [Link](https://www.apnoticias.pe/peru/diario-uno/martes-sale-primer-finalista-de-la-copa-sudamericana-entre-atletico-mineiro-e-independiente-del-valle-1466039)
-
-
-### maju mantilla (N/A, 28/10/2025 15:28 Lima)
-
-- **Falleció Elvia García Linares, madre de Maju Mantilla a los 75 años**: [Link](https://www.infobae.com/peru/2025/10/28/fallecio-elvia-garcia-madre-de-maju-mantilla/)
-- **Muere Elvia García, madre de Maju Mantilla, a los 75 años: familia y amigos le dan el último adiós en Miraflores**: [Link](https://larepublica.pe/espectaculos/2025/10/28/muere-elvia-garcia-madre-de-maju-mantilla-a-los-75-anos-familia-y-amigos-le-dan-el-ultimo-adios-en-miraflores-830200)
-- **Fallece la mamá de Maju Mantilla a los 75 años de edad**: [Link](https://www.atv.pe/noticia/fallece-la-mama-de-maju-mantilla-a-los-75-anos-de-edad/)
 
 
