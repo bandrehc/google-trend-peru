@@ -1,3 +1,70 @@
+### ajax vs (N/A, 01/11/2025 11:25 Lima)
+
+- **Preview:Ajax vs. Heerenveen - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/ajax/preview/ajax-vs-heerenveen-prediction-team-news-lineups_584718.html)
+- **Ajax seek back-to-back Eredivisie wins against Heerenveen in Saturday’s clash**: [Link](https://news.ssbcrack.com/ajax-seek-back-to-back-eredivisie-wins-against-heerenveen-in-saturdays-clash/)
+- **Predicted Lineups and Player News for Ajax vs SC Heerenveen 01/11/25 - Eredivisie News**: [Link](https://footballpredictions.net/predicted-lineups-ajax-v-heerenveen-01-11-2025)
+
+
+### frankfurt fc (N/A, 01/11/2025 11:25 Lima)
+
+- **Nathaniel Brown vs. 1. FC Heidenheim 1846 – Player props & odds to score a goal on November 1**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/10/31/nathaniel-brown-soccer-player-props-11-1-2025/87018349007/)
+- **Toppmöller discusses possible rotation ahead of Eintracht Frankfurt's trip to Heidenheim**: [Link](https://bulinews.com/toppmoller-discusses-possible-rotation-ahead-eintracht-frankfurt-trip-heidenheim)
+- **Heidenheim vs Eintracht Frankfurt Prediction, 11/1/2025 Soccer Pick, Tips and Odds**: [Link](https://www.docsports.com/free-picks/soccer/2025/heidenheim-vs-eintracht-frankfurt-prediction-11-1-2025-soccer-pick-tips-and-odds.html)
+
+
+### psg vs niza (N/A, 01/11/2025 11:25 Lima)
+
+- **How to Watch: PSG vs. Nice on beIN SPORTS**: [Link](https://www.beinsports.com/en-us/soccer/ligue-1/articles/how-to-watch-psg-vs-nice-on-bein-sports-2025-10-31)
+- **The Paris squad for the visit of Nice**: [Link](https://www.psg.fr/en/content/squad-paris-saint-germain-v-ogc-nice-ligue-1-2025-2026)
+- **Kojo Peprah Oppong vs. Paris Saint-Germain – Player props & odds to score a goal on November 1**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/10/31/kojo-peprah-oppong-soccer-player-props-11-1-2025/87018004007/)
+
+
+### nicki nicole (N/A, 01/11/2025 11:25 Lima)
+
+- **Lamine Yamal Confirms Breakup with Nicki Nicole: “There Was No Infidelity”**: [Link](https://athlonsports.com/soccer/lamine-yamal-confirms-breakup-with-nicki-nicole-there-was-no-infidelity)
+- **Barcelona Star Yamal in Scandal After El Clásico**: [Link](https://www.chosun.com/english/sports-en/2025/11/01/N6ZIJCZNCFHLBMAXLZGJJU6TXY/)
+- **Lamine Yamal accused of cheating on Nicki Nicole with Italian influencer Anna Gegnoso**: [Link](https://www.mundodeportivo.com/us/en/20251030/733611/lamine-yamal-accused-of-cheating-on-nicki-nicole-with-italian-influencer-anna-gegnoso.html)
+
+
+### psg - niza (N/A, 01/11/2025 11:25 Lima)
+
+- **El líder PSG recibe a Niza en busca de volver al triunfo en la Ligue 1**: [Link](https://www.espn.com.pe/futbol/francia/nota/_/id/15890260/psg-vs-niza-por-ligue-1-equipo-fecha-hora-y-tv-en-vivo)
+- **Liga de Francia: PSG marcha como líder y busca llevarse los 3 puntos para mantenerse en la cima**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-de-francia-psg-marcha-como-lider-y-busca-llevarse-los-3-puntos-para-mantenerse-en-la-cima-noticia-1661780)
+
+
+### ajax - heerenveen (N/A, 01/11/2025 11:25 Lima)
+
+- **Robin Veldman heeft 'vraagtekens' en merkt 'honger in de groep' richting duel met Ajax**: [Link](https://www.sc-heerenveen.nl/nieuws/robin-veldman-heeft-vraagtekens-en-merkt-honger-in-de-groep-richting-duel-met-ajax)
+- **Penalty Ajax teruggedraaid na schwalbe Taylor • Hilgers loopt kruisbandblessure op**: [Link](https://nos.nl/liveblog/2588778-penalty-ajax-teruggedraaid-na-schwalbe-taylor-hilgers-loopt-kruisbandblessure-op)
+- **Heitinga verklaart basisopstelling: 'Hij heeft zich wel in de basis gespeeld'**: [Link](https://www.voetbalprimeur.nl/nieuws/1707663/heitinga-over-sutalo-en-regeer-voor-duel-met-heerenveen.html)
+
+
+### atletico madrid (N/A, 01/11/2025 11:25 Lima)
+
+- **Diego Simeone talks systems, Barrios replacements and substitutions before Sevilla**: [Link](https://www.intothecalderon.com/atletico-madrid-quotes/18770/diego-simeone-matias-almeyda-atletico-madrid-sevilla-la-liga-press-conference-alvarez-barrios-johnny-cardoso-conor-gallagher)
+- **Conor Gallagher vs. Sevilla FC – Player props & odds to score a goal on November 1**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/10/31/conor-gallagher-soccer-player-props-11-1-2025/87018190007/)
+- **Atletico Madrid vs Sevilla Prediction, 11/1/2025 Soccer Pick, Tips and Odds**: [Link](https://www.docsports.com/free-picks/soccer/2025/atletico-madrid-vs-sevilla-prediction-11-1-2025-soccer-pick-tips-and-odds.html)
+
+
+### united (N/A, 01/11/2025 11:25 Lima)
+
+- **2 planes make contact on taxiway at LaGuardia Airport**: [Link](https://abc7ny.com/post/2-planes-make-contact-taxiway-laguardia-airport/18097385/)
+- **United flight 580 out of Chicago's O'Hare airport clips plane UA 434 at LaGuardia Airport in New York, airline says**: [Link](https://abc7chicago.com/post/united-flight-580-chicagos-ohare-airport-clips-plane-ua-434-laguardia-new-york-airline-says/18099220/)
+- **Exclusive | United Airlines planes collide at LaGuardia — as airport grappled with intense delays: ‘We all felt a bump’**: [Link](https://nypost.com/2025/10/31/us-news/united-airlines-planes-collide-at-laguardia-we-all-felt-a-bump/)
+
+
+### lamine yamal (N/A, 01/11/2025 11:25 Lima)
+
+- **Lamine Yamal confirma el fin de su relación con Nicki Nicole**: [Link](https://rpp.pe/famosos/celebridades/lamine-yamal-confirma-el-fin-de-su-relacion-con-nicki-nicole-noticia-1661985)
+- **¿Se acabó el amor? Lamine Yamal le habría sido infiel a Nicki Nicole con influencer italiana**: [Link](https://peru21.pe/celebridades/lamine-yamal-le-habria-sido-infiel-nicki-nicole-con-anna-gegnoso/)
+- **Lamine Yamal confirmó su ruptura con Nicki Nicole en medio de una presunta infidelidad: "No estamos juntos"**: [Link](https://elpopular.pe/deportes/2025/11/01/lamine-yamal-confirmo-su-ruptura-con-nicki-nicole-en-medio-de-una-presunta-infidelidad-no-estamos-juntos-29732)
+
+
+### oliver sonne (N/A, 01/11/2025 11:25 Lima)
+
+Sin noticias relacionadas disponibles.
+
+
 ### villarreal - rayo vallecano (N/A, 01/11/2025 07:44 Lima)
 
 - **Villarreal - Rayo, en directo: LaLiga EA Sports hoy en vivo**: [Link](https://as.com/futbol/primera/villarreal-rayo-en-directo-laliga-ea-sports-hoy-en-vivo-f202511-d/)
@@ -951,75 +1018,5 @@ Sin noticias relacionadas disponibles.
 - **Jonathan Kuminga replaces Warriors veteran in the starting lineup**: [Link](https://basketnews.com/news-233935-jonathan-kuminga-replaces-al-horford-in-warriors-starting-five.html)
 - **Clippers' James Harden: Paces Los Angeles in loss**: [Link](https://www.cbssports.com/fantasy/basketball/news/clippers-james-harden-paces-los-angeles-in-loss/)
 - **Game Recap: Warriors 98, Clippers 79**: [Link](https://www.nba.com/watch/video/game-recap-warriors-98-clippers-79)
-
-
-### warriors vs (N/A, 29/10/2025 03:34 Lima)
-
-- **NBA: Golden State Warriors vs. Los Angeles Clippers**: [Link](https://english.news.cn/20251029/bd374fdf73eb4113b4a43775e42f0282/c.html)
-- **Anthony Slater: Everyone expected is available for the …**: [Link](https://www.hoopshype.com/story/sports/nba/rumors/2025/10/28/anthony-slater-everyone-expected-is-available-for-the/86952370007/)
-- **FanDuel promo code: Wager $5, get $300 in bonus bets if your bet wins for Clippers vs. Warriors**: [Link](https://nypost.com/2025/10/28/betting/fanduel-promo-code-bet-5-get-300-in-bonus-bets-if-your-bet-wins-for-clippers-vs-warriors/)
-
-
-### warriors - clippers (N/A, 28/10/2025 23:30 Lima)
-
-- **Warriors, Clippers trusting their experience as season begins**: [Link](https://www.nba.com/news/warriors-clippers-trust-experience-season-begins)
-- **Anthony Slater: Everyone expected is available for the …**: [Link](https://www.hoopshype.com/story/sports/nba/rumors/2025/10/28/anthony-slater-everyone-expected-is-available-for-the/86952370007/)
-- **FanDuel promo code: Wager $5, get $300 in bonus bets if your bet wins for Clippers vs. Warriors**: [Link](https://nypost.com/2025/10/28/betting/fanduel-promo-code-bet-5-get-300-in-bonus-bets-if-your-bet-wins-for-clippers-vs-warriors/)
-
-
-### copa libertadores (N/A, 28/10/2025 23:30 Lima)
-
-- **Racing busca dar vuelta la serie ante Flamengo y meterse en la gran final de la Copa Libertadores**: [Link](https://www.espn.com.ar/futbol/copa-libertadores/nota/_/id/15880237/racing-vs-flamengo-partido-de-vuelta-semifinales-copa-libertadores-2025-equipo-fecha-hora-y-tv-en-vivo)
-- **Costas eligió al reemplazante de Sosa y tiene dos dudas en el equipo de Racing para enfrentar a Flamengo en la Libertadores**: [Link](https://espndeportes.espn.com/futbol/copa-libertadores/nota/_/id/15880061/formacion-racing-vs-flamengo-partido-vuelta-semifinal-copa-libertadores-2025)
-- **Telefe en vivo, Racing vs. Flamengo hoy por semifinal de vuelta de la Copa Libertadores 2025**: [Link](https://elcomercio.pe/deporte-total/argentina/telefe-en-vivo-pelota-libre-tv-racing-vs-flamengo-hoy-gratis-online-via-mi-telefe-y-pluto-tv-por-semifinales-copa-libertadores-video-noticia/)
-
-
-### libertadores (N/A, 28/10/2025 23:30 Lima)
-
-- **Rivalidade entrará em campo em Racing x Flamengo; entenda**: [Link](https://jogada10.com.br/rivalidade-entrara-em-campo-em-racing-x-flamengo-entenda/)
-- **Avellaneda ou Buenos Aires? De onde é o Racing, rival do Flamengo**: [Link](https://placar.com.br/copa-libertadores/avellaneda-ou-buenos-aires-de-onde-e-o-racing-rival-do-flamengo)
-- **Luxemburgo dá dica para Filipe Luís conseguir classificar Flamengo contra o Racing: “Três atacantes que ven...**: [Link](https://br.bolavip.com/campeonato-libertadores/luxemburgo-da-dica-para-filipe-luis-conseguir-classificar-flamengo-contra-o-racing-tres-atacantes-que-venham-recompor)
-
-
-### nasa cometa 3i atlas (N/A, 28/10/2025 20:58 Lima)
-
-- **Detectan posibles “maniobras inteligentes” en el cometa interestelar 3I/ATLAS: un experto afirma que estaría desacelerando de forma controlada | MAG**: [Link](https://elcomercio.pe/mag/respuestas/ciencias/detectan-posibles-maniobras-inteligentes-en-el-cometa-3iatlas-un-experto-afirma-que-estaria-desacelerando-de-forma-controlada-nnda-nnrt-noticia/)
-- **Cometa 3I/ATLAS: ¿Qué se sabe de este objeto interestelar y qué ocurrirá el 29 de octubre?**: [Link](https://rpp.pe/ciencia/espacio/cometa-3i-atlas-que-es-cuando-se-acercara-a-la-tierra-segun-nasa-y-que-ocurrira-este-29-de-octubre-con-objeto-interestelar-noticia-1661232)
-- **El cometa 3I/ATLAS desconcierta a la ciencia: cambia su cola de dirección y un astrofísico sugiere que podría ser tecnología no humana**: [Link](https://gestion.pe/mix/respuestas/el-cometa-3iatlas-desconcierta-a-la-ciencia-cambia-su-cola-de-direccion-y-un-astrofisico-sugiere-que-podria-ser-tecnologia-no-humana-nnda-nnrt-noticia/)
-
-
-### ignacio buse (N/A, 28/10/2025 20:58 Lima)
-
-- **Ignacio Buse y Juan Pablo Varillas recibieron la ‘wild card’ del Lima Challenger 2: tres peruanos disputarán el cuadro principal**: [Link](https://www.infobae.com/peru/deportes/2025/10/23/ignacio-buse-y-juan-pablo-varillas-recibieron-la-wild-card-del-lima-challenger-2-tres-peruanos-disputaran-el-cuadro-principal/)
-- **Challenger de Lima II: Ignacio Buse promete “hacer respetar la casa” ante el uruguayo Roncadelli**: [Link](https://panamericana.pe/deportes/457156-challenger-lima-ii-ignacio-buse-promete-respetar-casa-uruguayo-roncadelli)
-- **¡Vamos, 'Nachito'! Ignacio Buse vs Federico Gómez por el Challenger de Lima**: [Link](https://peru21.pe/deportes/ignacio-buse-vs-federico-gomez-en-vivo-hora-canal-sets-resultado-lima/)
-
-
-### copa libertadores 2025 (N/A, 28/10/2025 20:58 Lima)
-
-- **Racing busca dar vuelta la serie ante Flamengo y meterse en la gran final de la Copa Libertadores**: [Link](https://www.espn.com.ar/futbol/copa-libertadores/nota/_/id/15880237/racing-vs-flamengo-partido-de-vuelta-semifinales-copa-libertadores-2025-equipo-fecha-hora-y-tv-en-vivo)
-- **Costas eligió al reemplazante de Sosa y tiene dos dudas en el equipo de Racing para enfrentar a Flamengo en la Libertadores**: [Link](https://espndeportes.espn.com/futbol/copa-libertadores/nota/_/id/15880061/formacion-racing-vs-flamengo-partido-vuelta-semifinal-copa-libertadores-2025)
-- **Telefe en vivo, Racing vs. Flamengo hoy por semifinal de vuelta de la Copa Libertadores 2025**: [Link](https://elcomercio.pe/deporte-total/argentina/telefe-en-vivo-pelota-libre-tv-racing-vs-flamengo-hoy-gratis-online-via-mi-telefe-y-pluto-tv-por-semifinales-copa-libertadores-video-noticia/)
-
-
-### thunder - kings (N/A, 28/10/2025 20:58 Lima)
-
-- **Chet Holmgren, Thunder out to stay unbeaten vs. visiting Kings**: [Link](https://www.thesportsleader.com/2025/10/28/chet-holmgren-thunder-out-to-stay-unbeaten-vs-visiting-kings/)
-- **League Pass Game of the Day: Kings vs. Thunder (8 ET)**: [Link](https://www.nba.com/news/league-pass-game-of-the-day-kings-vs-thunder-8-et)
-- **Sacramento Kings-Thunder Matchup of the Game: Zach LaVine vs Shai Gilgeous-Alexander**: [Link](https://www.si.com/nba/kings/onsi/sacramento-kings-news/kings-thunder-matchup-of-the-game-zach-lavine-vs-shai-gilgeous-alexander)
-
-
-### blooming (N/A, 28/10/2025 20:58 Lima)
-
-- **A blooming tradition: Joe Leuzzi Flowers keeps colour and community alive at QVM**: [Link](https://www.cbdnews.com.au/a-blooming-tradition-joe-leuzzi-flowers-keeps-colour-and-community-alive-at-qvm/)
-- **Transitioning to fall: Here are 5 colorful plants that will thrive in your garden now**: [Link](https://www.theadvocate.com/baton_rouge/entertainment_life/home_garden/marigolds-chrysanthemums-crotons-ornamental-peppers-kale-cabbage/article_ba883b18-53b1-4b8d-811e-3812a1b59feb.html)
-- **Perennials for fall color!**: [Link](https://timesenterprise.com/2025/10/27/perennials-for-fall-color/)
-
-
-### metformina (N/A, 28/10/2025 20:58 Lima)
-
-- **Atención pacientes diabéticos: retiran lote de Metformina 850 mg por seguridad. Verifica tu medicamento**: [Link](https://www.elperuano.pe/noticia/281818-atencion-pacientes-diabeticos-retiran-lote-de-metformina-850-mg-por-seguridad-verifica-tu-medicamento)
-- **Indecopi informa retiro de medicamento para la diabetes tras detectarse partícula extraña en comprimido**: [Link](https://canaln.pe/actualidad/indecopi-alerta-sobre-retiro-medicamento-metformina-lima-n487861)
-- **Metformina: retiran del mercado lote de fármaco para diabetes ¿De qué laboratorio?**: [Link](https://andina.pe/agencia/noticia-metformina-retiran-del-mercado-lote-farmaco-para-diabetes-de-laboratorio-1049965.aspx)
 
 
