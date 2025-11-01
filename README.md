@@ -1,3 +1,52 @@
+### newcastle jets - sydney (N/A, 01/11/2025 03:28 Lima)
+
+- **Newcastle Jets vs Sydney FC Prediction and Betting Tips | November 1st 2025**: [Link](https://www.sportskeeda.com/football/newcastle-jets-vs-sydney-fc-prediction-betting-tips-november-1st-2025)
+- **Exposed: Young Jets taught lesson by clinical Sydney FC**: [Link](https://www.newcastleherald.com.au/story/9102293/toures-hat-trick-helps-sydney-fc-defeat-newcastle-4-1/)
+- **Jets eye off back to back A-League wins**: [Link](https://www.nbnnews.com.au/2025/10/30/jets-eye-off-back-to-back-a-league-wins/)
+
+
+### hbo max (N/A, 01/11/2025 03:28 Lima)
+
+- **“It: Welcome to Derry” Capítulo 2: Hora de estreno confirmado en HBO Max**: [Link](https://elcomercio.pe/saltar-intro/noticias/it-welcome-to-derry-capitulo-2-hora-de-estreno-confirmado-hbo-max-noticia/)
+- **“IT: Bienvenidos a Derry”: el número de temporadas que tendría la serie de HBO**: [Link](https://gestion.pe/mix/tendencias-mix/it-bienvenidos-a-derry-el-numero-de-temporadas-que-tendria-la-serie-de-hbo-video-nnda-nnlt-noticia/)
+- **Globos rojos y payasos invaden el mundo en la inquietante campaña global de HBO Max**: [Link](https://www.mercadonegro.pe/publicidad/globos-rojos-y-payasos-invaden-el-mundo-en-la-inquietante-campana-global-de-hbo-max/)
+
+
+### terremoto sismo temblor hoy epicentro (N/A, 01/11/2025 03:28 Lima)
+
+- **Temblor hoy en Perú, viernes 31 de octubre: sismo de magnitud 4.3 sacude la región Ucayali**: [Link](https://andina.pe/agencia/noticia-temblor-hoy-peru-viernes-31-octubre-sismo-magnitud-43-sacude-region-ucayali-1050278.aspx)
+- **Temblor en Perú según el IGP: hora exacta, epicentro y magnitud**: [Link](https://elcomercio.pe/respuestas/hoy-temblor-en-peru-en-vivo-ultimos-sismos-hora-magnitud-y-epicentro-del-reporte-segun-el-igp-instituto-geofisico-del-peru-lima-callao-ica-lbposting-noticia/)
+- **Áncash: un sismo de magnitud 4.6 se sintió esta tarde en Huarmey**: [Link](https://rpp.pe/peru/ancash/ancash-un-sismo-de-magnitud-46-se-sintio-en-huarmey-noticia-1661884)
+
+
+### dni (N/A, 01/11/2025 03:28 Lima)
+
+- **Polacy podzieleni w sprawie Halloween. "Da się pogodzić, tylko to niełatwe zadanie"**: [Link](https://wiadomosci.onet.pl/polacy-podzieleni-w-sprawie-halloween-da-sie-pogodzic-tylko-to-nielatwe-zadanie/92hexfx)
+- **Cukierek albo psikus. Historia najstraszniejszego wieczoru w roku**: [Link](https://brzeg24.pl/pl/811_kartka-z-kalendarza/243113_cukierek-albo-psikus-historia-najstraszniejszego-wieczoru-w-roku.html)
+- **Bp Jacek Kiciński: Świętość nie jest ponad nasze siły**: [Link](https://misyjne.pl/bp-jacek-kicinski-swietosc-nie-jest-ponad-nasze-sily/)
+
+
+### epic (N/A, 01/11/2025 03:28 Lima)
+
+- **‘Baahubali: The Epic’ Review: The Return of the King**: [Link](https://www.nytimes.com/2025/10/30/movies/baahubali-the-epic-review.html)
+- **‘RRR Director S.S. Rajamouli Returns With ‘Baahubali: The Epic’ – Specialty Preview**: [Link](https://deadline.com/2025/10/new-indie-films-opening-rrrs-director-back-with-baahubali-the-epic-1236604410/)
+- **Baahubali The Epic box office collection day 1: SS Rajamouli film records biggest opening day for re-release in India | Hindustan Times**: [Link](https://www.hindustantimes.com/entertainment/telugu-cinema/baahubali-the-epic-box-office-collection-day-1-ss-rajamouli-film-records-biggest-opening-day-for-re-release-in-india-101761924162877.html)
+
+
+### trail blazers - nuggets (N/A, 01/11/2025 03:28 Lima)
+
+- **Trail Blazers vs. Nuggets Second-Half Thread**: [Link](https://www.blazersedge.com/gameday-coverage/104697/trail-blazers-vs-nuggets-second-half-how-to-watch-talk)
+- **Denver Undone In Portland**: [Link](https://www.kcentv.com/video/sports/locked-on/lo-denver/denver-nuggets-show/denver-undone-in-portland/535-291ce549-daaa-4c47-bdda-cc4b2fe42b04)
+- **Nuggets vs. Blazers observations: Denver can’t get Nikola Jokic the ball in crunch time**: [Link](https://www.denverpost.com/2025/10/31/nuggets-blazers-observations-nikola-jokic/)
+
+
+### 1 de noviembre (N/A, 01/11/2025 03:28 Lima)
+
+- **Feriado del 1 de noviembre: ¿A qué hora abren los supermercados en Lima? Descubre los horarios de Metro, Plaza Vea, Tottus y más**: [Link](https://elcomercio.pe/respuestas/a-que-hora/feriado-del-1-de-noviembre-a-que-hora-abren-los-supermercados-en-lima-descubre-los-horarios-de-metro-plaza-vea-tottus-y-mas-tdpe-noticia/)
+- **¿A qué hora abren los bancos este feriado del 1 de noviembre? Horario de atención de BCP, Interbank y BBVA**: [Link](https://libero.pe/tiempoextra/2025/10/31/hora-abren-bancos-feriado-del-1-de-noviembre-horario-de-atencion-de-bcp-interbank-bbva-1764582)
+- **Feriado del 1 de noviembre: Conoce los horarios de atención de PlazaVea, Metro Tottus y más**: [Link](https://www.peru-retail.com/feriado-del-1-de-noviembre-conoce-los-horarios-de-atencion-de-plazavea-metro-tottus-y-mas/)
+
+
 ### atl. san luis - juárez (N/A, 31/10/2025 23:26 Lima)
 
 - **Palmeiras vs. LDU (30 de Oct., 2025) Resultados en Vivo**: [Link](https://espndeportes.espn.com/futbol/partido/_/juegoId/759127)
@@ -972,54 +1021,5 @@ Sin noticias relacionadas disponibles.
 - **Falleció Elvia García Linares, madre de Maju Mantilla a los 75 años**: [Link](https://www.infobae.com/peru/2025/10/28/fallecio-elvia-garcia-madre-de-maju-mantilla/)
 - **Muere Elvia García, madre de Maju Mantilla, a los 75 años: familia y amigos le dan el último adiós en Miraflores**: [Link](https://larepublica.pe/espectaculos/2025/10/28/muere-elvia-garcia-madre-de-maju-mantilla-a-los-75-anos-familia-y-amigos-le-dan-el-ultimo-adios-en-miraflores-830200)
 - **Fallece la mamá de Maju Mantilla a los 75 años de edad**: [Link](https://www.atv.pe/noticia/fallece-la-mama-de-maju-mantilla-a-los-75-anos-de-edad/)
-
-
-### leipzig (N/A, 28/10/2025 15:28 Lima)
-
-- **Neue Spitze des Präsidiums für vier Jahre - Lydia Grün ist neue Präsidentin des Deutschen Musikrats**: [Link](https://www.radiodrei.de/programm/schema/sendungen/radio3_am_nachmittag/archiv/20251028_1600/radio3_aktuell_1640.html)
-- **Deutscher Musikrat ehrt Krüger, Grütters, Hülsmann & Mertens**: [Link](https://www.verbandsbuero.de/deutscher-musikrat-ehrt-krueger-gruetters-huelsmann-mertens/)
-- **Gemeinsam für ein starkes Musikleben: Präsidium des Deutschen Musikrats mit Prof. Lydia Grün als Präsidentin neu gewählt**: [Link](https://www.musikrat.de/media/aktuelles/meldung/gemeinsam-fuer-ein-starkes-musikleben-praesidium-des-deutschen-musikrats-mit-prof-lydia-gruen-als-praesidentin-neu-gewaehlt)
-
-
-### energie cottbus - rb leipzig (N/A, 28/10/2025 15:28 Lima)
-
-- **RB Leipzig: TSG Hoffenheim macht Werbung fürs „Unbeliebtico“ - News vom 28.10.2025**: [Link](https://www.lvz.de/sport/regional/rb-leipzig-tsg-hoffenheim-macht-werbung-fuers-unbeliebtico-news-vom-28-10-2025-FEUNU4PZA4TRPOCCO5RAO35JFA.html)
-- **Willi Orban vor dem nächsten Rekord – Fakten zu #FCERBL**: [Link](https://www.ubirataonline.com.br/willi-orban-vor-dem-nachsten-rekord-fakten-zu-fcerbl/)
-- **Cottbus-Experte Werner will Stress in der Lausitz vermeiden**: [Link](https://www.blick.de/sport/cottbus-experte-werner-will-stress-in-der-lausitz-vermeiden-artikel14007230)
-
-
-### mönchengladbach - karlsruher (N/A, 28/10/2025 15:28 Lima)
-
-- **Borussia Mönchengladbach: Philipp Sander kämpft auch für Eugen Polanski**: [Link](https://www.bild.de/sport/fussball/borussia-moenchengladbach-philipp-sander-kaempft-auch-fuer-eugen-polanski-68ff9e69c008edcf0c85551f)
-- **Gladbach gegen den Karlsruher SC: Darum kann der Pokal für Borussia psychologisch wertvoll sein**: [Link](https://rp-online.de/sport/fussball/borussia/gladbach-der-dfb-pokal-bietet-polanskis-team-chancen_aid-137774485)
-- **Kastanienwurf, Pfostenbruch, Fohlen und mehr...**: [Link](https://www.ksc.de/profis/saison/dfb-pokal/show/article/kastanienwurf-pfostenbruch-fohlen-und-mehr/)
-
-
-### cometa 3i atlas (N/A, 28/10/2025 15:28 Lima)
-
-- **NASA não acionou protocolo de defesa contra visitante interestelar, garante especialista**: [Link](https://olhardigital.com.br/2025/10/27/ciencia-e-espaco/nasa-nao-acionou-protocolo-de-defesa-contra-visitante-interestelar-garante-especialista/)
-- **Cometa 3I/ATLAS atravessará a rota de sondas ativas nos próximos dias**: [Link](https://www.metropoles.com/ciencia/cometa-3i-atlas-atravessa-rota-sondas)
-- **NASA aciona alerta global contra ameaças espaciais; cometa "imprevisível"**: [Link](https://www.msn.com/pt-br/noticias/ciencia-e-tecnologia/nasa-aciona-alerta-global-contra-amea%C3%A7as-espaciais-cometa-imprevis%C3%ADvel/ar-AA1Pd3rD?cvid=6900a3d66578472f8ec1556f783fa8b3&ocid=hpmsn)
-
-
-### grimsby town - brentford (N/A, 28/10/2025 15:28 Lima)
-
-- **Andrews: Squad to be utilised for Grimsby tie**: [Link](https://www.brentfordfc.com/en/news/article/first-team-grimsby-town-v-brentford-carabao-cup-keith-andrews)
-- **My day with Grimsby's cup heroes - and what makes the Mariners special**: [Link](https://www.dailymail.co.uk/sport/football/article-15232187/Grimsby-cup-heroes-Brentford-Man-Utd.html)
-- **Tuesday's EFL Cup and League One predictions, betting odds and tips: No sting in the tail for the Premier League Bees**: [Link](https://www.racingpost.com/sport/football-tips/efl-cup/tuesday-football-tips-efl-cup-league-one-ayARb8X7whbK/)
-
-
-### wycombe wanderers - fulham (N/A, 28/10/2025 15:28 Lima)
-
-- **Former Gunner suffers another injury**: [Link](https://dailycannon.com/2025/10/smith-rowe-fulham-hamstring-injury/)
-- **EFL Cup: Super Eagles star out of contention as Fulham prepare for Wycombe Wanderers**: [Link](https://soccernet.ng/2025/10/super-eagles-fulham-wycombe-wanderers.html)
-- **First Half: Wycombe 1-0 Fulham**: [Link](https://www.wwfc.com/news/2025/october/28/wycombe-vs-fulham/)
-
-
-### atalanta - milan (N/A, 28/10/2025 15:28 Lima)
-
-- **Atalanta-Milan: Formazioni ufficiali e Cronaca in diretta**: [Link](https://sport.virgilio.it/dirette/live/serie-a/28-10-2025/atalanta-milan/2558588/)
-- **Tare svela a quali condizioni interverrà il Milan sul mercato a gennaio e sugli infortuni: "Non era previsto"**: [Link](https://tribuna.com/it/news/2025-10-28-tare-svela-a-quali-condizioni-interverra-il-milan-sul-mercato-a-gennaio-e-sugli-infortuni/)
-- **Sfida al Milan delle assenze. Ma con un'Atalanta malata di "pareggite" c'è poco da stare... Allegri**: [Link](https://www.valbrembanaweb.com/redazionale/sfida-al-milan-delle-assenze-ma-con-unatalanta-malata-di-pareggite-ce-poco-da-stare-allegri/)
 
 
