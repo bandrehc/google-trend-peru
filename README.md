@@ -1,3 +1,72 @@
+### espanyol - real madrid c. f. femenino (N/A, 01/11/2025 15:22 Lima)
+
+- **Däbritz silencia a las periquitas**: [Link](https://as.com/futbol/femenino/dabritz-silencia-a-las-periquitas-f202511-n/)
+- **Previa Espanyol – Real Madrid Femenino: Las blancas encaran un noviembre frenético**: [Link](https://madridistareal.com/previa-espanyol-real-madrid-femenino/)
+- **Júlia Guerra: "Si la idea de la propiedad es ir a Champions es que quieren invertir en nosotras"**: [Link](https://el1900.com/julia-guerra-idea-propiedad-champions-quieren-invertir/)
+
+
+### latina tv (N/A, 01/11/2025 15:22 Lima)
+
+- **ERES MI BIEN – CAPÍTULO 54 COMPLETO: Viernes 31 de octubre**: [Link](https://www.latina.pe/entretenimiento/eres-mi-bien/capitulos-completos-eres-mi-bien/eres-mi-bien-capitulo-54-completo-viernes-31-de-octubre_20251101/)
+- **Yo Soy – Viernes 31 de octubre – PROGRAMA COMPLETO**: [Link](https://www.latina.pe/entretenimiento/yo-soy/programas-completos-yo-soy/yo-soy-viernes-31-de-octubre-programa-completo_20251031/)
+- **Avenida Brasil, Viernes 31 de octubre – ver capítulo 108 completo**: [Link](https://www.latina.pe/entretenimiento/avenida-brasil/avenida-brasil-viernes-31-de-octubre-ver-capitulo-108-completo_20251031/)
+
+
+### guimarães - benfica (N/A, 01/11/2025 15:22 Lima)
+
+- **Em direto: Guimarães x Benfica AO VIVO, jogo em tempo real pela Liga Portugal**: [Link](https://www.vavel.com/br/futebol-internacional/2025/11/01/1239872-em-direto-guimaraes-x-benfica-ao-vivo-pela-liga-portugal.html)
+- **O onze escolhido por Mourinho para o duelo frente ao V. Guimarães**: [Link](https://www.jn.pt/desporto/artigo/o-onze-escolhido-por-mourinho-para-o-duelo-frente-ao-v-guimaraes/18015190)
+- **Pinto pede equipa “corajosa e soltinha”**: [Link](https://www.pressreader.com/portugal/o-jogo/20251101/281792815273165)
+
+
+### latina (N/A, 01/11/2025 15:22 Lima)
+
+- **Perú recibe reunión anual 2025 del Comité Regional Memoria del Mundo**: [Link](https://www.unesco.org/es/articles/peru-recibe-reunion-anual-2025-del-comite-regional-memoria-del-mundo-de-america-latina-y-el-caribe)
+- **Perú será sede del encuentro de la UNESCO para preservar la memoria histórica de América Latina**: [Link](https://www.infobae.com/peru/2025/11/01/peru-sera-sede-del-encuentro-de-la-unesco-para-preservar-la-memoria-historica-de-america-latina/)
+
+
+### comerciantes unidos - sporting cristal (N/A, 01/11/2025 15:22 Lima)
+
+- **Cristal vs. Comerciantes Unidos EN VIVO vía Liga 1 MAX: minuto a minuto y canal por Internet gratis**: [Link](https://depor.com/futbol-peruano/descentralizado/cristal-vs-comerciantes-unidos-en-vivo-hoy-minuto-a-minuto-gratis-liga-1-max-futbol-libre-tv-directv-l1-play-canales-en-directo-online-por-internet-torneo-clausura-2025-noticia/)
+- **Comerciantes Unidos vs. Sporting Cristal: ¿a qué hora juegan y dónde ver EN VIVO hoy por el Torneo Clausura?**: [Link](https://rpp.pe/futbol/descentralizado/sporting-cristal-vs-comerciantes-unidos-en-vivo-a-que-hora-juegan-y-como-ver-fecha-17-torneo-clausura-2025-via-l1max-partidos-de-hoy-noticia-1661866)
+- **Sporting Cristal visita a Comerciantes Unidos por la fecha 17 del Torneo Clausura**: [Link](https://www.espn.com.ar/futbol/peru/nota/_/id/15890880/sporting-cristal-vs-comerciantes-unidos-por-liga1-equipo-fecha-hora-y-tv-en-vivo)
+
+
+### velez vs (N/A, 01/11/2025 15:22 Lima)
+
+- **Vélez y Talleres se miden en un choque con mucho en juego por el Torneo Clausura**: [Link](https://www.espn.com.ar/futbol/argentina/nota/_/id/15883789/velez-vs-talleres-fecha-14-torneo-clausura-equipo-fecha-hora-y-tv-en-vivo)
+- **Así viene el Fortín**: [Link](https://www.vavel.com/ar/futbol-argentino/2025/11/01/talleres-de-cordoba/1239813-asi-viene-el-fortin.html)
+- **Torneo Clausura. Talleres: con la única baja de Depietri, los 22 citados por Tevez para visitar a Vélez**: [Link](https://www.lavoz.com.ar/deportes/futbol/talleres-con-la-unica-baja-de-depietri-los-22-citados-por-tevez-para-visitar-a-velez/)
+
+
+### liverpool vs. crystal palace (N/A, 01/11/2025 15:22 Lima)
+
+- **Liverpool v Crystal Palace: Carabao Cup team news**: [Link](https://www.liverpoolfc.com/news/liverpool-v-crystal-palace-carabao-cup-team-news)
+- **Former Man CIty star defends Arne Slot despite Liverpool’s struggles**: [Link](https://onefootball.com/en/news/former-man-city-star-defends-arne-slot-despite-liverpools-struggles-41887857)
+- **Oliver Glasner discusses the importance of identity**: [Link](https://www.vavel.com/en/football/2025/10/31/crystal-palace/1239757-oliver-glasner-discusses-the-importance-of-identitya-solid-system-is-producing-performances-at-a-very-competitive-level.html)
+
+
+### liverpool - aston villa (N/A, 01/11/2025 15:22 Lima)
+
+- **Ryan Gravenberch on fitness, Villa challenge and a 'huge week' for Liverpool**: [Link](https://www.liverpoolfc.com/news/ryan-gravenberch-fitness-villa-challenge-and-huge-week-liverpool)
+- **Liverpool vs Aston Villa Predictions: Records set to tumble at Anfield**: [Link](https://www.goal.com/en-us/betting/liverpool-vs-aston-villa-predictions-11-01/bltb9aab41e89449917)
+- **Alan Shearer takes aim at Liverpool players amid worrying verdict - 'I don't like it'**: [Link](https://www.liverpool.com/liverpool-fc-news/features/alan-shearer-liverpool-players-prediction-32794707)
+
+
+### cremonese - juventus (N/A, 01/11/2025 15:22 Lima)
+
+- **Cremonese-Juve diretta: l'esordio di Spalletti, segui il match di Serie A LIVE**: [Link](https://www.corrieredellosport.it/news/calcio/serie-a/2025/11/01-144230232/cremonese-juve_diretta_l_esordio_di_spalletti_segui_il_match_di_serie_a_live)
+- **Cremonese-Juventus, la MOVIOLA LIVE: Kostic chiede un rigore per fallo di Terracciano**: [Link](https://www.calciomercato.com/liste/cremonese-juventus-la-moviola-live-kostic-chiede-un-rigore-per-fallo-di-terracciano/blt1e8cb4c9d2fe86b9)
+- **Cremo-Juve | UFFICIALI: le scelte su Vlahovic e Conceiçao. C'è Vardy**: [Link](https://onefootball.com/id/berita/cremo-juve-ufficiali-le-scelte-su-vlahovic-e-conceicao-ce-vardy-41888251)
+
+
+### feyenoord - volendam (N/A, 01/11/2025 15:22 Lima)
+
+- **Van Persie geeft uitleg over keuzes in opstelling: 'Dat is de reden dat hij nu op een andere positie staat'**: [Link](https://www.fr-fans.nl/nieuws/74694/van-persie-geeft-uitleg-over-keuzes-in-opstelling-dat-is-de-reden-dat-hij-nu-op-een-andere-positie-staat)
+- **VI Live: geen derde Rotterdamse goal na buitenspel Sauer**: [Link](https://www.vi.nl/nieuws/vi-live-geen-derde-rotterdamse-goal-na-buitenspel-sauer)
+- **🔴 FC Volendam op grotere achterstand • Ajax blijft steken op gelijkspel**: [Link](https://www.nhnieuws.nl/nieuws/353928/fc-volendam-op-grotere-achterstand-ajax-blijft-steken-op-gelijkspel)
+
+
 ### ajax vs (N/A, 01/11/2025 11:25 Lima)
 
 - **Preview:Ajax vs. Heerenveen - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/ajax/preview/ajax-vs-heerenveen-prediction-team-news-lineups_584718.html)
@@ -948,75 +1017,5 @@ Sin noticias relacionadas disponibles.
 - **OpenAI Restructures as For-Profit Company**: [Link](https://www.nytimes.com/2025/10/28/technology/openai-restructure-for-profit-company.html)
 - **OpenAI has an AGI problem — and Microsoft just made it worse**: [Link](https://www.theverge.com/ai-artificial-intelligence/808434/openai-for-profit-restructuring-microsoft-deal-agi-wars)
 - **Microsoft CEO Satya Nadella says Bill Gates warned him that investing in OpenAI would be like setting $1 billion on fire**: [Link](https://finance.yahoo.com/news/microsoft-ceo-satya-nadella-says-040415454.html)
-
-
-### 3i atlas hoy (N/A, 29/10/2025 11:33 Lima)
-
-- **Cometa 3I/ATLAS: ¿Qué es lo que se sabe de este objeto interestelar y qué ocurrirá este 29 de octubre?**: [Link](https://rpp.pe/ciencia/espacio/cometa-3i-atlas-que-es-cuando-se-acercara-a-la-tierra-segun-nasa-y-que-ocurrira-este-29-de-octubre-con-objeto-interestelar-noticia-1661232)
-- **¿Ha activado la NASA el protocolo de defensa planetaria por 3i/Atlas? Qué es verdad y qué no de la situación del misterioso cometa**: [Link](https://www.nationalgeographic.com.es/ciencia/ha-activado-nasa-protocolo-defensa-planetaria-por-cometa-3iatlas_26543)
-- **☄️ 3I/ATLAS: el visitante interestelar expulsa un chorro gigante hacia el Sol**: [Link](https://www.techno-science.net/es/noticias/3i-atlas-el-visitante-interestelar-expulsa-chorro-gigante-hacia-el-sol-N27748.html)
-
-
-### valentin vacherot (N/A, 29/10/2025 11:33 Lima)
-
-- **Tennis, ATP – Paris Masters 2025: Vacherot knocks out Rinderknech**: [Link](https://www.tennismajors.com/atp/paris-masters-vacherot-books-spot-in-last-16-838999.html)
-- **Valentin Vacherot vs. Arthur Rinderknech Head-to-Head, Prediction and Betting Odds for ATP Paris Masters 2025 Round-2**: [Link](https://theplayoffs.news/en/valentin-vacherot-vs-arthur-rinderknech-head-to-head-prediction-and-betting-odds-for-atp-paris-masters-2025-round-2/)
-- **2025 Rolex Paris Masters: Vacherot [40th] vs. Lehecka [18th] Prediction, Odds and Match Preview**: [Link](https://sportsbookwire.usatoday.com/story/sports/sports-betting/2025/10/25/valentin-vacherot-vs-jiri-lehecka-rolex-paris-masters-tennis-odds-lines-betting-10-28-2025/86906136007/)
-
-
-### son del duke (N/A, 29/10/2025 11:33 Lima)
-
-- **Renuncia masiva en Son del Duke: tres integrantes de la orquesta dan un paso al costado**: [Link](https://www.infobae.com/peru/2025/10/29/renuncia-masiva-en-son-del-duke-tres-integrantes-de-la-orquesta-dan-un-paso-al-costado/)
-- **Renuncias simultáneas sacuden a Son del Duke: artistas anuncian su salida para "priorizar su bienestar emocional"**: [Link](https://rpp.pe/musica/nacional/son-del-duke-enfrenta-renuncias-en-cadena-artistas-se-despiden-de-la-agrupacion-noticia-1661464)
-- **Ale Seijas vocalista del Son del Duke anuncia su retiro**: [Link](https://www.americatv.com.pe/noticias/espectaculos/ale-seijas-cantante-son-duke-se-retira-agrupacion-n512387)
-
-
-### feriados octubre 2025 (N/A, 29/10/2025 07:53 Lima)
-
-- **Este es el próximo feriado largo 2025 en Perú: trabajadores gozarán de cuatro días de descanso**: [Link](https://www.infobae.com/peru/2025/10/28/feriado-largo-en-peru-2025-estos-trabajadores-tendran-cuatro-dias-de-descanso/)
-- **Se acerca el feriado del 1 de noviembre: revisa tus derechos si te toca laborar ese día**: [Link](https://elperuano.pe/noticia/281788-se-acerca-el-feriado-del-1-de-noviembre-revisa-tus-derechos-si-te-toca-laborar-ese-dia)
-- **¿Ya puedes hacer planes? El Gobierno aclaró si habrá o no feriado largo de 31 de octubre al 2 de noviembre**: [Link](https://elcomercio.pe/respuestas/que/ya-puedes-hacer-planes-el-gobierno-aclaro-si-habra-o-no-feriado-largo-de-31-de-octubre-al-2-de-noviembre-tdpe-noticia/)
-
-
-### ralstonia pickettii (N/A, 29/10/2025 07:53 Lima)
-
-- **Edetoxin contaminado: MINSA confirma ingreso legal del fármaco a Perú**: [Link](https://caretas.pe/nacional/edetoxin-contaminado-minsa-confirma-ingreso-legal-del-farmaco-a-peru/)
-- **Ralstonia pickettii: un brote que reabre el debate sobre el control de medicamentos en Perú**: [Link](https://elcomercio.pe/peru/contaminacion-por-ralstonia-picketti-reabre-debate-sobre-control-de-medicamentos-importados-edetoxin-noticia/)
-- **Viceministro de Salud tras detección de bacteria en sedante: "Hay más de 60 de medicamentos de laboratorio indio"**: [Link](https://www.atv.pe/noticia/viceministro-de-salud-tras-deteccion-de-bacteria-en-sedante-hay-mas-de-60-de-medicamentos-de-laboratorio-indio/)
-
-
-### 31 atlas (N/A, 29/10/2025 07:53 Lima)
-
-- **Interstellar comet 3I/ATLAS blasts a jet towards the sun in new telescope image**: [Link](https://www.space.com/astronomy/comets/comet-3i-atlas-blasts-a-jet-towards-the-sun-in-new-telescope-image)
-- **The Acid Test of 3I/ATLAS at Perihelion**: [Link](https://avi-loeb.medium.com/the-acid-test-of-3i-atlas-at-perihelion-ce131eca8485)
-- **Two spacecraft will pass right through comet 3I/ATLAS' tail**: [Link](https://www.livescience.com/space/space-exploration/two-spacecraft-will-pass-right-through-comet-3i-atlas-tail)
-
-
-### reniec (N/A, 29/10/2025 03:34 Lima)
-
-- **Alerta en RENIEC: ciudadanos denuncian posible filtración de datos personales en el padrón electoral 2026**: [Link](https://caretas.pe/politica/alerta-en-reniec-ciudadanos-denuncian-posible-filtracion-de-datos-personales-en-el-padron-electoral-2026/)
-- **Elecciones 2026: electores ya pueden revisar si sus datos figuran correctamente en la Lista del Padrón Inicial**: [Link](https://rpp.pe/peru/actualidad/elecciones-2026-electores-ya-pueden-revisar-si-sus-datos-figuran-correctamente-en-la-lista-del-padron-inicial-noticia-1661242)
-- **Elecciones 2026: Reniec publica padrón inicial electoral hasta el 31 de octubre**: [Link](https://www.exitosanoticias.pe/politica/elecciones-2026-reniec-publica-padron-inicial-electoral-31-octubre-n161617)
-
-
-### pago de pensiones 19990 (N/A, 29/10/2025 03:34 Lima)
-
-- **Cronograma de pagos del Banco de la Nación para noviembre 2025: Las fechas para cobrar**: [Link](https://www.infobae.com/peru/2025/10/25/cronograma-de-pagos-del-banco-de-la-nacion-en-noviembre-2025-para-el-sector-publico/)
-- **ONP alista pago de pensiones de noviembre a más de 770 000 asegurados en todo el país**: [Link](https://www.elperuano.pe/noticia/281786-onp-alista-pago-de-pensiones-de-noviembre-a-mas-de-770000-asegurados-en-todo-el-pais)
-- **🔴 Pagos a pensionistas ONP y trabajadores del sector público, noviembre 2025: cronograma según Banco de la Nación**: [Link](https://www.facebook.com/diario.expreso/posts/-pagos-a-pensionistas-onp-y-trabajadores-del-sector-p%C3%BAblico-noviembre-2025-crono/1246161777541431/)
-
-
-### nasa (N/A, 29/10/2025 03:34 Lima)
-
-- **Stargazing: Spaghettification, Witch Head Nebula and other cosmic creepers**: [Link](https://www.post-gazette.com/life/recreation/2025/10/28/black-widow-spider-nebula-witch-head-black-holes/stories/202510280001)
-- **NASA spots a spooky face glowing on the sun just in time for Halloween (photo)**: [Link](https://www.space.com/astronomy/sun/nasa-spots-a-spooky-face-glowing-on-the-sun-just-in-time-for-halloween-photo)
-- **Five spooky Hallowe'en sights from the boundless depths of space**: [Link](https://www.theweathernetwork.com/en/news/science/space/spooky-astronomical-sights-from-the-cosmos-2025)
-
-
-### warriors (N/A, 29/10/2025 03:34 Lima)
-
-- **Jonathan Kuminga replaces Warriors veteran in the starting lineup**: [Link](https://basketnews.com/news-233935-jonathan-kuminga-replaces-al-horford-in-warriors-starting-five.html)
-- **Clippers' James Harden: Paces Los Angeles in loss**: [Link](https://www.cbssports.com/fantasy/basketball/news/clippers-james-harden-paces-los-angeles-in-loss/)
-- **Game Recap: Warriors 98, Clippers 79**: [Link](https://www.nba.com/watch/video/game-recap-warriors-98-clippers-79)
 
 
