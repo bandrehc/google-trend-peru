@@ -1,3 +1,73 @@
+### ac milan (N/A, 02/11/2025 15:23 Lima)
+
+- **Allegri ‘curious’ about Leao and Nkunku starting together: “Unexpected solutions”**: [Link](https://sempremilan.com/allegri-curious-leao-nkunku-together-solutions)
+- **Serie A Liveblog including Milan-Roma, Verona-Inter, Fiorentina-Lecce**: [Link](https://football-italia.net/serie-a-liveblog-inc-milan-roma-verona-inter/)
+- **The Ultimate Test at Meazza**: [Link](https://www.ilmessaggero.it/en/the_ultimate_test_at_meazza-9163149.html)
+
+
+### paro 4 de noviembre (N/A, 02/11/2025 15:23 Lima)
+
+- **Paro de transportistas: Estos son los gremios de transporte urbano que paralizarán labores este 4 de noviembre**: [Link](https://rpp.pe/politica/actualidad/paro-de-transportistas-estos-son-los-gremios-de-transporte-urbano-que-paralizaran-labores-este-4-de-noviembre-noticia-1662059)
+- **Transportistas anuncian tres paros en Lima y Callao para noviembre 2025: estas son las fechas clave**: [Link](https://www.infobae.com/peru/2025/10/30/transportistas-anuncian-tres-paros-en-lima-y-callao-para-noviembre-2025-estas-son-las-fechas-clave/)
+- **Por Justo Carbajal: la ley antiextorsión**: [Link](https://caretas.pe/edicion_2736/por-justo-carbajal-la-ley-antiextorsion/)
+
+
+### lyon fc (N/A, 02/11/2025 15:23 Lima)
+
+- **Brest - OL : première pour Hateboer, Satriano de retour**: [Link](https://www.olympique-et-lyonnais.com/brest-ol-premiere-pour-hateboer-satriano-de-retour,383899.html)
+- **OL : Hateboer déjà là pour le choc avec Strasbourg : Sports - Orange**: [Link](https://sports.orange.fr/football/ligue-1/olympique-lyonnais/article/ol-hateboer-deja-la-pour-le-choc-avec-strasbourg-CNT000002loY7Q.html)
+- **Pilier polyvalent à l’Atalanta, flop à Rennes, revanchard…pourquoi l’OL a misé sur Hans Hateboer ?**: [Link](https://www.footmercato.net/a3023136239318827214-pilier-polyvalent-a-latalanta-flop-a-rennes-revanchard-pourquoi-lol-a-mise-sur-hans-hateboer)
+
+
+### porto - braga (N/A, 02/11/2025 15:23 Lima)
+
+- **O onze provável do FC Porto para a receção ao SC Braga**: [Link](https://www.abola.pt/noticias/o-onze-provavel-do-fc-porto-para-a-rececao-ao-sc-braga-2025110114440667657)
+- **FC Porto liberta centenas de bilhetes no topo sul para o jogo contra o Braga**: [Link](https://onefootball.com/de/news/fc-porto-liberta-centenas-de-bilhetes-no-topo-sul-para-o-jogo-contra-o-braga-41890552)
+- **Os onzes prováveis do FC Porto-Sp. Braga**: [Link](https://cnnportugal.iol.pt/fotos/os-onzes-provaveis-do-fc-porto-sp-braga/69074090d34e2bd5c6d386ac)
+
+
+### union minas (N/A, 02/11/2025 15:23 Lima)
+
+- **EN VIVO: Unión Minas vs AD Tahuishco por las semifinales de la Copa Perú 2025**: [Link](https://www.futbolperuano.com/copa-peru/noticias/union-minas-vs-ad-tahuishco-en-vivo-por-las-semifinales-de-la-copa-peru-546565)
+- **Conoce cómo quedaron los partidos de ida en los cuartos de final de la Copa Perú**: [Link](https://ovacion.pe/noticias/copa-peru/conoce-quedaron-partidos-ida-cuartos-final-copa-peru)
+- **Copa Perú 2025 : ¿Cómo se jugarán los partidos de las finales de la zona norte y sur y la final nacional?**: [Link](https://www.futboltrujillano.com/copa-peru-2025-como-se-jugaran-los-partidos-las-finales-de-la-zona-norte-y-sur-y-la-final-nacional-donder-ver-cruces/)
+
+
+### erick noriega (N/A, 02/11/2025 15:23 Lima)
+
+- **Noriega comete grave error en la defensa de Gremio y Corinthians de Carrillo anotó el 1-0**: [Link](https://libero.pe/futbol-internacional/2025/11/02/erick-noriega-comete-grave-error-en-defensa-de-gremio-corinthians-de-andre-carrillo-anoto-10-29136)
+- **Corinthians vs. Gremio EN VIVO: ¿A qué hora es el duelo entre André Carrillo y Erick Noriega por el Brasile...**: [Link](https://bolavip.com/pe/amp/peruanos-en-el-exterior/corinthians-vs-gremio-en-vivo-a-que-hora-es-el-duelo-entre-andre-carrillo-y-erick-noriega-por-el-brasileirao)
+- **Pronóstico Corinthians - Gremio. Brasileirao Serie A | 02/11/2025**: [Link](https://gainblers.com/pe/pronosticos/futbol/brasil/brasileirao-serie-a/pronostico-corinthians-gremio-02-11-2025/)
+
+
+### feriado 3 de noviembre (N/A, 02/11/2025 15:23 Lima)
+
+- **¿Habrá feriado largo el 3 y 4 de noviembre? Esto dice el decreto publicado en El Peruano**: [Link](https://www.infobae.com/peru/2025/11/01/habra-feriado-largo-el-3-y-4-de-noviembre-esto-dice-el-decreto-publicado-en-el-peruano/)
+- **¿Se suspenden las clases escolares este lunes 3 de noviembre en colegios peruanos? Lo que dijo Minedu**: [Link](https://larepublica.pe/sociedad/2025/10/31/las-clases-escolares-se-suspenden-este-lunes-3-de-noviembre-minedu-responde-1475290)
+- **Clases el lunes 3 de noviembre: Minedu aclara si habrá feriado largo**: [Link](https://diariocorreo.pe/edicion/lima/clases-el-lunes-3-de-noviembre-minedu-aclara-si-habra-feriado-largo-peru-gobierno-noticia/)
+
+
+### stade brestois - lyon (N/A, 02/11/2025 15:23 Lima)
+
+- **Martin Satriano et Hans Hateboer titulaires avec l'OL à Brest, Adam Karabec sur le banc**: [Link](https://www.lequipe.fr/Football/Actualites/Martin-satriano-et-hans-hateboer-titulaires-avec-l-ol-a-brest-adam-karabec-sur-le-banc/1606668)
+- **Lyon. 100e de Roy, bilan négatif à Le Blé, Ajorque muet… L’avant-match en chiffres . Sport**: [Link](https://angers.maville.com/sport/infos/detail_-lyon.-100e-de-roy-bilan-negatif-a-le-ble-ajorque-muet...-l-avant-match-en-chiffres-_-7046796_actu.Htm)
+- **« Vu ce qu’on fait, les gens en veulent plus » : aux portes du podium, l’OL face à de nouvelles exigences**: [Link](https://www.ledauphine.com/sport/2025/11/01/l-ol-face-a-de-nouvelles-exigences)
+
+
+### real betis - r.c.d. mallorca (N/A, 02/11/2025 15:23 Lima)
+
+- **Apuestas y Pronóstico del Real Betis vs Mallorca 02/11/25**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2025/noviembre/pronostico-real-betis-vs-mallorca-02-11-25)
+- **Betis - Mallorca en directo: La Liga - Fútbol**: [Link](https://espanol.eurosport.com/futbol/la-liga/2025-2026/live-betis-mallorca_mtc1610531/live-commentary.shtml)
+- **El Chimy Ávila se suma a las bajas de Isco y Junior frente al Mallorca**: [Link](https://www.marca.com/futbol/betis/2025/11/01/chimy-avila-suma-bajas-isco-junior-frente-mallorca.html)
+
+
+### corinthians - grêmio (N/A, 02/11/2025 15:23 Lima)
+
+- **📋 Com novidades, Corinthians e Grêmio divulgam escalações para 31ª rodada**: [Link](https://onefootball.com/pt-br/noticias/com-novidades-corinthians-e-gremio-divulgam-escalacoes-para-31-rodada-41893871)
+- **Comentário de Leandro em 'Jogo do Corinthians ao vivo'**: [Link](https://www.meutimao.com.br/comentario/16271906/a_dificuldade_do_memphis_acertar_passe_hoje_ta)
+- **Grêmio tenta segunda vitória consecutiva no Brasileirão**: [Link](https://esportenewsmundo.com.br/gremio-tenta-segunda-vitoria-consecutiva-no-brasileirao/)
+
+
 ### lens vs (N/A, 02/11/2025 11:26 Lima)
 
 - **Liga de Francia: Lens enfrenta a Lorient para subirse a la cima**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-de-francia-lens-enfrenta-a-lorient-para-subirse-a-la-cima-noticia-1661949)
@@ -953,75 +1023,5 @@ Sin noticias relacionadas disponibles.
 - **José Jerí, Denisse Miralles y Julio Velarde se reunieron para fortalecer la confianza y el crecimiento del país**: [Link](https://rpp.pe/economia/economia/jose-jeri-mef-y-bcr-se-reunieron-presidente-tuvo-encuentro-con-denisse-miralles-y-julio-velarde-para-fortalecer-confianza-y-crecimiento-del-pais-noticia-1661571)
 - **José Jerí reafirmó compromiso con estabilidad económica**: [Link](https://caretas.pe/politica/jose-jeri-reafirmo-compromiso-con-estabilidad-economica/)
 - **Gobierno reafirma compromiso con la estabilidad económica y la solidez fiscal del país**: [Link](https://elperuano.pe/noticia/281914-gobierno-reafirma-compromiso-con-la-estabilidad-economica-y-la-solidez-fiscal-del-pais)
-
-
-### feriados (N/A, 30/10/2025 15:26 Lima)
-
-- **Es oficial: este es el próximo feriado largo 2025 en Perú que traerá cuatro días de descanso**: [Link](https://www.infobae.com/peru/2025/10/28/feriado-largo-en-peru-2025-estos-trabajadores-tendran-cuatro-dias-de-descanso/)
-- **Feriados en noviembre 2025 en Perú: conoce todos los días no laborables del mes y prepárate para hacer planes**: [Link](https://elcomercio.pe/respuestas/cuando/feriados-en-noviembre-2025-en-peru-conoce-todos-los-dias-no-laborables-del-mes-y-preparate-para-hacer-planes-tdpe-noticia/)
-- **¿Cuántos feriados largos restan en el 2025? Esto dice el calendario nacional**: [Link](https://libero.pe/tiempoextra/2025/10/28/cuantos-feriados-largos-restan-en-2025-esto-dice-calendario-nacional-1689604)
-
-
-### stranger things (N/A, 30/10/2025 15:26 Lima)
-
-- **Stranger Things 5 Trailer: The Epic Final Battle Begins**: [Link](https://www.netflix.com/tudum/articles/stranger-things-season-5-trailer)
-- **'Stranger Things 5' first look at Vecna 'rebuilt' and more Duffer secrets from trailer (exclusive)**: [Link](https://ew.com/stranger-things-creators-break-down-season-5-trailer-first-look-vecna-exclusive-11839033)
-- **Queen and Stranger Things: The Weight of Living Forever**: [Link](https://miscelana.com/2025/10/30/queen-and-stranger-things-who-wants-to-live-forever/)
-
-
-### pisa vs (N/A, 30/10/2025 15:26 Lima)
-
-- **Pisa-Lazio - Serie A 2025/2026 Statistical Preview**: [Link](https://www.whoscored.com/matches/1901200/preview/italy-serie-a-2025-2026-pisa-lazio)
-- **Pisa's Midfield Evolution**: [Link](https://www.ilmessaggero.it/en/pisa_s_midfield_evolution-9157215.html)
-- **Pisa-Lazio: The Tuscans are chasing their first win, while Lazio are aiming for a European spot. Lineups and TV channels**: [Link](https://sport.quotidiano.net/en/calcio/pisa/pisa-lazio-toscani-caccia-del-primo-successo-laziali-per-la-zona-europa-formazioni-e-tv-ffb14281)
-
-
-### pedro gallese (N/A, 30/10/2025 15:26 Lima)
-
-- **“Inter Miami ve con buenos ojos a Gallese”: desde la MLS analizan el futuro del ‘Pulpo’ y qué falta para que juegue con Messi el 2026**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/seleccion-peruana-inter-miami-ve-con-buenos-ojos-a-pedro-gallese-desde-la-mls-analizan-el-futuro-del-pulpo-y-que-falta-para-que-juegue-con-lionel-messi-el-2026-alianza-lima-tlcnota-noticia/)
-- **El futuro de Gallese: ¿Universitario y Alianza Lima son opciones?**: [Link](https://espndeportes.espn.com/futbol/nota/_/id/15888369/el-futuro-de-gallese-universitario-y-alianza-lima-son-opciones)
-- **El arquero de selección candidato a reforzar al Inter Miami, que busca armar un nuevo “Dream Team” alrededor de Messi en 2026**: [Link](https://www.infobae.com/deportes/2025/10/29/el-arquero-de-seleccion-candidato-a-reforzar-al-inter-miami-que-busca-armar-un-nuevo-dream-team-alrededor-de-messi-en-2026/)
-
-
-### peru mucho gusto 2025 (N/A, 30/10/2025 15:26 Lima)
-
-- **Platos de las 25 regiones del país en un solo lugar y con ingreso completamente gratis: todo sobre Perú Mucho Gusto Lima 2025**: [Link](https://elcomercio.pe/provecho/peru-mucho-gusto-lima-2025-fechas-precios-platos-y-entradas-para-el-evento-gratis-mas-grande-de-gastronomia-en-la-ciudad-noticia/)
-- **Presidente José Jerí participa en inauguración de feria gastronómica "Perú Mucho Gusto"**: [Link](https://andina.pe/agencia/noticia-presidente-jose-jeri-participa-inauguracion-feria-gastronomica-peru-mucho-gusto-1050194.aspx)
-- **Feria Perú Mucho Gusto busca récord en turistas extranjeros y triplicar venta de emprendedores | ECONOMIA**: [Link](https://gestion.pe/economia/feria-peru-mucho-gusto-busca-record-en-turistas-extranjeros-y-triplicar-venta-de-emprendedores-noticia/)
-
-
-### chavin de huantar pelicula (N/A, 30/10/2025 15:26 Lima)
-
-- **Almirante Carlos Tello, héroe de Chavín de Huántar: Terroristas extorsionaban al Estado**: [Link](https://www.expreso.com.pe/actualidad/almirante-carlos-tello-heroe-de-chavin-de-huantar-terroristas-extorsionaban-al-estado-generacion-z-noticia/1235299/)
-- **Bruno Pinasco se quiebra en el escenario al presentar película peruana y el público lo ovaciona: “Gracias por salvarnos”**: [Link](https://larepublica.pe/espectaculos/2025/10/26/bruno-pinasco-se-quiebra-en-el-escenario-al-presentar-pelicula-peruana-y-el-publico-lo-ovaciona-gracias-por-salvarnos-2552030)
-- **Hijo del general Juan Valer sobre su participación en 'Chavín de Huántar, el rescate del siglo': "Tener un padre héroe es bastante difícil"**: [Link](https://willax.pe/actualidad/hijo-general-valer-pelicula-chavin-de-huantar-willax)
-
-
-### lazio (N/A, 30/10/2025 15:26 Lima)
-
-- **LIVE Pisa-Lazio 0-0 Serie A 2025/2026: Primi 10 Minuti Di Studio**: [Link](https://sport.virgilio.it/dirette/live/serie-a/30-10-2025/pisa-lazio/2558596/)
-- **Pisa-Lazio, Gilardino: "Conosciamo la Lazio e le sue qualità ma siamo positivi"**: [Link](https://onefootball.com/pt-br/noticias/pisa-lazio-gilardino-conosciamo-la-lazio-e-le-sue-qualita-ma-siamo-positivi-41880826)
-- **Serie A: in campo alle 20,45 Pisa-Lazio DIRETTA**: [Link](https://www.ansa.it/sito/notizie/sport/calcio/2025/10/30/serie-a-in-campo-alle-2045-pisa-lazio-diretta_47bcb368-2861-4d79-b2b0-ee274e26c6bc.html)
-
-
-### jannik sinner (N/A, 30/10/2025 15:26 Lima)
-
-- **Sinner se la ride, Bergs si dispera: il punto è uno show!**: [Link](https://video.gazzetta.it/tennis/atp/highlights/video-sinner-se-la-ride-bergs-si-dispera-il-punto-show-all-atp-di-parigi/7f39a05d-8e0e-4d4f-a948-12427b831xlk)
-- **Continua la corsa dell'altoatesino per tornare in vetta alla classifica mondiale. Niente da fare invece per Sonego che cede al terzo set. Tutti i dettagli su Rainews.it**: [Link](https://www.facebook.com/story.php?story_fbid=1298214399011744&id=100064695876217)
-- **Tennis Tracker: Sonego out con Medvedev, Sinner batte Cerundolo e vola ai quarti**: [Link](https://www.diretta.it/news/tennis-parigi-atp-singolare-tennis-tracker-sonego-out-con-medvedev-sinner-batte-cerundolo-e-vola-ai-quarti/Y50LLdCj/)
-
-
-### lazio vs (N/A, 30/10/2025 15:26 Lima)
-
-- **Sarri Considers Making Two Changes to Lazio Lineup That Beat Juventus**: [Link](https://thelaziali.com/2025/10/29/sarri-considers-making-two-changes-lazio-lineup-that-beat-juventus/)
-- **Mattia Zaccagni vs. Juventus – Player props & odds to score a goal on October 26**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/10/26/mattia-zaccagni-soccer-player-props-10-26-2025/86912305007/)
-- **European football: Basic piles more misery on Juventus with Lazio winner**: [Link](https://www.theguardian.com/football/2025/oct/26/european-football-lazio-juventus-roma-lille-leverkusen)
-
-
-### floyd roger myers jr (N/A, 30/10/2025 11:32 Lima)
-
-- **'Fresh Prince of Bel Air' Child Actor Floyd Roger Myers Jr. Dead at 42**: [Link](https://www.tmz.com/2025/10/29/floyd-roger-myers-jr-dead/)
-- **Cause of Death Revealed for ‘Fresh Prince’ Star Floyd Roger Myers, 42**: [Link](https://www.mensjournal.com/entertainment/floyd-roger-myers-fresh-prince-cause-of-death)
-- **'Fresh Prince of Bel-Air' child actor Floyd Roger Myers Jr. dies at 42**: [Link](https://www.nbcnews.com/news/us-news/fresh-prince-bel-air-child-actor-floyd-roger-myers-jr-dies-42-rcna240727)
 
 
