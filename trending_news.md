@@ -1,3 +1,71 @@
+### lens vs (N/A, 02/11/2025 11:26 Lima)
+
+- **Liga de Francia: Lens enfrenta a Lorient para subirse a la cima**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-de-francia-lens-enfrenta-a-lorient-para-subirse-a-la-cima-noticia-1661949)
+- **Preview:Lens vs Lorient - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/lens/preview/lens-vs-lorient-prediction-team-news-lineups_584787.html)
+- **Arsene Kouassi vs. RC Lens – Player props & odds to score a goal on November 2**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/11/01/arsene-kouassi-soccer-player-props-11-2-2025/87042486007/)
+
+
+### swansea vs. manchester city (N/A, 02/11/2025 11:26 Lima)
+
+- **Three things we learned - Swansea City 1-3 Manchester City**: [Link](https://bitterandblue.sbnation.com/manchester-city-league-cup/35902/three-things-we-learned-swansea-city-1-3-manchester-city)
+- **Cherki: 'I'm happy to be back!'**: [Link](https://www.mancity.com/citytv/mens/cherki-post-swansea-carabao-cup-citytv-29-oct-63897341)
+- **Guardiola expects progress from Marmoush**: [Link](https://zamin.uz/en/sport/166192-guardiola-expects-progress-from-marmoush.html)
+
+
+### losc - angers (N/A, 02/11/2025 11:26 Lima)
+
+- **Les compositions probables pour LOSC – Angers SCO**: [Link](https://lepetitlillois.com/2025/11/02/les-compositions-probables-pour-losc-angers-sco/)
+- **Ligue 1. « Quelqu’un que j’apprécie » : quand Alexandre Dujeux recroise la route d’Olivier Giroud**: [Link](https://www.ouest-france.fr/sport/football/angers-sco/ligue-1-quelquun-que-japprecie-quand-alexandre-dujeux-recroise-la-route-dolivier-giroud-489e3d5a-b723-11f0-9097-68e77b575996)
+- **PRONOS PARIS RMC Le pari à l’extérieur du 2 novembre – Ligue 1**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-a-l-exterieur-du-2-novembre-ligue-1_AN-202511010290.html)
+
+
+### manchester city - bournemouth (N/A, 02/11/2025 11:26 Lima)
+
+- **Preview:Man City vs Bournemouth - prediction, team news**: [Link](https://www.sportsmole.co.uk/football/man-city/preview/man-city-vs-bournemouth-prediction-team-news-lineups_584802.html)
+- **RODRI ON THE BENCH!**: [Link](https://www.besoccer.com/new/live-man-city-v-bournemouth-1379515)
+- **Preview: High-flying Cherries head to Man City**: [Link](https://www.fotmob.com/topnews/23730-preview-high-flying-cherries-head-man-city?utm_source=fotmob)
+
+
+### alaves vs (N/A, 02/11/2025 11:26 Lima)
+
+- **Preview:Alaves vs Espanyol - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/alaves/preview/alaves-vs-espanyol-prediction-team-news-lineups_584843.html)
+- **Ander Guevara vs. Espanyol – Player props & odds to score a goal on November 2**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/11/01/ander-guevara-soccer-player-props-11-2-2025/87042503007/)
+- **Betting Odds and Player Props: Carlos Vicente Aims to Score Against Espanyol on November 2**: [Link](https://emegypt.net/1028747)
+
+
+### aryna sabalenka (N/A, 02/11/2025 11:26 Lima)
+
+- **Aryna Sabalenka vs Jasmine Paolini Prediction: Sabalenka's 5-2 H2H edge? Dominates + Year-End No. 1 Stakes**: [Link](https://www.telecomasia.net/sports-betting/tips/tennis/aryna-sabalenka-vs-jasmine-paolini-prediction-for-the-match-on-november-02-2025/)
+- **Sabalenka joins a select group of legends by dominating the WTA rankings throughout the year**: [Link](https://www.puntodebreak.com/en/2025/11/01/sabalenka-joins-select-group-of-legends-by-dominating-the-wta-rankings-throughout-the-year)
+- **WTA Finals Day 2: Sabalenka vs. Paolini and Gauff vs. Pegula | Where to Watch**: [Link](https://www.tennis.com/news/articles/wta-finals-day-2-sabalenka-paolini-gauff-pegula-where-to-watch-tennis-channel)
+
+
+### peru mucho gusto (N/A, 02/11/2025 11:26 Lima)
+
+- **Perú Mucho Gusto Lima 2025: un vistazo a los platos más apetitosos de la feria**: [Link](https://elcomercio.pe/provecho/listas-y-rankings/peru-mucho-gusto-lima-2025-platos-y-precios-de-la-feria-gastronomica-en-magdalena-del-mar-fotos-noticia/)
+- **Perú Mucho Gusto: los exóticos sabores de Oxapampa te esperan hasta el domingo**: [Link](https://andina.pe/agencia/noticia-peru-mucho-gusto-los-exoticos-sabores-oxapampa-te-esperan-hasta-domingo-1050326.aspx)
+- **Feria Perú Mucho Gusto busca récord en turistas extranjeros y triplicar venta de emprendedores | ECONOMIA**: [Link](https://gestion.pe/economia/feria-peru-mucho-gusto-busca-record-en-turistas-extranjeros-y-triplicar-venta-de-emprendedores-noticia/)
+
+
+### huachipato - u. de chile (N/A, 02/11/2025 11:26 Lima)
+
+- **Universidad de Chile desafía a Huachipato con obligación de sumar en la Liga de Primera 2025**: [Link](https://www.espn.com.ar/futbol/chile/nota/_/id/15892554/huachipato-vs-universidad-de-chile-novena-fecha-liga-de-primera-equipo-fecha-y-hora)
+- **Gustavo Álvarez patea el tablero: la formación de la U para visitar a Huachipato por la Liga de Primera**: [Link](https://bolavip.com/cl/udechile/gustavo-alvarez-patea-el-tablero-la-formacion-de-la-u-para-visitar-a-huachipato-por-la-liga-de-primera)
+- **Huachipato - U. de Chile en vivo: Campeonato Nacional de Chile 2025, partido en directo**: [Link](https://chile.as.com/futbol/huachipato-u-de-chile-en-vivo-campeonato-nacional-de-chile-2025-partido-en-directo-f202511-d/)
+
+
+### milan vs roma (N/A, 02/11/2025 11:26 Lima)
+
+- **Milan busca volver a la pelea por la cima ante Roma en San Siro**: [Link](https://www.espn.com.pe/futbol/italia/nota/_/id/15887054/milan-vsroma-por-la-serie-a-equipo-fecha-hora-y-tv-en-vivocuando-juegan-milan-vs-roma-por-la-fecha-10-de-la-serie-a-equipo-fecha-hora-y-tv-en-vivo)
+- **Pronósticos Milan vs Roma: partidazo que tiene a los rossoneros como favoritos**: [Link](https://depor.com/apuestas-deportivas/pronosticos-milan-vs-roma-serie-a/)
+- **Serie A: Roma busca derrotar a Milan para posicionarse en la cima del torneo**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-roma-busca-derrotar-a-milan-para-posicionarse-en-la-cima-del-torneo-noticia-1661979)
+
+
+### alavés - rcd espanyol (N/A, 02/11/2025 11:26 Lima)
+
+- **LaLiga EA Sports: Alavés recibirá a Espanyol por la fecha 11**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-alaves-recibira-a-espanyol-por-la-fecha-11-noticia-1661946)
+
+
 ### levante - celta de vigo (N/A, 02/11/2025 07:43 Lima)
 
 - **Levante - Celta en directo | LaLiga EA Sports, hoy, en vivo**: [Link](https://as.com/futbol/levante-celta-en-directo-laliga-ea-sports-hoy-en-vivo-f202511-d/)
@@ -955,75 +1023,5 @@ Sin noticias relacionadas disponibles.
 - **'Fresh Prince of Bel Air' Child Actor Floyd Roger Myers Jr. Dead at 42**: [Link](https://www.tmz.com/2025/10/29/floyd-roger-myers-jr-dead/)
 - **Cause of Death Revealed for ‘Fresh Prince’ Star Floyd Roger Myers, 42**: [Link](https://www.mensjournal.com/entertainment/floyd-roger-myers-fresh-prince-cause-of-death)
 - **'Fresh Prince of Bel-Air' child actor Floyd Roger Myers Jr. dies at 42**: [Link](https://www.nbcnews.com/news/us-news/fresh-prince-bel-air-child-actor-floyd-roger-myers-jr-dies-42-rcna240727)
-
-
-### lince iberico (N/A, 30/10/2025 11:32 Lima)
-
-- **Un fotógrafo graba por primera vez a un lince ibérico blanco: el misterioso color de ‘Satureja’**: [Link](https://elpais.com/clima-y-medio-ambiente/2025-10-29/un-fotografo-graba-por-primera-vez-a-un-lince-iberico-blanco-el-misterioso-color-de-satureja.html)
-- **Raro lince ibérico leucístico captado en foto por primera vez España**: [Link](https://cnnespanol.cnn.com/2025/10/30/espana/video/lince-iberico-blanco-fotografia-orix)
-- **La verdad tras la imagen viral del lince 'albino' captado en Jaén**: [Link](https://www.elmundo.es/ciencia-y-salud/medio-ambiente/2025/10/30/6903297721efa00d208b4590-video.html)
-
-
-### ninel conde (N/A, 30/10/2025 11:32 Lima)
-
-- **Reconocida actriz y cantante de ‘Rebelde’ se sometió a riesgosa cirugía y recibió críticas: “Deja de hacerte cosas raras”**: [Link](https://www.semana.com/gente/articulo/reconocida-actriz-y-cantante-de-rebelde-se-sometio-a-riesgosa-cirugia-y-recibio-criticas-deja-de-hacerte-cosas-raras/202535/)
-- **El antes y después de Ninel Conde: así luce con su nuevo color de ojos**: [Link](https://mexico.as.com/tikitakas/el-antes-y-despues-de-ninel-conde-asi-luce-con-su-nuevo-color-de-ojos-f202510-n/)
-- **¿Es peligroso? Éste es el COSTOSO procedimiento al que se han sometido celebridades como Ninel Conde y Alma Cero para cambiar el color de sus ojos**: [Link](https://www.msn.com/es-mx/salud/noticias-medicas/es-peligroso-%C3%A9ste-es-el-costoso-procedimiento-al-que-se-han-sometido-celebridades-como-ninel-conde-y-alma-cero-para-cambiar-el-color-de-sus-ojos/ar-AA1PrGLd?cvid=690389bfb84c428ea228755c7d24d6e0&ocid=hpmsn)
-
-
-### entel (N/A, 30/10/2025 11:32 Lima)
-
-- **Así devolverá Entel los cobros indebidos por el servicio de roaming en Argentina**: [Link](https://www.entnerd.com/asi-devolvera-entel-los-cobros-indebidos-por-el-servicio-de-roaming-en-argentina/)
-- **Comienzan compensaciones a cerca de 90 mil clientes por cobros de roaming en viajes a Argentina: ¿Cómo será el pago?**: [Link](https://www.cnnchile.com/pais/comienzan-compensaciones-90-mil-clientes-cobros-roaming-viajes-argentina-como-sera-pago_20251030/)
-- **Falla masiva en servicios de Entel afecta a miles de usuarios en Chile**: [Link](https://www.meganoticias.cl/nacional/504039-que-paso-con-entel-sin-internet-caida-servicio-datos-moviles-wifi-30-10-2025.html)
-
-
-### keiko fujimori (N/A, 30/10/2025 07:51 Lima)
-
-- **Keiko Fujimori será candidata a la Presidencia por cuarta vez: estos son los aspirantes a la Vicepresidencia, Senado y Cámara de Diputados por Fuerza Popular**: [Link](https://www.infobae.com/peru/2025/10/29/keiko-fujimori-sera-candidata-a-la-presidencia-por-cuarta-vez-estos-son-los-aspirantes-a-la-vicepresidencia-senado-y-camara-de-diputados-por-fuerza-popular/)
-- **Keiko Fujimori lanzará oficialmente su candidatura presidencial en Trujillo este jueves 30**: [Link](https://caretas.pe/politica/keiko-fujimori-lanzara-oficialmente-su-candidatura-presidencial-en-trujillo-este-jueves-30/)
-- **Keiko Fujimori perfila una cuarta postulación a la Presidencia: ¿Irá al Senado? ¿Cómo llega a esta elección? ¿Y cuál es su real objetivo?**: [Link](https://elcomercio.pe/politica/elecciones/keiko-fujimori-perfila-una-cuarta-postulacion-a-la-presidencia-ira-al-senado-como-llega-a-esta-eleccion-y-cual-es-su-real-objetivo-quienes-mas-integran-lista-tlcnota-noticia/)
-
-
-### karla bacigalupo (N/A, 30/10/2025 07:51 Lima)
-
-- **Karla Bacigalupo entre las favoritas del Miss Universo 2025, según missólogo internacional**: [Link](https://www.infobae.com/peru/2025/10/29/karla-bacigalupo-entre-las-favoritas-del-miss-universo-2025-segun-missologo-internacional/)
-- **Karla Bacigalupo rumbo a Tailandia para representar al Perú en el Miss Universo 2025**: [Link](https://peru21.pe/espectaculos/karla-bacigalupo-rumbo-tailandia-para-representar-al-peru-en-el-miss-universo-2025/)
-- **Karla Bacigalupo: la elegancia y determinación de Perú rumbo al Miss Universo**: [Link](https://www.diariolasamericas.com/florida/karla-bacigalupo-la-elegancia-y-determinacion-peru-rumbo-al-miss-universo-n5384357)
-
-
-### retiro afp 2025 solicitud denegada (N/A, 30/10/2025 07:51 Lima)
-
-- **Retiro de AFP 2025: ¿Cómo saber si mi solicitud fue denegada y tengo que enviar otra?**: [Link](https://www.infobae.com/peru/2025/10/29/retiro-de-afp-2025-como-saber-si-mi-solicitud-fue-denegada-y-tendre-que-enviar-otra/)
-- **Retiro de AFP 2025: mira en este link si te toca tramitar solicitud hasta por S/ 21,400**: [Link](https://elperuano.pe/noticia/281868-retiro-de-afp-2025-mira-en-este-link-si-te-toca-tramitar-solicitud-hasta-por-s-21400)
-- **Octavo Retiro AFP de hasta 4 UIT: Cuándo y cómo realizar el trámite sin errores y ONLINE**: [Link](https://elcomercio.pe/respuestas/tramites/todo-sobre-el-nuevo-retiro-afp-2025-mira-como-hacer-el-tramite-link-fechas-y-requisitos-tdpe-noticia/)
-
-
-### los angeles fc (N/A, 30/10/2025 07:51 Lima)
-
-- **Lionel Messi's Total Pay in MLS Reaches $20 Million - But There's a New No. 2**: [Link](https://www.foxsports.com/stories/mls/lionel-messis-total-pay-mls-reaches-20-million-theres-new-no-2)
-- **Son Heung-Min earning $11.15 million in deal with Los Angeles FC**: [Link](https://www.timeswv.com/sports/son-heung-min-earning-11-15-million-in-deal-with-los-angeles-fc/article_2993ac85-4baf-56d6-a323-d763326f2517.html)
-- **💵 Messi tops MLS salary rankings, Müller and De Paul miss out**: [Link](https://ca.sports.yahoo.com/news/messi-tops-mls-salary-rankings-103600618.html)
-
-
-### lakers (N/A, 30/10/2025 03:32 Lima)
-
-- **Player Grades: Lakers vs. Wolves**: [Link](https://www.silverscreenandroll.com/lakers-analysis/98970/player-grades-lakers-vs-wolves-austin-reaves-deandre-ayton-jake-laravia-rui-hachimura)
-- **NBA Notes: Lakers' Buzzer-Beater, Rockets' Rebounding Dominance, and Bulls' Perfect Start**: [Link](https://bvmsports.com/2025/10/30/nba-notes-lakers-buzzer-beater-rockets-rebounding-dominance-and-bulls-perfect-start/)
-- **LaRavia, Reaves lead Lakers to thrilling win over Timberwolves**: [Link](https://www.geosuper.tv/latest/50150-laravia-reaves-lead-lakers-to-thrilling-win-over-timberwolves)
-
-
-### libertadores 2025 (N/A, 30/10/2025 03:32 Lima)
-
-- **Libertadores: Quanto custa ir para Lima ver o Flamengo na final? Veja preços de avião e ônibus**: [Link](https://oglobo.globo.com/esportes/noticia/2025/10/29/libertadores-quanto-custa-ir-para-lima-ver-o-flamengo-na-final-veja-precos-de-aviao-e-onibus.ghtml)
-- **CONMEBOL confirma Imply® ElevenTickets como ticketeira oficial da Final da CONMEBOL Libertadores**: [Link](https://imply.com/pt/conmebol-confirma-imply-eleventickets-como-ticketeira-oficial-da-final-da-conmebol-libertadores/)
-- **Ingressos para a final da Libertadores 2025: confira pré-inscrição e valores**: [Link](https://www.gazetaesportiva.com/apostas/noticias/ingressos-para-a-final-da-libertadores-2025-confira-pre-inscricao-e-valores)
-
-
-### twitch (N/A, 29/10/2025 23:28 Lima)
-
-- **Twitch x hololive production Collaboration Online Event “holoday”**: [Link](https://hololive.hololivepro.com/en/news/20251029-01-163/)
-- **Twitch heard you wanted more vtubers so it signed a deal with the most popular vtuber agency in the world**: [Link](https://www.pcgamer.com/gaming-industry/twitch-heard-you-wanted-more-vtubers-so-it-signed-a-deal-with-the-most-popular-vtuber-agency-in-the-world/)
-- **Streamer Nina Lin Apologizes Over Resurfaced Footage of 2...**: [Link](https://www.complex.com/pop-culture/a/markelibert/streamer-nina-lin-apologizes-resurfaced-footage-2024-incident)
 
 
