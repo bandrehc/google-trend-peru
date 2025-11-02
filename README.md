@@ -1,3 +1,73 @@
+### millie bobby brown (N/A, 01/11/2025 23:27 Lima)
+
+- **'Millie Bobby Brown filed a harassment and bullying claim before they started shooting the last season. There were pages and pages of accusations.' We reveal the latest bombshell claims facing Lily Allen's estranged husband David Harbour**: [Link](https://www.dailymail.co.uk/news/article-15248699/Millie-Bobby-Brown-filed-harassment-bullying-claim-started-shooting-season-pages-pages-accusations-Caroline-Graham-reveals-latest-bombshell-claims-facing-Lily-Allens-estranged-husband-David-Harbour.html)
+- **Millie Bobby Brown Files Official Complaint Against ‘Stranger Things’ Co-Star, Update Given**: [Link](https://insidethemagic.net/2025/11/millie-bobby-brown-stranger-things-david-harbour-complaint-cj1/)
+- **'Stranger Things' Shock: Millie Bobby Brown Accuses Her TV Dad David Harbour of Bullying as Netflix Launches Internal Probe**: [Link](https://radaronline.com/p/stranger-things-millie-bobby-brown-david-harbour-bullying-netflix-probe/)
+
+
+### noviembre feriados peru (N/A, 01/11/2025 23:27 Lima)
+
+- **¿Habrá feriado largo el 3 y 4 de noviembre? Esto dice el decreto publicado en El Peruano**: [Link](https://www.infobae.com/peru/2025/11/01/habra-feriado-largo-el-3-y-4-de-noviembre-esto-dice-el-decreto-publicado-en-el-peruano/)
+- **¡Atención padres y alumnos! Minedu aclara si habrá o no clases este lunes 3 de noviembre | tdpe | RESPUESTAS**: [Link](https://elcomercio.pe/respuestas/que/atencion-padres-y-alumnos-minedu-aclara-si-habra-o-no-clases-este-lunes-3-de-noviembre-tdpe-noticia/)
+- **¿Se suspenden las clases escolares este lunes 3 de noviembre en colegios peruanos? Lo que dijo Minedu**: [Link](https://larepublica.pe/sociedad/2025/10/31/las-clases-escolares-se-suspenden-este-lunes-3-de-noviembre-minedu-responde-1475290)
+
+
+### serie mundial (N/A, 01/11/2025 23:27 Lima)
+
+- **⚪ VER MLB TV EN VIVO | Transmisión de la Serie Mundial: Dodgers-Blue Jays en directo con el Juego 7**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/mlb-tv-en-vivo-gratis-donde-ver-juego-7-de-serie-mundial-2025-dodgers-vs-blue-jays-por-streaming-online-en-usa-y-mexico-nnda-nnrt-noticia/)
+- **🏟️ VER MLB TV EN VIVO por Internet | Juego 7 de la Serie Mundial: Blue Jays - Dodgers gratis**: [Link](https://gestion.pe/mix/sports/mlb-tv-en-vivo-por-internet-como-ver-serie-mundial-2025-blue-jays-vs-dodgers-gratis-en-streaming-y-fox-sports-online-usa-mexico-juego-7-nnda-nnrt-noticia/)
+- **Vladimir Guerrero Jr. lideró el repunte de los Blue Jays en la Serie Mundial**: [Link](https://cnnespanol.cnn.com/2025/10/30/deportes/video/blue-jays-toronto-dodgers-los-angeles-serie-mundial-claves-repunte-vladimir-guerrero-jr-beisbol-mlb-deportes-tv)
+
+
+### vancouver whitecaps (N/A, 01/11/2025 23:27 Lima)
+
+- **Nashville SC takes field, unveils US Open Cup signage before Game 2 vs Inter Miami**: [Link](https://www.tennessean.com/videos/sports/nashvillesc/2025/11/01/nashville-sc-inter-miami-mls-playoffs-first-round/87043482007/)
+- **HIGHLIGHTS: Portland Timbers vs. San Diego FC | November 1, 2025**: [Link](https://www.mlssoccer.com/video/highlights-portland-timbers-vs-san-diego-fc-november-1-2025)
+- **Lionel Messi in Inter Miami MLS playoff Game 2 vs Nashville SC, see our best photos**: [Link](https://www.tennessean.com/picture-gallery/sports/nashvillesc/2025/11/01/lionel-messi-inter-miami-nashville-sc-mls-playoff-game-2/87043318007/)
+
+
+### daniela darcourt (N/A, 01/11/2025 23:27 Lima)
+
+- **“Si han tomado esa decisión, será por una razón”: Yahaira Plasencia se pronunció sobre la ruptura de Daniela Darcourt y Waldir Felipa**: [Link](https://rpp.pe/famosos/farandula/yahaira-plasencia-sobre-la-ruptura-de-daniela-darcourt-y-waldir-felipa-noticia-1661916)
+- **Daniela Darcourt hablará tras ruptura con Waldir Felipa: “No me arrepiento de haberlo elegido”**: [Link](https://elcomercio.pe/tvmas/farandula/daniela-darcourt-tras-ruptura-con-waldir-felipa-no-me-arrepiento-de-haberlo-elegido-ultimas-noticia/)
+- **Josimar contará su verdad sobre embarazo de "prima"**: [Link](https://www.americatv.com.pe/esta-noche/josimar-contara-su-verdad-sobre-embarazo-su-prima-noticia-161193)
+
+
+### dallas vs (N/A, 01/11/2025 23:27 Lima)
+
+- **Cards to start Brissett again as Kyler (foot) heals**: [Link](https://www.espn.com/nfl/story/_/id/46802802/cardinals-qb-kyler-murray-foot-miss-3rd-straight-game)
+- **Kyler Murray Injury: Officially questionable for Week 9**: [Link](https://www.rotowire.com/football/headlines/kyler-murray-injury-officially-questionable-for-week-9-614324)
+- **AT&T Assassin riding pine in Week 9, Cowboys may avoid nemesis**: [Link](https://sports.yahoo.com/article/t-assassin-riding-pine-week-170632256.html)
+
+
+### américa - león (N/A, 01/11/2025 23:27 Lima)
+
+- **América vs León: alineaciones, J16, Apertura 2025**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/15895918/america-vs-leon-alineaciones-formaciones-jornada-16-apertura-2025-liga-mx)
+- **Vía TUDN gratis: América vs. León | ¿Qué canal transmite el partido?**: [Link](https://elcomercio.pe/deporte-total/mexico/tudn-en-vivo-america-vs-leon-online-gratis-via-futbol-libre-tv-canal-5-vix-amazon-prime-por-torneo-clausura-de-liga-mx-link-video-noticia/)
+- **Liga MX: Club América quiere el liderato del torneo frente a León**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-club-america-quiere-el-liderato-del-torneo-frente-a-leon-noticia-1661912)
+
+
+### dodgers vs blue jays (N/A, 01/11/2025 23:27 Lima)
+
+- **Dodgers vs. Blue Jays (Nov 1, 2025) Live Score**: [Link](https://www.espn.com/mlb/game/_/gameId/401809303)
+- **Jays' Barger: 'Bad read' led to game-ending play**: [Link](https://www.espn.com/mlb/story/_/id/46798820/jays-barger-admits-bad-read-ended-game-6-world-series)
+- **MLB World Series Game 6: LA Dodgers beat Toronto Blue Jays to force decider**: [Link](https://www.bbc.com/sport/baseball/articles/c1m3358pe25o)
+
+
+### mlb (N/A, 01/11/2025 23:27 Lima)
+
+- **'Not human': Ernie Clement ignites MLB with jaw-dropping World Series performance as Toronto Blue Jays fa**: [Link](https://timesofindia.indiatimes.com/sports/mlb/news/not-human-ernie-clement-ignites-mlb-with-jaw-dropping-world-series-performance-as-blue-jays-fans-erupt-over-record-shattering-feat/articleshow/125028525.cms)
+- **Blue Jays' Ernie Clement has a more prolific hitting postseason than anyone in the history of baseball**: [Link](https://www.sportingnews.com/ca/mlb/toronto-blue-jays/news/blue-jays-ernie-clement-prolific-hitting-postseason-anyone-history-baseball/bc7d00a2420aad6c5ef74c0c)
+- **What to know about Ernie Clement, Blue Jays infielder making Gold Glove and hit streak history**: [Link](https://sports.yahoo.com/article/know-ernie-clement-blue-jays-171445795.html)
+
+
+### blue jays (N/A, 01/11/2025 23:27 Lima)
+
+- **These northerners travelled across Canada for a taste of the World Series**: [Link](https://cabinradio.ca/265617/news/sports/these-northerners-travelled-across-canada-for-a-taste-of-the-world-series/)
+- **Islanders' topic of discussion: Blue Jays' World Series bid**: [Link](https://www.newsday.com/sports/columnists/andrew-gross/islanders-xkh4tpce)
+- **Daughter surprises P.E.I. woman with ticket to Game 7 of the World Series**: [Link](https://www.cbc.ca/lite/story/9.6963160)
+
+
 ### monterrey - tigres (N/A, 01/11/2025 21:00 Lima)
 
 - **Rayados vs Tigres: ¿Cómo están las apuestas para el Clásico regio?**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/15894770/rayados-vs-tigres-como-estan-las-apuestas-clasico-regio)
@@ -953,71 +1023,5 @@ Sin noticias relacionadas disponibles.
 ### guillermo varela (N/A, 29/10/2025 20:57 Lima)
 
 Sin noticias relacionadas disponibles.
-
-
-### erick pulgar (N/A, 29/10/2025 20:57 Lima)
-
-- **Hinchas de Flamengo se rinden a los pies de Erick Pulgar tras valiosa victoria con Racing**: [Link](https://redgol.cl/copa-libertadores/hinchas-de-flamengo-se-rinden-a-los-pies-de-erick-pulgar-tras-valiosa-victoria-con-racing)
-- **Jugó en la Juventus, el City y el Real Madrid y así habla de un chileno: “Es un crack”**: [Link](https://chile.as.com/futbol/chilenos-por-el-mundo/jugo-en-la-juve-el-city-y-el-real-madrid-y-asi-habla-de-erick-pulgar-es-un-crack-f202510-n/)
-- **Semifinales de Copa Libertadores: hinchas del Flamengo piden a gritos a Erick Pulgar como titular**: [Link](https://www.encancha.cl/chilenos-por-el-mundo/2025/10/22/semifinales-de-copa-libertadores-hinchas-del-flamengo-piden-a-gritos-a-erick-pulgar-como-titular/)
-
-
-### timberwolves - lakers (N/A, 29/10/2025 20:57 Lima)
-
-- **Are Anthony Edwards, LeBron James, and Luka Doncic playing today, Oct. 29, in Timberwolves vs Lakers?**: [Link](https://bolavip.com/en/nba/are-anthony-edwards-lebron-james-and-luka-doncic-playing-today-oct-29-in-timberwolves-vs-lakers)
-- **Lakers HC JJ Redick Provides Injury Update For Key Players**: [Link](https://lastwordonsports.com/basketball/2025/10/29/lakers-injury-update-key-players-lebron-james-luka-doncic-adou-thiero/)
-- **bet365 bonus code NYPBET: Bet $5, get $200 in bonus bets for Lakers vs. Timberwolves**: [Link](https://nypost.com/2025/10/29/betting/bet365-bonus-code-nypbet-bet-5-get-200-in-bonus-bets-for-lakers-vs-timberwolves/)
-
-
-### jorge carrascal (N/A, 29/10/2025 20:57 Lima)
-
-- **El invicto de Carrascal frente a Racing: del 5-0 con River al desafío con Flamengo**: [Link](https://www.espn.com.ar/futbol/copa-libertadores/nota/_/id/15884484/el-invicto-de-carrascal-frente-a-racing-del-5-0-con-river-al-desafio-con-flamengo)
-- **De las navajas y peleas callejeras a héroe en la Copa Libertadores: la dura historia de superación de Jorge Carrascal**: [Link](https://www.ole.com.ar/usa/futbol-internacional/de-las-navajas-peleas-callejeras-a-heroe-en-copa-libertadores-la-dura-historia-de-superacion-de-jorge-carrascal_0_A2qSvqLAw0.html)
-- **El cuadro de Río de Janeiro quedó a un paso de la final de la Copa Libertadores, y ahora deberá cerrar su clasificación en Avellaneda (Argentina)**: [Link](https://www.facebook.com/infobaecolombia/photos/el-cuadro-de-r%C3%ADo-de-janeiro-qued%C3%B3-a-un-paso-de-la-final-de-la-copa-libertadores-/1259691436173616/)
-
-
-### millonarios - once caldas (N/A, 29/10/2025 20:57 Lima)
-
-- **Link, Millonarios vs. Once Caldas en vivo hoy | ¿cómo ver?**: [Link](https://elcomercio.pe/deporte-total/colombia/millonarios-vs-once-caldas-en-vivo-online-gratis-por-liga-betplay-via-win-sports-y-futbol-libre-tv-horarios-canales-tv-y-donde-ver-partido-de-hoy-video-noticia/)
-- **Qué canal pasa Millonarios vs Once Caldas hoy: dónde ver el partido gratis y en vivo de la Liga BetPlay**: [Link](https://www.365scores.com/es/news/canal-millonarios-vs-once-caldas-en-vivo/)
-- **El historial de Millonarios en octubre 29 por torneos oficiales**: [Link](https://onefootball.com/es/noticias/el-historial-de-millonarios-en-octubre-29-por-torneos-oficiales-41873736)
-
-
-### gonzalo plata (N/A, 29/10/2025 20:57 Lima)
-
-- **Felipe Luis sorprende en la formación de Flamengo con Racing**: [Link](https://www.racingdealma.com.ar/formacion-de-flamengo-con-racing/)
-- **Así formará Flamengo en la vuelta de las semifinales de la Libertadores ante Racing**: [Link](https://tribuna.com/es/news/2025-10-29-asi-formara-flamengo-en-la-vuelta-de-las-semifinales-de-la-libertadores-ante-racing/)
-- **Flamengo se entrenó en el predio de Defensa y Justicia**: [Link](https://deportv.gob.ar/futbol/flamengo-entreno-predio-defensa-justicia-copa-libertadores-racing-club-nid:8399)
-
-
-### palmeiras vs liga de quito (N/A, 29/10/2025 20:57 Lima)
-
-- **Liga de Quito vs. Palmeiras: horarios y canales de transmisión para ver partido por Copa Libertadores**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/liga-de-quito-vs-palmeiras-en-vivo-gratis-hoy-via-futbol-libre-tv-espn-horarios-canales-tv-y-donde-ver-semifinal-de-copa-libertadores-video-noticia/)
-- **Copa Libertadores: Palmeiras y Liga de Quito se juegan todo por un pase a la final**: [Link](https://rpp.pe/futbol/ligas-internacionales/copa-libertadores-palmeiras-y-liga-de-quito-se-juegan-todo-por-un-pase-a-la-final-noticia-1661541)
-- **Palmeiras vs LDU de Quito: pronóstico por la semifinal de vuelta de la Copa Libertadores 2025**: [Link](https://www.futbolperuano.com/copa-libertadores/noticias/palmeiras-vs-ldu-de-quito-en-vivo-online-por-la-semifinal-de-vuelta-de-la-copa-libertadores-2025-546266)
-
-
-### city (N/A, 29/10/2025 15:27 Lima)
-
-- **¡Manchester City ha usado nueve camisetas en 2025! Aquí un ranking**: [Link](https://www.espn.com.pe/futbol/inglaterra/nota/_/id/15882311/manchester-city-ha-usado-nueve-camisetas-en-2025-ranking)
-- **Detroit Voters Prepare to Elect New Mayor in First Open-Seat Race in 12 Years**: [Link](https://news.ssbcrack.com/detroit-voters-prepare-to-elect-new-mayor-in-first-open-seat-race-in-12-years/)
-- **WXYZ Channel 7 hosts 2025 mayoral debate**: [Link](https://oaklandpostonline.com/55235/showcase/wxyz-channel-7-hosts-2025-mayoral-debate/)
-
-
-### inter (N/A, 29/10/2025 15:27 Lima)
-
-- **Inter y Fiorentina se enfrentan en un duelo de realidades, por la Serie A**: [Link](https://www.espn.com.pe/futbol/italia/nota/_/id/15876219/inter-vs-fiorentina-serie-a-equipo-novena-fecha-hora-tv-en-vivo)
-- **Serie A: Inter busca derrotar a Fiorentina para subirse al liderato**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-inter-busca-derrotar-a-fiorentina-para-subirse-al-liderato-noticia-1661311)
-- **Pronóstico Inter - Fiorentina. Serie A | 29/10/2025**: [Link](https://gainblers.com/pe/pronosticos/futbol/italia/serie-a/pronostico-inter-fiorentina-29-10-2025/)
-
-
-### genoa - cremonese (N/A, 29/10/2025 15:27 Lima)
-
-Sin noticias relacionadas disponibles.
-
-
-### metz vs (N/A, 29/10/2025 15:27 Lima)
-
-- **Liga de Francia: Lens quiere el liderato del torneo frente a Metz**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-de-francia-lens-quiere-el-liderato-del-torneo-frente-a-metz-noticia-1661290)
 
 
