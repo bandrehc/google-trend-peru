@@ -1,3 +1,73 @@
+### monterrey - tigres (N/A, 01/11/2025 21:00 Lima)
+
+- **Rayados vs Tigres: ¿Cómo están las apuestas para el Clásico regio?**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/15894770/rayados-vs-tigres-como-estan-las-apuestas-clasico-regio)
+- **FÚTBOL ONLINE | VER Canal 5 (TUDN) EN VIVO | Transmisión del Monterrey - Tigres gratis por tv abierta | MAG**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/canal-5-y-tudn-en-vivo-gratis-donde-ver-monterrey-vs-tigres-uanl-por-tv-abierta-y-futbol-online-nnda-nnrt-noticia/)
+- **Liga MX: CF Monterrey y Tigres se verán las caras en el clásico regio**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-cf-monterrey-y-tigres-se-veran-las-caras-en-el-clasico-regio-noticia-1661882)
+
+
+### dodgers (N/A, 01/11/2025 21:00 Lima)
+
+- **BENCHES CLEAR IN GAME 7 🚨 Blue Jays Storm Field after Andrés Giménez Hit By Pitch**: [Link](https://www.foxsports.com/watch/fmc-1kvmfikco2ik0dli)
+- **Dodgers-Blue Jays World Series live: Benches clear in do-or-die Game 7**: [Link](https://www.usatoday.com/story/sports/mlb/2025/11/01/dodgers-blue-jays-world-series-score-live-game-7-highlights/87038625007/)
+- **Benches clear at Game 7 of World Series after LA's Wrobleski hits Toronto's Giménez with fastball**: [Link](https://www.news4jax.com/sports/2025/11/02/benches-clear-at-game-7-of-world-series-after-las-wrobleski-hits-torontos-gimenez-with-fastball/)
+
+
+### fc dallas - whitecaps (N/A, 01/11/2025 21:00 Lima)
+
+- **Western Conference: What we learned in Game 1 & what comes next**: [Link](https://www.mlssoccer.com/playoffs/2025/news/western-conference-what-we-learned-in-game-1-what-comes-next-mls-cup-playoffs-2025)
+- **Whitecaps' Rios looking to add to goal tally again against Dallas**: [Link](https://www.beinsports.com/en-us/soccer/mls/articles/whitecaps-rios-looking-to-add-to-goal-tally-again-against-dallas-2025-10-31)
+- **Vancouver Whitecaps look to wrap up opening round of MLS playoffs**: [Link](https://globalnews.ca/video/11506367/vancouver-whitecaps-look-to-wrap-up-opening-round-of-mls-playoffs)
+
+
+### blue jays - dodgers (N/A, 01/11/2025 21:00 Lima)
+
+- **Jays' Barger: 'Bad read' led to game-ending play**: [Link](https://www.espn.com/mlb/story/_/id/46798820/jays-barger-admits-bad-read-ended-game-6-world-series)
+- **MLB World Series Game 6: LA Dodgers beat Toronto Blue Jays to force decider**: [Link](https://www.bbc.com/sport/baseball/articles/c1m3358pe25o)
+- **John Schneider on preparation for Game 7**: [Link](https://www.mlb.com/video/john-schneider-on-preparation-for-game-7)
+
+
+### wwe (N/A, 01/11/2025 21:00 Lima)
+
+- **John Cena's Final Two WWE Matches 'Leak' Online And Could Create History**: [Link](https://www.sportbible.com/wrestling/wwe/john-cena-wwe-final-match-leaked-survivor-series-464478-20251031)
+- **John Cena announces 16-man tournament to decide his final opponent**: [Link](https://www.postwrestling.com/2025/11/01/john-cena-announces-16-man-tournament-to-decide-his-final-opponent/)
+- **Major Plan For Survivor Series Involving John Cena’s Retirement Match**: [Link](https://www.sescoops.com/news/major-plan-reported-for-john-cenas-retirement-match-at-survivor-series/)
+
+
+### flamengo - sport recife (N/A, 01/11/2025 21:00 Lima)
+
+- **📋 Flamengo escalado para receber o Sport e tentar assumir a liderança**: [Link](https://onefootball.com/es/noticias/flamengo-escalado-para-receber-o-sport-e-tentar-assumir-a-lideranca-41890669)
+- **Qual é a lesão de Carrascal? A provável data de volta aos gramados do meio-campista do Flamengo**: [Link](https://www.90min.com/pt-br/lesao-carrascal-provavel-data-volta-meio-campista-flamengo)
+- **Aos 21 min do 2º tempo - gol de falta de Arrascaeta do Flamengo contra o Sport**: [Link](https://ge.globo.com/futebol/video/aos-21-min-do-2o-tempo-gol-de-falta-de-arrascaeta-do-flamengo-contra-o-sport-14063448.ghtml)
+
+
+### atlas - toluca (N/A, 01/11/2025 21:00 Lima)
+
+- **Atlas: ¿Desde cuándo no gana a Toluca en el Estadio Jalisco?**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/15896598/atlas-vs-toluca-desde-cuando-no-gana-estadio-jalisco-jornada-16)
+- **Liga MX: Toluca FC enfrenta a Atlas para seguir en la punta**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-toluca-fc-enfrenta-a-atlas-para-seguir-en-la-punta-noticia-1661865)
+- **Resumen Atlas vs Toluca: Turco Mohamed y Paulinho perdonan a Cocca y dejan escapar liderato del Apertura 2025**: [Link](https://www.marca.com/mx/futbol/liga-mx/cronica/2025/11/02/6906ab2f268e3e13088b4588.html?intcmp=flex_noticia_estatica)
+
+
+### libertad - olimpia (N/A, 01/11/2025 21:00 Lima)
+
+- **Un clásico muy deslucido solamente para cumplir con el calendario**: [Link](https://www.versus.com.py/hoy/2025/11/01/un-clasico-muy-deslucido-solamente-para-cumplir-con-el-calendario/)
+- **Libertad y Olimpia firman un entretenido empate en el clásico blanco y negro**: [Link](https://onefootball.com/es/noticias/libertad-y-olimpia-firman-un-entretenido-empate-en-el-clasico-blanco-y-negro-41890881)
+- **Noche de clásico blanco y negro en La Huerta**: [Link](https://www.apf.org.py/noticias/noche-de-clasico-blanco-y-negro-en-la-huerta)
+
+
+### nashville sc - inter miami (N/A, 01/11/2025 21:00 Lima)
+
+- **Mascherano delivers a serious warning to his players**: [Link](https://www.mundodeportivo.com/us/en/20251101/733730/mascherano-delivers-serious-warning-to-his-players.html)
+- **Nashville lead by two at HT; Philly advance, Charlotte force game three**: [Link](https://onefootball.com/en/news/nashville-lead-by-two-at-ht-philly-advance-charlotte-force-game-three-41890506)
+- **Miami have the experience to fight for MLS Cup, says Messi**: [Link](https://www.beinsports.com/en-nz/football/mls/articles/miami-have-the-experience-to-fight-for-mls-cup-says-messi-2025-11-01)
+
+
+### pacers - warriors (N/A, 01/11/2025 21:00 Lima)
+
+- **Warriors vs. Pacers injury report: Indy can barely field a team**: [Link](https://www.goldenstateofmind.com/warriors-injury-report/104631/warriors-pacers-injury-report-bennedict-mathurin-andrew-nembhard)
+- **Game 7 wrap: (no spoilers)**: [Link](https://dubnationhq.com/p/game-7-wrap-no-spoilers)
+- **Indiana takes on Golden State, aims to end 5-game slide**: [Link](https://www.washingtonpost.com/sports/nba/2025/11/01/warriors-pacers-preview/855425ba-b6e8-11f0-88c1-4e2f98984a34_story.html)
+
+
 ### espanyol - real madrid c. f. femenino (N/A, 01/11/2025 15:22 Lima)
 
 - **Däbritz silencia a las periquitas**: [Link](https://as.com/futbol/femenino/dabritz-silencia-a-las-periquitas-f202511-n/)
@@ -949,73 +1019,5 @@ Sin noticias relacionadas disponibles.
 ### metz vs (N/A, 29/10/2025 15:27 Lima)
 
 - **Liga de Francia: Lens quiere el liderato del torneo frente a Metz**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-de-francia-lens-quiere-el-liderato-del-torneo-frente-a-metz-noticia-1661290)
-
-
-### inter vs (N/A, 29/10/2025 15:27 Lima)
-
-- **Preview:Inter Milan vs Fiorentina - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/inter-milan/preview/inter-milan-vs-fiorentina-prediction-team-news-lineups_584473.html)
-- **Inter Milan Vs Fiorentina – Italy Prodigy Desperate To Get Off The Mark At Meazza: “Hope The Goal At San Siro Comes”**: [Link](https://sempreinter.com/2025/10/29/inter-milan-fiorentina-pio-esposito-san-siro-goal/)
-- **Inter Milan Vs Fiorentina – Italy Teen Striker Urges Teammates To Forget Napoli Loss: “In The Past” Adds “I’ll Ask Dzeko For His Shirt”**: [Link](https://ca.sports.yahoo.com/news/inter-milan-vs-fiorentina-italy-200000314.html)
-
-
-### paris fc - lyon (N/A, 29/10/2025 15:27 Lima)
-
-- **EN DIRECT Multiplex Ligue 1 : Tolisso debloque déjà le compteur pour l'OL... Suivez les matchs avec nous**: [Link](https://www.20minutes.fr/sport/football/4182342-20251029-direct-multiplex-ligue-1-feu-artifice-buts-finir-soiree-beaute-suivez-matchs)
-- **Paris FC - OL : Abner et De Carvalho lancés dans le onze**: [Link](https://www.olympique-et-lyonnais.com/paris-fc-ol-abner-et-de-carvalho-lances-dans-le-onze,383677.html)
-- **PRONOS PARIS RMC Le pari football de Lionel Charbonnier du 29 octobre – Ligue 1**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-football-de-lionel-charbonnier-du-29-octobre-ligue-1_AN-202510280519.html)
-
-
-### spezia - calcio padova (N/A, 29/10/2025 15:27 Lima)
-
-- **Malmoe-Dinamo Zagabria 1-1: risultato finale e highlights**: [Link](https://sport.virgilio.it/dirette/live/europa-league/23-10-2025/malmoe-dinamo-zagabria/2602000/)
-- **Spezia Padova, formazioni ufficiali e risultato in diretta live**: [Link](https://sport.sky.it/calcio/serie-b/partite/2025/giornata-10/spezia-padova/risultato-gol)
-- **Pronostico Malmö - Dinamo Zagabria - Europa League**: [Link](https://www.sportytrader.it/pronostici/malmo-dinamo-zagabria-298867/)
-
-
-### copa inglesa (N/A, 29/10/2025 15:27 Lima)
-
-- **Cuando Pablo Hernández ganó la Copa (inglesa)**: [Link](https://castellonaldia.elmundo.es/deportes/cd-castellon/cuando-pablo-hernandez-gano-la-copa-inglesa-cd-castellon-futbol-copa-del-rey-GP25083261)
-- **Arsenal - Brighton hoy, en vivo: EFL Cup en directo**: [Link](https://as.com/futbol/internacional/arsenal-brighton-hoy-en-vivo-efl-cup-en-directo-f202510-d/)
-- **Arsenal vs Brighton: Apuestas, Pronóstico y Cuotas**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/2025/octubre/pronostico-arsenal-vs-brighton-29-10-25)
-
-
-### bologna vs (N/A, 29/10/2025 15:27 Lima)
-
-- **Serie A: Se enfrentan Bologna y Torino por la fecha 9**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-se-enfrentan-bologna-y-torino-por-la-fecha-9-noticia-1661310)
-- **Bologna vs Torino FC pronostico y comparación de cuotas 29.10.2025**: [Link](https://www.livetipsportal.com/es/pronosticos-apuestas-deportivas/bologna-vs-fc-torino-serie-a-11128845/)
-- **Santiago Thomas Castro vs. Torino FC – Player props & odds to score a goal on October 29**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/10/29/santiago-thomas-castro-soccer-player-props-10-29-2025/86958520007/)
-
-
-### nantes - mónaco (N/A, 29/10/2025 15:27 Lima)
-
-- **Pronóstico Toronto Raptors - Milwaukee Bucks - NBA**: [Link](https://www.sportytrader.es/pronosticos/toronto-raptors-milwaukee-bucks-300099/)
-- **Real Jaén - Eldense en directo | Copa del Rey hoy en vivo**: [Link](https://www.marca.com/futbol/copa-del-rey/real-jaen-eldense/2025/10/29/01_0105_20251029_2512_10182-directo.html)
-- **Giannis Antetokounmpo, y un récord insólito después de los tres primeros partidos con los Milwaukee Bucks**: [Link](https://www.sportingnews.com/es/nba/milwaukee-bucks/news/giannis-antetokounmpo-record-insolito-tres-primeros-partidos-milwaukee-bucks-nba/a30213f7d272c4a66bba8115)
-
-
-### paderborn - leverkusen (N/A, 29/10/2025 11:33 Lima)
-
-- **Vazquez fehlt diesmal nicht wegen Verletzung - Tillman hofft auf Bayern**: [Link](https://www.kicker.de/vazquez-fehlt-diesmal-nicht-wegen-verletzung-tillman-hofft-auf-bayern-984048/artikel)
-- **Torwartfrage in Leverkusen: Darf Blaswich im Pokal ran, Herr Hjulmand?**: [Link](https://www.bild.de/sport/fussball/torwartfrage-in-leverkusen-darf-blaswich-im-pokal-ran-herr-hjulmand-6900821cef02c303905fa96a)
-- **Wichtige Hinweise**: [Link](https://www.scp07.de/Newsarchiv/Wichtige-Hinweise-93.html)
-
-
-### expo china (N/A, 29/10/2025 11:33 Lima)
-
-- **2025 China Marine Economy Expo (CMEE) Opens in Shenzhen**: [Link](https://finance.yahoo.com/news/2025-china-marine-economy-expo-100100605.html)
-
-
-### alexander zverev (N/A, 29/10/2025 11:33 Lima)
-
-- **Tennis, ATP – Paris Masters 2025: Zverev takes out Ugo Carabelli**: [Link](https://www.tennismajors.com/atp/paris-masters-zverev-challenged-by-carabelli-but-zverev-into-last-16-839017.html)
-- **Camilo Ugo Carabelli vs. Alexander Zverev Prediction for ATP Paris, France Men's Singles 2025**: [Link](https://www.dimers.com/bet-hub/ten/schedule/2025_1_atp_2661_204117_57163)
-- **ATP Paris Best Bets Including Zverev vs Ugo Carabelli**: [Link](https://lastwordonsports.com/tennis/2025/10/28/atp-paris-best-bets-including-zverev-vs-ugo-carabelli/)
-
-
-### microsoft (N/A, 29/10/2025 11:33 Lima)
-
-- **OpenAI Restructures as For-Profit Company**: [Link](https://www.nytimes.com/2025/10/28/technology/openai-restructure-for-profit-company.html)
-- **OpenAI has an AGI problem — and Microsoft just made it worse**: [Link](https://www.theverge.com/ai-artificial-intelligence/808434/openai-for-profit-restructuring-microsoft-deal-agi-wars)
-- **Microsoft CEO Satya Nadella says Bill Gates warned him that investing in OpenAI would be like setting $1 billion on fire**: [Link](https://finance.yahoo.com/news/microsoft-ceo-satya-nadella-says-040415454.html)
 
 
