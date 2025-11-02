@@ -1,3 +1,29 @@
+### twitch (N/A, 02/11/2025 03:26 Lima)
+
+- **Justin Bieber Previews New Music, Admits He Feels ‘Vulnerable As Hell’ in Twitch Stream**: [Link](https://www.rollingstone.com/music/music-news/justin-bieber-twitch-stream-new-music-1235458221/)
+- **"People who hate you online are just mirrors" - Fans react to Justin Bieber explaining how hate on Twitch impacts him**: [Link](https://www.sportskeeda.com/pop-culture/news-people-hate-online-just-mirrors-fans-react-justin-bieber-explaining-hate-twitch-impacts)
+- **Justin Bieber Embraces Vulnerability as a Twitch Streamer**: [Link](https://news.ssbcrack.com/justin-bieber-embraces-vulnerability-as-a-twitch-streamer/)
+
+
+### carlos manzo (N/A, 02/11/2025 03:26 Lima)
+
+- **Gunman Kills Mayor Who Wanted Police to Target Mexico’s Drug Gangs**: [Link](https://www.nytimes.com/2025/11/02/world/americas/manzo-mayor-mexico-killed.html)
+
+
+### pistons - mavericks (N/A, 02/11/2025 03:26 Lima)
+
+- **Southwest Notes: Mavericks, Gafford, Irving, Rockets, Morant**: [Link](https://www.hoopsrumors.com/2025/11/southwest-notes-mavericks-gafford-irving-rockets-morant.html)
+- **The first pick started to get used to the strongest league, Indiana broke its losing streak**: [Link](https://en.vijesti.me/sports-e/basketball/781493/The-first-pick-started-to-get-used-to-the-strongest-league--the-Indians-broke-their-losing-streak.)
+- **2025-2026 NBA regular season match: Detroit Pistons vs. Dallas Mavericks**: [Link](https://english.news.cn/20251102/2538d1a3d83f4a3daeddc18027fed741/c.html)
+
+
+### la habitación negra (N/A, 02/11/2025 03:26 Lima)
+
+- **El desgarrador pedido de Yiddá Eslava para que apoyen su película ‘La Habitación Negra’: “Necesito un milagro”**: [Link](https://www.infobae.com/peru/2025/11/01/yidda-eslava-y-el-desgarrador-pedido-para-que-apoyen-su-pelicula-la-habitacion-negra-necesito-un-milagro/)
+- **Yiddá Eslava se conmueve por la poca audiencia de 'La habitación negra' y pide ayuda en redes: "¡Necesito un milagro!"**: [Link](https://larepublica.pe/espectaculos/2025/11/01/yidda-eslava-se-conmueve-por-la-poca-audiencia-de-la-habitacion-negra-y-pide-ayuda-en-redes-necesito-un-milagro-56079)
+- **Yiddá: su etapa como guionista, su paso por ‘Combate’, su diagnóstico de autismo, la separación con Julián y más**: [Link](https://trome.com/espectaculos/tv/yidda-eslava-su-etapa-como-guionista-su-experiencia-en-combate-su-autismo-la-separacion-con-julian-zucchi-y-mas-entrevista-video-farandula-noticia/)
+
+
 ### millie bobby brown (N/A, 01/11/2025 23:27 Lima)
 
 - **'Millie Bobby Brown filed a harassment and bullying claim before they started shooting the last season. There were pages and pages of accusations.' We reveal the latest bombshell claims facing Lily Allen's estranged husband David Harbour**: [Link](https://www.dailymail.co.uk/news/article-15248699/Millie-Bobby-Brown-filed-harassment-bullying-claim-started-shooting-season-pages-pages-accusations-Caroline-Graham-reveals-latest-bombshell-claims-facing-Lily-Allens-estranged-husband-David-Harbour.html)
@@ -999,29 +1025,5 @@ Sin noticias relacionadas disponibles.
 - **Puso la cara: la atajada de Cambeses que salvó del gol a Racing vs. Flamengo | VIDEO**: [Link](https://elcomercio.pe/deporte-total/argentina/facundo-cambeses-hoy-con-racing-vs-flamengo-mira-la-atajada-con-la-cara-en-partido-por-copa-libertadores-video-noticia/)
 - **Facundo Cambeses, clave para sostener el cero en el arco de Racing ante los embates de Flamengo**: [Link](https://www.tycsports.com/racing-club/facundo-cambeses-clave-para-sostener-cero-arco-racing-ante-embates-flamengo-id695338.html)
 - **Costas la anécdota con Cambeses y su amor por Racing**: [Link](https://www.lacomuderacing.com/costas-la-anecdota-con-cambeses-y-su-amor-por-racing/)
-
-
-### agustín rossi (N/A, 29/10/2025 20:57 Lima)
-
-- **Rossi y Cambeses salvan sus arcos: Racing y Flamengo casi anotan en los primeros 15′ | VIDEO**: [Link](https://elcomercio.pe/deporte-total/argentina/rossi-y-cambeses-salvan-sus-arcos-racing-y-flamengo-casi-anotan-en-los-primeros-15-video-noticia/)
-
-
-### marcos rojo (N/A, 29/10/2025 20:57 Lima)
-
-- **Los afiches contra Marcos Rojo que aparecieron antes de la revancha de Racing contra Flamengo**: [Link](https://www.tycsports.com/racing-club/afiches-racing-marcos-rojo-aparecieron-revancha-flamengo-copa-libertadores-id695215.html)
-- **Afiches contra Marcos Rojo en la previa de Racing - Flamengo: ¿quién los puso?**: [Link](https://www.ole.com.ar/racing/racing-libertadores-marcos-rojo-afiches-flamengo_0_525yy7kVEx.html)
-- **La verdad detrás de los insultantes carteles para Marcos Rojo en Avellaneda a horas de Racing vs. Flamengo**: [Link](https://www.msn.com/es-ar/noticias/other/la-verdad-detr%C3%A1s-de-los-insultantes-carteles-para-marcos-rojo-en-avellaneda-a-horas-de-racing-vs-flamengo/ar-AA1PregM?cvid=6902bd7b44a7438c8d14767a27b6074b&ocid=hpmsn)
-
-
-### giorgian de arrascaeta (N/A, 29/10/2025 20:57 Lima)
-
-- **Arrascaeta é o meio-campista com mais gols no mundo em 2025; veja ranking**: [Link](https://www.terra.com.br/esportes/flamengo/arrascaeta-e-o-meio-campista-com-mais-gols-no-mundo-em-2025-veja-ranking,0f8d5fd0cf21c12e53499a70d6c3e466spbm09qd.html)
-- **Sem Pedro, fase artilheira de Arrascaeta vira trunfo por final da Libertadores**: [Link](https://odia.ig.com.br/esporte/flamengo/2025/10/7153578-sem-pedro-fase-artilheira-de-arrascaeta-vira-trunfo-por-final-da-libertadores.html)
-- **Arrascaeta, do Flamengo, dispara na artilharia global em 2025 e conquista corações com gols explosivos**: [Link](https://www.torcidaflamengo.com.br/news.asp?nID=177788)
-
-
-### guillermo varela (N/A, 29/10/2025 20:57 Lima)
-
-Sin noticias relacionadas disponibles.
 
 
