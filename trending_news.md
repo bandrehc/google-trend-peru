@@ -1,3 +1,59 @@
+### levante - celta de vigo (N/A, 02/11/2025 07:43 Lima)
+
+- **Levante - Celta en directo | LaLiga EA Sports, hoy, en vivo**: [Link](https://as.com/futbol/levante-celta-en-directo-laliga-ea-sports-hoy-en-vivo-f202511-d/)
+- **Levante - Celta | El triunfo en casa no puede esperar: previa, posibles onces y pronóstico**: [Link](https://www.marca.com/futbol/primera-division/2025/11/01/levante-celta-triunfo-casa-esperar-previa-posibles-onces-pronostico.html)
+- **El Ciutat se le resiste al Levante**: [Link](https://www.mundodeportivo.com/futbol/laliga/20251102/1002561559/ciutat-le-resiste-levante.html)
+
+
+### inter (N/A, 02/11/2025 07:43 Lima)
+
+- **Hellas Verona vs Inter Milan – Match preview and team news**: [Link](https://thefootballfaithful.com/hellas-verona-vs-inter-milan-match-preview-and-team-news/)
+- **Gift Emmanuel Orban vs. Inter Milan – Player props & odds to score a goal on November 2**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/11/01/gift-emmanuel-orban-soccer-player-props-11-2-2025/87042975007/)
+- **Inter Milan Coach ‘They Saved My Life Here In Verona’ – Adds ‘We Must Rally Around Josep Martinez’ After Tragic Car Accident**: [Link](https://sempreinter.com/2025/11/02/verona-inter-chivu-martinez-support/)
+
+
+### inter vs (N/A, 02/11/2025 07:43 Lima)
+
+- **Inter Milan vs. Kairat - Boxscore - November 05, 2025**: [Link](https://www.foxsports.com/soccer/champions-league-inter-milan-vs-kairat-nov-05-2025-game-boxscore-644283?tab=boxscore)
+- **Inter vs Kairat Almaty: Predictions, Betting odds, Lineups, Preview**: [Link](https://www.bwin.com/en/news/match-preview-inter-kairat-almaty-uefa-champions-league-gameweek-4/)
+- **Alianza Lima jugará con Inter Miami de Lionel Messi en la Noche Blanquiazul 2026: fecha tentativa y todo lo que se sabe del amistoso**: [Link](https://www.infobae.com/peru/deportes/2025/10/31/alianza-lima-jugara-con-inter-miami-de-lionel-messi-en-la-noche-blanquiazul-2026-fecha-tentativa-y-todo-lo-que-se-sabe-del-amistoso/)
+
+
+### inter de milán (N/A, 02/11/2025 07:43 Lima)
+
+- **Verona vs Inter: Apuestas, Pronóstico y Cuotas**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/2025/noviembre/pronostico-verona-vs-inter-02-11-25)
+- **Serie A: Inter necesita los tres puntos para ser puntero**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-inter-necesita-los-tres-puntos-para-ser-puntero-noticia-1661939)
+- **Vuelve Thuram (al banquillo): entre Pio y Bonny, el Inter FC no le ha echado de menos**: [Link](https://www.todomercadoweb.es/serie-a/vuelve-thuram-al-banquillo-entre-pio-y-bonny-el-inter-fc-no-le-ha-echado-de-menos-523854)
+
+
+### onp (N/A, 02/11/2025 07:43 Lima)
+
+- **ONP pagará una pensión adicional en diciembre: ¿Qué jubilados son beneficiados?**: [Link](https://www.infobae.com/peru/2025/10/29/onp-pagara-una-pension-adicional-en-diciembre-que-jubilados-seran-beneficiados/)
+- **ONP: jubilados con 20 años de aportes acceden a pago extra en julio y diciembre**: [Link](https://www.elperuano.pe/noticia/281962-onp-jubilados-con-20-anos-de-aportes-acceden-a-pago-extra-en-julio-y-diciembre)
+- **ONP pagará pensión adicional en diciembre: conozca quiénes recibirán bono extraordinario**: [Link](https://www.expreso.com.pe/economia/onp-pagara-pension-adicional-en-diciembre-conozca-quienes-recibiran-bono-extraordinario-navidad-pensionistas-jubilados-19990-noticia/1236054/)
+
+
+### hellas verona - inter (N/A, 02/11/2025 07:43 Lima)
+
+- **Verona-Inter LIVE**: [Link](https://sport.sky.it/calcio/serie-a/partite/2025/giornata-10/verona-inter/risultato-gol)
+- **LIVE Serie A Enilive 2025/26 | #VeronaInter 1-1**: [Link](https://www.hellasverona.it/news/live-serie-a-enilive-2025-26-veronainter)
+- **Tutte le notizie sul calcio in Diretta**: [Link](https://www.diretta.it/news/calcio-live-news-alle-12-30-in-campo-verona-inter-stasera-tocca-a-milan-e-roma/vyuWTcmT/)
+
+
+### cronograma de pagos (N/A, 02/11/2025 07:43 Lima)
+
+- **Pagos ONP y del sector público en noviembre 2025: consulta el cronograma del Banco de la Nación**: [Link](https://elcomercio.pe/respuestas/tramites/pagos-onp-y-del-sector-publico-en-noviembre-2025-revisa-el-cronograma-del-banco-de-la-nacion-tdpe-noticia/)
+- **Pago ONP 19990 de noviembre: ¿Cuál es el cronograma completo para el cobro de pensiones en el Banco de la Nación?**: [Link](https://rpp.pe/economia/economia/pago-onp-19990-en-noviembre-2025-este-es-el-cronograma-completo-y-desde-cuando-inicia-el-cobro-de-pensiones-en-banco-de-la-nacion-noticia-1661214)
+- **Cronograma de pagos noviembre 2025: Estas son las fechas confirmadas vía Banco de la Nación para sueldos y pensiones ONP**: [Link](https://altavoz.pe/economia/cronograma-de-pagos-noviembre-2025-estas-son-las-fechas-confirmadas-via-banco-de-la-nacion-para-de-sueldos-y-pensiones-onp/)
+
+
+### fiorentina vs (N/A, 02/11/2025 07:43 Lima)
+
+- **Luca Ranieri vs. US Lecce – Player props & odds to score a goal on November 2**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/11/01/luca-ranieri-soccer-player-props-11-2-2025/87042871007/)
+- **Fiorentina, tension skyrockets: banners against the club and team on the eve of Lecce**: [Link](https://tribuna.com/en/blogs/fiorentina-tension-skyrockets-banners-against-the-club-and-t/)
+- **Where to Watch ACF Fiorentina vs. US Lecce: TV Channel, Start Time and Live Stream**: [Link](https://www.bleachernation.com/how-to-watch/2025/11/01/where-to-watch-acf-fiorentina-vs-us-lecce-tv-channel-start-time-and-live-stream-2/)
+
+
 ### twitch (N/A, 02/11/2025 03:26 Lima)
 
 - **Justin Bieber Previews New Music, Admits He Feels ‘Vulnerable As Hell’ in Twitch Stream**: [Link](https://www.rollingstone.com/music/music-news/justin-bieber-twitch-stream-new-music-1235458221/)
@@ -969,61 +1025,5 @@ Sin noticias relacionadas disponibles.
 - **Twitch x hololive production Collaboration Online Event “holoday”**: [Link](https://hololive.hololivepro.com/en/news/20251029-01-163/)
 - **Twitch heard you wanted more vtubers so it signed a deal with the most popular vtuber agency in the world**: [Link](https://www.pcgamer.com/gaming-industry/twitch-heard-you-wanted-more-vtubers-so-it-signed-a-deal-with-the-most-popular-vtuber-agency-in-the-world/)
 - **Streamer Nina Lin Apologizes Over Resurfaced Footage of 2...**: [Link](https://www.complex.com/pop-culture/a/markelibert/streamer-nina-lin-apologizes-resurfaced-footage-2024-incident)
-
-
-### onp 19990 (N/A, 29/10/2025 23:28 Lima)
-
-- **Cronograma ONP de noviembre 2025: Fechas del pago de pensiones en el Banco de la Nación**: [Link](https://www.infobae.com/peru/2025/10/26/cronograma-onp-de-noviembre-2025-fechas-del-pago-de-pensiones-en-el-banco-de-la-nacion/)
-- **Pago ONP 19990 de noviembre: ¿Cuál es el cronograma para el cobro de pensiones en el Banco de la Nación?**: [Link](https://rpp.pe/economia/economia/pago-onp-19990-en-noviembre-2025-este-es-el-cronograma-completo-y-desde-cuando-inicia-el-cobro-de-pensiones-en-banco-de-la-nacion-noticia-1661214)
-- **Banco de la Nación publica el cronograma de pagos de noviembre 2025: revisa aquí las fechas más importantes**: [Link](https://elpopular.pe/actualidad/2025/10/27/banco-de-la-nacion-publica-el-cronograma-de-pagos-de-noviembre-2025-revisa-aqui-las-fechas-mas-importantes-1100142)
-
-
-### lanus vs u de chile (N/A, 29/10/2025 23:28 Lima)
-
-- **La probable formación de Universidad de Chile para la revancha con Lanús por la CONMEBOL Sudamericana**: [Link](https://www.espn.com.ar/futbol/copa-sudamericana/nota/_/id/15885244/formacion-universidad-de-chile-vs-lanus-semifinal-vuelta-conmebol-sudamericana)
-- **Lanús vs. U. de Chile: horarios y canales de transmisión para ver partido por Copa Sudamericana**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/lanus-vs-u-de-chile-en-vivo-gratis-hoy-via-futbol-libre-tv-espn-directv-horarios-canales-tv-y-donde-ver-semifinal-de-copa-sudamericana-video-noticia/)
-- **El ex Independiente que agiliza trámites para jugar un repechaje mundialista**: [Link](https://www.fmalpina.com.ar/articulo/el-ex-independiente-que-agiliza-tramites-para-jugar-un-repechaje-mundialista.php)
-
-
-### lafc - austin fc (N/A, 29/10/2025 23:28 Lima)
-
-- **Player Availability Report: LAFC vs. Austin FC | Oct. 29, 2025**: [Link](https://www.austinfc.com/news/player-availability-report-lafc-vs-austin-fc-oct-29-2025)
-- **Son and Bouanga's Telepathy Stuns MLS**: [Link](https://www.chosun.com/english/sports-en/2025/10/30/BJTO2HLZQNBHXLKRTRX3JGYJF4/)
-- **Los Angeles FC vs. Austin FC Game 1 prediction, pick for Wednesday 10/29/25**: [Link](https://dknetwork.draftkings.com/2025/10/29/los-angeles-fc-vs-austin-fc-game-1-prediction-pick-for-wednesday-10-29-25/)
-
-
-### final copa libertadores 2025 (N/A, 29/10/2025 23:28 Lima)
-
-- **¡Rumbo a Lima! Conmebol destaca al Estadio Monumental por ser una vez más escenario de una final de Copa Libertadores**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/rumbo-a-lima-conmebol-destaca-al-estadio-monumental-por-ser-una-vez-mas-escenario-de-una-final-de-copa-libertadores-ultimas-noticia/)
-- **Salió el pre-registro para venta de entradas de la final de Copa Libertadores: así puedes hacerlo**: [Link](https://latinanoticias.pe/deportes/link-pre-registro-final-de-copa-libertadores-2025-como-registrarme-y-cuando-salen-las-entradas_20251027/)
-- **Perú declaró un estado de emergencia y peligra la celebración de la final de la Copa Libertadores en el país - informes**: [Link](https://tribuna.com/es/news/2025-10-23-peru-declaro-un-estado-de-emergencia-y-peligra-la-celebracion-de-la-final-de-la-copa-libe/)
-
-
-### palmeiras vs ldu (N/A, 29/10/2025 23:28 Lima)
-
-- **Liga de Quito vs. Palmeiras: horarios y canales de transmisión para ver partido por Copa Libertadores**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/liga-de-quito-vs-palmeiras-en-vivo-gratis-hoy-via-futbol-libre-tv-espn-horarios-canales-tv-y-donde-ver-semifinal-de-copa-libertadores-video-noticia/)
-- **Copa Libertadores: Palmeiras y Liga de Quito se juegan todo por un pase a la final**: [Link](https://rpp.pe/futbol/ligas-internacionales/copa-libertadores-palmeiras-y-liga-de-quito-se-juegan-todo-por-un-pase-a-la-final-noticia-1661541)
-- **Palmeiras vs LDU de Quito: pronóstico por la semifinal de vuelta de la Copa Libertadores 2025**: [Link](https://www.futbolperuano.com/copa-libertadores/noticias/palmeiras-vs-ldu-de-quito-en-vivo-online-por-la-semifinal-de-vuelta-de-la-copa-libertadores-2025-546266)
-
-
-### mavericks - pacers (N/A, 29/10/2025 23:28 Lima)
-
-- **Mavs eke out 107-105 victory over Pacers**: [Link](https://www.nba.com/mavs/news/mavs-eke-out-107-105-victory-over-pacers)
-- **Mavericks' Cooper Flagg: Double-doubles in win**: [Link](https://www.cbssports.com/fantasy/basketball/news/mavericks-cooper-flagg-double-doubles-in-win/)
-- **Pacers Mavericks Basketball**: [Link](https://www.couriernews.com/sports/pacers-mavericks-basketball/image_b34e5437-3f63-5a9b-8f92-e1c29241c9f1.html)
-
-
-### filipe luis (N/A, 29/10/2025 23:28 Lima)
-
-- **¿Se cortará la racha? La última vez que la final de Copa Libertadores no tuvo a brasileños**: [Link](https://libero.pe/futbol-internacional/copa-libertadores/2025/10/29/se-cortara-racha-ultima-vez-final-de-copa-libertadores-tuvo-brasilenos-389122)
-- **Racing vs. Flamengo: Canales para ver hoy la crucial semifinal de la Copa Libertadores**: [Link](https://andina.pe/agencia/noticia-racing-vs-flamengo-canales-para-ver-hoy-crucial-semifinal-de-copa-libertadores-1050013.aspx)
-- **Regresa a Lima: Flamengo clasificó la final de la Copa Libertadores tras empatar 0-0 con Racing**: [Link](https://peru21.pe/deportes/flamengo-clasifico-la-final-de-la-copa-libertadores-tras-empatar-0-0-con-racing/)
-
-
-### facundo cambeses (N/A, 29/10/2025 23:28 Lima)
-
-- **Puso la cara: la atajada de Cambeses que salvó del gol a Racing vs. Flamengo | VIDEO**: [Link](https://elcomercio.pe/deporte-total/argentina/facundo-cambeses-hoy-con-racing-vs-flamengo-mira-la-atajada-con-la-cara-en-partido-por-copa-libertadores-video-noticia/)
-- **Facundo Cambeses, clave para sostener el cero en el arco de Racing ante los embates de Flamengo**: [Link](https://www.tycsports.com/racing-club/facundo-cambeses-clave-para-sostener-cero-arco-racing-ante-embates-flamengo-id695338.html)
-- **Costas la anécdota con Cambeses y su amor por Racing**: [Link](https://www.lacomuderacing.com/costas-la-anecdota-con-cambeses-y-su-amor-por-racing/)
 
 
