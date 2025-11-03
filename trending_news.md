@@ -1,3 +1,45 @@
+### sassuolo (N/A, 03/11/2025 11:28 Lima)
+
+- **Sassuolo-Genoa, dove vedere la partita in tv: gli orari**: [Link](https://sport.sky.it/calcio/serie-a/2025/11/03/sassuolo-genoa-dove-vedere-tv-streaming)
+- **Criscito: "Questa maglia va onorata". Poi il messaggio ai tifosi**: [Link](https://www.tuttosport.com/news/calcio/serie-a/genoa/2025/11/03-144281853/criscito_questa_maglia_va_onorata_poi_il_messaggio_ai_tifosi)
+- **Murgita e Criscito chiedono "una partita da Genoa"**: [Link](https://www.diretta.it/news/calcio-serie-a-genoa-murgita-e-criscito-cercano-una-reazione-cancellare-la-gara-precedente-e-liberare-la-testa/dGsLXBod/)
+
+
+### iga świątek (N/A, 03/11/2025 11:28 Lima)
+
+- **Wyjątkowy gość na hitowym meczu Igi Świątek. Przyleciał prosto z Polski**: [Link](https://przegladsportowy.onet.pl/tenis/wyjatkowy-gosc-na-hitowym-meczu-igi-swiatek-przylecial-prosto-z-polski/vn403qn)
+- **Świątek wyszła na kort i nadeszło potwierdzenie. Jej ojciec wkroczył do akcji**: [Link](https://www.msn.com/pl-pl/wiadomosci/other/%C5%9Bwi%C4%85tek-wysz%C5%82a-na-kort-i-nadesz%C5%82o-potwierdzenie-jej-ojciec-wkroczy%C5%82-do-akcji/ar-AA1PIQDC)
+- **Świątek i Sabalenka w elicie tenisa. 12 lat temu zrobiła to Radwańska**: [Link](https://polskieradio24.pl/artykul/3602353,swiatek-i-sabalenka-w-elicie-tenisa-12-lat-temu-zrobila-to-radwanska)
+
+
+### rania de jordania (N/A, 03/11/2025 11:28 Lima)
+
+- **Egipto se prepara para la histórica inauguración del Gran Museo de la civilización faraónica**: [Link](https://www.france24.com/es/%C3%A1frica/20251101-egipto-se-prepara-para-la-hist%C3%B3rica-inauguraci%C3%B3n-del-gran-museo-de-la-civilizaci%C3%B3n-fara%C3%B3nica)
+- **Gran Museo Egipcio, la gigantesca obra que exhibe los secretos de Tutankamón y que se inaugura tras décadas de trabajos**: [Link](https://www.bbc.com/mundo/articles/c629n28z490o)
+- **El despertar de los faraones: drones, esfinges y la inauguración histórica del Gran Museo Egipcio**: [Link](https://cnnespanol.cnn.com/2025/11/03/mundo/video/guiza-gran-museo-egipcio-faraones-egipto-orix)
+
+
+### rpp (N/A, 03/11/2025 11:28 Lima)
+
+- **VERSABANK ANNOUNCES LARGEST US RPP PARTNER TO DATE; SURPASSES US RPP TARGET WITH US$310 MILLION FUNDED IN FISCAL 2025**: [Link](https://finance.yahoo.com/news/versabank-announces-largest-us-rpp-120000927.html)
+- **VersaBank’s US Receivable Push Exceeds Expectations In 2025**: [Link](https://finimize.com/content/versabanks-us-receivable-push-exceeds-expectations-in-2025)
+- **VERSABANK ANNOUNCES LARGEST US RPP PARTNER TO DATE; SURPASSES US RPP TARGET WITH US$310 MILLION FUNDED IN FISCAL 2025**: [Link](https://www.theglobeandmail.com/investing/markets/stocks/VBNK-T/pressreleases/35860361/versabank-announces-largest-us-rpp-partner-to-date-surpasses-us-rpp-target-with-us310-million-funded-in-fiscal-2025/)
+
+
+### mundial sub 17 (N/A, 03/11/2025 11:28 Lima)
+
+- **Comienza el Mundial Sub-17 en Qatar: quiénes participan, formato, calendario de los latinoamericanos y más**: [Link](https://cnnespanol.cnn.com/2025/11/02/deportes/mundial-sub-17-formato-calendario-orix)
+- **Argentina vs. Bélgica en vivo, Mundial Sub 17: transmisión del partido de hoy**: [Link](https://elcomercio.pe/deporte-total/argentina/argentina-vs-belgica-sub-17-en-vivo-gratis-via-tv-publica-directv-pelota-libre-tv-a-que-hora-juegan-canal-que-pasa-y-donde-ver-por-mundial-sub-17-video-noticia/)
+- **Argentina iguala sin goles ante Bélgica en su estreno en el Mundial Sub 17**: [Link](https://www.infobae.com/deportes/2025/11/03/argentina-hace-su-estreno-en-el-mundial-sub-17-ante-belgica/)
+
+
+### sky (N/A, 03/11/2025 11:28 Lima)
+
+- **Sky Sports Rewards with Sky VIP: Tickets, subscription to The Athletic, exclusive sports kit offers and more for customers**: [Link](https://www.skysports.com/more-sports/other-sports/news/30965/13447452/sky-sports-rewards-with-sky-vip-tickets-subscription-to-the-athletic-exclusive-sports-kit-offers-and-more-for-customers)
+- **Police investigating whether train attack suspect linked to stabbing of 14-year-old on Friday**: [Link](https://www.bbc.com/news/live/c93dwq33vkwt)
+- **‘Heroic’ actions of train employee and driver saved many lives in England stabbing attack, police say**: [Link](https://www.cnn.com/2025/11/03/uk/england-train-stabbing-driver-intl)
+
+
 ### solicitar retiro afp (N/A, 03/11/2025 07:51 Lima)
 
 - **Retiro de AFP 2025: ¿Qué afiliados pueden solicitar en noviembre y cuándo reciben?**: [Link](https://www.infobae.com/peru/2025/10/31/retiro-de-afp-2025-quienes-podran-solicitar-en-noviembre-y-cuando-reciben/)
@@ -981,47 +1023,5 @@ Sin noticias relacionadas disponibles.
 - **“Perú Mucho Gusto”: restaurante trajo dos toneladas de cerdo para hacer chancho al palo**: [Link](https://andina.pe/agencia/noticia-peru-mucho-gusto-restaurante-trajo-dos-toneladas-cerdo-para-hacer-chancho-al-palo-1050239.aspx)
 - **Feria Perú Mucho Gusto busca récord en turistas extranjeros y triplicar venta de emprendedores | ECONOMIA**: [Link](https://gestion.pe/economia/feria-peru-mucho-gusto-busca-record-en-turistas-extranjeros-y-triplicar-venta-de-emprendedores-noticia/)
 - **Platos de las 25 regiones del país en un solo lugar y con ingreso completamente gratis: todo sobre Perú Mucho Gusto Lima 2025**: [Link](https://elcomercio.pe/provecho/peru-mucho-gusto-lima-2025-fechas-precios-platos-y-entradas-para-el-evento-gratis-mas-grande-de-gastronomia-en-la-ciudad-noticia/)
-
-
-### al hilal - al-shabab (N/A, 31/10/2025 11:30 Lima)
-
-- **Al Hilal - Al Shabab: What time and on which channel to watch the match live?**: [Link](https://foot-africa.com/en/news/al-hilal-al-shabab-what-time-and-on-which-channel-to-watch-the-match-live-940103/)
-- **Preview:Al-Hilal vs Al Shabab - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/al-hilal/preview/al-hilal-vs-al-shabab-prediction-team-news-lineups_584614.html)
-- **Al Hilal vs Al Shabab Preview, prediction, lineups, betting tips & odds | Saudi Pro League 2025-26**: [Link](https://khelnow.com/football/world-football-al-hilal-vs-al-shabab-preview-202510)
-
-
-### valentin vacherot (N/A, 31/10/2025 11:30 Lima)
-
-- **Auger-Aliassime moves closer to Turin following Paris QF win**: [Link](https://www.atptour.com/en/news/felix-vacherot-paris-2025-friday)
-- **Tennis: Auger-Aliassime ends Vacherot run to reach Paris Masters semis - Omni sports - Sports**: [Link](https://english.ahram.org.eg/NewsContent/6/56/555957/Sports/Omni-sports/Tennis-AugerAliassime-ends-Vacherot-run-to-reach-P.aspx)
-- **How Auger-Aliassime narrowed 390-point gap to ATP Finals**: [Link](https://rollingout.com/2025/10/31/auger-aliassime-paris-turin-atp-finals/)
-
-
-### dia de los muertos (N/A, 31/10/2025 11:30 Lima)
-
-- **Día de los Muertos: ¿Cómo hacer un altar de la Santa Muerte?**: [Link](https://www.atv.pe/noticia/dia-de-los-muertos-como-hacer-un-altar-de-la-santa-muerte/)
-- **10 imágenes de Tarjetas del Día de Muertos 2025 para imprimir y enviar en WhatsApp, Instagram y Facebook este 1 y 2 de noviembre**: [Link](https://elcomercio.pe/mag/usa/local-us/10-imagenes-de-tarjetas-del-dia-de-muertos-2025-para-imprimir-y-enviar-en-whatsapp-instagram-y-facebook-este-1-y-2-de-noviembre-nnda-nnse-noticia/)
-- **Frases de Día de Muertos Cortas: 25 Mensajes Bonitos, para Reflexionar y Poner en el Altar**: [Link](https://www.nmas.com.mx/tendencias/frases-de-dia-de-muertos-cortas-25-mensajes-bonitos-para-reflexionar/)
-
-
-### halloween 2025 (N/A, 31/10/2025 11:30 Lima)
-
-- **Halloween 2025: Jade, Demi Lovato and Megan Thee Stallion reveal their costumes**: [Link](https://www.bbc.com/news/articles/c4gpwn5v072o)
-- **See Kim Kardashian, Demi Lovato and More Celebs Celebrate Halloween 2025 in Costume**: [Link](https://www.eonline.com/news/1424034/halloween-2025-every-celebrity-costume-what-stars-dressed-up-as)
-- **The Spookiest (and Funniest) Celebrity Halloween Costumes of 2025**: [Link](https://www.yahoo.com/entertainment/celebrity/articles/spookiest-funniest-celebrity-halloween-costumes-150200649.html)
-
-
-### que se celebra el 31 de octubre (N/A, 31/10/2025 11:30 Lima)
-
-- **¿Por qué se celebra Halloween hoy, 31 de octubre?: el origen de la fecha**: [Link](https://www.infobae.com/america/mundo/2025/10/31/por-que-se-celebra-halloween-hoy-31-de-octubre-el-origen-de-la-fecha/)
-- **Halloween no tiene origen estadounidense, tiene raíces celtas europeas**: [Link](https://es.euronews.com/cultura/2025/10/31/la-celebracion-de-halloween-no-es-originaria-de-eeuu-raices-celtas-y-cristianas-europeas)
-- **¿Cómo una tradición celta de más de 2 mil años se transformó en Halloween?**: [Link](https://www.latercera.com/videos/noticia/como-una-tradicion-celta-de-mas-de-2-mil-anos-se-transformo-en-halloween/)
-
-
-### musica criolla peruana (N/A, 31/10/2025 11:30 Lima)
-
-- **La música criolla celebra su jarana en Lima, en franca resistencia contra zombis y brujas**: [Link](https://www.abc.es/cultura/musica/musica-criolla-celebra-jarana-lima-franca-resistencia-20251030174238-vi.html)
-- **Halloween y el Día de la Canción Criolla: eventos, conciertos y actividades para celebrar el 31 de octubre**: [Link](https://www.infobae.com/peru/2025/10/30/halloween-y-el-dia-de-la-cancion-criolla-eventos-conciertos-y-actividades-para-celebrar-el-31-de-octubre/)
-- **La canción criolla, por siempre vigente [INFORME]**: [Link](https://rpp.pe/musica/nacional/la-cancion-criolla-por-siempre-vigente-informe-noticia-1661668)
 
 
