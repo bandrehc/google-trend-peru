@@ -1,3 +1,73 @@
+### atlético nacional - américa (N/A, 02/11/2025 20:59 Lima)
+
+- **Pronósticos Nacional vs. América: clásico para crear apuesta a 2,47**: [Link](https://www.futbolred.com/apuestas/pronosticos-nacional-vs-america-copa-betplay-semifinales-01-11-2025-258038)
+- **América estuvo muy cerca del gol ante Atlético Nacional**: [Link](https://www.winsports.co/futbol-colombiano/noticias/america-estuvo-muy-cerca-del-gol-ante-atletico-nacional-390855)
+- **Nacional 4–1 América: Resultado, resumen y goles**: [Link](https://colombia.as.com/futbol/nacional-america-en-vivo-online-copa-betplay-en-directo-f202511-d/)
+
+
+### vombergar (N/A, 02/11/2025 20:59 Lima)
+
+- **Un delantero de San Lorenzo podría hacer las valijas**: [Link](https://www.ole.com.ar/san-lorenzo/san-lorenzo-alianza-lima-vombergar-contrato_0_yxIZxLANA8.html)
+- **Alianza Lima interesado en delantero goleador de club campeón de Copa Libertadores: Gorosito lo conoce**: [Link](https://bolavip.com/pe/alianza-lima/alianza-lima-interesado-en-delantero-goleador-de-club-campeon-de-copa-libertadores-gorosito-lo-conoce)
+- **Andrés Vombergar, voceado en Alianza Lima, sorprende con una gran noticia: "Tiene un precontrato..."**: [Link](https://libero.pe/futbol-peruano/alianza-lima/2025/11/02/andres-vombergar-voceado-en-alianza-lima-sorprende-gran-noticia-tiene-precontrato-59266)
+
+
+### tabla acumulada liga 1 (N/A, 02/11/2025 20:59 Lima)
+
+- **Tabla de posiciones de la Liga 1 Perú 2025 HOY: así van los equipos en la fecha 17 del Torneo Clausura y Acumulada**: [Link](https://www.infobae.com/peru/deportes/2025/10/31/tabla-de-posiciones-liga-1-peru-2025-en-vivo-hoy-acumulada-fecha-17-torneo-clausura-programacion-resultados/)
+- **Acumulado Liga 1 y tabla de posiciones del Torneo Clausura: clasificación y resultados de hoy**: [Link](https://libero.pe/futbol-peruano/liga-1/2025/10/30/acumulado-liga-1-peru-tabla-de-posiciones-del-torneo-clausura-en-fecha-17-2026868)
+- **Tabla acumulada de la Liga 1: Sporting Cristal se mete a los play offs y sigue la pelea entre Alianza Lima y Cusco FC por el segundo lugar**: [Link](https://trome.com/deportes/futbol-peruano/tabla-acumulada-de-la-liga1-sporting-cristal-se-mete-a-los-play-offs-y-la-lucha-alianza-lima-y-cusco-fc-video-noticia/)
+
+
+### tabla de posiciones liga 1 acumulado (N/A, 02/11/2025 20:59 Lima)
+
+- **Así se jugará la fecha 18 del Clausura de la Liga 1 2025**: [Link](https://www.espn.com.ar/futbol/peru/nota/_/id/15907055/programacion-de-la-fecha-18-del-clausura-liga-1-de-peru)
+- **¡Anótalo! Conoce cómo se jugará la penúltima fecha del Clausura**: [Link](https://ovacion.pe/noticias/liga1-te-apuesto-2025/anotalo-conoce-se-jugara-penultima-fecha-del-clausura)
+- **Tabla de posiciones de la Liga 1 Perú 2025 HOY: así van los equipos en la fecha 17 del Torneo Clausura y Acumulada**: [Link](https://www.infobae.com/peru/deportes/2025/10/31/tabla-de-posiciones-liga-1-peru-2025-en-vivo-hoy-acumulada-fecha-17-torneo-clausura-programacion-resultados/)
+
+
+### austin fc - lafc (N/A, 02/11/2025 20:59 Lima)
+
+- **Player Status Report | LAFC vs. Austin FC - Game 2 - 2025 MLS Cup Playoffs - Round One Best-of-3 Series**: [Link](https://www.lafc.com/news/player-status-report-lafc-vs-austin-fc-game-2-2025-mls-cup-playoffs-round-one-best-of-3-series-november-2)
+- **Son Heung-min Starts Second Leg as Central Forward**: [Link](https://www.chosun.com/english/sports-en/2025/11/03/SWFQPVQRGRF5BOLJCUUEH46TJ4/)
+- **Austin FC vs. Los Angeles FC: How to Watch, Odds, Game 2 Preview**: [Link](https://www.foxsports.com/stories/soccer/austin-fc-vs-los-angeles-fc-how-watch-odds-game-2-preview)
+
+
+### pachuca - guadalajara (N/A, 02/11/2025 20:59 Lima)
+
+- **Chivas domina a Pachuca y quiere prolongar su buena racha**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/15892964/chivas-vs-pachuca-liga-mx-2025-racha-victorias-consecutivas)
+- **Pachuca vs Chivas: posiciones EN VIVO para Liguilla**: [Link](https://www.365scores.com/es/news/pachuca-vs-chivas-posiciones-mexico-liga/)
+- **Link, Pachuca vs. Chivas en vivo: horarios, canales y dónde ver partido por Liga MX**: [Link](https://elcomercio.pe/deporte-total/mexico/pachuca-vs-chivas-en-vivo-online-gratis-hoy-via-caliente-tv-futbol-libre-tv-fox-sports-vix-horarios-canales-tv-y-donde-ver-partido-por-liga-mx-video-noticia/)
+
+
+### columbus crew - cincinnati (N/A, 02/11/2025 20:59 Lima)
+
+- **🚨 Columbus Crew blitz Cincinnati to keep season alive**: [Link](https://ca.sports.yahoo.com/news/columbus-crew-blitz-cincinnati-keep-013700149.html)
+- **MLS Cup Playoff match between Columbus Crew, FC Cincinnati**: [Link](https://www.dispatch.com/picture-gallery/sports/mls/columbus-crew/2025/11/02/columbus-crew-fc-cincinnati-mls-playoff-games/87040037007/)
+- **Arfsten, Crew avoid elimination, beat Cincinnati 4-0 to force decisive Game 3**: [Link](https://www.newsday.com/sports/soccer/cincinnati-crew-score-o62084)
+
+
+### river (N/A, 02/11/2025 20:59 Lima)
+
+- **New roof for Willow River seniors**: [Link](https://www.princegeorgecitizen.com/local-news/new-roof-for-willow-river-seniors-11389091)
+- **Croc immortalised by Steve Irwin rehomed at zoo after removal from Cape river**: [Link](https://www.cairnspost.com.au/news/cairns/old-faithful-rehomed-at-australia-zoo-after-removal-from-cape-river/news-story/36c8eb62b6c8a7f9f06d219d8684fc94)
+- **Gone south: Mystery croc relocated**: [Link](https://www.cairnspost.com.au/secretive-croc-moved-from-cairns-facility-but-key-details-remain-a-mystery/news-story/eeee8375d81796b6722ff3f2b121f68b)
+
+
+### paro 3 de noviembre (N/A, 02/11/2025 20:59 Lima)
+
+- **Paro de transportistas: Estos son los gremios de transporte urbano que paralizarán labores este 4 de noviembre**: [Link](https://rpp.pe/politica/actualidad/paro-de-transportistas-estos-son-los-gremios-de-transporte-urbano-que-paralizaran-labores-este-4-de-noviembre-noticia-1662059)
+- **¿Habrá paro el lunes 3 de noviembre en el Callao? Esto es lo que se sabe**: [Link](https://peru21.pe/lima/habra-paro-el-lunes-3-de-noviembre-en-el-callao-esto-es-lo-que-se-sabe/)
+- **Transportistas anuncian tres paros en Lima y Callao para noviembre 2025: estas son las fechas clave**: [Link](https://www.infobae.com/peru/2025/10/30/transportistas-anuncian-tres-paros-en-lima-y-callao-para-noviembre-2025-estas-son-las-fechas-clave/)
+
+
+### vasco da gama (N/A, 02/11/2025 20:59 Lima)
+
+- **Os pontos positivos e destaques do São Paulo na vitória sobre o Vasco pelo Brasileirão**: [Link](https://www.90min.com/pt-br/pontos-positivos-destaques-sao-paulo-vitoria-vasco-brasileirao-02-11-2025)
+- **Análise: Vasco se afoba ao sair atrás do placar e desperdiça chance de colar no G6 do Brasileiro com derrota para o São Paulo**: [Link](https://oglobo.globo.com/esportes/futebol/vasco/noticia/2025/11/02/analise-vasco-se-afoba-ao-sair-atras-do-placar-e-desperdica-chance-de-colar-no-g6-do-brasileiro-com-derrota-para-o-sao-paulo.ghtml)
+- **Rival: Organizada do São Paulo não vai conseguir comparecer a São Januário**: [Link](https://www.supervasco.com/noticias/rival-organizada-do-sao-paulo-nao-vai-conseguir-comparecer-a-sao-januario-431305.html)
+
+
 ### ac milan (N/A, 02/11/2025 15:23 Lima)
 
 - **Allegri ‘curious’ about Leao and Nkunku starting together: “Unexpected solutions”**: [Link](https://sempremilan.com/allegri-curious-leao-nkunku-together-solutions)
@@ -955,73 +1025,5 @@ Sin noticias relacionadas disponibles.
 - **Palmeiras vs. LDU Quito: Copa Libertadores betting odds, prediction, pick**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/10/30/palmeiras-vs-ldu-quito-libertadores-betting-odds-prediction-pick/86983103007/)
 - **Brazil Ecuador Soccer Copa Libertadores**: [Link](https://www.couriernews.com/sports/brazil-ecuador-soccer-copa-libertadores/image_3b9d2304-77ee-5b85-b03d-96c0040b2c7e.html)
 - **How to watch Palmeiras vs LDU Quito in the USA: Live Stream and TV for 2025 Copa Libertadores**: [Link](https://worldsoccertalk.com/watch-on-us-tv/how-to-watch-palmeiras-vs-ldu-quito-in-the-usa-live-stream-and-tv-for-2025-copa-libertadores/)
-
-
-### atlético nacional (N/A, 30/10/2025 20:54 Lima)
-
-- **Liga BetPlay: Así será la alineación de Nacional vs Llaneros**: [Link](https://www.espn.com.ar/futbol/colombia/nota/_/id/15892079/liga-betplay-2025-alineaciones-titulares-de-nacional-vs-llaneros-hoy)
-- **🔴EN VIVO | Llaneros vs. Nacional por un cupo a los 8 de la Liga Colombiana: siga acá el partidazo**: [Link](https://caracol.com.co/2025/10/31/en-vivo-llaneros-vs-nacional-por-un-cupo-a-los-8-de-la-liga-colombiana-siga-aca-el-partidazo/)
-- **Pronóstico Llaneros FC Atlético Nacional - Liga Postobon 30/10/25**: [Link](https://www.sportytrader.com/es/pronosticos/llaneros-fc-atletico-nacional-301503/)
-
-
-### allan (N/A, 30/10/2025 20:54 Lima)
-
-- **The Tao Of Allan Nascinmento**: [Link](https://www.ufc.com/news/the-tao-of-allan-nascimento-ufc-vegas-110)
-- **Cody Durden vs. Allan Nascimento prediction, odds, pick for UFC Vegas 110**: [Link](https://clutchpoints.com/betting/cody-durden-vs-allan-nascimento-prediction-odds-pick-for-ufc-vegas-110)
-- **Allan Nascimento vs Rafael Estevam Prediction 11/1/25 UFC Fight Night 263 Picks**: [Link](https://www.tonyspicks.com/2025/10/29/allan-nascimento-vs-rafael-estevam-prediction-11-1-25-ufc-fight-night-263-picks/)
-
-
-### vitor roque (N/A, 30/10/2025 20:54 Lima)
-
-- **La quiso terminar solo: Vitor Roque se pierde gol con Palmeiras vs. Liga de Quito | VIDEO**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/palmeiras-vs-liga-de-quito-vitor-roque-fallo-increible-ocasion-de-gol-en-partido-por-copa-libertadores-video-noticia/)
-- **Tottenham y Chelsea tras los pasos de Vitor Roque**: [Link](https://ovacion.pe/noticias/futbol-internacional/tottenham-chelsea-tras-pasos-vitor-roque)
-- **Liga de Quito defiende su ventaja ante Palmeiras para llegar a la final de la Libertadores**: [Link](https://www.espn.com.pe/futbol/copa-libertadores/nota/_/id/15876444/palmeiras-vs-liga-de-quito-por-conmebol-libertadores-equipo-fecha-hora-y-tv-en-vivo)
-
-
-### vladimiro montesinos (N/A, 30/10/2025 20:54 Lima)
-
-- **Vladimiro Montesinos no será liberado el 2026: INPE confirma nueva condena por 6 años**: [Link](https://andina.pe/agencia/noticia-vladimiro-montesinos-no-sera-liberado-2026-inpe-confirma-nueva-condena-6-anos-1050190.aspx)
-- **Exasesor de Alberto Fujimori seguirá preso hasta 2032 tras recibir nueva condena**: [Link](https://deultimominuto.net/internacionales/asesor-fujimori-preso-hasta-2032/)
-- **Vladimiro Montesinos no saldrá de la cárcel en 2026: INPE confirmó nueva condena | PERU**: [Link](https://gestion.pe/peru/politica/vladimiro-montesinos-no-saldra-de-la-carcel-en-2026-inpe-confirmo-nueva-condena-noticia/)
-
-
-### the strongest vs oriente petrolero (N/A, 30/10/2025 20:54 Lima)
-
-Sin noticias relacionadas disponibles.
-
-
-### scream (N/A, 30/10/2025 20:54 Lima)
-
-- **‘Scream 7’ Trailer Revives Backlash Over Melissa Barrera Firing As Fans Call For Boycott**: [Link](https://deadline.com/2025/10/scream-7-trailer-backlash-boycott-melissa-barrera-firing-1236603348/)
-- **’Tis the (spooky) season: ‘Scream 7’ and ‘Stranger Things 5’ trailers deliver double dose of scares**: [Link](https://www.cnn.com/2025/10/30/entertainment/scream-stranger-things-trailers)
-- **‘Scream 7’ Trailer: Neve Campbell Returns to Face Ghostface in the Franchise’s Next Chapter**: [Link](https://www.hollywoodreporter.com/movies/movie-news/scream-7-trailer-neve-campbell-ghostface-1236413232/)
-
-
-### ignacio buse (N/A, 30/10/2025 20:54 Lima)
-
-- **Ignacio Buse vs. Juan Torres EN VIVO: se enfrentan por octavos de final del Challenger de Lima**: [Link](https://rpp.pe/tenis/mas-tenis/ignacio-buse-vs-olivieri-en-vivo-octavos-final-lima-challenger-2025-a-que-hora-juegan-y-donde-ver-por-tv-via-atp-tour-link-gratis-partidos-de-hoy-noticia-1661601)
-- **Ignacio Buse quiere hacer respetar la casa: Tenista peruano debutará el martes en Challenger de Lima**: [Link](https://www.exitosanoticias.pe/deportes/ignacio-buse-quiere-hacer-respetar-casa-tenista-peruano-debutara-martes-challenger-lima-n161633)
-- **¡Con pie derecho! Buse venció a Roncadelli y avanzó a octavos en Los Inkas Open 2025**: [Link](https://ovacion.pe/noticias/tenis/pie-derecho-buse-vencio-roncadelli-avanzo-octavos-inkas-open-2025)
-
-
-### palmeiras (N/A, 30/10/2025 20:54 Lima)
-
-- **Vitor Roque leva cartão amarelo em vitória parcial do Palmeiras contra LDU**: [Link](https://www.mixvale.com.br/2025/10/30/vitor-roque-leva-cartao-amarelo-em-vitoria-parcial-do-palmeiras-contra-ldu/)
-- **Felipe Melo se rende ao Flamengo em rede nacional após classificação na Libertadores: “um time que sabe jogar”**: [Link](https://br.bolavip.com/amp/campeonato-libertadores/felipe-melo-se-rende-ao-flamengo-em-rede-nacional-apos-classificacao-na-libertadores-um-time-que-sabe-jogar)
-- **Vídeo: torcedores fazem festa em chegada de ônibus do Palmeiras; veja**: [Link](https://www.metropoles.com/esportes/video-torcedores-fazem-festa-em-chegada-de-onibus-do-palmeiras-veja)
-
-
-### bucks - warriors (N/A, 30/10/2025 20:54 Lima)
-
-- **Live Updates: Top moments from Warriors-Bucks, Heat-Spurs**: [Link](https://www.nba.com/news/live-updates-warriors-bucks-heat-suports)
-- **LIVE~Spurs vs Heat Live On Free NBA Game 2025**: [Link](https://www.piquenewsmagazine.com/classifieds/business-services/accountingbookkeeping/2042178)
-- **Is Stephen Curry playing tonight against the Milwaukee Bucks? Latest update on the Golden State Warriors star’s injury report (October 30, 2025)**: [Link](https://www.msn.com/en-in/sports/other/is-stephen-curry-playing-tonight-against-the-milwaukee-bucks-latest-update-on-the-golden-state-warriors-star-s-injury-report-october-30-2025/ar-AA1Pwd0u)
-
-
-### julio velarde (N/A, 30/10/2025 15:26 Lima)
-
-- **José Jerí, Denisse Miralles y Julio Velarde se reunieron para fortalecer la confianza y el crecimiento del país**: [Link](https://rpp.pe/economia/economia/jose-jeri-mef-y-bcr-se-reunieron-presidente-tuvo-encuentro-con-denisse-miralles-y-julio-velarde-para-fortalecer-confianza-y-crecimiento-del-pais-noticia-1661571)
-- **José Jerí reafirmó compromiso con estabilidad económica**: [Link](https://caretas.pe/politica/jose-jeri-reafirmo-compromiso-con-estabilidad-economica/)
-- **Gobierno reafirma compromiso con la estabilidad económica y la solidez fiscal del país**: [Link](https://elperuano.pe/noticia/281914-gobierno-reafirma-compromiso-con-la-estabilidad-economica-y-la-solidez-fiscal-del-pais)
 
 
