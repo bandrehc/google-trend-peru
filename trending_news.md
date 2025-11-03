@@ -1,3 +1,45 @@
+### pedro aquino (N/A, 02/11/2025 23:32 Lima)
+
+- **Pedro Aquino fuera de lista en Alianza Lima y no por lesión: "Es un tema..."**: [Link](https://libero.pe/futbol-peruano/alianza-lima/2025/10/30/pedro-aquino-fuera-de-lista-en-alianza-lima-lesion-es-tema-1134720)
+- **Explotó Matute: empate agónico de Alianza vs. Melgar en el úlitmo minuto del partido por Liga 1 | VIDEO**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/gol-de-renzo-garces-hoy-con-alianza-lima-vs-melgar-por-el-torneo-clausura-de-la-liga-1-video-noticia/)
+- **Orzán se molestó por penal a Guerrero y lamentó empate**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/orzan-se-molesto-penal-cobrado-guerrero-y-lamento-empate-n451556)
+
+
+### leslie moscoso (N/A, 02/11/2025 23:32 Lima)
+
+- **El Valor de la Verdad EN VIVO: Leslie Moscoso revelará todo el drama que vivió con su exesposo**: [Link](https://www.infobae.com/peru/2025/11/02/el-valor-de-la-verdad-en-vivo-leslie-moscoso-revelara-todo-el-drama-que-vivio-con-su-exesposo/)
+- **Luisito Sánchez por revelaciones de Leslie Moscoso: "Ella es una mujer grande. Solo me importa el bienestar de mi hijo"**: [Link](https://www.atv.pe/noticia/luisito-sanchez-por-revelaciones-de-leslie-moscoso-ella-es-una-mujer-grande-solo-me-importa-el-bienestar-de-mi-hijo/)
+- **Luisito Sánchez ANGUSTIADO por su hijo ante DESGARRADORAS confesiones de Leslie Moscoso en 'EVDLV'**: [Link](https://elpopular.pe/espectaculos/2025/10/31/luisito-sanchez-angustiado-por-su-hijo-ante-desgarradoras-confesiones-de-leslie-moscoso-en-evdlv-1627190)
+
+
+### paro de transportistas (N/A, 02/11/2025 23:32 Lima)
+
+- **Transportistas del Callao convocan a un paro para el lunes 3 de noviembre por el aumento de extorsiones**: [Link](https://rpp.pe/peru/callao/transportistas-del-callao-convocan-a-un-paro-para-el-lunes-3-de-noviembre-por-el-aumento-de-extorsiones-noticia-1661917)
+- **Gremios de transporte no apoyarán paralización**: [Link](https://elperuano.pe/noticia/282009-gremios-de-transporte-no-apoyaran-paralizacion)
+- **Miguel Palomino: "Nosotros ya no confiamos en José Jerí"**: [Link](https://panamericana.pe/2025-en-24-horas/politica/457494-miguel-palomino-confiamos-jose-jeri)
+
+
+### lakers - heat (N/A, 02/11/2025 23:32 Lima)
+
+- **Miami Heat vs Los Angeles Lakers Prediction, Pick, Odds -- 11/2**: [Link](https://www.actionnetwork.com/nba/miami-heat-vs-los-angeles-lakers-prediction-pick-odds-sunday-november-2)
+- **Heat vs Lakers: Best NBA Player Props and Picks for Nov. 2**: [Link](https://www.thelines.com/heat-vs-lakers-best-nba-player-props-and-picks-for-nov-2/)
+- **Lakers vs. Heat Injury Report – Nov. 2**: [Link](https://foxsports990.iheart.com/content/2025-11-02-lakers-vs-heat-injury-report-nov-2/)
+
+
+### suns - spurs (N/A, 02/11/2025 23:32 Lima)
+
+- **Stephon Castle Prepared for Spurs’ Intense Showdown Against Suns**: [Link](https://www.el-balad.com/6753820)
+- **NBA fans troll Victor Wembanyama for disappointing 9-point display in Spurs loss**: [Link](https://www.thebiglead.com/nba-fans-troll-victor-wembanyama-for-disappointing-9-point-display-in-spurs-loss/)
+- **PREGAME: Can Phoenix Suns, Devin Booker CONTAIN Wemby, Hand Spurs 1st Loss?**: [Link](https://bvmsports.com/2025/11/02/pregame-can-phoenix-suns-devin-booker-contain-wemby-hand-spurs-1st-loss/)
+
+
+### liga argentina tabla (N/A, 02/11/2025 23:32 Lima)
+
+- **Cómo quedaron Boca y River en la tabla anual y la clasificación a la Copa Libertadores 2026**: [Link](https://www.tycsports.com/river-plate/como-quedo-boca-en-la-tabla-anual-y-la-clasificacion-a-la-copa-libertadores-2026-id696112.html)
+- **Con Boca a un paso de la Libertadores y River comprometido: las posiciones del Clausura, la clasificación a las copas y la permanencia**: [Link](https://www.infobae.com/deportes/2025/11/02/boca-a-un-paso-de-la-libertadores-asi-estan-las-posiciones-del-clausura-la-clasificacion-a-las-copas-y-la-lucha-por-la-permanencia/)
+- **Boca, a un paso de la Libertadores, y River quedó muy complicado**: [Link](https://www.ole.com.ar/futbol-internacional/libertadores/lucha-boca-river-libertadores-mano-mano-clasificacion_0_4Q8Jvvjdrs.html)
+
+
 ### atlético nacional - américa (N/A, 02/11/2025 20:59 Lima)
 
 - **Pronósticos Nacional vs. América: clásico para crear apuesta a 2,47**: [Link](https://www.futbolred.com/apuestas/pronosticos-nacional-vs-america-copa-betplay-semifinales-01-11-2025-258038)
@@ -983,47 +1025,5 @@ Sin noticias relacionadas disponibles.
 - **Ex-auxiliar do Corinthians relembra bastidores e fala em falta de valorização de técnico**: [Link](https://www.meutimao.com.br/noticias-do-corinthians/519275/ex-auxiliar-do-corinthians-relembra-bastidores-e-fala-em-falta-de-valorizacao-de-tecnico)
 - **Tiago Nunes dá a volta por cima e pode recolocar a LDU na final da Libertadores após 17 anos**: [Link](https://www.ogol.com.br/noticias/tiago-nunes-da-a-volta-por-cima-e-pode-recolocar-a-ldu-na-final-da-libertadores-apos-17-anos/962257)
 - **Palmeiras x LDU: time equatoriano tem novidades para tentar voltar à final da Libertadores após 17 anos**: [Link](https://somosfanaticos.fans/br/copa-libertadores/palmeiras-x-ldu-time-equatoriano-tem-novidades-para-tentar-voltar-a-final-da-libertadores-apos-17-anos)
-
-
-### palmeira (N/A, 30/10/2025 23:29 Lima)
-
-- **Palmeira que ‘anda’? Entenda por que planta nativa carrega mito de caminhar pela floresta**: [Link](https://g1.globo.com/sp/campinas-regiao/terra-da-gente/noticia/2025/10/29/palmeira-que-anda-entenda-por-que-planta-nativa-carrega-mito-de-caminhar-pela-floresta.ghtml)
-- **Árvore com "pernas de aranha" que se acreditava caminhar tem seu segredo explicado**: [Link](https://defatoonline.com.br/mundo/arvore-com-pernas-de-aranha-que-se-acreditava-caminhar-tem-seu-segredo-explicado/)
-- **Existe palmeira que anda? O que é mito e o que é ciência por trás da Socratea exorrhiza, espécie amazônica que viralizou**: [Link](https://g1.globo.com/meio-ambiente/noticia/2025/10/25/existe-palmeira-que-anda-o-que-e-mito-e-o-que-e-ciencia-por-tras-da-socratea-exorrhiza-especie-amazonica-que-viralizou.ghtml)
-
-
-### cuando es la final de la libertadores 2025 (N/A, 30/10/2025 23:29 Lima)
-
-- **Flamengo vuelve a la final de la Copa Libertadores en busca del cuarto título**: [Link](https://cnnespanol.cnn.com/2025/10/29/deportes/flamengo-final-copa-libertadores-efe)
-- **Filipe Luis acaricia la gloria**: [Link](https://as.com/futbol/internacional/filipe-luis-acaricia-la-gloria-f202510-n/)
-- **El mensaje de Diego Milito tras la eliminación y fin del sueño de Racing en la Libertadores**: [Link](https://www.espn.com.ar/futbol/copa-libertadores/nota/_/id/15890635/el-mensaje-de-diego-milito-tras-la-eliminacion-y-fin-del-sueno-de-racing-en-la-libertadores)
-
-
-### final libertadores 2025 (N/A, 30/10/2025 23:29 Lima)
-
-- **CONMEBOL y PUMA presentan el balón oficial de la Final de la CONMEBOL Libertadores 2025**: [Link](https://www.conmebol.com/noticias/conmebol-y-puma-presentan-el-balon-oficial-de-la-final-de-la-conmebol-libertadores-2025/)
-- **¿Cuándo es la Final de la Copa Libertadores 2025? Fecha, sede y cuándo se juega la final**: [Link](https://as.com/futbol/internacional/cuando-es-la-final-de-la-copa-libertadores-2025-fecha-sede-y-cuando-se-juega-la-final-f202510-n/)
-- **Cuándo se juega la final de la Copa Libertadores 2025**: [Link](https://www.ole.com.ar/futbol-internacional/libertadores/juega-final-copa-libertadores-2025-flamengo-dia-ver_0_WVHXQP8iPp.html)
-
-
-### raphael veiga (N/A, 30/10/2025 23:29 Lima)
-
-- **Goleiro Domínguez enrola contra o Palmeiras e árbitro Wilmar Roldán permite cera da LDU**: [Link](https://br.bolavip.com/campeonato-libertadores/goleiro-dominguez-enrola-contra-o-palmeiras-e-arbitro-wilmar-roldan-permite-cera-da-ldu)
-- **Allan detalha papo com Abel, e Veiga diz que sempre vai dar 'cara a tapa'**: [Link](https://www.bol.uol.com.br/esporte/2025/10/31/veiga-palmeiras-ldu.htm)
-- **Vitor Roque exalta torcida e celebra classificação: 'Mágica'**: [Link](https://www.lance.com.br/palmeiras/vitor-roque-exalta-torcida-e-celebra-classificacao-magica.html)
-
-
-### palmeras vs (N/A, 30/10/2025 23:29 Lima)
-
-- **Palmeiras beats Liga Deportiva 4-0 to reach Copa Libertadores final**: [Link](https://www.10tv.com/article/syndication/associatedpress/palmeiras-beats-liga-deportiva-4-0-to-reach-copa-libertadores-final/616-252297c5-4699-4316-87a4-a6622e645090)
-- **APTOPIX Brazil Ecuador Soccer Copa Libertadores**: [Link](https://www.chronicleonline.com/sports/soccer/brazil-ecuador-soccer-copa-libertadores/image_d7589a60-6a0c-5b0c-9b93-05afbe84ee29.html)
-- **Ecuador's Liga de Quito beats Brazil's Palmeiras 3-0 in 1st leg of Copa Libertadores semifinal**: [Link](https://apnews.com/article/copa-libertadores-soccer-liga-de-quito-palmeiras-e195f3bc31fb1e93303bcd95f3a28f9a)
-
-
-### palmeiras versus (N/A, 30/10/2025 20:54 Lima)
-
-- **Palmeiras vs. LDU Quito: Copa Libertadores betting odds, prediction, pick**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/10/30/palmeiras-vs-ldu-quito-libertadores-betting-odds-prediction-pick/86983103007/)
-- **Brazil Ecuador Soccer Copa Libertadores**: [Link](https://www.couriernews.com/sports/brazil-ecuador-soccer-copa-libertadores/image_3b9d2304-77ee-5b85-b03d-96c0040b2c7e.html)
-- **How to watch Palmeiras vs LDU Quito in the USA: Live Stream and TV for 2025 Copa Libertadores**: [Link](https://worldsoccertalk.com/watch-on-us-tv/how-to-watch-palmeiras-vs-ldu-quito-in-the-usa-live-stream-and-tv-for-2025-copa-libertadores/)
 
 
