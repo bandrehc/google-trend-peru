@@ -1,3 +1,71 @@
+### fonavi reintegro (N/A, 03/11/2025 03:34 Lima)
+
+- **FONAVI 2025: Consulta con tu DNI si tienes dinero pendiente por cobrar**: [Link](https://elcomercio.pe/respuestas/tramites/aun-no-cobras-el-fonavi-verifica-con-tu-dni-los-pagos-pendientes-de-la-lista-22-y-mas-tdpe-noticia/)
+- **Fonavistas del Perú pueden cobrar la devolución de aportes de estos reintegros y listas aprobadas en 2025, vía Banco de la Nación**: [Link](https://larepublica.pe/economia/2025/10/29/fonavistas-del-peru-pueden-cobrar-la-devolucion-de-aportes-de-estos-reintegros-y-listas-aprobadas-en-2025-via-banco-de-la-nacion-atmp-2346129)
+- **💵 Destacó las cuatro reglas fiscales que sostienen la credibilidad.**: [Link](https://www.facebook.com/diario.expreso/posts/-destac%C3%B3-las-cuatro-reglas-fiscales-que-sostienen-la-credibilidad/1248508743973401/)
+
+
+### 3 de noviembre es feriado nacional (N/A, 03/11/2025 03:34 Lima)
+
+- **¿Habrá feriado largo el 3 y 4 de noviembre? Esto dice el decreto publicado en El Peruano**: [Link](https://www.infobae.com/peru/2025/11/01/habra-feriado-largo-el-3-y-4-de-noviembre-esto-dice-el-decreto-publicado-en-el-peruano/)
+- **¡Atención padres y alumnos! Minedu aclara si habrá o no clases este lunes 3 de noviembre | tdpe | RESPUESTAS**: [Link](https://elcomercio.pe/respuestas/que/atencion-padres-y-alumnos-minedu-aclara-si-habra-o-no-clases-este-lunes-3-de-noviembre-tdpe-noticia/)
+- **¿Será día no laborable o feriado este lunes 3 de noviembre?**: [Link](https://latinanoticias.pe/te-ayudo/sera-dia-no-laborable-o-feriado-este-lunes-3-de-noviembre_20251101/)
+
+
+### avianca (N/A, 03/11/2025 03:34 Lima)
+
+- **Thousands of Travelers Impacted Across Colombia and Mexico as Avianca, AeroMéxico, Volaris, and United Cancel 104 Flights with Multiple Delays, Affecting Medellín, San Andrés, Montería, Cali, Mexico City and Beyond**: [Link](https://www.travelandtourworld.com/news/article/thousands-of-travelers-impacted-across-colombia-and-mexico-as-avianca-aeromexico-volaris-and-united-cancel-104-flights-with-multiple-delays-affecting-medellin-san-andres-monteria-cali-mexico-c/)
+- **Cartagena air travel**: [Link](https://www.travelandtourworld.com/news/article/tag/cartagena-air-travel/)
+- **Passengers across Colombia Experiences Travel Disruption as Airports in Bogotá, Cali, Pasto, Cartagena, Bucaramanga and more Faces over a Dozen Flight Cancellations with Multiple Delays by Avianca, What You Need to Know**: [Link](https://www.travelandtourworld.com/news/article/passengers-across-colombia-experiences-travel-disruption-as-airports-in-bogota-cali-pasto-cartagena-bucaramanga-and-more-faces-over-a-dozen-flight-cancellations-with-multiple-delays-by-avianca-what-yo/)
+
+
+### huawei (N/A, 03/11/2025 03:34 Lima)
+
+Sin noticias relacionadas disponibles.
+
+
+### jetsmart (N/A, 03/11/2025 03:34 Lima)
+
+- **Paro en JetSMART: denuncian despidos y reemplazo de tripulación argentina | La low cost enfrenta un nuevo conflicto**: [Link](https://www.pagina12.com.ar/870471-paro-en-jetsmart-denuncian-despidos-y-reemplazo-de-tripulaci)
+- **El gremio de los trabajadores de JetSmart amenaza con un paro de 24 horas, mientras la empresa niega los cargos y dice estar abierta al diálogo**: [Link](https://www.aviacionnews.com/2025/11/gremiojetsmart/)
+- **Paro en Jetsmart por despidos y contrato temporal de extranjeros**: [Link](https://www.reportur.com/argentina/2025/11/02/paro-en-jetsmart-por-despidos-y-contrato-temporal-de-extranjeros/)
+
+
+### iphone 16 pro (N/A, 03/11/2025 03:34 Lima)
+
+- **​5 Phones That Can Beat iPhone 16 Pro In 2025​**: [Link](https://www.timesnownews.com/technology-science/5-phones-that-can-beat-iphone-16-pro-in-2025-photo-gallery-153081215)
+- **5 Android phones just as powerful as the iPhone 17 Pro Max in 2025**: [Link](https://www.vanguardngr.com/2025/10/5-android-phones-just-as-powerful-as-the-iphone-17-pro-max-in-2025/)
+- **Top 5 Smartphones That Will Beat the iPhone 16 Pro in 2025**: [Link](https://www.timesbull.com/gadgets/top-5-smartphones-that-will-beat-the-iphone-16-pro-in-2025-640264.html)
+
+
+### iphone 16 pro max (N/A, 03/11/2025 03:34 Lima)
+
+- **Amazon now offering new lows on 1TB iPhone 16 Pro at $600 off + more configs (Renewed Premium)**: [Link](https://9to5toys.com/2025/10/31/amazon-best-price-iphone-16-pro/)
+- **Exact times to buy new tech each year & you'll save £100s with lowest iPhone, Ring doorbell, Fire Stick and TV prices**: [Link](https://www.thesun.co.uk/tech/37155221/exact-time-buy-tech-iphone-tv-sky-discounts/)
+- **iPhone 17 price drops like never before; iPhone 16 price drops sharply**: [Link](https://vietbao.vn/en/iphone-17-rot-gia-chua-tung-co-gia-iphone-16-giam-sau-571586.html)
+
+
+### black friday (N/A, 03/11/2025 03:34 Lima)
+
+- **Amazon early Black Friday deals are here — shop Lenovo, Apple and more to kick off the biggest sale of the year**: [Link](https://www.yahoo.com/lifestyle/deals/article/amazon-early-black-friday-deals-are-here--shop-lenovo-apple-and-more-to-kick-off-the-biggest-sale-of-the-year-171349140.html)
+- **Retailers Like Amazon, Walmart, and Williams Sonoma Just Dropped Major Deals on Holiday Must-Haves**: [Link](https://www.allrecipes.com/early-black-friday-deals-2025-11838450)
+- **7 Black Friday Sales That Have Already Started (Yes, You Read That Right)—From Kate Spade, Amazon, and More**: [Link](https://www.realsimple.com/early-black-friday-deals-11-1-2025-11838421)
+
+
+### marathon (N/A, 03/11/2025 03:34 Lima)
+
+- **The NYC Marathon in Photos and Videos**: [Link](https://www.nytimes.com/2025/11/02/nyregion/nyc-marathon-photos-videos.html)
+- **Hellen Obiri: Millions She Pocketed After Smashing 22-Year-Old Record at New York City Marathon**: [Link](https://www.pulsesports.co.ke/athletics/story/hellen-obiri-millions-she-pocketed-after-smashing-22-year-old-record-at-new-york-city-marathon-2025110304032281803)
+- **Obiri sets women's NYC Marathon course record, Kipruto wins men's race by a fraction of a second**: [Link](https://www.msn.com/en-gb/sport/cycling/obiri-sets-women-s-nyc-marathon-course-record-kipruto-wins-men-s-race-by-a-fraction-of-a-second/ar-AA1PFA1V)
+
+
+### curacao (N/A, 03/11/2025 03:34 Lima)
+
+- **11 Places in the Caribbean to Visit in November, from South Eleuthera to Curaçao**: [Link](https://www.caribjournal.com/2025/10/31/places-in-the-caribbean-to-visit-this-november/)
+- **11 Places in the Caribbean to Visit in November, from South Eleuthera to Curaçao**: [Link](https://www.caribjournal.com/2025/10/31/places-in-the-caribbean-to-visit-this-november/3/)
+- **11 Places in the Caribbean to Visit in November, from South Eleuthera to Curaçao**: [Link](https://www.caribjournal.com/2025/10/31/places-in-the-caribbean-to-visit-this-november/11/)
+
+
 ### pedro aquino (N/A, 02/11/2025 23:32 Lima)
 
 - **Pedro Aquino fuera de lista en Alianza Lima y no por lesión: "Es un tema..."**: [Link](https://libero.pe/futbol-peruano/alianza-lima/2025/10/30/pedro-aquino-fuera-de-lista-en-alianza-lima-lesion-es-tema-1134720)
@@ -955,75 +1023,5 @@ Sin noticias relacionadas disponibles.
 - **Partidos de hoy, 30 de octubre: Horario y canal EN VIVO**: [Link](https://www.americatv.com.pe/deportes/futbol-mundial/partidos-hoy-30-octubre-horarios-y-transmisiones-n451533)
 - **Partidos de hoy, jueves 30 de octubre del 2025: horarios y canales TV para ver EN VIVO Copa Libertadores y Sudamericana**: [Link](https://rpp.pe/futbol/futbol-mundial/partidos-de-hoy-peru-jueves-30-de-octubre-del-2025-horarios-y-canales-tv-ver-futbol-en-vivo-noticia-1661534)
 - **Partidos de hoy, jueves 30 de octubre: horarios y dónde puedo ver fútbol en vivo**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/partidos-de-hoy-jueves-30-de-octubre-del-2025-resultados-horarios-canales-tv-y-donde-ver-futbol-en-vivo-noticia/)
-
-
-### twitch (N/A, 31/10/2025 03:31 Lima)
-
-- **Justin Bieber 'Excited and Working Hard' as He Prepares for First Headlining Coachella Set: Source (Exclusive)**: [Link](https://people.com/justin-bieber-excited-working-hard-coachella-prep-exclusive-11839821)
-- **Truth About Justin Bieber’s Twitch Debut — Source**: [Link](https://www.realitytea.com/2025/10/30/justin-bieber-twitch-coachella-fans/)
-- **Justin Bieber gives update on career plans after Swag success**: [Link](https://www.thenews.com.pk/latest/1354544-justin-bieber-gives-update-on-career-plans-after-swag-success)
-
-
-### valtteri bottas (N/A, 31/10/2025 03:31 Lima)
-
-- **What we know about Perez and Cadillac's Ferrari F1 test**: [Link](https://www.the-race.com/formula-1/what-we-know-about-perez-and-cadillacs-ferrari-f1-test/)
-- **Sergio Perez confirmed for Ferrari drive after signing F1 comeback deal**: [Link](https://www.express.co.uk/sport/f1-autosport/2125872/Sergio-Perez-Ferrari-Cadillac-test)
-- **Perez’s F1 return takes shape with Ferrari test at Imola**: [Link](https://www.gpblog.com/en/news/perezs-f1-return-takes-shape-with-ferrari-test-at-imola)
-
-
-### abel ferreira (N/A, 31/10/2025 03:31 Lima)
-
-- **Abel chora, admite mágoa com parte da torcida verde e ganha afago de Leila Pereira**: [Link](https://www1.folha.uol.com.br/esporte/2025/10/abel-chora-admite-magoa-com-parte-da-torcida-verde-e-ganha-afago-de-leila-pereira.shtml)
-- **Leila Pereira reage à vitória do Palmeiras sobre a LDU: ‘Noite mágica’**: [Link](https://noataque.com.br/futebol/libertadores-da-america/time/palmeiras/noticia/2025/10/31/leila-pereira-reage-a-vitoria-do-palmeiras-sobre-a-ldu-noite-magica/)
-- **6h Remontada na Libertadores. Palmeiras de Abel Ferreira na final**: [Link](https://www.rtp.pt/noticias/noticiario-antena1/6h-remontada-na-libertadores-palmeiras-de-abel-ferreira-na-final_a1_1695063)
-
-
-### olimpia vs alajuelense (N/A, 31/10/2025 03:31 Lima)
-
-- **Olimpia-Alajuelense EN VIVO: cómo va la semifinal**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/olimpia-vs-liga-alajuelense-en-vivo-gratis-hoy-via-futbol-libre-tv-espn-disney-plus-horarios-canales-tv-y-donde-ver-semifinal-de-copa-centroamericana-video-noticia/)
-- **La Liga sacó su casta de León y jugará la final de la Copa Centroamericana ante Xelajú**: [Link](https://espndeportes.espn.com/futbol/costa-rica/nota/_/id/15892953/olimpia-alajuelense-semifinal-copa-centroamericana-empate-anthony-hernandez)
-- **¡Taquito mundial! Bengtson se sacó un conejo del sombrero y Benguché abrió el marcador en el Olimpia vs Alajuelense**: [Link](https://www.diez.hn/videos/taquito-mundial-bengtson-se-saco-un-conejo-del-sombrero-y-benguche-abrio-el-marcador-en-el-olimpia-vs-alajuelense-PF27997989)
-
-
-### final sudamericana 2025 (N/A, 31/10/2025 03:31 Lima)
-
-- **Va por la tercera y la vencida: Lanús tendrá su revancha ante Atlético Mineiro**: [Link](https://www.espn.com.ar/futbol/copa-sudamericana/nota/_/id/15893136/todos-los-partidos-de-lanus-vs-atletico-mineiro-final-asuncion)
-- **Se definen a los finalistas hacia la Gran Conquista**: [Link](https://www.conmebol.com/noticias/se-definen-a-los-finalistas-hacia-la-gran-conquista/)
-- **Atención Lanús: cuándo y dónde es la final de la Copa Sudamericana vs. Atlético Mineiro**: [Link](https://www.ole.com.ar/futbol-internacional/sudamericana/final-copa-sudamericana-2025_0_TP2NftY3Ae.html)
-
-
-### olimpia vs (N/A, 30/10/2025 23:29 Lima)
-
-- **Olimpia-Alajuelense EN VIVO: cuánto va la semifinal por Copa Centroamericana**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/olimpia-vs-liga-alajuelense-en-vivo-gratis-hoy-via-futbol-libre-tv-espn-disney-plus-horarios-canales-tv-y-donde-ver-semifinal-de-copa-centroamericana-video-noticia/)
-- **Boniek García expresa su deseo de regresar a las canchas para el Olimpia vs Alajuelense**: [Link](https://www.diez.hn/videos/boniek-garcia-expresa-su-deseo-de-regresar-a-las-canchas-para-el-olimpia-vs-alajuelense-JF27996294)
-- **Policía Nacional de Honduras**: [Link](https://www.facebook.com/PoliciaNacionaldeHonduras/photos/d41d8cd9/1154373126885662/)
-
-
-### spurs - heat (N/A, 30/10/2025 23:29 Lima)
-
-- **Victor Wembanyama dominates Heat: 27 points, 18 rebounds, 5 blocks**: [Link](https://www.nba.com/watch/video/victor-wembanyama-27-points-highlights-vs-miami-heat)
-- **Kel'el Ware disappoints, but one star shows out in Heat's loss to Spurs**: [Link](https://www.si.com/nba/heat/onsi/news/kel-el-ware-disappoints-but-one-star-shows-out-in-heat-s-loss-to-spurs-01k8vp5cr3rk)
-- **3 Takeaways as Wembanyama's Spurs make history**: [Link](https://www.expressnews.com/sports/spurs/article/3-takeaways-wembanyama-s-spurs-make-history-21130316.php)
-
-
-### feriado largo (N/A, 30/10/2025 23:29 Lima)
-
-- **Es oficial: este es el próximo feriado largo 2025 en Perú que traerá cuatro días de descanso**: [Link](https://www.infobae.com/peru/2025/10/28/feriado-largo-en-peru-2025-estos-trabajadores-tendran-cuatro-dias-de-descanso/)
-- **Feriados en noviembre 2025 en Perú: conoce todos los días no laborables del mes y prepárate para hacer planes**: [Link](https://elcomercio.pe/respuestas/cuando/feriados-en-noviembre-2025-en-peru-conoce-todos-los-dias-no-laborables-del-mes-y-preparate-para-hacer-planes-tdpe-noticia/)
-- **Feriados 2025 en Perú: lista de fechas libres pendientes hasta fin de año**: [Link](https://www.expreso.com.pe/economia/feriados-2025-en-peru-lista-de-fechas-libres-pendientes-hasta-fin-de-ano-lima-regiones-provincias-noticia/1234809/)
-
-
-### final copa sudamericana 2025 (N/A, 30/10/2025 23:29 Lima)
-
-- **Atención Lanús: cuándo y dónde es la final de la Copa Sudamericana vs. Atlético Mineiro**: [Link](https://www.ole.com.ar/futbol-internacional/sudamericana/final-copa-sudamericana-2025_0_TP2NftY3Ae.html)
-- **Se definen a los finalistas hacia la Gran Conquista**: [Link](https://www.conmebol.com/noticias/se-definen-a-los-finalistas-hacia-la-gran-conquista/)
-- **Títulos internacionales de Lanús y finales jugadas**: [Link](https://www.365scores.com/es/news/titulos-internacionales-lanus-finales/)
-
-
-### tiago nunes (N/A, 30/10/2025 23:29 Lima)
-
-- **Ex-auxiliar do Corinthians relembra bastidores e fala em falta de valorização de técnico**: [Link](https://www.meutimao.com.br/noticias-do-corinthians/519275/ex-auxiliar-do-corinthians-relembra-bastidores-e-fala-em-falta-de-valorizacao-de-tecnico)
-- **Tiago Nunes dá a volta por cima e pode recolocar a LDU na final da Libertadores após 17 anos**: [Link](https://www.ogol.com.br/noticias/tiago-nunes-da-a-volta-por-cima-e-pode-recolocar-a-ldu-na-final-da-libertadores-apos-17-anos/962257)
-- **Palmeiras x LDU: time equatoriano tem novidades para tentar voltar à final da Libertadores após 17 anos**: [Link](https://somosfanaticos.fans/br/copa-libertadores/palmeiras-x-ldu-time-equatoriano-tem-novidades-para-tentar-voltar-a-final-da-libertadores-apos-17-anos)
 
 
