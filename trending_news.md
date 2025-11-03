@@ -1,3 +1,70 @@
+### defensa y justicia vs (N/A, 03/11/2025 15:27 Lima)
+
+- **Defensa vs Huracán: resultado EN VIVO y estadísticas de la Liga Profesional**: [Link](https://www.365scores.com/es/news/defensa-vs-huracan-vivo-partido-liga/)
+- **La previa de Defensa vs Huracán**: [Link](https://www.defensayjusticia.org.ar/la-previa-de-defensa-vs-huracan/)
+- **Defensa y Justicia vs Huracán por el Torneo Clausura 2025: minuto a minuto, en directo**: [Link](https://marcapersonalweb.com.ar/2025/11/03/defensa-y-justicia-vs-huracan-por-el-torneo-clausura-2025-minuto-a-minuto-en-directo/)
+
+
+### platense - sarmiento (N/A, 03/11/2025 15:27 Lima)
+
+- **La Previa: Recibe a Sarmiento con la urgencia de romper la racha**: [Link](https://cap.org.ar/2025/11/la-previa-recibe-a-sarmiento-con-la-urgencia-de-romper-la-racha/)
+- **Tras la salida del Kily González, Platense busca cortar la mala racha ante Sarmiento**: [Link](https://www.quepasaweb.com.ar/tras-la-salida-del-kily-gonzalez-platense-busca-cortar-la-mala-racha-ante-sarmiento/)
+- **Todo igualado: Platense y Sarmiento empatan 0-0 por la fecha 14 del Clausura**: [Link](https://www.ole.com.ar/sarmiento-junin/platense-recibe-sarmiento-fecha-14-torneo-clausura_0_dy1g2Wwrxp.html)
+
+
+### valladolid - granada (N/A, 03/11/2025 15:27 Lima)
+
+- **Apuestas y pronóstico Valladolid vs Granada**: [Link](https://www.marca.com/apuestas-deportivas/predicciones/2025/11/02/apuestas-pronostico-valladolid-vs-granada.html)
+- **Vuelve Pacheta para averiguar si el Pucela hoy es Jekyll o Míster Hyde**: [Link](https://as.com/futbol/segunda/vuelve-pacheta-para-averiguar-si-el-pucela-hoy-es-jekyll-o-mister-hyde-f202511-n/)
+- **A Zorrilla no le disgustan los lunes**: [Link](https://www.blanquivioletas.com/zorrilla-disgustan-lunes/)
+
+
+### real oviedo vs (N/A, 03/11/2025 15:27 Lima)
+
+- **Preview:Real Oviedo vs Osasuna - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/real-madrid/preview/real-oviedo-vs-osasuna-prediction-team-news-lineups_584894.html)
+- **Alberto Reina Campos vs. CA Osasuna – Player props & odds to score a goal on November 3**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/11/03/alberto-reina-campos-soccer-player-props-11-3-2025/87060626007/)
+- **Real Oviedo vs Osasuna Prediction, 11/3/2025 Soccer Pick, Tips and Odds**: [Link](https://www.docsports.com/free-picks/soccer/2025/real-oviedo-vs-osasuna-prediction-11-3-2025-soccer-pick-tips-and-odds.html)
+
+
+### osasuna vs (N/A, 03/11/2025 15:27 Lima)
+
+- **LaLiga EA Sports: Osasuna se enfrentará a Real Oviedo por la fecha 11**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-osasuna-se-enfrentara-a-real-oviedo-por-la-fecha-11-noticia-1662068)
+- **Pronóstico Oviedo vs. Osasuna: Urgencias en el Carlos Tartiere**: [Link](https://gainblers.com/pe/pronosticos/futbol/espana/liga-primera-division/pronostico-oviedo-osasuna-03-11-2025/)
+
+
+### real oviedo (N/A, 03/11/2025 15:27 Lima)
+
+- **Barcelona vs. Elche (2 de Nov., 2025) Resultados en Vivo**: [Link](https://www.espn.com.pe/futbol/partido/_/juegoId/748247)
+- **Betis vs. Mallorca (2 de Nov., 2025) Resultados en Vivo**: [Link](https://www.espn.com.pe/futbol/partido/_/juegoId/748250)
+- **Atlético vs. Sevilla (1 de Nov., 2025) Resultados en Vivo**: [Link](https://www.espn.com.pe/futbol/partido/_/juegoId/748245)
+
+
+### midtjylland vs (N/A, 03/11/2025 15:27 Lima)
+
+Sin noticias relacionadas disponibles.
+
+
+### sunderland afc - everton (N/A, 03/11/2025 15:27 Lima)
+
+- **‘Football can sicken you’: Moyes knows game’s pain from his Sunderland exit**: [Link](https://www.theguardian.com/sport/2025/nov/02/football-can-sicken-you-moyes-knows-games-pain-from-his-sunderland-exit)
+- **Haway The Podcast | MATCHDAY PREVIEW | SAFC v Everton | Will We Extend Our Unbeaten Home Run?**: [Link](https://rokerreport.sbnation.com/haway-the-podcast/112804/haway-the-podcast-matchday-preview-safc-v-everton-will-we-extend-our-unbeaten-home-run)
+- **Le Bris: We still need to grow**: [Link](https://zamin.uz/en/sport/166821-le-bris-we-still-need-to-grow.html)
+
+
+### lazio - cagliari (N/A, 03/11/2025 15:27 Lima)
+
+- **Lazio-Cagliari 0-0 | Annuncio Fabiani sul mercato 🔥 omaggio a Paparelli 😍**: [Link](https://onefootball.com/it/notizie/lazio-cagliari-0-0-annuncio-fabiani-sul-mercato-omaggio-a-paparelli-41898755)
+- **Lazio Cagliari, novità di formazione per i biancocelesti? Ecco cosa filtra - Cagliari News 24**: [Link](https://www.cagliarinews24.com/lazio-cagliari-novita-formazione-sarri/)
+- **Sarri batte il Cagliari spesso e volentieri. Poker e le goleade ai tempi del Napoli**: [Link](https://www.tuttomercatoweb.com/le-statistiche/sarri-batte-il-cagliari-spesso-e-volentieri-poker-e-le-goleade-ai-tempi-del-napoli-2164422)
+
+
+### lazio vs (N/A, 03/11/2025 15:27 Lima)
+
+- **Preview:Lazio vs Cagliari - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/lazio/preview/lazio-vs-cagliari-prediction-team-news-lineups_584888.html)
+- **Henry Hardwicke Seeks Serie A Glory Following Jack Ogalbe’s Victory**: [Link](https://emegypt.net/1030061)
+- **Serie A Liveblog: Lazio-Cagliari**: [Link](https://football-italia.net/serie-a-liveblog-lazio-cagliari-2025-26/)
+
+
 ### sassuolo (N/A, 03/11/2025 11:28 Lima)
 
 - **Sassuolo-Genoa, dove vedere la partita in tv: gli orari**: [Link](https://sport.sky.it/calcio/serie-a/2025/11/03/sassuolo-genoa-dove-vedere-tv-streaming)
@@ -957,71 +1024,5 @@ Sin noticias relacionadas disponibles.
 - **Aí está a esperada revolução de Rui Borges no onze do Sporting**: [Link](https://sapo.pt/artigo/ai-esta-a-esperada-revolucao-de-rui-borges-no-onze-do-sporting-690508c7fe793977d68bfcb6)
 - **Em direto/ Sporting-Alverca. Lisboetas reencontram-se em Alvalade, agora para o Campeonato**: [Link](https://observador.pt/liveblogs/sporting-alverca-lisboetas-reencontram-se-em-alvalade-agora-para-o-campeonato/)
 - **Em direto. Sporting - Alverca**: [Link](https://rr.pt/bola-branca/noticia/sporting/2025/10/31/em-direto-sporting-alverca/445902/)
-
-
-### augsburgo vs (N/A, 31/10/2025 15:26 Lima)
-
-- **Dos grandes sorpresas en la plantilla del Borussia Dortmund**: [Link](https://www.ucvradio.pe/mas-actualidad/dos-grandes-sorpresas-en-la-plantilla-del-borussia-dortmund/36584/)
-
-
-### kpop (N/A, 31/10/2025 15:26 Lima)
-
-- **Derpy Tiger in KPop Demon Hunters : Everything to Know About the Cutest Demon Cat**: [Link](https://www.netflix.com/tudum/articles/kpop-demon-hunters-derpy-tiger-bio)
-- **Making KPop Demon Hunters sound magical meant finding the right harmonies**: [Link](https://www.theverge.com/entertainment/809871/kpop-demon-hunters-sound-design-interview-michael-babcock)
-- **‘K-Pop Demon Hunters’ returns to theaters with new tracks and footage**: [Link](https://www.local10.com/entertainment/2025/10/30/k-pop-demon-hunters-returns-to-theaters-with-new-tracks-and-footage/)
-
-
-### getafe - girona (N/A, 31/10/2025 15:26 Lima)
-
-- **Getafe - Girona en directo: LaLiga EA Sports hoy, en vivo**: [Link](https://as.com/futbol/primera/getafe-girona-en-directo-laliga-ea-sports-hoy-en-vivo-f202510-d/)
-- **Getafe vs Girona: Apuestas, Pronóstico y Cuotas**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2025/octubre/pronostico-getafe-vs-girona-31-10-25)
-- **Partidos de fútbol de hoy: horario, canal y dónde ver por TV**: [Link](https://www.mundodeportivo.com/horarios/futbol/20251031/1002560406/partidos-futbol-hoy-horario-canal-donde-ver-tv.html)
-
-
-### guerreras kpop (N/A, 31/10/2025 15:26 Lima)
-
-- **‘Las guerreras K-pop’, ‘Minecraft’, ‘Labubu’ , ‘El Lorax ' y más: estos son los disfraces más buscados en Google para Halloween 2025**: [Link](https://elcomercio.pe/respuestas/cual/las-guerreras-k-pop-minecraft-labubu-el-lorax-y-mas-estos-son-los-disfraces-mas-buscados-en-google-para-halloween-2025-tdpe-noticia/)
-- **Halloween 2025: las películas y series que marcan tendencia en disfraces este 31 de octubre**: [Link](https://rpp.pe/tv/streaming/halloween-2025-estas-peliculas-y-series-marcan-tendencia-para-disfraces-el-31-de-octubre-las-guerreras-k-pop-noticia-1661342)
-- **Disfraces de Halloween para parejas de famosos, Adivina Quién**: [Link](https://www.ucvradio.pe/noticias-del-mundo/disfraces-de-halloween-para-parejas-de-famosos-adivina-quien/34732/)
-
-
-### sinner (N/A, 31/10/2025 15:26 Lima)
-
-- **Jannik Sinner defeats Shelton to reach 2025 Paris Masters semi-finals, edging closer to reclaiming ATP No. 1 ranking**: [Link](https://www.olympics.com/en/news/jannik-sinner-defeats-shelton-to-reach-paris-masters-semi-finals)
-- **Rolex Paris Masters Betting Odds and Match Previews for October 31, 2025, Men's Singles**: [Link](https://sportsbookwire.usatoday.com/story/sports/sports-betting/2025/10/31/rolex-paris-masters-betting-odds-favorites-match-previews-10-30-2025-mens/87001322007/)
-- **Sinner Storms Past Shelton for 24th Consecutive Indoor Hard Court Win**: [Link](http://tennisnow.com/sinner-storms-past-shelton-for-24th-consecutive-indoor-hard-court-win/)
-
-
-### augsburgo - dortmund (N/A, 31/10/2025 15:26 Lima)
-
-- **Julian Brandt in der Startelf, Emre Can auf der Bank: BVB-Aufstellung gegen Augsburg ist da**: [Link](https://tribuna.com/de/news/2025-10-31-julian-brandt-in-der-startelf-emre-can-auf-der-bank-bvbaufstellung-gegen-augsburg-ist-da/)
-- **Dortmunds Schlotterbeck auch für Duell mit City fraglich**: [Link](https://www.main-spitze.de/sport/fussball/fussball-bundesliga/dortmunds-schlotterbeck-auch-fuer-duell-mit-city-fraglich-5120460)
-- **Jetzt live: Kann Zesiger die Augsburger Löcher-Abwehr stabilisieren?**: [Link](https://sport.ch/topnews/1540816/jetzt-live-kann-zesiger-die-augsburger-loecher-abwehr-stabilisieren)
-
-
-### ppk (N/A, 31/10/2025 11:30 Lima)
-
-- **Pedro Pablo Kuczynski anuncia su precandidatura al Senado por el partido Fuerza y Libertad**: [Link](https://rpp.pe/politica/elecciones/pedro-pablo-kuczynski-anuncia-su-precandidatura-al-senado-por-el-partido-fuerza-y-libertad-noticia-1661811)
-- **PPK: Fuerza y Libertad inscribe a Pedro Pablo Kuczynski como candidato al Senado | PERU**: [Link](https://gestion.pe/peru/politica/ppk-fuerza-y-libertad-inscribe-a-pedro-pablo-kuczynski-como-candidato-al-senado-noticia/)
-- **PPK al Senado en las Elecciones 2026: Partido Fuerza y Libertad lo inscribe como candidato**: [Link](https://larepublica.pe/politica/2025/10/31/ppk-al-senado-en-las-elecciones-de-peru-2026-partido-fuerza-y-libertad-inscribe-a-pedro-pablo-kuczynski-como-candidato-hnews-1685470)
-
-
-### mef (N/A, 31/10/2025 11:30 Lima)
-
-- **MEF ahora descarta modelo híbrido APP y G2G para Líneas 3 y 4 del Metro de Lima**: [Link](https://gestion.pe/economia/mef-ahora-descarta-modelo-hibrido-app-y-g2g-para-lineas-3-y-4-del-metro-de-lima-noticia/)
-- **Homologación del incentivo único CAFAE no tendrá reglamento del MEF hasta noviembre**: [Link](https://www.infobae.com/peru/2025/10/29/homologacion-del-incetivo-cafae-no-tendra-reglamento-hasta-noviembre-asi-avanza-el-mef/)
-- **Homologación del incentivo Cafae no contará con reglamento del MEF hasta noviembre**: [Link](https://diarioviral.pe/economia/homologacion-del-incentivo-cafae-no-contara-con-reglamento-del-mef-hasta-noviembre-48235)
-
-
-### al hilal vs (N/A, 31/10/2025 11:30 Lima)
-
-Sin noticias relacionadas disponibles.
-
-
-### peru mucho gusto 2025 (N/A, 31/10/2025 11:30 Lima)
-
-- **“Perú Mucho Gusto”: restaurante trajo dos toneladas de cerdo para hacer chancho al palo**: [Link](https://andina.pe/agencia/noticia-peru-mucho-gusto-restaurante-trajo-dos-toneladas-cerdo-para-hacer-chancho-al-palo-1050239.aspx)
-- **Feria Perú Mucho Gusto busca récord en turistas extranjeros y triplicar venta de emprendedores | ECONOMIA**: [Link](https://gestion.pe/economia/feria-peru-mucho-gusto-busca-record-en-turistas-extranjeros-y-triplicar-venta-de-emprendedores-noticia/)
-- **Platos de las 25 regiones del país en un solo lugar y con ingreso completamente gratis: todo sobre Perú Mucho Gusto Lima 2025**: [Link](https://elcomercio.pe/provecho/peru-mucho-gusto-lima-2025-fechas-precios-platos-y-entradas-para-el-evento-gratis-mas-grande-de-gastronomia-en-la-ciudad-noticia/)
 
 
