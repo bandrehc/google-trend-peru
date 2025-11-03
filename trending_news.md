@@ -1,3 +1,17 @@
+### solicitar retiro afp (N/A, 03/11/2025 07:51 Lima)
+
+- **Retiro de AFP 2025: ¿Qué afiliados pueden solicitar en noviembre y cuándo reciben?**: [Link](https://www.infobae.com/peru/2025/10/31/retiro-de-afp-2025-quienes-podran-solicitar-en-noviembre-y-cuando-reciben/)
+- **Octavo Retiro AFP 2025: Ingresa al LINK y solicita hoy tu desembolso según el último dígito de tu DNI**: [Link](https://elcomercio.pe/respuestas/tramites/link-del-octavo-retiro-afp-solicita-tu-desembolso-segun-tu-numero-de-dni-cronograma-retiro-de-afp-tdpe-noticia/)
+- **Octavo retiro de AFP 2025: cuándo y cómo registrar solicitud hoy si tu DNI termina en 4, según fecha del cronograma**: [Link](https://gestion.pe/mix/mi-bolsillo/octavo-retiro-de-afp-2025-cuando-y-como-registrar-solicitud-hoy-si-tu-dni-termina-en-4-segun-fecha-del-cronograma-nnda-nnse-noticia/)
+
+
+### iphone 13 (N/A, 03/11/2025 07:51 Lima)
+
+- **Bengaluru man's iPhone mishap turns into 'real-life horror story' over eSIM issues**: [Link](https://www.indiatoday.in/trending-news/story/bengaluru-man-iphone-mishap-turns-into-real-life-horror-story-over-esim-issues-2812490-2025-11-03)
+- **The eSIM Trap: How a Shattered Screen Turned a Smart Dad Helpless.**: [Link](https://www.indiaherald.com/Breaking/Read/994859074/The-eSIM-Trap-How-a-Shattered-Screen-Turned-a-Smart-Dad-Helpless)
+- **Bengaluru Man Shares eSIM Struggle After iPhone Screen Breaks: ‘No Calls, No OTPs, No WhatsApp, Nothing’**: [Link](https://www.news18.com/viral/bengaluru-man-iphone-esim-struggle-after-screen-breaks-aa-ws-l-9677176.html)
+
+
 ### fonavi reintegro (N/A, 03/11/2025 03:34 Lima)
 
 - **FONAVI 2025: Consulta con tu DNI si tienes dinero pendiente por cobrar**: [Link](https://elcomercio.pe/respuestas/tramites/aun-no-cobras-el-fonavi-verifica-con-tu-dni-los-pagos-pendientes-de-la-lista-22-y-mas-tdpe-noticia/)
@@ -1009,19 +1023,5 @@ Sin noticias relacionadas disponibles.
 - **La música criolla celebra su jarana en Lima, en franca resistencia contra zombis y brujas**: [Link](https://www.abc.es/cultura/musica/musica-criolla-celebra-jarana-lima-franca-resistencia-20251030174238-vi.html)
 - **Halloween y el Día de la Canción Criolla: eventos, conciertos y actividades para celebrar el 31 de octubre**: [Link](https://www.infobae.com/peru/2025/10/30/halloween-y-el-dia-de-la-cancion-criolla-eventos-conciertos-y-actividades-para-celebrar-el-31-de-octubre/)
 - **La canción criolla, por siempre vigente [INFORME]**: [Link](https://rpp.pe/musica/nacional/la-cancion-criolla-por-siempre-vigente-informe-noticia-1661668)
-
-
-### palmeiras vs flamengo (N/A, 31/10/2025 07:50 Lima)
-
-- **CONMEBOL y PUMA presentan el balón oficial de la Final de la CONMEBOL Libertadores 2025**: [Link](https://www.conmebol.com/noticias/conmebol-y-puma-presentan-el-balon-oficial-de-la-final-de-la-conmebol-libertadores-2025/)
-- **Flamengo vs. Palmeiras, por la final de la Copa Libertadores: qué día, a qué hora y dónde juegan**: [Link](https://www.ole.com.ar/futbol-internacional/libertadores/juega-final-copa-libertadores-2025-flamengo-dia-ver_0_WVHXQP8iPp.html)
-- **Copa Libertadores: Pdte. de la CBF a favor de que final pase de Lima a Brasil**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/copa-libertadores-presidente-de-la-cbf-a-favor-de-que-final-pase-de-lima-a-brasil-noticia/)
-
-
-### partidos de copa libertadores (N/A, 31/10/2025 07:50 Lima)
-
-- **Partidos de hoy, 30 de octubre: Horario y canal EN VIVO**: [Link](https://www.americatv.com.pe/deportes/futbol-mundial/partidos-hoy-30-octubre-horarios-y-transmisiones-n451533)
-- **Partidos de hoy, jueves 30 de octubre del 2025: horarios y canales TV para ver EN VIVO Copa Libertadores y Sudamericana**: [Link](https://rpp.pe/futbol/futbol-mundial/partidos-de-hoy-peru-jueves-30-de-octubre-del-2025-horarios-y-canales-tv-ver-futbol-en-vivo-noticia-1661534)
-- **Partidos de hoy, jueves 30 de octubre: horarios y dónde puedo ver fútbol en vivo**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/partidos-de-hoy-jueves-30-de-octubre-del-2025-resultados-horarios-canales-tv-y-donde-ver-futbol-en-vivo-noticia/)
 
 
