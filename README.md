@@ -1,3 +1,72 @@
+### jonathan bailey (N/A, 04/11/2025 11:29 Lima)
+
+- **Jonathan Bailey Is the Sexiest Man Alive 2025! (We Know, We Nailed It.)**: [Link](https://people.com/jonathan-bailey-is-sexiest-man-alive-2025-11842000)
+- **‘Wicked’ hunk Jonathan Bailey is People magazine’s ‘Sexiest Man Alive’**: [Link](https://pagesix.com/2025/11/03/celebrity-news/wicked-hunk-jonathan-bailey-is-peoples-sexiest-man-alive/)
+- **People Magazine Names FFXIV Voice Actor Sexiest Man Alive**: [Link](https://screenrant.com/final-fantasy-xiv-jonathan-bailey-sexiest-man-alive/)
+
+
+### al-sadd - al-ahli saudi (N/A, 04/11/2025 11:29 Lima)
+
+- **Al Sadd vs Al Ahli Preview, prediction, lineups, betting tips & odds | AFC Champions League Elite 2025-26**: [Link](https://khelnow.com/football/world-football-al-sadd-vs-al-ahli-preview-202511)
+- **AFCCLE: Franck Kessié is Al-Ahli Saudi’s pillar—Jaissle**: [Link](https://www.panafricafootball.com/post/afccle-franck-kessi%C3%A9-al-ahli-saudi/)
+
+
+### simulacro (N/A, 04/11/2025 11:29 Lima)
+
+- **Conoce las rutas de evacuación de Miraflores en caso de tsunami**: [Link](https://www.miraflores.gob.pe/conoce-las-rutas-de-evacuacion-de-miraflores-en-caso-de-tsunami/)
+- **Realizan marcha de sensibilización en Ilo por simulacro regional de sismo y tsunami**: [Link](https://prensaregional.pe/realizan-marcha-de-sensibilizacion-en-ilo-por-simulacro-regional-de-sismo-y-tsunami/)
+- **Simulacro ante sismo para este martes 4 de noviembre: conoce los detalles**: [Link](https://www.infobae.com/peru/2025/11/01/simulacro-ante-sismo-para-este-martes-4-de-noviembre-conoce-los-detalles/)
+
+
+### whats (N/A, 04/11/2025 11:29 Lima)
+
+- **It's Election Day. Here's what is on the ballot in Maricopa County**: [Link](https://www.azcentral.com/story/news/politics/elections/2025/11/04/election-day-arizona-vote/87076233007/)
+- **Here's what to know about Election Day in Tucson**: [Link](https://tucson.com/news/local/government-politics/elections/article_431d5bc5-0171-4d02-95f2-e256ef7ddf81.html)
+- **Recommended deadline to return early ballots by mail has passed**: [Link](https://www.coconino.az.gov/CivicAlerts.aspx?AID=3302)
+
+
+### wa (N/A, 04/11/2025 11:29 Lima)
+
+- **Preliminary data shows historically low WA voter turnout for 2025 election**: [Link](https://www.seattletimes.com/seattle-news/politics/election-2025-preliminary-data-shows-historically-low-wa-voter-turnout/)
+- **Yakima County Ballots Due by 8 p.m. Today as Voters Weigh Controversial Races and Local Issues.**: [Link](https://newstalkkit.com/election-day-2025-voting-today/)
+- **Franklin County election turnout low ahead of election day**: [Link](https://www.nbcrightnow.com/news/franklin-county-election-turnout-low-ahead-of-election-day/article_1de77799-1bf7-4dca-b499-4a3caaffceb6.html)
+
+
+### wsp (N/A, 04/11/2025 11:29 Lima)
+
+- **WSP's Rebecca Jones: Sharing your 'genuine story' can be just as powerful as highlighting big milestones**: [Link](https://www.businessgreen.com/interview/4521231/wsps-rebecca-jones-sharing-genuine-story-powerful-highlighting-big-milestones)
+- **PHOTOS: Eastbound I-90 closed after major collision near North Bend**: [Link](https://www.kiro7.com/news/photos-eastbound-i/5WBCK2CYAJA7FDFKODO4L6ERW4/)
+- **I-90 near North Bend back open after serious injury crash**: [Link](https://www.king5.com/article/traffic/traffic-news/multiple-lanes-blocked-i-90-near-north-bend-due-to-serious-injury-crash/281-71d2c301-a7f5-4bd7-b1ce-4886e8913f2b)
+
+
+### dia del trabajador municipal 2025 (N/A, 04/11/2025 11:29 Lima)
+
+- **¿En qué partes del Perú será día NO laborable este miércoles 5 de noviembre 2025?**: [Link](https://elcomercio.pe/respuestas/que/en-que-partes-del-peru-sera-dia-no-laborable-este-5-de-noviembre-2025-tdpe-noticia/)
+- **¿Confirman feriado largo hasta el viernes 07 de noviembre a nivel nacional? Esto señala El Peruano**: [Link](https://elpopular.pe/actualidad/2025/11/03/confirman-feriado-largo-hasta-el-viernes-07-de-noviembre-a-nivel-nacional-esto-senala-el-peruano-248811)
+- **Este miércoles 5 de noviembre será feriado: conoce qué se celebra y qué señala El Peruano**: [Link](https://libero.pe/tiempoextra/2025/11/03/miercoles-5-de-noviembre-sera-feriado-conoce-se-celebra-senala-peruano-75297)
+
+
+### whatsapp web (N/A, 04/11/2025 11:29 Lima)
+
+- **Se cayó WhatsApp Web: qué opciones hay para seguir conectados con el mensajero en la PC**: [Link](https://www.lanacion.com.ar/tecnologia/no-funciona-whatsapp-web-pero-hay-opciones-para-seguir-conectados-con-el-mensajero-en-la-pc-nid04112025/)
+- **¡No es tu internet! Reportan FALLAS en WhatsApp HOY 4 de noviembre**: [Link](https://www.milenio.com/tecnologia/whatsapp-falla-hoy-4-noviembre-2025-usuarios-reportan)
+- **¡No es tu computadora! Usuarios reportan la caída de WhatsApp Web; recomiendan no actualizar la página**: [Link](https://www.tvazteca.com/aztecanoticias/caida-whatsapp-web-hoy-cuales-son-las-fallas-la-plataforma-caida-meta-actualizar)
+
+
+### camara (N/A, 04/11/2025 11:29 Lima)
+
+- **Camarógrafo del Congreso viajó junto al asesor de Rosangella Barbarán al evento de Keiko Fujimori en Trujillo**: [Link](https://www.infobae.com/peru/2025/11/03/camarografo-del-congreso-viajo-junto-al-asesor-de-rosangela-barbaran-al-evento-de-keiko-fujimori-en-trujillo/)
+- **Fernando Rospigliosi afirma que investigación a trabajador que usó cámara del Congreso es independiente a procesos penales**: [Link](https://elcomercio.pe/politica/congreso/fernando-rospigliosi-afirma-que-investigacion-a-trabajador-que-uso-camara-del-congreso-es-independiente-a-procesos-penales-keiko-fujimori-fuerza-popular-ultimas-noticia/)
+- **¡Ya se jodió Fuerza Popular (sic)!**: [Link](https://peru21.pe/opinion/ya-se-jodio-fuerza-popular-sic-richard-arce/)
+
+
+### ac dc (N/A, 04/11/2025 11:29 Lima)
+
+- **AC/DC Extend ‘Power Up’ Tour With 2026 Dates**: [Link](https://www.rollingstone.com/music/music-news/ac-dc-2026-power-up-tour-dates-1235458564/)
+- **Rock legends AC/DC announce four Canadian shows as part of 2026 tour**: [Link](https://www.ctvnews.ca/entertainment/article/rock-legends-acdc-announce-four-canadian-shows-as-part-of-2026-tour/)
+- **AC/DC coming to Camp Randall, Tickets on sale Nov. 7 | Wisconsin Badgers**: [Link](https://uwbadgers.com/news/2025/11/3/general-news-ac-dc-coming-to-camp-randall-tickets-on-sale-nov-7)
+
+
 ### instagram (N/A, 04/11/2025 07:54 Lima)
 
 - **Britney Spears' Instagram account deleted amid a flurry of concerning posts**: [Link](https://nz.news.yahoo.com/britney-spears-instagram-account-deleted-031946110.html)
@@ -956,73 +1025,5 @@ Sin noticias relacionadas disponibles.
 - **Robin Veldman heeft 'vraagtekens' en merkt 'honger in de groep' richting duel met Ajax**: [Link](https://www.sc-heerenveen.nl/nieuws/robin-veldman-heeft-vraagtekens-en-merkt-honger-in-de-groep-richting-duel-met-ajax)
 - **Penalty Ajax teruggedraaid na schwalbe Taylor • Hilgers loopt kruisbandblessure op**: [Link](https://nos.nl/liveblog/2588778-penalty-ajax-teruggedraaid-na-schwalbe-taylor-hilgers-loopt-kruisbandblessure-op)
 - **Heitinga verklaart basisopstelling: 'Hij heeft zich wel in de basis gespeeld'**: [Link](https://www.voetbalprimeur.nl/nieuws/1707663/heitinga-over-sutalo-en-regeer-voor-duel-met-heerenveen.html)
-
-
-### atletico madrid (N/A, 01/11/2025 11:25 Lima)
-
-- **Diego Simeone talks systems, Barrios replacements and substitutions before Sevilla**: [Link](https://www.intothecalderon.com/atletico-madrid-quotes/18770/diego-simeone-matias-almeyda-atletico-madrid-sevilla-la-liga-press-conference-alvarez-barrios-johnny-cardoso-conor-gallagher)
-- **Conor Gallagher vs. Sevilla FC – Player props & odds to score a goal on November 1**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/10/31/conor-gallagher-soccer-player-props-11-1-2025/87018190007/)
-- **Atletico Madrid vs Sevilla Prediction, 11/1/2025 Soccer Pick, Tips and Odds**: [Link](https://www.docsports.com/free-picks/soccer/2025/atletico-madrid-vs-sevilla-prediction-11-1-2025-soccer-pick-tips-and-odds.html)
-
-
-### united (N/A, 01/11/2025 11:25 Lima)
-
-- **2 planes make contact on taxiway at LaGuardia Airport**: [Link](https://abc7ny.com/post/2-planes-make-contact-taxiway-laguardia-airport/18097385/)
-- **United flight 580 out of Chicago's O'Hare airport clips plane UA 434 at LaGuardia Airport in New York, airline says**: [Link](https://abc7chicago.com/post/united-flight-580-chicagos-ohare-airport-clips-plane-ua-434-laguardia-new-york-airline-says/18099220/)
-- **Exclusive | United Airlines planes collide at LaGuardia — as airport grappled with intense delays: ‘We all felt a bump’**: [Link](https://nypost.com/2025/10/31/us-news/united-airlines-planes-collide-at-laguardia-we-all-felt-a-bump/)
-
-
-### lamine yamal (N/A, 01/11/2025 11:25 Lima)
-
-- **Lamine Yamal confirma el fin de su relación con Nicki Nicole**: [Link](https://rpp.pe/famosos/celebridades/lamine-yamal-confirma-el-fin-de-su-relacion-con-nicki-nicole-noticia-1661985)
-- **¿Se acabó el amor? Lamine Yamal le habría sido infiel a Nicki Nicole con influencer italiana**: [Link](https://peru21.pe/celebridades/lamine-yamal-le-habria-sido-infiel-nicki-nicole-con-anna-gegnoso/)
-- **Lamine Yamal confirmó su ruptura con Nicki Nicole en medio de una presunta infidelidad: "No estamos juntos"**: [Link](https://elpopular.pe/deportes/2025/11/01/lamine-yamal-confirmo-su-ruptura-con-nicki-nicole-en-medio-de-una-presunta-infidelidad-no-estamos-juntos-29732)
-
-
-### oliver sonne (N/A, 01/11/2025 11:25 Lima)
-
-Sin noticias relacionadas disponibles.
-
-
-### villarreal - rayo vallecano (N/A, 01/11/2025 07:44 Lima)
-
-- **Villarreal - Rayo, en directo: LaLiga EA Sports hoy en vivo**: [Link](https://as.com/futbol/primera/villarreal-rayo-en-directo-laliga-ea-sports-hoy-en-vivo-f202511-d/)
-- **LaLiga EA Sports: Rayo Vallecano quiere aumentar su racha positiva con otra victoria**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-rayo-vallecano-quiere-aumentar-su-racha-positiva-con-otra-victoria-noticia-1661764)
-- **Apuestas y Pronóstico del Villarreal vs Rayo Vallecano 01/11/25**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2025/noviembre/pronostico-villarreal-vs-rayo-vallecano-01-11-25)
-
-
-### noviembre (N/A, 01/11/2025 07:44 Lima)
-
-- **¿Es oficial el feriado largo del 3 y 4 de noviembre? Revisa lo publicado en El Peruano**: [Link](https://elcomercio.pe/respuestas/cuando/es-oficial-el-feriado-largo-del-3-y-4-de-noviembre-revisa-lo-publicado-en-el-peruano-noticia/)
-- **¿Las clases escolares se suspenden este lunes 3 de noviembre? Minedu responde**: [Link](https://larepublica.pe/sociedad/2025/10/31/las-clases-escolares-se-suspenden-este-lunes-3-de-noviembre-minedu-responde-1475290)
-- **¿El 2 de noviembre es feriado? Conoce qué se celebra y si te corresponderá descansar**: [Link](https://libero.pe/tiempoextra/2025/10/31/2-de-noviembre-es-feriado-conoce-se-celebra-te-correspondera-descansar-2547208)
-
-
-### que se celebra hoy (N/A, 01/11/2025 07:44 Lima)
-
-- **Holywins**: [Link](https://www.diainternacionalde.com/ficha/holywins-vs-halloween)
-- **Los colegios religiosos recuperan la celebración de ‘Todos los Santos’**: [Link](https://www.archisevilla.org/los-colegios-religiosos-recuperan-la-celebracion-de-todos-los-santos/)
-- **La Conferencia Episcopal recuerda a los católicos que tienen una fiesta “más grande” que Halloween**: [Link](https://www.lavanguardia.com/sociedad/20251031/11218187/conferencia-episcopal-recuerda-catolicos-fiesta-mas-grande-halloween-agenciaslv20251031.html)
-
-
-### videos (N/A, 01/11/2025 07:44 Lima)
-
-- **Visible from space, bloody sands expose the slaughter of tens of thousands in Sudan**: [Link](https://www.nbcnews.com/world/africa/sudan-africa-civil-war-rapid-support-forces-el-fasher-massacre-rcna240708)
-- **Thousands missing, new horrors emerge after RSF taking of Sudan’s el-Fasher**: [Link](https://www.aljazeera.com/news/2025/11/1/thousands-missing-new-horrors-emerge-after-rsf-taking-of-sudan-el-fasher)
-- **Twenty Years Later, Atrocities Haunt Darfur Again**: [Link](https://www.nytimes.com/2025/10/31/world/africa/darfur-sudan-atrocities.html)
-
-
-### calendario 2025 (N/A, 01/11/2025 07:44 Lima)
-
-- **¿Feriado o día laborable?: qué dice el calendario oficial sobre el 31 de octubre de 2025 en Perú**: [Link](https://elcomercio.pe/respuestas/que/feriado-o-dia-laborable-que-dice-el-calendario-oficial-sobre-el-31-de-octubre-de-2025-en-peru-tdpe-noticia/)
-- **¿Se suspenden las clases escolares este jueves 30 y viernes 31 de octubre? Lo que dice Minedu**: [Link](https://larepublica.pe/sociedad/2025/10/26/se-suspenden-las-clases-escolares-este-jueves-30-y-viernes-31-de-octubre-a-nivel-nacional-minedu-responde-1990638)
-- **¿Se suspenden las clases escolares este viernes 31 de octubre a nivel nacional? Esto señala El Peruano**: [Link](https://elpopular.pe/actualidad/2025/10/26/se-suspenden-las-clases-escolares-este-viernes-31-de-octubre-a-nivel-nacional-esto-senala-el-peruano-857896)
-
-
-### newcastle jets - sydney (N/A, 01/11/2025 03:28 Lima)
-
-- **Newcastle Jets vs Sydney FC Prediction and Betting Tips | November 1st 2025**: [Link](https://www.sportskeeda.com/football/newcastle-jets-vs-sydney-fc-prediction-betting-tips-november-1st-2025)
-- **Exposed: Young Jets taught lesson by clinical Sydney FC**: [Link](https://www.newcastleherald.com.au/story/9102293/toures-hat-trick-helps-sydney-fc-defeat-newcastle-4-1/)
-- **Jets eye off back to back A-League wins**: [Link](https://www.nbnnews.com.au/2025/10/30/jets-eye-off-back-to-back-a-league-wins/)
 
 
