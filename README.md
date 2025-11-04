@@ -1,3 +1,73 @@
+### claudio pizarro (N/A, 03/11/2025 20:54 Lima)
+
+- **Claudio Pizarro sería papá otra vez tras la separación de Karla Salcedo: así lo anunció Magaly TV La Firme**: [Link](https://www.infobae.com/peru/2025/11/03/claudio-pizarro-seria-papa-otra-vez-tras-la-separacion-de-karla-salcedo-asi-lo-anuncio-magaly-tv-la-firme/)
+- **Claudio Pizarro se habría convertido en padre por cuarta vez, según ‘Magaly TV La Firme’: “A cambiar pañales”**: [Link](https://trome.com/espectaculos/tv/claudio-pizarro-se-habria-convertido-en-padre-por-cuarta-vez-segun-magaly-tv-la-firme-a-cambiar-panales-foto-video-faradula-noticia/)
+- **Exfutbolista Claudio Pizarro se habría convertido en padre por cuarta vez, según 'Magaly TV, la firme'**: [Link](https://larepublica.pe/espectaculos/2025/11/03/exfutbolista-claudio-pizarro-se-habria-convertido-en-padre-por-cuarta-vez-segun-magaly-tv-la-firme-215787)
+
+
+### banfield - lanús (N/A, 03/11/2025 20:54 Lima)
+
+- **La historia del clásico Banfield–Lanús y cómo nació la rivalidad**: [Link](https://www.tycsports.com/liga-profesional-de-futbol/banfield-lanus-historia-clasico-rivalidad-id696373.html)
+- **Rompieron la tradición: El Clásico del Sur se jugará por tercera vez un lunes**: [Link](https://www.elgrafico.com.ar/articulo/primera-division/94642/rompieron-la-tradicion-el-clasico-del-sur-se-jugara-por-tercera-vez-un-lunes)
+- **LPF: se juega el clásico del sur y cinco partidos definen la pelea por los playoffs**: [Link](https://radiorafaela.com.ar/deportes/lpf-se-juega-el-clasico-del-sur-y-cinco-partidos-definen-la-pelea-por-los-playoffs)
+
+
+### belgrano - tigre (N/A, 03/11/2025 20:54 Lima)
+
+- **Qué canal pasa Belgrano vs Tigre hoy: dónde ver el partido gratis de la Liga Profesional**: [Link](https://www.365scores.com/es/news/belgrano-vs-tigre-donde-ver-gratis-vivo/)
+- **EN VIVO: 0-0: Belgrano y Tigre se mantienen sin goles al finalizar el primer tiempo**: [Link](https://www.directvsports.com/futbol/EN-VIVO-0-0-Belgrano-y-Tigre-se-mantienen-sin-goles-al-finalizar-el-primer-tiempo-20251031-0018.html)
+- **Belgrano: sin Santiago Longo, asoma Ulises Sánchez para volver a ser titular**: [Link](https://www.msn.com/es-ar/noticias/cordoba/belgrano-sin-santiago-longo-asoma-ulises-s%C3%A1nchez-para-volver-a-ser-titular/ar-AA1PDCcP)
+
+
+### cesar combina (N/A, 03/11/2025 20:54 Lima)
+
+- **César Combina a punto de ser expulsado de Avanza País: su precandidatura duró menos de dos semanas**: [Link](https://www.infobae.com/peru/2025/11/03/cesar-combina-a-punto-de-ser-expulsado-de-avanza-pais-su-precandidatura-duro-menos-de-dos-semanas/)
+- **Avanza País inicia proceso de expulsión contra precandidato César Combina**: [Link](https://caretas.pe/politica/avanza-pais-inicia-proceso-de-expulsion-contra-precandidato-cesar-combina/)
+- **Avanza País acepta precandidatura de Butters e inicia proceso de expulsión de Combina**: [Link](https://gestion.pe/peru/politica/avanza-pais-acepta-precandidatura-de-butters-e-inicia-proceso-de-expulsion-de-combina-noticia/)
+
+
+### real madrid vs liverpool (N/A, 03/11/2025 20:54 Lima)
+
+- **¿A qué hora juega Kylian Mbappé en Liverpool vs. Real Madrid EN VIVO HOY 4 de noviembre por Champions League 2025 en España, México y USA?**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/a-que-hora-juega-kylian-mbappe-en-liverpool-vs-real-madrid-en-vivo-hoy-4-de-noviembre-por-champions-league-2025-en-espana-mexico-y-usa-nnda-nnrt-noticia/)
+- **Partidazo: Real Madrid y la alineación que prepara para chocar ante Liverpool por la Champions League**: [Link](https://rpp.pe/futbol/champions-league/real-madrid-vs-liverpool-alineacion-merengue-en-anfield-por-fecha-4-fase-liga-de-champions-league-2025-fotos-noticia-1662178)
+- **TNT Sports y MAX EN VIVO — cómo ver partido Real Madrid - Liverpool GRATIS por Fútbol TV y TNT Go Online**: [Link](https://gestion.pe/mix/sports/tnt-sports-y-max-en-vivo-como-ver-partido-real-madrid-liverpool-gratis-por-futbol-tv-y-tnt-go-online-nnda-nnrt-noticia/)
+
+
+### envigado - medellín (N/A, 03/11/2025 20:54 Lima)
+
+- **Medellín derrotó a Envigado y da un paso importante para ser finalista de la Copa Betplay**: [Link](https://www.espn.com.ar/futbol/colombia/nota/_/id/15903077/medellin-derroto-a-envigado-paso-importante-para-ser-finalista-copa-betplay)
+- **Pronósticos Envigado vs. Medellín: cuota 2,07 para creer en el DIM**: [Link](https://www.futbolred.com/apuestas/pronosticos-apuestas-envigado-vs-medellin-02-11-2025-258062)
+- **Alejandro Restrepo: “La serie aún está abierta”**: [Link](https://colombia.as.com/futbol/alejandro-restrepo-la-serie-aun-esta-abierta-f202511-n/)
+
+
+### bolivar vs (N/A, 03/11/2025 20:54 Lima)
+
+- **Bolívar ganó 3-0 a Universitario de Vinto y aún sueña con ganar el título nacional de Bolivia**: [Link](https://libero.pe/futbol-internacional/2025/11/02/bolivar-vs-universitario-de-vinto-en-vivo-gratis-liga-boliviana-via-futbol-canal-lbev-172344)
+- **Cauteruccio se reencuentra con el gol después de un mes y tres semanas**: [Link](https://www.vision360.bo/noticias/2025/11/03/34640-cauteruccio-se-reencuentra-con-el-gol-despues-de-un-mes-y-tres-semanas)
+- **Bolívar vence a FC Universitario, se afianza en la tercera casilla y mete presión a los punteros**: [Link](https://eju.tv/2025/11/bolivar-vence-a-fc-universitario-se-afianza-en-la-tercera-casilla-y-mete-presion-a-los-punteros/)
+
+
+### ministerio de educación (N/A, 03/11/2025 20:54 Lima)
+
+- **Garantizan remuneración de 419,000 docentes**: [Link](https://elperuano.pe/noticia/282138-garantizan-remuneracion-de-419000-docentes)
+- **Minedu transfiere más de S/ 175 millones para incremento salarial de más de 400 mil docentes**: [Link](https://peru21.pe/peru/minedu-transfiere-mas-de-s-175-millones-para-incremento-salarial-de-mas-de-400-mil-docentes/)
+- **Minedu destina más de S/ 175 millones para incremento salarial de 400 mil docentes en todo el país**: [Link](https://www.infobae.com/peru/2025/11/02/minedu-destina-mas-de-s-175-millones-para-incremento-salarial-de-400-mil-docentes-en-todo-el-pais/)
+
+
+### psg vs bayern (N/A, 03/11/2025 20:54 Lima)
+
+- **Ahead of PSG tilt, Bayern Munich’s Max Eberl ready for two teams to battle ‘at the top level’**: [Link](https://www.bavarianfootballworks.com/bayern-munich-champions-league/146484/ahead-of-psg-tilt-bayern-munichs-max-eberl-ready-for-two-teams-to-battle-at-the-top-level)
+- **Live blog: Build-up to Bayern’s Champions League game against Paris Saint-Germain**: [Link](https://fcbayern.com/en/news/2025/11/live-blog-build-up-to-bayern-champions-league-game-against-paris-saint-germain)
+- **PSG Star Vitinha Fires Indirect Message to Barcelona, Real Madrid**: [Link](https://sports.yahoo.com/article/psg-star-vitinha-fires-indirect-233500070.html)
+
+
+### betssy chávez (N/A, 03/11/2025 20:54 Lima)
+
+- **Perú rompe relaciones diplomáticas con México por otorgar asilo a quien fuera la primera ministra de Pedro Castillo**: [Link](https://cnnespanol.cnn.com/2025/11/03/latinoamerica/peru-rompe-relaciones-mexico-asilo-betssy-chavez-orix)
+- **Betsy Chávez se asila en embajada de México y Perú rompe relaciones con país azteca**: [Link](https://elperuano.pe/noticia/282246-peru-anuncia-ruptura-de-relaciones-diplomaticas-con-mexico-luego-de-asilo-a-betssy-chavez)
+- **Betssy Chávez asilada por México: canciller peruano confirmó que se le otorgó refugio a expremier de golpista Pedro Castillo**: [Link](https://www.infobae.com/peru/2025/11/03/betssy-chavez-asilada-por-mexico-canciller-hugo-de-zela-confirmo-que-gobierno-otorgo-refugio-a-la-expremier/)
+
+
 ### defensa y justicia vs (N/A, 03/11/2025 15:27 Lima)
 
 - **Defensa vs Huracán: resultado EN VIVO y estadísticas de la Liga Profesional**: [Link](https://www.365scores.com/es/news/defensa-vs-huracan-vivo-partido-liga/)
@@ -956,73 +1026,5 @@ Sin noticias relacionadas disponibles.
 - **Dulce María anuncia segundo embarazo**: [Link](https://www.americatv.com.pe/noticias/espectaculos/dulce-maria-anuncia-su-segundo-embarazo-n512386)
 - **Dulce María, exintegrante de RBD, anuncia su segundo embarazo: "Ha llegado en el momento perfecto"**: [Link](https://rpp.pe/famosos/celebridades/dulce-maria-exintegrante-de-rbd-anuncia-su-segundo-embarazo-ha-llegado-en-el-momento-perfecto-noticia-1661361)
 - **Dulce María, ex RBD, anunció su segundo embarazo**: [Link](https://www.ritmoromantica.pe/noticias/musica/dulce-maria-ex-rbd-anuncio-su-segundo-embarazo-instagram/)
-
-
-### demon slayer (N/A, 31/10/2025 20:57 Lima)
-
-- **Demon Slayer Just Confirmed a Disappointing Infinity Castle Part 2 Update**: [Link](https://comicbook.com/anime/news/demon-slayer-just-confirmed-a-disappointing-infinity-castle-part-2-update/)
-- **Demon Slayer: 9 Strongest Characters Alive in Infinity Castle Part 2**: [Link](https://gamerant.com/demon-slayer-infinity-castle-part-2-strongest-characters-alive/)
-- **Demon Slayer Shares New Look At the Infinity Castle Cast**: [Link](https://comicbook.com/anime/news/demon-slayer-shares-new-look-at-the-infinity-castle-cast/)
-
-
-### blue jays - dodgers (N/A, 31/10/2025 20:57 Lima)
-
-- **Mookie Betts & Will Smith Spark THREE-RUN Inning to give Dodgers a 3-0 lead vs. Blue Jays**: [Link](https://www.foxsports.com/watch/fmc-pphf2jt97xkavpni)
-- **Chasing October: Live analysis of World Series Game 6**: [Link](https://www.thescore.com/mlb/news/3382696/chasing-october-live-analysis-of-world-series-game-6)
-- **How to watch Toronto Blue Jays World Series game tonight: MLB free live stream**: [Link](https://www.cleveland.com/tv/2025/10/how-to-watch-toronto-blue-jays-world-series-game-tonight-mlb-free-live-stream.html)
-
-
-### alianza lima - melgar (N/A, 31/10/2025 20:57 Lima)
-
-- **Tabla de posiciones de Liga 1 2025: acumulado y resultado de la fecha 17 del Torneo Clausura**: [Link](https://depor.com/futbol-peruano/descentralizado/tabla-de-posiciones-liga-1-peru-2025-en-vivo-resultados-de-la-fecha-17-del-torneo-clausura-universitario-de-deportes-sporting-cristal-alianza-lima-noticia/)
-- **Alianza Lima: ¿Qué se juega hoy ante Melgar, por qué es clave ganar pese a que la ‘U’ ya es tricampeón y cómo se beneficia Cristal?**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/alianza-lima-que-se-juega-hoy-ante-melgar-por-que-es-clave-ganar-pese-a-que-la-u-ya-es-tricampeon-y-como-se-beneficia-sporting-cristal-liga-1-te-apuesto-tlcnota-noticia/)
-- **Novedades en el ataque: la posible alineación de Alianza Lima para enfrentar a Melgar en Matute [FOTOS]**: [Link](https://rpp.pe/futbol/descentralizado/alianza-lima-vs-melgar-alineacion-de-gorosito-por-la-fecha-17-del-clausura-en-matute-liga-1-2025-noticia-1661664)
-
-
-### delfín - dep. cuenca (N/A, 31/10/2025 20:57 Lima)
-
-Sin noticias relacionadas disponibles.
-
-
-### ignacio buse (N/A, 31/10/2025 20:57 Lima)
-
-- **A paso firme: Ignacio Buse avanza a los cuartos de final de Los Inkas Open 2025 | VIDEO**: [Link](https://elcomercio.pe/deporte-total/tenis/a-paso-firme-ignacio-buse-avanza-a-los-cuartos-de-final-de-los-inkas-open-2025-video-noticia/)
-- **Ignacio Buse derrota al argentino Juan Torres y avanza a los cuartos de final del Challenger de Lima**: [Link](https://rpp.pe/tenis/mas-tenis/ignacio-buse-vs-olivieri-en-vivo-octavos-final-lima-challenger-2025-a-que-hora-juegan-y-donde-ver-por-tv-via-atp-tour-link-gratis-partidos-de-hoy-noticia-1661601)
-- **“Nacho” Buse venció a Roncadelli y avanzó a octavos en Los Inkas Open 2025**: [Link](https://www.apnoticias.pe/peru/diario-uno/nacho-buse-vencio-a-roncadelli-y-avanzo-a-octavos-en-los-inkas-open-2025-1466480)
-
-
-### 76ers - celtics (N/A, 31/10/2025 20:57 Lima)
-
-- **“He’s on the Scouting Report Now”: Paul Pierce Is Sure Celtics Will Beat VJ Edgecombe and Sixers in NBA Cup Opener**: [Link](https://thesportsrush.com/nba-news-hes-on-the-scouting-report-now-paul-pierce-is-sure-celtics-will-beat-vj-edgecombe-and-sixers-in-nba-cup-opener/)
-- **Tiny Nick's Gambling Picks 10/31**: [Link](https://zonecoverage.com/2025/gambling/tiny-nicks-gambling-picks-10-31-6/)
-- **Put money on Maxey, 76ers to beat Brown, Celtics**: [Link](https://www.nbcsports.com/watch/nba/boston-celtics-76ers-nba-betting-preview-take-philadelphia-to-win-cover)
-
-
-### it (N/A, 31/10/2025 15:26 Lima)
-
-- **The story of MTV: The downfall of music disrupter**: [Link](https://theconversation.com/the-story-of-mtv-the-downfall-of-music-disrupter-268099)
-- **Former VJ Daisy Fuentes On MTV Amid Major Changes: “It’s Been A Bit Sad For A While”**: [Link](https://deadline.com/2025/10/vj-daisy-fuentes-mtv-major-changes-paramount-1236604304/)
-- **Goodnight, MTV Gen X fades along with the network**: [Link](https://unherd.com/2025/10/goodnight-mtv/)
-
-
-### alexander zverev (N/A, 31/10/2025 15:26 Lima)
-
-- **ATP Paris Best Bets Including Zverev vs Davidovich Fokina**: [Link](https://lastwordonsports.com/tennis/2025/10/29/atp-paris-best-bets-including-zverev-vs-davidovich-fokina/)
-- **Rolex Paris Masters Betting Odds and Match Previews for October 30, 2025, Men's Singles**: [Link](https://sportsbookwire.usatoday.com/story/sports/sports-betting/2025/10/30/rolex-paris-masters-betting-odds-favorites-match-previews-10-29-2025-mens/86978415007/)
-- **Tennis, ATP – Paris Masters 2025: Zverev beats Davidovich Fokina**: [Link](https://www.tennismajors.com/atp/paris-masters-zverev-into-last-eight-the-quarterfinals-are-set-839148.html)
-
-
-### mira (N/A, 31/10/2025 15:26 Lima)
-
-- **Christian Domínguez y Karla Tarazona ¿protagonizan tenso momento EN VIVO?: Esto pasó**: [Link](https://trome.com/espectaculos/tv/christian-dominguez-y-karla-tarazona-protagonizan-tenso-momento-en-vivo-mira-lo-que-paso-foto-video-farandula-noticia/)
-- **Karla Tarazona SE PELEA con Christian Domínguez en vivo y él revela CÓMO ES en realidad: "Te gusta faltar el respeto"**: [Link](https://elpopular.pe/espectaculos/2025/10/30/karla-tarazona-se-pelea-con-christian-dominguez-en-vivo-y-el-revela-como-es-en-realidad-te-gusta-faltar-el-respeto-570000)
-- **Mira in KPop Demon Hunters : Everything to Know about the ‘Black Sheep’ Dancer**: [Link](https://www.netflix.com/tudum/articles/kpop-demon-hunters-mira-bio)
-
-
-### sporting lisboa (N/A, 31/10/2025 15:26 Lima)
-
-- **Aí está a esperada revolução de Rui Borges no onze do Sporting**: [Link](https://sapo.pt/artigo/ai-esta-a-esperada-revolucao-de-rui-borges-no-onze-do-sporting-690508c7fe793977d68bfcb6)
-- **Em direto/ Sporting-Alverca. Lisboetas reencontram-se em Alvalade, agora para o Campeonato**: [Link](https://observador.pt/liveblogs/sporting-alverca-lisboetas-reencontram-se-em-alvalade-agora-para-o-campeonato/)
-- **Em direto. Sporting - Alverca**: [Link](https://rr.pt/bola-branca/noticia/sporting/2025/10/31/em-direto-sporting-alverca/445902/)
 
 
