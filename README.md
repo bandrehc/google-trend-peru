@@ -1,3 +1,31 @@
+### temblor (N/A, 04/11/2025 03:33 Lima)
+
+- **IGP-Temblor en Perú hoy, lunes 3 de noviembre: Lugar exacto, magnitud y hora**: [Link](https://elcomercio.pe/peru/ultimo-temblor-en-peru-segun-igp-reportes-lugar-exacto-magnitud-y-hora-sismos-censis-epicentro-tdpe-noticia/)
+- **Un sismo de magnitud 3.8 remeció la región Junín esta madrugada**: [Link](https://rpp.pe/peru/junin/junin-sismo-de-magnitud-38-remecio-la-region-esta-madrugada-noticia-1661452)
+- **Temblor en Perú: dos sismos remecieron Ica en lo que va de hoy**: [Link](https://andina.pe/agencia/noticia-temblor-peru-dos-sismos-remecieron-ica-lo-va-hoy-1049652.aspx)
+
+
+### dolar peru (N/A, 04/11/2025 03:33 Lima)
+
+- **Precio del dólar en Perú, domingo 2 de noviembre: a cuánto cerró el tipo de cambio hoy**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-2025-a-cuanto-esta-el-dolar-este-domingo-2-de-noviembre-tipo-de-cambio-segun-bcrp-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
+- **Precio del dólar subió: Así cerró el tipo de cambio hoy 3 de noviembre en Perú**: [Link](https://www.infobae.com/peru/2025/11/03/dolar-cotizacion-de-apertura-hoy-3-de-noviembre-en-peru/)
+- **Dólar cae 10% en el año, ¿seguirá a la baja tras el recorte de tasa de la Fed?**: [Link](https://gestion.pe/tu-dinero/finanzas-personales/dolar-cae-10-en-el-ano-seguira-a-la-baja-tras-el-recorte-de-tasa-de-la-fed-noticia/)
+
+
+### beca 18 (N/A, 04/11/2025 03:33 Lima)
+
+- **Beca 18: Este martes 4 Pronabec publicará la lista de participantes que rendirán el examen nacional**: [Link](https://elperuano.pe/noticia/282219-beca-18-este-martes-4-pronabec-publicara-la-lista-de-participantes-que-rendiran-el-examen-nacional)
+- **Examen Nacional de Beca 18-2026: ¿cuándo y dónde se publicará la lista de aptos según Pronabec?**: [Link](https://www.infobae.com/peru/2025/11/03/examen-nacional-de-beca-18-2026-cuando-y-donde-se-publicara-la-lista-de-aptos-segun-pronabec/)
+- **Resultados Beca 18-2026: revisa AQUÍ la lista de postulantes APTOS para el Examen Nacional de Preselección**: [Link](https://elpopular.pe/actualidad/2025/11/03/resultados-beca-182026-revisa-aqui-la-lista-de-postulantes-aptos-para-el-examen-nacional-de-preseleccion-pronabec-299799)
+
+
+### nuggets - kings (N/A, 04/11/2025 03:33 Lima)
+
+- **Nikola Jokic sets a new season-high, Luka Doncic sits out**: [Link](https://www.eurohoops.net/en/nba-news/1889639/nikola-jokic-scores-34-points-nuggets-beat-kings-nba/)
+- **Game Recap: Nuggets 130, Kings 124**: [Link](https://www.nba.com/watch/video/game-recap-nuggets-130-kings-124)
+- **Sacramento visits Denver for conference showdown**: [Link](https://sentinelcolorado.com/sports/sacramento-visits-denver-for-conference-showdown/)
+
+
 ### whatsapp fin compatibilidad 2025 (N/A, 03/11/2025 23:28 Lima)
 
 - **Estos son los iPhone que se quedarán sin WhatsApp desde el 31 de octubre de 2025**: [Link](https://www.infobae.com/tecno/2025/10/29/estos-son-los-iphone-que-se-quedaran-sin-whatsapp-desde-el-31-de-octubre-de-2025/)
@@ -998,33 +1026,5 @@ Sin noticias relacionadas disponibles.
 - **Palmeiras vs. LDU (30 de Oct., 2025) Resultados en Vivo**: [Link](https://espndeportes.espn.com/futbol/partido/_/juegoId/759127)
 - **Juventus vs. Udinese (29 de Oct., 2025) Resultados en Vivo**: [Link](https://espndeportes.espn.com/futbol/partido/_/juegoId/736867)
 - **UD Logroñés vs. Ponferradina (30 de Oct., 2025) Resultados en Vivo**: [Link](https://www.espn.com.ar/futbol/partido/_/juegoId/759775)
-
-
-### partidos de liga 1 (N/A, 31/10/2025 23:26 Lima)
-
-- **Partidos de hoy, viernes 31 de octubre de 2025: programación, canales TV y resultados en vivo**: [Link](https://www.infobae.com/peru/deportes/2025/10/31/partidos-de-hoy-viernes-31-de-octubre-de-2025-programacion-canales-tv-y-resultados-en-vivo/)
-- **Partidos de hoy, viernes 31 de octubre del 2025: horarios y canales TV para ver EN VIVO Liga 1 y LaLiga**: [Link](https://rpp.pe/futbol/futbol-mundial/partidos-de-hoy-peru-viernes-31-de-octubre-del-2025-horarios-y-canales-tv-ver-futbol-en-vivo-noticia-1661657)
-- **Partidos de hoy, sábado 1 de noviembre: horarios y dónde ver fútbol en vivo**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/partidos-de-hoy-sabado-1-de-noviembre-del-2025-resultados-horarios-canales-tv-y-donde-ver-futbol-en-vivo-noticia/)
-
-
-### liga1 (N/A, 31/10/2025 23:26 Lima)
-
-- **Lucha por evitar el descenso: ¿qué equipos están en riesgo y qué necesitan para permanecer en la Liga1?**: [Link](https://rpp.pe/futbol/descentralizado/sport-boys-en-liga1-2025-que-equipos-estan-en-riesgo-y-que-necesitan-para-mantenerse-en-primera-noticia-1661565)
-- **El fantasma de la baja: ¿Qué necesitan los clubes que pelean el descenso para salvarse en la Liga 1 2025?**: [Link](https://depor.com/futbol-peruano/descentralizado/descenso-liga-1-2025-que-resultados-necesitan-para-salvarse-de-la-baja-ayacucho-fc-utc-alianza-universidad-y-juan-pablo-ii-liga-2-2026-noticia/)
-- **¿Cuántos equipos finalmente se irán al descenso en la actual Liga 1?**: [Link](https://www.futbolperuano.com/liga-1/noticias/cuantos-equipos-descienden-en-la-liga-1-2025-546044)
-
-
-### puebla - cruz azul (N/A, 31/10/2025 23:26 Lima)
-
-- **Puebla vs Cruz Azul: alineaciones, J16, Apertura 2025**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/15892193/puebla-vs-cruz-azul-alineaciones-formaciones-liga-mx-apertura-2025)
-- **¿A qué horas juegan y por qué canales TV mirar Puebla vs. Cruz Azul EN VIVO y GRATIS el 31 de octubre por la Liga MX 2025?**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/a-que-hora-juega-y-que-canal-transmite-puebla-vs-cruz-azul-en-vivo-hoy-31-de-octubre-por-clasico-regio-2025-de-la-liga-mx-2025-canales-tv-nnda-nnse-noticia/)
-- **Liga MX: Cruz Azul va en busca de un triunfo ante Puebla para trepar a la punta**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-cruz-azul-va-en-busca-de-un-triunfo-ante-puebla-para-trepar-a-la-punta-noticia-1661725)
-
-
-### oktoberfest (N/A, 31/10/2025 23:26 Lima)
-
-- **Raise a stein to the 27th Elder Care Oktoberfest this weekend**: [Link](https://www.tallahassee.com/story/entertainment/restaurants/2025/10/31/raise-a-glass-to-27th-elder-care-oktoberfest-charity-bottle-share/86972690007/)
-- **A TikToker From Texas Decided To Fly To Germany To Experience Oktoberfest, But He Says It Was Basically A County Fair**: [Link](https://twistedsifter.com/2025/10/a-tiktoker-from-texas-decided-to-fly-to-germany-to-experience-oktoberfest-but-he-says-it-was-basically-a-county-fair/)
-- **65th Oktoberfest promises more entertainment**: [Link](https://neweralive.na/65th-oktoberfest-promises-more-entertainment/)
 
 
