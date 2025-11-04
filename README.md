@@ -1,3 +1,45 @@
+### whatsapp fin compatibilidad 2025 (N/A, 03/11/2025 23:28 Lima)
+
+- **Estos son los iPhone que se quedarán sin WhatsApp desde el 31 de octubre de 2025**: [Link](https://www.infobae.com/tecno/2025/10/29/estos-son-los-iphone-que-se-quedaran-sin-whatsapp-desde-el-31-de-octubre-de-2025/)
+- **Adiós a WhatsApp: los celulares en los que deja de funcionar la aplicación en noviembre 2025**: [Link](https://www.c5n.com/tecnologia/adios-whatsapp-los-celulares-los-que-deja-funcionar-la-aplicacion-noviembre-2025-n219584)
+- **¿En qué dispositivos dejará de funcionar WhatsApp y qué hacer si te pasa?**: [Link](https://www.cronica.com.mx/tendencias/2025/10/31/en-que-dispositivos-dejara-de-funcionar-whatsapp-y-que-hacer-si-te-pasa/)
+
+
+### trail blazers - lakers (N/A, 03/11/2025 23:28 Lima)
+
+- **Lakers have chance to avenge early loss to Blazers**: [Link](https://www.thesportsleader.com/2025/11/03/lakers-have-chance-to-avenge-early-loss-to-blazers/)
+- **BetMGM Promo Code NYPDM1500: Get a 20% first deposit match up to $1,500 for Lakers vs. Trail Blazers**: [Link](https://nypost.com/2025/11/03/betting/betmgm-promo-code-nypdm1500-get-a-20-first-deposit-match-up-to-1500-for-lakers-vs-trail-blazers/)
+- **How to Watch Lakers vs Trail Blazers: Live Stream NBA, TV Channel**: [Link](https://www.newsweek.com/sports/how-to-watch-lakers-vs-trail-blazers-live-stream-nba-tv-channel-10986294)
+
+
+### seattle sounders - minnesota (N/A, 03/11/2025 23:28 Lima)
+
+- **Realio’s Ratings: The St. Clair Stare**: [Link](https://www.sounderatheart.com/2025/11/seattle-sounders-minnesota-united-player-ratings-morris-3/)
+- **Rusnak confident Sounders can use home advantage in Game 2**: [Link](https://www.beinsports.com/en-us/soccer/mls/articles/rusnak-confident-sounders-can-use-home-advantage-in-game-2-2025-11-03)
+- **SEAvMIN Starting XI: Schmetzer shifts formation with Danny Musovski, Jordan Morris leading attack as front two**: [Link](https://www.soundersfc.com/news/seavmin-starting-xi-schmetzer-shifts-formation-with-danny-musovski-jordan-morris-leading-attack-as-front-two)
+
+
+### betssy chávez mexico (N/A, 03/11/2025 23:28 Lima)
+
+- **Peru severs diplomatic relations with Mexico after former prime minister claims asylum**: [Link](https://www.theguardian.com/world/2025/nov/04/peru-severs-diplomatic-relations-mexico-former-prime-minister-claims-asylum)
+- **Peru breaks off diplomatic relations with Mexico after ex-PM flees to Mexican embassy**: [Link](https://www.reuters.com/world/americas/peru-breaks-off-diplomatic-relations-with-mexico-over-ex-prime-ministers-asylum-2025-11-03/)
+- **Peru-Mexico: Lima cuts off diplomatic ties with Mexico over ex-PM's asylum**: [Link](https://www.bbc.com/news/articles/czdrg9zqnljo)
+
+
+### kick (N/A, 03/11/2025 23:28 Lima)
+
+- **Kick introduces drops with new Rust partnership, how to get them**: [Link](https://win.gg/kick-drops-rust-how-to-get/)
+- **From boardroom to bootroom: Community stars take the field for charity**: [Link](https://www.nzherald.co.nz/waikato-news/news/kick-for-a-cause-returns-to-waikato-to-raise-funds-for-salvation-army/7DA7IUB5MVB5TLJ4IM6LEJGDVU/)
+- **21-year-old University of Utah student wins $125K in ESPN kicking contest**: [Link](https://www.ksl.com/article/51399045/21-year-old-university-of-utah-student-wins-125k-in-espn-kicking-contest)
+
+
+### cronograma retiro afp 2025 (N/A, 03/11/2025 23:28 Lima)
+
+- **Consulta Retiro AFP 2025 - LINK: Solicita hoy tu desembolso según el último dígito de tu DNI**: [Link](https://elcomercio.pe/respuestas/tramites/link-del-octavo-retiro-afp-solicita-tu-desembolso-segun-tu-numero-de-dni-cronograma-retiro-de-afp-tdpe-noticia/)
+- **Retiro de AFP 2025: Este grupo de afiliados pueden solicitar en noviembre y conocer la fecha del depósito**: [Link](https://www.infobae.com/peru/2025/10/31/retiro-de-afp-2025-quienes-podran-solicitar-en-noviembre-y-cuando-reciben/)
+- **Peruanos con DNI que terminan en 5, 6 y 7 pueden presentar la solicitud de retiro AFP 2025 en estas fechas de noviembre, según cronograma oficial**: [Link](https://larepublica.pe/economia/2025/11/03/peruanos-con-dni-que-terminan-en-5-6-y-7-pueden-presentar-la-solicitud-de-retiro-afp-2025-en-estas-fechas-de-noviembre-segun-cronograma-oficial-atmp-200217)
+
+
 ### claudio pizarro (N/A, 03/11/2025 20:54 Lima)
 
 - **Claudio Pizarro sería papá otra vez tras la separación de Karla Salcedo: así lo anunció Magaly TV La Firme**: [Link](https://www.infobae.com/peru/2025/11/03/claudio-pizarro-seria-papa-otra-vez-tras-la-separacion-de-karla-salcedo-asi-lo-anuncio-magaly-tv-la-firme/)
@@ -984,47 +1026,5 @@ Sin noticias relacionadas disponibles.
 - **Raise a stein to the 27th Elder Care Oktoberfest this weekend**: [Link](https://www.tallahassee.com/story/entertainment/restaurants/2025/10/31/raise-a-glass-to-27th-elder-care-oktoberfest-charity-bottle-share/86972690007/)
 - **A TikToker From Texas Decided To Fly To Germany To Experience Oktoberfest, But He Says It Was Basically A County Fair**: [Link](https://twistedsifter.com/2025/10/a-tiktoker-from-texas-decided-to-fly-to-germany-to-experience-oktoberfest-but-he-says-it-was-basically-a-county-fair/)
 - **65th Oktoberfest promises more entertainment**: [Link](https://neweralive.na/65th-oktoberfest-promises-more-entertainment/)
-
-
-### tarjeta roja (N/A, 31/10/2025 23:26 Lima)
-
-- **El Barça, en ‘Defcon1′**: [Link](https://as.com/futbol/el-barca-en-defcon1-f202510-n/)
-- **Barcelona pierde a su cerebro: las cartas de Flick ante la baja de Pedri**: [Link](https://www.espn.com.ar/futbol/espana/nota/_/id/15894607/barcelona-pierde-a-su-cerebro-las-cartas-de-flick-ante-la-baja-de-pedri)
-- **El Barça sin Pedri, por el escáner y con sorpresas**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20251031/1002560999/barca-pedri-escaner-sorpresas.html)
-
-
-### universitario vs garcilaso (N/A, 31/10/2025 23:26 Lima)
-
-- **Martín Pérez Guedes: “La gente se merece que uno siempre esté al 100% y bien predispuesto desde el lugar que te toque” | VIDEO**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/martin-perez-guedes-la-gente-se-merece-que-uno-siempre-este-al-100-y-bien-predispuesto-desde-el-lugar-que-te-toque-video-ultimas-noticia/)
-- **Así fue la vuelta a los entrenamientos del tricampeón peruano**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/asi-fue-vuelta-entrenamientos-tricampeon-peruano-n451534)
-- **Pérez Guedes sobre su título favorito con Universitario: “Si tuviera que elegir uno, sería...”**: [Link](https://depor.com/futbol-peruano/descentralizado/universitario-martin-perez-guedes-eligio-el-titulo-que-mas-le-gusto-ganar-con-el-club-liga-1-video-noticia/)
-
-
-### necaxa - santos (N/A, 31/10/2025 20:57 Lima)
-
-- **Liga MX: Necaxa se enfrenta ante la visita Santos Laguna por la fecha 16**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-necaxa-se-enfrenta-ante-la-visita-santos-laguna-por-la-fecha-16-noticia-1661705)
-- **Atajada espectacular de Unsain evita el Primero de Santos | Santos vs Necaxa Jornada**: [Link](https://www.tvazteca.com/aztecadeportes/atajada-espectacular-unsain-evita-el-primero-santos-santos-vs-necaxa-jornada)
-- **Jugador de Necaxa dirá adiós ante Santos Laguna: ¡noche de despedidas en el Estadio Victoria!**: [Link](https://bolavip.com/mx/ligamx/jugador-de-necaxa-dira-adios-ante-santos-laguna-noche-de-despedidas-en-el-estadio-victoria)
-
-
-### grizzlies - lakers (N/A, 31/10/2025 20:57 Lima)
-
-- **How to Watch Grizzlies vs. Lakers: TV Channel, Live Streaming, Tip-Off Time**: [Link](https://sports.yahoo.com/article/watch-grizzlies-vs-lakers-tv-203044560.html)
-- **Lakers vs Grizzlies: Best NBA Player Props and Picks for Oct. 31**: [Link](https://www.thelines.com/lakers-vs-grizzlies-best-nba-player-props-and-picks-for-oct-31/)
-- **Marcus Smart (quadriceps) likely to return Friday**: [Link](https://www.fantasypros.com/nba/news/549254/marcus-smart-quadriceps-likely-to-return-friday.php)
-
-
-### newells vs (N/A, 31/10/2025 20:57 Lima)
-
-- **EN VIVO: Unión se impone 1 a 0 ante Newell`s**: [Link](https://www.directvsports.com/futbol/EN-VIVO-Union-se-impone-1-a-0-ante-Newells-20251028-0002.html)
-- **Newell’s vs Unión hoy: resultado EN VIVO y goles por la Liga Profesional**: [Link](https://www.365scores.com/es/news/newells-vs-union-hoy-resultado-en-vivo/)
-- **Newell's ante Unión: el llamativo dato estadístico que favorece a los rojinegros cuando juegan en su estadio**: [Link](https://www.lacapital.com.ar/ovacion/newells-union-el-llamativo-dato-estadistico-que-favorece-los-rojinegros-cuando-juegan-su-estadio-n10227348.html)
-
-
-### rbd (N/A, 31/10/2025 20:57 Lima)
-
-- **Dulce María anuncia segundo embarazo**: [Link](https://www.americatv.com.pe/noticias/espectaculos/dulce-maria-anuncia-su-segundo-embarazo-n512386)
-- **Dulce María, exintegrante de RBD, anuncia su segundo embarazo: "Ha llegado en el momento perfecto"**: [Link](https://rpp.pe/famosos/celebridades/dulce-maria-exintegrante-de-rbd-anuncia-su-segundo-embarazo-ha-llegado-en-el-momento-perfecto-noticia-1661361)
-- **Dulce María, ex RBD, anunció su segundo embarazo**: [Link](https://www.ritmoromantica.pe/noticias/musica/dulce-maria-ex-rbd-anuncio-su-segundo-embarazo-instagram/)
 
 
