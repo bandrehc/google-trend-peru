@@ -1,3 +1,73 @@
+### psg vs (N/A, 04/11/2025 15:27 Lima)
+
+- **Dónde ver PSG vs Bayern Múnich HOY: canal tv online del duelo en el Parque de Los Príncipes por Champions League 2025/2026**: [Link](https://www.infobae.com/peru/deportes/2025/11/04/donde-ver-psg-vs-bayern-munich-en-vivo-hoy-canal-tv-online-partido-jornada-4-champions-league-2025/)
+- **🟣 FOX One EN VIVO ONLINE — ver partido PSG vs. Bayern Múnich gratis por TV y Streaming**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/canal-fox-one-en-vivo-gratis-donde-ver-partido-psg-vs-bayern-munich-por-futbol-tv-y-claro-video-online-amazon-prime-caliente-nnda-nnrt-noticia/)
+- **Champions League: Se enfrentan PSG y Bayern Múnich por la fecha 4**: [Link](https://rpp.pe/futbol/ligas-internacionales/champions-league-se-enfrentan-psg-y-bayern-munich-por-la-fecha-4-noticia-1662164)
+
+
+### psg (N/A, 04/11/2025 15:27 Lima)
+
+- **LdC : le nouveau communiqué incendiaire du Bayern Munich**: [Link](https://www.footmercato.net/a8672313673382819532-ldc-le-nouveau-communique-incendiaire-du-bayern-munich)
+- **C1 : suis le multiplex sur OneFootball**: [Link](https://onefootball.com/fr/news/c1-suis-le-multiplex-sur-onefootball-41903050)
+- **"On est capable de les battre" : Vincent Kompany prévient le PSG**: [Link](https://tribuna.com/fr/news/2025-11-04-on-est-capable-de-les-battre-vincent-kompany-previent/)
+
+
+### atletico (N/A, 04/11/2025 15:27 Lima)
+
+- **Champions League: U. Saint-Gilloise se enfrentará a Atlético de Madrid por la fecha 4**: [Link](https://rpp.pe/futbol/ligas-internacionales/champions-league-u-saint-gilloise-se-enfrentara-a-atletico-de-madrid-por-la-fecha-4-noticia-1662163)
+- **Atlético Madrid recibe a Union SG y busca un triunfo que lo acomode en la Champions League**: [Link](https://www.espn.com.pe/futbol/euro/nota/_/id/15908932/atletico-madrid-vs-union-sg-fase-liga-champions-league-equipo-fecha-hora-y-tv-en-vivo)
+- **Atlético de Madrid - Union Saint-Gilloise hoy, en directo: fase liga de Champions League, en vivo**: [Link](https://as.com/futbol/champions/atletico-union-saint-gilloise-en-directo-champions-league-hoy-en-vivo-f202511-d/)
+
+
+### bayern (N/A, 04/11/2025 15:27 Lima)
+
+- **FC Bayern legt Protest bei UEFA ein | Champions League-Spiel in Paris**: [Link](https://fcbayern.com/de/news/2025/11/fc-bayern-legt-protest-bei-uefa-ein)
+- **Champions League LIVE: Schlussphase in Neapel – FCB & PSG mit Top-Elf, Wirtz startet**: [Link](https://www.flashscore.de/news/fu-ball-champions-league-champions-league-live-schlussphase-in-neapel-fcb-psg-mit-top-elf-wirtz-startet/dYWMeVoQ/)
+- **Ousmane Dembele ist laut Luis Enrique fit für PSG gegen FC Bayern**: [Link](https://sport.sky.de/fussball/artikel/ousmane-dembele-ist-laut-luis-enrique-fit-fuer-psg-gegen-fc-bayern/13463270/34171)
+
+
+### juventus vs (N/A, 04/11/2025 15:27 Lima)
+
+- **Champions League line-ups: Juventus vs. Sporting CP**: [Link](https://football-italia.net/champions-league-line-ups-juventus-sporting-cp/)
+- **Major boost for Spalletti as key Juventus star rejoins group training**: [Link](https://www.juvefc.com/boost-spalletti-kenan-yildiz-juventus-training/)
+- **Squad List | Juventus-Sporting CP**: [Link](https://www.juventus.com/en/news/articles/squad-list-juventus-sporting-cp-04-11-25)
+
+
+### disney plus (N/A, 04/11/2025 15:27 Lima)
+
+- **Disney+ Confirms 5 New Marvel Releases for the Rest of 2025**: [Link](https://thedirect.com/article/disney-plus-marvel-2025-releases-rest)
+- **'Fantastic Four: First Steps' hits Disney+ this week. Here's how to watch.**: [Link](https://www.usatoday.com/story/entertainment/movies/2025/11/03/fantastic-four-first-steps-watch-streaming/87012296007/)
+- **'Fantastic Four: First Steps' Streaming on Disney Plus: Release Date and Time**: [Link](https://www.cnet.com/tech/services-and-software/fantastic-four-first-steps-streaming-on-disney-plus-release-date-and-time/)
+
+
+### juventus (N/A, 04/11/2025 15:27 Lima)
+
+- **Juventus, Spalletti: "Dobbiamo far vedere il livello di calcio che vogliamo proporre"**: [Link](https://gianlucadimarzio.com/juventus-spalletti-sporting-dichiarazioni-prepartita-champions-league-news-4-novembre-2025/)
+- **UCL | Le formazioni ufficiali di Juventus-Sporting CP**: [Link](https://www.juventus.com/it/news/articoli/ucl-2025-2026-league-phase-juventus-sporting-cp-formazioni)
+- **Champions League: in campo Juventus-Sporting 0-0 DIRETTA**: [Link](https://www.ansa.it/sito/notizie/sport/2025/11/04/champions-league-in-campo-juventus-sporting-0-0-diretta_9e56add1-d710-43a9-885a-38467480b562.html)
+
+
+### bayer vs (N/A, 04/11/2025 15:27 Lima)
+
+- **Con Ríos en alza, Benfica necesita su primera victoria en Champions**: [Link](https://www.espn.com.pe/futbol/champions-league/nota/_/id/15913019/benfica-vs-leverkusen-fecha-4-champions-league-equipo-fecha-hora-y-tv-en-vivo)
+- **Champions League: Bayer Leverkusen se enfrentará a Benfica por la fecha 4**: [Link](https://rpp.pe/futbol/ligas-internacionales/champions-league-bayer-leverkusen-se-enfrentara-a-benfica-por-la-fecha-4-noticia-1662313)
+- **Pronóstico Benfica - Bayer Leverkusen. Champions League | 05/11/2025**: [Link](https://gainblers.com/pe/pronosticos/futbol/europa/champions-league/pronostico-benfica-bayer-leverkusen-05-11-2025/)
+
+
+### psv (N/A, 04/11/2025 15:27 Lima)
+
+- **Heksenketel in Athene: PSV onder zware beveiliging het stadion in**: [Link](https://www.omroepbrabant.nl/nieuws/4774144/heksenketel-in-athene-psv-onder-zware-beveiliging-het-stadion-in)
+- **Bosz zet zijn ploeg op scherp: 'Zullen vanaf het begin messcherp moeten zijn'**: [Link](https://www.voetbalprimeur.nl/nieuws/1708788/bosz-voorafgaand-aan-de-wedstrijd.html)
+- **Schouten stelt duidelijk doel: ‘Dat moeten we gaan doen’**: [Link](https://www.soccernews.nl/news/schouten-stelt-duidelijk-doel-dat-moeten-we-gaan-doen/)
+
+
+### bet365 (N/A, 04/11/2025 15:27 Lima)
+
+- **bet365 Bonus Code TOPACTION: $200 Bonus for 76ers vs. Bulls, NBA, NFL, Any Sport This Week**: [Link](https://www.actionnetwork.com/legal-online-sports-betting/bet365-bonus-code-topaction-200-bonus-76ers-bulls-nba-nfl-any-sport-this-week)
+- **Best Betting Promos for NFL Week 9 From DraftKings, FanDuel and More**: [Link](https://www.foxsports.com/stories/betting/best-sportsbook-promos-week-9-nfl-bonuses-you-can-claim-today)
+- **Underdog Promo Code HANDLE: Grab $100 in Bonus Entries for Cardinals vs. Cowboys Monday Night Football**: [Link](https://sportshandle.com/underdog-promo-code-handle-grab-100-bonus-entries-cardinals-cowboys-monday-night-football/)
+
+
 ### jonathan bailey (N/A, 04/11/2025 11:29 Lima)
 
 - **Jonathan Bailey Is the Sexiest Man Alive 2025! (We Know, We Nailed It.)**: [Link](https://people.com/jonathan-bailey-is-sexiest-man-alive-2025-11842000)
@@ -956,74 +1026,5 @@ Sin noticias relacionadas disponibles.
 - **Vélez y Talleres se miden en un choque con mucho en juego por el Torneo Clausura**: [Link](https://www.espn.com.ar/futbol/argentina/nota/_/id/15883789/velez-vs-talleres-fecha-14-torneo-clausura-equipo-fecha-hora-y-tv-en-vivo)
 - **Así viene el Fortín**: [Link](https://www.vavel.com/ar/futbol-argentino/2025/11/01/talleres-de-cordoba/1239813-asi-viene-el-fortin.html)
 - **Torneo Clausura. Talleres: con la única baja de Depietri, los 22 citados por Tevez para visitar a Vélez**: [Link](https://www.lavoz.com.ar/deportes/futbol/talleres-con-la-unica-baja-de-depietri-los-22-citados-por-tevez-para-visitar-a-velez/)
-
-
-### liverpool vs. crystal palace (N/A, 01/11/2025 15:22 Lima)
-
-- **Liverpool v Crystal Palace: Carabao Cup team news**: [Link](https://www.liverpoolfc.com/news/liverpool-v-crystal-palace-carabao-cup-team-news)
-- **Former Man CIty star defends Arne Slot despite Liverpool’s struggles**: [Link](https://onefootball.com/en/news/former-man-city-star-defends-arne-slot-despite-liverpools-struggles-41887857)
-- **Oliver Glasner discusses the importance of identity**: [Link](https://www.vavel.com/en/football/2025/10/31/crystal-palace/1239757-oliver-glasner-discusses-the-importance-of-identitya-solid-system-is-producing-performances-at-a-very-competitive-level.html)
-
-
-### liverpool - aston villa (N/A, 01/11/2025 15:22 Lima)
-
-- **Ryan Gravenberch on fitness, Villa challenge and a 'huge week' for Liverpool**: [Link](https://www.liverpoolfc.com/news/ryan-gravenberch-fitness-villa-challenge-and-huge-week-liverpool)
-- **Liverpool vs Aston Villa Predictions: Records set to tumble at Anfield**: [Link](https://www.goal.com/en-us/betting/liverpool-vs-aston-villa-predictions-11-01/bltb9aab41e89449917)
-- **Alan Shearer takes aim at Liverpool players amid worrying verdict - 'I don't like it'**: [Link](https://www.liverpool.com/liverpool-fc-news/features/alan-shearer-liverpool-players-prediction-32794707)
-
-
-### cremonese - juventus (N/A, 01/11/2025 15:22 Lima)
-
-- **Cremonese-Juve diretta: l'esordio di Spalletti, segui il match di Serie A LIVE**: [Link](https://www.corrieredellosport.it/news/calcio/serie-a/2025/11/01-144230232/cremonese-juve_diretta_l_esordio_di_spalletti_segui_il_match_di_serie_a_live)
-- **Cremonese-Juventus, la MOVIOLA LIVE: Kostic chiede un rigore per fallo di Terracciano**: [Link](https://www.calciomercato.com/liste/cremonese-juventus-la-moviola-live-kostic-chiede-un-rigore-per-fallo-di-terracciano/blt1e8cb4c9d2fe86b9)
-- **Cremo-Juve | UFFICIALI: le scelte su Vlahovic e Conceiçao. C'è Vardy**: [Link](https://onefootball.com/id/berita/cremo-juve-ufficiali-le-scelte-su-vlahovic-e-conceicao-ce-vardy-41888251)
-
-
-### feyenoord - volendam (N/A, 01/11/2025 15:22 Lima)
-
-- **Van Persie geeft uitleg over keuzes in opstelling: 'Dat is de reden dat hij nu op een andere positie staat'**: [Link](https://www.fr-fans.nl/nieuws/74694/van-persie-geeft-uitleg-over-keuzes-in-opstelling-dat-is-de-reden-dat-hij-nu-op-een-andere-positie-staat)
-- **VI Live: geen derde Rotterdamse goal na buitenspel Sauer**: [Link](https://www.vi.nl/nieuws/vi-live-geen-derde-rotterdamse-goal-na-buitenspel-sauer)
-- **🔴 FC Volendam op grotere achterstand • Ajax blijft steken op gelijkspel**: [Link](https://www.nhnieuws.nl/nieuws/353928/fc-volendam-op-grotere-achterstand-ajax-blijft-steken-op-gelijkspel)
-
-
-### ajax vs (N/A, 01/11/2025 11:25 Lima)
-
-- **Preview:Ajax vs. Heerenveen - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/ajax/preview/ajax-vs-heerenveen-prediction-team-news-lineups_584718.html)
-- **Ajax seek back-to-back Eredivisie wins against Heerenveen in Saturday’s clash**: [Link](https://news.ssbcrack.com/ajax-seek-back-to-back-eredivisie-wins-against-heerenveen-in-saturdays-clash/)
-- **Predicted Lineups and Player News for Ajax vs SC Heerenveen 01/11/25 - Eredivisie News**: [Link](https://footballpredictions.net/predicted-lineups-ajax-v-heerenveen-01-11-2025)
-
-
-### frankfurt fc (N/A, 01/11/2025 11:25 Lima)
-
-- **Nathaniel Brown vs. 1. FC Heidenheim 1846 – Player props & odds to score a goal on November 1**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/10/31/nathaniel-brown-soccer-player-props-11-1-2025/87018349007/)
-- **Toppmöller discusses possible rotation ahead of Eintracht Frankfurt's trip to Heidenheim**: [Link](https://bulinews.com/toppmoller-discusses-possible-rotation-ahead-eintracht-frankfurt-trip-heidenheim)
-- **Heidenheim vs Eintracht Frankfurt Prediction, 11/1/2025 Soccer Pick, Tips and Odds**: [Link](https://www.docsports.com/free-picks/soccer/2025/heidenheim-vs-eintracht-frankfurt-prediction-11-1-2025-soccer-pick-tips-and-odds.html)
-
-
-### psg vs niza (N/A, 01/11/2025 11:25 Lima)
-
-- **How to Watch: PSG vs. Nice on beIN SPORTS**: [Link](https://www.beinsports.com/en-us/soccer/ligue-1/articles/how-to-watch-psg-vs-nice-on-bein-sports-2025-10-31)
-- **The Paris squad for the visit of Nice**: [Link](https://www.psg.fr/en/content/squad-paris-saint-germain-v-ogc-nice-ligue-1-2025-2026)
-- **Kojo Peprah Oppong vs. Paris Saint-Germain – Player props & odds to score a goal on November 1**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/10/31/kojo-peprah-oppong-soccer-player-props-11-1-2025/87018004007/)
-
-
-### nicki nicole (N/A, 01/11/2025 11:25 Lima)
-
-- **Lamine Yamal Confirms Breakup with Nicki Nicole: “There Was No Infidelity”**: [Link](https://athlonsports.com/soccer/lamine-yamal-confirms-breakup-with-nicki-nicole-there-was-no-infidelity)
-- **Barcelona Star Yamal in Scandal After El Clásico**: [Link](https://www.chosun.com/english/sports-en/2025/11/01/N6ZIJCZNCFHLBMAXLZGJJU6TXY/)
-- **Lamine Yamal accused of cheating on Nicki Nicole with Italian influencer Anna Gegnoso**: [Link](https://www.mundodeportivo.com/us/en/20251030/733611/lamine-yamal-accused-of-cheating-on-nicki-nicole-with-italian-influencer-anna-gegnoso.html)
-
-
-### psg - niza (N/A, 01/11/2025 11:25 Lima)
-
-- **El líder PSG recibe a Niza en busca de volver al triunfo en la Ligue 1**: [Link](https://www.espn.com.pe/futbol/francia/nota/_/id/15890260/psg-vs-niza-por-ligue-1-equipo-fecha-hora-y-tv-en-vivo)
-- **Liga de Francia: PSG marcha como líder y busca llevarse los 3 puntos para mantenerse en la cima**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-de-francia-psg-marcha-como-lider-y-busca-llevarse-los-3-puntos-para-mantenerse-en-la-cima-noticia-1661780)
-
-
-### ajax - heerenveen (N/A, 01/11/2025 11:25 Lima)
-
-- **Robin Veldman heeft 'vraagtekens' en merkt 'honger in de groep' richting duel met Ajax**: [Link](https://www.sc-heerenveen.nl/nieuws/robin-veldman-heeft-vraagtekens-en-merkt-honger-in-de-groep-richting-duel-met-ajax)
-- **Penalty Ajax teruggedraaid na schwalbe Taylor • Hilgers loopt kruisbandblessure op**: [Link](https://nos.nl/liveblog/2588778-penalty-ajax-teruggedraaid-na-schwalbe-taylor-hilgers-loopt-kruisbandblessure-op)
-- **Heitinga verklaart basisopstelling: 'Hij heeft zich wel in de basis gespeeld'**: [Link](https://www.voetbalprimeur.nl/nieuws/1707663/heitinga-over-sutalo-en-regeer-voor-duel-met-heerenveen.html)
 
 
