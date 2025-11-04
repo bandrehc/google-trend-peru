@@ -1,3 +1,50 @@
+### instagram (N/A, 04/11/2025 07:54 Lima)
+
+- **Britney Spears' Instagram account deleted amid a flurry of concerning posts**: [Link](https://nz.news.yahoo.com/britney-spears-instagram-account-deleted-031946110.html)
+- **Britney Spears Deletes Instagram Account After Recent Worrying Posts**: [Link](https://people.com/britney-spears-deletes-instagram-account-after-recent-worrying-posts-11841831)
+- **Britney Spears Deactivates Instagram Account After Series of Concerning Posts**: [Link](https://www.rollingstone.com/music/music-news/britney-spears-instagram-account-deactivated-1235458422/)
+
+
+### w (N/A, 04/11/2025 07:54 Lima)
+
+- **Dick Cheney, influential Republican vice president to George W. Bush, dies**: [Link](https://www.cnn.com/2025/11/04/politics/dick-cheney-death-obit)
+- **Dick Cheney, powerful vice president during war on terrorism, dies at 84**: [Link](https://www.washingtonpost.com/obituaries/2025/11/04/dick-cheney-us-vice-president-dead/)
+- **Dick Cheney, vice-president and giant of Republican politics, dies aged 84**: [Link](https://www.theguardian.com/us-news/2025/nov/04/dick-cheney-vice-president-republican-bush-dies)
+
+
+### teams (N/A, 04/11/2025 07:54 Lima)
+
+- **Predicting the rest of the Premier League season: How all 20 teams will finish**: [Link](https://www.espn.com/soccer/story/_/id/46834368/predicting-all-20-premier-league-teams-finish-season-2025-26-arsenal-liverpool-manchester-chelsea)
+- **Premier League: What can Arsenal, Man City, Liverpool and co read into the table after 10 games?**: [Link](https://www.bbc.com/sport/football/articles/c07m5yk9dgzo)
+- **Arsenal top, Wolves bottom, Liverpool being sh*t and other inevitable Premier League things**: [Link](https://www.football365.com/news/arsenal-top-wolves-bottom-liverpool-being-sht-and-other-inevitable-things-we-should-have-seen-coming)
+
+
+### el peruano (N/A, 04/11/2025 07:54 Lima)
+
+- **Museo Gráfico El Peruano abrió sus puertas al público**: [Link](https://elperuano.pe/noticia/282191-museo-grafico-el-peruano-abrio-sus-puertas-al-publico)
+- **Museo Gráfico del Diario El Peruano abre sus puertas este domingo**: [Link](https://www.gacetaperutv.pe/2025/11/museo-grafico-del-diario-el-peruano-abre-sus-puertas-este-domingo.html)
+- **Museo Gráfico del Diario El Peruano abrió sus puertas en la jornada de “Museos Abiertos”**: [Link](https://elperuano.pe/noticia/282177-museo-grafico-del-diario-el-peruano-abrio-sus-puertas-en-la-jornada-de-museos-abiertos)
+
+
+### atv en vivo (N/A, 04/11/2025 07:54 Lima)
+
+- **¿Estafa o incumplimiento contractual? Denuncian a tiktoker Crhiss Vanger**: [Link](https://lpderecho.pe/denuncian-tiktoker-habria-estafado-160-personas-promesa-multiplicar-inversion/)
+- **Quién es Crhiss Vanger: el tiktoker peruano acusado de estafar a más de 160 personas por más de un millón de soles**: [Link](https://www.infobae.com/peru/2025/11/03/quien-es-crhiss-vanger-el-tiktoker-peruano-acusado-de-estafar-a-mas-de-160-personas-por-mas-de-un-millon-de-soles/)
+- **Influencer Chris Vanger es investigado por presunta estafa a más de 160 personas últimas | LIMA**: [Link](https://elcomercio.pe/lima/policiales/influencer-chris-vanger-es-investigado-por-presunta-estafa-a-mas-de-160-personas-ultimas-noticia/)
+
+
+### canal 2 en vivo (N/A, 04/11/2025 07:54 Lima)
+
+- **Yo Soy Conciertos 2025: Encuesta del REACT, lunes 03 de noviembre**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-conciertos-2025-encuesta-del-react-lunes-03-de-noviembre_20251103/)
+
+
+### pronabec beca 18 (N/A, 04/11/2025 07:54 Lima)
+
+- **Beca 18: Este martes 4 Pronabec publicará la lista de participantes que rendirán el examen nacional**: [Link](https://elperuano.pe/noticia/282219-beca-18-este-martes-4-pronabec-publicara-la-lista-de-participantes-que-rendiran-el-examen-nacional)
+- **Examen Nacional de Beca 18-2026: ¿cuándo y dónde se publicará la lista de aptos según Pronabec?**: [Link](https://www.infobae.com/peru/2025/11/03/examen-nacional-de-beca-18-2026-cuando-y-donde-se-publicara-la-lista-de-aptos-segun-pronabec/)
+- **Pronabec publica oferta de academias que preparan gratis para Examen de Preselección**: [Link](https://andina.pe/agencia/noticia-pronabec-publica-oferta-academias-preparan-gratis-para-examen-preseleccion-1049807.aspx)
+
+
 ### temblor (N/A, 04/11/2025 03:33 Lima)
 
 - **IGP-Temblor en Perú hoy, lunes 3 de noviembre: Lugar exacto, magnitud y hora**: [Link](https://elcomercio.pe/peru/ultimo-temblor-en-peru-segun-igp-reportes-lugar-exacto-magnitud-y-hora-sismos-censis-epicentro-tdpe-noticia/)
@@ -977,54 +1024,5 @@ Sin noticias relacionadas disponibles.
 - **Newcastle Jets vs Sydney FC Prediction and Betting Tips | November 1st 2025**: [Link](https://www.sportskeeda.com/football/newcastle-jets-vs-sydney-fc-prediction-betting-tips-november-1st-2025)
 - **Exposed: Young Jets taught lesson by clinical Sydney FC**: [Link](https://www.newcastleherald.com.au/story/9102293/toures-hat-trick-helps-sydney-fc-defeat-newcastle-4-1/)
 - **Jets eye off back to back A-League wins**: [Link](https://www.nbnnews.com.au/2025/10/30/jets-eye-off-back-to-back-a-league-wins/)
-
-
-### hbo max (N/A, 01/11/2025 03:28 Lima)
-
-- **“It: Welcome to Derry” Capítulo 2: Hora de estreno confirmado en HBO Max**: [Link](https://elcomercio.pe/saltar-intro/noticias/it-welcome-to-derry-capitulo-2-hora-de-estreno-confirmado-hbo-max-noticia/)
-- **“IT: Bienvenidos a Derry”: el número de temporadas que tendría la serie de HBO**: [Link](https://gestion.pe/mix/tendencias-mix/it-bienvenidos-a-derry-el-numero-de-temporadas-que-tendria-la-serie-de-hbo-video-nnda-nnlt-noticia/)
-- **Globos rojos y payasos invaden el mundo en la inquietante campaña global de HBO Max**: [Link](https://www.mercadonegro.pe/publicidad/globos-rojos-y-payasos-invaden-el-mundo-en-la-inquietante-campana-global-de-hbo-max/)
-
-
-### terremoto sismo temblor hoy epicentro (N/A, 01/11/2025 03:28 Lima)
-
-- **Temblor hoy en Perú, viernes 31 de octubre: sismo de magnitud 4.3 sacude la región Ucayali**: [Link](https://andina.pe/agencia/noticia-temblor-hoy-peru-viernes-31-octubre-sismo-magnitud-43-sacude-region-ucayali-1050278.aspx)
-- **Temblor en Perú según el IGP: hora exacta, epicentro y magnitud**: [Link](https://elcomercio.pe/respuestas/hoy-temblor-en-peru-en-vivo-ultimos-sismos-hora-magnitud-y-epicentro-del-reporte-segun-el-igp-instituto-geofisico-del-peru-lima-callao-ica-lbposting-noticia/)
-- **Áncash: un sismo de magnitud 4.6 se sintió esta tarde en Huarmey**: [Link](https://rpp.pe/peru/ancash/ancash-un-sismo-de-magnitud-46-se-sintio-en-huarmey-noticia-1661884)
-
-
-### dni (N/A, 01/11/2025 03:28 Lima)
-
-- **Polacy podzieleni w sprawie Halloween. "Da się pogodzić, tylko to niełatwe zadanie"**: [Link](https://wiadomosci.onet.pl/polacy-podzieleni-w-sprawie-halloween-da-sie-pogodzic-tylko-to-nielatwe-zadanie/92hexfx)
-- **Cukierek albo psikus. Historia najstraszniejszego wieczoru w roku**: [Link](https://brzeg24.pl/pl/811_kartka-z-kalendarza/243113_cukierek-albo-psikus-historia-najstraszniejszego-wieczoru-w-roku.html)
-- **Bp Jacek Kiciński: Świętość nie jest ponad nasze siły**: [Link](https://misyjne.pl/bp-jacek-kicinski-swietosc-nie-jest-ponad-nasze-sily/)
-
-
-### epic (N/A, 01/11/2025 03:28 Lima)
-
-- **‘Baahubali: The Epic’ Review: The Return of the King**: [Link](https://www.nytimes.com/2025/10/30/movies/baahubali-the-epic-review.html)
-- **‘RRR Director S.S. Rajamouli Returns With ‘Baahubali: The Epic’ – Specialty Preview**: [Link](https://deadline.com/2025/10/new-indie-films-opening-rrrs-director-back-with-baahubali-the-epic-1236604410/)
-- **Baahubali The Epic box office collection day 1: SS Rajamouli film records biggest opening day for re-release in India | Hindustan Times**: [Link](https://www.hindustantimes.com/entertainment/telugu-cinema/baahubali-the-epic-box-office-collection-day-1-ss-rajamouli-film-records-biggest-opening-day-for-re-release-in-india-101761924162877.html)
-
-
-### trail blazers - nuggets (N/A, 01/11/2025 03:28 Lima)
-
-- **Trail Blazers vs. Nuggets Second-Half Thread**: [Link](https://www.blazersedge.com/gameday-coverage/104697/trail-blazers-vs-nuggets-second-half-how-to-watch-talk)
-- **Denver Undone In Portland**: [Link](https://www.kcentv.com/video/sports/locked-on/lo-denver/denver-nuggets-show/denver-undone-in-portland/535-291ce549-daaa-4c47-bdda-cc4b2fe42b04)
-- **Nuggets vs. Blazers observations: Denver can’t get Nikola Jokic the ball in crunch time**: [Link](https://www.denverpost.com/2025/10/31/nuggets-blazers-observations-nikola-jokic/)
-
-
-### 1 de noviembre (N/A, 01/11/2025 03:28 Lima)
-
-- **Feriado del 1 de noviembre: ¿A qué hora abren los supermercados en Lima? Descubre los horarios de Metro, Plaza Vea, Tottus y más**: [Link](https://elcomercio.pe/respuestas/a-que-hora/feriado-del-1-de-noviembre-a-que-hora-abren-los-supermercados-en-lima-descubre-los-horarios-de-metro-plaza-vea-tottus-y-mas-tdpe-noticia/)
-- **¿A qué hora abren los bancos este feriado del 1 de noviembre? Horario de atención de BCP, Interbank y BBVA**: [Link](https://libero.pe/tiempoextra/2025/10/31/hora-abren-bancos-feriado-del-1-de-noviembre-horario-de-atencion-de-bcp-interbank-bbva-1764582)
-- **Feriado del 1 de noviembre: Conoce los horarios de atención de PlazaVea, Metro Tottus y más**: [Link](https://www.peru-retail.com/feriado-del-1-de-noviembre-conoce-los-horarios-de-atencion-de-plazavea-metro-tottus-y-mas/)
-
-
-### atl. san luis - juárez (N/A, 31/10/2025 23:26 Lima)
-
-- **Palmeiras vs. LDU (30 de Oct., 2025) Resultados en Vivo**: [Link](https://espndeportes.espn.com/futbol/partido/_/juegoId/759127)
-- **Juventus vs. Udinese (29 de Oct., 2025) Resultados en Vivo**: [Link](https://espndeportes.espn.com/futbol/partido/_/juegoId/736867)
-- **UD Logroñés vs. Ponferradina (30 de Oct., 2025) Resultados en Vivo**: [Link](https://www.espn.com.ar/futbol/partido/_/juegoId/759775)
 
 
