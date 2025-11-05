@@ -1,3 +1,73 @@
+### sbs (N/A, 04/11/2025 20:56 Lima)
+
+- **Reserve Bank of Australia Leaves Rates Steady as Inflation Risks Simmer**: [Link](https://www.wsj.com/articles/reserve-bank-of-australia-leaves-rates-steady-as-inflation-risks-simmer-c31339f0?gaa_at=eafs&gaa_n=AWEtsqd1l53iGNvemphoq3W7BZPHAeBCXm2qb9MrSPMzCBaTeCJeitZ-XTpN&gaa_ts=690ab244&gaa_sig=zUYDSZuCMNX80vO5d8Vo7-UAx3wk2mg3FOaAzDJKgx0Z39XYvvL5HCWC95WKRhgu3PkvJnXNFtxwjnQTgo5t6A%3D%3D)
+- **The RBA governor resorts to sport cliches on interest rates while stretched Australians try to keep up with costs**: [Link](https://www.theguardian.com/australia-news/2025/nov/04/the-rba-governor-resorts-to-sport-cliches-on-interest-rates-while-stretched-australians-try-to-keep-up-with-costs)
+- **Buyers, borrowers and sellers face tough property year after RBA holds**: [Link](https://www.realestate.com.au/news/buyers-borrowers-and-sellers-face-tough-property-year-after-rba-holds/)
+
+
+### luna llena (N/A, 04/11/2025 20:56 Lima)
+
+- **Cuándo será la Luna llena en noviembre 2025**: [Link](https://www.lanacion.com.ar/estados-unidos/cuando-sera-la-luna-llena-en-noviembre-2025-nid03112025/)
+- **Una lluvia de meteoros, planetas visibles y superlunas: estos son los fenómenos astronómicos de noviembre**: [Link](https://www.nationalgeographicla.com/espacio/2025/11/una-lluvia-de-meteoros-planetas-visibles-y-superlunas-estos-son-los-fenomenos-astronomicos-de-noviembre)
+- **La superluna de noviembre 2025 será la más brillante y cercana del año: cómo observarla**: [Link](https://www.infobae.com/america/ciencia-america/2025/11/04/la-superluna-de-noviembre-2025-sera-la-mas-brillante-y-cercana-del-ano-como-observarla/)
+
+
+### retiro afp retiro cronograma (N/A, 04/11/2025 20:56 Lima)
+
+- **Cronograma de retiro AFP: Consulta tu fecha de solicitud y calcula cuándo te depositan**: [Link](https://www.infobae.com/peru/2025/11/04/cronograma-de-retiro-afp-consulta-tu-fecha-de-solicitud-y-calcula-cuando-te-depositan/)
+- **Inicia HOY tu Retiro AFP en LINK: tramita el desembolso en página oficial, según tu DNI**: [Link](https://elcomercio.pe/respuestas/tramites/link-del-octavo-retiro-afp-solicita-tu-desembolso-segun-tu-numero-de-dni-cronograma-retiro-de-afp-tdpe-noticia/)
+- **Peruanos con DNI que terminan en 5, 6 y 7 pueden presentar la solicitud de retiro AFP 2025 en estas fechas de noviembre, según cronograma oficial**: [Link](https://larepublica.pe/economia/2025/11/03/peruanos-con-dni-que-terminan-en-5-6-y-7-pueden-presentar-la-solicitud-de-retiro-afp-2025-en-estas-fechas-de-noviembre-segun-cronograma-oficial-atmp-200217)
+
+
+### gonzalo bueno (N/A, 04/11/2025 20:56 Lima)
+
+- **Gonzalo Bueno se estrenó con triunfo y avanzó en el Challenger Lima 3**: [Link](https://ovacion.pe/noticias/tenis/gonzalo-bueno-se-estreno-triunfo-avanzo-challenger-lima-3)
+- **Ignacio Buse luchó, pero perdió ante Álvaro Guillén Meza en cuartos de final del Challenger de Lima 2025**: [Link](https://rpp.pe/tenis/mas-tenis/hoy-ignacio-buse-vs-guillen-meza-en-vivo-cuartos-final-lima-challenger-2025-a-que-hora-juegan-y-donde-ver-por-tv-via-atp-tour-link-gratis-partidos-de-hoy-noticia-1661763)
+- **Resultados ATP Challenger Lima 2 2025**: [Link](https://canaltenis.com/resultados-atp-challenger-lima-2-2025/)
+
+
+### paro 5 de noviembre (N/A, 04/11/2025 20:56 Lima)
+
+- **Paro de transportistas EN VIVO: Situación del transporte en Lima y Callao y los reclamos a José Jerí por asesinatos y extorsiones**: [Link](https://www.infobae.com/peru/2025/11/04/paro-de-transportistas-en-vivo-situacion-del-transporte-en-lima-callao-y-otros-distritos-por-asesinatos-y-extorsiones-a-empresas/)
+- **¿Tuviste problemas con el tránsito? El MTPE dispuso tolerancia y teletrabajo por el paro**: [Link](https://www.elperuano.pe/noticia/282283-tuviste-problemas-con-el-transito-el-mtpe-dispuso-tolerancia-y-teletrabajo-por-el-paro)
+- **Mininter moviliza 21 buses para apoyar a la ciudadanía durante paro de transportes**: [Link](https://caretas.pe/nacional/mininter-moviliza-21-buses-para-apoyar-a-la-ciudadania-durante-paro-de-transportes/)
+
+
+### perú (N/A, 04/11/2025 20:56 Lima)
+
+- **Perú rompe relaciones diplomáticas con México por el asilo a la ex primera ministra de Pedro Castillo**: [Link](https://elpais.com/mexico/2025-11-03/peru-rompe-relaciones-diplomaticas-con-mexico-por-el-asilo-a-la-ex-primera-ministra-de-pedro-castillo.html)
+- **Presidente de Perú dice que mantuvo la cordialidad con México “hasta donde se pudo” antes de cortar relaciones diplomáticas**: [Link](https://cnnespanol.cnn.com/2025/11/04/latinoamerica/peru-jeri-mexico-crisis-diplomatica-orix)
+- **Comunicado Relaciones Exteriores**: [Link](https://www.gob.mx/sre/prensa/comunicado-relaciones-exteriores)
+
+
+### pafos fc (N/A, 04/11/2025 20:56 Lima)
+
+- **Champions League: Pafos y Villarreal se encuentran en la fecha 4**: [Link](https://rpp.pe/futbol/ligas-internacionales/champions-league-pafos-y-villarreal-se-encuentran-en-la-fecha-4-noticia-1662288)
+- **Pronóstico Paphos vs. Villarreal: Primera victoria**: [Link](https://gainblers.com/pe/pronosticos/futbol/europa/champions-league/pronostico-paphos-villarreal-05-11-2025/)
+- **Pafos vs Villarreal: Predictions, Betting odds, Lineups, Preview**: [Link](https://www.ladbrokes.com/en/news/match-preview-pafos-villarreal-uefa-champions-league-gameweek-4/)
+
+
+### elizabeth peralta (N/A, 04/11/2025 20:56 Lima)
+
+- **Juez realiza control de identidad a fiscal Elizabeth Peralta**: [Link](https://lpderecho.pe/pj-dispone-ubicacion-captura-nivel-nacional-internacional-elizabeth-peralta/)
+- **Elizabeth Peralta, fiscal vinculada con Andrés Hurtado, se entrega a la justicia ante orden de captura**: [Link](https://www.infobae.com/peru/2025/11/04/elizabeth-peralta-fiscal-vinculada-con-andres-hurtado-se-entrega-a-la-justicia-ante-orden-de-captura/)
+- **Elizabeth Peralta se entrega a la justicia tras orden de captura nacional e internacional**: [Link](https://caretas.pe/politica/elizabeth-peralta-se-entrega-a-la-justicia-tras-orden-de-captura-nacional-e-internacional/)
+
+
+### alexander arnold (N/A, 04/11/2025 20:56 Lima)
+
+- **Alexander-Arnold mural defaced before Anfield return**: [Link](https://www.bbc.com/sport/football/articles/c5ylv513lgjo)
+- **Bellingham and Alonso respond to Alexander-Arnold boos as Liverpool beat Real Madrid**: [Link](https://thefootballfaithful.com/bellingham-alonso-alexander-arnold-liverpool-real-amdrid/)
+- **Thibaut Courtois makes plea to Liverpool fans about Trent Alexander-Arnold after Champions League defeat**: [Link](https://www.rousingthekop.com/2025/11/04/thibaut-courtois-makes-plea-to-liverpool-fans-about-trent-alexander-arnold-after-champions-league-defeat/)
+
+
+### dean huijsen (N/A, 04/11/2025 20:56 Lima)
+
+- **Carlo Ancelotti revela conversación con Vinicius tras desplante a Xabi Alonso: "Cometió un error"**: [Link](https://rpp.pe/futbol/futbol-mundial/vinicius-junior-carlo-ancelotti-revela-conversacion-tras-desplante-a-xabi-alonso-en-clasico-cometio-un-error-noticia-1662229)
+- **Vinícius Jr. se disculpó con hinchas del Real Madrid por enojarse al ser cambiado en el clásico, pero no mencionó a Xabi Alonso**: [Link](https://larepublica.pe/deportes/2025/10/29/vinicius-jr-se-disculpo-con-hinchas-del-real-madrid-por-enojarse-al-ser-cambiado-en-el-clasico-pero-no-menciono-a-xabi-alonso-902944)
+- **Vinícius Junior pide perdón por reaccionar en su cambio durante el clásico ante Barcelona**: [Link](https://andina.pe/agencia/noticia-vinicius-junior-pide-perdon-reaccionar-su-cambio-durante-clasico-ante-barcelona-1050044.aspx)
+
+
 ### psg vs (N/A, 04/11/2025 15:27 Lima)
 
 - **Dónde ver PSG vs Bayern Múnich HOY: canal tv online del duelo en el Parque de Los Príncipes por Champions League 2025/2026**: [Link](https://www.infobae.com/peru/deportes/2025/11/04/donde-ver-psg-vs-bayern-munich-en-vivo-hoy-canal-tv-online-partido-jornada-4-champions-league-2025/)
@@ -957,74 +1027,5 @@ Sin noticias relacionadas disponibles.
 - **📋 Flamengo escalado para receber o Sport e tentar assumir a liderança**: [Link](https://onefootball.com/es/noticias/flamengo-escalado-para-receber-o-sport-e-tentar-assumir-a-lideranca-41890669)
 - **Qual é a lesão de Carrascal? A provável data de volta aos gramados do meio-campista do Flamengo**: [Link](https://www.90min.com/pt-br/lesao-carrascal-provavel-data-volta-meio-campista-flamengo)
 - **Aos 21 min do 2º tempo - gol de falta de Arrascaeta do Flamengo contra o Sport**: [Link](https://ge.globo.com/futebol/video/aos-21-min-do-2o-tempo-gol-de-falta-de-arrascaeta-do-flamengo-contra-o-sport-14063448.ghtml)
-
-
-### atlas - toluca (N/A, 01/11/2025 21:00 Lima)
-
-- **Atlas: ¿Desde cuándo no gana a Toluca en el Estadio Jalisco?**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/15896598/atlas-vs-toluca-desde-cuando-no-gana-estadio-jalisco-jornada-16)
-- **Liga MX: Toluca FC enfrenta a Atlas para seguir en la punta**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-toluca-fc-enfrenta-a-atlas-para-seguir-en-la-punta-noticia-1661865)
-- **Resumen Atlas vs Toluca: Turco Mohamed y Paulinho perdonan a Cocca y dejan escapar liderato del Apertura 2025**: [Link](https://www.marca.com/mx/futbol/liga-mx/cronica/2025/11/02/6906ab2f268e3e13088b4588.html?intcmp=flex_noticia_estatica)
-
-
-### libertad - olimpia (N/A, 01/11/2025 21:00 Lima)
-
-- **Un clásico muy deslucido solamente para cumplir con el calendario**: [Link](https://www.versus.com.py/hoy/2025/11/01/un-clasico-muy-deslucido-solamente-para-cumplir-con-el-calendario/)
-- **Libertad y Olimpia firman un entretenido empate en el clásico blanco y negro**: [Link](https://onefootball.com/es/noticias/libertad-y-olimpia-firman-un-entretenido-empate-en-el-clasico-blanco-y-negro-41890881)
-- **Noche de clásico blanco y negro en La Huerta**: [Link](https://www.apf.org.py/noticias/noche-de-clasico-blanco-y-negro-en-la-huerta)
-
-
-### nashville sc - inter miami (N/A, 01/11/2025 21:00 Lima)
-
-- **Mascherano delivers a serious warning to his players**: [Link](https://www.mundodeportivo.com/us/en/20251101/733730/mascherano-delivers-serious-warning-to-his-players.html)
-- **Nashville lead by two at HT; Philly advance, Charlotte force game three**: [Link](https://onefootball.com/en/news/nashville-lead-by-two-at-ht-philly-advance-charlotte-force-game-three-41890506)
-- **Miami have the experience to fight for MLS Cup, says Messi**: [Link](https://www.beinsports.com/en-nz/football/mls/articles/miami-have-the-experience-to-fight-for-mls-cup-says-messi-2025-11-01)
-
-
-### pacers - warriors (N/A, 01/11/2025 21:00 Lima)
-
-- **Warriors vs. Pacers injury report: Indy can barely field a team**: [Link](https://www.goldenstateofmind.com/warriors-injury-report/104631/warriors-pacers-injury-report-bennedict-mathurin-andrew-nembhard)
-- **Game 7 wrap: (no spoilers)**: [Link](https://dubnationhq.com/p/game-7-wrap-no-spoilers)
-- **Indiana takes on Golden State, aims to end 5-game slide**: [Link](https://www.washingtonpost.com/sports/nba/2025/11/01/warriors-pacers-preview/855425ba-b6e8-11f0-88c1-4e2f98984a34_story.html)
-
-
-### espanyol - real madrid c. f. femenino (N/A, 01/11/2025 15:22 Lima)
-
-- **Däbritz silencia a las periquitas**: [Link](https://as.com/futbol/femenino/dabritz-silencia-a-las-periquitas-f202511-n/)
-- **Previa Espanyol – Real Madrid Femenino: Las blancas encaran un noviembre frenético**: [Link](https://madridistareal.com/previa-espanyol-real-madrid-femenino/)
-- **Júlia Guerra: "Si la idea de la propiedad es ir a Champions es que quieren invertir en nosotras"**: [Link](https://el1900.com/julia-guerra-idea-propiedad-champions-quieren-invertir/)
-
-
-### latina tv (N/A, 01/11/2025 15:22 Lima)
-
-- **ERES MI BIEN – CAPÍTULO 54 COMPLETO: Viernes 31 de octubre**: [Link](https://www.latina.pe/entretenimiento/eres-mi-bien/capitulos-completos-eres-mi-bien/eres-mi-bien-capitulo-54-completo-viernes-31-de-octubre_20251101/)
-- **Yo Soy – Viernes 31 de octubre – PROGRAMA COMPLETO**: [Link](https://www.latina.pe/entretenimiento/yo-soy/programas-completos-yo-soy/yo-soy-viernes-31-de-octubre-programa-completo_20251031/)
-- **Avenida Brasil, Viernes 31 de octubre – ver capítulo 108 completo**: [Link](https://www.latina.pe/entretenimiento/avenida-brasil/avenida-brasil-viernes-31-de-octubre-ver-capitulo-108-completo_20251031/)
-
-
-### guimarães - benfica (N/A, 01/11/2025 15:22 Lima)
-
-- **Em direto: Guimarães x Benfica AO VIVO, jogo em tempo real pela Liga Portugal**: [Link](https://www.vavel.com/br/futebol-internacional/2025/11/01/1239872-em-direto-guimaraes-x-benfica-ao-vivo-pela-liga-portugal.html)
-- **O onze escolhido por Mourinho para o duelo frente ao V. Guimarães**: [Link](https://www.jn.pt/desporto/artigo/o-onze-escolhido-por-mourinho-para-o-duelo-frente-ao-v-guimaraes/18015190)
-- **Pinto pede equipa “corajosa e soltinha”**: [Link](https://www.pressreader.com/portugal/o-jogo/20251101/281792815273165)
-
-
-### latina (N/A, 01/11/2025 15:22 Lima)
-
-- **Perú recibe reunión anual 2025 del Comité Regional Memoria del Mundo**: [Link](https://www.unesco.org/es/articles/peru-recibe-reunion-anual-2025-del-comite-regional-memoria-del-mundo-de-america-latina-y-el-caribe)
-- **Perú será sede del encuentro de la UNESCO para preservar la memoria histórica de América Latina**: [Link](https://www.infobae.com/peru/2025/11/01/peru-sera-sede-del-encuentro-de-la-unesco-para-preservar-la-memoria-historica-de-america-latina/)
-
-
-### comerciantes unidos - sporting cristal (N/A, 01/11/2025 15:22 Lima)
-
-- **Cristal vs. Comerciantes Unidos EN VIVO vía Liga 1 MAX: minuto a minuto y canal por Internet gratis**: [Link](https://depor.com/futbol-peruano/descentralizado/cristal-vs-comerciantes-unidos-en-vivo-hoy-minuto-a-minuto-gratis-liga-1-max-futbol-libre-tv-directv-l1-play-canales-en-directo-online-por-internet-torneo-clausura-2025-noticia/)
-- **Comerciantes Unidos vs. Sporting Cristal: ¿a qué hora juegan y dónde ver EN VIVO hoy por el Torneo Clausura?**: [Link](https://rpp.pe/futbol/descentralizado/sporting-cristal-vs-comerciantes-unidos-en-vivo-a-que-hora-juegan-y-como-ver-fecha-17-torneo-clausura-2025-via-l1max-partidos-de-hoy-noticia-1661866)
-- **Sporting Cristal visita a Comerciantes Unidos por la fecha 17 del Torneo Clausura**: [Link](https://www.espn.com.ar/futbol/peru/nota/_/id/15890880/sporting-cristal-vs-comerciantes-unidos-por-liga1-equipo-fecha-hora-y-tv-en-vivo)
-
-
-### velez vs (N/A, 01/11/2025 15:22 Lima)
-
-- **Vélez y Talleres se miden en un choque con mucho en juego por el Torneo Clausura**: [Link](https://www.espn.com.ar/futbol/argentina/nota/_/id/15883789/velez-vs-talleres-fecha-14-torneo-clausura-equipo-fecha-hora-y-tv-en-vivo)
-- **Así viene el Fortín**: [Link](https://www.vavel.com/ar/futbol-argentino/2025/11/01/talleres-de-cordoba/1239813-asi-viene-el-fortin.html)
-- **Torneo Clausura. Talleres: con la única baja de Depietri, los 22 citados por Tevez para visitar a Vélez**: [Link](https://www.lavoz.com.ar/deportes/futbol/talleres-con-la-unica-baja-de-depietri-los-22-citados-por-tevez-para-visitar-a-velez/)
 
 
