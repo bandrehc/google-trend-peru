@@ -1,3 +1,24 @@
+### amazon (N/A, 05/11/2025 03:33 Lima)
+
+- **Amazon Sues to Stop Perplexity From Using AI Tool to Buy Stuff**: [Link](https://finance.yahoo.com/news/amazon-demands-perplexity-stop-ai-185535636.html)
+- **Perplexity AI accuses Amazon of bullying with legal threat over Comet browser**: [Link](https://www.cnbc.com/2025/11/04/perplexity-ai-amazon-bullying-comet-browser.html)
+- **Amazon sues Perplexity over 'agentic' shopping tool**: [Link](https://www.reuters.com/business/retail-consumer/perplexity-receives-legal-threat-amazon-over-agentic-ai-shopping-tool-2025-11-04/)
+
+
+### clippers - thunder (N/A, 05/11/2025 03:33 Lima)
+
+- **Thunder vs Clippers Prediction, Picks & Odds for Tonight’s NBA Game**: [Link](https://www.covers.com/nba/thunder-vs-clippers-prediction-picks-best-bets-sgp-tuesday-11-04-2025)
+- **Thunder roll Clippers to stay unbeaten as Shai Gilgeous-Alexander keeps streak alive**: [Link](https://www.straitstimes.com/sport/basketball/thunder-roll-clippers-to-stay-unbeaten-as-shai-gilgeous-alexander-keeps-streak-alive)
+- **Thunder keep it rolling against Clippers**: [Link](https://www.nbcsports.com/watch/nba/oklahoma-city-thunder-keep-it-rolling-against-los-angeles-clippers)
+
+
+### ignacio buse (N/A, 05/11/2025 03:33 Lima)
+
+- **¡A paso firme! Buse, Bueno y Varillas se meten a los octavos de final del Challenger Lima 3**: [Link](https://elcomercio.pe/deporte-total/polideportivo/a-paso-firme-buse-bueno-y-varillas-avanzan-a-los-octavos-de-final-del-challenger-lima-3-tenis-noticia/)
+- **Juan Pablo Varillas vs Román Burruchaga EN VIVO: se enfrentan por octavos de final del Challenger Lima 3**: [Link](https://rpp.pe/tenis/mas-tenis/juan-pablo-varillas-vs-roman-burruchaga-en-vivo-octavos-final-challenger-lima-3-a-que-hora-juegan-y-donde-ver-por-tv-via-atp-tour-link-gratis-partidos-de-hoy-noticia-1662446)
+- **Juan Pablo Varillas tuvo inicio triunfal en el Challenger Lima 3 al ganar al argentino Gómez**: [Link](https://www.apnoticias.pe/peru/diario-uno/juan-pablo-varillas-tuvo-inicio-triunfal-en-el-challenger-lima-3-al-ganar-al-argentino-gomez-1467493)
+
+
 ### billie eilish (N/A, 04/11/2025 23:28 Lima)
 
 - **Billie Eilish Calls Out Billionaires While Giving Speech in a Room with Mark Zuckerberg — How Did He React?**: [Link](https://people.com/billie-eilish-calls-out-billionaires-in-room-with-mark-zuckerberg-11840118)
@@ -1006,26 +1027,5 @@ Sin noticias relacionadas disponibles.
 - **América vs León: alineaciones, J16, Apertura 2025**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/15895918/america-vs-leon-alineaciones-formaciones-jornada-16-apertura-2025-liga-mx)
 - **Vía TUDN gratis: América vs. León | ¿Qué canal transmite el partido?**: [Link](https://elcomercio.pe/deporte-total/mexico/tudn-en-vivo-america-vs-leon-online-gratis-via-futbol-libre-tv-canal-5-vix-amazon-prime-por-torneo-clausura-de-liga-mx-link-video-noticia/)
 - **Liga MX: Club América quiere el liderato del torneo frente a León**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-club-america-quiere-el-liderato-del-torneo-frente-a-leon-noticia-1661912)
-
-
-### dodgers vs blue jays (N/A, 01/11/2025 23:27 Lima)
-
-- **Dodgers vs. Blue Jays (Nov 1, 2025) Live Score**: [Link](https://www.espn.com/mlb/game/_/gameId/401809303)
-- **Jays' Barger: 'Bad read' led to game-ending play**: [Link](https://www.espn.com/mlb/story/_/id/46798820/jays-barger-admits-bad-read-ended-game-6-world-series)
-- **MLB World Series Game 6: LA Dodgers beat Toronto Blue Jays to force decider**: [Link](https://www.bbc.com/sport/baseball/articles/c1m3358pe25o)
-
-
-### mlb (N/A, 01/11/2025 23:27 Lima)
-
-- **'Not human': Ernie Clement ignites MLB with jaw-dropping World Series performance as Toronto Blue Jays fa**: [Link](https://timesofindia.indiatimes.com/sports/mlb/news/not-human-ernie-clement-ignites-mlb-with-jaw-dropping-world-series-performance-as-blue-jays-fans-erupt-over-record-shattering-feat/articleshow/125028525.cms)
-- **Blue Jays' Ernie Clement has a more prolific hitting postseason than anyone in the history of baseball**: [Link](https://www.sportingnews.com/ca/mlb/toronto-blue-jays/news/blue-jays-ernie-clement-prolific-hitting-postseason-anyone-history-baseball/bc7d00a2420aad6c5ef74c0c)
-- **What to know about Ernie Clement, Blue Jays infielder making Gold Glove and hit streak history**: [Link](https://sports.yahoo.com/article/know-ernie-clement-blue-jays-171445795.html)
-
-
-### blue jays (N/A, 01/11/2025 23:27 Lima)
-
-- **These northerners travelled across Canada for a taste of the World Series**: [Link](https://cabinradio.ca/265617/news/sports/these-northerners-travelled-across-canada-for-a-taste-of-the-world-series/)
-- **Islanders' topic of discussion: Blue Jays' World Series bid**: [Link](https://www.newsday.com/sports/columnists/andrew-gross/islanders-xkh4tpce)
-- **Daughter surprises P.E.I. woman with ticket to Game 7 of the World Series**: [Link](https://www.cbc.ca/lite/story/9.6963160)
 
 
