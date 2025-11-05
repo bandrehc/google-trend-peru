@@ -1,3 +1,38 @@
+### concierto guns and roses (N/A, 05/11/2025 07:52 Lima)
+
+- **Guns N’ Roses en Lima: el setlist, horarios y lo que se sabe sobre su concierto en el Estadio Nacional**: [Link](https://rpp.pe/musica/conciertos/guns-n-roses-en-lima-setlist-horarios-y-todo-lo-que-necesitas-saber-sobre-su-concierto-en-el-estadio-nacional-noticia-1662194)
+- **Guns N’ Roses llegará a Lima para su esperado concierto en el Estadio Nacional de Lima**: [Link](https://elcomercio.pe/luces/musica/guns-n-roses-llegara-a-lima-para-su-esperado-concierto-en-el-estadio-nacional-de-lima-celebs-ultimas-noticia/)
+- **Guns N’ Roses y una noche de rock inmortal en Estadio GNP Seguros**: [Link](https://freim.tv/guns-n-roses-y-una-noche-de-rock-inmortal-en-estadio-gnp-seguros/)
+
+
+### reo contumaz (N/A, 05/11/2025 07:52 Lima)
+
+- **PJ decide no declarar reo contumaz a Betssy Chávez y continuar con el juicio hasta su sentencia**: [Link](https://www.infobae.com/peru/2025/11/04/pj-decide-no-declarar-reo-contumaz-a-betssy-chavez-y-continuar-con-el-juicio-hasta-su-sentencia/)
+- **Crónica de una fuga anunciada | Richard Arce**: [Link](https://peru21.pe/opinion/cronica-de-una-fuga-anunciada-richard-arce/)
+- **Poder Judicial desestimó declarar reo contumaz a Betssy Chávez y dispuso continuar el juicio oral**: [Link](https://rpp.pe/politica/judiciales/betssy-chavez-poder-judicial-desestimo-declarar-la-contumacia-y-dispuso-continuar-el-juicio-oral-noticia-1662347)
+
+
+### dia del trabajador municipal (N/A, 05/11/2025 07:52 Lima)
+
+- **¿En qué partes del Perú será día NO laborable este miércoles 5 de noviembre 2025?**: [Link](https://elcomercio.pe/respuestas/que/en-que-partes-del-peru-sera-dia-no-laborable-este-5-de-noviembre-2025-tdpe-noticia/)
+- **Día del Trabajador Municipal en Perú 2025: frases y mensajes para la fecha**: [Link](https://libero.pe/tiempoextra/2025/11/04/dia-del-trabajador-municipal-en-peru-2025-frases-mensajes-fecha-181244)
+- **¿Confirman feriado largo hasta el viernes 07 de noviembre a nivel nacional? Esto señala El Peruano**: [Link](https://elpopular.pe/actualidad/2025/11/03/confirman-feriado-largo-hasta-el-viernes-07-de-noviembre-a-nivel-nacional-esto-senala-el-peruano-248811)
+
+
+### 5 de noviembre (N/A, 05/11/2025 07:52 Lima)
+
+- **Horóscopo diario, 5 de noviembre de 2025**: [Link](https://www.elcorreo.com/sociedad/horoscopos/horoscopo-diario-5-noviembre-2025-consulta-prediccion-amor-trabajo-20251105013000-nt.html)
+- **Horóscopo de hoy, miércoles 5 de noviembre: Lee aquí las predicciones para tu signo**: [Link](https://elcomercio.pe/luces/vida-social/horoscopo-de-hoy-miercoles-5-de-noviembre-lee-aqui-las-predicciones-para-tu-signo-noticia/)
+- **Miércoles 5 de noviembre. Horóscopo de hoy sobre salud, amor y trabajo. Tu predicción diaria gratis**: [Link](https://www.lecturas.com/horoscopo/miercoles-5-noviembre-horoscopo-hoy-sobre-salud-amor-y-trabajo-tu-prediccion-diaria-gratis_183867)
+
+
+### la tinka (N/A, 05/11/2025 07:52 Lima)
+
+- **Sorteo de La Tinka: video de la jugada ganadora y resultados del domingo 2 de noviembre del 2025**: [Link](https://www.infobae.com/peru/2025/11/03/resultados-de-la-tinka-del-2-de-noviembre-de-2025/)
+- **Policía ayuda a madre que no podía subir a bus con su hijo trasplantado de riñón**: [Link](https://elcomercio.pe/videos/pais/madre-de-ucayali-recibe-apoyo-policial-para-llevar-a-su-hijo-trasplantado-de-rinon-al-hospital-del-nino-paro-de-transportistas-nnav-amtv-video-noticia/)
+- **La Tinka sobre sus puntos de venta: "Nos acercamos cada vez más a los tinkeros”**: [Link](https://cclconectados.com/resultados-de-la-tinka-la-loteria-amplia-sus-puntos-de-venta-para-que-mas-peruanos-puedan-ganar-ccl-asociado/)
+
+
 ### amazon (N/A, 05/11/2025 03:33 Lima)
 
 - **Amazon Sues to Stop Perplexity From Using AI Tool to Buy Stuff**: [Link](https://finance.yahoo.com/news/amazon-demands-perplexity-stop-ai-185535636.html)
@@ -992,40 +1027,5 @@ Sin noticias relacionadas disponibles.
 - **¿Habrá feriado largo el 3 y 4 de noviembre? Esto dice el decreto publicado en El Peruano**: [Link](https://www.infobae.com/peru/2025/11/01/habra-feriado-largo-el-3-y-4-de-noviembre-esto-dice-el-decreto-publicado-en-el-peruano/)
 - **¡Atención padres y alumnos! Minedu aclara si habrá o no clases este lunes 3 de noviembre | tdpe | RESPUESTAS**: [Link](https://elcomercio.pe/respuestas/que/atencion-padres-y-alumnos-minedu-aclara-si-habra-o-no-clases-este-lunes-3-de-noviembre-tdpe-noticia/)
 - **¿Se suspenden las clases escolares este lunes 3 de noviembre en colegios peruanos? Lo que dijo Minedu**: [Link](https://larepublica.pe/sociedad/2025/10/31/las-clases-escolares-se-suspenden-este-lunes-3-de-noviembre-minedu-responde-1475290)
-
-
-### serie mundial (N/A, 01/11/2025 23:27 Lima)
-
-- **⚪ VER MLB TV EN VIVO | Transmisión de la Serie Mundial: Dodgers-Blue Jays en directo con el Juego 7**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/mlb-tv-en-vivo-gratis-donde-ver-juego-7-de-serie-mundial-2025-dodgers-vs-blue-jays-por-streaming-online-en-usa-y-mexico-nnda-nnrt-noticia/)
-- **🏟️ VER MLB TV EN VIVO por Internet | Juego 7 de la Serie Mundial: Blue Jays - Dodgers gratis**: [Link](https://gestion.pe/mix/sports/mlb-tv-en-vivo-por-internet-como-ver-serie-mundial-2025-blue-jays-vs-dodgers-gratis-en-streaming-y-fox-sports-online-usa-mexico-juego-7-nnda-nnrt-noticia/)
-- **Vladimir Guerrero Jr. lideró el repunte de los Blue Jays en la Serie Mundial**: [Link](https://cnnespanol.cnn.com/2025/10/30/deportes/video/blue-jays-toronto-dodgers-los-angeles-serie-mundial-claves-repunte-vladimir-guerrero-jr-beisbol-mlb-deportes-tv)
-
-
-### vancouver whitecaps (N/A, 01/11/2025 23:27 Lima)
-
-- **Nashville SC takes field, unveils US Open Cup signage before Game 2 vs Inter Miami**: [Link](https://www.tennessean.com/videos/sports/nashvillesc/2025/11/01/nashville-sc-inter-miami-mls-playoffs-first-round/87043482007/)
-- **HIGHLIGHTS: Portland Timbers vs. San Diego FC | November 1, 2025**: [Link](https://www.mlssoccer.com/video/highlights-portland-timbers-vs-san-diego-fc-november-1-2025)
-- **Lionel Messi in Inter Miami MLS playoff Game 2 vs Nashville SC, see our best photos**: [Link](https://www.tennessean.com/picture-gallery/sports/nashvillesc/2025/11/01/lionel-messi-inter-miami-nashville-sc-mls-playoff-game-2/87043318007/)
-
-
-### daniela darcourt (N/A, 01/11/2025 23:27 Lima)
-
-- **“Si han tomado esa decisión, será por una razón”: Yahaira Plasencia se pronunció sobre la ruptura de Daniela Darcourt y Waldir Felipa**: [Link](https://rpp.pe/famosos/farandula/yahaira-plasencia-sobre-la-ruptura-de-daniela-darcourt-y-waldir-felipa-noticia-1661916)
-- **Daniela Darcourt hablará tras ruptura con Waldir Felipa: “No me arrepiento de haberlo elegido”**: [Link](https://elcomercio.pe/tvmas/farandula/daniela-darcourt-tras-ruptura-con-waldir-felipa-no-me-arrepiento-de-haberlo-elegido-ultimas-noticia/)
-- **Josimar contará su verdad sobre embarazo de "prima"**: [Link](https://www.americatv.com.pe/esta-noche/josimar-contara-su-verdad-sobre-embarazo-su-prima-noticia-161193)
-
-
-### dallas vs (N/A, 01/11/2025 23:27 Lima)
-
-- **Cards to start Brissett again as Kyler (foot) heals**: [Link](https://www.espn.com/nfl/story/_/id/46802802/cardinals-qb-kyler-murray-foot-miss-3rd-straight-game)
-- **Kyler Murray Injury: Officially questionable for Week 9**: [Link](https://www.rotowire.com/football/headlines/kyler-murray-injury-officially-questionable-for-week-9-614324)
-- **AT&T Assassin riding pine in Week 9, Cowboys may avoid nemesis**: [Link](https://sports.yahoo.com/article/t-assassin-riding-pine-week-170632256.html)
-
-
-### américa - león (N/A, 01/11/2025 23:27 Lima)
-
-- **América vs León: alineaciones, J16, Apertura 2025**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/15895918/america-vs-leon-alineaciones-formaciones-jornada-16-apertura-2025-liga-mx)
-- **Vía TUDN gratis: América vs. León | ¿Qué canal transmite el partido?**: [Link](https://elcomercio.pe/deporte-total/mexico/tudn-en-vivo-america-vs-leon-online-gratis-via-futbol-libre-tv-canal-5-vix-amazon-prime-por-torneo-clausura-de-liga-mx-link-video-noticia/)
-- **Liga MX: Club América quiere el liderato del torneo frente a León**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-club-america-quiere-el-liderato-del-torneo-frente-a-leon-noticia-1661912)
 
 
