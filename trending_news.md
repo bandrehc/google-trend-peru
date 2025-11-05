@@ -1,3 +1,73 @@
+### u. de chile - everton (N/A, 05/11/2025 15:28 Lima)
+
+- **Marcelo Díaz destacó la campaña de la U pese al opaco semestre en el plano local**: [Link](https://www.espn.com.ar/futbol/chile/nota/_/id/15915251/universidad-de-chile-oficializo-renovacion-marcelo-diaz-liga-de-primera)
+- **Gustavo Álvarez define el once de Universidad de Chile para enfrentar a Everton**: [Link](https://bolavip.com/cl/udechile/gustavo-alvarez-define-el-once-de-universidad-de-chile-para-enfrentar-a-everton)
+- **Actualidad del día en el fútbol chileno a 5 de noviembre de 2025**: [Link](https://es.besoccer.com/noticia/actualidad-del-dia-en-el-futbol-chileno-a-5-de-noviembre-de-2025-1380105)
+
+
+### benfica (N/A, 05/11/2025 15:28 Lima)
+
+- **Benfica x Bayer Leverkusen Palpite – Confira Onde Assistir, Hora e Escalações 05-11**: [Link](https://onefootball.com/pt-br/apostas/palpites/futebol/benfica-x-bayer-leverkusen-05-11-2025)
+- **Adeptos do Benfica aplaudem Grimaldo no regresso do espanhol à Luz**: [Link](https://cnnportugal.iol.pt/videos/adeptos-do-benfica-aplaudem-grimaldo-no-regresso-do-espanhol-a-luz/690ba7b70cf2c7eb24444294)
+- **Benfica 0 x Bayer Leverkusen 0 | UEFA Champions League 25/26**: [Link](https://www.gazetaesportiva.com/minuto-a-minuto/uefa-champions-league-25-26/benfica-x-bayer-leverkusen/235302)
+
+
+### manchester city vs dortmund (N/A, 05/11/2025 15:28 Lima)
+
+- **Preview:Man City vs Dortmund - prediction, team news**: [Link](https://www.sportsmole.co.uk/football/man-city/champions-league/preview/man-city-vs-dortmund-prediction-team-news-lineups_584990.html)
+- **Erling Haaland: Premier League's runaway top scorer returns to face old club as true master**: [Link](https://www.thenationalnews.com/sport/football/2025/11/05/erling-haaland-premier-league-goals-borussia-dortmund/)
+- **UEFA Champions League – the ticker for the trip to Manchester**: [Link](https://onefootball.com/pt-br/noticias/uefa-champions-league-the-ticker-for-the-trip-to-manchester-41906451)
+
+
+### chankas cyc - alianza lima (N/A, 05/11/2025 15:28 Lima)
+
+- **A qué hora juega Alianza Lima vs Los Chankas HOY: partido en Andahuaylas por fecha pendiente del Torneo Clausura de la Liga 1 2025**: [Link](https://www.infobae.com/peru/deportes/2025/11/04/a-que-hora-juega-alianza-lima-vs-los-chankas-partido-andahuaylas-fecha-9-pendiente-torneo-clausura-2025-horario/)
+- **Alianza Lima tendrá 6 bajas: el posible once 'blanquiazul' ante Los Chankas tras sensibles ausencias [FOTOS]**: [Link](https://rpp.pe/futbol/descentralizado/alianza-lima-vs-los-chankas-el-once-posible-de-gorosito-en-andahuaylas-por-partido-pendiente-torneo-clausura-2025-noticia-1662356)
+- **Cómo ver Liga 1 MAX ONLINE: Alianza-Chankas | ¿Quién transmite el canal en vivo?**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/liga-1-max-en-vivo-gratis-ver-futbol-libre-tv-alianza-lima-vs-chankas-hoy-online-por-liga-1-video-noticia/)
+
+
+### club brugge vs barcelona (N/A, 05/11/2025 15:28 Lima)
+
+- **Preview:Club Brugge vs Barcelona - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/barcelona/champions-league/preview/brugge-vs-barcelona-prediction-team-news-lineups_585012.html)
+- **‘When he’s able to play, he will play’ – Hansi Flick gives update on Lamine Yamal amid surgery talk**: [Link](https://www.football-espana.net/2025/11/05/when-hes-able-to-play-he-will-play-hansi-flick-gives-update-on-lamine-yamal-amid-surgery-talk)
+- **Squad for the trip to Bruges**: [Link](https://www.fcbarcelona.com/en/football/first-team/news/4395957/squad-for-the-trip-to-bruges)
+
+
+### ajax (N/A, 05/11/2025 15:28 Lima)
+
+- **Gemeente wijst vanwege Ajax-Galatasaray deel Amsterdamse binnenstad en omgeving Johan Cruijff Arena aan als veiligheidsrisicogebied**: [Link](https://www.parool.nl/nederland/gemeente-wijst-vanwege-ajax-galatasaray-deel-amsterdamse-binnenstad-en-omgeving-johan-cruijff-arena-aan-als-veiligheidsrisicogebied~b941d226/)
+- **Wesley Sneijder waarschuwt Ajax voor ’atoommier’ van Galatasaray**: [Link](https://www.telegraaf.nl/sport/voetbal/wesley-sneijder-waarschuwt-ajax-voor-atoommier-van-galatasaray/102035680.html)
+- **Heitinga verklaart Regeer als rechtsbuiten: 'Wat extra's creëren op middenveld'**: [Link](https://www.vi.nl/nieuws/john-heitinga-voor-ajax-galatasaray)
+
+
+### la habitacion negra (N/A, 05/11/2025 15:28 Lima)
+
+- **"Necesito un milagro": Yiddá Eslava pide apoyo para que su película siga en cartelera [VIDEO]**: [Link](https://rpp.pe/famosos/farandula/la-habitacion-negra-yidda-eslava-pide-apoyo-para-que-su-pelicula-siga-en-cartelera-video-noticia-1662032)
+- **El desgarrador pedido de Yiddá Eslava para que apoyen su película ‘La Habitación Negra’: “Necesito un milagro”**: [Link](https://www.infobae.com/peru/2025/11/01/yidda-eslava-y-el-desgarrador-pedido-para-que-apoyen-su-pelicula-la-habitacion-negra-necesito-un-milagro/)
+- **La Habitación Negra: El Thriller Peruano que Expone los Peligros de la Fama Digital**: [Link](https://blog.cineplanet.com.pe/cine%20peruano/la-habitacion-negra-el-thriller-peruano-que-expone-los-peligros-de-la-fama-digital/)
+
+
+### manchester city - dortmund (N/A, 05/11/2025 15:28 Lima)
+
+- **Wiedersehen mit Haaland: BVB gegen seine ehemalige Tormaschine**: [Link](https://www.grenzecho.net/131464/artikel/2025-11-05/wiedersehen-mit-haaland-bvb-gegen-seine-ehemalige-tormaschine)
+- **Grosse Aufgabe für Kobel: Hält das BVB-Abwehrbollwerk auch gegen Manchestester City?**: [Link](https://www.watson.ch/sport/liveticker/377199807-champions-league-manchester-city-gegen-borussia-dortmund-im-liveticker)
+- **Champions League: BVB-Trainer Kovac schwärmt von Man City-Coach Pep: „Gibt keinen, der...“**: [Link](https://www.waz.de/sport/borussia-dortmund/article410389268/bvb-trainer-kovac-schwaermt-von-city-coach-pep-gibt-keinen-der.html)
+
+
+### inter - kairat (N/A, 05/11/2025 15:28 Lima)
+
+- **Champions League line-ups: Inter vs. Kairat Almaty**: [Link](https://football-italia.net/champions-league-line-ups-inter-kairat-almaty/)
+- **✅ Inter-Kairat and Marseille-Atalanta line-ups: Lautaro, Lookman 👀**: [Link](https://ca.sports.yahoo.com/news/inter-kairat-om-atalanta-line-185100519.html)
+- **Kairat holds pre-match training at Milan’s San Siro stadium**: [Link](https://qazinform.com/news/kairat-holds-pre-match-training-at-milans-san-siro-stadium-89559d)
+
+
+### newcastle - athletic (N/A, 05/11/2025 15:28 Lima)
+
+- **Preview:Newcastle vs Athletic Bilbao - prediction, team**: [Link](https://www.sportsmole.co.uk/football/newcastle-united/champions-league/preview/newcastle-vs-athletic-bilbao-prediction-team-news-lineups_585001.html)
+- **Athletic Bilbao fans dance, chant and set off flares on Newcastle's Bigg Market ahead of match**: [Link](https://www.chroniclelive.co.uk/news/north-east-news/gallery/athletic-bilbao-fans-dance-chant-32819629)
+- **Latest. Team news: Howe makes two changes for Athletic Club clash**: [Link](https://www.newcastleunited.com/en/news/team-news-athletic-club-ucl)
+
+
 ### ajax vs galatasaray (N/A, 05/11/2025 11:32 Lima)
 
 - **Preview:Ajax vs. Galatasaray - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/ajax/champions-league/preview/ajax-vs-galatasaray-prediction-team-news-lineups_585019.html)
@@ -961,73 +1031,5 @@ Sin noticias relacionadas disponibles.
 - **Aryna Sabalenka vs Jasmine Paolini Prediction: Sabalenka's 5-2 H2H edge? Dominates + Year-End No. 1 Stakes**: [Link](https://www.telecomasia.net/sports-betting/tips/tennis/aryna-sabalenka-vs-jasmine-paolini-prediction-for-the-match-on-november-02-2025/)
 - **Sabalenka joins a select group of legends by dominating the WTA rankings throughout the year**: [Link](https://www.puntodebreak.com/en/2025/11/01/sabalenka-joins-select-group-of-legends-by-dominating-the-wta-rankings-throughout-the-year)
 - **WTA Finals Day 2: Sabalenka vs. Paolini and Gauff vs. Pegula | Where to Watch**: [Link](https://www.tennis.com/news/articles/wta-finals-day-2-sabalenka-paolini-gauff-pegula-where-to-watch-tennis-channel)
-
-
-### peru mucho gusto (N/A, 02/11/2025 11:26 Lima)
-
-- **Perú Mucho Gusto Lima 2025: un vistazo a los platos más apetitosos de la feria**: [Link](https://elcomercio.pe/provecho/listas-y-rankings/peru-mucho-gusto-lima-2025-platos-y-precios-de-la-feria-gastronomica-en-magdalena-del-mar-fotos-noticia/)
-- **Perú Mucho Gusto: los exóticos sabores de Oxapampa te esperan hasta el domingo**: [Link](https://andina.pe/agencia/noticia-peru-mucho-gusto-los-exoticos-sabores-oxapampa-te-esperan-hasta-domingo-1050326.aspx)
-- **Feria Perú Mucho Gusto busca récord en turistas extranjeros y triplicar venta de emprendedores | ECONOMIA**: [Link](https://gestion.pe/economia/feria-peru-mucho-gusto-busca-record-en-turistas-extranjeros-y-triplicar-venta-de-emprendedores-noticia/)
-
-
-### huachipato - u. de chile (N/A, 02/11/2025 11:26 Lima)
-
-- **Universidad de Chile desafía a Huachipato con obligación de sumar en la Liga de Primera 2025**: [Link](https://www.espn.com.ar/futbol/chile/nota/_/id/15892554/huachipato-vs-universidad-de-chile-novena-fecha-liga-de-primera-equipo-fecha-y-hora)
-- **Gustavo Álvarez patea el tablero: la formación de la U para visitar a Huachipato por la Liga de Primera**: [Link](https://bolavip.com/cl/udechile/gustavo-alvarez-patea-el-tablero-la-formacion-de-la-u-para-visitar-a-huachipato-por-la-liga-de-primera)
-- **Huachipato - U. de Chile en vivo: Campeonato Nacional de Chile 2025, partido en directo**: [Link](https://chile.as.com/futbol/huachipato-u-de-chile-en-vivo-campeonato-nacional-de-chile-2025-partido-en-directo-f202511-d/)
-
-
-### milan vs roma (N/A, 02/11/2025 11:26 Lima)
-
-- **Milan busca volver a la pelea por la cima ante Roma en San Siro**: [Link](https://www.espn.com.pe/futbol/italia/nota/_/id/15887054/milan-vsroma-por-la-serie-a-equipo-fecha-hora-y-tv-en-vivocuando-juegan-milan-vs-roma-por-la-fecha-10-de-la-serie-a-equipo-fecha-hora-y-tv-en-vivo)
-- **Pronósticos Milan vs Roma: partidazo que tiene a los rossoneros como favoritos**: [Link](https://depor.com/apuestas-deportivas/pronosticos-milan-vs-roma-serie-a/)
-- **Serie A: Roma busca derrotar a Milan para posicionarse en la cima del torneo**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-roma-busca-derrotar-a-milan-para-posicionarse-en-la-cima-del-torneo-noticia-1661979)
-
-
-### alavés - rcd espanyol (N/A, 02/11/2025 11:26 Lima)
-
-- **LaLiga EA Sports: Alavés recibirá a Espanyol por la fecha 11**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-alaves-recibira-a-espanyol-por-la-fecha-11-noticia-1661946)
-
-
-### levante - celta de vigo (N/A, 02/11/2025 07:43 Lima)
-
-- **Levante - Celta en directo | LaLiga EA Sports, hoy, en vivo**: [Link](https://as.com/futbol/levante-celta-en-directo-laliga-ea-sports-hoy-en-vivo-f202511-d/)
-- **Levante - Celta | El triunfo en casa no puede esperar: previa, posibles onces y pronóstico**: [Link](https://www.marca.com/futbol/primera-division/2025/11/01/levante-celta-triunfo-casa-esperar-previa-posibles-onces-pronostico.html)
-- **El Ciutat se le resiste al Levante**: [Link](https://www.mundodeportivo.com/futbol/laliga/20251102/1002561559/ciutat-le-resiste-levante.html)
-
-
-### inter (N/A, 02/11/2025 07:43 Lima)
-
-- **Hellas Verona vs Inter Milan – Match preview and team news**: [Link](https://thefootballfaithful.com/hellas-verona-vs-inter-milan-match-preview-and-team-news/)
-- **Gift Emmanuel Orban vs. Inter Milan – Player props & odds to score a goal on November 2**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/11/01/gift-emmanuel-orban-soccer-player-props-11-2-2025/87042975007/)
-- **Inter Milan Coach ‘They Saved My Life Here In Verona’ – Adds ‘We Must Rally Around Josep Martinez’ After Tragic Car Accident**: [Link](https://sempreinter.com/2025/11/02/verona-inter-chivu-martinez-support/)
-
-
-### inter vs (N/A, 02/11/2025 07:43 Lima)
-
-- **Inter Milan vs. Kairat - Boxscore - November 05, 2025**: [Link](https://www.foxsports.com/soccer/champions-league-inter-milan-vs-kairat-nov-05-2025-game-boxscore-644283?tab=boxscore)
-- **Inter vs Kairat Almaty: Predictions, Betting odds, Lineups, Preview**: [Link](https://www.bwin.com/en/news/match-preview-inter-kairat-almaty-uefa-champions-league-gameweek-4/)
-- **Alianza Lima jugará con Inter Miami de Lionel Messi en la Noche Blanquiazul 2026: fecha tentativa y todo lo que se sabe del amistoso**: [Link](https://www.infobae.com/peru/deportes/2025/10/31/alianza-lima-jugara-con-inter-miami-de-lionel-messi-en-la-noche-blanquiazul-2026-fecha-tentativa-y-todo-lo-que-se-sabe-del-amistoso/)
-
-
-### inter de milán (N/A, 02/11/2025 07:43 Lima)
-
-- **Verona vs Inter: Apuestas, Pronóstico y Cuotas**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/2025/noviembre/pronostico-verona-vs-inter-02-11-25)
-- **Serie A: Inter necesita los tres puntos para ser puntero**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-inter-necesita-los-tres-puntos-para-ser-puntero-noticia-1661939)
-- **Vuelve Thuram (al banquillo): entre Pio y Bonny, el Inter FC no le ha echado de menos**: [Link](https://www.todomercadoweb.es/serie-a/vuelve-thuram-al-banquillo-entre-pio-y-bonny-el-inter-fc-no-le-ha-echado-de-menos-523854)
-
-
-### onp (N/A, 02/11/2025 07:43 Lima)
-
-- **ONP pagará una pensión adicional en diciembre: ¿Qué jubilados son beneficiados?**: [Link](https://www.infobae.com/peru/2025/10/29/onp-pagara-una-pension-adicional-en-diciembre-que-jubilados-seran-beneficiados/)
-- **ONP: jubilados con 20 años de aportes acceden a pago extra en julio y diciembre**: [Link](https://www.elperuano.pe/noticia/281962-onp-jubilados-con-20-anos-de-aportes-acceden-a-pago-extra-en-julio-y-diciembre)
-- **ONP pagará pensión adicional en diciembre: conozca quiénes recibirán bono extraordinario**: [Link](https://www.expreso.com.pe/economia/onp-pagara-pension-adicional-en-diciembre-conozca-quienes-recibiran-bono-extraordinario-navidad-pensionistas-jubilados-19990-noticia/1236054/)
-
-
-### hellas verona - inter (N/A, 02/11/2025 07:43 Lima)
-
-- **Verona-Inter LIVE**: [Link](https://sport.sky.it/calcio/serie-a/partite/2025/giornata-10/verona-inter/risultato-gol)
-- **LIVE Serie A Enilive 2025/26 | #VeronaInter 1-1**: [Link](https://www.hellasverona.it/news/live-serie-a-enilive-2025-26-veronainter)
-- **Tutte le notizie sul calcio in Diretta**: [Link](https://www.diretta.it/news/calcio-live-news-alle-12-30-in-campo-verona-inter-stasera-tocca-a-milan-e-roma/vyuWTcmT/)
 
 
