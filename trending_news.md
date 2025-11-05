@@ -1,3 +1,59 @@
+### ajax vs galatasaray (N/A, 05/11/2025 11:32 Lima)
+
+- **Preview:Ajax vs. Galatasaray - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/ajax/champions-league/preview/ajax-vs-galatasaray-prediction-team-news-lineups_585019.html)
+- **UEFA Champions League: Probable line-ups for Ajax Amsterdam vs Galatasaray**: [Link](https://foot-africa.com/en/news/uefa-champions-league-probable-line-ups-for-ajax-amsterdam-vs-galatasaray-948269/)
+- **Ajax boss John Heitinga needs team to 'stay in the game' against Galatasaray**: [Link](https://www.flashscore.com/news/soccer-champions-league-ajax-boss-john-heitinga-needs-team-to-stay-in-the-game-against-galatasaray/pKQAz3gd/)
+
+
+### xolo maridueña (N/A, 05/11/2025 11:32 Lima)
+
+- **‘One Piece’ Casts Cole Escola As Bon Clay In Season 3**: [Link](https://deadline.com/2025/11/one-piece-cole-escola-bon-clay-1236604228/)
+- **Xolo Maridueña Cast as Portgas D. Ace in ‘One Piece’ Season 3**: [Link](https://www.whats-on-netflix.com/news/xolo-mariduena-cast-as-portgas-d-ace-in-one-piece-season-3/)
+- **Netflix Reveals the Actor Who Plays Ace in One Piece Live-Action TV Series**: [Link](https://beebom.com/netflix-one-piece-live-action-ace-actor-revealed/)
+
+
+### barcelona vs brujas (N/A, 05/11/2025 11:32 Lima)
+
+- **Club Brugge vs FC Barcelona: cómo ver el partido por TV y streaming, últimas noticias y pronóstico**: [Link](https://www.si.com/es-us/futbol/club-brugge-vs-fc-barcelona-tv-streaming-5-11-2025)
+- **El posible once del Barça ante el Brujas incluye dos alternativas**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20251105/1002563667/posible-once-barca-brujas-incluye-dos-alternativas.html)
+- **Flick y la convocatoria de Lamine con la Selección: “No es mi problema”**: [Link](https://as.com/futbol/champions/flick-y-la-convocatoria-de-lamine-con-la-seleccion-no-es-mi-problema-f202511-n/)
+
+
+### paro 6 de noviembre (N/A, 05/11/2025 11:32 Lima)
+
+- **¿Se cancela el paro de mercados para mañana 6 de noviembre? Esta es la decisión final del gremio**: [Link](https://www.infobae.com/peru/2025/11/05/se-cancela-el-paro-de-mercados-para-manana-6-de-noviembre-esta-es-la-decision-final-del-gremio/)
+- **Mercados y transportistas paralizarán en la misma semana: Cómo se acatarán estas medidas y quiénes se plegarán**: [Link](https://elcomercio.pe/lima/mercados-y-transportistas-paralizaran-en-la-misma-semana-como-se-acataran-estas-medidas-y-quienes-se-plegaran-mercados-paro-de-mercados-6-de-noviembre-paro-de-transportistas-noticia/)
+- **Suspenden paro nacional de mercados tras acuerdo con el Gobierno**: [Link](https://peru21.pe/lima/suspenden-paro-nacional-de-mercados-tras-acuerdo-con-el-gobierno/)
+
+
+### miss universo 2025 (N/A, 05/11/2025 11:32 Lima)
+
+- **Mr. Nawat rompe en llanto tras escándalo con Miss México y pide perdón en Miss Universo 2025**: [Link](https://www.infobae.com/peru/2025/11/05/mr-nawat-rompe-en-llanto-tras-escandalo-con-miss-mexico-y-pide-perdon-en-miss-universo-2025/)
+- **🔴🔵 Escándalo en Miss Universo 🔥😱 Miss México 2025 ENCARA a directivo del certamen tras recibir fuerte INSULTO ⬇️**: [Link](https://www.facebook.com/Exitosanoticias/posts/-esc%C3%A1ndalo-en-miss-universo-miss-m%C3%A9xico-2025-encara-a-directivo-del-certamen-tra/1267655588730830/)
+- **Miss Universo retira al productor Nawat Itsaragrisil del certamen tras polémica con la mexicana Fátima Bosch**: [Link](https://rpp.pe/famosos/celebridades/miss-universo-2025-raul-rocha-retira-a-nawat-itsaragrisil-del-certamen-tras-insultos-a-fatima-bosch-miss-universo-mexico-noticia-1662482)
+
+
+### feriado noviembre (N/A, 05/11/2025 11:32 Lima)
+
+- **Feriados confirmados: estudiantes y docentes gozarán de estos 4 días libres antes de fin de clases**: [Link](https://elcomercio.pe/respuestas/cuando/feriados-confirmados-estudiantes-y-docentes-gozaran-de-estos-4-dias-libres-antes-de-fin-de-clases-tdpe-noticia/)
+- **Feriados de noviembre 2025 en Perú: ¿cuántos son y qué días son de descanso obligatorio?**: [Link](https://www.infobae.com/peru/2025/10/31/feriados-de-noviembre-2025-en-peru-cuantos-son-y-que-dias-seran-de-descanso-obligatorio/)
+- **Feriado 1 de noviembre: si trabajas ese día sin descanso sustitutorio, te corresponde triple pago**: [Link](https://www.elperuano.pe/noticia/281968-feriado-1-de-noviembre-si-trabajas-ese-dia-sin-descanso-sustitutorio-te-corresponde-triple-pago)
+
+
+### chankas vs alianza lima (N/A, 05/11/2025 11:32 Lima)
+
+- **Alianza Lima tendrá 6 bajas: el posible once 'blanquiazul' ante Los Chankas tras sensibles ausencias [FOTOS]**: [Link](https://rpp.pe/futbol/descentralizado/alianza-lima-vs-los-chankas-el-once-posible-de-gorosito-en-andahuaylas-por-partido-pendiente-torneo-clausura-2025-noticia-1662356)
+- **A qué hora juega Alianza Lima vs Los Chankas HOY: partido en Andahuaylas por fecha pendiente del Torneo Clausura de la Liga 1 2025**: [Link](https://www.infobae.com/peru/deportes/2025/11/04/a-que-hora-juega-alianza-lima-vs-los-chankas-partido-andahuaylas-fecha-9-pendiente-torneo-clausura-2025-horario/)
+- **Liga 1 Max: cómo ver Alianza Lima vs. Chankas por Torneo Clausura de la Liga 1**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/liga-1-max-en-vivo-gratis-ver-futbol-libre-tv-alianza-lima-vs-chankas-hoy-online-por-liga-1-video-noticia/)
+
+
+### guns n roses peru (N/A, 05/11/2025 11:32 Lima)
+
+- **Guns N’ Roses en Lima: accesos, horarios, setlist y más para su concierto en el Estadio Nacional**: [Link](https://www.infobae.com/peru/2025/11/04/guns-n-roses-en-lima-accesos-horarios-setlist-y-mas-para-su-concierto-en-el-estadio-nacional/)
+- **Guns N’ Roses encenderá Lima esta noche en el Estadio Nacional**: [Link](https://caretas.pe/entretenimiento/guns-n-roses-encendera-lima-esta-noche-en-el-estadio-nacional/)
+- **Guns N’ Roses llegará a Lima para su esperado concierto en el Estadio Nacional de Lima**: [Link](https://elcomercio.pe/luces/musica/guns-n-roses-llegara-a-lima-para-su-esperado-concierto-en-el-estadio-nacional-de-lima-celebs-ultimas-noticia/)
+
+
 ### concierto guns and roses (N/A, 05/11/2025 07:52 Lima)
 
 - **Guns N’ Roses en Lima: el setlist, horarios y lo que se sabe sobre su concierto en el Estadio Nacional**: [Link](https://rpp.pe/musica/conciertos/guns-n-roses-en-lima-setlist-horarios-y-todo-lo-que-necesitas-saber-sobre-su-concierto-en-el-estadio-nacional-noticia-1662194)
@@ -973,59 +1029,5 @@ Sin noticias relacionadas disponibles.
 - **Verona-Inter LIVE**: [Link](https://sport.sky.it/calcio/serie-a/partite/2025/giornata-10/verona-inter/risultato-gol)
 - **LIVE Serie A Enilive 2025/26 | #VeronaInter 1-1**: [Link](https://www.hellasverona.it/news/live-serie-a-enilive-2025-26-veronainter)
 - **Tutte le notizie sul calcio in Diretta**: [Link](https://www.diretta.it/news/calcio-live-news-alle-12-30-in-campo-verona-inter-stasera-tocca-a-milan-e-roma/vyuWTcmT/)
-
-
-### cronograma de pagos (N/A, 02/11/2025 07:43 Lima)
-
-- **Pagos ONP y del sector público en noviembre 2025: consulta el cronograma del Banco de la Nación**: [Link](https://elcomercio.pe/respuestas/tramites/pagos-onp-y-del-sector-publico-en-noviembre-2025-revisa-el-cronograma-del-banco-de-la-nacion-tdpe-noticia/)
-- **Pago ONP 19990 de noviembre: ¿Cuál es el cronograma completo para el cobro de pensiones en el Banco de la Nación?**: [Link](https://rpp.pe/economia/economia/pago-onp-19990-en-noviembre-2025-este-es-el-cronograma-completo-y-desde-cuando-inicia-el-cobro-de-pensiones-en-banco-de-la-nacion-noticia-1661214)
-- **Cronograma de pagos noviembre 2025: Estas son las fechas confirmadas vía Banco de la Nación para sueldos y pensiones ONP**: [Link](https://altavoz.pe/economia/cronograma-de-pagos-noviembre-2025-estas-son-las-fechas-confirmadas-via-banco-de-la-nacion-para-de-sueldos-y-pensiones-onp/)
-
-
-### fiorentina vs (N/A, 02/11/2025 07:43 Lima)
-
-- **Luca Ranieri vs. US Lecce – Player props & odds to score a goal on November 2**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/11/01/luca-ranieri-soccer-player-props-11-2-2025/87042871007/)
-- **Fiorentina, tension skyrockets: banners against the club and team on the eve of Lecce**: [Link](https://tribuna.com/en/blogs/fiorentina-tension-skyrockets-banners-against-the-club-and-t/)
-- **Where to Watch ACF Fiorentina vs. US Lecce: TV Channel, Start Time and Live Stream**: [Link](https://www.bleachernation.com/how-to-watch/2025/11/01/where-to-watch-acf-fiorentina-vs-us-lecce-tv-channel-start-time-and-live-stream-2/)
-
-
-### twitch (N/A, 02/11/2025 03:26 Lima)
-
-- **Justin Bieber Previews New Music, Admits He Feels ‘Vulnerable As Hell’ in Twitch Stream**: [Link](https://www.rollingstone.com/music/music-news/justin-bieber-twitch-stream-new-music-1235458221/)
-- **"People who hate you online are just mirrors" - Fans react to Justin Bieber explaining how hate on Twitch impacts him**: [Link](https://www.sportskeeda.com/pop-culture/news-people-hate-online-just-mirrors-fans-react-justin-bieber-explaining-hate-twitch-impacts)
-- **Justin Bieber Embraces Vulnerability as a Twitch Streamer**: [Link](https://news.ssbcrack.com/justin-bieber-embraces-vulnerability-as-a-twitch-streamer/)
-
-
-### carlos manzo (N/A, 02/11/2025 03:26 Lima)
-
-- **Gunman Kills Mayor Who Wanted Police to Target Mexico’s Drug Gangs**: [Link](https://www.nytimes.com/2025/11/02/world/americas/manzo-mayor-mexico-killed.html)
-
-
-### pistons - mavericks (N/A, 02/11/2025 03:26 Lima)
-
-- **Southwest Notes: Mavericks, Gafford, Irving, Rockets, Morant**: [Link](https://www.hoopsrumors.com/2025/11/southwest-notes-mavericks-gafford-irving-rockets-morant.html)
-- **The first pick started to get used to the strongest league, Indiana broke its losing streak**: [Link](https://en.vijesti.me/sports-e/basketball/781493/The-first-pick-started-to-get-used-to-the-strongest-league--the-Indians-broke-their-losing-streak.)
-- **2025-2026 NBA regular season match: Detroit Pistons vs. Dallas Mavericks**: [Link](https://english.news.cn/20251102/2538d1a3d83f4a3daeddc18027fed741/c.html)
-
-
-### la habitación negra (N/A, 02/11/2025 03:26 Lima)
-
-- **El desgarrador pedido de Yiddá Eslava para que apoyen su película ‘La Habitación Negra’: “Necesito un milagro”**: [Link](https://www.infobae.com/peru/2025/11/01/yidda-eslava-y-el-desgarrador-pedido-para-que-apoyen-su-pelicula-la-habitacion-negra-necesito-un-milagro/)
-- **Yiddá Eslava se conmueve por la poca audiencia de 'La habitación negra' y pide ayuda en redes: "¡Necesito un milagro!"**: [Link](https://larepublica.pe/espectaculos/2025/11/01/yidda-eslava-se-conmueve-por-la-poca-audiencia-de-la-habitacion-negra-y-pide-ayuda-en-redes-necesito-un-milagro-56079)
-- **Yiddá: su etapa como guionista, su paso por ‘Combate’, su diagnóstico de autismo, la separación con Julián y más**: [Link](https://trome.com/espectaculos/tv/yidda-eslava-su-etapa-como-guionista-su-experiencia-en-combate-su-autismo-la-separacion-con-julian-zucchi-y-mas-entrevista-video-farandula-noticia/)
-
-
-### millie bobby brown (N/A, 01/11/2025 23:27 Lima)
-
-- **'Millie Bobby Brown filed a harassment and bullying claim before they started shooting the last season. There were pages and pages of accusations.' We reveal the latest bombshell claims facing Lily Allen's estranged husband David Harbour**: [Link](https://www.dailymail.co.uk/news/article-15248699/Millie-Bobby-Brown-filed-harassment-bullying-claim-started-shooting-season-pages-pages-accusations-Caroline-Graham-reveals-latest-bombshell-claims-facing-Lily-Allens-estranged-husband-David-Harbour.html)
-- **Millie Bobby Brown Files Official Complaint Against ‘Stranger Things’ Co-Star, Update Given**: [Link](https://insidethemagic.net/2025/11/millie-bobby-brown-stranger-things-david-harbour-complaint-cj1/)
-- **'Stranger Things' Shock: Millie Bobby Brown Accuses Her TV Dad David Harbour of Bullying as Netflix Launches Internal Probe**: [Link](https://radaronline.com/p/stranger-things-millie-bobby-brown-david-harbour-bullying-netflix-probe/)
-
-
-### noviembre feriados peru (N/A, 01/11/2025 23:27 Lima)
-
-- **¿Habrá feriado largo el 3 y 4 de noviembre? Esto dice el decreto publicado en El Peruano**: [Link](https://www.infobae.com/peru/2025/11/01/habra-feriado-largo-el-3-y-4-de-noviembre-esto-dice-el-decreto-publicado-en-el-peruano/)
-- **¡Atención padres y alumnos! Minedu aclara si habrá o no clases este lunes 3 de noviembre | tdpe | RESPUESTAS**: [Link](https://elcomercio.pe/respuestas/que/atencion-padres-y-alumnos-minedu-aclara-si-habra-o-no-clases-este-lunes-3-de-noviembre-tdpe-noticia/)
-- **¿Se suspenden las clases escolares este lunes 3 de noviembre en colegios peruanos? Lo que dijo Minedu**: [Link](https://larepublica.pe/sociedad/2025/10/31/las-clases-escolares-se-suspenden-este-lunes-3-de-noviembre-minedu-responde-1475290)
 
 
