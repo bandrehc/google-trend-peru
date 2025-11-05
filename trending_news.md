@@ -1,3 +1,45 @@
+### billie eilish (N/A, 04/11/2025 23:28 Lima)
+
+- **Billie Eilish Calls Out Billionaires While Giving Speech in a Room with Mark Zuckerberg — How Did He React?**: [Link](https://people.com/billie-eilish-calls-out-billionaires-in-room-with-mark-zuckerberg-11840118)
+- **Singer Billie Eilish has urged the ultra-wealthy to donate their money “to some people that need it” at the Wall Street Journal Innovator Awards in New York City. Speaking to an audience that included Meta CEO Mark Zuckerberg and "Star Wars" creator Georg**: [Link](https://www.facebook.com/deutschewellenews/posts/singer-billie-eilish-has-urged-the-ultra-wealthy-to-donate-their-money-to-some-p/1262324639256181/)
+- **Billie Eilish Donates $11.5 Million From ‘Hit Me Hard And Soft Tour’**: [Link](https://news.pollstar.com/2025/11/03/billie-eilish-donates-11-5-million-from-hit-me-hard-and-soft-tour/)
+
+
+### fiscal elizabeth peralta (N/A, 04/11/2025 23:28 Lima)
+
+- **Juez realiza control de identidad a fiscal Elizabeth Peralta**: [Link](https://lpderecho.pe/pj-dispone-ubicacion-captura-nivel-nacional-internacional-elizabeth-peralta/)
+- **Elizabeth Peralta se entrega a la justicia tras orden de captura nacional e internacional**: [Link](https://caretas.pe/politica/elizabeth-peralta-se-entrega-a-la-justicia-tras-orden-de-captura-nacional-e-internacional/)
+- **ANC sanciona con tres meses de suspensión a fiscal Elizabeth Peralta por caso de presunto tráfico de influencias**: [Link](https://elcomercio.pe/lima/elizabeth-peralta-anc-sanciona-con-tres-meses-de-suspension-a-fiscal-por-caso-de-presunto-trafico-de-influencias-ultimas-noticia/)
+
+
+### warriors - suns (N/A, 04/11/2025 23:28 Lima)
+
+- **Game Preview: Suns seek momentum in Bay Area battle**: [Link](https://www.brightsideofthesun.com/suns-game-previews/91892/game-preview-suns-seek-momentum-in-bay-area-battle)
+- **NBA Devin Booker parlay strategy: Use this DraftKings promo code to bet on Suns vs. Warriors tonight**: [Link](https://www.syracuse.com/betting/2025/11/nba-devin-booker-parlay-strategy-use-this-draftkings-promo-code-to-bet-on-suns-vs-warriors-tonight.html)
+- **Best Steph Curry prop bets for Warriors vs. Suns on Tuesday 11/4/25**: [Link](https://dknetwork.draftkings.com/2025/11/04/best-steph-curry-prop-bets-for-warriors-vs-suns-on-tuesday-11-4-25/)
+
+
+### zohran mamdani (N/A, 04/11/2025 23:28 Lima)
+
+- **New York City Mayoral Election Live Results 2025: Mamdani, Cuomo, Sliwa**: [Link](https://www.nytimes.com/interactive/2025/11/04/us/elections/results-new-york-city-mayor.html)
+- **Election day live updates: Zohran Mamdani wins New York mayoral race**: [Link](https://www.bbc.com/news/live/cg51m5emnmvt)
+- **Live NYC mayoral election results: Zohran Mamdani wins over Andrew Cuomo**: [Link](https://www.theguardian.com/us-news/2025/nov/04/nyc-mayoral-election-results-zohran-mamdani-andrew-cuomo-voting-polls)
+
+
+### luna llena noviembre 2025 (N/A, 04/11/2025 23:28 Lima)
+
+- **Cuándo será la Luna llena en noviembre 2025**: [Link](https://www.lanacion.com.ar/estados-unidos/cuando-sera-la-luna-llena-en-noviembre-2025-nid03112025/)
+- **Una lluvia de meteoros, planetas visibles y superlunas: estos son los fenómenos astronómicos de noviembre**: [Link](https://www.nationalgeographicla.com/espacio/2025/11/una-lluvia-de-meteoros-planetas-visibles-y-superlunas-estos-son-los-fenomenos-astronomicos-de-noviembre)
+- **Mantén tus ojos en el cielo: Superluna del Castor y meteoros alumbrarán las noches de noviembre | MAG**: [Link](https://elcomercio.pe/mag/respuestas/ciencias/manten-tus-ojos-en-el-cielo-superluna-del-castor-y-meteoros-alumbraran-las-noches-de-noviembre-nnda-nnni-noticia/)
+
+
+### ldu quito - orense (N/A, 04/11/2025 23:28 Lima)
+
+- **Liga de Quito pasó la prueba ante Orense tras sufrir una dura eliminación en la Libertadores**: [Link](https://www.espn.com.ar/futbol/ecuador/nota/_/id/15916655/liga-de-quito-paso-la-prueba-ante-orense-tras-sufrir-una-dura-eliminacion-en-la-libertadores)
+- **Así quedaron las tablas de LigaPro tras la fecha 4**: [Link](https://bolavip.com/futbol-ecuador/asi-quedaron-las-tablas-de-ligapro-tras-la-fecha-4)
+- **El gol de Jeison Medina para sellar el 4-0 de Liga de Quito**: [Link](https://www.ole.com.ar/ecuador/gol-jeison-medina-sellar-4-0-liga-quito_3_oyJmrQQ6RD.html)
+
+
 ### sbs (N/A, 04/11/2025 20:56 Lima)
 
 - **Reserve Bank of Australia Leaves Rates Steady as Inflation Risks Simmer**: [Link](https://www.wsj.com/articles/reserve-bank-of-australia-leaves-rates-steady-as-inflation-risks-simmer-c31339f0?gaa_at=eafs&gaa_n=AWEtsqd1l53iGNvemphoq3W7BZPHAeBCXm2qb9MrSPMzCBaTeCJeitZ-XTpN&gaa_ts=690ab244&gaa_sig=zUYDSZuCMNX80vO5d8Vo7-UAx3wk2mg3FOaAzDJKgx0Z39XYvvL5HCWC95WKRhgu3PkvJnXNFtxwjnQTgo5t6A%3D%3D)
@@ -985,47 +1027,5 @@ Sin noticias relacionadas disponibles.
 - **These northerners travelled across Canada for a taste of the World Series**: [Link](https://cabinradio.ca/265617/news/sports/these-northerners-travelled-across-canada-for-a-taste-of-the-world-series/)
 - **Islanders' topic of discussion: Blue Jays' World Series bid**: [Link](https://www.newsday.com/sports/columnists/andrew-gross/islanders-xkh4tpce)
 - **Daughter surprises P.E.I. woman with ticket to Game 7 of the World Series**: [Link](https://www.cbc.ca/lite/story/9.6963160)
-
-
-### monterrey - tigres (N/A, 01/11/2025 21:00 Lima)
-
-- **Rayados vs Tigres: ¿Cómo están las apuestas para el Clásico regio?**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/15894770/rayados-vs-tigres-como-estan-las-apuestas-clasico-regio)
-- **FÚTBOL ONLINE | VER Canal 5 (TUDN) EN VIVO | Transmisión del Monterrey - Tigres gratis por tv abierta | MAG**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/canal-5-y-tudn-en-vivo-gratis-donde-ver-monterrey-vs-tigres-uanl-por-tv-abierta-y-futbol-online-nnda-nnrt-noticia/)
-- **Liga MX: CF Monterrey y Tigres se verán las caras en el clásico regio**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-cf-monterrey-y-tigres-se-veran-las-caras-en-el-clasico-regio-noticia-1661882)
-
-
-### dodgers (N/A, 01/11/2025 21:00 Lima)
-
-- **BENCHES CLEAR IN GAME 7 🚨 Blue Jays Storm Field after Andrés Giménez Hit By Pitch**: [Link](https://www.foxsports.com/watch/fmc-1kvmfikco2ik0dli)
-- **Dodgers-Blue Jays World Series live: Benches clear in do-or-die Game 7**: [Link](https://www.usatoday.com/story/sports/mlb/2025/11/01/dodgers-blue-jays-world-series-score-live-game-7-highlights/87038625007/)
-- **Benches clear at Game 7 of World Series after LA's Wrobleski hits Toronto's Giménez with fastball**: [Link](https://www.news4jax.com/sports/2025/11/02/benches-clear-at-game-7-of-world-series-after-las-wrobleski-hits-torontos-gimenez-with-fastball/)
-
-
-### fc dallas - whitecaps (N/A, 01/11/2025 21:00 Lima)
-
-- **Western Conference: What we learned in Game 1 & what comes next**: [Link](https://www.mlssoccer.com/playoffs/2025/news/western-conference-what-we-learned-in-game-1-what-comes-next-mls-cup-playoffs-2025)
-- **Whitecaps' Rios looking to add to goal tally again against Dallas**: [Link](https://www.beinsports.com/en-us/soccer/mls/articles/whitecaps-rios-looking-to-add-to-goal-tally-again-against-dallas-2025-10-31)
-- **Vancouver Whitecaps look to wrap up opening round of MLS playoffs**: [Link](https://globalnews.ca/video/11506367/vancouver-whitecaps-look-to-wrap-up-opening-round-of-mls-playoffs)
-
-
-### blue jays - dodgers (N/A, 01/11/2025 21:00 Lima)
-
-- **Jays' Barger: 'Bad read' led to game-ending play**: [Link](https://www.espn.com/mlb/story/_/id/46798820/jays-barger-admits-bad-read-ended-game-6-world-series)
-- **MLB World Series Game 6: LA Dodgers beat Toronto Blue Jays to force decider**: [Link](https://www.bbc.com/sport/baseball/articles/c1m3358pe25o)
-- **John Schneider on preparation for Game 7**: [Link](https://www.mlb.com/video/john-schneider-on-preparation-for-game-7)
-
-
-### wwe (N/A, 01/11/2025 21:00 Lima)
-
-- **John Cena's Final Two WWE Matches 'Leak' Online And Could Create History**: [Link](https://www.sportbible.com/wrestling/wwe/john-cena-wwe-final-match-leaked-survivor-series-464478-20251031)
-- **John Cena announces 16-man tournament to decide his final opponent**: [Link](https://www.postwrestling.com/2025/11/01/john-cena-announces-16-man-tournament-to-decide-his-final-opponent/)
-- **Major Plan For Survivor Series Involving John Cena’s Retirement Match**: [Link](https://www.sescoops.com/news/major-plan-reported-for-john-cenas-retirement-match-at-survivor-series/)
-
-
-### flamengo - sport recife (N/A, 01/11/2025 21:00 Lima)
-
-- **📋 Flamengo escalado para receber o Sport e tentar assumir a liderança**: [Link](https://onefootball.com/es/noticias/flamengo-escalado-para-receber-o-sport-e-tentar-assumir-a-lideranca-41890669)
-- **Qual é a lesão de Carrascal? A provável data de volta aos gramados do meio-campista do Flamengo**: [Link](https://www.90min.com/pt-br/lesao-carrascal-provavel-data-volta-meio-campista-flamengo)
-- **Aos 21 min do 2º tempo - gol de falta de Arrascaeta do Flamengo contra o Sport**: [Link](https://ge.globo.com/futebol/video/aos-21-min-do-2o-tempo-gol-de-falta-de-arrascaeta-do-flamengo-contra-o-sport-14063448.ghtml)
 
 
