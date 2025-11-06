@@ -1,3 +1,17 @@
+### aryna sabalenka (N/A, 06/11/2025 11:33 Lima)
+
+- **WTA Finals Day 6 Preview: Three players, two spots, one last push for the semifinals**: [Link](https://www.wtatennis.com/news/4396400/wta-finals-day-6-preview-sabalenka-gauff-and-pegula-vie-for-semifinal-berths)
+- **WTA Masters Cup Aryna Sabalenka vs Coco Gauff 🧠 Form & Context Aryna Sabalenka (#1, BLR) 2025: 62–11 | Hard 35–6 | Indoors 3–0 Group stage: d. Paolini 6–3, 6–1; d. Pegula 6–4, 2–6, 6–3. Momentum: Multiple 2025 titles; bounced back from Wuhan SF**: [Link](https://x.com/Probahis/status/1986258055068045582)
+- **How to watch Aryna Sabalenka v Coco Gauff**: [Link](https://news.bet365.com/en-gb/article/how-to-watch-aryna-sabalenka-v-coco-gauff/2025110608313812580)
+
+
+### reniec dni gratis (N/A, 06/11/2025 11:33 Lima)
+
+- **Trámite de DNI electrónico gratis para este 10 y 11 de noviembre: conoce dónde y quiénes son los beneficiarios**: [Link](https://www.infobae.com/peru/2025/11/05/tramite-de-dni-electronico-gratis-para-este-10-y-11-de-noviembre-conoce-donde-y-quienes-son-los-beneficiarios/)
+- **¡Aprovecha! DNI electrónico tiene este costo especial para tramitarlo en noviembre 2025: así puedes acceder a este beneficio**: [Link](https://elcomercio.pe/respuestas/tramites/aprovecha-dni-electronico-tiene-este-costo-especial-para-tramitarlo-en-noviembre-2025-mira-aqui-como-acceder-a-este-beneficio-tdpe-noticia/)
+- **Peruanos pagan menos por el nuevo DNI electrónico en 2025, pero deben cumplir este único requisito, vía Reniec: ya no se emitirá el DNI azul**: [Link](https://larepublica.pe/sociedad/2025/11/05/peruanos-pagan-menos-por-el-nuevo-dni-electronico-en-2025-pero-deben-cumplir-este-unico-requisito-via-reniec-ya-no-se-emitira-el-dni-azul-atmp-60272)
+
+
 ### radio exitosa en vivo (N/A, 06/11/2025 07:51 Lima)
 
 Sin noticias relacionadas disponibles.
@@ -1012,19 +1026,5 @@ Sin noticias relacionadas disponibles.
 - **Player Status Report | LAFC vs. Austin FC - Game 2 - 2025 MLS Cup Playoffs - Round One Best-of-3 Series**: [Link](https://www.lafc.com/news/player-status-report-lafc-vs-austin-fc-game-2-2025-mls-cup-playoffs-round-one-best-of-3-series-november-2)
 - **Son Heung-min Starts Second Leg as Central Forward**: [Link](https://www.chosun.com/english/sports-en/2025/11/03/SWFQPVQRGRF5BOLJCUUEH46TJ4/)
 - **Austin FC vs. Los Angeles FC: How to Watch, Odds, Game 2 Preview**: [Link](https://www.foxsports.com/stories/soccer/austin-fc-vs-los-angeles-fc-how-watch-odds-game-2-preview)
-
-
-### pachuca - guadalajara (N/A, 02/11/2025 20:59 Lima)
-
-- **Chivas domina a Pachuca y quiere prolongar su buena racha**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/15892964/chivas-vs-pachuca-liga-mx-2025-racha-victorias-consecutivas)
-- **Pachuca vs Chivas: posiciones EN VIVO para Liguilla**: [Link](https://www.365scores.com/es/news/pachuca-vs-chivas-posiciones-mexico-liga/)
-- **Link, Pachuca vs. Chivas en vivo: horarios, canales y dónde ver partido por Liga MX**: [Link](https://elcomercio.pe/deporte-total/mexico/pachuca-vs-chivas-en-vivo-online-gratis-hoy-via-caliente-tv-futbol-libre-tv-fox-sports-vix-horarios-canales-tv-y-donde-ver-partido-por-liga-mx-video-noticia/)
-
-
-### columbus crew - cincinnati (N/A, 02/11/2025 20:59 Lima)
-
-- **🚨 Columbus Crew blitz Cincinnati to keep season alive**: [Link](https://ca.sports.yahoo.com/news/columbus-crew-blitz-cincinnati-keep-013700149.html)
-- **MLS Cup Playoff match between Columbus Crew, FC Cincinnati**: [Link](https://www.dispatch.com/picture-gallery/sports/mls/columbus-crew/2025/11/02/columbus-crew-fc-cincinnati-mls-playoff-games/87040037007/)
-- **Arfsten, Crew avoid elimination, beat Cincinnati 4-0 to force decisive Game 3**: [Link](https://www.newsday.com/sports/soccer/cincinnati-crew-score-o62084)
 
 
