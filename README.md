@@ -1,3 +1,71 @@
+### viktoria plzeň - fenerbahçe (N/A, 06/11/2025 15:27 Lima)
+
+- **Fenerbahce aims for crucial away victory against Viktoria Plzen in UEFA Europa League**: [Link](https://www.turkiyetoday.com/sports/fenerbahce-aims-for-crucial-away-victory-against-viktoria-plzen-in-uefa-europa-league-3209522)
+- **Viktoria Plzen vs Fenerbahce Prediction and Betting Tips | November 6th 2025**: [Link](https://www.sportskeeda.com/football/viktoria-plzen-vs-fenerbahce-prediction-betting-tips-november-6th-2025)
+- **Fenerbahçe Faces Viktoria Plzen in Crucial Europa League Clash**: [Link](https://news.ssbcrack.com/fenerbahce-faces-viktoria-plzen-in-crucial-europa-league-clash/)
+
+
+### rayo vallecano (N/A, 06/11/2025 15:27 Lima)
+
+- **Real Madrid begin preparations for Rayo clash**: [Link](https://www.realmadrid.com/en-US/news/football/first-team/trainings/el-real-madrid-se-esta-entrenando-06-11-2025)
+- **He will start on Sunday, Eduardo Camavinga already knows it, he has to return to the bench.**: [Link](https://madrid-barcelona.com/en/real-madrid/he-will-be-a-starter-on-sunday-eduardo-camavinga-already-knows-it-he-has-to-return-to-the-bench)
+- **Real Madrid and Barcelona seek LaLiga solace after European setbacks**: [Link](https://www.reuters.com/sports/soccer/real-madrid-barcelona-seek-laliga-solace-after-european-setbacks-2025-11-06/)
+
+
+### bolonia - brann (N/A, 06/11/2025 15:27 Lima)
+
+- **Europa League: Bologna recibirá a SK Brann por la fecha 4**: [Link](https://rpp.pe/futbol/ligas-internacionales/europa-league-bologna-recibira-a-sk-brann-por-la-fecha-4-noticia-1662501)
+
+
+### real betis (N/A, 06/11/2025 15:27 Lima)
+
+- **Real Betis - Lyon, en directo: Europa League hoy, en vivo**: [Link](https://as.com/futbol/uefa/real-betis-lyon-en-directo-europa-league-hoy-en-vivo-f202511-d/)
+- **Europa League: Betis y Olympique Lyon se miden por la fecha 4**: [Link](https://rpp.pe/futbol/ligas-internacionales/europa-league-betis-y-olympique-lyon-se-miden-por-la-fecha-4-noticia-1662507)
+- **Amrabat se reincorpora al grupo en la última sesión antes de recibir al Lyon**: [Link](https://www.msn.com/es-es/deportes/futbol/amrabat-se-reincorpora-al-grupo-en-la-%C3%BAltima-sesi%C3%B3n-antes-de-recibir-al-lyon/ar-AA1PQxJ1)
+
+
+### paok vs (N/A, 06/11/2025 15:27 Lima)
+
+- **PAOK vs Young Boys LIVE Score Updates in UEFA Europa League Match**: [Link](https://www.vavel.com/en-us/soccer/2025/11/06/1240348-paok-vs-young-boys-live-score-europa-league.html)
+- **European Cup: YB face difficult task in Greece | blue News**: [Link](https://www.bluewin.ch/en/sport/football/yb-face-difficult-task-in-greece-2950768.html)
+- **Preview:PAOK vs Young Boys - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/paok/europa-league/preview/paok-vs-young-boys-prediction-team-news-lineups_585098.html)
+
+
+### aek atenas (N/A, 06/11/2025 15:27 Lima)
+
+- **Orbelín Pineda destaca, pero el AEK Atenas le da al Shamrock su primer punto en la Conference League**: [Link](https://www.clarosports.com/futbol/uefa-conference-league/aek-atenas-vs-shamrock-rovers-en-vivo-el-partido-de-la-conference-league-2025/)
+- **Goles y Resumen AEK Atenas vs Shamrock Rovers: Orbelín Pineda brilla pese al empate en la Conference League**: [Link](https://www.marca.com/mx/futbol/conference-league/cronica/2025/11/06/690cdfba46163f1d478b459f.html)
+- **AEK Athens vs Shamrock Rovers: pronóstico, apuestas, cuotas para el partido 06/11/2025**: [Link](https://legalbet.es/centro-apuestas/aek-athens-shamrock-rovers-06-11-2025/)
+
+
+### bologna vs (N/A, 06/11/2025 15:27 Lima)
+
+- **Bologna vs. SK Brann: Europa League official MD4 line-ups**: [Link](https://football-italia.net/europa-league-line-ups-bologna-vs-sk-brann/)
+- **Bologna, Brann is a fire that doesn't warm. Mission: victory to reignite Europe**: [Link](https://sport.quotidiano.net/en/calcio/bologna/bologna-il-brann-e-un-5157088e)
+- **Bologna Faces Brann in Europa League Clash**: [Link](https://www.ilmessaggero.it/en/bologna_faces_brann_in_europa_league_clash-9170691.html?next_page=1)
+
+
+### stuttgart vs (N/A, 06/11/2025 15:27 Lima)
+
+- **Liveticker | VfB Stuttgart - Feyenoord Rotterdam : | 4. Spieltag | Europa League 2025/26**: [Link](https://www.kicker.de/stuttgart-gegen-feyenoord-2025-europa-league-5170531/ticker)
+- **'UEFA Europa League' bei RTL im Livestream...e live**: [Link](https://www.spielfilm.de/news/88018/uefa-europa-league-bei-rtl-im-livestream-und-tv-so-sehen-sie-die-uefa-europa-league-live)
+- **Feyenoord-Fans in Stuttgart: Party mit Techno, Gesängen, Bier – und Filmverbot**: [Link](https://www.stuttgarter-nachrichten.de/inhalt.feyenoord-fans-in-stuttgart-party-mit-techno-gesaengen-bier-und-filmverbot.731bf7f7-b4cc-4e18-9dd6-d7526ea66708.html)
+
+
+### uefa (N/A, 06/11/2025 15:27 Lima)
+
+- **TRT 1 Canlı İzle 6 Kasım: Viktoria Plzen - Fenerbahçe FB maçı tabii spor canlı yayın izle! Fenerbahçe Avrupa'da galibiyet arıyor**: [Link](https://www.yenisafak.com/foto-galeri/ozgun/trt-1-canli-izle-6-kasim-viktoria-plzen-fenerbahce-fb-maci-tabii-spor-canli-yayin-izle-fenerbahce-avrupada-galibiyet-ariyor-4766213)
+- **Domenico Tedesco'dan kadro tercihi açıklaması!**: [Link](https://beinsports.com.tr/haber/domenico-tedesco-viktoria-plzen-maci-oncesi-konustu)
+- **Viktoria Plzeň–Fenerbahçe maç kadrosu: Viktoria Plzeň–Fenerbahçe maçı ilk 11'ler belli oldu!**: [Link](https://www.yirmidort.tv/spor/viktoria-plzenfenerbahce-mac-kadrosu-viktoria-plzenfenerbahce-maci-ilk-11ler-belli-oldu-247841)
+
+
+### stuttgart - feyenoord (N/A, 06/11/2025 15:27 Lima)
+
+- **“Make the most of our good home form”**: [Link](https://www.vfb.de/en/vfb/latest/news/professionals/2526/pressekonferenz-vor-vfb-stuttgart---rotterdam-/)
+- **Confirmed lineups: VfB Stuttgart vs. Feyenoord**: [Link](https://bulinews.com/confirmed-lineups-vfb-stuttgart-feyenoord)
+- **Stuttgart back on continental trail**: [Link](https://www.bundesliga.com/en/bundesliga/news/stuttgart-feyenoord-live-europa-league-preview-van-persie-ueda-timber-34592)
+
+
 ### aryna sabalenka (N/A, 06/11/2025 11:33 Lima)
 
 - **WTA Finals Day 6 Preview: Three players, two spots, one last push for the semifinals**: [Link](https://www.wtatennis.com/news/4396400/wta-finals-day-6-preview-sabalenka-gauff-and-pegula-vie-for-semifinal-berths)
@@ -956,75 +1024,5 @@ Sin noticias relacionadas disponibles.
 - **Pedro Aquino fuera de lista en Alianza Lima y no por lesión: "Es un tema..."**: [Link](https://libero.pe/futbol-peruano/alianza-lima/2025/10/30/pedro-aquino-fuera-de-lista-en-alianza-lima-lesion-es-tema-1134720)
 - **Explotó Matute: empate agónico de Alianza vs. Melgar en el úlitmo minuto del partido por Liga 1 | VIDEO**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/gol-de-renzo-garces-hoy-con-alianza-lima-vs-melgar-por-el-torneo-clausura-de-la-liga-1-video-noticia/)
 - **Orzán se molestó por penal a Guerrero y lamentó empate**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/orzan-se-molesto-penal-cobrado-guerrero-y-lamento-empate-n451556)
-
-
-### leslie moscoso (N/A, 02/11/2025 23:32 Lima)
-
-- **El Valor de la Verdad EN VIVO: Leslie Moscoso revelará todo el drama que vivió con su exesposo**: [Link](https://www.infobae.com/peru/2025/11/02/el-valor-de-la-verdad-en-vivo-leslie-moscoso-revelara-todo-el-drama-que-vivio-con-su-exesposo/)
-- **Luisito Sánchez por revelaciones de Leslie Moscoso: "Ella es una mujer grande. Solo me importa el bienestar de mi hijo"**: [Link](https://www.atv.pe/noticia/luisito-sanchez-por-revelaciones-de-leslie-moscoso-ella-es-una-mujer-grande-solo-me-importa-el-bienestar-de-mi-hijo/)
-- **Luisito Sánchez ANGUSTIADO por su hijo ante DESGARRADORAS confesiones de Leslie Moscoso en 'EVDLV'**: [Link](https://elpopular.pe/espectaculos/2025/10/31/luisito-sanchez-angustiado-por-su-hijo-ante-desgarradoras-confesiones-de-leslie-moscoso-en-evdlv-1627190)
-
-
-### paro de transportistas (N/A, 02/11/2025 23:32 Lima)
-
-- **Transportistas del Callao convocan a un paro para el lunes 3 de noviembre por el aumento de extorsiones**: [Link](https://rpp.pe/peru/callao/transportistas-del-callao-convocan-a-un-paro-para-el-lunes-3-de-noviembre-por-el-aumento-de-extorsiones-noticia-1661917)
-- **Gremios de transporte no apoyarán paralización**: [Link](https://elperuano.pe/noticia/282009-gremios-de-transporte-no-apoyaran-paralizacion)
-- **Miguel Palomino: "Nosotros ya no confiamos en José Jerí"**: [Link](https://panamericana.pe/2025-en-24-horas/politica/457494-miguel-palomino-confiamos-jose-jeri)
-
-
-### lakers - heat (N/A, 02/11/2025 23:32 Lima)
-
-- **Miami Heat vs Los Angeles Lakers Prediction, Pick, Odds -- 11/2**: [Link](https://www.actionnetwork.com/nba/miami-heat-vs-los-angeles-lakers-prediction-pick-odds-sunday-november-2)
-- **Heat vs Lakers: Best NBA Player Props and Picks for Nov. 2**: [Link](https://www.thelines.com/heat-vs-lakers-best-nba-player-props-and-picks-for-nov-2/)
-- **Lakers vs. Heat Injury Report – Nov. 2**: [Link](https://foxsports990.iheart.com/content/2025-11-02-lakers-vs-heat-injury-report-nov-2/)
-
-
-### suns - spurs (N/A, 02/11/2025 23:32 Lima)
-
-- **Stephon Castle Prepared for Spurs’ Intense Showdown Against Suns**: [Link](https://www.el-balad.com/6753820)
-- **NBA fans troll Victor Wembanyama for disappointing 9-point display in Spurs loss**: [Link](https://www.thebiglead.com/nba-fans-troll-victor-wembanyama-for-disappointing-9-point-display-in-spurs-loss/)
-- **PREGAME: Can Phoenix Suns, Devin Booker CONTAIN Wemby, Hand Spurs 1st Loss?**: [Link](https://bvmsports.com/2025/11/02/pregame-can-phoenix-suns-devin-booker-contain-wemby-hand-spurs-1st-loss/)
-
-
-### liga argentina tabla (N/A, 02/11/2025 23:32 Lima)
-
-- **Cómo quedaron Boca y River en la tabla anual y la clasificación a la Copa Libertadores 2026**: [Link](https://www.tycsports.com/river-plate/como-quedo-boca-en-la-tabla-anual-y-la-clasificacion-a-la-copa-libertadores-2026-id696112.html)
-- **Con Boca a un paso de la Libertadores y River comprometido: las posiciones del Clausura, la clasificación a las copas y la permanencia**: [Link](https://www.infobae.com/deportes/2025/11/02/boca-a-un-paso-de-la-libertadores-asi-estan-las-posiciones-del-clausura-la-clasificacion-a-las-copas-y-la-lucha-por-la-permanencia/)
-- **Boca, a un paso de la Libertadores, y River quedó muy complicado**: [Link](https://www.ole.com.ar/futbol-internacional/libertadores/lucha-boca-river-libertadores-mano-mano-clasificacion_0_4Q8Jvvjdrs.html)
-
-
-### atlético nacional - américa (N/A, 02/11/2025 20:59 Lima)
-
-- **Pronósticos Nacional vs. América: clásico para crear apuesta a 2,47**: [Link](https://www.futbolred.com/apuestas/pronosticos-nacional-vs-america-copa-betplay-semifinales-01-11-2025-258038)
-- **América estuvo muy cerca del gol ante Atlético Nacional**: [Link](https://www.winsports.co/futbol-colombiano/noticias/america-estuvo-muy-cerca-del-gol-ante-atletico-nacional-390855)
-- **Nacional 4–1 América: Resultado, resumen y goles**: [Link](https://colombia.as.com/futbol/nacional-america-en-vivo-online-copa-betplay-en-directo-f202511-d/)
-
-
-### vombergar (N/A, 02/11/2025 20:59 Lima)
-
-- **Un delantero de San Lorenzo podría hacer las valijas**: [Link](https://www.ole.com.ar/san-lorenzo/san-lorenzo-alianza-lima-vombergar-contrato_0_yxIZxLANA8.html)
-- **Alianza Lima interesado en delantero goleador de club campeón de Copa Libertadores: Gorosito lo conoce**: [Link](https://bolavip.com/pe/alianza-lima/alianza-lima-interesado-en-delantero-goleador-de-club-campeon-de-copa-libertadores-gorosito-lo-conoce)
-- **Andrés Vombergar, voceado en Alianza Lima, sorprende con una gran noticia: "Tiene un precontrato..."**: [Link](https://libero.pe/futbol-peruano/alianza-lima/2025/11/02/andres-vombergar-voceado-en-alianza-lima-sorprende-gran-noticia-tiene-precontrato-59266)
-
-
-### tabla acumulada liga 1 (N/A, 02/11/2025 20:59 Lima)
-
-- **Tabla de posiciones de la Liga 1 Perú 2025 HOY: así van los equipos en la fecha 17 del Torneo Clausura y Acumulada**: [Link](https://www.infobae.com/peru/deportes/2025/10/31/tabla-de-posiciones-liga-1-peru-2025-en-vivo-hoy-acumulada-fecha-17-torneo-clausura-programacion-resultados/)
-- **Acumulado Liga 1 y tabla de posiciones del Torneo Clausura: clasificación y resultados de hoy**: [Link](https://libero.pe/futbol-peruano/liga-1/2025/10/30/acumulado-liga-1-peru-tabla-de-posiciones-del-torneo-clausura-en-fecha-17-2026868)
-- **Tabla acumulada de la Liga 1: Sporting Cristal se mete a los play offs y sigue la pelea entre Alianza Lima y Cusco FC por el segundo lugar**: [Link](https://trome.com/deportes/futbol-peruano/tabla-acumulada-de-la-liga1-sporting-cristal-se-mete-a-los-play-offs-y-la-lucha-alianza-lima-y-cusco-fc-video-noticia/)
-
-
-### tabla de posiciones liga 1 acumulado (N/A, 02/11/2025 20:59 Lima)
-
-- **Así se jugará la fecha 18 del Clausura de la Liga 1 2025**: [Link](https://www.espn.com.ar/futbol/peru/nota/_/id/15907055/programacion-de-la-fecha-18-del-clausura-liga-1-de-peru)
-- **¡Anótalo! Conoce cómo se jugará la penúltima fecha del Clausura**: [Link](https://ovacion.pe/noticias/liga1-te-apuesto-2025/anotalo-conoce-se-jugara-penultima-fecha-del-clausura)
-- **Tabla de posiciones de la Liga 1 Perú 2025 HOY: así van los equipos en la fecha 17 del Torneo Clausura y Acumulada**: [Link](https://www.infobae.com/peru/deportes/2025/10/31/tabla-de-posiciones-liga-1-peru-2025-en-vivo-hoy-acumulada-fecha-17-torneo-clausura-programacion-resultados/)
-
-
-### austin fc - lafc (N/A, 02/11/2025 20:59 Lima)
-
-- **Player Status Report | LAFC vs. Austin FC - Game 2 - 2025 MLS Cup Playoffs - Round One Best-of-3 Series**: [Link](https://www.lafc.com/news/player-status-report-lafc-vs-austin-fc-game-2-2025-mls-cup-playoffs-round-one-best-of-3-series-november-2)
-- **Son Heung-min Starts Second Leg as Central Forward**: [Link](https://www.chosun.com/english/sports-en/2025/11/03/SWFQPVQRGRF5BOLJCUUEH46TJ4/)
-- **Austin FC vs. Los Angeles FC: How to Watch, Odds, Game 2 Preview**: [Link](https://www.foxsports.com/stories/soccer/austin-fc-vs-los-angeles-fc-how-watch-odds-game-2-preview)
 
 
