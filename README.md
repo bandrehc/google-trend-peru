@@ -1,3 +1,30 @@
+### natalia lafourcade (N/A, 05/11/2025 23:31 Lima)
+
+- **"Cancionera Tour": Natalia Lafourcade llegará a Montevideo para presentar su nuevo disco**: [Link](https://www.montevideo.com.uy/Tiempo-libre/-Cancionera-Tour--Natalia-Lafourcade-llegara-a-Montevideo-para-presentar-su-nuevo-disco-uc941961)
+- **Natalia Lafourcade en Chile - Cancionera Tour en el Movistar Arena de Santiago, 22 de mayo de 2026**: [Link](https://walkingstgo.cl/natalia-lafourcade-en-chile-cancionera-tour-en-el-movistar-arena-de-santiago-22-de-mayo-de-2026/)
+
+
+### sabrina carpenter (N/A, 05/11/2025 23:31 Lima)
+
+- **Watch: Nicole Kidman and Keith Urban's daughter reacts to mom's arrest at Sabrina Carpenter concert**: [Link](https://www.hellomagazine.com/healthandbeauty/mother-and-baby/865883/nicole-kidman-keith-urban-daughter-reaction-arrest-sabrina-carpenter-video/)
+- **Short n Sweet Tour | Celebrity News and Gossip | Entertainment, Photos and Videos**: [Link](https://www.justjared.com/tags/short-n-sweet-tour/)
+- **Nicole Kidman's Daughter Sunday Rose Shares Hilarious Text from Mom Before Getting 'Arrested' by Sabrina Carpenter**: [Link](https://people.com/sunday-rose-shares-text-from-nicole-kidman-just-before-she-was-arrested-11843888)
+
+
+### kings - warriors (N/A, 05/11/2025 23:31 Lima)
+
+- **Kings' Domantas Sabonis, Zach LaVine out vs. Warriors; Jimmy Butler questionable**: [Link](https://www.nbcsportsbayarea.com/nba/domantas-sabonis-zach-lavine/1889756/)
+- **Western Notes: Warriors, Mavs, Achiuwa, Pelicans, Reaves**: [Link](https://www.hoopsrumors.com/2025/11/western-notes-warriors-mavs-achiuwa-pelicans-reaves.html)
+- **Anthony Slater: The Kings have ruled out Domantas …**: [Link](https://www.hoopshype.com/story/sports/nba/rumors/2025/11/05/anthony-slater-the-kings-have-ruled-out-domantas/87112742007/)
+
+
+### lakers - spurs (N/A, 05/11/2025 23:31 Lima)
+
+- **Is Luka Doncic Playing Tonight? Lakers vs Spurs Injury Report, Where To Watch & More (Nov. 5)**: [Link](https://www.essentiallysports.com/nba-active-basketball-news-is-luka-doncic-playing-tonight-los-angeles-lakers-vs-san-antonio-spurs-injury-report-where-to-watch-and-more-november-five/)
+- **Live Updates: Wolves-Knicks leads tonight's action**: [Link](https://www.nba.com/news/live-updates-an-11-game-night-in-the-nba-featuring-luka-doncics-lakers-vs-victor-wembanyamas-spurs)
+- **Luka Doncic (rest) good to go for Wednesday**: [Link](https://www.fantasypros.com/nba/news/550197/luka-doncic-rest-good-to-go-wednesday.php)
+
+
 ### sao paulo vs (N/A, 05/11/2025 20:56 Lima)
 
 - **Pronóstico Sao Paulo - Flamengo. Brasileirao Serie A | 06/11/2025**: [Link](https://gainblers.com/pe/pronosticos/futbol/brasil/brasileirao-serie-a/pronostico-sao-paulo-flamengo-06-11-2025/)
@@ -1001,33 +1028,5 @@ Sin noticias relacionadas disponibles.
 - **Paro de transportistas: Estos son los gremios de transporte urbano que paralizarán labores este 4 de noviembre**: [Link](https://rpp.pe/politica/actualidad/paro-de-transportistas-estos-son-los-gremios-de-transporte-urbano-que-paralizaran-labores-este-4-de-noviembre-noticia-1662059)
 - **Transportistas anuncian tres paros en Lima y Callao para noviembre 2025: estas son las fechas clave**: [Link](https://www.infobae.com/peru/2025/10/30/transportistas-anuncian-tres-paros-en-lima-y-callao-para-noviembre-2025-estas-son-las-fechas-clave/)
 - **Por Justo Carbajal: la ley antiextorsión**: [Link](https://caretas.pe/edicion_2736/por-justo-carbajal-la-ley-antiextorsion/)
-
-
-### lyon fc (N/A, 02/11/2025 15:23 Lima)
-
-- **Brest - OL : première pour Hateboer, Satriano de retour**: [Link](https://www.olympique-et-lyonnais.com/brest-ol-premiere-pour-hateboer-satriano-de-retour,383899.html)
-- **OL : Hateboer déjà là pour le choc avec Strasbourg : Sports - Orange**: [Link](https://sports.orange.fr/football/ligue-1/olympique-lyonnais/article/ol-hateboer-deja-la-pour-le-choc-avec-strasbourg-CNT000002loY7Q.html)
-- **Pilier polyvalent à l’Atalanta, flop à Rennes, revanchard…pourquoi l’OL a misé sur Hans Hateboer ?**: [Link](https://www.footmercato.net/a3023136239318827214-pilier-polyvalent-a-latalanta-flop-a-rennes-revanchard-pourquoi-lol-a-mise-sur-hans-hateboer)
-
-
-### porto - braga (N/A, 02/11/2025 15:23 Lima)
-
-- **O onze provável do FC Porto para a receção ao SC Braga**: [Link](https://www.abola.pt/noticias/o-onze-provavel-do-fc-porto-para-a-rececao-ao-sc-braga-2025110114440667657)
-- **FC Porto liberta centenas de bilhetes no topo sul para o jogo contra o Braga**: [Link](https://onefootball.com/de/news/fc-porto-liberta-centenas-de-bilhetes-no-topo-sul-para-o-jogo-contra-o-braga-41890552)
-- **Os onzes prováveis do FC Porto-Sp. Braga**: [Link](https://cnnportugal.iol.pt/fotos/os-onzes-provaveis-do-fc-porto-sp-braga/69074090d34e2bd5c6d386ac)
-
-
-### union minas (N/A, 02/11/2025 15:23 Lima)
-
-- **EN VIVO: Unión Minas vs AD Tahuishco por las semifinales de la Copa Perú 2025**: [Link](https://www.futbolperuano.com/copa-peru/noticias/union-minas-vs-ad-tahuishco-en-vivo-por-las-semifinales-de-la-copa-peru-546565)
-- **Conoce cómo quedaron los partidos de ida en los cuartos de final de la Copa Perú**: [Link](https://ovacion.pe/noticias/copa-peru/conoce-quedaron-partidos-ida-cuartos-final-copa-peru)
-- **Copa Perú 2025 : ¿Cómo se jugarán los partidos de las finales de la zona norte y sur y la final nacional?**: [Link](https://www.futboltrujillano.com/copa-peru-2025-como-se-jugaran-los-partidos-las-finales-de-la-zona-norte-y-sur-y-la-final-nacional-donder-ver-cruces/)
-
-
-### erick noriega (N/A, 02/11/2025 15:23 Lima)
-
-- **Noriega comete grave error en la defensa de Gremio y Corinthians de Carrillo anotó el 1-0**: [Link](https://libero.pe/futbol-internacional/2025/11/02/erick-noriega-comete-grave-error-en-defensa-de-gremio-corinthians-de-andre-carrillo-anoto-10-29136)
-- **Corinthians vs. Gremio EN VIVO: ¿A qué hora es el duelo entre André Carrillo y Erick Noriega por el Brasile...**: [Link](https://bolavip.com/pe/amp/peruanos-en-el-exterior/corinthians-vs-gremio-en-vivo-a-que-hora-es-el-duelo-entre-andre-carrillo-y-erick-noriega-por-el-brasileirao)
-- **Pronóstico Corinthians - Gremio. Brasileirao Serie A | 02/11/2025**: [Link](https://gainblers.com/pe/pronosticos/futbol/brasil/brasileirao-serie-a/pronostico-corinthians-gremio-02-11-2025/)
 
 
