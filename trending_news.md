@@ -1,3 +1,15 @@
+### radio exitosa en vivo (N/A, 06/11/2025 07:51 Lima)
+
+Sin noticias relacionadas disponibles.
+
+
+### setlist guns n roses 2025 (N/A, 06/11/2025 07:51 Lima)
+
+- **Guns N’ Roses en Lima: accesos, horarios, setlist y más para su concierto en el Estadio Nacional**: [Link](https://www.infobae.com/peru/2025/11/04/guns-n-roses-en-lima-accesos-horarios-setlist-y-mas-para-su-concierto-en-el-estadio-nacional/)
+- **Guns N’ Roses llegará a Lima para su esperado concierto en el Estadio Nacional de Lima**: [Link](https://elcomercio.pe/luces/musica/guns-n-roses-llegara-a-lima-para-su-esperado-concierto-en-el-estadio-nacional-de-lima-celebs-ultimas-noticia/)
+- **Guns N’ Roses encenderá Lima esta noche en el Estadio Nacional**: [Link](https://caretas.pe/entretenimiento/guns-n-roses-encendera-lima-esta-noche-en-el-estadio-nacional/)
+
+
 ### hay paro de transportistas (N/A, 06/11/2025 03:33 Lima)
 
 - **¿Tuviste problemas con el tránsito? El MTPE dispuso tolerancia y teletrabajo por el paro**: [Link](https://elperuano.pe/noticia/282283-tuviste-problemas-con-el-transito-el-mtpe-dispuso-tolerancia-y-teletrabajo-por-el-paro)
@@ -1014,19 +1026,5 @@ Sin noticias relacionadas disponibles.
 - **🚨 Columbus Crew blitz Cincinnati to keep season alive**: [Link](https://ca.sports.yahoo.com/news/columbus-crew-blitz-cincinnati-keep-013700149.html)
 - **MLS Cup Playoff match between Columbus Crew, FC Cincinnati**: [Link](https://www.dispatch.com/picture-gallery/sports/mls/columbus-crew/2025/11/02/columbus-crew-fc-cincinnati-mls-playoff-games/87040037007/)
 - **Arfsten, Crew avoid elimination, beat Cincinnati 4-0 to force decisive Game 3**: [Link](https://www.newsday.com/sports/soccer/cincinnati-crew-score-o62084)
-
-
-### river (N/A, 02/11/2025 20:59 Lima)
-
-- **New roof for Willow River seniors**: [Link](https://www.princegeorgecitizen.com/local-news/new-roof-for-willow-river-seniors-11389091)
-- **Croc immortalised by Steve Irwin rehomed at zoo after removal from Cape river**: [Link](https://www.cairnspost.com.au/news/cairns/old-faithful-rehomed-at-australia-zoo-after-removal-from-cape-river/news-story/36c8eb62b6c8a7f9f06d219d8684fc94)
-- **Gone south: Mystery croc relocated**: [Link](https://www.cairnspost.com.au/secretive-croc-moved-from-cairns-facility-but-key-details-remain-a-mystery/news-story/eeee8375d81796b6722ff3f2b121f68b)
-
-
-### paro 3 de noviembre (N/A, 02/11/2025 20:59 Lima)
-
-- **Paro de transportistas: Estos son los gremios de transporte urbano que paralizarán labores este 4 de noviembre**: [Link](https://rpp.pe/politica/actualidad/paro-de-transportistas-estos-son-los-gremios-de-transporte-urbano-que-paralizaran-labores-este-4-de-noviembre-noticia-1662059)
-- **¿Habrá paro el lunes 3 de noviembre en el Callao? Esto es lo que se sabe**: [Link](https://peru21.pe/lima/habra-paro-el-lunes-3-de-noviembre-en-el-callao-esto-es-lo-que-se-sabe/)
-- **Transportistas anuncian tres paros en Lima y Callao para noviembre 2025: estas son las fechas clave**: [Link](https://www.infobae.com/peru/2025/10/30/transportistas-anuncian-tres-paros-en-lima-y-callao-para-noviembre-2025-estas-son-las-fechas-clave/)
 
 
