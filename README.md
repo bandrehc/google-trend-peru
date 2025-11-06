@@ -1,3 +1,71 @@
+### sao paulo vs (N/A, 05/11/2025 20:56 Lima)
+
+- **Pronóstico Sao Paulo - Flamengo. Brasileirao Serie A | 06/11/2025**: [Link](https://gainblers.com/pe/pronosticos/futbol/brasil/brasileirao-serie-a/pronostico-sao-paulo-flamengo-06-11-2025/)
+- **São Paulo FC vs Clube de Regatas do Flamengo pronostico y comparación de cuotas 06.11.2025**: [Link](https://www.livetipsportal.com/es/pronosticos-apuestas-deportivas/sao-paulo-fc-vs-cr-flamengo-serie-a-10963334/)
+- **Ao vivo: São Paulo x Flamengo | Rodada 32 | Campeonato Brasileiro**: [Link](https://ge.globo.com/sp/futebol/brasileirao-serie-a/jogo/05-11-2025/sao-paulo-flamengo.ghtml)
+
+
+### pago onp noviembre 2025 (N/A, 05/11/2025 20:56 Lima)
+
+- **Pagos ONP y del sector público en noviembre 2025: consulta el cronograma del Banco de la Nación**: [Link](https://elcomercio.pe/respuestas/tramites/pagos-onp-y-del-sector-publico-en-noviembre-2025-revisa-el-cronograma-del-banco-de-la-nacion-tdpe-noticia/)
+- **ONP inicia pago de pensiones desde el 7 de noviembre: revisa aquí tu fecha de cobro**: [Link](https://elperuano.pe/noticia/282221-onp-inicia-pago-de-pensiones-desde-el-7-de-noviembre-revisa-aqui-tu-fecha-de-cobro)
+- **Pago ONP noviembre 2025: ¿cuándo recibirán el pago los pensionistas de la ley 19990?**: [Link](https://gestion.pe/peru/cronograma-de-pago-onp-noviembre-2025-cuando-recibiran-el-pago-los-pensionistas-de-la-ley-19990-banco-de-la-nacion-realiza-pago-a-jubilados-y-cesantes-noticia/)
+
+
+### axl rose (N/A, 05/11/2025 20:56 Lima)
+
+- **Guns N’ Roses Sued By Ex-Manager Over Release of His Book**: [Link](https://variety.com/2025/music/news/guns-n-roses-sued-by-ex-manager-over-release-of-memoir-1236570761/)
+- **Former Guns N' Roses manager Alan Niven files lawsuit against the band**: [Link](https://www.loudersound.com/bands-artists/alan-niven-lawsuit-guns-n-roses)
+- **Guns N' Roses Sued by Ex-Manager - What the Court Documents Reveal**: [Link](https://loudwire.com/alan-niven-guns-n-roses-lawsuit-book/)
+
+
+### independiente rivadavia - argentinos jrs. (N/A, 05/11/2025 20:56 Lima)
+
+- **VER Rivadavia-Argentinos Jrs EN VIVO vía TyC Sports por la final de la Copa Argentina**: [Link](https://elcomercio.pe/deporte-total/argentina/independiente-rivadavia-vs-argentinos-jrs-en-vivo-gratis-hoy-via-futbol-libre-tv-tyc-sports-pelota-libre-horarios-canales-tv-y-donde-ver-final-de-copa-argentina-video-noticia/)
+- **Falló Chiquito Romero y Alex Arce aprovechó para Independiente Rivadavia ante Argentinos en la final de Copa Argentina**: [Link](https://www.espn.com.ar/futbol/argentina/nota/_/id/15920542/error-chiquito-romero-gol-alex-arce-independiente-rivadavia-argentinos-copa-argentina-final)
+- **Qué equipos necesitan que Argentinos Juniors gane la Copa Argentina y libere un cupo en la anual**: [Link](https://www.tycsports.com/copa-argentina/que-equipos-necesitan-que-argentinos-juniors-gane-la-copa-argentina-y-libere-un-cupo-en-la-anual-id696825.html)
+
+
+### daddy yankee (N/A, 05/11/2025 20:56 Lima)
+
+- **Bizarrap y Daddy Yankee revolucionan las redes con el anuncio de su colaboración: cuándo será el esperado estreno**: [Link](https://www.infobae.com/teleshow/2025/11/04/bizarrap-y-daddy-yankee-revolucionan-las-redes-con-el-anuncio-de-su-colaboracion-cuando-sera-el-esperado-estreno/)
+- **Bizarrap anuncia colaboración con Daddy Yankee en su regreso musical**: [Link](https://elcomercio.pe/luces/musica/bizarrap-anuncia-colaboracion-con-daddy-yankee-en-su-regreso-musical-ultimas-noticia/)
+- **¿Una sesión “para Cristo”?: la expectativa por el contenido lírico del regreso de Daddy Yankee**: [Link](https://es-us.vida-estilo.yahoo.com/sesi%C3%B3n-cristo-expectativa-contenido-l%C3%ADrico-195107715.html)
+
+
+### gremio vs (N/A, 05/11/2025 20:56 Lima)
+
+- **André Carrillo criticado, Erick Noriega aprobado: lo que dejó el duelo de peruanos en el Gremio vs. Corinthians**: [Link](https://depor.com/futbol-peruano/peruanos-en-el-mundo/erick-noriega-gremio-vs-corinthians-opinion-de-prensa-brasilena-en-duelo-con-andre-carrillo-y-que-dijeron-de-su-rendimiento-en-duelo-de-peruanos-video-noticia/)
+- **André Carrillo le ganó a Erick Noriega: Corinthians venció 2-0 al Gremio por la fecha 31 del Brasileirao**: [Link](https://rpp.pe/futbol/peruanos-en-el-mundo/corinthians-vs-gremio-en-vivo-a-que-hora-es-el-duelo-entre-carrillo-y-noriega-y-donde-ver-la-fecha-31-del-brasileirao-noticia-1662026)
+- **Prensa brasileña dio dura opinión sobre Carrillo tras triunfo de Corinthians ante Gremio: "Fue..."**: [Link](https://libero.pe/futbol-internacional/2025/11/02/prensa-brasilena-dio-dura-opinion-andre-carrillo-triunfo-de-corinthians-gremio-fue-195008)
+
+
+### são paulo - flamengo (N/A, 05/11/2025 20:56 Lima)
+
+- **Pênalti? PC Oliveira bate martelo em polêmica de São Paulo x Flamengo**: [Link](https://www.lance.com.br/fora-de-campo/penalti-pc-oliveira-bate-martelo-em-polemica-de-sao-paulo-x-flamengo.html)
+- **Aos 2 min do 1º tempo - gol de dentro da área de Luciano do São Paulo contra o Flamengo**: [Link](https://ge.globo.com/futebol/video/aos-2-min-do-1o-tempo-gol-de-dentro-da-area-de-luciano-do-sao-paulo-contra-o-flamengo-14074092.ghtml)
+- **São Paulo x Flamengo AO VIVO – 1 x 1 – Arrascaeta empata em início quente pelo Brasileirão Betano**: [Link](https://br.bolavip.com/ao-vivo/sao-paulo-x-flamengo-ao-vivo-onde-assistir-jogo-em-tempo-real-pelo-brasileirao-betano-2025)
+
+
+### cesar combina (N/A, 05/11/2025 20:56 Lima)
+
+- **PJ ordena la ubicación y captura de César Combina por no presentarse a juicio por presunta difamación**: [Link](https://www.infobae.com/peru/2025/11/05/pj-ordena-la-ubicacion-y-captura-de-cesar-combina-por-no-presentarse-a-juicio-por-presunta-difamacion/)
+- **Poder Judicial declara reo contumaz a César Combina tras no acudir a juicio que afronta por presunta difamación**: [Link](https://rpp.pe/lima/judiciales/cesar-combina-poder-judicial-lo-declara-reo-contumaz-tras-no-acudir-a-juicio-que-afronta-por-presunta-difamacion-noticia-1662554)
+- **PJ declara reo contumaz a César Combina por no asistir a audiencia en caso por difamación**: [Link](https://elcomercio.pe/politica/pj-declara-reo-contumaz-a-cesar-combina-por-no-asistir-a-audiencia-en-caso-por-difamacion-ultimas-noticia/)
+
+
+### juan pablo varillas (N/A, 05/11/2025 20:56 Lima)
+
+- **¡A paso firme! Buse, Bueno y Varillas se meten a los octavos de final del Challenger Lima 3**: [Link](https://elcomercio.pe/deporte-total/polideportivo/a-paso-firme-buse-bueno-y-varillas-avanzan-a-los-octavos-de-final-del-challenger-lima-3-tenis-noticia/)
+- **Solo llegó hasta octavos: Juan Pablo Varillas perdió 2-0 ante Román Burruchaga en el Challenger Lima 3**: [Link](https://rpp.pe/tenis/mas-tenis/juan-pablo-varillas-vs-roman-burruchaga-en-vivo-octavos-final-challenger-lima-3-a-que-hora-juegan-y-donde-ver-por-tv-via-atp-tour-link-gratis-partidos-de-hoy-noticia-1662446)
+- **Se respeta la casa: Ignacio Buse venció a Miguel Tobón y clasificó a octavos de final de Challenger Lima 3**: [Link](https://rpp.pe/tenis/mas-tenis/hoy-ignacio-buse-vs-miguel-tobon-en-vivo-primera-ronda-challenger-lima-3-a-que-hora-juegan-y-donde-ver-por-tv-via-atp-tour-link-gratis-partidos-de-hoy-noticia-1662272)
+
+
+### botafogo vs (N/A, 05/11/2025 20:56 Lima)
+
+- **Botafogo - RJ vs Vasco da Gama - RJ pronostico y comparación de cuotas 05.11.2025**: [Link](https://www.livetipsportal.com/es/pronosticos-apuestas-deportivas/botafogo-rj-vs-vasco-da-gama-rj-serie-a-10963325/)
+
+
 ### u. de chile - everton (N/A, 05/11/2025 15:28 Lima)
 
 - **Marcelo Díaz destacó la campaña de la U pese al opaco semestre en el plano local**: [Link](https://www.espn.com.ar/futbol/chile/nota/_/id/15915251/universidad-de-chile-oficializo-renovacion-marcelo-diaz-liga-de-primera)
@@ -961,75 +1029,5 @@ Sin noticias relacionadas disponibles.
 - **Noriega comete grave error en la defensa de Gremio y Corinthians de Carrillo anotó el 1-0**: [Link](https://libero.pe/futbol-internacional/2025/11/02/erick-noriega-comete-grave-error-en-defensa-de-gremio-corinthians-de-andre-carrillo-anoto-10-29136)
 - **Corinthians vs. Gremio EN VIVO: ¿A qué hora es el duelo entre André Carrillo y Erick Noriega por el Brasile...**: [Link](https://bolavip.com/pe/amp/peruanos-en-el-exterior/corinthians-vs-gremio-en-vivo-a-que-hora-es-el-duelo-entre-andre-carrillo-y-erick-noriega-por-el-brasileirao)
 - **Pronóstico Corinthians - Gremio. Brasileirao Serie A | 02/11/2025**: [Link](https://gainblers.com/pe/pronosticos/futbol/brasil/brasileirao-serie-a/pronostico-corinthians-gremio-02-11-2025/)
-
-
-### feriado 3 de noviembre (N/A, 02/11/2025 15:23 Lima)
-
-- **¿Habrá feriado largo el 3 y 4 de noviembre? Esto dice el decreto publicado en El Peruano**: [Link](https://www.infobae.com/peru/2025/11/01/habra-feriado-largo-el-3-y-4-de-noviembre-esto-dice-el-decreto-publicado-en-el-peruano/)
-- **¿Se suspenden las clases escolares este lunes 3 de noviembre en colegios peruanos? Lo que dijo Minedu**: [Link](https://larepublica.pe/sociedad/2025/10/31/las-clases-escolares-se-suspenden-este-lunes-3-de-noviembre-minedu-responde-1475290)
-- **Clases el lunes 3 de noviembre: Minedu aclara si habrá feriado largo**: [Link](https://diariocorreo.pe/edicion/lima/clases-el-lunes-3-de-noviembre-minedu-aclara-si-habra-feriado-largo-peru-gobierno-noticia/)
-
-
-### stade brestois - lyon (N/A, 02/11/2025 15:23 Lima)
-
-- **Martin Satriano et Hans Hateboer titulaires avec l'OL à Brest, Adam Karabec sur le banc**: [Link](https://www.lequipe.fr/Football/Actualites/Martin-satriano-et-hans-hateboer-titulaires-avec-l-ol-a-brest-adam-karabec-sur-le-banc/1606668)
-- **Lyon. 100e de Roy, bilan négatif à Le Blé, Ajorque muet… L’avant-match en chiffres . Sport**: [Link](https://angers.maville.com/sport/infos/detail_-lyon.-100e-de-roy-bilan-negatif-a-le-ble-ajorque-muet...-l-avant-match-en-chiffres-_-7046796_actu.Htm)
-- **« Vu ce qu’on fait, les gens en veulent plus » : aux portes du podium, l’OL face à de nouvelles exigences**: [Link](https://www.ledauphine.com/sport/2025/11/01/l-ol-face-a-de-nouvelles-exigences)
-
-
-### real betis - r.c.d. mallorca (N/A, 02/11/2025 15:23 Lima)
-
-- **Apuestas y Pronóstico del Real Betis vs Mallorca 02/11/25**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2025/noviembre/pronostico-real-betis-vs-mallorca-02-11-25)
-- **Betis - Mallorca en directo: La Liga - Fútbol**: [Link](https://espanol.eurosport.com/futbol/la-liga/2025-2026/live-betis-mallorca_mtc1610531/live-commentary.shtml)
-- **El Chimy Ávila se suma a las bajas de Isco y Junior frente al Mallorca**: [Link](https://www.marca.com/futbol/betis/2025/11/01/chimy-avila-suma-bajas-isco-junior-frente-mallorca.html)
-
-
-### corinthians - grêmio (N/A, 02/11/2025 15:23 Lima)
-
-- **📋 Com novidades, Corinthians e Grêmio divulgam escalações para 31ª rodada**: [Link](https://onefootball.com/pt-br/noticias/com-novidades-corinthians-e-gremio-divulgam-escalacoes-para-31-rodada-41893871)
-- **Comentário de Leandro em 'Jogo do Corinthians ao vivo'**: [Link](https://www.meutimao.com.br/comentario/16271906/a_dificuldade_do_memphis_acertar_passe_hoje_ta)
-- **Grêmio tenta segunda vitória consecutiva no Brasileirão**: [Link](https://esportenewsmundo.com.br/gremio-tenta-segunda-vitoria-consecutiva-no-brasileirao/)
-
-
-### lens vs (N/A, 02/11/2025 11:26 Lima)
-
-- **Liga de Francia: Lens enfrenta a Lorient para subirse a la cima**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-de-francia-lens-enfrenta-a-lorient-para-subirse-a-la-cima-noticia-1661949)
-- **Preview:Lens vs Lorient - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/lens/preview/lens-vs-lorient-prediction-team-news-lineups_584787.html)
-- **Arsene Kouassi vs. RC Lens – Player props & odds to score a goal on November 2**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/11/01/arsene-kouassi-soccer-player-props-11-2-2025/87042486007/)
-
-
-### swansea vs. manchester city (N/A, 02/11/2025 11:26 Lima)
-
-- **Three things we learned - Swansea City 1-3 Manchester City**: [Link](https://bitterandblue.sbnation.com/manchester-city-league-cup/35902/three-things-we-learned-swansea-city-1-3-manchester-city)
-- **Cherki: 'I'm happy to be back!'**: [Link](https://www.mancity.com/citytv/mens/cherki-post-swansea-carabao-cup-citytv-29-oct-63897341)
-- **Guardiola expects progress from Marmoush**: [Link](https://zamin.uz/en/sport/166192-guardiola-expects-progress-from-marmoush.html)
-
-
-### losc - angers (N/A, 02/11/2025 11:26 Lima)
-
-- **Les compositions probables pour LOSC – Angers SCO**: [Link](https://lepetitlillois.com/2025/11/02/les-compositions-probables-pour-losc-angers-sco/)
-- **Ligue 1. « Quelqu’un que j’apprécie » : quand Alexandre Dujeux recroise la route d’Olivier Giroud**: [Link](https://www.ouest-france.fr/sport/football/angers-sco/ligue-1-quelquun-que-japprecie-quand-alexandre-dujeux-recroise-la-route-dolivier-giroud-489e3d5a-b723-11f0-9097-68e77b575996)
-- **PRONOS PARIS RMC Le pari à l’extérieur du 2 novembre – Ligue 1**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-a-l-exterieur-du-2-novembre-ligue-1_AN-202511010290.html)
-
-
-### manchester city - bournemouth (N/A, 02/11/2025 11:26 Lima)
-
-- **Preview:Man City vs Bournemouth - prediction, team news**: [Link](https://www.sportsmole.co.uk/football/man-city/preview/man-city-vs-bournemouth-prediction-team-news-lineups_584802.html)
-- **RODRI ON THE BENCH!**: [Link](https://www.besoccer.com/new/live-man-city-v-bournemouth-1379515)
-- **Preview: High-flying Cherries head to Man City**: [Link](https://www.fotmob.com/topnews/23730-preview-high-flying-cherries-head-man-city?utm_source=fotmob)
-
-
-### alaves vs (N/A, 02/11/2025 11:26 Lima)
-
-- **Preview:Alaves vs Espanyol - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/alaves/preview/alaves-vs-espanyol-prediction-team-news-lineups_584843.html)
-- **Ander Guevara vs. Espanyol – Player props & odds to score a goal on November 2**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/11/01/ander-guevara-soccer-player-props-11-2-2025/87042503007/)
-- **Betting Odds and Player Props: Carlos Vicente Aims to Score Against Espanyol on November 2**: [Link](https://emegypt.net/1028747)
-
-
-### aryna sabalenka (N/A, 02/11/2025 11:26 Lima)
-
-- **Aryna Sabalenka vs Jasmine Paolini Prediction: Sabalenka's 5-2 H2H edge? Dominates + Year-End No. 1 Stakes**: [Link](https://www.telecomasia.net/sports-betting/tips/tennis/aryna-sabalenka-vs-jasmine-paolini-prediction-for-the-match-on-november-02-2025/)
-- **Sabalenka joins a select group of legends by dominating the WTA rankings throughout the year**: [Link](https://www.puntodebreak.com/en/2025/11/01/sabalenka-joins-select-group-of-legends-by-dominating-the-wta-rankings-throughout-the-year)
-- **WTA Finals Day 2: Sabalenka vs. Paolini and Gauff vs. Pegula | Where to Watch**: [Link](https://www.tennis.com/news/articles/wta-finals-day-2-sabalenka-paolini-gauff-pegula-where-to-watch-tennis-channel)
 
 
