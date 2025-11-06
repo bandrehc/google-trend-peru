@@ -1,3 +1,24 @@
+### hay paro de transportistas (N/A, 06/11/2025 03:33 Lima)
+
+- **¿Tuviste problemas con el tránsito? El MTPE dispuso tolerancia y teletrabajo por el paro**: [Link](https://elperuano.pe/noticia/282283-tuviste-problemas-con-el-transito-el-mtpe-dispuso-tolerancia-y-teletrabajo-por-el-paro)
+- **Paro de transporte: dirigentes se reúnen con el gobierno y generan fuerte división en todo el sector amenazado por la extorsión**: [Link](https://elcomercio.pe/lima/sucesos/paro-de-transporte-dirigentes-se-reunen-con-el-gobierno-y-generan-fuerte-division-en-las-todo-el-sector-amenazado-por-la-extorsion-noticia/)
+- **Paro de transportistas: combis y colectivos informales cubren la demanda en las primeras horas de la paralización**: [Link](https://rpp.pe/lima/actualidad/paro-de-transportistas-combis-y-colectivos-informales-cubren-la-demanda-en-las-primeras-horas-de-la-paralizacion-noticia-1662287)
+
+
+### nba (N/A, 06/11/2025 03:33 Lima)
+
+- **The Bounce: Pelicans, Grizzlies having tough times to start this NBA season**: [Link](https://www.nytimes.com/athletic/6773513/2025/11/03/ja-morant-grizzlies-zion-williamson-pelicans-the-bounce/)
+- **Every NBA Team's Biggest Problem Right Now**: [Link](https://bleacherreport.com/articles/25279682-every-nba-teams-biggest-problem-right-now)
+- **Mavs, Warriors, Knicks Unconvincing Out of the Gate**: [Link](https://theleadsm.com/mavs-warriors-knicks-unconvincing-out-of-the-gate/)
+
+
+### cesar combina reo contumaz (N/A, 06/11/2025 03:33 Lima)
+
+- **Poder Judicial declara reo contumaz a César Combina tras no acudir a juicio que afronta por presunta difamación**: [Link](https://rpp.pe/lima/judiciales/cesar-combina-poder-judicial-lo-declara-reo-contumaz-tras-no-acudir-a-juicio-que-afronta-por-presunta-difamacion-noticia-1662554)
+- **PJ ordena la ubicación y captura de César Combina por no presentarse a juicio por presunta difamación**: [Link](https://www.infobae.com/peru/2025/11/05/pj-ordena-la-ubicacion-y-captura-de-cesar-combina-por-no-presentarse-a-juicio-por-presunta-difamacion/)
+- **PJ declara reo contumaz a César Combina por no asistir a audiencia en caso por difamación**: [Link](https://elcomercio.pe/politica/pj-declara-reo-contumaz-a-cesar-combina-por-no-asistir-a-audiencia-en-caso-por-difamacion-ultimas-noticia/)
+
+
 ### natalia lafourcade (N/A, 05/11/2025 23:31 Lima)
 
 - **"Cancionera Tour": Natalia Lafourcade llegará a Montevideo para presentar su nuevo disco**: [Link](https://www.montevideo.com.uy/Tiempo-libre/-Cancionera-Tour--Natalia-Lafourcade-llegara-a-Montevideo-para-presentar-su-nuevo-disco-uc941961)
@@ -1007,26 +1028,5 @@ Sin noticias relacionadas disponibles.
 - **Paro de transportistas: Estos son los gremios de transporte urbano que paralizarán labores este 4 de noviembre**: [Link](https://rpp.pe/politica/actualidad/paro-de-transportistas-estos-son-los-gremios-de-transporte-urbano-que-paralizaran-labores-este-4-de-noviembre-noticia-1662059)
 - **¿Habrá paro el lunes 3 de noviembre en el Callao? Esto es lo que se sabe**: [Link](https://peru21.pe/lima/habra-paro-el-lunes-3-de-noviembre-en-el-callao-esto-es-lo-que-se-sabe/)
 - **Transportistas anuncian tres paros en Lima y Callao para noviembre 2025: estas son las fechas clave**: [Link](https://www.infobae.com/peru/2025/10/30/transportistas-anuncian-tres-paros-en-lima-y-callao-para-noviembre-2025-estas-son-las-fechas-clave/)
-
-
-### vasco da gama (N/A, 02/11/2025 20:59 Lima)
-
-- **Os pontos positivos e destaques do São Paulo na vitória sobre o Vasco pelo Brasileirão**: [Link](https://www.90min.com/pt-br/pontos-positivos-destaques-sao-paulo-vitoria-vasco-brasileirao-02-11-2025)
-- **Análise: Vasco se afoba ao sair atrás do placar e desperdiça chance de colar no G6 do Brasileiro com derrota para o São Paulo**: [Link](https://oglobo.globo.com/esportes/futebol/vasco/noticia/2025/11/02/analise-vasco-se-afoba-ao-sair-atras-do-placar-e-desperdica-chance-de-colar-no-g6-do-brasileiro-com-derrota-para-o-sao-paulo.ghtml)
-- **Rival: Organizada do São Paulo não vai conseguir comparecer a São Januário**: [Link](https://www.supervasco.com/noticias/rival-organizada-do-sao-paulo-nao-vai-conseguir-comparecer-a-sao-januario-431305.html)
-
-
-### ac milan (N/A, 02/11/2025 15:23 Lima)
-
-- **Allegri ‘curious’ about Leao and Nkunku starting together: “Unexpected solutions”**: [Link](https://sempremilan.com/allegri-curious-leao-nkunku-together-solutions)
-- **Serie A Liveblog including Milan-Roma, Verona-Inter, Fiorentina-Lecce**: [Link](https://football-italia.net/serie-a-liveblog-inc-milan-roma-verona-inter/)
-- **The Ultimate Test at Meazza**: [Link](https://www.ilmessaggero.it/en/the_ultimate_test_at_meazza-9163149.html)
-
-
-### paro 4 de noviembre (N/A, 02/11/2025 15:23 Lima)
-
-- **Paro de transportistas: Estos son los gremios de transporte urbano que paralizarán labores este 4 de noviembre**: [Link](https://rpp.pe/politica/actualidad/paro-de-transportistas-estos-son-los-gremios-de-transporte-urbano-que-paralizaran-labores-este-4-de-noviembre-noticia-1662059)
-- **Transportistas anuncian tres paros en Lima y Callao para noviembre 2025: estas son las fechas clave**: [Link](https://www.infobae.com/peru/2025/10/30/transportistas-anuncian-tres-paros-en-lima-y-callao-para-noviembre-2025-estas-son-las-fechas-clave/)
-- **Por Justo Carbajal: la ley antiextorsión**: [Link](https://caretas.pe/edicion_2736/por-justo-carbajal-la-ley-antiextorsion/)
 
 
