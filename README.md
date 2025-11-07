@@ -1,3 +1,31 @@
+### videos (N/A, 07/11/2025 07:50 Lima)
+
+- **UPS plane crash fatalities increase to 13, 9 still missing**: [Link](https://www.wave3.com/2025/11/06/ups-plane-crash-fatalities-increase-13-9-still-missing/)
+- **Satellite images show the huge impact of the deadly UPS plane crash**: [Link](https://www.yahoo.com/news/articles/satellite-images-show-huge-impact-092301971.html)
+- **Death toll rises to 13 after UPS plane crashed at Louisville airport: Officials**: [Link](https://abcnews.go.com/US/9-people-remain-missing-after-ups-plane-crash/story?id=127255924)
+
+
+### decreto de urgencia austeridad (N/A, 07/11/2025 07:50 Lima)
+
+- **El Gobierno aprueba decreto de urgencia con medidas extraordinarias para la austeridad y eficiencia del gasto público**: [Link](https://rpp.pe/economia/economia/el-gobierno-aprueba-decreto-de-urgencia-con-medidas-extraordinarias-para-la-austeridad-y-eficiencia-del-gasto-publico-noticia-1662780)
+- **Ejecutivo aprobará plan de eficiencia en gastos**: [Link](https://elperuano.pe/noticia/282430-ejecutivo-aprobara-plan-de-eficiencia-en-gastos)
+- **Gobierno aprueba medidas de austeridad para garantizar eficiencia del gasto público**: [Link](https://andina.pe/agencia/noticia-gobierno-aprueba-medidas-austeridad-para-garantizar-eficiencia-del-gasto-publico-1051085.aspx)
+
+
+### bet365 (N/A, 07/11/2025 07:50 Lima)
+
+- **bet365 Betting Offers: £30 in bet365 Free Bets Sign Up Offer November 2025**: [Link](https://bookies.com/uk/news/bet365-betting-offers-free-bets-get-30-new-customers-sign-up-offer-november-2025-nfl-itv-racing-premier-league)
+- **bet365 Bonus Code: LSBONUS for Friday Night Betting on NBA Games**: [Link](https://www.livescore.com/en/news/nba/promos/bet365-bonus-code-lsbonus-for-friday-night-betting-on-nba-games/)
+- **bet365 bonus code NYPBET: Bet $5, get $200 in bonus bets for Knicks vs. Timberwolves**: [Link](https://nypost.com/2025/11/05/betting/bet365-bonus-code-nypbet-bet-5-get-200-in-bonus-bets-for-knicks-vs-timberwolves/)
+
+
+### bet365 champions league (N/A, 07/11/2025 07:50 Lima)
+
+- **Pafos FC 1-0 Villarreal: Post-match review, Stats, Key moments**: [Link](https://www.bwin.com/en/news/post-match-review-pafos-fc-villarreal-champions-league-gameweek-4/)
+- **Where to stream Pafos vs. Villarreal Champions League match free today**: [Link](https://www.masslive.com/tv/2025/11/where-to-stream-pafos-vs-villarreal-champions-league-match-free-today.html)
+- **APTOPIX Cyprus Soccer Champions League**: [Link](https://www.couriernews.com/sports/aptopix-cyprus-soccer-champions-league/image_f1a344eb-5750-5303-96c9-469868cf1f00.html)
+
+
 ### rockstar games gta 6 (N/A, 07/11/2025 03:32 Lima)
 
 - **GTA 6 Is Delayed Again Until November 2026**: [Link](https://www.ign.com/articles/gta-6-is-delayed-again-until-november-2026)
@@ -1000,31 +1028,5 @@ Sin noticias relacionadas disponibles.
 - **Barcelona vs. Elche (2 de Nov., 2025) Resultados en Vivo**: [Link](https://www.espn.com.pe/futbol/partido/_/juegoId/748247)
 - **Betis vs. Mallorca (2 de Nov., 2025) Resultados en Vivo**: [Link](https://www.espn.com.pe/futbol/partido/_/juegoId/748250)
 - **Atlético vs. Sevilla (1 de Nov., 2025) Resultados en Vivo**: [Link](https://www.espn.com.pe/futbol/partido/_/juegoId/748245)
-
-
-### midtjylland vs (N/A, 03/11/2025 15:27 Lima)
-
-Sin noticias relacionadas disponibles.
-
-
-### sunderland afc - everton (N/A, 03/11/2025 15:27 Lima)
-
-- **‘Football can sicken you’: Moyes knows game’s pain from his Sunderland exit**: [Link](https://www.theguardian.com/sport/2025/nov/02/football-can-sicken-you-moyes-knows-games-pain-from-his-sunderland-exit)
-- **Haway The Podcast | MATCHDAY PREVIEW | SAFC v Everton | Will We Extend Our Unbeaten Home Run?**: [Link](https://rokerreport.sbnation.com/haway-the-podcast/112804/haway-the-podcast-matchday-preview-safc-v-everton-will-we-extend-our-unbeaten-home-run)
-- **Le Bris: We still need to grow**: [Link](https://zamin.uz/en/sport/166821-le-bris-we-still-need-to-grow.html)
-
-
-### lazio - cagliari (N/A, 03/11/2025 15:27 Lima)
-
-- **Lazio-Cagliari 0-0 | Annuncio Fabiani sul mercato 🔥 omaggio a Paparelli 😍**: [Link](https://onefootball.com/it/notizie/lazio-cagliari-0-0-annuncio-fabiani-sul-mercato-omaggio-a-paparelli-41898755)
-- **Lazio Cagliari, novità di formazione per i biancocelesti? Ecco cosa filtra - Cagliari News 24**: [Link](https://www.cagliarinews24.com/lazio-cagliari-novita-formazione-sarri/)
-- **Sarri batte il Cagliari spesso e volentieri. Poker e le goleade ai tempi del Napoli**: [Link](https://www.tuttomercatoweb.com/le-statistiche/sarri-batte-il-cagliari-spesso-e-volentieri-poker-e-le-goleade-ai-tempi-del-napoli-2164422)
-
-
-### lazio vs (N/A, 03/11/2025 15:27 Lima)
-
-- **Preview:Lazio vs Cagliari - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/lazio/preview/lazio-vs-cagliari-prediction-team-news-lineups_584888.html)
-- **Henry Hardwicke Seeks Serie A Glory Following Jack Ogalbe’s Victory**: [Link](https://emegypt.net/1030061)
-- **Serie A Liveblog: Lazio-Cagliari**: [Link](https://football-italia.net/serie-a-liveblog-lazio-cagliari-2025-26/)
 
 
