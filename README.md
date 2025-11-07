@@ -1,3 +1,71 @@
+### paris fc (N/A, 07/11/2025 15:24 Lima)
+
+- **Ligue 1 News: Paris FC vs Rennes Confirmed Line-ups**: [Link](https://footballpredictions.net/paris-fc-v-rennes-team-news-confirmed-lineups)
+- **Alimami Gory vs. Stade Rennes – Player props & odds to score a goal on November 7**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/11/07/alimami-gory-soccer-player-props-11-7-2025/87139957007/)
+- **Paris FC-Rennes live commentary**: [Link](https://frenchfootballweekly.com/2025/11/07/paris-fc-rennes-live-commentary/)
+
+
+### paris fc - rennes (N/A, 07/11/2025 15:24 Lima)
+
+- **Paris FC vs Rennes**: [Link](https://www.staderennais.com/matchs/2025-11-07-paris-fc-vs-rennes)
+- **PRONOS PARIS RMC Le pari foot de Lionel Charbonnier du 7 novembre – Ligue 1**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-foot-de-lionel-charbonnier-du-7-novembre-ligue-1_AN-202511070685.html)
+- **EN DIRECT - Paris FC-Rennes : place au «Milliardairico» entre les Arnault et les Pinault**: [Link](https://www.lefigaro.fr/sports/football/live/ligue-1/2025/2568537/paris-fc-rennes)
+
+
+### pisa vs (N/A, 07/11/2025 15:24 Lima)
+
+- **Preview:Pisa vs Cremonese - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/pisa/preview/pisa-vs-cremonese-prediction-team-news-lineups_585147.html)
+- **Filippo Terracciano vs. SC Pisa – Player props & odds to score a goal on November 7**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/11/07/filippo-terracciano-soccer-player-props-11-7-2025/87139992007/)
+- **Pisa vs Cremonese – Official Starting Lineups**: [Link](https://football-italia.net/pisa-vs-cremonese-official-starting-lineups/)
+
+
+### pisa - cremonese (N/A, 07/11/2025 15:24 Lima)
+
+- **Pisa-Cremonese, le formazioni ufficiali: Gilardino con Nzola, Nicola lancia Vazquez**: [Link](https://www.gazzetta.it/calcio/fantanews/07-11-2025/pisa-cremonese-le-formazioni-ufficiali-tutti-i-titolari.shtml)
+- **Bondo: “Con la Juventus giocata un’ottima partita. Dobbiamo battere le nostre rivali”**: [Link](https://www.alfredopedulla.com/bondo-con-la-juventus-giocata-unottima-partita-dobbiamo-battere-le-nostre-rivali/)
+- **Live Pisa - Cremonese - Serie A: Punteggi & Highlights Calcio - 07/11/2025**: [Link](https://www.eurosport.it/calcio/serie-a/2025-2026/live-pisa-cremonese_mtc1598667/live-commentary.shtml)
+
+
+### barça - real madrid (N/A, 07/11/2025 15:24 Lima)
+
+- **Barcelona - Real Madrid en directo | Clásico de Euroliga hoy en vivo**: [Link](https://www.marca.com/baloncesto/euroliga/barcelona-real-madrid/2025/11/07/02_0203_20251107_6216_6210-directo.html)
+- **Tavares, duda para el Clásico por enfermedad**: [Link](https://as.com/baloncesto/euroliga/tavares-duda-para-el-clasico-por-enfermedad-f202511-n/)
+- **Scariolo: “Queremos llevar toda la energía y el entusiasmo que podamos al campo del Barça”**: [Link](https://www.realmadrid.com/es-ES/noticias/baloncesto/primer-equipo/ruedas-de-prensa/rp-scariolo-pre-barcelona-rm-euroliga-j9-06-11-2025)
+
+
+### olympiacos - partizan (N/A, 07/11/2025 15:24 Lima)
+
+- **Bartzokas: «A solid team is always ready, no matter where it plays»**: [Link](https://www.olympiacosbc.gr/en/news-en/latest-news-en/11605-bartzokas-a-solid-team-is-always-ready-no-matter-where-it-plays.html)
+- **Shake Milton predicts Partizan's victory in Piraeus, names surprise picks for F4**: [Link](https://basketnews.com/news-234560-shake-milton-predicts-partizans-victory-in-piraeus-names-surprise-picks-for-f4.html)
+- **Partizan’s Jabari Parker and Vanja Marinkovic miss trip to Greece**: [Link](https://www.eurohoops.net/en/euroleague/1890622/jabari-parker-vanja-marinkovic-out-partizan-at-olympiacos-eruoleague/)
+
+
+### twente (N/A, 07/11/2025 15:24 Lima)
+
+- **Live voetbal | Bekijk de tussenstand bij FC Twente-Telstar en acht KKD-duels**: [Link](https://www.nu.nl/voetbal/6375222/live-voetbal-bekijk-de-tussenstand-bij-fc-twente-telstar-en-acht-kkd-duels.html)
+- **LIVE eredivisie | FC Twente snakt naar een zege: gaat trainer John van den Brom wat veranderen tegen Telstar?**: [Link](https://www.gelderlander.nl/enschede/live-eredivisie-fc-twente-snakt-naar-een-zege-gaat-trainer-john-van-den-brom-wat-veranderen-tegen-telstar~a8aca56b/)
+- **FC Twente beter dan Telstar, maar vooralsnog 0-0 • Telstar mist vlak voor rust enorme kans**: [Link](https://nos.nl/liveblog/2589529-fc-twente-beter-dan-telstar-maar-vooralsnog-0-0-telstar-mist-vlak-voor-rust-enorme-kans)
+
+
+### werder bremen vs (N/A, 07/11/2025 15:24 Lima)
+
+Sin noticias relacionadas disponibles.
+
+
+### cusco (N/A, 07/11/2025 15:24 Lima)
+
+- **Cusco: proponen una administración comunal para gestionar la “Montaña de 7 colores”**: [Link](https://gestion.pe/peru/cusco-proponen-una-administracion-comunal-para-gestionar-la-montana-de-7-colores-noticia/)
+- **Cusco crea comisión técnica para resolver conflicto por la gestión turística de Vinicunca**: [Link](https://diarioviral.pe/peru/peru/cusco-crea-comision-tecnica-para-resolver-conflicto-por-la-gestion-turistica-de-vinicunca-48492)
+- **Montaña de 7 Colores: autoridades de Cusco plantean administración comunal ante conflictos**: [Link](https://www.infobae.com/peru/2025/11/06/montana-de-7-colores-autoridades-de-cusco-plantean-administracion-comunal-ante-conflictos/)
+
+
+### sporting cristal - cienciano (N/A, 07/11/2025 15:24 Lima)
+
+- **Sporting Cristal vs Cienciano EN VIVO HOY: minuto a minuto en el Gallardo por Torneo Clausura de la Liga 1 2025**: [Link](https://www.infobae.com/peru/deportes/2025/11/07/sporting-cristal-vs-cienciano-en-vivo-hoy-l1max-fecha-18-torneo-clausura-liga-1-2025-goles-resumen-resultado/)
+- **Sporting Cristal vs. Cienciano EN VIVO: minuto a minuto vía Liga 1 MAX por internet gratis**: [Link](https://depor.com/futbol-peruano/descentralizado/sporting-cristal-vs-cienciano-en-vivo-hoy-minuto-a-minuto-liga-1-max-gratis-futbol-libre-tv-en-directo-directv-dgo-online-por-internet-y-canales-de-tv-torneo-clausura-noticia/)
+- **¡Todos al Gallardo! Sporting Cristal recibirá a Cienciano por la fecha 18: Hora y canal**: [Link](https://peru21.pe/deportes/sporting-cristal-vs-cienciano-en-vivo-l1-max-hora-canal-goles-video-resultado/)
+
+
 ### novak djokovic (N/A, 07/11/2025 11:27 Lima)
 
 - **Schedule and where to watch Novak Djokovic in the ATP Athens 2025 semifinals against Yannick Hanfmann**: [Link](https://www.puntodebreak.com/en/2025/11/06/schedule-and-where-to-watch-novak-djokovic-in-the-atp-athens-2025-semifinals-against-yannick)
@@ -958,75 +1026,5 @@ Sin noticias relacionadas disponibles.
 - **Peru severs diplomatic relations with Mexico after former prime minister claims asylum**: [Link](https://www.theguardian.com/world/2025/nov/04/peru-severs-diplomatic-relations-mexico-former-prime-minister-claims-asylum)
 - **Peru breaks off diplomatic relations with Mexico after ex-PM flees to Mexican embassy**: [Link](https://www.reuters.com/world/americas/peru-breaks-off-diplomatic-relations-with-mexico-over-ex-prime-ministers-asylum-2025-11-03/)
 - **Peru-Mexico: Lima cuts off diplomatic ties with Mexico over ex-PM's asylum**: [Link](https://www.bbc.com/news/articles/czdrg9zqnljo)
-
-
-### kick (N/A, 03/11/2025 23:28 Lima)
-
-- **Kick introduces drops with new Rust partnership, how to get them**: [Link](https://win.gg/kick-drops-rust-how-to-get/)
-- **From boardroom to bootroom: Community stars take the field for charity**: [Link](https://www.nzherald.co.nz/waikato-news/news/kick-for-a-cause-returns-to-waikato-to-raise-funds-for-salvation-army/7DA7IUB5MVB5TLJ4IM6LEJGDVU/)
-- **21-year-old University of Utah student wins $125K in ESPN kicking contest**: [Link](https://www.ksl.com/article/51399045/21-year-old-university-of-utah-student-wins-125k-in-espn-kicking-contest)
-
-
-### cronograma retiro afp 2025 (N/A, 03/11/2025 23:28 Lima)
-
-- **Consulta Retiro AFP 2025 - LINK: Solicita hoy tu desembolso según el último dígito de tu DNI**: [Link](https://elcomercio.pe/respuestas/tramites/link-del-octavo-retiro-afp-solicita-tu-desembolso-segun-tu-numero-de-dni-cronograma-retiro-de-afp-tdpe-noticia/)
-- **Retiro de AFP 2025: Este grupo de afiliados pueden solicitar en noviembre y conocer la fecha del depósito**: [Link](https://www.infobae.com/peru/2025/10/31/retiro-de-afp-2025-quienes-podran-solicitar-en-noviembre-y-cuando-reciben/)
-- **Peruanos con DNI que terminan en 5, 6 y 7 pueden presentar la solicitud de retiro AFP 2025 en estas fechas de noviembre, según cronograma oficial**: [Link](https://larepublica.pe/economia/2025/11/03/peruanos-con-dni-que-terminan-en-5-6-y-7-pueden-presentar-la-solicitud-de-retiro-afp-2025-en-estas-fechas-de-noviembre-segun-cronograma-oficial-atmp-200217)
-
-
-### claudio pizarro (N/A, 03/11/2025 20:54 Lima)
-
-- **Claudio Pizarro sería papá otra vez tras la separación de Karla Salcedo: así lo anunció Magaly TV La Firme**: [Link](https://www.infobae.com/peru/2025/11/03/claudio-pizarro-seria-papa-otra-vez-tras-la-separacion-de-karla-salcedo-asi-lo-anuncio-magaly-tv-la-firme/)
-- **Claudio Pizarro se habría convertido en padre por cuarta vez, según ‘Magaly TV La Firme’: “A cambiar pañales”**: [Link](https://trome.com/espectaculos/tv/claudio-pizarro-se-habria-convertido-en-padre-por-cuarta-vez-segun-magaly-tv-la-firme-a-cambiar-panales-foto-video-faradula-noticia/)
-- **Exfutbolista Claudio Pizarro se habría convertido en padre por cuarta vez, según 'Magaly TV, la firme'**: [Link](https://larepublica.pe/espectaculos/2025/11/03/exfutbolista-claudio-pizarro-se-habria-convertido-en-padre-por-cuarta-vez-segun-magaly-tv-la-firme-215787)
-
-
-### banfield - lanús (N/A, 03/11/2025 20:54 Lima)
-
-- **La historia del clásico Banfield–Lanús y cómo nació la rivalidad**: [Link](https://www.tycsports.com/liga-profesional-de-futbol/banfield-lanus-historia-clasico-rivalidad-id696373.html)
-- **Rompieron la tradición: El Clásico del Sur se jugará por tercera vez un lunes**: [Link](https://www.elgrafico.com.ar/articulo/primera-division/94642/rompieron-la-tradicion-el-clasico-del-sur-se-jugara-por-tercera-vez-un-lunes)
-- **LPF: se juega el clásico del sur y cinco partidos definen la pelea por los playoffs**: [Link](https://radiorafaela.com.ar/deportes/lpf-se-juega-el-clasico-del-sur-y-cinco-partidos-definen-la-pelea-por-los-playoffs)
-
-
-### belgrano - tigre (N/A, 03/11/2025 20:54 Lima)
-
-- **Qué canal pasa Belgrano vs Tigre hoy: dónde ver el partido gratis de la Liga Profesional**: [Link](https://www.365scores.com/es/news/belgrano-vs-tigre-donde-ver-gratis-vivo/)
-- **EN VIVO: 0-0: Belgrano y Tigre se mantienen sin goles al finalizar el primer tiempo**: [Link](https://www.directvsports.com/futbol/EN-VIVO-0-0-Belgrano-y-Tigre-se-mantienen-sin-goles-al-finalizar-el-primer-tiempo-20251031-0018.html)
-- **Belgrano: sin Santiago Longo, asoma Ulises Sánchez para volver a ser titular**: [Link](https://www.msn.com/es-ar/noticias/cordoba/belgrano-sin-santiago-longo-asoma-ulises-s%C3%A1nchez-para-volver-a-ser-titular/ar-AA1PDCcP)
-
-
-### cesar combina (N/A, 03/11/2025 20:54 Lima)
-
-- **César Combina a punto de ser expulsado de Avanza País: su precandidatura duró menos de dos semanas**: [Link](https://www.infobae.com/peru/2025/11/03/cesar-combina-a-punto-de-ser-expulsado-de-avanza-pais-su-precandidatura-duro-menos-de-dos-semanas/)
-- **Avanza País inicia proceso de expulsión contra precandidato César Combina**: [Link](https://caretas.pe/politica/avanza-pais-inicia-proceso-de-expulsion-contra-precandidato-cesar-combina/)
-- **Avanza País acepta precandidatura de Butters e inicia proceso de expulsión de Combina**: [Link](https://gestion.pe/peru/politica/avanza-pais-acepta-precandidatura-de-butters-e-inicia-proceso-de-expulsion-de-combina-noticia/)
-
-
-### real madrid vs liverpool (N/A, 03/11/2025 20:54 Lima)
-
-- **¿A qué hora juega Kylian Mbappé en Liverpool vs. Real Madrid EN VIVO HOY 4 de noviembre por Champions League 2025 en España, México y USA?**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/a-que-hora-juega-kylian-mbappe-en-liverpool-vs-real-madrid-en-vivo-hoy-4-de-noviembre-por-champions-league-2025-en-espana-mexico-y-usa-nnda-nnrt-noticia/)
-- **Partidazo: Real Madrid y la alineación que prepara para chocar ante Liverpool por la Champions League**: [Link](https://rpp.pe/futbol/champions-league/real-madrid-vs-liverpool-alineacion-merengue-en-anfield-por-fecha-4-fase-liga-de-champions-league-2025-fotos-noticia-1662178)
-- **TNT Sports y MAX EN VIVO — cómo ver partido Real Madrid - Liverpool GRATIS por Fútbol TV y TNT Go Online**: [Link](https://gestion.pe/mix/sports/tnt-sports-y-max-en-vivo-como-ver-partido-real-madrid-liverpool-gratis-por-futbol-tv-y-tnt-go-online-nnda-nnrt-noticia/)
-
-
-### envigado - medellín (N/A, 03/11/2025 20:54 Lima)
-
-- **Medellín derrotó a Envigado y da un paso importante para ser finalista de la Copa Betplay**: [Link](https://www.espn.com.ar/futbol/colombia/nota/_/id/15903077/medellin-derroto-a-envigado-paso-importante-para-ser-finalista-copa-betplay)
-- **Pronósticos Envigado vs. Medellín: cuota 2,07 para creer en el DIM**: [Link](https://www.futbolred.com/apuestas/pronosticos-apuestas-envigado-vs-medellin-02-11-2025-258062)
-- **Alejandro Restrepo: “La serie aún está abierta”**: [Link](https://colombia.as.com/futbol/alejandro-restrepo-la-serie-aun-esta-abierta-f202511-n/)
-
-
-### bolivar vs (N/A, 03/11/2025 20:54 Lima)
-
-- **Bolívar ganó 3-0 a Universitario de Vinto y aún sueña con ganar el título nacional de Bolivia**: [Link](https://libero.pe/futbol-internacional/2025/11/02/bolivar-vs-universitario-de-vinto-en-vivo-gratis-liga-boliviana-via-futbol-canal-lbev-172344)
-- **Cauteruccio se reencuentra con el gol después de un mes y tres semanas**: [Link](https://www.vision360.bo/noticias/2025/11/03/34640-cauteruccio-se-reencuentra-con-el-gol-despues-de-un-mes-y-tres-semanas)
-- **Bolívar vence a FC Universitario, se afianza en la tercera casilla y mete presión a los punteros**: [Link](https://eju.tv/2025/11/bolivar-vence-a-fc-universitario-se-afianza-en-la-tercera-casilla-y-mete-presion-a-los-punteros/)
-
-
-### ministerio de educación (N/A, 03/11/2025 20:54 Lima)
-
-- **Garantizan remuneración de 419,000 docentes**: [Link](https://elperuano.pe/noticia/282138-garantizan-remuneracion-de-419000-docentes)
-- **Minedu transfiere más de S/ 175 millones para incremento salarial de más de 400 mil docentes**: [Link](https://peru21.pe/peru/minedu-transfiere-mas-de-s-175-millones-para-incremento-salarial-de-mas-de-400-mil-docentes/)
-- **Minedu destina más de S/ 175 millones para incremento salarial de 400 mil docentes en todo el país**: [Link](https://www.infobae.com/peru/2025/11/02/minedu-destina-mas-de-s-175-millones-para-incremento-salarial-de-400-mil-docentes-en-todo-el-pais/)
 
 
