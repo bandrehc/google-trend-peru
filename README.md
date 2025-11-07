@@ -1,3 +1,59 @@
+### stranger things (N/A, 06/11/2025 23:28 Lima)
+
+- **'Millie Bobby Brown filed a harassment and bullying claim before they started shooting the last season. There were pages and pages of accusations.' We reveal the latest bombshell claims facing Lily Allen's estranged husband David Harbour**: [Link](https://www.dailymail.co.uk/news/article-15248699/Millie-Bobby-Brown-filed-harassment-bullying-claim-started-shooting-season-pages-pages-accusations-Caroline-Graham-reveals-latest-bombshell-claims-facing-Lily-Allens-estranged-husband-David-Harbour.html)
+- **Millie Bobby Brown Filed Harassment Claim Against David Harbour Before Filming Stranger Things**: [Link](https://people.com/millie-bobby-brown-filed-harassment-claim-against-david-harbour-stranger-things-11841836)
+- **Did David Harbour Skip Stranger Things Press Tour? Here's the Truth**: [Link](https://www.eonline.com/news/1424705/stranger-things-david-harbour-missing-press-tour)
+
+
+### angela aguilar (N/A, 06/11/2025 23:28 Lima)
+
+- **Ángela Aguilar comparte mensaje que la “sana”: "María no necesitó explicar lo que solo Dios entendía"**: [Link](https://www.univision.com/famosos/angela-aguilar-mensaje-sana-fanatica)
+- **Famosos ARV: Ángela Aguilar conmueve con mensaje. Enigma Norteño de vuelta a los escenarios**: [Link](https://www.telemundo.com/shows/al-rojo-vivo/video/famosos-arv-angela-aguilar-conmueve-con-mensaje-enigma-norteno-de-vuelta-los-escenarios-tmvo13054536)
+- **Ángela Aguilar responde así a un fan que la comparó con la Virgen**: [Link](https://mamaslatinas.com/news-entertainment/angela-aguilar-responde-a-fan-que-la-comparo-con-la-virgen)
+
+
+### montreal (N/A, 06/11/2025 23:28 Lima)
+
+- **Chronique Urbania | Connaissez-vous le melon de Montréal ?**: [Link](https://www.957kyk.com/audio/735729/connaissez-vous-le-melon-de-montreal)
+- **«In-I In Motion»: Juliette Binoche, ou le charme de la nouveauté**: [Link](https://www.ledevoir.com/culture/cinema/931500/juliette-binoche-ou-charme-nouveaute)
+- **Cinémania | Juliette Binoche: son lien avec Montréal et ses décisions artistiques**: [Link](https://www.985fm.ca/audio/735766/la-grande-actrice-francaise-juliette-binoche-est-de-passage-a-montreal)
+
+
+### melanie martinez (N/A, 06/11/2025 23:28 Lima)
+
+- **Hija de Christian Domínguez terminó afectada tras careo con su padre en audiencia**: [Link](https://www.infobae.com/peru/2025/11/06/hija-de-christian-dominguez-termino-afectada-tras-careo-con-su-padre-en-audiencia/)
+- **Melanie Martínez responde a demanda de Christian Domínguez: “El que ejerce violencia es él”**: [Link](https://elcomercio.pe/tvmas/farandula/melanie-martinez-responde-a-demanda-de-christian-dominguez-el-que-ejerce-violencia-es-el-ultimas-noticia/)
+- **Alejandra Baigorria cuestionó a Christian Domínguez**: [Link](https://www.americatv.com.pe/noticias/espectaculos/alejandra-baigorria-cuestiona-christian-dominguez-demanda-n512710)
+
+
+### suns - clippers (N/A, 06/11/2025 23:28 Lima)
+
+- **NBA Fantasy: DFS picks & advice for Nov. 6**: [Link](https://www.nba.com/news/nba-fantasy-dfs-picks-advice-for-nov-6)
+- **Harden misses Clippers game against Suns for personal reasons**: [Link](https://thescore.com/nba/news/3390255)
+- **BetMGM Promo Code NYPDM1500: Get a 20% first deposit match up to $1,500 for Clippers vs. Suns**: [Link](https://nypost.com/2025/11/06/betting/betmgm-promo-code-nypdm1500-get-a-20-first-deposit-match-up-to-1500-for-clippers-vs-suns/)
+
+
+### aldo mariategui (N/A, 06/11/2025 23:28 Lima)
+
+- **Caviar y rojo no son insultos | Aldo Mariátegui**: [Link](https://peru21.pe/opinion/caviar-y-rojo-no-son-insultos-aldo-mariategui/)
+- **Aldo Mariátegui criticó presentación de Alfonso López Chau en CADE 2025: "Se ha quedado en el siglo XX"**: [Link](https://willax.pe/politica/aldo-mariategui-critica-alfonso-lopez-chau-cade-2025-willax)
+- **Pleno declaró persona non grata a la presidenta de México por injerencia en asuntos internos del Perú**: [Link](https://comunicaciones.congreso.gob.pe/noticias/pleno-declaro-persona-non-grata-a-la-presidenta-de-mexico-por-injerencia-en-asuntos-internos-del-peru/)
+
+
+### ignacio buse (N/A, 06/11/2025 23:28 Lima)
+
+- **Juan Pablo Varillas cuestionó el comportamiento del público peruano en el Challenger de Lima: “Se pasan de la raya y son irrespetuosos”**: [Link](https://www.infobae.com/peru/deportes/2025/11/05/juan-pablo-varillas-cuestiono-el-comportamiento-del-publico-peruano-en-el-challenger-de-lima-se-pasan-de-la-raya-y-son-irrespetuosos/)
+- **Hoy, Ignacio Buse vs. Reis Da Silva EN VIVO: ¿a qué hora juegan y dónde ver por octavos del Challenger de Lima 3?**: [Link](https://rpp.pe/tenis/mas-tenis/ignacio-buse-vs-reis-da-silva-en-vivo-octavos-final-lima-3-challenger-2025-a-que-hora-juegan-y-donde-ver-por-tv-via-atp-tour-link-gratis-partidos-de-hoy-noticia-1662590)
+- **¡A paso firme! Buse, Bueno y Varillas se meten a los octavos de final del Challenger Lima 3**: [Link](https://elcomercio.pe/deporte-total/polideportivo/a-paso-firme-buse-bueno-y-varillas-avanzan-a-los-octavos-de-final-del-challenger-lima-3-tenis-noticia/)
+
+
+### claro (N/A, 06/11/2025 23:28 Lima)
+
+- **Osiptel refuerza fiscalización y bloquea más de 1.8 millones de celulares vinculados a delitos**: [Link](https://caretas.pe/home_web/home_principal_secundario/osiptel-refuerza-fiscalizacion-y-bloquea-mas-de-1-8-millones-de-celulares-vinculados-a-delitos/)
+- **Claro Perú rechaza la venta de chips en la calle y exige sanciones penales severas para quienes los comercialicen**: [Link](https://trome.com/publirreportaje/claro-peru-rechaza-la-venta-de-chips-en-la-calle-y-exige-sanciones-penales-severas-para-quienes-los-comercialicen-noticia/)
+- **¿Te llegó un mensaje de bloqueo a tu celular? Esto debes hacer según Osiptel**: [Link](https://ancashnoticias.com/2025/11/06/te-llego-un-mensaje-de-bloqueo-a-tu-celular-esto-debes-hacer-segun-osiptel/)
+
+
 ### tudum stranger things (N/A, 06/11/2025 20:55 Lima)
 
 - **How to Stranger Things Day 2025**: [Link](https://www.netflix.com/tudum/features/stranger-things-day-2025)
@@ -970,61 +1026,5 @@ Sin noticias relacionadas disponibles.
 - **Sassuolo-Genoa, dove vedere la partita in tv: gli orari**: [Link](https://sport.sky.it/calcio/serie-a/2025/11/03/sassuolo-genoa-dove-vedere-tv-streaming)
 - **Criscito: "Questa maglia va onorata". Poi il messaggio ai tifosi**: [Link](https://www.tuttosport.com/news/calcio/serie-a/genoa/2025/11/03-144281853/criscito_questa_maglia_va_onorata_poi_il_messaggio_ai_tifosi)
 - **Murgita e Criscito chiedono "una partita da Genoa"**: [Link](https://www.diretta.it/news/calcio-serie-a-genoa-murgita-e-criscito-cercano-una-reazione-cancellare-la-gara-precedente-e-liberare-la-testa/dGsLXBod/)
-
-
-### iga świątek (N/A, 03/11/2025 11:28 Lima)
-
-- **Wyjątkowy gość na hitowym meczu Igi Świątek. Przyleciał prosto z Polski**: [Link](https://przegladsportowy.onet.pl/tenis/wyjatkowy-gosc-na-hitowym-meczu-igi-swiatek-przylecial-prosto-z-polski/vn403qn)
-- **Świątek wyszła na kort i nadeszło potwierdzenie. Jej ojciec wkroczył do akcji**: [Link](https://www.msn.com/pl-pl/wiadomosci/other/%C5%9Bwi%C4%85tek-wysz%C5%82a-na-kort-i-nadesz%C5%82o-potwierdzenie-jej-ojciec-wkroczy%C5%82-do-akcji/ar-AA1PIQDC)
-- **Świątek i Sabalenka w elicie tenisa. 12 lat temu zrobiła to Radwańska**: [Link](https://polskieradio24.pl/artykul/3602353,swiatek-i-sabalenka-w-elicie-tenisa-12-lat-temu-zrobila-to-radwanska)
-
-
-### rania de jordania (N/A, 03/11/2025 11:28 Lima)
-
-- **Egipto se prepara para la histórica inauguración del Gran Museo de la civilización faraónica**: [Link](https://www.france24.com/es/%C3%A1frica/20251101-egipto-se-prepara-para-la-hist%C3%B3rica-inauguraci%C3%B3n-del-gran-museo-de-la-civilizaci%C3%B3n-fara%C3%B3nica)
-- **Gran Museo Egipcio, la gigantesca obra que exhibe los secretos de Tutankamón y que se inaugura tras décadas de trabajos**: [Link](https://www.bbc.com/mundo/articles/c629n28z490o)
-- **El despertar de los faraones: drones, esfinges y la inauguración histórica del Gran Museo Egipcio**: [Link](https://cnnespanol.cnn.com/2025/11/03/mundo/video/guiza-gran-museo-egipcio-faraones-egipto-orix)
-
-
-### rpp (N/A, 03/11/2025 11:28 Lima)
-
-- **VERSABANK ANNOUNCES LARGEST US RPP PARTNER TO DATE; SURPASSES US RPP TARGET WITH US$310 MILLION FUNDED IN FISCAL 2025**: [Link](https://finance.yahoo.com/news/versabank-announces-largest-us-rpp-120000927.html)
-- **VersaBank’s US Receivable Push Exceeds Expectations In 2025**: [Link](https://finimize.com/content/versabanks-us-receivable-push-exceeds-expectations-in-2025)
-- **VERSABANK ANNOUNCES LARGEST US RPP PARTNER TO DATE; SURPASSES US RPP TARGET WITH US$310 MILLION FUNDED IN FISCAL 2025**: [Link](https://www.theglobeandmail.com/investing/markets/stocks/VBNK-T/pressreleases/35860361/versabank-announces-largest-us-rpp-partner-to-date-surpasses-us-rpp-target-with-us310-million-funded-in-fiscal-2025/)
-
-
-### mundial sub 17 (N/A, 03/11/2025 11:28 Lima)
-
-- **Comienza el Mundial Sub-17 en Qatar: quiénes participan, formato, calendario de los latinoamericanos y más**: [Link](https://cnnespanol.cnn.com/2025/11/02/deportes/mundial-sub-17-formato-calendario-orix)
-- **Argentina vs. Bélgica en vivo, Mundial Sub 17: transmisión del partido de hoy**: [Link](https://elcomercio.pe/deporte-total/argentina/argentina-vs-belgica-sub-17-en-vivo-gratis-via-tv-publica-directv-pelota-libre-tv-a-que-hora-juegan-canal-que-pasa-y-donde-ver-por-mundial-sub-17-video-noticia/)
-- **Argentina iguala sin goles ante Bélgica en su estreno en el Mundial Sub 17**: [Link](https://www.infobae.com/deportes/2025/11/03/argentina-hace-su-estreno-en-el-mundial-sub-17-ante-belgica/)
-
-
-### sky (N/A, 03/11/2025 11:28 Lima)
-
-- **Sky Sports Rewards with Sky VIP: Tickets, subscription to The Athletic, exclusive sports kit offers and more for customers**: [Link](https://www.skysports.com/more-sports/other-sports/news/30965/13447452/sky-sports-rewards-with-sky-vip-tickets-subscription-to-the-athletic-exclusive-sports-kit-offers-and-more-for-customers)
-- **Police investigating whether train attack suspect linked to stabbing of 14-year-old on Friday**: [Link](https://www.bbc.com/news/live/c93dwq33vkwt)
-- **‘Heroic’ actions of train employee and driver saved many lives in England stabbing attack, police say**: [Link](https://www.cnn.com/2025/11/03/uk/england-train-stabbing-driver-intl)
-
-
-### solicitar retiro afp (N/A, 03/11/2025 07:51 Lima)
-
-- **Retiro de AFP 2025: ¿Qué afiliados pueden solicitar en noviembre y cuándo reciben?**: [Link](https://www.infobae.com/peru/2025/10/31/retiro-de-afp-2025-quienes-podran-solicitar-en-noviembre-y-cuando-reciben/)
-- **Octavo Retiro AFP 2025: Ingresa al LINK y solicita hoy tu desembolso según el último dígito de tu DNI**: [Link](https://elcomercio.pe/respuestas/tramites/link-del-octavo-retiro-afp-solicita-tu-desembolso-segun-tu-numero-de-dni-cronograma-retiro-de-afp-tdpe-noticia/)
-- **Octavo retiro de AFP 2025: cuándo y cómo registrar solicitud hoy si tu DNI termina en 4, según fecha del cronograma**: [Link](https://gestion.pe/mix/mi-bolsillo/octavo-retiro-de-afp-2025-cuando-y-como-registrar-solicitud-hoy-si-tu-dni-termina-en-4-segun-fecha-del-cronograma-nnda-nnse-noticia/)
-
-
-### iphone 13 (N/A, 03/11/2025 07:51 Lima)
-
-- **Bengaluru man's iPhone mishap turns into 'real-life horror story' over eSIM issues**: [Link](https://www.indiatoday.in/trending-news/story/bengaluru-man-iphone-mishap-turns-into-real-life-horror-story-over-esim-issues-2812490-2025-11-03)
-- **The eSIM Trap: How a Shattered Screen Turned a Smart Dad Helpless.**: [Link](https://www.indiaherald.com/Breaking/Read/994859074/The-eSIM-Trap-How-a-Shattered-Screen-Turned-a-Smart-Dad-Helpless)
-- **Bengaluru Man Shares eSIM Struggle After iPhone Screen Breaks: ‘No Calls, No OTPs, No WhatsApp, Nothing’**: [Link](https://www.news18.com/viral/bengaluru-man-iphone-esim-struggle-after-screen-breaks-aa-ws-l-9677176.html)
-
-
-### fonavi reintegro (N/A, 03/11/2025 03:34 Lima)
-
-- **FONAVI 2025: Consulta con tu DNI si tienes dinero pendiente por cobrar**: [Link](https://elcomercio.pe/respuestas/tramites/aun-no-cobras-el-fonavi-verifica-con-tu-dni-los-pagos-pendientes-de-la-lista-22-y-mas-tdpe-noticia/)
-- **Fonavistas del Perú pueden cobrar la devolución de aportes de estos reintegros y listas aprobadas en 2025, vía Banco de la Nación**: [Link](https://larepublica.pe/economia/2025/10/29/fonavistas-del-peru-pueden-cobrar-la-devolucion-de-aportes-de-estos-reintegros-y-listas-aprobadas-en-2025-via-banco-de-la-nacion-atmp-2346129)
-- **💵 Destacó las cuatro reglas fiscales que sostienen la credibilidad.**: [Link](https://www.facebook.com/diario.expreso/posts/-destac%C3%B3-las-cuatro-reglas-fiscales-que-sostienen-la-credibilidad/1248508743973401/)
 
 
