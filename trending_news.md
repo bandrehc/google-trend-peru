@@ -1,3 +1,73 @@
+### tudum stranger things (N/A, 06/11/2025 20:55 Lima)
+
+- **How to Stranger Things Day 2025**: [Link](https://www.netflix.com/tudum/features/stranger-things-day-2025)
+- **Stranger Things 5 Trailer: The Epic Final Battle Begins**: [Link](https://www.netflix.com/tudum/articles/stranger-things-season-5-trailer)
+- **Stranger Things creators defend season 5's three-part split, and you'll be fine with it too once you hear their plans for Volume One's "mega-movie"**: [Link](https://www.gamesradar.com/entertainment/sci-fi-shows/stranger-things-creators-defend-season-5s-three-part-split-and-youll-be-fine-with-it-too-once-you-hear-their-plans-for-volume-ones-mega-movie/)
+
+
+### kick (N/A, 06/11/2025 20:55 Lima)
+
+- **How to connect your Kick account to Restream for multistreaming**: [Link](https://win.gg/how-to-connect-kick-account-restream/)
+- **Streamers Embrace Multistreaming on Kick Using Restream**: [Link](https://news.ssbcrack.com/streamers-embrace-multistreaming-on-kick-using-restream/)
+- **Hartford kicks off city-wide season of holiday events**: [Link](https://www.wfsb.com/2025/11/06/hartford-kick-off-city-wide-season-holiday-events/)
+
+
+### fortaleza vs (N/A, 06/11/2025 20:55 Lima)
+
+- **Fortaleza vs Grêmio Porto Alegre pronostico y comparación de cuotas 09.11.2025**: [Link](https://www.livetipsportal.com/es/pronosticos-apuestas-deportivas/fortaleza-vs-gremio-porto-alegre-serie-a-10963379/)
+- **Ceará rescató empate en el final ante Fortaleza por el Brasileirao**: [Link](https://ovacion.pe/noticias/futbol-internacional/ceara-rescato-empate-final-ante-fortaleza-brasileirao)
+- **Ceará - CE vs Fortaleza pronostico y comparación de cuotas 06.11.2025**: [Link](https://www.livetipsportal.com/es/pronosticos-apuestas-deportivas/ceara-ce-vs-fortaleza-serie-a-10963349/)
+
+
+### neymar (N/A, 06/11/2025 20:55 Lima)
+
+- **En Santos confían que siga Neymar: "Su proyecto es el Mundial 2026"**: [Link](https://www.espn.com.ar/futbol/brasil/nota/_/id/15912829/neymar-seguir-santos-proyecto-mundial-2026)
+- **"Neymar o Lewandowski" estarían en la Noche Blanquiazul 2026 de Alianza Lima**: [Link](https://peru21.pe/deportes/alianza-lima-neymar-o-lewandowski-estarian-en-la-noche-blanquiazul-2026/)
+- **¿Neymar en Perú? El plan para que Inter Miami y el astro brasileño jueguen la Noche Blanquiazul 2026**: [Link](https://depor.com/futbol-peruano/descentralizado/alianza-lima-vs-inter-de-miami-neymar-jr-podria-ser-otra-de-las-estrellas-en-llegar-a-lima-para-la-noche-blanquiazul-2026-noticia/)
+
+
+### santos vs (N/A, 06/11/2025 20:55 Lima)
+
+- **Pronóstico Palmeiras - Santos. Brasileirao Serie A | 07/11/2025**: [Link](https://gainblers.com/pe/pronosticos/futbol/brasil/brasileirao-serie-a/pronostico-palmeiras-santos-07-11-2025/)
+- **Where to watch Palmeiras vs Santos live in the USA: Brasileirao 2025**: [Link](https://bolavip.com/en/soccer/where-to-watch-palmeiras-vs-santos-live-in-the-usa-brasileirao-2025)
+- **Palmeiras vs Santos FC Prediction: Victory For The Greens**: [Link](https://www.telecomasia.net/sports-betting/tips/football/brazil-serie-a/palmeiras-vs-santos-fc-prediction-for-the-match-on-november-07-2025/)
+
+
+### palmeiras - santos (N/A, 06/11/2025 20:55 Lima)
+
+- **Palmeiras x Santos ao vivo 06/11: onde assistir, horário, escalações – Todo Canal**: [Link](https://portaln10.com.br/todocanal/televisao/palmeiras-x-santos-ao-vivo-06-11-onde-assistir-horario-escalacoes-e-palpites/)
+- **Impedimento anula gol de Arão enquanto López desperdiça na área no clássico Palmeiras x Santos pelo Brasil ...**: [Link](https://www.mixvale.com.br/2025/11/06/impedimento-anula-gol-de-arao-enquanto-lopez-desperdica-na-area-no-classico-palmeiras-x-santos-pelo-brasileirao/)
+- **Allianz Parque chega perto dos 17 milhões de espectadores em 11 anos**: [Link](https://www.terra.com.br/esportes/palmeiras/allianz-parque-chega-perto-dos-17-milhoes-de-espectadores-em-11-anos,9740acdfa7ab6cb3c033e6998692ebc0muw7doal.html)
+
+
+### tudum (N/A, 06/11/2025 20:55 Lima)
+
+- **Netflix Tudum Unveils Fresh Hits: Ransom Canyon, Into the Deep Blue, and Stranger Things Animated**: [Link](https://azat.tv/en/netflix-tudum-new-releases-ransom-canyon-into-the-deep-blue-stranger-things-animated/)
+- **Netflix Tudum Reveals Major Casting and Series Announcements for 2026**: [Link](https://news.ssbcrack.com/netflix-tudum-reveals-major-casting-and-series-announcements-for-2026/)
+- **‘Ransom Canyon’ Season 2 Adds ‘Shameless’ Alum Steve Howey**: [Link](https://variety.com/2025/tv/news/ransom-canyon-season-2-steve-howey-1236568533/)
+
+
+### boyacá chicó - américa (N/A, 06/11/2025 20:55 Lima)
+
+- **Boyacá Chicó vs América: El dato que mantiene viva la ilusión de los Escarlatas en la Liga BetPlay**: [Link](https://www.espn.com.ar/futbol/colombia/nota/_/id/15921868/el-dato-que-mantiene-viva-la-ilusion-del-america-de-clasificar-cuadrangulares)
+- **Los goles con los que América se metió a los ocho mejores de Liga II**: [Link](https://www.futbolred.com/futbol-colombiano/liga-betplay/goles-de-chico-vs-america-de-cali-el-escarlata-lucha-por-clasificar-a-cuadrangulares-de-liga-2-2025-258255)
+- **Con Josen Escobar enfermo y Luis Paz descartado, América jugaría con esta formación ante Boyacá Chicó**: [Link](https://www.elpais.com.co/deportes/con-josen-escobar-enfermo-y-luis-paz-descartado-america-jugaria-con-esta-formacion-ante-boyaca-chico-0640.html)
+
+
+### gonzalo bueno (N/A, 06/11/2025 20:55 Lima)
+
+- **Juan Pablo Varillas cuestionó el comportamiento del público peruano en el Challenger de Lima: “Se pasan de la raya y son irrespetuosos”**: [Link](https://www.infobae.com/peru/deportes/2025/11/05/juan-pablo-varillas-cuestiono-el-comportamiento-del-publico-peruano-en-el-challenger-de-lima-se-pasan-de-la-raya-y-son-irrespetuosos/)
+- **Hoy, Ignacio Buse vs. Reis Da Silva EN VIVO: ¿a qué hora juegan y dónde ver por octavos del Challenger de Lima 3?**: [Link](https://rpp.pe/tenis/mas-tenis/ignacio-buse-vs-reis-da-silva-en-vivo-octavos-final-lima-3-challenger-2025-a-que-hora-juegan-y-donde-ver-por-tv-via-atp-tour-link-gratis-partidos-de-hoy-noticia-1662590)
+- **¡A paso firme! Buse, Bueno y Varillas se meten a los octavos de final del Challenger Lima 3**: [Link](https://elcomercio.pe/deporte-total/polideportivo/a-paso-firme-buse-bueno-y-varillas-avanzan-a-los-octavos-de-final-del-challenger-lima-3-tenis-noticia/)
+
+
+### ceara vs (N/A, 06/11/2025 20:55 Lima)
+
+- **Ceará snatch late draw vs Fortaleza, heap pressure on rivals**: [Link](https://ca.sports.yahoo.com/news/cear-grab-draw-against-fortaleza-010700821.html)
+- **Ceará vs Fortaleza: Match Time and Where to Watch the Brasileirão Game**: [Link](https://emegypt.net/1032741)
+- **Bitesize Prediction: Ceara vs Fortaleza – 06/11/25**: [Link](https://www.soccernews.com/bitesize-prediction-ceara-vs-fortaleza-06-11-25/391867/)
+
+
 ### viktoria plzeň - fenerbahçe (N/A, 06/11/2025 15:27 Lima)
 
 - **Fenerbahce aims for crucial away victory against Viktoria Plzen in UEFA Europa League**: [Link](https://www.turkiyetoday.com/sports/fenerbahce-aims-for-crucial-away-victory-against-viktoria-plzen-in-uefa-europa-league-3209522)
@@ -956,73 +1026,5 @@ Sin noticias relacionadas disponibles.
 - **FONAVI 2025: Consulta con tu DNI si tienes dinero pendiente por cobrar**: [Link](https://elcomercio.pe/respuestas/tramites/aun-no-cobras-el-fonavi-verifica-con-tu-dni-los-pagos-pendientes-de-la-lista-22-y-mas-tdpe-noticia/)
 - **Fonavistas del Perú pueden cobrar la devolución de aportes de estos reintegros y listas aprobadas en 2025, vía Banco de la Nación**: [Link](https://larepublica.pe/economia/2025/10/29/fonavistas-del-peru-pueden-cobrar-la-devolucion-de-aportes-de-estos-reintegros-y-listas-aprobadas-en-2025-via-banco-de-la-nacion-atmp-2346129)
 - **💵 Destacó las cuatro reglas fiscales que sostienen la credibilidad.**: [Link](https://www.facebook.com/diario.expreso/posts/-destac%C3%B3-las-cuatro-reglas-fiscales-que-sostienen-la-credibilidad/1248508743973401/)
-
-
-### 3 de noviembre es feriado nacional (N/A, 03/11/2025 03:34 Lima)
-
-- **¿Habrá feriado largo el 3 y 4 de noviembre? Esto dice el decreto publicado en El Peruano**: [Link](https://www.infobae.com/peru/2025/11/01/habra-feriado-largo-el-3-y-4-de-noviembre-esto-dice-el-decreto-publicado-en-el-peruano/)
-- **¡Atención padres y alumnos! Minedu aclara si habrá o no clases este lunes 3 de noviembre | tdpe | RESPUESTAS**: [Link](https://elcomercio.pe/respuestas/que/atencion-padres-y-alumnos-minedu-aclara-si-habra-o-no-clases-este-lunes-3-de-noviembre-tdpe-noticia/)
-- **¿Será día no laborable o feriado este lunes 3 de noviembre?**: [Link](https://latinanoticias.pe/te-ayudo/sera-dia-no-laborable-o-feriado-este-lunes-3-de-noviembre_20251101/)
-
-
-### avianca (N/A, 03/11/2025 03:34 Lima)
-
-- **Thousands of Travelers Impacted Across Colombia and Mexico as Avianca, AeroMéxico, Volaris, and United Cancel 104 Flights with Multiple Delays, Affecting Medellín, San Andrés, Montería, Cali, Mexico City and Beyond**: [Link](https://www.travelandtourworld.com/news/article/thousands-of-travelers-impacted-across-colombia-and-mexico-as-avianca-aeromexico-volaris-and-united-cancel-104-flights-with-multiple-delays-affecting-medellin-san-andres-monteria-cali-mexico-c/)
-- **Cartagena air travel**: [Link](https://www.travelandtourworld.com/news/article/tag/cartagena-air-travel/)
-- **Passengers across Colombia Experiences Travel Disruption as Airports in Bogotá, Cali, Pasto, Cartagena, Bucaramanga and more Faces over a Dozen Flight Cancellations with Multiple Delays by Avianca, What You Need to Know**: [Link](https://www.travelandtourworld.com/news/article/passengers-across-colombia-experiences-travel-disruption-as-airports-in-bogota-cali-pasto-cartagena-bucaramanga-and-more-faces-over-a-dozen-flight-cancellations-with-multiple-delays-by-avianca-what-yo/)
-
-
-### huawei (N/A, 03/11/2025 03:34 Lima)
-
-Sin noticias relacionadas disponibles.
-
-
-### jetsmart (N/A, 03/11/2025 03:34 Lima)
-
-- **Paro en JetSMART: denuncian despidos y reemplazo de tripulación argentina | La low cost enfrenta un nuevo conflicto**: [Link](https://www.pagina12.com.ar/870471-paro-en-jetsmart-denuncian-despidos-y-reemplazo-de-tripulaci)
-- **El gremio de los trabajadores de JetSmart amenaza con un paro de 24 horas, mientras la empresa niega los cargos y dice estar abierta al diálogo**: [Link](https://www.aviacionnews.com/2025/11/gremiojetsmart/)
-- **Paro en Jetsmart por despidos y contrato temporal de extranjeros**: [Link](https://www.reportur.com/argentina/2025/11/02/paro-en-jetsmart-por-despidos-y-contrato-temporal-de-extranjeros/)
-
-
-### iphone 16 pro (N/A, 03/11/2025 03:34 Lima)
-
-- **​5 Phones That Can Beat iPhone 16 Pro In 2025​**: [Link](https://www.timesnownews.com/technology-science/5-phones-that-can-beat-iphone-16-pro-in-2025-photo-gallery-153081215)
-- **5 Android phones just as powerful as the iPhone 17 Pro Max in 2025**: [Link](https://www.vanguardngr.com/2025/10/5-android-phones-just-as-powerful-as-the-iphone-17-pro-max-in-2025/)
-- **Top 5 Smartphones That Will Beat the iPhone 16 Pro in 2025**: [Link](https://www.timesbull.com/gadgets/top-5-smartphones-that-will-beat-the-iphone-16-pro-in-2025-640264.html)
-
-
-### iphone 16 pro max (N/A, 03/11/2025 03:34 Lima)
-
-- **Amazon now offering new lows on 1TB iPhone 16 Pro at $600 off + more configs (Renewed Premium)**: [Link](https://9to5toys.com/2025/10/31/amazon-best-price-iphone-16-pro/)
-- **Exact times to buy new tech each year & you'll save £100s with lowest iPhone, Ring doorbell, Fire Stick and TV prices**: [Link](https://www.thesun.co.uk/tech/37155221/exact-time-buy-tech-iphone-tv-sky-discounts/)
-- **iPhone 17 price drops like never before; iPhone 16 price drops sharply**: [Link](https://vietbao.vn/en/iphone-17-rot-gia-chua-tung-co-gia-iphone-16-giam-sau-571586.html)
-
-
-### black friday (N/A, 03/11/2025 03:34 Lima)
-
-- **Amazon early Black Friday deals are here — shop Lenovo, Apple and more to kick off the biggest sale of the year**: [Link](https://www.yahoo.com/lifestyle/deals/article/amazon-early-black-friday-deals-are-here--shop-lenovo-apple-and-more-to-kick-off-the-biggest-sale-of-the-year-171349140.html)
-- **Retailers Like Amazon, Walmart, and Williams Sonoma Just Dropped Major Deals on Holiday Must-Haves**: [Link](https://www.allrecipes.com/early-black-friday-deals-2025-11838450)
-- **7 Black Friday Sales That Have Already Started (Yes, You Read That Right)—From Kate Spade, Amazon, and More**: [Link](https://www.realsimple.com/early-black-friday-deals-11-1-2025-11838421)
-
-
-### marathon (N/A, 03/11/2025 03:34 Lima)
-
-- **The NYC Marathon in Photos and Videos**: [Link](https://www.nytimes.com/2025/11/02/nyregion/nyc-marathon-photos-videos.html)
-- **Hellen Obiri: Millions She Pocketed After Smashing 22-Year-Old Record at New York City Marathon**: [Link](https://www.pulsesports.co.ke/athletics/story/hellen-obiri-millions-she-pocketed-after-smashing-22-year-old-record-at-new-york-city-marathon-2025110304032281803)
-- **Obiri sets women's NYC Marathon course record, Kipruto wins men's race by a fraction of a second**: [Link](https://www.msn.com/en-gb/sport/cycling/obiri-sets-women-s-nyc-marathon-course-record-kipruto-wins-men-s-race-by-a-fraction-of-a-second/ar-AA1PFA1V)
-
-
-### curacao (N/A, 03/11/2025 03:34 Lima)
-
-- **11 Places in the Caribbean to Visit in November, from South Eleuthera to Curaçao**: [Link](https://www.caribjournal.com/2025/10/31/places-in-the-caribbean-to-visit-this-november/)
-- **11 Places in the Caribbean to Visit in November, from South Eleuthera to Curaçao**: [Link](https://www.caribjournal.com/2025/10/31/places-in-the-caribbean-to-visit-this-november/3/)
-- **11 Places in the Caribbean to Visit in November, from South Eleuthera to Curaçao**: [Link](https://www.caribjournal.com/2025/10/31/places-in-the-caribbean-to-visit-this-november/11/)
-
-
-### pedro aquino (N/A, 02/11/2025 23:32 Lima)
-
-- **Pedro Aquino fuera de lista en Alianza Lima y no por lesión: "Es un tema..."**: [Link](https://libero.pe/futbol-peruano/alianza-lima/2025/10/30/pedro-aquino-fuera-de-lista-en-alianza-lima-lesion-es-tema-1134720)
-- **Explotó Matute: empate agónico de Alianza vs. Melgar en el úlitmo minuto del partido por Liga 1 | VIDEO**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/gol-de-renzo-garces-hoy-con-alianza-lima-vs-melgar-por-el-torneo-clausura-de-la-liga-1-video-noticia/)
-- **Orzán se molestó por penal a Guerrero y lamentó empate**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/orzan-se-molesto-penal-cobrado-guerrero-y-lamento-empate-n451556)
 
 
