@@ -1,3 +1,58 @@
+### novak djokovic (N/A, 07/11/2025 11:27 Lima)
+
+- **Schedule and where to watch Novak Djokovic in the ATP Athens 2025 semifinals against Yannick Hanfmann**: [Link](https://www.puntodebreak.com/en/2025/11/06/schedule-and-where-to-watch-novak-djokovic-in-the-atp-athens-2025-semifinals-against-yannick)
+- **ATP Athens Sebastian Korda vs Lorenzo Musetti 🧠 Form & Context Sebastian Korda (USA, #52, 193 cm, righty) 2025: 24–17 | Indoors 7–4, Hard 12–8, Clay 5–5 Athens: R16 d. Dzumhur (4–6, 6–3, 6–3), QF d. Kecmanovic (6–3, 6–2) after 1R d. Popyrin. Notes:**: [Link](https://x.com/Probahis/status/1986586881945903447)
+- **Lorenzo Musetti vs Sebastian Korda Preview: Head-to-Head, Prediction for Hellenic Championships 2025, Athens**: [Link](https://www.profootballnetwork.com/tennis/lorenzo-musetti-sebastian-korda-preview-prediction-hellenic-championships/)
+
+
+### mundial sub 17 (N/A, 07/11/2025 11:27 Lima)
+
+- **EN VIVO: Brasil gana 1 a 0 en el marcador parcial frente a Indonesia en Field 7**: [Link](https://www.directvsports.com/futbol/EN-VIVO-Brasil-gana-1-a-0-en-el-marcador-parcial-frente-a-Indonesia-en-Field-7-20251107-0032.html)
+- **Los aficionados comienzan a llegar antes del partido de la selección nacional sub-17 de Indonesia contra Brasil, las enfermeras indonesias en Qatar confían en ganar 2-1**: [Link](https://citadirecta.com.ar/noticias/los-aficionados-comienzan-a-llegar-antes-del-partido-de-la-seleccion-nacional-sub-17-de-indonesia-contra-brasil-las-enfermeras-indonesias-en-qatar-confian-en-ganar-2-1/74090/)
+- **Panamá Sub-17 cierra su preparación con empate ante Indonesia**: [Link](https://onefootball.com/pt-br/noticias/panama-sub-17-cierra-su-preparacion-con-empate-ante-indonesia-41885715)
+
+
+### selección de fútbol sub-17 de egipto - venezuela sub-17 (N/A, 07/11/2025 11:27 Lima)
+
+- **Ver EN VIVO Egipto vs. Venezuela en el Mundial Sub 17: dónde seguirlo por TV y ONLINE**: [Link](https://www.tycsports.com/futbol-internacional/egipto-vs-venezuela-en-el-mundial-sub-17-en-vivo-donde-ver-por-tv-y-online-id696603.html)
+- **Todo sobre el debut de Sudamérica en el Mundial Sub17**: [Link](https://www.conmebol.com/noticias/todo-sobre-el-debut-de-sudamerica-en-el-mundial-sub17/)
+- **Yerwin Sulbarán se roba los focos en Doha**: [Link](https://as.com/futbol/internacional/yerwin-sulbaran-se-roba-los-focos-en-doha-f202511-n/)
+
+
+### agua (N/A, 07/11/2025 11:27 Lima)
+
+- **Teherán se enfrenta al racionamiento de agua y a evacuaciones si no llueve pronto**: [Link](https://www.infobae.com/america/mundo/2025/11/07/teheran-se-enfrenta-al-racionamiento-de-agua-y-a-evacuaciones-si-no-llueve-pronto/)
+- **Catástrofe hídrica en Irán: advierten que la evacuación de Teherán puede ser inminente**: [Link](https://www.newsweek.com.ar/el-mundo/catastrofe-hidrica-en-iran-advierten-que-la-evacuacion-de-teheran-puede-ser-inminente/)
+- **Irán se enfrenta a la peor sequía en casi seis décadas y con las presas al límite**: [Link](https://www.swissinfo.ch/spa/ir%C3%A1n-se-enfrenta-a-la-peor-sequ%C3%ADa-en-casi-seis-d%C3%A9cadas-y-con-las-presas-al-l%C3%ADmite/90270987)
+
+
+### blast slam iv (N/A, 07/11/2025 11:27 Lima)
+
+- **MOUZ and HEROIC Advanced to the BLAST Slam IV Semifinals**: [Link](https://blix.gg/news/dota-2/mouz-and-heroic-advanced-to-the-blast-slam-iv-semifinals/)
+- **TorontoTokyo At BLAST Slam 4: "It’s Always Fun To Play Against Your Old Teammates"**: [Link](https://www.hotspawn.com/dota2/news/torontotokyo-at-blast-slam-4)
+
+
+### afp (N/A, 07/11/2025 11:27 Lima)
+
+- **Solicitud de retiro AFP: Esto pasa si te equivocaste al registrar el número de tu cuenta bancaria**: [Link](https://www.infobae.com/peru/2025/11/06/retiro-de-afp-lo-que-pasa-si-te-equivocaste-al-poner-tu-cuenta-bancaria-para-el-deposito/)
+- **Link, Retiro AFP 2025: Inicia tu trámite de desembolso hoy de hasta 4 UIT o 21 400 soles, según DNI**: [Link](https://elcomercio.pe/respuestas/tramites/ingresa-a-links-del-retiro-afp-hoy-asi-puedes-enviar-tu-solicitud-de-desembolso-de-hasta-4-uit-si-tu-dni-termina-en-5-6-o-7-paso-a-paso-y-cronograma-completo-tdpe-noticia/)
+- **¿Te toca retirar S/ 21,400 de tu AFP 2025? Revisa este enlace y averigua si hoy puedes tramitar la solicitud**: [Link](https://elperuano.pe/noticia/282383-te-toca-retirar-s-21400-de-tu-afp-2025-revisa-este-enlace-y-averigua-si-hoy-puedes-tramitar-la-solicitud)
+
+
+### acdc (N/A, 07/11/2025 11:27 Lima)
+
+- **AC/DC coming to Camp Randall, Tickets on sale Nov. 7**: [Link](https://uwbadgers.com/news/2025/11/3/general-news-ac-dc-coming-to-camp-randall-tickets-on-sale-nov-7)
+- **What do tickets cost to see AC/DC on their 2026 ‘Power Up Tour’?**: [Link](https://nypost.com/2025/11/06/ticket-sales/acdc-power-up-tour-2026-where-to-buy-tickets-best-prices/)
+- **AC/DC is coming to Bank of America Stadium in Charlotte: Here’s when**: [Link](https://www.wbtv.com/2025/11/04/acdc-is-coming-bank-america-stadium-charlotte-heres-when/)
+
+
+### erick noriega (N/A, 07/11/2025 11:27 Lima)
+
+- **Hinchas de Gremio aceptaron que se cometió un gran error con Erick Noriega: “Raro momento”**: [Link](https://bolavip.com/pe/peruanos-en-el-exterior/hinchas-de-gremio-aceptaron-que-se-cometio-un-gran-error-con-erick-noriega-raro-momento)
+- **Erick Noriega divide opiniones en Brasil: elogios y críticas tras la derrota de Gremio vs. Cruzeiro**: [Link](https://depor.com/futbol-peruano/peruanos-en-el-mundo/erick-noriega-gremio-vs-cruzeiro-opiniones-criticas-que-dicen-en-brasil-y-que-dejo-su-rendimiento-en-ultima-derrota-video-noticia/)
+- **Gremio, con Erick Noriega, sumó su segunda derrota consecutiva en Brasil**: [Link](https://www.futbolperuano.com/peruanos-en-el-exterior/noticias/gremio-con-erick-noriega-sumo-su-segunda-derrota-consecutiva-en-el-brasileirao-548237)
+
+
 ### videos (N/A, 07/11/2025 07:50 Lima)
 
 - **UPS plane crash fatalities increase to 13, 9 still missing**: [Link](https://www.wave3.com/2025/11/06/ups-plane-crash-fatalities-increase-13-9-still-missing/)
@@ -973,60 +1028,5 @@ Sin noticias relacionadas disponibles.
 - **Garantizan remuneración de 419,000 docentes**: [Link](https://elperuano.pe/noticia/282138-garantizan-remuneracion-de-419000-docentes)
 - **Minedu transfiere más de S/ 175 millones para incremento salarial de más de 400 mil docentes**: [Link](https://peru21.pe/peru/minedu-transfiere-mas-de-s-175-millones-para-incremento-salarial-de-mas-de-400-mil-docentes/)
 - **Minedu destina más de S/ 175 millones para incremento salarial de 400 mil docentes en todo el país**: [Link](https://www.infobae.com/peru/2025/11/02/minedu-destina-mas-de-s-175-millones-para-incremento-salarial-de-400-mil-docentes-en-todo-el-pais/)
-
-
-### psg vs bayern (N/A, 03/11/2025 20:54 Lima)
-
-- **Ahead of PSG tilt, Bayern Munich’s Max Eberl ready for two teams to battle ‘at the top level’**: [Link](https://www.bavarianfootballworks.com/bayern-munich-champions-league/146484/ahead-of-psg-tilt-bayern-munichs-max-eberl-ready-for-two-teams-to-battle-at-the-top-level)
-- **Live blog: Build-up to Bayern’s Champions League game against Paris Saint-Germain**: [Link](https://fcbayern.com/en/news/2025/11/live-blog-build-up-to-bayern-champions-league-game-against-paris-saint-germain)
-- **PSG Star Vitinha Fires Indirect Message to Barcelona, Real Madrid**: [Link](https://sports.yahoo.com/article/psg-star-vitinha-fires-indirect-233500070.html)
-
-
-### betssy chávez (N/A, 03/11/2025 20:54 Lima)
-
-- **Perú rompe relaciones diplomáticas con México por otorgar asilo a quien fuera la primera ministra de Pedro Castillo**: [Link](https://cnnespanol.cnn.com/2025/11/03/latinoamerica/peru-rompe-relaciones-mexico-asilo-betssy-chavez-orix)
-- **Betsy Chávez se asila en embajada de México y Perú rompe relaciones con país azteca**: [Link](https://elperuano.pe/noticia/282246-peru-anuncia-ruptura-de-relaciones-diplomaticas-con-mexico-luego-de-asilo-a-betssy-chavez)
-- **Betssy Chávez asilada por México: canciller peruano confirmó que se le otorgó refugio a expremier de golpista Pedro Castillo**: [Link](https://www.infobae.com/peru/2025/11/03/betssy-chavez-asilada-por-mexico-canciller-hugo-de-zela-confirmo-que-gobierno-otorgo-refugio-a-la-expremier/)
-
-
-### defensa y justicia vs (N/A, 03/11/2025 15:27 Lima)
-
-- **Defensa vs Huracán: resultado EN VIVO y estadísticas de la Liga Profesional**: [Link](https://www.365scores.com/es/news/defensa-vs-huracan-vivo-partido-liga/)
-- **La previa de Defensa vs Huracán**: [Link](https://www.defensayjusticia.org.ar/la-previa-de-defensa-vs-huracan/)
-- **Defensa y Justicia vs Huracán por el Torneo Clausura 2025: minuto a minuto, en directo**: [Link](https://marcapersonalweb.com.ar/2025/11/03/defensa-y-justicia-vs-huracan-por-el-torneo-clausura-2025-minuto-a-minuto-en-directo/)
-
-
-### platense - sarmiento (N/A, 03/11/2025 15:27 Lima)
-
-- **La Previa: Recibe a Sarmiento con la urgencia de romper la racha**: [Link](https://cap.org.ar/2025/11/la-previa-recibe-a-sarmiento-con-la-urgencia-de-romper-la-racha/)
-- **Tras la salida del Kily González, Platense busca cortar la mala racha ante Sarmiento**: [Link](https://www.quepasaweb.com.ar/tras-la-salida-del-kily-gonzalez-platense-busca-cortar-la-mala-racha-ante-sarmiento/)
-- **Todo igualado: Platense y Sarmiento empatan 0-0 por la fecha 14 del Clausura**: [Link](https://www.ole.com.ar/sarmiento-junin/platense-recibe-sarmiento-fecha-14-torneo-clausura_0_dy1g2Wwrxp.html)
-
-
-### valladolid - granada (N/A, 03/11/2025 15:27 Lima)
-
-- **Apuestas y pronóstico Valladolid vs Granada**: [Link](https://www.marca.com/apuestas-deportivas/predicciones/2025/11/02/apuestas-pronostico-valladolid-vs-granada.html)
-- **Vuelve Pacheta para averiguar si el Pucela hoy es Jekyll o Míster Hyde**: [Link](https://as.com/futbol/segunda/vuelve-pacheta-para-averiguar-si-el-pucela-hoy-es-jekyll-o-mister-hyde-f202511-n/)
-- **A Zorrilla no le disgustan los lunes**: [Link](https://www.blanquivioletas.com/zorrilla-disgustan-lunes/)
-
-
-### real oviedo vs (N/A, 03/11/2025 15:27 Lima)
-
-- **Preview:Real Oviedo vs Osasuna - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/real-madrid/preview/real-oviedo-vs-osasuna-prediction-team-news-lineups_584894.html)
-- **Alberto Reina Campos vs. CA Osasuna – Player props & odds to score a goal on November 3**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/11/03/alberto-reina-campos-soccer-player-props-11-3-2025/87060626007/)
-- **Real Oviedo vs Osasuna Prediction, 11/3/2025 Soccer Pick, Tips and Odds**: [Link](https://www.docsports.com/free-picks/soccer/2025/real-oviedo-vs-osasuna-prediction-11-3-2025-soccer-pick-tips-and-odds.html)
-
-
-### osasuna vs (N/A, 03/11/2025 15:27 Lima)
-
-- **LaLiga EA Sports: Osasuna se enfrentará a Real Oviedo por la fecha 11**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-osasuna-se-enfrentara-a-real-oviedo-por-la-fecha-11-noticia-1662068)
-- **Pronóstico Oviedo vs. Osasuna: Urgencias en el Carlos Tartiere**: [Link](https://gainblers.com/pe/pronosticos/futbol/espana/liga-primera-division/pronostico-oviedo-osasuna-03-11-2025/)
-
-
-### real oviedo (N/A, 03/11/2025 15:27 Lima)
-
-- **Barcelona vs. Elche (2 de Nov., 2025) Resultados en Vivo**: [Link](https://www.espn.com.pe/futbol/partido/_/juegoId/748247)
-- **Betis vs. Mallorca (2 de Nov., 2025) Resultados en Vivo**: [Link](https://www.espn.com.pe/futbol/partido/_/juegoId/748250)
-- **Atlético vs. Sevilla (1 de Nov., 2025) Resultados en Vivo**: [Link](https://www.espn.com.pe/futbol/partido/_/juegoId/748245)
 
 
