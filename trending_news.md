@@ -1,3 +1,10 @@
+### rockstar games gta 6 (N/A, 07/11/2025 03:32 Lima)
+
+- **GTA 6 Is Delayed Again Until November 2026**: [Link](https://www.ign.com/articles/gta-6-is-delayed-again-until-november-2026)
+- **Video game publisher Take-Two beats Q2 revenue estimates, announces delay to 'GTA VI'**: [Link](https://www.marketscreener.com/news/video-game-publisher-take-two-beats-q2-revenue-estimates-announces-delay-to-gta-vi-ce7d5cd3da88fe23)
+- **Rockstar Delays Grand Theft Auto VI Once Again**: [Link](https://www.findarticles.com/rockstar-delays-grand-theft-auto-vi-once-again/)
+
+
 ### stranger things (N/A, 06/11/2025 23:28 Lima)
 
 - **'Millie Bobby Brown filed a harassment and bullying claim before they started shooting the last season. There were pages and pages of accusations.' We reveal the latest bombshell claims facing Lily Allen's estranged husband David Harbour**: [Link](https://www.dailymail.co.uk/news/article-15248699/Millie-Bobby-Brown-filed-harassment-bullying-claim-started-shooting-season-pages-pages-accusations-Caroline-Graham-reveals-latest-bombshell-claims-facing-Lily-Allens-estranged-husband-David-Harbour.html)
@@ -1019,12 +1026,5 @@ Sin noticias relacionadas disponibles.
 - **Preview:Lazio vs Cagliari - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/lazio/preview/lazio-vs-cagliari-prediction-team-news-lineups_584888.html)
 - **Henry Hardwicke Seeks Serie A Glory Following Jack Ogalbe’s Victory**: [Link](https://emegypt.net/1030061)
 - **Serie A Liveblog: Lazio-Cagliari**: [Link](https://football-italia.net/serie-a-liveblog-lazio-cagliari-2025-26/)
-
-
-### sassuolo (N/A, 03/11/2025 11:28 Lima)
-
-- **Sassuolo-Genoa, dove vedere la partita in tv: gli orari**: [Link](https://sport.sky.it/calcio/serie-a/2025/11/03/sassuolo-genoa-dove-vedere-tv-streaming)
-- **Criscito: "Questa maglia va onorata". Poi il messaggio ai tifosi**: [Link](https://www.tuttosport.com/news/calcio/serie-a/genoa/2025/11/03-144281853/criscito_questa_maglia_va_onorata_poi_il_messaggio_ai_tifosi)
-- **Murgita e Criscito chiedono "una partita da Genoa"**: [Link](https://www.diretta.it/news/calcio-serie-a-genoa-murgita-e-criscito-cercano-una-reazione-cancellare-la-gara-precedente-e-liberare-la-testa/dGsLXBod/)
 
 
