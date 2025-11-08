@@ -1,3 +1,24 @@
+### blast slam iv (N/A, 08/11/2025 03:29 Lima)
+
+- **HEROIC, MOUZ move into semis at BLAST Slam IV**: [Link](https://fieldlevelmedia.com/esports/heroic-mouz-move-into-semis-at-blast-slam-iv/)
+- **Davai Lama named the reasons for HEROIC's rapid progress**: [Link](https://hawk.live/posts/davai-lama-named-reasons-heroic-rapid-progress)
+- **MOUZ and HEROIC Advanced to the BLAST Slam IV Semifinals**: [Link](https://blix.gg/news/dota-2/mouz-and-heroic-advanced-to-the-blast-slam-iv-semifinals/)
+
+
+### jacob elordi (N/A, 08/11/2025 03:29 Lima)
+
+- **CineCrossroads: “Frankenstein,” “The Cabinet of Dr. Caligari,” and “Hotel Transylvania”**: [Link](https://qazinform.com/news/cinecrossroads-frankenstein-the-cabinet-of-dr-caligari-and-hotel-transylvania)
+- **Netflix finally released the horror film we've been dying to see all year**: [Link](https://netflixlife.com/netflix-finally-released-horror-film-weve-been-dying-to-see-all-year)
+- **Netflix debut for Frankenstein, samurai, and Thai crime**: [Link](https://www.findarticles.com/netflix-debut-for-frankenstein-samurai-and-thai-crime/)
+
+
+### ronaldo nazario (N/A, 08/11/2025 03:29 Lima)
+
+- **Alex Valera estrena su peinado 'a lo Ronaldo Nazario' y casi anota el primer gol de Universitario ante Garcilaso**: [Link](https://rpp.pe/futbol/descentralizado/universitario-alex-valera-estrena-su-peinado-a-lo-ronaldo-nazario-y-casi-anota-el-primer-gol-de-universitario-ante-garcilaso-noticia-1662954)
+- **Alex Valera cumplió promesa y se hizo corte de cabello de Ronaldo Nazário tras tricampeonato con Universitario**: [Link](https://www.infobae.com/peru/deportes/2025/11/06/alex-valera-cumplio-promesa-y-se-hizo-corte-de-cabello-de-ronaldo-nazario-tras-tricampeonato-con-universitario/)
+- **‘O Fenómeno peruano’: Álex Valera sorprende con famoso corte de cabello de Ronaldo Nazario**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/universitario-alex-valera-sorprende-con-famoso-corte-de-ronaldo-nazario-noticia/)
+
+
 ### shein (N/A, 07/11/2025 23:27 Lima)
 
 - **France moves to suspend Shein over sex dolls and weapons on day Paris store opens**: [Link](https://www.reuters.com/business/retail-consumer/shein-store-opening-paris-draws-protesters-bargain-hunters-2025-11-05/)
@@ -1004,26 +1025,5 @@ Sin noticias relacionadas disponibles.
 
 - **Al Sadd vs Al Ahli Preview, prediction, lineups, betting tips & odds | AFC Champions League Elite 2025-26**: [Link](https://khelnow.com/football/world-football-al-sadd-vs-al-ahli-preview-202511)
 - **AFCCLE: Franck Kessié is Al-Ahli Saudi’s pillar—Jaissle**: [Link](https://www.panafricafootball.com/post/afccle-franck-kessi%C3%A9-al-ahli-saudi/)
-
-
-### simulacro (N/A, 04/11/2025 11:29 Lima)
-
-- **Conoce las rutas de evacuación de Miraflores en caso de tsunami**: [Link](https://www.miraflores.gob.pe/conoce-las-rutas-de-evacuacion-de-miraflores-en-caso-de-tsunami/)
-- **Realizan marcha de sensibilización en Ilo por simulacro regional de sismo y tsunami**: [Link](https://prensaregional.pe/realizan-marcha-de-sensibilizacion-en-ilo-por-simulacro-regional-de-sismo-y-tsunami/)
-- **Simulacro ante sismo para este martes 4 de noviembre: conoce los detalles**: [Link](https://www.infobae.com/peru/2025/11/01/simulacro-ante-sismo-para-este-martes-4-de-noviembre-conoce-los-detalles/)
-
-
-### whats (N/A, 04/11/2025 11:29 Lima)
-
-- **It's Election Day. Here's what is on the ballot in Maricopa County**: [Link](https://www.azcentral.com/story/news/politics/elections/2025/11/04/election-day-arizona-vote/87076233007/)
-- **Here's what to know about Election Day in Tucson**: [Link](https://tucson.com/news/local/government-politics/elections/article_431d5bc5-0171-4d02-95f2-e256ef7ddf81.html)
-- **Recommended deadline to return early ballots by mail has passed**: [Link](https://www.coconino.az.gov/CivicAlerts.aspx?AID=3302)
-
-
-### wa (N/A, 04/11/2025 11:29 Lima)
-
-- **Preliminary data shows historically low WA voter turnout for 2025 election**: [Link](https://www.seattletimes.com/seattle-news/politics/election-2025-preliminary-data-shows-historically-low-wa-voter-turnout/)
-- **Yakima County Ballots Due by 8 p.m. Today as Voters Weigh Controversial Races and Local Issues.**: [Link](https://newstalkkit.com/election-day-2025-voting-today/)
-- **Franklin County election turnout low ahead of election day**: [Link](https://www.nbcrightnow.com/news/franklin-county-election-turnout-low-ahead-of-election-day/article_1de77799-1bf7-4dca-b499-4a3caaffceb6.html)
 
 
