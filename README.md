@@ -1,3 +1,71 @@
+### cuiabá - goiás (N/A, 07/11/2025 20:48 Lima)
+
+Sin noticias relacionadas disponibles.
+
+
+### charlotte fc - nyc fc (N/A, 07/11/2025 20:48 Lima)
+
+- **Charlotte FC vs New York City FC Odds, Spread, and Total**: [Link](https://foxsportsradionewjersey.com/2025/11/07/charlotte-fc-vs-new-york-city-fc-odds-spread-and-total-3/)
+- **Starting XI | Charlotte FC vs New York City FC**: [Link](https://www.charlottefootballclub.com/news/starting-xi-charlotte-fc-vs-new-york-city-fc-r1m3-playoffs-2025)
+- **‘IT’S A DO-OF-DIE’: NYCFC needs to beat Charlotte or its season is over**: [Link](https://www.frontrowsoccer.com/2025/11/07/its-a-do-of-die-nycfc-needs-to-beat-charlotte-or-its-season-is-over/)
+
+
+### salvoconducto betssy chavez (N/A, 07/11/2025 20:48 Lima)
+
+- **El Congreso de Perú declara "persona non grata" a Claudia Sheinbaum por el asilo que México le concedió a la ex primera ministra Betssy Chávez**: [Link](https://www.bbc.com/mundo/articles/c3rj7r2nv8eo)
+- **José Jerí sobre salvoconducto a Betssy Chávez: “No nos vamos a pronunciar en este momento sobre ello y, en consecuencia, no puede viajar a México”**: [Link](https://elcomercio.pe/politica/gobierno/jose-jeri-sobre-salvoconducto-a-betssy-chavez-no-nos-vamos-a-pronunciar-en-este-momento-sobre-ello-y-en-consecuencia-no-puede-viajar-a-mexico-ultimas-noticia/)
+- **Pleno declaró persona non grata a la presidenta de México por injerencia en asuntos internos del Perú**: [Link](https://comunicaciones.congreso.gob.pe/noticias/pleno-declaro-persona-non-grata-a-la-presidenta-de-mexico-por-injerencia-en-asuntos-internos-del-peru/)
+
+
+### juárez - querétaro (N/A, 07/11/2025 20:48 Lima)
+
+- **Liga MX: Querétaro se enfrentará a FC Juárez por la fecha 17**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-queretaro-se-enfrentara-a-fc-juarez-por-la-fecha-17-noticia-1662712)
+- **Juárez vs Querétaro: posiciones de un partido clave rumbo a liguilla**: [Link](https://www.365scores.com/es/news/juarez-vs-queretaro-posiciones-liguilla/)
+- **Bravos de Juárez vs Querétaro: Ver EN VIVO y GRATIS el partido de la Jornada 17 del Apertura 2025, hoy viernes**: [Link](https://www.tvazteca.com/aztecadeportes/bravos-juarez-vs-queretaro-donde-ver-en-vivo-gratis-partido-jornada-17-apertura-2025-liga-bbva-mx)
+
+
+### universitario - deportivo garcilaso (N/A, 07/11/2025 20:48 Lima)
+
+- **Dónde ver Universitario vs Deportivo Garcilaso HOY: canal tv online del duelo por Torneo Clausura de la Liga 1 2025**: [Link](https://www.infobae.com/peru/deportes/2025/11/07/donde-ver-universitario-vs-deportivo-garcilaso-hoy-canal-tv-online-fecha-18-torneo-clausura-liga-1-2025/)
+- **Tabla de posiciones de Liga 1 2025 EN VIVO: acumulado y resultados de la fecha 18 del Torneo Clausura**: [Link](https://depor.com/futbol-peruano/descentralizado/tabla-de-posiciones-liga-1-peru-2025-en-vivo-resultados-de-la-fecha-18-del-torneo-clausura-universitario-de-deportes-sporting-cristal-alianza-lima-noticia/)
+- **Con el Universitario vs. Garcilaso: programación y horarios de la fecha 18 del Torneo Clausura 2025 de la Liga1**: [Link](https://rpp.pe/futbol/descentralizado/torneo-clausura-2025-fecha-18-con-universitario-vs-garcilaso-programacion-de-partidos-y-horarios-en-penultima-jornada-de-liga-1-noticia-1662646)
+
+
+### rosario central - san lorenzo (N/A, 07/11/2025 20:48 Lima)
+
+- **San Lorenzo visita al Rosario Central de Di María en el inicio de la fecha 15 del Torneo Clausura**: [Link](https://www.infobae.com/deportes/2025/11/07/san-lorenzo-y-rosario-central-abren-la-fecha-15-del-torneo-clausura-en-el-gigante-de-arroyito-hora-tv-y-formaciones/)
+- **EN VIVO: Comenzó el partido entre Rosario Central y San Lorenzo: 0-0 en el inicio**: [Link](https://www.directvsports.com/futbol/EN-VIVO-Comenzo-el-partido-entre-Rosario-Central-y-San-Lorenzo-0-0-en-el-inicio-20251107-0049.html)
+- **Central empata sin goles San Lorenzo en el Gigante de Arroyito**: [Link](https://www.cadena3.com/noticia/estadio-3/central-empata-sin-goles-san-lorenzo-en-el-gigante-de-arroyito_483697)
+
+
+### deportivo pereira - medellín (N/A, 07/11/2025 20:48 Lima)
+
+- **Pereira vs. Medellín EN VIVO: el Poderoso quiere ser líder en Liga**: [Link](https://www.futbolred.com/futbol-colombiano/liga-betplay/pereira-vs-medellin-en-vivo-minuto-a-minuto-del-juego-por-liga-betplay-2025-ii-258308)
+- **Mintrabajo abre investigación contra Deportivo Pereira por incumplir suspensión de actividades**: [Link](https://elexpreso.co/hoy/mintrabajo-abre-investigacion-contra-deportivo-pereira-por-incumplir-suspension-de-actividades/)
+- **Deportivo Pereira vs DIM: Dónde Ver HOY Liga BetPlay EN VIVO y por plataformas Online**: [Link](https://futbolete.com/liga-betplay/pereira-medellin-donde-ver-hoy-vivo-online/977792/)
+
+
+### corte de agua sedapal lima (N/A, 07/11/2025 20:48 Lima)
+
+- **Corte de agua para este 07 de noviembre por más de 10 horas: conoce qué distritos serán los afectados**: [Link](https://www.infobae.com/peru/2025/11/06/corte-de-agua-para-este-07-de-noviembre-por-mas-de-10-horas-conoce-que-distritos-seran-los-afectados/)
+- **Corte de agua en Lima hoy 07 de noviembre: Distritos y horarios afectados**: [Link](https://rpp.pe/lima/obras/corte-de-agua-en-lima-hoy-07-de-noviembre-distritos-y-horarios-afectados-noticia-1662790)
+- **Sin agua por 16 horas: Sedapal publicó lista de distritos afectados por corte este 5 de noviembre**: [Link](https://elpopular.pe/actualidad/2025/11/05/corte-de-agua-5-de-noviembre-cinco-distritos-de-lima-no-tendran-servicio-por-16-horas-281730)
+
+
+### tabla acumulada liga 1 (N/A, 07/11/2025 20:48 Lima)
+
+- **Tabla de posiciones de Liga 1 2025 EN VIVO: acumulado y resultados de la fecha 18 del Torneo Clausura**: [Link](https://depor.com/futbol-peruano/descentralizado/tabla-de-posiciones-liga-1-peru-2025-en-vivo-resultados-de-la-fecha-18-del-torneo-clausura-universitario-de-deportes-sporting-cristal-alianza-lima-noticia/)
+- **Cinco equipos en la cuerda floja: duelos decisivos de la penúltima fecha y la batalla por la permanencia en la Liga 1 2025**: [Link](https://www.infobae.com/peru/deportes/2025/11/07/cinco-equipos-en-la-cuerda-floja-duelos-decisivos-de-la-penultima-fecha-y-la-batalla-por-la-permanencia-en-la-liga-1-2025/)
+- **Con el Universitario vs. Garcilaso: programación y horarios de la fecha 18 del Torneo Clausura 2025 de la Liga1**: [Link](https://rpp.pe/futbol/descentralizado/torneo-clausura-2025-fecha-18-con-universitario-vs-garcilaso-programacion-de-partidos-y-horarios-en-penultima-jornada-de-liga-1-noticia-1662646)
+
+
+### tabla acumulado liga 1 (N/A, 07/11/2025 20:48 Lima)
+
+- **Fechas confirmadas de los ‘play offs’ por cupo a Copa Libertadores 2026: programación de partidos de Alianza Lima, Sporting Cristal y Cusco FC**: [Link](https://www.infobae.com/peru/deportes/2025/11/07/fechas-confirmadas-de-los-play-offs-por-cupo-a-copa-libertadores-2026-programacion-de-partidos-de-alianza-lima-sporting-cristal-y-cusco-fc/)
+- **Tabla de Liga 1 en vivo: así van las posiciones tras victoria de Sporting Cristal**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/tabla-de-posiciones-liga-1-en-vivo-hoy-como-va-el-acumulado-y-clausura-en-fecha-18-con-universitario-alianza-lima-cristal-y-cusco-fc-noticia/)
+- **Sin Universitario tricampeón, pero con Alianza Lima: las fechas para los Playoffs finales de la Liga 1**: [Link](https://bolavip.com/pe/liga-1/sin-universitario-tricampeon-pero-con-alianza-lima-las-fechas-para-los-playoffs-finales-de-la-liga-1)
+
+
 ### paris fc (N/A, 07/11/2025 15:24 Lima)
 
 - **Ligue 1 News: Paris FC vs Rennes Confirmed Line-ups**: [Link](https://footballpredictions.net/paris-fc-v-rennes-team-news-confirmed-lineups)
@@ -958,73 +1026,5 @@ Sin noticias relacionadas disponibles.
 - **¿Estafa o incumplimiento contractual? Denuncian a tiktoker Crhiss Vanger**: [Link](https://lpderecho.pe/denuncian-tiktoker-habria-estafado-160-personas-promesa-multiplicar-inversion/)
 - **Quién es Crhiss Vanger: el tiktoker peruano acusado de estafar a más de 160 personas por más de un millón de soles**: [Link](https://www.infobae.com/peru/2025/11/03/quien-es-crhiss-vanger-el-tiktoker-peruano-acusado-de-estafar-a-mas-de-160-personas-por-mas-de-un-millon-de-soles/)
 - **Influencer Chris Vanger es investigado por presunta estafa a más de 160 personas últimas | LIMA**: [Link](https://elcomercio.pe/lima/policiales/influencer-chris-vanger-es-investigado-por-presunta-estafa-a-mas-de-160-personas-ultimas-noticia/)
-
-
-### canal 2 en vivo (N/A, 04/11/2025 07:54 Lima)
-
-- **Yo Soy Conciertos 2025: Encuesta del REACT, lunes 03 de noviembre**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-conciertos-2025-encuesta-del-react-lunes-03-de-noviembre_20251103/)
-
-
-### pronabec beca 18 (N/A, 04/11/2025 07:54 Lima)
-
-- **Beca 18: Este martes 4 Pronabec publicará la lista de participantes que rendirán el examen nacional**: [Link](https://elperuano.pe/noticia/282219-beca-18-este-martes-4-pronabec-publicara-la-lista-de-participantes-que-rendiran-el-examen-nacional)
-- **Examen Nacional de Beca 18-2026: ¿cuándo y dónde se publicará la lista de aptos según Pronabec?**: [Link](https://www.infobae.com/peru/2025/11/03/examen-nacional-de-beca-18-2026-cuando-y-donde-se-publicara-la-lista-de-aptos-segun-pronabec/)
-- **Pronabec publica oferta de academias que preparan gratis para Examen de Preselección**: [Link](https://andina.pe/agencia/noticia-pronabec-publica-oferta-academias-preparan-gratis-para-examen-preseleccion-1049807.aspx)
-
-
-### temblor (N/A, 04/11/2025 03:33 Lima)
-
-- **IGP-Temblor en Perú hoy, lunes 3 de noviembre: Lugar exacto, magnitud y hora**: [Link](https://elcomercio.pe/peru/ultimo-temblor-en-peru-segun-igp-reportes-lugar-exacto-magnitud-y-hora-sismos-censis-epicentro-tdpe-noticia/)
-- **Un sismo de magnitud 3.8 remeció la región Junín esta madrugada**: [Link](https://rpp.pe/peru/junin/junin-sismo-de-magnitud-38-remecio-la-region-esta-madrugada-noticia-1661452)
-- **Temblor en Perú: dos sismos remecieron Ica en lo que va de hoy**: [Link](https://andina.pe/agencia/noticia-temblor-peru-dos-sismos-remecieron-ica-lo-va-hoy-1049652.aspx)
-
-
-### dolar peru (N/A, 04/11/2025 03:33 Lima)
-
-- **Precio del dólar en Perú, domingo 2 de noviembre: a cuánto cerró el tipo de cambio hoy**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-2025-a-cuanto-esta-el-dolar-este-domingo-2-de-noviembre-tipo-de-cambio-segun-bcrp-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
-- **Precio del dólar subió: Así cerró el tipo de cambio hoy 3 de noviembre en Perú**: [Link](https://www.infobae.com/peru/2025/11/03/dolar-cotizacion-de-apertura-hoy-3-de-noviembre-en-peru/)
-- **Dólar cae 10% en el año, ¿seguirá a la baja tras el recorte de tasa de la Fed?**: [Link](https://gestion.pe/tu-dinero/finanzas-personales/dolar-cae-10-en-el-ano-seguira-a-la-baja-tras-el-recorte-de-tasa-de-la-fed-noticia/)
-
-
-### beca 18 (N/A, 04/11/2025 03:33 Lima)
-
-- **Beca 18: Este martes 4 Pronabec publicará la lista de participantes que rendirán el examen nacional**: [Link](https://elperuano.pe/noticia/282219-beca-18-este-martes-4-pronabec-publicara-la-lista-de-participantes-que-rendiran-el-examen-nacional)
-- **Examen Nacional de Beca 18-2026: ¿cuándo y dónde se publicará la lista de aptos según Pronabec?**: [Link](https://www.infobae.com/peru/2025/11/03/examen-nacional-de-beca-18-2026-cuando-y-donde-se-publicara-la-lista-de-aptos-segun-pronabec/)
-- **Resultados Beca 18-2026: revisa AQUÍ la lista de postulantes APTOS para el Examen Nacional de Preselección**: [Link](https://elpopular.pe/actualidad/2025/11/03/resultados-beca-182026-revisa-aqui-la-lista-de-postulantes-aptos-para-el-examen-nacional-de-preseleccion-pronabec-299799)
-
-
-### nuggets - kings (N/A, 04/11/2025 03:33 Lima)
-
-- **Nikola Jokic sets a new season-high, Luka Doncic sits out**: [Link](https://www.eurohoops.net/en/nba-news/1889639/nikola-jokic-scores-34-points-nuggets-beat-kings-nba/)
-- **Game Recap: Nuggets 130, Kings 124**: [Link](https://www.nba.com/watch/video/game-recap-nuggets-130-kings-124)
-- **Sacramento visits Denver for conference showdown**: [Link](https://sentinelcolorado.com/sports/sacramento-visits-denver-for-conference-showdown/)
-
-
-### whatsapp fin compatibilidad 2025 (N/A, 03/11/2025 23:28 Lima)
-
-- **Estos son los iPhone que se quedarán sin WhatsApp desde el 31 de octubre de 2025**: [Link](https://www.infobae.com/tecno/2025/10/29/estos-son-los-iphone-que-se-quedaran-sin-whatsapp-desde-el-31-de-octubre-de-2025/)
-- **Adiós a WhatsApp: los celulares en los que deja de funcionar la aplicación en noviembre 2025**: [Link](https://www.c5n.com/tecnologia/adios-whatsapp-los-celulares-los-que-deja-funcionar-la-aplicacion-noviembre-2025-n219584)
-- **¿En qué dispositivos dejará de funcionar WhatsApp y qué hacer si te pasa?**: [Link](https://www.cronica.com.mx/tendencias/2025/10/31/en-que-dispositivos-dejara-de-funcionar-whatsapp-y-que-hacer-si-te-pasa/)
-
-
-### trail blazers - lakers (N/A, 03/11/2025 23:28 Lima)
-
-- **Lakers have chance to avenge early loss to Blazers**: [Link](https://www.thesportsleader.com/2025/11/03/lakers-have-chance-to-avenge-early-loss-to-blazers/)
-- **BetMGM Promo Code NYPDM1500: Get a 20% first deposit match up to $1,500 for Lakers vs. Trail Blazers**: [Link](https://nypost.com/2025/11/03/betting/betmgm-promo-code-nypdm1500-get-a-20-first-deposit-match-up-to-1500-for-lakers-vs-trail-blazers/)
-- **How to Watch Lakers vs Trail Blazers: Live Stream NBA, TV Channel**: [Link](https://www.newsweek.com/sports/how-to-watch-lakers-vs-trail-blazers-live-stream-nba-tv-channel-10986294)
-
-
-### seattle sounders - minnesota (N/A, 03/11/2025 23:28 Lima)
-
-- **Realio’s Ratings: The St. Clair Stare**: [Link](https://www.sounderatheart.com/2025/11/seattle-sounders-minnesota-united-player-ratings-morris-3/)
-- **Rusnak confident Sounders can use home advantage in Game 2**: [Link](https://www.beinsports.com/en-us/soccer/mls/articles/rusnak-confident-sounders-can-use-home-advantage-in-game-2-2025-11-03)
-- **SEAvMIN Starting XI: Schmetzer shifts formation with Danny Musovski, Jordan Morris leading attack as front two**: [Link](https://www.soundersfc.com/news/seavmin-starting-xi-schmetzer-shifts-formation-with-danny-musovski-jordan-morris-leading-attack-as-front-two)
-
-
-### betssy chávez mexico (N/A, 03/11/2025 23:28 Lima)
-
-- **Peru severs diplomatic relations with Mexico after former prime minister claims asylum**: [Link](https://www.theguardian.com/world/2025/nov/04/peru-severs-diplomatic-relations-mexico-former-prime-minister-claims-asylum)
-- **Peru breaks off diplomatic relations with Mexico after ex-PM flees to Mexican embassy**: [Link](https://www.reuters.com/world/americas/peru-breaks-off-diplomatic-relations-with-mexico-over-ex-prime-ministers-asylum-2025-11-03/)
-- **Peru-Mexico: Lima cuts off diplomatic ties with Mexico over ex-PM's asylum**: [Link](https://www.bbc.com/news/articles/czdrg9zqnljo)
 
 
