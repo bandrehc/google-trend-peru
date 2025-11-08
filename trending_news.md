@@ -1,3 +1,72 @@
+### shein (N/A, 07/11/2025 23:27 Lima)
+
+- **France moves to suspend Shein over sex dolls and weapons on day Paris store opens**: [Link](https://www.reuters.com/business/retail-consumer/shein-store-opening-paris-draws-protesters-bargain-hunters-2025-11-05/)
+- **Shein’s Sex-Doll Standoff Is a European Humiliation**: [Link](https://www.bloomberg.com/opinion/articles/2025-11-07/shein-sex-doll-standoff-is-a-european-humiliation)
+- **France urges EU to sanction Shein over childlike sex dolls scandal**: [Link](https://www.lemonde.fr/en/economy/article/2025/11/06/france-urges-eu-to-sanction-shein-over-childlike-sex-dolls-scandal_6747176_19.html)
+
+
+### mazatlán - necaxa (N/A, 07/11/2025 23:27 Lima)
+
+- **Liga MX: Mazatlán se enfrenta ante la visita Necaxa por la fecha 17**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-mazatlan-se-enfrenta-ante-la-visita-necaxa-por-la-fecha-17-noticia-1662738)
+- **¡Boas, cascabeles y mariguana! 🐍🚨 La SSC aseguró una casa en la GAM donde encontraron drogas y 14 animales exóticos**: [Link](https://www.facebook.com/MilenioDiario/photos/boas-cascabeles-y-mariguana-la-ssc-asegur%C3%B3-una-casa-en-la-gam-donde-encontraron-/1301142642043204/)
+- **Mazatlán FC apaga las luces del Apertura con duelo ante ante los Rayos**: [Link](https://oem.com.mx/elsoldemazatlan/deportes/mazatlan-fc-apaga-las-luces-del-apertura-con-duelo-ante-ante-los-rayos-26684738)
+
+
+### tijuana - atlas (N/A, 07/11/2025 23:27 Lima)
+
+- **Atlas busca el Play In en una aduana casi imposible: Tijuana**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/15925044/tijuana-vs-atlas-historial-resultados-partidos-liga-mx-play-in)
+- **Liga MX: Tijuana recibirá a Atlas por la fecha 17**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-tijuana-recibira-a-atlas-por-la-fecha-17-noticia-1662739)
+- **Xolos cierra hoy Torneo Apertura**: [Link](https://psn.si/xolos-cierra-torneo-rm/2025/11/07/)
+
+
+### la u (N/A, 07/11/2025 23:27 Lima)
+
+- **Universidad de Chile desafía a Deportes Limache en choque de realidades opuestas en la Liga de Primera 2025**: [Link](https://www.espn.com.pe/futbol/chile/nota/_/id/15924161/universidad-de-chile-vs-limache-fecha-27-liga-de-primera-2025-equipo-fecha-y-hora)
+- **Lea Fernández y su futuro: "Yo tengo contrato y soy muy feliz acá"**: [Link](https://www.espn.com.pe/futbol/chile/nota/_/id/15928499/leandro-fernandez-y-su-futuro-universidad-de-chile-yo-tengo-contrato-y-soy-muy-feliz-aca)
+
+
+### reniec dni electrónico (N/A, 07/11/2025 23:27 Lima)
+
+- **DNI electrónico gratuito para el 08 de noviembre en este distrito: conoce los requisitos para ser beneficiario**: [Link](https://www.infobae.com/peru/2025/11/06/dni-electronico-gratuito-para-el-08-de-noviembre-en-este-distrito-conoce-los-requisitos-para-ser-beneficiario/)
+- **RENIEC otorga DNI gratuito durante 2025 para todos los que cumplan este requisito**: [Link](https://peru21.pe/peru/reniec-otorga-dni-gratuito-durante-2025-para-todos-los-que-cumplan-este-requisito/)
+- **🔴🔵Conoce aquí todos los detalles de la campaña gratuita con la que podrás obtener tu DNI electrónico este 3 y 4 de noviembre. 🪪👇**: [Link](https://www.facebook.com/Exitosanoticias/posts/conoce-aqu%C3%AD-todos-los-detalles-de-la-campa%C3%B1a-gratuita-con-la-que-podr%C3%A1s-obtener-/1266477382181984/)
+
+
+### nuggets - warriors (N/A, 07/11/2025 23:27 Lima)
+
+- **Where to watch Warriors vs. Nuggets free stream today**: [Link](https://www.masslive.com/tv/2025/11/where-to-watch-warriors-vs-nuggets-free-stream-today.html)
+- **Moses Moody shares key to Warriors' win vs. Nuggets without Steph Curry**: [Link](https://www.nbcsportsbayarea.com/video/nba/golden-state-warriors/moses-moody-interview-watch/1890187/)
+- **Top player props for Warriors vs. Nuggets**: [Link](https://www.nbcsports.com/watch/nba/top-player-props-for-golden-state-warriors-vs-denver-nuggets)
+
+
+### gallo zamora (N/A, 07/11/2025 23:27 Lima)
+
+- **Cancillería informó que Carlos Zamora, embajador de Cuba, concluyó su misión en el Perú**: [Link](https://rpp.pe/politica/gobierno/cancilleria-informo-que-carlos-zamora-embajador-de-cuba-concluyo-su-mision-en-el-peru-noticia-1662958)
+- **Tras México, ahora que De Zela expulse al espía cubano Aldo Mariátegui**: [Link](https://peru21.pe/opinion/tras-mexico-ahora-que-de-zela-expulse-al-espia-cubano-aldo-mariategui/)
+- **Gobierno del Perú invitó a Carlos Zamora, embajador de Cuba, a retirarse del país**: [Link](https://larepublica.pe/politica/2025/11/07/gobierno-del-peru-invito-a-carlos-zamora-embajador-de-cuba-a-retirarse-del-pais-hnews-137802)
+
+
+### u va (N/A, 07/11/2025 23:27 Lima)
+
+- **Walmart CEO on AI: "Every job we've got is going to change"**: [Link](https://www.axios.com/2025/11/03/walmart-shopping-ai-push-employee-training)
+- **The nation’s largest employers are putting their workers on notice**: [Link](https://www.msn.com/en-us/money/smallbusiness/ar-AA1PCfg7)
+- **UVA expert weighs in on Walmart’s choice to use OpenAI**: [Link](https://www.29news.com/2025/11/07/uva-expert-weighs-walmarts-choice-use-openai/)
+
+
+### tolima - llaneros (N/A, 07/11/2025 23:27 Lima)
+
+- **Pronóstico Deportes Tolima Llaneros FC - Liga BetPlay 07/11/25**: [Link](https://www.sportytrader.com/es/pronosticos/deportes-tolima-llaneros-fc-303580/)
+- **Noticia Tolima: Los Pijaos reciben este viernes a los Llaneros**: [Link](https://www.alertatolima.com/noticias/deportes/el-deportes-tolima-ya-clasificado-sera-juez-de-llaneros)
+- **Partido entre Tolima y Llaneros se jugará sin restricciones pero con controles**: [Link](https://elirreverenteibague.com/noticia/2533179/partido-entre-tolima-y-llaneros-se-jugara-sin-restricciones-pero-con-controles)
+
+
+### gonzalo bueno (N/A, 07/11/2025 23:27 Lima)
+
+- **Sufrió para ganar: Gonzalo Bueno ya está en cuartos de final del Lima Challenger 3 | VIDEO**: [Link](https://elcomercio.pe/deporte-total/tenis/sufrio-para-ganar-gonzalo-bueno-ya-esta-en-cuartos-de-final-del-lima-challenger-3-video-noticia/)
+- **Se respeta la casa: Ignacio Buse venció a Miguel Tobón y clasificó a octavos de final de Challenger Lima 3**: [Link](https://rpp.pe/tenis/mas-tenis/hoy-ignacio-buse-vs-miguel-tobon-en-vivo-primera-ronda-challenger-lima-3-a-que-hora-juegan-y-donde-ver-por-tv-via-atp-tour-link-gratis-partidos-de-hoy-noticia-1662272)
+- **Buse fue sorprendido y cayó eliminado en el Challenger 75 "Igma Open"**: [Link](https://ovacion.pe/noticias/tenis/buse-fue-sorprendido-cayo-eliminado-challenger-75-igma-open)
+
+
 ### cuiabá - goiás (N/A, 07/11/2025 20:48 Lima)
 
 Sin noticias relacionadas disponibles.
@@ -956,75 +1025,5 @@ Sin noticias relacionadas disponibles.
 - **Preliminary data shows historically low WA voter turnout for 2025 election**: [Link](https://www.seattletimes.com/seattle-news/politics/election-2025-preliminary-data-shows-historically-low-wa-voter-turnout/)
 - **Yakima County Ballots Due by 8 p.m. Today as Voters Weigh Controversial Races and Local Issues.**: [Link](https://newstalkkit.com/election-day-2025-voting-today/)
 - **Franklin County election turnout low ahead of election day**: [Link](https://www.nbcrightnow.com/news/franklin-county-election-turnout-low-ahead-of-election-day/article_1de77799-1bf7-4dca-b499-4a3caaffceb6.html)
-
-
-### wsp (N/A, 04/11/2025 11:29 Lima)
-
-- **WSP's Rebecca Jones: Sharing your 'genuine story' can be just as powerful as highlighting big milestones**: [Link](https://www.businessgreen.com/interview/4521231/wsps-rebecca-jones-sharing-genuine-story-powerful-highlighting-big-milestones)
-- **PHOTOS: Eastbound I-90 closed after major collision near North Bend**: [Link](https://www.kiro7.com/news/photos-eastbound-i/5WBCK2CYAJA7FDFKODO4L6ERW4/)
-- **I-90 near North Bend back open after serious injury crash**: [Link](https://www.king5.com/article/traffic/traffic-news/multiple-lanes-blocked-i-90-near-north-bend-due-to-serious-injury-crash/281-71d2c301-a7f5-4bd7-b1ce-4886e8913f2b)
-
-
-### dia del trabajador municipal 2025 (N/A, 04/11/2025 11:29 Lima)
-
-- **¿En qué partes del Perú será día NO laborable este miércoles 5 de noviembre 2025?**: [Link](https://elcomercio.pe/respuestas/que/en-que-partes-del-peru-sera-dia-no-laborable-este-5-de-noviembre-2025-tdpe-noticia/)
-- **¿Confirman feriado largo hasta el viernes 07 de noviembre a nivel nacional? Esto señala El Peruano**: [Link](https://elpopular.pe/actualidad/2025/11/03/confirman-feriado-largo-hasta-el-viernes-07-de-noviembre-a-nivel-nacional-esto-senala-el-peruano-248811)
-- **Este miércoles 5 de noviembre será feriado: conoce qué se celebra y qué señala El Peruano**: [Link](https://libero.pe/tiempoextra/2025/11/03/miercoles-5-de-noviembre-sera-feriado-conoce-se-celebra-senala-peruano-75297)
-
-
-### whatsapp web (N/A, 04/11/2025 11:29 Lima)
-
-- **Se cayó WhatsApp Web: qué opciones hay para seguir conectados con el mensajero en la PC**: [Link](https://www.lanacion.com.ar/tecnologia/no-funciona-whatsapp-web-pero-hay-opciones-para-seguir-conectados-con-el-mensajero-en-la-pc-nid04112025/)
-- **¡No es tu internet! Reportan FALLAS en WhatsApp HOY 4 de noviembre**: [Link](https://www.milenio.com/tecnologia/whatsapp-falla-hoy-4-noviembre-2025-usuarios-reportan)
-- **¡No es tu computadora! Usuarios reportan la caída de WhatsApp Web; recomiendan no actualizar la página**: [Link](https://www.tvazteca.com/aztecanoticias/caida-whatsapp-web-hoy-cuales-son-las-fallas-la-plataforma-caida-meta-actualizar)
-
-
-### camara (N/A, 04/11/2025 11:29 Lima)
-
-- **Camarógrafo del Congreso viajó junto al asesor de Rosangella Barbarán al evento de Keiko Fujimori en Trujillo**: [Link](https://www.infobae.com/peru/2025/11/03/camarografo-del-congreso-viajo-junto-al-asesor-de-rosangela-barbaran-al-evento-de-keiko-fujimori-en-trujillo/)
-- **Fernando Rospigliosi afirma que investigación a trabajador que usó cámara del Congreso es independiente a procesos penales**: [Link](https://elcomercio.pe/politica/congreso/fernando-rospigliosi-afirma-que-investigacion-a-trabajador-que-uso-camara-del-congreso-es-independiente-a-procesos-penales-keiko-fujimori-fuerza-popular-ultimas-noticia/)
-- **¡Ya se jodió Fuerza Popular (sic)!**: [Link](https://peru21.pe/opinion/ya-se-jodio-fuerza-popular-sic-richard-arce/)
-
-
-### ac dc (N/A, 04/11/2025 11:29 Lima)
-
-- **AC/DC Extend ‘Power Up’ Tour With 2026 Dates**: [Link](https://www.rollingstone.com/music/music-news/ac-dc-2026-power-up-tour-dates-1235458564/)
-- **Rock legends AC/DC announce four Canadian shows as part of 2026 tour**: [Link](https://www.ctvnews.ca/entertainment/article/rock-legends-acdc-announce-four-canadian-shows-as-part-of-2026-tour/)
-- **AC/DC coming to Camp Randall, Tickets on sale Nov. 7 | Wisconsin Badgers**: [Link](https://uwbadgers.com/news/2025/11/3/general-news-ac-dc-coming-to-camp-randall-tickets-on-sale-nov-7)
-
-
-### instagram (N/A, 04/11/2025 07:54 Lima)
-
-- **Britney Spears' Instagram account deleted amid a flurry of concerning posts**: [Link](https://nz.news.yahoo.com/britney-spears-instagram-account-deleted-031946110.html)
-- **Britney Spears Deletes Instagram Account After Recent Worrying Posts**: [Link](https://people.com/britney-spears-deletes-instagram-account-after-recent-worrying-posts-11841831)
-- **Britney Spears Deactivates Instagram Account After Series of Concerning Posts**: [Link](https://www.rollingstone.com/music/music-news/britney-spears-instagram-account-deactivated-1235458422/)
-
-
-### w (N/A, 04/11/2025 07:54 Lima)
-
-- **Dick Cheney, influential Republican vice president to George W. Bush, dies**: [Link](https://www.cnn.com/2025/11/04/politics/dick-cheney-death-obit)
-- **Dick Cheney, powerful vice president during war on terrorism, dies at 84**: [Link](https://www.washingtonpost.com/obituaries/2025/11/04/dick-cheney-us-vice-president-dead/)
-- **Dick Cheney, vice-president and giant of Republican politics, dies aged 84**: [Link](https://www.theguardian.com/us-news/2025/nov/04/dick-cheney-vice-president-republican-bush-dies)
-
-
-### teams (N/A, 04/11/2025 07:54 Lima)
-
-- **Predicting the rest of the Premier League season: How all 20 teams will finish**: [Link](https://www.espn.com/soccer/story/_/id/46834368/predicting-all-20-premier-league-teams-finish-season-2025-26-arsenal-liverpool-manchester-chelsea)
-- **Premier League: What can Arsenal, Man City, Liverpool and co read into the table after 10 games?**: [Link](https://www.bbc.com/sport/football/articles/c07m5yk9dgzo)
-- **Arsenal top, Wolves bottom, Liverpool being sh*t and other inevitable Premier League things**: [Link](https://www.football365.com/news/arsenal-top-wolves-bottom-liverpool-being-sht-and-other-inevitable-things-we-should-have-seen-coming)
-
-
-### el peruano (N/A, 04/11/2025 07:54 Lima)
-
-- **Museo Gráfico El Peruano abrió sus puertas al público**: [Link](https://elperuano.pe/noticia/282191-museo-grafico-el-peruano-abrio-sus-puertas-al-publico)
-- **Museo Gráfico del Diario El Peruano abre sus puertas este domingo**: [Link](https://www.gacetaperutv.pe/2025/11/museo-grafico-del-diario-el-peruano-abre-sus-puertas-este-domingo.html)
-- **Museo Gráfico del Diario El Peruano abrió sus puertas en la jornada de “Museos Abiertos”**: [Link](https://elperuano.pe/noticia/282177-museo-grafico-del-diario-el-peruano-abrio-sus-puertas-en-la-jornada-de-museos-abiertos)
-
-
-### atv en vivo (N/A, 04/11/2025 07:54 Lima)
-
-- **¿Estafa o incumplimiento contractual? Denuncian a tiktoker Crhiss Vanger**: [Link](https://lpderecho.pe/denuncian-tiktoker-habria-estafado-160-personas-promesa-multiplicar-inversion/)
-- **Quién es Crhiss Vanger: el tiktoker peruano acusado de estafar a más de 160 personas por más de un millón de soles**: [Link](https://www.infobae.com/peru/2025/11/03/quien-es-crhiss-vanger-el-tiktoker-peruano-acusado-de-estafar-a-mas-de-160-personas-por-mas-de-un-millon-de-soles/)
-- **Influencer Chris Vanger es investigado por presunta estafa a más de 160 personas últimas | LIMA**: [Link](https://elcomercio.pe/lima/policiales/influencer-chris-vanger-es-investigado-por-presunta-estafa-a-mas-de-160-personas-ultimas-noticia/)
 
 
