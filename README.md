@@ -1,3 +1,50 @@
+### wta finals (N/A, 08/11/2025 07:43 Lima)
+
+- **Highlights of semifinal at WTA Finals tennis tournament**: [Link](http://english.news.cn/20251108/5e70c0543b8c45649445fbc771a8c336/c.html)
+- **Tracy Austin explains why she’s ‘concerned’ for Elena Rybakina ahead of the WTA Finals vs Aryna Sabalenka**: [Link](https://tennishead.net/tracy-austin-explains-why-shes-concerned-for-elena-rybakina-ahead-of-the-wta-finals-vs-aryna-sabalenka/)
+- **Aryna Sabalenka reflects on Anisimova’s performance in semifinal**: [Link](https://www.tennisworldusa.org/tennis/news/WTA_Tennis/161177/aryna-sabalenka-reflects-on-anisimovas-performance-in-semifinal/)
+
+
+### girona - alavés (N/A, 08/11/2025 07:43 Lima)
+
+- **Girona - Alavés, en directo: LaLiga EA Sports hoy en vivo**: [Link](https://as.com/futbol/primera/girona-alaves-en-directo-laliga-ea-sports-hoy-en-vivo-f202511-d/)
+- **Girona vs Alavés: Apuestas, Pronóstico y Cuotas**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2025/noviembre/pronostico-girona-vs-alaves-08-11-25)
+- **Buena oportunidad para sumar en casa del colista**: [Link](https://www.noticiasdealava.eus/alaves/2025/11/08/buena-oportunidad-sumar-casa-colista-10317717.html)
+
+
+### tottenham (N/A, 08/11/2025 07:43 Lima)
+
+- **Ruben Amorim calls up Man Utd wonderkid to first-team squad after Kobbie Mainoo’s injury**: [Link](https://www.unitedinfocus.com/news/ruben-amorim-calls-up-man-utd-wonderkid-to-first-team-squad-after-kobbie-mainoos-injury/)
+- **Man Utd's historic 88-year tradition saved by Darren Fletcher's son after injury scare**: [Link](https://www.mirror.co.uk/sport/football/news/breaking-man-utd-jack-fletcher-36212552)
+- **Man United may have suffered fresh injury blow ahead of**: [Link](https://www.sportsmole.co.uk/football/man-utd/injury-news/news/man-united-may-have-suffered-fresh-injury-blow-ahead-of-tottenham-contest_585372.html)
+
+
+### tottenham - manchester united (N/A, 08/11/2025 07:43 Lima)
+
+- **Preview:Spurs vs Man Utd - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/spurs/preview/spurs-vs-man-utd-prediction-team-news-lineups_585186.html)
+- **Football Tracker: Tottenham host Man Utd in early kick-off, Girona and Como also in action**: [Link](https://www.flashscore.com/news/football-tracker-tottenham-host-man-utd-in-early-kick-off-girona-and-como-also-in-action/AmHtoEN7/)
+- **'Touch and go!' - Thomas Frank issues concerning Tottenham injury update ahead of Man Utd clash this weekend**: [Link](https://www.goal.com/en-om/lists/thomas-frank-tottenham-injury-update-man-utd-clash-this-weekend/blt0c7b7705dd7822de)
+
+
+### terremoto sismo temblor hoy epicentro (N/A, 08/11/2025 07:43 Lima)
+
+- **Temblor en Perú hoy, sábado 8 de noviembre: cuál fue la magnitud y epicentro según IGP**: [Link](https://elcomercio.pe/respuestas/temblor-en-peru-hoy-ultimos-sismos-de-noviembre-en-vivo-cual-fue-el-epicentro-y-magnitud-segun-reporte-del-igp-instituto-geofisico-del-peru-lima-callao-ica-lbposting-noticia/)
+- **Un sismo de magnitud 4.0 remeció la región Tacna esta madrugada**: [Link](https://rpp.pe/peru/tacna/tacna-sismo-de-magnitud-40-remecio-la-region-esta-madrugada-noticia-1662793)
+- **Terremoto moderado mag. 4.0 - Central Peru, jueves 6 nov 2025 a las 17:55 (Hora Lima) - hace 1 hora 5 minutos**: [Link](https://www.volcanodiscovery.com/es/sismos/informe-sismo/22362594/mag4quake-Nov-6-2025-Central-Peru.html)
+
+
+### portugal vs (N/A, 08/11/2025 07:43 Lima)
+
+Sin noticias relacionadas disponibles.
+
+
+### kings - thunder (N/A, 08/11/2025 07:43 Lima)
+
+- **Thunder 132-101 Kings (Nov 7, 2025) Game Recap**: [Link](https://www.espn.com/nba/recap/_/gameId/401809780)
+- **Hartenstein's Career-High 33 Points, 19 Rebounds Power Th...**: [Link](https://x.com/i/trending/1987080095031267802)
+- **What channel is Thunder vs Kings on TV tonight? Time, NBA schedule for OKC-Sacramento**: [Link](https://www.oklahoman.com/story/sports/nba/thunder/2025/11/07/thunder-kings-channel-tonight-nba-cup-games-tonight-live-time-tv-schedule-streaming/87141587007/)
+
+
 ### blast slam iv (N/A, 08/11/2025 03:29 Lima)
 
 - **HEROIC, MOUZ move into semis at BLAST Slam IV**: [Link](https://fieldlevelmedia.com/esports/heroic-mouz-move-into-semis-at-blast-slam-iv/)
@@ -977,53 +1024,5 @@ Sin noticias relacionadas disponibles.
 - **Champions League line-ups: Juventus vs. Sporting CP**: [Link](https://football-italia.net/champions-league-line-ups-juventus-sporting-cp/)
 - **Major boost for Spalletti as key Juventus star rejoins group training**: [Link](https://www.juvefc.com/boost-spalletti-kenan-yildiz-juventus-training/)
 - **Squad List | Juventus-Sporting CP**: [Link](https://www.juventus.com/en/news/articles/squad-list-juventus-sporting-cp-04-11-25)
-
-
-### disney plus (N/A, 04/11/2025 15:27 Lima)
-
-- **Disney+ Confirms 5 New Marvel Releases for the Rest of 2025**: [Link](https://thedirect.com/article/disney-plus-marvel-2025-releases-rest)
-- **'Fantastic Four: First Steps' hits Disney+ this week. Here's how to watch.**: [Link](https://www.usatoday.com/story/entertainment/movies/2025/11/03/fantastic-four-first-steps-watch-streaming/87012296007/)
-- **'Fantastic Four: First Steps' Streaming on Disney Plus: Release Date and Time**: [Link](https://www.cnet.com/tech/services-and-software/fantastic-four-first-steps-streaming-on-disney-plus-release-date-and-time/)
-
-
-### juventus (N/A, 04/11/2025 15:27 Lima)
-
-- **Juventus, Spalletti: "Dobbiamo far vedere il livello di calcio che vogliamo proporre"**: [Link](https://gianlucadimarzio.com/juventus-spalletti-sporting-dichiarazioni-prepartita-champions-league-news-4-novembre-2025/)
-- **UCL | Le formazioni ufficiali di Juventus-Sporting CP**: [Link](https://www.juventus.com/it/news/articoli/ucl-2025-2026-league-phase-juventus-sporting-cp-formazioni)
-- **Champions League: in campo Juventus-Sporting 0-0 DIRETTA**: [Link](https://www.ansa.it/sito/notizie/sport/2025/11/04/champions-league-in-campo-juventus-sporting-0-0-diretta_9e56add1-d710-43a9-885a-38467480b562.html)
-
-
-### bayer vs (N/A, 04/11/2025 15:27 Lima)
-
-- **Con Ríos en alza, Benfica necesita su primera victoria en Champions**: [Link](https://www.espn.com.pe/futbol/champions-league/nota/_/id/15913019/benfica-vs-leverkusen-fecha-4-champions-league-equipo-fecha-hora-y-tv-en-vivo)
-- **Champions League: Bayer Leverkusen se enfrentará a Benfica por la fecha 4**: [Link](https://rpp.pe/futbol/ligas-internacionales/champions-league-bayer-leverkusen-se-enfrentara-a-benfica-por-la-fecha-4-noticia-1662313)
-- **Pronóstico Benfica - Bayer Leverkusen. Champions League | 05/11/2025**: [Link](https://gainblers.com/pe/pronosticos/futbol/europa/champions-league/pronostico-benfica-bayer-leverkusen-05-11-2025/)
-
-
-### psv (N/A, 04/11/2025 15:27 Lima)
-
-- **Heksenketel in Athene: PSV onder zware beveiliging het stadion in**: [Link](https://www.omroepbrabant.nl/nieuws/4774144/heksenketel-in-athene-psv-onder-zware-beveiliging-het-stadion-in)
-- **Bosz zet zijn ploeg op scherp: 'Zullen vanaf het begin messcherp moeten zijn'**: [Link](https://www.voetbalprimeur.nl/nieuws/1708788/bosz-voorafgaand-aan-de-wedstrijd.html)
-- **Schouten stelt duidelijk doel: ‘Dat moeten we gaan doen’**: [Link](https://www.soccernews.nl/news/schouten-stelt-duidelijk-doel-dat-moeten-we-gaan-doen/)
-
-
-### bet365 (N/A, 04/11/2025 15:27 Lima)
-
-- **bet365 Bonus Code TOPACTION: $200 Bonus for 76ers vs. Bulls, NBA, NFL, Any Sport This Week**: [Link](https://www.actionnetwork.com/legal-online-sports-betting/bet365-bonus-code-topaction-200-bonus-76ers-bulls-nba-nfl-any-sport-this-week)
-- **Best Betting Promos for NFL Week 9 From DraftKings, FanDuel and More**: [Link](https://www.foxsports.com/stories/betting/best-sportsbook-promos-week-9-nfl-bonuses-you-can-claim-today)
-- **Underdog Promo Code HANDLE: Grab $100 in Bonus Entries for Cardinals vs. Cowboys Monday Night Football**: [Link](https://sportshandle.com/underdog-promo-code-handle-grab-100-bonus-entries-cardinals-cowboys-monday-night-football/)
-
-
-### jonathan bailey (N/A, 04/11/2025 11:29 Lima)
-
-- **Jonathan Bailey Is the Sexiest Man Alive 2025! (We Know, We Nailed It.)**: [Link](https://people.com/jonathan-bailey-is-sexiest-man-alive-2025-11842000)
-- **‘Wicked’ hunk Jonathan Bailey is People magazine’s ‘Sexiest Man Alive’**: [Link](https://pagesix.com/2025/11/03/celebrity-news/wicked-hunk-jonathan-bailey-is-peoples-sexiest-man-alive/)
-- **People Magazine Names FFXIV Voice Actor Sexiest Man Alive**: [Link](https://screenrant.com/final-fantasy-xiv-jonathan-bailey-sexiest-man-alive/)
-
-
-### al-sadd - al-ahli saudi (N/A, 04/11/2025 11:29 Lima)
-
-- **Al Sadd vs Al Ahli Preview, prediction, lineups, betting tips & odds | AFC Champions League Elite 2025-26**: [Link](https://khelnow.com/football/world-football-al-sadd-vs-al-ahli-preview-202511)
-- **AFCCLE: Franck Kessié is Al-Ahli Saudi’s pillar—Jaissle**: [Link](https://www.panafricafootball.com/post/afccle-franck-kessi%C3%A9-al-ahli-saudi/)
 
 
