@@ -1,3 +1,71 @@
+### juventus - torino (N/A, 08/11/2025 11:27 Lima)
+
+- **Juve-Torino, diretta: formazioni e risultato in tempo reale. Primo derby per Spalletti e Baroni**: [Link](https://www.tuttosport.com/news/calcio/serie-a/juventus/2025/11/08-144394228/juve-torino_diretta_formazioni_e_risultato_in_tempo_reale_primo_derby_per_spalletti_e_baroni)
+- **Cabrini a Gazzetta: 'Chi scende in campo deve aver chiara la responsabilità'**: [Link](https://www.ilbianconero.com/liste/cabrini-a-gazzetta-chi-scende-in-campo-deve-aver-chiara-la-responsabilita/blt52d5c8993fa643d0)
+- **Serie A | Le formazioni ufficiali di Juventus-Torino**: [Link](https://www.juventus.com/it/news/articoli/serie-a-2025-2026-juventus-torino-formazioni)
+
+
+### la serena - u. católica (N/A, 08/11/2025 11:27 Lima)
+
+Sin noticias relacionadas disponibles.
+
+
+### novak djokovic (N/A, 08/11/2025 11:27 Lima)
+
+- **Djokovic faces Italy’s Musetti in Hellenic Championship final**: [Link](https://www.ekathimerini.com/sports/1286197/djokovic-faces-italys-musetti-in-hellenic-championship-final/)
+- **Djokovic Triumphs Over Hanfmann in Athens Semi-Final with ‘Special’ Performance**: [Link](https://www.el-balad.com/6759870)
+- **Novak Djokovic vs Lorenzo Musetti Prediction: Can Musetti pull off a miracle with Turin on the line?**: [Link](https://www.telecomasia.net/sports-betting/tips/tennis/novak-djokovic-vs-lorenzo-musetti-prediction-for-the-match-on-november-08-2025/)
+
+
+### primera división de arabia saudita (N/A, 08/11/2025 11:27 Lima)
+
+- **Al Nassr-Neom EN VIVO con Cristiano Ronaldo: cómo va el partido**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/al-nassr-vs-neom-en-vivo-gratis-hoy-via-futbol-libre-tv-fox-one-con-cristiano-ronaldo-horarios-canales-tv-y-donde-ver-partido-por-saudi-pro-league-video-noticia/)
+- **Neom Sports Club - Al Nassr en directo | Liga de Arabia**: [Link](https://www.marca.com/futbol/futbol-internacional/2025/11/08/690f16b07aeb1c2f75378d6d-directo.html)
+- **Neom vs Al-Nassr: cómo ver el partido por TV y streaming, últimas noticias y pronóstico**: [Link](https://www.si.com/es-us/futbol/neom-vs-al-nassr-tv-streaming-8-11-2025)
+
+
+### dortmund (N/A, 08/11/2025 11:27 Lima)
+
+- **HSV vs. BVB: Hamburger SV gegen Borussia Dortmund JETZT im Liveticker**: [Link](https://www.spox.com/fussball/live/hsv-vs-bvb-hamburger-sv-gegen-borussia-dortmund-heute-im-liveticker/blt513d3f4af3992bc4)
+- **Hamburger SV - Dortmund live: Bundesliga im TV und LIVE-STREAM sehen**: [Link](https://www.dazn.com/de-DE/news/fussball/hamburger-sv-hsv-dortmund-bvb-live-bundesliga-im-tv-und-live-stream-sehen/mb94ndwjfv6c1xg6d8an2gk0e)
+- **Mit dieser Startelf beginnt Dortmund im Volkspark**: [Link](https://hsv24.mopo.de/2025/11/08/mit-dieser-startelf-beginnt-dortmund-im-volkspark.html)
+
+
+### bayern vs (N/A, 08/11/2025 11:27 Lima)
+
+- **Golazo de Luis Díaz en Unión Berlín vs Bayern por Bundesliga**: [Link](https://www.espn.com.pe/futbol/alemania/nota/_/id/15930412/union-berlin-vs-bayern-goles-luis-diaz-video-bundesliga)
+- **Pronóstico Union Berlin - Bayern Munich. Bundesliga | 08/11/2025**: [Link](https://gainblers.com/pe/pronosticos/futbol/alemania/1bundesliga/pronostico-union-berlin-bayern-munich-08-11-2025/)
+- **Bayern-Union Berlin EN VIVO con Luis Díaz: cuánto va el partido**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/bayern-vs-union-berlin-en-vivo-gratis-hoy-via-futbol-libre-tv-espn-con-luis-diaz-horarios-canales-tv-y-donde-ver-partido-por-bundesliga-video-noticia/)
+
+
+### bayern munich (N/A, 08/11/2025 11:27 Lima)
+
+- **Kompany discusses possible rotation ahead of Union Berlin clash**: [Link](https://bulinews.com/kompany-discusses-possible-rotation-ahead-union-berlin-clash)
+- **Steffen Baumgart reveals his plan against FC Bayern: ‘With a high level of aggression, but...’**: [Link](https://tribuna.com/en/news/2025-11-08-steffen-baumgart-reveals-his-plan-against-fc-bayern-with-a-high-level-of-aggression-but/)
+- **Nicolas Jackson vs. Union Berlin – Player props & odds to score a goal on November 8**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/11/07/nicolas-jackson-soccer-player-props-11-8-2025/87156010007/)
+
+
+### bayer vs (N/A, 08/11/2025 11:27 Lima)
+
+- **Preview:B. Leverkusen vs Heidenheim - prediction, team news**: [Link](https://www.sportsmole.co.uk/football/bayer-leverkusen/preview/b-leverkusen-vs-heidenheim-prediction-team-news-lineups_585299.html)
+- **Malik Tillman vs. 1. FC Heidenheim 1846 – Player props & odds to score a goal on November 8**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/11/07/malik-tillman-soccer-player-props-11-8-2025/87156022007/)
+- **Patrik Schick’s Goal Odds Against 1. FC Heidenheim, November 8**: [Link](https://www.el-balad.com/6759845)
+
+
+### sevilla - osasuna (N/A, 08/11/2025 11:27 Lima)
+
+- **Sevilla - Osasuna en directo | LaLiga EA Sports hoy, en vivo**: [Link](https://www.marca.com/futbol/laliga-ea-sports/sevilla-osasuna/2025/11/08/01_0101_20251108_179_450-directo.html)
+- **¡EN VIVO! Sevilla recibe a Osasuna en LaLiga**: [Link](https://www.espn.com.ar/futbol/espana/nota/_/id/15930879/sevilla-osasuna-laliga-partido-recibe-almeyda-alexis-sanchez-gabriel-suazo)
+- **Sevilla - Osasuna en directo - La Liga: Resultados y resúmenes de Fútbol - 08/11/2025**: [Link](https://espanol.eurosport.com/futbol/la-liga/2025-2026/live-sevilla-osasuna_mtc1610541/live-commentary.shtml)
+
+
+### hoffenheim - rb leipzig (N/A, 08/11/2025 11:27 Lima)
+
+- **Unbeliebtico? Werner: "Auf beiden Seiten die Zukunft des Fußballs" | RB auswärts gegen Hoffenheim | Video**: [Link](https://www.kicker.de/unbeliebtico-werner-auf-beiden-seiten-die-zukunft-des-fussballs-1163725/video)
+- **„Habe ihn im Fokus“: Ilzer warnt vor ÖFB-Legionär**: [Link](https://fan.at/news/690efa2bfd4ca8ef4aa0a9ff)
+- **Live: Die Roten Bullen bei der TSG Hoffenheim**: [Link](https://rbleipzig.com/de/news/liveticker-spielbericht-tsg-hoffenheim-vs-rb-leipzig-10-spieltag-bundesliga-saison-2025-26)
+
+
 ### wta finals (N/A, 08/11/2025 07:43 Lima)
 
 - **Highlights of semifinal at WTA Finals tennis tournament**: [Link](http://english.news.cn/20251108/5e70c0543b8c45649445fbc771a8c336/c.html)
@@ -954,75 +1022,5 @@ Sin noticias relacionadas disponibles.
 - **Paro de transportistas EN VIVO: Situación del transporte en Lima y Callao y los reclamos a José Jerí por asesinatos y extorsiones**: [Link](https://www.infobae.com/peru/2025/11/04/paro-de-transportistas-en-vivo-situacion-del-transporte-en-lima-callao-y-otros-distritos-por-asesinatos-y-extorsiones-a-empresas/)
 - **¿Tuviste problemas con el tránsito? El MTPE dispuso tolerancia y teletrabajo por el paro**: [Link](https://www.elperuano.pe/noticia/282283-tuviste-problemas-con-el-transito-el-mtpe-dispuso-tolerancia-y-teletrabajo-por-el-paro)
 - **Mininter moviliza 21 buses para apoyar a la ciudadanía durante paro de transportes**: [Link](https://caretas.pe/nacional/mininter-moviliza-21-buses-para-apoyar-a-la-ciudadania-durante-paro-de-transportes/)
-
-
-### perú (N/A, 04/11/2025 20:56 Lima)
-
-- **Perú rompe relaciones diplomáticas con México por el asilo a la ex primera ministra de Pedro Castillo**: [Link](https://elpais.com/mexico/2025-11-03/peru-rompe-relaciones-diplomaticas-con-mexico-por-el-asilo-a-la-ex-primera-ministra-de-pedro-castillo.html)
-- **Presidente de Perú dice que mantuvo la cordialidad con México “hasta donde se pudo” antes de cortar relaciones diplomáticas**: [Link](https://cnnespanol.cnn.com/2025/11/04/latinoamerica/peru-jeri-mexico-crisis-diplomatica-orix)
-- **Comunicado Relaciones Exteriores**: [Link](https://www.gob.mx/sre/prensa/comunicado-relaciones-exteriores)
-
-
-### pafos fc (N/A, 04/11/2025 20:56 Lima)
-
-- **Champions League: Pafos y Villarreal se encuentran en la fecha 4**: [Link](https://rpp.pe/futbol/ligas-internacionales/champions-league-pafos-y-villarreal-se-encuentran-en-la-fecha-4-noticia-1662288)
-- **Pronóstico Paphos vs. Villarreal: Primera victoria**: [Link](https://gainblers.com/pe/pronosticos/futbol/europa/champions-league/pronostico-paphos-villarreal-05-11-2025/)
-- **Pafos vs Villarreal: Predictions, Betting odds, Lineups, Preview**: [Link](https://www.ladbrokes.com/en/news/match-preview-pafos-villarreal-uefa-champions-league-gameweek-4/)
-
-
-### elizabeth peralta (N/A, 04/11/2025 20:56 Lima)
-
-- **Juez realiza control de identidad a fiscal Elizabeth Peralta**: [Link](https://lpderecho.pe/pj-dispone-ubicacion-captura-nivel-nacional-internacional-elizabeth-peralta/)
-- **Elizabeth Peralta, fiscal vinculada con Andrés Hurtado, se entrega a la justicia ante orden de captura**: [Link](https://www.infobae.com/peru/2025/11/04/elizabeth-peralta-fiscal-vinculada-con-andres-hurtado-se-entrega-a-la-justicia-ante-orden-de-captura/)
-- **Elizabeth Peralta se entrega a la justicia tras orden de captura nacional e internacional**: [Link](https://caretas.pe/politica/elizabeth-peralta-se-entrega-a-la-justicia-tras-orden-de-captura-nacional-e-internacional/)
-
-
-### alexander arnold (N/A, 04/11/2025 20:56 Lima)
-
-- **Alexander-Arnold mural defaced before Anfield return**: [Link](https://www.bbc.com/sport/football/articles/c5ylv513lgjo)
-- **Bellingham and Alonso respond to Alexander-Arnold boos as Liverpool beat Real Madrid**: [Link](https://thefootballfaithful.com/bellingham-alonso-alexander-arnold-liverpool-real-amdrid/)
-- **Thibaut Courtois makes plea to Liverpool fans about Trent Alexander-Arnold after Champions League defeat**: [Link](https://www.rousingthekop.com/2025/11/04/thibaut-courtois-makes-plea-to-liverpool-fans-about-trent-alexander-arnold-after-champions-league-defeat/)
-
-
-### dean huijsen (N/A, 04/11/2025 20:56 Lima)
-
-- **Carlo Ancelotti revela conversación con Vinicius tras desplante a Xabi Alonso: "Cometió un error"**: [Link](https://rpp.pe/futbol/futbol-mundial/vinicius-junior-carlo-ancelotti-revela-conversacion-tras-desplante-a-xabi-alonso-en-clasico-cometio-un-error-noticia-1662229)
-- **Vinícius Jr. se disculpó con hinchas del Real Madrid por enojarse al ser cambiado en el clásico, pero no mencionó a Xabi Alonso**: [Link](https://larepublica.pe/deportes/2025/10/29/vinicius-jr-se-disculpo-con-hinchas-del-real-madrid-por-enojarse-al-ser-cambiado-en-el-clasico-pero-no-menciono-a-xabi-alonso-902944)
-- **Vinícius Junior pide perdón por reaccionar en su cambio durante el clásico ante Barcelona**: [Link](https://andina.pe/agencia/noticia-vinicius-junior-pide-perdon-reaccionar-su-cambio-durante-clasico-ante-barcelona-1050044.aspx)
-
-
-### psg vs (N/A, 04/11/2025 15:27 Lima)
-
-- **Dónde ver PSG vs Bayern Múnich HOY: canal tv online del duelo en el Parque de Los Príncipes por Champions League 2025/2026**: [Link](https://www.infobae.com/peru/deportes/2025/11/04/donde-ver-psg-vs-bayern-munich-en-vivo-hoy-canal-tv-online-partido-jornada-4-champions-league-2025/)
-- **🟣 FOX One EN VIVO ONLINE — ver partido PSG vs. Bayern Múnich gratis por TV y Streaming**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/canal-fox-one-en-vivo-gratis-donde-ver-partido-psg-vs-bayern-munich-por-futbol-tv-y-claro-video-online-amazon-prime-caliente-nnda-nnrt-noticia/)
-- **Champions League: Se enfrentan PSG y Bayern Múnich por la fecha 4**: [Link](https://rpp.pe/futbol/ligas-internacionales/champions-league-se-enfrentan-psg-y-bayern-munich-por-la-fecha-4-noticia-1662164)
-
-
-### psg (N/A, 04/11/2025 15:27 Lima)
-
-- **LdC : le nouveau communiqué incendiaire du Bayern Munich**: [Link](https://www.footmercato.net/a8672313673382819532-ldc-le-nouveau-communique-incendiaire-du-bayern-munich)
-- **C1 : suis le multiplex sur OneFootball**: [Link](https://onefootball.com/fr/news/c1-suis-le-multiplex-sur-onefootball-41903050)
-- **"On est capable de les battre" : Vincent Kompany prévient le PSG**: [Link](https://tribuna.com/fr/news/2025-11-04-on-est-capable-de-les-battre-vincent-kompany-previent/)
-
-
-### atletico (N/A, 04/11/2025 15:27 Lima)
-
-- **Champions League: U. Saint-Gilloise se enfrentará a Atlético de Madrid por la fecha 4**: [Link](https://rpp.pe/futbol/ligas-internacionales/champions-league-u-saint-gilloise-se-enfrentara-a-atletico-de-madrid-por-la-fecha-4-noticia-1662163)
-- **Atlético Madrid recibe a Union SG y busca un triunfo que lo acomode en la Champions League**: [Link](https://www.espn.com.pe/futbol/euro/nota/_/id/15908932/atletico-madrid-vs-union-sg-fase-liga-champions-league-equipo-fecha-hora-y-tv-en-vivo)
-- **Atlético de Madrid - Union Saint-Gilloise hoy, en directo: fase liga de Champions League, en vivo**: [Link](https://as.com/futbol/champions/atletico-union-saint-gilloise-en-directo-champions-league-hoy-en-vivo-f202511-d/)
-
-
-### bayern (N/A, 04/11/2025 15:27 Lima)
-
-- **FC Bayern legt Protest bei UEFA ein | Champions League-Spiel in Paris**: [Link](https://fcbayern.com/de/news/2025/11/fc-bayern-legt-protest-bei-uefa-ein)
-- **Champions League LIVE: Schlussphase in Neapel – FCB & PSG mit Top-Elf, Wirtz startet**: [Link](https://www.flashscore.de/news/fu-ball-champions-league-champions-league-live-schlussphase-in-neapel-fcb-psg-mit-top-elf-wirtz-startet/dYWMeVoQ/)
-- **Ousmane Dembele ist laut Luis Enrique fit für PSG gegen FC Bayern**: [Link](https://sport.sky.de/fussball/artikel/ousmane-dembele-ist-laut-luis-enrique-fit-fuer-psg-gegen-fc-bayern/13463270/34171)
-
-
-### juventus vs (N/A, 04/11/2025 15:27 Lima)
-
-- **Champions League line-ups: Juventus vs. Sporting CP**: [Link](https://football-italia.net/champions-league-line-ups-juventus-sporting-cp/)
-- **Major boost for Spalletti as key Juventus star rejoins group training**: [Link](https://www.juvefc.com/boost-spalletti-kenan-yildiz-juventus-training/)
-- **Squad List | Juventus-Sporting CP**: [Link](https://www.juventus.com/en/news/articles/squad-list-juventus-sporting-cp-04-11-25)
 
 
