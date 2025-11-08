@@ -1,3 +1,71 @@
+### milan (N/A, 08/11/2025 15:23 Lima)
+
+- **Milan y Parma se enfrentan con objetivos opuestos en la Serie A**: [Link](https://www.espn.com.pe/futbol/italia/nota/_/id/15925354/parma-vs-milan-por-la-serie-a-equipo-fecha-hora-y-tv-en-vivo)
+- **Serie A: Milan necesita el triunfo ante Parma para llegar a la cima**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-milan-necesita-el-triunfo-ante-parma-para-llegar-a-la-cima-noticia-1662833)
+- **Sacchi sees Allegri’s improvement but warns Milan about Parma**: [Link](https://football-italia.net/sacchi-allegri-improvement-warn-milan-parma/)
+
+
+### roblox (N/A, 08/11/2025 15:23 Lima)
+
+- **Story Kitchen Developing Film Adaptation Of Roblox Game ‘Grow A Garden’**: [Link](https://deadline.com/2025/11/grow-a-garden-movie-story-kitchen-in-development-1236608058/)
+- **Attention parents of Roblox kids: I regret to inform you they are making a Grow a Garden movie**: [Link](https://www.pcgamer.com/movies-tv/attention-parents-of-roblox-kids-i-regret-to-inform-you-they-are-making-a-grow-a-garden-movie/)
+- **Roblox Games ‘Grow a Garden, ‘Jailbreak’ Clinch Movie Deals**: [Link](https://www.bloomberg.com/news/articles/2025-11-05/roblox-games-grow-a-garden-jailbreak-clinch-movie-deals)
+
+
+### milan vs (N/A, 08/11/2025 15:23 Lima)
+
+- **Inter Milan Vs Lazio – Akanji & Bisseck Lead Defence As Cristian Chivu Keeps Faith**: [Link](https://sempreinter.com/2025/11/08/inter-milan-lazio-akanji-bisseck-lineup/)
+- **Football, Sarri: ‘Difficult match against Inter, we must seize the opportunity’**: [Link](https://lapresse.us/sports/2025/11/08/football-sarri-difficult-match-against-inter-we-must-seize-the-opportunity/)
+- **Preview:Inter Milan vs Lazio - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/preview/inter-milan-vs-lazio-prediction-team-news-lineups_585355.html)
+
+
+### juan pablo ii college (N/A, 08/11/2025 15:23 Lima)
+
+- **Atlético Grau vs Juan Pablo II EN VIVO: hora, canal tv y dónde ver el Torneo Clausura**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/juan-pablo-ii-vs-atletico-grau-en-vivo-via-liga-1-max-horario-canales-de-tv-y-mas-del-partido-por-la-fecha-18-del-torneo-clausura-de-liga-1-2025-tdpe-noticia/)
+- **Liga 1: Juan Pablo II y Grau se encuentran en la fecha 18**: [Link](https://rpp.pe/futbol/descentralizado/liga-1-juan-pablo-ii-y-grau-se-encuentran-en-la-fecha-18-noticia-1662843)
+- **Transmisión: Juan Pablo II vs. Atlético Grau EN VIVO ver Liga 1 MAX en directo online gratis**: [Link](https://depor.com/futbol-peruano/descentralizado/juan-pablo-ii-vs-atletico-grau-en-vivo-gratis-liga-1-max-futbol-libre-tv-directv-dgo-donde-ver-en-directo-hoy-online-por-internet-torneo-clausura-2025-video-noticia/)
+
+
+### racing - defensa y justicia (N/A, 08/11/2025 15:23 Lima)
+
+Sin noticias relacionadas disponibles.
+
+
+### parma vs milan (N/A, 08/11/2025 15:23 Lima)
+
+- **Sacchi sees Allegri’s improvement but warns Milan about Parma**: [Link](https://football-italia.net/sacchi-allegri-improvement-warn-milan-parma/)
+- **Rafael Leao: ‘Allegri knows how to help me’**: [Link](https://www.yardbarker.com/soccer/articles/rafael_leao_allegri_knows_how_to_help_me/s1_17344_43036782)
+- **Will Christian Pulisic start after injury return? Milan’s projected lineup for Serie A game vs. Parma, with...**: [Link](https://worldsoccertalk.com/news/will-christian-pulisic-start-after-injury-return-milans-projected-lineup-for-serie-a-game-vs-parma-with-santiago-gimenez-ruled-out-and-luka-modric-in-contention/)
+
+
+### chelsea - wolves (N/A, 08/11/2025 15:23 Lima)
+
+- **Confirmed Chelsea line up vs Wolverhampton Wanderers | News | Official Site**: [Link](https://www.chelseafc.com/en/news/article/confirmed-chelsea-line-up-vs-wolverhampton-wanderers)
+- **“It’s difficult” – Enzo Maresca reveals why he thinks Wolves game will be tough for Chelsea**: [Link](https://chelsea.news/2025/11/enzo-maresca-chelsea-wolves-thoughts/)
+- **Whether Pedro Neto trained with Chelsea squad ahead of Stamford Bridge reunion with Wolves**: [Link](https://www.thechelseachronicle.com/news/whether-pedro-neto-trained-with-chelsea-squad-ahead-of-stamford-bridge-reunion-with-wolves/)
+
+
+### rcd espanyol - villarreal (N/A, 08/11/2025 15:23 Lima)
+
+- **Espanyol - Villarreal, en directo: LaLiga EA Sports, en vivo**: [Link](https://as.com/futbol/primera/espanyol-villarreal-en-directo-laliga-ea-sports-en-vivo-f202511-d/)
+- **Espanyol - Villarreal en directo | LaLiga EA Sports hoy, en vivo**: [Link](https://www.marca.com/futbol/laliga-ea-sports/espanyol-villarreal/2025/11/08/01_0101_20251108_177_449-directo.html)
+- **El Villarreal busca pasar página de la Champions, volviendo a ganar en Liga ante el Espanyol**: [Link](https://plazadeportiva.valenciaplaza.com/plazadeportiva/futbol/el-villarreal-busca-pasar-pagina-de-la-champions-volviendo-a-ganar-en-liga-ante-el-espanyol)
+
+
+### sport huancayo (N/A, 08/11/2025 15:23 Lima)
+
+- **¡Sport Huancayo es campeón de la Liga3 2025! Empató 1-1 con Estudiantil CNI y ascendió a la Liga2 (VIDEO)**: [Link](https://rpp.pe/futbol/mas-futbol/sport-huancayo-vs-estudiantil-cni-en-vivo-a-que-hora-juegan-y-donde-ver-final-vuelta-liga-3-via-youtube-fpf-partidos-de-hoy-noticia-1662908)
+- **¡Campeón de la Liga 3! Sport Huancayo se coronó en ‘La Incontrastable’ y ascendió a Liga 2**: [Link](https://depor.com/futbol-peruano/sport-huancayo-campeon-de-la-liga-3-y-ascenso-a-la-liga-2-2026-tras-vencer-a-estudiantil-cni-video-noticia/)
+- **Triunfazo del Sport Huancayo en Iquitos y está a un paso de la Liga 2**: [Link](https://diariocorreo.pe/deportes/triunfazo-del-sport-huancayo-en-iquitos-y-esta-a-un-paso-de-la-liga-3-noticia/)
+
+
+### parma - milan (N/A, 08/11/2025 15:23 Lima)
+
+- **Parma-Milan | UFFICIALI: la scelta su Pulisic, Nkunku ed Estupinan**: [Link](https://onefootball.com/it/notizie/parma-milan-ufficiali-la-scelta-su-pulisic-nkunku-ed-estupinan-41924418)
+- **Leao chiarisce le sue condizioni e il rapporto con Allegri: "Contro l'Atalanta non ero al 100%, lui sa come come aiutarmi dentro e fuori dal campo"**: [Link](https://www.calciomercato.com/liste/leao-chiarisce-le-sue-condizioni-e-il-rapporto-con-allegri-contro-l-atalanta-non-ero-al-100-lui-sa-come-come-aiutarmi-dentro-e-fuori-dal-campo/blt2862e55bbabd461e)
+- **Calcio Live News: in campo Parma-Milan (0-0), pari a reti bianche tra Juve e Toro**: [Link](https://www.diretta.it/news/calcio-live-news-in-campo-parma-milan-0-0-pari-a-reti-bianche-tra-juve-e-toro/nTrccDc3/)
+
+
 ### juventus - torino (N/A, 08/11/2025 11:27 Lima)
 
 - **Juve-Torino, diretta: formazioni e risultato in tempo reale. Primo derby per Spalletti e Baroni**: [Link](https://www.tuttosport.com/news/calcio/serie-a/juventus/2025/11/08-144394228/juve-torino_diretta_formazioni_e_risultato_in_tempo_reale_primo_derby_per_spalletti_e_baroni)
@@ -952,75 +1020,5 @@ Sin noticias relacionadas disponibles.
 - **Billie Eilish Calls Out Billionaires While Giving Speech in a Room with Mark Zuckerberg — How Did He React?**: [Link](https://people.com/billie-eilish-calls-out-billionaires-in-room-with-mark-zuckerberg-11840118)
 - **Singer Billie Eilish has urged the ultra-wealthy to donate their money “to some people that need it” at the Wall Street Journal Innovator Awards in New York City. Speaking to an audience that included Meta CEO Mark Zuckerberg and "Star Wars" creator Georg**: [Link](https://www.facebook.com/deutschewellenews/posts/singer-billie-eilish-has-urged-the-ultra-wealthy-to-donate-their-money-to-some-p/1262324639256181/)
 - **Billie Eilish Donates $11.5 Million From ‘Hit Me Hard And Soft Tour’**: [Link](https://news.pollstar.com/2025/11/03/billie-eilish-donates-11-5-million-from-hit-me-hard-and-soft-tour/)
-
-
-### fiscal elizabeth peralta (N/A, 04/11/2025 23:28 Lima)
-
-- **Juez realiza control de identidad a fiscal Elizabeth Peralta**: [Link](https://lpderecho.pe/pj-dispone-ubicacion-captura-nivel-nacional-internacional-elizabeth-peralta/)
-- **Elizabeth Peralta se entrega a la justicia tras orden de captura nacional e internacional**: [Link](https://caretas.pe/politica/elizabeth-peralta-se-entrega-a-la-justicia-tras-orden-de-captura-nacional-e-internacional/)
-- **ANC sanciona con tres meses de suspensión a fiscal Elizabeth Peralta por caso de presunto tráfico de influencias**: [Link](https://elcomercio.pe/lima/elizabeth-peralta-anc-sanciona-con-tres-meses-de-suspension-a-fiscal-por-caso-de-presunto-trafico-de-influencias-ultimas-noticia/)
-
-
-### warriors - suns (N/A, 04/11/2025 23:28 Lima)
-
-- **Game Preview: Suns seek momentum in Bay Area battle**: [Link](https://www.brightsideofthesun.com/suns-game-previews/91892/game-preview-suns-seek-momentum-in-bay-area-battle)
-- **NBA Devin Booker parlay strategy: Use this DraftKings promo code to bet on Suns vs. Warriors tonight**: [Link](https://www.syracuse.com/betting/2025/11/nba-devin-booker-parlay-strategy-use-this-draftkings-promo-code-to-bet-on-suns-vs-warriors-tonight.html)
-- **Best Steph Curry prop bets for Warriors vs. Suns on Tuesday 11/4/25**: [Link](https://dknetwork.draftkings.com/2025/11/04/best-steph-curry-prop-bets-for-warriors-vs-suns-on-tuesday-11-4-25/)
-
-
-### zohran mamdani (N/A, 04/11/2025 23:28 Lima)
-
-- **New York City Mayoral Election Live Results 2025: Mamdani, Cuomo, Sliwa**: [Link](https://www.nytimes.com/interactive/2025/11/04/us/elections/results-new-york-city-mayor.html)
-- **Election day live updates: Zohran Mamdani wins New York mayoral race**: [Link](https://www.bbc.com/news/live/cg51m5emnmvt)
-- **Live NYC mayoral election results: Zohran Mamdani wins over Andrew Cuomo**: [Link](https://www.theguardian.com/us-news/2025/nov/04/nyc-mayoral-election-results-zohran-mamdani-andrew-cuomo-voting-polls)
-
-
-### luna llena noviembre 2025 (N/A, 04/11/2025 23:28 Lima)
-
-- **Cuándo será la Luna llena en noviembre 2025**: [Link](https://www.lanacion.com.ar/estados-unidos/cuando-sera-la-luna-llena-en-noviembre-2025-nid03112025/)
-- **Una lluvia de meteoros, planetas visibles y superlunas: estos son los fenómenos astronómicos de noviembre**: [Link](https://www.nationalgeographicla.com/espacio/2025/11/una-lluvia-de-meteoros-planetas-visibles-y-superlunas-estos-son-los-fenomenos-astronomicos-de-noviembre)
-- **Mantén tus ojos en el cielo: Superluna del Castor y meteoros alumbrarán las noches de noviembre | MAG**: [Link](https://elcomercio.pe/mag/respuestas/ciencias/manten-tus-ojos-en-el-cielo-superluna-del-castor-y-meteoros-alumbraran-las-noches-de-noviembre-nnda-nnni-noticia/)
-
-
-### ldu quito - orense (N/A, 04/11/2025 23:28 Lima)
-
-- **Liga de Quito pasó la prueba ante Orense tras sufrir una dura eliminación en la Libertadores**: [Link](https://www.espn.com.ar/futbol/ecuador/nota/_/id/15916655/liga-de-quito-paso-la-prueba-ante-orense-tras-sufrir-una-dura-eliminacion-en-la-libertadores)
-- **Así quedaron las tablas de LigaPro tras la fecha 4**: [Link](https://bolavip.com/futbol-ecuador/asi-quedaron-las-tablas-de-ligapro-tras-la-fecha-4)
-- **El gol de Jeison Medina para sellar el 4-0 de Liga de Quito**: [Link](https://www.ole.com.ar/ecuador/gol-jeison-medina-sellar-4-0-liga-quito_3_oyJmrQQ6RD.html)
-
-
-### sbs (N/A, 04/11/2025 20:56 Lima)
-
-- **Reserve Bank of Australia Leaves Rates Steady as Inflation Risks Simmer**: [Link](https://www.wsj.com/articles/reserve-bank-of-australia-leaves-rates-steady-as-inflation-risks-simmer-c31339f0?gaa_at=eafs&gaa_n=AWEtsqd1l53iGNvemphoq3W7BZPHAeBCXm2qb9MrSPMzCBaTeCJeitZ-XTpN&gaa_ts=690ab244&gaa_sig=zUYDSZuCMNX80vO5d8Vo7-UAx3wk2mg3FOaAzDJKgx0Z39XYvvL5HCWC95WKRhgu3PkvJnXNFtxwjnQTgo5t6A%3D%3D)
-- **The RBA governor resorts to sport cliches on interest rates while stretched Australians try to keep up with costs**: [Link](https://www.theguardian.com/australia-news/2025/nov/04/the-rba-governor-resorts-to-sport-cliches-on-interest-rates-while-stretched-australians-try-to-keep-up-with-costs)
-- **Buyers, borrowers and sellers face tough property year after RBA holds**: [Link](https://www.realestate.com.au/news/buyers-borrowers-and-sellers-face-tough-property-year-after-rba-holds/)
-
-
-### luna llena (N/A, 04/11/2025 20:56 Lima)
-
-- **Cuándo será la Luna llena en noviembre 2025**: [Link](https://www.lanacion.com.ar/estados-unidos/cuando-sera-la-luna-llena-en-noviembre-2025-nid03112025/)
-- **Una lluvia de meteoros, planetas visibles y superlunas: estos son los fenómenos astronómicos de noviembre**: [Link](https://www.nationalgeographicla.com/espacio/2025/11/una-lluvia-de-meteoros-planetas-visibles-y-superlunas-estos-son-los-fenomenos-astronomicos-de-noviembre)
-- **La superluna de noviembre 2025 será la más brillante y cercana del año: cómo observarla**: [Link](https://www.infobae.com/america/ciencia-america/2025/11/04/la-superluna-de-noviembre-2025-sera-la-mas-brillante-y-cercana-del-ano-como-observarla/)
-
-
-### retiro afp retiro cronograma (N/A, 04/11/2025 20:56 Lima)
-
-- **Cronograma de retiro AFP: Consulta tu fecha de solicitud y calcula cuándo te depositan**: [Link](https://www.infobae.com/peru/2025/11/04/cronograma-de-retiro-afp-consulta-tu-fecha-de-solicitud-y-calcula-cuando-te-depositan/)
-- **Inicia HOY tu Retiro AFP en LINK: tramita el desembolso en página oficial, según tu DNI**: [Link](https://elcomercio.pe/respuestas/tramites/link-del-octavo-retiro-afp-solicita-tu-desembolso-segun-tu-numero-de-dni-cronograma-retiro-de-afp-tdpe-noticia/)
-- **Peruanos con DNI que terminan en 5, 6 y 7 pueden presentar la solicitud de retiro AFP 2025 en estas fechas de noviembre, según cronograma oficial**: [Link](https://larepublica.pe/economia/2025/11/03/peruanos-con-dni-que-terminan-en-5-6-y-7-pueden-presentar-la-solicitud-de-retiro-afp-2025-en-estas-fechas-de-noviembre-segun-cronograma-oficial-atmp-200217)
-
-
-### gonzalo bueno (N/A, 04/11/2025 20:56 Lima)
-
-- **Gonzalo Bueno se estrenó con triunfo y avanzó en el Challenger Lima 3**: [Link](https://ovacion.pe/noticias/tenis/gonzalo-bueno-se-estreno-triunfo-avanzo-challenger-lima-3)
-- **Ignacio Buse luchó, pero perdió ante Álvaro Guillén Meza en cuartos de final del Challenger de Lima 2025**: [Link](https://rpp.pe/tenis/mas-tenis/hoy-ignacio-buse-vs-guillen-meza-en-vivo-cuartos-final-lima-challenger-2025-a-que-hora-juegan-y-donde-ver-por-tv-via-atp-tour-link-gratis-partidos-de-hoy-noticia-1661763)
-- **Resultados ATP Challenger Lima 2 2025**: [Link](https://canaltenis.com/resultados-atp-challenger-lima-2-2025/)
-
-
-### paro 5 de noviembre (N/A, 04/11/2025 20:56 Lima)
-
-- **Paro de transportistas EN VIVO: Situación del transporte en Lima y Callao y los reclamos a José Jerí por asesinatos y extorsiones**: [Link](https://www.infobae.com/peru/2025/11/04/paro-de-transportistas-en-vivo-situacion-del-transporte-en-lima-callao-y-otros-distritos-por-asesinatos-y-extorsiones-a-empresas/)
-- **¿Tuviste problemas con el tránsito? El MTPE dispuso tolerancia y teletrabajo por el paro**: [Link](https://www.elperuano.pe/noticia/282283-tuviste-problemas-con-el-transito-el-mtpe-dispuso-tolerancia-y-teletrabajo-por-el-paro)
-- **Mininter moviliza 21 buses para apoyar a la ciudadanía durante paro de transportes**: [Link](https://caretas.pe/nacional/mininter-moviliza-21-buses-para-apoyar-a-la-ciudadania-durante-paro-de-transportes/)
 
 
