@@ -1,3 +1,31 @@
+### cruz azul - pumas (N/A, 08/11/2025 23:27 Lima)
+
+- **Cruz Azul vs Pumas: posibles alineaciones de la Jornada 17**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/15928613/cruz-azul-vs-pumas-alineaciones-formaciones-jornada-17-apertura-2025)
+- **⭕ Canal 5 (TUDN) EN VIVO por Internet | mirar partido Cruz Azul-Pumas UNAM GRATIS por tv abierta**: [Link](https://gestion.pe/mix/sports/canal-5-y-tudn-en-vivo-por-internet-como-ver-partido-cruz-azul-vs-pumas-unam-gratis-en-tv-abierta-y-futbol-online-nnda-nnrt-noticia/)
+- **Cruz Azul vs. Pumas hoy en vivo: hora, canal TV y dónde ver transmisión**: [Link](https://elcomercio.pe/deporte-total/mexico/cruz-azul-vs-pumas-en-vivo-hoy-gratis-por-liga-mx-via-futbol-libre-tv-tudn-canal-5-vix-amazon-prime-a-que-hora-juegan-canal-de-transmision-y-donde-ver-por-torneo-apertura-video-noticia/)
+
+
+### bucaramanga - la equidad (N/A, 08/11/2025 23:27 Lima)
+
+- **Pronóstico Atlético Bucaramanga La Equidad - Liga BetPlay 08/11/25**: [Link](https://www.sportytrader.com/es/pronosticos/atletico-bucaramanga-la-equidad-303892/)
+- **Jefferson Mena salvó el arco de Atlético Bucaramanga**: [Link](https://www.winsports.co/futbol-colombiano/noticias/jefferson-mena-salvo-el-arco-de-atletico-bucaramanga-392050)
+- **Bucaramanga 'rugió' en casa: doblete de Pons selló el 2-1 sobre La Equidad y mantiene vivo el sueño del punto invisible**: [Link](https://metropolitano.com.co/doblete-de-pons-y-triunfo-del-bucaramanga-que-sigue-en-la-pelea/)
+
+
+### la habitación negra (N/A, 08/11/2025 23:27 Lima)
+
+- **“No me estoy victimizando, solo pido una oportunidad”: Yiddá Eslava responde a críticas por video sobre su película**: [Link](https://rpp.pe/famosos/farandula/yidda-eslava-responde-a-criticas-por-su-video-sobre-su-pelicula-la-habitacion-negra-video-noticia-1663025)
+- **Yiddá Eslava culpa a Natalia Otero, amiga de Julián Zucchi, por el frío recibimiento de ‘La Habitación Negra’**: [Link](https://www.infobae.com/peru/2025/11/07/yidda-eslava-culpa-a-natalia-otero-amiga-de-julian-zucchi-por-el-frio-recibimiento-de-la-habitacion-negra/)
+- **"Comadres, ¡salven mi película!": El grito desesperado de Gidda**: [Link](https://www.atv.pe/noticia/comadres-salven-mi-pelicula-el-grito-desesperado-de-gidda/)
+
+
+### temblor hoy (N/A, 08/11/2025 23:27 Lima)
+
+- **Temblor en Perú, hoy 8 de noviembre: magnitud y epicentro del sismo según IGP**: [Link](https://rpp.pe/lima/desastres-naturales/temblor-en-peru-hoy-6-de-noviembre-magnitud-y-epicentro-del-sismo-segun-igp-live-3033)
+- **Sismo en Ica, Tacna y más reportes del IGP: Epicentro y mangitud del temblor en Perú hoy, 8 de noviembre**: [Link](https://elcomercio.pe/peru/epicentro-y-magnitud-del-ultimo-temblor-en-peru-reporte-de-sismos-segun-igp-tdpe-noticia/)
+- **Terremoto moderado mag. 4.0 - Central Peru, jueves 6 nov 2025 a las 17:55 (Hora Lima) - hace 1 hora 5 minutos**: [Link](https://www.volcanodiscovery.com/es/sismos/informe-sismo/22362594/mag4quake-Nov-6-2025-Central-Peru.html)
+
+
 ### león - puebla (N/A, 08/11/2025 20:59 Lima)
 
 - **James cierra la temporada con León en duelo de coleros en México**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/15926944/leon-vs-puebla-fecha-17-liga-mx-equipo-fecha-hora-y-tv-en-vivo)
@@ -992,33 +1020,5 @@ Sin noticias relacionadas disponibles.
 - **Club Brugge vs FC Barcelona: cómo ver el partido por TV y streaming, últimas noticias y pronóstico**: [Link](https://www.si.com/es-us/futbol/club-brugge-vs-fc-barcelona-tv-streaming-5-11-2025)
 - **El posible once del Barça ante el Brujas incluye dos alternativas**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20251105/1002563667/posible-once-barca-brujas-incluye-dos-alternativas.html)
 - **Flick y la convocatoria de Lamine con la Selección: “No es mi problema”**: [Link](https://as.com/futbol/champions/flick-y-la-convocatoria-de-lamine-con-la-seleccion-no-es-mi-problema-f202511-n/)
-
-
-### paro 6 de noviembre (N/A, 05/11/2025 11:32 Lima)
-
-- **¿Se cancela el paro de mercados para mañana 6 de noviembre? Esta es la decisión final del gremio**: [Link](https://www.infobae.com/peru/2025/11/05/se-cancela-el-paro-de-mercados-para-manana-6-de-noviembre-esta-es-la-decision-final-del-gremio/)
-- **Mercados y transportistas paralizarán en la misma semana: Cómo se acatarán estas medidas y quiénes se plegarán**: [Link](https://elcomercio.pe/lima/mercados-y-transportistas-paralizaran-en-la-misma-semana-como-se-acataran-estas-medidas-y-quienes-se-plegaran-mercados-paro-de-mercados-6-de-noviembre-paro-de-transportistas-noticia/)
-- **Suspenden paro nacional de mercados tras acuerdo con el Gobierno**: [Link](https://peru21.pe/lima/suspenden-paro-nacional-de-mercados-tras-acuerdo-con-el-gobierno/)
-
-
-### miss universo 2025 (N/A, 05/11/2025 11:32 Lima)
-
-- **Mr. Nawat rompe en llanto tras escándalo con Miss México y pide perdón en Miss Universo 2025**: [Link](https://www.infobae.com/peru/2025/11/05/mr-nawat-rompe-en-llanto-tras-escandalo-con-miss-mexico-y-pide-perdon-en-miss-universo-2025/)
-- **🔴🔵 Escándalo en Miss Universo 🔥😱 Miss México 2025 ENCARA a directivo del certamen tras recibir fuerte INSULTO ⬇️**: [Link](https://www.facebook.com/Exitosanoticias/posts/-esc%C3%A1ndalo-en-miss-universo-miss-m%C3%A9xico-2025-encara-a-directivo-del-certamen-tra/1267655588730830/)
-- **Miss Universo retira al productor Nawat Itsaragrisil del certamen tras polémica con la mexicana Fátima Bosch**: [Link](https://rpp.pe/famosos/celebridades/miss-universo-2025-raul-rocha-retira-a-nawat-itsaragrisil-del-certamen-tras-insultos-a-fatima-bosch-miss-universo-mexico-noticia-1662482)
-
-
-### feriado noviembre (N/A, 05/11/2025 11:32 Lima)
-
-- **Feriados confirmados: estudiantes y docentes gozarán de estos 4 días libres antes de fin de clases**: [Link](https://elcomercio.pe/respuestas/cuando/feriados-confirmados-estudiantes-y-docentes-gozaran-de-estos-4-dias-libres-antes-de-fin-de-clases-tdpe-noticia/)
-- **Feriados de noviembre 2025 en Perú: ¿cuántos son y qué días son de descanso obligatorio?**: [Link](https://www.infobae.com/peru/2025/10/31/feriados-de-noviembre-2025-en-peru-cuantos-son-y-que-dias-seran-de-descanso-obligatorio/)
-- **Feriado 1 de noviembre: si trabajas ese día sin descanso sustitutorio, te corresponde triple pago**: [Link](https://www.elperuano.pe/noticia/281968-feriado-1-de-noviembre-si-trabajas-ese-dia-sin-descanso-sustitutorio-te-corresponde-triple-pago)
-
-
-### chankas vs alianza lima (N/A, 05/11/2025 11:32 Lima)
-
-- **Alianza Lima tendrá 6 bajas: el posible once 'blanquiazul' ante Los Chankas tras sensibles ausencias [FOTOS]**: [Link](https://rpp.pe/futbol/descentralizado/alianza-lima-vs-los-chankas-el-once-posible-de-gorosito-en-andahuaylas-por-partido-pendiente-torneo-clausura-2025-noticia-1662356)
-- **A qué hora juega Alianza Lima vs Los Chankas HOY: partido en Andahuaylas por fecha pendiente del Torneo Clausura de la Liga 1 2025**: [Link](https://www.infobae.com/peru/deportes/2025/11/04/a-que-hora-juega-alianza-lima-vs-los-chankas-partido-andahuaylas-fecha-9-pendiente-torneo-clausura-2025-horario/)
-- **Liga 1 Max: cómo ver Alianza Lima vs. Chankas por Torneo Clausura de la Liga 1**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/liga-1-max-en-vivo-gratis-ver-futbol-libre-tv-alianza-lima-vs-chankas-hoy-online-por-liga-1-video-noticia/)
 
 
