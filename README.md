@@ -1,3 +1,38 @@
+### ibai (N/A, 09/11/2025 03:27 Lima)
+
+- **Ibai, sobre la mejor hamburguesa del mundo que se cocina en España: «No tengo palabras»**: [Link](https://www.abc.es/espana/comunidad-valenciana/ibai-sobre-mejor-hamburguesa-mundo-cocina-espana-20251106085905-nt.html)
+- **El futuro de Hundred Burgers en manos de Buenavista: ¿alta gastronomía o cadena de hamburguesas?**: [Link](https://www.economiadigital.es/sociedad/futuro-hundred-burgers-buenavista.html)
+- **⁠Ibai prueba la mejor hamburguesa del mundo, que está en España: “Le doy un 10 de 10, no tengo palabras”**: [Link](https://www.larazon.es/videojuegos/ibai-prueba-mejor-hamburguesa-mundo-que-esta-espana-doy-10-10-tengo-palabras_20251106690c7fb55d5dad37ab81fae2.html)
+
+
+### lol (N/A, 09/11/2025 03:27 Lima)
+
+- **League of Legends Worlds 2026 to be hosted in the United States across two cities**: [Link](https://escharts.com/news/league-legends-world-championship-will-return-united-states-2026)
+- **Olympic Sprinter Noah Lyles Can’t Contain Excitement As League of Legends World Championship Heads to US Cities**: [Link](https://www.profootballnetwork.com/olympics/noah-lyles-2026-league-legends-worlds-host-cities/)
+- **League of Legends 2026 World Championship Locations Announced**: [Link](https://www.yahoo.com/news/articles/league-legends-2026-world-championship-090130311.html)
+
+
+### twitch (N/A, 09/11/2025 03:27 Lima)
+
+- **Emiru attack update: Twitch to support nonprofits working to prevent sexual violence, ‘We failed to keep Emiru safe…’ | Hindustan Times**: [Link](https://www.hindustantimes.com/world-news/us-news/emiru-attack-update-twitch-to-support-nonprofits-working-to-prevent-sexual-violence-we-failed-to-keep-emiru-safe-101762652598540.html)
+- **Twitch’s apology for Emiru assault sparks backlash, SmugAlana and fans accuse platform of lying and ignor**: [Link](https://timesofindia.indiatimes.com/world/us-streamers/twitchs-apology-for-emiru-assault-sparks-backlash-smugalana-and-fans-accuse-platform-of-lying-and-ignoring-sexual-assault/articleshow/125193325.cms)
+- **Twitch Issues Another Statement on Emiru TwitchCon Incident**: [Link](https://opencritic.com/news/23396/twitch-issues-another-statement-on-emiru-twitchcon-incident)
+
+
+### t1 vs kt (N/A, 09/11/2025 03:27 Lima)
+
+- **As League of Legends esports celebrates 15 years, its GOAT seeks another title - The Athletic**: [Link](https://www.nytimes.com/athletic/6785538/2025/11/07/league-of-legends-faker-15-years-china/)
+- **Maps, first blood betting picks for T1 vs KT at LoL Worlds 2025**: [Link](https://win.gg/maps-first-blood-betting-picks-t1-kt/)
+- **LoL - Worlds 2025: Bdd vs Faker, Two emperors for one trophy**: [Link](https://www.sheepesports.com/articles/lol-worlds-2025-bdd-vs-faker-two-emperors-for-one-trophy/en)
+
+
+### guillermo del toro (N/A, 09/11/2025 03:27 Lima)
+
+- **El ‘Frankenstein’ de Guillermo del Toro nos pide reconsiderar al monstruo**: [Link](https://www.nytimes.com/es/2025/11/08/espanol/opinion/frankenstein-guillermo-del-toro.html)
+- **Crítica de cine | "Frankenstein": Una fábula de monstruosa calidad**: [Link](https://www.emol.com/noticias/Espectaculos/2025/11/08/1182630/critica-cine-frankenstein-netflix.html)
+- **¿Lo notaste? Así fue el homenaje de Guillermo del Toro a Boris Karloff en “Frankenstein”**: [Link](https://elcomercio.pe/mag/fama/que-ver/frankenstein-el-homenaje-de-guillermo-del-toro-a-boris-karloff-en-la-pelicula-de-netflix-nnda-nnlt-noticia/)
+
+
 ### cruz azul - pumas (N/A, 08/11/2025 23:27 Lima)
 
 - **Cruz Azul vs Pumas: posibles alineaciones de la Jornada 17**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/15928613/cruz-azul-vs-pumas-alineaciones-formaciones-jornada-17-apertura-2025)
@@ -985,40 +1020,5 @@ Sin noticias relacionadas disponibles.
 - **Wiedersehen mit Haaland: BVB gegen seine ehemalige Tormaschine**: [Link](https://www.grenzecho.net/131464/artikel/2025-11-05/wiedersehen-mit-haaland-bvb-gegen-seine-ehemalige-tormaschine)
 - **Grosse Aufgabe für Kobel: Hält das BVB-Abwehrbollwerk auch gegen Manchestester City?**: [Link](https://www.watson.ch/sport/liveticker/377199807-champions-league-manchester-city-gegen-borussia-dortmund-im-liveticker)
 - **Champions League: BVB-Trainer Kovac schwärmt von Man City-Coach Pep: „Gibt keinen, der...“**: [Link](https://www.waz.de/sport/borussia-dortmund/article410389268/bvb-trainer-kovac-schwaermt-von-city-coach-pep-gibt-keinen-der.html)
-
-
-### inter - kairat (N/A, 05/11/2025 15:28 Lima)
-
-- **Champions League line-ups: Inter vs. Kairat Almaty**: [Link](https://football-italia.net/champions-league-line-ups-inter-kairat-almaty/)
-- **✅ Inter-Kairat and Marseille-Atalanta line-ups: Lautaro, Lookman 👀**: [Link](https://ca.sports.yahoo.com/news/inter-kairat-om-atalanta-line-185100519.html)
-- **Kairat holds pre-match training at Milan’s San Siro stadium**: [Link](https://qazinform.com/news/kairat-holds-pre-match-training-at-milans-san-siro-stadium-89559d)
-
-
-### newcastle - athletic (N/A, 05/11/2025 15:28 Lima)
-
-- **Preview:Newcastle vs Athletic Bilbao - prediction, team**: [Link](https://www.sportsmole.co.uk/football/newcastle-united/champions-league/preview/newcastle-vs-athletic-bilbao-prediction-team-news-lineups_585001.html)
-- **Athletic Bilbao fans dance, chant and set off flares on Newcastle's Bigg Market ahead of match**: [Link](https://www.chroniclelive.co.uk/news/north-east-news/gallery/athletic-bilbao-fans-dance-chant-32819629)
-- **Latest. Team news: Howe makes two changes for Athletic Club clash**: [Link](https://www.newcastleunited.com/en/news/team-news-athletic-club-ucl)
-
-
-### ajax vs galatasaray (N/A, 05/11/2025 11:32 Lima)
-
-- **Preview:Ajax vs. Galatasaray - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/ajax/champions-league/preview/ajax-vs-galatasaray-prediction-team-news-lineups_585019.html)
-- **UEFA Champions League: Probable line-ups for Ajax Amsterdam vs Galatasaray**: [Link](https://foot-africa.com/en/news/uefa-champions-league-probable-line-ups-for-ajax-amsterdam-vs-galatasaray-948269/)
-- **Ajax boss John Heitinga needs team to 'stay in the game' against Galatasaray**: [Link](https://www.flashscore.com/news/soccer-champions-league-ajax-boss-john-heitinga-needs-team-to-stay-in-the-game-against-galatasaray/pKQAz3gd/)
-
-
-### xolo maridueña (N/A, 05/11/2025 11:32 Lima)
-
-- **‘One Piece’ Casts Cole Escola As Bon Clay In Season 3**: [Link](https://deadline.com/2025/11/one-piece-cole-escola-bon-clay-1236604228/)
-- **Xolo Maridueña Cast as Portgas D. Ace in ‘One Piece’ Season 3**: [Link](https://www.whats-on-netflix.com/news/xolo-mariduena-cast-as-portgas-d-ace-in-one-piece-season-3/)
-- **Netflix Reveals the Actor Who Plays Ace in One Piece Live-Action TV Series**: [Link](https://beebom.com/netflix-one-piece-live-action-ace-actor-revealed/)
-
-
-### barcelona vs brujas (N/A, 05/11/2025 11:32 Lima)
-
-- **Club Brugge vs FC Barcelona: cómo ver el partido por TV y streaming, últimas noticias y pronóstico**: [Link](https://www.si.com/es-us/futbol/club-brugge-vs-fc-barcelona-tv-streaming-5-11-2025)
-- **El posible once del Barça ante el Brujas incluye dos alternativas**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20251105/1002563667/posible-once-barca-brujas-incluye-dos-alternativas.html)
-- **Flick y la convocatoria de Lamine con la Selección: “No es mi problema”**: [Link](https://as.com/futbol/champions/flick-y-la-convocatoria-de-lamine-con-la-seleccion-no-es-mi-problema-f202511-n/)
 
 
