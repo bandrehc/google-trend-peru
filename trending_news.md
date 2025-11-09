@@ -1,3 +1,73 @@
+### león - puebla (N/A, 08/11/2025 20:59 Lima)
+
+- **James cierra la temporada con León en duelo de coleros en México**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/15926944/leon-vs-puebla-fecha-17-liga-mx-equipo-fecha-hora-y-tv-en-vivo)
+- **Vea EN VIVO el posible último partido de James con León el 8 noviembre**: [Link](https://www.antena2.com/futbol/vea-en-vivo-el-posible-ultimo-partido-de-james-con-leon-el-8-noviembre)
+- **🚨 ¡YA VA A EMPEZAR! 🚨 Esta televisora tendrá el León vs Puebla en la Liga MX HOY 🏆 A esta HORA inicia... 🔥**: [Link](https://www.facebook.com/MilenioDiario/photos/-ya-va-a-empezar-esta-televisora-tendr%C3%A1-el-le%C3%B3n-vs-puebla-en-la-liga-mx-hoy-a-es/1302001441957324/)
+
+
+### apple tv (N/A, 08/11/2025 20:59 Lima)
+
+- **‘Pluribus’ Review: From Many, What?**: [Link](https://www.nytimes.com/2025/11/07/arts/television/pluribus-review.html)
+- **‘Pluribus’ Creator Vince Gilligan Breaks Down Premiere Episodes**: [Link](https://deadline.com/2025/11/pluribus-explainer-vince-gilligan-interview-apple-tv-1236611750/)
+- **Vince Gilligan and Rhea Seehorn Talk About that Wild Bar Sequence in Pluribus (Spoilers)**: [Link](https://editorial.rottentomatoes.com/article/vince-gilligan-rhea-seehorn-talk-pluribus/)
+
+
+### hawks - lakers (N/A, 08/11/2025 20:59 Lima)
+
+- **Three To Watch: Los Angeles Lakers at Atlanta Hawks**: [Link](https://www.nba.com/news/three-to-watch-los-angeles-lakers-at-atlanta-hawks)
+- **Jalen Johnson Injury: Questionable for Saturday**: [Link](https://www.rotowire.com/basketball/headlines/jalen-johnson-injury-questionable-for-saturday-502775)
+- **Hawks' Nickeil Alexander-Walker: Questionable for Saturday**: [Link](https://www.cbssports.com/fantasy/basketball/news/hawks-nickeil-alexander-walker-questionable-for-saturday/)
+
+
+### toluca - américa (N/A, 08/11/2025 20:59 Lima)
+
+- **Toluca vs América: posibles alineaciones de la Jornada 17**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/15927933/toluca-vs-america-alineaciones-formaciones-jornada-17-apertura-2025)
+- **🏟️ VER Canal 5 (TUDN) EN VIVO | Transmisión del América-Toluca EN DIRECTO por TV abierta**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/canal-5-y-tudn-en-vivo-gratis-como-ver-partido-club-america-vs-toluca-por-tv-abierta-y-futbol-online-vix-premium-nnda-nnrt-noticia/)
+- **Liga MX: Club América quiere el liderato del torneo frente a Toluca FC**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-club-america-quiere-el-liderato-del-torneo-frente-a-toluca-fc-noticia-1662895)
+
+
+### inter miami - nashville sc (N/A, 08/11/2025 20:59 Lima)
+
+- **Inter Miami vs Nashville SC LIVE score, MLS Cup Playoffs: Messi in starting lineup; Kick-off at 6:30 AM IST**: [Link](https://sportstar.thehindu.com/football/inter-miami-vs-nashville-sc-live-score-updates-lionel-messi-major-league-soccer-highlights-playoffs-streaming-news/article70258603.ece)
+- **Arsenal waste golden chance in Premier League race, but Sunderland continue to prove they're here to stay**: [Link](https://www.thepress.net/sports/national/arsenal-waste-golden-chance-in-premier-league-race-but-sunderland-continue-to-prove-theyre-here/article_7a98ccd1-3c80-5755-8767-d82f013bc01f.html)
+- **Messi leads Inter Miami vs. Nashville in pivotal Game 3, Silvetti replaces Suarez**: [Link](https://www.miamiherald.com/sports/mls/inter-miami/article312829255.html)
+
+
+### universitario vs alianza lima (N/A, 08/11/2025 20:59 Lima)
+
+- **Entradas Alianza Lima vs Universitario: precios y cómo comprar boletos para final vuelta en Matute por la Liga Femenina 2025**: [Link](https://www.infobae.com/peru/deportes/2025/11/08/entradas-alianza-lima-vs-universitario-precios-y-como-comprar-boletos-para-final-vuelta-en-matute-por-la-liga-femenina-2025/)
+- **Universitario vs Alianza Lima por final ida en América tvGO**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/universitario-vs-alianza-lima-final-ida-america-tvgo-n451627)
+- **Universitario vs Alianza Lima por la final-ida de Liga Femenina: Horario y canal**: [Link](https://peru21.pe/deportes/universitario-vs-alianza-lima-final-en-vivo-america-tv-goles-video-resultado/)
+
+
+### san martín - lanús (N/A, 08/11/2025 20:59 Lima)
+
+- **"Entradas a 200 pesos": un equipo de Primera División convoca a sus hinchas con los precios más bajos del fútbol argentino para llenar su cancha**: [Link](https://www.clarin.com/deportes/entradas-200-pesos-equipo-primera-division-convoca-hinchas-precios-bajos-futbol-argentino-llenar-cancha_0_q3Ps4s4YgT.html)
+- **San Martín vs Lanús hoy: resultado EN VIVO y goles de la Liga Profesional**: [Link](https://www.365scores.com/es/news/san-martin-vs-lanus-resultado-vivo-hoy/)
+- **San Martín de San Juan vs Lanús: estadísticas previas y datos en directo | Liga Profesional Argentina 2025**: [Link](https://as.com/resultados/futbol/argentina/2025/directo/regular_a_15_516807/)
+
+
+### cincinnati - columbus crew (N/A, 08/11/2025 20:59 Lima)
+
+- **Columbus Crew eliminated from MLS Cup playoffs by Hell is Real rival FC Cincinnati: Replay**: [Link](https://www.dispatch.com/story/sports/mls/columbus-crew/2025/11/08/columbus-crew-fc-cincinnati-live-mls-playoff-scores/87167870007/)
+- **Game 3 to decide ‘Hell Is Real’ playoff series between Crew, Cincy**: [Link](https://fieldlevelmedia.com/mls/game-3-to-decide-hell-is-real-playoff-series-between-crew-cincy/)
+- **Brenner scores two goals, Cincinnati beats Crew to advance to East semis**: [Link](https://www.tsn.ca/soccer/article/brenner-scores-two-goals-cincinnati-beats-crew-to-advance-to-east-semis/)
+
+
+### el chavo del 8 (N/A, 08/11/2025 20:59 Lima)
+
+- **Falleció a los 87 años reconocida actriz del elenco de 'El chavo del ocho'**: [Link](https://www.ntn24.com/noticias-entretenimiento/fallecio-a-los-87-anos-reconocida-actriz-del-elenco-de-el-chavo-del-ocho-589154)
+- **Muere Maricarmen Vela, actriz mexicana que trabajó en El Chavo del 8**: [Link](https://www.infobae.com/mexico/2025/11/07/muere-maricarmen-vela-actriz-mexicana-que-trabajo-en-el-chavo-del-8/)
+- **Murió uno de los amores imposibles de don Ramón, en el Chavo del 8**: [Link](https://www.amprensa.com/2025/11/murio-uno-de-los-amores-imposibles-de-don-ramon-en-el-chavo-del-8)
+
+
+### minnesota - seattle sounders (N/A, 08/11/2025 20:59 Lima)
+
+- **Player of the Match: Brenner | Eastern Conference Round One, Game 3**: [Link](https://www.mlssoccer.com/video/player-of-the-match-brenner-eastern-conference-round-one-game-3)
+- **MLS Sounders Minnesota Soccer**: [Link](https://www.chronicleonline.com/sports/soccer/mls-sounders-minnesota-soccer/image_e2fa8d8e-cb89-5c96-bb4f-3d2645cb63ea.html)
+- **Goalkeeper Dayne St. Clair scores winner in PK shootout as Minnesota United eliminates Sounders**: [Link](https://www.thestar.com/sports/soccer/goalkeeper-dayne-st-clair-scores-winner-in-pk-shootout-as-minnesota-united-eliminates-sounders/article_943c416f-92e7-5271-a15e-fac92fe8f90e.html)
+
+
 ### milan (N/A, 08/11/2025 15:23 Lima)
 
 - **Milan y Parma se enfrentan con objetivos opuestos en la Serie A**: [Link](https://www.espn.com.pe/futbol/italia/nota/_/id/15925354/parma-vs-milan-por-la-serie-a-equipo-fecha-hora-y-tv-en-vivo)
@@ -950,75 +1020,5 @@ Sin noticias relacionadas disponibles.
 - **Alianza Lima tendrá 6 bajas: el posible once 'blanquiazul' ante Los Chankas tras sensibles ausencias [FOTOS]**: [Link](https://rpp.pe/futbol/descentralizado/alianza-lima-vs-los-chankas-el-once-posible-de-gorosito-en-andahuaylas-por-partido-pendiente-torneo-clausura-2025-noticia-1662356)
 - **A qué hora juega Alianza Lima vs Los Chankas HOY: partido en Andahuaylas por fecha pendiente del Torneo Clausura de la Liga 1 2025**: [Link](https://www.infobae.com/peru/deportes/2025/11/04/a-que-hora-juega-alianza-lima-vs-los-chankas-partido-andahuaylas-fecha-9-pendiente-torneo-clausura-2025-horario/)
 - **Liga 1 Max: cómo ver Alianza Lima vs. Chankas por Torneo Clausura de la Liga 1**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/liga-1-max-en-vivo-gratis-ver-futbol-libre-tv-alianza-lima-vs-chankas-hoy-online-por-liga-1-video-noticia/)
-
-
-### guns n roses peru (N/A, 05/11/2025 11:32 Lima)
-
-- **Guns N’ Roses en Lima: accesos, horarios, setlist y más para su concierto en el Estadio Nacional**: [Link](https://www.infobae.com/peru/2025/11/04/guns-n-roses-en-lima-accesos-horarios-setlist-y-mas-para-su-concierto-en-el-estadio-nacional/)
-- **Guns N’ Roses encenderá Lima esta noche en el Estadio Nacional**: [Link](https://caretas.pe/entretenimiento/guns-n-roses-encendera-lima-esta-noche-en-el-estadio-nacional/)
-- **Guns N’ Roses llegará a Lima para su esperado concierto en el Estadio Nacional de Lima**: [Link](https://elcomercio.pe/luces/musica/guns-n-roses-llegara-a-lima-para-su-esperado-concierto-en-el-estadio-nacional-de-lima-celebs-ultimas-noticia/)
-
-
-### concierto guns and roses (N/A, 05/11/2025 07:52 Lima)
-
-- **Guns N’ Roses en Lima: el setlist, horarios y lo que se sabe sobre su concierto en el Estadio Nacional**: [Link](https://rpp.pe/musica/conciertos/guns-n-roses-en-lima-setlist-horarios-y-todo-lo-que-necesitas-saber-sobre-su-concierto-en-el-estadio-nacional-noticia-1662194)
-- **Guns N’ Roses llegará a Lima para su esperado concierto en el Estadio Nacional de Lima**: [Link](https://elcomercio.pe/luces/musica/guns-n-roses-llegara-a-lima-para-su-esperado-concierto-en-el-estadio-nacional-de-lima-celebs-ultimas-noticia/)
-- **Guns N’ Roses y una noche de rock inmortal en Estadio GNP Seguros**: [Link](https://freim.tv/guns-n-roses-y-una-noche-de-rock-inmortal-en-estadio-gnp-seguros/)
-
-
-### reo contumaz (N/A, 05/11/2025 07:52 Lima)
-
-- **PJ decide no declarar reo contumaz a Betssy Chávez y continuar con el juicio hasta su sentencia**: [Link](https://www.infobae.com/peru/2025/11/04/pj-decide-no-declarar-reo-contumaz-a-betssy-chavez-y-continuar-con-el-juicio-hasta-su-sentencia/)
-- **Crónica de una fuga anunciada | Richard Arce**: [Link](https://peru21.pe/opinion/cronica-de-una-fuga-anunciada-richard-arce/)
-- **Poder Judicial desestimó declarar reo contumaz a Betssy Chávez y dispuso continuar el juicio oral**: [Link](https://rpp.pe/politica/judiciales/betssy-chavez-poder-judicial-desestimo-declarar-la-contumacia-y-dispuso-continuar-el-juicio-oral-noticia-1662347)
-
-
-### dia del trabajador municipal (N/A, 05/11/2025 07:52 Lima)
-
-- **¿En qué partes del Perú será día NO laborable este miércoles 5 de noviembre 2025?**: [Link](https://elcomercio.pe/respuestas/que/en-que-partes-del-peru-sera-dia-no-laborable-este-5-de-noviembre-2025-tdpe-noticia/)
-- **Día del Trabajador Municipal en Perú 2025: frases y mensajes para la fecha**: [Link](https://libero.pe/tiempoextra/2025/11/04/dia-del-trabajador-municipal-en-peru-2025-frases-mensajes-fecha-181244)
-- **¿Confirman feriado largo hasta el viernes 07 de noviembre a nivel nacional? Esto señala El Peruano**: [Link](https://elpopular.pe/actualidad/2025/11/03/confirman-feriado-largo-hasta-el-viernes-07-de-noviembre-a-nivel-nacional-esto-senala-el-peruano-248811)
-
-
-### 5 de noviembre (N/A, 05/11/2025 07:52 Lima)
-
-- **Horóscopo diario, 5 de noviembre de 2025**: [Link](https://www.elcorreo.com/sociedad/horoscopos/horoscopo-diario-5-noviembre-2025-consulta-prediccion-amor-trabajo-20251105013000-nt.html)
-- **Horóscopo de hoy, miércoles 5 de noviembre: Lee aquí las predicciones para tu signo**: [Link](https://elcomercio.pe/luces/vida-social/horoscopo-de-hoy-miercoles-5-de-noviembre-lee-aqui-las-predicciones-para-tu-signo-noticia/)
-- **Miércoles 5 de noviembre. Horóscopo de hoy sobre salud, amor y trabajo. Tu predicción diaria gratis**: [Link](https://www.lecturas.com/horoscopo/miercoles-5-noviembre-horoscopo-hoy-sobre-salud-amor-y-trabajo-tu-prediccion-diaria-gratis_183867)
-
-
-### la tinka (N/A, 05/11/2025 07:52 Lima)
-
-- **Sorteo de La Tinka: video de la jugada ganadora y resultados del domingo 2 de noviembre del 2025**: [Link](https://www.infobae.com/peru/2025/11/03/resultados-de-la-tinka-del-2-de-noviembre-de-2025/)
-- **Policía ayuda a madre que no podía subir a bus con su hijo trasplantado de riñón**: [Link](https://elcomercio.pe/videos/pais/madre-de-ucayali-recibe-apoyo-policial-para-llevar-a-su-hijo-trasplantado-de-rinon-al-hospital-del-nino-paro-de-transportistas-nnav-amtv-video-noticia/)
-- **La Tinka sobre sus puntos de venta: "Nos acercamos cada vez más a los tinkeros”**: [Link](https://cclconectados.com/resultados-de-la-tinka-la-loteria-amplia-sus-puntos-de-venta-para-que-mas-peruanos-puedan-ganar-ccl-asociado/)
-
-
-### amazon (N/A, 05/11/2025 03:33 Lima)
-
-- **Amazon Sues to Stop Perplexity From Using AI Tool to Buy Stuff**: [Link](https://finance.yahoo.com/news/amazon-demands-perplexity-stop-ai-185535636.html)
-- **Perplexity AI accuses Amazon of bullying with legal threat over Comet browser**: [Link](https://www.cnbc.com/2025/11/04/perplexity-ai-amazon-bullying-comet-browser.html)
-- **Amazon sues Perplexity over 'agentic' shopping tool**: [Link](https://www.reuters.com/business/retail-consumer/perplexity-receives-legal-threat-amazon-over-agentic-ai-shopping-tool-2025-11-04/)
-
-
-### clippers - thunder (N/A, 05/11/2025 03:33 Lima)
-
-- **Thunder vs Clippers Prediction, Picks & Odds for Tonight’s NBA Game**: [Link](https://www.covers.com/nba/thunder-vs-clippers-prediction-picks-best-bets-sgp-tuesday-11-04-2025)
-- **Thunder roll Clippers to stay unbeaten as Shai Gilgeous-Alexander keeps streak alive**: [Link](https://www.straitstimes.com/sport/basketball/thunder-roll-clippers-to-stay-unbeaten-as-shai-gilgeous-alexander-keeps-streak-alive)
-- **Thunder keep it rolling against Clippers**: [Link](https://www.nbcsports.com/watch/nba/oklahoma-city-thunder-keep-it-rolling-against-los-angeles-clippers)
-
-
-### ignacio buse (N/A, 05/11/2025 03:33 Lima)
-
-- **¡A paso firme! Buse, Bueno y Varillas se meten a los octavos de final del Challenger Lima 3**: [Link](https://elcomercio.pe/deporte-total/polideportivo/a-paso-firme-buse-bueno-y-varillas-avanzan-a-los-octavos-de-final-del-challenger-lima-3-tenis-noticia/)
-- **Juan Pablo Varillas vs Román Burruchaga EN VIVO: se enfrentan por octavos de final del Challenger Lima 3**: [Link](https://rpp.pe/tenis/mas-tenis/juan-pablo-varillas-vs-roman-burruchaga-en-vivo-octavos-final-challenger-lima-3-a-que-hora-juegan-y-donde-ver-por-tv-via-atp-tour-link-gratis-partidos-de-hoy-noticia-1662446)
-- **Juan Pablo Varillas tuvo inicio triunfal en el Challenger Lima 3 al ganar al argentino Gómez**: [Link](https://www.apnoticias.pe/peru/diario-uno/juan-pablo-varillas-tuvo-inicio-triunfal-en-el-challenger-lima-3-al-ganar-al-argentino-gomez-1467493)
-
-
-### billie eilish (N/A, 04/11/2025 23:28 Lima)
-
-- **Billie Eilish Calls Out Billionaires While Giving Speech in a Room with Mark Zuckerberg — How Did He React?**: [Link](https://people.com/billie-eilish-calls-out-billionaires-in-room-with-mark-zuckerberg-11840118)
-- **Singer Billie Eilish has urged the ultra-wealthy to donate their money “to some people that need it” at the Wall Street Journal Innovator Awards in New York City. Speaking to an audience that included Meta CEO Mark Zuckerberg and "Star Wars" creator Georg**: [Link](https://www.facebook.com/deutschewellenews/posts/singer-billie-eilish-has-urged-the-ultra-wealthy-to-donate-their-money-to-some-p/1262324639256181/)
-- **Billie Eilish Donates $11.5 Million From ‘Hit Me Hard And Soft Tour’**: [Link](https://news.pollstar.com/2025/11/03/billie-eilish-donates-11-5-million-from-hit-me-hard-and-soft-tour/)
 
 
