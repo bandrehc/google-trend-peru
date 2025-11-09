@@ -1,3 +1,72 @@
+### feyenoord vs (N/A, 09/11/2025 15:23 Lima)
+
+- **Pronóstico Go Ahead Eagles - Feyenoord. Eredivisie | 09/11/2025**: [Link](https://gainblers.com/pe/pronosticos/futbol/holanda/eredivisie/pronostico-go-ahead-eagles-feyenoord-09-11-2025/)
+- **Preview:Go Ahead Eagles vs Feyenoord - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/feyenoord/preview/go-ahead-eagles-vs-feyenoord-prediction-team-news-lineups_585321.html)
+
+
+### alianza atlético - alianza universidad (N/A, 09/11/2025 15:23 Lima)
+
+- **Alianza Atlético vs Alianza Universidad: a qué hora juegan y dónd ver EN VIVO el Torneo Clausura**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/alianza-atletico-vs-alianza-universidad-en-vivo-horario-y-donde-ver-el-torneo-clausura-canal-tv-video-resumen-y-goles-l1max-l1play-tdpe-noticia/)
+- **Liga 1: Alianza Universidad se enfrentará a Alianza Atlético por la fecha 18**: [Link](https://rpp.pe/futbol/descentralizado/liga-1-alianza-universidad-se-enfrentara-a-alianza-atletico-por-la-fecha-18-noticia-1663013)
+- **La fecha 18 del Torneo Clausura es crucial para Alianza Universidad**: [Link](https://tudiariohuanuco.pe/deporte/la-fecha-18-del-torneo-clausura-es-crucial-para-alianza-universidad/)
+
+
+### el nacional - emelec (N/A, 09/11/2025 15:23 Lima)
+
+- **Pronóstico El Nacional Emelec - Liga Pro Ecuador 09/11/25**: [Link](https://www.sportytrader.com/es/pronosticos/el-nacional-quito-emelec-303551/)
+- **El Nacional recibe a Emelec por la Liga Ecuabet**: [Link](https://www.espn.com.ar/futbol/ecuador/nota/_/id/15923623/el-nacional-vs-emelec-por-la-liga-ecuabet-equipo-fecha-hora-y-tv-en-vivo)
+- **Previa: El Nacional vs. Emelec por la LigaPro**: [Link](https://revistawinner.ec/previa-el-nacional-vs-emelec-por-la-ligapro/)
+
+
+### u. de chile - deportes limache (N/A, 09/11/2025 15:23 Lima)
+
+- **Universidad de Chile desafía a Deportes Limache en choque de realidades opuestas en la Liga de Primera 2025**: [Link](https://www.espn.com.ar/futbol/chile/nota/_/id/15924161/universidad-de-chile-vs-limache-fecha-27-liga-de-primera-2025-equipo-fecha-y-hora)
+- **Sorpresa en la U: Universidad de Chile confirma su formación ante Deportes Limache**: [Link](https://bolavip.com/cl/udechile/sorpresa-en-la-u-universidad-de-chile-confirma-su-formacion-ante-deportes-limache)
+- **Gustavo Álvarez no deja nada al azar: inédita medida para evitar más lesiones en la U de Chile**: [Link](https://www.alairelibre.cl/futbol/campeonato-nacional/inedita-medida-para-evitar-lesiones-u-de-chile/)
+
+
+### benfica - casa pia (N/A, 09/11/2025 15:23 Lima)
+
+- **O onze do Benfica para o jogo com o Casa Pia: duas alterações nas águias**: [Link](https://sapo.pt/artigo/o-onze-do-benfica-para-o-jogo-com-o-casa-pia-duas-alteracoes-nas-aguias-6910ec797fea09c0633d328f)
+- **José Mourinho à caça de registo de Bruno Lage**: [Link](https://www.record.pt/futebol/futebol-nacional/liga-betclic/benfica/detalhe/jose-mourinho-a-caca-de-registo-de-bruno-lage)
+- **Capitão de fora e Dahl titular: os onzes prováveis para o Benfica-Casa Pia**: [Link](https://tvi.iol.pt/noticias/liga/benfica/capitao-de-fora-e-dahl-titular-os-onzes-provaveis-para-o-benfica-casa-pia)
+
+
+### corinthians vs (N/A, 09/11/2025 15:23 Lima)
+
+- **Pronóstico Corinthians Ceara SC CE - Brasileirão Serie A 09/11/25**: [Link](https://www.sportytrader.com/es/pronosticos/corinthians-ceara-ce-304300/)
+- **Corinthians SP vs Ceará - CE pronostico y comparación de cuotas 09.11.2025**: [Link](https://www.livetipsportal.com/es/pronosticos-apuestas-deportivas/corinthians-sp-vs-ceara-ce-serie-a-10963361/)
+- **Ao vivo: Corinthians x Ceará | Rodada 33 | Campeonato Brasileiro**: [Link](https://ge.globo.com/sp/futebol/brasileirao-serie-a/jogo/09-11-2025/corinthians-ceara.ghtml)
+
+
+### river (N/A, 09/11/2025 15:23 Lima)
+
+- **County taps National City nonprofit to manage Tijuana River Community Garden**: [Link](https://www.kpbs.org/news/environment/2025/11/07/county-taps-national-city-nonprofit-to-manage-tijuana-river-community-garden)
+- **County Secures New TJRV Garden Operator**: [Link](https://www.countynewscenter.com/county-secures-new-tjrv-garden-operator/)
+- **County selects nonprofit to oversee Tijuana River Valley Community Garden**: [Link](https://fox5sandiego.com/news/olivewood-gardens-takes-over/)
+
+
+### go ahead eagles - feyenoord (N/A, 09/11/2025 15:23 Lima)
+
+- **Live Eredivisie | Feyenoord snel op achterstand na penalty Go Ahead**: [Link](https://www.nu.nl/voetbal/6375344/live-eredivisie-feyenoord-snel-op-achterstand-na-penalty-go-ahead.html)
+- **Van Persie zag concurrent 'verwacht' verliezen: 'Niet schokkends'**: [Link](https://www.voetbalprimeur.nl/nieuws/1710418/robin-van-persie-trots-op-luciano-valente-en-cyle-larin.html)
+- **Eagles op voorsprong tegen Feyenoord • Kan invaller Steijn het omkeren?**: [Link](https://nos.nl/liveblog/2589767-eagles-op-voorsprong-tegen-feyenoord-kan-invaller-steijn-het-omkeren)
+
+
+### frankfurt fc (N/A, 09/11/2025 15:23 Lima)
+
+- **Preview:Frankfurt vs Mainz - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/eintracht-frankfurt/preview/frankfurt-vs-mainz-prediction-team-news-lineups_585393.html)
+- **Nadiem Amiri vs. Eintracht Frankfurt – Player props & odds to score a goal on November 9**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/11/09/nadiem-amiri-soccer-player-props-11-9-2025/87179473007/)
+- **Matchday in focus: 1. FSV Mainz 05**: [Link](https://onefootball.com/it/notizie/matchday-in-focus-1-fsv-mainz-05-41926165)
+
+
+### once caldas - pasto (N/A, 09/11/2025 15:23 Lima)
+
+- **Pronóstico Once Caldas Deportivo Pasto - Liga BetPlay 09/11/25**: [Link](https://www.sportytrader.com/es/pronosticos/once-caldas-deportivo-pasto-304333/)
+- **Medidas de seguridad para el partido entre Once Calds y Deportivo Pasto**: [Link](https://caracol.com.co/2025/11/09/medidas-de-seguridad-para-el-partido-entre-once-calds-y-deportivo-pasto/)
+- **Once Caldas juega ante Deportivo Pasto: ¿despedida como local de la Liga o un paso más a las semifinales?**: [Link](https://www.lapatria.com/deportes/once-caldas-juega-ante-deportivo-pasto-despedida-como-local-de-la-liga-o-un-paso-mas-hacia)
+
+
 ### copa peru (N/A, 09/11/2025 11:26 Lima)
 
 - **ASA FC vs Unión Minas EN VIVO: Sigue la final de la Zona Norte de la Copa Perú 2025**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/union-minas-vs-asa-fc-en-vivo-por-la-final-de-la-zona-norte-de-la-copa-peru-2025-transmision-resumen-y-goles-tdpe-noticia/)
@@ -955,72 +1024,5 @@ Sin noticias relacionadas disponibles.
 - **TRT 1 Canlı İzle 6 Kasım: Viktoria Plzen - Fenerbahçe FB maçı tabii spor canlı yayın izle! Fenerbahçe Avrupa'da galibiyet arıyor**: [Link](https://www.yenisafak.com/foto-galeri/ozgun/trt-1-canli-izle-6-kasim-viktoria-plzen-fenerbahce-fb-maci-tabii-spor-canli-yayin-izle-fenerbahce-avrupada-galibiyet-ariyor-4766213)
 - **Domenico Tedesco'dan kadro tercihi açıklaması!**: [Link](https://beinsports.com.tr/haber/domenico-tedesco-viktoria-plzen-maci-oncesi-konustu)
 - **Viktoria Plzeň–Fenerbahçe maç kadrosu: Viktoria Plzeň–Fenerbahçe maçı ilk 11'ler belli oldu!**: [Link](https://www.yirmidort.tv/spor/viktoria-plzenfenerbahce-mac-kadrosu-viktoria-plzenfenerbahce-maci-ilk-11ler-belli-oldu-247841)
-
-
-### stuttgart - feyenoord (N/A, 06/11/2025 15:27 Lima)
-
-- **“Make the most of our good home form”**: [Link](https://www.vfb.de/en/vfb/latest/news/professionals/2526/pressekonferenz-vor-vfb-stuttgart---rotterdam-/)
-- **Confirmed lineups: VfB Stuttgart vs. Feyenoord**: [Link](https://bulinews.com/confirmed-lineups-vfb-stuttgart-feyenoord)
-- **Stuttgart back on continental trail**: [Link](https://www.bundesliga.com/en/bundesliga/news/stuttgart-feyenoord-live-europa-league-preview-van-persie-ueda-timber-34592)
-
-
-### aryna sabalenka (N/A, 06/11/2025 11:33 Lima)
-
-- **WTA Finals Day 6 Preview: Three players, two spots, one last push for the semifinals**: [Link](https://www.wtatennis.com/news/4396400/wta-finals-day-6-preview-sabalenka-gauff-and-pegula-vie-for-semifinal-berths)
-- **WTA Masters Cup Aryna Sabalenka vs Coco Gauff 🧠 Form & Context Aryna Sabalenka (#1, BLR) 2025: 62–11 | Hard 35–6 | Indoors 3–0 Group stage: d. Paolini 6–3, 6–1; d. Pegula 6–4, 2–6, 6–3. Momentum: Multiple 2025 titles; bounced back from Wuhan SF**: [Link](https://x.com/Probahis/status/1986258055068045582)
-- **How to watch Aryna Sabalenka v Coco Gauff**: [Link](https://news.bet365.com/en-gb/article/how-to-watch-aryna-sabalenka-v-coco-gauff/2025110608313812580)
-
-
-### reniec dni gratis (N/A, 06/11/2025 11:33 Lima)
-
-- **Trámite de DNI electrónico gratis para este 10 y 11 de noviembre: conoce dónde y quiénes son los beneficiarios**: [Link](https://www.infobae.com/peru/2025/11/05/tramite-de-dni-electronico-gratis-para-este-10-y-11-de-noviembre-conoce-donde-y-quienes-son-los-beneficiarios/)
-- **¡Aprovecha! DNI electrónico tiene este costo especial para tramitarlo en noviembre 2025: así puedes acceder a este beneficio**: [Link](https://elcomercio.pe/respuestas/tramites/aprovecha-dni-electronico-tiene-este-costo-especial-para-tramitarlo-en-noviembre-2025-mira-aqui-como-acceder-a-este-beneficio-tdpe-noticia/)
-- **Peruanos pagan menos por el nuevo DNI electrónico en 2025, pero deben cumplir este único requisito, vía Reniec: ya no se emitirá el DNI azul**: [Link](https://larepublica.pe/sociedad/2025/11/05/peruanos-pagan-menos-por-el-nuevo-dni-electronico-en-2025-pero-deben-cumplir-este-unico-requisito-via-reniec-ya-no-se-emitira-el-dni-azul-atmp-60272)
-
-
-### radio exitosa en vivo (N/A, 06/11/2025 07:51 Lima)
-
-Sin noticias relacionadas disponibles.
-
-
-### setlist guns n roses 2025 (N/A, 06/11/2025 07:51 Lima)
-
-- **Guns N’ Roses en Lima: accesos, horarios, setlist y más para su concierto en el Estadio Nacional**: [Link](https://www.infobae.com/peru/2025/11/04/guns-n-roses-en-lima-accesos-horarios-setlist-y-mas-para-su-concierto-en-el-estadio-nacional/)
-- **Guns N’ Roses llegará a Lima para su esperado concierto en el Estadio Nacional de Lima**: [Link](https://elcomercio.pe/luces/musica/guns-n-roses-llegara-a-lima-para-su-esperado-concierto-en-el-estadio-nacional-de-lima-celebs-ultimas-noticia/)
-- **Guns N’ Roses encenderá Lima esta noche en el Estadio Nacional**: [Link](https://caretas.pe/entretenimiento/guns-n-roses-encendera-lima-esta-noche-en-el-estadio-nacional/)
-
-
-### hay paro de transportistas (N/A, 06/11/2025 03:33 Lima)
-
-- **¿Tuviste problemas con el tránsito? El MTPE dispuso tolerancia y teletrabajo por el paro**: [Link](https://elperuano.pe/noticia/282283-tuviste-problemas-con-el-transito-el-mtpe-dispuso-tolerancia-y-teletrabajo-por-el-paro)
-- **Paro de transporte: dirigentes se reúnen con el gobierno y generan fuerte división en todo el sector amenazado por la extorsión**: [Link](https://elcomercio.pe/lima/sucesos/paro-de-transporte-dirigentes-se-reunen-con-el-gobierno-y-generan-fuerte-division-en-las-todo-el-sector-amenazado-por-la-extorsion-noticia/)
-- **Paro de transportistas: combis y colectivos informales cubren la demanda en las primeras horas de la paralización**: [Link](https://rpp.pe/lima/actualidad/paro-de-transportistas-combis-y-colectivos-informales-cubren-la-demanda-en-las-primeras-horas-de-la-paralizacion-noticia-1662287)
-
-
-### nba (N/A, 06/11/2025 03:33 Lima)
-
-- **The Bounce: Pelicans, Grizzlies having tough times to start this NBA season**: [Link](https://www.nytimes.com/athletic/6773513/2025/11/03/ja-morant-grizzlies-zion-williamson-pelicans-the-bounce/)
-- **Every NBA Team's Biggest Problem Right Now**: [Link](https://bleacherreport.com/articles/25279682-every-nba-teams-biggest-problem-right-now)
-- **Mavs, Warriors, Knicks Unconvincing Out of the Gate**: [Link](https://theleadsm.com/mavs-warriors-knicks-unconvincing-out-of-the-gate/)
-
-
-### cesar combina reo contumaz (N/A, 06/11/2025 03:33 Lima)
-
-- **Poder Judicial declara reo contumaz a César Combina tras no acudir a juicio que afronta por presunta difamación**: [Link](https://rpp.pe/lima/judiciales/cesar-combina-poder-judicial-lo-declara-reo-contumaz-tras-no-acudir-a-juicio-que-afronta-por-presunta-difamacion-noticia-1662554)
-- **PJ ordena la ubicación y captura de César Combina por no presentarse a juicio por presunta difamación**: [Link](https://www.infobae.com/peru/2025/11/05/pj-ordena-la-ubicacion-y-captura-de-cesar-combina-por-no-presentarse-a-juicio-por-presunta-difamacion/)
-- **PJ declara reo contumaz a César Combina por no asistir a audiencia en caso por difamación**: [Link](https://elcomercio.pe/politica/pj-declara-reo-contumaz-a-cesar-combina-por-no-asistir-a-audiencia-en-caso-por-difamacion-ultimas-noticia/)
-
-
-### natalia lafourcade (N/A, 05/11/2025 23:31 Lima)
-
-- **"Cancionera Tour": Natalia Lafourcade llegará a Montevideo para presentar su nuevo disco**: [Link](https://www.montevideo.com.uy/Tiempo-libre/-Cancionera-Tour--Natalia-Lafourcade-llegara-a-Montevideo-para-presentar-su-nuevo-disco-uc941961)
-- **Natalia Lafourcade en Chile - Cancionera Tour en el Movistar Arena de Santiago, 22 de mayo de 2026**: [Link](https://walkingstgo.cl/natalia-lafourcade-en-chile-cancionera-tour-en-el-movistar-arena-de-santiago-22-de-mayo-de-2026/)
-
-
-### sabrina carpenter (N/A, 05/11/2025 23:31 Lima)
-
-- **Watch: Nicole Kidman and Keith Urban's daughter reacts to mom's arrest at Sabrina Carpenter concert**: [Link](https://www.hellomagazine.com/healthandbeauty/mother-and-baby/865883/nicole-kidman-keith-urban-daughter-reaction-arrest-sabrina-carpenter-video/)
-- **Short n Sweet Tour | Celebrity News and Gossip | Entertainment, Photos and Videos**: [Link](https://www.justjared.com/tags/short-n-sweet-tour/)
-- **Nicole Kidman's Daughter Sunday Rose Shares Hilarious Text from Mom Before Getting 'Arrested' by Sabrina Carpenter**: [Link](https://people.com/sunday-rose-shares-text-from-nicole-kidman-just-before-she-was-arrested-11843888)
 
 
