@@ -1,3 +1,73 @@
+### copa peru (N/A, 09/11/2025 11:26 Lima)
+
+- **ASA FC vs Unión Minas EN VIVO: Sigue la final de la Zona Norte de la Copa Perú 2025**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/union-minas-vs-asa-fc-en-vivo-por-la-final-de-la-zona-norte-de-la-copa-peru-2025-transmision-resumen-y-goles-tdpe-noticia/)
+- **ASA FC vs Unión Minas en vivo por la Copa Perú 2025: Transmisión en directo del partido**: [Link](https://www.futbolperuano.com/en-vivo/copa-peru-2025-asa-fc-vs-union-minas-en-vivo-550513)
+- **ASA FC vs. Unión Minas EN VIVO vía DyJ Sports por final de Zona Norte en Copa Perú 2025**: [Link](https://depor.com/futbol-peruano/segunda-division/asa-fc-vs-union-minas-en-vivo-hoy-gratis-fpf-youtube-futbol-libre-tv-donde-ver-partido-y-transmision-en-directo-online-y-resultado-goles-y-resumen-zona-norte-copa-peru-2025-video-noticia/)
+
+
+### az - psv (N/A, 09/11/2025 11:26 Lima)
+
+- **LIVE | Nog steeds geen basisplek voor Pepi bij PSV, dat voor zware beproeving in Alkmaar staat**: [Link](https://www.ed.nl/psv/live-nog-steeds-geen-basisplek-voor-pepi-bij-psv-dat-voor-zware-beproeving-in-alkmaar-staat~a6419bfb/)
+- **🔴 AZ maakt de achterstand iets draaglijker • Grim-effect blijft uit bij Ajax**: [Link](https://www.nhnieuws.nl/nieuws/354185/az-maakt-de-achterstand-iets-draaglijker-grim-effect-blijft-uit-bij-ajax)
+- **Zien: Owusu-Oduro geeft enorme ziekenhuisbal en wordt gepasseerd door Mauro Júnior**: [Link](https://www.voetbalprimeur.nl/videos/1710361/zien-owusu-oduro-geeft-enorme-ziekenhuisbal-en-wordt-gepasseerd-door-mauro-j-nior.html)
+
+
+### real madrid versus (N/A, 09/11/2025 11:26 Lima)
+
+- **Rayo Vallecano v Real Madrid: Kylian Mbappe and Jude Bellingham start**: [Link](https://www.bbc.com/sport/football/live/c0l7xx1kjwzt)
+- **CONFIRMED lineups: Rayo Vallecano vs Real Madrid, 2025 La Liga**: [Link](https://www.managingmadrid.com/100437/rayo-vallecano-vs-real-madrid-2025-la-liga-live-online-stream)
+- **Alonso: Trent 'ready' for Real Madrid start vs. Rayo**: [Link](https://www.espn.com/soccer/story/_/id/46891275/trent-alexander-arnold-ready-real-madrid-start-xabi-alonso)
+
+
+### nuevas medidas estado de emergencia (N/A, 09/11/2025 11:26 Lima)
+
+- **Presidente: medidas aprobadas dan más herramientas para ser firmes contra la delincuencia**: [Link](https://elperuano.pe/noticia/282618-presidente-medidas-aprobadas-dan-mas-herramientas-para-ser-firmes-contra-la-delincuencia)
+- **Gobierno dicta medidas complementarias al estado de emergencia en Lima y Callao [Decreto Supremo 127-2025-PCM]**: [Link](https://lpderecho.pe/dictan-medidas-complementarias-estado-emergencia-lima-callao-decreto-supremo-127-2025-pcm/)
+- **Presidente José Jerí lidera operativo policial en Lima y Santa Anita tras reforzar estado de emergencia**: [Link](https://elcomercio.pe/lima/presidente-jose-jeri-lidera-operativo-policial-en-lima-y-santa-anita-tras-reforzar-estado-de-emergencia-ultimas-noticia/)
+
+
+### manchester city - liverpool (N/A, 09/11/2025 11:26 Lima)
+
+- **Preview:Man City vs Liverpool - prediction, team news**: [Link](https://www.sportsmole.co.uk/football/man-city/preview/man-city-vs-liverpool-prediction-team-news-lineups_585354.html)
+- **How Manchester City line up in defence is worth keeping an eye on ahead of today’s match against Liverpool**: [Link](https://esteemedkompany.com/2025/11/09/how-manchester-city-line-up-in-defence-is-worth-keeping-an-eye-on-ahead-of-todays-match-against-liverpool/)
+- **Alan Shearer predicts a draw for Man City vs Liverpool showdown: 'These two have set the pace for so long'**: [Link](https://tribuna.com/en/news/2025-11-09-alan-shearer-predicts-a-draw-for-man-city-vs-liverpool-showdown-these-two-have-set-the-pa/)
+
+
+### atp finals 2025 (N/A, 09/11/2025 11:26 Lima)
+
+- **Alcaraz & Sinner bring rivalry to a boil at Nitto ATP Finals; Zverev chases hat-trick**: [Link](https://www.atptour.com/en/news/nitto-atp-finals-2025-scouting-report)
+- **ATP Finals 2025: Group and Knockout Stage Regulations, Ranking Points, and Everything To Know About How the Year-End Tournament Works**: [Link](https://www.profootballnetwork.com/tennis/atp-finals-2025-group-knockout-stage-regulations-ranking-points-more/)
+- **Where to Watch the ATP Finals: Live Stream the 2025 Tennis Tournament Anywhere**: [Link](https://www.businessinsider.com/guides/streaming/where-to-watch-atp-finals-live-streams-2025)
+
+
+### galatasaray vs (N/A, 09/11/2025 11:26 Lima)
+
+- **Preview:Kocaelispor vs Galatasaray - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/kocaelispor/preview/kocaelispor-vs-galatasaray-prediction-team-news-lineups_585314.html)
+- **Galatasaray aims to maintain lead in Turkish Super Lig with clash against Kocaelispor**: [Link](https://news.ssbcrack.com/galatasaray-aims-to-maintain-lead-in-turkish-super-lig-with-clash-against-kocaelispor/)
+- **Kocaelispor vs Galatasaray Prediction and Betting Tips | November 9th 2025**: [Link](https://www.sportskeeda.com/football/kocaelispor-vs-galatasaray-prediction-betting-tips-november-9th-2025)
+
+
+### rayo vallecano - real madrid (N/A, 09/11/2025 11:26 Lima)
+
+- **Real Madrid-Rayo EN VIVO: cuánto va el partido por LaLiga**: [Link](https://elcomercio.pe/deporte-total/espana/real-madrid-vs-rayo-en-vivo-gratis-hoy-via-futbol-libre-tv-dazn-directv-sky-sports-horarios-canales-y-donde-ver-partido-por-laliga-video-noticia/)
+- **LaLiga EA Sports: Real Madrid quiere mantenerse en la punta del campeonato**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-real-madrid-quiere-mantenerse-en-la-punta-del-campeonato-noticia-1662979)
+- **¿A qué hora juega Real Madrid vs Rayo Vallecano y dónde ver partido por LaLiga?**: [Link](https://libero.pe/futbol-internacional/liga-espanola/2025/11/08/hora-juega-real-madrid-vs-rayo-vallecano-canal-transmite-partido-donde-ver-en-vivo-laliga-395808)
+
+
+### barcelona vs celta de vigo (N/A, 09/11/2025 11:26 Lima)
+
+- **El posible once del Barça ante el Celta, con un cambio obligado y una posible novedad**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20251109/1002566095/posible-once-barca-celta-cambio-obligado-posible-novedad.html)
+- **Alineación posible del Barcelona hoy ante el Celta en LaLiga: la hora de Lewandowski**: [Link](https://as.com/futbol/posible-alineacion-del-barca-ante-el-celta-la-hora-de-lewandowski-f202511-n/)
+- **◉ A qué hora juega FC Barcelona vs. Celta de Vigo EN VIVO por LaLiga EA Sports 2025 en USA, México y España**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/a-que-hora-juega-fc-barcelona-vs-celta-de-vigo-en-vivo-por-laliga-ea-sports-2025-en-usa-mexico-y-espana-nnda-nnse-noticia/)
+
+
+### bolonia - napoli (N/A, 09/11/2025 11:26 Lima)
+
+- **Preview:Bologna vs Napoli - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/bologna/preview/bologna-vs-napoli-prediction-team-news-lineups_585312.html)
+- **Andre Zambo Anguissa vs. Bologna – Player props & odds to score a goal on November 9**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/11/08/andre-zambo-anguissa-soccer-player-props-11-9-2025/87174316007/)
+- **Serie A | Bologna 2-0 Napoli: Conte crumbles at the Dall’Ara**: [Link](https://onefootball.com/id/berita/serie-a-bologna-2-0-napoli-conte-crumbles-at-the-dallara-41928191)
+
+
 ### vejle boldklub - københavn (N/A, 09/11/2025 07:44 Lima)
 
 - **Truppen mod Vejle Boldklub**: [Link](https://www.fck.dk/nyhed/truppen-mod-vejle-boldklub-4)
@@ -952,75 +1022,5 @@ Sin noticias relacionadas disponibles.
 - **Watch: Nicole Kidman and Keith Urban's daughter reacts to mom's arrest at Sabrina Carpenter concert**: [Link](https://www.hellomagazine.com/healthandbeauty/mother-and-baby/865883/nicole-kidman-keith-urban-daughter-reaction-arrest-sabrina-carpenter-video/)
 - **Short n Sweet Tour | Celebrity News and Gossip | Entertainment, Photos and Videos**: [Link](https://www.justjared.com/tags/short-n-sweet-tour/)
 - **Nicole Kidman's Daughter Sunday Rose Shares Hilarious Text from Mom Before Getting 'Arrested' by Sabrina Carpenter**: [Link](https://people.com/sunday-rose-shares-text-from-nicole-kidman-just-before-she-was-arrested-11843888)
-
-
-### kings - warriors (N/A, 05/11/2025 23:31 Lima)
-
-- **Kings' Domantas Sabonis, Zach LaVine out vs. Warriors; Jimmy Butler questionable**: [Link](https://www.nbcsportsbayarea.com/nba/domantas-sabonis-zach-lavine/1889756/)
-- **Western Notes: Warriors, Mavs, Achiuwa, Pelicans, Reaves**: [Link](https://www.hoopsrumors.com/2025/11/western-notes-warriors-mavs-achiuwa-pelicans-reaves.html)
-- **Anthony Slater: The Kings have ruled out Domantas …**: [Link](https://www.hoopshype.com/story/sports/nba/rumors/2025/11/05/anthony-slater-the-kings-have-ruled-out-domantas/87112742007/)
-
-
-### lakers - spurs (N/A, 05/11/2025 23:31 Lima)
-
-- **Is Luka Doncic Playing Tonight? Lakers vs Spurs Injury Report, Where To Watch & More (Nov. 5)**: [Link](https://www.essentiallysports.com/nba-active-basketball-news-is-luka-doncic-playing-tonight-los-angeles-lakers-vs-san-antonio-spurs-injury-report-where-to-watch-and-more-november-five/)
-- **Live Updates: Wolves-Knicks leads tonight's action**: [Link](https://www.nba.com/news/live-updates-an-11-game-night-in-the-nba-featuring-luka-doncics-lakers-vs-victor-wembanyamas-spurs)
-- **Luka Doncic (rest) good to go for Wednesday**: [Link](https://www.fantasypros.com/nba/news/550197/luka-doncic-rest-good-to-go-wednesday.php)
-
-
-### sao paulo vs (N/A, 05/11/2025 20:56 Lima)
-
-- **Pronóstico Sao Paulo - Flamengo. Brasileirao Serie A | 06/11/2025**: [Link](https://gainblers.com/pe/pronosticos/futbol/brasil/brasileirao-serie-a/pronostico-sao-paulo-flamengo-06-11-2025/)
-- **São Paulo FC vs Clube de Regatas do Flamengo pronostico y comparación de cuotas 06.11.2025**: [Link](https://www.livetipsportal.com/es/pronosticos-apuestas-deportivas/sao-paulo-fc-vs-cr-flamengo-serie-a-10963334/)
-- **Ao vivo: São Paulo x Flamengo | Rodada 32 | Campeonato Brasileiro**: [Link](https://ge.globo.com/sp/futebol/brasileirao-serie-a/jogo/05-11-2025/sao-paulo-flamengo.ghtml)
-
-
-### pago onp noviembre 2025 (N/A, 05/11/2025 20:56 Lima)
-
-- **Pagos ONP y del sector público en noviembre 2025: consulta el cronograma del Banco de la Nación**: [Link](https://elcomercio.pe/respuestas/tramites/pagos-onp-y-del-sector-publico-en-noviembre-2025-revisa-el-cronograma-del-banco-de-la-nacion-tdpe-noticia/)
-- **ONP inicia pago de pensiones desde el 7 de noviembre: revisa aquí tu fecha de cobro**: [Link](https://elperuano.pe/noticia/282221-onp-inicia-pago-de-pensiones-desde-el-7-de-noviembre-revisa-aqui-tu-fecha-de-cobro)
-- **Pago ONP noviembre 2025: ¿cuándo recibirán el pago los pensionistas de la ley 19990?**: [Link](https://gestion.pe/peru/cronograma-de-pago-onp-noviembre-2025-cuando-recibiran-el-pago-los-pensionistas-de-la-ley-19990-banco-de-la-nacion-realiza-pago-a-jubilados-y-cesantes-noticia/)
-
-
-### axl rose (N/A, 05/11/2025 20:56 Lima)
-
-- **Guns N’ Roses Sued By Ex-Manager Over Release of His Book**: [Link](https://variety.com/2025/music/news/guns-n-roses-sued-by-ex-manager-over-release-of-memoir-1236570761/)
-- **Former Guns N' Roses manager Alan Niven files lawsuit against the band**: [Link](https://www.loudersound.com/bands-artists/alan-niven-lawsuit-guns-n-roses)
-- **Guns N' Roses Sued by Ex-Manager - What the Court Documents Reveal**: [Link](https://loudwire.com/alan-niven-guns-n-roses-lawsuit-book/)
-
-
-### independiente rivadavia - argentinos jrs. (N/A, 05/11/2025 20:56 Lima)
-
-- **VER Rivadavia-Argentinos Jrs EN VIVO vía TyC Sports por la final de la Copa Argentina**: [Link](https://elcomercio.pe/deporte-total/argentina/independiente-rivadavia-vs-argentinos-jrs-en-vivo-gratis-hoy-via-futbol-libre-tv-tyc-sports-pelota-libre-horarios-canales-tv-y-donde-ver-final-de-copa-argentina-video-noticia/)
-- **Falló Chiquito Romero y Alex Arce aprovechó para Independiente Rivadavia ante Argentinos en la final de Copa Argentina**: [Link](https://www.espn.com.ar/futbol/argentina/nota/_/id/15920542/error-chiquito-romero-gol-alex-arce-independiente-rivadavia-argentinos-copa-argentina-final)
-- **Qué equipos necesitan que Argentinos Juniors gane la Copa Argentina y libere un cupo en la anual**: [Link](https://www.tycsports.com/copa-argentina/que-equipos-necesitan-que-argentinos-juniors-gane-la-copa-argentina-y-libere-un-cupo-en-la-anual-id696825.html)
-
-
-### daddy yankee (N/A, 05/11/2025 20:56 Lima)
-
-- **Bizarrap y Daddy Yankee revolucionan las redes con el anuncio de su colaboración: cuándo será el esperado estreno**: [Link](https://www.infobae.com/teleshow/2025/11/04/bizarrap-y-daddy-yankee-revolucionan-las-redes-con-el-anuncio-de-su-colaboracion-cuando-sera-el-esperado-estreno/)
-- **Bizarrap anuncia colaboración con Daddy Yankee en su regreso musical**: [Link](https://elcomercio.pe/luces/musica/bizarrap-anuncia-colaboracion-con-daddy-yankee-en-su-regreso-musical-ultimas-noticia/)
-- **¿Una sesión “para Cristo”?: la expectativa por el contenido lírico del regreso de Daddy Yankee**: [Link](https://es-us.vida-estilo.yahoo.com/sesi%C3%B3n-cristo-expectativa-contenido-l%C3%ADrico-195107715.html)
-
-
-### gremio vs (N/A, 05/11/2025 20:56 Lima)
-
-- **André Carrillo criticado, Erick Noriega aprobado: lo que dejó el duelo de peruanos en el Gremio vs. Corinthians**: [Link](https://depor.com/futbol-peruano/peruanos-en-el-mundo/erick-noriega-gremio-vs-corinthians-opinion-de-prensa-brasilena-en-duelo-con-andre-carrillo-y-que-dijeron-de-su-rendimiento-en-duelo-de-peruanos-video-noticia/)
-- **André Carrillo le ganó a Erick Noriega: Corinthians venció 2-0 al Gremio por la fecha 31 del Brasileirao**: [Link](https://rpp.pe/futbol/peruanos-en-el-mundo/corinthians-vs-gremio-en-vivo-a-que-hora-es-el-duelo-entre-carrillo-y-noriega-y-donde-ver-la-fecha-31-del-brasileirao-noticia-1662026)
-- **Prensa brasileña dio dura opinión sobre Carrillo tras triunfo de Corinthians ante Gremio: "Fue..."**: [Link](https://libero.pe/futbol-internacional/2025/11/02/prensa-brasilena-dio-dura-opinion-andre-carrillo-triunfo-de-corinthians-gremio-fue-195008)
-
-
-### são paulo - flamengo (N/A, 05/11/2025 20:56 Lima)
-
-- **Pênalti? PC Oliveira bate martelo em polêmica de São Paulo x Flamengo**: [Link](https://www.lance.com.br/fora-de-campo/penalti-pc-oliveira-bate-martelo-em-polemica-de-sao-paulo-x-flamengo.html)
-- **Aos 2 min do 1º tempo - gol de dentro da área de Luciano do São Paulo contra o Flamengo**: [Link](https://ge.globo.com/futebol/video/aos-2-min-do-1o-tempo-gol-de-dentro-da-area-de-luciano-do-sao-paulo-contra-o-flamengo-14074092.ghtml)
-- **São Paulo x Flamengo AO VIVO – 1 x 1 – Arrascaeta empata em início quente pelo Brasileirão Betano**: [Link](https://br.bolavip.com/ao-vivo/sao-paulo-x-flamengo-ao-vivo-onde-assistir-jogo-em-tempo-real-pelo-brasileirao-betano-2025)
-
-
-### cesar combina (N/A, 05/11/2025 20:56 Lima)
-
-- **PJ ordena la ubicación y captura de César Combina por no presentarse a juicio por presunta difamación**: [Link](https://www.infobae.com/peru/2025/11/05/pj-ordena-la-ubicacion-y-captura-de-cesar-combina-por-no-presentarse-a-juicio-por-presunta-difamacion/)
-- **Poder Judicial declara reo contumaz a César Combina tras no acudir a juicio que afronta por presunta difamación**: [Link](https://rpp.pe/lima/judiciales/cesar-combina-poder-judicial-lo-declara-reo-contumaz-tras-no-acudir-a-juicio-que-afronta-por-presunta-difamacion-noticia-1662554)
-- **PJ declara reo contumaz a César Combina por no asistir a audiencia en caso por difamación**: [Link](https://elcomercio.pe/politica/pj-declara-reo-contumaz-a-cesar-combina-por-no-asistir-a-audiencia-en-caso-por-difamacion-ultimas-noticia/)
 
 
