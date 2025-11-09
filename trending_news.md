@@ -1,3 +1,73 @@
+### vejle boldklub - københavn (N/A, 09/11/2025 07:44 Lima)
+
+- **Truppen mod Vejle Boldklub**: [Link](https://www.fck.dk/nyhed/truppen-mod-vejle-boldklub-4)
+- **VB kan godt tage point mod FCK - ifølge Kielstrup kræver det én ting**: [Link](https://fyens.dk/sport/vb-kan-godt-tage-point-mod-fck-ifoelge-kielstrup-kraever-det-en-ting)
+- **Skifter fire mand fra London-massakren**: [Link](https://www.tipsbladet.dk/nyhed/superliga/skifter-fire-mand-fra-london-massakren)
+
+
+### corte de luz arequipa (N/A, 09/11/2025 07:44 Lima)
+
+- **Seal anuncia cortes de luz en Arequipa hasta el 12 de noviembre: revise horarios y distritos afectados**: [Link](https://www.expreso.com.pe/actualidad/seal-anuncia-cortes-de-luz-en-arequipa-hasta-el-12-de-noviembre-revise-horarios-y-distritos-afectados-cayma-noticia/1237953/)
+- **Sedapar programa corte de agua en Arequipa: conoce los distritos afectados del 11 de noviembre**: [Link](https://www.infobae.com/peru/2025/11/08/sedapar-programa-corte-de-agua-en-arequipa-conoce-los-distritos-afectados-del-11-de-noviembre/)
+- **Cortes de agua programados en Arequipa hasta el 7 de noviembre: conoce aquí las zonas sin servicio de acuerdo al cronograma de Sedapar**: [Link](https://elbuho.pe/2025/11/cortes-de-agua-programados-en-arequipa-hasta-el-7-de-noviembre-conoce-aqui-las-zonas-sin-servicio-de-acuerdo-al-cronograma-de-sedapar/)
+
+
+### athletic - real oviedo (N/A, 09/11/2025 07:44 Lima)
+
+- **LaLiga EA Sports: Athletic Bilbao recibirá a Real Oviedo por la fecha 12**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-athletic-bilbao-recibira-a-real-oviedo-por-la-fecha-12-noticia-1662970)
+- **Un partido en el que fallar no es una opción**: [Link](https://www.elcorreo.com/athletic/valverde-vuelve-llamar-selton-hierro-queremos-partido-20251108141158-nt.html)
+- **El elogio de Ernesto Valverde antes de enfrentar a Federico Viñas**: [Link](https://www.espn.com.ec/futbol/espana/nota/_/id/15932136/elogio-ernesto-valverde-antes-enfrentar-federico-vinas-real-oviedo-athletic-bilbao)
+
+
+### novak djokovic (N/A, 09/11/2025 07:44 Lima)
+
+- **Musetti to compete in Nitto ATP Finals following Djokovic's withdrawal**: [Link](https://www.atptour.com/en/news/musetti-djokovic-nitto-atp-finals-2025-news)
+- **Novak Djokovic reveals painkiller battle after conquering Athens**: [Link](https://www.tennisworldusa.org/tennis/news/Novak_Djokovic/161197/novak-djokovic-reveals-painkiller-battle-after-conquering-athens/)
+- **Djokovic pulls out of ATP Finals with shoulder injury after winning 101st career title**: [Link](https://www.lemonde.fr/en/sports/article/2025/11/08/djokovic-pulls-out-of-atp-finals-with-shoulder-injury-after-winning-101st-career-title_6747266_9.html)
+
+
+### dni electronico (N/A, 09/11/2025 07:44 Lima)
+
+- **DNI electrónico gratis para este 12 de noviembre: ¿Cuáles son los requisitos para ser beneficiario?**: [Link](https://www.infobae.com/peru/2025/11/07/dni-electronico-gratis-para-este-12-de-noviembre-cuales-son-los-requisitos-para-ser-beneficiario/)
+- **RENIEC otorga DNI gratuito durante 2025 para todos los que cumplan este requisito**: [Link](https://peru21.pe/peru/reniec-otorga-dni-gratuito-durante-2025-para-todos-los-que-cumplan-este-requisito/)
+- **Campaña de DNIe gratis este 12 de noviembre: beneficiarios, ubicación y requisitos**: [Link](https://libero.pe/tiempoextra/2025/11/08/campana-de-dnie-gratis-12-de-noviembre-beneficiarios-ubicacion-requisitos-281952)
+
+
+### atalanta vs (N/A, 09/11/2025 07:44 Lima)
+
+- **Atalanta recibe a Sassuolo en un duelo en la mitad de la tabla de la Serie A**: [Link](https://www.espn.com.pe/futbol/italia/nota/_/id/15925323/atalanta-vs-sassuolo-por-la-serie-a-equipo-fecha-hora-y-tv-en-vivo)
+- **Serie A: Sassuolo visita a Atalanta por la fecha 11**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-sassuolo-visita-a-atalanta-por-la-fecha-11-noticia-1662969)
+- **Serie A: Atalanta vs. Sassuolo – Probable line-ups and where to watch on TV**: [Link](https://football-italia.net/serie-a-atalanta-vs-sassuolo-probable-line-ups/)
+
+
+### atalanta - sassuolo (N/A, 09/11/2025 07:44 Lima)
+
+- **LIVE Atalanta-Sassuolo 0-2: Pinamonti raddoppia subito!**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Atalanta/09-11-2025/atalanta-sassuolo-live-risultato-e-gol-in-diretta-serie-a.shtml)
+- **Calcio Live News: alle 12:30 in campo Atalanta-Sassuolo, più tardi tocca a Napoli, Roma e Inter**: [Link](https://www.diretta.it/news/calcio-live-news-alle-12-30-in-campo-atalanta-sassuolo-piu-tardi-tocca-a-napoli-roma-e-inter/nTrccDc3/)
+- **Le formazioni di Atalanta-Sassuolo | Serie A Enilive 2025/26**: [Link](https://www.atalanta.it/news/le-formazioni-di-atalanta-sassuolo-serie-a-enilive-2025-26)
+
+
+### utrecht - ajax (N/A, 09/11/2025 07:44 Lima)
+
+- **Live Eredivisie | Ajax met Grim begonnen aan uitduel met FC Utrecht**: [Link](https://www.nu.nl/voetbal/6375344/live-eredivisie-ajax-met-grim-begonnen-aan-uitduel-met-fc-utrecht.html)
+- **Haller maakt eerste treffer sinds april • Godts maakt aansluitingstreffer in Utrecht**: [Link](https://nos.nl/liveblog/2589767-haller-maakt-eerste-treffer-sinds-april-godts-maakt-aansluitingstreffer-in-utrecht)
+- **🔴 Ajax direct op achterstand na afgekeurde goal • AZ later tegen PSV**: [Link](https://www.nhnieuws.nl/nieuws/354185/ajax-direct-op-achterstand-na-afgekeurde-goal-az-later-tegen-psv)
+
+
+### terremoto sismo temblor hoy epicentro (N/A, 09/11/2025 07:44 Lima)
+
+- **IGP Historial y registro de Temblores en Lima Perú: Sismos magnitud y epicentro al cierre**: [Link](https://rpp.pe/lima/desastres-naturales/temblor-en-peru-hoy-6-de-noviembre-magnitud-y-epicentro-del-sismo-segun-igp-live-3033)
+- **Sismo en Ica, Tacna y más reportes del IGP: Epicentro y mangitud del temblor en Perú hoy, 8 de noviembre**: [Link](https://elcomercio.pe/peru/epicentro-y-magnitud-del-ultimo-temblor-en-peru-reporte-de-sismos-segun-igp-tdpe-noticia/)
+- **Temblor de magnitud 3,5 se sintió en Lima hoy, según IGP**: [Link](https://larepublica.pe/sociedad/2025/11/09/temblor-de-magnitud-35-se-sintio-en-lima-hoy-segun-igp-mdga-547848)
+
+
+### dolar (N/A, 09/11/2025 07:44 Lima)
+
+- **Precio del dólar en Perú, sábado 8 de noviembre: a cuánto cerró el tipo de cambio hoy**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-2025-a-cuanto-esta-el-dolar-este-sabado-8-de-noviembre-y-tipo-de-cambio-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
+- **Precio del dólar sube ligeramente: Así cerró el tipo de cambio hoy 6 de noviembre en Perú**: [Link](https://www.infobae.com/peru/2025/11/05/dolar-cotizacion-de-apertura-hoy-5-de-noviembre-en-peru/)
+- **Dólar en Perú: a cuánto se cotizó el cierre de hoy, 7 de noviembre de 2025**: [Link](https://latinanoticias.pe/te-ayudo/como-cerro-el-dolar-hoy-en-peru-a-cuanto-se-cotizo-el-cierre-del-dolar-para-este-7-de-noviembre-lima-sunat-sbs-bcrp-adp-noticia_20251107/)
+
+
 ### ibai (N/A, 09/11/2025 03:27 Lima)
 
 - **Ibai, sobre la mejor hamburguesa del mundo que se cocina en España: «No tengo palabras»**: [Link](https://www.abc.es/espana/comunidad-valenciana/ibai-sobre-mejor-hamburguesa-mundo-cocina-espana-20251106085905-nt.html)
@@ -952,73 +1022,5 @@ Sin noticias relacionadas disponibles.
 - **PJ ordena la ubicación y captura de César Combina por no presentarse a juicio por presunta difamación**: [Link](https://www.infobae.com/peru/2025/11/05/pj-ordena-la-ubicacion-y-captura-de-cesar-combina-por-no-presentarse-a-juicio-por-presunta-difamacion/)
 - **Poder Judicial declara reo contumaz a César Combina tras no acudir a juicio que afronta por presunta difamación**: [Link](https://rpp.pe/lima/judiciales/cesar-combina-poder-judicial-lo-declara-reo-contumaz-tras-no-acudir-a-juicio-que-afronta-por-presunta-difamacion-noticia-1662554)
 - **PJ declara reo contumaz a César Combina por no asistir a audiencia en caso por difamación**: [Link](https://elcomercio.pe/politica/pj-declara-reo-contumaz-a-cesar-combina-por-no-asistir-a-audiencia-en-caso-por-difamacion-ultimas-noticia/)
-
-
-### juan pablo varillas (N/A, 05/11/2025 20:56 Lima)
-
-- **¡A paso firme! Buse, Bueno y Varillas se meten a los octavos de final del Challenger Lima 3**: [Link](https://elcomercio.pe/deporte-total/polideportivo/a-paso-firme-buse-bueno-y-varillas-avanzan-a-los-octavos-de-final-del-challenger-lima-3-tenis-noticia/)
-- **Solo llegó hasta octavos: Juan Pablo Varillas perdió 2-0 ante Román Burruchaga en el Challenger Lima 3**: [Link](https://rpp.pe/tenis/mas-tenis/juan-pablo-varillas-vs-roman-burruchaga-en-vivo-octavos-final-challenger-lima-3-a-que-hora-juegan-y-donde-ver-por-tv-via-atp-tour-link-gratis-partidos-de-hoy-noticia-1662446)
-- **Se respeta la casa: Ignacio Buse venció a Miguel Tobón y clasificó a octavos de final de Challenger Lima 3**: [Link](https://rpp.pe/tenis/mas-tenis/hoy-ignacio-buse-vs-miguel-tobon-en-vivo-primera-ronda-challenger-lima-3-a-que-hora-juegan-y-donde-ver-por-tv-via-atp-tour-link-gratis-partidos-de-hoy-noticia-1662272)
-
-
-### botafogo vs (N/A, 05/11/2025 20:56 Lima)
-
-- **Botafogo - RJ vs Vasco da Gama - RJ pronostico y comparación de cuotas 05.11.2025**: [Link](https://www.livetipsportal.com/es/pronosticos-apuestas-deportivas/botafogo-rj-vs-vasco-da-gama-rj-serie-a-10963325/)
-
-
-### u. de chile - everton (N/A, 05/11/2025 15:28 Lima)
-
-- **Marcelo Díaz destacó la campaña de la U pese al opaco semestre en el plano local**: [Link](https://www.espn.com.ar/futbol/chile/nota/_/id/15915251/universidad-de-chile-oficializo-renovacion-marcelo-diaz-liga-de-primera)
-- **Gustavo Álvarez define el once de Universidad de Chile para enfrentar a Everton**: [Link](https://bolavip.com/cl/udechile/gustavo-alvarez-define-el-once-de-universidad-de-chile-para-enfrentar-a-everton)
-- **Actualidad del día en el fútbol chileno a 5 de noviembre de 2025**: [Link](https://es.besoccer.com/noticia/actualidad-del-dia-en-el-futbol-chileno-a-5-de-noviembre-de-2025-1380105)
-
-
-### benfica (N/A, 05/11/2025 15:28 Lima)
-
-- **Benfica x Bayer Leverkusen Palpite – Confira Onde Assistir, Hora e Escalações 05-11**: [Link](https://onefootball.com/pt-br/apostas/palpites/futebol/benfica-x-bayer-leverkusen-05-11-2025)
-- **Adeptos do Benfica aplaudem Grimaldo no regresso do espanhol à Luz**: [Link](https://cnnportugal.iol.pt/videos/adeptos-do-benfica-aplaudem-grimaldo-no-regresso-do-espanhol-a-luz/690ba7b70cf2c7eb24444294)
-- **Benfica 0 x Bayer Leverkusen 0 | UEFA Champions League 25/26**: [Link](https://www.gazetaesportiva.com/minuto-a-minuto/uefa-champions-league-25-26/benfica-x-bayer-leverkusen/235302)
-
-
-### manchester city vs dortmund (N/A, 05/11/2025 15:28 Lima)
-
-- **Preview:Man City vs Dortmund - prediction, team news**: [Link](https://www.sportsmole.co.uk/football/man-city/champions-league/preview/man-city-vs-dortmund-prediction-team-news-lineups_584990.html)
-- **Erling Haaland: Premier League's runaway top scorer returns to face old club as true master**: [Link](https://www.thenationalnews.com/sport/football/2025/11/05/erling-haaland-premier-league-goals-borussia-dortmund/)
-- **UEFA Champions League – the ticker for the trip to Manchester**: [Link](https://onefootball.com/pt-br/noticias/uefa-champions-league-the-ticker-for-the-trip-to-manchester-41906451)
-
-
-### chankas cyc - alianza lima (N/A, 05/11/2025 15:28 Lima)
-
-- **A qué hora juega Alianza Lima vs Los Chankas HOY: partido en Andahuaylas por fecha pendiente del Torneo Clausura de la Liga 1 2025**: [Link](https://www.infobae.com/peru/deportes/2025/11/04/a-que-hora-juega-alianza-lima-vs-los-chankas-partido-andahuaylas-fecha-9-pendiente-torneo-clausura-2025-horario/)
-- **Alianza Lima tendrá 6 bajas: el posible once 'blanquiazul' ante Los Chankas tras sensibles ausencias [FOTOS]**: [Link](https://rpp.pe/futbol/descentralizado/alianza-lima-vs-los-chankas-el-once-posible-de-gorosito-en-andahuaylas-por-partido-pendiente-torneo-clausura-2025-noticia-1662356)
-- **Cómo ver Liga 1 MAX ONLINE: Alianza-Chankas | ¿Quién transmite el canal en vivo?**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/liga-1-max-en-vivo-gratis-ver-futbol-libre-tv-alianza-lima-vs-chankas-hoy-online-por-liga-1-video-noticia/)
-
-
-### club brugge vs barcelona (N/A, 05/11/2025 15:28 Lima)
-
-- **Preview:Club Brugge vs Barcelona - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/barcelona/champions-league/preview/brugge-vs-barcelona-prediction-team-news-lineups_585012.html)
-- **‘When he’s able to play, he will play’ – Hansi Flick gives update on Lamine Yamal amid surgery talk**: [Link](https://www.football-espana.net/2025/11/05/when-hes-able-to-play-he-will-play-hansi-flick-gives-update-on-lamine-yamal-amid-surgery-talk)
-- **Squad for the trip to Bruges**: [Link](https://www.fcbarcelona.com/en/football/first-team/news/4395957/squad-for-the-trip-to-bruges)
-
-
-### ajax (N/A, 05/11/2025 15:28 Lima)
-
-- **Gemeente wijst vanwege Ajax-Galatasaray deel Amsterdamse binnenstad en omgeving Johan Cruijff Arena aan als veiligheidsrisicogebied**: [Link](https://www.parool.nl/nederland/gemeente-wijst-vanwege-ajax-galatasaray-deel-amsterdamse-binnenstad-en-omgeving-johan-cruijff-arena-aan-als-veiligheidsrisicogebied~b941d226/)
-- **Wesley Sneijder waarschuwt Ajax voor ’atoommier’ van Galatasaray**: [Link](https://www.telegraaf.nl/sport/voetbal/wesley-sneijder-waarschuwt-ajax-voor-atoommier-van-galatasaray/102035680.html)
-- **Heitinga verklaart Regeer als rechtsbuiten: 'Wat extra's creëren op middenveld'**: [Link](https://www.vi.nl/nieuws/john-heitinga-voor-ajax-galatasaray)
-
-
-### la habitacion negra (N/A, 05/11/2025 15:28 Lima)
-
-- **"Necesito un milagro": Yiddá Eslava pide apoyo para que su película siga en cartelera [VIDEO]**: [Link](https://rpp.pe/famosos/farandula/la-habitacion-negra-yidda-eslava-pide-apoyo-para-que-su-pelicula-siga-en-cartelera-video-noticia-1662032)
-- **El desgarrador pedido de Yiddá Eslava para que apoyen su película ‘La Habitación Negra’: “Necesito un milagro”**: [Link](https://www.infobae.com/peru/2025/11/01/yidda-eslava-y-el-desgarrador-pedido-para-que-apoyen-su-pelicula-la-habitacion-negra-necesito-un-milagro/)
-- **La Habitación Negra: El Thriller Peruano que Expone los Peligros de la Fama Digital**: [Link](https://blog.cineplanet.com.pe/cine%20peruano/la-habitacion-negra-el-thriller-peruano-que-expone-los-peligros-de-la-fama-digital/)
-
-
-### manchester city - dortmund (N/A, 05/11/2025 15:28 Lima)
-
-- **Wiedersehen mit Haaland: BVB gegen seine ehemalige Tormaschine**: [Link](https://www.grenzecho.net/131464/artikel/2025-11-05/wiedersehen-mit-haaland-bvb-gegen-seine-ehemalige-tormaschine)
-- **Grosse Aufgabe für Kobel: Hält das BVB-Abwehrbollwerk auch gegen Manchestester City?**: [Link](https://www.watson.ch/sport/liveticker/377199807-champions-league-manchester-city-gegen-borussia-dortmund-im-liveticker)
-- **Champions League: BVB-Trainer Kovac schwärmt von Man City-Coach Pep: „Gibt keinen, der...“**: [Link](https://www.waz.de/sport/borussia-dortmund/article410389268/bvb-trainer-kovac-schwaermt-von-city-coach-pep-gibt-keinen-der.html)
 
 
