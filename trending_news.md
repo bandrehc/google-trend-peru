@@ -1,3 +1,73 @@
+### angelica vale (N/A, 10/11/2025 15:28 Lima)
+
+- **Angélica Vale se divorcia tras 14 años de matrimonio, ¡Otto Padrón presentó la demanda!**: [Link](https://peopleenespanol.com/angelica-vale-se-divorcia-de-otto-padron-11846488)
+- **Angélica Vale se divorcia de Otto Padrón: revelan detalles de la demanda**: [Link](https://www.infobae.com/mexico/2025/11/10/angelica-vale-se-divorcia-de-otto-padron-revelan-detalles-de-la-demanda/)
+- **Angélica Vale llora al hablar de su divorcio: se enteró de la demanda por “sorpresa”**: [Link](https://www.univision.com/famosos/angelica-vale-divorcio-otto-padron-reacciona)
+
+
+### burgos cf (N/A, 10/11/2025 15:28 Lima)
+
+- **Pronóstico Burgos CF Castellón - LaLiga 2 10/11/25**: [Link](https://www.sportytrader.com/es/pronosticos/burgos-cf-castellon-304625/)
+- **Retabet: apuesta gratis por cada gol anulado por el VAR en el partido Burgos vs Castellón**: [Link](https://legalbet.es/bonos/retabet-apuesta-gratis-por-cada-gol-anulado-por-el-var-en-el-partido-burgos-vs-castellon/)
+- **La ocasión para reivindicarse del CD Castellón**: [Link](https://castellonaldia.elmundo.es/deportes/cd-castellon/futbol-ocasion-para-reivindicarse-del-cd-castellon-LC25149839)
+
+
+### gimnasia - vélez (N/A, 10/11/2025 15:28 Lima)
+
+- **A la espera de Riestra-Independiente, Gimnasia recibe a Vélez por la fecha 15 del Torneo Clausura: hora, TV y formaciones**: [Link](https://www.infobae.com/deportes/2025/11/10/a-la-espera-de-riestra-independiente-gimnasia-recibe-a-velez-por-la-fecha-15-del-torneo-clausura-hora-tv-y-formaciones/)
+- **Pronóstico Gimnasia Y Esgrima La Plata Vélez Sarsfield - Liga Profesional Argentina 10/11/25**: [Link](https://www.sportytrader.com/es/pronosticos/gimnasia-la-plata-velez-sarsfield-304438/)
+- **Gimnasia y Vélez empatan 0-0 por la penúltima fecha del Clausura**: [Link](https://www.ole.com.ar/gimnasia-y-esgrima/gimnasia-velez-clausura-schelotto_0_hye6Kr5xOL.html)
+
+
+### adt (N/A, 10/11/2025 15:28 Lima)
+
+- **ADT’s Steady Returns Stand Out In A Crowded Security Market**: [Link](https://finimize.com/content/adt-asset-snapshot)
+- **Decoding ADT Inc (ADT): A Strategic SWOT Insight**: [Link](https://www.gurufocus.com/news/3185001/decoding-adt-inc-adt-a-strategic-swot-insight?mobile=true)
+- **ADT Inc expected to post earnings of 21 cents a share - Earnings Preview**: [Link](https://www.tradingview.com/news/reuters.com,2025:newsml_L8N3WC1XC:0-adt-inc-expected-to-post-earnings-of-21-cents-a-share-earnings-preview/)
+
+
+### sinner (N/A, 10/11/2025 15:28 Lima)
+
+- **ATP Finals tennis: Jannik Sinner v Felix Auger-Aliassime – live**: [Link](https://www.theguardian.com/sport/live/2025/nov/10/atp-finals-tennis-jannik-sinner-v-felix-auger-aliassime-live)
+- **2025 Nitto ATP Finals Betting Odds for Men’s Singles**: [Link](https://www.bleachernation.com/picks/2025/11/08/2025-nitto-atp-finals-betting-odds-for-mens-singles/)
+- **ATP Finals Jannik Sinner vs Felix Auger-Aliassime 🧠 Form & Context Jannik Sinner 🏠 Turin factor: fast indoor, slight altitude, raucous home crowd—perfect for his first-strike baseline game. 🏆 Defending champ: finalist in 2023, champion in 2024; chasing a rare**: [Link](https://x.com/Probahis/status/1987605086135316700)
+
+
+### adt vs chankas (N/A, 10/11/2025 15:28 Lima)
+
+- **Hoy, ADT vs Chankas EN VIVO: hora y dónde ver la fecha 18 del Torneo Clausura**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/adt-vs-chankas-en-vivo-hora-canal-tv-y-donde-ver-la-fecha-18-del-torneo-clausura-l1max-l1play-video-resumen-y-goles-video-tdpe-noticia/)
+- **Liga 1: ADT de Tarma se enfrenta ante la visita Los Chankas por la fecha 18**: [Link](https://rpp.pe/futbol/descentralizado/liga-1-adt-de-tarma-se-enfrenta-ante-la-visita-los-chankas-por-la-fecha-18-noticia-1663082)
+- **AD Tarma vs Los Chankas pronostico y comparación de cuotas 10.11.2025**: [Link](https://www.livetipsportal.com/es/pronosticos-apuestas-deportivas/ad-tarma-vs-los-chankas-primera-division-11445227/)
+
+
+### funko (N/A, 10/11/2025 15:28 Lima)
+
+- **Funko Pop Sounds Like It's In Serious Trouble With Massive Debt**: [Link](https://kotaku.com/funko-pop-starnger-things-bitty-bankrupt-2000642395)
+- **Talkin’ Toys: Funko CEO Josh Simon on Making Culture POP!**: [Link](https://toybook.com/talkin-toys-funko-ceo-josh-simon-on-making-culture-pop/)
+- **Funko Reports Third Quarter 2025 Financial Results**: [Link](https://www.jedinews.com/?p=292622)
+
+
+### onpe (N/A, 10/11/2025 15:28 Lima)
+
+- **Vizcarra apostó y reculó. Una crónica de Fernando Vivas sobre su frustrada candidatura como vicepresidente**: [Link](https://elcomercio.pe/politica/martin-vizcarra-aposto-y-reculo-una-cronica-de-fernando-vivas-sobre-su-frustrada-candidatura-como-vicepresidente-mario-vizcarra-vladimir-cerron-arturo-fernandez-tlcnota-noticia/)
+- **Martín Vizcarra fuera de las Elecciones: ONPE rechaza su inscripción en la plancha de Perú Primero**: [Link](https://www.infobae.com/peru/2025/11/08/martin-vizcarra-fuera-de-las-elecciones-onpe-rechaza-su-inscripcion-en-la-plancha-de-peru-primero/)
+- **Martín Vizcarra señala que ONPE eliminó su candidatura y anuncia nueva fórmula presidencial en Perú Primero**: [Link](https://lpderecho.pe/martin-vizcarra-senala-onpe-elimino-candidatura-anuncia-nueva-formula-presidencial-peru-primero/)
+
+
+### burgos vs (N/A, 10/11/2025 15:28 Lima)
+
+- **Preview:Burgos vs Castellon - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/burgos/preview/burgos-vs-castellon-prediction-team-news-lineups_585406.html)
+- **The magic of lower leagues in Europe: Accumulator Tips for November 10, 2025**: [Link](https://www.telecomasia.net/sports-betting/tips/accumulator/accumulator-tips-for-today-prediction-betting-tips-odds-10-november-2025/)
+- **Burgos vs Castellon Prediction and Betting Tips | November 10th 2025**: [Link](https://www.sportskeeda.com/football/burgos-vs-castellon-prediction-betting-tips-november-10th-2025)
+
+
+### sentinel (N/A, 10/11/2025 15:28 Lima)
+
+- **Michael Cooper Obituary**: [Link](https://www.knoxnews.com/obituaries/pokr1327035)
+- **After a nudge, Delray gets it right | Editorial**: [Link](https://www.sun-sentinel.com/2025/11/10/after-a-nudge-delray-gets-it-right-editorial/)
+- **Which Democrats voted to end shutdown**: [Link](https://www.bbc.com/news/articles/c7974x7248go)
+
+
 ### venezuela sub-17 - haití sub-17 (N/A, 10/11/2025 11:32 Lima)
 
 - **Partido de Venezuela-Haití Sub 17 EN VIVO ONLINE: alineaciones y dónde ver transmisión**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/venezuela-vs-haiti-sub-17-en-vivo-gratis-hoy-via-futbol-libre-tv-televen-directv-horarios-canales-tv-y-donde-ver-partido-por-mundial-sub-17-video-noticia/)
@@ -952,75 +1022,5 @@ Sin noticias relacionadas disponibles.
 - **UPS plane crash fatalities increase to 13, 9 still missing**: [Link](https://www.wave3.com/2025/11/06/ups-plane-crash-fatalities-increase-13-9-still-missing/)
 - **Satellite images show the huge impact of the deadly UPS plane crash**: [Link](https://www.yahoo.com/news/articles/satellite-images-show-huge-impact-092301971.html)
 - **Death toll rises to 13 after UPS plane crashed at Louisville airport: Officials**: [Link](https://abcnews.go.com/US/9-people-remain-missing-after-ups-plane-crash/story?id=127255924)
-
-
-### decreto de urgencia austeridad (N/A, 07/11/2025 07:50 Lima)
-
-- **El Gobierno aprueba decreto de urgencia con medidas extraordinarias para la austeridad y eficiencia del gasto público**: [Link](https://rpp.pe/economia/economia/el-gobierno-aprueba-decreto-de-urgencia-con-medidas-extraordinarias-para-la-austeridad-y-eficiencia-del-gasto-publico-noticia-1662780)
-- **Ejecutivo aprobará plan de eficiencia en gastos**: [Link](https://elperuano.pe/noticia/282430-ejecutivo-aprobara-plan-de-eficiencia-en-gastos)
-- **Gobierno aprueba medidas de austeridad para garantizar eficiencia del gasto público**: [Link](https://andina.pe/agencia/noticia-gobierno-aprueba-medidas-austeridad-para-garantizar-eficiencia-del-gasto-publico-1051085.aspx)
-
-
-### bet365 (N/A, 07/11/2025 07:50 Lima)
-
-- **bet365 Betting Offers: £30 in bet365 Free Bets Sign Up Offer November 2025**: [Link](https://bookies.com/uk/news/bet365-betting-offers-free-bets-get-30-new-customers-sign-up-offer-november-2025-nfl-itv-racing-premier-league)
-- **bet365 Bonus Code: LSBONUS for Friday Night Betting on NBA Games**: [Link](https://www.livescore.com/en/news/nba/promos/bet365-bonus-code-lsbonus-for-friday-night-betting-on-nba-games/)
-- **bet365 bonus code NYPBET: Bet $5, get $200 in bonus bets for Knicks vs. Timberwolves**: [Link](https://nypost.com/2025/11/05/betting/bet365-bonus-code-nypbet-bet-5-get-200-in-bonus-bets-for-knicks-vs-timberwolves/)
-
-
-### bet365 champions league (N/A, 07/11/2025 07:50 Lima)
-
-- **Pafos FC 1-0 Villarreal: Post-match review, Stats, Key moments**: [Link](https://www.bwin.com/en/news/post-match-review-pafos-fc-villarreal-champions-league-gameweek-4/)
-- **Where to stream Pafos vs. Villarreal Champions League match free today**: [Link](https://www.masslive.com/tv/2025/11/where-to-stream-pafos-vs-villarreal-champions-league-match-free-today.html)
-- **APTOPIX Cyprus Soccer Champions League**: [Link](https://www.couriernews.com/sports/aptopix-cyprus-soccer-champions-league/image_f1a344eb-5750-5303-96c9-469868cf1f00.html)
-
-
-### rockstar games gta 6 (N/A, 07/11/2025 03:32 Lima)
-
-- **GTA 6 Is Delayed Again Until November 2026**: [Link](https://www.ign.com/articles/gta-6-is-delayed-again-until-november-2026)
-- **Video game publisher Take-Two beats Q2 revenue estimates, announces delay to 'GTA VI'**: [Link](https://www.marketscreener.com/news/video-game-publisher-take-two-beats-q2-revenue-estimates-announces-delay-to-gta-vi-ce7d5cd3da88fe23)
-- **Rockstar Delays Grand Theft Auto VI Once Again**: [Link](https://www.findarticles.com/rockstar-delays-grand-theft-auto-vi-once-again/)
-
-
-### stranger things (N/A, 06/11/2025 23:28 Lima)
-
-- **'Millie Bobby Brown filed a harassment and bullying claim before they started shooting the last season. There were pages and pages of accusations.' We reveal the latest bombshell claims facing Lily Allen's estranged husband David Harbour**: [Link](https://www.dailymail.co.uk/news/article-15248699/Millie-Bobby-Brown-filed-harassment-bullying-claim-started-shooting-season-pages-pages-accusations-Caroline-Graham-reveals-latest-bombshell-claims-facing-Lily-Allens-estranged-husband-David-Harbour.html)
-- **Millie Bobby Brown Filed Harassment Claim Against David Harbour Before Filming Stranger Things**: [Link](https://people.com/millie-bobby-brown-filed-harassment-claim-against-david-harbour-stranger-things-11841836)
-- **Did David Harbour Skip Stranger Things Press Tour? Here's the Truth**: [Link](https://www.eonline.com/news/1424705/stranger-things-david-harbour-missing-press-tour)
-
-
-### angela aguilar (N/A, 06/11/2025 23:28 Lima)
-
-- **Ángela Aguilar comparte mensaje que la “sana”: "María no necesitó explicar lo que solo Dios entendía"**: [Link](https://www.univision.com/famosos/angela-aguilar-mensaje-sana-fanatica)
-- **Famosos ARV: Ángela Aguilar conmueve con mensaje. Enigma Norteño de vuelta a los escenarios**: [Link](https://www.telemundo.com/shows/al-rojo-vivo/video/famosos-arv-angela-aguilar-conmueve-con-mensaje-enigma-norteno-de-vuelta-los-escenarios-tmvo13054536)
-- **Ángela Aguilar responde así a un fan que la comparó con la Virgen**: [Link](https://mamaslatinas.com/news-entertainment/angela-aguilar-responde-a-fan-que-la-comparo-con-la-virgen)
-
-
-### montreal (N/A, 06/11/2025 23:28 Lima)
-
-- **Chronique Urbania | Connaissez-vous le melon de Montréal ?**: [Link](https://www.957kyk.com/audio/735729/connaissez-vous-le-melon-de-montreal)
-- **«In-I In Motion»: Juliette Binoche, ou le charme de la nouveauté**: [Link](https://www.ledevoir.com/culture/cinema/931500/juliette-binoche-ou-charme-nouveaute)
-- **Cinémania | Juliette Binoche: son lien avec Montréal et ses décisions artistiques**: [Link](https://www.985fm.ca/audio/735766/la-grande-actrice-francaise-juliette-binoche-est-de-passage-a-montreal)
-
-
-### melanie martinez (N/A, 06/11/2025 23:28 Lima)
-
-- **Hija de Christian Domínguez terminó afectada tras careo con su padre en audiencia**: [Link](https://www.infobae.com/peru/2025/11/06/hija-de-christian-dominguez-termino-afectada-tras-careo-con-su-padre-en-audiencia/)
-- **Melanie Martínez responde a demanda de Christian Domínguez: “El que ejerce violencia es él”**: [Link](https://elcomercio.pe/tvmas/farandula/melanie-martinez-responde-a-demanda-de-christian-dominguez-el-que-ejerce-violencia-es-el-ultimas-noticia/)
-- **Alejandra Baigorria cuestionó a Christian Domínguez**: [Link](https://www.americatv.com.pe/noticias/espectaculos/alejandra-baigorria-cuestiona-christian-dominguez-demanda-n512710)
-
-
-### suns - clippers (N/A, 06/11/2025 23:28 Lima)
-
-- **NBA Fantasy: DFS picks & advice for Nov. 6**: [Link](https://www.nba.com/news/nba-fantasy-dfs-picks-advice-for-nov-6)
-- **Harden misses Clippers game against Suns for personal reasons**: [Link](https://thescore.com/nba/news/3390255)
-- **BetMGM Promo Code NYPDM1500: Get a 20% first deposit match up to $1,500 for Clippers vs. Suns**: [Link](https://nypost.com/2025/11/06/betting/betmgm-promo-code-nypdm1500-get-a-20-first-deposit-match-up-to-1500-for-clippers-vs-suns/)
-
-
-### aldo mariategui (N/A, 06/11/2025 23:28 Lima)
-
-- **Caviar y rojo no son insultos | Aldo Mariátegui**: [Link](https://peru21.pe/opinion/caviar-y-rojo-no-son-insultos-aldo-mariategui/)
-- **Aldo Mariátegui criticó presentación de Alfonso López Chau en CADE 2025: "Se ha quedado en el siglo XX"**: [Link](https://willax.pe/politica/aldo-mariategui-critica-alfonso-lopez-chau-cade-2025-willax)
-- **Pleno declaró persona non grata a la presidenta de México por injerencia en asuntos internos del Perú**: [Link](https://comunicaciones.congreso.gob.pe/noticias/pleno-declaro-persona-non-grata-a-la-presidenta-de-mexico-por-injerencia-en-asuntos-internos-del-peru/)
 
 
