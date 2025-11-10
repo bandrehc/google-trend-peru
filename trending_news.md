@@ -1,3 +1,10 @@
+### martin vizcarra (N/A, 10/11/2025 03:34 Lima)
+
+- **Martín Vizcarra queda fuera de elecciones de 2026 en Perú**: [Link](https://www.dw.com/es/mart%C3%ADn-vizcarra-queda-fuera-de-elecciones-de-2026-en-per%C3%BA/a-74676175)
+- **Martín Vizcarra fuera de las Elecciones: ONPE rechaza su inscripción en la plancha de Perú Primero**: [Link](https://www.infobae.com/peru/2025/11/08/martin-vizcarra-fuera-de-las-elecciones-onpe-rechaza-su-inscripcion-en-la-plancha-de-peru-primero/)
+- **ONPE rechazó inscripción de Martín Vizcarra en plancha presidencial de Perú Primero**: [Link](https://rpp.pe/politica/elecciones/onpe-rechazo-inscripcion-de-martin-vizcarra-en-plancha-presidencial-de-peru-primero-noticia-1663063)
+
+
 ### susy diaz (N/A, 09/11/2025 23:31 Lima)
 
 - **El Valor de la Verdad EN VIVO: Susy Díaz promete una noche inolvidable donde hablará de política, amores y escándalos**: [Link](https://www.infobae.com/peru/2025/11/09/el-valor-de-la-verdad-en-vivo-susy-diaz-promete-una-noche-inolvidable-donde-hablara-de-politica-amores-y-escandalos/)
@@ -1015,12 +1022,5 @@ Sin noticias relacionadas disponibles.
 - **Netflix Tudum Unveils Fresh Hits: Ransom Canyon, Into the Deep Blue, and Stranger Things Animated**: [Link](https://azat.tv/en/netflix-tudum-new-releases-ransom-canyon-into-the-deep-blue-stranger-things-animated/)
 - **Netflix Tudum Reveals Major Casting and Series Announcements for 2026**: [Link](https://news.ssbcrack.com/netflix-tudum-reveals-major-casting-and-series-announcements-for-2026/)
 - **‘Ransom Canyon’ Season 2 Adds ‘Shameless’ Alum Steve Howey**: [Link](https://variety.com/2025/tv/news/ransom-canyon-season-2-steve-howey-1236568533/)
-
-
-### boyacá chicó - américa (N/A, 06/11/2025 20:55 Lima)
-
-- **Boyacá Chicó vs América: El dato que mantiene viva la ilusión de los Escarlatas en la Liga BetPlay**: [Link](https://www.espn.com.ar/futbol/colombia/nota/_/id/15921868/el-dato-que-mantiene-viva-la-ilusion-del-america-de-clasificar-cuadrangulares)
-- **Los goles con los que América se metió a los ocho mejores de Liga II**: [Link](https://www.futbolred.com/futbol-colombiano/liga-betplay/goles-de-chico-vs-america-de-cali-el-escarlata-lucha-por-clasificar-a-cuadrangulares-de-liga-2-2025-258255)
-- **Con Josen Escobar enfermo y Luis Paz descartado, América jugaría con esta formación ante Boyacá Chicó**: [Link](https://www.elpais.com.co/deportes/con-josen-escobar-enfermo-y-luis-paz-descartado-america-jugaria-con-esta-formacion-ante-boyaca-chico-0640.html)
 
 
