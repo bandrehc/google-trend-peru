@@ -1,3 +1,69 @@
+### san diego fc (N/A, 09/11/2025 21:00 Lima)
+
+- **Portland and Neville relishing decider against 'fantastic' San Diego**: [Link](https://www.fotmob.com/id/news/u06jhm7prctv1907uqn1n1pqi-portland-neville-relishing-decider-against-fantastic-san-diego)
+- **Timbers 360: Providence Park magic, and preview of Game 3 in MLS Cup Playoffs**: [Link](https://www.kgw.com/video/sports/soccer/timbers/timbers-360-providence-park-magic-and-preview-of-game-3-in-mls-cup-playoffs/283-bebc571b-0223-4b18-98b9-508a3933f602)
+- **What to look for in SDFC’s elimination Game 3**: [Link](https://fox5sandiego.com/sports/san-diego-fc/san-diego-fc-playoff-game/)
+
+
+### santa fe - deportivo cali (N/A, 09/11/2025 21:00 Lima)
+
+- **Pronóstico Santa Fe Deportivo Cali - Liga BetPlay 09/11/25**: [Link](https://www.sportytrader.com/es/pronosticos/santa-fe-deportivo-cali-304339/)
+- **Santa Fe, con todo a favor: cota 1,80 y a un paso del cuadrangular**: [Link](https://www.futbolred.com/apuestas/pronosticos-santa-fe-vs-deportivo-cali-08-11-2025-258365)
+- **EN VIVO: Santa Fe vs. Deportivo Cali - minuto a minuto y goles (Fecha 19)**: [Link](https://www.winsports.co/futbol-colombiano/noticias/en-vivo-santa-fe-vs-deportivo-cali-minuto-a-minuto-y-goles-fecha-19-392231)
+
+
+### atlético tucumán - godoy cruz (N/A, 09/11/2025 21:00 Lima)
+
+- **Gol en contra de Morán y se complica Godoy Cruz: Atlético Tucumán gana 1 a 0**: [Link](https://www.ole.com.ar/futbol-primera/torneo-clausura-atletico-tucuman-godoy-cruz_0_N9kmx3uhe1.html)
+- **A Tucumán por la ante última final**: [Link](https://www.vavel.com/ar/futbol-argentino/2025/11/08/godoy-cruz/1240715-a-tucuman-por-la-anteultima-final.html)
+- **“La Inimitable” y un banderazo en apoyo al plantel de Atlético Tucumán, antes de un duelo crucial**: [Link](https://www.lagaceta.com.ar/nota/1111791/deportes/inimitable-banderazo-apoyo-al-plantel-atletico-tucuman-antes-duelo-crucial.html)
+
+
+### warriors - pacers (N/A, 09/11/2025 21:00 Lima)
+
+- **Indiana Pacers Injury Report: Get the latest update on Tyrese Haliburton, Johnny Furphy & others**: [Link](https://thesportstak.com/basketball/nba-24-oct-2022/story/indiana-pacers-injury-report-get-the-latest-update-on-tyrese-haliburton-johnny-furphy-others-3213574-2025-11-10)
+- **Game Preview: Pacers at Warriors**: [Link](https://pacers.com/news/preview-pacers-warriors-251109)
+- **Aaron Nesmith, Pascal Siakam out for the short-handed Pacers**: [Link](https://www.hoopshype.com/story/sports/nba/rumors/2025/11/09/aaron-nesmith-pascal-siakam-out-for-the-short-handed-pacers/87186067007/)
+
+
+### welcome to derry capitulo 3 (N/A, 09/11/2025 21:00 Lima)
+
+- **“It: Welcome to Derry” Capítulo 3: Hora de estreno confirmado en HBO Max**: [Link](https://elcomercio.pe/saltar-intro/noticias/it-welcome-to-derry-capitulo-3-hora-de-estreno-confirmado-hbo-max-noticia/)
+- **El globo rojo vuelve a inflarse**: [Link](https://www.perfil.com/noticias/espectaculos/el-globo-rojo-vuelve-a-inflarse.phtml)
+- **"El libro está lleno de enigmas y preguntas": Barbara y Andy Muschietti, creadores de Welcome to Derry, explican por qué la serie de terror de HBO es mucho más que Pennywise**: [Link](https://global.techradar.com/es-mx/streaming/hbo-max/el-libro-esta-lleno-de-enigmas-y-preguntas-barbara-y-andy-muschietti-creadores-de-welcome-to-derry-explican-por-que-la-serie-de-terror-de-hbo-es-mucho-mas-que-pennywise)
+
+
+### alianza lima voley (N/A, 09/11/2025 21:00 Lima)
+
+- **Alianza Lima vs Olva Latino EN VIVO HOY: punto a punto del duelo por la fecha 3 de la Liga Peruana de Vóley 2025/2026**: [Link](https://www.infobae.com/peru/deportes/2025/11/09/alianza-lima-vs-olva-latino-en-vivo-hoy-latina-fecha-3-primera-fase-liga-peruana-de-voley-20252026-resumen-resultado/)
+- **Programación de la fecha 3 de la Liga Peruana de Vóley 2025-2026: todas las fechas y horarios de los partidos**: [Link](https://rpp.pe/voley/mas-voley/liga-peruana-de-voley-2025-2026-programacion-de-la-fecha-3-fixture-fecha-y-horario-de-los-partidos-alianza-lima-universitario-san-martin-regatas-lpv-noticia-1662090)
+- **Universitario derrota a Deportivo Soan 3-0 por la fecha 3 de la Liga Peruana de Vóley | Resumen, puntos y sets**: [Link](https://elcomercio.pe/deporte-total/polideportivo/universitario-vs-deportivo-soan-en-vivo-horario-y-donde-ver-la-fecha-3-de-la-liga-peruana-de-voley-2025-via-latina-tv-video-sets-y-puntos-tdpe-noticia/)
+
+
+### tigre - estudiantes (N/A, 09/11/2025 21:00 Lima)
+
+Sin noticias relacionadas disponibles.
+
+
+### gremio vs (N/A, 09/11/2025 21:00 Lima)
+
+- **Erick Noriega es tendencia en Brasil: elogios y críticas tras derrota de Gremio frente Cruzeiro**: [Link](https://www.infobae.com/peru/deportes/2025/11/07/erick-noriega-es-tendencia-en-brasil-elogios-y-criticas-tras-derrota-de-gremio-frente-cruzeiro/)
+- **Hinchas de Gremio aceptaron que se cometió un gran error con Erick Noriega: “Raro momento”**: [Link](https://bolavip.com/pe/peruanos-en-el-exterior/hinchas-de-gremio-aceptaron-que-se-cometio-un-gran-error-con-erick-noriega-raro-momento)
+- **Gremio, con Noriega, cayó en casa ante Cruzeiro**: [Link](https://ovacion.pe/noticias/peruanos-mundo/gremio-noriega-cayo-casa-ante-cruzeiro)
+
+
+### santos - pachuca (N/A, 09/11/2025 21:00 Lima)
+
+- **Pronóstico Club Santos Laguna CF Pachuca - Liga MX 09/11/25**: [Link](https://www.sportytrader.com/es/pronosticos/santos-laguna-cf-pachuca-304024/)
+- **Cierran la fase regular del Apertura 2025**: [Link](https://www.cuartopoder.mx/deportes/cierran-la-fase-regular-del-apertura-2025/556517)
+- **🚨 ¡YA VA A EMPEZAR! 🚨 Esta televisora tendrá el Santos vs Pachuca en la Liga MX HOY 🏆 A esta HORA inicia... 🔥**: [Link](https://www.facebook.com/MilenioDiario/photos/-ya-va-a-empezar-esta-televisora-tendr%C3%A1-el-santos-vs-pachuca-en-la-liga-mx-hoy-a/1302946655196136/)
+
+
+### mirassol vs palmeiras (N/A, 09/11/2025 21:00 Lima)
+
+Sin noticias relacionadas disponibles.
+
+
 ### feyenoord vs (N/A, 09/11/2025 15:23 Lima)
 
 - **Pronóstico Go Ahead Eagles - Feyenoord. Eredivisie | 09/11/2025**: [Link](https://gainblers.com/pe/pronosticos/futbol/holanda/eredivisie/pronostico-go-ahead-eagles-feyenoord-09-11-2025/)
@@ -956,73 +1022,5 @@ Sin noticias relacionadas disponibles.
 - **Juan Pablo Varillas cuestionó el comportamiento del público peruano en el Challenger de Lima: “Se pasan de la raya y son irrespetuosos”**: [Link](https://www.infobae.com/peru/deportes/2025/11/05/juan-pablo-varillas-cuestiono-el-comportamiento-del-publico-peruano-en-el-challenger-de-lima-se-pasan-de-la-raya-y-son-irrespetuosos/)
 - **Hoy, Ignacio Buse vs. Reis Da Silva EN VIVO: ¿a qué hora juegan y dónde ver por octavos del Challenger de Lima 3?**: [Link](https://rpp.pe/tenis/mas-tenis/ignacio-buse-vs-reis-da-silva-en-vivo-octavos-final-lima-3-challenger-2025-a-que-hora-juegan-y-donde-ver-por-tv-via-atp-tour-link-gratis-partidos-de-hoy-noticia-1662590)
 - **¡A paso firme! Buse, Bueno y Varillas se meten a los octavos de final del Challenger Lima 3**: [Link](https://elcomercio.pe/deporte-total/polideportivo/a-paso-firme-buse-bueno-y-varillas-avanzan-a-los-octavos-de-final-del-challenger-lima-3-tenis-noticia/)
-
-
-### ceara vs (N/A, 06/11/2025 20:55 Lima)
-
-- **Ceará snatch late draw vs Fortaleza, heap pressure on rivals**: [Link](https://ca.sports.yahoo.com/news/cear-grab-draw-against-fortaleza-010700821.html)
-- **Ceará vs Fortaleza: Match Time and Where to Watch the Brasileirão Game**: [Link](https://emegypt.net/1032741)
-- **Bitesize Prediction: Ceara vs Fortaleza – 06/11/25**: [Link](https://www.soccernews.com/bitesize-prediction-ceara-vs-fortaleza-06-11-25/391867/)
-
-
-### viktoria plzeň - fenerbahçe (N/A, 06/11/2025 15:27 Lima)
-
-- **Fenerbahce aims for crucial away victory against Viktoria Plzen in UEFA Europa League**: [Link](https://www.turkiyetoday.com/sports/fenerbahce-aims-for-crucial-away-victory-against-viktoria-plzen-in-uefa-europa-league-3209522)
-- **Viktoria Plzen vs Fenerbahce Prediction and Betting Tips | November 6th 2025**: [Link](https://www.sportskeeda.com/football/viktoria-plzen-vs-fenerbahce-prediction-betting-tips-november-6th-2025)
-- **Fenerbahçe Faces Viktoria Plzen in Crucial Europa League Clash**: [Link](https://news.ssbcrack.com/fenerbahce-faces-viktoria-plzen-in-crucial-europa-league-clash/)
-
-
-### rayo vallecano (N/A, 06/11/2025 15:27 Lima)
-
-- **Real Madrid begin preparations for Rayo clash**: [Link](https://www.realmadrid.com/en-US/news/football/first-team/trainings/el-real-madrid-se-esta-entrenando-06-11-2025)
-- **He will start on Sunday, Eduardo Camavinga already knows it, he has to return to the bench.**: [Link](https://madrid-barcelona.com/en/real-madrid/he-will-be-a-starter-on-sunday-eduardo-camavinga-already-knows-it-he-has-to-return-to-the-bench)
-- **Real Madrid and Barcelona seek LaLiga solace after European setbacks**: [Link](https://www.reuters.com/sports/soccer/real-madrid-barcelona-seek-laliga-solace-after-european-setbacks-2025-11-06/)
-
-
-### bolonia - brann (N/A, 06/11/2025 15:27 Lima)
-
-- **Europa League: Bologna recibirá a SK Brann por la fecha 4**: [Link](https://rpp.pe/futbol/ligas-internacionales/europa-league-bologna-recibira-a-sk-brann-por-la-fecha-4-noticia-1662501)
-
-
-### real betis (N/A, 06/11/2025 15:27 Lima)
-
-- **Real Betis - Lyon, en directo: Europa League hoy, en vivo**: [Link](https://as.com/futbol/uefa/real-betis-lyon-en-directo-europa-league-hoy-en-vivo-f202511-d/)
-- **Europa League: Betis y Olympique Lyon se miden por la fecha 4**: [Link](https://rpp.pe/futbol/ligas-internacionales/europa-league-betis-y-olympique-lyon-se-miden-por-la-fecha-4-noticia-1662507)
-- **Amrabat se reincorpora al grupo en la última sesión antes de recibir al Lyon**: [Link](https://www.msn.com/es-es/deportes/futbol/amrabat-se-reincorpora-al-grupo-en-la-%C3%BAltima-sesi%C3%B3n-antes-de-recibir-al-lyon/ar-AA1PQxJ1)
-
-
-### paok vs (N/A, 06/11/2025 15:27 Lima)
-
-- **PAOK vs Young Boys LIVE Score Updates in UEFA Europa League Match**: [Link](https://www.vavel.com/en-us/soccer/2025/11/06/1240348-paok-vs-young-boys-live-score-europa-league.html)
-- **European Cup: YB face difficult task in Greece | blue News**: [Link](https://www.bluewin.ch/en/sport/football/yb-face-difficult-task-in-greece-2950768.html)
-- **Preview:PAOK vs Young Boys - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/paok/europa-league/preview/paok-vs-young-boys-prediction-team-news-lineups_585098.html)
-
-
-### aek atenas (N/A, 06/11/2025 15:27 Lima)
-
-- **Orbelín Pineda destaca, pero el AEK Atenas le da al Shamrock su primer punto en la Conference League**: [Link](https://www.clarosports.com/futbol/uefa-conference-league/aek-atenas-vs-shamrock-rovers-en-vivo-el-partido-de-la-conference-league-2025/)
-- **Goles y Resumen AEK Atenas vs Shamrock Rovers: Orbelín Pineda brilla pese al empate en la Conference League**: [Link](https://www.marca.com/mx/futbol/conference-league/cronica/2025/11/06/690cdfba46163f1d478b459f.html)
-- **AEK Athens vs Shamrock Rovers: pronóstico, apuestas, cuotas para el partido 06/11/2025**: [Link](https://legalbet.es/centro-apuestas/aek-athens-shamrock-rovers-06-11-2025/)
-
-
-### bologna vs (N/A, 06/11/2025 15:27 Lima)
-
-- **Bologna vs. SK Brann: Europa League official MD4 line-ups**: [Link](https://football-italia.net/europa-league-line-ups-bologna-vs-sk-brann/)
-- **Bologna, Brann is a fire that doesn't warm. Mission: victory to reignite Europe**: [Link](https://sport.quotidiano.net/en/calcio/bologna/bologna-il-brann-e-un-5157088e)
-- **Bologna Faces Brann in Europa League Clash**: [Link](https://www.ilmessaggero.it/en/bologna_faces_brann_in_europa_league_clash-9170691.html?next_page=1)
-
-
-### stuttgart vs (N/A, 06/11/2025 15:27 Lima)
-
-- **Liveticker | VfB Stuttgart - Feyenoord Rotterdam : | 4. Spieltag | Europa League 2025/26**: [Link](https://www.kicker.de/stuttgart-gegen-feyenoord-2025-europa-league-5170531/ticker)
-- **'UEFA Europa League' bei RTL im Livestream...e live**: [Link](https://www.spielfilm.de/news/88018/uefa-europa-league-bei-rtl-im-livestream-und-tv-so-sehen-sie-die-uefa-europa-league-live)
-- **Feyenoord-Fans in Stuttgart: Party mit Techno, Gesängen, Bier – und Filmverbot**: [Link](https://www.stuttgarter-nachrichten.de/inhalt.feyenoord-fans-in-stuttgart-party-mit-techno-gesaengen-bier-und-filmverbot.731bf7f7-b4cc-4e18-9dd6-d7526ea66708.html)
-
-
-### uefa (N/A, 06/11/2025 15:27 Lima)
-
-- **TRT 1 Canlı İzle 6 Kasım: Viktoria Plzen - Fenerbahçe FB maçı tabii spor canlı yayın izle! Fenerbahçe Avrupa'da galibiyet arıyor**: [Link](https://www.yenisafak.com/foto-galeri/ozgun/trt-1-canli-izle-6-kasim-viktoria-plzen-fenerbahce-fb-maci-tabii-spor-canli-yayin-izle-fenerbahce-avrupada-galibiyet-ariyor-4766213)
-- **Domenico Tedesco'dan kadro tercihi açıklaması!**: [Link](https://beinsports.com.tr/haber/domenico-tedesco-viktoria-plzen-maci-oncesi-konustu)
-- **Viktoria Plzeň–Fenerbahçe maç kadrosu: Viktoria Plzeň–Fenerbahçe maçı ilk 11'ler belli oldu!**: [Link](https://www.yirmidort.tv/spor/viktoria-plzenfenerbahce-mac-kadrosu-viktoria-plzenfenerbahce-maci-ilk-11ler-belli-oldu-247841)
 
 
