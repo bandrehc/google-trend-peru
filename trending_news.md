@@ -1,3 +1,10 @@
+### susy diaz (N/A, 09/11/2025 23:31 Lima)
+
+- **El Valor de la Verdad EN VIVO: Susy Díaz promete una noche inolvidable donde hablará de política, amores y escándalos**: [Link](https://www.infobae.com/peru/2025/11/09/el-valor-de-la-verdad-en-vivo-susy-diaz-promete-una-noche-inolvidable-donde-hablara-de-politica-amores-y-escandalos/)
+- **Susy Díaz revelará el resultado de prueba de paternidad en “El valor de la verdad”**: [Link](https://elcomercio.pe/tvmas/farandula/susy-diaz-revelara-el-resultado-de-prueba-de-paternidad-en-el-valor-de-la-verdad-ultimas-noticia/)
+- **Su amorío con Waldir Sáenz y su paso por el Congreso: Todas las confesiones que hará Susy Díaz**: [Link](https://peru21.pe/espectaculos/susy-diaz-su-amorio-con-waldir-saenz-y-su-paso-por-el-congreso/)
+
+
 ### san diego fc (N/A, 09/11/2025 21:00 Lima)
 
 - **Portland and Neville relishing decider against 'fantastic' San Diego**: [Link](https://www.fotmob.com/id/news/u06jhm7prctv1907uqn1n1pqi-portland-neville-relishing-decider-against-fantastic-san-diego)
@@ -1015,12 +1022,5 @@ Sin noticias relacionadas disponibles.
 - **Boyacá Chicó vs América: El dato que mantiene viva la ilusión de los Escarlatas en la Liga BetPlay**: [Link](https://www.espn.com.ar/futbol/colombia/nota/_/id/15921868/el-dato-que-mantiene-viva-la-ilusion-del-america-de-clasificar-cuadrangulares)
 - **Los goles con los que América se metió a los ocho mejores de Liga II**: [Link](https://www.futbolred.com/futbol-colombiano/liga-betplay/goles-de-chico-vs-america-de-cali-el-escarlata-lucha-por-clasificar-a-cuadrangulares-de-liga-2-2025-258255)
 - **Con Josen Escobar enfermo y Luis Paz descartado, América jugaría con esta formación ante Boyacá Chicó**: [Link](https://www.elpais.com.co/deportes/con-josen-escobar-enfermo-y-luis-paz-descartado-america-jugaria-con-esta-formacion-ante-boyaca-chico-0640.html)
-
-
-### gonzalo bueno (N/A, 06/11/2025 20:55 Lima)
-
-- **Juan Pablo Varillas cuestionó el comportamiento del público peruano en el Challenger de Lima: “Se pasan de la raya y son irrespetuosos”**: [Link](https://www.infobae.com/peru/deportes/2025/11/05/juan-pablo-varillas-cuestiono-el-comportamiento-del-publico-peruano-en-el-challenger-de-lima-se-pasan-de-la-raya-y-son-irrespetuosos/)
-- **Hoy, Ignacio Buse vs. Reis Da Silva EN VIVO: ¿a qué hora juegan y dónde ver por octavos del Challenger de Lima 3?**: [Link](https://rpp.pe/tenis/mas-tenis/ignacio-buse-vs-reis-da-silva-en-vivo-octavos-final-lima-3-challenger-2025-a-que-hora-juegan-y-donde-ver-por-tv-via-atp-tour-link-gratis-partidos-de-hoy-noticia-1662590)
-- **¡A paso firme! Buse, Bueno y Varillas se meten a los octavos de final del Challenger Lima 3**: [Link](https://elcomercio.pe/deporte-total/polideportivo/a-paso-firme-buse-bueno-y-varillas-avanzan-a-los-octavos-de-final-del-challenger-lima-3-tenis-noticia/)
 
 
