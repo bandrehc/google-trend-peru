@@ -1,3 +1,17 @@
+### peru vs (N/A, 10/11/2025 07:52 Lima)
+
+- **El “Rusia mandará un chárter” de Ferrari y qué se reveló sobre el nuevo técnico: lo que no se vio del accidentado viaje de Perú a San Petersburgo**: [Link](https://elcomercio.pe/deporte-total/seleccion/seleccion-peruana-hoy-el-rusia-mandara-un-charter-de-jean-ferrari-y-que-se-revelo-sobre-el-nuevo-tecnico-lo-que-no-se-vio-del-accidentado-viaje-de-peru-a-san-petersburgo-tlcnota-noticia/)
+- **Joao Grimaldo fue desconvocado para los amistosos de Perú en la fecha FIFA**: [Link](https://www.espn.com.ar/futbol/mundial/nota/_/id/15939822/joao-grimaldo-fue-desconvocado-para-los-amistosos-de-peru)
+- **Sin modificaciones: los partidos de Perú ante Rusia y Chile no serán reprogramados**: [Link](https://rpp.pe/futbol/seleccion-peruana/seleccionn-peruana-partidos-amistosos-ante-rusia-y-chile-no-seran-reprogramados-fpf-noticia-1663117)
+
+
+### ariana orue (N/A, 10/11/2025 07:52 Lima)
+
+- **Acusan a la congresista Ariana Orué de usar a su trabajador para que la lleve al gimnasio y de contratar a la "pareja" de su hermana**: [Link](https://rpp.pe/politica/congreso/ariana-orue-acusan-a-la-congresista-de-usar-a-su-trabajador-para-que-la-lleve-al-gimnasio-y-de-contratar-a-la-pareja-de-su-hermana-noticia-1663126)
+- **El colmo: Congresista Ariana Orué usó a su asesor como chofer para ir al gimnasio (VIDEO)**: [Link](https://peru21.pe/politica/congresista-ariana-orue-uso-asesor-como-chofer-para-ir-al-gimnasio/)
+- **Denuncian que la congresista Ariana Orué contrató en el Parlamento al socio de su hermana**: [Link](https://elcomercio.pe/politica/denuncian-que-la-congresista-ariana-orue-contrato-en-el-parlamento-al-socio-de-su-hermana-podemos-peru-ultimas-noticia/)
+
+
 ### martin vizcarra (N/A, 10/11/2025 03:34 Lima)
 
 - **Martín Vizcarra queda fuera de elecciones de 2026 en Perú**: [Link](https://www.dw.com/es/mart%C3%ADn-vizcarra-queda-fuera-de-elecciones-de-2026-en-per%C3%BA/a-74676175)
@@ -1008,19 +1022,5 @@ Sin noticias relacionadas disponibles.
 - **Pronóstico Palmeiras - Santos. Brasileirao Serie A | 07/11/2025**: [Link](https://gainblers.com/pe/pronosticos/futbol/brasil/brasileirao-serie-a/pronostico-palmeiras-santos-07-11-2025/)
 - **Where to watch Palmeiras vs Santos live in the USA: Brasileirao 2025**: [Link](https://bolavip.com/en/soccer/where-to-watch-palmeiras-vs-santos-live-in-the-usa-brasileirao-2025)
 - **Palmeiras vs Santos FC Prediction: Victory For The Greens**: [Link](https://www.telecomasia.net/sports-betting/tips/football/brazil-serie-a/palmeiras-vs-santos-fc-prediction-for-the-match-on-november-07-2025/)
-
-
-### palmeiras - santos (N/A, 06/11/2025 20:55 Lima)
-
-- **Palmeiras x Santos ao vivo 06/11: onde assistir, horário, escalações – Todo Canal**: [Link](https://portaln10.com.br/todocanal/televisao/palmeiras-x-santos-ao-vivo-06-11-onde-assistir-horario-escalacoes-e-palpites/)
-- **Impedimento anula gol de Arão enquanto López desperdiça na área no clássico Palmeiras x Santos pelo Brasil ...**: [Link](https://www.mixvale.com.br/2025/11/06/impedimento-anula-gol-de-arao-enquanto-lopez-desperdica-na-area-no-classico-palmeiras-x-santos-pelo-brasileirao/)
-- **Allianz Parque chega perto dos 17 milhões de espectadores em 11 anos**: [Link](https://www.terra.com.br/esportes/palmeiras/allianz-parque-chega-perto-dos-17-milhoes-de-espectadores-em-11-anos,9740acdfa7ab6cb3c033e6998692ebc0muw7doal.html)
-
-
-### tudum (N/A, 06/11/2025 20:55 Lima)
-
-- **Netflix Tudum Unveils Fresh Hits: Ransom Canyon, Into the Deep Blue, and Stranger Things Animated**: [Link](https://azat.tv/en/netflix-tudum-new-releases-ransom-canyon-into-the-deep-blue-stranger-things-animated/)
-- **Netflix Tudum Reveals Major Casting and Series Announcements for 2026**: [Link](https://news.ssbcrack.com/netflix-tudum-reveals-major-casting-and-series-announcements-for-2026/)
-- **‘Ransom Canyon’ Season 2 Adds ‘Shameless’ Alum Steve Howey**: [Link](https://variety.com/2025/tv/news/ransom-canyon-season-2-steve-howey-1236568533/)
 
 
