@@ -1,3 +1,52 @@
+### venezuela sub-17 - haití sub-17 (N/A, 10/11/2025 11:32 Lima)
+
+- **Partido de Venezuela-Haití Sub 17 EN VIVO ONLINE: alineaciones y dónde ver transmisión**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/venezuela-vs-haiti-sub-17-en-vivo-gratis-hoy-via-futbol-libre-tv-televen-directv-horarios-canales-tv-y-donde-ver-partido-por-mundial-sub-17-video-noticia/)
+- **Venezuela vs. Haití EN VIVO vía DIRECTV, Televen y Fútbol Libre TV por Mundial Sub-17**: [Link](https://depor.com/futbol-internacional/resto-del-mundo/venezuela-vs-haiti-en-vivo-hoy-gratis-directv-futbol-libre-tv-televen-dsports-dgo-en-directo-online-por-internet-mundial-sub-17-video-noticia/)
+- **¡Llegó el momento! La Vinotinto de Vizcarrondo afila las garras para la última fecha**: [Link](https://meridiano.net/futbol/la-vinotinto/llego-el-momento-la-vinotinto-de-vizcarrondo-afila-las-garras-para-la-ultima-fecha--202511918140)
+
+
+### the killers (N/A, 10/11/2025 11:32 Lima)
+
+- **The Killers vuelve a Perú para un esperado concierto: ¿Cuándo y dónde será el show?**: [Link](https://elcomercio.pe/luces/musica/the-killers-vuelve-a-peru-para-un-esperado-concierto-cuando-y-donde-sera-el-show-costa-21-celebs-ultimas-noticia/)
+- **The Killers confirmó concierto en Lima para el 2026**: [Link](https://www.americatv.com.pe/noticias/espectaculos/the-killers-anuncia-concierto-lima-n512845)
+- **The Killers regresan a Perú: los poetas del rock alternativo anuncian concierto tras ocho años de espera**: [Link](https://rpp.pe/musica/conciertos/the-killers-en-lima-2026-confirman-regreso-de-banda-de-rock-alternativo-en-costa-21-cuando-sera-noticia-1663172)
+
+
+### salim vera (N/A, 10/11/2025 11:32 Lima)
+
+- **Salim Vera se casó y lloró de emoción al ver a su novia Claudia Sobenes llegar al altar**: [Link](https://elcomercio.pe/tvmas/farandula/salim-vera-se-caso-y-lloro-de-emocion-al-ver-a-su-novia-claudia-sobenes-llegar-al-altar-ultimas-noticia/)
+- **Salim Vera y Claudia Sobenes se casaron en Arequipa: elegancia, rock y sentido homenaje a la madre del cantante**: [Link](https://www.infobae.com/peru/2025/11/09/salim-vera-y-claudia-sobenes-se-casaron-en-arequipa-elegancia-rock-y-romantico-homenaje/)
+- **Entre lágrimas y música: así fue la boda de Salim Vera y Claudia Sobenes [VIDEO]**: [Link](https://rpp.pe/videos/entretenimiento/salim-vera-y-claudia-sobenes-se-casaron-asi-fue-la-boda-en-arequipa-video-noticia-1663078)
+
+
+### taylor fritz (N/A, 10/11/2025 11:32 Lima)
+
+- **ATP Finals 2025: Taylor Fritz beats Lorenzo Musetti before Jannik Sinner faces Felix Auger-Aliassime**: [Link](https://www.bbc.com/sport/tennis/articles/c5y0rvwl2w6o)
+- **ATP Finals — Lorenzo Musetti vs Taylor Fritz 🧠 Form & Context Lorenzo Musetti ✅ First ATP Finals appearance; clinched spot after a heavy autumn workload. 🔋 Athens last week: R16→F with three three-setters, lost the final to Djokovic (4–6, 6–3, 5–7). 2025: 4**: [Link](https://x.com/Probahis/status/1987603880377741615)
+- **Highlights: Fritz downs Musetti in Nitto ATP Finals 2025 opener**: [Link](https://www.atptour.com/en/video/highlights-fritz-downs-musetti-in-nitto-atp-finals-2025-opener)
+
+
+### face (N/A, 10/11/2025 11:32 Lima)
+
+- **Trump draws boos, cheers at Washington Commanders game. Watch video.**: [Link](https://www.usatoday.com/story/news/politics/2025/11/10/trump-booed-commanders-nfl/87192454007/)
+- **Column | Trump’s visit flies in the face of his past with the NFL and its players**: [Link](https://www.washingtonpost.com/sports/2025/11/09/barry-svrluga-commanders-trump-nfl/)
+- **Amon-Ra St. Brown celebrated his TD by pointing up to a suite and doing the "Trump dance" with President Donald Trump at the Lions-Commanders game. See link below ⬇️ bit.ly/43kM8Hb**: [Link](https://www.facebook.com/detroitfreepress/posts/amon-ra-st-brown-celebrated-his-td-by-pointing-up-to-a-suite-and-doing-the-trump/1280467160792100/)
+
+
+### retiro afp cronograma (N/A, 10/11/2025 11:32 Lima)
+
+- **Retiro AFP 2025: estas son las últimas tres fechas por el último dígito del DNI del cronograma regular**: [Link](https://www.infobae.com/peru/2025/11/09/retiro-afp-2025-estas-son-las-tres-ultimas-fechas-por-el-ultimo-digito-del-dni-del-cronograma-regular/)
+- **RETIRO AFP - LINK para solicitar hasta 4 UIT, según DNI: Plataformas oficiales y pasos para iniciar tu registro online**: [Link](https://elcomercio.pe/respuestas/tramites/retiro-afp-link-para-solicitar-hasta-4-uit-segun-dni-plataformas-oficiales-y-pasos-para-iniciar-tu-registro-online-de-forma-segura-tdpe-noticia/)
+- **Octavo retiro de AFP 2025: link oficial y cómo hacer registro de solicitud si tu DNI termina en 6 según el cronograma**: [Link](https://gestion.pe/mix/mi-bolsillo/octavo-retiro-de-afp-2025-cuando-y-como-registrar-solicitud-hoy-si-tu-dni-termina-en-6-segun-fecha-del-cronograma-nnda-nnrt-noticia/)
+
+
+### peru vs rusia (N/A, 10/11/2025 11:32 Lima)
+
+- **El “Rusia mandará un chárter” de Ferrari y qué se reveló sobre el nuevo técnico: lo que no se vio del accidentado viaje de Perú a San Petersburgo**: [Link](https://elcomercio.pe/deporte-total/seleccion/seleccion-peruana-hoy-el-rusia-mandara-un-charter-de-jean-ferrari-y-que-se-revelo-sobre-el-nuevo-tecnico-lo-que-no-se-vio-del-accidentado-viaje-de-peru-a-san-petersburgo-tlcnota-noticia/)
+- **Joao Grimaldo fue desconvocado para los amistosos de Perú en la fecha FIFA**: [Link](https://www.espn.com.ar/futbol/mundial/nota/_/id/15939822/joao-grimaldo-fue-desconvocado-para-los-amistosos-de-peru)
+- **No tendrán modificaciones: los partidos de Perú ante Rusia y Chile no serán reprogramados**: [Link](https://rpp.pe/futbol/seleccion-peruana/seleccionn-peruana-partidos-amistosos-ante-rusia-y-chile-no-seran-reprogramados-fpf-noticia-1663117)
+
+
 ### peru vs (N/A, 10/11/2025 07:52 Lima)
 
 - **El “Rusia mandará un chárter” de Ferrari y qué se reveló sobre el nuevo técnico: lo que no se vio del accidentado viaje de Perú a San Petersburgo**: [Link](https://elcomercio.pe/deporte-total/seleccion/seleccion-peruana-hoy-el-rusia-mandara-un-charter-de-jean-ferrari-y-que-se-revelo-sobre-el-nuevo-tecnico-lo-que-no-se-vio-del-accidentado-viaje-de-peru-a-san-petersburgo-tlcnota-noticia/)
@@ -973,54 +1022,5 @@ Sin noticias relacionadas disponibles.
 - **Caviar y rojo no son insultos | Aldo Mariátegui**: [Link](https://peru21.pe/opinion/caviar-y-rojo-no-son-insultos-aldo-mariategui/)
 - **Aldo Mariátegui criticó presentación de Alfonso López Chau en CADE 2025: "Se ha quedado en el siglo XX"**: [Link](https://willax.pe/politica/aldo-mariategui-critica-alfonso-lopez-chau-cade-2025-willax)
 - **Pleno declaró persona non grata a la presidenta de México por injerencia en asuntos internos del Perú**: [Link](https://comunicaciones.congreso.gob.pe/noticias/pleno-declaro-persona-non-grata-a-la-presidenta-de-mexico-por-injerencia-en-asuntos-internos-del-peru/)
-
-
-### ignacio buse (N/A, 06/11/2025 23:28 Lima)
-
-- **Juan Pablo Varillas cuestionó el comportamiento del público peruano en el Challenger de Lima: “Se pasan de la raya y son irrespetuosos”**: [Link](https://www.infobae.com/peru/deportes/2025/11/05/juan-pablo-varillas-cuestiono-el-comportamiento-del-publico-peruano-en-el-challenger-de-lima-se-pasan-de-la-raya-y-son-irrespetuosos/)
-- **Hoy, Ignacio Buse vs. Reis Da Silva EN VIVO: ¿a qué hora juegan y dónde ver por octavos del Challenger de Lima 3?**: [Link](https://rpp.pe/tenis/mas-tenis/ignacio-buse-vs-reis-da-silva-en-vivo-octavos-final-lima-3-challenger-2025-a-que-hora-juegan-y-donde-ver-por-tv-via-atp-tour-link-gratis-partidos-de-hoy-noticia-1662590)
-- **¡A paso firme! Buse, Bueno y Varillas se meten a los octavos de final del Challenger Lima 3**: [Link](https://elcomercio.pe/deporte-total/polideportivo/a-paso-firme-buse-bueno-y-varillas-avanzan-a-los-octavos-de-final-del-challenger-lima-3-tenis-noticia/)
-
-
-### claro (N/A, 06/11/2025 23:28 Lima)
-
-- **Osiptel refuerza fiscalización y bloquea más de 1.8 millones de celulares vinculados a delitos**: [Link](https://caretas.pe/home_web/home_principal_secundario/osiptel-refuerza-fiscalizacion-y-bloquea-mas-de-1-8-millones-de-celulares-vinculados-a-delitos/)
-- **Claro Perú rechaza la venta de chips en la calle y exige sanciones penales severas para quienes los comercialicen**: [Link](https://trome.com/publirreportaje/claro-peru-rechaza-la-venta-de-chips-en-la-calle-y-exige-sanciones-penales-severas-para-quienes-los-comercialicen-noticia/)
-- **¿Te llegó un mensaje de bloqueo a tu celular? Esto debes hacer según Osiptel**: [Link](https://ancashnoticias.com/2025/11/06/te-llego-un-mensaje-de-bloqueo-a-tu-celular-esto-debes-hacer-segun-osiptel/)
-
-
-### tudum stranger things (N/A, 06/11/2025 20:55 Lima)
-
-- **How to Stranger Things Day 2025**: [Link](https://www.netflix.com/tudum/features/stranger-things-day-2025)
-- **Stranger Things 5 Trailer: The Epic Final Battle Begins**: [Link](https://www.netflix.com/tudum/articles/stranger-things-season-5-trailer)
-- **Stranger Things creators defend season 5's three-part split, and you'll be fine with it too once you hear their plans for Volume One's "mega-movie"**: [Link](https://www.gamesradar.com/entertainment/sci-fi-shows/stranger-things-creators-defend-season-5s-three-part-split-and-youll-be-fine-with-it-too-once-you-hear-their-plans-for-volume-ones-mega-movie/)
-
-
-### kick (N/A, 06/11/2025 20:55 Lima)
-
-- **How to connect your Kick account to Restream for multistreaming**: [Link](https://win.gg/how-to-connect-kick-account-restream/)
-- **Streamers Embrace Multistreaming on Kick Using Restream**: [Link](https://news.ssbcrack.com/streamers-embrace-multistreaming-on-kick-using-restream/)
-- **Hartford kicks off city-wide season of holiday events**: [Link](https://www.wfsb.com/2025/11/06/hartford-kick-off-city-wide-season-holiday-events/)
-
-
-### fortaleza vs (N/A, 06/11/2025 20:55 Lima)
-
-- **Fortaleza vs Grêmio Porto Alegre pronostico y comparación de cuotas 09.11.2025**: [Link](https://www.livetipsportal.com/es/pronosticos-apuestas-deportivas/fortaleza-vs-gremio-porto-alegre-serie-a-10963379/)
-- **Ceará rescató empate en el final ante Fortaleza por el Brasileirao**: [Link](https://ovacion.pe/noticias/futbol-internacional/ceara-rescato-empate-final-ante-fortaleza-brasileirao)
-- **Ceará - CE vs Fortaleza pronostico y comparación de cuotas 06.11.2025**: [Link](https://www.livetipsportal.com/es/pronosticos-apuestas-deportivas/ceara-ce-vs-fortaleza-serie-a-10963349/)
-
-
-### neymar (N/A, 06/11/2025 20:55 Lima)
-
-- **En Santos confían que siga Neymar: "Su proyecto es el Mundial 2026"**: [Link](https://www.espn.com.ar/futbol/brasil/nota/_/id/15912829/neymar-seguir-santos-proyecto-mundial-2026)
-- **"Neymar o Lewandowski" estarían en la Noche Blanquiazul 2026 de Alianza Lima**: [Link](https://peru21.pe/deportes/alianza-lima-neymar-o-lewandowski-estarian-en-la-noche-blanquiazul-2026/)
-- **¿Neymar en Perú? El plan para que Inter Miami y el astro brasileño jueguen la Noche Blanquiazul 2026**: [Link](https://depor.com/futbol-peruano/descentralizado/alianza-lima-vs-inter-de-miami-neymar-jr-podria-ser-otra-de-las-estrellas-en-llegar-a-lima-para-la-noche-blanquiazul-2026-noticia/)
-
-
-### santos vs (N/A, 06/11/2025 20:55 Lima)
-
-- **Pronóstico Palmeiras - Santos. Brasileirao Serie A | 07/11/2025**: [Link](https://gainblers.com/pe/pronosticos/futbol/brasil/brasileirao-serie-a/pronostico-palmeiras-santos-07-11-2025/)
-- **Where to watch Palmeiras vs Santos live in the USA: Brasileirao 2025**: [Link](https://bolavip.com/en/soccer/where-to-watch-palmeiras-vs-santos-live-in-the-usa-brasileirao-2025)
-- **Palmeiras vs Santos FC Prediction: Victory For The Greens**: [Link](https://www.telecomasia.net/sports-betting/tips/football/brazil-serie-a/palmeiras-vs-santos-fc-prediction-for-the-match-on-november-07-2025/)
 
 
