@@ -1,3 +1,50 @@
+### chelsea femenino (N/A, 11/11/2025 15:27 Lima)
+
+- **“Siempre es difícil romper sus líneas”, Bompastor espera buen inicio del Chelsea ante St. Pölten**: [Link](https://onefootball.com/pt-br/noticias/siempre-es-dificil-romper-sus-lineas-bompastor-espera-buen-inicio-del-chelsea-ante-st-poelten-41936985)
+- **Polten vs. Chelsea EN VIVO: Champions Femenina ¿dónde ver? HOY martes**: [Link](https://www.antena2.com/futbol/polten-vs-chelsea-en-vivo-champions-femenina-donde-ver-hoy-11-de-noviembre)
+- **Previa UWCL St. Pölten vs Chelsea: examen de altura en la NV Arena**: [Link](https://lasfutbolistas.com/previa-uwcl-st-polten-vs-chelsea-examen-de-altura-en-la-nv-arena/)
+
+
+### xiaomi (N/A, 11/11/2025 15:27 Lima)
+
+- **Así se siente usar el Xiaomi 15T, el celular que intenta borra la línea entre gama media y alta**: [Link](https://elcomercio.pe/tecnologia/moviles/asi-se-siente-usar-el-xiaomi-15t-el-celular-que-intenta-borra-la-linea-entre-gama-media-y-alta-noticia/)
+- **Xiaomi 15T rompió la barrera entre gama media y gama alta: así son sus características y precio**: [Link](https://libero.pe/tecnologia/2025/11/05/xiaomi-15t-rompio-barrera-gama-media-gama-alta-asi-son-sus-caracteristicas-precio-review-analisis-74780)
+- **Xiaomi HyperOS 3 update adds smooth folder animation to all devices**: [Link](https://xiaomitime.com/xiaomi-hyperos-3-update-adds-smooth-folder-animation-to-all-devices-74702/)
+
+
+### roma vs valerenga (N/A, 11/11/2025 15:27 Lima)
+
+- **Vålerenga beats Roma 1-0 for its first Women's Champions League win**: [Link](https://www.newsday.com/sports/soccer/womens-champions-league-roundup-v59240)
+- **Roma Women vs Valerenga Women Prediction and Betting Tips | November 11th 2025**: [Link](https://www.sportskeeda.com/football/roma-women-vs-valerenga-women-prediction-betting-tips-november-11th-2025)
+- **Roma vs Valerenga Preview: Team News & Prediction | 2025-26 UEFA Women’s Champions League | League Phase**: [Link](https://www.thestatszone.com/roma-vs-valerenga-preview-team-news-prediction-2025-26-uefa-womens-champions-league-league-phase-157879)
+
+
+### gonzalo bueno (N/A, 11/11/2025 15:27 Lima)
+
+- **Tenis: Gonzalo Bueno lo dio todo en semifinales del Igma Open 2025**: [Link](https://www.tvperu.gob.pe/noticias/deportes/tenis-gonzalo-bueno-lo-dio-todo-en-semifinales-del-igma-open-2025)
+- **Se respeta la casa: Ignacio Buse venció a Miguel Tobón y clasificó a octavos de final de Challenger Lima 3**: [Link](https://rpp.pe/tenis/mas-tenis/hoy-ignacio-buse-vs-miguel-tobon-en-vivo-primera-ronda-challenger-lima-3-a-que-hora-juegan-y-donde-ver-por-tv-via-atp-tour-link-gratis-partidos-de-hoy-noticia-1662272)
+- **Lima: Ignacio Buse avanza a octavos del Lima Challenger 3**: [Link](https://soltvperu.com/ignacio-buse-octavos-lima-challenger-3/)
+
+
+### precio del dolar peru (N/A, 11/11/2025 15:27 Lima)
+
+- **Precio del dólar sigue cayendo: Así abrió el tipo de cambio hoy 11 de noviembre en Perú**: [Link](https://www.infobae.com/peru/2025/11/10/peru-cotizacion-de-apertura-del-dolar-hoy-10-de-noviembre-de-usd-a-pen/)
+- **Precio del dólar en Perú del domingo 9 de noviembre: cuál fue el tipo de cambio**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-2025-cuanto-esta-el-dolar-este-domingo-9-de-noviembre-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
+- **Dólar hoy: cierra a S/3.369 y cae respecto al viernes**: [Link](https://peru21.pe/economia/dolar-hoy-cierra-s3369-y-cae-respecto-al-vienes/)
+
+
+### liga de campeones femenina de la uefa (N/A, 11/11/2025 15:27 Lima)
+
+- **Rivales de los equipos españoles en la Champions: una victoria holgada, una remontada y una derrota inesperada**: [Link](https://www.marca.com/futbol/futbol-femenino/champions-league/2025/11/08/rivales-equipos-espanoles-champions-victoria-holgada-remontada-derrota-inesperada.html)
+- **Renard, a por más historia**: [Link](https://as.com/futbol/femenino/renard-a-por-mas-historia-f202511-n/)
+- **DISNEY+ CONTINÚA CON LA EMOCIÓN EUROPEA: FC BARCELONA, ATLÉTICO DE MADRID Y REAL MADRID C.F COMPITEN EN LA UEFA WOMEN’S CHAMPIONS LEAGUE ESTE NOVIEMBRE**: [Link](https://cineytele.com/play/noticias/disney-continua-con-la-emocion-europea-fc-barcelona-atletico-de-madrid-y-real-madrid-c-f-compiten-en-la-uefa-womens-championsleague-este-noviembre/)
+
+
+### roma femenino vs (N/A, 11/11/2025 15:27 Lima)
+
+- **Previa UWCL Roma vs Vålerenga: urgencias en Tre Fontane por los primeros puntos**: [Link](https://lasfutbolistas.com/previa-uwcl-roma-vs-valerenga-urgencias-en-tre-fontane-por-los-primeros-puntos/)
+
+
 ### taylor fritz (N/A, 11/11/2025 11:31 Lima)
 
 - **ATP Finals: Alcaraz vs. Fritz & Musetti vs. de Minaur | Previews, Picks, Where to Watch**: [Link](https://www.tennis.com/news/articles/atp-finals-alcaraz-vs-fritz-musetti-vs-de-minaur-previews-picks-where-to-watch)
@@ -974,52 +1021,5 @@ Sin noticias relacionadas disponibles.
 - **Where to watch Warriors vs. Nuggets free stream today**: [Link](https://www.masslive.com/tv/2025/11/where-to-watch-warriors-vs-nuggets-free-stream-today.html)
 - **Moses Moody shares key to Warriors' win vs. Nuggets without Steph Curry**: [Link](https://www.nbcsportsbayarea.com/video/nba/golden-state-warriors/moses-moody-interview-watch/1890187/)
 - **Top player props for Warriors vs. Nuggets**: [Link](https://www.nbcsports.com/watch/nba/top-player-props-for-golden-state-warriors-vs-denver-nuggets)
-
-
-### gallo zamora (N/A, 07/11/2025 23:27 Lima)
-
-- **Cancillería informó que Carlos Zamora, embajador de Cuba, concluyó su misión en el Perú**: [Link](https://rpp.pe/politica/gobierno/cancilleria-informo-que-carlos-zamora-embajador-de-cuba-concluyo-su-mision-en-el-peru-noticia-1662958)
-- **Tras México, ahora que De Zela expulse al espía cubano Aldo Mariátegui**: [Link](https://peru21.pe/opinion/tras-mexico-ahora-que-de-zela-expulse-al-espia-cubano-aldo-mariategui/)
-- **Gobierno del Perú invitó a Carlos Zamora, embajador de Cuba, a retirarse del país**: [Link](https://larepublica.pe/politica/2025/11/07/gobierno-del-peru-invito-a-carlos-zamora-embajador-de-cuba-a-retirarse-del-pais-hnews-137802)
-
-
-### u va (N/A, 07/11/2025 23:27 Lima)
-
-- **Walmart CEO on AI: "Every job we've got is going to change"**: [Link](https://www.axios.com/2025/11/03/walmart-shopping-ai-push-employee-training)
-- **The nation’s largest employers are putting their workers on notice**: [Link](https://www.msn.com/en-us/money/smallbusiness/ar-AA1PCfg7)
-- **UVA expert weighs in on Walmart’s choice to use OpenAI**: [Link](https://www.29news.com/2025/11/07/uva-expert-weighs-walmarts-choice-use-openai/)
-
-
-### tolima - llaneros (N/A, 07/11/2025 23:27 Lima)
-
-- **Pronóstico Deportes Tolima Llaneros FC - Liga BetPlay 07/11/25**: [Link](https://www.sportytrader.com/es/pronosticos/deportes-tolima-llaneros-fc-303580/)
-- **Noticia Tolima: Los Pijaos reciben este viernes a los Llaneros**: [Link](https://www.alertatolima.com/noticias/deportes/el-deportes-tolima-ya-clasificado-sera-juez-de-llaneros)
-- **Partido entre Tolima y Llaneros se jugará sin restricciones pero con controles**: [Link](https://elirreverenteibague.com/noticia/2533179/partido-entre-tolima-y-llaneros-se-jugara-sin-restricciones-pero-con-controles)
-
-
-### gonzalo bueno (N/A, 07/11/2025 23:27 Lima)
-
-- **Sufrió para ganar: Gonzalo Bueno ya está en cuartos de final del Lima Challenger 3 | VIDEO**: [Link](https://elcomercio.pe/deporte-total/tenis/sufrio-para-ganar-gonzalo-bueno-ya-esta-en-cuartos-de-final-del-lima-challenger-3-video-noticia/)
-- **Se respeta la casa: Ignacio Buse venció a Miguel Tobón y clasificó a octavos de final de Challenger Lima 3**: [Link](https://rpp.pe/tenis/mas-tenis/hoy-ignacio-buse-vs-miguel-tobon-en-vivo-primera-ronda-challenger-lima-3-a-que-hora-juegan-y-donde-ver-por-tv-via-atp-tour-link-gratis-partidos-de-hoy-noticia-1662272)
-- **Buse fue sorprendido y cayó eliminado en el Challenger 75 "Igma Open"**: [Link](https://ovacion.pe/noticias/tenis/buse-fue-sorprendido-cayo-eliminado-challenger-75-igma-open)
-
-
-### cuiabá - goiás (N/A, 07/11/2025 20:48 Lima)
-
-Sin noticias relacionadas disponibles.
-
-
-### charlotte fc - nyc fc (N/A, 07/11/2025 20:48 Lima)
-
-- **Charlotte FC vs New York City FC Odds, Spread, and Total**: [Link](https://foxsportsradionewjersey.com/2025/11/07/charlotte-fc-vs-new-york-city-fc-odds-spread-and-total-3/)
-- **Starting XI | Charlotte FC vs New York City FC**: [Link](https://www.charlottefootballclub.com/news/starting-xi-charlotte-fc-vs-new-york-city-fc-r1m3-playoffs-2025)
-- **‘IT’S A DO-OF-DIE’: NYCFC needs to beat Charlotte or its season is over**: [Link](https://www.frontrowsoccer.com/2025/11/07/its-a-do-of-die-nycfc-needs-to-beat-charlotte-or-its-season-is-over/)
-
-
-### salvoconducto betssy chavez (N/A, 07/11/2025 20:48 Lima)
-
-- **El Congreso de Perú declara "persona non grata" a Claudia Sheinbaum por el asilo que México le concedió a la ex primera ministra Betssy Chávez**: [Link](https://www.bbc.com/mundo/articles/c3rj7r2nv8eo)
-- **José Jerí sobre salvoconducto a Betssy Chávez: “No nos vamos a pronunciar en este momento sobre ello y, en consecuencia, no puede viajar a México”**: [Link](https://elcomercio.pe/politica/gobierno/jose-jeri-sobre-salvoconducto-a-betssy-chavez-no-nos-vamos-a-pronunciar-en-este-momento-sobre-ello-y-en-consecuencia-no-puede-viajar-a-mexico-ultimas-noticia/)
-- **Pleno declaró persona non grata a la presidenta de México por injerencia en asuntos internos del Perú**: [Link](https://comunicaciones.congreso.gob.pe/noticias/pleno-declaro-persona-non-grata-a-la-presidenta-de-mexico-por-injerencia-en-asuntos-internos-del-peru/)
 
 
