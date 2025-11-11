@@ -1,3 +1,31 @@
+### poder judicial delia espinoza (N/A, 11/11/2025 07:51 Lima)
+
+- **PJ ordena a la JNJ reponer a Delia Espinoza en el cargo de fiscal de la Nación dentro de los dos días siguientes a la notificación [Exp. 10506-2025-26]**: [Link](https://lpderecho.pe/pj-ordena-jnj-reponer-a-delia-espinoza-cargo-fiscal-nacion-dentro-dos-dias-siguientes-notificacion-exp-10506-2025-26/)
+- **Delia Espinoza vuelve como fiscal de la Nación: PJ advierte incumplimiento por parte de la JNJ y le ordena reponer a fiscal**: [Link](https://www.infobae.com/peru/2025/11/10/delia-espinoza-vuelve-como-fiscal-de-la-nacion-poder-judicial-ordena-a-la-jnj-reponer-a-la-fiscal/)
+- **Poder Judicial ordena a la JNJ que “cumpla con reponer” a Delia Espinoza como fiscal de la Nación**: [Link](https://elcomercio.pe/politica/justicia/delia-espinoza-poder-judicial-ordena-reponerla-como-fiscal-de-la-nacion-ministerio-publico-jnj-tomas-galvez-noticia/)
+
+
+### perú vs (N/A, 11/11/2025 07:51 Lima)
+
+- **Técnico de Rusia: "El nivel de Chile y Perú es más o menos el mismo"**: [Link](https://www.espn.com.ar/futbol/mundial/nota/_/id/15944126/tecnico-de-rusia-valeri-karpin-nivel-chile-peru-mas-o-menos-el-mismo)
+- **Perú vs Rusia: minuto a minuo de la previa del partido en San Petersburgo**: [Link](https://elcomercio.pe/deporte-total/seleccion/peru-vs-rusia-ultimas-noticias-de-la-seleccion-peruana-lbposting-noticia/)
+- **Amistoso internacional: Rusia y Perú se encuentran en un amistoso**: [Link](https://rpp.pe/futbol/ligas-internacionales/amistoso-internacional-rusia-y-peru-se-encuentran-en-un-amistoso-noticia-1663296)
+
+
+### 11 de noviembre (N/A, 11/11/2025 07:51 Lima)
+
+- **El Niño Prodigio: Horóscopo para el 10 de noviembre**: [Link](https://peopleenespanol.com/el-nino-prodigio-horoscopo-para-el-10-de-noviembre-11845856)
+- **Horóscopo del Niño Prodigio: qué le depara a cada signo del zodíaco este lunes 10 de noviembre**: [Link](https://www.cronista.com/usa/espiritual/horoscopo-del-nino-prodigio-que-le-depara-a-cada-signo-del-zodiaco-este-lunes-10-de-noviembre/)
+- **Horóscopo del Niño Prodigio: las predicciones para este domingo 9 de noviembre de 2025**: [Link](https://noticiasargentinas.com/interes-general/horoscopo-del-nino-prodigio--las-predicciones-para-este-domingo-9-de-noviembre-de-2025_a690810992686767fd171c87a)
+
+
+### españa vs (N/A, 11/11/2025 07:51 Lima)
+
+- **¿A qué hora juega FC Barcelona vs. Celta de Vigo por LaLiga EA Sports 2025 en USA, México y España?**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/a-que-hora-juega-fc-barcelona-vs-celta-de-vigo-en-vivo-por-laliga-ea-sports-2025-en-usa-mexico-y-espana-nnda-nnse-noticia/)
+- **Lewandowski rompe récord de Neymar en Barcelona con soberbio ‘Hat-trick’ [VIDEO]**: [Link](https://trome.com/deportes/futbol-internacional/lewandowski-rompe-record-de-neymar-en-barcelona-con-soberbio-hat-trick-video-noticia/)
+- **LEWANDOWSKI: «ESTAMOS A 2 PUNTOS DEL MADRID»**: [Link](https://todosport.pe/lewandowski-estamos-a-2-puntos-del-madrid/)
+
+
 ### chaleco (N/A, 11/11/2025 03:32 Lima)
 
 - **¡Atención, motociclistas! MTC modifica normativa sobre el uso de chalecos y cascos**: [Link](https://elperuano.pe/noticia/282610-atencion-motociclistas-mtc-modifica-normativa-sobre-el-uso-de-chalecos-y-cascos)
@@ -993,33 +1021,5 @@ Sin noticias relacionadas disponibles.
 - **Tabla de posiciones de Liga 1 2025 EN VIVO: acumulado y resultados de la fecha 18 del Torneo Clausura**: [Link](https://depor.com/futbol-peruano/descentralizado/tabla-de-posiciones-liga-1-peru-2025-en-vivo-resultados-de-la-fecha-18-del-torneo-clausura-universitario-de-deportes-sporting-cristal-alianza-lima-noticia/)
 - **Cinco equipos en la cuerda floja: duelos decisivos de la penúltima fecha y la batalla por la permanencia en la Liga 1 2025**: [Link](https://www.infobae.com/peru/deportes/2025/11/07/cinco-equipos-en-la-cuerda-floja-duelos-decisivos-de-la-penultima-fecha-y-la-batalla-por-la-permanencia-en-la-liga-1-2025/)
 - **Con el Universitario vs. Garcilaso: programación y horarios de la fecha 18 del Torneo Clausura 2025 de la Liga1**: [Link](https://rpp.pe/futbol/descentralizado/torneo-clausura-2025-fecha-18-con-universitario-vs-garcilaso-programacion-de-partidos-y-horarios-en-penultima-jornada-de-liga-1-noticia-1662646)
-
-
-### tabla acumulado liga 1 (N/A, 07/11/2025 20:48 Lima)
-
-- **Fechas confirmadas de los ‘play offs’ por cupo a Copa Libertadores 2026: programación de partidos de Alianza Lima, Sporting Cristal y Cusco FC**: [Link](https://www.infobae.com/peru/deportes/2025/11/07/fechas-confirmadas-de-los-play-offs-por-cupo-a-copa-libertadores-2026-programacion-de-partidos-de-alianza-lima-sporting-cristal-y-cusco-fc/)
-- **Tabla de Liga 1 en vivo: así van las posiciones tras victoria de Sporting Cristal**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/tabla-de-posiciones-liga-1-en-vivo-hoy-como-va-el-acumulado-y-clausura-en-fecha-18-con-universitario-alianza-lima-cristal-y-cusco-fc-noticia/)
-- **Sin Universitario tricampeón, pero con Alianza Lima: las fechas para los Playoffs finales de la Liga 1**: [Link](https://bolavip.com/pe/liga-1/sin-universitario-tricampeon-pero-con-alianza-lima-las-fechas-para-los-playoffs-finales-de-la-liga-1)
-
-
-### paris fc (N/A, 07/11/2025 15:24 Lima)
-
-- **Ligue 1 News: Paris FC vs Rennes Confirmed Line-ups**: [Link](https://footballpredictions.net/paris-fc-v-rennes-team-news-confirmed-lineups)
-- **Alimami Gory vs. Stade Rennes – Player props & odds to score a goal on November 7**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/11/07/alimami-gory-soccer-player-props-11-7-2025/87139957007/)
-- **Paris FC-Rennes live commentary**: [Link](https://frenchfootballweekly.com/2025/11/07/paris-fc-rennes-live-commentary/)
-
-
-### paris fc - rennes (N/A, 07/11/2025 15:24 Lima)
-
-- **Paris FC vs Rennes**: [Link](https://www.staderennais.com/matchs/2025-11-07-paris-fc-vs-rennes)
-- **PRONOS PARIS RMC Le pari foot de Lionel Charbonnier du 7 novembre – Ligue 1**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-foot-de-lionel-charbonnier-du-7-novembre-ligue-1_AN-202511070685.html)
-- **EN DIRECT - Paris FC-Rennes : place au «Milliardairico» entre les Arnault et les Pinault**: [Link](https://www.lefigaro.fr/sports/football/live/ligue-1/2025/2568537/paris-fc-rennes)
-
-
-### pisa vs (N/A, 07/11/2025 15:24 Lima)
-
-- **Preview:Pisa vs Cremonese - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/pisa/preview/pisa-vs-cremonese-prediction-team-news-lineups_585147.html)
-- **Filippo Terracciano vs. SC Pisa – Player props & odds to score a goal on November 7**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/11/07/filippo-terracciano-soccer-player-props-11-7-2025/87139992007/)
-- **Pisa vs Cremonese – Official Starting Lineups**: [Link](https://football-italia.net/pisa-vs-cremonese-official-starting-lineups/)
 
 
