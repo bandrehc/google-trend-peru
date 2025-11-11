@@ -1,3 +1,38 @@
+### jose jeri (N/A, 10/11/2025 23:29 Lima)
+
+- **José Jerí cumple un mes en la Presidencia: lo que dejan los primeros 30 días de su gestión y lo que viene para su gobierno**: [Link](https://elcomercio.pe/politica/gobierno/jose-jeri-cumple-un-mes-en-la-presidencia-lo-que-dejan-los-primeros-30-dias-de-su-gestion-y-lo-que-viene-para-su-gobierno-tlc-audio-noticia/)
+- **El 55.9 % de los peruanos aprueba el desempeño de José Jerí como presidente hasta al momento, según encuesta de CPI**: [Link](https://rpp.pe/politica/actualidad/el-559-de-los-peruanos-aprueba-el-desempeno-de-jose-jeri-como-presidente-hasta-al-momento-segun-encuesta-de-cpi-noticia-1663158)
+- **Renzo Reggiardo felicita la gestión de José Jerí tras última encuesta**: [Link](https://www.atv.pe/noticia/renzo-reggiardo-felicita-la-gestion-de-jose-jeri-tras-ultima-encuesta/)
+
+
+### billie eilish (N/A, 10/11/2025 23:29 Lima)
+
+- **How Billie Eilish Scored 2026 Grammy Noms for Her 2024 Song**: [Link](https://www.imdb.com/de/news/ni65564183/?ref_=nwc_art_perm)
+- **How Billie Eilish Scored 2026 Grammy Noms for Her 2024 Song**: [Link](https://www.hollywoodreporter.com/music/music-news/billie-eilish-earned-2026-grammy-noms-2024-song-wildflower-1236422306/)
+- **Billie Eilish, Rodney Crowell, Jeff Lorber, DJ Soul Sister: music in New Orleans this week**: [Link](https://www.nola.com/entertainment_life/keith_spera/music-in-new-orleans-for-the-week-of-november-6-12-2025/article_b7d86107-d960-489e-b982-3252ff3a0639.html)
+
+
+### mavericks - bucks (N/A, 10/11/2025 23:29 Lima)
+
+- **Mavericks lead Bucks 57-53 at halftime**: [Link](https://www.jsonline.com/story/sports/nba/bucks/2025/11/10/milwaukee-bucks-injury-report-giannis-antetokounmpo-playing-dallas/87193133007/)
+- **Where to watch today's Dallas Mavericks vs Milwaukee Bucks NBA Game: Livestream, TV channels and start time**: [Link](https://www.goal.com/en-sg/news/mavericks-bucks-watch-live-stream-nba-game/blt0aed7747804eb09e)
+- **Cooper Flagg faces big test as Bucks come to Dallas**: [Link](https://www.cbssports.com/nba/news/cooper-flagg-faces-big-test-as-bucks-come-to-dallas/)
+
+
+### bulls - spurs (N/A, 10/11/2025 23:29 Lima)
+
+- **San Antonio Spurs: Victor Wembanyama is the first …**: [Link](https://www.hoopshype.com/story/sports/nba/rumors/2025/11/10/san-antonio-spurs-victor-wembanyama-is-the-first/87206687007/)
+- **Another loss, another star taking the Bulls down, as Wemby is latest**: [Link](https://chicago.suntimes.com/bulls/2025/11/10/another-star-taking-bulls-down-wemby-is-latest)
+- **BULLS POSTGAME: Victor Wembanyama RUINS Great Bulls Team Effort | CHGO Bulls Podcast**: [Link](https://bvmsports.com/2025/11/10/bulls-postgame-victor-wembanyama-ruins-great-bulls-team-effort-chgo-bulls-podcast/)
+
+
+### medellín - envigado (N/A, 10/11/2025 23:29 Lima)
+
+- **Medellín empató con Envigado y avanzó a la final de la Copa Betplay**: [Link](https://www.espn.com.ar/futbol/colombia/nota/_/id/15942384/medellin-empato-con-envigado-y-avanzo-a-la-final-de-la-copa-betplay)
+- **¡EN VIVO! Medellín recibe a Envigado por la vuelta de las semifinales de la Copa Betplay**: [Link](https://espndeportes.espn.com/futbol/colombia/nota/_/id/15942384/medellin-vs-envigado-semifinal-vuelta-copa-betplay-equipo-fecha-hora-y-tv-en-vivo)
+- **Alejandro Restrepo: "Queremos ser campeones y tenemos una nueva oportunidad"**: [Link](https://www.noticiascaracol.com/golcaracol/futbol-colombiano/alejandro-restrepo-queremos-ser-campeones-y-tenemos-una-nueva-oportunidad-rg10)
+
+
 ### independiente rivadavia - central córdoba (N/A, 10/11/2025 20:57 Lima)
 
 - **Pronóstico Independiente Rivadavia De Mendoza - Central Córdoba - Liga Profesional Argentina**: [Link](https://www.sportytrader.com/es/pronosticos/independiente-de-mendoza-central-cordoba-sde-304444/)
@@ -986,38 +1021,5 @@ Sin noticias relacionadas disponibles.
 - **Pisa-Cremonese, le formazioni ufficiali: Gilardino con Nzola, Nicola lancia Vazquez**: [Link](https://www.gazzetta.it/calcio/fantanews/07-11-2025/pisa-cremonese-le-formazioni-ufficiali-tutti-i-titolari.shtml)
 - **Bondo: “Con la Juventus giocata un’ottima partita. Dobbiamo battere le nostre rivali”**: [Link](https://www.alfredopedulla.com/bondo-con-la-juventus-giocata-unottima-partita-dobbiamo-battere-le-nostre-rivali/)
 - **Live Pisa - Cremonese - Serie A: Punteggi & Highlights Calcio - 07/11/2025**: [Link](https://www.eurosport.it/calcio/serie-a/2025-2026/live-pisa-cremonese_mtc1598667/live-commentary.shtml)
-
-
-### barça - real madrid (N/A, 07/11/2025 15:24 Lima)
-
-- **Barcelona - Real Madrid en directo | Clásico de Euroliga hoy en vivo**: [Link](https://www.marca.com/baloncesto/euroliga/barcelona-real-madrid/2025/11/07/02_0203_20251107_6216_6210-directo.html)
-- **Tavares, duda para el Clásico por enfermedad**: [Link](https://as.com/baloncesto/euroliga/tavares-duda-para-el-clasico-por-enfermedad-f202511-n/)
-- **Scariolo: “Queremos llevar toda la energía y el entusiasmo que podamos al campo del Barça”**: [Link](https://www.realmadrid.com/es-ES/noticias/baloncesto/primer-equipo/ruedas-de-prensa/rp-scariolo-pre-barcelona-rm-euroliga-j9-06-11-2025)
-
-
-### olympiacos - partizan (N/A, 07/11/2025 15:24 Lima)
-
-- **Bartzokas: «A solid team is always ready, no matter where it plays»**: [Link](https://www.olympiacosbc.gr/en/news-en/latest-news-en/11605-bartzokas-a-solid-team-is-always-ready-no-matter-where-it-plays.html)
-- **Shake Milton predicts Partizan's victory in Piraeus, names surprise picks for F4**: [Link](https://basketnews.com/news-234560-shake-milton-predicts-partizans-victory-in-piraeus-names-surprise-picks-for-f4.html)
-- **Partizan’s Jabari Parker and Vanja Marinkovic miss trip to Greece**: [Link](https://www.eurohoops.net/en/euroleague/1890622/jabari-parker-vanja-marinkovic-out-partizan-at-olympiacos-eruoleague/)
-
-
-### twente (N/A, 07/11/2025 15:24 Lima)
-
-- **Live voetbal | Bekijk de tussenstand bij FC Twente-Telstar en acht KKD-duels**: [Link](https://www.nu.nl/voetbal/6375222/live-voetbal-bekijk-de-tussenstand-bij-fc-twente-telstar-en-acht-kkd-duels.html)
-- **LIVE eredivisie | FC Twente snakt naar een zege: gaat trainer John van den Brom wat veranderen tegen Telstar?**: [Link](https://www.gelderlander.nl/enschede/live-eredivisie-fc-twente-snakt-naar-een-zege-gaat-trainer-john-van-den-brom-wat-veranderen-tegen-telstar~a8aca56b/)
-- **FC Twente beter dan Telstar, maar vooralsnog 0-0 • Telstar mist vlak voor rust enorme kans**: [Link](https://nos.nl/liveblog/2589529-fc-twente-beter-dan-telstar-maar-vooralsnog-0-0-telstar-mist-vlak-voor-rust-enorme-kans)
-
-
-### werder bremen vs (N/A, 07/11/2025 15:24 Lima)
-
-Sin noticias relacionadas disponibles.
-
-
-### cusco (N/A, 07/11/2025 15:24 Lima)
-
-- **Cusco: proponen una administración comunal para gestionar la “Montaña de 7 colores”**: [Link](https://gestion.pe/peru/cusco-proponen-una-administracion-comunal-para-gestionar-la-montana-de-7-colores-noticia/)
-- **Cusco crea comisión técnica para resolver conflicto por la gestión turística de Vinicunca**: [Link](https://diarioviral.pe/peru/peru/cusco-crea-comision-tecnica-para-resolver-conflicto-por-la-gestion-turistica-de-vinicunca-48492)
-- **Montaña de 7 Colores: autoridades de Cusco plantean administración comunal ante conflictos**: [Link](https://www.infobae.com/peru/2025/11/06/montana-de-7-colores-autoridades-de-cusco-plantean-administracion-comunal-ante-conflictos/)
 
 
