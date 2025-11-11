@@ -1,3 +1,69 @@
+### independiente rivadavia - central córdoba (N/A, 10/11/2025 20:57 Lima)
+
+- **Pronóstico Independiente Rivadavia De Mendoza - Central Córdoba - Liga Profesional Argentina**: [Link](https://www.sportytrader.com/es/pronosticos/independiente-de-mendoza-central-cordoba-sde-304444/)
+- **Deportivo Riestra vs Independiente, por el Torneo Clausura 2025: minuto a minuto, en directo**: [Link](https://marcapersonalweb.com.ar/2025/11/10/deportivo-riestra-vs-independiente-por-el-torneo-clausura-2025-minuto-a-minuto-en-directo/)
+- **Indep.Mza. vs C.Córdoba (SE) en vivo por la fecha 15 de la Liga Profesional: hora, dónde ver y formaciones**: [Link](https://tn.com.ar/deportes/futbol/2025/11/10/indepmza-vs-ccordoba-se-en-vivo-por-la-fecha-15-de-la-liga-profesional-hora-donde-ver-y-formaciones/)
+
+
+### independiente medellin vs (N/A, 10/11/2025 20:57 Lima)
+
+Sin noticias relacionadas disponibles.
+
+
+### delia espinoza (N/A, 10/11/2025 20:57 Lima)
+
+- **PJ ordena a la JNJ reponer a Delia Espinoza en el cargo de fiscal de la Nación dentro de los dos días siguientes a la notificación [Exp. 10506-2025-26]**: [Link](https://lpderecho.pe/pj-ordena-jnj-reponer-a-delia-espinoza-cargo-fiscal-nacion-dentro-dos-dias-siguientes-notificacion-exp-10506-2025-26/)
+- **Poder Judicial ordena reponer a Delia Espinoza como fiscal de la Nación**: [Link](https://elcomercio.pe/politica/justicia/delia-espinoza-poder-judicial-ordena-reponerla-como-fiscal-de-la-nacion-ministerio-publico-jnj-tomas-galvez-noticia/)
+- **Delia Espinoza vuelve como fiscal de la Nación: PJ advierte incumplimiento por parte de la JNJ y le ordena reponer a fiscal**: [Link](https://www.infobae.com/peru/2025/11/10/delia-espinoza-vuelve-como-fiscal-de-la-nacion-poder-judicial-ordena-a-la-jnj-reponer-a-la-fiscal/)
+
+
+### argentinos jrs. - belgrano (N/A, 10/11/2025 20:57 Lima)
+
+- **Pronóstico Argentinos Juniors CA Belgrano - Liga Profesional Argentina 10/11/25**: [Link](https://www.sportytrader.com/es/pronosticos/argentinos-jrs-ca-belgrano-304442/)
+- **Qué canal pasa Argentinos vs Belgrano hoy: dónde ver GRATIS y EN VIVO el partido de la Liga Profesional**: [Link](https://www.365scores.com/es/news/argentinos-vs-belgrano-donde-ver-liga/)
+- **La Previa: Tiempo de Revancha -**: [Link](https://argentinospasion.com.ar/2025/11/09/la-previa-tiempo-de-revancha-3/)
+
+
+### aucas - delfín (N/A, 10/11/2025 20:57 Lima)
+
+- **Pronóstico Aucas Delfín - Liga Pro Ecuador 10/11/25**: [Link](https://www.sportytrader.com/es/pronosticos/aucas-delfin-sc-303555/)
+- **SD Aucas vs Delfin SC: pronósticos, cuotas, y datos para apostar!**: [Link](https://www.apwin.com/es/pronosticos/sd-aucas-vs-delfin-sc-pronostico-liga-pro-11-11-2025/)
+- **¡Marcador de tenis! Aucas humilló 6-0 al Delfín en la LigaPro**: [Link](https://revistawinner.ec/marcador-de-tenis-aucas-humillo-6-0-al-delfin-en-la-ligapro/)
+
+
+### precio del dólar hoy perú (N/A, 10/11/2025 20:57 Lima)
+
+- **Precio del dólar vuelve a caer: Así cerró el tipo de cambio hoy 10 de noviembre en Perú**: [Link](https://www.infobae.com/peru/2025/11/10/peru-cotizacion-de-apertura-del-dolar-hoy-10-de-noviembre-de-usd-a-pen/)
+- **Precio del dólar en Perú del domingo 9 de noviembre: cuál fue el tipo de cambio**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-2025-cuanto-esta-el-dolar-este-domingo-9-de-noviembre-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
+- **Dólar hoy: cierra a S/3.369 y cae respecto al vienes**: [Link](https://peru21.pe/economia/dolar-hoy-cierra-s3369-y-cae-respecto-al-vienes/)
+
+
+### hornets - lakers (N/A, 10/11/2025 20:57 Lima)
+
+- **How to Watch Lakers vs Hornets: Live Stream NBA, TV Channel**: [Link](https://www.newsweek.com/how-to-watch-lakers-vs-hornets-live-stream-nba-tv-channel-11025381)
+- **Los Angeles Lakers vs. Charlotte Hornets prediction, pick for Monday 11/10/25**: [Link](https://dknetwork.draftkings.com/2025/11/10/los-angeles-lakers-vs-charlotte-hornets-prediction-pick-for-monday-11-10-25/)
+- **Hornets-Lakers game will be without top stars, but Luka Doncic looks to continue red-hot season**: [Link](https://www.qcnews.com/nba/hornets-lakers-game-will-be-without-top-stars-but-luka-doncic-looks-to-continue-red-hot-season/)
+
+
+### botafogo sp (N/A, 10/11/2025 20:57 Lima)
+
+- **Com vitória do Botafogo-SP, Volta Redonda é rebaixado para a Série C**: [Link](https://www.cnnbrasil.com.br/esportes/futebol/com-vitoria-do-botafogo-sp-volta-redonda-e-rebaixado-para-a-serie-c/)
+- **Amazonas FC perde fora de casa e faz cálculos para ficar na Série B**: [Link](https://www.acritica.com/esportes/amazonas-fc-perde-fora-de-casa-e-faz-calculos-para-ficar-na-serie-b-1.388549)
+- **Botafogo-SP vence, deixa o Z4 e aproxima Amazonas do rebaixamento**: [Link](https://www.ogol.com.br/noticias/botafogo-sp-vence-deixa-o-z4-e-aproxima-amazonas-do-rebaixamento/973513)
+
+
+### vix (N/A, 10/11/2025 20:57 Lima)
+
+- **Comcast Expands NOW TV Latino With Univision, ViX, and 100+ New Channels**: [Link](https://www.mychesco.com/a/news/regional/comcast-expands-now-tv-latino-with-univision-vix-and-100-new-channels/)
+
+
+### monster hunter (N/A, 10/11/2025 20:57 Lima)
+
+- **Monster Hunter Stories 3 Is Now Available to Pre-Order**: [Link](https://www.restart.run/articles/monster-hunter-stories-3-twisted-reflection-is-now-available-to-pre-order)
+- **Monster Hunter Stories 3: Twisted Reflection Pre-Orders Open**: [Link](https://www.nintendo-insider.com/monster-hunter-stories-3-twisted-reflection-pre-orders-open/)
+- **Monster Hunter Wilds Broke Records Then Broke Its Momentum**: [Link](https://www.noobfeed.com/news/monster-hunter-wilds-broke-records%20momentum)
+
+
 ### angelica vale (N/A, 10/11/2025 15:28 Lima)
 
 - **Angélica Vale se divorcia tras 14 años de matrimonio, ¡Otto Padrón presentó la demanda!**: [Link](https://peopleenespanol.com/angelica-vale-se-divorcia-de-otto-padron-11846488)
@@ -953,74 +1019,5 @@ Sin noticias relacionadas disponibles.
 - **Cusco: proponen una administración comunal para gestionar la “Montaña de 7 colores”**: [Link](https://gestion.pe/peru/cusco-proponen-una-administracion-comunal-para-gestionar-la-montana-de-7-colores-noticia/)
 - **Cusco crea comisión técnica para resolver conflicto por la gestión turística de Vinicunca**: [Link](https://diarioviral.pe/peru/peru/cusco-crea-comision-tecnica-para-resolver-conflicto-por-la-gestion-turistica-de-vinicunca-48492)
 - **Montaña de 7 Colores: autoridades de Cusco plantean administración comunal ante conflictos**: [Link](https://www.infobae.com/peru/2025/11/06/montana-de-7-colores-autoridades-de-cusco-plantean-administracion-comunal-ante-conflictos/)
-
-
-### sporting cristal - cienciano (N/A, 07/11/2025 15:24 Lima)
-
-- **Sporting Cristal vs Cienciano EN VIVO HOY: minuto a minuto en el Gallardo por Torneo Clausura de la Liga 1 2025**: [Link](https://www.infobae.com/peru/deportes/2025/11/07/sporting-cristal-vs-cienciano-en-vivo-hoy-l1max-fecha-18-torneo-clausura-liga-1-2025-goles-resumen-resultado/)
-- **Sporting Cristal vs. Cienciano EN VIVO: minuto a minuto vía Liga 1 MAX por internet gratis**: [Link](https://depor.com/futbol-peruano/descentralizado/sporting-cristal-vs-cienciano-en-vivo-hoy-minuto-a-minuto-liga-1-max-gratis-futbol-libre-tv-en-directo-directv-dgo-online-por-internet-y-canales-de-tv-torneo-clausura-noticia/)
-- **¡Todos al Gallardo! Sporting Cristal recibirá a Cienciano por la fecha 18: Hora y canal**: [Link](https://peru21.pe/deportes/sporting-cristal-vs-cienciano-en-vivo-l1-max-hora-canal-goles-video-resultado/)
-
-
-### novak djokovic (N/A, 07/11/2025 11:27 Lima)
-
-- **Schedule and where to watch Novak Djokovic in the ATP Athens 2025 semifinals against Yannick Hanfmann**: [Link](https://www.puntodebreak.com/en/2025/11/06/schedule-and-where-to-watch-novak-djokovic-in-the-atp-athens-2025-semifinals-against-yannick)
-- **ATP Athens Sebastian Korda vs Lorenzo Musetti 🧠 Form & Context Sebastian Korda (USA, #52, 193 cm, righty) 2025: 24–17 | Indoors 7–4, Hard 12–8, Clay 5–5 Athens: R16 d. Dzumhur (4–6, 6–3, 6–3), QF d. Kecmanovic (6–3, 6–2) after 1R d. Popyrin. Notes:**: [Link](https://x.com/Probahis/status/1986586881945903447)
-- **Lorenzo Musetti vs Sebastian Korda Preview: Head-to-Head, Prediction for Hellenic Championships 2025, Athens**: [Link](https://www.profootballnetwork.com/tennis/lorenzo-musetti-sebastian-korda-preview-prediction-hellenic-championships/)
-
-
-### mundial sub 17 (N/A, 07/11/2025 11:27 Lima)
-
-- **EN VIVO: Brasil gana 1 a 0 en el marcador parcial frente a Indonesia en Field 7**: [Link](https://www.directvsports.com/futbol/EN-VIVO-Brasil-gana-1-a-0-en-el-marcador-parcial-frente-a-Indonesia-en-Field-7-20251107-0032.html)
-- **Los aficionados comienzan a llegar antes del partido de la selección nacional sub-17 de Indonesia contra Brasil, las enfermeras indonesias en Qatar confían en ganar 2-1**: [Link](https://citadirecta.com.ar/noticias/los-aficionados-comienzan-a-llegar-antes-del-partido-de-la-seleccion-nacional-sub-17-de-indonesia-contra-brasil-las-enfermeras-indonesias-en-qatar-confian-en-ganar-2-1/74090/)
-- **Panamá Sub-17 cierra su preparación con empate ante Indonesia**: [Link](https://onefootball.com/pt-br/noticias/panama-sub-17-cierra-su-preparacion-con-empate-ante-indonesia-41885715)
-
-
-### selección de fútbol sub-17 de egipto - venezuela sub-17 (N/A, 07/11/2025 11:27 Lima)
-
-- **Ver EN VIVO Egipto vs. Venezuela en el Mundial Sub 17: dónde seguirlo por TV y ONLINE**: [Link](https://www.tycsports.com/futbol-internacional/egipto-vs-venezuela-en-el-mundial-sub-17-en-vivo-donde-ver-por-tv-y-online-id696603.html)
-- **Todo sobre el debut de Sudamérica en el Mundial Sub17**: [Link](https://www.conmebol.com/noticias/todo-sobre-el-debut-de-sudamerica-en-el-mundial-sub17/)
-- **Yerwin Sulbarán se roba los focos en Doha**: [Link](https://as.com/futbol/internacional/yerwin-sulbaran-se-roba-los-focos-en-doha-f202511-n/)
-
-
-### agua (N/A, 07/11/2025 11:27 Lima)
-
-- **Teherán se enfrenta al racionamiento de agua y a evacuaciones si no llueve pronto**: [Link](https://www.infobae.com/america/mundo/2025/11/07/teheran-se-enfrenta-al-racionamiento-de-agua-y-a-evacuaciones-si-no-llueve-pronto/)
-- **Catástrofe hídrica en Irán: advierten que la evacuación de Teherán puede ser inminente**: [Link](https://www.newsweek.com.ar/el-mundo/catastrofe-hidrica-en-iran-advierten-que-la-evacuacion-de-teheran-puede-ser-inminente/)
-- **Irán se enfrenta a la peor sequía en casi seis décadas y con las presas al límite**: [Link](https://www.swissinfo.ch/spa/ir%C3%A1n-se-enfrenta-a-la-peor-sequ%C3%ADa-en-casi-seis-d%C3%A9cadas-y-con-las-presas-al-l%C3%ADmite/90270987)
-
-
-### blast slam iv (N/A, 07/11/2025 11:27 Lima)
-
-- **MOUZ and HEROIC Advanced to the BLAST Slam IV Semifinals**: [Link](https://blix.gg/news/dota-2/mouz-and-heroic-advanced-to-the-blast-slam-iv-semifinals/)
-- **TorontoTokyo At BLAST Slam 4: "It’s Always Fun To Play Against Your Old Teammates"**: [Link](https://www.hotspawn.com/dota2/news/torontotokyo-at-blast-slam-4)
-
-
-### afp (N/A, 07/11/2025 11:27 Lima)
-
-- **Solicitud de retiro AFP: Esto pasa si te equivocaste al registrar el número de tu cuenta bancaria**: [Link](https://www.infobae.com/peru/2025/11/06/retiro-de-afp-lo-que-pasa-si-te-equivocaste-al-poner-tu-cuenta-bancaria-para-el-deposito/)
-- **Link, Retiro AFP 2025: Inicia tu trámite de desembolso hoy de hasta 4 UIT o 21 400 soles, según DNI**: [Link](https://elcomercio.pe/respuestas/tramites/ingresa-a-links-del-retiro-afp-hoy-asi-puedes-enviar-tu-solicitud-de-desembolso-de-hasta-4-uit-si-tu-dni-termina-en-5-6-o-7-paso-a-paso-y-cronograma-completo-tdpe-noticia/)
-- **¿Te toca retirar S/ 21,400 de tu AFP 2025? Revisa este enlace y averigua si hoy puedes tramitar la solicitud**: [Link](https://elperuano.pe/noticia/282383-te-toca-retirar-s-21400-de-tu-afp-2025-revisa-este-enlace-y-averigua-si-hoy-puedes-tramitar-la-solicitud)
-
-
-### acdc (N/A, 07/11/2025 11:27 Lima)
-
-- **AC/DC coming to Camp Randall, Tickets on sale Nov. 7**: [Link](https://uwbadgers.com/news/2025/11/3/general-news-ac-dc-coming-to-camp-randall-tickets-on-sale-nov-7)
-- **What do tickets cost to see AC/DC on their 2026 ‘Power Up Tour’?**: [Link](https://nypost.com/2025/11/06/ticket-sales/acdc-power-up-tour-2026-where-to-buy-tickets-best-prices/)
-- **AC/DC is coming to Bank of America Stadium in Charlotte: Here’s when**: [Link](https://www.wbtv.com/2025/11/04/acdc-is-coming-bank-america-stadium-charlotte-heres-when/)
-
-
-### erick noriega (N/A, 07/11/2025 11:27 Lima)
-
-- **Hinchas de Gremio aceptaron que se cometió un gran error con Erick Noriega: “Raro momento”**: [Link](https://bolavip.com/pe/peruanos-en-el-exterior/hinchas-de-gremio-aceptaron-que-se-cometio-un-gran-error-con-erick-noriega-raro-momento)
-- **Erick Noriega divide opiniones en Brasil: elogios y críticas tras la derrota de Gremio vs. Cruzeiro**: [Link](https://depor.com/futbol-peruano/peruanos-en-el-mundo/erick-noriega-gremio-vs-cruzeiro-opiniones-criticas-que-dicen-en-brasil-y-que-dejo-su-rendimiento-en-ultima-derrota-video-noticia/)
-- **Gremio, con Erick Noriega, sumó su segunda derrota consecutiva en Brasil**: [Link](https://www.futbolperuano.com/peruanos-en-el-exterior/noticias/gremio-con-erick-noriega-sumo-su-segunda-derrota-consecutiva-en-el-brasileirao-548237)
-
-
-### videos (N/A, 07/11/2025 07:50 Lima)
-
-- **UPS plane crash fatalities increase to 13, 9 still missing**: [Link](https://www.wave3.com/2025/11/06/ups-plane-crash-fatalities-increase-13-9-still-missing/)
-- **Satellite images show the huge impact of the deadly UPS plane crash**: [Link](https://www.yahoo.com/news/articles/satellite-images-show-huge-impact-092301971.html)
-- **Death toll rises to 13 after UPS plane crashed at Louisville airport: Officials**: [Link](https://abcnews.go.com/US/9-people-remain-missing-after-ups-plane-crash/story?id=127255924)
 
 
