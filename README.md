@@ -1,3 +1,10 @@
+### chaleco (N/A, 11/11/2025 03:32 Lima)
+
+- **¡Atención, motociclistas! MTC modifica normativa sobre el uso de chalecos y cascos**: [Link](https://elperuano.pe/noticia/282610-atencion-motociclistas-mtc-modifica-normativa-sobre-el-uso-de-chalecos-y-cascos)
+- **PNP: “Uso de chaleco solo se fiscalizará en distritos en estado de emergencia y cuando la resolución lo indique”**: [Link](https://elcomercio.pe/lima/transporte/uso-de-chaleco-solo-se-fiscalizara-en-distritos-en-estado-de-emergencia-y-cuando-la-resolucion-lo-indique-senala-pnp-ultimas-noticia/)
+- **Uso obligatorio de chalecos para motociclistas será en estos distritos de Lima Metropolitana y Callao**: [Link](https://www.infobae.com/peru/2025/11/09/uso-obligatorio-de-chalecos-para-motociclistas-sera-en-estos-distritos-de-lima-metropolitana-y-callao/)
+
+
 ### jose jeri (N/A, 10/11/2025 23:29 Lima)
 
 - **José Jerí cumple un mes en la Presidencia: lo que dejan los primeros 30 días de su gestión y lo que viene para su gobierno**: [Link](https://elcomercio.pe/politica/gobierno/jose-jeri-cumple-un-mes-en-la-presidencia-lo-que-dejan-los-primeros-30-dias-de-su-gestion-y-lo-que-viene-para-su-gobierno-tlc-audio-noticia/)
@@ -1014,12 +1021,5 @@ Sin noticias relacionadas disponibles.
 - **Preview:Pisa vs Cremonese - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/pisa/preview/pisa-vs-cremonese-prediction-team-news-lineups_585147.html)
 - **Filippo Terracciano vs. SC Pisa – Player props & odds to score a goal on November 7**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/11/07/filippo-terracciano-soccer-player-props-11-7-2025/87139992007/)
 - **Pisa vs Cremonese – Official Starting Lineups**: [Link](https://football-italia.net/pisa-vs-cremonese-official-starting-lineups/)
-
-
-### pisa - cremonese (N/A, 07/11/2025 15:24 Lima)
-
-- **Pisa-Cremonese, le formazioni ufficiali: Gilardino con Nzola, Nicola lancia Vazquez**: [Link](https://www.gazzetta.it/calcio/fantanews/07-11-2025/pisa-cremonese-le-formazioni-ufficiali-tutti-i-titolari.shtml)
-- **Bondo: “Con la Juventus giocata un’ottima partita. Dobbiamo battere le nostre rivali”**: [Link](https://www.alfredopedulla.com/bondo-con-la-juventus-giocata-unottima-partita-dobbiamo-battere-le-nostre-rivali/)
-- **Live Pisa - Cremonese - Serie A: Punteggi & Highlights Calcio - 07/11/2025**: [Link](https://www.eurosport.it/calcio/serie-a/2025-2026/live-pisa-cremonese_mtc1598667/live-commentary.shtml)
 
 
