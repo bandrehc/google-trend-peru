@@ -1,3 +1,45 @@
+### taylor fritz (N/A, 11/11/2025 11:31 Lima)
+
+- **ATP Finals: Alcaraz vs. Fritz & Musetti vs. de Minaur | Previews, Picks, Where to Watch**: [Link](https://www.tennis.com/news/articles/atp-finals-alcaraz-vs-fritz-musetti-vs-de-minaur-previews-picks-where-to-watch)
+- **“At Laver Cup, I was able to beat him to the punch” – Fritz on his chances to compete with Alcaraz**: [Link](https://www.tennismajors.com/atp/at-laver-cup-i-was-able-to-beat-him-to-the-punch-fritz-on-his-chances-to-compete-with-alcaraz-839707.html)
+- **Carlos Alcaraz is only 50 points away from securing tennis crown, and could qualify to semi-finals tonight**: [Link](https://www.gamereactor.eu/carlos-alcaraz-is-only-50-points-away-from-securing-tennis-crown-and-could-qualify-to-semi-finals-tonight-1632243/)
+
+
+### habitat afp (N/A, 11/11/2025 11:31 Lima)
+
+- **Usuarios de AFP Habitat reportan falla en web: no pueden ingresar a sus cuentas para solicitar el octavo retiro**: [Link](https://larepublica.pe/economia/2025/11/11/usuarios-de-afp-habitat-reportan-falla-en-web-no-pueden-ingresar-a-sus-cuentas-para-solicitar-el-octavo-retiro-atmp-776402)
+- **Retiro AFP: conoce las pocas fechas que restan del cronograma regular por el último dígito del DNI**: [Link](https://www.infobae.com/peru/2025/11/09/retiro-afp-2025-estas-son-las-tres-ultimas-fechas-por-el-ultimo-digito-del-dni-del-cronograma-regular/)
+- **Octavo retiro de AFP 2025: cuándo y cómo registrar solicitud hoy si tu DNI termina en 7, según fecha del cronograma**: [Link](https://gestion.pe/mix/mi-bolsillo/octavo-retiro-de-afp-2025-cuando-y-como-registrar-solicitud-hoy-si-tu-dni-termina-en-7-segun-fecha-del-cronograma-nnda-nnse-noticia/)
+
+
+### carlos alcaraz (N/A, 11/11/2025 11:31 Lima)
+
+- **Resumen y resultado del Alcaraz - Fritz: Alcaraz pone pie y medio en semifinales**: [Link](https://as.com/tenis/final_atp/alcaraz-fritz-en-directo-segunda-jornada-de-las-atp-finals-de-turin-hoy-en-vivo-f202511-d/)
+- **Alcaraz - Fritz, en directo | Última hora de las finales ATP de Turín hoy en vivo**: [Link](https://www.marca.com/tenis/copa-masters/carlos-alcaraz-taylor-fritz/2025/11/11/04_0414_20251111_5-directo.html)
+- **Alcaraz v Fritz: duelo de ganadores en las Nitto ATP Finals**: [Link](https://www.atptour.com/es/news/alcaraz-fritz-de-minaur-musetti-nitto-atp-finals-2025-tuesday-preview)
+
+
+### champions femenina (N/A, 11/11/2025 11:31 Lima)
+
+- **Real Madrid defiende invicto de Women's Champions League 2025-2026 con Linda en buen nivel**: [Link](https://www.espn.com.ar/futbol/champions-league/nota/_/id/15942994/real-madrid-vs-paris-fc-fecha-3-champions-femenina-2025---2026-equipo-fecha-hora-y-tv-en-vivo)
+- **Apuestas y pronósticos Real Madrid vs Paris FC**: [Link](https://www.marca.com/apuestas-deportivas/predicciones/2025/11/10/apuestas-pronosticos-real-madrid-vs-paris-fc.html)
+- **Pau Quesada: “Estamos encontrando la solidez que buscábamos"**: [Link](https://www.realmadrid.com/es-ES/noticias/futbol/primer-equipo-femenino/ruedas-de-prensa/rueda-de-prensa-de-pau-quesada-pre-real-madrid-paris-fc-wcl-10-11-2025)
+
+
+### amistosos (N/A, 11/11/2025 11:31 Lima)
+
+- **Decisión final de la FPF: lo último sobre los amistosos de Perú frente a Rusia y Chile**: [Link](https://depor.com/futbol-peruano/seleccion-peruana/peru-vs-rusia-y-chile-fpf-mantendra-amistosos-y-no-seran-reprogramados-pese-a-retraso-en-viaje-cuando-llega-seleccion-peruana-a-rusia-fecha-fifa-noticia/)
+- **El “Rusia mandará un chárter” de Ferrari y qué se reveló sobre el nuevo técnico: lo que no se vio del accidentado viaje de Perú a San Petersburgo**: [Link](https://elcomercio.pe/deporte-total/seleccion/seleccion-peruana-hoy-el-rusia-mandara-un-charter-de-jean-ferrari-y-que-se-revelo-sobre-el-nuevo-tecnico-lo-que-no-se-vio-del-accidentado-viaje-de-peru-a-san-petersburgo-tlcnota-noticia/)
+- **Joao Grimaldo fue desconvocado para los amistosos de Perú en la fecha FIFA**: [Link](https://www.espn.com.ar/futbol/mundial/nota/_/id/15939822/joao-grimaldo-fue-desconvocado-para-los-amistosos-de-peru)
+
+
+### eliminatorias europeas (N/A, 11/11/2025 11:31 Lima)
+
+- **Se definen las Eliminatorias UEFA: el panorama de cada grupo y quién puede clasificar al Mundial 2026**: [Link](https://www.espn.com.ar/futbol/mundial/nota/_/id/15895830/se-definen-eliminatorias-uefa-europa-mundial-2026-quien-puede-clasificar)
+- **Italia, Alemania o Bélgica, en el alambre: los días que decidirán los mundialistas europeos**: [Link](https://www.naiz.eus/eu/info/noticia/20251111/italia-alemania-o-belgica-en-el-alambre-los-dias-que-decidiran-los-mundialistas-europeos)
+- **Calendario completo de la Fecha 9 UEFA en la Clasificación Mundial 2026: días, horarios y partidos imperdibles**: [Link](https://www.marca.com/mx/futbol/mundial/2025/11/10/6911fad5e2704e1b458b45bf.html)
+
+
 ### poder judicial delia espinoza (N/A, 11/11/2025 07:51 Lima)
 
 - **PJ ordena a la JNJ reponer a Delia Espinoza en el cargo de fiscal de la Nación dentro de los dos días siguientes a la notificación [Exp. 10506-2025-26]**: [Link](https://lpderecho.pe/pj-ordena-jnj-reponer-a-delia-espinoza-cargo-fiscal-nacion-dentro-dos-dias-siguientes-notificacion-exp-10506-2025-26/)
@@ -979,47 +1021,5 @@ Sin noticias relacionadas disponibles.
 - **El Congreso de Perú declara "persona non grata" a Claudia Sheinbaum por el asilo que México le concedió a la ex primera ministra Betssy Chávez**: [Link](https://www.bbc.com/mundo/articles/c3rj7r2nv8eo)
 - **José Jerí sobre salvoconducto a Betssy Chávez: “No nos vamos a pronunciar en este momento sobre ello y, en consecuencia, no puede viajar a México”**: [Link](https://elcomercio.pe/politica/gobierno/jose-jeri-sobre-salvoconducto-a-betssy-chavez-no-nos-vamos-a-pronunciar-en-este-momento-sobre-ello-y-en-consecuencia-no-puede-viajar-a-mexico-ultimas-noticia/)
 - **Pleno declaró persona non grata a la presidenta de México por injerencia en asuntos internos del Perú**: [Link](https://comunicaciones.congreso.gob.pe/noticias/pleno-declaro-persona-non-grata-a-la-presidenta-de-mexico-por-injerencia-en-asuntos-internos-del-peru/)
-
-
-### juárez - querétaro (N/A, 07/11/2025 20:48 Lima)
-
-- **Liga MX: Querétaro se enfrentará a FC Juárez por la fecha 17**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-queretaro-se-enfrentara-a-fc-juarez-por-la-fecha-17-noticia-1662712)
-- **Juárez vs Querétaro: posiciones de un partido clave rumbo a liguilla**: [Link](https://www.365scores.com/es/news/juarez-vs-queretaro-posiciones-liguilla/)
-- **Bravos de Juárez vs Querétaro: Ver EN VIVO y GRATIS el partido de la Jornada 17 del Apertura 2025, hoy viernes**: [Link](https://www.tvazteca.com/aztecadeportes/bravos-juarez-vs-queretaro-donde-ver-en-vivo-gratis-partido-jornada-17-apertura-2025-liga-bbva-mx)
-
-
-### universitario - deportivo garcilaso (N/A, 07/11/2025 20:48 Lima)
-
-- **Dónde ver Universitario vs Deportivo Garcilaso HOY: canal tv online del duelo por Torneo Clausura de la Liga 1 2025**: [Link](https://www.infobae.com/peru/deportes/2025/11/07/donde-ver-universitario-vs-deportivo-garcilaso-hoy-canal-tv-online-fecha-18-torneo-clausura-liga-1-2025/)
-- **Tabla de posiciones de Liga 1 2025 EN VIVO: acumulado y resultados de la fecha 18 del Torneo Clausura**: [Link](https://depor.com/futbol-peruano/descentralizado/tabla-de-posiciones-liga-1-peru-2025-en-vivo-resultados-de-la-fecha-18-del-torneo-clausura-universitario-de-deportes-sporting-cristal-alianza-lima-noticia/)
-- **Con el Universitario vs. Garcilaso: programación y horarios de la fecha 18 del Torneo Clausura 2025 de la Liga1**: [Link](https://rpp.pe/futbol/descentralizado/torneo-clausura-2025-fecha-18-con-universitario-vs-garcilaso-programacion-de-partidos-y-horarios-en-penultima-jornada-de-liga-1-noticia-1662646)
-
-
-### rosario central - san lorenzo (N/A, 07/11/2025 20:48 Lima)
-
-- **San Lorenzo visita al Rosario Central de Di María en el inicio de la fecha 15 del Torneo Clausura**: [Link](https://www.infobae.com/deportes/2025/11/07/san-lorenzo-y-rosario-central-abren-la-fecha-15-del-torneo-clausura-en-el-gigante-de-arroyito-hora-tv-y-formaciones/)
-- **EN VIVO: Comenzó el partido entre Rosario Central y San Lorenzo: 0-0 en el inicio**: [Link](https://www.directvsports.com/futbol/EN-VIVO-Comenzo-el-partido-entre-Rosario-Central-y-San-Lorenzo-0-0-en-el-inicio-20251107-0049.html)
-- **Central empata sin goles San Lorenzo en el Gigante de Arroyito**: [Link](https://www.cadena3.com/noticia/estadio-3/central-empata-sin-goles-san-lorenzo-en-el-gigante-de-arroyito_483697)
-
-
-### deportivo pereira - medellín (N/A, 07/11/2025 20:48 Lima)
-
-- **Pereira vs. Medellín EN VIVO: el Poderoso quiere ser líder en Liga**: [Link](https://www.futbolred.com/futbol-colombiano/liga-betplay/pereira-vs-medellin-en-vivo-minuto-a-minuto-del-juego-por-liga-betplay-2025-ii-258308)
-- **Mintrabajo abre investigación contra Deportivo Pereira por incumplir suspensión de actividades**: [Link](https://elexpreso.co/hoy/mintrabajo-abre-investigacion-contra-deportivo-pereira-por-incumplir-suspension-de-actividades/)
-- **Deportivo Pereira vs DIM: Dónde Ver HOY Liga BetPlay EN VIVO y por plataformas Online**: [Link](https://futbolete.com/liga-betplay/pereira-medellin-donde-ver-hoy-vivo-online/977792/)
-
-
-### corte de agua sedapal lima (N/A, 07/11/2025 20:48 Lima)
-
-- **Corte de agua para este 07 de noviembre por más de 10 horas: conoce qué distritos serán los afectados**: [Link](https://www.infobae.com/peru/2025/11/06/corte-de-agua-para-este-07-de-noviembre-por-mas-de-10-horas-conoce-que-distritos-seran-los-afectados/)
-- **Corte de agua en Lima hoy 07 de noviembre: Distritos y horarios afectados**: [Link](https://rpp.pe/lima/obras/corte-de-agua-en-lima-hoy-07-de-noviembre-distritos-y-horarios-afectados-noticia-1662790)
-- **Sin agua por 16 horas: Sedapal publicó lista de distritos afectados por corte este 5 de noviembre**: [Link](https://elpopular.pe/actualidad/2025/11/05/corte-de-agua-5-de-noviembre-cinco-distritos-de-lima-no-tendran-servicio-por-16-horas-281730)
-
-
-### tabla acumulada liga 1 (N/A, 07/11/2025 20:48 Lima)
-
-- **Tabla de posiciones de Liga 1 2025 EN VIVO: acumulado y resultados de la fecha 18 del Torneo Clausura**: [Link](https://depor.com/futbol-peruano/descentralizado/tabla-de-posiciones-liga-1-peru-2025-en-vivo-resultados-de-la-fecha-18-del-torneo-clausura-universitario-de-deportes-sporting-cristal-alianza-lima-noticia/)
-- **Cinco equipos en la cuerda floja: duelos decisivos de la penúltima fecha y la batalla por la permanencia en la Liga 1 2025**: [Link](https://www.infobae.com/peru/deportes/2025/11/07/cinco-equipos-en-la-cuerda-floja-duelos-decisivos-de-la-penultima-fecha-y-la-batalla-por-la-permanencia-en-la-liga-1-2025/)
-- **Con el Universitario vs. Garcilaso: programación y horarios de la fecha 18 del Torneo Clausura 2025 de la Liga1**: [Link](https://rpp.pe/futbol/descentralizado/torneo-clausura-2025-fecha-18-con-universitario-vs-garcilaso-programacion-de-partidos-y-horarios-en-penultima-jornada-de-liga-1-noticia-1662646)
 
 
