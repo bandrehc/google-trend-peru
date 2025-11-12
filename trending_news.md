@@ -1,3 +1,59 @@
+### mormon church (N/A, 11/11/2025 20:56 Lima)
+
+- **Groundbreaking Date for Jacksonville Florida Temple**: [Link](https://newsroom.churchofjesuschrist.org/article/news-for-temples-in-florida-idaho-and-nigeria)
+- **Sites, renderings announced for Idaho and Nigeria temples**: [Link](https://www.thechurchnews.com/temples/2025/11/10/sites-renderings-announced-coeur-d-alene-idaho-calabar-nigeria-temples/)
+- **Church of Jesus Christ of Latter-day Saints planning new temple in Coeur d'Alene**: [Link](https://www.krem.com/video/news/local/church-of-jesus-christ-of-latter-day-saints-planning-new-temple-in-coeur-dalene/293-9147743b-f438-4508-9b39-5cc3125a2b83)
+
+
+### peru fc (N/A, 11/11/2025 20:56 Lima)
+
+- **ASA FC vs. Unión Minas (5-4 en penales) por final Zona Norte de Copa Perú: video, resumen y goles**: [Link](https://depor.com/futbol-peruano/segunda-division/asa-fc-vs-union-minas-en-vivo-hoy-gratis-fpf-youtube-futbol-libre-tv-donde-ver-partido-y-transmision-en-directo-online-y-resultado-goles-y-resumen-zona-norte-copa-peru-2025-video-noticia/)
+- **ASA FC Y ANBA CLASIFICADOS A LA FINAL DE LA COPA PERÚ 2025**: [Link](https://fpf.org.pe/asa-fc-y-anba-clasificados-a-la-final-de-la-copa-peru-2025/)
+- **Copa Perú: Unión Minas de Pasco logra histórica victoria y pasa a la final**: [Link](https://diariocorreo.pe/deportes/copa-peru-union-minas-de-pasco-logra-historica-victoria-y-pasa-a-la-final-noticia/)
+
+
+### seleccion peruana (N/A, 11/11/2025 20:56 Lima)
+
+- **Perú realizó su primer entrenamiento en Rusia**: [Link](https://www.espn.com.ar/futbol/mundial/nota/_/id/15947730/peru-realizo-su-primer-entrenamiento-en-rusia)
+- **Los malabares de Barreto para preparar el amistoso y cómo hicieron los extranjeros que viajaron directo: Lo que no se vio de la llegada de Perú a San Petersburgo**: [Link](https://elcomercio.pe/deporte-total/seleccion/seleccion-peruana-hoy-los-malabares-de-manuel-barreto-para-preparar-el-amistoso-y-como-hicieron-los-extranjeros-que-viajaron-directo-lo-que-no-se-vio-de-la-llegada-de-peru-a-san-petersburgo-tlcnota-noticia/)
+- **Decisión final de la FPF: lo último sobre los amistosos de Perú frente a Rusia y Chile**: [Link](https://depor.com/futbol-peruano/seleccion-peruana/peru-vs-rusia-y-chile-fpf-mantendra-amistosos-y-no-seran-reprogramados-pese-a-retraso-en-viaje-cuando-llega-seleccion-peruana-a-rusia-fecha-fifa-noticia/)
+
+
+### dólar hoy perú (N/A, 11/11/2025 20:56 Lima)
+
+- **Precio del dólar sigue cayendo: Así abrió el tipo de cambio hoy 11 de noviembre en Perú**: [Link](https://www.infobae.com/peru/2025/11/10/peru-cotizacion-de-apertura-del-dolar-hoy-10-de-noviembre-de-usd-a-pen/)
+- **Precio del dólar en Perú del domingo 9 de noviembre: cuál fue el tipo de cambio**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-2025-cuanto-esta-el-dolar-este-domingo-9-de-noviembre-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
+- **Dólar hoy: cierra a S/3.369 y cae respecto al viernes**: [Link](https://peru21.pe/economia/dolar-hoy-cierra-s3369-y-cae-respecto-al-vienes/)
+
+
+### friaje (N/A, 11/11/2025 20:56 Lima)
+
+- **Vigesimoséptimo friaje del año golpeará la selva peruana desde este viernes**: [Link](https://caretas.pe/medio-ambiente/vigesimoseptimo-friaje-del-ano-golpeara-la-selva-peruana-desde-este-viernes/)
+- **🔴🔵 Senamhi advierte intensas lluvias y un marcado descenso de la temperatura en el territorio nacional durante este fin de semana.**: [Link](https://www.facebook.com/Exitosanoticias/posts/-senamhi-advierte-intensas-lluvias-y-un-marcado-descenso-de-la-temperatura-en-el/1273716098124779/)
+- **SENAMHI advierte lluvias intensas desde este domingo hasta el martes en Loreto**: [Link](https://diariolaregion.com/senamhi-advierte-lluvias-intensas-desde-este-domingo-hasta-el-martes-en-loreto/)
+
+
+### álex de miñaur (N/A, 11/11/2025 20:56 Lima)
+
+- **Las ATP Finals, al rojo vivo: Musetti derrotó a De Miñaur y el grupo Jimmy Connors se definirá en la última fecha**: [Link](https://www.espn.com.pe/tenis/nota/_/id/15947633/las-atp-finals-2025-al-rojo-vivo-musetti-derroto-a-de-minaur-y-el-grupo-jimmy-connors-se-definira-en-la-ultima-fecha-alcaraz)
+- **De Minore favorito sobre Musetti en el enfrentamiento de la fase de grupos de las Finales ATP**: [Link](https://www.ucvradio.pe/mas-actualidad/de-minore-favorito-sobre-musetti-en-el-enfrentamiento-de-la-fase-de-grupos-de-las-finales-atp/46725/)
+- **Lorenzo Musetti sumó su primer triunfo en las ATP Finals**: [Link](https://ovacion.pe/noticias/tenis/lorenzo-musetti-sumo-su-primer-triunfo-las-atp-finals)
+
+
+### real madrid vs paris fc (N/A, 11/11/2025 20:56 Lima)
+
+- **UEFA Women's Champions League - Real Madrid v Paris FC**: [Link](https://www.reutersconnect.com/item/uefa-womens-champions-league-real-madrid-v-paris-fc/dGFnOnJldXRlcnMuY29tLDIwMjU6bmV3c21sX1VQMUVMQkIxT0ZJNks)
+- **Caroline Weir rescues Real Madrid while Lyon extend perfect record**: [Link](https://www.the-gazette.co.uk/sport/national/25614833.caroline-weir-rescues-real-madrid-lyon-extend-perfect-record/)
+- **Real Madrid 1-1 Paris FC: Late Drama in Madrid as Weir equaliser prevents Parisian upset**: [Link](https://ca.sports.yahoo.com/news/real-madrid-1-1-paris-230000363.html)
+
+
+### lorenzo musetti (N/A, 11/11/2025 20:56 Lima)
+
+- **De Minaur following Musetti defeat: 'I don't know how many times I can deal with a loss like this one'**: [Link](https://www.atptour.com/en/news/de-minaur-nitto-atp-finals-2025-reaction-tuesday)
+- **Demon suffers ATP Finals collapse**: [Link](https://au.news.yahoo.com/demon-suffers-atp-finals-collapse-230800352.html)
+- **Tennis Tracker: De Minaur facing Musetti at ATP Finals in Turin**: [Link](https://www.flashscore.com/news/tennis-finals-turin-atp-singles-tennis-tracker-de-minaur-facing-musetti-at-atp-finals-in-turin/hb3JyeKH/)
+
+
 ### chelsea femenino (N/A, 11/11/2025 15:27 Lima)
 
 - **“Siempre es difícil romper sus líneas”, Bompastor espera buen inicio del Chelsea ante St. Pölten**: [Link](https://onefootball.com/pt-br/noticias/siempre-es-dificil-romper-sus-lineas-bompastor-espera-buen-inicio-del-chelsea-ante-st-poelten-41936985)
@@ -966,60 +1022,5 @@ Sin noticias relacionadas disponibles.
 - **HEROIC, MOUZ move into semis at BLAST Slam IV**: [Link](https://fieldlevelmedia.com/esports/heroic-mouz-move-into-semis-at-blast-slam-iv/)
 - **Davai Lama named the reasons for HEROIC's rapid progress**: [Link](https://hawk.live/posts/davai-lama-named-reasons-heroic-rapid-progress)
 - **MOUZ and HEROIC Advanced to the BLAST Slam IV Semifinals**: [Link](https://blix.gg/news/dota-2/mouz-and-heroic-advanced-to-the-blast-slam-iv-semifinals/)
-
-
-### jacob elordi (N/A, 08/11/2025 03:29 Lima)
-
-- **CineCrossroads: “Frankenstein,” “The Cabinet of Dr. Caligari,” and “Hotel Transylvania”**: [Link](https://qazinform.com/news/cinecrossroads-frankenstein-the-cabinet-of-dr-caligari-and-hotel-transylvania)
-- **Netflix finally released the horror film we've been dying to see all year**: [Link](https://netflixlife.com/netflix-finally-released-horror-film-weve-been-dying-to-see-all-year)
-- **Netflix debut for Frankenstein, samurai, and Thai crime**: [Link](https://www.findarticles.com/netflix-debut-for-frankenstein-samurai-and-thai-crime/)
-
-
-### ronaldo nazario (N/A, 08/11/2025 03:29 Lima)
-
-- **Alex Valera estrena su peinado 'a lo Ronaldo Nazario' y casi anota el primer gol de Universitario ante Garcilaso**: [Link](https://rpp.pe/futbol/descentralizado/universitario-alex-valera-estrena-su-peinado-a-lo-ronaldo-nazario-y-casi-anota-el-primer-gol-de-universitario-ante-garcilaso-noticia-1662954)
-- **Alex Valera cumplió promesa y se hizo corte de cabello de Ronaldo Nazário tras tricampeonato con Universitario**: [Link](https://www.infobae.com/peru/deportes/2025/11/06/alex-valera-cumplio-promesa-y-se-hizo-corte-de-cabello-de-ronaldo-nazario-tras-tricampeonato-con-universitario/)
-- **‘O Fenómeno peruano’: Álex Valera sorprende con famoso corte de cabello de Ronaldo Nazario**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/universitario-alex-valera-sorprende-con-famoso-corte-de-ronaldo-nazario-noticia/)
-
-
-### shein (N/A, 07/11/2025 23:27 Lima)
-
-- **France moves to suspend Shein over sex dolls and weapons on day Paris store opens**: [Link](https://www.reuters.com/business/retail-consumer/shein-store-opening-paris-draws-protesters-bargain-hunters-2025-11-05/)
-- **Shein’s Sex-Doll Standoff Is a European Humiliation**: [Link](https://www.bloomberg.com/opinion/articles/2025-11-07/shein-sex-doll-standoff-is-a-european-humiliation)
-- **France urges EU to sanction Shein over childlike sex dolls scandal**: [Link](https://www.lemonde.fr/en/economy/article/2025/11/06/france-urges-eu-to-sanction-shein-over-childlike-sex-dolls-scandal_6747176_19.html)
-
-
-### mazatlán - necaxa (N/A, 07/11/2025 23:27 Lima)
-
-- **Liga MX: Mazatlán se enfrenta ante la visita Necaxa por la fecha 17**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-mazatlan-se-enfrenta-ante-la-visita-necaxa-por-la-fecha-17-noticia-1662738)
-- **¡Boas, cascabeles y mariguana! 🐍🚨 La SSC aseguró una casa en la GAM donde encontraron drogas y 14 animales exóticos**: [Link](https://www.facebook.com/MilenioDiario/photos/boas-cascabeles-y-mariguana-la-ssc-asegur%C3%B3-una-casa-en-la-gam-donde-encontraron-/1301142642043204/)
-- **Mazatlán FC apaga las luces del Apertura con duelo ante ante los Rayos**: [Link](https://oem.com.mx/elsoldemazatlan/deportes/mazatlan-fc-apaga-las-luces-del-apertura-con-duelo-ante-ante-los-rayos-26684738)
-
-
-### tijuana - atlas (N/A, 07/11/2025 23:27 Lima)
-
-- **Atlas busca el Play In en una aduana casi imposible: Tijuana**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/15925044/tijuana-vs-atlas-historial-resultados-partidos-liga-mx-play-in)
-- **Liga MX: Tijuana recibirá a Atlas por la fecha 17**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-tijuana-recibira-a-atlas-por-la-fecha-17-noticia-1662739)
-- **Xolos cierra hoy Torneo Apertura**: [Link](https://psn.si/xolos-cierra-torneo-rm/2025/11/07/)
-
-
-### la u (N/A, 07/11/2025 23:27 Lima)
-
-- **Universidad de Chile desafía a Deportes Limache en choque de realidades opuestas en la Liga de Primera 2025**: [Link](https://www.espn.com.pe/futbol/chile/nota/_/id/15924161/universidad-de-chile-vs-limache-fecha-27-liga-de-primera-2025-equipo-fecha-y-hora)
-- **Lea Fernández y su futuro: "Yo tengo contrato y soy muy feliz acá"**: [Link](https://www.espn.com.pe/futbol/chile/nota/_/id/15928499/leandro-fernandez-y-su-futuro-universidad-de-chile-yo-tengo-contrato-y-soy-muy-feliz-aca)
-
-
-### reniec dni electrónico (N/A, 07/11/2025 23:27 Lima)
-
-- **DNI electrónico gratuito para el 08 de noviembre en este distrito: conoce los requisitos para ser beneficiario**: [Link](https://www.infobae.com/peru/2025/11/06/dni-electronico-gratuito-para-el-08-de-noviembre-en-este-distrito-conoce-los-requisitos-para-ser-beneficiario/)
-- **RENIEC otorga DNI gratuito durante 2025 para todos los que cumplan este requisito**: [Link](https://peru21.pe/peru/reniec-otorga-dni-gratuito-durante-2025-para-todos-los-que-cumplan-este-requisito/)
-- **🔴🔵Conoce aquí todos los detalles de la campaña gratuita con la que podrás obtener tu DNI electrónico este 3 y 4 de noviembre. 🪪👇**: [Link](https://www.facebook.com/Exitosanoticias/posts/conoce-aqu%C3%AD-todos-los-detalles-de-la-campa%C3%B1a-gratuita-con-la-que-podr%C3%A1s-obtener-/1266477382181984/)
-
-
-### nuggets - warriors (N/A, 07/11/2025 23:27 Lima)
-
-- **Where to watch Warriors vs. Nuggets free stream today**: [Link](https://www.masslive.com/tv/2025/11/where-to-watch-warriors-vs-nuggets-free-stream-today.html)
-- **Moses Moody shares key to Warriors' win vs. Nuggets without Steph Curry**: [Link](https://www.nbcsportsbayarea.com/video/nba/golden-state-warriors/moses-moody-interview-watch/1890187/)
-- **Top player props for Warriors vs. Nuggets**: [Link](https://www.nbcsports.com/watch/nba/top-player-props-for-golden-state-warriors-vs-denver-nuggets)
 
 
