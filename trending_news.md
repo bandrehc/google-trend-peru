@@ -1,3 +1,17 @@
+### diario el peruano (N/A, 12/11/2025 07:53 Lima)
+
+- **Periodistas de El Peruano participaron en conversatorio por sus 200 años en la UBM**: [Link](https://elperuano.pe/noticia/282844-periodistas-de-el-peruano-participaron-en-conversatorio-por-sus-200-anos-en-la-ubm)
+- **La Universidad Jaime Bausate y Meza organiza el conversatorio “El Peruano 200 años"| Galería Fotográfica**: [Link](https://andina.pe/agencia/galeria-la-universidad-jaime-bausate-y-meza-organiza-conversatorio-peruano-200-anos-27642.aspx)
+- **Congreso de la República saluda al Diario Oficial El Peruano por sus 200 años**: [Link](https://www.apnoticias.pe/peru/andina/congreso-de-la-republica-saluda-al-diario-oficial-el-peruano-por-sus-200-anos-1468250)
+
+
+### eliminatorias copa del mundo (N/A, 12/11/2025 07:53 Lima)
+
+- **Cuatro por un boleto al Mundial 2026: África se paraliza en busca del último cupo de la repesca**: [Link](https://www.espn.com.ar/futbol/mundial/nota/_/id/15946810/cuatro-por-un-boleto-a-la-repesca-eliminatorias-de-africa-se-paraliza-busca-de-la-ultima-oportunidad-mundial-2026)
+- **Así será el playoff africano: Aubameyang se juega su primer Mundial**: [Link](https://www.mundodeportivo.com/futbol/mundial/20251111/1002567714/asi-sera-playoff-africano-aubameyang-juega-primer-mundial.html)
+- **Nigeria vs Gabón | Pronóstico y cuotas 13.11.2025**: [Link](https://www.transfermarkt.es/apuestas/pronosticos-deportivos/nigeria-vs-gabon-pronostico-apuestas-13-11-2025/)
+
+
 ### gregorio pernía (N/A, 12/11/2025 03:33 Lima)
 
 - **Gregorio Pernía comparte emotiva historia detrás de la llegada de su sexto bebé: "Mi esposa no podía tener hijos"**: [Link](https://rpp.pe/famosos/celebridades/gregorio-pernia-comparte-emotiva-historia-detras-de-la-llegada-de-su-sexto-bebe-noticia-1663379)
@@ -1009,19 +1023,5 @@ Sin noticias relacionadas disponibles.
 - **Highlights of semifinal at WTA Finals tennis tournament**: [Link](http://english.news.cn/20251108/5e70c0543b8c45649445fbc771a8c336/c.html)
 - **Tracy Austin explains why she’s ‘concerned’ for Elena Rybakina ahead of the WTA Finals vs Aryna Sabalenka**: [Link](https://tennishead.net/tracy-austin-explains-why-shes-concerned-for-elena-rybakina-ahead-of-the-wta-finals-vs-aryna-sabalenka/)
 - **Aryna Sabalenka reflects on Anisimova’s performance in semifinal**: [Link](https://www.tennisworldusa.org/tennis/news/WTA_Tennis/161177/aryna-sabalenka-reflects-on-anisimovas-performance-in-semifinal/)
-
-
-### girona - alavés (N/A, 08/11/2025 07:43 Lima)
-
-- **Girona - Alavés, en directo: LaLiga EA Sports hoy en vivo**: [Link](https://as.com/futbol/primera/girona-alaves-en-directo-laliga-ea-sports-hoy-en-vivo-f202511-d/)
-- **Girona vs Alavés: Apuestas, Pronóstico y Cuotas**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2025/noviembre/pronostico-girona-vs-alaves-08-11-25)
-- **Buena oportunidad para sumar en casa del colista**: [Link](https://www.noticiasdealava.eus/alaves/2025/11/08/buena-oportunidad-sumar-casa-colista-10317717.html)
-
-
-### tottenham (N/A, 08/11/2025 07:43 Lima)
-
-- **Ruben Amorim calls up Man Utd wonderkid to first-team squad after Kobbie Mainoo’s injury**: [Link](https://www.unitedinfocus.com/news/ruben-amorim-calls-up-man-utd-wonderkid-to-first-team-squad-after-kobbie-mainoos-injury/)
-- **Man Utd's historic 88-year tradition saved by Darren Fletcher's son after injury scare**: [Link](https://www.mirror.co.uk/sport/football/news/breaking-man-utd-jack-fletcher-36212552)
-- **Man United may have suffered fresh injury blow ahead of**: [Link](https://www.sportsmole.co.uk/football/man-utd/injury-news/news/man-united-may-have-suffered-fresh-injury-blow-ahead-of-tottenham-contest_585372.html)
 
 
