@@ -1,3 +1,23 @@
+### gregorio pernía (N/A, 12/11/2025 03:33 Lima)
+
+- **Gregorio Pernía comparte emotiva historia detrás de la llegada de su sexto bebé: "Mi esposa no podía tener hijos"**: [Link](https://rpp.pe/famosos/celebridades/gregorio-pernia-comparte-emotiva-historia-detras-de-la-llegada-de-su-sexto-bebe-noticia-1663379)
+- **Gregorio Pernía celebra la llegada de su sexto hijo y revela la sorprendente manera en que se enteró del embarazo**: [Link](https://rpp.pe/videos/encendidos/gregorio-pernia-celebra-la-llegada-de-su-sexto-hijo-y-revela-la-sorprendente-manera-en-que-se-entero-del-embarazo-noticia-1663391)
+
+
+### kings - nuggets (N/A, 12/11/2025 03:33 Lima)
+
+- **Nuggets vs Kings Prediction, Picks & Odds for Tonight’s NBA Game**: [Link](https://www.covers.com/nba/nuggets-vs-kings-prediction-picks-best-bets-sgp-tuesday-11-11-2025)
+- **Will Nikola Jokic Play Against Sacramento Kings Tonight? Check Denver Nuggets Star’s Availability And Injury R**: [Link](https://www.timesnownews.com/sports/nba/will-nikola-jokic-play-against-sacramento-kings-tonight-check-denver-nuggets-stars-availability-and-injury-report-article-153136744)
+- **Game Thread: Denver Nuggets vs Sacramento Kings. December 11th, 2025.**: [Link](https://www.denverstiffs.com/game-thread-denver-nuggets-vs-sacramento-kings-december-11th-2025/)
+
+
+### delia espinoza (N/A, 12/11/2025 03:33 Lima)
+
+- **Juez confirma desacato de la JNJ en caso Delia Espinoza y avisa al Ministerio Público**: [Link](https://www.infobae.com/peru/2025/11/11/juez-confirma-desacato-de-la-jnj-en-caso-delia-espinoza-y-lo-denuncia-ante-el-ministerio-publico/)
+- **Poder Judicial ordena a la JNJ que “cumpla con reponer” a Delia Espinoza como fiscal de la Nación**: [Link](https://elcomercio.pe/politica/justicia/delia-espinoza-poder-judicial-ordena-reponerla-como-fiscal-de-la-nacion-ministerio-publico-jnj-tomas-galvez-noticia/)
+- **PJ da ultimátum a la JNJ: dos días para restituir a Delia Espinoza como fiscal de la Nación**: [Link](https://caretas.pe/home_web/home_principal_secundario/pj-da-ultimatum-a-la-jnj-dos-dias-para-restituir-a-delia-espinoza-como-fiscal-de-la-nacion/)
+
+
 ### britney spears (N/A, 11/11/2025 23:29 Lima)
 
 - **Kevin Federline Shares Update on Where Britney Spears' Sons Stand With Her**: [Link](https://www.eonline.com/ca/news/1424938/kevin-federline-on-britney-spears-and-sons-jayden-sean-bond)
@@ -1003,24 +1023,5 @@ Sin noticias relacionadas disponibles.
 - **Ruben Amorim calls up Man Utd wonderkid to first-team squad after Kobbie Mainoo’s injury**: [Link](https://www.unitedinfocus.com/news/ruben-amorim-calls-up-man-utd-wonderkid-to-first-team-squad-after-kobbie-mainoos-injury/)
 - **Man Utd's historic 88-year tradition saved by Darren Fletcher's son after injury scare**: [Link](https://www.mirror.co.uk/sport/football/news/breaking-man-utd-jack-fletcher-36212552)
 - **Man United may have suffered fresh injury blow ahead of**: [Link](https://www.sportsmole.co.uk/football/man-utd/injury-news/news/man-united-may-have-suffered-fresh-injury-blow-ahead-of-tottenham-contest_585372.html)
-
-
-### tottenham - manchester united (N/A, 08/11/2025 07:43 Lima)
-
-- **Preview:Spurs vs Man Utd - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/spurs/preview/spurs-vs-man-utd-prediction-team-news-lineups_585186.html)
-- **Football Tracker: Tottenham host Man Utd in early kick-off, Girona and Como also in action**: [Link](https://www.flashscore.com/news/football-tracker-tottenham-host-man-utd-in-early-kick-off-girona-and-como-also-in-action/AmHtoEN7/)
-- **'Touch and go!' - Thomas Frank issues concerning Tottenham injury update ahead of Man Utd clash this weekend**: [Link](https://www.goal.com/en-om/lists/thomas-frank-tottenham-injury-update-man-utd-clash-this-weekend/blt0c7b7705dd7822de)
-
-
-### terremoto sismo temblor hoy epicentro (N/A, 08/11/2025 07:43 Lima)
-
-- **Temblor en Perú hoy, sábado 8 de noviembre: cuál fue la magnitud y epicentro según IGP**: [Link](https://elcomercio.pe/respuestas/temblor-en-peru-hoy-ultimos-sismos-de-noviembre-en-vivo-cual-fue-el-epicentro-y-magnitud-segun-reporte-del-igp-instituto-geofisico-del-peru-lima-callao-ica-lbposting-noticia/)
-- **Un sismo de magnitud 4.0 remeció la región Tacna esta madrugada**: [Link](https://rpp.pe/peru/tacna/tacna-sismo-de-magnitud-40-remecio-la-region-esta-madrugada-noticia-1662793)
-- **Terremoto moderado mag. 4.0 - Central Peru, jueves 6 nov 2025 a las 17:55 (Hora Lima) - hace 1 hora 5 minutos**: [Link](https://www.volcanodiscovery.com/es/sismos/informe-sismo/22362594/mag4quake-Nov-6-2025-Central-Peru.html)
-
-
-### portugal vs (N/A, 08/11/2025 07:43 Lima)
-
-Sin noticias relacionadas disponibles.
 
 
