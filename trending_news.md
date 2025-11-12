@@ -1,3 +1,45 @@
+### adrian ugarriza (N/A, 12/11/2025 11:33 Lima)
+
+- **Gruber, un central de molde europeo y espíritu inca: ¿Qué hace al ‘eurocausa’ germano vital para el recambio y cómo puede sumar en Perú?**: [Link](https://elcomercio.pe/deporte-total/seleccion/seleccion-peruana-hoy-fabio-gruber-un-central-de-molde-europeo-y-espiritu-inca-que-hace-al-eurocausa-germano-vital-para-el-recambio-y-como-puede-sumar-en-peru-tlcnota-noticia/)
+- **Jhonny Vidales: La satisfacción de ser convocado y la curiosa anécdota compartida con Lapadula**: [Link](https://depor.com/futbol-peruano/seleccion-peruana/seleccion-peruana-jhonny-vidales-se-mostro-emocionado-por-volver-a-una-convocatoria-tras-mas-de-10-anos-y-conto-como-conocio-a-gianluca-lapadula-video-noticia/)
+- **Fabio Gruber practicó por primera vez como seleccionado peruano en Rusia**: [Link](https://www.espn.com.pe/futbol/nota/_/id/15948110/primer-entrenamiento-de-fabio-gruber-con-la-seleccion-de-peru)
+
+
+### tunez vs (N/A, 12/11/2025 11:33 Lima)
+
+- **Túnez vs Mauritania EN VIVO, minuto a minuto en partido amistoso**: [Link](https://www.vavel.com/mx/futbol-internacional/2025/11/12/1241004-tunez-vs-mauritania-en-vivo-amistoso-internacional.html)
+- **Túnez vs Mauritania: pronósticos, cuotas, y datos para apostar!**: [Link](https://www.apwin.com/es/pronosticos/tunisia-vs-mauritania-pronostico-amistosos-internacionales-12-11-2025/)
+- **Austria vs. Túnez por Mundial Sub 17, todo lo que tenés que saber**: [Link](https://www.directvsports.com/futbol/Austria-vs.-Tunez-por-Mundial-Sub-17-todo-lo-que-tenes-que-saber-20251112-0006.html)
+
+
+### accidente arequipa (N/A, 12/11/2025 11:33 Lima)
+
+- **Fatal accidente en Arequipa: al menos 37 muertos al desbarrancarse bus interprovincial**: [Link](https://rpp.pe/peru/arequipa/arequipa-al-menos-17-muertos-y-39-heridos-al-desbarrancarse-bus-interprovincial-noticia-1663448)
+- **Más de 30 muertos y decenas de heridos por la caída de un autobús al vacío en Perú**: [Link](https://cnnespanol.cnn.com/2025/11/12/latinoamerica/peru-caida-autobus-decenas-muertos-orix)
+- **Grave accidente en Arequipa: bus cae a abismo y deja más de 30 personas fallecidas**: [Link](https://andina.pe/agencia/noticia-grave-accidente-arequipa-bus-cae-a-abismo-y-deja-mas-30-personas-fallecidas-1051648.aspx)
+
+
+### jorge fossati (N/A, 12/11/2025 11:33 Lima)
+
+- **¿Peligra continuidad de Fossati? Dos clubes mexicanos muestran interés en el técnico de la U**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/universitario-jorge-fossati-interesa-a-necaxa-y-pumas-unam-de-la-liga-mx-liga-1-noticia/)
+- **‘Chorri’ Palacios cuestionó a Jorge Fossati por su continuidad en Universitario: “Debería estar agradecido después del fracaso en la selección”**: [Link](https://www.infobae.com/peru/deportes/2025/11/10/chorri-palacios-cuestiono-a-jorge-fossati-por-su-continuidad-en-universitario-deberia-estar-agradecido-despues-del-fracaso-en-la-seleccion/)
+- **Franco Velasco anuncia nuevos retos tras el tricampeonato**: [Link](https://ahora.com.pe/franco-velasco-anuncia-nuevos-retos-tras-el-tricampeonato/)
+
+
+### ben shelton (N/A, 12/11/2025 11:33 Lima)
+
+- **Auger-Aliassime keeps SF hopes alive with Shelton comeback at Nitto ATP Finals**: [Link](https://www.atptour.com/en/news/shelton-auger-aliassime-nitto-atp-finals-2025-wednesday)
+- **Ryan Harrison staggered by what happened on Ben Shelton's serve in his match with Felix Auger-Aliassime**: [Link](https://tennishead.net/ryan-harrison-staggered-by-what-happened-on-ben-sheltons-serve-in-his-match-with-felix-auger-aliassime/)
+- **ATP Finals Ben Shelton vs Felix Auger-Aliassime 🧠 Form & Context Ben Shelton (USA, #5, lefty) • 2025: 40–23 overall | 4–4 Indoors, 23–9 Hard • Turin debut; opened with 3–6, 6–7 vs Zverev after leading 6–3 in the TB • Post-USO fitness/prep hasn’t been ideal**: [Link](https://x.com/Probahis/status/1988375571294822484)
+
+
+### paro 14 de noviembre (N/A, 12/11/2025 11:33 Lima)
+
+- **Paro nacional del 14 de noviembre: estas son las regiones que confirmaron su participación en la marcha de la Generación Z**: [Link](https://www.infobae.com/peru/2025/11/12/paro-nacional-del-14-de-noviembre-estas-son-las-regiones-que-confirmaron-su-participacion-en-la-marcha-de-la-generacion-z/)
+- **Paro de transportistas 14 de noviembre: estos son los gremios que sí acatarán y los que no**: [Link](https://larepublica.pe/sociedad/2025/11/11/paro-del-14-de-noviembre-estos-son-los-gremios-de-transportistas-que-si-acataran-y-los-que-no-ntpe-984929)
+- **¿Minedu suspende las clases escolares este viernes 14 de noviembre a nivel nacional por el paro? Esto se sabe**: [Link](https://elpopular.pe/actualidad/2025/11/11/minedu-suspende-las-clases-escolares-este-viernes-14-de-noviembre-a-nivel-nacional-por-el-parto-esto-se-sabe-672364)
+
+
 ### diario el peruano (N/A, 12/11/2025 07:53 Lima)
 
 - **Periodistas de El Peruano participaron en conversatorio por sus 200 años en la UBM**: [Link](https://elperuano.pe/noticia/282844-periodistas-de-el-peruano-participaron-en-conversatorio-por-sus-200-anos-en-la-ubm)
@@ -981,47 +1023,5 @@ Sin noticias relacionadas disponibles.
 - **HSV vs. BVB: Hamburger SV gegen Borussia Dortmund JETZT im Liveticker**: [Link](https://www.spox.com/fussball/live/hsv-vs-bvb-hamburger-sv-gegen-borussia-dortmund-heute-im-liveticker/blt513d3f4af3992bc4)
 - **Hamburger SV - Dortmund live: Bundesliga im TV und LIVE-STREAM sehen**: [Link](https://www.dazn.com/de-DE/news/fussball/hamburger-sv-hsv-dortmund-bvb-live-bundesliga-im-tv-und-live-stream-sehen/mb94ndwjfv6c1xg6d8an2gk0e)
 - **Mit dieser Startelf beginnt Dortmund im Volkspark**: [Link](https://hsv24.mopo.de/2025/11/08/mit-dieser-startelf-beginnt-dortmund-im-volkspark.html)
-
-
-### bayern vs (N/A, 08/11/2025 11:27 Lima)
-
-- **Golazo de Luis Díaz en Unión Berlín vs Bayern por Bundesliga**: [Link](https://www.espn.com.pe/futbol/alemania/nota/_/id/15930412/union-berlin-vs-bayern-goles-luis-diaz-video-bundesliga)
-- **Pronóstico Union Berlin - Bayern Munich. Bundesliga | 08/11/2025**: [Link](https://gainblers.com/pe/pronosticos/futbol/alemania/1bundesliga/pronostico-union-berlin-bayern-munich-08-11-2025/)
-- **Bayern-Union Berlin EN VIVO con Luis Díaz: cuánto va el partido**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/bayern-vs-union-berlin-en-vivo-gratis-hoy-via-futbol-libre-tv-espn-con-luis-diaz-horarios-canales-tv-y-donde-ver-partido-por-bundesliga-video-noticia/)
-
-
-### bayern munich (N/A, 08/11/2025 11:27 Lima)
-
-- **Kompany discusses possible rotation ahead of Union Berlin clash**: [Link](https://bulinews.com/kompany-discusses-possible-rotation-ahead-union-berlin-clash)
-- **Steffen Baumgart reveals his plan against FC Bayern: ‘With a high level of aggression, but...’**: [Link](https://tribuna.com/en/news/2025-11-08-steffen-baumgart-reveals-his-plan-against-fc-bayern-with-a-high-level-of-aggression-but/)
-- **Nicolas Jackson vs. Union Berlin – Player props & odds to score a goal on November 8**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/11/07/nicolas-jackson-soccer-player-props-11-8-2025/87156010007/)
-
-
-### bayer vs (N/A, 08/11/2025 11:27 Lima)
-
-- **Preview:B. Leverkusen vs Heidenheim - prediction, team news**: [Link](https://www.sportsmole.co.uk/football/bayer-leverkusen/preview/b-leverkusen-vs-heidenheim-prediction-team-news-lineups_585299.html)
-- **Malik Tillman vs. 1. FC Heidenheim 1846 – Player props & odds to score a goal on November 8**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/11/07/malik-tillman-soccer-player-props-11-8-2025/87156022007/)
-- **Patrik Schick’s Goal Odds Against 1. FC Heidenheim, November 8**: [Link](https://www.el-balad.com/6759845)
-
-
-### sevilla - osasuna (N/A, 08/11/2025 11:27 Lima)
-
-- **Sevilla - Osasuna en directo | LaLiga EA Sports hoy, en vivo**: [Link](https://www.marca.com/futbol/laliga-ea-sports/sevilla-osasuna/2025/11/08/01_0101_20251108_179_450-directo.html)
-- **¡EN VIVO! Sevilla recibe a Osasuna en LaLiga**: [Link](https://www.espn.com.ar/futbol/espana/nota/_/id/15930879/sevilla-osasuna-laliga-partido-recibe-almeyda-alexis-sanchez-gabriel-suazo)
-- **Sevilla - Osasuna en directo - La Liga: Resultados y resúmenes de Fútbol - 08/11/2025**: [Link](https://espanol.eurosport.com/futbol/la-liga/2025-2026/live-sevilla-osasuna_mtc1610541/live-commentary.shtml)
-
-
-### hoffenheim - rb leipzig (N/A, 08/11/2025 11:27 Lima)
-
-- **Unbeliebtico? Werner: "Auf beiden Seiten die Zukunft des Fußballs" | RB auswärts gegen Hoffenheim | Video**: [Link](https://www.kicker.de/unbeliebtico-werner-auf-beiden-seiten-die-zukunft-des-fussballs-1163725/video)
-- **„Habe ihn im Fokus“: Ilzer warnt vor ÖFB-Legionär**: [Link](https://fan.at/news/690efa2bfd4ca8ef4aa0a9ff)
-- **Live: Die Roten Bullen bei der TSG Hoffenheim**: [Link](https://rbleipzig.com/de/news/liveticker-spielbericht-tsg-hoffenheim-vs-rb-leipzig-10-spieltag-bundesliga-saison-2025-26)
-
-
-### wta finals (N/A, 08/11/2025 07:43 Lima)
-
-- **Highlights of semifinal at WTA Finals tennis tournament**: [Link](http://english.news.cn/20251108/5e70c0543b8c45649445fbc771a8c336/c.html)
-- **Tracy Austin explains why she’s ‘concerned’ for Elena Rybakina ahead of the WTA Finals vs Aryna Sabalenka**: [Link](https://tennishead.net/tracy-austin-explains-why-shes-concerned-for-elena-rybakina-ahead-of-the-wta-finals-vs-aryna-sabalenka/)
-- **Aryna Sabalenka reflects on Anisimova’s performance in semifinal**: [Link](https://www.tennisworldusa.org/tennis/news/WTA_Tennis/161177/aryna-sabalenka-reflects-on-anisimovas-performance-in-semifinal/)
 
 
