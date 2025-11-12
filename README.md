@@ -1,3 +1,73 @@
+### jannik sinner (N/A, 12/11/2025 15:27 Lima)
+
+- **Nitto ATP Finals, in campo Sinner-Zverev: sfida al vertice per volare in semifinale Segui la diretta streaming su Rainews.it**: [Link](https://www.facebook.com/RaiNews/photos/nitto-atp-finals-in-campo-sinner-zverev-sfida-al-vertice-per-volare-in-semifinal/1310531494446701/)
+- **Tennis, Jasmine Paolini diventa official brand ambassador Fulfil**: [Link](https://oblo.it/tennis-jasmine-paolini-diventa-official-brand-ambassador-fulfil/)
+- **Atp Finals, a Torino è tutto esaurito per le finali: cifre record per l'ultimo biglietto venduto**: [Link](https://www.ilmessaggero.it/sport/tennis/atp_finals_torino_tutto_esaurito_le_finali_cifre_record_ultimo_biglietto_venduto-9184401.html)
+
+
+### lucas chevalier (N/A, 12/11/2025 15:27 Lima)
+
+- **Why Lucas Chevalier is the best goalkeeper for PSG in the long run?**: [Link](https://psgpost.com/why-lucas-chevalier-is-the-best-goalkeeper-for-psg-in-the-long-run-01k9sd7effx9)
+- **'For now, the PSG jersey is too big for him': Pierre Ménès's serious doubts about Lucas Chevalier's performance**: [Link](https://tribuna.com/en/news/2025-11-11-for-now-the-psg-jersey-is-too-big-for-him-pierre-meness-serious-doubts-about-lucas-cheval/)
+- **The Fall of Donnarumma and Rise of Chevalier**: [Link](https://www.ilmessaggero.it/en/the_fall_of_donnarumma_and_rise_of_chevalier-9180448.html?next_page=2)
+
+
+### steam machine (N/A, 12/11/2025 15:27 Lima)
+
+- **Our first look at the Steam Machine, Valve’s ambitious new game console**: [Link](https://www.theverge.com/tech/818111/valve-steam-machine-hands-on-preview-specs-announcement)
+- **Valve's Coming For Your Face And Your Living Room - Video**: [Link](https://www.cnet.com/videos/valves-coming-for-your-face-and-your-living-room/)
+- **Valve announces 3 new Steam hardware devices: Steam Machine, VR headset Steam Frame, and a new Steam controller**: [Link](https://www.gamesindustry.biz/valve-announces-3-new-steam-hardware-devices-steam-machine-vr-headset-steam-frame-and-a-new-steam-controller)
+
+
+### arsenal femenino vs (N/A, 12/11/2025 15:27 Lima)
+
+- **Bayern vs. Arsenal (12 de Nov., 2025) Resultados en Vivo**: [Link](https://espndeportes.espn.com/futbol/partido/_/juegoId/759001)
+- **El entrenador del Bayern cree que su equipo debe ser “valiente” ante el Arsenal**: [Link](https://noticiashuesca.com/economia/el-entrenador-del-bayern-cree-que-su-equipo-debe-ser-valiente-ante-el-arsenal/125335/)
+- **Previa | Bayern München vs Arsenal (UWCL): cómo llegan, horario, dónde ver y onces probables**: [Link](https://lasfutbolistas.com/previa-bayern-munchen-vs-arsenal-uwcl-como-llegan-horario-donde-ver-y-onces-probables/)
+
+
+### portugal fc (N/A, 12/11/2025 15:27 Lima)
+
+- **Conselho de Arbitragem justifica erros e rejeita estrangeiros**: [Link](https://onefootball.com/id/berita/conselho-de-arbitragem-justifica-erros-e-rejeita-estrangeiros-41942773)
+- **Duarte Gomes fala sobre polémicas na Luz e no Dragão**: [Link](https://sapo.pt/artigo/duarte-gomes-fala-sobre-polemicas-na-luz-e-no-dragao-6914748a6c0749d633fc877a)
+- **«Penálti de António Silva? Não vi as declarações de Rui Costa»**: [Link](https://tvi.iol.pt/noticias/videos/penalti-de-antonio-silva-nao-vi-as-declaracoes-de-rui-costa/69147be40cf28fe43048623f)
+
+
+### bolivia (N/A, 12/11/2025 15:27 Lima)
+
+- **El nuevo Canciller Fernando Aramayo plantea una reestructuración integral de la diplomacia boliviana**: [Link](https://cancilleria.gob.bo/mre/2025/11/11/23421/)
+- **Canciller dice que Bolivia “convivirá” con países que comparten sus valores y deja abierto el diálogo con Venezuela, Cuba y Nicaragua**: [Link](https://abi.bo/index.php/component/content/article/35-notas/noticias/politica/70804-canciller-dice-que-bolivia-convivira-con-paises-que-comparten-sus-valores-y-deja-abierto-el-dialogo-con-venezuela-cuba-y-nicaragua?Itemid=101)
+- **Cancillería evalúa al personal para rearmar el servicio diplomático**: [Link](https://eldeber.com.bo/pais/cancilleria-evalua-personal-rearmar-servicio-diplomatico_1762916520)
+
+
+### colombia vs (N/A, 12/11/2025 15:27 Lima)
+
+- **Rafa Borré, motivado con la Selección: "Ya empezamos a vivir lo que será el Mundial"**: [Link](https://www.espn.com.ar/futbol/mundial/nota/_/id/15948291/rafael-santos-borre-ilusionado-con-el-mundial-y-la-seleccion-colombia)
+- **Selección Colombia: cuándo juega en la fecha FIFA de noviembre 2025**: [Link](https://www.365scores.com/es/news/colombia-cuando-juega-fecha-fifa/)
+- **Lorenzo ya reunió al grupo y prepara el cierre del año: ¿cómo llegan los convocados?**: [Link](https://www.elespectador.com/deportes/seleccion-colombia/lorenzo-ya-reunio-al-grupo-y-prepara-el-cierre-del-ano-como-llegan-los-convocados/)
+
+
+### friendlies (N/A, 12/11/2025 15:27 Lima)
+
+- **How to watch upcoming international soccer friendlies on Prime Video**: [Link](https://www.aboutamazon.com/news/entertainment/prime-video-international-soccer-matches)
+- **Emirates Stadium: Brazil's home, away from home | International | News**: [Link](https://www.arsenal.com/news/emirates-stadium-brazils-home-away-home)
+- **Brazil vs Senegal Preview & Prediction | 2025 International Friendly**: [Link](https://www.thestatszone.com/brazil-vs-senegal-preview-prediction-2025-international-friendly-158224)
+
+
+### jairo concha (N/A, 12/11/2025 15:27 Lima)
+
+- **Inga sobre la posibilidad de emigrar de Universitario: "Cuando se tenga que dar algo, se dará"**: [Link](https://www.espn.com.ar/futbol/peru/nota/_/id/15932843/que-dijo-cesar-inga-sobre-su-salida-de-universitario-de-deportes)
+- **Jairo Concha y César Inga tienen todo encaminado para ser vendidos en Universitario**: [Link](https://bolavip.com/pe/universitario/jairo-concha-y-cesar-inga-tienen-todo-encaminado-para-ser-vendidos-en-universitario)
+- **Firmó con Universitario hasta 2026, pero puede dejar el club: "Su representante está en Europa"**: [Link](https://libero.pe/futbol-peruano/universitario/2025/11/09/universitario-firmo-2026-pero-puede-dejar-club-su-representante-en-europa-video-780516)
+
+
+### fpf (N/A, 12/11/2025 15:27 Lima)
+
+- **Ayacucho FC y el mensaje a la FPF sobre el descenso: “Si quieren favorecer a Juan Pablo II...”**: [Link](https://depor.com/futbol-peruano/descentralizado/presidente-de-ayacucho-fc-rolando-bellido-acuso-a-la-fpf-de-mala-designacion-de-diego-haro-y-de-favorecer-a-juan-pablo-ii-liga-1-noticia/)
+- **Liga 1: Comerciantes Unidos se defiende y emite contundente comunicado tras lo sucedido en Ayacucho**: [Link](https://www.futbolperuano.com/liga-1/noticias/comerciantes-unidos-se-defiende-y-emite-contundente-comunicado-551067)
+- **Barra Los Guerreros Wari niega haber lanzado proyectiles durante partido suspendido**: [Link](https://jornada.com.pe/barra-los-guerreros-wari-niega-haber-lanzado-proyectiles-durante-partido-suspendido/)
+
+
 ### adrian ugarriza (N/A, 12/11/2025 11:33 Lima)
 
 - **Gruber, un central de molde europeo y espíritu inca: ¿Qué hace al ‘eurocausa’ germano vital para el recambio y cómo puede sumar en Perú?**: [Link](https://elcomercio.pe/deporte-total/seleccion/seleccion-peruana-hoy-fabio-gruber-un-central-de-molde-europeo-y-espiritu-inca-que-hace-al-eurocausa-germano-vital-para-el-recambio-y-como-puede-sumar-en-peru-tlcnota-noticia/)
@@ -955,73 +1025,5 @@ Sin noticias relacionadas disponibles.
 ### racing - defensa y justicia (N/A, 08/11/2025 15:23 Lima)
 
 Sin noticias relacionadas disponibles.
-
-
-### parma vs milan (N/A, 08/11/2025 15:23 Lima)
-
-- **Sacchi sees Allegri’s improvement but warns Milan about Parma**: [Link](https://football-italia.net/sacchi-allegri-improvement-warn-milan-parma/)
-- **Rafael Leao: ‘Allegri knows how to help me’**: [Link](https://www.yardbarker.com/soccer/articles/rafael_leao_allegri_knows_how_to_help_me/s1_17344_43036782)
-- **Will Christian Pulisic start after injury return? Milan’s projected lineup for Serie A game vs. Parma, with...**: [Link](https://worldsoccertalk.com/news/will-christian-pulisic-start-after-injury-return-milans-projected-lineup-for-serie-a-game-vs-parma-with-santiago-gimenez-ruled-out-and-luka-modric-in-contention/)
-
-
-### chelsea - wolves (N/A, 08/11/2025 15:23 Lima)
-
-- **Confirmed Chelsea line up vs Wolverhampton Wanderers | News | Official Site**: [Link](https://www.chelseafc.com/en/news/article/confirmed-chelsea-line-up-vs-wolverhampton-wanderers)
-- **“It’s difficult” – Enzo Maresca reveals why he thinks Wolves game will be tough for Chelsea**: [Link](https://chelsea.news/2025/11/enzo-maresca-chelsea-wolves-thoughts/)
-- **Whether Pedro Neto trained with Chelsea squad ahead of Stamford Bridge reunion with Wolves**: [Link](https://www.thechelseachronicle.com/news/whether-pedro-neto-trained-with-chelsea-squad-ahead-of-stamford-bridge-reunion-with-wolves/)
-
-
-### rcd espanyol - villarreal (N/A, 08/11/2025 15:23 Lima)
-
-- **Espanyol - Villarreal, en directo: LaLiga EA Sports, en vivo**: [Link](https://as.com/futbol/primera/espanyol-villarreal-en-directo-laliga-ea-sports-en-vivo-f202511-d/)
-- **Espanyol - Villarreal en directo | LaLiga EA Sports hoy, en vivo**: [Link](https://www.marca.com/futbol/laliga-ea-sports/espanyol-villarreal/2025/11/08/01_0101_20251108_177_449-directo.html)
-- **El Villarreal busca pasar página de la Champions, volviendo a ganar en Liga ante el Espanyol**: [Link](https://plazadeportiva.valenciaplaza.com/plazadeportiva/futbol/el-villarreal-busca-pasar-pagina-de-la-champions-volviendo-a-ganar-en-liga-ante-el-espanyol)
-
-
-### sport huancayo (N/A, 08/11/2025 15:23 Lima)
-
-- **¡Sport Huancayo es campeón de la Liga3 2025! Empató 1-1 con Estudiantil CNI y ascendió a la Liga2 (VIDEO)**: [Link](https://rpp.pe/futbol/mas-futbol/sport-huancayo-vs-estudiantil-cni-en-vivo-a-que-hora-juegan-y-donde-ver-final-vuelta-liga-3-via-youtube-fpf-partidos-de-hoy-noticia-1662908)
-- **¡Campeón de la Liga 3! Sport Huancayo se coronó en ‘La Incontrastable’ y ascendió a Liga 2**: [Link](https://depor.com/futbol-peruano/sport-huancayo-campeon-de-la-liga-3-y-ascenso-a-la-liga-2-2026-tras-vencer-a-estudiantil-cni-video-noticia/)
-- **Triunfazo del Sport Huancayo en Iquitos y está a un paso de la Liga 2**: [Link](https://diariocorreo.pe/deportes/triunfazo-del-sport-huancayo-en-iquitos-y-esta-a-un-paso-de-la-liga-3-noticia/)
-
-
-### parma - milan (N/A, 08/11/2025 15:23 Lima)
-
-- **Parma-Milan | UFFICIALI: la scelta su Pulisic, Nkunku ed Estupinan**: [Link](https://onefootball.com/it/notizie/parma-milan-ufficiali-la-scelta-su-pulisic-nkunku-ed-estupinan-41924418)
-- **Leao chiarisce le sue condizioni e il rapporto con Allegri: "Contro l'Atalanta non ero al 100%, lui sa come come aiutarmi dentro e fuori dal campo"**: [Link](https://www.calciomercato.com/liste/leao-chiarisce-le-sue-condizioni-e-il-rapporto-con-allegri-contro-l-atalanta-non-ero-al-100-lui-sa-come-come-aiutarmi-dentro-e-fuori-dal-campo/blt2862e55bbabd461e)
-- **Calcio Live News: in campo Parma-Milan (0-0), pari a reti bianche tra Juve e Toro**: [Link](https://www.diretta.it/news/calcio-live-news-in-campo-parma-milan-0-0-pari-a-reti-bianche-tra-juve-e-toro/nTrccDc3/)
-
-
-### juventus - torino (N/A, 08/11/2025 11:27 Lima)
-
-- **Juve-Torino, diretta: formazioni e risultato in tempo reale. Primo derby per Spalletti e Baroni**: [Link](https://www.tuttosport.com/news/calcio/serie-a/juventus/2025/11/08-144394228/juve-torino_diretta_formazioni_e_risultato_in_tempo_reale_primo_derby_per_spalletti_e_baroni)
-- **Cabrini a Gazzetta: 'Chi scende in campo deve aver chiara la responsabilità'**: [Link](https://www.ilbianconero.com/liste/cabrini-a-gazzetta-chi-scende-in-campo-deve-aver-chiara-la-responsabilita/blt52d5c8993fa643d0)
-- **Serie A | Le formazioni ufficiali di Juventus-Torino**: [Link](https://www.juventus.com/it/news/articoli/serie-a-2025-2026-juventus-torino-formazioni)
-
-
-### la serena - u. católica (N/A, 08/11/2025 11:27 Lima)
-
-Sin noticias relacionadas disponibles.
-
-
-### novak djokovic (N/A, 08/11/2025 11:27 Lima)
-
-- **Djokovic faces Italy’s Musetti in Hellenic Championship final**: [Link](https://www.ekathimerini.com/sports/1286197/djokovic-faces-italys-musetti-in-hellenic-championship-final/)
-- **Djokovic Triumphs Over Hanfmann in Athens Semi-Final with ‘Special’ Performance**: [Link](https://www.el-balad.com/6759870)
-- **Novak Djokovic vs Lorenzo Musetti Prediction: Can Musetti pull off a miracle with Turin on the line?**: [Link](https://www.telecomasia.net/sports-betting/tips/tennis/novak-djokovic-vs-lorenzo-musetti-prediction-for-the-match-on-november-08-2025/)
-
-
-### primera división de arabia saudita (N/A, 08/11/2025 11:27 Lima)
-
-- **Al Nassr-Neom EN VIVO con Cristiano Ronaldo: cómo va el partido**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/al-nassr-vs-neom-en-vivo-gratis-hoy-via-futbol-libre-tv-fox-one-con-cristiano-ronaldo-horarios-canales-tv-y-donde-ver-partido-por-saudi-pro-league-video-noticia/)
-- **Neom Sports Club - Al Nassr en directo | Liga de Arabia**: [Link](https://www.marca.com/futbol/futbol-internacional/2025/11/08/690f16b07aeb1c2f75378d6d-directo.html)
-- **Neom vs Al-Nassr: cómo ver el partido por TV y streaming, últimas noticias y pronóstico**: [Link](https://www.si.com/es-us/futbol/neom-vs-al-nassr-tv-streaming-8-11-2025)
-
-
-### dortmund (N/A, 08/11/2025 11:27 Lima)
-
-- **HSV vs. BVB: Hamburger SV gegen Borussia Dortmund JETZT im Liveticker**: [Link](https://www.spox.com/fussball/live/hsv-vs-bvb-hamburger-sv-gegen-borussia-dortmund-heute-im-liveticker/blt513d3f4af3992bc4)
-- **Hamburger SV - Dortmund live: Bundesliga im TV und LIVE-STREAM sehen**: [Link](https://www.dazn.com/de-DE/news/fussball/hamburger-sv-hsv-dortmund-bvb-live-bundesliga-im-tv-und-live-stream-sehen/mb94ndwjfv6c1xg6d8an2gk0e)
-- **Mit dieser Startelf beginnt Dortmund im Volkspark**: [Link](https://hsv24.mopo.de/2025/11/08/mit-dieser-startelf-beginnt-dortmund-im-volkspark.html)
 
 
