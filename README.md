@@ -1,3 +1,17 @@
+### britney spears (N/A, 11/11/2025 23:29 Lima)
+
+- **Kevin Federline Shares Update on Where Britney Spears' Sons Stand With Her**: [Link](https://www.eonline.com/ca/news/1424938/kevin-federline-on-britney-spears-and-sons-jayden-sean-bond)
+- **Kevin Federline Joins The Show!**: [Link](https://rock1053.iheart.com/featured/follow-along-with-the-show/content/2025-11-11-757-the-show-presents-full-sho-kevin-federline-joins-the-show/)
+- **Drugs, cheating, huge fights and erratic behaviour: 12 of the most shocking revelations from Kevin Federline’s book about Britney Spears**: [Link](https://www.independent.ie/style/celebrity/celebrity-features/drugs-cheating-huge-fights-and-erratic-behaviour-12-of-the-most-shocking-revelations-from-kevin-federlines-book-about-britney-spears/a1055226579.html)
+
+
+### thunder - warriors (N/A, 11/11/2025 23:29 Lima)
+
+- **Draymond Green Previews Warriors’ Matchup vs Thunder, Calls Shai Gilgeous-Alexander ‘A Full-Team Assignment’**: [Link](https://thesportsrush.com/nba-news-draymond-green-previews-warriors-matchup-vs-thunder-calls-shai-gilgeous-alexander-a-full-team-assignment/)
+- **Warriors instant analysis: Steph Curry’s return not enough to prevent OKC rout**: [Link](https://www.mercurynews.com/2025/11/11/warriors-steph-curry-shai-gilgeous-alexander-thunder-champs/)
+- **Jonathan Kuminga highlights: Watch Warriors forward score 13 points vs. Thunder**: [Link](https://www.nbcsportsbayarea.com/video/nba/golden-state-warriors/jonathan-kuminga-highlights-watch-4/1891265/)
+
+
 ### mormon church (N/A, 11/11/2025 20:56 Lima)
 
 - **Groundbreaking Date for Jacksonville Florida Temple**: [Link](https://newsroom.churchofjesuschrist.org/article/news-for-temples-in-florida-idaho-and-nigeria)
@@ -1008,19 +1022,5 @@ Sin noticias relacionadas disponibles.
 ### portugal vs (N/A, 08/11/2025 07:43 Lima)
 
 Sin noticias relacionadas disponibles.
-
-
-### kings - thunder (N/A, 08/11/2025 07:43 Lima)
-
-- **Thunder 132-101 Kings (Nov 7, 2025) Game Recap**: [Link](https://www.espn.com/nba/recap/_/gameId/401809780)
-- **Hartenstein's Career-High 33 Points, 19 Rebounds Power Th...**: [Link](https://x.com/i/trending/1987080095031267802)
-- **What channel is Thunder vs Kings on TV tonight? Time, NBA schedule for OKC-Sacramento**: [Link](https://www.oklahoman.com/story/sports/nba/thunder/2025/11/07/thunder-kings-channel-tonight-nba-cup-games-tonight-live-time-tv-schedule-streaming/87141587007/)
-
-
-### blast slam iv (N/A, 08/11/2025 03:29 Lima)
-
-- **HEROIC, MOUZ move into semis at BLAST Slam IV**: [Link](https://fieldlevelmedia.com/esports/heroic-mouz-move-into-semis-at-blast-slam-iv/)
-- **Davai Lama named the reasons for HEROIC's rapid progress**: [Link](https://hawk.live/posts/davai-lama-named-reasons-heroic-rapid-progress)
-- **MOUZ and HEROIC Advanced to the BLAST Slam IV Semifinals**: [Link](https://blix.gg/news/dota-2/mouz-and-heroic-advanced-to-the-blast-slam-iv-semifinals/)
 
 
