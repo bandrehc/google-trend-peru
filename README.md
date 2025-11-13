@@ -1,3 +1,73 @@
+### carlos alcaraz (N/A, 13/11/2025 15:27 Lima)
+
+- **De Miñaur se estrena en Turín y abre una puerta a SF**: [Link](https://www.atptour.com/es/news/nitto-atp-finals-2025-jueves-fritz-de-minaur)
+- **Carlos Alcaraz-Lorenzo Musetti, fase de grupos de las ATP Finals hoy en vivo online**: [Link](https://as.com/tenis/final_atp/carlos-alcaraz-lorenzo-musetti-fase-de-grupos-de-las-atp-finals-hoy-en-vivo-online-f202511-d/)
+- **Alcaraz y su foto viral tras ganar a Fritz: "Fue una sensación de alivio tras un partido con mucho desgaste"**: [Link](https://www.marca.com/tenis/copa-masters/2025/11/13/alcaraz-foto-viral-ganar-fritz-sensacion-alivio-partido-desgaste.html)
+
+
+### concierto de shakira (N/A, 13/11/2025 15:27 Lima)
+
+- **Shakira en Lima: conoce el setlist de las canciones que cantará en sus conciertos en el Estadio Nacional**: [Link](https://rpp.pe/musica/conciertos/shakira-en-lima-2025-setlist-de-canciones-que-cantara-en-sus-conciertos-de-noviembre-en-estadio-nacional-noticia-1663529)
+- **Shakira en Perú: ¿Cuándo llega la cantante colombiana a Lima?**: [Link](https://elcomercio.pe/tvmas/famosos/shakira-en-peru-cuando-llega-la-cantante-colombiana-a-lima-celebs-ultimas-noticia/)
+- **Shakimanía ya se respira en Lima**: [Link](https://peru21.pe/espectaculos/shakimania-ya-se-respira-en-lima/)
+
+
+### cristiano ronaldo (N/A, 13/11/2025 15:27 Lima)
+
+- **Cristiano Ronaldo vs Lionel Messi: Who will reach the mythical 1000-goal mark first? The stats have an answer | Football News**: [Link](https://www.hindustantimes.com/sports/football/cristiano-ronaldo-vs-lionel-messi-who-will-reach-the-mythical-1000-goal-mark-first-the-stats-have-an-answer-101762655699260.html)
+- **"You watch a lot of movies...", Ronaldo's epic response when given the script for his 1000th goal**: [Link](https://indeksonline.net/en/He-watches-a-lot-of-movies.-Ronaldo%27s-epic-response-when-he-is-given-the-script-for-his-1000th-goal./)
+- **'He shouldn't forget to invite me to the celebration' - Ancelotti on Ronaldo's 1,000 goals target**: [Link](https://www.besoccer.com/new/he-shouldn-t-forget-to-invite-me-to-the-celebration-ancelotti-on-ronaldo-s-1-000-goals-target-1381086)
+
+
+### francia - ucrania (N/A, 13/11/2025 15:27 Lima)
+
+- **Francia - Ucrania, en directo: clasificación al Mundial 2026 hoy, en vivo**: [Link](https://as.com/futbol/internacional/francia-ucrania-en-directo-clasificacion-al-mundial-2026-hoy-en-vivo-f202511-d/)
+- **VER, Francia-Ucrania EN VIVO: transmisión ONLINE del partido desde París**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/francia-vs-ucrania-en-vivo-hoy-gratis-via-espn-futbol-libre-tv-y-disney-plus-horarios-canales-tv-y-donde-ver-partido-online-por-eliminatorias-uefa-2026-video-noticia/)
+- **Francia vs Ucrania: Apuestas, Pronóstico y Cuotas**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/internacional/2025/noviembre/pronostico-francia-vs-ucrania-13-11-25)
+
+
+### moldavia - italia (N/A, 13/11/2025 15:27 Lima)
+
+- **Moldova-Italia, Azzurri con quattro punte e doppio 9. Tonali-Cristante in mezzo e in porta si cambia**: [Link](https://www.gazzetta.it/Calcio/Nazionale/13-11-2025/italia-la-probabile-formazione-con-la-moldova-quattro-punte-e-doppio-9-cambio-in-porta.shtml)
+- **Moldavia - Italia live: Calcio - Qualificazioni Mondiali Europa**: [Link](https://www.eurosport.it/calcio/qualificazioni-mondiali-europa/2026/live-moldavia-italia_mtc1574763/live-commentary.shtml)
+- **Moldavia-Italia, oggi azzurri in campo – Diretta**: [Link](https://www.cremaoggi.it/2025/11/13/moldavia-italia-oggi-azzurri-in-campo-diretta/)
+
+
+### serbia vs (N/A, 13/11/2025 15:27 Lima)
+
+- **England vs Serbia: Build-up as Three Lions return to World Cup qualifying action**: [Link](https://www.bbc.com/sport/football/live/c2319djp94et)
+- **Thursday International Football Cheat Sheet: Best bets for England v Serbia and more**: [Link](https://onefootball.com/de/news/thursday-international-football-cheat-sheet-best-bets-for-england-v-serbia-and-more-41945575)
+- **🚨 BREAKING: England name starting XI for Serbia qualifier**: [Link](https://ca.sports.yahoo.com/news/breaking-england-name-starting-xi-182300692.html)
+
+
+### italia (N/A, 13/11/2025 15:27 Lima)
+
+- **Rama, Fincantieri e Kayo costruiranno 7 navi in Albania**: [Link](https://www.ilnordest.it/italia-ed-esteri/rama-fincantieri-e-kayo-costruiranno-7-navi-in-albania-t6f1qxiw)
+- **Il premier albanese Edi Rama: Meloni è mia sorella. Per scelta mia, non sua | Libero Quotidiano.it**: [Link](https://www.liberoquotidiano.it/news/video-news-by-vista/44982303/il-premier-albanese-edi-rama-meloni-e-mia-sorella-per-scelta-mia-non-sua/)
+- **ON. BONELLI (AVS) * PROTOCOLLO ITALIA–ALBANIA: «IL CENTRO DI GJADER È COSTATO 74,2 MILIONI E 153 MILA EURO PER OGNI POSTO LETTO, PROGETTO INUTILE ED ILLEGITTIMO**: [Link](https://www.agenziagiornalisticaopinione.it/opinionews/on-bonelli-avs-protocollo-italia-albania-il-centro-di-gjader-e-costato-742-milioni-e-153-mila-euro-per-ogni-posto-letto-progetto-inutile-ed-illegittimo/)
+
+
+### eliminatorias copa del mundo europa (N/A, 13/11/2025 15:27 Lima)
+
+- **Eliminatorias al Mundial 2026: estas son las selecciones que se pueden clasificar este jueves**: [Link](https://cnnespanol.cnn.com/2025/11/12/deportes/eliminatorias-mundial-2026-casi-clasificados-orix)
+- **Mundial 2026: así están los bombos del sorteo al momento**: [Link](https://www.espn.com.ar/futbol/mundial/nota/_/id/15949793/mundial-2026-asi-estan-los-bombos-del-sorteo-al-momento)
+- **La recta final rumbo al Mundial 2026: se definen 14 clasificados a la Copa del Mundo y los 22 países que jugarán los Repechajes**: [Link](https://www.infobae.com/deportes/2025/11/13/la-recta-final-rumbo-al-mundial-2026-se-definen-14-clasificados-a-la-copa-del-mundo-y-los-22-paises-que-jugaran-los-repechajes/)
+
+
+### erling haaland (N/A, 13/11/2025 15:27 Lima)
+
+- **Preview:Norway vs Estonia - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/norway/world-cup-2026/preview/norway-vs-estonia-prediction-team-news-lineups_585558.html)
+- **2026 World Cup qualifying results today:**: [Link](https://www.101greatgoals.com/football/internationals/2026-world-cup-qualifying-results-norway-vs-estonia-armenia-vs-hungary-azerbaijan-vs-iceland/)
+- **Haaland scores as Norway all but seal first World Cup spot in 28 years**: [Link](https://au.sports.yahoo.com/haaland-scores-norway-seal-first-185614969.html)
+
+
+### andorra vs (N/A, 13/11/2025 15:27 Lima)
+
+- **Andorra – Albania Pronóstico y Apuestas | Clasificación Mundial 13/11/2025**: [Link](https://www.apuestas-deportivas.es/pronostico/andorra-vs-albania-pronostico-clasificacion-mundial-13-11-2025/)
+- **Andorra vs Albania: pronóstico, apuestas, cuotas para el partido 13/11/2025**: [Link](https://legalbet.es/centro-apuestas/andorra-albania-13-11-2025/)
+- **Albania puede asegurar su pase a la repesca esta noche, enfrentándose a Andorra.**: [Link](https://reporteri.net/es/Deporte/Albania-puede-asegurar-su-pase-a-la-repesca-esta-noche-contra-Andorra./)
+
+
 ### armenia - hungría (N/A, 13/11/2025 11:30 Lima)
 
 - **Armenia vs Hungría | Pronóstico y cuotas 13.11.2025**: [Link](https://www.transfermarkt.es/apuestas/pronosticos-deportivos/armenia-vs-hungria-pronostico-apuestas-13-11-2025/)
@@ -955,75 +1025,5 @@ Sin noticias relacionadas disponibles.
 - **Preview:Frankfurt vs Mainz - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/eintracht-frankfurt/preview/frankfurt-vs-mainz-prediction-team-news-lineups_585393.html)
 - **Nadiem Amiri vs. Eintracht Frankfurt – Player props & odds to score a goal on November 9**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/11/09/nadiem-amiri-soccer-player-props-11-9-2025/87179473007/)
 - **Matchday in focus: 1. FSV Mainz 05**: [Link](https://onefootball.com/it/notizie/matchday-in-focus-1-fsv-mainz-05-41926165)
-
-
-### once caldas - pasto (N/A, 09/11/2025 15:23 Lima)
-
-- **Pronóstico Once Caldas Deportivo Pasto - Liga BetPlay 09/11/25**: [Link](https://www.sportytrader.com/es/pronosticos/once-caldas-deportivo-pasto-304333/)
-- **Medidas de seguridad para el partido entre Once Calds y Deportivo Pasto**: [Link](https://caracol.com.co/2025/11/09/medidas-de-seguridad-para-el-partido-entre-once-calds-y-deportivo-pasto/)
-- **Once Caldas juega ante Deportivo Pasto: ¿despedida como local de la Liga o un paso más a las semifinales?**: [Link](https://www.lapatria.com/deportes/once-caldas-juega-ante-deportivo-pasto-despedida-como-local-de-la-liga-o-un-paso-mas-hacia)
-
-
-### copa peru (N/A, 09/11/2025 11:26 Lima)
-
-- **ASA FC vs Unión Minas EN VIVO: Sigue la final de la Zona Norte de la Copa Perú 2025**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/union-minas-vs-asa-fc-en-vivo-por-la-final-de-la-zona-norte-de-la-copa-peru-2025-transmision-resumen-y-goles-tdpe-noticia/)
-- **ASA FC vs Unión Minas en vivo por la Copa Perú 2025: Transmisión en directo del partido**: [Link](https://www.futbolperuano.com/en-vivo/copa-peru-2025-asa-fc-vs-union-minas-en-vivo-550513)
-- **ASA FC vs. Unión Minas EN VIVO vía DyJ Sports por final de Zona Norte en Copa Perú 2025**: [Link](https://depor.com/futbol-peruano/segunda-division/asa-fc-vs-union-minas-en-vivo-hoy-gratis-fpf-youtube-futbol-libre-tv-donde-ver-partido-y-transmision-en-directo-online-y-resultado-goles-y-resumen-zona-norte-copa-peru-2025-video-noticia/)
-
-
-### az - psv (N/A, 09/11/2025 11:26 Lima)
-
-- **LIVE | Nog steeds geen basisplek voor Pepi bij PSV, dat voor zware beproeving in Alkmaar staat**: [Link](https://www.ed.nl/psv/live-nog-steeds-geen-basisplek-voor-pepi-bij-psv-dat-voor-zware-beproeving-in-alkmaar-staat~a6419bfb/)
-- **🔴 AZ maakt de achterstand iets draaglijker • Grim-effect blijft uit bij Ajax**: [Link](https://www.nhnieuws.nl/nieuws/354185/az-maakt-de-achterstand-iets-draaglijker-grim-effect-blijft-uit-bij-ajax)
-- **Zien: Owusu-Oduro geeft enorme ziekenhuisbal en wordt gepasseerd door Mauro Júnior**: [Link](https://www.voetbalprimeur.nl/videos/1710361/zien-owusu-oduro-geeft-enorme-ziekenhuisbal-en-wordt-gepasseerd-door-mauro-j-nior.html)
-
-
-### real madrid versus (N/A, 09/11/2025 11:26 Lima)
-
-- **Rayo Vallecano v Real Madrid: Kylian Mbappe and Jude Bellingham start**: [Link](https://www.bbc.com/sport/football/live/c0l7xx1kjwzt)
-- **CONFIRMED lineups: Rayo Vallecano vs Real Madrid, 2025 La Liga**: [Link](https://www.managingmadrid.com/100437/rayo-vallecano-vs-real-madrid-2025-la-liga-live-online-stream)
-- **Alonso: Trent 'ready' for Real Madrid start vs. Rayo**: [Link](https://www.espn.com/soccer/story/_/id/46891275/trent-alexander-arnold-ready-real-madrid-start-xabi-alonso)
-
-
-### nuevas medidas estado de emergencia (N/A, 09/11/2025 11:26 Lima)
-
-- **Presidente: medidas aprobadas dan más herramientas para ser firmes contra la delincuencia**: [Link](https://elperuano.pe/noticia/282618-presidente-medidas-aprobadas-dan-mas-herramientas-para-ser-firmes-contra-la-delincuencia)
-- **Gobierno dicta medidas complementarias al estado de emergencia en Lima y Callao [Decreto Supremo 127-2025-PCM]**: [Link](https://lpderecho.pe/dictan-medidas-complementarias-estado-emergencia-lima-callao-decreto-supremo-127-2025-pcm/)
-- **Presidente José Jerí lidera operativo policial en Lima y Santa Anita tras reforzar estado de emergencia**: [Link](https://elcomercio.pe/lima/presidente-jose-jeri-lidera-operativo-policial-en-lima-y-santa-anita-tras-reforzar-estado-de-emergencia-ultimas-noticia/)
-
-
-### manchester city - liverpool (N/A, 09/11/2025 11:26 Lima)
-
-- **Preview:Man City vs Liverpool - prediction, team news**: [Link](https://www.sportsmole.co.uk/football/man-city/preview/man-city-vs-liverpool-prediction-team-news-lineups_585354.html)
-- **How Manchester City line up in defence is worth keeping an eye on ahead of today’s match against Liverpool**: [Link](https://esteemedkompany.com/2025/11/09/how-manchester-city-line-up-in-defence-is-worth-keeping-an-eye-on-ahead-of-todays-match-against-liverpool/)
-- **Alan Shearer predicts a draw for Man City vs Liverpool showdown: 'These two have set the pace for so long'**: [Link](https://tribuna.com/en/news/2025-11-09-alan-shearer-predicts-a-draw-for-man-city-vs-liverpool-showdown-these-two-have-set-the-pa/)
-
-
-### atp finals 2025 (N/A, 09/11/2025 11:26 Lima)
-
-- **Alcaraz & Sinner bring rivalry to a boil at Nitto ATP Finals; Zverev chases hat-trick**: [Link](https://www.atptour.com/en/news/nitto-atp-finals-2025-scouting-report)
-- **ATP Finals 2025: Group and Knockout Stage Regulations, Ranking Points, and Everything To Know About How the Year-End Tournament Works**: [Link](https://www.profootballnetwork.com/tennis/atp-finals-2025-group-knockout-stage-regulations-ranking-points-more/)
-- **Where to Watch the ATP Finals: Live Stream the 2025 Tennis Tournament Anywhere**: [Link](https://www.businessinsider.com/guides/streaming/where-to-watch-atp-finals-live-streams-2025)
-
-
-### galatasaray vs (N/A, 09/11/2025 11:26 Lima)
-
-- **Preview:Kocaelispor vs Galatasaray - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/kocaelispor/preview/kocaelispor-vs-galatasaray-prediction-team-news-lineups_585314.html)
-- **Galatasaray aims to maintain lead in Turkish Super Lig with clash against Kocaelispor**: [Link](https://news.ssbcrack.com/galatasaray-aims-to-maintain-lead-in-turkish-super-lig-with-clash-against-kocaelispor/)
-- **Kocaelispor vs Galatasaray Prediction and Betting Tips | November 9th 2025**: [Link](https://www.sportskeeda.com/football/kocaelispor-vs-galatasaray-prediction-betting-tips-november-9th-2025)
-
-
-### rayo vallecano - real madrid (N/A, 09/11/2025 11:26 Lima)
-
-- **Real Madrid-Rayo EN VIVO: cuánto va el partido por LaLiga**: [Link](https://elcomercio.pe/deporte-total/espana/real-madrid-vs-rayo-en-vivo-gratis-hoy-via-futbol-libre-tv-dazn-directv-sky-sports-horarios-canales-y-donde-ver-partido-por-laliga-video-noticia/)
-- **LaLiga EA Sports: Real Madrid quiere mantenerse en la punta del campeonato**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-real-madrid-quiere-mantenerse-en-la-punta-del-campeonato-noticia-1662979)
-- **¿A qué hora juega Real Madrid vs Rayo Vallecano y dónde ver partido por LaLiga?**: [Link](https://libero.pe/futbol-internacional/liga-espanola/2025/11/08/hora-juega-real-madrid-vs-rayo-vallecano-canal-transmite-partido-donde-ver-en-vivo-laliga-395808)
-
-
-### barcelona vs celta de vigo (N/A, 09/11/2025 11:26 Lima)
-
-- **El posible once del Barça ante el Celta, con un cambio obligado y una posible novedad**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20251109/1002566095/posible-once-barca-celta-cambio-obligado-posible-novedad.html)
-- **Alineación posible del Barcelona hoy ante el Celta en LaLiga: la hora de Lewandowski**: [Link](https://as.com/futbol/posible-alineacion-del-barca-ante-el-celta-la-hora-de-lewandowski-f202511-n/)
-- **◉ A qué hora juega FC Barcelona vs. Celta de Vigo EN VIVO por LaLiga EA Sports 2025 en USA, México y España**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/a-que-hora-juega-fc-barcelona-vs-celta-de-vigo-en-vivo-por-laliga-ea-sports-2025-en-usa-mexico-y-espana-nnda-nnse-noticia/)
 
 
