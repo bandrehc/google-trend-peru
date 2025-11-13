@@ -1,3 +1,38 @@
+### solicitud de retiro de afp (N/A, 13/11/2025 07:53 Lima)
+
+- **Cronograma de retiro de AFP: Cuándo podrás hacer la solicitud si se te pasó la fecha**: [Link](https://www.infobae.com/peru/2025/11/11/cronograma-de-retiro-afp-cuando-podras-hacer-la-solicitud-si-se-te-paso-la-fecha/)
+- **Retiro-AFP según cronograma 2025: qué día solicitar el desembolso si tu DNI termina en 7 y 8**: [Link](https://elcomercio.pe/respuestas/tramites/revisa-el-cronograma-de-retiro-afp-2025-en-que-fechas-solicitar-si-mi-dni-termina-en-7-y-8-tdpe-noticia/)
+- **Evita errores a la hora del retiro de tu AFP: cómo identificar el último dígito del DNI y no confundirlo con el verificador**: [Link](https://peru21.pe/economia/retiro-afp-2025-como-identificar-el-ultimo-digito-del-dni-y-no-confundirlo-con-el-verificador/)
+
+
+### dolar peru (N/A, 13/11/2025 07:53 Lima)
+
+- **Precio del dólar subió: Así cerró el tipo de cambio hoy 12 de noviembre en Perú**: [Link](https://www.infobae.com/peru/2025/11/12/peru-cotizacion-de-apertura-del-dolar-hoy-12-de-noviembre-de-usd-a-pen/)
+- **Precio del dólar en Perú del martes 11 de noviembre: cuál fue el cierre del tipo de cambio**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-2025-cuanto-esta-el-dolar-este-martes-11-de-noviembre-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
+- **El dólar vuelve a retroceder y cierra en S/3,366 en el mercado peruano**: [Link](https://caretas.pe/economia/el-dolar-vuelve-a-retroceder-y-cierra-en-s-3366-en-el-mercado-peruano/)
+
+
+### temblor hoy (N/A, 13/11/2025 07:53 Lima)
+
+- **Cinco sismos remecen el sur y centro del Perú en menos de 24 horas**: [Link](https://caretas.pe/nacional/cinco-sismos-remecen-el-sur-y-centro-del-peru-en-menos-de-24-horas/)
+- **Sismo de magnitus 4.0 sacude Ica esta mañana**: [Link](https://peru21.pe/peru/sismo-de-magnitus-40-sacude-ica-esta-manana/)
+- **Sismo de magnitud 3.6 remeció Lima y Callao esta mañana**: [Link](https://rpp.pe/peru/callao/sismo-de-magnitud-36-remecio-lima-y-callao-esta-manana-noticia-1663321)
+
+
+### x (N/A, 13/11/2025 07:53 Lima)
+
+- **Spain fines Musk's X $5.8 million in cryptoasset advertising case**: [Link](https://www.reuters.com/legal/government/spain-fines-musks-x-58-million-cryptoasset-advertising-case-2025-11-13/)
+- **X Fined in Spain: CNMV Fine €5M Over Quantum AI Crypto Ads**: [Link](https://en.cryptonomist.ch/2025/11/13/x-fined-spain-crypto-ads/)
+- **X Fined 5 Million Euros in Spain Over Cryptocurrency Ads**: [Link](https://english.aawsat.com/technology/5208320-x-fined-5-million-euros-spain-over-cryptocurrency-ads)
+
+
+### fonavi (N/A, 13/11/2025 07:53 Lima)
+
+- **FONAVI 2025 vía Banco de la Nación: quiénes cobran los aportes antes de fin de año**: [Link](https://elcomercio.pe/respuestas/tramites/quienes-cobraran-la-devolucion-del-fonavi-antes-que-termine-el-2025-via-banco-de-la-nacion-tdpe-noticia/)
+- **Fonavi: Advierten que devolución total de aportes tomaría 9 años, dado presupuesto insuficiente**: [Link](https://www.infobae.com/peru/2025/11/12/fonavi-advierten-que-devolucion-total-de-aportes-tomaria-9-anos-dado-presupuesto-insuficiente/)
+- **Fonavi aprobó el Reintegro 4: ¿Quiénes pueden cobrar este noviembre de 2025?**: [Link](https://libero.pe/tiempoextra/2025/11/11/fonavi-aprobo-reintegro-4-quienes-pueden-cobrar-noviembre-de-2025-828179)
+
+
 ### dolar a soles (N/A, 13/11/2025 03:32 Lima)
 
 - **Precio del dólar en Perú: a cuánto cerró el tipo de cambio del miércoles 12 de noviembre**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-a-cuanto-esta-el-dolar-y-tipo-de-cambio-este-miercoles-12-de-noviembre-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
@@ -990,40 +1025,5 @@ Sin noticias relacionadas disponibles.
 - **Live Eredivisie | Ajax met Grim begonnen aan uitduel met FC Utrecht**: [Link](https://www.nu.nl/voetbal/6375344/live-eredivisie-ajax-met-grim-begonnen-aan-uitduel-met-fc-utrecht.html)
 - **Haller maakt eerste treffer sinds april • Godts maakt aansluitingstreffer in Utrecht**: [Link](https://nos.nl/liveblog/2589767-haller-maakt-eerste-treffer-sinds-april-godts-maakt-aansluitingstreffer-in-utrecht)
 - **🔴 Ajax direct op achterstand na afgekeurde goal • AZ later tegen PSV**: [Link](https://www.nhnieuws.nl/nieuws/354185/ajax-direct-op-achterstand-na-afgekeurde-goal-az-later-tegen-psv)
-
-
-### terremoto sismo temblor hoy epicentro (N/A, 09/11/2025 07:44 Lima)
-
-- **IGP Historial y registro de Temblores en Lima Perú: Sismos magnitud y epicentro al cierre**: [Link](https://rpp.pe/lima/desastres-naturales/temblor-en-peru-hoy-6-de-noviembre-magnitud-y-epicentro-del-sismo-segun-igp-live-3033)
-- **Sismo en Ica, Tacna y más reportes del IGP: Epicentro y mangitud del temblor en Perú hoy, 8 de noviembre**: [Link](https://elcomercio.pe/peru/epicentro-y-magnitud-del-ultimo-temblor-en-peru-reporte-de-sismos-segun-igp-tdpe-noticia/)
-- **Temblor de magnitud 3,5 se sintió en Lima hoy, según IGP**: [Link](https://larepublica.pe/sociedad/2025/11/09/temblor-de-magnitud-35-se-sintio-en-lima-hoy-segun-igp-mdga-547848)
-
-
-### dolar (N/A, 09/11/2025 07:44 Lima)
-
-- **Precio del dólar en Perú, sábado 8 de noviembre: a cuánto cerró el tipo de cambio hoy**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-2025-a-cuanto-esta-el-dolar-este-sabado-8-de-noviembre-y-tipo-de-cambio-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
-- **Precio del dólar sube ligeramente: Así cerró el tipo de cambio hoy 6 de noviembre en Perú**: [Link](https://www.infobae.com/peru/2025/11/05/dolar-cotizacion-de-apertura-hoy-5-de-noviembre-en-peru/)
-- **Dólar en Perú: a cuánto se cotizó el cierre de hoy, 7 de noviembre de 2025**: [Link](https://latinanoticias.pe/te-ayudo/como-cerro-el-dolar-hoy-en-peru-a-cuanto-se-cotizo-el-cierre-del-dolar-para-este-7-de-noviembre-lima-sunat-sbs-bcrp-adp-noticia_20251107/)
-
-
-### ibai (N/A, 09/11/2025 03:27 Lima)
-
-- **Ibai, sobre la mejor hamburguesa del mundo que se cocina en España: «No tengo palabras»**: [Link](https://www.abc.es/espana/comunidad-valenciana/ibai-sobre-mejor-hamburguesa-mundo-cocina-espana-20251106085905-nt.html)
-- **El futuro de Hundred Burgers en manos de Buenavista: ¿alta gastronomía o cadena de hamburguesas?**: [Link](https://www.economiadigital.es/sociedad/futuro-hundred-burgers-buenavista.html)
-- **⁠Ibai prueba la mejor hamburguesa del mundo, que está en España: “Le doy un 10 de 10, no tengo palabras”**: [Link](https://www.larazon.es/videojuegos/ibai-prueba-mejor-hamburguesa-mundo-que-esta-espana-doy-10-10-tengo-palabras_20251106690c7fb55d5dad37ab81fae2.html)
-
-
-### lol (N/A, 09/11/2025 03:27 Lima)
-
-- **League of Legends Worlds 2026 to be hosted in the United States across two cities**: [Link](https://escharts.com/news/league-legends-world-championship-will-return-united-states-2026)
-- **Olympic Sprinter Noah Lyles Can’t Contain Excitement As League of Legends World Championship Heads to US Cities**: [Link](https://www.profootballnetwork.com/olympics/noah-lyles-2026-league-legends-worlds-host-cities/)
-- **League of Legends 2026 World Championship Locations Announced**: [Link](https://www.yahoo.com/news/articles/league-legends-2026-world-championship-090130311.html)
-
-
-### twitch (N/A, 09/11/2025 03:27 Lima)
-
-- **Emiru attack update: Twitch to support nonprofits working to prevent sexual violence, ‘We failed to keep Emiru safe…’ | Hindustan Times**: [Link](https://www.hindustantimes.com/world-news/us-news/emiru-attack-update-twitch-to-support-nonprofits-working-to-prevent-sexual-violence-we-failed-to-keep-emiru-safe-101762652598540.html)
-- **Twitch’s apology for Emiru assault sparks backlash, SmugAlana and fans accuse platform of lying and ignor**: [Link](https://timesofindia.indiatimes.com/world/us-streamers/twitchs-apology-for-emiru-assault-sparks-backlash-smugalana-and-fans-accuse-platform-of-lying-and-ignoring-sexual-assault/articleshow/125193325.cms)
-- **Twitch Issues Another Statement on Emiru TwitchCon Incident**: [Link](https://opencritic.com/news/23396/twitch-issues-another-statement-on-emiru-twitchcon-incident)
 
 
