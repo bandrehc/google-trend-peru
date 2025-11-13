@@ -1,3 +1,66 @@
+### armenia - hungría (N/A, 13/11/2025 11:30 Lima)
+
+- **Armenia vs Hungría | Pronóstico y cuotas 13.11.2025**: [Link](https://www.transfermarkt.es/apuestas/pronosticos-deportivos/armenia-vs-hungria-pronostico-apuestas-13-11-2025/)
+- **Armenia vs Hungria EN VIVO, minuto a minuto en Eliminatorias al Mundial 2026**: [Link](https://www.vavel.com/mx/futbol-internacional/2025/11/13/1241078-armenia-vs-hungria-en-vivo-eliminatorias-2026.html)
+- **Armenia vs Hungría por la fase de grupos de Eliminatorias UEFA EN VIVO. Seguilo minuto a minuto por la web de TN.**: [Link](https://tn.com.ar/deportes/futbol/2025/11/13/armenia-vs-hungria-en-vivo-por-la-fase-de-grupos-de-las-eliminatorias-uefa-hora-donde-ver-y-formaciones/)
+
+
+### portugal (N/A, 13/11/2025 11:30 Lima)
+
+- **Escalação de Portugal hoje: time titular e desfalques para jogo com Irlanda (13/11)**: [Link](https://www.sportingnews.com/br/futebol/noticias/escalacao-portugal-hoje-time-titular-desfalques-irlanda-13-11/83e581e2e0ffa1834a875415)
+- **"A good boy". Frase "bizarra" de Cristiano Ronaldo ganha destaque lá fora**: [Link](https://sapo.pt/artigo/a-good-boy-frase-bizarra-de-cristiano-ronaldo-ganha-destaque-la-fora-6915e380a81b92c610d3beed)
+- **Mundial 2026: Martínez e Proença reunidos com adeptos em Dublin**: [Link](https://cnnportugal.iol.pt/fotos/mundial-2026-martinez-e-proenca-reunidos-com-adeptos-em-dublin/6915bfb2d34e3caad84b3ce9)
+
+
+### armenia vs (N/A, 13/11/2025 11:30 Lima)
+
+- **Preview:Armenia vs Hungary - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/armenia/preview/armenia-vs-hungary-prediction-team-news-lineups_585533.html)
+- **In Yerevan, fans warmly welcomed Dominik Szoboszlai and the Hungarian national team**: [Link](https://sportaran.com/en/post/v-erevane-fanaty-teplo-vstrechali-dominika-soboslavya-i-sbornuyu-vengrii/)
+- **We have to play more disciplined, do our job, dedicate ourselves without fail and then we can achieve a positive result. Karen Muradyan**: [Link](https://tert.am/en/news/2025/11/12/karen-muradyan/4249773)
+
+
+### the killers peru (N/A, 13/11/2025 11:30 Lima)
+
+- **The Killers en Lima: preventa, precios y cómo comprar entradas para su concierto en Costa 21**: [Link](https://rpp.pe/musica/conciertos/the-killers-en-lima-2026-a-que-hora-inicia-preventa-y-como-comprar-entradas-en-teleticket-para-concierto-en-costa-21-noticia-1663516)
+- **The Killers vuelve a Lima: fecha, lugar y entradas para el concierto de rock**: [Link](https://www.infobae.com/peru/2025/11/10/the-killers-vuelve-a-lima-fecha-lugar-y-entradas-para-el-concierto-de-rock/)
+- **The Killers regresa a Lima con todos sus éxitos el 2 de marzo de 2026**: [Link](https://peru21.pe/espectaculos/killers-regresa-lima-con-todos-sus-exitos-el-2-de-marzo-de-2026/)
+
+
+### taylor fritz (N/A, 13/11/2025 11:30 Lima)
+
+- **ATP Finals: Alex de Minaur recovers from 'a dark place' to keep bid alive and send Carlos Alcaraz through**: [Link](https://www.bbc.com/sport/tennis/articles/cev1mn4v7v9o)
+- **De Miñaur didn't know that he depends on Alcaraz to qualify: "Is this true?"**: [Link](https://www.puntodebreak.com/en/2025/11/13/minaur-didnt-know-that-he-depends-on-alcaraz-to-qualify-is-this-true)
+- **Fans Rip Tennis Star Taylor Fritz After ‘Embarrassing’ Collapse**: [Link](https://thespun.com/tennis/fans-rip-tennis-star-taylor-fritz-after-embarrassing-collapse)
+
+
+### retiro afp 2025 (N/A, 13/11/2025 11:30 Lima)
+
+- **Cronograma de retiro de AFP: Cuándo podrás hacer la solicitud si se te pasó la fecha**: [Link](https://www.infobae.com/peru/2025/11/11/cronograma-de-retiro-afp-cuando-podras-hacer-la-solicitud-si-se-te-paso-la-fecha/)
+- **Retiro-AFP según cronograma 2025: qué día solicitar el desembolso si tu DNI termina en 7 y 8**: [Link](https://elcomercio.pe/respuestas/tramites/revisa-el-cronograma-de-retiro-afp-2025-en-que-fechas-solicitar-si-mi-dni-termina-en-7-y-8-tdpe-noticia/)
+- **Evita errores a la hora del retiro de tu AFP: cómo identificar el último dígito del DNI y no confundirlo con el verificador**: [Link](https://peru21.pe/economia/retiro-afp-2025-como-identificar-el-ultimo-digito-del-dni-y-no-confundirlo-con-el-verificador/)
+
+
+### eliminatorias europa (N/A, 13/11/2025 11:30 Lima)
+
+- **Programación de las Eliminatorias Europeas 2026: horarios y canales TV en Perú de la jornada 9**: [Link](https://www.infobae.com/peru/deportes/2025/11/12/programacion-de-las-eliminatorias-europeas-2026-horarios-y-canales-tv-en-peru-de-la-jornada-9/)
+- **Copa Mundial de la FIFA 2026: sorteo de clasificación el 20 de noviembre en Zúrich**: [Link](https://www.ucvradio.pe/noticias-del-mundo/copa-mundial-de-la-fifa-2026-sorteo-de-clasificacion-el-20-de-noviembre-en-zurich/42989/)
+- **Así se juega el repechaje de las Eliminatorias UEFA por los últimos cuatro cupos al Mundial 2026**: [Link](https://www.espn.com.pe/futbol/mundial/nota/_/id/15926977/eliminatorias-uefa-repechaje-asi-se-juega-ultimos-cuatro-cupos-clasificados-mundial-2026)
+
+
+### nigeria vs (N/A, 13/11/2025 11:30 Lima)
+
+- **Gabon coach fires warning shot to Nigeria ahead of crunch tie**: [Link](https://foot-africa.com/en/news/gabon-coach-fires-warning-shot-to-nigeria-ahead-of-crunch-tie-959249/)
+- **Africa’s history of World Cup play-off contests**: [Link](https://www.cafonline.com/news/africa-s-history-of-world-cup-play-off-contests/)
+- **2026 World Cup: Africa's also-rans clash in play-offs for last chance gala**: [Link](https://www.inkl.com/news/2026-world-cup-africa-s-also-rans-clash-in-play-offs-for-last-chance-gala)
+
+
+### paro el 14 de noviembre (N/A, 13/11/2025 11:30 Lima)
+
+- **¿Mañana 14 de noviembre hay paro de transportistas? Gremios señalan si apoyarán protesta de la Generación Z**: [Link](https://www.infobae.com/peru/2025/11/12/este-14-de-noviembre-hay-paro-de-transportistas-gremios-responden-si-apoyaran-protesta-de-la-generacion-z/)
+- **Policía anunció medidas de seguridad ante nueva marcha de la Generación Z contra el Gobierno este viernes [VIDEO]**: [Link](https://rpp.pe/lima/seguridad/policia-anuncio-medidas-de-seguridad-ante-nueva-marcha-de-la-generacion-z-contra-el-gobierno-video-noticia-1663539)
+- **Familiares de fallecidos en protestas se sumarán al paro nacional del 14 de noviembre: "Estamos cansados"**: [Link](https://www.exitosanoticias.pe/actualidad/familiares-fallecidos-protestas-sumaran-paro-nacional-14-noviembre-estamos-cansados-n162643)
+
+
 ### solicitud de retiro de afp (N/A, 13/11/2025 07:53 Lima)
 
 - **Cronograma de retiro de AFP: Cuándo podrás hacer la solicitud si se te pasó la fecha**: [Link](https://www.infobae.com/peru/2025/11/11/cronograma-de-retiro-afp-cuando-podras-hacer-la-solicitud-si-se-te-paso-la-fecha/)
@@ -962,68 +1025,5 @@ Sin noticias relacionadas disponibles.
 - **El posible once del Barça ante el Celta, con un cambio obligado y una posible novedad**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20251109/1002566095/posible-once-barca-celta-cambio-obligado-posible-novedad.html)
 - **Alineación posible del Barcelona hoy ante el Celta en LaLiga: la hora de Lewandowski**: [Link](https://as.com/futbol/posible-alineacion-del-barca-ante-el-celta-la-hora-de-lewandowski-f202511-n/)
 - **◉ A qué hora juega FC Barcelona vs. Celta de Vigo EN VIVO por LaLiga EA Sports 2025 en USA, México y España**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/a-que-hora-juega-fc-barcelona-vs-celta-de-vigo-en-vivo-por-laliga-ea-sports-2025-en-usa-mexico-y-espana-nnda-nnse-noticia/)
-
-
-### bolonia - napoli (N/A, 09/11/2025 11:26 Lima)
-
-- **Preview:Bologna vs Napoli - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/bologna/preview/bologna-vs-napoli-prediction-team-news-lineups_585312.html)
-- **Andre Zambo Anguissa vs. Bologna – Player props & odds to score a goal on November 9**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/11/08/andre-zambo-anguissa-soccer-player-props-11-9-2025/87174316007/)
-- **Serie A | Bologna 2-0 Napoli: Conte crumbles at the Dall’Ara**: [Link](https://onefootball.com/id/berita/serie-a-bologna-2-0-napoli-conte-crumbles-at-the-dallara-41928191)
-
-
-### vejle boldklub - københavn (N/A, 09/11/2025 07:44 Lima)
-
-- **Truppen mod Vejle Boldklub**: [Link](https://www.fck.dk/nyhed/truppen-mod-vejle-boldklub-4)
-- **VB kan godt tage point mod FCK - ifølge Kielstrup kræver det én ting**: [Link](https://fyens.dk/sport/vb-kan-godt-tage-point-mod-fck-ifoelge-kielstrup-kraever-det-en-ting)
-- **Skifter fire mand fra London-massakren**: [Link](https://www.tipsbladet.dk/nyhed/superliga/skifter-fire-mand-fra-london-massakren)
-
-
-### corte de luz arequipa (N/A, 09/11/2025 07:44 Lima)
-
-- **Seal anuncia cortes de luz en Arequipa hasta el 12 de noviembre: revise horarios y distritos afectados**: [Link](https://www.expreso.com.pe/actualidad/seal-anuncia-cortes-de-luz-en-arequipa-hasta-el-12-de-noviembre-revise-horarios-y-distritos-afectados-cayma-noticia/1237953/)
-- **Sedapar programa corte de agua en Arequipa: conoce los distritos afectados del 11 de noviembre**: [Link](https://www.infobae.com/peru/2025/11/08/sedapar-programa-corte-de-agua-en-arequipa-conoce-los-distritos-afectados-del-11-de-noviembre/)
-- **Cortes de agua programados en Arequipa hasta el 7 de noviembre: conoce aquí las zonas sin servicio de acuerdo al cronograma de Sedapar**: [Link](https://elbuho.pe/2025/11/cortes-de-agua-programados-en-arequipa-hasta-el-7-de-noviembre-conoce-aqui-las-zonas-sin-servicio-de-acuerdo-al-cronograma-de-sedapar/)
-
-
-### athletic - real oviedo (N/A, 09/11/2025 07:44 Lima)
-
-- **LaLiga EA Sports: Athletic Bilbao recibirá a Real Oviedo por la fecha 12**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-athletic-bilbao-recibira-a-real-oviedo-por-la-fecha-12-noticia-1662970)
-- **Un partido en el que fallar no es una opción**: [Link](https://www.elcorreo.com/athletic/valverde-vuelve-llamar-selton-hierro-queremos-partido-20251108141158-nt.html)
-- **El elogio de Ernesto Valverde antes de enfrentar a Federico Viñas**: [Link](https://www.espn.com.ec/futbol/espana/nota/_/id/15932136/elogio-ernesto-valverde-antes-enfrentar-federico-vinas-real-oviedo-athletic-bilbao)
-
-
-### novak djokovic (N/A, 09/11/2025 07:44 Lima)
-
-- **Musetti to compete in Nitto ATP Finals following Djokovic's withdrawal**: [Link](https://www.atptour.com/en/news/musetti-djokovic-nitto-atp-finals-2025-news)
-- **Novak Djokovic reveals painkiller battle after conquering Athens**: [Link](https://www.tennisworldusa.org/tennis/news/Novak_Djokovic/161197/novak-djokovic-reveals-painkiller-battle-after-conquering-athens/)
-- **Djokovic pulls out of ATP Finals with shoulder injury after winning 101st career title**: [Link](https://www.lemonde.fr/en/sports/article/2025/11/08/djokovic-pulls-out-of-atp-finals-with-shoulder-injury-after-winning-101st-career-title_6747266_9.html)
-
-
-### dni electronico (N/A, 09/11/2025 07:44 Lima)
-
-- **DNI electrónico gratis para este 12 de noviembre: ¿Cuáles son los requisitos para ser beneficiario?**: [Link](https://www.infobae.com/peru/2025/11/07/dni-electronico-gratis-para-este-12-de-noviembre-cuales-son-los-requisitos-para-ser-beneficiario/)
-- **RENIEC otorga DNI gratuito durante 2025 para todos los que cumplan este requisito**: [Link](https://peru21.pe/peru/reniec-otorga-dni-gratuito-durante-2025-para-todos-los-que-cumplan-este-requisito/)
-- **Campaña de DNIe gratis este 12 de noviembre: beneficiarios, ubicación y requisitos**: [Link](https://libero.pe/tiempoextra/2025/11/08/campana-de-dnie-gratis-12-de-noviembre-beneficiarios-ubicacion-requisitos-281952)
-
-
-### atalanta vs (N/A, 09/11/2025 07:44 Lima)
-
-- **Atalanta recibe a Sassuolo en un duelo en la mitad de la tabla de la Serie A**: [Link](https://www.espn.com.pe/futbol/italia/nota/_/id/15925323/atalanta-vs-sassuolo-por-la-serie-a-equipo-fecha-hora-y-tv-en-vivo)
-- **Serie A: Sassuolo visita a Atalanta por la fecha 11**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-sassuolo-visita-a-atalanta-por-la-fecha-11-noticia-1662969)
-- **Serie A: Atalanta vs. Sassuolo – Probable line-ups and where to watch on TV**: [Link](https://football-italia.net/serie-a-atalanta-vs-sassuolo-probable-line-ups/)
-
-
-### atalanta - sassuolo (N/A, 09/11/2025 07:44 Lima)
-
-- **LIVE Atalanta-Sassuolo 0-2: Pinamonti raddoppia subito!**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Atalanta/09-11-2025/atalanta-sassuolo-live-risultato-e-gol-in-diretta-serie-a.shtml)
-- **Calcio Live News: alle 12:30 in campo Atalanta-Sassuolo, più tardi tocca a Napoli, Roma e Inter**: [Link](https://www.diretta.it/news/calcio-live-news-alle-12-30-in-campo-atalanta-sassuolo-piu-tardi-tocca-a-napoli-roma-e-inter/nTrccDc3/)
-- **Le formazioni di Atalanta-Sassuolo | Serie A Enilive 2025/26**: [Link](https://www.atalanta.it/news/le-formazioni-di-atalanta-sassuolo-serie-a-enilive-2025-26)
-
-
-### utrecht - ajax (N/A, 09/11/2025 07:44 Lima)
-
-- **Live Eredivisie | Ajax met Grim begonnen aan uitduel met FC Utrecht**: [Link](https://www.nu.nl/voetbal/6375344/live-eredivisie-ajax-met-grim-begonnen-aan-uitduel-met-fc-utrecht.html)
-- **Haller maakt eerste treffer sinds april • Godts maakt aansluitingstreffer in Utrecht**: [Link](https://nos.nl/liveblog/2589767-haller-maakt-eerste-treffer-sinds-april-godts-maakt-aansluitingstreffer-in-utrecht)
-- **🔴 Ajax direct op achterstand na afgekeurde goal • AZ later tegen PSV**: [Link](https://www.nhnieuws.nl/nieuws/354185/ajax-direct-op-achterstand-na-afgekeurde-goal-az-later-tegen-psv)
 
 
