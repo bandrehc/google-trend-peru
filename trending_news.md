@@ -1,3 +1,37 @@
+### dolar a soles (N/A, 13/11/2025 03:32 Lima)
+
+- **Precio del dólar en Perú: a cuánto cerró el tipo de cambio del miércoles 12 de noviembre**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-a-cuanto-esta-el-dolar-y-tipo-de-cambio-este-miercoles-12-de-noviembre-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
+- **El dólar vuelve a retroceder y cierra en S/3,366 en el mercado peruano**: [Link](https://caretas.pe/economia/el-dolar-vuelve-a-retroceder-y-cierra-en-s-3366-en-el-mercado-peruano/)
+- **Tres formas de aprovechar la cotización del dólar a la baja en las finanzas personales**: [Link](https://gestion.pe/tu-dinero/finanzas-personales/tres-formas-de-aprovechar-la-cotizacion-del-dolar-a-la-baja-en-las-finanzas-personales-noticia/)
+
+
+### italia vs (N/A, 13/11/2025 03:32 Lima)
+
+- **Italia visita al colista Moldavia en busca de la cima de su grupo en las Eliminatorias**: [Link](https://www.espn.com.pe/futbol/mundial/nota/_/id/15942460/moldavia-vs-italia-eliminatorias-uefa-equipo-fecha-hora-tv-en-vivo)
+- **Pronóstico Moldavia - Italia. Mundial | 13/11/2025**: [Link](https://gainblers.com/pe/pronosticos/futbol/internacional/mundial/pronostico-moldavia-italia-13-11-2025/)
+
+
+### shakira (N/A, 13/11/2025 03:32 Lima)
+
+- **Shakira estrena el videoclip oficial de ‘Zoo’, canción para la película ‘Zootopia 2’**: [Link](https://elcomercio.pe/luces/musica/shakira-estrena-el-videoclip-oficial-de-zoo-cancion-para-la-pelicula-zootopia-2-ultimas-noticia/)
+- **Shakira ya no es 'loba', ahora es 'gacela', ¿qué hay detrás de este cambio?**: [Link](https://www.elcomercio.com/tendencias/cine/shakira-gazelle-zootopia-peliculas/)
+- **Shakira se pone los cuernos para el estreno de ZOO, el tema oficial de Zootopia 2**: [Link](https://www.ecuavisa.com/entretenimiento/musica/shakira-se-pone-cuernos-el-estreno-zoo-tema-oficial-zootopia-2-OE10413481)
+
+
+### clippers - nuggets (N/A, 13/11/2025 03:32 Lima)
+
+- **Nikola Jokic erupts for 55 points, Luka Doncic stops at 19**: [Link](https://www.eurohoops.net/en/nba-news/1893800/nikola-jokic-scores-55-points-nuggets-beat-clippers-nba/)
+- **Nuggets Triumph Over Clippers: Latest Game Updates & Highlights**: [Link](https://news.jobaaj.com/news-updates/sports/nuggets-triumph-over-clippers-latest-game-updates-highlights)
+- **Game Recap: Nuggets 130, Clippers 116**: [Link](https://www.nba.com/watch/video/game-recap-nuggets-130-clippers-116)
+
+
+### andorra vs albania (N/A, 13/11/2025 03:32 Lima)
+
+- **The "Reds" arrive in Andorra, ready for the important match!**: [Link](https://indeksonline.net/en/The-Rossoneri-arrive-in-Andorra-ready-for-the-important-match/)
+- **"Serbia will beat Albania, the chances are", Pavlović: We wouldn't be here if we didn't believe we could beat England**: [Link](https://pamfleti.net/english/sport/serbia-do-ta-kaloje-shqiperine-shanset-jane-pavlovic-nuk-do-te-ishim-ketu--i307068)
+- **Gjimshiti, "Our dream is the World Cup"**: [Link](https://www.gazetaexpress.com/en/Our-dream-is-always-the-world./)
+
+
 ### beto cuevas (N/A, 12/11/2025 23:29 Lima)
 
 - **Beto Cuevas, ex vocalista de La Ley dará concierto en PALCCO**: [Link](https://oem.com.mx/eloccidental/gossip/beto-cuevas-ex-vocalista-de-la-ley-dara-concierto-en-palcco-26766105)
@@ -991,40 +1025,5 @@ Sin noticias relacionadas disponibles.
 - **Emiru attack update: Twitch to support nonprofits working to prevent sexual violence, ‘We failed to keep Emiru safe…’ | Hindustan Times**: [Link](https://www.hindustantimes.com/world-news/us-news/emiru-attack-update-twitch-to-support-nonprofits-working-to-prevent-sexual-violence-we-failed-to-keep-emiru-safe-101762652598540.html)
 - **Twitch’s apology for Emiru assault sparks backlash, SmugAlana and fans accuse platform of lying and ignor**: [Link](https://timesofindia.indiatimes.com/world/us-streamers/twitchs-apology-for-emiru-assault-sparks-backlash-smugalana-and-fans-accuse-platform-of-lying-and-ignoring-sexual-assault/articleshow/125193325.cms)
 - **Twitch Issues Another Statement on Emiru TwitchCon Incident**: [Link](https://opencritic.com/news/23396/twitch-issues-another-statement-on-emiru-twitchcon-incident)
-
-
-### t1 vs kt (N/A, 09/11/2025 03:27 Lima)
-
-- **As League of Legends esports celebrates 15 years, its GOAT seeks another title - The Athletic**: [Link](https://www.nytimes.com/athletic/6785538/2025/11/07/league-of-legends-faker-15-years-china/)
-- **Maps, first blood betting picks for T1 vs KT at LoL Worlds 2025**: [Link](https://win.gg/maps-first-blood-betting-picks-t1-kt/)
-- **LoL - Worlds 2025: Bdd vs Faker, Two emperors for one trophy**: [Link](https://www.sheepesports.com/articles/lol-worlds-2025-bdd-vs-faker-two-emperors-for-one-trophy/en)
-
-
-### guillermo del toro (N/A, 09/11/2025 03:27 Lima)
-
-- **El ‘Frankenstein’ de Guillermo del Toro nos pide reconsiderar al monstruo**: [Link](https://www.nytimes.com/es/2025/11/08/espanol/opinion/frankenstein-guillermo-del-toro.html)
-- **Crítica de cine | "Frankenstein": Una fábula de monstruosa calidad**: [Link](https://www.emol.com/noticias/Espectaculos/2025/11/08/1182630/critica-cine-frankenstein-netflix.html)
-- **¿Lo notaste? Así fue el homenaje de Guillermo del Toro a Boris Karloff en “Frankenstein”**: [Link](https://elcomercio.pe/mag/fama/que-ver/frankenstein-el-homenaje-de-guillermo-del-toro-a-boris-karloff-en-la-pelicula-de-netflix-nnda-nnlt-noticia/)
-
-
-### cruz azul - pumas (N/A, 08/11/2025 23:27 Lima)
-
-- **Cruz Azul vs Pumas: posibles alineaciones de la Jornada 17**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/15928613/cruz-azul-vs-pumas-alineaciones-formaciones-jornada-17-apertura-2025)
-- **⭕ Canal 5 (TUDN) EN VIVO por Internet | mirar partido Cruz Azul-Pumas UNAM GRATIS por tv abierta**: [Link](https://gestion.pe/mix/sports/canal-5-y-tudn-en-vivo-por-internet-como-ver-partido-cruz-azul-vs-pumas-unam-gratis-en-tv-abierta-y-futbol-online-nnda-nnrt-noticia/)
-- **Cruz Azul vs. Pumas hoy en vivo: hora, canal TV y dónde ver transmisión**: [Link](https://elcomercio.pe/deporte-total/mexico/cruz-azul-vs-pumas-en-vivo-hoy-gratis-por-liga-mx-via-futbol-libre-tv-tudn-canal-5-vix-amazon-prime-a-que-hora-juegan-canal-de-transmision-y-donde-ver-por-torneo-apertura-video-noticia/)
-
-
-### bucaramanga - la equidad (N/A, 08/11/2025 23:27 Lima)
-
-- **Pronóstico Atlético Bucaramanga La Equidad - Liga BetPlay 08/11/25**: [Link](https://www.sportytrader.com/es/pronosticos/atletico-bucaramanga-la-equidad-303892/)
-- **Jefferson Mena salvó el arco de Atlético Bucaramanga**: [Link](https://www.winsports.co/futbol-colombiano/noticias/jefferson-mena-salvo-el-arco-de-atletico-bucaramanga-392050)
-- **Bucaramanga 'rugió' en casa: doblete de Pons selló el 2-1 sobre La Equidad y mantiene vivo el sueño del punto invisible**: [Link](https://metropolitano.com.co/doblete-de-pons-y-triunfo-del-bucaramanga-que-sigue-en-la-pelea/)
-
-
-### la habitación negra (N/A, 08/11/2025 23:27 Lima)
-
-- **“No me estoy victimizando, solo pido una oportunidad”: Yiddá Eslava responde a críticas por video sobre su película**: [Link](https://rpp.pe/famosos/farandula/yidda-eslava-responde-a-criticas-por-su-video-sobre-su-pelicula-la-habitacion-negra-video-noticia-1663025)
-- **Yiddá Eslava culpa a Natalia Otero, amiga de Julián Zucchi, por el frío recibimiento de ‘La Habitación Negra’**: [Link](https://www.infobae.com/peru/2025/11/07/yidda-eslava-culpa-a-natalia-otero-amiga-de-julian-zucchi-por-el-frio-recibimiento-de-la-habitacion-negra/)
-- **"Comadres, ¡salven mi película!": El grito desesperado de Gidda**: [Link](https://www.atv.pe/noticia/comadres-salven-mi-pelicula-el-grito-desesperado-de-gidda/)
 
 
