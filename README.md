@@ -1,3 +1,72 @@
+### boyacá chicó - millonarios (N/A, 12/11/2025 20:57 Lima)
+
+- **Partido de la fecha 20 se jugará a puerta cerrada**: [Link](https://www.winsports.co/futbol-colombiano/noticias/partido-de-la-fecha-20-se-jugara-a-puerta-cerrada-392459)
+- **Otra pésima noticia para Millonarios además de la eliminación: Lloran sus hinchas en Tunja**: [Link](https://www.msn.com/es-co/deportes/other/otra-p%C3%A9sima-noticia-para-millonarios-adem%C3%A1s-de-la-eliminaci%C3%B3n-lloran-sus-hinchas-en-tunja/ar-AA1QbFSM)
+- **Millonarios visita a Chicó sin público por Liga Colombiana: fecha, hora y cómo seguir en vivo**: [Link](https://caracol.com.co/2025/11/12/millonarios-visita-a-chico-sin-publico-por-liga-colombiana-fecha-hora-y-como-seguir-en-vivo/)
+
+
+### ignacio buse (N/A, 12/11/2025 20:57 Lima)
+
+- **Ignacio Buse vs. Vilius Gaubas: ¿a qué hora juegan y dónde ver EN VIVO por octavos del Challenger de Montevideo?**: [Link](https://rpp.pe/tenis/mas-tenis/ignacio-buse-vs-gaubas-en-vivo-octavos-final-challenger-montevideo-2025-a-que-hora-juegan-y-donde-ver-por-tv-via-atp-tour-link-gratis-partidos-de-hoy-noticia-1663401)
+- **Peruano aplasta a kazajo y se mete en octavos del Challenger en Montevideo**: [Link](https://diarioviral.pe/deportes/peruano-aplasta-a-kazajo-y-se-mete-en-octavos-del-challenger-en-montevideo-48657)
+- **Ignacio Buse pasó a octavos de final del Challenger de Montevideo**: [Link](https://www.apnoticias.pe/peru/diario-uno/ignacio-buse-paso-a-octavos-de-final-del-challenger-de-montevideo-1468831)
+
+
+### spurs - warriors (N/A, 12/11/2025 20:57 Lima)
+
+- **Golden State Warriors vs San Antonio Spurs Prediction, Pick, Odds -- 11/12**: [Link](https://www.actionnetwork.com/nba/golden-state-warriors-vs-san-antonio-spurs-prediction-pick-odds-wednesday-november-12)
+- **BetMGM Promo Code ‘NYPDM1500’: Get a 20% first deposit match up to $1,500 for Warriors vs. Spurs**: [Link](https://nypost.com/2025/11/12/betting/betmgm-promo-code-nypdm1500-get-a-20-first-deposit-match-up-to-1500-for-warriors-vs-spurs/)
+- **San Antonio plays Golden State, seeks 6th straight home win**: [Link](https://www.washingtonpost.com/sports/nba/2025/11/12/warriors-spurs-preview/c1cd9110-bf95-11f0-8eee-a78486b4c797_story.html)
+
+
+### fiscal delia espinoza (N/A, 12/11/2025 20:57 Lima)
+
+- **Este es el plazo que tiene la JNJ para reponer a Delia Espinoza como fiscal de la Nación**: [Link](https://www.infobae.com/peru/2025/11/11/este-es-el-plazo-que-tiene-la-jnj-para-reponer-a-delia-espinoza-como-fiscal-de-la-nacion/)
+- **JNJ: ¿Qué sucederá con la nueva decisión del PJ que ordena que Delia Espinoza sea repuesta como fiscal de la Nación?**: [Link](https://elcomercio.pe/politica/junta-nacional-de-justicia-que-sucedera-con-la-nueva-decision-del-pj-para-que-delia-espinoza-sea-repuesta-como-fiscal-de-la-nacion-tlcnota-noticia/)
+- **Delia Espinoza reclama restitución inmediata como fiscal de la Nación tras fallo judicial**: [Link](https://caretas.pe/politica/delia-espinoza-reclama-restitucion-inmediata-como-fiscal-de-la-nacion-tras-fallo-judicial/)
+
+
+### copa ecuador (N/A, 12/11/2025 20:57 Lima)
+
+- **Liga de Quito recibe a Deportivo Cuenca por los cuartos de final de la Copa Ecuador**: [Link](https://www.espn.com.ar/futbol/ecuador/nota/_/id/15944532/liga-de-quito-vs-deportivo-cuenca-cuartos-de-final-copa-ecuador-equipo-fecha-hora-y-tv-en-vivo)
+- **A qué hora y cómo VER EN VIVO LDU Quito vs Deportivo Cuenca HOY**: [Link](https://www.antena2.com/futbol/a-que-hora-y-como-ver-en-vivo-ldu-quito-vs-deportivo-cuenca-hoy-12-de-noviembre)
+- **Dolor de cabeza para Norberto Araujo: la importante baja que tendrá Deportivo Cuenca ante LDU por Copa Ecuador**: [Link](https://www.ole.com.ar/ecuador/cuenca/dolor-cabeza-norberto-araujo-importante-baja-deportivo-cuenca-ldu-copa-ecuador_0_wlsUrBiiPK.html)
+
+
+### fortaleza vs (N/A, 12/11/2025 20:57 Lima)
+
+- **Fortaleza rescató empate ante Atlético Mineiro**: [Link](https://ovacion.pe/noticias/futbol-internacional/fortaleza-rescato-empate-ante-atletico-mineiro)
+- **Atlético Mineiro vs Fortaleza pronostico y comparación de cuotas 12.11.2025**: [Link](https://www.livetipsportal.com/es/pronosticos-apuestas-deportivas/atletico-mineiro-vs-fortaleza-serie-a-10962848/)
+
+
+### atlético mineiro - fortaleza (N/A, 12/11/2025 20:57 Lima)
+
+- **Atlético-MG x Fortaleza AO VIVO: link para assistir online - Brasileirão**: [Link](https://www.sportingnews.com/br/futebol/noticias/atletico-mg-fortaleza-ao-vivo-link-assistir-jogo-online-brasileirao-12-11/241c38869cac9ab9af209511)
+- **Homenagem (desatualizada) do Atlético Mineiro a Hulk incluiu o FC Porto (vídeo)**: [Link](https://www.abola.pt/noticias/homenagem-desatualizada-do-atletico-mineiro-a-hulk-incluiu-o-fc-porto-video-2025111223524444617)
+- **Aos 21 min do 2º tempo - gol de pênalti de Deyverson do Fortaleza contra o Atlético-MG**: [Link](https://ge.globo.com/futebol/video/aos-21-min-do-2o-tempo-gol-de-penalti-de-deyverson-do-fortaleza-contra-o-atletico-mg-14094209.ghtml)
+
+
+### sutep (N/A, 12/11/2025 20:57 Lima)
+
+- **Docentes convocan paro nacional el 21 de noviembre en rechazo al Congreso por dilatar ley de pensiones**: [Link](https://jornada.com.pe/docentes-convocan-paro-nacional-el-21-de-noviembre-en-rechazo-al-congreso-por-dilatar-ley-de-pensiones/)
+- **Sutep ratifica paro nacional de este jueves 13**: [Link](https://radiouno.pe/noticias/258182/sutep-ratifica-paro-nacional-de-este-jueves-13/)
+- **Puno: Se preparan movilizaciones masivas contra gobierno continuista de José Jerí**: [Link](https://inforegion.pe/puno-se-preparan-movilizaciones-masivas-contra-gobierno-continuista-de-jose-jeri/)
+
+
+### latina tv (N/A, 12/11/2025 20:57 Lima)
+
+- **Leyla, Martes 11 de noviembre – ver capítulo 35 completo**: [Link](https://www.latina.pe/entretenimiento/leyla-novela/leyla-martes-11-de-noviembre-ver-capitulo-35-completo_20251112/)
+- **ERES MI BIEN – CAPÍTULO 61 COMPLETO: Martes 11 de noviembre**: [Link](https://www.latina.pe/entretenimiento/eres-mi-bien/capitulos-completos-eres-mi-bien/eres-mi-bien-capitulo-61-completo-martes-11-de-noviembre_20251111/)
+- **Moisés y los diez mandamientos, Martes 11 de noviembre – ver capítulo 117 completo**: [Link](https://www.latina.pe/entretenimiento/moises-y-los-10-mandamientos/moises-y-los-diez-mandamientos-martes-11-de-noviembre-ver-capitulo-117-completo_20251112/)
+
+
+### latina en vivo (N/A, 12/11/2025 20:57 Lima)
+
+- **Alianza Lima vs Circolo 3-0: resumen de la victoria ‘blanquiazul’ por la fecha 7 de la Liga Peruana de Vóley 2025/26**: [Link](https://www.infobae.com/peru/deportes/2025/11/12/alianza-lima-vs-circolo-en-vivo-hoy-latina-fecha-7-primera-fase-liga-peruana-de-voley-2025-resumen-resultado/)
+- **Alianza Lima 2-0 Circolo EN VIVO y GRATIS por la fecha 7 de la Liga Peruana de Vóley**: [Link](https://bolavip.com/pe/voley/alianza-lima-vs-circolo-en-vivo-y-gratis-por-la-fecha-7-de-la-liga-peruana-de-voley)
+- **Entradas Alianza Lima vs Circolo Sportivo Italiano: precios y cómo comprar entradas para juego adelantado en Liga Peruana de Vóley 2025/26**: [Link](https://www.infobae.com/peru/deportes/2025/11/10/entradas-alianza-lima-vs-circolo-sportivo-italiano-precios-y-como-comprar-entradas-para-juego-adelantado-en-liga-peruana-de-voley-202526/)
+
+
 ### jannik sinner (N/A, 12/11/2025 15:27 Lima)
 
 - **Nitto ATP Finals, in campo Sinner-Zverev: sfida al vertice per volare in semifinale Segui la diretta streaming su Rainews.it**: [Link](https://www.facebook.com/RaiNews/photos/nitto-atp-finals-in-campo-sinner-zverev-sfida-al-vertice-per-volare-in-semifinal/1310531494446701/)
@@ -957,73 +1026,5 @@ Sin noticias relacionadas disponibles.
 - **Inter Miami vs Nashville SC LIVE score, MLS Cup Playoffs: Messi in starting lineup; Kick-off at 6:30 AM IST**: [Link](https://sportstar.thehindu.com/football/inter-miami-vs-nashville-sc-live-score-updates-lionel-messi-major-league-soccer-highlights-playoffs-streaming-news/article70258603.ece)
 - **Arsenal waste golden chance in Premier League race, but Sunderland continue to prove they're here to stay**: [Link](https://www.thepress.net/sports/national/arsenal-waste-golden-chance-in-premier-league-race-but-sunderland-continue-to-prove-theyre-here/article_7a98ccd1-3c80-5755-8767-d82f013bc01f.html)
 - **Messi leads Inter Miami vs. Nashville in pivotal Game 3, Silvetti replaces Suarez**: [Link](https://www.miamiherald.com/sports/mls/inter-miami/article312829255.html)
-
-
-### universitario vs alianza lima (N/A, 08/11/2025 20:59 Lima)
-
-- **Entradas Alianza Lima vs Universitario: precios y cómo comprar boletos para final vuelta en Matute por la Liga Femenina 2025**: [Link](https://www.infobae.com/peru/deportes/2025/11/08/entradas-alianza-lima-vs-universitario-precios-y-como-comprar-boletos-para-final-vuelta-en-matute-por-la-liga-femenina-2025/)
-- **Universitario vs Alianza Lima por final ida en América tvGO**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/universitario-vs-alianza-lima-final-ida-america-tvgo-n451627)
-- **Universitario vs Alianza Lima por la final-ida de Liga Femenina: Horario y canal**: [Link](https://peru21.pe/deportes/universitario-vs-alianza-lima-final-en-vivo-america-tv-goles-video-resultado/)
-
-
-### san martín - lanús (N/A, 08/11/2025 20:59 Lima)
-
-- **"Entradas a 200 pesos": un equipo de Primera División convoca a sus hinchas con los precios más bajos del fútbol argentino para llenar su cancha**: [Link](https://www.clarin.com/deportes/entradas-200-pesos-equipo-primera-division-convoca-hinchas-precios-bajos-futbol-argentino-llenar-cancha_0_q3Ps4s4YgT.html)
-- **San Martín vs Lanús hoy: resultado EN VIVO y goles de la Liga Profesional**: [Link](https://www.365scores.com/es/news/san-martin-vs-lanus-resultado-vivo-hoy/)
-- **San Martín de San Juan vs Lanús: estadísticas previas y datos en directo | Liga Profesional Argentina 2025**: [Link](https://as.com/resultados/futbol/argentina/2025/directo/regular_a_15_516807/)
-
-
-### cincinnati - columbus crew (N/A, 08/11/2025 20:59 Lima)
-
-- **Columbus Crew eliminated from MLS Cup playoffs by Hell is Real rival FC Cincinnati: Replay**: [Link](https://www.dispatch.com/story/sports/mls/columbus-crew/2025/11/08/columbus-crew-fc-cincinnati-live-mls-playoff-scores/87167870007/)
-- **Game 3 to decide ‘Hell Is Real’ playoff series between Crew, Cincy**: [Link](https://fieldlevelmedia.com/mls/game-3-to-decide-hell-is-real-playoff-series-between-crew-cincy/)
-- **Brenner scores two goals, Cincinnati beats Crew to advance to East semis**: [Link](https://www.tsn.ca/soccer/article/brenner-scores-two-goals-cincinnati-beats-crew-to-advance-to-east-semis/)
-
-
-### el chavo del 8 (N/A, 08/11/2025 20:59 Lima)
-
-- **Falleció a los 87 años reconocida actriz del elenco de 'El chavo del ocho'**: [Link](https://www.ntn24.com/noticias-entretenimiento/fallecio-a-los-87-anos-reconocida-actriz-del-elenco-de-el-chavo-del-ocho-589154)
-- **Muere Maricarmen Vela, actriz mexicana que trabajó en El Chavo del 8**: [Link](https://www.infobae.com/mexico/2025/11/07/muere-maricarmen-vela-actriz-mexicana-que-trabajo-en-el-chavo-del-8/)
-- **Murió uno de los amores imposibles de don Ramón, en el Chavo del 8**: [Link](https://www.amprensa.com/2025/11/murio-uno-de-los-amores-imposibles-de-don-ramon-en-el-chavo-del-8)
-
-
-### minnesota - seattle sounders (N/A, 08/11/2025 20:59 Lima)
-
-- **Player of the Match: Brenner | Eastern Conference Round One, Game 3**: [Link](https://www.mlssoccer.com/video/player-of-the-match-brenner-eastern-conference-round-one-game-3)
-- **MLS Sounders Minnesota Soccer**: [Link](https://www.chronicleonline.com/sports/soccer/mls-sounders-minnesota-soccer/image_e2fa8d8e-cb89-5c96-bb4f-3d2645cb63ea.html)
-- **Goalkeeper Dayne St. Clair scores winner in PK shootout as Minnesota United eliminates Sounders**: [Link](https://www.thestar.com/sports/soccer/goalkeeper-dayne-st-clair-scores-winner-in-pk-shootout-as-minnesota-united-eliminates-sounders/article_943c416f-92e7-5271-a15e-fac92fe8f90e.html)
-
-
-### milan (N/A, 08/11/2025 15:23 Lima)
-
-- **Milan y Parma se enfrentan con objetivos opuestos en la Serie A**: [Link](https://www.espn.com.pe/futbol/italia/nota/_/id/15925354/parma-vs-milan-por-la-serie-a-equipo-fecha-hora-y-tv-en-vivo)
-- **Serie A: Milan necesita el triunfo ante Parma para llegar a la cima**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-milan-necesita-el-triunfo-ante-parma-para-llegar-a-la-cima-noticia-1662833)
-- **Sacchi sees Allegri’s improvement but warns Milan about Parma**: [Link](https://football-italia.net/sacchi-allegri-improvement-warn-milan-parma/)
-
-
-### roblox (N/A, 08/11/2025 15:23 Lima)
-
-- **Story Kitchen Developing Film Adaptation Of Roblox Game ‘Grow A Garden’**: [Link](https://deadline.com/2025/11/grow-a-garden-movie-story-kitchen-in-development-1236608058/)
-- **Attention parents of Roblox kids: I regret to inform you they are making a Grow a Garden movie**: [Link](https://www.pcgamer.com/movies-tv/attention-parents-of-roblox-kids-i-regret-to-inform-you-they-are-making-a-grow-a-garden-movie/)
-- **Roblox Games ‘Grow a Garden, ‘Jailbreak’ Clinch Movie Deals**: [Link](https://www.bloomberg.com/news/articles/2025-11-05/roblox-games-grow-a-garden-jailbreak-clinch-movie-deals)
-
-
-### milan vs (N/A, 08/11/2025 15:23 Lima)
-
-- **Inter Milan Vs Lazio – Akanji & Bisseck Lead Defence As Cristian Chivu Keeps Faith**: [Link](https://sempreinter.com/2025/11/08/inter-milan-lazio-akanji-bisseck-lineup/)
-- **Football, Sarri: ‘Difficult match against Inter, we must seize the opportunity’**: [Link](https://lapresse.us/sports/2025/11/08/football-sarri-difficult-match-against-inter-we-must-seize-the-opportunity/)
-- **Preview:Inter Milan vs Lazio - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/preview/inter-milan-vs-lazio-prediction-team-news-lineups_585355.html)
-
-
-### juan pablo ii college (N/A, 08/11/2025 15:23 Lima)
-
-- **Atlético Grau vs Juan Pablo II EN VIVO: hora, canal tv y dónde ver el Torneo Clausura**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/juan-pablo-ii-vs-atletico-grau-en-vivo-via-liga-1-max-horario-canales-de-tv-y-mas-del-partido-por-la-fecha-18-del-torneo-clausura-de-liga-1-2025-tdpe-noticia/)
-- **Liga 1: Juan Pablo II y Grau se encuentran en la fecha 18**: [Link](https://rpp.pe/futbol/descentralizado/liga-1-juan-pablo-ii-y-grau-se-encuentran-en-la-fecha-18-noticia-1662843)
-- **Transmisión: Juan Pablo II vs. Atlético Grau EN VIVO ver Liga 1 MAX en directo online gratis**: [Link](https://depor.com/futbol-peruano/descentralizado/juan-pablo-ii-vs-atletico-grau-en-vivo-gratis-liga-1-max-futbol-libre-tv-directv-dgo-donde-ver-en-directo-hoy-online-por-internet-torneo-clausura-2025-video-noticia/)
-
-
-### racing - defensa y justicia (N/A, 08/11/2025 15:23 Lima)
-
-Sin noticias relacionadas disponibles.
 
 
