@@ -1,3 +1,73 @@
+### llaneros - envigado (N/A, 13/11/2025 20:56 Lima)
+
+- **Pronóstico Llaneros FC Envigado FC - Liga BetPlay 13/11/25**: [Link](https://www.sportytrader.com/es/pronosticos/llaneros-fc-envigado-fc-304769/)
+- **Llaneros vs Envigado, en vivo el partido de la Liga BetPlay 2025-II**: [Link](https://www.clarosports.com/colombia/liga-bet-play/llaneros-vs-envigado-en-vivo-el-partido-de-la-liga-betplay-2025-ii/)
+- **Llaneros FC vs. Envigado, EN VIVO: dónde ver por TV y ONLINE**: [Link](https://www.tycsports.com/colombia/futbol-de-colombia/llaneros-fc-vs-envigado-en-vivo-donde-ver-por-tv-y-online-id698487.html)
+
+
+### cavaliers - raptors (N/A, 13/11/2025 20:56 Lima)
+
+- **Steve Makinen’s NBA Betting Trends and Best Bets for Thursday, November 13**: [Link](https://vsin.com/nba/steve-makinens-nba-betting-trends-and-best-bets-for-thursday-november-13/)
+- **How to watch Raptors vs. Cavaliers: TV channel and streaming options for November 13**: [Link](https://www.nytimes.com/athletic/6804548/2025/11/13/raptors-vs-cavaliers-stream-how-to-watch-nov-13/)
+- **bet365 bonus code NYPBET: Bet $5, get $200 in bonus bets for Raptors vs. Cavaliers**: [Link](https://nypost.com/2025/11/13/sports/bet365-bonus-code-nypbet-bet-5-get-200-in-bonus-bets-for-raptors-vs-cavaliers/)
+
+
+### santa fe - alianza (N/A, 13/11/2025 20:56 Lima)
+
+- **Qué canal pasa Santa Fe vs Alianza hoy: dónde ver el partido gratis y en vivo de la Liga BetPlay**: [Link](https://www.365scores.com/es/news/canal-santa-fe-vs-alianza-en-vivo-liga/)
+- **Pronóstico Santa Fe Alianza FC Valledupar - Liga BetPlay 13/11/25**: [Link](https://www.sportytrader.com/es/pronosticos/santa-fe-alianza-fc-valledupar-304741/)
+- **Carlos Antonio Vélez salió en defensa de Santa Fe tras acusaciones del presidente de Alianza F.C: “Ensuciar a otros”**: [Link](https://www.infobae.com/colombia/deportes/2025/11/12/carlos-antonio-velez-salio-en-defensa-de-santa-fe-tras-acusaciones-del-presidente-de-alianza-fc-ensuciar-a-otros/)
+
+
+### pasto - bucaramanga (N/A, 13/11/2025 20:56 Lima)
+
+- **Pronóstico Deportivo Pasto Atlético Bucaramanga - Liga BetPlay 13/11/25**: [Link](https://www.sportytrader.com/es/pronosticos/deportivo-pasto-atletico-bucaramanga-304743/)
+- **Nuevo escándalo en el fútbol colombiano por crisis económica: otro club entraría en huelga previo a la fecha 20 de Liga BetPlay**: [Link](https://www.infobae.com/colombia/deportes/2025/11/12/nuevo-escandalo-en-el-futbol-colombiano-por-crisis-economica-otro-club-entraria-en-huelga-previo-a-la-fecha-20-de-liga-betplay/)
+- **Los jugadores de un club se habrían negado a practicar porque les deberían un mes de sueldo, lo que afectaría seriamente la pelea por el llamado “punto invisible” para los cuadrangulares**: [Link](https://www.facebook.com/infobaecolombia/photos/los-jugadores-de-un-club-se-habr%C3%ADan-negado-a-practicar-porque-les-deber%C3%ADan-un-me/1276641504478609/)
+
+
+### jamaica vs (N/A, 13/11/2025 20:56 Lima)
+
+- **For glory, for country**: [Link](https://jamaica-gleaner.com/article/lead-stories/20251113/glory-country)
+- **20 years on, can the Warriors rekindle the magic?**: [Link](http://www.guardian.co.tt/article/20-years-on-can-the-warriors-rekindle-the-magic-6.2.2447637.1f9e5861f5)
+- **Win or lose, what next for Yorke’s red, black and white army? And what does it mean for T&T’s football?**: [Link](https://wired868.com/2025/11/12/win-or-lose-what-next-for-yorkes-red-black-and-white-army-and-what-does-it-mean-for-tts-football/)
+
+
+### canadá - ecuador (N/A, 13/11/2025 20:56 Lima)
+
+- **Dónde ver Ecuador vs. Canadá hoy por amistoso internacional**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/donde-ver-ecuador-vs-canada-hoy-en-vivo-canal-que-transmite-partido-amistoso-fifa-noticia/)
+- **Las últimas pruebas de Beccacece: ¿Qué puede ajustar en estos amistosos Ecuador?**: [Link](https://www.espn.com.ar/futbol/mundial/nota/_/id/15949943/las-ultimas-pruebas-de-beccacece-que-puede-ajustar-en-estos-amistosos-ecuador)
+- **Ecuador vs. Canadá: Esta es la alineación de la Tricolor para el amistoso en Toronto**: [Link](https://www.teleamazonas.com/deportes/futbol/mundial/ecuador-vs-canada-alineacion-tricolor-amistoso-toronto-106252/)
+
+
+### canada vs (N/A, 13/11/2025 20:56 Lima)
+
+- **Canada’s Men’s National Team Set to Face Ecuador in Final Camp of the Year**: [Link](https://news.ssbcrack.com/canadas-mens-national-team-set-to-face-ecuador-in-final-camp-of-the-year/)
+- **Canadian men look to leave a marker in 2025 home finale vs. Ecuador**: [Link](https://www.sportsnet.ca/soccer/article/canadian-men-look-to-leave-a-marker-in-2025-home-finale-vs-ecuador/)
+- **Canada’s World Cup soccer team plays a complicated game before final home test**: [Link](https://www.thestar.com/sports/soccer/canadas-world-cup-soccer-team-plays-a-complicated-game-before-final-home-test/article_41c05584-a05c-41f3-a08e-853152e07931.html)
+
+
+### liga colombiana (N/A, 13/11/2025 20:56 Lima)
+
+- **Se define todo: las cuentas de los equipos que pelean los últimos cupos a los cuadrangulares**: [Link](https://www.espn.com.ar/futbol/colombia/nota/_/id/15945687/cuentas-equipos-pelean-ultimos-cupos-cuadrangulares-liga-betplay)
+- **Así podrá ver por televisión los ocho partidos de la Fecha 20 de la Liga BetPlay II-2025: definen los clasificados a los cuadrangulares**: [Link](https://www.infobae.com/colombia/deportes/2025/11/12/estos-seran-los-canales-que-transmitiran-los-ocho-partidos-de-la-fecha-20-de-la-liga-betplay-ii-2025-que-definen-los-clasificados-a-los-cuadrangulares/)
+- **Sorteo cuadrangulares Liga Betplay, EN VIVO: horario y dónde ver por TV y online**: [Link](https://www.marca.com/co/2025/11/12/69150716e2704e23658b45bc.html)
+
+
+### junior - atlético nacional (N/A, 13/11/2025 20:56 Lima)
+
+- **Qué canal pasa Junior vs Atlético Nacional hoy: dónde ver el partido gratis y en vivo de la Liga BetPlay**: [Link](https://www.365scores.com/es/news/canal-junior-vs-atletico-nacional-tv/)
+- **Junior vs. At. Nacional en vivo: seguí el partido minuto a minuto**: [Link](https://www.tycsports.com/colombia/futbol-de-colombia/colombia-primera-division-ii-2025-junior-vs-at-nacional-fecha-20-id698251.html)
+- **Después del duelo con Nacional y del sorteo, se vendrá lo bueno: ¿fe o duda con Junior en cuadrangulares?**: [Link](https://impactonews.co/despues-del-duelo-con-nacional-y-del-sorteo-se-vendra-lo-bueno-fe-o-duda-con-junior-en-cuadrangulares/)
+
+
+### deportivo cali - once caldas (N/A, 13/11/2025 20:56 Lima)
+
+- **Pronóstico Deportivo Cali Once Caldas - Liga BetPlay 13/11/25**: [Link](https://www.sportytrader.com/es/pronosticos/deportivo-cali-once-caldas-304728/)
+- **🇮🇹🇮🇹 Hernán Darío Herrera, técnico del Once Caldas (@oncecaldasoficial), analiza el último partido del equipo y la esperanza a la que se aferran en el Blanco. 📹 @osvaldohernandezburitica**: [Link](https://www.facebook.com/story.php?story_fbid=1289877216499795&id=100064325876463)
+- **Deportivo Cali vs Once Caldas: Pronóstico, Cuotas y Apuestas - Primera A**: [Link](https://www.casasdeapuestas.com/pronosticos/deportivo-cali-once-caldas-20251114/)
+
+
 ### carlos alcaraz (N/A, 13/11/2025 15:27 Lima)
 
 - **De Miñaur se estrena en Turín y abre una puerta a SF**: [Link](https://www.atptour.com/es/news/nitto-atp-finals-2025-jueves-fritz-de-minaur)
@@ -958,72 +1028,5 @@ Sin noticias relacionadas disponibles.
 - **Pronóstico Club Santos Laguna CF Pachuca - Liga MX 09/11/25**: [Link](https://www.sportytrader.com/es/pronosticos/santos-laguna-cf-pachuca-304024/)
 - **Cierran la fase regular del Apertura 2025**: [Link](https://www.cuartopoder.mx/deportes/cierran-la-fase-regular-del-apertura-2025/556517)
 - **🚨 ¡YA VA A EMPEZAR! 🚨 Esta televisora tendrá el Santos vs Pachuca en la Liga MX HOY 🏆 A esta HORA inicia... 🔥**: [Link](https://www.facebook.com/MilenioDiario/photos/-ya-va-a-empezar-esta-televisora-tendr%C3%A1-el-santos-vs-pachuca-en-la-liga-mx-hoy-a/1302946655196136/)
-
-
-### mirassol vs palmeiras (N/A, 09/11/2025 21:00 Lima)
-
-Sin noticias relacionadas disponibles.
-
-
-### feyenoord vs (N/A, 09/11/2025 15:23 Lima)
-
-- **Pronóstico Go Ahead Eagles - Feyenoord. Eredivisie | 09/11/2025**: [Link](https://gainblers.com/pe/pronosticos/futbol/holanda/eredivisie/pronostico-go-ahead-eagles-feyenoord-09-11-2025/)
-- **Preview:Go Ahead Eagles vs Feyenoord - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/feyenoord/preview/go-ahead-eagles-vs-feyenoord-prediction-team-news-lineups_585321.html)
-
-
-### alianza atlético - alianza universidad (N/A, 09/11/2025 15:23 Lima)
-
-- **Alianza Atlético vs Alianza Universidad: a qué hora juegan y dónd ver EN VIVO el Torneo Clausura**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/alianza-atletico-vs-alianza-universidad-en-vivo-horario-y-donde-ver-el-torneo-clausura-canal-tv-video-resumen-y-goles-l1max-l1play-tdpe-noticia/)
-- **Liga 1: Alianza Universidad se enfrentará a Alianza Atlético por la fecha 18**: [Link](https://rpp.pe/futbol/descentralizado/liga-1-alianza-universidad-se-enfrentara-a-alianza-atletico-por-la-fecha-18-noticia-1663013)
-- **La fecha 18 del Torneo Clausura es crucial para Alianza Universidad**: [Link](https://tudiariohuanuco.pe/deporte/la-fecha-18-del-torneo-clausura-es-crucial-para-alianza-universidad/)
-
-
-### el nacional - emelec (N/A, 09/11/2025 15:23 Lima)
-
-- **Pronóstico El Nacional Emelec - Liga Pro Ecuador 09/11/25**: [Link](https://www.sportytrader.com/es/pronosticos/el-nacional-quito-emelec-303551/)
-- **El Nacional recibe a Emelec por la Liga Ecuabet**: [Link](https://www.espn.com.ar/futbol/ecuador/nota/_/id/15923623/el-nacional-vs-emelec-por-la-liga-ecuabet-equipo-fecha-hora-y-tv-en-vivo)
-- **Previa: El Nacional vs. Emelec por la LigaPro**: [Link](https://revistawinner.ec/previa-el-nacional-vs-emelec-por-la-ligapro/)
-
-
-### u. de chile - deportes limache (N/A, 09/11/2025 15:23 Lima)
-
-- **Universidad de Chile desafía a Deportes Limache en choque de realidades opuestas en la Liga de Primera 2025**: [Link](https://www.espn.com.ar/futbol/chile/nota/_/id/15924161/universidad-de-chile-vs-limache-fecha-27-liga-de-primera-2025-equipo-fecha-y-hora)
-- **Sorpresa en la U: Universidad de Chile confirma su formación ante Deportes Limache**: [Link](https://bolavip.com/cl/udechile/sorpresa-en-la-u-universidad-de-chile-confirma-su-formacion-ante-deportes-limache)
-- **Gustavo Álvarez no deja nada al azar: inédita medida para evitar más lesiones en la U de Chile**: [Link](https://www.alairelibre.cl/futbol/campeonato-nacional/inedita-medida-para-evitar-lesiones-u-de-chile/)
-
-
-### benfica - casa pia (N/A, 09/11/2025 15:23 Lima)
-
-- **O onze do Benfica para o jogo com o Casa Pia: duas alterações nas águias**: [Link](https://sapo.pt/artigo/o-onze-do-benfica-para-o-jogo-com-o-casa-pia-duas-alteracoes-nas-aguias-6910ec797fea09c0633d328f)
-- **José Mourinho à caça de registo de Bruno Lage**: [Link](https://www.record.pt/futebol/futebol-nacional/liga-betclic/benfica/detalhe/jose-mourinho-a-caca-de-registo-de-bruno-lage)
-- **Capitão de fora e Dahl titular: os onzes prováveis para o Benfica-Casa Pia**: [Link](https://tvi.iol.pt/noticias/liga/benfica/capitao-de-fora-e-dahl-titular-os-onzes-provaveis-para-o-benfica-casa-pia)
-
-
-### corinthians vs (N/A, 09/11/2025 15:23 Lima)
-
-- **Pronóstico Corinthians Ceara SC CE - Brasileirão Serie A 09/11/25**: [Link](https://www.sportytrader.com/es/pronosticos/corinthians-ceara-ce-304300/)
-- **Corinthians SP vs Ceará - CE pronostico y comparación de cuotas 09.11.2025**: [Link](https://www.livetipsportal.com/es/pronosticos-apuestas-deportivas/corinthians-sp-vs-ceara-ce-serie-a-10963361/)
-- **Ao vivo: Corinthians x Ceará | Rodada 33 | Campeonato Brasileiro**: [Link](https://ge.globo.com/sp/futebol/brasileirao-serie-a/jogo/09-11-2025/corinthians-ceara.ghtml)
-
-
-### river (N/A, 09/11/2025 15:23 Lima)
-
-- **County taps National City nonprofit to manage Tijuana River Community Garden**: [Link](https://www.kpbs.org/news/environment/2025/11/07/county-taps-national-city-nonprofit-to-manage-tijuana-river-community-garden)
-- **County Secures New TJRV Garden Operator**: [Link](https://www.countynewscenter.com/county-secures-new-tjrv-garden-operator/)
-- **County selects nonprofit to oversee Tijuana River Valley Community Garden**: [Link](https://fox5sandiego.com/news/olivewood-gardens-takes-over/)
-
-
-### go ahead eagles - feyenoord (N/A, 09/11/2025 15:23 Lima)
-
-- **Live Eredivisie | Feyenoord snel op achterstand na penalty Go Ahead**: [Link](https://www.nu.nl/voetbal/6375344/live-eredivisie-feyenoord-snel-op-achterstand-na-penalty-go-ahead.html)
-- **Van Persie zag concurrent 'verwacht' verliezen: 'Niet schokkends'**: [Link](https://www.voetbalprimeur.nl/nieuws/1710418/robin-van-persie-trots-op-luciano-valente-en-cyle-larin.html)
-- **Eagles op voorsprong tegen Feyenoord • Kan invaller Steijn het omkeren?**: [Link](https://nos.nl/liveblog/2589767-eagles-op-voorsprong-tegen-feyenoord-kan-invaller-steijn-het-omkeren)
-
-
-### frankfurt fc (N/A, 09/11/2025 15:23 Lima)
-
-- **Preview:Frankfurt vs Mainz - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/eintracht-frankfurt/preview/frankfurt-vs-mainz-prediction-team-news-lineups_585393.html)
-- **Nadiem Amiri vs. Eintracht Frankfurt – Player props & odds to score a goal on November 9**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/11/09/nadiem-amiri-soccer-player-props-11-9-2025/87179473007/)
-- **Matchday in focus: 1. FSV Mainz 05**: [Link](https://onefootball.com/it/notizie/matchday-in-focus-1-fsv-mainz-05-41926165)
 
 
