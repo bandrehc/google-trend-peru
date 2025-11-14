@@ -1,3 +1,38 @@
+### precio del dólar perú (N/A, 14/11/2025 03:32 Lima)
+
+- **Precio del dólar con alza: Así cerró el tipo de cambio hoy 13 de noviembre en Perú**: [Link](https://www.infobae.com/peru/2025/11/12/peru-cotizacion-de-apertura-del-dolar-hoy-12-de-noviembre-de-usd-a-pen/)
+- **¿Cuál es la cotización del dólar hoy jueves 13 de noviembre del 2025?**: [Link](https://andina.pe/agencia/noticia-cual-es-cotizacion-del-dolar-hoy-jueves-13-noviembre-del-2025-1051809.aspx)
+- **El dólar vuelve a retroceder y cierra en S/3,366 en el mercado peruano**: [Link](https://caretas.pe/economia/el-dolar-vuelve-a-retroceder-y-cierra-en-s-3366-en-el-mercado-peruano/)
+
+
+### angola vs argentina (N/A, 14/11/2025 03:32 Lima)
+
+- **Argentina vs Angola: fecha, horarios y canales para ver partido amistoso**: [Link](https://elcomercio.pe/deporte-total/argentina/argentina-vs-angola-en-vivo-gratis-hoy-via-tyc-sports-telefe-tv-publica-futbol-libre-tv-a-que-hora-juegan-canales-tv-y-donde-ver-partido-amistoso-con-lionel-messi-video-noticia/)
+- **Quién es Joaquín Panichelli, la sorpresa de Lionel Scaloni que en River no tuvieron en cuenta**: [Link](https://www.tiemposur.com.ar/deporte/quien-es-joaquin-panichelli-la-sorpresa-de-lionel-scaloni-que-en-river-no-tuvieron-en-cuenta)
+- **Argentina vs Angola en vivo: ¿a qué hora juegan en Luanda y dónde ver amistoso por fecha FIFA con Lionel Messi?**: [Link](https://rpp.pe/futbol/futbol-mundial/argentina-vs-angola-en-vivo-a-que-hora-juegan-en-luanda-y-donde-ver-amistoso-por-fecha-fifa-con-lionel-messi-via-tyc-sports-gratis-partidos-de-hoy-noticia-1663744)
+
+
+### cinemark (N/A, 14/11/2025 03:32 Lima)
+
+- **Cines Cartelera Cinemark Perú precios y horarios hoy jueves 13 de noviembre**: [Link](https://rpp.pe/cine/cartelera/cartelera-cine-en-lima-y-peru-hoy-jueves-13-de-noviembre-noticia-1663592)
+- **Cartelera Cine en Lima y Perú hoy miércoles 12 de noviembre**: [Link](https://rpp.pe/cine/cartelera/cartelera-cine-en-lima-y-peru-hoy-miercoles-12-de-noviembre-noticia-1663446?hash=d33f2477-6661-62eb-c821-a390a6ca9fe9)
+- **Cinemark ofrece selfies holográficos con estrellas de “Now You See Me: Now You Don’t”**: [Link](https://www.ucvradio.pe/mas-actualidad/cinemark-ofrece-selfies-holograficos-con-estrellas-de-now-you-see-me-now-you-dont/47977/)
+
+
+### shakira en peru (N/A, 14/11/2025 03:32 Lima)
+
+- **Concierto de Shakira en Lima: horarios y recomendaciones para ir a su primer show en el Estadio Nacional**: [Link](https://www.infobae.com/peru/2025/11/13/concierto-de-shakira-en-lima-horarios-y-recomendaciones-para-ir-a-su-primer-show-en-el-estadio-nacional/)
+- **Shakira en Lima: conoce el setlist de las canciones que cantará en sus conciertos en el Estadio Nacional**: [Link](https://rpp.pe/musica/conciertos/shakira-en-lima-2025-setlist-de-canciones-que-cantara-en-sus-conciertos-de-noviembre-en-estadio-nacional-noticia-1663529)
+- **Orquesta Filarmónica de Lima se suma al concierto de Shakira en el Estadio Nacional**: [Link](https://elcomercio.pe/luces/musica/orquesta-filarmonica-de-lima-se-suma-al-concierto-de-shakira-en-el-estadio-nacional-ultimas-noticia/)
+
+
+### eslovaquia vs (N/A, 14/11/2025 03:32 Lima)
+
+- **Eslovaquia vs Irlanda del Norte Pronóstico Mundial 14/11/25**: [Link](https://www.apuestas-deportivas.es/pronostico/eslovaquia-vs-irlanda-del-norte-pronostico-clasificacion-mundial-14-11-2025/)
+- **NI se centra en el ‘aquí y ahora’ en el esfuerzo por la Copa Mundial**: [Link](https://masmma.com.mx/futbol/ni-se-centra-en-el-aqui-y-ahora-en-el-esfuerzo-por-la-copa-mundial/120873/)
+- **Eslovaquia vs Irlanda del Norte: pronóstico, apuestas, cuotas para el partido 14/11/2025**: [Link](https://legalbet.es/centro-apuestas/slovakia-northern-ireland-14-11-2025/)
+
+
 ### polonia vs (N/A, 13/11/2025 23:28 Lima)
 
 - **Países Bajos vs. Polonia en vivo: a qué hora juegan, canal TV y dónde ver por Eliminatorias 2026**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/paises-bajos-vs-polonia-en-vivo-hoy-gratis-via-espn-disney-plus-futbol-libre-tv-a-que-hora-juegan-canal-que-transmite-y-donde-ver-por-eliminatorias-2026-video-noticia/)
@@ -993,40 +1028,5 @@ Sin noticias relacionadas disponibles.
 - **Retiro AFP 2025: estas son las últimas tres fechas por el último dígito del DNI del cronograma regular**: [Link](https://www.infobae.com/peru/2025/11/09/retiro-afp-2025-estas-son-las-tres-ultimas-fechas-por-el-ultimo-digito-del-dni-del-cronograma-regular/)
 - **RETIRO AFP - LINK para solicitar hasta 4 UIT, según DNI: Plataformas oficiales y pasos para iniciar tu registro online**: [Link](https://elcomercio.pe/respuestas/tramites/retiro-afp-link-para-solicitar-hasta-4-uit-segun-dni-plataformas-oficiales-y-pasos-para-iniciar-tu-registro-online-de-forma-segura-tdpe-noticia/)
 - **Octavo retiro de AFP 2025: link oficial y cómo hacer registro de solicitud si tu DNI termina en 6 según el cronograma**: [Link](https://gestion.pe/mix/mi-bolsillo/octavo-retiro-de-afp-2025-cuando-y-como-registrar-solicitud-hoy-si-tu-dni-termina-en-6-segun-fecha-del-cronograma-nnda-nnrt-noticia/)
-
-
-### peru vs rusia (N/A, 10/11/2025 11:32 Lima)
-
-- **El “Rusia mandará un chárter” de Ferrari y qué se reveló sobre el nuevo técnico: lo que no se vio del accidentado viaje de Perú a San Petersburgo**: [Link](https://elcomercio.pe/deporte-total/seleccion/seleccion-peruana-hoy-el-rusia-mandara-un-charter-de-jean-ferrari-y-que-se-revelo-sobre-el-nuevo-tecnico-lo-que-no-se-vio-del-accidentado-viaje-de-peru-a-san-petersburgo-tlcnota-noticia/)
-- **Joao Grimaldo fue desconvocado para los amistosos de Perú en la fecha FIFA**: [Link](https://www.espn.com.ar/futbol/mundial/nota/_/id/15939822/joao-grimaldo-fue-desconvocado-para-los-amistosos-de-peru)
-- **No tendrán modificaciones: los partidos de Perú ante Rusia y Chile no serán reprogramados**: [Link](https://rpp.pe/futbol/seleccion-peruana/seleccionn-peruana-partidos-amistosos-ante-rusia-y-chile-no-seran-reprogramados-fpf-noticia-1663117)
-
-
-### peru vs (N/A, 10/11/2025 07:52 Lima)
-
-- **El “Rusia mandará un chárter” de Ferrari y qué se reveló sobre el nuevo técnico: lo que no se vio del accidentado viaje de Perú a San Petersburgo**: [Link](https://elcomercio.pe/deporte-total/seleccion/seleccion-peruana-hoy-el-rusia-mandara-un-charter-de-jean-ferrari-y-que-se-revelo-sobre-el-nuevo-tecnico-lo-que-no-se-vio-del-accidentado-viaje-de-peru-a-san-petersburgo-tlcnota-noticia/)
-- **Joao Grimaldo fue desconvocado para los amistosos de Perú en la fecha FIFA**: [Link](https://www.espn.com.ar/futbol/mundial/nota/_/id/15939822/joao-grimaldo-fue-desconvocado-para-los-amistosos-de-peru)
-- **Sin modificaciones: los partidos de Perú ante Rusia y Chile no serán reprogramados**: [Link](https://rpp.pe/futbol/seleccion-peruana/seleccionn-peruana-partidos-amistosos-ante-rusia-y-chile-no-seran-reprogramados-fpf-noticia-1663117)
-
-
-### ariana orue (N/A, 10/11/2025 07:52 Lima)
-
-- **Acusan a la congresista Ariana Orué de usar a su trabajador para que la lleve al gimnasio y de contratar a la "pareja" de su hermana**: [Link](https://rpp.pe/politica/congreso/ariana-orue-acusan-a-la-congresista-de-usar-a-su-trabajador-para-que-la-lleve-al-gimnasio-y-de-contratar-a-la-pareja-de-su-hermana-noticia-1663126)
-- **El colmo: Congresista Ariana Orué usó a su asesor como chofer para ir al gimnasio (VIDEO)**: [Link](https://peru21.pe/politica/congresista-ariana-orue-uso-asesor-como-chofer-para-ir-al-gimnasio/)
-- **Denuncian que la congresista Ariana Orué contrató en el Parlamento al socio de su hermana**: [Link](https://elcomercio.pe/politica/denuncian-que-la-congresista-ariana-orue-contrato-en-el-parlamento-al-socio-de-su-hermana-podemos-peru-ultimas-noticia/)
-
-
-### martin vizcarra (N/A, 10/11/2025 03:34 Lima)
-
-- **Martín Vizcarra queda fuera de elecciones de 2026 en Perú**: [Link](https://www.dw.com/es/mart%C3%ADn-vizcarra-queda-fuera-de-elecciones-de-2026-en-per%C3%BA/a-74676175)
-- **Martín Vizcarra fuera de las Elecciones: ONPE rechaza su inscripción en la plancha de Perú Primero**: [Link](https://www.infobae.com/peru/2025/11/08/martin-vizcarra-fuera-de-las-elecciones-onpe-rechaza-su-inscripcion-en-la-plancha-de-peru-primero/)
-- **ONPE rechazó inscripción de Martín Vizcarra en plancha presidencial de Perú Primero**: [Link](https://rpp.pe/politica/elecciones/onpe-rechazo-inscripcion-de-martin-vizcarra-en-plancha-presidencial-de-peru-primero-noticia-1663063)
-
-
-### susy diaz (N/A, 09/11/2025 23:31 Lima)
-
-- **El Valor de la Verdad EN VIVO: Susy Díaz promete una noche inolvidable donde hablará de política, amores y escándalos**: [Link](https://www.infobae.com/peru/2025/11/09/el-valor-de-la-verdad-en-vivo-susy-diaz-promete-una-noche-inolvidable-donde-hablara-de-politica-amores-y-escandalos/)
-- **Susy Díaz revelará el resultado de prueba de paternidad en “El valor de la verdad”**: [Link](https://elcomercio.pe/tvmas/farandula/susy-diaz-revelara-el-resultado-de-prueba-de-paternidad-en-el-valor-de-la-verdad-ultimas-noticia/)
-- **Su amorío con Waldir Sáenz y su paso por el Congreso: Todas las confesiones que hará Susy Díaz**: [Link](https://peru21.pe/espectaculos/susy-diaz-su-amorio-con-waldir-saenz-y-su-paso-por-el-congreso/)
 
 
