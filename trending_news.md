@@ -1,3 +1,64 @@
+### polonia vs (N/A, 13/11/2025 23:28 Lima)
+
+- **Países Bajos vs. Polonia en vivo: a qué hora juegan, canal TV y dónde ver por Eliminatorias 2026**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/paises-bajos-vs-polonia-en-vivo-hoy-gratis-via-espn-disney-plus-futbol-libre-tv-a-que-hora-juegan-canal-que-transmite-y-donde-ver-por-eliminatorias-2026-video-noticia/)
+- **Apuestas y pronósticos Polonia vs Países Bajos**: [Link](https://www.marca.com/apuestas-deportivas/predicciones/2025/11/13/apuestas-pronosticos-polonia-vs-paises-bajos.html)
+- **Polonia - Holanda: TV, horario y cómo ver la Clasificación al Mundial 2026 online**: [Link](https://as.com/futbol/internacional/polonia-holanda-tv-horario-y-como-ver-la-clasificacion-al-mundial-2026-online-f202511-n/)
+
+
+### messi (N/A, 13/11/2025 23:28 Lima)
+
+- **Barcelona board members suspect Lionel Messi visit involved political rivals**: [Link](https://www.football-espana.net/2025/11/13/barcelona-board-members-suspect-lionel-messi-visit-involved-political-rivals)
+- **Lionel Messi's surprise Camp Nou visit sparks global meme trend**: [Link](https://tribuna.com/en/blogs/lionel-messis-surprise-camp-nou-visit-sparks-global-meme-tre/)
+- **Maldini speaks clearly about Leo Messi's return to Barça: 'It's difficult...'**: [Link](https://madrid-barcelona.com/en/fc-barcelona/maldini-speaks-clearly-about-leo-messis-return-to-barca-difficult)
+
+
+### mavila huertas (N/A, 13/11/2025 23:28 Lima)
+
+- **¿Quién es Roberto Reátegui, pareja de Mávila Huertas y exesposo de Mónica Delta?**: [Link](https://www.infobae.com/peru/2025/11/12/quien-es-roberto-reategui-pareja-de-mavila-huertas-y-exesposo-de-monica-delta/)
+- **Magaly Medina presenta a la nueva pareja de Mávila Huertas y ella 'grita' su amor: "Lo que se ve, no se pregunta"**: [Link](https://larepublica.pe/espectaculos/2025/11/11/magaly-medina-expone-quien-es-el-nuevo-amor-de-mavila-huertas-y-ella-grita-su-amor-lo-que-se-ve-no-se-pregunta-419331)
+- **Mávila Huertas CONFIRMA que REGRESÓ con su exesposo Roberto Reátegui tras años de separación: "Lo que se ve..."**: [Link](https://elpopular.pe/espectaculos/2025/11/11/mavila-huertas-confirma-que-regreso-con-su-exesposo-roberto-reategui-tras-anos-de-separacion-lo-que-se-ve-928906)
+
+
+### finlandia vs (N/A, 13/11/2025 23:28 Lima)
+
+Sin noticias relacionadas disponibles.
+
+
+### suns - pacers (N/A, 13/11/2025 23:28 Lima)
+
+- **Washington Wizards vs Minnesota Timberwolves Nov 19, 2025 Game Summary**: [Link](https://www.nba.com/game/was-vs-min-0022500259)
+- **Suns Starter Unexpectedly in Jeopardy of Missing Clippers Game**: [Link](https://www.si.com/nba/suns/onsi/news/phoenix-suns-starter-unexpectedly-jeopardy-missing-los-angeles-clippers-game)
+- **Grayson Allen Injury Update: Right Quad Contusion and Timeline for Return**: [Link](https://www.freejobalert.com/article/grayson-allen-injury-update-right-quad-contusion-and-timeline-for-return-23710)
+
+
+### honduras vs (N/A, 13/11/2025 23:28 Lima)
+
+- **▷ Canal 4 EN VIVO GRATIS | cómo ver Honduras vs. Nicaragua por TV abierta y Fútbol Online**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/canal-4-en-vivo-gratis-como-ver-partido-honduras-vs-nicaragua-por-tv-abierta-y-futbol-online-nnda-nnrt-noticia/)
+- **Nicaragua - Honduras en vivo: Eliminatorias mundialistas de Concacaf, en directo**: [Link](https://as.com/us/futbol/nicaragua-honduras-en-vivo-eliminatorias-mundialistas-de-concacaf-en-directo-f202511-d/)
+- **Reinaldo Rueda propina golpe bajo a Olimpia y Eduardo Espinel con la noticia que Honduras confirma camino a...**: [Link](https://futbolcentroamerica.com/honduras/reinaldo-rueda-propina-golpe-bajo-a-olimpia-y-eduardo-espinel-con-la-noticia-que-honduras-confirma-camino-al-mundial-2026)
+
+
+### chris martin (N/A, 13/11/2025 23:28 Lima)
+
+- **Gwyneth Paltrows toxic side comes to light amid marriage troubles: Source**: [Link](https://www.geo.tv/latest/633507-gwyneth-paltrows-repeating-chris-martin-split-patterns-source)
+- **EXCLUSIVE: On the Rocks? Gwyneth Paltrow and Brad Falchuk Spark Marriage Trouble Rumors as Couple 'Spends More and More Time Apart'**: [Link](https://www.aol.com/articles/exclusive-rocks-gwyneth-paltrow-brad-111500169.html)
+- **Gwyneth Paltrow, Brad Falchuk face marriage trouble**: [Link](https://www.geo.tv/latest/633457-gwyneth-paltrow-brad-falchuk-spend-more-time-apart)
+
+
+### costa rica vs (N/A, 13/11/2025 23:28 Lima)
+
+- **Haití vs. Costa Rica, Eliminatorias de la Concacaf al Mundial 2026, en vivo: resultado, goles y más**: [Link](https://cnnespanol.cnn.com/deportes/live-news/resultado-haiti-costa-rica-eliminatorias-concacaf-orix)
+- **Costa Rica vs. Haití en vivo: transmisión del partido por Eliminatorias Concacaf 2026**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/costa-rica-vs-haiti-en-vivo-hoy-gratis-via-teletica-repretel-canal-7-canal-6-futbol-libre-tv-a-que-hora-juegan-canal-de-transmision-y-donde-ver-por-eliminatorias-concacaf-2026-video-noticia/)
+- **Haití venció a Costa Rica y deja en coma clasificación del Piojo Herrera al Mundial 2026**: [Link](https://espndeportes.espn.com/futbol/costa-rica/nota/_/id/15956169/haiti-vencio-a-costa-rica-y-deja-en-coma-clasificacion-del-piojo-herrera-al-mundial-2026)
+
+
+### grammys 2025 (N/A, 13/11/2025 23:28 Lima)
+
+- **Bad Bunny in box seat as Latin Grammys hit Vegas**: [Link](https://www.france24.com/en/live-news/20251113-bad-bunny-in-box-seat-as-latin-grammys-hit-vegas)
+- **These nominees prove Latin music is taking over the 2026 Grammys.**: [Link](https://uproxx.com/music/2026-grammy-latin-nominees-future-is-bright/)
+- **WATCH: Chuwi Joins Bad Bunny for ‘WELTITA’ Performance at 2025 Latin Grammys**: [Link](https://remezcla.com/music/watch-chuwi-joins-bad-bunny-for-weltita-performance-at-2025-latin-grammys/)
+
+
 ### llaneros - envigado (N/A, 13/11/2025 20:56 Lima)
 
 - **Pronóstico Llaneros FC Envigado FC - Liga BetPlay 13/11/25**: [Link](https://www.sportytrader.com/es/pronosticos/llaneros-fc-envigado-fc-304769/)
@@ -967,66 +1028,5 @@ Sin noticias relacionadas disponibles.
 - **El Valor de la Verdad EN VIVO: Susy Díaz promete una noche inolvidable donde hablará de política, amores y escándalos**: [Link](https://www.infobae.com/peru/2025/11/09/el-valor-de-la-verdad-en-vivo-susy-diaz-promete-una-noche-inolvidable-donde-hablara-de-politica-amores-y-escandalos/)
 - **Susy Díaz revelará el resultado de prueba de paternidad en “El valor de la verdad”**: [Link](https://elcomercio.pe/tvmas/farandula/susy-diaz-revelara-el-resultado-de-prueba-de-paternidad-en-el-valor-de-la-verdad-ultimas-noticia/)
 - **Su amorío con Waldir Sáenz y su paso por el Congreso: Todas las confesiones que hará Susy Díaz**: [Link](https://peru21.pe/espectaculos/susy-diaz-su-amorio-con-waldir-saenz-y-su-paso-por-el-congreso/)
-
-
-### san diego fc (N/A, 09/11/2025 21:00 Lima)
-
-- **Portland and Neville relishing decider against 'fantastic' San Diego**: [Link](https://www.fotmob.com/id/news/u06jhm7prctv1907uqn1n1pqi-portland-neville-relishing-decider-against-fantastic-san-diego)
-- **Timbers 360: Providence Park magic, and preview of Game 3 in MLS Cup Playoffs**: [Link](https://www.kgw.com/video/sports/soccer/timbers/timbers-360-providence-park-magic-and-preview-of-game-3-in-mls-cup-playoffs/283-bebc571b-0223-4b18-98b9-508a3933f602)
-- **What to look for in SDFC’s elimination Game 3**: [Link](https://fox5sandiego.com/sports/san-diego-fc/san-diego-fc-playoff-game/)
-
-
-### santa fe - deportivo cali (N/A, 09/11/2025 21:00 Lima)
-
-- **Pronóstico Santa Fe Deportivo Cali - Liga BetPlay 09/11/25**: [Link](https://www.sportytrader.com/es/pronosticos/santa-fe-deportivo-cali-304339/)
-- **Santa Fe, con todo a favor: cota 1,80 y a un paso del cuadrangular**: [Link](https://www.futbolred.com/apuestas/pronosticos-santa-fe-vs-deportivo-cali-08-11-2025-258365)
-- **EN VIVO: Santa Fe vs. Deportivo Cali - minuto a minuto y goles (Fecha 19)**: [Link](https://www.winsports.co/futbol-colombiano/noticias/en-vivo-santa-fe-vs-deportivo-cali-minuto-a-minuto-y-goles-fecha-19-392231)
-
-
-### atlético tucumán - godoy cruz (N/A, 09/11/2025 21:00 Lima)
-
-- **Gol en contra de Morán y se complica Godoy Cruz: Atlético Tucumán gana 1 a 0**: [Link](https://www.ole.com.ar/futbol-primera/torneo-clausura-atletico-tucuman-godoy-cruz_0_N9kmx3uhe1.html)
-- **A Tucumán por la ante última final**: [Link](https://www.vavel.com/ar/futbol-argentino/2025/11/08/godoy-cruz/1240715-a-tucuman-por-la-anteultima-final.html)
-- **“La Inimitable” y un banderazo en apoyo al plantel de Atlético Tucumán, antes de un duelo crucial**: [Link](https://www.lagaceta.com.ar/nota/1111791/deportes/inimitable-banderazo-apoyo-al-plantel-atletico-tucuman-antes-duelo-crucial.html)
-
-
-### warriors - pacers (N/A, 09/11/2025 21:00 Lima)
-
-- **Indiana Pacers Injury Report: Get the latest update on Tyrese Haliburton, Johnny Furphy & others**: [Link](https://thesportstak.com/basketball/nba-24-oct-2022/story/indiana-pacers-injury-report-get-the-latest-update-on-tyrese-haliburton-johnny-furphy-others-3213574-2025-11-10)
-- **Game Preview: Pacers at Warriors**: [Link](https://pacers.com/news/preview-pacers-warriors-251109)
-- **Aaron Nesmith, Pascal Siakam out for the short-handed Pacers**: [Link](https://www.hoopshype.com/story/sports/nba/rumors/2025/11/09/aaron-nesmith-pascal-siakam-out-for-the-short-handed-pacers/87186067007/)
-
-
-### welcome to derry capitulo 3 (N/A, 09/11/2025 21:00 Lima)
-
-- **“It: Welcome to Derry” Capítulo 3: Hora de estreno confirmado en HBO Max**: [Link](https://elcomercio.pe/saltar-intro/noticias/it-welcome-to-derry-capitulo-3-hora-de-estreno-confirmado-hbo-max-noticia/)
-- **El globo rojo vuelve a inflarse**: [Link](https://www.perfil.com/noticias/espectaculos/el-globo-rojo-vuelve-a-inflarse.phtml)
-- **"El libro está lleno de enigmas y preguntas": Barbara y Andy Muschietti, creadores de Welcome to Derry, explican por qué la serie de terror de HBO es mucho más que Pennywise**: [Link](https://global.techradar.com/es-mx/streaming/hbo-max/el-libro-esta-lleno-de-enigmas-y-preguntas-barbara-y-andy-muschietti-creadores-de-welcome-to-derry-explican-por-que-la-serie-de-terror-de-hbo-es-mucho-mas-que-pennywise)
-
-
-### alianza lima voley (N/A, 09/11/2025 21:00 Lima)
-
-- **Alianza Lima vs Olva Latino EN VIVO HOY: punto a punto del duelo por la fecha 3 de la Liga Peruana de Vóley 2025/2026**: [Link](https://www.infobae.com/peru/deportes/2025/11/09/alianza-lima-vs-olva-latino-en-vivo-hoy-latina-fecha-3-primera-fase-liga-peruana-de-voley-20252026-resumen-resultado/)
-- **Programación de la fecha 3 de la Liga Peruana de Vóley 2025-2026: todas las fechas y horarios de los partidos**: [Link](https://rpp.pe/voley/mas-voley/liga-peruana-de-voley-2025-2026-programacion-de-la-fecha-3-fixture-fecha-y-horario-de-los-partidos-alianza-lima-universitario-san-martin-regatas-lpv-noticia-1662090)
-- **Universitario derrota a Deportivo Soan 3-0 por la fecha 3 de la Liga Peruana de Vóley | Resumen, puntos y sets**: [Link](https://elcomercio.pe/deporte-total/polideportivo/universitario-vs-deportivo-soan-en-vivo-horario-y-donde-ver-la-fecha-3-de-la-liga-peruana-de-voley-2025-via-latina-tv-video-sets-y-puntos-tdpe-noticia/)
-
-
-### tigre - estudiantes (N/A, 09/11/2025 21:00 Lima)
-
-Sin noticias relacionadas disponibles.
-
-
-### gremio vs (N/A, 09/11/2025 21:00 Lima)
-
-- **Erick Noriega es tendencia en Brasil: elogios y críticas tras derrota de Gremio frente Cruzeiro**: [Link](https://www.infobae.com/peru/deportes/2025/11/07/erick-noriega-es-tendencia-en-brasil-elogios-y-criticas-tras-derrota-de-gremio-frente-cruzeiro/)
-- **Hinchas de Gremio aceptaron que se cometió un gran error con Erick Noriega: “Raro momento”**: [Link](https://bolavip.com/pe/peruanos-en-el-exterior/hinchas-de-gremio-aceptaron-que-se-cometio-un-gran-error-con-erick-noriega-raro-momento)
-- **Gremio, con Noriega, cayó en casa ante Cruzeiro**: [Link](https://ovacion.pe/noticias/peruanos-mundo/gremio-noriega-cayo-casa-ante-cruzeiro)
-
-
-### santos - pachuca (N/A, 09/11/2025 21:00 Lima)
-
-- **Pronóstico Club Santos Laguna CF Pachuca - Liga MX 09/11/25**: [Link](https://www.sportytrader.com/es/pronosticos/santos-laguna-cf-pachuca-304024/)
-- **Cierran la fase regular del Apertura 2025**: [Link](https://www.cuartopoder.mx/deportes/cierran-la-fase-regular-del-apertura-2025/556517)
-- **🚨 ¡YA VA A EMPEZAR! 🚨 Esta televisora tendrá el Santos vs Pachuca en la Liga MX HOY 🏆 A esta HORA inicia... 🔥**: [Link](https://www.facebook.com/MilenioDiario/photos/-ya-va-a-empezar-esta-televisora-tendr%C3%A1-el-santos-vs-pachuca-en-la-liga-mx-hoy-a/1302946655196136/)
 
 
