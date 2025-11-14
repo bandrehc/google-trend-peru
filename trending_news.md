@@ -1,3 +1,66 @@
+### angola (N/A, 14/11/2025 11:31 Lima)
+
+- **"Não se justifica usar dinheiro público para um jogo"**: [Link](https://www.dw.com/pt-002/angola-n%C3%A3o-se-justifica-usar-dinheiro-p%C3%BAblico-para-um-jogo-de-futebol/a-74729984)
+- **GPL decreta tolerância de ponto a partir das 12:00 de sexta-feira**: [Link](https://novojornal.co.ao/politica/detalhe/gpl-decreta-tolerancia-de-ponto-a-partir-das-1200-de-sexta-feira--68194.html)
+- **Preços exorbitantes dos ingressos para a seleção argentina na África.**: [Link](https://www.vietnam.vn/pt/gia-ve-gay-soc-cua-tuyen-argentina-tai-chau-phi)
+
+
+### egipto vs (N/A, 14/11/2025 11:31 Lima)
+
+- **Uzbekistán vs Egipto EN VIVO en Amistoso Internacional (0-0)**: [Link](https://www.vavel.com/mx/futbol-internacional/2025/11/14/1241275-uzbekistan-vs-egipto-en-vivo-amistoso-internacional.html)
+- **Egipto vs. Uzbekistán, por la Al Ain Internacional Cu´p2025: todo lo que tenés que saber**: [Link](https://www.directvsports.com/futbol/egipto-vs.-uzbekistan-por-la-al-ain-internacional-cup2025-todo-lo-que-tenes-que-saber-20251114-0014.html)
+- **Uzbekistán vs Egipto: pronósticos, cuotas, y datos para apostar**: [Link](https://www.apwin.com/es/pronosticos/uzbekistan-vs-egypt-pronostico-amistosos-internacionales-14-11-2025/)
+
+
+### mundial sub 17 (N/A, 14/11/2025 11:31 Lima)
+
+- **Argentina cae 2-1 con México por el pase a los octavos de final del Mundial Sub 17**: [Link](https://www.infobae.com/deportes/2025/11/14/argentina-se-enfrentara-a-mexico-por-el-pase-a-los-octavos-de-final-del-mundial-sub-17-hora-tv-y-formaciones/)
+- **Argentina vs. México, EN VIVO por el Mundial Sub 17: cómo va y por dónde ver el partido**: [Link](https://www.ole.com.ar/seleccion/seleccion-argentina-vs-mexico-partido-16avos-mundial-sub-17-horario-tv_0_9yn2RyD4Az.html)
+- **Carlos Cariño: "El torneo nos da una oportunidad más"**: [Link](https://espndeportes.espn.com/futbol/selecciones/nota/_/id/15956076/seleccion-mexicana-mundial-sub-17-carlos-carino-oportunidad-argentina)
+
+
+### xabier azkargorta (N/A, 14/11/2025 11:31 Lima)
+
+- **Muere Xabier Azkargorta, un pionero que hizo historia guiando a Bolivia a su único Mundial**: [Link](https://www.marca.com/futbol/2025/11/14/muere-xabier-azkargorta-pionero-hizo-historia-guiando-bolivia-unico-mundial.html)
+- **Comunicado Oficial: fallecimiento de Xabier Azkargorta**: [Link](https://www.realmadrid.com/es-ES/noticias/club/comunicados/comunicado-oficial-fallecimiento-de-xabier-azkargorta-14-11-2025)
+- **Fallece en Bolivia el legendario entrenador Xabier Azkargorta**: [Link](https://www.lavanguardia.com/deportes/futbol/20251114/11264689/fallece-legendario-entrenador-xabier-azkargorta.html)
+
+
+### angola - argentina (N/A, 14/11/2025 11:31 Lima)
+
+- **Angola - Argentina, en vivo: amistoso internacional, en directo hoy**: [Link](https://as.com/futbol/internacional/angola-argentina-en-vivo-amistoso-internacional-en-directo-hoy-f202511-d/)
+- **Con Messi, la selección argentina juega su último partido del año ante Angola en África**: [Link](https://www.infobae.com/deportes/2025/11/14/con-messi-la-seleccion-argentina-jugara-su-ultimo-partido-del-ano-ante-angola-en-africa-todo-lo-que-hay-que-saber/)
+- **Scaloni confirmó la presencia del capitán argentino vs. Angola: "Messi va a jugar"**: [Link](https://www.espn.com.ar/futbol/mundial/nota/_/id/15955497/scaloni-titular-lionel-messi-argentina-vs-angola-fecha-fifa-2025)
+
+
+### jannik sinner (N/A, 14/11/2025 11:31 Lima)
+
+- **Sinner vince con Shelton, domani semifinale con De Minaur alle 14:30**: [Link](https://www.ilsole24ore.com/art/sinner-vince-shelton-domani-semifinale-de-minaur-1430-AHux7KkD)
+- **Atp Finals, Bertolucci: "Sinner ha la marcia in più nei momenti chiave". VIDEO**: [Link](https://sport.sky.it/tennis/video/2025/11/14/sinner-atp-finals-bertolucci-commento-video-1051880)
+- **Sinner fa tre su tre e resta in corsa per il bonus da 5 milioni**: [Link](https://www.eurosport.it/tennis/atp-finals/2025/sinner-batte-shelton-e-fa-tre-su-tre-nel-gruppo-borg-jannik-resta-in-corsa-per-lassegno-da-5-milioni-di-dollari_sto23241065/story.shtml)
+
+
+### corea del sur (N/A, 14/11/2025 11:31 Lima)
+
+- **Corea del Sur y Estados Unidos formalizaron los acuerdos clave sobre comercio, defensa y cooperación nuclear naval**: [Link](https://www.infobae.com/america/mundo/2025/11/14/corea-del-sur-y-estados-unidos-formalizaron-los-acuerdos-clave-sobre-comercio-defensa-y-cooperacion-nuclear-naval/)
+- **(AMPLIACIÓN) Lee anuncia la conclusión de la ficha de datos conjunta con EE. UU. sobre comercio y seguridad**: [Link](https://sp.yna.co.kr/view/ASP20251114001300883)
+- **Resumen Conjunto: Encuentro entre el Presidente Donald J. Trump y el Presidente Lee Jae Myung**: [Link](https://diariodelamancha.com/resumen-conjunto-encuentro-entre-el-presidente-donald-j-trump-y-el-presidente-lee-jae-myung/)
+
+
+### ig (N/A, 14/11/2025 11:31 Lima)
+
+- **Amy Schumer Is ‘100 Percent Getting Divorced’ From Chris Fischer Now That ‘She Got Skinny’: Report**: [Link](https://www.yahoo.com/entertainment/celebrity/articles/amy-schumer-100-percent-getting-221211750.html)
+- **The truth behind Amy Schumer and Chris Fischer’s relationship status revealed as divorce rumors heat up**: [Link](https://pagesix.com/2025/11/14/celebrity-news/the-truth-behind-amy-schumer-and-chris-fischers-relationship-status-revealed-amid-divorce-rumors/)
+- **Amy Schumer and Husband Chris Fischer ‘Privately Working Through Normal Issues’ in Marriage (Exclusive)**: [Link](https://people.com/amy-schumer-husband-chris-fischer-privately-working-through-normal-issues-marriage-exclusive-11849400)
+
+
+### teams (N/A, 14/11/2025 11:31 Lima)
+
+- **Check out the 2025 All-MLB First and Second Teams**: [Link](https://www.mlb.com/news/2025-all-mlb-teams)
+- **MLB Awards Week results: Aaron Judge, Shohei Ohtani win second consecutive MVPs**: [Link](https://www.espn.com/mlb/story/_/id/46833929/2025-mlb-awards-mvp-cy-young-rookie-manager-year-predictions-results-analysis-ohtani-judge-raleigh)
+- **All-MLB awards: Shohei Ohtani, Cal Raleigh and Aaron Judge lead league's first team**: [Link](https://sports.yahoo.com/mlb/breaking-news/article/all-mlb-awards-shohei-ohtani-cal-raleigh-and-aaron-judge-lead-leagues-first-team-041453576.html)
+
+
 ### corea del sur - bolivia (N/A, 14/11/2025 07:50 Lima)
 
 - **Ver Unitel EN VIVO ONLINE - Transmisión, Bolivia-Corea del Sur por Fútbol Canal**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/unitel-en-vivo-gratis-ver-futbol-libre-tv-bolivia-vs-corea-del-sur-hoy-online-via-fbf-play-futbol-canal-por-partido-amistoso-video-noticia/)
@@ -965,68 +1028,5 @@ Sin noticias relacionadas disponibles.
 - **ADT’s Steady Returns Stand Out In A Crowded Security Market**: [Link](https://finimize.com/content/adt-asset-snapshot)
 - **Decoding ADT Inc (ADT): A Strategic SWOT Insight**: [Link](https://www.gurufocus.com/news/3185001/decoding-adt-inc-adt-a-strategic-swot-insight?mobile=true)
 - **ADT Inc expected to post earnings of 21 cents a share - Earnings Preview**: [Link](https://www.tradingview.com/news/reuters.com,2025:newsml_L8N3WC1XC:0-adt-inc-expected-to-post-earnings-of-21-cents-a-share-earnings-preview/)
-
-
-### sinner (N/A, 10/11/2025 15:28 Lima)
-
-- **ATP Finals tennis: Jannik Sinner v Felix Auger-Aliassime – live**: [Link](https://www.theguardian.com/sport/live/2025/nov/10/atp-finals-tennis-jannik-sinner-v-felix-auger-aliassime-live)
-- **2025 Nitto ATP Finals Betting Odds for Men’s Singles**: [Link](https://www.bleachernation.com/picks/2025/11/08/2025-nitto-atp-finals-betting-odds-for-mens-singles/)
-- **ATP Finals Jannik Sinner vs Felix Auger-Aliassime 🧠 Form & Context Jannik Sinner 🏠 Turin factor: fast indoor, slight altitude, raucous home crowd—perfect for his first-strike baseline game. 🏆 Defending champ: finalist in 2023, champion in 2024; chasing a rare**: [Link](https://x.com/Probahis/status/1987605086135316700)
-
-
-### adt vs chankas (N/A, 10/11/2025 15:28 Lima)
-
-- **Hoy, ADT vs Chankas EN VIVO: hora y dónde ver la fecha 18 del Torneo Clausura**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/adt-vs-chankas-en-vivo-hora-canal-tv-y-donde-ver-la-fecha-18-del-torneo-clausura-l1max-l1play-video-resumen-y-goles-video-tdpe-noticia/)
-- **Liga 1: ADT de Tarma se enfrenta ante la visita Los Chankas por la fecha 18**: [Link](https://rpp.pe/futbol/descentralizado/liga-1-adt-de-tarma-se-enfrenta-ante-la-visita-los-chankas-por-la-fecha-18-noticia-1663082)
-- **AD Tarma vs Los Chankas pronostico y comparación de cuotas 10.11.2025**: [Link](https://www.livetipsportal.com/es/pronosticos-apuestas-deportivas/ad-tarma-vs-los-chankas-primera-division-11445227/)
-
-
-### funko (N/A, 10/11/2025 15:28 Lima)
-
-- **Funko Pop Sounds Like It's In Serious Trouble With Massive Debt**: [Link](https://kotaku.com/funko-pop-starnger-things-bitty-bankrupt-2000642395)
-- **Talkin’ Toys: Funko CEO Josh Simon on Making Culture POP!**: [Link](https://toybook.com/talkin-toys-funko-ceo-josh-simon-on-making-culture-pop/)
-- **Funko Reports Third Quarter 2025 Financial Results**: [Link](https://www.jedinews.com/?p=292622)
-
-
-### onpe (N/A, 10/11/2025 15:28 Lima)
-
-- **Vizcarra apostó y reculó. Una crónica de Fernando Vivas sobre su frustrada candidatura como vicepresidente**: [Link](https://elcomercio.pe/politica/martin-vizcarra-aposto-y-reculo-una-cronica-de-fernando-vivas-sobre-su-frustrada-candidatura-como-vicepresidente-mario-vizcarra-vladimir-cerron-arturo-fernandez-tlcnota-noticia/)
-- **Martín Vizcarra fuera de las Elecciones: ONPE rechaza su inscripción en la plancha de Perú Primero**: [Link](https://www.infobae.com/peru/2025/11/08/martin-vizcarra-fuera-de-las-elecciones-onpe-rechaza-su-inscripcion-en-la-plancha-de-peru-primero/)
-- **Martín Vizcarra señala que ONPE eliminó su candidatura y anuncia nueva fórmula presidencial en Perú Primero**: [Link](https://lpderecho.pe/martin-vizcarra-senala-onpe-elimino-candidatura-anuncia-nueva-formula-presidencial-peru-primero/)
-
-
-### burgos vs (N/A, 10/11/2025 15:28 Lima)
-
-- **Preview:Burgos vs Castellon - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/burgos/preview/burgos-vs-castellon-prediction-team-news-lineups_585406.html)
-- **The magic of lower leagues in Europe: Accumulator Tips for November 10, 2025**: [Link](https://www.telecomasia.net/sports-betting/tips/accumulator/accumulator-tips-for-today-prediction-betting-tips-odds-10-november-2025/)
-- **Burgos vs Castellon Prediction and Betting Tips | November 10th 2025**: [Link](https://www.sportskeeda.com/football/burgos-vs-castellon-prediction-betting-tips-november-10th-2025)
-
-
-### sentinel (N/A, 10/11/2025 15:28 Lima)
-
-- **Michael Cooper Obituary**: [Link](https://www.knoxnews.com/obituaries/pokr1327035)
-- **After a nudge, Delray gets it right | Editorial**: [Link](https://www.sun-sentinel.com/2025/11/10/after-a-nudge-delray-gets-it-right-editorial/)
-- **Which Democrats voted to end shutdown**: [Link](https://www.bbc.com/news/articles/c7974x7248go)
-
-
-### venezuela sub-17 - haití sub-17 (N/A, 10/11/2025 11:32 Lima)
-
-- **Partido de Venezuela-Haití Sub 17 EN VIVO ONLINE: alineaciones y dónde ver transmisión**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/venezuela-vs-haiti-sub-17-en-vivo-gratis-hoy-via-futbol-libre-tv-televen-directv-horarios-canales-tv-y-donde-ver-partido-por-mundial-sub-17-video-noticia/)
-- **Venezuela vs. Haití EN VIVO vía DIRECTV, Televen y Fútbol Libre TV por Mundial Sub-17**: [Link](https://depor.com/futbol-internacional/resto-del-mundo/venezuela-vs-haiti-en-vivo-hoy-gratis-directv-futbol-libre-tv-televen-dsports-dgo-en-directo-online-por-internet-mundial-sub-17-video-noticia/)
-- **¡Llegó el momento! La Vinotinto de Vizcarrondo afila las garras para la última fecha**: [Link](https://meridiano.net/futbol/la-vinotinto/llego-el-momento-la-vinotinto-de-vizcarrondo-afila-las-garras-para-la-ultima-fecha--202511918140)
-
-
-### the killers (N/A, 10/11/2025 11:32 Lima)
-
-- **The Killers vuelve a Perú para un esperado concierto: ¿Cuándo y dónde será el show?**: [Link](https://elcomercio.pe/luces/musica/the-killers-vuelve-a-peru-para-un-esperado-concierto-cuando-y-donde-sera-el-show-costa-21-celebs-ultimas-noticia/)
-- **The Killers confirmó concierto en Lima para el 2026**: [Link](https://www.americatv.com.pe/noticias/espectaculos/the-killers-anuncia-concierto-lima-n512845)
-- **The Killers regresan a Perú: los poetas del rock alternativo anuncian concierto tras ocho años de espera**: [Link](https://rpp.pe/musica/conciertos/the-killers-en-lima-2026-confirman-regreso-de-banda-de-rock-alternativo-en-costa-21-cuando-sera-noticia-1663172)
-
-
-### salim vera (N/A, 10/11/2025 11:32 Lima)
-
-- **Salim Vera se casó y lloró de emoción al ver a su novia Claudia Sobenes llegar al altar**: [Link](https://elcomercio.pe/tvmas/farandula/salim-vera-se-caso-y-lloro-de-emocion-al-ver-a-su-novia-claudia-sobenes-llegar-al-altar-ultimas-noticia/)
-- **Salim Vera y Claudia Sobenes se casaron en Arequipa: elegancia, rock y sentido homenaje a la madre del cantante**: [Link](https://www.infobae.com/peru/2025/11/09/salim-vera-y-claudia-sobenes-se-casaron-en-arequipa-elegancia-rock-y-romantico-homenaje/)
-- **Entre lágrimas y música: así fue la boda de Salim Vera y Claudia Sobenes [VIDEO]**: [Link](https://rpp.pe/videos/entretenimiento/salim-vera-y-claudia-sobenes-se-casaron-asi-fue-la-boda-en-arequipa-video-noticia-1663078)
 
 
