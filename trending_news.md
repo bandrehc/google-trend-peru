@@ -1,3 +1,24 @@
+### corea del sur - bolivia (N/A, 14/11/2025 07:50 Lima)
+
+- **Ver Unitel EN VIVO ONLINE - Transmisión, Bolivia-Corea del Sur por Fútbol Canal**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/unitel-en-vivo-gratis-ver-futbol-libre-tv-bolivia-vs-corea-del-sur-hoy-online-via-fbf-play-futbol-canal-por-partido-amistoso-video-noticia/)
+- **A qué hora juega Bolivia vs Corea del Sur: partido amistoso en Daejeon por fecha FIFA 2025**: [Link](https://www.infobae.com/peru/deportes/2025/11/14/a-que-hora-juega-bolivia-vs-corea-del-sur-partido-amistoso-daejeon-fecha-fifa-2025-horario/)
+- **Amistoso internacional: Rep. de Corea y Bolivia se enfrentan por un duelo amistoso**: [Link](https://rpp.pe/futbol/ligas-internacionales/amistoso-internacional-rep-de-corea-y-bolivia-se-enfrentan-por-un-duelo-amistoso-noticia-1663583)
+
+
+### metro (N/A, 14/11/2025 07:50 Lima)
+
+- **Metro Detroit could see Northern Lights ahead of warmup**: [Link](https://www.clickondetroit.com/weather/2025/11/13/metro-detroit-could-see-northern-lights-ahead-of-warmup/)
+- **Metro Detroit Weather: Milder temps return today**: [Link](https://www.wxyz.com/weather/forecast/todays-forecast/metro-detroit-weather-milder-temps-return-today)
+- **Michigan set to warm up after first snow of the season: Here's how much**: [Link](https://www.bigrapidsnews.com/news/article/michigan-warm-up-weekend-21169204.php)
+
+
+### angola vs (N/A, 14/11/2025 07:50 Lima)
+
+- **Argentina vs Angola en vivo: cuándo juegan, horarios y canales de TV para ver partido**: [Link](https://elcomercio.pe/deporte-total/argentina/argentina-vs-angola-en-vivo-gratis-hoy-via-tyc-sports-telefe-tv-publica-futbol-libre-tv-a-que-hora-juegan-canales-tv-y-donde-ver-partido-amistoso-con-lionel-messi-video-noticia/)
+- **El regreso de Lionel Messi a África, escenario de una de sus grandes frustraciones**: [Link](https://www.espn.com.pe/futbol/mundial/nota/_/id/15946480/regreso-lionel-messi-africa-escenario-grandes-frustraciones)
+- **Argentina vs Angola en vivo: ¿a qué hora juegan en Luanda y dónde ver amistoso por fecha FIFA con Lionel Messi?**: [Link](https://rpp.pe/futbol/futbol-mundial/argentina-vs-angola-en-vivo-a-que-hora-juegan-en-luanda-y-donde-ver-amistoso-por-fecha-fifa-con-lionel-messi-via-tyc-sports-gratis-partidos-de-hoy-noticia-1663744)
+
+
 ### precio del dólar perú (N/A, 14/11/2025 03:32 Lima)
 
 - **Precio del dólar con alza: Así cerró el tipo de cambio hoy 13 de noviembre en Perú**: [Link](https://www.infobae.com/peru/2025/11/12/peru-cotizacion-de-apertura-del-dolar-hoy-12-de-noviembre-de-usd-a-pen/)
@@ -1007,26 +1028,5 @@ Sin noticias relacionadas disponibles.
 - **Salim Vera se casó y lloró de emoción al ver a su novia Claudia Sobenes llegar al altar**: [Link](https://elcomercio.pe/tvmas/farandula/salim-vera-se-caso-y-lloro-de-emocion-al-ver-a-su-novia-claudia-sobenes-llegar-al-altar-ultimas-noticia/)
 - **Salim Vera y Claudia Sobenes se casaron en Arequipa: elegancia, rock y sentido homenaje a la madre del cantante**: [Link](https://www.infobae.com/peru/2025/11/09/salim-vera-y-claudia-sobenes-se-casaron-en-arequipa-elegancia-rock-y-romantico-homenaje/)
 - **Entre lágrimas y música: así fue la boda de Salim Vera y Claudia Sobenes [VIDEO]**: [Link](https://rpp.pe/videos/entretenimiento/salim-vera-y-claudia-sobenes-se-casaron-asi-fue-la-boda-en-arequipa-video-noticia-1663078)
-
-
-### taylor fritz (N/A, 10/11/2025 11:32 Lima)
-
-- **ATP Finals 2025: Taylor Fritz beats Lorenzo Musetti before Jannik Sinner faces Felix Auger-Aliassime**: [Link](https://www.bbc.com/sport/tennis/articles/c5y0rvwl2w6o)
-- **ATP Finals — Lorenzo Musetti vs Taylor Fritz 🧠 Form & Context Lorenzo Musetti ✅ First ATP Finals appearance; clinched spot after a heavy autumn workload. 🔋 Athens last week: R16→F with three three-setters, lost the final to Djokovic (4–6, 6–3, 5–7). 2025: 4**: [Link](https://x.com/Probahis/status/1987603880377741615)
-- **Highlights: Fritz downs Musetti in Nitto ATP Finals 2025 opener**: [Link](https://www.atptour.com/en/video/highlights-fritz-downs-musetti-in-nitto-atp-finals-2025-opener)
-
-
-### face (N/A, 10/11/2025 11:32 Lima)
-
-- **Trump draws boos, cheers at Washington Commanders game. Watch video.**: [Link](https://www.usatoday.com/story/news/politics/2025/11/10/trump-booed-commanders-nfl/87192454007/)
-- **Column | Trump’s visit flies in the face of his past with the NFL and its players**: [Link](https://www.washingtonpost.com/sports/2025/11/09/barry-svrluga-commanders-trump-nfl/)
-- **Amon-Ra St. Brown celebrated his TD by pointing up to a suite and doing the "Trump dance" with President Donald Trump at the Lions-Commanders game. See link below ⬇️ bit.ly/43kM8Hb**: [Link](https://www.facebook.com/detroitfreepress/posts/amon-ra-st-brown-celebrated-his-td-by-pointing-up-to-a-suite-and-doing-the-trump/1280467160792100/)
-
-
-### retiro afp cronograma (N/A, 10/11/2025 11:32 Lima)
-
-- **Retiro AFP 2025: estas son las últimas tres fechas por el último dígito del DNI del cronograma regular**: [Link](https://www.infobae.com/peru/2025/11/09/retiro-afp-2025-estas-son-las-tres-ultimas-fechas-por-el-ultimo-digito-del-dni-del-cronograma-regular/)
-- **RETIRO AFP - LINK para solicitar hasta 4 UIT, según DNI: Plataformas oficiales y pasos para iniciar tu registro online**: [Link](https://elcomercio.pe/respuestas/tramites/retiro-afp-link-para-solicitar-hasta-4-uit-segun-dni-plataformas-oficiales-y-pasos-para-iniciar-tu-registro-online-de-forma-segura-tdpe-noticia/)
-- **Octavo retiro de AFP 2025: link oficial y cómo hacer registro de solicitud si tu DNI termina en 6 según el cronograma**: [Link](https://gestion.pe/mix/mi-bolsillo/octavo-retiro-de-afp-2025-cuando-y-como-registrar-solicitud-hoy-si-tu-dni-termina-en-6-segun-fecha-del-cronograma-nnda-nnrt-noticia/)
 
 
