@@ -1,3 +1,70 @@
+### marcha 14 de noviembre (N/A, 14/11/2025 15:27 Lima)
+
+- **Minedu suspende clases presenciales este viernes 14 de noviembre en Lima y Callao por paro de transportistas**: [Link](https://www.infobae.com/peru/2025/11/13/minedu-dispone-clases-virtuales-por-paro-de-transportistas-en-lima-y-callao-este-viernes-14-de-noviembre/)
+- **Transportistas y jóvenes de la Generación Z marcharán este viernes 14 de noviembre para exigir la derogatoria de las “leyes procrimen”**: [Link](https://rpp.pe/lima/actualidad/transportistas-y-jovenes-de-la-generacion-z-marcharan-este-viernes-14-de-noviembre-para-exigir-la-derogatoria-de-las-leyes-procrimen-noticia-1663734)
+- **Escolares tendrán clases virtuales este viernes 14 ante paro de sector de transportistas**: [Link](https://elperuano.pe/noticia/282987-escolares-tendran-clases-virtuales-este-viernes-14-ante-paro-de-sector-de-transportistas)
+
+
+### alexander zverev (N/A, 14/11/2025 15:27 Lima)
+
+- **Alexander Zverev v Felix Auger-Aliassime: ATP Finals tennis – live**: [Link](https://www.theguardian.com/sport/live/2025/nov/14/alexander-zverev-v-felix-auger-aliassime-atp-finals-tennis-live)
+- **Zverev vs Auger-Aliassime Predictions, Picks & Odds**: [Link](https://www.sportsbettingdime.com/news/tennis/zverev-auger-aliassime-predictions-picks-odds/)
+- **ATP Finals Friday, November 14: Tennis Best Bets, Predictions, Top Picks**: [Link](https://vsin.com/tennis/atp-finals-friday-november-14-tennis-best-bets-predictions-top-picks/)
+
+
+### valladolid - u. d. las palmas (N/A, 14/11/2025 15:27 Lima)
+
+- **Partidos de fútbol de hoy: horario, canal y dónde ver por TV**: [Link](https://www.mundodeportivo.com/horarios/futbol/20251114/1002567911/partidos-futbol-hoy-horario-canal-donde-ver-tv.html)
+- **Valladolid - Las Palmas, en directo**: [Link](https://as.com/futbol/segunda/valladolid-las-palmas-en-directo-f202511-n/)
+- **Kirian y Marvin entran en el once de la UD para enfrentarse al Valladolid**: [Link](https://tiempodecanarias.com/noticia/deportes/kirian-y-marvin-entran-en-el-once-de-la-ud-para-enfrentarse-al-valladolid)
+
+
+### alemania (N/A, 14/11/2025 15:27 Lima)
+
+- **Alemania destinará €150 millones a armamento para Ucrania**: [Link](https://www.dw.com/es/alemania-destinar%C3%A1-otros-150-millones-de-euros-a-la-compra-de-armamento-para-ucrania/a-74754884)
+- **Países bálticos y nórdicos financian compra de paquete de equipamiento militar a EE. UU. para Ucrania**: [Link](https://es-us.noticias.yahoo.com/pa%C3%ADses-b%C3%A1lticos-n%C3%B3rdicos-financian-compra-025852819.html)
+- **Los países nórdicos y bálticos acuerdan invertir más de 400 millones de euros en armas estadounidenses para...**: [Link](https://www.abc.es/internacional/paises-nordicos-balticos-acuerdan-invertir-400-millones-20251113175847-nt.html)
+
+
+### gibraltar vs (N/A, 14/11/2025 15:27 Lima)
+
+- **Gibraltar vs Montenegro: cómo verlo, probabilidades, vista previa de la WCQ**: [Link](https://kancha.pe/noticias-urgente/gibraltar-vs-montenegro-como-verlo-probabilidades-vista-previa-de-la-wcq/81625/)
+
+
+### montenegro vs (N/A, 14/11/2025 15:27 Lima)
+
+- **Montenegro vs Croacia pronostico y comparación de cuotas 17.11.2025**: [Link](https://www.livetipsportal.com/es/pronosticos-apuestas-deportivas/montenegro-vs-croacia-clas-mundial-europa-10799531/)
+- **Gibraltar vs Montenegro: cómo verlo, probabilidades, vista previa de la WCQ**: [Link](https://kancha.pe/noticias-urgente/gibraltar-vs-montenegro-como-verlo-probabilidades-vista-previa-de-la-wcq/81625/)
+
+
+### marruecos - mozambique (N/A, 14/11/2025 15:27 Lima)
+
+- **Marruecos - Mozambique, en vivo: amistoso internacional, hoy en directo**: [Link](https://as.com/futbol/internacional/marruecos-mozambique-en-vivo-amistoso-internacional-hoy-en-directo-f202511-d/)
+- **Tarifa se Prepara para Inaugurar la Joyas Deportiva del Norte con Inéditas Medidas Técnicas y de Seguridad**: [Link](https://tanja24.com/es/2025/11/14/tarifa-se-prepara-para-inaugurar-la-joyas-deportiva-del-norte-con-ineditas-medidas-tecnicas-y-de-seguridad/)
+- **Acceso Estadio, la información en tiempo real sobre la entrada al Gran Estadio de Tánger**: [Link](https://ar.yabiladi.com/articles/details/181183/acceso-estadio-informacion-tiempo-real.html)
+
+
+### luxemburgo - alemania (N/A, 14/11/2025 15:27 Lima)
+
+- **Luxemburgo - Alemania en directo: clasificación Mundial 2026 hoy, en vivo**: [Link](https://as.com/futbol/internacional/luxemburgo-alemania-en-directo-clasificacion-mundial-2026-hoy-en-vivo-f202511-d/)
+- **Luxemburgo vs Alemania: Apuestas, Pronóstico y Cuotas**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/internacional/2025/noviembre/pronostico-luxemburgo-vs-alemania-14-11-25)
+- **Carrusel Clasificación Mundial, en directo: Alemania, Países Bajos, Polonia y Croacia, hoy en vivo**: [Link](https://www.sport.es/es/noticias/futbol-internacional/carrusel-clasificacion-mundial-directo-alemania-123723491)
+
+
+### polonia - países bajos (N/A, 14/11/2025 15:27 Lima)
+
+- **Polonia - Holanda, en directo: Clasificación al Mundial 2026, hoy en vivo**: [Link](https://as.com/futbol/mundial/polonia-holanda-en-directo-clasificacion-al-mundial-2026-hoy-en-vivo-f202511-d/)
+- **Apuestas y Pronóstico del Polonia vs Países Bajos 14/11/25**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/internacional/2025/noviembre/pronostico-polonia-vs-paises-bajos-14-11-25)
+- **¿Juega Robert Lewandowski? Las alineaciones de Polonia vs. Países Bajos por las Eliminatorias UEFA**: [Link](https://bolavip.com/mx/eliminatorias-uefa/juega-robert-lewandowski-las-alineaciones-de-polonia-vs-paises-bajos-por-las-eliminatorias-uefa)
+
+
+### malta (N/A, 14/11/2025 15:27 Lima)
+
+- **Maritime World: A Made-in-Malta platform welcoming the global maritime industry**: [Link](https://timesofmalta.com/article/maritime-world-madeinmalta-platform-global-maritime-industry-a2.1119511)
+- **Preview:Finland vs Malta - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/malta/world-cup/preview/finland-vs-malta-prediction-team-news-lineups_585615.html)
+- **Malta's only shot on target beats Finland in World Cup qualifying**: [Link](https://www.record-eagle.com/ap/sports/maltas-only-shot-on-target-beats-finland-in-world-cup-qualifying/article_be0ef1bd-0ffe-5f33-af62-3ef5601ef62f.html)
+
+
 ### angola (N/A, 14/11/2025 11:31 Lima)
 
 - **"Não se justifica usar dinheiro público para um jogo"**: [Link](https://www.dw.com/pt-002/angola-n%C3%A3o-se-justifica-usar-dinheiro-p%C3%BAblico-para-um-jogo-de-futebol/a-74729984)
@@ -960,73 +1027,5 @@ Sin noticias relacionadas disponibles.
 - **Pronóstico Argentinos Juniors CA Belgrano - Liga Profesional Argentina 10/11/25**: [Link](https://www.sportytrader.com/es/pronosticos/argentinos-jrs-ca-belgrano-304442/)
 - **Qué canal pasa Argentinos vs Belgrano hoy: dónde ver GRATIS y EN VIVO el partido de la Liga Profesional**: [Link](https://www.365scores.com/es/news/argentinos-vs-belgrano-donde-ver-liga/)
 - **La Previa: Tiempo de Revancha -**: [Link](https://argentinospasion.com.ar/2025/11/09/la-previa-tiempo-de-revancha-3/)
-
-
-### aucas - delfín (N/A, 10/11/2025 20:57 Lima)
-
-- **Pronóstico Aucas Delfín - Liga Pro Ecuador 10/11/25**: [Link](https://www.sportytrader.com/es/pronosticos/aucas-delfin-sc-303555/)
-- **SD Aucas vs Delfin SC: pronósticos, cuotas, y datos para apostar!**: [Link](https://www.apwin.com/es/pronosticos/sd-aucas-vs-delfin-sc-pronostico-liga-pro-11-11-2025/)
-- **¡Marcador de tenis! Aucas humilló 6-0 al Delfín en la LigaPro**: [Link](https://revistawinner.ec/marcador-de-tenis-aucas-humillo-6-0-al-delfin-en-la-ligapro/)
-
-
-### precio del dólar hoy perú (N/A, 10/11/2025 20:57 Lima)
-
-- **Precio del dólar vuelve a caer: Así cerró el tipo de cambio hoy 10 de noviembre en Perú**: [Link](https://www.infobae.com/peru/2025/11/10/peru-cotizacion-de-apertura-del-dolar-hoy-10-de-noviembre-de-usd-a-pen/)
-- **Precio del dólar en Perú del domingo 9 de noviembre: cuál fue el tipo de cambio**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-2025-cuanto-esta-el-dolar-este-domingo-9-de-noviembre-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
-- **Dólar hoy: cierra a S/3.369 y cae respecto al vienes**: [Link](https://peru21.pe/economia/dolar-hoy-cierra-s3369-y-cae-respecto-al-vienes/)
-
-
-### hornets - lakers (N/A, 10/11/2025 20:57 Lima)
-
-- **How to Watch Lakers vs Hornets: Live Stream NBA, TV Channel**: [Link](https://www.newsweek.com/how-to-watch-lakers-vs-hornets-live-stream-nba-tv-channel-11025381)
-- **Los Angeles Lakers vs. Charlotte Hornets prediction, pick for Monday 11/10/25**: [Link](https://dknetwork.draftkings.com/2025/11/10/los-angeles-lakers-vs-charlotte-hornets-prediction-pick-for-monday-11-10-25/)
-- **Hornets-Lakers game will be without top stars, but Luka Doncic looks to continue red-hot season**: [Link](https://www.qcnews.com/nba/hornets-lakers-game-will-be-without-top-stars-but-luka-doncic-looks-to-continue-red-hot-season/)
-
-
-### botafogo sp (N/A, 10/11/2025 20:57 Lima)
-
-- **Com vitória do Botafogo-SP, Volta Redonda é rebaixado para a Série C**: [Link](https://www.cnnbrasil.com.br/esportes/futebol/com-vitoria-do-botafogo-sp-volta-redonda-e-rebaixado-para-a-serie-c/)
-- **Amazonas FC perde fora de casa e faz cálculos para ficar na Série B**: [Link](https://www.acritica.com/esportes/amazonas-fc-perde-fora-de-casa-e-faz-calculos-para-ficar-na-serie-b-1.388549)
-- **Botafogo-SP vence, deixa o Z4 e aproxima Amazonas do rebaixamento**: [Link](https://www.ogol.com.br/noticias/botafogo-sp-vence-deixa-o-z4-e-aproxima-amazonas-do-rebaixamento/973513)
-
-
-### vix (N/A, 10/11/2025 20:57 Lima)
-
-- **Comcast Expands NOW TV Latino With Univision, ViX, and 100+ New Channels**: [Link](https://www.mychesco.com/a/news/regional/comcast-expands-now-tv-latino-with-univision-vix-and-100-new-channels/)
-
-
-### monster hunter (N/A, 10/11/2025 20:57 Lima)
-
-- **Monster Hunter Stories 3 Is Now Available to Pre-Order**: [Link](https://www.restart.run/articles/monster-hunter-stories-3-twisted-reflection-is-now-available-to-pre-order)
-- **Monster Hunter Stories 3: Twisted Reflection Pre-Orders Open**: [Link](https://www.nintendo-insider.com/monster-hunter-stories-3-twisted-reflection-pre-orders-open/)
-- **Monster Hunter Wilds Broke Records Then Broke Its Momentum**: [Link](https://www.noobfeed.com/news/monster-hunter-wilds-broke-records%20momentum)
-
-
-### angelica vale (N/A, 10/11/2025 15:28 Lima)
-
-- **Angélica Vale se divorcia tras 14 años de matrimonio, ¡Otto Padrón presentó la demanda!**: [Link](https://peopleenespanol.com/angelica-vale-se-divorcia-de-otto-padron-11846488)
-- **Angélica Vale se divorcia de Otto Padrón: revelan detalles de la demanda**: [Link](https://www.infobae.com/mexico/2025/11/10/angelica-vale-se-divorcia-de-otto-padron-revelan-detalles-de-la-demanda/)
-- **Angélica Vale llora al hablar de su divorcio: se enteró de la demanda por “sorpresa”**: [Link](https://www.univision.com/famosos/angelica-vale-divorcio-otto-padron-reacciona)
-
-
-### burgos cf (N/A, 10/11/2025 15:28 Lima)
-
-- **Pronóstico Burgos CF Castellón - LaLiga 2 10/11/25**: [Link](https://www.sportytrader.com/es/pronosticos/burgos-cf-castellon-304625/)
-- **Retabet: apuesta gratis por cada gol anulado por el VAR en el partido Burgos vs Castellón**: [Link](https://legalbet.es/bonos/retabet-apuesta-gratis-por-cada-gol-anulado-por-el-var-en-el-partido-burgos-vs-castellon/)
-- **La ocasión para reivindicarse del CD Castellón**: [Link](https://castellonaldia.elmundo.es/deportes/cd-castellon/futbol-ocasion-para-reivindicarse-del-cd-castellon-LC25149839)
-
-
-### gimnasia - vélez (N/A, 10/11/2025 15:28 Lima)
-
-- **A la espera de Riestra-Independiente, Gimnasia recibe a Vélez por la fecha 15 del Torneo Clausura: hora, TV y formaciones**: [Link](https://www.infobae.com/deportes/2025/11/10/a-la-espera-de-riestra-independiente-gimnasia-recibe-a-velez-por-la-fecha-15-del-torneo-clausura-hora-tv-y-formaciones/)
-- **Pronóstico Gimnasia Y Esgrima La Plata Vélez Sarsfield - Liga Profesional Argentina 10/11/25**: [Link](https://www.sportytrader.com/es/pronosticos/gimnasia-la-plata-velez-sarsfield-304438/)
-- **Gimnasia y Vélez empatan 0-0 por la penúltima fecha del Clausura**: [Link](https://www.ole.com.ar/gimnasia-y-esgrima/gimnasia-velez-clausura-schelotto_0_hye6Kr5xOL.html)
-
-
-### adt (N/A, 10/11/2025 15:28 Lima)
-
-- **ADT’s Steady Returns Stand Out In A Crowded Security Market**: [Link](https://finimize.com/content/adt-asset-snapshot)
-- **Decoding ADT Inc (ADT): A Strategic SWOT Insight**: [Link](https://www.gurufocus.com/news/3185001/decoding-adt-inc-adt-a-strategic-swot-insight?mobile=true)
-- **ADT Inc expected to post earnings of 21 cents a share - Earnings Preview**: [Link](https://www.tradingview.com/news/reuters.com,2025:newsml_L8N3WC1XC:0-adt-inc-expected-to-post-earnings-of-21-cents-a-share-earnings-preview/)
 
 
