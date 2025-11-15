@@ -1,3 +1,38 @@
+### melissa linares (N/A, 14/11/2025 23:27 Lima)
+
+- **Paco Bazán y Melissa Linares, del ampay en 2022 a la polémica por demanda de pensión alimentaria**: [Link](https://www.infobae.com/peru/2025/11/14/paco-bazan-y-melissa-linares-del-ampay-en-2022-a-la-polemica-por-demanda-de-pension-alimentaria/)
+- **¿Qué dijo la abogada de Paco Bazán tras ser acusado de incumplimiento con pensión a su hija?**: [Link](https://elcomercio.pe/respuestas/farandula/que-dijo-la-abogada-de-paco-bazan-tras-ser-acusado-de-incumplimiento-con-pension-a-su-hija-tdpe-noticia/)
+- **Paco Bazán rompe su silencio y niega deuda por pensión de su hija: “El colegio y el seguro están pagados”**: [Link](https://peru21.pe/espectaculos/paco-bazan-rompe-su-silencio-y-niega-deuda-por-pension-de-su-hija/)
+
+
+### alianza vs universitario (N/A, 14/11/2025 23:27 Lima)
+
+- **Franco Velazco sobre el reclamo de Alianza Lima en la final de la Liga Femenina: “De un tiempo a esta parte se caracterizan por las quejas”**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/universitario-franco-velazco-sobre-el-reclamo-de-alianza-lima-en-la-final-de-la-liga-femenina-de-un-tiempo-a-esta-parte-se-caracterizan-por-las-quejas-noticia/)
+- **“Son tonterías”: Franco Velazco habló sobre rumores de la salida de Fossati y los reclamos de Alianza Lima**: [Link](https://depor.com/futbol-peruano/descentralizado/universitario-franco-velazco-aclara-rumores-sobre-la-salida-de-jorge-fossati-y-responde-ante-reclamos-de-alianza-lima-liga-1-video-noticia/)
+- **Figura de Alianza sorprende con rotundo mensaje sobre duelo con Universitario: "Será un…."**: [Link](https://libero.pe/futbol-peruano/alianza-lima/2025/11/14/figura-de-alianza-lima-sorprende-rotundo-mensaje-partido-universitario-sera-643986)
+
+
+### spurs - warriors (N/A, 14/11/2025 23:27 Lima)
+
+- **“This n–a got to go score 46 to show the team can win” – Rashad McCants blasts Warriors for forcing 37-year-old Steph Curry to carry the entire offense**: [Link](https://www.basketballnetwork.net/latest-news/rashad-mccants-blasts-warriors-for-forcing-37-year-old-steph-curry-to-carry-the-entire-offense)
+- **How to watch Warriors vs. Spurs**: [Link](https://www.goldenstateofmind.com/warriors-game-previews/105142/how-to-watch-warriors-vs-spurs)
+- **Stephen Curry is just one game away from tying a historic NBA record currently held by Michael Jordan**: [Link](https://www.mundodeportivo.com/us/en/20251113/734467/stephen-curry-is-just-one-game-away-from-tying-historic-nba-record-currently-held-by-michael-jordan.html)
+
+
+### australia vs (N/A, 14/11/2025 23:27 Lima)
+
+- **Live: New-look Socceroos trail against Venezuela in Houston**: [Link](https://www.abc.net.au/news/2025-11-15/australia-socceroos-vs-venezuela-live-updates/106012522)
+- **Match Preview: Venezuela v CommBank Socceroos | International Friendly**: [Link](https://socceroos.com.au/news/match-preview-venezuela-v-commbank-socceroos-international-friendly)
+- **Socceroos ready to go toe-to-toe with Venezuela**: [Link](https://www.canberratimes.com.au/story/9111634/socceroos-ready-to-go-toe-to-toe-with-venezuela/)
+
+
+### venezuela - australia (N/A, 14/11/2025 23:27 Lima)
+
+- **A qué hora juega Venezuela vs Australia HOY: partido amistoso en Texas por fecha FIFA 2025**: [Link](https://www.infobae.com/peru/deportes/2025/11/14/a-que-hora-juega-venezuela-vs-australia-hoy-partido-amistoso-texas-fecha-fifa-2025-horario/)
+- **El 'tiki taka' de Venezuela: el golazo de Jesús Ramírez ante Australia tras un gran juego colectivo [VIDEO]**: [Link](https://rpp.pe/futbol/futbol-mundial/gol-venezuela-australia-jesus-ramirez-anota-tras-tiki-taka-de-la-vinotinto-noticia-1663888)
+- **VER TELEVEN EN VIVO: Venezuela vs. Australia HOY desde Texas**: [Link](https://elcomercio.pe/deporte-total/seleccion/televen-gratis-futbol-libre-tv-venezuela-vs-australia-hoy-gratis-via-futbol-libre-tv-por-partido-amistoso-link-video-noticia/)
+
+
 ### pelicans - lakers (N/A, 14/11/2025 20:52 Lima)
 
 - **Los Angeles Lakers vs New Orleans Pelicans Prediction, Pick, Odds -- 11/14**: [Link](https://www.actionnetwork.com/nba/los-angeles-lakers-vs-new-orleans-pelicans-prediction-pick-odds-friday-november-14)
@@ -994,40 +1029,5 @@ Sin noticias relacionadas disponibles.
 - **Decisión final de la FPF: lo último sobre los amistosos de Perú frente a Rusia y Chile**: [Link](https://depor.com/futbol-peruano/seleccion-peruana/peru-vs-rusia-y-chile-fpf-mantendra-amistosos-y-no-seran-reprogramados-pese-a-retraso-en-viaje-cuando-llega-seleccion-peruana-a-rusia-fecha-fifa-noticia/)
 - **El “Rusia mandará un chárter” de Ferrari y qué se reveló sobre el nuevo técnico: lo que no se vio del accidentado viaje de Perú a San Petersburgo**: [Link](https://elcomercio.pe/deporte-total/seleccion/seleccion-peruana-hoy-el-rusia-mandara-un-charter-de-jean-ferrari-y-que-se-revelo-sobre-el-nuevo-tecnico-lo-que-no-se-vio-del-accidentado-viaje-de-peru-a-san-petersburgo-tlcnota-noticia/)
 - **Joao Grimaldo fue desconvocado para los amistosos de Perú en la fecha FIFA**: [Link](https://www.espn.com.ar/futbol/mundial/nota/_/id/15939822/joao-grimaldo-fue-desconvocado-para-los-amistosos-de-peru)
-
-
-### eliminatorias europeas (N/A, 11/11/2025 11:31 Lima)
-
-- **Se definen las Eliminatorias UEFA: el panorama de cada grupo y quién puede clasificar al Mundial 2026**: [Link](https://www.espn.com.ar/futbol/mundial/nota/_/id/15895830/se-definen-eliminatorias-uefa-europa-mundial-2026-quien-puede-clasificar)
-- **Italia, Alemania o Bélgica, en el alambre: los días que decidirán los mundialistas europeos**: [Link](https://www.naiz.eus/eu/info/noticia/20251111/italia-alemania-o-belgica-en-el-alambre-los-dias-que-decidiran-los-mundialistas-europeos)
-- **Calendario completo de la Fecha 9 UEFA en la Clasificación Mundial 2026: días, horarios y partidos imperdibles**: [Link](https://www.marca.com/mx/futbol/mundial/2025/11/10/6911fad5e2704e1b458b45bf.html)
-
-
-### poder judicial delia espinoza (N/A, 11/11/2025 07:51 Lima)
-
-- **PJ ordena a la JNJ reponer a Delia Espinoza en el cargo de fiscal de la Nación dentro de los dos días siguientes a la notificación [Exp. 10506-2025-26]**: [Link](https://lpderecho.pe/pj-ordena-jnj-reponer-a-delia-espinoza-cargo-fiscal-nacion-dentro-dos-dias-siguientes-notificacion-exp-10506-2025-26/)
-- **Delia Espinoza vuelve como fiscal de la Nación: PJ advierte incumplimiento por parte de la JNJ y le ordena reponer a fiscal**: [Link](https://www.infobae.com/peru/2025/11/10/delia-espinoza-vuelve-como-fiscal-de-la-nacion-poder-judicial-ordena-a-la-jnj-reponer-a-la-fiscal/)
-- **Poder Judicial ordena a la JNJ que “cumpla con reponer” a Delia Espinoza como fiscal de la Nación**: [Link](https://elcomercio.pe/politica/justicia/delia-espinoza-poder-judicial-ordena-reponerla-como-fiscal-de-la-nacion-ministerio-publico-jnj-tomas-galvez-noticia/)
-
-
-### perú vs (N/A, 11/11/2025 07:51 Lima)
-
-- **Técnico de Rusia: "El nivel de Chile y Perú es más o menos el mismo"**: [Link](https://www.espn.com.ar/futbol/mundial/nota/_/id/15944126/tecnico-de-rusia-valeri-karpin-nivel-chile-peru-mas-o-menos-el-mismo)
-- **Perú vs Rusia: minuto a minuo de la previa del partido en San Petersburgo**: [Link](https://elcomercio.pe/deporte-total/seleccion/peru-vs-rusia-ultimas-noticias-de-la-seleccion-peruana-lbposting-noticia/)
-- **Amistoso internacional: Rusia y Perú se encuentran en un amistoso**: [Link](https://rpp.pe/futbol/ligas-internacionales/amistoso-internacional-rusia-y-peru-se-encuentran-en-un-amistoso-noticia-1663296)
-
-
-### 11 de noviembre (N/A, 11/11/2025 07:51 Lima)
-
-- **El Niño Prodigio: Horóscopo para el 10 de noviembre**: [Link](https://peopleenespanol.com/el-nino-prodigio-horoscopo-para-el-10-de-noviembre-11845856)
-- **Horóscopo del Niño Prodigio: qué le depara a cada signo del zodíaco este lunes 10 de noviembre**: [Link](https://www.cronista.com/usa/espiritual/horoscopo-del-nino-prodigio-que-le-depara-a-cada-signo-del-zodiaco-este-lunes-10-de-noviembre/)
-- **Horóscopo del Niño Prodigio: las predicciones para este domingo 9 de noviembre de 2025**: [Link](https://noticiasargentinas.com/interes-general/horoscopo-del-nino-prodigio--las-predicciones-para-este-domingo-9-de-noviembre-de-2025_a690810992686767fd171c87a)
-
-
-### españa vs (N/A, 11/11/2025 07:51 Lima)
-
-- **¿A qué hora juega FC Barcelona vs. Celta de Vigo por LaLiga EA Sports 2025 en USA, México y España?**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/a-que-hora-juega-fc-barcelona-vs-celta-de-vigo-en-vivo-por-laliga-ea-sports-2025-en-usa-mexico-y-espana-nnda-nnse-noticia/)
-- **Lewandowski rompe récord de Neymar en Barcelona con soberbio ‘Hat-trick’ [VIDEO]**: [Link](https://trome.com/deportes/futbol-internacional/lewandowski-rompe-record-de-neymar-en-barcelona-con-soberbio-hat-trick-video-noticia/)
-- **LEWANDOWSKI: «ESTAMOS A 2 PUNTOS DEL MADRID»**: [Link](https://todosport.pe/lewandowski-estamos-a-2-puntos-del-madrid/)
 
 
