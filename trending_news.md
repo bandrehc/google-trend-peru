@@ -1,3 +1,72 @@
+### godoy cruz - deportivo riestra (N/A, 15/11/2025 15:24 Lima)
+
+- **Un Godoy Cruz al borde del descenso recibe a Deportivo Riestra, que va por el boleto a la Libertadores**: [Link](https://www.espn.com.ar/futbol/argentina/nota/_/id/15959966/godoy-cruz-vs-deportivo-riestra-fecha-16-torneo-clausura-2025-equipo-fecha-hora-y-tv-en-vivo)
+- **Una finalísima ante el Malevo**: [Link](https://www.vavel.com/ar/futbol-argentino/2025/11/14/godoy-cruz/1241291-una-finalisima-ante-el-malevo.html)
+- **Pulga y el laberinto: el cómic que recorre el camino de Messi en su consagración como campeón del mundo**: [Link](https://vive.click/pulga-y-el-laberinto-el-comic-que-recorre-el-camino-de-messi-en-su-consagracion-como-campeon-del-mundo/)
+
+
+### carlos alcaraz (N/A, 15/11/2025 15:24 Lima)
+
+- **Previa de SF: Un finalista inédito ya está asegurado en las Nitto ATP Finals | ATP Tour | Tennis**: [Link](https://www.atptour.com/es/news/previa-sabado-sf-nitto-atp-finals-sinner-de-minaur-alcaraz-felix)
+- **Auger-Aliassime dio el golpe en las ATP Finals: eliminó a Zverev, se metió en semis y jugará con Alcaraz**: [Link](https://www.espn.com.ar/tenis/nota/_/id/15958949/auger-aliassime-dio-el-golpe-en-las-atp-finals-2025-elimino-a-zverev-se-metio-en-semis-jugara-con-alcaraz-resultado)
+- **Entre Alcaraz y la final maestra, el viene y va de Auger-Aliassime**: [Link](https://elpais.com/deportes/tenis/2025-11-14/entre-alcaraz-y-la-final-maestra-el-viene-y-va-de-auger-aliassime.html)
+
+
+### concierto shakira (N/A, 15/11/2025 15:24 Lima)
+
+- **Concierto de Shakira en Lima: horarios, rutas de accesos y recomendaciones para ir a su show en el Estadio Nacional**: [Link](https://www.infobae.com/peru/2025/11/13/concierto-de-shakira-en-lima-horarios-y-recomendaciones-para-ir-a-su-primer-show-en-el-estadio-nacional/)
+- **Shakira en Lima 2025: ¿quiénes son las famosas peruanas que se unen a ‘Camina con La Loba’ en sus conciertos?**: [Link](https://rpp.pe/famosos/farandula/shakira-en-lima-2025-quienes-son-las-famosas-peruanas-que-se-unen-a-camina-con-la-loba-en-sus-conciertos-noticia-1663923)
+- **ATENCIÓN: Horarios del Metropolitano y corredor Azul por conciertos de Shakira en el Estadio Nacional**: [Link](https://peru21.pe/lima/atu-amplia-horario-del-metropolitano-y-corredor-azul-por-conciertos-de-shakira/)
+
+
+### ricardo gareca (N/A, 15/11/2025 15:24 Lima)
+
+- **Perú - Ricardo Gareca respondió a Agustín Lozano tras señalar que el 'Tigre' no dijo toda la verdad sobre su salida**: [Link](https://rpp.pe/futbol/seleccion-peruana/peru-ricardo-gareca-respondio-a-agustin-lozano-tras-senalar-que-el-tigre-no-dijo-toda-la-verdad-sobre-su-salida-noticia-1663845)
+- **Gareca descartó volver a selección peruana y dijo por qué**: [Link](https://www.americatv.com.pe/deportes/seleccion/gareca-descarto-volver-seleccion-peruana-no-me-interesa-n451706)
+- **Ricardo Gareca le respondió a Agustín Lozano tras decir que hizo lo imposible para que se quede en Perú: “Tengo todas las conversaciones”**: [Link](https://www.infobae.com/peru/deportes/2025/11/14/ricardo-gareca-le-respondio-a-agustin-lozano-tras-decir-que-hizo-lo-imposible-para-que-se-quede-en-peru-tengo-todas-las-conversaciones/)
+
+
+### dinamarca (N/A, 15/11/2025 15:24 Lima)
+
+- **México logra un punto fundamental en la Billie Jean King Cup**: [Link](https://canaltenis.com/mexico-dinamarca-billie-jean-king-cup-2025/)
+- **Renata Zarazúa impulsa triunfo en Monterrey**: [Link](https://laverdadnoticias.com/sport-judge/renata-zarazua-20251115)
+- **Agustín el ‘Bebé’ Moreno, confía en el factor de la localía: “jugar en casa es una motivación extra”**: [Link](https://esto.com.mx/940275-agustin-moreno-confia-en-el-factor-de-la-localia-en-la-billie-jean-king-cup/)
+
+
+### suiza (N/A, 15/11/2025 15:24 Lima)
+
+- **Suiza promete inversiones de USD 200.000 millones en EE. UU.**: [Link](https://www.dw.com/es/suiza-promete-inversiones-de-200000-millones-de-d%C3%B3lares-en-estados-unidos/a-74753869)
+- **Estados Unidos alcanza un acuerdo para rebajar los aranceles de Suiza del 39% al 15%**: [Link](https://elpais.com/internacional/2025-11-14/estados-unidos-rebaja-los-aranceles-de-suiza-del-39-al-15.html)
+- **El propietario de Cartier predice que EEUU pronto rebajará los aranceles punitivos a Suiza**: [Link](https://www.expansion.com/economia/financial-times/2025/11/14/69173cbde5fdea36288b456f.html)
+
+
+### flow la fama (N/A, 15/11/2025 15:24 Lima)
+
+- **Capturan a 'Flow La Fama', presunto autor intelectual del asesinato de los cantantes urbanos '26is' y 'Louis Producer' en VMT**: [Link](https://larepublica.pe/sociedad/2025/11/15/capturan-a-flow-la-fama-presunto-autor-intelectual-del-doble-asesinato-de-los-cantantes-urbanos-26is-y-louis-producer-en-vmt-575085)
+- **PNP captura a sospechoso de doble crimen urbano**: [Link](https://gacetaperutv.pe/2025/11/pnp-captura-a-sospechoso-de-doble-crimen-urbano.html)
+
+
+### kosovo vs (N/A, 15/11/2025 15:24 Lima)
+
+- **Watch Slovenia vs Kosovo: TV & streaming info as both sides still have hopes of World Cup qualification**: [Link](https://www.fourfourtwo.com/team/watch-slovenia-vs-kosovo-tv-and-streaming-info-as-both-sides-still-have-hopes-of-world-cup-qualification)
+- **Lladrovci follows the Slovenia-Kosovo match: Victory is our motto from this match**: [Link](https://www.gazetaexpress.com/en/Lladrovci-is-following-the-Slovenia-Kosovo-match.-Victory-is-our-word-from-this-match./)
+- **The Dardanians held their last training session before leaving for Ljubljana.**: [Link](https://telegrafi.com/en/The-Dardanians-conducted-their-last-training-before-departing-for-Ljubljana./)
+
+
+### alianza lima vs universitario femenino (N/A, 15/11/2025 15:24 Lima)
+
+- **Alianza Lima vs Universitario: ¿Qué resultados necesitan para coronarse campeón de la Liga Femenina 2025?**: [Link](https://www.infobae.com/peru/deportes/2025/11/15/alianza-lima-vs-universitario-que-resultados-necesitan-para-coronarse-campeon-de-la-liga-femenina-2025/)
+- **Alianza Lima vs. Universitario Femenino en vivo: a qué hora juegan y dónde ver la final de vuelta del Clausura**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/ver-alianza-lima-vs-universitario-femenino-en-vivo-online-gratis-via-america-tv-canal-4-movistar-deportes-futbol-libre-tv-a-que-hora-juegan-canal-que-transmite-y-donde-ver-por-torneo-clausura-de-liga-femenina-video-noticia/)
+- **Franco Velazco envió tremendo 'dardo' contra Alianza Lima: "De un tiempo a esta parte, se caracterizan por las quejas"**: [Link](https://rpp.pe/futbol/descentralizado/universitario-franco-velazco-sobre-el-reclamo-de-alianza-lima-de-un-tiempo-a-esta-parte-se-caracterizan-por-las-quejas-noticia-1663937)
+
+
+### uruguay vs (N/A, 15/11/2025 15:24 Lima)
+
+- **México vs. Uruguay: posibles alineaciones, partido amistoso**: [Link](https://www.espn.com.ar/futbol/selecciones/nota/_/id/15955951/mexico-vs-uruguay-alineaciones-formaciones-amistoso-2025)
+- **Amistoso internacional: México y Uruguay juegan un duelo amistoso**: [Link](https://rpp.pe/futbol/ligas-internacionales/amistoso-internacional-mexico-y-uruguay-juegan-un-duelo-amistoso-noticia-1663841)
+- **México vs Uruguay: Apuestas, Pronóstico y Cuotas**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/2025/noviembre/pronostico-mexico-vs-uruguay-15-11-25)
+
+
 ### georgia - españa (N/A, 15/11/2025 11:26 Lima)
 
 - **Huijsen, en riesgo de dejar la concentración**: [Link](https://as.com/futbol/seleccion/samu-y-de-frutos-descartes-ante-georgia-f202511-n/)
@@ -961,74 +1030,5 @@ Sin noticias relacionadas disponibles.
 - **Gruber, un central de molde europeo y espíritu inca: ¿Qué hace al ‘eurocausa’ germano vital para el recambio y cómo puede sumar en Perú?**: [Link](https://elcomercio.pe/deporte-total/seleccion/seleccion-peruana-hoy-fabio-gruber-un-central-de-molde-europeo-y-espiritu-inca-que-hace-al-eurocausa-germano-vital-para-el-recambio-y-como-puede-sumar-en-peru-tlcnota-noticia/)
 - **Jhonny Vidales: La satisfacción de ser convocado y la curiosa anécdota compartida con Lapadula**: [Link](https://depor.com/futbol-peruano/seleccion-peruana/seleccion-peruana-jhonny-vidales-se-mostro-emocionado-por-volver-a-una-convocatoria-tras-mas-de-10-anos-y-conto-como-conocio-a-gianluca-lapadula-video-noticia/)
 - **Fabio Gruber practicó por primera vez como seleccionado peruano en Rusia**: [Link](https://www.espn.com.pe/futbol/nota/_/id/15948110/primer-entrenamiento-de-fabio-gruber-con-la-seleccion-de-peru)
-
-
-### tunez vs (N/A, 12/11/2025 11:33 Lima)
-
-- **Túnez vs Mauritania EN VIVO, minuto a minuto en partido amistoso**: [Link](https://www.vavel.com/mx/futbol-internacional/2025/11/12/1241004-tunez-vs-mauritania-en-vivo-amistoso-internacional.html)
-- **Túnez vs Mauritania: pronósticos, cuotas, y datos para apostar!**: [Link](https://www.apwin.com/es/pronosticos/tunisia-vs-mauritania-pronostico-amistosos-internacionales-12-11-2025/)
-- **Austria vs. Túnez por Mundial Sub 17, todo lo que tenés que saber**: [Link](https://www.directvsports.com/futbol/Austria-vs.-Tunez-por-Mundial-Sub-17-todo-lo-que-tenes-que-saber-20251112-0006.html)
-
-
-### accidente arequipa (N/A, 12/11/2025 11:33 Lima)
-
-- **Fatal accidente en Arequipa: al menos 37 muertos al desbarrancarse bus interprovincial**: [Link](https://rpp.pe/peru/arequipa/arequipa-al-menos-17-muertos-y-39-heridos-al-desbarrancarse-bus-interprovincial-noticia-1663448)
-- **Más de 30 muertos y decenas de heridos por la caída de un autobús al vacío en Perú**: [Link](https://cnnespanol.cnn.com/2025/11/12/latinoamerica/peru-caida-autobus-decenas-muertos-orix)
-- **Grave accidente en Arequipa: bus cae a abismo y deja más de 30 personas fallecidas**: [Link](https://andina.pe/agencia/noticia-grave-accidente-arequipa-bus-cae-a-abismo-y-deja-mas-30-personas-fallecidas-1051648.aspx)
-
-
-### jorge fossati (N/A, 12/11/2025 11:33 Lima)
-
-- **¿Peligra continuidad de Fossati? Dos clubes mexicanos muestran interés en el técnico de la U**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/universitario-jorge-fossati-interesa-a-necaxa-y-pumas-unam-de-la-liga-mx-liga-1-noticia/)
-- **‘Chorri’ Palacios cuestionó a Jorge Fossati por su continuidad en Universitario: “Debería estar agradecido después del fracaso en la selección”**: [Link](https://www.infobae.com/peru/deportes/2025/11/10/chorri-palacios-cuestiono-a-jorge-fossati-por-su-continuidad-en-universitario-deberia-estar-agradecido-despues-del-fracaso-en-la-seleccion/)
-- **Franco Velasco anuncia nuevos retos tras el tricampeonato**: [Link](https://ahora.com.pe/franco-velasco-anuncia-nuevos-retos-tras-el-tricampeonato/)
-
-
-### ben shelton (N/A, 12/11/2025 11:33 Lima)
-
-- **Auger-Aliassime keeps SF hopes alive with Shelton comeback at Nitto ATP Finals**: [Link](https://www.atptour.com/en/news/shelton-auger-aliassime-nitto-atp-finals-2025-wednesday)
-- **Ryan Harrison staggered by what happened on Ben Shelton's serve in his match with Felix Auger-Aliassime**: [Link](https://tennishead.net/ryan-harrison-staggered-by-what-happened-on-ben-sheltons-serve-in-his-match-with-felix-auger-aliassime/)
-- **ATP Finals Ben Shelton vs Felix Auger-Aliassime 🧠 Form & Context Ben Shelton (USA, #5, lefty) • 2025: 40–23 overall | 4–4 Indoors, 23–9 Hard • Turin debut; opened with 3–6, 6–7 vs Zverev after leading 6–3 in the TB • Post-USO fitness/prep hasn’t been ideal**: [Link](https://x.com/Probahis/status/1988375571294822484)
-
-
-### paro 14 de noviembre (N/A, 12/11/2025 11:33 Lima)
-
-- **Paro nacional del 14 de noviembre: estas son las regiones que confirmaron su participación en la marcha de la Generación Z**: [Link](https://www.infobae.com/peru/2025/11/12/paro-nacional-del-14-de-noviembre-estas-son-las-regiones-que-confirmaron-su-participacion-en-la-marcha-de-la-generacion-z/)
-- **Paro de transportistas 14 de noviembre: estos son los gremios que sí acatarán y los que no**: [Link](https://larepublica.pe/sociedad/2025/11/11/paro-del-14-de-noviembre-estos-son-los-gremios-de-transportistas-que-si-acataran-y-los-que-no-ntpe-984929)
-- **¿Minedu suspende las clases escolares este viernes 14 de noviembre a nivel nacional por el paro? Esto se sabe**: [Link](https://elpopular.pe/actualidad/2025/11/11/minedu-suspende-las-clases-escolares-este-viernes-14-de-noviembre-a-nivel-nacional-por-el-parto-esto-se-sabe-672364)
-
-
-### diario el peruano (N/A, 12/11/2025 07:53 Lima)
-
-- **Periodistas de El Peruano participaron en conversatorio por sus 200 años en la UBM**: [Link](https://elperuano.pe/noticia/282844-periodistas-de-el-peruano-participaron-en-conversatorio-por-sus-200-anos-en-la-ubm)
-- **La Universidad Jaime Bausate y Meza organiza el conversatorio “El Peruano 200 años"| Galería Fotográfica**: [Link](https://andina.pe/agencia/galeria-la-universidad-jaime-bausate-y-meza-organiza-conversatorio-peruano-200-anos-27642.aspx)
-- **Congreso de la República saluda al Diario Oficial El Peruano por sus 200 años**: [Link](https://www.apnoticias.pe/peru/andina/congreso-de-la-republica-saluda-al-diario-oficial-el-peruano-por-sus-200-anos-1468250)
-
-
-### eliminatorias copa del mundo (N/A, 12/11/2025 07:53 Lima)
-
-- **Cuatro por un boleto al Mundial 2026: África se paraliza en busca del último cupo de la repesca**: [Link](https://www.espn.com.ar/futbol/mundial/nota/_/id/15946810/cuatro-por-un-boleto-a-la-repesca-eliminatorias-de-africa-se-paraliza-busca-de-la-ultima-oportunidad-mundial-2026)
-- **Así será el playoff africano: Aubameyang se juega su primer Mundial**: [Link](https://www.mundodeportivo.com/futbol/mundial/20251111/1002567714/asi-sera-playoff-africano-aubameyang-juega-primer-mundial.html)
-- **Nigeria vs Gabón | Pronóstico y cuotas 13.11.2025**: [Link](https://www.transfermarkt.es/apuestas/pronosticos-deportivos/nigeria-vs-gabon-pronostico-apuestas-13-11-2025/)
-
-
-### gregorio pernía (N/A, 12/11/2025 03:33 Lima)
-
-- **Gregorio Pernía comparte emotiva historia detrás de la llegada de su sexto bebé: "Mi esposa no podía tener hijos"**: [Link](https://rpp.pe/famosos/celebridades/gregorio-pernia-comparte-emotiva-historia-detras-de-la-llegada-de-su-sexto-bebe-noticia-1663379)
-- **Gregorio Pernía celebra la llegada de su sexto hijo y revela la sorprendente manera en que se enteró del embarazo**: [Link](https://rpp.pe/videos/encendidos/gregorio-pernia-celebra-la-llegada-de-su-sexto-hijo-y-revela-la-sorprendente-manera-en-que-se-entero-del-embarazo-noticia-1663391)
-
-
-### kings - nuggets (N/A, 12/11/2025 03:33 Lima)
-
-- **Nuggets vs Kings Prediction, Picks & Odds for Tonight’s NBA Game**: [Link](https://www.covers.com/nba/nuggets-vs-kings-prediction-picks-best-bets-sgp-tuesday-11-11-2025)
-- **Will Nikola Jokic Play Against Sacramento Kings Tonight? Check Denver Nuggets Star’s Availability And Injury R**: [Link](https://www.timesnownews.com/sports/nba/will-nikola-jokic-play-against-sacramento-kings-tonight-check-denver-nuggets-stars-availability-and-injury-report-article-153136744)
-- **Game Thread: Denver Nuggets vs Sacramento Kings. December 11th, 2025.**: [Link](https://www.denverstiffs.com/game-thread-denver-nuggets-vs-sacramento-kings-december-11th-2025/)
-
-
-### delia espinoza (N/A, 12/11/2025 03:33 Lima)
-
-- **Juez confirma desacato de la JNJ en caso Delia Espinoza y avisa al Ministerio Público**: [Link](https://www.infobae.com/peru/2025/11/11/juez-confirma-desacato-de-la-jnj-en-caso-delia-espinoza-y-lo-denuncia-ante-el-ministerio-publico/)
-- **Poder Judicial ordena a la JNJ que “cumpla con reponer” a Delia Espinoza como fiscal de la Nación**: [Link](https://elcomercio.pe/politica/justicia/delia-espinoza-poder-judicial-ordena-reponerla-como-fiscal-de-la-nacion-ministerio-publico-jnj-tomas-galvez-noticia/)
-- **PJ da ultimátum a la JNJ: dos días para restituir a Delia Espinoza como fiscal de la Nación**: [Link](https://caretas.pe/home_web/home_principal_secundario/pj-da-ultimatum-a-la-jnj-dos-dias-para-restituir-a-delia-espinoza-como-fiscal-de-la-nacion/)
 
 
