@@ -1,3 +1,17 @@
+### temblor hoy lima (N/A, 15/11/2025 07:45 Lima)
+
+- **Un sismo de magnitud 4.3 remeció la región Junín esta mañana**: [Link](https://rpp.pe/peru/junin/junin-sismo-de-magnitud-43-remecio-la-region-esta-manana-noticia-1663790)
+- **Temblor de 4.0 causó la caída de pequeñas rocas en la ruta Pisco–Huáncano**: [Link](https://diariocorreo.pe/edicion/ica/temblor-de-40-causo-la-caida-de-pequenas-rocas-en-la-ruta-piscohuancano-noticia/)
+- **Terremoto moderado mag. 4.3 - 64 km al este de Satipo, Departamento de Junín, Perú, viernes 14 nov 2025 a las 09:04 (Hora Lima)**: [Link](https://www.volcanodiscovery.com/es/sismos/informe-sismo/22393092/mag4quake-Nov-14-2025-Central-Peru.html)
+
+
+### suiza vs (N/A, 15/11/2025 07:45 Lima)
+
+- **Apuestas y pronósticos Suiza vs Suecia**: [Link](https://www.marca.com/apuestas-deportivas/predicciones/2025/11/14/apuestas-pronosticos-suiza-vs-suecia.html)
+- **Suiza – Suecia Pronóstico y Apuestas | Clasificación Mundial 15/11/2025**: [Link](https://www.apuestas-deportivas.es/pronostico/suiza-vs-suecia-pronostico-clasificacion-mundial-15-11-2025/)
+- **Suiza vs. Suecia en vivo: cómo llegan al partido**: [Link](https://www.tycsports.com/eliminatorias-eurocopa/uefa-eliminatorias-mundial-2026-suiza-vs-suecia-grupo-b-fecha-5-id698641.html)
+
+
 ### horoscopo de hoy (N/A, 15/11/2025 03:28 Lima)
 
 - **Horóscopo de hoy, sábado 15 de noviembre: Lee aquí las predicciones para tu signo**: [Link](https://elcomercio.pe/luces/vida-social/horoscopo-de-hoy-sabado-15-de-noviembre-lee-aqui-las-predicciones-para-tu-signo-noticia/)
@@ -1016,19 +1030,5 @@ Sin noticias relacionadas disponibles.
 - **De Minaur following Musetti defeat: 'I don't know how many times I can deal with a loss like this one'**: [Link](https://www.atptour.com/en/news/de-minaur-nitto-atp-finals-2025-reaction-tuesday)
 - **Demon suffers ATP Finals collapse**: [Link](https://au.news.yahoo.com/demon-suffers-atp-finals-collapse-230800352.html)
 - **Tennis Tracker: De Minaur facing Musetti at ATP Finals in Turin**: [Link](https://www.flashscore.com/news/tennis-finals-turin-atp-singles-tennis-tracker-de-minaur-facing-musetti-at-atp-finals-in-turin/hb3JyeKH/)
-
-
-### chelsea femenino (N/A, 11/11/2025 15:27 Lima)
-
-- **“Siempre es difícil romper sus líneas”, Bompastor espera buen inicio del Chelsea ante St. Pölten**: [Link](https://onefootball.com/pt-br/noticias/siempre-es-dificil-romper-sus-lineas-bompastor-espera-buen-inicio-del-chelsea-ante-st-poelten-41936985)
-- **Polten vs. Chelsea EN VIVO: Champions Femenina ¿dónde ver? HOY martes**: [Link](https://www.antena2.com/futbol/polten-vs-chelsea-en-vivo-champions-femenina-donde-ver-hoy-11-de-noviembre)
-- **Previa UWCL St. Pölten vs Chelsea: examen de altura en la NV Arena**: [Link](https://lasfutbolistas.com/previa-uwcl-st-polten-vs-chelsea-examen-de-altura-en-la-nv-arena/)
-
-
-### xiaomi (N/A, 11/11/2025 15:27 Lima)
-
-- **Así se siente usar el Xiaomi 15T, el celular que intenta borra la línea entre gama media y alta**: [Link](https://elcomercio.pe/tecnologia/moviles/asi-se-siente-usar-el-xiaomi-15t-el-celular-que-intenta-borra-la-linea-entre-gama-media-y-alta-noticia/)
-- **Xiaomi 15T rompió la barrera entre gama media y gama alta: así son sus características y precio**: [Link](https://libero.pe/tecnologia/2025/11/05/xiaomi-15t-rompio-barrera-gama-media-gama-alta-asi-son-sus-caracteristicas-precio-review-analisis-74780)
-- **Xiaomi HyperOS 3 update adds smooth folder animation to all devices**: [Link](https://xiaomitime.com/xiaomi-hyperos-3-update-adds-smooth-folder-animation-to-all-devices-74702/)
 
 
