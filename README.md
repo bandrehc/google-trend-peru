@@ -1,3 +1,73 @@
+### georgia - españa (N/A, 15/11/2025 11:26 Lima)
+
+- **Huijsen, en riesgo de dejar la concentración**: [Link](https://as.com/futbol/seleccion/samu-y-de-frutos-descartes-ante-georgia-f202511-n/)
+- **Georgia - España en directo | Clasificación al Mundial hoy en vivo**: [Link](https://www.marca.com/futbol/clasificacion-al-mundial-uefa/georgia-espana/2025/11/15/01_0116_20251115_520_118-directo.html)
+- **De la Fuente descarta a tres jugadores, con Huijsen como gran sorpresa**: [Link](https://www.mundodeportivo.com/seleccion-espanola/20251115/1002569597/son-tres-descartes-luis-fuente-gran-sorpresa.html)
+
+
+### brazil vs (N/A, 15/11/2025 11:26 Lima)
+
+- **Brazil vs Senegal – Predicted lineup and team news**: [Link](https://thefootballfaithful.com/brazil-vs-senegal-predicted-lineup-and-team-news/)
+- **Brazil training at Emirates ahead of Senegal clash**: [Link](https://sports.yahoo.com/video/brazil-training-emirates-ahead-senegal-182224909.html)
+- **Brazil vs. Senegal: Livestream International Friendly Soccer From Anywhere For Free**: [Link](https://www.cnet.com/tech/services-and-software/brazil-vs-senegal-livestream-international-friendly-soccer-from-anywhere-for-free/)
+
+
+### barcelona femenino (N/A, 15/11/2025 11:26 Lima)
+
+- **Barcelona - Real Madrid, en directo: Liga F hoy en vivo**: [Link](https://as.com/futbol/femenino/barcelona-real-madrid-en-directo-liga-f-hoy-en-vivo-f202511-d/)
+- **Romeu, a por la revancha del Barça ante el Madrid sin Aitana en el once**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20251115/1002569732/romeu-revancha-barca-madrid-aitana-once.html)
+- **Barcelona - Real Madrid, en directo hoy: resultado y goles del Clásico de la Liga F**: [Link](https://www.sport.es/es/noticias/barca/futbol-femenino/barcelona-real-madrid-directo-hoy-123753069)
+
+
+### chile (N/A, 15/11/2025 11:26 Lima)
+
+- **Temblor en Chile hoy, sábado 15 de noviembre: reportes de los últimos sismos según el CSN**: [Link](https://elcomercio.pe/respuestas/chile/temblor-en-chile-en-vivo-cual-es-la-magnitud-epicentro-intensidad-del-ultimo-sismo-reportado-el-14-y-15-de-noviembre-segun-csn-centro-sismologico-nacional-santiago-socaire-lbposting-noticia/)
+- **Sismo remeció al norte del país: Revisa la magnitud y el epicentro**: [Link](https://www.chilevision.cl/noticias/nacional/sismo-remecio-al-norte-del-pais-revisa-la-magnitud-y-el-epicentro)
+- **Terremoto moderado mag. 4.1 - Atacama, Chile, sábado 15 nov 2025 a las 03:34 (GMT -3)**: [Link](https://www.volcanodiscovery.com/es/sismos/informe-sismo/22395770/mag4quake-Nov-15-2025-Offshore-Atacama-Chile.html)
+
+
+### sinner vs (N/A, 15/11/2025 11:26 Lima)
+
+- **ATP Finals tennis: Sinner beats De Minaur before Alcaraz faces Auger-Aliassime – live**: [Link](https://www.theguardian.com/sport/live/2025/nov/15/atp-finals-tennis-jannik-sinner-alex-de-minaur-carlos-alcaraz-felix-auger-aliassime-live)
+- **Nitto ATP Finals Betting Odds and Match Previews for November 15, 2025, Men's Singles**: [Link](https://sportsbookwire.usatoday.com/story/sports/sports-betting/2025/11/15/nitto-atp-finals-betting-odds-favorites-match-previews-11-14-2025-mens/87285842007/)
+- **Jannik Sinner beats Alex de Minaur to reach ATP Finals championship match**: [Link](https://www.eagletribune.com/jannik-sinner-beats-alex-de-minaur-to-reach-atp-finals-championship-match/article_49a7824d-d864-561e-a3ed-a5fc4e1d2c6b.html)
+
+
+### hans vanaken (N/A, 15/11/2025 11:26 Lima)
+
+- **LIVE - Rood voor Kazachstan na aanslag op Doku! Vinden Duivels winnende treffer met mannetje meer?**: [Link](https://sporza.be/nl/matches/voetbal/wld/wk-kwalificatie-uefa/2026/groep-j/09/kazachstan-belgie-live-rood-voor-kazachstan-na-aanslag-op-doku-vinden-duivels-winnende-treffer-met-mannetje-meer~1743166983642/)
+- **ONZE PUNTEN. “Ging gruwelijk in de fout en herstelde daar niet meer van”: twee gebuisde Rode Duivels, ééntje bij alle gevaar betrokken**: [Link](https://www.gva.be/sport/voetbal/onze-punten.-ging-gruwelijk-in-de-fout-en-herstelde-daar-niet-meer-van-twee-gebuisde-rode-duivels-eentje-bij-alle-gevaar-betrokken/105271486.html)
+- **LIVE: Aiaiaiai, Raskin laat de 1-2 liggen**: [Link](https://www.voetbalkrant.com/nieuws/2025-11-15/live-aiaiaiai-raskin-laat-de-1-2-liggen)
+
+
+### brasil - senegal (N/A, 15/11/2025 11:26 Lima)
+
+- **¿A qué hora juegan Brasil vs. Senegal EN VIVO hoy 15 de noviembre por amistoso al Mundial 2026? Conoce en qué canal ver el partido**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/a-que-hora-juega-y-que-canal-transmite-brasil-vs-senegal-en-vivo-hoy-15-de-noviembre-por-amistoso-al-mundial-2026-horarios-y-canales-tv-nnda-nnrt-noticia/)
+- **Pronósticos Brasil vs Senegal: apuestas apuntan a goles de ambos equipos**: [Link](https://depor.com/apuestas-deportivas/pronosticos-brasil-vs-senegal-amistoso-internacional/)
+- **Pronóstico Brasil - Senegal. Amistosos | 15/11/2025**: [Link](https://gainblers.com/pe/pronosticos/futbol/internacional/amistosos/pronostico-brasil-senegal-15-11-2025/)
+
+
+### brasil (N/A, 15/11/2025 11:26 Lima)
+
+- **Trump reduz tarifas sobre café, carne e frutas, produtos exportados pelo Brasil**: [Link](https://g1.globo.com/economia/agronegocios/noticia/2025/11/14/eua-suspendem-tarifa-de-50percent-para-cafe-carne-banana-e-acai-brasileiros.ghtml)
+- **Federação das Indústrias de MG reconhece avanço ‘limitado’ em recuo de tarifaço**: [Link](https://www.r7.com/brasilia/federacao-das-industrias-de-mg-reconhece-avanco-limitado-em-recuo-de-tarifaco-15112025/)
+- **Alckmin: tínhamos 23% de produtos brasileiros com tarifa zero para EUA e, agora, 26%**: [Link](https://www.infomoney.com.br/politica/alckmin-tinhamos-23-de-produtos-brasileiros-com-tarifa-zero-para-eua-e-agora-26/)
+
+
+### venezuela sub-17 - corea del norte sub-17 (N/A, 15/11/2025 11:26 Lima)
+
+- **Venezuela - Corea del Norte, en vivo: última hora del Mundial Sub 17, hoy en directo**: [Link](https://as.com/futbol/internacional/venezuela-corea-del-norte-en-vivo-ultima-hora-del-mundial-sub-17-hoy-en-directo-f202511-n/)
+- **Venezuela vs Corea del Norte EN VIVO: Ya juega la Vinotinto (0-2)**: [Link](https://www.vavel.com/mx/futbol-internacional/2025/11/15/1241372-venezuela-vs-corea-del-norte-en-vivo-mundial-sub-17.html)
+- **Venezuela vs. Corea del Norte, EN VIVO: dónde verlo por TV y cómo seguirlo ONLINE**: [Link](https://www.tycsports.com/futbol-internacional/venezuela-vs-corea-del-norte-en-vivo-donde-ver-por-tv-y-online-id698335.html)
+
+
+### turquia vs (N/A, 15/11/2025 11:26 Lima)
+
+- **Turquía - Bulgaria, en directo: clasificación al Mundial 2026, en vivo hoy**: [Link](https://as.com/futbol/internacional/turquia-bulgaria-en-directo-clasificacion-al-mundial-2026-en-vivo-hoy-f202511-d/)
+- **Turquía 'llama a filas' a Güler, Yildiz y Çalhanoglu para enfrentarse a España**: [Link](https://www.marca.com/futbol/mundial/2025/11/07/turquia-llama-filas-gueler-yildiz-calhanoglu-enfrentarse-espana.html)
+- **Turquía vs Bulgaria EN VIVO Eliminatorias Mundialistas UEFA**: [Link](https://www.record.com.mx/futbol/futbol-internacional/internacionales/turquia-vs-bulgaria-en-vivo-eliminatorias-mundialistas)
+
+
 ### temblor hoy lima (N/A, 15/11/2025 07:45 Lima)
 
 - **Un sismo de magnitud 4.3 remeció la región Junín esta mañana**: [Link](https://rpp.pe/peru/junin/junin-sismo-de-magnitud-43-remecio-la-region-esta-manana-noticia-1663790)
@@ -960,75 +1030,5 @@ Sin noticias relacionadas disponibles.
 - **Juez confirma desacato de la JNJ en caso Delia Espinoza y avisa al Ministerio Público**: [Link](https://www.infobae.com/peru/2025/11/11/juez-confirma-desacato-de-la-jnj-en-caso-delia-espinoza-y-lo-denuncia-ante-el-ministerio-publico/)
 - **Poder Judicial ordena a la JNJ que “cumpla con reponer” a Delia Espinoza como fiscal de la Nación**: [Link](https://elcomercio.pe/politica/justicia/delia-espinoza-poder-judicial-ordena-reponerla-como-fiscal-de-la-nacion-ministerio-publico-jnj-tomas-galvez-noticia/)
 - **PJ da ultimátum a la JNJ: dos días para restituir a Delia Espinoza como fiscal de la Nación**: [Link](https://caretas.pe/home_web/home_principal_secundario/pj-da-ultimatum-a-la-jnj-dos-dias-para-restituir-a-delia-espinoza-como-fiscal-de-la-nacion/)
-
-
-### britney spears (N/A, 11/11/2025 23:29 Lima)
-
-- **Kevin Federline Shares Update on Where Britney Spears' Sons Stand With Her**: [Link](https://www.eonline.com/ca/news/1424938/kevin-federline-on-britney-spears-and-sons-jayden-sean-bond)
-- **Kevin Federline Joins The Show!**: [Link](https://rock1053.iheart.com/featured/follow-along-with-the-show/content/2025-11-11-757-the-show-presents-full-sho-kevin-federline-joins-the-show/)
-- **Drugs, cheating, huge fights and erratic behaviour: 12 of the most shocking revelations from Kevin Federline’s book about Britney Spears**: [Link](https://www.independent.ie/style/celebrity/celebrity-features/drugs-cheating-huge-fights-and-erratic-behaviour-12-of-the-most-shocking-revelations-from-kevin-federlines-book-about-britney-spears/a1055226579.html)
-
-
-### thunder - warriors (N/A, 11/11/2025 23:29 Lima)
-
-- **Draymond Green Previews Warriors’ Matchup vs Thunder, Calls Shai Gilgeous-Alexander ‘A Full-Team Assignment’**: [Link](https://thesportsrush.com/nba-news-draymond-green-previews-warriors-matchup-vs-thunder-calls-shai-gilgeous-alexander-a-full-team-assignment/)
-- **Warriors instant analysis: Steph Curry’s return not enough to prevent OKC rout**: [Link](https://www.mercurynews.com/2025/11/11/warriors-steph-curry-shai-gilgeous-alexander-thunder-champs/)
-- **Jonathan Kuminga highlights: Watch Warriors forward score 13 points vs. Thunder**: [Link](https://www.nbcsportsbayarea.com/video/nba/golden-state-warriors/jonathan-kuminga-highlights-watch-4/1891265/)
-
-
-### mormon church (N/A, 11/11/2025 20:56 Lima)
-
-- **Groundbreaking Date for Jacksonville Florida Temple**: [Link](https://newsroom.churchofjesuschrist.org/article/news-for-temples-in-florida-idaho-and-nigeria)
-- **Sites, renderings announced for Idaho and Nigeria temples**: [Link](https://www.thechurchnews.com/temples/2025/11/10/sites-renderings-announced-coeur-d-alene-idaho-calabar-nigeria-temples/)
-- **Church of Jesus Christ of Latter-day Saints planning new temple in Coeur d'Alene**: [Link](https://www.krem.com/video/news/local/church-of-jesus-christ-of-latter-day-saints-planning-new-temple-in-coeur-dalene/293-9147743b-f438-4508-9b39-5cc3125a2b83)
-
-
-### peru fc (N/A, 11/11/2025 20:56 Lima)
-
-- **ASA FC vs. Unión Minas (5-4 en penales) por final Zona Norte de Copa Perú: video, resumen y goles**: [Link](https://depor.com/futbol-peruano/segunda-division/asa-fc-vs-union-minas-en-vivo-hoy-gratis-fpf-youtube-futbol-libre-tv-donde-ver-partido-y-transmision-en-directo-online-y-resultado-goles-y-resumen-zona-norte-copa-peru-2025-video-noticia/)
-- **ASA FC Y ANBA CLASIFICADOS A LA FINAL DE LA COPA PERÚ 2025**: [Link](https://fpf.org.pe/asa-fc-y-anba-clasificados-a-la-final-de-la-copa-peru-2025/)
-- **Copa Perú: Unión Minas de Pasco logra histórica victoria y pasa a la final**: [Link](https://diariocorreo.pe/deportes/copa-peru-union-minas-de-pasco-logra-historica-victoria-y-pasa-a-la-final-noticia/)
-
-
-### seleccion peruana (N/A, 11/11/2025 20:56 Lima)
-
-- **Perú realizó su primer entrenamiento en Rusia**: [Link](https://www.espn.com.ar/futbol/mundial/nota/_/id/15947730/peru-realizo-su-primer-entrenamiento-en-rusia)
-- **Los malabares de Barreto para preparar el amistoso y cómo hicieron los extranjeros que viajaron directo: Lo que no se vio de la llegada de Perú a San Petersburgo**: [Link](https://elcomercio.pe/deporte-total/seleccion/seleccion-peruana-hoy-los-malabares-de-manuel-barreto-para-preparar-el-amistoso-y-como-hicieron-los-extranjeros-que-viajaron-directo-lo-que-no-se-vio-de-la-llegada-de-peru-a-san-petersburgo-tlcnota-noticia/)
-- **Decisión final de la FPF: lo último sobre los amistosos de Perú frente a Rusia y Chile**: [Link](https://depor.com/futbol-peruano/seleccion-peruana/peru-vs-rusia-y-chile-fpf-mantendra-amistosos-y-no-seran-reprogramados-pese-a-retraso-en-viaje-cuando-llega-seleccion-peruana-a-rusia-fecha-fifa-noticia/)
-
-
-### dólar hoy perú (N/A, 11/11/2025 20:56 Lima)
-
-- **Precio del dólar sigue cayendo: Así abrió el tipo de cambio hoy 11 de noviembre en Perú**: [Link](https://www.infobae.com/peru/2025/11/10/peru-cotizacion-de-apertura-del-dolar-hoy-10-de-noviembre-de-usd-a-pen/)
-- **Precio del dólar en Perú del domingo 9 de noviembre: cuál fue el tipo de cambio**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-2025-cuanto-esta-el-dolar-este-domingo-9-de-noviembre-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
-- **Dólar hoy: cierra a S/3.369 y cae respecto al viernes**: [Link](https://peru21.pe/economia/dolar-hoy-cierra-s3369-y-cae-respecto-al-vienes/)
-
-
-### friaje (N/A, 11/11/2025 20:56 Lima)
-
-- **Vigesimoséptimo friaje del año golpeará la selva peruana desde este viernes**: [Link](https://caretas.pe/medio-ambiente/vigesimoseptimo-friaje-del-ano-golpeara-la-selva-peruana-desde-este-viernes/)
-- **🔴🔵 Senamhi advierte intensas lluvias y un marcado descenso de la temperatura en el territorio nacional durante este fin de semana.**: [Link](https://www.facebook.com/Exitosanoticias/posts/-senamhi-advierte-intensas-lluvias-y-un-marcado-descenso-de-la-temperatura-en-el/1273716098124779/)
-- **SENAMHI advierte lluvias intensas desde este domingo hasta el martes en Loreto**: [Link](https://diariolaregion.com/senamhi-advierte-lluvias-intensas-desde-este-domingo-hasta-el-martes-en-loreto/)
-
-
-### álex de miñaur (N/A, 11/11/2025 20:56 Lima)
-
-- **Las ATP Finals, al rojo vivo: Musetti derrotó a De Miñaur y el grupo Jimmy Connors se definirá en la última fecha**: [Link](https://www.espn.com.pe/tenis/nota/_/id/15947633/las-atp-finals-2025-al-rojo-vivo-musetti-derroto-a-de-minaur-y-el-grupo-jimmy-connors-se-definira-en-la-ultima-fecha-alcaraz)
-- **De Minore favorito sobre Musetti en el enfrentamiento de la fase de grupos de las Finales ATP**: [Link](https://www.ucvradio.pe/mas-actualidad/de-minore-favorito-sobre-musetti-en-el-enfrentamiento-de-la-fase-de-grupos-de-las-finales-atp/46725/)
-- **Lorenzo Musetti sumó su primer triunfo en las ATP Finals**: [Link](https://ovacion.pe/noticias/tenis/lorenzo-musetti-sumo-su-primer-triunfo-las-atp-finals)
-
-
-### real madrid vs paris fc (N/A, 11/11/2025 20:56 Lima)
-
-- **UEFA Women's Champions League - Real Madrid v Paris FC**: [Link](https://www.reutersconnect.com/item/uefa-womens-champions-league-real-madrid-v-paris-fc/dGFnOnJldXRlcnMuY29tLDIwMjU6bmV3c21sX1VQMUVMQkIxT0ZJNks)
-- **Caroline Weir rescues Real Madrid while Lyon extend perfect record**: [Link](https://www.the-gazette.co.uk/sport/national/25614833.caroline-weir-rescues-real-madrid-lyon-extend-perfect-record/)
-- **Real Madrid 1-1 Paris FC: Late Drama in Madrid as Weir equaliser prevents Parisian upset**: [Link](https://ca.sports.yahoo.com/news/real-madrid-1-1-paris-230000363.html)
-
-
-### lorenzo musetti (N/A, 11/11/2025 20:56 Lima)
-
-- **De Minaur following Musetti defeat: 'I don't know how many times I can deal with a loss like this one'**: [Link](https://www.atptour.com/en/news/de-minaur-nitto-atp-finals-2025-reaction-tuesday)
-- **Demon suffers ATP Finals collapse**: [Link](https://au.news.yahoo.com/demon-suffers-atp-finals-collapse-230800352.html)
-- **Tennis Tracker: De Minaur facing Musetti at ATP Finals in Turin**: [Link](https://www.flashscore.com/news/tennis-finals-turin-atp-singles-tennis-tracker-de-minaur-facing-musetti-at-atp-finals-in-turin/hb3JyeKH/)
 
 
