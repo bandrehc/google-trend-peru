@@ -1,3 +1,73 @@
+### pelicans - lakers (N/A, 14/11/2025 20:52 Lima)
+
+- **Los Angeles Lakers vs New Orleans Pelicans Prediction, Pick, Odds -- 11/14**: [Link](https://www.actionnetwork.com/nba/los-angeles-lakers-vs-new-orleans-pelicans-prediction-pick-odds-friday-november-14)
+- **NBA Best Bets & Player Props Friday, November 14, 2025**: [Link](https://kingpin.pro/nba/articles/nba-best-bets-and-player-props-friday-november-14-2025)
+- **Why Friday's Mid-November Game in New Orleans Is a Must-Win for the Lakers**: [Link](https://www.newscentermaine.com/video/sports/locked-on/lo-la/lakers-show/why-fridays-mid-november-game-in-new-orleans-is-a-must-win-for-the-lakers/535-c7e349eb-2d8e-4070-8635-79a970109b62)
+
+
+### horóscopo hoy (N/A, 14/11/2025 20:52 Lima)
+
+- **Horóscopo de hoy, viernes 14 de noviembre: Lee aquí las predicciones para tu signo | LUCES**: [Link](https://elcomercio.pe/luces/vida-social/horoscopo-de-hoy-viernes-14-de-noviembre-lee-aqui-las-predicciones-para-tu-signo-noticia/)
+- **Horóscopo de hoy de Nana Calistar 14 de noviembre de 2025**: [Link](https://laopinion.com/2025/11/14/horoscopo-de-hoy-de-nana-calistar-14-de-noviembre-de-2025/)
+- **Horóscopo de Mizada Mohamed hoy, viernes 14 de noviembre 2025: las predicciones para los 12 signos zodiacales**: [Link](https://www.ambito.com/mexico/espiritualidad/horoscopo-mizada-mohamed-hoy-viernes-14-noviembre-2025-las-predicciones-los-12-signos-zodiacales-n6213637)
+
+
+### venezuela (N/A, 14/11/2025 20:52 Lima)
+
+- **Un análisis advierte qué significa la operación Lanza del Sur de EEUU para Maduro: “Ya no se negocian sanciones, se discute supervivencia”**: [Link](https://www.infobae.com/venezuela/2025/11/14/un-analisis-advierte-que-significa-la-operacion-lanza-del-sur-de-eeuu-para-venezuela-ya-no-se-negocian-sanciones-se-discute-supervivencia/)
+- **Silencio en la cúpula chavista ante la escalada militar de Washington en Latinoamérica**: [Link](https://elpais.com/america/2025-11-14/silencio-en-la-cupula-chavista-ante-la-escalada-militar-de-washington-en-latinoamerica.html)
+- **Escalada en el Caribe: ¿Cuán decidido está Trump a lanzar un ataque terrestre a Venezuela?**: [Link](https://cnnespanol.cnn.com/2025/11/14/eeuu/video/trump-venezuela-marcha-atras-oppenheimer-presenta-tv)
+
+
+### ufc 322 (N/A, 14/11/2025 20:52 Lima)
+
+- **Islam Makhachev shows off drastic body transformation as he weighs in for UFC 322**: [Link](https://bloodyelbow.com/2025/11/14/islam-makhachev-shows-off-drastic-body-transformation-as-he-weighs-in-for-ufc-322/)
+- **Dariush Misses Weight For The Second Time**: [Link](https://www.mmamania.com/ufc-322-jack-della-vs-islam-makhachev-start-time-full-results-espn-mma/402595/ufc-322-weigh-ins-results-beneil-dariush-misses-weight-for-second-time)
+- **Faceoffs | VeChain UFC 322: Della Maddalena vs Makhachev**: [Link](https://www.ufc.com/video/152641)
+
+
+### where winds meet (N/A, 14/11/2025 20:52 Lima)
+
+- **Where Winds Meet - Official Launch Trailer**: [Link](https://www.ign.com/videos/where-winds-meet-official-launch-trailer)
+- **Where Winds Meet release time and countdown to the launch of the Wuxia open-world adventure**: [Link](https://www.allout-gaming.com/news/winds-meet-release-time-countdown-1502327)
+- **Where Winds Meet: dive deeper into gameplay and story details**: [Link](https://blog.playstation.com/2025/11/07/where-winds-meet-dive-deeper-into-gameplay-and-story-details/)
+
+
+### cotizacion del dolar hoy (N/A, 14/11/2025 20:52 Lima)
+
+- **Precio del dólar con alza: Así cerró el tipo de cambio hoy 13 de noviembre en Perú**: [Link](https://www.infobae.com/peru/2025/11/12/peru-cotizacion-de-apertura-del-dolar-hoy-12-de-noviembre-de-usd-a-pen/)
+- **¿Cuál es la cotización del dólar hoy viernes 14 de noviembre del 2025?**: [Link](https://andina.pe/agencia/noticia-cual-es-cotizacion-del-dolar-hoy-viernes-14-noviembre-del-2025-1051958.aspx)
+- **Tipo de cambio en Perú: noviembre y diciembre entre estabilidad y cautela global**: [Link](https://gestion.pe/opinion/tipo-de-cambio-en-peru-noviembre-y-diciembre-entre-estabilidad-y-cautela-global-noticia/)
+
+
+### sorloth (N/A, 14/11/2025 20:52 Lima)
+
+- **Internationals: Norway all but qualified**: [Link](https://www.fulhamfc.com/news/2025/november/14/internationals-norway-all-but-qualified/)
+- **Erling Haaland in Party Mode: Norway’s Locker Room Erupts on the Road to the World Cup**: [Link](https://www.beinsports.com/en-us/soccer/articles/erling-haaland-in-party-mode-norway-s-locker-room-erupts-on-the-road-to-the-world-cup-2025-11-14)
+- **Solbakken admits 25-year drought weighed heavily on Norway as World Cup looms**: [Link](https://www.fotmob.com/news/5yfz2d1qu3dj128668zeq756l-solbakken-admits-25-year-drought-weighed-heavily-norway-world-cup-looms)
+
+
+### lanús - atlético tucumán (N/A, 14/11/2025 20:52 Lima)
+
+- **Salvio, de la polémica por el gol anulado al tanto clave para el triunfo**: [Link](https://www.espn.com.ar/futbol/argentina/nota/_/id/15959722/video-eduardo-salvio-lanus-atletico-tucuman-gol)
+- **Lanús venció 3-1 a Atlético Tucumán por el Torneo Clausura y llega afilado a la final de la Copa Sudamericana**: [Link](https://www.infobae.com/deportes/2025/11/14/lanus-y-atletico-tucuman-abriran-la-ultima-jornada-del-torneo-clausura-hora-tv-y-posibles-formaciones/)
+- **EN VIVO: Atlético Tucumán llega al empate momentáneo 1 a 1 frente a Lanús**: [Link](https://www.directvsports.com/futbol/en-vivo-atletico-tucuman-llega-al-empate-momentaneo-1-a-1-frente-a-lanus-20251112-0038.html)
+
+
+### félix auger-aliassime (N/A, 14/11/2025 20:52 Lima)
+
+- **Alexander Zverev, battu à Turin : « Une saison incroyablement insatisfaisante »**: [Link](https://www.universtennis.com/2025/11/15/alexander-zverev-elimine-a-turin-une-saison-incroyablement-insatisfaisante/)
+- **Masters ATP : Auger-Aliassime écœure Shelton**: [Link](https://lecourrier.vn/masters-atp-auger-aliassime-ec%C5%93ure-shelton/1295156.html)
+- **Alexander Zverev - Félix Auger-Aliassime en direct - ATP Finals : Tennis Scores & Résultats - 14/11/2025**: [Link](https://www.eurosport.fr/tennis/atp-finals/2025/live-alexander-zverev-felix-auger-aliassime_mtc1649652/live-commentary.shtml)
+
+
+### holanda (N/A, 14/11/2025 20:52 Lima)
+
+- **Zidansek y Juvan ayudan a Eslovenia a superar a Holanda**: [Link](https://www.ucvradio.pe/deporte/zidansek-y-juvan-ayudan-a-eslovenia-a-superar-a-holanda/49327/)
+- **¡EN VIVO! Países Bajos busca dar el último paso hacia el Mundial 2026 ante Polonia**: [Link](https://www.espn.com.pe/futbol/mundial/nota/_/id/15946993/polonia-vs-paises-bajos-eliminatorias-uefa-equipo-fecha-hora-y-tv-en-vivo)
+- **¿Se clasificará Holanda para el Mundial 2026? Últimos resultados de la Oranje, el torneo de fútbol de la FIFA superó el récord**: [Link](https://www.ucvradio.pe/mas-actualidad/se-clasificara-holanda-para-el-mundial-2026-ultimos-resultados-de-la-oranje-el-torneo-de-futbol-de-la-fifa-supero-el-record/49495/)
+
+
 ### marcha 14 de noviembre (N/A, 14/11/2025 15:27 Lima)
 
 - **Minedu suspende clases presenciales este viernes 14 de noviembre en Lima y Callao por paro de transportistas**: [Link](https://www.infobae.com/peru/2025/11/13/minedu-dispone-clases-virtuales-por-paro-de-transportistas-en-lima-y-callao-este-viernes-14-de-noviembre/)
@@ -959,73 +1029,5 @@ Sin noticias relacionadas disponibles.
 - **¿A qué hora juega FC Barcelona vs. Celta de Vigo por LaLiga EA Sports 2025 en USA, México y España?**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/a-que-hora-juega-fc-barcelona-vs-celta-de-vigo-en-vivo-por-laliga-ea-sports-2025-en-usa-mexico-y-espana-nnda-nnse-noticia/)
 - **Lewandowski rompe récord de Neymar en Barcelona con soberbio ‘Hat-trick’ [VIDEO]**: [Link](https://trome.com/deportes/futbol-internacional/lewandowski-rompe-record-de-neymar-en-barcelona-con-soberbio-hat-trick-video-noticia/)
 - **LEWANDOWSKI: «ESTAMOS A 2 PUNTOS DEL MADRID»**: [Link](https://todosport.pe/lewandowski-estamos-a-2-puntos-del-madrid/)
-
-
-### chaleco (N/A, 11/11/2025 03:32 Lima)
-
-- **¡Atención, motociclistas! MTC modifica normativa sobre el uso de chalecos y cascos**: [Link](https://elperuano.pe/noticia/282610-atencion-motociclistas-mtc-modifica-normativa-sobre-el-uso-de-chalecos-y-cascos)
-- **PNP: “Uso de chaleco solo se fiscalizará en distritos en estado de emergencia y cuando la resolución lo indique”**: [Link](https://elcomercio.pe/lima/transporte/uso-de-chaleco-solo-se-fiscalizara-en-distritos-en-estado-de-emergencia-y-cuando-la-resolucion-lo-indique-senala-pnp-ultimas-noticia/)
-- **Uso obligatorio de chalecos para motociclistas será en estos distritos de Lima Metropolitana y Callao**: [Link](https://www.infobae.com/peru/2025/11/09/uso-obligatorio-de-chalecos-para-motociclistas-sera-en-estos-distritos-de-lima-metropolitana-y-callao/)
-
-
-### jose jeri (N/A, 10/11/2025 23:29 Lima)
-
-- **José Jerí cumple un mes en la Presidencia: lo que dejan los primeros 30 días de su gestión y lo que viene para su gobierno**: [Link](https://elcomercio.pe/politica/gobierno/jose-jeri-cumple-un-mes-en-la-presidencia-lo-que-dejan-los-primeros-30-dias-de-su-gestion-y-lo-que-viene-para-su-gobierno-tlc-audio-noticia/)
-- **El 55.9 % de los peruanos aprueba el desempeño de José Jerí como presidente hasta al momento, según encuesta de CPI**: [Link](https://rpp.pe/politica/actualidad/el-559-de-los-peruanos-aprueba-el-desempeno-de-jose-jeri-como-presidente-hasta-al-momento-segun-encuesta-de-cpi-noticia-1663158)
-- **Renzo Reggiardo felicita la gestión de José Jerí tras última encuesta**: [Link](https://www.atv.pe/noticia/renzo-reggiardo-felicita-la-gestion-de-jose-jeri-tras-ultima-encuesta/)
-
-
-### billie eilish (N/A, 10/11/2025 23:29 Lima)
-
-- **How Billie Eilish Scored 2026 Grammy Noms for Her 2024 Song**: [Link](https://www.imdb.com/de/news/ni65564183/?ref_=nwc_art_perm)
-- **How Billie Eilish Scored 2026 Grammy Noms for Her 2024 Song**: [Link](https://www.hollywoodreporter.com/music/music-news/billie-eilish-earned-2026-grammy-noms-2024-song-wildflower-1236422306/)
-- **Billie Eilish, Rodney Crowell, Jeff Lorber, DJ Soul Sister: music in New Orleans this week**: [Link](https://www.nola.com/entertainment_life/keith_spera/music-in-new-orleans-for-the-week-of-november-6-12-2025/article_b7d86107-d960-489e-b982-3252ff3a0639.html)
-
-
-### mavericks - bucks (N/A, 10/11/2025 23:29 Lima)
-
-- **Mavericks lead Bucks 57-53 at halftime**: [Link](https://www.jsonline.com/story/sports/nba/bucks/2025/11/10/milwaukee-bucks-injury-report-giannis-antetokounmpo-playing-dallas/87193133007/)
-- **Where to watch today's Dallas Mavericks vs Milwaukee Bucks NBA Game: Livestream, TV channels and start time**: [Link](https://www.goal.com/en-sg/news/mavericks-bucks-watch-live-stream-nba-game/blt0aed7747804eb09e)
-- **Cooper Flagg faces big test as Bucks come to Dallas**: [Link](https://www.cbssports.com/nba/news/cooper-flagg-faces-big-test-as-bucks-come-to-dallas/)
-
-
-### bulls - spurs (N/A, 10/11/2025 23:29 Lima)
-
-- **San Antonio Spurs: Victor Wembanyama is the first …**: [Link](https://www.hoopshype.com/story/sports/nba/rumors/2025/11/10/san-antonio-spurs-victor-wembanyama-is-the-first/87206687007/)
-- **Another loss, another star taking the Bulls down, as Wemby is latest**: [Link](https://chicago.suntimes.com/bulls/2025/11/10/another-star-taking-bulls-down-wemby-is-latest)
-- **BULLS POSTGAME: Victor Wembanyama RUINS Great Bulls Team Effort | CHGO Bulls Podcast**: [Link](https://bvmsports.com/2025/11/10/bulls-postgame-victor-wembanyama-ruins-great-bulls-team-effort-chgo-bulls-podcast/)
-
-
-### medellín - envigado (N/A, 10/11/2025 23:29 Lima)
-
-- **Medellín empató con Envigado y avanzó a la final de la Copa Betplay**: [Link](https://www.espn.com.ar/futbol/colombia/nota/_/id/15942384/medellin-empato-con-envigado-y-avanzo-a-la-final-de-la-copa-betplay)
-- **¡EN VIVO! Medellín recibe a Envigado por la vuelta de las semifinales de la Copa Betplay**: [Link](https://espndeportes.espn.com/futbol/colombia/nota/_/id/15942384/medellin-vs-envigado-semifinal-vuelta-copa-betplay-equipo-fecha-hora-y-tv-en-vivo)
-- **Alejandro Restrepo: "Queremos ser campeones y tenemos una nueva oportunidad"**: [Link](https://www.noticiascaracol.com/golcaracol/futbol-colombiano/alejandro-restrepo-queremos-ser-campeones-y-tenemos-una-nueva-oportunidad-rg10)
-
-
-### independiente rivadavia - central córdoba (N/A, 10/11/2025 20:57 Lima)
-
-- **Pronóstico Independiente Rivadavia De Mendoza - Central Córdoba - Liga Profesional Argentina**: [Link](https://www.sportytrader.com/es/pronosticos/independiente-de-mendoza-central-cordoba-sde-304444/)
-- **Deportivo Riestra vs Independiente, por el Torneo Clausura 2025: minuto a minuto, en directo**: [Link](https://marcapersonalweb.com.ar/2025/11/10/deportivo-riestra-vs-independiente-por-el-torneo-clausura-2025-minuto-a-minuto-en-directo/)
-- **Indep.Mza. vs C.Córdoba (SE) en vivo por la fecha 15 de la Liga Profesional: hora, dónde ver y formaciones**: [Link](https://tn.com.ar/deportes/futbol/2025/11/10/indepmza-vs-ccordoba-se-en-vivo-por-la-fecha-15-de-la-liga-profesional-hora-donde-ver-y-formaciones/)
-
-
-### independiente medellin vs (N/A, 10/11/2025 20:57 Lima)
-
-Sin noticias relacionadas disponibles.
-
-
-### delia espinoza (N/A, 10/11/2025 20:57 Lima)
-
-- **PJ ordena a la JNJ reponer a Delia Espinoza en el cargo de fiscal de la Nación dentro de los dos días siguientes a la notificación [Exp. 10506-2025-26]**: [Link](https://lpderecho.pe/pj-ordena-jnj-reponer-a-delia-espinoza-cargo-fiscal-nacion-dentro-dos-dias-siguientes-notificacion-exp-10506-2025-26/)
-- **Poder Judicial ordena reponer a Delia Espinoza como fiscal de la Nación**: [Link](https://elcomercio.pe/politica/justicia/delia-espinoza-poder-judicial-ordena-reponerla-como-fiscal-de-la-nacion-ministerio-publico-jnj-tomas-galvez-noticia/)
-- **Delia Espinoza vuelve como fiscal de la Nación: PJ advierte incumplimiento por parte de la JNJ y le ordena reponer a fiscal**: [Link](https://www.infobae.com/peru/2025/11/10/delia-espinoza-vuelve-como-fiscal-de-la-nacion-poder-judicial-ordena-a-la-jnj-reponer-a-la-fiscal/)
-
-
-### argentinos jrs. - belgrano (N/A, 10/11/2025 20:57 Lima)
-
-- **Pronóstico Argentinos Juniors CA Belgrano - Liga Profesional Argentina 10/11/25**: [Link](https://www.sportytrader.com/es/pronosticos/argentinos-jrs-ca-belgrano-304442/)
-- **Qué canal pasa Argentinos vs Belgrano hoy: dónde ver GRATIS y EN VIVO el partido de la Liga Profesional**: [Link](https://www.365scores.com/es/news/argentinos-vs-belgrano-donde-ver-liga/)
-- **La Previa: Tiempo de Revancha -**: [Link](https://argentinospasion.com.ar/2025/11/09/la-previa-tiempo-de-revancha-3/)
 
 
