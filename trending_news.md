@@ -1,3 +1,72 @@
+### horoscopo de hoy (N/A, 15/11/2025 03:28 Lima)
+
+- **Horóscopo de hoy, sábado 15 de noviembre: Lee aquí las predicciones para tu signo**: [Link](https://elcomercio.pe/luces/vida-social/horoscopo-de-hoy-sabado-15-de-noviembre-lee-aqui-las-predicciones-para-tu-signo-noticia/)
+- **Aries, Tauro, Géminis, Cáncer, Leo, Virgo, Libra, Escorpio, Sagitario, Capricornio, Acuario y Piscis: así será este sábado 15 de noviembre**: [Link](https://www.vanitatis.elconfidencial.com/horoscopo/2025-11-15/horoscopo-hoy-sabado-15-noviembre-que-dicen-astros-1qrt_4246855/)
+- **Horóscopo diario, predicciones sobre amor, salud, trabajo y dinero para el 15 de noviembre de 2025**: [Link](https://www.lavanguardia.com/magazine/horoscopo/20251114/11224689/horoscopo-diario-prediccion-suerte-15-noviembre-ctx.html)
+
+
+### ezeiza (N/A, 15/11/2025 03:28 Lima)
+
+- **Explosión en polo industrial genera fuerte incendio en Ezeiza, Argentina. Hay alrededor de 20 heridos**: [Link](https://cnnespanol.cnn.com/2025/11/14/argentina/explosion-planta-quimica-incendio-ezeiza-orix)
+- **Una fuerte explosión en polo industrial cerca del principal aeropuerto de Argentina**: [Link](https://rpp.pe/mundo/latinoamerica/una-fuerte-explosion-en-polo-industrial-cerca-del-principal-aeropuerto-de-argentina-noticia-1663885)
+- **Múltiples explosiones en Ezeiza: se incendia el polo industrial y se registran al menos 20 heridos**: [Link](https://www.infobae.com/sociedad/2025/11/15/impactante-explosion-en-ezeiza-se-incendia-una-fabrica-y-trabajan-varias-dotaciones-de-bomberos/)
+
+
+### millie bobby brown (N/A, 15/11/2025 03:28 Lima)
+
+- **Millie Bobby Brown Scolds Photographer at Stranger Things 5 Red Carpet: 'Smile? You Smile!'**: [Link](https://people.com/millie-bobby-brown-scolds-photographer-at-stranger-things-red-carpet-11849447)
+- **Millie Bobby Brown praised for brutal clapback after paparazzi told her to 'smile'**: [Link](https://www.tyla.com/entertainment/celebrity/millie-bobby-brown-smile-photographer-stranger-things-premiere-767857-20251114)
+- **‘Stranger Things’ Star Snaps at Photographer: ‘You Smile!’**: [Link](https://www.thedailybeast.com/obsessed/stranger-things-star-millie-bobby-brown-snaps-at-photographer-you-smile/)
+
+
+### brasil vs senegal (N/A, 15/11/2025 03:28 Lima)
+
+- **¿Dónde ver Brasil — Senegal EN VIVO hoy por amistoso FIFA al Mundial 2025? Horarios y canales TV**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/donde-ver-brasil-senegal-en-vivo-en-directo-por-amistoso-fifa-al-mundial-2025-horarios-y-canales-tv-online-gratis-nnda-nnrt-noticia/)
+- **Pronósticos Brasil vs Senegal: apuestas apuntan a goles de ambos equipos**: [Link](https://depor.com/apuestas-deportivas/pronosticos-brasil-vs-senegal-amistoso-internacional/)
+- **Amistoso internacional: Brasil y Senegal se enfrentan por un duelo amistoso**: [Link](https://rpp.pe/futbol/ligas-internacionales/amistoso-internacional-brasil-y-senegal-se-enfrentan-por-un-duelo-amistoso-noticia-1663758)
+
+
+### colombia vs (N/A, 15/11/2025 03:28 Lima)
+
+- **De qué se debe cuidar Colombia cuando enfrente a Nueva Zelanda y Australia**: [Link](https://www.espn.com.ar/futbol/mundial/nota/_/id/15956335/de-que-se-debe-cuidar-colombia-cuando-enfrente-a-nueva-zelanda-y-australia)
+- **Amistoso internacional: Se enfrentan Colombia y Nueva Zelanda en duelo amistoso**: [Link](https://rpp.pe/futbol/ligas-internacionales/amistoso-internacional-se-enfrentan-colombia-y-nueva-zelanda-en-duelo-amistoso-noticia-1663838)
+- **RCN: dónde ver Colombia vs Nueva Zelanda por partido amistoso de fecha FIFA**: [Link](https://elcomercio.pe/deporte-total/colombia/rcn-en-vivo-online-como-ver-colombia-vs-nueva-zelanda-hoy-gratis-por-partido-amistoso-video-noticia/)
+
+
+### bucks - hornets (N/A, 15/11/2025 03:28 Lima)
+
+- **Bucks vs. Hornets Player Grades: Ryan Rollins’ big game not enough in disappointing loss**: [Link](https://www.brewhoop.com/bucks-analysis/54037/bucks-vs-hornets-player-grades-stats-ryan-rollins-myles-turner-miles-bridges)
+- **Miles Bridges scores 20 points in win**: [Link](https://www.fantasypros.com/nba/news/552099/miles-bridges-scores-20-points-win.php)
+- **Bucks lose stinker in Charlotte plus Victor Oladipo interview!**: [Link](https://bvmsports.com/2025/11/13/bucks-lose-stinker-in-charlotte-plus-victor-oladipo-interview/)
+
+
+### los ilusionistas (N/A, 15/11/2025 03:28 Lima)
+
+- **Para una maratón antes de “Now You See Me 3”: dónde ver las dos primeras películas de la saga “Los ilusionistas”**: [Link](https://elcomercio.pe/mag/fama/que-ver/now-you-see-me-donde-ver-cada-una-de-las-peliculas-de-la-saga-nada-es-lo-que-parece-nnda-nnlt-noticia/)
+- **‘Ahora me ves 3′: los Jinetes vuelven con refuerzos en un homenaje a la magia tan disparatado como divertido**: [Link](https://www.infobae.com/espana/cultura/2025/11/15/ahora-me-ves-3-los-jinetes-vuelven-con-refuerzos-en-un-homenaje-a-la-magia-tan-disparatado-como-divertido/)
+- **El personaje de Lizzy Caplan es Lula en “Ahora me ves: ¿ahora no?”**: [Link](https://noticiashuesca.com/economia/el-personaje-de-lizzy-caplan-es-lula-en-ahora-me-ves-ahora-no/130088/)
+
+
+### martin vizcarra (N/A, 15/11/2025 03:28 Lima)
+
+- **Martín Vizcarra: Fiscalía teme que fugue tras conocer sentencia**: [Link](https://peru21.pe/politica/martin-vizcarra-temen-que-fugue-tras-conocer-sentencia-lava-jato/)
+- **Martín Vizcarra “vivía de las coimas”: los alegatos finales de la fiscalía y la procuraduría antes de la sentencia del expresidente**: [Link](https://elcomercio.pe/politica/justicia/martin-vizcarra-vivia-de-las-coimas-los-alegatos-finales-de-fiscalia-y-procuraduria-antes-de-la-sentencia-del-expresidente-lava-jato-lomas-de-ilo-obrainsa-obrainsa-iccgsa-tlcnota-noticia/)
+- **Fiscalía reiteró pedido de 15 años de prisión y 9 años de inhabilitación contra Vizcarra**: [Link](https://andina.pe/agencia/noticia-fiscalia-reitero-pedido-15-anos-prision-y-9-anos-inhabilitacion-contra-vizcarra-1051834.aspx)
+
+
+### mavericks - clippers (N/A, 15/11/2025 03:28 Lima)
+
+- **James Harden Makes Clippers History, Praised By NBA Fans in Win vs. Cooper Flagg, Mavs**: [Link](https://bleacherreport.com/articles/25294668-james-harden-makes-clippers-history-praised-nba-fans-win-vs-cooper-flagg-mavs)
+- **Jason Kidd attempts to explain Mavericks’ defensive woes vs. James Harden, Clippers**: [Link](https://clutchpoints.com/nba/dallas-mavericks/mavericks-news-jason-kidd-explains-defensive-woes-james-harden)
+- **Mavs drop a double OT thriller to Clippers 133-127**: [Link](https://www.mavsmoneyball.com/dallas-mavericks-game-coverage/52672/player-grades-recapping-the-mavericks-vs-the-clippers)
+
+
+### salim vera (N/A, 15/11/2025 03:28 Lima)
+
+- **Salim Vera no quiso a Toño Jaúregui en su boda: “Uno a su matrimonio invita a las personas que quiere**: [Link](https://www.atv.pe/noticia/salim-vera-no-quiso-a-tono-jauregui-en-su-boda-uno-a-su-matrimonio-invita-a-las-personas-que-quiere/)
+- **Salim Vera revela que en su saco llevaba la fotografía de su madre durante su matrimonio**: [Link](https://www.atv.pe/noticia/salim-vera-revela-que-en-su-saco-llevaba-la-fotografia-de-su-madre-durante-su-matrimonio/)
+
+
 ### melissa linares (N/A, 14/11/2025 23:27 Lima)
 
 - **Paco Bazán y Melissa Linares, del ampay en 2022 a la polémica por demanda de pensión alimentaria**: [Link](https://www.infobae.com/peru/2025/11/14/paco-bazan-y-melissa-linares-del-ampay-en-2022-a-la-polemica-por-demanda-de-pension-alimentaria/)
@@ -961,73 +1030,5 @@ Sin noticias relacionadas disponibles.
 - **Así se siente usar el Xiaomi 15T, el celular que intenta borra la línea entre gama media y alta**: [Link](https://elcomercio.pe/tecnologia/moviles/asi-se-siente-usar-el-xiaomi-15t-el-celular-que-intenta-borra-la-linea-entre-gama-media-y-alta-noticia/)
 - **Xiaomi 15T rompió la barrera entre gama media y gama alta: así son sus características y precio**: [Link](https://libero.pe/tecnologia/2025/11/05/xiaomi-15t-rompio-barrera-gama-media-gama-alta-asi-son-sus-caracteristicas-precio-review-analisis-74780)
 - **Xiaomi HyperOS 3 update adds smooth folder animation to all devices**: [Link](https://xiaomitime.com/xiaomi-hyperos-3-update-adds-smooth-folder-animation-to-all-devices-74702/)
-
-
-### roma vs valerenga (N/A, 11/11/2025 15:27 Lima)
-
-- **Vålerenga beats Roma 1-0 for its first Women's Champions League win**: [Link](https://www.newsday.com/sports/soccer/womens-champions-league-roundup-v59240)
-- **Roma Women vs Valerenga Women Prediction and Betting Tips | November 11th 2025**: [Link](https://www.sportskeeda.com/football/roma-women-vs-valerenga-women-prediction-betting-tips-november-11th-2025)
-- **Roma vs Valerenga Preview: Team News & Prediction | 2025-26 UEFA Women’s Champions League | League Phase**: [Link](https://www.thestatszone.com/roma-vs-valerenga-preview-team-news-prediction-2025-26-uefa-womens-champions-league-league-phase-157879)
-
-
-### gonzalo bueno (N/A, 11/11/2025 15:27 Lima)
-
-- **Tenis: Gonzalo Bueno lo dio todo en semifinales del Igma Open 2025**: [Link](https://www.tvperu.gob.pe/noticias/deportes/tenis-gonzalo-bueno-lo-dio-todo-en-semifinales-del-igma-open-2025)
-- **Se respeta la casa: Ignacio Buse venció a Miguel Tobón y clasificó a octavos de final de Challenger Lima 3**: [Link](https://rpp.pe/tenis/mas-tenis/hoy-ignacio-buse-vs-miguel-tobon-en-vivo-primera-ronda-challenger-lima-3-a-que-hora-juegan-y-donde-ver-por-tv-via-atp-tour-link-gratis-partidos-de-hoy-noticia-1662272)
-- **Lima: Ignacio Buse avanza a octavos del Lima Challenger 3**: [Link](https://soltvperu.com/ignacio-buse-octavos-lima-challenger-3/)
-
-
-### precio del dolar peru (N/A, 11/11/2025 15:27 Lima)
-
-- **Precio del dólar sigue cayendo: Así abrió el tipo de cambio hoy 11 de noviembre en Perú**: [Link](https://www.infobae.com/peru/2025/11/10/peru-cotizacion-de-apertura-del-dolar-hoy-10-de-noviembre-de-usd-a-pen/)
-- **Precio del dólar en Perú del domingo 9 de noviembre: cuál fue el tipo de cambio**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-2025-cuanto-esta-el-dolar-este-domingo-9-de-noviembre-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
-- **Dólar hoy: cierra a S/3.369 y cae respecto al viernes**: [Link](https://peru21.pe/economia/dolar-hoy-cierra-s3369-y-cae-respecto-al-vienes/)
-
-
-### liga de campeones femenina de la uefa (N/A, 11/11/2025 15:27 Lima)
-
-- **Rivales de los equipos españoles en la Champions: una victoria holgada, una remontada y una derrota inesperada**: [Link](https://www.marca.com/futbol/futbol-femenino/champions-league/2025/11/08/rivales-equipos-espanoles-champions-victoria-holgada-remontada-derrota-inesperada.html)
-- **Renard, a por más historia**: [Link](https://as.com/futbol/femenino/renard-a-por-mas-historia-f202511-n/)
-- **DISNEY+ CONTINÚA CON LA EMOCIÓN EUROPEA: FC BARCELONA, ATLÉTICO DE MADRID Y REAL MADRID C.F COMPITEN EN LA UEFA WOMEN’S CHAMPIONS LEAGUE ESTE NOVIEMBRE**: [Link](https://cineytele.com/play/noticias/disney-continua-con-la-emocion-europea-fc-barcelona-atletico-de-madrid-y-real-madrid-c-f-compiten-en-la-uefa-womens-championsleague-este-noviembre/)
-
-
-### roma femenino vs (N/A, 11/11/2025 15:27 Lima)
-
-- **Previa UWCL Roma vs Vålerenga: urgencias en Tre Fontane por los primeros puntos**: [Link](https://lasfutbolistas.com/previa-uwcl-roma-vs-valerenga-urgencias-en-tre-fontane-por-los-primeros-puntos/)
-
-
-### taylor fritz (N/A, 11/11/2025 11:31 Lima)
-
-- **ATP Finals: Alcaraz vs. Fritz & Musetti vs. de Minaur | Previews, Picks, Where to Watch**: [Link](https://www.tennis.com/news/articles/atp-finals-alcaraz-vs-fritz-musetti-vs-de-minaur-previews-picks-where-to-watch)
-- **“At Laver Cup, I was able to beat him to the punch” – Fritz on his chances to compete with Alcaraz**: [Link](https://www.tennismajors.com/atp/at-laver-cup-i-was-able-to-beat-him-to-the-punch-fritz-on-his-chances-to-compete-with-alcaraz-839707.html)
-- **Carlos Alcaraz is only 50 points away from securing tennis crown, and could qualify to semi-finals tonight**: [Link](https://www.gamereactor.eu/carlos-alcaraz-is-only-50-points-away-from-securing-tennis-crown-and-could-qualify-to-semi-finals-tonight-1632243/)
-
-
-### habitat afp (N/A, 11/11/2025 11:31 Lima)
-
-- **Usuarios de AFP Habitat reportan falla en web: no pueden ingresar a sus cuentas para solicitar el octavo retiro**: [Link](https://larepublica.pe/economia/2025/11/11/usuarios-de-afp-habitat-reportan-falla-en-web-no-pueden-ingresar-a-sus-cuentas-para-solicitar-el-octavo-retiro-atmp-776402)
-- **Retiro AFP: conoce las pocas fechas que restan del cronograma regular por el último dígito del DNI**: [Link](https://www.infobae.com/peru/2025/11/09/retiro-afp-2025-estas-son-las-tres-ultimas-fechas-por-el-ultimo-digito-del-dni-del-cronograma-regular/)
-- **Octavo retiro de AFP 2025: cuándo y cómo registrar solicitud hoy si tu DNI termina en 7, según fecha del cronograma**: [Link](https://gestion.pe/mix/mi-bolsillo/octavo-retiro-de-afp-2025-cuando-y-como-registrar-solicitud-hoy-si-tu-dni-termina-en-7-segun-fecha-del-cronograma-nnda-nnse-noticia/)
-
-
-### carlos alcaraz (N/A, 11/11/2025 11:31 Lima)
-
-- **Resumen y resultado del Alcaraz - Fritz: Alcaraz pone pie y medio en semifinales**: [Link](https://as.com/tenis/final_atp/alcaraz-fritz-en-directo-segunda-jornada-de-las-atp-finals-de-turin-hoy-en-vivo-f202511-d/)
-- **Alcaraz - Fritz, en directo | Última hora de las finales ATP de Turín hoy en vivo**: [Link](https://www.marca.com/tenis/copa-masters/carlos-alcaraz-taylor-fritz/2025/11/11/04_0414_20251111_5-directo.html)
-- **Alcaraz v Fritz: duelo de ganadores en las Nitto ATP Finals**: [Link](https://www.atptour.com/es/news/alcaraz-fritz-de-minaur-musetti-nitto-atp-finals-2025-tuesday-preview)
-
-
-### champions femenina (N/A, 11/11/2025 11:31 Lima)
-
-- **Real Madrid defiende invicto de Women's Champions League 2025-2026 con Linda en buen nivel**: [Link](https://www.espn.com.ar/futbol/champions-league/nota/_/id/15942994/real-madrid-vs-paris-fc-fecha-3-champions-femenina-2025---2026-equipo-fecha-hora-y-tv-en-vivo)
-- **Apuestas y pronósticos Real Madrid vs Paris FC**: [Link](https://www.marca.com/apuestas-deportivas/predicciones/2025/11/10/apuestas-pronosticos-real-madrid-vs-paris-fc.html)
-- **Pau Quesada: “Estamos encontrando la solidez que buscábamos"**: [Link](https://www.realmadrid.com/es-ES/noticias/futbol/primer-equipo-femenino/ruedas-de-prensa/rueda-de-prensa-de-pau-quesada-pre-real-madrid-paris-fc-wcl-10-11-2025)
-
-
-### amistosos (N/A, 11/11/2025 11:31 Lima)
-
-- **Decisión final de la FPF: lo último sobre los amistosos de Perú frente a Rusia y Chile**: [Link](https://depor.com/futbol-peruano/seleccion-peruana/peru-vs-rusia-y-chile-fpf-mantendra-amistosos-y-no-seran-reprogramados-pese-a-retraso-en-viaje-cuando-llega-seleccion-peruana-a-rusia-fecha-fifa-noticia/)
-- **El “Rusia mandará un chárter” de Ferrari y qué se reveló sobre el nuevo técnico: lo que no se vio del accidentado viaje de Perú a San Petersburgo**: [Link](https://elcomercio.pe/deporte-total/seleccion/seleccion-peruana-hoy-el-rusia-mandara-un-charter-de-jean-ferrari-y-que-se-revelo-sobre-el-nuevo-tecnico-lo-que-no-se-vio-del-accidentado-viaje-de-peru-a-san-petersburgo-tlcnota-noticia/)
-- **Joao Grimaldo fue desconvocado para los amistosos de Perú en la fecha FIFA**: [Link](https://www.espn.com.ar/futbol/mundial/nota/_/id/15939822/joao-grimaldo-fue-desconvocado-para-los-amistosos-de-peru)
 
 
