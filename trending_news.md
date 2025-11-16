@@ -1,3 +1,52 @@
+### precio dolar hoy peru (N/A, 16/11/2025 07:44 Lima)
+
+- **Precio del dólar en Perú hoy, domingo 16 de noviembre: cuál es el tipo de cambio del día**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-a-cuanto-esta-el-dolar-y-tipo-de-cambio-este-domingo-16-de-noviembre-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
+- **Precio del dólar en sigue en caída: Así se cotiza el tipo de cambio hoy 15 de noviembre en Perú**: [Link](https://www.infobae.com/peru/2025/11/14/peru-cotizacion-de-apertura-del-dolar-hoy-14-de-noviembre-de-usd-a-pen/)
+- **Tipo de cambio en Perú: noviembre y diciembre entre estabilidad y cautela global**: [Link](https://gestion.pe/opinion/tipo-de-cambio-en-peru-noviembre-y-diciembre-entre-estabilidad-y-cautela-global-noticia/)
+
+
+### atp finals 2025 (N/A, 16/11/2025 07:44 Lima)
+
+- **Just like Carlos Alcaraz and Jannik Sinner , Siya Kolisi enjoyed the taste of victory on Saturday in Turin.**: [Link](https://www.atptour.com/en/news/siya-kolisi-nitto-atp-finals-2025-feature)
+- **How much prize money will Alcaraz or Sinner make by winning Nitto ATP Finals?**: [Link](https://www.nittoatpfinals.com/en/news/nitto-atp-finals-2025-champion-prize-money)
+- **“Imagine me being friends with McEnroe or Lendl”: Boris Becker says Alcaraz–Sinner bond is changing the sport**: [Link](https://tennisuptodate.com/atp/imagine-me-being-friends-with-mcenroe-or-lendl-boris-becker-says-alcaraz-sinner-bond-is-changing-the-sport)
+
+
+### starbucks (N/A, 16/11/2025 07:44 Lima)
+
+- **Starbucks union says it expects 'largest, longest strike in company history'**: [Link](https://www.usatoday.com/story/money/2025/11/14/starbucks-workers-union-largest-longest-strike-history/87274412007/)
+- **Zohran Mamdani Wants You to Boycott Starbucks**: [Link](https://www.businessinsider.com/zohran-mamdani-boycott-starbucks-strike-2025-11)
+- **Starbucks workers union launches strike in more than 40 cities on chain's key holiday sales day**: [Link](https://www.cnbc.com/2025/11/13/starbucks-workers-united-union-strike-red-cup-day.html)
+
+
+### gustavo gorriti (N/A, 16/11/2025 07:44 Lima)
+
+- **Juez dispone seguir investigación a Gustavo Gorriti por presuntos favores con Rafael Vela y José Domingo Pérez**: [Link](https://www.expreso.com.pe/?p=1239818)
+- **Gustavo Gorriti sufre nuevo revés: seguirá siendo investigado por utilizar IDL-Reporteros en favor de Rafael Vela y Domingo Pérez**: [Link](https://willax.pe/politica/gustavo-gorriti-investigado-idl-reporteros-rafael-vela-domingo-perez-willax)
+- **Revés judicial para Gustavo Gorriti: magistrado confirma continuidad de pesquisas por presunto cohecho**: [Link](https://www.expreso.com.pe/judicial/reves-judicial-para-gustavo-gorriti-magistrado-confirma-continuidad-de-pesquisas-por-presunto-cohecho-idl-reporteros-rafael-vela-jose-domingo-perez-noticia/1239804/)
+
+
+### hungria vs (N/A, 16/11/2025 07:44 Lima)
+
+- **Hungría e Irlanda juegan una "final" en las Eliminatorias UEFA**: [Link](https://www.espn.com.ar/futbol/mundial/nota/_/id/15943274/hungria-vs-irlanda-eliminatorias-uefa-equipo-fecha-hora-tv-en-vivo)
+- **Hungría vs Irlanda Pronóstico y Apuestas | Mundial 16/11/25**: [Link](https://www.apuestas-deportivas.es/pronostico/hungria-vs-irlanda-pronostico-clasificacion-mundial-16-11-2025/)
+- **"Ahora en nuestras manos": Hallgrimsson sobre la candidatura a los play-offs**: [Link](https://masmma.com.mx/futbol/ahora-en-nuestras-manos-hallgrimsson-sobre-la-candidatura-a-los-play-offs/121615/)
+
+
+### nickol sinchi (N/A, 16/11/2025 07:44 Lima)
+
+- **Nickol Sinchi es la nueva integrante de Son del Duke: agrupación confirmó su incorporación**: [Link](https://larepublica.pe/espectaculos/2025/11/16/nickol-sinchi-es-la-nueva-integrante-de-son-del-duke-agrupacion-confirmo-su-incorporacion-mdga-728432)
+- **¿Nickol Sinchi será el “jale bomba” de Son del Duke? Esto se sabe**: [Link](https://www.oigo.com/noticias/musica/nickol-sinchi-sera-el-jale-bomba-de-son-del-duke-esto-se-sabe-video/)
+- **Nickol Sinchi sorprende al cantar junto a Son del Duke y sería su nueva integrante: "Bienvenida"**: [Link](https://lakaribena.com.pe/cumbia/nickol-sinchi-sorprende-cantar-junto-son-duke-seria-su-nueva-integrante-bienvenida-n28907)
+
+
+### portugal vs armenia (N/A, 16/11/2025 07:44 Lima)
+
+- **Cristiano Ronaldo, his first reaction after his red**: [Link](https://frenchfootballweekly.com/2025/11/16/cristiano-ronaldo-his-first-reaction-after-his-red/)
+- **Bosnian refereeing team appointed for Portugal vs Armenia match**: [Link](https://sportaran.com/en/post/bosnijskaya-brigada-arbitrov-naznachena-na-match-portugaliya-armeniya/)
+- **Where to stream Ronaldo, Portugal vs. Armenia FIFA World Cup Qualifying match today**: [Link](https://www.mlive.com/tv/2025/11/where-to-stream-ronaldo-portugal-vs-armenia-fifa-world-cup-qualifying-match-today.html)
+
+
 ### dillon danis (N/A, 16/11/2025 03:29 Lima)
 
 - **Dillon Danis Ejected from UFC 322 After Massive Ringside Brawl in Crowd on Video**: [Link](https://bleacherreport.com/articles/25295211-dillon-danis-ejected-ufc-322-after-massive-ringside-brawl-crowd-video)
@@ -981,53 +1030,5 @@ Sin noticias relacionadas disponibles.
 - **FONAVI 2025 vía Banco de la Nación: quiénes cobran los aportes antes de fin de año**: [Link](https://elcomercio.pe/respuestas/tramites/quienes-cobraran-la-devolucion-del-fonavi-antes-que-termine-el-2025-via-banco-de-la-nacion-tdpe-noticia/)
 - **Fonavi: Advierten que devolución total de aportes tomaría 9 años, dado presupuesto insuficiente**: [Link](https://www.infobae.com/peru/2025/11/12/fonavi-advierten-que-devolucion-total-de-aportes-tomaria-9-anos-dado-presupuesto-insuficiente/)
 - **Fonavi aprobó el Reintegro 4: ¿Quiénes pueden cobrar este noviembre de 2025?**: [Link](https://libero.pe/tiempoextra/2025/11/11/fonavi-aprobo-reintegro-4-quienes-pueden-cobrar-noviembre-de-2025-828179)
-
-
-### dolar a soles (N/A, 13/11/2025 03:32 Lima)
-
-- **Precio del dólar en Perú: a cuánto cerró el tipo de cambio del miércoles 12 de noviembre**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-a-cuanto-esta-el-dolar-y-tipo-de-cambio-este-miercoles-12-de-noviembre-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
-- **El dólar vuelve a retroceder y cierra en S/3,366 en el mercado peruano**: [Link](https://caretas.pe/economia/el-dolar-vuelve-a-retroceder-y-cierra-en-s-3366-en-el-mercado-peruano/)
-- **Tres formas de aprovechar la cotización del dólar a la baja en las finanzas personales**: [Link](https://gestion.pe/tu-dinero/finanzas-personales/tres-formas-de-aprovechar-la-cotizacion-del-dolar-a-la-baja-en-las-finanzas-personales-noticia/)
-
-
-### italia vs (N/A, 13/11/2025 03:32 Lima)
-
-- **Italia visita al colista Moldavia en busca de la cima de su grupo en las Eliminatorias**: [Link](https://www.espn.com.pe/futbol/mundial/nota/_/id/15942460/moldavia-vs-italia-eliminatorias-uefa-equipo-fecha-hora-tv-en-vivo)
-- **Pronóstico Moldavia - Italia. Mundial | 13/11/2025**: [Link](https://gainblers.com/pe/pronosticos/futbol/internacional/mundial/pronostico-moldavia-italia-13-11-2025/)
-
-
-### shakira (N/A, 13/11/2025 03:32 Lima)
-
-- **Shakira estrena el videoclip oficial de ‘Zoo’, canción para la película ‘Zootopia 2’**: [Link](https://elcomercio.pe/luces/musica/shakira-estrena-el-videoclip-oficial-de-zoo-cancion-para-la-pelicula-zootopia-2-ultimas-noticia/)
-- **Shakira ya no es 'loba', ahora es 'gacela', ¿qué hay detrás de este cambio?**: [Link](https://www.elcomercio.com/tendencias/cine/shakira-gazelle-zootopia-peliculas/)
-- **Shakira se pone los cuernos para el estreno de ZOO, el tema oficial de Zootopia 2**: [Link](https://www.ecuavisa.com/entretenimiento/musica/shakira-se-pone-cuernos-el-estreno-zoo-tema-oficial-zootopia-2-OE10413481)
-
-
-### clippers - nuggets (N/A, 13/11/2025 03:32 Lima)
-
-- **Nikola Jokic erupts for 55 points, Luka Doncic stops at 19**: [Link](https://www.eurohoops.net/en/nba-news/1893800/nikola-jokic-scores-55-points-nuggets-beat-clippers-nba/)
-- **Nuggets Triumph Over Clippers: Latest Game Updates & Highlights**: [Link](https://news.jobaaj.com/news-updates/sports/nuggets-triumph-over-clippers-latest-game-updates-highlights)
-- **Game Recap: Nuggets 130, Clippers 116**: [Link](https://www.nba.com/watch/video/game-recap-nuggets-130-clippers-116)
-
-
-### andorra vs albania (N/A, 13/11/2025 03:32 Lima)
-
-- **The "Reds" arrive in Andorra, ready for the important match!**: [Link](https://indeksonline.net/en/The-Rossoneri-arrive-in-Andorra-ready-for-the-important-match/)
-- **"Serbia will beat Albania, the chances are", Pavlović: We wouldn't be here if we didn't believe we could beat England**: [Link](https://pamfleti.net/english/sport/serbia-do-ta-kaloje-shqiperine-shanset-jane-pavlovic-nuk-do-te-ishim-ketu--i307068)
-- **Gjimshiti, "Our dream is the World Cup"**: [Link](https://www.gazetaexpress.com/en/Our-dream-is-always-the-world./)
-
-
-### beto cuevas (N/A, 12/11/2025 23:29 Lima)
-
-- **Beto Cuevas, ex vocalista de La Ley dará concierto en PALCCO**: [Link](https://oem.com.mx/eloccidental/gossip/beto-cuevas-ex-vocalista-de-la-ley-dara-concierto-en-palcco-26766105)
-- **Beto Cuevas inicia una nueva etapa con '¡Respira!'**: [Link](https://www.rockaxis.com/rock/noticia/48595/beto-cuevas-inicia-una-nueva-etapa-con-respira!-/)
-- **Beto Cuevas lanzó la primera canción de su "nueva etapa artística"**: [Link](https://cooperativa.cl/noticias/magazine/musica/musica-chilena/beto-cuevas-lanzo-la-primera-cancion-de-su-nueva-etapa-artistica/2025-11-11/074417.html)
-
-
-### paco bazan (N/A, 12/11/2025 23:29 Lima)
-
-- **Madre de la hija de Paco Bazán lo demanda por incumplir pensión de alimentos: “No se ha puesto al día”**: [Link](https://www.infobae.com/peru/2025/11/12/madre-de-la-hija-de-paco-bazan-lo-demanda-estoy-pidiendole-que-cumpla/)
-- **Paco Bazán se defiende y niega haber incumplido con la pensión alimenticia de su última hija**: [Link](https://elcomercio.pe/tvmas/farandula/paco-bazan-niega-haber-incumplido-con-la-pension-alimenticia-de-su-ultima-hija-ultimas-noticia/)
-- **Abogada de Paco Bazán rompe su silencio tras demanda y desmiente a Melissa Linares: “La pensión es cumplida de manera puntual y en su totalidad”**: [Link](https://trome.com/espectaculos/tv/paco-bazan-su-abogada-rompe-su-silencio-tras-demanda-y-desmiente-a-melissa-linares-la-pension-es-cumplida-de-manera-puntual-y-en-su-totalidad-video-susana-alvarado-farandula-noticia/)
 
 
