@@ -1,3 +1,73 @@
+### valentina shevchenko vs zhang weili (N/A, 15/11/2025 23:29 Lima)
+
+- **Valentina Shevchenko | An Entirely Different Approach**: [Link](https://www.ufc.com/news/valentina-shevchenko-an-entirely-different-approach-vechain-ufc-322)
+- **Zhang Weili explains why she vacated title ahead of UFC 322 super-fight vs. Valentina Shevchenko**: [Link](https://bloodyelbow.com/2025/11/15/zhang-weili-explains-why-she-vacated-title-ahead-of-ufc-322-super-fight-vs-valentina-shevchenko/)
+- **Valentina Shevchenko on Martial Arts: Beauty, Evolution, and Her Fight with Zhang Weili**: [Link](https://bvmsports.com/2025/11/14/valentina-shevchenko-on-martial-arts-beauty-evolution-and-her-fight-with-zhang-weili/)
+
+
+### serbia vs (N/A, 15/11/2025 23:29 Lima)
+
+- **Comments and predictions for Serbia vs Latvia: Defeat the away team**: [Link](https://baonghean.vn/en/nhan-dinh-du-doan-serbia-vs-latvia-danh-guc-doi-khach-10311513.html)
+- **Serbia vs Latvia Prediction and Betting Tips | November 16th 2025**: [Link](https://www.sportskeeda.com/football/serbia-vs-latvia-prediction-betting-tips-november-16th-2025)
+- **Preview:Serbia vs Latvia - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/serbia/world-cup-2026/preview/serbia-vs-latvia-prediction-team-news-lineups_585720.html)
+
+
+### espn (N/A, 15/11/2025 23:29 Lima)
+
+- **South Africa fight back as India slump to 138/4 at lunch; Gill retires hurt**: [Link](https://www.msn.com/en-in/sports/cricket/south-africa-fight-back-as-india-slump-to-138-4-at-lunch-gill-retires-hurt/ar-AA1Qu5M6)
+- **Shubman Gill hospitalised, to play no further part in Kolkata Test**: [Link](https://www.cricbuzz.com/cricket-news/136339/shubman-gill-hospitalised-to-play-no-further-part-in-kolkata-test)
+- **IND vs SA: Shubman Gill in hospital after neck injury, ruled out of first Test**: [Link](https://www.indiatoday.in/sports/cricket/story/india-vs-south-africa-shubman-gill-ruled-out-neck-injury-bcci-update-kolkata-2820605-2025-11-16)
+
+
+### son del duke (N/A, 15/11/2025 23:29 Lima)
+
+- **Son del Duke dejó en shock a fans al presentar a Nickol Sinchi como su nueva integrante**: [Link](https://www.oigo.com/noticias/musica/son-del-duke-dejo-en-shock-a-fans-al-presentar-a-nickol-sinchi-como-su-nueva-integrante-viral-tiktok-video/)
+- **Nickol Sinchi sería la nueva integrante de Son del Duke y causa revuelo en 'Esta Noche' tras renuncia masiva de sus cantantes**: [Link](https://larepublica.pe/espectaculos/2025/11/14/nickol-sinchi-seria-la-nueva-integrante-de-son-del-duke-y-causa-revuelo-en-esta-noche-tras-renuncia-masiva-de-sus-cantantes-508620)
+- **¡Nueva voz! Nickol Sinchi será presentada oficialmente como parte de Son del Duke en 'Esta Noche'**: [Link](https://lakaribena.com.pe/cumbia/nueva-voz-nickol-sinchi-sera-presentada-oficialmente-como-parte-son-duke-esta-noche-n29019)
+
+
+### leon edwards (N/A, 15/11/2025 23:29 Lima)
+
+- **Carlos Prates believes he can leapfrog Ian Machado Garry for title shot after UFC 322**: [Link](https://sports.yahoo.com/article/carlos-prates-believes-leapfrog-ian-190000060.html)
+- **'Time off' - Leon Edwards reveals social media detox crushing UFC loss**: [Link](https://www.the-sun.com/sport/15479060/leon-edwards-ufc-322-prates-fightsocial-media-detox/)
+- **‘Like he hits people with a taser’: Pros react to Carlos Prates’ electrifying knockout of Leon Edwards at UFC 322**: [Link](https://www.mmafighting.com/ufc/456616/like-he-hits-people-with-a-taser-pros-react-to-carlos-prates-electrifying-knockout-of-leon-edwards-at-ufc-322)
+
+
+### nba (N/A, 15/11/2025 23:29 Lima)
+
+- **NBA seeks cell phones from multiple teams, including Lakers, in gambling investigation: Sources - The Athletic**: [Link](https://www.nytimes.com/athletic/6810632/2025/11/15/lakers-nba-gambling-investigation-congress-damon-jones/)
+- **Investigators expected to seek documents, including cell phones and phone records, from at least 10 Lakers employees**: [Link](https://www.hoopshype.com/story/sports/nba/2025/11/15/investigators-expected-documents-including-cell-phones-phone-records-from-least-lakers-employees/87298410007/)
+- **NBA’s Silver faces deadline to respond to Cruz panel on gambling controversy**: [Link](https://thehill.com/homenews/senate/5598747-senate-panel-investigates-nba/)
+
+
+### benoît saint denis (N/A, 15/11/2025 23:29 Lima)
+
+- **Https://www.lequipe.fr/Mma/actu-en-direct/suivez-l-ufc-322-en-direct-live/17524**: [Link](https://www.lequipe.fr/Mma/Actualites/Benoit-saint-denis-surclasse-beneil-dariush-en-16-secondes-par-k-o-a-l-ufc-322/1610149)
+- **UFC 322 : À quelle heure le combat de BSD est-il prévu ?**: [Link](https://lasueur.com/ufc-322-heure-combat-bsd-prevu-15-11-2025)
+- **MMA. Le Nîmois Saint-Denis de retour pour un combat aux États-Unis**: [Link](https://www.lagazettedenimes.fr/sport/2025-11-15-mma-le-nimois-saint-denis-de-retour-pour-un-combat-aux-etats-unis/)
+
+
+### denver nuggets (N/A, 15/11/2025 23:29 Lima)
+
+- **DENVER IS IN FEAR: Nikola Jokić injured, the club issued an urgent statement!**: [Link](https://serbiantimes.info/en/denver-is-in-fear-nikola-jokic-injured-the-club-issued-an-urgent-statement/)
+- **How to Watch Nuggets vs Timberwolves: Live Stream NBA, TV Channel**: [Link](https://www.newsweek.com/how-to-watch-nuggets-vs-timberwolves-live-stream-nba-tv-channel-11054721)
+- **Nuggets' Nikola Jokic: Good to go Saturday**: [Link](https://www.cbssports.com/fantasy/basketball/news/nuggets-nikola-jokic-good-to-go-saturday/)
+
+
+### ucrania vs (N/A, 15/11/2025 23:29 Lima)
+
+- **Perú dio la talla en su histórico debut en el Mundial de Vóley Playa 2025: exigió al máximo a la mejor dupla del planeta**: [Link](https://www.infobae.com/peru/deportes/2025/11/14/peru-dio-la-talla-en-su-historico-debut-en-el-mundial-de-voley-playa-2025-exigio-al-maximo-a-la-mejor-dupla-del-planeta/)
+- **Perú luchó, pero perdió 2-0 ante Ucrania por la fecha 2 del Mundial de Vóley Playa 2025**: [Link](https://rpp.pe/voley/mas-voley/peru-vs-ucrania-en-vivo-a-que-hora-inicia-y-donde-ver-partido-fecha-2-mundial-de-voley-playa-2025-con-gaona-y-alcca-via-latina-gratis-noticia-1663747)
+- **Perú disputará mundial de vóley playa**: [Link](https://elperuano.pe/noticia/282954-peru-disputara-mundial-de-voley-playa)
+
+
+### universitario vs san martin voley (N/A, 15/11/2025 23:29 Lima)
+
+- **Resultados de la fecha 4 de la Liga Peruana de Vóley 2025/2026: así van los partidos**: [Link](https://www.infobae.com/peru/deportes/2025/11/14/resultados-de-la-fecha-4-de-la-liga-peruana-de-voley-20252026-asi-van-los-partidos/)
+- **Liga Peruana de Vóley por Latina: Revive AQUÍ el partido entre Deportivo Wanka vs Club Atlético Atenea**: [Link](https://www.latina.pe/voley-por-latina/liga-peruana-de-voley-por-latina-revive-aqui-el-partido-entre-deportivo-wanka-vs-club-atletico-atenea_20251115/)
+- **Pronostico: San Martín vs Universitario por la Liga Peruana de Vóley**: [Link](https://www.futbolperuano.com/liga-voley/san-martin-vs-universitario-en-vivo-por-la-liga-peruana-de-voley-551400)
+
+
 ### tracy cortez (N/A, 15/11/2025 21:02 Lima)
 
 - **Tracy Cortez finally accepting role model status coming into UFC 322: ‘I’m trying really hard’**: [Link](https://www.mmamania.com/ufc-news/402570/tracy-cortez-finally-accepting-role-model-status-coming-into-ufc-322-im-trying-really-hard)
@@ -959,74 +1029,5 @@ Sin noticias relacionadas disponibles.
 - **Partido de la fecha 20 se jugará a puerta cerrada**: [Link](https://www.winsports.co/futbol-colombiano/noticias/partido-de-la-fecha-20-se-jugara-a-puerta-cerrada-392459)
 - **Otra pésima noticia para Millonarios además de la eliminación: Lloran sus hinchas en Tunja**: [Link](https://www.msn.com/es-co/deportes/other/otra-p%C3%A9sima-noticia-para-millonarios-adem%C3%A1s-de-la-eliminaci%C3%B3n-lloran-sus-hinchas-en-tunja/ar-AA1QbFSM)
 - **Millonarios visita a Chicó sin público por Liga Colombiana: fecha, hora y cómo seguir en vivo**: [Link](https://caracol.com.co/2025/11/12/millonarios-visita-a-chico-sin-publico-por-liga-colombiana-fecha-hora-y-como-seguir-en-vivo/)
-
-
-### ignacio buse (N/A, 12/11/2025 20:57 Lima)
-
-- **Ignacio Buse vs. Vilius Gaubas: ¿a qué hora juegan y dónde ver EN VIVO por octavos del Challenger de Montevideo?**: [Link](https://rpp.pe/tenis/mas-tenis/ignacio-buse-vs-gaubas-en-vivo-octavos-final-challenger-montevideo-2025-a-que-hora-juegan-y-donde-ver-por-tv-via-atp-tour-link-gratis-partidos-de-hoy-noticia-1663401)
-- **Peruano aplasta a kazajo y se mete en octavos del Challenger en Montevideo**: [Link](https://diarioviral.pe/deportes/peruano-aplasta-a-kazajo-y-se-mete-en-octavos-del-challenger-en-montevideo-48657)
-- **Ignacio Buse pasó a octavos de final del Challenger de Montevideo**: [Link](https://www.apnoticias.pe/peru/diario-uno/ignacio-buse-paso-a-octavos-de-final-del-challenger-de-montevideo-1468831)
-
-
-### spurs - warriors (N/A, 12/11/2025 20:57 Lima)
-
-- **Golden State Warriors vs San Antonio Spurs Prediction, Pick, Odds -- 11/12**: [Link](https://www.actionnetwork.com/nba/golden-state-warriors-vs-san-antonio-spurs-prediction-pick-odds-wednesday-november-12)
-- **BetMGM Promo Code ‘NYPDM1500’: Get a 20% first deposit match up to $1,500 for Warriors vs. Spurs**: [Link](https://nypost.com/2025/11/12/betting/betmgm-promo-code-nypdm1500-get-a-20-first-deposit-match-up-to-1500-for-warriors-vs-spurs/)
-- **San Antonio plays Golden State, seeks 6th straight home win**: [Link](https://www.washingtonpost.com/sports/nba/2025/11/12/warriors-spurs-preview/c1cd9110-bf95-11f0-8eee-a78486b4c797_story.html)
-
-
-### fiscal delia espinoza (N/A, 12/11/2025 20:57 Lima)
-
-- **Este es el plazo que tiene la JNJ para reponer a Delia Espinoza como fiscal de la Nación**: [Link](https://www.infobae.com/peru/2025/11/11/este-es-el-plazo-que-tiene-la-jnj-para-reponer-a-delia-espinoza-como-fiscal-de-la-nacion/)
-- **JNJ: ¿Qué sucederá con la nueva decisión del PJ que ordena que Delia Espinoza sea repuesta como fiscal de la Nación?**: [Link](https://elcomercio.pe/politica/junta-nacional-de-justicia-que-sucedera-con-la-nueva-decision-del-pj-para-que-delia-espinoza-sea-repuesta-como-fiscal-de-la-nacion-tlcnota-noticia/)
-- **Delia Espinoza reclama restitución inmediata como fiscal de la Nación tras fallo judicial**: [Link](https://caretas.pe/politica/delia-espinoza-reclama-restitucion-inmediata-como-fiscal-de-la-nacion-tras-fallo-judicial/)
-
-
-### copa ecuador (N/A, 12/11/2025 20:57 Lima)
-
-- **Liga de Quito recibe a Deportivo Cuenca por los cuartos de final de la Copa Ecuador**: [Link](https://www.espn.com.ar/futbol/ecuador/nota/_/id/15944532/liga-de-quito-vs-deportivo-cuenca-cuartos-de-final-copa-ecuador-equipo-fecha-hora-y-tv-en-vivo)
-- **A qué hora y cómo VER EN VIVO LDU Quito vs Deportivo Cuenca HOY**: [Link](https://www.antena2.com/futbol/a-que-hora-y-como-ver-en-vivo-ldu-quito-vs-deportivo-cuenca-hoy-12-de-noviembre)
-- **Dolor de cabeza para Norberto Araujo: la importante baja que tendrá Deportivo Cuenca ante LDU por Copa Ecuador**: [Link](https://www.ole.com.ar/ecuador/cuenca/dolor-cabeza-norberto-araujo-importante-baja-deportivo-cuenca-ldu-copa-ecuador_0_wlsUrBiiPK.html)
-
-
-### fortaleza vs (N/A, 12/11/2025 20:57 Lima)
-
-- **Fortaleza rescató empate ante Atlético Mineiro**: [Link](https://ovacion.pe/noticias/futbol-internacional/fortaleza-rescato-empate-ante-atletico-mineiro)
-- **Atlético Mineiro vs Fortaleza pronostico y comparación de cuotas 12.11.2025**: [Link](https://www.livetipsportal.com/es/pronosticos-apuestas-deportivas/atletico-mineiro-vs-fortaleza-serie-a-10962848/)
-
-
-### atlético mineiro - fortaleza (N/A, 12/11/2025 20:57 Lima)
-
-- **Atlético-MG x Fortaleza AO VIVO: link para assistir online - Brasileirão**: [Link](https://www.sportingnews.com/br/futebol/noticias/atletico-mg-fortaleza-ao-vivo-link-assistir-jogo-online-brasileirao-12-11/241c38869cac9ab9af209511)
-- **Homenagem (desatualizada) do Atlético Mineiro a Hulk incluiu o FC Porto (vídeo)**: [Link](https://www.abola.pt/noticias/homenagem-desatualizada-do-atletico-mineiro-a-hulk-incluiu-o-fc-porto-video-2025111223524444617)
-- **Aos 21 min do 2º tempo - gol de pênalti de Deyverson do Fortaleza contra o Atlético-MG**: [Link](https://ge.globo.com/futebol/video/aos-21-min-do-2o-tempo-gol-de-penalti-de-deyverson-do-fortaleza-contra-o-atletico-mg-14094209.ghtml)
-
-
-### sutep (N/A, 12/11/2025 20:57 Lima)
-
-- **Docentes convocan paro nacional el 21 de noviembre en rechazo al Congreso por dilatar ley de pensiones**: [Link](https://jornada.com.pe/docentes-convocan-paro-nacional-el-21-de-noviembre-en-rechazo-al-congreso-por-dilatar-ley-de-pensiones/)
-- **Sutep ratifica paro nacional de este jueves 13**: [Link](https://radiouno.pe/noticias/258182/sutep-ratifica-paro-nacional-de-este-jueves-13/)
-- **Puno: Se preparan movilizaciones masivas contra gobierno continuista de José Jerí**: [Link](https://inforegion.pe/puno-se-preparan-movilizaciones-masivas-contra-gobierno-continuista-de-jose-jeri/)
-
-
-### latina tv (N/A, 12/11/2025 20:57 Lima)
-
-- **Leyla, Martes 11 de noviembre – ver capítulo 35 completo**: [Link](https://www.latina.pe/entretenimiento/leyla-novela/leyla-martes-11-de-noviembre-ver-capitulo-35-completo_20251112/)
-- **ERES MI BIEN – CAPÍTULO 61 COMPLETO: Martes 11 de noviembre**: [Link](https://www.latina.pe/entretenimiento/eres-mi-bien/capitulos-completos-eres-mi-bien/eres-mi-bien-capitulo-61-completo-martes-11-de-noviembre_20251111/)
-- **Moisés y los diez mandamientos, Martes 11 de noviembre – ver capítulo 117 completo**: [Link](https://www.latina.pe/entretenimiento/moises-y-los-10-mandamientos/moises-y-los-diez-mandamientos-martes-11-de-noviembre-ver-capitulo-117-completo_20251112/)
-
-
-### latina en vivo (N/A, 12/11/2025 20:57 Lima)
-
-- **Alianza Lima vs Circolo 3-0: resumen de la victoria ‘blanquiazul’ por la fecha 7 de la Liga Peruana de Vóley 2025/26**: [Link](https://www.infobae.com/peru/deportes/2025/11/12/alianza-lima-vs-circolo-en-vivo-hoy-latina-fecha-7-primera-fase-liga-peruana-de-voley-2025-resumen-resultado/)
-- **Alianza Lima 2-0 Circolo EN VIVO y GRATIS por la fecha 7 de la Liga Peruana de Vóley**: [Link](https://bolavip.com/pe/voley/alianza-lima-vs-circolo-en-vivo-y-gratis-por-la-fecha-7-de-la-liga-peruana-de-voley)
-- **Entradas Alianza Lima vs Circolo Sportivo Italiano: precios y cómo comprar entradas para juego adelantado en Liga Peruana de Vóley 2025/26**: [Link](https://www.infobae.com/peru/deportes/2025/11/10/entradas-alianza-lima-vs-circolo-sportivo-italiano-precios-y-como-comprar-entradas-para-juego-adelantado-en-liga-peruana-de-voley-202526/)
-
-
-### jannik sinner (N/A, 12/11/2025 15:27 Lima)
-
-- **Nitto ATP Finals, in campo Sinner-Zverev: sfida al vertice per volare in semifinale Segui la diretta streaming su Rainews.it**: [Link](https://www.facebook.com/RaiNews/photos/nitto-atp-finals-in-campo-sinner-zverev-sfida-al-vertice-per-volare-in-semifinal/1310531494446701/)
-- **Tennis, Jasmine Paolini diventa official brand ambassador Fulfil**: [Link](https://oblo.it/tennis-jasmine-paolini-diventa-official-brand-ambassador-fulfil/)
-- **Atp Finals, a Torino è tutto esaurito per le finali: cifre record per l'ultimo biglietto venduto**: [Link](https://www.ilmessaggero.it/sport/tennis/atp_finals_torino_tutto_esaurito_le_finali_cifre_record_ultimo_biglietto_venduto-9184401.html)
 
 
