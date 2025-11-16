@@ -1,3 +1,38 @@
+### dillon danis (N/A, 16/11/2025 03:29 Lima)
+
+- **Dillon Danis Ejected from UFC 322 After Massive Ringside Brawl in Crowd on Video**: [Link](https://bleacherreport.com/articles/25295211-dillon-danis-ejected-ufc-322-after-massive-ringside-brawl-crowd-video)
+- **Dana White issues lifetime ban after brawl between Dillon Danis and Islam Makhachev's teammates**: [Link](https://bloodyelbow.com/2025/11/16/dana-white-issues-lifetime-ban-after-brawl-between-dillon-danis-and-islam-makhachevs-teammates/)
+- **WATCH: Wild Brawl Breaks Out Octagon Side at UFC 322 Involving Dillon Danis**: [Link](https://sports.yahoo.com/article/watch-wild-brawl-breaks-octagon-040742910.html)
+
+
+### ilia topuria (N/A, 16/11/2025 03:29 Lima)
+
+- **‘What a disappointment’: Volk rival slams Aussie after UFC superstar makes history**: [Link](https://www.foxsports.com.au/ufc/ufc-322-jack-della-maddalena-vs-islam-makhachev-live-updates-fight-start-time-in-australia-how-to-watch-and-stream-full-fight-card-results-highlights/news-story/fbb4f88df1baaf3f3d87a7135be6cb03)
+- **‘What a disappointment’: Ilia Topuria, pros rip Jack Della Maddalena for loss to Islam Makhachev at UFC 322**: [Link](https://sports.yahoo.com/article/disappointment-ilia-topuria-pros-rip-063000991.html)
+- **Donald Trump, Open the White House – I’m Coming!: Makhachev**: [Link](https://www.telecomasia.net/news/mma/donald-trump-open-the-white-house-i-m-coming-makhachev/)
+
+
+### stake (N/A, 16/11/2025 03:29 Lima)
+
+- **Berkshire Hathaway's surprising new tech stake**: [Link](https://www.cnbc.com/2025/11/15/berkshire-hathaways-surprising-new-tech-stake.html)
+- **Despite AI bubble fears, Warren Buffett's Berkshire Hathaway buys shares of hyperscaler Alphabet**: [Link](https://fortune.com/2025/11/15/warren-buffett-stocks-berkshire-hathaway-13f-alphabet-shares-ai-bubble/)
+- **Buffett’s Berkshire Builds a $4.9 Billion Stake in Alphabet**: [Link](https://www.bloomberg.com/news/articles/2025-11-14/buffett-acquires-4-9-billion-stake-in-google-parent-alphabet)
+
+
+### valentina shevchenko peru (N/A, 16/11/2025 03:29 Lima)
+
+- **Transmisión, Valentina Shevchenko-Zhang EN VIVO: qué canal TV pasa la pelea y a qué hora empieza**: [Link](https://elcomercio.pe/deporte-total/polideportivo/valentina-shevchenko-vs-zhang-weili-en-vivo-gratis-hoy-via-espn-disney-plus-premium-fox-sports-horarios-canales-tv-y-donde-ver-pelea-por-ufc-322-video-noticia/)
+- **Valentina Shevchenko enfrentará a Weili Zhang en el UFC 322**: [Link](https://www.americatv.com.pe/deportes/polideportivo/valentina-shevchenko-enfrentara-weili-zhang-ufc-322-n451702)
+- **¿A qué hora inicia y en qué canal pasan Shevchenko vs. Zhang por el UFC 322 en USA, México y España?**: [Link](https://gestion.pe/mix/sports/a-que-hora-es-y-en-que-canal-transmiten-pelea-de-ufc-322-valentina-shevchenko-vs-weili-zhang-en-vivo-hoy-15-de-noviembre-por-el-ufc-322-en-mexico-usa-y-espana-nnda-nnrt-noticia/)
+
+
+### israel vs (N/A, 16/11/2025 03:29 Lima)
+
+- **Israel national team faces Moldova to wrap up World Cup**: [Link](https://www.jpost.com/israel-news/sports/article-873840)
+- **Comments and predictions for Israel vs Moldova: Home team explodes**: [Link](https://baonghean.vn/en/nhan-dinh-du-doan-israel-vs-moldova-chu-nha-bung-no-10311515.html)
+- **How to watch today's Israel vs Moldova World Cup qualification game: Live stream, TV channel, and start time**: [Link](https://www.goal.com/en-us/news/watch-israel-vs-moldova-world-cup-qualification-live-stream-tv/blt37bdf90a10d57b7a)
+
+
 ### valentina shevchenko vs zhang weili (N/A, 15/11/2025 23:29 Lima)
 
 - **Valentina Shevchenko | An Entirely Different Approach**: [Link](https://www.ufc.com/news/valentina-shevchenko-an-entirely-different-approach-vechain-ufc-322)
@@ -994,40 +1029,5 @@ Sin noticias relacionadas disponibles.
 - **Madre de la hija de Paco Bazán lo demanda por incumplir pensión de alimentos: “No se ha puesto al día”**: [Link](https://www.infobae.com/peru/2025/11/12/madre-de-la-hija-de-paco-bazan-lo-demanda-estoy-pidiendole-que-cumpla/)
 - **Paco Bazán se defiende y niega haber incumplido con la pensión alimenticia de su última hija**: [Link](https://elcomercio.pe/tvmas/farandula/paco-bazan-niega-haber-incumplido-con-la-pension-alimenticia-de-su-ultima-hija-ultimas-noticia/)
 - **Abogada de Paco Bazán rompe su silencio tras demanda y desmiente a Melissa Linares: “La pensión es cumplida de manera puntual y en su totalidad”**: [Link](https://trome.com/espectaculos/tv/paco-bazan-su-abogada-rompe-su-silencio-tras-demanda-y-desmiente-a-melissa-linares-la-pension-es-cumplida-de-manera-puntual-y-en-su-totalidad-video-susana-alvarado-farandula-noticia/)
-
-
-### inglaterra vs (N/A, 12/11/2025 23:29 Lima)
-
-- **Pronóstico Inglaterra Serbia - Mundial 13/11/25**: [Link](https://www.sportytrader.com/es/pronosticos/inglaterra-serbia-304603/)
-- **Inglaterra, ya clasificada, enfrenta a Serbia y puede dejarla afuera del Mundial 2026**: [Link](https://www.espn.com.ar/futbol/mundial/nota/_/id/15943448/inglaterra-vs-serbia-eliminatorias-uefa-equipo-fecha-hora-y-tv-en-vivo)
-- **El juego de los números: ¿pueden Bellingham y Foden brillar en su regreso a la selección inglesa?**: [Link](https://www.fotmob.com/news/79lz465qumyi127kf57fi9vh9_es-el-juego-de-los-numeros-pueden-bellingham-y-foden-brillar-en-su-regreso-la-seleccion-inglesa?utm_source=fotmob)
-
-
-### vilius gaubas (N/A, 12/11/2025 23:29 Lima)
-
-- **Gubas turnyre Urugvajuje pateko į aštuntfinalį**: [Link](https://www.delfi.lt/sportas/tenisas/gubas-turnyre-urugvajuje-pateko-i-astuntfinali-120172943)
-- **Po atkaklios kovos V. Gaubas iškopė į kitą turnyro Urugvajuje etapą**: [Link](https://www.lrytas.lt/sportas/startai/2025/11/12/news/po-atkaklios-kovos-v-gaubas-iskope-i-kita-turnyro-urugvajuje-etapa-40240956)
-- **Vilius Gaubas pergalingai pradėjo „Challenger“ turnyrą Urugvajuje**: [Link](https://www.15min.lt/sportas/naujiena/tenisas/vilius-gaubas-pergalingai-pradejo-challenger-turnyra-urugvajuje-222-2561892)
-
-
-### thunder - lakers (N/A, 12/11/2025 23:29 Lima)
-
-- **Luka Doncic vs. Shai Gilgeous-Alexander: Player Props, Odds, and Lines**: [Link](https://news.bet365.com/en-us/article/luka-doncic-vs-shai-gilgeous-alexander-player-props-odds-and-lines/2025111218024351539)
-- **Lakers at Thunder Preview: a challenge against the best**: [Link](https://sports.yahoo.com/article/lakers-thunder-preview-challenge-against-195111134.html)
-- **Los Angeles Lakers vs Oklahoma City Thunder regular season game: Full injury report, who’s out, and more**: [Link](https://timesofindia.indiatimes.com/sports/nba/top-stories/los-angeles-lakers-vs-oklahoma-city-thunder-regular-season-game-full-injury-report-whos-out-and-more-november-12-2025/articleshow/125284394.cms)
-
-
-### noruega vs (N/A, 12/11/2025 23:29 Lima)
-
-- **Soccer WCup-Qualifying-Europe-Preview**: [Link](https://www.wvnews.com/sports/pro/soccer-wcup-qualifying-europe-preview/image_fdc5212b-7a54-5b6d-addb-171065653db3.html)
-- **Best bets: World Cup Qualifiers tips for Thursday November 13 2025**: [Link](https://www.sportinglife.com/football/news/best-bets-world-cup-qualifiers-tips-for-thursday-november-13-2025/228634)
-- **Norway Vs Estonia Live Streaming, FIFA World Cup 2026 Qualifiers: When, Where To Watch NOR Vs EST Match**: [Link](https://www.outlookindia.com/sports/football/norway-vs-estonia-live-streaming-fifa-world-cup-2026-qualifiers-when-where-to-watch-nor-vs-est-match)
-
-
-### boyacá chicó - millonarios (N/A, 12/11/2025 20:57 Lima)
-
-- **Partido de la fecha 20 se jugará a puerta cerrada**: [Link](https://www.winsports.co/futbol-colombiano/noticias/partido-de-la-fecha-20-se-jugara-a-puerta-cerrada-392459)
-- **Otra pésima noticia para Millonarios además de la eliminación: Lloran sus hinchas en Tunja**: [Link](https://www.msn.com/es-co/deportes/other/otra-p%C3%A9sima-noticia-para-millonarios-adem%C3%A1s-de-la-eliminaci%C3%B3n-lloran-sus-hinchas-en-tunja/ar-AA1QbFSM)
-- **Millonarios visita a Chicó sin público por Liga Colombiana: fecha, hora y cómo seguir en vivo**: [Link](https://caracol.com.co/2025/11/12/millonarios-visita-a-chico-sin-publico-por-liga-colombiana-fecha-hora-y-como-seguir-en-vivo/)
 
 
