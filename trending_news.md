@@ -1,3 +1,73 @@
+### boys vs (N/A, 16/11/2025 15:25 Lima)
+
+- **MIRA, Alianza Atlético vs Sport Boys: Dónde ver la transmisión el Torneo Clausura**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/sport-boys-vs-alianza-atletico-en-vivo-hora-canal-tv-y-donde-ver-el-torneo-clausura-2025-l1max-video-resumen-y-goles-tdpe-noticia/)
+- **Liga 1: Se enfrentan Sport Boys y Alianza Atlético por la fecha 19**: [Link](https://rpp.pe/futbol/descentralizado/liga-1-se-enfrentan-sport-boys-y-alianza-atletico-por-la-fecha-19-noticia-1663918)
+- **Sport Boys vs. Alianza Atlético EN VIVO vía Liga 1 MAX y DIRECTV por Torneo Clausura 2025**: [Link](https://depor.com/futbol-peruano/descentralizado/sport-boys-vs-alianza-atletico-en-vivo-en-directo-hoy-liga-1-max-l1-play-futbol-libre-tv-ver-gratis-online-directv-dgo-torneo-apertura-2025-video-noticia/)
+
+
+### alexander sørloth (N/A, 16/11/2025 15:25 Lima)
+
+- **Haaland revealed his historic goal ahead of the match against Italy**: [Link](https://zamin.uz/en/sport/169788-haaland-revealed-his-historic-goal-ahead-of-the-match-against-italy.html)
+- **“We’ve cracked the code” – Manchester City star hails rising National Team stars ahead of World Cup**: [Link](https://onefootball.com/en/news/weve-cracked-the-code-manchester-city-star-hails-rising-national-team-stars-ahead-of-world-cup-41955338)
+- **2026 World Cup: Norway qualifies for international football competition**: [Link](https://icenews.is/2025/11/15/2026-world-cup-norway-qualifies-for-international-football-competition/)
+
+
+### francesco pio esposito (N/A, 16/11/2025 15:25 Lima)
+
+- **LIVE Italia-Norvegia 1-0: si vede Nusa, ma il suo destro dal limite è di poco alto**: [Link](https://www.gazzetta.it/Calcio/Nazionale/16-11-2025/italia-norvegia-live-risultato-e-gol-in-diretta-qualificazioni-mondiali.shtml)
+- **Haaland in Serie A? L'apertura del norvegese e la Juventus sfiorata: "Era troppo presto"**: [Link](https://www.goal.com/it/liste/haaland-in-serie-a-l-apertura-del-norvegese-e-la-juventus-sfiorata-era-troppo-presto/blt3b3a4486d8c11fae)
+- **La vigilia della Norvegia**: [Link](https://www.sportmediaset.mediaset.it/video/calcio/la-vigilia-della-norvegia_106068180-202502k.shtml)
+
+
+### moldavia vs (N/A, 16/11/2025 15:25 Lima)
+
+- **Italia venció a Moldavia, pero le abre las puertas del Mundial a Noruega**: [Link](https://www.espn.com.pe/futbol/mundial/nota/_/id/15942460/moldavia-vs-italia-eliminatorias-uefa-equipo-fecha-hora-tv-en-vivo)
+- **Italia es el ángel detrás de Methova, ya que se necesita a Erigher Misble**: [Link](https://www.elpueblo.pe/noticias-internacionales/italia-es-el-angel-detras-de-methova-ya-que-se-necesita-a-erigher-misble/120050/)
+- **Moldavia vs Italia: cómo verlo, probabilidades, vista previa de la WCQ**: [Link](https://www.ucvradio.pe/noticias-del-mundo/moldavia-vs-italia-como-verlo-probabilidades-vista-previa-de-la-wcq/48156/)
+
+
+### vélez - river plate (N/A, 16/11/2025 15:25 Lima)
+
+- **Vélez vs. River, por el Torneo Clausura: seguilo EN VIVO**: [Link](https://www.tycsports.com/liga-profesional-de-futbol/argentina-torneo-clausura-2025-velez-vs-river-plate-fecha-16-id698817.html)
+- **Los dos pesados que Gallardo borró de cara a la "final" ante Vélez**: [Link](https://www.ole.com.ar/river-plate/gallardo-river-diaz-borja-velez_0_ljY8Muh1YE.html)
+- **Qué canal pasa Vélez vs River hoy: dónde ver el partido gratis de la Liga Profesional**: [Link](https://www.365scores.com/es/news/que-canal-pasa-velez-vs-river-donde-ver/)
+
+
+### eliminatorias africanas (N/A, 16/11/2025 15:25 Lima)
+
+- **Nigeria y RD Congo, que eliminó a Camerún, jugarán la final de los playoffs rumbo al repechaje**: [Link](https://www.espn.com.pe/futbol/mundial/nota/_/id/15955003/nigeria-vs-rd-congo-final-playoffs-repechaje-eliminatorias-africa-mundial-2026)
+- **Nigeria vs. RD Congo EN VIVO vía FIFA+: juegan por la clasificación al repechaje del Mundial 2026**: [Link](https://rpp.pe/futbol/eliminatorias/nigeria-vs-congo-en-vivo-a-que-hora-juegan-y-donde-ver-final-playoffs-eliminatorias-caf-por-repechaje-al-mundial-2026-link-gratis-partidos-de-hoy-noticia-1664007)
+- **Resultado en vivo de Nigeria vs.Gabón: actualizaciones de los playoffs de clasificación para la Copa Mundial de la CAF, momentos destacados, las Super Águilas compiten por el puesto final**: [Link](https://www.ucvradio.pe/mas-actualidad/resultado-en-vivo-de-nigeria-vs-gabon-actualizaciones-de-los-playoffs-de-clasificacion-para-la-copa-mundial-de-la-caf-momentos-destacados-las-super-aguilas-compiten-por-el-puesto-final/48398/)
+
+
+### israel (N/A, 16/11/2025 15:25 Lima)
+
+- **The UN’s Western Sahara vote marks a diplomatic ‘Green March’**: [Link](https://www.atlanticcouncil.org/blogs/menasource/the-uns-western-sahara-vote-marks-a-diplomatic-green-march/)
+- **Western Sahara: a solution to the dispute over territorial integrity, not a process of decolonisation**: [Link](https://www.atalayar.com/en/opinion/jamal-eddine-mechbal/western-sahara-solution-to-the-dispute-over-territorial-integrity-not-process-of-decolonisation/20251116140000220396.html)
+- **Western Sahara Shows Israel the Way**: [Link](https://blogs.timesofisrael.com/western-sahara-shows-israel-the-way/)
+
+
+### noruega vs. estonia (N/A, 16/11/2025 15:25 Lima)
+
+- **Haaland, energía atómica en el Mundial**: [Link](https://as.com/opinion/haaland-energia-atomica-en-el-mundial-f202511-n/)
+- **Haaland alcanza los 30 goles esta temporada**: [Link](https://www.mundodeportivo.com/futbol/internacional/20251114/1002569239/haaland-alcanza-30-goles-temporada.html)
+- **Noruega goleó a Estonia y quedó a un paso del Mundial después de 28 años**: [Link](https://www.espn.com.ar/futbol/mundial/nota/_/id/15946922/noruega-vs-estonia-eliminatorias-uefa-equipo-fecha-hora-y-tv-en-vivo)
+
+
+### italia - noruega (N/A, 16/11/2025 15:25 Lima)
+
+- **Noruega quiere cortar su sequía mundialista ante una Italia que necesita un milagro**: [Link](https://www.espn.com.ar/futbol/selecciones/nota/_/id/15956799/italia-vs-noruega-eliminatorias-mundial-2026-equipo-fecha-hora-y-tv-en-vivo)
+- **Italia vs Noruega: Apuestas, Pronóstico y Cuotas**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/internacional/2025/noviembre/pronostico-italia-vs-noruega-16-11-25)
+- **Italia se asoma al abismo: solo un milagro evita otra repesca**: [Link](https://www.sport.es/es/noticias/futbol-internacional/italia-asoma-abismo-milagro-evita-123763522)
+
+
+### nigeria vs (N/A, 16/11/2025 15:25 Lima)
+
+- **Nigeria vs DR Congo live updates: Elia goal ties World Cup 2026 qualifier CAF final - The Athletic**: [Link](https://www.nytimes.com/athletic/live-blogs/nigeria-vs-drcongo-live-updates-world-cup-2026-qualifier-score-result/8DFtmMyja5bg/)
+- **LIVE: Nigeria vs DR Congo – CAF World Cup qualifiers playoff final**: [Link](https://www.aljazeera.com/sports/liveblog/2025/11/16/live-nigeria-vs-dr-congo-caf-world-cup-qualifiers-playoff-final)
+- **Nigeria's Super Eagles Kick Off World Cup Playoff Final A...**: [Link](https://x.com/i/trending/1989669036087546311)
+
+
 ### azerbaiyán - francia (N/A, 16/11/2025 11:27 Lima)
 
 - **Azerbaiyán - Francia, en directo: clasificación al Mundial 2026, en vivo hoy**: [Link](https://as.com/futbol/azerbaiyan-francia-en-directo-clasificacion-al-mundial-2026-en-vivo-hoy-f202511-d/)
@@ -960,75 +1030,5 @@ Sin noticias relacionadas disponibles.
 - **Francia - Ucrania, en directo: clasificación al Mundial 2026 hoy, en vivo**: [Link](https://as.com/futbol/internacional/francia-ucrania-en-directo-clasificacion-al-mundial-2026-hoy-en-vivo-f202511-d/)
 - **VER, Francia-Ucrania EN VIVO: transmisión ONLINE del partido desde París**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/francia-vs-ucrania-en-vivo-hoy-gratis-via-espn-futbol-libre-tv-y-disney-plus-horarios-canales-tv-y-donde-ver-partido-online-por-eliminatorias-uefa-2026-video-noticia/)
 - **Francia vs Ucrania: Apuestas, Pronóstico y Cuotas**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/internacional/2025/noviembre/pronostico-francia-vs-ucrania-13-11-25)
-
-
-### moldavia - italia (N/A, 13/11/2025 15:27 Lima)
-
-- **Moldova-Italia, Azzurri con quattro punte e doppio 9. Tonali-Cristante in mezzo e in porta si cambia**: [Link](https://www.gazzetta.it/Calcio/Nazionale/13-11-2025/italia-la-probabile-formazione-con-la-moldova-quattro-punte-e-doppio-9-cambio-in-porta.shtml)
-- **Moldavia - Italia live: Calcio - Qualificazioni Mondiali Europa**: [Link](https://www.eurosport.it/calcio/qualificazioni-mondiali-europa/2026/live-moldavia-italia_mtc1574763/live-commentary.shtml)
-- **Moldavia-Italia, oggi azzurri in campo – Diretta**: [Link](https://www.cremaoggi.it/2025/11/13/moldavia-italia-oggi-azzurri-in-campo-diretta/)
-
-
-### serbia vs (N/A, 13/11/2025 15:27 Lima)
-
-- **England vs Serbia: Build-up as Three Lions return to World Cup qualifying action**: [Link](https://www.bbc.com/sport/football/live/c2319djp94et)
-- **Thursday International Football Cheat Sheet: Best bets for England v Serbia and more**: [Link](https://onefootball.com/de/news/thursday-international-football-cheat-sheet-best-bets-for-england-v-serbia-and-more-41945575)
-- **🚨 BREAKING: England name starting XI for Serbia qualifier**: [Link](https://ca.sports.yahoo.com/news/breaking-england-name-starting-xi-182300692.html)
-
-
-### italia (N/A, 13/11/2025 15:27 Lima)
-
-- **Rama, Fincantieri e Kayo costruiranno 7 navi in Albania**: [Link](https://www.ilnordest.it/italia-ed-esteri/rama-fincantieri-e-kayo-costruiranno-7-navi-in-albania-t6f1qxiw)
-- **Il premier albanese Edi Rama: Meloni è mia sorella. Per scelta mia, non sua | Libero Quotidiano.it**: [Link](https://www.liberoquotidiano.it/news/video-news-by-vista/44982303/il-premier-albanese-edi-rama-meloni-e-mia-sorella-per-scelta-mia-non-sua/)
-- **ON. BONELLI (AVS) * PROTOCOLLO ITALIA–ALBANIA: «IL CENTRO DI GJADER È COSTATO 74,2 MILIONI E 153 MILA EURO PER OGNI POSTO LETTO, PROGETTO INUTILE ED ILLEGITTIMO**: [Link](https://www.agenziagiornalisticaopinione.it/opinionews/on-bonelli-avs-protocollo-italia-albania-il-centro-di-gjader-e-costato-742-milioni-e-153-mila-euro-per-ogni-posto-letto-progetto-inutile-ed-illegittimo/)
-
-
-### eliminatorias copa del mundo europa (N/A, 13/11/2025 15:27 Lima)
-
-- **Eliminatorias al Mundial 2026: estas son las selecciones que se pueden clasificar este jueves**: [Link](https://cnnespanol.cnn.com/2025/11/12/deportes/eliminatorias-mundial-2026-casi-clasificados-orix)
-- **Mundial 2026: así están los bombos del sorteo al momento**: [Link](https://www.espn.com.ar/futbol/mundial/nota/_/id/15949793/mundial-2026-asi-estan-los-bombos-del-sorteo-al-momento)
-- **La recta final rumbo al Mundial 2026: se definen 14 clasificados a la Copa del Mundo y los 22 países que jugarán los Repechajes**: [Link](https://www.infobae.com/deportes/2025/11/13/la-recta-final-rumbo-al-mundial-2026-se-definen-14-clasificados-a-la-copa-del-mundo-y-los-22-paises-que-jugaran-los-repechajes/)
-
-
-### erling haaland (N/A, 13/11/2025 15:27 Lima)
-
-- **Preview:Norway vs Estonia - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/norway/world-cup-2026/preview/norway-vs-estonia-prediction-team-news-lineups_585558.html)
-- **2026 World Cup qualifying results today:**: [Link](https://www.101greatgoals.com/football/internationals/2026-world-cup-qualifying-results-norway-vs-estonia-armenia-vs-hungary-azerbaijan-vs-iceland/)
-- **Haaland scores as Norway all but seal first World Cup spot in 28 years**: [Link](https://au.sports.yahoo.com/haaland-scores-norway-seal-first-185614969.html)
-
-
-### andorra vs (N/A, 13/11/2025 15:27 Lima)
-
-- **Andorra – Albania Pronóstico y Apuestas | Clasificación Mundial 13/11/2025**: [Link](https://www.apuestas-deportivas.es/pronostico/andorra-vs-albania-pronostico-clasificacion-mundial-13-11-2025/)
-- **Andorra vs Albania: pronóstico, apuestas, cuotas para el partido 13/11/2025**: [Link](https://legalbet.es/centro-apuestas/andorra-albania-13-11-2025/)
-- **Albania puede asegurar su pase a la repesca esta noche, enfrentándose a Andorra.**: [Link](https://reporteri.net/es/Deporte/Albania-puede-asegurar-su-pase-a-la-repesca-esta-noche-contra-Andorra./)
-
-
-### armenia - hungría (N/A, 13/11/2025 11:30 Lima)
-
-- **Armenia vs Hungría | Pronóstico y cuotas 13.11.2025**: [Link](https://www.transfermarkt.es/apuestas/pronosticos-deportivos/armenia-vs-hungria-pronostico-apuestas-13-11-2025/)
-- **Armenia vs Hungria EN VIVO, minuto a minuto en Eliminatorias al Mundial 2026**: [Link](https://www.vavel.com/mx/futbol-internacional/2025/11/13/1241078-armenia-vs-hungria-en-vivo-eliminatorias-2026.html)
-- **Armenia vs Hungría por la fase de grupos de Eliminatorias UEFA EN VIVO. Seguilo minuto a minuto por la web de TN.**: [Link](https://tn.com.ar/deportes/futbol/2025/11/13/armenia-vs-hungria-en-vivo-por-la-fase-de-grupos-de-las-eliminatorias-uefa-hora-donde-ver-y-formaciones/)
-
-
-### portugal (N/A, 13/11/2025 11:30 Lima)
-
-- **Escalação de Portugal hoje: time titular e desfalques para jogo com Irlanda (13/11)**: [Link](https://www.sportingnews.com/br/futebol/noticias/escalacao-portugal-hoje-time-titular-desfalques-irlanda-13-11/83e581e2e0ffa1834a875415)
-- **"A good boy". Frase "bizarra" de Cristiano Ronaldo ganha destaque lá fora**: [Link](https://sapo.pt/artigo/a-good-boy-frase-bizarra-de-cristiano-ronaldo-ganha-destaque-la-fora-6915e380a81b92c610d3beed)
-- **Mundial 2026: Martínez e Proença reunidos com adeptos em Dublin**: [Link](https://cnnportugal.iol.pt/fotos/mundial-2026-martinez-e-proenca-reunidos-com-adeptos-em-dublin/6915bfb2d34e3caad84b3ce9)
-
-
-### armenia vs (N/A, 13/11/2025 11:30 Lima)
-
-- **Preview:Armenia vs Hungary - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/armenia/preview/armenia-vs-hungary-prediction-team-news-lineups_585533.html)
-- **In Yerevan, fans warmly welcomed Dominik Szoboszlai and the Hungarian national team**: [Link](https://sportaran.com/en/post/v-erevane-fanaty-teplo-vstrechali-dominika-soboslavya-i-sbornuyu-vengrii/)
-- **We have to play more disciplined, do our job, dedicate ourselves without fail and then we can achieve a positive result. Karen Muradyan**: [Link](https://tert.am/en/news/2025/11/12/karen-muradyan/4249773)
-
-
-### the killers peru (N/A, 13/11/2025 11:30 Lima)
-
-- **The Killers en Lima: preventa, precios y cómo comprar entradas para su concierto en Costa 21**: [Link](https://rpp.pe/musica/conciertos/the-killers-en-lima-2026-a-que-hora-inicia-preventa-y-como-comprar-entradas-en-teleticket-para-concierto-en-costa-21-noticia-1663516)
-- **The Killers vuelve a Lima: fecha, lugar y entradas para el concierto de rock**: [Link](https://www.infobae.com/peru/2025/11/10/the-killers-vuelve-a-lima-fecha-lugar-y-entradas-para-el-concierto-de-rock/)
-- **The Killers regresa a Lima con todos sus éxitos el 2 de marzo de 2026**: [Link](https://peru21.pe/espectaculos/killers-regresa-lima-con-todos-sus-exitos-el-2-de-marzo-de-2026/)
 
 
