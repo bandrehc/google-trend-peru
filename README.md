@@ -1,3 +1,71 @@
+### tracy cortez (N/A, 15/11/2025 21:02 Lima)
+
+- **Tracy Cortez finally accepting role model status coming into UFC 322: ‘I’m trying really hard’**: [Link](https://www.mmamania.com/ufc-news/402570/tracy-cortez-finally-accepting-role-model-status-coming-into-ufc-322-im-trying-really-hard)
+- **Erin Blanchfield Seizes Opportunities to Excel**: [Link](https://www.el-balad.com/6767171)
+- **Erin Blanchfield vs Tracy Cortez Prediction, Pick, Odds for UFC 322 (Saturday, November 15)**: [Link](https://www.actionnetwork.com/mma/erin-blanchfield-vs-tracy-cortez-prediction-pick-odds-for-ufc-322-saturday-november-15)
+
+
+### cristian garín (N/A, 15/11/2025 21:02 Lima)
+
+Sin noticias relacionadas disponibles.
+
+
+### bucks - lakers (N/A, 15/11/2025 21:02 Lima)
+
+- **Lakers’ Rui Hachimura won’t play tonight against the Bucks**: [Link](https://www.ocregister.com/2025/11/15/lakers-rui-hachimura-wont-play-tonight-against-the-bucks/)
+- **JJ Redick on Luka Doncic struggles: The last two games, they've had All-NBA defenders on him**: [Link](https://basketballsphere.com/en/jj-redick-on-luka-doncic-struggles-the-last-two-games-theyve-had-all-nba-defenders-on-him/)
+- **Giannis Antetokounmpo (knee) expected to play Saturday**: [Link](https://www.fantasypros.com/nba/news/552620/giannis-antetokounmpo-knee-expected-to-play-saturday.php)
+
+
+### precio del dólar perú (N/A, 15/11/2025 21:02 Lima)
+
+- **Precio del dólar en Perú: a cuánto cerró el tipo de cambio el sábado 15 de noviembre**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-a-cuanto-esta-el-dolar-y-tipo-de-cambio-este-sabado-15-de-noviembre-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
+- **Precio del dólar en sigue en caída: Así se cotiza el tipo de cambio hoy 15 de noviembre en Perú**: [Link](https://www.infobae.com/peru/2025/11/14/peru-cotizacion-de-apertura-del-dolar-hoy-14-de-noviembre-de-usd-a-pen/)
+- **¿Cuál es la cotización del dólar hoy viernes 14 de noviembre del 2025?**: [Link](https://andina.pe/agencia/noticia-cual-es-cotizacion-del-dolar-hoy-viernes-14-noviembre-del-2025-1051958.aspx)
+
+
+### weili zhang (N/A, 15/11/2025 21:02 Lima)
+
+- **UFC 322: A look at champions who have earned second division title and those who came up short**: [Link](https://www.cbssports.com/ufc/news/ufc-champions-two-divisions-history-best-fighters-title-fights-wins-ufc-322/)
+- **Islam Makhachev, Zhang Weili seek spots in exclusive two-division champ club at UFC 322**: [Link](https://nypost.com/2025/11/15/sports/islam-makhachev-zhang-weili-seek-spots-in-exclusive-club-at-ufc-322/)
+- **How Many Double Champs In UFC History?**: [Link](https://www.lowkickmma.com/how-many-double-champs-in-ufc-history/)
+
+
+### hornets - thunder (N/A, 15/11/2025 21:02 Lima)
+
+- **Brandon Rahbar: Lu Dort is available to play tonight …**: [Link](https://www.hoopshype.com/story/sports/nba/rumors/2025/11/15/brandon-rahbar-lu-dort-is-available-to-play-tonight/87294229007/)
+- **How to watch Thunder vs. Hornets: TV channel and streaming options for November 15 - The Athletic**: [Link](https://www.nytimes.com/athletic/6810176/2025/11/15/thunder-vs-hornets-stream-how-to-watch-nov-15/)
+- **Thunder's Luguentz Dort: Good to go Saturday**: [Link](https://www.cbssports.com/fantasy/basketball/news/thunders-luguentz-dort-good-to-go-saturday-503897/)
+
+
+### independiente vs (N/A, 15/11/2025 21:02 Lima)
+
+- **Pronóstico Deportivo Riestra CA Independiente - Liga Profesional Argentina 10/11/25**: [Link](https://www.sportytrader.com/es/pronosticos/deportivo-riestra-ca-independiente-304440/)
+- **Todo Granate**: [Link](https://onefootball.com/es/noticias/todo-granate-41953509)
+- **Gustavo Quinteros: "Tenemos que ganar y esperar otros resultados, tengo fe"**: [Link](https://tribuna.com/es/news/2025-11-11-gustavo-quinteros-tenemos-que-ganar-y-esperar-otros-resultados-tengo-fe/)
+
+
+### méxico - uruguay (N/A, 15/11/2025 21:02 Lima)
+
+- **Amistoso: Uruguay juega hoy frente a México. A qué hora, por dónde ver y alineaciones**: [Link](https://www.montevideo.com.uy/Deportes/Amistoso-Uruguay-juega-hoy-frente-a-Mexico-A-que-hora-por-donde-ver-y-alineaciones-uc943300)
+- **Amistoso internacional: México y Uruguay juegan un duelo amistoso**: [Link](https://rpp.pe/futbol/ligas-internacionales/amistoso-internacional-mexico-y-uruguay-juegan-un-duelo-amistoso-noticia-1663841)
+- **¿Dónde puedo ver TV EN VIVO México-Uruguay HOY ONLINE desde el estadio León?**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/a-que-hora-juega-y-en-que-canal-ver-mexico-vs-uruguay-hoy-en-vivo-hora-y-como-ver-partido-amistoso-noticia/)
+
+
+### ufc en vivo (N/A, 15/11/2025 21:02 Lima)
+
+- **◎ HBO MAX EN DIRECTO — seguir pelea del UFC 322: Della Maddalena — Makhachev por Streaming online**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/max-en-directo-donde-televisan-ufc-322-della-maddalena-makhachev-por-tv-y-online-en-espana-nnda-nnrt-noticia/)
+- **Cartelera UFC 322 con Valentina Shevchenko e Islam Makhachev: ¿quiénes y a qué hora pelean este 15 de noviembre?**: [Link](https://larepublica.pe/deportes/2025/11/13/cartelera-ufc-322-con-valentina-shevchenko-e-islam-makhachev-quienes-y-a-que-hora-pelean-este-15-de-noviembre-1193556)
+- **UFC 322: Las preguntas clave de Della Maddalena-Makhachev y más**: [Link](https://www.espn.com.pe/mma/nota/_/id/15950606/ufc-322-della-maddalena-vs-makhachev-preguntas-clave-historias)
+
+
+### independiente - rosario central (N/A, 15/11/2025 21:02 Lima)
+
+- **Qué canal pasa Independiente vs Rosario Central hoy: dónde ver el partido gratis de la Liga Profesional**: [Link](https://www.365scores.com/es/news/independiente-vs-rosario-central-tv-vivo/)
+- **Por qué no juega Ángel Di María hoy en Independiente vs. Rosario Central por el Torneo Clausura**: [Link](https://bolavip.com/ar/futbolargentino/por-que-no-juega-angel-di-maria-hoy-en-independiente-vs-rosario-central-por-el-torneo-clausura)
+- **Vuelve**: [Link](https://onefootball.com/de/news/vuelve-41957244)
+
+
 ### godoy cruz - deportivo riestra (N/A, 15/11/2025 15:24 Lima)
 
 - **Un Godoy Cruz al borde del descenso recibe a Deportivo Riestra, que va por el boleto a la Libertadores**: [Link](https://www.espn.com.ar/futbol/argentina/nota/_/id/15959966/godoy-cruz-vs-deportivo-riestra-fecha-16-torneo-clausura-2025-equipo-fecha-hora-y-tv-en-vivo)
@@ -960,75 +1028,5 @@ Sin noticias relacionadas disponibles.
 - **Nitto ATP Finals, in campo Sinner-Zverev: sfida al vertice per volare in semifinale Segui la diretta streaming su Rainews.it**: [Link](https://www.facebook.com/RaiNews/photos/nitto-atp-finals-in-campo-sinner-zverev-sfida-al-vertice-per-volare-in-semifinal/1310531494446701/)
 - **Tennis, Jasmine Paolini diventa official brand ambassador Fulfil**: [Link](https://oblo.it/tennis-jasmine-paolini-diventa-official-brand-ambassador-fulfil/)
 - **Atp Finals, a Torino è tutto esaurito per le finali: cifre record per l'ultimo biglietto venduto**: [Link](https://www.ilmessaggero.it/sport/tennis/atp_finals_torino_tutto_esaurito_le_finali_cifre_record_ultimo_biglietto_venduto-9184401.html)
-
-
-### lucas chevalier (N/A, 12/11/2025 15:27 Lima)
-
-- **Why Lucas Chevalier is the best goalkeeper for PSG in the long run?**: [Link](https://psgpost.com/why-lucas-chevalier-is-the-best-goalkeeper-for-psg-in-the-long-run-01k9sd7effx9)
-- **'For now, the PSG jersey is too big for him': Pierre Ménès's serious doubts about Lucas Chevalier's performance**: [Link](https://tribuna.com/en/news/2025-11-11-for-now-the-psg-jersey-is-too-big-for-him-pierre-meness-serious-doubts-about-lucas-cheval/)
-- **The Fall of Donnarumma and Rise of Chevalier**: [Link](https://www.ilmessaggero.it/en/the_fall_of_donnarumma_and_rise_of_chevalier-9180448.html?next_page=2)
-
-
-### steam machine (N/A, 12/11/2025 15:27 Lima)
-
-- **Our first look at the Steam Machine, Valve’s ambitious new game console**: [Link](https://www.theverge.com/tech/818111/valve-steam-machine-hands-on-preview-specs-announcement)
-- **Valve's Coming For Your Face And Your Living Room - Video**: [Link](https://www.cnet.com/videos/valves-coming-for-your-face-and-your-living-room/)
-- **Valve announces 3 new Steam hardware devices: Steam Machine, VR headset Steam Frame, and a new Steam controller**: [Link](https://www.gamesindustry.biz/valve-announces-3-new-steam-hardware-devices-steam-machine-vr-headset-steam-frame-and-a-new-steam-controller)
-
-
-### arsenal femenino vs (N/A, 12/11/2025 15:27 Lima)
-
-- **Bayern vs. Arsenal (12 de Nov., 2025) Resultados en Vivo**: [Link](https://espndeportes.espn.com/futbol/partido/_/juegoId/759001)
-- **El entrenador del Bayern cree que su equipo debe ser “valiente” ante el Arsenal**: [Link](https://noticiashuesca.com/economia/el-entrenador-del-bayern-cree-que-su-equipo-debe-ser-valiente-ante-el-arsenal/125335/)
-- **Previa | Bayern München vs Arsenal (UWCL): cómo llegan, horario, dónde ver y onces probables**: [Link](https://lasfutbolistas.com/previa-bayern-munchen-vs-arsenal-uwcl-como-llegan-horario-donde-ver-y-onces-probables/)
-
-
-### portugal fc (N/A, 12/11/2025 15:27 Lima)
-
-- **Conselho de Arbitragem justifica erros e rejeita estrangeiros**: [Link](https://onefootball.com/id/berita/conselho-de-arbitragem-justifica-erros-e-rejeita-estrangeiros-41942773)
-- **Duarte Gomes fala sobre polémicas na Luz e no Dragão**: [Link](https://sapo.pt/artigo/duarte-gomes-fala-sobre-polemicas-na-luz-e-no-dragao-6914748a6c0749d633fc877a)
-- **«Penálti de António Silva? Não vi as declarações de Rui Costa»**: [Link](https://tvi.iol.pt/noticias/videos/penalti-de-antonio-silva-nao-vi-as-declaracoes-de-rui-costa/69147be40cf28fe43048623f)
-
-
-### bolivia (N/A, 12/11/2025 15:27 Lima)
-
-- **El nuevo Canciller Fernando Aramayo plantea una reestructuración integral de la diplomacia boliviana**: [Link](https://cancilleria.gob.bo/mre/2025/11/11/23421/)
-- **Canciller dice que Bolivia “convivirá” con países que comparten sus valores y deja abierto el diálogo con Venezuela, Cuba y Nicaragua**: [Link](https://abi.bo/index.php/component/content/article/35-notas/noticias/politica/70804-canciller-dice-que-bolivia-convivira-con-paises-que-comparten-sus-valores-y-deja-abierto-el-dialogo-con-venezuela-cuba-y-nicaragua?Itemid=101)
-- **Cancillería evalúa al personal para rearmar el servicio diplomático**: [Link](https://eldeber.com.bo/pais/cancilleria-evalua-personal-rearmar-servicio-diplomatico_1762916520)
-
-
-### colombia vs (N/A, 12/11/2025 15:27 Lima)
-
-- **Rafa Borré, motivado con la Selección: "Ya empezamos a vivir lo que será el Mundial"**: [Link](https://www.espn.com.ar/futbol/mundial/nota/_/id/15948291/rafael-santos-borre-ilusionado-con-el-mundial-y-la-seleccion-colombia)
-- **Selección Colombia: cuándo juega en la fecha FIFA de noviembre 2025**: [Link](https://www.365scores.com/es/news/colombia-cuando-juega-fecha-fifa/)
-- **Lorenzo ya reunió al grupo y prepara el cierre del año: ¿cómo llegan los convocados?**: [Link](https://www.elespectador.com/deportes/seleccion-colombia/lorenzo-ya-reunio-al-grupo-y-prepara-el-cierre-del-ano-como-llegan-los-convocados/)
-
-
-### friendlies (N/A, 12/11/2025 15:27 Lima)
-
-- **How to watch upcoming international soccer friendlies on Prime Video**: [Link](https://www.aboutamazon.com/news/entertainment/prime-video-international-soccer-matches)
-- **Emirates Stadium: Brazil's home, away from home | International | News**: [Link](https://www.arsenal.com/news/emirates-stadium-brazils-home-away-home)
-- **Brazil vs Senegal Preview & Prediction | 2025 International Friendly**: [Link](https://www.thestatszone.com/brazil-vs-senegal-preview-prediction-2025-international-friendly-158224)
-
-
-### jairo concha (N/A, 12/11/2025 15:27 Lima)
-
-- **Inga sobre la posibilidad de emigrar de Universitario: "Cuando se tenga que dar algo, se dará"**: [Link](https://www.espn.com.ar/futbol/peru/nota/_/id/15932843/que-dijo-cesar-inga-sobre-su-salida-de-universitario-de-deportes)
-- **Jairo Concha y César Inga tienen todo encaminado para ser vendidos en Universitario**: [Link](https://bolavip.com/pe/universitario/jairo-concha-y-cesar-inga-tienen-todo-encaminado-para-ser-vendidos-en-universitario)
-- **Firmó con Universitario hasta 2026, pero puede dejar el club: "Su representante está en Europa"**: [Link](https://libero.pe/futbol-peruano/universitario/2025/11/09/universitario-firmo-2026-pero-puede-dejar-club-su-representante-en-europa-video-780516)
-
-
-### fpf (N/A, 12/11/2025 15:27 Lima)
-
-- **Ayacucho FC y el mensaje a la FPF sobre el descenso: “Si quieren favorecer a Juan Pablo II...”**: [Link](https://depor.com/futbol-peruano/descentralizado/presidente-de-ayacucho-fc-rolando-bellido-acuso-a-la-fpf-de-mala-designacion-de-diego-haro-y-de-favorecer-a-juan-pablo-ii-liga-1-noticia/)
-- **Liga 1: Comerciantes Unidos se defiende y emite contundente comunicado tras lo sucedido en Ayacucho**: [Link](https://www.futbolperuano.com/liga-1/noticias/comerciantes-unidos-se-defiende-y-emite-contundente-comunicado-551067)
-- **Barra Los Guerreros Wari niega haber lanzado proyectiles durante partido suspendido**: [Link](https://jornada.com.pe/barra-los-guerreros-wari-niega-haber-lanzado-proyectiles-durante-partido-suspendido/)
-
-
-### adrian ugarriza (N/A, 12/11/2025 11:33 Lima)
-
-- **Gruber, un central de molde europeo y espíritu inca: ¿Qué hace al ‘eurocausa’ germano vital para el recambio y cómo puede sumar en Perú?**: [Link](https://elcomercio.pe/deporte-total/seleccion/seleccion-peruana-hoy-fabio-gruber-un-central-de-molde-europeo-y-espiritu-inca-que-hace-al-eurocausa-germano-vital-para-el-recambio-y-como-puede-sumar-en-peru-tlcnota-noticia/)
-- **Jhonny Vidales: La satisfacción de ser convocado y la curiosa anécdota compartida con Lapadula**: [Link](https://depor.com/futbol-peruano/seleccion-peruana/seleccion-peruana-jhonny-vidales-se-mostro-emocionado-por-volver-a-una-convocatoria-tras-mas-de-10-anos-y-conto-como-conocio-a-gianluca-lapadula-video-noticia/)
-- **Fabio Gruber practicó por primera vez como seleccionado peruano en Rusia**: [Link](https://www.espn.com.pe/futbol/nota/_/id/15948110/primer-entrenamiento-de-fabio-gruber-con-la-seleccion-de-peru)
 
 
