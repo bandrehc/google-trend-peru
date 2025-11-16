@@ -1,3 +1,73 @@
+### azerbaiyán - francia (N/A, 16/11/2025 11:27 Lima)
+
+- **Azerbaiyán - Francia, en directo: clasificación al Mundial 2026, en vivo hoy**: [Link](https://as.com/futbol/azerbaiyan-francia-en-directo-clasificacion-al-mundial-2026-en-vivo-hoy-f202511-d/)
+- **Una Francia descafeinada y sin Mbappé juega su último trámite ante Azerbaiyán**: [Link](https://www.mundodeportivo.com/futbol/20251116/1002569856/francia-descafeinada-mbappe-juega-ultimo-tramite-azerbaiyan.html)
+- **Pronóstico Azerbaiyán Francia - Mundial 16/11/25**: [Link](https://www.sportytrader.com/es/pronosticos/azerbaiyan-francia-305602/)
+
+
+### albania - inglaterra (N/A, 16/11/2025 11:27 Lima)
+
+- **Pronóstico Albania Inglaterra - Mundial 16/11/25**: [Link](https://www.sportytrader.com/es/pronosticos/albania-inglaterra-305436/)
+- **Inglaterra cierra su campaña en las Eliminatorias ante Albania**: [Link](https://www.espn.com.ar/futbol/mundial/nota/_/id/15954733/albania-vs-inglaterra-eliminatorias-uefa-equipo-fecha-hora-tv-en-vivo)
+- **Bellingham, Foden y el trámite de Tirana**: [Link](https://as.com/futbol/mundial/bellingham-foden-y-el-tramite-de-tirana-f202511-n/)
+
+
+### francia vs. ucrania (N/A, 16/11/2025 11:27 Lima)
+
+- **¡Mbappé al Mundial 2026! Francia se clasifica, Noruega queda a un paso y Portugal deberá esperar**: [Link](https://cnnespanol.cnn.com/2025/11/13/deportes/eliminatorias-uefa-francia-clasificado-mundial-2026-orix)
+- **Francia, ya clasificada, cierra su participación en las Eliminatorias UEFA ante Azerbaiyán**: [Link](https://www.espn.com.ar/futbol/selecciones/nota/_/id/15952152/azerbaiyan-vs-francia-eliminatorias-europeas-equipo-fecha-hora-y-tv-en-vivo)
+- **Mbappé, más rápido que Messi y Cristiano**: [Link](https://www.marca.com/futbol/real-madrid/2025/11/14/mbappe-rapido-messi-cristiano.html)
+
+
+### troy parrott (N/A, 16/11/2025 11:27 Lima)
+
+- **Build-up as Republic of Ireland face must-win game against Hungary**: [Link](https://www.bbc.com/sport/football/live/c93d27l7kggt)
+- **Coleman stars in Troy Story Part Two**: [Link](https://donegalnews.com/coleman-stars-in-troy-story-part-two/)
+- **Hungary v Ireland: Second half underway with Ireland looking for comeback**: [Link](https://www.westernpeople.ie/hungary-v-ireland-second-half-underway-with-ireland-looking-for-comeback_arid-77855.html)
+
+
+### clasificatorias europeas (N/A, 16/11/2025 11:27 Lima)
+
+- **La Marea Roja**: [Link](https://as.com/opinion/la-marea-roja-f202511-n/)
+- **Georgia - España: resumen, resultado y goles**: [Link](https://www.marca.com/futbol/clasificacion-al-mundial-uefa/georgia-espana/2025/11/15/01_0116_20251115_520_118-directo.html)
+- **España golea a Georgia y acaricia el pase directo al Mundial 2026**: [Link](https://www.espn.com.ar/futbol/mundial/nota/_/id/15962209/georgia-vs-espana-mundial-2026-resultado-pase)
+
+
+### nfl (N/A, 16/11/2025 11:27 Lima)
+
+- **NFL Week 11 storylines: Divisional showdowns, playoff previews lead tremendous Sunday slate**: [Link](https://www.nytimes.com/athletic/6805666/2025/11/16/nfl-week-11-storylines-chiefs-broncos-lions-eagles/)
+- **NFL Parlay Picks: Charissa Thompson’s Week 11 NFL Parlay for Sunday 11/16/25**: [Link](https://dknetwork.draftkings.com/2025/11/16/nfl-parlay-picks-charissa-thompsons-week-11-nfl-parlay-for-sunday-11-16-25-parlaycard/)
+- **NFL DFS picks, lineup advice for Sunday from daily Fantasy football optimizer**: [Link](https://www.cbssports.com/nfl/news/nfl-dfs-picks-lineup-daily-fantasy-football-advice-strategy-optimizer-week-11-2025/)
+
+
+### serbia vs letonia (N/A, 16/11/2025 11:27 Lima)
+
+- **Serbia vs Letonia | Pronóstico y cuotas 16.11.2025**: [Link](https://www.transfermarkt.es/apuestas/pronosticos-deportivos/serbia-vs-letonia-pronostico-apuestas-16-11-2025/)
+- **Serbia vs Letonia EN VIVO, minuto a minuto en Eliminatorias al Mundial 2026**: [Link](https://www.vavel.com/mx/futbol-internacional/2025/11/16/1241445-serbia-vs-letonia-en-vivo-eliminatorias-2026.html)
+- **Serbia vs Letonia por la fase de grupos de Eliminatorias UEFA EN VIVO. Seguilo minuto a minuto por la web de TN.**: [Link](https://tn.com.ar/deportes/futbol/2025/11/16/serbia-vs-letonia-en-vivo-por-la-fase-de-grupos-de-las-eliminatorias-uefa-hora-donde-ver-y-formaciones/)
+
+
+### clasificación de uefa para la copa mundial de fútbol (N/A, 16/11/2025 11:27 Lima)
+
+- **Las cuentas de la clasificación europea para el Mundial grupo a grupo**: [Link](https://www.marca.com/futbol/mundial/2025/11/15/cuentas-clasificacion-mundial-grupo-grupo.html)
+- **Eliminatorias al Mundial 2026: estas son las selecciones que se pueden clasificar este jueves**: [Link](https://cnnespanol.cnn.com/2025/11/12/deportes/eliminatorias-mundial-2026-casi-clasificados-orix)
+- **Eliminatorias europeas al Mundial 2026: Haaland va por su primera vez con Noruega y Cristiano Ronaldo por su sexta con Portugal**: [Link](https://www.clarin.com/deportes/eliminatorias-europeas-mundial-2026-haaland-va-primera-vez-noruega-cristiano-ronaldo-sexta-portugal_0_zXWMFIrcL6.html)
+
+
+### portugal (N/A, 16/11/2025 11:27 Lima)
+
+- **Imprensa internacional rendida a Portugal e... ao golaço de João Neves**: [Link](https://www.record.pt/multimedia/fotogalerias/detalhe/imprensa-internacional-rendida-a-portugal-e-ao-golaco-de-joao-neves)
+- **Belo trabalho de Gonçalo Ramos e Bruno Fernandes também bisa diante da Arménia**: [Link](https://bolanarede.pt/especial-bola-na-rede/atualidade/belo-trabalho-de-goncalo-ramos-e-bruno-fernandes-tambem-bisa-diante-da-armenia/)
+- **Capitão ausente, voz presente: Ronaldo motiva colegas da seleção rumo ao Mundial**: [Link](https://www.jn.pt/desporto/artigo/capitao-ausente-voz-presente-ronaldo-motiva-colegas-da-selecao-rumo-ao-mundial/18020442)
+
+
+### portugal fc (N/A, 16/11/2025 11:27 Lima)
+
+- **Farioli volta a chamar Nikolov e vários da equipa B na preparação para o Sintrense**: [Link](https://www.ojogo.pt/futebol/artigo/farioli-volta-a-chamar-nikolov-e-varios-da-equipa-b-na-preparacao-para-o-sintrense/18020476)
+- **Dragões preparam encontro da Prova Rainha**: [Link](https://www.zerozero.pt/noticias/fc-porto-prepara-sintrense-sem-o-contributo-de-11-internacionais/977359)
+- **Joelho de Bednarek provoca apreensão no FC Porto**: [Link](https://www.cmjornal.pt/desporto/futebol/detalhe/joelho-de-bednarek-provoca-apreensao-no-fc-porto)
+
+
 ### precio dolar hoy peru (N/A, 16/11/2025 07:44 Lima)
 
 - **Precio del dólar en Perú hoy, domingo 16 de noviembre: cuál es el tipo de cambio del día**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-a-cuanto-esta-el-dolar-y-tipo-de-cambio-este-domingo-16-de-noviembre-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
@@ -960,75 +1030,5 @@ Sin noticias relacionadas disponibles.
 - **The Killers en Lima: preventa, precios y cómo comprar entradas para su concierto en Costa 21**: [Link](https://rpp.pe/musica/conciertos/the-killers-en-lima-2026-a-que-hora-inicia-preventa-y-como-comprar-entradas-en-teleticket-para-concierto-en-costa-21-noticia-1663516)
 - **The Killers vuelve a Lima: fecha, lugar y entradas para el concierto de rock**: [Link](https://www.infobae.com/peru/2025/11/10/the-killers-vuelve-a-lima-fecha-lugar-y-entradas-para-el-concierto-de-rock/)
 - **The Killers regresa a Lima con todos sus éxitos el 2 de marzo de 2026**: [Link](https://peru21.pe/espectaculos/killers-regresa-lima-con-todos-sus-exitos-el-2-de-marzo-de-2026/)
-
-
-### taylor fritz (N/A, 13/11/2025 11:30 Lima)
-
-- **ATP Finals: Alex de Minaur recovers from 'a dark place' to keep bid alive and send Carlos Alcaraz through**: [Link](https://www.bbc.com/sport/tennis/articles/cev1mn4v7v9o)
-- **De Miñaur didn't know that he depends on Alcaraz to qualify: "Is this true?"**: [Link](https://www.puntodebreak.com/en/2025/11/13/minaur-didnt-know-that-he-depends-on-alcaraz-to-qualify-is-this-true)
-- **Fans Rip Tennis Star Taylor Fritz After ‘Embarrassing’ Collapse**: [Link](https://thespun.com/tennis/fans-rip-tennis-star-taylor-fritz-after-embarrassing-collapse)
-
-
-### retiro afp 2025 (N/A, 13/11/2025 11:30 Lima)
-
-- **Cronograma de retiro de AFP: Cuándo podrás hacer la solicitud si se te pasó la fecha**: [Link](https://www.infobae.com/peru/2025/11/11/cronograma-de-retiro-afp-cuando-podras-hacer-la-solicitud-si-se-te-paso-la-fecha/)
-- **Retiro-AFP según cronograma 2025: qué día solicitar el desembolso si tu DNI termina en 7 y 8**: [Link](https://elcomercio.pe/respuestas/tramites/revisa-el-cronograma-de-retiro-afp-2025-en-que-fechas-solicitar-si-mi-dni-termina-en-7-y-8-tdpe-noticia/)
-- **Evita errores a la hora del retiro de tu AFP: cómo identificar el último dígito del DNI y no confundirlo con el verificador**: [Link](https://peru21.pe/economia/retiro-afp-2025-como-identificar-el-ultimo-digito-del-dni-y-no-confundirlo-con-el-verificador/)
-
-
-### eliminatorias europa (N/A, 13/11/2025 11:30 Lima)
-
-- **Programación de las Eliminatorias Europeas 2026: horarios y canales TV en Perú de la jornada 9**: [Link](https://www.infobae.com/peru/deportes/2025/11/12/programacion-de-las-eliminatorias-europeas-2026-horarios-y-canales-tv-en-peru-de-la-jornada-9/)
-- **Copa Mundial de la FIFA 2026: sorteo de clasificación el 20 de noviembre en Zúrich**: [Link](https://www.ucvradio.pe/noticias-del-mundo/copa-mundial-de-la-fifa-2026-sorteo-de-clasificacion-el-20-de-noviembre-en-zurich/42989/)
-- **Así se juega el repechaje de las Eliminatorias UEFA por los últimos cuatro cupos al Mundial 2026**: [Link](https://www.espn.com.pe/futbol/mundial/nota/_/id/15926977/eliminatorias-uefa-repechaje-asi-se-juega-ultimos-cuatro-cupos-clasificados-mundial-2026)
-
-
-### nigeria vs (N/A, 13/11/2025 11:30 Lima)
-
-- **Gabon coach fires warning shot to Nigeria ahead of crunch tie**: [Link](https://foot-africa.com/en/news/gabon-coach-fires-warning-shot-to-nigeria-ahead-of-crunch-tie-959249/)
-- **Africa’s history of World Cup play-off contests**: [Link](https://www.cafonline.com/news/africa-s-history-of-world-cup-play-off-contests/)
-- **2026 World Cup: Africa's also-rans clash in play-offs for last chance gala**: [Link](https://www.inkl.com/news/2026-world-cup-africa-s-also-rans-clash-in-play-offs-for-last-chance-gala)
-
-
-### paro el 14 de noviembre (N/A, 13/11/2025 11:30 Lima)
-
-- **¿Mañana 14 de noviembre hay paro de transportistas? Gremios señalan si apoyarán protesta de la Generación Z**: [Link](https://www.infobae.com/peru/2025/11/12/este-14-de-noviembre-hay-paro-de-transportistas-gremios-responden-si-apoyaran-protesta-de-la-generacion-z/)
-- **Policía anunció medidas de seguridad ante nueva marcha de la Generación Z contra el Gobierno este viernes [VIDEO]**: [Link](https://rpp.pe/lima/seguridad/policia-anuncio-medidas-de-seguridad-ante-nueva-marcha-de-la-generacion-z-contra-el-gobierno-video-noticia-1663539)
-- **Familiares de fallecidos en protestas se sumarán al paro nacional del 14 de noviembre: "Estamos cansados"**: [Link](https://www.exitosanoticias.pe/actualidad/familiares-fallecidos-protestas-sumaran-paro-nacional-14-noviembre-estamos-cansados-n162643)
-
-
-### solicitud de retiro de afp (N/A, 13/11/2025 07:53 Lima)
-
-- **Cronograma de retiro de AFP: Cuándo podrás hacer la solicitud si se te pasó la fecha**: [Link](https://www.infobae.com/peru/2025/11/11/cronograma-de-retiro-afp-cuando-podras-hacer-la-solicitud-si-se-te-paso-la-fecha/)
-- **Retiro-AFP según cronograma 2025: qué día solicitar el desembolso si tu DNI termina en 7 y 8**: [Link](https://elcomercio.pe/respuestas/tramites/revisa-el-cronograma-de-retiro-afp-2025-en-que-fechas-solicitar-si-mi-dni-termina-en-7-y-8-tdpe-noticia/)
-- **Evita errores a la hora del retiro de tu AFP: cómo identificar el último dígito del DNI y no confundirlo con el verificador**: [Link](https://peru21.pe/economia/retiro-afp-2025-como-identificar-el-ultimo-digito-del-dni-y-no-confundirlo-con-el-verificador/)
-
-
-### dolar peru (N/A, 13/11/2025 07:53 Lima)
-
-- **Precio del dólar subió: Así cerró el tipo de cambio hoy 12 de noviembre en Perú**: [Link](https://www.infobae.com/peru/2025/11/12/peru-cotizacion-de-apertura-del-dolar-hoy-12-de-noviembre-de-usd-a-pen/)
-- **Precio del dólar en Perú del martes 11 de noviembre: cuál fue el cierre del tipo de cambio**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-2025-cuanto-esta-el-dolar-este-martes-11-de-noviembre-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
-- **El dólar vuelve a retroceder y cierra en S/3,366 en el mercado peruano**: [Link](https://caretas.pe/economia/el-dolar-vuelve-a-retroceder-y-cierra-en-s-3366-en-el-mercado-peruano/)
-
-
-### temblor hoy (N/A, 13/11/2025 07:53 Lima)
-
-- **Cinco sismos remecen el sur y centro del Perú en menos de 24 horas**: [Link](https://caretas.pe/nacional/cinco-sismos-remecen-el-sur-y-centro-del-peru-en-menos-de-24-horas/)
-- **Sismo de magnitus 4.0 sacude Ica esta mañana**: [Link](https://peru21.pe/peru/sismo-de-magnitus-40-sacude-ica-esta-manana/)
-- **Sismo de magnitud 3.6 remeció Lima y Callao esta mañana**: [Link](https://rpp.pe/peru/callao/sismo-de-magnitud-36-remecio-lima-y-callao-esta-manana-noticia-1663321)
-
-
-### x (N/A, 13/11/2025 07:53 Lima)
-
-- **Spain fines Musk's X $5.8 million in cryptoasset advertising case**: [Link](https://www.reuters.com/legal/government/spain-fines-musks-x-58-million-cryptoasset-advertising-case-2025-11-13/)
-- **X Fined in Spain: CNMV Fine €5M Over Quantum AI Crypto Ads**: [Link](https://en.cryptonomist.ch/2025/11/13/x-fined-spain-crypto-ads/)
-- **X Fined 5 Million Euros in Spain Over Cryptocurrency Ads**: [Link](https://english.aawsat.com/technology/5208320-x-fined-5-million-euros-spain-over-cryptocurrency-ads)
-
-
-### fonavi (N/A, 13/11/2025 07:53 Lima)
-
-- **FONAVI 2025 vía Banco de la Nación: quiénes cobran los aportes antes de fin de año**: [Link](https://elcomercio.pe/respuestas/tramites/quienes-cobraran-la-devolucion-del-fonavi-antes-que-termine-el-2025-via-banco-de-la-nacion-tdpe-noticia/)
-- **Fonavi: Advierten que devolución total de aportes tomaría 9 años, dado presupuesto insuficiente**: [Link](https://www.infobae.com/peru/2025/11/12/fonavi-advierten-que-devolucion-total-de-aportes-tomaria-9-anos-dado-presupuesto-insuficiente/)
-- **Fonavi aprobó el Reintegro 4: ¿Quiénes pueden cobrar este noviembre de 2025?**: [Link](https://libero.pe/tiempoextra/2025/11/11/fonavi-aprobo-reintegro-4-quienes-pueden-cobrar-noviembre-de-2025-828179)
 
 
