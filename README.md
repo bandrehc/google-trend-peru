@@ -1,3 +1,31 @@
+### feriados diciembre 2025 (N/A, 17/11/2025 11:33 Lima)
+
+- **Peruanos gozarán de feriado largo en lo que queda del 2025: son 4 días consecutivos**: [Link](https://elcomercio.pe/respuestas/cuando/los-trabajadores-peruanos-gozaran-de-este-feriado-largo-en-lo-que-queda-del-2025-son-4-dias-consecutivos-tdpe-noticia/)
+- **La buena noticia para trabajadores del sector público y privado Perú respecto al próximo feriado largo de 2025**: [Link](https://larepublica.pe/economia/2025/11/17/la-buena-noticia-para-trabajadores-del-sector-publico-y-privado-peru-respecto-al-proximo-feriado-largo-de-2025-atmp-968303)
+- **Feriados 2025 en Perú: conoce el próximo feriado largo y los últimos días de descanso del año**: [Link](https://www.apnoticias.pe/peru/exitosa-noticias/feriados-2025-en-peru-conoce-el-proximo-feriado-largo-y-los-ultimos-dias-de-descanso-del-ano-1468995)
+
+
+### retiro afp prima (N/A, 17/11/2025 11:33 Lima)
+
+- **Vea cronograma retiro AFP 2025: Estas son las fechas según el último dígito de tu DNI**: [Link](https://elcomercio.pe/respuestas/tramites/cronograma-retiro-afp-2025-que-fecha-te-corresponde-iniciar-el-tramite-y-cobrar-hasta-4-uit-o-21-400-soles-tdpe-noticia/)
+- **Retiro de AFP: Conoce qué afiliados recibirán su primera UIT antes de Navidad**: [Link](https://www.exitosanoticias.pe/actualidad/retiro-afp-conoce-afiliados-recibiran-su-primera-uit-antes-navidad-n162830)
+- **AFP 2025: revisa cuándo cobrarás la primera UIT antes de Navidad y cómo acceder al retiro**: [Link](https://larepublica.pe/economia/2025/11/15/afp-2025-revisa-cuando-cobraras-la-primera-uit-antes-de-navidad-y-como-acceder-al-retiro-atmp-484500)
+
+
+### i (N/A, 17/11/2025 11:33 Lima)
+
+- **Tom Cruise Receives Honorary Oscar at 2025 Governors Awards**: [Link](https://people.com/tom-cruise-honorary-oscar-at-2025-governors-awards-11850067)
+- **Tom Cruise, Debbie Allen, Wynn Thomas receive honorary Oscars**: [Link](https://ca.news.yahoo.com/tom-cruise-debbie-allen-wynn-154246365.html)
+- **‘Making films is who I am’: Tom Cruise gets lifetime achievement Oscar**: [Link](https://www.theguardian.com/film/2025/nov/17/tom-cruise-lifetime-achievement-oscar-governors-awards)
+
+
+### alemania vs eslovaquia (N/A, 17/11/2025 11:33 Lima)
+
+- **Apuestas y pronósticos Alemania vs Eslovaquia**: [Link](https://www.marca.com/apuestas-deportivas/predicciones/2025/11/16/apuestas-pronosticos-alemania-vs-eslovaquia.html)
+- **Alemania quiere sellar su pase al Mundial con una victoria en casa ante Eslovaquia**: [Link](https://www.espn.com.ar/futbol/mundial/nota/_/id/15962231/alemania-vs-eslovaquia-eliminatorias-uefa-equipo-fecha-hora-tv-en-vivo)
+- **Pronóstico Alemania Eslovaquia - Mundial 17/11/25**: [Link](https://www.sportytrader.com/es/pronosticos/alemania-eslovaquia-305804/)
+
+
 ### profuturo afp (N/A, 17/11/2025 07:52 Lima)
 
 - **Cronograma del Retiro-AFP 2025: Fechas de pago y retiro según el último dígito de tu DNI**: [Link](https://elcomercio.pe/respuestas/tramites/cronograma-retiro-afp-2025-que-fecha-te-corresponde-iniciar-el-tramite-y-cobrar-hasta-4-uit-o-21-400-soles-tdpe-noticia/)
@@ -1004,33 +1032,5 @@ Sin noticias relacionadas disponibles.
 - **Concierto de Shakira en Lima: horarios y recomendaciones para ir a su primer show en el Estadio Nacional**: [Link](https://www.infobae.com/peru/2025/11/13/concierto-de-shakira-en-lima-horarios-y-recomendaciones-para-ir-a-su-primer-show-en-el-estadio-nacional/)
 - **Shakira en Lima: conoce el setlist de las canciones que cantará en sus conciertos en el Estadio Nacional**: [Link](https://rpp.pe/musica/conciertos/shakira-en-lima-2025-setlist-de-canciones-que-cantara-en-sus-conciertos-de-noviembre-en-estadio-nacional-noticia-1663529)
 - **Orquesta Filarmónica de Lima se suma al concierto de Shakira en el Estadio Nacional**: [Link](https://elcomercio.pe/luces/musica/orquesta-filarmonica-de-lima-se-suma-al-concierto-de-shakira-en-el-estadio-nacional-ultimas-noticia/)
-
-
-### eslovaquia vs (N/A, 14/11/2025 03:32 Lima)
-
-- **Eslovaquia vs Irlanda del Norte Pronóstico Mundial 14/11/25**: [Link](https://www.apuestas-deportivas.es/pronostico/eslovaquia-vs-irlanda-del-norte-pronostico-clasificacion-mundial-14-11-2025/)
-- **NI se centra en el ‘aquí y ahora’ en el esfuerzo por la Copa Mundial**: [Link](https://masmma.com.mx/futbol/ni-se-centra-en-el-aqui-y-ahora-en-el-esfuerzo-por-la-copa-mundial/120873/)
-- **Eslovaquia vs Irlanda del Norte: pronóstico, apuestas, cuotas para el partido 14/11/2025**: [Link](https://legalbet.es/centro-apuestas/slovakia-northern-ireland-14-11-2025/)
-
-
-### polonia vs (N/A, 13/11/2025 23:28 Lima)
-
-- **Países Bajos vs. Polonia en vivo: a qué hora juegan, canal TV y dónde ver por Eliminatorias 2026**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/paises-bajos-vs-polonia-en-vivo-hoy-gratis-via-espn-disney-plus-futbol-libre-tv-a-que-hora-juegan-canal-que-transmite-y-donde-ver-por-eliminatorias-2026-video-noticia/)
-- **Apuestas y pronósticos Polonia vs Países Bajos**: [Link](https://www.marca.com/apuestas-deportivas/predicciones/2025/11/13/apuestas-pronosticos-polonia-vs-paises-bajos.html)
-- **Polonia - Holanda: TV, horario y cómo ver la Clasificación al Mundial 2026 online**: [Link](https://as.com/futbol/internacional/polonia-holanda-tv-horario-y-como-ver-la-clasificacion-al-mundial-2026-online-f202511-n/)
-
-
-### messi (N/A, 13/11/2025 23:28 Lima)
-
-- **Barcelona board members suspect Lionel Messi visit involved political rivals**: [Link](https://www.football-espana.net/2025/11/13/barcelona-board-members-suspect-lionel-messi-visit-involved-political-rivals)
-- **Lionel Messi's surprise Camp Nou visit sparks global meme trend**: [Link](https://tribuna.com/en/blogs/lionel-messis-surprise-camp-nou-visit-sparks-global-meme-tre/)
-- **Maldini speaks clearly about Leo Messi's return to Barça: 'It's difficult...'**: [Link](https://madrid-barcelona.com/en/fc-barcelona/maldini-speaks-clearly-about-leo-messis-return-to-barca-difficult)
-
-
-### mavila huertas (N/A, 13/11/2025 23:28 Lima)
-
-- **¿Quién es Roberto Reátegui, pareja de Mávila Huertas y exesposo de Mónica Delta?**: [Link](https://www.infobae.com/peru/2025/11/12/quien-es-roberto-reategui-pareja-de-mavila-huertas-y-exesposo-de-monica-delta/)
-- **Magaly Medina presenta a la nueva pareja de Mávila Huertas y ella 'grita' su amor: "Lo que se ve, no se pregunta"**: [Link](https://larepublica.pe/espectaculos/2025/11/11/magaly-medina-expone-quien-es-el-nuevo-amor-de-mavila-huertas-y-ella-grita-su-amor-lo-que-se-ve-no-se-pregunta-419331)
-- **Mávila Huertas CONFIRMA que REGRESÓ con su exesposo Roberto Reátegui tras años de separación: "Lo que se ve..."**: [Link](https://elpopular.pe/espectaculos/2025/11/11/mavila-huertas-confirma-que-regreso-con-su-exesposo-roberto-reategui-tras-anos-de-separacion-lo-que-se-ve-928906)
 
 
