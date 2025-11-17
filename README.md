@@ -1,3 +1,70 @@
+### nick woltemade (N/A, 17/11/2025 15:28 Lima)
+
+- **Nick Woltemade: Deutschlands Nummer eins im Sturm in WM-Quali**: [Link](https://www.faz.net/aktuell/sport/fussball-wm/deutsches-team/nick-woltemade-deutschlands-nummer-eins-im-sturm-in-wm-quali-accg-110783403.html)
+- **Bayern-Flirt Woltemade reagiert nach „Idioten“-Spruch von Rummenigge**: [Link](https://www.merkur.de/sport/fc-bayern/bayern-flirt-woltemade-reagiert-nach-idioten-spruch-von-rummenigge-zr-94040523.html)
+- **Nick Woltemade "ein Lottogewinn" für Deutschland**: [Link](https://www.sport1.de/news/fussball/wm-qualifikation/2025/11/nick-woltemade-ein-lottogewinn-fur-deutschland)
+
+
+### países bajos vs (N/A, 17/11/2025 15:28 Lima)
+
+- **Países Bajos pone un pie en el Mundial tras empatar ante Polonia**: [Link](https://www.espn.com.ar/futbol/champions-league/nota/_/id/15959161/polonia-vs-paises-bajos-eliminatorias-mundial-2026-uefa)
+- **Depay evita un susto**: [Link](https://as.com/futbol/internacional/depay-evita-un-susto-f202511-n/)
+- **Frenkie de Jong culpa el empate de Holanda a las 'enormes distancias' en el ataque**: [Link](https://tribuna.com/es/news/2025-11-15-frenkie-de-jong-culpa-el-empate-de-holanda-a-las-enormes-distancias-en-el-ataque/)
+
+
+### belgrano - unión (N/A, 17/11/2025 15:28 Lima)
+
+- **Qué canal pasa Belgrano vs Unión hoy: dónde ver el partido gratis y en vivo de la Liga Profesional**: [Link](https://www.365scores.com/es/news/belgrano-vs-union-hoy-donde-ver/)
+- **Como son los numeros de Nazareno Arasa dirigiendo a Unión**: [Link](https://santafedeportivo.com/2025/11/17/como-son-los-numeros-de-nazareno-arasa-dirigiendo-a-union/)
+- **Unión está entre los que MENOS JUGADORES USARON en el Torneo Clausura**: [Link](https://onefootball.com/es/noticias/union-esta-entre-los-que-menos-jugadores-usaron-en-el-torneo-clausura-41954811)
+
+
+### defensa y justicia - independiente rivadavia (N/A, 17/11/2025 15:28 Lima)
+
+- **Defensa vs Independiente: resultado EN VIVO y estadísticas de la Liga Profesional**: [Link](https://www.365scores.com/es/news/defensa-vs-independiente-resultado-vivo/)
+- **De la mano de Villa y Fernández, la Lepra le gana a Defensa y Justicia 1 a 0**: [Link](https://www.mendozapost.com/deportes/torneo-clausura-2025-fecha-16-defensa-y-justicia-independiente-rivadavia/)
+- **Platense vs Gimnasia de La Plata por el Torneo Clausura 2025: minuto a minuto, en directo**: [Link](https://marcapersonalweb.com.ar/2025/11/17/platense-vs-gimnasia-de-la-plata-por-el-torneo-clausura-2025-minuto-a-minuto-en-directo/)
+
+
+### gibraltar vs (N/A, 17/11/2025 15:28 Lima)
+
+Sin noticias relacionadas disponibles.
+
+
+### malta - polonia (N/A, 17/11/2025 15:28 Lima)
+
+- **Malta vs Polonia: cómo verlo, vista previa de las eliminatorias del WCQ**: [Link](https://www.ucvradio.pe/noticias-del-mundo/malta-vs-polonia-como-verlo-vista-previa-de-las-eliminatorias-del-wcq/51863/)
+- **Malta vs Polonia pronostico y comparación de cuotas 17.11.2025**: [Link](https://www.livetipsportal.com/es/pronosticos-apuestas-deportivas/malta-vs-polonia-clas-mundial-europa-10798466/)
+
+
+### luxemburgo vs (N/A, 17/11/2025 15:28 Lima)
+
+- **Alemania venció a Luxemburgo y quedó a un paso de clasificar al Mundial 2026**: [Link](https://www.espn.com.pe/futbol/mundial/nota/_/id/15942592/luxemburgo-vs-alemania-eliminatorias-uefa-equipo-fecha-hora-tv-en-vivo)
+- **¿A qué hora juega y en qué canal transmite Luxemburgo vs. Alemania por Eliminatorias UEFA 2025?**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/a-que-hora-juega-y-que-canal-transmite-luxemburgo-vs-alemania-en-vivo-hoy-15-de-noviembre-por-eliminatorias-uefa-2025-horarios-y-canales-tv-online-nnda-nnrt-noticia/)
+- **La revolución alemana sigue estancada a pesar de una victoria por 2-0 a un ritmo más lento**: [Link](https://www.elpueblo.pe/noticias-internacionales/la-revolucion-alemana-sigue-estancada-a-pesar-de-una-victoria-por-2-0-a-un-ritmo-mas-lento/120484/)
+
+
+### alemania (N/A, 17/11/2025 15:28 Lima)
+
+- **Alemania volverá a suministrar todo tipo de armamento a Israel tras levantar las restricciones**: [Link](https://elpais.com/internacional/2025-11-17/alemania-volvera-a-suministrar-todo-tipo-de-armamento-a-israel-tras-levantar-las-restricciones.html)
+- **Alemania levantará la restricción de exportar armas a Israel**: [Link](https://www.dw.com/es/alemania-levantar%C3%A1-la-restricci%C3%B3n-de-exportar-armas-a-israel/a-74776134)
+- **Alemania levanta las restricciones a la exportación de armamento a Israel | Hamás | Franja de Gaza últimas | MUNDO**: [Link](https://elcomercio.pe/mundo/europa/alemania-levanta-las-restricciones-a-la-exportacion-de-armamento-a-israel-hamas-franja-de-gaza-ultimas-noticia/)
+
+
+### alemania - eslovaquia (N/A, 17/11/2025 15:28 Lima)
+
+- **Alemania - Eslovaquia en directo | Clasificación al Mundial hoy en vivo**: [Link](https://www.marca.com/futbol/clasificacion-al-mundial-uefa/alemania-eslovaquia/2025/11/17/01_0116_20251117_357_507-directo.html)
+- **Alemania - Eslovaquia hoy en directo: clasificación Mundial 2026 en vivo**: [Link](https://as.com/futbol/internacional/alemania-eslovaquia-hoy-en-directo-clasificacion-mundial-2026-en-vivo-f202511-d/)
+- **Alemania quiere sellar su pase al Mundial con una victoria en casa ante Eslovaquia**: [Link](https://www.espn.com.ar/futbol/mundial/nota/_/id/15962231/alemania-vs-eslovaquia-eliminatorias-uefa-equipo-fecha-hora-tv-en-vivo)
+
+
+### montenegro - croacia (N/A, 17/11/2025 15:28 Lima)
+
+- **Pronóstico Montenegro Croacia - Mundial 17/11/25**: [Link](https://www.sportytrader.com/es/pronosticos/montenegro-croacia-305777/)
+- **Montenegro vs Croacia Pronóstico Apuestas | Mundial 17/11/25**: [Link](https://www.apuestas-deportivas.es/pronostico/montenegro-vs-croacia-pronostico-clasificacion-mundial-17-11-2025/)
+- **Montenegro vs Croacia por la fase de grupos de Eliminatorias UEFA EN VIVO. Seguilo minuto a minuto por la web de TN.**: [Link](https://tn.com.ar/deportes/futbol/2025/11/17/montenegro-vs-croacia-en-vivo-por-la-fase-de-grupos-de-las-eliminatorias-uefa-hora-donde-ver-y-formaciones/)
+
+
 ### feriados diciembre 2025 (N/A, 17/11/2025 11:33 Lima)
 
 - **Peruanos gozarán de feriado largo en lo que queda del 2025: son 4 días consecutivos**: [Link](https://elcomercio.pe/respuestas/cuando/los-trabajadores-peruanos-gozaran-de-este-feriado-largo-en-lo-que-queda-del-2025-son-4-dias-consecutivos-tdpe-noticia/)
@@ -962,75 +1029,5 @@ Sin noticias relacionadas disponibles.
 - **Sinner vince con Shelton, domani semifinale con De Minaur alle 14:30**: [Link](https://www.ilsole24ore.com/art/sinner-vince-shelton-domani-semifinale-de-minaur-1430-AHux7KkD)
 - **Atp Finals, Bertolucci: "Sinner ha la marcia in più nei momenti chiave". VIDEO**: [Link](https://sport.sky.it/tennis/video/2025/11/14/sinner-atp-finals-bertolucci-commento-video-1051880)
 - **Sinner fa tre su tre e resta in corsa per il bonus da 5 milioni**: [Link](https://www.eurosport.it/tennis/atp-finals/2025/sinner-batte-shelton-e-fa-tre-su-tre-nel-gruppo-borg-jannik-resta-in-corsa-per-lassegno-da-5-milioni-di-dollari_sto23241065/story.shtml)
-
-
-### corea del sur (N/A, 14/11/2025 11:31 Lima)
-
-- **Corea del Sur y Estados Unidos formalizaron los acuerdos clave sobre comercio, defensa y cooperación nuclear naval**: [Link](https://www.infobae.com/america/mundo/2025/11/14/corea-del-sur-y-estados-unidos-formalizaron-los-acuerdos-clave-sobre-comercio-defensa-y-cooperacion-nuclear-naval/)
-- **(AMPLIACIÓN) Lee anuncia la conclusión de la ficha de datos conjunta con EE. UU. sobre comercio y seguridad**: [Link](https://sp.yna.co.kr/view/ASP20251114001300883)
-- **Resumen Conjunto: Encuentro entre el Presidente Donald J. Trump y el Presidente Lee Jae Myung**: [Link](https://diariodelamancha.com/resumen-conjunto-encuentro-entre-el-presidente-donald-j-trump-y-el-presidente-lee-jae-myung/)
-
-
-### ig (N/A, 14/11/2025 11:31 Lima)
-
-- **Amy Schumer Is ‘100 Percent Getting Divorced’ From Chris Fischer Now That ‘She Got Skinny’: Report**: [Link](https://www.yahoo.com/entertainment/celebrity/articles/amy-schumer-100-percent-getting-221211750.html)
-- **The truth behind Amy Schumer and Chris Fischer’s relationship status revealed as divorce rumors heat up**: [Link](https://pagesix.com/2025/11/14/celebrity-news/the-truth-behind-amy-schumer-and-chris-fischers-relationship-status-revealed-amid-divorce-rumors/)
-- **Amy Schumer and Husband Chris Fischer ‘Privately Working Through Normal Issues’ in Marriage (Exclusive)**: [Link](https://people.com/amy-schumer-husband-chris-fischer-privately-working-through-normal-issues-marriage-exclusive-11849400)
-
-
-### teams (N/A, 14/11/2025 11:31 Lima)
-
-- **Check out the 2025 All-MLB First and Second Teams**: [Link](https://www.mlb.com/news/2025-all-mlb-teams)
-- **MLB Awards Week results: Aaron Judge, Shohei Ohtani win second consecutive MVPs**: [Link](https://www.espn.com/mlb/story/_/id/46833929/2025-mlb-awards-mvp-cy-young-rookie-manager-year-predictions-results-analysis-ohtani-judge-raleigh)
-- **All-MLB awards: Shohei Ohtani, Cal Raleigh and Aaron Judge lead league's first team**: [Link](https://sports.yahoo.com/mlb/breaking-news/article/all-mlb-awards-shohei-ohtani-cal-raleigh-and-aaron-judge-lead-leagues-first-team-041453576.html)
-
-
-### corea del sur - bolivia (N/A, 14/11/2025 07:50 Lima)
-
-- **Ver Unitel EN VIVO ONLINE - Transmisión, Bolivia-Corea del Sur por Fútbol Canal**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/unitel-en-vivo-gratis-ver-futbol-libre-tv-bolivia-vs-corea-del-sur-hoy-online-via-fbf-play-futbol-canal-por-partido-amistoso-video-noticia/)
-- **A qué hora juega Bolivia vs Corea del Sur: partido amistoso en Daejeon por fecha FIFA 2025**: [Link](https://www.infobae.com/peru/deportes/2025/11/14/a-que-hora-juega-bolivia-vs-corea-del-sur-partido-amistoso-daejeon-fecha-fifa-2025-horario/)
-- **Amistoso internacional: Rep. de Corea y Bolivia se enfrentan por un duelo amistoso**: [Link](https://rpp.pe/futbol/ligas-internacionales/amistoso-internacional-rep-de-corea-y-bolivia-se-enfrentan-por-un-duelo-amistoso-noticia-1663583)
-
-
-### metro (N/A, 14/11/2025 07:50 Lima)
-
-- **Metro Detroit could see Northern Lights ahead of warmup**: [Link](https://www.clickondetroit.com/weather/2025/11/13/metro-detroit-could-see-northern-lights-ahead-of-warmup/)
-- **Metro Detroit Weather: Milder temps return today**: [Link](https://www.wxyz.com/weather/forecast/todays-forecast/metro-detroit-weather-milder-temps-return-today)
-- **Michigan set to warm up after first snow of the season: Here's how much**: [Link](https://www.bigrapidsnews.com/news/article/michigan-warm-up-weekend-21169204.php)
-
-
-### angola vs (N/A, 14/11/2025 07:50 Lima)
-
-- **Argentina vs Angola en vivo: cuándo juegan, horarios y canales de TV para ver partido**: [Link](https://elcomercio.pe/deporte-total/argentina/argentina-vs-angola-en-vivo-gratis-hoy-via-tyc-sports-telefe-tv-publica-futbol-libre-tv-a-que-hora-juegan-canales-tv-y-donde-ver-partido-amistoso-con-lionel-messi-video-noticia/)
-- **El regreso de Lionel Messi a África, escenario de una de sus grandes frustraciones**: [Link](https://www.espn.com.pe/futbol/mundial/nota/_/id/15946480/regreso-lionel-messi-africa-escenario-grandes-frustraciones)
-- **Argentina vs Angola en vivo: ¿a qué hora juegan en Luanda y dónde ver amistoso por fecha FIFA con Lionel Messi?**: [Link](https://rpp.pe/futbol/futbol-mundial/argentina-vs-angola-en-vivo-a-que-hora-juegan-en-luanda-y-donde-ver-amistoso-por-fecha-fifa-con-lionel-messi-via-tyc-sports-gratis-partidos-de-hoy-noticia-1663744)
-
-
-### precio del dólar perú (N/A, 14/11/2025 03:32 Lima)
-
-- **Precio del dólar con alza: Así cerró el tipo de cambio hoy 13 de noviembre en Perú**: [Link](https://www.infobae.com/peru/2025/11/12/peru-cotizacion-de-apertura-del-dolar-hoy-12-de-noviembre-de-usd-a-pen/)
-- **¿Cuál es la cotización del dólar hoy jueves 13 de noviembre del 2025?**: [Link](https://andina.pe/agencia/noticia-cual-es-cotizacion-del-dolar-hoy-jueves-13-noviembre-del-2025-1051809.aspx)
-- **El dólar vuelve a retroceder y cierra en S/3,366 en el mercado peruano**: [Link](https://caretas.pe/economia/el-dolar-vuelve-a-retroceder-y-cierra-en-s-3366-en-el-mercado-peruano/)
-
-
-### angola vs argentina (N/A, 14/11/2025 03:32 Lima)
-
-- **Argentina vs Angola: fecha, horarios y canales para ver partido amistoso**: [Link](https://elcomercio.pe/deporte-total/argentina/argentina-vs-angola-en-vivo-gratis-hoy-via-tyc-sports-telefe-tv-publica-futbol-libre-tv-a-que-hora-juegan-canales-tv-y-donde-ver-partido-amistoso-con-lionel-messi-video-noticia/)
-- **Quién es Joaquín Panichelli, la sorpresa de Lionel Scaloni que en River no tuvieron en cuenta**: [Link](https://www.tiemposur.com.ar/deporte/quien-es-joaquin-panichelli-la-sorpresa-de-lionel-scaloni-que-en-river-no-tuvieron-en-cuenta)
-- **Argentina vs Angola en vivo: ¿a qué hora juegan en Luanda y dónde ver amistoso por fecha FIFA con Lionel Messi?**: [Link](https://rpp.pe/futbol/futbol-mundial/argentina-vs-angola-en-vivo-a-que-hora-juegan-en-luanda-y-donde-ver-amistoso-por-fecha-fifa-con-lionel-messi-via-tyc-sports-gratis-partidos-de-hoy-noticia-1663744)
-
-
-### cinemark (N/A, 14/11/2025 03:32 Lima)
-
-- **Cines Cartelera Cinemark Perú precios y horarios hoy jueves 13 de noviembre**: [Link](https://rpp.pe/cine/cartelera/cartelera-cine-en-lima-y-peru-hoy-jueves-13-de-noviembre-noticia-1663592)
-- **Cartelera Cine en Lima y Perú hoy miércoles 12 de noviembre**: [Link](https://rpp.pe/cine/cartelera/cartelera-cine-en-lima-y-peru-hoy-miercoles-12-de-noviembre-noticia-1663446?hash=d33f2477-6661-62eb-c821-a390a6ca9fe9)
-- **Cinemark ofrece selfies holográficos con estrellas de “Now You See Me: Now You Don’t”**: [Link](https://www.ucvradio.pe/mas-actualidad/cinemark-ofrece-selfies-holograficos-con-estrellas-de-now-you-see-me-now-you-dont/47977/)
-
-
-### shakira en peru (N/A, 14/11/2025 03:32 Lima)
-
-- **Concierto de Shakira en Lima: horarios y recomendaciones para ir a su primer show en el Estadio Nacional**: [Link](https://www.infobae.com/peru/2025/11/13/concierto-de-shakira-en-lima-horarios-y-recomendaciones-para-ir-a-su-primer-show-en-el-estadio-nacional/)
-- **Shakira en Lima: conoce el setlist de las canciones que cantará en sus conciertos en el Estadio Nacional**: [Link](https://rpp.pe/musica/conciertos/shakira-en-lima-2025-setlist-de-canciones-que-cantara-en-sus-conciertos-de-noviembre-en-estadio-nacional-noticia-1663529)
-- **Orquesta Filarmónica de Lima se suma al concierto de Shakira en el Estadio Nacional**: [Link](https://elcomercio.pe/luces/musica/orquesta-filarmonica-de-lima-se-suma-al-concierto-de-shakira-en-el-estadio-nacional-ultimas-noticia/)
 
 
