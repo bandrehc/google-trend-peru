@@ -1,3 +1,45 @@
+### profuturo afp (N/A, 17/11/2025 07:52 Lima)
+
+- **Cronograma del Retiro-AFP 2025: Fechas de pago y retiro según el último dígito de tu DNI**: [Link](https://elcomercio.pe/respuestas/tramites/cronograma-retiro-afp-2025-que-fecha-te-corresponde-iniciar-el-tramite-y-cobrar-hasta-4-uit-o-21-400-soles-tdpe-noticia/)
+- **Retiro de AFP: Conoce qué afiliados recibirán su primera UIT antes de Navidad**: [Link](https://www.exitosanoticias.pe/actualidad/retiro-afp-conoce-afiliados-recibiran-su-primera-uit-antes-navidad-n162830)
+- **AFP 2025: revisa cuándo cobrarás la primera UIT antes de Navidad y cómo acceder al retiro**: [Link](https://larepublica.pe/economia/2025/11/15/afp-2025-revisa-cuando-cobraras-la-primera-uit-antes-de-navidad-y-como-acceder-al-retiro-atmp-484500)
+
+
+### cronograma de pagos (N/A, 17/11/2025 07:52 Lima)
+
+- **ANSES: quiénes cobran hoy, 17 de noviembre**: [Link](https://www.infobae.com/economia/2025/11/17/anses-quienes-cobran-hoy-17-de-noviembre/)
+- **PNC: cuál es el monto de las pensiones en diciembre 2025 con el aumento y el aguinaldo**: [Link](https://www.lanacion.com.ar/economia/pnc-cual-es-el-monto-de-las-pensiones-en-diciembre-2025-con-el-aumento-y-el-aguinaldo-nid17112025/)
+- **ANSES noviembre: cronograma completo de pagos y bono extr**: [Link](https://www.diariodebatepregon.com/argentina-y-el-mundo/anses-noviembre-cronograma-completo-de-pagos-y-bono-extr)
+
+
+### bn (N/A, 17/11/2025 07:52 Lima)
+
+- **Samsung and other South Korean firms pledge larger domestic investments after U.S. tariff deal**: [Link](https://www.cnbc.com/2025/11/16/south-korean-firms-pledge-domestic-investments-after-us-tariff-deal.html)
+- **Samsung, Hyundai announce domestic investments after US-South Korea trade deal**: [Link](https://www.reuters.com/world/asia-pacific/samsung-electronics-add-chip-production-line-demand-rises-2025-11-16/)
+- **Korean Conglomerates Pledge $550 Billion Domestic Investment**: [Link](https://www.bloomberg.com/news/articles/2025-11-16/korean-conglomerates-pledge-464-billion-of-domestic-investment)
+
+
+### la tinka (N/A, 17/11/2025 07:52 Lima)
+
+- **La Tinka: descubre los números ganadores del sorteo del 16 de noviembre**: [Link](https://elcomercio.pe/videos/entretenimiento/la-tinka-descubre-los-numeros-ganadores-del-sorteo-del-16-de-noviembre-si-o-si-sorteo-loteria-ganadores-nnav-video-amtv-noticia/)
+- **Sorteo de La Tinka del domingo 16 de noviembre de 2025: resultados y verifica si ganaste**: [Link](https://www.infobae.com/peru/2025/11/17/la-tinka-del-16-de-noviembre-descubre-los-ganadores-del-ultimo-sorteo/)
+- **Resultados de La Tinka del domingo 16 de noviembre: consulta los números ganadores del Pozo Millonario**: [Link](https://larepublica.pe/sociedad/2025/11/16/resultados-de-la-tinka-en-vivo-hoy-domingo-16-de-noviembre-2025-numeros-ganadores-del-pozo-millonario-boliyapa-y-mas-del-sorteo-atmp-626505)
+
+
+### lunes 17 de noviembre feriado en peru (N/A, 17/11/2025 07:52 Lima)
+
+- **Declaran feriado no laborable mañana 17 de noviembre en esta localidad de Perú: suspenden clases y labores**: [Link](https://www.infobae.com/peru/2025/11/16/declaran-feriado-no-laborable-manana-17-de-noviembre-en-esta-localidad-de-peru-suspenden-clases-y-labores/)
+- **Declaran día no laborable el 17 de noviembre: colegios no tendrán clases en esta región, según Minedu**: [Link](https://larepublica.pe/sociedad/2025/11/16/no-hay-clases-escolares-en-colegios-este-lunes-17-de-noviembre-por-ser-declarado-dia-no-laborable-en-esta-region-segun-minedu-742640)
+- **¡Confirmado! Este 17 de noviembre será DÍA no laborable: ¿Quiénes descansan y por qué?**: [Link](https://www.exitosanoticias.pe/actualidad/confirmado-17-noviembre-sera-dia-laborable-quienes-descansan-que-n162747)
+
+
+### jazz - bulls (N/A, 17/11/2025 07:52 Lima)
+
+- **Box Score & Player Grades: Jazz 150, Bulls 147 (2OT) – November 16, 2025**: [Link](https://www.bleachernation.com/bulls/2025/11/16/bulls-147-jazz-150-2ot/)
+- **Lauri Markkanen News: Drops 47 in win**: [Link](https://www.rotowire.com/basketball/headlines/lauri-markkanen-news-drops-47-in-win-504132)
+- **Chicago in losing streak, Vučević's double-double against Utah**: [Link](https://en.vijesti.me/sports-e/basketball/783540/Chicago-in-losing-streak--Vucevic%27s-double-double-against-Utah)
+
+
 ### temblor hoy (N/A, 17/11/2025 03:35 Lima)
 
 - **Temblor en Perú según el IGP: hora exacta, epicentro y magnitud del último sismo**: [Link](https://elcomercio.pe/respuestas/temblor-en-peru-hoy-ultimos-sismos-de-noviembre-en-vivo-cual-fue-la-magnitud-epicentro-y-hora-segun-reporte-del-igp-instituto-geofisico-del-peru-lima-callao-ica-lbposting-noticia/)
@@ -990,45 +1032,5 @@ Sin noticias relacionadas disponibles.
 - **¿Quién es Roberto Reátegui, pareja de Mávila Huertas y exesposo de Mónica Delta?**: [Link](https://www.infobae.com/peru/2025/11/12/quien-es-roberto-reategui-pareja-de-mavila-huertas-y-exesposo-de-monica-delta/)
 - **Magaly Medina presenta a la nueva pareja de Mávila Huertas y ella 'grita' su amor: "Lo que se ve, no se pregunta"**: [Link](https://larepublica.pe/espectaculos/2025/11/11/magaly-medina-expone-quien-es-el-nuevo-amor-de-mavila-huertas-y-ella-grita-su-amor-lo-que-se-ve-no-se-pregunta-419331)
 - **Mávila Huertas CONFIRMA que REGRESÓ con su exesposo Roberto Reátegui tras años de separación: "Lo que se ve..."**: [Link](https://elpopular.pe/espectaculos/2025/11/11/mavila-huertas-confirma-que-regreso-con-su-exesposo-roberto-reategui-tras-anos-de-separacion-lo-que-se-ve-928906)
-
-
-### finlandia vs (N/A, 13/11/2025 23:28 Lima)
-
-Sin noticias relacionadas disponibles.
-
-
-### suns - pacers (N/A, 13/11/2025 23:28 Lima)
-
-- **Washington Wizards vs Minnesota Timberwolves Nov 19, 2025 Game Summary**: [Link](https://www.nba.com/game/was-vs-min-0022500259)
-- **Suns Starter Unexpectedly in Jeopardy of Missing Clippers Game**: [Link](https://www.si.com/nba/suns/onsi/news/phoenix-suns-starter-unexpectedly-jeopardy-missing-los-angeles-clippers-game)
-- **Grayson Allen Injury Update: Right Quad Contusion and Timeline for Return**: [Link](https://www.freejobalert.com/article/grayson-allen-injury-update-right-quad-contusion-and-timeline-for-return-23710)
-
-
-### honduras vs (N/A, 13/11/2025 23:28 Lima)
-
-- **▷ Canal 4 EN VIVO GRATIS | cómo ver Honduras vs. Nicaragua por TV abierta y Fútbol Online**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/canal-4-en-vivo-gratis-como-ver-partido-honduras-vs-nicaragua-por-tv-abierta-y-futbol-online-nnda-nnrt-noticia/)
-- **Nicaragua - Honduras en vivo: Eliminatorias mundialistas de Concacaf, en directo**: [Link](https://as.com/us/futbol/nicaragua-honduras-en-vivo-eliminatorias-mundialistas-de-concacaf-en-directo-f202511-d/)
-- **Reinaldo Rueda propina golpe bajo a Olimpia y Eduardo Espinel con la noticia que Honduras confirma camino a...**: [Link](https://futbolcentroamerica.com/honduras/reinaldo-rueda-propina-golpe-bajo-a-olimpia-y-eduardo-espinel-con-la-noticia-que-honduras-confirma-camino-al-mundial-2026)
-
-
-### chris martin (N/A, 13/11/2025 23:28 Lima)
-
-- **Gwyneth Paltrows toxic side comes to light amid marriage troubles: Source**: [Link](https://www.geo.tv/latest/633507-gwyneth-paltrows-repeating-chris-martin-split-patterns-source)
-- **EXCLUSIVE: On the Rocks? Gwyneth Paltrow and Brad Falchuk Spark Marriage Trouble Rumors as Couple 'Spends More and More Time Apart'**: [Link](https://www.aol.com/articles/exclusive-rocks-gwyneth-paltrow-brad-111500169.html)
-- **Gwyneth Paltrow, Brad Falchuk face marriage trouble**: [Link](https://www.geo.tv/latest/633457-gwyneth-paltrow-brad-falchuk-spend-more-time-apart)
-
-
-### costa rica vs (N/A, 13/11/2025 23:28 Lima)
-
-- **Haití vs. Costa Rica, Eliminatorias de la Concacaf al Mundial 2026, en vivo: resultado, goles y más**: [Link](https://cnnespanol.cnn.com/deportes/live-news/resultado-haiti-costa-rica-eliminatorias-concacaf-orix)
-- **Costa Rica vs. Haití en vivo: transmisión del partido por Eliminatorias Concacaf 2026**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/costa-rica-vs-haiti-en-vivo-hoy-gratis-via-teletica-repretel-canal-7-canal-6-futbol-libre-tv-a-que-hora-juegan-canal-de-transmision-y-donde-ver-por-eliminatorias-concacaf-2026-video-noticia/)
-- **Haití venció a Costa Rica y deja en coma clasificación del Piojo Herrera al Mundial 2026**: [Link](https://espndeportes.espn.com/futbol/costa-rica/nota/_/id/15956169/haiti-vencio-a-costa-rica-y-deja-en-coma-clasificacion-del-piojo-herrera-al-mundial-2026)
-
-
-### grammys 2025 (N/A, 13/11/2025 23:28 Lima)
-
-- **Bad Bunny in box seat as Latin Grammys hit Vegas**: [Link](https://www.france24.com/en/live-news/20251113-bad-bunny-in-box-seat-as-latin-grammys-hit-vegas)
-- **These nominees prove Latin music is taking over the 2026 Grammys.**: [Link](https://uproxx.com/music/2026-grammy-latin-nominees-future-is-bright/)
-- **WATCH: Chuwi Joins Bad Bunny for ‘WELTITA’ Performance at 2025 Latin Grammys**: [Link](https://remezcla.com/music/watch-chuwi-joins-bad-bunny-for-weltita-performance-at-2025-latin-grammys/)
 
 
