@@ -1,3 +1,73 @@
+### resultados beca 18 2025 (N/A, 16/11/2025 20:57 Lima)
+
+- **Beca 18 2026: ¿Cuándo saldrán los resultados del examen de preseleccionados?**: [Link](https://www.infobae.com/peru/2025/11/16/beca-18-2026-cuando-saldran-los-resultados-del-examen-de-preseleccionados/)
+- **Examen de Preselección Beca 18-2026: Sede, horarios para rendir la prueba este domingo y próximas etapas del proceso**: [Link](https://elcomercio.pe/respuestas/tramites/examen-de-preseleccion-beca-18-2026-consulta-aqui-tu-sede-y-horarios-para-rendir-la-prueba-este-domingo-16-de-noviembre-tdpe-noticia/)
+- **Beca 18: La prueba de 60 preguntas para acceder a una carrera profesional con todos los gastos cubiertos**: [Link](https://peru21.pe/peru/beca-18-examen-nacional-para-acceder-una-carrera-profesional-todo-pagado/)
+
+
+### feriado 17 de noviembre peru (N/A, 16/11/2025 20:57 Lima)
+
+- **Declaran feriado no laborable mañana 17 de noviembre en esta localidad de Perú: suspenden clases y labores**: [Link](https://www.infobae.com/peru/2025/11/16/declaran-feriado-no-laborable-manana-17-de-noviembre-en-esta-localidad-de-peru-suspenden-clases-y-labores/)
+- **Declaran día no laborable el 17 de noviembre: colegios no tendrán clases en esta región, según Minedu**: [Link](https://larepublica.pe/sociedad/2025/11/16/no-hay-clases-escolares-en-colegios-este-lunes-17-de-noviembre-por-ser-declarado-dia-no-laborable-en-esta-region-segun-minedu-742640)
+- **¡Confirmado! Este 17 de noviembre será DÍA no laborable: ¿Quiénes descansan y por qué?**: [Link](https://www.exitosanoticias.pe/actualidad/confirmado-17-noviembre-sera-dia-laborable-quienes-descansan-que-n162747)
+
+
+### jnj (N/A, 16/11/2025 20:57 Lima)
+
+- **Assessing Johnson & Johnson's Value After Medtech Acquisition and 34.6% Year-to-Date Surge**: [Link](https://finance.yahoo.com/news/assessing-johnson-johnsons-value-medtech-110711029.html)
+- **A Look Into Johnson & Johnson Inc's Price Over Earnings**: [Link](https://www.benzinga.com/insights/news/25/11/48841420/a-look-into-johnson-johnson-incs-price-over-earnings)
+- **Johnson & Johnson (NYSE:JNJ) Reaches New 12-Month High - Should You Buy?**: [Link](https://www.marketbeat.com/instant-alerts/johnson-johnson-nysejnj-reaches-new-12-month-high-should-you-buy-2025-11-12/)
+
+
+### américa - atlético nacional (N/A, 16/11/2025 20:57 Lima)
+
+- **América de Cali vs. Atlético Nacional (2-2): ver resumen y goles del partido por Copa Colombia | VIDEO**: [Link](https://elcomercio.pe/deporte-total/colombia/america-vs-atletico-nacional-en-vivo-online-gratis-por-semifinal-copa-colombia-2025-a-que-hora-juegan-canal-que-transmite-y-donde-ver-via-win-sports-win-play-futbol-libre-tv-video-noticia/)
+- **Atlético Nacional: Posible nómina, convocados y bajas**: [Link](https://www.365scores.com/es/news/atletico-nacional-nomina-bajas-america/)
+- **Arias: “Nos sentimos orgullosos de representar este club”**: [Link](https://colombia.as.com/futbol/arias-f202511-n/)
+
+
+### nigeria - rd congo (N/A, 16/11/2025 20:57 Lima)
+
+- **Nigeria - RD Congo : les compositions officielles**: [Link](https://www.footmercato.net/a8995713278779101531-nigeria-rd-congo-les-compositions-officielles)
+- **DIRECT – Nigéria vs RDC 1-1 : Meschak Elia rétabli la parité (32′)**: [Link](https://africafootunited.com/direct-nigeria-vs-rdc-1-1-meschak-elia-retabli-la-parite-32/)
+- **Mondial 2026: la RD Congo remporte son ticket pour le Mexique après un match haletant contre le Nigeria**: [Link](https://information.tv5monde.com/sport/mondial-2026-la-rd-congo-remporte-son-ticket-pour-le-mexique-apres-un-match-haletant-contre-le-nigeria-2798261)
+
+
+### pelicans - warriors (N/A, 16/11/2025 20:57 Lima)
+
+- **Golden State Warriors vs New Orleans Pelicans Prediction, Pick, Odds -- 11/16**: [Link](https://www.actionnetwork.com/nba/golden-state-warriors-vs-new-orleans-pelicans-prediction-pick-odds-sunday-november-16)
+- **NBA Tips for Monday, November 17th 2025**: [Link](https://www.gobet.com.au/nba-tips/nba-november-17-2025/)
+- **Behind the Numbers: Warriors at Pelicans (11/16/2025)**: [Link](https://www.nba.com/pelicans/news/behind-the-numbers-warriors-at-pelicans-11-16-2025)
+
+
+### estudiantes (N/A, 16/11/2025 20:57 Lima)
+
+- **Argentinos Juniors se clasificó por sexta vez a la Copa Libertadores**: [Link](https://www.espn.com.ar/futbol/argentina/nota/_/id/15967943/argentinos-clasifico-a-la-copa-libertadores-por-sexta-vez)
+- **Un triunfo lo depositará en los octavos de final**: [Link](https://www.eldia.com/nota/2025-11-16-2-26-51-un-triunfo-lo-depositara-en-los-octavos-de-final-deportes)
+- **Estudiantes de La Plata vs Argentinos, por el Torneo Clausura 2025: minuto a minuto, en directo**: [Link](https://www.clarin.com/deportes/estudiantes-plata-vs-argentinos-torneo-clausura-2025-minuto-minuto-directo_0_78DALIPIpk.html)
+
+
+### franco parisi (N/A, 16/11/2025 20:57 Lima)
+
+- **Los primeros resultados oficiales sitúan a Jara y a Kast en la segunda vuelta de las presidenciales de Chile**: [Link](https://caretas.pe/mundo/los-primeros-resultados-oficiales-situan-a-jara-y-a-kast-en-la-segunda-vuelta-de-las-presidenciales-de-chile/)
+- **Chile va a las urnas este domingo en sus primeras elecciones presidenciales con voto obligatorio**: [Link](https://rpp.pe/mundo/actualidad/elecciones-en-chile-va-a-las-urnas-este-domingo-en-sus-primeros-comicios-con-voto-obligatorio-noticia-1663977)
+- **Elecciones en Chile 2025: hasta qué hora se puede ir a votar para elegir al próximo presidente y los diputados**: [Link](https://larepublica.pe/mundo/2025/11/16/elecciones-en-chile-2025-hasta-que-hora-se-puede-ir-a-votar-para-elegir-al-proximo-presidente-y-los-diputados-422176)
+
+
+### central córdoba - banfield (N/A, 16/11/2025 20:57 Lima)
+
+- **¡EN VIVO! Banfield visita a Central Córdoba con la ilusión de meterse en octavos**: [Link](https://www.espn.com.ar/futbol/argentina/nota/_/id/15968053/central-cordoba-vs-banfield-por-la-torneo-clausura-equipo-fecha-hora-y-tv-en-vivo)
+- **Punto agónico**: [Link](https://onefootball.com/de/news/punto-agonico-41961070)
+- **Omar De Felippe dio a conocer la lista de convocados para el encuentro ante Banfield**: [Link](https://www.diariopanorama.com/noticia/534956/omar-de-felippe-dio-conocer-lista-convocados-para-encuentro-ante-banfield)
+
+
+### boca juniors - tigre (N/A, 16/11/2025 20:57 Lima)
+
+- **Boca vs. Tigre, hoy EN VIVO por el Torneo Clausura: horario, formaciones y cómo ver**: [Link](https://www.ole.com.ar/futbol-primera/boca-vs-tigre-vivo-fecha-16-torneo-clausura-2025-partido-minuto-minuto-resumen-goles_0_4JAekZXkwf.html)
+- **Qué canal pasa Boca vs Tigre hoy: dónde ver el partido gratis y en vivo de la Liga Profesional**: [Link](https://www.365scores.com/es/news/boca-vs-tigre-donde-ver-gratis-vivo/)
+- **ESPN EN VIVO, Boca vs. Tigre vía Disney Plus y Pelota Libre TV por la Liga Profesional**: [Link](https://depor.com/futbol-internacional/argentina/espn-en-vivo-boca-vs-tigre-en-directo-gratis-pelota-libre-tv-tnt-sports-disney-plus-premium-transmision-por-internet-en-directo-y-como-ver-en-argentina-video-noticia/)
+
+
 ### boys vs (N/A, 16/11/2025 15:25 Lima)
 
 - **MIRA, Alianza Atlético vs Sport Boys: Dónde ver la transmisión el Torneo Clausura**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/sport-boys-vs-alianza-atletico-en-vivo-hora-canal-tv-y-donde-ver-el-torneo-clausura-2025-l1max-video-resumen-y-goles-tdpe-noticia/)
@@ -960,75 +1030,5 @@ Sin noticias relacionadas disponibles.
 - **Pronóstico Deportivo Pasto Atlético Bucaramanga - Liga BetPlay 13/11/25**: [Link](https://www.sportytrader.com/es/pronosticos/deportivo-pasto-atletico-bucaramanga-304743/)
 - **Nuevo escándalo en el fútbol colombiano por crisis económica: otro club entraría en huelga previo a la fecha 20 de Liga BetPlay**: [Link](https://www.infobae.com/colombia/deportes/2025/11/12/nuevo-escandalo-en-el-futbol-colombiano-por-crisis-economica-otro-club-entraria-en-huelga-previo-a-la-fecha-20-de-liga-betplay/)
 - **Los jugadores de un club se habrían negado a practicar porque les deberían un mes de sueldo, lo que afectaría seriamente la pelea por el llamado “punto invisible” para los cuadrangulares**: [Link](https://www.facebook.com/infobaecolombia/photos/los-jugadores-de-un-club-se-habr%C3%ADan-negado-a-practicar-porque-les-deber%C3%ADan-un-me/1276641504478609/)
-
-
-### jamaica vs (N/A, 13/11/2025 20:56 Lima)
-
-- **For glory, for country**: [Link](https://jamaica-gleaner.com/article/lead-stories/20251113/glory-country)
-- **20 years on, can the Warriors rekindle the magic?**: [Link](http://www.guardian.co.tt/article/20-years-on-can-the-warriors-rekindle-the-magic-6.2.2447637.1f9e5861f5)
-- **Win or lose, what next for Yorke’s red, black and white army? And what does it mean for T&T’s football?**: [Link](https://wired868.com/2025/11/12/win-or-lose-what-next-for-yorkes-red-black-and-white-army-and-what-does-it-mean-for-tts-football/)
-
-
-### canadá - ecuador (N/A, 13/11/2025 20:56 Lima)
-
-- **Dónde ver Ecuador vs. Canadá hoy por amistoso internacional**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/donde-ver-ecuador-vs-canada-hoy-en-vivo-canal-que-transmite-partido-amistoso-fifa-noticia/)
-- **Las últimas pruebas de Beccacece: ¿Qué puede ajustar en estos amistosos Ecuador?**: [Link](https://www.espn.com.ar/futbol/mundial/nota/_/id/15949943/las-ultimas-pruebas-de-beccacece-que-puede-ajustar-en-estos-amistosos-ecuador)
-- **Ecuador vs. Canadá: Esta es la alineación de la Tricolor para el amistoso en Toronto**: [Link](https://www.teleamazonas.com/deportes/futbol/mundial/ecuador-vs-canada-alineacion-tricolor-amistoso-toronto-106252/)
-
-
-### canada vs (N/A, 13/11/2025 20:56 Lima)
-
-- **Canada’s Men’s National Team Set to Face Ecuador in Final Camp of the Year**: [Link](https://news.ssbcrack.com/canadas-mens-national-team-set-to-face-ecuador-in-final-camp-of-the-year/)
-- **Canadian men look to leave a marker in 2025 home finale vs. Ecuador**: [Link](https://www.sportsnet.ca/soccer/article/canadian-men-look-to-leave-a-marker-in-2025-home-finale-vs-ecuador/)
-- **Canada’s World Cup soccer team plays a complicated game before final home test**: [Link](https://www.thestar.com/sports/soccer/canadas-world-cup-soccer-team-plays-a-complicated-game-before-final-home-test/article_41c05584-a05c-41f3-a08e-853152e07931.html)
-
-
-### liga colombiana (N/A, 13/11/2025 20:56 Lima)
-
-- **Se define todo: las cuentas de los equipos que pelean los últimos cupos a los cuadrangulares**: [Link](https://www.espn.com.ar/futbol/colombia/nota/_/id/15945687/cuentas-equipos-pelean-ultimos-cupos-cuadrangulares-liga-betplay)
-- **Así podrá ver por televisión los ocho partidos de la Fecha 20 de la Liga BetPlay II-2025: definen los clasificados a los cuadrangulares**: [Link](https://www.infobae.com/colombia/deportes/2025/11/12/estos-seran-los-canales-que-transmitiran-los-ocho-partidos-de-la-fecha-20-de-la-liga-betplay-ii-2025-que-definen-los-clasificados-a-los-cuadrangulares/)
-- **Sorteo cuadrangulares Liga Betplay, EN VIVO: horario y dónde ver por TV y online**: [Link](https://www.marca.com/co/2025/11/12/69150716e2704e23658b45bc.html)
-
-
-### junior - atlético nacional (N/A, 13/11/2025 20:56 Lima)
-
-- **Qué canal pasa Junior vs Atlético Nacional hoy: dónde ver el partido gratis y en vivo de la Liga BetPlay**: [Link](https://www.365scores.com/es/news/canal-junior-vs-atletico-nacional-tv/)
-- **Junior vs. At. Nacional en vivo: seguí el partido minuto a minuto**: [Link](https://www.tycsports.com/colombia/futbol-de-colombia/colombia-primera-division-ii-2025-junior-vs-at-nacional-fecha-20-id698251.html)
-- **Después del duelo con Nacional y del sorteo, se vendrá lo bueno: ¿fe o duda con Junior en cuadrangulares?**: [Link](https://impactonews.co/despues-del-duelo-con-nacional-y-del-sorteo-se-vendra-lo-bueno-fe-o-duda-con-junior-en-cuadrangulares/)
-
-
-### deportivo cali - once caldas (N/A, 13/11/2025 20:56 Lima)
-
-- **Pronóstico Deportivo Cali Once Caldas - Liga BetPlay 13/11/25**: [Link](https://www.sportytrader.com/es/pronosticos/deportivo-cali-once-caldas-304728/)
-- **🇮🇹🇮🇹 Hernán Darío Herrera, técnico del Once Caldas (@oncecaldasoficial), analiza el último partido del equipo y la esperanza a la que se aferran en el Blanco. 📹 @osvaldohernandezburitica**: [Link](https://www.facebook.com/story.php?story_fbid=1289877216499795&id=100064325876463)
-- **Deportivo Cali vs Once Caldas: Pronóstico, Cuotas y Apuestas - Primera A**: [Link](https://www.casasdeapuestas.com/pronosticos/deportivo-cali-once-caldas-20251114/)
-
-
-### carlos alcaraz (N/A, 13/11/2025 15:27 Lima)
-
-- **De Miñaur se estrena en Turín y abre una puerta a SF**: [Link](https://www.atptour.com/es/news/nitto-atp-finals-2025-jueves-fritz-de-minaur)
-- **Carlos Alcaraz-Lorenzo Musetti, fase de grupos de las ATP Finals hoy en vivo online**: [Link](https://as.com/tenis/final_atp/carlos-alcaraz-lorenzo-musetti-fase-de-grupos-de-las-atp-finals-hoy-en-vivo-online-f202511-d/)
-- **Alcaraz y su foto viral tras ganar a Fritz: "Fue una sensación de alivio tras un partido con mucho desgaste"**: [Link](https://www.marca.com/tenis/copa-masters/2025/11/13/alcaraz-foto-viral-ganar-fritz-sensacion-alivio-partido-desgaste.html)
-
-
-### concierto de shakira (N/A, 13/11/2025 15:27 Lima)
-
-- **Shakira en Lima: conoce el setlist de las canciones que cantará en sus conciertos en el Estadio Nacional**: [Link](https://rpp.pe/musica/conciertos/shakira-en-lima-2025-setlist-de-canciones-que-cantara-en-sus-conciertos-de-noviembre-en-estadio-nacional-noticia-1663529)
-- **Shakira en Perú: ¿Cuándo llega la cantante colombiana a Lima?**: [Link](https://elcomercio.pe/tvmas/famosos/shakira-en-peru-cuando-llega-la-cantante-colombiana-a-lima-celebs-ultimas-noticia/)
-- **Shakimanía ya se respira en Lima**: [Link](https://peru21.pe/espectaculos/shakimania-ya-se-respira-en-lima/)
-
-
-### cristiano ronaldo (N/A, 13/11/2025 15:27 Lima)
-
-- **Cristiano Ronaldo vs Lionel Messi: Who will reach the mythical 1000-goal mark first? The stats have an answer | Football News**: [Link](https://www.hindustantimes.com/sports/football/cristiano-ronaldo-vs-lionel-messi-who-will-reach-the-mythical-1000-goal-mark-first-the-stats-have-an-answer-101762655699260.html)
-- **"You watch a lot of movies...", Ronaldo's epic response when given the script for his 1000th goal**: [Link](https://indeksonline.net/en/He-watches-a-lot-of-movies.-Ronaldo%27s-epic-response-when-he-is-given-the-script-for-his-1000th-goal./)
-- **'He shouldn't forget to invite me to the celebration' - Ancelotti on Ronaldo's 1,000 goals target**: [Link](https://www.besoccer.com/new/he-shouldn-t-forget-to-invite-me-to-the-celebration-ancelotti-on-ronaldo-s-1-000-goals-target-1381086)
-
-
-### francia - ucrania (N/A, 13/11/2025 15:27 Lima)
-
-- **Francia - Ucrania, en directo: clasificación al Mundial 2026 hoy, en vivo**: [Link](https://as.com/futbol/internacional/francia-ucrania-en-directo-clasificacion-al-mundial-2026-hoy-en-vivo-f202511-d/)
-- **VER, Francia-Ucrania EN VIVO: transmisión ONLINE del partido desde París**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/francia-vs-ucrania-en-vivo-hoy-gratis-via-espn-futbol-libre-tv-y-disney-plus-horarios-canales-tv-y-donde-ver-partido-online-por-eliminatorias-uefa-2026-video-noticia/)
-- **Francia vs Ucrania: Apuestas, Pronóstico y Cuotas**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/internacional/2025/noviembre/pronostico-francia-vs-ucrania-13-11-25)
 
 
