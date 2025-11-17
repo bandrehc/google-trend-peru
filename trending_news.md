@@ -1,3 +1,17 @@
+### temblor hoy (N/A, 17/11/2025 03:35 Lima)
+
+- **Temblor en Perú según el IGP: hora exacta, epicentro y magnitud del último sismo**: [Link](https://elcomercio.pe/respuestas/temblor-en-peru-hoy-ultimos-sismos-de-noviembre-en-vivo-cual-fue-la-magnitud-epicentro-y-hora-segun-reporte-del-igp-instituto-geofisico-del-peru-lima-callao-ica-lbposting-noticia/)
+- **Temblor en Perú: sismo de magnitud 4 con epicentro en Arequipa**: [Link](https://www.infobae.com/peru/2025/11/16/temblor-en-peru-sismo-de-magnitud-4-con-epicentro-en-arequipa/)
+- **Cinco sismos remecen el sur y centro del Perú en menos de 24 horas**: [Link](https://caretas.pe/nacional/cinco-sismos-remecen-el-sur-y-centro-del-peru-en-menos-de-24-horas/)
+
+
+### irlanda del norte vs (N/A, 17/11/2025 03:35 Lima)
+
+- **Irlanda del Norte vs Luxemburgo | Pronóstico y cuotas 17.11.2025**: [Link](https://www.transfermarkt.es/apuestas/pronosticos-deportivos/irlanda-del-norte-vs-luxemburgo-pronostico-apuestas-17-11-2025/)
+- **Irlanda N. vs Luxemburgo por la fase de grupos de Eliminatorias UEFA EN VIVO. Seguilo minuto a minuto por la web de TN.**: [Link](https://tn.com.ar/deportes/futbol/2025/11/17/irlanda-n-vs-luxemburgo-en-vivo-por-la-fase-de-grupos-de-las-eliminatorias-uefa-hora-donde-ver-y-formaciones/)
+- **NI ‘tiene que tener cuidado’ con las prohibiciones en los play-offs: O’Neill**: [Link](https://masmma.com.mx/futbol/ni-tiene-que-tener-cuidado-con-las-prohibiciones-en-los-play-offs-oneill/122346/)
+
+
 ### mavericks - trail blazers (N/A, 16/11/2025 23:31 Lima)
 
 - **Final Injury Report for Trail Blazers-Mavericks, Will Anthony Davis, Cooper Flagg Play?**: [Link](https://athlonsports.com/nba/dallas-mavericks/final-injury-report-for-trail-blazers-mavericks-will-anthony-davis-cooper-flagg-play)
@@ -1016,19 +1030,5 @@ Sin noticias relacionadas disponibles.
 - **Bad Bunny in box seat as Latin Grammys hit Vegas**: [Link](https://www.france24.com/en/live-news/20251113-bad-bunny-in-box-seat-as-latin-grammys-hit-vegas)
 - **These nominees prove Latin music is taking over the 2026 Grammys.**: [Link](https://uproxx.com/music/2026-grammy-latin-nominees-future-is-bright/)
 - **WATCH: Chuwi Joins Bad Bunny for ‘WELTITA’ Performance at 2025 Latin Grammys**: [Link](https://remezcla.com/music/watch-chuwi-joins-bad-bunny-for-weltita-performance-at-2025-latin-grammys/)
-
-
-### llaneros - envigado (N/A, 13/11/2025 20:56 Lima)
-
-- **Pronóstico Llaneros FC Envigado FC - Liga BetPlay 13/11/25**: [Link](https://www.sportytrader.com/es/pronosticos/llaneros-fc-envigado-fc-304769/)
-- **Llaneros vs Envigado, en vivo el partido de la Liga BetPlay 2025-II**: [Link](https://www.clarosports.com/colombia/liga-bet-play/llaneros-vs-envigado-en-vivo-el-partido-de-la-liga-betplay-2025-ii/)
-- **Llaneros FC vs. Envigado, EN VIVO: dónde ver por TV y ONLINE**: [Link](https://www.tycsports.com/colombia/futbol-de-colombia/llaneros-fc-vs-envigado-en-vivo-donde-ver-por-tv-y-online-id698487.html)
-
-
-### cavaliers - raptors (N/A, 13/11/2025 20:56 Lima)
-
-- **Steve Makinen’s NBA Betting Trends and Best Bets for Thursday, November 13**: [Link](https://vsin.com/nba/steve-makinens-nba-betting-trends-and-best-bets-for-thursday-november-13/)
-- **How to watch Raptors vs. Cavaliers: TV channel and streaming options for November 13**: [Link](https://www.nytimes.com/athletic/6804548/2025/11/13/raptors-vs-cavaliers-stream-how-to-watch-nov-13/)
-- **bet365 bonus code NYPBET: Bet $5, get $200 in bonus bets for Raptors vs. Cavaliers**: [Link](https://nypost.com/2025/11/13/sports/bet365-bonus-code-nypbet-bet-5-get-200-in-bonus-bets-for-raptors-vs-cavaliers/)
 
 
