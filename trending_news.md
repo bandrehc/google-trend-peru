@@ -1,3 +1,17 @@
+### mavericks - trail blazers (N/A, 16/11/2025 23:31 Lima)
+
+- **Final Injury Report for Trail Blazers-Mavericks, Will Anthony Davis, Cooper Flagg Play?**: [Link](https://athlonsports.com/nba/dallas-mavericks/final-injury-report-for-trail-blazers-mavericks-will-anthony-davis-cooper-flagg-play)
+- **Trail Blazers vs. Mavericks Prediction, Odds and Best NBA Prop Bets for Sunday, Nov. 16**: [Link](https://www.si.com/betting/trail-blazers-vs-mavericks-prediction-odds-best-nba-prop-bets-for-sunday-nov-16)
+- **Trail Blazers suffer another heartbreaker, lose to Mavericks in overtime: Rapid Reaction**: [Link](https://www.oregonlive.com/blazers/2025/11/trail-blazers-suffer-another-heartbreaker-lose-to-mavericks-in-overtime-rapid-reaction.html)
+
+
+### yolanda medina (N/A, 16/11/2025 23:31 Lima)
+
+- **“El valor de la verdad”: Yolanda Medina contará los secretos de su vida en el sillón rojo**: [Link](https://elcomercio.pe/tvmas/farandula/el-valor-de-la-verdad-yolanda-medina-contara-los-secretos-de-su-vida-en-el-sillon-rojo-ultimas-noticia/)
+- **Yolanda Medina en ‘El valor de la verdad’ EN VIVO: ¿Qué preguntas responderá y dónde ver el estreno?**: [Link](https://trome.com/espectaculos/tv/yolanda-medina-en-el-valor-de-la-verdad-en-vivo-que-preguntas-respondera-y-en-que-plataformas-ver-el-estreno-de-evdlv-marisol-alma-bella-video-farandula-noticia/)
+- **Yolanda Medina niega haberse metido en la relación de Marisol y George Núñez: "Las amantes no van de la mano"**: [Link](https://larepublica.pe/espectaculos/2025/11/14/yolanda-medina-niega-haberse-metido-en-la-relacion-de-marisol-y-george-nunez-las-amantes-no-van-de-la-mano-295134)
+
+
 ### resultados beca 18 2025 (N/A, 16/11/2025 20:57 Lima)
 
 - **Beca 18 2026: ¿Cuándo saldrán los resultados del examen de preseleccionados?**: [Link](https://www.infobae.com/peru/2025/11/16/beca-18-2026-cuando-saldran-los-resultados-del-examen-de-preseleccionados/)
@@ -1016,19 +1030,5 @@ Sin noticias relacionadas disponibles.
 - **Steve Makinen’s NBA Betting Trends and Best Bets for Thursday, November 13**: [Link](https://vsin.com/nba/steve-makinens-nba-betting-trends-and-best-bets-for-thursday-november-13/)
 - **How to watch Raptors vs. Cavaliers: TV channel and streaming options for November 13**: [Link](https://www.nytimes.com/athletic/6804548/2025/11/13/raptors-vs-cavaliers-stream-how-to-watch-nov-13/)
 - **bet365 bonus code NYPBET: Bet $5, get $200 in bonus bets for Raptors vs. Cavaliers**: [Link](https://nypost.com/2025/11/13/sports/bet365-bonus-code-nypbet-bet-5-get-200-in-bonus-bets-for-raptors-vs-cavaliers/)
-
-
-### santa fe - alianza (N/A, 13/11/2025 20:56 Lima)
-
-- **Qué canal pasa Santa Fe vs Alianza hoy: dónde ver el partido gratis y en vivo de la Liga BetPlay**: [Link](https://www.365scores.com/es/news/canal-santa-fe-vs-alianza-en-vivo-liga/)
-- **Pronóstico Santa Fe Alianza FC Valledupar - Liga BetPlay 13/11/25**: [Link](https://www.sportytrader.com/es/pronosticos/santa-fe-alianza-fc-valledupar-304741/)
-- **Carlos Antonio Vélez salió en defensa de Santa Fe tras acusaciones del presidente de Alianza F.C: “Ensuciar a otros”**: [Link](https://www.infobae.com/colombia/deportes/2025/11/12/carlos-antonio-velez-salio-en-defensa-de-santa-fe-tras-acusaciones-del-presidente-de-alianza-fc-ensuciar-a-otros/)
-
-
-### pasto - bucaramanga (N/A, 13/11/2025 20:56 Lima)
-
-- **Pronóstico Deportivo Pasto Atlético Bucaramanga - Liga BetPlay 13/11/25**: [Link](https://www.sportytrader.com/es/pronosticos/deportivo-pasto-atletico-bucaramanga-304743/)
-- **Nuevo escándalo en el fútbol colombiano por crisis económica: otro club entraría en huelga previo a la fecha 20 de Liga BetPlay**: [Link](https://www.infobae.com/colombia/deportes/2025/11/12/nuevo-escandalo-en-el-futbol-colombiano-por-crisis-economica-otro-club-entraria-en-huelga-previo-a-la-fecha-20-de-liga-betplay/)
-- **Los jugadores de un club se habrían negado a practicar porque les deberían un mes de sueldo, lo que afectaría seriamente la pelea por el llamado “punto invisible” para los cuadrangulares**: [Link](https://www.facebook.com/infobaecolombia/photos/los-jugadores-de-un-club-se-habr%C3%ADan-negado-a-practicar-porque-les-deber%C3%ADan-un-me/1276641504478609/)
 
 
