@@ -1,3 +1,71 @@
+### cavaliers - bucks (N/A, 17/11/2025 20:56 Lima)
+
+- **3 Things to watch for in Cavs vs Bucks**: [Link](https://www.fearthesword.com/cavs-game-previews/40439/3-things-to-watch-for-in-cavs-vs-bucks)
+- **NBA Matchups: November 17**: [Link](https://establishtherun.com/nba-matchups-november-17-3/)
+- **Can the Bucks keep it close against the Cavaliers?**: [Link](https://www.nbcsports.com/watch/nba/can-the-milwaukee-bucks-keep-it-close-against-the-cleveland-cavaliers)
+
+
+### abel hernández (N/A, 17/11/2025 20:56 Lima)
+
+- **¿Qué dijo el presidente de Peñarol del posible regreso de Abel Hernández?**: [Link](https://www.espn.com.ar/futbol/uruguay/nota/_/id/15969888/penarol-que-dijo-el-presidente-del-posible-regreso-de-abel-hernandez)
+- **Universitario mostró interés en '9' de Liverpool de Uruguay**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/universitario-mostro-interes-delantero-liverpool-uruguay-n451724)
+- **Se olvidan de Diego Churín: El 9 uruguayo que llegaría a Universitario el 2026**: [Link](https://bolavip.com/pe/universitario/se-olvidan-de-diego-churin-el-9-uruguayo-que-llegaria-a-universitario-el-2026)
+
+
+### gimnasia vs (N/A, 17/11/2025 20:56 Lima)
+
+- **Platense vs Gimnasia La Plata Prediction & Stats**: [Link](https://www.betshoot.com/football/19362326-Platense-vs-Gimnasia-La-Plata-prediction/)
+
+
+### emelec - ldu quito (N/A, 17/11/2025 20:56 Lima)
+
+- **¡Le pegó en primera! Golazo de Alfonso Barco para el 1-0 de Emelec vs. Liga de Quito | VIDEO**: [Link](https://elcomercio.pe/deporte-total/peruanos-en-el-mundo/gol-de-alfonso-barco-hoy-con-emelec-vs-liga-de-quito-en-partido-por-copa-ecuador-video-noticia/)
+- **Gol madrugador de Alfonso Barco para 1-0 en Emelec vs LDU Quito por semifinal ida de la Copa Ecuador 2025**: [Link](https://www.infobae.com/peru/deportes/2025/11/18/gol-alfonso-barco-emelec-vs-ldu-quito-semifinal-ida-copa-ecuador-2025-video-hoy/)
+- **EN VIVO | Emelec vs Liga de Quito HOY por semifinal de Copa Ecuador vía DIRECTV ONLINE GRATIS**: [Link](https://libero.pe/futbol-internacional/2025/11/16/emelec-vs-liga-de-quito-en-vivo-gratis-semifinal-ida-de-copa-ecuador-via-directv-sports-lbev-228048)
+
+
+### delia espinoza (N/A, 17/11/2025 20:56 Lima)
+
+- **Delia Espinoza llegó al Ministerio Público y expone desacato de la Junta Nacional de Justicia**: [Link](https://www.infobae.com/peru/2025/11/17/delia-espinoza-llego-al-ministerio-publico-y-expone-desacato-de-la-junta-nacional-de-justicia/)
+- **Delia Espinoza llegó a la Corte Superior de Justicia para agilizar su reposición: "El juez nos ha dicho que va a resolver con prontitud"**: [Link](https://rpp.pe/politica/judiciales/delia-espinoza-llego-a-la-corte-superior-de-justicia-para-agilizar-su-reposicion-el-juez-nos-ha-dicho-que-va-a-resolver-con-prontitud-noticia-1664119)
+- **Delia Espinoza llega al Ministerio Público y acusa a la JNJ de desacato**: [Link](https://caretas.pe/politica/delia-espinoza-llega-al-ministerio-publico-y-acusa-a-la-jnj-de-desacato/)
+
+
+### platense - gimnasia (N/A, 17/11/2025 20:56 Lima)
+
+- **Gimnasia goleó a Platense y jugará en octavos de final ante Unión**: [Link](https://www.espn.com.ar/futbol/argentina/nota/_/id/15971451/en-vivo-platense-vs-gimnasia-juegan-donde-ver-partido-formaciones-hora)
+- **Ganar para seguir con vida**: [Link](https://www.vavel.com/ar/futbol-argentino/2025/11/17/gimnasia-y-esgrima-la-plata/1241637-ganar-para-seguir-con-vida.html)
+- **Panaro, de cabeza a octavos: un gol clave del atacante del Lobo que ilusiona a todo Gimnasia**: [Link](https://www.infocielo.com/deportes/panaro-de-cabeza-a-octavos-un-gol-clave-del-atacante-del-lobo-que-ilusiona-a-todo-gimnasia)
+
+
+### japón (N/A, 17/11/2025 20:56 Lima)
+
+- **China amenaza con represalias económicas a Japón por declaraciones de Sanae Takaichi sobre Taiwán**: [Link](https://www.infobae.com/america/mundo/2025/11/17/china-amenaza-con-represalias-economicas-a-japon-por-declaraciones-de-sanae-takaichi-sobre-taiwan/)
+- **Una frase de Japón ha puesto en vilo la paz del Pacífico. La respuesta de China ha sido lanzar sus...**: [Link](https://www.xataka.com/magnet/japon-ha-advertido-a-china-taiwan-china-se-ha-tomado-serio-que-han-rodeado-unas-islas-japon)
+- **Tensión en Asia: China realiza maniobras y endurece el tono con Japón en medio de la polémica por Taiwán**: [Link](https://rpp.pe/mundo/asia/tension-en-asia-china-realiza-maniobras-y-endurece-el-tono-con-japon-en-medio-de-la-polemica-por-taiwan-noticia-1664090)
+
+
+### precio del dólar perú (N/A, 17/11/2025 20:56 Lima)
+
+- **Precio del dólar cayó más: Así cerró el tipo de cambio hoy 17 de noviembre en Perú**: [Link](https://www.infobae.com/peru/2025/11/17/dolar-cotizacion-de-apertura-hoy-17-de-noviembre-en-peru/)
+- **¿Cuál es la cotización del dólar hoy lunes 17 de noviembre del 2025?**: [Link](https://andina.pe/agencia/noticia-cual-es-cotizacion-del-dolar-hoy-lunes-17-noviembre-del-2025-1052231.aspx)
+- **Dólar en Perú: a cuánto se cotizó el cierre de hoy, 17 de noviembre de 2025**: [Link](https://latinanoticias.pe/te-ayudo/como-cerro-el-dolar-hoy-en-peru-a-cuanto-se-cotizo-el-cierre-del-dolar-para-este-17-de-noviembre-lima-sunat-sbs-bcrp-adp-noticia_20251117/)
+
+
+### elige tu local de votacion (N/A, 17/11/2025 20:56 Lima)
+
+- **Elecciones 2026: ¡Atención! Desde el 23 de noviembre se podrán escoger local de votación**: [Link](https://andina.pe/agencia/noticia-elecciones-2026-atencion-desde-23-noviembre-se-podran-escoger-local-votacion-1050844.aspx)
+- **ONPE habilitará desde el 23 de noviembre la plataforma para elegir local de votación rumbo al 2026**: [Link](https://caretas.pe/nacional/onpe-habilitara-desde-el-23-de-noviembre-la-plataforma-para-elegir-local-de-votacion-rumbo-al-2026/)
+- **¡Elige tu local de votación!: Conoce CUÁNDO se permitirá el CAMBIO de sede para las Elecciones 2026**: [Link](https://www.exitosanoticias.pe/actualidad/elige-tu-local-votacion-conoce-cuando-permitira-cambio-sede-elecciones-2026-n162374)
+
+
+### barracas central - huracán (N/A, 17/11/2025 20:56 Lima)
+
+- **“Vamos a hablar y te voy a romper todo”: la respuesta del árbitro Andrés Gariano a Kudelka en el escandaloso final de Barracas-Huracán**: [Link](https://www.infobae.com/deportes/2025/11/17/vamos-a-hablar-y-te-voy-a-romper-todo-la-respuesta-del-arbitro-andres-gariano-a-kudelka-en-el-escandaloso-final-de-barracas-huracan/)
+- **La indignación de Huracán tras el partido con Barracas: "Lo que pasó en la cancha no es fútbol"**: [Link](https://www.espn.com.ar/futbol/argentina/nota/_/id/15971713/indignacion-huracan-vs-barracas-lo-que-paso-en-la-cancha-no-es-futbol)
+- **La amenaza de Gariano a Kudelka: "Te voy a romper todo"**: [Link](https://espndeportes.espn.com/futbol/argentina/nota/_/id/15971857/video-amenaza-arbitro-gariano-kudelka-huracan-barracas-te-voy-a-romper-todo)
+
+
 ### nick woltemade (N/A, 17/11/2025 15:28 Lima)
 
 - **Nick Woltemade: Deutschlands Nummer eins im Sturm in WM-Quali**: [Link](https://www.faz.net/aktuell/sport/fussball-wm/deutsches-team/nick-woltemade-deutschlands-nummer-eins-im-sturm-in-wm-quali-accg-110783403.html)
@@ -959,75 +1027,5 @@ Sin noticias relacionadas disponibles.
 
 - **Montenegro vs Croacia pronostico y comparación de cuotas 17.11.2025**: [Link](https://www.livetipsportal.com/es/pronosticos-apuestas-deportivas/montenegro-vs-croacia-clas-mundial-europa-10799531/)
 - **Gibraltar vs Montenegro: cómo verlo, probabilidades, vista previa de la WCQ**: [Link](https://kancha.pe/noticias-urgente/gibraltar-vs-montenegro-como-verlo-probabilidades-vista-previa-de-la-wcq/81625/)
-
-
-### marruecos - mozambique (N/A, 14/11/2025 15:27 Lima)
-
-- **Marruecos - Mozambique, en vivo: amistoso internacional, hoy en directo**: [Link](https://as.com/futbol/internacional/marruecos-mozambique-en-vivo-amistoso-internacional-hoy-en-directo-f202511-d/)
-- **Tarifa se Prepara para Inaugurar la Joyas Deportiva del Norte con Inéditas Medidas Técnicas y de Seguridad**: [Link](https://tanja24.com/es/2025/11/14/tarifa-se-prepara-para-inaugurar-la-joyas-deportiva-del-norte-con-ineditas-medidas-tecnicas-y-de-seguridad/)
-- **Acceso Estadio, la información en tiempo real sobre la entrada al Gran Estadio de Tánger**: [Link](https://ar.yabiladi.com/articles/details/181183/acceso-estadio-informacion-tiempo-real.html)
-
-
-### luxemburgo - alemania (N/A, 14/11/2025 15:27 Lima)
-
-- **Luxemburgo - Alemania en directo: clasificación Mundial 2026 hoy, en vivo**: [Link](https://as.com/futbol/internacional/luxemburgo-alemania-en-directo-clasificacion-mundial-2026-hoy-en-vivo-f202511-d/)
-- **Luxemburgo vs Alemania: Apuestas, Pronóstico y Cuotas**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/internacional/2025/noviembre/pronostico-luxemburgo-vs-alemania-14-11-25)
-- **Carrusel Clasificación Mundial, en directo: Alemania, Países Bajos, Polonia y Croacia, hoy en vivo**: [Link](https://www.sport.es/es/noticias/futbol-internacional/carrusel-clasificacion-mundial-directo-alemania-123723491)
-
-
-### polonia - países bajos (N/A, 14/11/2025 15:27 Lima)
-
-- **Polonia - Holanda, en directo: Clasificación al Mundial 2026, hoy en vivo**: [Link](https://as.com/futbol/mundial/polonia-holanda-en-directo-clasificacion-al-mundial-2026-hoy-en-vivo-f202511-d/)
-- **Apuestas y Pronóstico del Polonia vs Países Bajos 14/11/25**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/internacional/2025/noviembre/pronostico-polonia-vs-paises-bajos-14-11-25)
-- **¿Juega Robert Lewandowski? Las alineaciones de Polonia vs. Países Bajos por las Eliminatorias UEFA**: [Link](https://bolavip.com/mx/eliminatorias-uefa/juega-robert-lewandowski-las-alineaciones-de-polonia-vs-paises-bajos-por-las-eliminatorias-uefa)
-
-
-### malta (N/A, 14/11/2025 15:27 Lima)
-
-- **Maritime World: A Made-in-Malta platform welcoming the global maritime industry**: [Link](https://timesofmalta.com/article/maritime-world-madeinmalta-platform-global-maritime-industry-a2.1119511)
-- **Preview:Finland vs Malta - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/malta/world-cup/preview/finland-vs-malta-prediction-team-news-lineups_585615.html)
-- **Malta's only shot on target beats Finland in World Cup qualifying**: [Link](https://www.record-eagle.com/ap/sports/maltas-only-shot-on-target-beats-finland-in-world-cup-qualifying/article_be0ef1bd-0ffe-5f33-af62-3ef5601ef62f.html)
-
-
-### angola (N/A, 14/11/2025 11:31 Lima)
-
-- **"Não se justifica usar dinheiro público para um jogo"**: [Link](https://www.dw.com/pt-002/angola-n%C3%A3o-se-justifica-usar-dinheiro-p%C3%BAblico-para-um-jogo-de-futebol/a-74729984)
-- **GPL decreta tolerância de ponto a partir das 12:00 de sexta-feira**: [Link](https://novojornal.co.ao/politica/detalhe/gpl-decreta-tolerancia-de-ponto-a-partir-das-1200-de-sexta-feira--68194.html)
-- **Preços exorbitantes dos ingressos para a seleção argentina na África.**: [Link](https://www.vietnam.vn/pt/gia-ve-gay-soc-cua-tuyen-argentina-tai-chau-phi)
-
-
-### egipto vs (N/A, 14/11/2025 11:31 Lima)
-
-- **Uzbekistán vs Egipto EN VIVO en Amistoso Internacional (0-0)**: [Link](https://www.vavel.com/mx/futbol-internacional/2025/11/14/1241275-uzbekistan-vs-egipto-en-vivo-amistoso-internacional.html)
-- **Egipto vs. Uzbekistán, por la Al Ain Internacional Cu´p2025: todo lo que tenés que saber**: [Link](https://www.directvsports.com/futbol/egipto-vs.-uzbekistan-por-la-al-ain-internacional-cup2025-todo-lo-que-tenes-que-saber-20251114-0014.html)
-- **Uzbekistán vs Egipto: pronósticos, cuotas, y datos para apostar**: [Link](https://www.apwin.com/es/pronosticos/uzbekistan-vs-egypt-pronostico-amistosos-internacionales-14-11-2025/)
-
-
-### mundial sub 17 (N/A, 14/11/2025 11:31 Lima)
-
-- **Argentina cae 2-1 con México por el pase a los octavos de final del Mundial Sub 17**: [Link](https://www.infobae.com/deportes/2025/11/14/argentina-se-enfrentara-a-mexico-por-el-pase-a-los-octavos-de-final-del-mundial-sub-17-hora-tv-y-formaciones/)
-- **Argentina vs. México, EN VIVO por el Mundial Sub 17: cómo va y por dónde ver el partido**: [Link](https://www.ole.com.ar/seleccion/seleccion-argentina-vs-mexico-partido-16avos-mundial-sub-17-horario-tv_0_9yn2RyD4Az.html)
-- **Carlos Cariño: "El torneo nos da una oportunidad más"**: [Link](https://espndeportes.espn.com/futbol/selecciones/nota/_/id/15956076/seleccion-mexicana-mundial-sub-17-carlos-carino-oportunidad-argentina)
-
-
-### xabier azkargorta (N/A, 14/11/2025 11:31 Lima)
-
-- **Muere Xabier Azkargorta, un pionero que hizo historia guiando a Bolivia a su único Mundial**: [Link](https://www.marca.com/futbol/2025/11/14/muere-xabier-azkargorta-pionero-hizo-historia-guiando-bolivia-unico-mundial.html)
-- **Comunicado Oficial: fallecimiento de Xabier Azkargorta**: [Link](https://www.realmadrid.com/es-ES/noticias/club/comunicados/comunicado-oficial-fallecimiento-de-xabier-azkargorta-14-11-2025)
-- **Fallece en Bolivia el legendario entrenador Xabier Azkargorta**: [Link](https://www.lavanguardia.com/deportes/futbol/20251114/11264689/fallece-legendario-entrenador-xabier-azkargorta.html)
-
-
-### angola - argentina (N/A, 14/11/2025 11:31 Lima)
-
-- **Angola - Argentina, en vivo: amistoso internacional, en directo hoy**: [Link](https://as.com/futbol/internacional/angola-argentina-en-vivo-amistoso-internacional-en-directo-hoy-f202511-d/)
-- **Con Messi, la selección argentina juega su último partido del año ante Angola en África**: [Link](https://www.infobae.com/deportes/2025/11/14/con-messi-la-seleccion-argentina-jugara-su-ultimo-partido-del-ano-ante-angola-en-africa-todo-lo-que-hay-que-saber/)
-- **Scaloni confirmó la presencia del capitán argentino vs. Angola: "Messi va a jugar"**: [Link](https://www.espn.com.ar/futbol/mundial/nota/_/id/15955497/scaloni-titular-lionel-messi-argentina-vs-angola-fecha-fifa-2025)
-
-
-### jannik sinner (N/A, 14/11/2025 11:31 Lima)
-
-- **Sinner vince con Shelton, domani semifinale con De Minaur alle 14:30**: [Link](https://www.ilsole24ore.com/art/sinner-vince-shelton-domani-semifinale-de-minaur-1430-AHux7KkD)
-- **Atp Finals, Bertolucci: "Sinner ha la marcia in più nei momenti chiave". VIDEO**: [Link](https://sport.sky.it/tennis/video/2025/11/14/sinner-atp-finals-bertolucci-commento-video-1051880)
-- **Sinner fa tre su tre e resta in corsa per il bonus da 5 milioni**: [Link](https://www.eurosport.it/tennis/atp-finals/2025/sinner-batte-shelton-e-fa-tre-su-tre-nel-gruppo-borg-jannik-resta-in-corsa-per-lassegno-da-5-milioni-di-dollari_sto23241065/story.shtml)
 
 
