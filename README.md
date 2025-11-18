@@ -1,3 +1,52 @@
+### cotizacion del dolar hoy (N/A, 18/11/2025 03:33 Lima)
+
+- **Precio del dólar cayó más: Así cerró el tipo de cambio hoy 17 de noviembre en Perú**: [Link](https://www.infobae.com/peru/2025/11/17/dolar-cotizacion-de-apertura-hoy-17-de-noviembre-en-peru/)
+- **¿Cuál es la cotización del dólar hoy lunes 17 de noviembre del 2025?**: [Link](https://andina.pe/agencia/noticia-cual-es-cotizacion-del-dolar-hoy-lunes-17-noviembre-del-2025-1052231.aspx)
+- **Dólar en Perú: a cuánto se cotizó el cierre de hoy, 17 de noviembre de 2025**: [Link](https://latinanoticias.pe/te-ayudo/como-cerro-el-dolar-hoy-en-peru-a-cuanto-se-cotizo-el-cierre-del-dolar-para-este-17-de-noviembre-lima-sunat-sbs-bcrp-adp-noticia_20251117/)
+
+
+### bulgaria vs (N/A, 18/11/2025 03:33 Lima)
+
+- **Preview:Bulgaria vs Georgia - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/bulgaria/world-cup-2026/preview/bulgaria-vs-georgia-prediction-team-news-lineups_585835.html)
+- **Comments and predictions for Bulgaria vs Georgia: A painful misstep**: [Link](https://baonghean.vn/en/nhan-dinh-du-doan-bulgaria-vs-georgia-buoc-hut-dau-don-10311717.html)
+- **Bulgaria vs Georgia Preview & Prediction | 2026 FIFA World Cup Qualifying (UEFA)**: [Link](https://www.thestatszone.com/bulgaria-vs-georgia-preview-prediction-2026-fifa-world-cup-qualifying-uefa-158891)
+
+
+### austria vs (N/A, 18/11/2025 03:33 Lima)
+
+- **How to watch today's Austria vs Bosnia-Herzegovina World Cup qualification game: Live stream, TV channel, and start time**: [Link](https://www.goal.com/en-us/news/watch-austria-vs-bosnia-herzegovina-world-cup-qualification-live-stream-tv/blt18d412fa361d1aa3)
+- **BiH Football Players traveled to Vienna**: [Link](https://sarajevotimes.com/bih-football-players-traveled-to-vienna/)
+- **Austria vs Bosnia-Herzegovina Tips, Predictions and Bet Builder**: [Link](https://news.bet365.com/en-gb/article/football-austria-bosnia-herzegovina-tips-and-predictions/2025111709252291829)
+
+
+### escocia vs dinamarca (N/A, 18/11/2025 03:33 Lima)
+
+- **Dinamarca y Escocia juegan una final por la clasificación al Mundial 2026**: [Link](https://www.espn.com.ar/futbol/mundial/nota/_/id/15952154/escocia-vs-dinamarca-eliminatorias-uefa-equipo-fecha-hora-y-tv-en-vivo)
+- **¿La suerte, las dudas danesas y el ruido de Hampden favorecerán a Escocia?**: [Link](https://masmma.com.mx/futbol/la-suerte-las-dudas-danesas-y-el-ruido-de-hampden-favoreceran-a-escocia/122954/)
+- **Dinamarca sufre bajas por enfermedad antes del partido de clasificación al Mundial contra Escocia**: [Link](https://www.msn.com/es-us/noticias/other/dinamarca-sufre-bajas-por-enfermedad-antes-del-partido-de-clasificaci%C3%B3n-al-mundial-contra-escocia/ar-AA1QxQav)
+
+
+### japon vs bolivia (N/A, 18/11/2025 03:33 Lima)
+
+- **Amistoso internacional: Japón se enfrenta a Bolivia en un partido amistoso**: [Link](https://rpp.pe/futbol/ligas-internacionales/amistoso-internacional-japon-se-enfrenta-a-bolivia-en-un-partido-amistoso-noticia-1664070)
+- **Dónde ver Bolivia vs Japón HOY: canal tv online del amistoso por fecha FIFA 2025**: [Link](https://www.infobae.com/peru/deportes/2025/11/18/donde-ver-bolivia-vs-japon-en-vivo-hoy-canal-tv-online-amistoso-fecha-fifa-2025/)
+- **Bolivia vs Japón: horarios y canales para ver el partido amistoso FIFA**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/bolivia-vs-japon-en-vivo-gratis-hoy-via-futbol-libre-tv-futbol-canal-horarios-canales-tv-y-donde-ver-partido-amistoso-video-noticia/)
+
+
+### mexico vs paraguay (N/A, 18/11/2025 03:33 Lima)
+
+- **México vs. Paraguay: Venta de boletos en San Antonio va lenta**: [Link](https://www.espn.com.ar/futbol/selecciones/nota/_/id/15972465/fecha-fifa-amistoso-mexico-vs-paraguay-venta-boletos-san-antonio-lenta)
+- **Amistoso internacional: México y Paraguay se miden en un partido amistoso**: [Link](https://rpp.pe/futbol/ligas-internacionales/amistoso-internacional-mexico-y-paraguay-se-miden-en-un-partido-amistoso-noticia-1664162)
+- **México tiene tareas dentro y fuera de la cancha contra Paraguay**: [Link](https://espndeportes.espn.com/futbol/selecciones/nota/_/id/15972388/fecha-fifa-amistoso-mexico-tareas-dentro-fuera-cancha-vs-paraguay)
+
+
+### timberwolves - mavericks (N/A, 18/11/2025 03:33 Lima)
+
+- **Copper Flagg, Mavs Disappoint NBA Fans in Blowout Loss to Anthony Edwards, Wolves**: [Link](https://bleacherreport.com/articles/25298012-copper-flagg-mavs-disappoint-nba-fans-blowout-loss-anthony-edwards-wolves)
+- **Mavericks Highlights at Minnesota Timberwolves | November 17, 2025**: [Link](https://bvmsports.com/2025/11/17/mavericks-highlights-at-minnesota-timberwolves-november-17-2025/)
+- **Timberwolves' Naz Reid: Double-doubles in blowout win**: [Link](https://www.cbssports.com/fantasy/basketball/news/timberwolves-naz-reid-double-doubles-in-blowout-win/)
+
+
 ### congo (N/A, 17/11/2025 23:29 Lima)
 
 - **RD Congo no para de sorprender: venció en penales a Nigeria y jugará el repechaje internacional para el Mundial 2026 [VIDEO]**: [Link](https://rpp.pe/futbol/eliminatorias/nigeria-vs-congo-en-vivo-a-que-hora-juegan-y-donde-ver-final-playoffs-eliminatorias-caf-por-repechaje-al-mundial-2026-link-gratis-partidos-de-hoy-noticia-1664007)
@@ -981,54 +1030,5 @@ Sin noticias relacionadas disponibles.
 - **Where Winds Meet - Official Launch Trailer**: [Link](https://www.ign.com/videos/where-winds-meet-official-launch-trailer)
 - **Where Winds Meet release time and countdown to the launch of the Wuxia open-world adventure**: [Link](https://www.allout-gaming.com/news/winds-meet-release-time-countdown-1502327)
 - **Where Winds Meet: dive deeper into gameplay and story details**: [Link](https://blog.playstation.com/2025/11/07/where-winds-meet-dive-deeper-into-gameplay-and-story-details/)
-
-
-### cotizacion del dolar hoy (N/A, 14/11/2025 20:52 Lima)
-
-- **Precio del dólar con alza: Así cerró el tipo de cambio hoy 13 de noviembre en Perú**: [Link](https://www.infobae.com/peru/2025/11/12/peru-cotizacion-de-apertura-del-dolar-hoy-12-de-noviembre-de-usd-a-pen/)
-- **¿Cuál es la cotización del dólar hoy viernes 14 de noviembre del 2025?**: [Link](https://andina.pe/agencia/noticia-cual-es-cotizacion-del-dolar-hoy-viernes-14-noviembre-del-2025-1051958.aspx)
-- **Tipo de cambio en Perú: noviembre y diciembre entre estabilidad y cautela global**: [Link](https://gestion.pe/opinion/tipo-de-cambio-en-peru-noviembre-y-diciembre-entre-estabilidad-y-cautela-global-noticia/)
-
-
-### sorloth (N/A, 14/11/2025 20:52 Lima)
-
-- **Internationals: Norway all but qualified**: [Link](https://www.fulhamfc.com/news/2025/november/14/internationals-norway-all-but-qualified/)
-- **Erling Haaland in Party Mode: Norway’s Locker Room Erupts on the Road to the World Cup**: [Link](https://www.beinsports.com/en-us/soccer/articles/erling-haaland-in-party-mode-norway-s-locker-room-erupts-on-the-road-to-the-world-cup-2025-11-14)
-- **Solbakken admits 25-year drought weighed heavily on Norway as World Cup looms**: [Link](https://www.fotmob.com/news/5yfz2d1qu3dj128668zeq756l-solbakken-admits-25-year-drought-weighed-heavily-norway-world-cup-looms)
-
-
-### lanús - atlético tucumán (N/A, 14/11/2025 20:52 Lima)
-
-- **Salvio, de la polémica por el gol anulado al tanto clave para el triunfo**: [Link](https://www.espn.com.ar/futbol/argentina/nota/_/id/15959722/video-eduardo-salvio-lanus-atletico-tucuman-gol)
-- **Lanús venció 3-1 a Atlético Tucumán por el Torneo Clausura y llega afilado a la final de la Copa Sudamericana**: [Link](https://www.infobae.com/deportes/2025/11/14/lanus-y-atletico-tucuman-abriran-la-ultima-jornada-del-torneo-clausura-hora-tv-y-posibles-formaciones/)
-- **EN VIVO: Atlético Tucumán llega al empate momentáneo 1 a 1 frente a Lanús**: [Link](https://www.directvsports.com/futbol/en-vivo-atletico-tucuman-llega-al-empate-momentaneo-1-a-1-frente-a-lanus-20251112-0038.html)
-
-
-### félix auger-aliassime (N/A, 14/11/2025 20:52 Lima)
-
-- **Alexander Zverev, battu à Turin : « Une saison incroyablement insatisfaisante »**: [Link](https://www.universtennis.com/2025/11/15/alexander-zverev-elimine-a-turin-une-saison-incroyablement-insatisfaisante/)
-- **Masters ATP : Auger-Aliassime écœure Shelton**: [Link](https://lecourrier.vn/masters-atp-auger-aliassime-ec%C5%93ure-shelton/1295156.html)
-- **Alexander Zverev - Félix Auger-Aliassime en direct - ATP Finals : Tennis Scores & Résultats - 14/11/2025**: [Link](https://www.eurosport.fr/tennis/atp-finals/2025/live-alexander-zverev-felix-auger-aliassime_mtc1649652/live-commentary.shtml)
-
-
-### holanda (N/A, 14/11/2025 20:52 Lima)
-
-- **Zidansek y Juvan ayudan a Eslovenia a superar a Holanda**: [Link](https://www.ucvradio.pe/deporte/zidansek-y-juvan-ayudan-a-eslovenia-a-superar-a-holanda/49327/)
-- **¡EN VIVO! Países Bajos busca dar el último paso hacia el Mundial 2026 ante Polonia**: [Link](https://www.espn.com.pe/futbol/mundial/nota/_/id/15946993/polonia-vs-paises-bajos-eliminatorias-uefa-equipo-fecha-hora-y-tv-en-vivo)
-- **¿Se clasificará Holanda para el Mundial 2026? Últimos resultados de la Oranje, el torneo de fútbol de la FIFA superó el récord**: [Link](https://www.ucvradio.pe/mas-actualidad/se-clasificara-holanda-para-el-mundial-2026-ultimos-resultados-de-la-oranje-el-torneo-de-futbol-de-la-fifa-supero-el-record/49495/)
-
-
-### marcha 14 de noviembre (N/A, 14/11/2025 15:27 Lima)
-
-- **Minedu suspende clases presenciales este viernes 14 de noviembre en Lima y Callao por paro de transportistas**: [Link](https://www.infobae.com/peru/2025/11/13/minedu-dispone-clases-virtuales-por-paro-de-transportistas-en-lima-y-callao-este-viernes-14-de-noviembre/)
-- **Transportistas y jóvenes de la Generación Z marcharán este viernes 14 de noviembre para exigir la derogatoria de las “leyes procrimen”**: [Link](https://rpp.pe/lima/actualidad/transportistas-y-jovenes-de-la-generacion-z-marcharan-este-viernes-14-de-noviembre-para-exigir-la-derogatoria-de-las-leyes-procrimen-noticia-1663734)
-- **Escolares tendrán clases virtuales este viernes 14 ante paro de sector de transportistas**: [Link](https://elperuano.pe/noticia/282987-escolares-tendran-clases-virtuales-este-viernes-14-ante-paro-de-sector-de-transportistas)
-
-
-### alexander zverev (N/A, 14/11/2025 15:27 Lima)
-
-- **Alexander Zverev v Felix Auger-Aliassime: ATP Finals tennis – live**: [Link](https://www.theguardian.com/sport/live/2025/nov/14/alexander-zverev-v-felix-auger-aliassime-atp-finals-tennis-live)
-- **Zverev vs Auger-Aliassime Predictions, Picks & Odds**: [Link](https://www.sportsbettingdime.com/news/tennis/zverev-auger-aliassime-predictions-picks-odds/)
-- **ATP Finals Friday, November 14: Tennis Best Bets, Predictions, Top Picks**: [Link](https://vsin.com/tennis/atp-finals-friday-november-14-tennis-best-bets-predictions-top-picks/)
 
 
