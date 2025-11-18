@@ -1,3 +1,73 @@
+### chile - perú (N/A, 18/11/2025 11:34 Lima)
+
+- **Con el debut de Fabio Gruber: el once que alista Perú para enfrentar a Chile en amistoso internacional en Sochi [FOTOS]**: [Link](https://rpp.pe/futbol/seleccion-peruana/alineacion-de-peru-ante-chile-en-amistoso-en-sochi-alex-valera-fabio-gruber-cesar-inga-noticia-1664114)
+- **Cómo preparan el debut de Gruber, la nostalgia de Gallese y el guiño de Valera a la liga rusa: Lo que no se vio de la previa de Perú en Sochi**: [Link](https://elcomercio.pe/deporte-total/seleccion/seleccion-peruana-como-preparan-el-debut-de-fabio-gruber-la-nostalgia-de-pedro-gallese-y-el-guino-de-alex-valera-a-la-liga-rusa-lo-que-no-se-vio-de-la-previa-al-peru-clasico-del-pacifico-tlcnota-noticia/)
+- **Perú vs. Chile hoy: alineaciones confirmadas para el partido amistoso**: [Link](https://libero.pe/futbol-peruano/seleccion-peruana/2025/11/17/alineaciones-peru-vs-chile-formacion-del-partido-amistoso-internacional-749955)
+
+
+### irak vs (N/A, 18/11/2025 11:34 Lima)
+
+- **Emiratos Árabes e Irak empataron en el playoff por un lugar en el repechaje intercontinental**: [Link](https://www.espn.com.pe/futbol/mundial/nota/_/id/15954030/emiratos-arabes-e-irak-empataron-playoff-repechaje-intercontinental)
+- **Irak vs. Emiratos Árabes Unidos EN VIVO vía Disney+: se enfrentan por el pase al repechaje del Mundial 2026**: [Link](https://rpp.pe/futbol/eliminatorias/irak-vs-emiratos-arabes-unidos-en-vivo-a-que-hora-y-donde-ver-playoffs-eliminatorias-por-repechaje-al-mundial-2026-link-streaming-partidos-de-hoy-noticia-1664024)
+- **Emiratos Árabes empató ante Irak en 'play-offs' para el repechaje al Mundial**: [Link](https://ovacion.pe/noticias/futbol-internacional/emiratos-arabes-empato-ante-irak-play-offs-repechaje-al-mundial)
+
+
+### brasil sub-17 - francia sub-17 (N/A, 18/11/2025 11:34 Lima)
+
+- **Épico Brasil**: [Link](https://as.com/futbol/internacional/epico-brasil-f202511-n/)
+- **Brasil busca un lugar en Cuartos de Final**: [Link](https://www.conmebol.com/noticias/brasil-busca-un-lugar-en-cuartos-de-final/)
+- **Brasil vs Francia: Resultado EN VIVO, minuto a minuto y goles del Mundial Sub 17**: [Link](https://www.365scores.com/es/news/brasil-vs-francia-resultado-en-vivo/)
+
+
+### blackbox (N/A, 18/11/2025 11:34 Lima)
+
+- **Turkey says black box analysis, initial findings on cargo plane crash to take at least two months**: [Link](https://www.reuters.com/business/aerospace-defense/turkey-says-black-box-analysis-initial-findings-cargo-plane-crash-take-least-two-2025-11-17/)
+- **Update: Turkish Hercules crash kills 20**: [Link](https://www.janes.com/osint-insights/defence-news/defence/update-turkish-hercules-crash-kills-20)
+- **Turkish Air Force C-130 Crashes in Georgia**: [Link](https://www.flightradar24.com/blog/flight-tracking-news/major-incident/turkish-military-aircraft-tuaf543-crashes-in-georgia-november-11th-2025/)
+
+
+### forex factory (N/A, 18/11/2025 11:34 Lima)
+
+- **Gold slips to one-week low as traders scale back US rate cut bets**: [Link](https://www.reuters.com/world/india/gold-extends-fall-firm-dollar-easing-fed-rate-cut-bets-2025-11-18/)
+- **Gold’s (GLD) Price Drops as Hopes Fade for a December Interest Rate Cut**: [Link](https://www.tipranks.com/news/golds-gld-price-drops-as-hopes-fade-for-a-december-interest-rate-cut)
+- **Gold Wavers on Dimmer Fed Cut Outlook, Jitters Over Tech Stocks**: [Link](https://finance.yahoo.com/news/gold-declines-fourth-day-us-075940587.html)
+
+
+### lp (N/A, 18/11/2025 11:34 Lima)
+
+- **Americana Artist Dan Arwady Releases Debut LP The Weight of Love and New Music Video 'We All Start Out as Strangers'**: [Link](https://fox56news.com/business/press-releases/ein-presswire/867764302/americana-artist-dan-arwady-releases-debut-lp-the-weight-of-love-and-new-music-video-we-all-start-out-as-strangers)
+- **Video Premiere: Dan Arwady “We All Start Out As Strangers”**: [Link](https://americanahighways.org/2025/11/11/video-premiere-dan-arwady-we-all-start-out-as-strangers/)
+- **Dan Arwady Understands That We All Start Out As Strangers**: [Link](https://tinnitist.com/2025/11/12/dan-arwady-understands-that-we-all-start-out-as-strangers/)
+
+
+### monica (N/A, 18/11/2025 11:34 Lima)
+
+- **Monica Calls Chris Brown ‘The Greatest Entertainer’ Alive: ‘I Don’t Give a Damn Whose Song It Is, He Makes It Better’**: [Link](https://www.billboard.com/music/rb-hip-hop/monica-chris-brown-greatest-entertainer-alive-1236114270/)
+- **'I Don’t Give a Damn Whose Song It Is, He Makes It Better': R&B Legend Monica Says This Artist is The Best in The World**: [Link](https://www.vice.com/en/article/i-dont-give-a-damn-whose-song-it-is-he-makes-it-better-rb-legend-monica-says-this-artist-is-the-best-in-the-world/)
+- **Monica: “Chris Brown is the Greatest Entertainer That is Left Here on Earth with Us”**: [Link](https://thatgrapejuice.net/2025/11/monica-chris-brown-is-the-greatest-entertainer-that-is-left-here-on-earth-with-us/)
+
+
+### meta (N/A, 18/11/2025 11:34 Lima)
+
+- **Meta Platforms And Its Real Value (NASDAQ:META)**: [Link](https://seekingalpha.com/article/4844371-meta-platforms-and-its-real-value)
+- **Organon & Co. (OGN) is Attracting Investor Attention: Here is What You Should Know**: [Link](https://finance.yahoo.com/news/organon-co-ogn-attracting-investor-140002788.html)
+- **Meta's AI spending spree has even the most bullish stock analysts wondering: How much capex is too much?**: [Link](https://www.fastcompany.com/91444071/meta-ai-spending-stock-analysts-cut-price-target-capex-too-high)
+
+
+### inteligencia artificial (N/A, 18/11/2025 11:34 Lima)
+
+- **Gemini 3 promete más calidad y precisión que nunca en sus respuestas. La cuestión es si realmente...**: [Link](https://www.xataka.com/robotica-e-ia/gemini-3-promete-calidad-precision-que-nunca-sus-respuestas-cuestion-realmente-notaremos-diferencia)
+- **La IA de Google aprende euskera, catalán y tareas más difíciles: "Es un paso hacia la IA general"**: [Link](https://www.elconfidencial.com/tecnologia/2025-11-18/google-gemini-3-lanzamiento_4249741/)
+- **ChatGPT lidera el ranking de usos de Inteligencia Artificial, pero Gemini se le acerca rápidamente**: [Link](https://pisapapeles.net/chatgpt-lidera-el-ranking-de-usos-de-inteligencia-artificial-pero-gemini-se-le-acerca-rapidamente/)
+
+
+### exitosa en vivo (N/A, 18/11/2025 11:34 Lima)
+
+- **Temblor en el Perú hoy según IGP en vivo: Lugar, magnitud, hora y más del epicentro | sismos | censis | tdpe | PERU**: [Link](https://elcomercio.pe/peru/temblor-en-el-peru-hoy-segun-igp-en-vivo-lugar-magnitud-hora-y-mas-del-epicentro-sismos-censis-tdpe-noticia/)
+- **Temblor en Perú HOY, 18 de noviembre: ¿a qué hora y dónde ocurrió el último sismo vía IGP?**: [Link](https://larepublica.pe/sociedad/2025/11/18/temblor-en-peru-hoy-martes-18-de-noviembre-del-2025-magnitud-epicentro-y-mas-sobre-sismos-recientes-segun-igp-ultimo-sismo-en-lima-ica-callao-y-otras-provincias-atmp-183175)
+- **Temblor en Perú: sismo de magnitud 4.2 se registró en Áncash cerca de la medianoche**: [Link](https://andina.pe/agencia/noticia-temblor-peru-sismo-magnitud-42-se-registro-ancash-cerca-de-medianoche-1052212.aspx)
+
+
 ### cloudflare (N/A, 18/11/2025 07:52 Lima)
 
 - **Outage at Cloudflare Disrupts Parts of the Internet**: [Link](https://www.nytimes.com/2025/11/18/business/cloudflare-down-challenges-error.html)
@@ -961,74 +1031,5 @@ Sin noticias relacionadas disponibles.
 - **Millie Bobby Brown Scolds Photographer at Stranger Things 5 Red Carpet: 'Smile? You Smile!'**: [Link](https://people.com/millie-bobby-brown-scolds-photographer-at-stranger-things-red-carpet-11849447)
 - **Millie Bobby Brown praised for brutal clapback after paparazzi told her to 'smile'**: [Link](https://www.tyla.com/entertainment/celebrity/millie-bobby-brown-smile-photographer-stranger-things-premiere-767857-20251114)
 - **‘Stranger Things’ Star Snaps at Photographer: ‘You Smile!’**: [Link](https://www.thedailybeast.com/obsessed/stranger-things-star-millie-bobby-brown-snaps-at-photographer-you-smile/)
-
-
-### brasil vs senegal (N/A, 15/11/2025 03:28 Lima)
-
-- **¿Dónde ver Brasil — Senegal EN VIVO hoy por amistoso FIFA al Mundial 2025? Horarios y canales TV**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/donde-ver-brasil-senegal-en-vivo-en-directo-por-amistoso-fifa-al-mundial-2025-horarios-y-canales-tv-online-gratis-nnda-nnrt-noticia/)
-- **Pronósticos Brasil vs Senegal: apuestas apuntan a goles de ambos equipos**: [Link](https://depor.com/apuestas-deportivas/pronosticos-brasil-vs-senegal-amistoso-internacional/)
-- **Amistoso internacional: Brasil y Senegal se enfrentan por un duelo amistoso**: [Link](https://rpp.pe/futbol/ligas-internacionales/amistoso-internacional-brasil-y-senegal-se-enfrentan-por-un-duelo-amistoso-noticia-1663758)
-
-
-### colombia vs (N/A, 15/11/2025 03:28 Lima)
-
-- **De qué se debe cuidar Colombia cuando enfrente a Nueva Zelanda y Australia**: [Link](https://www.espn.com.ar/futbol/mundial/nota/_/id/15956335/de-que-se-debe-cuidar-colombia-cuando-enfrente-a-nueva-zelanda-y-australia)
-- **Amistoso internacional: Se enfrentan Colombia y Nueva Zelanda en duelo amistoso**: [Link](https://rpp.pe/futbol/ligas-internacionales/amistoso-internacional-se-enfrentan-colombia-y-nueva-zelanda-en-duelo-amistoso-noticia-1663838)
-- **RCN: dónde ver Colombia vs Nueva Zelanda por partido amistoso de fecha FIFA**: [Link](https://elcomercio.pe/deporte-total/colombia/rcn-en-vivo-online-como-ver-colombia-vs-nueva-zelanda-hoy-gratis-por-partido-amistoso-video-noticia/)
-
-
-### bucks - hornets (N/A, 15/11/2025 03:28 Lima)
-
-- **Bucks vs. Hornets Player Grades: Ryan Rollins’ big game not enough in disappointing loss**: [Link](https://www.brewhoop.com/bucks-analysis/54037/bucks-vs-hornets-player-grades-stats-ryan-rollins-myles-turner-miles-bridges)
-- **Miles Bridges scores 20 points in win**: [Link](https://www.fantasypros.com/nba/news/552099/miles-bridges-scores-20-points-win.php)
-- **Bucks lose stinker in Charlotte plus Victor Oladipo interview!**: [Link](https://bvmsports.com/2025/11/13/bucks-lose-stinker-in-charlotte-plus-victor-oladipo-interview/)
-
-
-### los ilusionistas (N/A, 15/11/2025 03:28 Lima)
-
-- **Para una maratón antes de “Now You See Me 3”: dónde ver las dos primeras películas de la saga “Los ilusionistas”**: [Link](https://elcomercio.pe/mag/fama/que-ver/now-you-see-me-donde-ver-cada-una-de-las-peliculas-de-la-saga-nada-es-lo-que-parece-nnda-nnlt-noticia/)
-- **‘Ahora me ves 3′: los Jinetes vuelven con refuerzos en un homenaje a la magia tan disparatado como divertido**: [Link](https://www.infobae.com/espana/cultura/2025/11/15/ahora-me-ves-3-los-jinetes-vuelven-con-refuerzos-en-un-homenaje-a-la-magia-tan-disparatado-como-divertido/)
-- **El personaje de Lizzy Caplan es Lula en “Ahora me ves: ¿ahora no?”**: [Link](https://noticiashuesca.com/economia/el-personaje-de-lizzy-caplan-es-lula-en-ahora-me-ves-ahora-no/130088/)
-
-
-### martin vizcarra (N/A, 15/11/2025 03:28 Lima)
-
-- **Martín Vizcarra: Fiscalía teme que fugue tras conocer sentencia**: [Link](https://peru21.pe/politica/martin-vizcarra-temen-que-fugue-tras-conocer-sentencia-lava-jato/)
-- **Martín Vizcarra “vivía de las coimas”: los alegatos finales de la fiscalía y la procuraduría antes de la sentencia del expresidente**: [Link](https://elcomercio.pe/politica/justicia/martin-vizcarra-vivia-de-las-coimas-los-alegatos-finales-de-fiscalia-y-procuraduria-antes-de-la-sentencia-del-expresidente-lava-jato-lomas-de-ilo-obrainsa-obrainsa-iccgsa-tlcnota-noticia/)
-- **Fiscalía reiteró pedido de 15 años de prisión y 9 años de inhabilitación contra Vizcarra**: [Link](https://andina.pe/agencia/noticia-fiscalia-reitero-pedido-15-anos-prision-y-9-anos-inhabilitacion-contra-vizcarra-1051834.aspx)
-
-
-### mavericks - clippers (N/A, 15/11/2025 03:28 Lima)
-
-- **James Harden Makes Clippers History, Praised By NBA Fans in Win vs. Cooper Flagg, Mavs**: [Link](https://bleacherreport.com/articles/25294668-james-harden-makes-clippers-history-praised-nba-fans-win-vs-cooper-flagg-mavs)
-- **Jason Kidd attempts to explain Mavericks’ defensive woes vs. James Harden, Clippers**: [Link](https://clutchpoints.com/nba/dallas-mavericks/mavericks-news-jason-kidd-explains-defensive-woes-james-harden)
-- **Mavs drop a double OT thriller to Clippers 133-127**: [Link](https://www.mavsmoneyball.com/dallas-mavericks-game-coverage/52672/player-grades-recapping-the-mavericks-vs-the-clippers)
-
-
-### salim vera (N/A, 15/11/2025 03:28 Lima)
-
-- **Salim Vera no quiso a Toño Jaúregui en su boda: “Uno a su matrimonio invita a las personas que quiere**: [Link](https://www.atv.pe/noticia/salim-vera-no-quiso-a-tono-jauregui-en-su-boda-uno-a-su-matrimonio-invita-a-las-personas-que-quiere/)
-- **Salim Vera revela que en su saco llevaba la fotografía de su madre durante su matrimonio**: [Link](https://www.atv.pe/noticia/salim-vera-revela-que-en-su-saco-llevaba-la-fotografia-de-su-madre-durante-su-matrimonio/)
-
-
-### melissa linares (N/A, 14/11/2025 23:27 Lima)
-
-- **Paco Bazán y Melissa Linares, del ampay en 2022 a la polémica por demanda de pensión alimentaria**: [Link](https://www.infobae.com/peru/2025/11/14/paco-bazan-y-melissa-linares-del-ampay-en-2022-a-la-polemica-por-demanda-de-pension-alimentaria/)
-- **¿Qué dijo la abogada de Paco Bazán tras ser acusado de incumplimiento con pensión a su hija?**: [Link](https://elcomercio.pe/respuestas/farandula/que-dijo-la-abogada-de-paco-bazan-tras-ser-acusado-de-incumplimiento-con-pension-a-su-hija-tdpe-noticia/)
-- **Paco Bazán rompe su silencio y niega deuda por pensión de su hija: “El colegio y el seguro están pagados”**: [Link](https://peru21.pe/espectaculos/paco-bazan-rompe-su-silencio-y-niega-deuda-por-pension-de-su-hija/)
-
-
-### alianza vs universitario (N/A, 14/11/2025 23:27 Lima)
-
-- **Franco Velazco sobre el reclamo de Alianza Lima en la final de la Liga Femenina: “De un tiempo a esta parte se caracterizan por las quejas”**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/universitario-franco-velazco-sobre-el-reclamo-de-alianza-lima-en-la-final-de-la-liga-femenina-de-un-tiempo-a-esta-parte-se-caracterizan-por-las-quejas-noticia/)
-- **“Son tonterías”: Franco Velazco habló sobre rumores de la salida de Fossati y los reclamos de Alianza Lima**: [Link](https://depor.com/futbol-peruano/descentralizado/universitario-franco-velazco-aclara-rumores-sobre-la-salida-de-jorge-fossati-y-responde-ante-reclamos-de-alianza-lima-liga-1-video-noticia/)
-- **Figura de Alianza sorprende con rotundo mensaje sobre duelo con Universitario: "Será un…."**: [Link](https://libero.pe/futbol-peruano/alianza-lima/2025/11/14/figura-de-alianza-lima-sorprende-rotundo-mensaje-partido-universitario-sera-643986)
-
-
-### spurs - warriors (N/A, 14/11/2025 23:27 Lima)
-
-- **“This n–a got to go score 46 to show the team can win” – Rashad McCants blasts Warriors for forcing 37-year-old Steph Curry to carry the entire offense**: [Link](https://www.basketballnetwork.net/latest-news/rashad-mccants-blasts-warriors-for-forcing-37-year-old-steph-curry-to-carry-the-entire-offense)
-- **How to watch Warriors vs. Spurs**: [Link](https://www.goldenstateofmind.com/warriors-game-previews/105142/how-to-watch-warriors-vs-spurs)
-- **Stephen Curry is just one game away from tying a historic NBA record currently held by Michael Jordan**: [Link](https://www.mundodeportivo.com/us/en/20251113/734467/stephen-curry-is-just-one-game-away-from-tying-historic-nba-record-currently-held-by-michael-jordan.html)
 
 
