@@ -1,3 +1,52 @@
+### cloudflare (N/A, 18/11/2025 07:52 Lima)
+
+- **Outage at Cloudflare Disrupts Parts of the Internet**: [Link](https://www.nytimes.com/2025/11/18/business/cloudflare-down-challenges-error.html)
+- **Elon Musk's X down for thousands of US users, Downdetector shows**: [Link](https://www.reuters.com/business/elon-musks-x-down-thousands-us-users-downdetector-shows-2025-11-18/)
+- **Parts of the internet just stopped working**: [Link](https://www.the-independent.com/tech/cloudflare-down-twitter-not-working-outage-b2867367.html)
+
+
+### expreso (N/A, 18/11/2025 07:52 Lima)
+
+- **Nuevo paro de 48 horas en Lima y Callao si hay un nuevo atentado: transportistas dan ultimátum al gobierno**: [Link](https://www.infobae.com/peru/2025/11/17/nuevo-paro-de-48-horas-en-lima-y-callao-si-hay-un-nuevo-atentado-transportistas-dan-ultimatum-al-gobierno/)
+- **Gremios de transportes confirman que pararán 48 horas si algún conductor sufre un nuevo atentado**: [Link](https://rpp.pe/lima/actualidad/gremios-de-transportes-confirman-que-pararan-48-horas-si-algun-conductor-sufre-un-nuevo-atentado-noticia-1664138)
+- **Balacera contra bus en SMP desata alarma por nuevas amenazas extorsivas**: [Link](https://caretas.pe/nacional/balacera-contra-bus-en-smp-desata-alarma-por-nuevas-amenazas-extorsivas/)
+
+
+### corea del sur vs ghana (N/A, 18/11/2025 07:52 Lima)
+
+- **Partidos de hoy, martes 18 de noviembre del 2025: horarios y canales TV para ver EN VIVO Eliminatorias y Amistosos**: [Link](https://rpp.pe/futbol/futbol-mundial/partidos-de-hoy-peru-martes-18-de-noviembre-del-2025-horarios-y-canales-tv-ver-futbol-en-vivo-noticia-1664106)
+- **Partidos de hoy EN VIVO: programación, horario y dónde ver fútbol online este martes 18 de noviembre**: [Link](https://libero.pe/futbol-internacional/2025/11/17/partidos-de-hoy-en-vivo-ver-futbol-online-martes-18-de-noviembre-872984)
+- **¿Qué partidos de fútbol hay hoy? La agenda del martes 18 de noviembre**: [Link](https://www.msn.com/es-co/noticias/other/qu%C3%A9-partidos-de-f%C3%BAtbol-hay-hoy-la-agenda-del-martes-18-de-noviembre/ar-AA1EfCuW)
+
+
+### dolar (N/A, 18/11/2025 07:52 Lima)
+
+- **Precio del dólar cayó más: Así cerró el tipo de cambio hoy 17 de noviembre en Perú**: [Link](https://www.infobae.com/peru/2025/11/17/dolar-cotizacion-de-apertura-hoy-17-de-noviembre-en-peru/)
+- **Precio del dólar Perú y tipo de cambio hoy 18 de noviembre del 2025**: [Link](https://rpp.pe/economia/economia/precio-del-dolar-peru-y-tipo-de-cambio-hoy-18-de-noviembre-del-2025-noticia-1664236)
+- **¿Cuál es el precio del dólar HOY en Perú? Así cotiza el tipo de cambio este lunes, 17 de noviembre**: [Link](https://www.exitosanoticias.pe/actualidad/cual-precio-dolar-hoy-peru-asi-cotiza-tipo-cambio-lunes-17-noviembre-n162876)
+
+
+### japón - bolivia (N/A, 18/11/2025 07:52 Lima)
+
+- **A qué hora juega Bolivia vs Japón HOY: partido amistoso en Tokio por fecha FIFA 2025**: [Link](https://www.infobae.com/peru/deportes/2025/11/17/a-que-hora-juega-bolivia-vs-japon-partido-amistoso-tokio-fecha-fifa-2025-horario/)
+- **Amistoso internacional: Japón se enfrenta a Bolivia en un partido amistoso**: [Link](https://rpp.pe/futbol/ligas-internacionales/amistoso-internacional-japon-se-enfrenta-a-bolivia-en-un-partido-amistoso-noticia-1664070)
+- **Un baile a Bolivia y nula reacción de Viscarra: golazo de Kamada para el 1-0 de Japón**: [Link](https://depor.com/futbol-internacional/resto-del-mundo/gol-daichi-kamada-bolivia-vs-japon-baile-golazo-y-nula-reaccion-de-guillermo-viscarra-amistoso-video-noticia/)
+
+
+### corea del sur vs (N/A, 18/11/2025 07:52 Lima)
+
+- **Batacazo a la favorita del Mundial Sub-17, otra sorpresa y cruces de octavos**: [Link](https://www.laprensa.hn/fotogalerias/deportes/mundial-sub-17-qatar-batacazo-favorita-alemania-burkina-faso-sorpresa-cruces-octavos-final-BJ28211033)
+- **Rep. de Corea cayó con Inglaterra y no clasificó a Octavos de Final**: [Link](https://www.directvsports.com/futbol/rep.-de-corea-cayo-con-inglaterra-y-no-clasifico-a-octavos-de-final-20251112-0016.html)
+- **Gol en contra de Jung Hui-Seop e Inglaterra suma el primero frente a Rep. de Corea**: [Link](https://www.telemundo.com/deportes/copa-mundial-sub-17/video/gol-en-contra-de-jung-hui-seop-e-inglaterra-suma-el-primero-frente-rep-de-corea-tmvo13062138)
+
+
+### agua (N/A, 18/11/2025 07:52 Lima)
+
+- **Mañana martes 18 habrá corte de agua en cuatro distritos de Lima: zonas y horarios, según Sedapal**: [Link](https://www.infobae.com/peru/2025/11/16/corte-de-agua-afectara-a-cuatro-distritos-de-lima-este-18-de-noviembre-zonas-y-horarios-segun-sedapal/)
+- **Sedapal confirma corte masivo de agua este 18 de noviembre en Lima: Distritos afectados**: [Link](https://peru21.pe/lima/sedapal-confirma-corte-masivo-de-agua-este-18-de-noviembre-en-lima/)
+- **Corte de agua hoy, 17 de noviembre: horarios y distritos afectados por Sedapal**: [Link](https://latinanoticias.pe/te-ayudo/corte-de-agua-hoy-17-de-noviembre-horarios-y-distritos-afectados-por-sedapal_20251117/)
+
+
 ### cotizacion del dolar hoy (N/A, 18/11/2025 03:33 Lima)
 
 - **Precio del dólar cayó más: Así cerró el tipo de cambio hoy 17 de noviembre en Perú**: [Link](https://www.infobae.com/peru/2025/11/17/dolar-cotizacion-de-apertura-hoy-17-de-noviembre-en-peru/)
@@ -981,54 +1030,5 @@ Sin noticias relacionadas disponibles.
 - **“This n–a got to go score 46 to show the team can win” – Rashad McCants blasts Warriors for forcing 37-year-old Steph Curry to carry the entire offense**: [Link](https://www.basketballnetwork.net/latest-news/rashad-mccants-blasts-warriors-for-forcing-37-year-old-steph-curry-to-carry-the-entire-offense)
 - **How to watch Warriors vs. Spurs**: [Link](https://www.goldenstateofmind.com/warriors-game-previews/105142/how-to-watch-warriors-vs-spurs)
 - **Stephen Curry is just one game away from tying a historic NBA record currently held by Michael Jordan**: [Link](https://www.mundodeportivo.com/us/en/20251113/734467/stephen-curry-is-just-one-game-away-from-tying-historic-nba-record-currently-held-by-michael-jordan.html)
-
-
-### australia vs (N/A, 14/11/2025 23:27 Lima)
-
-- **Live: New-look Socceroos trail against Venezuela in Houston**: [Link](https://www.abc.net.au/news/2025-11-15/australia-socceroos-vs-venezuela-live-updates/106012522)
-- **Match Preview: Venezuela v CommBank Socceroos | International Friendly**: [Link](https://socceroos.com.au/news/match-preview-venezuela-v-commbank-socceroos-international-friendly)
-- **Socceroos ready to go toe-to-toe with Venezuela**: [Link](https://www.canberratimes.com.au/story/9111634/socceroos-ready-to-go-toe-to-toe-with-venezuela/)
-
-
-### venezuela - australia (N/A, 14/11/2025 23:27 Lima)
-
-- **A qué hora juega Venezuela vs Australia HOY: partido amistoso en Texas por fecha FIFA 2025**: [Link](https://www.infobae.com/peru/deportes/2025/11/14/a-que-hora-juega-venezuela-vs-australia-hoy-partido-amistoso-texas-fecha-fifa-2025-horario/)
-- **El 'tiki taka' de Venezuela: el golazo de Jesús Ramírez ante Australia tras un gran juego colectivo [VIDEO]**: [Link](https://rpp.pe/futbol/futbol-mundial/gol-venezuela-australia-jesus-ramirez-anota-tras-tiki-taka-de-la-vinotinto-noticia-1663888)
-- **VER TELEVEN EN VIVO: Venezuela vs. Australia HOY desde Texas**: [Link](https://elcomercio.pe/deporte-total/seleccion/televen-gratis-futbol-libre-tv-venezuela-vs-australia-hoy-gratis-via-futbol-libre-tv-por-partido-amistoso-link-video-noticia/)
-
-
-### pelicans - lakers (N/A, 14/11/2025 20:52 Lima)
-
-- **Los Angeles Lakers vs New Orleans Pelicans Prediction, Pick, Odds -- 11/14**: [Link](https://www.actionnetwork.com/nba/los-angeles-lakers-vs-new-orleans-pelicans-prediction-pick-odds-friday-november-14)
-- **NBA Best Bets & Player Props Friday, November 14, 2025**: [Link](https://kingpin.pro/nba/articles/nba-best-bets-and-player-props-friday-november-14-2025)
-- **Why Friday's Mid-November Game in New Orleans Is a Must-Win for the Lakers**: [Link](https://www.newscentermaine.com/video/sports/locked-on/lo-la/lakers-show/why-fridays-mid-november-game-in-new-orleans-is-a-must-win-for-the-lakers/535-c7e349eb-2d8e-4070-8635-79a970109b62)
-
-
-### horóscopo hoy (N/A, 14/11/2025 20:52 Lima)
-
-- **Horóscopo de hoy, viernes 14 de noviembre: Lee aquí las predicciones para tu signo | LUCES**: [Link](https://elcomercio.pe/luces/vida-social/horoscopo-de-hoy-viernes-14-de-noviembre-lee-aqui-las-predicciones-para-tu-signo-noticia/)
-- **Horóscopo de hoy de Nana Calistar 14 de noviembre de 2025**: [Link](https://laopinion.com/2025/11/14/horoscopo-de-hoy-de-nana-calistar-14-de-noviembre-de-2025/)
-- **Horóscopo de Mizada Mohamed hoy, viernes 14 de noviembre 2025: las predicciones para los 12 signos zodiacales**: [Link](https://www.ambito.com/mexico/espiritualidad/horoscopo-mizada-mohamed-hoy-viernes-14-noviembre-2025-las-predicciones-los-12-signos-zodiacales-n6213637)
-
-
-### venezuela (N/A, 14/11/2025 20:52 Lima)
-
-- **Un análisis advierte qué significa la operación Lanza del Sur de EEUU para Maduro: “Ya no se negocian sanciones, se discute supervivencia”**: [Link](https://www.infobae.com/venezuela/2025/11/14/un-analisis-advierte-que-significa-la-operacion-lanza-del-sur-de-eeuu-para-venezuela-ya-no-se-negocian-sanciones-se-discute-supervivencia/)
-- **Silencio en la cúpula chavista ante la escalada militar de Washington en Latinoamérica**: [Link](https://elpais.com/america/2025-11-14/silencio-en-la-cupula-chavista-ante-la-escalada-militar-de-washington-en-latinoamerica.html)
-- **Escalada en el Caribe: ¿Cuán decidido está Trump a lanzar un ataque terrestre a Venezuela?**: [Link](https://cnnespanol.cnn.com/2025/11/14/eeuu/video/trump-venezuela-marcha-atras-oppenheimer-presenta-tv)
-
-
-### ufc 322 (N/A, 14/11/2025 20:52 Lima)
-
-- **Islam Makhachev shows off drastic body transformation as he weighs in for UFC 322**: [Link](https://bloodyelbow.com/2025/11/14/islam-makhachev-shows-off-drastic-body-transformation-as-he-weighs-in-for-ufc-322/)
-- **Dariush Misses Weight For The Second Time**: [Link](https://www.mmamania.com/ufc-322-jack-della-vs-islam-makhachev-start-time-full-results-espn-mma/402595/ufc-322-weigh-ins-results-beneil-dariush-misses-weight-for-second-time)
-- **Faceoffs | VeChain UFC 322: Della Maddalena vs Makhachev**: [Link](https://www.ufc.com/video/152641)
-
-
-### where winds meet (N/A, 14/11/2025 20:52 Lima)
-
-- **Where Winds Meet - Official Launch Trailer**: [Link](https://www.ign.com/videos/where-winds-meet-official-launch-trailer)
-- **Where Winds Meet release time and countdown to the launch of the Wuxia open-world adventure**: [Link](https://www.allout-gaming.com/news/winds-meet-release-time-countdown-1502327)
-- **Where Winds Meet: dive deeper into gameplay and story details**: [Link](https://blog.playstation.com/2025/11/07/where-winds-meet-dive-deeper-into-gameplay-and-story-details/)
 
 
