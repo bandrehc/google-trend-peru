@@ -1,3 +1,71 @@
+### san marino (N/A, 18/11/2025 15:29 Lima)
+
+- **Preview:Romania vs San Marino - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/romania/world-cup/preview/romania-vs-san-marino-prediction-team-news-lineups_585829.html)
+- **Romania vs San Marino: How to Watch, World Cup Qualifying Preview**: [Link](https://www.foxsports.com/stories/soccer/romania-vs-san-marino-how-watch-world-cup-qualifying-preview)
+- **Mircea Lucescu Reveals Captain for San Marino Match**: [Link](https://www.el-balad.com/6770972)
+
+
+### austria - bosnia y herzegovina (N/A, 18/11/2025 15:29 Lima)
+
+- **Austria-Bosnia, en directo: clasificación Mundial, hoy en vivo**: [Link](https://as.com/futbol/internacional/austria-bosnia-en-directo-clasificacion-mundial-hoy-en-vivo-f202511-n/)
+- **Los parones de selecciones, una bombona de oxígeno para Alaba**: [Link](https://madridistareal.com/paron-selecciones-oxigeno-alaba-real-madrid/)
+- **Bosnia se lo juega todo en Viena; Barbarez: "Soñaba con este escenario"**: [Link](https://www.todomercadoweb.es/futbol-internacional/bosnia-se-lo-juega-todo-en-viena-barbarez-sonaba-con-este-escenario-527094)
+
+
+### san marino vs (N/A, 18/11/2025 15:29 Lima)
+
+- **Preview:Romania vs San Marino - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/romania/world-cup/preview/romania-vs-san-marino-prediction-team-news-lineups_585829.html)
+- **Mircea Lucescu Announces Team Captain for Crucial San Marino Clash**: [Link](https://emegypt.net/1038318)
+- **Romania faces San Marino in World Cup qualifier as Lucescu’s side seeks bounce-back**: [Link](https://www.red94.net/news/36127-romania-faces-san-marino-in-world-cup-qualifier-as-lucescu-s-side-seeks-bounce-b/)
+
+
+### brasil (N/A, 18/11/2025 15:29 Lima)
+
+- **Brasil x Tunísia: onde assistir ao vivo, horário e escalações do amistoso da Seleção**: [Link](https://ge.globo.com/futebol/selecao-brasileira/noticia/2025/11/18/brasil-x-tunisia-onde-assistir-ao-vivo-horario-e-escalacoes-do-amistoso-da-selecao.ghtml)
+- **Bento acaba preocupando a torcida brasileira, e quase se complica com saídas fora da área**: [Link](https://br.bolavip.com/selecao-brasileira/bento-acaba-preocupando-a-torcida-brasileira-e-quase-se-complica-com-saidas-fora-da-area)
+- **Arsenal teme que pode perder zagueiro da seleção pelos próximos meses**: [Link](https://www.terra.com.br/esportes/futebol/internacional/arsenal-teme-que-pode-perder-zagueiro-da-selecao-pelos-proximos-meses,31c239f1122c5251878febb33e4d9b7c7a12awtq.html)
+
+
+### suiza vs (N/A, 18/11/2025 15:29 Lima)
+
+- **EN VIVO: Suiza sigue arriba por 2-0 ante Irlanda**: [Link](https://www.directvsports.com/futbol/en-vivo-suiza-sigue-arriba-por-2-0-ante-irlanda-20251116-0005.html)
+- **Suiza vs. Irlanda en vivo: seguí el partido minuto a minuto**: [Link](https://www.tycsports.com/competencias-y-deportes/fifa-mundial-sub-17-qatar-2025-suiza-vs-irlanda-llave-5-id699027.html)
+- **Suiza sub-17 vs. República de Irlanda sub-17, partido del Martes 18 de noviembre 2025**: [Link](https://canchallena.lanacion.com.ar/futbol/mundial-sub-17/suiza-sub-17-republica-de-irlanda-sub-17-8cw8cot7ev6kmgm52nd1qfrbo/)
+
+
+### brazil vs (N/A, 18/11/2025 15:29 Lima)
+
+- **Tunisia vs Brazil: 7 Channels to Watch the Friendly Match (18/11/2025)**: [Link](https://foot-africa.com/en/news/tunisia-vs-brazil-kick-off-time-and-tv-channels-18112025-964304/)
+- **Friendlies: Tunisia's squad list to face Brazil**: [Link](https://sports.yahoo.com/article/friendlies-tunisias-squad-list-face-102000608.html)
+- **Brasil dominates Tunisia 3-0 in friendly at Lille, Eyes 2026 World Cup prep**: [Link](https://www.red94.net/news/98841-brasil-dominates-tunisia-3-0-in-friendly-at-lille-eyes-2026-world-cup-prep/)
+
+
+### gonzalo bueno (N/A, 18/11/2025 15:29 Lima)
+
+- **Gonzalo Bueno y la decisión que lo llevó al Australian Open: el top 200 y un Grand Slam, lo que le espera al tenista que emocionó a Lima**: [Link](https://elcomercio.pe/deporte-total/tenis-peruano-gonzalo-bueno-y-la-decision-que-lo-llevo-al-australian-open-el-top-200-y-un-grand-slam-lo-que-le-espera-al-tenista-que-emociono-a-lima-noticia/)
+- **Así quedó el ranking ATP tras el título de Jannik Sinner en el Masters y la final de Ignacio Buse en Montev...**: [Link](https://bolavip.com/pe/tenis/asi-quedo-el-ranking-atp-tras-el-titulo-de-jannik-sinner-en-el-masters-y-la-final-de-ignacio-buse-en-montevideo)
+- **Ignacio Buse subió cinco puestos en el Ranking ATP pese a caer en la final del Challenger de Montevi**: [Link](https://www.apnoticias.pe/peru/diario-uno/ignacio-buse-subio-cinco-puestos-en-el-ranking-atp-pese-a-caer-en-la-final-del-challenger-de-montevideo-1470541)
+
+
+### barcelona vs chelsea (N/A, 18/11/2025 15:29 Lima)
+
+- **UEFA Women's Champions League: How to watch Chelsea vs. Barcelona on Disney+**: [Link](https://www.espn.com/soccer/story/_/id/47007789/how-watch-chelsea-vs-barcelona-disney+)
+- **Aggie Beever-Jones: We want to right some wrongs against Barcelona | News | Official Site**: [Link](https://www.chelseafc.com/en/news/article/aggie-beever-jones-we-want-to-right-some-wrongs-against-barcelona)
+- **Preview:Chelsea Women vs Barcelona Women - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/chelsea-women/women-champions-league/preview/chelsea-vs-barcelona-prediction-team-news-lineups_585903.html)
+
+
+### kosovo - suiza (N/A, 18/11/2025 15:29 Lima)
+
+- **Kosovo-Suiza, en directo: clasificación Mundial, hoy en vivo**: [Link](https://as.com/futbol/internacional/kosovo-suiza-en-directo-clasificacion-mundial-hoy-en-vivo-f202511-n/)
+- **Inter FC, Akanji no descansa. El seleccionador de Suiza: "Ninguna lesión, no cambio el once"**: [Link](https://www.todomercadoweb.es/serie-a/inter-fc-akanji-no-descansa-el-seleccionador-de-suiza-ninguna-lesion-no-cambio-el-once-527030)
+- **Pronóstico Kosovo - Suiza - Mundial**: [Link](https://www.sportytrader.es/pronosticos/kosovo-suiza-305835/)
+
+
+### grecia vs (N/A, 18/11/2025 15:29 Lima)
+
+- **Bielorrusia vs Grecia pronostico y comparación de cuotas 18.11.2025**: [Link](https://www.livetipsportal.com/es/pronosticos-apuestas-deportivas/bielorrusia-vs-grecia-clas-mundial-europa-10798292/)
+
+
 ### chile - perú (N/A, 18/11/2025 11:34 Lima)
 
 - **Con el debut de Fabio Gruber: el once que alista Perú para enfrentar a Chile en amistoso internacional en Sochi [FOTOS]**: [Link](https://rpp.pe/futbol/seleccion-peruana/alineacion-de-peru-ante-chile-en-amistoso-en-sochi-alex-valera-fabio-gruber-cesar-inga-noticia-1664114)
@@ -961,75 +1029,5 @@ Sin noticias relacionadas disponibles.
 - **ATP Finals tennis: Sinner beats De Minaur before Alcaraz faces Auger-Aliassime – live**: [Link](https://www.theguardian.com/sport/live/2025/nov/15/atp-finals-tennis-jannik-sinner-alex-de-minaur-carlos-alcaraz-felix-auger-aliassime-live)
 - **Nitto ATP Finals Betting Odds and Match Previews for November 15, 2025, Men's Singles**: [Link](https://sportsbookwire.usatoday.com/story/sports/sports-betting/2025/11/15/nitto-atp-finals-betting-odds-favorites-match-previews-11-14-2025-mens/87285842007/)
 - **Jannik Sinner beats Alex de Minaur to reach ATP Finals championship match**: [Link](https://www.eagletribune.com/jannik-sinner-beats-alex-de-minaur-to-reach-atp-finals-championship-match/article_49a7824d-d864-561e-a3ed-a5fc4e1d2c6b.html)
-
-
-### hans vanaken (N/A, 15/11/2025 11:26 Lima)
-
-- **LIVE - Rood voor Kazachstan na aanslag op Doku! Vinden Duivels winnende treffer met mannetje meer?**: [Link](https://sporza.be/nl/matches/voetbal/wld/wk-kwalificatie-uefa/2026/groep-j/09/kazachstan-belgie-live-rood-voor-kazachstan-na-aanslag-op-doku-vinden-duivels-winnende-treffer-met-mannetje-meer~1743166983642/)
-- **ONZE PUNTEN. “Ging gruwelijk in de fout en herstelde daar niet meer van”: twee gebuisde Rode Duivels, ééntje bij alle gevaar betrokken**: [Link](https://www.gva.be/sport/voetbal/onze-punten.-ging-gruwelijk-in-de-fout-en-herstelde-daar-niet-meer-van-twee-gebuisde-rode-duivels-eentje-bij-alle-gevaar-betrokken/105271486.html)
-- **LIVE: Aiaiaiai, Raskin laat de 1-2 liggen**: [Link](https://www.voetbalkrant.com/nieuws/2025-11-15/live-aiaiaiai-raskin-laat-de-1-2-liggen)
-
-
-### brasil - senegal (N/A, 15/11/2025 11:26 Lima)
-
-- **¿A qué hora juegan Brasil vs. Senegal EN VIVO hoy 15 de noviembre por amistoso al Mundial 2026? Conoce en qué canal ver el partido**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/a-que-hora-juega-y-que-canal-transmite-brasil-vs-senegal-en-vivo-hoy-15-de-noviembre-por-amistoso-al-mundial-2026-horarios-y-canales-tv-nnda-nnrt-noticia/)
-- **Pronósticos Brasil vs Senegal: apuestas apuntan a goles de ambos equipos**: [Link](https://depor.com/apuestas-deportivas/pronosticos-brasil-vs-senegal-amistoso-internacional/)
-- **Pronóstico Brasil - Senegal. Amistosos | 15/11/2025**: [Link](https://gainblers.com/pe/pronosticos/futbol/internacional/amistosos/pronostico-brasil-senegal-15-11-2025/)
-
-
-### brasil (N/A, 15/11/2025 11:26 Lima)
-
-- **Trump reduz tarifas sobre café, carne e frutas, produtos exportados pelo Brasil**: [Link](https://g1.globo.com/economia/agronegocios/noticia/2025/11/14/eua-suspendem-tarifa-de-50percent-para-cafe-carne-banana-e-acai-brasileiros.ghtml)
-- **Federação das Indústrias de MG reconhece avanço ‘limitado’ em recuo de tarifaço**: [Link](https://www.r7.com/brasilia/federacao-das-industrias-de-mg-reconhece-avanco-limitado-em-recuo-de-tarifaco-15112025/)
-- **Alckmin: tínhamos 23% de produtos brasileiros com tarifa zero para EUA e, agora, 26%**: [Link](https://www.infomoney.com.br/politica/alckmin-tinhamos-23-de-produtos-brasileiros-com-tarifa-zero-para-eua-e-agora-26/)
-
-
-### venezuela sub-17 - corea del norte sub-17 (N/A, 15/11/2025 11:26 Lima)
-
-- **Venezuela - Corea del Norte, en vivo: última hora del Mundial Sub 17, hoy en directo**: [Link](https://as.com/futbol/internacional/venezuela-corea-del-norte-en-vivo-ultima-hora-del-mundial-sub-17-hoy-en-directo-f202511-n/)
-- **Venezuela vs Corea del Norte EN VIVO: Ya juega la Vinotinto (0-2)**: [Link](https://www.vavel.com/mx/futbol-internacional/2025/11/15/1241372-venezuela-vs-corea-del-norte-en-vivo-mundial-sub-17.html)
-- **Venezuela vs. Corea del Norte, EN VIVO: dónde verlo por TV y cómo seguirlo ONLINE**: [Link](https://www.tycsports.com/futbol-internacional/venezuela-vs-corea-del-norte-en-vivo-donde-ver-por-tv-y-online-id698335.html)
-
-
-### turquia vs (N/A, 15/11/2025 11:26 Lima)
-
-- **Turquía - Bulgaria, en directo: clasificación al Mundial 2026, en vivo hoy**: [Link](https://as.com/futbol/internacional/turquia-bulgaria-en-directo-clasificacion-al-mundial-2026-en-vivo-hoy-f202511-d/)
-- **Turquía 'llama a filas' a Güler, Yildiz y Çalhanoglu para enfrentarse a España**: [Link](https://www.marca.com/futbol/mundial/2025/11/07/turquia-llama-filas-gueler-yildiz-calhanoglu-enfrentarse-espana.html)
-- **Turquía vs Bulgaria EN VIVO Eliminatorias Mundialistas UEFA**: [Link](https://www.record.com.mx/futbol/futbol-internacional/internacionales/turquia-vs-bulgaria-en-vivo-eliminatorias-mundialistas)
-
-
-### temblor hoy lima (N/A, 15/11/2025 07:45 Lima)
-
-- **Un sismo de magnitud 4.3 remeció la región Junín esta mañana**: [Link](https://rpp.pe/peru/junin/junin-sismo-de-magnitud-43-remecio-la-region-esta-manana-noticia-1663790)
-- **Temblor de 4.0 causó la caída de pequeñas rocas en la ruta Pisco–Huáncano**: [Link](https://diariocorreo.pe/edicion/ica/temblor-de-40-causo-la-caida-de-pequenas-rocas-en-la-ruta-piscohuancano-noticia/)
-- **Terremoto moderado mag. 4.3 - 64 km al este de Satipo, Departamento de Junín, Perú, viernes 14 nov 2025 a las 09:04 (Hora Lima)**: [Link](https://www.volcanodiscovery.com/es/sismos/informe-sismo/22393092/mag4quake-Nov-14-2025-Central-Peru.html)
-
-
-### suiza vs (N/A, 15/11/2025 07:45 Lima)
-
-- **Apuestas y pronósticos Suiza vs Suecia**: [Link](https://www.marca.com/apuestas-deportivas/predicciones/2025/11/14/apuestas-pronosticos-suiza-vs-suecia.html)
-- **Suiza – Suecia Pronóstico y Apuestas | Clasificación Mundial 15/11/2025**: [Link](https://www.apuestas-deportivas.es/pronostico/suiza-vs-suecia-pronostico-clasificacion-mundial-15-11-2025/)
-- **Suiza vs. Suecia en vivo: cómo llegan al partido**: [Link](https://www.tycsports.com/eliminatorias-eurocopa/uefa-eliminatorias-mundial-2026-suiza-vs-suecia-grupo-b-fecha-5-id698641.html)
-
-
-### horoscopo de hoy (N/A, 15/11/2025 03:28 Lima)
-
-- **Horóscopo de hoy, sábado 15 de noviembre: Lee aquí las predicciones para tu signo**: [Link](https://elcomercio.pe/luces/vida-social/horoscopo-de-hoy-sabado-15-de-noviembre-lee-aqui-las-predicciones-para-tu-signo-noticia/)
-- **Aries, Tauro, Géminis, Cáncer, Leo, Virgo, Libra, Escorpio, Sagitario, Capricornio, Acuario y Piscis: así será este sábado 15 de noviembre**: [Link](https://www.vanitatis.elconfidencial.com/horoscopo/2025-11-15/horoscopo-hoy-sabado-15-noviembre-que-dicen-astros-1qrt_4246855/)
-- **Horóscopo diario, predicciones sobre amor, salud, trabajo y dinero para el 15 de noviembre de 2025**: [Link](https://www.lavanguardia.com/magazine/horoscopo/20251114/11224689/horoscopo-diario-prediccion-suerte-15-noviembre-ctx.html)
-
-
-### ezeiza (N/A, 15/11/2025 03:28 Lima)
-
-- **Explosión en polo industrial genera fuerte incendio en Ezeiza, Argentina. Hay alrededor de 20 heridos**: [Link](https://cnnespanol.cnn.com/2025/11/14/argentina/explosion-planta-quimica-incendio-ezeiza-orix)
-- **Una fuerte explosión en polo industrial cerca del principal aeropuerto de Argentina**: [Link](https://rpp.pe/mundo/latinoamerica/una-fuerte-explosion-en-polo-industrial-cerca-del-principal-aeropuerto-de-argentina-noticia-1663885)
-- **Múltiples explosiones en Ezeiza: se incendia el polo industrial y se registran al menos 20 heridos**: [Link](https://www.infobae.com/sociedad/2025/11/15/impactante-explosion-en-ezeiza-se-incendia-una-fabrica-y-trabajan-varias-dotaciones-de-bomberos/)
-
-
-### millie bobby brown (N/A, 15/11/2025 03:28 Lima)
-
-- **Millie Bobby Brown Scolds Photographer at Stranger Things 5 Red Carpet: 'Smile? You Smile!'**: [Link](https://people.com/millie-bobby-brown-scolds-photographer-at-stranger-things-red-carpet-11849447)
-- **Millie Bobby Brown praised for brutal clapback after paparazzi told her to 'smile'**: [Link](https://www.tyla.com/entertainment/celebrity/millie-bobby-brown-smile-photographer-stranger-things-premiere-767857-20251114)
-- **‘Stranger Things’ Star Snaps at Photographer: ‘You Smile!’**: [Link](https://www.thedailybeast.com/obsessed/stranger-things-star-millie-bobby-brown-snaps-at-photographer-you-smile/)
 
 
