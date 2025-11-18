@@ -1,3 +1,31 @@
+### congo (N/A, 17/11/2025 23:29 Lima)
+
+- **RD Congo no para de sorprender: venció en penales a Nigeria y jugará el repechaje internacional para el Mundial 2026 [VIDEO]**: [Link](https://rpp.pe/futbol/eliminatorias/nigeria-vs-congo-en-vivo-a-que-hora-juegan-y-donde-ver-final-playoffs-eliminatorias-caf-por-repechaje-al-mundial-2026-link-gratis-partidos-de-hoy-noticia-1664007)
+- **Nigeria vs Congo: entrenador nigeriano acusa a Congo de usar “vudú” para eliminarlos del Mundial | VIDEO**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/nigeria-vs-congo-entrenador-nigeriano-acusa-a-congo-de-usar-vudu-para-eliminarlos-del-mundial-video-noticia/)
+- **Nigeria se quedó sin Mundial 2026 y la República Democrática del Congo jugará el repechaje**: [Link](https://www.espn.com.pe/futbol/mundial/nota/_/id/15967855/mundial-2026-nigeria-no-clasifico-rd-congo-juega-el-repechaje)
+
+
+### half life 3 (N/A, 17/11/2025 23:29 Lima)
+
+- **OK, for real though, what's the chance of a Half-Life 3 announcement happening soon? Here's what we know**: [Link](https://www.pcgamer.com/games/fps/half-life-3-rumors-poll-2025/)
+- **Half-Life, 3 Screenshots And Official Trailer**: [Link](https://www.dsogaming.com/pc-performance-analyses/half-life-3-screenshots-and-official-trailer/)
+- **Half-Life 3 Hopes Reignited as Insiders Suggest Its Announcement Is Still Coming**: [Link](https://wccftech.com/half-life-3-hopes-reignited-insiders-suggest-its-announcement-is-still-coming/)
+
+
+### nuggets - bulls (N/A, 17/11/2025 23:29 Lima)
+
+- **Nuggets vs Bulls schedule: Date, time, live stream, and more on NBA 2025-26 season**: [Link](https://thesportstak.com/basketball/story/nuggets-vs-bulls-schedule-date-time-live-stream-and-more-on-nba-2025-26-season-3215402-2025-11-17)
+- **Chicago faces Denver, aims to break 5-game slide**: [Link](https://abcnews.go.com/Sports/wireStory/chicago-faces-denver-aims-break-5-game-slide-127584477)
+- **Jim Lorenzi: Bulls injury report for Denver tonight: …**: [Link](https://au.sports.yahoo.com/jim-lorenzi-bulls-injury-report-194055567.html)
+
+
+### españa vs turquia (N/A, 17/11/2025 23:29 Lima)
+
+- **España busca sellar su boleto al Mundial 2026 con victoria ante Turquía**: [Link](https://www.espn.com.ar/futbol/mundial/nota/_/id/15967045/espana-vs-turquia-por-las-eliminatorias-uefa-equipo-fecha-hora-y-tv-en-vivo)
+- **De la Fuente: “No habrá revolución”**: [Link](https://as.com/futbol/seleccion/de-la-fuente-no-habra-revolucion-f202511-n/)
+- **De la Fuente pasa de revoluciones ante Turquía y apela a lo que hay en juego: "Seguir ganando"**: [Link](https://espanol.eurosport.com/futbol/clasificacion-mundial-uefa/2026/declaraciones-de-la-fuente-rotaciones-turquia-racha-invicto-numero-uno-ranking_vid60037802/video.shtml)
+
+
 ### cavaliers - bucks (N/A, 17/11/2025 20:56 Lima)
 
 - **3 Things to watch for in Cavs vs Bucks**: [Link](https://www.fearthesword.com/cavs-game-previews/40439/3-things-to-watch-for-in-cavs-vs-bucks)
@@ -1002,30 +1030,5 @@ Sin noticias relacionadas disponibles.
 - **Alexander Zverev v Felix Auger-Aliassime: ATP Finals tennis – live**: [Link](https://www.theguardian.com/sport/live/2025/nov/14/alexander-zverev-v-felix-auger-aliassime-atp-finals-tennis-live)
 - **Zverev vs Auger-Aliassime Predictions, Picks & Odds**: [Link](https://www.sportsbettingdime.com/news/tennis/zverev-auger-aliassime-predictions-picks-odds/)
 - **ATP Finals Friday, November 14: Tennis Best Bets, Predictions, Top Picks**: [Link](https://vsin.com/tennis/atp-finals-friday-november-14-tennis-best-bets-predictions-top-picks/)
-
-
-### valladolid - u. d. las palmas (N/A, 14/11/2025 15:27 Lima)
-
-- **Partidos de fútbol de hoy: horario, canal y dónde ver por TV**: [Link](https://www.mundodeportivo.com/horarios/futbol/20251114/1002567911/partidos-futbol-hoy-horario-canal-donde-ver-tv.html)
-- **Valladolid - Las Palmas, en directo**: [Link](https://as.com/futbol/segunda/valladolid-las-palmas-en-directo-f202511-n/)
-- **Kirian y Marvin entran en el once de la UD para enfrentarse al Valladolid**: [Link](https://tiempodecanarias.com/noticia/deportes/kirian-y-marvin-entran-en-el-once-de-la-ud-para-enfrentarse-al-valladolid)
-
-
-### alemania (N/A, 14/11/2025 15:27 Lima)
-
-- **Alemania destinará €150 millones a armamento para Ucrania**: [Link](https://www.dw.com/es/alemania-destinar%C3%A1-otros-150-millones-de-euros-a-la-compra-de-armamento-para-ucrania/a-74754884)
-- **Países bálticos y nórdicos financian compra de paquete de equipamiento militar a EE. UU. para Ucrania**: [Link](https://es-us.noticias.yahoo.com/pa%C3%ADses-b%C3%A1lticos-n%C3%B3rdicos-financian-compra-025852819.html)
-- **Los países nórdicos y bálticos acuerdan invertir más de 400 millones de euros en armas estadounidenses para...**: [Link](https://www.abc.es/internacional/paises-nordicos-balticos-acuerdan-invertir-400-millones-20251113175847-nt.html)
-
-
-### gibraltar vs (N/A, 14/11/2025 15:27 Lima)
-
-- **Gibraltar vs Montenegro: cómo verlo, probabilidades, vista previa de la WCQ**: [Link](https://kancha.pe/noticias-urgente/gibraltar-vs-montenegro-como-verlo-probabilidades-vista-previa-de-la-wcq/81625/)
-
-
-### montenegro vs (N/A, 14/11/2025 15:27 Lima)
-
-- **Montenegro vs Croacia pronostico y comparación de cuotas 17.11.2025**: [Link](https://www.livetipsportal.com/es/pronosticos-apuestas-deportivas/montenegro-vs-croacia-clas-mundial-europa-10799531/)
-- **Gibraltar vs Montenegro: cómo verlo, probabilidades, vista previa de la WCQ**: [Link](https://kancha.pe/noticias-urgente/gibraltar-vs-montenegro-como-verlo-probabilidades-vista-previa-de-la-wcq/81625/)
 
 
