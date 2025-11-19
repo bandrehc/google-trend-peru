@@ -1,3 +1,66 @@
+### lakers vs (N/A, 18/11/2025 23:29 Lima)
+
+- **Are Luka Doncic & Austin Reaves Playing Tonight? Lakers vs Jazz Injury Report, How to Watch & More (Nov. 18)**: [Link](https://www.essentiallysports.com/nba-active-basketball-news-are-luka-doncic-austin-reaves-playing-tonight-lakers-vs-jazz-injury-report-how-to-watch-more-november-eighteen/)
+- **Will Hardy Explains Utah Jazz’s Approach for LeBron James’ Debut**: [Link](https://www.si.com/nba/jazz/onsi/news/will-hardy-explains-utah-jazz-approach-lebron-james-debut)
+- **NBA Best Bets: Jazz at Lakers Best Prop Bets for Tuesday 11/18/25**: [Link](https://dknetwork.draftkings.com/2025/11/18/nba-best-bets-jazz-at-lakers-best-prop-bets-for-tuesday-11-18-25/)
+
+
+### lakers - jazz (N/A, 18/11/2025 23:29 Lima)
+
+- **Sources: LeBron back to Lakers, will practice Mon.**: [Link](https://www.espn.com/nba/story/_/id/46988206/sources-lebron-james-back-lakers-g-league-practices)
+- **LeBron Debuts In NBA Record 23rd Season As Pistons Win Streak Hits 11**: [Link](https://www.barrons.com/news/lebron-debuts-in-nba-record-23rd-season-as-pistons-win-streak-hits-11-6055284a)
+- **Austin Reaves Thinks LeBron James Will Fit in Seamlessly During Lakers Return**: [Link](https://basketballforever.com/2025/11/18/austin-reaves-thinks-lebron-james-will-fit-in-seamlessly-during-lakers-return)
+
+
+### curazao (N/A, 18/11/2025 23:29 Lima)
+
+- **Milagro Mundial**: [Link](https://as.com/futbol/internacional/milagro-mundial-f202511-n/)
+- **Curazao busca meterse en el Mundial ¡¡¡con todos sus internacionales nacidos en Europa!!!**: [Link](https://www.marca.com/futbol/mundial/2025/11/18/curazao-busca-meterse-mundial-todos-internacionales-nacidos-europa.html)
+- **Curazao se juega el pase al Mundial 2026 con la imprevista ausencia de su entrenador**: [Link](https://www.espn.com.ar/futbol/mundial/nota/_/id/15970257/curazao-se-juega-el-pase-al-mundial-2026-sin-su-entrenador-dick-advocaat)
+
+
+### ranking fifa (N/A, 18/11/2025 23:29 Lima)
+
+- **Bolivia ante Surinam o Jamaica: las selecciones clasificadas al repechaje del Mundial 2026 y cómo se jugará**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/mundial-2026-bolivia-ante-surinam-o-jamaica-las-selecciones-clasificadas-al-repechaje-y-como-se-jugara-noticia/)
+- **Bolivia suma 3 derrotas seguidas antes de pelear por ir a la Copa del Mundo: ¿cuándo juega la Verde por el repechaje al Mundial 2026?**: [Link](https://larepublica.pe/deportes/2025/11/18/bolivia-suma-3-derrotas-seguidas-antes-de-pelear-por-ir-a-la-copa-del-mundo-cuando-juega-la-verde-por-el-repechaje-al-mundial-2026-978264)
+- **Bolivia no clasificó a la final del repechaje para el Mundial 2026: posibles rivales y fechas**: [Link](https://libero.pe/futbol-internacional/2025/11/18/bolivia-clasifico-final-del-repechaje-mundial-2026-posibles-rivales-fechas-287622)
+
+
+### spurs - grizzlies (N/A, 18/11/2025 23:29 Lima)
+
+- **It’s time for Basketball: Spurs vs Memphis Grizzlies**: [Link](https://www.poundingtherock.com/general/90098/its-time-for-basketball-spurs-vs-memphis-grizzlies)
+- **bet365 bonus code NYPBET: Bet $5, get $200 in bonus bets for Grizzlies vs. Spurs**: [Link](https://nypost.com/2025/11/18/betting/bet365-bonus-code-nypbet-bet-5-get-200-in-bonus-bets-for-grizzlies-vs-spurs/)
+- **Fox, Barnes take over for Spurs against Grizzlies**: [Link](https://www.nbcsports.com/watch/nba/deaaron-fox-harrison-barnes-take-over-for-spurs-in-win-vs-grizzlies)
+
+
+### al fondo hay sitio (N/A, 18/11/2025 23:29 Lima)
+
+- **“Al fondo hay sitio”: Juan Pablo explotó contra Alessia tras rechazarlo en el altar**: [Link](https://elcomercio.pe/tvmas/series/al-fondo-hay-sitio-juan-pablo-exploto-contra-alessia-tras-rechazarlo-en-el-altar-ultimas-noticia/)
+- **Alessia no se casó, Pamela López indignada Rosángela en EEG**: [Link](https://www.americatv.com.pe/mas-espectaculos/alessia-no-se-caso-pamela-lopez-indignada-y-rosangela-eeg-noticia-161451)
+- **Alessia lloró desconsoladamente tras rechazar a Juan Pablo**: [Link](https://www.americatv.com.pe/al-fondo-hay-sitio/alessia-rompio-llanto-cancelar-su-boda-juan-pablo-noticia-161443)
+
+
+### 19 de noviembre (N/A, 18/11/2025 23:29 Lima)
+
+- **¿Clases escolares son suspendidas este jueves 20 y viernes 21 de noviembre? Esto se sabe**: [Link](https://www.exitosanoticias.pe/actualidad/clases-escolares-son-suspendidas-jueves-20-viernes-21-noviembre-esto-sabe-n162967)
+- **Confirman día no laborable este 19 de noviembre: no habrá clases en colegios de esta región, según Minedu**: [Link](https://larepublica.pe/sociedad/2025/11/18/confirman-dia-no-laborable-este-19-de-noviembre-no-habra-clases-en-colegios-de-esta-region-segun-minedu-1572498)
+- **ATENCIÓN | Declaran este miercóles 19 de noviemnre DÍA NO LABORABLE: ¿Quienes se verán beneficiados, según El Peruano?**: [Link](https://wapa.pe/ocio/2025/11/18/atencion-declaran-miercoles-19-noviemnre-dia-no-laborable-quienes-se-veran-beneficiados-segun-peruano-1257930)
+
+
+### canada vs (N/A, 18/11/2025 23:29 Lima)
+
+- **Canada look to snap goalscoring woes in Venezuela clash**: [Link](https://www.mlssoccer.com/news/canada-look-to-snap-goalscoring-woes-in-venezuela-clash)
+- **Canada’s Kone shown straight red card in international friendly against Venezuela**: [Link](https://www.tsn.ca/soccer/article/canadas-kone-shown-straight-red-card-in-international-friendly-against-venezuela/)
+- **‘A seminal moment’: Reflecting on Canada’s Copa America win vs. Venezuela**: [Link](https://bvmsports.com/2025/11/18/a-seminal-moment-reflecting-on-canadas-copa-america-win-vs-venezuela/)
+
+
+### ecuador (N/A, 18/11/2025 23:29 Lima)
+
+- **Resultados consulta popular: Por qué Daniel Noboa sufrió en Ecuador un masivo revés electoral 7 meses después de ganar cómodamente su reelección**: [Link](https://www.bbc.com/mundo/articles/cjd0m4931ngo)
+- **¿Cómo queda parado Noboa tras el rechazo a las reformas propuestas por su Gobierno?**: [Link](https://cnnespanol.cnn.com/2025/11/17/latinoamerica/video/ecuador-noboa-rechazo-urnas-propuestas-gobierno-aristegui-tv)
+- **El “No” se impuso en las cuatro preguntas del referéndum en Ecuador**: [Link](https://www.infobae.com/america/america-latina/2025/11/17/el-no-se-impuso-en-las-cuatro-preguntas-del-referendum-en-ecuador/)
+
+
 ### paraguay vs (N/A, 18/11/2025 20:55 Lima)
 
 - **Gustavo Gómez hoy: Por qué no juega en el Paraguay vs México**: [Link](https://www.365scores.com/es/news/gustavo-gomez-hoy-no-juega-vs-mexico/)
@@ -967,68 +1030,5 @@ Sin noticias relacionadas disponibles.
 - **Brandon Rahbar: Lu Dort is available to play tonight …**: [Link](https://www.hoopshype.com/story/sports/nba/rumors/2025/11/15/brandon-rahbar-lu-dort-is-available-to-play-tonight/87294229007/)
 - **How to watch Thunder vs. Hornets: TV channel and streaming options for November 15 - The Athletic**: [Link](https://www.nytimes.com/athletic/6810176/2025/11/15/thunder-vs-hornets-stream-how-to-watch-nov-15/)
 - **Thunder's Luguentz Dort: Good to go Saturday**: [Link](https://www.cbssports.com/fantasy/basketball/news/thunders-luguentz-dort-good-to-go-saturday-503897/)
-
-
-### independiente vs (N/A, 15/11/2025 21:02 Lima)
-
-- **Pronóstico Deportivo Riestra CA Independiente - Liga Profesional Argentina 10/11/25**: [Link](https://www.sportytrader.com/es/pronosticos/deportivo-riestra-ca-independiente-304440/)
-- **Todo Granate**: [Link](https://onefootball.com/es/noticias/todo-granate-41953509)
-- **Gustavo Quinteros: "Tenemos que ganar y esperar otros resultados, tengo fe"**: [Link](https://tribuna.com/es/news/2025-11-11-gustavo-quinteros-tenemos-que-ganar-y-esperar-otros-resultados-tengo-fe/)
-
-
-### méxico - uruguay (N/A, 15/11/2025 21:02 Lima)
-
-- **Amistoso: Uruguay juega hoy frente a México. A qué hora, por dónde ver y alineaciones**: [Link](https://www.montevideo.com.uy/Deportes/Amistoso-Uruguay-juega-hoy-frente-a-Mexico-A-que-hora-por-donde-ver-y-alineaciones-uc943300)
-- **Amistoso internacional: México y Uruguay juegan un duelo amistoso**: [Link](https://rpp.pe/futbol/ligas-internacionales/amistoso-internacional-mexico-y-uruguay-juegan-un-duelo-amistoso-noticia-1663841)
-- **¿Dónde puedo ver TV EN VIVO México-Uruguay HOY ONLINE desde el estadio León?**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/a-que-hora-juega-y-en-que-canal-ver-mexico-vs-uruguay-hoy-en-vivo-hora-y-como-ver-partido-amistoso-noticia/)
-
-
-### ufc en vivo (N/A, 15/11/2025 21:02 Lima)
-
-- **◎ HBO MAX EN DIRECTO — seguir pelea del UFC 322: Della Maddalena — Makhachev por Streaming online**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/max-en-directo-donde-televisan-ufc-322-della-maddalena-makhachev-por-tv-y-online-en-espana-nnda-nnrt-noticia/)
-- **Cartelera UFC 322 con Valentina Shevchenko e Islam Makhachev: ¿quiénes y a qué hora pelean este 15 de noviembre?**: [Link](https://larepublica.pe/deportes/2025/11/13/cartelera-ufc-322-con-valentina-shevchenko-e-islam-makhachev-quienes-y-a-que-hora-pelean-este-15-de-noviembre-1193556)
-- **UFC 322: Las preguntas clave de Della Maddalena-Makhachev y más**: [Link](https://www.espn.com.pe/mma/nota/_/id/15950606/ufc-322-della-maddalena-vs-makhachev-preguntas-clave-historias)
-
-
-### independiente - rosario central (N/A, 15/11/2025 21:02 Lima)
-
-- **Qué canal pasa Independiente vs Rosario Central hoy: dónde ver el partido gratis de la Liga Profesional**: [Link](https://www.365scores.com/es/news/independiente-vs-rosario-central-tv-vivo/)
-- **Por qué no juega Ángel Di María hoy en Independiente vs. Rosario Central por el Torneo Clausura**: [Link](https://bolavip.com/ar/futbolargentino/por-que-no-juega-angel-di-maria-hoy-en-independiente-vs-rosario-central-por-el-torneo-clausura)
-- **Vuelve**: [Link](https://onefootball.com/de/news/vuelve-41957244)
-
-
-### godoy cruz - deportivo riestra (N/A, 15/11/2025 15:24 Lima)
-
-- **Un Godoy Cruz al borde del descenso recibe a Deportivo Riestra, que va por el boleto a la Libertadores**: [Link](https://www.espn.com.ar/futbol/argentina/nota/_/id/15959966/godoy-cruz-vs-deportivo-riestra-fecha-16-torneo-clausura-2025-equipo-fecha-hora-y-tv-en-vivo)
-- **Una finalísima ante el Malevo**: [Link](https://www.vavel.com/ar/futbol-argentino/2025/11/14/godoy-cruz/1241291-una-finalisima-ante-el-malevo.html)
-- **Pulga y el laberinto: el cómic que recorre el camino de Messi en su consagración como campeón del mundo**: [Link](https://vive.click/pulga-y-el-laberinto-el-comic-que-recorre-el-camino-de-messi-en-su-consagracion-como-campeon-del-mundo/)
-
-
-### carlos alcaraz (N/A, 15/11/2025 15:24 Lima)
-
-- **Previa de SF: Un finalista inédito ya está asegurado en las Nitto ATP Finals | ATP Tour | Tennis**: [Link](https://www.atptour.com/es/news/previa-sabado-sf-nitto-atp-finals-sinner-de-minaur-alcaraz-felix)
-- **Auger-Aliassime dio el golpe en las ATP Finals: eliminó a Zverev, se metió en semis y jugará con Alcaraz**: [Link](https://www.espn.com.ar/tenis/nota/_/id/15958949/auger-aliassime-dio-el-golpe-en-las-atp-finals-2025-elimino-a-zverev-se-metio-en-semis-jugara-con-alcaraz-resultado)
-- **Entre Alcaraz y la final maestra, el viene y va de Auger-Aliassime**: [Link](https://elpais.com/deportes/tenis/2025-11-14/entre-alcaraz-y-la-final-maestra-el-viene-y-va-de-auger-aliassime.html)
-
-
-### concierto shakira (N/A, 15/11/2025 15:24 Lima)
-
-- **Concierto de Shakira en Lima: horarios, rutas de accesos y recomendaciones para ir a su show en el Estadio Nacional**: [Link](https://www.infobae.com/peru/2025/11/13/concierto-de-shakira-en-lima-horarios-y-recomendaciones-para-ir-a-su-primer-show-en-el-estadio-nacional/)
-- **Shakira en Lima 2025: ¿quiénes son las famosas peruanas que se unen a ‘Camina con La Loba’ en sus conciertos?**: [Link](https://rpp.pe/famosos/farandula/shakira-en-lima-2025-quienes-son-las-famosas-peruanas-que-se-unen-a-camina-con-la-loba-en-sus-conciertos-noticia-1663923)
-- **ATENCIÓN: Horarios del Metropolitano y corredor Azul por conciertos de Shakira en el Estadio Nacional**: [Link](https://peru21.pe/lima/atu-amplia-horario-del-metropolitano-y-corredor-azul-por-conciertos-de-shakira/)
-
-
-### ricardo gareca (N/A, 15/11/2025 15:24 Lima)
-
-- **Perú - Ricardo Gareca respondió a Agustín Lozano tras señalar que el 'Tigre' no dijo toda la verdad sobre su salida**: [Link](https://rpp.pe/futbol/seleccion-peruana/peru-ricardo-gareca-respondio-a-agustin-lozano-tras-senalar-que-el-tigre-no-dijo-toda-la-verdad-sobre-su-salida-noticia-1663845)
-- **Gareca descartó volver a selección peruana y dijo por qué**: [Link](https://www.americatv.com.pe/deportes/seleccion/gareca-descarto-volver-seleccion-peruana-no-me-interesa-n451706)
-- **Ricardo Gareca le respondió a Agustín Lozano tras decir que hizo lo imposible para que se quede en Perú: “Tengo todas las conversaciones”**: [Link](https://www.infobae.com/peru/deportes/2025/11/14/ricardo-gareca-le-respondio-a-agustin-lozano-tras-decir-que-hizo-lo-imposible-para-que-se-quede-en-peru-tengo-todas-las-conversaciones/)
-
-
-### dinamarca (N/A, 15/11/2025 15:24 Lima)
-
-- **México logra un punto fundamental en la Billie Jean King Cup**: [Link](https://canaltenis.com/mexico-dinamarca-billie-jean-king-cup-2025/)
-- **Renata Zarazúa impulsa triunfo en Monterrey**: [Link](https://laverdadnoticias.com/sport-judge/renata-zarazua-20251115)
-- **Agustín el ‘Bebé’ Moreno, confía en el factor de la localía: “jugar en casa es una motivación extra”**: [Link](https://esto.com.mx/940275-agustin-moreno-confia-en-el-factor-de-la-localia-en-la-billie-jean-king-cup/)
 
 
