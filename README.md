@@ -1,3 +1,73 @@
+### wicked 2 (N/A, 19/11/2025 15:24 Lima)
+
+- **Wicked: For Good review – Cynthia Erivo sweeps the field in explosive second chunk of Oz prequel**: [Link](https://www.theguardian.com/film/2025/nov/18/wicked-for-good-review-cynthia-erivo-ariana-grande-jeff-goldblum)
+- **Witches and wizards and flying monkeys, oh my! Wicked: For Good is here**: [Link](https://www.abc.net.au/news/2025-11-20/wicked-for-good-review-ariana-grande-cynthia-erivo/106027036)
+- **Ariana Grande is painfully wooden in Wicked’s irritating sequel**: [Link](https://www.telegraph.co.uk/films/2025/11/18/wicked-for-good-review-second-part-fails-to-take-flight/)
+
+
+### atlético grau - sporting cristal (N/A, 19/11/2025 15:24 Lima)
+
+- **Sporting Cristal vs. Atlético Grau EN VIVO: minuto a minuto vía Liga 1 MAX por internet gratis**: [Link](https://depor.com/futbol-peruano/descentralizado/ver-sporting-cristal-vs-atletico-grau-en-vivo-gratis-minuto-a-minuto-liga-1-max-en-directo-hoy-futbol-libre-tv-gratis-directv-online-canales-y-transmision-torneo-clausura-2025-noticia/)
+- **¡Vuelve la Liga 1! Sporting Cristal visita a Grau por la última fecha del Clausura**: [Link](https://peru21.pe/deportes/sporting-cristal-vs-grau-en-vivo-online-liga-1-l1-max-goles-resultado-resumen/)
+- **Sporting Cristal vs Atlético Grau EN VIVO: ¿a qué hora empieza el partido por el Torneo Clausura de la Liga?**: [Link](https://larepublica.pe/futbol-peruano/2025/11/18/sporting-cristal-vs-atletico-grau-en-vivo-hoy-por-el-torneo-clausura-de-liga-1-2025-via-l1-max-online-286236)
+
+
+### arsenal - real madrid c. f. femenino (N/A, 19/11/2025 15:24 Lima)
+
+- **Arsenal - Real Madrid en directo | Champions Femenina hoy en vivo**: [Link](https://www.marca.com/futbol/champions-league-femenina/arsenal-r-madrid/2025/11/19/01_0183_20251119_6272_16928-directo.html)
+- **Reencuentro en Meadow Park con el reto de sanar heridas**: [Link](https://vivirediciones.es/destacado/reencuentro-en-meadow-park-con-el-reto-de-sanar-heridas/)
+- **La cuarta jornada de Champions, clave para los clubes de Liga F Moeve**: [Link](https://ligaf.es/noticia/la-cuarta-jornada-de-champions-clave-para-los-clubes-de-liga-f-moeve)
+
+
+### juventus femenino vs (N/A, 19/11/2025 15:24 Lima)
+
+- **¡En vivo! El OL Lyonnes de Tiane Endler quiere seguir con el invicto en su visita ante Juventus por la UWCL**: [Link](https://www.espn.com.ar/futbol/champions-league/nota/_/id/15978648/juventus-vs-ol-lyonnes-fecha-4-womens-champions-league-2025-26-equipo-fecha-hora-y-tv-en-vivo)
+- **▶️ Juventus SpA contra Olympique Lyonnais Femenino Ver en directo, Consejo » Como ver el partido️ - 19 nov.**: [Link](https://footballpredictions.net/es/predicciones-juventus-women-v-ol-lyonnes-datos-apuestas)
+- **Con Endler titular: Lyon remontó goleada de Juventus y mantuvo su invicto en Champions League Femenina**: [Link](https://www.biobiochile.cl/noticias/deportes/futbol-internacional/notas-futbol-internacional/2025/11/19/champions-league-femenina-lyon-de-endler-empato-en-visita-a-juventus.shtml)
+
+
+### epstein (N/A, 19/11/2025 15:24 Lima)
+
+- **Trump Has the Power to Release the Epstein Files. Why Doesn’t He?**: [Link](https://www.nytimes.com/2025/11/17/us/politics/trump-epstein-files-congress.html)
+- **Congress sends bill forcing release of Epstein files to Trump’s desk**: [Link](https://www.cnn.com/politics/live-news/trump-presidency-epstein-files-release-11-19-25)
+- **Epstein files: Congress votes to send bill to Trump**: [Link](https://www.bbc.com/news/articles/cdxr1r34ev9o)
+
+
+### juan pablo varillas (N/A, 19/11/2025 15:24 Lima)
+
+- **Juan Pablo Varillas y Gonzalo Bueno debutan con triunfo en el Challenger de Guayaquil**: [Link](https://rpp.pe/tenis/mas-tenis/juan-pablo-varillas-y-gonzalo-bueno-debutan-con-triunfo-en-el-challenger-de-guayaquil-noticia-1664344)
+- **Varillas avanza con firmeza: derrota a Dellien y alcanza cuartos en Guayaquil**: [Link](https://diarioviral.pe/deportes/varillas-avanza-con-firmeza-derrota-a-dellien-y-alcanza-cuartos-en-guayaquil-49008)
+- **Gonzalo Bueno venció a uruguayo Aguilar y avanzó en el Guayaquil Challenger**: [Link](https://ovacion.pe/noticias/tenis/gonzalo-bueno-vencio-uruguayo-aguilar-avanzo-guayaquil-challenger)
+
+
+### twitch (N/A, 19/11/2025 15:24 Lima)
+
+- **Twitch’s Growing Footprint Among Americans Signals Its Potential Beyond Gaming**: [Link](https://civicscience.com/twitchs-growing-footprint-among-americans-signals-its-potential-beyond-gaming/)
+- **Twitch x Pot Noodle: Slurp & Conquer Quest**: [Link](https://www.thedrum.com/awards-case-study/how-pot-noodle-revolutionized-gaming-culture-with-immersive-twitch-campaigns)
+- **Twitch x COD 6: Rogue Shadow Ops**: [Link](https://www.thedrum.com/awards-case-study/how-call-of-duty-s-rogue-shadow-ops-campaign-redefined-interactive-gaming)
+
+
+### liga de campeones femenina de la uefa (N/A, 19/11/2025 15:24 Lima)
+
+- **El Barça viaja a Londres sin una baja de última hora**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20251119/1002571899/barca-viaja-londres-baja-ultima-hora.html)
+- **El Barcelona regresa a Stamford Bridge: "Es difícil ganar al Chelsea, pero aún más es volver a hacerlo"**: [Link](https://www.marca.com/futbol/futbol-femenino/champions-league/2025/11/19/barcelona-regresa-stamford-bridge-dificil-ganar-chelsea-aun-volver-hacerlo.html)
+- **Chelsea-Barcelona: Alineaciones probables, estadísticas y cómo ver por TV y online (21:00)**: [Link](https://espanol.eurosport.com/futbol/champions-league-femenina/2025-2026/chelsea-barcelona-alineaciones-probables-previa-estadisticas-precedentes-horario-como-donde-ver-television-online-streaming-hoy_sto23242551/story.shtml)
+
+
+### vfl wolfsburgo - man utd (N/A, 19/11/2025 15:24 Lima)
+
+- **LIVE! Endemann umkurvt Middleton-Patel - 5:2**: [Link](https://www.kicker.de/wolfsburg-gegen-manunited-2025-frauen-champions-league-5176048/spielbericht)
+- **Vor Minus-Kulisse: VfL-Frauen feiern niederländische Tor-Party**: [Link](https://www.braunschweiger-zeitung.de/sport/vfl-wolfsburg/article410501671/tor-spektakel-vor-minuskulisse.html)
+- **Sorgen um Popp! Bezahlt Wolfsburg diesen Sieg teuer?**: [Link](https://www.sport1.de/news/fussball/frauen-champions-league/2025/11/sorgen-um-popp-bezahlt-wolfsburg-diesen-sieg-teuer)
+
+
+### hoy que se celebra (N/A, 19/11/2025 15:24 Lima)
+
+- **Santoral del 20 de noviembre de 2025: Descubre qué santos se celebran hoy**: [Link](https://www.diariosur.es/sociedad/santoral-20-noviembre-2025-que-santos-se-celebran-20251117000000-nt.html)
+- **Qué santo se celebra este 20 de noviembre**: [Link](https://www.infobae.com/noticias/2025/11/19/que-santo-se-celebra-este-20-de-noviembre/)
+- **¿Qué pasó en el mundo un día como hoy? Revisa la efemérides del 19 de noviembre**: [Link](https://elcomercio.pe/mundo/actualidad/efemerides-del19-de-noviembre-que-paso-en-el-mundo-un-dia-como-hoy-cristobal-colon-borinquen-puerto-rico-ultimas-noticia/)
+
+
 ### hazbin hotel temporada 2 capitulo 7 (N/A, 19/11/2025 11:33 Lima)
 
 - **El gran final de la temporada 2: fecha de estreno, hora confirmada y link para ver los episodios 7 y 8 de “Hazbin Hotel 2”**: [Link](https://elcomercio.pe/mag/fama/que-ver/hazbin-hotel-final-de-la-temporada-2-fecha-hora-y-link-para-ver-los-episodios-7-y-8-de-la-serie-de-amazon-prime-video-nnda-nnlt-noticia/)
@@ -961,75 +1031,5 @@ Sin noticias relacionadas disponibles.
 - **Starbucks union says it expects 'largest, longest strike in company history'**: [Link](https://www.usatoday.com/story/money/2025/11/14/starbucks-workers-union-largest-longest-strike-history/87274412007/)
 - **Zohran Mamdani Wants You to Boycott Starbucks**: [Link](https://www.businessinsider.com/zohran-mamdani-boycott-starbucks-strike-2025-11)
 - **Starbucks workers union launches strike in more than 40 cities on chain's key holiday sales day**: [Link](https://www.cnbc.com/2025/11/13/starbucks-workers-united-union-strike-red-cup-day.html)
-
-
-### gustavo gorriti (N/A, 16/11/2025 07:44 Lima)
-
-- **Juez dispone seguir investigación a Gustavo Gorriti por presuntos favores con Rafael Vela y José Domingo Pérez**: [Link](https://www.expreso.com.pe/?p=1239818)
-- **Gustavo Gorriti sufre nuevo revés: seguirá siendo investigado por utilizar IDL-Reporteros en favor de Rafael Vela y Domingo Pérez**: [Link](https://willax.pe/politica/gustavo-gorriti-investigado-idl-reporteros-rafael-vela-domingo-perez-willax)
-- **Revés judicial para Gustavo Gorriti: magistrado confirma continuidad de pesquisas por presunto cohecho**: [Link](https://www.expreso.com.pe/judicial/reves-judicial-para-gustavo-gorriti-magistrado-confirma-continuidad-de-pesquisas-por-presunto-cohecho-idl-reporteros-rafael-vela-jose-domingo-perez-noticia/1239804/)
-
-
-### hungria vs (N/A, 16/11/2025 07:44 Lima)
-
-- **Hungría e Irlanda juegan una "final" en las Eliminatorias UEFA**: [Link](https://www.espn.com.ar/futbol/mundial/nota/_/id/15943274/hungria-vs-irlanda-eliminatorias-uefa-equipo-fecha-hora-tv-en-vivo)
-- **Hungría vs Irlanda Pronóstico y Apuestas | Mundial 16/11/25**: [Link](https://www.apuestas-deportivas.es/pronostico/hungria-vs-irlanda-pronostico-clasificacion-mundial-16-11-2025/)
-- **"Ahora en nuestras manos": Hallgrimsson sobre la candidatura a los play-offs**: [Link](https://masmma.com.mx/futbol/ahora-en-nuestras-manos-hallgrimsson-sobre-la-candidatura-a-los-play-offs/121615/)
-
-
-### nickol sinchi (N/A, 16/11/2025 07:44 Lima)
-
-- **Nickol Sinchi es la nueva integrante de Son del Duke: agrupación confirmó su incorporación**: [Link](https://larepublica.pe/espectaculos/2025/11/16/nickol-sinchi-es-la-nueva-integrante-de-son-del-duke-agrupacion-confirmo-su-incorporacion-mdga-728432)
-- **¿Nickol Sinchi será el “jale bomba” de Son del Duke? Esto se sabe**: [Link](https://www.oigo.com/noticias/musica/nickol-sinchi-sera-el-jale-bomba-de-son-del-duke-esto-se-sabe-video/)
-- **Nickol Sinchi sorprende al cantar junto a Son del Duke y sería su nueva integrante: "Bienvenida"**: [Link](https://lakaribena.com.pe/cumbia/nickol-sinchi-sorprende-cantar-junto-son-duke-seria-su-nueva-integrante-bienvenida-n28907)
-
-
-### portugal vs armenia (N/A, 16/11/2025 07:44 Lima)
-
-- **Cristiano Ronaldo, his first reaction after his red**: [Link](https://frenchfootballweekly.com/2025/11/16/cristiano-ronaldo-his-first-reaction-after-his-red/)
-- **Bosnian refereeing team appointed for Portugal vs Armenia match**: [Link](https://sportaran.com/en/post/bosnijskaya-brigada-arbitrov-naznachena-na-match-portugaliya-armeniya/)
-- **Where to stream Ronaldo, Portugal vs. Armenia FIFA World Cup Qualifying match today**: [Link](https://www.mlive.com/tv/2025/11/where-to-stream-ronaldo-portugal-vs-armenia-fifa-world-cup-qualifying-match-today.html)
-
-
-### dillon danis (N/A, 16/11/2025 03:29 Lima)
-
-- **Dillon Danis Ejected from UFC 322 After Massive Ringside Brawl in Crowd on Video**: [Link](https://bleacherreport.com/articles/25295211-dillon-danis-ejected-ufc-322-after-massive-ringside-brawl-crowd-video)
-- **Dana White issues lifetime ban after brawl between Dillon Danis and Islam Makhachev's teammates**: [Link](https://bloodyelbow.com/2025/11/16/dana-white-issues-lifetime-ban-after-brawl-between-dillon-danis-and-islam-makhachevs-teammates/)
-- **WATCH: Wild Brawl Breaks Out Octagon Side at UFC 322 Involving Dillon Danis**: [Link](https://sports.yahoo.com/article/watch-wild-brawl-breaks-octagon-040742910.html)
-
-
-### ilia topuria (N/A, 16/11/2025 03:29 Lima)
-
-- **‘What a disappointment’: Volk rival slams Aussie after UFC superstar makes history**: [Link](https://www.foxsports.com.au/ufc/ufc-322-jack-della-maddalena-vs-islam-makhachev-live-updates-fight-start-time-in-australia-how-to-watch-and-stream-full-fight-card-results-highlights/news-story/fbb4f88df1baaf3f3d87a7135be6cb03)
-- **‘What a disappointment’: Ilia Topuria, pros rip Jack Della Maddalena for loss to Islam Makhachev at UFC 322**: [Link](https://sports.yahoo.com/article/disappointment-ilia-topuria-pros-rip-063000991.html)
-- **Donald Trump, Open the White House – I’m Coming!: Makhachev**: [Link](https://www.telecomasia.net/news/mma/donald-trump-open-the-white-house-i-m-coming-makhachev/)
-
-
-### stake (N/A, 16/11/2025 03:29 Lima)
-
-- **Berkshire Hathaway's surprising new tech stake**: [Link](https://www.cnbc.com/2025/11/15/berkshire-hathaways-surprising-new-tech-stake.html)
-- **Despite AI bubble fears, Warren Buffett's Berkshire Hathaway buys shares of hyperscaler Alphabet**: [Link](https://fortune.com/2025/11/15/warren-buffett-stocks-berkshire-hathaway-13f-alphabet-shares-ai-bubble/)
-- **Buffett’s Berkshire Builds a $4.9 Billion Stake in Alphabet**: [Link](https://www.bloomberg.com/news/articles/2025-11-14/buffett-acquires-4-9-billion-stake-in-google-parent-alphabet)
-
-
-### valentina shevchenko peru (N/A, 16/11/2025 03:29 Lima)
-
-- **Transmisión, Valentina Shevchenko-Zhang EN VIVO: qué canal TV pasa la pelea y a qué hora empieza**: [Link](https://elcomercio.pe/deporte-total/polideportivo/valentina-shevchenko-vs-zhang-weili-en-vivo-gratis-hoy-via-espn-disney-plus-premium-fox-sports-horarios-canales-tv-y-donde-ver-pelea-por-ufc-322-video-noticia/)
-- **Valentina Shevchenko enfrentará a Weili Zhang en el UFC 322**: [Link](https://www.americatv.com.pe/deportes/polideportivo/valentina-shevchenko-enfrentara-weili-zhang-ufc-322-n451702)
-- **¿A qué hora inicia y en qué canal pasan Shevchenko vs. Zhang por el UFC 322 en USA, México y España?**: [Link](https://gestion.pe/mix/sports/a-que-hora-es-y-en-que-canal-transmiten-pelea-de-ufc-322-valentina-shevchenko-vs-weili-zhang-en-vivo-hoy-15-de-noviembre-por-el-ufc-322-en-mexico-usa-y-espana-nnda-nnrt-noticia/)
-
-
-### israel vs (N/A, 16/11/2025 03:29 Lima)
-
-- **Israel national team faces Moldova to wrap up World Cup**: [Link](https://www.jpost.com/israel-news/sports/article-873840)
-- **Comments and predictions for Israel vs Moldova: Home team explodes**: [Link](https://baonghean.vn/en/nhan-dinh-du-doan-israel-vs-moldova-chu-nha-bung-no-10311515.html)
-- **How to watch today's Israel vs Moldova World Cup qualification game: Live stream, TV channel, and start time**: [Link](https://www.goal.com/en-us/news/watch-israel-vs-moldova-world-cup-qualification-live-stream-tv/blt37bdf90a10d57b7a)
-
-
-### valentina shevchenko vs zhang weili (N/A, 15/11/2025 23:29 Lima)
-
-- **Valentina Shevchenko | An Entirely Different Approach**: [Link](https://www.ufc.com/news/valentina-shevchenko-an-entirely-different-approach-vechain-ufc-322)
-- **Zhang Weili explains why she vacated title ahead of UFC 322 super-fight vs. Valentina Shevchenko**: [Link](https://bloodyelbow.com/2025/11/15/zhang-weili-explains-why-she-vacated-title-ahead-of-ufc-322-super-fight-vs-valentina-shevchenko/)
-- **Valentina Shevchenko on Martial Arts: Beauty, Evolution, and Her Fight with Zhang Weili**: [Link](https://bvmsports.com/2025/11/14/valentina-shevchenko-on-martial-arts-beauty-evolution-and-her-fight-with-zhang-weili/)
 
 
