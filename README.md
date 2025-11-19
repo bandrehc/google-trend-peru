@@ -1,3 +1,44 @@
+### que se celebra hoy 19 de noviembre (N/A, 19/11/2025 07:52 Lima)
+
+- **Día de Santo Profeta Abdías: la oración para tener su guía y protección este miércoles**: [Link](https://www.cronista.com/mexico/espiritualidad/dia-de-santo-profeta-abdias-la-oracion-para-tener-su-guia-y-proteccion-este-miercoles/)
+- **¿Qué santos se celebran hoy, miércoles 19 de noviembre de 2025?**: [Link](https://www.elconfidencialdigital.com/religion/articulo/santoral/que-santos-celebran-hoy-miercoles-19-noviembre-2025/20251119044218054413.html)
+- **¿Qué santo se celebra hoy? Consulta el santoral del miércoles 19 de noviembre**: [Link](https://www.elmundo.es/como/2025/11/19/691b1802e9cf4a71038b45a5.html)
+
+
+### cronograma de pagos (N/A, 19/11/2025 07:52 Lima)
+
+- **Sueldos y pensiones de noviembre 2025 según el cronograma del Banco de la Nación: ¿Qué día te corresponde cobrar?**: [Link](https://elcomercio.pe/respuestas/tramites/sueldos-y-pensiones-de-noviembre-2025-segun-el-cronograma-del-banco-de-la-nacion-tdpe-noticia/)
+- **ONP llevará pensiones a casa de más de 9,500 adultos mayores en todo Lima**: [Link](https://caretas.pe/nacional/onp-llevara-pensiones-a-casa-de-mas-de-9500-adultos-mayores-en-todo-lima/)
+- **Cobros ONP: padrón de pensionistas que retiran su pensión hoy**: [Link](https://diarioelnoticiero.com/cobros-onp-padron-de-pensionistas-que-retiran-su-pension-hoy/)
+
+
+### exitosa en vivo (N/A, 19/11/2025 07:52 Lima)
+
+- **Temblor en Perú hoy, miércoles 19 de noviembre: reportes de los últimos sismos**: [Link](https://elcomercio.pe/respuestas/temblor-hoy-en-peru-en-vivo-hora-exacta-intensidad-epicentro-y-magnitud-del-ultimo-sismo-reportado-el-18-y-19-de-noviembre-de-2025-segun-igp-instituto-geofisico-del-peru-lima-callao-ica-lbposting-noticia/)
+- **Temblor hoy en Perú, martes 18 de noviembre: sismo de magnitud 4.1 se registra en Tumbes**: [Link](https://andina.pe/agencia/noticia-temblor-hoy-peru-martes-18-noviembre-sismo-magnitud-41-se-registra-tumbes-1052381.aspx)
+- **Un sismo de magnitud 4.1 remeció la región Tumbes esta mañana**: [Link](https://rpp.pe/peru/tumbes/tumbes-sismo-de-magnitud-41-remecio-la-region-esta-manana-noticia-1664279)
+
+
+### starbucks (N/A, 19/11/2025 07:52 Lima)
+
+- **Target and Starbucks are both looking for a turnaround. They’re teaming up on an exclusive new drink**: [Link](https://www.cnn.com/2025/11/17/food/target-starbucks-exclusive-drink-launch)
+- **Starbucks launching holiday drink only available at Target locations**: [Link](https://www.kare11.com/article/news/nation-world/target-starbucks-exclusive-holiday-drink/507-71cae21b-a727-45a4-8796-83c545477d01)
+- **Target and Starbucks offer exclusive Frozen Peppermint Hot Chocolate**: [Link](https://about.starbucks.com/stories/2025/target-and-starbucks-offer-exclusive-frozen-peppermint-hot-chocolate/)
+
+
+### sat (N/A, 19/11/2025 07:52 Lima)
+
+- **SAT score release times: Here's when you can check your results from November exam**: [Link](https://www.app.com/story/news/education/2025/11/18/sat-score-release-dates-2025-november/87332813007/)
+- **SAT vs. ACT: Which Path To Take?**: [Link](https://machronicle.com/sat-vs-act-which-path-to-take/)
+
+
+### 19 de noviembre que se celebra (N/A, 19/11/2025 07:52 Lima)
+
+- **Efemérides del 19 de noviembre: ¿Qué pasó en el mundo un día como hoy?**: [Link](https://elcomercio.pe/mundo/actualidad/efemerides-del19-de-noviembre-que-paso-en-el-mundo-un-dia-como-hoy-cristobal-colon-borinquen-puerto-rico-ultimas-noticia/)
+- **Efemérides de hoy 19 de noviembre de 2025: ¿Qué pasó el 19 de noviembre?**: [Link](https://www.antena3.com/noticias/sociedad/efemerides-hoy-19-noviembre-2025-que-paso-19-noviembre_20251119691d4ef9360d0840bce9e8fe.html)
+- **Las efemérides más destacadas del 19 de noviembre**: [Link](https://www.diariosur.es/sociedad/efemeride-19noviembre-20251117000000-nt.html)
+
+
 ### miss universo 2025 (N/A, 19/11/2025 03:33 Lima)
 
 - **Preliminar del Miss Universo 2025: cuándo y a qué hora ver la previa al certamen de belleza desde Perú**: [Link](https://www.infobae.com/peru/2025/11/18/preliminar-del-miss-universo-2025-cuando-y-a-que-hora-es-la-previa-al-certamen-de-belleza/)
@@ -990,45 +1031,5 @@ Sin noticias relacionadas disponibles.
 - **Https://www.lequipe.fr/Mma/actu-en-direct/suivez-l-ufc-322-en-direct-live/17524**: [Link](https://www.lequipe.fr/Mma/Actualites/Benoit-saint-denis-surclasse-beneil-dariush-en-16-secondes-par-k-o-a-l-ufc-322/1610149)
 - **UFC 322 : À quelle heure le combat de BSD est-il prévu ?**: [Link](https://lasueur.com/ufc-322-heure-combat-bsd-prevu-15-11-2025)
 - **MMA. Le Nîmois Saint-Denis de retour pour un combat aux États-Unis**: [Link](https://www.lagazettedenimes.fr/sport/2025-11-15-mma-le-nimois-saint-denis-de-retour-pour-un-combat-aux-etats-unis/)
-
-
-### denver nuggets (N/A, 15/11/2025 23:29 Lima)
-
-- **DENVER IS IN FEAR: Nikola Jokić injured, the club issued an urgent statement!**: [Link](https://serbiantimes.info/en/denver-is-in-fear-nikola-jokic-injured-the-club-issued-an-urgent-statement/)
-- **How to Watch Nuggets vs Timberwolves: Live Stream NBA, TV Channel**: [Link](https://www.newsweek.com/how-to-watch-nuggets-vs-timberwolves-live-stream-nba-tv-channel-11054721)
-- **Nuggets' Nikola Jokic: Good to go Saturday**: [Link](https://www.cbssports.com/fantasy/basketball/news/nuggets-nikola-jokic-good-to-go-saturday/)
-
-
-### ucrania vs (N/A, 15/11/2025 23:29 Lima)
-
-- **Perú dio la talla en su histórico debut en el Mundial de Vóley Playa 2025: exigió al máximo a la mejor dupla del planeta**: [Link](https://www.infobae.com/peru/deportes/2025/11/14/peru-dio-la-talla-en-su-historico-debut-en-el-mundial-de-voley-playa-2025-exigio-al-maximo-a-la-mejor-dupla-del-planeta/)
-- **Perú luchó, pero perdió 2-0 ante Ucrania por la fecha 2 del Mundial de Vóley Playa 2025**: [Link](https://rpp.pe/voley/mas-voley/peru-vs-ucrania-en-vivo-a-que-hora-inicia-y-donde-ver-partido-fecha-2-mundial-de-voley-playa-2025-con-gaona-y-alcca-via-latina-gratis-noticia-1663747)
-- **Perú disputará mundial de vóley playa**: [Link](https://elperuano.pe/noticia/282954-peru-disputara-mundial-de-voley-playa)
-
-
-### universitario vs san martin voley (N/A, 15/11/2025 23:29 Lima)
-
-- **Resultados de la fecha 4 de la Liga Peruana de Vóley 2025/2026: así van los partidos**: [Link](https://www.infobae.com/peru/deportes/2025/11/14/resultados-de-la-fecha-4-de-la-liga-peruana-de-voley-20252026-asi-van-los-partidos/)
-- **Liga Peruana de Vóley por Latina: Revive AQUÍ el partido entre Deportivo Wanka vs Club Atlético Atenea**: [Link](https://www.latina.pe/voley-por-latina/liga-peruana-de-voley-por-latina-revive-aqui-el-partido-entre-deportivo-wanka-vs-club-atletico-atenea_20251115/)
-- **Pronostico: San Martín vs Universitario por la Liga Peruana de Vóley**: [Link](https://www.futbolperuano.com/liga-voley/san-martin-vs-universitario-en-vivo-por-la-liga-peruana-de-voley-551400)
-
-
-### tracy cortez (N/A, 15/11/2025 21:02 Lima)
-
-- **Tracy Cortez finally accepting role model status coming into UFC 322: ‘I’m trying really hard’**: [Link](https://www.mmamania.com/ufc-news/402570/tracy-cortez-finally-accepting-role-model-status-coming-into-ufc-322-im-trying-really-hard)
-- **Erin Blanchfield Seizes Opportunities to Excel**: [Link](https://www.el-balad.com/6767171)
-- **Erin Blanchfield vs Tracy Cortez Prediction, Pick, Odds for UFC 322 (Saturday, November 15)**: [Link](https://www.actionnetwork.com/mma/erin-blanchfield-vs-tracy-cortez-prediction-pick-odds-for-ufc-322-saturday-november-15)
-
-
-### cristian garín (N/A, 15/11/2025 21:02 Lima)
-
-Sin noticias relacionadas disponibles.
-
-
-### bucks - lakers (N/A, 15/11/2025 21:02 Lima)
-
-- **Lakers’ Rui Hachimura won’t play tonight against the Bucks**: [Link](https://www.ocregister.com/2025/11/15/lakers-rui-hachimura-wont-play-tonight-against-the-bucks/)
-- **JJ Redick on Luka Doncic struggles: The last two games, they've had All-NBA defenders on him**: [Link](https://basketballsphere.com/en/jj-redick-on-luka-doncic-struggles-the-last-two-games-theyve-had-all-nba-defenders-on-him/)
-- **Giannis Antetokounmpo (knee) expected to play Saturday**: [Link](https://www.fantasypros.com/nba/news/552620/giannis-antetokounmpo-knee-expected-to-play-saturday.php)
 
 
