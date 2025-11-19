@@ -1,3 +1,24 @@
+### miss universo 2025 (N/A, 19/11/2025 03:33 Lima)
+
+- **Preliminar del Miss Universo 2025: cuándo y a qué hora ver la previa al certamen de belleza desde Perú**: [Link](https://www.infobae.com/peru/2025/11/18/preliminar-del-miss-universo-2025-cuando-y-a-que-hora-es-la-previa-al-certamen-de-belleza/)
+- **¿En dónde ver la gran final de Miss Universo 2025 EN VIVO desde Perú?**: [Link](https://peru21.pe/espectaculos/en-vivo-miss-universo-2025-desde-peru-karla-bacigalupo-ganadora-finalista/)
+- **Fátima Bosch en el Miss Universo 2025: así puedes votar por la mexicana en la aplicación del certamen**: [Link](https://elcomercio.pe/respuestas/mexico/fatima-bosch-en-el-miss-universo-2025-asi-puedes-votar-por-la-mexicana-en-la-aplicacion-del-certamen-tdpe-noticia/)
+
+
+### jnj delia espinoza (N/A, 19/11/2025 03:33 Lima)
+
+- **La JNJ recurre al TC para no reponer a Delia Espinoza: Gino Ríos presenta demanda competencial contra el PJ**: [Link](https://www.infobae.com/peru/2025/11/18/la-jnj-recurre-al-tc-para-no-reponer-a-delia-espinoza-gino-rios-presenta-demanda-competencial-contra-el-pj/)
+- **JNJ presenta ante el TC demanda competencial contra el Poder Judicial por caso Delia Espinoza**: [Link](https://rpp.pe/politica/judiciales/jnj-presenta-ante-el-tc-demanda-competencial-contra-el-poder-judicial-por-caso-delia-espinoza-noticia-1664288)
+- **Delia Espinoza exige ejecución inmediata de su reposición como fiscal de la Nación**: [Link](https://caretas.pe/politica/delia-espinoza-exige-ejecucion-inmediata-de-su-reposicion-como-fiscal-de-la-nacion/)
+
+
+### haiti (N/A, 19/11/2025 03:33 Lima)
+
+- **Cómo hizo Haití, unos de los países más pobres de América para soñar con la hazaña de clasificar al Mundial 2026**: [Link](https://www.espn.com.pe/futbol/mundial/nota/_/id/15975448/como-hizo-haiti-unos-de-los-paises-mas-pobres-de-america-sonar-con-la-hazana-clasificar-al-mundial-2026)
+- **¡Estará en 2026! Haití vuelve a la Copa Mundial tras 52 años de ausencia**: [Link](https://rpp.pe/futbol/eliminatorias/estara-en-2026-haiti-vuelve-a-la-copa-mundial-tras-52-anos-de-ausencia-noticia-1664379)
+- **Nicaragua vs. Haití (0-2): ver resumen y goles del partido por Eliminatorias Concacaf | VIDEO**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/nicaragua-vs-haiti-en-vivo-gratis-hoy-via-futbol-libre-tv-nicasports-paramount-youtube-horarios-canales-tv-y-donde-ver-partido-por-eliminatorias-concacaf-video-noticia/)
+
+
 ### lakers vs (N/A, 18/11/2025 23:29 Lima)
 
 - **Are Luka Doncic & Austin Reaves Playing Tonight? Lakers vs Jazz Injury Report, How to Watch & More (Nov. 18)**: [Link](https://www.essentiallysports.com/nba-active-basketball-news-are-luka-doncic-austin-reaves-playing-tonight-lakers-vs-jazz-injury-report-how-to-watch-more-november-eighteen/)
@@ -1009,26 +1030,5 @@ Sin noticias relacionadas disponibles.
 - **Lakers’ Rui Hachimura won’t play tonight against the Bucks**: [Link](https://www.ocregister.com/2025/11/15/lakers-rui-hachimura-wont-play-tonight-against-the-bucks/)
 - **JJ Redick on Luka Doncic struggles: The last two games, they've had All-NBA defenders on him**: [Link](https://basketballsphere.com/en/jj-redick-on-luka-doncic-struggles-the-last-two-games-theyve-had-all-nba-defenders-on-him/)
 - **Giannis Antetokounmpo (knee) expected to play Saturday**: [Link](https://www.fantasypros.com/nba/news/552620/giannis-antetokounmpo-knee-expected-to-play-saturday.php)
-
-
-### precio del dólar perú (N/A, 15/11/2025 21:02 Lima)
-
-- **Precio del dólar en Perú: a cuánto cerró el tipo de cambio el sábado 15 de noviembre**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-a-cuanto-esta-el-dolar-y-tipo-de-cambio-este-sabado-15-de-noviembre-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
-- **Precio del dólar en sigue en caída: Así se cotiza el tipo de cambio hoy 15 de noviembre en Perú**: [Link](https://www.infobae.com/peru/2025/11/14/peru-cotizacion-de-apertura-del-dolar-hoy-14-de-noviembre-de-usd-a-pen/)
-- **¿Cuál es la cotización del dólar hoy viernes 14 de noviembre del 2025?**: [Link](https://andina.pe/agencia/noticia-cual-es-cotizacion-del-dolar-hoy-viernes-14-noviembre-del-2025-1051958.aspx)
-
-
-### weili zhang (N/A, 15/11/2025 21:02 Lima)
-
-- **UFC 322: A look at champions who have earned second division title and those who came up short**: [Link](https://www.cbssports.com/ufc/news/ufc-champions-two-divisions-history-best-fighters-title-fights-wins-ufc-322/)
-- **Islam Makhachev, Zhang Weili seek spots in exclusive two-division champ club at UFC 322**: [Link](https://nypost.com/2025/11/15/sports/islam-makhachev-zhang-weili-seek-spots-in-exclusive-club-at-ufc-322/)
-- **How Many Double Champs In UFC History?**: [Link](https://www.lowkickmma.com/how-many-double-champs-in-ufc-history/)
-
-
-### hornets - thunder (N/A, 15/11/2025 21:02 Lima)
-
-- **Brandon Rahbar: Lu Dort is available to play tonight …**: [Link](https://www.hoopshype.com/story/sports/nba/rumors/2025/11/15/brandon-rahbar-lu-dort-is-available-to-play-tonight/87294229007/)
-- **How to watch Thunder vs. Hornets: TV channel and streaming options for November 15 - The Athletic**: [Link](https://www.nytimes.com/athletic/6810176/2025/11/15/thunder-vs-hornets-stream-how-to-watch-nov-15/)
-- **Thunder's Luguentz Dort: Good to go Saturday**: [Link](https://www.cbssports.com/fantasy/basketball/news/thunders-luguentz-dort-good-to-go-saturday-503897/)
 
 
