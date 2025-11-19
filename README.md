@@ -1,3 +1,45 @@
+### hazbin hotel temporada 2 capitulo 7 (N/A, 19/11/2025 11:33 Lima)
+
+- **El gran final de la temporada 2: fecha de estreno, hora confirmada y link para ver los episodios 7 y 8 de “Hazbin Hotel 2”**: [Link](https://elcomercio.pe/mag/fama/que-ver/hazbin-hotel-final-de-la-temporada-2-fecha-hora-y-link-para-ver-los-episodios-7-y-8-de-la-serie-de-amazon-prime-video-nnda-nnlt-noticia/)
+- **Hazbin Hotel, temporada 3: fecha de estreno en Prime Video y todo lo que sabemos de la tercera parte de la serie**: [Link](https://www.clarin.com/estados-unidos/hazbin-hotel-temporada-3-fecha-estreno-prime-video-sabemos-tercera-parte-serie_0_Sl2djLsDcq.html)
+- **Hazbin Hotel temporada 2, capítulos 7 y 8: a qué hora salen los nuevos episodios, cómo y dónde verlos**: [Link](https://tierragamer.com/noticias/series/hazbin-hotel-temporada-2-capitulos-7-y-8-a-que-hora-salen-los-nuevos-episodios-como-y-donde-verlos/)
+
+
+### cometa 3i atlas nasa (N/A, 19/11/2025 11:33 Lima)
+
+- **Sigue en vivo: NASA transmitirá imágenes inéditas del cometa interestelar 3I/ATLAS**: [Link](https://andina.pe/agencia/noticia-sigue-vivo-nasa-transmitira-imagenes-ineditas-del-cometa-interestelar-3iatlas-1052478.aspx)
+- **¿Qué pasará con el objeto interestelar 3I/ATLAS tras su acercamiento a la Tierra? La NASA y ESA ya tienen la respuesta | MAG**: [Link](https://elcomercio.pe/mag/respuestas/ciencias/que-pasara-con-el-objeto-interestelar-3iatlas-tras-su-acercamiento-a-la-tierra-la-nasa-y-esa-ya-tienen-la-respuesta-nnda-nnrt-noticia/)
+- **Misterios de 3I/Atlas: ¿objeto interestelar o tecnología desconocida?**: [Link](https://www.tvperu.gob.pe/novedades/hora-contacto/misterios-de-3iatlas-objeto-interestelar-o-tecnologia-desconocida)
+
+
+### temblor hoy arequipa (N/A, 19/11/2025 11:33 Lima)
+
+- **Temblor en Perú hoy, miércoles 19 de noviembre: reportes de los últimos sismos**: [Link](https://elcomercio.pe/respuestas/temblor-hoy-en-peru-en-vivo-hora-exacta-intensidad-epicentro-y-magnitud-del-ultimo-sismo-reportado-el-18-y-19-de-noviembre-de-2025-segun-igp-instituto-geofisico-del-peru-lima-callao-ica-lbposting-noticia/)
+- **Un sismo de magnitud 4.1 remeció la región Arequipa esta mañana**: [Link](https://rpp.pe/peru/arequipa/arequipa-sismo-de-magnitud-41-remecio-la-region-esta-manana-noticia-1664406)
+- **Sismo remece Perú esta mañana: Este es el epicentro y la magnitud del temblor sentido HOY, 19 de noviembre**: [Link](https://www.exitosanoticias.pe/actualidad/sismo-remece-peru-esta-manana-epicentro-magnitud-temblor-sentido-hoy-19-noviembre-n163035)
+
+
+### que se celebra hoy (N/A, 19/11/2025 11:33 Lima)
+
+- **Santoral: cuál es el santo de este 19 de noviembre**: [Link](https://www.infobae.com/noticias/2025/11/18/santoral-cual-es-el-santo-de-este-19-de-noviembre/)
+- **Santa Matilde Von Hackerborn, entra al monasterio a los 7 años, y luego se hace maestra de místicos**: [Link](https://es.gaudiumpress.org/content/santa-matilde-von-hackerborn-entra-al-monasterio-a-los-7-anos-y-luego-se-hace-maestra-de-misticos/)
+- **¿Qué santos se celebran hoy, miércoles 19 de noviembre de 2025?**: [Link](https://www.elconfidencialdigital.com/religion/articulo/santoral/que-santos-celebran-hoy-miercoles-19-noviembre-2025/20251119044218054413.html)
+
+
+### bn (N/A, 19/11/2025 11:33 Lima)
+
+- **Oracle is already underwater on its ‘astonishing’ $300bn OpenAI deal**: [Link](https://www.ft.com/content/064bbca0-1cb2-45ab-85f4-25fdfc318d89)
+- **The most important chart in AI today? Oracle’s default swaps blow out**: [Link](https://finance.yahoo.com/news/most-important-chart-ai-today-181906112.html)
+- **Oracle’s stock could surge 80%, says this analyst who predicts a major rebound**: [Link](https://www.marketwatch.com/story/oracles-stock-could-surge-80-says-this-analyst-who-predicts-a-major-rebound-889bb895?gaa_at=eafs&gaa_n=AWEtsqelzz3uCx8NkhyPLsNYQUrLRt0wpmef6ItWqtTfD_igT5UURxmMltgW&gaa_ts=691df4d9&gaa_sig=BZEUywFiqMnjBID6LEZOrb-E4s_rDgojsyoxd-k_PsJdL7CT0bObyFFRWgEfauiP8DqZHkjT0KWGN6q3TU7MtA%3D%3D)
+
+
+### black friday (N/A, 19/11/2025 11:33 Lima)
+
+- **Black Friday is next week: Retail experts say these will be the best deals to shop**: [Link](https://www.yahoo.com/lifestyle/deals/article/black-friday-is-next-week-retail-experts-say-these-will-be-the-best-deals-to-shop-154759080.html)
+- **The best Black Friday and Cyber Monday home deals in the US – so far**: [Link](https://www.theguardian.com/thefilter-us/2025/nov/18/best-black-friday-cyber-monday-home-deals)
+- **Black Friday is just 11 days away. Our experts found the 73 best early deals**: [Link](https://www.cnn.com/cnn-underscored/deals/best-early-black-friday-deals-2025-11-17)
+
+
 ### que se celebra hoy 19 de noviembre (N/A, 19/11/2025 07:52 Lima)
 
 - **Día de Santo Profeta Abdías: la oración para tener su guía y protección este miércoles**: [Link](https://www.cronista.com/mexico/espiritualidad/dia-de-santo-profeta-abdias-la-oracion-para-tener-su-guia-y-proteccion-este-miercoles/)
@@ -989,47 +1031,5 @@ Sin noticias relacionadas disponibles.
 - **Valentina Shevchenko | An Entirely Different Approach**: [Link](https://www.ufc.com/news/valentina-shevchenko-an-entirely-different-approach-vechain-ufc-322)
 - **Zhang Weili explains why she vacated title ahead of UFC 322 super-fight vs. Valentina Shevchenko**: [Link](https://bloodyelbow.com/2025/11/15/zhang-weili-explains-why-she-vacated-title-ahead-of-ufc-322-super-fight-vs-valentina-shevchenko/)
 - **Valentina Shevchenko on Martial Arts: Beauty, Evolution, and Her Fight with Zhang Weili**: [Link](https://bvmsports.com/2025/11/14/valentina-shevchenko-on-martial-arts-beauty-evolution-and-her-fight-with-zhang-weili/)
-
-
-### serbia vs (N/A, 15/11/2025 23:29 Lima)
-
-- **Comments and predictions for Serbia vs Latvia: Defeat the away team**: [Link](https://baonghean.vn/en/nhan-dinh-du-doan-serbia-vs-latvia-danh-guc-doi-khach-10311513.html)
-- **Serbia vs Latvia Prediction and Betting Tips | November 16th 2025**: [Link](https://www.sportskeeda.com/football/serbia-vs-latvia-prediction-betting-tips-november-16th-2025)
-- **Preview:Serbia vs Latvia - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/serbia/world-cup-2026/preview/serbia-vs-latvia-prediction-team-news-lineups_585720.html)
-
-
-### espn (N/A, 15/11/2025 23:29 Lima)
-
-- **South Africa fight back as India slump to 138/4 at lunch; Gill retires hurt**: [Link](https://www.msn.com/en-in/sports/cricket/south-africa-fight-back-as-india-slump-to-138-4-at-lunch-gill-retires-hurt/ar-AA1Qu5M6)
-- **Shubman Gill hospitalised, to play no further part in Kolkata Test**: [Link](https://www.cricbuzz.com/cricket-news/136339/shubman-gill-hospitalised-to-play-no-further-part-in-kolkata-test)
-- **IND vs SA: Shubman Gill in hospital after neck injury, ruled out of first Test**: [Link](https://www.indiatoday.in/sports/cricket/story/india-vs-south-africa-shubman-gill-ruled-out-neck-injury-bcci-update-kolkata-2820605-2025-11-16)
-
-
-### son del duke (N/A, 15/11/2025 23:29 Lima)
-
-- **Son del Duke dejó en shock a fans al presentar a Nickol Sinchi como su nueva integrante**: [Link](https://www.oigo.com/noticias/musica/son-del-duke-dejo-en-shock-a-fans-al-presentar-a-nickol-sinchi-como-su-nueva-integrante-viral-tiktok-video/)
-- **Nickol Sinchi sería la nueva integrante de Son del Duke y causa revuelo en 'Esta Noche' tras renuncia masiva de sus cantantes**: [Link](https://larepublica.pe/espectaculos/2025/11/14/nickol-sinchi-seria-la-nueva-integrante-de-son-del-duke-y-causa-revuelo-en-esta-noche-tras-renuncia-masiva-de-sus-cantantes-508620)
-- **¡Nueva voz! Nickol Sinchi será presentada oficialmente como parte de Son del Duke en 'Esta Noche'**: [Link](https://lakaribena.com.pe/cumbia/nueva-voz-nickol-sinchi-sera-presentada-oficialmente-como-parte-son-duke-esta-noche-n29019)
-
-
-### leon edwards (N/A, 15/11/2025 23:29 Lima)
-
-- **Carlos Prates believes he can leapfrog Ian Machado Garry for title shot after UFC 322**: [Link](https://sports.yahoo.com/article/carlos-prates-believes-leapfrog-ian-190000060.html)
-- **'Time off' - Leon Edwards reveals social media detox crushing UFC loss**: [Link](https://www.the-sun.com/sport/15479060/leon-edwards-ufc-322-prates-fightsocial-media-detox/)
-- **‘Like he hits people with a taser’: Pros react to Carlos Prates’ electrifying knockout of Leon Edwards at UFC 322**: [Link](https://www.mmafighting.com/ufc/456616/like-he-hits-people-with-a-taser-pros-react-to-carlos-prates-electrifying-knockout-of-leon-edwards-at-ufc-322)
-
-
-### nba (N/A, 15/11/2025 23:29 Lima)
-
-- **NBA seeks cell phones from multiple teams, including Lakers, in gambling investigation: Sources - The Athletic**: [Link](https://www.nytimes.com/athletic/6810632/2025/11/15/lakers-nba-gambling-investigation-congress-damon-jones/)
-- **Investigators expected to seek documents, including cell phones and phone records, from at least 10 Lakers employees**: [Link](https://www.hoopshype.com/story/sports/nba/2025/11/15/investigators-expected-documents-including-cell-phones-phone-records-from-least-lakers-employees/87298410007/)
-- **NBA’s Silver faces deadline to respond to Cruz panel on gambling controversy**: [Link](https://thehill.com/homenews/senate/5598747-senate-panel-investigates-nba/)
-
-
-### benoît saint denis (N/A, 15/11/2025 23:29 Lima)
-
-- **Https://www.lequipe.fr/Mma/actu-en-direct/suivez-l-ufc-322-en-direct-live/17524**: [Link](https://www.lequipe.fr/Mma/Actualites/Benoit-saint-denis-surclasse-beneil-dariush-en-16-secondes-par-k-o-a-l-ufc-322/1610149)
-- **UFC 322 : À quelle heure le combat de BSD est-il prévu ?**: [Link](https://lasueur.com/ufc-322-heure-combat-bsd-prevu-15-11-2025)
-- **MMA. Le Nîmois Saint-Denis de retour pour un combat aux États-Unis**: [Link](https://www.lagazettedenimes.fr/sport/2025-11-15-mma-le-nimois-saint-denis-de-retour-pour-un-combat-aux-etats-unis/)
 
 
