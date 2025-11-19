@@ -1,3 +1,73 @@
+### paraguay vs (N/A, 18/11/2025 20:55 Lima)
+
+- **Gustavo Gómez hoy: Por qué no juega en el Paraguay vs México**: [Link](https://www.365scores.com/es/news/gustavo-gomez-hoy-no-juega-vs-mexico/)
+- **Paraguay ningunea a México; Gustavo Alfaro le daría descanso a varias figuras**: [Link](https://www.soyfutbol.com/internacional/paraguay-ningunea-a-mexico-gustavo-alfaro-le-daria-descanso-a-varias-figuras-20251118-0030.html)
+- **Julio Enciso hoy: Por qué no juega en el Paraguay vs México**: [Link](https://www.365scores.com/es/news/julio-enciso-hoy-no-juega-vs-mexico/)
+
+
+### panamá - el salvador (N/A, 18/11/2025 20:55 Lima)
+
+- **¿A qué hora ver partido Panamá vs. El Salvador HOY por Eliminatorias Concacaf 2025 en California, Florida y Texas?**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/a-que-hora-ver-panama-vs-el-salvador-en-vivo-hoy-18-de-noviembre-por-eliminatorias-concacaf-2025-en-california-florida-y-texas-nnda-nnrt-noticia/)
+- **Panamá vs El Salvador: Resultado EN VIVO, minuto a minuto y goles de las Eliminatorias Concacaf**: [Link](https://www.365scores.com/es/news/panama-vs-el-salvador-resultado-vivo/)
+- **Nathan Ordaz se ausenta en el último pulso eliminatorio de El Salvador**: [Link](https://as.com/us/futbol/nathan-ordaz-se-ausenta-en-el-ultimo-pulso-eliminatorio-de-el-salvador-f202511-n/)
+
+
+### ecuador vs (N/A, 18/11/2025 20:55 Lima)
+
+- **¿Por qué Enner Valencia no jugará para Ecuador vs. Nueva Zelanda?**: [Link](https://www.espn.com.ar/futbol/mundial/nota/_/id/15968952/por-que-no-juega-enner-valencia-para-ecuador-vs-nueva-zelanda)
+- **Canal para ver Ecuador vs. Nueva Zelanda: horarios de TV por amistoso FIFA**: [Link](https://depor.com/futbol-internacional/resto-del-mundo/ecuador-vs-nueva-zelanda-fecha-canales-de-tv-y-horarios-donde-ver-transmision-gratis-por-el-canal-del-futbol-ecdf-y-zapping-por-amistoso-fifa-noticia/)
+- **¡Última hora! La Selección de Ecuador estaría en el Bombo 2 del Mundial 2026 gracias a Escocia**: [Link](https://bolavip.com/mundial/ultima-hora-la-seleccion-de-ecuador-estaria-en-el-bombo-2-del-mundial-2026-gracias-a-escocia)
+
+
+### jamaica - curazao (N/A, 18/11/2025 20:55 Lima)
+
+- **Jamaica - Curazao, en vivo: clasificación Concacaf al Mundial 2026, hoy en directo**: [Link](https://as.com/futbol/internacional/jamaica-curazao-en-vivo-clasificacion-concacaf-al-mundial-2026-hoy-en-directo-f202511-d/)
+- **Jamaica pone su esperanza en el fútbol: "Necesitamos que llegue el partido"**: [Link](https://www.marca.com/futbol/mundial/2025/11/18/jamaica-pone-esperanza-futbol-necesitamos-llegue-partido.html)
+- **"Por esto me fui del Manchester United": el ex asistente del United, Steve McClaren, afirma que el partido contra Jamaica en el Mundial es un desafío que aceptó**: [Link](https://tribuna.com/es/news/2025-11-17-por-esto-me-fui-del-manchester-united-el-ex-asistente-del-united-steve-mcclaren-afirma-qu/)
+
+
+### usa vs (N/A, 18/11/2025 20:55 Lima)
+
+- **National team visit highlights Tampa’s deep soccer roots and growing youth movement**: [Link](https://www.tampabay28.com/news/region-hillsborough/national-team-visit-highlights-tampas-deep-soccer-roots-and-growing-youth-movement)
+- **WATCH: Sebastian Berhalter nets first USMNT goal and sets up Alex Freeman’s first international goal on two stunning set pieces**: [Link](https://www.goal.com/en-gb/lists/watch-sebastian-berhalter-nets-first-usmnt-goal-and-sets-up-alex-freeman-s-first-international-goal-on-two-stunning-set-pieces/bltbbfa95ef6e251abe)
+- **USA Coach Mauricio Pochettino Lauds 'Hero' Marcelo Bielsa Ahead of Reunion With Uruguay Boss**: [Link](https://www.foxsports.com/stories/soccer/usa-coach-mauricio-pochettino-lauds-hero-marcelo-bielsa-ahead-reunion-uruguay-boss)
+
+
+### venezuela - canadá (N/A, 18/11/2025 20:55 Lima)
+
+- **A qué hora juega Venezuela vs Canadá HOY: partido amistoso en Florida por fecha FIFA 2025**: [Link](https://www.infobae.com/peru/deportes/2025/11/17/a-que-hora-juega-venezuela-vs-canada-partido-amistoso-florida-fecha-fifa-2025-horario/)
+- **Amistoso internacional: Venezuela se enfrentará ante Canadá en un amistoso**: [Link](https://rpp.pe/futbol/ligas-internacionales/amistoso-internacional-venezuela-se-enfrentara-ante-canada-en-un-amistoso-noticia-1664163)
+- **Dónde ver Venezuela vs. Canadá por amistoso desde Florida**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/donde-ver-venezuela-vs-canada-hoy-en-vivo-canal-que-transmite-el-partido-amistoso-noticia/)
+
+
+### colombia - australia (N/A, 18/11/2025 20:55 Lima)
+
+- **La posible alineación de Colombia vs Australia en amistoso de fecha FIFA**: [Link](https://www.espn.com.co/futbol/mundial/nota/_/id/15971662/equipo-seleccion-colombia-vs-australia-alineacion)
+- **Amistoso internacional: Se enfrentan Colombia y Australia en duelo amistoso**: [Link](https://rpp.pe/futbol/ligas-internacionales/amistoso-internacional-se-enfrentan-colombia-y-australia-en-duelo-amistoso-noticia-1664156)
+- **La Selección Colombia juega su último partido del 2025 contra Australia, en Nueva York: esta es la alineación confirmada**: [Link](https://www.eltiempo.com/deportes/futbol-internacional/la-seleccion-colombia-juega-su-ultimo-partido-del-2025-contra-australia-en-nueva-york-esta-es-la-alineacion-confirmada-3509912)
+
+
+### guatemala vs (N/A, 18/11/2025 20:55 Lima)
+
+- **📺 Canales TV para mirar Guatemala - Surinam EN VIVO EN DIRECTO por Eliminatorias Concacaf en USA y México**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/que-canal-transmite-guatemala-vs-surinam-en-vivo-hoy-por-eliminatorias-concacaf-2025-en-eeuu-y-mexico-canales-tv-online-nnda-nnrt-noticia/)
+- **Luis Fernando Tena cierra la eliminatoria mundialista: "Pensamos en reivindicarnos con la afición"**: [Link](https://www.espn.com.pe/futbol/guatemala/nota/_/id/15972099/luis-fernando-tena-cierra-eliminatoria-mundialista-pensamos-reivindicarnos-aficion)
+- **⏰ A qué hora ver Guatemala vs. Surinam EN VIVO HOY por Eliminatorias Concacaf 2025 en EE.UU.**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/a-que-hora-juega-guatemala-vs-surinam-en-vivo-hoy-18-de-noviembre-por-eliminatorias-concacaf-2025-en-eeuu-horarios-de-california-florida-y-texas-nnda-nnrt-noticia/)
+
+
+### estados unidos (N/A, 18/11/2025 20:55 Lima)
+
+- **La ley que fuerza a Trump a publicar los papeles de Epstein sale adelante en la Cámara de Representantes con un solo voto en contra**: [Link](https://elpais.com/internacional/2025-11-18/la-camara-de-representantes-aprueba-con-un-solo-voto-en-contra-la-ley-que-exige-a-trump-la-publicacion-de-los-papeles-de-epstein.html)
+- **La perspectiva de una derrota humillante convenció a Trump de dar marcha atrás en el caso de los archivos de Epstein**: [Link](https://cnnespanol.cnn.com/2025/11/18/eeuu/perspectiva-derrota-trump-archivos-epstein-trax)
+- **Congreso de EE.UU. aprueba publicar archivos de Epstein**: [Link](https://www.dw.com/es/congreso-de-eeuu-aprueba-publicar-archivos-de-epstein/a-74798643)
+
+
+### méxico - paraguay (N/A, 18/11/2025 20:55 Lima)
+
+- **México: Aguirre y Márquez se reencuentran con Paraguay tras 24 años**: [Link](https://www.espn.com.ar/futbol/selecciones/nota/_/id/15972457/mexico-vs-paraguay-javier-aguirre-rafa-marquez-reencuentro)
+- **Transmisión EN VIVO del México vs Paraguay hoy: cómo mirar el partido por TV o streaming**: [Link](https://www.365scores.com/es/news/mexico-vs-paraguay-como-ver-transmision/)
+- **Amistoso internacional: México y Paraguay se miden en un partido amistoso**: [Link](https://rpp.pe/futbol/ligas-internacionales/amistoso-internacional-mexico-y-paraguay-se-miden-en-un-partido-amistoso-noticia-1664162)
+
+
 ### san marino (N/A, 18/11/2025 15:29 Lima)
 
 - **Preview:Romania vs San Marino - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/romania/world-cup/preview/romania-vs-san-marino-prediction-team-news-lineups_585829.html)
@@ -960,74 +1030,5 @@ Sin noticias relacionadas disponibles.
 - **México logra un punto fundamental en la Billie Jean King Cup**: [Link](https://canaltenis.com/mexico-dinamarca-billie-jean-king-cup-2025/)
 - **Renata Zarazúa impulsa triunfo en Monterrey**: [Link](https://laverdadnoticias.com/sport-judge/renata-zarazua-20251115)
 - **Agustín el ‘Bebé’ Moreno, confía en el factor de la localía: “jugar en casa es una motivación extra”**: [Link](https://esto.com.mx/940275-agustin-moreno-confia-en-el-factor-de-la-localia-en-la-billie-jean-king-cup/)
-
-
-### suiza (N/A, 15/11/2025 15:24 Lima)
-
-- **Suiza promete inversiones de USD 200.000 millones en EE. UU.**: [Link](https://www.dw.com/es/suiza-promete-inversiones-de-200000-millones-de-d%C3%B3lares-en-estados-unidos/a-74753869)
-- **Estados Unidos alcanza un acuerdo para rebajar los aranceles de Suiza del 39% al 15%**: [Link](https://elpais.com/internacional/2025-11-14/estados-unidos-rebaja-los-aranceles-de-suiza-del-39-al-15.html)
-- **El propietario de Cartier predice que EEUU pronto rebajará los aranceles punitivos a Suiza**: [Link](https://www.expansion.com/economia/financial-times/2025/11/14/69173cbde5fdea36288b456f.html)
-
-
-### flow la fama (N/A, 15/11/2025 15:24 Lima)
-
-- **Capturan a 'Flow La Fama', presunto autor intelectual del asesinato de los cantantes urbanos '26is' y 'Louis Producer' en VMT**: [Link](https://larepublica.pe/sociedad/2025/11/15/capturan-a-flow-la-fama-presunto-autor-intelectual-del-doble-asesinato-de-los-cantantes-urbanos-26is-y-louis-producer-en-vmt-575085)
-- **PNP captura a sospechoso de doble crimen urbano**: [Link](https://gacetaperutv.pe/2025/11/pnp-captura-a-sospechoso-de-doble-crimen-urbano.html)
-
-
-### kosovo vs (N/A, 15/11/2025 15:24 Lima)
-
-- **Watch Slovenia vs Kosovo: TV & streaming info as both sides still have hopes of World Cup qualification**: [Link](https://www.fourfourtwo.com/team/watch-slovenia-vs-kosovo-tv-and-streaming-info-as-both-sides-still-have-hopes-of-world-cup-qualification)
-- **Lladrovci follows the Slovenia-Kosovo match: Victory is our motto from this match**: [Link](https://www.gazetaexpress.com/en/Lladrovci-is-following-the-Slovenia-Kosovo-match.-Victory-is-our-word-from-this-match./)
-- **The Dardanians held their last training session before leaving for Ljubljana.**: [Link](https://telegrafi.com/en/The-Dardanians-conducted-their-last-training-before-departing-for-Ljubljana./)
-
-
-### alianza lima vs universitario femenino (N/A, 15/11/2025 15:24 Lima)
-
-- **Alianza Lima vs Universitario: ¿Qué resultados necesitan para coronarse campeón de la Liga Femenina 2025?**: [Link](https://www.infobae.com/peru/deportes/2025/11/15/alianza-lima-vs-universitario-que-resultados-necesitan-para-coronarse-campeon-de-la-liga-femenina-2025/)
-- **Alianza Lima vs. Universitario Femenino en vivo: a qué hora juegan y dónde ver la final de vuelta del Clausura**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/ver-alianza-lima-vs-universitario-femenino-en-vivo-online-gratis-via-america-tv-canal-4-movistar-deportes-futbol-libre-tv-a-que-hora-juegan-canal-que-transmite-y-donde-ver-por-torneo-clausura-de-liga-femenina-video-noticia/)
-- **Franco Velazco envió tremendo 'dardo' contra Alianza Lima: "De un tiempo a esta parte, se caracterizan por las quejas"**: [Link](https://rpp.pe/futbol/descentralizado/universitario-franco-velazco-sobre-el-reclamo-de-alianza-lima-de-un-tiempo-a-esta-parte-se-caracterizan-por-las-quejas-noticia-1663937)
-
-
-### uruguay vs (N/A, 15/11/2025 15:24 Lima)
-
-- **México vs. Uruguay: posibles alineaciones, partido amistoso**: [Link](https://www.espn.com.ar/futbol/selecciones/nota/_/id/15955951/mexico-vs-uruguay-alineaciones-formaciones-amistoso-2025)
-- **Amistoso internacional: México y Uruguay juegan un duelo amistoso**: [Link](https://rpp.pe/futbol/ligas-internacionales/amistoso-internacional-mexico-y-uruguay-juegan-un-duelo-amistoso-noticia-1663841)
-- **México vs Uruguay: Apuestas, Pronóstico y Cuotas**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/2025/noviembre/pronostico-mexico-vs-uruguay-15-11-25)
-
-
-### georgia - españa (N/A, 15/11/2025 11:26 Lima)
-
-- **Huijsen, en riesgo de dejar la concentración**: [Link](https://as.com/futbol/seleccion/samu-y-de-frutos-descartes-ante-georgia-f202511-n/)
-- **Georgia - España en directo | Clasificación al Mundial hoy en vivo**: [Link](https://www.marca.com/futbol/clasificacion-al-mundial-uefa/georgia-espana/2025/11/15/01_0116_20251115_520_118-directo.html)
-- **De la Fuente descarta a tres jugadores, con Huijsen como gran sorpresa**: [Link](https://www.mundodeportivo.com/seleccion-espanola/20251115/1002569597/son-tres-descartes-luis-fuente-gran-sorpresa.html)
-
-
-### brazil vs (N/A, 15/11/2025 11:26 Lima)
-
-- **Brazil vs Senegal – Predicted lineup and team news**: [Link](https://thefootballfaithful.com/brazil-vs-senegal-predicted-lineup-and-team-news/)
-- **Brazil training at Emirates ahead of Senegal clash**: [Link](https://sports.yahoo.com/video/brazil-training-emirates-ahead-senegal-182224909.html)
-- **Brazil vs. Senegal: Livestream International Friendly Soccer From Anywhere For Free**: [Link](https://www.cnet.com/tech/services-and-software/brazil-vs-senegal-livestream-international-friendly-soccer-from-anywhere-for-free/)
-
-
-### barcelona femenino (N/A, 15/11/2025 11:26 Lima)
-
-- **Barcelona - Real Madrid, en directo: Liga F hoy en vivo**: [Link](https://as.com/futbol/femenino/barcelona-real-madrid-en-directo-liga-f-hoy-en-vivo-f202511-d/)
-- **Romeu, a por la revancha del Barça ante el Madrid sin Aitana en el once**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20251115/1002569732/romeu-revancha-barca-madrid-aitana-once.html)
-- **Barcelona - Real Madrid, en directo hoy: resultado y goles del Clásico de la Liga F**: [Link](https://www.sport.es/es/noticias/barca/futbol-femenino/barcelona-real-madrid-directo-hoy-123753069)
-
-
-### chile (N/A, 15/11/2025 11:26 Lima)
-
-- **Temblor en Chile hoy, sábado 15 de noviembre: reportes de los últimos sismos según el CSN**: [Link](https://elcomercio.pe/respuestas/chile/temblor-en-chile-en-vivo-cual-es-la-magnitud-epicentro-intensidad-del-ultimo-sismo-reportado-el-14-y-15-de-noviembre-segun-csn-centro-sismologico-nacional-santiago-socaire-lbposting-noticia/)
-- **Sismo remeció al norte del país: Revisa la magnitud y el epicentro**: [Link](https://www.chilevision.cl/noticias/nacional/sismo-remecio-al-norte-del-pais-revisa-la-magnitud-y-el-epicentro)
-- **Terremoto moderado mag. 4.1 - Atacama, Chile, sábado 15 nov 2025 a las 03:34 (GMT -3)**: [Link](https://www.volcanodiscovery.com/es/sismos/informe-sismo/22395770/mag4quake-Nov-15-2025-Offshore-Atacama-Chile.html)
-
-
-### sinner vs (N/A, 15/11/2025 11:26 Lima)
-
-- **ATP Finals tennis: Sinner beats De Minaur before Alcaraz faces Auger-Aliassime – live**: [Link](https://www.theguardian.com/sport/live/2025/nov/15/atp-finals-tennis-jannik-sinner-alex-de-minaur-carlos-alcaraz-felix-auger-aliassime-live)
-- **Nitto ATP Finals Betting Odds and Match Previews for November 15, 2025, Men's Singles**: [Link](https://sportsbookwire.usatoday.com/story/sports/sports-betting/2025/11/15/nitto-atp-finals-betting-odds-favorites-match-previews-11-14-2025-mens/87285842007/)
-- **Jannik Sinner beats Alex de Minaur to reach ATP Finals championship match**: [Link](https://www.eagletribune.com/jannik-sinner-beats-alex-de-minaur-to-reach-atp-finals-championship-match/article_49a7824d-d864-561e-a3ed-a5fc4e1d2c6b.html)
 
 
