@@ -1,3 +1,43 @@
+### cometa 3i atlas nasa (N/A, 20/11/2025 03:34 Lima)
+
+- **NASA revela imágenes inéditas del cometa interestelar 3I/ATLAS**: [Link](https://elperuano.pe/noticia/283389-nasa-revela-imagenes-ineditas-del-cometa-interestelar-3iatlas)
+- **Misterios de 3I/Atlas: ¿objeto interestelar o tecnología desconocida?**: [Link](https://www.tvperu.gob.pe/novedades/hora-contacto/misterios-de-3iatlas-objeto-interestelar-o-tecnologia-desconocida)
+- **El cometa interestelar 3I/ATLAS vuelve a ser visible y podrás verlo en vivo: así puedes seguir la transmisión**: [Link](https://elcomercio.pe/mag/respuestas/ciencias/ver-en-vivo-el-cometa-interestelar-3iatlas-asi-puedes-seguir-la-transmision-en-directo-nnda-nnrt-noticia/)
+
+
+### chicago bulls (N/A, 20/11/2025 03:34 Lima)
+
+- **Final Injury Report for Bulls-Trail Blazers, Will Coby White, Jrue Holiday Play?**: [Link](https://athlonsports.com/nba/chicago-bulls/final-injury-report-for-bulls-trail-blazers-will-coby-white-jrue-holiday-play)
+- **Trail Blazers' Shaedon Sharpe: Doubtful for Wednesday**: [Link](https://www.cbssports.com/fantasy/basketball/news/trail-blazers-shaedon-sharpe-doubtful-for-wednesday/)
+- **NBA Best Bets: Bulls at Trail Blazers Prop Bets for Wednesday 11/19/25**: [Link](https://dknetwork.draftkings.com/2025/11/19/nba-best-bets-bulls-at-trail-blazers-prop-bets-for-wednesday-11-19-25/)
+
+
+### 20 de noviembre (N/A, 20/11/2025 03:34 Lima)
+
+- **BIST 100 gana terreno durante la apertura de la jornada de este 20 de noviembre**: [Link](https://www.infobae.com/noticias/2025/11/20/bist-100-gana-terreno-durante-la-apertura-de-la-jornada-de-este-20-de-noviembre/)
+- **Las bolsas de valores de Turquía cerraron con subidas; el BIST 100 ganó un 1.63%**: [Link](https://mx.investing.com/news/stock-market-news/las-bolsas-de-valores-de-turquia-cerraron-con-subidas-el-bist-100-gano-un-163-3382425)
+- **Caída del BIST 100 presiona a las bolsas de valores de Turquía**: [Link](https://mercadoemergente.com/caida-del-bist-100-presiona-a-las-bolsas-de-valores-de-turquia/14380)
+
+
+### miss universo 2025 fecha y hora (N/A, 20/11/2025 03:34 Lima)
+
+- **Preliminar del Miss Universo 2025: cuándo y a qué hora ver la previa al certamen de belleza desde Perú**: [Link](https://www.infobae.com/peru/2025/11/18/preliminar-del-miss-universo-2025-cuando-y-a-que-hora-es-la-previa-al-certamen-de-belleza/)
+- **¿Qué canal transmite la final del Miss Universo 2025 este jueves 20 de noviembre en México, USA y resto de Latinoamérica?**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/que-canal-transmite-final-del-miss-universo-2025-en-vivo-hoy-en-mexico-usa-y-resto-de-paises-en-latinoamerica-canales-de-tv-abierta-y-streaming-online-nnda-nnrt-noticia/)
+- **A qué hora es la ceremonia de elección y coronación de Miss Universo 2025 este jueves 20 de noviembre y dónde verla en vivo**: [Link](https://www.clarin.com/internacional/hora-empieza-miss-universo-jueves-20-noviembre-ver-vivo_0_AnFIFDPGjo.html)
+
+
+### trail blazers - bulls (N/A, 20/11/2025 03:34 Lima)
+
+- **Portland Trail Blazers “no-YES-no” Their Way To Defeat**: [Link](https://www.blazersedge.com/gameday-coverage/105562/portland-trail-blazers-no-yes-no-their-way-to-defeat-chicago-bulls)
+- **Giddey's Bulls get out of jail with buzzer-beating win**: [Link](https://aapnews.aap.com.au/news/giddey-s-bulls-get-out-of-jail-with-buzzer-beating-win)
+- **NIKOLA VUCEVIC CALLED GAME IN PORTLAND 🤯 #nba #gamewinner #buzzerbeater #highlights #chicagobulls**: [Link](https://bvmsports.com/2025/11/20/nikola-vucevic-called-game-in-portland-%F0%9F%A4%AF-nba-gamewinner-buzzerbeater-highlights-chicagobulls/)
+
+
+### junior vs (N/A, 20/11/2025 03:34 Lima)
+
+- **Arias y el por qué no jugó Teo vs DIM: "No iba a poder defender"**: [Link](https://www.espn.com.pe/futbol/colombia/nota/_/id/15981012/arias-y-el-por-que-no-jugo-teo-vs-dim-no-iba-a-poder-defender)
+
+
 ### liga brasileña (N/A, 19/11/2025 23:28 Lima)
 
 - **Neymar: gol, pifia y pesadilla**: [Link](https://as.com/futbol/internacional/neymar-gol-pifia-y-pesadilla-f202511-n/)
@@ -989,47 +1029,5 @@ Sin noticias relacionadas disponibles.
 - **Nigeria y RD Congo, que eliminó a Camerún, jugarán la final de los playoffs rumbo al repechaje**: [Link](https://www.espn.com.pe/futbol/mundial/nota/_/id/15955003/nigeria-vs-rd-congo-final-playoffs-repechaje-eliminatorias-africa-mundial-2026)
 - **Nigeria vs. RD Congo EN VIVO vía FIFA+: juegan por la clasificación al repechaje del Mundial 2026**: [Link](https://rpp.pe/futbol/eliminatorias/nigeria-vs-congo-en-vivo-a-que-hora-juegan-y-donde-ver-final-playoffs-eliminatorias-caf-por-repechaje-al-mundial-2026-link-gratis-partidos-de-hoy-noticia-1664007)
 - **Resultado en vivo de Nigeria vs.Gabón: actualizaciones de los playoffs de clasificación para la Copa Mundial de la CAF, momentos destacados, las Super Águilas compiten por el puesto final**: [Link](https://www.ucvradio.pe/mas-actualidad/resultado-en-vivo-de-nigeria-vs-gabon-actualizaciones-de-los-playoffs-de-clasificacion-para-la-copa-mundial-de-la-caf-momentos-destacados-las-super-aguilas-compiten-por-el-puesto-final/48398/)
-
-
-### israel (N/A, 16/11/2025 15:25 Lima)
-
-- **The UN’s Western Sahara vote marks a diplomatic ‘Green March’**: [Link](https://www.atlanticcouncil.org/blogs/menasource/the-uns-western-sahara-vote-marks-a-diplomatic-green-march/)
-- **Western Sahara: a solution to the dispute over territorial integrity, not a process of decolonisation**: [Link](https://www.atalayar.com/en/opinion/jamal-eddine-mechbal/western-sahara-solution-to-the-dispute-over-territorial-integrity-not-process-of-decolonisation/20251116140000220396.html)
-- **Western Sahara Shows Israel the Way**: [Link](https://blogs.timesofisrael.com/western-sahara-shows-israel-the-way/)
-
-
-### noruega vs. estonia (N/A, 16/11/2025 15:25 Lima)
-
-- **Haaland, energía atómica en el Mundial**: [Link](https://as.com/opinion/haaland-energia-atomica-en-el-mundial-f202511-n/)
-- **Haaland alcanza los 30 goles esta temporada**: [Link](https://www.mundodeportivo.com/futbol/internacional/20251114/1002569239/haaland-alcanza-30-goles-temporada.html)
-- **Noruega goleó a Estonia y quedó a un paso del Mundial después de 28 años**: [Link](https://www.espn.com.ar/futbol/mundial/nota/_/id/15946922/noruega-vs-estonia-eliminatorias-uefa-equipo-fecha-hora-y-tv-en-vivo)
-
-
-### italia - noruega (N/A, 16/11/2025 15:25 Lima)
-
-- **Noruega quiere cortar su sequía mundialista ante una Italia que necesita un milagro**: [Link](https://www.espn.com.ar/futbol/selecciones/nota/_/id/15956799/italia-vs-noruega-eliminatorias-mundial-2026-equipo-fecha-hora-y-tv-en-vivo)
-- **Italia vs Noruega: Apuestas, Pronóstico y Cuotas**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/internacional/2025/noviembre/pronostico-italia-vs-noruega-16-11-25)
-- **Italia se asoma al abismo: solo un milagro evita otra repesca**: [Link](https://www.sport.es/es/noticias/futbol-internacional/italia-asoma-abismo-milagro-evita-123763522)
-
-
-### nigeria vs (N/A, 16/11/2025 15:25 Lima)
-
-- **Nigeria vs DR Congo live updates: Elia goal ties World Cup 2026 qualifier CAF final - The Athletic**: [Link](https://www.nytimes.com/athletic/live-blogs/nigeria-vs-drcongo-live-updates-world-cup-2026-qualifier-score-result/8DFtmMyja5bg/)
-- **LIVE: Nigeria vs DR Congo – CAF World Cup qualifiers playoff final**: [Link](https://www.aljazeera.com/sports/liveblog/2025/11/16/live-nigeria-vs-dr-congo-caf-world-cup-qualifiers-playoff-final)
-- **Nigeria's Super Eagles Kick Off World Cup Playoff Final A...**: [Link](https://x.com/i/trending/1989669036087546311)
-
-
-### azerbaiyán - francia (N/A, 16/11/2025 11:27 Lima)
-
-- **Azerbaiyán - Francia, en directo: clasificación al Mundial 2026, en vivo hoy**: [Link](https://as.com/futbol/azerbaiyan-francia-en-directo-clasificacion-al-mundial-2026-en-vivo-hoy-f202511-d/)
-- **Una Francia descafeinada y sin Mbappé juega su último trámite ante Azerbaiyán**: [Link](https://www.mundodeportivo.com/futbol/20251116/1002569856/francia-descafeinada-mbappe-juega-ultimo-tramite-azerbaiyan.html)
-- **Pronóstico Azerbaiyán Francia - Mundial 16/11/25**: [Link](https://www.sportytrader.com/es/pronosticos/azerbaiyan-francia-305602/)
-
-
-### albania - inglaterra (N/A, 16/11/2025 11:27 Lima)
-
-- **Pronóstico Albania Inglaterra - Mundial 16/11/25**: [Link](https://www.sportytrader.com/es/pronosticos/albania-inglaterra-305436/)
-- **Inglaterra cierra su campaña en las Eliminatorias ante Albania**: [Link](https://www.espn.com.ar/futbol/mundial/nota/_/id/15954733/albania-vs-inglaterra-eliminatorias-uefa-equipo-fecha-hora-tv-en-vivo)
-- **Bellingham, Foden y el trámite de Tirana**: [Link](https://as.com/futbol/mundial/bellingham-foden-y-el-tramite-de-tirana-f202511-n/)
 
 
