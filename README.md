@@ -1,3 +1,10 @@
+### liga brasileña (N/A, 19/11/2025 23:28 Lima)
+
+- **Neymar: gol, pifia y pesadilla**: [Link](https://as.com/futbol/internacional/neymar-gol-pifia-y-pesadilla-f202511-n/)
+- **¡Santos no se rinde! El Peixe empató con Mirassol gracias a un gol de Neymar y se mantiene fuera de la zona del descenso**: [Link](https://tribuna.com/es/blogs/santos-no-se-rinde-el-peixe-empato-con-mirassol-gracias-a-un/)
+- **[VIDEO] Neymar anotó un golazo para Santos ante Mirassol en el Brasileirao**: [Link](https://cooperativa.cl/noticias/deportes/futbol/liga-brasilena/video-neymar-anoto-un-golazo-para-santos-ante-mirassol-en-el-brasileirao/2025-11-19/214510.html)
+
+
 ### junior - medellín (N/A, 19/11/2025 20:54 Lima)
 
 - **Liga BetPlay: Junior y Medellín abren el "grupo más parejo" en Cuadrangulares**: [Link](https://www.espn.com.ar/futbol/colombia/nota/_/id/15978524/liga-betplay-junior-vs-medellin-abren-el-grupo-mas-parejo-en-cuadrangulares)
@@ -1024,12 +1031,5 @@ Sin noticias relacionadas disponibles.
 - **Pronóstico Albania Inglaterra - Mundial 16/11/25**: [Link](https://www.sportytrader.com/es/pronosticos/albania-inglaterra-305436/)
 - **Inglaterra cierra su campaña en las Eliminatorias ante Albania**: [Link](https://www.espn.com.ar/futbol/mundial/nota/_/id/15954733/albania-vs-inglaterra-eliminatorias-uefa-equipo-fecha-hora-tv-en-vivo)
 - **Bellingham, Foden y el trámite de Tirana**: [Link](https://as.com/futbol/mundial/bellingham-foden-y-el-tramite-de-tirana-f202511-n/)
-
-
-### francia vs. ucrania (N/A, 16/11/2025 11:27 Lima)
-
-- **¡Mbappé al Mundial 2026! Francia se clasifica, Noruega queda a un paso y Portugal deberá esperar**: [Link](https://cnnespanol.cnn.com/2025/11/13/deportes/eliminatorias-uefa-francia-clasificado-mundial-2026-orix)
-- **Francia, ya clasificada, cierra su participación en las Eliminatorias UEFA ante Azerbaiyán**: [Link](https://www.espn.com.ar/futbol/selecciones/nota/_/id/15952152/azerbaiyan-vs-francia-eliminatorias-europeas-equipo-fecha-hora-y-tv-en-vivo)
-- **Mbappé, más rápido que Messi y Cristiano**: [Link](https://www.marca.com/futbol/real-madrid/2025/11/14/mbappe-rapido-messi-cristiano.html)
 
 
