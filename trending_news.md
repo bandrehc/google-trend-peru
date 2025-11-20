@@ -1,3 +1,69 @@
+### chelsea vs barcelona (N/A, 20/11/2025 15:28 Lima)
+
+- **Chelsea vs Barcelona LIVE: UEFA Women's Champions League watch stream, listen, live text, stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cnvelv06n3dt)
+- **Thursday’s football tips: Spot-on Barca star Putellas 7/4 to hurt Chelsea Women**: [Link](https://mrfixitstips.co.uk/thursdays-football-tips-spot-on-barca-star-putellas-7-4-to-hurt-chelsea-women/)
+- **Kerr set to be fit for Matildas despite Chelsea omission**: [Link](https://www.abc.net.au/news/2025-11-20/matildas-captain-sam-kerr-left-out-by-chelsea/106030886)
+
+
+### chelsea - barcelona (N/A, 20/11/2025 15:28 Lima)
+
+- **Chelsea - Barcelona en directo**: [Link](https://www.marca.com/futbol/champions-league-femenina/chelsea-barcelona/2025/11/20/01_0183_20251120_6275_9121-directo.html)
+- **Chelsea - Barcelona, en directo: Champions League femenina hoy en vivo**: [Link](https://as.com/futbol/femenino/chelsea-barcelona-en-directo-champions-league-femenina-hoy-en-vivo-f202511-d/)
+- **Barcelona visita a Chelsea con el recuerdo de la histórica serie de hace 16 años**: [Link](https://www.espn.com.ar/futbol/champions-league/nota/_/id/15980023/barcelona-visita-a-chelsea-con-el-recuerdo-de-la-historica-serie-de-hace-16-anos)
+
+
+### twitch (N/A, 20/11/2025 15:28 Lima)
+
+- **Twitch’s Growing Footprint Among Americans Signals Its Potential Beyond Gaming**: [Link](https://civicscience.com/twitchs-growing-footprint-among-americans-signals-its-potential-beyond-gaming/)
+
+
+### gonzalo bueno (N/A, 20/11/2025 15:28 Lima)
+
+- **Premios DT 2025: ¿‘Nacho’Buse, Gonzalo Bueno o Diego Elías? Vota aquí por la “Mejor raqueta hombre″ del año**: [Link](https://elcomercio.pe/deporte-total/premios-dt-2025-ignacio-buse-gonzalo-bueno-o-diego-elias-vota-aqui-por-la-mejor-raqueta-hombre-del-ano-noticia/)
+- **Gonzalo Bueno quedó fuera del Guayaquil Challenger tras derrota ante argentino Ambrogi**: [Link](https://ovacion.pe/noticias/tenis/gonzalo-bueno-quedo-fuera-del-guayaquil-challenger-tras-derrota-ante-argentino)
+- **Juan Pablo Varillas avanzó a los cuartos de final del Challenger de Guayaquil**: [Link](https://elcomercio.pe/deporte-total/tenis/juan-pablo-varillas-avanzo-a-los-cuartos-de-final-del-challenger-de-guayaquil-murkel-dellien-ultimas-noticia/)
+
+
+### juventude vs cruzeiro (N/A, 20/11/2025 15:28 Lima)
+
+Sin noticias relacionadas disponibles.
+
+
+### bahia vs (N/A, 20/11/2025 15:28 Lima)
+
+- **Bahia vs. Sport Recife - Boxscore - Live Score - December 03, 2025**: [Link](https://www.foxsports.com/soccer/brazil-serie-a-bahia-vs-sport-recife-dec-03-2025-game-boxscore-621647?tab=boxscore)
+- **Preview:Bahia vs Fortaleza - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/bahia/preview/bahia-vs-fortaleza-prediction-team-news-lineups_585906.html)
+- **Bahia vs Fortaleza Prediction and Betting Tips | November 20th 2025**: [Link](https://www.sportskeeda.com/football/bahia-vs-fortaleza-prediction-betting-tips-november-20th-2025)
+
+
+### karla bacigalupo miss universo (N/A, 20/11/2025 15:28 Lima)
+
+- **Karla Bacigalupo en Miss Universo 2025: los diseñadores peruanos detrás de su traje típico y vestido de gala**: [Link](https://www.infobae.com/peru/2025/11/19/karla-bacigalupo-en-miss-universo-2025-los-disenadores-peruanos-detras-de-su-traje-tipico-y-vestido-de-gala/)
+- **Miss Universo 2025, Final HOY: a qué hora inicia y dónde ver la gala con la peruana Karla Bacigalupo**: [Link](https://elcomercio.pe/respuestas/a-que-hora/final-de-miss-universo-2025-donde-ver-hora-y-todo-sobre-el-certamen-de-belleza-video-youtube-link-finalistas-tdpe-noticia/)
+- **Miss Universo 2025: así arrasó la peruana Karla Bacigalupo en el desfile de traje de baño de la preliminar**: [Link](https://rpp.pe/famosos/farandula/miss-universo-2025-la-peruana-karla-bacigalupo-arraso-en-el-desfile-de-traje-de-bano-de-la-preliminar-noticia-1664400)
+
+
+### juventude - cruzeiro (N/A, 20/11/2025 15:28 Lima)
+
+- **Por que Matheus Pereira não está jogando Juventude x Cruzeiro?**: [Link](https://www.sportingnews.com/br/futebol/noticias/cruzeiro-matheus-pereira-fora-juventude-brasileirao/15f61768b929ed42ad46e2eb)
+- **Aos 23min do 1º tempo - Kaio Jorge escorrega na frente do goleiro e perde chance**: [Link](https://ge.globo.com/futebol/video/aos-23min-do-1o-tempo-kaio-jorge-escorrega-na-frente-do-goleiro-e-perde-chance-14115544.ghtml)
+- **Juventude x Cruzeiro: escalações e onde assistir ao jogo do Brasileirão**: [Link](https://www.cnnbrasil.com.br/esportes/brasileirao/juventude-x-cruzeiro-escalacoes-e-onde-assistir-ao-jogo-do-brasileirao-2/)
+
+
+### cruzeiro vs (N/A, 20/11/2025 15:28 Lima)
+
+- **📋 Cruzeiro and Juventude line-ups confirmed for crucial BR clash**: [Link](https://ca.sports.yahoo.com/news/cruzeiro-juventude-line-ups-confirmed-180900281.html)
+- **Jardim on wasteful finishing and plans for Sinisterra**: [Link](https://onefootball.com/en/news/jardim-on-wasteful-finishing-and-plans-for-sinisterra-41937138)
+- **Juventude faces Cruzeiro in crucial Serie A clash as unbeaten streak meets survival push**: [Link](https://www.red94.net/news/98680-juventude-faces-cruzeiro-in-crucial-serie-a-clash-as-unbeaten-streak-meets-survi/)
+
+
+### rosario central (N/A, 20/11/2025 15:28 Lima)
+
+- **El pedido de Guillermo Barros Schelotto para Vélez al enterarse del título de “Campeón de Liga” que recibió Central: “Tiene que ser retroactivo”**: [Link](https://www.infobae.com/deportes/2025/11/20/el-pedido-de-guillermo-barros-schelotto-para-velez-al-enterarse-del-titulo-de-campeon-de-liga-que-recibio-central-tiene-que-ser-retroactivo/)
+- **¿Cómo será el formato de los torneos del fútbol argentino en 2026?**: [Link](https://www.espn.com.ar/futbol/argentina/nota/_/id/15982654/como-sera-formato-torneos-futbol-argentino-2026-afa)
+- **¡Sorpresivo! La AFA reconoció a Rosario Central como Campeón de Liga por liderar la tabla anual**: [Link](https://elcomercio.pe/deporte-total/argentina/liga-argentina-la-afa-reconocio-a-rosario-central-como-campeon-de-liga-por-liderar-la-tabla-anual-noticia/)
+
+
 ### gmo (N/A, 20/11/2025 11:32 Lima)
 
 - **「makeshop byGMO」において 決済フォームが一体化したLPが作成できる新アプリケーション 「LP Direct Order」を提供開始**: [Link](https://group.gmo/news/article/9776/)
@@ -959,75 +1025,5 @@ Sin noticias relacionadas disponibles.
 - **Box Score & Player Grades: Jazz 150, Bulls 147 (2OT) – November 16, 2025**: [Link](https://www.bleachernation.com/bulls/2025/11/16/bulls-147-jazz-150-2ot/)
 - **Lauri Markkanen News: Drops 47 in win**: [Link](https://www.rotowire.com/basketball/headlines/lauri-markkanen-news-drops-47-in-win-504132)
 - **Chicago in losing streak, Vučević's double-double against Utah**: [Link](https://en.vijesti.me/sports-e/basketball/783540/Chicago-in-losing-streak--Vucevic%27s-double-double-against-Utah)
-
-
-### temblor hoy (N/A, 17/11/2025 03:35 Lima)
-
-- **Temblor en Perú según el IGP: hora exacta, epicentro y magnitud del último sismo**: [Link](https://elcomercio.pe/respuestas/temblor-en-peru-hoy-ultimos-sismos-de-noviembre-en-vivo-cual-fue-la-magnitud-epicentro-y-hora-segun-reporte-del-igp-instituto-geofisico-del-peru-lima-callao-ica-lbposting-noticia/)
-- **Temblor en Perú: sismo de magnitud 4 con epicentro en Arequipa**: [Link](https://www.infobae.com/peru/2025/11/16/temblor-en-peru-sismo-de-magnitud-4-con-epicentro-en-arequipa/)
-- **Cinco sismos remecen el sur y centro del Perú en menos de 24 horas**: [Link](https://caretas.pe/nacional/cinco-sismos-remecen-el-sur-y-centro-del-peru-en-menos-de-24-horas/)
-
-
-### irlanda del norte vs (N/A, 17/11/2025 03:35 Lima)
-
-- **Irlanda del Norte vs Luxemburgo | Pronóstico y cuotas 17.11.2025**: [Link](https://www.transfermarkt.es/apuestas/pronosticos-deportivos/irlanda-del-norte-vs-luxemburgo-pronostico-apuestas-17-11-2025/)
-- **Irlanda N. vs Luxemburgo por la fase de grupos de Eliminatorias UEFA EN VIVO. Seguilo minuto a minuto por la web de TN.**: [Link](https://tn.com.ar/deportes/futbol/2025/11/17/irlanda-n-vs-luxemburgo-en-vivo-por-la-fase-de-grupos-de-las-eliminatorias-uefa-hora-donde-ver-y-formaciones/)
-- **NI ‘tiene que tener cuidado’ con las prohibiciones en los play-offs: O’Neill**: [Link](https://masmma.com.mx/futbol/ni-tiene-que-tener-cuidado-con-las-prohibiciones-en-los-play-offs-oneill/122346/)
-
-
-### mavericks - trail blazers (N/A, 16/11/2025 23:31 Lima)
-
-- **Final Injury Report for Trail Blazers-Mavericks, Will Anthony Davis, Cooper Flagg Play?**: [Link](https://athlonsports.com/nba/dallas-mavericks/final-injury-report-for-trail-blazers-mavericks-will-anthony-davis-cooper-flagg-play)
-- **Trail Blazers vs. Mavericks Prediction, Odds and Best NBA Prop Bets for Sunday, Nov. 16**: [Link](https://www.si.com/betting/trail-blazers-vs-mavericks-prediction-odds-best-nba-prop-bets-for-sunday-nov-16)
-- **Trail Blazers suffer another heartbreaker, lose to Mavericks in overtime: Rapid Reaction**: [Link](https://www.oregonlive.com/blazers/2025/11/trail-blazers-suffer-another-heartbreaker-lose-to-mavericks-in-overtime-rapid-reaction.html)
-
-
-### yolanda medina (N/A, 16/11/2025 23:31 Lima)
-
-- **“El valor de la verdad”: Yolanda Medina contará los secretos de su vida en el sillón rojo**: [Link](https://elcomercio.pe/tvmas/farandula/el-valor-de-la-verdad-yolanda-medina-contara-los-secretos-de-su-vida-en-el-sillon-rojo-ultimas-noticia/)
-- **Yolanda Medina en ‘El valor de la verdad’ EN VIVO: ¿Qué preguntas responderá y dónde ver el estreno?**: [Link](https://trome.com/espectaculos/tv/yolanda-medina-en-el-valor-de-la-verdad-en-vivo-que-preguntas-respondera-y-en-que-plataformas-ver-el-estreno-de-evdlv-marisol-alma-bella-video-farandula-noticia/)
-- **Yolanda Medina niega haberse metido en la relación de Marisol y George Núñez: "Las amantes no van de la mano"**: [Link](https://larepublica.pe/espectaculos/2025/11/14/yolanda-medina-niega-haberse-metido-en-la-relacion-de-marisol-y-george-nunez-las-amantes-no-van-de-la-mano-295134)
-
-
-### resultados beca 18 2025 (N/A, 16/11/2025 20:57 Lima)
-
-- **Beca 18 2026: ¿Cuándo saldrán los resultados del examen de preseleccionados?**: [Link](https://www.infobae.com/peru/2025/11/16/beca-18-2026-cuando-saldran-los-resultados-del-examen-de-preseleccionados/)
-- **Examen de Preselección Beca 18-2026: Sede, horarios para rendir la prueba este domingo y próximas etapas del proceso**: [Link](https://elcomercio.pe/respuestas/tramites/examen-de-preseleccion-beca-18-2026-consulta-aqui-tu-sede-y-horarios-para-rendir-la-prueba-este-domingo-16-de-noviembre-tdpe-noticia/)
-- **Beca 18: La prueba de 60 preguntas para acceder a una carrera profesional con todos los gastos cubiertos**: [Link](https://peru21.pe/peru/beca-18-examen-nacional-para-acceder-una-carrera-profesional-todo-pagado/)
-
-
-### feriado 17 de noviembre peru (N/A, 16/11/2025 20:57 Lima)
-
-- **Declaran feriado no laborable mañana 17 de noviembre en esta localidad de Perú: suspenden clases y labores**: [Link](https://www.infobae.com/peru/2025/11/16/declaran-feriado-no-laborable-manana-17-de-noviembre-en-esta-localidad-de-peru-suspenden-clases-y-labores/)
-- **Declaran día no laborable el 17 de noviembre: colegios no tendrán clases en esta región, según Minedu**: [Link](https://larepublica.pe/sociedad/2025/11/16/no-hay-clases-escolares-en-colegios-este-lunes-17-de-noviembre-por-ser-declarado-dia-no-laborable-en-esta-region-segun-minedu-742640)
-- **¡Confirmado! Este 17 de noviembre será DÍA no laborable: ¿Quiénes descansan y por qué?**: [Link](https://www.exitosanoticias.pe/actualidad/confirmado-17-noviembre-sera-dia-laborable-quienes-descansan-que-n162747)
-
-
-### jnj (N/A, 16/11/2025 20:57 Lima)
-
-- **Assessing Johnson & Johnson's Value After Medtech Acquisition and 34.6% Year-to-Date Surge**: [Link](https://finance.yahoo.com/news/assessing-johnson-johnsons-value-medtech-110711029.html)
-- **A Look Into Johnson & Johnson Inc's Price Over Earnings**: [Link](https://www.benzinga.com/insights/news/25/11/48841420/a-look-into-johnson-johnson-incs-price-over-earnings)
-- **Johnson & Johnson (NYSE:JNJ) Reaches New 12-Month High - Should You Buy?**: [Link](https://www.marketbeat.com/instant-alerts/johnson-johnson-nysejnj-reaches-new-12-month-high-should-you-buy-2025-11-12/)
-
-
-### américa - atlético nacional (N/A, 16/11/2025 20:57 Lima)
-
-- **América de Cali vs. Atlético Nacional (2-2): ver resumen y goles del partido por Copa Colombia | VIDEO**: [Link](https://elcomercio.pe/deporte-total/colombia/america-vs-atletico-nacional-en-vivo-online-gratis-por-semifinal-copa-colombia-2025-a-que-hora-juegan-canal-que-transmite-y-donde-ver-via-win-sports-win-play-futbol-libre-tv-video-noticia/)
-- **Atlético Nacional: Posible nómina, convocados y bajas**: [Link](https://www.365scores.com/es/news/atletico-nacional-nomina-bajas-america/)
-- **Arias: “Nos sentimos orgullosos de representar este club”**: [Link](https://colombia.as.com/futbol/arias-f202511-n/)
-
-
-### nigeria - rd congo (N/A, 16/11/2025 20:57 Lima)
-
-- **Nigeria - RD Congo : les compositions officielles**: [Link](https://www.footmercato.net/a8995713278779101531-nigeria-rd-congo-les-compositions-officielles)
-- **DIRECT – Nigéria vs RDC 1-1 : Meschak Elia rétabli la parité (32′)**: [Link](https://africafootunited.com/direct-nigeria-vs-rdc-1-1-meschak-elia-retabli-la-parite-32/)
-- **Mondial 2026: la RD Congo remporte son ticket pour le Mexique après un match haletant contre le Nigeria**: [Link](https://information.tv5monde.com/sport/mondial-2026-la-rd-congo-remporte-son-ticket-pour-le-mexique-apres-un-match-haletant-contre-le-nigeria-2798261)
-
-
-### pelicans - warriors (N/A, 16/11/2025 20:57 Lima)
-
-- **Golden State Warriors vs New Orleans Pelicans Prediction, Pick, Odds -- 11/16**: [Link](https://www.actionnetwork.com/nba/golden-state-warriors-vs-new-orleans-pelicans-prediction-pick-odds-sunday-november-16)
-- **NBA Tips for Monday, November 17th 2025**: [Link](https://www.gobet.com.au/nba-tips/nba-november-17-2025/)
-- **Behind the Numbers: Warriors at Pelicans (11/16/2025)**: [Link](https://www.nba.com/pelicans/news/behind-the-numbers-warriors-at-pelicans-11-16-2025)
 
 
