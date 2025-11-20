@@ -1,3 +1,31 @@
+### la tinka (N/A, 20/11/2025 07:51 Lima)
+
+- **Sorteo La Tinka miércoles 19 de noviembre: revisa los resultados y comprueba tu jugada ganadora**: [Link](https://www.infobae.com/peru/2025/11/20/ganadores-de-la-tinka-este-miercoles-19-de-noviembre-de-2025/)
+- **Kenia reubica jirafas ante la pérdida de su hábitat | nnav | video | agafp | VIDEOS**: [Link](https://elcomercio.pe/videos/global/kenia-reubica-jirafas-ante-la-perdida-de-su-habitat-nnav-video-agafp-noticia/)
+- **Resultados de La Tinka del miércoles 19 de noviembre: números ganadores del Pozo Millonario**: [Link](https://depor.com/peru/la-tinka-en-vivo-hoy-miercoles-19-de-noviembre-2025-ver-resultados-numeros-ganadores-del-ultimo-sorteo-quien-gano-pozo-millonario-intralot-boliyapa-loterias-de-peru-noticia/)
+
+
+### bn (N/A, 20/11/2025 07:51 Lima)
+
+- **NVIDIA Announces Financial Results for Third Quarter Fiscal 2026**: [Link](https://nvidianews.nvidia.com/news/nvidia-announces-financial-results-for-third-quarter-fiscal-2026)
+- **How to trade Nvidia earnings: What historic performance signals**: [Link](https://finance.yahoo.com/video/trade-nvidia-earnings-historic-performance-120011800.html)
+- **Nvidia sent a strong signal on AI infrastructure — but is it a bubble barometer?**: [Link](https://www.cnbc.com/2025/11/20/nvidia-sent-a-strong-signal-on-ai-infrastructure-but-is-it-a-bubble-barometer-.html)
+
+
+### amazon (N/A, 20/11/2025 07:51 Lima)
+
+- **Black Friday fashion deals for 2025 are up to 75% off Kate Spade, Hoka, Patagonia and more**: [Link](https://www.yahoo.com/lifestyle/style/clothing/article/black-friday-fashion-deals-for-2025-are-up-to-75-off-kate-spade-hoka-patagonia-and-more-160547946.html)
+- **Amazon Black Friday items at their lowest price of the year**: [Link](https://www.wcvb.com/article/amazon-black-friday-lowest-price-of-the-year-2025/69474843)
+- **Amazon’s Black Friday Sale Starts Today, and We’ve Already Found 35 Can’t-Miss Deals**: [Link](https://www.cnet.com/deals/best-black-friday-amazon-deals/)
+
+
+### mavericks - knicks (N/A, 20/11/2025 07:51 Lima)
+
+- **Knicks 113-111 Mavericks (20 Nov, 2025) Game Recap**: [Link](https://www.espn.in/nba/recap?gameId=401810117)
+- **D'Angelo Russell News: Fills stat sheet in loss**: [Link](https://www.rotowire.com/basketball/headlines/dangelo-russell-news-fills-stat-sheet-in-loss-504676)
+- **Fantastic Finish: Knicks win with defensive stand vs. Mavericks**: [Link](https://www.nba.com/watch/video/nyk-dal-ff)
+
+
 ### cometa 3i atlas nasa (N/A, 20/11/2025 03:34 Lima)
 
 - **NASA revela imágenes inéditas del cometa interestelar 3I/ATLAS**: [Link](https://elperuano.pe/noticia/283389-nasa-revela-imagenes-ineditas-del-cometa-interestelar-3iatlas)
@@ -1001,33 +1029,5 @@ Sin noticias relacionadas disponibles.
 - **Haaland revealed his historic goal ahead of the match against Italy**: [Link](https://zamin.uz/en/sport/169788-haaland-revealed-his-historic-goal-ahead-of-the-match-against-italy.html)
 - **“We’ve cracked the code” – Manchester City star hails rising National Team stars ahead of World Cup**: [Link](https://onefootball.com/en/news/weve-cracked-the-code-manchester-city-star-hails-rising-national-team-stars-ahead-of-world-cup-41955338)
 - **2026 World Cup: Norway qualifies for international football competition**: [Link](https://icenews.is/2025/11/15/2026-world-cup-norway-qualifies-for-international-football-competition/)
-
-
-### francesco pio esposito (N/A, 16/11/2025 15:25 Lima)
-
-- **LIVE Italia-Norvegia 1-0: si vede Nusa, ma il suo destro dal limite è di poco alto**: [Link](https://www.gazzetta.it/Calcio/Nazionale/16-11-2025/italia-norvegia-live-risultato-e-gol-in-diretta-qualificazioni-mondiali.shtml)
-- **Haaland in Serie A? L'apertura del norvegese e la Juventus sfiorata: "Era troppo presto"**: [Link](https://www.goal.com/it/liste/haaland-in-serie-a-l-apertura-del-norvegese-e-la-juventus-sfiorata-era-troppo-presto/blt3b3a4486d8c11fae)
-- **La vigilia della Norvegia**: [Link](https://www.sportmediaset.mediaset.it/video/calcio/la-vigilia-della-norvegia_106068180-202502k.shtml)
-
-
-### moldavia vs (N/A, 16/11/2025 15:25 Lima)
-
-- **Italia venció a Moldavia, pero le abre las puertas del Mundial a Noruega**: [Link](https://www.espn.com.pe/futbol/mundial/nota/_/id/15942460/moldavia-vs-italia-eliminatorias-uefa-equipo-fecha-hora-tv-en-vivo)
-- **Italia es el ángel detrás de Methova, ya que se necesita a Erigher Misble**: [Link](https://www.elpueblo.pe/noticias-internacionales/italia-es-el-angel-detras-de-methova-ya-que-se-necesita-a-erigher-misble/120050/)
-- **Moldavia vs Italia: cómo verlo, probabilidades, vista previa de la WCQ**: [Link](https://www.ucvradio.pe/noticias-del-mundo/moldavia-vs-italia-como-verlo-probabilidades-vista-previa-de-la-wcq/48156/)
-
-
-### vélez - river plate (N/A, 16/11/2025 15:25 Lima)
-
-- **Vélez vs. River, por el Torneo Clausura: seguilo EN VIVO**: [Link](https://www.tycsports.com/liga-profesional-de-futbol/argentina-torneo-clausura-2025-velez-vs-river-plate-fecha-16-id698817.html)
-- **Los dos pesados que Gallardo borró de cara a la "final" ante Vélez**: [Link](https://www.ole.com.ar/river-plate/gallardo-river-diaz-borja-velez_0_ljY8Muh1YE.html)
-- **Qué canal pasa Vélez vs River hoy: dónde ver el partido gratis de la Liga Profesional**: [Link](https://www.365scores.com/es/news/que-canal-pasa-velez-vs-river-donde-ver/)
-
-
-### eliminatorias africanas (N/A, 16/11/2025 15:25 Lima)
-
-- **Nigeria y RD Congo, que eliminó a Camerún, jugarán la final de los playoffs rumbo al repechaje**: [Link](https://www.espn.com.pe/futbol/mundial/nota/_/id/15955003/nigeria-vs-rd-congo-final-playoffs-repechaje-eliminatorias-africa-mundial-2026)
-- **Nigeria vs. RD Congo EN VIVO vía FIFA+: juegan por la clasificación al repechaje del Mundial 2026**: [Link](https://rpp.pe/futbol/eliminatorias/nigeria-vs-congo-en-vivo-a-que-hora-juegan-y-donde-ver-final-playoffs-eliminatorias-caf-por-repechaje-al-mundial-2026-link-gratis-partidos-de-hoy-noticia-1664007)
-- **Resultado en vivo de Nigeria vs.Gabón: actualizaciones de los playoffs de clasificación para la Copa Mundial de la CAF, momentos destacados, las Super Águilas compiten por el puesto final**: [Link](https://www.ucvradio.pe/mas-actualidad/resultado-en-vivo-de-nigeria-vs-gabon-actualizaciones-de-los-playoffs-de-clasificacion-para-la-copa-mundial-de-la-caf-momentos-destacados-las-super-aguilas-compiten-por-el-puesto-final/48398/)
 
 
