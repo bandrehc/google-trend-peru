@@ -1,3 +1,73 @@
+### junior - medellín (N/A, 19/11/2025 20:54 Lima)
+
+- **Liga BetPlay: Junior y Medellín abren el "grupo más parejo" en Cuadrangulares**: [Link](https://www.espn.com.ar/futbol/colombia/nota/_/id/15978524/liga-betplay-junior-vs-medellin-abren-el-grupo-mas-parejo-en-cuadrangulares)
+- **Transmisión EN VIVO del Junior vs Medellín hoy: cómo mirar el partido por TV o streaming**: [Link](https://www.365scores.com/es/news/transmision-en-vivo-junior-vs-medellin/)
+- **La hinchada deberá responder en la tribuna y los jugadores en la cancha: ¡Junior, juntos por la 11!**: [Link](https://impactonews.co/la-hinchada-debera-responder-en-la-tribuna-y-los-jugadores-en-la-cancha-junior-juntos-por-la-11/)
+
+
+### santos vs (N/A, 19/11/2025 20:54 Lima)
+
+- **Why is santos fc trending?**: [Link](https://www.latestly.com/google-trends/20112025/santos-fc/)
+- **📋 Santos and Mirassol line-ups confirmed for crucial clash at Vila**: [Link](https://onefootball.com/fr/news/santos-and-mirassol-line-ups-confirmed-for-crucial-clash-at-vila-41975064)
+- **Santos vs Mirassol Preview, prediction, lineups, betting tips & odds | Campeonato Brasileiro Série A 2025**: [Link](https://khelnow.com/football/world-football-santos-vs-mirassol-preview-202511)
+
+
+### heat - warriors (N/A, 19/11/2025 20:54 Lima)
+
+- **Stephen Curry (ankle) to miss tonight's game vs. Heat**: [Link](https://www.nba.com/news/stephen-curry-to-miss-game-vs-heat)
+- **Bet365 Bonus Code 'COVERS': Bet $5, Get $150, Win or Lose For Warriors vs Heat**: [Link](https://www.covers.com/daily-promos/bet365-bonus-code-nba-warriors-heat-11-19-2025)
+- **Jimmy Butler Injury: Questionable for Wednesday**: [Link](https://www.rotowire.com/basketball/headlines/jimmy-butler-injury-questionable-for-wednesday-504543)
+
+
+### gremio vs (N/A, 19/11/2025 20:54 Lima)
+
+- **Pronóstico Gremio - Vasco da Gama. Brasileirao Serie A | 20/11/2025**: [Link](https://gainblers.com/pe/pronosticos/futbol/brasil/brasileirao-serie-a/pronostico-gremio-vasco-da-gama-20-11-2025/)
+- **Mano Menezes tomó una decisión radical sobre Erick Noriega mientras está en la Selección Peruana**: [Link](https://bolavip.com/pe/peruanos-en-el-exterior/mano-menezes-tomo-una-decision-radical-sobre-erick-noriega-mientras-esta-en-la-seleccion-peruana)
+- **Gremio vs Vasco da Gama: Erick Noriega recibe dura noticia desde Brasil**: [Link](https://www.futbolperuano.com/peruanos-en-el-exterior/noticias/gremio-vs-vasco-da-gama-erick-noriega-recibe-dura-noticia-desde-brasil-551977)
+
+
+### fluminense vs (N/A, 19/11/2025 20:54 Lima)
+
+- **Fluminense anuncia plantilla para el derbi, regresan los principales jugadores**: [Link](https://www.elpueblo.pe/deportes/fluminense-anuncia-plantilla-para-el-derbi-regresan-los-principales-jugadores/128088/)
+- **Pronóstico Fluminense - Flamengo. Brasileirao Serie A | 20/11/2025**: [Link](https://gainblers.com/pe/pronosticos/futbol/brasil/brasileirao-serie-a/pronostico-fluminense-flamengo-20-11-2025/)
+- **Fluminense vs Flamengo: ¡Juega en el Brasileirao y gana S/. 30,000 en premios gracias a Meridianbet!**: [Link](https://ovacion.pe/noticias/nota-promocional/fluminense-vs-flamengo-juega-brasileirao-gana-s-30000-premios-gracias)
+
+
+### santos vs mirassol (N/A, 19/11/2025 20:54 Lima)
+
+- **📋 Santos and Mirassol line-ups confirmed for crucial clash at Vila**: [Link](https://onefootball.com/fr/news/santos-and-mirassol-line-ups-confirmed-for-crucial-clash-at-vila-41975064)
+- **Santos vs Mirassol Preview, prediction, lineups, betting tips & odds | Campeonato Brasileiro Série A 2025**: [Link](https://khelnow.com/football/world-football-santos-vs-mirassol-preview-202511)
+- **Santos Secures Vital Win Against Mirassol in Brazilian Championship**: [Link](https://news.ssbcrack.com/santos-secures-vital-win-against-mirassol-in-brazilian-championship/)
+
+
+### que se celebra el 20 de noviembre (N/A, 19/11/2025 20:54 Lima)
+
+- **Día de la Revolución Mexicana: importancia y por qué se celebra el 20 de noviembre | tdpe | RESPUESTAS**: [Link](https://elcomercio.pe/respuestas/mexico/dia-de-la-revolucion-mexicana-importancia-y-por-que-se-celebra-el-20-de-noviembre-tdpe-noticia/)
+- **ENTENDER LA REVOLUCIÓN DE 1910 VALORANDO LA CONSTITUCIÓN**: [Link](https://cronicapuebla.com/es-relativo/entender-la-revolucion-de-1910-valorando-la-constitucion)
+- **Ecos de la Revolución - El Heraldo de Chihuahua | Noticias Locales, Policiacas, de México, Chihuahua y el Mundo**: [Link](https://oem.com.mx/elheraldodechihuahua/analisis/ecos-de-la-revolucion-26858161)
+
+
+### fluminense - flamengo (N/A, 19/11/2025 20:54 Lima)
+
+- **Árbitro Davi Lacerda Oliveira atrasa início de Fla x Flu por fumaça em campo no Maracanã**: [Link](https://br.bolavip.com/campeonato-brasileirao/arbitro-davi-lacerda-oliveira-atrasa-inicio-de-fla-x-flu-por-fumaca-em-campo-no-maracana)
+- **Veja golaço de Acosta que abriu o placar para o Fluminense contra Flamengo**: [Link](https://www.cnnbrasil.com.br/esportes/brasileirao/veja-golaco-de-acosta-que-abriu-o-placar-para-o-fluminense-contra-flamengo/)
+- **Estrangeiros do Flamengo desembarcam; Brasileiros chegam início da noite**: [Link](https://www.bol.uol.com.br/esporte/2025/11/19/estrangeiros-do-flamengo-desembarcam-brasileiros-chegam-inicio-da-noite.htm)
+
+
+### santos - mirassol (N/A, 19/11/2025 20:54 Lima)
+
+- **Web manda recado a Ancelotti após gol de Neymar pelo Santos: 'Vi o suficiente'**: [Link](https://www.lance.com.br/fora-de-campo/web-manda-recado-a-ancelotti-apos-gol-de-neymar-pelo-santos-vi-o-suficiente.html)
+- **Neymar manda recado para Mirassol as vésperas do jogo na Vila Belmiro: “Hoje é guerra”**: [Link](https://www.antenadosnofutebol.com.br/campeonato-brasileirao/neymar-manda-recado-para-mirassol-as-vesperas-do-jogo-na-vila-belmiro-hoje-e-guerra)
+- **Em Santos, Reinaldo espera manter bom rendimento contra os grandes paulistas**: [Link](https://www.gazetaesportiva.com/times/mirassol/reinaldo-mirassol-vaga-libertadores-jogo-santos/)
+
+
+### grêmio - vasco da gama (N/A, 19/11/2025 20:54 Lima)
+
+- **Grêmio x Vasco da Gama AO VIVO pelo Brasileirão; acompanhe na Jornada Digital da Gaúcha**: [Link](https://gauchazh.clicrbs.com.br/esportes/gremio/noticia/2025/11/gremio-x-vasco-ao-vivo-na-jornada-digital-da-gaucha-cmi6iy078019401502sjn3car.html)
+- **Grêmio faz mudança de última hora e coloca Pavón no lugar de Alysson antes do jogo contra o Vasco**: [Link](https://www.netvasco.com.br/n/373074/gremio-faz-mudanca-de-ultima-hora-e-coloca-pavon-no-lugar-de-alysson-antes-do-jogo-contra-o-vasco)
+- **Willian planeja volta ao Grêmio contra o Palmeiras; saiba detalhes**: [Link](https://ge.globo.com/rs/futebol/times/gremio/noticia/2025/11/19/willian-planeja-volta-ao-gremio-contra-o-palmeiras-saiba-detalhes.ghtml)
+
+
 ### wicked 2 (N/A, 19/11/2025 15:24 Lima)
 
 - **Wicked: For Good review – Cynthia Erivo sweeps the field in explosive second chunk of Oz prequel**: [Link](https://www.theguardian.com/film/2025/nov/18/wicked-for-good-review-cynthia-erivo-ariana-grande-jeff-goldblum)
@@ -961,75 +1031,5 @@ Sin noticias relacionadas disponibles.
 - **¡Mbappé al Mundial 2026! Francia se clasifica, Noruega queda a un paso y Portugal deberá esperar**: [Link](https://cnnespanol.cnn.com/2025/11/13/deportes/eliminatorias-uefa-francia-clasificado-mundial-2026-orix)
 - **Francia, ya clasificada, cierra su participación en las Eliminatorias UEFA ante Azerbaiyán**: [Link](https://www.espn.com.ar/futbol/selecciones/nota/_/id/15952152/azerbaiyan-vs-francia-eliminatorias-europeas-equipo-fecha-hora-y-tv-en-vivo)
 - **Mbappé, más rápido que Messi y Cristiano**: [Link](https://www.marca.com/futbol/real-madrid/2025/11/14/mbappe-rapido-messi-cristiano.html)
-
-
-### troy parrott (N/A, 16/11/2025 11:27 Lima)
-
-- **Build-up as Republic of Ireland face must-win game against Hungary**: [Link](https://www.bbc.com/sport/football/live/c93d27l7kggt)
-- **Coleman stars in Troy Story Part Two**: [Link](https://donegalnews.com/coleman-stars-in-troy-story-part-two/)
-- **Hungary v Ireland: Second half underway with Ireland looking for comeback**: [Link](https://www.westernpeople.ie/hungary-v-ireland-second-half-underway-with-ireland-looking-for-comeback_arid-77855.html)
-
-
-### clasificatorias europeas (N/A, 16/11/2025 11:27 Lima)
-
-- **La Marea Roja**: [Link](https://as.com/opinion/la-marea-roja-f202511-n/)
-- **Georgia - España: resumen, resultado y goles**: [Link](https://www.marca.com/futbol/clasificacion-al-mundial-uefa/georgia-espana/2025/11/15/01_0116_20251115_520_118-directo.html)
-- **España golea a Georgia y acaricia el pase directo al Mundial 2026**: [Link](https://www.espn.com.ar/futbol/mundial/nota/_/id/15962209/georgia-vs-espana-mundial-2026-resultado-pase)
-
-
-### nfl (N/A, 16/11/2025 11:27 Lima)
-
-- **NFL Week 11 storylines: Divisional showdowns, playoff previews lead tremendous Sunday slate**: [Link](https://www.nytimes.com/athletic/6805666/2025/11/16/nfl-week-11-storylines-chiefs-broncos-lions-eagles/)
-- **NFL Parlay Picks: Charissa Thompson’s Week 11 NFL Parlay for Sunday 11/16/25**: [Link](https://dknetwork.draftkings.com/2025/11/16/nfl-parlay-picks-charissa-thompsons-week-11-nfl-parlay-for-sunday-11-16-25-parlaycard/)
-- **NFL DFS picks, lineup advice for Sunday from daily Fantasy football optimizer**: [Link](https://www.cbssports.com/nfl/news/nfl-dfs-picks-lineup-daily-fantasy-football-advice-strategy-optimizer-week-11-2025/)
-
-
-### serbia vs letonia (N/A, 16/11/2025 11:27 Lima)
-
-- **Serbia vs Letonia | Pronóstico y cuotas 16.11.2025**: [Link](https://www.transfermarkt.es/apuestas/pronosticos-deportivos/serbia-vs-letonia-pronostico-apuestas-16-11-2025/)
-- **Serbia vs Letonia EN VIVO, minuto a minuto en Eliminatorias al Mundial 2026**: [Link](https://www.vavel.com/mx/futbol-internacional/2025/11/16/1241445-serbia-vs-letonia-en-vivo-eliminatorias-2026.html)
-- **Serbia vs Letonia por la fase de grupos de Eliminatorias UEFA EN VIVO. Seguilo minuto a minuto por la web de TN.**: [Link](https://tn.com.ar/deportes/futbol/2025/11/16/serbia-vs-letonia-en-vivo-por-la-fase-de-grupos-de-las-eliminatorias-uefa-hora-donde-ver-y-formaciones/)
-
-
-### clasificación de uefa para la copa mundial de fútbol (N/A, 16/11/2025 11:27 Lima)
-
-- **Las cuentas de la clasificación europea para el Mundial grupo a grupo**: [Link](https://www.marca.com/futbol/mundial/2025/11/15/cuentas-clasificacion-mundial-grupo-grupo.html)
-- **Eliminatorias al Mundial 2026: estas son las selecciones que se pueden clasificar este jueves**: [Link](https://cnnespanol.cnn.com/2025/11/12/deportes/eliminatorias-mundial-2026-casi-clasificados-orix)
-- **Eliminatorias europeas al Mundial 2026: Haaland va por su primera vez con Noruega y Cristiano Ronaldo por su sexta con Portugal**: [Link](https://www.clarin.com/deportes/eliminatorias-europeas-mundial-2026-haaland-va-primera-vez-noruega-cristiano-ronaldo-sexta-portugal_0_zXWMFIrcL6.html)
-
-
-### portugal (N/A, 16/11/2025 11:27 Lima)
-
-- **Imprensa internacional rendida a Portugal e... ao golaço de João Neves**: [Link](https://www.record.pt/multimedia/fotogalerias/detalhe/imprensa-internacional-rendida-a-portugal-e-ao-golaco-de-joao-neves)
-- **Belo trabalho de Gonçalo Ramos e Bruno Fernandes também bisa diante da Arménia**: [Link](https://bolanarede.pt/especial-bola-na-rede/atualidade/belo-trabalho-de-goncalo-ramos-e-bruno-fernandes-tambem-bisa-diante-da-armenia/)
-- **Capitão ausente, voz presente: Ronaldo motiva colegas da seleção rumo ao Mundial**: [Link](https://www.jn.pt/desporto/artigo/capitao-ausente-voz-presente-ronaldo-motiva-colegas-da-selecao-rumo-ao-mundial/18020442)
-
-
-### portugal fc (N/A, 16/11/2025 11:27 Lima)
-
-- **Farioli volta a chamar Nikolov e vários da equipa B na preparação para o Sintrense**: [Link](https://www.ojogo.pt/futebol/artigo/farioli-volta-a-chamar-nikolov-e-varios-da-equipa-b-na-preparacao-para-o-sintrense/18020476)
-- **Dragões preparam encontro da Prova Rainha**: [Link](https://www.zerozero.pt/noticias/fc-porto-prepara-sintrense-sem-o-contributo-de-11-internacionais/977359)
-- **Joelho de Bednarek provoca apreensão no FC Porto**: [Link](https://www.cmjornal.pt/desporto/futebol/detalhe/joelho-de-bednarek-provoca-apreensao-no-fc-porto)
-
-
-### precio dolar hoy peru (N/A, 16/11/2025 07:44 Lima)
-
-- **Precio del dólar en Perú hoy, domingo 16 de noviembre: cuál es el tipo de cambio del día**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-a-cuanto-esta-el-dolar-y-tipo-de-cambio-este-domingo-16-de-noviembre-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
-- **Precio del dólar en sigue en caída: Así se cotiza el tipo de cambio hoy 15 de noviembre en Perú**: [Link](https://www.infobae.com/peru/2025/11/14/peru-cotizacion-de-apertura-del-dolar-hoy-14-de-noviembre-de-usd-a-pen/)
-- **Tipo de cambio en Perú: noviembre y diciembre entre estabilidad y cautela global**: [Link](https://gestion.pe/opinion/tipo-de-cambio-en-peru-noviembre-y-diciembre-entre-estabilidad-y-cautela-global-noticia/)
-
-
-### atp finals 2025 (N/A, 16/11/2025 07:44 Lima)
-
-- **Just like Carlos Alcaraz and Jannik Sinner , Siya Kolisi enjoyed the taste of victory on Saturday in Turin.**: [Link](https://www.atptour.com/en/news/siya-kolisi-nitto-atp-finals-2025-feature)
-- **How much prize money will Alcaraz or Sinner make by winning Nitto ATP Finals?**: [Link](https://www.nittoatpfinals.com/en/news/nitto-atp-finals-2025-champion-prize-money)
-- **“Imagine me being friends with McEnroe or Lendl”: Boris Becker says Alcaraz–Sinner bond is changing the sport**: [Link](https://tennisuptodate.com/atp/imagine-me-being-friends-with-mcenroe-or-lendl-boris-becker-says-alcaraz-sinner-bond-is-changing-the-sport)
-
-
-### starbucks (N/A, 16/11/2025 07:44 Lima)
-
-- **Starbucks union says it expects 'largest, longest strike in company history'**: [Link](https://www.usatoday.com/story/money/2025/11/14/starbucks-workers-union-largest-longest-strike-history/87274412007/)
-- **Zohran Mamdani Wants You to Boycott Starbucks**: [Link](https://www.businessinsider.com/zohran-mamdani-boycott-starbucks-strike-2025-11)
-- **Starbucks workers union launches strike in more than 40 cities on chain's key holiday sales day**: [Link](https://www.cnbc.com/2025/11/13/starbucks-workers-united-union-strike-red-cup-day.html)
 
 
