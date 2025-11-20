@@ -1,3 +1,45 @@
+### gmo (N/A, 20/11/2025 11:32 Lima)
+
+- **「makeshop byGMO」において 決済フォームが一体化したLPが作成できる新アプリケーション 「LP Direct Order」を提供開始**: [Link](https://group.gmo/news/article/9776/)
+- **GMOメイクショップが提供する事業者向け新アプリ「LP Direct Order」でECサイトが進化する**: [Link](https://voix.jp/business-cards/lp-direct-order-launch/)
+- **GMOメイクショップ、決済一体型LP作成アプリ「LP Direct Order」をリリース**: [Link](https://news.3rd-in.co.jp/article/9d7990c4-c5bd-11f0-8886-9ca3ba083d71)
+
+
+### temblor hoy (N/A, 20/11/2025 11:32 Lima)
+
+- **Temblor en Perú HOY, 20 de noviembre: ¿a qué hora y dónde ocurrió el último sismo vía IGP?**: [Link](https://larepublica.pe/sociedad/2025/11/20/temblor-en-peru-hoy-jueves-20-de-noviembre-del-2025-magnitud-epicentro-y-mas-sobre-sismos-recientes-segun-igp-ultimo-sismo-en-lima-ica-callao-y-otras-provincias-atmp-1354605)
+- **Un sismo de magnitud 4.3 remeció la región Tacna esta madrugada**: [Link](https://rpp.pe/peru/tacna/un-sismo-de-magnitud-43-remecio-la-region-tacna-esta-tacna-sismo-de-magnitud-43-remecio-la-region-esta-madrugada-noticia-1663897)
+- **Sismo de magnitud 3.8 remeció Talara esta mañana 17 de noviembre**: [Link](https://lahora.pe/local/sismo-de-magnitud-3-8-remecio-talara-esta-manana-17-de-noviembre/)
+
+
+### surinam vs (N/A, 20/11/2025 11:32 Lima)
+
+- **¿Por qué Surinam, rival de Bolivia en repechaje, no juega en Conmebol si está en Sudamérica?**: [Link](https://larepublica.pe/deportes/2025/11/20/el-pais-de-sudamerica-que-no-habla-espanol-quiere-dejar-a-bolivia-sin-mundial-2026-por-que-surinam-no-juega-las-eliminatorias-en-conmebol-711100)
+- **Guillermo Viscarra: Bolivia ya conoce a su rival en el repechaje internacional para el Mundial 2026**: [Link](https://www.futbolperuano.com/futbol-internacional/noticias/bolivia-ya-conoce-a-su-rival-en-el-repechaje-internacional-para-el-mundial-2026-552077)
+- **Bolivia: así quedaron conformadas las llaves del Repechaje que definirá a los últimos clasificados al Mundial 2026**: [Link](https://willax.pe/deportes/bolivia-repechaje-cupos-mundial-2026-willax)
+
+
+### surinam (N/A, 20/11/2025 11:32 Lima)
+
+- **Mundial 2026: así quedaron los bombos para el sorteo del 5 de diciembre, según el ranking FIFA**: [Link](https://cnnespanol.cnn.com/2025/11/19/deportes/mundial-2026-bombos-sorteo-repechaje-orix)
+- **FIFA sorteó los partidos de los Repechajes que definirán a los últimos 6 clasificados al Mundial 2026**: [Link](https://www.infobae.com/deportes/2025/11/20/se-sortearon-los-repechajes-que-definiran-las-6-selecciones-que-restan-clasificar-al-mundial/)
+- **Surinam, rival de Bolivia en el repechaje hacia el Mundial**: [Link](https://as.com/futbol/internacional/surinam-rival-de-bolivia-en-el-repechaje-hacia-el-mundial-f202511-n/)
+
+
+### que se celebra hoy 20 de noviembre (N/A, 20/11/2025 11:32 Lima)
+
+- **¿Cuándo se paga el Bono de Fin de Año 2025 a los trabajadores del sector público en Venezuela?**: [Link](https://elcomercio.pe/respuestas/venezuela/cuando-se-paga-el-bono-fin-de-ano-2025-a-los-trabajadores-del-sector-publico-en-venezuela-tdpe-noticia/)
+- **Pagos MPPE últimas noticias de HOY, 20 de noviembre: bonos con aumento para docentes y pagos confirmados del Ministerio de Educación**: [Link](https://larepublica.pe/datos-lr/venezuela/2025/11/20/pagos-mppe-ultimas-noticias-de-hoy-20-de-noviembre-bonos-con-aumento-para-docentes-y-pagos-confirmados-del-ministerio-de-educacion-lrtm-963920)
+- **Sistema Patria confirma pago doble para noviembre 2025 — quiénes lo reciben y cuánto pagan**: [Link](https://lineadetres.com/sistema-patria-confirma-pago-doble-para-noviembre-2025/)
+
+
+### reinaldo rueda (N/A, 20/11/2025 11:32 Lima)
+
+- **El Mundial 2026 será atípico: por ahora sin técnicos colombianos**: [Link](https://www.espn.com.ar/futbol/mundial/nota/_/id/15978814/mundial-2026-sera-atipico-por-ahora-sin-tecnicos-colombianos)
+- **¡Se quebró! Reinaldo Rueda, entrenador de Honduras, rompió en llanto tras no clasificar el Mundial 2026**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/reinaldo-rueda-entrenador-de-honduras-rompe-en-llanto-tras-no-clasificar-el-mundial-2026-eliminatorias-concacaf-noticia/)
+- **¿Cómo un gol de Surinam a Guatemala eliminó a Honduras?**: [Link](https://espndeportes.espn.com/futbol/selecciones/nota/_/id/15977108/mundial-2026-surinam-gol-guatemala-eliminacion-honduras)
+
+
 ### la tinka (N/A, 20/11/2025 07:51 Lima)
 
 - **Sorteo La Tinka miércoles 19 de noviembre: revisa los resultados y comprueba tu jugada ganadora**: [Link](https://www.infobae.com/peru/2025/11/20/ganadores-de-la-tinka-este-miercoles-19-de-noviembre-de-2025/)
@@ -987,47 +1029,5 @@ Sin noticias relacionadas disponibles.
 - **Golden State Warriors vs New Orleans Pelicans Prediction, Pick, Odds -- 11/16**: [Link](https://www.actionnetwork.com/nba/golden-state-warriors-vs-new-orleans-pelicans-prediction-pick-odds-sunday-november-16)
 - **NBA Tips for Monday, November 17th 2025**: [Link](https://www.gobet.com.au/nba-tips/nba-november-17-2025/)
 - **Behind the Numbers: Warriors at Pelicans (11/16/2025)**: [Link](https://www.nba.com/pelicans/news/behind-the-numbers-warriors-at-pelicans-11-16-2025)
-
-
-### estudiantes (N/A, 16/11/2025 20:57 Lima)
-
-- **Argentinos Juniors se clasificó por sexta vez a la Copa Libertadores**: [Link](https://www.espn.com.ar/futbol/argentina/nota/_/id/15967943/argentinos-clasifico-a-la-copa-libertadores-por-sexta-vez)
-- **Un triunfo lo depositará en los octavos de final**: [Link](https://www.eldia.com/nota/2025-11-16-2-26-51-un-triunfo-lo-depositara-en-los-octavos-de-final-deportes)
-- **Estudiantes de La Plata vs Argentinos, por el Torneo Clausura 2025: minuto a minuto, en directo**: [Link](https://www.clarin.com/deportes/estudiantes-plata-vs-argentinos-torneo-clausura-2025-minuto-minuto-directo_0_78DALIPIpk.html)
-
-
-### franco parisi (N/A, 16/11/2025 20:57 Lima)
-
-- **Los primeros resultados oficiales sitúan a Jara y a Kast en la segunda vuelta de las presidenciales de Chile**: [Link](https://caretas.pe/mundo/los-primeros-resultados-oficiales-situan-a-jara-y-a-kast-en-la-segunda-vuelta-de-las-presidenciales-de-chile/)
-- **Chile va a las urnas este domingo en sus primeras elecciones presidenciales con voto obligatorio**: [Link](https://rpp.pe/mundo/actualidad/elecciones-en-chile-va-a-las-urnas-este-domingo-en-sus-primeros-comicios-con-voto-obligatorio-noticia-1663977)
-- **Elecciones en Chile 2025: hasta qué hora se puede ir a votar para elegir al próximo presidente y los diputados**: [Link](https://larepublica.pe/mundo/2025/11/16/elecciones-en-chile-2025-hasta-que-hora-se-puede-ir-a-votar-para-elegir-al-proximo-presidente-y-los-diputados-422176)
-
-
-### central córdoba - banfield (N/A, 16/11/2025 20:57 Lima)
-
-- **¡EN VIVO! Banfield visita a Central Córdoba con la ilusión de meterse en octavos**: [Link](https://www.espn.com.ar/futbol/argentina/nota/_/id/15968053/central-cordoba-vs-banfield-por-la-torneo-clausura-equipo-fecha-hora-y-tv-en-vivo)
-- **Punto agónico**: [Link](https://onefootball.com/de/news/punto-agonico-41961070)
-- **Omar De Felippe dio a conocer la lista de convocados para el encuentro ante Banfield**: [Link](https://www.diariopanorama.com/noticia/534956/omar-de-felippe-dio-conocer-lista-convocados-para-encuentro-ante-banfield)
-
-
-### boca juniors - tigre (N/A, 16/11/2025 20:57 Lima)
-
-- **Boca vs. Tigre, hoy EN VIVO por el Torneo Clausura: horario, formaciones y cómo ver**: [Link](https://www.ole.com.ar/futbol-primera/boca-vs-tigre-vivo-fecha-16-torneo-clausura-2025-partido-minuto-minuto-resumen-goles_0_4JAekZXkwf.html)
-- **Qué canal pasa Boca vs Tigre hoy: dónde ver el partido gratis y en vivo de la Liga Profesional**: [Link](https://www.365scores.com/es/news/boca-vs-tigre-donde-ver-gratis-vivo/)
-- **ESPN EN VIVO, Boca vs. Tigre vía Disney Plus y Pelota Libre TV por la Liga Profesional**: [Link](https://depor.com/futbol-internacional/argentina/espn-en-vivo-boca-vs-tigre-en-directo-gratis-pelota-libre-tv-tnt-sports-disney-plus-premium-transmision-por-internet-en-directo-y-como-ver-en-argentina-video-noticia/)
-
-
-### boys vs (N/A, 16/11/2025 15:25 Lima)
-
-- **MIRA, Alianza Atlético vs Sport Boys: Dónde ver la transmisión el Torneo Clausura**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/sport-boys-vs-alianza-atletico-en-vivo-hora-canal-tv-y-donde-ver-el-torneo-clausura-2025-l1max-video-resumen-y-goles-tdpe-noticia/)
-- **Liga 1: Se enfrentan Sport Boys y Alianza Atlético por la fecha 19**: [Link](https://rpp.pe/futbol/descentralizado/liga-1-se-enfrentan-sport-boys-y-alianza-atletico-por-la-fecha-19-noticia-1663918)
-- **Sport Boys vs. Alianza Atlético EN VIVO vía Liga 1 MAX y DIRECTV por Torneo Clausura 2025**: [Link](https://depor.com/futbol-peruano/descentralizado/sport-boys-vs-alianza-atletico-en-vivo-en-directo-hoy-liga-1-max-l1-play-futbol-libre-tv-ver-gratis-online-directv-dgo-torneo-apertura-2025-video-noticia/)
-
-
-### alexander sørloth (N/A, 16/11/2025 15:25 Lima)
-
-- **Haaland revealed his historic goal ahead of the match against Italy**: [Link](https://zamin.uz/en/sport/169788-haaland-revealed-his-historic-goal-ahead-of-the-match-against-italy.html)
-- **“We’ve cracked the code” – Manchester City star hails rising National Team stars ahead of World Cup**: [Link](https://onefootball.com/en/news/weve-cracked-the-code-manchester-city-star-hails-rising-national-team-stars-ahead-of-world-cup-41955338)
-- **2026 World Cup: Norway qualifies for international football competition**: [Link](https://icenews.is/2025/11/15/2026-world-cup-norway-qualifies-for-international-football-competition/)
 
 
