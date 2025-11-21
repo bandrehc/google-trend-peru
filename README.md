@@ -1,3 +1,31 @@
+### clima lima (N/A, 21/11/2025 07:50 Lima)
+
+- **Vuelve el frío en primavera: Senamhi activa alerta naranja por descenso de temperatura en Lima y 12 regiones del país**: [Link](https://www.infobae.com/peru/2025/11/19/vuelve-el-frio-senamhi-activa-alerta-naranja-por-drastico-descenso-de-temperatura-en-lima-y-12-regiones/)
+- **¿Por qué Lima amaneció con una intensa llovizna y sensación de frío en plena primavera? Esto dijo el Senamhi**: [Link](https://rpp.pe/lima/actualidad/por-que-lima-amanecio-con-una-intensa-llovizna-y-sensacion-de-frio-en-plena-primavera-esto-dijo-el-senamhi-noticia-1664543)
+- **Lluvias moderadas a fuertes caerán en la Selva asociadas al vigésimo noveno friaje**: [Link](https://andina.pe/agencia/noticia-lluvias-moderadas-a-fuertes-caeran-la-selva-asociadas-al-vigesimo-noveno-friaje-1052782.aspx)
+
+
+### black friday 2025 (N/A, 21/11/2025 07:50 Lima)
+
+- **Black Friday 2025 deals from Amazon, Walmart and Target are happening now: Here's what we're shopping during the biggest sale of the year**: [Link](https://www.yahoo.com/lifestyle/deals/article/black-friday-2025-deals-from-amazon-walmart-and-target-are-happening-now-heres-what-were-shopping-during-the-biggest-sale-of-the-year-175448806.html)
+- **87 of Amazon's best Black Friday Week deals to shop now**: [Link](https://www.aboutamazon.com/news/retail/amazon-black-friday-best-deals-shop-2025-us)
+- **Amazon’s Black Friday Sale Is Already Happening: 37+ Deals We’re Shopping**: [Link](https://www.nbcnews.com/select/shopping/best-early-amazon-black-friday-deals-2025-rcna244834)
+
+
+### videos (N/A, 21/11/2025 07:50 Lima)
+
+- **Why Democrats are warning about Trump giving illegal orders**: [Link](https://www.cnn.com/2025/11/20/politics/hang-democrats-trump-seditious-behavior)
+- **Rep. Jason Crow on video urging troops to refuse illegal orders and Trump's response**: [Link](https://www.npr.org/2025/11/21/nx-s1-5615204/rep-jason-crow-on-video-urging-troops-to-refuse-illegal-orders-and-trumps-response)
+- **Trump: Democrats' message to troops seditious behavior, punishable by death**: [Link](https://www.bbc.com/news/articles/cx2p2dz9zk2o)
+
+
+### stephany abasali (N/A, 21/11/2025 07:50 Lima)
+
+- **Miss Venezuela: Stephany Abasali, el mensaje educativo como causa social en Miss Universo 2025**: [Link](https://www.yahoo.com/news/videos/miss-venezuela-stephany-abasali-el-004412804.html)
+- **Mexico Wins Miss Universe Pageant Marred by Scandal**: [Link](https://www.nytimes.com/2025/11/21/world/asia/miss-universe-mexico.html)
+- **Miss Mexico, who sparked a walkout after host's bullying, is crowned Miss Universe**: [Link](https://www.nbcnews.com/world/mexico/miss-mexico-stood-hosts-bullying-crowned-miss-universe-rcna245093)
+
+
 ### miss universo 2024 (N/A, 20/11/2025 23:29 Lima)
 
 Sin noticias relacionadas disponibles.
@@ -998,33 +1026,5 @@ Sin noticias relacionadas disponibles.
 - **China amenaza con represalias económicas a Japón por declaraciones de Sanae Takaichi sobre Taiwán**: [Link](https://www.infobae.com/america/mundo/2025/11/17/china-amenaza-con-represalias-economicas-a-japon-por-declaraciones-de-sanae-takaichi-sobre-taiwan/)
 - **Una frase de Japón ha puesto en vilo la paz del Pacífico. La respuesta de China ha sido lanzar sus...**: [Link](https://www.xataka.com/magnet/japon-ha-advertido-a-china-taiwan-china-se-ha-tomado-serio-que-han-rodeado-unas-islas-japon)
 - **Tensión en Asia: China realiza maniobras y endurece el tono con Japón en medio de la polémica por Taiwán**: [Link](https://rpp.pe/mundo/asia/tension-en-asia-china-realiza-maniobras-y-endurece-el-tono-con-japon-en-medio-de-la-polemica-por-taiwan-noticia-1664090)
-
-
-### precio del dólar perú (N/A, 17/11/2025 20:56 Lima)
-
-- **Precio del dólar cayó más: Así cerró el tipo de cambio hoy 17 de noviembre en Perú**: [Link](https://www.infobae.com/peru/2025/11/17/dolar-cotizacion-de-apertura-hoy-17-de-noviembre-en-peru/)
-- **¿Cuál es la cotización del dólar hoy lunes 17 de noviembre del 2025?**: [Link](https://andina.pe/agencia/noticia-cual-es-cotizacion-del-dolar-hoy-lunes-17-noviembre-del-2025-1052231.aspx)
-- **Dólar en Perú: a cuánto se cotizó el cierre de hoy, 17 de noviembre de 2025**: [Link](https://latinanoticias.pe/te-ayudo/como-cerro-el-dolar-hoy-en-peru-a-cuanto-se-cotizo-el-cierre-del-dolar-para-este-17-de-noviembre-lima-sunat-sbs-bcrp-adp-noticia_20251117/)
-
-
-### elige tu local de votacion (N/A, 17/11/2025 20:56 Lima)
-
-- **Elecciones 2026: ¡Atención! Desde el 23 de noviembre se podrán escoger local de votación**: [Link](https://andina.pe/agencia/noticia-elecciones-2026-atencion-desde-23-noviembre-se-podran-escoger-local-votacion-1050844.aspx)
-- **ONPE habilitará desde el 23 de noviembre la plataforma para elegir local de votación rumbo al 2026**: [Link](https://caretas.pe/nacional/onpe-habilitara-desde-el-23-de-noviembre-la-plataforma-para-elegir-local-de-votacion-rumbo-al-2026/)
-- **¡Elige tu local de votación!: Conoce CUÁNDO se permitirá el CAMBIO de sede para las Elecciones 2026**: [Link](https://www.exitosanoticias.pe/actualidad/elige-tu-local-votacion-conoce-cuando-permitira-cambio-sede-elecciones-2026-n162374)
-
-
-### barracas central - huracán (N/A, 17/11/2025 20:56 Lima)
-
-- **“Vamos a hablar y te voy a romper todo”: la respuesta del árbitro Andrés Gariano a Kudelka en el escandaloso final de Barracas-Huracán**: [Link](https://www.infobae.com/deportes/2025/11/17/vamos-a-hablar-y-te-voy-a-romper-todo-la-respuesta-del-arbitro-andres-gariano-a-kudelka-en-el-escandaloso-final-de-barracas-huracan/)
-- **La indignación de Huracán tras el partido con Barracas: "Lo que pasó en la cancha no es fútbol"**: [Link](https://www.espn.com.ar/futbol/argentina/nota/_/id/15971713/indignacion-huracan-vs-barracas-lo-que-paso-en-la-cancha-no-es-futbol)
-- **La amenaza de Gariano a Kudelka: "Te voy a romper todo"**: [Link](https://espndeportes.espn.com/futbol/argentina/nota/_/id/15971857/video-amenaza-arbitro-gariano-kudelka-huracan-barracas-te-voy-a-romper-todo)
-
-
-### nick woltemade (N/A, 17/11/2025 15:28 Lima)
-
-- **Nick Woltemade: Deutschlands Nummer eins im Sturm in WM-Quali**: [Link](https://www.faz.net/aktuell/sport/fussball-wm/deutsches-team/nick-woltemade-deutschlands-nummer-eins-im-sturm-in-wm-quali-accg-110783403.html)
-- **Bayern-Flirt Woltemade reagiert nach „Idioten“-Spruch von Rummenigge**: [Link](https://www.merkur.de/sport/fc-bayern/bayern-flirt-woltemade-reagiert-nach-idioten-spruch-von-rummenigge-zr-94040523.html)
-- **Nick Woltemade "ein Lottogewinn" für Deutschland**: [Link](https://www.sport1.de/news/fussball/wm-qualifikation/2025/11/nick-woltemade-ein-lottogewinn-fur-deutschland)
 
 
