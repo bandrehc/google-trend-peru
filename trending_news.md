@@ -1,3 +1,64 @@
+### miss universo 2024 (N/A, 20/11/2025 23:29 Lima)
+
+Sin noticias relacionadas disponibles.
+
+
+### miss venezuela 2025 (N/A, 20/11/2025 23:29 Lima)
+
+- **🔵 VEA Venevisión EN VIVO por Internet | Transmisión de la Final del Miss Universo 2025 con Stephany Abasali**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/venevision-en-vivo-gratis-como-ver-a-stephany-abasali-en-final-del-miss-universo-2025-por-tv-abierta-y-venevision-play-online-miss-venezuela-nnda-nnrt-noticia/)
+- **La despampanante presentación en traje de baño de Venezuela en el Miss Universo**: [Link](https://www.ntn24.com/noticias-entretenimiento/la-despampanante-presentacion-en-traje-de-bano-de-venezuela-en-el-miss-universo-591141)
+- **qbnoticias**: [Link](https://www.instagram.com/p/DRTd4yejPv7/)
+
+
+### tijuana - juárez (N/A, 20/11/2025 23:29 Lima)
+
+- **Tijuana vs FC Juárez: posibles alineaciones y lo que debes saber**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/15972773/tijuana-vs-juarez-alineaciones-formaciones-fecha-horario-y-lo-que-debes-saber-play-in-apertura-2025)
+- **✅ ¿A qué hora empieza y en qué canal TV mirar Tijuana vs. Juárez EN VIVO AHORA por Play In de Liga MX 2025?**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/a-que-hora-juega-y-que-canal-transmite-tijuana-vs-juarez-en-vivo-hoy-por-el-play-in-de-liga-mx-2025-horarios-y-canales-usa-nnda-nnrt-noticia/)
+- **Liga MX: FC Juárez se enfrentará a Tijuana por la llave 2**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-fc-juarez-se-enfrentara-a-tijuana-por-la-llave-2-noticia-1664485)
+
+
+### bucks - 76ers (N/A, 20/11/2025 23:29 Lima)
+
+- **76ers vs. Bucks (21 Nov, 2025) Live Score**: [Link](https://africa.espn.com/nba/game/_/gameId/401810121)
+- **Raptors 121-112 76ers (20 Nov, 2025) Video Highlights**: [Link](https://africa.espn.com/nba/video?gameId=401810113)
+- **Maxey powers Sixers over Bucks as Spurs beat Hawks**: [Link](https://uk.sports.yahoo.com/news/maxey-powers-sixers-over-bucks-040541612.html)
+
+
+### billie eilish (N/A, 20/11/2025 23:29 Lima)
+
+- **I Tried Billie Eilish's $90 "Your Turn II" Perfume & It's Perfect For Winter**: [Link](https://www.elitedaily.com/beauty/billie-eilish-your-turn-2-perfume-fragrance-review)
+- **EILISH FRAGRANCES LAUNCHES YOUR TURN II, A LUSCIOUS NEW CHAPTER FOR THE AWARD-WINNING COLLECTION**: [Link](https://www.morningstar.com/news/pr-newswire/20251120ny29388/eilish-fragrances-launches-your-turn-ii-a-luscious-new-chapter-for-the-award-winning-collection)
+- **Billie Eilish on Her New “Sirensque” Fragrance and Why She Lets Scent Guide Her Night-Out Vibes**: [Link](https://www.instyle.com/billie-eilish-night-out-beauty-routine-fragrance-11853520)
+
+
+### jeff satur (N/A, 20/11/2025 23:29 Lima)
+
+- **Mexico’s Fatima Bosch crowned Miss Universe winner in glittering finale of scandal-hit pageant**: [Link](https://www.cnn.com/2025/11/20/style/miss-universe-2025-finale-winner-intl-hnk)
+- **Miss Universe 2025: Winner to be crowned in Thailand as chaotic edition ends**: [Link](https://www.bbc.com/news/articles/cgmxmxljg8mo)
+- **Miss Universe 2025 Pageant Hosts & Judges This Year at the Competition**: [Link](https://entertainmentnow.com/fashion-famous-celebrity-designers/miss-universe-2025-judges-hosting-hosts/)
+
+
+### spurs - hawks (N/A, 20/11/2025 23:29 Lima)
+
+- **Hawks lose control in 4th quarter, lose to Spurs 135-126**: [Link](https://www.peachtreehoops.com/recaps/66358/hawks-lose-control-in-4th-quarter-lose-to-spurs-135-126)
+- **San Antonio vs. Atlanta, Final Score: Jones-Garcia shines in 135-126 win**: [Link](https://www.poundingtherock.com/game-recaps/90219/san-antonio-vs-atlanta-final-score-jones-garcia-shines-in-135-126-win)
+- **Spurs' De'Aaron Fox: Leads Spurs to win Thursday**: [Link](https://www.cbssports.com/fantasy/basketball/news/spurs-deaaron-fox-leads-spurs-to-win-thursday/)
+
+
+### liga mx (N/A, 20/11/2025 23:29 Lima)
+
+- **América vs Tigres: Sigue en vivo la final de ida, Liga MX Femenil**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/15983314/america-vs-tigres-en-vivo-final-ida-liga-mx-femenil-apertura-2025)
+- **🏟️ Canal 9 y TUDN EN VIVO — seguir Club América vs. Tigres por TV abierta y Online (Final Liga MX Femenil)**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/canal-9-y-tudn-en-vivo-gratis-donde-ver-partido-america-vs-tigres-femenil-por-futbol-tv-abierta-y-nu9ve-online-final-liga-mx-femenil-nnda-nnrt-noticia/)
+- **Si América Femenil no conquista el campeonato será un fracaso**: [Link](https://es-us.noticias.yahoo.com/am%C3%A9rica-femenil-conquista-campeonato-fracaso-230044380.html)
+
+
+### rcn en vivo (N/A, 20/11/2025 23:29 Lima)
+
+- **🎩 VER Canal RCN EN VIVO | Transmisión de la Final del Miss Universo 2025 con Vanessa Pulgarín**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/canal-rcn-en-vivo-gratis-donde-ver-a-vanessa-pulgarin-en-la-final-del-miss-universo-2025-por-television-abierta-y-rcn-television-online-nnda-nnrt-noticia/)
+- **Vanessa Pulgarín se robó las miradas en la pasarela de Miss Universo: esta fue la inesperada reacción del dueño del evento**: [Link](https://www.infobae.com/colombia/2025/11/20/vanessa-pulgarin-se-robo-las-miradas-en-la-pasarela-de-miss-universo-esta-fue-la-inesperada-reaccion-del-dueno-del-evento/)
+- **Quién es Vanessa Pulgarín, Miss Colombia y una de las favoritas para Miss Universo 2025**: [Link](https://www.marca.com/co/2025/11/20/691f0120268e3ed3138b45a0.html)
+
+
 ### miss peru (N/A, 20/11/2025 20:55 Lima)
 
 - **Furia en redes por los trajes de Karla Bacigalupo en ‘Miss Universo 2025′: critican a Jessica Newton**: [Link](https://www.infobae.com/peru/2025/11/20/furia-en-redes-por-los-trajes-de-karla-bacigalupo-en-miss-universo-2025-critican-a-jessica-newton/)
@@ -965,65 +1026,5 @@ Sin noticias relacionadas disponibles.
 - **Nick Woltemade: Deutschlands Nummer eins im Sturm in WM-Quali**: [Link](https://www.faz.net/aktuell/sport/fussball-wm/deutsches-team/nick-woltemade-deutschlands-nummer-eins-im-sturm-in-wm-quali-accg-110783403.html)
 - **Bayern-Flirt Woltemade reagiert nach „Idioten“-Spruch von Rummenigge**: [Link](https://www.merkur.de/sport/fc-bayern/bayern-flirt-woltemade-reagiert-nach-idioten-spruch-von-rummenigge-zr-94040523.html)
 - **Nick Woltemade "ein Lottogewinn" für Deutschland**: [Link](https://www.sport1.de/news/fussball/wm-qualifikation/2025/11/nick-woltemade-ein-lottogewinn-fur-deutschland)
-
-
-### países bajos vs (N/A, 17/11/2025 15:28 Lima)
-
-- **Países Bajos pone un pie en el Mundial tras empatar ante Polonia**: [Link](https://www.espn.com.ar/futbol/champions-league/nota/_/id/15959161/polonia-vs-paises-bajos-eliminatorias-mundial-2026-uefa)
-- **Depay evita un susto**: [Link](https://as.com/futbol/internacional/depay-evita-un-susto-f202511-n/)
-- **Frenkie de Jong culpa el empate de Holanda a las 'enormes distancias' en el ataque**: [Link](https://tribuna.com/es/news/2025-11-15-frenkie-de-jong-culpa-el-empate-de-holanda-a-las-enormes-distancias-en-el-ataque/)
-
-
-### belgrano - unión (N/A, 17/11/2025 15:28 Lima)
-
-- **Qué canal pasa Belgrano vs Unión hoy: dónde ver el partido gratis y en vivo de la Liga Profesional**: [Link](https://www.365scores.com/es/news/belgrano-vs-union-hoy-donde-ver/)
-- **Como son los numeros de Nazareno Arasa dirigiendo a Unión**: [Link](https://santafedeportivo.com/2025/11/17/como-son-los-numeros-de-nazareno-arasa-dirigiendo-a-union/)
-- **Unión está entre los que MENOS JUGADORES USARON en el Torneo Clausura**: [Link](https://onefootball.com/es/noticias/union-esta-entre-los-que-menos-jugadores-usaron-en-el-torneo-clausura-41954811)
-
-
-### defensa y justicia - independiente rivadavia (N/A, 17/11/2025 15:28 Lima)
-
-- **Defensa vs Independiente: resultado EN VIVO y estadísticas de la Liga Profesional**: [Link](https://www.365scores.com/es/news/defensa-vs-independiente-resultado-vivo/)
-- **De la mano de Villa y Fernández, la Lepra le gana a Defensa y Justicia 1 a 0**: [Link](https://www.mendozapost.com/deportes/torneo-clausura-2025-fecha-16-defensa-y-justicia-independiente-rivadavia/)
-- **Platense vs Gimnasia de La Plata por el Torneo Clausura 2025: minuto a minuto, en directo**: [Link](https://marcapersonalweb.com.ar/2025/11/17/platense-vs-gimnasia-de-la-plata-por-el-torneo-clausura-2025-minuto-a-minuto-en-directo/)
-
-
-### gibraltar vs (N/A, 17/11/2025 15:28 Lima)
-
-Sin noticias relacionadas disponibles.
-
-
-### malta - polonia (N/A, 17/11/2025 15:28 Lima)
-
-- **Malta vs Polonia: cómo verlo, vista previa de las eliminatorias del WCQ**: [Link](https://www.ucvradio.pe/noticias-del-mundo/malta-vs-polonia-como-verlo-vista-previa-de-las-eliminatorias-del-wcq/51863/)
-- **Malta vs Polonia pronostico y comparación de cuotas 17.11.2025**: [Link](https://www.livetipsportal.com/es/pronosticos-apuestas-deportivas/malta-vs-polonia-clas-mundial-europa-10798466/)
-
-
-### luxemburgo vs (N/A, 17/11/2025 15:28 Lima)
-
-- **Alemania venció a Luxemburgo y quedó a un paso de clasificar al Mundial 2026**: [Link](https://www.espn.com.pe/futbol/mundial/nota/_/id/15942592/luxemburgo-vs-alemania-eliminatorias-uefa-equipo-fecha-hora-tv-en-vivo)
-- **¿A qué hora juega y en qué canal transmite Luxemburgo vs. Alemania por Eliminatorias UEFA 2025?**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/a-que-hora-juega-y-que-canal-transmite-luxemburgo-vs-alemania-en-vivo-hoy-15-de-noviembre-por-eliminatorias-uefa-2025-horarios-y-canales-tv-online-nnda-nnrt-noticia/)
-- **La revolución alemana sigue estancada a pesar de una victoria por 2-0 a un ritmo más lento**: [Link](https://www.elpueblo.pe/noticias-internacionales/la-revolucion-alemana-sigue-estancada-a-pesar-de-una-victoria-por-2-0-a-un-ritmo-mas-lento/120484/)
-
-
-### alemania (N/A, 17/11/2025 15:28 Lima)
-
-- **Alemania volverá a suministrar todo tipo de armamento a Israel tras levantar las restricciones**: [Link](https://elpais.com/internacional/2025-11-17/alemania-volvera-a-suministrar-todo-tipo-de-armamento-a-israel-tras-levantar-las-restricciones.html)
-- **Alemania levantará la restricción de exportar armas a Israel**: [Link](https://www.dw.com/es/alemania-levantar%C3%A1-la-restricci%C3%B3n-de-exportar-armas-a-israel/a-74776134)
-- **Alemania levanta las restricciones a la exportación de armamento a Israel | Hamás | Franja de Gaza últimas | MUNDO**: [Link](https://elcomercio.pe/mundo/europa/alemania-levanta-las-restricciones-a-la-exportacion-de-armamento-a-israel-hamas-franja-de-gaza-ultimas-noticia/)
-
-
-### alemania - eslovaquia (N/A, 17/11/2025 15:28 Lima)
-
-- **Alemania - Eslovaquia en directo | Clasificación al Mundial hoy en vivo**: [Link](https://www.marca.com/futbol/clasificacion-al-mundial-uefa/alemania-eslovaquia/2025/11/17/01_0116_20251117_357_507-directo.html)
-- **Alemania - Eslovaquia hoy en directo: clasificación Mundial 2026 en vivo**: [Link](https://as.com/futbol/internacional/alemania-eslovaquia-hoy-en-directo-clasificacion-mundial-2026-en-vivo-f202511-d/)
-- **Alemania quiere sellar su pase al Mundial con una victoria en casa ante Eslovaquia**: [Link](https://www.espn.com.ar/futbol/mundial/nota/_/id/15962231/alemania-vs-eslovaquia-eliminatorias-uefa-equipo-fecha-hora-tv-en-vivo)
-
-
-### montenegro - croacia (N/A, 17/11/2025 15:28 Lima)
-
-- **Pronóstico Montenegro Croacia - Mundial 17/11/25**: [Link](https://www.sportytrader.com/es/pronosticos/montenegro-croacia-305777/)
-- **Montenegro vs Croacia Pronóstico Apuestas | Mundial 17/11/25**: [Link](https://www.apuestas-deportivas.es/pronostico/montenegro-vs-croacia-pronostico-clasificacion-mundial-17-11-2025/)
-- **Montenegro vs Croacia por la fase de grupos de Eliminatorias UEFA EN VIVO. Seguilo minuto a minuto por la web de TN.**: [Link](https://tn.com.ar/deportes/futbol/2025/11/17/montenegro-vs-croacia-en-vivo-por-la-fase-de-grupos-de-las-eliminatorias-uefa-hora-donde-ver-y-formaciones/)
 
 
