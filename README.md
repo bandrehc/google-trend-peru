@@ -1,3 +1,45 @@
+### marruecos sub-17 - brasil sub-17 (N/A, 21/11/2025 11:30 Lima)
+
+- **Marruecos - Brasil, en vivo: última hora del Mundial Sub 17, hoy en directo**: [Link](https://as.com/futbol/internacional/marruecos-brasil-en-vivo-ultima-hora-del-mundial-sub-17-hoy-en-directo-f202511-n/)
+- **Baha mira a Brasil con confianza y celebra nuevo brillo del fútbol marroquí en la escena mundial**: [Link](https://es.rue20.com/2025/11/20/baha-mira-a-brasil-con-confianza-y-celebra-nuevo-brillo-del-futbol-marroqui-en-la-escena-mundial/)
+- **Brasil vs. Marruecos, por el Mundial Sub 17, EN VIVO: dónde verlo por TV y cómo seguirlo ONLINE**: [Link](https://www.tycsports.com/futbol-internacional/brasil-vs-marruecos-por-el-mundial-sub-17-en-vivo-donde-ver-por-tv-y-online-id699559.html)
+
+
+### consulta dni (N/A, 21/11/2025 11:30 Lima)
+
+- **Fonavi: MEF cambia a su representante en la Comisión Ad Hoc encargada de la devolución de aportes**: [Link](https://larepublica.pe/economia/2025/11/20/fonavi-mef-cambia-a-su-representante-en-la-comision-ad-hoc-encargada-de-la-devolucion-de-aportes-hnews-848960)
+- **Devolución Fonavi 2025: cómo saber si eres beneficiario, consulta con tu DNI**: [Link](https://elcomercio.pe/respuestas/tramites/fonavi-2025-consulta-con-dni-si-eres-beneficiario-y-quienes-integran-la-lista-22-link-padron-tdpe-noticia/)
+- **Fonavi aprobó el Reintegro 4: ¿Quiénes pueden cobrar este noviembre de 2025?**: [Link](https://libero.pe/tiempoextra/2025/11/11/fonavi-aprobo-reintegro-4-quienes-pueden-cobrar-noviembre-de-2025-828179)
+
+
+### al ittihad - al riyadh (N/A, 21/11/2025 11:30 Lima)
+
+- **Al Ittihad vs Al Riyadh: Live streaming, TV channel, kick-off time & where to watch Saudi Pro League 2025-26**: [Link](https://khelnow.com/football/world-football-al-ittihad-vs-al-riyadh-where-to-watch-202511)
+- **Reports Confirm Delay in Sharahili's Return and Increase Defensive Ittihad's Worries**: [Link](https://www.ysscores.com/en/news/13858108/Reports-Confirm-Delay-in-Sharahili's-Return-and-Increase-Defensive-Ittihad's-Worries)
+- **Al-Ittihad heavily favored over struggling Al-Riyadh, winners of 4 straight H2H meetings**: [Link](https://www.red94.net/news/39036-al-ittihad-heavily-favored-over-struggling-al-riyadh-winners-of-4-straight-h2h-m/)
+
+
+### dni (N/A, 21/11/2025 11:30 Lima)
+
+- **Trámite de DNI electrónico gratis este 26 de noviembre: ¿Dónde y quiénes son los beneficiarios?**: [Link](https://www.infobae.com/peru/2025/11/21/tramite-de-dni-electronico-gratis-este-26-de-noviembre-donde-y-quienes-son-los-beneficiarios/)
+- **RENIEC dará DNI electrónico gratuito el 21 de noviembre: así puedes obtenerlo**: [Link](https://elcomercio.pe/respuestas/tramites/reniec-dara-dni-electronico-gratuito-el-20-y-21-de-noviembre-asi-puedes-obtenerlo-tdpe-noticia/)
+- **DNI electrónico gratis en noviembre 2025: Estos son los distritos beneficiados**: [Link](https://lahora.pe/nacional/dni-electronico-gratis-en-noviembre-2025-estos-son-los-distritos-beneficiados/)
+
+
+### billy idol (N/A, 21/11/2025 11:30 Lima)
+
+- **Who sang the female backing vocals on Billy Idol’s ‘Eyes Without a Face’?**: [Link](https://faroutmagazine.co.uk/who-sang-female-backing-vocals-on-billy-idols-eyes-without-a-face/)
+- **Hear Billy Idol With a String Quartet on New ‘Dying to Live’ Ballad**: [Link](https://www.rollingstone.com/music/music-news/billy-idol-dying-to-live-billy-idol-should-be-good-doc-1235465382/)
+- **Billy Idol and J. Ralph Join Forces on New Song “Dying To Live” For Upcoming Documentary Billy ...**: [Link](https://music.mxdwn.com/2025/11/15/news/billy-idol-and-j-ralph-join-forces-on-new-song-dying-to-live-for-upcoming-documentary-billy-idol-should-be-dead/)
+
+
+### rt (N/A, 21/11/2025 11:30 Lima)
+
+- **“Wicked: For Good” Is Very, Very Bad**: [Link](https://www.newyorker.com/culture/the-current-cinema/wicked-for-good-is-very-very-bad)
+- **Box Office: ‘Wicked: For Good’ Earns Huge $30.8 Million in Previews, Highest of the Year**: [Link](https://variety.com/2025/film/box-office/box-office-wicked-for-good-previews-1236587612/)
+- **6 New Movies Our Critics Are Talking About This Week**: [Link](https://www.nytimes.com/2025/11/21/movies/new-movies-this-week-critics.html)
+
+
 ### clima lima (N/A, 21/11/2025 07:50 Lima)
 
 - **Vuelve el frío en primavera: Senamhi activa alerta naranja por descenso de temperatura en Lima y 12 regiones del país**: [Link](https://www.infobae.com/peru/2025/11/19/vuelve-el-frio-senamhi-activa-alerta-naranja-por-drastico-descenso-de-temperatura-en-lima-y-12-regiones/)
@@ -986,45 +1028,5 @@ Sin noticias relacionadas disponibles.
 - **3 Things to watch for in Cavs vs Bucks**: [Link](https://www.fearthesword.com/cavs-game-previews/40439/3-things-to-watch-for-in-cavs-vs-bucks)
 - **NBA Matchups: November 17**: [Link](https://establishtherun.com/nba-matchups-november-17-3/)
 - **Can the Bucks keep it close against the Cavaliers?**: [Link](https://www.nbcsports.com/watch/nba/can-the-milwaukee-bucks-keep-it-close-against-the-cleveland-cavaliers)
-
-
-### abel hernández (N/A, 17/11/2025 20:56 Lima)
-
-- **¿Qué dijo el presidente de Peñarol del posible regreso de Abel Hernández?**: [Link](https://www.espn.com.ar/futbol/uruguay/nota/_/id/15969888/penarol-que-dijo-el-presidente-del-posible-regreso-de-abel-hernandez)
-- **Universitario mostró interés en '9' de Liverpool de Uruguay**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/universitario-mostro-interes-delantero-liverpool-uruguay-n451724)
-- **Se olvidan de Diego Churín: El 9 uruguayo que llegaría a Universitario el 2026**: [Link](https://bolavip.com/pe/universitario/se-olvidan-de-diego-churin-el-9-uruguayo-que-llegaria-a-universitario-el-2026)
-
-
-### gimnasia vs (N/A, 17/11/2025 20:56 Lima)
-
-- **Platense vs Gimnasia La Plata Prediction & Stats**: [Link](https://www.betshoot.com/football/19362326-Platense-vs-Gimnasia-La-Plata-prediction/)
-
-
-### emelec - ldu quito (N/A, 17/11/2025 20:56 Lima)
-
-- **¡Le pegó en primera! Golazo de Alfonso Barco para el 1-0 de Emelec vs. Liga de Quito | VIDEO**: [Link](https://elcomercio.pe/deporte-total/peruanos-en-el-mundo/gol-de-alfonso-barco-hoy-con-emelec-vs-liga-de-quito-en-partido-por-copa-ecuador-video-noticia/)
-- **Gol madrugador de Alfonso Barco para 1-0 en Emelec vs LDU Quito por semifinal ida de la Copa Ecuador 2025**: [Link](https://www.infobae.com/peru/deportes/2025/11/18/gol-alfonso-barco-emelec-vs-ldu-quito-semifinal-ida-copa-ecuador-2025-video-hoy/)
-- **EN VIVO | Emelec vs Liga de Quito HOY por semifinal de Copa Ecuador vía DIRECTV ONLINE GRATIS**: [Link](https://libero.pe/futbol-internacional/2025/11/16/emelec-vs-liga-de-quito-en-vivo-gratis-semifinal-ida-de-copa-ecuador-via-directv-sports-lbev-228048)
-
-
-### delia espinoza (N/A, 17/11/2025 20:56 Lima)
-
-- **Delia Espinoza llegó al Ministerio Público y expone desacato de la Junta Nacional de Justicia**: [Link](https://www.infobae.com/peru/2025/11/17/delia-espinoza-llego-al-ministerio-publico-y-expone-desacato-de-la-junta-nacional-de-justicia/)
-- **Delia Espinoza llegó a la Corte Superior de Justicia para agilizar su reposición: "El juez nos ha dicho que va a resolver con prontitud"**: [Link](https://rpp.pe/politica/judiciales/delia-espinoza-llego-a-la-corte-superior-de-justicia-para-agilizar-su-reposicion-el-juez-nos-ha-dicho-que-va-a-resolver-con-prontitud-noticia-1664119)
-- **Delia Espinoza llega al Ministerio Público y acusa a la JNJ de desacato**: [Link](https://caretas.pe/politica/delia-espinoza-llega-al-ministerio-publico-y-acusa-a-la-jnj-de-desacato/)
-
-
-### platense - gimnasia (N/A, 17/11/2025 20:56 Lima)
-
-- **Gimnasia goleó a Platense y jugará en octavos de final ante Unión**: [Link](https://www.espn.com.ar/futbol/argentina/nota/_/id/15971451/en-vivo-platense-vs-gimnasia-juegan-donde-ver-partido-formaciones-hora)
-- **Ganar para seguir con vida**: [Link](https://www.vavel.com/ar/futbol-argentino/2025/11/17/gimnasia-y-esgrima-la-plata/1241637-ganar-para-seguir-con-vida.html)
-- **Panaro, de cabeza a octavos: un gol clave del atacante del Lobo que ilusiona a todo Gimnasia**: [Link](https://www.infocielo.com/deportes/panaro-de-cabeza-a-octavos-un-gol-clave-del-atacante-del-lobo-que-ilusiona-a-todo-gimnasia)
-
-
-### japón (N/A, 17/11/2025 20:56 Lima)
-
-- **China amenaza con represalias económicas a Japón por declaraciones de Sanae Takaichi sobre Taiwán**: [Link](https://www.infobae.com/america/mundo/2025/11/17/china-amenaza-con-represalias-economicas-a-japon-por-declaraciones-de-sanae-takaichi-sobre-taiwan/)
-- **Una frase de Japón ha puesto en vilo la paz del Pacífico. La respuesta de China ha sido lanzar sus...**: [Link](https://www.xataka.com/magnet/japon-ha-advertido-a-china-taiwan-china-se-ha-tomado-serio-que-han-rodeado-unas-islas-japon)
-- **Tensión en Asia: China realiza maniobras y endurece el tono con Japón en medio de la polémica por Taiwán**: [Link](https://rpp.pe/mundo/asia/tension-en-asia-china-realiza-maniobras-y-endurece-el-tono-con-japon-en-medio-de-la-polemica-por-taiwan-noticia-1664090)
 
 
