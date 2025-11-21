@@ -1,3 +1,73 @@
+### atlético clube de portugal - benfica (N/A, 21/11/2025 15:27 Lima)
+
+- **Atlético CP x Benfica Palpite – Onde Assistir, Hora e Escalações 21-11**: [Link](https://onefootball.com/pt-br/apostas/palpites/futebol/atletico-cp-x-benfica-21-11-2025)
+- **Quem é Rodrigo Rêgo, o jovem que vai fazer a estreia pelo Benfica contra o Atlético?**: [Link](https://bolanarede.pt/especial-bola-na-rede/atualidade/quem-e-rodrigo-rego-o-jovem-que-vai-fazer-a-estreia-pelo-benfica-contra-o-atletico/)
+- **Sporting, Porto e Benfica: Quem Tem o Jogo Mais Fácil?**: [Link](https://observador.pt/prognosticos/sporting-porto-e-benfica-na-taca-quem-tem-o-jogo-mais-facil/)
+
+
+### u. d. las palmas - albacete (N/A, 21/11/2025 15:27 Lima)
+
+- **Las Palmas - Albacete, en directo: LaLiga Hypermotion, hoy en vivo**: [Link](https://as.com/futbol/segunda/las-palmas-albacete-en-directo-laliga-hypermotion-hoy-en-vivo-f202511-d/)
+- **LA PREVIA: El Estadio Gran Canaria se prepara para un nuevo duelo**: [Link](https://www.udlaspalmas.es/noticias/la-previa-jornada-15-albacete)
+- **🎙️ALBERTO: "Vamos con la ilusión de darle algo bueno a la afición que se desplaza"**: [Link](https://www.albacetebalompie.es/videos/alberto-vamos-con-la-ilusion-de-darle-algo-bueno-a-la-aficion-que-se-desplaza-b-kxyfczwm0)
+
+
+### hoffenheim (N/A, 21/11/2025 15:27 Lima)
+
+- **3. Liga - Tabellenführer Duisburg geht in Hoffenheim unter**: [Link](https://www1.wdr.de/sport/fussball/dritte-liga/spielbericht-dritteliga-hoffenheim-msv-duisburg-100.html)
+- **MSV Duisburg: Trainingslager und Langzeitverletzte - so plant Hirsch mit Symalla und Co.**: [Link](https://www.reviersport.de/fussball/3liga/a621631---msv-duisburg-trainingslager-langzeitverletzte-plant-hirsch-symalla-co.html)
+- **Duell der Aufsteiger: „Hoffe zwo“ empfängt Spitzenreiter aus Duisburg**: [Link](https://www.tsg-hoffenheim.de/aktuelles/news/2025/11/duell-der-aufsteiger-hoffe-zwo-empfaengt-spitzenreiter-aus-duisburg)
+
+
+### mainz vs hoffenheim (N/A, 21/11/2025 15:27 Lima)
+
+- **Mainz 05 vs Hoffenheim: Bundesliga stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c04g01edkl5t)
+- **Grischa Promel vs. FSV Mainz – Player props & odds to score a goal on November 21**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/11/21/grischa-promel-soccer-player-props-11-21-2025/87389397007/)
+- **Mainz 05 - TSG Hoffenheim live**: [Link](https://www.marca.com/en/soccer/bundesliga/mainz-05-tsg-hoffenheim/2025/11/21/01_0108_20251121_810_1902-live.html)
+
+
+### valencia c. f. - levante (N/A, 21/11/2025 15:27 Lima)
+
+- **Valencia vs Levante: Apuestas, Pronóstico y Cuotas**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2025/noviembre/pronostico-valencia-vs-levante-21-11-25)
+- **LaLiga EA Sports: Levante se enfrentará a Valencia por la fecha 13**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-levante-se-enfrentara-a-valencia-por-la-fecha-13-noticia-1664564)
+- **La marcha granota parte hacia Mestalla**: [Link](https://as.com/futbol/primera/la-marcha-granota-parte-hacia-mestalla-f202511-n/)
+
+
+### twitch (N/A, 21/11/2025 15:27 Lima)
+
+- **Australia's social media ban for kids under 16 - how will it work?**: [Link](https://www.bbc.com/news/articles/cwyp9d3ddqyo)
+- **Facebook and Instagram to start kicking Australian teenagers off platforms as social media ban looms**: [Link](https://www.theguardian.com/australia-news/2025/nov/19/meta-starts-notifying-australian-teens-of-account-shutdowns-as-social-media-ban-looms)
+- **Amazon's Twitch Under Scrutiny for Age Restrictions in Australia**: [Link](https://www.gurufocus.com/news/3220066/amazons-twitch-under-scrutiny-for-age-restrictions-in-australia)
+
+
+### juan pablo varillas (N/A, 21/11/2025 15:27 Lima)
+
+- **Juan Pablo Varillas avanzó a los cuartos de final del Challenger de Guayaquil**: [Link](https://elcomercio.pe/deporte-total/tenis/juan-pablo-varillas-avanzo-a-los-cuartos-de-final-del-challenger-de-guayaquil-murkel-dellien-ultimas-noticia/)
+- **Bueno queda fuera del Challenger de Guayaquil tras derrota**: [Link](https://diarioviral.pe/deportes/bueno-queda-fuera-del-challenger-de-guayaquil-tras-derrota-49095)
+- **Juan Pablo Varillas y Gonzalo Bueno debutan con triunfo en el Challenger de Guayaquil**: [Link](https://rpp.pe/tenis/mas-tenis/juan-pablo-varillas-y-gonzalo-bueno-debutan-con-triunfo-en-el-challenger-de-guayaquil-noticia-1664344)
+
+
+### niza - marsella (N/A, 21/11/2025 15:27 Lima)
+
+- **Marsella se mide con Niza en busca de mantener su buen momento**: [Link](https://www.espn.com.pe/futbol/francia/nota/_/id/15972338/niza-vs-marsella-por-ligue-1-equipo-fecha-hora-y-tv-en-vivo)
+- **Liga de Francia: Olympique de Marsella busca subir a la cima del torneo**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-de-francia-olympique-de-marsella-busca-subir-a-la-cima-del-torneo-noticia-1664561)
+- **Pronóstico Nice - Marseille. Ligue 1 | 21/11/2025**: [Link](https://gainblers.com/pe/pronosticos/futbol/francia/ligue-1/pronostico-nice-marseille-21-11-2025/)
+
+
+### mainz 05 - hoffenheim (N/A, 21/11/2025 15:27 Lima)
+
+- **Liveticker | 1. FSV Mainz 05 - TSG Hoffenheim : | 11. Spieltag | Bundesliga 2025/26**: [Link](https://www.kicker.de/mainz-gegen-hoffenheim-2025-bundesliga-5050842/ticker)
+- **Der Sporttalk mit Julian Beimel**: [Link](https://www.1730live.de/2025/11/21/der-sporttalk-mit-julian-beimel-10/)
+- **Mainz-05-Ticker: Schweigen die 05-Fans gegen Hoffenheim?**: [Link](https://www.mittelhessen.de/sport/fussball/fussball-bundesliga/mainz-05-ticker-schweigen-die-05-fans-gegen-hoffenheim-4804899)
+
+
+### bodo glimt (N/A, 21/11/2025 15:27 Lima)
+
+- **Juventus receive double injury boost in Thursday’s training session**: [Link](https://www.juvefc.com/dusan-vlahovic-juan-cabal-training-juventus-squad/)
+- **Report: Juventus rule out Vlahovic injury, but status to face Fiorentina still unclear**: [Link](https://sports.yahoo.com/article/report-juventus-rule-vlahovic-injury-210555465.html)
+- **TFF stands firm in keeping Kenan Yıldız after Juventus recall | Daily Sabah**: [Link](https://www.dailysabah.com/sports/football/tff-stands-firm-in-keeping-kenan-yildiz-after-juventus-recall)
+
+
 ### marruecos sub-17 - brasil sub-17 (N/A, 21/11/2025 11:30 Lima)
 
 - **Marruecos - Brasil, en vivo: última hora del Mundial Sub 17, hoy en directo**: [Link](https://as.com/futbol/internacional/marruecos-brasil-en-vivo-ultima-hora-del-mundial-sub-17-hoy-en-directo-f202511-n/)
@@ -958,75 +1028,5 @@ Sin noticias relacionadas disponibles.
 - **Preview:Bulgaria vs Georgia - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/bulgaria/world-cup-2026/preview/bulgaria-vs-georgia-prediction-team-news-lineups_585835.html)
 - **Comments and predictions for Bulgaria vs Georgia: A painful misstep**: [Link](https://baonghean.vn/en/nhan-dinh-du-doan-bulgaria-vs-georgia-buoc-hut-dau-don-10311717.html)
 - **Bulgaria vs Georgia Preview & Prediction | 2026 FIFA World Cup Qualifying (UEFA)**: [Link](https://www.thestatszone.com/bulgaria-vs-georgia-preview-prediction-2026-fifa-world-cup-qualifying-uefa-158891)
-
-
-### austria vs (N/A, 18/11/2025 03:33 Lima)
-
-- **How to watch today's Austria vs Bosnia-Herzegovina World Cup qualification game: Live stream, TV channel, and start time**: [Link](https://www.goal.com/en-us/news/watch-austria-vs-bosnia-herzegovina-world-cup-qualification-live-stream-tv/blt18d412fa361d1aa3)
-- **BiH Football Players traveled to Vienna**: [Link](https://sarajevotimes.com/bih-football-players-traveled-to-vienna/)
-- **Austria vs Bosnia-Herzegovina Tips, Predictions and Bet Builder**: [Link](https://news.bet365.com/en-gb/article/football-austria-bosnia-herzegovina-tips-and-predictions/2025111709252291829)
-
-
-### escocia vs dinamarca (N/A, 18/11/2025 03:33 Lima)
-
-- **Dinamarca y Escocia juegan una final por la clasificación al Mundial 2026**: [Link](https://www.espn.com.ar/futbol/mundial/nota/_/id/15952154/escocia-vs-dinamarca-eliminatorias-uefa-equipo-fecha-hora-y-tv-en-vivo)
-- **¿La suerte, las dudas danesas y el ruido de Hampden favorecerán a Escocia?**: [Link](https://masmma.com.mx/futbol/la-suerte-las-dudas-danesas-y-el-ruido-de-hampden-favoreceran-a-escocia/122954/)
-- **Dinamarca sufre bajas por enfermedad antes del partido de clasificación al Mundial contra Escocia**: [Link](https://www.msn.com/es-us/noticias/other/dinamarca-sufre-bajas-por-enfermedad-antes-del-partido-de-clasificaci%C3%B3n-al-mundial-contra-escocia/ar-AA1QxQav)
-
-
-### japon vs bolivia (N/A, 18/11/2025 03:33 Lima)
-
-- **Amistoso internacional: Japón se enfrenta a Bolivia en un partido amistoso**: [Link](https://rpp.pe/futbol/ligas-internacionales/amistoso-internacional-japon-se-enfrenta-a-bolivia-en-un-partido-amistoso-noticia-1664070)
-- **Dónde ver Bolivia vs Japón HOY: canal tv online del amistoso por fecha FIFA 2025**: [Link](https://www.infobae.com/peru/deportes/2025/11/18/donde-ver-bolivia-vs-japon-en-vivo-hoy-canal-tv-online-amistoso-fecha-fifa-2025/)
-- **Bolivia vs Japón: horarios y canales para ver el partido amistoso FIFA**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/bolivia-vs-japon-en-vivo-gratis-hoy-via-futbol-libre-tv-futbol-canal-horarios-canales-tv-y-donde-ver-partido-amistoso-video-noticia/)
-
-
-### mexico vs paraguay (N/A, 18/11/2025 03:33 Lima)
-
-- **México vs. Paraguay: Venta de boletos en San Antonio va lenta**: [Link](https://www.espn.com.ar/futbol/selecciones/nota/_/id/15972465/fecha-fifa-amistoso-mexico-vs-paraguay-venta-boletos-san-antonio-lenta)
-- **Amistoso internacional: México y Paraguay se miden en un partido amistoso**: [Link](https://rpp.pe/futbol/ligas-internacionales/amistoso-internacional-mexico-y-paraguay-se-miden-en-un-partido-amistoso-noticia-1664162)
-- **México tiene tareas dentro y fuera de la cancha contra Paraguay**: [Link](https://espndeportes.espn.com/futbol/selecciones/nota/_/id/15972388/fecha-fifa-amistoso-mexico-tareas-dentro-fuera-cancha-vs-paraguay)
-
-
-### timberwolves - mavericks (N/A, 18/11/2025 03:33 Lima)
-
-- **Copper Flagg, Mavs Disappoint NBA Fans in Blowout Loss to Anthony Edwards, Wolves**: [Link](https://bleacherreport.com/articles/25298012-copper-flagg-mavs-disappoint-nba-fans-blowout-loss-anthony-edwards-wolves)
-- **Mavericks Highlights at Minnesota Timberwolves | November 17, 2025**: [Link](https://bvmsports.com/2025/11/17/mavericks-highlights-at-minnesota-timberwolves-november-17-2025/)
-- **Timberwolves' Naz Reid: Double-doubles in blowout win**: [Link](https://www.cbssports.com/fantasy/basketball/news/timberwolves-naz-reid-double-doubles-in-blowout-win/)
-
-
-### congo (N/A, 17/11/2025 23:29 Lima)
-
-- **RD Congo no para de sorprender: venció en penales a Nigeria y jugará el repechaje internacional para el Mundial 2026 [VIDEO]**: [Link](https://rpp.pe/futbol/eliminatorias/nigeria-vs-congo-en-vivo-a-que-hora-juegan-y-donde-ver-final-playoffs-eliminatorias-caf-por-repechaje-al-mundial-2026-link-gratis-partidos-de-hoy-noticia-1664007)
-- **Nigeria vs Congo: entrenador nigeriano acusa a Congo de usar “vudú” para eliminarlos del Mundial | VIDEO**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/nigeria-vs-congo-entrenador-nigeriano-acusa-a-congo-de-usar-vudu-para-eliminarlos-del-mundial-video-noticia/)
-- **Nigeria se quedó sin Mundial 2026 y la República Democrática del Congo jugará el repechaje**: [Link](https://www.espn.com.pe/futbol/mundial/nota/_/id/15967855/mundial-2026-nigeria-no-clasifico-rd-congo-juega-el-repechaje)
-
-
-### half life 3 (N/A, 17/11/2025 23:29 Lima)
-
-- **OK, for real though, what's the chance of a Half-Life 3 announcement happening soon? Here's what we know**: [Link](https://www.pcgamer.com/games/fps/half-life-3-rumors-poll-2025/)
-- **Half-Life, 3 Screenshots And Official Trailer**: [Link](https://www.dsogaming.com/pc-performance-analyses/half-life-3-screenshots-and-official-trailer/)
-- **Half-Life 3 Hopes Reignited as Insiders Suggest Its Announcement Is Still Coming**: [Link](https://wccftech.com/half-life-3-hopes-reignited-insiders-suggest-its-announcement-is-still-coming/)
-
-
-### nuggets - bulls (N/A, 17/11/2025 23:29 Lima)
-
-- **Nuggets vs Bulls schedule: Date, time, live stream, and more on NBA 2025-26 season**: [Link](https://thesportstak.com/basketball/story/nuggets-vs-bulls-schedule-date-time-live-stream-and-more-on-nba-2025-26-season-3215402-2025-11-17)
-- **Chicago faces Denver, aims to break 5-game slide**: [Link](https://abcnews.go.com/Sports/wireStory/chicago-faces-denver-aims-break-5-game-slide-127584477)
-- **Jim Lorenzi: Bulls injury report for Denver tonight: …**: [Link](https://au.sports.yahoo.com/jim-lorenzi-bulls-injury-report-194055567.html)
-
-
-### españa vs turquia (N/A, 17/11/2025 23:29 Lima)
-
-- **España busca sellar su boleto al Mundial 2026 con victoria ante Turquía**: [Link](https://www.espn.com.ar/futbol/mundial/nota/_/id/15967045/espana-vs-turquia-por-las-eliminatorias-uefa-equipo-fecha-hora-y-tv-en-vivo)
-- **De la Fuente: “No habrá revolución”**: [Link](https://as.com/futbol/seleccion/de-la-fuente-no-habra-revolucion-f202511-n/)
-- **De la Fuente pasa de revoluciones ante Turquía y apela a lo que hay en juego: "Seguir ganando"**: [Link](https://espanol.eurosport.com/futbol/clasificacion-mundial-uefa/2026/declaraciones-de-la-fuente-rotaciones-turquia-racha-invicto-numero-uno-ranking_vid60037802/video.shtml)
-
-
-### cavaliers - bucks (N/A, 17/11/2025 20:56 Lima)
-
-- **3 Things to watch for in Cavs vs Bucks**: [Link](https://www.fearthesword.com/cavs-game-previews/40439/3-things-to-watch-for-in-cavs-vs-bucks)
-- **NBA Matchups: November 17**: [Link](https://establishtherun.com/nba-matchups-november-17-3/)
-- **Can the Bucks keep it close against the Cavaliers?**: [Link](https://www.nbcsports.com/watch/nba/can-the-milwaukee-bucks-keep-it-close-against-the-cleveland-cavaliers)
 
 
