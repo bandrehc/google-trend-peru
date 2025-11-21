@@ -1,3 +1,73 @@
+### miss peru (N/A, 20/11/2025 20:55 Lima)
+
+- **Furia en redes por los trajes de Karla Bacigalupo en ‘Miss Universo 2025′: critican a Jessica Newton**: [Link](https://www.infobae.com/peru/2025/11/20/furia-en-redes-por-los-trajes-de-karla-bacigalupo-en-miss-universo-2025-critican-a-jessica-newton/)
+- **VER Final de Miss Universo 2025 EN VIVO: dónde ver la gala y a qué hora inicia**: [Link](https://elcomercio.pe/respuestas/a-que-hora/final-de-miss-universo-2025-donde-ver-hora-y-todo-sobre-el-certamen-de-belleza-video-youtube-link-finalistas-tdpe-noticia/)
+- **Karla Bacigalupo deslumbró en el Miss Universo 2025 con su traje típico: ¿qué inspiró su diseño?**: [Link](https://rpp.pe/famosos/celebridades/karla-bacigalupo-brilla-en-miss-universo-2025-con-su-traje-tipico-que-inspiro-su-diseno-noticia-1664395)
+
+
+### grupo frontera (N/A, 20/11/2025 20:55 Lima)
+
+- **Grupo Frontera en Puebla 2026: ¿cuándo es la venta de boletos en Superboletos para el concierto en el Centro**: [Link](https://la-lista.com/entretenimiento/grupo-frontera-en-puebla-2026-cuando-es-la-venta-de-boletos-en-superboletos-para-el-concierto-en-el-centro-expositor)
+- **Grupo Frontera anunció conciertos en Colombia: fecha, lugares, precios de boletas y más**: [Link](https://www.elespectador.com/revista-vea/lo-ultimo/grupo-frontera-anuncio-conciertos-en-colombia-fecha-lugares-precios-de-boletas-y-mas/)
+- **Grupo Frontera anuncia la gira Triste Pero Bien C*brón: Aquí las fechas**: [Link](https://www.billboard.com/espanol/noticias/grupo-frontera-anuncia-gira-triste-pero-bien-cbron-fechas-1236115280/)
+
+
+### venevision en vivo (N/A, 20/11/2025 20:55 Lima)
+
+- **💍 VER Venevisión EN VIVO | Transmisión de la Final del Miss Universo 2025 GRATIS con Stephany Abasali**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/venevision-en-vivo-gratis-como-ver-a-stephany-abasali-en-final-del-miss-universo-2025-por-tv-abierta-y-venevision-play-online-miss-venezuela-nnda-nnrt-noticia/)
+- **La despampanante presentación en traje de baño de Venezuela en el Miss Universo**: [Link](https://www.ntn24.com/noticias-entretenimiento/la-despampanante-presentacion-en-traje-de-bano-de-venezuela-en-el-miss-universo-591141)
+- **Stephany Abasali brilla en Miss Universo con traje típico inspirado en Los Roques**: [Link](https://correodelcaroni.com/sociedad/actual/stephany-abasali-brilla-en-miss-universo-con-traje-tipico-inspirado-en-los-roques/)
+
+
+### magic - clippers (N/A, 20/11/2025 20:55 Lima)
+
+- **Clippers vs. Magic Prediction, Odds and Best NBA Prop Bets for Thursday, Nov. 20**: [Link](https://www.si.com/betting/clippers-vs-magic-prediction-odds-and-best-nba-prop-bets-for-thursday-nov-20)
+- **Clippers vs. Magic, 76ers vs. Bucks: Live Updates, top moments and highlights**: [Link](https://www.nba.com/news/clippers-vs-magic-76ers-vs-bucks-live-updates-top-moments-and-highlights)
+- **Los Angeles Clippers vs Orlando Magic Prediction, Pick, Odds -- 11/20**: [Link](https://www.actionnetwork.com/nba/orlando-magic-vs-los-angeles-clippers-prediction-pick-odds-thursday-november-20)
+
+
+### internacional (N/A, 20/11/2025 20:55 Lima)
+
+- **At Morumbi: São Paulo v Internacional set for home ground**: [Link](https://onefootball.com/fr/news/at-morumbi-sao-paulo-v-internacional-set-for-home-ground-41973619)
+- **São Paulo to juggle 2026 Morumbi fixtures and concerts, director says**: [Link](https://onefootball.com/en/news/sao-paulo-to-juggle-2026-morumbi-fixtures-and-concerts-director-says-41941928)
+- **CBF confirms São Paulo’s last home game at Vila, club wants Morumbi**: [Link](https://onefootball.com/en/news/cbf-confirms-sao-paulos-last-home-game-at-vila-club-wants-morumbi-41970170)
+
+
+### ceara (N/A, 20/11/2025 20:55 Lima)
+
+- **Ceará x Inter ao vivo na Jornada Digital da Gaúcha; acompanhe**: [Link](https://gauchazh.clicrbs.com.br/esportes/inter/noticia/2025/11/ceara-x-inter-ao-vivo-pelo-brasileirao-acompanhe-na-jornada-digital-da-gaucha-cmi7xsbsr01o70138i7fmewkt.html)
+- **Ceará x Internacional no Brasileirão: onde assistir ao vivo, horário e escalação**: [Link](https://www.estadao.com.br/esportes/futebol/ceara-x-internacional-no-brasileirao-onde-assistir-ao-vivo-horario-e-escalacao-npres/)
+- **A noite da alta tensão no Castelão**: [Link](https://ge.globo.com/rs/blogs/vida-real/post/2025/11/20/a-noite-da-alta-tensao-no-castelao.ghtml)
+
+
+### pachuca - pumas (N/A, 20/11/2025 20:55 Lima)
+
+- **Pachuca vs. Pumas: por oportunidad de ir a Liguilla del Apertura 2025**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/15981033/pachuca-vs-pumas-play-in-apertura-2025-liga-mx)
+- **Pronóstico CF Pachuca Pumas UNAM - Liga MX 20/11/25**: [Link](https://www.sportytrader.com/es/pronosticos/cf-pachuca-pumas-unam-306262/)
+- **Transmisión EN VIVO del Pachuca vs Pumas hoy: cómo mirar el partido por TV o streaming**: [Link](https://www.365scores.com/es/news/transmision-en-vivo-del-pachuca-vs-pumas/)
+
+
+### los juegos del hambre (N/A, 20/11/2025 20:55 Lima)
+
+- **“Los juegos del hambre: Amanecer en la cosecha” presenta su revelador tráiler**: [Link](https://elcomercio.pe/luces/cine/los-juegos-del-hambre-amanecer-en-la-cosecha-presenta-su-revelador-trailer-celebs-ultimas-noticia/)
+- **El primer vistazo a “The Hunger Games: Sunrise on the Reaping” ya promete ser una locura**: [Link](https://cnnespanol.cnn.com/2025/11/20/entretenimiento/primer-vistazo-hunger-games-sunrise-on-the-reaping-trax)
+- **'Los juegos del hambre: Amanecer en la cosecha' presenta a Joseph Zada como el joven Haymitch en su primer teaser tráiler**: [Link](https://rpp.pe/cine/internacional/los-juegos-del-hambre-amanecer-en-la-cosecha-revelan-primer-teaser-trailer-video-con-joven-haymitch-y-fecha-de-estreno-noticia-1664642)
+
+
+### sports (N/A, 20/11/2025 20:55 Lima)
+
+- **Juegos Bolivarianos 2025: E-Sports abre la competencia con E-Football y Dota 2 en Lima**: [Link](https://andina.pe/agencia/noticia-juegos-bolivarianos-2025-esports-abre-competencia-efootball-y-dota-2-lima-1052730.aspx)
+- **XX Juegos Bolivarianos Ayacucho – Lima 2025: este viernes 21 arrancan competencias**: [Link](https://www.cronicaviva.com.pe/xx-juegos-bolivarianos-ayacucho-lima-2025-este-viernes-21-arrancan-competencias/)
+- **Los Juegos Bolivarianos inauguran su edición con la competencia de E-Sports en el Coliseo Dibós**: [Link](https://ovacion.pe/noticias/juegos-bolivarianos-lima-ayacucho-2025/juegos-bolivarianos-inauguran-su-edicion)
+
+
+### telemundo en vivo (N/A, 20/11/2025 20:55 Lima)
+
+- **Minuto a minuto: sigue aquí la cobertura en vivo de Miss Universo 2025**: [Link](https://www.telemundowashingtondc.com/especiales/miss-universo/miss-universo-2025-tailandia-live-updates-ultima-hora/2355101/)
+- **Miss Universo 2025: Todas las candidatas del certamen y las favoritas para llevarse la codiciada corona**: [Link](https://www.infobae.com/entretenimiento/2025/11/20/miss-universo-2025-todas-las-candidatas-del-certamen-y-las-favoritas-para-llevarse-la-codiciada-corona/)
+- **🟡 Dónde mirar la Gran Final del Miss Universo 2025 EN VIVO EN DIRECTO por tv abierta y streaming**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/donde-ver-final-del-miss-universo-2025-en-vivo-en-directo-por-tv-abierta-y-streaming-horarios-y-canales-tv-online-en-usa-y-mexico-nnda-nnrt-noticia/)
+
+
 ### chelsea vs barcelona (N/A, 20/11/2025 15:28 Lima)
 
 - **Chelsea vs Barcelona LIVE: UEFA Women's Champions League watch stream, listen, live text, stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cnvelv06n3dt)
@@ -955,75 +1025,5 @@ Sin noticias relacionadas disponibles.
 - **Pronóstico Montenegro Croacia - Mundial 17/11/25**: [Link](https://www.sportytrader.com/es/pronosticos/montenegro-croacia-305777/)
 - **Montenegro vs Croacia Pronóstico Apuestas | Mundial 17/11/25**: [Link](https://www.apuestas-deportivas.es/pronostico/montenegro-vs-croacia-pronostico-clasificacion-mundial-17-11-2025/)
 - **Montenegro vs Croacia por la fase de grupos de Eliminatorias UEFA EN VIVO. Seguilo minuto a minuto por la web de TN.**: [Link](https://tn.com.ar/deportes/futbol/2025/11/17/montenegro-vs-croacia-en-vivo-por-la-fase-de-grupos-de-las-eliminatorias-uefa-hora-donde-ver-y-formaciones/)
-
-
-### feriados diciembre 2025 (N/A, 17/11/2025 11:33 Lima)
-
-- **Peruanos gozarán de feriado largo en lo que queda del 2025: son 4 días consecutivos**: [Link](https://elcomercio.pe/respuestas/cuando/los-trabajadores-peruanos-gozaran-de-este-feriado-largo-en-lo-que-queda-del-2025-son-4-dias-consecutivos-tdpe-noticia/)
-- **La buena noticia para trabajadores del sector público y privado Perú respecto al próximo feriado largo de 2025**: [Link](https://larepublica.pe/economia/2025/11/17/la-buena-noticia-para-trabajadores-del-sector-publico-y-privado-peru-respecto-al-proximo-feriado-largo-de-2025-atmp-968303)
-- **Feriados 2025 en Perú: conoce el próximo feriado largo y los últimos días de descanso del año**: [Link](https://www.apnoticias.pe/peru/exitosa-noticias/feriados-2025-en-peru-conoce-el-proximo-feriado-largo-y-los-ultimos-dias-de-descanso-del-ano-1468995)
-
-
-### retiro afp prima (N/A, 17/11/2025 11:33 Lima)
-
-- **Vea cronograma retiro AFP 2025: Estas son las fechas según el último dígito de tu DNI**: [Link](https://elcomercio.pe/respuestas/tramites/cronograma-retiro-afp-2025-que-fecha-te-corresponde-iniciar-el-tramite-y-cobrar-hasta-4-uit-o-21-400-soles-tdpe-noticia/)
-- **Retiro de AFP: Conoce qué afiliados recibirán su primera UIT antes de Navidad**: [Link](https://www.exitosanoticias.pe/actualidad/retiro-afp-conoce-afiliados-recibiran-su-primera-uit-antes-navidad-n162830)
-- **AFP 2025: revisa cuándo cobrarás la primera UIT antes de Navidad y cómo acceder al retiro**: [Link](https://larepublica.pe/economia/2025/11/15/afp-2025-revisa-cuando-cobraras-la-primera-uit-antes-de-navidad-y-como-acceder-al-retiro-atmp-484500)
-
-
-### i (N/A, 17/11/2025 11:33 Lima)
-
-- **Tom Cruise Receives Honorary Oscar at 2025 Governors Awards**: [Link](https://people.com/tom-cruise-honorary-oscar-at-2025-governors-awards-11850067)
-- **Tom Cruise, Debbie Allen, Wynn Thomas receive honorary Oscars**: [Link](https://ca.news.yahoo.com/tom-cruise-debbie-allen-wynn-154246365.html)
-- **‘Making films is who I am’: Tom Cruise gets lifetime achievement Oscar**: [Link](https://www.theguardian.com/film/2025/nov/17/tom-cruise-lifetime-achievement-oscar-governors-awards)
-
-
-### alemania vs eslovaquia (N/A, 17/11/2025 11:33 Lima)
-
-- **Apuestas y pronósticos Alemania vs Eslovaquia**: [Link](https://www.marca.com/apuestas-deportivas/predicciones/2025/11/16/apuestas-pronosticos-alemania-vs-eslovaquia.html)
-- **Alemania quiere sellar su pase al Mundial con una victoria en casa ante Eslovaquia**: [Link](https://www.espn.com.ar/futbol/mundial/nota/_/id/15962231/alemania-vs-eslovaquia-eliminatorias-uefa-equipo-fecha-hora-tv-en-vivo)
-- **Pronóstico Alemania Eslovaquia - Mundial 17/11/25**: [Link](https://www.sportytrader.com/es/pronosticos/alemania-eslovaquia-305804/)
-
-
-### profuturo afp (N/A, 17/11/2025 07:52 Lima)
-
-- **Cronograma del Retiro-AFP 2025: Fechas de pago y retiro según el último dígito de tu DNI**: [Link](https://elcomercio.pe/respuestas/tramites/cronograma-retiro-afp-2025-que-fecha-te-corresponde-iniciar-el-tramite-y-cobrar-hasta-4-uit-o-21-400-soles-tdpe-noticia/)
-- **Retiro de AFP: Conoce qué afiliados recibirán su primera UIT antes de Navidad**: [Link](https://www.exitosanoticias.pe/actualidad/retiro-afp-conoce-afiliados-recibiran-su-primera-uit-antes-navidad-n162830)
-- **AFP 2025: revisa cuándo cobrarás la primera UIT antes de Navidad y cómo acceder al retiro**: [Link](https://larepublica.pe/economia/2025/11/15/afp-2025-revisa-cuando-cobraras-la-primera-uit-antes-de-navidad-y-como-acceder-al-retiro-atmp-484500)
-
-
-### cronograma de pagos (N/A, 17/11/2025 07:52 Lima)
-
-- **ANSES: quiénes cobran hoy, 17 de noviembre**: [Link](https://www.infobae.com/economia/2025/11/17/anses-quienes-cobran-hoy-17-de-noviembre/)
-- **PNC: cuál es el monto de las pensiones en diciembre 2025 con el aumento y el aguinaldo**: [Link](https://www.lanacion.com.ar/economia/pnc-cual-es-el-monto-de-las-pensiones-en-diciembre-2025-con-el-aumento-y-el-aguinaldo-nid17112025/)
-- **ANSES noviembre: cronograma completo de pagos y bono extr**: [Link](https://www.diariodebatepregon.com/argentina-y-el-mundo/anses-noviembre-cronograma-completo-de-pagos-y-bono-extr)
-
-
-### bn (N/A, 17/11/2025 07:52 Lima)
-
-- **Samsung and other South Korean firms pledge larger domestic investments after U.S. tariff deal**: [Link](https://www.cnbc.com/2025/11/16/south-korean-firms-pledge-domestic-investments-after-us-tariff-deal.html)
-- **Samsung, Hyundai announce domestic investments after US-South Korea trade deal**: [Link](https://www.reuters.com/world/asia-pacific/samsung-electronics-add-chip-production-line-demand-rises-2025-11-16/)
-- **Korean Conglomerates Pledge $550 Billion Domestic Investment**: [Link](https://www.bloomberg.com/news/articles/2025-11-16/korean-conglomerates-pledge-464-billion-of-domestic-investment)
-
-
-### la tinka (N/A, 17/11/2025 07:52 Lima)
-
-- **La Tinka: descubre los números ganadores del sorteo del 16 de noviembre**: [Link](https://elcomercio.pe/videos/entretenimiento/la-tinka-descubre-los-numeros-ganadores-del-sorteo-del-16-de-noviembre-si-o-si-sorteo-loteria-ganadores-nnav-video-amtv-noticia/)
-- **Sorteo de La Tinka del domingo 16 de noviembre de 2025: resultados y verifica si ganaste**: [Link](https://www.infobae.com/peru/2025/11/17/la-tinka-del-16-de-noviembre-descubre-los-ganadores-del-ultimo-sorteo/)
-- **Resultados de La Tinka del domingo 16 de noviembre: consulta los números ganadores del Pozo Millonario**: [Link](https://larepublica.pe/sociedad/2025/11/16/resultados-de-la-tinka-en-vivo-hoy-domingo-16-de-noviembre-2025-numeros-ganadores-del-pozo-millonario-boliyapa-y-mas-del-sorteo-atmp-626505)
-
-
-### lunes 17 de noviembre feriado en peru (N/A, 17/11/2025 07:52 Lima)
-
-- **Declaran feriado no laborable mañana 17 de noviembre en esta localidad de Perú: suspenden clases y labores**: [Link](https://www.infobae.com/peru/2025/11/16/declaran-feriado-no-laborable-manana-17-de-noviembre-en-esta-localidad-de-peru-suspenden-clases-y-labores/)
-- **Declaran día no laborable el 17 de noviembre: colegios no tendrán clases en esta región, según Minedu**: [Link](https://larepublica.pe/sociedad/2025/11/16/no-hay-clases-escolares-en-colegios-este-lunes-17-de-noviembre-por-ser-declarado-dia-no-laborable-en-esta-region-segun-minedu-742640)
-- **¡Confirmado! Este 17 de noviembre será DÍA no laborable: ¿Quiénes descansan y por qué?**: [Link](https://www.exitosanoticias.pe/actualidad/confirmado-17-noviembre-sera-dia-laborable-quienes-descansan-que-n162747)
-
-
-### jazz - bulls (N/A, 17/11/2025 07:52 Lima)
-
-- **Box Score & Player Grades: Jazz 150, Bulls 147 (2OT) – November 16, 2025**: [Link](https://www.bleachernation.com/bulls/2025/11/16/bulls-147-jazz-150-2ot/)
-- **Lauri Markkanen News: Drops 47 in win**: [Link](https://www.rotowire.com/basketball/headlines/lauri-markkanen-news-drops-47-in-win-504132)
-- **Chicago in losing streak, Vučević's double-double against Utah**: [Link](https://en.vijesti.me/sports-e/basketball/783540/Chicago-in-losing-streak--Vucevic%27s-double-double-against-Utah)
 
 
