@@ -1,3 +1,73 @@
+### club universitario de deportes (N/A, 22/11/2025 15:25 Lima)
+
+- **Andy Polo se confiesa tras el ‘tri’: “Si por mí fuera, me quedaría toda la vida en Universitario”**: [Link](https://depor.com/futbol-peruano/descentralizado/andy-polo-si-por-mi-fuera-me-quedaria-todo-la-vida-en-universitario-no-descarta-volver-al-extranjero-tras-tricampeonato-video-noticia/)
+- **Andy Polo: “Me quedaría toda la vida en Universitario”**: [Link](https://www.futbolperuano.com/liga-1/noticias/andy-polo-se-confiesa-tras-el-tricampeonato-y-reafirma-su-amor-por-universitario-552196)
+- **Andy Polo envía mensaje a Alianza Lima: “Nadie ha sido tetracampeón en el fútbol peruano”**: [Link](https://panamericana.pe/deportes/459036-andy-polo-envia-mensaje-alianza-lima-nadie-tetracampeon-futbol-peruano)
+
+
+### chankas cyc - universitario (N/A, 22/11/2025 15:25 Lima)
+
+- **Dónde ver Universitario vs Los Chankas HOY: canal tv online del duelo en Andahuaylas del Torneo Clausura de Liga 1 2025**: [Link](https://www.infobae.com/peru/deportes/2025/11/22/donde-donde-ver-universitario-vs-los-chankas-en-vivo-hoy-canal-tv-online-partido-andahuaylas-fecha-19-torneo-clausura-liga-1-2025/)
+- **Universitario vs. Los Chankas en vivo: a qué hora juegan, canal TV y dónde ver transmisión**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/universitario-vs-los-chankas-en-vivo-online-gratis-por-liga-1-a-que-hora-juegan-canal-que-transmite-y-donde-ver-por-torneo-clausura-lbposting-noticia/)
+- **El llamativo once de Universitario frente a Los Chankas**: [Link](https://www.americatv.com.pe/deportes/futbol-mundial/llamativo-once-universitario-enfrentar-chankas-n451784)
+
+
+### ian garry (N/A, 22/11/2025 15:25 Lima)
+
+- **Dana’s Dream, Belal’s Nightmare**: [Link](https://www.mmamania.com/latest-news/404347/dana-whites-dream-scenario-ufc-qatars-belal-muhammad-has-no-fighting-future-under-islam-title-reign)
+- **Ian Machado Garry reveals secret weapon that will help him win future Islam Makhachev fight**: [Link](https://bloodyelbow.com/2025/11/22/ian-machado-garry-reveals-secret-weapon-that-will-help-him-win-future-islam-makhachev-fight/)
+- **UFC Qatar – Belal Muhammad vs Ian Garry Predictions, Betting Odds And Best Bets**: [Link](https://theplayoffs.news/en/ufc-qatar-belal-muhammad-vs-ian-garry-predictions-betting-odds-and-best-bets/)
+
+
+### psg - le havre (N/A, 22/11/2025 15:25 Lima)
+
+- **PSG : Une composition pleine de surprises pour défier Le Havre**: [Link](https://www.goal.com/fr/news/psg-une-composition-pleine-de-surprises-pour-defier-le-havre/blt97d9327acdf8a23d)
+- **Luis Enrique casse les codes : la compo qui surprend Paris**: [Link](https://www.football365.fr/luis-enrique-casse-les-codes-la-compo-qui-surprend-paris-10266115.html)
+- **Ligue 1. Marquinhos s'apprête à disputer son 500e match avec le PSG**: [Link](https://www.flashscore.fr/actualites/marquinhos-s-apprete-a-disputer-son-500e-match-avec-le-psg/GGnwwueK/)
+
+
+### villarreal - r.c.d. mallorca (N/A, 22/11/2025 15:25 Lima)
+
+- **Villarreal vs Mallorca: Apuestas, Pronóstico y Cuotas**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2025/noviembre/pronostico-villarreal-vs-mallorca-22-11-25)
+- **'29 de 39 puntos me parecen una pasada': Marcelino se olvida de la Champions para centrarse en el Mallorca**: [Link](https://tribuna.com/es/news/2025-11-22-29-de-39-puntos-me-parecen-una-pasada-marcelino-se-olvida-de-la-champions-para-centrarse/)
+- **Galería: El frío protagoniza la previa del Villarreal-Mallorca**: [Link](https://www.elperiodicomediterraneo.com/fotos/villarrealcf/2025/11/22/galeria-frio-protagoniza-previa-villarreal-124016770.html)
+
+
+### temblor hoy (N/A, 22/11/2025 15:25 Lima)
+
+- **Un sismo de magnitud 3.5 remeció la región Lima esta tarde**: [Link](https://rpp.pe/lima/actualidad/lima-sismo-de-magnitud-35-remecio-la-region-esta-tarde-noticia-1664929)
+- **Sismo en Áncash hoy, sábado 22 de noviembre vía IGP: Magnitud, hora y otros temblores en Perú**: [Link](https://elcomercio.pe/peru/igp-reporto-temblor-en-peru-hoy-21-y-22-de-noviembre-sismos-registrados-lugar-exacto-hora-y-magnitud-ultima-hora-censis-tdpe-noticia/)
+- **Terremoto moderado mag. 4.5 - 13 km NE of La Oroya, Peru, jueves 20 nov 2025 a las 08:18 (Hora Lima)**: [Link](https://www.volcanodiscovery.com/es/sismos/informe-sismo/22414947/mag4quake-Nov-20-2025-Central-Peru.html)
+
+
+### precio del dólar hoy perú (N/A, 22/11/2025 15:25 Lima)
+
+- **Precio del dólar en subida: Así se cotiza el tipo de cambio hoy 22 de noviembre en Perú**: [Link](https://www.infobae.com/peru/2025/11/21/valor-de-apertura-del-dolar-en-peru-este-21-de-noviembre-de-usd-a-pen/)
+- **Precio del dólar en Perú: a cuánto cerró el tipo de cambio el viernes 21 de noviembre**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-en-peru-2025-a-cuanto-esta-el-dolar-este-viernes-21-de-noviembre-tipo-de-cambio-segun-bcrp-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
+- **¿Cuánto está el dólar HOY? Precio compra y venta para este viernes 21 de noviembre**: [Link](https://latinanoticias.pe/te-ayudo/cuanto-esta-el-dolar-hoy-precio-compra-y-venta-para-este-21-de-noviembre-cotizacion-dolar-ahora-en-lima-sunat-sbs-bcrp-adp-noticia_20251121/)
+
+
+### napoli - atalanta (N/A, 22/11/2025 15:25 Lima)
+
+- **Napoli v Atalanta: the line-ups | 2025/26 Serie A Enilive MD12**: [Link](https://en.atalanta.it/news/napoli-v-atalanta-the-line-ups-2025-26-serie-a-enilive-md12)
+- **Serie A, le formazioni della 12ª giornata**: [Link](https://www.diretta.it/news/calcio-serie-a-serie-a-le-ufficiali-di-napoli-atalanta-conte-torna-alla-difesa-a-tre-palladino-col-falso-nueve/xry4TNT0/)
+- **De Magistris: “Classifica ancora buona. Conte? Ha un punto debole”**: [Link](https://www.calcionapoli1926.it/interviste/de-magistris-classifica-ancora-buona-conte-ha-un-punto-debole/)
+
+
+### psg vs (N/A, 22/11/2025 15:25 Lima)
+
+- **Preview:Paris Saint-Germain vs Le Havre - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/psg/preview/paris-saint-germain-vs-le-havre-prediction-team-news-lineups_585993.html)
+- **Luis Enrique breaks the codes: the composition that surprises Paris**: [Link](https://frenchfootballweekly.com/2025/11/22/luis-enrique-breaks-the-codes-the-composition-that-surprises-paris/)
+- **France League One Soccer**: [Link](https://www.wvnews.com/sports/pro/france-league-one-soccer/image_05f993d3-a40b-5e0f-92d1-d5f8c8b90ca3.html)
+
+
+### twitch (N/A, 22/11/2025 15:25 Lima)
+
+- **Australia’s under-16s social media ban is weeks away. How will it work – and how can I appeal if I’m wrongly banned?**: [Link](https://www.theguardian.com/media/2025/nov/23/australia-under-16-social-media-ban-how-will-it-work-which-platforms-age-verification)
+- **Meta to block under-16 Australians from Facebook and Instagram early**: [Link](https://dig.watch/updates/meta-to-block-under-16-australians-from-facebook-and-instagram-early)
+- **Complying with Australia’s Social Media Minimum Age Law**: [Link](https://newsroom.snap.com/australia-social-media-minimum-age-law)
+
+
 ### fiorentina - juventus (N/A, 22/11/2025 11:28 Lima)
 
 - **Fiorentina-Juve | ✅ UFFICIALI: la scelta su Koop, Gud e Vlahovic 🧨**: [Link](https://onefootball.com/it/notizie/fiorentina-juve-ufficiali-la-scelta-su-koop-gud-e-vlahovic-41987262)
@@ -957,75 +1027,5 @@ Sin noticias relacionadas disponibles.
 - **Cómo hizo Haití, unos de los países más pobres de América para soñar con la hazaña de clasificar al Mundial 2026**: [Link](https://www.espn.com.pe/futbol/mundial/nota/_/id/15975448/como-hizo-haiti-unos-de-los-paises-mas-pobres-de-america-sonar-con-la-hazana-clasificar-al-mundial-2026)
 - **¡Estará en 2026! Haití vuelve a la Copa Mundial tras 52 años de ausencia**: [Link](https://rpp.pe/futbol/eliminatorias/estara-en-2026-haiti-vuelve-a-la-copa-mundial-tras-52-anos-de-ausencia-noticia-1664379)
 - **Nicaragua vs. Haití (0-2): ver resumen y goles del partido por Eliminatorias Concacaf | VIDEO**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/nicaragua-vs-haiti-en-vivo-gratis-hoy-via-futbol-libre-tv-nicasports-paramount-youtube-horarios-canales-tv-y-donde-ver-partido-por-eliminatorias-concacaf-video-noticia/)
-
-
-### lakers vs (N/A, 18/11/2025 23:29 Lima)
-
-- **Are Luka Doncic & Austin Reaves Playing Tonight? Lakers vs Jazz Injury Report, How to Watch & More (Nov. 18)**: [Link](https://www.essentiallysports.com/nba-active-basketball-news-are-luka-doncic-austin-reaves-playing-tonight-lakers-vs-jazz-injury-report-how-to-watch-more-november-eighteen/)
-- **Will Hardy Explains Utah Jazz’s Approach for LeBron James’ Debut**: [Link](https://www.si.com/nba/jazz/onsi/news/will-hardy-explains-utah-jazz-approach-lebron-james-debut)
-- **NBA Best Bets: Jazz at Lakers Best Prop Bets for Tuesday 11/18/25**: [Link](https://dknetwork.draftkings.com/2025/11/18/nba-best-bets-jazz-at-lakers-best-prop-bets-for-tuesday-11-18-25/)
-
-
-### lakers - jazz (N/A, 18/11/2025 23:29 Lima)
-
-- **Sources: LeBron back to Lakers, will practice Mon.**: [Link](https://www.espn.com/nba/story/_/id/46988206/sources-lebron-james-back-lakers-g-league-practices)
-- **LeBron Debuts In NBA Record 23rd Season As Pistons Win Streak Hits 11**: [Link](https://www.barrons.com/news/lebron-debuts-in-nba-record-23rd-season-as-pistons-win-streak-hits-11-6055284a)
-- **Austin Reaves Thinks LeBron James Will Fit in Seamlessly During Lakers Return**: [Link](https://basketballforever.com/2025/11/18/austin-reaves-thinks-lebron-james-will-fit-in-seamlessly-during-lakers-return)
-
-
-### curazao (N/A, 18/11/2025 23:29 Lima)
-
-- **Milagro Mundial**: [Link](https://as.com/futbol/internacional/milagro-mundial-f202511-n/)
-- **Curazao busca meterse en el Mundial ¡¡¡con todos sus internacionales nacidos en Europa!!!**: [Link](https://www.marca.com/futbol/mundial/2025/11/18/curazao-busca-meterse-mundial-todos-internacionales-nacidos-europa.html)
-- **Curazao se juega el pase al Mundial 2026 con la imprevista ausencia de su entrenador**: [Link](https://www.espn.com.ar/futbol/mundial/nota/_/id/15970257/curazao-se-juega-el-pase-al-mundial-2026-sin-su-entrenador-dick-advocaat)
-
-
-### ranking fifa (N/A, 18/11/2025 23:29 Lima)
-
-- **Bolivia ante Surinam o Jamaica: las selecciones clasificadas al repechaje del Mundial 2026 y cómo se jugará**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/mundial-2026-bolivia-ante-surinam-o-jamaica-las-selecciones-clasificadas-al-repechaje-y-como-se-jugara-noticia/)
-- **Bolivia suma 3 derrotas seguidas antes de pelear por ir a la Copa del Mundo: ¿cuándo juega la Verde por el repechaje al Mundial 2026?**: [Link](https://larepublica.pe/deportes/2025/11/18/bolivia-suma-3-derrotas-seguidas-antes-de-pelear-por-ir-a-la-copa-del-mundo-cuando-juega-la-verde-por-el-repechaje-al-mundial-2026-978264)
-- **Bolivia no clasificó a la final del repechaje para el Mundial 2026: posibles rivales y fechas**: [Link](https://libero.pe/futbol-internacional/2025/11/18/bolivia-clasifico-final-del-repechaje-mundial-2026-posibles-rivales-fechas-287622)
-
-
-### spurs - grizzlies (N/A, 18/11/2025 23:29 Lima)
-
-- **It’s time for Basketball: Spurs vs Memphis Grizzlies**: [Link](https://www.poundingtherock.com/general/90098/its-time-for-basketball-spurs-vs-memphis-grizzlies)
-- **bet365 bonus code NYPBET: Bet $5, get $200 in bonus bets for Grizzlies vs. Spurs**: [Link](https://nypost.com/2025/11/18/betting/bet365-bonus-code-nypbet-bet-5-get-200-in-bonus-bets-for-grizzlies-vs-spurs/)
-- **Fox, Barnes take over for Spurs against Grizzlies**: [Link](https://www.nbcsports.com/watch/nba/deaaron-fox-harrison-barnes-take-over-for-spurs-in-win-vs-grizzlies)
-
-
-### al fondo hay sitio (N/A, 18/11/2025 23:29 Lima)
-
-- **“Al fondo hay sitio”: Juan Pablo explotó contra Alessia tras rechazarlo en el altar**: [Link](https://elcomercio.pe/tvmas/series/al-fondo-hay-sitio-juan-pablo-exploto-contra-alessia-tras-rechazarlo-en-el-altar-ultimas-noticia/)
-- **Alessia no se casó, Pamela López indignada Rosángela en EEG**: [Link](https://www.americatv.com.pe/mas-espectaculos/alessia-no-se-caso-pamela-lopez-indignada-y-rosangela-eeg-noticia-161451)
-- **Alessia lloró desconsoladamente tras rechazar a Juan Pablo**: [Link](https://www.americatv.com.pe/al-fondo-hay-sitio/alessia-rompio-llanto-cancelar-su-boda-juan-pablo-noticia-161443)
-
-
-### 19 de noviembre (N/A, 18/11/2025 23:29 Lima)
-
-- **¿Clases escolares son suspendidas este jueves 20 y viernes 21 de noviembre? Esto se sabe**: [Link](https://www.exitosanoticias.pe/actualidad/clases-escolares-son-suspendidas-jueves-20-viernes-21-noviembre-esto-sabe-n162967)
-- **Confirman día no laborable este 19 de noviembre: no habrá clases en colegios de esta región, según Minedu**: [Link](https://larepublica.pe/sociedad/2025/11/18/confirman-dia-no-laborable-este-19-de-noviembre-no-habra-clases-en-colegios-de-esta-region-segun-minedu-1572498)
-- **ATENCIÓN | Declaran este miercóles 19 de noviemnre DÍA NO LABORABLE: ¿Quienes se verán beneficiados, según El Peruano?**: [Link](https://wapa.pe/ocio/2025/11/18/atencion-declaran-miercoles-19-noviemnre-dia-no-laborable-quienes-se-veran-beneficiados-segun-peruano-1257930)
-
-
-### canada vs (N/A, 18/11/2025 23:29 Lima)
-
-- **Canada look to snap goalscoring woes in Venezuela clash**: [Link](https://www.mlssoccer.com/news/canada-look-to-snap-goalscoring-woes-in-venezuela-clash)
-- **Canada’s Kone shown straight red card in international friendly against Venezuela**: [Link](https://www.tsn.ca/soccer/article/canadas-kone-shown-straight-red-card-in-international-friendly-against-venezuela/)
-- **‘A seminal moment’: Reflecting on Canada’s Copa America win vs. Venezuela**: [Link](https://bvmsports.com/2025/11/18/a-seminal-moment-reflecting-on-canadas-copa-america-win-vs-venezuela/)
-
-
-### ecuador (N/A, 18/11/2025 23:29 Lima)
-
-- **Resultados consulta popular: Por qué Daniel Noboa sufrió en Ecuador un masivo revés electoral 7 meses después de ganar cómodamente su reelección**: [Link](https://www.bbc.com/mundo/articles/cjd0m4931ngo)
-- **¿Cómo queda parado Noboa tras el rechazo a las reformas propuestas por su Gobierno?**: [Link](https://cnnespanol.cnn.com/2025/11/17/latinoamerica/video/ecuador-noboa-rechazo-urnas-propuestas-gobierno-aristegui-tv)
-- **El “No” se impuso en las cuatro preguntas del referéndum en Ecuador**: [Link](https://www.infobae.com/america/america-latina/2025/11/17/el-no-se-impuso-en-las-cuatro-preguntas-del-referendum-en-ecuador/)
-
-
-### paraguay vs (N/A, 18/11/2025 20:55 Lima)
-
-- **Gustavo Gómez hoy: Por qué no juega en el Paraguay vs México**: [Link](https://www.365scores.com/es/news/gustavo-gomez-hoy-no-juega-vs-mexico/)
-- **Paraguay ningunea a México; Gustavo Alfaro le daría descanso a varias figuras**: [Link](https://www.soyfutbol.com/internacional/paraguay-ningunea-a-mexico-gustavo-alfaro-le-daria-descanso-a-varias-figuras-20251118-0030.html)
-- **Julio Enciso hoy: Por qué no juega en el Paraguay vs México**: [Link](https://www.365scores.com/es/news/julio-enciso-hoy-no-juega-vs-mexico/)
 
 
