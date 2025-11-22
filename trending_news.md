@@ -1,3 +1,45 @@
+### formula 1 (N/A, 22/11/2025 03:29 Lima)
+
+- **Russell goes fastest during final practice in Las Vegas**: [Link](https://www.formula1.com/en/latest/article/fp3-russell-goes-fastest-from-verstappen-and-albon-during-final-practice-in.6obkr2bsdkzJVvHfY2d5UH)
+- **Las Vegas Grand Prix 2025: Lando Norris fastest in practice as loose manhole cover disrupts session**: [Link](https://www.bbc.com/sport/formula1/articles/c98n8zeygdko)
+- **Las Vegas Grand Prix 2025 F1 Qualifying LIVE Updates: Hamilton Crashes Out As Wet Surface Welcomes Drivers**: [Link](https://www.outlookindia.com/sports/formula-1/las-vegas-grand-prix-2025-qualifying-live-blog-strip-circuit-f1-updates)
+
+
+### dolar peru (N/A, 22/11/2025 03:29 Lima)
+
+- **Precio del dólar ahora sube: Así cerró el tipo de cambio hoy 21 de noviembre en Perú**: [Link](https://www.infobae.com/peru/2025/11/21/valor-de-apertura-del-dolar-en-peru-este-21-de-noviembre-de-usd-a-pen/)
+- **Precio del dólar en Perú: a cuánto cerró el tipo de cambio el viernes 21 de noviembre**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-en-peru-2025-a-cuanto-esta-el-dolar-este-viernes-21-de-noviembre-tipo-de-cambio-segun-bcrp-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
+- **Precio del dólar Perú y tipo de cambio hoy 20 de noviembre del 2025**: [Link](https://rpp.pe/economia/economia/precio-del-dolar-peru-y-tipo-de-cambio-hoy-20-de-noviembre-del-2025-noticia-1664528)
+
+
+### celtics - nets (N/A, 22/11/2025 03:29 Lima)
+
+- **Nic Claxton has 1st NBA triple-double to help the Nets beat the Celtics**: [Link](https://www.washingtonpost.com/sports/nba/2025/11/21/nets-celtics-score/21043fda-c752-11f0-be23-3ccb704f61ac_story.html)
+- **‘Come ready to play or don’t come at all’: Jaylen Brown unsatisfied after loss to Nets**: [Link](https://985thesportshub.com/2025/11/22/come-ready-to-play-or-dont-come-at-all-jaylen-brown-sounds-off-after-loss-to-nets/)
+- **Keys to the Game: Nets 113, Celtics 105**: [Link](https://www.nba.com/celtics/news/gamerecap-20251121-keys-bknbos)
+
+
+### suns - timberwolves (N/A, 22/11/2025 03:29 Lima)
+
+- **Suns 114, Timberwolves 113: It Just Means More (Mistakes)**: [Link](https://www.canishoopus.com/timberwolves-scores-results/62640/suns-vs-timberwolves-nba-final-score-game-recap)
+- **Leading by eight in the final minute, Wolves lose in Phoenix**: [Link](https://sports.yahoo.com/article/leading-eight-final-minute-wolves-045900854.html)
+- **Game Recap: Suns 114, Timberwolves 113**: [Link](https://www.nba.com/watch/video/game-recap-suns-114-timberwolves-113)
+
+
+### rockets - nuggets (N/A, 22/11/2025 03:29 Lima)
+
+- **Denver Nuggets fall to Houston Rockets 104-114, Sengun dominates with 28 points**: [Link](https://www.red94.net/news/58156-denver-nuggets-fall-to-houston-rockets-104-114-sengun-dominates-with-28-points/)
+- **Aaron Gordon Won't Return to NBA Cup Meeting with Houston - NBA News | Fantasy Basketball**: [Link](https://www.rotoballer.com/player-news/aaron-gordon-wont-return-to-nba-cup-meeting-with-houston/1761907)
+- **Nuggets' Nikola Jokic: Comes close to triple-double**: [Link](https://www.cbssports.com/fantasy/basketball/news/nuggets-nikola-jokic-comes-close-to-triple-double-504962/)
+
+
+### barcelona vs athletic bilbao (N/A, 22/11/2025 03:29 Lima)
+
+- **Cuatro cambios y una duda de Flick para la vuelta a casa ante el Athletic**: [Link](https://www.sport.es/es/noticias/barca/cuatro-cambios-duda-flick-vuelta-123983442)
+- **¿A qué hora juega FC Barcelona vs. Athletic EN VIVO por LaLiga 2025 en USA, España y México? | nnda nnrt**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/a-que-hora-juega-fc-barcelona-vs-athletic-en-vivo-por-laliga-2025-en-usa-espana-y-mexico-nnda-nnrt-noticia/)
+- **El posible once del Barça ante el Athletic en el partido del regreso, del morbo y del liderato**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20251122/1002573550/posible-once-barca-athletic-partido-regreso-morbo-liderato.html)
+
+
 ### hermana de alejandra baigorria (N/A, 21/11/2025 23:28 Lima)
 
 - **Thamara Medina, hermana de Alejandra Baigorria, sufre accidente en Paracas | Últimas | TVMAS**: [Link](https://elcomercio.pe/tvmas/farandula/thamara-medina-hermana-de-alejandra-baigorria-sufre-accidente-en-paracas-ultimas-noticia/)
@@ -987,45 +1029,5 @@ Sin noticias relacionadas disponibles.
 - **Gonzalo Bueno y la decisión que lo llevó al Australian Open: el top 200 y un Grand Slam, lo que le espera al tenista que emocionó a Lima**: [Link](https://elcomercio.pe/deporte-total/tenis-peruano-gonzalo-bueno-y-la-decision-que-lo-llevo-al-australian-open-el-top-200-y-un-grand-slam-lo-que-le-espera-al-tenista-que-emociono-a-lima-noticia/)
 - **Así quedó el ranking ATP tras el título de Jannik Sinner en el Masters y la final de Ignacio Buse en Montev...**: [Link](https://bolavip.com/pe/tenis/asi-quedo-el-ranking-atp-tras-el-titulo-de-jannik-sinner-en-el-masters-y-la-final-de-ignacio-buse-en-montevideo)
 - **Ignacio Buse subió cinco puestos en el Ranking ATP pese a caer en la final del Challenger de Montevi**: [Link](https://www.apnoticias.pe/peru/diario-uno/ignacio-buse-subio-cinco-puestos-en-el-ranking-atp-pese-a-caer-en-la-final-del-challenger-de-montevideo-1470541)
-
-
-### barcelona vs chelsea (N/A, 18/11/2025 15:29 Lima)
-
-- **UEFA Women's Champions League: How to watch Chelsea vs. Barcelona on Disney+**: [Link](https://www.espn.com/soccer/story/_/id/47007789/how-watch-chelsea-vs-barcelona-disney+)
-- **Aggie Beever-Jones: We want to right some wrongs against Barcelona | News | Official Site**: [Link](https://www.chelseafc.com/en/news/article/aggie-beever-jones-we-want-to-right-some-wrongs-against-barcelona)
-- **Preview:Chelsea Women vs Barcelona Women - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/chelsea-women/women-champions-league/preview/chelsea-vs-barcelona-prediction-team-news-lineups_585903.html)
-
-
-### kosovo - suiza (N/A, 18/11/2025 15:29 Lima)
-
-- **Kosovo-Suiza, en directo: clasificación Mundial, hoy en vivo**: [Link](https://as.com/futbol/internacional/kosovo-suiza-en-directo-clasificacion-mundial-hoy-en-vivo-f202511-n/)
-- **Inter FC, Akanji no descansa. El seleccionador de Suiza: "Ninguna lesión, no cambio el once"**: [Link](https://www.todomercadoweb.es/serie-a/inter-fc-akanji-no-descansa-el-seleccionador-de-suiza-ninguna-lesion-no-cambio-el-once-527030)
-- **Pronóstico Kosovo - Suiza - Mundial**: [Link](https://www.sportytrader.es/pronosticos/kosovo-suiza-305835/)
-
-
-### grecia vs (N/A, 18/11/2025 15:29 Lima)
-
-- **Bielorrusia vs Grecia pronostico y comparación de cuotas 18.11.2025**: [Link](https://www.livetipsportal.com/es/pronosticos-apuestas-deportivas/bielorrusia-vs-grecia-clas-mundial-europa-10798292/)
-
-
-### chile - perú (N/A, 18/11/2025 11:34 Lima)
-
-- **Con el debut de Fabio Gruber: el once que alista Perú para enfrentar a Chile en amistoso internacional en Sochi [FOTOS]**: [Link](https://rpp.pe/futbol/seleccion-peruana/alineacion-de-peru-ante-chile-en-amistoso-en-sochi-alex-valera-fabio-gruber-cesar-inga-noticia-1664114)
-- **Cómo preparan el debut de Gruber, la nostalgia de Gallese y el guiño de Valera a la liga rusa: Lo que no se vio de la previa de Perú en Sochi**: [Link](https://elcomercio.pe/deporte-total/seleccion/seleccion-peruana-como-preparan-el-debut-de-fabio-gruber-la-nostalgia-de-pedro-gallese-y-el-guino-de-alex-valera-a-la-liga-rusa-lo-que-no-se-vio-de-la-previa-al-peru-clasico-del-pacifico-tlcnota-noticia/)
-- **Perú vs. Chile hoy: alineaciones confirmadas para el partido amistoso**: [Link](https://libero.pe/futbol-peruano/seleccion-peruana/2025/11/17/alineaciones-peru-vs-chile-formacion-del-partido-amistoso-internacional-749955)
-
-
-### irak vs (N/A, 18/11/2025 11:34 Lima)
-
-- **Emiratos Árabes e Irak empataron en el playoff por un lugar en el repechaje intercontinental**: [Link](https://www.espn.com.pe/futbol/mundial/nota/_/id/15954030/emiratos-arabes-e-irak-empataron-playoff-repechaje-intercontinental)
-- **Irak vs. Emiratos Árabes Unidos EN VIVO vía Disney+: se enfrentan por el pase al repechaje del Mundial 2026**: [Link](https://rpp.pe/futbol/eliminatorias/irak-vs-emiratos-arabes-unidos-en-vivo-a-que-hora-y-donde-ver-playoffs-eliminatorias-por-repechaje-al-mundial-2026-link-streaming-partidos-de-hoy-noticia-1664024)
-- **Emiratos Árabes empató ante Irak en 'play-offs' para el repechaje al Mundial**: [Link](https://ovacion.pe/noticias/futbol-internacional/emiratos-arabes-empato-ante-irak-play-offs-repechaje-al-mundial)
-
-
-### brasil sub-17 - francia sub-17 (N/A, 18/11/2025 11:34 Lima)
-
-- **Épico Brasil**: [Link](https://as.com/futbol/internacional/epico-brasil-f202511-n/)
-- **Brasil busca un lugar en Cuartos de Final**: [Link](https://www.conmebol.com/noticias/brasil-busca-un-lugar-en-cuartos-de-final/)
-- **Brasil vs Francia: Resultado EN VIVO, minuto a minuto y goles del Mundial Sub 17**: [Link](https://www.365scores.com/es/news/brasil-vs-francia-resultado-en-vivo/)
 
 
