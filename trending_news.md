@@ -1,3 +1,59 @@
+### final copa libertadores 2025 (N/A, 21/11/2025 20:51 Lima)
+
+- **El Fan Zone CONMEBOL Libertadores abre sus puertas en Lima**: [Link](https://www.conmebol.com/noticias/el-fan-zone-conmebol-libertadores-abre-sus-puertas-en-lima/)
+- **Copa Libertadores 2025: la millonaria cifra que generará en Lima la gran final entre Palmeiras y Flamengo**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/copa-libertadores-2025-la-millonaria-cifra-que-generara-en-lima-la-gran-final-entre-palmeiras-y-flamengo-noticia/)
+- **Clásico Brasileño: Descubre quién domina el historial reciente entre Flamengo y Palmeiras**: [Link](https://depor.com/futbol-internacional/brasil/clasico-brasileno-descubre-quien-domina-el-historial-reciente-entre-flamengo-y-palmeiras-noticia/)
+
+
+### sudamericana (N/A, 21/11/2025 20:51 Lima)
+
+- **Pellegrino, antes de la final de la Copa Sudamericana: "Estamos con mucha ilusión"**: [Link](https://www.espn.com.ar/futbol/copa-sudamericana/nota/_/id/15987667/pellegrino-izquierdoz-conferencia-final-mineiro-copa-sudamericana-2025)
+- **Salvio, en ESPN F3: "Estoy feliz de estar acá, a un paso de conseguir algo histórico"**: [Link](https://espndeportes.espn.com/futbol/copa-sudamericana/nota/_/id/15983423/eduardo-salvio-lanus-mineiro-feliz-historico-final-espn-copa-sudamericana)
+- **Atlético Mineiro vs Lanús en vivo: últimas noticias de la final de la Copa Sudamericana**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/atletico-mineiro-vs-lanus-en-vivo-hoy-ver-final-de-la-copa-sudamericana-lbposting-noticia/)
+
+
+### cavaliers - pacers (N/A, 21/11/2025 20:51 Lima)
+
+- **Where to watch Pacers vs. Cavaliers free stream today**: [Link](https://www.masslive.com/tv/2025/11/where-to-watch-pacers-vs-cavaliers-free-stream-today.html)
+- **Pacers vs. Cavaliers Prediction, Odds and Best NBA Prop Bets for NBA Cup Group Play**: [Link](https://www.si.com/betting/pacers-vs-cavaliers-prediction-odds-and-best-nba-prop-bets-for-nba-cup-group-play-01kakgtdnr6p)
+- **Cavs vs. Pacers: preview, odds, injury report, TV**: [Link](https://www.cleveland.com/cavs/2025/11/cavs-vs-pacers-preview-odds-injury-report-tv.html)
+
+
+### iquique - cobresal (N/A, 21/11/2025 20:51 Lima)
+
+- **Deportes Iquique 2-1 Cobresal: Así quedó la lucha por el descenso en la Liga de Primera**: [Link](https://www.365scores.com/es/news/deportes-iquique-tabla-descenso-cobresal/)
+- **Aforo de 9.164 personas para partido de Iquique con Cobresal**: [Link](https://iquiquetv.cl/2025/11/20/aforo-de-9-164-personas-para-partido-de-iquique-con-cobresal/)
+- **[VIDEO] Alvaro Ramos encendió la ilusión de Iquique en la Liga con un doblete ante Cobresal**: [Link](https://cooperativa.cl/noticias/deportes/futbol/liga-de-primera/video-alvaro-ramos-encendio-la-ilusion-de-iquique-en-la-liga-con-un/2025-11-21/213045.html)
+
+
+### liga chilena (N/A, 21/11/2025 20:51 Lima)
+
+- **En Limache apelan a sacar lecciones de caída con la U para la "final" ante Unión**: [Link](https://www.espn.com.ar/futbol/chile/nota/_/id/15982781/en-limache-apelan-a-sacar-lecciones-de-caida-con-la-u-para-la-final-ante-union-espanola)
+- **Iquique y Unión Española quedan al borde del descenso y la próxima fecha podrían perder la categoría**: [Link](https://www.emol.com/noticias/Deportes/2025/11/21/1183927/iquique-union-espanola-descenso-torneonacional.html)
+- **VIDEO | Este gol hizo delirar a Limache y dejó a Unión Española pensando en la Primera B**: [Link](https://www.encancha.cl/videos/2025/11/21/video-este-gol-hizo-delirar-a-limache-y-dejo-a-union-espanola-pensando-en-la-primera-b/)
+
+
+### benfica vs (N/A, 21/11/2025 20:51 Lima)
+
+- **Where can I watch: Atletico CP vs. Benfica on beIN Sports?**: [Link](https://www.beinsports.com/en-us/soccer/articles/where-can-i-watch-atletico-cp-vs-benfica-on-bein-sports-2025-11-21)
+- **Mourinho critica atitude dos jogadores após vitória do Benfica na Taça de Portugal**: [Link](https://news.ssbcrack.com/mourinho-critica-atitude-dos-jogadores-apos-vitoria-do-benfica-na-taca-de-portugal/)
+- **Atletico CP hosts Benfica in Cup upset bid with 100% home form record**: [Link](https://www.red94.net/news/52905-atletico-cp-hosts-benfica-in-cup-upset-bid-with-100-home-form-record/)
+
+
+### sportivo luqueño - olimpia (N/A, 21/11/2025 20:51 Lima)
+
+- **Sportivo Luqueño vs Olimpia hoy: resultado EN VIVO y goles de la Copa de Primera**: [Link](https://www.365scores.com/es/news/sportivo-luqueno-vs-olimpia-resultado/)
+- **2 de Mayo vs. Deportivo Recoleta: Paso a paso**: [Link](https://d10.ultimahora.com/2-de-mayo-vs-deportivo-recoleta-paso-a-paso)
+- **Olimpia, por los puntos de honor**: [Link](https://www.lanacion.com.py/futboledicion-impresa/2025/11/21/olimpia-por-los-puntos-de-honor/)
+
+
+### preston vs (N/A, 21/11/2025 20:51 Lima)
+
+- **Blackburn Rovers player ratings with three 8/10s in Preston North End victory**: [Link](https://www.lancashiretelegraph.co.uk/sport/25642168.blackburn-rovers-player-ratings-three-8-10s-vs-preston/)
+- **Preston’s Ascent: Championship Underdogs Eye Automatic Promotion**: [Link](https://news.ssbcrack.com/prestons-ascent-championship-underdogs-eye-automatic-promotion/)
+- **Rovers edge Lancashire derby as Gudjohnsen form continues**: [Link](https://www.efl.com/news/2025/november/21/rovers-edge-lancashire-derby-as-gudjohnsen-form-continues/)
+
+
 ### atlético clube de portugal - benfica (N/A, 21/11/2025 15:27 Lima)
 
 - **Atlético CP x Benfica Palpite – Onde Assistir, Hora e Escalações 21-11**: [Link](https://onefootball.com/pt-br/apostas/palpites/futebol/atletico-cp-x-benfica-21-11-2025)
@@ -972,61 +1028,5 @@ Sin noticias relacionadas disponibles.
 - **Outage at Cloudflare Disrupts Parts of the Internet**: [Link](https://www.nytimes.com/2025/11/18/business/cloudflare-down-challenges-error.html)
 - **Elon Musk's X down for thousands of US users, Downdetector shows**: [Link](https://www.reuters.com/business/elon-musks-x-down-thousands-us-users-downdetector-shows-2025-11-18/)
 - **Parts of the internet just stopped working**: [Link](https://www.the-independent.com/tech/cloudflare-down-twitter-not-working-outage-b2867367.html)
-
-
-### expreso (N/A, 18/11/2025 07:52 Lima)
-
-- **Nuevo paro de 48 horas en Lima y Callao si hay un nuevo atentado: transportistas dan ultimátum al gobierno**: [Link](https://www.infobae.com/peru/2025/11/17/nuevo-paro-de-48-horas-en-lima-y-callao-si-hay-un-nuevo-atentado-transportistas-dan-ultimatum-al-gobierno/)
-- **Gremios de transportes confirman que pararán 48 horas si algún conductor sufre un nuevo atentado**: [Link](https://rpp.pe/lima/actualidad/gremios-de-transportes-confirman-que-pararan-48-horas-si-algun-conductor-sufre-un-nuevo-atentado-noticia-1664138)
-- **Balacera contra bus en SMP desata alarma por nuevas amenazas extorsivas**: [Link](https://caretas.pe/nacional/balacera-contra-bus-en-smp-desata-alarma-por-nuevas-amenazas-extorsivas/)
-
-
-### corea del sur vs ghana (N/A, 18/11/2025 07:52 Lima)
-
-- **Partidos de hoy, martes 18 de noviembre del 2025: horarios y canales TV para ver EN VIVO Eliminatorias y Amistosos**: [Link](https://rpp.pe/futbol/futbol-mundial/partidos-de-hoy-peru-martes-18-de-noviembre-del-2025-horarios-y-canales-tv-ver-futbol-en-vivo-noticia-1664106)
-- **Partidos de hoy EN VIVO: programación, horario y dónde ver fútbol online este martes 18 de noviembre**: [Link](https://libero.pe/futbol-internacional/2025/11/17/partidos-de-hoy-en-vivo-ver-futbol-online-martes-18-de-noviembre-872984)
-- **¿Qué partidos de fútbol hay hoy? La agenda del martes 18 de noviembre**: [Link](https://www.msn.com/es-co/noticias/other/qu%C3%A9-partidos-de-f%C3%BAtbol-hay-hoy-la-agenda-del-martes-18-de-noviembre/ar-AA1EfCuW)
-
-
-### dolar (N/A, 18/11/2025 07:52 Lima)
-
-- **Precio del dólar cayó más: Así cerró el tipo de cambio hoy 17 de noviembre en Perú**: [Link](https://www.infobae.com/peru/2025/11/17/dolar-cotizacion-de-apertura-hoy-17-de-noviembre-en-peru/)
-- **Precio del dólar Perú y tipo de cambio hoy 18 de noviembre del 2025**: [Link](https://rpp.pe/economia/economia/precio-del-dolar-peru-y-tipo-de-cambio-hoy-18-de-noviembre-del-2025-noticia-1664236)
-- **¿Cuál es el precio del dólar HOY en Perú? Así cotiza el tipo de cambio este lunes, 17 de noviembre**: [Link](https://www.exitosanoticias.pe/actualidad/cual-precio-dolar-hoy-peru-asi-cotiza-tipo-cambio-lunes-17-noviembre-n162876)
-
-
-### japón - bolivia (N/A, 18/11/2025 07:52 Lima)
-
-- **A qué hora juega Bolivia vs Japón HOY: partido amistoso en Tokio por fecha FIFA 2025**: [Link](https://www.infobae.com/peru/deportes/2025/11/17/a-que-hora-juega-bolivia-vs-japon-partido-amistoso-tokio-fecha-fifa-2025-horario/)
-- **Amistoso internacional: Japón se enfrenta a Bolivia en un partido amistoso**: [Link](https://rpp.pe/futbol/ligas-internacionales/amistoso-internacional-japon-se-enfrenta-a-bolivia-en-un-partido-amistoso-noticia-1664070)
-- **Un baile a Bolivia y nula reacción de Viscarra: golazo de Kamada para el 1-0 de Japón**: [Link](https://depor.com/futbol-internacional/resto-del-mundo/gol-daichi-kamada-bolivia-vs-japon-baile-golazo-y-nula-reaccion-de-guillermo-viscarra-amistoso-video-noticia/)
-
-
-### corea del sur vs (N/A, 18/11/2025 07:52 Lima)
-
-- **Batacazo a la favorita del Mundial Sub-17, otra sorpresa y cruces de octavos**: [Link](https://www.laprensa.hn/fotogalerias/deportes/mundial-sub-17-qatar-batacazo-favorita-alemania-burkina-faso-sorpresa-cruces-octavos-final-BJ28211033)
-- **Rep. de Corea cayó con Inglaterra y no clasificó a Octavos de Final**: [Link](https://www.directvsports.com/futbol/rep.-de-corea-cayo-con-inglaterra-y-no-clasifico-a-octavos-de-final-20251112-0016.html)
-- **Gol en contra de Jung Hui-Seop e Inglaterra suma el primero frente a Rep. de Corea**: [Link](https://www.telemundo.com/deportes/copa-mundial-sub-17/video/gol-en-contra-de-jung-hui-seop-e-inglaterra-suma-el-primero-frente-rep-de-corea-tmvo13062138)
-
-
-### agua (N/A, 18/11/2025 07:52 Lima)
-
-- **Mañana martes 18 habrá corte de agua en cuatro distritos de Lima: zonas y horarios, según Sedapal**: [Link](https://www.infobae.com/peru/2025/11/16/corte-de-agua-afectara-a-cuatro-distritos-de-lima-este-18-de-noviembre-zonas-y-horarios-segun-sedapal/)
-- **Sedapal confirma corte masivo de agua este 18 de noviembre en Lima: Distritos afectados**: [Link](https://peru21.pe/lima/sedapal-confirma-corte-masivo-de-agua-este-18-de-noviembre-en-lima/)
-- **Corte de agua hoy, 17 de noviembre: horarios y distritos afectados por Sedapal**: [Link](https://latinanoticias.pe/te-ayudo/corte-de-agua-hoy-17-de-noviembre-horarios-y-distritos-afectados-por-sedapal_20251117/)
-
-
-### cotizacion del dolar hoy (N/A, 18/11/2025 03:33 Lima)
-
-- **Precio del dólar cayó más: Así cerró el tipo de cambio hoy 17 de noviembre en Perú**: [Link](https://www.infobae.com/peru/2025/11/17/dolar-cotizacion-de-apertura-hoy-17-de-noviembre-en-peru/)
-- **¿Cuál es la cotización del dólar hoy lunes 17 de noviembre del 2025?**: [Link](https://andina.pe/agencia/noticia-cual-es-cotizacion-del-dolar-hoy-lunes-17-noviembre-del-2025-1052231.aspx)
-- **Dólar en Perú: a cuánto se cotizó el cierre de hoy, 17 de noviembre de 2025**: [Link](https://latinanoticias.pe/te-ayudo/como-cerro-el-dolar-hoy-en-peru-a-cuanto-se-cotizo-el-cierre-del-dolar-para-este-17-de-noviembre-lima-sunat-sbs-bcrp-adp-noticia_20251117/)
-
-
-### bulgaria vs (N/A, 18/11/2025 03:33 Lima)
-
-- **Preview:Bulgaria vs Georgia - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/bulgaria/world-cup-2026/preview/bulgaria-vs-georgia-prediction-team-news-lineups_585835.html)
-- **Comments and predictions for Bulgaria vs Georgia: A painful misstep**: [Link](https://baonghean.vn/en/nhan-dinh-du-doan-bulgaria-vs-georgia-buoc-hut-dau-don-10311717.html)
-- **Bulgaria vs Georgia Preview & Prediction | 2026 FIFA World Cup Qualifying (UEFA)**: [Link](https://www.thestatszone.com/bulgaria-vs-georgia-preview-prediction-2026-fifa-world-cup-qualifying-uefa-158891)
 
 
