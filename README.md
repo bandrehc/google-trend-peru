@@ -1,3 +1,58 @@
+### hermana de alejandra baigorria (N/A, 21/11/2025 23:28 Lima)
+
+- **Thamara Medina, hermana de Alejandra Baigorria, sufre accidente en Paracas | Últimas | TVMAS**: [Link](https://elcomercio.pe/tvmas/farandula/thamara-medina-hermana-de-alejandra-baigorria-sufre-accidente-en-paracas-ultimas-noticia/)
+- **Thamara Medina, hermana de Alejandra Baigorria, queda gravemente herida tras accidente automovilístico en Pisco**: [Link](https://larepublica.pe/espectaculos/2025/11/21/thamara-medina-hermana-de-alejandra-baigorria-queda-gravemente-herida-tras-accidente-automovilistico-en-pisco-1531824)
+- **Hermana de Alejandra Baigorria sufre accidente vehicular en Paracas**: [Link](https://www.atv.pe/noticia/hermana-de-alejandra-baigorria-sufre-accidente-vehicular-en-paracas/)
+
+
+### jazz - thunder (N/A, 21/11/2025 23:28 Lima)
+
+- **Lauri Markkanen leads Jazz into NBA Cup matchup vs. dominant Thunder**: [Link](https://www.thesportsleader.com/2025/11/20/lauri-markkanen-leads-jazz-into-nba-cup-matchup-vs-dominant-thunder/)
+- **Shai Gilgeous-Alexander: Player Props, Odds, and Lines for Reigning MVP vs. Jazz**: [Link](https://news.bet365.com/en-us/article/shai-gilgeous-alexander-player-props-odds-and-lines-for-reigning-mvp-vs-jazz/2025112120350032949)
+- **Utah vs Oklahoma Prediction: the Thunder Will Beat the Jazzmen**: [Link](https://www.telecomasia.net/sports-betting/tips/basketball/nba/utah-vs-oklahoma-prediction-for-the-match-on-november-22-2025/)
+
+
+### latina (N/A, 21/11/2025 23:28 Lima)
+
+- **El despertar del hogar inteligente en América Latina: ¿Quién está al mando de esta revolución?**: [Link](https://www.businessempresarial.com.pe/el-despertar-del-hogar-inteligente-en-america-latina-quien-esta-al-mando-de-esta-revolucion/)
+- **Estados Unidos apuesta por este país de América Latina para convertirlo en nueva potencia tecnológica mundial**: [Link](https://larepublica.pe/mundo/2025/11/21/eeuu-apuesta-por-este-pais-de-america-latina-para-convertirlo-en-nueva-potencia-tecnologica-mundial-y-superar-a-china-1955583)
+
+
+### yo soy (N/A, 21/11/2025 23:28 Lima)
+
+- **Moisés y los diez mandamientos, Jueves 20 de noviembre – ver capítulo 123 completo**: [Link](https://www.latina.pe/entretenimiento/moises-y-los-10-mandamientos/moises-y-los-diez-mandamientos-jueves-20-de-noviembre-ver-capitulo-123-completo_20251120/)
+- **Yo Soy – Jueves 20 de Noviembre – PROGRAMA COMPLETO**: [Link](https://www.latina.pe/entretenimiento/yo-soy/programas-completos-yo-soy/yo-soy-jueves-20-de-noviembre-programa-completo_20251120/)
+- **Hasta que la plata nos separe, Jueves 20 de noviembre – ver capítulo 22 completo**: [Link](https://www.latina.pe/entretenimiento/hasta-que-la-plata-nos-separe-novela/hasta-que-la-plata-nos-separe-jueves-20-de-noviembre-ver-capitulo-22-completo_20251120/)
+
+
+### billie eilish (N/A, 21/11/2025 23:28 Lima)
+
+- **Billie Eilish poses in Lamine Yamal shirt in viral Instagram photo – is it real?**: [Link](https://tribuna.com/en/blogs/billie-eilish-poses-in-lamine-yamal-shirt-in-viral-instagram/)
+- **Billie Eilish Tops LIVE75 During Final Days Of ‘Hit Me Hard And Soft Tour’**: [Link](https://news.pollstar.com/2025/11/21/billie-eilish-tops-live75-during-final-days-of-hit-me-hard-and-soft-tour/)
+- **‘I’m scared for you,’ Billie Eilish tells Austin fans during her only Texas tour stop**: [Link](https://www.statesman.com/entertainment/music/article/billie-eilish-austin-tour-setlist-photos-21180635.php)
+
+
+### grupo frontera (N/A, 21/11/2025 23:28 Lima)
+
+- **Grupo Frontera anuncia concierto en Medellín: fecha, precios y así puede comprar la boletería**: [Link](https://www.teleantioquia.co/entretenimiento/grupo-frontera-anuncia-concierto-en-medellin-fecha-precios-y-asi-puede-comprar-la-boleteria-534939)
+- **Grupo Frontera confirma tres conciertos en Colombia para 2026: ¿dónde serán y cómo comprar las boletas?**: [Link](https://www.diarioadn.co/noticias/grupo-frontera-confirma-tres-conciertos-en-colombia-para-2026-donde-seran-y-como-comprar+articulo+71219)
+- **Grupo Frontera anuncia la gira Triste Pero Bien C*brón: Aquí las fechas**: [Link](https://www.billboard.com/espanol/noticias/grupo-frontera-anuncia-gira-triste-pero-bien-cbron-fechas-1236115280/)
+
+
+### warriors - trail blazers (N/A, 21/11/2025 23:28 Lima)
+
+- **How to watch Warriors vs. Trail Blazers**: [Link](https://www.goldenstateofmind.com/warriors-game-previews/105457/how-to-watch-warriors-vs-trail-blazers)
+- **NBA Best Bets: Trail Blazers at Warriors Best Prop Bets for Friday 11/21/25**: [Link](https://dknetwork.draftkings.com/2025/11/21/nba-best-bets-trail-blazers-at-warriors-best-prop-bets-for-friday-11-21-25/)
+- **Warriors' Jimmy Butler: Upgraded to available**: [Link](https://www.cbssports.com/fantasy/basketball/news/warriors-jimmy-butler-upgraded-to-available/)
+
+
+### sabrina carpenter (N/A, 21/11/2025 23:28 Lima)
+
+- **SZA gets arrested by Sabrina Carpenter in L.A.**: [Link](https://www.thenews.com.pk/latest/1381968-sza-gets-arrested-by-sabrina-carpenter-in-la)
+- **Sabrina Carpenter ‘Arrests’ Elle and Dakota Fanning at LA Concert During Tour Stop**: [Link](https://b1039.com/2025/11/20/sabrina-carpenter-arrests-elle-and-dakota-fanning-at-la-concert-during-tour-stop/)
+- **Sabrina Carpenter Places SZA 'Under Arrest': 'SOS For Real'**: [Link](https://www.iheart.com/content/2025-11-21-sabrina-carpenter-places-sza-under-arrest-sos-for-real/)
+
+
 ### final copa libertadores 2025 (N/A, 21/11/2025 20:51 Lima)
 
 - **El Fan Zone CONMEBOL Libertadores abre sus puertas en Lima**: [Link](https://www.conmebol.com/noticias/el-fan-zone-conmebol-libertadores-abre-sus-puertas-en-lima/)
@@ -972,61 +1027,5 @@ Sin noticias relacionadas disponibles.
 - **Épico Brasil**: [Link](https://as.com/futbol/internacional/epico-brasil-f202511-n/)
 - **Brasil busca un lugar en Cuartos de Final**: [Link](https://www.conmebol.com/noticias/brasil-busca-un-lugar-en-cuartos-de-final/)
 - **Brasil vs Francia: Resultado EN VIVO, minuto a minuto y goles del Mundial Sub 17**: [Link](https://www.365scores.com/es/news/brasil-vs-francia-resultado-en-vivo/)
-
-
-### blackbox (N/A, 18/11/2025 11:34 Lima)
-
-- **Turkey says black box analysis, initial findings on cargo plane crash to take at least two months**: [Link](https://www.reuters.com/business/aerospace-defense/turkey-says-black-box-analysis-initial-findings-cargo-plane-crash-take-least-two-2025-11-17/)
-- **Update: Turkish Hercules crash kills 20**: [Link](https://www.janes.com/osint-insights/defence-news/defence/update-turkish-hercules-crash-kills-20)
-- **Turkish Air Force C-130 Crashes in Georgia**: [Link](https://www.flightradar24.com/blog/flight-tracking-news/major-incident/turkish-military-aircraft-tuaf543-crashes-in-georgia-november-11th-2025/)
-
-
-### forex factory (N/A, 18/11/2025 11:34 Lima)
-
-- **Gold slips to one-week low as traders scale back US rate cut bets**: [Link](https://www.reuters.com/world/india/gold-extends-fall-firm-dollar-easing-fed-rate-cut-bets-2025-11-18/)
-- **Gold’s (GLD) Price Drops as Hopes Fade for a December Interest Rate Cut**: [Link](https://www.tipranks.com/news/golds-gld-price-drops-as-hopes-fade-for-a-december-interest-rate-cut)
-- **Gold Wavers on Dimmer Fed Cut Outlook, Jitters Over Tech Stocks**: [Link](https://finance.yahoo.com/news/gold-declines-fourth-day-us-075940587.html)
-
-
-### lp (N/A, 18/11/2025 11:34 Lima)
-
-- **Americana Artist Dan Arwady Releases Debut LP The Weight of Love and New Music Video 'We All Start Out as Strangers'**: [Link](https://fox56news.com/business/press-releases/ein-presswire/867764302/americana-artist-dan-arwady-releases-debut-lp-the-weight-of-love-and-new-music-video-we-all-start-out-as-strangers)
-- **Video Premiere: Dan Arwady “We All Start Out As Strangers”**: [Link](https://americanahighways.org/2025/11/11/video-premiere-dan-arwady-we-all-start-out-as-strangers/)
-- **Dan Arwady Understands That We All Start Out As Strangers**: [Link](https://tinnitist.com/2025/11/12/dan-arwady-understands-that-we-all-start-out-as-strangers/)
-
-
-### monica (N/A, 18/11/2025 11:34 Lima)
-
-- **Monica Calls Chris Brown ‘The Greatest Entertainer’ Alive: ‘I Don’t Give a Damn Whose Song It Is, He Makes It Better’**: [Link](https://www.billboard.com/music/rb-hip-hop/monica-chris-brown-greatest-entertainer-alive-1236114270/)
-- **'I Don’t Give a Damn Whose Song It Is, He Makes It Better': R&B Legend Monica Says This Artist is The Best in The World**: [Link](https://www.vice.com/en/article/i-dont-give-a-damn-whose-song-it-is-he-makes-it-better-rb-legend-monica-says-this-artist-is-the-best-in-the-world/)
-- **Monica: “Chris Brown is the Greatest Entertainer That is Left Here on Earth with Us”**: [Link](https://thatgrapejuice.net/2025/11/monica-chris-brown-is-the-greatest-entertainer-that-is-left-here-on-earth-with-us/)
-
-
-### meta (N/A, 18/11/2025 11:34 Lima)
-
-- **Meta Platforms And Its Real Value (NASDAQ:META)**: [Link](https://seekingalpha.com/article/4844371-meta-platforms-and-its-real-value)
-- **Organon & Co. (OGN) is Attracting Investor Attention: Here is What You Should Know**: [Link](https://finance.yahoo.com/news/organon-co-ogn-attracting-investor-140002788.html)
-- **Meta's AI spending spree has even the most bullish stock analysts wondering: How much capex is too much?**: [Link](https://www.fastcompany.com/91444071/meta-ai-spending-stock-analysts-cut-price-target-capex-too-high)
-
-
-### inteligencia artificial (N/A, 18/11/2025 11:34 Lima)
-
-- **Gemini 3 promete más calidad y precisión que nunca en sus respuestas. La cuestión es si realmente...**: [Link](https://www.xataka.com/robotica-e-ia/gemini-3-promete-calidad-precision-que-nunca-sus-respuestas-cuestion-realmente-notaremos-diferencia)
-- **La IA de Google aprende euskera, catalán y tareas más difíciles: "Es un paso hacia la IA general"**: [Link](https://www.elconfidencial.com/tecnologia/2025-11-18/google-gemini-3-lanzamiento_4249741/)
-- **ChatGPT lidera el ranking de usos de Inteligencia Artificial, pero Gemini se le acerca rápidamente**: [Link](https://pisapapeles.net/chatgpt-lidera-el-ranking-de-usos-de-inteligencia-artificial-pero-gemini-se-le-acerca-rapidamente/)
-
-
-### exitosa en vivo (N/A, 18/11/2025 11:34 Lima)
-
-- **Temblor en el Perú hoy según IGP en vivo: Lugar, magnitud, hora y más del epicentro | sismos | censis | tdpe | PERU**: [Link](https://elcomercio.pe/peru/temblor-en-el-peru-hoy-segun-igp-en-vivo-lugar-magnitud-hora-y-mas-del-epicentro-sismos-censis-tdpe-noticia/)
-- **Temblor en Perú HOY, 18 de noviembre: ¿a qué hora y dónde ocurrió el último sismo vía IGP?**: [Link](https://larepublica.pe/sociedad/2025/11/18/temblor-en-peru-hoy-martes-18-de-noviembre-del-2025-magnitud-epicentro-y-mas-sobre-sismos-recientes-segun-igp-ultimo-sismo-en-lima-ica-callao-y-otras-provincias-atmp-183175)
-- **Temblor en Perú: sismo de magnitud 4.2 se registró en Áncash cerca de la medianoche**: [Link](https://andina.pe/agencia/noticia-temblor-peru-sismo-magnitud-42-se-registro-ancash-cerca-de-medianoche-1052212.aspx)
-
-
-### cloudflare (N/A, 18/11/2025 07:52 Lima)
-
-- **Outage at Cloudflare Disrupts Parts of the Internet**: [Link](https://www.nytimes.com/2025/11/18/business/cloudflare-down-challenges-error.html)
-- **Elon Musk's X down for thousands of US users, Downdetector shows**: [Link](https://www.reuters.com/business/elon-musks-x-down-thousands-us-users-downdetector-shows-2025-11-18/)
-- **Parts of the internet just stopped working**: [Link](https://www.the-independent.com/tech/cloudflare-down-twitter-not-working-outage-b2867367.html)
 
 
