@@ -1,3 +1,71 @@
+### fiorentina - juventus (N/A, 22/11/2025 11:28 Lima)
+
+- **Fiorentina-Juve | ✅ UFFICIALI: la scelta su Koop, Gud e Vlahovic 🧨**: [Link](https://onefootball.com/it/notizie/fiorentina-juve-ufficiali-la-scelta-su-koop-gud-e-vlahovic-41987262)
+- **La spinta di tutta la città. Dai fischi alla rivoluzione. Primo sold out dell’anno. Il Franchi sarà una bolgia**: [Link](https://sport.quotidiano.net/calcio/fiorentina/la-spinta-di-tutta-la-f7960499)
+- **Serie A | Le formazioni ufficiali di Fiorentina-Juventus**: [Link](https://www.juventus.com/it/news/articoli/serie-a-2025-2026-fiorentina-juventus-formazioni-ufficiali)
+
+
+### nico williams (N/A, 22/11/2025 11:28 Lima)
+
+- **Valverde: "Nosotros siempre recibimos a Nico con los brazos abiertos"**: [Link](https://www.marca.com/futbol/primera-division/2025/11/21/valverde-nosotros-siempre-recibimos-nico-brazos-abiertos-video.html)
+- **El recado del Athletic al Barça tras el 'caso Nico Williams'**: [Link](https://www.sport.es/es/noticias/barca/recado-athletic-barca-caso-nico-123987783)
+- **El regreso del Barça al Spotify Camp Nou no es el único aliciente para ver el partido contra el Athletic: el 'alta' que añade el morbo**: [Link](https://www.mundodeportivo.com/futbol/20251122/1002573062/regreso-barca-spotify-camp-nou-unico-aliciente-ver-partido-athletic-alta-anade-morbo.html)
+
+
+### lens vs (N/A, 22/11/2025 11:28 Lima)
+
+- **Liga de Francia: Lens va en busca de un triunfo ante RC Strasbourg para trepar a la punta**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-de-francia-lens-va-en-busca-de-un-triunfo-ante-rc-strasbourg-para-trepar-a-la-punta-noticia-1664723)
+
+
+### al hilal (N/A, 22/11/2025 11:28 Lima)
+
+- **Post-Match Chaos in Kigali After MC Alger vs. Al-Hilal**: [Link](https://www.moroccoworldnews.com/2025/11/269062/post-match-chaos-in-kigali-after-mc-alger-vs-al-hilal/)
+- **Rulani Mokwena braced for tough Group C challenge**: [Link](https://foot-africa.com/en/news/rulani-mokwena-braced-for-tough-group-c-challenge-970220/)
+- **MC Alger humbled in Rwanda**: [Link](https://africanfootball.com/news/832618/MC-Alger-humbled-in-Rwanda)
+
+
+### alejandro baldé (N/A, 22/11/2025 11:28 Lima)
+
+- **Report: Bayern Munich won’t pursue Alejandro Grimaldo**: [Link](https://www.bavarianfootballworks.com/bayern-munich-transfer-rumors-news/149355/bayern-munich-transfer-rumors-alejandro-grimaldo-bayer-leverkusen-raphael-guerreiro)
+- **Barcelona debating full-backs again amid doubts over Jules Kounde and Alejandro Balde**: [Link](https://www.barcablaugranes.com/fc-barcelona-transfer-rumors-news/106030/barcelona-debating-full-backs-again-amid-doubts-over-jules-kounde-and-alejandro-balde)
+- **Transfer rumors, news: Pulisic will wait until signing new Milan contract**: [Link](https://www.espn.ph/football/story/_/id/46996608/transfer-rumors-news-barcelona-eye-grimaldo-amid-major-changes-squad)
+
+
+### futbol libre (N/A, 22/11/2025 11:28 Lima)
+
+- **Lanús enfrentará a Atlético Mineiro en Paraguay con el sueño de ser campeón de la Copa Sudamericana: hora, TV y todo lo que hay que saber**: [Link](https://www.infobae.com/deportes/2025/11/22/lanus-enfrentara-a-atletico-mineiro-en-paraguay-con-el-sueno-de-ser-campeon-de-la-copa-sudamericana-hora-tv-y-todo-lo-que-hay-que-saber/)
+- **Tiago Pagnussat: "Para Lanús es una final de Libertadores"**: [Link](https://espndeportes.espn.com/futbol/copa-sudamericana/nota/_/id/15989444/tiago-pagnussat-para-lanus-es-una-final-de-libertadores)
+- **Lanús vs. Atlético Mineiro, por la final de la Sudamericana: dónde ver en vivo, formaciones y horario**: [Link](https://www.tycsports.com/copa-sudamericana/conmebol-copa-sudamericana-2025-lanus-vs-atletico-mineiro-final-id699921.html)
+
+
+### liverpool (N/A, 22/11/2025 11:28 Lima)
+
+- **Premier League LIVE: Burnley vs Chelsea - scores, results & updates**: [Link](https://www.bbc.com/sport/football/live/cly1018wl19t)
+- **Antoine Semenyo: Liverpool, Man City and Spurs monitoring Bournemouth forward ahead of January transfer window**: [Link](https://www.skysports.com/football/news/11095/13470257/antoine-semenyo-liverpool-man-city-and-spurs-monitoring-bournemouth-forward-ahead-of-january-transfer-window)
+- **Bournemouth’s Antoine Semenyo has £65m release clause with January transfer possible - The Athletic**: [Link](https://www.nytimes.com/athletic/6814786/2025/11/17/antoine-semenyo-transfer-clause-bournemouth/)
+
+
+### nac - psv (N/A, 22/11/2025 11:28 Lima)
+
+- **Live Eredivisie | NAC mist kansen op openingsgoal tegen PSV, later Ajax-Excelsior**: [Link](https://www.nu.nl/voetbal/6376866/live-eredivisie-nac-mist-kansen-op-openingsgoal-tegen-psv-later-ajax-excelsior.html)
+- **LIVE | Eerste kans is voor NAC: Valerius schiet over t**: [Link](https://www.bndestem.nl/nac/live-eerste-kans-is-voor-nac-valerius-schiet-over-t~a5d86991/)
+- **LIVE | Koploper PSV met captain Schouten in hart van defensie op bezoek bij NAC**: [Link](https://www.ed.nl/psv/live-koploper-psv-met-captain-schouten-in-hart-van-defensie-op-bezoek-bij-nac~a3746a87/)
+
+
+### leverkusen (N/A, 22/11/2025 11:28 Lima)
+
+- **Kowalski schießt Essen gegen Leverkusen zum ersten Saisonsieg**: [Link](https://www1.wdr.de/sport/fussball/erste-bundesliga/fbl-leverkusen-essen-bericht-100.html)
+- **Jetzt live! SGS Essen gegen Bayer Leverkusen -Frauenfußball-Bundesliga im Ticker**: [Link](https://www.waz.de/sport/lokalsport/essen/article410512621/jetzt-live-sgs-essen-gegen-bayer-leverkusen-im-ticker.html)
+- **Trainer Pätzold fordert vor Duell mit der SGS Essen mehr Torgefahr**: [Link](https://www.fupa.net/news/trainer-paetzold-fordert-vor-duell-mit-der-sgs-essen-mehr-torgefahr-3147773)
+
+
+### disney plus (N/A, 22/11/2025 11:28 Lima)
+
+- **5 must-watch movies & TV shows streaming right now**: [Link](https://www.boston.com/culture/streaming/2025/11/21/5-must-watch-movies-tv-shows-streaming-right-now-november-21-2025/)
+- **7 new movies and TV shows to watch on Netflix, Prime Video, HBO Max, and more this weekend (November 21)**: [Link](https://www.techradar.com/streaming/7-new-movies-and-tv-shows-to-watch-on-netflix-prime-video-hbo-max-and-more-this-weekend-november-21)
+- **The Five Best New Movies To Stream This Weekend (November 21)**: [Link](https://www.timeout.com/news/the-best-new-movies-to-stream-this-week-november-21-111425)
+
+
 ### alavés - celta de vigo (N/A, 22/11/2025 07:43 Lima)
 
 - **Alavés - Celta de Vigo, hoy en directo: LaLiga EA Sports en vivo**: [Link](https://as.com/futbol/primera/alaves-celta-de-vigo-hoy-en-directo-laliga-ea-sports-en-vivo-f202511-d/)
@@ -959,75 +1027,5 @@ Sin noticias relacionadas disponibles.
 - **Gustavo Gómez hoy: Por qué no juega en el Paraguay vs México**: [Link](https://www.365scores.com/es/news/gustavo-gomez-hoy-no-juega-vs-mexico/)
 - **Paraguay ningunea a México; Gustavo Alfaro le daría descanso a varias figuras**: [Link](https://www.soyfutbol.com/internacional/paraguay-ningunea-a-mexico-gustavo-alfaro-le-daria-descanso-a-varias-figuras-20251118-0030.html)
 - **Julio Enciso hoy: Por qué no juega en el Paraguay vs México**: [Link](https://www.365scores.com/es/news/julio-enciso-hoy-no-juega-vs-mexico/)
-
-
-### panamá - el salvador (N/A, 18/11/2025 20:55 Lima)
-
-- **¿A qué hora ver partido Panamá vs. El Salvador HOY por Eliminatorias Concacaf 2025 en California, Florida y Texas?**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/a-que-hora-ver-panama-vs-el-salvador-en-vivo-hoy-18-de-noviembre-por-eliminatorias-concacaf-2025-en-california-florida-y-texas-nnda-nnrt-noticia/)
-- **Panamá vs El Salvador: Resultado EN VIVO, minuto a minuto y goles de las Eliminatorias Concacaf**: [Link](https://www.365scores.com/es/news/panama-vs-el-salvador-resultado-vivo/)
-- **Nathan Ordaz se ausenta en el último pulso eliminatorio de El Salvador**: [Link](https://as.com/us/futbol/nathan-ordaz-se-ausenta-en-el-ultimo-pulso-eliminatorio-de-el-salvador-f202511-n/)
-
-
-### ecuador vs (N/A, 18/11/2025 20:55 Lima)
-
-- **¿Por qué Enner Valencia no jugará para Ecuador vs. Nueva Zelanda?**: [Link](https://www.espn.com.ar/futbol/mundial/nota/_/id/15968952/por-que-no-juega-enner-valencia-para-ecuador-vs-nueva-zelanda)
-- **Canal para ver Ecuador vs. Nueva Zelanda: horarios de TV por amistoso FIFA**: [Link](https://depor.com/futbol-internacional/resto-del-mundo/ecuador-vs-nueva-zelanda-fecha-canales-de-tv-y-horarios-donde-ver-transmision-gratis-por-el-canal-del-futbol-ecdf-y-zapping-por-amistoso-fifa-noticia/)
-- **¡Última hora! La Selección de Ecuador estaría en el Bombo 2 del Mundial 2026 gracias a Escocia**: [Link](https://bolavip.com/mundial/ultima-hora-la-seleccion-de-ecuador-estaria-en-el-bombo-2-del-mundial-2026-gracias-a-escocia)
-
-
-### jamaica - curazao (N/A, 18/11/2025 20:55 Lima)
-
-- **Jamaica - Curazao, en vivo: clasificación Concacaf al Mundial 2026, hoy en directo**: [Link](https://as.com/futbol/internacional/jamaica-curazao-en-vivo-clasificacion-concacaf-al-mundial-2026-hoy-en-directo-f202511-d/)
-- **Jamaica pone su esperanza en el fútbol: "Necesitamos que llegue el partido"**: [Link](https://www.marca.com/futbol/mundial/2025/11/18/jamaica-pone-esperanza-futbol-necesitamos-llegue-partido.html)
-- **"Por esto me fui del Manchester United": el ex asistente del United, Steve McClaren, afirma que el partido contra Jamaica en el Mundial es un desafío que aceptó**: [Link](https://tribuna.com/es/news/2025-11-17-por-esto-me-fui-del-manchester-united-el-ex-asistente-del-united-steve-mcclaren-afirma-qu/)
-
-
-### usa vs (N/A, 18/11/2025 20:55 Lima)
-
-- **National team visit highlights Tampa’s deep soccer roots and growing youth movement**: [Link](https://www.tampabay28.com/news/region-hillsborough/national-team-visit-highlights-tampas-deep-soccer-roots-and-growing-youth-movement)
-- **WATCH: Sebastian Berhalter nets first USMNT goal and sets up Alex Freeman’s first international goal on two stunning set pieces**: [Link](https://www.goal.com/en-gb/lists/watch-sebastian-berhalter-nets-first-usmnt-goal-and-sets-up-alex-freeman-s-first-international-goal-on-two-stunning-set-pieces/bltbbfa95ef6e251abe)
-- **USA Coach Mauricio Pochettino Lauds 'Hero' Marcelo Bielsa Ahead of Reunion With Uruguay Boss**: [Link](https://www.foxsports.com/stories/soccer/usa-coach-mauricio-pochettino-lauds-hero-marcelo-bielsa-ahead-reunion-uruguay-boss)
-
-
-### venezuela - canadá (N/A, 18/11/2025 20:55 Lima)
-
-- **A qué hora juega Venezuela vs Canadá HOY: partido amistoso en Florida por fecha FIFA 2025**: [Link](https://www.infobae.com/peru/deportes/2025/11/17/a-que-hora-juega-venezuela-vs-canada-partido-amistoso-florida-fecha-fifa-2025-horario/)
-- **Amistoso internacional: Venezuela se enfrentará ante Canadá en un amistoso**: [Link](https://rpp.pe/futbol/ligas-internacionales/amistoso-internacional-venezuela-se-enfrentara-ante-canada-en-un-amistoso-noticia-1664163)
-- **Dónde ver Venezuela vs. Canadá por amistoso desde Florida**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/donde-ver-venezuela-vs-canada-hoy-en-vivo-canal-que-transmite-el-partido-amistoso-noticia/)
-
-
-### colombia - australia (N/A, 18/11/2025 20:55 Lima)
-
-- **La posible alineación de Colombia vs Australia en amistoso de fecha FIFA**: [Link](https://www.espn.com.co/futbol/mundial/nota/_/id/15971662/equipo-seleccion-colombia-vs-australia-alineacion)
-- **Amistoso internacional: Se enfrentan Colombia y Australia en duelo amistoso**: [Link](https://rpp.pe/futbol/ligas-internacionales/amistoso-internacional-se-enfrentan-colombia-y-australia-en-duelo-amistoso-noticia-1664156)
-- **La Selección Colombia juega su último partido del 2025 contra Australia, en Nueva York: esta es la alineación confirmada**: [Link](https://www.eltiempo.com/deportes/futbol-internacional/la-seleccion-colombia-juega-su-ultimo-partido-del-2025-contra-australia-en-nueva-york-esta-es-la-alineacion-confirmada-3509912)
-
-
-### guatemala vs (N/A, 18/11/2025 20:55 Lima)
-
-- **📺 Canales TV para mirar Guatemala - Surinam EN VIVO EN DIRECTO por Eliminatorias Concacaf en USA y México**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/que-canal-transmite-guatemala-vs-surinam-en-vivo-hoy-por-eliminatorias-concacaf-2025-en-eeuu-y-mexico-canales-tv-online-nnda-nnrt-noticia/)
-- **Luis Fernando Tena cierra la eliminatoria mundialista: "Pensamos en reivindicarnos con la afición"**: [Link](https://www.espn.com.pe/futbol/guatemala/nota/_/id/15972099/luis-fernando-tena-cierra-eliminatoria-mundialista-pensamos-reivindicarnos-aficion)
-- **⏰ A qué hora ver Guatemala vs. Surinam EN VIVO HOY por Eliminatorias Concacaf 2025 en EE.UU.**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/a-que-hora-juega-guatemala-vs-surinam-en-vivo-hoy-18-de-noviembre-por-eliminatorias-concacaf-2025-en-eeuu-horarios-de-california-florida-y-texas-nnda-nnrt-noticia/)
-
-
-### estados unidos (N/A, 18/11/2025 20:55 Lima)
-
-- **La ley que fuerza a Trump a publicar los papeles de Epstein sale adelante en la Cámara de Representantes con un solo voto en contra**: [Link](https://elpais.com/internacional/2025-11-18/la-camara-de-representantes-aprueba-con-un-solo-voto-en-contra-la-ley-que-exige-a-trump-la-publicacion-de-los-papeles-de-epstein.html)
-- **La perspectiva de una derrota humillante convenció a Trump de dar marcha atrás en el caso de los archivos de Epstein**: [Link](https://cnnespanol.cnn.com/2025/11/18/eeuu/perspectiva-derrota-trump-archivos-epstein-trax)
-- **Congreso de EE.UU. aprueba publicar archivos de Epstein**: [Link](https://www.dw.com/es/congreso-de-eeuu-aprueba-publicar-archivos-de-epstein/a-74798643)
-
-
-### méxico - paraguay (N/A, 18/11/2025 20:55 Lima)
-
-- **México: Aguirre y Márquez se reencuentran con Paraguay tras 24 años**: [Link](https://www.espn.com.ar/futbol/selecciones/nota/_/id/15972457/mexico-vs-paraguay-javier-aguirre-rafa-marquez-reencuentro)
-- **Transmisión EN VIVO del México vs Paraguay hoy: cómo mirar el partido por TV o streaming**: [Link](https://www.365scores.com/es/news/mexico-vs-paraguay-como-ver-transmision/)
-- **Amistoso internacional: México y Paraguay se miden en un partido amistoso**: [Link](https://rpp.pe/futbol/ligas-internacionales/amistoso-internacional-mexico-y-paraguay-se-miden-en-un-partido-amistoso-noticia-1664162)
-
-
-### san marino (N/A, 18/11/2025 15:29 Lima)
-
-- **Preview:Romania vs San Marino - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/romania/world-cup/preview/romania-vs-san-marino-prediction-team-news-lineups_585829.html)
-- **Romania vs San Marino: How to Watch, World Cup Qualifying Preview**: [Link](https://www.foxsports.com/stories/soccer/romania-vs-san-marino-how-watch-world-cup-qualifying-preview)
-- **Mircea Lucescu Reveals Captain for San Marino Match**: [Link](https://www.el-balad.com/6770972)
 
 
