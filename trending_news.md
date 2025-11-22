@@ -1,3 +1,45 @@
+### alavés - celta de vigo (N/A, 22/11/2025 07:43 Lima)
+
+- **Alavés - Celta de Vigo, hoy en directo: LaLiga EA Sports en vivo**: [Link](https://as.com/futbol/primera/alaves-celta-de-vigo-hoy-en-directo-laliga-ea-sports-en-vivo-f202511-d/)
+- **Apuestas y pronósticos Alavés vs Celta**: [Link](https://www.marca.com/apuestas-deportivas/predicciones/2025/11/21/apuestas-pronosticos-alaves-vs-celta.html)
+- **En manos de las baterías antiaéreas**: [Link](https://www.lavozdegalicia.es/noticia/gradario/2025/11/22/manos-baterias-antiaereas/0003_202511V22P44995.htm)
+
+
+### yape (N/A, 22/11/2025 07:43 Lima)
+
+- **Yape habilita funcionalidad para reportar a extorsionadores: Podrán cerrar cuentas**: [Link](https://www.infobae.com/peru/2025/11/21/yape-habilita-funcionalidad-para-reportar-a-extorsionadores-podran-cerrar-cuentas/)
+- **Usuarios de billeteras digitales tendrán la opción de aceptar o rechazar transferencias**: [Link](https://elperuano.pe/noticia/283464-usuarios-de-billeteras-digitales-tendran-la-opcion-de-aceptar-o-rechazar-transferencias)
+- **Yape lanza funcionalidad para reportar cuenta de extorsionadores l Yape | bcp | Billeteras digitales | ECONOMIA**: [Link](https://elcomercio.pe/economia/peru/yape-lanza-funcionalidad-para-reportar-cuenta-de-extorsionadores-l-yape-l-ultimas-noticia/)
+
+
+### burnley - chelsea (N/A, 22/11/2025 07:43 Lima)
+
+- **Preview:Burnley vs Chelsea - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/chelsea/preview/burnley-vs-chelsea-prediction-team-news-lineups_586034.html)
+- **'The boys are ready': Chalobah speaks ahead of Burnley clash**: [Link](https://tribuna.com/en/news/2025-11-22-the-boys-are-ready-chalobah-speaks-ahead-of-burnley-clash/)
+- **Chelsea XI vs Burnley: Estevao, Caicedo, Garnacho Benched for EPL Clash**: [Link](https://chelseafconline.com/2025/11/chelsea-xi-vs-burnley-estevao-caicedo-garnacho-benched-for-epl-clash/)
+
+
+### sydney - melbourne victory (N/A, 22/11/2025 07:43 Lima)
+
+- **Sydney FC vs Melbourne Victory Tips, Predictions and Bet Builder**: [Link](https://news.bet365.com/en-gb/article/football-sydney-fc-melbourne-victory-tips-and-predictions/2025112112184667115)
+- **Watch + Stream The Big Blue On 10 Drama**: [Link](https://10.com.au/a-league/articles/watch-stream-the-big-blue-on-10-drama/tpa251119exupo)
+- **Victory Men toppled in the Big Blue**: [Link](https://melbournevictory.com.au/news/victory-men-toppled-in-the-big-blue/)
+
+
+### barcelona vs. athletic (N/A, 22/11/2025 07:43 Lima)
+
+- **El posible once del Barça ante el Athletic en el partido del regreso, del morbo y del liderato**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20251122/1002573550/posible-once-barca-athletic-partido-regreso-morbo-liderato.html)
+- **Cuatro cambios y una duda de Flick para la vuelta a casa ante el Athletic**: [Link](https://www.sport.es/es/noticias/barca/cuatro-cambios-duda-flick-vuelta-123983442)
+- **Barcelona vs Athletic Club: posibles alineaciones, Jornada 13, LaLiga**: [Link](https://www.espn.com.ar/futbol/espana/nota/_/id/15987456/barcelona-athletic-club-alineaciones-jornada-13-laliga-2025)
+
+
+### poder judicial delia espinoza (N/A, 22/11/2025 07:43 Lima)
+
+- **El caso Espinoza llega al Tribunal Constitucional**: [Link](https://lpderecho.pe/caso-espinoza-tribunal-constitucional/)
+- **Poder Judicial rechaza pedidos de aclaración de Delia Espinoza**: [Link](https://canaln.pe/actualidad/poder-judicial-rechaza-pedidos-aclaracion-delia-espinoza-n488409)
+- **JNJ evalúa abrir investigación a juez Torres Tasso**: [Link](https://diariocorreo.pe/politica/jnj-evalua-abrir-investigacion-a-juez-torres-tasso-noticia/)
+
+
 ### formula 1 (N/A, 22/11/2025 03:29 Lima)
 
 - **Russell goes fastest during final practice in Las Vegas**: [Link](https://www.formula1.com/en/latest/article/fp3-russell-goes-fastest-from-verstappen-and-albon-during-final-practice-in.6obkr2bsdkzJVvHfY2d5UH)
@@ -987,47 +1029,5 @@ Sin noticias relacionadas disponibles.
 - **Preview:Romania vs San Marino - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/romania/world-cup/preview/romania-vs-san-marino-prediction-team-news-lineups_585829.html)
 - **Romania vs San Marino: How to Watch, World Cup Qualifying Preview**: [Link](https://www.foxsports.com/stories/soccer/romania-vs-san-marino-how-watch-world-cup-qualifying-preview)
 - **Mircea Lucescu Reveals Captain for San Marino Match**: [Link](https://www.el-balad.com/6770972)
-
-
-### austria - bosnia y herzegovina (N/A, 18/11/2025 15:29 Lima)
-
-- **Austria-Bosnia, en directo: clasificación Mundial, hoy en vivo**: [Link](https://as.com/futbol/internacional/austria-bosnia-en-directo-clasificacion-mundial-hoy-en-vivo-f202511-n/)
-- **Los parones de selecciones, una bombona de oxígeno para Alaba**: [Link](https://madridistareal.com/paron-selecciones-oxigeno-alaba-real-madrid/)
-- **Bosnia se lo juega todo en Viena; Barbarez: "Soñaba con este escenario"**: [Link](https://www.todomercadoweb.es/futbol-internacional/bosnia-se-lo-juega-todo-en-viena-barbarez-sonaba-con-este-escenario-527094)
-
-
-### san marino vs (N/A, 18/11/2025 15:29 Lima)
-
-- **Preview:Romania vs San Marino - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/romania/world-cup/preview/romania-vs-san-marino-prediction-team-news-lineups_585829.html)
-- **Mircea Lucescu Announces Team Captain for Crucial San Marino Clash**: [Link](https://emegypt.net/1038318)
-- **Romania faces San Marino in World Cup qualifier as Lucescu’s side seeks bounce-back**: [Link](https://www.red94.net/news/36127-romania-faces-san-marino-in-world-cup-qualifier-as-lucescu-s-side-seeks-bounce-b/)
-
-
-### brasil (N/A, 18/11/2025 15:29 Lima)
-
-- **Brasil x Tunísia: onde assistir ao vivo, horário e escalações do amistoso da Seleção**: [Link](https://ge.globo.com/futebol/selecao-brasileira/noticia/2025/11/18/brasil-x-tunisia-onde-assistir-ao-vivo-horario-e-escalacoes-do-amistoso-da-selecao.ghtml)
-- **Bento acaba preocupando a torcida brasileira, e quase se complica com saídas fora da área**: [Link](https://br.bolavip.com/selecao-brasileira/bento-acaba-preocupando-a-torcida-brasileira-e-quase-se-complica-com-saidas-fora-da-area)
-- **Arsenal teme que pode perder zagueiro da seleção pelos próximos meses**: [Link](https://www.terra.com.br/esportes/futebol/internacional/arsenal-teme-que-pode-perder-zagueiro-da-selecao-pelos-proximos-meses,31c239f1122c5251878febb33e4d9b7c7a12awtq.html)
-
-
-### suiza vs (N/A, 18/11/2025 15:29 Lima)
-
-- **EN VIVO: Suiza sigue arriba por 2-0 ante Irlanda**: [Link](https://www.directvsports.com/futbol/en-vivo-suiza-sigue-arriba-por-2-0-ante-irlanda-20251116-0005.html)
-- **Suiza vs. Irlanda en vivo: seguí el partido minuto a minuto**: [Link](https://www.tycsports.com/competencias-y-deportes/fifa-mundial-sub-17-qatar-2025-suiza-vs-irlanda-llave-5-id699027.html)
-- **Suiza sub-17 vs. República de Irlanda sub-17, partido del Martes 18 de noviembre 2025**: [Link](https://canchallena.lanacion.com.ar/futbol/mundial-sub-17/suiza-sub-17-republica-de-irlanda-sub-17-8cw8cot7ev6kmgm52nd1qfrbo/)
-
-
-### brazil vs (N/A, 18/11/2025 15:29 Lima)
-
-- **Tunisia vs Brazil: 7 Channels to Watch the Friendly Match (18/11/2025)**: [Link](https://foot-africa.com/en/news/tunisia-vs-brazil-kick-off-time-and-tv-channels-18112025-964304/)
-- **Friendlies: Tunisia's squad list to face Brazil**: [Link](https://sports.yahoo.com/article/friendlies-tunisias-squad-list-face-102000608.html)
-- **Brasil dominates Tunisia 3-0 in friendly at Lille, Eyes 2026 World Cup prep**: [Link](https://www.red94.net/news/98841-brasil-dominates-tunisia-3-0-in-friendly-at-lille-eyes-2026-world-cup-prep/)
-
-
-### gonzalo bueno (N/A, 18/11/2025 15:29 Lima)
-
-- **Gonzalo Bueno y la decisión que lo llevó al Australian Open: el top 200 y un Grand Slam, lo que le espera al tenista que emocionó a Lima**: [Link](https://elcomercio.pe/deporte-total/tenis-peruano-gonzalo-bueno-y-la-decision-que-lo-llevo-al-australian-open-el-top-200-y-un-grand-slam-lo-que-le-espera-al-tenista-que-emociono-a-lima-noticia/)
-- **Así quedó el ranking ATP tras el título de Jannik Sinner en el Masters y la final de Ignacio Buse en Montev...**: [Link](https://bolavip.com/pe/tenis/asi-quedo-el-ranking-atp-tras-el-titulo-de-jannik-sinner-en-el-masters-y-la-final-de-ignacio-buse-en-montevideo)
-- **Ignacio Buse subió cinco puestos en el Ranking ATP pese a caer en la final del Challenger de Montevi**: [Link](https://www.apnoticias.pe/peru/diario-uno/ignacio-buse-subio-cinco-puestos-en-el-ranking-atp-pese-a-caer-en-la-final-del-challenger-de-montevideo-1470541)
 
 
