@@ -1,3 +1,50 @@
+### real madrid vs elche (N/A, 23/11/2025 07:43 Lima)
+
+- **¿A qué hora juega Real Madrid vs. Elche EN VIVO por LaLiga 2025 en USA, España y México?**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/a-que-hora-juega-real-madrid-vs-elche-en-vivo-por-laliga-2025-en-usa-espana-y-mexico-nnda-nnrt-noticia/)
+- **LaLiga EA Sports: Real Madrid enfrenta a Elche para seguir en la punta**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-real-madrid-enfrenta-a-elche-para-seguir-en-la-punta-noticia-1664896)
+- **¿A qué hora empieza y en qué canal transmiten Real Madrid vs. Elche EN VIVO hoy por LaLiga EA Sports?**: [Link](https://gestion.pe/mix/sports/a-que-hora-juega-y-que-canal-transmite-real-madrid-vs-elche-en-vivo-hoy-23-de-noviembre-por-laliga-ea-sports-horarios-y-tv-nnda-nnrt-noticia/)
+
+
+### real oviedo - rayo vallecano (N/A, 23/11/2025 07:43 Lima)
+
+- **Real Oviedo - Rayo Vallecano, en directo: LaLiga EA Sports hoy, en vivo**: [Link](https://as.com/futbol/primera/real-oviedo-rayo-vallecano-en-directo-laliga-ea-sports-hoy-en-vivo-f202511-d/)
+- **Real Oviedo vs Rayo Vallecano: Apuestas, Pronóstico y Cuotas**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2025/noviembre/pronostico-real-oviedo-vs-rayo-vallecano-23-11-25)
+- **Carrión: “Tengo la confianza al 100%”**: [Link](https://www.marca.com/futbol/oviedo/2025/11/22/carrion-confianza-100.html)
+
+
+### hellas verona - parma (N/A, 23/11/2025 07:43 Lima)
+
+- **Serie A: Verona vs. Parma – confirmed line-ups and live updates**: [Link](https://football-italia.net/verona-v-parma-confirmed-line-ups-live-updates/)
+- **Verona seeks revenge against Parma with 64% head-to-head edge despite poor form**: [Link](https://www.red94.net/news/73856-verona-seeks-revenge-against-parma-with-64-head-to-head-edge-despite-poor-form/)
+- **Patrick Cutrone’s Goal Odds for Parma vs. Hellas Verona Matchup**: [Link](https://news.ssbcrack.com/patrick-cutrones-goal-odds-for-parma-vs-hellas-verona-matchup/)
+
+
+### københavn - brøndby (N/A, 23/11/2025 07:43 Lima)
+
+Sin noticias relacionadas disponibles.
+
+
+### getafe vs (N/A, 23/11/2025 07:43 Lima)
+
+- **Posible once del Atlético ante el Getafe hoy en LaLiga EA Sports**: [Link](https://as.com/futbol/primera/posible-once-del-atletico-ante-el-getafe-hoy-en-laliga-ea-sports-f202511-n/)
+- **Pronóstico Getafe Atlético Madrid - LaLiga 23/11/25**: [Link](https://www.sportytrader.com/es/pronosticos/getafe-atletico-madrid-306781/)
+- **Simeone, ante su rival favorito: golea al Getafe 57-10**: [Link](https://www.grada3.com/2025/11/23/simeone-ante-su-rival-favorito-golea-al-getafe-57-10/)
+
+
+### retiro afp retiro cronograma (N/A, 23/11/2025 07:43 Lima)
+
+- **Retiro AFP, últimas fechas en noviembre: Plazo para solicitar, según el cronograma**: [Link](https://www.infobae.com/peru/2025/11/22/retiro-afp-ultimas-fechas-en-noviembre-plazo-para-solicitar-segun-el-cronograma/)
+- **Los afiliados que harán el retiro AFP 2025 y cobrarán su primera UIT antes de Navidad, según el cronograma**: [Link](https://larepublica.pe/economia/2025/11/22/los-afiliados-que-haran-el-retiro-afp-2025-y-cobraran-su-primera-uit-antes-de-navidad-segun-el-cronograma-atmp-1268168)
+- **Retiro de AFP: 20% de los hogares peruanos usará el dinero para compras de consumo masivo**: [Link](https://www.businessempresarial.com.pe/retiro-de-afp-20-de-los-hogares-peruanos-usara-el-dinero-para-compras-de-consumo-masivo/)
+
+
+### arsenal vs (N/A, 23/11/2025 07:43 Lima)
+
+- **Arsenal predicted XI vs Spurs as Gabriel replacement and Viktor Gyokeres decision made**: [Link](https://www.football.london/arsenal-fc/fixtures-results/arsenal-predicted-tottenham-injury-news-32922739)
+- **North London Derby: Arsenal Poised to Widen Title Lead as City, Liverpool Stumble**: [Link](https://www.dawan.africa/news/north-london-derby-arsenal-poised-to-widen-title-lead-as-city-liverpool-stumble)
+- **‘Two Traitors’—Thomas Frank Full of Light-Hearted Jibes Before North London Derby**: [Link](https://www.fotmob.com/embed/news/01kar75fxhkf/two-traitorsthomas-frank-full-light-hearted-jibes-before-north-london-derby)
+
+
 ### elige tu local de votacion (N/A, 23/11/2025 03:30 Lima)
 
 - **Desde mañana podrás elegir tu local de votación para las Elecciones 2026: ¿cuáles son los requisitos?**: [Link](https://www.infobae.com/peru/2025/11/22/desde-manana-podras-elegir-tu-local-de-votacion-para-las-elecciones-2026-cuales-son-los-requisitos/)
@@ -979,54 +1026,5 @@ Sin noticias relacionadas disponibles.
 - **Fluminense anuncia plantilla para el derbi, regresan los principales jugadores**: [Link](https://www.elpueblo.pe/deportes/fluminense-anuncia-plantilla-para-el-derbi-regresan-los-principales-jugadores/128088/)
 - **Pronóstico Fluminense - Flamengo. Brasileirao Serie A | 20/11/2025**: [Link](https://gainblers.com/pe/pronosticos/futbol/brasil/brasileirao-serie-a/pronostico-fluminense-flamengo-20-11-2025/)
 - **Fluminense vs Flamengo: ¡Juega en el Brasileirao y gana S/. 30,000 en premios gracias a Meridianbet!**: [Link](https://ovacion.pe/noticias/nota-promocional/fluminense-vs-flamengo-juega-brasileirao-gana-s-30000-premios-gracias)
-
-
-### santos vs mirassol (N/A, 19/11/2025 20:54 Lima)
-
-- **📋 Santos and Mirassol line-ups confirmed for crucial clash at Vila**: [Link](https://onefootball.com/fr/news/santos-and-mirassol-line-ups-confirmed-for-crucial-clash-at-vila-41975064)
-- **Santos vs Mirassol Preview, prediction, lineups, betting tips & odds | Campeonato Brasileiro Série A 2025**: [Link](https://khelnow.com/football/world-football-santos-vs-mirassol-preview-202511)
-- **Santos Secures Vital Win Against Mirassol in Brazilian Championship**: [Link](https://news.ssbcrack.com/santos-secures-vital-win-against-mirassol-in-brazilian-championship/)
-
-
-### que se celebra el 20 de noviembre (N/A, 19/11/2025 20:54 Lima)
-
-- **Día de la Revolución Mexicana: importancia y por qué se celebra el 20 de noviembre | tdpe | RESPUESTAS**: [Link](https://elcomercio.pe/respuestas/mexico/dia-de-la-revolucion-mexicana-importancia-y-por-que-se-celebra-el-20-de-noviembre-tdpe-noticia/)
-- **ENTENDER LA REVOLUCIÓN DE 1910 VALORANDO LA CONSTITUCIÓN**: [Link](https://cronicapuebla.com/es-relativo/entender-la-revolucion-de-1910-valorando-la-constitucion)
-- **Ecos de la Revolución - El Heraldo de Chihuahua | Noticias Locales, Policiacas, de México, Chihuahua y el Mundo**: [Link](https://oem.com.mx/elheraldodechihuahua/analisis/ecos-de-la-revolucion-26858161)
-
-
-### fluminense - flamengo (N/A, 19/11/2025 20:54 Lima)
-
-- **Árbitro Davi Lacerda Oliveira atrasa início de Fla x Flu por fumaça em campo no Maracanã**: [Link](https://br.bolavip.com/campeonato-brasileirao/arbitro-davi-lacerda-oliveira-atrasa-inicio-de-fla-x-flu-por-fumaca-em-campo-no-maracana)
-- **Veja golaço de Acosta que abriu o placar para o Fluminense contra Flamengo**: [Link](https://www.cnnbrasil.com.br/esportes/brasileirao/veja-golaco-de-acosta-que-abriu-o-placar-para-o-fluminense-contra-flamengo/)
-- **Estrangeiros do Flamengo desembarcam; Brasileiros chegam início da noite**: [Link](https://www.bol.uol.com.br/esporte/2025/11/19/estrangeiros-do-flamengo-desembarcam-brasileiros-chegam-inicio-da-noite.htm)
-
-
-### santos - mirassol (N/A, 19/11/2025 20:54 Lima)
-
-- **Web manda recado a Ancelotti após gol de Neymar pelo Santos: 'Vi o suficiente'**: [Link](https://www.lance.com.br/fora-de-campo/web-manda-recado-a-ancelotti-apos-gol-de-neymar-pelo-santos-vi-o-suficiente.html)
-- **Neymar manda recado para Mirassol as vésperas do jogo na Vila Belmiro: “Hoje é guerra”**: [Link](https://www.antenadosnofutebol.com.br/campeonato-brasileirao/neymar-manda-recado-para-mirassol-as-vesperas-do-jogo-na-vila-belmiro-hoje-e-guerra)
-- **Em Santos, Reinaldo espera manter bom rendimento contra os grandes paulistas**: [Link](https://www.gazetaesportiva.com/times/mirassol/reinaldo-mirassol-vaga-libertadores-jogo-santos/)
-
-
-### grêmio - vasco da gama (N/A, 19/11/2025 20:54 Lima)
-
-- **Grêmio x Vasco da Gama AO VIVO pelo Brasileirão; acompanhe na Jornada Digital da Gaúcha**: [Link](https://gauchazh.clicrbs.com.br/esportes/gremio/noticia/2025/11/gremio-x-vasco-ao-vivo-na-jornada-digital-da-gaucha-cmi6iy078019401502sjn3car.html)
-- **Grêmio faz mudança de última hora e coloca Pavón no lugar de Alysson antes do jogo contra o Vasco**: [Link](https://www.netvasco.com.br/n/373074/gremio-faz-mudanca-de-ultima-hora-e-coloca-pavon-no-lugar-de-alysson-antes-do-jogo-contra-o-vasco)
-- **Willian planeja volta ao Grêmio contra o Palmeiras; saiba detalhes**: [Link](https://ge.globo.com/rs/futebol/times/gremio/noticia/2025/11/19/willian-planeja-volta-ao-gremio-contra-o-palmeiras-saiba-detalhes.ghtml)
-
-
-### wicked 2 (N/A, 19/11/2025 15:24 Lima)
-
-- **Wicked: For Good review – Cynthia Erivo sweeps the field in explosive second chunk of Oz prequel**: [Link](https://www.theguardian.com/film/2025/nov/18/wicked-for-good-review-cynthia-erivo-ariana-grande-jeff-goldblum)
-- **Witches and wizards and flying monkeys, oh my! Wicked: For Good is here**: [Link](https://www.abc.net.au/news/2025-11-20/wicked-for-good-review-ariana-grande-cynthia-erivo/106027036)
-- **Ariana Grande is painfully wooden in Wicked’s irritating sequel**: [Link](https://www.telegraph.co.uk/films/2025/11/18/wicked-for-good-review-second-part-fails-to-take-flight/)
-
-
-### atlético grau - sporting cristal (N/A, 19/11/2025 15:24 Lima)
-
-- **Sporting Cristal vs. Atlético Grau EN VIVO: minuto a minuto vía Liga 1 MAX por internet gratis**: [Link](https://depor.com/futbol-peruano/descentralizado/ver-sporting-cristal-vs-atletico-grau-en-vivo-gratis-minuto-a-minuto-liga-1-max-en-directo-hoy-futbol-libre-tv-gratis-directv-online-canales-y-transmision-torneo-clausura-2025-noticia/)
-- **¡Vuelve la Liga 1! Sporting Cristal visita a Grau por la última fecha del Clausura**: [Link](https://peru21.pe/deportes/sporting-cristal-vs-grau-en-vivo-online-liga-1-l1-max-goles-resultado-resumen/)
-- **Sporting Cristal vs Atlético Grau EN VIVO: ¿a qué hora empieza el partido por el Torneo Clausura de la Liga?**: [Link](https://larepublica.pe/futbol-peruano/2025/11/18/sporting-cristal-vs-atletico-grau-en-vivo-hoy-por-el-torneo-clausura-de-liga-1-2025-via-l1-max-online-286236)
 
 
