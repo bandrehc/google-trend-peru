@@ -1,3 +1,59 @@
+### f1 (N/A, 22/11/2025 23:36 Lima)
+
+- **Beyoncé turns heads in form-fitting racing gear while arriving at F1 Grand Prix with Jay-Z**: [Link](https://pagesix.com/2025/11/22/celebrity-news/beyonce-arrives-at-f1-in-form-fitting-racing-gear/)
+- **Catherine Zeta-Jones looks incredible on 'date night' with Michael Douglas at F1 Las Vegas**: [Link](https://www.hellomagazine.com/celebrities/868987/catherine-zeta-jones-looks-incredible-on-date-night-with-michael-douglas-at-f1-las-vegas/)
+- **Gordon Ramsay and his wife Tana step out at the Las Vegas Grand Prix with Hollywood legend Michael Douglas and Catherine Zeta-Jones**: [Link](https://www.dailymail.co.uk/tvshowbiz/article-15315957/Gordon-Tana-Ramsay-step-Vegas-Grand-Prix-Michael-Douglas-Catherine-Zeta-Jones.html)
+
+
+### nuggets - kings (N/A, 22/11/2025 23:36 Lima)
+
+- **Sacramento Kings vs Denver Nuggets Prediction, Pick, Odds -- 11/22**: [Link](https://www.actionnetwork.com/nba/sacramento-kings-vs-denver-nuggets-prediction-pick-odds-saturday-november-22)
+- **Kings vs. Nuggets: The Tank Stumbles Into Denver**: [Link](https://kingsherald.com/articles/kings-vs-nuggets-the-tank-stumbles-into-denver/?utm_source=bleacherreport&utm_medium=referral)
+- **Best Nikola Jokic Player Prop Bet for Nuggets vs. Kings on Saturday 11/22/25**: [Link](https://dknetwork.draftkings.com/2025/11/22/best-nikola-jokic-player-prop-bet-for-nuggets-vs-kings-on-saturday-11-22-25/)
+
+
+### guillermo rossini (N/A, 22/11/2025 23:36 Lima)
+
+- **Guillermo Rossini, exconductor de ‘Los chistosos’ y emblemático humorista e imitador peruano, falleció a los 93 años**: [Link](https://rpp.pe/cultura/mas-cultura/guillermo-rossini-exconductor-de-los-chistosos-y-emblematico-humorista-e-imitador-peruano-fallecio-a-los-93-anos-noticia-1664960)
+- **Fallece a los 93 años Guillermo Rossini, comediante y exconductor de ‘Los Chistosos’**: [Link](https://elcomercio.pe/luces/guillermo-rossini-fallece-a-los-93-anos-el-comediante-y-exconductor-de-los-chistosos-ultimas-noticia/)
+- **Fallece Guillermo Rossini, imitador radial ícono de 'Los Chistosos', a los 93 años**: [Link](https://larepublica.pe/espectaculos/2025/11/22/fallece-guillermo-rossini-imitador-radial-icono-de-los-chistosos-a-los-93-anos-1212948)
+
+
+### karol g (N/A, 22/11/2025 23:36 Lima)
+
+- **Tainy Says He and Karol G ‘Understood Each Other Very Well’ While Making ‘Única’**: [Link](https://www.rollingstone.com/music/music-latin/tainy-karol-g-unica-1235470151/)
+- **Tainy & Karol G’s Hazy Heartbreak Song ‘Única’ & More Best New Music Latin**: [Link](https://www.billboard.com/music/latin/best-new-music-latin-tainy-karol-g-unica-1236119404/)
+- **Karol G Releases Única And The Questions About a Possible Breakup With Feid Grow Louder**: [Link](https://belatina.com/karol-g-releases-unica-and-the-questions-about-a-possible-breakup-with-feid-grow-louder/)
+
+
+### formula 1 (N/A, 22/11/2025 23:36 Lima)
+
+- **Norris vs Verstappen and Sainz in the podium mix – What To Watch For in the Las Vegas Grand Prix**: [Link](https://www.formula1.com/en/latest/article/norris-vs-verstappen-and-sainz-in-the-podium-mix-what-to-watch-for-in-the.6fYeghobafiTAUKbKmEGAH)
+- **Doriane Seals F1 ACADEMY Title in Las Vegas**: [Link](https://www.mercedesamgf1.com/news/doriane-seals-f1-academy-title-in-las-vegas)
+- **Formula One Las Vegas Grand Prix Set to Boost Tourism, Entertainment, and Economic Growth in the City**: [Link](https://www.travelandtourworld.com/news/article/formula-one-las-vegas-grand-prix-set-to-boost-tourism-entertainment-and-economic-growth-in-the-city/)
+
+
+### gp las vegas (N/A, 22/11/2025 23:36 Lima)
+
+- **STRATEGY GUIDE: What are the tactical options for the Las Vegas Grand Prix?**: [Link](https://www.formula1.com/en/latest/article/strategy-guide-what-are-the-tactical-options-for-the-las-vegas-grand-prix.2AqYVCTkyNUAFILUxCWgoK)
+- **F1 teams found to be breaching tyre temperature limits in Las Vegas**: [Link](https://www.the-race.com/formula-1/f1-teams-warned-over-tyre-temperature-tricks-after-two-breach-limit/)
+- **Las Vegas GP data disruption force Pirelli and F1 teams into uncertainty**: [Link](https://www.gpblog.com/en/news/las-vegas-gp-data-disruption-force-pirelli-and-f1-teams-into-uncertainty)
+
+
+### latina en vivo (N/A, 22/11/2025 23:36 Lima)
+
+- **Alianza Lima vs Rebaza Acosta 3-0: resumen del triunfazo ‘blanquiazul’ por la fecha 5 de la Liga Peruana de Vóley 2025/2026**: [Link](https://www.infobae.com/peru/deportes/2025/11/22/alianza-lima-vs-rebaza-acosta-en-vivo-hoy-latina-fecha-5-primera-fase-liga-peruana-de-voley-20252026-resumen-resultado/)
+- **Programación de la fecha 5 en la Liga Peruana de Vóley 2025-2026: días y horarios de todos los partidos**: [Link](https://rpp.pe/voley/mas-voley/liga-peruana-de-voley-2025-2026-programacion-de-la-fecha-5-fixture-fecha-y-horario-de-los-partidos-alianza-lima-universitario-san-martin-regatas-lpv-noticia-1664044)
+- **Regatas vs San Martín en vivo: hora, canal tv y dónde ver la Liga Peruana de Vóley**: [Link](https://elcomercio.pe/deporte-total/voley/regatas-vs-san-martin-en-vivo-hora-canal-tv-y-donde-ver-la-liga-peruana-de-voley-latina-tv-video-resumen-sets-y-puntos-tdpe-noticia/)
+
+
+### latina (N/A, 22/11/2025 23:36 Lima)
+
+- **Esto tres restaurantes peruanos se encuentran en la lista extendida de los Latin America’s 50 Best Restaurants**: [Link](https://forbes.pe/forbes-life/2025-11-18/esto-tres-restaurantes-peruanos-se-encuentran-en-la-lista-extendida-de-los-latin-americas-50-best-restaurants/)
+- **Astrid y Gastón, Clon y Shizen ingresan a la lista ampliada 2025 de los 50 Mejores Restaurantes de América Latina**: [Link](https://cosas.pe/actualidad/356637/astrid-y-gaston-clon-y-shizen-ingresan-a-la-lista-ampliada-2025-de-los-50-mejores-restaurantes-de-america-latina/)
+- **Tres restaurantes peruanos destacan entre los 100 mejores de Latin America’s 50 Best 2025, reflejando el buen momento de la cocina limeña**: [Link](https://www.infobae.com/peru/2025/11/18/tres-restaurantes-peruanos-destacan-entre-los-100-mejores-de-latin-americas-50-best-2025-reflejando-el-buen-momento-de-la-cocina-limena/)
+
+
 ### whitecaps - lafc (N/A, 22/11/2025 21:10 Lima)
 
 - **How all-world MLS signings Son, Müller have seamlessly fit in - The Athletic**: [Link](https://www.nytimes.com/athletic/6825204/2025/11/21/son-heung-min-thomas-muller-vancouver-whitecaps-lafc-mls-playoffs/)
@@ -972,61 +1028,5 @@ Sin noticias relacionadas disponibles.
 - **Twitch’s Growing Footprint Among Americans Signals Its Potential Beyond Gaming**: [Link](https://civicscience.com/twitchs-growing-footprint-among-americans-signals-its-potential-beyond-gaming/)
 - **Twitch x Pot Noodle: Slurp & Conquer Quest**: [Link](https://www.thedrum.com/awards-case-study/how-pot-noodle-revolutionized-gaming-culture-with-immersive-twitch-campaigns)
 - **Twitch x COD 6: Rogue Shadow Ops**: [Link](https://www.thedrum.com/awards-case-study/how-call-of-duty-s-rogue-shadow-ops-campaign-redefined-interactive-gaming)
-
-
-### liga de campeones femenina de la uefa (N/A, 19/11/2025 15:24 Lima)
-
-- **El Barça viaja a Londres sin una baja de última hora**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20251119/1002571899/barca-viaja-londres-baja-ultima-hora.html)
-- **El Barcelona regresa a Stamford Bridge: "Es difícil ganar al Chelsea, pero aún más es volver a hacerlo"**: [Link](https://www.marca.com/futbol/futbol-femenino/champions-league/2025/11/19/barcelona-regresa-stamford-bridge-dificil-ganar-chelsea-aun-volver-hacerlo.html)
-- **Chelsea-Barcelona: Alineaciones probables, estadísticas y cómo ver por TV y online (21:00)**: [Link](https://espanol.eurosport.com/futbol/champions-league-femenina/2025-2026/chelsea-barcelona-alineaciones-probables-previa-estadisticas-precedentes-horario-como-donde-ver-television-online-streaming-hoy_sto23242551/story.shtml)
-
-
-### vfl wolfsburgo - man utd (N/A, 19/11/2025 15:24 Lima)
-
-- **LIVE! Endemann umkurvt Middleton-Patel - 5:2**: [Link](https://www.kicker.de/wolfsburg-gegen-manunited-2025-frauen-champions-league-5176048/spielbericht)
-- **Vor Minus-Kulisse: VfL-Frauen feiern niederländische Tor-Party**: [Link](https://www.braunschweiger-zeitung.de/sport/vfl-wolfsburg/article410501671/tor-spektakel-vor-minuskulisse.html)
-- **Sorgen um Popp! Bezahlt Wolfsburg diesen Sieg teuer?**: [Link](https://www.sport1.de/news/fussball/frauen-champions-league/2025/11/sorgen-um-popp-bezahlt-wolfsburg-diesen-sieg-teuer)
-
-
-### hoy que se celebra (N/A, 19/11/2025 15:24 Lima)
-
-- **Santoral del 20 de noviembre de 2025: Descubre qué santos se celebran hoy**: [Link](https://www.diariosur.es/sociedad/santoral-20-noviembre-2025-que-santos-se-celebran-20251117000000-nt.html)
-- **Qué santo se celebra este 20 de noviembre**: [Link](https://www.infobae.com/noticias/2025/11/19/que-santo-se-celebra-este-20-de-noviembre/)
-- **¿Qué pasó en el mundo un día como hoy? Revisa la efemérides del 19 de noviembre**: [Link](https://elcomercio.pe/mundo/actualidad/efemerides-del19-de-noviembre-que-paso-en-el-mundo-un-dia-como-hoy-cristobal-colon-borinquen-puerto-rico-ultimas-noticia/)
-
-
-### hazbin hotel temporada 2 capitulo 7 (N/A, 19/11/2025 11:33 Lima)
-
-- **El gran final de la temporada 2: fecha de estreno, hora confirmada y link para ver los episodios 7 y 8 de “Hazbin Hotel 2”**: [Link](https://elcomercio.pe/mag/fama/que-ver/hazbin-hotel-final-de-la-temporada-2-fecha-hora-y-link-para-ver-los-episodios-7-y-8-de-la-serie-de-amazon-prime-video-nnda-nnlt-noticia/)
-- **Hazbin Hotel, temporada 3: fecha de estreno en Prime Video y todo lo que sabemos de la tercera parte de la serie**: [Link](https://www.clarin.com/estados-unidos/hazbin-hotel-temporada-3-fecha-estreno-prime-video-sabemos-tercera-parte-serie_0_Sl2djLsDcq.html)
-- **Hazbin Hotel temporada 2, capítulos 7 y 8: a qué hora salen los nuevos episodios, cómo y dónde verlos**: [Link](https://tierragamer.com/noticias/series/hazbin-hotel-temporada-2-capitulos-7-y-8-a-que-hora-salen-los-nuevos-episodios-como-y-donde-verlos/)
-
-
-### cometa 3i atlas nasa (N/A, 19/11/2025 11:33 Lima)
-
-- **Sigue en vivo: NASA transmitirá imágenes inéditas del cometa interestelar 3I/ATLAS**: [Link](https://andina.pe/agencia/noticia-sigue-vivo-nasa-transmitira-imagenes-ineditas-del-cometa-interestelar-3iatlas-1052478.aspx)
-- **¿Qué pasará con el objeto interestelar 3I/ATLAS tras su acercamiento a la Tierra? La NASA y ESA ya tienen la respuesta | MAG**: [Link](https://elcomercio.pe/mag/respuestas/ciencias/que-pasara-con-el-objeto-interestelar-3iatlas-tras-su-acercamiento-a-la-tierra-la-nasa-y-esa-ya-tienen-la-respuesta-nnda-nnrt-noticia/)
-- **Misterios de 3I/Atlas: ¿objeto interestelar o tecnología desconocida?**: [Link](https://www.tvperu.gob.pe/novedades/hora-contacto/misterios-de-3iatlas-objeto-interestelar-o-tecnologia-desconocida)
-
-
-### temblor hoy arequipa (N/A, 19/11/2025 11:33 Lima)
-
-- **Temblor en Perú hoy, miércoles 19 de noviembre: reportes de los últimos sismos**: [Link](https://elcomercio.pe/respuestas/temblor-hoy-en-peru-en-vivo-hora-exacta-intensidad-epicentro-y-magnitud-del-ultimo-sismo-reportado-el-18-y-19-de-noviembre-de-2025-segun-igp-instituto-geofisico-del-peru-lima-callao-ica-lbposting-noticia/)
-- **Un sismo de magnitud 4.1 remeció la región Arequipa esta mañana**: [Link](https://rpp.pe/peru/arequipa/arequipa-sismo-de-magnitud-41-remecio-la-region-esta-manana-noticia-1664406)
-- **Sismo remece Perú esta mañana: Este es el epicentro y la magnitud del temblor sentido HOY, 19 de noviembre**: [Link](https://www.exitosanoticias.pe/actualidad/sismo-remece-peru-esta-manana-epicentro-magnitud-temblor-sentido-hoy-19-noviembre-n163035)
-
-
-### que se celebra hoy (N/A, 19/11/2025 11:33 Lima)
-
-- **Santoral: cuál es el santo de este 19 de noviembre**: [Link](https://www.infobae.com/noticias/2025/11/18/santoral-cual-es-el-santo-de-este-19-de-noviembre/)
-- **Santa Matilde Von Hackerborn, entra al monasterio a los 7 años, y luego se hace maestra de místicos**: [Link](https://es.gaudiumpress.org/content/santa-matilde-von-hackerborn-entra-al-monasterio-a-los-7-anos-y-luego-se-hace-maestra-de-misticos/)
-- **¿Qué santos se celebran hoy, miércoles 19 de noviembre de 2025?**: [Link](https://www.elconfidencialdigital.com/religion/articulo/santoral/que-santos-celebran-hoy-miercoles-19-noviembre-2025/20251119044218054413.html)
-
-
-### bn (N/A, 19/11/2025 11:33 Lima)
-
-- **Oracle is already underwater on its ‘astonishing’ $300bn OpenAI deal**: [Link](https://www.ft.com/content/064bbca0-1cb2-45ab-85f4-25fdfc318d89)
-- **The most important chart in AI today? Oracle’s default swaps blow out**: [Link](https://finance.yahoo.com/news/most-important-chart-ai-today-181906112.html)
-- **Oracle’s stock could surge 80%, says this analyst who predicts a major rebound**: [Link](https://www.marketwatch.com/story/oracles-stock-could-surge-80-says-this-analyst-who-predicts-a-major-rebound-889bb895?gaa_at=eafs&gaa_n=AWEtsqelzz3uCx8NkhyPLsNYQUrLRt0wpmef6ItWqtTfD_igT5UURxmMltgW&gaa_ts=691df4d9&gaa_sig=BZEUywFiqMnjBID6LEZOrb-E4s_rDgojsyoxd-k_PsJdL7CT0bObyFFRWgEfauiP8DqZHkjT0KWGN6q3TU7MtA%3D%3D)
 
 
