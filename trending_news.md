@@ -1,3 +1,73 @@
+### whitecaps - lafc (N/A, 22/11/2025 21:10 Lima)
+
+- **How all-world MLS signings Son, Müller have seamlessly fit in - The Athletic**: [Link](https://www.nytimes.com/athletic/6825204/2025/11/21/son-heung-min-thomas-muller-vancouver-whitecaps-lafc-mls-playoffs/)
+- **Vancouver, LAFC set for "nerve-racking" Western Conference Semifinal**: [Link](https://www.mlssoccer.com/playoffs/2025/news/whitecaps-lafc-set-for-nerve-racking-western-conference-semifinal-at-sold-out-bc-place)
+- **Vancouver Whitecaps vs LAFC Predictions: Son and LAFC to advance**: [Link](https://www.goal.com/en-us/betting/vancouver-whitecaps-vs-lafc-predictions-11-22/bltab0919ab2bc4edf0)
+
+
+### fluminense vs (N/A, 22/11/2025 21:10 Lima)
+
+- **Palmeiras vs Fluminense RJ pronostico y comparación de cuotas 23.11.2025**: [Link](https://www.livetipsportal.com/es/pronosticos-apuestas-deportivas/palmeiras-vs-fluminense-rj-serie-a-10963427/)
+- **Pronóstico Palmeiras - Fluminense. Brasileirao Serie A | 23/11/2025**: [Link](https://gainblers.com/pe/pronosticos/futbol/brasil/brasileirao-serie-a/pronostico-palmeiras-fluminense-23-11-2025/)
+- **Newcastle vs. Man City (22 de Nov., 2025) Resultados en Vivo**: [Link](https://www.espn.com.pe/futbol/partido/_/juegoId/740712)
+
+
+### central córdoba - san lorenzo (N/A, 22/11/2025 21:10 Lima)
+
+- **Central Córdoba y San Lorenzo empatan por los octavos de final del Torneo Clausura**: [Link](https://www.infobae.com/deportes/2025/11/22/central-cordoba-y-san-lorenzo-buscaran-un-lugar-en-los-cuartos-de-final-del-torneo-clausura-en-santiago-del-estero-hora-tv-y-formaciones/)
+- **Fútbol libre por celular: cómo ver en vivo Central Córdoba vs. San Lorenzo**: [Link](https://www.minutouno.com/deportes/futbol-libre-celular-como-ver-vivo-central-cordoba-vs-san-lorenzo-n6216673)
+- **Los convocados por Ayude para el partido por Octavos**: [Link](https://onefootball.com/es/noticias/los-convocados-por-ayude-para-el-partido-por-octavos-41985029)
+
+
+### tolima - bucaramanga (N/A, 22/11/2025 21:10 Lima)
+
+- **Tolima sale a reforzar su liderato frente a Bucaramanga en Ibagué**: [Link](https://www.espn.com.ar/futbol/colombia/nota/_/id/15986121/tolima-vs-bucaramanga-fecha-2-cuadrangulares-equipo-fecha-hora-y-tv-en-vivo)
+- **Gramado del Murillo Toro ‘a punto’ para el juego entre Tolima Vs. Bucaramanga**: [Link](https://ondasdeibague.com/noticias/principales/65-destacadas-2/64683-gramado-del-murillo-toro-a-punto-para-el-juego-entre-tolima-vs-bucaramanga)
+- **Comunicado Oficial: situación sobre el partido entre Deportes Tolima vs. Atlético Bucaramanga**: [Link](https://dimayor.com.co/2025/11/22/comunicado-oficial-situacion-sobre-el-partido-entre-deportes-tolima-vs-atletico-bucaramanga/)
+
+
+### u. católica - palestino (N/A, 22/11/2025 21:10 Lima)
+
+- **Universidad Católica recibe a Palestino con el objetivo de seguir firme por conseguir el cupo a Chile 2**: [Link](https://www.espn.com.ar/futbol/chile/nota/_/id/15986975/universidad-catolica-vs-palestino-vigesimo-octava-fecha-liga-de-primera-2025-equipo-fecha-y-hora)
+- **[VIDEO] Fernando Zampedri no falló de penal y adelantó a la UC sobre Palestino**: [Link](https://cooperativa.cl/noticias/deportes/futbol/liga-de-primera/video-fernando-zampedri-no-fallo-de-penal-y-adelanto-a-la-uc-sobre/2025-11-22/211819.html)
+- **U. Católica asegura la victoria al vencer 2-1 a Palestino**: [Link](https://www.t13.cl/noticia/deportes13/u-catolica-asegura-la-victoria-al-vencer-2-1-a-palestino-22-11-2025)
+
+
+### palmeiras - fluminense (N/A, 22/11/2025 21:10 Lima)
+
+- **Fluminense divulga relacionados para enfrentar o Palmeiras sem Thiago Silva, Ganso e Lucho Acosta**: [Link](https://onefootball.com/pt-br/noticias/fluminense-divulga-relacionados-para-enfrentar-o-palmeiras-sem-thiago-silva-ganso-e-lucho-acosta-41988968)
+- **Confira como está o banco de reservas do Fluminense para a partida diante do Palmeiras**: [Link](https://www.netflu.com.br/confira-como-esta-o-banco-de-reservas-do-fluminense-para-a-partida-diante-do-palmeiras/)
+- **Palmeiras x Fluminense: escalações e onde assistir ao jogo do Brasileirão**: [Link](https://www.cnnbrasil.com.br/esportes/brasileirao/palmeiras-x-fluminense-escalacoes-e-onde-assistir-ao-jogo-do-brasileirao/)
+
+
+### flamengo - bragantino (N/A, 22/11/2025 21:10 Lima)
+
+- **Flamengo x Bragantino: onde assistir ao vivo, horário e escalações**: [Link](https://ge.globo.com/rj/futebol/brasileirao-serie-a/noticia/2025/11/22/flamengo-x-bragantino-onde-assistir-ao-vivo-horario-e-escalacoes.ghtml)
+- **Carrascal comete falta forte e polêmica ‘estoura’ nas redes sociais: “Tá descarado já”**: [Link](https://br.bolavip.com/flamengo/carrascal-comete-falta-forte-e-polemica-estoura-nas-redes-sociais-ta-descarado-ja)
+- **Flamengo tem volta de Arrascaeta e Cebolinha titular contra o Bragantino**: [Link](https://www.uol.com.br/esporte/futebol/ultimas-noticias/2025/11/22/flamengo-tem-volta-de-arrascaeta-e-cebolinha-titular-contra-o-bragantino.htm)
+
+
+### billy idol (N/A, 22/11/2025 21:10 Lima)
+
+- **Billy Idol talks 'whirlwind' '80s rock life and his new 'vantage point'**: [Link](https://www.usatoday.com/story/entertainment/music/2025/11/22/billy-idol-documentary-interview/87404734007/)
+- **Hear Billy Idol With a String Quartet on New ‘Dying to Live’ Ballad**: [Link](https://www.rollingstone.com/music/music-news/billy-idol-dying-to-live-billy-idol-should-be-good-doc-1235465382/)
+- **Billy Idol and J. Ralph Join Forces on New Song “Dying To Live” For Upcoming Documentary Billy ...**: [Link](https://music.mxdwn.com/2025/11/15/news/billy-idol-and-j-ralph-join-forces-on-new-song-dying-to-live-for-upcoming-documentary-billy-idol-should-be-dead/)
+
+
+### costa 21 (N/A, 22/11/2025 21:10 Lima)
+
+- **Airbag en Lima: Rutas exclusivas de transporte público para que fans se movilicen tras concierto en la Costa Verde**: [Link](https://www.infobae.com/peru/2025/11/22/airbag-en-lima-rutas-exclusivas-de-transporte-publico-para-que-fans-se-movilicen-tras-concierto-en-la-costa-verde/)
+- **Airbag en Lima: conoce las rutas habilitadas del 'Bus Stage' de ATU desde Costa 21 hacia SJL, Chosica, VES y Carabayllo**: [Link](https://larepublica.pe/sociedad/2025/11/22/airbag-en-lima-conoce-las-rutas-habilitadas-del-bus-stage-de-atu-desde-costa-21-hacia-sjl-chosica-ves-y-carabayllo-1687004)
+- **Airbag en Perú: fans se alistan para concierto sold out en el Multiespacio Costa 21**: [Link](https://larepublica.pe/espectaculos/2025/11/21/airbag-en-peru-fans-de-banda-argentina-se-alistan-para-concierto-sold-out-en-lima-y-arequipa-nunca-lo-olvides-por-mil-noches-435582)
+
+
+### lautaro acosta (N/A, 22/11/2025 21:10 Lima)
+
+- **Laucha Acosta, de errar un penal clave a la emoción en el final: "Es el broche de oro para mi carrera"**: [Link](https://www.ole.com.ar/lanus/acosta-penal-emocion-lanus_0_PyePveohYh.html)
+- **Fue campeón con Lanús en el 2007 y palpita la final de la Sudamericana: “Sería un cierre ideal para Lautaro...**: [Link](https://bolavip.com/ar/copa-sudamericana/fue-campeon-con-lanus-en-el-2007-y-palpita-la-final-de-la-sudamericana-seria-un-cierre-ideal-para-lautaro-acosta)
+- **Lautaro Acosta confirmó que se retira a fin de año: "Es el broche de oro, pero ya se termina"**: [Link](https://www.elgrafico.com.ar/articulo/conmebol-sudamericana/95268/lautaro-acosta-confirmo-que-se-retira-a-fin-de-anio-es-el-broche-de-oro-pero-ya-se-termina)
+
+
 ### club universitario de deportes (N/A, 22/11/2025 15:25 Lima)
 
 - **Andy Polo se confiesa tras el ‘tri’: “Si por mí fuera, me quedaría toda la vida en Universitario”**: [Link](https://depor.com/futbol-peruano/descentralizado/andy-polo-si-por-mi-fuera-me-quedaria-todo-la-vida-en-universitario-no-descarta-volver-al-extranjero-tras-tricampeonato-video-noticia/)
@@ -958,74 +1028,5 @@ Sin noticias relacionadas disponibles.
 - **Oracle is already underwater on its ‘astonishing’ $300bn OpenAI deal**: [Link](https://www.ft.com/content/064bbca0-1cb2-45ab-85f4-25fdfc318d89)
 - **The most important chart in AI today? Oracle’s default swaps blow out**: [Link](https://finance.yahoo.com/news/most-important-chart-ai-today-181906112.html)
 - **Oracle’s stock could surge 80%, says this analyst who predicts a major rebound**: [Link](https://www.marketwatch.com/story/oracles-stock-could-surge-80-says-this-analyst-who-predicts-a-major-rebound-889bb895?gaa_at=eafs&gaa_n=AWEtsqelzz3uCx8NkhyPLsNYQUrLRt0wpmef6ItWqtTfD_igT5UURxmMltgW&gaa_ts=691df4d9&gaa_sig=BZEUywFiqMnjBID6LEZOrb-E4s_rDgojsyoxd-k_PsJdL7CT0bObyFFRWgEfauiP8DqZHkjT0KWGN6q3TU7MtA%3D%3D)
-
-
-### black friday (N/A, 19/11/2025 11:33 Lima)
-
-- **Black Friday is next week: Retail experts say these will be the best deals to shop**: [Link](https://www.yahoo.com/lifestyle/deals/article/black-friday-is-next-week-retail-experts-say-these-will-be-the-best-deals-to-shop-154759080.html)
-- **The best Black Friday and Cyber Monday home deals in the US – so far**: [Link](https://www.theguardian.com/thefilter-us/2025/nov/18/best-black-friday-cyber-monday-home-deals)
-- **Black Friday is just 11 days away. Our experts found the 73 best early deals**: [Link](https://www.cnn.com/cnn-underscored/deals/best-early-black-friday-deals-2025-11-17)
-
-
-### que se celebra hoy 19 de noviembre (N/A, 19/11/2025 07:52 Lima)
-
-- **Día de Santo Profeta Abdías: la oración para tener su guía y protección este miércoles**: [Link](https://www.cronista.com/mexico/espiritualidad/dia-de-santo-profeta-abdias-la-oracion-para-tener-su-guia-y-proteccion-este-miercoles/)
-- **¿Qué santos se celebran hoy, miércoles 19 de noviembre de 2025?**: [Link](https://www.elconfidencialdigital.com/religion/articulo/santoral/que-santos-celebran-hoy-miercoles-19-noviembre-2025/20251119044218054413.html)
-- **¿Qué santo se celebra hoy? Consulta el santoral del miércoles 19 de noviembre**: [Link](https://www.elmundo.es/como/2025/11/19/691b1802e9cf4a71038b45a5.html)
-
-
-### cronograma de pagos (N/A, 19/11/2025 07:52 Lima)
-
-- **Sueldos y pensiones de noviembre 2025 según el cronograma del Banco de la Nación: ¿Qué día te corresponde cobrar?**: [Link](https://elcomercio.pe/respuestas/tramites/sueldos-y-pensiones-de-noviembre-2025-segun-el-cronograma-del-banco-de-la-nacion-tdpe-noticia/)
-- **ONP llevará pensiones a casa de más de 9,500 adultos mayores en todo Lima**: [Link](https://caretas.pe/nacional/onp-llevara-pensiones-a-casa-de-mas-de-9500-adultos-mayores-en-todo-lima/)
-- **Cobros ONP: padrón de pensionistas que retiran su pensión hoy**: [Link](https://diarioelnoticiero.com/cobros-onp-padron-de-pensionistas-que-retiran-su-pension-hoy/)
-
-
-### exitosa en vivo (N/A, 19/11/2025 07:52 Lima)
-
-- **Temblor en Perú hoy, miércoles 19 de noviembre: reportes de los últimos sismos**: [Link](https://elcomercio.pe/respuestas/temblor-hoy-en-peru-en-vivo-hora-exacta-intensidad-epicentro-y-magnitud-del-ultimo-sismo-reportado-el-18-y-19-de-noviembre-de-2025-segun-igp-instituto-geofisico-del-peru-lima-callao-ica-lbposting-noticia/)
-- **Temblor hoy en Perú, martes 18 de noviembre: sismo de magnitud 4.1 se registra en Tumbes**: [Link](https://andina.pe/agencia/noticia-temblor-hoy-peru-martes-18-noviembre-sismo-magnitud-41-se-registra-tumbes-1052381.aspx)
-- **Un sismo de magnitud 4.1 remeció la región Tumbes esta mañana**: [Link](https://rpp.pe/peru/tumbes/tumbes-sismo-de-magnitud-41-remecio-la-region-esta-manana-noticia-1664279)
-
-
-### starbucks (N/A, 19/11/2025 07:52 Lima)
-
-- **Target and Starbucks are both looking for a turnaround. They’re teaming up on an exclusive new drink**: [Link](https://www.cnn.com/2025/11/17/food/target-starbucks-exclusive-drink-launch)
-- **Starbucks launching holiday drink only available at Target locations**: [Link](https://www.kare11.com/article/news/nation-world/target-starbucks-exclusive-holiday-drink/507-71cae21b-a727-45a4-8796-83c545477d01)
-- **Target and Starbucks offer exclusive Frozen Peppermint Hot Chocolate**: [Link](https://about.starbucks.com/stories/2025/target-and-starbucks-offer-exclusive-frozen-peppermint-hot-chocolate/)
-
-
-### sat (N/A, 19/11/2025 07:52 Lima)
-
-- **SAT score release times: Here's when you can check your results from November exam**: [Link](https://www.app.com/story/news/education/2025/11/18/sat-score-release-dates-2025-november/87332813007/)
-- **SAT vs. ACT: Which Path To Take?**: [Link](https://machronicle.com/sat-vs-act-which-path-to-take/)
-
-
-### 19 de noviembre que se celebra (N/A, 19/11/2025 07:52 Lima)
-
-- **Efemérides del 19 de noviembre: ¿Qué pasó en el mundo un día como hoy?**: [Link](https://elcomercio.pe/mundo/actualidad/efemerides-del19-de-noviembre-que-paso-en-el-mundo-un-dia-como-hoy-cristobal-colon-borinquen-puerto-rico-ultimas-noticia/)
-- **Efemérides de hoy 19 de noviembre de 2025: ¿Qué pasó el 19 de noviembre?**: [Link](https://www.antena3.com/noticias/sociedad/efemerides-hoy-19-noviembre-2025-que-paso-19-noviembre_20251119691d4ef9360d0840bce9e8fe.html)
-- **Las efemérides más destacadas del 19 de noviembre**: [Link](https://www.diariosur.es/sociedad/efemeride-19noviembre-20251117000000-nt.html)
-
-
-### miss universo 2025 (N/A, 19/11/2025 03:33 Lima)
-
-- **Preliminar del Miss Universo 2025: cuándo y a qué hora ver la previa al certamen de belleza desde Perú**: [Link](https://www.infobae.com/peru/2025/11/18/preliminar-del-miss-universo-2025-cuando-y-a-que-hora-es-la-previa-al-certamen-de-belleza/)
-- **¿En dónde ver la gran final de Miss Universo 2025 EN VIVO desde Perú?**: [Link](https://peru21.pe/espectaculos/en-vivo-miss-universo-2025-desde-peru-karla-bacigalupo-ganadora-finalista/)
-- **Fátima Bosch en el Miss Universo 2025: así puedes votar por la mexicana en la aplicación del certamen**: [Link](https://elcomercio.pe/respuestas/mexico/fatima-bosch-en-el-miss-universo-2025-asi-puedes-votar-por-la-mexicana-en-la-aplicacion-del-certamen-tdpe-noticia/)
-
-
-### jnj delia espinoza (N/A, 19/11/2025 03:33 Lima)
-
-- **La JNJ recurre al TC para no reponer a Delia Espinoza: Gino Ríos presenta demanda competencial contra el PJ**: [Link](https://www.infobae.com/peru/2025/11/18/la-jnj-recurre-al-tc-para-no-reponer-a-delia-espinoza-gino-rios-presenta-demanda-competencial-contra-el-pj/)
-- **JNJ presenta ante el TC demanda competencial contra el Poder Judicial por caso Delia Espinoza**: [Link](https://rpp.pe/politica/judiciales/jnj-presenta-ante-el-tc-demanda-competencial-contra-el-poder-judicial-por-caso-delia-espinoza-noticia-1664288)
-- **Delia Espinoza exige ejecución inmediata de su reposición como fiscal de la Nación**: [Link](https://caretas.pe/politica/delia-espinoza-exige-ejecucion-inmediata-de-su-reposicion-como-fiscal-de-la-nacion/)
-
-
-### haiti (N/A, 19/11/2025 03:33 Lima)
-
-- **Cómo hizo Haití, unos de los países más pobres de América para soñar con la hazaña de clasificar al Mundial 2026**: [Link](https://www.espn.com.pe/futbol/mundial/nota/_/id/15975448/como-hizo-haiti-unos-de-los-paises-mas-pobres-de-america-sonar-con-la-hazana-clasificar-al-mundial-2026)
-- **¡Estará en 2026! Haití vuelve a la Copa Mundial tras 52 años de ausencia**: [Link](https://rpp.pe/futbol/eliminatorias/estara-en-2026-haiti-vuelve-a-la-copa-mundial-tras-52-anos-de-ausencia-noticia-1664379)
-- **Nicaragua vs. Haití (0-2): ver resumen y goles del partido por Eliminatorias Concacaf | VIDEO**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/nicaragua-vs-haiti-en-vivo-gratis-hoy-via-futbol-libre-tv-nicasports-paramount-youtube-horarios-canales-tv-y-donde-ver-partido-por-eliminatorias-concacaf-video-noticia/)
 
 
