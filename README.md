@@ -1,3 +1,73 @@
+### tottenham (N/A, 23/11/2025 11:28 Lima)
+
+- **Arsenal vs. Tottenham en vivo: horario, canal TV y cómo ver por Premier League**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/arsenal-vs-tottenham-en-vivo-online-gratis-por-premier-league-via-espn-disney-plus-caliente-tv-movistar-futbol-libre-tv-a-que-hora-juegan-canal-que-transmite-y-donde-ver-partido-de-hoy-video-noticia/)
+- **Premier League: Arsenal y Tottenham miden sus fuerzas en el Derbi del norte de Londres**: [Link](https://rpp.pe/futbol/ligas-internacionales/premier-league-arsenal-y-tottenham-miden-sus-fuerzas-en-el-derbi-del-norte-de-londres-noticia-1664868)
+- **Pronósticos Arsenal vs Tottenham: apuestas apuntan a victoria de los gunners sin recibir goles**: [Link](https://depor.com/apuestas-deportivas/arsenal-vs-tottenham-pronosticos-apuestas-cuotas-23-11-2025-2/)
+
+
+### sunderland afc vs. arsenal (N/A, 23/11/2025 11:28 Lima)
+
+- **Pep Guardiola’s worst fear about Arsenal could be about to come true**: [Link](https://www.arsenalinsider.com/opinion/pep-guardiolas-worst-fear-about-arsenal-could-be-about-to-come-true/)
+- **Pep Guardiola drops verdict on Premier League title race as he eyes ‘important step’ against Newcastle**: [Link](https://newswav.com/article/pep-guardiola-drops-verdict-on-premier-league-title-race-as-he-eyes-importa-A2511_kmcRjB)
+- **Pep Guardiola: “The real season starts now”**: [Link](https://zamin.uz/en/sport/171304-pep-guardiola-the-real-season-starts-now.html)
+
+
+### betis vs girona (N/A, 23/11/2025 11:28 Lima)
+
+- **Azzedine Ounahi vs. Real Betis – Player props & odds to score a goal on November 23**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/11/22/azzedine-ounahi-soccer-player-props-11-23-2025/87426331007/)
+- **Real Betis favored over Girona with 69% head-to-head advantage in La Liga clash**: [Link](https://www.red94.net/news/44883-real-betis-favored-over-girona-with-69-head-to-head-advantage-in-la-liga-clash/)
+- **Míchel Sánchez: "At the end of the first round, we must be out of the relegation zone"**: [Link](https://www.gironafc.cat/en/news/michel-sanchez-at-the-end-of-the-first-round-we-must-be-out-of-the-relegation-zone)
+
+
+### arsenal - tottenham (N/A, 23/11/2025 11:28 Lima)
+
+- **Confirmed Arsenal Team to face Spurs in NLD – Merino leads the line and Hincapie at CB**: [Link](https://www.justarsenal.com/confirmed-arsenal-team-to-face-spurs-in-nld-merino-leads-the-line-and-hincapie-at-cb/404495)
+- **North London Derby: Arsenal Poised to Widen Title Lead as City, Liverpool Stumble**: [Link](https://www.dawan.africa/news/north-london-derby-arsenal-poised-to-widen-title-lead-as-city-liverpool-stumble)
+- **Preview: The first North London Derby of the season**: [Link](https://www.fotmob.com/ko/topnews/24059-preview-first-north-london-derby-season?utm_source=fotmob)
+
+
+### dni (N/A, 23/11/2025 11:28 Lima)
+
+- **Retiro AFP, últimas fechas en noviembre: Plazo para solicitar, según el cronograma**: [Link](https://www.infobae.com/peru/2025/11/22/retiro-afp-ultimas-fechas-en-noviembre-plazo-para-solicitar-segun-el-cronograma/)
+- **Retiro-AFP 2025 según fechas del cronograma: días para rezagados según DNI**: [Link](https://elcomercio.pe/respuestas/tramites/cuando-iniciar-el-retiro-afp-segun-el-cronograma-oficial-fechas-rezagadas-segun-tu-dni-octavo-retiro-tdpe-noticia/)
+- **Estos peruanos son los primeros en recibir hasta S/5.350, tras registrar su solicitud de retiro AFP 2025, según el cronograma oficial**: [Link](https://larepublica.pe/economia/2025/11/22/estos-peruanos-son-los-primeros-en-recibir-hasta-s5350-tras-registrar-su-solicitud-de-retiro-afp-2025-segun-el-cronograma-oficial-atmp-1539384)
+
+
+### al nassr (N/A, 23/11/2025 11:28 Lima)
+
+- **Preview:Al-Nassr vs Al Khaleej - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/al-nassr/preview/al-nassr-vs-al-khaleej-prediction-team-news-lineups_586139.html)
+- **Will Cristiano Ronaldo play tonight for Al-Nassr vs Al-Khaleej in Saudi Pro League?**: [Link](https://khelnow.com/football/world-football-will-cristiano-ronaldo-play-tonight-al-nassr-vs-al-khaleej-202511)
+- **Al-Nassr vs Al-Khaleej LIVE Score Updates in Saudi Pro League Match**: [Link](https://www.vavel.com/en-us/soccer/2025/11/23/1242218-al-nassr-vs-al-khaleej-live-score-saudi-pro-league.html)
+
+
+### a qué hora juega alianza lima (N/A, 23/11/2025 11:28 Lima)
+
+- **Alianza Lima vs Rebaza Acosta 3-0: resumen del triunfazo ‘blanquiazul’ por la fecha 5 de la Liga Peruana de Vóley 2025/2026**: [Link](https://www.infobae.com/peru/deportes/2025/11/22/alianza-lima-vs-rebaza-acosta-en-vivo-hoy-latina-fecha-5-primera-fase-liga-peruana-de-voley-20252026-resumen-resultado/)
+- **Programación de la fecha 5 en la Liga Peruana de Vóley 2025-2026: días y horarios de todos los partidos**: [Link](https://rpp.pe/voley/mas-voley/liga-peruana-de-voley-2025-2026-programacion-de-la-fecha-5-fixture-fecha-y-horario-de-los-partidos-alianza-lima-universitario-san-martin-regatas-lpv-noticia-1664044)
+- **Regatas vs San Martín en vivo: hora, canal tv y dónde ver la Liga Peruana de Vóley**: [Link](https://elcomercio.pe/deporte-total/voley/regatas-vs-san-martin-en-vivo-hora-canal-tv-y-donde-ver-la-liga-peruana-de-voley-latina-tv-video-resumen-sets-y-puntos-tdpe-noticia/)
+
+
+### betis (N/A, 23/11/2025 11:28 Lima)
+
+- **El Betis anuncia la renovación de Isco hasta 2028 | Fútbol | Deportes**: [Link](https://elpais.com/deportes/futbol/2025-11-23/el-betis-anuncia-la-renovacion-de-isco-hasta-2028.html)
+- **El Betis, obligado a pagarle una millonada para que siga dos años más: cobra lo mismo que Antony**: [Link](https://www.msn.com/es-es/deportes/futbol/el-betis-obligado-a-pagarle-una-millonada-para-que-siga-dos-a%C3%B1os-m%C3%A1s-cobra-lo-mismo-que-antony/ar-AA1QSkTw)
+- **Isco regresa tras lesionarse en La Rosaleda y renueva con el Betis hasta 2028**: [Link](https://www.malagahoy.es/malaga_cf/isco-regresa-lesionarse-rosaleda-renueva_0_2005292962.html)
+
+
+### lyon vs (N/A, 23/11/2025 11:28 Lima)
+
+- **Liga de Francia: Auxerre espera frenar su racha negativa y vencer a Olympique Lyon**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-de-francia-auxerre-espera-frenar-su-racha-negativa-y-vencer-a-olympique-lyon-noticia-1664862)
+- **Miracle à l'OL, ce Brésilien croise les doigts**: [Link](https://www.foot01.com/ol/miracle-a-lol-ce-bresilien-croise-les-doigts)
+- **Lyon et Lille en chasse, le dimanche de Ligue 1 sur Flashscore**: [Link](https://www.flashscore.fr/actualites/football-ligue-1-direct-le-dimanche-de-ligue-1-sur-flashscore-avec-auxerre-lyon-et-lille-paris-fc/2gYr5E6m/)
+
+
+### mantova 1911 - spezia (N/A, 23/11/2025 11:28 Lima)
+
+- **Lo Spezia crolla a Mantova (4-1), espulso Cassata. Ora il derby con la Samp**: [Link](https://telenord.it/lo-spezia-crolla-a-mantova-4-1-espulso-cassata-ora-il-derby-con-la-samp-96948)
+- **Solo una vittoria allo stadio Martelli. L’anno scorso il 2-2 che sapeva di beffa**: [Link](https://www.lanazione.it/la-spezia/cronaca/solo-una-vittoria-allo-stadio-d6132fe3)
+- **Possanzini: «L’Acm gioca ancora come se ogni gara fosse l’ultima»**: [Link](https://www.gazzettadimantova.it/argomenti/sport/possanzini-donadoni-mantova-spezia-1.12855737)
+
+
 ### real madrid vs elche (N/A, 23/11/2025 07:43 Lima)
 
 - **¿A qué hora juega Real Madrid vs. Elche EN VIVO por LaLiga 2025 en USA, España y México?**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/a-que-hora-juega-real-madrid-vs-elche-en-vivo-por-laliga-2025-en-usa-espana-y-mexico-nnda-nnrt-noticia/)
@@ -958,73 +1028,5 @@ Sin noticias relacionadas disponibles.
 - **Final Injury Report for Bulls-Trail Blazers, Will Coby White, Jrue Holiday Play?**: [Link](https://athlonsports.com/nba/chicago-bulls/final-injury-report-for-bulls-trail-blazers-will-coby-white-jrue-holiday-play)
 - **Trail Blazers' Shaedon Sharpe: Doubtful for Wednesday**: [Link](https://www.cbssports.com/fantasy/basketball/news/trail-blazers-shaedon-sharpe-doubtful-for-wednesday/)
 - **NBA Best Bets: Bulls at Trail Blazers Prop Bets for Wednesday 11/19/25**: [Link](https://dknetwork.draftkings.com/2025/11/19/nba-best-bets-bulls-at-trail-blazers-prop-bets-for-wednesday-11-19-25/)
-
-
-### 20 de noviembre (N/A, 20/11/2025 03:34 Lima)
-
-- **BIST 100 gana terreno durante la apertura de la jornada de este 20 de noviembre**: [Link](https://www.infobae.com/noticias/2025/11/20/bist-100-gana-terreno-durante-la-apertura-de-la-jornada-de-este-20-de-noviembre/)
-- **Las bolsas de valores de Turquía cerraron con subidas; el BIST 100 ganó un 1.63%**: [Link](https://mx.investing.com/news/stock-market-news/las-bolsas-de-valores-de-turquia-cerraron-con-subidas-el-bist-100-gano-un-163-3382425)
-- **Caída del BIST 100 presiona a las bolsas de valores de Turquía**: [Link](https://mercadoemergente.com/caida-del-bist-100-presiona-a-las-bolsas-de-valores-de-turquia/14380)
-
-
-### miss universo 2025 fecha y hora (N/A, 20/11/2025 03:34 Lima)
-
-- **Preliminar del Miss Universo 2025: cuándo y a qué hora ver la previa al certamen de belleza desde Perú**: [Link](https://www.infobae.com/peru/2025/11/18/preliminar-del-miss-universo-2025-cuando-y-a-que-hora-es-la-previa-al-certamen-de-belleza/)
-- **¿Qué canal transmite la final del Miss Universo 2025 este jueves 20 de noviembre en México, USA y resto de Latinoamérica?**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/que-canal-transmite-final-del-miss-universo-2025-en-vivo-hoy-en-mexico-usa-y-resto-de-paises-en-latinoamerica-canales-de-tv-abierta-y-streaming-online-nnda-nnrt-noticia/)
-- **A qué hora es la ceremonia de elección y coronación de Miss Universo 2025 este jueves 20 de noviembre y dónde verla en vivo**: [Link](https://www.clarin.com/internacional/hora-empieza-miss-universo-jueves-20-noviembre-ver-vivo_0_AnFIFDPGjo.html)
-
-
-### trail blazers - bulls (N/A, 20/11/2025 03:34 Lima)
-
-- **Portland Trail Blazers “no-YES-no” Their Way To Defeat**: [Link](https://www.blazersedge.com/gameday-coverage/105562/portland-trail-blazers-no-yes-no-their-way-to-defeat-chicago-bulls)
-- **Giddey's Bulls get out of jail with buzzer-beating win**: [Link](https://aapnews.aap.com.au/news/giddey-s-bulls-get-out-of-jail-with-buzzer-beating-win)
-- **NIKOLA VUCEVIC CALLED GAME IN PORTLAND 🤯 #nba #gamewinner #buzzerbeater #highlights #chicagobulls**: [Link](https://bvmsports.com/2025/11/20/nikola-vucevic-called-game-in-portland-%F0%9F%A4%AF-nba-gamewinner-buzzerbeater-highlights-chicagobulls/)
-
-
-### junior vs (N/A, 20/11/2025 03:34 Lima)
-
-- **Arias y el por qué no jugó Teo vs DIM: "No iba a poder defender"**: [Link](https://www.espn.com.pe/futbol/colombia/nota/_/id/15981012/arias-y-el-por-que-no-jugo-teo-vs-dim-no-iba-a-poder-defender)
-
-
-### liga brasileña (N/A, 19/11/2025 23:28 Lima)
-
-- **Neymar: gol, pifia y pesadilla**: [Link](https://as.com/futbol/internacional/neymar-gol-pifia-y-pesadilla-f202511-n/)
-- **¡Santos no se rinde! El Peixe empató con Mirassol gracias a un gol de Neymar y se mantiene fuera de la zona del descenso**: [Link](https://tribuna.com/es/blogs/santos-no-se-rinde-el-peixe-empato-con-mirassol-gracias-a-un/)
-- **[VIDEO] Neymar anotó un golazo para Santos ante Mirassol en el Brasileirao**: [Link](https://cooperativa.cl/noticias/deportes/futbol/liga-brasilena/video-neymar-anoto-un-golazo-para-santos-ante-mirassol-en-el-brasileirao/2025-11-19/214510.html)
-
-
-### junior - medellín (N/A, 19/11/2025 20:54 Lima)
-
-- **Liga BetPlay: Junior y Medellín abren el "grupo más parejo" en Cuadrangulares**: [Link](https://www.espn.com.ar/futbol/colombia/nota/_/id/15978524/liga-betplay-junior-vs-medellin-abren-el-grupo-mas-parejo-en-cuadrangulares)
-- **Transmisión EN VIVO del Junior vs Medellín hoy: cómo mirar el partido por TV o streaming**: [Link](https://www.365scores.com/es/news/transmision-en-vivo-junior-vs-medellin/)
-- **La hinchada deberá responder en la tribuna y los jugadores en la cancha: ¡Junior, juntos por la 11!**: [Link](https://impactonews.co/la-hinchada-debera-responder-en-la-tribuna-y-los-jugadores-en-la-cancha-junior-juntos-por-la-11/)
-
-
-### santos vs (N/A, 19/11/2025 20:54 Lima)
-
-- **Why is santos fc trending?**: [Link](https://www.latestly.com/google-trends/20112025/santos-fc/)
-- **📋 Santos and Mirassol line-ups confirmed for crucial clash at Vila**: [Link](https://onefootball.com/fr/news/santos-and-mirassol-line-ups-confirmed-for-crucial-clash-at-vila-41975064)
-- **Santos vs Mirassol Preview, prediction, lineups, betting tips & odds | Campeonato Brasileiro Série A 2025**: [Link](https://khelnow.com/football/world-football-santos-vs-mirassol-preview-202511)
-
-
-### heat - warriors (N/A, 19/11/2025 20:54 Lima)
-
-- **Stephen Curry (ankle) to miss tonight's game vs. Heat**: [Link](https://www.nba.com/news/stephen-curry-to-miss-game-vs-heat)
-- **Bet365 Bonus Code 'COVERS': Bet $5, Get $150, Win or Lose For Warriors vs Heat**: [Link](https://www.covers.com/daily-promos/bet365-bonus-code-nba-warriors-heat-11-19-2025)
-- **Jimmy Butler Injury: Questionable for Wednesday**: [Link](https://www.rotowire.com/basketball/headlines/jimmy-butler-injury-questionable-for-wednesday-504543)
-
-
-### gremio vs (N/A, 19/11/2025 20:54 Lima)
-
-- **Pronóstico Gremio - Vasco da Gama. Brasileirao Serie A | 20/11/2025**: [Link](https://gainblers.com/pe/pronosticos/futbol/brasil/brasileirao-serie-a/pronostico-gremio-vasco-da-gama-20-11-2025/)
-- **Mano Menezes tomó una decisión radical sobre Erick Noriega mientras está en la Selección Peruana**: [Link](https://bolavip.com/pe/peruanos-en-el-exterior/mano-menezes-tomo-una-decision-radical-sobre-erick-noriega-mientras-esta-en-la-seleccion-peruana)
-- **Gremio vs Vasco da Gama: Erick Noriega recibe dura noticia desde Brasil**: [Link](https://www.futbolperuano.com/peruanos-en-el-exterior/noticias/gremio-vs-vasco-da-gama-erick-noriega-recibe-dura-noticia-desde-brasil-551977)
-
-
-### fluminense vs (N/A, 19/11/2025 20:54 Lima)
-
-- **Fluminense anuncia plantilla para el derbi, regresan los principales jugadores**: [Link](https://www.elpueblo.pe/deportes/fluminense-anuncia-plantilla-para-el-derbi-regresan-los-principales-jugadores/128088/)
-- **Pronóstico Fluminense - Flamengo. Brasileirao Serie A | 20/11/2025**: [Link](https://gainblers.com/pe/pronosticos/futbol/brasil/brasileirao-serie-a/pronostico-fluminense-flamengo-20-11-2025/)
-- **Fluminense vs Flamengo: ¡Juega en el Brasileirao y gana S/. 30,000 en premios gracias a Meridianbet!**: [Link](https://ovacion.pe/noticias/nota-promocional/fluminense-vs-flamengo-juega-brasileirao-gana-s-30000-premios-gracias)
 
 
