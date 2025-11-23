@@ -1,3 +1,38 @@
+### elige tu local de votacion (N/A, 23/11/2025 03:30 Lima)
+
+- **Desde mañana podrás elegir tu local de votación para las Elecciones 2026: ¿cuáles son los requisitos?**: [Link](https://www.infobae.com/peru/2025/11/22/desde-manana-podras-elegir-tu-local-de-votacion-para-las-elecciones-2026-cuales-son-los-requisitos/)
+- **Elige tu local de votación: pasos para escoger un centro cercano a tu domicilio**: [Link](https://peru21.pe/peru/elige-tu-local-de-votacion-pasos-para-escoger-un-centro-cercano-tu-domicilio/)
+- **ONPE habilitará link para elegir tu local de votación rumbo a las elecciones generales 2026: revisa aquí los pasos a seguir**: [Link](https://larepublica.pe/politica/2025/11/20/onpe-habilitara-link-para-elegir-tu-local-de-votacion-rumbo-a-las-elecciones-generales-2026-revisa-aqui-los-pasos-a-seguir-hnews-822980)
+
+
+### jnj delia espinoza (N/A, 23/11/2025 03:30 Lima)
+
+- **El caso Espinoza llega al Tribunal Constitucional**: [Link](https://lpderecho.pe/caso-espinoza-tribunal-constitucional/)
+- **JNJ metió de contrabando el caso de Delia Espinoza en su demanda competencial contra el PJ**: [Link](https://www.infobae.com/peru/2025/11/22/jnj-metio-de-contrabando-el-caso-de-delia-espinoza-en-su-demanda-competencial-contra-el-pj/)
+- **JNJ presenta denuncia penal contra juez Torres Tasso y exige su retiro del caso de Delia Espinoza**: [Link](https://canaln.pe/actualidad/caso-delia-espinoza-jnj-denuncia-penalmente-juez-torres-tasso-y-pide-que-se-abstenga-n488463)
+
+
+### mavericks - grizzlies (N/A, 23/11/2025 03:30 Lima)
+
+- **Grizzlies do tough works on boards and eke out 102-96 win over Mavs**: [Link](https://www.nba.com/mavs/news/grizzlies-do-tough-works-on-boards-and-eke-out-102-96-win-over-mavs)
+- **The Dallas Mavericks Need Change After Another EMBARRASSING Loss to Memphis | Klay Thompson Trade?**: [Link](https://www.abc10.com/video/sports/locked-on/lo-dallas/mavericks-show/the-dallas-mavericks-need-change-after-another-embarrassing-loss-to-memphis-klay-thompson-trade/535-73368fef-426c-41c8-8ce3-9bf4744b3251)
+- **Cooper Flagg has 12 points, 7 rebounds in Mavs’ loss to Grizzlies**: [Link](https://www.pressherald.com/2025/11/22/cooper-flagg-has-12-points-7-rebounds-in-mavs-loss-to-grizzlies/)
+
+
+### f1 las vegas (N/A, 23/11/2025 03:30 Lima)
+
+- **Norris takes Las Vegas GP pole in wet Qualifying**: [Link](https://www.formula1.com/en/latest/article/norris-takes-las-vegas-gp-pole-from-verstappen-and-sainz-in-thrilling-rain.4iIHVx7pibOgnH93J6CUQZ)
+- **McLaren reveal 'special focus' as 'tight and uncertain' test awaits**: [Link](https://racingnews365.com/mclaren-reveal-special-focus-to-fix-las-vegas-concern)
+- **grandprix.com**: [Link](https://www.grandprix.com/races/las-vegas-gp-2025-friday-team-quotes.html)
+
+
+### arsenal vs tottenham (N/A, 23/11/2025 03:30 Lima)
+
+- **Opinion: Beating Tottenham is not optional for Arsenal this time**: [Link](https://www.justarsenal.com/opinion-beating-tottenham-is-not-optional-for-arsenal-this-time/404478)
+- **How Thomas Frank can be Tottenham's secret weapon in north London derby against Arsenal**: [Link](https://www.inkl.com/news/how-thomas-frank-can-be-tottenham-s-secret-weapon-in-north-london-derby-against-arsenal)
+- **Preview: The first North London Derby of the season**: [Link](https://www.fotmob.com/topnews/24059-preview-first-north-london-derby-season?utm_source=fotmob)
+
+
 ### f1 (N/A, 22/11/2025 23:36 Lima)
 
 - **Beyoncé turns heads in form-fitting racing gear while arriving at F1 Grand Prix with Jay-Z**: [Link](https://pagesix.com/2025/11/22/celebrity-news/beyonce-arrives-at-f1-in-form-fitting-racing-gear/)
@@ -993,40 +1028,5 @@ Sin noticias relacionadas disponibles.
 - **Sporting Cristal vs. Atlético Grau EN VIVO: minuto a minuto vía Liga 1 MAX por internet gratis**: [Link](https://depor.com/futbol-peruano/descentralizado/ver-sporting-cristal-vs-atletico-grau-en-vivo-gratis-minuto-a-minuto-liga-1-max-en-directo-hoy-futbol-libre-tv-gratis-directv-online-canales-y-transmision-torneo-clausura-2025-noticia/)
 - **¡Vuelve la Liga 1! Sporting Cristal visita a Grau por la última fecha del Clausura**: [Link](https://peru21.pe/deportes/sporting-cristal-vs-grau-en-vivo-online-liga-1-l1-max-goles-resultado-resumen/)
 - **Sporting Cristal vs Atlético Grau EN VIVO: ¿a qué hora empieza el partido por el Torneo Clausura de la Liga?**: [Link](https://larepublica.pe/futbol-peruano/2025/11/18/sporting-cristal-vs-atletico-grau-en-vivo-hoy-por-el-torneo-clausura-de-liga-1-2025-via-l1-max-online-286236)
-
-
-### arsenal - real madrid c. f. femenino (N/A, 19/11/2025 15:24 Lima)
-
-- **Arsenal - Real Madrid en directo | Champions Femenina hoy en vivo**: [Link](https://www.marca.com/futbol/champions-league-femenina/arsenal-r-madrid/2025/11/19/01_0183_20251119_6272_16928-directo.html)
-- **Reencuentro en Meadow Park con el reto de sanar heridas**: [Link](https://vivirediciones.es/destacado/reencuentro-en-meadow-park-con-el-reto-de-sanar-heridas/)
-- **La cuarta jornada de Champions, clave para los clubes de Liga F Moeve**: [Link](https://ligaf.es/noticia/la-cuarta-jornada-de-champions-clave-para-los-clubes-de-liga-f-moeve)
-
-
-### juventus femenino vs (N/A, 19/11/2025 15:24 Lima)
-
-- **¡En vivo! El OL Lyonnes de Tiane Endler quiere seguir con el invicto en su visita ante Juventus por la UWCL**: [Link](https://www.espn.com.ar/futbol/champions-league/nota/_/id/15978648/juventus-vs-ol-lyonnes-fecha-4-womens-champions-league-2025-26-equipo-fecha-hora-y-tv-en-vivo)
-- **▶️ Juventus SpA contra Olympique Lyonnais Femenino Ver en directo, Consejo » Como ver el partido️ - 19 nov.**: [Link](https://footballpredictions.net/es/predicciones-juventus-women-v-ol-lyonnes-datos-apuestas)
-- **Con Endler titular: Lyon remontó goleada de Juventus y mantuvo su invicto en Champions League Femenina**: [Link](https://www.biobiochile.cl/noticias/deportes/futbol-internacional/notas-futbol-internacional/2025/11/19/champions-league-femenina-lyon-de-endler-empato-en-visita-a-juventus.shtml)
-
-
-### epstein (N/A, 19/11/2025 15:24 Lima)
-
-- **Trump Has the Power to Release the Epstein Files. Why Doesn’t He?**: [Link](https://www.nytimes.com/2025/11/17/us/politics/trump-epstein-files-congress.html)
-- **Congress sends bill forcing release of Epstein files to Trump’s desk**: [Link](https://www.cnn.com/politics/live-news/trump-presidency-epstein-files-release-11-19-25)
-- **Epstein files: Congress votes to send bill to Trump**: [Link](https://www.bbc.com/news/articles/cdxr1r34ev9o)
-
-
-### juan pablo varillas (N/A, 19/11/2025 15:24 Lima)
-
-- **Juan Pablo Varillas y Gonzalo Bueno debutan con triunfo en el Challenger de Guayaquil**: [Link](https://rpp.pe/tenis/mas-tenis/juan-pablo-varillas-y-gonzalo-bueno-debutan-con-triunfo-en-el-challenger-de-guayaquil-noticia-1664344)
-- **Varillas avanza con firmeza: derrota a Dellien y alcanza cuartos en Guayaquil**: [Link](https://diarioviral.pe/deportes/varillas-avanza-con-firmeza-derrota-a-dellien-y-alcanza-cuartos-en-guayaquil-49008)
-- **Gonzalo Bueno venció a uruguayo Aguilar y avanzó en el Guayaquil Challenger**: [Link](https://ovacion.pe/noticias/tenis/gonzalo-bueno-vencio-uruguayo-aguilar-avanzo-guayaquil-challenger)
-
-
-### twitch (N/A, 19/11/2025 15:24 Lima)
-
-- **Twitch’s Growing Footprint Among Americans Signals Its Potential Beyond Gaming**: [Link](https://civicscience.com/twitchs-growing-footprint-among-americans-signals-its-potential-beyond-gaming/)
-- **Twitch x Pot Noodle: Slurp & Conquer Quest**: [Link](https://www.thedrum.com/awards-case-study/how-pot-noodle-revolutionized-gaming-culture-with-immersive-twitch-campaigns)
-- **Twitch x COD 6: Rogue Shadow Ops**: [Link](https://www.thedrum.com/awards-case-study/how-call-of-duty-s-rogue-shadow-ops-campaign-redefined-interactive-gaming)
 
 
