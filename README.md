@@ -1,3 +1,71 @@
+### juarez vs (N/A, 23/11/2025 21:04 Lima)
+
+- **FC Juárez y su deuda pendiente en fases finales**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/15992724/fc-juarez-bravos-historial-resultados-fase-final-repechaje-liga-mx)
+- **Partidos hoy domingo 23 de noviembre: se juega el último Play-In hacia la Liguilla**: [Link](https://www.tudn.com/futbol/liga-mx/partidos-hoy-domingo-23-de-noviembre-se-juega-ultimo-play-in-hacia-liguilla-apertura-2025)
+- **Qué canal pasa Juárez vs Pachuca hoy: dónde ver GRATIS y EN VIVO el partido de la Liga MX**: [Link](https://www.365scores.com/es/news/juarez-vs-pachuca-donde-ver-gratis-vivo/)
+
+
+### philadelphia vs (N/A, 23/11/2025 21:04 Lima)
+
+- **Cowboys claw back from 14-point deficit to down Eagles**: [Link](https://www.reuters.com/sports/cowboys-claw-back-14-point-deficit-down-eagles--flm-2025-11-24/)
+- **Should Tom Brady become a lip-reader?! 😂**: [Link](https://www.foxsports.com/watch-vertical/fmc-9cnbml5xep2xn6n8)
+- **Jalen Hurts makes NFL history with 7th rushing touchdown of the season**: [Link](https://sports.yahoo.com/article/jalen-hurts-makes-nfl-history-221901640.html)
+
+
+### jazz - lakers (N/A, 23/11/2025 21:04 Lima)
+
+- **How to Watch Lakers vs Jazz: Live Stream NBA, TV Channel**: [Link](https://www.newsweek.com/how-to-watch-lakers-vs-jazz-live-stream-nba-tv-channel-11094603)
+- **Dave McMenamin: Lakers’ injury report for Sunday: …**: [Link](https://www.hoopshype.com/story/sports/nba/rumors/2025/11/22/dave-mcmenamin-lakers-injury-report-for-sunday/87426840007/)
+- **Preview: Utah Jazz Host Los Angeles Lakers**: [Link](https://utahjazz.com/news/preview-utah-jazz-host-los-angeles-lakers)
+
+
+### regatas vs san martin (N/A, 23/11/2025 21:04 Lima)
+
+- **Universitario vs Kazoku No Perú 3-0: resumen del triunfo ‘crema’ por la fecha 5 de la Liga Peruana de Vóley 2025/2026**: [Link](https://www.infobae.com/peru/deportes/2025/11/23/universitario-vs-kazoku-no-peru-en-vivo-hoy-latina-fecha-5-primera-fase-liga-peruana-de-voley-2025-2026-resumen-resultado/)
+- **¿Dónde ver San Martín vs Regatas EN VIVO por la Liga Peruana de Vóley?**: [Link](https://elcomercio.pe/deporte-total/voley/regatas-vs-san-martin-en-vivo-hora-canal-tv-y-donde-ver-la-liga-peruana-de-voley-latina-tv-video-resumen-sets-y-puntos-tdpe-noticia/)
+- **Programación de la fecha 6 de la Liga Peruana de Vóley 2025-2026: días y horarios de todos los partidos**: [Link](https://rpp.pe/voley/mas-voley/liga-peruana-de-voley-2025-2026-programacion-de-la-fecha-6-fixture-fecha-y-horario-de-los-partidos-alianza-lima-universitario-san-martin-regatas-lpv-noticia-1665032)
+
+
+### américa - junior (N/A, 23/11/2025 21:04 Lima)
+
+- **Transmisión EN VIVO del América de Cali vs Junior hoy: cómo mirar el partido por TV o streaming**: [Link](https://www.365scores.com/es/news/transmision-america-de-cali-vs-junior/)
+- **Pronóstico América de Cali CD Junior FC - Liga BetPlay 23/11/25**: [Link](https://www.sportytrader.com/es/pronosticos/america-de-cali-club-atletico-junior-306980/)
+- **América de Cali anuncia los convocados para su partido con el Junior y buscar su paso a la final**: [Link](https://www.elpais.com.co/deportes/america-de-cali/america-de-cali-anuncia-los-convocados-para-su-partido-con-el-junior-y-buscar-su-paso-a-la-final-2320.html)
+
+
+### paro 24 de noviembre (N/A, 23/11/2025 21:04 Lima)
+
+Sin noticias relacionadas disponibles.
+
+
+### aixa vigil (N/A, 23/11/2025 21:04 Lima)
+
+- **Aixa Vigil: “Toda la vida he sido hincha de la ‘U’, ahora nada me compromete a decirlo; Alianza es un capítulo en mi vida que ya cerré”**: [Link](https://elcomercio.pe/deporte-total/voley/aixa-vigil-toda-la-vida-he-sido-hincha-de-la-u-ahora-nada-me-compromete-a-decirlo-alianza-es-un-capitulo-en-mi-vida-que-ya-cerre-liga-peruana-de-voley-noticia/)
+- **Aixa Vigil se confiesa: "Toda mi vida he sido hincha de Universitario"**: [Link](https://rpp.pe/voley/mas-voley/aixa-vigil-confiesa-que-es-hincha-de-universitario-liga-peruana-de-voley-alianza-lima-san-martin-noticia-1665005)
+- **Campeonó dos veces con Alianza Lima y ahora reveló su amor por Universitario: "Soy hincha"**: [Link](https://libero.pe/deportes/voley/2025/11/23/aixa-vigil-campeono-dos-veces-alianza-lima-ahora-revelo-su-amor-universitario-soy-hincha-1254397)
+
+
+### boca juniors - talleres (N/A, 23/11/2025 21:04 Lima)
+
+- **Boca Juniors le gana al Talleres de Carlos Tevez en la Bombonera por los octavos del Torneo Clausura**: [Link](https://www.infobae.com/deportes/2025/11/23/boca-juniors-recibe-al-talleres-de-carlos-tevez-en-la-bombonera-por-los-octavos-del-torneo-clausura-hora-tv-y-probables-formaciones/)
+- **Desde el vestuario: arrancó el segundo tiempo y Merentiel puso el 2-0 para Boca vs. Talleres**: [Link](https://espndeportes.espn.com/futbol/argentina/nota/_/id/15997981/video-boca-vs-talleres-cordoba-gol-de-merentiel-la-bestia)
+- **Boca vs. Talleres, hoy EN VIVO por el Torneo Clausura: ¡gol del Xeneize!**: [Link](https://www.ole.com.ar/futbol-primera/boca-vs-talleres-partidos-octavos-final-torneo-clausura-2025_0_JhnCo9QAVe.html)
+
+
+### cruzeiro - corinthians (N/A, 23/11/2025 21:04 Lima)
+
+- **Cruzeiro na Libertadores: veja datas do sorteio, do início da fase de grupos e classificados**: [Link](https://www.centraldatoca.com.br/campeonatos/brasileiro/2025/11/23/cruzeiro-na-libertadores-veja-datas-do-sorteio-do-inicio-da-fase-de-grupos-e-classificados/)
+- **Por que Memphis Depay, Hugo Souza e outros são desfalques do Corinthians contra o Cruzeiro**: [Link](https://www.goal.com/br/listas/por-que-memphis-depay-hugo-souza-desfalques-corinthians-contra-cruzeiro/blt1420b45d5227ea7e)
+- **Comentário de Everton Cesar em 'Jogo do Corinthians ao vivo'**: [Link](https://www.meutimao.com.br/comentario/16326604/o_corinthians_nao_perdeu_do_cruzeiro_o)
+
+
+### independiente del valle - orense (N/A, 23/11/2025 21:04 Lima)
+
+- **Independiente del Valle quiere dar otro paso al título ante Orense por la Liga Ecuabet**: [Link](https://espndeportes.espn.com/futbol/ecuador/nota/_/id/15983713/independiente-del-valle-vs-orense-por-liga-ecuabet-equipo-fecha-y-hora)
+- **Así marcha la tabla de posiciones del hexagonal del título de la Liga Ecuabet en el cierre de la fecha 6**: [Link](https://www.eluniverso.com/deportes/campeonato-ecuatoriano/asi-marcha-la-tabla-de-posiciones-del-hexagonal-del-titulo-de-la-liga-ecuabet-en-el-cierre-de-la-fecha-6-nota/)
+- **DIVISIÓN DE HONORES: IDV y Orense igualaron (0-0)**: [Link](https://kchcomunicacion.com/2025/11/23/division-de-honores-idv-y-orense-igualaron-0-0/)
+
+
 ### tottenham (N/A, 23/11/2025 11:28 Lima)
 
 - **Arsenal vs. Tottenham en vivo: horario, canal TV y cómo ver por Premier League**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/arsenal-vs-tottenham-en-vivo-online-gratis-por-premier-league-via-espn-disney-plus-caliente-tv-movistar-futbol-libre-tv-a-que-hora-juegan-canal-que-transmite-y-donde-ver-partido-de-hoy-video-noticia/)
@@ -958,75 +1026,5 @@ Sin noticias relacionadas disponibles.
 - **Temblor en Perú HOY, 20 de noviembre: ¿a qué hora y dónde ocurrió el último sismo vía IGP?**: [Link](https://larepublica.pe/sociedad/2025/11/20/temblor-en-peru-hoy-jueves-20-de-noviembre-del-2025-magnitud-epicentro-y-mas-sobre-sismos-recientes-segun-igp-ultimo-sismo-en-lima-ica-callao-y-otras-provincias-atmp-1354605)
 - **Un sismo de magnitud 4.3 remeció la región Tacna esta madrugada**: [Link](https://rpp.pe/peru/tacna/un-sismo-de-magnitud-43-remecio-la-region-tacna-esta-tacna-sismo-de-magnitud-43-remecio-la-region-esta-madrugada-noticia-1663897)
 - **Sismo de magnitud 3.8 remeció Talara esta mañana 17 de noviembre**: [Link](https://lahora.pe/local/sismo-de-magnitud-3-8-remecio-talara-esta-manana-17-de-noviembre/)
-
-
-### surinam vs (N/A, 20/11/2025 11:32 Lima)
-
-- **¿Por qué Surinam, rival de Bolivia en repechaje, no juega en Conmebol si está en Sudamérica?**: [Link](https://larepublica.pe/deportes/2025/11/20/el-pais-de-sudamerica-que-no-habla-espanol-quiere-dejar-a-bolivia-sin-mundial-2026-por-que-surinam-no-juega-las-eliminatorias-en-conmebol-711100)
-- **Guillermo Viscarra: Bolivia ya conoce a su rival en el repechaje internacional para el Mundial 2026**: [Link](https://www.futbolperuano.com/futbol-internacional/noticias/bolivia-ya-conoce-a-su-rival-en-el-repechaje-internacional-para-el-mundial-2026-552077)
-- **Bolivia: así quedaron conformadas las llaves del Repechaje que definirá a los últimos clasificados al Mundial 2026**: [Link](https://willax.pe/deportes/bolivia-repechaje-cupos-mundial-2026-willax)
-
-
-### surinam (N/A, 20/11/2025 11:32 Lima)
-
-- **Mundial 2026: así quedaron los bombos para el sorteo del 5 de diciembre, según el ranking FIFA**: [Link](https://cnnespanol.cnn.com/2025/11/19/deportes/mundial-2026-bombos-sorteo-repechaje-orix)
-- **FIFA sorteó los partidos de los Repechajes que definirán a los últimos 6 clasificados al Mundial 2026**: [Link](https://www.infobae.com/deportes/2025/11/20/se-sortearon-los-repechajes-que-definiran-las-6-selecciones-que-restan-clasificar-al-mundial/)
-- **Surinam, rival de Bolivia en el repechaje hacia el Mundial**: [Link](https://as.com/futbol/internacional/surinam-rival-de-bolivia-en-el-repechaje-hacia-el-mundial-f202511-n/)
-
-
-### que se celebra hoy 20 de noviembre (N/A, 20/11/2025 11:32 Lima)
-
-- **¿Cuándo se paga el Bono de Fin de Año 2025 a los trabajadores del sector público en Venezuela?**: [Link](https://elcomercio.pe/respuestas/venezuela/cuando-se-paga-el-bono-fin-de-ano-2025-a-los-trabajadores-del-sector-publico-en-venezuela-tdpe-noticia/)
-- **Pagos MPPE últimas noticias de HOY, 20 de noviembre: bonos con aumento para docentes y pagos confirmados del Ministerio de Educación**: [Link](https://larepublica.pe/datos-lr/venezuela/2025/11/20/pagos-mppe-ultimas-noticias-de-hoy-20-de-noviembre-bonos-con-aumento-para-docentes-y-pagos-confirmados-del-ministerio-de-educacion-lrtm-963920)
-- **Sistema Patria confirma pago doble para noviembre 2025 — quiénes lo reciben y cuánto pagan**: [Link](https://lineadetres.com/sistema-patria-confirma-pago-doble-para-noviembre-2025/)
-
-
-### reinaldo rueda (N/A, 20/11/2025 11:32 Lima)
-
-- **El Mundial 2026 será atípico: por ahora sin técnicos colombianos**: [Link](https://www.espn.com.ar/futbol/mundial/nota/_/id/15978814/mundial-2026-sera-atipico-por-ahora-sin-tecnicos-colombianos)
-- **¡Se quebró! Reinaldo Rueda, entrenador de Honduras, rompió en llanto tras no clasificar el Mundial 2026**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/reinaldo-rueda-entrenador-de-honduras-rompe-en-llanto-tras-no-clasificar-el-mundial-2026-eliminatorias-concacaf-noticia/)
-- **¿Cómo un gol de Surinam a Guatemala eliminó a Honduras?**: [Link](https://espndeportes.espn.com/futbol/selecciones/nota/_/id/15977108/mundial-2026-surinam-gol-guatemala-eliminacion-honduras)
-
-
-### la tinka (N/A, 20/11/2025 07:51 Lima)
-
-- **Sorteo La Tinka miércoles 19 de noviembre: revisa los resultados y comprueba tu jugada ganadora**: [Link](https://www.infobae.com/peru/2025/11/20/ganadores-de-la-tinka-este-miercoles-19-de-noviembre-de-2025/)
-- **Kenia reubica jirafas ante la pérdida de su hábitat | nnav | video | agafp | VIDEOS**: [Link](https://elcomercio.pe/videos/global/kenia-reubica-jirafas-ante-la-perdida-de-su-habitat-nnav-video-agafp-noticia/)
-- **Resultados de La Tinka del miércoles 19 de noviembre: números ganadores del Pozo Millonario**: [Link](https://depor.com/peru/la-tinka-en-vivo-hoy-miercoles-19-de-noviembre-2025-ver-resultados-numeros-ganadores-del-ultimo-sorteo-quien-gano-pozo-millonario-intralot-boliyapa-loterias-de-peru-noticia/)
-
-
-### bn (N/A, 20/11/2025 07:51 Lima)
-
-- **NVIDIA Announces Financial Results for Third Quarter Fiscal 2026**: [Link](https://nvidianews.nvidia.com/news/nvidia-announces-financial-results-for-third-quarter-fiscal-2026)
-- **How to trade Nvidia earnings: What historic performance signals**: [Link](https://finance.yahoo.com/video/trade-nvidia-earnings-historic-performance-120011800.html)
-- **Nvidia sent a strong signal on AI infrastructure — but is it a bubble barometer?**: [Link](https://www.cnbc.com/2025/11/20/nvidia-sent-a-strong-signal-on-ai-infrastructure-but-is-it-a-bubble-barometer-.html)
-
-
-### amazon (N/A, 20/11/2025 07:51 Lima)
-
-- **Black Friday fashion deals for 2025 are up to 75% off Kate Spade, Hoka, Patagonia and more**: [Link](https://www.yahoo.com/lifestyle/style/clothing/article/black-friday-fashion-deals-for-2025-are-up-to-75-off-kate-spade-hoka-patagonia-and-more-160547946.html)
-- **Amazon Black Friday items at their lowest price of the year**: [Link](https://www.wcvb.com/article/amazon-black-friday-lowest-price-of-the-year-2025/69474843)
-- **Amazon’s Black Friday Sale Starts Today, and We’ve Already Found 35 Can’t-Miss Deals**: [Link](https://www.cnet.com/deals/best-black-friday-amazon-deals/)
-
-
-### mavericks - knicks (N/A, 20/11/2025 07:51 Lima)
-
-- **Knicks 113-111 Mavericks (20 Nov, 2025) Game Recap**: [Link](https://www.espn.in/nba/recap?gameId=401810117)
-- **D'Angelo Russell News: Fills stat sheet in loss**: [Link](https://www.rotowire.com/basketball/headlines/dangelo-russell-news-fills-stat-sheet-in-loss-504676)
-- **Fantastic Finish: Knicks win with defensive stand vs. Mavericks**: [Link](https://www.nba.com/watch/video/nyk-dal-ff)
-
-
-### cometa 3i atlas nasa (N/A, 20/11/2025 03:34 Lima)
-
-- **NASA revela imágenes inéditas del cometa interestelar 3I/ATLAS**: [Link](https://elperuano.pe/noticia/283389-nasa-revela-imagenes-ineditas-del-cometa-interestelar-3iatlas)
-- **Misterios de 3I/Atlas: ¿objeto interestelar o tecnología desconocida?**: [Link](https://www.tvperu.gob.pe/novedades/hora-contacto/misterios-de-3iatlas-objeto-interestelar-o-tecnologia-desconocida)
-- **El cometa interestelar 3I/ATLAS vuelve a ser visible y podrás verlo en vivo: así puedes seguir la transmisión**: [Link](https://elcomercio.pe/mag/respuestas/ciencias/ver-en-vivo-el-cometa-interestelar-3iatlas-asi-puedes-seguir-la-transmision-en-directo-nnda-nnrt-noticia/)
-
-
-### chicago bulls (N/A, 20/11/2025 03:34 Lima)
-
-- **Final Injury Report for Bulls-Trail Blazers, Will Coby White, Jrue Holiday Play?**: [Link](https://athlonsports.com/nba/chicago-bulls/final-injury-report-for-bulls-trail-blazers-will-coby-white-jrue-holiday-play)
-- **Trail Blazers' Shaedon Sharpe: Doubtful for Wednesday**: [Link](https://www.cbssports.com/fantasy/basketball/news/trail-blazers-shaedon-sharpe-doubtful-for-wednesday/)
-- **NBA Best Bets: Bulls at Trail Blazers Prop Bets for Wednesday 11/19/25**: [Link](https://dknetwork.draftkings.com/2025/11/19/nba-best-bets-bulls-at-trail-blazers-prop-bets-for-wednesday-11-19-25/)
 
 
