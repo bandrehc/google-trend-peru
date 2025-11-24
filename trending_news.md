@@ -1,3 +1,45 @@
+### sga (N/A, 24/11/2025 07:53 Lima)
+
+- **Game Recap: Thunder 122, Trail Blazers 95**: [Link](https://www.nba.com/watch/video/game-recap-thunder-122-trail-blazers-95)
+- **Oklahoma City overwhelms Trail Blazers to avenge only loss of season**: [Link](https://www.oregonlive.com/blazers/2025/11/oklahoma-city-overwhelms-trail-blazers-to-avenge-only-loss-of-season.html)
+- **Three Takeaways From OKC Thunder Beat Down Of Trail Blazers**: [Link](https://www.si.com/nba/thunder/onsi/news/three-takeaways-from-okc-thunder-beat-down-of-trail-blazers-01kasfy4kg0m)
+
+
+### champions league (N/A, 24/11/2025 07:53 Lima)
+
+- **Chelsea Predicted XI vs Barcelona as Estevao Willian faces up against Lamine Yamal**: [Link](https://www.thechelseachronicle.com/news/chelsea-predicted-xi-vs-barcelona-as-estevao-willian-faces-up-against-lamine-yamal/)
+- **Chelsea must prove they belong against Barcelona in the Champions League**: [Link](https://footballtoday.com/2025/11/24/chelsea-must-prove-they-belong-against-barcelona-in-the-champions-league/)
+- **Women's Champions League: Bayern Munich put PSG in trouble as Chelsea hold Barcelona**: [Link](https://www.tribalfootball.com/article/soccer-champions-league-women-women-s-champions-league-bayern-munich-put-psg-in-trouble-as-chelsea-hold-barcelona-f0c508c1-d54f-4037-ad87-2c22bec65626)
+
+
+### feriados diciembre 2025 (N/A, 24/11/2025 07:53 Lima)
+
+- **Feriado largo en diciembre 2025: cuatro días de descanso seguidos para cerrar el año en Perú**: [Link](https://www.infobae.com/peru/2025/11/23/feriado-largo-en-diciembre-2025-cuatro-dias-de-descanso-seguidos-para-cerrar-el-ano-en-peru/)
+- **Estos son los días de diciembre en donde no habrá clases por feriado largo en el Perú | tdpe | RESPUESTAS**: [Link](https://elcomercio.pe/respuestas/cuando/estos-son-los-dias-de-diciembre-en-donde-no-habra-clases-por-feriado-largo-en-el-peru-tdpe-noticia/)
+- **La buena noticia antes de Navidad para trabajadores del sector público y privado Perú respecto al próximo feriado largo**: [Link](https://larepublica.pe/economia/2025/11/17/la-buena-noticia-para-trabajadores-del-sector-publico-y-privado-peru-respecto-al-proximo-feriado-largo-de-2025-atmp-968303)
+
+
+### dua lipa (N/A, 24/11/2025 07:53 Lima)
+
+- **Dua Lipa aterriza en Lima y desata la euforia de sus fans peruanos con su llegada en jet privado**: [Link](https://www.infobae.com/peru/2025/11/23/dua-lipa-aterriza-en-lima-y-desata-la-euforia-de-sus-fans-peruanos-con-su-llegada-en-jet-privado/)
+- **Dua Lipa en Lima: la cantante británica llega a Perú antes de su esperado concierto en San Marcos**: [Link](https://rpp.pe/famosos/celebridades/dua-lipa-en-lima-la-cantante-britanica-llega-a-peru-antes-de-su-esperado-concierto-en-san-marcos-noticia-1665041)
+- **Dua Lipa ya está en Lima para su esperado concierto en el Estadio San Marcos**: [Link](https://elcomercio.pe/luces/musica/dua-lipa-ya-esta-en-lima-para-su-esperado-concierto-en-el-estadio-san-marcos-celebs-ultimas-noticia/)
+
+
+### dolar hoy peru (N/A, 24/11/2025 07:53 Lima)
+
+- **Precio del dólar HOY, domingo 23 de noviembre: cuál es la cotización del día**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-2025-cuanto-esta-el-dolar-este-domingo-23-de-noviembre-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
+- **Precio del dólar en subida: Así se cotiza el tipo de cambio hoy 23 de noviembre en Perú**: [Link](https://www.infobae.com/peru/2025/11/21/valor-de-apertura-del-dolar-en-peru-este-21-de-noviembre-de-usd-a-pen/)
+- **Precio del dólar Perú y tipo de cambio hoy 21 de noviembre del 2025**: [Link](https://rpp.pe/economia/economia/precio-del-dolar-peru-y-tipo-de-cambio-hoy-21-de-noviembre-del-2025-noticia-1664721)
+
+
+### inpe (N/A, 24/11/2025 07:53 Lima)
+
+- **Gobierno prepara la desaparición del INPE en medio de grave crisis penitenciaria**: [Link](https://caretas.pe/home_web/home_principal_secundario/gobierno-prepara-la-desaparicion-del-inpe-en-medio-de-grave-crisis-penitenciaria/)
+- **🔴🔵El presidente José Jerí anunció que el INPE desaparecerá como parte del proceso de restructuración que se busca impulsar con el pedido de facultades legislativas al Congreso.**: [Link](https://www.facebook.com/story.php?story_fbid=1284326893730366&id=100064592023543)
+- **Premier Álvarez : Jefe del INPE sería removido como parte de la reestructuración que realizará el Ejecutivo**: [Link](https://panamericana.pe/politica/459272-premier-alvarez-jefe-inpe-removido-parte-reestructuracion-ejecutara-ejecutivo)
+
+
 ### hbo max (N/A, 24/11/2025 03:35 Lima)
 
 - **‘El conjuro: últimos ritos’: cómo y dónde ver en streaming el escalofriante final de la saga de Ed y Lorraine Warren**: [Link](https://rpp.pe/tv/streaming/el-conjuro-ultimos-ritos-como-y-donde-ver-en-streaming-el-escalofriante-final-de-la-saga-de-ed-y-lorraine-warren-noticia-1665039)
@@ -988,45 +1030,5 @@ Sin noticias relacionadas disponibles.
 - **Pachuca vs. Pumas: por oportunidad de ir a Liguilla del Apertura 2025**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/15981033/pachuca-vs-pumas-play-in-apertura-2025-liga-mx)
 - **Pronóstico CF Pachuca Pumas UNAM - Liga MX 20/11/25**: [Link](https://www.sportytrader.com/es/pronosticos/cf-pachuca-pumas-unam-306262/)
 - **Transmisión EN VIVO del Pachuca vs Pumas hoy: cómo mirar el partido por TV o streaming**: [Link](https://www.365scores.com/es/news/transmision-en-vivo-del-pachuca-vs-pumas/)
-
-
-### los juegos del hambre (N/A, 20/11/2025 20:55 Lima)
-
-- **“Los juegos del hambre: Amanecer en la cosecha” presenta su revelador tráiler**: [Link](https://elcomercio.pe/luces/cine/los-juegos-del-hambre-amanecer-en-la-cosecha-presenta-su-revelador-trailer-celebs-ultimas-noticia/)
-- **El primer vistazo a “The Hunger Games: Sunrise on the Reaping” ya promete ser una locura**: [Link](https://cnnespanol.cnn.com/2025/11/20/entretenimiento/primer-vistazo-hunger-games-sunrise-on-the-reaping-trax)
-- **'Los juegos del hambre: Amanecer en la cosecha' presenta a Joseph Zada como el joven Haymitch en su primer teaser tráiler**: [Link](https://rpp.pe/cine/internacional/los-juegos-del-hambre-amanecer-en-la-cosecha-revelan-primer-teaser-trailer-video-con-joven-haymitch-y-fecha-de-estreno-noticia-1664642)
-
-
-### sports (N/A, 20/11/2025 20:55 Lima)
-
-- **Juegos Bolivarianos 2025: E-Sports abre la competencia con E-Football y Dota 2 en Lima**: [Link](https://andina.pe/agencia/noticia-juegos-bolivarianos-2025-esports-abre-competencia-efootball-y-dota-2-lima-1052730.aspx)
-- **XX Juegos Bolivarianos Ayacucho – Lima 2025: este viernes 21 arrancan competencias**: [Link](https://www.cronicaviva.com.pe/xx-juegos-bolivarianos-ayacucho-lima-2025-este-viernes-21-arrancan-competencias/)
-- **Los Juegos Bolivarianos inauguran su edición con la competencia de E-Sports en el Coliseo Dibós**: [Link](https://ovacion.pe/noticias/juegos-bolivarianos-lima-ayacucho-2025/juegos-bolivarianos-inauguran-su-edicion)
-
-
-### telemundo en vivo (N/A, 20/11/2025 20:55 Lima)
-
-- **Minuto a minuto: sigue aquí la cobertura en vivo de Miss Universo 2025**: [Link](https://www.telemundowashingtondc.com/especiales/miss-universo/miss-universo-2025-tailandia-live-updates-ultima-hora/2355101/)
-- **Miss Universo 2025: Todas las candidatas del certamen y las favoritas para llevarse la codiciada corona**: [Link](https://www.infobae.com/entretenimiento/2025/11/20/miss-universo-2025-todas-las-candidatas-del-certamen-y-las-favoritas-para-llevarse-la-codiciada-corona/)
-- **🟡 Dónde mirar la Gran Final del Miss Universo 2025 EN VIVO EN DIRECTO por tv abierta y streaming**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/donde-ver-final-del-miss-universo-2025-en-vivo-en-directo-por-tv-abierta-y-streaming-horarios-y-canales-tv-online-en-usa-y-mexico-nnda-nnrt-noticia/)
-
-
-### chelsea vs barcelona (N/A, 20/11/2025 15:28 Lima)
-
-- **Chelsea vs Barcelona LIVE: UEFA Women's Champions League watch stream, listen, live text, stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cnvelv06n3dt)
-- **Thursday’s football tips: Spot-on Barca star Putellas 7/4 to hurt Chelsea Women**: [Link](https://mrfixitstips.co.uk/thursdays-football-tips-spot-on-barca-star-putellas-7-4-to-hurt-chelsea-women/)
-- **Kerr set to be fit for Matildas despite Chelsea omission**: [Link](https://www.abc.net.au/news/2025-11-20/matildas-captain-sam-kerr-left-out-by-chelsea/106030886)
-
-
-### chelsea - barcelona (N/A, 20/11/2025 15:28 Lima)
-
-- **Chelsea - Barcelona en directo**: [Link](https://www.marca.com/futbol/champions-league-femenina/chelsea-barcelona/2025/11/20/01_0183_20251120_6275_9121-directo.html)
-- **Chelsea - Barcelona, en directo: Champions League femenina hoy en vivo**: [Link](https://as.com/futbol/femenino/chelsea-barcelona-en-directo-champions-league-femenina-hoy-en-vivo-f202511-d/)
-- **Barcelona visita a Chelsea con el recuerdo de la histórica serie de hace 16 años**: [Link](https://www.espn.com.ar/futbol/champions-league/nota/_/id/15980023/barcelona-visita-a-chelsea-con-el-recuerdo-de-la-historica-serie-de-hace-16-anos)
-
-
-### twitch (N/A, 20/11/2025 15:28 Lima)
-
-- **Twitch’s Growing Footprint Among Americans Signals Its Potential Beyond Gaming**: [Link](https://civicscience.com/twitchs-growing-footprint-among-americans-signals-its-potential-beyond-gaming/)
 
 
