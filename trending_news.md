@@ -1,3 +1,17 @@
+### sorteo de la tinka hoy (N/A, 24/11/2025 11:28 Lima)
+
+- **La Tinka: conoce a los afortunados ganadores del sorteo del 23 de noviembre**: [Link](https://elcomercio.pe/videos/entretenimiento/la-tinka-conoce-a-los-afortunados-ganadores-del-sorteo-del-23-de-noviembre-nnav-video-amtv-si-o-si-dinero-noticia/)
+- **Sorteo La Tinka domingo 23 de noviembre: revisa los resultados y comprueba tu jugada ganadora**: [Link](https://www.infobae.com/peru/2025/11/24/la-tinka-del-domingo-23-de-noviembre-de-2025-descubre-los-ganadores-del-ultimo-sorteo/)
+- **Resultados La Tinka de HOY, domingo 23 de noviembre: jugada ganadora del sorteo y números**: [Link](https://libero.pe/ocio/2025/11/23/resultados-tinka-de-hoy-domingo-23-de-noviembre-jugada-ganadora-del-sorteo-numeros-intralot-peru-256586)
+
+
+### kick (N/A, 24/11/2025 11:28 Lima)
+
+- **Cristiano Ronaldo scores overhead kick in Saudi Pro League for Al-Nassr**: [Link](https://www.bbc.com/sport/football/articles/c8659v4p4g4o)
+- **Cristiano Ronaldo’s Bicycle Kick for Al-Nassr Goes Viral: ‘He’s Not Human’**: [Link](https://sports.yahoo.com/article/cristiano-ronaldo-bicycle-kick-al-075108001.html)
+- **We’re delighted to announce that Cristiano Ronaldo has turned into Scott McTominay**: [Link](https://www.msn.com/en-xl/news/other/we-re-delighted-to-announce-that-cristiano-ronaldo-has-turned-into-scott-mctominay/ar-AA1R1YU4)
+
+
 ### sga (N/A, 24/11/2025 07:53 Lima)
 
 - **Game Recap: Thunder 122, Trail Blazers 95**: [Link](https://www.nba.com/watch/video/game-recap-thunder-122-trail-blazers-95)
@@ -1016,19 +1030,5 @@ Sin noticias relacionadas disponibles.
 - **At Morumbi: São Paulo v Internacional set for home ground**: [Link](https://onefootball.com/fr/news/at-morumbi-sao-paulo-v-internacional-set-for-home-ground-41973619)
 - **São Paulo to juggle 2026 Morumbi fixtures and concerts, director says**: [Link](https://onefootball.com/en/news/sao-paulo-to-juggle-2026-morumbi-fixtures-and-concerts-director-says-41941928)
 - **CBF confirms São Paulo’s last home game at Vila, club wants Morumbi**: [Link](https://onefootball.com/en/news/cbf-confirms-sao-paulos-last-home-game-at-vila-club-wants-morumbi-41970170)
-
-
-### ceara (N/A, 20/11/2025 20:55 Lima)
-
-- **Ceará x Inter ao vivo na Jornada Digital da Gaúcha; acompanhe**: [Link](https://gauchazh.clicrbs.com.br/esportes/inter/noticia/2025/11/ceara-x-inter-ao-vivo-pelo-brasileirao-acompanhe-na-jornada-digital-da-gaucha-cmi7xsbsr01o70138i7fmewkt.html)
-- **Ceará x Internacional no Brasileirão: onde assistir ao vivo, horário e escalação**: [Link](https://www.estadao.com.br/esportes/futebol/ceara-x-internacional-no-brasileirao-onde-assistir-ao-vivo-horario-e-escalacao-npres/)
-- **A noite da alta tensão no Castelão**: [Link](https://ge.globo.com/rs/blogs/vida-real/post/2025/11/20/a-noite-da-alta-tensao-no-castelao.ghtml)
-
-
-### pachuca - pumas (N/A, 20/11/2025 20:55 Lima)
-
-- **Pachuca vs. Pumas: por oportunidad de ir a Liguilla del Apertura 2025**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/15981033/pachuca-vs-pumas-play-in-apertura-2025-liga-mx)
-- **Pronóstico CF Pachuca Pumas UNAM - Liga MX 20/11/25**: [Link](https://www.sportytrader.com/es/pronosticos/cf-pachuca-pumas-unam-306262/)
-- **Transmisión EN VIVO del Pachuca vs Pumas hoy: cómo mirar el partido por TV o streaming**: [Link](https://www.365scores.com/es/news/transmision-en-vivo-del-pachuca-vs-pumas/)
 
 
