@@ -1,3 +1,73 @@
+### xiaomi (N/A, 24/11/2025 15:28 Lima)
+
+- **Este Xiaomi con cámaras 4K, 512GB, chip Snapdragon y cámara de 200MP solo cuesta $350**: [Link](https://libero.pe/tecnologia/2025/11/24/xiaomi-redmi-note-14-pro-plus-5g-512gb-caracteristicas-precio-peru-mexico-especificaciones-procesador-snapdragon-7s-gen-3-12gb-ram-512gb-memoria-triple-camara-108mp-4k-lanzamiento-2024-2137056)
+- **Una cámara de 108MP, 1TB de ROM y pantalla AMOLED de 120Hz: este Xiaomi es BARATO y es perfecto para ti**: [Link](https://libero.pe/tecnologia/2025/11/18/xiaomi-redmi-note-14-5g-caracteristicas-ficha-tecnica-precio-peru-mexico-espana-256gb-12gb-ram-triple-camara-108mp-bateria-5200-mah-lanzamiento-2024-1327086)
+- **Este Xiaomi GAMER tiene el chip Snapdragon más POTENTE del mundo y cuesta menos que un iPhone 17 Pro**: [Link](https://libero.pe/tecnologia/2025/11/23/poco-f7-ultra-precio-peru-mexico-espana-caracteristicas-procesador-snapdragon-8-elite-16gb-ram-256gb-512gb-memoria-triple-camara-50mp-4k-bateria-6500-mah-lanzamiento-2024-1426644)
+
+
+### deportivo riestra - barracas central (N/A, 24/11/2025 15:28 Lima)
+
+- **Riestra y Barracas Central se enfrentan por el pase a los cuartos de final del Torneo Clausura: hora, TV y formaciones**: [Link](https://www.infobae.com/deportes/2025/11/24/riestra-y-barracas-central-se-enfrentan-por-el-pase-a-los-cuartos-de-final-del-torneo-clausura-hora-tv-y-formaciones/)
+- **Racing vs. River, por octavos de final del Torneo Clausura 2025 de la Liga Profesional: hora, formaciones y...**: [Link](https://www.cronica.com.ar/depo/ligaprofesional/Racing-vs.-River-por-octavos-de-final-del-Torneo-Clausura-2025-de-la-Liga-Profesional-hora-formaciones-y-como-verlo-en-vivo-20251124-0007.html)
+- **Deportivo Riestra vs. Barracas Central, por los octavos de final del Torneo Claurusa 2025**: [Link](https://www.lanacion.com.ar/deportes/futbol/deportivo-riestra-vs-barracas-central-por-los-octavos-de-final-del-torneo-claurusa-2025-nid24112025/)
+
+
+### manchester united vs (N/A, 24/11/2025 15:28 Lima)
+
+- **Manchester United quiere volver al triunfo ante Everton**: [Link](https://www.espn.com.pe/futbol/nota/_/id/15983617/manchester-united-vs-everton-fecha-12-premier-league-equipo-fecha-hora-y-tv-en-vivo)
+- **Manchester United 0-0 Everton EN VIVO y GRATIS por la Premier League vía Disney+: minuto a minuto**: [Link](https://bolavip.com/pe/premier-league/manchester-united-vs-everton-en-vivo-y-gratis-por-la-premier-league-via-disney-minuto-a-minuto-goles-resumen)
+- **Predicciones del partido United vs Everton**: [Link](https://www.ucvradio.pe/mas-actualidad/predicciones-del-partido-united-vs-everton/58404/)
+
+
+### real sociedad b - valladolid (N/A, 24/11/2025 15:28 Lima)
+
+- **Apuestas y pronósticos Real Sociedad B vs Valladolid**: [Link](https://www.marca.com/apuestas-deportivas/predicciones/2025/11/23/apuestas-pronosticos-real-sociedad-b-vs-valladolid.html)
+- **Ansotegi: "Como Sanse, juntos, no hemos estado aún, es una semana diferente"**: [Link](https://www.msn.com/es-es/deportes/futbol/ansotegi-como-sanse-juntos-no-hemos-estado-a%C3%BAn-es-una-semana-diferente/ar-AA1QSpkq)
+- **El Pucela busca en Anoeta ofrecer su mejor versión**: [Link](https://www.eldiadevalladolid.com/noticia/z53b3e796-46e9-485c-a75dbb257c0b6c65/202511/el-pucela-busca-en-anoeta-ofrecer-su-mejor-version)
+
+
+### sassuolo - pisa (N/A, 24/11/2025 15:28 Lima)
+
+- **LIVE Alle 20.45 Sassuolo-Pisa, le ufficiali: Fadera per Grosso, Gila punta su Nzola**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Sassuolo/24-11-2025/sassuolo-pisa-live-risultato-e-gol-in-diretta-serie-a.shtml)
+- **I Nerazzurri per la sfida del Mapei**: [Link](https://pisasportingclub.com/i-nerazzurri-per-la-sfida-del-mapei/)
+- **Serie A, dopo il blitz di Bergamo il Sassuolo a caccia di continuità**: [Link](https://www.agenpress.it/2025/11/24/serie-a-dopo-il-blitz-di-bergamo-il-sassuolo-a-caccia-di-continuita/)
+
+
+### manchester united - everton (N/A, 24/11/2025 15:28 Lima)
+
+- **Man Utd vs Everton LIVE: Premier League score, stats & updates**: [Link](https://www.bbc.com/sport/football/live/cp8e8d252n2t)
+- **'You cannot find a team in the Premier League without injuries': Amorim on absences ahead of Everton match**: [Link](https://tribuna.com/en/news/2025-11-24-you-cannot-find-a-team-in-the-premier-league-without-injuries-amorim-on-absences-ahead-of/)
+- **Preview: Monday Night Football from Old Trafford**: [Link](https://www.fotmob.com/ko/topnews/24068-preview-monday-night-football-from-old-trafford?utm_source=fotmob)
+
+
+### rcd espanyol - sevilla (N/A, 24/11/2025 15:28 Lima)
+
+- **Espanyol vs Sevilla: Apuestas, Pronóstico y Cuotas**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2025/noviembre/pronostico-espanyol-vs-sevilla-24-11-25)
+- **LaLiga EA Sports: Se enfrentan Espanyol y Sevilla por la fecha 13**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-se-enfrentan-espanyol-y-sevilla-por-la-fecha-13-noticia-1664989)
+- **Espanyol vs Sevilla de Alexis y Suazo por La Liga de España: a qué hora juegan y quién transmite**: [Link](https://www.biobiochile.cl/noticias/servicios/toma-nota/2025/11/24/espanyol-vs-sevilla-de-alexis-y-suazo-por-la-liga-de-espana-a-que-hora-juegan-y-quien-transmite.shtml)
+
+
+### espanyol vs sevilla (N/A, 24/11/2025 15:28 Lima)
+
+- **Preview:Espanyol vs Sevilla - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/espanyol/preview/espanyol-vs-sevilla-prediction-team-news-lineups_586228.html)
+- **Akor Adams’ Goal Odds Ahead of Sevilla FC vs. Espanyol Match**: [Link](https://news.ssbcrack.com/akor-adams-goal-odds-ahead-of-sevilla-fc-vs-espanyol-match/)
+- **Espanyol head coach criticizes La Liga over match scheduling and kick-off times**: [Link](https://dailysports.net/news/espanyol-head-coach-criticizes-la-liga-over-match-scheduling-and-kick-off-times/)
+
+
+### ricardo arjona (N/A, 24/11/2025 15:28 Lima)
+
+- **Ricardo Arjona regresa a Perú: así será su primer concierto en el Estadio Nacional**: [Link](https://rpp.pe/musica/conciertos/ricardo-arjona-vuelve-a-lima-2026-confirman-su-primer-concierto-en-estadio-nacional-cuando-sera-noticia-1665103)
+- **Ricardo Arjona confirma su regreso a Perú con su tour “Lo que el Seco no dijo”**: [Link](https://elcomercio.pe/luces/musica/ricardo-arjona-confirma-su-regreso-a-peru-con-su-tour-lo-que-el-seco-no-dijo-celebs-ultimas-noticia/)
+- **Ricardo Arjona vuelve a Lima: Fecha, precios, zonas y todo lo que debes saber del concierto**: [Link](https://blog.joinnus.com/ricardo-arjona-vuelve-a-lima-fecha-precios-zonas-y-todo-lo-que-debes-saber-del-concierto/)
+
+
+### sedapal corte de agua (N/A, 24/11/2025 15:28 Lima)
+
+- **Corte de agua para este lunes 24 de noviembre: conoce qué distritos serán los afectados**: [Link](https://www.infobae.com/peru/2025/11/22/corte-de-agua-para-este-lunes-24-de-noviembre-conoce-que-distritos-seran-los-afectados/)
+- **Vecinos de San Martín de Porres y Villa María del Triunfo sufrirán corte de agua este 24 de noviembre por más de 10 horas**: [Link](https://libero.pe/tiempoextra/2025/11/23/vecinos-de-san-martin-de-porres-villa-maria-del-triunfo-sufriran-corte-de-agua-24-de-noviembre-de-10-horas-segun-sedapal-1720009)
+- **Corte de agua en Lima: zonas afectadas y horario de Sedapal para el lunes 24 de noviembre**: [Link](https://larepublica.pe/sociedad/2025/11/23/corte-de-agua-en-lima-hoy-lunes-24-de-noviembre-distritos-y-horarios-afectados-por-sedapal-atmp-1646478)
+
+
 ### sorteo de la tinka hoy (N/A, 24/11/2025 11:28 Lima)
 
 - **La Tinka: conoce a los afortunados ganadores del sorteo del 23 de noviembre**: [Link](https://elcomercio.pe/videos/entretenimiento/la-tinka-conoce-a-los-afortunados-ganadores-del-sorteo-del-23-de-noviembre-nnav-video-amtv-si-o-si-dinero-noticia/)
@@ -960,75 +1030,5 @@ Sin noticias relacionadas disponibles.
 - **76ers vs. Bucks (21 Nov, 2025) Live Score**: [Link](https://africa.espn.com/nba/game/_/gameId/401810121)
 - **Raptors 121-112 76ers (20 Nov, 2025) Video Highlights**: [Link](https://africa.espn.com/nba/video?gameId=401810113)
 - **Maxey powers Sixers over Bucks as Spurs beat Hawks**: [Link](https://uk.sports.yahoo.com/news/maxey-powers-sixers-over-bucks-040541612.html)
-
-
-### billie eilish (N/A, 20/11/2025 23:29 Lima)
-
-- **I Tried Billie Eilish's $90 "Your Turn II" Perfume & It's Perfect For Winter**: [Link](https://www.elitedaily.com/beauty/billie-eilish-your-turn-2-perfume-fragrance-review)
-- **EILISH FRAGRANCES LAUNCHES YOUR TURN II, A LUSCIOUS NEW CHAPTER FOR THE AWARD-WINNING COLLECTION**: [Link](https://www.morningstar.com/news/pr-newswire/20251120ny29388/eilish-fragrances-launches-your-turn-ii-a-luscious-new-chapter-for-the-award-winning-collection)
-- **Billie Eilish on Her New “Sirensque” Fragrance and Why She Lets Scent Guide Her Night-Out Vibes**: [Link](https://www.instyle.com/billie-eilish-night-out-beauty-routine-fragrance-11853520)
-
-
-### jeff satur (N/A, 20/11/2025 23:29 Lima)
-
-- **Mexico’s Fatima Bosch crowned Miss Universe winner in glittering finale of scandal-hit pageant**: [Link](https://www.cnn.com/2025/11/20/style/miss-universe-2025-finale-winner-intl-hnk)
-- **Miss Universe 2025: Winner to be crowned in Thailand as chaotic edition ends**: [Link](https://www.bbc.com/news/articles/cgmxmxljg8mo)
-- **Miss Universe 2025 Pageant Hosts & Judges This Year at the Competition**: [Link](https://entertainmentnow.com/fashion-famous-celebrity-designers/miss-universe-2025-judges-hosting-hosts/)
-
-
-### spurs - hawks (N/A, 20/11/2025 23:29 Lima)
-
-- **Hawks lose control in 4th quarter, lose to Spurs 135-126**: [Link](https://www.peachtreehoops.com/recaps/66358/hawks-lose-control-in-4th-quarter-lose-to-spurs-135-126)
-- **San Antonio vs. Atlanta, Final Score: Jones-Garcia shines in 135-126 win**: [Link](https://www.poundingtherock.com/game-recaps/90219/san-antonio-vs-atlanta-final-score-jones-garcia-shines-in-135-126-win)
-- **Spurs' De'Aaron Fox: Leads Spurs to win Thursday**: [Link](https://www.cbssports.com/fantasy/basketball/news/spurs-deaaron-fox-leads-spurs-to-win-thursday/)
-
-
-### liga mx (N/A, 20/11/2025 23:29 Lima)
-
-- **América vs Tigres: Sigue en vivo la final de ida, Liga MX Femenil**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/15983314/america-vs-tigres-en-vivo-final-ida-liga-mx-femenil-apertura-2025)
-- **🏟️ Canal 9 y TUDN EN VIVO — seguir Club América vs. Tigres por TV abierta y Online (Final Liga MX Femenil)**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/canal-9-y-tudn-en-vivo-gratis-donde-ver-partido-america-vs-tigres-femenil-por-futbol-tv-abierta-y-nu9ve-online-final-liga-mx-femenil-nnda-nnrt-noticia/)
-- **Si América Femenil no conquista el campeonato será un fracaso**: [Link](https://es-us.noticias.yahoo.com/am%C3%A9rica-femenil-conquista-campeonato-fracaso-230044380.html)
-
-
-### rcn en vivo (N/A, 20/11/2025 23:29 Lima)
-
-- **🎩 VER Canal RCN EN VIVO | Transmisión de la Final del Miss Universo 2025 con Vanessa Pulgarín**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/canal-rcn-en-vivo-gratis-donde-ver-a-vanessa-pulgarin-en-la-final-del-miss-universo-2025-por-television-abierta-y-rcn-television-online-nnda-nnrt-noticia/)
-- **Vanessa Pulgarín se robó las miradas en la pasarela de Miss Universo: esta fue la inesperada reacción del dueño del evento**: [Link](https://www.infobae.com/colombia/2025/11/20/vanessa-pulgarin-se-robo-las-miradas-en-la-pasarela-de-miss-universo-esta-fue-la-inesperada-reaccion-del-dueno-del-evento/)
-- **Quién es Vanessa Pulgarín, Miss Colombia y una de las favoritas para Miss Universo 2025**: [Link](https://www.marca.com/co/2025/11/20/691f0120268e3ed3138b45a0.html)
-
-
-### miss peru (N/A, 20/11/2025 20:55 Lima)
-
-- **Furia en redes por los trajes de Karla Bacigalupo en ‘Miss Universo 2025′: critican a Jessica Newton**: [Link](https://www.infobae.com/peru/2025/11/20/furia-en-redes-por-los-trajes-de-karla-bacigalupo-en-miss-universo-2025-critican-a-jessica-newton/)
-- **VER Final de Miss Universo 2025 EN VIVO: dónde ver la gala y a qué hora inicia**: [Link](https://elcomercio.pe/respuestas/a-que-hora/final-de-miss-universo-2025-donde-ver-hora-y-todo-sobre-el-certamen-de-belleza-video-youtube-link-finalistas-tdpe-noticia/)
-- **Karla Bacigalupo deslumbró en el Miss Universo 2025 con su traje típico: ¿qué inspiró su diseño?**: [Link](https://rpp.pe/famosos/celebridades/karla-bacigalupo-brilla-en-miss-universo-2025-con-su-traje-tipico-que-inspiro-su-diseno-noticia-1664395)
-
-
-### grupo frontera (N/A, 20/11/2025 20:55 Lima)
-
-- **Grupo Frontera en Puebla 2026: ¿cuándo es la venta de boletos en Superboletos para el concierto en el Centro**: [Link](https://la-lista.com/entretenimiento/grupo-frontera-en-puebla-2026-cuando-es-la-venta-de-boletos-en-superboletos-para-el-concierto-en-el-centro-expositor)
-- **Grupo Frontera anunció conciertos en Colombia: fecha, lugares, precios de boletas y más**: [Link](https://www.elespectador.com/revista-vea/lo-ultimo/grupo-frontera-anuncio-conciertos-en-colombia-fecha-lugares-precios-de-boletas-y-mas/)
-- **Grupo Frontera anuncia la gira Triste Pero Bien C*brón: Aquí las fechas**: [Link](https://www.billboard.com/espanol/noticias/grupo-frontera-anuncia-gira-triste-pero-bien-cbron-fechas-1236115280/)
-
-
-### venevision en vivo (N/A, 20/11/2025 20:55 Lima)
-
-- **💍 VER Venevisión EN VIVO | Transmisión de la Final del Miss Universo 2025 GRATIS con Stephany Abasali**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/venevision-en-vivo-gratis-como-ver-a-stephany-abasali-en-final-del-miss-universo-2025-por-tv-abierta-y-venevision-play-online-miss-venezuela-nnda-nnrt-noticia/)
-- **La despampanante presentación en traje de baño de Venezuela en el Miss Universo**: [Link](https://www.ntn24.com/noticias-entretenimiento/la-despampanante-presentacion-en-traje-de-bano-de-venezuela-en-el-miss-universo-591141)
-- **Stephany Abasali brilla en Miss Universo con traje típico inspirado en Los Roques**: [Link](https://correodelcaroni.com/sociedad/actual/stephany-abasali-brilla-en-miss-universo-con-traje-tipico-inspirado-en-los-roques/)
-
-
-### magic - clippers (N/A, 20/11/2025 20:55 Lima)
-
-- **Clippers vs. Magic Prediction, Odds and Best NBA Prop Bets for Thursday, Nov. 20**: [Link](https://www.si.com/betting/clippers-vs-magic-prediction-odds-and-best-nba-prop-bets-for-thursday-nov-20)
-- **Clippers vs. Magic, 76ers vs. Bucks: Live Updates, top moments and highlights**: [Link](https://www.nba.com/news/clippers-vs-magic-76ers-vs-bucks-live-updates-top-moments-and-highlights)
-- **Los Angeles Clippers vs Orlando Magic Prediction, Pick, Odds -- 11/20**: [Link](https://www.actionnetwork.com/nba/orlando-magic-vs-los-angeles-clippers-prediction-pick-odds-thursday-november-20)
-
-
-### internacional (N/A, 20/11/2025 20:55 Lima)
-
-- **At Morumbi: São Paulo v Internacional set for home ground**: [Link](https://onefootball.com/fr/news/at-morumbi-sao-paulo-v-internacional-set-for-home-ground-41973619)
-- **São Paulo to juggle 2026 Morumbi fixtures and concerts, director says**: [Link](https://onefootball.com/en/news/sao-paulo-to-juggle-2026-morumbi-fixtures-and-concerts-director-says-41941928)
-- **CBF confirms São Paulo’s last home game at Vila, club wants Morumbi**: [Link](https://onefootball.com/en/news/cbf-confirms-sao-paulos-last-home-game-at-vila-club-wants-morumbi-41970170)
 
 
