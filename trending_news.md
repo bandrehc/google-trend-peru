@@ -1,3 +1,31 @@
+### reinfo (N/A, 23/11/2025 23:37 Lima)
+
+- **Expertos advierten que el Reinfo perdió su función y se ha convertido en un incentivo para la minería ilegal**: [Link](https://rpp.pe/peru/actualidad/reinfo-expertos-advierten-que-perdio-su-funcion-y-se-ha-convertido-en-un-incentivo-para-la-mineria-ilegal-noticia-1664912)
+- **Reinfo: fracaso de la democracia , por Jaime de Althaus | OPINION**: [Link](https://elcomercio.pe/opinion/columnistas/reinfo-fracaso-de-la-democracia-por-jaime-de-althaus-noticia/)
+- **El Congreso fomenta el crimen trajeado de minería ilegal**: [Link](https://www.expreso.com.pe/?post_type=opinion&p=1241622)
+
+
+### jose jeri (N/A, 23/11/2025 23:37 Lima)
+
+- **Presidente José Jerí concedió su primera entrevista televisiva a Beto Ortiz: se grabó en Palacio y se emitirá esta noche**: [Link](https://www.infobae.com/peru/2025/11/23/presidente-jose-jeri-concedio-su-primera-entrevista-televisiva-a-beto-ortiz-se-grabo-en-palacio-y-se-emitira-esta-noche/)
+- **José Jerí afirma que su Gobierno es de centro: "Rescato lo mejor de un lado y el otro"**: [Link](https://peru21.pe/politica/jose-jeri-afirma-que-su-gobierno-es-de-centro-rescato-lo-mejor-de-un-lado-y-el-otro/)
+- **'El valor de la verdad' del presidente José Jerí EN VIVO: horario y canal de TV donde ver el programa de Beto Ortiz**: [Link](https://larepublica.pe/espectaculos/2025/11/23/el-valor-de-la-verdad-de-agatha-lys-en-vivo-horario-y-canal-de-tv-donde-ver-el-programa-de-beto-ortiz-evdlv-en-peru-estados-unidos-espana-y-otros-paises-1478295)
+
+
+### udo kier (N/A, 23/11/2025 23:37 Lima)
+
+- **Udo Kier, German Actor Who Appeared in ‘My Own Private Idaho,’ ‘Andy Warhol’s Frankenstein,’ Dies at 81**: [Link](https://variety.com/2025/film/news/udo-kier-dead-own-private-idaho-andy-warhol-frankenstein-1236590259/)
+- **Udo Kier Dies: Prolific Star With Nearly Six Decades Of Film Credits Was 81 Years Old**: [Link](https://www.yahoo.com/entertainment/movies/articles/udo-kier-dies-prolific-star-031328428.html)
+- **Cult Actor Udo Kier Dies at 81**: [Link](https://www.vulture.com/article/cult-actor-udo-kier-dies-at-81.html)
+
+
+### panamericana en vivo (N/A, 23/11/2025 23:37 Lima)
+
+- **Gremios anuncian que no habrá paro de transportistas este lunes 24 de noviembre y evalúan fechas para medida**: [Link](https://larepublica.pe/sociedad/2025/11/23/no-habra-paro-de-transportistas-este-lunes-24-de-noviembre-gremios-aclaran-situacion-ntpe-1114557)
+- **¿Cuándo será el paro de 48 horas en Lima y Callao? Lo último que se sabe por los transportistas**: [Link](https://www.infobae.com/peru/2025/11/19/cuando-sera-el-nuevo-paro-de-48-horas-en-lima-y-callao-esto-dicen-los-transportistas/)
+- **Delincuentes elevan cobro de extorsiones a transportistas por Navidad y Año Nuevo**: [Link](https://caretas.pe/nacional/delincuentes-elevan-cobro-de-extorsiones-a-transportistas-por-navidad-y-ano-nuevo/)
+
+
 ### juarez vs (N/A, 23/11/2025 21:04 Lima)
 
 - **FC Juárez y su deuda pendiente en fases finales**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/15992724/fc-juarez-bravos-historial-resultados-fase-final-repechaje-liga-mx)
@@ -998,33 +1026,5 @@ Sin noticias relacionadas disponibles.
 - **Por que Matheus Pereira não está jogando Juventude x Cruzeiro?**: [Link](https://www.sportingnews.com/br/futebol/noticias/cruzeiro-matheus-pereira-fora-juventude-brasileirao/15f61768b929ed42ad46e2eb)
 - **Aos 23min do 1º tempo - Kaio Jorge escorrega na frente do goleiro e perde chance**: [Link](https://ge.globo.com/futebol/video/aos-23min-do-1o-tempo-kaio-jorge-escorrega-na-frente-do-goleiro-e-perde-chance-14115544.ghtml)
 - **Juventude x Cruzeiro: escalações e onde assistir ao jogo do Brasileirão**: [Link](https://www.cnnbrasil.com.br/esportes/brasileirao/juventude-x-cruzeiro-escalacoes-e-onde-assistir-ao-jogo-do-brasileirao-2/)
-
-
-### cruzeiro vs (N/A, 20/11/2025 15:28 Lima)
-
-- **📋 Cruzeiro and Juventude line-ups confirmed for crucial BR clash**: [Link](https://ca.sports.yahoo.com/news/cruzeiro-juventude-line-ups-confirmed-180900281.html)
-- **Jardim on wasteful finishing and plans for Sinisterra**: [Link](https://onefootball.com/en/news/jardim-on-wasteful-finishing-and-plans-for-sinisterra-41937138)
-- **Juventude faces Cruzeiro in crucial Serie A clash as unbeaten streak meets survival push**: [Link](https://www.red94.net/news/98680-juventude-faces-cruzeiro-in-crucial-serie-a-clash-as-unbeaten-streak-meets-survi/)
-
-
-### rosario central (N/A, 20/11/2025 15:28 Lima)
-
-- **El pedido de Guillermo Barros Schelotto para Vélez al enterarse del título de “Campeón de Liga” que recibió Central: “Tiene que ser retroactivo”**: [Link](https://www.infobae.com/deportes/2025/11/20/el-pedido-de-guillermo-barros-schelotto-para-velez-al-enterarse-del-titulo-de-campeon-de-liga-que-recibio-central-tiene-que-ser-retroactivo/)
-- **¿Cómo será el formato de los torneos del fútbol argentino en 2026?**: [Link](https://www.espn.com.ar/futbol/argentina/nota/_/id/15982654/como-sera-formato-torneos-futbol-argentino-2026-afa)
-- **¡Sorpresivo! La AFA reconoció a Rosario Central como Campeón de Liga por liderar la tabla anual**: [Link](https://elcomercio.pe/deporte-total/argentina/liga-argentina-la-afa-reconocio-a-rosario-central-como-campeon-de-liga-por-liderar-la-tabla-anual-noticia/)
-
-
-### gmo (N/A, 20/11/2025 11:32 Lima)
-
-- **「makeshop byGMO」において 決済フォームが一体化したLPが作成できる新アプリケーション 「LP Direct Order」を提供開始**: [Link](https://group.gmo/news/article/9776/)
-- **GMOメイクショップが提供する事業者向け新アプリ「LP Direct Order」でECサイトが進化する**: [Link](https://voix.jp/business-cards/lp-direct-order-launch/)
-- **GMOメイクショップ、決済一体型LP作成アプリ「LP Direct Order」をリリース**: [Link](https://news.3rd-in.co.jp/article/9d7990c4-c5bd-11f0-8886-9ca3ba083d71)
-
-
-### temblor hoy (N/A, 20/11/2025 11:32 Lima)
-
-- **Temblor en Perú HOY, 20 de noviembre: ¿a qué hora y dónde ocurrió el último sismo vía IGP?**: [Link](https://larepublica.pe/sociedad/2025/11/20/temblor-en-peru-hoy-jueves-20-de-noviembre-del-2025-magnitud-epicentro-y-mas-sobre-sismos-recientes-segun-igp-ultimo-sismo-en-lima-ica-callao-y-otras-provincias-atmp-1354605)
-- **Un sismo de magnitud 4.3 remeció la región Tacna esta madrugada**: [Link](https://rpp.pe/peru/tacna/un-sismo-de-magnitud-43-remecio-la-region-tacna-esta-tacna-sismo-de-magnitud-43-remecio-la-region-esta-madrugada-noticia-1663897)
-- **Sismo de magnitud 3.8 remeció Talara esta mañana 17 de noviembre**: [Link](https://lahora.pe/local/sismo-de-magnitud-3-8-remecio-talara-esta-manana-17-de-noviembre/)
 
 
