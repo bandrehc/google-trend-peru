@@ -1,3 +1,38 @@
+### hbo max (N/A, 24/11/2025 03:35 Lima)
+
+- **‘El conjuro: últimos ritos’: cómo y dónde ver en streaming el escalofriante final de la saga de Ed y Lorraine Warren**: [Link](https://rpp.pe/tv/streaming/el-conjuro-ultimos-ritos-como-y-donde-ver-en-streaming-el-escalofriante-final-de-la-saga-de-ed-y-lorraine-warren-noticia-1665039)
+- **‘El conjuro 4’: ¿cómo ver online y en español la película de terror que hizo historia en Perú como la más vista de todos los tiempos?**: [Link](https://larepublica.pe/cine-series/2025/11/17/el-conjuro-4-llega-a-hbo-max-cuando-se-estrena-en-el-streaming-la-pelicula-de-terror-que-hizo-historia-en-peru-1062058)
+- **'El Conjuro 4: Últimos ritos' llegará al streaming solo dos meses después de su estreno en cines**: [Link](https://www.exitosanoticias.pe/entretenimiento/el-conjuro-4-ultimos-ritos-llegara-streaming-dos-meses-despues-su-estreno-cines-n162807)
+
+
+### saga (N/A, 24/11/2025 03:35 Lima)
+
+- **Ignorance is bliss: rightwing media largely keeps quiet on Trump-Epstein saga**: [Link](https://www.theguardian.com/us-news/2025/nov/22/rightwing-media-trump-epstein-files)
+- **GB News Downplay Revelations About Trump's Epstein Links as Presenters Echo White House Spin**: [Link](https://bylinetimes.com/2025/11/20/gb-news-downplayed-revelations-about-trumps-epstein-links-as-presenters-echoed-white-house-spin/)
+- **'MAGA media in shambles' as it struggles to protect Trump**: [Link](https://www.alternet.org/trump-jeffrey-epstein-emails-2674295355/)
+
+
+### iberia (N/A, 24/11/2025 03:35 Lima)
+
+- **Varias aerolíneas internacionales cancelan sus vuelos a Venezuela tras alerta de la FAA sobre "incremento de la actividad militar" en ese país**: [Link](https://www.bbc.com/mundo/articles/c4g6qqy9jl9o)
+- **Turkish Airlines cancela vuelos hacia Venezuela por 5 días**: [Link](https://www.dw.com/es/turkish-airlines-cancela-sus-vuelos-hacia-venezuela-hasta-el-28-de-noviembre/a-74855205)
+- **Aerolíneas comienzan a cancelar vuelos a Venezuela tras advertencia del Gobierno de Estados Unidos**: [Link](https://cnnespanol.cnn.com/2025/11/22/venezuela/video/vuelos-cancelar-alerta-venezuela-tv-mirador-mundial)
+
+
+### black friday (N/A, 24/11/2025 03:35 Lima)
+
+- **Early Black Friday streaming deals, including Hulu, Peacock, Apple TV**: [Link](https://www.app.com/story/news/2025/11/21/streaming-black-friday-deals-include-hulu-disney-and-appletv/87394387007/)
+- **Apple TV Streaming Service Drops Price 54% in Black Friday Deal**: [Link](https://variety.com/2025/tv/news/apple-tv-black-friday-deal-price-drop-1236588772/)
+- **Should I wait for Black Friday to get a streaming subscription?**: [Link](https://www.space.com/entertainment/should-i-wait-for-black-friday-to-get-a-streaming-subscription)
+
+
+### black friday 2025 (N/A, 24/11/2025 03:35 Lima)
+
+- **Black Friday fashion deals for 2025 are up to 75% off Kate Spade, Hoka, Patagonia, REI and more of our favorite brands**: [Link](https://www.yahoo.com/lifestyle/style/clothing/article/black-friday-fashion-deals-for-2025-are-up-to-75-off-kate-spade-hoka-patagonia-rei-and-more-of-our-favorite-brands-144615056.html)
+- **Black Friday Is Upon Us. These Are the 90+ Best Deals We’ve Found on Amazon.**: [Link](https://www.nytimes.com/wirecutter/money/early-amazon-black-friday-deals-2025/)
+- **Our experts handpicked the 90 best Black Friday deals to beat the holiday rush**: [Link](https://www.cnn.com/cnn-underscored/deals/best-black-friday-deals-2025-11-23)
+
+
 ### reinfo (N/A, 23/11/2025 23:37 Lima)
 
 - **Expertos advierten que el Reinfo perdió su función y se ha convertido en un incentivo para la minería ilegal**: [Link](https://rpp.pe/peru/actualidad/reinfo-expertos-advierten-que-perdio-su-funcion-y-se-ha-convertido-en-un-incentivo-para-la-mineria-ilegal-noticia-1664912)
@@ -993,38 +1028,5 @@ Sin noticias relacionadas disponibles.
 ### twitch (N/A, 20/11/2025 15:28 Lima)
 
 - **Twitch’s Growing Footprint Among Americans Signals Its Potential Beyond Gaming**: [Link](https://civicscience.com/twitchs-growing-footprint-among-americans-signals-its-potential-beyond-gaming/)
-
-
-### gonzalo bueno (N/A, 20/11/2025 15:28 Lima)
-
-- **Premios DT 2025: ¿‘Nacho’Buse, Gonzalo Bueno o Diego Elías? Vota aquí por la “Mejor raqueta hombre″ del año**: [Link](https://elcomercio.pe/deporte-total/premios-dt-2025-ignacio-buse-gonzalo-bueno-o-diego-elias-vota-aqui-por-la-mejor-raqueta-hombre-del-ano-noticia/)
-- **Gonzalo Bueno quedó fuera del Guayaquil Challenger tras derrota ante argentino Ambrogi**: [Link](https://ovacion.pe/noticias/tenis/gonzalo-bueno-quedo-fuera-del-guayaquil-challenger-tras-derrota-ante-argentino)
-- **Juan Pablo Varillas avanzó a los cuartos de final del Challenger de Guayaquil**: [Link](https://elcomercio.pe/deporte-total/tenis/juan-pablo-varillas-avanzo-a-los-cuartos-de-final-del-challenger-de-guayaquil-murkel-dellien-ultimas-noticia/)
-
-
-### juventude vs cruzeiro (N/A, 20/11/2025 15:28 Lima)
-
-Sin noticias relacionadas disponibles.
-
-
-### bahia vs (N/A, 20/11/2025 15:28 Lima)
-
-- **Bahia vs. Sport Recife - Boxscore - Live Score - December 03, 2025**: [Link](https://www.foxsports.com/soccer/brazil-serie-a-bahia-vs-sport-recife-dec-03-2025-game-boxscore-621647?tab=boxscore)
-- **Preview:Bahia vs Fortaleza - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/bahia/preview/bahia-vs-fortaleza-prediction-team-news-lineups_585906.html)
-- **Bahia vs Fortaleza Prediction and Betting Tips | November 20th 2025**: [Link](https://www.sportskeeda.com/football/bahia-vs-fortaleza-prediction-betting-tips-november-20th-2025)
-
-
-### karla bacigalupo miss universo (N/A, 20/11/2025 15:28 Lima)
-
-- **Karla Bacigalupo en Miss Universo 2025: los diseñadores peruanos detrás de su traje típico y vestido de gala**: [Link](https://www.infobae.com/peru/2025/11/19/karla-bacigalupo-en-miss-universo-2025-los-disenadores-peruanos-detras-de-su-traje-tipico-y-vestido-de-gala/)
-- **Miss Universo 2025, Final HOY: a qué hora inicia y dónde ver la gala con la peruana Karla Bacigalupo**: [Link](https://elcomercio.pe/respuestas/a-que-hora/final-de-miss-universo-2025-donde-ver-hora-y-todo-sobre-el-certamen-de-belleza-video-youtube-link-finalistas-tdpe-noticia/)
-- **Miss Universo 2025: así arrasó la peruana Karla Bacigalupo en el desfile de traje de baño de la preliminar**: [Link](https://rpp.pe/famosos/farandula/miss-universo-2025-la-peruana-karla-bacigalupo-arraso-en-el-desfile-de-traje-de-bano-de-la-preliminar-noticia-1664400)
-
-
-### juventude - cruzeiro (N/A, 20/11/2025 15:28 Lima)
-
-- **Por que Matheus Pereira não está jogando Juventude x Cruzeiro?**: [Link](https://www.sportingnews.com/br/futebol/noticias/cruzeiro-matheus-pereira-fora-juventude-brasileirao/15f61768b929ed42ad46e2eb)
-- **Aos 23min do 1º tempo - Kaio Jorge escorrega na frente do goleiro e perde chance**: [Link](https://ge.globo.com/futebol/video/aos-23min-do-1o-tempo-kaio-jorge-escorrega-na-frente-do-goleiro-e-perde-chance-14115544.ghtml)
-- **Juventude x Cruzeiro: escalações e onde assistir ao jogo do Brasileirão**: [Link](https://www.cnnbrasil.com.br/esportes/brasileirao/juventude-x-cruzeiro-escalacoes-e-onde-assistir-ao-jogo-do-brasileirao-2/)
 
 
