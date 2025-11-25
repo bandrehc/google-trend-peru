@@ -1,3 +1,58 @@
+### vacancia por incapacidad moral permanente (N/A, 25/11/2025 11:34 Lima)
+
+- **Dina Boluarte solicita al Poder Judicial anular su vacancia: estos son los argumentos centrales**: [Link](https://www.infobae.com/peru/2025/11/24/dina-boluarte-solicita-al-poder-judicial-anular-su-vacancia-estos-son-los-argumentos-centrales/)
+- **Dina Boluarte solicitó al Congreso la pensión vitalicia: estos son todos los beneficios que busca obtener**: [Link](https://rpp.pe/politica/actualidad/dina-boluarte-solicito-al-congreso-pension-vitalicia-conoce-todos-los-beneficios-que-busca-obtener-noticia-1665044)
+- **Dina Boluarte pide al Poder Judicial anular su vacancia por incapacidad moral y acusa vulneración del debido proceso**: [Link](https://caretas.pe/politica/dina-boluarte-pide-al-poder-judicial-anular-su-vacancia-por-incapacidad-moral-y-acusa-vulneracion-del-debido-proceso/)
+
+
+### ajax vs benfica pronostico (N/A, 25/11/2025 11:34 Lima)
+
+- **Ajax vs Benfica: duelo de coleros en la fecha 5 de UEFA Champions League**: [Link](https://www.espn.com.pe/futbol/champions-league/nota/_/id/15999524/ajax-vs-benfica-fecha-5-champions-equipo-fecha-hora-y-tv-en-vivo)
+- **Champions League: Ajax y Benfica se miden por la fecha 5**: [Link](https://rpp.pe/futbol/ligas-internacionales/champions-league-ajax-y-benfica-se-miden-por-la-fecha-5-noticia-1665066)
+
+
+### bcp (N/A, 25/11/2025 11:34 Lima)
+
+- **¿Por qué el Bono BCP noviembre 2025 no existe?**: [Link](https://lahora.pe/bonos/por-que-el-bono-bcp-noviembre-2025-no-existe/)
+- **Bono Yape 300 soles noviembre 2025 no existe ni tiene LINK de consulta**: [Link](https://lahora.pe/bonos-y-subsidios/bono-yape-300-soles-noviembre-2025-no-existe-ni-tiene-link-de-consulta/)
+- **POLICÍA ACTIVA OPERATIVO TRAS ASALTO A CLIENTA DEL BCP**: [Link](https://sinrodeoscajamarca.com/policia-activa-operativo-tras-asaltoa-clienta-del-bcp/)
+
+
+### outlook (N/A, 25/11/2025 11:34 Lima)
+
+- **ToddyCat’s New Hacking Tools Steal Outlook Emails and Microsoft 365 Access Tokens**: [Link](https://thehackernews.com/2025/11/toddycats-new-hacking-tools-steal.html)
+- **ToddyCat APT Accessing Organizations Internal Communications of Employees at Target Companies**: [Link](https://cybersecuritynews.com/toddycat-apt-accessing-organizations-internal-communications/)
+- **Unauthorized Access to Employee Communications by ToddyCat APT in Targeted Firms**: [Link](https://cyberpress.org/toddycat-apt-attack/)
+
+
+### galatasaray vs (N/A, 25/11/2025 11:34 Lima)
+
+- **Preview:Galatasaray vs Union SG - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/galatasaray/champions-league/preview/galatasaray-vs-union-sg-prediction-team-news-lineups_586288.html)
+- **Galatasaray vs Union Saint-Gilloise LIVE Score Updates in UEFA Champions League Match**: [Link](https://www.vavel.com/en-us/soccer/2025/11/25/1242436-galatasaray-vs-union-sg-live-score-champions-league.html)
+- **Belgians Astonished Ahead of Galatasaray-Union Saint-Gilloise Match! They Spent €150 Million: 45 Million Fans**: [Link](https://www.fanatik.com.tr/en/belgians-astonished-ahead-of-galatasaray-union-saint-gilloise-match-they-spent-150-million-45-million-fans-2602274)
+
+
+### gemini (N/A, 25/11/2025 11:34 Lima)
+
+- **Alphabet’s Rally Threatens World’s Most Valuable Stock Standings**: [Link](https://www.bloomberg.com/news/articles/2025-11-25/alphabet-s-rally-threatens-world-s-most-valuable-stock-standings)
+- **Google stock rally makes Alphabet the Mag 7's best 2025 performer**: [Link](https://finance.yahoo.com/video/google-stock-rally-makes-alphabet-160000035.html)
+- **CNBC Daily Open: Alphabet to omega in AI?**: [Link](https://www.cnbc.com/2025/11/25/cnbc-daily-open-alphabet-to-omega-in-ai.html)
+
+
+### instagram (N/A, 25/11/2025 11:34 Lima)
+
+- **Meta buried 'causal' evidence of social media harm, US court filings allege**: [Link](https://www.reuters.com/sustainability/boards-policy-regulation/meta-buried-causal-evidence-social-media-harm-us-court-filings-allege-2025-11-23/)
+- **Meta halted internal research suggesting social media harm, court filing alleges**: [Link](https://www.cnbc.com/2025/11/23/meta-internal-research-social-media-harm-court-filing.html)
+- **‘We’re basically pushers’: Court filing alleges staff at social media giants compared their platforms to drugs**: [Link](https://www.politico.com/news/2025/11/22/were-basically-pushers-court-filings-allege-staff-at-social-media-giants-compared-their-platforms-to-drugs-00666181)
+
+
+### dia internacional de la no violencia contra la mujer (N/A, 25/11/2025 11:34 Lima)
+
+- **“El vuelo de las mariposas”: el triple femicidio de las hermanas Mirabal y el origen de un símbolo contra la violencia de género**: [Link](https://www.infobae.com/sociedad/2025/11/25/el-vuelo-de-las-mariposas-el-triple-femicidio-de-las-hermanas-mirabal-y-el-origen-de-un-simbolo-contra-la-violencia-de-genero/)
+- **RD: del asesinato de las Mirabal a la violencia de hoy**: [Link](https://www.dw.com/es/del-asesinato-de-las-mirabal-a-hoy-por-qu%C3%A9-los-feminicidios-siguen-siendo-tan-altos-en-rep%C3%BAblica-dominicana/a-74838971)
+- **Día internacional de la eliminación de la violencia contra las mujeres**: [Link](https://peru21.pe/mundo/dia-internacional-de-la-eliminacion-de-la-violencia-contra-las-mujeres/)
+
+
 ### 25 de noviembre (N/A, 25/11/2025 07:53 Lima)
 
 - **Mañana 25 de noviembre será día NO laborable en esta región del Perú: esto dice la norma publicada en El Peruano**: [Link](https://elcomercio.pe/respuestas/por-que/manana-martes-25-de-noviembre-sera-dia-no-laborable-en-esta-region-del-peru-esto-dice-la-norma-publicada-en-el-peruano-tdpe-noticia/)
@@ -975,61 +1030,5 @@ Sin noticias relacionadas disponibles.
 - **Grupo Frontera anuncia concierto en Medellín: fecha, precios y así puede comprar la boletería**: [Link](https://www.teleantioquia.co/entretenimiento/grupo-frontera-anuncia-concierto-en-medellin-fecha-precios-y-asi-puede-comprar-la-boleteria-534939)
 - **Grupo Frontera confirma tres conciertos en Colombia para 2026: ¿dónde serán y cómo comprar las boletas?**: [Link](https://www.diarioadn.co/noticias/grupo-frontera-confirma-tres-conciertos-en-colombia-para-2026-donde-seran-y-como-comprar+articulo+71219)
 - **Grupo Frontera anuncia la gira Triste Pero Bien C*brón: Aquí las fechas**: [Link](https://www.billboard.com/espanol/noticias/grupo-frontera-anuncia-gira-triste-pero-bien-cbron-fechas-1236115280/)
-
-
-### warriors - trail blazers (N/A, 21/11/2025 23:28 Lima)
-
-- **How to watch Warriors vs. Trail Blazers**: [Link](https://www.goldenstateofmind.com/warriors-game-previews/105457/how-to-watch-warriors-vs-trail-blazers)
-- **NBA Best Bets: Trail Blazers at Warriors Best Prop Bets for Friday 11/21/25**: [Link](https://dknetwork.draftkings.com/2025/11/21/nba-best-bets-trail-blazers-at-warriors-best-prop-bets-for-friday-11-21-25/)
-- **Warriors' Jimmy Butler: Upgraded to available**: [Link](https://www.cbssports.com/fantasy/basketball/news/warriors-jimmy-butler-upgraded-to-available/)
-
-
-### sabrina carpenter (N/A, 21/11/2025 23:28 Lima)
-
-- **SZA gets arrested by Sabrina Carpenter in L.A.**: [Link](https://www.thenews.com.pk/latest/1381968-sza-gets-arrested-by-sabrina-carpenter-in-la)
-- **Sabrina Carpenter ‘Arrests’ Elle and Dakota Fanning at LA Concert During Tour Stop**: [Link](https://b1039.com/2025/11/20/sabrina-carpenter-arrests-elle-and-dakota-fanning-at-la-concert-during-tour-stop/)
-- **Sabrina Carpenter Places SZA 'Under Arrest': 'SOS For Real'**: [Link](https://www.iheart.com/content/2025-11-21-sabrina-carpenter-places-sza-under-arrest-sos-for-real/)
-
-
-### final copa libertadores 2025 (N/A, 21/11/2025 20:51 Lima)
-
-- **El Fan Zone CONMEBOL Libertadores abre sus puertas en Lima**: [Link](https://www.conmebol.com/noticias/el-fan-zone-conmebol-libertadores-abre-sus-puertas-en-lima/)
-- **Copa Libertadores 2025: la millonaria cifra que generará en Lima la gran final entre Palmeiras y Flamengo**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/copa-libertadores-2025-la-millonaria-cifra-que-generara-en-lima-la-gran-final-entre-palmeiras-y-flamengo-noticia/)
-- **Clásico Brasileño: Descubre quién domina el historial reciente entre Flamengo y Palmeiras**: [Link](https://depor.com/futbol-internacional/brasil/clasico-brasileno-descubre-quien-domina-el-historial-reciente-entre-flamengo-y-palmeiras-noticia/)
-
-
-### sudamericana (N/A, 21/11/2025 20:51 Lima)
-
-- **Pellegrino, antes de la final de la Copa Sudamericana: "Estamos con mucha ilusión"**: [Link](https://www.espn.com.ar/futbol/copa-sudamericana/nota/_/id/15987667/pellegrino-izquierdoz-conferencia-final-mineiro-copa-sudamericana-2025)
-- **Salvio, en ESPN F3: "Estoy feliz de estar acá, a un paso de conseguir algo histórico"**: [Link](https://espndeportes.espn.com/futbol/copa-sudamericana/nota/_/id/15983423/eduardo-salvio-lanus-mineiro-feliz-historico-final-espn-copa-sudamericana)
-- **Atlético Mineiro vs Lanús en vivo: últimas noticias de la final de la Copa Sudamericana**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/atletico-mineiro-vs-lanus-en-vivo-hoy-ver-final-de-la-copa-sudamericana-lbposting-noticia/)
-
-
-### cavaliers - pacers (N/A, 21/11/2025 20:51 Lima)
-
-- **Where to watch Pacers vs. Cavaliers free stream today**: [Link](https://www.masslive.com/tv/2025/11/where-to-watch-pacers-vs-cavaliers-free-stream-today.html)
-- **Pacers vs. Cavaliers Prediction, Odds and Best NBA Prop Bets for NBA Cup Group Play**: [Link](https://www.si.com/betting/pacers-vs-cavaliers-prediction-odds-and-best-nba-prop-bets-for-nba-cup-group-play-01kakgtdnr6p)
-- **Cavs vs. Pacers: preview, odds, injury report, TV**: [Link](https://www.cleveland.com/cavs/2025/11/cavs-vs-pacers-preview-odds-injury-report-tv.html)
-
-
-### iquique - cobresal (N/A, 21/11/2025 20:51 Lima)
-
-- **Deportes Iquique 2-1 Cobresal: Así quedó la lucha por el descenso en la Liga de Primera**: [Link](https://www.365scores.com/es/news/deportes-iquique-tabla-descenso-cobresal/)
-- **Aforo de 9.164 personas para partido de Iquique con Cobresal**: [Link](https://iquiquetv.cl/2025/11/20/aforo-de-9-164-personas-para-partido-de-iquique-con-cobresal/)
-- **[VIDEO] Alvaro Ramos encendió la ilusión de Iquique en la Liga con un doblete ante Cobresal**: [Link](https://cooperativa.cl/noticias/deportes/futbol/liga-de-primera/video-alvaro-ramos-encendio-la-ilusion-de-iquique-en-la-liga-con-un/2025-11-21/213045.html)
-
-
-### liga chilena (N/A, 21/11/2025 20:51 Lima)
-
-- **En Limache apelan a sacar lecciones de caída con la U para la "final" ante Unión**: [Link](https://www.espn.com.ar/futbol/chile/nota/_/id/15982781/en-limache-apelan-a-sacar-lecciones-de-caida-con-la-u-para-la-final-ante-union-espanola)
-- **Iquique y Unión Española quedan al borde del descenso y la próxima fecha podrían perder la categoría**: [Link](https://www.emol.com/noticias/Deportes/2025/11/21/1183927/iquique-union-espanola-descenso-torneonacional.html)
-- **VIDEO | Este gol hizo delirar a Limache y dejó a Unión Española pensando en la Primera B**: [Link](https://www.encancha.cl/videos/2025/11/21/video-este-gol-hizo-delirar-a-limache-y-dejo-a-union-espanola-pensando-en-la-primera-b/)
-
-
-### benfica vs (N/A, 21/11/2025 20:51 Lima)
-
-- **Where can I watch: Atletico CP vs. Benfica on beIN Sports?**: [Link](https://www.beinsports.com/en-us/soccer/articles/where-can-i-watch-atletico-cp-vs-benfica-on-bein-sports-2025-11-21)
-- **Mourinho critica atitude dos jogadores após vitória do Benfica na Taça de Portugal**: [Link](https://news.ssbcrack.com/mourinho-critica-atitude-dos-jogadores-apos-vitoria-do-benfica-na-taca-de-portugal/)
-- **Atletico CP hosts Benfica in Cup upset bid with 100% home form record**: [Link](https://www.red94.net/news/52905-atletico-cp-hosts-benfica-in-cup-upset-bid-with-100-home-form-record/)
 
 
