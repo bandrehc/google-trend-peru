@@ -1,3 +1,71 @@
+### newcastle vs (N/A, 25/11/2025 15:28 Lima)
+
+- **Preview:Marseille vs Newcastle United - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/newcastle-united/champions-league/preview/marseille-vs-newcastle-prediction-team-news-lineups_586281.html)
+- **'F***k PSG': Marseille and Newcastle fans join forces to insult Paris ahead of Champions League clash**: [Link](https://tribuna.com/en/blogs/fk-psg-marseille-and-newcastle-fans-join-forces-to-insult-pa/)
+- **Olympique de Marseille vs Newcastle LIVE Score Updates in UEFA Champions League Match**: [Link](https://www.vavel.com/en-us/soccer/2025/11/25/1242455-marseille-vs-newcastle-live-score-champions-league.html)
+
+
+### barsa (N/A, 25/11/2025 15:28 Lima)
+
+- **La intrahistoria del segundo ‘no’ del Barça a Messi: así se gestó la negativa de 2023**: [Link](https://www.sport.es/es/noticias/barca/intrahistoria-segundo-barca-messi-gesto-124077973)
+- **La Liga no permitió el fichaje de Leo Messi**: [Link](https://www.fichajes.com/a5418308482241545662-la-liga-no-permitio-el-fichaje-de-leo-messi)
+- **Revelan el último contrato con Barcelona que Messi pudo firmar antes de jugar en Inter Miami**: [Link](https://bolavip.com/laliga/revelan-el-ultimo-contrato-con-barcelona-que-messi-pudo-firmar-antes-de-jugar-en-inter-miami)
+
+
+### futbol libre (N/A, 25/11/2025 15:28 Lima)
+
+- **Racing tuvo más alma que River y le ganó un partido que quedará grabado en la memoria de sus hinchas**: [Link](https://www.espn.com.ar/futbol/argentina/nota/_/id/15976621/racing-vs-river-torneo-clausura-2025-octavos-de-final-equipo-hora-tv-en-vivo)
+- **Gastón Martirena: "Con poco o mucho, jugando bien o mal, siempre nos queda una"**: [Link](https://espndeportes.espn.com/futbol/argentina/nota/_/id/16003263/gaston-martirena-gol-racing-river-clausura-2025)
+- **El llanto inolvidable de Guillermo Francella en la noche mágica de Racing: “Ganarles así es maravilloso”**: [Link](https://www.infobae.com/teleshow/2025/11/25/el-llanto-inolvidable-de-guillermo-francella-en-la-noche-magica-de-racing-ganarles-asi-es-maravilloso/)
+
+
+### tarjeta roja (N/A, 25/11/2025 15:28 Lima)
+
+- **Indulto para Cristiano Ronaldo: podrá jugar el primer partido del Mundial**: [Link](https://www.marca.com/futbol/mundial/2025/11/25/indulto-cristiano-ronaldo-podra-jugar-primer-partido-mundial.html)
+- **Cristiano Ronaldo libra suspensión para potencial juego vs México**: [Link](https://espndeportes.espn.com/futbol/selecciones/nota/_/id/16004466/cristiano-ronaldo-expulsion-castigo-mexico-partido-amistoso)
+- **Castigo ‘light’ para Cristiano: jugará el Mundial**: [Link](https://as.com/futbol/internacional/cristiano-sancionado-con-un-partido-y-dos-condicionados-f202511-n/)
+
+
+### pedro neto (N/A, 25/11/2025 15:28 Lima)
+
+- **Chelsea forward emerges as Barcelona’s perfect solution – report**: [Link](https://sports.yahoo.com/article/chelsea-forward-emerges-barcelona-perfect-101100175.html)
+- **Barcelona: Chelsea star Neto 'perfect fit' as Rashford future up in air despite Flick praise**: [Link](https://www.football365.com/news/chelsea-star-pedro-neto-perfect-fit-barcelona-marcus-rashford-future)
+- **Barcelona want to sign €80m player from Chelsea**: [Link](https://www.yardbarker.com/soccer/articles/barcelona_want_to_sign_80m_player_from_chelsea/s1_15953_43113866)
+
+
+### espn (N/A, 25/11/2025 15:28 Lima)
+
+- **ESPN NHL Analyst Cassie Campbell-Pascall Joins The Insider Show**: [Link](https://lakingsinsider.com/2025/11/25/espn-nhl-analyst-cassie-campbell-pascall-joins-the-insider-show/?utm_source=rss&utm_medium=rss&utm_campaign=espn-nhl-analyst-cassie-campbell-pascall-joins-the-insider-show)
+- **Fox One outpacing ESPN Unlimited subscriptions, per new data**: [Link](https://awfulannouncing.com/streaming/fox-one-subscriptions-outpace-espn-unlimited.html)
+- **Live sports driving SVOD subscriber growth and retention**: [Link](https://www.newscaststudio.com/2025/11/25/live-sports-driving-svod-subscriber-growth-and-retention/)
+
+
+### estêvão willian (N/A, 25/11/2025 15:28 Lima)
+
+- **Raphinha joga hoje? Desfalques e escalação do Barcelona contra o Chelsea pela Champions League**: [Link](https://www.90min.com/pt-br/raphinha-joga-hoje-desfalques-escalacao-barcelona-chelsea-25-11-2025)
+- **Champions no SBT: qual o jogo desta terça-feira? (25/11)**: [Link](https://www.sportingnews.com/br/futebol/noticias/champions-sbt-qual-jogo-hoje-terca-feira-25-11-25/2b671d78c4454d238e56ab43)
+- **Partidas da UEFA Champions League na terça e quarta-feira: Chelsea x Barça, Arsenal x Bayern, Atleti x Inter...**: [Link](https://www.gamereactor.pt/partidas-da-liga-dos-campeoes-da-uefa-na-terca-e-quarta-feira-chelsea-x-barca-arsenal-x-bayern-atlevi-x-inter-1510473/)
+
+
+### dortmund vs villarreal (N/A, 25/11/2025 15:28 Lima)
+
+- **Preview:Borussia Dortmund vs Villarreal - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/borussia-dortmund/champions-league/preview/dortmund-vs-villarreal-prediction-team-news-lineups_586283.html)
+- **'If we get closer to the top, we'll be closer to victory': Marcelino analyses the challenge against Dortmund**: [Link](https://tribuna.com/en/news/2025-11-25-if-we-get-closer-to-the-top-well-be-closer-to-victory-marcelino-analyses-the-challenge-ag/)
+- **Germany Champions League Soccer**: [Link](https://www.hjnews.com/sports/nation/germany-champions-league-soccer/image_3033f9d4-4eba-5e6e-94a6-ab7c0054fc28.html)
+
+
+### directv (N/A, 25/11/2025 15:28 Lima)
+
+- **El Grupo Werthein lanzó Waiken ILW, un holding que agrupará a DirecTV y a otras empresas de comunicación de América Latina**: [Link](https://forbes.pe/negocios/2025-11-25/el-grupo-werthein-lanzo-waiken-ilw-un-holding-que-agrupara-a-directv-y-a-otras-empresas-de-comunicacion-de-america-latina/)
+
+
+### libre futbol (N/A, 25/11/2025 15:28 Lima)
+
+- **Alianza Lima goleó 3-0 a UTC, pero no le alcanzó para ser segundo del acumulado de la Liga 1**: [Link](https://www.espn.com.pe/futbol/peru/nota/_/id/15978995/alianza-lima-vs-utc-fecha-19-clausura-liga-1-de-peru-equipo-fecha-hora-y-tv-en-vivo)
+- **Desde el punto penal: Paolo Guerrero marcó el 1-0 de Alianza Lima vs. UTC | VIDEO**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/gol-de-paolo-guerrero-hoy-alianza-lima-vs-utc-por-torneo-clausura-liga-1-video-noticia/)
+- **Alianza Lima ganó y jugará semifinal con Cristal por Perú 2**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/alianza-lima-gano-utc-y-jugara-semifinal-cristal-peru-2-n451791)
+
+
 ### vacancia por incapacidad moral permanente (N/A, 25/11/2025 11:34 Lima)
 
 - **Dina Boluarte solicita al Poder Judicial anular su vacancia: estos son los argumentos centrales**: [Link](https://www.infobae.com/peru/2025/11/24/dina-boluarte-solicita-al-poder-judicial-anular-su-vacancia-estos-son-los-argumentos-centrales/)
@@ -961,74 +1029,5 @@ Sin noticias relacionadas disponibles.
 - **Precio del dólar ahora sube: Así cerró el tipo de cambio hoy 21 de noviembre en Perú**: [Link](https://www.infobae.com/peru/2025/11/21/valor-de-apertura-del-dolar-en-peru-este-21-de-noviembre-de-usd-a-pen/)
 - **Precio del dólar en Perú: a cuánto cerró el tipo de cambio el viernes 21 de noviembre**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-en-peru-2025-a-cuanto-esta-el-dolar-este-viernes-21-de-noviembre-tipo-de-cambio-segun-bcrp-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
 - **Precio del dólar Perú y tipo de cambio hoy 20 de noviembre del 2025**: [Link](https://rpp.pe/economia/economia/precio-del-dolar-peru-y-tipo-de-cambio-hoy-20-de-noviembre-del-2025-noticia-1664528)
-
-
-### celtics - nets (N/A, 22/11/2025 03:29 Lima)
-
-- **Nic Claxton has 1st NBA triple-double to help the Nets beat the Celtics**: [Link](https://www.washingtonpost.com/sports/nba/2025/11/21/nets-celtics-score/21043fda-c752-11f0-be23-3ccb704f61ac_story.html)
-- **‘Come ready to play or don’t come at all’: Jaylen Brown unsatisfied after loss to Nets**: [Link](https://985thesportshub.com/2025/11/22/come-ready-to-play-or-dont-come-at-all-jaylen-brown-sounds-off-after-loss-to-nets/)
-- **Keys to the Game: Nets 113, Celtics 105**: [Link](https://www.nba.com/celtics/news/gamerecap-20251121-keys-bknbos)
-
-
-### suns - timberwolves (N/A, 22/11/2025 03:29 Lima)
-
-- **Suns 114, Timberwolves 113: It Just Means More (Mistakes)**: [Link](https://www.canishoopus.com/timberwolves-scores-results/62640/suns-vs-timberwolves-nba-final-score-game-recap)
-- **Leading by eight in the final minute, Wolves lose in Phoenix**: [Link](https://sports.yahoo.com/article/leading-eight-final-minute-wolves-045900854.html)
-- **Game Recap: Suns 114, Timberwolves 113**: [Link](https://www.nba.com/watch/video/game-recap-suns-114-timberwolves-113)
-
-
-### rockets - nuggets (N/A, 22/11/2025 03:29 Lima)
-
-- **Denver Nuggets fall to Houston Rockets 104-114, Sengun dominates with 28 points**: [Link](https://www.red94.net/news/58156-denver-nuggets-fall-to-houston-rockets-104-114-sengun-dominates-with-28-points/)
-- **Aaron Gordon Won't Return to NBA Cup Meeting with Houston - NBA News | Fantasy Basketball**: [Link](https://www.rotoballer.com/player-news/aaron-gordon-wont-return-to-nba-cup-meeting-with-houston/1761907)
-- **Nuggets' Nikola Jokic: Comes close to triple-double**: [Link](https://www.cbssports.com/fantasy/basketball/news/nuggets-nikola-jokic-comes-close-to-triple-double-504962/)
-
-
-### barcelona vs athletic bilbao (N/A, 22/11/2025 03:29 Lima)
-
-- **Cuatro cambios y una duda de Flick para la vuelta a casa ante el Athletic**: [Link](https://www.sport.es/es/noticias/barca/cuatro-cambios-duda-flick-vuelta-123983442)
-- **¿A qué hora juega FC Barcelona vs. Athletic EN VIVO por LaLiga 2025 en USA, España y México? | nnda nnrt**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/a-que-hora-juega-fc-barcelona-vs-athletic-en-vivo-por-laliga-2025-en-usa-espana-y-mexico-nnda-nnrt-noticia/)
-- **El posible once del Barça ante el Athletic en el partido del regreso, del morbo y del liderato**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20251122/1002573550/posible-once-barca-athletic-partido-regreso-morbo-liderato.html)
-
-
-### hermana de alejandra baigorria (N/A, 21/11/2025 23:28 Lima)
-
-- **Thamara Medina, hermana de Alejandra Baigorria, sufre accidente en Paracas | Últimas | TVMAS**: [Link](https://elcomercio.pe/tvmas/farandula/thamara-medina-hermana-de-alejandra-baigorria-sufre-accidente-en-paracas-ultimas-noticia/)
-- **Thamara Medina, hermana de Alejandra Baigorria, queda gravemente herida tras accidente automovilístico en Pisco**: [Link](https://larepublica.pe/espectaculos/2025/11/21/thamara-medina-hermana-de-alejandra-baigorria-queda-gravemente-herida-tras-accidente-automovilistico-en-pisco-1531824)
-- **Hermana de Alejandra Baigorria sufre accidente vehicular en Paracas**: [Link](https://www.atv.pe/noticia/hermana-de-alejandra-baigorria-sufre-accidente-vehicular-en-paracas/)
-
-
-### jazz - thunder (N/A, 21/11/2025 23:28 Lima)
-
-- **Lauri Markkanen leads Jazz into NBA Cup matchup vs. dominant Thunder**: [Link](https://www.thesportsleader.com/2025/11/20/lauri-markkanen-leads-jazz-into-nba-cup-matchup-vs-dominant-thunder/)
-- **Shai Gilgeous-Alexander: Player Props, Odds, and Lines for Reigning MVP vs. Jazz**: [Link](https://news.bet365.com/en-us/article/shai-gilgeous-alexander-player-props-odds-and-lines-for-reigning-mvp-vs-jazz/2025112120350032949)
-- **Utah vs Oklahoma Prediction: the Thunder Will Beat the Jazzmen**: [Link](https://www.telecomasia.net/sports-betting/tips/basketball/nba/utah-vs-oklahoma-prediction-for-the-match-on-november-22-2025/)
-
-
-### latina (N/A, 21/11/2025 23:28 Lima)
-
-- **El despertar del hogar inteligente en América Latina: ¿Quién está al mando de esta revolución?**: [Link](https://www.businessempresarial.com.pe/el-despertar-del-hogar-inteligente-en-america-latina-quien-esta-al-mando-de-esta-revolucion/)
-- **Estados Unidos apuesta por este país de América Latina para convertirlo en nueva potencia tecnológica mundial**: [Link](https://larepublica.pe/mundo/2025/11/21/eeuu-apuesta-por-este-pais-de-america-latina-para-convertirlo-en-nueva-potencia-tecnologica-mundial-y-superar-a-china-1955583)
-
-
-### yo soy (N/A, 21/11/2025 23:28 Lima)
-
-- **Moisés y los diez mandamientos, Jueves 20 de noviembre – ver capítulo 123 completo**: [Link](https://www.latina.pe/entretenimiento/moises-y-los-10-mandamientos/moises-y-los-diez-mandamientos-jueves-20-de-noviembre-ver-capitulo-123-completo_20251120/)
-- **Yo Soy – Jueves 20 de Noviembre – PROGRAMA COMPLETO**: [Link](https://www.latina.pe/entretenimiento/yo-soy/programas-completos-yo-soy/yo-soy-jueves-20-de-noviembre-programa-completo_20251120/)
-- **Hasta que la plata nos separe, Jueves 20 de noviembre – ver capítulo 22 completo**: [Link](https://www.latina.pe/entretenimiento/hasta-que-la-plata-nos-separe-novela/hasta-que-la-plata-nos-separe-jueves-20-de-noviembre-ver-capitulo-22-completo_20251120/)
-
-
-### billie eilish (N/A, 21/11/2025 23:28 Lima)
-
-- **Billie Eilish poses in Lamine Yamal shirt in viral Instagram photo – is it real?**: [Link](https://tribuna.com/en/blogs/billie-eilish-poses-in-lamine-yamal-shirt-in-viral-instagram/)
-- **Billie Eilish Tops LIVE75 During Final Days Of ‘Hit Me Hard And Soft Tour’**: [Link](https://news.pollstar.com/2025/11/21/billie-eilish-tops-live75-during-final-days-of-hit-me-hard-and-soft-tour/)
-- **‘I’m scared for you,’ Billie Eilish tells Austin fans during her only Texas tour stop**: [Link](https://www.statesman.com/entertainment/music/article/billie-eilish-austin-tour-setlist-photos-21180635.php)
-
-
-### grupo frontera (N/A, 21/11/2025 23:28 Lima)
-
-- **Grupo Frontera anuncia concierto en Medellín: fecha, precios y así puede comprar la boletería**: [Link](https://www.teleantioquia.co/entretenimiento/grupo-frontera-anuncia-concierto-en-medellin-fecha-precios-y-asi-puede-comprar-la-boleteria-534939)
-- **Grupo Frontera confirma tres conciertos en Colombia para 2026: ¿dónde serán y cómo comprar las boletas?**: [Link](https://www.diarioadn.co/noticias/grupo-frontera-confirma-tres-conciertos-en-colombia-para-2026-donde-seran-y-como-comprar+articulo+71219)
-- **Grupo Frontera anuncia la gira Triste Pero Bien C*brón: Aquí las fechas**: [Link](https://www.billboard.com/espanol/noticias/grupo-frontera-anuncia-gira-triste-pero-bien-cbron-fechas-1236115280/)
 
 
