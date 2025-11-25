@@ -1,3 +1,31 @@
+### ajax (N/A, 25/11/2025 03:34 Lima)
+
+- **Ajax is bij verlies tegen Benfica slechtste Nederlandse ploeg ooit in CL**: [Link](https://www.nu.nl/voetbal/6377024/ajax-is-bij-verlies-tegen-benfica-slechtste-nederlandse-ploeg-ooit-in-cl.html)
+- **Circus José Mourinho richting Champions League-duel: ’Geen idee waarom ik altijd van Ajax win’**: [Link](https://www.telegraaf.nl/sport/voetbal/circus-mourinho-geen-idee-waarom-ik-altijd-van-ajax-win/107398381.html)
+- **Grim heeft goed nieuws over Rosa en Gaaei; veel onduidelijkheid over Berghuis**: [Link](https://www.msn.com/nl-nl/nieuws/other/grim-heeft-goed-nieuws-over-rosa-en-gaaei-veel-onduidelijkheid-over-berghuis/ar-AA1R1t87)
+
+
+### san diego vs (N/A, 25/11/2025 03:34 Lima)
+
+- **Michigan vs San Diego St: Unbeaten Wolverines favored by 6.5 in Vegas showdown**: [Link](https://www.red94.net/news/36712-michigan-vs-san-diego-st-unbeaten-wolverines-favored-by-6-5-in-vegas-showdown/)
+- **5 Takeaways from Michigan’s win against SDSU in the Players Era Festival**: [Link](https://sports.yahoo.com/articles/5-takeaways-michigan-win-against-053721153.html)
+- **What coach Brian Dutcher and the players said after San Diego State’s 40-point loss to No. 7 Michigan**: [Link](https://www.si.com/college/san-diego-state/basketball/what-coach-brian-dutcher-players-said-after-san-diego-state-40-point-loss-no-7-michigan)
+
+
+### que se celebra el 25 de noviembre (N/A, 25/11/2025 03:34 Lima)
+
+- **Mañana 25 de noviembre será día NO laborable en esta región del Perú: esto dice la norma publicada en El Peruano**: [Link](https://elcomercio.pe/respuestas/por-que/manana-martes-25-de-noviembre-sera-dia-no-laborable-en-esta-region-del-peru-esto-dice-la-norma-publicada-en-el-peruano-tdpe-noticia/)
+- **Clases suspendidas el martes 25 de noviembre, según Minedu: esta región tendrá día no laborable**: [Link](https://larepublica.pe/sociedad/2025/11/23/clases-suspendidas-el-martes-25-de-noviembre-segun-minedu-esta-region-tendra-dia-no-laborable-255760)
+- **¿Habrá feriado largo desde el viernes 21 al lunes 24 de noviembre en Perú? Esto se sabe**: [Link](https://www.exitosanoticias.pe/actualidad/habra-feriado-largo-viernes-21-lunes-24-noviembre-peru-esto-sabe-n163124)
+
+
+### ajax vs benfica (N/A, 25/11/2025 03:34 Lima)
+
+- **Preview:Ajax vs Benfica - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/ajax/champions-league/preview/ajax-vs-benfica-prediction-team-news-lineups_586309.html)
+- **Tuesday's Champions League Matchday Five predictions, odds and betting tips: Benfica can stop the rot at ailing Ajax**: [Link](https://www.racingpost.com/sport/football-tips/champions-league/champions-league-matchday-five-predictions-odds-and-betting-tips-a8pbF0I03RTq/)
+- **Ajax v Benfica Bet Builder Tips & Match Predictions**: [Link](https://andysbetclub.co.uk/predictions/ajax-v-benfica-bet-builder-tips/)
+
+
 ### cambio del dolar hoy (N/A, 24/11/2025 23:31 Lima)
 
 - **Precio del dólar cae: Así cerró el tipo de cambio en Perú hoy 24 de noviembre**: [Link](https://www.infobae.com/peru/2025/11/24/peru-cotizacion-de-apertura-del-dolar-hoy-24-de-noviembre-de-usd-a-pen/)
@@ -1003,33 +1031,5 @@ Sin noticias relacionadas disponibles.
 - **Las Palmas - Albacete, en directo: LaLiga Hypermotion, hoy en vivo**: [Link](https://as.com/futbol/segunda/las-palmas-albacete-en-directo-laliga-hypermotion-hoy-en-vivo-f202511-d/)
 - **LA PREVIA: El Estadio Gran Canaria se prepara para un nuevo duelo**: [Link](https://www.udlaspalmas.es/noticias/la-previa-jornada-15-albacete)
 - **🎙️ALBERTO: "Vamos con la ilusión de darle algo bueno a la afición que se desplaza"**: [Link](https://www.albacetebalompie.es/videos/alberto-vamos-con-la-ilusion-de-darle-algo-bueno-a-la-aficion-que-se-desplaza-b-kxyfczwm0)
-
-
-### hoffenheim (N/A, 21/11/2025 15:27 Lima)
-
-- **3. Liga - Tabellenführer Duisburg geht in Hoffenheim unter**: [Link](https://www1.wdr.de/sport/fussball/dritte-liga/spielbericht-dritteliga-hoffenheim-msv-duisburg-100.html)
-- **MSV Duisburg: Trainingslager und Langzeitverletzte - so plant Hirsch mit Symalla und Co.**: [Link](https://www.reviersport.de/fussball/3liga/a621631---msv-duisburg-trainingslager-langzeitverletzte-plant-hirsch-symalla-co.html)
-- **Duell der Aufsteiger: „Hoffe zwo“ empfängt Spitzenreiter aus Duisburg**: [Link](https://www.tsg-hoffenheim.de/aktuelles/news/2025/11/duell-der-aufsteiger-hoffe-zwo-empfaengt-spitzenreiter-aus-duisburg)
-
-
-### mainz vs hoffenheim (N/A, 21/11/2025 15:27 Lima)
-
-- **Mainz 05 vs Hoffenheim: Bundesliga stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c04g01edkl5t)
-- **Grischa Promel vs. FSV Mainz – Player props & odds to score a goal on November 21**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/11/21/grischa-promel-soccer-player-props-11-21-2025/87389397007/)
-- **Mainz 05 - TSG Hoffenheim live**: [Link](https://www.marca.com/en/soccer/bundesliga/mainz-05-tsg-hoffenheim/2025/11/21/01_0108_20251121_810_1902-live.html)
-
-
-### valencia c. f. - levante (N/A, 21/11/2025 15:27 Lima)
-
-- **Valencia vs Levante: Apuestas, Pronóstico y Cuotas**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2025/noviembre/pronostico-valencia-vs-levante-21-11-25)
-- **LaLiga EA Sports: Levante se enfrentará a Valencia por la fecha 13**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-levante-se-enfrentara-a-valencia-por-la-fecha-13-noticia-1664564)
-- **La marcha granota parte hacia Mestalla**: [Link](https://as.com/futbol/primera/la-marcha-granota-parte-hacia-mestalla-f202511-n/)
-
-
-### twitch (N/A, 21/11/2025 15:27 Lima)
-
-- **Australia's social media ban for kids under 16 - how will it work?**: [Link](https://www.bbc.com/news/articles/cwyp9d3ddqyo)
-- **Facebook and Instagram to start kicking Australian teenagers off platforms as social media ban looms**: [Link](https://www.theguardian.com/australia-news/2025/nov/19/meta-starts-notifying-australian-teens-of-account-shutdowns-as-social-media-ban-looms)
-- **Amazon's Twitch Under Scrutiny for Age Restrictions in Australia**: [Link](https://www.gurufocus.com/news/3220066/amazons-twitch-under-scrutiny-for-age-restrictions-in-australia)
 
 
