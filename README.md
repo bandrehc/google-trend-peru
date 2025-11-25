@@ -1,3 +1,31 @@
+### 25 de noviembre (N/A, 25/11/2025 07:53 Lima)
+
+- **Mañana 25 de noviembre será día NO laborable en esta región del Perú: esto dice la norma publicada en El Peruano**: [Link](https://elcomercio.pe/respuestas/por-que/manana-martes-25-de-noviembre-sera-dia-no-laborable-en-esta-region-del-peru-esto-dice-la-norma-publicada-en-el-peruano-tdpe-noticia/)
+- **Clases suspendidas el martes 25 de noviembre, según Minedu: esta región tendrá día no laborable**: [Link](https://larepublica.pe/sociedad/2025/11/23/clases-suspendidas-el-martes-25-de-noviembre-segun-minedu-esta-region-tendra-dia-no-laborable-255760)
+- **¿Habrá feriado largo desde el viernes 21 al lunes 24 de noviembre en Perú? Esto se sabe**: [Link](https://www.exitosanoticias.pe/actualidad/habra-feriado-largo-viernes-21-lunes-24-noviembre-peru-esto-sabe-n163124)
+
+
+### gina lima (N/A, 25/11/2025 07:53 Lima)
+
+- **Gina Lima, actriz de cine para adultos, aparece sin vida en casa de su expareja: lo que se sabe del caso**: [Link](https://rpp.pe/famosos/celebridades/gina-lima-actriz-de-cine-para-adultos-fue-hallada-muerta-en-el-departamento-de-su-expareja-que-se-sabe-del-caso-noticia-1664815)
+- **Dos jóvenes influencers son hallados muertos en circunstancias extrañas: Las autoridades investigan ambos casos**: [Link](https://www.exitosanoticias.pe/espectaculos/dos-jovenes-influencers-son-hallados-muertos-circunstancias-extranas-autoridades-investigan-ambos-casos-n163148)
+- **Muere actriz de cine para adultos Gina Lima y su expareja**: [Link](https://www.americatv.com.pe/noticias/espectaculos/actriz-cine-adultos-fue-hallada-muerta-casa-su-ex-n513223)
+
+
+### retiro afp retiro cronograma (N/A, 25/11/2025 07:53 Lima)
+
+- **Retiro AFP: Primera UIT de hasta S/5.350 ya se deposita a estos afiliados**: [Link](https://www.infobae.com/peru/2025/11/19/retiro-de-afp-primera-uit-de-hasta-s5350-se-deposita-esta-semana-a-quienes/)
+- **Este es el cronograma de Retiro AFP 2025: en qué fechas solicitar tu dinero, según tu DNI**: [Link](https://elcomercio.pe/respuestas/tramites/cuando-iniciar-el-retiro-afp-segun-el-cronograma-oficial-fechas-rezagadas-segun-tu-dni-octavo-retiro-tdpe-noticia/)
+- **Retiro AFP: desde 21 de noviembre empezó depósitos a afiliados que presentaron solicitud**: [Link](https://andina.pe/agencia/noticia-retiro-afp-desde-21-noviembre-empezo-depositos-a-afiliados-presentaron-solicitud-1053132.aspx)
+
+
+### champions (N/A, 25/11/2025 07:53 Lima)
+
+- **The Ultimate UCL History: 10 Records That Define the Champions League**: [Link](https://en.albat.com/lista/the-ultimate-ucl-history-10-records-that-define-the-champions-league-20251124-0005.html)
+- **Champions League - BVB: Ramy Bensebaini makes his return**: [Link](https://foot-africa.com/en/news/champions-league-bvb-ramy-bensebaini-makes-his-return-975647/)
+- **PSG shift focus to homegrown talent with campus project**: [Link](https://www.channelnewsasia.com/sport/psg-shift-focus-homegrown-talent-campus-project-5489146)
+
+
 ### ajax (N/A, 25/11/2025 03:34 Lima)
 
 - **Ajax is bij verlies tegen Benfica slechtste Nederlandse ploeg ooit in CL**: [Link](https://www.nu.nl/voetbal/6377024/ajax-is-bij-verlies-tegen-benfica-slechtste-nederlandse-ploeg-ooit-in-cl.html)
@@ -1003,33 +1031,5 @@ Sin noticias relacionadas disponibles.
 - **Where can I watch: Atletico CP vs. Benfica on beIN Sports?**: [Link](https://www.beinsports.com/en-us/soccer/articles/where-can-i-watch-atletico-cp-vs-benfica-on-bein-sports-2025-11-21)
 - **Mourinho critica atitude dos jogadores após vitória do Benfica na Taça de Portugal**: [Link](https://news.ssbcrack.com/mourinho-critica-atitude-dos-jogadores-apos-vitoria-do-benfica-na-taca-de-portugal/)
 - **Atletico CP hosts Benfica in Cup upset bid with 100% home form record**: [Link](https://www.red94.net/news/52905-atletico-cp-hosts-benfica-in-cup-upset-bid-with-100-home-form-record/)
-
-
-### sportivo luqueño - olimpia (N/A, 21/11/2025 20:51 Lima)
-
-- **Sportivo Luqueño vs Olimpia hoy: resultado EN VIVO y goles de la Copa de Primera**: [Link](https://www.365scores.com/es/news/sportivo-luqueno-vs-olimpia-resultado/)
-- **2 de Mayo vs. Deportivo Recoleta: Paso a paso**: [Link](https://d10.ultimahora.com/2-de-mayo-vs-deportivo-recoleta-paso-a-paso)
-- **Olimpia, por los puntos de honor**: [Link](https://www.lanacion.com.py/futboledicion-impresa/2025/11/21/olimpia-por-los-puntos-de-honor/)
-
-
-### preston vs (N/A, 21/11/2025 20:51 Lima)
-
-- **Blackburn Rovers player ratings with three 8/10s in Preston North End victory**: [Link](https://www.lancashiretelegraph.co.uk/sport/25642168.blackburn-rovers-player-ratings-three-8-10s-vs-preston/)
-- **Preston’s Ascent: Championship Underdogs Eye Automatic Promotion**: [Link](https://news.ssbcrack.com/prestons-ascent-championship-underdogs-eye-automatic-promotion/)
-- **Rovers edge Lancashire derby as Gudjohnsen form continues**: [Link](https://www.efl.com/news/2025/november/21/rovers-edge-lancashire-derby-as-gudjohnsen-form-continues/)
-
-
-### atlético clube de portugal - benfica (N/A, 21/11/2025 15:27 Lima)
-
-- **Atlético CP x Benfica Palpite – Onde Assistir, Hora e Escalações 21-11**: [Link](https://onefootball.com/pt-br/apostas/palpites/futebol/atletico-cp-x-benfica-21-11-2025)
-- **Quem é Rodrigo Rêgo, o jovem que vai fazer a estreia pelo Benfica contra o Atlético?**: [Link](https://bolanarede.pt/especial-bola-na-rede/atualidade/quem-e-rodrigo-rego-o-jovem-que-vai-fazer-a-estreia-pelo-benfica-contra-o-atletico/)
-- **Sporting, Porto e Benfica: Quem Tem o Jogo Mais Fácil?**: [Link](https://observador.pt/prognosticos/sporting-porto-e-benfica-na-taca-quem-tem-o-jogo-mais-facil/)
-
-
-### u. d. las palmas - albacete (N/A, 21/11/2025 15:27 Lima)
-
-- **Las Palmas - Albacete, en directo: LaLiga Hypermotion, hoy en vivo**: [Link](https://as.com/futbol/segunda/las-palmas-albacete-en-directo-laliga-hypermotion-hoy-en-vivo-f202511-d/)
-- **LA PREVIA: El Estadio Gran Canaria se prepara para un nuevo duelo**: [Link](https://www.udlaspalmas.es/noticias/la-previa-jornada-15-albacete)
-- **🎙️ALBERTO: "Vamos con la ilusión de darle algo bueno a la afición que se desplaza"**: [Link](https://www.albacetebalompie.es/videos/alberto-vamos-con-la-ilusion-de-darle-algo-bueno-a-la-aficion-que-se-desplaza-b-kxyfczwm0)
 
 
