@@ -1,3 +1,58 @@
+### cambio del dolar hoy (N/A, 24/11/2025 23:31 Lima)
+
+- **Precio del dólar cae: Así cerró el tipo de cambio en Perú hoy 24 de noviembre**: [Link](https://www.infobae.com/peru/2025/11/24/peru-cotizacion-de-apertura-del-dolar-hoy-24-de-noviembre-de-usd-a-pen/)
+- **Precio del dólar HOY, domingo 23 de noviembre: cuál es la cotización del día**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-2025-cuanto-esta-el-dolar-este-domingo-23-de-noviembre-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
+- **¿Cuánto está el dólar HOY? Precio compra y venta para este lunes 24 de noviembre**: [Link](https://latinanoticias.pe/te-ayudo/cuanto-esta-el-dolar-hoy-precio-compra-y-venta-para-este-24-de-noviembre-cotizacion-dolar-ahora-en-lima-sunat-sbs-bcrp-adp-noticia_20251123/)
+
+
+### paro 25 de noviembre (N/A, 24/11/2025 23:31 Lima)
+
+- **¿Habrá paro de transporte el martes 25 de noviembre en Lima y Callao? Los últimos acuerdos de los gremios tras atentado contra empresas**: [Link](https://larepublica.pe/sociedad/2025/11/24/habra-paro-de-transporte-el-martes-25-de-noviembre-en-lima-y-callao-los-ultimos-acuerdos-de-los-gremios-tras-atentado-contra-empresas-ntpe-349800)
+- **Martín Ojeda, vocero del gremio Transportes Unidos: “Otro atentado puede causar un efecto dominó”**: [Link](https://diariocorreo.pe/edicion/lima/martin-ojeda-vocero-del-gremio-transportes-unidos-otro-atentado-puede-causar-un-efecto-domino-noticia/)
+- **Delincuentes elevan cobro de extorsiones a transportistas por Navidad y Año Nuevo**: [Link](https://caretas.pe/nacional/delincuentes-elevan-cobro-de-extorsiones-a-transportistas-por-navidad-y-ano-nuevo/)
+
+
+### green day (N/A, 24/11/2025 23:31 Lima)
+
+- **"I started feeling the political wheels starting to turn toward conservatism a little bit" How a song on Green Day's most misunderstood album set the groundwork for one of their biggest acts of protest**: [Link](https://www.loudersound.com/bands-artists/green-day-the-story-of-minority)
+- **Who provides the female spoken word passage on Green Day’s ‘Letterbomb’?**: [Link](https://faroutmagazine.co.uk/female-spoken-word-passage-green-day-letterbomb/)
+
+
+### san diego fc - minnesota (N/A, 24/11/2025 23:31 Lima)
+
+- **San Diego FC 0-0 Minnesota United Live Score, MLS Cup: Goalless At Half-time Despite Attacking Surge From SDFC!**: [Link](https://www.outlookindia.com/sports/football/san-diego-fc-vs-minnesota-united-live-score-major-league-soccer-cup-2025-western-conference-semifinal-updates)
+- **MTS enhances trolley service for San Diego FC playoff match**: [Link](https://fox5sandiego.com/news/local-news/san-diego-fc-playoff-trolley/)
+- **Minnesota United is a rarity: A swooning team moving on in the MLS playoffs**: [Link](https://www.startribune.com/minnesota-united-is-a-rarity-a-swooning-team-moving-on-in-the-mls-playoffs/601528361)
+
+
+### eva ayllón (N/A, 24/11/2025 23:31 Lima)
+
+- **“Yo soy”: Eva Ayllón se conmueve hasta las lágrimas con imitadora de Michael Jackson**: [Link](https://elcomercio.pe/tvmas/farandula/yo-soy-eva-ayllon-se-conmueve-hasta-las-lagrimas-con-imitadora-de-michael-jackson-latina-ultimas-noticia/)
+- **Yo Soy conciertos 2025: Imitación de Michael Jackson desató OVACIÓN TOTAL y dejó al jurado profundamente CONMOVIDO**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-conciertos-2025-imitacion-de-michael-jackson-desato-ovacion-total-y-dejo-al-jurado-profundamente-conmovido_20251123/)
+- **Imitadora de Michael Jackson emocionó a Eva Ayllón y al público: “Era imitarlo, no revivirlo”**: [Link](https://www.infobae.com/peru/2025/11/23/imitadora-de-michael-jackson-emociono-a-eva-ayllon-y-al-publico-era-imitarlo-no-revivirlo/)
+
+
+### warriors - jazz (N/A, 24/11/2025 23:31 Lima)
+
+- **Utah Jazz vs Golden State Warriors Prediction, Pick, Odds -- 11/24**: [Link](https://www.actionnetwork.com/nba/utah-jazz-vs-golden-state-warriors-prediction-pick-odds-monday-november-24)
+- **Best Stephen Curry prop bet for Jazz vs. Warriors on Monday 11/24/25**: [Link](https://dknetwork.draftkings.com/2025/11/24/best-stephen-curry-prop-bet-for-jazz-vs-warriors-on-monday-11-24-25/)
+- **Warriors-Jazz Injury Report Rules Out Pair of Starters**: [Link](https://www.si.com/nba/jazz/onsi/news/golden-state-warriors-utah-jazz-injury-report-rules-out-starters-draymond-green)
+
+
+### silvia cornejo (N/A, 24/11/2025 23:31 Lima)
+
+- **Silvia Cornejo y su publicación antes del nuevo ampay de su esposo Jean Paul Gabuteau y su ex: ¿Qué hizo?**: [Link](https://trome.com/espectaculos/tv/silvia-cornejo-y-su-publicacion-antes-del-nuevo-ampay-de-su-esposo-jean-paul-gabuteau-y-su-ex-analia-jimenez-foto-video-farandula-noticia/)
+- **Silvia Cornejo: Así ponía las manos al fuego por Jean Paul Gabuteau hace un mes pese a imágenes con su ex**: [Link](https://www.atv.pe/noticia/silvia-cornejo-asi-ponia-las-manos-al-fuego-por-jean-paul-gabuteau-hace-un-mes-pese-a-imagenes-con-su-ex/)
+- **¡OTRA VEZ! Pareja de Silvia Cornejo, Jean Paul Gabuteau, es ampayado con su ex**: [Link](https://lakaribena.com.pe/espectaculos/otra-vez-pareja-silvia-cornejo-jean-paul-gabuteau-ampayado-su-ex-n29235)
+
+
+### chelsea vs barcelona (N/A, 24/11/2025 23:31 Lima)
+
+- **Chelsea have Barcelona president’s approval as he explains why they’re a ‘very good’ team**: [Link](https://www.thechelseachronicle.com/news/chelsea-have-barcelona-presidents-approval-as-he-explains-why-theyre-a-very-good-team/)
+- **More 1,700 members and Supporters' Club members at Stamford Bridge**: [Link](https://www.fcbarcelona.com/en/news/4408067/more-1700-members-and-supporters-club-members-at-stamford-bridge)
+- **Chelsea vs Barcelona: UEFA Champions League – team news, start and lineups**: [Link](https://www.aljazeera.com/sports/2025/11/24/chelsea-vs-barcelona-uefa-champions-league-team-news-start-and-lineups)
+
+
 ### unión - gimnasia (N/A, 24/11/2025 20:57 Lima)
 
 - **EN VIVO: 0-0: Unión y su duelo por la llave 7 del Clausura**: [Link](https://www.directvsports.com/futbol/en-vivo-0-0-union-y--su-duelo-por-la-llave-7-del-clausura-20251121-0006.html)
@@ -976,61 +1031,5 @@ Sin noticias relacionadas disponibles.
 - **Australia's social media ban for kids under 16 - how will it work?**: [Link](https://www.bbc.com/news/articles/cwyp9d3ddqyo)
 - **Facebook and Instagram to start kicking Australian teenagers off platforms as social media ban looms**: [Link](https://www.theguardian.com/australia-news/2025/nov/19/meta-starts-notifying-australian-teens-of-account-shutdowns-as-social-media-ban-looms)
 - **Amazon's Twitch Under Scrutiny for Age Restrictions in Australia**: [Link](https://www.gurufocus.com/news/3220066/amazons-twitch-under-scrutiny-for-age-restrictions-in-australia)
-
-
-### juan pablo varillas (N/A, 21/11/2025 15:27 Lima)
-
-- **Juan Pablo Varillas avanzó a los cuartos de final del Challenger de Guayaquil**: [Link](https://elcomercio.pe/deporte-total/tenis/juan-pablo-varillas-avanzo-a-los-cuartos-de-final-del-challenger-de-guayaquil-murkel-dellien-ultimas-noticia/)
-- **Bueno queda fuera del Challenger de Guayaquil tras derrota**: [Link](https://diarioviral.pe/deportes/bueno-queda-fuera-del-challenger-de-guayaquil-tras-derrota-49095)
-- **Juan Pablo Varillas y Gonzalo Bueno debutan con triunfo en el Challenger de Guayaquil**: [Link](https://rpp.pe/tenis/mas-tenis/juan-pablo-varillas-y-gonzalo-bueno-debutan-con-triunfo-en-el-challenger-de-guayaquil-noticia-1664344)
-
-
-### niza - marsella (N/A, 21/11/2025 15:27 Lima)
-
-- **Marsella se mide con Niza en busca de mantener su buen momento**: [Link](https://www.espn.com.pe/futbol/francia/nota/_/id/15972338/niza-vs-marsella-por-ligue-1-equipo-fecha-hora-y-tv-en-vivo)
-- **Liga de Francia: Olympique de Marsella busca subir a la cima del torneo**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-de-francia-olympique-de-marsella-busca-subir-a-la-cima-del-torneo-noticia-1664561)
-- **Pronóstico Nice - Marseille. Ligue 1 | 21/11/2025**: [Link](https://gainblers.com/pe/pronosticos/futbol/francia/ligue-1/pronostico-nice-marseille-21-11-2025/)
-
-
-### mainz 05 - hoffenheim (N/A, 21/11/2025 15:27 Lima)
-
-- **Liveticker | 1. FSV Mainz 05 - TSG Hoffenheim : | 11. Spieltag | Bundesliga 2025/26**: [Link](https://www.kicker.de/mainz-gegen-hoffenheim-2025-bundesliga-5050842/ticker)
-- **Der Sporttalk mit Julian Beimel**: [Link](https://www.1730live.de/2025/11/21/der-sporttalk-mit-julian-beimel-10/)
-- **Mainz-05-Ticker: Schweigen die 05-Fans gegen Hoffenheim?**: [Link](https://www.mittelhessen.de/sport/fussball/fussball-bundesliga/mainz-05-ticker-schweigen-die-05-fans-gegen-hoffenheim-4804899)
-
-
-### bodo glimt (N/A, 21/11/2025 15:27 Lima)
-
-- **Juventus receive double injury boost in Thursday’s training session**: [Link](https://www.juvefc.com/dusan-vlahovic-juan-cabal-training-juventus-squad/)
-- **Report: Juventus rule out Vlahovic injury, but status to face Fiorentina still unclear**: [Link](https://sports.yahoo.com/article/report-juventus-rule-vlahovic-injury-210555465.html)
-- **TFF stands firm in keeping Kenan Yıldız after Juventus recall | Daily Sabah**: [Link](https://www.dailysabah.com/sports/football/tff-stands-firm-in-keeping-kenan-yildiz-after-juventus-recall)
-
-
-### marruecos sub-17 - brasil sub-17 (N/A, 21/11/2025 11:30 Lima)
-
-- **Marruecos - Brasil, en vivo: última hora del Mundial Sub 17, hoy en directo**: [Link](https://as.com/futbol/internacional/marruecos-brasil-en-vivo-ultima-hora-del-mundial-sub-17-hoy-en-directo-f202511-n/)
-- **Baha mira a Brasil con confianza y celebra nuevo brillo del fútbol marroquí en la escena mundial**: [Link](https://es.rue20.com/2025/11/20/baha-mira-a-brasil-con-confianza-y-celebra-nuevo-brillo-del-futbol-marroqui-en-la-escena-mundial/)
-- **Brasil vs. Marruecos, por el Mundial Sub 17, EN VIVO: dónde verlo por TV y cómo seguirlo ONLINE**: [Link](https://www.tycsports.com/futbol-internacional/brasil-vs-marruecos-por-el-mundial-sub-17-en-vivo-donde-ver-por-tv-y-online-id699559.html)
-
-
-### consulta dni (N/A, 21/11/2025 11:30 Lima)
-
-- **Fonavi: MEF cambia a su representante en la Comisión Ad Hoc encargada de la devolución de aportes**: [Link](https://larepublica.pe/economia/2025/11/20/fonavi-mef-cambia-a-su-representante-en-la-comision-ad-hoc-encargada-de-la-devolucion-de-aportes-hnews-848960)
-- **Devolución Fonavi 2025: cómo saber si eres beneficiario, consulta con tu DNI**: [Link](https://elcomercio.pe/respuestas/tramites/fonavi-2025-consulta-con-dni-si-eres-beneficiario-y-quienes-integran-la-lista-22-link-padron-tdpe-noticia/)
-- **Fonavi aprobó el Reintegro 4: ¿Quiénes pueden cobrar este noviembre de 2025?**: [Link](https://libero.pe/tiempoextra/2025/11/11/fonavi-aprobo-reintegro-4-quienes-pueden-cobrar-noviembre-de-2025-828179)
-
-
-### al ittihad - al riyadh (N/A, 21/11/2025 11:30 Lima)
-
-- **Al Ittihad vs Al Riyadh: Live streaming, TV channel, kick-off time & where to watch Saudi Pro League 2025-26**: [Link](https://khelnow.com/football/world-football-al-ittihad-vs-al-riyadh-where-to-watch-202511)
-- **Reports Confirm Delay in Sharahili's Return and Increase Defensive Ittihad's Worries**: [Link](https://www.ysscores.com/en/news/13858108/Reports-Confirm-Delay-in-Sharahili's-Return-and-Increase-Defensive-Ittihad's-Worries)
-- **Al-Ittihad heavily favored over struggling Al-Riyadh, winners of 4 straight H2H meetings**: [Link](https://www.red94.net/news/39036-al-ittihad-heavily-favored-over-struggling-al-riyadh-winners-of-4-straight-h2h-m/)
-
-
-### dni (N/A, 21/11/2025 11:30 Lima)
-
-- **Trámite de DNI electrónico gratis este 26 de noviembre: ¿Dónde y quiénes son los beneficiarios?**: [Link](https://www.infobae.com/peru/2025/11/21/tramite-de-dni-electronico-gratis-este-26-de-noviembre-donde-y-quienes-son-los-beneficiarios/)
-- **RENIEC dará DNI electrónico gratuito el 21 de noviembre: así puedes obtenerlo**: [Link](https://elcomercio.pe/respuestas/tramites/reniec-dara-dni-electronico-gratuito-el-20-y-21-de-noviembre-asi-puedes-obtenerlo-tdpe-noticia/)
-- **DNI electrónico gratis en noviembre 2025: Estos son los distritos beneficiados**: [Link](https://lahora.pe/nacional/dni-electronico-gratis-en-noviembre-2025-estos-son-los-distritos-beneficiados/)
 
 
