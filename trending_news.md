@@ -1,3 +1,73 @@
+### unión - gimnasia (N/A, 24/11/2025 20:57 Lima)
+
+- **EN VIVO: 0-0: Unión y su duelo por la llave 7 del Clausura**: [Link](https://www.directvsports.com/futbol/en-vivo-0-0-union-y--su-duelo-por-la-llave-7-del-clausura-20251121-0006.html)
+- **Unión vs Gimnasia: Resultado EN VIVO y goles por los octavos de final**: [Link](https://www.365scores.com/es/news/union-vs-gimnasia-resultado-vivo-goles/)
+- **El hincha de Unión volvió a marcar la diferencia con su pasión para el partido ante Gimnasia**: [Link](https://www.unosantafe.com.ar/union/el-hincha-union-volvio-marcar-la-diferencia-su-pasion-el-partido-gimnasia-n10231491.html)
+
+
+### internacional (N/A, 24/11/2025 20:57 Lima)
+
+- **A New Blow for Neymar: More Time Away From the Pitch**: [Link](https://www.beinsports.com/en-us/soccer/articles/a-new-blow-for-neymar-more-time-away-from-the-pitch-2025-11-24)
+- **Neymar suffers concerning injury setback for Santos’ key relegation clash vs. Internacional**: [Link](https://worldsoccertalk.com/news/neymar-suffers-concerning-injury-setback-for-santos-key-relegation-clash-vs-internacional/)
+- **Bad news for Neymar**: [Link](https://foot-africa.com/en/news/bad-news-for-neymar-972908/)
+
+
+### gabriela michel (N/A, 24/11/2025 20:57 Lima)
+
+- **Confirman muerte de Gabriela Michel, mamá de Aislinn Derbez y actriz de doblaje, a los 65 años**: [Link](https://www.elfinanciero.com.mx/espectaculos/2025/11/24/muere-gabriela-michel-actriz-de-doblaje-y-mama-de-aislinn-derbez/)
+- **Muere mamá de Aislinn Derbez**: [Link](https://www.univision.com/famosos/muere-mama-aislinn-derbez)
+- **Se cumple la regla de tres, mueren una actriz, un actor y una cantante este lunes 24 de noviembre**: [Link](https://heraldodemexico.com.mx/espectaculos/2025/11/24/se-cumple-la-regla-de-tres-mueren-una-actriz-un-actor-una-cantante-este-lunes-24-de-noviembre-747469.html)
+
+
+### habrá paro de transportistas (N/A, 24/11/2025 20:57 Lima)
+
+- **¿Habrá paro de transporte el martes 25 de noviembre en Lima y Callao? Los últimos acuerdos de los gremios tras atentado contra empresas**: [Link](https://larepublica.pe/sociedad/2025/11/24/habra-paro-de-transporte-el-martes-25-de-noviembre-en-lima-y-callao-los-ultimos-acuerdos-de-los-gremios-tras-atentado-contra-empresas-ntpe-349800)
+- **Martín Ojeda, vocero del gremio Transportes Unidos: “Otro atentado puede causar un efecto dominó”**: [Link](https://diariocorreo.pe/edicion/lima/martin-ojeda-vocero-del-gremio-transportes-unidos-otro-atentado-puede-causar-un-efecto-domino-noticia/)
+- **Delincuentes elevan cobro de extorsiones a transportistas por Navidad y Año Nuevo**: [Link](https://caretas.pe/nacional/delincuentes-elevan-cobro-de-extorsiones-a-transportistas-por-navidad-y-ano-nuevo/)
+
+
+### lucas martínez quarta (N/A, 24/11/2025 20:57 Lima)
+
+- **Gallardo define el 11: la probable formación de River vs. Racing por el Torneo Clausura 2025**: [Link](https://lapaginamillonaria.com/torneo-clausura/gallardo-define-el-11-la-probable-formacion-de-river-vs-racing-por-el-torneo-clausura-2025)
+- **Una vuelta importante y una ausencia de peso en los convocados para jugar con Racing**: [Link](https://www.tycsports.com/river-plate/river-convocados-regreso-montiel-ausencia-colidio-racing-octavos-de-final-torneo-clausura-id700419.html)
+- **Muchas sorpresas: el 11 de Gallardo para el duelo entre River y Racing**: [Link](https://tntsports.com.ar/ligaprofesional/sorpresas-once-gallardo-river-racing-20251124-0026.html)
+
+
+### internacional vs santos (N/A, 24/11/2025 20:57 Lima)
+
+- **Neymar no levanta cabeza**: [Link](https://as.com/futbol/internacional/neymar-no-levanta-cabeza-f202511-n/)
+- **Neymar sufre otro mazazo**: [Link](https://www.fichajes.com/a3975489787424783700-neymar-sufre-otro-mazazo)
+- **Zona de descenso: posiciones de Santos de Neymar en el Brasileirao**: [Link](https://www.365scores.com/es/news/zona-de-descenso-posiciones-santos-liga/)
+
+
+### wilson soto (N/A, 24/11/2025 20:57 Lima)
+
+- **Congresista Wilson Soto presenta proyecto de ley para regular contenidos digitales especializados y prevenir la desinformación**: [Link](https://comunicaciones.congreso.gob.pe/damos-cuenta/congresista-wilson-soto-presenta-proyecto-de-ley-para-regular-contenidos-digitales-especializados-y-prevenir-la-desinformacion/)
+- **Buscan regular a creadores de contenido e influencers del país**: [Link](https://diarioep.pe/buscan-regular-a-creadores-de-contenido-e-influencers-del-pais/)
+- **Congresista busca exigir título profesional a creadores de contenido**: [Link](https://www.atv.pe/noticia/congresista-busca-exigir-titulo-profesional-a-creadores-de-contenido/)
+
+
+### internacional - santos (N/A, 24/11/2025 20:57 Lima)
+
+- **Internacional vs Santos: pronósticos, cuotas, y datos para apostar!**: [Link](https://www.apwin.com/es/pronosticos/internacional-vs-santos-pronostico-brasileirao-serie-a-25-11-2025/)
+- **Pronóstico Internacional - Santos. Brasileirao Serie A | 25/11/2025**: [Link](https://gainblers.com/pe/pronosticos/futbol/brasil/brasileirao-serie-a/pronostico-internacional-santos-25-11-2025/)
+- **¿Juega Neymar? Donde ver Internacional vs Santos**: [Link](https://www.365scores.com/es/news/neymar-donde-ver-internacional-vs-santos/)
+
+
+### violencia contra la mujer (N/A, 24/11/2025 20:57 Lima)
+
+- **Blindan Palacio ante marcha feminista: refuerzan vallas con bloques de concreto**: [Link](https://aristeguinoticias.com/2411/mexico/blindan-palacio-ante-marcha-feminista-refuerzan-vallas-con-bloques-de-concreto/)
+- **Brugada presentará iniciativas para combatir violencia contra las mujeres y la creación de una defensoría**: [Link](https://es-us.noticias.yahoo.com/brugada-presentar%C3%A1-iniciativas-combatir-violencia-092915796.html)
+- **CDMX suspende Zócalo Ciudadano este martes 25 de noviembre: cuál es la razón**: [Link](https://www.infobae.com/mexico/2025/11/24/cdmx-suspende-zocalo-ciudadano-este-martes-25-de-noviembre-cual-es-la-razon/)
+
+
+### primera división (N/A, 24/11/2025 20:57 Lima)
+
+- **La Premier League saca los colores al resto en la Champions**: [Link](https://www.rfi.fr/es/m%C3%A1s-noticias/20251124-la-premier-league-saca-los-colores-al-resto-en-la-champions)
+- **Premier 7-1 LaLiga en Champions**: [Link](https://www.flashscore.com.ar/noticias/futbol-champions-league-laliga-no-puede-con-la-premier-league-en-champions/0ruDDQtg/)
+- **Los ingleses mandan en la Champions League**: [Link](https://www.flashscore.es/noticias/premier-league-brilla-champions-league/tQKaokom/)
+
+
 ### xiaomi (N/A, 24/11/2025 15:28 Lima)
 
 - **Este Xiaomi con cámaras 4K, 512GB, chip Snapdragon y cámara de 200MP solo cuesta $350**: [Link](https://libero.pe/tecnologia/2025/11/24/xiaomi-redmi-note-14-pro-plus-5g-512gb-caracteristicas-precio-peru-mexico-especificaciones-procesador-snapdragon-7s-gen-3-12gb-ram-512gb-memoria-triple-camara-108mp-4k-lanzamiento-2024-2137056)
@@ -962,73 +1032,5 @@ Sin noticias relacionadas disponibles.
 - **Trámite de DNI electrónico gratis este 26 de noviembre: ¿Dónde y quiénes son los beneficiarios?**: [Link](https://www.infobae.com/peru/2025/11/21/tramite-de-dni-electronico-gratis-este-26-de-noviembre-donde-y-quienes-son-los-beneficiarios/)
 - **RENIEC dará DNI electrónico gratuito el 21 de noviembre: así puedes obtenerlo**: [Link](https://elcomercio.pe/respuestas/tramites/reniec-dara-dni-electronico-gratuito-el-20-y-21-de-noviembre-asi-puedes-obtenerlo-tdpe-noticia/)
 - **DNI electrónico gratis en noviembre 2025: Estos son los distritos beneficiados**: [Link](https://lahora.pe/nacional/dni-electronico-gratis-en-noviembre-2025-estos-son-los-distritos-beneficiados/)
-
-
-### billy idol (N/A, 21/11/2025 11:30 Lima)
-
-- **Who sang the female backing vocals on Billy Idol’s ‘Eyes Without a Face’?**: [Link](https://faroutmagazine.co.uk/who-sang-female-backing-vocals-on-billy-idols-eyes-without-a-face/)
-- **Hear Billy Idol With a String Quartet on New ‘Dying to Live’ Ballad**: [Link](https://www.rollingstone.com/music/music-news/billy-idol-dying-to-live-billy-idol-should-be-good-doc-1235465382/)
-- **Billy Idol and J. Ralph Join Forces on New Song “Dying To Live” For Upcoming Documentary Billy ...**: [Link](https://music.mxdwn.com/2025/11/15/news/billy-idol-and-j-ralph-join-forces-on-new-song-dying-to-live-for-upcoming-documentary-billy-idol-should-be-dead/)
-
-
-### rt (N/A, 21/11/2025 11:30 Lima)
-
-- **“Wicked: For Good” Is Very, Very Bad**: [Link](https://www.newyorker.com/culture/the-current-cinema/wicked-for-good-is-very-very-bad)
-- **Box Office: ‘Wicked: For Good’ Earns Huge $30.8 Million in Previews, Highest of the Year**: [Link](https://variety.com/2025/film/box-office/box-office-wicked-for-good-previews-1236587612/)
-- **6 New Movies Our Critics Are Talking About This Week**: [Link](https://www.nytimes.com/2025/11/21/movies/new-movies-this-week-critics.html)
-
-
-### clima lima (N/A, 21/11/2025 07:50 Lima)
-
-- **Vuelve el frío en primavera: Senamhi activa alerta naranja por descenso de temperatura en Lima y 12 regiones del país**: [Link](https://www.infobae.com/peru/2025/11/19/vuelve-el-frio-senamhi-activa-alerta-naranja-por-drastico-descenso-de-temperatura-en-lima-y-12-regiones/)
-- **¿Por qué Lima amaneció con una intensa llovizna y sensación de frío en plena primavera? Esto dijo el Senamhi**: [Link](https://rpp.pe/lima/actualidad/por-que-lima-amanecio-con-una-intensa-llovizna-y-sensacion-de-frio-en-plena-primavera-esto-dijo-el-senamhi-noticia-1664543)
-- **Lluvias moderadas a fuertes caerán en la Selva asociadas al vigésimo noveno friaje**: [Link](https://andina.pe/agencia/noticia-lluvias-moderadas-a-fuertes-caeran-la-selva-asociadas-al-vigesimo-noveno-friaje-1052782.aspx)
-
-
-### black friday 2025 (N/A, 21/11/2025 07:50 Lima)
-
-- **Black Friday 2025 deals from Amazon, Walmart and Target are happening now: Here's what we're shopping during the biggest sale of the year**: [Link](https://www.yahoo.com/lifestyle/deals/article/black-friday-2025-deals-from-amazon-walmart-and-target-are-happening-now-heres-what-were-shopping-during-the-biggest-sale-of-the-year-175448806.html)
-- **87 of Amazon's best Black Friday Week deals to shop now**: [Link](https://www.aboutamazon.com/news/retail/amazon-black-friday-best-deals-shop-2025-us)
-- **Amazon’s Black Friday Sale Is Already Happening: 37+ Deals We’re Shopping**: [Link](https://www.nbcnews.com/select/shopping/best-early-amazon-black-friday-deals-2025-rcna244834)
-
-
-### videos (N/A, 21/11/2025 07:50 Lima)
-
-- **Why Democrats are warning about Trump giving illegal orders**: [Link](https://www.cnn.com/2025/11/20/politics/hang-democrats-trump-seditious-behavior)
-- **Rep. Jason Crow on video urging troops to refuse illegal orders and Trump's response**: [Link](https://www.npr.org/2025/11/21/nx-s1-5615204/rep-jason-crow-on-video-urging-troops-to-refuse-illegal-orders-and-trumps-response)
-- **Trump: Democrats' message to troops seditious behavior, punishable by death**: [Link](https://www.bbc.com/news/articles/cx2p2dz9zk2o)
-
-
-### stephany abasali (N/A, 21/11/2025 07:50 Lima)
-
-- **Miss Venezuela: Stephany Abasali, el mensaje educativo como causa social en Miss Universo 2025**: [Link](https://www.yahoo.com/news/videos/miss-venezuela-stephany-abasali-el-004412804.html)
-- **Mexico Wins Miss Universe Pageant Marred by Scandal**: [Link](https://www.nytimes.com/2025/11/21/world/asia/miss-universe-mexico.html)
-- **Miss Mexico, who sparked a walkout after host's bullying, is crowned Miss Universe**: [Link](https://www.nbcnews.com/world/mexico/miss-mexico-stood-hosts-bullying-crowned-miss-universe-rcna245093)
-
-
-### miss universo 2024 (N/A, 20/11/2025 23:29 Lima)
-
-Sin noticias relacionadas disponibles.
-
-
-### miss venezuela 2025 (N/A, 20/11/2025 23:29 Lima)
-
-- **🔵 VEA Venevisión EN VIVO por Internet | Transmisión de la Final del Miss Universo 2025 con Stephany Abasali**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/venevision-en-vivo-gratis-como-ver-a-stephany-abasali-en-final-del-miss-universo-2025-por-tv-abierta-y-venevision-play-online-miss-venezuela-nnda-nnrt-noticia/)
-- **La despampanante presentación en traje de baño de Venezuela en el Miss Universo**: [Link](https://www.ntn24.com/noticias-entretenimiento/la-despampanante-presentacion-en-traje-de-bano-de-venezuela-en-el-miss-universo-591141)
-- **qbnoticias**: [Link](https://www.instagram.com/p/DRTd4yejPv7/)
-
-
-### tijuana - juárez (N/A, 20/11/2025 23:29 Lima)
-
-- **Tijuana vs FC Juárez: posibles alineaciones y lo que debes saber**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/15972773/tijuana-vs-juarez-alineaciones-formaciones-fecha-horario-y-lo-que-debes-saber-play-in-apertura-2025)
-- **✅ ¿A qué hora empieza y en qué canal TV mirar Tijuana vs. Juárez EN VIVO AHORA por Play In de Liga MX 2025?**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/a-que-hora-juega-y-que-canal-transmite-tijuana-vs-juarez-en-vivo-hoy-por-el-play-in-de-liga-mx-2025-horarios-y-canales-usa-nnda-nnrt-noticia/)
-- **Liga MX: FC Juárez se enfrentará a Tijuana por la llave 2**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-fc-juarez-se-enfrentara-a-tijuana-por-la-llave-2-noticia-1664485)
-
-
-### bucks - 76ers (N/A, 20/11/2025 23:29 Lima)
-
-- **76ers vs. Bucks (21 Nov, 2025) Live Score**: [Link](https://africa.espn.com/nba/game/_/gameId/401810121)
-- **Raptors 121-112 76ers (20 Nov, 2025) Video Highlights**: [Link](https://africa.espn.com/nba/video?gameId=401810113)
-- **Maxey powers Sixers over Bucks as Spurs beat Hawks**: [Link](https://uk.sports.yahoo.com/news/maxey-powers-sixers-over-bucks-040541612.html)
 
 
