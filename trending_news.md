@@ -1,3 +1,52 @@
+### lakers - clippers (N/A, 25/11/2025 23:31 Lima)
+
+- **James Harden & Luka Doncic: Players Props, Odds, and Lines for Superstars in NBA Cup Game**: [Link](https://news.bet365.com/en-us/article/james-harden-and-luka-doncic-players-props-odds-and-lines-for-superstars-in-nba-cup-game/2025112522154375865)
+- **Los Angeles Lakers vs Los Angeles Clippers LIVE Score Updates (0-0)**: [Link](https://www.vavel.com/en-us/nba/2025/11/26/1242438-lakers-vs-clippers-live-score-nba-cup.html)
+- **bet365 bonus code NYPBET: Bet $5, get $150 in bonus bets for Clippers vs. Lakers**: [Link](https://nypost.com/2025/11/25/betting/bet365-bonus-code-nypbet-bet-5-get-150-in-bonus-bets-for-clippers-vs-lakers/)
+
+
+### 76ers - magic (N/A, 25/11/2025 23:31 Lima)
+
+- **MrBuckBuck: The full altercation between Philadelphia …**: [Link](https://www.hoopshype.com/story/sports/nba/rumors/2025/11/25/mrbuckbuck-the-full-altercation-between-philadelphia/87476588007/)
+- **Anthony Black scores 27, Jalen Suggs ejected in Magic-76ers first half**: [Link](https://www.nytimes.com/athletic/6838636/2025/11/25/jalen-suggs-ejected-anthony-black-stats-orlando-76ers/)
+- **Suggs tossed, 4 others T'd up in Magic-Sixers tiff**: [Link](https://www.espn.co.uk/nba/story/_/id/47102921/suggs-tossed-4-others-get-technical-fouls-magic-sixers-tiff)
+
+
+### setlist dua lipa (N/A, 25/11/2025 23:31 Lima)
+
+- **Dua Lipa cantará hoy “Cariñito” en su concierto en el Estadio San Marcos de Lima**: [Link](https://www.infobae.com/peru/2025/11/25/dua-lipa-cantara-hoy-carinito-en-su-concierto-en-el-estadio-san-marcos-de-lima/)
+- **Dua Lipa en Lima: ¿cómo logró una fortuna mayor a los US$ 160 millones antes de los 30 años?**: [Link](https://gestion.pe/tendencias/dua-lipa-en-lima-fortuna-de-la-cantante-britanica-ya-supera-los-us-160-millones-noticia/)
+- **Dua Lipa en Perú: ¿A cuánto asciende la fortuna de la reconocida cantante?**: [Link](https://elcomercio.pe/tvmas/famosos/dua-lipa-en-peru-a-cuanto-asciende-la-fortuna-de-la-reconocida-cantante-celebs-ultimas-noticia/)
+
+
+### grupo frontera (N/A, 25/11/2025 23:31 Lima)
+
+- **Grupo Frontera llegará por primera vez al Perú: fecha, lugar y precio de entradas para su concierto**: [Link](https://www.infobae.com/peru/2025/11/23/grupo-frontera-llegara-por-primera-vez-al-peru-fecha-lugar-y-precio-de-entradas-para-su-concierto/)
+- **Grupo frontera anuncia gira mundial 2026 y confirma fecha para su concierto en El Salvador - La Prensa Gráfica**: [Link](https://www.laprensagrafica.com/farandula/grupo-frontera-anuncia-gira-mundial-2026-y-confirma-fecha-para-su-concierto-en-el-salvador-20251124-0015.html)
+- **Comienza la venta de entradas para los conciertos del Grupo Frontera en Quito y Guayaquil**: [Link](https://www.primicias.ec/entretenimiento/musica/venta-entradas-conciertos-grupo-frontera-quito-guayaquil-110005/)
+
+
+### kick (N/A, 25/11/2025 23:31 Lima)
+
+- **What happened between SteveWillDoIt and Logan Paul on Impaulsive Podcast? Here's why he was asked to leave over MrBeast**: [Link](https://poprant.indiatimes.com/trending/what-happened-between-stevewilldoit-and-logan-paul-on-impaulsive-podcast-heres-why-he-was-asked-to-leave-over-mrbeast-676099.html)
+- **STEVEWILLDOIT RETURNS TO YOUTUBE DECEMBER 24TH**: [Link](https://xodivad.com/2025/11/18/stevewilldoit-returns-to-youtube-december-24th/)
+- **Why Is SteveWillDoIt Banned From YouTube: Reason Why Logan Paul Kicked Him Out From His Podcast**: [Link](https://fandomwire.com/why-is-stevewilldoit-banned-from-youtube-reason-why-logan-paul-kicked-him-out-from-his-podcast/)
+
+
+### dolar sol (N/A, 25/11/2025 23:31 Lima)
+
+- **¿Dólar se disparó a S/4,45? Google mostró valor incorrecto del tipo de cambio y alarmó a peruanos**: [Link](https://www.infobae.com/peru/2025/11/25/dolar-se-disparo-a-s367-google-muestra-valor-incorrecto-del-tipo-de-cambio/)
+- **¿Dólar a 4,45? Google muestra incorrecto tipo de cambio**: [Link](https://larepublica.pe/economia/2025/11/25/dolar-a-445-google-muestra-incorrecto-tipo-de-cambio-hnews-760550)
+- **Precio del dólar vuelve a caer: Así cerró el tipo de cambio hoy 25 de noviembre en Perú**: [Link](https://www.infobae.com/peru/2025/11/24/peru-cotizacion-de-apertura-del-dolar-hoy-24-de-noviembre-de-usd-a-pen/)
+
+
+### a que hora se estrena stranger things 5 en peru (N/A, 25/11/2025 23:31 Lima)
+
+- **Stranger Things 5: fecha de estreno de los episodios de cada parte y la duración de la última temporada**: [Link](https://cnnespanol.cnn.com/2025/11/21/entretenimiento/stranger-things-5-estreno-episodios-duracion-orix)
+- **Stranger Things 5: fecha y horarios de estreno de la última temporada en Netflix**: [Link](https://www.infobae.com/entretenimiento/2025/11/25/stranger-things-5-fecha-y-horarios-de-estreno-de-la-ultima-temporada-en-netflix/)
+- **‘Stranger Things’ 5: cuándo se estrena la última temporada y todos sus capítulos**: [Link](https://elpais.com/television/series/2025-11-24/stranger-things-5-cuando-se-estrena-la-ultima-temporada-y-todos-sus-capitulos.html)
+
+
 ### euro hoy (N/A, 25/11/2025 20:57 Lima)
 
 - **Euro: cotización de cierre hoy 25 de noviembre en Guatemala**: [Link](https://www.infobae.com/noticias/2025/11/25/euro-cotizacion-de-cierre-hoy-25-de-noviembre-en-guatemala/)
@@ -978,52 +1027,5 @@ Sin noticias relacionadas disponibles.
 - **Fiorentina-Juve | ✅ UFFICIALI: la scelta su Koop, Gud e Vlahovic 🧨**: [Link](https://onefootball.com/it/notizie/fiorentina-juve-ufficiali-la-scelta-su-koop-gud-e-vlahovic-41987262)
 - **La spinta di tutta la città. Dai fischi alla rivoluzione. Primo sold out dell’anno. Il Franchi sarà una bolgia**: [Link](https://sport.quotidiano.net/calcio/fiorentina/la-spinta-di-tutta-la-f7960499)
 - **Serie A | Le formazioni ufficiali di Fiorentina-Juventus**: [Link](https://www.juventus.com/it/news/articoli/serie-a-2025-2026-fiorentina-juventus-formazioni-ufficiali)
-
-
-### nico williams (N/A, 22/11/2025 11:28 Lima)
-
-- **Valverde: "Nosotros siempre recibimos a Nico con los brazos abiertos"**: [Link](https://www.marca.com/futbol/primera-division/2025/11/21/valverde-nosotros-siempre-recibimos-nico-brazos-abiertos-video.html)
-- **El recado del Athletic al Barça tras el 'caso Nico Williams'**: [Link](https://www.sport.es/es/noticias/barca/recado-athletic-barca-caso-nico-123987783)
-- **El regreso del Barça al Spotify Camp Nou no es el único aliciente para ver el partido contra el Athletic: el 'alta' que añade el morbo**: [Link](https://www.mundodeportivo.com/futbol/20251122/1002573062/regreso-barca-spotify-camp-nou-unico-aliciente-ver-partido-athletic-alta-anade-morbo.html)
-
-
-### lens vs (N/A, 22/11/2025 11:28 Lima)
-
-- **Liga de Francia: Lens va en busca de un triunfo ante RC Strasbourg para trepar a la punta**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-de-francia-lens-va-en-busca-de-un-triunfo-ante-rc-strasbourg-para-trepar-a-la-punta-noticia-1664723)
-
-
-### al hilal (N/A, 22/11/2025 11:28 Lima)
-
-- **Post-Match Chaos in Kigali After MC Alger vs. Al-Hilal**: [Link](https://www.moroccoworldnews.com/2025/11/269062/post-match-chaos-in-kigali-after-mc-alger-vs-al-hilal/)
-- **Rulani Mokwena braced for tough Group C challenge**: [Link](https://foot-africa.com/en/news/rulani-mokwena-braced-for-tough-group-c-challenge-970220/)
-- **MC Alger humbled in Rwanda**: [Link](https://africanfootball.com/news/832618/MC-Alger-humbled-in-Rwanda)
-
-
-### alejandro baldé (N/A, 22/11/2025 11:28 Lima)
-
-- **Report: Bayern Munich won’t pursue Alejandro Grimaldo**: [Link](https://www.bavarianfootballworks.com/bayern-munich-transfer-rumors-news/149355/bayern-munich-transfer-rumors-alejandro-grimaldo-bayer-leverkusen-raphael-guerreiro)
-- **Barcelona debating full-backs again amid doubts over Jules Kounde and Alejandro Balde**: [Link](https://www.barcablaugranes.com/fc-barcelona-transfer-rumors-news/106030/barcelona-debating-full-backs-again-amid-doubts-over-jules-kounde-and-alejandro-balde)
-- **Transfer rumors, news: Pulisic will wait until signing new Milan contract**: [Link](https://www.espn.ph/football/story/_/id/46996608/transfer-rumors-news-barcelona-eye-grimaldo-amid-major-changes-squad)
-
-
-### futbol libre (N/A, 22/11/2025 11:28 Lima)
-
-- **Lanús enfrentará a Atlético Mineiro en Paraguay con el sueño de ser campeón de la Copa Sudamericana: hora, TV y todo lo que hay que saber**: [Link](https://www.infobae.com/deportes/2025/11/22/lanus-enfrentara-a-atletico-mineiro-en-paraguay-con-el-sueno-de-ser-campeon-de-la-copa-sudamericana-hora-tv-y-todo-lo-que-hay-que-saber/)
-- **Tiago Pagnussat: "Para Lanús es una final de Libertadores"**: [Link](https://espndeportes.espn.com/futbol/copa-sudamericana/nota/_/id/15989444/tiago-pagnussat-para-lanus-es-una-final-de-libertadores)
-- **Lanús vs. Atlético Mineiro, por la final de la Sudamericana: dónde ver en vivo, formaciones y horario**: [Link](https://www.tycsports.com/copa-sudamericana/conmebol-copa-sudamericana-2025-lanus-vs-atletico-mineiro-final-id699921.html)
-
-
-### liverpool (N/A, 22/11/2025 11:28 Lima)
-
-- **Premier League LIVE: Burnley vs Chelsea - scores, results & updates**: [Link](https://www.bbc.com/sport/football/live/cly1018wl19t)
-- **Antoine Semenyo: Liverpool, Man City and Spurs monitoring Bournemouth forward ahead of January transfer window**: [Link](https://www.skysports.com/football/news/11095/13470257/antoine-semenyo-liverpool-man-city-and-spurs-monitoring-bournemouth-forward-ahead-of-january-transfer-window)
-- **Bournemouth’s Antoine Semenyo has £65m release clause with January transfer possible - The Athletic**: [Link](https://www.nytimes.com/athletic/6814786/2025/11/17/antoine-semenyo-transfer-clause-bournemouth/)
-
-
-### nac - psv (N/A, 22/11/2025 11:28 Lima)
-
-- **Live Eredivisie | NAC mist kansen op openingsgoal tegen PSV, later Ajax-Excelsior**: [Link](https://www.nu.nl/voetbal/6376866/live-eredivisie-nac-mist-kansen-op-openingsgoal-tegen-psv-later-ajax-excelsior.html)
-- **LIVE | Eerste kans is voor NAC: Valerius schiet over t**: [Link](https://www.bndestem.nl/nac/live-eerste-kans-is-voor-nac-valerius-schiet-over-t~a5d86991/)
-- **LIVE | Koploper PSV met captain Schouten in hart van defensie op bezoek bij NAC**: [Link](https://www.ed.nl/psv/live-koploper-psv-met-captain-schouten-in-hart-van-defensie-op-bezoek-bij-nac~a3746a87/)
 
 
