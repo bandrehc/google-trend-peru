@@ -1,3 +1,72 @@
+### psg (N/A, 26/11/2025 15:26 Lima)
+
+- **Ousmane Dembélé peut-il faire son retour contre Tottenham ? « En tout cas, il a faim, comme toujours »**: [Link](https://www.lequipe.fr/Football/Article/Ousmane-dembele-peut-il-faire-son-retour-contre-tottenham-en-tout-cas-il-a-faim-comme-toujours/1611760)
+- **Pourquoi l'absence de Renato Marin dans le groupe du PSG pour la réception de Tottenham Spurs ? Réponse**: [Link](https://tribuna.com/fr/news/2025-11-26-pourquoi-labsence-de-renato-marin-dans-le-groupe-du-psg-pour-la-reception-de-tottenham-sp/)
+- **PSG - Tottenham : Les salaires comparés de ce choc de Ligue des Champions**: [Link](https://www.90min.com/fr/psg-tottenham-les-salaires-compares-de-ce-choc-de-ligue-des-champions-26-11-2025)
+
+
+### tarjeta roja (N/A, 26/11/2025 15:26 Lima)
+
+- **Cristiano Ronaldo podrá jugar en el debut del Mundial 2026: la FIFA lo perdona, pero de forma condicional**: [Link](https://cnnespanol.cnn.com/2025/11/25/deportes/cristiano-ronaldo-perdon-mundial-2026-orix)
+- **Sanción “suspendida”: la treta para que Cristiano juegue el Mundial**: [Link](https://as.com/futbol/internacional/sancion-suspendida-la-treta-para-que-cristiano-juegue-el-mundial-f202511-n/)
+- **Indulto para Cristiano Ronaldo: podrá jugar el primer partido del Mundial**: [Link](https://www.marca.com/futbol/mundial/2025/11/25/indulto-cristiano-ronaldo-podra-jugar-primer-partido-mundial.html)
+
+
+### flashscore (N/A, 26/11/2025 15:26 Lima)
+
+- **Liiga: Tappara are the new leaders in Finland after they beat Jukurit to move above Assat**: [Link](https://www.flashscore.com/news/hockey-liiga-liiga-roundup-tappara-knock-assat-off-top-spot-with-narrow-win-over-jukurit/hbDMhX8a/)
+- **Pats LT Campbell to IR, out at least until Week 18**: [Link](https://www.espn.com/nfl/story/_/id/47110215/patriots-put-lt-campbell-ir-rule-lg-jared-wilson)
+- **Patriots Place T Will Campbell on Injured Reserve; Announce Additional Roster Moves**: [Link](https://www.patriots.com/news/patriots-place-t-will-campbell-on-injured-reserve-announce-additional-roster-moves)
+
+
+### atletico madrid vs (N/A, 26/11/2025 15:26 Lima)
+
+- **Preview: Atletico Madrid vs Inter Milan - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/atletico-madrid/champions-league/preview/atletico-vs-inter-milan-prediction-team-news-lineups_586363.html)
+- **Lautaro Martinez: ‘First they said I didn't score in the Champions League, now it's the opposite’**: [Link](https://tribuna.com/en/news/2025-11-26-lautaro-martinez-first-they-said-i-didnt-score-in-the-champions-league-now-its-the-opposi/)
+- **The Club Diego Simeone Wants to Manage After Leaving Atlético de Madrid**: [Link](https://www.beinsports.com/en-us/soccer/la-liga/articles/the-club-diego-simeone-wants-to-manage-after-leaving-atl%C3%A9tico-de-madrid-2025-11-26)
+
+
+### liverpool vs (N/A, 26/11/2025 15:26 Lima)
+
+- **In full: Arne Slot's programme notes for Liverpool v PSV Eindhoven**: [Link](https://www.liverpoolfc.com/news/full-arne-slots-programme-notes-liverpool-v-psv-eindhoven)
+- **Liverpool must avoid 9-year low and why Anfield offers reason for optimism**: [Link](https://www.thisisanfield.com/2025/11/liverpool-must-avoid-9-year-low-psv/)
+- **PSV manager makes pointed admission ahead of Liverpool’s must-win European night**: [Link](https://onefootball.com/es/noticias/psv-manager-makes-pointed-admission-ahead-of-liverpools-must-win-european-night-42005981)
+
+
+### lennart karl (N/A, 26/11/2025 15:26 Lima)
+
+- **Lennart Karl: Bayern teen who Lothar Matthaus wants at World Cup**: [Link](https://www.thetimes.com/sport/football/article/lennart-karl-bayern-munich-arsenal-l9np7l9ns)
+- **Lothar Matthäus makes case for Bayern Munich and Germany to unleash Lennart Karl; Revenge game for Harry Kane?; Champions League predictions; and MORE!**: [Link](https://www.bavarianfootballworks.com/transfer-rumors/150482/matthaus-bayern-munich-germany-karl-kane-arsenal-champions-league-predictions)
+- **Arsenal transfer audition ready as German ‘gem’ breaks ANOTHER record – ‘Extraordinary stuff’**: [Link](https://onefootball.com/it/notizie/arsenal-transfer-audition-ready-as-german-gem-breaks-another-record-extraordinary-stuff-41996122)
+
+
+### psv vs (N/A, 26/11/2025 15:26 Lima)
+
+- **Liverpool enfrenta a PSV en busca de mantenerse en zona de clasificación directa en la Champions**: [Link](https://www.espn.com.pe/futbol/champions-league/nota/_/id/16001136/liverpool-vs-psv-fase-liga-fecha-5-champions-equipo-fecha-hora-tv-en-vivo)
+- **Alineación del Liverpool vs. PSV: El once inicial, las noticias del equipo y el puesto de lesionados reflexionan sobre la cuestión de Ekitike o Isak**: [Link](https://www.ucvradio.pe/mas-actualidad/alineacion-del-liverpool-vs-psv-el-once-inicial-las-noticias-del-equipo-y-el-puesto-de-lesionados-reflexionan-sobre-la-cuestion-de-ekitike-o-isak/59931/)
+- **Champions League: PSV se enfrentará a Liverpool por la fecha 5**: [Link](https://rpp.pe/futbol/ligas-internacionales/champions-league-psv-se-enfrentara-a-liverpool-por-la-fecha-5-noticia-1665237)
+
+
+### betson (N/A, 26/11/2025 15:26 Lima)
+
+- **Betson Supports IAAPA’s Footprints from the Heart**: [Link](https://www.replaymag.com/betson-supports-iaapas-footprints-from-the-heart/)
+- **Coin-op amusements news | Betson Enterprises raises funds for Give Kids The World Village**: [Link](https://www.intergameonline.com/coin-op/news/betson-enterprises-raises-funds-for-give-kids-the-world-village)
+
+
+### disney (N/A, 26/11/2025 15:26 Lima)
+
+- **‘Zootopia 2’ Review: Natural Habitats, Expanded**: [Link](https://www.nytimes.com/2025/11/26/movies/zootopia-2-review.html)
+- **'Zootopia 2,' 'Wicked: For Good' lead Thanksgiving box office**: [Link](https://www.cnbc.com/2025/11/26/thanksgiving-box-office-zootopia-2-wicked-for-good.html)
+- **‘Zootopia 2’ Review: Jason Bateman and Ginnifer Goodwin Return for a Blast of a Sequel Full of Delights Both Familiar and New**: [Link](https://www.hollywoodreporter.com/movies/movie-reviews/zootopia-2-review-jason-bateman-ginnifer-goodwin-disney-1236434563/)
+
+
+### disney plus (N/A, 26/11/2025 15:26 Lima)
+
+- **Romario Da Silva confía en salir campeón de Copa Centroamericana: "Vamos por este título"**: [Link](https://www.espn.com.pe/futbol/guatemala/nota/_/id/16005981/romario-da-silva-salir-campeon-copa-centroamericana-concacaf)
+- **¿A qué hora juega y qué canal transmite LDA Alajuelense vs. Xelajú EN VIVO hoy 26 de noviembre por Copa Centroamericana 2025 en USA?**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/a-que-hora-juega-y-que-canal-transmite-lda-alajuelense-vs-xelaju-en-vivo-hoy-26-de-noviembre-por-copa-centroamericana-2025-en-usa-nnda-nnrt-noticia/)
+- **Concacaf destaca desempeño de Jesús López y Rubén Silva rumbo a final de Copa Centroamericana**: [Link](https://www.espn.com.pe/futbol/guatemala/nota/_/id/15990701/concacaf-destaca-desempeno-jesus-lopez-y-ruben-silva-rumbo-final-copa-centroamericana)
+
+
 ### onpe elige tu local de votacion (N/A, 26/11/2025 11:32 Lima)
 
 - **Elige tu local de votación HOY: link oficial de la ONPE para las Elecciones 2026**: [Link](https://www.infobae.com/peru/2025/11/23/elige-tu-local-de-votacion-link-oficial-de-la-onpe-para-las-elecciones-2026/)
@@ -952,75 +1021,5 @@ Sin noticias relacionadas disponibles.
 - **Alianza Lima vs Rebaza Acosta 3-0: resumen del triunfazo ‘blanquiazul’ por la fecha 5 de la Liga Peruana de Vóley 2025/2026**: [Link](https://www.infobae.com/peru/deportes/2025/11/22/alianza-lima-vs-rebaza-acosta-en-vivo-hoy-latina-fecha-5-primera-fase-liga-peruana-de-voley-20252026-resumen-resultado/)
 - **Programación de la fecha 5 en la Liga Peruana de Vóley 2025-2026: días y horarios de todos los partidos**: [Link](https://rpp.pe/voley/mas-voley/liga-peruana-de-voley-2025-2026-programacion-de-la-fecha-5-fixture-fecha-y-horario-de-los-partidos-alianza-lima-universitario-san-martin-regatas-lpv-noticia-1664044)
 - **Regatas vs San Martín en vivo: hora, canal tv y dónde ver la Liga Peruana de Vóley**: [Link](https://elcomercio.pe/deporte-total/voley/regatas-vs-san-martin-en-vivo-hora-canal-tv-y-donde-ver-la-liga-peruana-de-voley-latina-tv-video-resumen-sets-y-puntos-tdpe-noticia/)
-
-
-### latina (N/A, 22/11/2025 23:36 Lima)
-
-- **Esto tres restaurantes peruanos se encuentran en la lista extendida de los Latin America’s 50 Best Restaurants**: [Link](https://forbes.pe/forbes-life/2025-11-18/esto-tres-restaurantes-peruanos-se-encuentran-en-la-lista-extendida-de-los-latin-americas-50-best-restaurants/)
-- **Astrid y Gastón, Clon y Shizen ingresan a la lista ampliada 2025 de los 50 Mejores Restaurantes de América Latina**: [Link](https://cosas.pe/actualidad/356637/astrid-y-gaston-clon-y-shizen-ingresan-a-la-lista-ampliada-2025-de-los-50-mejores-restaurantes-de-america-latina/)
-- **Tres restaurantes peruanos destacan entre los 100 mejores de Latin America’s 50 Best 2025, reflejando el buen momento de la cocina limeña**: [Link](https://www.infobae.com/peru/2025/11/18/tres-restaurantes-peruanos-destacan-entre-los-100-mejores-de-latin-americas-50-best-2025-reflejando-el-buen-momento-de-la-cocina-limena/)
-
-
-### whitecaps - lafc (N/A, 22/11/2025 21:10 Lima)
-
-- **How all-world MLS signings Son, Müller have seamlessly fit in - The Athletic**: [Link](https://www.nytimes.com/athletic/6825204/2025/11/21/son-heung-min-thomas-muller-vancouver-whitecaps-lafc-mls-playoffs/)
-- **Vancouver, LAFC set for "nerve-racking" Western Conference Semifinal**: [Link](https://www.mlssoccer.com/playoffs/2025/news/whitecaps-lafc-set-for-nerve-racking-western-conference-semifinal-at-sold-out-bc-place)
-- **Vancouver Whitecaps vs LAFC Predictions: Son and LAFC to advance**: [Link](https://www.goal.com/en-us/betting/vancouver-whitecaps-vs-lafc-predictions-11-22/bltab0919ab2bc4edf0)
-
-
-### fluminense vs (N/A, 22/11/2025 21:10 Lima)
-
-- **Palmeiras vs Fluminense RJ pronostico y comparación de cuotas 23.11.2025**: [Link](https://www.livetipsportal.com/es/pronosticos-apuestas-deportivas/palmeiras-vs-fluminense-rj-serie-a-10963427/)
-- **Pronóstico Palmeiras - Fluminense. Brasileirao Serie A | 23/11/2025**: [Link](https://gainblers.com/pe/pronosticos/futbol/brasil/brasileirao-serie-a/pronostico-palmeiras-fluminense-23-11-2025/)
-- **Newcastle vs. Man City (22 de Nov., 2025) Resultados en Vivo**: [Link](https://www.espn.com.pe/futbol/partido/_/juegoId/740712)
-
-
-### central córdoba - san lorenzo (N/A, 22/11/2025 21:10 Lima)
-
-- **Central Córdoba y San Lorenzo empatan por los octavos de final del Torneo Clausura**: [Link](https://www.infobae.com/deportes/2025/11/22/central-cordoba-y-san-lorenzo-buscaran-un-lugar-en-los-cuartos-de-final-del-torneo-clausura-en-santiago-del-estero-hora-tv-y-formaciones/)
-- **Fútbol libre por celular: cómo ver en vivo Central Córdoba vs. San Lorenzo**: [Link](https://www.minutouno.com/deportes/futbol-libre-celular-como-ver-vivo-central-cordoba-vs-san-lorenzo-n6216673)
-- **Los convocados por Ayude para el partido por Octavos**: [Link](https://onefootball.com/es/noticias/los-convocados-por-ayude-para-el-partido-por-octavos-41985029)
-
-
-### tolima - bucaramanga (N/A, 22/11/2025 21:10 Lima)
-
-- **Tolima sale a reforzar su liderato frente a Bucaramanga en Ibagué**: [Link](https://www.espn.com.ar/futbol/colombia/nota/_/id/15986121/tolima-vs-bucaramanga-fecha-2-cuadrangulares-equipo-fecha-hora-y-tv-en-vivo)
-- **Gramado del Murillo Toro ‘a punto’ para el juego entre Tolima Vs. Bucaramanga**: [Link](https://ondasdeibague.com/noticias/principales/65-destacadas-2/64683-gramado-del-murillo-toro-a-punto-para-el-juego-entre-tolima-vs-bucaramanga)
-- **Comunicado Oficial: situación sobre el partido entre Deportes Tolima vs. Atlético Bucaramanga**: [Link](https://dimayor.com.co/2025/11/22/comunicado-oficial-situacion-sobre-el-partido-entre-deportes-tolima-vs-atletico-bucaramanga/)
-
-
-### u. católica - palestino (N/A, 22/11/2025 21:10 Lima)
-
-- **Universidad Católica recibe a Palestino con el objetivo de seguir firme por conseguir el cupo a Chile 2**: [Link](https://www.espn.com.ar/futbol/chile/nota/_/id/15986975/universidad-catolica-vs-palestino-vigesimo-octava-fecha-liga-de-primera-2025-equipo-fecha-y-hora)
-- **[VIDEO] Fernando Zampedri no falló de penal y adelantó a la UC sobre Palestino**: [Link](https://cooperativa.cl/noticias/deportes/futbol/liga-de-primera/video-fernando-zampedri-no-fallo-de-penal-y-adelanto-a-la-uc-sobre/2025-11-22/211819.html)
-- **U. Católica asegura la victoria al vencer 2-1 a Palestino**: [Link](https://www.t13.cl/noticia/deportes13/u-catolica-asegura-la-victoria-al-vencer-2-1-a-palestino-22-11-2025)
-
-
-### palmeiras - fluminense (N/A, 22/11/2025 21:10 Lima)
-
-- **Fluminense divulga relacionados para enfrentar o Palmeiras sem Thiago Silva, Ganso e Lucho Acosta**: [Link](https://onefootball.com/pt-br/noticias/fluminense-divulga-relacionados-para-enfrentar-o-palmeiras-sem-thiago-silva-ganso-e-lucho-acosta-41988968)
-- **Confira como está o banco de reservas do Fluminense para a partida diante do Palmeiras**: [Link](https://www.netflu.com.br/confira-como-esta-o-banco-de-reservas-do-fluminense-para-a-partida-diante-do-palmeiras/)
-- **Palmeiras x Fluminense: escalações e onde assistir ao jogo do Brasileirão**: [Link](https://www.cnnbrasil.com.br/esportes/brasileirao/palmeiras-x-fluminense-escalacoes-e-onde-assistir-ao-jogo-do-brasileirao/)
-
-
-### flamengo - bragantino (N/A, 22/11/2025 21:10 Lima)
-
-- **Flamengo x Bragantino: onde assistir ao vivo, horário e escalações**: [Link](https://ge.globo.com/rj/futebol/brasileirao-serie-a/noticia/2025/11/22/flamengo-x-bragantino-onde-assistir-ao-vivo-horario-e-escalacoes.ghtml)
-- **Carrascal comete falta forte e polêmica ‘estoura’ nas redes sociais: “Tá descarado já”**: [Link](https://br.bolavip.com/flamengo/carrascal-comete-falta-forte-e-polemica-estoura-nas-redes-sociais-ta-descarado-ja)
-- **Flamengo tem volta de Arrascaeta e Cebolinha titular contra o Bragantino**: [Link](https://www.uol.com.br/esporte/futebol/ultimas-noticias/2025/11/22/flamengo-tem-volta-de-arrascaeta-e-cebolinha-titular-contra-o-bragantino.htm)
-
-
-### billy idol (N/A, 22/11/2025 21:10 Lima)
-
-- **Billy Idol talks 'whirlwind' '80s rock life and his new 'vantage point'**: [Link](https://www.usatoday.com/story/entertainment/music/2025/11/22/billy-idol-documentary-interview/87404734007/)
-- **Hear Billy Idol With a String Quartet on New ‘Dying to Live’ Ballad**: [Link](https://www.rollingstone.com/music/music-news/billy-idol-dying-to-live-billy-idol-should-be-good-doc-1235465382/)
-- **Billy Idol and J. Ralph Join Forces on New Song “Dying To Live” For Upcoming Documentary Billy ...**: [Link](https://music.mxdwn.com/2025/11/15/news/billy-idol-and-j-ralph-join-forces-on-new-song-dying-to-live-for-upcoming-documentary-billy-idol-should-be-dead/)
-
-
-### costa 21 (N/A, 22/11/2025 21:10 Lima)
-
-- **Airbag en Lima: Rutas exclusivas de transporte público para que fans se movilicen tras concierto en la Costa Verde**: [Link](https://www.infobae.com/peru/2025/11/22/airbag-en-lima-rutas-exclusivas-de-transporte-publico-para-que-fans-se-movilicen-tras-concierto-en-la-costa-verde/)
-- **Airbag en Lima: conoce las rutas habilitadas del 'Bus Stage' de ATU desde Costa 21 hacia SJL, Chosica, VES y Carabayllo**: [Link](https://larepublica.pe/sociedad/2025/11/22/airbag-en-lima-conoce-las-rutas-habilitadas-del-bus-stage-de-atu-desde-costa-21-hacia-sjl-chosica-ves-y-carabayllo-1687004)
-- **Airbag en Perú: fans se alistan para concierto sold out en el Multiespacio Costa 21**: [Link](https://larepublica.pe/espectaculos/2025/11/21/airbag-en-peru-fans-de-banda-argentina-se-alistan-para-concierto-sold-out-en-lima-y-arequipa-nunca-lo-olvides-por-mil-noches-435582)
 
 
