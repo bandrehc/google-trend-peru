@@ -1,3 +1,15 @@
+### xiaomi (N/A, 26/11/2025 07:54 Lima)
+
+- **Xiaomi: “Nos estamos posicionando como una marca ‘premium’ en el Perú”**: [Link](https://elcomercio.pe/economia/dia-1/xiaomi-nos-estamos-posicionando-como-una-marca-premium-en-el-peru-xiaomi-peru-noticia/)
+
+
+### lakers (N/A, 26/11/2025 07:54 Lima)
+
+- **Kris Dunn ejected after swinging at Luka Doncic in Lakers win**: [Link](https://basketnews.com/news-235725-kris-dunn-ejected-after-swinging-at-luka-doncic-in-lakers-win.html)
+- **Kendrick Perkins: “Clippers should be ashamed of themselves”**: [Link](https://www.talkbasket.net/206992-kendrick-perkins-clippers-should-be-ashamed-of-themselves)
+- **Luka Doncic blasts NBA Cup courts: It's slippery, dangerous**: [Link](https://www.hoopshype.com/story/sports/nba/2025/11/26/luka-doncic-blasts-nba-cup-courts-its-slippery-dangerous/87479276007/)
+
+
 ### nike (N/A, 26/11/2025 03:34 Lima)
 
 - **Nike Founder Phil Knight Announces Record-Breaking Political Donation**: [Link](https://www.yahoo.com/news/articles/nike-founder-phil-knight-announces-174916413.html)
@@ -1013,19 +1025,5 @@ Sin noticias relacionadas disponibles.
 - **Villarreal vs Mallorca: Apuestas, Pronóstico y Cuotas**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2025/noviembre/pronostico-villarreal-vs-mallorca-22-11-25)
 - **'29 de 39 puntos me parecen una pasada': Marcelino se olvida de la Champions para centrarse en el Mallorca**: [Link](https://tribuna.com/es/news/2025-11-22-29-de-39-puntos-me-parecen-una-pasada-marcelino-se-olvida-de-la-champions-para-centrarse/)
 - **Galería: El frío protagoniza la previa del Villarreal-Mallorca**: [Link](https://www.elperiodicomediterraneo.com/fotos/villarrealcf/2025/11/22/galeria-frio-protagoniza-previa-villarreal-124016770.html)
-
-
-### temblor hoy (N/A, 22/11/2025 15:25 Lima)
-
-- **Un sismo de magnitud 3.5 remeció la región Lima esta tarde**: [Link](https://rpp.pe/lima/actualidad/lima-sismo-de-magnitud-35-remecio-la-region-esta-tarde-noticia-1664929)
-- **Sismo en Áncash hoy, sábado 22 de noviembre vía IGP: Magnitud, hora y otros temblores en Perú**: [Link](https://elcomercio.pe/peru/igp-reporto-temblor-en-peru-hoy-21-y-22-de-noviembre-sismos-registrados-lugar-exacto-hora-y-magnitud-ultima-hora-censis-tdpe-noticia/)
-- **Terremoto moderado mag. 4.5 - 13 km NE of La Oroya, Peru, jueves 20 nov 2025 a las 08:18 (Hora Lima)**: [Link](https://www.volcanodiscovery.com/es/sismos/informe-sismo/22414947/mag4quake-Nov-20-2025-Central-Peru.html)
-
-
-### precio del dólar hoy perú (N/A, 22/11/2025 15:25 Lima)
-
-- **Precio del dólar en subida: Así se cotiza el tipo de cambio hoy 22 de noviembre en Perú**: [Link](https://www.infobae.com/peru/2025/11/21/valor-de-apertura-del-dolar-en-peru-este-21-de-noviembre-de-usd-a-pen/)
-- **Precio del dólar en Perú: a cuánto cerró el tipo de cambio el viernes 21 de noviembre**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-en-peru-2025-a-cuanto-esta-el-dolar-este-viernes-21-de-noviembre-tipo-de-cambio-segun-bcrp-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
-- **¿Cuánto está el dólar HOY? Precio compra y venta para este viernes 21 de noviembre**: [Link](https://latinanoticias.pe/te-ayudo/cuanto-esta-el-dolar-hoy-precio-compra-y-venta-para-este-21-de-noviembre-cotizacion-dolar-ahora-en-lima-sunat-sbs-bcrp-adp-noticia_20251121/)
 
 
