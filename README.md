@@ -1,3 +1,69 @@
+### euro hoy (N/A, 25/11/2025 20:57 Lima)
+
+- **Euro: cotización de cierre hoy 25 de noviembre en Guatemala**: [Link](https://www.infobae.com/noticias/2025/11/25/euro-cotizacion-de-cierre-hoy-25-de-noviembre-en-guatemala/)
+- **Valor de apertura del euro en Guatemala este 17 de noviembre de EUR a GTQ**: [Link](https://www.infobae.com/noticias/2025/11/17/valor-de-apertura-del-euro-en-guatemala-este-17-de-noviembre-de-eur-a-gtq/)
+- **Guatemala: cotización de cierre del euro hoy 20 de noviembre de EUR a GTQ**: [Link](https://www.infobae.com/noticias/2025/11/20/guatemala-cotizacion-de-cierre-del-euro-hoy-20-de-noviembre-de-eur-a-gtq/)
+
+
+### flamengo (N/A, 25/11/2025 20:57 Lima)
+
+- **Atlético-MG x Flamengo: onde assistir ao vivo, horário e escalações**: [Link](https://ge.globo.com/mg/futebol/brasileirao-serie-a/noticia/2025/11/25/atletico-mg-x-flamengo-onde-assistir-ao-vivo-horario-e-escalacoes.ghtml)
+- **Samuel Lino revela conversa do elenco com Filipe Luís por títulos**: [Link](https://fla.mundobola.com/samuel-lino-revela-conversa-do-elenco-com-filipe-luis-por-titulos/)
+- **Lista atualizada de todos os campeões da Série A do Campeonato Brasileiro**: [Link](https://www.nsctotal.com.br/noticias/lista-atualizada-de-todos-os-campeoes-da-serie-a-do-campeonato-brasileiro)
+
+
+### euro (N/A, 25/11/2025 20:57 Lima)
+
+Sin noticias relacionadas disponibles.
+
+
+### stranger things (N/A, 25/11/2025 20:57 Lima)
+
+- **‘Stranger Things’: 10 Things The Duffer Brothers Want You to Know Before Watching the Final Season**: [Link](https://www.hollywoodreporter.com/lists/stranger-things-season-5-duffer-brothers-recommendations/)
+- **Stranger Things is ending, and so is Netflix’s reliance on tentpole shows**: [Link](https://www.theverge.com/streaming/828254/stranger-things-season-5-netflix-tentpoles-future)
+- **‘Stranger Things’ Fans Are Binging Netflix Hit Ahead Of Season 5 As First Four Seasons Enter Charts**: [Link](https://deadline.com/2025/11/stranger-things-netflix-ratings-four-seasons-1236628742/)
+
+
+### flamengo vs (N/A, 25/11/2025 20:57 Lima)
+
+- **Perú percibirá alrededor de 70 millones de dólares por albergar la final de la Conmebol Copa Libertadores**: [Link](https://rpp.pe/futbol/copa-libertadores/copa-libertadores-peru-percibira-alrededor-de-70-millones-de-dolares-por-albergar-la-final-entre-flamengo-vs-palmerias-estadio-monumental-noticia-1665231)
+- **Miraflores lanza campaña con miras a la final de la Copa Conmebol Libertadores**: [Link](https://elperuano.pe/noticia/283782-miraflores-lanza-campana-con-miras-a-la-final-de-la-copa-conmebol-libertadores)
+- **Abre sus puertas: el Fan Zone Conmebol Libertadores se estrenó en Lima**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/final-copa-libertadores-2025-fan-zone-abre-sus-puertas-en-lima-noticia/)
+
+
+### gremio vs (N/A, 25/11/2025 20:57 Lima)
+
+- **Todo sobre la lesión que sufrió Erick Noriega en Gremio**: [Link](https://www.americatv.com.pe/deportes/futbol-mundial/todo-sobre-lesion-que-sufrio-erick-noriega-gremio-n451802)
+- **Alarma por Erick Noriega tras su lesión en la derrota de Gremio**: [Link](https://www.futbolperuano.com/peruanos-en-el-exterior/noticias/erick-noriega-preocupa-en-gremio-salio-lesionado-ante-botafogo-en-su-regreso-tras-la-gira-con-la-seleccion-peruana-552476)
+- **Medio brasileño lanzó duro calificativo a Erick Noriega tras derrota de Gremio: "Errores de..."**: [Link](https://libero.pe/futbol-internacional/2025/11/22/erick-noriega-medio-brasileno-lanzo-duro-calificativo-jugador-derrota-de-gremio-botafogo-errores-de-brasileirao-2025-2108150)
+
+
+### estreno de stranger things 5 (N/A, 25/11/2025 20:57 Lima)
+
+- **Stranger Things 5: fecha de estreno de los episodios de cada parte y la duración de la última temporada**: [Link](https://cnnespanol.cnn.com/2025/11/21/entretenimiento/stranger-things-5-estreno-episodios-duracion-orix)
+- **‘Stranger Things’ 5: cuándo se estrena la última temporada y todos sus capítulos**: [Link](https://elpais.com/television/series/2025-11-24/stranger-things-5-cuando-se-estrena-la-ultima-temporada-y-todos-sus-capitulos.html)
+- **Los hermanos Duffer revelaron los 10 datos que los fans deben saber antes de ver la temporada final de Stranger Things**: [Link](https://www.infobae.com/entretenimiento/2025/11/25/los-hermanos-duffer-revelaron-los-10-datos-que-los-fans-deben-saber-antes-de-ver-la-temporada-final-de-stranger-things/)
+
+
+### precio del dolar (N/A, 25/11/2025 20:57 Lima)
+
+- **Tipo de cambio: ¿En cuánto está el dólar este martes 25 de noviembre?**: [Link](https://elcomercio.pe/economia/peru/tipo-de-cambio-en-cuanto-esta-el-dolar-este-martes-25-de-noviembre-tipo-de-cambio-cotizacion-del-dolar-dolar-noticia/)
+- **Precio del dólar Perú y tipo de cambio hoy 25 de noviembre del 2025**: [Link](https://rpp.pe/economia/economia/precio-del-dolar-peru-y-tipo-de-cambio-hoy-25-de-noviembre-del-2025-noticia-1665201)
+- **¿Subió o bajó? Precio del dólar HOY en Perú: Así cotiza el tipo de cambio este martes, 25 de noviembre**: [Link](https://www.exitosanoticias.pe/actualidad/subio-o-bajo-precio-dolar-hoy-peru-asi-cotiza-tipo-cambio-martes-25-noviembre-n163419)
+
+
+### santa fe - tolima (N/A, 25/11/2025 20:57 Lima)
+
+Sin noticias relacionadas disponibles.
+
+
+### dolar a soles (N/A, 25/11/2025 20:57 Lima)
+
+- **¿Dólar se disparó a S/3,67? Google muestra valor incorrecto del tipo de cambio**: [Link](https://www.infobae.com/peru/2025/11/25/dolar-se-disparo-a-s367-google-muestra-valor-incorrecto-del-tipo-de-cambio/)
+- **Tipo de cambio: ¿En cuánto está el dólar este martes 25 de noviembre?**: [Link](https://elcomercio.pe/economia/peru/tipo-de-cambio-en-cuanto-esta-el-dolar-este-martes-25-de-noviembre-tipo-de-cambio-cotizacion-del-dolar-dolar-noticia/)
+- **Precio del dólar Perú y tipo de cambio hoy 25 de noviembre del 2025**: [Link](https://rpp.pe/economia/economia/precio-del-dolar-peru-y-tipo-de-cambio-hoy-25-de-noviembre-del-2025-noticia-1665201)
+
+
 ### newcastle vs (N/A, 25/11/2025 15:28 Lima)
 
 - **Preview:Marseille vs Newcastle United - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/newcastle-united/champions-league/preview/marseille-vs-newcastle-prediction-team-news-lineups_586281.html)
@@ -959,75 +1025,5 @@ Sin noticias relacionadas disponibles.
 - **Live Eredivisie | NAC mist kansen op openingsgoal tegen PSV, later Ajax-Excelsior**: [Link](https://www.nu.nl/voetbal/6376866/live-eredivisie-nac-mist-kansen-op-openingsgoal-tegen-psv-later-ajax-excelsior.html)
 - **LIVE | Eerste kans is voor NAC: Valerius schiet over t**: [Link](https://www.bndestem.nl/nac/live-eerste-kans-is-voor-nac-valerius-schiet-over-t~a5d86991/)
 - **LIVE | Koploper PSV met captain Schouten in hart van defensie op bezoek bij NAC**: [Link](https://www.ed.nl/psv/live-koploper-psv-met-captain-schouten-in-hart-van-defensie-op-bezoek-bij-nac~a3746a87/)
-
-
-### leverkusen (N/A, 22/11/2025 11:28 Lima)
-
-- **Kowalski schießt Essen gegen Leverkusen zum ersten Saisonsieg**: [Link](https://www1.wdr.de/sport/fussball/erste-bundesliga/fbl-leverkusen-essen-bericht-100.html)
-- **Jetzt live! SGS Essen gegen Bayer Leverkusen -Frauenfußball-Bundesliga im Ticker**: [Link](https://www.waz.de/sport/lokalsport/essen/article410512621/jetzt-live-sgs-essen-gegen-bayer-leverkusen-im-ticker.html)
-- **Trainer Pätzold fordert vor Duell mit der SGS Essen mehr Torgefahr**: [Link](https://www.fupa.net/news/trainer-paetzold-fordert-vor-duell-mit-der-sgs-essen-mehr-torgefahr-3147773)
-
-
-### disney plus (N/A, 22/11/2025 11:28 Lima)
-
-- **5 must-watch movies & TV shows streaming right now**: [Link](https://www.boston.com/culture/streaming/2025/11/21/5-must-watch-movies-tv-shows-streaming-right-now-november-21-2025/)
-- **7 new movies and TV shows to watch on Netflix, Prime Video, HBO Max, and more this weekend (November 21)**: [Link](https://www.techradar.com/streaming/7-new-movies-and-tv-shows-to-watch-on-netflix-prime-video-hbo-max-and-more-this-weekend-november-21)
-- **The Five Best New Movies To Stream This Weekend (November 21)**: [Link](https://www.timeout.com/news/the-best-new-movies-to-stream-this-week-november-21-111425)
-
-
-### alavés - celta de vigo (N/A, 22/11/2025 07:43 Lima)
-
-- **Alavés - Celta de Vigo, hoy en directo: LaLiga EA Sports en vivo**: [Link](https://as.com/futbol/primera/alaves-celta-de-vigo-hoy-en-directo-laliga-ea-sports-en-vivo-f202511-d/)
-- **Apuestas y pronósticos Alavés vs Celta**: [Link](https://www.marca.com/apuestas-deportivas/predicciones/2025/11/21/apuestas-pronosticos-alaves-vs-celta.html)
-- **En manos de las baterías antiaéreas**: [Link](https://www.lavozdegalicia.es/noticia/gradario/2025/11/22/manos-baterias-antiaereas/0003_202511V22P44995.htm)
-
-
-### yape (N/A, 22/11/2025 07:43 Lima)
-
-- **Yape habilita funcionalidad para reportar a extorsionadores: Podrán cerrar cuentas**: [Link](https://www.infobae.com/peru/2025/11/21/yape-habilita-funcionalidad-para-reportar-a-extorsionadores-podran-cerrar-cuentas/)
-- **Usuarios de billeteras digitales tendrán la opción de aceptar o rechazar transferencias**: [Link](https://elperuano.pe/noticia/283464-usuarios-de-billeteras-digitales-tendran-la-opcion-de-aceptar-o-rechazar-transferencias)
-- **Yape lanza funcionalidad para reportar cuenta de extorsionadores l Yape | bcp | Billeteras digitales | ECONOMIA**: [Link](https://elcomercio.pe/economia/peru/yape-lanza-funcionalidad-para-reportar-cuenta-de-extorsionadores-l-yape-l-ultimas-noticia/)
-
-
-### burnley - chelsea (N/A, 22/11/2025 07:43 Lima)
-
-- **Preview:Burnley vs Chelsea - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/chelsea/preview/burnley-vs-chelsea-prediction-team-news-lineups_586034.html)
-- **'The boys are ready': Chalobah speaks ahead of Burnley clash**: [Link](https://tribuna.com/en/news/2025-11-22-the-boys-are-ready-chalobah-speaks-ahead-of-burnley-clash/)
-- **Chelsea XI vs Burnley: Estevao, Caicedo, Garnacho Benched for EPL Clash**: [Link](https://chelseafconline.com/2025/11/chelsea-xi-vs-burnley-estevao-caicedo-garnacho-benched-for-epl-clash/)
-
-
-### sydney - melbourne victory (N/A, 22/11/2025 07:43 Lima)
-
-- **Sydney FC vs Melbourne Victory Tips, Predictions and Bet Builder**: [Link](https://news.bet365.com/en-gb/article/football-sydney-fc-melbourne-victory-tips-and-predictions/2025112112184667115)
-- **Watch + Stream The Big Blue On 10 Drama**: [Link](https://10.com.au/a-league/articles/watch-stream-the-big-blue-on-10-drama/tpa251119exupo)
-- **Victory Men toppled in the Big Blue**: [Link](https://melbournevictory.com.au/news/victory-men-toppled-in-the-big-blue/)
-
-
-### barcelona vs. athletic (N/A, 22/11/2025 07:43 Lima)
-
-- **El posible once del Barça ante el Athletic en el partido del regreso, del morbo y del liderato**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20251122/1002573550/posible-once-barca-athletic-partido-regreso-morbo-liderato.html)
-- **Cuatro cambios y una duda de Flick para la vuelta a casa ante el Athletic**: [Link](https://www.sport.es/es/noticias/barca/cuatro-cambios-duda-flick-vuelta-123983442)
-- **Barcelona vs Athletic Club: posibles alineaciones, Jornada 13, LaLiga**: [Link](https://www.espn.com.ar/futbol/espana/nota/_/id/15987456/barcelona-athletic-club-alineaciones-jornada-13-laliga-2025)
-
-
-### poder judicial delia espinoza (N/A, 22/11/2025 07:43 Lima)
-
-- **El caso Espinoza llega al Tribunal Constitucional**: [Link](https://lpderecho.pe/caso-espinoza-tribunal-constitucional/)
-- **Poder Judicial rechaza pedidos de aclaración de Delia Espinoza**: [Link](https://canaln.pe/actualidad/poder-judicial-rechaza-pedidos-aclaracion-delia-espinoza-n488409)
-- **JNJ evalúa abrir investigación a juez Torres Tasso**: [Link](https://diariocorreo.pe/politica/jnj-evalua-abrir-investigacion-a-juez-torres-tasso-noticia/)
-
-
-### formula 1 (N/A, 22/11/2025 03:29 Lima)
-
-- **Russell goes fastest during final practice in Las Vegas**: [Link](https://www.formula1.com/en/latest/article/fp3-russell-goes-fastest-from-verstappen-and-albon-during-final-practice-in.6obkr2bsdkzJVvHfY2d5UH)
-- **Las Vegas Grand Prix 2025: Lando Norris fastest in practice as loose manhole cover disrupts session**: [Link](https://www.bbc.com/sport/formula1/articles/c98n8zeygdko)
-- **Las Vegas Grand Prix 2025 F1 Qualifying LIVE Updates: Hamilton Crashes Out As Wet Surface Welcomes Drivers**: [Link](https://www.outlookindia.com/sports/formula-1/las-vegas-grand-prix-2025-qualifying-live-blog-strip-circuit-f1-updates)
-
-
-### dolar peru (N/A, 22/11/2025 03:29 Lima)
-
-- **Precio del dólar ahora sube: Así cerró el tipo de cambio hoy 21 de noviembre en Perú**: [Link](https://www.infobae.com/peru/2025/11/21/valor-de-apertura-del-dolar-en-peru-este-21-de-noviembre-de-usd-a-pen/)
-- **Precio del dólar en Perú: a cuánto cerró el tipo de cambio el viernes 21 de noviembre**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-en-peru-2025-a-cuanto-esta-el-dolar-este-viernes-21-de-noviembre-tipo-de-cambio-segun-bcrp-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
-- **Precio del dólar Perú y tipo de cambio hoy 20 de noviembre del 2025**: [Link](https://rpp.pe/economia/economia/precio-del-dolar-peru-y-tipo-de-cambio-hoy-20-de-noviembre-del-2025-noticia-1664528)
 
 
