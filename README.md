@@ -1,3 +1,31 @@
+### nike (N/A, 26/11/2025 03:34 Lima)
+
+- **Nike Founder Phil Knight Announces Record-Breaking Political Donation**: [Link](https://www.yahoo.com/news/articles/nike-founder-phil-knight-announces-174916413.html)
+- **Phil Knight is once again rooting for Oregon Republicans next year**: [Link](https://www.opb.org/article/2025/11/25/phil-knight-oregon-republicans-3-million-dollar-donation/)
+- **Nike co-founder Phil Knight gives $3M to Republican PAC**: [Link](https://www.kgw.com/article/money/business/nike-co-founder-phil-knight-republican-pac/283-0d40bfeb-30e6-43ad-bd02-e82b48ded795)
+
+
+### anuel (N/A, 26/11/2025 03:34 Lima)
+
+- **Anuel la lía en Madrid y acaba con la paciencia de sus fans: llega más de una hora tarde y cortan su concierto a la mitad**: [Link](https://www.20minutos.es/gente/anuel-lia-madrid-acaba-con-paciencia-sus-fans-llega-mas-una-hora-tarde-cortan-su-concierto-mitad_6901707_0.html)
+- **Xavi Abat, abogado, sobre si puedes reclamar la entrada del concierto de Anuel AA: "Hay varias opciones"**: [Link](https://www.sport.es/es/noticias/actualidad/xavi-abat-abogado-puedes-reclamar-124051921)
+- **El accidentado paso de Anuel AA por España: conciertos cancelados, horas de retraso y mucho más**: [Link](https://www.europafm.com/noticias/musica/accidentado-paso-anuel-espana-conciertos-cancelados-horas-retraso-mucho-mas_2025112469242fb8df41134465e7145b.html)
+
+
+### lakers vs (N/A, 26/11/2025 03:34 Lima)
+
+- **Clippers vs Lakers Parlay Picks, Odds for Tuesday, November 25**: [Link](https://www.actionnetwork.com/nba/clippers-vs-lakers-parlay-picks-odds-for-tuesday-november-25)
+- **NBA Cup Bet365 Bonus Code SYRACUSE: $150 “Bet and Get” bonus for Clippers vs. Lakers!**: [Link](https://www.syracuse.com/betting/2025/11/nba-cup-bet365-bonus-code-syracuse-150-bet-and-get-bonus-for-clippers-vs-lakers.html)
+- **TST Best Bets: November 25, 2025**: [Link](https://www.thesportingtribune.com/2025/11/25/best-bets-nov25)
+
+
+### bruce willis (N/A, 26/11/2025 03:34 Lima)
+
+- **Demi Moore Gushes Over Never-Before-Seen Photo of Bruce Willis and Their Daughters — Days After Rumer Shared a Heartbreaking Update on 'Dying' Actor's Dementia Battle**: [Link](https://www.aol.com/articles/demi-moore-gushes-over-never-204500475.html)
+- **Demi Moore Gushes Over Never-Before-Seen Photo of Bruce Willis and Their Daughters — Days After Rumer Shared a Heartbreaking Update on 'Dying' Actor's Dementia Battle**: [Link](https://radaronline.com/p/bruce-willis-demi-moore-old-family-photo-dementia-update/)
+- **Bruce Willis refused to apologize for 'offensive' movie role**: [Link](https://www.themirror.com/entertainment/movies/bruce-willis-offensive-movie-apologize-1527269)
+
+
 ### lakers - clippers (N/A, 25/11/2025 23:31 Lima)
 
 - **James Harden & Luka Doncic: Players Props, Odds, and Lines for Superstars in NBA Cup Game**: [Link](https://news.bet365.com/en-us/article/james-harden-and-luka-doncic-players-props-odds-and-lines-for-superstars-in-nba-cup-game/2025112522154375865)
@@ -999,33 +1027,5 @@ Sin noticias relacionadas disponibles.
 - **Precio del dólar en subida: Así se cotiza el tipo de cambio hoy 22 de noviembre en Perú**: [Link](https://www.infobae.com/peru/2025/11/21/valor-de-apertura-del-dolar-en-peru-este-21-de-noviembre-de-usd-a-pen/)
 - **Precio del dólar en Perú: a cuánto cerró el tipo de cambio el viernes 21 de noviembre**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-en-peru-2025-a-cuanto-esta-el-dolar-este-viernes-21-de-noviembre-tipo-de-cambio-segun-bcrp-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
 - **¿Cuánto está el dólar HOY? Precio compra y venta para este viernes 21 de noviembre**: [Link](https://latinanoticias.pe/te-ayudo/cuanto-esta-el-dolar-hoy-precio-compra-y-venta-para-este-21-de-noviembre-cotizacion-dolar-ahora-en-lima-sunat-sbs-bcrp-adp-noticia_20251121/)
-
-
-### napoli - atalanta (N/A, 22/11/2025 15:25 Lima)
-
-- **Napoli v Atalanta: the line-ups | 2025/26 Serie A Enilive MD12**: [Link](https://en.atalanta.it/news/napoli-v-atalanta-the-line-ups-2025-26-serie-a-enilive-md12)
-- **Serie A, le formazioni della 12ª giornata**: [Link](https://www.diretta.it/news/calcio-serie-a-serie-a-le-ufficiali-di-napoli-atalanta-conte-torna-alla-difesa-a-tre-palladino-col-falso-nueve/xry4TNT0/)
-- **De Magistris: “Classifica ancora buona. Conte? Ha un punto debole”**: [Link](https://www.calcionapoli1926.it/interviste/de-magistris-classifica-ancora-buona-conte-ha-un-punto-debole/)
-
-
-### psg vs (N/A, 22/11/2025 15:25 Lima)
-
-- **Preview:Paris Saint-Germain vs Le Havre - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/psg/preview/paris-saint-germain-vs-le-havre-prediction-team-news-lineups_585993.html)
-- **Luis Enrique breaks the codes: the composition that surprises Paris**: [Link](https://frenchfootballweekly.com/2025/11/22/luis-enrique-breaks-the-codes-the-composition-that-surprises-paris/)
-- **France League One Soccer**: [Link](https://www.wvnews.com/sports/pro/france-league-one-soccer/image_05f993d3-a40b-5e0f-92d1-d5f8c8b90ca3.html)
-
-
-### twitch (N/A, 22/11/2025 15:25 Lima)
-
-- **Australia’s under-16s social media ban is weeks away. How will it work – and how can I appeal if I’m wrongly banned?**: [Link](https://www.theguardian.com/media/2025/nov/23/australia-under-16-social-media-ban-how-will-it-work-which-platforms-age-verification)
-- **Meta to block under-16 Australians from Facebook and Instagram early**: [Link](https://dig.watch/updates/meta-to-block-under-16-australians-from-facebook-and-instagram-early)
-- **Complying with Australia’s Social Media Minimum Age Law**: [Link](https://newsroom.snap.com/australia-social-media-minimum-age-law)
-
-
-### fiorentina - juventus (N/A, 22/11/2025 11:28 Lima)
-
-- **Fiorentina-Juve | ✅ UFFICIALI: la scelta su Koop, Gud e Vlahovic 🧨**: [Link](https://onefootball.com/it/notizie/fiorentina-juve-ufficiali-la-scelta-su-koop-gud-e-vlahovic-41987262)
-- **La spinta di tutta la città. Dai fischi alla rivoluzione. Primo sold out dell’anno. Il Franchi sarà una bolgia**: [Link](https://sport.quotidiano.net/calcio/fiorentina/la-spinta-di-tutta-la-f7960499)
-- **Serie A | Le formazioni ufficiali di Fiorentina-Juventus**: [Link](https://www.juventus.com/it/news/articoli/serie-a-2025-2026-fiorentina-juventus-formazioni-ufficiali)
 
 
