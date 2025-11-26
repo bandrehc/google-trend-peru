@@ -1,3 +1,42 @@
+### onpe elige tu local de votacion (N/A, 26/11/2025 11:32 Lima)
+
+- **Elige tu local de votación HOY: link oficial de la ONPE para las Elecciones 2026**: [Link](https://www.infobae.com/peru/2025/11/23/elige-tu-local-de-votacion-link-oficial-de-la-onpe-para-las-elecciones-2026/)
+- **Elecciones Generales 2026: Desde hoy puedes elegir tu local de votación**: [Link](https://elperuano.pe/noticia/283642-elecciones-generales-2026-desde-hoy-puedes-elegir-tu-local-de-votacion)
+- **Elige dónde votar en Elecciones 2026: ciudadanía puede consultar su local de sufragio**: [Link](https://andina.pe/agencia/noticia-elige-donde-votar-elecciones-2026-ciudadania-puede-consultar-su-local-sufragio-1052980.aspx)
+
+
+### jorge luna (N/A, 26/11/2025 11:32 Lima)
+
+- **Aprueban informe final que recomienda inhabilitar a Pedro Castillo por 10 años**: [Link](https://comunicaciones.congreso.gob.pe/noticias/aprueban-informe-final-que-recomienda-inhabilitar-a-pedro-castillo-por-10-anos/)
+- **Congreso expulsa a abogado de Pedro Castillo por decir que hablan "huev**as" | VIDEO**: [Link](https://peru21.pe/politica/congreso-expulsa-abogado-de-pedro-castillo-por-decir-que-hablan-huevas/)
+- **¿Qué debe ocurrir para que Betssy Chávez y Pedro Castillo no participen en las Elecciones 2026? Especialista responde**: [Link](https://rpp.pe/politica/elecciones/que-debe-ocurrir-para-que-betssy-chavez-y-pedro-castillo-no-participen-en-las-elecciones-2026-especialista-responde-noticia-1664891)
+
+
+### vizcarra (N/A, 26/11/2025 11:32 Lima)
+
+- **VIVO | Martín Vizcarra: lectura de sentencia por casos Lomas de Ilo y Hospital de Moquegua**: [Link](https://lpderecho.pe/martin-vizcarra-lomas-de-ilo-hospital-de-moquegua/)
+- **PJ dicta veredicto del juicio a Vizcarra: ¿15 años de prisión o absolución total? | Tenemos Que Hablar**: [Link](https://elcomercio.pe/politica/justicia/pj-dicta-veredicto-del-juicio-a-martin-vizcarra-15-anos-de-prision-o-absolucion-total-tenemos-que-hablar-noticia/)
+- **Poder Judicial lee sentencia a Martín Vizcarra por casos Lomas de Ilo y Hospital de Moquegua**: [Link](https://rpp.pe/politica/judiciales/poder-judicial-lee-sentencia-a-martin-vizcarra-por-casos-lomas-de-ilo-y-hospital-de-moquegua-live-3061)
+
+
+### olympiacos (N/A, 26/11/2025 11:32 Lima)
+
+- **¿A qué hora se juega y por qué canales ver Real Madrid vs. Olympiacos hoy por Champions League en España, México y USA?**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/a-que-hora-juega-y-que-canal-transmite-real-madrid-vs-olympiacos-en-vivo-hoy-26-de-noviembre-por-champions-league-2025-en-espana-mexico-y-usa-horarios-nnda-nnrt-noticia/)
+- **Real Madrid vs. Olympiacos: ¿Qué canales transmitirán el partido de la Champions League?**: [Link](https://andina.pe/agencia/noticia-real-madrid-vs-olympiacos-canales-transmitiran-partido-de-champions-league-1053406.aspx)
+- **Baja de última hora: Thibaut Courtois sufre proceso vírico y no jugará ante Olympiacos por Champions League**: [Link](https://rpp.pe/futbol/champions-league/real-madrid-hibaut-courtois-sufre-proceso-virico-y-no-jugara-ante-olympiacos-por-la-fase-liga-de-la-champions-league-noticia-1665211)
+
+
+### fc istiklol dushanbe - al-nassr (N/A, 26/11/2025 11:32 Lima)
+
+- **¿Por qué no juega Cristiano Ronaldo hoy para Al Nassr ante FC Istiklol Dushanbe por la AFC Champions League...**: [Link](https://bolavip.com/pe/futbol-internacional/por-que-no-juega-cristiano-ronaldo-hoy-para-al-nassr-ante-fc-istiklol-dushanbe-por-la-afc-champions-league-two)
+- **¿Juega Cristiano Ronaldo? La alineación de Al Nassr para enfrentar a FC Istiklol Dushanbe por la AFC Champi...**: [Link](https://bolavip.com/pe/futbol-internacional/juega-cristiano-ronaldo-la-alineacion-de-al-nassr-para-enfrentar-a-fc-istiklol-dushanbe-por-la-afc-champions-league-two)
+
+
+### copenhague vs (N/A, 26/11/2025 11:32 Lima)
+
+- **Champions League: Se enfrentan FC Copenhague y Kairat Almaty por la fecha 5**: [Link](https://rpp.pe/futbol/ligas-internacionales/champions-league-se-enfrentan-fc-copenhague-y-kairat-almaty-por-la-fecha-5-noticia-1665216)
+
+
 ### xiaomi (N/A, 26/11/2025 07:54 Lima)
 
 - **Xiaomi: “Nos estamos posicionando como una marca ‘premium’ en el Perú”**: [Link](https://elcomercio.pe/economia/dia-1/xiaomi-nos-estamos-posicionando-como-una-marca-premium-en-el-peru-xiaomi-peru-noticia/)
@@ -983,47 +1022,5 @@ Sin noticias relacionadas disponibles.
 - **Airbag en Lima: Rutas exclusivas de transporte público para que fans se movilicen tras concierto en la Costa Verde**: [Link](https://www.infobae.com/peru/2025/11/22/airbag-en-lima-rutas-exclusivas-de-transporte-publico-para-que-fans-se-movilicen-tras-concierto-en-la-costa-verde/)
 - **Airbag en Lima: conoce las rutas habilitadas del 'Bus Stage' de ATU desde Costa 21 hacia SJL, Chosica, VES y Carabayllo**: [Link](https://larepublica.pe/sociedad/2025/11/22/airbag-en-lima-conoce-las-rutas-habilitadas-del-bus-stage-de-atu-desde-costa-21-hacia-sjl-chosica-ves-y-carabayllo-1687004)
 - **Airbag en Perú: fans se alistan para concierto sold out en el Multiespacio Costa 21**: [Link](https://larepublica.pe/espectaculos/2025/11/21/airbag-en-peru-fans-de-banda-argentina-se-alistan-para-concierto-sold-out-en-lima-y-arequipa-nunca-lo-olvides-por-mil-noches-435582)
-
-
-### lautaro acosta (N/A, 22/11/2025 21:10 Lima)
-
-- **Laucha Acosta, de errar un penal clave a la emoción en el final: "Es el broche de oro para mi carrera"**: [Link](https://www.ole.com.ar/lanus/acosta-penal-emocion-lanus_0_PyePveohYh.html)
-- **Fue campeón con Lanús en el 2007 y palpita la final de la Sudamericana: “Sería un cierre ideal para Lautaro...**: [Link](https://bolavip.com/ar/copa-sudamericana/fue-campeon-con-lanus-en-el-2007-y-palpita-la-final-de-la-sudamericana-seria-un-cierre-ideal-para-lautaro-acosta)
-- **Lautaro Acosta confirmó que se retira a fin de año: "Es el broche de oro, pero ya se termina"**: [Link](https://www.elgrafico.com.ar/articulo/conmebol-sudamericana/95268/lautaro-acosta-confirmo-que-se-retira-a-fin-de-anio-es-el-broche-de-oro-pero-ya-se-termina)
-
-
-### club universitario de deportes (N/A, 22/11/2025 15:25 Lima)
-
-- **Andy Polo se confiesa tras el ‘tri’: “Si por mí fuera, me quedaría toda la vida en Universitario”**: [Link](https://depor.com/futbol-peruano/descentralizado/andy-polo-si-por-mi-fuera-me-quedaria-todo-la-vida-en-universitario-no-descarta-volver-al-extranjero-tras-tricampeonato-video-noticia/)
-- **Andy Polo: “Me quedaría toda la vida en Universitario”**: [Link](https://www.futbolperuano.com/liga-1/noticias/andy-polo-se-confiesa-tras-el-tricampeonato-y-reafirma-su-amor-por-universitario-552196)
-- **Andy Polo envía mensaje a Alianza Lima: “Nadie ha sido tetracampeón en el fútbol peruano”**: [Link](https://panamericana.pe/deportes/459036-andy-polo-envia-mensaje-alianza-lima-nadie-tetracampeon-futbol-peruano)
-
-
-### chankas cyc - universitario (N/A, 22/11/2025 15:25 Lima)
-
-- **Dónde ver Universitario vs Los Chankas HOY: canal tv online del duelo en Andahuaylas del Torneo Clausura de Liga 1 2025**: [Link](https://www.infobae.com/peru/deportes/2025/11/22/donde-donde-ver-universitario-vs-los-chankas-en-vivo-hoy-canal-tv-online-partido-andahuaylas-fecha-19-torneo-clausura-liga-1-2025/)
-- **Universitario vs. Los Chankas en vivo: a qué hora juegan, canal TV y dónde ver transmisión**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/universitario-vs-los-chankas-en-vivo-online-gratis-por-liga-1-a-que-hora-juegan-canal-que-transmite-y-donde-ver-por-torneo-clausura-lbposting-noticia/)
-- **El llamativo once de Universitario frente a Los Chankas**: [Link](https://www.americatv.com.pe/deportes/futbol-mundial/llamativo-once-universitario-enfrentar-chankas-n451784)
-
-
-### ian garry (N/A, 22/11/2025 15:25 Lima)
-
-- **Dana’s Dream, Belal’s Nightmare**: [Link](https://www.mmamania.com/latest-news/404347/dana-whites-dream-scenario-ufc-qatars-belal-muhammad-has-no-fighting-future-under-islam-title-reign)
-- **Ian Machado Garry reveals secret weapon that will help him win future Islam Makhachev fight**: [Link](https://bloodyelbow.com/2025/11/22/ian-machado-garry-reveals-secret-weapon-that-will-help-him-win-future-islam-makhachev-fight/)
-- **UFC Qatar – Belal Muhammad vs Ian Garry Predictions, Betting Odds And Best Bets**: [Link](https://theplayoffs.news/en/ufc-qatar-belal-muhammad-vs-ian-garry-predictions-betting-odds-and-best-bets/)
-
-
-### psg - le havre (N/A, 22/11/2025 15:25 Lima)
-
-- **PSG : Une composition pleine de surprises pour défier Le Havre**: [Link](https://www.goal.com/fr/news/psg-une-composition-pleine-de-surprises-pour-defier-le-havre/blt97d9327acdf8a23d)
-- **Luis Enrique casse les codes : la compo qui surprend Paris**: [Link](https://www.football365.fr/luis-enrique-casse-les-codes-la-compo-qui-surprend-paris-10266115.html)
-- **Ligue 1. Marquinhos s'apprête à disputer son 500e match avec le PSG**: [Link](https://www.flashscore.fr/actualites/marquinhos-s-apprete-a-disputer-son-500e-match-avec-le-psg/GGnwwueK/)
-
-
-### villarreal - r.c.d. mallorca (N/A, 22/11/2025 15:25 Lima)
-
-- **Villarreal vs Mallorca: Apuestas, Pronóstico y Cuotas**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2025/noviembre/pronostico-villarreal-vs-mallorca-22-11-25)
-- **'29 de 39 puntos me parecen una pasada': Marcelino se olvida de la Champions para centrarse en el Mallorca**: [Link](https://tribuna.com/es/news/2025-11-22-29-de-39-puntos-me-parecen-una-pasada-marcelino-se-olvida-de-la-champions-para-centrarse/)
-- **Galería: El frío protagoniza la previa del Villarreal-Mallorca**: [Link](https://www.elperiodicomediterraneo.com/fotos/villarrealcf/2025/11/22/galeria-frio-protagoniza-previa-villarreal-124016770.html)
 
 
