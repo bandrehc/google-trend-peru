@@ -1,3 +1,52 @@
+### raul asencio (N/A, 27/11/2025 03:34 Lima)
+
+- **Raul Asencio pays emotional homage to his grandfather – Madridista passed away before Olympiacos clash**: [Link](https://tribuna.com/en/blogs/raul-asencio-pays-emotional-homage-to-his-grandfather-madrid/)
+- **Three options for Real Madrid to partner Raul Asencio in defence vs Olympiacos amid injury crisis**: [Link](https://madriduniversal.com/three-options-for-real-madrid-to-partner-raul-asencio-in-defence-vs-olympiacos-amid-injury-crisis/)
+- **Alonso confirmed to Lunin that he will start in the match against Olympiacos**: [Link](https://tribuna.com/en/news/2025-11-26-alonso-confirmed-to-lunin-that-he-will-start-in-the-match-against-olympiacos/)
+
+
+### tigres vs (N/A, 27/11/2025 03:34 Lima)
+
+- **Tijuana vs Tigres: posibles alineaciones de cuartos de final**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/16006701/tijuana-vs-tigres-alineaciones-liguilla-ida-cuartos-de-final-apertura-2025)
+- **📺 ¿Dónde ver Xolos de Tijuana - Tigres UANL EN VIVO GRATIS ahora por Liguilla MX 2025 en TV abierta?**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/donde-ver-xolos-de-tijuana-tigres-uanl-en-vivo-gratis-por-liguilla-mx-2025-en-tv-abierta-horarios-y-canales-online-en-directo-nnda-nnrt-noticia/)
+- **¡Escopetazo de Kevin Castañeda! Imposible para Nahuel, el 1-0 de Xolos**: [Link](https://www.tudn.com/futbol/liga-mx/escopetazo-de-kevin-castaneda-imposible-para-nahuel-el-1-0-de-xolos-video)
+
+
+### liga mx (N/A, 27/11/2025 03:34 Lima)
+
+- **Chivas vs Cruz Azul: posibles alineaciones, Liguilla Apertura 2025**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/16006819/chivas-vs-cruz-azul-alineaciones-liguilla-cuartos-de-final-ida-apertura-2025)
+- **Canal 5 y TUDN EN VIVO GRATIS - dónde ver partido Chivas de Guadalajara vs. Cruz Azul por tv abierta y Fútbol Online**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/canal-5-y-tudn-en-vivo-gratis-donde-ver-partido-chivas-de-guadalajara-vs-cruz-azul-por-tv-abierta-y-futbol-online-nnda-nnrt-noticia/)
+- **Bautizo de fuego para Gabriel Milito**: [Link](https://www.elnorte.com/bautizo-de-fuego-para-gabriel-milito/ar3113405)
+
+
+### nike (N/A, 27/11/2025 03:34 Lima)
+
+- **Phil Knight is once again rooting for Oregon Republicans next year**: [Link](https://www.opb.org/article/2025/11/25/phil-knight-oregon-republicans-3-million-dollar-donation/)
+- **Nike Founder Phil Knight Announces Record-Breaking Political Donation**: [Link](https://www.yahoo.com/news/articles/nike-founder-phil-knight-announces-174916413.html)
+- **Nike co-founder Phil Knight gives $3M to Republican PAC**: [Link](https://www.kgw.com/article/money/business/nike-co-founder-phil-knight-republican-pac/283-0d40bfeb-30e6-43ad-bd02-e82b48ded795)
+
+
+### black friday (N/A, 27/11/2025 03:34 Lima)
+
+- **From Clothing to Shoes, Here Are 36 Worth-It Black Friday Style Deals**: [Link](https://www.nytimes.com/wirecutter/money/black-friday-style-deals-2025/)
+- **People Always Ask Me What I Buy on Black Friday—Here Are the 10 Deals I Never Skip From Coach, Gap, and Adidas**: [Link](https://www.instyle.com/what-to-buy-early-black-friday-deals-november-2025-11856156)
+- **Black Friday fashion deals on our favorite clothing brands: Kate Spade, Hoka, Patagonia, REI and more**: [Link](https://www.yahoo.com/lifestyle/style/clothing/article/black-friday-fashion-deals-on-our-favorite-clothing-brands-kate-spade-hoka-patagonia-rei-and-more-154133571.html)
+
+
+### ripley (N/A, 27/11/2025 03:34 Lima)
+
+- **Ripley inaugura "Ripley Beauty" en Perú, su nuevo espacio de belleza: ¿qué novedades trae?**: [Link](https://www.peru-retail.com/ripley-beauty-mas-de-100-marcas-en-maquillaje-fragancias-y-cuidado-personal-donde-se-ubica/)
+- **“Fui mamá a los 22 y pensé que mi mundo se había acabado”: Natalie Vértiz se reinventa, apuesta por nuevos negocios y quiere estudiar una carrera**: [Link](https://elcomercio.pe/somos/historias/natalie-vertiz-fui-mama-a-los-22-y-pense-que-mi-mundo-se-habia-acabado-la-modelo-que-se-reinventa-apuesta-por-nuevos-negocios-y-quiere-estudiar-una-carrera-marquis-ripley-tlcnota-noticia/)
+- **Ripley da la bienvenida a Natalie Vértiz como nuevo rostro de la marca Marquis**: [Link](https://www.serperuano.com/2025/11/ripley-da-la-bienvenida-a-natalie-vertiz-como-nuevo-rostro-de-la-marca-marquis/)
+
+
+### henry stranger things (N/A, 27/11/2025 03:34 Lima)
+
+- **Stranger Things season five review – this luxurious final run will have you standing on a chair, yelling with joy**: [Link](https://www.theguardian.com/tv-and-radio/2025/nov/27/stranger-things-final-season-five-review-netflix)
+- **There Are Some New Faces in 'Stranger Things' Season 5—Get to Know the New and Returning Cast**: [Link](https://www.elle.com/culture/movies-tv/g69499080/stranger-things-season-5-cast-explained/)
+- **How ‘Stranger Things’ Defined the Era of the Algorithm**: [Link](https://www.nytimes.com/interactive/2025/11/26/arts/television/stranger-things-streaming-netflix.html)
+
+
 ### warriors - rockets (N/A, 26/11/2025 23:30 Lima)
 
 - **What happens if the Warriors lose or win against the Rockets in 2025 NBA Cup tonight?**: [Link](https://bolavip.com/en/nba/what-happens-if-the-warriors-lose-or-win-against-the-rockets-in-2025-nba-cup-tonight)
@@ -973,54 +1022,5 @@ Sin noticias relacionadas disponibles.
 - **Preview:Al-Nassr vs Al Khaleej - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/al-nassr/preview/al-nassr-vs-al-khaleej-prediction-team-news-lineups_586139.html)
 - **Will Cristiano Ronaldo play tonight for Al-Nassr vs Al-Khaleej in Saudi Pro League?**: [Link](https://khelnow.com/football/world-football-will-cristiano-ronaldo-play-tonight-al-nassr-vs-al-khaleej-202511)
 - **Al-Nassr vs Al-Khaleej LIVE Score Updates in Saudi Pro League Match**: [Link](https://www.vavel.com/en-us/soccer/2025/11/23/1242218-al-nassr-vs-al-khaleej-live-score-saudi-pro-league.html)
-
-
-### a qué hora juega alianza lima (N/A, 23/11/2025 11:28 Lima)
-
-- **Alianza Lima vs Rebaza Acosta 3-0: resumen del triunfazo ‘blanquiazul’ por la fecha 5 de la Liga Peruana de Vóley 2025/2026**: [Link](https://www.infobae.com/peru/deportes/2025/11/22/alianza-lima-vs-rebaza-acosta-en-vivo-hoy-latina-fecha-5-primera-fase-liga-peruana-de-voley-20252026-resumen-resultado/)
-- **Programación de la fecha 5 en la Liga Peruana de Vóley 2025-2026: días y horarios de todos los partidos**: [Link](https://rpp.pe/voley/mas-voley/liga-peruana-de-voley-2025-2026-programacion-de-la-fecha-5-fixture-fecha-y-horario-de-los-partidos-alianza-lima-universitario-san-martin-regatas-lpv-noticia-1664044)
-- **Regatas vs San Martín en vivo: hora, canal tv y dónde ver la Liga Peruana de Vóley**: [Link](https://elcomercio.pe/deporte-total/voley/regatas-vs-san-martin-en-vivo-hora-canal-tv-y-donde-ver-la-liga-peruana-de-voley-latina-tv-video-resumen-sets-y-puntos-tdpe-noticia/)
-
-
-### betis (N/A, 23/11/2025 11:28 Lima)
-
-- **El Betis anuncia la renovación de Isco hasta 2028 | Fútbol | Deportes**: [Link](https://elpais.com/deportes/futbol/2025-11-23/el-betis-anuncia-la-renovacion-de-isco-hasta-2028.html)
-- **El Betis, obligado a pagarle una millonada para que siga dos años más: cobra lo mismo que Antony**: [Link](https://www.msn.com/es-es/deportes/futbol/el-betis-obligado-a-pagarle-una-millonada-para-que-siga-dos-a%C3%B1os-m%C3%A1s-cobra-lo-mismo-que-antony/ar-AA1QSkTw)
-- **Isco regresa tras lesionarse en La Rosaleda y renueva con el Betis hasta 2028**: [Link](https://www.malagahoy.es/malaga_cf/isco-regresa-lesionarse-rosaleda-renueva_0_2005292962.html)
-
-
-### lyon vs (N/A, 23/11/2025 11:28 Lima)
-
-- **Liga de Francia: Auxerre espera frenar su racha negativa y vencer a Olympique Lyon**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-de-francia-auxerre-espera-frenar-su-racha-negativa-y-vencer-a-olympique-lyon-noticia-1664862)
-- **Miracle à l'OL, ce Brésilien croise les doigts**: [Link](https://www.foot01.com/ol/miracle-a-lol-ce-bresilien-croise-les-doigts)
-- **Lyon et Lille en chasse, le dimanche de Ligue 1 sur Flashscore**: [Link](https://www.flashscore.fr/actualites/football-ligue-1-direct-le-dimanche-de-ligue-1-sur-flashscore-avec-auxerre-lyon-et-lille-paris-fc/2gYr5E6m/)
-
-
-### mantova 1911 - spezia (N/A, 23/11/2025 11:28 Lima)
-
-- **Lo Spezia crolla a Mantova (4-1), espulso Cassata. Ora il derby con la Samp**: [Link](https://telenord.it/lo-spezia-crolla-a-mantova-4-1-espulso-cassata-ora-il-derby-con-la-samp-96948)
-- **Solo una vittoria allo stadio Martelli. L’anno scorso il 2-2 che sapeva di beffa**: [Link](https://www.lanazione.it/la-spezia/cronaca/solo-una-vittoria-allo-stadio-d6132fe3)
-- **Possanzini: «L’Acm gioca ancora come se ogni gara fosse l’ultima»**: [Link](https://www.gazzettadimantova.it/argomenti/sport/possanzini-donadoni-mantova-spezia-1.12855737)
-
-
-### real madrid vs elche (N/A, 23/11/2025 07:43 Lima)
-
-- **¿A qué hora juega Real Madrid vs. Elche EN VIVO por LaLiga 2025 en USA, España y México?**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/a-que-hora-juega-real-madrid-vs-elche-en-vivo-por-laliga-2025-en-usa-espana-y-mexico-nnda-nnrt-noticia/)
-- **LaLiga EA Sports: Real Madrid enfrenta a Elche para seguir en la punta**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-real-madrid-enfrenta-a-elche-para-seguir-en-la-punta-noticia-1664896)
-- **¿A qué hora empieza y en qué canal transmiten Real Madrid vs. Elche EN VIVO hoy por LaLiga EA Sports?**: [Link](https://gestion.pe/mix/sports/a-que-hora-juega-y-que-canal-transmite-real-madrid-vs-elche-en-vivo-hoy-23-de-noviembre-por-laliga-ea-sports-horarios-y-tv-nnda-nnrt-noticia/)
-
-
-### real oviedo - rayo vallecano (N/A, 23/11/2025 07:43 Lima)
-
-- **Real Oviedo - Rayo Vallecano, en directo: LaLiga EA Sports hoy, en vivo**: [Link](https://as.com/futbol/primera/real-oviedo-rayo-vallecano-en-directo-laliga-ea-sports-hoy-en-vivo-f202511-d/)
-- **Real Oviedo vs Rayo Vallecano: Apuestas, Pronóstico y Cuotas**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2025/noviembre/pronostico-real-oviedo-vs-rayo-vallecano-23-11-25)
-- **Carrión: “Tengo la confianza al 100%”**: [Link](https://www.marca.com/futbol/oviedo/2025/11/22/carrion-confianza-100.html)
-
-
-### hellas verona - parma (N/A, 23/11/2025 07:43 Lima)
-
-- **Serie A: Verona vs. Parma – confirmed line-ups and live updates**: [Link](https://football-italia.net/verona-v-parma-confirmed-line-ups-live-updates/)
-- **Verona seeks revenge against Parma with 64% head-to-head edge despite poor form**: [Link](https://www.red94.net/news/73856-verona-seeks-revenge-against-parma-with-64-head-to-head-edge-despite-poor-form/)
-- **Patrick Cutrone’s Goal Odds for Parma vs. Hellas Verona Matchup**: [Link](https://news.ssbcrack.com/patrick-cutrones-goal-odds-for-parma-vs-hellas-verona-matchup/)
 
 
