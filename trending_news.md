@@ -1,3 +1,73 @@
+### betis vs (N/A, 27/11/2025 15:25 Lima)
+
+- **Real Betis - Utrecht, en directo: Europa League, hoy en vivo**: [Link](https://as.com/futbol/uefa/real-betis-utrecht-en-directo-europa-league-hoy-en-vivo-f202511-d/)
+- **Manuel Pellegrini aún no piensa en el Sevilla y colocará su mejor equipo en Europa League**: [Link](https://espndeportes.espn.com/futbol/uefa-europa-league/nota/_/id/16009004/manuel-pellegrini-aun-no-piensa-en-el-sevilla-y-colocara-su-mejor-equipo-en-europa-league)
+- **Betis recibe a Utretch en busca de escalar en la Europa League**: [Link](https://www.espn.com.ar/futbol/uefa-europa-league/nota/_/id/16005484/betis-vs-utretch-por-la-europa-league-equipo-fecha-hora-y-tv-en-vivo)
+
+
+### juan pablo varillas (N/A, 27/11/2025 15:25 Lima)
+
+- **Juan Pablo Varillas vs Santiago Rodríguez: fecha, hora y dónde ver partido por octavos de final del Challenger de Bogotá**: [Link](https://www.infobae.com/peru/deportes/2025/11/26/juan-pablo-varillas-vs-santiago-rodriguez-fecha-hora-y-donde-ver-partido-por-octavos-de-final-del-challenger-de-bogota/)
+- **“Juanpi” Varillas venció a argentino Rodríguez 2-0 en el Bogotá 4 Challenger y pasó a octavos de fi**: [Link](https://www.apnoticias.pe/peru/diario-uno/juanpi-varillas-vencio-a-argentino-rodriguez-2-0-en-el-bogota-4-challenger-y-paso-a-octavos-de-final-1472501)
+- **Varillas venció a argentino Rodríguez y accedió a los octavos del Bogotá 4 Challenger**: [Link](https://ovacion.pe/noticias/tenis/varillas-vencio-argentino-rodriguez-accedio-octavos-del-bogota-4-challenger)
+
+
+### braga vs (N/A, 27/11/2025 15:25 Lima)
+
+- **‘Most lethal trident’ to be deployed against Rangers**: [Link](https://sportwitness.co.uk/most-lethal-trident-to-be-deployed-against-rangers/)
+- **“It motivates us, not the opposite.”**: [Link](https://insideibrox.com/zalazar-braga-wont-be-intimidated-ibrox)
+- **Rangers vs Braga: Odds, Lineups, Prediction, and 9/2 Bet Builder Tips**: [Link](https://www.oddschecker.com/tips/football/rangers-vs-braga-odds-lineups-prediction-bet-builder)
+
+
+### fiorentina (N/A, 27/11/2025 15:25 Lima)
+
+- **Fiorentina-AEK, i convocati di Vanoli: dentro Piccoli, ancora assente Gosens**: [Link](https://onefootball.com/pt-br/noticias/fiorentina-aek-i-convocati-di-vanoli-dentro-piccoli-ancora-assente-gosens-42012765)
+- **Viola contro l'Aek, in campo anche Mandragora**: [Link](https://www.virgilio.it/italia/firenze/notizielocali/viola_contro_l_aek_in_campo_anche_mandragora-76089837.html)
+- **Taccola: "Per l'Aek Atene giocare con la Fiorentina è un lusso, i viola sono nettamente superiori"**: [Link](https://www.labaroviola.com/taccola-per-laek-atene-giocare-con-la-fiorentina-e-un-lusso-i-viola-sono-nettamente-superiori/326417/)
+
+
+### lyon vs (N/A, 27/11/2025 15:25 Lima)
+
+- **Girls Basketball: Central Lyon vs Sheldon**: [Link](https://www.nwestiowa.com/sports/girls-basketball-central-lyon-vs-sheldon/collection_27c1a276-56b2-40fe-9073-84545ca84eab.html)
+- **Maccabi Tel Aviv - OL: Opponent Analysis (9:00 PM on Canal+)**: [Link](https://www.ol.fr/en/news/maccabi-tel-aviv-ol-opponent-analysis-9-00-pm-on-canal-1)
+- **Maccabi Tel Aviv vs Lyon LIVE Score Updates in UEFA Europa League Match**: [Link](https://www.vavel.com/en-us/soccer/2025/11/27/1242758-maccabi-tel-aviv-vs-lyon-live-score-europa-league.html)
+
+
+### crystal palace vs (N/A, 27/11/2025 15:25 Lima)
+
+- **Why are Man Utd kicking off on Sunday at midday v Palace**: [Link](https://www.manutd.com/en/news/detail/why-are-man-utd-kicking-off-on-sunday-at-midday-v-palace)
+- **Manchester United need double injury boost to pick strongest XI vs Crystal Palace**: [Link](https://www.manchestereveningnews.co.uk/sport/football/manchester-united-need-double-injury-32949295)
+- **Why is there no 12:30pm game in the Premier League this weekend? Fans forced to wait for top-flight action**: [Link](https://talksport.com/football/3769873/premier-league-kick-off-crystal-palace-man-united/)
+
+
+### fiorentina - aek (N/A, 27/11/2025 15:25 Lima)
+
+- **Preview: Fiorentina vs AEK Athens - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/fiorentina/europa-conference-league/preview/fiorentina-vs-aek-athens-prediction-team-news-lineups_586415.html)
+- **The team's revolution. Six, maybe even eight substitutions. De Gea and Dzeko are certain. Nicolussi returns as a playmaker.**: [Link](https://sport.quotidiano.net/en/calcio/fiorentina/la-rivoluzione-della-squadra-sei-1b43d897)
+- **Vanoli: ‘Emotional’ European debut, Fiorentina ‘can achieve great results’**: [Link](https://football-italia.net/vanoli-emotional-european-debut-fiorentina/)
+
+
+### stuttgart vs (N/A, 27/11/2025 15:25 Lima)
+
+- **VfB-Trainer Hoeneß muss Offensiv-Star ersetzen – ein anderer drängt sich auf**: [Link](https://www.absolutfussball.com/deutschland/vfb-stuttgart/draengt-sich-auf-vfb-trainer-hoeness-muss-offensiv-star-ersetzen-ein-anderer-94056424.html)
+- **Europa League jetzt live: Übertragung im TV, Modus, Ligaphase, Vereine, Ergebnisse**: [Link](https://www.ran.de/sports/fussball/europa-league/news/europa-league-mit-sc-freiburg-jetzt-live-tv-uebertragung-modus-ligaphase-vereine-ergebnisse-wann-spielt-der-vfb-stuttgart-592808)
+- **Fußball heute live: Eagles – Stuttgart Übertragung im Free-TV & Stream**: [Link](https://www.tipico.de/wett-tipps/sportwetten-news/fussball-heute-live-eagles-stuttgart-uebertragung-im-free-tv-stream)
+
+
+### bologna (N/A, 27/11/2025 15:25 Lima)
+
+- **Bologna-Salisburgo: tabù italiane per gli ospiti. Appena sei i successi**: [Link](https://onefootball.com/pt-br/noticias/bologna-salisburgo-tabu-italiane-per-gli-ospiti-appena-sei-i-successi-42012429)
+- **Bologna e Fiorentina, le formazioni ufficiali in Europa: gioca Orsolini! Le scelte su Zortea, Castro e Kean**: [Link](https://www.sosfanta.com/probabili-formazioni/bologna-e-fiorentina-le-formazioni-ufficiali-in-europa-gioca-orsolini-le-scelte-su-zortea-castro-e-kean/)
+- **Bologna, Italiano: "Bernardeschi sta bene, ha voglia di essere importante"**: [Link](https://gianlucadimarzio.com/bologna-italiano-intervista-salisburgo-europa-league-news-27-novembre-2025/)
+
+
+### bologna vs (N/A, 27/11/2025 15:25 Lima)
+
+- **Bologna vs Red Bull Salzburg: UEFA Europa League stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cvg133yd0qpt)
+- **The latest from the field. Dominguez runs for space.**: [Link](https://sport.quotidiano.net/en/calcio/bologna/le-ultime-dal-campo-dominguez-943b1715)
+- **Europa League official line-ups: Bologna vs. RB Salzburg**: [Link](https://football-italia.net/europa-league-line-ups-bologna-vs-rb-salzburg/)
+
+
 ### happy thanksgiving (N/A, 27/11/2025 11:31 Lima)
 
 - **Cold and breezy on Thanksgiving, ALERT DAY Saturday for accumulating snow | Latest Weather Forecast**: [Link](https://www.channel3000.com/weather/forecast/cold-and-breezy-on-thanksgiving-alert-day-saturday-for-accumulating-snow/article_a1211afa-86c8-5443-b891-835dd6b621fd.html)
@@ -954,75 +1024,5 @@ Sin noticias relacionadas disponibles.
 - **Feriado largo en diciembre 2025: cuatro días de descanso seguidos para cerrar el año en Perú**: [Link](https://www.infobae.com/peru/2025/11/23/feriado-largo-en-diciembre-2025-cuatro-dias-de-descanso-seguidos-para-cerrar-el-ano-en-peru/)
 - **Estos son los días de diciembre en donde no habrá clases por feriado largo en el Perú | tdpe | RESPUESTAS**: [Link](https://elcomercio.pe/respuestas/cuando/estos-son-los-dias-de-diciembre-en-donde-no-habra-clases-por-feriado-largo-en-el-peru-tdpe-noticia/)
 - **La buena noticia antes de Navidad para trabajadores del sector público y privado Perú respecto al próximo feriado largo**: [Link](https://larepublica.pe/economia/2025/11/17/la-buena-noticia-para-trabajadores-del-sector-publico-y-privado-peru-respecto-al-proximo-feriado-largo-de-2025-atmp-968303)
-
-
-### dua lipa (N/A, 24/11/2025 07:53 Lima)
-
-- **Dua Lipa aterriza en Lima y desata la euforia de sus fans peruanos con su llegada en jet privado**: [Link](https://www.infobae.com/peru/2025/11/23/dua-lipa-aterriza-en-lima-y-desata-la-euforia-de-sus-fans-peruanos-con-su-llegada-en-jet-privado/)
-- **Dua Lipa en Lima: la cantante británica llega a Perú antes de su esperado concierto en San Marcos**: [Link](https://rpp.pe/famosos/celebridades/dua-lipa-en-lima-la-cantante-britanica-llega-a-peru-antes-de-su-esperado-concierto-en-san-marcos-noticia-1665041)
-- **Dua Lipa ya está en Lima para su esperado concierto en el Estadio San Marcos**: [Link](https://elcomercio.pe/luces/musica/dua-lipa-ya-esta-en-lima-para-su-esperado-concierto-en-el-estadio-san-marcos-celebs-ultimas-noticia/)
-
-
-### dolar hoy peru (N/A, 24/11/2025 07:53 Lima)
-
-- **Precio del dólar HOY, domingo 23 de noviembre: cuál es la cotización del día**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-2025-cuanto-esta-el-dolar-este-domingo-23-de-noviembre-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
-- **Precio del dólar en subida: Así se cotiza el tipo de cambio hoy 23 de noviembre en Perú**: [Link](https://www.infobae.com/peru/2025/11/21/valor-de-apertura-del-dolar-en-peru-este-21-de-noviembre-de-usd-a-pen/)
-- **Precio del dólar Perú y tipo de cambio hoy 21 de noviembre del 2025**: [Link](https://rpp.pe/economia/economia/precio-del-dolar-peru-y-tipo-de-cambio-hoy-21-de-noviembre-del-2025-noticia-1664721)
-
-
-### inpe (N/A, 24/11/2025 07:53 Lima)
-
-- **Gobierno prepara la desaparición del INPE en medio de grave crisis penitenciaria**: [Link](https://caretas.pe/home_web/home_principal_secundario/gobierno-prepara-la-desaparicion-del-inpe-en-medio-de-grave-crisis-penitenciaria/)
-- **🔴🔵El presidente José Jerí anunció que el INPE desaparecerá como parte del proceso de restructuración que se busca impulsar con el pedido de facultades legislativas al Congreso.**: [Link](https://www.facebook.com/story.php?story_fbid=1284326893730366&id=100064592023543)
-- **Premier Álvarez : Jefe del INPE sería removido como parte de la reestructuración que realizará el Ejecutivo**: [Link](https://panamericana.pe/politica/459272-premier-alvarez-jefe-inpe-removido-parte-reestructuracion-ejecutara-ejecutivo)
-
-
-### hbo max (N/A, 24/11/2025 03:35 Lima)
-
-- **‘El conjuro: últimos ritos’: cómo y dónde ver en streaming el escalofriante final de la saga de Ed y Lorraine Warren**: [Link](https://rpp.pe/tv/streaming/el-conjuro-ultimos-ritos-como-y-donde-ver-en-streaming-el-escalofriante-final-de-la-saga-de-ed-y-lorraine-warren-noticia-1665039)
-- **‘El conjuro 4’: ¿cómo ver online y en español la película de terror que hizo historia en Perú como la más vista de todos los tiempos?**: [Link](https://larepublica.pe/cine-series/2025/11/17/el-conjuro-4-llega-a-hbo-max-cuando-se-estrena-en-el-streaming-la-pelicula-de-terror-que-hizo-historia-en-peru-1062058)
-- **'El Conjuro 4: Últimos ritos' llegará al streaming solo dos meses después de su estreno en cines**: [Link](https://www.exitosanoticias.pe/entretenimiento/el-conjuro-4-ultimos-ritos-llegara-streaming-dos-meses-despues-su-estreno-cines-n162807)
-
-
-### saga (N/A, 24/11/2025 03:35 Lima)
-
-- **Ignorance is bliss: rightwing media largely keeps quiet on Trump-Epstein saga**: [Link](https://www.theguardian.com/us-news/2025/nov/22/rightwing-media-trump-epstein-files)
-- **GB News Downplay Revelations About Trump's Epstein Links as Presenters Echo White House Spin**: [Link](https://bylinetimes.com/2025/11/20/gb-news-downplayed-revelations-about-trumps-epstein-links-as-presenters-echoed-white-house-spin/)
-- **'MAGA media in shambles' as it struggles to protect Trump**: [Link](https://www.alternet.org/trump-jeffrey-epstein-emails-2674295355/)
-
-
-### iberia (N/A, 24/11/2025 03:35 Lima)
-
-- **Varias aerolíneas internacionales cancelan sus vuelos a Venezuela tras alerta de la FAA sobre "incremento de la actividad militar" en ese país**: [Link](https://www.bbc.com/mundo/articles/c4g6qqy9jl9o)
-- **Turkish Airlines cancela vuelos hacia Venezuela por 5 días**: [Link](https://www.dw.com/es/turkish-airlines-cancela-sus-vuelos-hacia-venezuela-hasta-el-28-de-noviembre/a-74855205)
-- **Aerolíneas comienzan a cancelar vuelos a Venezuela tras advertencia del Gobierno de Estados Unidos**: [Link](https://cnnespanol.cnn.com/2025/11/22/venezuela/video/vuelos-cancelar-alerta-venezuela-tv-mirador-mundial)
-
-
-### black friday (N/A, 24/11/2025 03:35 Lima)
-
-- **Early Black Friday streaming deals, including Hulu, Peacock, Apple TV**: [Link](https://www.app.com/story/news/2025/11/21/streaming-black-friday-deals-include-hulu-disney-and-appletv/87394387007/)
-- **Apple TV Streaming Service Drops Price 54% in Black Friday Deal**: [Link](https://variety.com/2025/tv/news/apple-tv-black-friday-deal-price-drop-1236588772/)
-- **Should I wait for Black Friday to get a streaming subscription?**: [Link](https://www.space.com/entertainment/should-i-wait-for-black-friday-to-get-a-streaming-subscription)
-
-
-### black friday 2025 (N/A, 24/11/2025 03:35 Lima)
-
-- **Black Friday fashion deals for 2025 are up to 75% off Kate Spade, Hoka, Patagonia, REI and more of our favorite brands**: [Link](https://www.yahoo.com/lifestyle/style/clothing/article/black-friday-fashion-deals-for-2025-are-up-to-75-off-kate-spade-hoka-patagonia-rei-and-more-of-our-favorite-brands-144615056.html)
-- **Black Friday Is Upon Us. These Are the 90+ Best Deals We’ve Found on Amazon.**: [Link](https://www.nytimes.com/wirecutter/money/early-amazon-black-friday-deals-2025/)
-- **Our experts handpicked the 90 best Black Friday deals to beat the holiday rush**: [Link](https://www.cnn.com/cnn-underscored/deals/best-black-friday-deals-2025-11-23)
-
-
-### reinfo (N/A, 23/11/2025 23:37 Lima)
-
-- **Expertos advierten que el Reinfo perdió su función y se ha convertido en un incentivo para la minería ilegal**: [Link](https://rpp.pe/peru/actualidad/reinfo-expertos-advierten-que-perdio-su-funcion-y-se-ha-convertido-en-un-incentivo-para-la-mineria-ilegal-noticia-1664912)
-- **Reinfo: fracaso de la democracia , por Jaime de Althaus | OPINION**: [Link](https://elcomercio.pe/opinion/columnistas/reinfo-fracaso-de-la-democracia-por-jaime-de-althaus-noticia/)
-- **El Congreso fomenta el crimen trajeado de minería ilegal**: [Link](https://www.expreso.com.pe/?post_type=opinion&p=1241622)
-
-
-### jose jeri (N/A, 23/11/2025 23:37 Lima)
-
-- **Presidente José Jerí concedió su primera entrevista televisiva a Beto Ortiz: se grabó en Palacio y se emitirá esta noche**: [Link](https://www.infobae.com/peru/2025/11/23/presidente-jose-jeri-concedio-su-primera-entrevista-televisiva-a-beto-ortiz-se-grabo-en-palacio-y-se-emitira-esta-noche/)
-- **José Jerí afirma que su Gobierno es de centro: "Rescato lo mejor de un lado y el otro"**: [Link](https://peru21.pe/politica/jose-jeri-afirma-que-su-gobierno-es-de-centro-rescato-lo-mejor-de-un-lado-y-el-otro/)
-- **'El valor de la verdad' del presidente José Jerí EN VIVO: horario y canal de TV donde ver el programa de Beto Ortiz**: [Link](https://larepublica.pe/espectaculos/2025/11/23/el-valor-de-la-verdad-de-agatha-lys-en-vivo-horario-y-canal-de-tv-donde-ver-el-programa-de-beto-ortiz-evdlv-en-peru-estados-unidos-espana-y-otros-paises-1478295)
 
 
