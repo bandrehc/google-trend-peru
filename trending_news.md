@@ -1,3 +1,44 @@
+### warriors - rockets (N/A, 26/11/2025 23:30 Lima)
+
+- **What happens if the Warriors lose or win against the Rockets in 2025 NBA Cup tonight?**: [Link](https://bolavip.com/en/nba/what-happens-if-the-warriors-lose-or-win-against-the-rockets-in-2025-nba-cup-tonight)
+- **Kalshi Promo Code 'COVERS' Gives A $10 Bonus For Your First Trade On Timberwolves-Thunder**: [Link](https://www.covers.com/daily-promos/kalshi-promo-code-nba-timberwolves-thunder-11-26-2025)
+- **Stephen Curry Props and First Basket Odds for Rockets vs Warriors NBA Cup Clash Tonight**: [Link](https://www.bleachernation.com/betting/2025/11/26/stephen-curry-props-hvgs/)
+
+
+### monterrey - américa (N/A, 26/11/2025 23:30 Lima)
+
+- **Rayados vs América: posibles alineaciones, Liguilla Apertura 2025**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/16002671/monterrey-vs-america-alineaciones-liguilla-cuartos-de-final-apertura-2025-liga-mx)
+- **CF América vs Club de Fútbol Monterrey Rayados, A.C. | Pronóstico y cuotas 29.11.2025**: [Link](https://www.transfermarkt.es/apuestas/pronosticos-deportivos/cf-america-vs-cf-monterrey-pronostico-apuestas-30-11-2025/)
+- **Monterrey vs Club América hoy online: a qué hora es el partido y por qué canales lo pasan**: [Link](https://elcomercio.pe/deporte-total/mexico/monterrey-vs-america-en-vivo-gratis-hoy-via-futbol-libre-tv-canal-5-tudn-vix-horarios-canales-tv-y-donde-ver-partido-por-liga-mx-video-noticia/)
+
+
+### lita pezo (N/A, 26/11/2025 23:30 Lima)
+
+- **Lita Pezo: Su derrota en Viña del Mar, su pareja, la discriminación en Lima, La Voz Perú y más**: [Link](https://trome.com/espectaculos/tv/lita-pezo-su-derrota-en-vina-del-mar-su-pareja-la-discriminacion-en-lima-la-voz-peru-y-mas-video-fotos-cafe-con-la-chevez-noticia/)
+- **Lita Pezo revela cómo se sintió tras perder en Viña del Mar: “Tenía hambre y me comí salchipapa”**: [Link](https://trome.com/espectaculos/tv/lita-pezo-revela-como-se-sintio-tras-perder-en-vina-del-mar-tenia-hambre-y-me-comi-salchipapa-cafe-con-la-chevez-video-fotos-farandula-noticia/)
+
+
+### hong kong (N/A, 26/11/2025 23:30 Lima)
+
+- **Death toll in Hong Kong fire rises to 44 with 279 still missing, authorities say**: [Link](https://www.bbc.com/news/live/c2emg1kj1klt)
+- **Huge blaze in Hong Kong leaves at least 44 dead, 279 missing – as it happened**: [Link](https://www.scmp.com/news/hong-kong/society/article/3334217/major-fire-hong-kongs-tai-po-leaves-2-severely-burned-residents-trapped)
+- **At least 44 dead, hundreds missing as fire rips through Hong Kong tower blocks**: [Link](https://www.cnn.com/world/live-news/hong-kong-tai-po-buildings-fire-11-26-25)
+
+
+### thunder - timberwolves (N/A, 26/11/2025 23:30 Lima)
+
+- **Shai Gilgeous-Alexander drops 40 to help Thunder to 10-straight wins**: [Link](https://www.hoopshype.com/story/sports/nba/rumors/2025/11/26/shai-gilgeous-alexander-drops-40-to-help-thunder-to-10-straight-wins/87491082007/)
+- **Northwest Notes: J. Williams, Presti, Wolves, C. Williams**: [Link](https://www.hoopsrumors.com/2025/11/northwest-notes-j-williams-presti-wolves-c-williams.html)
+- **Rudy Gobert got a tech for what looked like an egregious OKC flop**: [Link](https://www.si.com/nba/timberwolves/onsi/minnesota-timberwolves-news/rudy-gobert-got-tech-for-what-looked-like-egregious-okc-flop)
+
+
+### toluca vs (N/A, 26/11/2025 23:30 Lima)
+
+- **Toluca dio paso decisivo a semifinales con triunfo ante FC Juárez**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/16011622/fc-juarez-vs-toluca-liguilla-apertura-2025-liga-mx-resultados-goles)
+- **Liga MX: FC Juárez recibirá a Toluca FC por la llave 1**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-fc-juarez-recibira-a-toluca-fc-por-la-llave-1-noticia-1665356)
+- **Transmisión EN VIVO del Juárez vs Toluca hoy: cómo mirar el partido por TV o streaming**: [Link](https://www.365scores.com/es/news/juarez-vs-toluca-como-ver-transmision/)
+
+
 ### juarez vs (N/A, 26/11/2025 20:55 Lima)
 
 - **FC Juárez vs Toluca: posibles alineaciones para cuartos de final**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/16006600/fc-juarez-vs-toluca-alineaciones-liguilla-cuartos-de-final-ida-apertura-2025)
@@ -981,45 +1022,5 @@ Sin noticias relacionadas disponibles.
 - **Serie A: Verona vs. Parma – confirmed line-ups and live updates**: [Link](https://football-italia.net/verona-v-parma-confirmed-line-ups-live-updates/)
 - **Verona seeks revenge against Parma with 64% head-to-head edge despite poor form**: [Link](https://www.red94.net/news/73856-verona-seeks-revenge-against-parma-with-64-head-to-head-edge-despite-poor-form/)
 - **Patrick Cutrone’s Goal Odds for Parma vs. Hellas Verona Matchup**: [Link](https://news.ssbcrack.com/patrick-cutrones-goal-odds-for-parma-vs-hellas-verona-matchup/)
-
-
-### københavn - brøndby (N/A, 23/11/2025 07:43 Lima)
-
-Sin noticias relacionadas disponibles.
-
-
-### getafe vs (N/A, 23/11/2025 07:43 Lima)
-
-- **Posible once del Atlético ante el Getafe hoy en LaLiga EA Sports**: [Link](https://as.com/futbol/primera/posible-once-del-atletico-ante-el-getafe-hoy-en-laliga-ea-sports-f202511-n/)
-- **Pronóstico Getafe Atlético Madrid - LaLiga 23/11/25**: [Link](https://www.sportytrader.com/es/pronosticos/getafe-atletico-madrid-306781/)
-- **Simeone, ante su rival favorito: golea al Getafe 57-10**: [Link](https://www.grada3.com/2025/11/23/simeone-ante-su-rival-favorito-golea-al-getafe-57-10/)
-
-
-### retiro afp retiro cronograma (N/A, 23/11/2025 07:43 Lima)
-
-- **Retiro AFP, últimas fechas en noviembre: Plazo para solicitar, según el cronograma**: [Link](https://www.infobae.com/peru/2025/11/22/retiro-afp-ultimas-fechas-en-noviembre-plazo-para-solicitar-segun-el-cronograma/)
-- **Los afiliados que harán el retiro AFP 2025 y cobrarán su primera UIT antes de Navidad, según el cronograma**: [Link](https://larepublica.pe/economia/2025/11/22/los-afiliados-que-haran-el-retiro-afp-2025-y-cobraran-su-primera-uit-antes-de-navidad-segun-el-cronograma-atmp-1268168)
-- **Retiro de AFP: 20% de los hogares peruanos usará el dinero para compras de consumo masivo**: [Link](https://www.businessempresarial.com.pe/retiro-de-afp-20-de-los-hogares-peruanos-usara-el-dinero-para-compras-de-consumo-masivo/)
-
-
-### arsenal vs (N/A, 23/11/2025 07:43 Lima)
-
-- **Arsenal predicted XI vs Spurs as Gabriel replacement and Viktor Gyokeres decision made**: [Link](https://www.football.london/arsenal-fc/fixtures-results/arsenal-predicted-tottenham-injury-news-32922739)
-- **North London Derby: Arsenal Poised to Widen Title Lead as City, Liverpool Stumble**: [Link](https://www.dawan.africa/news/north-london-derby-arsenal-poised-to-widen-title-lead-as-city-liverpool-stumble)
-- **‘Two Traitors’—Thomas Frank Full of Light-Hearted Jibes Before North London Derby**: [Link](https://www.fotmob.com/embed/news/01kar75fxhkf/two-traitorsthomas-frank-full-light-hearted-jibes-before-north-london-derby)
-
-
-### elige tu local de votacion (N/A, 23/11/2025 03:30 Lima)
-
-- **Desde mañana podrás elegir tu local de votación para las Elecciones 2026: ¿cuáles son los requisitos?**: [Link](https://www.infobae.com/peru/2025/11/22/desde-manana-podras-elegir-tu-local-de-votacion-para-las-elecciones-2026-cuales-son-los-requisitos/)
-- **Elige tu local de votación: pasos para escoger un centro cercano a tu domicilio**: [Link](https://peru21.pe/peru/elige-tu-local-de-votacion-pasos-para-escoger-un-centro-cercano-tu-domicilio/)
-- **ONPE habilitará link para elegir tu local de votación rumbo a las elecciones generales 2026: revisa aquí los pasos a seguir**: [Link](https://larepublica.pe/politica/2025/11/20/onpe-habilitara-link-para-elegir-tu-local-de-votacion-rumbo-a-las-elecciones-generales-2026-revisa-aqui-los-pasos-a-seguir-hnews-822980)
-
-
-### jnj delia espinoza (N/A, 23/11/2025 03:30 Lima)
-
-- **El caso Espinoza llega al Tribunal Constitucional**: [Link](https://lpderecho.pe/caso-espinoza-tribunal-constitucional/)
-- **JNJ metió de contrabando el caso de Delia Espinoza en su demanda competencial contra el PJ**: [Link](https://www.infobae.com/peru/2025/11/22/jnj-metio-de-contrabando-el-caso-de-delia-espinoza-en-su-demanda-competencial-contra-el-pj/)
-- **JNJ presenta denuncia penal contra juez Torres Tasso y exige su retiro del caso de Delia Espinoza**: [Link](https://canaln.pe/actualidad/caso-delia-espinoza-jnj-denuncia-penalmente-juez-torres-tasso-y-pide-que-se-abstenga-n488463)
 
 
