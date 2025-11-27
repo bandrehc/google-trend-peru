@@ -1,3 +1,73 @@
+### juarez vs (N/A, 26/11/2025 20:55 Lima)
+
+- **FC Juárez vs Toluca: posibles alineaciones para cuartos de final**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/16006600/fc-juarez-vs-toluca-alineaciones-liguilla-cuartos-de-final-ida-apertura-2025)
+- **Liga MX: así comienzan los cuartos de final de la Liguilla del Apertura 2025**: [Link](https://cnnespanol.cnn.com/2025/11/25/deportes/liga-mx-liguilla-apertura-2025-cuartos-orix)
+- **Inteligencia Artificial revela quién será el campeón del Apertura 2025 de la Liga MX**: [Link](https://www.infobae.com/mexico/deportes/2025/11/26/inteligencia-artificial-revela-quien-sera-el-campeon-del-apertura-2025-de-la-liga-mx/)
+
+
+### stranger things temporada 5 (N/A, 26/11/2025 20:55 Lima)
+
+- **Stranger Things 5: fecha y horarios de estreno de la última temporada en Netflix**: [Link](https://www.infobae.com/entretenimiento/2025/11/25/stranger-things-5-fecha-y-horarios-de-estreno-de-la-ultima-temporada-en-netflix/)
+- **Cuándo y a qué hora se estrena Stranger Things en Argentina**: [Link](https://www.lanacion.com.ar/espectaculos/cuando-y-a-que-hora-se-estrena-stranger-things-en-argentina-nid25112025/)
+- **De cara a la Temporada 5: el elenco de “Stranger Things” sorprende con un rap que resume toda la serie**: [Link](https://elcomercio.pe/mag/fama/celebs/de-cara-a-la-temporada-5-el-elenco-de-stranger-things-sorprende-con-un-rap-de-un-minuto-que-resume-toda-la-serie-nnda-nnrt-noticia/)
+
+
+### atlético nacional - junior (N/A, 26/11/2025 20:55 Lima)
+
+- **Pronóstico Atlético Nacional CD Junior FC - Liga BetPlay 26/11/25**: [Link](https://www.sportytrader.com/es/pronosticos/atletico-nacional-club-atletico-junior-307781/)
+- **Nacional recibe al líder Junior en choque de invictos por el Grupo A**: [Link](https://www.espn.com.ar/futbol/colombia/nota/_/id/16003731/nacional-vs-junior-fecha-3-cuadrangulares-liga-betplay-equipo-fecha-hora-y-tv-en-vivo)
+- **El valor de apostar a córneres en Nacional vs. Junior**: [Link](https://www.futbolred.com/apuestas/pronosticos-nacional-vs-junior-26-11-2025-259233)
+
+
+### netflix (N/A, 26/11/2025 20:55 Lima)
+
+- **Las mejores películas en Netflix en Perú hoy**: [Link](https://www.infobae.com/peru/2025/11/26/las-mejores-peliculas-en-netflix-en-peru-hoy/)
+- **Lo más visto esta semana de Netflix en Perú**: [Link](https://www.infobae.com/peru/2025/11/21/lo-mas-visto-esta-semana-de-netflix-en-peru/)
+- **Las películas favoritas del público en Netflix Perú**: [Link](https://www.infobae.com/peru/2025/11/19/las-peliculas-favoritas-del-publico-en-netflix-peru/)
+
+
+### lanús - tigre (N/A, 26/11/2025 20:55 Lima)
+
+- **Lanús y Tigre definen el último boleto a cuartos de final del Torneo Clausura**: [Link](https://espndeportes.espn.com/futbol/argentina/nota/_/id/16006878/lanus-vs-tigre-octavos-de-final-torneo-clausura-equipo-hora-tv-en-vivo)
+- **Qué canal pasa Lanús vs Tigre hoy: dónde ver el partido gratis y en vivo de la Liga Profesional**: [Link](https://www.365scores.com/es/news/lanus-vs-tigre-donde-ver-gratis-vivo/)
+- **En la semana del pasillo gate, Lanús tuvo el suyo tras ganar la Copa Sudamericana**: [Link](https://www.elgrafico.com.ar/articulo/primera-division/95385/en-la-semana-del-pasillo-gate-lanus-tuvo-el-suyo-tras-ganar-la-copa-sudamericana)
+
+
+### bucaramanga - fortaleza (N/A, 26/11/2025 20:55 Lima)
+
+- **Fecha 3: Bucaramanga regresa a casa a enfrentar al colero Fortaleza**: [Link](https://www.espn.com.pe/futbol/colombia/nota/_/id/16004313/bucaramanga-vs-fortaleza-fecha-tres-cuadrangulares-equipo-fecha-hora-y-tv-en-vivo)
+- **Fecha 3: Bucaramanga regresa a casa a enfrentar al colero Fortaleza**: [Link](https://www.espn.com.ar/futbol/colombia/nota/_/id/16004313/bucaramanga-vs-fortaleza-fecha-tres-cuadrangulares-equipo-fecha-hora-y-tv-en-vivo)
+- **Transmisión EN VIVO del Bucaramanga vs Fortaleza hoy: cómo mirar el partido por TV o streaming**: [Link](https://www.365scores.com/es/news/transmision-bucaramanga-vs-fortaleza/)
+
+
+### olimpia vs (N/A, 26/11/2025 20:55 Lima)
+
+- **El Olimpia gana el clásico contra el Marathón y sigue líder en Honduras**: [Link](https://www.swissinfo.ch/spa/el-olimpia-gana-el-cl%C3%A1sico-contra-el-marath%C3%B3n-y-sigue-l%C3%ADder-en-honduras/90459228)
+- **Liga Nacional: Así quedó la tabla de posiciones tras disputarse la jornada 18**: [Link](https://www.deportestvc.com/liga-nacional/liga-nacional-tabla-posiciones-jornada-18-torneo-apertura-2025-11-23)
+- **¿Cómo marcha el torneo de la Liga Nacional de Honduras? Real España podría quedar eliminado y Motagua amenaza a Marathón**: [Link](https://www.diez.hn/liganacionaldehonduras/como-marcha-torneo-liga-nacional-de-honduras-marathon-olimpia-motagua-CI28315272)
+
+
+### olimpia (N/A, 26/11/2025 20:55 Lima)
+
+- **Ettore Messina stepped down; Peppe Poeta takes the Head Coach position**: [Link](https://www.olimpiamilano.com/en/ettore-messina-stepped-down-peppe-poeta-takes-the-head-coach-position/)
+- **New era in Milano: Who exactly is Giuseppe Poeta?**: [Link](https://basketnews.com/news-235647-new-era-in-milano-who-exactly-is-giuseppe-poeta.html)
+- **After dominating the second half, Olimpia Milano dismantles Maccabi Tel Aviv**: [Link](https://basketballsphere.com/en/after-dominating-the-second-half-olimpia-milano-dismantled-maccabi-tel-aviv/)
+
+
+### hernan barcos (N/A, 26/11/2025 20:55 Lima)
+
+- **Incendio en Alianza Lima: Hinchas culpan a Carlos Zambrano por la salida de Hernán Barcos: “Ahí lo tienen c...**: [Link](https://bolavip.com/pe/alianza-lima/incendio-en-alianza-lima-hinchas-culpan-a-carlos-zambrano-por-la-salida-de-hernan-barcos-ahi-lo-tienen-con-vaso-en-mano)
+- **Hernán Barcos no seguirá en Alianza Lima: el ‘Pirata’ se despide de los íntimos a fin de año**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/hernan-barcos-no-seguira-en-alianza-lima-el-pirata-se-despide-de-los-intimos-a-fin-de-ano-noticia/)
+- **Reimond Manco reveló los motivos por los que Alianza Lima no quiere renovarle a Hernán Barcos: “Su relación con el grupo está desgastada”**: [Link](https://www.infobae.com/peru/deportes/2025/11/25/reimond-manco-revelo-los-motivos-por-los-que-alianza-lima-no-quiere-renovarle-a-hernan-barcos-su-relacion-con-el-grupo-esta-desgastada/)
+
+
+### celtics - pistons (N/A, 26/11/2025 20:55 Lima)
+
+- **Pistons' winning streak ends, team falls short of new franchise record**: [Link](https://sports.yahoo.com/articles/pistons-winning-streak-ends-team-011008808.html)
+- **Derrick White is the Celtics ‘Name to Know’ Player of the Game in Wednesday’s win over Pistons**: [Link](https://www.masslive.com/celtics/2025/11/derrick-white-is-the-celtics-name-to-know-player-of-the-game-in-wednesdays-win-over-pistons.html)
+- **Jaylen Brown scores 33 points in Celtics win vs. Pistons**: [Link](https://www.nba.com/watch/video/jaylen-brown-scores-33-points-in-celtics-win-vs-pistons)
+
+
 ### psg (N/A, 26/11/2025 15:26 Lima)
 
 - **Ousmane Dembélé peut-il faire son retour contre Tottenham ? « En tout cas, il a faim, comme toujours »**: [Link](https://www.lequipe.fr/Football/Article/Ousmane-dembele-peut-il-faire-son-retour-contre-tottenham-en-tout-cas-il-a-faim-comme-toujours/1611760)
@@ -951,75 +1021,5 @@ Sin noticias relacionadas disponibles.
 - **El caso Espinoza llega al Tribunal Constitucional**: [Link](https://lpderecho.pe/caso-espinoza-tribunal-constitucional/)
 - **JNJ metió de contrabando el caso de Delia Espinoza en su demanda competencial contra el PJ**: [Link](https://www.infobae.com/peru/2025/11/22/jnj-metio-de-contrabando-el-caso-de-delia-espinoza-en-su-demanda-competencial-contra-el-pj/)
 - **JNJ presenta denuncia penal contra juez Torres Tasso y exige su retiro del caso de Delia Espinoza**: [Link](https://canaln.pe/actualidad/caso-delia-espinoza-jnj-denuncia-penalmente-juez-torres-tasso-y-pide-que-se-abstenga-n488463)
-
-
-### mavericks - grizzlies (N/A, 23/11/2025 03:30 Lima)
-
-- **Grizzlies do tough works on boards and eke out 102-96 win over Mavs**: [Link](https://www.nba.com/mavs/news/grizzlies-do-tough-works-on-boards-and-eke-out-102-96-win-over-mavs)
-- **The Dallas Mavericks Need Change After Another EMBARRASSING Loss to Memphis | Klay Thompson Trade?**: [Link](https://www.abc10.com/video/sports/locked-on/lo-dallas/mavericks-show/the-dallas-mavericks-need-change-after-another-embarrassing-loss-to-memphis-klay-thompson-trade/535-73368fef-426c-41c8-8ce3-9bf4744b3251)
-- **Cooper Flagg has 12 points, 7 rebounds in Mavs’ loss to Grizzlies**: [Link](https://www.pressherald.com/2025/11/22/cooper-flagg-has-12-points-7-rebounds-in-mavs-loss-to-grizzlies/)
-
-
-### f1 las vegas (N/A, 23/11/2025 03:30 Lima)
-
-- **Norris takes Las Vegas GP pole in wet Qualifying**: [Link](https://www.formula1.com/en/latest/article/norris-takes-las-vegas-gp-pole-from-verstappen-and-sainz-in-thrilling-rain.4iIHVx7pibOgnH93J6CUQZ)
-- **McLaren reveal 'special focus' as 'tight and uncertain' test awaits**: [Link](https://racingnews365.com/mclaren-reveal-special-focus-to-fix-las-vegas-concern)
-- **grandprix.com**: [Link](https://www.grandprix.com/races/las-vegas-gp-2025-friday-team-quotes.html)
-
-
-### arsenal vs tottenham (N/A, 23/11/2025 03:30 Lima)
-
-- **Opinion: Beating Tottenham is not optional for Arsenal this time**: [Link](https://www.justarsenal.com/opinion-beating-tottenham-is-not-optional-for-arsenal-this-time/404478)
-- **How Thomas Frank can be Tottenham's secret weapon in north London derby against Arsenal**: [Link](https://www.inkl.com/news/how-thomas-frank-can-be-tottenham-s-secret-weapon-in-north-london-derby-against-arsenal)
-- **Preview: The first North London Derby of the season**: [Link](https://www.fotmob.com/topnews/24059-preview-first-north-london-derby-season?utm_source=fotmob)
-
-
-### f1 (N/A, 22/11/2025 23:36 Lima)
-
-- **Beyoncé turns heads in form-fitting racing gear while arriving at F1 Grand Prix with Jay-Z**: [Link](https://pagesix.com/2025/11/22/celebrity-news/beyonce-arrives-at-f1-in-form-fitting-racing-gear/)
-- **Catherine Zeta-Jones looks incredible on 'date night' with Michael Douglas at F1 Las Vegas**: [Link](https://www.hellomagazine.com/celebrities/868987/catherine-zeta-jones-looks-incredible-on-date-night-with-michael-douglas-at-f1-las-vegas/)
-- **Gordon Ramsay and his wife Tana step out at the Las Vegas Grand Prix with Hollywood legend Michael Douglas and Catherine Zeta-Jones**: [Link](https://www.dailymail.co.uk/tvshowbiz/article-15315957/Gordon-Tana-Ramsay-step-Vegas-Grand-Prix-Michael-Douglas-Catherine-Zeta-Jones.html)
-
-
-### nuggets - kings (N/A, 22/11/2025 23:36 Lima)
-
-- **Sacramento Kings vs Denver Nuggets Prediction, Pick, Odds -- 11/22**: [Link](https://www.actionnetwork.com/nba/sacramento-kings-vs-denver-nuggets-prediction-pick-odds-saturday-november-22)
-- **Kings vs. Nuggets: The Tank Stumbles Into Denver**: [Link](https://kingsherald.com/articles/kings-vs-nuggets-the-tank-stumbles-into-denver/?utm_source=bleacherreport&utm_medium=referral)
-- **Best Nikola Jokic Player Prop Bet for Nuggets vs. Kings on Saturday 11/22/25**: [Link](https://dknetwork.draftkings.com/2025/11/22/best-nikola-jokic-player-prop-bet-for-nuggets-vs-kings-on-saturday-11-22-25/)
-
-
-### guillermo rossini (N/A, 22/11/2025 23:36 Lima)
-
-- **Guillermo Rossini, exconductor de ‘Los chistosos’ y emblemático humorista e imitador peruano, falleció a los 93 años**: [Link](https://rpp.pe/cultura/mas-cultura/guillermo-rossini-exconductor-de-los-chistosos-y-emblematico-humorista-e-imitador-peruano-fallecio-a-los-93-anos-noticia-1664960)
-- **Fallece a los 93 años Guillermo Rossini, comediante y exconductor de ‘Los Chistosos’**: [Link](https://elcomercio.pe/luces/guillermo-rossini-fallece-a-los-93-anos-el-comediante-y-exconductor-de-los-chistosos-ultimas-noticia/)
-- **Fallece Guillermo Rossini, imitador radial ícono de 'Los Chistosos', a los 93 años**: [Link](https://larepublica.pe/espectaculos/2025/11/22/fallece-guillermo-rossini-imitador-radial-icono-de-los-chistosos-a-los-93-anos-1212948)
-
-
-### karol g (N/A, 22/11/2025 23:36 Lima)
-
-- **Tainy Says He and Karol G ‘Understood Each Other Very Well’ While Making ‘Única’**: [Link](https://www.rollingstone.com/music/music-latin/tainy-karol-g-unica-1235470151/)
-- **Tainy & Karol G’s Hazy Heartbreak Song ‘Única’ & More Best New Music Latin**: [Link](https://www.billboard.com/music/latin/best-new-music-latin-tainy-karol-g-unica-1236119404/)
-- **Karol G Releases Única And The Questions About a Possible Breakup With Feid Grow Louder**: [Link](https://belatina.com/karol-g-releases-unica-and-the-questions-about-a-possible-breakup-with-feid-grow-louder/)
-
-
-### formula 1 (N/A, 22/11/2025 23:36 Lima)
-
-- **Norris vs Verstappen and Sainz in the podium mix – What To Watch For in the Las Vegas Grand Prix**: [Link](https://www.formula1.com/en/latest/article/norris-vs-verstappen-and-sainz-in-the-podium-mix-what-to-watch-for-in-the.6fYeghobafiTAUKbKmEGAH)
-- **Doriane Seals F1 ACADEMY Title in Las Vegas**: [Link](https://www.mercedesamgf1.com/news/doriane-seals-f1-academy-title-in-las-vegas)
-- **Formula One Las Vegas Grand Prix Set to Boost Tourism, Entertainment, and Economic Growth in the City**: [Link](https://www.travelandtourworld.com/news/article/formula-one-las-vegas-grand-prix-set-to-boost-tourism-entertainment-and-economic-growth-in-the-city/)
-
-
-### gp las vegas (N/A, 22/11/2025 23:36 Lima)
-
-- **STRATEGY GUIDE: What are the tactical options for the Las Vegas Grand Prix?**: [Link](https://www.formula1.com/en/latest/article/strategy-guide-what-are-the-tactical-options-for-the-las-vegas-grand-prix.2AqYVCTkyNUAFILUxCWgoK)
-- **F1 teams found to be breaching tyre temperature limits in Las Vegas**: [Link](https://www.the-race.com/formula-1/f1-teams-warned-over-tyre-temperature-tricks-after-two-breach-limit/)
-- **Las Vegas GP data disruption force Pirelli and F1 teams into uncertainty**: [Link](https://www.gpblog.com/en/news/las-vegas-gp-data-disruption-force-pirelli-and-f1-teams-into-uncertainty)
-
-
-### latina en vivo (N/A, 22/11/2025 23:36 Lima)
-
-- **Alianza Lima vs Rebaza Acosta 3-0: resumen del triunfazo ‘blanquiazul’ por la fecha 5 de la Liga Peruana de Vóley 2025/2026**: [Link](https://www.infobae.com/peru/deportes/2025/11/22/alianza-lima-vs-rebaza-acosta-en-vivo-hoy-latina-fecha-5-primera-fase-liga-peruana-de-voley-20252026-resumen-resultado/)
-- **Programación de la fecha 5 en la Liga Peruana de Vóley 2025-2026: días y horarios de todos los partidos**: [Link](https://rpp.pe/voley/mas-voley/liga-peruana-de-voley-2025-2026-programacion-de-la-fecha-5-fixture-fecha-y-horario-de-los-partidos-alianza-lima-universitario-san-martin-regatas-lpv-noticia-1664044)
-- **Regatas vs San Martín en vivo: hora, canal tv y dónde ver la Liga Peruana de Vóley**: [Link](https://elcomercio.pe/deporte-total/voley/regatas-vs-san-martin-en-vivo-hora-canal-tv-y-donde-ver-la-liga-peruana-de-voley-latina-tv-video-resumen-sets-y-puntos-tdpe-noticia/)
 
 
