@@ -1,3 +1,59 @@
+### happy thanksgiving (N/A, 27/11/2025 11:31 Lima)
+
+- **Cold and breezy on Thanksgiving, ALERT DAY Saturday for accumulating snow | Latest Weather Forecast**: [Link](https://www.channel3000.com/weather/forecast/cold-and-breezy-on-thanksgiving-alert-day-saturday-for-accumulating-snow/article_a1211afa-86c8-5443-b891-835dd6b621fd.html)
+- **Cold, Windy, with Flurries for Thanksgiving**: [Link](https://www.wtae.com/article/cold-windy-with-flurries-for-thanksgiving/69563932)
+- **Ken Barlow is forecasting a quiet and chilly Thanksgiving Day**: [Link](https://kstp.com/kstp-news/weather-forecast/ken-barlow-is-forecasting-a-quiet-and-chilly-thanksgiving-day/)
+
+
+### black friday 2025 (N/A, 27/11/2025 11:31 Lima)
+
+- **I Dug Up 120 Killer Black Friday Deals From Apple, Samsung, Eufy, Ring and More**: [Link](https://www.cnet.com/deals/best-black-friday-deals-2025-11-27/)
+- **113+ Black Friday Sales Already Live: Apple, PlayStation and more**: [Link](https://www.nbcnews.com/select/shopping/best-black-friday-deals-2025-rcna245653)
+- **Black Friday 2025 Sales Are Live: 65 Major Discounts We’re Shopping Today**: [Link](https://www.today.com/shop/best-black-friday-deals-2025-rcna246116)
+
+
+### 27 de noviembre que se celebra (N/A, 27/11/2025 11:31 Lima)
+
+- **No habrá clases escolares el jueves 27 de noviembre por ser día no laborable en esta región, según Minedu**: [Link](https://larepublica.pe/sociedad/2025/11/25/no-habra-clases-escolares-el-jueves-27-de-noviembre-por-ser-dia-no-laborable-en-esta-region-segun-minedu-2349450)
+- **¡Minedu lo hizo oficial! Este jueves 27 de noviembre no habrá clases escolares en esta región por día no laborable**: [Link](https://elcomercio.pe/respuestas/donde/minedu-lo-hizo-oficial-este-jueves-27-de-noviembre-no-habra-clases-escolares-en-esta-region-por-dia-no-laborable-tdpe-noticia/)
+- **¿El 27 de noviembre es feriado? Conoce quiénes descansan y qué se celebra, según El Peruano**: [Link](https://libero.pe/tiempoextra/2025/11/26/27-de-noviembre-es-feriado-conoce-quienes-descansan-se-celebra-segun-peruano-301522)
+
+
+### accion de gracias (N/A, 27/11/2025 11:31 Lima)
+
+- **Macy’s Thanksgiving Day Parade 2025 en Nueva York: los mejores lugares para verlo**: [Link](https://elcomercio.pe/mag/usa/local-us/macys-thanksgiving-day-parade-2025-en-nueva-york-los-mejores-lugares-para-verlo-dia-de-accion-de-gracias-nnda-nnni-noticia/)
+- **Desfile de Acción de Gracias 2025, en vivo: Ultima hora del Macy’s Thanksgiving Day Parade en Nueva York**: [Link](https://as.com/us/actualidad/desfile-de-accion-de-gracias-2025-en-vivo-ultima-hora-del-macys-thanksgiving-day-parade-en-nueva-york-f202511-d/)
+- **Cynthia Erivo, Ciara, Kpop Demon Hunters y más actuarán**: [Link](https://noticiashuesca.com/deportes/cynthia-erivo-ciara-kpop-demon-hunters-y-mas-actuaran/144176/)
+
+
+### uefa europa league (N/A, 27/11/2025 11:31 Lima)
+
+- **Forgotten Celtic player tipped to start against Feyenoord**: [Link](https://thecelticbhoys.com/forgotten-celtic-player-tipped-to-start-against-feyenoord)
+- **Best bets: Europa League and Conference League tips for Thursday November 27**: [Link](https://www.sportinglife.com/football/news/best-bets-europa-league-and-conference-league-tips-for-thursday-november-27/228920)
+- **Kieran Tierney: Exclusive Celtic TV interview**: [Link](https://www.celticfc.com/news/2025/november/27/kieran-tierney--exclusive-celtic-tv-interview/)
+
+
+### thanksgiving (N/A, 27/11/2025 11:31 Lima)
+
+- **Macy’s Thanksgiving Day Parade 2025 live updates: See photos from NYC of the floats, performers and more**: [Link](https://www.nbcnews.com/news/us-news/live-blog/macys-thanksgiving-day-parade-2025-live-updates-rcna245927)
+- **Labubu and KPop Demon Hunters Join Macy’s Thanksgiving Day Parade**: [Link](https://www.nytimes.com/2025/11/27/nyregion/macys-thanksgiving-day-parade.html)
+- **2025 Macy's Thanksgiving Day Parade: Millions gather to watch Thanksgiving parade**: [Link](https://abc7ny.com/post/2025-macys-thanksgiving-day-parade-millions-gather-watch/18217209/)
+
+
+### 27 de noviembre (N/A, 27/11/2025 11:31 Lima)
+
+- **Partidos de hoy, jueves 27 de noviembre: a qué hora y en canales ver fútbol en vivo**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/partidos-de-hoy-jueves-27-de-noviembre-del-2025-resultados-horarios-canales-tv-y-donde-ver-futbol-en-vivo-noticia/)
+- **Partidos de hoy, sábado 22 de noviembre de 2025: programación, canales TV y resultados en vivo**: [Link](https://www.infobae.com/peru/deportes/2025/11/22/partidos-de-hoy-sabado-22-de-noviembre-de-2025-programacion-canales-tv-y-resultados-en-vivo/)
+- **El sábado (22) tiene Brasileirão, Sula y europeos**: [Link](https://masmma.com.mx/futbol/el-sabado-22-tiene-brasileirao-sula-y-europeos/125378/)
+
+
+### dia de accion de gracias (N/A, 27/11/2025 11:31 Lima)
+
+- **Hoy se celebra el Día de Acción de Gracias: ¿por qué el Thanksgiving es tan importante en Estados Unidos?**: [Link](https://elcomercio.pe/respuestas/cuando/fecha-exacta-del-dia-de-accion-de-gracias-2025-que-se-celebra-y-por-que-el-thanksgiving-es-un-dia-especial-en-estados-unidos-frases-tdpe-noticia/)
+- **¿Qué se celebra en el Día de Acción de Gracias 2025? Por qué el 27 de noviembre es feriado**: [Link](https://www.usatoday.com/story/news/2025/11/27/dia-de-accion-de-gracias-por-que-thanksgiving-se-celebra-nov-27/87400833007/)
+- **Thanksgiving: la oscura y sangrienta historia detrás del Día de Acción de Gracias que nadie cuenta**: [Link](https://www.univision.com/noticias/trending/historia-detras-de-thanksgiving-2025)
+
+
 ### costa verde cerrada (N/A, 27/11/2025 07:52 Lima)
 
 - **Circuito de la Costa Verde cierra desde HOY por los Juegos Bolivarianos 2025: estos son los horarios**: [Link](https://www.infobae.com/peru/deportes/2025/11/26/manana-27-de-noviembre-cerraran-la-costa-verde-por-los-juegos-bolivarianos-2025-durante-este-horario/)
@@ -968,59 +1024,5 @@ Sin noticias relacionadas disponibles.
 - **Presidente José Jerí concedió su primera entrevista televisiva a Beto Ortiz: se grabó en Palacio y se emitirá esta noche**: [Link](https://www.infobae.com/peru/2025/11/23/presidente-jose-jeri-concedio-su-primera-entrevista-televisiva-a-beto-ortiz-se-grabo-en-palacio-y-se-emitira-esta-noche/)
 - **José Jerí afirma que su Gobierno es de centro: "Rescato lo mejor de un lado y el otro"**: [Link](https://peru21.pe/politica/jose-jeri-afirma-que-su-gobierno-es-de-centro-rescato-lo-mejor-de-un-lado-y-el-otro/)
 - **'El valor de la verdad' del presidente José Jerí EN VIVO: horario y canal de TV donde ver el programa de Beto Ortiz**: [Link](https://larepublica.pe/espectaculos/2025/11/23/el-valor-de-la-verdad-de-agatha-lys-en-vivo-horario-y-canal-de-tv-donde-ver-el-programa-de-beto-ortiz-evdlv-en-peru-estados-unidos-espana-y-otros-paises-1478295)
-
-
-### udo kier (N/A, 23/11/2025 23:37 Lima)
-
-- **Udo Kier, German Actor Who Appeared in ‘My Own Private Idaho,’ ‘Andy Warhol’s Frankenstein,’ Dies at 81**: [Link](https://variety.com/2025/film/news/udo-kier-dead-own-private-idaho-andy-warhol-frankenstein-1236590259/)
-- **Udo Kier Dies: Prolific Star With Nearly Six Decades Of Film Credits Was 81 Years Old**: [Link](https://www.yahoo.com/entertainment/movies/articles/udo-kier-dies-prolific-star-031328428.html)
-- **Cult Actor Udo Kier Dies at 81**: [Link](https://www.vulture.com/article/cult-actor-udo-kier-dies-at-81.html)
-
-
-### panamericana en vivo (N/A, 23/11/2025 23:37 Lima)
-
-- **Gremios anuncian que no habrá paro de transportistas este lunes 24 de noviembre y evalúan fechas para medida**: [Link](https://larepublica.pe/sociedad/2025/11/23/no-habra-paro-de-transportistas-este-lunes-24-de-noviembre-gremios-aclaran-situacion-ntpe-1114557)
-- **¿Cuándo será el paro de 48 horas en Lima y Callao? Lo último que se sabe por los transportistas**: [Link](https://www.infobae.com/peru/2025/11/19/cuando-sera-el-nuevo-paro-de-48-horas-en-lima-y-callao-esto-dicen-los-transportistas/)
-- **Delincuentes elevan cobro de extorsiones a transportistas por Navidad y Año Nuevo**: [Link](https://caretas.pe/nacional/delincuentes-elevan-cobro-de-extorsiones-a-transportistas-por-navidad-y-ano-nuevo/)
-
-
-### juarez vs (N/A, 23/11/2025 21:04 Lima)
-
-- **FC Juárez y su deuda pendiente en fases finales**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/15992724/fc-juarez-bravos-historial-resultados-fase-final-repechaje-liga-mx)
-- **Partidos hoy domingo 23 de noviembre: se juega el último Play-In hacia la Liguilla**: [Link](https://www.tudn.com/futbol/liga-mx/partidos-hoy-domingo-23-de-noviembre-se-juega-ultimo-play-in-hacia-liguilla-apertura-2025)
-- **Qué canal pasa Juárez vs Pachuca hoy: dónde ver GRATIS y EN VIVO el partido de la Liga MX**: [Link](https://www.365scores.com/es/news/juarez-vs-pachuca-donde-ver-gratis-vivo/)
-
-
-### philadelphia vs (N/A, 23/11/2025 21:04 Lima)
-
-- **Cowboys claw back from 14-point deficit to down Eagles**: [Link](https://www.reuters.com/sports/cowboys-claw-back-14-point-deficit-down-eagles--flm-2025-11-24/)
-- **Should Tom Brady become a lip-reader?! 😂**: [Link](https://www.foxsports.com/watch-vertical/fmc-9cnbml5xep2xn6n8)
-- **Jalen Hurts makes NFL history with 7th rushing touchdown of the season**: [Link](https://sports.yahoo.com/article/jalen-hurts-makes-nfl-history-221901640.html)
-
-
-### jazz - lakers (N/A, 23/11/2025 21:04 Lima)
-
-- **How to Watch Lakers vs Jazz: Live Stream NBA, TV Channel**: [Link](https://www.newsweek.com/how-to-watch-lakers-vs-jazz-live-stream-nba-tv-channel-11094603)
-- **Dave McMenamin: Lakers’ injury report for Sunday: …**: [Link](https://www.hoopshype.com/story/sports/nba/rumors/2025/11/22/dave-mcmenamin-lakers-injury-report-for-sunday/87426840007/)
-- **Preview: Utah Jazz Host Los Angeles Lakers**: [Link](https://utahjazz.com/news/preview-utah-jazz-host-los-angeles-lakers)
-
-
-### regatas vs san martin (N/A, 23/11/2025 21:04 Lima)
-
-- **Universitario vs Kazoku No Perú 3-0: resumen del triunfo ‘crema’ por la fecha 5 de la Liga Peruana de Vóley 2025/2026**: [Link](https://www.infobae.com/peru/deportes/2025/11/23/universitario-vs-kazoku-no-peru-en-vivo-hoy-latina-fecha-5-primera-fase-liga-peruana-de-voley-2025-2026-resumen-resultado/)
-- **¿Dónde ver San Martín vs Regatas EN VIVO por la Liga Peruana de Vóley?**: [Link](https://elcomercio.pe/deporte-total/voley/regatas-vs-san-martin-en-vivo-hora-canal-tv-y-donde-ver-la-liga-peruana-de-voley-latina-tv-video-resumen-sets-y-puntos-tdpe-noticia/)
-- **Programación de la fecha 6 de la Liga Peruana de Vóley 2025-2026: días y horarios de todos los partidos**: [Link](https://rpp.pe/voley/mas-voley/liga-peruana-de-voley-2025-2026-programacion-de-la-fecha-6-fixture-fecha-y-horario-de-los-partidos-alianza-lima-universitario-san-martin-regatas-lpv-noticia-1665032)
-
-
-### américa - junior (N/A, 23/11/2025 21:04 Lima)
-
-- **Transmisión EN VIVO del América de Cali vs Junior hoy: cómo mirar el partido por TV o streaming**: [Link](https://www.365scores.com/es/news/transmision-america-de-cali-vs-junior/)
-- **Pronóstico América de Cali CD Junior FC - Liga BetPlay 23/11/25**: [Link](https://www.sportytrader.com/es/pronosticos/america-de-cali-club-atletico-junior-306980/)
-- **América de Cali anuncia los convocados para su partido con el Junior y buscar su paso a la final**: [Link](https://www.elpais.com.co/deportes/america-de-cali/america-de-cali-anuncia-los-convocados-para-su-partido-con-el-junior-y-buscar-su-paso-a-la-final-2320.html)
-
-
-### paro 24 de noviembre (N/A, 23/11/2025 21:04 Lima)
-
-Sin noticias relacionadas disponibles.
 
 
