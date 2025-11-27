@@ -1,3 +1,73 @@
+### costa verde cerrada (N/A, 27/11/2025 07:52 Lima)
+
+- **Circuito de la Costa Verde cierra desde HOY por los Juegos Bolivarianos 2025: estos son los horarios**: [Link](https://www.infobae.com/peru/deportes/2025/11/26/manana-27-de-noviembre-cerraran-la-costa-verde-por-los-juegos-bolivarianos-2025-durante-este-horario/)
+- **Cierre de la Costa Verde: plan de desvío vehicular por competencia de los Juegos Bolivarianos**: [Link](https://rpp.pe/lima/actualidad/cierre-de-la-costa-verde-plan-de-desvio-vehicular-por-competencia-de-los-juegos-bolivarianos-noticia-1665495)
+- **Libros que vuelan, la Costa Verde cerrada y la mayor cifra de presos en 15 años**: [Link](https://elcomercio.pe/opinion/columnistas/libros-que-vuelan-la-costa-verde-cerrada-y-la-mayor-cifra-de-presos-en-15-anos-noticia/)
+
+
+### final libertadores (N/A, 27/11/2025 07:52 Lima)
+
+- **Palmeiras y Flamengo van por la gloria: definen la Copa Libertadores en Lima**: [Link](https://www.espn.com.pe/futbol/copa-libertadores/nota/_/id/16006453/palmeiras-vs-flamengo-final-copa-conmebol-libertadores-equipo-hora-tv-en-vivo)
+- **Palmeiras y Flamengo, el éxito de hacer bien las cosas**: [Link](https://as.com/futbol/internacional/palmeiras-y-flamengo-el-exito-de-hacer-bien-las-cosas-f202511-n/)
+- **Ya está en Lima: el plantel de Palmeiras llegó a Perú para jugar la final de la Copa Libertadores**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/palmeiras-en-lima-llego-a-peru-para-jugar-la-final-de-la-copa-libertadores-2025-vs-flamengo-noticia/)
+
+
+### miss international 2025 (N/A, 27/11/2025 07:52 Lima)
+
+- **¡Reina absoluta! Catalina Duque se corona como Miss International 2025 y le da el triunfo a Colombia**: [Link](https://larepublica.pe/entretenimiento/2025/11/27/reina-absoluta-paola-guzman-se-corona-como-miss-international-2025-y-le-da-el-triunfo-a-bolivia-2280285)
+- **Miss International 2025: ¿Cuándo es la final y dónde verla EN VIVO desde Japón?**: [Link](https://larepublica.pe/entretenimiento/2025/11/22/cuando-es-la-final-del-miss-international-2025-fecha-horarios-y-canal-de-transmision-del-certamen-de-belleza-en-japon-801372)
+- **Quién es Nathie Quijano, la modelo peruana que brilla en el Miss International 2025 y que busca traer la corona a Perú**: [Link](https://larepublica.pe/entretenimiento/2025/11/25/quien-es-nathie-quijano-la-modelo-peruana-que-brilla-en-el-miss-international-2025-y-que-busca-traer-la-corona-a-peru-1088375)
+
+
+### juegos bolivarianos 2025 (N/A, 27/11/2025 07:52 Lima)
+
+- **Miraflores inaugura “Parque de la Juventud”, el primer parque dedicado al deporte del distrito**: [Link](https://www.miraflores.gob.pe/miraflores-inaugura-parque-de-la-juventud-el-primer-parque-dedicado-al-deporte-del-distrito/)
+- **Juegos Bolivarianos 2025: Así fue la gran inauguración del certamen en Ayacucho**: [Link](https://andina.pe/agencia/noticia-juegos-bolivarianos-2025-asi-fue-gran-inauguracion-del-certamen-ayacucho-1053375.aspx)
+- **Movistar TV transmite los XX Juegos Bolivarianos Ayacucho-Lima 2025**: [Link](https://depor.com/full-deportes/movistar-tv-transmite-los-xx-juegos-bolivarianos-ayacucho-lima-2025-noticia/)
+
+
+### que se celebra el 27 de noviembre (N/A, 27/11/2025 07:52 Lima)
+
+- **No habrá clases escolares el jueves 27 de noviembre por ser día no laborable en esta región, según Minedu**: [Link](https://larepublica.pe/sociedad/2025/11/25/no-habra-clases-escolares-el-jueves-27-de-noviembre-por-ser-dia-no-laborable-en-esta-region-segun-minedu-2349450)
+- **¡Minedu lo hizo oficial! Este jueves 27 de noviembre no habrá clases escolares en esta región por día no laborable**: [Link](https://elcomercio.pe/respuestas/donde/minedu-lo-hizo-oficial-este-jueves-27-de-noviembre-no-habra-clases-escolares-en-esta-region-por-dia-no-laborable-tdpe-noticia/)
+- **¿El 27 de noviembre es feriado? Conoce quiénes descansan y qué se celebra, según El Peruano**: [Link](https://libero.pe/tiempoextra/2025/11/26/27-de-noviembre-es-feriado-conoce-quienes-descansan-se-celebra-segun-peruano-301522)
+
+
+### thanksgiving 2025 (N/A, 27/11/2025 07:52 Lima)
+
+- **How to Watch the 2025 Macy’s Thanksgiving Day Parade**: [Link](https://www.nytimes.com/2025/11/26/nyregion/macys-thanksgiving-day-parade-how-to-watch.html)
+- **Macy’s Thanksgiving Day Parade to kick off in Manhattan**: [Link](https://www.wcvb.com/article/macys-thanksgiving-day-parade-2025/69565104)
+- **2025 Macy's Thanksgiving Day Parade: NYPD bulletin issues warning despite no specific threats**: [Link](https://abc7ny.com/post/2025-macys-thanksgiving-day-parade-nypd-bulletin-issues-warning-despite-no-specific-threats/18213272/)
+
+
+### sedapal (N/A, 27/11/2025 07:52 Lima)
+
+- **Corte de agua en Lima: Sedapal advierte suspensión del servicio este 26 y 27 de noviembre en seis distritos**: [Link](https://www.infobae.com/peru/2025/11/25/corte-de-agua-en-lima-sedapal-advierte-suspension-del-servicio-este-26-y-27-de-noviembre-en-seis-distritos/)
+- **Corte de agua en Lima hoy 26 de noviembre: Distritos y horarios afectados**: [Link](https://rpp.pe/lima/obras/corte-de-agua-en-lima-hoy-26-de-noviembre-distritos-y-horarios-afectados-noticia-1665342)
+- **¡A juntar agua desde YA! Anuncian corte de agua para el martes, 25 de noviembre: AQUÍ todos los detalles**: [Link](https://www.exitosanoticias.pe/actualidad/a-juntar-agua-ya-anuncian-corte-agua-martes-25-noviembre-aqui-todos-detalles-n163373)
+
+
+### latam peru (N/A, 27/11/2025 07:52 Lima)
+
+- **LATAM Airlines Perú se convierte en la aerolínea oficial que trae la magia de Toys R US a Latinoamérica**: [Link](https://www.businessempresarial.com.pe/latam-airlines-peru-se-convierte-en-la-aerolinea-oficial-que-trae-la-magia-de-toys-r-us-a-latinoamerica/)
+- **Aeropuerto de Cusco: lluvia intensa y neblina impidieron aterrizar anoche a cuatro vuelos**: [Link](https://andina.pe/agencia/noticia-aeropuerto-cusco-lluvia-intensa-y-neblina-impidieron-aterrizar-anoche-a-cuatro-vuelos-1053226.aspx)
+- **Lluvias impiden aterrizaje de cuatro vuelos de Latam en el aeropuerto del Cusco**: [Link](https://diarioviral.pe/actualidad/peru/lluvias-impiden-aterrizaje-de-cuatro-vuelos-de-latam-en-el-aeropuerto-del-cusco-49252)
+
+
+### xiaomi poco f8 ultra (N/A, 27/11/2025 07:52 Lima)
+
+- **Los nuevos Poco F8 Ultra avanzan a la gama premium con Snapdragon 8 Elite Gen 5 | smartphone | | TECNOLOGIA**: [Link](https://elcomercio.pe/tecnologia/moviles/los-nuevos-poco-f8-ultra-avanzan-a-la-gama-premium-con-snapdragon-8-elite-gen-5-smartphone-noticia/)
+- **El mejor Xiaomi POCO de la historia se ha lanzado en pleno Black Friday. Ya está de oferta y viene con...**: [Link](https://www.xataka.com/seleccion/mejor-xiaomi-poco-historia-se-ha-lanzado-pleno-black-friday-esta-oferta-viene-subwoofer-firmado-bose)
+- **En una carrera por móviles cada vez más caros, Xiaomi hace premium su marca barata. Los Poco F8 Pro y...**: [Link](https://www.xatakandroid.com/moviles-android/poco-f8-pro-poco-f8-ultra-caracteristicas-precio-ficha-tecnica)
+
+
+### samsung (N/A, 27/11/2025 07:52 Lima)
+
+- **Apple projected to beat Samsung in smartphone shipments for first time since 2011**: [Link](https://www.foxbusiness.com/markets/apple-projected-beat-samsung-smartphone-shipments-first-time-since-2011)
+- **Apple iPhone shipments to beat Samsung for the first time in 14 years, report says**: [Link](https://www.cnbc.com/2025/11/26/apple-iphone-shipments-to-beat-samsung-for-the-first-time-in-14-years.html)
+- **Apple Set to Become World’s Top Phone Maker, Overtaking Samsung**: [Link](https://www.bloomberg.com/news/articles/2025-11-25/apple-set-to-become-world-s-top-phone-maker-overtaking-samsung)
+
+
 ### raul asencio (N/A, 27/11/2025 03:34 Lima)
 
 - **Raul Asencio pays emotional homage to his grandfather – Madridista passed away before Olympiacos clash**: [Link](https://tribuna.com/en/blogs/raul-asencio-pays-emotional-homage-to-his-grandfather-madrid/)
@@ -952,75 +1022,5 @@ Sin noticias relacionadas disponibles.
 ### paro 24 de noviembre (N/A, 23/11/2025 21:04 Lima)
 
 Sin noticias relacionadas disponibles.
-
-
-### aixa vigil (N/A, 23/11/2025 21:04 Lima)
-
-- **Aixa Vigil: “Toda la vida he sido hincha de la ‘U’, ahora nada me compromete a decirlo; Alianza es un capítulo en mi vida que ya cerré”**: [Link](https://elcomercio.pe/deporte-total/voley/aixa-vigil-toda-la-vida-he-sido-hincha-de-la-u-ahora-nada-me-compromete-a-decirlo-alianza-es-un-capitulo-en-mi-vida-que-ya-cerre-liga-peruana-de-voley-noticia/)
-- **Aixa Vigil se confiesa: "Toda mi vida he sido hincha de Universitario"**: [Link](https://rpp.pe/voley/mas-voley/aixa-vigil-confiesa-que-es-hincha-de-universitario-liga-peruana-de-voley-alianza-lima-san-martin-noticia-1665005)
-- **Campeonó dos veces con Alianza Lima y ahora reveló su amor por Universitario: "Soy hincha"**: [Link](https://libero.pe/deportes/voley/2025/11/23/aixa-vigil-campeono-dos-veces-alianza-lima-ahora-revelo-su-amor-universitario-soy-hincha-1254397)
-
-
-### boca juniors - talleres (N/A, 23/11/2025 21:04 Lima)
-
-- **Boca Juniors le gana al Talleres de Carlos Tevez en la Bombonera por los octavos del Torneo Clausura**: [Link](https://www.infobae.com/deportes/2025/11/23/boca-juniors-recibe-al-talleres-de-carlos-tevez-en-la-bombonera-por-los-octavos-del-torneo-clausura-hora-tv-y-probables-formaciones/)
-- **Desde el vestuario: arrancó el segundo tiempo y Merentiel puso el 2-0 para Boca vs. Talleres**: [Link](https://espndeportes.espn.com/futbol/argentina/nota/_/id/15997981/video-boca-vs-talleres-cordoba-gol-de-merentiel-la-bestia)
-- **Boca vs. Talleres, hoy EN VIVO por el Torneo Clausura: ¡gol del Xeneize!**: [Link](https://www.ole.com.ar/futbol-primera/boca-vs-talleres-partidos-octavos-final-torneo-clausura-2025_0_JhnCo9QAVe.html)
-
-
-### cruzeiro - corinthians (N/A, 23/11/2025 21:04 Lima)
-
-- **Cruzeiro na Libertadores: veja datas do sorteio, do início da fase de grupos e classificados**: [Link](https://www.centraldatoca.com.br/campeonatos/brasileiro/2025/11/23/cruzeiro-na-libertadores-veja-datas-do-sorteio-do-inicio-da-fase-de-grupos-e-classificados/)
-- **Por que Memphis Depay, Hugo Souza e outros são desfalques do Corinthians contra o Cruzeiro**: [Link](https://www.goal.com/br/listas/por-que-memphis-depay-hugo-souza-desfalques-corinthians-contra-cruzeiro/blt1420b45d5227ea7e)
-- **Comentário de Everton Cesar em 'Jogo do Corinthians ao vivo'**: [Link](https://www.meutimao.com.br/comentario/16326604/o_corinthians_nao_perdeu_do_cruzeiro_o)
-
-
-### independiente del valle - orense (N/A, 23/11/2025 21:04 Lima)
-
-- **Independiente del Valle quiere dar otro paso al título ante Orense por la Liga Ecuabet**: [Link](https://espndeportes.espn.com/futbol/ecuador/nota/_/id/15983713/independiente-del-valle-vs-orense-por-liga-ecuabet-equipo-fecha-y-hora)
-- **Así marcha la tabla de posiciones del hexagonal del título de la Liga Ecuabet en el cierre de la fecha 6**: [Link](https://www.eluniverso.com/deportes/campeonato-ecuatoriano/asi-marcha-la-tabla-de-posiciones-del-hexagonal-del-titulo-de-la-liga-ecuabet-en-el-cierre-de-la-fecha-6-nota/)
-- **DIVISIÓN DE HONORES: IDV y Orense igualaron (0-0)**: [Link](https://kchcomunicacion.com/2025/11/23/division-de-honores-idv-y-orense-igualaron-0-0/)
-
-
-### tottenham (N/A, 23/11/2025 11:28 Lima)
-
-- **Arsenal vs. Tottenham en vivo: horario, canal TV y cómo ver por Premier League**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/arsenal-vs-tottenham-en-vivo-online-gratis-por-premier-league-via-espn-disney-plus-caliente-tv-movistar-futbol-libre-tv-a-que-hora-juegan-canal-que-transmite-y-donde-ver-partido-de-hoy-video-noticia/)
-- **Premier League: Arsenal y Tottenham miden sus fuerzas en el Derbi del norte de Londres**: [Link](https://rpp.pe/futbol/ligas-internacionales/premier-league-arsenal-y-tottenham-miden-sus-fuerzas-en-el-derbi-del-norte-de-londres-noticia-1664868)
-- **Pronósticos Arsenal vs Tottenham: apuestas apuntan a victoria de los gunners sin recibir goles**: [Link](https://depor.com/apuestas-deportivas/arsenal-vs-tottenham-pronosticos-apuestas-cuotas-23-11-2025-2/)
-
-
-### sunderland afc vs. arsenal (N/A, 23/11/2025 11:28 Lima)
-
-- **Pep Guardiola’s worst fear about Arsenal could be about to come true**: [Link](https://www.arsenalinsider.com/opinion/pep-guardiolas-worst-fear-about-arsenal-could-be-about-to-come-true/)
-- **Pep Guardiola drops verdict on Premier League title race as he eyes ‘important step’ against Newcastle**: [Link](https://newswav.com/article/pep-guardiola-drops-verdict-on-premier-league-title-race-as-he-eyes-importa-A2511_kmcRjB)
-- **Pep Guardiola: “The real season starts now”**: [Link](https://zamin.uz/en/sport/171304-pep-guardiola-the-real-season-starts-now.html)
-
-
-### betis vs girona (N/A, 23/11/2025 11:28 Lima)
-
-- **Azzedine Ounahi vs. Real Betis – Player props & odds to score a goal on November 23**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/11/22/azzedine-ounahi-soccer-player-props-11-23-2025/87426331007/)
-- **Real Betis favored over Girona with 69% head-to-head advantage in La Liga clash**: [Link](https://www.red94.net/news/44883-real-betis-favored-over-girona-with-69-head-to-head-advantage-in-la-liga-clash/)
-- **Míchel Sánchez: "At the end of the first round, we must be out of the relegation zone"**: [Link](https://www.gironafc.cat/en/news/michel-sanchez-at-the-end-of-the-first-round-we-must-be-out-of-the-relegation-zone)
-
-
-### arsenal - tottenham (N/A, 23/11/2025 11:28 Lima)
-
-- **Confirmed Arsenal Team to face Spurs in NLD – Merino leads the line and Hincapie at CB**: [Link](https://www.justarsenal.com/confirmed-arsenal-team-to-face-spurs-in-nld-merino-leads-the-line-and-hincapie-at-cb/404495)
-- **North London Derby: Arsenal Poised to Widen Title Lead as City, Liverpool Stumble**: [Link](https://www.dawan.africa/news/north-london-derby-arsenal-poised-to-widen-title-lead-as-city-liverpool-stumble)
-- **Preview: The first North London Derby of the season**: [Link](https://www.fotmob.com/ko/topnews/24059-preview-first-north-london-derby-season?utm_source=fotmob)
-
-
-### dni (N/A, 23/11/2025 11:28 Lima)
-
-- **Retiro AFP, últimas fechas en noviembre: Plazo para solicitar, según el cronograma**: [Link](https://www.infobae.com/peru/2025/11/22/retiro-afp-ultimas-fechas-en-noviembre-plazo-para-solicitar-segun-el-cronograma/)
-- **Retiro-AFP 2025 según fechas del cronograma: días para rezagados según DNI**: [Link](https://elcomercio.pe/respuestas/tramites/cuando-iniciar-el-retiro-afp-segun-el-cronograma-oficial-fechas-rezagadas-segun-tu-dni-octavo-retiro-tdpe-noticia/)
-- **Estos peruanos son los primeros en recibir hasta S/5.350, tras registrar su solicitud de retiro AFP 2025, según el cronograma oficial**: [Link](https://larepublica.pe/economia/2025/11/22/estos-peruanos-son-los-primeros-en-recibir-hasta-s5350-tras-registrar-su-solicitud-de-retiro-afp-2025-segun-el-cronograma-oficial-atmp-1539384)
-
-
-### al nassr (N/A, 23/11/2025 11:28 Lima)
-
-- **Preview:Al-Nassr vs Al Khaleej - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/al-nassr/preview/al-nassr-vs-al-khaleej-prediction-team-news-lineups_586139.html)
-- **Will Cristiano Ronaldo play tonight for Al-Nassr vs Al-Khaleej in Saudi Pro League?**: [Link](https://khelnow.com/football/world-football-will-cristiano-ronaldo-play-tonight-al-nassr-vs-al-khaleej-202511)
-- **Al-Nassr vs Al-Khaleej LIVE Score Updates in Saudi Pro League Match**: [Link](https://www.vavel.com/en-us/soccer/2025/11/23/1242218-al-nassr-vs-al-khaleej-live-score-saudi-pro-league.html)
 
 
