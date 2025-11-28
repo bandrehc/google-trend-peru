@@ -1,3 +1,69 @@
+### metz - rennes (N/A, 28/11/2025 15:26 Lima)
+
+- **Metz vs Rennes**: [Link](https://www.staderennais.com/matchs/2025-11-28-metz-vs-rennes)
+- **Beye et Le Mignan : symboles d’une stabilité nouvelle - Ligue 1 - J14 - Metz-Rennes**: [Link](https://www.sofoot.com/articles/metz-rennes-beye-le-mignan-symboles-dune-stabilite-nouvelle-sur-les-bancs-de-ligue-1)
+- **L1 : Programme et résultats de la 14e journée**: [Link](https://www.msn.com/fr-fr/sport/football/l1-programme-et-r%C3%A9sultats-de-la-14e-journ%C3%A9e/ar-AA1RioG1)
+
+
+### leipzig (N/A, 28/11/2025 15:26 Lima)
+
+- **Neue Titanic-Ausstellung in Leipzig: „Wir erzählen die echte Geschichte“**: [Link](https://www.lvz.de/lokales/leipzig/neue-titanic-ausstellung-in-leipzig-wir-erzaehlen-die-echte-geschichte-YNFEAT7XMNA43KLI5Z6GXPYSQY.html)
+- **Spektakuläre Ausstellung: "Titanic: Eine immersive Reise" eröffnete am 28. November 2025 in Leipzig**: [Link](https://www.mynewsdesk.com/de/leipzig/pressreleases/spektakulaere-ausstellung-titanic-eine-immersive-reise-eroeffnete-am-28-november-2025-in-leipzig-3418894)
+- **Hättet Ihr's gewusst? Dieses Detail teilt die legendäre Titanic mit dem Leipziger Hauptbahnhof**: [Link](https://www.tag24.de/leipzig/leipzig-veranstaltungen/schon-gewusst-dieses-detail-teilt-die-legendaere-titanic-mit-dem-leipziger-hauptbahnhof-3441247)
+
+
+### al ahli (N/A, 28/11/2025 15:26 Lima)
+
+- **Late strike by Camara sees Sharjah stun holders Al-Ahli in Asian Champions League**: [Link](https://www.flashscore.com/news/soccer-afc-champions-league-late-strike-by-camara-sees-sharjah-stun-holders-al-ahli-in-asian-champions-league/0UavaRRa/)
+- **AFC Champions League Elite News: Al-Ahli Saudi vs Sharjah Confirmed Line-ups**: [Link](https://footballpredictions.net/al-ahli-saudi-v-sharjah-team-news-confirmed-lineups)
+- **Late Camara strike sees Sharjah down Al-Ahli in ACLE**: [Link](https://www.nst.com.my/sports/football/2025/11/1323029/late-camara-strike-sees-sharjah-down-al-ahli-acle)
+
+
+### getafe - elche c. f. (N/A, 28/11/2025 15:26 Lima)
+
+- **Getafe vs Elche: Apuestas, Pronóstico y Cuotas**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2025/noviembre/pronostico-getafe-vs-elche-28-11-25)
+- **LaLiga EA Sports: Getafe se enfrenta ante la visita Elche por la fecha 14**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-getafe-se-enfrenta-ante-la-visita-elche-por-la-fecha-14-noticia-1665562)
+- **Sigue todas las noticias del mundo del fútbol en nuestra sección Fútbol en directo**: [Link](https://www.flashscore.es/noticias/futbol-en-directo-noticias-de-ultima-hora-laliga-jornada-14/UNzACNf4/)
+
+
+### como - sassuolo (N/A, 28/11/2025 15:26 Lima)
+
+- **Como - Sassuolo, en directo: Serie A, hoy en vivo**: [Link](https://as.com/futbol/internacional/como-sassuolo-en-directo-serie-a-hoy-en-vivo-f202511-n/)
+- **Gueye y Keane se vuelven a pelear... esta vez de broma tras el entrenamiento**: [Link](https://www.marca.com/futbol/premier-league/2025/11/27/gueye-keane-vuelven-pelear-vez-broma-entrenamient-video.html)
+- **Everton dio el golpe y derrotó a Manchester United en Old Trafford**: [Link](https://www.espn.com.ar/futbol/nota/_/id/15983617/manchester-united-vs-everton-fecha-12-premier-league-equipo-fecha-hora-y-tv-en-vivo)
+
+
+### metz vs (N/A, 28/11/2025 15:26 Lima)
+
+- **Liga de Francia: Stade Rennes quiere mantener su racha frente Metz**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-de-francia-stade-rennes-quiere-mantener-su-racha-frente-metz-noticia-1665559)
+
+
+### vitoria guimaraes vs (N/A, 28/11/2025 15:26 Lima)
+
+- **Preview: Vitoria de Guimaraes vs AVS - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/vitoria-de-guimaraes/preview/guimaraes-vs-avs-prediction-team-news-lineups_586468.html)
+
+
+### mönchengladbach - rb leipzig (N/A, 28/11/2025 15:26 Lima)
+
+- **Fußball heute live: Gladbach – Leipzig Übertragung im TV und Stream**: [Link](https://www.tipico.de/wett-tipps/sportwetten-news/fussball-heute-live-gladbach-leipzig-uebertragung-im-tv-und-stream)
+- **Polanski lässt Startformation unverändert**: [Link](https://www.borussia.de/news/polanski-laesst-startformation-unveraendert)
+- **Fußball-Bundesliga: RB Leipzig will Rückstand auf die Bayern verkürzen**: [Link](https://www.zeit.de/news/2025-11/28/rb-leipzig-will-rueckstand-auf-die-bayern-verkuerzen)
+
+
+### alemania - españa (N/A, 28/11/2025 15:26 Lima)
+
+- **Alemania - España, en directo: final de la Nations League hoy en vivo**: [Link](https://as.com/futbol/femenino/alemania-espana-en-directo-final-de-la-nations-league-hoy-en-vivo-f202511-d/)
+- **Alemania - España en directo | UEFA Nations League Femenina hoy en vivo**: [Link](https://www.marca.com/futbol/uefa-nations-league-femenina/alemania-espana/2025/11/28/01_01122_20251128_6244_7649-directo.html)
+- **Olga Carmona: “Del día de la final del Mundial tengo muchas lagunas, recuerdo cosas puntuales”**: [Link](https://elpais.com/deportes/futbol/2025-11-28/olga-carmona-del-dia-de-la-final-del-mundial-tengo-muchas-lagunas-recuerdo-cosas-puntuales.html)
+
+
+### peru vs chile femenino (N/A, 28/11/2025 15:26 Lima)
+
+- **Cómo formaría la "Roja" femenina hoy para su duelo ante Perú por las Clasificatorias al Mundial, a qué hora es y quién transmite**: [Link](https://www.emol.com/noticias/Deportes/2025/11/28/1184442/la-rojafemenina-peru-clasificatorias.html)
+- **Todo listo para la tercera fecha de la CONMEBOL Liga de Naciones Femenina**: [Link](https://www.conmebol.com/noticias/todo-listo-para-la-tercera-fecha-de-la-conmebol-liga-de-naciones-femenina/)
+- **Perú vs Chile: día, hora y canal TV del partido en Cusco por la Liga de Naciones Femenina**: [Link](https://www.infobae.com/peru/deportes/2025/11/28/peru-vs-chile-dia-hora-y-canal-tv-del-partido-en-cusco-por-la-liga-de-naciones-femenina/)
+
+
 ### teleticket peru (N/A, 28/11/2025 11:31 Lima)
 
 - **¡Confirmado! Sebastián Yatra regresa a Perú: ¿cuánto cuestan las entradas y desde cuándo las venden?**: [Link](https://elcomercio.pe/respuestas/farandula/confirmado-sebastian-yatra-regresa-a-peru-cuanto-cuestan-las-entradas-y-desde-cuando-las-venden-tdpe-noticia/)
@@ -954,75 +1020,5 @@ Sin noticias relacionadas disponibles.
 - **“El vuelo de las mariposas”: el triple femicidio de las hermanas Mirabal y el origen de un símbolo contra la violencia de género**: [Link](https://www.infobae.com/sociedad/2025/11/25/el-vuelo-de-las-mariposas-el-triple-femicidio-de-las-hermanas-mirabal-y-el-origen-de-un-simbolo-contra-la-violencia-de-genero/)
 - **RD: del asesinato de las Mirabal a la violencia de hoy**: [Link](https://www.dw.com/es/del-asesinato-de-las-mirabal-a-hoy-por-qu%C3%A9-los-feminicidios-siguen-siendo-tan-altos-en-rep%C3%BAblica-dominicana/a-74838971)
 - **Día internacional de la eliminación de la violencia contra las mujeres**: [Link](https://peru21.pe/mundo/dia-internacional-de-la-eliminacion-de-la-violencia-contra-las-mujeres/)
-
-
-### 25 de noviembre (N/A, 25/11/2025 07:53 Lima)
-
-- **Mañana 25 de noviembre será día NO laborable en esta región del Perú: esto dice la norma publicada en El Peruano**: [Link](https://elcomercio.pe/respuestas/por-que/manana-martes-25-de-noviembre-sera-dia-no-laborable-en-esta-region-del-peru-esto-dice-la-norma-publicada-en-el-peruano-tdpe-noticia/)
-- **Clases suspendidas el martes 25 de noviembre, según Minedu: esta región tendrá día no laborable**: [Link](https://larepublica.pe/sociedad/2025/11/23/clases-suspendidas-el-martes-25-de-noviembre-segun-minedu-esta-region-tendra-dia-no-laborable-255760)
-- **¿Habrá feriado largo desde el viernes 21 al lunes 24 de noviembre en Perú? Esto se sabe**: [Link](https://www.exitosanoticias.pe/actualidad/habra-feriado-largo-viernes-21-lunes-24-noviembre-peru-esto-sabe-n163124)
-
-
-### gina lima (N/A, 25/11/2025 07:53 Lima)
-
-- **Gina Lima, actriz de cine para adultos, aparece sin vida en casa de su expareja: lo que se sabe del caso**: [Link](https://rpp.pe/famosos/celebridades/gina-lima-actriz-de-cine-para-adultos-fue-hallada-muerta-en-el-departamento-de-su-expareja-que-se-sabe-del-caso-noticia-1664815)
-- **Dos jóvenes influencers son hallados muertos en circunstancias extrañas: Las autoridades investigan ambos casos**: [Link](https://www.exitosanoticias.pe/espectaculos/dos-jovenes-influencers-son-hallados-muertos-circunstancias-extranas-autoridades-investigan-ambos-casos-n163148)
-- **Muere actriz de cine para adultos Gina Lima y su expareja**: [Link](https://www.americatv.com.pe/noticias/espectaculos/actriz-cine-adultos-fue-hallada-muerta-casa-su-ex-n513223)
-
-
-### retiro afp retiro cronograma (N/A, 25/11/2025 07:53 Lima)
-
-- **Retiro AFP: Primera UIT de hasta S/5.350 ya se deposita a estos afiliados**: [Link](https://www.infobae.com/peru/2025/11/19/retiro-de-afp-primera-uit-de-hasta-s5350-se-deposita-esta-semana-a-quienes/)
-- **Este es el cronograma de Retiro AFP 2025: en qué fechas solicitar tu dinero, según tu DNI**: [Link](https://elcomercio.pe/respuestas/tramites/cuando-iniciar-el-retiro-afp-segun-el-cronograma-oficial-fechas-rezagadas-segun-tu-dni-octavo-retiro-tdpe-noticia/)
-- **Retiro AFP: desde 21 de noviembre empezó depósitos a afiliados que presentaron solicitud**: [Link](https://andina.pe/agencia/noticia-retiro-afp-desde-21-noviembre-empezo-depositos-a-afiliados-presentaron-solicitud-1053132.aspx)
-
-
-### champions (N/A, 25/11/2025 07:53 Lima)
-
-- **The Ultimate UCL History: 10 Records That Define the Champions League**: [Link](https://en.albat.com/lista/the-ultimate-ucl-history-10-records-that-define-the-champions-league-20251124-0005.html)
-- **Champions League - BVB: Ramy Bensebaini makes his return**: [Link](https://foot-africa.com/en/news/champions-league-bvb-ramy-bensebaini-makes-his-return-975647/)
-- **PSG shift focus to homegrown talent with campus project**: [Link](https://www.channelnewsasia.com/sport/psg-shift-focus-homegrown-talent-campus-project-5489146)
-
-
-### ajax (N/A, 25/11/2025 03:34 Lima)
-
-- **Ajax is bij verlies tegen Benfica slechtste Nederlandse ploeg ooit in CL**: [Link](https://www.nu.nl/voetbal/6377024/ajax-is-bij-verlies-tegen-benfica-slechtste-nederlandse-ploeg-ooit-in-cl.html)
-- **Circus José Mourinho richting Champions League-duel: ’Geen idee waarom ik altijd van Ajax win’**: [Link](https://www.telegraaf.nl/sport/voetbal/circus-mourinho-geen-idee-waarom-ik-altijd-van-ajax-win/107398381.html)
-- **Grim heeft goed nieuws over Rosa en Gaaei; veel onduidelijkheid over Berghuis**: [Link](https://www.msn.com/nl-nl/nieuws/other/grim-heeft-goed-nieuws-over-rosa-en-gaaei-veel-onduidelijkheid-over-berghuis/ar-AA1R1t87)
-
-
-### san diego vs (N/A, 25/11/2025 03:34 Lima)
-
-- **Michigan vs San Diego St: Unbeaten Wolverines favored by 6.5 in Vegas showdown**: [Link](https://www.red94.net/news/36712-michigan-vs-san-diego-st-unbeaten-wolverines-favored-by-6-5-in-vegas-showdown/)
-- **5 Takeaways from Michigan’s win against SDSU in the Players Era Festival**: [Link](https://sports.yahoo.com/articles/5-takeaways-michigan-win-against-053721153.html)
-- **What coach Brian Dutcher and the players said after San Diego State’s 40-point loss to No. 7 Michigan**: [Link](https://www.si.com/college/san-diego-state/basketball/what-coach-brian-dutcher-players-said-after-san-diego-state-40-point-loss-no-7-michigan)
-
-
-### que se celebra el 25 de noviembre (N/A, 25/11/2025 03:34 Lima)
-
-- **Mañana 25 de noviembre será día NO laborable en esta región del Perú: esto dice la norma publicada en El Peruano**: [Link](https://elcomercio.pe/respuestas/por-que/manana-martes-25-de-noviembre-sera-dia-no-laborable-en-esta-region-del-peru-esto-dice-la-norma-publicada-en-el-peruano-tdpe-noticia/)
-- **Clases suspendidas el martes 25 de noviembre, según Minedu: esta región tendrá día no laborable**: [Link](https://larepublica.pe/sociedad/2025/11/23/clases-suspendidas-el-martes-25-de-noviembre-segun-minedu-esta-region-tendra-dia-no-laborable-255760)
-- **¿Habrá feriado largo desde el viernes 21 al lunes 24 de noviembre en Perú? Esto se sabe**: [Link](https://www.exitosanoticias.pe/actualidad/habra-feriado-largo-viernes-21-lunes-24-noviembre-peru-esto-sabe-n163124)
-
-
-### ajax vs benfica (N/A, 25/11/2025 03:34 Lima)
-
-- **Preview:Ajax vs Benfica - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/ajax/champions-league/preview/ajax-vs-benfica-prediction-team-news-lineups_586309.html)
-- **Tuesday's Champions League Matchday Five predictions, odds and betting tips: Benfica can stop the rot at ailing Ajax**: [Link](https://www.racingpost.com/sport/football-tips/champions-league/champions-league-matchday-five-predictions-odds-and-betting-tips-a8pbF0I03RTq/)
-- **Ajax v Benfica Bet Builder Tips & Match Predictions**: [Link](https://andysbetclub.co.uk/predictions/ajax-v-benfica-bet-builder-tips/)
-
-
-### cambio del dolar hoy (N/A, 24/11/2025 23:31 Lima)
-
-- **Precio del dólar cae: Así cerró el tipo de cambio en Perú hoy 24 de noviembre**: [Link](https://www.infobae.com/peru/2025/11/24/peru-cotizacion-de-apertura-del-dolar-hoy-24-de-noviembre-de-usd-a-pen/)
-- **Precio del dólar HOY, domingo 23 de noviembre: cuál es la cotización del día**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-2025-cuanto-esta-el-dolar-este-domingo-23-de-noviembre-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
-- **¿Cuánto está el dólar HOY? Precio compra y venta para este lunes 24 de noviembre**: [Link](https://latinanoticias.pe/te-ayudo/cuanto-esta-el-dolar-hoy-precio-compra-y-venta-para-este-24-de-noviembre-cotizacion-dolar-ahora-en-lima-sunat-sbs-bcrp-adp-noticia_20251123/)
-
-
-### paro 25 de noviembre (N/A, 24/11/2025 23:31 Lima)
-
-- **¿Habrá paro de transporte el martes 25 de noviembre en Lima y Callao? Los últimos acuerdos de los gremios tras atentado contra empresas**: [Link](https://larepublica.pe/sociedad/2025/11/24/habra-paro-de-transporte-el-martes-25-de-noviembre-en-lima-y-callao-los-ultimos-acuerdos-de-los-gremios-tras-atentado-contra-empresas-ntpe-349800)
-- **Martín Ojeda, vocero del gremio Transportes Unidos: “Otro atentado puede causar un efecto dominó”**: [Link](https://diariocorreo.pe/edicion/lima/martin-ojeda-vocero-del-gremio-transportes-unidos-otro-atentado-puede-causar-un-efecto-domino-noticia/)
-- **Delincuentes elevan cobro de extorsiones a transportistas por Navidad y Año Nuevo**: [Link](https://caretas.pe/nacional/delincuentes-elevan-cobro-de-extorsiones-a-transportistas-por-navidad-y-ano-nuevo/)
 
 
