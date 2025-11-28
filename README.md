@@ -1,3 +1,24 @@
+### lenovo (N/A, 28/11/2025 07:51 Lima)
+
+- **One of the fastest gaming laptops we've ever tested has a $1,200 discount this Black Friday**: [Link](https://www.pcgamer.com/hardware/gaming-laptops/unlimited-powaaaaah-our-high-performance-gaming-laptop-pick-has-usd1-200-knocked-off-the-price-this-black-friday/)
+- **I've Picked Out the Best Gaming PC and Laptop Deals From the Lenovo Black Friday Sale**: [Link](https://www.ign.com/articles/lenovo-black-friday-sale-best-deals-on-legion-gaming-laptops-and-pcs)
+- **Don't miss Lenovo's LOQ-E gaming laptop steal for $730**: [Link](https://www.androidheadlines.com/2025/11/dont-miss-lenovos-loq-e-gaming-laptop-steal-for-730.html)
+
+
+### iphone 17 (N/A, 28/11/2025 07:51 Lima)
+
+- **I'm an iPhone expert, and these are the Black Friday iPhone deals I'd actually recommend**: [Link](https://www.techradar.com/phones/iphone/need-a-new-iphone-these-black-friday-iphone-deals-will-save-you-hundreds)
+- **Black Friday called, and these iPhone deals answered — Prices start at $11**: [Link](https://nypost.com/shopping/iphone-black-friday-deals-sales-2025/)
+- **Black Friday deals spotlight: refurbished iPhone 16 Pro Max, iPhone 15 Pro Max and iPhone 15 Pro - GSMArena.com news**: [Link](https://www.gsmarena.com/black_friday_deals_spotlight_refurbished_iphone_16_pro_max_iphone_15_pro_max_and_iphone_15_pro-news-70451.php)
+
+
+### black friday 2025 (N/A, 28/11/2025 07:51 Lima)
+
+- **Black Friday 2025 deals from Hoka, Apple and Dyson are live now: Our top picks from this year’s biggest sale**: [Link](https://www.yahoo.com/lifestyle/deals/article/black-friday-2025-deals-from-hoka-apple-and-dyson-are-live-now-our-top-picks-from-this-years-biggest-sale-225248774.html)
+- **The 15 Best Black Friday Tech Deals on Top Routers, Phones, and More**: [Link](https://www.wired.com/story/black-friday-tech-deals-2025/)
+- **The best Black Friday sales are officially live. We found 132 deals worth shopping**: [Link](https://www.cnn.com/cnn-underscored/deals/best-black-friday-deals-2025-11-28)
+
+
 ### iphone (N/A, 28/11/2025 03:34 Lima)
 
 - **Black Friday iPhone Deals Are Live—Save Up To $1,100 On The iPhone 17 Series**: [Link](https://www.forbes.com/sites/forbes-personal-shopper/2025/11/26/black-friday-iphone-deals/)
@@ -1002,26 +1023,5 @@ Sin noticias relacionadas disponibles.
 - **Silvia Cornejo y su publicación antes del nuevo ampay de su esposo Jean Paul Gabuteau y su ex: ¿Qué hizo?**: [Link](https://trome.com/espectaculos/tv/silvia-cornejo-y-su-publicacion-antes-del-nuevo-ampay-de-su-esposo-jean-paul-gabuteau-y-su-ex-analia-jimenez-foto-video-farandula-noticia/)
 - **Silvia Cornejo: Así ponía las manos al fuego por Jean Paul Gabuteau hace un mes pese a imágenes con su ex**: [Link](https://www.atv.pe/noticia/silvia-cornejo-asi-ponia-las-manos-al-fuego-por-jean-paul-gabuteau-hace-un-mes-pese-a-imagenes-con-su-ex/)
 - **¡OTRA VEZ! Pareja de Silvia Cornejo, Jean Paul Gabuteau, es ampayado con su ex**: [Link](https://lakaribena.com.pe/espectaculos/otra-vez-pareja-silvia-cornejo-jean-paul-gabuteau-ampayado-su-ex-n29235)
-
-
-### chelsea vs barcelona (N/A, 24/11/2025 23:31 Lima)
-
-- **Chelsea have Barcelona president’s approval as he explains why they’re a ‘very good’ team**: [Link](https://www.thechelseachronicle.com/news/chelsea-have-barcelona-presidents-approval-as-he-explains-why-theyre-a-very-good-team/)
-- **More 1,700 members and Supporters' Club members at Stamford Bridge**: [Link](https://www.fcbarcelona.com/en/news/4408067/more-1700-members-and-supporters-club-members-at-stamford-bridge)
-- **Chelsea vs Barcelona: UEFA Champions League – team news, start and lineups**: [Link](https://www.aljazeera.com/sports/2025/11/24/chelsea-vs-barcelona-uefa-champions-league-team-news-start-and-lineups)
-
-
-### unión - gimnasia (N/A, 24/11/2025 20:57 Lima)
-
-- **EN VIVO: 0-0: Unión y su duelo por la llave 7 del Clausura**: [Link](https://www.directvsports.com/futbol/en-vivo-0-0-union-y--su-duelo-por-la-llave-7-del-clausura-20251121-0006.html)
-- **Unión vs Gimnasia: Resultado EN VIVO y goles por los octavos de final**: [Link](https://www.365scores.com/es/news/union-vs-gimnasia-resultado-vivo-goles/)
-- **El hincha de Unión volvió a marcar la diferencia con su pasión para el partido ante Gimnasia**: [Link](https://www.unosantafe.com.ar/union/el-hincha-union-volvio-marcar-la-diferencia-su-pasion-el-partido-gimnasia-n10231491.html)
-
-
-### internacional (N/A, 24/11/2025 20:57 Lima)
-
-- **A New Blow for Neymar: More Time Away From the Pitch**: [Link](https://www.beinsports.com/en-us/soccer/articles/a-new-blow-for-neymar-more-time-away-from-the-pitch-2025-11-24)
-- **Neymar suffers concerning injury setback for Santos’ key relegation clash vs. Internacional**: [Link](https://worldsoccertalk.com/news/neymar-suffers-concerning-injury-setback-for-santos-key-relegation-clash-vs-internacional/)
-- **Bad news for Neymar**: [Link](https://foot-africa.com/en/news/bad-news-for-neymar-972908/)
 
 
