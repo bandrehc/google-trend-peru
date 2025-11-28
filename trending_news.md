@@ -1,3 +1,23 @@
+### conrado osorio (N/A, 27/11/2025 23:30 Lima)
+
+- **Murió Conrado Osorio, famoso actor colombiano de 'La reina del sur' y 'La fea más bella'**: [Link](https://rpp.pe/famosos/celebridades/conrado-osorio-muere-actor-colombiano-de-la-reina-del-sur-la-fea-mas-bella-y-la-ley-del-corazon-noticia-1665649)
+- **Muere Conrado Osorio a los 49 años, actor colombiano de la ‘Reina del sur’ y ‘La fea más bella’**: [Link](https://larepublica.pe/entretenimiento/2025/11/27/muere-conrado-osorio-a-los-49-anos-actor-colombiano-de-la-reina-del-sur-y-la-fea-mas-bella-902367)
+
+
+### billie eilish (N/A, 27/11/2025 23:30 Lima)
+
+- **Billie Eilish introduced them to a whole new audience, and now '90s indie band Black Box Recorder are back**: [Link](https://www.yahoo.com/entertainment/music/articles/billie-eilish-introduced-them-whole-172838713.html)
+- **“This is not about nostalgia, this is about…**: [Link](https://www.inkl.com/news/this-is-not-about-nostalgia-this-is-about-vindication-redemption-and-celebration-billie-eilish-introduced-them-to-a-whole-new-audience-and-now-90s-indie-band-black-box-recorder-are-going-back-on-stage)
+- **Billie Eilish spotted with A-lister and fans are losing their minds**: [Link](https://www.tyla.com/entertainment/celebrity/billie-eilish-nat-wolff-relationship-timeline-explained-713494-20251127)
+
+
+### bruce willis (N/A, 27/11/2025 23:30 Lima)
+
+- **Emma Heming Willis Says Holidays Are Still 'Joyous' with Husband Bruce Willis: 'It Just Looks Different' (Exclusive)**: [Link](https://people.com/emma-heming-willis-holidays-joyous-different-bruce-willis-exclusive-11856367)
+- **Rumer Willis gives heartbreaking update on dad Bruce’s dementia battle: ‘Not doing great’**: [Link](https://nypost.com/2025/11/21/entertainment/rumer-willis-gives-heartbreaking-update-on-bruces-dementia-battle/)
+- **Bruce Willis's Wife Will Donate His Brain to Science: The Reason for the Decision**: [Link](https://112.ua/en/druzina-brusa-villisa-prigolomsila-so-zrobit-z-mozkom-vazkohvorogo-aktora-pisla-jogo-smerti-114929)
+
+
 ### guadalajara - cruz azul (N/A, 27/11/2025 20:55 Lima)
 
 - **Cruz Azul-Chivas, la serie más pareja de la Liguilla Apertura 2025**: [Link](https://www.espn.com.pe/futbol/mexico/nota/_/id/16002015/cruz-azul-vs-chivas-cuartos-de-final-liga-mx-liguilla-apertura-2025)
@@ -1003,26 +1023,5 @@ Sin noticias relacionadas disponibles.
 - **Riestra y Barracas Central se enfrentan por el pase a los cuartos de final del Torneo Clausura: hora, TV y formaciones**: [Link](https://www.infobae.com/deportes/2025/11/24/riestra-y-barracas-central-se-enfrentan-por-el-pase-a-los-cuartos-de-final-del-torneo-clausura-hora-tv-y-formaciones/)
 - **Racing vs. River, por octavos de final del Torneo Clausura 2025 de la Liga Profesional: hora, formaciones y...**: [Link](https://www.cronica.com.ar/depo/ligaprofesional/Racing-vs.-River-por-octavos-de-final-del-Torneo-Clausura-2025-de-la-Liga-Profesional-hora-formaciones-y-como-verlo-en-vivo-20251124-0007.html)
 - **Deportivo Riestra vs. Barracas Central, por los octavos de final del Torneo Claurusa 2025**: [Link](https://www.lanacion.com.ar/deportes/futbol/deportivo-riestra-vs-barracas-central-por-los-octavos-de-final-del-torneo-claurusa-2025-nid24112025/)
-
-
-### manchester united vs (N/A, 24/11/2025 15:28 Lima)
-
-- **Manchester United quiere volver al triunfo ante Everton**: [Link](https://www.espn.com.pe/futbol/nota/_/id/15983617/manchester-united-vs-everton-fecha-12-premier-league-equipo-fecha-hora-y-tv-en-vivo)
-- **Manchester United 0-0 Everton EN VIVO y GRATIS por la Premier League vía Disney+: minuto a minuto**: [Link](https://bolavip.com/pe/premier-league/manchester-united-vs-everton-en-vivo-y-gratis-por-la-premier-league-via-disney-minuto-a-minuto-goles-resumen)
-- **Predicciones del partido United vs Everton**: [Link](https://www.ucvradio.pe/mas-actualidad/predicciones-del-partido-united-vs-everton/58404/)
-
-
-### real sociedad b - valladolid (N/A, 24/11/2025 15:28 Lima)
-
-- **Apuestas y pronósticos Real Sociedad B vs Valladolid**: [Link](https://www.marca.com/apuestas-deportivas/predicciones/2025/11/23/apuestas-pronosticos-real-sociedad-b-vs-valladolid.html)
-- **Ansotegi: "Como Sanse, juntos, no hemos estado aún, es una semana diferente"**: [Link](https://www.msn.com/es-es/deportes/futbol/ansotegi-como-sanse-juntos-no-hemos-estado-a%C3%BAn-es-una-semana-diferente/ar-AA1QSpkq)
-- **El Pucela busca en Anoeta ofrecer su mejor versión**: [Link](https://www.eldiadevalladolid.com/noticia/z53b3e796-46e9-485c-a75dbb257c0b6c65/202511/el-pucela-busca-en-anoeta-ofrecer-su-mejor-version)
-
-
-### sassuolo - pisa (N/A, 24/11/2025 15:28 Lima)
-
-- **LIVE Alle 20.45 Sassuolo-Pisa, le ufficiali: Fadera per Grosso, Gila punta su Nzola**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Sassuolo/24-11-2025/sassuolo-pisa-live-risultato-e-gol-in-diretta-serie-a.shtml)
-- **I Nerazzurri per la sfida del Mapei**: [Link](https://pisasportingclub.com/i-nerazzurri-per-la-sfida-del-mapei/)
-- **Serie A, dopo il blitz di Bergamo il Sassuolo a caccia di continuità**: [Link](https://www.agenpress.it/2025/11/24/serie-a-dopo-il-blitz-di-bergamo-il-sassuolo-a-caccia-di-continuita/)
 
 
