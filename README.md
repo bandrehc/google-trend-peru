@@ -1,3 +1,38 @@
+### teleticket peru (N/A, 28/11/2025 11:31 Lima)
+
+- **¡Confirmado! Sebastián Yatra regresa a Perú: ¿cuánto cuestan las entradas y desde cuándo las venden?**: [Link](https://elcomercio.pe/respuestas/farandula/confirmado-sebastian-yatra-regresa-a-peru-cuanto-cuestan-las-entradas-y-desde-cuando-las-venden-tdpe-noticia/)
+- **El cantante colombiano anunció dos conciertos en abril de 2026, cuando compartirá su nueva etapa artística y la energía de su nueva canción ‘La fkn vibra’, junto a Xav**: [Link](https://www.facebook.com/infobaecolombia/photos/el-cantante-colombiano-anunci%C3%B3-dos-conciertos-en-abril-de-2026-cuando-compartir%C3%A1/1287817146694378/)
+- **Sebastián Yatra vuelve a Argentina con su tour y visitará MasterChef Celebrity**: [Link](https://www.haceinstantes.com/noticias/2025/11/26/198949-sebastian-yatra-vuelve-a-argentina-con-su-tour-y-visitara-masterchef-celebrity)
+
+
+### teleticket (N/A, 28/11/2025 11:31 Lima)
+
+- **Ricardo Arjona en Lima: precios y cómo comprar entradas en preventa para su concierto en el Estadio Nacional**: [Link](https://rpp.pe/musica/conciertos/preventa-ricardo-arjona-en-lima-2026-a-que-hora-inicia-precios-y-como-comprar-entradas-para-concierto-en-estadio-nacional-noticia-1665700)
+- **Ricardo Arjona en Lima: ¿Cuándo inicia la preventa de entradas para su concierto del 2026?**: [Link](https://elcomercio.pe/luces/musica/ricardo-arjona-en-lima-cuando-inicia-la-preventa-de-entradas-para-su-concierto-del-2026-ultimas-noticia/)
+- **¡Sold out! Se agotan los boletos para los cuatro nuevos shows de Arjona**: [Link](https://tvaztecaguate.com/espectaculos/2025/11/26/preparate-en-esta-fecha-podras-comprar-tus-boletos-para-conciertos-de-arjona/)
+
+
+### clash royale (N/A, 28/11/2025 11:31 Lima)
+
+- **Clash Royale December 2025 update: 5 things that have changed**: [Link](https://www.moneycontrol.com/technology/clash-royale-december-2025-update-5-things-that-have-changed-photo-gallery-13692972.html)
+- **December 2025 in Clash Royale: 2v2 League Returns + Free Hero Giveaway!**: [Link](https://egw.news/gaming/news/30842/december-2025-in-clash-royale-2v2-league-returns-f-CjIUC9fpc)
+- **Clash Royale December 2025: Events, Challenges, Tournaments, and Rewards**: [Link](https://gamingonphone.com/news/clash-royale-december-2025-events-challenges-tournaments-and-rewards/)
+
+
+### brawl stars (N/A, 28/11/2025 11:31 Lima)
+
+- **Brawl Stars Maintenance Break Today: Stranger Things Event Fixes & Balance Changes**: [Link](https://www.freejobalert.com/article/brawl-stars-maintenance-break-today-stranger-things-event-fixes-balance-changes-24760)
+- **Brawl Stars Brawl Pass update brings major changes, Keys, Vault, Price adjustments, and more**: [Link](https://gamingonphone.com/news/brawl-stars-brawl-pass-update-brings-major-changes-keys-vault-price-adjustments/)
+- **The eSports team "REJECT" Brawl Stars division will participate in the Brawl Stars World Finals 2025 in Sweden starting November 28!**: [Link](https://saiganak.com/event/reject-brawlstars-world-finals-2025-announcement/)
+
+
+### metro (N/A, 28/11/2025 11:31 Lima)
+
+- **Winter storm to bring hazardous travel as Metro Detroit shifts from bitter cold to heavy snow**: [Link](https://www.clickondetroit.com/weather/2025/11/28/winter-storm-bringing-travel-impacts-to-metro-detroit-midwest-this-weekend/)
+- **Snowfall headed to metro Detroit. How to see where roads are plowed**: [Link](https://www.freep.com/story/news/local/michigan/2025/11/28/metro-detroit-weather-roads-snow-plows/87506036007/)
+- **Metro Detroit Forecast: Winter storm this weekend**: [Link](https://www.wxyz.com/weather/forecast/todays-forecast/metro-detroit-forecast-cold-and-windy-thanksgiving)
+
+
 ### lenovo (N/A, 28/11/2025 07:51 Lima)
 
 - **One of the fastest gaming laptops we've ever tested has a $1,200 discount this Black Friday**: [Link](https://www.pcgamer.com/hardware/gaming-laptops/unlimited-powaaaaah-our-high-performance-gaming-laptop-pick-has-usd1-200-knocked-off-the-price-this-black-friday/)
@@ -989,39 +1024,5 @@ Sin noticias relacionadas disponibles.
 - **¿Habrá paro de transporte el martes 25 de noviembre en Lima y Callao? Los últimos acuerdos de los gremios tras atentado contra empresas**: [Link](https://larepublica.pe/sociedad/2025/11/24/habra-paro-de-transporte-el-martes-25-de-noviembre-en-lima-y-callao-los-ultimos-acuerdos-de-los-gremios-tras-atentado-contra-empresas-ntpe-349800)
 - **Martín Ojeda, vocero del gremio Transportes Unidos: “Otro atentado puede causar un efecto dominó”**: [Link](https://diariocorreo.pe/edicion/lima/martin-ojeda-vocero-del-gremio-transportes-unidos-otro-atentado-puede-causar-un-efecto-domino-noticia/)
 - **Delincuentes elevan cobro de extorsiones a transportistas por Navidad y Año Nuevo**: [Link](https://caretas.pe/nacional/delincuentes-elevan-cobro-de-extorsiones-a-transportistas-por-navidad-y-ano-nuevo/)
-
-
-### green day (N/A, 24/11/2025 23:31 Lima)
-
-- **"I started feeling the political wheels starting to turn toward conservatism a little bit" How a song on Green Day's most misunderstood album set the groundwork for one of their biggest acts of protest**: [Link](https://www.loudersound.com/bands-artists/green-day-the-story-of-minority)
-- **Who provides the female spoken word passage on Green Day’s ‘Letterbomb’?**: [Link](https://faroutmagazine.co.uk/female-spoken-word-passage-green-day-letterbomb/)
-
-
-### san diego fc - minnesota (N/A, 24/11/2025 23:31 Lima)
-
-- **San Diego FC 0-0 Minnesota United Live Score, MLS Cup: Goalless At Half-time Despite Attacking Surge From SDFC!**: [Link](https://www.outlookindia.com/sports/football/san-diego-fc-vs-minnesota-united-live-score-major-league-soccer-cup-2025-western-conference-semifinal-updates)
-- **MTS enhances trolley service for San Diego FC playoff match**: [Link](https://fox5sandiego.com/news/local-news/san-diego-fc-playoff-trolley/)
-- **Minnesota United is a rarity: A swooning team moving on in the MLS playoffs**: [Link](https://www.startribune.com/minnesota-united-is-a-rarity-a-swooning-team-moving-on-in-the-mls-playoffs/601528361)
-
-
-### eva ayllón (N/A, 24/11/2025 23:31 Lima)
-
-- **“Yo soy”: Eva Ayllón se conmueve hasta las lágrimas con imitadora de Michael Jackson**: [Link](https://elcomercio.pe/tvmas/farandula/yo-soy-eva-ayllon-se-conmueve-hasta-las-lagrimas-con-imitadora-de-michael-jackson-latina-ultimas-noticia/)
-- **Yo Soy conciertos 2025: Imitación de Michael Jackson desató OVACIÓN TOTAL y dejó al jurado profundamente CONMOVIDO**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-conciertos-2025-imitacion-de-michael-jackson-desato-ovacion-total-y-dejo-al-jurado-profundamente-conmovido_20251123/)
-- **Imitadora de Michael Jackson emocionó a Eva Ayllón y al público: “Era imitarlo, no revivirlo”**: [Link](https://www.infobae.com/peru/2025/11/23/imitadora-de-michael-jackson-emociono-a-eva-ayllon-y-al-publico-era-imitarlo-no-revivirlo/)
-
-
-### warriors - jazz (N/A, 24/11/2025 23:31 Lima)
-
-- **Utah Jazz vs Golden State Warriors Prediction, Pick, Odds -- 11/24**: [Link](https://www.actionnetwork.com/nba/utah-jazz-vs-golden-state-warriors-prediction-pick-odds-monday-november-24)
-- **Best Stephen Curry prop bet for Jazz vs. Warriors on Monday 11/24/25**: [Link](https://dknetwork.draftkings.com/2025/11/24/best-stephen-curry-prop-bet-for-jazz-vs-warriors-on-monday-11-24-25/)
-- **Warriors-Jazz Injury Report Rules Out Pair of Starters**: [Link](https://www.si.com/nba/jazz/onsi/news/golden-state-warriors-utah-jazz-injury-report-rules-out-starters-draymond-green)
-
-
-### silvia cornejo (N/A, 24/11/2025 23:31 Lima)
-
-- **Silvia Cornejo y su publicación antes del nuevo ampay de su esposo Jean Paul Gabuteau y su ex: ¿Qué hizo?**: [Link](https://trome.com/espectaculos/tv/silvia-cornejo-y-su-publicacion-antes-del-nuevo-ampay-de-su-esposo-jean-paul-gabuteau-y-su-ex-analia-jimenez-foto-video-farandula-noticia/)
-- **Silvia Cornejo: Así ponía las manos al fuego por Jean Paul Gabuteau hace un mes pese a imágenes con su ex**: [Link](https://www.atv.pe/noticia/silvia-cornejo-asi-ponia-las-manos-al-fuego-por-jean-paul-gabuteau-hace-un-mes-pese-a-imagenes-con-su-ex/)
-- **¡OTRA VEZ! Pareja de Silvia Cornejo, Jean Paul Gabuteau, es ampayado con su ex**: [Link](https://lakaribena.com.pe/espectaculos/otra-vez-pareja-silvia-cornejo-jean-paul-gabuteau-ampayado-su-ex-n29235)
 
 
