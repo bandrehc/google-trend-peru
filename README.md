@@ -1,3 +1,73 @@
+### iphone (N/A, 28/11/2025 03:34 Lima)
+
+- **Black Friday iPhone Deals Are Live—Save Up To $1,100 On The iPhone 17 Series**: [Link](https://www.forbes.com/sites/forbes-personal-shopper/2025/11/26/black-friday-iphone-deals/)
+- **Big savings are available on a new iPhone–check out the best Black Friday deals**: [Link](https://www.macworld.com/article/1375699/best-iphone-black-friday-week-deals-2025-nov-27.html)
+- **The Best Black Friday Phone Deals: Score Free Devices From Verizon, T-Mobile, and More**: [Link](https://www.businessinsider.com/guides/deals/black-friday-phone-deals-2025-11)
+
+
+### vuelos baratos (N/A, 28/11/2025 03:34 Lima)
+
+- **Reconocida aerolínea anuncia descuentos de hasta el 70% para volar hasta agosto de 2026: rutas, fechas y todo lo que debe saber**: [Link](https://www.semana.com/turismo/articulo/reconocida-aerolinea-anuncia-descuentos-de-hasta-el-70-para-volar-hasta-agosto-de-2026-rutas-fechas-y-todo-lo-que-debe-saber/202517/)
+- **Black Friday de aerolíneas: hasta 45 % de descuento en vuelos**: [Link](https://www.eluniverso.com/noticias/economia/black-friday-de-aerolineas-hasta-45-de-descuento-en-vuelos-nota/)
+- **Black Smart de JetSMART**: [Link](https://www.laopinion.co/economia/black-smart-de-jetsmart)
+
+
+### curacao (N/A, 28/11/2025 03:34 Lima)
+
+- **Now You Can Follow Curaçao Chronicle on WhatsApp!**: [Link](https://www.curacaochronicle.com/post/local/now-you-can-follow-curacao-chronicle-on-whatsapp)
+- **Grenada Joins Dominica, Anguilla, St. Kitts & Nevis, Belize, Curaçao, and Saba, Step Into the Booming Hidden Caribbean Treasures Before They Become the Ultimate Travel Obsession**: [Link](https://www.travelandtourworld.com/news/article/grenada-joins-dominica-anguilla-st-kitts-nevis-belize-curacao-and-saba-step-into-the-booming-hidden-caribbean-treasures-before-they-become-the-ultimate-travel-obsession/)
+- **Black Friday: Free Massage at Grenada’s Spice Island Beach Resort**: [Link](https://www.travelmarketreport.com/canada/hotels-resorts/articles/black-friday-free-massage-at-grenadas-spice-island-beach-resort)
+
+
+### avianca (N/A, 28/11/2025 03:34 Lima)
+
+- **Venezuela apuesta por incrementar vuelos con Rusia tras revocar concesión a 6 aerolíneas**: [Link](https://elcomercio.pe/mundo/venezuela/venezuela-apuesta-por-incrementar-vuelos-con-rusia-tras-revocar-concesion-a-6-aerolineas-estados-unidos-nicolas-maduro-ultimas-noticia/)
+- **Aerolíneas de América y Europa cancelan vuelos a Venezuela tras alerta de EE.UU.**: [Link](https://www.elperuano.pe/noticia/283643-aerolineas-de-america-y-europa-cancelan-vuelos-a-venezuela-tras-alerta-de-eeuu)
+- **Venezolanos varados en Perú: extranjeros se ven obligados a viajar por tierra tras suspensión global de vuelos en medio de la tensión con EE. UU.**: [Link](https://larepublica.pe/sociedad/2025/11/26/venezolanos-varados-en-peru-extranjeros-se-ven-obligados-a-viajar-por-tierra-tras-suspension-global-de-vuelos-en-medio-de-la-tension-con-ee-uu-ntpe-1665825)
+
+
+### samsung (N/A, 28/11/2025 03:34 Lima)
+
+- **If you must get an art TV, get The Frame**: [Link](https://www.theverge.com/tech/829002/youre-buying-a-frame-tv-its-okay-to-cheap-out-a-little)
+- **Samsung's huge Black Friday sale is live: get record-breaking deals on OLED TVs, Galaxy S25 Ultra, and much more**: [Link](https://www.techradar.com/phones/samsungs-huge-black-friday-sale-is-live-get-record-breaking-deals-on-oled-tvs-galaxy-s25-ultra-and-much-more)
+- **Samsung 65" OLED S90F TV Hits All-Time Low, 2025 Model Now Cheaper Than Last Year's Version**: [Link](https://kotaku.com/samsung-65-oled-s90f-tv-hits-all-time-low-2025-model-now-cheaper-than-last-years-version-2000648184)
+
+
+### latam peru (N/A, 28/11/2025 03:34 Lima)
+
+- **Autorizaron a una aerolínea a hacer vuelos que conectarán varias provincias con Estados Unidos, Brasil y otros países**: [Link](https://www.infobae.com/economia/2025/11/28/autorizaron-a-una-aerolinea-a-hacer-vuelos-que-conectaran-varias-provincias-con-estados-unidos-brasil-y-otros-paises/)
+- **LATAM Perú recibe autorización para volar entre siete ciudades argentinas y Cusco**: [Link](https://www.aviacionline.com/espanol/aviacion-comercial/latinoamerica-y-el-caribe/argentina/latam-peru-recibe-autorizacion-para-volar-entre-siete-ciudades-argentinas-y-cusco_a692913f5714f61d9c321c3fb)
+- **LATAM Airlines Perú se convierte en la aerolínea oficial que trae la magia de Toys R US a Latinoamérica**: [Link](https://www.businessempresarial.com.pe/latam-airlines-peru-se-convierte-en-la-aerolinea-oficial-que-trae-la-magia-de-toys-r-us-a-latinoamerica/)
+
+
+### apple (N/A, 28/11/2025 03:34 Lima)
+
+- **Apple Deals Are Rare. Lucky for You, We Found Black Friday Gems on iPads, MacBooks, and More.**: [Link](https://www.nytimes.com/wirecutter/money/apple-black-friday-deals-2025/)
+- **You Can Get Apple’s iPad for just $279 Right Now**: [Link](https://www.wired.com/story/apple-ipad-black-friday-deal-2025/)
+- **The best Apple Black Friday deals are live: Major discounts on AirPods, iPads, MacBooks, Apple Watches and AirTags**: [Link](https://www.engadget.com/deals/the-best-apple-black-friday-deals-are-live-major-discounts-on-airpods-ipads-macbooks-apple-watches-and-airtags-161346279.html)
+
+
+### amazon (N/A, 28/11/2025 03:34 Lima)
+
+- **Best live Black Friday deals and sales you can shop right now**: [Link](https://www.usatoday.com/live-story/shopping/2025/11/28/best-live-black-friday-2025-deals-and-sales/87467058007/)
+- **Avoid Lousy Amazon Black Friday Deals. These Are the Real Deals (Trust Us, We Know).**: [Link](https://www.nytimes.com/wirecutter/money/amazon-black-friday-deals-2025-1127/)
+- **Where can you find the best Black Friday deals? WalletHub crunches 2025 numbers**: [Link](https://www.statesman.com/news/article/black-friday-best-retailers-discounts-2025-21196498.php)
+
+
+### marathon (N/A, 28/11/2025 03:34 Lima)
+
+- **Freshworks Chennai Marathon to be held on January 5**: [Link](https://www.thehindu.com/news/cities/chennai/freshworks-chennai-marathon-to-be-held-on-january-5/article70330496.ece)
+- **Stars hope to conquer Iten Marathon's challenging course**: [Link](https://www.standardmedia.co.ke/sports/article/2001535182/stars-hope-to-conquer-iten-marathon-s-challenging-course)
+- **Lukenya University Ten Million Trees Marathon to target Ksh30m kitty**: [Link](https://www.citizen.digital/sports/lukenya-university-ten-million-trees-marathon-to-target-ksh30m-kitty-n373575)
+
+
+### booking (N/A, 28/11/2025 03:34 Lima)
+
+- **'Tere Ishk Mein' Movie Review and Release Live Updates: Netizens laud the Dhanush, Kriti Sanon starrer**: [Link](https://timesofindia.indiatimes.com/entertainment/hindi/bollywood/news/tere-ishk-mein-movie-review-release-live-update-dhanush-kriti-sanon-tere-ishk-mein-review-and-box-office-collection/liveblog/125627154.cms)
+- **Tere Ishk Mein box office prediction: Dhanush, Kriti Sanon film set for record ₹12 crore start, only behind Saiyaara | Bollywood**: [Link](https://www.hindustantimes.com/entertainment/bollywood/tere-ishk-mein-box-office-prediction-dhanush-kriti-sanon-film-set-for-12-crore-opening-beat-jolly-llb-3-raanjhana-101764240493344.html)
+- **Tere Ishk Mein advance day 1 box office collection: Dhanush-Kriti Sanon film off to a promising start, eyes Rs 10-12 cr opening**: [Link](https://indianexpress.com/article/entertainment/bollywood/tere-ishk-mein-advance-day-1-box-office-collection-dhanush-kriti-sanon-film-rs-10-12-cr-opening-10390697/)
+
+
 ### conrado osorio (N/A, 27/11/2025 23:30 Lima)
 
 - **Murió Conrado Osorio, famoso actor colombiano de 'La reina del sur' y 'La fea más bella'**: [Link](https://rpp.pe/famosos/celebridades/conrado-osorio-muere-actor-colombiano-de-la-reina-del-sur-la-fea-mas-bella-y-la-ley-del-corazon-noticia-1665649)
@@ -953,75 +1023,5 @@ Sin noticias relacionadas disponibles.
 - **A New Blow for Neymar: More Time Away From the Pitch**: [Link](https://www.beinsports.com/en-us/soccer/articles/a-new-blow-for-neymar-more-time-away-from-the-pitch-2025-11-24)
 - **Neymar suffers concerning injury setback for Santos’ key relegation clash vs. Internacional**: [Link](https://worldsoccertalk.com/news/neymar-suffers-concerning-injury-setback-for-santos-key-relegation-clash-vs-internacional/)
 - **Bad news for Neymar**: [Link](https://foot-africa.com/en/news/bad-news-for-neymar-972908/)
-
-
-### gabriela michel (N/A, 24/11/2025 20:57 Lima)
-
-- **Confirman muerte de Gabriela Michel, mamá de Aislinn Derbez y actriz de doblaje, a los 65 años**: [Link](https://www.elfinanciero.com.mx/espectaculos/2025/11/24/muere-gabriela-michel-actriz-de-doblaje-y-mama-de-aislinn-derbez/)
-- **Muere mamá de Aislinn Derbez**: [Link](https://www.univision.com/famosos/muere-mama-aislinn-derbez)
-- **Se cumple la regla de tres, mueren una actriz, un actor y una cantante este lunes 24 de noviembre**: [Link](https://heraldodemexico.com.mx/espectaculos/2025/11/24/se-cumple-la-regla-de-tres-mueren-una-actriz-un-actor-una-cantante-este-lunes-24-de-noviembre-747469.html)
-
-
-### habrá paro de transportistas (N/A, 24/11/2025 20:57 Lima)
-
-- **¿Habrá paro de transporte el martes 25 de noviembre en Lima y Callao? Los últimos acuerdos de los gremios tras atentado contra empresas**: [Link](https://larepublica.pe/sociedad/2025/11/24/habra-paro-de-transporte-el-martes-25-de-noviembre-en-lima-y-callao-los-ultimos-acuerdos-de-los-gremios-tras-atentado-contra-empresas-ntpe-349800)
-- **Martín Ojeda, vocero del gremio Transportes Unidos: “Otro atentado puede causar un efecto dominó”**: [Link](https://diariocorreo.pe/edicion/lima/martin-ojeda-vocero-del-gremio-transportes-unidos-otro-atentado-puede-causar-un-efecto-domino-noticia/)
-- **Delincuentes elevan cobro de extorsiones a transportistas por Navidad y Año Nuevo**: [Link](https://caretas.pe/nacional/delincuentes-elevan-cobro-de-extorsiones-a-transportistas-por-navidad-y-ano-nuevo/)
-
-
-### lucas martínez quarta (N/A, 24/11/2025 20:57 Lima)
-
-- **Gallardo define el 11: la probable formación de River vs. Racing por el Torneo Clausura 2025**: [Link](https://lapaginamillonaria.com/torneo-clausura/gallardo-define-el-11-la-probable-formacion-de-river-vs-racing-por-el-torneo-clausura-2025)
-- **Una vuelta importante y una ausencia de peso en los convocados para jugar con Racing**: [Link](https://www.tycsports.com/river-plate/river-convocados-regreso-montiel-ausencia-colidio-racing-octavos-de-final-torneo-clausura-id700419.html)
-- **Muchas sorpresas: el 11 de Gallardo para el duelo entre River y Racing**: [Link](https://tntsports.com.ar/ligaprofesional/sorpresas-once-gallardo-river-racing-20251124-0026.html)
-
-
-### internacional vs santos (N/A, 24/11/2025 20:57 Lima)
-
-- **Neymar no levanta cabeza**: [Link](https://as.com/futbol/internacional/neymar-no-levanta-cabeza-f202511-n/)
-- **Neymar sufre otro mazazo**: [Link](https://www.fichajes.com/a3975489787424783700-neymar-sufre-otro-mazazo)
-- **Zona de descenso: posiciones de Santos de Neymar en el Brasileirao**: [Link](https://www.365scores.com/es/news/zona-de-descenso-posiciones-santos-liga/)
-
-
-### wilson soto (N/A, 24/11/2025 20:57 Lima)
-
-- **Congresista Wilson Soto presenta proyecto de ley para regular contenidos digitales especializados y prevenir la desinformación**: [Link](https://comunicaciones.congreso.gob.pe/damos-cuenta/congresista-wilson-soto-presenta-proyecto-de-ley-para-regular-contenidos-digitales-especializados-y-prevenir-la-desinformacion/)
-- **Buscan regular a creadores de contenido e influencers del país**: [Link](https://diarioep.pe/buscan-regular-a-creadores-de-contenido-e-influencers-del-pais/)
-- **Congresista busca exigir título profesional a creadores de contenido**: [Link](https://www.atv.pe/noticia/congresista-busca-exigir-titulo-profesional-a-creadores-de-contenido/)
-
-
-### internacional - santos (N/A, 24/11/2025 20:57 Lima)
-
-- **Internacional vs Santos: pronósticos, cuotas, y datos para apostar!**: [Link](https://www.apwin.com/es/pronosticos/internacional-vs-santos-pronostico-brasileirao-serie-a-25-11-2025/)
-- **Pronóstico Internacional - Santos. Brasileirao Serie A | 25/11/2025**: [Link](https://gainblers.com/pe/pronosticos/futbol/brasil/brasileirao-serie-a/pronostico-internacional-santos-25-11-2025/)
-- **¿Juega Neymar? Donde ver Internacional vs Santos**: [Link](https://www.365scores.com/es/news/neymar-donde-ver-internacional-vs-santos/)
-
-
-### violencia contra la mujer (N/A, 24/11/2025 20:57 Lima)
-
-- **Blindan Palacio ante marcha feminista: refuerzan vallas con bloques de concreto**: [Link](https://aristeguinoticias.com/2411/mexico/blindan-palacio-ante-marcha-feminista-refuerzan-vallas-con-bloques-de-concreto/)
-- **Brugada presentará iniciativas para combatir violencia contra las mujeres y la creación de una defensoría**: [Link](https://es-us.noticias.yahoo.com/brugada-presentar%C3%A1-iniciativas-combatir-violencia-092915796.html)
-- **CDMX suspende Zócalo Ciudadano este martes 25 de noviembre: cuál es la razón**: [Link](https://www.infobae.com/mexico/2025/11/24/cdmx-suspende-zocalo-ciudadano-este-martes-25-de-noviembre-cual-es-la-razon/)
-
-
-### primera división (N/A, 24/11/2025 20:57 Lima)
-
-- **La Premier League saca los colores al resto en la Champions**: [Link](https://www.rfi.fr/es/m%C3%A1s-noticias/20251124-la-premier-league-saca-los-colores-al-resto-en-la-champions)
-- **Premier 7-1 LaLiga en Champions**: [Link](https://www.flashscore.com.ar/noticias/futbol-champions-league-laliga-no-puede-con-la-premier-league-en-champions/0ruDDQtg/)
-- **Los ingleses mandan en la Champions League**: [Link](https://www.flashscore.es/noticias/premier-league-brilla-champions-league/tQKaokom/)
-
-
-### xiaomi (N/A, 24/11/2025 15:28 Lima)
-
-- **Este Xiaomi con cámaras 4K, 512GB, chip Snapdragon y cámara de 200MP solo cuesta $350**: [Link](https://libero.pe/tecnologia/2025/11/24/xiaomi-redmi-note-14-pro-plus-5g-512gb-caracteristicas-precio-peru-mexico-especificaciones-procesador-snapdragon-7s-gen-3-12gb-ram-512gb-memoria-triple-camara-108mp-4k-lanzamiento-2024-2137056)
-- **Una cámara de 108MP, 1TB de ROM y pantalla AMOLED de 120Hz: este Xiaomi es BARATO y es perfecto para ti**: [Link](https://libero.pe/tecnologia/2025/11/18/xiaomi-redmi-note-14-5g-caracteristicas-ficha-tecnica-precio-peru-mexico-espana-256gb-12gb-ram-triple-camara-108mp-bateria-5200-mah-lanzamiento-2024-1327086)
-- **Este Xiaomi GAMER tiene el chip Snapdragon más POTENTE del mundo y cuesta menos que un iPhone 17 Pro**: [Link](https://libero.pe/tecnologia/2025/11/23/poco-f7-ultra-precio-peru-mexico-espana-caracteristicas-procesador-snapdragon-8-elite-16gb-ram-256gb-512gb-memoria-triple-camara-50mp-4k-bateria-6500-mah-lanzamiento-2024-1426644)
-
-
-### deportivo riestra - barracas central (N/A, 24/11/2025 15:28 Lima)
-
-- **Riestra y Barracas Central se enfrentan por el pase a los cuartos de final del Torneo Clausura: hora, TV y formaciones**: [Link](https://www.infobae.com/deportes/2025/11/24/riestra-y-barracas-central-se-enfrentan-por-el-pase-a-los-cuartos-de-final-del-torneo-clausura-hora-tv-y-formaciones/)
-- **Racing vs. River, por octavos de final del Torneo Clausura 2025 de la Liga Profesional: hora, formaciones y...**: [Link](https://www.cronica.com.ar/depo/ligaprofesional/Racing-vs.-River-por-octavos-de-final-del-Torneo-Clausura-2025-de-la-Liga-Profesional-hora-formaciones-y-como-verlo-en-vivo-20251124-0007.html)
-- **Deportivo Riestra vs. Barracas Central, por los octavos de final del Torneo Claurusa 2025**: [Link](https://www.lanacion.com.ar/deportes/futbol/deportivo-riestra-vs-barracas-central-por-los-octavos-de-final-del-torneo-claurusa-2025-nid24112025/)
 
 
