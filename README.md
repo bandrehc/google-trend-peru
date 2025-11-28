@@ -1,3 +1,73 @@
+### guadalajara - cruz azul (N/A, 27/11/2025 20:55 Lima)
+
+- **Cruz Azul-Chivas, la serie más pareja de la Liguilla Apertura 2025**: [Link](https://www.espn.com.pe/futbol/mexico/nota/_/id/16002015/cruz-azul-vs-chivas-cuartos-de-final-liga-mx-liguilla-apertura-2025)
+- **🔴 Telemundo Deportes EN VIVO EN DIRECTO | ver partido Chivas de Guadalajara - Cruz Azul por TV online**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/telemundo-deportes-en-vivo-como-ver-partido-chivas-de-guadalajara-vs-cruz-azul-por-chivas-tv-y-futbol-online-en-usa-nnda-nnrt-noticia/)
+- **¿A qué hora juega y dónde ver Chivas vs Cruz Azul por la Liga MX?**: [Link](https://libero.pe/futbol-internacional/liga-mx/2025/11/26/hora-juega-chivas-vs-cruz-azul-canal-de-transmision-donde-ver-partido-de-liguilla-liga-mx-1102504)
+
+
+### ufc 324 (N/A, 27/11/2025 20:55 Lima)
+
+- **Ariel Helwani Calls Out Dana White’s Hypocrisy After UFC 324 Announcement Sparks Backlash**: [Link](https://www.essentiallysports.com/ufc-mma-news-ariel-helwani-calls-out-dana-whites-hypocrisy-after-ufc-324-announcement-sparks-backlash/)
+- **Paramount leverages Thanksgiving NFL game to announce first big UFC event**: [Link](https://www.sportsbusinessjournal.com/Articles/2025/11/27/paramount-leverages-thanksgiving-nfl-game-to-announce-first-big-ufc-event/)
+- **Kayla Harrison vs. Amanda Nunes title bout set for UFC 324 co-main**: [Link](https://sports.yahoo.com/articles/kayla-harrison-vs-amanda-nunes-231040601.html)
+
+
+### asus (N/A, 27/11/2025 20:55 Lima)
+
+- **These routers are vulnerable to hackers: Update urgently now!**: [Link](https://www.pcworld.com/article/2988421/these-routers-are-vulnerable-to-hackers-update-urgently-now.html)
+- **Got an Asus PC or router? Beware of these new security flaws**: [Link](https://www.pcgamer.com/hardware/dangerous-security-flaws-could-potentially-affect-millions-of-asus-pc-and-router-owners-heres-how-to-protect-yourself/)
+- **ASUS warns of new critical auth bypass flaw in AiCloud routers**: [Link](https://www.bleepingcomputer.com/news/security/asus-warns-of-new-critical-auth-bypass-flaw-in-aicloud-routers/)
+
+
+### corte de luz arequipa (N/A, 27/11/2025 20:55 Lima)
+
+- **🔴🔵Sin luz desde el 25 al 27 de noviembre: 🚫💡 Verifica AQUÍ si tu distrito se verá afectado con el corte desde HOY 👇**: [Link](https://www.facebook.com/Exitosanoticias/posts/sin-luz-desde-el-25-al-27-de-noviembre-verifica-aqu%C3%AD-si-tu-distrito-se-ver%C3%A1-afec/1285122053650850/)
+- **Anuncian corte de luz programado para el 28 y 29 de noviembre: Lista de distritos afectados con la m**: [Link](https://www.apnoticias.pe/peru/exitosa-noticias/anuncian-corte-de-luz-programado-para-el-28-y-29-de-noviembre-lista-de-distritos-afectados-con-la-medida-1473018)
+- **Corte de luz hasta el 29 de noviembre: Durante cuatro días, Seal suspenderá su servicio en estas zonas**: [Link](https://www.infobae.com/peru/2025/11/25/corte-de-luz-hasta-el-29-de-noviembre-durante-cuatro-dias-seal-suspendera-su-servicio-en-estas-zonas/)
+
+
+### américa - medellín (N/A, 27/11/2025 20:55 Lima)
+
+- **América vs Medellín: Así serán las alineaciones titulares en la fecha 3 de cuadrangulares**: [Link](https://www.espn.com.ar/futbol/colombia/nota/_/id/16014990/america-vs-independiente-medellin-alineaciones-titulares-fecha-3-cuadrangulares)
+- **América de Cali vs Medellín hoy: Resultado EN VIVO, minuto a minuto y goles del partido**: [Link](https://www.365scores.com/es/news/america-vs-medellin-en-vivo-liga/)
+- **¿Gol válido? Gran definición de Tilman que no sumó en América vs DIM**: [Link](https://www.futbolred.com/futbol-colombiano/liga-betplay/video-vea-jugada-de-gol-anulada-a-america-de-cali-vs-medellin-fuera-de-lugar-de-tilman-palacios-259286)
+
+
+### fluminense - são paulo (N/A, 27/11/2025 20:55 Lima)
+
+- **Gabriel Sá: Largado pela diretoria, São Paulo é humilhado no Maracanã**: [Link](https://www.uol.com.br/esporte/futebol/ultimas-noticias/2025/11/27/largado-pela-diretoria-sao-paulo-e-humilhado-no-maracana.htm)
+- **Fluminense: Zubeldía ‘amassa’ Crespo em reencontro com São Paulo**: [Link](https://www.itatiaia.com.br/esportes/futebol/futebol-nacional/brasileirao-serie-a/fluminense-zubeldia-amassa-crespo-em-reencontro-com-sao-paulo)
+- **Lucho Acosta e Zubeldía estão entre os pendurados do Fluminense; Confira**: [Link](https://www.netflu.com.br/lucho-acosta-e-zubeldia-estao-entre-os-pendurados-do-fluminense-confira/)
+
+
+### fluminense vs (N/A, 27/11/2025 20:55 Lima)
+
+- **Fluminense thrash São Paulo to seal Copa Libertadores spot**: [Link](https://sports.yahoo.com/articles/fluminense-thrash-o-paulo-seal-012200497.html)
+- **Fluminense vs São Paulo tonight and both teams playing for Libertadores spots—here's what happens to top-4 race if either draws instead of winning**: [Link](https://www.red94.net/news/22320-fluminense-vs-sao-paulo-in-crucial-brasileirao-clash-at-maracana-tonight-both-te/)
+- **Fluminense vs Sao Paulo Preview, prediction, lineups, betting tips & odds | Brazilian Serie A 2025**: [Link](https://khelnow.com/football/world-football-fluminense-vs-sao-paulo-preview-202511)
+
+
+### panathinaikos vs (N/A, 27/11/2025 20:55 Lima)
+
+- **Panathinaikos vs Sturm Graz: UEFA Europa League stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c33mvvkxrmxt)
+- **Greece Europa League Soccer**: [Link](https://www.wvnews.com/sports/pro/greece-europa-league-soccer/image_d856868d-0f5d-54a0-820c-e7ee6a65919a.html)
+- **Preview: Panathinaikos vs Sturm Graz - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/panathinaikos/europa-league/preview/panathinaikos-vs-sturm-graz-prediction-team-news-lineups_586420.html)
+
+
+### panathinaikos (N/A, 27/11/2025 20:55 Lima)
+
+- **Trump celebrating Thanksgiving at Mar-a-Lago**: [Link](https://www.cbsnews.com/news/trump-celebrating-thanksgiving-at-mar-a-lago/)
+- **Sixth annual Thanksgiving day Human Horse Race, in New Orleans**: [Link](https://www.reutersconnect.com/item/sixth-annual-thanksgiving-day-human-horse-race-in-new-orleans/dGFnOnJldXRlcnMuY29tLDIwMjU6bmV3c21sX1JDMjU1SUFGVldVVg)
+- **Trump takes 6-day vacation to Mar-a-Lago while Americans struggle with skyrocketing prices**: [Link](https://www.rawstory.com/alternet-posts/trump-vacation-high-prices/)
+
+
+### estrella roja vs (N/A, 27/11/2025 20:55 Lima)
+
+- **Estrella Roja de Belgrado vs Fotbal Club FCSB | Pronóstico y cuotas 27.11.2025**: [Link](https://www.transfermarkt.es/apuestas/pronosticos-deportivos/estrella-roja-vs-fotbal-club-fcsb-pronostico-apuestas-27-11-2025/)
+- **Est. Roja vs FCSB por la fecha 5 de UEFA Europa League EN VIVO. Seguilo minuto a minuto por la web de TN.**: [Link](https://tn.com.ar/deportes/futbol/2025/11/27/est-roja-vs-fcsb-en-vivo-por-la-fecha-5-de-la-uefa-europa-league-hora-donde-ver-y-formaciones/)
+- **Estrella Roja vs FCSB en vivo minuto a minuto hoy | Europa League**: [Link](https://www.mundodeportivo.com/us/futbol/europa-league/20251127/735018/estrella-roja-vs-fcsb-vivo-minuto-minuto-hoy-europa-league-drca1.html)
+
+
 ### betis vs (N/A, 27/11/2025 15:25 Lima)
 
 - **Real Betis - Utrecht, en directo: Europa League, hoy en vivo**: [Link](https://as.com/futbol/uefa/real-betis-utrecht-en-directo-europa-league-hoy-en-vivo-f202511-d/)
@@ -954,75 +1024,5 @@ Sin noticias relacionadas disponibles.
 - **LIVE Alle 20.45 Sassuolo-Pisa, le ufficiali: Fadera per Grosso, Gila punta su Nzola**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Sassuolo/24-11-2025/sassuolo-pisa-live-risultato-e-gol-in-diretta-serie-a.shtml)
 - **I Nerazzurri per la sfida del Mapei**: [Link](https://pisasportingclub.com/i-nerazzurri-per-la-sfida-del-mapei/)
 - **Serie A, dopo il blitz di Bergamo il Sassuolo a caccia di continuità**: [Link](https://www.agenpress.it/2025/11/24/serie-a-dopo-il-blitz-di-bergamo-il-sassuolo-a-caccia-di-continuita/)
-
-
-### manchester united - everton (N/A, 24/11/2025 15:28 Lima)
-
-- **Man Utd vs Everton LIVE: Premier League score, stats & updates**: [Link](https://www.bbc.com/sport/football/live/cp8e8d252n2t)
-- **'You cannot find a team in the Premier League without injuries': Amorim on absences ahead of Everton match**: [Link](https://tribuna.com/en/news/2025-11-24-you-cannot-find-a-team-in-the-premier-league-without-injuries-amorim-on-absences-ahead-of/)
-- **Preview: Monday Night Football from Old Trafford**: [Link](https://www.fotmob.com/ko/topnews/24068-preview-monday-night-football-from-old-trafford?utm_source=fotmob)
-
-
-### rcd espanyol - sevilla (N/A, 24/11/2025 15:28 Lima)
-
-- **Espanyol vs Sevilla: Apuestas, Pronóstico y Cuotas**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2025/noviembre/pronostico-espanyol-vs-sevilla-24-11-25)
-- **LaLiga EA Sports: Se enfrentan Espanyol y Sevilla por la fecha 13**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-se-enfrentan-espanyol-y-sevilla-por-la-fecha-13-noticia-1664989)
-- **Espanyol vs Sevilla de Alexis y Suazo por La Liga de España: a qué hora juegan y quién transmite**: [Link](https://www.biobiochile.cl/noticias/servicios/toma-nota/2025/11/24/espanyol-vs-sevilla-de-alexis-y-suazo-por-la-liga-de-espana-a-que-hora-juegan-y-quien-transmite.shtml)
-
-
-### espanyol vs sevilla (N/A, 24/11/2025 15:28 Lima)
-
-- **Preview:Espanyol vs Sevilla - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/espanyol/preview/espanyol-vs-sevilla-prediction-team-news-lineups_586228.html)
-- **Akor Adams’ Goal Odds Ahead of Sevilla FC vs. Espanyol Match**: [Link](https://news.ssbcrack.com/akor-adams-goal-odds-ahead-of-sevilla-fc-vs-espanyol-match/)
-- **Espanyol head coach criticizes La Liga over match scheduling and kick-off times**: [Link](https://dailysports.net/news/espanyol-head-coach-criticizes-la-liga-over-match-scheduling-and-kick-off-times/)
-
-
-### ricardo arjona (N/A, 24/11/2025 15:28 Lima)
-
-- **Ricardo Arjona regresa a Perú: así será su primer concierto en el Estadio Nacional**: [Link](https://rpp.pe/musica/conciertos/ricardo-arjona-vuelve-a-lima-2026-confirman-su-primer-concierto-en-estadio-nacional-cuando-sera-noticia-1665103)
-- **Ricardo Arjona confirma su regreso a Perú con su tour “Lo que el Seco no dijo”**: [Link](https://elcomercio.pe/luces/musica/ricardo-arjona-confirma-su-regreso-a-peru-con-su-tour-lo-que-el-seco-no-dijo-celebs-ultimas-noticia/)
-- **Ricardo Arjona vuelve a Lima: Fecha, precios, zonas y todo lo que debes saber del concierto**: [Link](https://blog.joinnus.com/ricardo-arjona-vuelve-a-lima-fecha-precios-zonas-y-todo-lo-que-debes-saber-del-concierto/)
-
-
-### sedapal corte de agua (N/A, 24/11/2025 15:28 Lima)
-
-- **Corte de agua para este lunes 24 de noviembre: conoce qué distritos serán los afectados**: [Link](https://www.infobae.com/peru/2025/11/22/corte-de-agua-para-este-lunes-24-de-noviembre-conoce-que-distritos-seran-los-afectados/)
-- **Vecinos de San Martín de Porres y Villa María del Triunfo sufrirán corte de agua este 24 de noviembre por más de 10 horas**: [Link](https://libero.pe/tiempoextra/2025/11/23/vecinos-de-san-martin-de-porres-villa-maria-del-triunfo-sufriran-corte-de-agua-24-de-noviembre-de-10-horas-segun-sedapal-1720009)
-- **Corte de agua en Lima: zonas afectadas y horario de Sedapal para el lunes 24 de noviembre**: [Link](https://larepublica.pe/sociedad/2025/11/23/corte-de-agua-en-lima-hoy-lunes-24-de-noviembre-distritos-y-horarios-afectados-por-sedapal-atmp-1646478)
-
-
-### sorteo de la tinka hoy (N/A, 24/11/2025 11:28 Lima)
-
-- **La Tinka: conoce a los afortunados ganadores del sorteo del 23 de noviembre**: [Link](https://elcomercio.pe/videos/entretenimiento/la-tinka-conoce-a-los-afortunados-ganadores-del-sorteo-del-23-de-noviembre-nnav-video-amtv-si-o-si-dinero-noticia/)
-- **Sorteo La Tinka domingo 23 de noviembre: revisa los resultados y comprueba tu jugada ganadora**: [Link](https://www.infobae.com/peru/2025/11/24/la-tinka-del-domingo-23-de-noviembre-de-2025-descubre-los-ganadores-del-ultimo-sorteo/)
-- **Resultados La Tinka de HOY, domingo 23 de noviembre: jugada ganadora del sorteo y números**: [Link](https://libero.pe/ocio/2025/11/23/resultados-tinka-de-hoy-domingo-23-de-noviembre-jugada-ganadora-del-sorteo-numeros-intralot-peru-256586)
-
-
-### kick (N/A, 24/11/2025 11:28 Lima)
-
-- **Cristiano Ronaldo scores overhead kick in Saudi Pro League for Al-Nassr**: [Link](https://www.bbc.com/sport/football/articles/c8659v4p4g4o)
-- **Cristiano Ronaldo’s Bicycle Kick for Al-Nassr Goes Viral: ‘He’s Not Human’**: [Link](https://sports.yahoo.com/article/cristiano-ronaldo-bicycle-kick-al-075108001.html)
-- **We’re delighted to announce that Cristiano Ronaldo has turned into Scott McTominay**: [Link](https://www.msn.com/en-xl/news/other/we-re-delighted-to-announce-that-cristiano-ronaldo-has-turned-into-scott-mctominay/ar-AA1R1YU4)
-
-
-### sga (N/A, 24/11/2025 07:53 Lima)
-
-- **Game Recap: Thunder 122, Trail Blazers 95**: [Link](https://www.nba.com/watch/video/game-recap-thunder-122-trail-blazers-95)
-- **Oklahoma City overwhelms Trail Blazers to avenge only loss of season**: [Link](https://www.oregonlive.com/blazers/2025/11/oklahoma-city-overwhelms-trail-blazers-to-avenge-only-loss-of-season.html)
-- **Three Takeaways From OKC Thunder Beat Down Of Trail Blazers**: [Link](https://www.si.com/nba/thunder/onsi/news/three-takeaways-from-okc-thunder-beat-down-of-trail-blazers-01kasfy4kg0m)
-
-
-### champions league (N/A, 24/11/2025 07:53 Lima)
-
-- **Chelsea Predicted XI vs Barcelona as Estevao Willian faces up against Lamine Yamal**: [Link](https://www.thechelseachronicle.com/news/chelsea-predicted-xi-vs-barcelona-as-estevao-willian-faces-up-against-lamine-yamal/)
-- **Chelsea must prove they belong against Barcelona in the Champions League**: [Link](https://footballtoday.com/2025/11/24/chelsea-must-prove-they-belong-against-barcelona-in-the-champions-league/)
-- **Women's Champions League: Bayern Munich put PSG in trouble as Chelsea hold Barcelona**: [Link](https://www.tribalfootball.com/article/soccer-champions-league-women-women-s-champions-league-bayern-munich-put-psg-in-trouble-as-chelsea-hold-barcelona-f0c508c1-d54f-4037-ad87-2c22bec65626)
-
-
-### feriados diciembre 2025 (N/A, 24/11/2025 07:53 Lima)
-
-- **Feriado largo en diciembre 2025: cuatro días de descanso seguidos para cerrar el año en Perú**: [Link](https://www.infobae.com/peru/2025/11/23/feriado-largo-en-diciembre-2025-cuatro-dias-de-descanso-seguidos-para-cerrar-el-ano-en-peru/)
-- **Estos son los días de diciembre en donde no habrá clases por feriado largo en el Perú | tdpe | RESPUESTAS**: [Link](https://elcomercio.pe/respuestas/cuando/estos-son-los-dias-de-diciembre-en-donde-no-habra-clases-por-feriado-largo-en-el-peru-tdpe-noticia/)
-- **La buena noticia antes de Navidad para trabajadores del sector público y privado Perú respecto al próximo feriado largo**: [Link](https://larepublica.pe/economia/2025/11/17/la-buena-noticia-para-trabajadores-del-sector-publico-y-privado-peru-respecto-al-proximo-feriado-largo-de-2025-atmp-968303)
 
 
