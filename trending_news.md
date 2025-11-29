@@ -1,3 +1,45 @@
+### leicester city - sheffield united (N/A, 29/11/2025 07:47 Lima)
+
+- **Leicester v Blades - confirmed teams**: [Link](https://www.sufc.co.uk/news/2025/november/29/leicester-v-blades/)
+- **SUFC News: Five changes and derby-day hero call in Blades predicted XI v Leicester**: [Link](https://www.thestar.co.uk/sport/football/sheffield-united/five-changes-and-derby-day-hero-call-in-sheffield-united-predicted-xi-for-leicester-city-clash-after-chris-wilder-verdict-5422728)
+- **Championship LIVE: Score updates, text commentary and results from 10 matches**: [Link](https://www.bbc.com/sport/football/live/crexnp1yzn4t)
+
+
+### r.c.d. mallorca - osasuna (N/A, 29/11/2025 07:47 Lima)
+
+- **LaLiga EA Sports: Se enfrentan Mallorca y Osasuna por la fecha 14**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-se-enfrentan-mallorca-y-osasuna-por-la-fecha-14-noticia-1665664)
+- **Mallorca vs Osasuna: Apuestas, Pronóstico y Cuotas**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2025/noviembre/pronostico-mallorca-vs-osasuna-29-11-25)
+- **Jagoba Arrasate, contra su pasado más glorioso**: [Link](https://as.com/futbol/primera/jagoba-arrasate-contra-su-pasado-mas-glorioso-f202511-n/)
+
+
+### diego romero (N/A, 29/11/2025 07:47 Lima)
+
+- **La molestia de Sebastián Britos tras su salida de Universitario: “Recién me acabo de enterar”**: [Link](https://depor.com/futbol-peruano/descentralizado/universitario-sebastian-britos-molesto-por-como-se-entero-que-no-seguia-y-hablo-de-su-paso-por-el-club-recien-me-acabo-de-enterar-liga-1-2026-video-noticia/)
+- **“No podemos tener a cuatro arqueros”: Jorge Fossati replantea la posición tras regreso de Diego Romero a la ‘U’**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/universitario-no-podemos-tener-a-cuatro-arqueros-jorge-fossati-replantea-la-posicion-tras-regreso-de-diego-romero-a-la-u-noticia/)
+- **Universitario anuncia la salida de arquero Sebastián Britos: “Gracias por tu garra”**: [Link](https://trome.com/deportes/futbol-peruano/universitario-anuncia-la-salida-de-arquero-sebastian-britos-gracias-por-tu-garra-noticia/)
+
+
+### airbus a320 (N/A, 29/11/2025 07:47 Lima)
+
+- **Flights disrupted after Airbus discovers intense sun radiation could impact flight control data**: [Link](https://www.bbc.com/news/articles/c8e9d13x2z7o)
+- **Airlines race to fix thousands of planes after warning solar radiation could cause pilots to lose control**: [Link](https://www.cnn.com/2025/11/28/us/a320-series-fixes)
+- **Airbus issues major A320 recall, threatening global flight disruption**: [Link](https://www.reuters.com/business/aerospace-defense/airbus-issues-major-a320-recall-after-flight-control-incident-2025-11-28/)
+
+
+### migrantes frontera chile peru (N/A, 29/11/2025 07:47 Lima)
+
+- **Perú declara estado de emergencia en la frontera con Chile por crisis migratoria irregular e inseguridad**: [Link](https://www.infobae.com/peru/2025/11/28/peru-declara-estado-de-emergencia-en-la-frontera-con-chile-por-crisis-migratoria-irregular-e-inseguridad/)
+- **PCM publica decreto que declara en estado de emergencia zona fronteriza en Tacna por crisis migratoria**: [Link](https://elcomercio.pe/lima/seguridad/gobierno-peruano-declara-en-estado-de-emergencia-zona-fronteriza-en-tacna-por-crisis-migratoria-jose-jeri-pcm-ultimas-noticia/)
+- **José Jerí anunció que antes de la medianoche se aprobará el estado de emergencia en Tacna**: [Link](https://rpp.pe/politica/gobierno/jose-jeri-anuncio-que-antes-de-la-medianoche-se-aprobara-el-estado-de-emergencia-en-tacna-noticia-1665798)
+
+
+### brentford (N/A, 29/11/2025 07:47 Lima)
+
+- **Keith Andrews’ pre-match press conference: Brentford ‘in a good place’ ahead of Premier League meeting with Burnley**: [Link](https://www.brentfordfc.com/en/news/article/first-team-brentford-v-burnley-premier-league-team-news-29-11-2025)
+- **Football Bet Of The Day: James Milton has a 23-10 selection from the Premier League**: [Link](https://www.racingpost.com/sport/football-tips/football-bet-of-the-day-james-milton-has-a-23-10-selection-from-the-premier-league-aOtzW6u1Azhq/)
+- **Kyle Walker on Burnley's season so far, what survival would mean and son's academy progress**: [Link](https://www.burnleyexpress.net/sport/football/kyle-walker-on-burnleys-season-so-far-what-survival-would-mean-and-sons-academy-progress-5421237)
+
+
 ### ulises villegas (N/A, 29/11/2025 03:31 Lima)
 
 - **🔴🔵🚨 #LOÚLTIMO | La Primera Sala Penal de Apelaciones Transitoria de Lima Norte ratificó la sentencia de 6 años de cárcel efectiva contra el alcalde de Comas, Ulises Villegas, por colusión agravada, y dispuso su inmediata ubicación y captura. 🌐Más infor**: [Link](https://www.facebook.com/Exitosanoticias/photos/-lo%C3%BAltimo-la-primera-sala-penal-de-apelaciones-transitoria-de-lima-norte-ratific/1288117210018001/)
@@ -985,45 +1027,5 @@
 - **Stranger Things 5: fecha de estreno de los episodios de cada parte y la duración de la última temporada**: [Link](https://cnnespanol.cnn.com/2025/11/21/entretenimiento/stranger-things-5-estreno-episodios-duracion-orix)
 - **Stranger Things 5: fecha y horarios de estreno de la última temporada en Netflix**: [Link](https://www.infobae.com/entretenimiento/2025/11/25/stranger-things-5-fecha-y-horarios-de-estreno-de-la-ultima-temporada-en-netflix/)
 - **‘Stranger Things’ 5: cuándo se estrena la última temporada y todos sus capítulos**: [Link](https://elpais.com/television/series/2025-11-24/stranger-things-5-cuando-se-estrena-la-ultima-temporada-y-todos-sus-capitulos.html)
-
-
-### euro hoy (N/A, 25/11/2025 20:57 Lima)
-
-- **Euro: cotización de cierre hoy 25 de noviembre en Guatemala**: [Link](https://www.infobae.com/noticias/2025/11/25/euro-cotizacion-de-cierre-hoy-25-de-noviembre-en-guatemala/)
-- **Valor de apertura del euro en Guatemala este 17 de noviembre de EUR a GTQ**: [Link](https://www.infobae.com/noticias/2025/11/17/valor-de-apertura-del-euro-en-guatemala-este-17-de-noviembre-de-eur-a-gtq/)
-- **Guatemala: cotización de cierre del euro hoy 20 de noviembre de EUR a GTQ**: [Link](https://www.infobae.com/noticias/2025/11/20/guatemala-cotizacion-de-cierre-del-euro-hoy-20-de-noviembre-de-eur-a-gtq/)
-
-
-### flamengo (N/A, 25/11/2025 20:57 Lima)
-
-- **Atlético-MG x Flamengo: onde assistir ao vivo, horário e escalações**: [Link](https://ge.globo.com/mg/futebol/brasileirao-serie-a/noticia/2025/11/25/atletico-mg-x-flamengo-onde-assistir-ao-vivo-horario-e-escalacoes.ghtml)
-- **Samuel Lino revela conversa do elenco com Filipe Luís por títulos**: [Link](https://fla.mundobola.com/samuel-lino-revela-conversa-do-elenco-com-filipe-luis-por-titulos/)
-- **Lista atualizada de todos os campeões da Série A do Campeonato Brasileiro**: [Link](https://www.nsctotal.com.br/noticias/lista-atualizada-de-todos-os-campeoes-da-serie-a-do-campeonato-brasileiro)
-
-
-### euro (N/A, 25/11/2025 20:57 Lima)
-
-Sin noticias relacionadas disponibles.
-
-
-### stranger things (N/A, 25/11/2025 20:57 Lima)
-
-- **‘Stranger Things’: 10 Things The Duffer Brothers Want You to Know Before Watching the Final Season**: [Link](https://www.hollywoodreporter.com/lists/stranger-things-season-5-duffer-brothers-recommendations/)
-- **Stranger Things is ending, and so is Netflix’s reliance on tentpole shows**: [Link](https://www.theverge.com/streaming/828254/stranger-things-season-5-netflix-tentpoles-future)
-- **‘Stranger Things’ Fans Are Binging Netflix Hit Ahead Of Season 5 As First Four Seasons Enter Charts**: [Link](https://deadline.com/2025/11/stranger-things-netflix-ratings-four-seasons-1236628742/)
-
-
-### flamengo vs (N/A, 25/11/2025 20:57 Lima)
-
-- **Perú percibirá alrededor de 70 millones de dólares por albergar la final de la Conmebol Copa Libertadores**: [Link](https://rpp.pe/futbol/copa-libertadores/copa-libertadores-peru-percibira-alrededor-de-70-millones-de-dolares-por-albergar-la-final-entre-flamengo-vs-palmerias-estadio-monumental-noticia-1665231)
-- **Miraflores lanza campaña con miras a la final de la Copa Conmebol Libertadores**: [Link](https://elperuano.pe/noticia/283782-miraflores-lanza-campana-con-miras-a-la-final-de-la-copa-conmebol-libertadores)
-- **Abre sus puertas: el Fan Zone Conmebol Libertadores se estrenó en Lima**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/final-copa-libertadores-2025-fan-zone-abre-sus-puertas-en-lima-noticia/)
-
-
-### gremio vs (N/A, 25/11/2025 20:57 Lima)
-
-- **Todo sobre la lesión que sufrió Erick Noriega en Gremio**: [Link](https://www.americatv.com.pe/deportes/futbol-mundial/todo-sobre-lesion-que-sufrio-erick-noriega-gremio-n451802)
-- **Alarma por Erick Noriega tras su lesión en la derrota de Gremio**: [Link](https://www.futbolperuano.com/peruanos-en-el-exterior/noticias/erick-noriega-preocupa-en-gremio-salio-lesionado-ante-botafogo-en-su-regreso-tras-la-gira-con-la-seleccion-peruana-552476)
-- **Medio brasileño lanzó duro calificativo a Erick Noriega tras derrota de Gremio: "Errores de..."**: [Link](https://libero.pe/futbol-internacional/2025/11/22/erick-noriega-medio-brasileno-lanzo-duro-calificativo-jugador-derrota-de-gremio-botafogo-errores-de-brasileirao-2025-2108150)
 
 
