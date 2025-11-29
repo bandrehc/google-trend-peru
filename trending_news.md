@@ -1,3 +1,73 @@
+### palmeiras - flamengo (N/A, 29/11/2025 15:26 Lima)
+
+- **Las claves de la gran final de la Libertadores entre Palmeiras y Flamengo**: [Link](https://www.espn.com.pe/futbol/copa-libertadores/nota/_/id/16017218/las-claves-de-la-gran-final-de-la-libertadores-entre-palmeiras-y-flamengo)
+- **Una ventana al mundo**: [Link](https://elperuano.pe/noticia/284000-una-ventana-al-mundo)
+- **La avenida Javier Prado permanece cerrada al tránsito por la final de la Copa Libertadores: este es el panorama a horas del partido**: [Link](https://rpp.pe/lima/actualidad/la-avenida-javier-prado-permanece-cerrada-al-transito-por-la-final-de-la-copa-libertadores-este-es-el-panorama-a-horas-del-partido-noticia-1665860)
+
+
+### atletico madrid (N/A, 29/11/2025 15:26 Lima)
+
+- **Why Did Diego Simeone Bench Julian Alvarez in Atletico Madrid Vs Real Oviedo Match?**: [Link](https://www.sportsdunia.com/football-news/julian-alvarez-benched-atletico-madrid-vs-real-oviedo)
+- **Diego Simeone addresses competition for places before Real Oviedo encounter**: [Link](https://sports.yahoo.com/articles/diego-simeone-addresses-competition-places-131432795.html)
+- **Atletico Madrid vs Real Oviedo Prediction, 11/29/2025 Soccer Pick, Tips and Odds**: [Link](https://www.docsports.com/free-picks/soccer/2025/atletico-madrid-vs-real-oviedo-prediction-11-29-2025-soccer-pick-tips-and-odds.html)
+
+
+### marsella (N/A, 29/11/2025 15:26 Lima)
+
+- **Liga de Francia: Olympique de Marsella necesita los tres puntos para ser puntero**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-de-francia-olympique-de-marsella-necesita-los-tres-puntos-para-ser-puntero-noticia-1665720)
+- **Pronóstico Marsella - Toulouse - Ligue 1**: [Link](https://www.sportytrader.es/pronosticos/marsella-toulouse-308204/)
+- **Marsella vs Toulouse en vivo la Ligue 1 2025: resultado y goles de la jornada 14**: [Link](https://www.clarosports.com/futbol/ligue-1/marsella-vs-toulouse-en-vivo-la-ligue-1-2025-resultado-y-goles-de-la-jornada-14/)
+
+
+### espn (N/A, 29/11/2025 15:26 Lima)
+
+- **U-M's Barham flagged for head-butting official**: [Link](https://www.espn.com/college-football/story/_/id/47139207/michigan-lb-jaishawn-barham-flagged-head-butting-official)
+- **Did He Just Headbutt the Ref? 🤔**: [Link](https://www.foxsports.com/watch-vertical/fmc-g0q710ea28ou9hdm)
+- **Michigan's Jaishawn Barham headbutts referee in game vs Ohio State**: [Link](https://www.usatoday.com/story/sports/ncaaf/2025/11/29/jaishawn-barham-headbutt-referee-ohio-state-michigan-football/87526010007/)
+
+
+### atlético madrid - real oviedo (N/A, 29/11/2025 15:26 Lima)
+
+- **Atlético de Madrid - Oviedo hoy, en directo: LaLiga EA Sports, última hora, en vivo**: [Link](https://as.com/futbol/atletico-de-madrid-oviedo-hoy-en-directo-laliga-ea-sports-ultima-hora-en-vivo-f202511-d/)
+- **Atlético Madrid vs Real Oviedo: Apuestas, Pronóstico y Cuotas**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2025/noviembre/pronostico-atletico-madrid-vs-real-oviedo-29-11-25)
+- **Un 1-0 para hacer historia en LaLiga**: [Link](https://www.marca.com/futbol/atletico/2025/11/29/1-0-historia-laliga.html)
+
+
+### tottenham - fulham (N/A, 29/11/2025 15:26 Lima)
+
+- **Premier League LIVE: Everton vs Newcastle - score & updates**: [Link](https://www.bbc.com/sport/football/live/cd67gz3ex10t)
+- **Tottenham v Fulham: Premier League – live**: [Link](https://www.theguardian.com/football/live/2025/nov/29/tottenham-v-fulham-premier-league-live)
+- **Frank’s plausible XI: Prepare to be disappointed**: [Link](https://theboyhotspur.com/tottenham-fulham-team-news-odds-and-form-guide/)
+
+
+### twitch (N/A, 29/11/2025 15:26 Lima)
+
+- **Music entertainer Ray J arrested by Los Angeles police on Thanksgiving, records show**: [Link](https://abc7.com/post/music-entertainer-ray-arrested-los-angeles-police-thanksgiving-records-show/18219027/)
+- **Musical artist arrested after domestic violence call**: [Link](https://www.al.com/crime/2025/11/musical-artist-arrested-after-domestic-violence-call.html)
+- **Singer Ray J arrested on Thanksgiving Day on suspicion of making threats in Los Angeles**: [Link](https://www.latimes.com/california/story/2025-11-27/singer-ray-j-arrested-on-suspicion-of-making-threats-in-los-angeles)
+
+
+### fortnite (N/A, 29/11/2025 15:26 Lima)
+
+- **Fortnite Zero Hour live event start timings for all regions**: [Link](https://timesofindia.indiatimes.com/sports/esports/fortnite/fortnite-zero-hour-live-event-start-timings-for-all-regions/articleshow/125645227.cms)
+- **Fortnite Chapter 7 map leak reveals new POIs, biomes, and more**: [Link](https://www.msn.com/en-in/money/technology/fortnite-chapter-7-map-leak-reveals-new-pois-biomes-and-more/ar-AA1RnK74?ocid=finance-verthp-feeds)
+- **Is Fortnite down? When will Epic Games launch the new season?**: [Link](https://www.northjersey.com/story/tech/gaming/2025/11/29/is-fortnite-down-when-will-epic-games-launch-chapter-7/87525687007/)
+
+
+### milan - lazio (N/A, 29/11/2025 15:26 Lima)
+
+- **Milan-Lazio: le formazioni ufficiali della 13ª giornata di Serie A**: [Link](https://it.football-italia.net/Le-formazioni-di-serie-a-milano-lazio/)
+- **Dia sul gol annullato col Lecce: "Per me non era fallo. Altre due gare prima della Coppa d'Africa"**: [Link](https://www.tuttomercatoweb.com/serie-a/dia-sul-gol-annullato-col-lecce-per-me-non-era-fallo-altre-due-gare-prima-della-coppa-d-africa-2173778)
+- **Milan-Lazio |✅UFFICIALI: la scelta su Nkunku, Saelemaekers, Tavares, Vecino**: [Link](https://onefootball.com/it/notizie/milan-lazio-ufficiali-la-scelta-su-nkunku-saelemaekers-tavares-vecino-42022593)
+
+
+### partidos de hoy (N/A, 29/11/2025 15:26 Lima)
+
+- **Partidos de hoy, sábado 29 de noviembre: a qué hora juegan y dónde ver fútbol en vivo**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/partidos-de-hoy-sabado-29-de-noviembre-del-2025-resultados-horarios-canales-tv-y-donde-ver-futbol-en-vivo-noticia/)
+- **Sábado: final de la Copa Sudamericana, Brasileirão y acción europea**: [Link](https://masmma.com.mx/futbol/%F0%9F%93%BA-sabado-final-de-la-copa-sudamericana-brasileirao-y-accion-europea/125352/)
+- **Partidos de hoy, sábado 22 de noviembre del 2025: horarios y canales TV para ver EN VIVO Liga1 y final de Sudamericana**: [Link](https://rpp.pe/futbol/futbol-mundial/partidos-de-hoy-peru-sabado-22-de-noviembre-del-2025-horarios-y-canales-tv-ver-futbol-en-vivo-noticia-1664783)
+
+
 ### juventus - cagliari (N/A, 29/11/2025 11:29 Lima)
 
 - **Serie A | Le formazioni ufficiali di Juventus-Cagliari**: [Link](https://www.juventus.com/it/news/articoli/serie-a-2025-2026-juventus-cagliari-formazioni-ufficiali)
@@ -960,70 +1030,5 @@
 - **‘Zootopia 2’ Review: Natural Habitats, Expanded**: [Link](https://www.nytimes.com/2025/11/26/movies/zootopia-2-review.html)
 - **'Zootopia 2,' 'Wicked: For Good' lead Thanksgiving box office**: [Link](https://www.cnbc.com/2025/11/26/thanksgiving-box-office-zootopia-2-wicked-for-good.html)
 - **‘Zootopia 2’ Review: Jason Bateman and Ginnifer Goodwin Return for a Blast of a Sequel Full of Delights Both Familiar and New**: [Link](https://www.hollywoodreporter.com/movies/movie-reviews/zootopia-2-review-jason-bateman-ginnifer-goodwin-disney-1236434563/)
-
-
-### disney plus (N/A, 26/11/2025 15:26 Lima)
-
-- **Romario Da Silva confía en salir campeón de Copa Centroamericana: "Vamos por este título"**: [Link](https://www.espn.com.pe/futbol/guatemala/nota/_/id/16005981/romario-da-silva-salir-campeon-copa-centroamericana-concacaf)
-- **¿A qué hora juega y qué canal transmite LDA Alajuelense vs. Xelajú EN VIVO hoy 26 de noviembre por Copa Centroamericana 2025 en USA?**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/a-que-hora-juega-y-que-canal-transmite-lda-alajuelense-vs-xelaju-en-vivo-hoy-26-de-noviembre-por-copa-centroamericana-2025-en-usa-nnda-nnrt-noticia/)
-- **Concacaf destaca desempeño de Jesús López y Rubén Silva rumbo a final de Copa Centroamericana**: [Link](https://www.espn.com.pe/futbol/guatemala/nota/_/id/15990701/concacaf-destaca-desempeno-jesus-lopez-y-ruben-silva-rumbo-final-copa-centroamericana)
-
-
-### onpe elige tu local de votacion (N/A, 26/11/2025 11:32 Lima)
-
-- **Elige tu local de votación HOY: link oficial de la ONPE para las Elecciones 2026**: [Link](https://www.infobae.com/peru/2025/11/23/elige-tu-local-de-votacion-link-oficial-de-la-onpe-para-las-elecciones-2026/)
-- **Elecciones Generales 2026: Desde hoy puedes elegir tu local de votación**: [Link](https://elperuano.pe/noticia/283642-elecciones-generales-2026-desde-hoy-puedes-elegir-tu-local-de-votacion)
-- **Elige dónde votar en Elecciones 2026: ciudadanía puede consultar su local de sufragio**: [Link](https://andina.pe/agencia/noticia-elige-donde-votar-elecciones-2026-ciudadania-puede-consultar-su-local-sufragio-1052980.aspx)
-
-
-### jorge luna (N/A, 26/11/2025 11:32 Lima)
-
-- **Aprueban informe final que recomienda inhabilitar a Pedro Castillo por 10 años**: [Link](https://comunicaciones.congreso.gob.pe/noticias/aprueban-informe-final-que-recomienda-inhabilitar-a-pedro-castillo-por-10-anos/)
-- **Congreso expulsa a abogado de Pedro Castillo por decir que hablan "huev**as" | VIDEO**: [Link](https://peru21.pe/politica/congreso-expulsa-abogado-de-pedro-castillo-por-decir-que-hablan-huevas/)
-- **¿Qué debe ocurrir para que Betssy Chávez y Pedro Castillo no participen en las Elecciones 2026? Especialista responde**: [Link](https://rpp.pe/politica/elecciones/que-debe-ocurrir-para-que-betssy-chavez-y-pedro-castillo-no-participen-en-las-elecciones-2026-especialista-responde-noticia-1664891)
-
-
-### vizcarra (N/A, 26/11/2025 11:32 Lima)
-
-- **VIVO | Martín Vizcarra: lectura de sentencia por casos Lomas de Ilo y Hospital de Moquegua**: [Link](https://lpderecho.pe/martin-vizcarra-lomas-de-ilo-hospital-de-moquegua/)
-- **PJ dicta veredicto del juicio a Vizcarra: ¿15 años de prisión o absolución total? | Tenemos Que Hablar**: [Link](https://elcomercio.pe/politica/justicia/pj-dicta-veredicto-del-juicio-a-martin-vizcarra-15-anos-de-prision-o-absolucion-total-tenemos-que-hablar-noticia/)
-- **Poder Judicial lee sentencia a Martín Vizcarra por casos Lomas de Ilo y Hospital de Moquegua**: [Link](https://rpp.pe/politica/judiciales/poder-judicial-lee-sentencia-a-martin-vizcarra-por-casos-lomas-de-ilo-y-hospital-de-moquegua-live-3061)
-
-
-### olympiacos (N/A, 26/11/2025 11:32 Lima)
-
-- **¿A qué hora se juega y por qué canales ver Real Madrid vs. Olympiacos hoy por Champions League en España, México y USA?**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/a-que-hora-juega-y-que-canal-transmite-real-madrid-vs-olympiacos-en-vivo-hoy-26-de-noviembre-por-champions-league-2025-en-espana-mexico-y-usa-horarios-nnda-nnrt-noticia/)
-- **Real Madrid vs. Olympiacos: ¿Qué canales transmitirán el partido de la Champions League?**: [Link](https://andina.pe/agencia/noticia-real-madrid-vs-olympiacos-canales-transmitiran-partido-de-champions-league-1053406.aspx)
-- **Baja de última hora: Thibaut Courtois sufre proceso vírico y no jugará ante Olympiacos por Champions League**: [Link](https://rpp.pe/futbol/champions-league/real-madrid-hibaut-courtois-sufre-proceso-virico-y-no-jugara-ante-olympiacos-por-la-fase-liga-de-la-champions-league-noticia-1665211)
-
-
-### fc istiklol dushanbe - al-nassr (N/A, 26/11/2025 11:32 Lima)
-
-- **¿Por qué no juega Cristiano Ronaldo hoy para Al Nassr ante FC Istiklol Dushanbe por la AFC Champions League...**: [Link](https://bolavip.com/pe/futbol-internacional/por-que-no-juega-cristiano-ronaldo-hoy-para-al-nassr-ante-fc-istiklol-dushanbe-por-la-afc-champions-league-two)
-- **¿Juega Cristiano Ronaldo? La alineación de Al Nassr para enfrentar a FC Istiklol Dushanbe por la AFC Champi...**: [Link](https://bolavip.com/pe/futbol-internacional/juega-cristiano-ronaldo-la-alineacion-de-al-nassr-para-enfrentar-a-fc-istiklol-dushanbe-por-la-afc-champions-league-two)
-
-
-### copenhague vs (N/A, 26/11/2025 11:32 Lima)
-
-- **Champions League: Se enfrentan FC Copenhague y Kairat Almaty por la fecha 5**: [Link](https://rpp.pe/futbol/ligas-internacionales/champions-league-se-enfrentan-fc-copenhague-y-kairat-almaty-por-la-fecha-5-noticia-1665216)
-
-
-### xiaomi (N/A, 26/11/2025 07:54 Lima)
-
-- **Xiaomi: “Nos estamos posicionando como una marca ‘premium’ en el Perú”**: [Link](https://elcomercio.pe/economia/dia-1/xiaomi-nos-estamos-posicionando-como-una-marca-premium-en-el-peru-xiaomi-peru-noticia/)
-
-
-### lakers (N/A, 26/11/2025 07:54 Lima)
-
-- **Kris Dunn ejected after swinging at Luka Doncic in Lakers win**: [Link](https://basketnews.com/news-235725-kris-dunn-ejected-after-swinging-at-luka-doncic-in-lakers-win.html)
-- **Kendrick Perkins: “Clippers should be ashamed of themselves”**: [Link](https://www.talkbasket.net/206992-kendrick-perkins-clippers-should-be-ashamed-of-themselves)
-- **Luka Doncic blasts NBA Cup courts: It's slippery, dangerous**: [Link](https://www.hoopshype.com/story/sports/nba/2025/11/26/luka-doncic-blasts-nba-cup-courts-its-slippery-dangerous/87479276007/)
-
-
-### nike (N/A, 26/11/2025 03:34 Lima)
-
-- **Nike Founder Phil Knight Announces Record-Breaking Political Donation**: [Link](https://www.yahoo.com/news/articles/nike-founder-phil-knight-announces-174916413.html)
-- **Phil Knight is once again rooting for Oregon Republicans next year**: [Link](https://www.opb.org/article/2025/11/25/phil-knight-oregon-republicans-3-million-dollar-donation/)
-- **Nike co-founder Phil Knight gives $3M to Republican PAC**: [Link](https://www.kgw.com/article/money/business/nike-co-founder-phil-knight-republican-pac/283-0d40bfeb-30e6-43ad-bd02-e82b48ded795)
 
 
