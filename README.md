@@ -1,3 +1,17 @@
+### ulises villegas (N/A, 29/11/2025 03:31 Lima)
+
+- **🔴🔵🚨 #LOÚLTIMO | La Primera Sala Penal de Apelaciones Transitoria de Lima Norte ratificó la sentencia de 6 años de cárcel efectiva contra el alcalde de Comas, Ulises Villegas, por colusión agravada, y dispuso su inmediata ubicación y captura. 🌐Más infor**: [Link](https://www.facebook.com/Exitosanoticias/photos/-lo%C3%BAltimo-la-primera-sala-penal-de-apelaciones-transitoria-de-lima-norte-ratific/1288117210018001/)
+- **Ulises Villegas: Sala de Apelaciones confirma sentencia de 6 años de prisión contra alcalde de Comas**: [Link](https://elcomercio.pe/lima/sucesos/ulises-villegas-sala-de-apelaciones-confirma-sentencia-de-6-anos-de-prision-contra-alcalde-de-comas-ultimas-noticia/)
+- **Caso Ulises Villegas: Sala de Apelaciones de Lima Norte confirmó sentencia de 6 años de prisión efectiva contra alcalde de Comas**: [Link](https://rpp.pe/politica/judiciales/caso-ulises-villegas-sala-de-apelaciones-de-lima-norte-confirmo-sentencia-de-6-anos-de-prision-efectiva-contra-alcalde-de-comas-noticia-1665832)
+
+
+### conmebol (N/A, 29/11/2025 03:31 Lima)
+
+- **Conmebol: "Barranquilla fue la elección correcta"**: [Link](https://www.espn.com.pe/futbol/copa-sudamericana/nota/_/id/16018147/conmebol-barranquilla-sede-final-copa-sudamericana-2026-eleccion-correcta)
+- **¿Lima fue elegida? Conmebol sorprende al confirmar sedes de las finales para la Copa Sudamericana 2026 y 2027**: [Link](https://larepublica.pe/deportes/2025/11/28/lima-fue-elegida-conmebol-sorprende-al-confirmar-sedes-de-las-finales-para-la-copa-sudamericana-2026-y-2027-1239448)
+- **CONMEBOL habría elegido las sedes de las finales de la Copa Libertadores y Sudamericana 2026**: [Link](https://www.eldiez.com.pe/internacional/conmebol-habria-elegido-las-sedes-de-las-finales-de-la-copa-libertadores-y-sudamericana-2026-barranquilla-y-montevideo-noticia/)
+
+
 ### hincha de palmeiras muere (N/A, 28/11/2025 23:29 Lima)
 
 - **Hincha de Palmeiras murió en accidente de bus en Lima a horas de la final de Copa Libertadores 2025**: [Link](https://www.infobae.com/peru/2025/11/29/final-de-copa-libertadores-2025-hincha-de-palmeiras-murio-al-caer-del-segundo-piso-del-mirabus/)
@@ -1011,19 +1025,5 @@ Sin noticias relacionadas disponibles.
 - **Todo sobre la lesión que sufrió Erick Noriega en Gremio**: [Link](https://www.americatv.com.pe/deportes/futbol-mundial/todo-sobre-lesion-que-sufrio-erick-noriega-gremio-n451802)
 - **Alarma por Erick Noriega tras su lesión en la derrota de Gremio**: [Link](https://www.futbolperuano.com/peruanos-en-el-exterior/noticias/erick-noriega-preocupa-en-gremio-salio-lesionado-ante-botafogo-en-su-regreso-tras-la-gira-con-la-seleccion-peruana-552476)
 - **Medio brasileño lanzó duro calificativo a Erick Noriega tras derrota de Gremio: "Errores de..."**: [Link](https://libero.pe/futbol-internacional/2025/11/22/erick-noriega-medio-brasileno-lanzo-duro-calificativo-jugador-derrota-de-gremio-botafogo-errores-de-brasileirao-2025-2108150)
-
-
-### estreno de stranger things 5 (N/A, 25/11/2025 20:57 Lima)
-
-- **Stranger Things 5: fecha de estreno de los episodios de cada parte y la duración de la última temporada**: [Link](https://cnnespanol.cnn.com/2025/11/21/entretenimiento/stranger-things-5-estreno-episodios-duracion-orix)
-- **‘Stranger Things’ 5: cuándo se estrena la última temporada y todos sus capítulos**: [Link](https://elpais.com/television/series/2025-11-24/stranger-things-5-cuando-se-estrena-la-ultima-temporada-y-todos-sus-capitulos.html)
-- **Los hermanos Duffer revelaron los 10 datos que los fans deben saber antes de ver la temporada final de Stranger Things**: [Link](https://www.infobae.com/entretenimiento/2025/11/25/los-hermanos-duffer-revelaron-los-10-datos-que-los-fans-deben-saber-antes-de-ver-la-temporada-final-de-stranger-things/)
-
-
-### precio del dolar (N/A, 25/11/2025 20:57 Lima)
-
-- **Tipo de cambio: ¿En cuánto está el dólar este martes 25 de noviembre?**: [Link](https://elcomercio.pe/economia/peru/tipo-de-cambio-en-cuanto-esta-el-dolar-este-martes-25-de-noviembre-tipo-de-cambio-cotizacion-del-dolar-dolar-noticia/)
-- **Precio del dólar Perú y tipo de cambio hoy 25 de noviembre del 2025**: [Link](https://rpp.pe/economia/economia/precio-del-dolar-peru-y-tipo-de-cambio-hoy-25-de-noviembre-del-2025-noticia-1665201)
-- **¿Subió o bajó? Precio del dólar HOY en Perú: Así cotiza el tipo de cambio este martes, 25 de noviembre**: [Link](https://www.exitosanoticias.pe/actualidad/subio-o-bajo-precio-dolar-hoy-peru-asi-cotiza-tipo-cambio-martes-25-noviembre-n163419)
 
 
