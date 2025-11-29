@@ -1,3 +1,73 @@
+### santos vs. sport recife (N/A, 28/11/2025 20:54 Lima)
+
+- **How to watch Santos vs Sport Recife in the USA: Live Stream and TV for 2025 Brasileirao**: [Link](https://worldsoccertalk.com/watch-on-us-tv/how-to-watch-santos-vs-sport-recife-in-the-usa-live-stream-and-tv-for-2025-brasileirao/)
+- **Neymar Scores as Santos Takes Early Lead Against Sport in Relegation Battle**: [Link](https://news.ssbcrack.com/neymar-scores-as-santos-takes-early-lead-against-sport-in-relegation-battle/)
+- **Why is Neymar Playing in Santos vs Sport Recife Despite Injury?**: [Link](https://www.sportsdunia.com/football-news/neymar-santos-vs-sport-recife-injury-update)
+
+
+### serie a de ecuador (N/A, 28/11/2025 20:54 Lima)
+
+- **Empates, goleadas y el primer descenso: así se movió la fecha 6 de los hexagonales**: [Link](https://www.tvc.com.ec/noticia/empates-goleadas-y-el-primer-descenso-asi-se-movio-la-fecha-6-de-los-hexagonales/)
+- **LigaPro Serie A: así se definen el título, los cupos a copas y el descenso**: [Link](https://www.extra.ec/noticia/deportes/ligapro-serie-asi-se-definen-el-titulo-los-cupos-copas-y-el-descenso-141873.html)
+- **Hexagonales y cuadrangular LigaPro 2025: resultados, posiciones y lo que se juega**: [Link](https://www.extra.ec/noticia/deportes/hexagonales-y-cuadrangular-ligapro-2025-resultados-posiciones-y-lo-que-se-juega-141640.html)
+
+
+### santos (N/A, 28/11/2025 20:54 Lima)
+
+- **Santos x Sport: confira a transmissão da Jovem Pan ao vivo**: [Link](https://jovempan.com.br/esportes/futebol/santos-x-sport-confira-a-transmissao-da-jovem-pan-ao-vivo.html)
+- **Aos 25 min do 1º tempo - gol de dentro da área de Neymar do Santos contra o Sport**: [Link](https://ge.globo.com/futebol/video/aos-25-min-do-1o-tempo-gol-de-dentro-da-area-de-neymar-do-santos-contra-o-sport-14138757.ghtml)
+- **Torcida do Santos se revolta com Neymar dentro de campo, e comentários são feitos: “Estraga o Santos”**: [Link](https://br.bolavip.com/santos/torcida-do-santos-se-revolta-com-neymar-dentro-de-campo-e-comentarios-sao-feitos-estraga-o-santos)
+
+
+### ldu quito (N/A, 28/11/2025 20:54 Lima)
+
+- **El club de la Liga 1 que inició negociaciones con Barcos**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/club-liga-1-que-ya-inicio-negociaciones-hernan-barcos-sport-boys-n451845)
+- **La palabra del ‘Diamante’: Uribe valoró a Hernán Barcos y habló sobre su posible llegada a Sporting Cristal**: [Link](https://depor.com/futbol-peruano/descentralizado/hernan-barcos-a-sporting-cristal-tras-no-seguir-en-alianza-lima-julio-cesar-uribe-valoro-su-calidad-y-hablo-sobre-si-lo-ficharan-o-no-fichajes-liga-1-2026-noticia/)
+- **Hernán Barcos no seguirá en Alianza Lima para el 2026**: [Link](https://www.espn.com.pe/futbol/peru/nota/_/id/16010670/hernan-barcos-no-seguira-en-alianza-lima-para-el-2026)
+
+
+### neymar (N/A, 28/11/2025 20:54 Lima)
+
+- **Neymar marcó su gol para Santos vs. Sport Recife, en el Brasileirao**: [Link](https://www.espn.com.ar/futbol/brasil/nota/_/id/16019570/gol-neymar-santos-vs-sport-recife-descenso-fecha-36-brasileirao-2025)
+- **La arriesgada decisión de Neymar para intentar salvar del descenso al Santos**: [Link](https://www.infobae.com/deportes/2025/11/27/la-arriesgada-decision-de-neymar-para-intentar-salvar-del-descenso-al-santos/)
+- **Fuentes: Neymar se plantea jugar con dolor pese a requerir operación**: [Link](https://espndeportes.espn.com/futbol/brasil/nota/_/id/16012299/santos-neymar-jugar-con-dolor-requerir-operacion)
+
+
+### ldu (N/A, 28/11/2025 20:54 Lima)
+
+- **LDU Quito vs. Independiente del Valle - Boxscore - Live Score - November 28, 2025**: [Link](https://www.foxsports.com/soccer/ecuadorian-liga-pro-ldu-quito-vs-ind-del-valle-nov-28-2025-game-boxscore-646925?tab=boxscore)
+- **LDU Quito vs Independiente del Valle tonight, witness when Spinelli leads IDV toward their second Liga Pro crown in front of devastating home fans**: [Link](https://www.red94.net/news/21890-ldu-quito-faces-independiente-del-valle-tonight-in-crucial-liga-pro-battle-spine/)
+- **El club de la Liga 1 que inició negociaciones con Barcos**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/club-liga-1-que-ya-inicio-negociaciones-hernan-barcos-sport-boys-n451845)
+
+
+### santos - sport recife (N/A, 28/11/2025 20:54 Lima)
+
+- **Santos vs Sport Recife: Cómo ver el partido Brasileirao por televisión y streaming de EE. UU.**: [Link](https://www.ucvradio.pe/mas-actualidad/santos-vs-sport-recife-como-ver-el-partido-brasileirao-por-television-y-streaming-de-ee-uu/62128/)
+- **Pronóstico Santos - Sport Recife. Brasileirao Serie A | 29/11/2025**: [Link](https://gainblers.com/pe/pronosticos/futbol/brasil/brasileirao-serie-a/pronostico-santos-sport-recife-29-11-2025/)
+- **Santos FC vs Sport Recife - PE pronostico y comparación de cuotas 29.11.2025**: [Link](https://www.livetipsportal.com/es/pronosticos-apuestas-deportivas/santos-fc-vs-sport-recife-pe-serie-a-10963466/)
+
+
+### agua (N/A, 28/11/2025 20:54 Lima)
+
+- **Corte de agua en Lima: Sedapal suspende su servicio este jueves 27 de noviembre en tres distritos**: [Link](https://www.infobae.com/peru/2025/11/25/corte-de-agua-en-lima-sedapal-advierte-suspension-del-servicio-este-26-y-27-de-noviembre-en-seis-distritos/)
+- **Sedapal CORTARÁ EL AGUA este 28 y 29 de noviembre: Lista de distritos afectados**: [Link](https://peru21.pe/lima/sedapal-cortara-el-agua-este-28-y-29-de-noviembre-lista-de-distritos-afectados/)
+- **Corte de agua en Lima: zonas afectadas y horario de Sedapal del 28 al 30 de noviembre**: [Link](https://larepublica.pe/sociedad/2025/11/27/sedapal-anuncia-corte-de-agua-en-lima-distritos-y-horarios-afectados-del-28-al-30-de-noviembre-atmp-1510083)
+
+
+### liga de naciones femenina (N/A, 28/11/2025 20:54 Lima)
+
+- **Liga de Naciones Femenina: ¿A qué hora juega Colombia vs Bolivia?**: [Link](https://www.espn.com.ar/futbol/mundial/nota/_/id/16017447/a-que-hora-juega-colombia-vs-bolivia-liga-de-naciones-femenina-2025)
+- **Tabla de posiciones Eliminatorias Femeninas al Mundial: Así quedó Colombia tras empatar con Bolivia**: [Link](https://caracol.com.co/2025/11/28/tabla-de-posiciones-eliminatorias-femeninas-al-mundial-asi-quedo-colombia-tras-empatar-con-bolivia/)
+- **Bolivia 1 - 1 Colombia: Resultado, resumen y goles**: [Link](https://colombia.as.com/futbol/bolivia-colombia-en-vivo-online-liga-de-naciones-en-directo-f202511-d/)
+
+
+### juventude (N/A, 28/11/2025 20:54 Lima)
+
+- **Em jogão, Bahia empata com o Juventude fora de casa**: [Link](https://www.vavel.com/br/futebol/2025/11/29/bahia/1242994-em-jogao-bahia-empata-com-o-juventude-fora-de-casa.html)
+- **Como ficou a disputa pelo G-5 e contra o Z-4 após o empate entre Juventude e Bahia?**: [Link](https://www.msn.com/pt-br/esportes/futebol/como-ficou-a-disputa-pelo-g-5-e-contra-o-z-4-ap%C3%B3s-o-empate-entre-juventude-e-bahia/ar-AA1RmvEk)
+- **"Tecnicamente foi feio o que fizemos hoje", dispara Rogério Ceni após empate do Bahia**: [Link](https://www.bahianoticias.com.br/esportes/bahia/33082-tecnicamente-foi-feio-o-que-fizemos-hoje-dispara-rogerio-ceni-apos-empate-do-bahia)
+
+
 ### metz - rennes (N/A, 28/11/2025 15:26 Lima)
 
 - **Metz vs Rennes**: [Link](https://www.staderennais.com/matchs/2025-11-28-metz-vs-rennes)
@@ -953,72 +1023,5 @@ Sin noticias relacionadas disponibles.
 - **Preview:Borussia Dortmund vs Villarreal - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/borussia-dortmund/champions-league/preview/dortmund-vs-villarreal-prediction-team-news-lineups_586283.html)
 - **'If we get closer to the top, we'll be closer to victory': Marcelino analyses the challenge against Dortmund**: [Link](https://tribuna.com/en/news/2025-11-25-if-we-get-closer-to-the-top-well-be-closer-to-victory-marcelino-analyses-the-challenge-ag/)
 - **Germany Champions League Soccer**: [Link](https://www.hjnews.com/sports/nation/germany-champions-league-soccer/image_3033f9d4-4eba-5e6e-94a6-ab7c0054fc28.html)
-
-
-### directv (N/A, 25/11/2025 15:28 Lima)
-
-- **El Grupo Werthein lanzó Waiken ILW, un holding que agrupará a DirecTV y a otras empresas de comunicación de América Latina**: [Link](https://forbes.pe/negocios/2025-11-25/el-grupo-werthein-lanzo-waiken-ilw-un-holding-que-agrupara-a-directv-y-a-otras-empresas-de-comunicacion-de-america-latina/)
-
-
-### libre futbol (N/A, 25/11/2025 15:28 Lima)
-
-- **Alianza Lima goleó 3-0 a UTC, pero no le alcanzó para ser segundo del acumulado de la Liga 1**: [Link](https://www.espn.com.pe/futbol/peru/nota/_/id/15978995/alianza-lima-vs-utc-fecha-19-clausura-liga-1-de-peru-equipo-fecha-hora-y-tv-en-vivo)
-- **Desde el punto penal: Paolo Guerrero marcó el 1-0 de Alianza Lima vs. UTC | VIDEO**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/gol-de-paolo-guerrero-hoy-alianza-lima-vs-utc-por-torneo-clausura-liga-1-video-noticia/)
-- **Alianza Lima ganó y jugará semifinal con Cristal por Perú 2**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/alianza-lima-gano-utc-y-jugara-semifinal-cristal-peru-2-n451791)
-
-
-### vacancia por incapacidad moral permanente (N/A, 25/11/2025 11:34 Lima)
-
-- **Dina Boluarte solicita al Poder Judicial anular su vacancia: estos son los argumentos centrales**: [Link](https://www.infobae.com/peru/2025/11/24/dina-boluarte-solicita-al-poder-judicial-anular-su-vacancia-estos-son-los-argumentos-centrales/)
-- **Dina Boluarte solicitó al Congreso la pensión vitalicia: estos son todos los beneficios que busca obtener**: [Link](https://rpp.pe/politica/actualidad/dina-boluarte-solicito-al-congreso-pension-vitalicia-conoce-todos-los-beneficios-que-busca-obtener-noticia-1665044)
-- **Dina Boluarte pide al Poder Judicial anular su vacancia por incapacidad moral y acusa vulneración del debido proceso**: [Link](https://caretas.pe/politica/dina-boluarte-pide-al-poder-judicial-anular-su-vacancia-por-incapacidad-moral-y-acusa-vulneracion-del-debido-proceso/)
-
-
-### ajax vs benfica pronostico (N/A, 25/11/2025 11:34 Lima)
-
-- **Ajax vs Benfica: duelo de coleros en la fecha 5 de UEFA Champions League**: [Link](https://www.espn.com.pe/futbol/champions-league/nota/_/id/15999524/ajax-vs-benfica-fecha-5-champions-equipo-fecha-hora-y-tv-en-vivo)
-- **Champions League: Ajax y Benfica se miden por la fecha 5**: [Link](https://rpp.pe/futbol/ligas-internacionales/champions-league-ajax-y-benfica-se-miden-por-la-fecha-5-noticia-1665066)
-
-
-### bcp (N/A, 25/11/2025 11:34 Lima)
-
-- **¿Por qué el Bono BCP noviembre 2025 no existe?**: [Link](https://lahora.pe/bonos/por-que-el-bono-bcp-noviembre-2025-no-existe/)
-- **Bono Yape 300 soles noviembre 2025 no existe ni tiene LINK de consulta**: [Link](https://lahora.pe/bonos-y-subsidios/bono-yape-300-soles-noviembre-2025-no-existe-ni-tiene-link-de-consulta/)
-- **POLICÍA ACTIVA OPERATIVO TRAS ASALTO A CLIENTA DEL BCP**: [Link](https://sinrodeoscajamarca.com/policia-activa-operativo-tras-asaltoa-clienta-del-bcp/)
-
-
-### outlook (N/A, 25/11/2025 11:34 Lima)
-
-- **ToddyCat’s New Hacking Tools Steal Outlook Emails and Microsoft 365 Access Tokens**: [Link](https://thehackernews.com/2025/11/toddycats-new-hacking-tools-steal.html)
-- **ToddyCat APT Accessing Organizations Internal Communications of Employees at Target Companies**: [Link](https://cybersecuritynews.com/toddycat-apt-accessing-organizations-internal-communications/)
-- **Unauthorized Access to Employee Communications by ToddyCat APT in Targeted Firms**: [Link](https://cyberpress.org/toddycat-apt-attack/)
-
-
-### galatasaray vs (N/A, 25/11/2025 11:34 Lima)
-
-- **Preview:Galatasaray vs Union SG - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/galatasaray/champions-league/preview/galatasaray-vs-union-sg-prediction-team-news-lineups_586288.html)
-- **Galatasaray vs Union Saint-Gilloise LIVE Score Updates in UEFA Champions League Match**: [Link](https://www.vavel.com/en-us/soccer/2025/11/25/1242436-galatasaray-vs-union-sg-live-score-champions-league.html)
-- **Belgians Astonished Ahead of Galatasaray-Union Saint-Gilloise Match! They Spent €150 Million: 45 Million Fans**: [Link](https://www.fanatik.com.tr/en/belgians-astonished-ahead-of-galatasaray-union-saint-gilloise-match-they-spent-150-million-45-million-fans-2602274)
-
-
-### gemini (N/A, 25/11/2025 11:34 Lima)
-
-- **Alphabet’s Rally Threatens World’s Most Valuable Stock Standings**: [Link](https://www.bloomberg.com/news/articles/2025-11-25/alphabet-s-rally-threatens-world-s-most-valuable-stock-standings)
-- **Google stock rally makes Alphabet the Mag 7's best 2025 performer**: [Link](https://finance.yahoo.com/video/google-stock-rally-makes-alphabet-160000035.html)
-- **CNBC Daily Open: Alphabet to omega in AI?**: [Link](https://www.cnbc.com/2025/11/25/cnbc-daily-open-alphabet-to-omega-in-ai.html)
-
-
-### instagram (N/A, 25/11/2025 11:34 Lima)
-
-- **Meta buried 'causal' evidence of social media harm, US court filings allege**: [Link](https://www.reuters.com/sustainability/boards-policy-regulation/meta-buried-causal-evidence-social-media-harm-us-court-filings-allege-2025-11-23/)
-- **Meta halted internal research suggesting social media harm, court filing alleges**: [Link](https://www.cnbc.com/2025/11/23/meta-internal-research-social-media-harm-court-filing.html)
-- **‘We’re basically pushers’: Court filing alleges staff at social media giants compared their platforms to drugs**: [Link](https://www.politico.com/news/2025/11/22/were-basically-pushers-court-filings-allege-staff-at-social-media-giants-compared-their-platforms-to-drugs-00666181)
-
-
-### dia internacional de la no violencia contra la mujer (N/A, 25/11/2025 11:34 Lima)
-
-- **“El vuelo de las mariposas”: el triple femicidio de las hermanas Mirabal y el origen de un símbolo contra la violencia de género**: [Link](https://www.infobae.com/sociedad/2025/11/25/el-vuelo-de-las-mariposas-el-triple-femicidio-de-las-hermanas-mirabal-y-el-origen-de-un-simbolo-contra-la-violencia-de-genero/)
-- **RD: del asesinato de las Mirabal a la violencia de hoy**: [Link](https://www.dw.com/es/del-asesinato-de-las-mirabal-a-hoy-por-qu%C3%A9-los-feminicidios-siguen-siendo-tan-altos-en-rep%C3%BAblica-dominicana/a-74838971)
-- **Día internacional de la eliminación de la violencia contra las mujeres**: [Link](https://peru21.pe/mundo/dia-internacional-de-la-eliminacion-de-la-violencia-contra-las-mujeres/)
 
 
