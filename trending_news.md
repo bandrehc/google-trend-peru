@@ -1,3 +1,73 @@
+### hincha de palmeiras muere (N/A, 28/11/2025 23:29 Lima)
+
+- **Hincha de Palmeiras murió en accidente de bus en Lima a horas de la final de Copa Libertadores 2025**: [Link](https://www.infobae.com/peru/2025/11/29/final-de-copa-libertadores-2025-hincha-de-palmeiras-murio-al-caer-del-segundo-piso-del-mirabus/)
+- **Hincha brasilero fallece mientras se trasladaba en un bus turístico que cubría la ruta Miraflores – Barranco**: [Link](https://rpp.pe/lima/actualidad/hincha-brasilero-fallece-mientras-se-trasladaba-en-un-bus-turistico-que-cubria-la-ruta-miraflores-barranco-noticia-1665816)
+- **Hincha de Palmeiras muere tras caer de cabeza de bus en la Costa Verde**: [Link](https://elcomercio.pe/lima/sucesos/hincha-de-palmeiras-muere-tras-golpearse-la-cabeza-en-puente-de-la-costa-verde-copa-libertadores-2025-flamengo-palmeiras-ultimas-noticia/)
+
+
+### marathon (N/A, 28/11/2025 23:29 Lima)
+
+- **Texas City triathlon course to be reset for half marathon**: [Link](https://www.galvnews.com/sports/columns/ontherun/texas-city-triathlon-course-to-be-reset-for-half-marathon/article_8cb0dbb2-74fb-578d-93da-47774be15469.html)
+- **Philanthropy and social impact take centre stage at half marathon awards**: [Link](https://timesofindia.indiatimes.com/city/delhi/philanthropy-and-social-impact-take-centre-stage-at-half-marathon-awards/articleshow/125645507.cms)
+- **Delhi Half Marathon Raises INR 4.12 Crore For 16 Social Causes**: [Link](https://www.cricketnmore.com/sports-news/delhi-half-marathon-raises-inr-412-crore-for-16-social-causes-30101)
+
+
+### latam peru (N/A, 28/11/2025 23:29 Lima)
+
+- **Autorizaron a una aerolínea a hacer vuelos que conectarán varias provincias con Estados Unidos, Brasil y otros países**: [Link](https://www.infobae.com/economia/2025/11/28/autorizaron-a-una-aerolinea-a-hacer-vuelos-que-conectaran-varias-provincias-con-estados-unidos-brasil-y-otros-paises/)
+- **LATAM Perú abre rutas a Iguazú desde Lima y Cusco, fortaleciendo el turismo en Misiones**: [Link](https://turismomisiones.com.ar/2025/11/28/peru-lima-cusco-iguazu/)
+- **Aerolínea internacional podrá volar 15 rutas a Argentina y conectar con EEUU y Punta Cana**: [Link](https://www.iprofesional.com/turismo/442940-aerolinea-internacional-podra-volar-15-rutas-a-argentina-y-conectar-con-eeuu-y-punta-cana)
+
+
+### nuggets - spurs (N/A, 28/11/2025 23:29 Lima)
+
+- **Nuggets-Spurs’ simple math in Cup: winner advances, loser is out**: [Link](https://www.thesportsleader.com/2025/11/27/nuggets-spurs-simple-math-in-cup-winner-advances-loser-is-out/)
+- **Keldon Johnson on the Chance to Clinch NBA Cup West Group C vs. Denver**: [Link](https://bvmsports.com/2025/11/28/keldon-johnson-on-the-chance-to-clinch-nba-cup-west-group-c-vs-denver/)
+- **Mitch Johnson, Pre‑Game vs Denver Nuggets | 11/28/25**: [Link](https://www.nba.com/spurs/videos/mitch-johnson-pre-game-vs-denver-nuggets-11-28-25)
+
+
+### thunder - suns (N/A, 28/11/2025 23:29 Lima)
+
+- **POSTGAME: Phoenix Suns @ Oklahoma City Thunder | NBA CUP GROUP PLAY FINALE**: [Link](https://bvmsports.com/2025/11/28/postgame-phoenix-suns-oklahoma-city-thunder-nba-cup-group-play-finale/)
+- **Devin Booker 'excited' for Suns to take 'great test' of facing Thunder**: [Link](https://okcthunderwire.usatoday.com/story/sports/nba/thunder/2025/11/28/devin-booker-excited-for-suns-to-take-great-test-of-facing-thunder/87513169007/)
+- **NBA Cup Knock Out Round Clinching Scenarios For OKC Thunder**: [Link](https://www.si.com/nba/thunder/onsi/news/nba-cup-knock-out-round-clinching-scenarios-for-okc-thunder-2025-26)
+
+
+### sebastián britos (N/A, 28/11/2025 23:29 Lima)
+
+- **Jorge Fossati habló sobre la salida de uno de los arqueros para el regreso de Diego Romero a Universitario**: [Link](https://rpp.pe/futbol/descentralizado/universitario-jorge-fossati-hablo-sobre-salida-de-uno-de-los-arqueros-para-el-regreso-de-diego-romero-noticia-1665780)
+- **“Gracias por tu garra”: Universitario anunció salida de Sebastián Britos**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/universitario-anuncio-salida-de-sebastian-britos-liga-1-noticia/)
+- **Universitario confirmó la salida de Sebastián Britos**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/universitario-anuncio-salida-sebastian-britos-exitos-n451859)
+
+
+### lakers - mavericks (N/A, 28/11/2025 23:29 Lima)
+
+- **We’re Back**: [Link](https://www.mavsmoneyball.com/dallas-mavericks-game-coverage/53227/were-back)
+- **LA Lakers Injury Report: Will LeBron James and Deandre Ayton feature in Mavericks clash**: [Link](https://thesportstak.com/basketball/nba-24-oct-2022/story/la-lakers-injury-report-will-lebron-james-and-deandre-ayton-feature-in-mavericks-clash-3217582-2025-11-29)
+- **Where to watch Mavericks vs. Lakers free stream today**: [Link](https://www.masslive.com/tv/2025/11/where-to-watch-mavericks-vs-lakers-free-stream-today.html)
+
+
+### ley de presupuesto 2026 (N/A, 28/11/2025 23:29 Lima)
+
+- **Pleno aprueba dictamen de Ley de Presupuesto del Sector Público para el Año Fiscal 2026**: [Link](https://comunicaciones.congreso.gob.pe/noticias/pleno-aprueba-dictamen-de-ley-de-presupuesto-del-sector-publico-para-el-ano-fiscal-2026/)
+- **Congreso aprueba ley de Presupuesto Público para 2026**: [Link](https://elcomercio.pe/economia/peru/congreso-aprueba-ley-de-presupuesto-publico-endeudamiento-y-equilibrio-fiscal-para-2026-noticia/)
+- **Parlamento da luz verde al marco de equilibrio fiscal para el Presupuesto 2026**: [Link](https://caretas.pe/home_web/home_principal/parlamento-da-luz-verde-al-marco-de-equilibrio-fiscal-para-el-presupuesto-2026/)
+
+
+### hasta cuando es el black friday (N/A, 28/11/2025 23:29 Lima)
+
+- **How Black Friday became a retail letdown: 'To sustain the ride, they started to dilute it'**: [Link](https://www.cnbc.com/2025/11/28/black-friday-shopping-retail-letdown.html)
+- **Deal or Dud: Is Black Friday what it used to be?**: [Link](https://www.cnn.com/2025/11/28/us/video/smith-madison-mills-black-friday-cnc)
+- **Shoppers: Black Friday has changed**: [Link](https://theday.com/news/817433/shoppers-black-friday-has-changed/)
+
+
+### bryan reyna (N/A, 28/11/2025 23:29 Lima)
+
+- **Bryan Reyna habló fuerte sobre su regreso a un gigante de la Liga 1: “No lo descarto”**: [Link](https://bolavip.com/pe/liga-1/bryan-reyna-hablo-fuerte-sobre-su-regreso-a-un-gigante-de-la-liga-1-no-lo-descarto)
+- **¿Vuelve a la Liga 1? Bryan Reyna dio pistas de su futuro tras poca actividad con Belgrano**: [Link](https://depor.com/futbol-peruano/peruanos-en-el-mundo/bryan-reyna-dejaria-belgrano-de-argentina-y-no-descarta-volver-al-futbol-peruano-alianza-lima-peruanos-en-el-exterior-noticia/)
+- **Pasó por el Mallorca de España y no descarta jugar por equipo grande de la Liga 1: "Estoy viendo"**: [Link](https://libero.pe/futbol-peruano/liga-1/2025/11/26/paso-mallorca-de-espana-descarta-jugar-equipo-grande-de-liga-1-estoy-viendo-1233934)
+
+
 ### santos vs. sport recife (N/A, 28/11/2025 20:54 Lima)
 
 - **How to watch Santos vs Sport Recife in the USA: Live Stream and TV for 2025 Brasileirao**: [Link](https://worldsoccertalk.com/watch-on-us-tv/how-to-watch-santos-vs-sport-recife-in-the-usa-live-stream-and-tv-for-2025-brasileirao/)
@@ -955,73 +1025,5 @@ Sin noticias relacionadas disponibles.
 - **Tipo de cambio: ¿En cuánto está el dólar este martes 25 de noviembre?**: [Link](https://elcomercio.pe/economia/peru/tipo-de-cambio-en-cuanto-esta-el-dolar-este-martes-25-de-noviembre-tipo-de-cambio-cotizacion-del-dolar-dolar-noticia/)
 - **Precio del dólar Perú y tipo de cambio hoy 25 de noviembre del 2025**: [Link](https://rpp.pe/economia/economia/precio-del-dolar-peru-y-tipo-de-cambio-hoy-25-de-noviembre-del-2025-noticia-1665201)
 - **¿Subió o bajó? Precio del dólar HOY en Perú: Así cotiza el tipo de cambio este martes, 25 de noviembre**: [Link](https://www.exitosanoticias.pe/actualidad/subio-o-bajo-precio-dolar-hoy-peru-asi-cotiza-tipo-cambio-martes-25-noviembre-n163419)
-
-
-### santa fe - tolima (N/A, 25/11/2025 20:57 Lima)
-
-Sin noticias relacionadas disponibles.
-
-
-### dolar a soles (N/A, 25/11/2025 20:57 Lima)
-
-- **¿Dólar se disparó a S/3,67? Google muestra valor incorrecto del tipo de cambio**: [Link](https://www.infobae.com/peru/2025/11/25/dolar-se-disparo-a-s367-google-muestra-valor-incorrecto-del-tipo-de-cambio/)
-- **Tipo de cambio: ¿En cuánto está el dólar este martes 25 de noviembre?**: [Link](https://elcomercio.pe/economia/peru/tipo-de-cambio-en-cuanto-esta-el-dolar-este-martes-25-de-noviembre-tipo-de-cambio-cotizacion-del-dolar-dolar-noticia/)
-- **Precio del dólar Perú y tipo de cambio hoy 25 de noviembre del 2025**: [Link](https://rpp.pe/economia/economia/precio-del-dolar-peru-y-tipo-de-cambio-hoy-25-de-noviembre-del-2025-noticia-1665201)
-
-
-### newcastle vs (N/A, 25/11/2025 15:28 Lima)
-
-- **Preview:Marseille vs Newcastle United - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/newcastle-united/champions-league/preview/marseille-vs-newcastle-prediction-team-news-lineups_586281.html)
-- **'F***k PSG': Marseille and Newcastle fans join forces to insult Paris ahead of Champions League clash**: [Link](https://tribuna.com/en/blogs/fk-psg-marseille-and-newcastle-fans-join-forces-to-insult-pa/)
-- **Olympique de Marseille vs Newcastle LIVE Score Updates in UEFA Champions League Match**: [Link](https://www.vavel.com/en-us/soccer/2025/11/25/1242455-marseille-vs-newcastle-live-score-champions-league.html)
-
-
-### barsa (N/A, 25/11/2025 15:28 Lima)
-
-- **La intrahistoria del segundo ‘no’ del Barça a Messi: así se gestó la negativa de 2023**: [Link](https://www.sport.es/es/noticias/barca/intrahistoria-segundo-barca-messi-gesto-124077973)
-- **La Liga no permitió el fichaje de Leo Messi**: [Link](https://www.fichajes.com/a5418308482241545662-la-liga-no-permitio-el-fichaje-de-leo-messi)
-- **Revelan el último contrato con Barcelona que Messi pudo firmar antes de jugar en Inter Miami**: [Link](https://bolavip.com/laliga/revelan-el-ultimo-contrato-con-barcelona-que-messi-pudo-firmar-antes-de-jugar-en-inter-miami)
-
-
-### futbol libre (N/A, 25/11/2025 15:28 Lima)
-
-- **Racing tuvo más alma que River y le ganó un partido que quedará grabado en la memoria de sus hinchas**: [Link](https://www.espn.com.ar/futbol/argentina/nota/_/id/15976621/racing-vs-river-torneo-clausura-2025-octavos-de-final-equipo-hora-tv-en-vivo)
-- **Gastón Martirena: "Con poco o mucho, jugando bien o mal, siempre nos queda una"**: [Link](https://espndeportes.espn.com/futbol/argentina/nota/_/id/16003263/gaston-martirena-gol-racing-river-clausura-2025)
-- **El llanto inolvidable de Guillermo Francella en la noche mágica de Racing: “Ganarles así es maravilloso”**: [Link](https://www.infobae.com/teleshow/2025/11/25/el-llanto-inolvidable-de-guillermo-francella-en-la-noche-magica-de-racing-ganarles-asi-es-maravilloso/)
-
-
-### tarjeta roja (N/A, 25/11/2025 15:28 Lima)
-
-- **Indulto para Cristiano Ronaldo: podrá jugar el primer partido del Mundial**: [Link](https://www.marca.com/futbol/mundial/2025/11/25/indulto-cristiano-ronaldo-podra-jugar-primer-partido-mundial.html)
-- **Cristiano Ronaldo libra suspensión para potencial juego vs México**: [Link](https://espndeportes.espn.com/futbol/selecciones/nota/_/id/16004466/cristiano-ronaldo-expulsion-castigo-mexico-partido-amistoso)
-- **Castigo ‘light’ para Cristiano: jugará el Mundial**: [Link](https://as.com/futbol/internacional/cristiano-sancionado-con-un-partido-y-dos-condicionados-f202511-n/)
-
-
-### pedro neto (N/A, 25/11/2025 15:28 Lima)
-
-- **Chelsea forward emerges as Barcelona’s perfect solution – report**: [Link](https://sports.yahoo.com/article/chelsea-forward-emerges-barcelona-perfect-101100175.html)
-- **Barcelona: Chelsea star Neto 'perfect fit' as Rashford future up in air despite Flick praise**: [Link](https://www.football365.com/news/chelsea-star-pedro-neto-perfect-fit-barcelona-marcus-rashford-future)
-- **Barcelona want to sign €80m player from Chelsea**: [Link](https://www.yardbarker.com/soccer/articles/barcelona_want_to_sign_80m_player_from_chelsea/s1_15953_43113866)
-
-
-### espn (N/A, 25/11/2025 15:28 Lima)
-
-- **ESPN NHL Analyst Cassie Campbell-Pascall Joins The Insider Show**: [Link](https://lakingsinsider.com/2025/11/25/espn-nhl-analyst-cassie-campbell-pascall-joins-the-insider-show/?utm_source=rss&utm_medium=rss&utm_campaign=espn-nhl-analyst-cassie-campbell-pascall-joins-the-insider-show)
-- **Fox One outpacing ESPN Unlimited subscriptions, per new data**: [Link](https://awfulannouncing.com/streaming/fox-one-subscriptions-outpace-espn-unlimited.html)
-- **Live sports driving SVOD subscriber growth and retention**: [Link](https://www.newscaststudio.com/2025/11/25/live-sports-driving-svod-subscriber-growth-and-retention/)
-
-
-### estêvão willian (N/A, 25/11/2025 15:28 Lima)
-
-- **Raphinha joga hoje? Desfalques e escalação do Barcelona contra o Chelsea pela Champions League**: [Link](https://www.90min.com/pt-br/raphinha-joga-hoje-desfalques-escalacao-barcelona-chelsea-25-11-2025)
-- **Champions no SBT: qual o jogo desta terça-feira? (25/11)**: [Link](https://www.sportingnews.com/br/futebol/noticias/champions-sbt-qual-jogo-hoje-terca-feira-25-11-25/2b671d78c4454d238e56ab43)
-- **Partidas da UEFA Champions League na terça e quarta-feira: Chelsea x Barça, Arsenal x Bayern, Atleti x Inter...**: [Link](https://www.gamereactor.pt/partidas-da-liga-dos-campeoes-da-uefa-na-terca-e-quarta-feira-chelsea-x-barca-arsenal-x-bayern-atlevi-x-inter-1510473/)
-
-
-### dortmund vs villarreal (N/A, 25/11/2025 15:28 Lima)
-
-- **Preview:Borussia Dortmund vs Villarreal - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/borussia-dortmund/champions-league/preview/dortmund-vs-villarreal-prediction-team-news-lineups_586283.html)
-- **'If we get closer to the top, we'll be closer to victory': Marcelino analyses the challenge against Dortmund**: [Link](https://tribuna.com/en/news/2025-11-25-if-we-get-closer-to-the-top-well-be-closer-to-victory-marcelino-analyses-the-challenge-ag/)
-- **Germany Champions League Soccer**: [Link](https://www.hjnews.com/sports/nation/germany-champions-league-soccer/image_3033f9d4-4eba-5e6e-94a6-ab7c0054fc28.html)
 
 
