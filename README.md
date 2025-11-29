@@ -1,3 +1,71 @@
+### juventus - cagliari (N/A, 29/11/2025 11:29 Lima)
+
+- **Serie A | Le formazioni ufficiali di Juventus-Cagliari**: [Link](https://www.juventus.com/it/news/articoli/serie-a-2025-2026-juventus-cagliari-formazioni-ufficiali)
+- **Juve-Cagliari | ✅ UFFICIALI: fuori DiGre e Cambiaso! La scelta su Vlahovic**: [Link](https://onefootball.com/it/notizie/juve-cagliari-ufficiali-fuori-digre-e-cambiaso-la-scelta-su-vlahovic-42022541)
+- **Juve-Cagliari, la cronaca in diretta su Radiolina con Lele Casini**: [Link](https://www.unionesarda.it/multimedia/juve-cagliari-la-cronaca-in-diretta-su-radiolina-con-lele-casini-ft3kpcr4)
+
+
+### raphinha (N/A, 29/11/2025 11:29 Lima)
+
+- **Deco's Favorite to Replace Raphinha**: [Link](https://www.fichajes.net/en/news/decos-favorite-to-replace-raphinha-20251129.html)
+- **Raphinha, Olmo start in a 4-2-3-1 – How Barcelona can line up against Alaves**: [Link](https://barcauniversal.com/raphinha-olmo-start-in-a-4-2-3-1-how-barcelona-can-line-up-against-alaves/)
+- **Official, from untouchable to substitute, Lamine Yamal applauds Flick's decision against Alavés**: [Link](https://e-noticies.cat/en/soccer/official-lamine-applauds-flick-alaves)
+
+
+### huachipato - u. católica (N/A, 29/11/2025 11:29 Lima)
+
+- **EN VIVO: 0-0: Huachipato y U. Católica se mantienen sin goles al finalizar el primer tiempo**: [Link](https://www.t13.cl/noticia/deportes13/en-vivo-0-0-huachipato-y-u-catolica-se-mantienen-sin-goles-al-finalizar-el-primer-tiempo-29-11-2025)
+- **La advertencia de Jaime García a la Universidad Católica que enciende la previa: “En casa…”**: [Link](https://www.msn.com/es-cl/noticias/other/la-advertencia-de-jaime-garc%C3%ADa-a-la-universidad-cat%C3%B3lica-que-enciende-la-previa-en-casa/ar-AA1Rmndr)
+- **La UC busca consolidar el Chile 2 en dura visita a Huachipato**: [Link](https://www.maray.cl/sin-categoria/29/11/2025/la-uc-busca-consolidar-el-chile-2-en-dura-visita-a-huachipato/)
+
+
+### barca (N/A, 29/11/2025 11:29 Lima)
+
+- **Barcelona vs. Alaves: Preview, Predictions and Lineups**: [Link](https://www.si.com/soccer/barcelona-vs-alaves-preview-predictions-lineups-29-11-25)
+- **Barcelona 2-1 Alaves LIVE: Dani Olmo puts Barcelona ahead - LaLiga EASPORTS 25/26**: [Link](https://www.marca.com/en/soccer/laliga-ea-sports/barcelona-alaves/2025/11/29/01_0101_20251129_178_173-live.html)
+- **Barcelona vs Deportivo Alaves, La Liga: TV & Streaming, Live Thread**: [Link](https://www.barcablaugranes.com/barcelona-la-liga/106863/barcelona-deportivo-alaves-live-stream-lineups-kickoff-time-tv-channel-how-to-watch-la-liga-online)
+
+
+### lamine yamal (N/A, 29/11/2025 11:29 Lima)
+
+- **Hansi Flick Offers Lamine Yamal Advice After Calls to Sell Barcelona Star**: [Link](https://www.si.com/soccer/hansi-flick-lamine-yamal-advice-calls-sell-barcelona-star)
+- **Barcelona concerned about star player becoming ‘public enemy number one’ – report**: [Link](https://barcauniversal.com/barcelona-concerned-about-star-player-becoming-public-enemy-number-one-report/)
+- **Flick: Yamal must forget Chelsea performance**: [Link](https://www.beinsports.com/en-asia/football/primera-divisin/articles/flick-yamal-must-forget-chelsea-performance-2025-11-28)
+
+
+### city (N/A, 29/11/2025 11:29 Lima)
+
+- **Manchester City quiere levantar cabeza con un triunfo en casa sobre Leeds**: [Link](https://www.espn.com.pe/futbol/inglaterra/nota/_/id/16018313/manchester-city-vs-leeds-por-la-premier-league-equipo-fecha-hora-y-tv-en-vivo)
+- **Manchester City vs Leeds United: cuando Niall Quinn sorprendió a Maine Road**: [Link](https://www.elpueblo.pe/deportes/manchester-city-vs-leeds-united-cuando-niall-quinn-sorprendio-a-maine-road/143160/)
+- **Premier League: Leeds United quiere volver a ganar ante Manchester City**: [Link](https://rpp.pe/futbol/ligas-internacionales/premier-league-leeds-united-quiere-volver-a-ganar-ante-manchester-city-noticia-1665671)
+
+
+### tarjeta roja (N/A, 29/11/2025 11:29 Lima)
+
+- **Carlos Zambrano sorprende con mensaje tras conocerse que admitieron a trámite reclamo para anular su segunda tarjeta amarilla**: [Link](https://rpp.pe/futbol/descentralizado/alianza-lima-carlos-zambrano-sorprende-con-mensaje-tras-conocerse-que-admitieron-la-anulacion-de-su-segunda-tarjeta-amarilla-noticia-1665654)
+- **Alianza Lima espera fallo por expulsión de Carlos Zambrano**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/alianza-lima-espera-fallo-sobre-expulsion-carlos-zambrano-n451853)
+- **Comisión Disciplinaria admitió reclamo de Alianza Lima por caso Zambrano: ¿cuándo tendrá respuesta?**: [Link](https://depor.com/futbol-peruano/descentralizado/alianza-lima-carlos-zambrano-comision-disciplinaria-admite-tramite-y-define-plazos-para-resolucion-liga-1-2025-noticia/)
+
+
+### monaco vs psg (N/A, 29/11/2025 11:29 Lima)
+
+- **Luis Enrique compares PSG star with former Barcelona player**: [Link](https://www.pulsesports.ng/football/story/luis-enrique-compares-psg-star-with-former-barcelona-player-2025112900332953971)
+- **Lee Kang-In starts? PSG's ideal lineup for AS Monaco clash shown**: [Link](https://tribuna.com/en/blogs/lee-kangin-starts-psgs-ideal-lineup-for-as-monaco-clash-show/)
+- **Monaco predicted XI v PSG: Paul Pogba to start?**: [Link](https://www.getfootballnewsfrance.com/2025/monaco-predicted-xi-v-psg-paul-pogba-to-start/)
+
+
+### mónaco - psg (N/A, 29/11/2025 11:29 Lima)
+
+- **Mónaco vs PSG en vivo: Ligue 1 hoy, en directo**: [Link](https://as.com/futbol/internacional/monaco-vs-psg-en-vivo-ligue-1-hoy-en-directo-f202511-d/)
+- **Monaco - Paris Saint-Germain en directo | Vive el minuto a minuto del líder de la Ligue 1**: [Link](https://www.marca.com/futbol/ligue-1/monaco-paris-saint-germain/2025/11/29/01_0109_20251129_146_149-directo.html)
+- **Mónaco vs PSG: Apuestas, Pronóstico y Cuotas**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/2025/noviembre/pronostico-monaco-vs-psg-29-11-25)
+
+
+### werder bremen - colonia (N/A, 29/11/2025 11:29 Lima)
+
+- **Alineación confirmada: Werder Bremen vs. 1. FC Colonia**: [Link](https://www.elpueblo.pe/deportes/alineacion-confirmada-werder-bremen-vs-1-fc-colonia/143234/)
+
+
 ### leicester city - sheffield united (N/A, 29/11/2025 07:47 Lima)
 
 - **Leicester v Blades - confirmed teams**: [Link](https://www.sufc.co.uk/news/2025/november/29/leicester-v-blades/)
@@ -957,75 +1025,5 @@
 - **Nike Founder Phil Knight Announces Record-Breaking Political Donation**: [Link](https://www.yahoo.com/news/articles/nike-founder-phil-knight-announces-174916413.html)
 - **Phil Knight is once again rooting for Oregon Republicans next year**: [Link](https://www.opb.org/article/2025/11/25/phil-knight-oregon-republicans-3-million-dollar-donation/)
 - **Nike co-founder Phil Knight gives $3M to Republican PAC**: [Link](https://www.kgw.com/article/money/business/nike-co-founder-phil-knight-republican-pac/283-0d40bfeb-30e6-43ad-bd02-e82b48ded795)
-
-
-### anuel (N/A, 26/11/2025 03:34 Lima)
-
-- **Anuel la lía en Madrid y acaba con la paciencia de sus fans: llega más de una hora tarde y cortan su concierto a la mitad**: [Link](https://www.20minutos.es/gente/anuel-lia-madrid-acaba-con-paciencia-sus-fans-llega-mas-una-hora-tarde-cortan-su-concierto-mitad_6901707_0.html)
-- **Xavi Abat, abogado, sobre si puedes reclamar la entrada del concierto de Anuel AA: "Hay varias opciones"**: [Link](https://www.sport.es/es/noticias/actualidad/xavi-abat-abogado-puedes-reclamar-124051921)
-- **El accidentado paso de Anuel AA por España: conciertos cancelados, horas de retraso y mucho más**: [Link](https://www.europafm.com/noticias/musica/accidentado-paso-anuel-espana-conciertos-cancelados-horas-retraso-mucho-mas_2025112469242fb8df41134465e7145b.html)
-
-
-### lakers vs (N/A, 26/11/2025 03:34 Lima)
-
-- **Clippers vs Lakers Parlay Picks, Odds for Tuesday, November 25**: [Link](https://www.actionnetwork.com/nba/clippers-vs-lakers-parlay-picks-odds-for-tuesday-november-25)
-- **NBA Cup Bet365 Bonus Code SYRACUSE: $150 “Bet and Get” bonus for Clippers vs. Lakers!**: [Link](https://www.syracuse.com/betting/2025/11/nba-cup-bet365-bonus-code-syracuse-150-bet-and-get-bonus-for-clippers-vs-lakers.html)
-- **TST Best Bets: November 25, 2025**: [Link](https://www.thesportingtribune.com/2025/11/25/best-bets-nov25)
-
-
-### bruce willis (N/A, 26/11/2025 03:34 Lima)
-
-- **Demi Moore Gushes Over Never-Before-Seen Photo of Bruce Willis and Their Daughters — Days After Rumer Shared a Heartbreaking Update on 'Dying' Actor's Dementia Battle**: [Link](https://www.aol.com/articles/demi-moore-gushes-over-never-204500475.html)
-- **Demi Moore Gushes Over Never-Before-Seen Photo of Bruce Willis and Their Daughters — Days After Rumer Shared a Heartbreaking Update on 'Dying' Actor's Dementia Battle**: [Link](https://radaronline.com/p/bruce-willis-demi-moore-old-family-photo-dementia-update/)
-- **Bruce Willis refused to apologize for 'offensive' movie role**: [Link](https://www.themirror.com/entertainment/movies/bruce-willis-offensive-movie-apologize-1527269)
-
-
-### lakers - clippers (N/A, 25/11/2025 23:31 Lima)
-
-- **James Harden & Luka Doncic: Players Props, Odds, and Lines for Superstars in NBA Cup Game**: [Link](https://news.bet365.com/en-us/article/james-harden-and-luka-doncic-players-props-odds-and-lines-for-superstars-in-nba-cup-game/2025112522154375865)
-- **Los Angeles Lakers vs Los Angeles Clippers LIVE Score Updates (0-0)**: [Link](https://www.vavel.com/en-us/nba/2025/11/26/1242438-lakers-vs-clippers-live-score-nba-cup.html)
-- **bet365 bonus code NYPBET: Bet $5, get $150 in bonus bets for Clippers vs. Lakers**: [Link](https://nypost.com/2025/11/25/betting/bet365-bonus-code-nypbet-bet-5-get-150-in-bonus-bets-for-clippers-vs-lakers/)
-
-
-### 76ers - magic (N/A, 25/11/2025 23:31 Lima)
-
-- **MrBuckBuck: The full altercation between Philadelphia …**: [Link](https://www.hoopshype.com/story/sports/nba/rumors/2025/11/25/mrbuckbuck-the-full-altercation-between-philadelphia/87476588007/)
-- **Anthony Black scores 27, Jalen Suggs ejected in Magic-76ers first half**: [Link](https://www.nytimes.com/athletic/6838636/2025/11/25/jalen-suggs-ejected-anthony-black-stats-orlando-76ers/)
-- **Suggs tossed, 4 others T'd up in Magic-Sixers tiff**: [Link](https://www.espn.co.uk/nba/story/_/id/47102921/suggs-tossed-4-others-get-technical-fouls-magic-sixers-tiff)
-
-
-### setlist dua lipa (N/A, 25/11/2025 23:31 Lima)
-
-- **Dua Lipa cantará hoy “Cariñito” en su concierto en el Estadio San Marcos de Lima**: [Link](https://www.infobae.com/peru/2025/11/25/dua-lipa-cantara-hoy-carinito-en-su-concierto-en-el-estadio-san-marcos-de-lima/)
-- **Dua Lipa en Lima: ¿cómo logró una fortuna mayor a los US$ 160 millones antes de los 30 años?**: [Link](https://gestion.pe/tendencias/dua-lipa-en-lima-fortuna-de-la-cantante-britanica-ya-supera-los-us-160-millones-noticia/)
-- **Dua Lipa en Perú: ¿A cuánto asciende la fortuna de la reconocida cantante?**: [Link](https://elcomercio.pe/tvmas/famosos/dua-lipa-en-peru-a-cuanto-asciende-la-fortuna-de-la-reconocida-cantante-celebs-ultimas-noticia/)
-
-
-### grupo frontera (N/A, 25/11/2025 23:31 Lima)
-
-- **Grupo Frontera llegará por primera vez al Perú: fecha, lugar y precio de entradas para su concierto**: [Link](https://www.infobae.com/peru/2025/11/23/grupo-frontera-llegara-por-primera-vez-al-peru-fecha-lugar-y-precio-de-entradas-para-su-concierto/)
-- **Grupo frontera anuncia gira mundial 2026 y confirma fecha para su concierto en El Salvador - La Prensa Gráfica**: [Link](https://www.laprensagrafica.com/farandula/grupo-frontera-anuncia-gira-mundial-2026-y-confirma-fecha-para-su-concierto-en-el-salvador-20251124-0015.html)
-- **Comienza la venta de entradas para los conciertos del Grupo Frontera en Quito y Guayaquil**: [Link](https://www.primicias.ec/entretenimiento/musica/venta-entradas-conciertos-grupo-frontera-quito-guayaquil-110005/)
-
-
-### kick (N/A, 25/11/2025 23:31 Lima)
-
-- **What happened between SteveWillDoIt and Logan Paul on Impaulsive Podcast? Here's why he was asked to leave over MrBeast**: [Link](https://poprant.indiatimes.com/trending/what-happened-between-stevewilldoit-and-logan-paul-on-impaulsive-podcast-heres-why-he-was-asked-to-leave-over-mrbeast-676099.html)
-- **STEVEWILLDOIT RETURNS TO YOUTUBE DECEMBER 24TH**: [Link](https://xodivad.com/2025/11/18/stevewilldoit-returns-to-youtube-december-24th/)
-- **Why Is SteveWillDoIt Banned From YouTube: Reason Why Logan Paul Kicked Him Out From His Podcast**: [Link](https://fandomwire.com/why-is-stevewilldoit-banned-from-youtube-reason-why-logan-paul-kicked-him-out-from-his-podcast/)
-
-
-### dolar sol (N/A, 25/11/2025 23:31 Lima)
-
-- **¿Dólar se disparó a S/4,45? Google mostró valor incorrecto del tipo de cambio y alarmó a peruanos**: [Link](https://www.infobae.com/peru/2025/11/25/dolar-se-disparo-a-s367-google-muestra-valor-incorrecto-del-tipo-de-cambio/)
-- **¿Dólar a 4,45? Google muestra incorrecto tipo de cambio**: [Link](https://larepublica.pe/economia/2025/11/25/dolar-a-445-google-muestra-incorrecto-tipo-de-cambio-hnews-760550)
-- **Precio del dólar vuelve a caer: Así cerró el tipo de cambio hoy 25 de noviembre en Perú**: [Link](https://www.infobae.com/peru/2025/11/24/peru-cotizacion-de-apertura-del-dolar-hoy-24-de-noviembre-de-usd-a-pen/)
-
-
-### a que hora se estrena stranger things 5 en peru (N/A, 25/11/2025 23:31 Lima)
-
-- **Stranger Things 5: fecha de estreno de los episodios de cada parte y la duración de la última temporada**: [Link](https://cnnespanol.cnn.com/2025/11/21/entretenimiento/stranger-things-5-estreno-episodios-duracion-orix)
-- **Stranger Things 5: fecha y horarios de estreno de la última temporada en Netflix**: [Link](https://www.infobae.com/entretenimiento/2025/11/25/stranger-things-5-fecha-y-horarios-de-estreno-de-la-ultima-temporada-en-netflix/)
-- **‘Stranger Things’ 5: cuándo se estrena la última temporada y todos sus capítulos**: [Link](https://elpais.com/television/series/2025-11-24/stranger-things-5-cuando-se-estrena-la-ultima-temporada-y-todos-sus-capitulos.html)
 
 
