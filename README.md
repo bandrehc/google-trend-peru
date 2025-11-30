@@ -1,3 +1,38 @@
+### aguinaldo (N/A, 30/11/2025 03:29 Lima)
+
+- **Aguinaldo y gratificación de diciembre 2025: ¿cuánto será el monto y cómo utilizarlo?**: [Link](https://rpp.pe/economia/tus-finanzas/aguinaldo-y-gratificacion-de-diciembre-2025-cuanto-sera-el-monto-y-como-utilizarlo-noticia-1665890)
+- **Pago de gratificaciones en diciembre 2025 incluirá una bonificación extraordinaria**: [Link](https://gestion.pe/economia/management-empleo/pago-de-gratificaciones-en-diciembre-2025-incluira-una-bonificacion-extraordinaria-noticia/)
+- **Aguinaldo de S/300: Las fechas en que se pagará a trabajadores del sector público**: [Link](https://www.infobae.com/peru/2025/11/25/aguinaldo-de-s300-las-fechas-en-que-se-deposita-a-trabajadores-del-sector-publico/)
+
+
+### kick (N/A, 30/11/2025 03:29 Lima)
+
+- **Cuffem comes back to Kick following hospitalization from Playboi Carti show fall**: [Link](https://timesofindia.indiatimes.com/world/us-streamers/cuffem-comes-back-to-kick-following-hospitalization-from-playboi-carti-show-fall/articleshow/125664049.cms)
+- **How did Cuffem get injured at Playboy Carti's concert? Streamer returns to Twitch and shares health update**: [Link](https://www.primetimer.com/features/how-did-cuffem-get-injured-at-playboy-cartis-concert-streamer-returns-to-twitch-and-shares-health-update)
+- **How Adin Ross came up big during a blackjack Kick stream**: [Link](https://win.gg/adin-ross-blackjack-kick-stream/)
+
+
+### barranca (N/A, 30/11/2025 03:29 Lima)
+
+- **Militares desmantelan 25 campamentos de minería ilegal en el norte de Ecuador**: [Link](https://www.swissinfo.ch/spa/militares-desmantelan-25-campamentos-de-miner%C3%ADa-ilegal-en-el-norte-de-ecuador/90553941)
+- **Ejército desmantela base de microtráfico y deja 7 detenidos**: [Link](https://www.laprensa.com.ec/ejercito-desmantela-base-de-microtrafico/)
+- **Ejército realizó operativos contra el microtráfico de droga en Chimborazo y contra la minería ilegal en Sucumbíos, ¿qué hallaron?**: [Link](https://www.lahora.com.ec/seguridad/ejercito-realizo-operativos-contra-el-microtrafico-de-droga-en-chimborazo-y-contra-la-mineria-ilegal-en-sucumbios-que-hallaron-20251128-0026.html)
+
+
+### clippers - mavericks (N/A, 30/11/2025 03:29 Lima)
+
+- **Mavs' Flagg leaps LeBron as youngest to score 35**: [Link](https://www.espn.com/nba/story/_/id/47147506/mavs-flagg-torches-clips-leaps-lebron-youngest-score-35)
+- **Tyronn Lue Makes Concerning Statement As Clippers Fall To 5-15 With Loss To Mavericks**: [Link](https://fadeawayworld.net/nba/la-clippers/tyronn-lue-makes-concerning-statement-clippers-fall-5-15-loss-mavericks)
+- **Stats Rundown: 3 numbers to know from the Mavericks 114-110 win over the Clippers**: [Link](https://www.mavsmoneyball.com/dallas-mavericks-game-coverage/53270/stats-rundown-3-numbers-to-know-from-the-mavericks-114-110-win-over-the-clippers)
+
+
+### aviones airbus a320 (N/A, 30/11/2025 03:29 Lima)
+
+- **Latam, Sky y JetSmart se pronuncian sobre la alerta de Airbus sobre sus aviones A320: ¿habrá cancelaciones de vuelos?**: [Link](https://elcomercio.pe/economia/peru/latam-sky-y-jetsmart-se-pronuncian-sobre-la-alerta-de-airbus-sobre-sus-aviones-a320-habra-cancelaciones-de-vuelos-noticia/)
+- **Aerolíneas se apuran a reparar sus aviones tras advertir que la radiación solar podría hacer a los pilotos perder el control**: [Link](https://cnnespanol.cnn.com/2025/11/28/eeuu/aviones-airbus-mantenimiento-tormenta-solar-trax)
+- **Airbus reconoce problemas en cambios requeridos en los A320**: [Link](https://www.dw.com/es/airbus-reconoce-dificultades-en-cambios-requeridos-en-los-a320/a-74954558)
+
+
 ### wwe (N/A, 29/11/2025 23:36 Lima)
 
 - **Shock Finish at Survivor Series WarGames as Hooded Figure Costs Punk’s Team**: [Link](https://slamwrestling.net/news/shock-finish-at-survivor-series-wargames-as-hooded-figure-costs-punks-team/)
@@ -996,40 +1031,5 @@
 - **Death toll in Hong Kong fire rises to 44 with 279 still missing, authorities say**: [Link](https://www.bbc.com/news/live/c2emg1kj1klt)
 - **Huge blaze in Hong Kong leaves at least 44 dead, 279 missing – as it happened**: [Link](https://www.scmp.com/news/hong-kong/society/article/3334217/major-fire-hong-kongs-tai-po-leaves-2-severely-burned-residents-trapped)
 - **At least 44 dead, hundreds missing as fire rips through Hong Kong tower blocks**: [Link](https://www.cnn.com/world/live-news/hong-kong-tai-po-buildings-fire-11-26-25)
-
-
-### thunder - timberwolves (N/A, 26/11/2025 23:30 Lima)
-
-- **Shai Gilgeous-Alexander drops 40 to help Thunder to 10-straight wins**: [Link](https://www.hoopshype.com/story/sports/nba/rumors/2025/11/26/shai-gilgeous-alexander-drops-40-to-help-thunder-to-10-straight-wins/87491082007/)
-- **Northwest Notes: J. Williams, Presti, Wolves, C. Williams**: [Link](https://www.hoopsrumors.com/2025/11/northwest-notes-j-williams-presti-wolves-c-williams.html)
-- **Rudy Gobert got a tech for what looked like an egregious OKC flop**: [Link](https://www.si.com/nba/timberwolves/onsi/minnesota-timberwolves-news/rudy-gobert-got-tech-for-what-looked-like-egregious-okc-flop)
-
-
-### toluca vs (N/A, 26/11/2025 23:30 Lima)
-
-- **Toluca dio paso decisivo a semifinales con triunfo ante FC Juárez**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/16011622/fc-juarez-vs-toluca-liguilla-apertura-2025-liga-mx-resultados-goles)
-- **Liga MX: FC Juárez recibirá a Toluca FC por la llave 1**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-fc-juarez-recibira-a-toluca-fc-por-la-llave-1-noticia-1665356)
-- **Transmisión EN VIVO del Juárez vs Toluca hoy: cómo mirar el partido por TV o streaming**: [Link](https://www.365scores.com/es/news/juarez-vs-toluca-como-ver-transmision/)
-
-
-### juarez vs (N/A, 26/11/2025 20:55 Lima)
-
-- **FC Juárez vs Toluca: posibles alineaciones para cuartos de final**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/16006600/fc-juarez-vs-toluca-alineaciones-liguilla-cuartos-de-final-ida-apertura-2025)
-- **Liga MX: así comienzan los cuartos de final de la Liguilla del Apertura 2025**: [Link](https://cnnespanol.cnn.com/2025/11/25/deportes/liga-mx-liguilla-apertura-2025-cuartos-orix)
-- **Inteligencia Artificial revela quién será el campeón del Apertura 2025 de la Liga MX**: [Link](https://www.infobae.com/mexico/deportes/2025/11/26/inteligencia-artificial-revela-quien-sera-el-campeon-del-apertura-2025-de-la-liga-mx/)
-
-
-### stranger things temporada 5 (N/A, 26/11/2025 20:55 Lima)
-
-- **Stranger Things 5: fecha y horarios de estreno de la última temporada en Netflix**: [Link](https://www.infobae.com/entretenimiento/2025/11/25/stranger-things-5-fecha-y-horarios-de-estreno-de-la-ultima-temporada-en-netflix/)
-- **Cuándo y a qué hora se estrena Stranger Things en Argentina**: [Link](https://www.lanacion.com.ar/espectaculos/cuando-y-a-que-hora-se-estrena-stranger-things-en-argentina-nid25112025/)
-- **De cara a la Temporada 5: el elenco de “Stranger Things” sorprende con un rap que resume toda la serie**: [Link](https://elcomercio.pe/mag/fama/celebs/de-cara-a-la-temporada-5-el-elenco-de-stranger-things-sorprende-con-un-rap-de-un-minuto-que-resume-toda-la-serie-nnda-nnrt-noticia/)
-
-
-### atlético nacional - junior (N/A, 26/11/2025 20:55 Lima)
-
-- **Pronóstico Atlético Nacional CD Junior FC - Liga BetPlay 26/11/25**: [Link](https://www.sportytrader.com/es/pronosticos/atletico-nacional-club-atletico-junior-307781/)
-- **Nacional recibe al líder Junior en choque de invictos por el Grupo A**: [Link](https://www.espn.com.ar/futbol/colombia/nota/_/id/16003731/nacional-vs-junior-fecha-3-cuadrangulares-liga-betplay-equipo-fecha-hora-y-tv-en-vivo)
-- **El valor de apostar a córneres en Nacional vs. Junior**: [Link](https://www.futbolred.com/apuestas/pronosticos-nacional-vs-junior-26-11-2025-259233)
 
 
