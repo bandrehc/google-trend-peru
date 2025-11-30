@@ -1,3 +1,73 @@
+### atalanta - fiorentina (N/A, 30/11/2025 11:29 Lima)
+
+- **LIVE Alle 18 Atalanta-Fiorentina: Palladino ritrova i viola, confermati Scamacca e Lookman**: [Link](https://www.gazzetta.it/Calcio/Serie-A/30-11-2025/atalanta-fiorentina-live-risultato-e-gol-in-diretta-serie-a.shtml)
+- **Corriere dello Sport: "Gudmundsson dalla panchina, Piccoli a supporto di Kean dal 1'. Parisi confermato"**: [Link](https://www.labaroviola.com/corriere-dello-sport-gudmundsson-dalla-panchina-piccoli-a-supporto-di-kean-dal-1-parisi-confermato/326781/)
+- **CALCIO serie A 13a Giornata- live AAtalanta-Fiorentina 0-0**: [Link](https://www.firenzeviolasupersportlive.it/fiorentina/notizie-viola/calcio-serie-a-13a-giornata-live-aatalanta-fiorentina-0-0/)
+
+
+### frankfurt - wolfsburg (N/A, 30/11/2025 11:29 Lima)
+
+- **#SGEWOB – Stürmisch**: [Link](https://onefootball.com/de/news/sgewob-stuermisch-42025751)
+- **Bundesliga-Lust folgt auf Königsklassen-Frust: Adler empfangen Wölfe**: [Link](https://www.sge4ever.de/bundesliga-lust-folgt-auf-koenigsklassen-frust-adler-empfangen-woelfe/)
+- **Frankfurt vs. VfL Wolfsburg: Quoten-Boost 20 mit Oddset!**: [Link](https://www.sport1.de/news/sportwetten/wett-tipps/frankfurt-vs-vfl-wolfsburg-quoten-boost-20-mit-oddset)
+
+
+### le havre - losc (N/A, 30/11/2025 11:29 Lima)
+
+- **HAC – LOSC : Mbappé lancé, Fernandez-Pardo de retour ? Les compositions probables**: [Link](https://le11hdf.fr/hac-losc-mbappe-fernandez-pardo-compositions-probables/)
+- **Le Havre - Lille : à quelle heure et sur quelle chaîne suivre le match de la 14e journée de Ligue 1 ?**: [Link](https://www.lequipe.fr/Football/Actualites/Le-havre-lille-a-quelle-heure-et-sur-quelle-chaine-suivre-le-match-de-la-14e-journee-de-ligue-1/1613013)
+- **Football – Ligue 1 : Ally Samatta ou pas d’Ally Samatta, la composition du HAC dévoilée**: [Link](https://www.paris-normandie.fr/id678522/article/2025-11-30/football-ligue-1-ally-samatta-ou-pas-dally-samatta-la-composition-du-hac)
+
+
+### chelsea - arsenal (N/A, 30/11/2025 11:29 Lima)
+
+- **Confirmed Chelsea line up versus Arsenal | News | Official Site**: [Link](https://www.chelseafc.com/en/news/article/confirmed-chelsea-line-up-versus-arsenal-web-november-2025)
+- **Chelsea vs Arsenal: London Rivals Clash in High-Stakes Premier League Showdown**: [Link](https://www.dawan.africa/news/chelsea-vs-arsenal-london-rivals-clash-in-high-stakes-premier-league-showdown)
+- **Confirmed Arsenal Team to face Chelsea: The Gunners are go!**: [Link](https://www.justarsenal.com/confirmed-arsenal-team-to-face-chelsea-the-gunners-are-go/405023)
+
+
+### corona de adviento (N/A, 30/11/2025 11:29 Lima)
+
+- **Oración para encender la primera vela de la Corona de Adviento 2025 este domingo 30 de noviembre**: [Link](https://elcomercio.pe/mag/respuestas/oracion-para-encender-la-primera-vela-de-la-corona-de-adviento-2025-plegaria-familiar-para-este-domingo-30-de-noviembre-nnda-nnni-noticia/)
+- **Comentario al Evangelio del domingo 30-11-2025**: [Link](https://www.ciudadredonda.org/events/comentario-al-evangelio-del-domingo-30-11-2025/)
+- **«La esperanza es preparar nuestro corazón ante la Venida del Mesías»**: [Link](https://www.eldebate.com/espana/la-voz-de-cordoba/religion-y-cofradias/20251130/esperanza-preparar-nuestro-corazon-ante-venida-mesias_360437.html)
+
+
+### inter (N/A, 30/11/2025 11:29 Lima)
+
+- **Pisa vs Inter Milan Preview, prediction, lineups, betting tips & odds | Serie A 2025-26**: [Link](https://khelnow.com/football/world-football-pisa-vs-inter-milan-preview-202511)
+- **Henrikh Mkhitaryan will return to Inter’s squad for the match against Pisa**: [Link](https://sportaran.com/en/post/genrih-mhitaryan-vernyotsya-v-zayavku-intera-na-match-protiv-pizy/)
+- **Inter Milan Head Coach Wary Of Pisa Threat & Reveals Captain ‘Had A Fever Before The Derby Against AC Milan’**: [Link](https://sempreinter.com/2025/11/30/pisa-inter-milan-chivu-lautaro-derby-sub/)
+
+
+### roma vs napoli (N/A, 30/11/2025 11:29 Lima)
+
+- **Cronaca Roma-Napoli ore 20.45 LIVE: torna Hermoso. Ferguson in pole su Dybala**: [Link](https://www.forzaroma.info/cronaca-live/cronaca-roma-napoli-ore-20-45-live-torna-hermoso-dybala-o-baldanzi-dal-1/)
+- **Gli esami non finiscono mai**: [Link](https://www.ilbellodelcalcio.net/2025/11/30/gli-esami-non-finiscono-mai/)
+- **Roma - Napoli sarà sorvegliata speciale**: [Link](https://www.virgilio.it/italia/napoli/notizielocali/roma_napoli_sar_sorvegliata_speciale-76100494.html)
+
+
+### liverpool vs (N/A, 30/11/2025 11:29 Lima)
+
+- **Liverpool fans swarm social media to make Alexander Isak point during West Ham fixture**: [Link](https://www.rousingthekop.com/2025/11/30/liverpool-fans-swarm-social-media-to-make-alexander-isak-point-during-west-ham-fixture/)
+- **Match Report | Second-half goals send Hammers to defeat**: [Link](https://www.whufc.com/en/news/match-report-or-second-half-goals-send-hammers-to-defeat)
+- **Why Lucas Paqueta was sent off vs Liverpool in moment of madness**: [Link](https://www.liverpool.com/liverpool-fc-news/features/lucas-paqueta-red-card-dissent-32973403)
+
+
+### sebastian britos universitario (N/A, 30/11/2025 11:29 Lima)
+
+- **Sebastián Britos se olvida rápido de Universitario y ficharía por este histórico del fútbol peruano**: [Link](https://bolavip.com/pe/liga-1/sebastian-britos-se-olvida-rapido-de-universitario-y-ficharia-por-este-historico-del-futbol-peruano)
+- **Pedro García lanzó firme advertencia a Universitario ante inminente regreso de Diego Romero: “Hay un tema futbolístico peligroso″**: [Link](https://www.infobae.com/peru/deportes/2025/11/30/pedro-garcia-lanzo-firme-advertencia-a-universitario-ante-inminente-regreso-de-diego-romero-hay-un-tema-futbolistico-peligroso/)
+- **Jorge Fossati habló sobre la salida de uno de los arqueros para el regreso de Diego Romero a Universitario**: [Link](https://rpp.pe/futbol/descentralizado/universitario-jorge-fossati-hablo-sobre-salida-de-uno-de-los-arqueros-para-el-regreso-de-diego-romero-noticia-1665780)
+
+
+### liverpool (N/A, 30/11/2025 11:29 Lima)
+
+- **Premier League LIVE: Salah dropped as Liverpool visit West Ham, plus two more games**: [Link](https://www.bbc.com/sport/football/live/cr5elmq1755t)
+- **'January window is too late' - Glasner hits out at frugal Palace**: [Link](https://www.bbc.co.uk/sport/football/videos/c33m41x307do)
+- **Crystal Palace: Eagles are at risk of burnout with Oliver Glasner's selection policy amid gruelling schedule**: [Link](https://www.skysports.com/football/news/11096/13468583/crystal-palace-eagles-are-at-risk-of-burnout-with-oliver-glasners-selection-policy-amid-gruelling-schedule)
+
+
 ### agf - københavn (N/A, 30/11/2025 07:47 Lima)
 
 Sin noticias relacionadas disponibles.
@@ -960,75 +1030,5 @@ Sin noticias relacionadas disponibles.
 - **Palmeiras y Flamengo van por la gloria: definen la Copa Libertadores en Lima**: [Link](https://www.espn.com.pe/futbol/copa-libertadores/nota/_/id/16006453/palmeiras-vs-flamengo-final-copa-conmebol-libertadores-equipo-hora-tv-en-vivo)
 - **Palmeiras y Flamengo, el éxito de hacer bien las cosas**: [Link](https://as.com/futbol/internacional/palmeiras-y-flamengo-el-exito-de-hacer-bien-las-cosas-f202511-n/)
 - **Ya está en Lima: el plantel de Palmeiras llegó a Perú para jugar la final de la Copa Libertadores**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/palmeiras-en-lima-llego-a-peru-para-jugar-la-final-de-la-copa-libertadores-2025-vs-flamengo-noticia/)
-
-
-### miss international 2025 (N/A, 27/11/2025 07:52 Lima)
-
-- **¡Reina absoluta! Catalina Duque se corona como Miss International 2025 y le da el triunfo a Colombia**: [Link](https://larepublica.pe/entretenimiento/2025/11/27/reina-absoluta-paola-guzman-se-corona-como-miss-international-2025-y-le-da-el-triunfo-a-bolivia-2280285)
-- **Miss International 2025: ¿Cuándo es la final y dónde verla EN VIVO desde Japón?**: [Link](https://larepublica.pe/entretenimiento/2025/11/22/cuando-es-la-final-del-miss-international-2025-fecha-horarios-y-canal-de-transmision-del-certamen-de-belleza-en-japon-801372)
-- **Quién es Nathie Quijano, la modelo peruana que brilla en el Miss International 2025 y que busca traer la corona a Perú**: [Link](https://larepublica.pe/entretenimiento/2025/11/25/quien-es-nathie-quijano-la-modelo-peruana-que-brilla-en-el-miss-international-2025-y-que-busca-traer-la-corona-a-peru-1088375)
-
-
-### juegos bolivarianos 2025 (N/A, 27/11/2025 07:52 Lima)
-
-- **Miraflores inaugura “Parque de la Juventud”, el primer parque dedicado al deporte del distrito**: [Link](https://www.miraflores.gob.pe/miraflores-inaugura-parque-de-la-juventud-el-primer-parque-dedicado-al-deporte-del-distrito/)
-- **Juegos Bolivarianos 2025: Así fue la gran inauguración del certamen en Ayacucho**: [Link](https://andina.pe/agencia/noticia-juegos-bolivarianos-2025-asi-fue-gran-inauguracion-del-certamen-ayacucho-1053375.aspx)
-- **Movistar TV transmite los XX Juegos Bolivarianos Ayacucho-Lima 2025**: [Link](https://depor.com/full-deportes/movistar-tv-transmite-los-xx-juegos-bolivarianos-ayacucho-lima-2025-noticia/)
-
-
-### que se celebra el 27 de noviembre (N/A, 27/11/2025 07:52 Lima)
-
-- **No habrá clases escolares el jueves 27 de noviembre por ser día no laborable en esta región, según Minedu**: [Link](https://larepublica.pe/sociedad/2025/11/25/no-habra-clases-escolares-el-jueves-27-de-noviembre-por-ser-dia-no-laborable-en-esta-region-segun-minedu-2349450)
-- **¡Minedu lo hizo oficial! Este jueves 27 de noviembre no habrá clases escolares en esta región por día no laborable**: [Link](https://elcomercio.pe/respuestas/donde/minedu-lo-hizo-oficial-este-jueves-27-de-noviembre-no-habra-clases-escolares-en-esta-region-por-dia-no-laborable-tdpe-noticia/)
-- **¿El 27 de noviembre es feriado? Conoce quiénes descansan y qué se celebra, según El Peruano**: [Link](https://libero.pe/tiempoextra/2025/11/26/27-de-noviembre-es-feriado-conoce-quienes-descansan-se-celebra-segun-peruano-301522)
-
-
-### thanksgiving 2025 (N/A, 27/11/2025 07:52 Lima)
-
-- **How to Watch the 2025 Macy’s Thanksgiving Day Parade**: [Link](https://www.nytimes.com/2025/11/26/nyregion/macys-thanksgiving-day-parade-how-to-watch.html)
-- **Macy’s Thanksgiving Day Parade to kick off in Manhattan**: [Link](https://www.wcvb.com/article/macys-thanksgiving-day-parade-2025/69565104)
-- **2025 Macy's Thanksgiving Day Parade: NYPD bulletin issues warning despite no specific threats**: [Link](https://abc7ny.com/post/2025-macys-thanksgiving-day-parade-nypd-bulletin-issues-warning-despite-no-specific-threats/18213272/)
-
-
-### sedapal (N/A, 27/11/2025 07:52 Lima)
-
-- **Corte de agua en Lima: Sedapal advierte suspensión del servicio este 26 y 27 de noviembre en seis distritos**: [Link](https://www.infobae.com/peru/2025/11/25/corte-de-agua-en-lima-sedapal-advierte-suspension-del-servicio-este-26-y-27-de-noviembre-en-seis-distritos/)
-- **Corte de agua en Lima hoy 26 de noviembre: Distritos y horarios afectados**: [Link](https://rpp.pe/lima/obras/corte-de-agua-en-lima-hoy-26-de-noviembre-distritos-y-horarios-afectados-noticia-1665342)
-- **¡A juntar agua desde YA! Anuncian corte de agua para el martes, 25 de noviembre: AQUÍ todos los detalles**: [Link](https://www.exitosanoticias.pe/actualidad/a-juntar-agua-ya-anuncian-corte-agua-martes-25-noviembre-aqui-todos-detalles-n163373)
-
-
-### latam peru (N/A, 27/11/2025 07:52 Lima)
-
-- **LATAM Airlines Perú se convierte en la aerolínea oficial que trae la magia de Toys R US a Latinoamérica**: [Link](https://www.businessempresarial.com.pe/latam-airlines-peru-se-convierte-en-la-aerolinea-oficial-que-trae-la-magia-de-toys-r-us-a-latinoamerica/)
-- **Aeropuerto de Cusco: lluvia intensa y neblina impidieron aterrizar anoche a cuatro vuelos**: [Link](https://andina.pe/agencia/noticia-aeropuerto-cusco-lluvia-intensa-y-neblina-impidieron-aterrizar-anoche-a-cuatro-vuelos-1053226.aspx)
-- **Lluvias impiden aterrizaje de cuatro vuelos de Latam en el aeropuerto del Cusco**: [Link](https://diarioviral.pe/actualidad/peru/lluvias-impiden-aterrizaje-de-cuatro-vuelos-de-latam-en-el-aeropuerto-del-cusco-49252)
-
-
-### xiaomi poco f8 ultra (N/A, 27/11/2025 07:52 Lima)
-
-- **Los nuevos Poco F8 Ultra avanzan a la gama premium con Snapdragon 8 Elite Gen 5 | smartphone | | TECNOLOGIA**: [Link](https://elcomercio.pe/tecnologia/moviles/los-nuevos-poco-f8-ultra-avanzan-a-la-gama-premium-con-snapdragon-8-elite-gen-5-smartphone-noticia/)
-- **El mejor Xiaomi POCO de la historia se ha lanzado en pleno Black Friday. Ya está de oferta y viene con...**: [Link](https://www.xataka.com/seleccion/mejor-xiaomi-poco-historia-se-ha-lanzado-pleno-black-friday-esta-oferta-viene-subwoofer-firmado-bose)
-- **En una carrera por móviles cada vez más caros, Xiaomi hace premium su marca barata. Los Poco F8 Pro y...**: [Link](https://www.xatakandroid.com/moviles-android/poco-f8-pro-poco-f8-ultra-caracteristicas-precio-ficha-tecnica)
-
-
-### samsung (N/A, 27/11/2025 07:52 Lima)
-
-- **Apple projected to beat Samsung in smartphone shipments for first time since 2011**: [Link](https://www.foxbusiness.com/markets/apple-projected-beat-samsung-smartphone-shipments-first-time-since-2011)
-- **Apple iPhone shipments to beat Samsung for the first time in 14 years, report says**: [Link](https://www.cnbc.com/2025/11/26/apple-iphone-shipments-to-beat-samsung-for-the-first-time-in-14-years.html)
-- **Apple Set to Become World’s Top Phone Maker, Overtaking Samsung**: [Link](https://www.bloomberg.com/news/articles/2025-11-25/apple-set-to-become-world-s-top-phone-maker-overtaking-samsung)
-
-
-### raul asencio (N/A, 27/11/2025 03:34 Lima)
-
-- **Raul Asencio pays emotional homage to his grandfather – Madridista passed away before Olympiacos clash**: [Link](https://tribuna.com/en/blogs/raul-asencio-pays-emotional-homage-to-his-grandfather-madrid/)
-- **Three options for Real Madrid to partner Raul Asencio in defence vs Olympiacos amid injury crisis**: [Link](https://madriduniversal.com/three-options-for-real-madrid-to-partner-raul-asencio-in-defence-vs-olympiacos-amid-injury-crisis/)
-- **Alonso confirmed to Lunin that he will start in the match against Olympiacos**: [Link](https://tribuna.com/en/news/2025-11-26-alonso-confirmed-to-lunin-that-he-will-start-in-the-match-against-olympiacos/)
-
-
-### tigres vs (N/A, 27/11/2025 03:34 Lima)
-
-- **Tijuana vs Tigres: posibles alineaciones de cuartos de final**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/16006701/tijuana-vs-tigres-alineaciones-liguilla-ida-cuartos-de-final-apertura-2025)
-- **📺 ¿Dónde ver Xolos de Tijuana - Tigres UANL EN VIVO GRATIS ahora por Liguilla MX 2025 en TV abierta?**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/donde-ver-xolos-de-tijuana-tigres-uanl-en-vivo-gratis-por-liguilla-mx-2025-en-tv-abierta-horarios-y-canales-online-en-directo-nnda-nnrt-noticia/)
-- **¡Escopetazo de Kevin Castañeda! Imposible para Nahuel, el 1-0 de Xolos**: [Link](https://www.tudn.com/futbol/liga-mx/escopetazo-de-kevin-castaneda-imposible-para-nahuel-el-1-0-de-xolos-video)
 
 
