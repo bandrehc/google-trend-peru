@@ -1,3 +1,73 @@
+### warriors - pelicans (N/A, 29/11/2025 21:08 Lima)
+
+- **New Orleans Pelicans Injury Report: Will Zion Williamson Play Against the Warriors Tonight?**: [Link](https://inews.zoombangla.com/new-orleans-pelicans-injury-report-will-zion-williamson-play-against-the-warriors-tonight/)
+- **𝐵𝑒𝓈𝓉 𝓌𝒶𝓎 𝓉𝑜 𝓌𝒶𝓉𝒸𝒽 Mavericks vs Clippers 𝓁𝒾𝓋𝑒𝓈𝓉𝓇𝑒𝒶𝓂?**: [Link](https://yoursunsetcountry.ca/classifieds/listings/%F0%9D%90%B5%F0%9D%91%92%F0%9D%93%88%F0%9D%93%89-%F0%9D%93%8C%F0%9D%92%B6%F0%9D%93%8E-%F0%9D%93%89%F0%9D%91%9C-%F0%9D%93%8C%F0%9D%92%B6%F0%9D%93%89%F0%9D%92%B8%F0%9D%92%BD-mavericks-vs-clippers/)
+- **New Orleans faces Golden State on 3-game road slide**: [Link](https://www.washingtonpost.com/sports/nba/2025/11/28/pelicans-warriors-preview/75fe0086-cc28-11f0-ac2a-e98510180900_story.html)
+
+
+### san diego fc - whitecaps (N/A, 29/11/2025 21:08 Lima)
+
+- **'We can trust our mentality' – Muller confident ahead Vancouver's conference final**: [Link](https://www.beinsports.com/en-us/soccer/mls/articles/we-can-trust-our-mentality--muller-confident-ahead-vancouvers-conference-final-2025-11-29)
+- **Whitecaps in Rare Territory With Playoff Run While for Sale**: [Link](https://www.sportico.com/leagues/soccer/2025/vancouver-whitecaps-sale-mls-playoffs-1234877713/)
+- **Preview: 'Caps set to compete in first-ever Western Conference Final with MLS Cup berth on the line | Watch on Apple TV**: [Link](https://www.whitecapsfc.com/news/preview-caps-first-ever-western-conference-final)
+
+
+### toluca - juárez (N/A, 29/11/2025 21:08 Lima)
+
+- **Toluca vs Juárez: posibles alineaciones, cuartos de final, Apertura 2025**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/16015446/toluca-vs-juarez-alineaciones-formaciones-cuartos-de-final-liguilla-apertura-2025-liga-mx)
+- **Pronóstico Deportivo Toluca FC FC Juarez - Liga MX 29/11/25**: [Link](https://www.sportytrader.com/es/pronosticos/deportivo-toluca-fc-juarez-308520/)
+- **⚽ Mirar Toluca - Juárez EN VIVO GRATIS por vuelta de Liguilla MX en tv abierta**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/donde-ver-toluca-juarez-en-vivo-gratis-por-liguilla-mx-2025-en-tv-abierta-horarios-y-canales-tv-online-en-directo-nnda-nnrt-noticia/)
+
+
+### fortaleza - bucaramanga (N/A, 29/11/2025 21:08 Lima)
+
+- **Bucaramanga se juega todo frente a Fortaleza en Bogotá por el Grupo B**: [Link](https://www.espn.com.ar/futbol/colombia/nota/_/id/16017399/fortaleza-vs-bucaramanga-fecha-4-cuadrangulares-liga-betplay-equipo-fecha-hora-y-tv-en-vivo)
+- **Pronóstico Fortaleza FC Atlético Bucaramanga - Liga BetPlay 29/11/25**: [Link](https://www.sportytrader.com/es/pronosticos/fortaleza-fc-atletico-bucaramanga-308300/)
+- **Previa: Fortaleza vs Bucaramanga los "amix" quieren repetir el triunfo**: [Link](https://www.vavel.com/colombia/futbol-colombiano/2025/11/29/fortaleza/1243073-previa-fortaleza-vs-bucaramanga-los-amix-quieren-repetir-el-triunfo.html)
+
+
+### central córdoba - estudiantes (N/A, 29/11/2025 21:08 Lima)
+
+- **Central Córdoba vs. Estudiantes, por los cuartos del Torneo Clausura: formaciones, horario y dónde ver en vivo**: [Link](https://www.tycsports.com/liga-profesional-de-futbol/argentina-torneo-clausura-2025-central-cordoba-se-vs-estudiantes-llave-3-id701252.html)
+- **Tiago Palacios transformó una gran jugada colectiva en el 1-0 de Estudiantes vs. Central Córdoba**: [Link](https://www.espn.com.ar/futbol/argentina/nota/_/id/16024706/video-gol-de-tiago-palacios-estudiantes-vs-central-cordoba)
+- **Central Córdoba de Santiago del Estero recibirá a Estudiantes por los cuartos de final del Torneo Clausura: hora, TV y formaciones**: [Link](https://www.infobae.com/deportes/2025/11/29/central-cordoba-de-santiago-del-estero-recibira-a-estudiantes-por-los-cuartos-de-final-del-torneo-clausura-hora-tv-y-formaciones/)
+
+
+### libertad fc - barcelona sc (N/A, 29/11/2025 21:08 Lima)
+
+- **Joao Rojas se perdería el partido entre Barcelona y Libertad**: [Link](https://www.espn.com.ar/futbol/ecuador/nota/_/id/16016088/joao-rojas-se-perderia-el-partido-entre-barcelona-y-libertad)
+- **Libertad F.C. buscará imponerse ante los canarios**: [Link](https://www.lahora.com.ec/loja/libertad-f.c.-buscara-imponerse-ante-los-canarios-20251127-0059.html)
+- **Libertad vs Barcelona, hoy EN VIVO, por la LigaPro: el Ídolo gana por Xavier Arreaga y resiste**: [Link](https://www.ole.com.ar/ecuador/liga-pro/libertad-barcelona-partido-vivo-ligapro-goles_0_X2QHo3i9gN.html)
+
+
+### tadeo allende (N/A, 29/11/2025 21:08 Lima)
+
+- **Inter Miami - NYC FC, en vivo: Messi en la Final de Conferencia Este, hoy, en directo**: [Link](https://as.com/us/futbol/inter-miami-nyc-fc-en-vivo-messi-en-la-final-de-conferencia-este-hoy-en-directo-f202511-d/)
+- **De Paul, tras ganar la Conferencia del Este con Inter Miami: "La felicidad es enorme"**: [Link](https://www.espn.com.ar/futbol/mls/nota/_/id/16024618/rodrigo-de-paul-inter-miami-final-conferencia-este-mls)
+- **Mascherano afirma que Inter Miami ‘no ha ganado nada’ y pide no confiarse ante NYCFC**: [Link](https://www.clarosports.com/futbol/mls/mascherano-afirma-que-inter-miami-no-ha-ganado-nada-y-pide-no-confiarse-ante-nycfc/)
+
+
+### everton ribeiro (N/A, 29/11/2025 21:08 Lima)
+
+- **Éverton Ribeiro Receberá Título De Cidadão De Salvador Da Câmara Municipal**: [Link](https://takta.com.br/esporte/everton-ribeiro-recebera-titulo-de-cidadao-de-salvador-da-camara-municipal/)
+- **Everton Ribeiro será homenageado com Título de Cidadão Soteropolitano**: [Link](https://www.psnoticias.com.br/salvador/everton-ribeiro-sera-homenageado-com-titulo-de-cidadao-soteropolitano/)
+- **Camisa 10 e capitão do Bahia, Éverton Ribeiro recebe título de Cidadão Soteropolitano na próxima semana**: [Link](https://www.varelanet.com.br/noticias/bahia/camisa-10-e-capitao-do-bahia-everton-ribeiro-recebe-titulo-de-cidadao-soteropolitano-na-proxima-semana)
+
+
+### liga brasileña (N/A, 29/11/2025 21:08 Lima)
+
+- **Neymar es inmortal**: [Link](https://as.com/futbol/internacional/neymar-es-inmortal-f202511-n/)
+- **Neymar desoyó a los médicos, jugó lesionado y fue clave para sacar a Santos del descenso: gol y asistencia ante Sport Recife**: [Link](https://www.infobae.com/deportes/2025/11/29/neymar-desoyo-a-los-medicos-jugo-lesionado-y-fue-clave-para-sacar-a-santos-del-descenso-gol-y-asistencia-ante-sport-recife/)
+- **No escuchó a los doctores y jugó lesionado: Neymar vuelve, marca... y saca a Santos del descenso**: [Link](https://www.marca.com/futbol/2025/11/29/escucho-doctores-jugo-lesionado-neymar-vuelve-marca-saca-santos-descens-video.html)
+
+
+### ceará - cruzeiro (N/A, 29/11/2025 21:08 Lima)
+
+- **Escalação do Cruzeiro: Jardim define time sem Kaio Jorge e volante**: [Link](https://noataque.com.br/futebol/brasileirao-serie-a/time/cruzeiro/noticia/2025/11/29/escalacao-do-cruzeiro-jardim-define-time-sem-kaio-jorge-e-volante/)
+- **Gol do Ceará! Zanocelo acerta 'chutaço' de fora da área sem chances para Cássio e abre o placar**: [Link](https://esportes.r7.com/futebol/campeonato-brasileiro-serie-a/video/gol-do-ceara-zanocelo-acerta-chutaco-de-fora-da-area-sem-chances-para-cassio-e-abre-o-placar-30112025/)
+- **Lateral emprestado pelo Corinthians volta a ser relacionado após quatro meses**: [Link](https://www.msn.com/pt-br/esportes/other/lateral-emprestado-pelo-corinthians-volta-a-ser-relacionado-ap%C3%B3s-quatro-meses/ar-AA1RoP75)
+
+
 ### palmeiras - flamengo (N/A, 29/11/2025 15:26 Lima)
 
 - **Las claves de la gran final de la Libertadores entre Palmeiras y Flamengo**: [Link](https://www.espn.com.pe/futbol/copa-libertadores/nota/_/id/16017218/las-claves-de-la-gran-final-de-la-libertadores-entre-palmeiras-y-flamengo)
@@ -961,74 +1031,5 @@
 - **Incendio en Alianza Lima: Hinchas culpan a Carlos Zambrano por la salida de Hernán Barcos: “Ahí lo tienen c...**: [Link](https://bolavip.com/pe/alianza-lima/incendio-en-alianza-lima-hinchas-culpan-a-carlos-zambrano-por-la-salida-de-hernan-barcos-ahi-lo-tienen-con-vaso-en-mano)
 - **Hernán Barcos no seguirá en Alianza Lima: el ‘Pirata’ se despide de los íntimos a fin de año**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/hernan-barcos-no-seguira-en-alianza-lima-el-pirata-se-despide-de-los-intimos-a-fin-de-ano-noticia/)
 - **Reimond Manco reveló los motivos por los que Alianza Lima no quiere renovarle a Hernán Barcos: “Su relación con el grupo está desgastada”**: [Link](https://www.infobae.com/peru/deportes/2025/11/25/reimond-manco-revelo-los-motivos-por-los-que-alianza-lima-no-quiere-renovarle-a-hernan-barcos-su-relacion-con-el-grupo-esta-desgastada/)
-
-
-### celtics - pistons (N/A, 26/11/2025 20:55 Lima)
-
-- **Pistons' winning streak ends, team falls short of new franchise record**: [Link](https://sports.yahoo.com/articles/pistons-winning-streak-ends-team-011008808.html)
-- **Derrick White is the Celtics ‘Name to Know’ Player of the Game in Wednesday’s win over Pistons**: [Link](https://www.masslive.com/celtics/2025/11/derrick-white-is-the-celtics-name-to-know-player-of-the-game-in-wednesdays-win-over-pistons.html)
-- **Jaylen Brown scores 33 points in Celtics win vs. Pistons**: [Link](https://www.nba.com/watch/video/jaylen-brown-scores-33-points-in-celtics-win-vs-pistons)
-
-
-### psg (N/A, 26/11/2025 15:26 Lima)
-
-- **Ousmane Dembélé peut-il faire son retour contre Tottenham ? « En tout cas, il a faim, comme toujours »**: [Link](https://www.lequipe.fr/Football/Article/Ousmane-dembele-peut-il-faire-son-retour-contre-tottenham-en-tout-cas-il-a-faim-comme-toujours/1611760)
-- **Pourquoi l'absence de Renato Marin dans le groupe du PSG pour la réception de Tottenham Spurs ? Réponse**: [Link](https://tribuna.com/fr/news/2025-11-26-pourquoi-labsence-de-renato-marin-dans-le-groupe-du-psg-pour-la-reception-de-tottenham-sp/)
-- **PSG - Tottenham : Les salaires comparés de ce choc de Ligue des Champions**: [Link](https://www.90min.com/fr/psg-tottenham-les-salaires-compares-de-ce-choc-de-ligue-des-champions-26-11-2025)
-
-
-### tarjeta roja (N/A, 26/11/2025 15:26 Lima)
-
-- **Cristiano Ronaldo podrá jugar en el debut del Mundial 2026: la FIFA lo perdona, pero de forma condicional**: [Link](https://cnnespanol.cnn.com/2025/11/25/deportes/cristiano-ronaldo-perdon-mundial-2026-orix)
-- **Sanción “suspendida”: la treta para que Cristiano juegue el Mundial**: [Link](https://as.com/futbol/internacional/sancion-suspendida-la-treta-para-que-cristiano-juegue-el-mundial-f202511-n/)
-- **Indulto para Cristiano Ronaldo: podrá jugar el primer partido del Mundial**: [Link](https://www.marca.com/futbol/mundial/2025/11/25/indulto-cristiano-ronaldo-podra-jugar-primer-partido-mundial.html)
-
-
-### flashscore (N/A, 26/11/2025 15:26 Lima)
-
-- **Liiga: Tappara are the new leaders in Finland after they beat Jukurit to move above Assat**: [Link](https://www.flashscore.com/news/hockey-liiga-liiga-roundup-tappara-knock-assat-off-top-spot-with-narrow-win-over-jukurit/hbDMhX8a/)
-- **Pats LT Campbell to IR, out at least until Week 18**: [Link](https://www.espn.com/nfl/story/_/id/47110215/patriots-put-lt-campbell-ir-rule-lg-jared-wilson)
-- **Patriots Place T Will Campbell on Injured Reserve; Announce Additional Roster Moves**: [Link](https://www.patriots.com/news/patriots-place-t-will-campbell-on-injured-reserve-announce-additional-roster-moves)
-
-
-### atletico madrid vs (N/A, 26/11/2025 15:26 Lima)
-
-- **Preview: Atletico Madrid vs Inter Milan - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/atletico-madrid/champions-league/preview/atletico-vs-inter-milan-prediction-team-news-lineups_586363.html)
-- **Lautaro Martinez: ‘First they said I didn't score in the Champions League, now it's the opposite’**: [Link](https://tribuna.com/en/news/2025-11-26-lautaro-martinez-first-they-said-i-didnt-score-in-the-champions-league-now-its-the-opposi/)
-- **The Club Diego Simeone Wants to Manage After Leaving Atlético de Madrid**: [Link](https://www.beinsports.com/en-us/soccer/la-liga/articles/the-club-diego-simeone-wants-to-manage-after-leaving-atl%C3%A9tico-de-madrid-2025-11-26)
-
-
-### liverpool vs (N/A, 26/11/2025 15:26 Lima)
-
-- **In full: Arne Slot's programme notes for Liverpool v PSV Eindhoven**: [Link](https://www.liverpoolfc.com/news/full-arne-slots-programme-notes-liverpool-v-psv-eindhoven)
-- **Liverpool must avoid 9-year low and why Anfield offers reason for optimism**: [Link](https://www.thisisanfield.com/2025/11/liverpool-must-avoid-9-year-low-psv/)
-- **PSV manager makes pointed admission ahead of Liverpool’s must-win European night**: [Link](https://onefootball.com/es/noticias/psv-manager-makes-pointed-admission-ahead-of-liverpools-must-win-european-night-42005981)
-
-
-### lennart karl (N/A, 26/11/2025 15:26 Lima)
-
-- **Lennart Karl: Bayern teen who Lothar Matthaus wants at World Cup**: [Link](https://www.thetimes.com/sport/football/article/lennart-karl-bayern-munich-arsenal-l9np7l9ns)
-- **Lothar Matthäus makes case for Bayern Munich and Germany to unleash Lennart Karl; Revenge game for Harry Kane?; Champions League predictions; and MORE!**: [Link](https://www.bavarianfootballworks.com/transfer-rumors/150482/matthaus-bayern-munich-germany-karl-kane-arsenal-champions-league-predictions)
-- **Arsenal transfer audition ready as German ‘gem’ breaks ANOTHER record – ‘Extraordinary stuff’**: [Link](https://onefootball.com/it/notizie/arsenal-transfer-audition-ready-as-german-gem-breaks-another-record-extraordinary-stuff-41996122)
-
-
-### psv vs (N/A, 26/11/2025 15:26 Lima)
-
-- **Liverpool enfrenta a PSV en busca de mantenerse en zona de clasificación directa en la Champions**: [Link](https://www.espn.com.pe/futbol/champions-league/nota/_/id/16001136/liverpool-vs-psv-fase-liga-fecha-5-champions-equipo-fecha-hora-tv-en-vivo)
-- **Alineación del Liverpool vs. PSV: El once inicial, las noticias del equipo y el puesto de lesionados reflexionan sobre la cuestión de Ekitike o Isak**: [Link](https://www.ucvradio.pe/mas-actualidad/alineacion-del-liverpool-vs-psv-el-once-inicial-las-noticias-del-equipo-y-el-puesto-de-lesionados-reflexionan-sobre-la-cuestion-de-ekitike-o-isak/59931/)
-- **Champions League: PSV se enfrentará a Liverpool por la fecha 5**: [Link](https://rpp.pe/futbol/ligas-internacionales/champions-league-psv-se-enfrentara-a-liverpool-por-la-fecha-5-noticia-1665237)
-
-
-### betson (N/A, 26/11/2025 15:26 Lima)
-
-- **Betson Supports IAAPA’s Footprints from the Heart**: [Link](https://www.replaymag.com/betson-supports-iaapas-footprints-from-the-heart/)
-- **Coin-op amusements news | Betson Enterprises raises funds for Give Kids The World Village**: [Link](https://www.intergameonline.com/coin-op/news/betson-enterprises-raises-funds-for-give-kids-the-world-village)
-
-
-### disney (N/A, 26/11/2025 15:26 Lima)
-
-- **‘Zootopia 2’ Review: Natural Habitats, Expanded**: [Link](https://www.nytimes.com/2025/11/26/movies/zootopia-2-review.html)
-- **'Zootopia 2,' 'Wicked: For Good' lead Thanksgiving box office**: [Link](https://www.cnbc.com/2025/11/26/thanksgiving-box-office-zootopia-2-wicked-for-good.html)
-- **‘Zootopia 2’ Review: Jason Bateman and Ginnifer Goodwin Return for a Blast of a Sequel Full of Delights Both Familiar and New**: [Link](https://www.hollywoodreporter.com/movies/movie-reviews/zootopia-2-review-jason-bateman-ginnifer-goodwin-disney-1236434563/)
 
 
