@@ -1,3 +1,73 @@
+### porto vs (N/A, 30/11/2025 15:27 Lima)
+
+- **Europa League: Se enfrentan Porto y Nice por la fecha 5**: [Link](https://rpp.pe/futbol/ligas-internacionales/europa-league-se-enfrentan-porto-y-nice-por-la-fecha-5-noticia-1665362)
+- **(VIDEO) Porto goleó a Niza para mantenerse en la parte alta de la Europa League**: [Link](https://ovacion.pe/noticias/europa-league/video-porto-goleo-niza-mantenerse-parte-alta-europa-league)
+- **Pronóstico Porto - Nice. Europa League | 27/11/2025**: [Link](https://gainblers.com/la/pronosticos/futbol/europa/europa-league/pronostico-porto-nice-27-11-2025/)
+
+
+### porto - estoril (N/A, 30/11/2025 15:27 Lima)
+
+- **Francesco Farioli: “Seria bom termos o mesmo tratamento dos rivais, mas não tendo é uma motivação extra”**: [Link](https://onefootball.com/en/news/francesco-farioli-seria-bom-termos-o-mesmo-tratamento-dos-rivais-mas-nao-tendo-e-uma-motivacao-extra-42027132)
+- **Pequenas mazelas afastam Alan Varela e Deniz Gul da receção ao Estoril**: [Link](https://sapo.pt/artigo/pequenas-mazelas-afastam-alan-varela-e-deniz-gul-da-rececao-ao-estoril-692c9e299d77fc389d1d01f3)
+- **Entre dúvidas, certezas só no eixo da defesa: o onze provável do FC Porto**: [Link](https://www.abola.pt/noticias/entre-duvidas-certezas-so-no-eixo-da-defesa-o-onze-provavel-do-fc-porto-2025112919181026332)
+
+
+### ajax vs groningen (N/A, 30/11/2025 15:27 Lima)
+
+- **HERE’S!* WAY TO WATCH Ajax vs Groningen LIVE STREAMS Soccer ON TV CHANNEL**: [Link](https://yoursunsetcountry.ca/classifieds/listings/heres-way-to-watch-ajax-vs-groningen-live-streams-soccer-on-tv-channel/)
+- **Ajax vs Groningen: Ajax names surprise lineup tonight — what coach won’t say**: [Link](https://www.red94.net/news/18179-ajax-vs-groningen-ajax-faces-groningen-tonight-in-eredivisie-showdown-here-s-wha/)
+- **Groningen Eyes Chance to End Winless Streak Against Ajax in Amsterdam**: [Link](https://news.ssbcrack.com/groningen-eyes-chance-to-end-winless-streak-against-ajax-in-amsterdam/)
+
+
+### gratificación (N/A, 30/11/2025 15:27 Lima)
+
+- **Aguinaldo y gratificación de diciembre 2025: ¿cuánto será el monto y cómo utilizarlo?**: [Link](https://rpp.pe/economia/tus-finanzas/aguinaldo-y-gratificacion-de-diciembre-2025-cuanto-sera-el-monto-y-como-utilizarlo-noticia-1665890)
+- **Pago de gratificaciones en diciembre 2025 incluirá una bonificación extraordinaria**: [Link](https://gestion.pe/economia/management-empleo/pago-de-gratificaciones-en-diciembre-2025-incluira-una-bonificacion-extraordinaria-noticia/)
+- **¿Cuánto es el monto que se debe cobrar por Gratificación de diciembre 2025? | tdpe | RESPUESTAS**: [Link](https://elcomercio.pe/respuestas/tramites/cuanto-es-el-monto-que-se-debe-cobrar-por-gratificacion-de-diciembre-2025-tdpe-noticia/)
+
+
+### posiciones de chelsea contra arsenal (N/A, 30/11/2025 15:27 Lima)
+
+- **Chelsea y Arsenal no defraudaron y empataron en un partidazo de Premier**: [Link](https://www.espn.com.ar/futbol/inglaterra/nota/_/id/16013115/chelsea-vs-arsenal-por-la-premier-league-equipo-fecha-hora-y-tv-en-vivo)
+- **Chelsea vs Arsenal (1-1): resumen y goles del partido por Premier League | VIDEO**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/chelsea-vs-arsenal-en-vivo-gratis-hoy-via-futbol-libre-tv-espn-horarios-canales-tv-y-donde-ver-partido-por-premier-league-video-noticia/)
+- **Chelsea y Arsenal sacan la bandera blanca en una batalla por la Premier**: [Link](https://www.marca.com/futbol/premier-league/cronica/2025/11/30/chelsea-arsenal-sacan-bandera-blanca-batalla-premier.html)
+
+
+### nacional - peñarol (N/A, 30/11/2025 15:27 Lima)
+
+- **Partido Nacional-Peñarol EN VIVO ONLINE: formaciones, horarios y dónde ver transmisión**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/nacional-vs-penarol-en-vivo-hoy-gratis-por-final-liga-auf-2025-a-que-hora-juegan-canal-que-pasa-y-donde-ver-el-clasico-uruguayo-video-noticia/)
+- **Fuerte operativo de seguridad para el clásico en el Gran Parque Central: ¿qué se puede llevar y qué artículos están prohibidos?**: [Link](https://www.espn.com.ar/futbol/uruguay/nota/_/id/16019226/fuerte-operativo-de-seguridad-para-el-clasico-en-el-gran-parque-central-articulos-prohibidos-y-permitidos)
+- **La racha con la que Nacional recibe a Peñarol en el Gran Parque Central para definir el Uruguayo**: [Link](https://espndeportes.espn.com/futbol/uruguay/nota/_/id/16000074/racha-nacional-recibe-penarol-gran-parque-central-para-definir-campeonato-uruguayo)
+
+
+### girona - real madrid (N/A, 30/11/2025 15:27 Lima)
+
+- **Girona - Real Madrid hoy, en directo: última hora de LaLiga EA Sports, en vivo**: [Link](https://as.com/futbol/primera/girona-real-madrid-hoy-en-directo-ultima-hora-de-laliga-ea-sports-en-vivo-f202511-d/)
+- **Girona vs Real Madrid: posibles alineaciones Jornada 14, LaLiga**: [Link](https://www.espn.com.ar/futbol/espana/nota/_/id/16023021/girona-vs-real-madrid-alineaciones-laliga-2025-jornada-14)
+- **🏟️ ¿Dónde ver Real Madrid - Girona EN VIVO hoy por LaLiga EA Sports 2025 en TV y Online?**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/donde-ver-real-madrid-girona-en-vivo-en-directo-por-laliga-2025-horarios-formaciones-y-canales-tv-online-gratis-nnda-nnrt-noticia/)
+
+
+### sporting cp (N/A, 30/11/2025 15:27 Lima)
+
+- **Primeira Liga - Sporting CP v Estrela**: [Link](https://www.reutersconnect.com/item/primeira-liga-sporting-cp-v-estrela/dGFnOnJldXRlcnMuY29tLDIwMjU6bmV3c21sX1VQMUVMQlUxRUtIUDU)
+- **Copa Libertadores - Final - Flamengo celebrate winning the final**: [Link](https://www.reutersconnect.com/item/copa-libertadores-final-flamengo-celebrate-winning-the-final/dGFnOnJldXRlcnMuY29tLDIwMjU6bmV3c21sX1VQMUVMQlUxRlozUVI)
+- **Pope Leo XIV visits Lebanon**: [Link](https://www.reutersconnect.com/item/pope-leo-xiv-visits-lebanon/dGFnOnJldXRlcnMuY29tLDIwMjU6bmV3c21sX1JDMjM3SUFFVVg2QQ)
+
+
+### roma - napoli (N/A, 30/11/2025 15:27 Lima)
+
+- **!***HERE’S WAY TO WATCH Girona vs Real Madrid LIVE STREAMS LaLiga ON TV CHANNEL**: [Link](https://yoursunsetcountry.ca/classifieds/listings/heres-way-to-watch-girona-vs-real-madrid-live-streams-laliga-on-tv-channel-3/)
+- **Roma-Napoli, le sensazioni dei tifosi: «Sarà dura, vincerà chi ci metterà il cuore»**: [Link](https://www.ilmattino.it/sport/sscnapoli/roma_napoli_le_sensazioni_tifosi_sara_dura_vincera_ci_mettera_cuore-9218578.html)
+- **Massara: 'Oggi verificheremo a che punto siamo. Mercato? L'organico è già molto buono'**: [Link](https://www.virgilio.it/italia/roma/notizielocali/massara_oggi_verificheremo_a_che_punto_siamo_mercato_l_organico_gi_molto_buono_-76101524.html)
+
+
+### roma vs (N/A, 30/11/2025 15:27 Lima)
+
+- **Derby Del Sole Preview: Can Roma Win Their First Match Against a Scudetto Contender?**: [Link](https://www.chiesaditotti.com/roma-matchday-coverage/38480/derby-del-sole-preview-can-roma-win-their-first-match-against-a-scudetto-contender)
+- **Massara hints at January market: "If we can get better we will."**: [Link](https://romapress.net/massara-hints-at-january-market-if-we-can-get-better-we-will/)
+- **Sacchi: ‘I often see myself’ in Conte and Gasperini**: [Link](https://www.yardbarker.com/soccer/articles/sacchi_i_often_see_myself_in_conte_and_gasperini/s1_17344_43135265)
+
+
 ### atalanta - fiorentina (N/A, 30/11/2025 11:29 Lima)
 
 - **LIVE Alle 18 Atalanta-Fiorentina: Palladino ritrova i viola, confermati Scamacca e Lookman**: [Link](https://www.gazzetta.it/Calcio/Serie-A/30-11-2025/atalanta-fiorentina-live-risultato-e-gol-in-diretta-serie-a.shtml)
@@ -960,75 +1030,5 @@ Sin noticias relacionadas disponibles.
 - **Bologna vs Red Bull Salzburg: UEFA Europa League stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cvg133yd0qpt)
 - **The latest from the field. Dominguez runs for space.**: [Link](https://sport.quotidiano.net/en/calcio/bologna/le-ultime-dal-campo-dominguez-943b1715)
 - **Europa League official line-ups: Bologna vs. RB Salzburg**: [Link](https://football-italia.net/europa-league-line-ups-bologna-vs-rb-salzburg/)
-
-
-### happy thanksgiving (N/A, 27/11/2025 11:31 Lima)
-
-- **Cold and breezy on Thanksgiving, ALERT DAY Saturday for accumulating snow | Latest Weather Forecast**: [Link](https://www.channel3000.com/weather/forecast/cold-and-breezy-on-thanksgiving-alert-day-saturday-for-accumulating-snow/article_a1211afa-86c8-5443-b891-835dd6b621fd.html)
-- **Cold, Windy, with Flurries for Thanksgiving**: [Link](https://www.wtae.com/article/cold-windy-with-flurries-for-thanksgiving/69563932)
-- **Ken Barlow is forecasting a quiet and chilly Thanksgiving Day**: [Link](https://kstp.com/kstp-news/weather-forecast/ken-barlow-is-forecasting-a-quiet-and-chilly-thanksgiving-day/)
-
-
-### black friday 2025 (N/A, 27/11/2025 11:31 Lima)
-
-- **I Dug Up 120 Killer Black Friday Deals From Apple, Samsung, Eufy, Ring and More**: [Link](https://www.cnet.com/deals/best-black-friday-deals-2025-11-27/)
-- **113+ Black Friday Sales Already Live: Apple, PlayStation and more**: [Link](https://www.nbcnews.com/select/shopping/best-black-friday-deals-2025-rcna245653)
-- **Black Friday 2025 Sales Are Live: 65 Major Discounts We’re Shopping Today**: [Link](https://www.today.com/shop/best-black-friday-deals-2025-rcna246116)
-
-
-### 27 de noviembre que se celebra (N/A, 27/11/2025 11:31 Lima)
-
-- **No habrá clases escolares el jueves 27 de noviembre por ser día no laborable en esta región, según Minedu**: [Link](https://larepublica.pe/sociedad/2025/11/25/no-habra-clases-escolares-el-jueves-27-de-noviembre-por-ser-dia-no-laborable-en-esta-region-segun-minedu-2349450)
-- **¡Minedu lo hizo oficial! Este jueves 27 de noviembre no habrá clases escolares en esta región por día no laborable**: [Link](https://elcomercio.pe/respuestas/donde/minedu-lo-hizo-oficial-este-jueves-27-de-noviembre-no-habra-clases-escolares-en-esta-region-por-dia-no-laborable-tdpe-noticia/)
-- **¿El 27 de noviembre es feriado? Conoce quiénes descansan y qué se celebra, según El Peruano**: [Link](https://libero.pe/tiempoextra/2025/11/26/27-de-noviembre-es-feriado-conoce-quienes-descansan-se-celebra-segun-peruano-301522)
-
-
-### accion de gracias (N/A, 27/11/2025 11:31 Lima)
-
-- **Macy’s Thanksgiving Day Parade 2025 en Nueva York: los mejores lugares para verlo**: [Link](https://elcomercio.pe/mag/usa/local-us/macys-thanksgiving-day-parade-2025-en-nueva-york-los-mejores-lugares-para-verlo-dia-de-accion-de-gracias-nnda-nnni-noticia/)
-- **Desfile de Acción de Gracias 2025, en vivo: Ultima hora del Macy’s Thanksgiving Day Parade en Nueva York**: [Link](https://as.com/us/actualidad/desfile-de-accion-de-gracias-2025-en-vivo-ultima-hora-del-macys-thanksgiving-day-parade-en-nueva-york-f202511-d/)
-- **Cynthia Erivo, Ciara, Kpop Demon Hunters y más actuarán**: [Link](https://noticiashuesca.com/deportes/cynthia-erivo-ciara-kpop-demon-hunters-y-mas-actuaran/144176/)
-
-
-### uefa europa league (N/A, 27/11/2025 11:31 Lima)
-
-- **Forgotten Celtic player tipped to start against Feyenoord**: [Link](https://thecelticbhoys.com/forgotten-celtic-player-tipped-to-start-against-feyenoord)
-- **Best bets: Europa League and Conference League tips for Thursday November 27**: [Link](https://www.sportinglife.com/football/news/best-bets-europa-league-and-conference-league-tips-for-thursday-november-27/228920)
-- **Kieran Tierney: Exclusive Celtic TV interview**: [Link](https://www.celticfc.com/news/2025/november/27/kieran-tierney--exclusive-celtic-tv-interview/)
-
-
-### thanksgiving (N/A, 27/11/2025 11:31 Lima)
-
-- **Macy’s Thanksgiving Day Parade 2025 live updates: See photos from NYC of the floats, performers and more**: [Link](https://www.nbcnews.com/news/us-news/live-blog/macys-thanksgiving-day-parade-2025-live-updates-rcna245927)
-- **Labubu and KPop Demon Hunters Join Macy’s Thanksgiving Day Parade**: [Link](https://www.nytimes.com/2025/11/27/nyregion/macys-thanksgiving-day-parade.html)
-- **2025 Macy's Thanksgiving Day Parade: Millions gather to watch Thanksgiving parade**: [Link](https://abc7ny.com/post/2025-macys-thanksgiving-day-parade-millions-gather-watch/18217209/)
-
-
-### 27 de noviembre (N/A, 27/11/2025 11:31 Lima)
-
-- **Partidos de hoy, jueves 27 de noviembre: a qué hora y en canales ver fútbol en vivo**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/partidos-de-hoy-jueves-27-de-noviembre-del-2025-resultados-horarios-canales-tv-y-donde-ver-futbol-en-vivo-noticia/)
-- **Partidos de hoy, sábado 22 de noviembre de 2025: programación, canales TV y resultados en vivo**: [Link](https://www.infobae.com/peru/deportes/2025/11/22/partidos-de-hoy-sabado-22-de-noviembre-de-2025-programacion-canales-tv-y-resultados-en-vivo/)
-- **El sábado (22) tiene Brasileirão, Sula y europeos**: [Link](https://masmma.com.mx/futbol/el-sabado-22-tiene-brasileirao-sula-y-europeos/125378/)
-
-
-### dia de accion de gracias (N/A, 27/11/2025 11:31 Lima)
-
-- **Hoy se celebra el Día de Acción de Gracias: ¿por qué el Thanksgiving es tan importante en Estados Unidos?**: [Link](https://elcomercio.pe/respuestas/cuando/fecha-exacta-del-dia-de-accion-de-gracias-2025-que-se-celebra-y-por-que-el-thanksgiving-es-un-dia-especial-en-estados-unidos-frases-tdpe-noticia/)
-- **¿Qué se celebra en el Día de Acción de Gracias 2025? Por qué el 27 de noviembre es feriado**: [Link](https://www.usatoday.com/story/news/2025/11/27/dia-de-accion-de-gracias-por-que-thanksgiving-se-celebra-nov-27/87400833007/)
-- **Thanksgiving: la oscura y sangrienta historia detrás del Día de Acción de Gracias que nadie cuenta**: [Link](https://www.univision.com/noticias/trending/historia-detras-de-thanksgiving-2025)
-
-
-### costa verde cerrada (N/A, 27/11/2025 07:52 Lima)
-
-- **Circuito de la Costa Verde cierra desde HOY por los Juegos Bolivarianos 2025: estos son los horarios**: [Link](https://www.infobae.com/peru/deportes/2025/11/26/manana-27-de-noviembre-cerraran-la-costa-verde-por-los-juegos-bolivarianos-2025-durante-este-horario/)
-- **Cierre de la Costa Verde: plan de desvío vehicular por competencia de los Juegos Bolivarianos**: [Link](https://rpp.pe/lima/actualidad/cierre-de-la-costa-verde-plan-de-desvio-vehicular-por-competencia-de-los-juegos-bolivarianos-noticia-1665495)
-- **Libros que vuelan, la Costa Verde cerrada y la mayor cifra de presos en 15 años**: [Link](https://elcomercio.pe/opinion/columnistas/libros-que-vuelan-la-costa-verde-cerrada-y-la-mayor-cifra-de-presos-en-15-anos-noticia/)
-
-
-### final libertadores (N/A, 27/11/2025 07:52 Lima)
-
-- **Palmeiras y Flamengo van por la gloria: definen la Copa Libertadores en Lima**: [Link](https://www.espn.com.pe/futbol/copa-libertadores/nota/_/id/16006453/palmeiras-vs-flamengo-final-copa-conmebol-libertadores-equipo-hora-tv-en-vivo)
-- **Palmeiras y Flamengo, el éxito de hacer bien las cosas**: [Link](https://as.com/futbol/internacional/palmeiras-y-flamengo-el-exito-de-hacer-bien-las-cosas-f202511-n/)
-- **Ya está en Lima: el plantel de Palmeiras llegó a Perú para jugar la final de la Copa Libertadores**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/palmeiras-en-lima-llego-a-peru-para-jugar-la-final-de-la-copa-libertadores-2025-vs-flamengo-noticia/)
 
 
