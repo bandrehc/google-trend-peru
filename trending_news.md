@@ -1,3 +1,64 @@
+### agf - københavn (N/A, 30/11/2025 07:47 Lima)
+
+Sin noticias relacionadas disponibles.
+
+
+### real sociedad - villarreal (N/A, 30/11/2025 07:47 Lima)
+
+- **Pronóstico Real Sociedad Villarreal - LaLiga 30/11/25**: [Link](https://www.sportytrader.com/es/pronosticos/real-sociedad-villarreal-308766/)
+- **La Real Sociedad, a la ofensiva para hundir al submarino**: [Link](https://www.mundodeportivo.com/futbol/real-sociedad/20251130/1002577991/real-sociedad-ofensiva-hundir-submarino.html)
+- **A por lo más difícil**: [Link](https://www.realsociedad.eus/es/noticias/detalle/a-por-lo-mas-dificil)
+
+
+### temblor hoy perú (N/A, 30/11/2025 07:47 Lima)
+
+- **Temblor HOY, 30 de noviembre, según IGP: ¿de qué magnitud fue el último sismo?**: [Link](https://larepublica.pe/sociedad/2025/11/30/temblor-en-peru-hoy-domingo-30-de-noviembre-del-2025-magnitud-epicentro-y-mas-sobre-sismos-recientes-segun-igp-ultimo-sismo-en-lima-ica-callao-y-otras-provincias-atmp-1631540)
+- **Un sismo de magnitud 3.5 remeció la región Áncash esta madrugada**: [Link](https://rpp.pe/peru/ancash/ancash-sismo-de-magnitud-35-remecio-la-region-esta-madrugada-noticia-1665848)
+- **Terremoto moderado mag. 4.1 - Departamento de Tacna, 33 km al sureste de Moquegua, Moquegua, Perú, domingo 30 nov 2025 a las 02:53 (GMT -5)**: [Link](https://www.volcanodiscovery.com/es/sismos/informe-sismo/22447748/quake-felt-Nov-30-2025-Near-Arica-Arica-y-Parinacota-Region-Chile.html)
+
+
+### lecce - torino (N/A, 30/11/2025 07:47 Lima)
+
+- **[DIRETTA@LiVe!] Lecce-Torino IN DIRETTA Streaming Gratis (Serie A) 30 novembre 2025**: [Link](https://yoursunsetcountry.ca/classifieds/listings/direttalive-lecce-torino-in-diretta-streaming-gratis-serie-a-30-novembre-2025/)
+- **Lecce-Torino, le formazioni ufficiali**: [Link](https://www.torinofc.it/news/30/11/2025/lecce-torino-le-formazioni-ufficiali_39869)
+- **Campionato Calcio 13ª Giornata LECCE vs TORINO – I Convocati**: [Link](https://www.lecceoggi.com/campionato-calcio-13a-giornata-lecce-vs-torino-i-convocati/)
+
+
+### adviento (N/A, 30/11/2025 07:47 Lima)
+
+- **Oración para encender la primera vela de la Corona de Adviento 2025 este domingo 30 de noviembre**: [Link](https://elcomercio.pe/mag/respuestas/oracion-para-encender-la-primera-vela-de-la-corona-de-adviento-2025-plegaria-familiar-para-este-domingo-30-de-noviembre-nnda-nnni-noticia/)
+- **Comentario al Evangelio del domingo 30-11-2025**: [Link](https://www.ciudadredonda.org/events/comentario-al-evangelio-del-domingo-30-11-2025/)
+- **«La esperanza es preparar nuestro corazón ante la Venida del Mesías»**: [Link](https://www.eldebate.com/espana/la-voz-de-cordoba/religion-y-cofradias/20251130/esperanza-preparar-nuestro-corazon-ante-venida-mesias_360437.html)
+
+
+### crystal palace - manchester united (N/A, 30/11/2025 07:47 Lima)
+
+- **Premier League LIVE: Crystal Palace vs Man Utd - scores & updates**: [Link](https://www.bbc.com/sport/football/live/cr5elmq1755t)
+- **Manchester United Aim to Get Back to Winning Ways with a Tough Away Trip to Crystal Palace**: [Link](https://dawan.africa/news/manchester-united-aim-to-get-back-to-winning-ways-with-a-tough-away-trip-to-crystal-palace)
+- **Ｏｒｉｇｉｎａｌ SOCCER/EPL Ｓｔｒｅａｍｓ Ｔｏｔａｌｓｐｏｒｔｅｋ SOCCER/EPL Ｓｔｒｅａｍｓ**: [Link](https://yoursunsetcountry.ca/classifieds/listings/%EF%BD%8F%EF%BD%92%EF%BD%89%EF%BD%87%EF%BD%89%EF%BD%8E%EF%BD%81%EF%BD%8C-soccer-epl-%EF%BD%93%EF%BD%94%EF%BD%92%EF%BD%85%EF%BD%81%EF%BD%8D%EF%BD%93-%EF%BD%94%EF%BD%8F%EF%BD%94%EF%BD%81%EF%BD%8C/)
+
+
+### psv - volendam (N/A, 30/11/2025 07:47 Lima)
+
+- **PSV-fans missen één naam in opstelling tegen Volendam: 'Dit voelt niet eerlijk'**: [Link](https://www.voetbalprimeur.nl/nieuws/1716972/verbazing-op-x-over-plek-voor-driouech-op-de-bank-bij-psv.html)
+- **LIVE eredivisie | PSV slaat na rust voor derde keer toe: Guus Til scoort opnieuw voor Eindhovenaren**: [Link](https://www.ad.nl/voetbal/live-eredivisie-psv-slaat-na-rust-voor-derde-keer-toe-guus-til-scoort-opnieuw-voor-eindhovenaren~a575f89c/)
+- **LIVE | PSV verdubbelt de voorsprong: Pepi doet het met een hoogstandje en zet Eindhovenaren op 2-0**: [Link](https://www.ed.nl/psv/live-psv-verdubbelt-de-voorsprong-pepi-doet-het-met-een-hoogstandje-en-zet-eindhovenaren-op-2-0~a7f63ae7/)
+
+
+### psv vs (N/A, 30/11/2025 07:47 Lima)
+
+- **PSV vs. FC Volendam (30 Nov, 2025) Live Score**: [Link](https://www.espn.in/football/match/_/gameId/741093)
+- **Preview: PSV Eindhoven vs. FC Volendam - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/psv-eindhoven/preview/psv-vs-volendam-prediction-team-news-lineups_586715.html)
+- **Veerman Gives PSV Early Lead Against Volendam; Pepi and Wanner Start**: [Link](https://www.el-balad.com/6779996)
+
+
+### que hora es en españa (N/A, 30/11/2025 07:47 Lima)
+
+- **Georgia: una hazaña y una despedida**: [Link](https://www.marca.com/baloncesto/2025/11/30/georgia-hazana-despedida.html)
+- **La nueva España se estrena en casa con ganas de revancha**: [Link](https://www.msn.com/es-es/deportes/baloncesto/la-nueva-espa%C3%B1a-se-estrena-en-casa-con-ganas-de-revancha/ar-AA1RqaNy)
+- **Javi Beirán: «Tenerife es una isla de mucho baloncesto y la visita de España es un lujo»**: [Link](https://www.deporpress.com/index.php/2025/11/29/javi-beiran-tenerife-es-una-isla-de-mucho-baloncesto-y-la-visita-de-espana-es-un-lujo/)
+
+
 ### aguinaldo (N/A, 30/11/2025 03:29 Lima)
 
 - **Aguinaldo y gratificación de diciembre 2025: ¿cuánto será el monto y cómo utilizarlo?**: [Link](https://rpp.pe/economia/tus-finanzas/aguinaldo-y-gratificacion-de-diciembre-2025-cuanto-sera-el-monto-y-como-utilizarlo-noticia-1665890)
@@ -969,67 +1030,5 @@
 - **Tijuana vs Tigres: posibles alineaciones de cuartos de final**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/16006701/tijuana-vs-tigres-alineaciones-liguilla-ida-cuartos-de-final-apertura-2025)
 - **📺 ¿Dónde ver Xolos de Tijuana - Tigres UANL EN VIVO GRATIS ahora por Liguilla MX 2025 en TV abierta?**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/donde-ver-xolos-de-tijuana-tigres-uanl-en-vivo-gratis-por-liguilla-mx-2025-en-tv-abierta-horarios-y-canales-online-en-directo-nnda-nnrt-noticia/)
 - **¡Escopetazo de Kevin Castañeda! Imposible para Nahuel, el 1-0 de Xolos**: [Link](https://www.tudn.com/futbol/liga-mx/escopetazo-de-kevin-castaneda-imposible-para-nahuel-el-1-0-de-xolos-video)
-
-
-### liga mx (N/A, 27/11/2025 03:34 Lima)
-
-- **Chivas vs Cruz Azul: posibles alineaciones, Liguilla Apertura 2025**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/16006819/chivas-vs-cruz-azul-alineaciones-liguilla-cuartos-de-final-ida-apertura-2025)
-- **Canal 5 y TUDN EN VIVO GRATIS - dónde ver partido Chivas de Guadalajara vs. Cruz Azul por tv abierta y Fútbol Online**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/canal-5-y-tudn-en-vivo-gratis-donde-ver-partido-chivas-de-guadalajara-vs-cruz-azul-por-tv-abierta-y-futbol-online-nnda-nnrt-noticia/)
-- **Bautizo de fuego para Gabriel Milito**: [Link](https://www.elnorte.com/bautizo-de-fuego-para-gabriel-milito/ar3113405)
-
-
-### nike (N/A, 27/11/2025 03:34 Lima)
-
-- **Phil Knight is once again rooting for Oregon Republicans next year**: [Link](https://www.opb.org/article/2025/11/25/phil-knight-oregon-republicans-3-million-dollar-donation/)
-- **Nike Founder Phil Knight Announces Record-Breaking Political Donation**: [Link](https://www.yahoo.com/news/articles/nike-founder-phil-knight-announces-174916413.html)
-- **Nike co-founder Phil Knight gives $3M to Republican PAC**: [Link](https://www.kgw.com/article/money/business/nike-co-founder-phil-knight-republican-pac/283-0d40bfeb-30e6-43ad-bd02-e82b48ded795)
-
-
-### black friday (N/A, 27/11/2025 03:34 Lima)
-
-- **From Clothing to Shoes, Here Are 36 Worth-It Black Friday Style Deals**: [Link](https://www.nytimes.com/wirecutter/money/black-friday-style-deals-2025/)
-- **People Always Ask Me What I Buy on Black Friday—Here Are the 10 Deals I Never Skip From Coach, Gap, and Adidas**: [Link](https://www.instyle.com/what-to-buy-early-black-friday-deals-november-2025-11856156)
-- **Black Friday fashion deals on our favorite clothing brands: Kate Spade, Hoka, Patagonia, REI and more**: [Link](https://www.yahoo.com/lifestyle/style/clothing/article/black-friday-fashion-deals-on-our-favorite-clothing-brands-kate-spade-hoka-patagonia-rei-and-more-154133571.html)
-
-
-### ripley (N/A, 27/11/2025 03:34 Lima)
-
-- **Ripley inaugura "Ripley Beauty" en Perú, su nuevo espacio de belleza: ¿qué novedades trae?**: [Link](https://www.peru-retail.com/ripley-beauty-mas-de-100-marcas-en-maquillaje-fragancias-y-cuidado-personal-donde-se-ubica/)
-- **“Fui mamá a los 22 y pensé que mi mundo se había acabado”: Natalie Vértiz se reinventa, apuesta por nuevos negocios y quiere estudiar una carrera**: [Link](https://elcomercio.pe/somos/historias/natalie-vertiz-fui-mama-a-los-22-y-pense-que-mi-mundo-se-habia-acabado-la-modelo-que-se-reinventa-apuesta-por-nuevos-negocios-y-quiere-estudiar-una-carrera-marquis-ripley-tlcnota-noticia/)
-- **Ripley da la bienvenida a Natalie Vértiz como nuevo rostro de la marca Marquis**: [Link](https://www.serperuano.com/2025/11/ripley-da-la-bienvenida-a-natalie-vertiz-como-nuevo-rostro-de-la-marca-marquis/)
-
-
-### henry stranger things (N/A, 27/11/2025 03:34 Lima)
-
-- **Stranger Things season five review – this luxurious final run will have you standing on a chair, yelling with joy**: [Link](https://www.theguardian.com/tv-and-radio/2025/nov/27/stranger-things-final-season-five-review-netflix)
-- **There Are Some New Faces in 'Stranger Things' Season 5—Get to Know the New and Returning Cast**: [Link](https://www.elle.com/culture/movies-tv/g69499080/stranger-things-season-5-cast-explained/)
-- **How ‘Stranger Things’ Defined the Era of the Algorithm**: [Link](https://www.nytimes.com/interactive/2025/11/26/arts/television/stranger-things-streaming-netflix.html)
-
-
-### warriors - rockets (N/A, 26/11/2025 23:30 Lima)
-
-- **What happens if the Warriors lose or win against the Rockets in 2025 NBA Cup tonight?**: [Link](https://bolavip.com/en/nba/what-happens-if-the-warriors-lose-or-win-against-the-rockets-in-2025-nba-cup-tonight)
-- **Kalshi Promo Code 'COVERS' Gives A $10 Bonus For Your First Trade On Timberwolves-Thunder**: [Link](https://www.covers.com/daily-promos/kalshi-promo-code-nba-timberwolves-thunder-11-26-2025)
-- **Stephen Curry Props and First Basket Odds for Rockets vs Warriors NBA Cup Clash Tonight**: [Link](https://www.bleachernation.com/betting/2025/11/26/stephen-curry-props-hvgs/)
-
-
-### monterrey - américa (N/A, 26/11/2025 23:30 Lima)
-
-- **Rayados vs América: posibles alineaciones, Liguilla Apertura 2025**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/16002671/monterrey-vs-america-alineaciones-liguilla-cuartos-de-final-apertura-2025-liga-mx)
-- **CF América vs Club de Fútbol Monterrey Rayados, A.C. | Pronóstico y cuotas 29.11.2025**: [Link](https://www.transfermarkt.es/apuestas/pronosticos-deportivos/cf-america-vs-cf-monterrey-pronostico-apuestas-30-11-2025/)
-- **Monterrey vs Club América hoy online: a qué hora es el partido y por qué canales lo pasan**: [Link](https://elcomercio.pe/deporte-total/mexico/monterrey-vs-america-en-vivo-gratis-hoy-via-futbol-libre-tv-canal-5-tudn-vix-horarios-canales-tv-y-donde-ver-partido-por-liga-mx-video-noticia/)
-
-
-### lita pezo (N/A, 26/11/2025 23:30 Lima)
-
-- **Lita Pezo: Su derrota en Viña del Mar, su pareja, la discriminación en Lima, La Voz Perú y más**: [Link](https://trome.com/espectaculos/tv/lita-pezo-su-derrota-en-vina-del-mar-su-pareja-la-discriminacion-en-lima-la-voz-peru-y-mas-video-fotos-cafe-con-la-chevez-noticia/)
-- **Lita Pezo revela cómo se sintió tras perder en Viña del Mar: “Tenía hambre y me comí salchipapa”**: [Link](https://trome.com/espectaculos/tv/lita-pezo-revela-como-se-sintio-tras-perder-en-vina-del-mar-tenia-hambre-y-me-comi-salchipapa-cafe-con-la-chevez-video-fotos-farandula-noticia/)
-
-
-### hong kong (N/A, 26/11/2025 23:30 Lima)
-
-- **Death toll in Hong Kong fire rises to 44 with 279 still missing, authorities say**: [Link](https://www.bbc.com/news/live/c2emg1kj1klt)
-- **Huge blaze in Hong Kong leaves at least 44 dead, 279 missing – as it happened**: [Link](https://www.scmp.com/news/hong-kong/society/article/3334217/major-fire-hong-kongs-tai-po-leaves-2-severely-burned-residents-trapped)
-- **At least 44 dead, hundreds missing as fire rips through Hong Kong tower blocks**: [Link](https://www.cnn.com/world/live-news/hong-kong-tai-po-buildings-fire-11-26-25)
 
 
