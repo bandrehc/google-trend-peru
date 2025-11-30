@@ -1,3 +1,45 @@
+### wwe (N/A, 29/11/2025 23:36 Lima)
+
+- **Shock Finish at Survivor Series WarGames as Hooded Figure Costs Punk’s Team**: [Link](https://slamwrestling.net/news/shock-finish-at-survivor-series-wargames-as-hooded-figure-costs-punks-team/)
+- **Mystery WWE Superstar Interferes at WarGames (And It’s Not Seth Rollins)**: [Link](https://comicbook.com/tv-shows/feature/mystery-wwe-superstar-interferes-at-wargames-and-its-not-seth-rollins/)
+- **WWE Survivor Series: WarGames Sets Stage For WrestleMania 42 As Masked Superstar Attacks CM Punk**: [Link](https://www.forbes.com/sites/djsiddiqi/2025/11/29/wwe-survivor-series-wargames-sets-stage-for-wrestlemania-42-as-masked-superstar-attacks-cm-punk/)
+
+
+### melissa klug (N/A, 29/11/2025 23:36 Lima)
+
+- **Melissa Klug admite crisis con Jesús Barco: “la falta de comunicación nos afectó” últimas | TVMAS**: [Link](https://elcomercio.pe/tvmas/farandula/melissa-klug-admite-crisis-con-jesus-barco-la-falta-de-comunicacion-nos-afecto-ultimas-noticia/)
+- **Magaly Medina arremete contra Melissa Klug tras salir de compras con Jesús Barco: “Es como criar a un niño”**: [Link](https://www.infobae.com/peru/2025/11/28/magaly-medina-arremete-contra-melissa-klug-tras-salir-de-compras-con-jesus-barco-es-como-criar-a-un-nino/)
+- **¿Volvieron? Filtran beso entre Melissa Klug y Jesús Barco antes de entrevista**: [Link](https://peru21.pe/espectaculos/volvieron-filtran-beso-entre-melissa-klug-y-jesus-barco-antes-de-entrevista/)
+
+
+### suns - nuggets (N/A, 29/11/2025 23:36 Lima)
+
+- **Nuggets face Suns on back-to-back**: [Link](https://www.nba.com/nuggets/news/nuggets-face-suns-on-back-to-back)
+- **Nikola Jokic (wrist) questionable to play Saturday**: [Link](https://www.fantasypros.com/nba/news/555734/nikola-jokic-wrist-questionable-to-play-saturday.php)
+- **NBA Best Bets: Nuggets vs. Suns Prop Bets for Saturday 11/29/25**: [Link](https://dknetwork.draftkings.com/2025/11/29/nba-best-bets-nuggets-vs-suns-prop-bets-for-saturday-11-29-25/)
+
+
+### tigres - tijuana (N/A, 29/11/2025 23:36 Lima)
+
+- **Tigres busca mejorar inercia cuando necesita remontar en Liguilla**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/16018040/tigres-vs-xolos-historial-remontadas-liguilla-estadio-universitario)
+- **Pronóstico Tigres UANL Tijuana - Liga MX 29/11/25**: [Link](https://www.sportytrader.com/es/pronosticos/tigres-uanl-tijuana-308505/)
+- **Qué canal pasa Tigres vs Tijuana hoy: dónde ver GRATIS y EN VIVO el partido de la Liga MX**: [Link](https://www.365scores.com/es/news/tigres-vs-tijuana-donde-ver-gratis-vivo/)
+
+
+### venezuela (N/A, 29/11/2025 23:36 Lima)
+
+- **Por la tensión con EE.UU., Venezuela enfrenta una crisis aérea y queda aún más aislada**: [Link](https://cnnespanol.cnn.com/2025/11/29/venezuela/eeuu-venezuela-crisis-aerea-tension-mas-aislada-orix)
+- **Trump declara el cierre total del espacio aéreo de Venezuela y el gobierno de Caracas califica el anuncio de "amenaza colonialista"**: [Link](https://www.bbc.com/mundo/articles/crrk0y87ne4o)
+- **El régimen de Maduro dijo que “no aceptará órdenes” tras el llamado de EEUU a evitar sobrevolar el espacio aéreo de Venezuela**: [Link](https://www.infobae.com/venezuela/2025/11/29/el-regimen-de-maduro-dijo-que-no-aceptara-ordenes-tras-el-llamado-de-eeuu-a-evitar-sobrevolar-el-espacio-aereo-de-venezuela/)
+
+
+### toluca vs (N/A, 29/11/2025 23:36 Lima)
+
+- **Toluca vs Juárez: posibles alineaciones, cuartos de final, Apertura 2025**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/16015446/toluca-vs-juarez-alineaciones-formaciones-cuartos-de-final-liguilla-apertura-2025-liga-mx)
+- **⚽ Mirar Toluca - Juárez EN VIVO GRATIS por vuelta de Liguilla MX en tv abierta**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/donde-ver-toluca-juarez-en-vivo-gratis-por-liguilla-mx-2025-en-tv-abierta-horarios-y-canales-tv-online-en-directo-nnda-nnrt-noticia/)
+- **Los Diablos Rojos ganaron la ida y les aseguró un puesto en la semifinal**: [Link](https://fdpradio.com/los-diablos-rojos-ganaron-la-ida-y-les-aseguro-un-puesto-en-la-semifinal/)
+
+
 ### warriors - pelicans (N/A, 29/11/2025 21:08 Lima)
 
 - **New Orleans Pelicans Injury Report: Will Zion Williamson Play Against the Warriors Tonight?**: [Link](https://inews.zoombangla.com/new-orleans-pelicans-injury-report-will-zion-williamson-play-against-the-warriors-tonight/)
@@ -989,47 +1031,5 @@
 - **Pronóstico Atlético Nacional CD Junior FC - Liga BetPlay 26/11/25**: [Link](https://www.sportytrader.com/es/pronosticos/atletico-nacional-club-atletico-junior-307781/)
 - **Nacional recibe al líder Junior en choque de invictos por el Grupo A**: [Link](https://www.espn.com.ar/futbol/colombia/nota/_/id/16003731/nacional-vs-junior-fecha-3-cuadrangulares-liga-betplay-equipo-fecha-hora-y-tv-en-vivo)
 - **El valor de apostar a córneres en Nacional vs. Junior**: [Link](https://www.futbolred.com/apuestas/pronosticos-nacional-vs-junior-26-11-2025-259233)
-
-
-### netflix (N/A, 26/11/2025 20:55 Lima)
-
-- **Las mejores películas en Netflix en Perú hoy**: [Link](https://www.infobae.com/peru/2025/11/26/las-mejores-peliculas-en-netflix-en-peru-hoy/)
-- **Lo más visto esta semana de Netflix en Perú**: [Link](https://www.infobae.com/peru/2025/11/21/lo-mas-visto-esta-semana-de-netflix-en-peru/)
-- **Las películas favoritas del público en Netflix Perú**: [Link](https://www.infobae.com/peru/2025/11/19/las-peliculas-favoritas-del-publico-en-netflix-peru/)
-
-
-### lanús - tigre (N/A, 26/11/2025 20:55 Lima)
-
-- **Lanús y Tigre definen el último boleto a cuartos de final del Torneo Clausura**: [Link](https://espndeportes.espn.com/futbol/argentina/nota/_/id/16006878/lanus-vs-tigre-octavos-de-final-torneo-clausura-equipo-hora-tv-en-vivo)
-- **Qué canal pasa Lanús vs Tigre hoy: dónde ver el partido gratis y en vivo de la Liga Profesional**: [Link](https://www.365scores.com/es/news/lanus-vs-tigre-donde-ver-gratis-vivo/)
-- **En la semana del pasillo gate, Lanús tuvo el suyo tras ganar la Copa Sudamericana**: [Link](https://www.elgrafico.com.ar/articulo/primera-division/95385/en-la-semana-del-pasillo-gate-lanus-tuvo-el-suyo-tras-ganar-la-copa-sudamericana)
-
-
-### bucaramanga - fortaleza (N/A, 26/11/2025 20:55 Lima)
-
-- **Fecha 3: Bucaramanga regresa a casa a enfrentar al colero Fortaleza**: [Link](https://www.espn.com.pe/futbol/colombia/nota/_/id/16004313/bucaramanga-vs-fortaleza-fecha-tres-cuadrangulares-equipo-fecha-hora-y-tv-en-vivo)
-- **Fecha 3: Bucaramanga regresa a casa a enfrentar al colero Fortaleza**: [Link](https://www.espn.com.ar/futbol/colombia/nota/_/id/16004313/bucaramanga-vs-fortaleza-fecha-tres-cuadrangulares-equipo-fecha-hora-y-tv-en-vivo)
-- **Transmisión EN VIVO del Bucaramanga vs Fortaleza hoy: cómo mirar el partido por TV o streaming**: [Link](https://www.365scores.com/es/news/transmision-bucaramanga-vs-fortaleza/)
-
-
-### olimpia vs (N/A, 26/11/2025 20:55 Lima)
-
-- **El Olimpia gana el clásico contra el Marathón y sigue líder en Honduras**: [Link](https://www.swissinfo.ch/spa/el-olimpia-gana-el-cl%C3%A1sico-contra-el-marath%C3%B3n-y-sigue-l%C3%ADder-en-honduras/90459228)
-- **Liga Nacional: Así quedó la tabla de posiciones tras disputarse la jornada 18**: [Link](https://www.deportestvc.com/liga-nacional/liga-nacional-tabla-posiciones-jornada-18-torneo-apertura-2025-11-23)
-- **¿Cómo marcha el torneo de la Liga Nacional de Honduras? Real España podría quedar eliminado y Motagua amenaza a Marathón**: [Link](https://www.diez.hn/liganacionaldehonduras/como-marcha-torneo-liga-nacional-de-honduras-marathon-olimpia-motagua-CI28315272)
-
-
-### olimpia (N/A, 26/11/2025 20:55 Lima)
-
-- **Ettore Messina stepped down; Peppe Poeta takes the Head Coach position**: [Link](https://www.olimpiamilano.com/en/ettore-messina-stepped-down-peppe-poeta-takes-the-head-coach-position/)
-- **New era in Milano: Who exactly is Giuseppe Poeta?**: [Link](https://basketnews.com/news-235647-new-era-in-milano-who-exactly-is-giuseppe-poeta.html)
-- **After dominating the second half, Olimpia Milano dismantles Maccabi Tel Aviv**: [Link](https://basketballsphere.com/en/after-dominating-the-second-half-olimpia-milano-dismantled-maccabi-tel-aviv/)
-
-
-### hernan barcos (N/A, 26/11/2025 20:55 Lima)
-
-- **Incendio en Alianza Lima: Hinchas culpan a Carlos Zambrano por la salida de Hernán Barcos: “Ahí lo tienen c...**: [Link](https://bolavip.com/pe/alianza-lima/incendio-en-alianza-lima-hinchas-culpan-a-carlos-zambrano-por-la-salida-de-hernan-barcos-ahi-lo-tienen-con-vaso-en-mano)
-- **Hernán Barcos no seguirá en Alianza Lima: el ‘Pirata’ se despide de los íntimos a fin de año**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/hernan-barcos-no-seguira-en-alianza-lima-el-pirata-se-despide-de-los-intimos-a-fin-de-ano-noticia/)
-- **Reimond Manco reveló los motivos por los que Alianza Lima no quiere renovarle a Hernán Barcos: “Su relación con el grupo está desgastada”**: [Link](https://www.infobae.com/peru/deportes/2025/11/25/reimond-manco-revelo-los-motivos-por-los-que-alianza-lima-no-quiere-renovarle-a-hernan-barcos-su-relacion-con-el-grupo-esta-desgastada/)
 
 
