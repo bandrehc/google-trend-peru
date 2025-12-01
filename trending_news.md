@@ -1,3 +1,52 @@
+### fenerbahçe - galatasaray (N/A, 01/12/2025 11:35 Lima)
+
+- **Süper Lig'in zirvesinde dev derbi: Fenerbahçe ve Galatasaray'ın ilk 11'leri**: [Link](https://www.ntv.com.tr/sporskor/super-ligin-zirvesinde-dev-derbi-fenerbahce-ve-galatasarayin-ilk-11leri-1701085)
+- **Kadıköy'de dikkat çeken görüntü: Galatasaraylı futbolcular şaşkınlığını gizleyemedi**: [Link](https://www.yenisafak.com/foto-galeri/spor/kadikoyde-dikkat-ceken-goruntu-galatasarayli-futbolcular-saskinligini-gizleyemedi-4774302)
+- **Mert Hakan Yandaş: Dünyanın en büyük derbilerinden biri**: [Link](https://www.haberturk.com/mert-hakan-yandas-dunyanin-en-buyuk-derbilerinden-biri-3842121-spor)
+
+
+### grupo frontera peru (N/A, 01/12/2025 11:35 Lima)
+
+- **Grupo Frontera confirma concierto en Perú: Fecha y lugar**: [Link](https://www.americatv.com.pe/noticias/espectaculos/grupo-frontera-peru-fecha-lugar-y-entradas-concierto-n513505)
+- **Entradas Grupo Frontera en Perú 2026: precios, fecha y a qué hora inicia la venta de entradas en Teleticket**: [Link](https://larepublica.pe/entretenimiento/2025/12/01/entradas-grupo-frontera-en-peru-2026-precios-fecha-y-a-que-hora-inicia-la-venta-de-entradas-en-teleticket-92311)
+- **Grupo Frontera confirma concierto en Perú: Fecha oficial, venta de entradas y todo sobre su gira**: [Link](https://cclconectados.com/grupo-frontera-en-peru-fecha-oficial-de-concierto-venta-de-entradas-en-teleticket-y-todo-sobre-su-gira-mundial/)
+
+
+### mef (N/A, 01/12/2025 11:35 Lima)
+
+- **Perú y Hong Kong avanzan hacia firma de un acuerdo de inversiones**: [Link](https://elperuano.pe/noticia/284084-peru-y-hong-kong-avanzan-hacia-firma-de-un-acuerdo-de-inversiones)
+- **Perú avanza hacia un Acuerdo de Inversiones con Hong Kong que abrirá la puerta a capital asiático desde 2026**: [Link](https://elcomercio.pe/economia/peru-avanza-hacia-un-acuerdo-de-inversiones-con-hong-kong-que-abrira-la-puerta-a-capital-asiatico-desde-2026-mfe-noticia/)
+- **Perú y Hong Kong cierran ronda de negociaciones y alistan firma de nuevo acuerdo de inversiones**: [Link](https://larepublica.pe/economia/2025/12/01/peru-y-hong-kong-cierran-ronda-de-negociaciones-y-alistan-firma-de-nuevo-acuerdo-de-inversiones-hnews-84921)
+
+
+### ley de presupuesto 2026 (N/A, 01/12/2025 11:35 Lima)
+
+- **Aprueban dictamen de Ley de Endeudamiento para garantizar financiamiento de sectores prioritarios**: [Link](https://comunicaciones.congreso.gob.pe/noticias/aprueban-dictamen-de-ley-de-endeudamiento-para-garantizar-financiamiento-de-sectores-prioritarios/)
+- **Congreso aprueba dictamen de la ley del presupuesto público 2026**: [Link](https://elperuano.pe/noticia/283991-congreso-aprueba-dictamen-de-la-ley-del-presupuesto-publico-2026)
+- **Parlamento da luz verde al marco de equilibrio fiscal para el Presupuesto 2026**: [Link](https://caretas.pe/home_web/home_principal/parlamento-da-luz-verde-al-marco-de-equilibrio-fiscal-para-el-presupuesto-2026/)
+
+
+### resultados de la tinka hoy domingo (N/A, 01/12/2025 11:35 Lima)
+
+- **La Tinka: conoce a los ganadores del sorteo del 26 de noviembre | nnav | amtv | video | VIDEOS**: [Link](https://elcomercio.pe/videos/entretenimiento/la-tinka-conoce-a-los-ganadores-del-sorteo-del-26-de-noviembre-nnav-amtv-video-noticia/)
+- **La Tinka hoy 30 de noviembre: revisa aquí los resultados del sorteo y comprueba tu jugada ganadora**: [Link](https://www.infobae.com/peru/2025/12/01/resultados-de-la-tinka-de-este-30-de-noviembre-de-2025-ganadores-del-ultimo-sorteo/)
+- **Resultados de La Tinka del domingo 30 de noviembre: números ganadores del Pozo Millonario**: [Link](https://depor.com/peru/la-tinka-hoy-domingo-30-de-noviembre-en-vivo-resultados-numeros-ganadores-del-ultimo-sorteo-pozo-millonario-boliyapa-resultado-si-o-si-intralot-peru-noticia/)
+
+
+### diciembre 2025 (N/A, 01/12/2025 11:35 Lima)
+
+- **90 Frases de DICIEMBRE 2025 para recibir el último mes del año**: [Link](https://elcomercio.pe/respuestas/que/90-frases-de-diciembre-2025-los-mejores-mensajes-para-recibir-el-ultimo-mes-del-ano-tdpe-noticia/)
+- **(ESPECIALES NAVIDAD 2025) Diciembre inicia entre balance y celebraciones**: [Link](https://ifmnoticias.com/especiales-navidad-2025-diciembre-inicia-entre-balance-y-celebraciones/)
+- **¡Bienvenido, diciembre 2025! Las mejores frases y mensajes para recibir el último mes del año**: [Link](https://libero.pe/ocio/redes-sociales/2025/11/30/bienvenido-diciembre-2025-mejores-frases-mensajes-recibir-ultimo-mes-del-ano-1309290)
+
+
+### cronograma de retiro de afp 2025 (N/A, 01/12/2025 11:35 Lima)
+
+- **Retiro de AFP: El significado de los estados en que puede estar tu solicitud**: [Link](https://www.infobae.com/peru/2025/11/29/retiro-de-afp-el-significado-de-los-estados-en-que-puede-estar-tu-proceso-de-solicitud/)
+- **Afiliados tienen nuevas fechas para retirar fondos y un plazo final del periodo libre, según cronograma del retiro AFP**: [Link](https://larepublica.pe/economia/2025/11/29/afiliados-tienen-nuevas-fechas-para-retirar-fondos-y-un-plazo-final-del-periodo-libre-segun-cronograma-del-retiro-afp-atmp-802111)
+- **Ingresa al LINK de Retiro AFP 2025: Solicita tu dinero, según tu número de DNI**: [Link](https://elcomercio.pe/respuestas/tramites/consulta-link-retiro-afp-hoy-accede-a-la-pagina-oficial-y-comienza-el-proceso-de-tu-solicitud-segun-tu-dni-tdpe-noticia/)
+
+
 ### dia mundial del sida (N/A, 01/12/2025 07:54 Lima)
 
 - **ONUSIDA alerta de que la respuesta contra el VIH sufre “su mayor revés” por los recortes en ayuda internacional**: [Link](https://caretas.pe/mundo/onusida-alerta-de-que-la-respuesta-contra-el-vih-sufre-su-mayor-reves-por-los-recortes-en-ayuda-internacional/)
@@ -981,54 +1030,5 @@ Sin noticias relacionadas disponibles.
 - **Black Friday 2025 deals from Hoka, Apple and Dyson are live now: Our top picks from this year’s biggest sale**: [Link](https://www.yahoo.com/lifestyle/deals/article/black-friday-2025-deals-from-hoka-apple-and-dyson-are-live-now-our-top-picks-from-this-years-biggest-sale-225248774.html)
 - **The 15 Best Black Friday Tech Deals on Top Routers, Phones, and More**: [Link](https://www.wired.com/story/black-friday-tech-deals-2025/)
 - **The best Black Friday sales are officially live. We found 132 deals worth shopping**: [Link](https://www.cnn.com/cnn-underscored/deals/best-black-friday-deals-2025-11-28)
-
-
-### iphone (N/A, 28/11/2025 03:34 Lima)
-
-- **Black Friday iPhone Deals Are Live—Save Up To $1,100 On The iPhone 17 Series**: [Link](https://www.forbes.com/sites/forbes-personal-shopper/2025/11/26/black-friday-iphone-deals/)
-- **Big savings are available on a new iPhone–check out the best Black Friday deals**: [Link](https://www.macworld.com/article/1375699/best-iphone-black-friday-week-deals-2025-nov-27.html)
-- **The Best Black Friday Phone Deals: Score Free Devices From Verizon, T-Mobile, and More**: [Link](https://www.businessinsider.com/guides/deals/black-friday-phone-deals-2025-11)
-
-
-### vuelos baratos (N/A, 28/11/2025 03:34 Lima)
-
-- **Reconocida aerolínea anuncia descuentos de hasta el 70% para volar hasta agosto de 2026: rutas, fechas y todo lo que debe saber**: [Link](https://www.semana.com/turismo/articulo/reconocida-aerolinea-anuncia-descuentos-de-hasta-el-70-para-volar-hasta-agosto-de-2026-rutas-fechas-y-todo-lo-que-debe-saber/202517/)
-- **Black Friday de aerolíneas: hasta 45 % de descuento en vuelos**: [Link](https://www.eluniverso.com/noticias/economia/black-friday-de-aerolineas-hasta-45-de-descuento-en-vuelos-nota/)
-- **Black Smart de JetSMART**: [Link](https://www.laopinion.co/economia/black-smart-de-jetsmart)
-
-
-### curacao (N/A, 28/11/2025 03:34 Lima)
-
-- **Now You Can Follow Curaçao Chronicle on WhatsApp!**: [Link](https://www.curacaochronicle.com/post/local/now-you-can-follow-curacao-chronicle-on-whatsapp)
-- **Grenada Joins Dominica, Anguilla, St. Kitts & Nevis, Belize, Curaçao, and Saba, Step Into the Booming Hidden Caribbean Treasures Before They Become the Ultimate Travel Obsession**: [Link](https://www.travelandtourworld.com/news/article/grenada-joins-dominica-anguilla-st-kitts-nevis-belize-curacao-and-saba-step-into-the-booming-hidden-caribbean-treasures-before-they-become-the-ultimate-travel-obsession/)
-- **Black Friday: Free Massage at Grenada’s Spice Island Beach Resort**: [Link](https://www.travelmarketreport.com/canada/hotels-resorts/articles/black-friday-free-massage-at-grenadas-spice-island-beach-resort)
-
-
-### avianca (N/A, 28/11/2025 03:34 Lima)
-
-- **Venezuela apuesta por incrementar vuelos con Rusia tras revocar concesión a 6 aerolíneas**: [Link](https://elcomercio.pe/mundo/venezuela/venezuela-apuesta-por-incrementar-vuelos-con-rusia-tras-revocar-concesion-a-6-aerolineas-estados-unidos-nicolas-maduro-ultimas-noticia/)
-- **Aerolíneas de América y Europa cancelan vuelos a Venezuela tras alerta de EE.UU.**: [Link](https://www.elperuano.pe/noticia/283643-aerolineas-de-america-y-europa-cancelan-vuelos-a-venezuela-tras-alerta-de-eeuu)
-- **Venezolanos varados en Perú: extranjeros se ven obligados a viajar por tierra tras suspensión global de vuelos en medio de la tensión con EE. UU.**: [Link](https://larepublica.pe/sociedad/2025/11/26/venezolanos-varados-en-peru-extranjeros-se-ven-obligados-a-viajar-por-tierra-tras-suspension-global-de-vuelos-en-medio-de-la-tension-con-ee-uu-ntpe-1665825)
-
-
-### samsung (N/A, 28/11/2025 03:34 Lima)
-
-- **If you must get an art TV, get The Frame**: [Link](https://www.theverge.com/tech/829002/youre-buying-a-frame-tv-its-okay-to-cheap-out-a-little)
-- **Samsung's huge Black Friday sale is live: get record-breaking deals on OLED TVs, Galaxy S25 Ultra, and much more**: [Link](https://www.techradar.com/phones/samsungs-huge-black-friday-sale-is-live-get-record-breaking-deals-on-oled-tvs-galaxy-s25-ultra-and-much-more)
-- **Samsung 65" OLED S90F TV Hits All-Time Low, 2025 Model Now Cheaper Than Last Year's Version**: [Link](https://kotaku.com/samsung-65-oled-s90f-tv-hits-all-time-low-2025-model-now-cheaper-than-last-years-version-2000648184)
-
-
-### latam peru (N/A, 28/11/2025 03:34 Lima)
-
-- **Autorizaron a una aerolínea a hacer vuelos que conectarán varias provincias con Estados Unidos, Brasil y otros países**: [Link](https://www.infobae.com/economia/2025/11/28/autorizaron-a-una-aerolinea-a-hacer-vuelos-que-conectaran-varias-provincias-con-estados-unidos-brasil-y-otros-paises/)
-- **LATAM Perú recibe autorización para volar entre siete ciudades argentinas y Cusco**: [Link](https://www.aviacionline.com/espanol/aviacion-comercial/latinoamerica-y-el-caribe/argentina/latam-peru-recibe-autorizacion-para-volar-entre-siete-ciudades-argentinas-y-cusco_a692913f5714f61d9c321c3fb)
-- **LATAM Airlines Perú se convierte en la aerolínea oficial que trae la magia de Toys R US a Latinoamérica**: [Link](https://www.businessempresarial.com.pe/latam-airlines-peru-se-convierte-en-la-aerolinea-oficial-que-trae-la-magia-de-toys-r-us-a-latinoamerica/)
-
-
-### apple (N/A, 28/11/2025 03:34 Lima)
-
-- **Apple Deals Are Rare. Lucky for You, We Found Black Friday Gems on iPads, MacBooks, and More.**: [Link](https://www.nytimes.com/wirecutter/money/apple-black-friday-deals-2025/)
-- **You Can Get Apple’s iPad for just $279 Right Now**: [Link](https://www.wired.com/story/apple-ipad-black-friday-deal-2025/)
-- **The best Apple Black Friday deals are live: Major discounts on AirPods, iPads, MacBooks, Apple Watches and AirTags**: [Link](https://www.engadget.com/deals/the-best-apple-black-friday-deals-are-live-major-discounts-on-airpods-ipads-macbooks-apple-watches-and-airtags-161346279.html)
 
 
