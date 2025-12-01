@@ -1,3 +1,52 @@
+### elecciones honduras 2025 (N/A, 30/11/2025 23:53 Lima)
+
+- **Honduras elige a un nuevo presidente en unas reñidas elecciones marcadas por las amenazas de Trump**: [Link](https://www.bbc.com/mundo/articles/c5yjx8yw950o)
+- **Elecciones presidenciales en Honduras, 2025, en vivo: votaciones, resultados y más**: [Link](https://cnnespanol.cnn.com/latinoamerica/live-news/elecciones-presidenciales-honduras-2025-resultados-orix)
+- **Observadores internacionales fueron expulsados de un centro de votación en Honduras por colectivos afines al partido oficialista**: [Link](https://www.infobae.com/america/america-latina/2025/12/01/observadores-internacionales-fueron-expulsados-de-un-centro-de-votacion-en-honduras-por-colectivos-afines-al-partido-oficialista/)
+
+
+### endrick (N/A, 30/11/2025 23:53 Lima)
+
+- **Endrick: Real Madrid is taking its time**: [Link](https://foot-africa.com/en/news/endrick-real-madrid-is-taking-its-time-982562/)
+- **Endrick will have to wait, Real Madrid delays the signing: 'He'll stay until...'**: [Link](https://e-noticies.cat/en/soccer/endrick-will-have-to-wait-real-madrid-delays-signing-he-will-stay-until)
+- **Bombshell! Florentino puts Endrick's loan to Lyon on hold: 'He wants to wait until...'**: [Link](https://madrid-barcelona.com/en/real-madrid/florentino-bomb-puts-endricks-loan-to-lyon-on-hold-wants-to-wait-until)
+
+
+### lakers - pelicans (N/A, 30/11/2025 23:53 Lima)
+
+- **New Orleans Pelicans vs Los Angeles Lakers Prediction, Pick, Odds -- 11/30**: [Link](https://www.actionnetwork.com/nba/new-orleans-pelicans-vs-los-angeles-lakers-prediction-pick-odds-sunday-november-30)
+- **HERE’S!* WAY TO WATCH Kings vs Grizzlies LIVE STREAMS NBA Basketball Game ON TV CHANNEL**: [Link](https://yoursunsetcountry.ca/classifieds/listings/heres-way-to-watch-kings-vs-grizzlies-live-streams-nba-basketball-game-on-tv-channel/)
+- **Photos: Pelicans at Lakers | Game Action 11/30/25**: [Link](https://www.nba.com/pelicans/photos/new-orleans-pelicans-vs-los-angeles-lakers-photos-game-action-11-30-2025)
+
+
+### elige tu local de votación onpe (N/A, 30/11/2025 23:53 Lima)
+
+- **Elige tu local de votación: esta es la fecha límite para escoger el centro donde vas a votar en las Elecciones 2026**: [Link](https://www.infobae.com/peru/2025/11/30/elige-tu-local-de-votacion-esta-es-la-fecha-limite-para-escoger-el-centro-donde-vas-a-votar-en-las-elecciones-2026/)
+- **ONPE recuerda que se puede elegir el local de votación para 2026 hasta el 14 de diciembre**: [Link](https://canaln.pe/actualidad/onpe-hasta-14-diciembre-podra-elegir-su-local-votacion-n488617)
+- **Ica: más de 17 mil ciudadanos ya eligieron sus tres opciones de locales de votación**: [Link](https://diariocorreo.pe/edicion/ica/ica-mas-de-17-mil-ciudadanos-ya-eligieron-sus-tres-opciones-de-locales-de-votacion-noticia/)
+
+
+### cazzu en lima (N/A, 30/11/2025 23:53 Lima)
+
+- **Cazzu recibió una camiseta de Selección Peruana previo a su concierto en Lima**: [Link](https://rpp.pe/famosos/celebridades/cazzu-en-peru-cantante-recibio-camiseta-de-seleccion-peruana-previo-a-su-concierto-en-lima-noticia-1665946)
+- **Cazzu debuta en el cine y encenderá Lima con "Latinaje"**: [Link](https://www.apnoticias.pe/peru/andina/cazzu-debuta-en-el-cine-y-encendera-lima-con-latinaje-1472420)
+- **Cazzu en Chile 2025: Horarios, apertura de puertas y objetos prohibidos**: [Link](https://los40.cl/2025/11/27/cazzu-en-chile-2025-horarios-apertura-de-puertas-y-objetos-prohibidos/)
+
+
+### cruz azul (N/A, 30/11/2025 23:53 Lima)
+
+- **Cruz Azul ganó a Chivas y clasificó a semifinales de la Liga MX**: [Link](https://libero.pe/futbol-internacional/liga-mx/2025/11/29/cruz-azul-vs-chivas-de-guadalajara-en-vivo-gratis-cuartos-de-final-liguilla-liga-mx-via-canal-5-tudn-video-vilb-515417)
+- **Copa Intercontinental 2025: Flamengo ya conoce rivales y fechas de sus partidos**: [Link](https://peru21.pe/deportes/copa-intercontinental-2025-flamengo-ya-conoce-rivales-y-fechas-de-sus-partidos/)
+- **Liga MX: ¿Qué necesita cada equipo para avanzar a las semifinales?**: [Link](https://www.espn.com.pe/futbol/mexico/nota/_/id/16013113/liga-mx-que-necesita-equipo-avanzar-semifinales-america-chivas-tigres)
+
+
+### junior (N/A, 30/11/2025 23:53 Lima)
+
+- **Junior Hockey World Cup 2025: India edge closer to quarter-final spot with 17-0 win over Oman**: [Link](https://www.olympics.com/en/news/junior-hockey-world-cup-2025-india-vs-oman-match-report)
+- **From crowdfunding a team to impressing at Junior Men’s World Cup 2025, a different Hockey blooms for Switzerland**: [Link](https://sportstar.thehindu.com/hockey/fih-mens-junior-world-cup-2025-switzerland-journey-of-success-in-wc-swiss-crowdfunding/article70341385.ece)
+- **France Thrash South Korea, Australia Hold Off Bangladesh in Junior Hockey World Cup**: [Link](https://www.sentinelassam.com/sports-news/france-thrash-south-korea-australia-hold-off-bangladesh-in-junior-hockey-world-cup)
+
+
 ### honduras (N/A, 30/11/2025 21:22 Lima)
 
 - **Honduras elige a un nuevo presidente en unas reñidas elecciones marcadas por las amenazas de Trump**: [Link](https://www.bbc.com/mundo/articles/c5yjx8yw950o)
@@ -981,54 +1030,5 @@ Sin noticias relacionadas disponibles.
 - **These routers are vulnerable to hackers: Update urgently now!**: [Link](https://www.pcworld.com/article/2988421/these-routers-are-vulnerable-to-hackers-update-urgently-now.html)
 - **Got an Asus PC or router? Beware of these new security flaws**: [Link](https://www.pcgamer.com/hardware/dangerous-security-flaws-could-potentially-affect-millions-of-asus-pc-and-router-owners-heres-how-to-protect-yourself/)
 - **ASUS warns of new critical auth bypass flaw in AiCloud routers**: [Link](https://www.bleepingcomputer.com/news/security/asus-warns-of-new-critical-auth-bypass-flaw-in-aicloud-routers/)
-
-
-### corte de luz arequipa (N/A, 27/11/2025 20:55 Lima)
-
-- **🔴🔵Sin luz desde el 25 al 27 de noviembre: 🚫💡 Verifica AQUÍ si tu distrito se verá afectado con el corte desde HOY 👇**: [Link](https://www.facebook.com/Exitosanoticias/posts/sin-luz-desde-el-25-al-27-de-noviembre-verifica-aqu%C3%AD-si-tu-distrito-se-ver%C3%A1-afec/1285122053650850/)
-- **Anuncian corte de luz programado para el 28 y 29 de noviembre: Lista de distritos afectados con la m**: [Link](https://www.apnoticias.pe/peru/exitosa-noticias/anuncian-corte-de-luz-programado-para-el-28-y-29-de-noviembre-lista-de-distritos-afectados-con-la-medida-1473018)
-- **Corte de luz hasta el 29 de noviembre: Durante cuatro días, Seal suspenderá su servicio en estas zonas**: [Link](https://www.infobae.com/peru/2025/11/25/corte-de-luz-hasta-el-29-de-noviembre-durante-cuatro-dias-seal-suspendera-su-servicio-en-estas-zonas/)
-
-
-### américa - medellín (N/A, 27/11/2025 20:55 Lima)
-
-- **América vs Medellín: Así serán las alineaciones titulares en la fecha 3 de cuadrangulares**: [Link](https://www.espn.com.ar/futbol/colombia/nota/_/id/16014990/america-vs-independiente-medellin-alineaciones-titulares-fecha-3-cuadrangulares)
-- **América de Cali vs Medellín hoy: Resultado EN VIVO, minuto a minuto y goles del partido**: [Link](https://www.365scores.com/es/news/america-vs-medellin-en-vivo-liga/)
-- **¿Gol válido? Gran definición de Tilman que no sumó en América vs DIM**: [Link](https://www.futbolred.com/futbol-colombiano/liga-betplay/video-vea-jugada-de-gol-anulada-a-america-de-cali-vs-medellin-fuera-de-lugar-de-tilman-palacios-259286)
-
-
-### fluminense - são paulo (N/A, 27/11/2025 20:55 Lima)
-
-- **Gabriel Sá: Largado pela diretoria, São Paulo é humilhado no Maracanã**: [Link](https://www.uol.com.br/esporte/futebol/ultimas-noticias/2025/11/27/largado-pela-diretoria-sao-paulo-e-humilhado-no-maracana.htm)
-- **Fluminense: Zubeldía ‘amassa’ Crespo em reencontro com São Paulo**: [Link](https://www.itatiaia.com.br/esportes/futebol/futebol-nacional/brasileirao-serie-a/fluminense-zubeldia-amassa-crespo-em-reencontro-com-sao-paulo)
-- **Lucho Acosta e Zubeldía estão entre os pendurados do Fluminense; Confira**: [Link](https://www.netflu.com.br/lucho-acosta-e-zubeldia-estao-entre-os-pendurados-do-fluminense-confira/)
-
-
-### fluminense vs (N/A, 27/11/2025 20:55 Lima)
-
-- **Fluminense thrash São Paulo to seal Copa Libertadores spot**: [Link](https://sports.yahoo.com/articles/fluminense-thrash-o-paulo-seal-012200497.html)
-- **Fluminense vs São Paulo tonight and both teams playing for Libertadores spots—here's what happens to top-4 race if either draws instead of winning**: [Link](https://www.red94.net/news/22320-fluminense-vs-sao-paulo-in-crucial-brasileirao-clash-at-maracana-tonight-both-te/)
-- **Fluminense vs Sao Paulo Preview, prediction, lineups, betting tips & odds | Brazilian Serie A 2025**: [Link](https://khelnow.com/football/world-football-fluminense-vs-sao-paulo-preview-202511)
-
-
-### panathinaikos vs (N/A, 27/11/2025 20:55 Lima)
-
-- **Panathinaikos vs Sturm Graz: UEFA Europa League stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c33mvvkxrmxt)
-- **Greece Europa League Soccer**: [Link](https://www.wvnews.com/sports/pro/greece-europa-league-soccer/image_d856868d-0f5d-54a0-820c-e7ee6a65919a.html)
-- **Preview: Panathinaikos vs Sturm Graz - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/panathinaikos/europa-league/preview/panathinaikos-vs-sturm-graz-prediction-team-news-lineups_586420.html)
-
-
-### panathinaikos (N/A, 27/11/2025 20:55 Lima)
-
-- **Trump celebrating Thanksgiving at Mar-a-Lago**: [Link](https://www.cbsnews.com/news/trump-celebrating-thanksgiving-at-mar-a-lago/)
-- **Sixth annual Thanksgiving day Human Horse Race, in New Orleans**: [Link](https://www.reutersconnect.com/item/sixth-annual-thanksgiving-day-human-horse-race-in-new-orleans/dGFnOnJldXRlcnMuY29tLDIwMjU6bmV3c21sX1JDMjU1SUFGVldVVg)
-- **Trump takes 6-day vacation to Mar-a-Lago while Americans struggle with skyrocketing prices**: [Link](https://www.rawstory.com/alternet-posts/trump-vacation-high-prices/)
-
-
-### estrella roja vs (N/A, 27/11/2025 20:55 Lima)
-
-- **Estrella Roja de Belgrado vs Fotbal Club FCSB | Pronóstico y cuotas 27.11.2025**: [Link](https://www.transfermarkt.es/apuestas/pronosticos-deportivos/estrella-roja-vs-fotbal-club-fcsb-pronostico-apuestas-27-11-2025/)
-- **Est. Roja vs FCSB por la fecha 5 de UEFA Europa League EN VIVO. Seguilo minuto a minuto por la web de TN.**: [Link](https://tn.com.ar/deportes/futbol/2025/11/27/est-roja-vs-fcsb-en-vivo-por-la-fecha-5-de-la-uefa-europa-league-hora-donde-ver-y-formaciones/)
-- **Estrella Roja vs FCSB en vivo minuto a minuto hoy | Europa League**: [Link](https://www.mundodeportivo.com/us/futbol/europa-league/20251127/735018/estrella-roja-vs-fcsb-vivo-minuto-minuto-hoy-europa-league-drca1.html)
 
 
