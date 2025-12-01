@@ -1,3 +1,44 @@
+### dia mundial del sida (N/A, 01/12/2025 07:54 Lima)
+
+- **ONUSIDA alerta de que la respuesta contra el VIH sufre “su mayor revés” por los recortes en ayuda internacional**: [Link](https://caretas.pe/mundo/onusida-alerta-de-que-la-respuesta-contra-el-vih-sufre-su-mayor-reves-por-los-recortes-en-ayuda-internacional/)
+- **Crisis global del VIH se agrava por recortes de ayuda internacional, alerta ONU SIDA**: [Link](https://diarioviral.pe/internacional/crisis-global-del-vih-se-agrava-por-recortes-de-ayuda-internacional-alerta-onu-sida-49246)
+
+
+### hora (N/A, 01/12/2025 07:54 Lima)
+
+- **¿Dónde ver la carrera de F1 GP de Qatar 2025 por TV abierta en USA y México?**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/donde-ver-carrera-de-f1-gp-de-qatar-2025-en-vivo-gratis-por-tv-abierta-en-usa-y-mexico-nnda-nnrt-noticia/)
+- **Qué resultados necesitan Norris, Verstappen y Piastri en Abu Dhabi para ser campeones**: [Link](https://es.motorsport.com/f1/news/cuentas-titulo-norris-verstappen-abu-dhabi/10781289/)
+- **Lando Norris será campeón del mundo en Qatar si...**: [Link](https://www.marca.com/motor/formula1/gp-qatar/2025/11/30/lando-norris-sera-campeon-mundo-qatar.html)
+
+
+### feriados diciembre 2025 (N/A, 01/12/2025 07:54 Lima)
+
+- **8 y 9 de diciembre son feriados en Perú: ¿Habrá fin de semana largo? Esto anunció el Gobierno**: [Link](https://www.infobae.com/peru/2025/11/26/8-y-9-de-diciembre-son-feriados-en-peru-habra-fin-de-semana-largo-esto-anuncio-el-gobierno/)
+- **Feriados de diciembre 2025: inicio del feriado largo y qué se celebra en Perú**: [Link](https://elcomercio.pe/respuestas/cuando/trabajadores-peruanos-estos-son-los-ultimos-feriados-del-2025-en-diciembre-cuando-caen-y-que-se-celebra-tdpe-noticia/)
+- **Escolares gozarán de 4 días de descanso consecutivos en diciembre por feriado largo a nivel nacional**: [Link](https://larepublica.pe/sociedad/2025/11/26/escolares-gozaran-de-4-dias-de-descanso-consecutivos-en-diciembre-por-feriado-largo-a-nivel-nacional-2052804)
+
+
+### 1 de diciembre (N/A, 01/12/2025 07:54 Lima)
+
+- **Horóscopo de hoy, 1 de diciembre: Estas son las predicciones más exactas para tu signo**: [Link](https://elcomercio.pe/luces/vida-social/horoscopo-de-hoy-1-de-diciembre-estas-son-las-predicciones-mas-exactas-para-tu-signo-noticia/)
+- **Horóscopo diario gratis: la predicción para hoy, domingo 30 de noviembre**: [Link](https://okdiario.com/horoscopo/horoscopo-diario-gratis-prediccion-hoy-domingo-30-noviembre-15818883)
+- **Horóscopo de hoy de Nana Calistar 30 de noviembre de 2025**: [Link](https://laopinion.com/2025/11/30/horoscopo-de-hoy-de-nana-calistar-30-de-noviembre-de-2025/)
+
+
+### excel de infieles (N/A, 01/12/2025 07:54 Lima)
+
+- **Furor en redes por la supuesta ‘Lista Negra de las Girls’: publican archivo viral que expone a presuntos infieles en Perú**: [Link](https://larepublica.pe/tendencias/2025/11/30/furor-en-redes-por-la-supuesta-lista-negra-de-las-girls-publican-archivo-viral-que-expone-a-presuntos-infieles-en-peru-atmp-2146350)
+- **Filtran “lista negra de infieles” en Excel y miles ya buscan nombres**: [Link](https://wapa.pe/ocio/2025/11/30/filtran-lista-negra-infieles-en-excel-miles-buscan-nombres-2937150)
+- **Publican LISTA DE HOMBRES INFIELES de Perú: 'La lista negra de las girls' causa furor en redes**: [Link](https://www.exitosanoticias.pe/virales/publican-lista-hombres-infieles-peru-la-lista-negra-girls-causa-furor-redes-n163754)
+
+
+### diciembre (N/A, 01/12/2025 07:54 Lima)
+
+- **Pronóstico del tiempo en Florida hoy lunes 1 de diciembre de 2025: así es el clima en Miami, Orlando y Tampa**: [Link](https://elcomercio.pe/mag/usa/local-us/pronostico-del-tiempo-en-florida-hoy-1-de-diciembre-de-2025-el-clima-en-miami-orlando-y-tampa-nnda-nnrt-noticia/)
+- **Pronóstico del tiempo en Miami para este lunes 1 de diciembre**: [Link](https://laopinion.com/2025/12/01/pronostico-del-tiempo-en-miami-para-este-lunes-1-de-diciembre/)
+- **Pronóstico del clima en Miami hoy 1 de diciembre de 2025**: [Link](https://www.debate.com.mx/mundo/pronostico-del-clima-en-miami-hoy-1-de-diciembre-de-2025-20251201-0023.html)
+
+
 ### navidad (N/A, 01/12/2025 03:37 Lima)
 
 - **Lo estabas haciendo mal: por qué montar el árbol de Navidad en el puente de diciembre es un error**: [Link](https://www.mujerhoy.com/vivir/decoracion/montar-arbol-navidad-puente-diciembre-error-razones-20251129155855-nt.html)
@@ -989,46 +1030,5 @@ Sin noticias relacionadas disponibles.
 - **Apple Deals Are Rare. Lucky for You, We Found Black Friday Gems on iPads, MacBooks, and More.**: [Link](https://www.nytimes.com/wirecutter/money/apple-black-friday-deals-2025/)
 - **You Can Get Apple’s iPad for just $279 Right Now**: [Link](https://www.wired.com/story/apple-ipad-black-friday-deal-2025/)
 - **The best Apple Black Friday deals are live: Major discounts on AirPods, iPads, MacBooks, Apple Watches and AirTags**: [Link](https://www.engadget.com/deals/the-best-apple-black-friday-deals-are-live-major-discounts-on-airpods-ipads-macbooks-apple-watches-and-airtags-161346279.html)
-
-
-### amazon (N/A, 28/11/2025 03:34 Lima)
-
-- **Best live Black Friday deals and sales you can shop right now**: [Link](https://www.usatoday.com/live-story/shopping/2025/11/28/best-live-black-friday-2025-deals-and-sales/87467058007/)
-- **Avoid Lousy Amazon Black Friday Deals. These Are the Real Deals (Trust Us, We Know).**: [Link](https://www.nytimes.com/wirecutter/money/amazon-black-friday-deals-2025-1127/)
-- **Where can you find the best Black Friday deals? WalletHub crunches 2025 numbers**: [Link](https://www.statesman.com/news/article/black-friday-best-retailers-discounts-2025-21196498.php)
-
-
-### marathon (N/A, 28/11/2025 03:34 Lima)
-
-- **Freshworks Chennai Marathon to be held on January 5**: [Link](https://www.thehindu.com/news/cities/chennai/freshworks-chennai-marathon-to-be-held-on-january-5/article70330496.ece)
-- **Stars hope to conquer Iten Marathon's challenging course**: [Link](https://www.standardmedia.co.ke/sports/article/2001535182/stars-hope-to-conquer-iten-marathon-s-challenging-course)
-- **Lukenya University Ten Million Trees Marathon to target Ksh30m kitty**: [Link](https://www.citizen.digital/sports/lukenya-university-ten-million-trees-marathon-to-target-ksh30m-kitty-n373575)
-
-
-### booking (N/A, 28/11/2025 03:34 Lima)
-
-- **'Tere Ishk Mein' Movie Review and Release Live Updates: Netizens laud the Dhanush, Kriti Sanon starrer**: [Link](https://timesofindia.indiatimes.com/entertainment/hindi/bollywood/news/tere-ishk-mein-movie-review-release-live-update-dhanush-kriti-sanon-tere-ishk-mein-review-and-box-office-collection/liveblog/125627154.cms)
-- **Tere Ishk Mein box office prediction: Dhanush, Kriti Sanon film set for record ₹12 crore start, only behind Saiyaara | Bollywood**: [Link](https://www.hindustantimes.com/entertainment/bollywood/tere-ishk-mein-box-office-prediction-dhanush-kriti-sanon-film-set-for-12-crore-opening-beat-jolly-llb-3-raanjhana-101764240493344.html)
-- **Tere Ishk Mein advance day 1 box office collection: Dhanush-Kriti Sanon film off to a promising start, eyes Rs 10-12 cr opening**: [Link](https://indianexpress.com/article/entertainment/bollywood/tere-ishk-mein-advance-day-1-box-office-collection-dhanush-kriti-sanon-film-rs-10-12-cr-opening-10390697/)
-
-
-### conrado osorio (N/A, 27/11/2025 23:30 Lima)
-
-- **Murió Conrado Osorio, famoso actor colombiano de 'La reina del sur' y 'La fea más bella'**: [Link](https://rpp.pe/famosos/celebridades/conrado-osorio-muere-actor-colombiano-de-la-reina-del-sur-la-fea-mas-bella-y-la-ley-del-corazon-noticia-1665649)
-- **Muere Conrado Osorio a los 49 años, actor colombiano de la ‘Reina del sur’ y ‘La fea más bella’**: [Link](https://larepublica.pe/entretenimiento/2025/11/27/muere-conrado-osorio-a-los-49-anos-actor-colombiano-de-la-reina-del-sur-y-la-fea-mas-bella-902367)
-
-
-### billie eilish (N/A, 27/11/2025 23:30 Lima)
-
-- **Billie Eilish introduced them to a whole new audience, and now '90s indie band Black Box Recorder are back**: [Link](https://www.yahoo.com/entertainment/music/articles/billie-eilish-introduced-them-whole-172838713.html)
-- **“This is not about nostalgia, this is about…**: [Link](https://www.inkl.com/news/this-is-not-about-nostalgia-this-is-about-vindication-redemption-and-celebration-billie-eilish-introduced-them-to-a-whole-new-audience-and-now-90s-indie-band-black-box-recorder-are-going-back-on-stage)
-- **Billie Eilish spotted with A-lister and fans are losing their minds**: [Link](https://www.tyla.com/entertainment/celebrity/billie-eilish-nat-wolff-relationship-timeline-explained-713494-20251127)
-
-
-### bruce willis (N/A, 27/11/2025 23:30 Lima)
-
-- **Emma Heming Willis Says Holidays Are Still 'Joyous' with Husband Bruce Willis: 'It Just Looks Different' (Exclusive)**: [Link](https://people.com/emma-heming-willis-holidays-joyous-different-bruce-willis-exclusive-11856367)
-- **Rumer Willis gives heartbreaking update on dad Bruce’s dementia battle: ‘Not doing great’**: [Link](https://nypost.com/2025/11/21/entertainment/rumer-willis-gives-heartbreaking-update-on-bruces-dementia-battle/)
-- **Bruce Willis's Wife Will Donate His Brain to Science: The Reason for the Decision**: [Link](https://112.ua/en/druzina-brusa-villisa-prigolomsila-so-zrobit-z-mozkom-vazkohvorogo-aktora-pisla-jogo-smerti-114929)
 
 
