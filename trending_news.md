@@ -1,3 +1,73 @@
+### honduras (N/A, 30/11/2025 21:22 Lima)
+
+- **Honduras elige a un nuevo presidente en unas reñidas elecciones marcadas por las amenazas de Trump**: [Link](https://www.bbc.com/mundo/articles/c5yjx8yw950o)
+- **Observadores internacionales fueron expulsados de un centro de votación en Honduras por colectivos afines al partido oficialista**: [Link](https://www.infobae.com/america/america-latina/2025/12/01/observadores-internacionales-fueron-expulsados-de-un-centro-de-votacion-en-honduras-por-colectivos-afines-al-partido-oficialista/)
+- **Elecciones presidenciales en Honduras, 2025, en vivo: votaciones, resultados y más**: [Link](https://cnnespanol.cnn.com/latinoamerica/live-news/elecciones-presidenciales-honduras-2025-resultados-orix)
+
+
+### timberwolves - spurs (N/A, 30/11/2025 21:22 Lima)
+
+- **HERE’S!* WAY TO WATCH Minnesota Timberwolves vs San Antonio Spurs LIVE STREAMS NBA Basketball Game ON TV CHANNEL**: [Link](https://yoursunsetcountry.ca/classifieds/listings/heres-way-to-watch-minnesota-timberwolves-vs-san-antonio-spurs-live-streams-nba-basketball-game-on-tv-channel/)
+- **Spurs vs. Timberwolves Prediction, Odds and Best NBA Prop Bets for Sunday, Nov. 30**: [Link](https://www.si.com/betting/spurs-vs-timberwolves-prediction-odds-and-best-nba-prop-bets-for-sunday-nov-30)
+- **Get tickets to Timberwolves vs. Spurs tonight: game preview, injury updates & where to watch on TV or streaming**: [Link](https://timberwolves.com/news/get-tickets-timberwolves-spurs-tonight-game-preview-injury-updates-where-to-watch-on-tv-streaming)
+
+
+### enrique valderrama (N/A, 30/11/2025 21:22 Lima)
+
+- **Enrique Valderrama es el candidato presidencial oficial del APRA, con el 75% de actas procesadas por la ONPE: ¿quién es?**: [Link](https://www.infobae.com/peru/2025/11/30/enrique-valderrama-es-el-candidato-presidencial-oficial-del-apra-con-el-75-de-actas-procesadas-por-la-onpe-quien-es/)
+- **APRA celebra elecciones primarias: "Es la mejor forma de consolidar una democracia", dice Javier Velásquez Quesquén**: [Link](https://rpp.pe/politica/elecciones/apra-celebra-elecciones-primarias-es-la-mejor-forma-de-consolidar-una-democracia-dice-javier-velasquez-quesquen-noticia-1665955)
+- **Así van las elecciones internas en el Partido Aprista al 93.851% del escrutinio de votos**: [Link](https://elcomercio.pe/politica/elecciones/elecciones-2026-partido-aprista-elecciones-internas-enrique-valderrama-javier-velasquez-quesquen-onpe-ultimas-noticia/)
+
+
+### cruz azul - guadalajara (N/A, 30/11/2025 21:22 Lima)
+
+- **Chivas: 'Hormiga' y Bryan González viajan para la vuelta vs Cruz Azul**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/16022934/cruz-azul-vs-chivas-cuartos-de-final-vuelta-plantel-hormiga-bryan-gonzalez)
+- **📺 ¿En qué canal transmiten Cruz Azul vs. Chivas de Guadalajara EN VIVO hoy por Liguilla MX 2025 en México y EE.UU.?**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/que-canal-transmite-cruz-azul-vs-chivas-de-guadalajara-en-vivo-hoy-por-vuelta-liguilla-mx-2025-en-mexico-y-usa-canales-tv-online-streaming-gratis-nnda-nnrt-noticia/)
+- **Cruz Azul vs Chivas hoy: Resultado EN VIVO, minuto a minuto y goles de la Liga MX**: [Link](https://www.365scores.com/es/news/cruz-azul-vs-chivas-resultado-vivo-goles/)
+
+
+### cavaliers - celtics (N/A, 30/11/2025 21:22 Lima)
+
+- **Derrick White, Neemias Queta given rest amid Celtics’ busy week**: [Link](https://www.bostonglobe.com/2025/11/30/sports/celtics-rest-white-queta-cavaliers/)
+- **Cavs score, injury report vs Celtics as Cleveland battles Boston**: [Link](https://www.beaconjournal.com/story/sports/pro/cavs/2025/11/30/cleveland-cavs-score-today-boston-celtics-injury-report-recap/87541667007/)
+- **Celtics vs. Cavaliers Prediction, Odds and Best NBA Prop Bets for Sunday, Nov. 30**: [Link](https://www.si.com/betting/celtics-vs-cavaliers-prediction-odds-and-best-nba-prop-bets-for-sunday-nov-30)
+
+
+### primera división (N/A, 30/11/2025 21:22 Lima)
+
+- **Es el hogar de Pablo Aimar y disputó los antiguos Nacionales: la historia de Estudiantes de Río Cuarto, que jugará en Primera**: [Link](https://www.infobae.com/deportes/2025/11/30/la-historia-de-estudiantes-de-rio-cuarto-el-hogar-de-pablo-aimar-que-jugara-en-primera/)
+- **Desde cuándo Estudiantes de Río Cuarto no jugaba en Primera Divisón**: [Link](https://www.espn.com.ar/futbol/argentina/nota/_/id/16028777/estudiantes-rio-cuarto-vuelve-40-anos-primera-divison-futbol-argentino)
+- **Remontada épica de Estudiantes (RC) para coronarse campeón**: [Link](https://www.directvsports.com/futbol/remontada-epica-de-estudiantes-rc-para-coronarse-campeon-20251126-0015.html)
+
+
+### junior - atlético nacional (N/A, 30/11/2025 21:22 Lima)
+
+- **Atlético Nacional y Junior se repartieron los puntos en Ditaires por los cuadrangulares**: [Link](https://bolavip.com/pe/futbol-internacional/atletico-nacional-vs-junior-en-vivo-y-gratis-por-el-grupo-a-de-la-primera-a-via-rcn)
+- **(VIDEO) Junior venció a Atlético Nacional y se acerca a la final del Clausura colombiano**: [Link](https://ovacion.pe/noticias/futbol-internacional/video-junior-vencio-atletico-nacional-se-acerca-final-del-clausura)
+- **Junior Hockey World Cup 2025: India edge closer to quarter-final spot with 17-0 win over Oman**: [Link](https://www.olympics.com/en/news/junior-hockey-world-cup-2025-india-vs-oman-match-report)
+
+
+### delfín - emelec (N/A, 30/11/2025 21:22 Lima)
+
+- **Barco fue titular en el triunfo de Emelec ante Delfín por la Serie A de Ecuador**: [Link](https://ovacion.pe/noticias/peruanos-mundo/barco-fue-titular-triunfo-emelec-ante-delfin-serie-ecuador)
+- **Delfín vs Emelec: Must-win showdown in Serie A — who can’t afford to drop points?**: [Link](https://www.red94.net/news/70329-delfin-emelec-clash-in-must-win-showdown-here-s-why-both-won-t-want-to-drop-poin/)
+- **Barco fue titular en el triunfo de Emelec ante Delfín por la Serie A de Ecuador**: [Link](https://ovacion.pe/noticias/peruanos-mundo/barco-fue-titular-triunfo-emelec-ante-delfin-serie-ecuador)
+
+
+### marca (N/A, 30/11/2025 21:22 Lima)
+
+- **San Diego vs. Vancouver (29 de Nov., 2025) Resultados en Vivo**: [Link](https://www.espn.com.pe/futbol/partido/_/juegoId/762050/vancouver-whitecaps-san-diego-fc)
+- **Kenji Cabrera, finalista de la MLS: Vancouver Whitecaps enfrentará a Inter Miami de Lionel Messi**: [Link](https://rpp.pe/futbol/futbol-mundial/vancouver-whitecaps-vs-san-diego-fc-en-vivo-con-kenji-cabrera-horario-y-canales-tv-de-final-conferencia-oeste-mls-2025-link-streaming-partidos-de-hoy-noticia-1665775)
+- **San Diego FC vs Vancouver Whitecaps pronostico y comparación de cuotas 30.11.2025**: [Link](https://www.livetipsportal.com/es/pronosticos-apuestas-deportivas/san-diego-fc-vs-vancouver-whitecaps-major-league-soccer-11735176/)
+
+
+### liga (N/A, 30/11/2025 21:22 Lima)
+
+- **Perú vs Venezuela: día, hora y canal TV del partido en Lara por la cuarta jornada de la Liga de Naciones Femenina**: [Link](https://www.infobae.com/peru/deportes/2025/11/30/peru-vs-venezuela-dia-hora-y-canal-tv-del-partido-en-lara-por-la-cuarta-jornada-de-la-liga-de-naciones-femenina/)
+- **Selección Peruana: ¿La Bicolor podrá viajar a Venezuela pese a la advertencia de Donald Trump?**: [Link](https://www.futbolperuano.com/futbol-femenino/liga-naciones-conmebol/peru-podra-viajar-a-venezuela-pese-a-la-advertencia-de-donald-trump-553415)
+- **Real Madrid empató con Girona y dejó a Barcelona en lo más alto de LaLiga**: [Link](https://www.espn.com.pe/futbol/espana/nota/_/id/16015384/girona-vs-real-madrid-fecha-14-laliga-fecha-hora-estadio-y-tv-en-vivo)
+
+
 ### porto vs (N/A, 30/11/2025 15:27 Lima)
 
 - **Europa League: Se enfrentan Porto y Nice por la fecha 5**: [Link](https://rpp.pe/futbol/ligas-internacionales/europa-league-se-enfrentan-porto-y-nice-por-la-fecha-5-noticia-1665362)
@@ -960,75 +1030,5 @@ Sin noticias relacionadas disponibles.
 - **Estrella Roja de Belgrado vs Fotbal Club FCSB | Pronóstico y cuotas 27.11.2025**: [Link](https://www.transfermarkt.es/apuestas/pronosticos-deportivos/estrella-roja-vs-fotbal-club-fcsb-pronostico-apuestas-27-11-2025/)
 - **Est. Roja vs FCSB por la fecha 5 de UEFA Europa League EN VIVO. Seguilo minuto a minuto por la web de TN.**: [Link](https://tn.com.ar/deportes/futbol/2025/11/27/est-roja-vs-fcsb-en-vivo-por-la-fecha-5-de-la-uefa-europa-league-hora-donde-ver-y-formaciones/)
 - **Estrella Roja vs FCSB en vivo minuto a minuto hoy | Europa League**: [Link](https://www.mundodeportivo.com/us/futbol/europa-league/20251127/735018/estrella-roja-vs-fcsb-vivo-minuto-minuto-hoy-europa-league-drca1.html)
-
-
-### betis vs (N/A, 27/11/2025 15:25 Lima)
-
-- **Real Betis - Utrecht, en directo: Europa League, hoy en vivo**: [Link](https://as.com/futbol/uefa/real-betis-utrecht-en-directo-europa-league-hoy-en-vivo-f202511-d/)
-- **Manuel Pellegrini aún no piensa en el Sevilla y colocará su mejor equipo en Europa League**: [Link](https://espndeportes.espn.com/futbol/uefa-europa-league/nota/_/id/16009004/manuel-pellegrini-aun-no-piensa-en-el-sevilla-y-colocara-su-mejor-equipo-en-europa-league)
-- **Betis recibe a Utretch en busca de escalar en la Europa League**: [Link](https://www.espn.com.ar/futbol/uefa-europa-league/nota/_/id/16005484/betis-vs-utretch-por-la-europa-league-equipo-fecha-hora-y-tv-en-vivo)
-
-
-### juan pablo varillas (N/A, 27/11/2025 15:25 Lima)
-
-- **Juan Pablo Varillas vs Santiago Rodríguez: fecha, hora y dónde ver partido por octavos de final del Challenger de Bogotá**: [Link](https://www.infobae.com/peru/deportes/2025/11/26/juan-pablo-varillas-vs-santiago-rodriguez-fecha-hora-y-donde-ver-partido-por-octavos-de-final-del-challenger-de-bogota/)
-- **“Juanpi” Varillas venció a argentino Rodríguez 2-0 en el Bogotá 4 Challenger y pasó a octavos de fi**: [Link](https://www.apnoticias.pe/peru/diario-uno/juanpi-varillas-vencio-a-argentino-rodriguez-2-0-en-el-bogota-4-challenger-y-paso-a-octavos-de-final-1472501)
-- **Varillas venció a argentino Rodríguez y accedió a los octavos del Bogotá 4 Challenger**: [Link](https://ovacion.pe/noticias/tenis/varillas-vencio-argentino-rodriguez-accedio-octavos-del-bogota-4-challenger)
-
-
-### braga vs (N/A, 27/11/2025 15:25 Lima)
-
-- **‘Most lethal trident’ to be deployed against Rangers**: [Link](https://sportwitness.co.uk/most-lethal-trident-to-be-deployed-against-rangers/)
-- **“It motivates us, not the opposite.”**: [Link](https://insideibrox.com/zalazar-braga-wont-be-intimidated-ibrox)
-- **Rangers vs Braga: Odds, Lineups, Prediction, and 9/2 Bet Builder Tips**: [Link](https://www.oddschecker.com/tips/football/rangers-vs-braga-odds-lineups-prediction-bet-builder)
-
-
-### fiorentina (N/A, 27/11/2025 15:25 Lima)
-
-- **Fiorentina-AEK, i convocati di Vanoli: dentro Piccoli, ancora assente Gosens**: [Link](https://onefootball.com/pt-br/noticias/fiorentina-aek-i-convocati-di-vanoli-dentro-piccoli-ancora-assente-gosens-42012765)
-- **Viola contro l'Aek, in campo anche Mandragora**: [Link](https://www.virgilio.it/italia/firenze/notizielocali/viola_contro_l_aek_in_campo_anche_mandragora-76089837.html)
-- **Taccola: "Per l'Aek Atene giocare con la Fiorentina è un lusso, i viola sono nettamente superiori"**: [Link](https://www.labaroviola.com/taccola-per-laek-atene-giocare-con-la-fiorentina-e-un-lusso-i-viola-sono-nettamente-superiori/326417/)
-
-
-### lyon vs (N/A, 27/11/2025 15:25 Lima)
-
-- **Girls Basketball: Central Lyon vs Sheldon**: [Link](https://www.nwestiowa.com/sports/girls-basketball-central-lyon-vs-sheldon/collection_27c1a276-56b2-40fe-9073-84545ca84eab.html)
-- **Maccabi Tel Aviv - OL: Opponent Analysis (9:00 PM on Canal+)**: [Link](https://www.ol.fr/en/news/maccabi-tel-aviv-ol-opponent-analysis-9-00-pm-on-canal-1)
-- **Maccabi Tel Aviv vs Lyon LIVE Score Updates in UEFA Europa League Match**: [Link](https://www.vavel.com/en-us/soccer/2025/11/27/1242758-maccabi-tel-aviv-vs-lyon-live-score-europa-league.html)
-
-
-### crystal palace vs (N/A, 27/11/2025 15:25 Lima)
-
-- **Why are Man Utd kicking off on Sunday at midday v Palace**: [Link](https://www.manutd.com/en/news/detail/why-are-man-utd-kicking-off-on-sunday-at-midday-v-palace)
-- **Manchester United need double injury boost to pick strongest XI vs Crystal Palace**: [Link](https://www.manchestereveningnews.co.uk/sport/football/manchester-united-need-double-injury-32949295)
-- **Why is there no 12:30pm game in the Premier League this weekend? Fans forced to wait for top-flight action**: [Link](https://talksport.com/football/3769873/premier-league-kick-off-crystal-palace-man-united/)
-
-
-### fiorentina - aek (N/A, 27/11/2025 15:25 Lima)
-
-- **Preview: Fiorentina vs AEK Athens - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/fiorentina/europa-conference-league/preview/fiorentina-vs-aek-athens-prediction-team-news-lineups_586415.html)
-- **The team's revolution. Six, maybe even eight substitutions. De Gea and Dzeko are certain. Nicolussi returns as a playmaker.**: [Link](https://sport.quotidiano.net/en/calcio/fiorentina/la-rivoluzione-della-squadra-sei-1b43d897)
-- **Vanoli: ‘Emotional’ European debut, Fiorentina ‘can achieve great results’**: [Link](https://football-italia.net/vanoli-emotional-european-debut-fiorentina/)
-
-
-### stuttgart vs (N/A, 27/11/2025 15:25 Lima)
-
-- **VfB-Trainer Hoeneß muss Offensiv-Star ersetzen – ein anderer drängt sich auf**: [Link](https://www.absolutfussball.com/deutschland/vfb-stuttgart/draengt-sich-auf-vfb-trainer-hoeness-muss-offensiv-star-ersetzen-ein-anderer-94056424.html)
-- **Europa League jetzt live: Übertragung im TV, Modus, Ligaphase, Vereine, Ergebnisse**: [Link](https://www.ran.de/sports/fussball/europa-league/news/europa-league-mit-sc-freiburg-jetzt-live-tv-uebertragung-modus-ligaphase-vereine-ergebnisse-wann-spielt-der-vfb-stuttgart-592808)
-- **Fußball heute live: Eagles – Stuttgart Übertragung im Free-TV & Stream**: [Link](https://www.tipico.de/wett-tipps/sportwetten-news/fussball-heute-live-eagles-stuttgart-uebertragung-im-free-tv-stream)
-
-
-### bologna (N/A, 27/11/2025 15:25 Lima)
-
-- **Bologna-Salisburgo: tabù italiane per gli ospiti. Appena sei i successi**: [Link](https://onefootball.com/pt-br/noticias/bologna-salisburgo-tabu-italiane-per-gli-ospiti-appena-sei-i-successi-42012429)
-- **Bologna e Fiorentina, le formazioni ufficiali in Europa: gioca Orsolini! Le scelte su Zortea, Castro e Kean**: [Link](https://www.sosfanta.com/probabili-formazioni/bologna-e-fiorentina-le-formazioni-ufficiali-in-europa-gioca-orsolini-le-scelte-su-zortea-castro-e-kean/)
-- **Bologna, Italiano: "Bernardeschi sta bene, ha voglia di essere importante"**: [Link](https://gianlucadimarzio.com/bologna-italiano-intervista-salisburgo-europa-league-news-27-novembre-2025/)
-
-
-### bologna vs (N/A, 27/11/2025 15:25 Lima)
-
-- **Bologna vs Red Bull Salzburg: UEFA Europa League stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cvg133yd0qpt)
-- **The latest from the field. Dominguez runs for space.**: [Link](https://sport.quotidiano.net/en/calcio/bologna/le-ultime-dal-campo-dominguez-943b1715)
-- **Europa League official line-ups: Bologna vs. RB Salzburg**: [Link](https://football-italia.net/europa-league-line-ups-bologna-vs-rb-salzburg/)
 
 
