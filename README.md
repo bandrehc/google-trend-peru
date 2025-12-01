@@ -1,3 +1,71 @@
+### barracas central - gimnasia (N/A, 01/12/2025 15:26 Lima)
+
+- **Barracas Central y Gimnasia se enfrentan por un lugar en las semifinales del Torneo Clausura**: [Link](https://www.infobae.com/deportes/2025/12/01/barracas-central-y-gimnasia-se-enfrentaran-por-un-lugar-en-las-semifinales-del-torneo-clausura-hora-tv-y-formaciones/)
+- **???? Barracas Central Vs Gimnasia (LP) EN VIVO: minuto a minuto del Torneo Clausura**: [Link](https://www.corrienteshoy.com/deportes/barracas-central-vs-gimnasia-lp-en-vivo-minuto-a-minuto-del-torneo-clausura.htm)
+- **Gimnasia pretende ganar en la casa de Chiqui Tapia, ser semifinalista y jugar ante Estudiantes**: [Link](https://www.laplata1.com/2025-12-01/gimnasia-pretende-ganar-en-la-casa-de-chiqui-tapia-ser-semifinalista-y-jugar-ante-estudiantes-121372/)
+
+
+### arouca - braga (N/A, 01/12/2025 15:26 Lima)
+
+- **Arouca X Sp. Braga - AO MINUTO**: [Link](https://maisfutebol.iol.pt/jogo/aominuto/13828212)
+- **«Não estamos no lugar que queremos e merecemos»**: [Link](https://www.diarioaveiro.pt/2025/12/01/nao-estamos-no-lugar-que-queremos-e-merecemos/)
+- **Vasco Seabra pede paixão ao Arouca para recuperar da «bofetada» na Taça**: [Link](https://sapo.pt/artigo/vasco-seabra-pede-paixao-ao-arouca-para-recuperar-da-bofetada-na-taca-692c752d592b81ae9313d2bf)
+
+
+### bolonia vs (N/A, 01/12/2025 15:26 Lima)
+
+- **Un Bologna en racha positiva recibe a Cremonese**: [Link](https://www.espn.com.pe/futbol/italia/nota/_/id/16019572/bologna-vs-cremonese-fecha-13-seria-a-equipo-fecha-hora-y-tv-en-vivo)
+- **Serie A: Bologna quiere sumar para estirar su racha de victorias consecutivas**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-bologna-quiere-sumar-para-estirar-su-racha-de-victorias-consecutivas-noticia-1665951)
+- **Pronóstico Bologna - Cremonese. Serie A | 01/12/2025**: [Link](https://gainblers.com/pe/pronosticos/futbol/italia/serie-a/pronostico-bologna-cremonese-01-12-2025/)
+
+
+### braga vs (N/A, 01/12/2025 15:26 Lima)
+
+- **Preview: Arouca vs Braga - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/arouca/preview/arouca-vs-braga-prediction-team-news-lineups_586759.html)
+
+
+### rayo vallecano - valencia c. f. (N/A, 01/12/2025 15:26 Lima)
+
+- **Rayo Vallecano - Valencia en directo: LaLiga EA Sports hoy, en vivo**: [Link](https://as.com/futbol/primera/rayo-vallecano-valencia-en-directo-laliga-ea-sports-hoy-en-vivo-f202512-d/)
+- **Rayo Vallecano vs Valencia: Apuestas, Pronóstico y Cuotas**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2025/noviembre/pronostico-rayo-vallecano-vs-valencia-01-12-25)
+- **Íñigo Pérez: "Carlos Corberán es uno de los mejores entrenadores de LALIGA"**: [Link](https://www.eldesmarque.com/futbol/rayo-vallecano/20251201/inigo-perez-elogia-carlos-corberan-hugo-duro-fran-perez_300822233.html)
+
+
+### rayo vallecano (N/A, 01/12/2025 15:26 Lima)
+
+- **Preview: Rayo Vallecano vs Valencia - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/valencia/preview/rayo-vallecano-vs-valencia-prediction-team-news-lineups_586739.html)
+- **Rayo Vallecano vs Valencia Prediction, 12/1/2025 Soccer Pick, Tips and Odds**: [Link](https://www.docsports.com/free-picks/soccer/2025/rayo-vallecano-vs-valencia-prediction-12-1-2025-soccer-pick-tips-and-odds.html)
+- **How to watch today's Rayo Vallecano vs Valencia La Liga game: Live stream, TV channel, and start time**: [Link](https://www.goal.com/en-us/news/watch-rayo-vallecano-vs-valencia-la-liga-game-live-stream-tv-channel-start-time/blt0abc12b52ddc771d)
+
+
+### fenerbahçe vs. galatasaray (N/A, 01/12/2025 15:26 Lima)
+
+- **Domenico Tedesco interview: ‘Everywhere you go, you have Fenerbahce fans. You feel this electricity’**: [Link](https://www.nytimes.com/athletic/6842097/2025/11/30/domenico-tedesco-interview-fenerbahce/)
+- **Fenerbahce 1-1 Galatasaray: Jhon Duran saves Fener at the death**: [Link](https://www.nbcsports.com/soccer/news/how-to-watch-fenerbahce-vs-galatasaray-live-stream-link-tv-channel-score)
+- **Tedesco says Fener has found its rhythm**: [Link](https://www.beinsports.com/en-nz/football/sper-lig/articles-video/tedesco-says-fener-has-found-its-rhythm-2025-11-30)
+
+
+### max verstappen (N/A, 01/12/2025 15:26 Lima)
+
+- **Verstappen wins Qatar GP as title battle goes to Abu Dhabi with Piastri second and Norris only P4**: [Link](https://www.formula1.com/en/latest/article/verstappen-wins-qatar-gp-as-title-battle-goes-to-abu-dhabi-with-piastri.5KlYT7q8OcrJ7AnMALjkxJ)
+- **'Qatar GP shows anything can happen in three-way title showdown'**: [Link](https://www.bbc.com/sport/formula1/articles/cz6817wyvgzo)
+- **F1 - Hannah Schmitz reveals the behind-the-scenes of Red Bull's strategy in Qatar**: [Link](https://www.autohebdof1.com/news/f1/hannah-schmitz-behind-the-scenes-strategy-red-bull.html)
+
+
+### bologna (N/A, 01/12/2025 15:26 Lima)
+
+- **IL SOLE 24 ORE * SCUOLA: «BERNINI: IL CORSO UNIVERSITARIO PER MILITARI SI FARÀ**: [Link](https://www.agenziagiornalisticaopinione.it/opinionmix/sole24/scuolasole24/il-sole-24-ore-scuola-bernini-il-corso-universitario-per-militari-si-fara/)
+- **Quanto servirebbe un po’ di filosofia morale in tempi di guerra (di G. Culicchia)**: [Link](https://www.huffingtonpost.it/rubriche/rumore-bianco/2025/12/01/news/quanto_servirebbe_un_po_di_filosofia_morale_in_tempi_di_guerra-20635570/)
+- **Esercito: De Maria (Pd), 'inaccettabile intervento Meloni su università di Bologna'**: [Link](https://www.iltempo.it/adnkronos/2025/12/01/news/esercito-de-maria-pd-inaccettabile-intervento-meloni-su-universita-di-bologna--45226829/)
+
+
+### qatar vs (N/A, 01/12/2025 15:26 Lima)
+
+- **Palestine beats Libya to qualify for Arab Cup, ‘bringing joy’ to its people**: [Link](https://www.presstv.ir/Detail/2025/11/26/759517/Palestine-beats-Libya-to-qualify-for-Arab-Cup,-%E2%80%98bring-joy%E2%80%99-to-its-people)
+- **Qatar National Football Team vs Palestine National Football Team Lineups OUT**: [Link](https://www.sportsdunia.com/football-news/qatar-vs-palestine-lineups-confirmed-1st-december-2025)
+- **Palestine wins opening match vs Qatar at FIFA Arab Cup 2025™**: [Link](https://www.iloveqatar.net/news/sports/palestine-wins-opening-match-vs-qatar-fifa-arab-cup-2025)
+
+
 ### fenerbahçe - galatasaray (N/A, 01/12/2025 11:35 Lima)
 
 - **Süper Lig'in zirvesinde dev derbi: Fenerbahçe ve Galatasaray'ın ilk 11'leri**: [Link](https://www.ntv.com.tr/sporskor/super-ligin-zirvesinde-dev-derbi-fenerbahce-ve-galatasarayin-ilk-11leri-1701085)
@@ -960,75 +1028,5 @@ Sin noticias relacionadas disponibles.
 - **Fußball heute live: Gladbach – Leipzig Übertragung im TV und Stream**: [Link](https://www.tipico.de/wett-tipps/sportwetten-news/fussball-heute-live-gladbach-leipzig-uebertragung-im-tv-und-stream)
 - **Polanski lässt Startformation unverändert**: [Link](https://www.borussia.de/news/polanski-laesst-startformation-unveraendert)
 - **Fußball-Bundesliga: RB Leipzig will Rückstand auf die Bayern verkürzen**: [Link](https://www.zeit.de/news/2025-11/28/rb-leipzig-will-rueckstand-auf-die-bayern-verkuerzen)
-
-
-### alemania - españa (N/A, 28/11/2025 15:26 Lima)
-
-- **Alemania - España, en directo: final de la Nations League hoy en vivo**: [Link](https://as.com/futbol/femenino/alemania-espana-en-directo-final-de-la-nations-league-hoy-en-vivo-f202511-d/)
-- **Alemania - España en directo | UEFA Nations League Femenina hoy en vivo**: [Link](https://www.marca.com/futbol/uefa-nations-league-femenina/alemania-espana/2025/11/28/01_01122_20251128_6244_7649-directo.html)
-- **Olga Carmona: “Del día de la final del Mundial tengo muchas lagunas, recuerdo cosas puntuales”**: [Link](https://elpais.com/deportes/futbol/2025-11-28/olga-carmona-del-dia-de-la-final-del-mundial-tengo-muchas-lagunas-recuerdo-cosas-puntuales.html)
-
-
-### peru vs chile femenino (N/A, 28/11/2025 15:26 Lima)
-
-- **Cómo formaría la "Roja" femenina hoy para su duelo ante Perú por las Clasificatorias al Mundial, a qué hora es y quién transmite**: [Link](https://www.emol.com/noticias/Deportes/2025/11/28/1184442/la-rojafemenina-peru-clasificatorias.html)
-- **Todo listo para la tercera fecha de la CONMEBOL Liga de Naciones Femenina**: [Link](https://www.conmebol.com/noticias/todo-listo-para-la-tercera-fecha-de-la-conmebol-liga-de-naciones-femenina/)
-- **Perú vs Chile: día, hora y canal TV del partido en Cusco por la Liga de Naciones Femenina**: [Link](https://www.infobae.com/peru/deportes/2025/11/28/peru-vs-chile-dia-hora-y-canal-tv-del-partido-en-cusco-por-la-liga-de-naciones-femenina/)
-
-
-### teleticket peru (N/A, 28/11/2025 11:31 Lima)
-
-- **¡Confirmado! Sebastián Yatra regresa a Perú: ¿cuánto cuestan las entradas y desde cuándo las venden?**: [Link](https://elcomercio.pe/respuestas/farandula/confirmado-sebastian-yatra-regresa-a-peru-cuanto-cuestan-las-entradas-y-desde-cuando-las-venden-tdpe-noticia/)
-- **El cantante colombiano anunció dos conciertos en abril de 2026, cuando compartirá su nueva etapa artística y la energía de su nueva canción ‘La fkn vibra’, junto a Xav**: [Link](https://www.facebook.com/infobaecolombia/photos/el-cantante-colombiano-anunci%C3%B3-dos-conciertos-en-abril-de-2026-cuando-compartir%C3%A1/1287817146694378/)
-- **Sebastián Yatra vuelve a Argentina con su tour y visitará MasterChef Celebrity**: [Link](https://www.haceinstantes.com/noticias/2025/11/26/198949-sebastian-yatra-vuelve-a-argentina-con-su-tour-y-visitara-masterchef-celebrity)
-
-
-### teleticket (N/A, 28/11/2025 11:31 Lima)
-
-- **Ricardo Arjona en Lima: precios y cómo comprar entradas en preventa para su concierto en el Estadio Nacional**: [Link](https://rpp.pe/musica/conciertos/preventa-ricardo-arjona-en-lima-2026-a-que-hora-inicia-precios-y-como-comprar-entradas-para-concierto-en-estadio-nacional-noticia-1665700)
-- **Ricardo Arjona en Lima: ¿Cuándo inicia la preventa de entradas para su concierto del 2026?**: [Link](https://elcomercio.pe/luces/musica/ricardo-arjona-en-lima-cuando-inicia-la-preventa-de-entradas-para-su-concierto-del-2026-ultimas-noticia/)
-- **¡Sold out! Se agotan los boletos para los cuatro nuevos shows de Arjona**: [Link](https://tvaztecaguate.com/espectaculos/2025/11/26/preparate-en-esta-fecha-podras-comprar-tus-boletos-para-conciertos-de-arjona/)
-
-
-### clash royale (N/A, 28/11/2025 11:31 Lima)
-
-- **Clash Royale December 2025 update: 5 things that have changed**: [Link](https://www.moneycontrol.com/technology/clash-royale-december-2025-update-5-things-that-have-changed-photo-gallery-13692972.html)
-- **December 2025 in Clash Royale: 2v2 League Returns + Free Hero Giveaway!**: [Link](https://egw.news/gaming/news/30842/december-2025-in-clash-royale-2v2-league-returns-f-CjIUC9fpc)
-- **Clash Royale December 2025: Events, Challenges, Tournaments, and Rewards**: [Link](https://gamingonphone.com/news/clash-royale-december-2025-events-challenges-tournaments-and-rewards/)
-
-
-### brawl stars (N/A, 28/11/2025 11:31 Lima)
-
-- **Brawl Stars Maintenance Break Today: Stranger Things Event Fixes & Balance Changes**: [Link](https://www.freejobalert.com/article/brawl-stars-maintenance-break-today-stranger-things-event-fixes-balance-changes-24760)
-- **Brawl Stars Brawl Pass update brings major changes, Keys, Vault, Price adjustments, and more**: [Link](https://gamingonphone.com/news/brawl-stars-brawl-pass-update-brings-major-changes-keys-vault-price-adjustments/)
-- **The eSports team "REJECT" Brawl Stars division will participate in the Brawl Stars World Finals 2025 in Sweden starting November 28!**: [Link](https://saiganak.com/event/reject-brawlstars-world-finals-2025-announcement/)
-
-
-### metro (N/A, 28/11/2025 11:31 Lima)
-
-- **Winter storm to bring hazardous travel as Metro Detroit shifts from bitter cold to heavy snow**: [Link](https://www.clickondetroit.com/weather/2025/11/28/winter-storm-bringing-travel-impacts-to-metro-detroit-midwest-this-weekend/)
-- **Snowfall headed to metro Detroit. How to see where roads are plowed**: [Link](https://www.freep.com/story/news/local/michigan/2025/11/28/metro-detroit-weather-roads-snow-plows/87506036007/)
-- **Metro Detroit Forecast: Winter storm this weekend**: [Link](https://www.wxyz.com/weather/forecast/todays-forecast/metro-detroit-forecast-cold-and-windy-thanksgiving)
-
-
-### lenovo (N/A, 28/11/2025 07:51 Lima)
-
-- **One of the fastest gaming laptops we've ever tested has a $1,200 discount this Black Friday**: [Link](https://www.pcgamer.com/hardware/gaming-laptops/unlimited-powaaaaah-our-high-performance-gaming-laptop-pick-has-usd1-200-knocked-off-the-price-this-black-friday/)
-- **I've Picked Out the Best Gaming PC and Laptop Deals From the Lenovo Black Friday Sale**: [Link](https://www.ign.com/articles/lenovo-black-friday-sale-best-deals-on-legion-gaming-laptops-and-pcs)
-- **Don't miss Lenovo's LOQ-E gaming laptop steal for $730**: [Link](https://www.androidheadlines.com/2025/11/dont-miss-lenovos-loq-e-gaming-laptop-steal-for-730.html)
-
-
-### iphone 17 (N/A, 28/11/2025 07:51 Lima)
-
-- **I'm an iPhone expert, and these are the Black Friday iPhone deals I'd actually recommend**: [Link](https://www.techradar.com/phones/iphone/need-a-new-iphone-these-black-friday-iphone-deals-will-save-you-hundreds)
-- **Black Friday called, and these iPhone deals answered — Prices start at $11**: [Link](https://nypost.com/shopping/iphone-black-friday-deals-sales-2025/)
-- **Black Friday deals spotlight: refurbished iPhone 16 Pro Max, iPhone 15 Pro Max and iPhone 15 Pro - GSMArena.com news**: [Link](https://www.gsmarena.com/black_friday_deals_spotlight_refurbished_iphone_16_pro_max_iphone_15_pro_max_and_iphone_15_pro-news-70451.php)
-
-
-### black friday 2025 (N/A, 28/11/2025 07:51 Lima)
-
-- **Black Friday 2025 deals from Hoka, Apple and Dyson are live now: Our top picks from this year’s biggest sale**: [Link](https://www.yahoo.com/lifestyle/deals/article/black-friday-2025-deals-from-hoka-apple-and-dyson-are-live-now-our-top-picks-from-this-years-biggest-sale-225248774.html)
-- **The 15 Best Black Friday Tech Deals on Top Routers, Phones, and More**: [Link](https://www.wired.com/story/black-friday-tech-deals-2025/)
-- **The best Black Friday sales are officially live. We found 132 deals worth shopping**: [Link](https://www.cnn.com/cnn-underscored/deals/best-black-friday-deals-2025-11-28)
 
 
