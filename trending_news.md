@@ -1,3 +1,24 @@
+### navidad (N/A, 01/12/2025 03:37 Lima)
+
+- **Lo estabas haciendo mal: por qué montar el árbol de Navidad en el puente de diciembre es un error**: [Link](https://www.mujerhoy.com/vivir/decoracion/montar-arbol-navidad-puente-diciembre-error-razones-20251129155855-nt.html)
+- **Esta es la razón por la que cada vez colocamos con mayor anticipación las luces de navidad, según la ciencia**: [Link](https://heraldodemexico.com.mx/estilo-de-vida/2025/11/30/esta-es-la-razon-por-la-que-cada-vez-colocamos-con-mayor-anticipacion-las-luces-de-navidad-segun-la-ciencia-748835.html)
+- **Los expertos en psicología se ponen de acuerdo: poner la decoración de Navidad te hace feliz**: [Link](https://www.elmueble.com/decoracion/expertos-psicologia-se-ponen-acuerdo-poner-decoracion-navidad-te-hace-feliz_62843)
+
+
+### cyber monday (N/A, 01/12/2025 03:37 Lima)
+
+- **Cyber Monday 2025 deals are live from Hoka, Apple and Dyson: Our top picks at every price from this year's biggest sale**: [Link](https://www.yahoo.com/lifestyle/deals/live/cyber-monday-2025-deals-are-live-from-hoka-apple-and-dyson-our-top-picks-at-every-price-from-this-years-biggest-sale-115831657.html)
+- **The best Cyber Monday 2025 deals we found on Amazon, Walmart and more**: [Link](https://www.wcvb.com/article/cyber-monday-2025/69586883)
+- **Don’t Fall for Fake Deals. These Amazon Cyber Monday Sales Are Verified by Our Experts.**: [Link](https://www.nytimes.com/wirecutter/money/amazon-cyber-monday-deals-2025/)
+
+
+### agatha lys (N/A, 01/12/2025 03:37 Lima)
+
+- **Agatha Lys en ‘El valor de la verdad’: confesiones desgarradoras, predicciones que la marcaron y los políticos que buscaron sus consejos**: [Link](https://rpp.pe/famosos/farandula/agatha-lys-en-el-valor-de-la-verdad-confesiones-desgarradoras-predicciones-que-la-marcaron-y-los-politicos-que-buscaron-sus-consejos-noticia-1666002)
+- **‘El valor de la verdad’: Agatha Lys revela que tuvo un romance secreto con un joven diplomático libio**: [Link](https://elcomercio.pe/tvmas/farandula/el-valor-de-la-verdad-agatha-lys-revela-que-tuvo-un-romance-secreto-con-un-joven-diplomatico-libio-ultimas-noticia/)
+- **Agatha Lys asegura que una premonición salvó su vida horas antes tomar un vuelo a Arequipa: "Me vi bajando de un avión destruido"**: [Link](https://larepublica.pe/espectaculos/2025/12/01/agatha-lys-asegura-que-una-premonicion-salvo-su-vida-horas-antes-tomar-un-vuelo-a-arequipa-me-vi-bajando-de-un-avion-destruido-2935800)
+
+
 ### elecciones honduras 2025 (N/A, 30/11/2025 23:53 Lima)
 
 - **Honduras elige a un nuevo presidente en unas reñidas elecciones marcadas por las amenazas de Trump**: [Link](https://www.bbc.com/mundo/articles/c5yjx8yw950o)
@@ -1009,26 +1030,5 @@ Sin noticias relacionadas disponibles.
 - **Emma Heming Willis Says Holidays Are Still 'Joyous' with Husband Bruce Willis: 'It Just Looks Different' (Exclusive)**: [Link](https://people.com/emma-heming-willis-holidays-joyous-different-bruce-willis-exclusive-11856367)
 - **Rumer Willis gives heartbreaking update on dad Bruce’s dementia battle: ‘Not doing great’**: [Link](https://nypost.com/2025/11/21/entertainment/rumer-willis-gives-heartbreaking-update-on-bruces-dementia-battle/)
 - **Bruce Willis's Wife Will Donate His Brain to Science: The Reason for the Decision**: [Link](https://112.ua/en/druzina-brusa-villisa-prigolomsila-so-zrobit-z-mozkom-vazkohvorogo-aktora-pisla-jogo-smerti-114929)
-
-
-### guadalajara - cruz azul (N/A, 27/11/2025 20:55 Lima)
-
-- **Cruz Azul-Chivas, la serie más pareja de la Liguilla Apertura 2025**: [Link](https://www.espn.com.pe/futbol/mexico/nota/_/id/16002015/cruz-azul-vs-chivas-cuartos-de-final-liga-mx-liguilla-apertura-2025)
-- **🔴 Telemundo Deportes EN VIVO EN DIRECTO | ver partido Chivas de Guadalajara - Cruz Azul por TV online**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/telemundo-deportes-en-vivo-como-ver-partido-chivas-de-guadalajara-vs-cruz-azul-por-chivas-tv-y-futbol-online-en-usa-nnda-nnrt-noticia/)
-- **¿A qué hora juega y dónde ver Chivas vs Cruz Azul por la Liga MX?**: [Link](https://libero.pe/futbol-internacional/liga-mx/2025/11/26/hora-juega-chivas-vs-cruz-azul-canal-de-transmision-donde-ver-partido-de-liguilla-liga-mx-1102504)
-
-
-### ufc 324 (N/A, 27/11/2025 20:55 Lima)
-
-- **Ariel Helwani Calls Out Dana White’s Hypocrisy After UFC 324 Announcement Sparks Backlash**: [Link](https://www.essentiallysports.com/ufc-mma-news-ariel-helwani-calls-out-dana-whites-hypocrisy-after-ufc-324-announcement-sparks-backlash/)
-- **Paramount leverages Thanksgiving NFL game to announce first big UFC event**: [Link](https://www.sportsbusinessjournal.com/Articles/2025/11/27/paramount-leverages-thanksgiving-nfl-game-to-announce-first-big-ufc-event/)
-- **Kayla Harrison vs. Amanda Nunes title bout set for UFC 324 co-main**: [Link](https://sports.yahoo.com/articles/kayla-harrison-vs-amanda-nunes-231040601.html)
-
-
-### asus (N/A, 27/11/2025 20:55 Lima)
-
-- **These routers are vulnerable to hackers: Update urgently now!**: [Link](https://www.pcworld.com/article/2988421/these-routers-are-vulnerable-to-hackers-update-urgently-now.html)
-- **Got an Asus PC or router? Beware of these new security flaws**: [Link](https://www.pcgamer.com/hardware/dangerous-security-flaws-could-potentially-affect-millions-of-asus-pc-and-router-owners-heres-how-to-protect-yourself/)
-- **ASUS warns of new critical auth bypass flaw in AiCloud routers**: [Link](https://www.bleepingcomputer.com/news/security/asus-warns-of-new-critical-auth-bypass-flaw-in-aicloud-routers/)
 
 
