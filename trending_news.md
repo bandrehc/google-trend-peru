@@ -1,3 +1,10 @@
+### jazz - rockets (N/A, 02/12/2025 07:55 Lima)
+
+- **NBA results and standings: Jazz get revenge from Sengun**: [Link](https://www.eurohoops.net/en/nba-news/1901955/lauri-markkanen-alperen-sengun-franz-wagner-nba-european-recap/)
+- **Kevin Durant’s return brings dilemma to Rockets starting lineup**: [Link](https://www.sportingnews.com/uk/nba/houston-rockets/news/durant-return-causes-lineup-dilemma/67d212adecbf8763db29f044)
+- **Lauri Markkanen scores 29 points in win Monday**: [Link](https://www.fantasypros.com/nba/news/556318/lauri-markkanen-scores-29-points-win-monday.php)
+
+
 ### beca permanencia (N/A, 02/12/2025 03:36 Lima)
 
 - **Beca Permanencia 2025: revisa aquí cómo acceder a la lista de los 8.000 seleccionados este martes 2 de diciembre**: [Link](https://www.infobae.com/peru/2025/11/30/beca-permanencia-2025-revisa-aqui-como-acceder-a-la-lista-de-los-8000-seleccionados-este-martes-2-de-diciembre/)
@@ -1024,12 +1031,5 @@ Sin noticias relacionadas disponibles.
 - **POSTGAME: Phoenix Suns @ Oklahoma City Thunder | NBA CUP GROUP PLAY FINALE**: [Link](https://bvmsports.com/2025/11/28/postgame-phoenix-suns-oklahoma-city-thunder-nba-cup-group-play-finale/)
 - **Devin Booker 'excited' for Suns to take 'great test' of facing Thunder**: [Link](https://okcthunderwire.usatoday.com/story/sports/nba/thunder/2025/11/28/devin-booker-excited-for-suns-to-take-great-test-of-facing-thunder/87513169007/)
 - **NBA Cup Knock Out Round Clinching Scenarios For OKC Thunder**: [Link](https://www.si.com/nba/thunder/onsi/news/nba-cup-knock-out-round-clinching-scenarios-for-okc-thunder-2025-26)
-
-
-### sebastián britos (N/A, 28/11/2025 23:29 Lima)
-
-- **Jorge Fossati habló sobre la salida de uno de los arqueros para el regreso de Diego Romero a Universitario**: [Link](https://rpp.pe/futbol/descentralizado/universitario-jorge-fossati-hablo-sobre-salida-de-uno-de-los-arqueros-para-el-regreso-de-diego-romero-noticia-1665780)
-- **“Gracias por tu garra”: Universitario anunció salida de Sebastián Britos**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/universitario-anuncio-salida-de-sebastian-britos-liga-1-noticia/)
-- **Universitario confirmó la salida de Sebastián Britos**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/universitario-anuncio-salida-sebastian-britos-exitos-n451859)
 
 
