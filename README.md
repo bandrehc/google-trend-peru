@@ -1,3 +1,73 @@
+### futbol libre (N/A, 02/12/2025 15:30 Lima)
+
+- **Alineaciones de Alianza Lima vs Sporting Cristal HOY: posibles titulares para semifinales ida de los ‘play-offs’ de la Liga 1 2025**: [Link](https://www.infobae.com/peru/deportes/2025/12/01/alineaciones-alianza-lima-vs-sporting-cristal-equipos-titulares-estadio-nacional-semifinales-ida-play-offs-liga-1-2025/)
+- **Cumpliendo el sueño: Pol Deportes estará en la transmisión del Sporting Cristal vs. Alianza Lima por L1 MAX**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/alianza-lima-vs-cristal-pol-deportes-estara-presente-en-transmision-del-partido-por-l1-max-desde-estadio-nacional-liga-1-noticia/)
+- **Regresa un argentino: Alianza Lima y las sorpresas en su once titular para enfrentar a Sporting Cristal**: [Link](https://rpp.pe/futbol/descentralizado/alianza-lima-vs-sporting-cristal-el-once-titular-de-nestor-gorosito-para-semifinal-ida-playoffs-liga-1-noticia-1666109)
+
+
+### manchester city vs (N/A, 02/12/2025 15:30 Lima)
+
+- **Manchester City es favorito en la visita a Fulham, por la Premier League**: [Link](https://www.espn.com.pe/futbol/inglaterra/nota/_/id/16032718/fulham-vs-manchester-city-premier-league-equipo-fecha-hora-y-tv-en-vivo)
+- **Resultado en vivo Fulham vs Man City: resultado de la Premier League, actualizaciones, momentos destacados, estadísticas Los hombres de Guardiola despedidos por delante de Holanda**: [Link](https://www.ucvradio.pe/mas-actualidad/resultado-en-vivo-fulham-vs-man-city-resultado-de-la-premier-league-actualizaciones-momentos-destacados-estadisticas-los-hombres-de-guardiola-despedidos-por-delante-de-holanda/65471/)
+- **Premier League: Manchester City visita a Fulham por la fecha 14**: [Link](https://rpp.pe/futbol/ligas-internacionales/premier-league-manchester-city-visita-a-fulham-por-la-fecha-14-noticia-1666028)
+
+
+### city (N/A, 02/12/2025 15:30 Lima)
+
+- **Haaland, el jugador que más rápido alcanzó los 100 goles en Premier**: [Link](https://www.espn.com.pe/futbol/inglaterra/nota/_/id/16035535/fulham-vs-manchester-city-haaland-mas-rapido-100-goles-premier-league)
+- **Erling Haaland se convirtió en el jugador más rápido en alcanzar los 100 goles en la Premier League**: [Link](https://www.ucvradio.pe/mas-actualidad/erling-haaland-se-convirtio-en-el-jugador-mas-rapido-en-alcanzar-los-100-goles-en-la-premier-league/65476/)
+- **Celebrate the Season with the City of Palm Coast’s Annual Starlight Parade This Saturday**: [Link](https://www.palmcoast.gov/newsroom/home/details/celebrate-the-season-with-the-city-of-palm-coasts-annual-starlight-parade-this-saturday)
+
+
+### leipzig vs (N/A, 02/12/2025 15:30 Lima)
+
+- **Leipzig für einige Wochen ohne Baku**: [Link](https://www.sport1.de/news/fussball/bundesliga/2025/12/leipzig-fur-einige-wochen-ohne-baku)
+- **Leipzig-Kracher: FCM-Kapitän Reimann steht vor Rekordmarke**: [Link](https://www.volksstimme.de/sport/1-fc-magdeburg/dominik-reimann-1-fc-magdeburg-rb-leipzig-dfb-pokal-4158942)
+- **Warum Magdeburg-Coach Sander gegen RB im Pokal nicht mauern will**: [Link](https://rblive.de/news/rb-leipzig-warum-magdeburg-coach-sander-im-dfb-pokal-nicht-mauern-will-4158845)
+
+
+### u. de chile - coquimbo unido (N/A, 02/12/2025 15:30 Lima)
+
+- **Universidad de Chile desafía a Coquimbo Unido por la penúltima fecha de la Liga de Primera 2025**: [Link](https://www.espn.com.ar/futbol/chile/nota/_/id/16014515/universidad-de-chile-vs-coquimbo-unido-fecha-29-liga-de-primera-equipo-fecha-y-hora)
+- **Declaración pública: localía del partido ante Coquimbo Unido**: [Link](https://www.udechile.cl/noticias/declaracion-publica-localia-del-partido-ante-coquimbo-unido)
+- **La U defiende hoy uno de sus mayores orgullos de la historia: 61 años de dominio en un partido**: [Link](https://chile.as.com/futbol/la-u-defiende-hoy-uno-de-sus-mayores-orgullos-de-la-historia-61-anos-de-dominio-en-un-partido-f202512-n/)
+
+
+### libre futbol (N/A, 02/12/2025 15:30 Lima)
+
+- **Tras ganar la Libertadores: Flamengo renombró el Monumental con un apodo inesperado y Universitario lo conf...**: [Link](https://bolavip.com/pe/copa-libertadores/tras-ganar-la-libertadores-flamengo-renombro-el-monumental-con-un-apodo-inesperado-y-universitario-lo-confirmo)
+- **La Javier Prado de rojo y verde y el óvalo Huarochirí tomado por brasileños: crónica de la fiesta de la Libertadores afuera del Monumental**: [Link](https://elcomercio.pe/lima/la-javier-prado-de-verde-y-rojo-y-el-ovalo-huarochiri-tomado-por-brasilenos-cronica-de-la-fiesta-de-la-libertadores-afuera-del-monumental-copa-libertadores-palmeiras-flamengo-estadio-monumental-noticia/)
+- **"Forjan leyendas": Filipe Luis elogió al estadio Monumental tras ganar nuevamente con Flamengo la Copa Libertadores en Lima**: [Link](https://rpp.pe/futbol/copa-libertadores/flamengo-filipe-luis-elogio-al-estadio-monumental-tras-ganar-nuevamente-la-copa-libertadores-en-lima-palmeiras-noticia-1665982)
+
+
+### juventus vs udinese (N/A, 02/12/2025 15:30 Lima)
+
+- **Coppa Italia: Juventus vs. Udinese – probable line-ups and where to watch on TV**: [Link](https://football-italia.net/juventus-udinese-probable-line-ups-watch-on-tv/)
+- **Juventus v Udinese preview**: [Link](https://www.udinese.it/news/squad/juventus-v-udinese-preview)
+- **Spalletti: We're in the Italian Cup to win it**: [Link](https://www.juventus.com/en/news/articles/spalletti-we-re-in-the-italian-cup-to-win-it-01-12-25)
+
+
+### tarjeta roja (N/A, 02/12/2025 15:30 Lima)
+
+- **La desagradable agresión de una estrella de los Springboks a un rival cuando ganaban 73-0: podría recibir una severa sanción**: [Link](https://www.infobae.com/deportes/2025/11/29/la-desagradable-agresion-de-una-estrella-de-los-springboks-a-un-rival-cuando-ganaban-73-0-podria-recibir-una-severa-sancion/)
+- **VIDEO | Brutal agresión en un partido de rugby: "Si es lo que parece, no es una buena imagen”**: [Link](https://www.t13.cl/noticia/deportes13/video-brutal-agresion-partido-rugby-si-lo-parece-no-una-buena-imagen-30-11-2025)
+- **Eddie Jones señala "problemas mayores" que el "incidente menor" de Etzebeth en la victoria de Bok**: [Link](https://masmma.com.mx/noticias/eddie-jones-senala-problemas-mayores-que-el-incidente-menor-de-etzebeth-en-la-victoria-de-bok/130115/)
+
+
+### chatgpt (N/A, 02/12/2025 15:30 Lima)
+
+- **OpenAI Declares ‘Code Red’ as Google Threatens AI Lead**: [Link](https://www.wsj.com/tech/ai/openais-altman-declares-code-red-to-improve-chatgpt-as-google-threatens-ai-lead-7faf5ea6?gaa_at=eafs&gaa_n=AWEtsqdV7sgH3PZHxT7am4bJRuScjZzKmxruxt61SJG2nSSuo0HD1uzZSQ2_&gaa_ts=692f4f87&gaa_sig=4Fac_te8K_L7TUACAw1Wsi7Dm8fy-pu1_eUkzdxFkUcZonrxM1rebQQ551X1CQTWXXH_VzoJ8DZyrgHkKNPMdw%3D%3D)
+- **OpenAI’s Sam Altman declares ‘code red’ to improve ChatGPT as Google catches up: reports**: [Link](https://nypost.com/2025/12/02/business/openais-sam-altman-declares-code-red-to-improve-chatgpt-as-google-catches-up/)
+- **Sam Altman issues ‘code red’ at OpenAI as ChatGPT contends with rivals**: [Link](https://www.theguardian.com/technology/2025/dec/02/sam-altman-issues-code-red-at-openai-as-chatgpt-contends-with-rivals)
+
+
+### newcastle - tottenham (N/A, 02/12/2025 15:30 Lima)
+
+- **Preview: Newcastle United vs Tottenham Hotspur - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/newcastle-united/preview/newcastle-vs-spurs-prediction-team-news-lineups_586772.html)
+- **Football Bet of the Day: St James’ Park is Tuesday’s destination for goals**: [Link](https://mrfixitstips.co.uk/football-bet-of-the-day-st-james-park-is-tuesdays-destination-for-goals/)
+- **Preview: Spurs face midweek trip to Newcastle**: [Link](https://www.fotmob.com/ru/topnews/24231-preview-spurs-face-midweek-trip-newcastle?utm_source=fotmob)
+
+
 ### samsung galaxy s26 ultra (N/A, 02/12/2025 11:36 Lima)
 
 - **El Samsung Galaxy S26 Ultra puede traer una actualización de carga inalámbrica tan esperada**: [Link](https://www.elpueblo.pe/ciencia-y-tecnologia/el-samsung-galaxy-s26-ultra-puede-traer-una-actualizacion-de-carga-inalambrica-tan-esperada/146596/)
@@ -959,73 +1029,5 @@ Sin noticias relacionadas disponibles.
 - **Mónaco vs PSG en vivo: Ligue 1 hoy, en directo**: [Link](https://as.com/futbol/internacional/monaco-vs-psg-en-vivo-ligue-1-hoy-en-directo-f202511-d/)
 - **Monaco - Paris Saint-Germain en directo | Vive el minuto a minuto del líder de la Ligue 1**: [Link](https://www.marca.com/futbol/ligue-1/monaco-paris-saint-germain/2025/11/29/01_0109_20251129_146_149-directo.html)
 - **Mónaco vs PSG: Apuestas, Pronóstico y Cuotas**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/2025/noviembre/pronostico-monaco-vs-psg-29-11-25)
-
-
-### werder bremen - colonia (N/A, 29/11/2025 11:29 Lima)
-
-- **Alineación confirmada: Werder Bremen vs. 1. FC Colonia**: [Link](https://www.elpueblo.pe/deportes/alineacion-confirmada-werder-bremen-vs-1-fc-colonia/143234/)
-
-
-### leicester city - sheffield united (N/A, 29/11/2025 07:47 Lima)
-
-- **Leicester v Blades - confirmed teams**: [Link](https://www.sufc.co.uk/news/2025/november/29/leicester-v-blades/)
-- **SUFC News: Five changes and derby-day hero call in Blades predicted XI v Leicester**: [Link](https://www.thestar.co.uk/sport/football/sheffield-united/five-changes-and-derby-day-hero-call-in-sheffield-united-predicted-xi-for-leicester-city-clash-after-chris-wilder-verdict-5422728)
-- **Championship LIVE: Score updates, text commentary and results from 10 matches**: [Link](https://www.bbc.com/sport/football/live/crexnp1yzn4t)
-
-
-### r.c.d. mallorca - osasuna (N/A, 29/11/2025 07:47 Lima)
-
-- **LaLiga EA Sports: Se enfrentan Mallorca y Osasuna por la fecha 14**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-se-enfrentan-mallorca-y-osasuna-por-la-fecha-14-noticia-1665664)
-- **Mallorca vs Osasuna: Apuestas, Pronóstico y Cuotas**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2025/noviembre/pronostico-mallorca-vs-osasuna-29-11-25)
-- **Jagoba Arrasate, contra su pasado más glorioso**: [Link](https://as.com/futbol/primera/jagoba-arrasate-contra-su-pasado-mas-glorioso-f202511-n/)
-
-
-### diego romero (N/A, 29/11/2025 07:47 Lima)
-
-- **La molestia de Sebastián Britos tras su salida de Universitario: “Recién me acabo de enterar”**: [Link](https://depor.com/futbol-peruano/descentralizado/universitario-sebastian-britos-molesto-por-como-se-entero-que-no-seguia-y-hablo-de-su-paso-por-el-club-recien-me-acabo-de-enterar-liga-1-2026-video-noticia/)
-- **“No podemos tener a cuatro arqueros”: Jorge Fossati replantea la posición tras regreso de Diego Romero a la ‘U’**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/universitario-no-podemos-tener-a-cuatro-arqueros-jorge-fossati-replantea-la-posicion-tras-regreso-de-diego-romero-a-la-u-noticia/)
-- **Universitario anuncia la salida de arquero Sebastián Britos: “Gracias por tu garra”**: [Link](https://trome.com/deportes/futbol-peruano/universitario-anuncia-la-salida-de-arquero-sebastian-britos-gracias-por-tu-garra-noticia/)
-
-
-### airbus a320 (N/A, 29/11/2025 07:47 Lima)
-
-- **Flights disrupted after Airbus discovers intense sun radiation could impact flight control data**: [Link](https://www.bbc.com/news/articles/c8e9d13x2z7o)
-- **Airlines race to fix thousands of planes after warning solar radiation could cause pilots to lose control**: [Link](https://www.cnn.com/2025/11/28/us/a320-series-fixes)
-- **Airbus issues major A320 recall, threatening global flight disruption**: [Link](https://www.reuters.com/business/aerospace-defense/airbus-issues-major-a320-recall-after-flight-control-incident-2025-11-28/)
-
-
-### migrantes frontera chile peru (N/A, 29/11/2025 07:47 Lima)
-
-- **Perú declara estado de emergencia en la frontera con Chile por crisis migratoria irregular e inseguridad**: [Link](https://www.infobae.com/peru/2025/11/28/peru-declara-estado-de-emergencia-en-la-frontera-con-chile-por-crisis-migratoria-irregular-e-inseguridad/)
-- **PCM publica decreto que declara en estado de emergencia zona fronteriza en Tacna por crisis migratoria**: [Link](https://elcomercio.pe/lima/seguridad/gobierno-peruano-declara-en-estado-de-emergencia-zona-fronteriza-en-tacna-por-crisis-migratoria-jose-jeri-pcm-ultimas-noticia/)
-- **José Jerí anunció que antes de la medianoche se aprobará el estado de emergencia en Tacna**: [Link](https://rpp.pe/politica/gobierno/jose-jeri-anuncio-que-antes-de-la-medianoche-se-aprobara-el-estado-de-emergencia-en-tacna-noticia-1665798)
-
-
-### brentford (N/A, 29/11/2025 07:47 Lima)
-
-- **Keith Andrews’ pre-match press conference: Brentford ‘in a good place’ ahead of Premier League meeting with Burnley**: [Link](https://www.brentfordfc.com/en/news/article/first-team-brentford-v-burnley-premier-league-team-news-29-11-2025)
-- **Football Bet Of The Day: James Milton has a 23-10 selection from the Premier League**: [Link](https://www.racingpost.com/sport/football-tips/football-bet-of-the-day-james-milton-has-a-23-10-selection-from-the-premier-league-aOtzW6u1Azhq/)
-- **Kyle Walker on Burnley's season so far, what survival would mean and son's academy progress**: [Link](https://www.burnleyexpress.net/sport/football/kyle-walker-on-burnleys-season-so-far-what-survival-would-mean-and-sons-academy-progress-5421237)
-
-
-### ulises villegas (N/A, 29/11/2025 03:31 Lima)
-
-- **🔴🔵🚨 #LOÚLTIMO | La Primera Sala Penal de Apelaciones Transitoria de Lima Norte ratificó la sentencia de 6 años de cárcel efectiva contra el alcalde de Comas, Ulises Villegas, por colusión agravada, y dispuso su inmediata ubicación y captura. 🌐Más infor**: [Link](https://www.facebook.com/Exitosanoticias/photos/-lo%C3%BAltimo-la-primera-sala-penal-de-apelaciones-transitoria-de-lima-norte-ratific/1288117210018001/)
-- **Ulises Villegas: Sala de Apelaciones confirma sentencia de 6 años de prisión contra alcalde de Comas**: [Link](https://elcomercio.pe/lima/sucesos/ulises-villegas-sala-de-apelaciones-confirma-sentencia-de-6-anos-de-prision-contra-alcalde-de-comas-ultimas-noticia/)
-- **Caso Ulises Villegas: Sala de Apelaciones de Lima Norte confirmó sentencia de 6 años de prisión efectiva contra alcalde de Comas**: [Link](https://rpp.pe/politica/judiciales/caso-ulises-villegas-sala-de-apelaciones-de-lima-norte-confirmo-sentencia-de-6-anos-de-prision-efectiva-contra-alcalde-de-comas-noticia-1665832)
-
-
-### conmebol (N/A, 29/11/2025 03:31 Lima)
-
-- **Conmebol: "Barranquilla fue la elección correcta"**: [Link](https://www.espn.com.pe/futbol/copa-sudamericana/nota/_/id/16018147/conmebol-barranquilla-sede-final-copa-sudamericana-2026-eleccion-correcta)
-- **¿Lima fue elegida? Conmebol sorprende al confirmar sedes de las finales para la Copa Sudamericana 2026 y 2027**: [Link](https://larepublica.pe/deportes/2025/11/28/lima-fue-elegida-conmebol-sorprende-al-confirmar-sedes-de-las-finales-para-la-copa-sudamericana-2026-y-2027-1239448)
-- **CONMEBOL habría elegido las sedes de las finales de la Copa Libertadores y Sudamericana 2026**: [Link](https://www.eldiez.com.pe/internacional/conmebol-habria-elegido-las-sedes-de-las-finales-de-la-copa-libertadores-y-sudamericana-2026-barranquilla-y-montevideo-noticia/)
-
-
-### hincha de palmeiras muere (N/A, 28/11/2025 23:29 Lima)
-
-- **Hincha de Palmeiras murió en accidente de bus en Lima a horas de la final de Copa Libertadores 2025**: [Link](https://www.infobae.com/peru/2025/11/29/final-de-copa-libertadores-2025-hincha-de-palmeiras-murio-al-caer-del-segundo-piso-del-mirabus/)
-- **Hincha brasilero fallece mientras se trasladaba en un bus turístico que cubría la ruta Miraflores – Barranco**: [Link](https://rpp.pe/lima/actualidad/hincha-brasilero-fallece-mientras-se-trasladaba-en-un-bus-turistico-que-cubria-la-ruta-miraflores-barranco-noticia-1665816)
-- **Hincha de Palmeiras muere tras caer de cabeza de bus en la Costa Verde**: [Link](https://elcomercio.pe/lima/sucesos/hincha-de-palmeiras-muere-tras-golpearse-la-cabeza-en-puente-de-la-costa-verde-copa-libertadores-2025-flamengo-palmeiras-ultimas-noticia/)
 
 
