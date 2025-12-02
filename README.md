@@ -1,3 +1,27 @@
+### samsung galaxy s26 ultra (N/A, 02/12/2025 11:36 Lima)
+
+- **El Samsung Galaxy S26 Ultra puede traer una actualización de carga inalámbrica tan esperada**: [Link](https://www.elpueblo.pe/ciencia-y-tecnologia/el-samsung-galaxy-s26-ultra-puede-traer-una-actualizacion-de-carga-inalambrica-tan-esperada/146596/)
+
+
+### spotify wrapped (N/A, 02/12/2025 11:36 Lima)
+
+- **When will Spotify Wrapped 2025 release? Spotify says it's coming soon**: [Link](https://www.usatoday.com/story/entertainment/music/2025/12/01/spotify-wrapped-2025-release-date/87554500007/)
+- **Is Spotify Wrapped out yet? Here's when Spotify starts tracking again**: [Link](https://www.cincinnati.com/story/entertainment/music/2025/12/02/spotify-wrapped-2025-release-music-tracking/87552443007/)
+- **Spotify Wrapped Drops Soon—After Heavily Criticized 2024 Edition**: [Link](https://www.forbes.com/sites/conormurray/2025/12/01/spotify-wrapped-could-drop-this-week-as-fan-pressure-mounts-after-panned-2024-edition/)
+
+
+### rafael belaunde llosa (N/A, 02/12/2025 11:36 Lima)
+
+- **Atentan contra el precandidato presidencial de Perú, Rafael Belaunde Llosa: sujetos disparan contra su auto**: [Link](https://www.infobae.com/peru/2025/12/02/atentan-contra-el-precandidato-presidencial-de-peru-rafael-belaunde-sujetos-disparan-contra-su-auto/)
+- **Atacan a balazos camioneta donde se desplazaba precandidato Rafael Belaúnde**: [Link](https://rpp.pe/peru/actualidad/denuncian-ataque-a-balazos-contra-precandidato-rafael-belaunde-en-cerro-azul-noticia-1666190)
+- **Rafael Belaunde Llosa fue atacado a balazos dentro de su carro en Cerro Azul**: [Link](https://elcomercio.pe/elecciones/rafael-belaunde-llosa-fue-atacado-a-balazos-dentro-de-su-carro-en-cerro-azul-ultimas-noticia/)
+
+
+### lakers (N/A, 02/12/2025 11:36 Lima)
+
+- **Lakers Urged To Take Advantage Of Rivals’ Meltdown**: [Link](https://lastwordonsports.com/basketball/2025/12/02/lakers-urged-to-take-advantage-of-clippers-meltdown-through-trade-opportunity/)
+
+
 ### jazz - rockets (N/A, 02/12/2025 07:55 Lima)
 
 - **NBA results and standings: Jazz get revenge from Sengun**: [Link](https://www.eurohoops.net/en/nba-news/1901955/lauri-markkanen-alperen-sengun-franz-wagner-nba-european-recap/)
@@ -1003,33 +1027,5 @@ Sin noticias relacionadas disponibles.
 - **Hincha de Palmeiras murió en accidente de bus en Lima a horas de la final de Copa Libertadores 2025**: [Link](https://www.infobae.com/peru/2025/11/29/final-de-copa-libertadores-2025-hincha-de-palmeiras-murio-al-caer-del-segundo-piso-del-mirabus/)
 - **Hincha brasilero fallece mientras se trasladaba en un bus turístico que cubría la ruta Miraflores – Barranco**: [Link](https://rpp.pe/lima/actualidad/hincha-brasilero-fallece-mientras-se-trasladaba-en-un-bus-turistico-que-cubria-la-ruta-miraflores-barranco-noticia-1665816)
 - **Hincha de Palmeiras muere tras caer de cabeza de bus en la Costa Verde**: [Link](https://elcomercio.pe/lima/sucesos/hincha-de-palmeiras-muere-tras-golpearse-la-cabeza-en-puente-de-la-costa-verde-copa-libertadores-2025-flamengo-palmeiras-ultimas-noticia/)
-
-
-### marathon (N/A, 28/11/2025 23:29 Lima)
-
-- **Texas City triathlon course to be reset for half marathon**: [Link](https://www.galvnews.com/sports/columns/ontherun/texas-city-triathlon-course-to-be-reset-for-half-marathon/article_8cb0dbb2-74fb-578d-93da-47774be15469.html)
-- **Philanthropy and social impact take centre stage at half marathon awards**: [Link](https://timesofindia.indiatimes.com/city/delhi/philanthropy-and-social-impact-take-centre-stage-at-half-marathon-awards/articleshow/125645507.cms)
-- **Delhi Half Marathon Raises INR 4.12 Crore For 16 Social Causes**: [Link](https://www.cricketnmore.com/sports-news/delhi-half-marathon-raises-inr-412-crore-for-16-social-causes-30101)
-
-
-### latam peru (N/A, 28/11/2025 23:29 Lima)
-
-- **Autorizaron a una aerolínea a hacer vuelos que conectarán varias provincias con Estados Unidos, Brasil y otros países**: [Link](https://www.infobae.com/economia/2025/11/28/autorizaron-a-una-aerolinea-a-hacer-vuelos-que-conectaran-varias-provincias-con-estados-unidos-brasil-y-otros-paises/)
-- **LATAM Perú abre rutas a Iguazú desde Lima y Cusco, fortaleciendo el turismo en Misiones**: [Link](https://turismomisiones.com.ar/2025/11/28/peru-lima-cusco-iguazu/)
-- **Aerolínea internacional podrá volar 15 rutas a Argentina y conectar con EEUU y Punta Cana**: [Link](https://www.iprofesional.com/turismo/442940-aerolinea-internacional-podra-volar-15-rutas-a-argentina-y-conectar-con-eeuu-y-punta-cana)
-
-
-### nuggets - spurs (N/A, 28/11/2025 23:29 Lima)
-
-- **Nuggets-Spurs’ simple math in Cup: winner advances, loser is out**: [Link](https://www.thesportsleader.com/2025/11/27/nuggets-spurs-simple-math-in-cup-winner-advances-loser-is-out/)
-- **Keldon Johnson on the Chance to Clinch NBA Cup West Group C vs. Denver**: [Link](https://bvmsports.com/2025/11/28/keldon-johnson-on-the-chance-to-clinch-nba-cup-west-group-c-vs-denver/)
-- **Mitch Johnson, Pre‑Game vs Denver Nuggets | 11/28/25**: [Link](https://www.nba.com/spurs/videos/mitch-johnson-pre-game-vs-denver-nuggets-11-28-25)
-
-
-### thunder - suns (N/A, 28/11/2025 23:29 Lima)
-
-- **POSTGAME: Phoenix Suns @ Oklahoma City Thunder | NBA CUP GROUP PLAY FINALE**: [Link](https://bvmsports.com/2025/11/28/postgame-phoenix-suns-oklahoma-city-thunder-nba-cup-group-play-finale/)
-- **Devin Booker 'excited' for Suns to take 'great test' of facing Thunder**: [Link](https://okcthunderwire.usatoday.com/story/sports/nba/thunder/2025/11/28/devin-booker-excited-for-suns-to-take-great-test-of-facing-thunder/87513169007/)
-- **NBA Cup Knock Out Round Clinching Scenarios For OKC Thunder**: [Link](https://www.si.com/nba/thunder/onsi/news/nba-cup-knock-out-round-clinching-scenarios-for-okc-thunder-2025-26)
 
 
