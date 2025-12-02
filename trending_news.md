@@ -1,3 +1,45 @@
+### beca permanencia (N/A, 02/12/2025 03:36 Lima)
+
+- **Beca Permanencia 2025: revisa aquí cómo acceder a la lista de los 8.000 seleccionados este martes 2 de diciembre**: [Link](https://www.infobae.com/peru/2025/11/30/beca-permanencia-2025-revisa-aqui-como-acceder-a-la-lista-de-los-8000-seleccionados-este-martes-2-de-diciembre/)
+- **Pronabec publicará este martes la lista de 8 mil seleccionados para**: [Link](https://caretas.pe/nacional/pronabec-publicara-este-martes-la-lista-de-8-mil-seleccionados-para-beca-permanencia-2025/)
+- **🔴🔵 ¿Postulaste a Beca Permanencia 2025? Entérate AQUÍ cuando saldrá la lista de los seleccionados**: [Link](https://www.facebook.com/Exitosanoticias/posts/-postulaste-a-beca-permanencia-2025-ent%C3%A9rate-aqu%C3%AD-cuando-saldr%C3%A1-la-lista-de-los-/1289381163224939/)
+
+
+### lakers vs (N/A, 02/12/2025 03:36 Lima)
+
+- **Phoenix Suns @ Los Angeles Lakers Pregame Show | PHNX Suns Podcast LIVE!**: [Link](https://bvmsports.com/2025/12/01/phoenix-suns-los-angeles-lakers-pregame-show-phnx-suns-podcast-live/)
+- **Live Updates: Luka Doncic, Nikola Jokic underway**: [Link](https://www.nba.com/news/live-updates-moments-and-stats-from-a-9-game-night-in-the-nba)
+- **How to Watch Phoenix Suns at Los Angeles Lakers: Peacock NBA Monday**: [Link](https://sports.yahoo.com/articles/watch-phoenix-suns-los-angeles-140005676.html)
+
+
+### barcelona vs atlético de madrid (N/A, 02/12/2025 03:36 Lima)
+
+- **Barcelona recibe al Atlético de Madrid buscando mantener la cima de LaLiga**: [Link](https://www.espn.com.ar/futbol/espana/nota/_/id/16032837/barcelona-vs-atletico-de-madrid-fecha-14-la-liga-equipo-fecha-hora-y-tv-en-vivo)
+- **Apuestas y Pronóstico del Barcelona vs Atlético Madrid 02/12/25**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2025/diciembre/pronostico-barcelona-vs-atletico-madrid-02-12-25)
+- **Así ha sido la jugosa rueda de prensa de Flick antes del Barça-Atlético**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20251201/1002579192/asi-sido-jugosa-rueda-prensa-flick-barca-atletico.html)
+
+
+### samahara lobaton (N/A, 02/12/2025 03:36 Lima)
+
+- **Samahara anuncia fin de su relación con Bryan Torres: “Vulneró límites que dejé claros desde el inicio”**: [Link](https://elcomercio.pe/tvmas/farandula/samahara-lobaton-anuncia-fin-de-su-relacion-con-bryan-torres-vulnero-limites-que-deje-claros-desde-el-inicio-ultimas-noticia/)
+- **Bryan Torres descarta infidelidad a Samahara Lobatón**: [Link](https://www.americatv.com.pe/mas-espectaculos/bryan-torres-niega-infidelidad-samahara-lobaton-ruptura-noticia-161660)
+- **Magaly Medina sobre el fin de la relación de Samahara y 'el Bryan': "Creyeron en el palabreo barato"**: [Link](https://www.atv.pe/noticia/magaly-medina-sobre-el-fin-de-la-relacion-de-samahara-y-el-bryan-creyeron-en-el-palabreo-barato/)
+
+
+### primera división (N/A, 02/12/2025 03:36 Lima)
+
+- **Así quedó el mapa del fútbol argentino tras los ascensos de Gimnasia de Mendoza y Estudiantes (RC)**: [Link](https://www.tycsports.com/liga-profesional-de-futbol/asi-quedo-el-mapa-del-futbol-argentino-tras-los-ascensos-de-gimnasia-de-mendoza-y-estudiantes-rc-id701718.html)
+- **Con los 30 equipos definidos, ¿cómo comenzará la tabla de promedios en 2026?**: [Link](https://www.ole.com.ar/futbol-primera/comenzara-tabla-promedios-2026_0_C4P2dWiES6.html)
+- **De dónde son los 30 equipos que jugarán el Torneo Apertura 2026: el impresionante récord de Córdoba**: [Link](https://www.canal26.com/deportes/2025/12/01/de-donde-son-los-30-equipos-que-jugaran-el-torneo-apertura-2026-el-impresionante-record-de-cordoba/)
+
+
+### melissa klug (N/A, 02/12/2025 03:36 Lima)
+
+- **Jesús Barco reafirma que quiere casarse con Melissa Klug: “Eso nunca ha estado en duda”**: [Link](https://elcomercio.pe/tvmas/farandula/jesus-barco-reafirma-que-quiere-casarse-con-melissa-klug-eso-nunca-ha-estado-en-duda-ultimas-noticia/)
+- **Melissa Klug volvió con Jesús Barco, Samantha contra Álvaro**: [Link](https://www.americatv.com.pe/mas-espectaculos/melissa-klug-perdono-jesus-samantha-respondio-alvaro-y-mas-noticia-161657)
+- **¿Volvieron? Filtran beso entre Melissa Klug y Jesús Barco antes de entrevista**: [Link](https://peru21.pe/espectaculos/volvieron-filtran-beso-entre-melissa-klug-y-jesus-barco-antes-de-entrevista/)
+
+
 ### raquel escalante (N/A, 01/12/2025 23:35 Lima)
 
 - **El último post de Raquel Escalante, Miss de belleza y conductora de TV Azteca fallecida a los 28 años: “He vivido dolor”**: [Link](https://www.infobae.com/mexico/2025/11/30/el-ultimo-post-de-raquel-escalante-miss-de-belleza-y-conductora-de-tv-azteca-fallecida-a-los-28-anos-he-vivido-dolor/)
@@ -989,47 +1031,5 @@ Sin noticias relacionadas disponibles.
 - **Jorge Fossati habló sobre la salida de uno de los arqueros para el regreso de Diego Romero a Universitario**: [Link](https://rpp.pe/futbol/descentralizado/universitario-jorge-fossati-hablo-sobre-salida-de-uno-de-los-arqueros-para-el-regreso-de-diego-romero-noticia-1665780)
 - **“Gracias por tu garra”: Universitario anunció salida de Sebastián Britos**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/universitario-anuncio-salida-de-sebastian-britos-liga-1-noticia/)
 - **Universitario confirmó la salida de Sebastián Britos**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/universitario-anuncio-salida-sebastian-britos-exitos-n451859)
-
-
-### lakers - mavericks (N/A, 28/11/2025 23:29 Lima)
-
-- **We’re Back**: [Link](https://www.mavsmoneyball.com/dallas-mavericks-game-coverage/53227/were-back)
-- **LA Lakers Injury Report: Will LeBron James and Deandre Ayton feature in Mavericks clash**: [Link](https://thesportstak.com/basketball/nba-24-oct-2022/story/la-lakers-injury-report-will-lebron-james-and-deandre-ayton-feature-in-mavericks-clash-3217582-2025-11-29)
-- **Where to watch Mavericks vs. Lakers free stream today**: [Link](https://www.masslive.com/tv/2025/11/where-to-watch-mavericks-vs-lakers-free-stream-today.html)
-
-
-### ley de presupuesto 2026 (N/A, 28/11/2025 23:29 Lima)
-
-- **Pleno aprueba dictamen de Ley de Presupuesto del Sector Público para el Año Fiscal 2026**: [Link](https://comunicaciones.congreso.gob.pe/noticias/pleno-aprueba-dictamen-de-ley-de-presupuesto-del-sector-publico-para-el-ano-fiscal-2026/)
-- **Congreso aprueba ley de Presupuesto Público para 2026**: [Link](https://elcomercio.pe/economia/peru/congreso-aprueba-ley-de-presupuesto-publico-endeudamiento-y-equilibrio-fiscal-para-2026-noticia/)
-- **Parlamento da luz verde al marco de equilibrio fiscal para el Presupuesto 2026**: [Link](https://caretas.pe/home_web/home_principal/parlamento-da-luz-verde-al-marco-de-equilibrio-fiscal-para-el-presupuesto-2026/)
-
-
-### hasta cuando es el black friday (N/A, 28/11/2025 23:29 Lima)
-
-- **How Black Friday became a retail letdown: 'To sustain the ride, they started to dilute it'**: [Link](https://www.cnbc.com/2025/11/28/black-friday-shopping-retail-letdown.html)
-- **Deal or Dud: Is Black Friday what it used to be?**: [Link](https://www.cnn.com/2025/11/28/us/video/smith-madison-mills-black-friday-cnc)
-- **Shoppers: Black Friday has changed**: [Link](https://theday.com/news/817433/shoppers-black-friday-has-changed/)
-
-
-### bryan reyna (N/A, 28/11/2025 23:29 Lima)
-
-- **Bryan Reyna habló fuerte sobre su regreso a un gigante de la Liga 1: “No lo descarto”**: [Link](https://bolavip.com/pe/liga-1/bryan-reyna-hablo-fuerte-sobre-su-regreso-a-un-gigante-de-la-liga-1-no-lo-descarto)
-- **¿Vuelve a la Liga 1? Bryan Reyna dio pistas de su futuro tras poca actividad con Belgrano**: [Link](https://depor.com/futbol-peruano/peruanos-en-el-mundo/bryan-reyna-dejaria-belgrano-de-argentina-y-no-descarta-volver-al-futbol-peruano-alianza-lima-peruanos-en-el-exterior-noticia/)
-- **Pasó por el Mallorca de España y no descarta jugar por equipo grande de la Liga 1: "Estoy viendo"**: [Link](https://libero.pe/futbol-peruano/liga-1/2025/11/26/paso-mallorca-de-espana-descarta-jugar-equipo-grande-de-liga-1-estoy-viendo-1233934)
-
-
-### santos vs. sport recife (N/A, 28/11/2025 20:54 Lima)
-
-- **How to watch Santos vs Sport Recife in the USA: Live Stream and TV for 2025 Brasileirao**: [Link](https://worldsoccertalk.com/watch-on-us-tv/how-to-watch-santos-vs-sport-recife-in-the-usa-live-stream-and-tv-for-2025-brasileirao/)
-- **Neymar Scores as Santos Takes Early Lead Against Sport in Relegation Battle**: [Link](https://news.ssbcrack.com/neymar-scores-as-santos-takes-early-lead-against-sport-in-relegation-battle/)
-- **Why is Neymar Playing in Santos vs Sport Recife Despite Injury?**: [Link](https://www.sportsdunia.com/football-news/neymar-santos-vs-sport-recife-injury-update)
-
-
-### serie a de ecuador (N/A, 28/11/2025 20:54 Lima)
-
-- **Empates, goleadas y el primer descenso: así se movió la fecha 6 de los hexagonales**: [Link](https://www.tvc.com.ec/noticia/empates-goleadas-y-el-primer-descenso-asi-se-movio-la-fecha-6-de-los-hexagonales/)
-- **LigaPro Serie A: así se definen el título, los cupos a copas y el descenso**: [Link](https://www.extra.ec/noticia/deportes/ligapro-serie-asi-se-definen-el-titulo-los-cupos-copas-y-el-descenso-141873.html)
-- **Hexagonales y cuadrangular LigaPro 2025: resultados, posiciones y lo que se juega**: [Link](https://www.extra.ec/noticia/deportes/hexagonales-y-cuadrangular-ligapro-2025-resultados-posiciones-y-lo-que-se-juega-141640.html)
 
 
