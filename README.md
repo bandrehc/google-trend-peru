@@ -1,3 +1,66 @@
+### win (N/A, 01/12/2025 20:59 Lima)
+
+- **Two starts in, Shedeur Sanders understands the fragility of NFL life**: [Link](https://andscape.com/features/cleveland-browns-shedeur-sanders-nfl/)
+- **Shedeur Sanders deserves more time. The rest of the Browns’ operation does not - The Athletic**: [Link](https://www.nytimes.com/athletic/6850509/2025/11/30/shedeur-sanders-starter-browns-team-failures/)
+- **49ers’ Brock Purdy, swagger intact, begins beatdown of Browns by barking at Myles Garrett**: [Link](https://www.sfchronicle.com/sports/49ers/article/49ers-purdy-begins-beatdown-browns-barking-21213935.php)
+
+
+### medellín - américa (N/A, 01/12/2025 20:59 Lima)
+
+- **América vs Medellín: Así serán las alineaciones titulares en la fecha 3 de cuadrangulares**: [Link](https://www.espn.com.ar/futbol/colombia/nota/_/id/16014990/independiente-medellin-vs-america-alineaciones-equipos-titulares-fecha-4-cuadrangulares)
+- **Transmisión EN VIVO del Medellín vs América hoy: cómo mirar el partido por TV o streaming**: [Link](https://www.365scores.com/es/news/transmision-medellin-vs-america-semis/)
+- **SIGUE, Medellín-América de Cali EN VIVO: transmisión por Win Sports**: [Link](https://elcomercio.pe/deporte-total/colombia/medellin-vs-america-de-cali-en-vivo-online-gratis-via-win-sports-futbol-libre-tv-horarios-canales-tv-y-donde-ver-partido-por-liga-betplay-video-noticia/)
+
+
+### alianza vs cristal (N/A, 01/12/2025 20:59 Lima)
+
+- **Retorna un argentino: Alianza Lima y las sorpresas en su once titular para enfrentar a Sporting Cristal**: [Link](https://rpp.pe/futbol/descentralizado/alianza-lima-vs-sporting-cristal-el-once-titular-de-nestor-gorosito-para-semifinal-ida-playoffs-liga-1-noticia-1666109)
+- **A qué hora juega Alianza Lima vs Sporting Cristal: partido por semifinales ida de los ‘play-offs’ de la Liga 1 2025**: [Link](https://www.infobae.com/peru/deportes/2025/12/01/a-que-hora-juega-alianza-lima-vs-sporting-cristal-partido-semifinales-ida-playoffs-liga-1-2025-horario/)
+- **Cazonatti tiene a Alianza Lima entre ceja y ceja: su análisis de los play-offs y por qué es clave el cupo de Perú 2**: [Link](https://depor.com/futbol-peruano/descentralizado/sporting-cristal-vs-alianza-lima-gustavo-cazonatti-analisis-de-play-offs-y-que-esperar-del-clasico-en-disputa-por-peru-2-en-copa-libertadores-2026-liga-1-noticia/)
+
+
+### racing - tigre (N/A, 01/12/2025 20:59 Lima)
+
+- **Racing vs. Tigre, hoy EN VIVO por el Torneo Clausura: horario, cómo ver y formaciones**: [Link](https://www.ole.com.ar/futbol-primera/racing-vs-tigre-partido-cuartos-final-torneo-clausura-2025-minuto-minuto-resumen_0_bf5tvRcEkj.html)
+- **Semifinales Liga Argentina 2025: cuándo se juegan, cruces y fecha**: [Link](https://www.tycsports.com/liga-profesional-de-futbol/semifinales-liga-argentina-2025-cuando-se-juegan-fecha-y-cruces-id701086.html)
+- **Tras la clasificación de Gimnasia y a la espera de Racing-Tigre, así quedó el cuadro de semifinales del Torneo Clausura**: [Link](https://www.infobae.com/deportes/2025/12/01/tras-la-clasificacion-de-gimnasia-y-a-la-espera-de-racing-tigre-asi-quedo-el-cuadro-de-semifinales-del-torneo-clausura/)
+
+
+### sismo hoy (N/A, 01/12/2025 20:59 Lima)
+
+- **Temblor en Perú, hoy 1 de diciembre: magnitud y epicentro del sismo según IGP**: [Link](https://rpp.pe/lima/desastres-naturales/temblor-en-peru-hoy-30-de-noviembre-magnitud-y-epicentro-del-sismo-segun-igp-live-3070)
+- **Dos temblores sacuden el Perú: sismo de 5.3 en Huánuco y otro de 3.7 en Ica alarman a la población**: [Link](https://peru21.pe/peru/sismo-de-53-en-huanuco-y-otro-de-37-en-ica-alarma-la-poblacion/)
+- **Temblor HOY, 1 de diciembre, según IGP: ¿de qué magnitud fue el último sismo?**: [Link](https://larepublica.pe/sociedad/2025/12/01/temblor-en-peru-hoy-lunes-1-de-diciembre-del-2025-magnitud-epicentro-y-mas-sobre-sismos-recientes-segun-igp-ultimo-sismo-en-lima-ica-callao-y-otras-provincias-atmp-2447700)
+
+
+### audax italiano (N/A, 01/12/2025 20:59 Lima)
+
+- **¡Es hoy! El crucial partido que se juega para el milagro de Colo Colo en la Copa Sudamericana**: [Link](https://dalealbo.cl/colocolo/es-hoy-el-crucial-partido-que-se-juega-para-el-milagro-de-colo-colo-en-la-copa-sudamericana)
+- **Eduardo Vargas anota el gol que clasifica a Audax Italiano a la Sudamericana y deja a Colo Colo con un pie y medio afuera**: [Link](https://www.latercera.com/el-deportivo/noticia/eduardo-vargas-anota-el-gol-que-clasifica-a-audax-italiano-a-la-sudamericana-y-deja-a-colo-colo-con-un-pie-y-medio-afuera/)
+- **A. Italiano y Ñublense juegan en La Florida con todos los colocolinos pendientes del resultado**: [Link](https://onefootball.com/pt-br/noticias/a-italiano-y-nublense-juegan-en-la-florida-con-todos-los-colocolinos-pendientes-del-resultado-42029778)
+
+
+### racing (N/A, 01/12/2025 20:59 Lima)
+
+- **The NYRA Jockey Walkout is Ridiculous**: [Link](https://pastthewire.com/the-nyra-jockey-walkout-is-ridiculous/)
+- **View From The Eighth Pole: Horse Racing Has Weightier Issues Than Clerk Of Scales Duties**: [Link](https://paulickreport.com/news/ray-s-paddock/view-from-the-eighth-pole-horse-racing-has-weightier-issues-than-clerk-of-scales-duties)
+- **Jockeys Agree to Resume Riding at Aqueduct**: [Link](https://www.bloodhorse.com/horse-racing/articles/288920/jockeys-agree-to-resume-riding-at-aqueduct)
+
+
+### cremonese (N/A, 01/12/2025 20:59 Lima)
+
+- **Nicola "Vardy è un privilegio, Cremonese perfetta"**: [Link](https://www.mattinopadova.it/italia/nicola-vardy-e-un-privilegio-cremonese-perfetta-gf6hfayl)
+- **Orsolini: “Sono deluso, preso due gol da nostre ingenuità. Noi conosciamo la nostra forza e non sarà certo…”**: [Link](https://www.tuttobolognaweb.it/news/orsolini-sono-deluso-preso-due-gol-da-nostre-ingenuita-noi-conosciamo-la-nostra-forza-e-non-sara-certo/)
+- **Bologna, Italiano: "Partita nata male ma noi superficiali. Ci rifaremo"**: [Link](https://www.sportmediaset.mediaset.it/calcio/bologna-italiano-partita-nata-male-ma-noi-superficiali-ci-rifaremo_106655070-202502k.shtml)
+
+
+### excel de hombres infieles (N/A, 01/12/2025 20:59 Lima)
+
+- **¿Eliminaron ‘La lista negra de las girls’? Polémico registro de hombres infieles causó furor en redes sociales**: [Link](https://www.infobae.com/peru/2025/11/30/eliminaron-la-lista-negra-de-las-girls-polemico-registro-de-hombres-infieles-causo-furor-en-redes-sociales/)
+- **🔴🔵¡HAY PÁGINA WEB! 😱 Crean el REGISTRO NACIONAL DE INFIELES del Perú**: [Link](https://www.facebook.com/story.php?story_fbid=1290037136492675&id=100064592023543)
+- **“La lista de las girls”: publican base de datos de hombres infieles y se vuelve viral**: [Link](https://www.montevideo.com.uy/Tiempo-libre/-La-lista-de-las-girls--publican-base-de-datos-de-hombres-infieles-y-se-vuelve-viral-uc945100)
+
+
 ### barracas central - gimnasia (N/A, 01/12/2025 15:26 Lima)
 
 - **Barracas Central y Gimnasia se enfrentan por un lugar en las semifinales del Torneo Clausura**: [Link](https://www.infobae.com/deportes/2025/12/01/barracas-central-y-gimnasia-se-enfrentaran-por-un-lugar-en-las-semifinales-del-torneo-clausura-hora-tv-y-formaciones/)
@@ -969,64 +1032,5 @@ Sin noticias relacionadas disponibles.
 - **Liga de Naciones Femenina: ¿A qué hora juega Colombia vs Bolivia?**: [Link](https://www.espn.com.ar/futbol/mundial/nota/_/id/16017447/a-que-hora-juega-colombia-vs-bolivia-liga-de-naciones-femenina-2025)
 - **Tabla de posiciones Eliminatorias Femeninas al Mundial: Así quedó Colombia tras empatar con Bolivia**: [Link](https://caracol.com.co/2025/11/28/tabla-de-posiciones-eliminatorias-femeninas-al-mundial-asi-quedo-colombia-tras-empatar-con-bolivia/)
 - **Bolivia 1 - 1 Colombia: Resultado, resumen y goles**: [Link](https://colombia.as.com/futbol/bolivia-colombia-en-vivo-online-liga-de-naciones-en-directo-f202511-d/)
-
-
-### juventude (N/A, 28/11/2025 20:54 Lima)
-
-- **Em jogão, Bahia empata com o Juventude fora de casa**: [Link](https://www.vavel.com/br/futebol/2025/11/29/bahia/1242994-em-jogao-bahia-empata-com-o-juventude-fora-de-casa.html)
-- **Como ficou a disputa pelo G-5 e contra o Z-4 após o empate entre Juventude e Bahia?**: [Link](https://www.msn.com/pt-br/esportes/futebol/como-ficou-a-disputa-pelo-g-5-e-contra-o-z-4-ap%C3%B3s-o-empate-entre-juventude-e-bahia/ar-AA1RmvEk)
-- **"Tecnicamente foi feio o que fizemos hoje", dispara Rogério Ceni após empate do Bahia**: [Link](https://www.bahianoticias.com.br/esportes/bahia/33082-tecnicamente-foi-feio-o-que-fizemos-hoje-dispara-rogerio-ceni-apos-empate-do-bahia)
-
-
-### metz - rennes (N/A, 28/11/2025 15:26 Lima)
-
-- **Metz vs Rennes**: [Link](https://www.staderennais.com/matchs/2025-11-28-metz-vs-rennes)
-- **Beye et Le Mignan : symboles d’une stabilité nouvelle - Ligue 1 - J14 - Metz-Rennes**: [Link](https://www.sofoot.com/articles/metz-rennes-beye-le-mignan-symboles-dune-stabilite-nouvelle-sur-les-bancs-de-ligue-1)
-- **L1 : Programme et résultats de la 14e journée**: [Link](https://www.msn.com/fr-fr/sport/football/l1-programme-et-r%C3%A9sultats-de-la-14e-journ%C3%A9e/ar-AA1RioG1)
-
-
-### leipzig (N/A, 28/11/2025 15:26 Lima)
-
-- **Neue Titanic-Ausstellung in Leipzig: „Wir erzählen die echte Geschichte“**: [Link](https://www.lvz.de/lokales/leipzig/neue-titanic-ausstellung-in-leipzig-wir-erzaehlen-die-echte-geschichte-YNFEAT7XMNA43KLI5Z6GXPYSQY.html)
-- **Spektakuläre Ausstellung: "Titanic: Eine immersive Reise" eröffnete am 28. November 2025 in Leipzig**: [Link](https://www.mynewsdesk.com/de/leipzig/pressreleases/spektakulaere-ausstellung-titanic-eine-immersive-reise-eroeffnete-am-28-november-2025-in-leipzig-3418894)
-- **Hättet Ihr's gewusst? Dieses Detail teilt die legendäre Titanic mit dem Leipziger Hauptbahnhof**: [Link](https://www.tag24.de/leipzig/leipzig-veranstaltungen/schon-gewusst-dieses-detail-teilt-die-legendaere-titanic-mit-dem-leipziger-hauptbahnhof-3441247)
-
-
-### al ahli (N/A, 28/11/2025 15:26 Lima)
-
-- **Late strike by Camara sees Sharjah stun holders Al-Ahli in Asian Champions League**: [Link](https://www.flashscore.com/news/soccer-afc-champions-league-late-strike-by-camara-sees-sharjah-stun-holders-al-ahli-in-asian-champions-league/0UavaRRa/)
-- **AFC Champions League Elite News: Al-Ahli Saudi vs Sharjah Confirmed Line-ups**: [Link](https://footballpredictions.net/al-ahli-saudi-v-sharjah-team-news-confirmed-lineups)
-- **Late Camara strike sees Sharjah down Al-Ahli in ACLE**: [Link](https://www.nst.com.my/sports/football/2025/11/1323029/late-camara-strike-sees-sharjah-down-al-ahli-acle)
-
-
-### getafe - elche c. f. (N/A, 28/11/2025 15:26 Lima)
-
-- **Getafe vs Elche: Apuestas, Pronóstico y Cuotas**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2025/noviembre/pronostico-getafe-vs-elche-28-11-25)
-- **LaLiga EA Sports: Getafe se enfrenta ante la visita Elche por la fecha 14**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-getafe-se-enfrenta-ante-la-visita-elche-por-la-fecha-14-noticia-1665562)
-- **Sigue todas las noticias del mundo del fútbol en nuestra sección Fútbol en directo**: [Link](https://www.flashscore.es/noticias/futbol-en-directo-noticias-de-ultima-hora-laliga-jornada-14/UNzACNf4/)
-
-
-### como - sassuolo (N/A, 28/11/2025 15:26 Lima)
-
-- **Como - Sassuolo, en directo: Serie A, hoy en vivo**: [Link](https://as.com/futbol/internacional/como-sassuolo-en-directo-serie-a-hoy-en-vivo-f202511-n/)
-- **Gueye y Keane se vuelven a pelear... esta vez de broma tras el entrenamiento**: [Link](https://www.marca.com/futbol/premier-league/2025/11/27/gueye-keane-vuelven-pelear-vez-broma-entrenamient-video.html)
-- **Everton dio el golpe y derrotó a Manchester United en Old Trafford**: [Link](https://www.espn.com.ar/futbol/nota/_/id/15983617/manchester-united-vs-everton-fecha-12-premier-league-equipo-fecha-hora-y-tv-en-vivo)
-
-
-### metz vs (N/A, 28/11/2025 15:26 Lima)
-
-- **Liga de Francia: Stade Rennes quiere mantener su racha frente Metz**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-de-francia-stade-rennes-quiere-mantener-su-racha-frente-metz-noticia-1665559)
-
-
-### vitoria guimaraes vs (N/A, 28/11/2025 15:26 Lima)
-
-- **Preview: Vitoria de Guimaraes vs AVS - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/vitoria-de-guimaraes/preview/guimaraes-vs-avs-prediction-team-news-lineups_586468.html)
-
-
-### mönchengladbach - rb leipzig (N/A, 28/11/2025 15:26 Lima)
-
-- **Fußball heute live: Gladbach – Leipzig Übertragung im TV und Stream**: [Link](https://www.tipico.de/wett-tipps/sportwetten-news/fussball-heute-live-gladbach-leipzig-uebertragung-im-tv-und-stream)
-- **Polanski lässt Startformation unverändert**: [Link](https://www.borussia.de/news/polanski-laesst-startformation-unveraendert)
-- **Fußball-Bundesliga: RB Leipzig will Rückstand auf die Bayern verkürzen**: [Link](https://www.zeit.de/news/2025-11/28/rb-leipzig-will-rueckstand-auf-die-bayern-verkuerzen)
 
 
