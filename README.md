@@ -1,3 +1,51 @@
+### raquel escalante (N/A, 01/12/2025 23:35 Lima)
+
+- **El último post de Raquel Escalante, Miss de belleza y conductora de TV Azteca fallecida a los 28 años: “He vivido dolor”**: [Link](https://www.infobae.com/mexico/2025/11/30/el-ultimo-post-de-raquel-escalante-miss-de-belleza-y-conductora-de-tv-azteca-fallecida-a-los-28-anos-he-vivido-dolor/)
+- **“Soy una mujer que ha vivido dolor”: último mensaje de Raquel Escalante antes de morir**: [Link](https://www.univision.com/famosos/soy-una-mujer-que-ha-vivido-dolor-ultimo-mensaje-de-raquel-escalante-antes-de-morir-video)
+- **"Soy una mujer que ha vivido dolor": Esta fue la última publicación de Raquel Escalante en redes antes de morir**: [Link](https://www.facebook.com/MilenioDiario/photos/soy-una-mujer-que-ha-vivido-dolor-esta-fue-la-%C3%BAltima-publicaci%C3%B3n-de-raquel-escal/1320848250072643/)
+
+
+### dólar hoy perú (N/A, 01/12/2025 23:35 Lima)
+
+- **Precio del dólar subió: Así cerró el tipo de cambio hoy 1 de diciembre en Perú**: [Link](https://www.infobae.com/peru/2025/12/01/dolar-cotizacion-de-apertura-hoy-1-de-diciembre-en-peru/)
+- **Así cerraría el dólar este año, ¿qué papel juega ahora el BCR?**: [Link](https://gestion.pe/tu-dinero/dolar-asi-cerraria-este-ano-que-papel-juega-ahora-el-bcr-noticia/)
+- **Dólar a la baja | Joaquín Rey**: [Link](https://peru21.pe/opinion/dolar-la-baja-joaquin-rey/)
+
+
+### green day (N/A, 01/12/2025 23:35 Lima)
+
+- **It’s an open secret that the MXR FOD Drive is the Dookie Drive circuit under a different name, and for just $99 you can get the tones from Green Day’s best album on your pedalboard this Cyber Monday**: [Link](https://www.musicradar.com/guitars/guitar-pedals/its-an-open-secret-that-the-mxr-fod-drive-is-the-dookie-drive-circuit-under-a-different-name-and-for-just-usd99-you-can-get-the-tones-from-green-days-best-album-on-your-pedalboard-this-cyber-monday)
+- **“I’ve been willing this to happen forever.” Green Day bassist Mike Dirnt opens up about the band’s upcoming feature film, plans for music — and his brand-new Epiphone signature bass**: [Link](https://www.guitarplayer.com/gear/mike-dirnt-on-his-signature-grabber-bass-and-green-day-s-future-plans)
+
+
+### jesus barco (N/A, 01/12/2025 23:35 Lima)
+
+- **Jesús Barco reafirma que quiere casarse con Melissa Klug: “Eso nunca ha estado en duda”**: [Link](https://elcomercio.pe/tvmas/farandula/jesus-barco-reafirma-que-quiere-casarse-con-melissa-klug-eso-nunca-ha-estado-en-duda-ultimas-noticia/)
+- **¿Volvieron? Filtran beso entre Melissa Klug y Jesús Barco antes de entrevista**: [Link](https://peru21.pe/espectaculos/volvieron-filtran-beso-entre-melissa-klug-y-jesus-barco-antes-de-entrevista/)
+- **Melissa Klug volvió con Jesús Barco, Samantha contra Álvaro**: [Link](https://www.americatv.com.pe/mas-espectaculos/melissa-klug-perdono-jesus-samantha-respondio-alvaro-y-mas-noticia-161657)
+
+
+### lakers - suns (N/A, 01/12/2025 23:35 Lima)
+
+- **Phoenix Suns vs Los Angeles Lakers LIVE Score Updates in NBA Game**: [Link](https://www.vavel.com/en-us/nba/2025/12/02/1243226-suns-vs-lakers-live-score-nba.html)
+- **Live Updates: Joel Embiid returns to the lineup**: [Link](https://www.nba.com/news/live-updates-moments-and-stats-from-a-9-game-night-in-the-nba)
+- **Duane Rankin: Suns injury update at Lakers: Grayson …**: [Link](https://www.hoopshype.com/story/sports/nba/rumors/2025/12/01/duane-rankin-suns-injury-update-at-lakers-grayson/87560103007/)
+
+
+### nuggets - mavericks (N/A, 01/12/2025 23:35 Lima)
+
+- **Mavericks look for Cooper Flagg’s hot play to continue vs. Nuggets**: [Link](https://www.thesportsleader.com/2025/11/30/mavericks-look-for-cooper-flaggs-hot-play-to-continue-vs-nuggets/)
+- **Denver plays Dallas, aims to end home slide**: [Link](https://abcnews.go.com/Sports/wireStory/denver-plays-dallas-aims-end-home-slide-127976071)
+- **Mavericks vs Nuggets Best NBA Betting Picks, Prediction and Prop Bets for December 1**: [Link](https://www.betus.com.pa/nba/picks/mavericks-vs-nuggets-best-nba-betting-picks-prediction-and-prop-bets-for-12-01-2025-dono/)
+
+
+### billie eilish (N/A, 01/12/2025 23:35 Lima)
+
+- **Billie Eilish swaps her signature baggy clothes for form-fitting equestrian attire**: [Link](https://www.yahoo.com/entertainment/celebrity/articles/billie-eilish-swaps-her-signature-170543187.html)
+- **Billie Eilish Unrecognizable In Skintight Look Amid Drama**: [Link](https://theblast.com/749399/billie-eilish-mystery-look-elon-musk-feud/)
+- **Billie Eilish looks unrecognizable as she ditches signature baggy look for skintight equestrian gear**: [Link](https://www.dailymail.co.uk/tvshowbiz/article-15340635/billie-eilish-unrecognizable-equestrian.html)
+
+
 ### win (N/A, 01/12/2025 20:59 Lima)
 
 - **Two starts in, Shedeur Sanders understands the fragility of NFL life**: [Link](https://andscape.com/features/cleveland-browns-shedeur-sanders-nfl/)
@@ -983,54 +1031,5 @@ Sin noticias relacionadas disponibles.
 - **Empates, goleadas y el primer descenso: así se movió la fecha 6 de los hexagonales**: [Link](https://www.tvc.com.ec/noticia/empates-goleadas-y-el-primer-descenso-asi-se-movio-la-fecha-6-de-los-hexagonales/)
 - **LigaPro Serie A: así se definen el título, los cupos a copas y el descenso**: [Link](https://www.extra.ec/noticia/deportes/ligapro-serie-asi-se-definen-el-titulo-los-cupos-copas-y-el-descenso-141873.html)
 - **Hexagonales y cuadrangular LigaPro 2025: resultados, posiciones y lo que se juega**: [Link](https://www.extra.ec/noticia/deportes/hexagonales-y-cuadrangular-ligapro-2025-resultados-posiciones-y-lo-que-se-juega-141640.html)
-
-
-### santos (N/A, 28/11/2025 20:54 Lima)
-
-- **Santos x Sport: confira a transmissão da Jovem Pan ao vivo**: [Link](https://jovempan.com.br/esportes/futebol/santos-x-sport-confira-a-transmissao-da-jovem-pan-ao-vivo.html)
-- **Aos 25 min do 1º tempo - gol de dentro da área de Neymar do Santos contra o Sport**: [Link](https://ge.globo.com/futebol/video/aos-25-min-do-1o-tempo-gol-de-dentro-da-area-de-neymar-do-santos-contra-o-sport-14138757.ghtml)
-- **Torcida do Santos se revolta com Neymar dentro de campo, e comentários são feitos: “Estraga o Santos”**: [Link](https://br.bolavip.com/santos/torcida-do-santos-se-revolta-com-neymar-dentro-de-campo-e-comentarios-sao-feitos-estraga-o-santos)
-
-
-### ldu quito (N/A, 28/11/2025 20:54 Lima)
-
-- **El club de la Liga 1 que inició negociaciones con Barcos**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/club-liga-1-que-ya-inicio-negociaciones-hernan-barcos-sport-boys-n451845)
-- **La palabra del ‘Diamante’: Uribe valoró a Hernán Barcos y habló sobre su posible llegada a Sporting Cristal**: [Link](https://depor.com/futbol-peruano/descentralizado/hernan-barcos-a-sporting-cristal-tras-no-seguir-en-alianza-lima-julio-cesar-uribe-valoro-su-calidad-y-hablo-sobre-si-lo-ficharan-o-no-fichajes-liga-1-2026-noticia/)
-- **Hernán Barcos no seguirá en Alianza Lima para el 2026**: [Link](https://www.espn.com.pe/futbol/peru/nota/_/id/16010670/hernan-barcos-no-seguira-en-alianza-lima-para-el-2026)
-
-
-### neymar (N/A, 28/11/2025 20:54 Lima)
-
-- **Neymar marcó su gol para Santos vs. Sport Recife, en el Brasileirao**: [Link](https://www.espn.com.ar/futbol/brasil/nota/_/id/16019570/gol-neymar-santos-vs-sport-recife-descenso-fecha-36-brasileirao-2025)
-- **La arriesgada decisión de Neymar para intentar salvar del descenso al Santos**: [Link](https://www.infobae.com/deportes/2025/11/27/la-arriesgada-decision-de-neymar-para-intentar-salvar-del-descenso-al-santos/)
-- **Fuentes: Neymar se plantea jugar con dolor pese a requerir operación**: [Link](https://espndeportes.espn.com/futbol/brasil/nota/_/id/16012299/santos-neymar-jugar-con-dolor-requerir-operacion)
-
-
-### ldu (N/A, 28/11/2025 20:54 Lima)
-
-- **LDU Quito vs. Independiente del Valle - Boxscore - Live Score - November 28, 2025**: [Link](https://www.foxsports.com/soccer/ecuadorian-liga-pro-ldu-quito-vs-ind-del-valle-nov-28-2025-game-boxscore-646925?tab=boxscore)
-- **LDU Quito vs Independiente del Valle tonight, witness when Spinelli leads IDV toward their second Liga Pro crown in front of devastating home fans**: [Link](https://www.red94.net/news/21890-ldu-quito-faces-independiente-del-valle-tonight-in-crucial-liga-pro-battle-spine/)
-- **El club de la Liga 1 que inició negociaciones con Barcos**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/club-liga-1-que-ya-inicio-negociaciones-hernan-barcos-sport-boys-n451845)
-
-
-### santos - sport recife (N/A, 28/11/2025 20:54 Lima)
-
-- **Santos vs Sport Recife: Cómo ver el partido Brasileirao por televisión y streaming de EE. UU.**: [Link](https://www.ucvradio.pe/mas-actualidad/santos-vs-sport-recife-como-ver-el-partido-brasileirao-por-television-y-streaming-de-ee-uu/62128/)
-- **Pronóstico Santos - Sport Recife. Brasileirao Serie A | 29/11/2025**: [Link](https://gainblers.com/pe/pronosticos/futbol/brasil/brasileirao-serie-a/pronostico-santos-sport-recife-29-11-2025/)
-- **Santos FC vs Sport Recife - PE pronostico y comparación de cuotas 29.11.2025**: [Link](https://www.livetipsportal.com/es/pronosticos-apuestas-deportivas/santos-fc-vs-sport-recife-pe-serie-a-10963466/)
-
-
-### agua (N/A, 28/11/2025 20:54 Lima)
-
-- **Corte de agua en Lima: Sedapal suspende su servicio este jueves 27 de noviembre en tres distritos**: [Link](https://www.infobae.com/peru/2025/11/25/corte-de-agua-en-lima-sedapal-advierte-suspension-del-servicio-este-26-y-27-de-noviembre-en-seis-distritos/)
-- **Sedapal CORTARÁ EL AGUA este 28 y 29 de noviembre: Lista de distritos afectados**: [Link](https://peru21.pe/lima/sedapal-cortara-el-agua-este-28-y-29-de-noviembre-lista-de-distritos-afectados/)
-- **Corte de agua en Lima: zonas afectadas y horario de Sedapal del 28 al 30 de noviembre**: [Link](https://larepublica.pe/sociedad/2025/11/27/sedapal-anuncia-corte-de-agua-en-lima-distritos-y-horarios-afectados-del-28-al-30-de-noviembre-atmp-1510083)
-
-
-### liga de naciones femenina (N/A, 28/11/2025 20:54 Lima)
-
-- **Liga de Naciones Femenina: ¿A qué hora juega Colombia vs Bolivia?**: [Link](https://www.espn.com.ar/futbol/mundial/nota/_/id/16017447/a-que-hora-juega-colombia-vs-bolivia-liga-de-naciones-femenina-2025)
-- **Tabla de posiciones Eliminatorias Femeninas al Mundial: Así quedó Colombia tras empatar con Bolivia**: [Link](https://caracol.com.co/2025/11/28/tabla-de-posiciones-eliminatorias-femeninas-al-mundial-asi-quedo-colombia-tras-empatar-con-bolivia/)
-- **Bolivia 1 - 1 Colombia: Resultado, resumen y goles**: [Link](https://colombia.as.com/futbol/bolivia-colombia-en-vivo-online-liga-de-naciones-en-directo-f202511-d/)
 
 
