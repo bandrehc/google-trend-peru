@@ -1,3 +1,72 @@
+### real madrid vs manchester city (N/A, 03/12/2025 15:30 Lima)
+
+- **Pol Deportes y su emotiva reacción al enterarse que narrará el duelo Real Madrid vs Manchester City**: [Link](https://libero.pe/futbol-internacional/champions-league/2025/12/03/pol-deportes-su-emotiva-reaccion-enterarse-narrara-partido-real-madrid-vs-manchester-city-197073)
+- **'Pol Deportes' llegará a la Champions League: joven narrador estará en el partido entre Real Madrid vs Manchester City**: [Link](https://larepublica.pe/deportes/2025/12/03/pol-deportes-llegara-a-la-champions-league-joven-narrador-estara-en-el-partido-entre-real-madrid-vs-manchester-city-104685)
+
+
+### union berlin vs bayern (N/A, 03/12/2025 15:30 Lima)
+
+- **Preview: Union Berlin vs Bayern Munich - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/union-berlin/dfb-pokal/preview/union-berlin-vs-bayern-prediction-team-news-lineups_586916.html)
+- **No more warnings necessary! Bayern ready for DFB Cup round of 16 tie at Union Berlin**: [Link](https://fcbayern.com/en/matches/profis/dfb-pokal/2025-2026/1-fc-union-berlin-fc-bayern-muenchen-02-12-2025/preview)
+- **Union Berlin’s Steffen Baumgart doesn’t see any weakness in Bayern Munich**: [Link](https://sports.yahoo.com/articles/union-berlin-steffen-baumgart-doesn-033000010.html)
+
+
+### quintanar del rey - elche c. f. (N/A, 03/12/2025 15:30 Lima)
+
+- **Sarabia: “La ilusión no nos la quita nadie, ‘Road to Sevilla’”**: [Link](https://as.com/futbol/copa_del_rey/sarabia-la-ilusion-no-nos-la-quita-nadie-road-to-sevilla-f202512-n/)
+- **Dónde ver online y en televisión el Quintanar del Rey - Elche hoy de Copa del Rey y a qué hora se juega el partido de segunda ronda**: [Link](https://www.abc.es/espana/comunidad-valenciana/donde-ver-online-television-quintanar-rey-elche-copa-rey-horario-20251203135327-nt.html)
+- **Quintanar del Rey vs Elche de Copa del Rey 2025/26: cuándo se juega, horario y canal de TV en España**: [Link](https://www.dazn.com/es-ES/news/f%C3%BAtbol/quintanar-del-rey-vs-elche-copa-rey-202526-cuando-juega-horario-canal-tv-espana/zj86hyx1zait1mar9qwj6t6n6)
+
+
+### ourense - girona (N/A, 03/12/2025 15:30 Lima)
+
+- **Míchel recurre al filial para evitar otro descalabro copero**: [Link](https://www.sport.es/es/noticias/girona/michel-recurre-filial-evitar-descalabro-124354073)
+- **Otro baile a ritmo de Copa del Rey en O Couto**: [Link](https://www.lavozdegalicia.es/noticia/ourense/2025/12/03/baile-ritmo-copa-couto/0003_202512O3C5991.htm)
+- **El Girona visita a un Ourense en racha**: [Link](https://www.gironafc.cat/es/noticias/el-girona-visita-a-un-ourense-en-racha)
+
+
+### arsenal (N/A, 03/12/2025 15:30 Lima)
+
+- **Premier League: Build-up to six games, with Arsenal, Chelsea & Liverpool in action**: [Link](https://www.bbc.com/sport/football/live/cm27rz02exkt)
+- **Chasing Points: Looking ahead to Matchweek 14 of the English Premier League**: [Link](https://dailyfreepress.com/12/02/21/216828/chasing-points-looking-ahead-to-matchweek-14-of-the-english-premier-league/)
+- **Football accumulator tips for Wednesday December 3: Back our acca at 23-1 with bet365**: [Link](https://www.racingpost.com/sport/football-tips/football-acca-tips/football-accumulator-tips-for-wednesday-december-3-back-our-acca-at-23-1-with-bet365-aUAZg2W4gz6j/)
+
+
+### endrick (N/A, 03/12/2025 15:30 Lima)
+
+- **Endrick loan to Lyon expected to be sealed in December – clubs enquiring about Gonzalo Garcia**: [Link](https://tribuna.com/en/news/2025-12-02-endrick-loan-to-lyon-expected-to-be-sealed-in-december-clubs-enquiring-about-gonzalo-garc/)
+- **The private conversation between Xabi Alonso and Florentino that explains the twist in Endrick's future**: [Link](https://madrid-barcelona.com/en/real-madrid/private-conversation-between-xabi-alonso-and-florentino-that-explains-endricks-future-twist)
+- **Endrick will have to wait, Real Madrid delays the signing: 'He'll stay until...'**: [Link](https://e-noticies.cat/en/soccer/endrick-will-have-to-wait-real-madrid-delays-signing-he-will-stay-until)
+
+
+### leeds - chelsea (N/A, 03/12/2025 15:30 Lima)
+
+- **Cesar Azpilicueta became a true Chelsea hero with antics against old rivals Leeds United in 2021**: [Link](https://www.thechelseachronicle.com/throwbacks/cesar-azpilicueta-became-a-true-chelsea-hero-with-antics-against-old-rivals-leeds-united-in-2021/)
+- **Predicted XI: Enzo Maresca starts 3 Brazilians as Blues look to keep up hot form**: [Link](https://chelsea.news/2025/12/leeds-predicted-enzo-maresca-starts-brazilians/)
+- **Leeds vs Chelsea: Net £30 in free PL bets with our bet365 bonus code – TSPORT**: [Link](https://talksport.com/betting/3789608/leeds-vs-chelsea-bet365-free-bets/)
+
+
+### liverpool - sunderland afc (N/A, 03/12/2025 15:30 Lima)
+
+- **Confirmed Liverpool line-up v Sunderland**: [Link](https://www.liverpoolfc.com/news/confirmed-liverpool-line-v-sunderland)
+- **Slot warns Liverpool fans the standard must rise after West Ham victory**: [Link](https://onefootball.com/en/news/slot-warns-liverpool-fans-the-standard-must-rise-after-west-ham-victory-42040936)
+- **Premier League Soccer: Stream Sunderland vs. Liverpool Live From Anywhere**: [Link](https://www.cnet.com/tech/services-and-software/premier-league-soccer-stream-sunderland-vs-liverpool-live-from-anywhere/)
+
+
+### inter - venezia (N/A, 03/12/2025 15:30 Lima)
+
+- **Inter-Venezia | ✅ UFFICIALI: la scelta su Thuram, Pio, Martinez e Diouf**: [Link](https://onefootball.com/it/notizie/inter-venezia-ufficiali-la-scelta-su-thuram-pio-martinez-e-diouf-42043474)
+- **Le scelte di formazione e un messaggio da monito, Chivu prima di Inter-Venezia: "La partita più importante è stasera"**: [Link](https://tribuna.com/it/news/2025-12-03-le-scelte-di-formazione-e-un-messaggio-da-monito-chivu-prima-di-intervenezia-la-partita-p/)
+- **Coppa Italia: Duncan: "Sempre bello tornare a San Siro" Video**: [Link](https://mediasetinfinity.mediaset.it/video/coppaitalia20252026/duncan-sempre-bello-tornare-a-san-siro_F313474302028C01)
+
+
+### nico williams (N/A, 03/12/2025 15:30 Lima)
+
+- **Nico Williams recibe el premio al mejor gol de noviembre**: [Link](https://es-us.noticias.yahoo.com/deportes/nico-williams-recibe-premio-gol-181453878.html)
+- **Nico Williams recibe el premio al mejor gol de noviembre**: [Link](https://vivirediciones.es/destacado/nico-williams-recibe-el-premio-al-mejor-gol-de-noviembre/)
+- **Nico Williams se moja entre Lamine Yamal y Kylian Mbappé: "Yo tiro para casa siempre"**: [Link](https://www.dazn.com/es-ES/news/f%C3%BAtbol/nico-williams-moja-lamine-yamal-kylian-mbappe-tiro-casa-siempre/1px78xode90zo1vayfki6agsog)
+
+
 ### napoli - cagliari (N/A, 03/12/2025 11:35 Lima)
 
 - **#Napoli-Cagliari, le probabili formazioni: #Ambrosino e #Lucca in avanti e #Vergara a centrocampo. Previsti otto cambi rispetto alla formazione che ha vinto a #Roma. Confermati solo Milinkovic-Savic, #Beukema e #Olivera. Possibile anche l’opzione della lin**: [Link](https://www.facebook.com/ilnapolista/photos/napoli-cagliari-le-probabili-formazioni-ambrosino-e-lucca-in-avanti-e-vergara-a-/1369605035178148/)
@@ -958,75 +1027,5 @@ Sin noticias relacionadas disponibles.
 - **PSV vs. FC Volendam (30 Nov, 2025) Live Score**: [Link](https://www.espn.in/football/match/_/gameId/741093)
 - **Preview: PSV Eindhoven vs. FC Volendam - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/psv-eindhoven/preview/psv-vs-volendam-prediction-team-news-lineups_586715.html)
 - **Veerman Gives PSV Early Lead Against Volendam; Pepi and Wanner Start**: [Link](https://www.el-balad.com/6779996)
-
-
-### que hora es en españa (N/A, 30/11/2025 07:47 Lima)
-
-- **Georgia: una hazaña y una despedida**: [Link](https://www.marca.com/baloncesto/2025/11/30/georgia-hazana-despedida.html)
-- **La nueva España se estrena en casa con ganas de revancha**: [Link](https://www.msn.com/es-es/deportes/baloncesto/la-nueva-espa%C3%B1a-se-estrena-en-casa-con-ganas-de-revancha/ar-AA1RqaNy)
-- **Javi Beirán: «Tenerife es una isla de mucho baloncesto y la visita de España es un lujo»**: [Link](https://www.deporpress.com/index.php/2025/11/29/javi-beiran-tenerife-es-una-isla-de-mucho-baloncesto-y-la-visita-de-espana-es-un-lujo/)
-
-
-### aguinaldo (N/A, 30/11/2025 03:29 Lima)
-
-- **Aguinaldo y gratificación de diciembre 2025: ¿cuánto será el monto y cómo utilizarlo?**: [Link](https://rpp.pe/economia/tus-finanzas/aguinaldo-y-gratificacion-de-diciembre-2025-cuanto-sera-el-monto-y-como-utilizarlo-noticia-1665890)
-- **Pago de gratificaciones en diciembre 2025 incluirá una bonificación extraordinaria**: [Link](https://gestion.pe/economia/management-empleo/pago-de-gratificaciones-en-diciembre-2025-incluira-una-bonificacion-extraordinaria-noticia/)
-- **Aguinaldo de S/300: Las fechas en que se pagará a trabajadores del sector público**: [Link](https://www.infobae.com/peru/2025/11/25/aguinaldo-de-s300-las-fechas-en-que-se-deposita-a-trabajadores-del-sector-publico/)
-
-
-### kick (N/A, 30/11/2025 03:29 Lima)
-
-- **Cuffem comes back to Kick following hospitalization from Playboi Carti show fall**: [Link](https://timesofindia.indiatimes.com/world/us-streamers/cuffem-comes-back-to-kick-following-hospitalization-from-playboi-carti-show-fall/articleshow/125664049.cms)
-- **How did Cuffem get injured at Playboy Carti's concert? Streamer returns to Twitch and shares health update**: [Link](https://www.primetimer.com/features/how-did-cuffem-get-injured-at-playboy-cartis-concert-streamer-returns-to-twitch-and-shares-health-update)
-- **How Adin Ross came up big during a blackjack Kick stream**: [Link](https://win.gg/adin-ross-blackjack-kick-stream/)
-
-
-### barranca (N/A, 30/11/2025 03:29 Lima)
-
-- **Militares desmantelan 25 campamentos de minería ilegal en el norte de Ecuador**: [Link](https://www.swissinfo.ch/spa/militares-desmantelan-25-campamentos-de-miner%C3%ADa-ilegal-en-el-norte-de-ecuador/90553941)
-- **Ejército desmantela base de microtráfico y deja 7 detenidos**: [Link](https://www.laprensa.com.ec/ejercito-desmantela-base-de-microtrafico/)
-- **Ejército realizó operativos contra el microtráfico de droga en Chimborazo y contra la minería ilegal en Sucumbíos, ¿qué hallaron?**: [Link](https://www.lahora.com.ec/seguridad/ejercito-realizo-operativos-contra-el-microtrafico-de-droga-en-chimborazo-y-contra-la-mineria-ilegal-en-sucumbios-que-hallaron-20251128-0026.html)
-
-
-### clippers - mavericks (N/A, 30/11/2025 03:29 Lima)
-
-- **Mavs' Flagg leaps LeBron as youngest to score 35**: [Link](https://www.espn.com/nba/story/_/id/47147506/mavs-flagg-torches-clips-leaps-lebron-youngest-score-35)
-- **Tyronn Lue Makes Concerning Statement As Clippers Fall To 5-15 With Loss To Mavericks**: [Link](https://fadeawayworld.net/nba/la-clippers/tyronn-lue-makes-concerning-statement-clippers-fall-5-15-loss-mavericks)
-- **Stats Rundown: 3 numbers to know from the Mavericks 114-110 win over the Clippers**: [Link](https://www.mavsmoneyball.com/dallas-mavericks-game-coverage/53270/stats-rundown-3-numbers-to-know-from-the-mavericks-114-110-win-over-the-clippers)
-
-
-### aviones airbus a320 (N/A, 30/11/2025 03:29 Lima)
-
-- **Latam, Sky y JetSmart se pronuncian sobre la alerta de Airbus sobre sus aviones A320: ¿habrá cancelaciones de vuelos?**: [Link](https://elcomercio.pe/economia/peru/latam-sky-y-jetsmart-se-pronuncian-sobre-la-alerta-de-airbus-sobre-sus-aviones-a320-habra-cancelaciones-de-vuelos-noticia/)
-- **Aerolíneas se apuran a reparar sus aviones tras advertir que la radiación solar podría hacer a los pilotos perder el control**: [Link](https://cnnespanol.cnn.com/2025/11/28/eeuu/aviones-airbus-mantenimiento-tormenta-solar-trax)
-- **Airbus reconoce problemas en cambios requeridos en los A320**: [Link](https://www.dw.com/es/airbus-reconoce-dificultades-en-cambios-requeridos-en-los-a320/a-74954558)
-
-
-### wwe (N/A, 29/11/2025 23:36 Lima)
-
-- **Shock Finish at Survivor Series WarGames as Hooded Figure Costs Punk’s Team**: [Link](https://slamwrestling.net/news/shock-finish-at-survivor-series-wargames-as-hooded-figure-costs-punks-team/)
-- **Mystery WWE Superstar Interferes at WarGames (And It’s Not Seth Rollins)**: [Link](https://comicbook.com/tv-shows/feature/mystery-wwe-superstar-interferes-at-wargames-and-its-not-seth-rollins/)
-- **WWE Survivor Series: WarGames Sets Stage For WrestleMania 42 As Masked Superstar Attacks CM Punk**: [Link](https://www.forbes.com/sites/djsiddiqi/2025/11/29/wwe-survivor-series-wargames-sets-stage-for-wrestlemania-42-as-masked-superstar-attacks-cm-punk/)
-
-
-### melissa klug (N/A, 29/11/2025 23:36 Lima)
-
-- **Melissa Klug admite crisis con Jesús Barco: “la falta de comunicación nos afectó” últimas | TVMAS**: [Link](https://elcomercio.pe/tvmas/farandula/melissa-klug-admite-crisis-con-jesus-barco-la-falta-de-comunicacion-nos-afecto-ultimas-noticia/)
-- **Magaly Medina arremete contra Melissa Klug tras salir de compras con Jesús Barco: “Es como criar a un niño”**: [Link](https://www.infobae.com/peru/2025/11/28/magaly-medina-arremete-contra-melissa-klug-tras-salir-de-compras-con-jesus-barco-es-como-criar-a-un-nino/)
-- **¿Volvieron? Filtran beso entre Melissa Klug y Jesús Barco antes de entrevista**: [Link](https://peru21.pe/espectaculos/volvieron-filtran-beso-entre-melissa-klug-y-jesus-barco-antes-de-entrevista/)
-
-
-### suns - nuggets (N/A, 29/11/2025 23:36 Lima)
-
-- **Nuggets face Suns on back-to-back**: [Link](https://www.nba.com/nuggets/news/nuggets-face-suns-on-back-to-back)
-- **Nikola Jokic (wrist) questionable to play Saturday**: [Link](https://www.fantasypros.com/nba/news/555734/nikola-jokic-wrist-questionable-to-play-saturday.php)
-- **NBA Best Bets: Nuggets vs. Suns Prop Bets for Saturday 11/29/25**: [Link](https://dknetwork.draftkings.com/2025/11/29/nba-best-bets-nuggets-vs-suns-prop-bets-for-saturday-11-29-25/)
-
-
-### tigres - tijuana (N/A, 29/11/2025 23:36 Lima)
-
-- **Tigres busca mejorar inercia cuando necesita remontar en Liguilla**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/16018040/tigres-vs-xolos-historial-remontadas-liguilla-estadio-universitario)
-- **Pronóstico Tigres UANL Tijuana - Liga MX 29/11/25**: [Link](https://www.sportytrader.com/es/pronosticos/tigres-uanl-tijuana-308505/)
-- **Qué canal pasa Tigres vs Tijuana hoy: dónde ver GRATIS y EN VIVO el partido de la Liga MX**: [Link](https://www.365scores.com/es/news/tigres-vs-tijuana-donde-ver-gratis-vivo/)
 
 
