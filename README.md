@@ -1,3 +1,17 @@
+### seth curry (N/A, 03/12/2025 03:35 Lima)
+
+- **Warriors sign Seth Curry for remainder of season**: [Link](https://www.espn.com/nba/story/_/id/47150406/warriors-sign-seth-curry-remainder-season-sources-say)
+- **NBA trade rumors: Golden State Warriors could eye $27 million Dallas Mavericks superstar to support Steph**: [Link](https://timesofindia.indiatimes.com/sports/nba/top-stories/nba-trade-rumors-golden-state-warriors-could-eye-27-million-dallas-mavericks-superstar-to-support-stephen-curry-buddy-hield-key-trade-asset/articleshow/125730765.cms)
+- **Steve Kerr Unsure on Impending Roster Decision Ahead of Seth Curry’s Warriors Debut**: [Link](https://www.essentiallysports.com/nba-active-basketball-news-steve-kerr-unsure-on-impending-roster-decision-ahead-of-seth-curry-s-warriors-debut/)
+
+
+### mon laferte peru (N/A, 03/12/2025 03:35 Lima)
+
+- **Mon Laferte vuelve al Perú con su gira “Femme Fatale”: ¿Cuándo y dónde será su concierto?**: [Link](https://elcomercio.pe/luces/musica/mon-laferte-vuelve-al-peru-con-su-gira-femme-fatale-cuando-y-donde-sera-su-concierto-celebs-ultimas-noticia/)
+- **Mon Laferte vuelve al Perú: fecha, lugar y entradas para su concierto en Lima**: [Link](https://www.infobae.com/peru/2025/12/02/mon-laferte-vuelve-al-peru-fecha-lugar-y-entradas-para-su-concierto-en-lima/)
+- **Mon Laferte, en el club de los amores perros**: [Link](https://elpais.com/babelia/2025-11-29/mon-laferte-en-el-club-de-los-amores-perros.html)
+
+
 ### warriors - thunder (N/A, 02/12/2025 23:33 Lima)
 
 - **Oklahoma City Thunder vs Golden State Warriors Prediction, Pick, Odds -- 12/2**: [Link](https://www.actionnetwork.com/nba/oklahoma-city-thunder-vs-golden-state-warriors-prediction-pick-odds-tuesday-december-2)
@@ -1014,19 +1028,5 @@ Sin noticias relacionadas disponibles.
 - **Inter Miami - NYC FC, en vivo: Messi en la Final de Conferencia Este, hoy, en directo**: [Link](https://as.com/us/futbol/inter-miami-nyc-fc-en-vivo-messi-en-la-final-de-conferencia-este-hoy-en-directo-f202511-d/)
 - **De Paul, tras ganar la Conferencia del Este con Inter Miami: "La felicidad es enorme"**: [Link](https://www.espn.com.ar/futbol/mls/nota/_/id/16024618/rodrigo-de-paul-inter-miami-final-conferencia-este-mls)
 - **Mascherano afirma que Inter Miami ‘no ha ganado nada’ y pide no confiarse ante NYCFC**: [Link](https://www.clarosports.com/futbol/mls/mascherano-afirma-que-inter-miami-no-ha-ganado-nada-y-pide-no-confiarse-ante-nycfc/)
-
-
-### everton ribeiro (N/A, 29/11/2025 21:08 Lima)
-
-- **Éverton Ribeiro Receberá Título De Cidadão De Salvador Da Câmara Municipal**: [Link](https://takta.com.br/esporte/everton-ribeiro-recebera-titulo-de-cidadao-de-salvador-da-camara-municipal/)
-- **Everton Ribeiro será homenageado com Título de Cidadão Soteropolitano**: [Link](https://www.psnoticias.com.br/salvador/everton-ribeiro-sera-homenageado-com-titulo-de-cidadao-soteropolitano/)
-- **Camisa 10 e capitão do Bahia, Éverton Ribeiro recebe título de Cidadão Soteropolitano na próxima semana**: [Link](https://www.varelanet.com.br/noticias/bahia/camisa-10-e-capitao-do-bahia-everton-ribeiro-recebe-titulo-de-cidadao-soteropolitano-na-proxima-semana)
-
-
-### liga brasileña (N/A, 29/11/2025 21:08 Lima)
-
-- **Neymar es inmortal**: [Link](https://as.com/futbol/internacional/neymar-es-inmortal-f202511-n/)
-- **Neymar desoyó a los médicos, jugó lesionado y fue clave para sacar a Santos del descenso: gol y asistencia ante Sport Recife**: [Link](https://www.infobae.com/deportes/2025/11/29/neymar-desoyo-a-los-medicos-jugo-lesionado-y-fue-clave-para-sacar-a-santos-del-descenso-gol-y-asistencia-ante-sport-recife/)
-- **No escuchó a los doctores y jugó lesionado: Neymar vuelve, marca... y saca a Santos del descenso**: [Link](https://www.marca.com/futbol/2025/11/29/escucho-doctores-jugo-lesionado-neymar-vuelve-marca-saca-santos-descens-video.html)
 
 
