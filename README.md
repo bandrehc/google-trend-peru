@@ -1,3 +1,73 @@
+### warriors - thunder (N/A, 02/12/2025 23:33 Lima)
+
+- **Oklahoma City Thunder vs Golden State Warriors Prediction, Pick, Odds -- 12/2**: [Link](https://www.actionnetwork.com/nba/oklahoma-city-thunder-vs-golden-state-warriors-prediction-pick-odds-tuesday-december-2)
+- **Betr Picks Promo 'COVERSBONUS' Unlocks A $10 on Sign-Up 50% Deposit Bonus Up To $200 For Thunder vs Warriors**: [Link](https://www.covers.com/daily-promos/betr-picks-promo-code-nba-thunder-warriors-12-02-2025)
+- **How to watch Thunder-Warriors NBA game free livestream tonight**: [Link](https://www.al.com/tv/2025/12/how-to-watch-thunder-warriors-nba-game-free-livestream-tonight.html)
+
+
+### karol g (N/A, 02/12/2025 23:33 Lima)
+
+- **Indecopi: ningún bar u otro negocio puede reproducir música de Spotify o YouTube**: [Link](https://lpderecho.pe/bar-denunciado-reproducir-musica-spotify/)
+- **Indecopi sanciona a restobar por reproducir música de YouTube y Spotify: uso comercial requiere una licencia especial, según resolución**: [Link](https://larepublica.pe/economia/2025/12/02/indecopi-sanciona-a-restobar-por-reproducir-musica-de-youtube-y-spotify-uso-comercial-requiere-una-licencia-especial-segun-resolucion-atmp-81450)
+- **Reproducir Spotify o YouTube en negocios está prohibido según Indecopi: bar de Miraflores denunciado por usar música de Karol G**: [Link](https://www.infobae.com/peru/2025/12/02/reproducir-spotify-o-youtube-en-negocios-esta-prohibido-segun-indecopi-bar-de-miraflores-denunciado-por-usar-musica-de-karol-g/)
+
+
+### samantha batallanos (N/A, 02/12/2025 23:33 Lima)
+
+- **Magaly Medina cuestiona el estilo de vida de Samantha Batallanos luego de presumir lujoso penthouse en San Isidro**: [Link](https://www.infobae.com/peru/2025/12/02/magaly-medina-cuestiona-el-estilo-de-vida-de-samantha-batallanos-luego-de-presumir-lujoso-penthouse-en-san-isidro/)
+- **"Álvaro Rod no iba a poder pagar penthouse de Samantha"**: [Link](https://www.americatv.com.pe/america-hoy/alvaro-no-iba-poder-pagar-penthouse-samantha-segun-edson-noticia-161683)
+- **Samantha Batallanos vive en lujoso penthouse de San Isidro ¡Con un alquiler de más de 12 mil soles mensuales!**: [Link](https://www.atv.pe/noticia/samantha-batallanos-vive-en-lujoso-penthouse-de-san-isidro-con-un-alquiler-de-mas-de-12-mil-soles-mensuales/)
+
+
+### diego bertie (N/A, 02/12/2025 23:33 Lima)
+
+- **Imitador de Diego Bertie cautivó en su segunda presentación de Yo Soy, pero no se salvó de observaciones del jurado**: [Link](https://www.infobae.com/peru/2025/12/02/imitador-de-diego-bertie-cautivo-en-su-segunda-presentacion-de-yo-soy-pero-no-se-salvo-de-observaciones-del-jurado/)
+- **Yo Soy conciertos 2025: ¡Diego Bertie sorprende… y divide opiniones en el set!**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-conciertos-2025-diego-bertie-sorprende-y-divide-opiniones-en-el-set_20251201/)
+- **Imitador de Diego Bertie FASCINÓ en la segunda presentación de ‘Yo soy’, pero no se salvó de un jalón de orejas de Ricardo Morán**: [Link](https://wapa.pe/espectaculos-y-tv/farandula/2025/12/02/imitador-diego-bertie-fascino-en-segunda-presentacion-yo-soy-pero-no-se-salvo-jalon-orejas-ricardo-moran-90398)
+
+
+### pablo escobar (N/A, 02/12/2025 23:33 Lima)
+
+- **El final de Pablo Emilio Escobar: las últimas horas del rey de la huida que ya no sabía cómo escapar**: [Link](https://www.infobae.com/historias/2025/12/02/el-final-de-pablo-emilio-escobar-las-ultimas-horas-del-rey-de-la-huida-que-ya-no-sabia-como-escapar/)
+- **La historia de la foto que mostró en la morgue de Medellín el final de Pablo Escobar**: [Link](https://www.las2orillas.co/la-historia-detras-de-la-foto-que-mostro-en-la-morgue-de-medellin-el-final-de-pablo-escobar/)
+- **2 de diciembre: un día para recordar el dolor, no el mito de Pablo Escobar**: [Link](https://elnuevodiario.com.do/2-de-diciembre-un-dia-para-recordar-el-dolor-no-el-mito-de-pablo-escobar/)
+
+
+### al vs (N/A, 02/12/2025 23:33 Lima)
+
+- **Bama wins Iron Bowl, to face Georgia for SEC title**: [Link](https://www.espn.com/college-football/story/_/id/47146139/alabama-wins-iron-bowl-face-georgia-sec-title)
+- **Alabama's AP Poll ranking revealed following Iron Bowl win vs. Auburn**: [Link](https://rolltidewire.usatoday.com/story/sports/college/crimson-tide/football/2025/11/30/alabama-football-ap-poll-ranking-auburn-tigers-iron-bowl-win/87540174007/)
+- **Auburn rally not enough in 27-20 Iron Bowl loss**: [Link](https://auburntigers.com/news/2025/11/30/auburn-rally-not-enough-in-27-20-iron-bowl-loss)
+
+
+### celtics - knicks (N/A, 02/12/2025 23:33 Lima)
+
+- **Jayson Tatum (42 points), Jordan Walsh help Celtics deny Knicks**: [Link](https://www.bostonglobe.com/2025/12/02/sports/jayson-tatum-celtics-knicks-nba/?p1=SectionFront_Feed_AuthorQuery)
+- **Bet365 Bonus Code 'COVERS': Bet $5, Get $150, Win or Lose For Knicks vs Celtics**: [Link](https://www.covers.com/daily-promos/bet365-bonus-code-nba-knicks-celtics-12-02-2025)
+- **Knicks can’t overcome brutal Jalen Brunson performance in loss to Celtics**: [Link](https://nypost.com/2025/12/02/sports/knicks-cant-overcome-brutal-jalen-brunson-performance-in-loss-to-celtics/)
+
+
+### luis abram (N/A, 02/12/2025 23:33 Lima)
+
+- **¡Qué mala suerte! La lesión de Luis Abram en Sporting Cristal vs. Alianza Lima**: [Link](https://depor.com/futbol-peruano/descentralizado/lesion-luis-abram-en-sporting-cristal-vs-alianza-lima-salio-del-partido-para-ingreso-de-nicolas-pasquini-playoffs-liga-1-2025-video-noticia/)
+- **Luis Abram sufrió una fuerte lesión y salió en camilla del Sporting Cristal vs Alianza Lima**: [Link](https://libero.pe/futbol-peruano/sporting-cristal/2025/12/02/luis-abram-sufrio-fuerte-lesion-salio-en-camilla-del-sporting-cristal-vs-alianza-lima-40354)
+- **Alianza Lima vs Sporting Cristal 1-1: goles y resumen del empate por semifinales ida de los ‘play-offs’ de la Liga 1 2025**: [Link](https://www.infobae.com/peru/deportes/2025/12/02/alianza-lima-vs-sporting-cristal-en-vivo-hoy-l1max-partido-semifinales-ida-play-offs-liga-1-2025-goles-resumen-resultado/)
+
+
+### pelota (N/A, 02/12/2025 23:33 Lima)
+
+- **Arsenal y la pelota parada: así es el trabajo del mejor equipo de Europa hoy**: [Link](https://www.espn.com.ar/futbol/inglaterra/nota/_/id/16035519/arsenal-y-la-pelota-parada-asi-es-el-trabajo-del-mejor-equipo-de-europa-hoy-premier-league)
+- **El largo camino del Arsenal para volver a la élite europea**: [Link](https://lentedesportiva.com/es/el-largo-camino-del-arsenal-para-volver-a-la-elite-europea/)
+- **La temporada que lo cambia todo: el Arsenal, 'made in Arteta', ante su mayor oportunidad en 21 años para recuperar la gloria**: [Link](https://www.elespanol.com/deportes/futbol/20251130/temporada-cambia-arsenal-made-in-arteta-mayor-oportunidad-anos-recuperar-gloria/1003744035897_0.html)
+
+
+### pol deportes (N/A, 02/12/2025 23:33 Lima)
+
+- **Peter Arévalo invitó a Pol Deportes a narrar en vivo el Alianza Lima vs Sporting Cristal: “El fútbol te dará el lugar que mereces”**: [Link](https://www.infobae.com/peru/deportes/2025/12/03/peter-arevalo-invito-a-pol-deportes-a-narrar-en-vivo-el-alianza-lima-vs-sporting-cristal-el-futbol-te-dara-el-lugar-que-mereces/)
+- **¡Pol Deportes en el Sporting Cristal vs. Alianza Lima! Emotivo momento en el Nacional**: [Link](https://depor.com/futbol-peruano/descentralizado/sporting-cristal-vs-alianza-lima-pol-deportes-sueno-cumplido-y-emotivo-momento-en-la-previa-de-los-playoffs-de-la-liga-1-video-noticia/)
+- **Conoce la historia de "Pol Deportes" joven que se ha vuelto viral por narrar la final de la Libertadores desde un cerro**: [Link](https://caretas.pe/sociedad/conoce-la-historia-de-pol-noticias-joven-que-se-ha-vuelto-viral-por-narrar-la-final-de-la-libertadores-desde-un-cerro/)
+
+
 ### vizeu (N/A, 02/12/2025 20:59 Lima)
 
 - **Sporting Cristal empieza a moverse: la opción brasilera para reemplazar a Felipe Vizeu**: [Link](https://www.topmercato.com/pe/1942119-sporting-cristal-empieza-a-moverse-la-opcion-brasilera-para-reemplazar-a-felipe-vizeu/)
@@ -958,75 +1028,5 @@ Sin noticias relacionadas disponibles.
 - **Neymar es inmortal**: [Link](https://as.com/futbol/internacional/neymar-es-inmortal-f202511-n/)
 - **Neymar desoyó a los médicos, jugó lesionado y fue clave para sacar a Santos del descenso: gol y asistencia ante Sport Recife**: [Link](https://www.infobae.com/deportes/2025/11/29/neymar-desoyo-a-los-medicos-jugo-lesionado-y-fue-clave-para-sacar-a-santos-del-descenso-gol-y-asistencia-ante-sport-recife/)
 - **No escuchó a los doctores y jugó lesionado: Neymar vuelve, marca... y saca a Santos del descenso**: [Link](https://www.marca.com/futbol/2025/11/29/escucho-doctores-jugo-lesionado-neymar-vuelve-marca-saca-santos-descens-video.html)
-
-
-### ceará - cruzeiro (N/A, 29/11/2025 21:08 Lima)
-
-- **Escalação do Cruzeiro: Jardim define time sem Kaio Jorge e volante**: [Link](https://noataque.com.br/futebol/brasileirao-serie-a/time/cruzeiro/noticia/2025/11/29/escalacao-do-cruzeiro-jardim-define-time-sem-kaio-jorge-e-volante/)
-- **Gol do Ceará! Zanocelo acerta 'chutaço' de fora da área sem chances para Cássio e abre o placar**: [Link](https://esportes.r7.com/futebol/campeonato-brasileiro-serie-a/video/gol-do-ceara-zanocelo-acerta-chutaco-de-fora-da-area-sem-chances-para-cassio-e-abre-o-placar-30112025/)
-- **Lateral emprestado pelo Corinthians volta a ser relacionado após quatro meses**: [Link](https://www.msn.com/pt-br/esportes/other/lateral-emprestado-pelo-corinthians-volta-a-ser-relacionado-ap%C3%B3s-quatro-meses/ar-AA1RoP75)
-
-
-### palmeiras - flamengo (N/A, 29/11/2025 15:26 Lima)
-
-- **Las claves de la gran final de la Libertadores entre Palmeiras y Flamengo**: [Link](https://www.espn.com.pe/futbol/copa-libertadores/nota/_/id/16017218/las-claves-de-la-gran-final-de-la-libertadores-entre-palmeiras-y-flamengo)
-- **Una ventana al mundo**: [Link](https://elperuano.pe/noticia/284000-una-ventana-al-mundo)
-- **La avenida Javier Prado permanece cerrada al tránsito por la final de la Copa Libertadores: este es el panorama a horas del partido**: [Link](https://rpp.pe/lima/actualidad/la-avenida-javier-prado-permanece-cerrada-al-transito-por-la-final-de-la-copa-libertadores-este-es-el-panorama-a-horas-del-partido-noticia-1665860)
-
-
-### atletico madrid (N/A, 29/11/2025 15:26 Lima)
-
-- **Why Did Diego Simeone Bench Julian Alvarez in Atletico Madrid Vs Real Oviedo Match?**: [Link](https://www.sportsdunia.com/football-news/julian-alvarez-benched-atletico-madrid-vs-real-oviedo)
-- **Diego Simeone addresses competition for places before Real Oviedo encounter**: [Link](https://sports.yahoo.com/articles/diego-simeone-addresses-competition-places-131432795.html)
-- **Atletico Madrid vs Real Oviedo Prediction, 11/29/2025 Soccer Pick, Tips and Odds**: [Link](https://www.docsports.com/free-picks/soccer/2025/atletico-madrid-vs-real-oviedo-prediction-11-29-2025-soccer-pick-tips-and-odds.html)
-
-
-### marsella (N/A, 29/11/2025 15:26 Lima)
-
-- **Liga de Francia: Olympique de Marsella necesita los tres puntos para ser puntero**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-de-francia-olympique-de-marsella-necesita-los-tres-puntos-para-ser-puntero-noticia-1665720)
-- **Pronóstico Marsella - Toulouse - Ligue 1**: [Link](https://www.sportytrader.es/pronosticos/marsella-toulouse-308204/)
-- **Marsella vs Toulouse en vivo la Ligue 1 2025: resultado y goles de la jornada 14**: [Link](https://www.clarosports.com/futbol/ligue-1/marsella-vs-toulouse-en-vivo-la-ligue-1-2025-resultado-y-goles-de-la-jornada-14/)
-
-
-### espn (N/A, 29/11/2025 15:26 Lima)
-
-- **U-M's Barham flagged for head-butting official**: [Link](https://www.espn.com/college-football/story/_/id/47139207/michigan-lb-jaishawn-barham-flagged-head-butting-official)
-- **Did He Just Headbutt the Ref? 🤔**: [Link](https://www.foxsports.com/watch-vertical/fmc-g0q710ea28ou9hdm)
-- **Michigan's Jaishawn Barham headbutts referee in game vs Ohio State**: [Link](https://www.usatoday.com/story/sports/ncaaf/2025/11/29/jaishawn-barham-headbutt-referee-ohio-state-michigan-football/87526010007/)
-
-
-### atlético madrid - real oviedo (N/A, 29/11/2025 15:26 Lima)
-
-- **Atlético de Madrid - Oviedo hoy, en directo: LaLiga EA Sports, última hora, en vivo**: [Link](https://as.com/futbol/atletico-de-madrid-oviedo-hoy-en-directo-laliga-ea-sports-ultima-hora-en-vivo-f202511-d/)
-- **Atlético Madrid vs Real Oviedo: Apuestas, Pronóstico y Cuotas**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2025/noviembre/pronostico-atletico-madrid-vs-real-oviedo-29-11-25)
-- **Un 1-0 para hacer historia en LaLiga**: [Link](https://www.marca.com/futbol/atletico/2025/11/29/1-0-historia-laliga.html)
-
-
-### tottenham - fulham (N/A, 29/11/2025 15:26 Lima)
-
-- **Premier League LIVE: Everton vs Newcastle - score & updates**: [Link](https://www.bbc.com/sport/football/live/cd67gz3ex10t)
-- **Tottenham v Fulham: Premier League – live**: [Link](https://www.theguardian.com/football/live/2025/nov/29/tottenham-v-fulham-premier-league-live)
-- **Frank’s plausible XI: Prepare to be disappointed**: [Link](https://theboyhotspur.com/tottenham-fulham-team-news-odds-and-form-guide/)
-
-
-### twitch (N/A, 29/11/2025 15:26 Lima)
-
-- **Music entertainer Ray J arrested by Los Angeles police on Thanksgiving, records show**: [Link](https://abc7.com/post/music-entertainer-ray-arrested-los-angeles-police-thanksgiving-records-show/18219027/)
-- **Musical artist arrested after domestic violence call**: [Link](https://www.al.com/crime/2025/11/musical-artist-arrested-after-domestic-violence-call.html)
-- **Singer Ray J arrested on Thanksgiving Day on suspicion of making threats in Los Angeles**: [Link](https://www.latimes.com/california/story/2025-11-27/singer-ray-j-arrested-on-suspicion-of-making-threats-in-los-angeles)
-
-
-### fortnite (N/A, 29/11/2025 15:26 Lima)
-
-- **Fortnite Zero Hour live event start timings for all regions**: [Link](https://timesofindia.indiatimes.com/sports/esports/fortnite/fortnite-zero-hour-live-event-start-timings-for-all-regions/articleshow/125645227.cms)
-- **Fortnite Chapter 7 map leak reveals new POIs, biomes, and more**: [Link](https://www.msn.com/en-in/money/technology/fortnite-chapter-7-map-leak-reveals-new-pois-biomes-and-more/ar-AA1RnK74?ocid=finance-verthp-feeds)
-- **Is Fortnite down? When will Epic Games launch the new season?**: [Link](https://www.northjersey.com/story/tech/gaming/2025/11/29/is-fortnite-down-when-will-epic-games-launch-chapter-7/87525687007/)
-
-
-### milan - lazio (N/A, 29/11/2025 15:26 Lima)
-
-- **Milan-Lazio: le formazioni ufficiali della 13ª giornata di Serie A**: [Link](https://it.football-italia.net/Le-formazioni-di-serie-a-milano-lazio/)
-- **Dia sul gol annullato col Lecce: "Per me non era fallo. Altre due gare prima della Coppa d'Africa"**: [Link](https://www.tuttomercatoweb.com/serie-a/dia-sul-gol-annullato-col-lecce-per-me-non-era-fallo-altre-due-gare-prima-della-coppa-d-africa-2173778)
-- **Milan-Lazio |✅UFFICIALI: la scelta su Nkunku, Saelemaekers, Tavares, Vecino**: [Link](https://onefootball.com/it/notizie/milan-lazio-ufficiali-la-scelta-su-nkunku-saelemaekers-tavares-vecino-42022593)
 
 
