@@ -1,3 +1,24 @@
+### cierre de costa verde (N/A, 03/12/2025 07:55 Lima)
+
+- **Cierran la Costa Verde por Juegos Bolivarianos 2025: revisa el plan de desvío este 3 de diciembre**: [Link](https://larepublica.pe/sociedad/2025/12/02/a-que-hora-es-el-cierre-de-la-costa-verde-este-2-y-3-de-diciembre-revisa-el-plan-de-desvios-por-los-juegos-bolivarianos-54388)
+- **Costa Verde cierra este 2 y 3 de Diciembre: Consulta los HORARIOS y desvíos por los Juegos Bolivarianos**: [Link](https://elcomercio.pe/respuestas/cual/costa-verde-cierra-este-2-y-3-de-diciembre-consulta-los-horarios-y-desvios-por-los-juegos-bolivarianos-tdpe-noticia/)
+- **Los pelotudos de la Costa Verde**: [Link](https://sudaca.pe/noticia/opinion/rik-ahrdo-los-pelotudos-de-la-costa-verde/)
+
+
+### excel infieles perú (N/A, 03/12/2025 07:55 Lima)
+
+- **La lista negra de las girls: ¿qué delitos enfrentarían quienes expusieron datos de supuestos infieles?**: [Link](https://lpderecho.pe/la-lista-negra-de-las-girls-delitos-enfrentarian-exponer-datos-infieles/)
+- **¿Eliminaron ‘La lista negra de las girls’? Polémico registro de hombres infieles causó furor en redes sociales**: [Link](https://www.infobae.com/peru/2025/11/30/eliminaron-la-lista-negra-de-las-girls-polemico-registro-de-hombres-infieles-causo-furor-en-redes-sociales/)
+- **¿Es un delito exponer los datos y testimonios sobre personas "infieles"?**: [Link](https://www.americatv.com.pe/noticias/util-e-interesante/delito-exponer-datos-personales-lista-infieles-peru-n513562)
+
+
+### fiscal henry amenábar almonte (N/A, 03/12/2025 07:55 Lima)
+
+- **Miraflores: Policía detiene a fiscal acusado por recibir coima de 3 mil dólares en baño de centro comercial [VIDEO]**: [Link](https://rpp.pe/lima/actualidad/miraflores-policia-detiene-a-un-fiscal-investigado-por-recibir-una-coima-de-3-mil-dolares-video-noticia-1666285)
+- **Fiscal Henry Amenábar fue intervenido por presunto soborno en baño de centro comercial en operativo conjunto**: [Link](https://canaln.pe/actualidad/intervienen-fiscal-henry-amenabar-presunto-soborno-bano-n488700)
+- **Fiscal es detenido en baño de Saga Falabella por presunto cobro de USD 3 mil a investigado por estafa**: [Link](https://www.infobae.com/peru/2025/12/03/fiscal-es-detenido-en-bano-de-saga-falabella-por-presunto-cobro-de-usd-3-mil-a-investigado-por-estafa/)
+
+
 ### seth curry (N/A, 03/12/2025 03:35 Lima)
 
 - **Warriors sign Seth Curry for remainder of season**: [Link](https://www.espn.com/nba/story/_/id/47150406/warriors-sign-seth-curry-remainder-season-sources-say)
@@ -1007,26 +1028,5 @@ Sin noticias relacionadas disponibles.
 - **Bucaramanga se juega todo frente a Fortaleza en Bogotá por el Grupo B**: [Link](https://www.espn.com.ar/futbol/colombia/nota/_/id/16017399/fortaleza-vs-bucaramanga-fecha-4-cuadrangulares-liga-betplay-equipo-fecha-hora-y-tv-en-vivo)
 - **Pronóstico Fortaleza FC Atlético Bucaramanga - Liga BetPlay 29/11/25**: [Link](https://www.sportytrader.com/es/pronosticos/fortaleza-fc-atletico-bucaramanga-308300/)
 - **Previa: Fortaleza vs Bucaramanga los "amix" quieren repetir el triunfo**: [Link](https://www.vavel.com/colombia/futbol-colombiano/2025/11/29/fortaleza/1243073-previa-fortaleza-vs-bucaramanga-los-amix-quieren-repetir-el-triunfo.html)
-
-
-### central córdoba - estudiantes (N/A, 29/11/2025 21:08 Lima)
-
-- **Central Córdoba vs. Estudiantes, por los cuartos del Torneo Clausura: formaciones, horario y dónde ver en vivo**: [Link](https://www.tycsports.com/liga-profesional-de-futbol/argentina-torneo-clausura-2025-central-cordoba-se-vs-estudiantes-llave-3-id701252.html)
-- **Tiago Palacios transformó una gran jugada colectiva en el 1-0 de Estudiantes vs. Central Córdoba**: [Link](https://www.espn.com.ar/futbol/argentina/nota/_/id/16024706/video-gol-de-tiago-palacios-estudiantes-vs-central-cordoba)
-- **Central Córdoba de Santiago del Estero recibirá a Estudiantes por los cuartos de final del Torneo Clausura: hora, TV y formaciones**: [Link](https://www.infobae.com/deportes/2025/11/29/central-cordoba-de-santiago-del-estero-recibira-a-estudiantes-por-los-cuartos-de-final-del-torneo-clausura-hora-tv-y-formaciones/)
-
-
-### libertad fc - barcelona sc (N/A, 29/11/2025 21:08 Lima)
-
-- **Joao Rojas se perdería el partido entre Barcelona y Libertad**: [Link](https://www.espn.com.ar/futbol/ecuador/nota/_/id/16016088/joao-rojas-se-perderia-el-partido-entre-barcelona-y-libertad)
-- **Libertad F.C. buscará imponerse ante los canarios**: [Link](https://www.lahora.com.ec/loja/libertad-f.c.-buscara-imponerse-ante-los-canarios-20251127-0059.html)
-- **Libertad vs Barcelona, hoy EN VIVO, por la LigaPro: el Ídolo gana por Xavier Arreaga y resiste**: [Link](https://www.ole.com.ar/ecuador/liga-pro/libertad-barcelona-partido-vivo-ligapro-goles_0_X2QHo3i9gN.html)
-
-
-### tadeo allende (N/A, 29/11/2025 21:08 Lima)
-
-- **Inter Miami - NYC FC, en vivo: Messi en la Final de Conferencia Este, hoy, en directo**: [Link](https://as.com/us/futbol/inter-miami-nyc-fc-en-vivo-messi-en-la-final-de-conferencia-este-hoy-en-directo-f202511-d/)
-- **De Paul, tras ganar la Conferencia del Este con Inter Miami: "La felicidad es enorme"**: [Link](https://www.espn.com.ar/futbol/mls/nota/_/id/16024618/rodrigo-de-paul-inter-miami-final-conferencia-este-mls)
-- **Mascherano afirma que Inter Miami ‘no ha ganado nada’ y pide no confiarse ante NYCFC**: [Link](https://www.clarosports.com/futbol/mls/mascherano-afirma-que-inter-miami-no-ha-ganado-nada-y-pide-no-confiarse-ante-nycfc/)
 
 
