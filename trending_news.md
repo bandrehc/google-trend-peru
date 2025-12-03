@@ -1,3 +1,45 @@
+### napoli - cagliari (N/A, 03/12/2025 11:35 Lima)
+
+- **#Napoli-Cagliari, le probabili formazioni: #Ambrosino e #Lucca in avanti e #Vergara a centrocampo. Previsti otto cambi rispetto alla formazione che ha vinto a #Roma. Confermati solo Milinkovic-Savic, #Beukema e #Olivera. Possibile anche l’opzione della lin**: [Link](https://www.facebook.com/ilnapolista/photos/napoli-cagliari-le-probabili-formazioni-ambrosino-e-lucca-in-avanti-e-vergara-a-/1369605035178148/)
+- **Napoli tifosi in massa anche in coppa italia attesi oltre 45mila al maradona per la sfida col cagliari**: [Link](https://www.napolicalcionews.it/news-calcio-napoli/Napoli--tifosi-in-massa-anche-in-Coppa-Italia--attesi-oltre-45mila-al-Maradona-per-la-sfida-col-Cagliari-144333.aspx)
+- **Napoli, quando torna Lukaku? L'annuncio di Manna**: [Link](https://gianlucadimarzio.com/napoli-manna-intervista-cagliari-coppa-italia-2025-2026-news/)
+
+
+### spotify (N/A, 03/12/2025 11:35 Lima)
+
+- **2025 Wrapped Is Here With More Layers, Stories, and Connection Than Ever Before**: [Link](https://newsroom.spotify.com/2025-12-03/2025-wrapped-user-experience/)
+- **Taylor Swift, Lady Gaga among Spotify's top artists of 2025**: [Link](https://www.yahoo.com/entertainment/music/articles/taylor-swift-lady-gaga-among-161356013.html)
+- **Spotify Wrapped is here! How to access yours and what's new in 2025**: [Link](https://www.usatoday.com/story/entertainment/music/2025/12/03/spotify-wrapped-2025-how-to-find/87571261007/)
+
+
+### atalanta vs (N/A, 03/12/2025 11:35 Lima)
+
+- **Coppa Italia | Atalanta 4-0 Genoa: Palladino beats 10-man Grifone and books Juventus QF**: [Link](https://sports.yahoo.com/articles/coppa-italia-atalanta-4-0-160500362.html)
+- **Coppa Italia: Atalanta vs. Genoa – Confirmed line-ups and updates**: [Link](https://football-italia.net/coppa-italia-atalanta-genoa-confirmed-line-ups/)
+- **Atalanta vs Genoa Coppa Italia showdown leaves fans wondering who will secure the stunning quarter-final spot**: [Link](https://www.red94.net/news/99041-atalanta-faces-genoa-in-coppa-italia-round-of-16-showdown-both-teams-seeking-qua/)
+
+
+### atalanta - genoa (N/A, 03/12/2025 11:35 Lima)
+
+- **Coppa Italia Atalanta-Genoa, moviola: rosso choc dopo mezzora, duro attacco alla Lega, la Dea affronterà la Juve ai quarti**: [Link](https://sport.virgilio.it/atalanta-genoa-moviola-coppaitalia-2025-933957)
+- **Coppa Italia, le formazioni: da Atalanta-Genoa a Inter-Venezia**: [Link](https://www.diretta.it/news/calcio-coppa-italia-coppa-italia-ottavi-le-formazioni-ufficiali-di-napoli-cagliari/UqYj8QQa/)
+- **Sarà Atalanta-Juventus a febbraio in Coppa Italia: poker senza storia al Genoa**: [Link](https://www.tuttosport.com/news/calcio/coppa-italia/2025/12/03-145014645/sar_atalanta-juventus_a_febbraio_in_coppa_italia_poker_senza_storia_al_genoa)
+
+
+### arsenal vs brentford (N/A, 03/12/2025 11:35 Lima)
+
+- **Every word from Arteta's pre-Brentford presser | Press conference | News**: [Link](https://www.arsenal.com/news/every-word-artetas-pre-brentford-presser-1)
+- **Keith Andrews says their plan is to make Arsenal uncomfortable**: [Link](https://www.justarsenal.com/keith-andrews-says-their-plan-is-to-make-arsenal-uncomfortable/405165)
+- **Emmanuel Petit predicts Arsenal and Chelsea clashes**: [Link](https://www.msn.com/en-ie/sports/football/emmanuel-petit-predicts-arsenal-and-chelsea-clashes/ar-AA1CBAt8)
+
+
+### 3 de diciembre (N/A, 03/12/2025 11:35 Lima)
+
+- **Consulta tu horóscopo de hoy, miércoles 3 de diciembre: Predicciones para tu signo**: [Link](https://elcomercio.pe/luces/vida-social/horoscopo-de-hoy-3-de-diciembre-estas-son-las-predicciones-mas-exactas-para-tu-signo-noticia/)
+- **Los astros tienen un importante mensaje para 3 signos en este miércoles 3 de diciembre, según el horóscopo de Lecturas**: [Link](https://www.lecturas.com/horoscopo/astros-tienen-importante-mensaje-para-signos-este-miercoles-diciembre-segun-horoscopo-lecturas_185230)
+- **Aries, Tauro, Géminis, Cáncer, Leo y Virgo, atención al mensaje de Esperanza Gracia para hoy**: [Link](https://www.vanitatis.elconfidencial.com/horoscopo/2025-12-03/esperanza-gracia-horoscopo-hoy-zodiaco-mensaje_4259339/)
+
+
 ### cierre de costa verde (N/A, 03/12/2025 07:55 Lima)
 
 - **Cierran la Costa Verde por Juegos Bolivarianos 2025: revisa el plan de desvío este 3 de diciembre**: [Link](https://larepublica.pe/sociedad/2025/12/02/a-que-hora-es-el-cierre-de-la-costa-verde-este-2-y-3-de-diciembre-revisa-el-plan-de-desvios-por-los-juegos-bolivarianos-54388)
@@ -986,47 +1028,5 @@ Sin noticias relacionadas disponibles.
 - **Tigres busca mejorar inercia cuando necesita remontar en Liguilla**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/16018040/tigres-vs-xolos-historial-remontadas-liguilla-estadio-universitario)
 - **Pronóstico Tigres UANL Tijuana - Liga MX 29/11/25**: [Link](https://www.sportytrader.com/es/pronosticos/tigres-uanl-tijuana-308505/)
 - **Qué canal pasa Tigres vs Tijuana hoy: dónde ver GRATIS y EN VIVO el partido de la Liga MX**: [Link](https://www.365scores.com/es/news/tigres-vs-tijuana-donde-ver-gratis-vivo/)
-
-
-### venezuela (N/A, 29/11/2025 23:36 Lima)
-
-- **Por la tensión con EE.UU., Venezuela enfrenta una crisis aérea y queda aún más aislada**: [Link](https://cnnespanol.cnn.com/2025/11/29/venezuela/eeuu-venezuela-crisis-aerea-tension-mas-aislada-orix)
-- **Trump declara el cierre total del espacio aéreo de Venezuela y el gobierno de Caracas califica el anuncio de "amenaza colonialista"**: [Link](https://www.bbc.com/mundo/articles/crrk0y87ne4o)
-- **El régimen de Maduro dijo que “no aceptará órdenes” tras el llamado de EEUU a evitar sobrevolar el espacio aéreo de Venezuela**: [Link](https://www.infobae.com/venezuela/2025/11/29/el-regimen-de-maduro-dijo-que-no-aceptara-ordenes-tras-el-llamado-de-eeuu-a-evitar-sobrevolar-el-espacio-aereo-de-venezuela/)
-
-
-### toluca vs (N/A, 29/11/2025 23:36 Lima)
-
-- **Toluca vs Juárez: posibles alineaciones, cuartos de final, Apertura 2025**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/16015446/toluca-vs-juarez-alineaciones-formaciones-cuartos-de-final-liguilla-apertura-2025-liga-mx)
-- **⚽ Mirar Toluca - Juárez EN VIVO GRATIS por vuelta de Liguilla MX en tv abierta**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/donde-ver-toluca-juarez-en-vivo-gratis-por-liguilla-mx-2025-en-tv-abierta-horarios-y-canales-tv-online-en-directo-nnda-nnrt-noticia/)
-- **Los Diablos Rojos ganaron la ida y les aseguró un puesto en la semifinal**: [Link](https://fdpradio.com/los-diablos-rojos-ganaron-la-ida-y-les-aseguro-un-puesto-en-la-semifinal/)
-
-
-### warriors - pelicans (N/A, 29/11/2025 21:08 Lima)
-
-- **New Orleans Pelicans Injury Report: Will Zion Williamson Play Against the Warriors Tonight?**: [Link](https://inews.zoombangla.com/new-orleans-pelicans-injury-report-will-zion-williamson-play-against-the-warriors-tonight/)
-- **𝐵𝑒𝓈𝓉 𝓌𝒶𝓎 𝓉𝑜 𝓌𝒶𝓉𝒸𝒽 Mavericks vs Clippers 𝓁𝒾𝓋𝑒𝓈𝓉𝓇𝑒𝒶𝓂?**: [Link](https://yoursunsetcountry.ca/classifieds/listings/%F0%9D%90%B5%F0%9D%91%92%F0%9D%93%88%F0%9D%93%89-%F0%9D%93%8C%F0%9D%92%B6%F0%9D%93%8E-%F0%9D%93%89%F0%9D%91%9C-%F0%9D%93%8C%F0%9D%92%B6%F0%9D%93%89%F0%9D%92%B8%F0%9D%92%BD-mavericks-vs-clippers/)
-- **New Orleans faces Golden State on 3-game road slide**: [Link](https://www.washingtonpost.com/sports/nba/2025/11/28/pelicans-warriors-preview/75fe0086-cc28-11f0-ac2a-e98510180900_story.html)
-
-
-### san diego fc - whitecaps (N/A, 29/11/2025 21:08 Lima)
-
-- **'We can trust our mentality' – Muller confident ahead Vancouver's conference final**: [Link](https://www.beinsports.com/en-us/soccer/mls/articles/we-can-trust-our-mentality--muller-confident-ahead-vancouvers-conference-final-2025-11-29)
-- **Whitecaps in Rare Territory With Playoff Run While for Sale**: [Link](https://www.sportico.com/leagues/soccer/2025/vancouver-whitecaps-sale-mls-playoffs-1234877713/)
-- **Preview: 'Caps set to compete in first-ever Western Conference Final with MLS Cup berth on the line | Watch on Apple TV**: [Link](https://www.whitecapsfc.com/news/preview-caps-first-ever-western-conference-final)
-
-
-### toluca - juárez (N/A, 29/11/2025 21:08 Lima)
-
-- **Toluca vs Juárez: posibles alineaciones, cuartos de final, Apertura 2025**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/16015446/toluca-vs-juarez-alineaciones-formaciones-cuartos-de-final-liguilla-apertura-2025-liga-mx)
-- **Pronóstico Deportivo Toluca FC FC Juarez - Liga MX 29/11/25**: [Link](https://www.sportytrader.com/es/pronosticos/deportivo-toluca-fc-juarez-308520/)
-- **⚽ Mirar Toluca - Juárez EN VIVO GRATIS por vuelta de Liguilla MX en tv abierta**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/donde-ver-toluca-juarez-en-vivo-gratis-por-liguilla-mx-2025-en-tv-abierta-horarios-y-canales-tv-online-en-directo-nnda-nnrt-noticia/)
-
-
-### fortaleza - bucaramanga (N/A, 29/11/2025 21:08 Lima)
-
-- **Bucaramanga se juega todo frente a Fortaleza en Bogotá por el Grupo B**: [Link](https://www.espn.com.ar/futbol/colombia/nota/_/id/16017399/fortaleza-vs-bucaramanga-fecha-4-cuadrangulares-liga-betplay-equipo-fecha-hora-y-tv-en-vivo)
-- **Pronóstico Fortaleza FC Atlético Bucaramanga - Liga BetPlay 29/11/25**: [Link](https://www.sportytrader.com/es/pronosticos/fortaleza-fc-atletico-bucaramanga-308300/)
-- **Previa: Fortaleza vs Bucaramanga los "amix" quieren repetir el triunfo**: [Link](https://www.vavel.com/colombia/futbol-colombiano/2025/11/29/fortaleza/1243073-previa-fortaleza-vs-bucaramanga-los-amix-quieren-repetir-el-triunfo.html)
 
 
