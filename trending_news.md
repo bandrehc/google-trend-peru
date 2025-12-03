@@ -1,3 +1,72 @@
+### vizeu (N/A, 02/12/2025 20:59 Lima)
+
+- **Sporting Cristal empieza a moverse: la opción brasilera para reemplazar a Felipe Vizeu**: [Link](https://www.topmercato.com/pe/1942119-sporting-cristal-empieza-a-moverse-la-opcion-brasilera-para-reemplazar-a-felipe-vizeu/)
+- **Felipe Vizeu confesó detalles de su rendimiento en Sporting Cristal y espera su revancha en 2026: “Conmigo no puede ser diferente”**: [Link](https://www.infobae.com/peru/deportes/2025/12/01/felipe-vizeu-confeso-detalles-de-su-rendimiento-en-sporting-cristal-y-espera-su-revancha-en-2026-conmigo-no-puede-ser-diferente/)
+- **Vizeu no se guardó nada y dio contundente calificativo a Alianza previo a la semifinal: "Son..."**: [Link](https://libero.pe/futbol-peruano/sporting-cristal/2025/12/01/felipe-vizeu-se-guardo-nada-dio-contundente-calificativo-alianza-lima-previo-semifinal-son-34607)
+
+
+### paolo guerrero (N/A, 02/12/2025 20:59 Lima)
+
+- **Guillermo Enrique aclaró rumores de conflictos internos en Alianza Lima: “Me duele todo esto”**: [Link](https://depor.com/futbol-peruano/descentralizado/guillermo-enrique-hablo-sobre-problemas-en-alianza-lima-descarto-pelea-con-paolo-guerrero-y-nestor-gorosito-liga-1-noticia/)
+- **¿Problemas en la interna de Alianza Lima? Paolo Guerrero habría tenido PELEA con un compañero**: [Link](https://www.exitosanoticias.pe/deportes/problemas-interna-alianza-lima-paolo-guerrero-habria-tenido-pelea-companero-n163618)
+- **Revelan fuerte discusión entre Enrique y referente de Alianza que provocó su salida: "Se mecharon"**: [Link](https://libero.pe/futbol-peruano/alianza-lima/2025/11/27/revelan-fuerte-discusion-guillermo-enrique-referente-de-alianza-lima-provoco-su-salida-se-mecharon-video-1147095)
+
+
+### santiago gonzález (N/A, 02/12/2025 20:59 Lima)
+
+- **Alianza Lima se salvó: Santiago González estrelló su remate al palo tras tiro libre [VIDEO]**: [Link](https://rpp.pe/futbol/descentralizado/video-alianza-lima-vs-sporting-cristal-santiago-gonzalez-casi-anota-de-tiro-libre-y-su-remata-choca-en-palo-noticia-1666289)
+- **Alianza se salva: Tiro libre de González pega en el palo | VIDEO**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/alianza-lima-se-salva-tiro-libre-de-santiago-gonzalez-pega-en-el-palo-sporting-cristal-video-noticia/)
+
+
+### pelota libre en vivo (N/A, 02/12/2025 20:59 Lima)
+
+- **El líder Arsenal buscará volver al triunfo en la Premier ante Brentford**: [Link](https://www.espn.com.ar/futbol/inglaterra/nota/_/id/16031664/arsenal-vs-brentford-por-la-premier-league-equipo-fecha-hora-y-tv-en-vivo)
+- **Arsenal vs Brentford Pronóstico y Apuestas Premier League | 03/12/25**: [Link](https://www.goal.com/es/apuestas/arsenal-vs-brentford-pronostico-apuestas-03-12-25/blte149fd60686da8ff)
+- **Ni Magis TV ni Pelota Libre: cómo ver Arsenal vs Brentford EN VIVO por Internet**: [Link](https://noticiasargentinas.com/deportes/ni-magis-tv-ni-pelota-libre--como-ver-arsenal-vs-brentford-en-vivo-por-internet_a692f2fb976ccfa999100f99b)
+
+
+### avatar 3 (N/A, 02/12/2025 20:59 Lima)
+
+- **Avatar: Fire and Ash First Reactions: An Epic, Immersive, Visual Feast that Must Be Seen in Theaters**: [Link](https://editorial.rottentomatoes.com/article/avatar-fire-and-ash-first-social-reactions/)
+- **'Avatar: Fire and Ash' First Reactions Praise James Cameron Sequel**: [Link](https://variety.com/2025/film/news/avatar-fire-and-ash-first-reactions-james-cameron-1236596177/)
+- **‘Avatar: Fire And Ash’ World Premiere Gallery: Zoe Saldaña, Sam Worthington, Sigourney Weaver & James Cameron Attend**: [Link](https://deadline.com/gallery/avatar-fire-and-ash-world-premiere-gallery/)
+
+
+### sc vs (N/A, 02/12/2025 20:59 Lima)
+
+- **Orense SC vs. LDU Quito - Live Score - December 06, 2025**: [Link](https://www.foxsports.com/soccer/ecuadorian-liga-pro-orense-sc-vs-ldu-quito-dec-06-2025-game-boxscore-646935)
+- **Oregon men’s basketball circling the wagons ahead of Big Ten opener against USC**: [Link](https://www.oregonlive.com/ducks/2025/12/oregon-mens-basketball-circling-the-wagons-ahead-of-big-ten-opener-against-usc.html)
+- **Dana Altman Takes Full Blame as Ducks Search for Answers Ahead of USC**: [Link](https://247sports.com/college/oregon/article/altman-takes-blame-oregon-basketball-searching-for-answers-usc-preview-264299501/)
+
+
+### sporting cristal - alianza lima (N/A, 02/12/2025 20:59 Lima)
+
+- **Cómo ver Liga 1 MAX EN VIVO ONLINE: Alianza-Cristal | ¿Qué canal es?**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/liga-1-max-en-vivo-gratis-ver-futbol-libre-tv-alianza-vs-cristal-hoy-por-internet-via-directv-por-semifinal-playoffs-de-liga-1-video-noticia/)
+- **Alineaciones de Alianza Lima vs Sporting Cristal HOY: titulares confirmados para semifinales ida de los ‘play-offs’ de la Liga 1 2025**: [Link](https://www.infobae.com/peru/deportes/2025/12/01/alineaciones-alianza-lima-vs-sporting-cristal-equipos-titulares-estadio-nacional-semifinales-ida-play-offs-liga-1-2025/)
+- **Posibles alineaciones en el Cristal vs Alianza Playoffs**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/posibles-alineaciones-cristal-vs-alianza-play-offs-n451888)
+
+
+### cuenca juniors - u. católica (N/A, 02/12/2025 20:59 Lima)
+
+- **Cuenca Jrs. vs Universidad Católica por la Copa Ecuador, hoy EN VIVO: los Gallos atacan y la Chatoleí sufre**: [Link](https://www.ole.com.ar/ecuador/liga-pro/cuenca-juniors-universidad-catolica-semifinal-vuelta-copa-ecuador-hoy-vivo-hora-ver-tv-canal-goles-videos-resultado_0_QyUamvKZek.html)
+- **Azarías Londoño: Queremos darle un título al club**: [Link](https://www.ecuavisa.com/deportes/futbol-nacional/azarias-londono-queremos-darle-un-titulo-al-club-JC10473749)
+- **¿Cuándo se juegan los partidos de revancha por semifinales de Copa Ecuador?**: [Link](https://www.eluniverso.com/deportes/campeonato-ecuatoriano/cuando-se-juegan-los-partidos-de-revancha-por-semifinales-de-copa-ecuador-nota/)
+
+
+### grêmio - fluminense (N/A, 02/12/2025 20:59 Lima)
+
+- **Escalação do Fluminense: por que Canobbio está fora contra o Grêmio?**: [Link](https://www.sportingnews.com/br/futebol/noticias/escalacao-fluminense-por-que-canobbio-esta-fora-jogo-contra-gremio/f63d23b5c4e994bd279c6462)
+- **Aos 21 min do 1º tempo - revisão do VAR de Luciano Acosta do Fluminense contra o Grêmio**: [Link](https://ge.globo.com/futebol/video/aos-21-min-do-1o-tempo-revisao-do-var-de-luciano-acosta-do-fluminense-contra-o-gremio-14148130.ghtml)
+- **Globoplay e Premiere apresentam instabilidade em transmissão**: [Link](https://bsbcapital.com.br/globoplay-e-premiere-apresentam-instabilidade-em-transmissao/)
+
+
+### liga de naciones femenina conmebol (N/A, 02/12/2025 20:59 Lima)
+
+- **Perú logra su primer triunfo en Cusco**: [Link](https://www.conmebol.com/noticias/peru-logra-su-primer-triunfo-en-cusco/)
+- **Tablas y resultados de los partidos de la fecha 4 de la Liga de Naciones Femenina**: [Link](https://www.futbolperuano.com/futbol-femenino/liga-naciones-conmebol/tablas-y-resultados-de-los-partidos-de-la-fecha-4-de-la-liga-de-naciones-femenina-553584)
+- **Cómo formaría la "Roja" femenina hoy para su duelo ante Perú por las Clasificatorias al Mundial, a qué hora es y quién transmite**: [Link](https://www.emol.com/noticias/Deportes/2025/11/28/1184442/la-rojafemenina-peru-clasificatorias.html)
+
+
 ### futbol libre (N/A, 02/12/2025 15:30 Lima)
 
 - **Alineaciones de Alianza Lima vs Sporting Cristal HOY: posibles titulares para semifinales ida de los ‘play-offs’ de la Liga 1 2025**: [Link](https://www.infobae.com/peru/deportes/2025/12/01/alineaciones-alianza-lima-vs-sporting-cristal-equipos-titulares-estadio-nacional-semifinales-ida-play-offs-liga-1-2025/)
@@ -959,75 +1028,5 @@ Sin noticias relacionadas disponibles.
 - **Milan-Lazio: le formazioni ufficiali della 13ª giornata di Serie A**: [Link](https://it.football-italia.net/Le-formazioni-di-serie-a-milano-lazio/)
 - **Dia sul gol annullato col Lecce: "Per me non era fallo. Altre due gare prima della Coppa d'Africa"**: [Link](https://www.tuttomercatoweb.com/serie-a/dia-sul-gol-annullato-col-lecce-per-me-non-era-fallo-altre-due-gare-prima-della-coppa-d-africa-2173778)
 - **Milan-Lazio |✅UFFICIALI: la scelta su Nkunku, Saelemaekers, Tavares, Vecino**: [Link](https://onefootball.com/it/notizie/milan-lazio-ufficiali-la-scelta-su-nkunku-saelemaekers-tavares-vecino-42022593)
-
-
-### partidos de hoy (N/A, 29/11/2025 15:26 Lima)
-
-- **Partidos de hoy, sábado 29 de noviembre: a qué hora juegan y dónde ver fútbol en vivo**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/partidos-de-hoy-sabado-29-de-noviembre-del-2025-resultados-horarios-canales-tv-y-donde-ver-futbol-en-vivo-noticia/)
-- **Sábado: final de la Copa Sudamericana, Brasileirão y acción europea**: [Link](https://masmma.com.mx/futbol/%F0%9F%93%BA-sabado-final-de-la-copa-sudamericana-brasileirao-y-accion-europea/125352/)
-- **Partidos de hoy, sábado 22 de noviembre del 2025: horarios y canales TV para ver EN VIVO Liga1 y final de Sudamericana**: [Link](https://rpp.pe/futbol/futbol-mundial/partidos-de-hoy-peru-sabado-22-de-noviembre-del-2025-horarios-y-canales-tv-ver-futbol-en-vivo-noticia-1664783)
-
-
-### juventus - cagliari (N/A, 29/11/2025 11:29 Lima)
-
-- **Serie A | Le formazioni ufficiali di Juventus-Cagliari**: [Link](https://www.juventus.com/it/news/articoli/serie-a-2025-2026-juventus-cagliari-formazioni-ufficiali)
-- **Juve-Cagliari | ✅ UFFICIALI: fuori DiGre e Cambiaso! La scelta su Vlahovic**: [Link](https://onefootball.com/it/notizie/juve-cagliari-ufficiali-fuori-digre-e-cambiaso-la-scelta-su-vlahovic-42022541)
-- **Juve-Cagliari, la cronaca in diretta su Radiolina con Lele Casini**: [Link](https://www.unionesarda.it/multimedia/juve-cagliari-la-cronaca-in-diretta-su-radiolina-con-lele-casini-ft3kpcr4)
-
-
-### raphinha (N/A, 29/11/2025 11:29 Lima)
-
-- **Deco's Favorite to Replace Raphinha**: [Link](https://www.fichajes.net/en/news/decos-favorite-to-replace-raphinha-20251129.html)
-- **Raphinha, Olmo start in a 4-2-3-1 – How Barcelona can line up against Alaves**: [Link](https://barcauniversal.com/raphinha-olmo-start-in-a-4-2-3-1-how-barcelona-can-line-up-against-alaves/)
-- **Official, from untouchable to substitute, Lamine Yamal applauds Flick's decision against Alavés**: [Link](https://e-noticies.cat/en/soccer/official-lamine-applauds-flick-alaves)
-
-
-### huachipato - u. católica (N/A, 29/11/2025 11:29 Lima)
-
-- **EN VIVO: 0-0: Huachipato y U. Católica se mantienen sin goles al finalizar el primer tiempo**: [Link](https://www.t13.cl/noticia/deportes13/en-vivo-0-0-huachipato-y-u-catolica-se-mantienen-sin-goles-al-finalizar-el-primer-tiempo-29-11-2025)
-- **La advertencia de Jaime García a la Universidad Católica que enciende la previa: “En casa…”**: [Link](https://www.msn.com/es-cl/noticias/other/la-advertencia-de-jaime-garc%C3%ADa-a-la-universidad-cat%C3%B3lica-que-enciende-la-previa-en-casa/ar-AA1Rmndr)
-- **La UC busca consolidar el Chile 2 en dura visita a Huachipato**: [Link](https://www.maray.cl/sin-categoria/29/11/2025/la-uc-busca-consolidar-el-chile-2-en-dura-visita-a-huachipato/)
-
-
-### barca (N/A, 29/11/2025 11:29 Lima)
-
-- **Barcelona vs. Alaves: Preview, Predictions and Lineups**: [Link](https://www.si.com/soccer/barcelona-vs-alaves-preview-predictions-lineups-29-11-25)
-- **Barcelona 2-1 Alaves LIVE: Dani Olmo puts Barcelona ahead - LaLiga EASPORTS 25/26**: [Link](https://www.marca.com/en/soccer/laliga-ea-sports/barcelona-alaves/2025/11/29/01_0101_20251129_178_173-live.html)
-- **Barcelona vs Deportivo Alaves, La Liga: TV & Streaming, Live Thread**: [Link](https://www.barcablaugranes.com/barcelona-la-liga/106863/barcelona-deportivo-alaves-live-stream-lineups-kickoff-time-tv-channel-how-to-watch-la-liga-online)
-
-
-### lamine yamal (N/A, 29/11/2025 11:29 Lima)
-
-- **Hansi Flick Offers Lamine Yamal Advice After Calls to Sell Barcelona Star**: [Link](https://www.si.com/soccer/hansi-flick-lamine-yamal-advice-calls-sell-barcelona-star)
-- **Barcelona concerned about star player becoming ‘public enemy number one’ – report**: [Link](https://barcauniversal.com/barcelona-concerned-about-star-player-becoming-public-enemy-number-one-report/)
-- **Flick: Yamal must forget Chelsea performance**: [Link](https://www.beinsports.com/en-asia/football/primera-divisin/articles/flick-yamal-must-forget-chelsea-performance-2025-11-28)
-
-
-### city (N/A, 29/11/2025 11:29 Lima)
-
-- **Manchester City quiere levantar cabeza con un triunfo en casa sobre Leeds**: [Link](https://www.espn.com.pe/futbol/inglaterra/nota/_/id/16018313/manchester-city-vs-leeds-por-la-premier-league-equipo-fecha-hora-y-tv-en-vivo)
-- **Manchester City vs Leeds United: cuando Niall Quinn sorprendió a Maine Road**: [Link](https://www.elpueblo.pe/deportes/manchester-city-vs-leeds-united-cuando-niall-quinn-sorprendio-a-maine-road/143160/)
-- **Premier League: Leeds United quiere volver a ganar ante Manchester City**: [Link](https://rpp.pe/futbol/ligas-internacionales/premier-league-leeds-united-quiere-volver-a-ganar-ante-manchester-city-noticia-1665671)
-
-
-### tarjeta roja (N/A, 29/11/2025 11:29 Lima)
-
-- **Carlos Zambrano sorprende con mensaje tras conocerse que admitieron a trámite reclamo para anular su segunda tarjeta amarilla**: [Link](https://rpp.pe/futbol/descentralizado/alianza-lima-carlos-zambrano-sorprende-con-mensaje-tras-conocerse-que-admitieron-la-anulacion-de-su-segunda-tarjeta-amarilla-noticia-1665654)
-- **Alianza Lima espera fallo por expulsión de Carlos Zambrano**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/alianza-lima-espera-fallo-sobre-expulsion-carlos-zambrano-n451853)
-- **Comisión Disciplinaria admitió reclamo de Alianza Lima por caso Zambrano: ¿cuándo tendrá respuesta?**: [Link](https://depor.com/futbol-peruano/descentralizado/alianza-lima-carlos-zambrano-comision-disciplinaria-admite-tramite-y-define-plazos-para-resolucion-liga-1-2025-noticia/)
-
-
-### monaco vs psg (N/A, 29/11/2025 11:29 Lima)
-
-- **Luis Enrique compares PSG star with former Barcelona player**: [Link](https://www.pulsesports.ng/football/story/luis-enrique-compares-psg-star-with-former-barcelona-player-2025112900332953971)
-- **Lee Kang-In starts? PSG's ideal lineup for AS Monaco clash shown**: [Link](https://tribuna.com/en/blogs/lee-kangin-starts-psgs-ideal-lineup-for-as-monaco-clash-show/)
-- **Monaco predicted XI v PSG: Paul Pogba to start?**: [Link](https://www.getfootballnewsfrance.com/2025/monaco-predicted-xi-v-psg-paul-pogba-to-start/)
-
-
-### mónaco - psg (N/A, 29/11/2025 11:29 Lima)
-
-- **Mónaco vs PSG en vivo: Ligue 1 hoy, en directo**: [Link](https://as.com/futbol/internacional/monaco-vs-psg-en-vivo-ligue-1-hoy-en-directo-f202511-d/)
-- **Monaco - Paris Saint-Germain en directo | Vive el minuto a minuto del líder de la Ligue 1**: [Link](https://www.marca.com/futbol/ligue-1/monaco-paris-saint-germain/2025/11/29/01_0109_20251129_146_149-directo.html)
-- **Mónaco vs PSG: Apuestas, Pronóstico y Cuotas**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/2025/noviembre/pronostico-monaco-vs-psg-29-11-25)
 
 
