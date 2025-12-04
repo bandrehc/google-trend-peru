@@ -1,3 +1,72 @@
+### manchester united vs (N/A, 04/12/2025 15:29 Lima)
+
+- **West Ham visita a Manchester United en busca de alejarse de los puestos de descenso**: [Link](https://www.espn.com.pe/futbol/inglaterra/nota/_/id/16031942/manchester-united-vs-west-ham-fecha-14-premier-league-equipo-fecha-hora-y-tv-en-vivo)
+- **Manchester United vs. West Ham EN VIVO y GRATIS por la Premier League 2025-26: minuto a minuto**: [Link](https://bolavip.com/pe/futbol-europeo/manchester-united-vs-west-ham-en-vivo-y-gratis-por-la-premier-league-2025-26-hora-canal-alineaciones-minuto-a-minuto-goles-resumen)
+- **Premier League: Manchester United y West Ham United se encuentran en la fecha 14**: [Link](https://rpp.pe/futbol/ligas-internacionales/premier-league-manchester-united-y-west-ham-united-se-encuentran-en-la-fecha-14-noticia-1666357)
+
+
+### extremadura - sevilla (N/A, 04/12/2025 15:29 Lima)
+
+- **Extremadura-Sevilla, en directo online: ¿Cuándo y dónde ver el partido? - Copa del Rey '25-26, 2ª Ronda - Info en vivo, resultado y goles - Hoy**: [Link](https://espanol.eurosport.com/futbol/copa-del-rey/2025-2026/live-cd-extremadura-sevilla_mtc1646252/live-commentary.shtml)
+- **Con Reyes en la memoria y más de 4.000 sevillistas en la grada**: [Link](https://as.com/futbol/con-reyes-en-la-memoria-y-mas-de-4000-sevillistas-en-la-grada-f202512-n/)
+- **Azpilicueta, Sow y Ejuke regresan con el grupo antes de viajar a Mérida**: [Link](https://www.msn.com/es-es/deportes/futbol/azpilicueta-sow-y-ejuke-regresan-con-el-grupo-antes-de-viajar-a-m%C3%A9rida/ar-AA1RCJ2N)
+
+
+### cartagena - valencia c. f. (N/A, 04/12/2025 15:29 Lima)
+
+- **Ramazani entra en la lista y espera su gran oportunidad con el Valencia**: [Link](https://www.estadiodeportivo.com/futbol/valencia/ramazani-entra-lista-espera-gran-oportunidad-con-valencia-20251204-522626.html)
+- **El Cartagena tira de refranero: “A la tercera ojalá sea la vencida”**: [Link](https://as.com/futbol/copa_del_rey/el-cartagena-tira-de-refranero-a-la-tercera-ojala-sea-la-vencida-f202512-n/)
+- **El Efesé recibe al Valencia en la Copa del Rey, como hace dos y cuatro años, buscando ganarle por fin**: [Link](https://murciaplaza.com/murciaplaza/deportes-murcia/el-efese-recibe-al-valencia-en-la-copa-del-rey-como-hace-dos-y-cuatro-anos-buscando-ganarle-por-fin)
+
+
+### sant andreu - celta de vigo (N/A, 04/12/2025 15:29 Lima)
+
+- **Sant Andreu - Celta, en directo: segunda ronda de la Copa del Rey, hoy en vivo**: [Link](https://as.com/futbol/copa_del_rey/sant-andreu-celta-en-directo-segunda-ronda-de-la-copa-del-rey-hoy-en-vivo-f202512-d/)
+- **Manual de supervivencia en sintético**: [Link](https://www.lavozdegalicia.es/noticia/gradario/2025/12/04/manual-supervivencia-sintetico/0003_202512V4P42993.htm)
+- **Fiesta en el Narcís Sala**: [Link](https://www.mundodeportivo.com/futbol/futbol-catala/20251204/1002580622/fiesta-narcis-sala.html)
+
+
+### porto - guimarães (N/A, 04/12/2025 15:29 Lima)
+
+- **Diogo Costa, Froholdt e De Jong de fora: rotação à vista no onze do FC Porto**: [Link](https://www.abola.pt/noticias/diogo-costa-froholdt-e-de-jong-de-fora-rotacao-a-vista-no-onze-do-fc-porto-2025120318125239686)
+- **FC Porto-V. Guimarães: confira os onzes iniciais**: [Link](https://sapo.pt/artigo/fc-porto-v-guimaraes-confira-os-onzes-iniciais-6931de0848b30ca90e822025)
+- **Francesco Farioli apresenta novidades nos quartos de final da Taça da Liga**: [Link](https://www.jn.pt/desporto/artigo/francesco-farioli-muda-defesa-e-ataque-nos-quartos-de-final-da-taca-da-liga/18027068)
+
+
+### manchester united - west ham (N/A, 04/12/2025 15:29 Lima)
+
+- **Man Utd vs West Ham LIVE: Premier League score, stats & updates**: [Link](https://www.bbc.com/sport/football/live/c5yqm4lp65dt)
+- **Starting XI | Souček starts at Manchester United**: [Link](https://www.whufc.com/en/news/starting-xi-or-soucek-starts-at-manchester-united)
+- **'Big opportunity for him': Fans hopeful one Man United player can step up to produce inspired performance vs West Ham**: [Link](https://tribuna.com/en/blogs/big-opportunity-for-him-fans-hopeful-one-man-united-player-c/)
+
+
+### lazio - milan (N/A, 04/12/2025 15:29 Lima)
+
+- **Lazio-Milan: Formazioni ufficiali e Cronaca in diretta**: [Link](https://sport.virgilio.it/dirette/live/coppa-italia/4-12-2025/lazio-milan/2598744/)
+- **Ricci pre Lazio-Milan: “Tensioni con la Lazio? Non sono preoccupato, siamo abituati”**: [Link](https://www.milanistichannel.com/news-milan/ricci-lazio-milan-coppa-italia-dichiarazioni-intervista-sport-mediaset-gazzetta-diretta-live-news/)
+- **LIVE! Lazio-Milan 0-0: Castellanos titolare, ecco Jashari**: [Link](https://www.eurosport.it/calcio/coppa-italia/2025-2026/live-lazio-milan_mtc1605767/live-commentary.shtml)
+
+
+### reinfo (N/A, 04/12/2025 15:29 Lima)
+
+- **Rospigliosi: Pleno verá esta tarde la delegación de facultades y ampliación de plazo del Reinfo**: [Link](https://comunicaciones.congreso.gob.pe/noticias/rospigliosi-pleno-vera-esta-tarde-la-delegacion-de-facultades-y-ampliacion-de-plazo-del-reinfo/)
+- **Pleno del Congreso definirá ampliación del REINFO hasta el 2027 hoy jueves 4**: [Link](https://caretas.pe/politica/pleno-del-congreso-definira-ampliacion-del-reinfo-hasta-el-2027-hoy-jueves-4/)
+- **Fórmula que amplía el Reinfo también dejaría fuera por lo menos unas 18 causales de exclusión del registro**: [Link](https://elcomercio.pe/politica/congreso/congreso-reinfo-comision-de-energia-y-minas-minem-pcm-jose-jeri-formula-que-amplia-el-reinfo-tambien-dejaria-fuera-por-lo-menos-unas-18-causales-de-exclusion-del-registro-noticia/)
+
+
+### rayo vallecano (N/A, 04/12/2025 15:29 Lima)
+
+- **Valencia y Rayo Vallecano repartieron puntos en LaLiga de España**: [Link](https://www.espn.com.pe/futbol/espana/nota/_/id/16019452/rayo-vallecano-vs-valencia-fecha-14-la-liga-equipo-fecha-hora-y-tv-en-vivo)
+- **LaLiga EA Sports: Rayo Vallecano y Valencia se miden por la fecha 14**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-rayo-vallecano-y-valencia-se-miden-por-la-fecha-14-noticia-1665954)
+- **Pronóstico Rayo Vallecano vs. Valencia: El pronóstico del lunes**: [Link](https://gainblers.com/pe/pronosticos/futbol/espana/liga-primera-division/pronostico-rayo-vallecano-valencia-01-12-2025/)
+
+
+### rayo vallecano vs (N/A, 04/12/2025 15:29 Lima)
+
+- **Real Avila vs Rayo Vallecano Prediction: Is miracle possible for Real Avila?**: [Link](https://www.telecomasia.net/sports-betting/tips/football/real-avila-vs-rayo-vallecano-prediction-for-the-match-on-december-04-2025/)
+- **Preview: Real Avila vs Rayo Vallecano - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/real-avila/copa-del-rey/preview/real-avila-vs-rayo-vallecano-prediction-team-news-lineups_586956.html)
+
+
 ### lazio vs milan (N/A, 04/12/2025 11:36 Lima)
 
 - **Reports: Sarri to rotate Lazio team for Milan rematch – six changes possible**: [Link](https://sempremilan.com/sarri-rotate-lazio-team-milan-rematch)
@@ -957,75 +1026,5 @@
 - **Honduras elige a un nuevo presidente en unas reñidas elecciones marcadas por las amenazas de Trump**: [Link](https://www.bbc.com/mundo/articles/c5yjx8yw950o)
 - **Observadores internacionales fueron expulsados de un centro de votación en Honduras por colectivos afines al partido oficialista**: [Link](https://www.infobae.com/america/america-latina/2025/12/01/observadores-internacionales-fueron-expulsados-de-un-centro-de-votacion-en-honduras-por-colectivos-afines-al-partido-oficialista/)
 - **Elecciones presidenciales en Honduras, 2025, en vivo: votaciones, resultados y más**: [Link](https://cnnespanol.cnn.com/latinoamerica/live-news/elecciones-presidenciales-honduras-2025-resultados-orix)
-
-
-### timberwolves - spurs (N/A, 30/11/2025 21:22 Lima)
-
-- **HERE’S!* WAY TO WATCH Minnesota Timberwolves vs San Antonio Spurs LIVE STREAMS NBA Basketball Game ON TV CHANNEL**: [Link](https://yoursunsetcountry.ca/classifieds/listings/heres-way-to-watch-minnesota-timberwolves-vs-san-antonio-spurs-live-streams-nba-basketball-game-on-tv-channel/)
-- **Spurs vs. Timberwolves Prediction, Odds and Best NBA Prop Bets for Sunday, Nov. 30**: [Link](https://www.si.com/betting/spurs-vs-timberwolves-prediction-odds-and-best-nba-prop-bets-for-sunday-nov-30)
-- **Get tickets to Timberwolves vs. Spurs tonight: game preview, injury updates & where to watch on TV or streaming**: [Link](https://timberwolves.com/news/get-tickets-timberwolves-spurs-tonight-game-preview-injury-updates-where-to-watch-on-tv-streaming)
-
-
-### enrique valderrama (N/A, 30/11/2025 21:22 Lima)
-
-- **Enrique Valderrama es el candidato presidencial oficial del APRA, con el 75% de actas procesadas por la ONPE: ¿quién es?**: [Link](https://www.infobae.com/peru/2025/11/30/enrique-valderrama-es-el-candidato-presidencial-oficial-del-apra-con-el-75-de-actas-procesadas-por-la-onpe-quien-es/)
-- **APRA celebra elecciones primarias: "Es la mejor forma de consolidar una democracia", dice Javier Velásquez Quesquén**: [Link](https://rpp.pe/politica/elecciones/apra-celebra-elecciones-primarias-es-la-mejor-forma-de-consolidar-una-democracia-dice-javier-velasquez-quesquen-noticia-1665955)
-- **Así van las elecciones internas en el Partido Aprista al 93.851% del escrutinio de votos**: [Link](https://elcomercio.pe/politica/elecciones/elecciones-2026-partido-aprista-elecciones-internas-enrique-valderrama-javier-velasquez-quesquen-onpe-ultimas-noticia/)
-
-
-### cruz azul - guadalajara (N/A, 30/11/2025 21:22 Lima)
-
-- **Chivas: 'Hormiga' y Bryan González viajan para la vuelta vs Cruz Azul**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/16022934/cruz-azul-vs-chivas-cuartos-de-final-vuelta-plantel-hormiga-bryan-gonzalez)
-- **📺 ¿En qué canal transmiten Cruz Azul vs. Chivas de Guadalajara EN VIVO hoy por Liguilla MX 2025 en México y EE.UU.?**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/que-canal-transmite-cruz-azul-vs-chivas-de-guadalajara-en-vivo-hoy-por-vuelta-liguilla-mx-2025-en-mexico-y-usa-canales-tv-online-streaming-gratis-nnda-nnrt-noticia/)
-- **Cruz Azul vs Chivas hoy: Resultado EN VIVO, minuto a minuto y goles de la Liga MX**: [Link](https://www.365scores.com/es/news/cruz-azul-vs-chivas-resultado-vivo-goles/)
-
-
-### cavaliers - celtics (N/A, 30/11/2025 21:22 Lima)
-
-- **Derrick White, Neemias Queta given rest amid Celtics’ busy week**: [Link](https://www.bostonglobe.com/2025/11/30/sports/celtics-rest-white-queta-cavaliers/)
-- **Cavs score, injury report vs Celtics as Cleveland battles Boston**: [Link](https://www.beaconjournal.com/story/sports/pro/cavs/2025/11/30/cleveland-cavs-score-today-boston-celtics-injury-report-recap/87541667007/)
-- **Celtics vs. Cavaliers Prediction, Odds and Best NBA Prop Bets for Sunday, Nov. 30**: [Link](https://www.si.com/betting/celtics-vs-cavaliers-prediction-odds-and-best-nba-prop-bets-for-sunday-nov-30)
-
-
-### primera división (N/A, 30/11/2025 21:22 Lima)
-
-- **Es el hogar de Pablo Aimar y disputó los antiguos Nacionales: la historia de Estudiantes de Río Cuarto, que jugará en Primera**: [Link](https://www.infobae.com/deportes/2025/11/30/la-historia-de-estudiantes-de-rio-cuarto-el-hogar-de-pablo-aimar-que-jugara-en-primera/)
-- **Desde cuándo Estudiantes de Río Cuarto no jugaba en Primera Divisón**: [Link](https://www.espn.com.ar/futbol/argentina/nota/_/id/16028777/estudiantes-rio-cuarto-vuelve-40-anos-primera-divison-futbol-argentino)
-- **Remontada épica de Estudiantes (RC) para coronarse campeón**: [Link](https://www.directvsports.com/futbol/remontada-epica-de-estudiantes-rc-para-coronarse-campeon-20251126-0015.html)
-
-
-### junior - atlético nacional (N/A, 30/11/2025 21:22 Lima)
-
-- **Atlético Nacional y Junior se repartieron los puntos en Ditaires por los cuadrangulares**: [Link](https://bolavip.com/pe/futbol-internacional/atletico-nacional-vs-junior-en-vivo-y-gratis-por-el-grupo-a-de-la-primera-a-via-rcn)
-- **(VIDEO) Junior venció a Atlético Nacional y se acerca a la final del Clausura colombiano**: [Link](https://ovacion.pe/noticias/futbol-internacional/video-junior-vencio-atletico-nacional-se-acerca-final-del-clausura)
-- **Junior Hockey World Cup 2025: India edge closer to quarter-final spot with 17-0 win over Oman**: [Link](https://www.olympics.com/en/news/junior-hockey-world-cup-2025-india-vs-oman-match-report)
-
-
-### delfín - emelec (N/A, 30/11/2025 21:22 Lima)
-
-- **Barco fue titular en el triunfo de Emelec ante Delfín por la Serie A de Ecuador**: [Link](https://ovacion.pe/noticias/peruanos-mundo/barco-fue-titular-triunfo-emelec-ante-delfin-serie-ecuador)
-- **Delfín vs Emelec: Must-win showdown in Serie A — who can’t afford to drop points?**: [Link](https://www.red94.net/news/70329-delfin-emelec-clash-in-must-win-showdown-here-s-why-both-won-t-want-to-drop-poin/)
-- **Barco fue titular en el triunfo de Emelec ante Delfín por la Serie A de Ecuador**: [Link](https://ovacion.pe/noticias/peruanos-mundo/barco-fue-titular-triunfo-emelec-ante-delfin-serie-ecuador)
-
-
-### marca (N/A, 30/11/2025 21:22 Lima)
-
-- **San Diego vs. Vancouver (29 de Nov., 2025) Resultados en Vivo**: [Link](https://www.espn.com.pe/futbol/partido/_/juegoId/762050/vancouver-whitecaps-san-diego-fc)
-- **Kenji Cabrera, finalista de la MLS: Vancouver Whitecaps enfrentará a Inter Miami de Lionel Messi**: [Link](https://rpp.pe/futbol/futbol-mundial/vancouver-whitecaps-vs-san-diego-fc-en-vivo-con-kenji-cabrera-horario-y-canales-tv-de-final-conferencia-oeste-mls-2025-link-streaming-partidos-de-hoy-noticia-1665775)
-- **San Diego FC vs Vancouver Whitecaps pronostico y comparación de cuotas 30.11.2025**: [Link](https://www.livetipsportal.com/es/pronosticos-apuestas-deportivas/san-diego-fc-vs-vancouver-whitecaps-major-league-soccer-11735176/)
-
-
-### liga (N/A, 30/11/2025 21:22 Lima)
-
-- **Perú vs Venezuela: día, hora y canal TV del partido en Lara por la cuarta jornada de la Liga de Naciones Femenina**: [Link](https://www.infobae.com/peru/deportes/2025/11/30/peru-vs-venezuela-dia-hora-y-canal-tv-del-partido-en-lara-por-la-cuarta-jornada-de-la-liga-de-naciones-femenina/)
-- **Selección Peruana: ¿La Bicolor podrá viajar a Venezuela pese a la advertencia de Donald Trump?**: [Link](https://www.futbolperuano.com/futbol-femenino/liga-naciones-conmebol/peru-podra-viajar-a-venezuela-pese-a-la-advertencia-de-donald-trump-553415)
-- **Real Madrid empató con Girona y dejó a Barcelona en lo más alto de LaLiga**: [Link](https://www.espn.com.pe/futbol/espana/nota/_/id/16015384/girona-vs-real-madrid-fecha-14-laliga-fecha-hora-estadio-y-tv-en-vivo)
-
-
-### porto vs (N/A, 30/11/2025 15:27 Lima)
-
-- **Europa League: Se enfrentan Porto y Nice por la fecha 5**: [Link](https://rpp.pe/futbol/ligas-internacionales/europa-league-se-enfrentan-porto-y-nice-por-la-fecha-5-noticia-1665362)
-- **(VIDEO) Porto goleó a Niza para mantenerse en la parte alta de la Europa League**: [Link](https://ovacion.pe/noticias/europa-league/video-porto-goleo-niza-mantenerse-parte-alta-europa-league)
-- **Pronóstico Porto - Nice. Europa League | 27/11/2025**: [Link](https://gainblers.com/la/pronosticos/futbol/europa/europa-league/pronostico-porto-nice-27-11-2025/)
 
 
