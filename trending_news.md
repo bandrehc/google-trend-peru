@@ -1,3 +1,44 @@
+### aguinaldo navidad sector público 2025 (N/A, 03/12/2025 23:35 Lima)
+
+- **¡Atención, sector público! Aprueban requisitos para la entrega del aguinaldo por Navidad [DS 283-2025-EF]**: [Link](https://lpderecho.pe/requisitos-entrega-aguinaldo-navidad-decreto-supremo-283-2025-ef/)
+- **Gratificación 2025: monto y hasta qué día pueden pagarla**: [Link](https://elcomercio.pe/respuestas/tramites/gratificacion-de-diciembre-2025-conoce-la-fecha-limite-de-pago-y-cuanto-recibiras-por-navidad-tdpe-noticia/)
+- **Gobierno aprueba aguinaldo por Navidad para el sector público: Estos son todos los beneficiarios**: [Link](https://peru21.pe/politica/gobierno-aprueba-aguinaldo-por-navidad-para-el-sector-publico/)
+
+
+### sam smith (N/A, 03/12/2025 23:35 Lima)
+
+- **Sam Smith - Norah Jones Is Playing Along**: [Link](https://www.iheart.com/podcast/1119-norah-jones-is-playing-al-102152218/episode/sam-smith-310363221/)
+- **Sam Smith & Norah Jones Perform Stripped-Down Duet Of Powerful Track**: [Link](https://www.americantop40.com/content/2025-12-02-sam-smith-norah-jones-perform-stripped-down-duet-of-powerful-track/)
+
+
+### monterrey - toluca (N/A, 03/12/2025 23:35 Lima)
+
+- **Rayados vs Toluca: alineaciones, semifinal de ida**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/16035244/rayados-monterrey-vs-toluca-alineaciones-semifinal-ida-apertura-2025)
+- **⭕ Univisión Deportes EN VIVO — señal de transmisión Monterrey FC vs. Toluca por Liguilla MX 2025 hoy por TV y Online**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/tudn-usa-y-univision-deportes-en-vivo-donde-mirar-partido-monterrey-fc-vs-toluca-por-univision-now-y-futbol-online-en-usa-nnda-nnrt-noticia/)
+- **Berterame levanta la mano para el Mundial 2026 con gol al Toluca campeón**: [Link](https://www.marca.com/mx/futbol/liga-mx/2025/12/04/69310a7922601d2b088b456e.html)
+
+
+### youtube recap (N/A, 03/12/2025 23:35 Lima)
+
+- **Made for you, by you: Introducing YouTube Recap**: [Link](https://blog.youtube/news-and-events/youtube-recap-2025/)
+- **Year-End App Recaps Turn Data Into Social Currency for 2025**: [Link](https://www.techbuzz.ai/articles/year-end-app-recaps-turn-data-into-social-currency-for-2025)
+- **YouTube introduces video viewing recap feature for users**: [Link](https://www.musicinafrica.net/magazine/youtube-introduces-video-viewing-recap-feature-users)
+
+
+### liga brasileña (N/A, 03/12/2025 23:35 Lima)
+
+- **Carrascal volvió a gritar campeón con Flamengo: ahora celebró título del Brasileirao**: [Link](https://www.espn.com.ar/futbol/brasil/nota/_/id/16041469/carrascal-volvio-a-gritar-campeon-con-flamengo-celebro-titulo-del-brasileirao)
+- **Filipe Luis, a por el doblete**: [Link](https://as.com/futbol/internacional/filipe-luis-a-por-el-doblete-f202512-n/)
+- **Flamengo vs. Ceará, EN VIVO: dónde ver por TV y ONLINE**: [Link](https://www.tycsports.com/futbol-de-brasil/flamengo-vs-ceara-en-vivo-donde-ver-por-tv-y-online-id701730.html)
+
+
+### brasileirão serie a (N/A, 03/12/2025 23:35 Lima)
+
+- **Flamengo provoca o Palmeiras: "Vice de novo"**: [Link](https://ge.globo.com/futebol/times/flamengo/noticia/2025/12/03/flamengo-provoca-o-palmeiras-vice-de-novo.ghtml)
+- **Confira a lista com todos os campeões do Brasileiro**: [Link](https://www1.folha.uol.com.br/esporte/2025/12/confira-a-lista-com-todos-os-campeoes-do-brasileiro.shtml)
+- **Autor de gol de título, Samuel Lino destaca resiliência no Flamengo**: [Link](https://www.terra.com.br/esportes/flamengo/autor-de-gol-de-titulo-samuel-lino-destaca-resiliencia-no-flamengo,9e98f749ad1d167fc61d0b35c36c174cnraorxha.html)
+
+
 ### youtube recap 2025 (N/A, 03/12/2025 21:00 Lima)
 
 - **Made for you, by you: Introducing YouTube Recap**: [Link](https://blog.youtube/news-and-events/youtube-recap-2025/)
@@ -986,47 +1027,5 @@
 - **#SGEWOB – Stürmisch**: [Link](https://onefootball.com/de/news/sgewob-stuermisch-42025751)
 - **Bundesliga-Lust folgt auf Königsklassen-Frust: Adler empfangen Wölfe**: [Link](https://www.sge4ever.de/bundesliga-lust-folgt-auf-koenigsklassen-frust-adler-empfangen-woelfe/)
 - **Frankfurt vs. VfL Wolfsburg: Quoten-Boost 20 mit Oddset!**: [Link](https://www.sport1.de/news/sportwetten/wett-tipps/frankfurt-vs-vfl-wolfsburg-quoten-boost-20-mit-oddset)
-
-
-### le havre - losc (N/A, 30/11/2025 11:29 Lima)
-
-- **HAC – LOSC : Mbappé lancé, Fernandez-Pardo de retour ? Les compositions probables**: [Link](https://le11hdf.fr/hac-losc-mbappe-fernandez-pardo-compositions-probables/)
-- **Le Havre - Lille : à quelle heure et sur quelle chaîne suivre le match de la 14e journée de Ligue 1 ?**: [Link](https://www.lequipe.fr/Football/Actualites/Le-havre-lille-a-quelle-heure-et-sur-quelle-chaine-suivre-le-match-de-la-14e-journee-de-ligue-1/1613013)
-- **Football – Ligue 1 : Ally Samatta ou pas d’Ally Samatta, la composition du HAC dévoilée**: [Link](https://www.paris-normandie.fr/id678522/article/2025-11-30/football-ligue-1-ally-samatta-ou-pas-dally-samatta-la-composition-du-hac)
-
-
-### chelsea - arsenal (N/A, 30/11/2025 11:29 Lima)
-
-- **Confirmed Chelsea line up versus Arsenal | News | Official Site**: [Link](https://www.chelseafc.com/en/news/article/confirmed-chelsea-line-up-versus-arsenal-web-november-2025)
-- **Chelsea vs Arsenal: London Rivals Clash in High-Stakes Premier League Showdown**: [Link](https://www.dawan.africa/news/chelsea-vs-arsenal-london-rivals-clash-in-high-stakes-premier-league-showdown)
-- **Confirmed Arsenal Team to face Chelsea: The Gunners are go!**: [Link](https://www.justarsenal.com/confirmed-arsenal-team-to-face-chelsea-the-gunners-are-go/405023)
-
-
-### corona de adviento (N/A, 30/11/2025 11:29 Lima)
-
-- **Oración para encender la primera vela de la Corona de Adviento 2025 este domingo 30 de noviembre**: [Link](https://elcomercio.pe/mag/respuestas/oracion-para-encender-la-primera-vela-de-la-corona-de-adviento-2025-plegaria-familiar-para-este-domingo-30-de-noviembre-nnda-nnni-noticia/)
-- **Comentario al Evangelio del domingo 30-11-2025**: [Link](https://www.ciudadredonda.org/events/comentario-al-evangelio-del-domingo-30-11-2025/)
-- **«La esperanza es preparar nuestro corazón ante la Venida del Mesías»**: [Link](https://www.eldebate.com/espana/la-voz-de-cordoba/religion-y-cofradias/20251130/esperanza-preparar-nuestro-corazon-ante-venida-mesias_360437.html)
-
-
-### inter (N/A, 30/11/2025 11:29 Lima)
-
-- **Pisa vs Inter Milan Preview, prediction, lineups, betting tips & odds | Serie A 2025-26**: [Link](https://khelnow.com/football/world-football-pisa-vs-inter-milan-preview-202511)
-- **Henrikh Mkhitaryan will return to Inter’s squad for the match against Pisa**: [Link](https://sportaran.com/en/post/genrih-mhitaryan-vernyotsya-v-zayavku-intera-na-match-protiv-pizy/)
-- **Inter Milan Head Coach Wary Of Pisa Threat & Reveals Captain ‘Had A Fever Before The Derby Against AC Milan’**: [Link](https://sempreinter.com/2025/11/30/pisa-inter-milan-chivu-lautaro-derby-sub/)
-
-
-### roma vs napoli (N/A, 30/11/2025 11:29 Lima)
-
-- **Cronaca Roma-Napoli ore 20.45 LIVE: torna Hermoso. Ferguson in pole su Dybala**: [Link](https://www.forzaroma.info/cronaca-live/cronaca-roma-napoli-ore-20-45-live-torna-hermoso-dybala-o-baldanzi-dal-1/)
-- **Gli esami non finiscono mai**: [Link](https://www.ilbellodelcalcio.net/2025/11/30/gli-esami-non-finiscono-mai/)
-- **Roma - Napoli sarà sorvegliata speciale**: [Link](https://www.virgilio.it/italia/napoli/notizielocali/roma_napoli_sar_sorvegliata_speciale-76100494.html)
-
-
-### liverpool vs (N/A, 30/11/2025 11:29 Lima)
-
-- **Liverpool fans swarm social media to make Alexander Isak point during West Ham fixture**: [Link](https://www.rousingthekop.com/2025/11/30/liverpool-fans-swarm-social-media-to-make-alexander-isak-point-during-west-ham-fixture/)
-- **Match Report | Second-half goals send Hammers to defeat**: [Link](https://www.whufc.com/en/news/match-report-or-second-half-goals-send-hammers-to-defeat)
-- **Why Lucas Paqueta was sent off vs Liverpool in moment of madness**: [Link](https://www.liverpool.com/liverpool-fc-news/features/lucas-paqueta-red-card-dissent-32973403)
 
 
