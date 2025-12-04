@@ -1,3 +1,72 @@
+### youtube recap 2025 (N/A, 03/12/2025 21:00 Lima)
+
+- **Made for you, by you: Introducing YouTube Recap**: [Link](https://blog.youtube/news-and-events/youtube-recap-2025/)
+- **Year-End App Recaps Turn Data Into Social Currency for 2025**: [Link](https://www.techbuzz.ai/articles/year-end-app-recaps-turn-data-into-social-currency-for-2025)
+- **Have You Seen YouTube’s New Feature?**: [Link](https://www.hits96.com/have-you-seen-youtubes-new-feature/)
+
+
+### bucaramanga - tolima (N/A, 03/12/2025 21:00 Lima)
+
+- **Bucaramanga vs Tolima: El empate del líder de visitante lo deja finalista**: [Link](https://www.espn.com.ar/futbol/colombia/nota/_/id/16034449/bucaramanga-vs-tolima-fecha-5-cuadrangulares-liga-betplay-equipo-fecha-hora-y-tv-en-vivo)
+- **Pronóstico Atlético Bucaramanga Deportes Tolima - Liga BetPlay 03/12/25**: [Link](https://www.sportytrader.com/es/pronosticos/atletico-bucaramanga-deportes-tolima-309311/)
+- **Qué canal pasa Bucaramanga vs Tolima hoy: dónde ver el partido gratis y en vivo de la Liga BetPlay**: [Link](https://www.365scores.com/es/news/canal-bucaramanga-vs-tolima-en-vivo/)
+
+
+### emelec (N/A, 03/12/2025 21:00 Lima)
+
+- **DT de Emelec reveló que Christian Cueva se va del club tras rescindir su contrato: “No la estaba pasando bien, volverá a su país”**: [Link](https://www.infobae.com/peru/deportes/2025/12/03/dt-de-emelec-revelo-que-christian-cueva-se-va-del-club-tras-rescindir-su-contrato-no-la-estaba-pasando-bien-volvera-a-su-pais/)
+- **Christian Cueva a la Liga 1: El primer club peruano que se postuló para ficharlo tras dejar Emelec**: [Link](https://bolavip.com/pe/liga-1/christian-cueva-a-la-liga-1-el-primer-club-peruano-que-se-postulo-para-ficharlo-tras-dejar-emelec)
+- **Guillermo Duró habló de Christian Cueva: ¿Se va de Emelec?**: [Link](https://www.espn.com.ar/futbol/ecuador/nota/_/id/16039011/guillermo-duro-hablo-de-christian-cueva-se-va-de-emelec)
+
+
+### ldu quito (N/A, 03/12/2025 21:00 Lima)
+
+- **LDU Quito holds 2-1 lead against Emelec tonight in Copa Ecuador semi-final 2nd leg, but what happens if Emelec scores first**: [Link](https://www.red94.net/news/91824-ldu-quito-faces-emelec-in-copa-ecuador-semi-final-2nd-leg-leading-2-1-from-first/)
+- **Liga de Quito vs. Emelec EN VIVO vía Teleamazonas y DSports por Copa Ecuador**: [Link](https://libero.pe/futbol-internacional/2025/12/02/liga-de-quito-vs-emelec-en-vivo-gratis-vuelta-de-semifinal-de-copa-ecuador-via-directv-sports-lbev-125976)
+
+
+### cruz azul - tigres (N/A, 03/12/2025 21:00 Lima)
+
+- **Razones por las que Tigres o Cruz Azul pueden llegar a la final**: [Link](https://www.espn.com.pe/futbol/mexico/nota/_/id/16036001/tigres-vs-cruz-azul-razones-por-las-que-pueden-llegar-a-la-final)
+- **¿A qué hora juega Cruz Azul vs Tigres HOY y dónde ver partido por semifinal de Liga MX?**: [Link](https://libero.pe/futbol-internacional/liga-mx/2025/12/02/hora-juega-cruz-azul-vs-tigres-canal-de-transmision-en-vivo-donde-ver-partido-de-liga-mx-98828)
+- **▷ TUDN y Canal 5 EN VIVO por Internet — señal que transmite Tigres UANL vs. Cruz Azul ida por TV abierta y Fútbol Online**: [Link](https://gestion.pe/mix/sports/tudn-y-canal-5-en-vivo-por-internet-donde-ver-partido-tigres-uanl-vs-cruz-azul-por-tv-abierta-y-futbol-online-nnda-nnrt-noticia/)
+
+
+### santos vs (N/A, 03/12/2025 21:00 Lima)
+
+- **📋 Juventude v Santos: teams set for crucial penultimate BR clash**: [Link](https://sports.yahoo.com/articles/juventude-santos-line-crucial-penultimate-213300879.html)
+- **Neymar hat-trick as Santos cruise into Copa do Brasil final**: [Link](https://onefootball.com/en/news/neymar-hat-trick-as-santos-cruise-into-copa-do-brasil-final-42044843)
+- **How to watch Juventude vs Santos in the USA: Live Stream and TV for 2025 Brasileirao**: [Link](https://worldsoccertalk.com/watch-on-us-tv/how-to-watch-juventude-vs-santos-in-the-usa-live-stream-and-tv-for-2025-brasileirao/)
+
+
+### neymar (N/A, 03/12/2025 21:00 Lima)
+
+- **Noche mágica de Neymar: triplete y triunfo clave de Santos**: [Link](https://www.espn.com.ar/futbol/brasil/nota/_/id/16041078/santos-vs-juventude-por-la-fecha-37-del-brasileirao-resultado-sin-neymar)
+- **Problemas en la rodilla, pero sueña con el Mundial 2026: goles y ‘hat-trick’ de Neymar en Santos**: [Link](https://depor.com/futbol-internacional/resto-del-mundo/goles-neymar-santos-vs-juventude-hat-trick-para-3-0-y-pelear-por-no-descender-en-brasileirao-video-noticia/)
+- **El Brasileirao fija la mirada en el descenso y Neymar responde por el Santos**: [Link](https://onefootball.com/en/news/el-brasileirao-fija-la-mirada-en-el-descenso-y-neymar-responde-por-el-santos-42030567)
+
+
+### flamengo vs ceara (N/A, 03/12/2025 21:00 Lima)
+
+- **¿Qué necesitan Carrascal y Flamengo para ser campeones del Brasileirao?**: [Link](https://www.espn.com.pe/futbol/brasil/nota/_/id/16030055/que-necesita-carrascal-y-flamengo-para-ser-campeones-del-brasileirao)
+- **Hoy, Flamengo vs Ceará EN VIVO: ¿a qué hora juegan y dónde ver partido por la fecha 37 del Brasileirao?**: [Link](https://rpp.pe/futbol/futbol-mundial/flamengo-vs-ceara-en-vivo-a-que-hora-juegan-y-donde-ver-fecha-37-brasileirao-2025-para-salir-campeon-via-l1-play-partidos-de-hoy-noticia-1666251)
+- **Flamengo vs Ceará: pronósticos, cuotas, y datos para apostar!**: [Link](https://www.apwin.com/es/pronosticos/flamengo-vs-ceara-pronostico-brasileirao-serie-a-04-12-2025/)
+
+
+### atlético mineiro - palmeiras (N/A, 03/12/2025 21:00 Lima)
+
+- **Atlético-MG x Palmeiras: onde assistir ao vivo, horário e escalações**: [Link](https://ge.globo.com/mg/futebol/brasileirao-serie-a/noticia/2025/12/03/atletico-mg-x-palmeiras-onde-assistir-ao-vivo-horario-e-escalacoes.ghtml)
+- **Allan amplia o placar para o Palmeiras e é exaltado pela torcida nas redes sociais**: [Link](https://br.bolavip.com/palmeiras/allan-amplia-o-placar-para-o-palmeiras-e-e-exaltado-pela-torcida-nas-redes-sociais)
+- **Gol anulado de Vitor Roque após revisão do VAR no 1º minuto agita início de Atlético-MG x Palmeiras pelo Brasileirão 2025**: [Link](https://www.mixvale.com.br/2025/12/03/gol-anulado-de-vitor-roque-apos-revisao-do-var-no-1o-minuto-agita-inicio-de-atletico-mg-x-palmeiras-pelo-brasileirao-2025/amp/)
+
+
+### ldu quito - emelec (N/A, 03/12/2025 21:00 Lima)
+
+- **Liga de Quito vs. Emelec EN VIVO vía Teleamazonas y DSports por Copa Ecuador**: [Link](https://libero.pe/futbol-internacional/2025/12/02/liga-de-quito-vs-emelec-en-vivo-gratis-vuelta-de-semifinal-de-copa-ecuador-via-directv-sports-lbev-125976)
+- **LDU Quito holds 2-1 lead against Emelec tonight in Copa Ecuador semi-final 2nd leg, but what happens if Emelec scores first**: [Link](https://www.red94.net/news/91824-ldu-quito-faces-emelec-in-copa-ecuador-semi-final-2nd-leg-leading-2-1-from-first/)
+- **Orense SC vs. LDU Quito - Live Score - December 06, 2025**: [Link](https://www.foxsports.com/soccer/ecuadorian-liga-pro-orense-sc-vs-ldu-quito-dec-06-2025-game-boxscore-646935)
+
+
 ### real madrid vs manchester city (N/A, 03/12/2025 15:30 Lima)
 
 - **Pol Deportes y su emotiva reacción al enterarse que narrará el duelo Real Madrid vs Manchester City**: [Link](https://libero.pe/futbol-internacional/champions-league/2025/12/03/pol-deportes-su-emotiva-reaccion-enterarse-narrara-partido-real-madrid-vs-manchester-city-197073)
@@ -959,73 +1028,5 @@
 - **Liverpool fans swarm social media to make Alexander Isak point during West Ham fixture**: [Link](https://www.rousingthekop.com/2025/11/30/liverpool-fans-swarm-social-media-to-make-alexander-isak-point-during-west-ham-fixture/)
 - **Match Report | Second-half goals send Hammers to defeat**: [Link](https://www.whufc.com/en/news/match-report-or-second-half-goals-send-hammers-to-defeat)
 - **Why Lucas Paqueta was sent off vs Liverpool in moment of madness**: [Link](https://www.liverpool.com/liverpool-fc-news/features/lucas-paqueta-red-card-dissent-32973403)
-
-
-### sebastian britos universitario (N/A, 30/11/2025 11:29 Lima)
-
-- **Sebastián Britos se olvida rápido de Universitario y ficharía por este histórico del fútbol peruano**: [Link](https://bolavip.com/pe/liga-1/sebastian-britos-se-olvida-rapido-de-universitario-y-ficharia-por-este-historico-del-futbol-peruano)
-- **Pedro García lanzó firme advertencia a Universitario ante inminente regreso de Diego Romero: “Hay un tema futbolístico peligroso″**: [Link](https://www.infobae.com/peru/deportes/2025/11/30/pedro-garcia-lanzo-firme-advertencia-a-universitario-ante-inminente-regreso-de-diego-romero-hay-un-tema-futbolistico-peligroso/)
-- **Jorge Fossati habló sobre la salida de uno de los arqueros para el regreso de Diego Romero a Universitario**: [Link](https://rpp.pe/futbol/descentralizado/universitario-jorge-fossati-hablo-sobre-salida-de-uno-de-los-arqueros-para-el-regreso-de-diego-romero-noticia-1665780)
-
-
-### liverpool (N/A, 30/11/2025 11:29 Lima)
-
-- **Premier League LIVE: Salah dropped as Liverpool visit West Ham, plus two more games**: [Link](https://www.bbc.com/sport/football/live/cr5elmq1755t)
-- **'January window is too late' - Glasner hits out at frugal Palace**: [Link](https://www.bbc.co.uk/sport/football/videos/c33m41x307do)
-- **Crystal Palace: Eagles are at risk of burnout with Oliver Glasner's selection policy amid gruelling schedule**: [Link](https://www.skysports.com/football/news/11096/13468583/crystal-palace-eagles-are-at-risk-of-burnout-with-oliver-glasners-selection-policy-amid-gruelling-schedule)
-
-
-### agf - københavn (N/A, 30/11/2025 07:47 Lima)
-
-Sin noticias relacionadas disponibles.
-
-
-### real sociedad - villarreal (N/A, 30/11/2025 07:47 Lima)
-
-- **Pronóstico Real Sociedad Villarreal - LaLiga 30/11/25**: [Link](https://www.sportytrader.com/es/pronosticos/real-sociedad-villarreal-308766/)
-- **La Real Sociedad, a la ofensiva para hundir al submarino**: [Link](https://www.mundodeportivo.com/futbol/real-sociedad/20251130/1002577991/real-sociedad-ofensiva-hundir-submarino.html)
-- **A por lo más difícil**: [Link](https://www.realsociedad.eus/es/noticias/detalle/a-por-lo-mas-dificil)
-
-
-### temblor hoy perú (N/A, 30/11/2025 07:47 Lima)
-
-- **Temblor HOY, 30 de noviembre, según IGP: ¿de qué magnitud fue el último sismo?**: [Link](https://larepublica.pe/sociedad/2025/11/30/temblor-en-peru-hoy-domingo-30-de-noviembre-del-2025-magnitud-epicentro-y-mas-sobre-sismos-recientes-segun-igp-ultimo-sismo-en-lima-ica-callao-y-otras-provincias-atmp-1631540)
-- **Un sismo de magnitud 3.5 remeció la región Áncash esta madrugada**: [Link](https://rpp.pe/peru/ancash/ancash-sismo-de-magnitud-35-remecio-la-region-esta-madrugada-noticia-1665848)
-- **Terremoto moderado mag. 4.1 - Departamento de Tacna, 33 km al sureste de Moquegua, Moquegua, Perú, domingo 30 nov 2025 a las 02:53 (GMT -5)**: [Link](https://www.volcanodiscovery.com/es/sismos/informe-sismo/22447748/quake-felt-Nov-30-2025-Near-Arica-Arica-y-Parinacota-Region-Chile.html)
-
-
-### lecce - torino (N/A, 30/11/2025 07:47 Lima)
-
-- **[DIRETTA@LiVe!] Lecce-Torino IN DIRETTA Streaming Gratis (Serie A) 30 novembre 2025**: [Link](https://yoursunsetcountry.ca/classifieds/listings/direttalive-lecce-torino-in-diretta-streaming-gratis-serie-a-30-novembre-2025/)
-- **Lecce-Torino, le formazioni ufficiali**: [Link](https://www.torinofc.it/news/30/11/2025/lecce-torino-le-formazioni-ufficiali_39869)
-- **Campionato Calcio 13ª Giornata LECCE vs TORINO – I Convocati**: [Link](https://www.lecceoggi.com/campionato-calcio-13a-giornata-lecce-vs-torino-i-convocati/)
-
-
-### adviento (N/A, 30/11/2025 07:47 Lima)
-
-- **Oración para encender la primera vela de la Corona de Adviento 2025 este domingo 30 de noviembre**: [Link](https://elcomercio.pe/mag/respuestas/oracion-para-encender-la-primera-vela-de-la-corona-de-adviento-2025-plegaria-familiar-para-este-domingo-30-de-noviembre-nnda-nnni-noticia/)
-- **Comentario al Evangelio del domingo 30-11-2025**: [Link](https://www.ciudadredonda.org/events/comentario-al-evangelio-del-domingo-30-11-2025/)
-- **«La esperanza es preparar nuestro corazón ante la Venida del Mesías»**: [Link](https://www.eldebate.com/espana/la-voz-de-cordoba/religion-y-cofradias/20251130/esperanza-preparar-nuestro-corazon-ante-venida-mesias_360437.html)
-
-
-### crystal palace - manchester united (N/A, 30/11/2025 07:47 Lima)
-
-- **Premier League LIVE: Crystal Palace vs Man Utd - scores & updates**: [Link](https://www.bbc.com/sport/football/live/cr5elmq1755t)
-- **Manchester United Aim to Get Back to Winning Ways with a Tough Away Trip to Crystal Palace**: [Link](https://dawan.africa/news/manchester-united-aim-to-get-back-to-winning-ways-with-a-tough-away-trip-to-crystal-palace)
-- **Ｏｒｉｇｉｎａｌ SOCCER/EPL Ｓｔｒｅａｍｓ Ｔｏｔａｌｓｐｏｒｔｅｋ SOCCER/EPL Ｓｔｒｅａｍｓ**: [Link](https://yoursunsetcountry.ca/classifieds/listings/%EF%BD%8F%EF%BD%92%EF%BD%89%EF%BD%87%EF%BD%89%EF%BD%8E%EF%BD%81%EF%BD%8C-soccer-epl-%EF%BD%93%EF%BD%94%EF%BD%92%EF%BD%85%EF%BD%81%EF%BD%8D%EF%BD%93-%EF%BD%94%EF%BD%8F%EF%BD%94%EF%BD%81%EF%BD%8C/)
-
-
-### psv - volendam (N/A, 30/11/2025 07:47 Lima)
-
-- **PSV-fans missen één naam in opstelling tegen Volendam: 'Dit voelt niet eerlijk'**: [Link](https://www.voetbalprimeur.nl/nieuws/1716972/verbazing-op-x-over-plek-voor-driouech-op-de-bank-bij-psv.html)
-- **LIVE eredivisie | PSV slaat na rust voor derde keer toe: Guus Til scoort opnieuw voor Eindhovenaren**: [Link](https://www.ad.nl/voetbal/live-eredivisie-psv-slaat-na-rust-voor-derde-keer-toe-guus-til-scoort-opnieuw-voor-eindhovenaren~a575f89c/)
-- **LIVE | PSV verdubbelt de voorsprong: Pepi doet het met een hoogstandje en zet Eindhovenaren op 2-0**: [Link](https://www.ed.nl/psv/live-psv-verdubbelt-de-voorsprong-pepi-doet-het-met-een-hoogstandje-en-zet-eindhovenaren-op-2-0~a7f63ae7/)
-
-
-### psv vs (N/A, 30/11/2025 07:47 Lima)
-
-- **PSV vs. FC Volendam (30 Nov, 2025) Live Score**: [Link](https://www.espn.in/football/match/_/gameId/741093)
-- **Preview: PSV Eindhoven vs. FC Volendam - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/psv-eindhoven/preview/psv-vs-volendam-prediction-team-news-lineups_586715.html)
-- **Veerman Gives PSV Early Lead Against Volendam; Pepi and Wanner Start**: [Link](https://www.el-balad.com/6779996)
 
 
