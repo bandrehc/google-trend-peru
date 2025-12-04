@@ -1,3 +1,17 @@
+### resultados de la tinka (N/A, 04/12/2025 07:55 Lima)
+
+- **La Tinka: conoce los resultados y ganadores del domingo 30 de noviembre**: [Link](https://elcomercio.pe/respuestas/loterias/la-tinka-hoy-domingo-30-de-noviembre-en-vivo-resultados-del-ultimo-sorteo-numeros-y-jugada-ganadora-pozo-millonario-loteria-resultado-si-o-si-boliyapa-intralot-lbposting-noticia/)
+- **La Tinka hoy 3 de diciembre: revisa aquí los resultados del sorteo y comprueba tu jugada ganadora**: [Link](https://www.infobae.com/peru/2025/12/04/la-tinka-del-3-de-diciembre-de-2025-descubre-los-numeros-ganadores-del-ultimo-sorteo/)
+- **Resultados La Tinka de HOY, 3 de diciembre EN VIVO: jugada ganadora y ÚLTIMOS números**: [Link](https://libero.pe/ocio/2025/12/03/resultados-tinka-de-hoy-3-de-diciembre-en-vivo-jugada-ganadora-ultimos-numeros-116882)
+
+
+### exitosa en vivo (N/A, 04/12/2025 07:55 Lima)
+
+- **La purga empezó en Sporting Cristal: los 4 jugadores que no están en los planes de Paulo Autuori para el 2026**: [Link](https://www.infobae.com/peru/deportes/2025/12/02/la-purga-empezo-en-sporting-cristal-los-4-jugadores-que-no-estan-en-los-planes-de-paulo-autuori-para-el-2026/)
+- **Se filtró el nombre de los cuatro futbolistas que no continuarán en Sporting Cristal en el 2026**: [Link](https://libero.pe/futbol-peruano/sporting-cristal/2025/12/03/sporting-cristal-se-filtro-nombre-de-cuatro-futbolistas-continuaran-en-equipo-2026-194538)
+- **Mientras Universitario se interesó en Martín Távara, la decisión de último momento que tomó Sporting Crista...**: [Link](https://bolavip.com/pe/liga-1/mientras-universitario-se-intereso-en-martin-tavara-la-decision-de-ultimo-momento-que-tomo-sporting-cristal-muy-cerca)
+
+
 ### barcos (N/A, 04/12/2025 03:36 Lima)
 
 - **“Yo soy de Alianza para toda la vida”: Hernán Barcos tras anotar el empate de Alianza vs Cristal | VIDEO**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/hernan-barcos-yo-soy-de-alianza-para-toda-la-vida-declaraciones-del-pirata-barcos-tras-anotar-el-empate-de-alianza-vs-cristal-video-noticia/)
@@ -1013,19 +1027,5 @@
 - **Girona - Real Madrid hoy, en directo: última hora de LaLiga EA Sports, en vivo**: [Link](https://as.com/futbol/primera/girona-real-madrid-hoy-en-directo-ultima-hora-de-laliga-ea-sports-en-vivo-f202511-d/)
 - **Girona vs Real Madrid: posibles alineaciones Jornada 14, LaLiga**: [Link](https://www.espn.com.ar/futbol/espana/nota/_/id/16023021/girona-vs-real-madrid-alineaciones-laliga-2025-jornada-14)
 - **🏟️ ¿Dónde ver Real Madrid - Girona EN VIVO hoy por LaLiga EA Sports 2025 en TV y Online?**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/donde-ver-real-madrid-girona-en-vivo-en-directo-por-laliga-2025-horarios-formaciones-y-canales-tv-online-gratis-nnda-nnrt-noticia/)
-
-
-### sporting cp (N/A, 30/11/2025 15:27 Lima)
-
-- **Primeira Liga - Sporting CP v Estrela**: [Link](https://www.reutersconnect.com/item/primeira-liga-sporting-cp-v-estrela/dGFnOnJldXRlcnMuY29tLDIwMjU6bmV3c21sX1VQMUVMQlUxRUtIUDU)
-- **Copa Libertadores - Final - Flamengo celebrate winning the final**: [Link](https://www.reutersconnect.com/item/copa-libertadores-final-flamengo-celebrate-winning-the-final/dGFnOnJldXRlcnMuY29tLDIwMjU6bmV3c21sX1VQMUVMQlUxRlozUVI)
-- **Pope Leo XIV visits Lebanon**: [Link](https://www.reutersconnect.com/item/pope-leo-xiv-visits-lebanon/dGFnOnJldXRlcnMuY29tLDIwMjU6bmV3c21sX1JDMjM3SUFFVVg2QQ)
-
-
-### roma - napoli (N/A, 30/11/2025 15:27 Lima)
-
-- **!***HERE’S WAY TO WATCH Girona vs Real Madrid LIVE STREAMS LaLiga ON TV CHANNEL**: [Link](https://yoursunsetcountry.ca/classifieds/listings/heres-way-to-watch-girona-vs-real-madrid-live-streams-laliga-on-tv-channel-3/)
-- **Roma-Napoli, le sensazioni dei tifosi: «Sarà dura, vincerà chi ci metterà il cuore»**: [Link](https://www.ilmattino.it/sport/sscnapoli/roma_napoli_le_sensazioni_tifosi_sara_dura_vincera_ci_mettera_cuore-9218578.html)
-- **Massara: 'Oggi verificheremo a che punto siamo. Mercato? L'organico è già molto buono'**: [Link](https://www.virgilio.it/italia/roma/notizielocali/massara_oggi_verificheremo_a_che_punto_siamo_mercato_l_organico_gi_molto_buono_-76101524.html)
 
 
