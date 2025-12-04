@@ -1,3 +1,24 @@
+### barcos (N/A, 04/12/2025 03:36 Lima)
+
+- **“Yo soy de Alianza para toda la vida”: Hernán Barcos tras anotar el empate de Alianza vs Cristal | VIDEO**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/hernan-barcos-yo-soy-de-alianza-para-toda-la-vida-declaraciones-del-pirata-barcos-tras-anotar-el-empate-de-alianza-vs-cristal-video-noticia/)
+- **(VIDEO | FOTOS) ¡Se define todo en Matute! Cristal empató 1-1 con Alianza en el Nacional**: [Link](https://ovacion.pe/noticias/liga1-te-apuesto-2025/video-fotos-se-define-todo-matute-cristal-empato-1-1-alianza)
+- **Hernán Barcos le cambió la cara a Alianza Lima con gol ante Sporting Cristal**: [Link](https://espndeportes.espn.com/futbol/peru/nota/_/id/16037581/hernan-barcos-cambio-cara-alianza-lima-vs-sporting-cristal-playoff-liga1-2025)
+
+
+### mavericks - heat (N/A, 04/12/2025 03:36 Lima)
+
+- **Miami Heat vs Dallas Mavericks Dec 3, 2025 Box Scores**: [Link](https://www.nba.com/game/mia-vs-dal-0022500332/box-score)
+- **76ers Legends: Ranking the Top 10 Philadelphia 76ers Players of All Time**: [Link](https://en.albat.com/lista/76ers-legends-ranking-the-top-10-philadelphia-76ers-players-of-all-time-20251123-0003.html)
+- **Detroit Pistons vs Milwaukee Bucks Dec 3, 2025 Box Scores**: [Link](https://www.nba.com/game/det-vs-mil-0022500331/box-score)
+
+
+### tu edad sonora spotify (N/A, 04/12/2025 03:36 Lima)
+
+- **Bad Bunny supera a Taylor Swift como el artista más popular en Spotify**: [Link](https://cnnespanol.cnn.com/2025/12/03/mundo/video/spotify-musica-globales-artistas-escuchados-2025-redaccion-buenos-aires-tv)
+- **Bad Bunny vuelve a convertirse en el artista más escuchado del mundo en Spotify durante 2025**: [Link](https://rpp.pe/musica/internacional/spotify-wrapped-2025-bad-bunny-encabeza-la-lista-de-artistas-mas-escuchados-a-nivel-mundial-noticia-1666346)
+- **Los top artistas, canciones, álbumes, pódcasts y audiolibros de 2025**: [Link](https://newsroom.spotify.com/2025-12-03/wrapped-top-artistas-canciones-albumes-podcasts-audiolibros/)
+
+
 ### aguinaldo navidad sector público 2025 (N/A, 03/12/2025 23:35 Lima)
 
 - **¡Atención, sector público! Aprueban requisitos para la entrega del aguinaldo por Navidad [DS 283-2025-EF]**: [Link](https://lpderecho.pe/requisitos-entrega-aguinaldo-navidad-decreto-supremo-283-2025-ef/)
@@ -1006,26 +1027,5 @@
 - **!***HERE’S WAY TO WATCH Girona vs Real Madrid LIVE STREAMS LaLiga ON TV CHANNEL**: [Link](https://yoursunsetcountry.ca/classifieds/listings/heres-way-to-watch-girona-vs-real-madrid-live-streams-laliga-on-tv-channel-3/)
 - **Roma-Napoli, le sensazioni dei tifosi: «Sarà dura, vincerà chi ci metterà il cuore»**: [Link](https://www.ilmattino.it/sport/sscnapoli/roma_napoli_le_sensazioni_tifosi_sara_dura_vincera_ci_mettera_cuore-9218578.html)
 - **Massara: 'Oggi verificheremo a che punto siamo. Mercato? L'organico è già molto buono'**: [Link](https://www.virgilio.it/italia/roma/notizielocali/massara_oggi_verificheremo_a_che_punto_siamo_mercato_l_organico_gi_molto_buono_-76101524.html)
-
-
-### roma vs (N/A, 30/11/2025 15:27 Lima)
-
-- **Derby Del Sole Preview: Can Roma Win Their First Match Against a Scudetto Contender?**: [Link](https://www.chiesaditotti.com/roma-matchday-coverage/38480/derby-del-sole-preview-can-roma-win-their-first-match-against-a-scudetto-contender)
-- **Massara hints at January market: "If we can get better we will."**: [Link](https://romapress.net/massara-hints-at-january-market-if-we-can-get-better-we-will/)
-- **Sacchi: ‘I often see myself’ in Conte and Gasperini**: [Link](https://www.yardbarker.com/soccer/articles/sacchi_i_often_see_myself_in_conte_and_gasperini/s1_17344_43135265)
-
-
-### atalanta - fiorentina (N/A, 30/11/2025 11:29 Lima)
-
-- **LIVE Alle 18 Atalanta-Fiorentina: Palladino ritrova i viola, confermati Scamacca e Lookman**: [Link](https://www.gazzetta.it/Calcio/Serie-A/30-11-2025/atalanta-fiorentina-live-risultato-e-gol-in-diretta-serie-a.shtml)
-- **Corriere dello Sport: "Gudmundsson dalla panchina, Piccoli a supporto di Kean dal 1'. Parisi confermato"**: [Link](https://www.labaroviola.com/corriere-dello-sport-gudmundsson-dalla-panchina-piccoli-a-supporto-di-kean-dal-1-parisi-confermato/326781/)
-- **CALCIO serie A 13a Giornata- live AAtalanta-Fiorentina 0-0**: [Link](https://www.firenzeviolasupersportlive.it/fiorentina/notizie-viola/calcio-serie-a-13a-giornata-live-aatalanta-fiorentina-0-0/)
-
-
-### frankfurt - wolfsburg (N/A, 30/11/2025 11:29 Lima)
-
-- **#SGEWOB – Stürmisch**: [Link](https://onefootball.com/de/news/sgewob-stuermisch-42025751)
-- **Bundesliga-Lust folgt auf Königsklassen-Frust: Adler empfangen Wölfe**: [Link](https://www.sge4ever.de/bundesliga-lust-folgt-auf-koenigsklassen-frust-adler-empfangen-woelfe/)
-- **Frankfurt vs. VfL Wolfsburg: Quoten-Boost 20 mit Oddset!**: [Link](https://www.sport1.de/news/sportwetten/wett-tipps/frankfurt-vs-vfl-wolfsburg-quoten-boost-20-mit-oddset)
 
 
