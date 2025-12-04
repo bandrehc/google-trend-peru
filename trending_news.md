@@ -1,3 +1,45 @@
+### lazio vs milan (N/A, 04/12/2025 11:36 Lima)
+
+- **Reports: Sarri to rotate Lazio team for Milan rematch – six changes possible**: [Link](https://sempremilan.com/sarri-rotate-lazio-team-milan-rematch)
+- **Gazzetta: Castellanos vs Leao: hunger for goals**: [Link](https://milanreports.com/2025/12/04/castellanos-vs-leao-hunger-for-goals/)
+- **Italy's "chief" referee says decision not to award penalty in Milan-Lazio was correct**: [Link](https://www.gazetaexpress.com/en/Italy%27s-chief-referee-says-decision-not-to-award-penalty-in-Milan-Lazio-was-correct/)
+
+
+### mon laferte (N/A, 04/12/2025 11:36 Lima)
+
+- **Mon Laferte vuelve al Perú con su gira “Femme Fatale”: ¿Cuándo y dónde será su concierto?**: [Link](https://elcomercio.pe/luces/musica/mon-laferte-vuelve-al-peru-con-su-gira-femme-fatale-cuando-y-donde-sera-su-concierto-celebs-ultimas-noticia/)
+- **Mon Laferte vuelve al Perú: fecha, lugar y entradas para su concierto en Lima**: [Link](https://www.infobae.com/peru/2025/12/02/mon-laferte-vuelve-al-peru-fecha-lugar-y-entradas-para-su-concierto-en-lima/)
+- **Mon Laferte, en el club de los amores perros**: [Link](https://elpais.com/babelia/2025-11-29/mon-laferte-en-el-club-de-los-amores-perros.html)
+
+
+### mef (N/A, 04/12/2025 11:36 Lima)
+
+- **Aprueban nueva escala remunerativa para trabajadores 728 del Minedu [Decreto Supremo 279-2025-EF]**: [Link](https://lpderecho.pe/nueva-escala-remunerativa-trabajadores-728-minedu-decreto-supremo-279-2025-ef/)
+- **MEF autoriza transferencia de S/ 175 millones para pagos a profesores**: [Link](https://andina.pe/agencia/noticia-mef-autoriza-transferencia-s-175-millones-para-pagos-a-profesores-1054438.aspx)
+- **Sueldo docente aumenta en Perú: ¿cómo cambian las remuneraciones en la CPM y para profesores contratados?**: [Link](https://elcomercio.pe/respuestas/tramites/atencion-maestros-ya-se-oficializo-el-aumento-asi-queda-la-nueva-escala-salarial-de-la-cpm-y-contratados-tdpe-noticia/)
+
+
+### ley de presupuesto 2026 (N/A, 04/12/2025 11:36 Lima)
+
+- **Ley 32513: Ley de presupuesto del sector público para el año fiscal 2026**: [Link](https://lpderecho.pe/ley-32513-ley-presupuesto-sector-publico-ano-fiscal-2026/)
+- **Bono de S/100 se confirma en del Presupuesto Público 2026: Los beneficiarios**: [Link](https://www.infobae.com/peru/2025/11/29/bono-de-s100-confirmado-con-aprobacion-del-presupuesto-publico-2026-los-beneficiarios/)
+- **Gobierno oficializó leyes de Presupuesto, Equilibrio Financiero y Endeudamiento 2026**: [Link](https://andina.pe/agencia/noticia-gobierno-oficializo-leyes-presupuesto-equilibrio-financiero-y-endeudamiento-2026-1054429.aspx)
+
+
+### la luna llena (N/A, 04/12/2025 11:36 Lima)
+
+- **La luna llena de diciembre es la última superluna del año**: [Link](https://cnnespanol.cnn.com/2025/12/03/clima-y-tiempo/superluna-diciembre-2025-ultima-ano-trax)
+- **Los astrónomos nos instan a prepararnos para lo que vendrá mañana 4 de diciembre**: [Link](https://www.larazon.es/ciencia/astronomos-nos-instan-prepararnos-que-vendra-manana-4-diciembre_20251203693006386e5e5012dcd88602.html)
+- **Eventos astronómicos de diciembre: NASA brinda consejos para verlos mejor**: [Link](https://elperuano.pe/noticia/284184-eventos-astronomicos-de-diciembre-nasa-brinda-consejos-para-verlos-mejor)
+
+
+### sorteo mundial 2026 (N/A, 04/12/2025 11:36 Lima)
+
+- **Sorteo de los grupos del Mundial 2026: bombos, fecha, a qué hora, formato y cómo ver por TV e internet**: [Link](https://cnnespanol.cnn.com/2025/12/04/deportes/sorteo-grupos-mundial-2026-bombos-orix)
+- **Cuál es el grupo más accesible y el más complicado que le puede tocar a la Argentina en el sorteo del Mundial 2026**: [Link](https://www.infobae.com/deportes/2025/12/04/cual-es-el-grupo-mas-accesible-y-el-mas-complicado-que-le-puede-tocar-a-la-argentina-en-el-sorteo-del-mundial-2026/)
+- **Judge se unirá a leyendas del deporte para el sorteo del Mundial de la FIFA 2026**: [Link](https://www.mlb.com/es/news/aaron-judge-sorteo-mundial-fifa-2026)
+
+
 ### resultados de la tinka (N/A, 04/12/2025 07:55 Lima)
 
 - **La Tinka: conoce los resultados y ganadores del domingo 30 de noviembre**: [Link](https://elcomercio.pe/respuestas/loterias/la-tinka-hoy-domingo-30-de-noviembre-en-vivo-resultados-del-ultimo-sorteo-numeros-y-jugada-ganadora-pozo-millonario-loteria-resultado-si-o-si-boliyapa-intralot-lbposting-noticia/)
@@ -985,47 +1027,5 @@
 - **Europa League: Se enfrentan Porto y Nice por la fecha 5**: [Link](https://rpp.pe/futbol/ligas-internacionales/europa-league-se-enfrentan-porto-y-nice-por-la-fecha-5-noticia-1665362)
 - **(VIDEO) Porto goleó a Niza para mantenerse en la parte alta de la Europa League**: [Link](https://ovacion.pe/noticias/europa-league/video-porto-goleo-niza-mantenerse-parte-alta-europa-league)
 - **Pronóstico Porto - Nice. Europa League | 27/11/2025**: [Link](https://gainblers.com/la/pronosticos/futbol/europa/europa-league/pronostico-porto-nice-27-11-2025/)
-
-
-### porto - estoril (N/A, 30/11/2025 15:27 Lima)
-
-- **Francesco Farioli: “Seria bom termos o mesmo tratamento dos rivais, mas não tendo é uma motivação extra”**: [Link](https://onefootball.com/en/news/francesco-farioli-seria-bom-termos-o-mesmo-tratamento-dos-rivais-mas-nao-tendo-e-uma-motivacao-extra-42027132)
-- **Pequenas mazelas afastam Alan Varela e Deniz Gul da receção ao Estoril**: [Link](https://sapo.pt/artigo/pequenas-mazelas-afastam-alan-varela-e-deniz-gul-da-rececao-ao-estoril-692c9e299d77fc389d1d01f3)
-- **Entre dúvidas, certezas só no eixo da defesa: o onze provável do FC Porto**: [Link](https://www.abola.pt/noticias/entre-duvidas-certezas-so-no-eixo-da-defesa-o-onze-provavel-do-fc-porto-2025112919181026332)
-
-
-### ajax vs groningen (N/A, 30/11/2025 15:27 Lima)
-
-- **HERE’S!* WAY TO WATCH Ajax vs Groningen LIVE STREAMS Soccer ON TV CHANNEL**: [Link](https://yoursunsetcountry.ca/classifieds/listings/heres-way-to-watch-ajax-vs-groningen-live-streams-soccer-on-tv-channel/)
-- **Ajax vs Groningen: Ajax names surprise lineup tonight — what coach won’t say**: [Link](https://www.red94.net/news/18179-ajax-vs-groningen-ajax-faces-groningen-tonight-in-eredivisie-showdown-here-s-wha/)
-- **Groningen Eyes Chance to End Winless Streak Against Ajax in Amsterdam**: [Link](https://news.ssbcrack.com/groningen-eyes-chance-to-end-winless-streak-against-ajax-in-amsterdam/)
-
-
-### gratificación (N/A, 30/11/2025 15:27 Lima)
-
-- **Aguinaldo y gratificación de diciembre 2025: ¿cuánto será el monto y cómo utilizarlo?**: [Link](https://rpp.pe/economia/tus-finanzas/aguinaldo-y-gratificacion-de-diciembre-2025-cuanto-sera-el-monto-y-como-utilizarlo-noticia-1665890)
-- **Pago de gratificaciones en diciembre 2025 incluirá una bonificación extraordinaria**: [Link](https://gestion.pe/economia/management-empleo/pago-de-gratificaciones-en-diciembre-2025-incluira-una-bonificacion-extraordinaria-noticia/)
-- **¿Cuánto es el monto que se debe cobrar por Gratificación de diciembre 2025? | tdpe | RESPUESTAS**: [Link](https://elcomercio.pe/respuestas/tramites/cuanto-es-el-monto-que-se-debe-cobrar-por-gratificacion-de-diciembre-2025-tdpe-noticia/)
-
-
-### posiciones de chelsea contra arsenal (N/A, 30/11/2025 15:27 Lima)
-
-- **Chelsea y Arsenal no defraudaron y empataron en un partidazo de Premier**: [Link](https://www.espn.com.ar/futbol/inglaterra/nota/_/id/16013115/chelsea-vs-arsenal-por-la-premier-league-equipo-fecha-hora-y-tv-en-vivo)
-- **Chelsea vs Arsenal (1-1): resumen y goles del partido por Premier League | VIDEO**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/chelsea-vs-arsenal-en-vivo-gratis-hoy-via-futbol-libre-tv-espn-horarios-canales-tv-y-donde-ver-partido-por-premier-league-video-noticia/)
-- **Chelsea y Arsenal sacan la bandera blanca en una batalla por la Premier**: [Link](https://www.marca.com/futbol/premier-league/cronica/2025/11/30/chelsea-arsenal-sacan-bandera-blanca-batalla-premier.html)
-
-
-### nacional - peñarol (N/A, 30/11/2025 15:27 Lima)
-
-- **Partido Nacional-Peñarol EN VIVO ONLINE: formaciones, horarios y dónde ver transmisión**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/nacional-vs-penarol-en-vivo-hoy-gratis-por-final-liga-auf-2025-a-que-hora-juegan-canal-que-pasa-y-donde-ver-el-clasico-uruguayo-video-noticia/)
-- **Fuerte operativo de seguridad para el clásico en el Gran Parque Central: ¿qué se puede llevar y qué artículos están prohibidos?**: [Link](https://www.espn.com.ar/futbol/uruguay/nota/_/id/16019226/fuerte-operativo-de-seguridad-para-el-clasico-en-el-gran-parque-central-articulos-prohibidos-y-permitidos)
-- **La racha con la que Nacional recibe a Peñarol en el Gran Parque Central para definir el Uruguayo**: [Link](https://espndeportes.espn.com/futbol/uruguay/nota/_/id/16000074/racha-nacional-recibe-penarol-gran-parque-central-para-definir-campeonato-uruguayo)
-
-
-### girona - real madrid (N/A, 30/11/2025 15:27 Lima)
-
-- **Girona - Real Madrid hoy, en directo: última hora de LaLiga EA Sports, en vivo**: [Link](https://as.com/futbol/primera/girona-real-madrid-hoy-en-directo-ultima-hora-de-laliga-ea-sports-en-vivo-f202511-d/)
-- **Girona vs Real Madrid: posibles alineaciones Jornada 14, LaLiga**: [Link](https://www.espn.com.ar/futbol/espana/nota/_/id/16023021/girona-vs-real-madrid-alineaciones-laliga-2025-jornada-14)
-- **🏟️ ¿Dónde ver Real Madrid - Girona EN VIVO hoy por LaLiga EA Sports 2025 en TV y Online?**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/donde-ver-real-madrid-girona-en-vivo-en-directo-por-laliga-2025-horarios-formaciones-y-canales-tv-online-gratis-nnda-nnrt-noticia/)
 
 
