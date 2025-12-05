@@ -1,3 +1,30 @@
+### superluna fría (N/A, 05/12/2025 03:34 Lima)
+
+- **La luna llena de diciembre es la última superluna del año**: [Link](https://cnnespanol.cnn.com/2025/12/03/clima-y-tiempo/superluna-diciembre-2025-ultima-ano-trax)
+- **Los astrónomos nos instan a prepararnos para lo que vendrá mañana 4 de diciembre**: [Link](https://www.larazon.es/ciencia/astronomos-nos-instan-prepararnos-que-vendra-manana-4-diciembre_20251203693006386e5e5012dcd88602.html)
+- **Esta noche se podrá observar el fenómeno astronómico más impresionante que volverá a ser visible hasta el 2042: la superluna y sus horarios de observación desde Colombia y Venezuela**: [Link](https://www.ntn24.com/noticias-ciencia-y-tecnologia/esta-noche-se-podra-observar-el-fenomeno-astronomico-mas-impresionante-que-volvera-a-ser-visible-hasta-el-2042-la-superluna-y-sus-horarios-de-observacion-desde-colombia-y-venezuela-593962)
+
+
+### minedu (N/A, 05/12/2025 03:34 Lima)
+
+- **Link de resultados del Ascenso Docente 2025: Minedu ya tiene fecha para publicar la lista de clasificados tras la Prueba Nacional**: [Link](https://elcomercio.pe/respuestas/ascenso-docente-2025-esta-es-la-fecha-en-que-el-minedu-publicara-la-lista-de-clasificados-tras-la-prueba-nacional-tdpe-noticia/)
+- **Les subirán salario a profesores: Ministerio de Educación publica listado de quienes están a un paso en col...**: [Link](https://redmas.com.co/colombia/les-subiran-salario-a-profesores-ministerio-de-educacion-publica-listado-de-quienes-estan-a-un-paso-en-colegios-de-colombia-20251204-0051.html)
+- **El examen de ascenso**: [Link](https://proycontra.com.pe/el-examen-de-ascenso/)
+
+
+### lista negra de infieles peru (N/A, 05/12/2025 03:34 Lima)
+
+- **‘La lista negra de las girls’, el polémico registro de hombres infieles que causó furor en redes sociales habría sido eliminado**: [Link](https://www.infobae.com/peru/2025/11/30/eliminaron-la-lista-negra-de-las-girls-polemico-registro-de-hombres-infieles-causo-furor-en-redes-sociales/)
+- **La lista negra de las girls: ¿qué delitos enfrentarían quienes expusieron datos de supuestos infieles?**: [Link](https://lpderecho.pe/la-lista-negra-de-las-girls-delitos-enfrentarian-exponer-datos-infieles/)
+- **Lista de infieles: el tip para encontrar un nombre en Excel**: [Link](https://www.metroecuador.com.ec/noticias/2025/12/03/lista-de-infieles-el-tip-para-encontrar-un-nombre-en-excel/)
+
+
+### junior vs (N/A, 05/12/2025 03:34 Lima)
+
+- **Didier Moreno tras el triunfo vs. América: "Lo importante es que no dejamos de creer"**: [Link](https://www.espn.com.pe/futbol/colombia/nota/_/id/16046052/didier-moreno-lo-importante-es-que-no-dejamos-de-creer)
+- **Mientras se juega Júnior – América y ganó Nacional, así va la tabla de posiciones del Grupo A de la Liga Be...**: [Link](https://bolavip.com/pe/futbol-internacional/tabla-de-posiciones-liga-betplay-torneo-clausura-2025-cuadrangulares-grupo-a-nacional-medellin-junior-america-de-cali)
+
+
 ### cambio dolar peru (N/A, 04/12/2025 23:34 Lima)
 
 - **Precio del dólar en Perú: a cuánto cerró el tipo de cambio el miércoles 3 de diciembre**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-en-peru-2025-a-cuanto-esta-el-dolar-este-miercoles-3-de-diciembre-tipo-de-cambio-segun-bcrp-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
@@ -998,33 +1025,5 @@
 - **Perú y Hong Kong avanzan hacia firma de un acuerdo de inversiones**: [Link](https://elperuano.pe/noticia/284084-peru-y-hong-kong-avanzan-hacia-firma-de-un-acuerdo-de-inversiones)
 - **Perú avanza hacia un Acuerdo de Inversiones con Hong Kong que abrirá la puerta a capital asiático desde 2026**: [Link](https://elcomercio.pe/economia/peru-avanza-hacia-un-acuerdo-de-inversiones-con-hong-kong-que-abrira-la-puerta-a-capital-asiatico-desde-2026-mfe-noticia/)
 - **Perú y Hong Kong cierran ronda de negociaciones y alistan firma de nuevo acuerdo de inversiones**: [Link](https://larepublica.pe/economia/2025/12/01/peru-y-hong-kong-cierran-ronda-de-negociaciones-y-alistan-firma-de-nuevo-acuerdo-de-inversiones-hnews-84921)
-
-
-### ley de presupuesto 2026 (N/A, 01/12/2025 11:35 Lima)
-
-- **Aprueban dictamen de Ley de Endeudamiento para garantizar financiamiento de sectores prioritarios**: [Link](https://comunicaciones.congreso.gob.pe/noticias/aprueban-dictamen-de-ley-de-endeudamiento-para-garantizar-financiamiento-de-sectores-prioritarios/)
-- **Congreso aprueba dictamen de la ley del presupuesto público 2026**: [Link](https://elperuano.pe/noticia/283991-congreso-aprueba-dictamen-de-la-ley-del-presupuesto-publico-2026)
-- **Parlamento da luz verde al marco de equilibrio fiscal para el Presupuesto 2026**: [Link](https://caretas.pe/home_web/home_principal/parlamento-da-luz-verde-al-marco-de-equilibrio-fiscal-para-el-presupuesto-2026/)
-
-
-### resultados de la tinka hoy domingo (N/A, 01/12/2025 11:35 Lima)
-
-- **La Tinka: conoce a los ganadores del sorteo del 26 de noviembre | nnav | amtv | video | VIDEOS**: [Link](https://elcomercio.pe/videos/entretenimiento/la-tinka-conoce-a-los-ganadores-del-sorteo-del-26-de-noviembre-nnav-amtv-video-noticia/)
-- **La Tinka hoy 30 de noviembre: revisa aquí los resultados del sorteo y comprueba tu jugada ganadora**: [Link](https://www.infobae.com/peru/2025/12/01/resultados-de-la-tinka-de-este-30-de-noviembre-de-2025-ganadores-del-ultimo-sorteo/)
-- **Resultados de La Tinka del domingo 30 de noviembre: números ganadores del Pozo Millonario**: [Link](https://depor.com/peru/la-tinka-hoy-domingo-30-de-noviembre-en-vivo-resultados-numeros-ganadores-del-ultimo-sorteo-pozo-millonario-boliyapa-resultado-si-o-si-intralot-peru-noticia/)
-
-
-### diciembre 2025 (N/A, 01/12/2025 11:35 Lima)
-
-- **90 Frases de DICIEMBRE 2025 para recibir el último mes del año**: [Link](https://elcomercio.pe/respuestas/que/90-frases-de-diciembre-2025-los-mejores-mensajes-para-recibir-el-ultimo-mes-del-ano-tdpe-noticia/)
-- **(ESPECIALES NAVIDAD 2025) Diciembre inicia entre balance y celebraciones**: [Link](https://ifmnoticias.com/especiales-navidad-2025-diciembre-inicia-entre-balance-y-celebraciones/)
-- **¡Bienvenido, diciembre 2025! Las mejores frases y mensajes para recibir el último mes del año**: [Link](https://libero.pe/ocio/redes-sociales/2025/11/30/bienvenido-diciembre-2025-mejores-frases-mensajes-recibir-ultimo-mes-del-ano-1309290)
-
-
-### cronograma de retiro de afp 2025 (N/A, 01/12/2025 11:35 Lima)
-
-- **Retiro de AFP: El significado de los estados en que puede estar tu solicitud**: [Link](https://www.infobae.com/peru/2025/11/29/retiro-de-afp-el-significado-de-los-estados-en-que-puede-estar-tu-proceso-de-solicitud/)
-- **Afiliados tienen nuevas fechas para retirar fondos y un plazo final del periodo libre, según cronograma del retiro AFP**: [Link](https://larepublica.pe/economia/2025/11/29/afiliados-tienen-nuevas-fechas-para-retirar-fondos-y-un-plazo-final-del-periodo-libre-segun-cronograma-del-retiro-afp-atmp-802111)
-- **Ingresa al LINK de Retiro AFP 2025: Solicita tu dinero, según tu número de DNI**: [Link](https://elcomercio.pe/respuestas/tramites/consulta-link-retiro-afp-hoy-accede-a-la-pagina-oficial-y-comienza-el-proceso-de-tu-solicitud-segun-tu-dni-tdpe-noticia/)
 
 
