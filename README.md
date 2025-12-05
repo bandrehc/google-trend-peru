@@ -1,3 +1,51 @@
+### cambio dolar peru (N/A, 04/12/2025 23:34 Lima)
+
+- **Precio del dólar en Perú: a cuánto cerró el tipo de cambio el miércoles 3 de diciembre**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-en-peru-2025-a-cuanto-esta-el-dolar-este-miercoles-3-de-diciembre-tipo-de-cambio-segun-bcrp-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
+- **¿Cuál es la cotización del dólar hoy jueves 4 de diciembre del 2025?**: [Link](https://andina.pe/agencia/noticia-cual-es-cotizacion-del-dolar-hoy-jueves-4-diciembre-del-2025-1054444.aspx)
+- **Precio del dólar HOY en Perú: Así cotiza el tipo de cambio este jueves, 4 de diciembre**: [Link](https://www.exitosanoticias.pe/actualidad/precio-dolar-hoy-peru-asi-cotiza-tipo-cambio-jueves-4-diciembre-n164046)
+
+
+### billie eilish (N/A, 04/12/2025 23:34 Lima)
+
+- **Opinion | What celebrities are made for**: [Link](https://dailyiowan.com/2025/12/03/opinion-what-celebrities-are-made-for/)
+- **What’s your point?**: [Link](https://thefinanser.com/2025/12/whats-your-point)
+- **'Pathetic': Billie Eilish Torches Elon Musk’s Hoarded Fortune, He Claps Back with a Jab Nobody Saw Coming**: [Link](https://atlantablackstar.com/2025/11/29/pathetic-billie-eilish-torches-elon-musks-hoarded-fortune-he-claps-back-with-a-jab-nobody-saw-coming/)
+
+
+### pelicans - timberwolves (N/A, 04/12/2025 23:34 Lima)
+
+- **Timberwolves, Pelicans meet again after wild Tuesday OT affair**: [Link](https://www.thesportsleader.com/2025/12/03/timberwolves-pelicans-meet-again-after-wild-tuesday-ot-affair/)
+- **NO.pelicanstimberwolves.120525.1217.JPG**: [Link](https://www.theadvocate.com/no-pelicanstimberwolves-120525-1217-jpg/image_3317d10c-1d3d-5e84-a10a-609f83056b74.html)
+- **Wolves Pics: Wolves Take Care Of Pelicans, 125‑116 | 12.04.25**: [Link](https://www.nba.com/timberwolves/photos/wolves-pics-wolves-take-care-of-pelicans-125-116-12-04-25)
+
+
+### karol g (N/A, 04/12/2025 23:34 Lima)
+
+- **How to Watch Karol G’s ‘Tropicoqueta’-Inspired TV Special ‘La Premiere’**: [Link](https://www.billboard.com/music/latin/karol-g-la-premiere-how-to-watch-1236128664/)
+- **How to Watch Karol G’s ‘Tropicoqueta’-Inspired TV Special ‘La Premiere’**: [Link](https://www.yahoo.com/entertainment/tv/articles/watch-karol-g-tropicoqueta-inspired-215257038.html)
+
+
+### peru vs colombia voley (N/A, 04/12/2025 23:34 Lima)
+
+- **Perú vs Colombia EN VIVO HOY: punto a punto del vóley femenino por los Juegos Bolivarianos 2025**: [Link](https://www.infobae.com/peru/deportes/2025/12/04/peru-vs-colombia-en-vivo-hoy-atv-youtube-voley-femenino-juegos-bolivarianos-2025-resumen-resultado/)
+- **Perú a la final del vóley: así fue la eufórica celebración tras triunfo ante Colombia por los Juegos Bolivarianos 2025**: [Link](https://rpp.pe/voley/seleccion-peruana/peru-a-la-final-del-voley-asi-fue-la-euforica-celebracion-tras-triunfo-ante-colombia-por-los-juegos-bolivarianos-2025-noticia-1666632)
+- **Juegos Bolivarianos 2025: participación del equipo peruano de voley playa masculino| Galería Fotográfica**: [Link](https://andina.pe/agencia/galeria-juegos-bolivarianos-2025-participacion-del-equipo-peruano-voley-playa-masculino-27938.aspx)
+
+
+### marita barreto (N/A, 04/12/2025 23:34 Lima)
+
+- **Marita Barreto goza de privilegios y blindaje: sala de juez César San Martín negó el levantamiento de secreto bancario**: [Link](https://willax.pe/politica/marita-barreto-negaron-levantamiento-secreto-bancario-willax)
+- **César San Martín bloquea investigación a Marita Barreto: impide acceso a sus movimientos bancarios**: [Link](https://www.expreso.com.pe/judicial/cesar-san-martin-bloquea-investigacion-a-marita-barreto-impide-acceso-a-sus-movimientos-bancarios-fiscalia-eficcop-noticia/1244564/)
+- **Corte Suprema protege a Marita Barreto: impide revelar sus movimientos bancarios pese a presunta fortuna millonaria**: [Link](https://diarioelnoticiero.com/corte-suprema-protege-a-marita-barreto-impide-revelar-sus-movimientos-bancarios-pese-a-presunta-fortuna-millonaria/)
+
+
+### junior (N/A, 04/12/2025 23:34 Lima)
+
+- **Junior hockey World Cup: Schedule, results and live stream details of India's campaign at FIH event**: [Link](https://www.sportingnews.com/in/tsn/news/india-hockey-junior-world-cup-schedule-results-live-stream/07f787b98c0a6ab7ac65ac8a)
+- **India will be tested by an attacking Belgium**: [Link](https://www.pressreader.com/india/the-hindu-visakhapatnam-9WWH/20251205/282230902005820)
+- **France Thrash South Korea, Australia Hold Off Bangladesh in Junior Hockey World Cup**: [Link](https://www.sentinelassam.com/sports-news/france-thrash-south-korea-australia-hold-off-bangladesh-in-junior-hockey-world-cup)
+
+
 ### jairo velez (N/A, 04/12/2025 21:00 Lima)
 
 - **El bombazo del mercado: Alianza Lima sí hará por Jairo Vélez lo que Universitario no está dispuesto**: [Link](https://bolavip.com/pe/liga-1/el-bombazo-del-mercado-alianza-lima-si-hara-por-jairo-velez-lo-que-universitario-no-esta-dispuesto)
@@ -978,53 +1026,5 @@
 - **Retiro de AFP: El significado de los estados en que puede estar tu solicitud**: [Link](https://www.infobae.com/peru/2025/11/29/retiro-de-afp-el-significado-de-los-estados-en-que-puede-estar-tu-proceso-de-solicitud/)
 - **Afiliados tienen nuevas fechas para retirar fondos y un plazo final del periodo libre, según cronograma del retiro AFP**: [Link](https://larepublica.pe/economia/2025/11/29/afiliados-tienen-nuevas-fechas-para-retirar-fondos-y-un-plazo-final-del-periodo-libre-segun-cronograma-del-retiro-afp-atmp-802111)
 - **Ingresa al LINK de Retiro AFP 2025: Solicita tu dinero, según tu número de DNI**: [Link](https://elcomercio.pe/respuestas/tramites/consulta-link-retiro-afp-hoy-accede-a-la-pagina-oficial-y-comienza-el-proceso-de-tu-solicitud-segun-tu-dni-tdpe-noticia/)
-
-
-### dia mundial del sida (N/A, 01/12/2025 07:54 Lima)
-
-- **ONUSIDA alerta de que la respuesta contra el VIH sufre “su mayor revés” por los recortes en ayuda internacional**: [Link](https://caretas.pe/mundo/onusida-alerta-de-que-la-respuesta-contra-el-vih-sufre-su-mayor-reves-por-los-recortes-en-ayuda-internacional/)
-- **Crisis global del VIH se agrava por recortes de ayuda internacional, alerta ONU SIDA**: [Link](https://diarioviral.pe/internacional/crisis-global-del-vih-se-agrava-por-recortes-de-ayuda-internacional-alerta-onu-sida-49246)
-
-
-### hora (N/A, 01/12/2025 07:54 Lima)
-
-- **¿Dónde ver la carrera de F1 GP de Qatar 2025 por TV abierta en USA y México?**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/donde-ver-carrera-de-f1-gp-de-qatar-2025-en-vivo-gratis-por-tv-abierta-en-usa-y-mexico-nnda-nnrt-noticia/)
-- **Qué resultados necesitan Norris, Verstappen y Piastri en Abu Dhabi para ser campeones**: [Link](https://es.motorsport.com/f1/news/cuentas-titulo-norris-verstappen-abu-dhabi/10781289/)
-- **Lando Norris será campeón del mundo en Qatar si...**: [Link](https://www.marca.com/motor/formula1/gp-qatar/2025/11/30/lando-norris-sera-campeon-mundo-qatar.html)
-
-
-### feriados diciembre 2025 (N/A, 01/12/2025 07:54 Lima)
-
-- **8 y 9 de diciembre son feriados en Perú: ¿Habrá fin de semana largo? Esto anunció el Gobierno**: [Link](https://www.infobae.com/peru/2025/11/26/8-y-9-de-diciembre-son-feriados-en-peru-habra-fin-de-semana-largo-esto-anuncio-el-gobierno/)
-- **Feriados de diciembre 2025: inicio del feriado largo y qué se celebra en Perú**: [Link](https://elcomercio.pe/respuestas/cuando/trabajadores-peruanos-estos-son-los-ultimos-feriados-del-2025-en-diciembre-cuando-caen-y-que-se-celebra-tdpe-noticia/)
-- **Escolares gozarán de 4 días de descanso consecutivos en diciembre por feriado largo a nivel nacional**: [Link](https://larepublica.pe/sociedad/2025/11/26/escolares-gozaran-de-4-dias-de-descanso-consecutivos-en-diciembre-por-feriado-largo-a-nivel-nacional-2052804)
-
-
-### 1 de diciembre (N/A, 01/12/2025 07:54 Lima)
-
-- **Horóscopo de hoy, 1 de diciembre: Estas son las predicciones más exactas para tu signo**: [Link](https://elcomercio.pe/luces/vida-social/horoscopo-de-hoy-1-de-diciembre-estas-son-las-predicciones-mas-exactas-para-tu-signo-noticia/)
-- **Horóscopo diario gratis: la predicción para hoy, domingo 30 de noviembre**: [Link](https://okdiario.com/horoscopo/horoscopo-diario-gratis-prediccion-hoy-domingo-30-noviembre-15818883)
-- **Horóscopo de hoy de Nana Calistar 30 de noviembre de 2025**: [Link](https://laopinion.com/2025/11/30/horoscopo-de-hoy-de-nana-calistar-30-de-noviembre-de-2025/)
-
-
-### excel de infieles (N/A, 01/12/2025 07:54 Lima)
-
-- **Furor en redes por la supuesta ‘Lista Negra de las Girls’: publican archivo viral que expone a presuntos infieles en Perú**: [Link](https://larepublica.pe/tendencias/2025/11/30/furor-en-redes-por-la-supuesta-lista-negra-de-las-girls-publican-archivo-viral-que-expone-a-presuntos-infieles-en-peru-atmp-2146350)
-- **Filtran “lista negra de infieles” en Excel y miles ya buscan nombres**: [Link](https://wapa.pe/ocio/2025/11/30/filtran-lista-negra-infieles-en-excel-miles-buscan-nombres-2937150)
-- **Publican LISTA DE HOMBRES INFIELES de Perú: 'La lista negra de las girls' causa furor en redes**: [Link](https://www.exitosanoticias.pe/virales/publican-lista-hombres-infieles-peru-la-lista-negra-girls-causa-furor-redes-n163754)
-
-
-### diciembre (N/A, 01/12/2025 07:54 Lima)
-
-- **Pronóstico del tiempo en Florida hoy lunes 1 de diciembre de 2025: así es el clima en Miami, Orlando y Tampa**: [Link](https://elcomercio.pe/mag/usa/local-us/pronostico-del-tiempo-en-florida-hoy-1-de-diciembre-de-2025-el-clima-en-miami-orlando-y-tampa-nnda-nnrt-noticia/)
-- **Pronóstico del tiempo en Miami para este lunes 1 de diciembre**: [Link](https://laopinion.com/2025/12/01/pronostico-del-tiempo-en-miami-para-este-lunes-1-de-diciembre/)
-- **Pronóstico del clima en Miami hoy 1 de diciembre de 2025**: [Link](https://www.debate.com.mx/mundo/pronostico-del-clima-en-miami-hoy-1-de-diciembre-de-2025-20251201-0023.html)
-
-
-### navidad (N/A, 01/12/2025 03:37 Lima)
-
-- **Lo estabas haciendo mal: por qué montar el árbol de Navidad en el puente de diciembre es un error**: [Link](https://www.mujerhoy.com/vivir/decoracion/montar-arbol-navidad-puente-diciembre-error-razones-20251129155855-nt.html)
-- **Esta es la razón por la que cada vez colocamos con mayor anticipación las luces de navidad, según la ciencia**: [Link](https://heraldodemexico.com.mx/estilo-de-vida/2025/11/30/esta-es-la-razon-por-la-que-cada-vez-colocamos-con-mayor-anticipacion-las-luces-de-navidad-segun-la-ciencia-748835.html)
-- **Los expertos en psicología se ponen de acuerdo: poner la decoración de Navidad te hace feliz**: [Link](https://www.elmueble.com/decoracion/expertos-psicologia-se-ponen-acuerdo-poner-decoracion-navidad-te-hace-feliz_62843)
 
 
