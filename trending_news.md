@@ -1,3 +1,73 @@
+### jairo velez (N/A, 04/12/2025 21:00 Lima)
+
+- **El bombazo del mercado: Alianza Lima sí hará por Jairo Vélez lo que Universitario no está dispuesto**: [Link](https://bolavip.com/pe/liga-1/el-bombazo-del-mercado-alianza-lima-si-hara-por-jairo-velez-lo-que-universitario-no-esta-dispuesto)
+- **¿Se va del tricampeón? Se complica la continuidad de Jairo Vélez en Universitario de Deportes**: [Link](https://rpp.pe/futbol/descentralizado/universitario-de-deportes-jairo-velez-su-continuidad-se-complica-estos-son-los-detalles-de-la-negociacion-noticia-1666614)
+- **Vélez dejaría Universitario y estaría muy cerca de llegar a Alianza en 2026**: [Link](https://ovacion.pe/noticias/alianza-lima/velez-dejaria-universitario-estaria-muy-cerca-llegar-alianza-2026)
+
+
+### bruce willis (N/A, 04/12/2025 21:00 Lima)
+
+- **Bruce Willis' Wife Gives New Update on His Health: 'Unkind Disease': EXCLUSIVE**: [Link](https://www.today.com/health/news/emma-willis-update-bruce-willis-health-exclusive-rcna246948)
+- **Emma Heming Willis Says 'It's Important to Put Die Hard on’ Over the Holidays: 'It's a Christmas Movie' (Exclusive)**: [Link](https://people.com/emma-heming-willis-advice-fun-joy-holidays-put-die-hard-on-exclusive-11857307)
+- **Bruce Willis's wife on how she learned action star has dementia and decision to move him out of their home**: [Link](https://ca.news.yahoo.com/bruce-williss-wife-she-learned-205338860.html)
+
+
+### junior - américa (N/A, 04/12/2025 21:00 Lima)
+
+- **FIH Hockey Women's Junior World Cup 2025 points table: India slip to second place after Germany defeat**: [Link](https://khelnow.com/hockey/points-table-fih-hockey-womens-junior-world-cup-202512)
+- **52' Germany doubles its lead with Annika's cheeky finish at back post**: [Link](https://thebridge.in/buzz/womens-junior-world-cup-india-germany-live-blog-scores-97226)
+- **DAY 1 – FIH Hockey Women’s Junior World Cup City of Santiago 2025**: [Link](https://www.africahockey.org/day-1-fih-hockey-womens-junior-world-cup-city-of-santiago-2025/)
+
+
+### categoría primera a (N/A, 04/12/2025 21:00 Lima)
+
+- **Cúcuta vs Cundinamarca: Tarde de penales, con Cataño figura y tensa celebración de ascenso**: [Link](https://www.espn.com.ar/futbol/colombia/nota/_/id/16037150/torneo-betplay-2025-cucuta-vs-cundinamarca-penales-catano-figura-celebracion-ascenso-disputa)
+- **Cúcuta Deportivo, el club que renació hace tres años y logró el ascenso a Liga BetPlay 2026**: [Link](https://espndeportes.espn.com/futbol/colombia/nota/_/id/12278041/cucuta-deportivo-el-club-que-renacio-y-logro-ascenso-liga-betplay-2026)
+- **El defensor Henry Plazas logró el ascenso a primera división con el Cúcuta Deportivo**: [Link](https://onefootball.com/es/noticias/el-defensor-henry-plazas-logro-el-ascenso-a-primera-division-con-el-cucuta-deportivo-42048460)
+
+
+### bolivar (N/A, 04/12/2025 21:00 Lima)
+
+- **Bolívar busca mantener el sueño del título y asegurar su cupo en la Libertadores 2026**: [Link](https://www.redpat.tv/detalle/Bolivar-busca-mantener-el-sueno-del-titulo-y-asegurar-su-cupo-en-la-libertadores-2026)
+- **Bolívar vs Nacional Potosí: resultado EN VIVO y estadísticas del encuentro**: [Link](https://www.365scores.com/es/news/bolivar-vs-nacional-potosi-vivo-liga/)
+- **Hoy juega Bolívar contra Nacional Potosí: ¿la entrada podrá ser un juguete?**: [Link](https://www.bolivia.com/futbol/liga-boliviana/bolivar-juega-hoy-ante-nacional-potosi-y-la-entrada-podra-ser-un-juguete-553965)
+
+
+### raptors - lakers (N/A, 04/12/2025 21:00 Lima)
+
+- **When will Luka Doncic return? Lakers star to miss Eastern road trip**: [Link](https://basketnews.com/news-236257-when-will-luka-doncic-return-lakers-star-to-miss-eastern-road-trip.html)
+- **Lakers vs Raptors! Big Injury Update, Keys To Victory & Should Lakers Pursue Giannis Or Chris Paul?**: [Link](https://bvmsports.com/2025/12/04/lakers-vs-raptors-big-injury-update-keys-to-victory-should-lakers-pursue-giannis-or-chris-paul/)
+- **Toronto Raptors vs Los Angeles Lakers LIVE Score Updates in NBA Game**: [Link](https://www.vavel.com/en-us/nba/2025/12/05/1243556-raptors-vs-lakers-live-score-nba.html)
+
+
+### oscar gayoso (N/A, 04/12/2025 21:00 Lima)
+
+- **"No me gustan los dramas": Óscar Gayoso revela por qué decidió mantener en reserva su diagnóstico de cáncer**: [Link](https://rpp.pe/famosos/celebridades/oscar-gayoso-explica-por-que-decidio-mantener-en-reserva-su-diagnostico-de-cancer-noticia-1666500)
+- **Óscar Gayoso responde sobre supuesto romance con Aída Martínez: “Es mi amiga... pero no lo estoy negando”**: [Link](https://trome.com/espectaculos/tv/oscar-gayoso-responde-supuesto-romance-con-aida-martinez-es-mi-amiga-pero-no-lo-estoy-negando-cafe-con-la-chevez-video-fotos-farandula-noticia/)
+- **Óscar Gayoso confiesa por qué decidió ocultar su batalla contra el cáncer: "No me gustan los dramas"**: [Link](https://larepublica.pe/espectaculos/2025/12/04/oscar-gayoso-confiesa-por-que-decidio-ocultar-su-batalla-contra-el-cancer-no-me-gustan-los-dramas-121888)
+
+
+### 76ers - warriors (N/A, 04/12/2025 21:00 Lima)
+
+- **V.J. Edgecombe returns from injury as 76ers edge Warriors 121-118 in thrilling finish**: [Link](https://www.red94.net/news/15163-v-j-edgecombe-returns-from-injury-as-76ers-edge-warriors-121-118-in-thrilling-fi/)
+- **Sixers' Adem Bona discusses challenges Warriors present before contest**: [Link](https://sports.yahoo.com/articles/sixers-adem-bona-discusses-challenges-211723847.html)
+- **Is Stephen Curry playing tonight vs the Philadelphia 76ers? Latest update on the Golden State Warriors st**: [Link](https://timesofindia.indiatimes.com/sports/nba/top-stories/is-stephen-curry-playing-tonight-vs-the-philadelphia-76ers-latest-update-on-the-golden-state-warriors-stars-injury-report-december-4-2025/articleshow/125774188.cms)
+
+
+### atlético nacional - medellín (N/A, 04/12/2025 21:00 Lima)
+
+- **Cómo quedó la tabla de posiciones de grupo A de Liga BetPlay 2025-II, tras Nacional 2-1 Medellín**: [Link](https://www.noticiascaracol.com/golcaracol/seleccion-colombia/como-quedo-la-tabla-de-posiciones-de-grupo-a-de-liga-betplay-2025-ii-tras-nacional-2-0-medellin-so35)
+- **Nacional vs. DIM, alineaciones**: [Link](https://capsulas.com.co/nacional-vs-dim-alineaciones-3/)
+- **Nacional volvió a ganar el clásico, eliminó al Medellín y sigue en la pelea por ir a la final y a la Copa Libertadores**: [Link](https://www.eltiempo.com/deportes/futbol-colombiano/nacional-volvio-a-ganar-el-clasico-elimino-al-medellin-y-sigue-en-la-pelea-por-ir-a-la-final-y-a-la-copa-libertadores-3514444)
+
+
+### cruzeiro vs (N/A, 04/12/2025 21:00 Lima)
+
+- **Cruzeiro vs Botafogo on tonight's playoff collision at Mineirão, will Cruzeiro's 11-game unbeaten streak survive against Botafogo's explosive 11-goal rampage?**: [Link](https://www.red94.net/news/50002-cruzeiro-vs-botafogo-faces-crucial-playoff-chase-clash-tonight-at-mineirao-in-ro/)
+- **Fluminense can clinch Copa do Brasil spot on their own, here’s how**: [Link](https://onefootball.com/it/notizie/fluminense-can-clinch-copa-do-brasil-spot-on-their-own-heres-how-42043069)
+- **Cruzeiro vs Botafogo: Live Stream, Kickoff Time, and Lineups**: [Link](https://www.el-balad.com/6784966)
+
+
 ### manchester united vs (N/A, 04/12/2025 15:29 Lima)
 
 - **West Ham visita a Manchester United en busca de alejarse de los puestos de descenso**: [Link](https://www.espn.com.pe/futbol/inglaterra/nota/_/id/16031942/manchester-united-vs-west-ham-fecha-14-premier-league-equipo-fecha-hora-y-tv-en-vivo)
@@ -956,75 +1026,5 @@
 - **Lo estabas haciendo mal: por qué montar el árbol de Navidad en el puente de diciembre es un error**: [Link](https://www.mujerhoy.com/vivir/decoracion/montar-arbol-navidad-puente-diciembre-error-razones-20251129155855-nt.html)
 - **Esta es la razón por la que cada vez colocamos con mayor anticipación las luces de navidad, según la ciencia**: [Link](https://heraldodemexico.com.mx/estilo-de-vida/2025/11/30/esta-es-la-razon-por-la-que-cada-vez-colocamos-con-mayor-anticipacion-las-luces-de-navidad-segun-la-ciencia-748835.html)
 - **Los expertos en psicología se ponen de acuerdo: poner la decoración de Navidad te hace feliz**: [Link](https://www.elmueble.com/decoracion/expertos-psicologia-se-ponen-acuerdo-poner-decoracion-navidad-te-hace-feliz_62843)
-
-
-### cyber monday (N/A, 01/12/2025 03:37 Lima)
-
-- **Cyber Monday 2025 deals are live from Hoka, Apple and Dyson: Our top picks at every price from this year's biggest sale**: [Link](https://www.yahoo.com/lifestyle/deals/live/cyber-monday-2025-deals-are-live-from-hoka-apple-and-dyson-our-top-picks-at-every-price-from-this-years-biggest-sale-115831657.html)
-- **The best Cyber Monday 2025 deals we found on Amazon, Walmart and more**: [Link](https://www.wcvb.com/article/cyber-monday-2025/69586883)
-- **Don’t Fall for Fake Deals. These Amazon Cyber Monday Sales Are Verified by Our Experts.**: [Link](https://www.nytimes.com/wirecutter/money/amazon-cyber-monday-deals-2025/)
-
-
-### agatha lys (N/A, 01/12/2025 03:37 Lima)
-
-- **Agatha Lys en ‘El valor de la verdad’: confesiones desgarradoras, predicciones que la marcaron y los políticos que buscaron sus consejos**: [Link](https://rpp.pe/famosos/farandula/agatha-lys-en-el-valor-de-la-verdad-confesiones-desgarradoras-predicciones-que-la-marcaron-y-los-politicos-que-buscaron-sus-consejos-noticia-1666002)
-- **‘El valor de la verdad’: Agatha Lys revela que tuvo un romance secreto con un joven diplomático libio**: [Link](https://elcomercio.pe/tvmas/farandula/el-valor-de-la-verdad-agatha-lys-revela-que-tuvo-un-romance-secreto-con-un-joven-diplomatico-libio-ultimas-noticia/)
-- **Agatha Lys asegura que una premonición salvó su vida horas antes tomar un vuelo a Arequipa: "Me vi bajando de un avión destruido"**: [Link](https://larepublica.pe/espectaculos/2025/12/01/agatha-lys-asegura-que-una-premonicion-salvo-su-vida-horas-antes-tomar-un-vuelo-a-arequipa-me-vi-bajando-de-un-avion-destruido-2935800)
-
-
-### elecciones honduras 2025 (N/A, 30/11/2025 23:53 Lima)
-
-- **Honduras elige a un nuevo presidente en unas reñidas elecciones marcadas por las amenazas de Trump**: [Link](https://www.bbc.com/mundo/articles/c5yjx8yw950o)
-- **Elecciones presidenciales en Honduras, 2025, en vivo: votaciones, resultados y más**: [Link](https://cnnespanol.cnn.com/latinoamerica/live-news/elecciones-presidenciales-honduras-2025-resultados-orix)
-- **Observadores internacionales fueron expulsados de un centro de votación en Honduras por colectivos afines al partido oficialista**: [Link](https://www.infobae.com/america/america-latina/2025/12/01/observadores-internacionales-fueron-expulsados-de-un-centro-de-votacion-en-honduras-por-colectivos-afines-al-partido-oficialista/)
-
-
-### endrick (N/A, 30/11/2025 23:53 Lima)
-
-- **Endrick: Real Madrid is taking its time**: [Link](https://foot-africa.com/en/news/endrick-real-madrid-is-taking-its-time-982562/)
-- **Endrick will have to wait, Real Madrid delays the signing: 'He'll stay until...'**: [Link](https://e-noticies.cat/en/soccer/endrick-will-have-to-wait-real-madrid-delays-signing-he-will-stay-until)
-- **Bombshell! Florentino puts Endrick's loan to Lyon on hold: 'He wants to wait until...'**: [Link](https://madrid-barcelona.com/en/real-madrid/florentino-bomb-puts-endricks-loan-to-lyon-on-hold-wants-to-wait-until)
-
-
-### lakers - pelicans (N/A, 30/11/2025 23:53 Lima)
-
-- **New Orleans Pelicans vs Los Angeles Lakers Prediction, Pick, Odds -- 11/30**: [Link](https://www.actionnetwork.com/nba/new-orleans-pelicans-vs-los-angeles-lakers-prediction-pick-odds-sunday-november-30)
-- **HERE’S!* WAY TO WATCH Kings vs Grizzlies LIVE STREAMS NBA Basketball Game ON TV CHANNEL**: [Link](https://yoursunsetcountry.ca/classifieds/listings/heres-way-to-watch-kings-vs-grizzlies-live-streams-nba-basketball-game-on-tv-channel/)
-- **Photos: Pelicans at Lakers | Game Action 11/30/25**: [Link](https://www.nba.com/pelicans/photos/new-orleans-pelicans-vs-los-angeles-lakers-photos-game-action-11-30-2025)
-
-
-### elige tu local de votación onpe (N/A, 30/11/2025 23:53 Lima)
-
-- **Elige tu local de votación: esta es la fecha límite para escoger el centro donde vas a votar en las Elecciones 2026**: [Link](https://www.infobae.com/peru/2025/11/30/elige-tu-local-de-votacion-esta-es-la-fecha-limite-para-escoger-el-centro-donde-vas-a-votar-en-las-elecciones-2026/)
-- **ONPE recuerda que se puede elegir el local de votación para 2026 hasta el 14 de diciembre**: [Link](https://canaln.pe/actualidad/onpe-hasta-14-diciembre-podra-elegir-su-local-votacion-n488617)
-- **Ica: más de 17 mil ciudadanos ya eligieron sus tres opciones de locales de votación**: [Link](https://diariocorreo.pe/edicion/ica/ica-mas-de-17-mil-ciudadanos-ya-eligieron-sus-tres-opciones-de-locales-de-votacion-noticia/)
-
-
-### cazzu en lima (N/A, 30/11/2025 23:53 Lima)
-
-- **Cazzu recibió una camiseta de Selección Peruana previo a su concierto en Lima**: [Link](https://rpp.pe/famosos/celebridades/cazzu-en-peru-cantante-recibio-camiseta-de-seleccion-peruana-previo-a-su-concierto-en-lima-noticia-1665946)
-- **Cazzu debuta en el cine y encenderá Lima con "Latinaje"**: [Link](https://www.apnoticias.pe/peru/andina/cazzu-debuta-en-el-cine-y-encendera-lima-con-latinaje-1472420)
-- **Cazzu en Chile 2025: Horarios, apertura de puertas y objetos prohibidos**: [Link](https://los40.cl/2025/11/27/cazzu-en-chile-2025-horarios-apertura-de-puertas-y-objetos-prohibidos/)
-
-
-### cruz azul (N/A, 30/11/2025 23:53 Lima)
-
-- **Cruz Azul ganó a Chivas y clasificó a semifinales de la Liga MX**: [Link](https://libero.pe/futbol-internacional/liga-mx/2025/11/29/cruz-azul-vs-chivas-de-guadalajara-en-vivo-gratis-cuartos-de-final-liguilla-liga-mx-via-canal-5-tudn-video-vilb-515417)
-- **Copa Intercontinental 2025: Flamengo ya conoce rivales y fechas de sus partidos**: [Link](https://peru21.pe/deportes/copa-intercontinental-2025-flamengo-ya-conoce-rivales-y-fechas-de-sus-partidos/)
-- **Liga MX: ¿Qué necesita cada equipo para avanzar a las semifinales?**: [Link](https://www.espn.com.pe/futbol/mexico/nota/_/id/16013113/liga-mx-que-necesita-equipo-avanzar-semifinales-america-chivas-tigres)
-
-
-### junior (N/A, 30/11/2025 23:53 Lima)
-
-- **Junior Hockey World Cup 2025: India edge closer to quarter-final spot with 17-0 win over Oman**: [Link](https://www.olympics.com/en/news/junior-hockey-world-cup-2025-india-vs-oman-match-report)
-- **From crowdfunding a team to impressing at Junior Men’s World Cup 2025, a different Hockey blooms for Switzerland**: [Link](https://sportstar.thehindu.com/hockey/fih-mens-junior-world-cup-2025-switzerland-journey-of-success-in-wc-swiss-crowdfunding/article70341385.ece)
-- **France Thrash South Korea, Australia Hold Off Bangladesh in Junior Hockey World Cup**: [Link](https://www.sentinelassam.com/sports-news/france-thrash-south-korea-australia-hold-off-bangladesh-in-junior-hockey-world-cup)
-
-
-### honduras (N/A, 30/11/2025 21:22 Lima)
-
-- **Honduras elige a un nuevo presidente en unas reñidas elecciones marcadas por las amenazas de Trump**: [Link](https://www.bbc.com/mundo/articles/c5yjx8yw950o)
-- **Observadores internacionales fueron expulsados de un centro de votación en Honduras por colectivos afines al partido oficialista**: [Link](https://www.infobae.com/america/america-latina/2025/12/01/observadores-internacionales-fueron-expulsados-de-un-centro-de-votacion-en-honduras-por-colectivos-afines-al-partido-oficialista/)
-- **Elecciones presidenciales en Honduras, 2025, en vivo: votaciones, resultados y más**: [Link](https://cnnespanol.cnn.com/latinoamerica/live-news/elecciones-presidenciales-honduras-2025-resultados-orix)
 
 
