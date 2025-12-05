@@ -1,3 +1,57 @@
+### costa verde cerrada (N/A, 05/12/2025 07:53 Lima)
+
+- **La Costa Verde estará cerrada este viernes 5 de diciembre por los Juegos Bolivarianos: fechas, horarios y desvíos**: [Link](https://www.infobae.com/peru/2025/12/03/la-costa-verde-estara-cerrada-este-viernes-5-de-diciembre-por-los-juegos-bolivarianos-fechas-horarios-y-desvios/)
+- **Costa Verde cierre HOY 3 de Diciembre: Consulta los HORARIOS y desvíos por los Juegos Bolivarianos**: [Link](https://elcomercio.pe/respuestas/cual/costa-verde-cierra-este-2-y-3-de-diciembre-consulta-los-horarios-y-desvios-por-los-juegos-bolivarianos-tdpe-noticia/)
+- **Costa Verde: a la 1 p. m. se reabre vía rápida, ¿qué otros cierres se vienen?**: [Link](https://andina.pe/agencia/noticia-costa-verde-a-1-p-m-se-reabre-via-rapida-otros-cierres-se-vienen-1053773.aspx)
+
+
+### temperatura lima (N/A, 05/12/2025 07:53 Lima)
+
+- **Toda la costa peruana enfrentará noches frías y descensos de temperatura la siguiente semana, según Senamhi**: [Link](https://www.infobae.com/peru/2025/12/05/toda-la-costa-peruana-enfrentara-noches-frias-y-descensos-de-temperatura-segun-senamhi/)
+- **A pocos días del verano, se activa una alerta naranja por bajas temperaturas en 13 regiones del Perú**: [Link](https://rpp.pe/peru/actualidad/senamhi-emitio-alerta-naranja-por-bajas-temperaturas-en-13-regiones-del-peru-noticia-1666480)
+- **Temperatura nocturna en zonas altas de la sierra sur llegará a los 10 grados menos cero**: [Link](https://andina.pe/agencia/noticia-temperatura-nocturna-zonas-altas-de-sierra-sur-llegara-a-los-10-grados-menos-cero-1054562.aspx)
+
+
+### clima lima (N/A, 05/12/2025 07:53 Lima)
+
+- **SENAMHI: Pronóstico del clima hoy viernes 05 de diciembre 2025**: [Link](https://rpp.pe/peru/actualidad/senamhi-pronostico-del-clima-hoy-viernes-05-de-diciembre-2025-noticia-1666640)
+- **Senamhi, pronóstico del clima HOY en Lima: temperaturas mínimas y máximas para este viernes 5 de diciembre de 2025**: [Link](https://www.expreso.com.pe/actualidad/senamhi-pronostico-del-clima-hoy-en-lima-temperaturas-minimas-y-maximas-para-este-viernes-5-de-diciembre-de-2025-invierno-verano-otono-primavera-soleado-calor-humedad-neblina-tiempo-noticia/1244879/)
+- **Senamhi advierte de madrugadas calurosas: temperatura llegaría a los 28 grados**: [Link](https://latinanoticias.pe/lima/senamhi-advierte-de-madrugadas-calurosas-temperatura-llegaria-a-los-28-grados_20251202/)
+
+
+### kick (N/A, 05/12/2025 07:53 Lima)
+
+- **Leinster Kick Off Champions Cup Campaign**: [Link](https://www.midlands103.com/news/sports/leinster-kick-off-champions-cup-campaign/)
+- **McCarthy Returns From Injury For Leinster’s Champions Cup Opener**: [Link](https://www.irishrugby.ie/2025/12/04/mccarthy-returns-from-injury-for-leinsters-champions-cup-opener/)
+- **Tickets for Leinster’s Champions Cup clash with Harlequins prove hard to shift**: [Link](https://www.independent.ie/sport/rugby/champions-cup/tickets-for-leinsters-champions-cup-clash-with-harlequins-prove-hard-to-shift/a24269357.html)
+
+
+### canva (N/A, 05/12/2025 07:53 Lima)
+
+- **Another Cloudflare outage takes down websites including LinkedIn and Zoom**: [Link](https://www.theguardian.com/technology/2025/dec/05/another-cloudflare-outage-takes-down-websites-linkedin-zoom)
+- **Second Outage Within Three Weeks Hits CFD Broker and Prop Firms During Cloudflare “Maintenance”**: [Link](https://www.financemagnates.com/forex/second-outage-hits-cfd-broker-and-prop-firms-amid-cloudflare-maintenance/)
+- **[Upbit] Notice of service access delays due to Cloudflare service outage**: [Link](https://bloomingbit.io/en/feed/news/101933)
+
+
+### betano (N/A, 05/12/2025 07:53 Lima)
+
+- **Betano Casino New Customer Sign Up Bonus December 2025: Claim 100 Free Spins**: [Link](https://bookies.com/uk/news/betano-casino-new-customer-sign-up-bonus-4th-december-2025)
+
+
+### bet365 (N/A, 05/12/2025 07:53 Lima)
+
+- **bet365 Missouri bonus code NYPBET: Bet $10, get $365 bonus for college football championships**: [Link](https://nypost.com/2025/12/05/betting/bet365-missouri-bonus-code-nypbet-bet-10-get-365-bonus-for-college-football-championships/)
+- **Why Circa Became One of Missouri’s First Sportsbooks**: [Link](https://deadspin.com/legal-betting/why-circa-became-one-fmissouris-first-sportsbooks/)
+- **Missouri Sportsbook Promos: Get $4,715 in MO Sports Betting Bonuses**: [Link](https://www.rotowire.com/news/missouri-sportsbook-promos-get-4715-in-mo-sports-betting-bonuses-100036)
+
+
+### x (N/A, 05/12/2025 07:53 Lima)
+
+- **Elon Musk’s X Hit With $140 Million Fine in Europe**: [Link](https://www.nytimes.com/2025/12/05/technology/eu-elon-musk-x-140-million-fine.html)
+- **Elon Musk’s X fined $140 million by European Commission over 'deceptive' blue checkmark and lack of transparency**: [Link](https://www.cnbc.com/2025/12/05/elon-musks-x-fined-140-million-by-european-commission.html)
+- **Elon Musk's X fined €120m over 'deceptive' blue ticks**: [Link](https://www.bbc.com/news/articles/c4g9kejzvw0o)
+
+
 ### superluna fría (N/A, 05/12/2025 03:34 Lima)
 
 - **La luna llena de diciembre es la última superluna del año**: [Link](https://cnnespanol.cnn.com/2025/12/03/clima-y-tiempo/superluna-diciembre-2025-ultima-ano-trax)
@@ -969,61 +1023,5 @@
 - **Rayo Vallecano - Valencia en directo: LaLiga EA Sports hoy, en vivo**: [Link](https://as.com/futbol/primera/rayo-vallecano-valencia-en-directo-laliga-ea-sports-hoy-en-vivo-f202512-d/)
 - **Rayo Vallecano vs Valencia: Apuestas, Pronóstico y Cuotas**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2025/noviembre/pronostico-rayo-vallecano-vs-valencia-01-12-25)
 - **Íñigo Pérez: "Carlos Corberán es uno de los mejores entrenadores de LALIGA"**: [Link](https://www.eldesmarque.com/futbol/rayo-vallecano/20251201/inigo-perez-elogia-carlos-corberan-hugo-duro-fran-perez_300822233.html)
-
-
-### rayo vallecano (N/A, 01/12/2025 15:26 Lima)
-
-- **Preview: Rayo Vallecano vs Valencia - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/valencia/preview/rayo-vallecano-vs-valencia-prediction-team-news-lineups_586739.html)
-- **Rayo Vallecano vs Valencia Prediction, 12/1/2025 Soccer Pick, Tips and Odds**: [Link](https://www.docsports.com/free-picks/soccer/2025/rayo-vallecano-vs-valencia-prediction-12-1-2025-soccer-pick-tips-and-odds.html)
-- **How to watch today's Rayo Vallecano vs Valencia La Liga game: Live stream, TV channel, and start time**: [Link](https://www.goal.com/en-us/news/watch-rayo-vallecano-vs-valencia-la-liga-game-live-stream-tv-channel-start-time/blt0abc12b52ddc771d)
-
-
-### fenerbahçe vs. galatasaray (N/A, 01/12/2025 15:26 Lima)
-
-- **Domenico Tedesco interview: ‘Everywhere you go, you have Fenerbahce fans. You feel this electricity’**: [Link](https://www.nytimes.com/athletic/6842097/2025/11/30/domenico-tedesco-interview-fenerbahce/)
-- **Fenerbahce 1-1 Galatasaray: Jhon Duran saves Fener at the death**: [Link](https://www.nbcsports.com/soccer/news/how-to-watch-fenerbahce-vs-galatasaray-live-stream-link-tv-channel-score)
-- **Tedesco says Fener has found its rhythm**: [Link](https://www.beinsports.com/en-nz/football/sper-lig/articles-video/tedesco-says-fener-has-found-its-rhythm-2025-11-30)
-
-
-### max verstappen (N/A, 01/12/2025 15:26 Lima)
-
-- **Verstappen wins Qatar GP as title battle goes to Abu Dhabi with Piastri second and Norris only P4**: [Link](https://www.formula1.com/en/latest/article/verstappen-wins-qatar-gp-as-title-battle-goes-to-abu-dhabi-with-piastri.5KlYT7q8OcrJ7AnMALjkxJ)
-- **'Qatar GP shows anything can happen in three-way title showdown'**: [Link](https://www.bbc.com/sport/formula1/articles/cz6817wyvgzo)
-- **F1 - Hannah Schmitz reveals the behind-the-scenes of Red Bull's strategy in Qatar**: [Link](https://www.autohebdof1.com/news/f1/hannah-schmitz-behind-the-scenes-strategy-red-bull.html)
-
-
-### bologna (N/A, 01/12/2025 15:26 Lima)
-
-- **IL SOLE 24 ORE * SCUOLA: «BERNINI: IL CORSO UNIVERSITARIO PER MILITARI SI FARÀ**: [Link](https://www.agenziagiornalisticaopinione.it/opinionmix/sole24/scuolasole24/il-sole-24-ore-scuola-bernini-il-corso-universitario-per-militari-si-fara/)
-- **Quanto servirebbe un po’ di filosofia morale in tempi di guerra (di G. Culicchia)**: [Link](https://www.huffingtonpost.it/rubriche/rumore-bianco/2025/12/01/news/quanto_servirebbe_un_po_di_filosofia_morale_in_tempi_di_guerra-20635570/)
-- **Esercito: De Maria (Pd), 'inaccettabile intervento Meloni su università di Bologna'**: [Link](https://www.iltempo.it/adnkronos/2025/12/01/news/esercito-de-maria-pd-inaccettabile-intervento-meloni-su-universita-di-bologna--45226829/)
-
-
-### qatar vs (N/A, 01/12/2025 15:26 Lima)
-
-- **Palestine beats Libya to qualify for Arab Cup, ‘bringing joy’ to its people**: [Link](https://www.presstv.ir/Detail/2025/11/26/759517/Palestine-beats-Libya-to-qualify-for-Arab-Cup,-%E2%80%98bring-joy%E2%80%99-to-its-people)
-- **Qatar National Football Team vs Palestine National Football Team Lineups OUT**: [Link](https://www.sportsdunia.com/football-news/qatar-vs-palestine-lineups-confirmed-1st-december-2025)
-- **Palestine wins opening match vs Qatar at FIFA Arab Cup 2025™**: [Link](https://www.iloveqatar.net/news/sports/palestine-wins-opening-match-vs-qatar-fifa-arab-cup-2025)
-
-
-### fenerbahçe - galatasaray (N/A, 01/12/2025 11:35 Lima)
-
-- **Süper Lig'in zirvesinde dev derbi: Fenerbahçe ve Galatasaray'ın ilk 11'leri**: [Link](https://www.ntv.com.tr/sporskor/super-ligin-zirvesinde-dev-derbi-fenerbahce-ve-galatasarayin-ilk-11leri-1701085)
-- **Kadıköy'de dikkat çeken görüntü: Galatasaraylı futbolcular şaşkınlığını gizleyemedi**: [Link](https://www.yenisafak.com/foto-galeri/spor/kadikoyde-dikkat-ceken-goruntu-galatasarayli-futbolcular-saskinligini-gizleyemedi-4774302)
-- **Mert Hakan Yandaş: Dünyanın en büyük derbilerinden biri**: [Link](https://www.haberturk.com/mert-hakan-yandas-dunyanin-en-buyuk-derbilerinden-biri-3842121-spor)
-
-
-### grupo frontera peru (N/A, 01/12/2025 11:35 Lima)
-
-- **Grupo Frontera confirma concierto en Perú: Fecha y lugar**: [Link](https://www.americatv.com.pe/noticias/espectaculos/grupo-frontera-peru-fecha-lugar-y-entradas-concierto-n513505)
-- **Entradas Grupo Frontera en Perú 2026: precios, fecha y a qué hora inicia la venta de entradas en Teleticket**: [Link](https://larepublica.pe/entretenimiento/2025/12/01/entradas-grupo-frontera-en-peru-2026-precios-fecha-y-a-que-hora-inicia-la-venta-de-entradas-en-teleticket-92311)
-- **Grupo Frontera confirma concierto en Perú: Fecha oficial, venta de entradas y todo sobre su gira**: [Link](https://cclconectados.com/grupo-frontera-en-peru-fecha-oficial-de-concierto-venta-de-entradas-en-teleticket-y-todo-sobre-su-gira-mundial/)
-
-
-### mef (N/A, 01/12/2025 11:35 Lima)
-
-- **Perú y Hong Kong avanzan hacia firma de un acuerdo de inversiones**: [Link](https://elperuano.pe/noticia/284084-peru-y-hong-kong-avanzan-hacia-firma-de-un-acuerdo-de-inversiones)
-- **Perú avanza hacia un Acuerdo de Inversiones con Hong Kong que abrirá la puerta a capital asiático desde 2026**: [Link](https://elcomercio.pe/economia/peru-avanza-hacia-un-acuerdo-de-inversiones-con-hong-kong-que-abrira-la-puerta-a-capital-asiatico-desde-2026-mfe-noticia/)
-- **Perú y Hong Kong cierran ronda de negociaciones y alistan firma de nuevo acuerdo de inversiones**: [Link](https://larepublica.pe/economia/2025/12/01/peru-y-hong-kong-cierran-ronda-de-negociaciones-y-alistan-firma-de-nuevo-acuerdo-de-inversiones-hnews-84921)
 
 
