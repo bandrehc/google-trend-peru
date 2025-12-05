@@ -1,3 +1,71 @@
+### mallorca vs (N/A, 05/12/2025 15:28 Lima)
+
+- **odds to score a goal on December 5**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/12/05/vedat-muriqi-soccer-player-props-12-5-2025/87617911007/)
+- **Real Oviedo vs Mallorca Prediction and Betting Tips | December 5th 2025**: [Link](https://www.sportskeeda.com/football/real-oviedo-vs-mallorca-prediction-betting-tips-december-5th-2025)
+- **PREVIEW | Real Oviedo vs Mallorca - team news, lineups, predictions**: [Link](https://www.playmakerstats.com/news/preview-real-oviedo-vs-mallorca-team-news-lineups-predictions/993346)
+
+
+### mallorca fc (N/A, 05/12/2025 15:28 Lima)
+
+- **Real Oviedo recibe a Mallorca en busca de salir del fondo de LaLiga**: [Link](https://www.espn.com.pe/futbol/espana/nota/_/id/16035234/real-viedo-vs-mallorca-laliga-fecha-15-equipo-fecha-hora-y-tv-en-vivo)
+- **LaLiga EA Sports: Real Oviedo busca salir del último lugar ante Mallorca**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-real-oviedo-busca-salir-del-ultimo-lugar-ante-mallorca-noticia-1666521)
+- **Pronóstico Oviedo vs. Mallorca: Finalísima**: [Link](https://gainblers.com/pe/pronosticos/futbol/espana/liga-primera-division/pronostico-oviedo-mallorca-05-12-2025/)
+
+
+### lille (N/A, 05/12/2025 15:28 Lima)
+
+- **Where Can I Watch: Lille vs. Marseille On beIN SPORTS**: [Link](https://www.beinsports.com/en-us/soccer/ligue-1/articles/where-can-i-watch-lille-vs-marseille-on-bein-sports-2025-12-05)
+- **Lille vs Marseille Prediction, 12/5/2025 Soccer Pick, Tips and Odds**: [Link](https://www.docsports.com/free-picks/soccer/2025/lille-vs-marseille-prediction-12-5-2025-soccer-pick-tips-and-odds.html)
+- **Ligue 1 Predictions | Round 15: Lille host Marseille as OGC Nice bid to exit crisis**: [Link](https://www.getfootballnewsfrance.com/2025/ligue-1-predictions-round-15-lille-host-marseille-as-ogc-nice-bid-to-exit-crisis/)
+
+
+### lille vs (N/A, 05/12/2025 15:28 Lima)
+
+- **Lille-OM : les compositions officielles**: [Link](https://www.footmercato.net/a5666899357582296184-lille-om-les-compositions-officielles)
+- **Comment regarder LOSC - Olympique de Marseille ? Date, heure, streaming et comment regarder la Ligue 1 McDonald’s sur Ligue 1+, disponible sur DAZN​**: [Link](https://www.dazn.com/fr-FR/news/football/comment-regarder-losc-olympique-de-marseille-date-heure-streaming-et-comment-regarder-la-ligue-1-mcdonalds-sur-ligue-1-disponible-sur-dazn/vjuzvk6k4muu1ej94e3b4ltk0)
+- **PRONOS PARIS RMC Le pari foot de Jérôme Rothen du 5 décembre – Ligue 1**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-foot-de-jerome-rothen-du-5-decembre-ligue-1_AN-202512050721.html)
+
+
+### mainz (N/A, 05/12/2025 15:28 Lima)
+
+- **Das waren alle Trainer von Mainz 05 seit Jürgen Klopp**: [Link](https://www.mittelhessen.de/sport/fussball/fussball-bundesliga/das-waren-alle-trainer-von-mainz-05-seit-juergen-klopp-5215303)
+- **Jetzt live: Geht ein Ruck durchs Mainzer Team nach der Trainerentlassung?**: [Link](https://sport.ch/topnews/1553643/jetzt-live-geht-ein-ruck-durchs-mainzer-team-nach-der-trainerentlassung)
+- **Castrop, Netz und Reitz kehren in Startelf zurück**: [Link](https://www.borussia.de/news/castrop-netz-und-reitz-kehren-in-startelf-zurueck)
+
+
+### mónaco vs (N/A, 05/12/2025 15:28 Lima)
+
+- **Brest - Monaco live**: [Link](https://www.marca.com/en/soccer/ligue-1/brest-monaco/2025/12/05/01_0109_20251205_862_146-live.html)
+- **Romain Del Castillo vs. AS Monaco – Player props & odds to score a goal on December 5**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/12/05/romain-del-castillo-soccer-player-props-12-5-2025/87617905007/)
+- **Sébastien Pocognoli: "Show the same desire as against Paris"**: [Link](https://onefootball.com/en/news/sebastien-pocognoli-show-the-same-desire-as-against-paris-42042668)
+
+
+### benfica - sporting lisboa (N/A, 05/12/2025 15:28 Lima)
+
+Sin noticias relacionadas disponibles.
+
+
+### cabo verde (N/A, 05/12/2025 15:28 Lima)
+
+- **Adversário do Uruguai na Copa do Mundo, Cabo Verde tem clube inspirado em time gaúcho**: [Link](https://gauchazh.clicrbs.com.br/zona-sul/esportes/noticia/2025/12/adversario-do-uruguai-na-copa-do-mundo-cabo-verde-tem-clube-inspirado-em-time-gaucho-cmit8vo350avr01jzhre11is4.html)
+- **Mundial 2026: Cabo Verde no grupo H**: [Link](https://expressodasilhas.cv/desporto/2025/12/05/mundial-2026-cabo-verde-no-grupo-h/100298)
+- **Portugal e não só: os adversários que o capitão de Cabo Verde quer no Mundial**: [Link](https://sapo.pt/artigo/portugal-e-nao-so-os-adversarios-que-o-capitao-de-cabo-verde-quer-no-mundial-692eb7fdd79d44a5cd75c7bb)
+
+
+### curacao (N/A, 05/12/2025 15:28 Lima)
+
+- **Curaçao inicia nueva etapa comercial en el Perú con capacitación a agentes de viajes**: [Link](https://portaldeturismo.pe/curacao-inicia-nueva-etapa-comercial-en-el-peru-con-capacitacion-a-agentes-de-viajes/)
+- **A partir de diciembre, habrá vuelo directo entre Lima y Curaçao: ¿Cuántas veces operará a la semana?**: [Link](https://rpp.pe/economia/economia/latam-airlines-anuncia-vuelo-directo-entre-lima-y-curacao-desde-diciembre-cuantas-veces-operara-a-la-semana-noticia-1666433)
+- **CURAZAO ESPERA RECIBIR 12 MIL TURISTAS PERUANOS EN 2026**: [Link](https://tnews.com.pe/curazao-espera-recibir-12-mil-turistas-peruanos-en-2026/)
+
+
+### mainz 05 - mönchengladbach (N/A, 05/12/2025 15:28 Lima)
+
+- **Jetzt live: Geht ein Ruck durchs Mainzer Team nach der Trainerentlassung?**: [Link](https://sport.ch/topnews/1553643/jetzt-live-geht-ein-ruck-durchs-mainzer-team-nach-der-trainerentlassung)
+- **Castrop, Netz und Reitz kehren in Startelf zurück**: [Link](https://www.borussia.de/news/castrop-netz-und-reitz-kehren-in-startelf-zurueck)
+- **Überraschender Torwartwechsel in Mainz**: [Link](https://www.fussballtransfers.com/a6056073506233607361-ueberraschender-torwartwechsel-in-mainz)
+
+
 ### galatasaray - samsunspor (N/A, 05/12/2025 11:32 Lima)
 
 - **Canlı Anlatım: Galatasaray-Samsunspor maçı**: [Link](https://www.ntv.com.tr/sporskor/canli-anlatim-galatasaray-samsunspor-maci-1701773)
@@ -955,75 +1023,5 @@
 - **Jesús Barco reafirma que quiere casarse con Melissa Klug: “Eso nunca ha estado en duda”**: [Link](https://elcomercio.pe/tvmas/farandula/jesus-barco-reafirma-que-quiere-casarse-con-melissa-klug-eso-nunca-ha-estado-en-duda-ultimas-noticia/)
 - **¿Volvieron? Filtran beso entre Melissa Klug y Jesús Barco antes de entrevista**: [Link](https://peru21.pe/espectaculos/volvieron-filtran-beso-entre-melissa-klug-y-jesus-barco-antes-de-entrevista/)
 - **Melissa Klug volvió con Jesús Barco, Samantha contra Álvaro**: [Link](https://www.americatv.com.pe/mas-espectaculos/melissa-klug-perdono-jesus-samantha-respondio-alvaro-y-mas-noticia-161657)
-
-
-### lakers - suns (N/A, 01/12/2025 23:35 Lima)
-
-- **Phoenix Suns vs Los Angeles Lakers LIVE Score Updates in NBA Game**: [Link](https://www.vavel.com/en-us/nba/2025/12/02/1243226-suns-vs-lakers-live-score-nba.html)
-- **Live Updates: Joel Embiid returns to the lineup**: [Link](https://www.nba.com/news/live-updates-moments-and-stats-from-a-9-game-night-in-the-nba)
-- **Duane Rankin: Suns injury update at Lakers: Grayson …**: [Link](https://www.hoopshype.com/story/sports/nba/rumors/2025/12/01/duane-rankin-suns-injury-update-at-lakers-grayson/87560103007/)
-
-
-### nuggets - mavericks (N/A, 01/12/2025 23:35 Lima)
-
-- **Mavericks look for Cooper Flagg’s hot play to continue vs. Nuggets**: [Link](https://www.thesportsleader.com/2025/11/30/mavericks-look-for-cooper-flaggs-hot-play-to-continue-vs-nuggets/)
-- **Denver plays Dallas, aims to end home slide**: [Link](https://abcnews.go.com/Sports/wireStory/denver-plays-dallas-aims-end-home-slide-127976071)
-- **Mavericks vs Nuggets Best NBA Betting Picks, Prediction and Prop Bets for December 1**: [Link](https://www.betus.com.pa/nba/picks/mavericks-vs-nuggets-best-nba-betting-picks-prediction-and-prop-bets-for-12-01-2025-dono/)
-
-
-### billie eilish (N/A, 01/12/2025 23:35 Lima)
-
-- **Billie Eilish swaps her signature baggy clothes for form-fitting equestrian attire**: [Link](https://www.yahoo.com/entertainment/celebrity/articles/billie-eilish-swaps-her-signature-170543187.html)
-- **Billie Eilish Unrecognizable In Skintight Look Amid Drama**: [Link](https://theblast.com/749399/billie-eilish-mystery-look-elon-musk-feud/)
-- **Billie Eilish looks unrecognizable as she ditches signature baggy look for skintight equestrian gear**: [Link](https://www.dailymail.co.uk/tvshowbiz/article-15340635/billie-eilish-unrecognizable-equestrian.html)
-
-
-### win (N/A, 01/12/2025 20:59 Lima)
-
-- **Two starts in, Shedeur Sanders understands the fragility of NFL life**: [Link](https://andscape.com/features/cleveland-browns-shedeur-sanders-nfl/)
-- **Shedeur Sanders deserves more time. The rest of the Browns’ operation does not - The Athletic**: [Link](https://www.nytimes.com/athletic/6850509/2025/11/30/shedeur-sanders-starter-browns-team-failures/)
-- **49ers’ Brock Purdy, swagger intact, begins beatdown of Browns by barking at Myles Garrett**: [Link](https://www.sfchronicle.com/sports/49ers/article/49ers-purdy-begins-beatdown-browns-barking-21213935.php)
-
-
-### medellín - américa (N/A, 01/12/2025 20:59 Lima)
-
-- **América vs Medellín: Así serán las alineaciones titulares en la fecha 3 de cuadrangulares**: [Link](https://www.espn.com.ar/futbol/colombia/nota/_/id/16014990/independiente-medellin-vs-america-alineaciones-equipos-titulares-fecha-4-cuadrangulares)
-- **Transmisión EN VIVO del Medellín vs América hoy: cómo mirar el partido por TV o streaming**: [Link](https://www.365scores.com/es/news/transmision-medellin-vs-america-semis/)
-- **SIGUE, Medellín-América de Cali EN VIVO: transmisión por Win Sports**: [Link](https://elcomercio.pe/deporte-total/colombia/medellin-vs-america-de-cali-en-vivo-online-gratis-via-win-sports-futbol-libre-tv-horarios-canales-tv-y-donde-ver-partido-por-liga-betplay-video-noticia/)
-
-
-### alianza vs cristal (N/A, 01/12/2025 20:59 Lima)
-
-- **Retorna un argentino: Alianza Lima y las sorpresas en su once titular para enfrentar a Sporting Cristal**: [Link](https://rpp.pe/futbol/descentralizado/alianza-lima-vs-sporting-cristal-el-once-titular-de-nestor-gorosito-para-semifinal-ida-playoffs-liga-1-noticia-1666109)
-- **A qué hora juega Alianza Lima vs Sporting Cristal: partido por semifinales ida de los ‘play-offs’ de la Liga 1 2025**: [Link](https://www.infobae.com/peru/deportes/2025/12/01/a-que-hora-juega-alianza-lima-vs-sporting-cristal-partido-semifinales-ida-playoffs-liga-1-2025-horario/)
-- **Cazonatti tiene a Alianza Lima entre ceja y ceja: su análisis de los play-offs y por qué es clave el cupo de Perú 2**: [Link](https://depor.com/futbol-peruano/descentralizado/sporting-cristal-vs-alianza-lima-gustavo-cazonatti-analisis-de-play-offs-y-que-esperar-del-clasico-en-disputa-por-peru-2-en-copa-libertadores-2026-liga-1-noticia/)
-
-
-### racing - tigre (N/A, 01/12/2025 20:59 Lima)
-
-- **Racing vs. Tigre, hoy EN VIVO por el Torneo Clausura: horario, cómo ver y formaciones**: [Link](https://www.ole.com.ar/futbol-primera/racing-vs-tigre-partido-cuartos-final-torneo-clausura-2025-minuto-minuto-resumen_0_bf5tvRcEkj.html)
-- **Semifinales Liga Argentina 2025: cuándo se juegan, cruces y fecha**: [Link](https://www.tycsports.com/liga-profesional-de-futbol/semifinales-liga-argentina-2025-cuando-se-juegan-fecha-y-cruces-id701086.html)
-- **Tras la clasificación de Gimnasia y a la espera de Racing-Tigre, así quedó el cuadro de semifinales del Torneo Clausura**: [Link](https://www.infobae.com/deportes/2025/12/01/tras-la-clasificacion-de-gimnasia-y-a-la-espera-de-racing-tigre-asi-quedo-el-cuadro-de-semifinales-del-torneo-clausura/)
-
-
-### sismo hoy (N/A, 01/12/2025 20:59 Lima)
-
-- **Temblor en Perú, hoy 1 de diciembre: magnitud y epicentro del sismo según IGP**: [Link](https://rpp.pe/lima/desastres-naturales/temblor-en-peru-hoy-30-de-noviembre-magnitud-y-epicentro-del-sismo-segun-igp-live-3070)
-- **Dos temblores sacuden el Perú: sismo de 5.3 en Huánuco y otro de 3.7 en Ica alarman a la población**: [Link](https://peru21.pe/peru/sismo-de-53-en-huanuco-y-otro-de-37-en-ica-alarma-la-poblacion/)
-- **Temblor HOY, 1 de diciembre, según IGP: ¿de qué magnitud fue el último sismo?**: [Link](https://larepublica.pe/sociedad/2025/12/01/temblor-en-peru-hoy-lunes-1-de-diciembre-del-2025-magnitud-epicentro-y-mas-sobre-sismos-recientes-segun-igp-ultimo-sismo-en-lima-ica-callao-y-otras-provincias-atmp-2447700)
-
-
-### audax italiano (N/A, 01/12/2025 20:59 Lima)
-
-- **¡Es hoy! El crucial partido que se juega para el milagro de Colo Colo en la Copa Sudamericana**: [Link](https://dalealbo.cl/colocolo/es-hoy-el-crucial-partido-que-se-juega-para-el-milagro-de-colo-colo-en-la-copa-sudamericana)
-- **Eduardo Vargas anota el gol que clasifica a Audax Italiano a la Sudamericana y deja a Colo Colo con un pie y medio afuera**: [Link](https://www.latercera.com/el-deportivo/noticia/eduardo-vargas-anota-el-gol-que-clasifica-a-audax-italiano-a-la-sudamericana-y-deja-a-colo-colo-con-un-pie-y-medio-afuera/)
-- **A. Italiano y Ñublense juegan en La Florida con todos los colocolinos pendientes del resultado**: [Link](https://onefootball.com/pt-br/noticias/a-italiano-y-nublense-juegan-en-la-florida-con-todos-los-colocolinos-pendientes-del-resultado-42029778)
-
-
-### racing (N/A, 01/12/2025 20:59 Lima)
-
-- **The NYRA Jockey Walkout is Ridiculous**: [Link](https://pastthewire.com/the-nyra-jockey-walkout-is-ridiculous/)
-- **View From The Eighth Pole: Horse Racing Has Weightier Issues Than Clerk Of Scales Duties**: [Link](https://paulickreport.com/news/ray-s-paddock/view-from-the-eighth-pole-horse-racing-has-weightier-issues-than-clerk-of-scales-duties)
-- **Jockeys Agree to Resume Riding at Aqueduct**: [Link](https://www.bloodhorse.com/horse-racing/articles/288920/jockeys-agree-to-resume-riding-at-aqueduct)
 
 
