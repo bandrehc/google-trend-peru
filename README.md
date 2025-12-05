@@ -1,3 +1,52 @@
+### galatasaray - samsunspor (N/A, 05/12/2025 11:32 Lima)
+
+- **Canlı Anlatım: Galatasaray-Samsunspor maçı**: [Link](https://www.ntv.com.tr/sporskor/canli-anlatim-galatasaray-samsunspor-maci-1701773)
+- **Süper Lig puan durumu | 5 Aralık Süper Lig puan durumu tablosu nasıl?**: [Link](https://gdh.digital/haber/super-lig-puan-durumu-5-aralik-super-lig-puan-durumu-tablosu-nasil-zvp9bovm9ll)
+- **Futbol liglerinde haftanın maç programı**: [Link](https://www.24saatgazetesi.com/futbol-liglerinde-haftanin-mac-programi)
+
+
+### mef (N/A, 05/12/2025 11:32 Lima)
+
+- **Bono de S/100 se pagará en enero de 2026, pero requiere cumplir dos condiciones**: [Link](https://www.infobae.com/peru/2025/12/04/bono-de-s100-se-paga-en-enero-de-2026-pero-requiere-cumplir-dos-condiciones/)
+- **Ley 32514: Ley de equilibrio financiero del presupuesto del sector público 2026**: [Link](https://lpderecho.pe/ley-32514-ley-equilibrio-financiero-presupuesto-sector-publico-2026/)
+- **Tropezar de nuevo, por Alejandra Costa | OPINION**: [Link](https://elcomercio.pe/opinion/columnistas/tropezar-de-nuevo-por-alejandra-costa-noticia/)
+
+
+### marruecos vs (N/A, 05/12/2025 11:32 Lima)
+
+- **Omán vs Marruecos EN VIVO, minuto a minuto en Copa Árabe FIFA 2025**: [Link](https://www.vavel.com/mx/futbol-internacional/2025/12/05/1243671-oman-vs-marruecos-en-vivo-copa-arabe.html)
+- **Selección marroquí se juega la clasificación: Sektioui analiza bajas, presión y ambición**: [Link](https://es.rue20.com/2025/12/05/seleccion-marroqui-se-juega-la-clasificacion-sektioui-analiza-bajas-presion-y-ambicion/)
+- **Copa Árabe: El partido contra Omán, decisivo para la clasificación a cuartos de final (Tarik Sektioui)**: [Link](https://ar.yabiladi.com/articles/details/182773/copa-arabe-partido-contra-oman.html)
+
+
+### warner bros (N/A, 05/12/2025 11:32 Lima)
+
+- **Anonymous A-Listers Lobby Congress Against Netflix-WBD Acquisition**: [Link](https://variety.com/2025/film/news/anonymous-filmmakers-netflix-wbd-open-letter-congress-1236600659/)
+- **Netflix to buy Warner Bros film and streaming businesses for $72bn**: [Link](https://www.bbc.com/news/articles/ce91x2jm5pjo)
+- **Paramount questions Warner Bros. Discovery on 'fairness and adequacy' of sale process: Read the full letter**: [Link](https://www.cnbc.com/2025/12/04/paramount-questions-warner-bros-discovery-sale-process-letter.html)
+
+
+### netflix compra warner (N/A, 05/12/2025 11:32 Lima)
+
+- **Netflix anuncia que llegó a un acuerdo para comprar Warner Bros. y HBO**: [Link](https://cnnespanol.cnn.com/2025/12/05/economia/netflix-comprar-warner-bros-y-hbo-trax)
+- **Netflix compra los estudios y activos de ‘streaming’ de Warner Bros, dueña de HBO, por 83.000 millones de dólares**: [Link](https://elpais.com/economia/2025-12-05/netflix-negocia-la-compra-de-los-estudios-y-activos-de-streaming-de-warner-bros-duena-de-hbo.html)
+- **Netflix compra Warner Bros, se queda con HBO y consuma uno de los movimientos más importantes de la...**: [Link](https://www.xataka.com/streaming/oficial-netflix-compra-warner-bros-consuma-uno-movimientos-importantes-historia-streaming)
+
+
+### jaguar gerry mcgovern (N/A, 05/12/2025 11:32 Lima)
+
+- **Gerry McGovern next high-profile exit from JLR**: [Link](https://www.autocarindia.com/industry/gerry-mcgovern-next-high-profile-exit-from-jlr-438546)
+- **JLR axes design boss Gerry McGovern**: [Link](https://www.autocar.co.uk/car-news/new-cars/jlr-axes-design-boss-gerry-mcgovern)
+- **The Guy Who Designed Norton's New Motorcycles Just Got Fired By Jaguar, Escorted Out**: [Link](https://www.rideapart.com/news/780754/gerry-mcgovern-fired-jaguar-norton-motorcycles-rebrand-designer/)
+
+
+### cary hiroyuki tagawa (N/A, 05/12/2025 11:32 Lima)
+
+- **James Bond & Mortal Kombat star dies aged 75 after suffering stroke**: [Link](https://www.the-sun.com/entertainment/15593602/cary-hiroyuki-tagawa-dead/)
+- **Cary-Hiroyuki Tagawa Dies: ‘Mortal Kombat, ‘Last Emperor’ & ‘Man In The High Castle’ Actor Was 75**: [Link](https://deadline.com/2025/12/cary-hiroyuki-tagawa-dead-mortal-kombat-actor-1236636368/)
+- **The deceased Shang Zong from Mortal Kombat turned out to be an Orthodox Russian Panteleimon**: [Link](https://eadaily.com/en/news/2025/12/05/the-deceased-shang-zong-from-mortal-kombat-turned-out-to-be-an-orthodox-russian-panteleimon)
+
+
 ### costa verde cerrada (N/A, 05/12/2025 07:53 Lima)
 
 - **La Costa Verde estará cerrada este viernes 5 de diciembre por los Juegos Bolivarianos: fechas, horarios y desvíos**: [Link](https://www.infobae.com/peru/2025/12/03/la-costa-verde-estara-cerrada-este-viernes-5-de-diciembre-por-los-juegos-bolivarianos-fechas-horarios-y-desvios/)
@@ -976,52 +1025,5 @@
 - **The NYRA Jockey Walkout is Ridiculous**: [Link](https://pastthewire.com/the-nyra-jockey-walkout-is-ridiculous/)
 - **View From The Eighth Pole: Horse Racing Has Weightier Issues Than Clerk Of Scales Duties**: [Link](https://paulickreport.com/news/ray-s-paddock/view-from-the-eighth-pole-horse-racing-has-weightier-issues-than-clerk-of-scales-duties)
 - **Jockeys Agree to Resume Riding at Aqueduct**: [Link](https://www.bloodhorse.com/horse-racing/articles/288920/jockeys-agree-to-resume-riding-at-aqueduct)
-
-
-### cremonese (N/A, 01/12/2025 20:59 Lima)
-
-- **Nicola "Vardy è un privilegio, Cremonese perfetta"**: [Link](https://www.mattinopadova.it/italia/nicola-vardy-e-un-privilegio-cremonese-perfetta-gf6hfayl)
-- **Orsolini: “Sono deluso, preso due gol da nostre ingenuità. Noi conosciamo la nostra forza e non sarà certo…”**: [Link](https://www.tuttobolognaweb.it/news/orsolini-sono-deluso-preso-due-gol-da-nostre-ingenuita-noi-conosciamo-la-nostra-forza-e-non-sara-certo/)
-- **Bologna, Italiano: "Partita nata male ma noi superficiali. Ci rifaremo"**: [Link](https://www.sportmediaset.mediaset.it/calcio/bologna-italiano-partita-nata-male-ma-noi-superficiali-ci-rifaremo_106655070-202502k.shtml)
-
-
-### excel de hombres infieles (N/A, 01/12/2025 20:59 Lima)
-
-- **¿Eliminaron ‘La lista negra de las girls’? Polémico registro de hombres infieles causó furor en redes sociales**: [Link](https://www.infobae.com/peru/2025/11/30/eliminaron-la-lista-negra-de-las-girls-polemico-registro-de-hombres-infieles-causo-furor-en-redes-sociales/)
-- **🔴🔵¡HAY PÁGINA WEB! 😱 Crean el REGISTRO NACIONAL DE INFIELES del Perú**: [Link](https://www.facebook.com/story.php?story_fbid=1290037136492675&id=100064592023543)
-- **“La lista de las girls”: publican base de datos de hombres infieles y se vuelve viral**: [Link](https://www.montevideo.com.uy/Tiempo-libre/-La-lista-de-las-girls--publican-base-de-datos-de-hombres-infieles-y-se-vuelve-viral-uc945100)
-
-
-### barracas central - gimnasia (N/A, 01/12/2025 15:26 Lima)
-
-- **Barracas Central y Gimnasia se enfrentan por un lugar en las semifinales del Torneo Clausura**: [Link](https://www.infobae.com/deportes/2025/12/01/barracas-central-y-gimnasia-se-enfrentaran-por-un-lugar-en-las-semifinales-del-torneo-clausura-hora-tv-y-formaciones/)
-- **???? Barracas Central Vs Gimnasia (LP) EN VIVO: minuto a minuto del Torneo Clausura**: [Link](https://www.corrienteshoy.com/deportes/barracas-central-vs-gimnasia-lp-en-vivo-minuto-a-minuto-del-torneo-clausura.htm)
-- **Gimnasia pretende ganar en la casa de Chiqui Tapia, ser semifinalista y jugar ante Estudiantes**: [Link](https://www.laplata1.com/2025-12-01/gimnasia-pretende-ganar-en-la-casa-de-chiqui-tapia-ser-semifinalista-y-jugar-ante-estudiantes-121372/)
-
-
-### arouca - braga (N/A, 01/12/2025 15:26 Lima)
-
-- **Arouca X Sp. Braga - AO MINUTO**: [Link](https://maisfutebol.iol.pt/jogo/aominuto/13828212)
-- **«Não estamos no lugar que queremos e merecemos»**: [Link](https://www.diarioaveiro.pt/2025/12/01/nao-estamos-no-lugar-que-queremos-e-merecemos/)
-- **Vasco Seabra pede paixão ao Arouca para recuperar da «bofetada» na Taça**: [Link](https://sapo.pt/artigo/vasco-seabra-pede-paixao-ao-arouca-para-recuperar-da-bofetada-na-taca-692c752d592b81ae9313d2bf)
-
-
-### bolonia vs (N/A, 01/12/2025 15:26 Lima)
-
-- **Un Bologna en racha positiva recibe a Cremonese**: [Link](https://www.espn.com.pe/futbol/italia/nota/_/id/16019572/bologna-vs-cremonese-fecha-13-seria-a-equipo-fecha-hora-y-tv-en-vivo)
-- **Serie A: Bologna quiere sumar para estirar su racha de victorias consecutivas**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-bologna-quiere-sumar-para-estirar-su-racha-de-victorias-consecutivas-noticia-1665951)
-- **Pronóstico Bologna - Cremonese. Serie A | 01/12/2025**: [Link](https://gainblers.com/pe/pronosticos/futbol/italia/serie-a/pronostico-bologna-cremonese-01-12-2025/)
-
-
-### braga vs (N/A, 01/12/2025 15:26 Lima)
-
-- **Preview: Arouca vs Braga - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/arouca/preview/arouca-vs-braga-prediction-team-news-lineups_586759.html)
-
-
-### rayo vallecano - valencia c. f. (N/A, 01/12/2025 15:26 Lima)
-
-- **Rayo Vallecano - Valencia en directo: LaLiga EA Sports hoy, en vivo**: [Link](https://as.com/futbol/primera/rayo-vallecano-valencia-en-directo-laliga-ea-sports-hoy-en-vivo-f202512-d/)
-- **Rayo Vallecano vs Valencia: Apuestas, Pronóstico y Cuotas**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2025/noviembre/pronostico-rayo-vallecano-vs-valencia-01-12-25)
-- **Íñigo Pérez: "Carlos Corberán es uno de los mejores entrenadores de LALIGA"**: [Link](https://www.eldesmarque.com/futbol/rayo-vallecano/20251201/inigo-perez-elogia-carlos-corberan-hugo-duro-fran-perez_300822233.html)
 
 
