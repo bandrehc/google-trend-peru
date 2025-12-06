@@ -1,3 +1,66 @@
+### villarreal - getafe (N/A, 06/12/2025 07:48 Lima)
+
+- **Apuestas y Pronóstico del Villarreal vs Getafe 06/12/25**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/2025/diciembre/pronostico-villarreal-vs-getafe-06-12-25)
+- **El duelo de la ambición en la Cerámica**: [Link](https://www.epe.es/es/madrid/20251206/duelo-ambicion-ceramica-124504898)
+- **Marcelino: "No somos candidatos al título"**: [Link](https://www.ondacero.es/emisoras/comunidad-valenciana/castellon/deportes/marcelino-somos-candidatos-titulo_202512056932d8246e5e5012dcdba2a2.html)
+
+
+### brighton vs. aston villa (N/A, 06/12/2025 07:48 Lima)
+
+- **Brighton undermined by unfamiliar fragility to ruin Lewis Dunk’s landmark night - The Athletic**: [Link](https://www.nytimes.com/athletic/6857999/2025/12/04/brighton-dunk-hurzeler-euvrard-villa/)
+- **Unai Emery goes viral for hilarious 'coat throw' celebration as Aston Villa pull off incredible comeback in Brighton win**: [Link](https://tribuna.com/en/blogs/unai-emery-goes-viral-for-hilarious-coat-throw-celebration-a/)
+- **Analysis: Rare home defeat despite bright start**: [Link](https://www.bbc.com/sport/football/articles/cwyl6d1y29yo)
+
+
+### arsenal vs. brentford (N/A, 06/12/2025 07:48 Lima)
+
+- **Odegaard on his return, Madueke and Brentford | Interview | News**: [Link](https://www.arsenal.com/news/odegaard-his-return-madueke-and-brentford)
+- **Gunners stay on target, but Slot's machine jams again vs Sunderland**: [Link](https://www.chinadaily.com.cn/a/202512/05/WS693232e6a310d6866eb2cff2.html)
+- **Merino strikes again to extend Arsenal's Premier League lead**: [Link](https://www.beinsports.com/en-mena/football/premier-league/articles-video/merino-strikes-again-to-extend-arsenal-s-premier-league-lead-2025-12-03)
+
+
+### aston villa - arsenal (N/A, 06/12/2025 07:48 Lima)
+
+- **Premier League LIVE: Aston Villa vs Arsenal - scores, stats & updates**: [Link](https://www.bbc.com/sport/football/live/c4gwyz8el2vt)
+- **Unai Emery expects a ‘huge test’ against his old employers**: [Link](https://www.vavel.com/en/football/2025/12/06/aston-villa/1243776-unai-emery-expects-a-huge-test-against-his-old-employers.html)
+- **Paul Merson Predicts Arsenal "Panic" Ahead Of "Big, Big Football Match" Against Aston Villa**: [Link](https://goonernews.com/blog/arsenal-news-paul-merson-aston-villa-prediction/)
+
+
+### tea (N/A, 06/12/2025 07:48 Lima)
+
+- **Vladimir Putin in India live: Putin says Russia ready to supply 'uninterrupted' fuel to India despite objection from Trump**: [Link](https://www.bbc.com/news/live/cjwyqpn8252t?page=2)
+- **The Modi-Putin Summit Is a Message to Trump**: [Link](https://time.com/7338871/putin-trip-modi-india-trump/)
+- **Opinion: Opinion | Navigating the Tightrope: Why Putin's Visit Is A Masterclass In India's Foreign Policy**: [Link](https://www.ndtv.com/opinion/navigating-the-tightrope-why-putins-visit-is-a-masterclass-in-indias-foreign-policy-9760749)
+
+
+### clima de hoy (N/A, 06/12/2025 07:48 Lima)
+
+- **SENAMHI: Pronóstico del clima hoy sábado 06 de diciembre 2025**: [Link](https://rpp.pe/peru/actualidad/senamhi-pronostico-del-clima-hoy-sabado-06-de-diciembre-2025-noticia-1666816)
+- **Senamhi advierte de madrugadas calurosas: temperatura llegaría a los 28 grados**: [Link](https://latinanoticias.pe/lima/senamhi-advierte-de-madrugadas-calurosas-temperatura-llegaria-a-los-28-grados_20251202/)
+- **Lima seguirá con días nublados y temperaturas frescas en los próximos días, advierte especialista del Senamhi**: [Link](https://www.infobae.com/peru/2025/11/29/lima-seguira-con-dias-nublados-y-temperaturas-frescas-en-los-proximos-dias-advierte-especialista-del-senamhi/)
+
+
+### barcelona vs betis (N/A, 06/12/2025 07:48 Lima)
+
+- **¿A qué hora juega y qué canal transmite FC Barcelona vs. Betis EN VIVO hoy 6 de diciembre en USA, España y México? Canales TV online**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/a-que-hora-juega-y-que-canal-transmite-fc-barcelona-vs-betis-en-vivo-hoy-6-de-diciembre-en-usa-espana-y-mexico-canales-tv-online-nnda-nnrt-noticia/)
+- **Pronósticos Betis vs Barcelona: cuota atractiva por más de 3.5 goles**: [Link](https://depor.com/apuestas-deportivas/betis-vs-barcelona-pronosticos-apuestas-cuotas-06-12-2025-2/)
+- **Barcelona vs Real Betis EN VIVO por LaLiga 2025: hora y canales para ver el partido con Lamine Yamal**: [Link](https://larepublica.pe/deportes/2025/12/05/barcelona-vs-real-betis-en-vivo-laliga-2025-via-dsports-movistar-laliga-sky-sports-y-espn-267365)
+
+
+### radio exitosa (N/A, 06/12/2025 07:48 Lima)
+
+- **Presidente Jerí recibe a Clíver Huamán, 'Pol Deportes', en Palacio de Gobierno| Galería Fotográfica**: [Link](https://andina.pe/agencia/galeria-presidente-jeri-recibe-a-cliver-huaman-pol-deportes-palacio-gobierno-27963.aspx)
+- **Mario Irivarren emociona al regalar un iPhone al joven que narró la final de la Copa Libertadores: “Cuando ya seas conocido, no te olvides acá”**: [Link](https://elcomercio.pe/respuestas/farandula/mario-irivarren-emociona-al-regalar-un-iphone-al-joven-que-narro-la-final-de-la-copa-libertadores-cuando-ya-seas-conocido-no-te-olvides-aca-tdpe-noticia/)
+- **"Desde un cerro hasta la Videna": Cliver Huamán, de 'Pol Deportes', recibió camiseta de la Selección Peruana**: [Link](https://rpp.pe/futbol/seleccion-peruana/seleccion-peruana-cliver-huaman-de-pol-deportes-recibio-la-camiseta-de-bicolor-de-fpf-agustin-lozano-noticia-1666547)
+
+
+### precio dolar hoy peru (N/A, 06/12/2025 07:48 Lima)
+
+- **Precio del dólar hoy: Así se cotiza el tipo de cambio en Perú este 6 de diciembre**: [Link](https://www.infobae.com/peru/2025/12/05/dolar-cotizacion-de-apertura-hoy-5-de-diciembre-en-peru/)
+- **Precio del dólar en Perú: a cuánto cerró el tipo de cambio el viernes 5 de diciembre**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-2025-a-cuanto-esta-el-dolar-este-viernes-5-de-diciembre-de-2025-tipo-de-cambio-segun-bcrp-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
+- **BCR interviene y compra $ 294 millones y da respiro al dólar que cerró en S/ 3.362**: [Link](https://diariocorreo.pe/economia/bcr-interviene-y-compra-294-millones-y-da-respiro-al-dolar-que-cerro-en-s-3362-noticia/)
+
+
 ### it (N/A, 06/12/2025 03:31 Lima)
 
 - **Newberry College prepares to take on Albany State in quarterfinals of the NCAA Division II playoffs**: [Link](https://www.wistv.com/2025/12/03/newberry-college-prepares-take-albany-state-quarterfinals-ncaa-division-ii-playoffs/)
@@ -963,68 +1026,5 @@ Sin noticias relacionadas disponibles.
 - **Orense SC vs. LDU Quito - Live Score - December 06, 2025**: [Link](https://www.foxsports.com/soccer/ecuadorian-liga-pro-orense-sc-vs-ldu-quito-dec-06-2025-game-boxscore-646935)
 - **Oregon men’s basketball circling the wagons ahead of Big Ten opener against USC**: [Link](https://www.oregonlive.com/ducks/2025/12/oregon-mens-basketball-circling-the-wagons-ahead-of-big-ten-opener-against-usc.html)
 - **Dana Altman Takes Full Blame as Ducks Search for Answers Ahead of USC**: [Link](https://247sports.com/college/oregon/article/altman-takes-blame-oregon-basketball-searching-for-answers-usc-preview-264299501/)
-
-
-### sporting cristal - alianza lima (N/A, 02/12/2025 20:59 Lima)
-
-- **Cómo ver Liga 1 MAX EN VIVO ONLINE: Alianza-Cristal | ¿Qué canal es?**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/liga-1-max-en-vivo-gratis-ver-futbol-libre-tv-alianza-vs-cristal-hoy-por-internet-via-directv-por-semifinal-playoffs-de-liga-1-video-noticia/)
-- **Alineaciones de Alianza Lima vs Sporting Cristal HOY: titulares confirmados para semifinales ida de los ‘play-offs’ de la Liga 1 2025**: [Link](https://www.infobae.com/peru/deportes/2025/12/01/alineaciones-alianza-lima-vs-sporting-cristal-equipos-titulares-estadio-nacional-semifinales-ida-play-offs-liga-1-2025/)
-- **Posibles alineaciones en el Cristal vs Alianza Playoffs**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/posibles-alineaciones-cristal-vs-alianza-play-offs-n451888)
-
-
-### cuenca juniors - u. católica (N/A, 02/12/2025 20:59 Lima)
-
-- **Cuenca Jrs. vs Universidad Católica por la Copa Ecuador, hoy EN VIVO: los Gallos atacan y la Chatoleí sufre**: [Link](https://www.ole.com.ar/ecuador/liga-pro/cuenca-juniors-universidad-catolica-semifinal-vuelta-copa-ecuador-hoy-vivo-hora-ver-tv-canal-goles-videos-resultado_0_QyUamvKZek.html)
-- **Azarías Londoño: Queremos darle un título al club**: [Link](https://www.ecuavisa.com/deportes/futbol-nacional/azarias-londono-queremos-darle-un-titulo-al-club-JC10473749)
-- **¿Cuándo se juegan los partidos de revancha por semifinales de Copa Ecuador?**: [Link](https://www.eluniverso.com/deportes/campeonato-ecuatoriano/cuando-se-juegan-los-partidos-de-revancha-por-semifinales-de-copa-ecuador-nota/)
-
-
-### grêmio - fluminense (N/A, 02/12/2025 20:59 Lima)
-
-- **Escalação do Fluminense: por que Canobbio está fora contra o Grêmio?**: [Link](https://www.sportingnews.com/br/futebol/noticias/escalacao-fluminense-por-que-canobbio-esta-fora-jogo-contra-gremio/f63d23b5c4e994bd279c6462)
-- **Aos 21 min do 1º tempo - revisão do VAR de Luciano Acosta do Fluminense contra o Grêmio**: [Link](https://ge.globo.com/futebol/video/aos-21-min-do-1o-tempo-revisao-do-var-de-luciano-acosta-do-fluminense-contra-o-gremio-14148130.ghtml)
-- **Globoplay e Premiere apresentam instabilidade em transmissão**: [Link](https://bsbcapital.com.br/globoplay-e-premiere-apresentam-instabilidade-em-transmissao/)
-
-
-### liga de naciones femenina conmebol (N/A, 02/12/2025 20:59 Lima)
-
-- **Perú logra su primer triunfo en Cusco**: [Link](https://www.conmebol.com/noticias/peru-logra-su-primer-triunfo-en-cusco/)
-- **Tablas y resultados de los partidos de la fecha 4 de la Liga de Naciones Femenina**: [Link](https://www.futbolperuano.com/futbol-femenino/liga-naciones-conmebol/tablas-y-resultados-de-los-partidos-de-la-fecha-4-de-la-liga-de-naciones-femenina-553584)
-- **Cómo formaría la "Roja" femenina hoy para su duelo ante Perú por las Clasificatorias al Mundial, a qué hora es y quién transmite**: [Link](https://www.emol.com/noticias/Deportes/2025/11/28/1184442/la-rojafemenina-peru-clasificatorias.html)
-
-
-### futbol libre (N/A, 02/12/2025 15:30 Lima)
-
-- **Alineaciones de Alianza Lima vs Sporting Cristal HOY: posibles titulares para semifinales ida de los ‘play-offs’ de la Liga 1 2025**: [Link](https://www.infobae.com/peru/deportes/2025/12/01/alineaciones-alianza-lima-vs-sporting-cristal-equipos-titulares-estadio-nacional-semifinales-ida-play-offs-liga-1-2025/)
-- **Cumpliendo el sueño: Pol Deportes estará en la transmisión del Sporting Cristal vs. Alianza Lima por L1 MAX**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/alianza-lima-vs-cristal-pol-deportes-estara-presente-en-transmision-del-partido-por-l1-max-desde-estadio-nacional-liga-1-noticia/)
-- **Regresa un argentino: Alianza Lima y las sorpresas en su once titular para enfrentar a Sporting Cristal**: [Link](https://rpp.pe/futbol/descentralizado/alianza-lima-vs-sporting-cristal-el-once-titular-de-nestor-gorosito-para-semifinal-ida-playoffs-liga-1-noticia-1666109)
-
-
-### manchester city vs (N/A, 02/12/2025 15:30 Lima)
-
-- **Manchester City es favorito en la visita a Fulham, por la Premier League**: [Link](https://www.espn.com.pe/futbol/inglaterra/nota/_/id/16032718/fulham-vs-manchester-city-premier-league-equipo-fecha-hora-y-tv-en-vivo)
-- **Resultado en vivo Fulham vs Man City: resultado de la Premier League, actualizaciones, momentos destacados, estadísticas Los hombres de Guardiola despedidos por delante de Holanda**: [Link](https://www.ucvradio.pe/mas-actualidad/resultado-en-vivo-fulham-vs-man-city-resultado-de-la-premier-league-actualizaciones-momentos-destacados-estadisticas-los-hombres-de-guardiola-despedidos-por-delante-de-holanda/65471/)
-- **Premier League: Manchester City visita a Fulham por la fecha 14**: [Link](https://rpp.pe/futbol/ligas-internacionales/premier-league-manchester-city-visita-a-fulham-por-la-fecha-14-noticia-1666028)
-
-
-### city (N/A, 02/12/2025 15:30 Lima)
-
-- **Haaland, el jugador que más rápido alcanzó los 100 goles en Premier**: [Link](https://www.espn.com.pe/futbol/inglaterra/nota/_/id/16035535/fulham-vs-manchester-city-haaland-mas-rapido-100-goles-premier-league)
-- **Erling Haaland se convirtió en el jugador más rápido en alcanzar los 100 goles en la Premier League**: [Link](https://www.ucvradio.pe/mas-actualidad/erling-haaland-se-convirtio-en-el-jugador-mas-rapido-en-alcanzar-los-100-goles-en-la-premier-league/65476/)
-- **Celebrate the Season with the City of Palm Coast’s Annual Starlight Parade This Saturday**: [Link](https://www.palmcoast.gov/newsroom/home/details/celebrate-the-season-with-the-city-of-palm-coasts-annual-starlight-parade-this-saturday)
-
-
-### leipzig vs (N/A, 02/12/2025 15:30 Lima)
-
-- **Leipzig für einige Wochen ohne Baku**: [Link](https://www.sport1.de/news/fussball/bundesliga/2025/12/leipzig-fur-einige-wochen-ohne-baku)
-- **Leipzig-Kracher: FCM-Kapitän Reimann steht vor Rekordmarke**: [Link](https://www.volksstimme.de/sport/1-fc-magdeburg/dominik-reimann-1-fc-magdeburg-rb-leipzig-dfb-pokal-4158942)
-- **Warum Magdeburg-Coach Sander gegen RB im Pokal nicht mauern will**: [Link](https://rblive.de/news/rb-leipzig-warum-magdeburg-coach-sander-im-dfb-pokal-nicht-mauern-will-4158845)
-
-
-### u. de chile - coquimbo unido (N/A, 02/12/2025 15:30 Lima)
-
-- **Universidad de Chile desafía a Coquimbo Unido por la penúltima fecha de la Liga de Primera 2025**: [Link](https://www.espn.com.ar/futbol/chile/nota/_/id/16014515/universidad-de-chile-vs-coquimbo-unido-fecha-29-liga-de-primera-equipo-fecha-y-hora)
-- **Declaración pública: localía del partido ante Coquimbo Unido**: [Link](https://www.udechile.cl/noticias/declaracion-publica-localia-del-partido-ante-coquimbo-unido)
-- **La U defiende hoy uno de sus mayores orgullos de la historia: 61 años de dominio en un partido**: [Link](https://chile.as.com/futbol/la-u-defiende-hoy-uno-de-sus-mayores-orgullos-de-la-historia-61-anos-de-dominio-en-un-partido-f202512-n/)
 
 
