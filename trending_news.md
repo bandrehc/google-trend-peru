@@ -1,3 +1,71 @@
+### fuerza armada nacional bolivariana (N/A, 05/12/2025 20:54 Lima)
+
+- **VenezuelaHoy: el Ejército intercepta e inmoviliza una aeronave "hostil" en el suroccidente del país**: [Link](https://www.france24.com/es/am%C3%A9rica-latina/20251205-venezuelahoy-video-muestra-%C3%BAltimos-momentos-de-los-sobrevivientes-en-un-ataque-que-aumenta-el-escrutinio-en-ee-uu)
+- **Control para la Defensa Integral del Espacio Aéreo**: [Link](https://www.e-consulta.com/nota/2025-12-05/mundo/control-para-la-defensa-integral-del-espacio-aereo)
+- **Fuerza Armada contabiliza 28 aeronaves hostiles neutralizadas en 2025**: [Link](https://noticiasdeaqui.co/2025/12/05/fuerza-armada-contabiliza-28-aeronaves-hostiles-neutralizadas-en-2025/)
+
+
+### atv en vivo (N/A, 05/12/2025 20:54 Lima)
+
+- **Perú vs Venezuela EN VIVO HOY: punto a punto del duelo de vóley femenino por los Juegos Bolivarianos 2025**: [Link](https://www.infobae.com/peru/deportes/2025/12/05/peru-vs-venezuela-en-vivo-hoy-atv-youtube-voley-femenino-juegos-bolivarianos-2025-resumen-resultado/)
+- **Perú a la final del vóley: así fue la eufórica celebración tras triunfo ante Colombia por los Juegos Bolivarianos 2025**: [Link](https://rpp.pe/voley/seleccion-peruana/peru-a-la-final-del-voley-asi-fue-la-euforica-celebracion-tras-triunfo-ante-colombia-por-los-juegos-bolivarianos-2025-noticia-1666632)
+- **Perú Vs. Venezuela EN VIVO: Horario y cómo ver el partido por los Juegos Bolivarianos por ATV y ATV.pe**: [Link](https://www.atv.pe/noticia/peru-vs-venezuela-en-vivo-horario-y-como-ver-el-partido-por-los-juegos-bolivarianos-por-atv-y-atv-pe/)
+
+
+### dep. cuenca - delfín (N/A, 05/12/2025 20:54 Lima)
+
+Sin noticias relacionadas disponibles.
+
+
+### arena monumental (N/A, 05/12/2025 20:54 Lima)
+
+- **Cris MJ anuncia nueva zona para fans en su concierto de Lima: aquí los precios**: [Link](https://elcomercio.pe/luces/musica/cris-mj-anuncia-nueva-zona-para-fans-en-su-concierto-de-lima-aqui-los-precios-ultimas-noticia/)
+- **CRIS MJ cantará en el Arena Monumental**: [Link](https://agenciaorbita.org/cris-mj-cantara-en-el-arena-monumental/)
+- **Cris MJ abre nueva zona para fans y amplía aforo de su concierto en el Arena Monumental**: [Link](https://www.expreso.com.pe/entretenimiento/cris-mj-abre-nueva-zona-para-fans-y-amplia-aforo-de-su-concierto-en-el-arena-monumental-noticia/1244777/)
+
+
+### precio dolar peru (N/A, 05/12/2025 20:54 Lima)
+
+- **Precio del dólar con alza: Así cerró el tipo de cambio hoy 5 de diciembre en Perú**: [Link](https://www.infobae.com/peru/2025/12/05/dolar-cotizacion-de-apertura-hoy-5-de-diciembre-en-peru/)
+- **¿Cuál es la cotización del dólar hoy jueves 5 de diciembre del 2025?**: [Link](https://andina.pe/agencia/noticia-cual-es-cotizacion-del-dolar-hoy-jueves-5-diciembre-del-2025-1054590.aspx)
+- **BCR interviene y compra $ 294 millones y da respiro al dólar que cerró en S/ 3.362**: [Link](https://diariocorreo.pe/economia/bcr-interviene-y-compra-294-millones-y-da-respiro-al-dolar-que-cerro-en-s-3362-noticia/)
+
+
+### anuel (N/A, 05/12/2025 20:54 Lima)
+
+- **Los Jaivas en Estadio Nacional 2025: Metro de Santiago anuncia extensión de su servicio por el concierto**: [Link](https://los40.cl/2025/12/05/los-jaivas-en-estadio-nacional-2025-metro-de-santiago-anuncia-extension-de-su-servicio-por-el-concierto/)
+- **Concierto en Anuel AA en Chile 2026: este es el posible setlist del esperado concierto en el Estadio Santa Laura**: [Link](https://www.radioactiva.cl/2025/12/concierto-en-anuel-aa-en-chile-2026-este-es-el-posible-setlist-del-esperado-concierto-en-el-estadio-santa-laura/)
+- **Metro de Santiago anuncia extensión de horarios por concierto: Revisa las Líneas y estaciones modificadas**: [Link](https://www.radioimagina.cl/2025/12/metro-de-santiago-anuncia-extension-de-horarios-por-concierto-revisa-las-lineas-y-estaciones-modificadas/)
+
+
+### celtics - lakers (N/A, 05/12/2025 20:54 Lima)
+
+- **Live Updates: Lakers-Celtics, and top moments of a 12 game-night**: [Link](https://www.nba.com/news/live-updates-lakers-celtics-and-top-moments-of-a-12-game-night-in-the-nba)
+- **BetMGM Bonus Code COVERS: How to Unlock up to $1,500 Bonus Bets for Lakers vs. Celtics**: [Link](https://www.covers.com/daily-promos/betmgm-bonus-code-nba-lakers-celtics-12-5-2025)
+- **How to watch Boston Celtics game today free vs. Los Angeles Lakers**: [Link](https://www.masslive.com/tv/2025/12/how-to-watch-boston-celtics-game-today-free-vs-los-angeles-lakers.html)
+
+
+### concierto de anuel (N/A, 05/12/2025 20:54 Lima)
+
+- **CONCIERTOS EN LIMA 2025: TODO LO QUE TE ESPERA EN DICIEMBRE**: [Link](https://blog.ticketmaster.pe/noticias-ticketmaster/conciertos-en-lima-2025-todo-lo-que-te-espera-en-diciembre-3362/)
+- **Conciertos en Lima este fin de semana: Anuel AA, Vibra Perú y más shows imperdibles para el 5, 6 y 7 de diciembre**: [Link](https://larepublica.pe/entretenimiento/2025/12/04/conciertos-en-lima-2025-entradas-fecha-y-lugar-para-anuel-aa-vibra-peru-living-flow-y-tono-good-este-fin-de-semana-328488)
+- **Agenda musical de lujo en Perú: Limp Bizkit, Morat, Anuel AA, y otros artistas llegan a Lima para presentarse en concierto durante diciembre 2025**: [Link](https://elcomercio.pe/respuestas/farandula/agenda-musical-de-lujo-en-peru-limp-bizkit-morat-anuel-aa-y-otros-artistas-llegan-a-lima-para-presentarse-en-concierto-durante-diciembre-2025-tdpe-noticia/)
+
+
+### palestino vs (N/A, 05/12/2025 20:54 Lima)
+
+- **Club Deportivo Palestino S.A.D.P. vs Huachipato S.A.D.P. | Pronóstico y cuotas 05.12.2025**: [Link](https://www.transfermarkt.es/apuestas/pronosticos-deportivos/palestino-vs-huachipato-pronostico-apuestas-06-12-2025/)
+- **Tabla de posiciones del Torneo Nacional: Última fecha**: [Link](https://www.emol.com/noticias/Deportes/2025/12/05/1185180/tabla-posiciones-torneonacional-ultima-fecha.html)
+- **¡Noche de golazos en el fútbol chileno!**: [Link](https://chile.as.com/futbol/noche-de-golazos-en-el-futbol-chileno-f202512-n/)
+
+
+### oscar gayoso (N/A, 05/12/2025 20:54 Lima)
+
+- **"No me gustan los dramas": Óscar Gayoso revela por qué decidió mantener en reserva su diagnóstico de cáncer**: [Link](https://rpp.pe/famosos/celebridades/oscar-gayoso-explica-por-que-decidio-mantener-en-reserva-su-diagnostico-de-cancer-noticia-1666500)
+- **Óscar Gayoso revela quién propició su famoso beso con Beto Ortiz: “Fue obra y gracia de Chibolín”**: [Link](https://trome.com/espectaculos/tv/oscar-gayoso-revela-quien-propicio-su-famoso-beso-con-beto-ortiz-fue-obra-y-gracia-de-andres-hurtado-chibolin-cafe-con-la-chevez-foto-video-farandula-noticia/)
+- **Óscar Gayoso confiesa por qué decidió ocultar su batalla contra el cáncer: "No me gustan los dramas"**: [Link](https://larepublica.pe/espectaculos/2025/12/04/oscar-gayoso-confiesa-por-que-decidio-ocultar-su-batalla-contra-el-cancer-no-me-gustan-los-dramas-121888)
+
+
 ### mallorca vs (N/A, 05/12/2025 15:28 Lima)
 
 - **odds to score a goal on December 5**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/12/05/vedat-muriqi-soccer-player-props-12-5-2025/87617911007/)
@@ -954,74 +1022,5 @@ Sin noticias relacionadas disponibles.
 - **NBA results and standings: Jazz get revenge from Sengun**: [Link](https://www.eurohoops.net/en/nba-news/1901955/lauri-markkanen-alperen-sengun-franz-wagner-nba-european-recap/)
 - **Kevin Durant’s return brings dilemma to Rockets starting lineup**: [Link](https://www.sportingnews.com/uk/nba/houston-rockets/news/durant-return-causes-lineup-dilemma/67d212adecbf8763db29f044)
 - **Lauri Markkanen scores 29 points in win Monday**: [Link](https://www.fantasypros.com/nba/news/556318/lauri-markkanen-scores-29-points-win-monday.php)
-
-
-### beca permanencia (N/A, 02/12/2025 03:36 Lima)
-
-- **Beca Permanencia 2025: revisa aquí cómo acceder a la lista de los 8.000 seleccionados este martes 2 de diciembre**: [Link](https://www.infobae.com/peru/2025/11/30/beca-permanencia-2025-revisa-aqui-como-acceder-a-la-lista-de-los-8000-seleccionados-este-martes-2-de-diciembre/)
-- **Pronabec publicará este martes la lista de 8 mil seleccionados para**: [Link](https://caretas.pe/nacional/pronabec-publicara-este-martes-la-lista-de-8-mil-seleccionados-para-beca-permanencia-2025/)
-- **🔴🔵 ¿Postulaste a Beca Permanencia 2025? Entérate AQUÍ cuando saldrá la lista de los seleccionados**: [Link](https://www.facebook.com/Exitosanoticias/posts/-postulaste-a-beca-permanencia-2025-ent%C3%A9rate-aqu%C3%AD-cuando-saldr%C3%A1-la-lista-de-los-/1289381163224939/)
-
-
-### lakers vs (N/A, 02/12/2025 03:36 Lima)
-
-- **Phoenix Suns @ Los Angeles Lakers Pregame Show | PHNX Suns Podcast LIVE!**: [Link](https://bvmsports.com/2025/12/01/phoenix-suns-los-angeles-lakers-pregame-show-phnx-suns-podcast-live/)
-- **Live Updates: Luka Doncic, Nikola Jokic underway**: [Link](https://www.nba.com/news/live-updates-moments-and-stats-from-a-9-game-night-in-the-nba)
-- **How to Watch Phoenix Suns at Los Angeles Lakers: Peacock NBA Monday**: [Link](https://sports.yahoo.com/articles/watch-phoenix-suns-los-angeles-140005676.html)
-
-
-### barcelona vs atlético de madrid (N/A, 02/12/2025 03:36 Lima)
-
-- **Barcelona recibe al Atlético de Madrid buscando mantener la cima de LaLiga**: [Link](https://www.espn.com.ar/futbol/espana/nota/_/id/16032837/barcelona-vs-atletico-de-madrid-fecha-14-la-liga-equipo-fecha-hora-y-tv-en-vivo)
-- **Apuestas y Pronóstico del Barcelona vs Atlético Madrid 02/12/25**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2025/diciembre/pronostico-barcelona-vs-atletico-madrid-02-12-25)
-- **Así ha sido la jugosa rueda de prensa de Flick antes del Barça-Atlético**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20251201/1002579192/asi-sido-jugosa-rueda-prensa-flick-barca-atletico.html)
-
-
-### samahara lobaton (N/A, 02/12/2025 03:36 Lima)
-
-- **Samahara anuncia fin de su relación con Bryan Torres: “Vulneró límites que dejé claros desde el inicio”**: [Link](https://elcomercio.pe/tvmas/farandula/samahara-lobaton-anuncia-fin-de-su-relacion-con-bryan-torres-vulnero-limites-que-deje-claros-desde-el-inicio-ultimas-noticia/)
-- **Bryan Torres descarta infidelidad a Samahara Lobatón**: [Link](https://www.americatv.com.pe/mas-espectaculos/bryan-torres-niega-infidelidad-samahara-lobaton-ruptura-noticia-161660)
-- **Magaly Medina sobre el fin de la relación de Samahara y 'el Bryan': "Creyeron en el palabreo barato"**: [Link](https://www.atv.pe/noticia/magaly-medina-sobre-el-fin-de-la-relacion-de-samahara-y-el-bryan-creyeron-en-el-palabreo-barato/)
-
-
-### primera división (N/A, 02/12/2025 03:36 Lima)
-
-- **Así quedó el mapa del fútbol argentino tras los ascensos de Gimnasia de Mendoza y Estudiantes (RC)**: [Link](https://www.tycsports.com/liga-profesional-de-futbol/asi-quedo-el-mapa-del-futbol-argentino-tras-los-ascensos-de-gimnasia-de-mendoza-y-estudiantes-rc-id701718.html)
-- **Con los 30 equipos definidos, ¿cómo comenzará la tabla de promedios en 2026?**: [Link](https://www.ole.com.ar/futbol-primera/comenzara-tabla-promedios-2026_0_C4P2dWiES6.html)
-- **De dónde son los 30 equipos que jugarán el Torneo Apertura 2026: el impresionante récord de Córdoba**: [Link](https://www.canal26.com/deportes/2025/12/01/de-donde-son-los-30-equipos-que-jugaran-el-torneo-apertura-2026-el-impresionante-record-de-cordoba/)
-
-
-### melissa klug (N/A, 02/12/2025 03:36 Lima)
-
-- **Jesús Barco reafirma que quiere casarse con Melissa Klug: “Eso nunca ha estado en duda”**: [Link](https://elcomercio.pe/tvmas/farandula/jesus-barco-reafirma-que-quiere-casarse-con-melissa-klug-eso-nunca-ha-estado-en-duda-ultimas-noticia/)
-- **Melissa Klug volvió con Jesús Barco, Samantha contra Álvaro**: [Link](https://www.americatv.com.pe/mas-espectaculos/melissa-klug-perdono-jesus-samantha-respondio-alvaro-y-mas-noticia-161657)
-- **¿Volvieron? Filtran beso entre Melissa Klug y Jesús Barco antes de entrevista**: [Link](https://peru21.pe/espectaculos/volvieron-filtran-beso-entre-melissa-klug-y-jesus-barco-antes-de-entrevista/)
-
-
-### raquel escalante (N/A, 01/12/2025 23:35 Lima)
-
-- **El último post de Raquel Escalante, Miss de belleza y conductora de TV Azteca fallecida a los 28 años: “He vivido dolor”**: [Link](https://www.infobae.com/mexico/2025/11/30/el-ultimo-post-de-raquel-escalante-miss-de-belleza-y-conductora-de-tv-azteca-fallecida-a-los-28-anos-he-vivido-dolor/)
-- **“Soy una mujer que ha vivido dolor”: último mensaje de Raquel Escalante antes de morir**: [Link](https://www.univision.com/famosos/soy-una-mujer-que-ha-vivido-dolor-ultimo-mensaje-de-raquel-escalante-antes-de-morir-video)
-- **"Soy una mujer que ha vivido dolor": Esta fue la última publicación de Raquel Escalante en redes antes de morir**: [Link](https://www.facebook.com/MilenioDiario/photos/soy-una-mujer-que-ha-vivido-dolor-esta-fue-la-%C3%BAltima-publicaci%C3%B3n-de-raquel-escal/1320848250072643/)
-
-
-### dólar hoy perú (N/A, 01/12/2025 23:35 Lima)
-
-- **Precio del dólar subió: Así cerró el tipo de cambio hoy 1 de diciembre en Perú**: [Link](https://www.infobae.com/peru/2025/12/01/dolar-cotizacion-de-apertura-hoy-1-de-diciembre-en-peru/)
-- **Así cerraría el dólar este año, ¿qué papel juega ahora el BCR?**: [Link](https://gestion.pe/tu-dinero/dolar-asi-cerraria-este-ano-que-papel-juega-ahora-el-bcr-noticia/)
-- **Dólar a la baja | Joaquín Rey**: [Link](https://peru21.pe/opinion/dolar-la-baja-joaquin-rey/)
-
-
-### green day (N/A, 01/12/2025 23:35 Lima)
-
-- **It’s an open secret that the MXR FOD Drive is the Dookie Drive circuit under a different name, and for just $99 you can get the tones from Green Day’s best album on your pedalboard this Cyber Monday**: [Link](https://www.musicradar.com/guitars/guitar-pedals/its-an-open-secret-that-the-mxr-fod-drive-is-the-dookie-drive-circuit-under-a-different-name-and-for-just-usd99-you-can-get-the-tones-from-green-days-best-album-on-your-pedalboard-this-cyber-monday)
-- **“I’ve been willing this to happen forever.” Green Day bassist Mike Dirnt opens up about the band’s upcoming feature film, plans for music — and his brand-new Epiphone signature bass**: [Link](https://www.guitarplayer.com/gear/mike-dirnt-on-his-signature-grabber-bass-and-green-day-s-future-plans)
-
-
-### jesus barco (N/A, 01/12/2025 23:35 Lima)
-
-- **Jesús Barco reafirma que quiere casarse con Melissa Klug: “Eso nunca ha estado en duda”**: [Link](https://elcomercio.pe/tvmas/farandula/jesus-barco-reafirma-que-quiere-casarse-con-melissa-klug-eso-nunca-ha-estado-en-duda-ultimas-noticia/)
-- **¿Volvieron? Filtran beso entre Melissa Klug y Jesús Barco antes de entrevista**: [Link](https://peru21.pe/espectaculos/volvieron-filtran-beso-entre-melissa-klug-y-jesus-barco-antes-de-entrevista/)
-- **Melissa Klug volvió con Jesús Barco, Samantha contra Álvaro**: [Link](https://www.americatv.com.pe/mas-espectaculos/melissa-klug-perdono-jesus-samantha-respondio-alvaro-y-mas-noticia-161657)
 
 
