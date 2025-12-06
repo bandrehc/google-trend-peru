@@ -1,3 +1,45 @@
+### brenda carvalho (N/A, 05/12/2025 23:28 Lima)
+
+- **"Ya me habían traído un cura": Brenda Carvalho revela que una "parálisis intestinal" la puso al borde de la muerte**: [Link](https://rpp.pe/famosos/farandula/brenda-carvalho-revela-que-una-paralisis-intestinal-la-puso-al-borde-de-la-muerte-noticia-1666658)
+- **Brenda Carvalho reveló que estuvo al borde de la muerte por una parálisis intestinal: "Me trajeron un cura"**: [Link](https://willax.pe/entretenimiento/brenda-carvalho-borde-muerte-paralisis-intestinal-willax)
+- **Brenda Carvalho confiesa que casi pierde la vida tras sufrir parálisis intestinal: “Me sentía mal”**: [Link](https://trome.com/espectaculos/tv/brenda-carvalho-confiesa-que-casi-pierde-la-vida-tras-sufrir-paralisis-intestinal-me-sentia-mal-video-fotos-farandula-noticia/)
+
+
+### laura spoya (N/A, 05/12/2025 23:28 Lima)
+
+- **Laura Spoya llora ante afirmaciones de Brian Rullan y desmiente que le haya sido infiel: “No aceptaré calumnias”**: [Link](https://www.infobae.com/peru/2025/12/05/laura-spoya-llora-ante-afirmaciones-de-brian-rullan-y-desmiente-que-le-haya-sido-infiel-son-calumnias/)
+- **Laura Spoya se quiebra en vivo tras desmentir infidelidad y exige respeto para su familia**: [Link](https://rpp.pe/famosos/farandula/laura-spoya-se-quiebra-en-vivo-tras-desmentir-infidelidad-y-exige-respeto-para-su-familia-noticia-1666725)
+- **“Es otra mujer, no la reconozco”: Brian Rullan y el sorpresivo mensaje sobre Laura Spoya tras divorcio**: [Link](https://elcomercio.pe/tvmas/farandula/brian-rullan-y-el-sorpresivo-mensaje-sobre-laura-spoya-tras-divorcio-es-otra-mujer-ultimas-noticia/)
+
+
+### green day (N/A, 05/12/2025 23:28 Lima)
+
+- **Hearing Double: The Holiday season**: [Link](https://dailycampus.com/2025/12/04/hearing-double-the-holiday-season/)
+- **The Rock Band That Unexpectedly Became the Biggest Broadway Sensation in Rock History**: [Link](https://collider.com/green-day-biggest-broadway-sensation-rock-history/)
+- **Did Green Day frontman Billie have a guest appearance in Nurse Jackie? Details revealed**: [Link](https://www.soapcentral.com/shows/did-green-day-frontman-billie-guest-appearance-nurse-jackie-details-revealed)
+
+
+### thunder - mavericks (N/A, 05/12/2025 23:28 Lima)
+
+- **Thunder put 13-game win streak on the line vs. Cooper Flagg’s Mavericks**: [Link](https://www.thesportsleader.com/2025/12/04/thunder-put-13-game-win-streak-on-the-line-vs-cooper-flaggs-mavericks/)
+- **Oklahoma vs Dallas Prediction: the Thunder Will Be Closer to Victory**: [Link](https://www.telecomasia.net/sports-betting/tips/basketball/nba/oklahoma-vs-dallas-prediction-for-the-match-on-december-6-2025/)
+- **Mavericks vs Thunder Preview and Injury Update: Colliding win streaks**: [Link](https://www.mavsmoneyball.com/mavericks-game-previews/53465/mavericks-vs-thunder-preview-start-time-tv-stream-injury-report-how-to-watch)
+
+
+### weather tomorrow (N/A, 05/12/2025 23:28 Lima)
+
+- **Iowa weather: Snow showers return for the weekend**: [Link](https://www.kcci.com/article/iowa-weather-snow-showers-return-for-the-weekend/69642910)
+- **FIRST ALERT: Slick travel this weekend as we add more snow**: [Link](https://www.kcrg.com/2025/12/05/first-alert-slick-travel-this-weekend-we-add-more-snow/)
+- **Another winter storm is headed for Iowa. How much snow is expected?**: [Link](https://www.desmoinesregister.com/story/weather/2025/12/05/iowa-weather-snow-forecast-nws-winter-storm-polar-vortex-arctic-air/87619806007/)
+
+
+### bonos (N/A, 05/12/2025 23:28 Lima)
+
+- **Bono de S/100 se pagará en enero de 2026, pero requiere cumplir dos condiciones**: [Link](https://www.infobae.com/peru/2025/12/04/bono-de-s100-se-paga-en-enero-de-2026-pero-requiere-cumplir-dos-condiciones/)
+- **Ley 32513: Ley de presupuesto del sector público para el año fiscal 2026**: [Link](https://lpderecho.pe/ley-32513-ley-presupuesto-sector-publico-ano-fiscal-2026/)
+- **Tropezar de nuevo, por Alejandra Costa | OPINION**: [Link](https://elcomercio.pe/opinion/columnistas/tropezar-de-nuevo-por-alejandra-costa-noticia/)
+
+
 ### fuerza armada nacional bolivariana (N/A, 05/12/2025 20:54 Lima)
 
 - **VenezuelaHoy: el Ejército intercepta e inmoviliza una aeronave "hostil" en el suroccidente del país**: [Link](https://www.france24.com/es/am%C3%A9rica-latina/20251205-venezuelahoy-video-muestra-%C3%BAltimos-momentos-de-los-sobrevivientes-en-un-ataque-que-aumenta-el-escrutinio-en-ee-uu)
@@ -984,43 +1026,5 @@ Sin noticias relacionadas disponibles.
 - **OpenAI Declares ‘Code Red’ as Google Threatens AI Lead**: [Link](https://www.wsj.com/tech/ai/openais-altman-declares-code-red-to-improve-chatgpt-as-google-threatens-ai-lead-7faf5ea6?gaa_at=eafs&gaa_n=AWEtsqdV7sgH3PZHxT7am4bJRuScjZzKmxruxt61SJG2nSSuo0HD1uzZSQ2_&gaa_ts=692f4f87&gaa_sig=4Fac_te8K_L7TUACAw1Wsi7Dm8fy-pu1_eUkzdxFkUcZonrxM1rebQQ551X1CQTWXXH_VzoJ8DZyrgHkKNPMdw%3D%3D)
 - **OpenAI’s Sam Altman declares ‘code red’ to improve ChatGPT as Google catches up: reports**: [Link](https://nypost.com/2025/12/02/business/openais-sam-altman-declares-code-red-to-improve-chatgpt-as-google-catches-up/)
 - **Sam Altman issues ‘code red’ at OpenAI as ChatGPT contends with rivals**: [Link](https://www.theguardian.com/technology/2025/dec/02/sam-altman-issues-code-red-at-openai-as-chatgpt-contends-with-rivals)
-
-
-### newcastle - tottenham (N/A, 02/12/2025 15:30 Lima)
-
-- **Preview: Newcastle United vs Tottenham Hotspur - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/newcastle-united/preview/newcastle-vs-spurs-prediction-team-news-lineups_586772.html)
-- **Football Bet of the Day: St James’ Park is Tuesday’s destination for goals**: [Link](https://mrfixitstips.co.uk/football-bet-of-the-day-st-james-park-is-tuesdays-destination-for-goals/)
-- **Preview: Spurs face midweek trip to Newcastle**: [Link](https://www.fotmob.com/ru/topnews/24231-preview-spurs-face-midweek-trip-newcastle?utm_source=fotmob)
-
-
-### samsung galaxy s26 ultra (N/A, 02/12/2025 11:36 Lima)
-
-- **El Samsung Galaxy S26 Ultra puede traer una actualización de carga inalámbrica tan esperada**: [Link](https://www.elpueblo.pe/ciencia-y-tecnologia/el-samsung-galaxy-s26-ultra-puede-traer-una-actualizacion-de-carga-inalambrica-tan-esperada/146596/)
-
-
-### spotify wrapped (N/A, 02/12/2025 11:36 Lima)
-
-- **When will Spotify Wrapped 2025 release? Spotify says it's coming soon**: [Link](https://www.usatoday.com/story/entertainment/music/2025/12/01/spotify-wrapped-2025-release-date/87554500007/)
-- **Is Spotify Wrapped out yet? Here's when Spotify starts tracking again**: [Link](https://www.cincinnati.com/story/entertainment/music/2025/12/02/spotify-wrapped-2025-release-music-tracking/87552443007/)
-- **Spotify Wrapped Drops Soon—After Heavily Criticized 2024 Edition**: [Link](https://www.forbes.com/sites/conormurray/2025/12/01/spotify-wrapped-could-drop-this-week-as-fan-pressure-mounts-after-panned-2024-edition/)
-
-
-### rafael belaunde llosa (N/A, 02/12/2025 11:36 Lima)
-
-- **Atentan contra el precandidato presidencial de Perú, Rafael Belaunde Llosa: sujetos disparan contra su auto**: [Link](https://www.infobae.com/peru/2025/12/02/atentan-contra-el-precandidato-presidencial-de-peru-rafael-belaunde-sujetos-disparan-contra-su-auto/)
-- **Atacan a balazos camioneta donde se desplazaba precandidato Rafael Belaúnde**: [Link](https://rpp.pe/peru/actualidad/denuncian-ataque-a-balazos-contra-precandidato-rafael-belaunde-en-cerro-azul-noticia-1666190)
-- **Rafael Belaunde Llosa fue atacado a balazos dentro de su carro en Cerro Azul**: [Link](https://elcomercio.pe/elecciones/rafael-belaunde-llosa-fue-atacado-a-balazos-dentro-de-su-carro-en-cerro-azul-ultimas-noticia/)
-
-
-### lakers (N/A, 02/12/2025 11:36 Lima)
-
-- **Lakers Urged To Take Advantage Of Rivals’ Meltdown**: [Link](https://lastwordonsports.com/basketball/2025/12/02/lakers-urged-to-take-advantage-of-clippers-meltdown-through-trade-opportunity/)
-
-
-### jazz - rockets (N/A, 02/12/2025 07:55 Lima)
-
-- **NBA results and standings: Jazz get revenge from Sengun**: [Link](https://www.eurohoops.net/en/nba-news/1901955/lauri-markkanen-alperen-sengun-franz-wagner-nba-european-recap/)
-- **Kevin Durant’s return brings dilemma to Rockets starting lineup**: [Link](https://www.sportingnews.com/uk/nba/houston-rockets/news/durant-return-causes-lineup-dilemma/67d212adecbf8763db29f044)
-- **Lauri Markkanen scores 29 points in win Monday**: [Link](https://www.fantasypros.com/nba/news/556318/lauri-markkanen-scores-29-points-win-monday.php)
 
 
