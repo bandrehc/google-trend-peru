@@ -1,3 +1,71 @@
+### psg vs (N/A, 06/12/2025 15:26 Lima)
+
+- **PSG predicted XI v Rennes: Lucas Chevalier and Illia Zabarnyi out, Matvey Safonov to start**: [Link](https://www.getfootballnewsfrance.com/2025/psg-predicted-xi-v-rennes-lucas-chevalier-and-illia-zabarnyi-out-matvey-safonov-to-start/)
+- **Luis Enrique happy with the competition in Ligue 1**: [Link](https://www.gazetaexpress.com/en/luis-enrique-happy-with-the-competition-in-league-1/)
+- **PSG's Vitinha says squad will do best to overcome injuries**: [Link](https://www.msn.com/en-us/sports/other/psg-s-vitinha-says-squad-will-do-best-to-overcome-injuries/vi-AA1RIKXn)
+
+
+### feyenoord - zwolle (N/A, 06/12/2025 15:26 Lima)
+
+- **LIVE eredivisie | Ueda zet Feyenoord snel op voorsprong tegen PEC Zwolle, mooie assist van Borges**: [Link](https://www.ad.nl/voetbal/live-eredivisie-ueda-zet-feyenoord-snel-op-voorsprong-tegen-pec-zwolle-mooie-assist-van-borges~a5dafcbb/)
+- **OPSTELLING | Van Persie geeft basisplaats aan Borges**: [Link](https://www.fr-fans.nl/nieuws/75188/opstelling-van-persie-geeft-basisplaats-aan-borges)
+- **Ueda twee keer trefzeker tegen PEC • Heracles en Telstar vermaken nog niet**: [Link](https://nos.nl/liveblog/2593434-ueda-twee-keer-trefzeker-tegen-pec-heracles-en-telstar-vermaken-nog-niet)
+
+
+### feyenoord vs (N/A, 06/12/2025 15:26 Lima)
+
+- **Preview: Feyenoord vs PEC Zwolle - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/feyenoord/preview/feyenoord-vs-pec-zwolle-prediction-team-news-lineups_587116.html)
+
+
+### verona vs (N/A, 06/12/2025 15:26 Lima)
+
+- **✅ Verona-Atalanta line-ups: Orban, Scamacca, CDK, Hien decisions**: [Link](https://sports.yahoo.com/articles/verona-atalanta-line-ups-orban-184900378.html)
+- **Serie A Enilive 2025/26 | Pre-partita di #VeronaAtalanta: vendita biglietti e ritiro tessere 'Non vi lasceremo mai'**: [Link](https://onefootball.com/en/news/serie-a-enilive-202526-pre-partita-di-veronaatalanta-vendita-biglietti-e-ritiro-tessere-non-vi-lasceremo-mai-42053674)
+- **Where to Watch Hellas Verona vs. Atalanta: TV Channel, Start Time and Live Stream**: [Link](https://www.bleachernation.com/how-to-watch/2025/12/05/where-to-watch-hellas-verona-vs-atalanta-tv-channel-start-time-and-live-stream-2/)
+
+
+### apple tv (N/A, 06/12/2025 15:26 Lima)
+
+- **Nuevos programas y películas para Pressfion en Netflix, Hulu, Peak Video, Apple TV y más**: [Link](https://www.elpueblo.pe/noticias-internacionales/nuevos-programas-y-peliculas-para-pressfion-en-netflix-hulu-peak-video-apple-tv-y-mas/154278/)
+- **¿A qué hora juegan Messi vs. Müller en vivo por final de la MLS Cup? Horarios del Inter Miami-Vancouver Whitecaps**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/a-que-hora-juega-lionel-messi-vs-thomas-muller-en-la-final-de-la-mls-cup-2026-horarios-inter-miami-vs-vancouver-whitecaps-en-usa-y-mexico-nnda-nnrt-noticia/)
+- **MLS 2025: Predicciones, factor x y más de la final Miami-Vancouver**: [Link](https://www.espn.com.pe/futbol/mls/nota/_/id/16040508/mls-2025-inter-miami-vs-vancouver-whitecaps-final)
+
+
+### athletic - atlético madrid (N/A, 06/12/2025 15:26 Lima)
+
+- **Cuándo juegan Athletic Bilbao vs. Atlético Madrid por La Liga 2025: equipo, fecha, hora y TV en vivo**: [Link](https://www.espn.com.pe/futbol/espana/nota/_/id/16042897/cuando-juegan-athletic-bilbao-vs-atletico-madrid-por-la-liga-2025-equipo-fecha-hora-y-tv-en-vivo)
+- **🚨 Sin Vivian, Koke...los ONCES del Athletic-Atlético en San Mamés**: [Link](https://onefootball.com/es/noticias/sin-vivian-kokelos-onces-del-athletic-atletico-en-san-mames-42058341)
+- **LaLiga EA Sports: Por la fecha 15 se enfrentarán Athletic Bilbao y Atlético de Madrid**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-por-la-fecha-15-se-enfrentaran-athletic-bilbao-y-atletico-de-madrid-noticia-1666684)
+
+
+### psg - rennes (N/A, 06/12/2025 15:26 Lima)
+
+- **PSG-Rennes : Zabarnyi malade et forfait de dernière minute**: [Link](https://www.leparisien.fr/sports/football/ligue-1/psg-rennes-zabarnyi-malade-et-forfait-de-derniere-minute-06-12-2025-7DZCRYU2DJA7JCNRXFVCPNTDVI.php)
+- **Luis Enrique : « En ce moment, la meilleure équipe, c’est clairement Lens »**: [Link](https://onefootball.com/fr/news/luis-enrique-en-ce-moment-la-meilleure-equipe-cest-clairement-lens-42055724)
+- **Ligue 1 : Les cotes de PSG - Stade Rennais : Ousmane Dembélé lance sa saison avec un doublé !**: [Link](https://madeinfoot.ouest-france.fr/infos/article-ligue-1-les-cotes-de-psg-stade-rennais-ousmane-dembele-lance-sa-saison-avec-un-double-505088.html)
+
+
+### hellas verona - atalanta (N/A, 06/12/2025 15:26 Lima)
+
+- **✅ Verona-Atalanta line-ups: Orban, Scamacca, CDK, Hien decisions**: [Link](https://sports.yahoo.com/articles/verona-atalanta-line-ups-orban-184900378.html)
+- **Serie A Enilive 2025/26 | Pre-partita di #VeronaAtalanta: vendita biglietti e ritiro tessere 'Non vi lasceremo mai'**: [Link](https://onefootball.com/en/news/serie-a-enilive-202526-pre-partita-di-veronaatalanta-vendita-biglietti-e-ritiro-tessere-non-vi-lasceremo-mai-42053674)
+- **Where to Watch Hellas Verona vs. Atalanta: TV Channel, Start Time and Live Stream**: [Link](https://www.bleachernation.com/how-to-watch/2025/12/05/where-to-watch-hellas-verona-vs-atalanta-tv-channel-start-time-and-live-stream-2/)
+
+
+### toulouse vs (N/A, 06/12/2025 15:26 Lima)
+
+- **Match d'impro Junior Toulouse VS Ariège, Samedi 17 janvier 2026, Café -théâtre le 57 / Toulouse**: [Link](https://www.ramdam.com/Match-d-impro-Junior-Toulouse-VS-Ariege)
+- **Spectacle Match d’impro Junior Toulouse VS Ariège à Toulouse, Café-théâtre Le 57 : billets, réservations, dates**: [Link](https://www.jds.fr/toulouse/spectacles/theatre/match-d-impro-junior-toulouse-vs-ariege-1271969_A)
+- **DIRECT. Le PSG face à Rennes pour se relancer en Ligue 1...**: [Link](https://www.flashscore.fr/actualites/football-ligue-1-direct-le-psg-face-a-rennes-pour-se-relancer-en-ligue-1/OjFMGzUg/)
+
+
+### inter miami - whitecaps (N/A, 06/12/2025 15:26 Lima)
+
+- **MLS Cup final: Inter Miami v Vancouver Whitecaps – live**: [Link](https://www.theguardian.com/football/live/2025/dec/06/mls-cup-final-inter-miami-v-vancouver-whitecaps-live-build-up)
+- **Lionel Messi vs Thomas Muller Stats Compared Before Inter Miami-Vancouver Whitecaps MLS Cup Final**: [Link](https://sports.yahoo.com/articles/lionel-messi-vs-thomas-muller-143000817.html)
+- **[TOTAL SPORTEK]…! Soccer/MLS Cup Final Live Streams Free 06 December 2025**: [Link](https://www.goldderby.com/topic/total-sportek-soccer-mls-cup-final-live-streams-free-06-december-2025/)
+
+
 ### stuttgart vs. bayern (N/A, 06/12/2025 11:29 Lima)
 
 - **Preview: VfB Stuttgart vs. Bayern, Bundesliga Matchday 13**: [Link](https://fcbayern.com/en/matches/profis/bundesliga/2025-2026/vfb-stuttgart-fc-bayern-muenchen-06-12-2025/preview)
@@ -957,75 +1025,5 @@ Sin noticias relacionadas disponibles.
 - **Cierran la Costa Verde por Juegos Bolivarianos 2025: revisa el plan de desvío este 3 de diciembre**: [Link](https://larepublica.pe/sociedad/2025/12/02/a-que-hora-es-el-cierre-de-la-costa-verde-este-2-y-3-de-diciembre-revisa-el-plan-de-desvios-por-los-juegos-bolivarianos-54388)
 - **Costa Verde cierra este 2 y 3 de Diciembre: Consulta los HORARIOS y desvíos por los Juegos Bolivarianos**: [Link](https://elcomercio.pe/respuestas/cual/costa-verde-cierra-este-2-y-3-de-diciembre-consulta-los-horarios-y-desvios-por-los-juegos-bolivarianos-tdpe-noticia/)
 - **Los pelotudos de la Costa Verde**: [Link](https://sudaca.pe/noticia/opinion/rik-ahrdo-los-pelotudos-de-la-costa-verde/)
-
-
-### excel infieles perú (N/A, 03/12/2025 07:55 Lima)
-
-- **La lista negra de las girls: ¿qué delitos enfrentarían quienes expusieron datos de supuestos infieles?**: [Link](https://lpderecho.pe/la-lista-negra-de-las-girls-delitos-enfrentarian-exponer-datos-infieles/)
-- **¿Eliminaron ‘La lista negra de las girls’? Polémico registro de hombres infieles causó furor en redes sociales**: [Link](https://www.infobae.com/peru/2025/11/30/eliminaron-la-lista-negra-de-las-girls-polemico-registro-de-hombres-infieles-causo-furor-en-redes-sociales/)
-- **¿Es un delito exponer los datos y testimonios sobre personas "infieles"?**: [Link](https://www.americatv.com.pe/noticias/util-e-interesante/delito-exponer-datos-personales-lista-infieles-peru-n513562)
-
-
-### fiscal henry amenábar almonte (N/A, 03/12/2025 07:55 Lima)
-
-- **Miraflores: Policía detiene a fiscal acusado por recibir coima de 3 mil dólares en baño de centro comercial [VIDEO]**: [Link](https://rpp.pe/lima/actualidad/miraflores-policia-detiene-a-un-fiscal-investigado-por-recibir-una-coima-de-3-mil-dolares-video-noticia-1666285)
-- **Fiscal Henry Amenábar fue intervenido por presunto soborno en baño de centro comercial en operativo conjunto**: [Link](https://canaln.pe/actualidad/intervienen-fiscal-henry-amenabar-presunto-soborno-bano-n488700)
-- **Fiscal es detenido en baño de Saga Falabella por presunto cobro de USD 3 mil a investigado por estafa**: [Link](https://www.infobae.com/peru/2025/12/03/fiscal-es-detenido-en-bano-de-saga-falabella-por-presunto-cobro-de-usd-3-mil-a-investigado-por-estafa/)
-
-
-### seth curry (N/A, 03/12/2025 03:35 Lima)
-
-- **Warriors sign Seth Curry for remainder of season**: [Link](https://www.espn.com/nba/story/_/id/47150406/warriors-sign-seth-curry-remainder-season-sources-say)
-- **NBA trade rumors: Golden State Warriors could eye $27 million Dallas Mavericks superstar to support Steph**: [Link](https://timesofindia.indiatimes.com/sports/nba/top-stories/nba-trade-rumors-golden-state-warriors-could-eye-27-million-dallas-mavericks-superstar-to-support-stephen-curry-buddy-hield-key-trade-asset/articleshow/125730765.cms)
-- **Steve Kerr Unsure on Impending Roster Decision Ahead of Seth Curry’s Warriors Debut**: [Link](https://www.essentiallysports.com/nba-active-basketball-news-steve-kerr-unsure-on-impending-roster-decision-ahead-of-seth-curry-s-warriors-debut/)
-
-
-### mon laferte peru (N/A, 03/12/2025 03:35 Lima)
-
-- **Mon Laferte vuelve al Perú con su gira “Femme Fatale”: ¿Cuándo y dónde será su concierto?**: [Link](https://elcomercio.pe/luces/musica/mon-laferte-vuelve-al-peru-con-su-gira-femme-fatale-cuando-y-donde-sera-su-concierto-celebs-ultimas-noticia/)
-- **Mon Laferte vuelve al Perú: fecha, lugar y entradas para su concierto en Lima**: [Link](https://www.infobae.com/peru/2025/12/02/mon-laferte-vuelve-al-peru-fecha-lugar-y-entradas-para-su-concierto-en-lima/)
-- **Mon Laferte, en el club de los amores perros**: [Link](https://elpais.com/babelia/2025-11-29/mon-laferte-en-el-club-de-los-amores-perros.html)
-
-
-### warriors - thunder (N/A, 02/12/2025 23:33 Lima)
-
-- **Oklahoma City Thunder vs Golden State Warriors Prediction, Pick, Odds -- 12/2**: [Link](https://www.actionnetwork.com/nba/oklahoma-city-thunder-vs-golden-state-warriors-prediction-pick-odds-tuesday-december-2)
-- **Betr Picks Promo 'COVERSBONUS' Unlocks A $10 on Sign-Up 50% Deposit Bonus Up To $200 For Thunder vs Warriors**: [Link](https://www.covers.com/daily-promos/betr-picks-promo-code-nba-thunder-warriors-12-02-2025)
-- **How to watch Thunder-Warriors NBA game free livestream tonight**: [Link](https://www.al.com/tv/2025/12/how-to-watch-thunder-warriors-nba-game-free-livestream-tonight.html)
-
-
-### karol g (N/A, 02/12/2025 23:33 Lima)
-
-- **Indecopi: ningún bar u otro negocio puede reproducir música de Spotify o YouTube**: [Link](https://lpderecho.pe/bar-denunciado-reproducir-musica-spotify/)
-- **Indecopi sanciona a restobar por reproducir música de YouTube y Spotify: uso comercial requiere una licencia especial, según resolución**: [Link](https://larepublica.pe/economia/2025/12/02/indecopi-sanciona-a-restobar-por-reproducir-musica-de-youtube-y-spotify-uso-comercial-requiere-una-licencia-especial-segun-resolucion-atmp-81450)
-- **Reproducir Spotify o YouTube en negocios está prohibido según Indecopi: bar de Miraflores denunciado por usar música de Karol G**: [Link](https://www.infobae.com/peru/2025/12/02/reproducir-spotify-o-youtube-en-negocios-esta-prohibido-segun-indecopi-bar-de-miraflores-denunciado-por-usar-musica-de-karol-g/)
-
-
-### samantha batallanos (N/A, 02/12/2025 23:33 Lima)
-
-- **Magaly Medina cuestiona el estilo de vida de Samantha Batallanos luego de presumir lujoso penthouse en San Isidro**: [Link](https://www.infobae.com/peru/2025/12/02/magaly-medina-cuestiona-el-estilo-de-vida-de-samantha-batallanos-luego-de-presumir-lujoso-penthouse-en-san-isidro/)
-- **"Álvaro Rod no iba a poder pagar penthouse de Samantha"**: [Link](https://www.americatv.com.pe/america-hoy/alvaro-no-iba-poder-pagar-penthouse-samantha-segun-edson-noticia-161683)
-- **Samantha Batallanos vive en lujoso penthouse de San Isidro ¡Con un alquiler de más de 12 mil soles mensuales!**: [Link](https://www.atv.pe/noticia/samantha-batallanos-vive-en-lujoso-penthouse-de-san-isidro-con-un-alquiler-de-mas-de-12-mil-soles-mensuales/)
-
-
-### diego bertie (N/A, 02/12/2025 23:33 Lima)
-
-- **Imitador de Diego Bertie cautivó en su segunda presentación de Yo Soy, pero no se salvó de observaciones del jurado**: [Link](https://www.infobae.com/peru/2025/12/02/imitador-de-diego-bertie-cautivo-en-su-segunda-presentacion-de-yo-soy-pero-no-se-salvo-de-observaciones-del-jurado/)
-- **Yo Soy conciertos 2025: ¡Diego Bertie sorprende… y divide opiniones en el set!**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-conciertos-2025-diego-bertie-sorprende-y-divide-opiniones-en-el-set_20251201/)
-- **Imitador de Diego Bertie FASCINÓ en la segunda presentación de ‘Yo soy’, pero no se salvó de un jalón de orejas de Ricardo Morán**: [Link](https://wapa.pe/espectaculos-y-tv/farandula/2025/12/02/imitador-diego-bertie-fascino-en-segunda-presentacion-yo-soy-pero-no-se-salvo-jalon-orejas-ricardo-moran-90398)
-
-
-### pablo escobar (N/A, 02/12/2025 23:33 Lima)
-
-- **El final de Pablo Emilio Escobar: las últimas horas del rey de la huida que ya no sabía cómo escapar**: [Link](https://www.infobae.com/historias/2025/12/02/el-final-de-pablo-emilio-escobar-las-ultimas-horas-del-rey-de-la-huida-que-ya-no-sabia-como-escapar/)
-- **La historia de la foto que mostró en la morgue de Medellín el final de Pablo Escobar**: [Link](https://www.las2orillas.co/la-historia-detras-de-la-foto-que-mostro-en-la-morgue-de-medellin-el-final-de-pablo-escobar/)
-- **2 de diciembre: un día para recordar el dolor, no el mito de Pablo Escobar**: [Link](https://elnuevodiario.com.do/2-de-diciembre-un-dia-para-recordar-el-dolor-no-el-mito-de-pablo-escobar/)
-
-
-### al vs (N/A, 02/12/2025 23:33 Lima)
-
-- **Bama wins Iron Bowl, to face Georgia for SEC title**: [Link](https://www.espn.com/college-football/story/_/id/47146139/alabama-wins-iron-bowl-face-georgia-sec-title)
-- **Alabama's AP Poll ranking revealed following Iron Bowl win vs. Auburn**: [Link](https://rolltidewire.usatoday.com/story/sports/college/crimson-tide/football/2025/11/30/alabama-football-ap-poll-ranking-auburn-tigers-iron-bowl-win/87540174007/)
-- **Auburn rally not enough in 27-20 Iron Bowl loss**: [Link](https://auburntigers.com/news/2025/11/30/auburn-rally-not-enough-in-27-20-iron-bowl-loss)
 
 
