@@ -1,3 +1,73 @@
+### stuttgart vs. bayern (N/A, 06/12/2025 11:29 Lima)
+
+- **Preview: VfB Stuttgart vs. Bayern, Bundesliga Matchday 13**: [Link](https://fcbayern.com/en/matches/profis/bundesliga/2025-2026/vfb-stuttgart-fc-bayern-muenchen-06-12-2025/preview)
+- **Stuttgart coach Hoeness ahead of Bayern clash: 'We want to put them under real pressure and play with lot of bravery'**: [Link](https://tribuna.com/en/news/2025-12-05-stuttgart-coach-hoeness-ahead-of-bayern-clash-we-want-to-put-them-under-real-pressure-and/)
+- **Prolific Kane and Undav Face Off as Bayern Head to Stuttgart**: [Link](https://english.aawsat.com/sports/5216209-prolific-kane-and-undav-face-bayern-head-stuttgart)
+
+
+### bayer leverkusen vs (N/A, 06/12/2025 11:29 Lima)
+
+- **Preview: Augsburg vs Bayer Leverkusen - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/augsburg/preview/augsburg-vs-b-leverkusen-prediction-team-news-lineups_587165.html)
+- **Germany Bundesliga Soccer**: [Link](https://www.wvnews.com/sports/pro/germany-bundesliga-soccer/image_866c4d17-391f-557e-9a1c-07cbce1a5cc0.html)
+- **'We're not tired, we love games' – Leverkusen boss Hjulmand brushes off fatigue**: [Link](https://www.beinsports.com/en-us/soccer/bundesliga/articles/were-not-tired-we-love-games--leverkusen-boss-hjulmand-brushes-off-fatigue-2025-12-05)
+
+
+### heerenveen - psv (N/A, 06/12/2025 11:29 Lima)
+
+- **VI Live: PSV trapt af in Heerenveen**: [Link](https://www.vi.nl/nieuws/vi-live-sc-heerenveen-tegen-psv)
+- **Koploper PSV met Pepi en Wanner tegen Heerenveen • Later nog Ajax en Feyenoord**: [Link](https://nos.nl/liveblog/2593434-koploper-psv-met-pepi-en-wanner-tegen-heerenveen-later-nog-ajax-en-feyenoord)
+- **Live Eredivisie | Heerenveen krijgt mogelijkheden in openingsfase tegen PSV**: [Link](https://www.nu.nl/voetbal/6378527/live-eredivisie-heerenveen-krijgt-mogelijkheden-in-openingsfase-tegen-psv.html)
+
+
+### leverkusen vs (N/A, 06/12/2025 11:29 Lima)
+
+- **RB Leipzig: EM-Push für Frauen-Team vor Leverkusen-Match - News vom 05.12.2025**: [Link](https://www.lvz.de/sport/regional/rb-leipzig-em-push-fuer-frauen-team-vor-leverkusen-match-news-vom-05-12-2025-FEUNU4PZA4TRPOCCO5RAO35JFA.html)
+- **Bayer-Torjägerin Vanessa Fudalla: "Ich würde nicht Nein sagen"**: [Link](https://www.dfb.de/news/bayer-torjaegerin-vanessa-fudalla-ich-wuerde-nicht-nein-sagen)
+- **Rückkehrerin Cornelia Kramer entfacht bei Bayers Frauen neuen Mut**: [Link](https://www.fupa.net/news/rueckkehrerin-cornelia-kramer-entfacht-bei-bayers-frauen-neuen-mut-3150214)
+
+
+### wolfsburg - fc union berlin (N/A, 06/12/2025 11:29 Lima)
+
+- **Baumgart: "Dieses Heidenheim-Spiel hängt uns allen noch im Nacken"**: [Link](https://www.kicker.de/baumgart-dieses-heidenheim-spiel-haengt-uns-allen-noch-im-nacken-1172709/artikel)
+- **Liveticker | VfL Wolfsburg - 1. FC Union Berlin 2:0 | 13. Spieltag | Bundesliga 2025/26**: [Link](https://www.kicker.at/wolfsburg-gegen-union-2025-bundesliga-5050862/ticker)
+- **Kann der 1. FC Union bei heimschwachen Wolfsburgern wieder punkten?**: [Link](https://www.rbb24.de/sport/beitrag/2025/12/fussball-bundesliga-union-berlin-vfl-wolfsburg-audiostream-spielbericht.html)
+
+
+### alavés - real sociedad (N/A, 06/12/2025 11:29 Lima)
+
+- **Alavés - Real Sociedad en directo: LaLiga EA Sports hoy, en vivo**: [Link](https://as.com/futbol/primera/alaves-real-sociedad-en-directo-laliga-ea-sports-hoy-en-vivo-f202512-d/)
+- **Apuestas y Pronóstico del Alavés vs Real Sociedad 06/12/25**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/2025/diciembre/pronostico-alaves-vs-real-sociedad-06-12-25)
+- **🔴La Liga EN VIVO: Jon Martín, al palo y el Alaves-Real sigue 0-0**: [Link](https://onefootball.com/es/noticias/la-liga-en-vivo-jon-martin-al-palo-y-el-alaves-real-sigue-0-0-42056346)
+
+
+### arsenal football club (N/A, 06/12/2025 11:29 Lima)
+
+- **Teams news: Odegaard one of three changes for Bees**: [Link](https://www.arsenal.com/news/teams-news-odegaard-one-three-changes-bees)
+- **Arsenal get injured star back for Brentford at ‘ideal’ time for Arteta**: [Link](https://www.standard.co.uk/sport/football/arsenal-fc-odegaard-return-ideal-time-arteta-b1260911.html)
+- **Arsenal star set to make first start in two months against Brentford**: [Link](https://www.independent.co.uk/bulletin/sport/martin-odegaard-arsenal-brentford-team-news-b2877532.html)
+
+
+### manchester city - sunderland afc (N/A, 06/12/2025 11:29 Lima)
+
+- **Preview: Manchester City vs Sunderland - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/man-city/preview/man-city-vs-sunderland-prediction-team-news-lineups_587040.html)
+- **'Used to pray for times like this': Fans happy to see one Man City player in the starting XI vs Sunderland**: [Link](https://tribuna.com/en/blogs/used-to-pray-for-times-like-this-fans-happy-to-see-one-man-c/)
+- **🚨Guardiola goes all out to close the gap in the Premier League**: [Link](https://sports.yahoo.com/articles/guardiola-goes-close-gap-premier-134800833.html)
+
+
+### bournemouth - chelsea (N/A, 06/12/2025 11:29 Lima)
+
+- **Cole Palmer returns to Chelsea starting line up vs Bournemouth | News | Official Site**: [Link](https://www.chelseafc.com/en/news/article/cole-palmer-returns-to-chelsea-starting-line-up-vs-bournemouth)
+- **Enzo Maresca provides concerning Romeo Lavia update ahead of Bournemouth clash**: [Link](https://chelsea.news/2025/12/enzo-maresca-romeo-lavia-latest/)
+- **Iraola on team news, Tavernier's reaction and Chelsea**: [Link](https://sports.yahoo.com/articles/iraola-team-news-taverniers-reaction-141726811.html)
+
+
+### newcastle - burnley (N/A, 06/12/2025 11:29 Lima)
+
+- **Lewis Hall omission from Newcastle United XI explained as star benched for Burnley clash**: [Link](https://www.chroniclelive.co.uk/sport/football/football-news/lewis-hall-omission-newcastle-united-33013151)
+- **Burnley (H) – Pre-match thoughts, team news, possible XI and prediction**: [Link](https://www.nufcblog.co.uk/2025/12/05/burnley-h-pre-match-thoughts-team-news-possible-xi-and-prediction/)
+- **Read Eddie Howe's pre-Burnley programme notes**: [Link](https://onefootball.com/de/news/read-eddie-howes-pre-burnley-programme-notes-42055689)
+
+
 ### villarreal - getafe (N/A, 06/12/2025 07:48 Lima)
 
 - **Apuestas y Pronóstico del Villarreal vs Getafe 06/12/25**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/2025/diciembre/pronostico-villarreal-vs-getafe-06-12-25)
@@ -957,74 +1027,5 @@ Sin noticias relacionadas disponibles.
 - **Bama wins Iron Bowl, to face Georgia for SEC title**: [Link](https://www.espn.com/college-football/story/_/id/47146139/alabama-wins-iron-bowl-face-georgia-sec-title)
 - **Alabama's AP Poll ranking revealed following Iron Bowl win vs. Auburn**: [Link](https://rolltidewire.usatoday.com/story/sports/college/crimson-tide/football/2025/11/30/alabama-football-ap-poll-ranking-auburn-tigers-iron-bowl-win/87540174007/)
 - **Auburn rally not enough in 27-20 Iron Bowl loss**: [Link](https://auburntigers.com/news/2025/11/30/auburn-rally-not-enough-in-27-20-iron-bowl-loss)
-
-
-### celtics - knicks (N/A, 02/12/2025 23:33 Lima)
-
-- **Jayson Tatum (42 points), Jordan Walsh help Celtics deny Knicks**: [Link](https://www.bostonglobe.com/2025/12/02/sports/jayson-tatum-celtics-knicks-nba/?p1=SectionFront_Feed_AuthorQuery)
-- **Bet365 Bonus Code 'COVERS': Bet $5, Get $150, Win or Lose For Knicks vs Celtics**: [Link](https://www.covers.com/daily-promos/bet365-bonus-code-nba-knicks-celtics-12-02-2025)
-- **Knicks can’t overcome brutal Jalen Brunson performance in loss to Celtics**: [Link](https://nypost.com/2025/12/02/sports/knicks-cant-overcome-brutal-jalen-brunson-performance-in-loss-to-celtics/)
-
-
-### luis abram (N/A, 02/12/2025 23:33 Lima)
-
-- **¡Qué mala suerte! La lesión de Luis Abram en Sporting Cristal vs. Alianza Lima**: [Link](https://depor.com/futbol-peruano/descentralizado/lesion-luis-abram-en-sporting-cristal-vs-alianza-lima-salio-del-partido-para-ingreso-de-nicolas-pasquini-playoffs-liga-1-2025-video-noticia/)
-- **Luis Abram sufrió una fuerte lesión y salió en camilla del Sporting Cristal vs Alianza Lima**: [Link](https://libero.pe/futbol-peruano/sporting-cristal/2025/12/02/luis-abram-sufrio-fuerte-lesion-salio-en-camilla-del-sporting-cristal-vs-alianza-lima-40354)
-- **Alianza Lima vs Sporting Cristal 1-1: goles y resumen del empate por semifinales ida de los ‘play-offs’ de la Liga 1 2025**: [Link](https://www.infobae.com/peru/deportes/2025/12/02/alianza-lima-vs-sporting-cristal-en-vivo-hoy-l1max-partido-semifinales-ida-play-offs-liga-1-2025-goles-resumen-resultado/)
-
-
-### pelota (N/A, 02/12/2025 23:33 Lima)
-
-- **Arsenal y la pelota parada: así es el trabajo del mejor equipo de Europa hoy**: [Link](https://www.espn.com.ar/futbol/inglaterra/nota/_/id/16035519/arsenal-y-la-pelota-parada-asi-es-el-trabajo-del-mejor-equipo-de-europa-hoy-premier-league)
-- **El largo camino del Arsenal para volver a la élite europea**: [Link](https://lentedesportiva.com/es/el-largo-camino-del-arsenal-para-volver-a-la-elite-europea/)
-- **La temporada que lo cambia todo: el Arsenal, 'made in Arteta', ante su mayor oportunidad en 21 años para recuperar la gloria**: [Link](https://www.elespanol.com/deportes/futbol/20251130/temporada-cambia-arsenal-made-in-arteta-mayor-oportunidad-anos-recuperar-gloria/1003744035897_0.html)
-
-
-### pol deportes (N/A, 02/12/2025 23:33 Lima)
-
-- **Peter Arévalo invitó a Pol Deportes a narrar en vivo el Alianza Lima vs Sporting Cristal: “El fútbol te dará el lugar que mereces”**: [Link](https://www.infobae.com/peru/deportes/2025/12/03/peter-arevalo-invito-a-pol-deportes-a-narrar-en-vivo-el-alianza-lima-vs-sporting-cristal-el-futbol-te-dara-el-lugar-que-mereces/)
-- **¡Pol Deportes en el Sporting Cristal vs. Alianza Lima! Emotivo momento en el Nacional**: [Link](https://depor.com/futbol-peruano/descentralizado/sporting-cristal-vs-alianza-lima-pol-deportes-sueno-cumplido-y-emotivo-momento-en-la-previa-de-los-playoffs-de-la-liga-1-video-noticia/)
-- **Conoce la historia de "Pol Deportes" joven que se ha vuelto viral por narrar la final de la Libertadores desde un cerro**: [Link](https://caretas.pe/sociedad/conoce-la-historia-de-pol-noticias-joven-que-se-ha-vuelto-viral-por-narrar-la-final-de-la-libertadores-desde-un-cerro/)
-
-
-### vizeu (N/A, 02/12/2025 20:59 Lima)
-
-- **Sporting Cristal empieza a moverse: la opción brasilera para reemplazar a Felipe Vizeu**: [Link](https://www.topmercato.com/pe/1942119-sporting-cristal-empieza-a-moverse-la-opcion-brasilera-para-reemplazar-a-felipe-vizeu/)
-- **Felipe Vizeu confesó detalles de su rendimiento en Sporting Cristal y espera su revancha en 2026: “Conmigo no puede ser diferente”**: [Link](https://www.infobae.com/peru/deportes/2025/12/01/felipe-vizeu-confeso-detalles-de-su-rendimiento-en-sporting-cristal-y-espera-su-revancha-en-2026-conmigo-no-puede-ser-diferente/)
-- **Vizeu no se guardó nada y dio contundente calificativo a Alianza previo a la semifinal: "Son..."**: [Link](https://libero.pe/futbol-peruano/sporting-cristal/2025/12/01/felipe-vizeu-se-guardo-nada-dio-contundente-calificativo-alianza-lima-previo-semifinal-son-34607)
-
-
-### paolo guerrero (N/A, 02/12/2025 20:59 Lima)
-
-- **Guillermo Enrique aclaró rumores de conflictos internos en Alianza Lima: “Me duele todo esto”**: [Link](https://depor.com/futbol-peruano/descentralizado/guillermo-enrique-hablo-sobre-problemas-en-alianza-lima-descarto-pelea-con-paolo-guerrero-y-nestor-gorosito-liga-1-noticia/)
-- **¿Problemas en la interna de Alianza Lima? Paolo Guerrero habría tenido PELEA con un compañero**: [Link](https://www.exitosanoticias.pe/deportes/problemas-interna-alianza-lima-paolo-guerrero-habria-tenido-pelea-companero-n163618)
-- **Revelan fuerte discusión entre Enrique y referente de Alianza que provocó su salida: "Se mecharon"**: [Link](https://libero.pe/futbol-peruano/alianza-lima/2025/11/27/revelan-fuerte-discusion-guillermo-enrique-referente-de-alianza-lima-provoco-su-salida-se-mecharon-video-1147095)
-
-
-### santiago gonzález (N/A, 02/12/2025 20:59 Lima)
-
-- **Alianza Lima se salvó: Santiago González estrelló su remate al palo tras tiro libre [VIDEO]**: [Link](https://rpp.pe/futbol/descentralizado/video-alianza-lima-vs-sporting-cristal-santiago-gonzalez-casi-anota-de-tiro-libre-y-su-remata-choca-en-palo-noticia-1666289)
-- **Alianza se salva: Tiro libre de González pega en el palo | VIDEO**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/alianza-lima-se-salva-tiro-libre-de-santiago-gonzalez-pega-en-el-palo-sporting-cristal-video-noticia/)
-
-
-### pelota libre en vivo (N/A, 02/12/2025 20:59 Lima)
-
-- **El líder Arsenal buscará volver al triunfo en la Premier ante Brentford**: [Link](https://www.espn.com.ar/futbol/inglaterra/nota/_/id/16031664/arsenal-vs-brentford-por-la-premier-league-equipo-fecha-hora-y-tv-en-vivo)
-- **Arsenal vs Brentford Pronóstico y Apuestas Premier League | 03/12/25**: [Link](https://www.goal.com/es/apuestas/arsenal-vs-brentford-pronostico-apuestas-03-12-25/blte149fd60686da8ff)
-- **Ni Magis TV ni Pelota Libre: cómo ver Arsenal vs Brentford EN VIVO por Internet**: [Link](https://noticiasargentinas.com/deportes/ni-magis-tv-ni-pelota-libre--como-ver-arsenal-vs-brentford-en-vivo-por-internet_a692f2fb976ccfa999100f99b)
-
-
-### avatar 3 (N/A, 02/12/2025 20:59 Lima)
-
-- **Avatar: Fire and Ash First Reactions: An Epic, Immersive, Visual Feast that Must Be Seen in Theaters**: [Link](https://editorial.rottentomatoes.com/article/avatar-fire-and-ash-first-social-reactions/)
-- **'Avatar: Fire and Ash' First Reactions Praise James Cameron Sequel**: [Link](https://variety.com/2025/film/news/avatar-fire-and-ash-first-reactions-james-cameron-1236596177/)
-- **‘Avatar: Fire And Ash’ World Premiere Gallery: Zoe Saldaña, Sam Worthington, Sigourney Weaver & James Cameron Attend**: [Link](https://deadline.com/gallery/avatar-fire-and-ash-world-premiere-gallery/)
-
-
-### sc vs (N/A, 02/12/2025 20:59 Lima)
-
-- **Orense SC vs. LDU Quito - Live Score - December 06, 2025**: [Link](https://www.foxsports.com/soccer/ecuadorian-liga-pro-orense-sc-vs-ldu-quito-dec-06-2025-game-boxscore-646935)
-- **Oregon men’s basketball circling the wagons ahead of Big Ten opener against USC**: [Link](https://www.oregonlive.com/ducks/2025/12/oregon-mens-basketball-circling-the-wagons-ahead-of-big-ten-opener-against-usc.html)
-- **Dana Altman Takes Full Blame as Ducks Search for Answers Ahead of USC**: [Link](https://247sports.com/college/oregon/article/altman-takes-blame-oregon-basketball-searching-for-answers-usc-preview-264299501/)
 
 
