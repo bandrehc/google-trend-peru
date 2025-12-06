@@ -1,3 +1,31 @@
+### it (N/A, 06/12/2025 03:31 Lima)
+
+- **Newberry College prepares to take on Albany State in quarterfinals of the NCAA Division II playoffs**: [Link](https://www.wistv.com/2025/12/03/newberry-college-prepares-take-albany-state-quarterfinals-ncaa-division-ii-playoffs/)
+- **Wolves late game heroics lead to 24-17 playoff victory**: [Link](https://www.abccolumbia.com/2025/11/29/wolves-late-game-heroics-lead-to-24-17-playoff-victory/)
+- **SALUTE TO OUR MILITARY: Capt James Smith**: [Link](https://weartv.com/features/salute-to-our-military/salute-to-our-military-capt-james-smith-11-25-2025)
+
+
+### julinho (N/A, 06/12/2025 03:31 Lima)
+
+- **Brenda Carvalho y Julinho revelan si volverían a Brasil: "Nosotros ya somos peruanos"**: [Link](https://www.atv.pe/noticia/brenda-carvalho-y-julinho-revelan-si-volverian-a-brasil-nosotros-ya-somos-peruanos/)
+- **¡Aquí la portada del Diario Expreso para este domingo 30 noviembre de 2025! 📲 Visita nuestra web: https://www.expreso.com.pe/**: [Link](https://www.facebook.com/diario.expreso/posts/aqu%C3%AD-la-portada-del-diario-expreso-para-este-domingo-30-noviembre-de-2025-visita/1272789828211959/)
+- **Julinho y Brenda Carvalho: Una historia de amor con mucha química**: [Link](https://www.atv.pe/noticia/julinho-y-brenda-carvalho-una-historia-de-amor-con-mucha-quimica/)
+
+
+### aston villa vs arsenal (N/A, 06/12/2025 03:31 Lima)
+
+- **Preview: Aston Villa vs Arsenal - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/arsenal/preview/aston-villa-vs-arsenal-prediction-team-news-lineups_587068.html)
+- **Alan Shearer's Premier League Previews: Shearer Predictions MD15**: [Link](https://onefootball.com/it/notizie/alan-shearers-premier-league-previews-shearer-predictions-md15-42052795)
+- **Saturday’s Football Tips: Boost Your Bankroll with a Fouls Bet Builder as Villa Aim to Defeat Arsenal – SCCG Management**: [Link](https://sccgmanagement.com/sccg-news/2025/12/5/saturdays-football-tips-boost-your-bankroll-with-a-fouls-bet-builder-as-villa-aim-to-defeat-arsenal-sccg-management/)
+
+
+### ufc 323 (N/A, 06/12/2025 03:31 Lima)
+
+- **UFC 323 Walkout Songs: List of Entrance Music Used by Merab Dvalishvili, Petr Yan, Alexandre Pantoja, and Others**: [Link](https://www.essentiallysports.com/ufc-mma-news-ufc-323-walkout-songs-list-of-entrance-music-used-by-merab-dvalishvili-petr-yan-alexandre-pantoja-and-others/)
+- **Video: UFC 323 ‘Embedded,’ Ep. 5**: [Link](https://www.sherdog.com/videos/misc.video/Video-UFC-323-Embedded-Ep-5-23052)
+- **Merab Dvalishvili Successfully Hits Championship Weight for UFC 323**: [Link](https://bvmsports.com/2025/12/05/merab-dvalishvili-successfully-hits-championship-weight-for-ufc-323/)
+
+
 ### brenda carvalho (N/A, 05/12/2025 23:28 Lima)
 
 - **"Ya me habían traído un cura": Brenda Carvalho revela que una "parálisis intestinal" la puso al borde de la muerte**: [Link](https://rpp.pe/famosos/farandula/brenda-carvalho-revela-que-una-paralisis-intestinal-la-puso-al-borde-de-la-muerte-noticia-1666658)
@@ -998,33 +1026,5 @@ Sin noticias relacionadas disponibles.
 - **Universidad de Chile desafía a Coquimbo Unido por la penúltima fecha de la Liga de Primera 2025**: [Link](https://www.espn.com.ar/futbol/chile/nota/_/id/16014515/universidad-de-chile-vs-coquimbo-unido-fecha-29-liga-de-primera-equipo-fecha-y-hora)
 - **Declaración pública: localía del partido ante Coquimbo Unido**: [Link](https://www.udechile.cl/noticias/declaracion-publica-localia-del-partido-ante-coquimbo-unido)
 - **La U defiende hoy uno de sus mayores orgullos de la historia: 61 años de dominio en un partido**: [Link](https://chile.as.com/futbol/la-u-defiende-hoy-uno-de-sus-mayores-orgullos-de-la-historia-61-anos-de-dominio-en-un-partido-f202512-n/)
-
-
-### libre futbol (N/A, 02/12/2025 15:30 Lima)
-
-- **Tras ganar la Libertadores: Flamengo renombró el Monumental con un apodo inesperado y Universitario lo conf...**: [Link](https://bolavip.com/pe/copa-libertadores/tras-ganar-la-libertadores-flamengo-renombro-el-monumental-con-un-apodo-inesperado-y-universitario-lo-confirmo)
-- **La Javier Prado de rojo y verde y el óvalo Huarochirí tomado por brasileños: crónica de la fiesta de la Libertadores afuera del Monumental**: [Link](https://elcomercio.pe/lima/la-javier-prado-de-verde-y-rojo-y-el-ovalo-huarochiri-tomado-por-brasilenos-cronica-de-la-fiesta-de-la-libertadores-afuera-del-monumental-copa-libertadores-palmeiras-flamengo-estadio-monumental-noticia/)
-- **"Forjan leyendas": Filipe Luis elogió al estadio Monumental tras ganar nuevamente con Flamengo la Copa Libertadores en Lima**: [Link](https://rpp.pe/futbol/copa-libertadores/flamengo-filipe-luis-elogio-al-estadio-monumental-tras-ganar-nuevamente-la-copa-libertadores-en-lima-palmeiras-noticia-1665982)
-
-
-### juventus vs udinese (N/A, 02/12/2025 15:30 Lima)
-
-- **Coppa Italia: Juventus vs. Udinese – probable line-ups and where to watch on TV**: [Link](https://football-italia.net/juventus-udinese-probable-line-ups-watch-on-tv/)
-- **Juventus v Udinese preview**: [Link](https://www.udinese.it/news/squad/juventus-v-udinese-preview)
-- **Spalletti: We're in the Italian Cup to win it**: [Link](https://www.juventus.com/en/news/articles/spalletti-we-re-in-the-italian-cup-to-win-it-01-12-25)
-
-
-### tarjeta roja (N/A, 02/12/2025 15:30 Lima)
-
-- **La desagradable agresión de una estrella de los Springboks a un rival cuando ganaban 73-0: podría recibir una severa sanción**: [Link](https://www.infobae.com/deportes/2025/11/29/la-desagradable-agresion-de-una-estrella-de-los-springboks-a-un-rival-cuando-ganaban-73-0-podria-recibir-una-severa-sancion/)
-- **VIDEO | Brutal agresión en un partido de rugby: "Si es lo que parece, no es una buena imagen”**: [Link](https://www.t13.cl/noticia/deportes13/video-brutal-agresion-partido-rugby-si-lo-parece-no-una-buena-imagen-30-11-2025)
-- **Eddie Jones señala "problemas mayores" que el "incidente menor" de Etzebeth en la victoria de Bok**: [Link](https://masmma.com.mx/noticias/eddie-jones-senala-problemas-mayores-que-el-incidente-menor-de-etzebeth-en-la-victoria-de-bok/130115/)
-
-
-### chatgpt (N/A, 02/12/2025 15:30 Lima)
-
-- **OpenAI Declares ‘Code Red’ as Google Threatens AI Lead**: [Link](https://www.wsj.com/tech/ai/openais-altman-declares-code-red-to-improve-chatgpt-as-google-threatens-ai-lead-7faf5ea6?gaa_at=eafs&gaa_n=AWEtsqdV7sgH3PZHxT7am4bJRuScjZzKmxruxt61SJG2nSSuo0HD1uzZSQ2_&gaa_ts=692f4f87&gaa_sig=4Fac_te8K_L7TUACAw1Wsi7Dm8fy-pu1_eUkzdxFkUcZonrxM1rebQQ551X1CQTWXXH_VzoJ8DZyrgHkKNPMdw%3D%3D)
-- **OpenAI’s Sam Altman declares ‘code red’ to improve ChatGPT as Google catches up: reports**: [Link](https://nypost.com/2025/12/02/business/openais-sam-altman-declares-code-red-to-improve-chatgpt-as-google-catches-up/)
-- **Sam Altman issues ‘code red’ at OpenAI as ChatGPT contends with rivals**: [Link](https://www.theguardian.com/technology/2025/dec/02/sam-altman-issues-code-red-at-openai-as-chatgpt-contends-with-rivals)
 
 
