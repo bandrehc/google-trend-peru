@@ -1,3 +1,73 @@
+### bogotá (N/A, 06/12/2025 21:09 Lima)
+
+- **Cambian los viajes de fin de año en la Terminal de Transporte de Bogotá: nueva medida impactará a millones ...**: [Link](https://redmas.com.co/colombia/cambian-los-viajes-de-fin-de-ano-en-la-terminal-de-transporte-de-bogota-nueva-medida-impactara-a-millones-de-pasajeros-20251206-0009.html)
+- **Cámaras de fotomultas en Bogotá: estos son los nuevos puntos instalados en la ciudad**: [Link](https://www.lafm.com.co/actualidad/camaras-de-fotomultas-en-bogota-lista-de-nuevos-puntos-instalados-384149)
+- **Nuevas cámaras de fotodetección en Bogotá: conductores no podrán exceder 20 km/h porque serán sancionados**: [Link](https://www.infobae.com/colombia/2025/12/06/nuevas-camaras-de-fotodeteccion-en-bogota-conductores-no-podran-exceder-20-kmh-porque-seran-sancionados/)
+
+
+### paolo guerrero (N/A, 06/12/2025 21:09 Lima)
+
+- **Paolo y el romántico mensaje a Ana Paula por defenderlo**: [Link](https://www.americatv.com.pe/america-hoy/paolo-guerrero-y-romantico-mensaje-ana-paula-defenderlo-noticia-161764)
+- **Ana Paula envió fuerte mensaje a detractores de Paolo Guerrero: "No haces chismes, no creas conflictos"**: [Link](https://libero.pe/ocio/famosos/2025/12/04/ana-paula-envio-fuerte-mensaje-detractores-de-paolo-guerrero-haces-chismes-creas-conflictos-133500)
+- **Ana Paula Consorte respalda a Paolo Guerrero tras críticas en Alianza Lima: “A tus 41 años sigues vigente”**: [Link](https://www.infobae.com/peru/2025/12/04/ana-paula-consorte-respalda-a-paolo-guerrero-tras-criticas-en-alianza-lima-a-tus-41-anos-sigues-vigente/)
+
+
+### al vs (N/A, 06/12/2025 21:09 Lima)
+
+- **Alabama vs Georgia score, highlights: Bulldogs win SEC title game**: [Link](https://www.usatoday.com/story/sports/ncaaf/sec/2025/12/06/alabama-vs-georgia-football-score-live-updates-sec-championship-game/87591485007/)
+- **It's fair to question Alabama's College Football Playoff legitimacy after lopsided SEC Championship Game loss**: [Link](https://www.cbssports.com/college-football/news/alabama-college-football-playoff-legitimacy-sec-championship-game-loss/)
+- **Kalen DeBoer, Ty Simpson talk CFP, injuries after Georgia dominates Alabama in SEC Championship**: [Link](https://www.al.com/alabamafootball/2025/12/live-updates-kalen-deboer-speaks-after-georgia-dominates-alabama-in-sec-championship.html)
+
+
+### felipe vizeu (N/A, 06/12/2025 21:09 Lima)
+
+- **Uribe defendió a Sporting Cristal de críticas: “Tenemos la misma jerarquía que Alianza”**: [Link](https://depor.com/futbol-peruano/descentralizado/julio-cesar-uribe-sporting-cristal-vs-alianza-lima-jerarquia-de-los-celestes-y-panorama-de-renovaciones-liga-1-noticia/)
+- **Alianza Lima vs Sporting Cristal - Felipe Vizeu resbala cuando estaba solo y no pudo anotar el primer gol**: [Link](https://rpp.pe/futbol/descentralizado/alianza-lima-vs-sporting-cristal-felipe-vizeu-resbala-cuando-estaba-solo-y-no-pudo-anotar-el-primer-gol-noticia-1666295)
+- **Uribe dio tajante opinión sobre el blooper del '9' de Sporting Cristal: "Vizeu hizo..."**: [Link](https://libero.pe/futbol-peruano/sporting-cristal/2025/12/04/sporting-cristal-julio-cesar-uribe-dio-tajante-opinion-blooper-felipe-vizeu-alianza-lima-270648)
+
+
+### l1max (N/A, 06/12/2025 21:09 Lima)
+
+- **Magaly Medina pide a empresas beca para ‘Pol Deportes’ tras invitación a España: “Los sueños no tienen límites”**: [Link](https://www.infobae.com/peru/2025/12/04/magaly-medina-pide-a-empresas-beca-para-pol-deportes-tras-invitacion-a-espana-los-suenos-no-tienen-limites/)
+- **Manchester City dedica emotivo mensaje a 'Pol Deportes' y desea que narre un gol de Haaland al Real Madrid: "Nos encantaría"**: [Link](https://larepublica.pe/deportes/2025/12/04/manchester-city-dedica-emotivo-mensaje-a-pol-deportes-y-desea-que-narre-gol-de-erling-haaland-ante-real-madrid-por-champions-league-nos-encantaria-303888)
+- **‘Melcochita’ respalda a Pol Deportes tras su narración viral en la Copa Libertadores**: [Link](https://peru21.pe/espectaculos/melcochita-respalda-pol-deportes-tras-su-narracion-viral-copa-libertadores/)
+
+
+### liga1 (N/A, 06/12/2025 21:09 Lima)
+
+- **Partidos de hoy, sábado 6 de diciembre de 2025: programación, canales TV y resultados en vivo**: [Link](https://www.infobae.com/peru/deportes/2025/12/06/partidos-de-hoy-sabado-6-de-diciembre-de-2025-programacion-canales-tv-y-resultados-en-vivo/)
+- **Partidos de HOY EN VIVO: programación, horario y dónde ver fútbol gratis este sábado 6 de diciembre**: [Link](https://libero.pe/futbol-internacional/2025/12/05/partidos-en-vivo-hoy-sabado-6-de-diciembre-63620)
+- **Partidos que serán transmitidos EN VIVO por TV el sábado 6 de diciembre**: [Link](https://www.futbolperuano.com/partidos-por-tv/noticias/programacion-de-partidos-por-tv-del-sabado-6-de-diciembre-554251)
+
+
+### tarjeta roja (N/A, 06/12/2025 21:09 Lima)
+
+- **¿Cómo puede ayudar Luis Díaz para que el Bayern defienda mejor?**: [Link](https://www.espn.com.ar/futbol/alemania/nota/_/id/16046129/como-puede-ayudar-luis-diaz-para-que-el-bayern-defienda-mejor)
+- **UEFA responde pedido de Bayern y toma decisión con la fuerte sanción a Luis Díaz**: [Link](https://espndeportes.espn.com/futbol/champions-league/nota/_/id/16047682/uefa-responde-pedido-bayern-toma-decision-fuerte-sancion-luis-diaz)
+- **En pleno sorteo del Mundial 2026: Luis Díaz recibió la mejor noticia de todas**: [Link](https://bolavip.com/futbol-colombia/en-pleno-sorteo-del-mundial-2026-luis-diaz-recibio-la-mejor-noticia-de-todas)
+
+
+### directv (N/A, 06/12/2025 21:09 Lima)
+
+- **Así quedaron los grupos del Mundial 2026, tras el sorteo**: [Link](https://www.espn.com.pe/futbol/mundial/nota/_/id/15485766/mundial-2026-sorteo-fecha-bombos-clasificados-grupos)
+- **Gianni Infantino pidió disculpas a Lionel Scaloni tras negarle tocar la Copa del Mundo | VIDEO**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/argentina-gianni-infantino-pidio-disculpas-a-lionel-scaloni-tras-negarle-tocar-la-copa-del-mundo-video-noticia/)
+- **Argentina buscará retener la corona obtenida en Qatar 2022 y ya conoce a sus rivales en este Mundial que se avecina**: [Link](https://larepublica.pe/deportes/2025/12/05/argentina-buscara-retener-la-corona-obtenida-en-qatar-2022-y-ya-conoce-a-sus-rivales-en-este-mundial-que-se-avecina-193265)
+
+
+### toluca - monterrey (N/A, 06/12/2025 21:09 Lima)
+
+- **Toluca vs Monterrey: posibles alineaciones, semifinal, Apertura 2025**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/16045144/toluca-vs-monterrey-alineaciones-formaciones-semifinal-vuelta-apertura-2025-liga-mx)
+- **📺 TUDN y Canal 5 EN VIVO GRATIS — mira ahora transmisión Toluca vs. Rayados Monterrey vía TV Abierta ONLINE**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/tudn-y-canal-5-en-vivo-gratis-como-mirar-partido-toluca-vs-rayados-de-monterrey-por-tv-abierta-y-futbol-online-nnda-nnrt-noticia/)
+- **Qué canal pasa Toluca vs Monterrey hoy: dónde ver GRATIS y EN VIVO el partido de la Liga MX**: [Link](https://www.365scores.com/es/news/toluca-vs-monterrey-vivo-donde-ver/)
+
+
+### cavaliers - warriors (N/A, 06/12/2025 21:09 Lima)
+
+- **Pat Spencer, Warriors take aim at Cavaliers**: [Link](https://www.thesportsleader.com/2025/12/06/pat-spencer-warriors-take-aim-at-cavaliers/)
+- **Warriors-Cavs Game Statuses Revealed for Butler, Green, Melton, Seth Curry**: [Link](https://www.si.com/nba/warriors/onsi/news/warriors-cavs-game-statuses-revealed-butler-green-melton-seth-curry-01kbtt3pqza0)
+- **3 things to watch in Warriors-Cavaliers on NBA TV**: [Link](https://www.nba.com/news/3-things-to-watch-in-warriors-cavaliers-on-nba-tv)
+
+
 ### psg vs (N/A, 06/12/2025 15:26 Lima)
 
 - **PSG predicted XI v Rennes: Lucas Chevalier and Illia Zabarnyi out, Matvey Safonov to start**: [Link](https://www.getfootballnewsfrance.com/2025/psg-predicted-xi-v-rennes-lucas-chevalier-and-illia-zabarnyi-out-matvey-safonov-to-start/)
@@ -955,75 +1025,5 @@ Sin noticias relacionadas disponibles.
 - **Cesar Azpilicueta became a true Chelsea hero with antics against old rivals Leeds United in 2021**: [Link](https://www.thechelseachronicle.com/throwbacks/cesar-azpilicueta-became-a-true-chelsea-hero-with-antics-against-old-rivals-leeds-united-in-2021/)
 - **Predicted XI: Enzo Maresca starts 3 Brazilians as Blues look to keep up hot form**: [Link](https://chelsea.news/2025/12/leeds-predicted-enzo-maresca-starts-brazilians/)
 - **Leeds vs Chelsea: Net £30 in free PL bets with our bet365 bonus code – TSPORT**: [Link](https://talksport.com/betting/3789608/leeds-vs-chelsea-bet365-free-bets/)
-
-
-### liverpool - sunderland afc (N/A, 03/12/2025 15:30 Lima)
-
-- **Confirmed Liverpool line-up v Sunderland**: [Link](https://www.liverpoolfc.com/news/confirmed-liverpool-line-v-sunderland)
-- **Slot warns Liverpool fans the standard must rise after West Ham victory**: [Link](https://onefootball.com/en/news/slot-warns-liverpool-fans-the-standard-must-rise-after-west-ham-victory-42040936)
-- **Premier League Soccer: Stream Sunderland vs. Liverpool Live From Anywhere**: [Link](https://www.cnet.com/tech/services-and-software/premier-league-soccer-stream-sunderland-vs-liverpool-live-from-anywhere/)
-
-
-### inter - venezia (N/A, 03/12/2025 15:30 Lima)
-
-- **Inter-Venezia | ✅ UFFICIALI: la scelta su Thuram, Pio, Martinez e Diouf**: [Link](https://onefootball.com/it/notizie/inter-venezia-ufficiali-la-scelta-su-thuram-pio-martinez-e-diouf-42043474)
-- **Le scelte di formazione e un messaggio da monito, Chivu prima di Inter-Venezia: "La partita più importante è stasera"**: [Link](https://tribuna.com/it/news/2025-12-03-le-scelte-di-formazione-e-un-messaggio-da-monito-chivu-prima-di-intervenezia-la-partita-p/)
-- **Coppa Italia: Duncan: "Sempre bello tornare a San Siro" Video**: [Link](https://mediasetinfinity.mediaset.it/video/coppaitalia20252026/duncan-sempre-bello-tornare-a-san-siro_F313474302028C01)
-
-
-### nico williams (N/A, 03/12/2025 15:30 Lima)
-
-- **Nico Williams recibe el premio al mejor gol de noviembre**: [Link](https://es-us.noticias.yahoo.com/deportes/nico-williams-recibe-premio-gol-181453878.html)
-- **Nico Williams recibe el premio al mejor gol de noviembre**: [Link](https://vivirediciones.es/destacado/nico-williams-recibe-el-premio-al-mejor-gol-de-noviembre/)
-- **Nico Williams se moja entre Lamine Yamal y Kylian Mbappé: "Yo tiro para casa siempre"**: [Link](https://www.dazn.com/es-ES/news/f%C3%BAtbol/nico-williams-moja-lamine-yamal-kylian-mbappe-tiro-casa-siempre/1px78xode90zo1vayfki6agsog)
-
-
-### napoli - cagliari (N/A, 03/12/2025 11:35 Lima)
-
-- **#Napoli-Cagliari, le probabili formazioni: #Ambrosino e #Lucca in avanti e #Vergara a centrocampo. Previsti otto cambi rispetto alla formazione che ha vinto a #Roma. Confermati solo Milinkovic-Savic, #Beukema e #Olivera. Possibile anche l’opzione della lin**: [Link](https://www.facebook.com/ilnapolista/photos/napoli-cagliari-le-probabili-formazioni-ambrosino-e-lucca-in-avanti-e-vergara-a-/1369605035178148/)
-- **Napoli tifosi in massa anche in coppa italia attesi oltre 45mila al maradona per la sfida col cagliari**: [Link](https://www.napolicalcionews.it/news-calcio-napoli/Napoli--tifosi-in-massa-anche-in-Coppa-Italia--attesi-oltre-45mila-al-Maradona-per-la-sfida-col-Cagliari-144333.aspx)
-- **Napoli, quando torna Lukaku? L'annuncio di Manna**: [Link](https://gianlucadimarzio.com/napoli-manna-intervista-cagliari-coppa-italia-2025-2026-news/)
-
-
-### spotify (N/A, 03/12/2025 11:35 Lima)
-
-- **2025 Wrapped Is Here With More Layers, Stories, and Connection Than Ever Before**: [Link](https://newsroom.spotify.com/2025-12-03/2025-wrapped-user-experience/)
-- **Taylor Swift, Lady Gaga among Spotify's top artists of 2025**: [Link](https://www.yahoo.com/entertainment/music/articles/taylor-swift-lady-gaga-among-161356013.html)
-- **Spotify Wrapped is here! How to access yours and what's new in 2025**: [Link](https://www.usatoday.com/story/entertainment/music/2025/12/03/spotify-wrapped-2025-how-to-find/87571261007/)
-
-
-### atalanta vs (N/A, 03/12/2025 11:35 Lima)
-
-- **Coppa Italia | Atalanta 4-0 Genoa: Palladino beats 10-man Grifone and books Juventus QF**: [Link](https://sports.yahoo.com/articles/coppa-italia-atalanta-4-0-160500362.html)
-- **Coppa Italia: Atalanta vs. Genoa – Confirmed line-ups and updates**: [Link](https://football-italia.net/coppa-italia-atalanta-genoa-confirmed-line-ups/)
-- **Atalanta vs Genoa Coppa Italia showdown leaves fans wondering who will secure the stunning quarter-final spot**: [Link](https://www.red94.net/news/99041-atalanta-faces-genoa-in-coppa-italia-round-of-16-showdown-both-teams-seeking-qua/)
-
-
-### atalanta - genoa (N/A, 03/12/2025 11:35 Lima)
-
-- **Coppa Italia Atalanta-Genoa, moviola: rosso choc dopo mezzora, duro attacco alla Lega, la Dea affronterà la Juve ai quarti**: [Link](https://sport.virgilio.it/atalanta-genoa-moviola-coppaitalia-2025-933957)
-- **Coppa Italia, le formazioni: da Atalanta-Genoa a Inter-Venezia**: [Link](https://www.diretta.it/news/calcio-coppa-italia-coppa-italia-ottavi-le-formazioni-ufficiali-di-napoli-cagliari/UqYj8QQa/)
-- **Sarà Atalanta-Juventus a febbraio in Coppa Italia: poker senza storia al Genoa**: [Link](https://www.tuttosport.com/news/calcio/coppa-italia/2025/12/03-145014645/sar_atalanta-juventus_a_febbraio_in_coppa_italia_poker_senza_storia_al_genoa)
-
-
-### arsenal vs brentford (N/A, 03/12/2025 11:35 Lima)
-
-- **Every word from Arteta's pre-Brentford presser | Press conference | News**: [Link](https://www.arsenal.com/news/every-word-artetas-pre-brentford-presser-1)
-- **Keith Andrews says their plan is to make Arsenal uncomfortable**: [Link](https://www.justarsenal.com/keith-andrews-says-their-plan-is-to-make-arsenal-uncomfortable/405165)
-- **Emmanuel Petit predicts Arsenal and Chelsea clashes**: [Link](https://www.msn.com/en-ie/sports/football/emmanuel-petit-predicts-arsenal-and-chelsea-clashes/ar-AA1CBAt8)
-
-
-### 3 de diciembre (N/A, 03/12/2025 11:35 Lima)
-
-- **Consulta tu horóscopo de hoy, miércoles 3 de diciembre: Predicciones para tu signo**: [Link](https://elcomercio.pe/luces/vida-social/horoscopo-de-hoy-3-de-diciembre-estas-son-las-predicciones-mas-exactas-para-tu-signo-noticia/)
-- **Los astros tienen un importante mensaje para 3 signos en este miércoles 3 de diciembre, según el horóscopo de Lecturas**: [Link](https://www.lecturas.com/horoscopo/astros-tienen-importante-mensaje-para-signos-este-miercoles-diciembre-segun-horoscopo-lecturas_185230)
-- **Aries, Tauro, Géminis, Cáncer, Leo y Virgo, atención al mensaje de Esperanza Gracia para hoy**: [Link](https://www.vanitatis.elconfidencial.com/horoscopo/2025-12-03/esperanza-gracia-horoscopo-hoy-zodiaco-mensaje_4259339/)
-
-
-### cierre de costa verde (N/A, 03/12/2025 07:55 Lima)
-
-- **Cierran la Costa Verde por Juegos Bolivarianos 2025: revisa el plan de desvío este 3 de diciembre**: [Link](https://larepublica.pe/sociedad/2025/12/02/a-que-hora-es-el-cierre-de-la-costa-verde-este-2-y-3-de-diciembre-revisa-el-plan-de-desvios-por-los-juegos-bolivarianos-54388)
-- **Costa Verde cierra este 2 y 3 de Diciembre: Consulta los HORARIOS y desvíos por los Juegos Bolivarianos**: [Link](https://elcomercio.pe/respuestas/cual/costa-verde-cierra-este-2-y-3-de-diciembre-consulta-los-horarios-y-desvios-por-los-juegos-bolivarianos-tdpe-noticia/)
-- **Los pelotudos de la Costa Verde**: [Link](https://sudaca.pe/noticia/opinion/rik-ahrdo-los-pelotudos-de-la-costa-verde/)
 
 
