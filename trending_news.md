@@ -1,3 +1,36 @@
+### petr yan (N/A, 07/12/2025 03:30 Lima)
+
+- **Yan upsets Dvalishvili to capture bantamweight championship at UFC 323**: [Link](https://www.aljazeera.com/sports/2025/12/7/yan-upsets-dvalishvili-to-capture-bantamweight-championship-at-ufc-323)
+- **UFC 323 post-fight press conference video**: [Link](https://www.mmafighting.com/ufc/460343/ufc-323-post-fight-press-conference-video)
+- **Justin Gaethje Makes His $50K Bonus Pick as UFC 323 Kicks Off With Four Back-to-Back Finishes**: [Link](https://www.essentiallysports.com/ufc-mma-news-justin-gaethje-makes-his-fifty-k-bonus-pick-as-ufc-323-kicks-off-with-four-back-to-back-finishes/)
+
+
+### brighton (N/A, 07/12/2025 03:30 Lima)
+
+- **Brighton & Hove Albion v West Ham United: Key stats and talking points**: [Link](https://www.bbc.co.uk/sport/football/articles/cdj8xx80m8wo)
+- **'We can't' - Fabian Hurzeler issues Carlos Baleba update ahead of West Ham**: [Link](https://www.sussexexpress.co.uk/sport/football/brighton-and-hove-albion/we-cant-fabian-hurzeler-issues-carlos-baleba-update-ahead-of-west-ham-5432046)
+- **Premier League Tips: Six player prop bets for Sunday including Welbeck and Wilson shot shouts**: [Link](https://onefootball.com/pt-br/noticias/premier-league-tips-six-player-prop-bets-for-sunday-including-welbeck-and-wilson-shot-shouts-42055654)
+
+
+### ufc hoy (N/A, 07/12/2025 03:30 Lima)
+
+- **¿Quién ganó la pelea Merad Dvalishvili vs. Petr Yan 2 EN VIVO hoy por el UFC 323? Resultados de la cartelera en directo**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/quien-gano-la-pelea-merad-dvalishvili-vs-petr-yan-2-en-vivo-hoy-por-el-ufc-323-resultados-en-directo-y-como-quedo-la-cartelera-estelar-nnda-nnrt-noticia/)
+- **¿Merab es inevitable? ¿Moreno-Pantoja 3 saldrá de UFC 323?**: [Link](https://www.espn.com.pe/mma/nota/_/id/16039735/ufc-323-dvalishvili-vs-yan-historias-preguntas-clave-pantoja-moreno)
+- **Mira aquí - Merab Dvalishvili vs. Petr Yan EN VIVO vía Disney Premium por UFC 323**: [Link](https://depor.com/full-deportes/merab-dvalishvili-vs-petr-yan-en-vivo-gratis-hoy-via-espn-disney-premium-ufc-fight-pass-futbol-libre-tv-en-directo-online-por-internet-ufc-323-video-noticia/)
+
+
+### cruz azul (N/A, 07/12/2025 03:30 Lima)
+
+- **Futbolista de Alianza Lima se perderá partidos finales del torneo y revelan su futuro: "Cruz Azul"**: [Link](https://libero.pe/futbol-peruano/alianza-lima/2025/12/06/alianza-lima-futbolista-se-perdera-partidos-finales-del-torneo-revelan-su-futuro-cruz-azul-330906)
+
+
+### gerald tavara (N/A, 07/12/2025 03:30 Lima)
+
+- **El eufórico abrazo entre Autuori y Yotún, y el desahogo hasta las lágrimas de un Távara épico, capitán y goleador: lo que no se vio del triunfazo de Cristal**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/sporting-cristal-el-euforico-abrazo-entre-paulo-autuori-y-yoshimar-yotun-y-el-desahogo-hasta-las-lagrimas-de-un-martin-tavara-epico-capitan-y-goleador-lo-que-no-se-vio-del-triunfazo-de-cristal-tlcnota-noticia/)
+- **Hinchas de Universitario piden fichaje de Martín Távara tras arruinar a Alianza Lima con Cristal**: [Link](https://bolavip.com/pe/liga-1/hinchas-de-universitario-piden-fichaje-de-martin-tavara-tras-arruinar-a-alianza-lima-con-cristal)
+- **Sporting Cristal decidió sobre el futuro de Paulo Autuori**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/sporting-cristal-tomo-decision-sobre-futuro-paulo-autuori-n451928)
+
+
 ### gorosito (N/A, 06/12/2025 23:35 Lima)
 
 - **Final de la historia: Néstor Gorosito no sigue en Alianza Lima tras perder con Sporting Cristal**: [Link](https://bolavip.com/pe/alianza-lima/final-de-la-historia-nestor-gorosito-no-sigue-en-alianza-lima-tras-perder-con-sporting-cristal)
@@ -992,39 +1025,5 @@ Sin noticias relacionadas disponibles.
 - **Bucaramanga vs Tolima: El empate del líder de visitante lo deja finalista**: [Link](https://www.espn.com.ar/futbol/colombia/nota/_/id/16034449/bucaramanga-vs-tolima-fecha-5-cuadrangulares-liga-betplay-equipo-fecha-hora-y-tv-en-vivo)
 - **Pronóstico Atlético Bucaramanga Deportes Tolima - Liga BetPlay 03/12/25**: [Link](https://www.sportytrader.com/es/pronosticos/atletico-bucaramanga-deportes-tolima-309311/)
 - **Qué canal pasa Bucaramanga vs Tolima hoy: dónde ver el partido gratis y en vivo de la Liga BetPlay**: [Link](https://www.365scores.com/es/news/canal-bucaramanga-vs-tolima-en-vivo/)
-
-
-### emelec (N/A, 03/12/2025 21:00 Lima)
-
-- **DT de Emelec reveló que Christian Cueva se va del club tras rescindir su contrato: “No la estaba pasando bien, volverá a su país”**: [Link](https://www.infobae.com/peru/deportes/2025/12/03/dt-de-emelec-revelo-que-christian-cueva-se-va-del-club-tras-rescindir-su-contrato-no-la-estaba-pasando-bien-volvera-a-su-pais/)
-- **Christian Cueva a la Liga 1: El primer club peruano que se postuló para ficharlo tras dejar Emelec**: [Link](https://bolavip.com/pe/liga-1/christian-cueva-a-la-liga-1-el-primer-club-peruano-que-se-postulo-para-ficharlo-tras-dejar-emelec)
-- **Guillermo Duró habló de Christian Cueva: ¿Se va de Emelec?**: [Link](https://www.espn.com.ar/futbol/ecuador/nota/_/id/16039011/guillermo-duro-hablo-de-christian-cueva-se-va-de-emelec)
-
-
-### ldu quito (N/A, 03/12/2025 21:00 Lima)
-
-- **LDU Quito holds 2-1 lead against Emelec tonight in Copa Ecuador semi-final 2nd leg, but what happens if Emelec scores first**: [Link](https://www.red94.net/news/91824-ldu-quito-faces-emelec-in-copa-ecuador-semi-final-2nd-leg-leading-2-1-from-first/)
-- **Liga de Quito vs. Emelec EN VIVO vía Teleamazonas y DSports por Copa Ecuador**: [Link](https://libero.pe/futbol-internacional/2025/12/02/liga-de-quito-vs-emelec-en-vivo-gratis-vuelta-de-semifinal-de-copa-ecuador-via-directv-sports-lbev-125976)
-
-
-### cruz azul - tigres (N/A, 03/12/2025 21:00 Lima)
-
-- **Razones por las que Tigres o Cruz Azul pueden llegar a la final**: [Link](https://www.espn.com.pe/futbol/mexico/nota/_/id/16036001/tigres-vs-cruz-azul-razones-por-las-que-pueden-llegar-a-la-final)
-- **¿A qué hora juega Cruz Azul vs Tigres HOY y dónde ver partido por semifinal de Liga MX?**: [Link](https://libero.pe/futbol-internacional/liga-mx/2025/12/02/hora-juega-cruz-azul-vs-tigres-canal-de-transmision-en-vivo-donde-ver-partido-de-liga-mx-98828)
-- **▷ TUDN y Canal 5 EN VIVO por Internet — señal que transmite Tigres UANL vs. Cruz Azul ida por TV abierta y Fútbol Online**: [Link](https://gestion.pe/mix/sports/tudn-y-canal-5-en-vivo-por-internet-donde-ver-partido-tigres-uanl-vs-cruz-azul-por-tv-abierta-y-futbol-online-nnda-nnrt-noticia/)
-
-
-### santos vs (N/A, 03/12/2025 21:00 Lima)
-
-- **📋 Juventude v Santos: teams set for crucial penultimate BR clash**: [Link](https://sports.yahoo.com/articles/juventude-santos-line-crucial-penultimate-213300879.html)
-- **Neymar hat-trick as Santos cruise into Copa do Brasil final**: [Link](https://onefootball.com/en/news/neymar-hat-trick-as-santos-cruise-into-copa-do-brasil-final-42044843)
-- **How to watch Juventude vs Santos in the USA: Live Stream and TV for 2025 Brasileirao**: [Link](https://worldsoccertalk.com/watch-on-us-tv/how-to-watch-juventude-vs-santos-in-the-usa-live-stream-and-tv-for-2025-brasileirao/)
-
-
-### neymar (N/A, 03/12/2025 21:00 Lima)
-
-- **Noche mágica de Neymar: triplete y triunfo clave de Santos**: [Link](https://www.espn.com.ar/futbol/brasil/nota/_/id/16041078/santos-vs-juventude-por-la-fecha-37-del-brasileirao-resultado-sin-neymar)
-- **Problemas en la rodilla, pero sueña con el Mundial 2026: goles y ‘hat-trick’ de Neymar en Santos**: [Link](https://depor.com/futbol-internacional/resto-del-mundo/goles-neymar-santos-vs-juventude-hat-trick-para-3-0-y-pelear-por-no-descender-en-brasileirao-video-noticia/)
-- **El Brasileirao fija la mirada en el descenso y Neymar responde por el Santos**: [Link](https://onefootball.com/en/news/el-brasileirao-fija-la-mirada-en-el-descenso-y-neymar-responde-por-el-santos-42030567)
 
 
