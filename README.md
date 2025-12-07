@@ -1,3 +1,71 @@
+### cb canarias - real madrid (N/A, 07/12/2025 07:47 Lima)
+
+- **La Laguna Tenerife-Real Madrid: el equipo busca el triunfo en su cuarta salida consecutiva**: [Link](https://www.realmadrid.com/es-ES/noticias/baloncesto/primer-equipo/previas/la-laguna-tenerife-real-madrid-07-12-2025)
+- **Duelo en las alturas para continuar la racha**: [Link](https://www.24segundosenblanco.es/2025/12/duelo-en-las-alturas-para-continuar-la-racha/)
+- **El CB Canarias recibe al visitante más desagradable en el Santiago Martín**: [Link](https://www.eldia.es/deportes/cb-canarias/2025/12/06/cb-canarias-recibe-visitante-desagradable-124525995.html)
+
+
+### f1 (N/A, 07/12/2025 07:47 Lima)
+
+- **What To Watch For in the Abu Dhabi Grand Prix**: [Link](https://www.formula1.com/en/latest/article/title-permutations-and-team-tactics-what-to-watch-for-in-the-abu-dhabi-title.4y0RGRxoAbcyI7bkWLSabc)
+- **Abu Dhabi Grand Prix: Max Verstappen beats Lando Norris and Oscar Piastri to pole position for title decider**: [Link](https://www.bbc.com/sport/formula1/articles/cd6xgjgx9ddo)
+- **F1 Abu Dhabi GP live commentary and updates - Race**: [Link](https://www.motorsport.com/f1/live-text/f1-abu-dhabi-gp-live-commentary-and-updates-race-1126198/1126199/)
+
+
+### elche c. f. - girona (N/A, 07/12/2025 07:47 Lima)
+
+- **LaLiga EA Sports: Girona visita a Elche por la fecha 15**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-girona-visita-a-elche-por-la-fecha-15-noticia-1666815)
+- **✅ Cremonese v Lecce line-ups: Vardy, Bonazzoli start, Camarda out?**: [Link](https://sports.yahoo.com/articles/cremonese-v-lecce-line-ups-103500033.html)
+- **Football Tracker: Cremonese welcome Lecce in Serie A as Salah fallout continues**: [Link](https://www.flashscore.com/news/football-tracker-cremonese-welcome-lecce-in-serie-a-as-salah-fallout-continues/f3F8qdTG/)
+
+
+### cuándo juega el real madrid (N/A, 07/12/2025 07:47 Lima)
+
+- **Real Madrid-Celta, en directo: LaLiga EA Sports, hoy en vivo**: [Link](https://as.com/futbol/primera/real-madrid-celta-en-directo-laliga-ea-sports-hoy-en-vivo-f202512-d/)
+- **Xabi Alonso tira de Joan Martínez ante el drama defensivo**: [Link](https://www.marca.com/futbol/real-madrid/2025/12/06/xabi-alonso-tira-joan-martinez-drama-defensivo.html)
+- **Convocatoria del Real Madrid contra el Celta**: [Link](https://www.realmadrid.com/es-ES/noticias/futbol/primer-equipo/convocatorias/convocatoria-del-real-madrid-contra-el-celta-06-12-2025)
+
+
+### fonavi 2025 (N/A, 07/12/2025 07:47 Lima)
+
+- **Malas noticias para cobro del Fonavi: Gobierno de Jerí busca que Lista 22 tenga pocos beneficiarios**: [Link](https://www.infobae.com/peru/2025/12/02/malas-noticias-para-el-fonavi-gobierno-de-jeri-busca-pagar-a-menos-beneficiarios/)
+- **Pago Fonavi, diciembre 2025: LINK para verificar con DNI si cobras la devolución de aportes en Banco de la Nación**: [Link](https://libero.pe/tiempoextra/2025/12/06/pago-fonavi-diciembre-2025-link-verificar-dni-cobras-devolucion-de-aportes-en-banco-de-nacion-130932)
+- **¿Eres beneficiario? Fonavi 2025: consulta AQUÍ con tu DNI si accedes a la devolución de aportes**: [Link](https://willax.pe/actualidad/beneficiario-fonavi-2025-consulta-dni-devolucion-aportes-willax)
+
+
+### fulham vs (N/A, 07/12/2025 07:47 Lima)
+
+- **Premier League predictions and best bets: Fulham to beat flagging Crystal Palace**: [Link](https://www.skysports.com/football/news/11095/13479765/premier-league-predictions-and-best-bets-fulham-to-beat-flagging-crystal-palace)
+- **EPL: Chukwueze banks on home support to beat Crystal Palace**: [Link](https://dailypost.ng/2025/12/06/epl-chukwueze-banks-on-home-support-to-beat-crystal-palace/)
+- **Nigerian trio face another derby weekend**: [Link](https://punchng.com/nigerian-trio-face-another-derby-weekend/)
+
+
+### grupo d mundial 2026 (N/A, 07/12/2025 07:47 Lima)
+
+- **Mundial 2026: el camino a la gloria, con grupos de la muerte, cruces pesados y un choque de gigantes que podría llegar pronto**: [Link](https://cnnespanol.cnn.com/2025/12/06/deportes/mundial-2026-sorteo-calendario-grupos-muerte-orix)
+- **Cuáles son las selecciones favoritas para ganar el Mundial 2026, según las casas de apuestas, las estadísticas y los expertos**: [Link](https://www.bbc.com/mundo/articles/c898e48ny5xo)
+- **España jugará en Atlanta los dos primeros partidos del Mundial 2026 contra Cabo Verde y Arabia Saudí**: [Link](https://elpais.com/deportes/mundial-futbol/2025-12-06/espana-jugara-en-atlanta-los-dos-primeros-partidos-del-mundial-2026-contra-cabo-verde-y-arabia-saudi.html)
+
+
+### cremonese - lecce (N/A, 07/12/2025 07:47 Lima)
+
+Sin noticias relacionadas disponibles.
+
+
+### f1 horarios (N/A, 07/12/2025 07:47 Lima)
+
+- **La dramática definición de la F1 tiene tres nombres propios, pero también un lugar clave: la primera curva**: [Link](https://www.lanacion.com.ar/deportes/automovilismo/colapinto-largara-20-en-abu-dhabi-donde-norris-verstappen-y-piastri-protagonizaran-un-dramatica-nid06122025/)
+- **Max Verstappen: "Intentaré ganar la carrera y el campeonato"**: [Link](https://www.espn.com.ar/deporte-motor/f1/nota/_/id/16051873/max-verstappen-intentare-ganar-la-carrera-y-el-campeonato)
+- **¿A qué hora es el GP de Abu Dhabi de F1? TV, cómo y dónde ver la carrera que decidirá el Mundial**: [Link](https://as.com/motor/formula_1/a-que-hora-es-el-gp-de-abu-dhabi-de-f1-tv-como-y-donde-ver-la-carrera-que-decidira-el-mundial-entre-norris-verstappen-y-piastri-f202512-n/)
+
+
+### la republica (N/A, 07/12/2025 07:47 Lima)
+
+- **Adiós al artista Carlos Runcie Tanaka**: [Link](https://caretas.pe/cultura/adios-al-artista-runcie-tanaka/)
+- **Falleció Carlos Runcie Tanaka, destacado artista peruano, a los 67 años**: [Link](https://elcomercio.pe/luces/arte/fallecio-carlos-runcie-tanaka-destacado-artista-peruano-a-los-67-anos-noticia/)
+- **Carlos Runcie Tanaka (1958 – 2025)**: [Link](https://larepublica.pe/cultural/2025/12/07/carlos-runcie-tanaka-1958-2025-hnews-154315)
+
+
 ### petr yan (N/A, 07/12/2025 03:30 Lima)
 
 - **Yan upsets Dvalishvili to capture bantamweight championship at UFC 323**: [Link](https://www.aljazeera.com/sports/2025/12/7/yan-upsets-dvalishvili-to-capture-bantamweight-championship-at-ufc-323)
@@ -956,74 +1024,5 @@ Sin noticias relacionadas disponibles.
 - **“Yo soy de Alianza para toda la vida”: Hernán Barcos tras anotar el empate de Alianza vs Cristal | VIDEO**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/hernan-barcos-yo-soy-de-alianza-para-toda-la-vida-declaraciones-del-pirata-barcos-tras-anotar-el-empate-de-alianza-vs-cristal-video-noticia/)
 - **(VIDEO | FOTOS) ¡Se define todo en Matute! Cristal empató 1-1 con Alianza en el Nacional**: [Link](https://ovacion.pe/noticias/liga1-te-apuesto-2025/video-fotos-se-define-todo-matute-cristal-empato-1-1-alianza)
 - **Hernán Barcos le cambió la cara a Alianza Lima con gol ante Sporting Cristal**: [Link](https://espndeportes.espn.com/futbol/peru/nota/_/id/16037581/hernan-barcos-cambio-cara-alianza-lima-vs-sporting-cristal-playoff-liga1-2025)
-
-
-### mavericks - heat (N/A, 04/12/2025 03:36 Lima)
-
-- **Miami Heat vs Dallas Mavericks Dec 3, 2025 Box Scores**: [Link](https://www.nba.com/game/mia-vs-dal-0022500332/box-score)
-- **76ers Legends: Ranking the Top 10 Philadelphia 76ers Players of All Time**: [Link](https://en.albat.com/lista/76ers-legends-ranking-the-top-10-philadelphia-76ers-players-of-all-time-20251123-0003.html)
-- **Detroit Pistons vs Milwaukee Bucks Dec 3, 2025 Box Scores**: [Link](https://www.nba.com/game/det-vs-mil-0022500331/box-score)
-
-
-### tu edad sonora spotify (N/A, 04/12/2025 03:36 Lima)
-
-- **Bad Bunny supera a Taylor Swift como el artista más popular en Spotify**: [Link](https://cnnespanol.cnn.com/2025/12/03/mundo/video/spotify-musica-globales-artistas-escuchados-2025-redaccion-buenos-aires-tv)
-- **Bad Bunny vuelve a convertirse en el artista más escuchado del mundo en Spotify durante 2025**: [Link](https://rpp.pe/musica/internacional/spotify-wrapped-2025-bad-bunny-encabeza-la-lista-de-artistas-mas-escuchados-a-nivel-mundial-noticia-1666346)
-- **Los top artistas, canciones, álbumes, pódcasts y audiolibros de 2025**: [Link](https://newsroom.spotify.com/2025-12-03/wrapped-top-artistas-canciones-albumes-podcasts-audiolibros/)
-
-
-### aguinaldo navidad sector público 2025 (N/A, 03/12/2025 23:35 Lima)
-
-- **¡Atención, sector público! Aprueban requisitos para la entrega del aguinaldo por Navidad [DS 283-2025-EF]**: [Link](https://lpderecho.pe/requisitos-entrega-aguinaldo-navidad-decreto-supremo-283-2025-ef/)
-- **Gratificación 2025: monto y hasta qué día pueden pagarla**: [Link](https://elcomercio.pe/respuestas/tramites/gratificacion-de-diciembre-2025-conoce-la-fecha-limite-de-pago-y-cuanto-recibiras-por-navidad-tdpe-noticia/)
-- **Gobierno aprueba aguinaldo por Navidad para el sector público: Estos son todos los beneficiarios**: [Link](https://peru21.pe/politica/gobierno-aprueba-aguinaldo-por-navidad-para-el-sector-publico/)
-
-
-### sam smith (N/A, 03/12/2025 23:35 Lima)
-
-- **Sam Smith - Norah Jones Is Playing Along**: [Link](https://www.iheart.com/podcast/1119-norah-jones-is-playing-al-102152218/episode/sam-smith-310363221/)
-- **Sam Smith & Norah Jones Perform Stripped-Down Duet Of Powerful Track**: [Link](https://www.americantop40.com/content/2025-12-02-sam-smith-norah-jones-perform-stripped-down-duet-of-powerful-track/)
-
-
-### monterrey - toluca (N/A, 03/12/2025 23:35 Lima)
-
-- **Rayados vs Toluca: alineaciones, semifinal de ida**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/16035244/rayados-monterrey-vs-toluca-alineaciones-semifinal-ida-apertura-2025)
-- **⭕ Univisión Deportes EN VIVO — señal de transmisión Monterrey FC vs. Toluca por Liguilla MX 2025 hoy por TV y Online**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/tudn-usa-y-univision-deportes-en-vivo-donde-mirar-partido-monterrey-fc-vs-toluca-por-univision-now-y-futbol-online-en-usa-nnda-nnrt-noticia/)
-- **Berterame levanta la mano para el Mundial 2026 con gol al Toluca campeón**: [Link](https://www.marca.com/mx/futbol/liga-mx/2025/12/04/69310a7922601d2b088b456e.html)
-
-
-### youtube recap (N/A, 03/12/2025 23:35 Lima)
-
-- **Made for you, by you: Introducing YouTube Recap**: [Link](https://blog.youtube/news-and-events/youtube-recap-2025/)
-- **Year-End App Recaps Turn Data Into Social Currency for 2025**: [Link](https://www.techbuzz.ai/articles/year-end-app-recaps-turn-data-into-social-currency-for-2025)
-- **YouTube introduces video viewing recap feature for users**: [Link](https://www.musicinafrica.net/magazine/youtube-introduces-video-viewing-recap-feature-users)
-
-
-### liga brasileña (N/A, 03/12/2025 23:35 Lima)
-
-- **Carrascal volvió a gritar campeón con Flamengo: ahora celebró título del Brasileirao**: [Link](https://www.espn.com.ar/futbol/brasil/nota/_/id/16041469/carrascal-volvio-a-gritar-campeon-con-flamengo-celebro-titulo-del-brasileirao)
-- **Filipe Luis, a por el doblete**: [Link](https://as.com/futbol/internacional/filipe-luis-a-por-el-doblete-f202512-n/)
-- **Flamengo vs. Ceará, EN VIVO: dónde ver por TV y ONLINE**: [Link](https://www.tycsports.com/futbol-de-brasil/flamengo-vs-ceara-en-vivo-donde-ver-por-tv-y-online-id701730.html)
-
-
-### brasileirão serie a (N/A, 03/12/2025 23:35 Lima)
-
-- **Flamengo provoca o Palmeiras: "Vice de novo"**: [Link](https://ge.globo.com/futebol/times/flamengo/noticia/2025/12/03/flamengo-provoca-o-palmeiras-vice-de-novo.ghtml)
-- **Confira a lista com todos os campeões do Brasileiro**: [Link](https://www1.folha.uol.com.br/esporte/2025/12/confira-a-lista-com-todos-os-campeoes-do-brasileiro.shtml)
-- **Autor de gol de título, Samuel Lino destaca resiliência no Flamengo**: [Link](https://www.terra.com.br/esportes/flamengo/autor-de-gol-de-titulo-samuel-lino-destaca-resiliencia-no-flamengo,9e98f749ad1d167fc61d0b35c36c174cnraorxha.html)
-
-
-### youtube recap 2025 (N/A, 03/12/2025 21:00 Lima)
-
-- **Made for you, by you: Introducing YouTube Recap**: [Link](https://blog.youtube/news-and-events/youtube-recap-2025/)
-- **Year-End App Recaps Turn Data Into Social Currency for 2025**: [Link](https://www.techbuzz.ai/articles/year-end-app-recaps-turn-data-into-social-currency-for-2025)
-- **Have You Seen YouTube’s New Feature?**: [Link](https://www.hits96.com/have-you-seen-youtubes-new-feature/)
-
-
-### bucaramanga - tolima (N/A, 03/12/2025 21:00 Lima)
-
-- **Bucaramanga vs Tolima: El empate del líder de visitante lo deja finalista**: [Link](https://www.espn.com.ar/futbol/colombia/nota/_/id/16034449/bucaramanga-vs-tolima-fecha-5-cuadrangulares-liga-betplay-equipo-fecha-hora-y-tv-en-vivo)
-- **Pronóstico Atlético Bucaramanga Deportes Tolima - Liga BetPlay 03/12/25**: [Link](https://www.sportytrader.com/es/pronosticos/atletico-bucaramanga-deportes-tolima-309311/)
-- **Qué canal pasa Bucaramanga vs Tolima hoy: dónde ver el partido gratis y en vivo de la Liga BetPlay**: [Link](https://www.365scores.com/es/news/canal-bucaramanga-vs-tolima-en-vivo/)
 
 
