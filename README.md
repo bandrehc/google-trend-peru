@@ -1,3 +1,71 @@
+### america tvgo (N/A, 07/12/2025 15:26 Lima)
+
+- **Mundial 2026: el camino a la gloria, con grupos de la muerte, cruces pesados y un choque de gigantes que podría llegar pronto**: [Link](https://cnnespanol.cnn.com/2025/12/06/deportes/mundial-2026-sorteo-calendario-grupos-muerte-orix)
+- **¿Argentina, España, Inglaterra...? Cuáles son las selecciones favoritas para ganar el Mundial 2026, según las apuestas, las estadísticas y los expertos**: [Link](https://www.bbc.com/mundo/articles/c898e48ny5xo)
+- **Una supercomputadora predijo quién ganará el Mundial 2026 tras el sorteo: cómo le irá a la selección argentina**: [Link](https://www.infobae.com/deportes/2025/12/07/una-supercomputadora-predijo-quien-ganara-el-mundial-2026-tras-el-sorteo-como-le-ira-a-la-seleccion-argentina/)
+
+
+### tondela - porto (N/A, 07/12/2025 15:26 Lima)
+
+- **Tondela x Porto – Palpite, Onde Assistir, Hora e Escalações 07-12**: [Link](https://onefootball.com/pt-br/apostas/palpites/futebol/tondela-x-porto-07-12-2025)
+- **Em direto/ Tondela-FC Porto. Líder visita Beira Alta à procura de aumentar distância para os rivais**: [Link](https://observador.pt/liveblogs/tondela-fc-porto-lider-visita-beira-alta-a-procura-de-aumentar-distancias/)
+- **Cinco pontos de vantagem à 13.ª jornada? Neste século, deu sempre título de campeão ao FC Porto**: [Link](https://www.abola.pt/noticias/cinco-pontos-de-vantagem-a-13a-jornada-neste-seculo-deu-sempre-titulo-de-campeao-ao-fc-porto-2025120617022728490)
+
+
+### alianza vs universitario femenino (N/A, 07/12/2025 15:26 Lima)
+
+- **Alianza Lima vs Universitario EN VIVO HOY: minuto a minuto en Matute por final ida de la Liga Femenina 2025**: [Link](https://www.infobae.com/peru/deportes/2025/12/07/alianza-lima-vs-universitario-en-vivo-hoy-america-tv-movistar-deportes-matute-final-ida-liga-femenina-2025-goles-resumen-resultado/)
+- **Alianza Lima vs. Universitario en vivo, Liga Femenina: a qué hora juegan, canal que transmite y dónde ver la primera final**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/alianza-lima-vs-universitario-femenino-en-vivo-online-gratis-via-america-tv-canal-4-america-tvgo-movistar-deportes-movistar-play-a-que-hora-juegan-canal-que-transmite-y-donde-ver-por-final-de-liga-femenina-video-noticia/)
+- **Alianza Lima vs. Universitario EN VIVO, final Liga Femenina: transmisión del partido**: [Link](https://libero.pe/futbol-peruano/2025/12/06/alianza-lima-vs-universitario-en-vivo-gratis-final-ida-de-liga-femenina-via-america-tvgo-canal-4-lbev-359778)
+
+
+### napoles vs (N/A, 07/12/2025 15:26 Lima)
+
+- **Nápoles-Juventus, en directo: Serie A, hoy en vivo**: [Link](https://as.com/futbol/internacional/napoles-juventus-en-directo-serie-a-hoy-en-vivo-f202512-n/)
+- **Apuestas y Pronóstico del Napoli vs Juventus 07/12/25**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/2025/diciembre/pronostico-napoli-vs-juventus-07-12-25)
+- **Serie A: Napoli necesita los 3 puntos para escalar en la tabla de posiciones y llegar a la cima**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-napoli-necesita-los-3-puntos-para-escalar-en-la-tabla-de-posiciones-y-llegar-a-la-cima-noticia-1666846)
+
+
+### real madrid vs celta vigo (N/A, 07/12/2025 15:26 Lima)
+
+- **Real Madrid - RC Celta Live - La Liga: Football Scores & Highlights - 07/12/2025**: [Link](https://www.tntsports.co.uk/football/la-liga/2025-2026/live-real-madrid-rc-celta_mtc1610573/live-commentary.shtml)
+- **Relentless Real Madrid Welcome Celta Vigo as Title Charge Gathers Pace**: [Link](https://dawan.africa/news/relentless-real-madrid-welcome-celta-vigo-as-title-charge-gathers-pace)
+- **LIVE: Real Madrid vs Celta Vigo – La Liga**: [Link](https://www.aljazeera.com/sports/liveblog/2025/12/7/live-real-madrid-vs-celta-vigo-la-liga?update=4157964)
+
+
+### internacional vs (N/A, 07/12/2025 15:26 Lima)
+
+- **Internacional vs Red Bull Bragantino pronostico y comparación de cuotas 07.12.2025**: [Link](https://www.livetipsportal.com/es/pronosticos-apuestas-deportivas/internacional-vs-red-bull-bragantino-serie-a-10963535/)
+- **Internacional vs RB Bragantino, Brasileirao 2025: Dónde ver el partido online, streaming en vivo, canales de TV y hora de inicio**: [Link](https://www.goal.com/es-ar/noticias/internacional-vs-rb-bragantino-brasileirao-2025-donde-ver-partido-online-streaming-en-vivo-canales-tv-hora-inicio/blt8a5b298ed811b989)
+- **Alineación del Inter: Abel Braga define titulares para el partido de vida o muerte en la Serie A**: [Link](https://www.aaaj.com.ar/eventos/92775/alineacion-del-inter-abel-braga-define-titulares-para-el-partido-de-vida-o-muerte-en-la-serie-a/)
+
+
+### fluminense vs (N/A, 07/12/2025 15:26 Lima)
+
+Sin noticias relacionadas disponibles.
+
+
+### lorient - lyon (N/A, 07/12/2025 15:26 Lima)
+
+- **La compo de l'OL contre Lorient : Le onze explosif de Paulo Fonseca**: [Link](https://www.goal.com/fr/listes/la-compo-de-l-ol-contre-lorient-le-onze-explosif-de-paulo-fonseca/bltc972806089b3fda7)
+- **PRONOS PARIS RMC Le pari sûr du 7 décembre – Ligue 1**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-sur-du-7-decembre-ligue-1_AN-202512060391.html)
+- **Avec Fonseca de retour, l'OL a une fin d'année pour enfin enchaîner**: [Link](https://www.eurosport.fr/football/ligue-1/2025-2026/ligue-1-avec-paulo-fonseca-de-retour-loympique-lyonnais-a-une-fin-dannee-pour-enfin-enchainer_sto23247902/story.shtml)
+
+
+### 8 de diciembre feriado (N/A, 07/12/2025 15:26 Lima)
+
+- **FERIADO LARGO en Perú: Últimos feriados en diciembre 2025 y qué se celebra**: [Link](https://elcomercio.pe/respuestas/cuando/feriado-largo-y-ultimos-feriados-del-2025-en-peru-dias-que-se-celebra-y-mas-calendario-2025-tdpe-noticia/)
+- **Feriados lunes 8 y martes 9 de diciembre: las reglas que se aplicarán a este beneficio laboral | ECONOMIA**: [Link](https://gestion.pe/economia/management-empleo/feriados-lunes-8-y-martes-9-de-diciembre-las-reglas-que-se-aplicaran-a-este-beneficio-laboral-noticia/)
+- **No pierdas tu beneficio: consulta cuánto deben pagarte por trabajar los feriados 8 y 9 de diciembre**: [Link](https://www.elperuano.pe/noticia/284113-no-pierdas-tu-beneficio-consulta-cuanto-deben-pagarte-por-trabajar-los-feriados-8-y-9-de-diciembre)
+
+
+### liga brasileña (N/A, 07/12/2025 15:26 Lima)
+
+- **Pronóstico Mirassol vs Flamengo – Brasileirão Serie A (06/12/2025)**: [Link](https://www.hispanosnba.com/futbol/pronostico-mirassol-vs-flamengo-06-12-2025/)
+- **Ver EN VIVO Mirassol vs. Flamengo: dónde seguir por TV y ONLINE**: [Link](https://www.tycsports.com/futbol-de-brasil/mirassol-vs-flamengo-en-vivo-donde-ver-por-tv-y-online-id701776.html)
+- **Nadine Bastos da su veredicto en directo sobre el penalti sin marcar del Flamengo ante el Mirassol**: [Link](https://www.aaaj.com.ar/eventos/93082/nadine-bastos-da-su-veredicto-en-directo-sobre-el-penalti-sin-marcar-del-flamengo-ante-el-mirassol/)
+
+
 ### precio del dólar hoy (N/A, 07/12/2025 11:28 Lima)
 
 - **Precio del dólar en Perú hoy, domingo 7 de diciembre: cuál es el tipo de cambio del día**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-2025-a-cuanto-esta-el-dolar-este-domingo-7-de-diciembre-y-tipo-de-cambio-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
@@ -953,75 +1021,5 @@ Sin noticias relacionadas disponibles.
 - **Cómo quedó la tabla de posiciones de grupo A de Liga BetPlay 2025-II, tras Nacional 2-1 Medellín**: [Link](https://www.noticiascaracol.com/golcaracol/seleccion-colombia/como-quedo-la-tabla-de-posiciones-de-grupo-a-de-liga-betplay-2025-ii-tras-nacional-2-0-medellin-so35)
 - **Nacional vs. DIM, alineaciones**: [Link](https://capsulas.com.co/nacional-vs-dim-alineaciones-3/)
 - **Nacional volvió a ganar el clásico, eliminó al Medellín y sigue en la pelea por ir a la final y a la Copa Libertadores**: [Link](https://www.eltiempo.com/deportes/futbol-colombiano/nacional-volvio-a-ganar-el-clasico-elimino-al-medellin-y-sigue-en-la-pelea-por-ir-a-la-final-y-a-la-copa-libertadores-3514444)
-
-
-### cruzeiro vs (N/A, 04/12/2025 21:00 Lima)
-
-- **Cruzeiro vs Botafogo on tonight's playoff collision at Mineirão, will Cruzeiro's 11-game unbeaten streak survive against Botafogo's explosive 11-goal rampage?**: [Link](https://www.red94.net/news/50002-cruzeiro-vs-botafogo-faces-crucial-playoff-chase-clash-tonight-at-mineirao-in-ro/)
-- **Fluminense can clinch Copa do Brasil spot on their own, here’s how**: [Link](https://onefootball.com/it/notizie/fluminense-can-clinch-copa-do-brasil-spot-on-their-own-heres-how-42043069)
-- **Cruzeiro vs Botafogo: Live Stream, Kickoff Time, and Lineups**: [Link](https://www.el-balad.com/6784966)
-
-
-### manchester united vs (N/A, 04/12/2025 15:29 Lima)
-
-- **West Ham visita a Manchester United en busca de alejarse de los puestos de descenso**: [Link](https://www.espn.com.pe/futbol/inglaterra/nota/_/id/16031942/manchester-united-vs-west-ham-fecha-14-premier-league-equipo-fecha-hora-y-tv-en-vivo)
-- **Manchester United vs. West Ham EN VIVO y GRATIS por la Premier League 2025-26: minuto a minuto**: [Link](https://bolavip.com/pe/futbol-europeo/manchester-united-vs-west-ham-en-vivo-y-gratis-por-la-premier-league-2025-26-hora-canal-alineaciones-minuto-a-minuto-goles-resumen)
-- **Premier League: Manchester United y West Ham United se encuentran en la fecha 14**: [Link](https://rpp.pe/futbol/ligas-internacionales/premier-league-manchester-united-y-west-ham-united-se-encuentran-en-la-fecha-14-noticia-1666357)
-
-
-### extremadura - sevilla (N/A, 04/12/2025 15:29 Lima)
-
-- **Extremadura-Sevilla, en directo online: ¿Cuándo y dónde ver el partido? - Copa del Rey '25-26, 2ª Ronda - Info en vivo, resultado y goles - Hoy**: [Link](https://espanol.eurosport.com/futbol/copa-del-rey/2025-2026/live-cd-extremadura-sevilla_mtc1646252/live-commentary.shtml)
-- **Con Reyes en la memoria y más de 4.000 sevillistas en la grada**: [Link](https://as.com/futbol/con-reyes-en-la-memoria-y-mas-de-4000-sevillistas-en-la-grada-f202512-n/)
-- **Azpilicueta, Sow y Ejuke regresan con el grupo antes de viajar a Mérida**: [Link](https://www.msn.com/es-es/deportes/futbol/azpilicueta-sow-y-ejuke-regresan-con-el-grupo-antes-de-viajar-a-m%C3%A9rida/ar-AA1RCJ2N)
-
-
-### cartagena - valencia c. f. (N/A, 04/12/2025 15:29 Lima)
-
-- **Ramazani entra en la lista y espera su gran oportunidad con el Valencia**: [Link](https://www.estadiodeportivo.com/futbol/valencia/ramazani-entra-lista-espera-gran-oportunidad-con-valencia-20251204-522626.html)
-- **El Cartagena tira de refranero: “A la tercera ojalá sea la vencida”**: [Link](https://as.com/futbol/copa_del_rey/el-cartagena-tira-de-refranero-a-la-tercera-ojala-sea-la-vencida-f202512-n/)
-- **El Efesé recibe al Valencia en la Copa del Rey, como hace dos y cuatro años, buscando ganarle por fin**: [Link](https://murciaplaza.com/murciaplaza/deportes-murcia/el-efese-recibe-al-valencia-en-la-copa-del-rey-como-hace-dos-y-cuatro-anos-buscando-ganarle-por-fin)
-
-
-### sant andreu - celta de vigo (N/A, 04/12/2025 15:29 Lima)
-
-- **Sant Andreu - Celta, en directo: segunda ronda de la Copa del Rey, hoy en vivo**: [Link](https://as.com/futbol/copa_del_rey/sant-andreu-celta-en-directo-segunda-ronda-de-la-copa-del-rey-hoy-en-vivo-f202512-d/)
-- **Manual de supervivencia en sintético**: [Link](https://www.lavozdegalicia.es/noticia/gradario/2025/12/04/manual-supervivencia-sintetico/0003_202512V4P42993.htm)
-- **Fiesta en el Narcís Sala**: [Link](https://www.mundodeportivo.com/futbol/futbol-catala/20251204/1002580622/fiesta-narcis-sala.html)
-
-
-### porto - guimarães (N/A, 04/12/2025 15:29 Lima)
-
-- **Diogo Costa, Froholdt e De Jong de fora: rotação à vista no onze do FC Porto**: [Link](https://www.abola.pt/noticias/diogo-costa-froholdt-e-de-jong-de-fora-rotacao-a-vista-no-onze-do-fc-porto-2025120318125239686)
-- **FC Porto-V. Guimarães: confira os onzes iniciais**: [Link](https://sapo.pt/artigo/fc-porto-v-guimaraes-confira-os-onzes-iniciais-6931de0848b30ca90e822025)
-- **Francesco Farioli apresenta novidades nos quartos de final da Taça da Liga**: [Link](https://www.jn.pt/desporto/artigo/francesco-farioli-muda-defesa-e-ataque-nos-quartos-de-final-da-taca-da-liga/18027068)
-
-
-### manchester united - west ham (N/A, 04/12/2025 15:29 Lima)
-
-- **Man Utd vs West Ham LIVE: Premier League score, stats & updates**: [Link](https://www.bbc.com/sport/football/live/c5yqm4lp65dt)
-- **Starting XI | Souček starts at Manchester United**: [Link](https://www.whufc.com/en/news/starting-xi-or-soucek-starts-at-manchester-united)
-- **'Big opportunity for him': Fans hopeful one Man United player can step up to produce inspired performance vs West Ham**: [Link](https://tribuna.com/en/blogs/big-opportunity-for-him-fans-hopeful-one-man-united-player-c/)
-
-
-### lazio - milan (N/A, 04/12/2025 15:29 Lima)
-
-- **Lazio-Milan: Formazioni ufficiali e Cronaca in diretta**: [Link](https://sport.virgilio.it/dirette/live/coppa-italia/4-12-2025/lazio-milan/2598744/)
-- **Ricci pre Lazio-Milan: “Tensioni con la Lazio? Non sono preoccupato, siamo abituati”**: [Link](https://www.milanistichannel.com/news-milan/ricci-lazio-milan-coppa-italia-dichiarazioni-intervista-sport-mediaset-gazzetta-diretta-live-news/)
-- **LIVE! Lazio-Milan 0-0: Castellanos titolare, ecco Jashari**: [Link](https://www.eurosport.it/calcio/coppa-italia/2025-2026/live-lazio-milan_mtc1605767/live-commentary.shtml)
-
-
-### reinfo (N/A, 04/12/2025 15:29 Lima)
-
-- **Rospigliosi: Pleno verá esta tarde la delegación de facultades y ampliación de plazo del Reinfo**: [Link](https://comunicaciones.congreso.gob.pe/noticias/rospigliosi-pleno-vera-esta-tarde-la-delegacion-de-facultades-y-ampliacion-de-plazo-del-reinfo/)
-- **Pleno del Congreso definirá ampliación del REINFO hasta el 2027 hoy jueves 4**: [Link](https://caretas.pe/politica/pleno-del-congreso-definira-ampliacion-del-reinfo-hasta-el-2027-hoy-jueves-4/)
-- **Fórmula que amplía el Reinfo también dejaría fuera por lo menos unas 18 causales de exclusión del registro**: [Link](https://elcomercio.pe/politica/congreso/congreso-reinfo-comision-de-energia-y-minas-minem-pcm-jose-jeri-formula-que-amplia-el-reinfo-tambien-dejaria-fuera-por-lo-menos-unas-18-causales-de-exclusion-del-registro-noticia/)
-
-
-### rayo vallecano (N/A, 04/12/2025 15:29 Lima)
-
-- **Valencia y Rayo Vallecano repartieron puntos en LaLiga de España**: [Link](https://www.espn.com.pe/futbol/espana/nota/_/id/16019452/rayo-vallecano-vs-valencia-fecha-14-la-liga-equipo-fecha-hora-y-tv-en-vivo)
-- **LaLiga EA Sports: Rayo Vallecano y Valencia se miden por la fecha 14**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-rayo-vallecano-y-valencia-se-miden-por-la-fecha-14-noticia-1665954)
-- **Pronóstico Rayo Vallecano vs. Valencia: El pronóstico del lunes**: [Link](https://gainblers.com/pe/pronosticos/futbol/espana/liga-primera-division/pronostico-rayo-vallecano-valencia-01-12-2025/)
 
 
