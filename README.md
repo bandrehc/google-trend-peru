@@ -1,3 +1,73 @@
+### gorosito (N/A, 06/12/2025 23:35 Lima)
+
+- **Final de la historia: Néstor Gorosito no sigue en Alianza Lima tras perder con Sporting Cristal**: [Link](https://bolavip.com/pe/alianza-lima/final-de-la-historia-nestor-gorosito-no-sigue-en-alianza-lima-tras-perder-con-sporting-cristal)
+- **Alianza Lima y la drástica decisión que tomó tras caer en penales ante Sporting Cristal**: [Link](https://libero.pe/futbol-peruano/alianza-lima/2025/12/06/alianza-lima-drastica-decision-tomo-caer-en-penales-sporting-cristal-393354)
+- **Néstor Gorosito no fue a conferencia tras derrota de Alianza Lima en playoffs: ¿seguirá para el 2026?**: [Link](https://www.espn.com.pe/futbol/peru/nota/_/id/16054581/nestor-gorosito-no-fue-a-conferencia-tras-derrota-de-alianza-lima-en-playoffs)
+
+
+### samahara lobaton (N/A, 06/12/2025 23:35 Lima)
+
+- **Samahara Lobatón reaparece y detalla conciliación con Bryan Torres últimas | TVMAS**: [Link](https://elcomercio.pe/tvmas/farandula/samahara-lobaton-reaparece-y-detalla-conciliacion-con-bryan-torres-ultimas-noticia/)
+- **Samahara Lobatón: el video de 'infidelidad' de Bryan Torres**: [Link](https://www.americatv.com.pe/esta-noche/samahara-lobaton-mostro-video-infidelidad-bryan-torres-noticia-161787?ref=portal-amtv)
+- **"A Samahara Lobatón le rompieron el corazón", afirma Mónica Cabrejos**: [Link](https://peru21.pe/espectaculos/samahara-lobaton-le-rompieron-el-corazon-afirma-monica-cabrejos/)
+
+
+### joshua van (N/A, 06/12/2025 23:35 Lima)
+
+- **Max Holloway: I hear the Joshua Van comparisons, but he has KO power**: [Link](https://mmajunkie.usatoday.com/story/sports/ufc/2025/12/05/ufc-323-max-holloway-prediction-joshua-van-vs-alexandre-pantoja-comparisons-similar-styles/87619301007/)
+- **Alexandre Pantoja | Viva Las Vegas**: [Link](https://www.ufc.com/news/alexandre-pantoja-viva-las-vegas-ufc-323)
+- **Joshua Van told that this 'nasty' move could change the fight against Alexandre Pantoja at UFC 323**: [Link](https://bloodyelbow.com/2025/12/06/joshua-van-told-that-this-nasty-move-could-change-the-fight-against-alexandre-pantoja-at-ufc-323/)
+
+
+### hernán barcos (N/A, 06/12/2025 23:35 Lima)
+
+- **Paolo Guerrero rompió el silencio sobre la salida de Hernán Barcos de Alianza Lima**: [Link](https://www.espn.com.ar/futbol/peru/nota/_/id/16044737/paolo-guerrero-rompio-el-silencio-sobre-la-salida-de-hernan-barcos-de-alianza-lima)
+- **¿Alianza Lima se arrepintió de no renovarle a Hernán Barcos? Se conoció postura oficial tras gol ante Cristal**: [Link](https://bolavip.com/pe/alianza-lima/alianza-lima-tomo-tajante-decision-sobre-futuro-de-hernan-barcos-tras-gol-ante-sporting-cristal)
+- **Paolo Guerrero se defiende y niega ser responsable de la salida de Hernán Barcos en Alianza Lima: “Me afecta mucho, no soy un robot”**: [Link](https://www.infobae.com/peru/deportes/2025/12/04/paolo-guerrero-se-defiende-y-niega-ser-responsable-de-la-salida-de-hernan-barcos-en-alianza-lima-me-afecta-mucho-no-soy-un-robot/)
+
+
+### peru 4 (N/A, 06/12/2025 23:35 Lima)
+
+- **Precio del dólar hoy: Así se cotiza el tipo de cambio en Perú este 6 de diciembre**: [Link](https://www.infobae.com/peru/2025/12/05/dolar-cotizacion-de-apertura-hoy-5-de-diciembre-en-peru/)
+- **Precio del dólar en Perú, sábado 6 de diciembre: a cuánto cerró el tipo de cambio hoy**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-2025-cuanto-esta-el-dolar-este-sabado-6-de-diciembre-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
+- **BCR interviene y compra $ 294 millones y da respiro al dólar que cerró en S/ 3.362**: [Link](https://diariocorreo.pe/economia/bcr-interviene-y-compra-294-millones-y-da-respiro-al-dolar-que-cerro-en-s-3362-noticia/)
+
+
+### jungkook (N/A, 06/12/2025 23:35 Lima)
+
+- **aespa Winter's Fansites' Allegedly Leaked Knowledge Of Her Relationship With BTS's Jungkook Goes Viral**: [Link](https://www.koreaboo.com/news/aespa-winter-fansites-allegedly-spot-btss-jungkook-claim-dating-photos/)
+- **BTS' Jungkook Dating Aespa's Winter? Their Matching Tattoos Leave Fans Excited**: [Link](https://www.news18.com/movies/korean/bts-jungkook-dating-aespas-winter-their-matching-tattoos-leave-fans-excited-ws-l-9753249.html)
+- **Fans Shocked as Winter Wears Jungkook’s Shorts to aespa Fansign**: [Link](https://kbizoom.com/jungkook-winter-fan-event-shorts/)
+
+
+### ufc en vivo (N/A, 06/12/2025 23:35 Lima)
+
+- **UFC 323 en vivo: ver pelea de Merab Dvalishvili vs Petr Yan**: [Link](https://elcomercio.pe/deporte-total/polideportivo/ufc-323-en-vivo-gratis-hoy-via-espn-fox-sports-dazn-cartelera-horarios-canales-tv-y-donde-ver-pelea-de-merab-dvalishvili-vs-petr-yan-video-noticia/)
+- **Merab Dvalishvili vs. Petr Yan EN VIVO vía Disney Premium: link de transmisión por UFC 323**: [Link](https://depor.com/full-deportes/merab-dvalishvili-vs-petr-yan-en-vivo-gratis-hoy-via-espn-disney-premium-ufc-fight-pass-futbol-libre-tv-en-directo-online-por-internet-ufc-323-video-noticia/)
+- **Dvalishvili y Pantoja están listos para peleas por el título después de pesajes exitosos en UFC 323**: [Link](https://www.ucvradio.pe/mas-actualidad/dvalishvili-y-pantoja-estan-listos-para-peleas-por-el-titulo-despues-de-pesajes-exitosos-en-ufc-323/68288/)
+
+
+### cristal vs cusco (N/A, 06/12/2025 23:35 Lima)
+
+- **Cuándo juega Sporting Cristal ante Cusco FC por la final de los Playoffs de la Liga 1 2025**: [Link](https://bolavip.com/pe/liga-1/cuando-juega-sporting-cristal-ante-cusco-fc-por-la-final-de-los-playoffs-de-la-liga-1-2025)
+- **Conoce fechas y horas de la final de los playoffs entre Cusco FC y Sporting Cristal**: [Link](https://ovacion.pe/noticias/liga1-te-apuesto-2025/conoce-fechas-horas-final-playoffs-entre-cusco-fc-sporting-cristal)
+- **Sporting Cristal vs. Cusco FC: fecha y hora confirmada del primer playoff de la Liga 1 2025**: [Link](https://libero.pe/futbol-peruano/liga-1/2025/12/06/sporting-cristal-vs-cusco-fc-fecha-hora-del-partido-de-ida-playoffs-de-liga-1-peru-188382)
+
+
+### mavericks - rockets (N/A, 06/12/2025 23:35 Lima)
+
+- **Mavericks - Rockets live**: [Link](https://www.marca.com/en/basket/nba/mavericks-rockets/2025/12/07/02_0202_20251207_7420_7423-live.html)
+- **NBA World Reacts To Anthony Davis’ Performance In Rockets-Mavs Game**: [Link](https://www.profootballnetwork.com/nba/nba-world-reacts-to-anthony-davis-performance-in-rockets-mavs-game/)
+- **Houston Rockets at Dallas Mavericks: lineups, injury reports, broadcast (12/06)**: [Link](https://sports.yahoo.com/articles/houston-rockets-dallas-mavericks-lineups-191623230.html)
+
+
+### henry cejudo (N/A, 06/12/2025 23:35 Lima)
+
+- **Henry Cejudo | Triple C’s Last Dance**: [Link](https://www.ufc.com/news/henry-cejudo-triple-c-last-dance-ufc-323)
+- **UFC 323 results: Payton Talbott overwhelms Henry Cejudo in former champ's retirement fight**: [Link](https://sports.yahoo.com/mma/article/ufc-323-results-payton-talbott-overwhelms-henry-cejudo-in-former-champs-retirement-fight-042235830.html)
+- **Aiemann Zahabi questions Henry Cejudo's hunger for UFC 323 bout**: [Link](https://mmajunkie.usatoday.com/story/sports/ufc/2025/12/05/ufc-323-aiemann-zahabi-concerned-henry-cejudo-fight-payton-talbott/87564330007/)
+
+
 ### bogotá (N/A, 06/12/2025 21:09 Lima)
 
 - **Cambian los viajes de fin de año en la Terminal de Transporte de Bogotá: nueva medida impactará a millones ...**: [Link](https://redmas.com.co/colombia/cambian-los-viajes-de-fin-de-ano-en-la-terminal-de-transporte-de-bogota-nueva-medida-impactara-a-millones-de-pasajeros-20251206-0009.html)
@@ -956,74 +1026,5 @@ Sin noticias relacionadas disponibles.
 - **Noche mágica de Neymar: triplete y triunfo clave de Santos**: [Link](https://www.espn.com.ar/futbol/brasil/nota/_/id/16041078/santos-vs-juventude-por-la-fecha-37-del-brasileirao-resultado-sin-neymar)
 - **Problemas en la rodilla, pero sueña con el Mundial 2026: goles y ‘hat-trick’ de Neymar en Santos**: [Link](https://depor.com/futbol-internacional/resto-del-mundo/goles-neymar-santos-vs-juventude-hat-trick-para-3-0-y-pelear-por-no-descender-en-brasileirao-video-noticia/)
 - **El Brasileirao fija la mirada en el descenso y Neymar responde por el Santos**: [Link](https://onefootball.com/en/news/el-brasileirao-fija-la-mirada-en-el-descenso-y-neymar-responde-por-el-santos-42030567)
-
-
-### flamengo vs ceara (N/A, 03/12/2025 21:00 Lima)
-
-- **¿Qué necesitan Carrascal y Flamengo para ser campeones del Brasileirao?**: [Link](https://www.espn.com.pe/futbol/brasil/nota/_/id/16030055/que-necesita-carrascal-y-flamengo-para-ser-campeones-del-brasileirao)
-- **Hoy, Flamengo vs Ceará EN VIVO: ¿a qué hora juegan y dónde ver partido por la fecha 37 del Brasileirao?**: [Link](https://rpp.pe/futbol/futbol-mundial/flamengo-vs-ceara-en-vivo-a-que-hora-juegan-y-donde-ver-fecha-37-brasileirao-2025-para-salir-campeon-via-l1-play-partidos-de-hoy-noticia-1666251)
-- **Flamengo vs Ceará: pronósticos, cuotas, y datos para apostar!**: [Link](https://www.apwin.com/es/pronosticos/flamengo-vs-ceara-pronostico-brasileirao-serie-a-04-12-2025/)
-
-
-### atlético mineiro - palmeiras (N/A, 03/12/2025 21:00 Lima)
-
-- **Atlético-MG x Palmeiras: onde assistir ao vivo, horário e escalações**: [Link](https://ge.globo.com/mg/futebol/brasileirao-serie-a/noticia/2025/12/03/atletico-mg-x-palmeiras-onde-assistir-ao-vivo-horario-e-escalacoes.ghtml)
-- **Allan amplia o placar para o Palmeiras e é exaltado pela torcida nas redes sociais**: [Link](https://br.bolavip.com/palmeiras/allan-amplia-o-placar-para-o-palmeiras-e-e-exaltado-pela-torcida-nas-redes-sociais)
-- **Gol anulado de Vitor Roque após revisão do VAR no 1º minuto agita início de Atlético-MG x Palmeiras pelo Brasileirão 2025**: [Link](https://www.mixvale.com.br/2025/12/03/gol-anulado-de-vitor-roque-apos-revisao-do-var-no-1o-minuto-agita-inicio-de-atletico-mg-x-palmeiras-pelo-brasileirao-2025/amp/)
-
-
-### ldu quito - emelec (N/A, 03/12/2025 21:00 Lima)
-
-- **Liga de Quito vs. Emelec EN VIVO vía Teleamazonas y DSports por Copa Ecuador**: [Link](https://libero.pe/futbol-internacional/2025/12/02/liga-de-quito-vs-emelec-en-vivo-gratis-vuelta-de-semifinal-de-copa-ecuador-via-directv-sports-lbev-125976)
-- **LDU Quito holds 2-1 lead against Emelec tonight in Copa Ecuador semi-final 2nd leg, but what happens if Emelec scores first**: [Link](https://www.red94.net/news/91824-ldu-quito-faces-emelec-in-copa-ecuador-semi-final-2nd-leg-leading-2-1-from-first/)
-- **Orense SC vs. LDU Quito - Live Score - December 06, 2025**: [Link](https://www.foxsports.com/soccer/ecuadorian-liga-pro-orense-sc-vs-ldu-quito-dec-06-2025-game-boxscore-646935)
-
-
-### real madrid vs manchester city (N/A, 03/12/2025 15:30 Lima)
-
-- **Pol Deportes y su emotiva reacción al enterarse que narrará el duelo Real Madrid vs Manchester City**: [Link](https://libero.pe/futbol-internacional/champions-league/2025/12/03/pol-deportes-su-emotiva-reaccion-enterarse-narrara-partido-real-madrid-vs-manchester-city-197073)
-- **'Pol Deportes' llegará a la Champions League: joven narrador estará en el partido entre Real Madrid vs Manchester City**: [Link](https://larepublica.pe/deportes/2025/12/03/pol-deportes-llegara-a-la-champions-league-joven-narrador-estara-en-el-partido-entre-real-madrid-vs-manchester-city-104685)
-
-
-### union berlin vs bayern (N/A, 03/12/2025 15:30 Lima)
-
-- **Preview: Union Berlin vs Bayern Munich - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/union-berlin/dfb-pokal/preview/union-berlin-vs-bayern-prediction-team-news-lineups_586916.html)
-- **No more warnings necessary! Bayern ready for DFB Cup round of 16 tie at Union Berlin**: [Link](https://fcbayern.com/en/matches/profis/dfb-pokal/2025-2026/1-fc-union-berlin-fc-bayern-muenchen-02-12-2025/preview)
-- **Union Berlin’s Steffen Baumgart doesn’t see any weakness in Bayern Munich**: [Link](https://sports.yahoo.com/articles/union-berlin-steffen-baumgart-doesn-033000010.html)
-
-
-### quintanar del rey - elche c. f. (N/A, 03/12/2025 15:30 Lima)
-
-- **Sarabia: “La ilusión no nos la quita nadie, ‘Road to Sevilla’”**: [Link](https://as.com/futbol/copa_del_rey/sarabia-la-ilusion-no-nos-la-quita-nadie-road-to-sevilla-f202512-n/)
-- **Dónde ver online y en televisión el Quintanar del Rey - Elche hoy de Copa del Rey y a qué hora se juega el partido de segunda ronda**: [Link](https://www.abc.es/espana/comunidad-valenciana/donde-ver-online-television-quintanar-rey-elche-copa-rey-horario-20251203135327-nt.html)
-- **Quintanar del Rey vs Elche de Copa del Rey 2025/26: cuándo se juega, horario y canal de TV en España**: [Link](https://www.dazn.com/es-ES/news/f%C3%BAtbol/quintanar-del-rey-vs-elche-copa-rey-202526-cuando-juega-horario-canal-tv-espana/zj86hyx1zait1mar9qwj6t6n6)
-
-
-### ourense - girona (N/A, 03/12/2025 15:30 Lima)
-
-- **Míchel recurre al filial para evitar otro descalabro copero**: [Link](https://www.sport.es/es/noticias/girona/michel-recurre-filial-evitar-descalabro-124354073)
-- **Otro baile a ritmo de Copa del Rey en O Couto**: [Link](https://www.lavozdegalicia.es/noticia/ourense/2025/12/03/baile-ritmo-copa-couto/0003_202512O3C5991.htm)
-- **El Girona visita a un Ourense en racha**: [Link](https://www.gironafc.cat/es/noticias/el-girona-visita-a-un-ourense-en-racha)
-
-
-### arsenal (N/A, 03/12/2025 15:30 Lima)
-
-- **Premier League: Build-up to six games, with Arsenal, Chelsea & Liverpool in action**: [Link](https://www.bbc.com/sport/football/live/cm27rz02exkt)
-- **Chasing Points: Looking ahead to Matchweek 14 of the English Premier League**: [Link](https://dailyfreepress.com/12/02/21/216828/chasing-points-looking-ahead-to-matchweek-14-of-the-english-premier-league/)
-- **Football accumulator tips for Wednesday December 3: Back our acca at 23-1 with bet365**: [Link](https://www.racingpost.com/sport/football-tips/football-acca-tips/football-accumulator-tips-for-wednesday-december-3-back-our-acca-at-23-1-with-bet365-aUAZg2W4gz6j/)
-
-
-### endrick (N/A, 03/12/2025 15:30 Lima)
-
-- **Endrick loan to Lyon expected to be sealed in December – clubs enquiring about Gonzalo Garcia**: [Link](https://tribuna.com/en/news/2025-12-02-endrick-loan-to-lyon-expected-to-be-sealed-in-december-clubs-enquiring-about-gonzalo-garc/)
-- **The private conversation between Xabi Alonso and Florentino that explains the twist in Endrick's future**: [Link](https://madrid-barcelona.com/en/real-madrid/private-conversation-between-xabi-alonso-and-florentino-that-explains-endricks-future-twist)
-- **Endrick will have to wait, Real Madrid delays the signing: 'He'll stay until...'**: [Link](https://e-noticies.cat/en/soccer/endrick-will-have-to-wait-real-madrid-delays-signing-he-will-stay-until)
-
-
-### leeds - chelsea (N/A, 03/12/2025 15:30 Lima)
-
-- **Cesar Azpilicueta became a true Chelsea hero with antics against old rivals Leeds United in 2021**: [Link](https://www.thechelseachronicle.com/throwbacks/cesar-azpilicueta-became-a-true-chelsea-hero-with-antics-against-old-rivals-leeds-united-in-2021/)
-- **Predicted XI: Enzo Maresca starts 3 Brazilians as Blues look to keep up hot form**: [Link](https://chelsea.news/2025/12/leeds-predicted-enzo-maresca-starts-brazilians/)
-- **Leeds vs Chelsea: Net £30 in free PL bets with our bet365 bonus code – TSPORT**: [Link](https://talksport.com/betting/3789608/leeds-vs-chelsea-bet365-free-bets/)
 
 
