@@ -1,3 +1,71 @@
+### precio del dólar hoy (N/A, 07/12/2025 11:28 Lima)
+
+- **Precio del dólar en Perú hoy, domingo 7 de diciembre: cuál es el tipo de cambio del día**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-2025-a-cuanto-esta-el-dolar-este-domingo-7-de-diciembre-y-tipo-de-cambio-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
+- **Precio del dólar hoy: Así se cotiza el tipo de cambio en Perú este 6 de diciembre**: [Link](https://www.infobae.com/peru/2025/12/05/dolar-cotizacion-de-apertura-hoy-5-de-diciembre-en-peru/)
+- **BCR interviene y compra $ 294 millones y da respiro al dólar que cerró en S/ 3.362**: [Link](https://diariocorreo.pe/economia/bcr-interviene-y-compra-294-millones-y-da-respiro-al-dolar-que-cerro-en-s-3362-noticia/)
+
+
+### boca vs racing (N/A, 07/12/2025 11:28 Lima)
+
+- **La formación de Boca vs. Racing, por las semifinales del Torneo Clausura**: [Link](https://www.tycsports.com/boca-juniors/la-formacion-de-boca-vs-racing-torneo-clausura-id702419.html)
+- **Boca Juniors recibirá a Racing por un lugar en la final del Torneo Clausura: hora, TV y formaciones**: [Link](https://www.infobae.com/deportes/2025/12/07/boca-juniors-recibira-a-racing-por-un-lugar-en-la-final-del-torneo-clausura-hora-tv-y-formaciones/)
+- **Boca Juniors vs. Racing por internet: cuándo juegan, horarios y en qué canales lo pasan**: [Link](https://elcomercio.pe/deporte-total/argentina/como-ver-boca-vs-racing-en-vivo-hoy-gratis-por-semifinal-del-torneo-clausura-liga-argentina-a-que-hora-juegan-canal-tv-y-donde-ver-partido-via-espn-premium-disney-plus-futbol-libre-tv-video-noticia/)
+
+
+### dortmund - hoffenheim (N/A, 07/12/2025 11:28 Lima)
+
+- **Ist das Dortmunder 1:0 gegen Hoffenheim schon in Stein gemeißelt?**: [Link](https://www.kicker.de/ist-das-dortmunder-1-0-gegen-hoffenheim-schon-in-stein-gemeisselt-1172624/artikel)
+- **BVB: Guirassy zurück in der Startelf**: [Link](https://www.fussballtransfers.com/a749603777179075926-bvb-guirassy-zurueck-in-der-startelf)
+- **BVB (Borussia Dortmund) vs. TSG Hoffenheim live: Die Bundesliga im LIVE-TICKER**: [Link](https://www.dazn.com/de-DE/news/fussball/bvb-borussia-dortmund-tsg-hoffenheim-live-die-bundesliga-im-live-ticker/1vvgqwafrer7u1tjavj3wy0jok)
+
+
+### fulham - crystal palace (N/A, 07/12/2025 11:28 Lima)
+
+- **Fulham aiming to end 20-year winless run in Crystal Palace meeting**: [Link](https://www.sportsmole.co.uk/football/fulham/news/fulham-out-to-end-20-year-winless-run-in-palace-meeting_587279.html)
+- **EPL: Chukwueze banks on home support to beat Crystal Palace**: [Link](https://dailypost.ng/2025/12/06/epl-chukwueze-banks-on-home-support-to-beat-crystal-palace/)
+- **Nigerian trio face another derby weekend**: [Link](https://punchng.com/nigerian-trio-face-another-derby-weekend/)
+
+
+### celtic f. c. - hearts (N/A, 07/12/2025 11:28 Lima)
+
+- **Celtic starting XI to face Hearts at Paradise**: [Link](https://www.celticfc.com/news/2025/december/07/starting-xi-to-face-hearts-at-celtic-park/)
+- **Putting on a Show – Wilfried Nancy can hit the ground running against Hearts**: [Link](https://thecelticstar.com/putting-on-a-show-wilfried-nancy-can-hit-the-ground-running-against-hearts/)
+- **Sunday's Football Tips: Hotshot Daizen 8/5 To Maintain Momentum In Celtic's Key Match Against Hearts - SCCG Management**: [Link](https://sccgmanagement.com/sccg-news/2025/12/6/sundays-football-tips-hotshot-daizen-8-5-to-maintain-momentum-in-celtics-key-match-against-hearts-sccg-management/)
+
+
+### hamburg - werder bremen (N/A, 07/12/2025 11:28 Lima)
+
+- **Sorgen-Zwillinge der Buli: Welches Duo schießt sich zuerst aus der Krise?**: [Link](https://onefootball.com/es/noticias/sorgen-zwillinge-der-buli-welches-duo-schiesst-sich-zuerst-aus-der-krise-42059960)
+- **Ex-Werder-Keeper Wiese mit scharfer Derby-Kritik und überraschendem HSV-Geständnis**: [Link](https://www.90min.de/ex-werder-keeper-wiese-mit-scharfer-derby-kritik-und-uberraschendem-hsv-gestandnis)
+- **Stage beginnt: Die Werder-Startelf im Nordderby**: [Link](https://www.werder.de/news/maenner/2025-2026/aufstellung-nordderby-07122025)
+
+
+### ana de armas (N/A, 07/12/2025 11:28 Lima)
+
+- **Ana de Armas Opens Up About Her “Beautiful Friendship” With Keanu Reeves; Becoming an Action Star by Accident**: [Link](https://www.hollywoodreporter.com/movies/movie-news/ana-de-armas-keanu-reeves-red-sea-film-festival-1236443623/)
+- **Ana de Armas candidly talks about Keanu Reeves amid Tom Cruise split**: [Link](https://www.geo.tv/latest/637914-ana-de-armas-candidly-talks-about-keanu-reeves-amid-tom-cruise-split)
+- **Ana de Armas reflects on Keanu Reeves friendship and her unexpected path to action films**: [Link](https://tribune.com.pk/story/2580853/ana-de-armas-reflects-on-keanu-reeves-friendship-and-her-unexpected-path-to-action-films)
+
+
+### valencia c. f. - sevilla (N/A, 07/12/2025 11:28 Lima)
+
+- **Valencia - Sevilla, en directo | LaLiga EA Sports hoy en vivo**: [Link](https://www.marca.com/futbol/laliga-ea-sports/valencia-sevilla/2025/12/07/01_0101_20251207_191_179-directo.html)
+- **Corberán y Almeyda calibran secuelas**: [Link](https://as.com/futbol/primera/corberan-y-almeyda-calibran-secuelas-f202512-n/)
+- **Apuestas y Pronóstico del Valencia vs Sevilla 07/12/25**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/2025/diciembre/pronostico-valencia-vs-sevilla-07-12-25)
+
+
+### lando norris (N/A, 07/12/2025 11:28 Lima)
+
+- **Norris secures maiden F1 title in Abu Dhabi with P3 finish**: [Link](https://www.formula1.com/en/latest/article/norris-secures-maiden-f1-title-in-abu-dhabi-with-podium-finish-behind.EMJtmvRA0uzmzUC4MZgmw)
+- **Lando Norris wins 2025 F1 drivers’ championship - Abu Dhabi Grand Prix result & reaction**: [Link](https://www.bbc.com/sport/formula1/live/c2dnzd5ldy3t)
+- **F1 Abu Dhabi GP LIVE: Race, Qualifying, Practice title decider updates, stream, highlights in Lando Norris, Max Verstappen, Oscar Piastri fight**: [Link](https://www.skysports.com/f1/live-blog/12040/13478726/f1-abu-dhabi-gp-live-race-qualifying-practice-title-decider-updates-stream-highlights-in-lando-norris-max-verstappen-oscar-piastri-fight)
+
+
+### niza vs (N/A, 07/12/2025 11:28 Lima)
+
+- **Liga de Francia: Nice quiere volver a festejar frente a Angers**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-de-francia-nice-quiere-volver-a-festejar-frente-a-angers-noticia-1666819)
+
+
 ### cb canarias - real madrid (N/A, 07/12/2025 07:47 Lima)
 
 - **La Laguna Tenerife-Real Madrid: el equipo busca el triunfo en su cuarta salida consecutiva**: [Link](https://www.realmadrid.com/es-ES/noticias/baloncesto/primer-equipo/previas/la-laguna-tenerife-real-madrid-07-12-2025)
@@ -955,74 +1023,5 @@ Sin noticias relacionadas disponibles.
 - **Valencia y Rayo Vallecano repartieron puntos en LaLiga de España**: [Link](https://www.espn.com.pe/futbol/espana/nota/_/id/16019452/rayo-vallecano-vs-valencia-fecha-14-la-liga-equipo-fecha-hora-y-tv-en-vivo)
 - **LaLiga EA Sports: Rayo Vallecano y Valencia se miden por la fecha 14**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-rayo-vallecano-y-valencia-se-miden-por-la-fecha-14-noticia-1665954)
 - **Pronóstico Rayo Vallecano vs. Valencia: El pronóstico del lunes**: [Link](https://gainblers.com/pe/pronosticos/futbol/espana/liga-primera-division/pronostico-rayo-vallecano-valencia-01-12-2025/)
-
-
-### rayo vallecano vs (N/A, 04/12/2025 15:29 Lima)
-
-- **Real Avila vs Rayo Vallecano Prediction: Is miracle possible for Real Avila?**: [Link](https://www.telecomasia.net/sports-betting/tips/football/real-avila-vs-rayo-vallecano-prediction-for-the-match-on-december-04-2025/)
-- **Preview: Real Avila vs Rayo Vallecano - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/real-avila/copa-del-rey/preview/real-avila-vs-rayo-vallecano-prediction-team-news-lineups_586956.html)
-
-
-### lazio vs milan (N/A, 04/12/2025 11:36 Lima)
-
-- **Reports: Sarri to rotate Lazio team for Milan rematch – six changes possible**: [Link](https://sempremilan.com/sarri-rotate-lazio-team-milan-rematch)
-- **Gazzetta: Castellanos vs Leao: hunger for goals**: [Link](https://milanreports.com/2025/12/04/castellanos-vs-leao-hunger-for-goals/)
-- **Italy's "chief" referee says decision not to award penalty in Milan-Lazio was correct**: [Link](https://www.gazetaexpress.com/en/Italy%27s-chief-referee-says-decision-not-to-award-penalty-in-Milan-Lazio-was-correct/)
-
-
-### mon laferte (N/A, 04/12/2025 11:36 Lima)
-
-- **Mon Laferte vuelve al Perú con su gira “Femme Fatale”: ¿Cuándo y dónde será su concierto?**: [Link](https://elcomercio.pe/luces/musica/mon-laferte-vuelve-al-peru-con-su-gira-femme-fatale-cuando-y-donde-sera-su-concierto-celebs-ultimas-noticia/)
-- **Mon Laferte vuelve al Perú: fecha, lugar y entradas para su concierto en Lima**: [Link](https://www.infobae.com/peru/2025/12/02/mon-laferte-vuelve-al-peru-fecha-lugar-y-entradas-para-su-concierto-en-lima/)
-- **Mon Laferte, en el club de los amores perros**: [Link](https://elpais.com/babelia/2025-11-29/mon-laferte-en-el-club-de-los-amores-perros.html)
-
-
-### mef (N/A, 04/12/2025 11:36 Lima)
-
-- **Aprueban nueva escala remunerativa para trabajadores 728 del Minedu [Decreto Supremo 279-2025-EF]**: [Link](https://lpderecho.pe/nueva-escala-remunerativa-trabajadores-728-minedu-decreto-supremo-279-2025-ef/)
-- **MEF autoriza transferencia de S/ 175 millones para pagos a profesores**: [Link](https://andina.pe/agencia/noticia-mef-autoriza-transferencia-s-175-millones-para-pagos-a-profesores-1054438.aspx)
-- **Sueldo docente aumenta en Perú: ¿cómo cambian las remuneraciones en la CPM y para profesores contratados?**: [Link](https://elcomercio.pe/respuestas/tramites/atencion-maestros-ya-se-oficializo-el-aumento-asi-queda-la-nueva-escala-salarial-de-la-cpm-y-contratados-tdpe-noticia/)
-
-
-### ley de presupuesto 2026 (N/A, 04/12/2025 11:36 Lima)
-
-- **Ley 32513: Ley de presupuesto del sector público para el año fiscal 2026**: [Link](https://lpderecho.pe/ley-32513-ley-presupuesto-sector-publico-ano-fiscal-2026/)
-- **Bono de S/100 se confirma en del Presupuesto Público 2026: Los beneficiarios**: [Link](https://www.infobae.com/peru/2025/11/29/bono-de-s100-confirmado-con-aprobacion-del-presupuesto-publico-2026-los-beneficiarios/)
-- **Gobierno oficializó leyes de Presupuesto, Equilibrio Financiero y Endeudamiento 2026**: [Link](https://andina.pe/agencia/noticia-gobierno-oficializo-leyes-presupuesto-equilibrio-financiero-y-endeudamiento-2026-1054429.aspx)
-
-
-### la luna llena (N/A, 04/12/2025 11:36 Lima)
-
-- **La luna llena de diciembre es la última superluna del año**: [Link](https://cnnespanol.cnn.com/2025/12/03/clima-y-tiempo/superluna-diciembre-2025-ultima-ano-trax)
-- **Los astrónomos nos instan a prepararnos para lo que vendrá mañana 4 de diciembre**: [Link](https://www.larazon.es/ciencia/astronomos-nos-instan-prepararnos-que-vendra-manana-4-diciembre_20251203693006386e5e5012dcd88602.html)
-- **Eventos astronómicos de diciembre: NASA brinda consejos para verlos mejor**: [Link](https://elperuano.pe/noticia/284184-eventos-astronomicos-de-diciembre-nasa-brinda-consejos-para-verlos-mejor)
-
-
-### sorteo mundial 2026 (N/A, 04/12/2025 11:36 Lima)
-
-- **Sorteo de los grupos del Mundial 2026: bombos, fecha, a qué hora, formato y cómo ver por TV e internet**: [Link](https://cnnespanol.cnn.com/2025/12/04/deportes/sorteo-grupos-mundial-2026-bombos-orix)
-- **Cuál es el grupo más accesible y el más complicado que le puede tocar a la Argentina en el sorteo del Mundial 2026**: [Link](https://www.infobae.com/deportes/2025/12/04/cual-es-el-grupo-mas-accesible-y-el-mas-complicado-que-le-puede-tocar-a-la-argentina-en-el-sorteo-del-mundial-2026/)
-- **Judge se unirá a leyendas del deporte para el sorteo del Mundial de la FIFA 2026**: [Link](https://www.mlb.com/es/news/aaron-judge-sorteo-mundial-fifa-2026)
-
-
-### resultados de la tinka (N/A, 04/12/2025 07:55 Lima)
-
-- **La Tinka: conoce los resultados y ganadores del domingo 30 de noviembre**: [Link](https://elcomercio.pe/respuestas/loterias/la-tinka-hoy-domingo-30-de-noviembre-en-vivo-resultados-del-ultimo-sorteo-numeros-y-jugada-ganadora-pozo-millonario-loteria-resultado-si-o-si-boliyapa-intralot-lbposting-noticia/)
-- **La Tinka hoy 3 de diciembre: revisa aquí los resultados del sorteo y comprueba tu jugada ganadora**: [Link](https://www.infobae.com/peru/2025/12/04/la-tinka-del-3-de-diciembre-de-2025-descubre-los-numeros-ganadores-del-ultimo-sorteo/)
-- **Resultados La Tinka de HOY, 3 de diciembre EN VIVO: jugada ganadora y ÚLTIMOS números**: [Link](https://libero.pe/ocio/2025/12/03/resultados-tinka-de-hoy-3-de-diciembre-en-vivo-jugada-ganadora-ultimos-numeros-116882)
-
-
-### exitosa en vivo (N/A, 04/12/2025 07:55 Lima)
-
-- **La purga empezó en Sporting Cristal: los 4 jugadores que no están en los planes de Paulo Autuori para el 2026**: [Link](https://www.infobae.com/peru/deportes/2025/12/02/la-purga-empezo-en-sporting-cristal-los-4-jugadores-que-no-estan-en-los-planes-de-paulo-autuori-para-el-2026/)
-- **Se filtró el nombre de los cuatro futbolistas que no continuarán en Sporting Cristal en el 2026**: [Link](https://libero.pe/futbol-peruano/sporting-cristal/2025/12/03/sporting-cristal-se-filtro-nombre-de-cuatro-futbolistas-continuaran-en-equipo-2026-194538)
-- **Mientras Universitario se interesó en Martín Távara, la decisión de último momento que tomó Sporting Crista...**: [Link](https://bolavip.com/pe/liga-1/mientras-universitario-se-intereso-en-martin-tavara-la-decision-de-ultimo-momento-que-tomo-sporting-cristal-muy-cerca)
-
-
-### barcos (N/A, 04/12/2025 03:36 Lima)
-
-- **“Yo soy de Alianza para toda la vida”: Hernán Barcos tras anotar el empate de Alianza vs Cristal | VIDEO**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/hernan-barcos-yo-soy-de-alianza-para-toda-la-vida-declaraciones-del-pirata-barcos-tras-anotar-el-empate-de-alianza-vs-cristal-video-noticia/)
-- **(VIDEO | FOTOS) ¡Se define todo en Matute! Cristal empató 1-1 con Alianza en el Nacional**: [Link](https://ovacion.pe/noticias/liga1-te-apuesto-2025/video-fotos-se-define-todo-matute-cristal-empato-1-1-alianza)
-- **Hernán Barcos le cambió la cara a Alianza Lima con gol ante Sporting Cristal**: [Link](https://espndeportes.espn.com/futbol/peru/nota/_/id/16037581/hernan-barcos-cambio-cara-alianza-lima-vs-sporting-cristal-playoff-liga1-2025)
 
 
