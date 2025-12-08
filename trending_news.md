@@ -1,3 +1,71 @@
+### porque es feriado el 8 y 9 de diciembre (N/A, 07/12/2025 21:01 Lima)
+
+- **Inicio del feriado largo en Perú: estos son los últimos feriados de diciembre 2025**: [Link](https://elcomercio.pe/respuestas/cuando/feriado-largo-y-ultimos-feriados-del-2025-en-peru-dias-que-se-celebra-y-mas-calendario-2025-tdpe-noticia/)
+- **Feriados lunes 8 y martes 9 de diciembre: las reglas que aplicarán a este beneficio laboral**: [Link](https://gestion.pe/economia/management-empleo/feriados-lunes-8-y-martes-9-de-diciembre-las-reglas-que-se-aplicaran-a-este-beneficio-laboral-noticia/)
+- **No pierdas tu beneficio: consulta cuánto deben pagarte por trabajar los feriados 8 y 9 de diciembre**: [Link](https://www.elperuano.pe/noticia/284113-no-pierdas-tu-beneficio-consulta-cuanto-deben-pagarte-por-trabajar-los-feriados-8-y-9-de-diciembre)
+
+
+### 76ers - lakers (N/A, 07/12/2025 21:01 Lima)
+
+- **Los Angeles Lakers vs Philadelphia 76ers Prediction, Pick, Odds -- 12/7**: [Link](https://www.actionnetwork.com/nba/los-angeles-lakers-vs-philadelphia-76ers-prediction-pick-odds-sunday-november-7)
+- **LeBron James (foot/sciatica) upgraded to probable Sunday**: [Link](https://www.fantasypros.com/nba/news/557589/lebron-james-footsciatica-upgraded-to-probable-sunday.php)
+- **NBA Best Bets: Lakers at 76ers Prop Bets for Sunday 12/7/25**: [Link](https://dknetwork.draftkings.com/2025/12/07/nba-best-bets-lakers-at-76ers-prop-bets-for-sunday-12-7-25/)
+
+
+### feriado 8 y 9 de diciembre (N/A, 07/12/2025 21:01 Lima)
+
+- **¿A qué hora abren los Supermercados este feriado 8 y 9 de diciembre en Lima? Así será su atención en estas fechas**: [Link](https://elcomercio.pe/respuestas/tramites/a-que-hora-abren-los-supermercados-este-feriado-8-y-9-de-diciembre-en-lima-asi-sera-su-atencion-en-estas-fechas-tdpe-noticia/)
+- **ATU: conoce el horario del Metropolitano y corredores durante el feriado largo del 8 y 9 de diciembre en Lima**: [Link](https://larepublica.pe/sociedad/2025/12/07/atu-conoce-el-horario-del-metropolitano-y-corredores-durante-el-feriado-largo-del-8-y-9-de-diciembre-en-lima-164214)
+- **Feriados del 8 y 9 de diciembre: conoce los horarios del Metropolitano, Corredores Complementarios, Metro de Lima y más**: [Link](https://rpp.pe/lima/actualidad/feriados-del-8-y-9-de-diciembre-conoce-los-horarios-del-metropolitano-corredores-complementarios-metro-de-lima-y-mas-noticia-1666871)
+
+
+### bulls - warriors (N/A, 07/12/2025 21:01 Lima)
+
+- **How to Watch Warriors vs Bulls: Live Stream NBA, TV Channel**: [Link](https://www.newsweek.com/how-to-watch-warriors-vs-bulls-live-stream-nba-tv-channel-11169496)
+- **Chicago faces Golden State, looks to halt 6-game skid**: [Link](https://abcnews.go.com/Sports/wireStory/chicago-faces-golden-state-halt-6-game-skid-128182676)
+- **Warriors' Jimmy Butler: Good to go Sunday**: [Link](https://www.cbssports.com/fantasy/basketball/news/warriors-jimmy-butler-good-to-go-sunday/)
+
+
+### hornets - nuggets (N/A, 07/12/2025 21:01 Lima)
+
+- **Nuggets 115-106 Hornets (7 Dec, 2025) Game Recap**: [Link](https://www.espn.co.uk/nba/recap?gameId=401810214)
+- **Hornets Highlights vs Nuggets ‑ 12/07/25**: [Link](https://www.nba.com/hornets/videos/hornets-highlights-vs-nuggets-12-07-25)
+- **Jokic passes Jordan, Billups in all-time book, Nuggets make it 10 in a road**: [Link](https://denversports.com/nba/denver-nuggets/jokic-jordan-billups-10/2127295)
+
+
+### christian cueva (N/A, 07/12/2025 21:01 Lima)
+
+- **Regresa al fútbol peruano: Christian Cueva será nuevo jugador de Juan Pablo II**: [Link](https://rpp.pe/futbol/descentralizado/christian-cueva-sera-nuevo-jugador-de-juan-pablo-ii-liga-1-emelec-noticia-1666971)
+- **¡Bombazo en la Liga 1! Christian Cueva es nuevo jugador de Juan Pablo II**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/cueva-a-juan-pablo-ii-christian-cueva-vuelve-a-la-liga-1-noticia/)
+- **Christian Cueva es nuevo jugador de Juan Pablo II College**: [Link](https://caretas.pe/deportes/christian-cueva-juan-pablo-ii-2026/)
+
+
+### mañana es feriado (N/A, 07/12/2025 21:01 Lima)
+
+Sin noticias relacionadas disponibles.
+
+
+### karol g (N/A, 07/12/2025 21:01 Lima)
+
+- **Karol G Expands the ‘Tropicoqueta’ Universe With Special Visual Album Broadcast**: [Link](https://www.rollingstone.com/music/music-news/karol-g-tropicoqueta-la-premiere-broadcast-1235477199/)
+- **KAROL G Brings "Tropicoqueta" to Life With TV Special "La Premiere"**: [Link](https://www.hitsdailydouble.com/news/stage-and-screen/karol-g-la-premiere-tv-special-2025-12-05)
+- **Karol G Designs ‘Tropicoqueta’ as a Visual Album for the Latino Collective With ‘La Premiere’**: [Link](https://belatina.com/karol-g-designs-tropicoqueta-as-a-visual-album-for-the-latino-collective-with-la-premiere/)
+
+
+### williot swedberg (N/A, 07/12/2025 21:01 Lima)
+
+- **VIDEO: Celta chockade "Kungarna" mitt i Madrid**: [Link](https://www.slobodenpecat.mk/sv/video-selta-srede-madrid-gi-shokirashe-kralevite/)
+- **Swedbergs succé: Sänkte Real Madrid på Bernabéu**: [Link](https://omni.se/swedbergs-succe-sankte-real-madrid-pa-bernabeu/a/Gx1P2V)
+- **Bellingham lämnade chockförlusten mot Celta Vigo blodig**: [Link](https://www.aftonbladet.se/sportbladet/fotboll/a/rrL8K8/jude-bellingham-lamnade-chockforlusten-blodig)
+
+
+### álvaro carreras (N/A, 07/12/2025 21:01 Lima)
+
+- **La expulsión de Fran García en un minuto y el cabreo de Xabi Alonso: "Fran, no me jodas"**: [Link](https://www.marca.com/futbol/real-madrid/2025/12/07/expulsion-fran-garcia-minuto-cabreo-xabi-alonso-fran-me-jodas.html)
+- **Xabi: “Nos ha desquiciado el árbitro”**: [Link](https://as.com/futbol/real-madrid/xabi-nos-ha-desquiciado-la-decision-del-arbitro-f202512-n/)
+- **¡Festival de tarjetas rojas en el Bernabéu y tangana con el árbitro!**: [Link](https://www.mundodeportivo.com/futbol/real-madrid/20251207/1002582872/festival-tarjetas-rojas-bernabeu-tangana-arbitro.html)
+
+
 ### america tvgo (N/A, 07/12/2025 15:26 Lima)
 
 - **Mundial 2026: el camino a la gloria, con grupos de la muerte, cruces pesados y un choque de gigantes que podría llegar pronto**: [Link](https://cnnespanol.cnn.com/2025/12/06/deportes/mundial-2026-sorteo-calendario-grupos-muerte-orix)
@@ -951,75 +1019,5 @@ Sin noticias relacionadas disponibles.
 - **Marita Barreto goza de privilegios y blindaje: sala de juez César San Martín negó el levantamiento de secreto bancario**: [Link](https://willax.pe/politica/marita-barreto-negaron-levantamiento-secreto-bancario-willax)
 - **César San Martín bloquea investigación a Marita Barreto: impide acceso a sus movimientos bancarios**: [Link](https://www.expreso.com.pe/judicial/cesar-san-martin-bloquea-investigacion-a-marita-barreto-impide-acceso-a-sus-movimientos-bancarios-fiscalia-eficcop-noticia/1244564/)
 - **Corte Suprema protege a Marita Barreto: impide revelar sus movimientos bancarios pese a presunta fortuna millonaria**: [Link](https://diarioelnoticiero.com/corte-suprema-protege-a-marita-barreto-impide-revelar-sus-movimientos-bancarios-pese-a-presunta-fortuna-millonaria/)
-
-
-### junior (N/A, 04/12/2025 23:34 Lima)
-
-- **Junior hockey World Cup: Schedule, results and live stream details of India's campaign at FIH event**: [Link](https://www.sportingnews.com/in/tsn/news/india-hockey-junior-world-cup-schedule-results-live-stream/07f787b98c0a6ab7ac65ac8a)
-- **India will be tested by an attacking Belgium**: [Link](https://www.pressreader.com/india/the-hindu-visakhapatnam-9WWH/20251205/282230902005820)
-- **France Thrash South Korea, Australia Hold Off Bangladesh in Junior Hockey World Cup**: [Link](https://www.sentinelassam.com/sports-news/france-thrash-south-korea-australia-hold-off-bangladesh-in-junior-hockey-world-cup)
-
-
-### jairo velez (N/A, 04/12/2025 21:00 Lima)
-
-- **El bombazo del mercado: Alianza Lima sí hará por Jairo Vélez lo que Universitario no está dispuesto**: [Link](https://bolavip.com/pe/liga-1/el-bombazo-del-mercado-alianza-lima-si-hara-por-jairo-velez-lo-que-universitario-no-esta-dispuesto)
-- **¿Se va del tricampeón? Se complica la continuidad de Jairo Vélez en Universitario de Deportes**: [Link](https://rpp.pe/futbol/descentralizado/universitario-de-deportes-jairo-velez-su-continuidad-se-complica-estos-son-los-detalles-de-la-negociacion-noticia-1666614)
-- **Vélez dejaría Universitario y estaría muy cerca de llegar a Alianza en 2026**: [Link](https://ovacion.pe/noticias/alianza-lima/velez-dejaria-universitario-estaria-muy-cerca-llegar-alianza-2026)
-
-
-### bruce willis (N/A, 04/12/2025 21:00 Lima)
-
-- **Bruce Willis' Wife Gives New Update on His Health: 'Unkind Disease': EXCLUSIVE**: [Link](https://www.today.com/health/news/emma-willis-update-bruce-willis-health-exclusive-rcna246948)
-- **Emma Heming Willis Says 'It's Important to Put Die Hard on’ Over the Holidays: 'It's a Christmas Movie' (Exclusive)**: [Link](https://people.com/emma-heming-willis-advice-fun-joy-holidays-put-die-hard-on-exclusive-11857307)
-- **Bruce Willis's wife on how she learned action star has dementia and decision to move him out of their home**: [Link](https://ca.news.yahoo.com/bruce-williss-wife-she-learned-205338860.html)
-
-
-### junior - américa (N/A, 04/12/2025 21:00 Lima)
-
-- **FIH Hockey Women's Junior World Cup 2025 points table: India slip to second place after Germany defeat**: [Link](https://khelnow.com/hockey/points-table-fih-hockey-womens-junior-world-cup-202512)
-- **52' Germany doubles its lead with Annika's cheeky finish at back post**: [Link](https://thebridge.in/buzz/womens-junior-world-cup-india-germany-live-blog-scores-97226)
-- **DAY 1 – FIH Hockey Women’s Junior World Cup City of Santiago 2025**: [Link](https://www.africahockey.org/day-1-fih-hockey-womens-junior-world-cup-city-of-santiago-2025/)
-
-
-### categoría primera a (N/A, 04/12/2025 21:00 Lima)
-
-- **Cúcuta vs Cundinamarca: Tarde de penales, con Cataño figura y tensa celebración de ascenso**: [Link](https://www.espn.com.ar/futbol/colombia/nota/_/id/16037150/torneo-betplay-2025-cucuta-vs-cundinamarca-penales-catano-figura-celebracion-ascenso-disputa)
-- **Cúcuta Deportivo, el club que renació hace tres años y logró el ascenso a Liga BetPlay 2026**: [Link](https://espndeportes.espn.com/futbol/colombia/nota/_/id/12278041/cucuta-deportivo-el-club-que-renacio-y-logro-ascenso-liga-betplay-2026)
-- **El defensor Henry Plazas logró el ascenso a primera división con el Cúcuta Deportivo**: [Link](https://onefootball.com/es/noticias/el-defensor-henry-plazas-logro-el-ascenso-a-primera-division-con-el-cucuta-deportivo-42048460)
-
-
-### bolivar (N/A, 04/12/2025 21:00 Lima)
-
-- **Bolívar busca mantener el sueño del título y asegurar su cupo en la Libertadores 2026**: [Link](https://www.redpat.tv/detalle/Bolivar-busca-mantener-el-sueno-del-titulo-y-asegurar-su-cupo-en-la-libertadores-2026)
-- **Bolívar vs Nacional Potosí: resultado EN VIVO y estadísticas del encuentro**: [Link](https://www.365scores.com/es/news/bolivar-vs-nacional-potosi-vivo-liga/)
-- **Hoy juega Bolívar contra Nacional Potosí: ¿la entrada podrá ser un juguete?**: [Link](https://www.bolivia.com/futbol/liga-boliviana/bolivar-juega-hoy-ante-nacional-potosi-y-la-entrada-podra-ser-un-juguete-553965)
-
-
-### raptors - lakers (N/A, 04/12/2025 21:00 Lima)
-
-- **When will Luka Doncic return? Lakers star to miss Eastern road trip**: [Link](https://basketnews.com/news-236257-when-will-luka-doncic-return-lakers-star-to-miss-eastern-road-trip.html)
-- **Lakers vs Raptors! Big Injury Update, Keys To Victory & Should Lakers Pursue Giannis Or Chris Paul?**: [Link](https://bvmsports.com/2025/12/04/lakers-vs-raptors-big-injury-update-keys-to-victory-should-lakers-pursue-giannis-or-chris-paul/)
-- **Toronto Raptors vs Los Angeles Lakers LIVE Score Updates in NBA Game**: [Link](https://www.vavel.com/en-us/nba/2025/12/05/1243556-raptors-vs-lakers-live-score-nba.html)
-
-
-### oscar gayoso (N/A, 04/12/2025 21:00 Lima)
-
-- **"No me gustan los dramas": Óscar Gayoso revela por qué decidió mantener en reserva su diagnóstico de cáncer**: [Link](https://rpp.pe/famosos/celebridades/oscar-gayoso-explica-por-que-decidio-mantener-en-reserva-su-diagnostico-de-cancer-noticia-1666500)
-- **Óscar Gayoso responde sobre supuesto romance con Aída Martínez: “Es mi amiga... pero no lo estoy negando”**: [Link](https://trome.com/espectaculos/tv/oscar-gayoso-responde-supuesto-romance-con-aida-martinez-es-mi-amiga-pero-no-lo-estoy-negando-cafe-con-la-chevez-video-fotos-farandula-noticia/)
-- **Óscar Gayoso confiesa por qué decidió ocultar su batalla contra el cáncer: "No me gustan los dramas"**: [Link](https://larepublica.pe/espectaculos/2025/12/04/oscar-gayoso-confiesa-por-que-decidio-ocultar-su-batalla-contra-el-cancer-no-me-gustan-los-dramas-121888)
-
-
-### 76ers - warriors (N/A, 04/12/2025 21:00 Lima)
-
-- **V.J. Edgecombe returns from injury as 76ers edge Warriors 121-118 in thrilling finish**: [Link](https://www.red94.net/news/15163-v-j-edgecombe-returns-from-injury-as-76ers-edge-warriors-121-118-in-thrilling-fi/)
-- **Sixers' Adem Bona discusses challenges Warriors present before contest**: [Link](https://sports.yahoo.com/articles/sixers-adem-bona-discusses-challenges-211723847.html)
-- **Is Stephen Curry playing tonight vs the Philadelphia 76ers? Latest update on the Golden State Warriors st**: [Link](https://timesofindia.indiatimes.com/sports/nba/top-stories/is-stephen-curry-playing-tonight-vs-the-philadelphia-76ers-latest-update-on-the-golden-state-warriors-stars-injury-report-december-4-2025/articleshow/125774188.cms)
-
-
-### atlético nacional - medellín (N/A, 04/12/2025 21:00 Lima)
-
-- **Cómo quedó la tabla de posiciones de grupo A de Liga BetPlay 2025-II, tras Nacional 2-1 Medellín**: [Link](https://www.noticiascaracol.com/golcaracol/seleccion-colombia/como-quedo-la-tabla-de-posiciones-de-grupo-a-de-liga-betplay-2025-ii-tras-nacional-2-0-medellin-so35)
-- **Nacional vs. DIM, alineaciones**: [Link](https://capsulas.com.co/nacional-vs-dim-alineaciones-3/)
-- **Nacional volvió a ganar el clásico, eliminó al Medellín y sigue en la pelea por ir a la final y a la Copa Libertadores**: [Link](https://www.eltiempo.com/deportes/futbol-colombiano/nacional-volvio-a-ganar-el-clasico-elimino-al-medellin-y-sigue-en-la-pelea-por-ir-a-la-final-y-a-la-copa-libertadores-3514444)
 
 
