@@ -1,3 +1,59 @@
+### canal 5 en vivo (N/A, 07/12/2025 23:37 Lima)
+
+- **Mundial 2026: el camino a la gloria, con grupos de la muerte, cruces pesados y un choque de gigantes que podría llegar pronto**: [Link](https://cnnespanol.cnn.com/2025/12/06/deportes/mundial-2026-sorteo-calendario-grupos-muerte-orix)
+- **¿Argentina, España, Inglaterra...? Cuáles son las selecciones favoritas para ganar el Mundial 2026, según las apuestas, las estadísticas y los expertos**: [Link](https://www.bbc.com/mundo/articles/c898e48ny5xo)
+- **Una supercomputadora predijo quién ganará el Mundial 2026 tras el sorteo: cómo le irá a la selección argentina**: [Link](https://www.infobae.com/deportes/2025/12/07/una-supercomputadora-predijo-quien-ganara-el-mundial-2026-tras-el-sorteo-como-le-ira-a-la-seleccion-argentina/)
+
+
+### tilsa lozano (N/A, 07/12/2025 23:37 Lima)
+
+- **Magaly Medina y su dura opinión por el regreso de Tilsa Lozano a ‘El Valor de la Verdad’: “La amante icónica del Perú”**: [Link](https://www.infobae.com/peru/2025/12/06/magaly-medina-y-su-dura-opinion-por-el-regreso-de-tilsa-lozano-a-el-valor-de-la-verdad-la-amante-iconica-del-peru/)
+- **Magaly Medina LAPIDA a Tilsa Lozano por hablar nuevamente del 'loco' Vargas: "La amante icónica del Perú"**: [Link](https://www.atv.pe/noticia/magaly-medina-lapida-a-tilsa-lozano-por-hablar-nuevamente-del-loco-vargas-la-amante-iconica-del-peru/)
+- **Magaly Medina cuestiona a Tilsa Lozano por revivir su pasado con Juan Manuel Vargas | Últimas | TVMAS**: [Link](https://elcomercio.pe/tvmas/farandula/magaly-medina-cuestiona-a-tilsa-lozano-por-revivir-su-pasado-con-juan-manuel-vargas-ultimas-noticia/)
+
+
+### panamericana tv (N/A, 07/12/2025 23:37 Lima)
+
+- **Karla Tarazona tras polémico beso con Gisela Valcárcel: “No guardo rencor, me da igual lo que digan”**: [Link](https://elcomercio.pe/tvmas/farandula/karla-tarazona-tras-polemico-beso-con-gisela-valcarcel-no-guardo-rencor-me-da-igual-lo-que-digan-ultimas-noticia/)
+- **Panamericana anuncia el formato La granja VIP Perú y el regreso de Gisela Valcárcel a su pantalla**: [Link](https://www.produ.com/television/noticias/panamericana-anuncia-el-formato-la-granja-vip-peru-y-el-regreso-de-gisela-valcarcel-a-su-pantalla/)
+- **Magaly Medina habla del regreso de Gisela Valcárcel a la TV y la tilda de una manera inesperada**: [Link](https://www.apnoticias.pe/peru/exitosa-noticias/magaly-medina-habla-del-regreso-de-gisela-valcarcel-a-la-tv-y-la-tilda-de-una-manera-inesperada-1473722)
+
+
+### it (N/A, 07/12/2025 23:37 Lima)
+
+- **Republicans in Congress mocked Trump privately, Marjorie Taylor Greene says**: [Link](https://www.theguardian.com/us-news/2025/dec/07/congress-republicans-tease-trump-marjorie-taylor-greene)
+- **Greene rejects ‘MAGA’ label: ‘I’m America first’**: [Link](https://thehill.com/homenews/house/5638229-marjorie-greene-trump-maga-split/)
+- **Fmr. Republican congressman Adam Kinzinger reacts to Marjorie Taylor Greene's new stance on Trump**: [Link](https://www.cnn.com/2025/12/07/politics/video/fmr-republican-congressman-adam-kinzinger-reacts-to-marjorie-taylor-greenes-new-stance-on-trump)
+
+
+### jazz - thunder (N/A, 07/12/2025 23:37 Lima)
+
+- **Thunder 131-101 Jazz (Dec 7, 2025) Game Recap**: [Link](https://www.espn.com/nba/recap/_/gameId/401810218)
+- **Preview: Utah Jazz challenge the scraps of the OKC machine**: [Link](https://sports.yahoo.com/articles/preview-utah-jazz-challenge-scraps-002828215.html)
+- **Highlights: Thunder throttle Jazz in road win**: [Link](https://www.nbcsports.com/watch/nba/nba-2025-26-highlights-oklahoma-city-thunder-131-utah-jazz-101)
+
+
+### hbo max (N/A, 07/12/2025 23:37 Lima)
+
+- **Hugh Grant considera que la compra de Warner por Netflix es una mala noticia para el cine**: [Link](https://elcomercio.pe/luces/cine/hugh-grant-considera-que-la-compra-de-warner-por-netflix-es-una-mala-noticia-para-el-cine-celebs-ultimas-noticia/)
+- **Paramount cuestionó el proceso de venta de Warner Bros. por presunto favoritismo hacia Netflix**: [Link](https://rpp.pe/tv/netflix/paramount-cuestiono-proceso-de-venta-de-warner-bros-por-presunto-favoritismo-a-netflix-noticia-1666710)
+- **Actriz Jane Fonda advierte que compra de Warner por Netflix amenaza a toda la industria**: [Link](https://gestion.pe/mundo/eeuu/actriz-jane-fonda-advierte-que-compra-de-warner-por-netflix-amenaza-a-toda-la-industria-noticia/)
+
+
+### registro nacional de infieles excel (N/A, 07/12/2025 23:37 Lima)
+
+- **El “registro de infieles” en Ecuador replica una tendencia regional de escarnio digital y vulneración de datos**: [Link](https://www.infobae.com/america/america-latina/2025/12/05/el-registro-de-infieles-en-ecuador-replica-una-tendencia-regional-de-escarnio-digital-y-vulneracion-de-datos/)
+- **Registro Público de Infidelidad: Alerta por web que expone datos y advierten cobros por borrar nombres**: [Link](https://elcomercio.pe/lima/registro-publico-de-infidelidad-alerta-por-web-que-expone-datos-y-advierten-cobros-y-posible-extorsion-minjusdh-ultimas-noticia/)
+- **La lista negra de las girls: ¿qué delitos enfrentarían quienes expusieron datos de supuestos infieles?**: [Link](https://lpderecho.pe/la-lista-negra-de-las-girls-delitos-enfrentarian-exponer-datos-infieles/)
+
+
+### rafael ithier gran combo (N/A, 07/12/2025 23:37 Lima)
+
+- **Muere Rafael Ithier, cofundador de El Gran Combo de Puerto Rico y leyenda de la salsa**: [Link](https://cnnespanol.cnn.com/2025/12/07/entretenimiento/muere-rafael-ithier-gran-combo-orix)
+- **Gilberto Santa Rosa se despide de Rafael Ithier: “Con el dolor de un hijo que pierde a un padre”**: [Link](https://elcomercio.pe/luces/musica/gilberto-santa-rosa-se-despide-de-rafael-ithier-con-el-dolor-de-un-hijo-que-pierde-a-un-padre-celebs-ultimas-noticia/)
+- **Esta es la historia de Rafael Ithier, el 'máximo mulato' que convirtió a El Gran Combo en un símbolo mundial de la salsa**: [Link](https://www.eltiempo.com/cultura/gente/como-rafael-ithier-se-convirtio-en-el-maximo-mulato-de-la-salsa-y-en-el-simbolo-de-el-gran-combo-de-puerto-rico-3515000)
+
+
 ### porque es feriado el 8 y 9 de diciembre (N/A, 07/12/2025 21:01 Lima)
 
 - **Inicio del feriado largo en Perú: estos son los últimos feriados de diciembre 2025**: [Link](https://elcomercio.pe/respuestas/cuando/feriado-largo-y-ultimos-feriados-del-2025-en-peru-dias-que-se-celebra-y-mas-calendario-2025-tdpe-noticia/)
@@ -965,59 +1021,5 @@ Sin noticias relacionadas disponibles.
 - **Link de resultados del Ascenso Docente 2025: Minedu ya tiene fecha para publicar la lista de clasificados tras la Prueba Nacional**: [Link](https://elcomercio.pe/respuestas/ascenso-docente-2025-esta-es-la-fecha-en-que-el-minedu-publicara-la-lista-de-clasificados-tras-la-prueba-nacional-tdpe-noticia/)
 - **Les subirán salario a profesores: Ministerio de Educación publica listado de quienes están a un paso en col...**: [Link](https://redmas.com.co/colombia/les-subiran-salario-a-profesores-ministerio-de-educacion-publica-listado-de-quienes-estan-a-un-paso-en-colegios-de-colombia-20251204-0051.html)
 - **El examen de ascenso**: [Link](https://proycontra.com.pe/el-examen-de-ascenso/)
-
-
-### lista negra de infieles peru (N/A, 05/12/2025 03:34 Lima)
-
-- **‘La lista negra de las girls’, el polémico registro de hombres infieles que causó furor en redes sociales habría sido eliminado**: [Link](https://www.infobae.com/peru/2025/11/30/eliminaron-la-lista-negra-de-las-girls-polemico-registro-de-hombres-infieles-causo-furor-en-redes-sociales/)
-- **La lista negra de las girls: ¿qué delitos enfrentarían quienes expusieron datos de supuestos infieles?**: [Link](https://lpderecho.pe/la-lista-negra-de-las-girls-delitos-enfrentarian-exponer-datos-infieles/)
-- **Lista de infieles: el tip para encontrar un nombre en Excel**: [Link](https://www.metroecuador.com.ec/noticias/2025/12/03/lista-de-infieles-el-tip-para-encontrar-un-nombre-en-excel/)
-
-
-### junior vs (N/A, 05/12/2025 03:34 Lima)
-
-- **Didier Moreno tras el triunfo vs. América: "Lo importante es que no dejamos de creer"**: [Link](https://www.espn.com.pe/futbol/colombia/nota/_/id/16046052/didier-moreno-lo-importante-es-que-no-dejamos-de-creer)
-- **Mientras se juega Júnior – América y ganó Nacional, así va la tabla de posiciones del Grupo A de la Liga Be...**: [Link](https://bolavip.com/pe/futbol-internacional/tabla-de-posiciones-liga-betplay-torneo-clausura-2025-cuadrangulares-grupo-a-nacional-medellin-junior-america-de-cali)
-
-
-### cambio dolar peru (N/A, 04/12/2025 23:34 Lima)
-
-- **Precio del dólar en Perú: a cuánto cerró el tipo de cambio el miércoles 3 de diciembre**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-en-peru-2025-a-cuanto-esta-el-dolar-este-miercoles-3-de-diciembre-tipo-de-cambio-segun-bcrp-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
-- **¿Cuál es la cotización del dólar hoy jueves 4 de diciembre del 2025?**: [Link](https://andina.pe/agencia/noticia-cual-es-cotizacion-del-dolar-hoy-jueves-4-diciembre-del-2025-1054444.aspx)
-- **Precio del dólar HOY en Perú: Así cotiza el tipo de cambio este jueves, 4 de diciembre**: [Link](https://www.exitosanoticias.pe/actualidad/precio-dolar-hoy-peru-asi-cotiza-tipo-cambio-jueves-4-diciembre-n164046)
-
-
-### billie eilish (N/A, 04/12/2025 23:34 Lima)
-
-- **Opinion | What celebrities are made for**: [Link](https://dailyiowan.com/2025/12/03/opinion-what-celebrities-are-made-for/)
-- **What’s your point?**: [Link](https://thefinanser.com/2025/12/whats-your-point)
-- **'Pathetic': Billie Eilish Torches Elon Musk’s Hoarded Fortune, He Claps Back with a Jab Nobody Saw Coming**: [Link](https://atlantablackstar.com/2025/11/29/pathetic-billie-eilish-torches-elon-musks-hoarded-fortune-he-claps-back-with-a-jab-nobody-saw-coming/)
-
-
-### pelicans - timberwolves (N/A, 04/12/2025 23:34 Lima)
-
-- **Timberwolves, Pelicans meet again after wild Tuesday OT affair**: [Link](https://www.thesportsleader.com/2025/12/03/timberwolves-pelicans-meet-again-after-wild-tuesday-ot-affair/)
-- **NO.pelicanstimberwolves.120525.1217.JPG**: [Link](https://www.theadvocate.com/no-pelicanstimberwolves-120525-1217-jpg/image_3317d10c-1d3d-5e84-a10a-609f83056b74.html)
-- **Wolves Pics: Wolves Take Care Of Pelicans, 125‑116 | 12.04.25**: [Link](https://www.nba.com/timberwolves/photos/wolves-pics-wolves-take-care-of-pelicans-125-116-12-04-25)
-
-
-### karol g (N/A, 04/12/2025 23:34 Lima)
-
-- **How to Watch Karol G’s ‘Tropicoqueta’-Inspired TV Special ‘La Premiere’**: [Link](https://www.billboard.com/music/latin/karol-g-la-premiere-how-to-watch-1236128664/)
-- **How to Watch Karol G’s ‘Tropicoqueta’-Inspired TV Special ‘La Premiere’**: [Link](https://www.yahoo.com/entertainment/tv/articles/watch-karol-g-tropicoqueta-inspired-215257038.html)
-
-
-### peru vs colombia voley (N/A, 04/12/2025 23:34 Lima)
-
-- **Perú vs Colombia EN VIVO HOY: punto a punto del vóley femenino por los Juegos Bolivarianos 2025**: [Link](https://www.infobae.com/peru/deportes/2025/12/04/peru-vs-colombia-en-vivo-hoy-atv-youtube-voley-femenino-juegos-bolivarianos-2025-resumen-resultado/)
-- **Perú a la final del vóley: así fue la eufórica celebración tras triunfo ante Colombia por los Juegos Bolivarianos 2025**: [Link](https://rpp.pe/voley/seleccion-peruana/peru-a-la-final-del-voley-asi-fue-la-euforica-celebracion-tras-triunfo-ante-colombia-por-los-juegos-bolivarianos-2025-noticia-1666632)
-- **Juegos Bolivarianos 2025: participación del equipo peruano de voley playa masculino| Galería Fotográfica**: [Link](https://andina.pe/agencia/galeria-juegos-bolivarianos-2025-participacion-del-equipo-peruano-voley-playa-masculino-27938.aspx)
-
-
-### marita barreto (N/A, 04/12/2025 23:34 Lima)
-
-- **Marita Barreto goza de privilegios y blindaje: sala de juez César San Martín negó el levantamiento de secreto bancario**: [Link](https://willax.pe/politica/marita-barreto-negaron-levantamiento-secreto-bancario-willax)
-- **César San Martín bloquea investigación a Marita Barreto: impide acceso a sus movimientos bancarios**: [Link](https://www.expreso.com.pe/judicial/cesar-san-martin-bloquea-investigacion-a-marita-barreto-impide-acceso-a-sus-movimientos-bancarios-fiscalia-eficcop-noticia/1244564/)
-- **Corte Suprema protege a Marita Barreto: impide revelar sus movimientos bancarios pese a presunta fortuna millonaria**: [Link](https://diarioelnoticiero.com/corte-suprema-protege-a-marita-barreto-impide-revelar-sus-movimientos-bancarios-pese-a-presunta-fortuna-millonaria/)
 
 
