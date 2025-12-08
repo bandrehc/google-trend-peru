@@ -1,3 +1,73 @@
+### manchester united vs (N/A, 08/12/2025 15:29 Lima)
+
+- **Manchester United busca volver al triunfo en duelo a domicilio ante Wolves**: [Link](https://www.espn.com.pe/futbol/inglaterra/nota/_/id/16044961/manchester-united-vs-west-ham-fecha-15-premier-league-equipo-fecha-hora-y-tv-en-vivo)
+- **Premier League: Wolverhampton quiere romper su racha negativa y ganar frente a Manchester United**: [Link](https://rpp.pe/futbol/ligas-internacionales/premier-league-wolverhampton-quiere-romper-su-racha-negativa-y-ganar-frente-a-manchester-united-noticia-1666955)
+- **¡Continuo! Programación de TV y enlaces de transmisión en vivo para la Premier League Wolverhampton vs Manchester United**: [Link](https://www.ucvradio.pe/mas-actualidad/continuo-programacion-de-tv-y-enlaces-de-transmision-en-vivo-para-la-premier-league-wolverhampton-vs-manchester-united/70834/)
+
+
+### tolima - fortaleza (N/A, 08/12/2025 15:29 Lima)
+
+- **Pronóstico de Tolima vs Fortaleza por la Liga BetPlay 2025**: [Link](https://www.365scores.com/es/news/pronostico-tolima-vs-fortaleza-liga/)
+- **Noticias Tolima: Lista la seguridad para el partido Deportes Tolima**: [Link](https://www.alertatolima.com/noticias/deportes/lista-la-seguridad-para-el-partido-deportes-tolima-fortaleza-en-ibague)
+- **Deportes Tolima vs Fortaleza, en vivo el partido de los cuadrangulares de la Liga BetPlay 2025-II**: [Link](https://www.clarosports.com/colombia/liga-bet-play/deportes-tolima-vs-fortaleza-en-vivo-el-partido-de-los-cuadrangulares-de-la-liga-betplay-2025-ii/)
+
+
+### it welcome to derry capitulo 7 estreno (N/A, 08/12/2025 15:29 Lima)
+
+- **“It: Welcome to Derry” Capítulo 7: Hora de estreno confirmado en HBO Max | tdpe | TVMAS**: [Link](https://elcomercio.pe/tvmas/series/it-welcome-to-derry-capitulo-7-hora-de-estreno-confirmado-hbo-max-tdpe-noticia/)
+- **‘It: Welcome to Derry’: Andy Muschietti habla sobre la escena más aterradora de la temporada**: [Link](https://www.ecartelera.com/noticias/it-welcome-to-derry-andy-muschietti-habla-sobre-la-escena-82654/)
+- **‘It: Bienvenido al Starry’ Shift Surethourte Por qué ‘it’ este ‘it’ este bebé forma en el episodio 7 y si las estrellas de la película se escucharán pronto | HO, IT: Bienvenido a Derry, TV | Noticias y chismes Entretenimiento, fotos y vídeos.**: [Link](https://aeroagora.com.br/entretenimento/it-bienvenido-al-starry-shift-surethourte-por-que-it-este-it-este-bebe-forma-en-el-episodio-7-y-si-las-estrellas-de-la-pelicula-se-escucharan-pronto-ho-it-bienvenido-a-derry-tv-noticias/9186/)
+
+
+### gimnasia - estudiantes (N/A, 08/12/2025 15:29 Lima)
+
+- **Gimnasia y Estudiantes se enfrentarán en un histórico clásico por el pase a la final del Torneo Clausura: hora, TV y formaciones**: [Link](https://www.infobae.com/deportes/2025/12/08/gimnasia-y-estudiantes-se-enfrentaran-en-un-historico-clasico-por-el-pase-a-la-final-del-torneo-clausura-hora-tv-y-formaciones/)
+- **Gimnasia vs. Estudiantes, hoy EN VIVO por el Torneo Clausura: horario, cómo ver y formaciones**: [Link](https://www.ole.com.ar/futbol-primera/gimnasia-vs-estudiantes-semifinal-clasico-plata-torneo-clausura-2025-minuto-minuto_0_CeAljZouH5.html)
+- **Partido gratis, Estudiantes vs. Gimnasia: ver ESPN, TNT Sports y Disney Plus por internet**: [Link](https://depor.com/futbol-internacional/argentina/pelota-libre-tv-en-vivo-estudiantes-vs-gimnasia-gratis-hoy-ver-espn-en-directo-canales-de-tnt-sports-disney-plus-directv-online-liga-profesional-video-noticia/)
+
+
+### torino fc (N/A, 08/12/2025 15:29 Lima)
+
+- **✅ Le UFFICIALI di Torino-Milan: la scelta su Pulisic, Nkunku e Zapata**: [Link](https://onefootball.com/it/notizie/le-ufficiali-di-torino-milan-la-scelta-su-pulisic-nkunku-e-zapata-42067328)
+- **Vlasic ritrova Ricci: è duello a centrocampo**: [Link](https://www.toro.it/toro/primo-piano/vlasic-rincontra-ricci-e-duello-a-centrocampo-dicembre-2025/1406284/)
+- **Saelemaekers: "Torino in casa sempre difficile: serve essere forti fisicamente e mentalmente"**: [Link](https://www.tuttomercatoweb.com/serie-a/saelemaekers-torino-in-casa-sempre-difficile-serve-essere-forti-fisicamente-e-mentalmente-2177116)
+
+
+### milan vs (N/A, 08/12/2025 15:29 Lima)
+
+- **Milan busca seguir en la punta en su visita a Torino**: [Link](https://www.espn.com.pe/futbol/italia/nota/_/id/16049592/torino-vs-milan-fecha-14-serie-a-equipo-fecha-hora-y-tv-en-vivo)
+- **Serie A: Milan necesita el triunfo ante Torino para llegar a la cima**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-milan-necesita-el-triunfo-ante-torino-para-llegar-a-la-cima-noticia-1666951)
+- **Vista previa de la Serie A: Torino vs Milán – Noticias del equipo, alineaciones y predicciones**: [Link](https://www.elpueblo.pe/deportes/vista-previa-de-la-serie-a-torino-vs-milan-noticias-del-equipo-alineaciones-y-predicciones/156450/)
+
+
+### wolves - manchester united (N/A, 08/12/2025 15:29 Lima)
+
+- **Manchester United vs Wolves Confirmed Lineups for December 8**: [Link](https://lastwordonsports.com/football/2025/12/08/manchester-united-vs-wolves-confirmed-lineups-december/)
+- **Where to watch Wolverhampton vs Manchester United live in the USA: 2025/2026 Premier League**: [Link](https://bolavip.com/en/soccer/where-to-watch-wolverhampton-vs-manchester-united-live-in-the-usa-2025-2026-premier-league)
+- **Bryan Mbeumo has already done against Wolves what Ruben Amorim needs from him at Man Utd**: [Link](https://www.unitedinfocus.com/news/bryan-mbeumo-has-already-done-against-wolves-what-ruben-amorim-needs-from-him-at-man-utd/)
+
+
+### osasuna - levante (N/A, 08/12/2025 15:29 Lima)
+
+- **LaLiga EA Sports: Levante saldrá a buscar los puntos ante Osasuna para salir del fondo de la tabla**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-levante-saldra-a-buscar-los-puntos-ante-osasuna-para-salir-del-fondo-de-la-tabla-noticia-1666956)
+- **Pronóstico Osasuna - Levante. LaLiga | 08/12/2025**: [Link](https://gainblers.com/pe/pronosticos/futbol/espana/liga-primera-division/pronostico-osasuna-levante-08-12-2025/)
+- **Where to Watch CA Osasuna vs. Levante UD: TV Channel, Start Time and Live Stream**: [Link](https://www.bleachernation.com/how-to-watch/2025/12/07/where-to-watch-ca-osasuna-vs-levante-ud-tv-channel-start-time-and-live-stream/)
+
+
+### manchester united vs. west ham (N/A, 08/12/2025 15:29 Lima)
+
+- **World Cup winner Guido Rodríguez benched in Premier League**: [Link](https://onefootball.com/en/news/world-cup-winner-guido-rodriguez-benched-in-premier-league-42067971)
+- **Guido Rodriguez handed West Ham lifeline as £13m transfer update emerges at Napoli**: [Link](https://www.westhamzone.com/opinion/guido-rodriguez-handed-west-ham-lifeline-as-13m-transfer-update-emerges-at-napoli/)
+- **Man Utd 2-1 West Ham: Dominique Janssen hits free-kick winner**: [Link](https://www.bbc.com/sport/football/live/cn81v0l634xt)
+
+
+### lazio vs. milan (N/A, 08/12/2025 15:29 Lima)
+
+- **Pulisic returns but Lazio bounce Milan from Coppa Italia**: [Link](https://www.espn.com/soccer/story/_/id/47204656/christian-pulisic-ac-milan-lazio-coppa-italia)
+- **Sarri wins chess game against Allegri: Tactical analysis of Lazio 1-0 AC Milan**: [Link](https://sempremilan.com/tactical-analysis-of-lazio-1-0-ac-milan-2025)
+- **Zaccagni leads Lazio to win over Milan in Coppa Italia last 16**: [Link](https://www.thescore.com/seri/news/3418856/zaccagni-leads-lazio-to-win-over-milan-in-coppa-italia-last-16)
+
+
 ### terremoto japon (N/A, 08/12/2025 11:34 Lima)
 
 - **Un terremoto de magnitud 7,6 sacude el norte de Japón y obliga a activar una alerta por tsunami**: [Link](https://rpp.pe/mundo/asia/un-terremoto-de-magnitud-76-sacude-el-norte-de-japon-y-obliga-a-activar-una-alerta-por-tsunami-noticia-1667042)
@@ -953,73 +1023,5 @@ Sin noticias relacionadas disponibles.
 - **Real Oviedo recibe a Mallorca en busca de salir del fondo de LaLiga**: [Link](https://www.espn.com.pe/futbol/espana/nota/_/id/16035234/real-viedo-vs-mallorca-laliga-fecha-15-equipo-fecha-hora-y-tv-en-vivo)
 - **LaLiga EA Sports: Real Oviedo busca salir del último lugar ante Mallorca**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-real-oviedo-busca-salir-del-ultimo-lugar-ante-mallorca-noticia-1666521)
 - **Pronóstico Oviedo vs. Mallorca: Finalísima**: [Link](https://gainblers.com/pe/pronosticos/futbol/espana/liga-primera-division/pronostico-oviedo-mallorca-05-12-2025/)
-
-
-### lille (N/A, 05/12/2025 15:28 Lima)
-
-- **Where Can I Watch: Lille vs. Marseille On beIN SPORTS**: [Link](https://www.beinsports.com/en-us/soccer/ligue-1/articles/where-can-i-watch-lille-vs-marseille-on-bein-sports-2025-12-05)
-- **Lille vs Marseille Prediction, 12/5/2025 Soccer Pick, Tips and Odds**: [Link](https://www.docsports.com/free-picks/soccer/2025/lille-vs-marseille-prediction-12-5-2025-soccer-pick-tips-and-odds.html)
-- **Ligue 1 Predictions | Round 15: Lille host Marseille as OGC Nice bid to exit crisis**: [Link](https://www.getfootballnewsfrance.com/2025/ligue-1-predictions-round-15-lille-host-marseille-as-ogc-nice-bid-to-exit-crisis/)
-
-
-### lille vs (N/A, 05/12/2025 15:28 Lima)
-
-- **Lille-OM : les compositions officielles**: [Link](https://www.footmercato.net/a5666899357582296184-lille-om-les-compositions-officielles)
-- **Comment regarder LOSC - Olympique de Marseille ? Date, heure, streaming et comment regarder la Ligue 1 McDonald’s sur Ligue 1+, disponible sur DAZN​**: [Link](https://www.dazn.com/fr-FR/news/football/comment-regarder-losc-olympique-de-marseille-date-heure-streaming-et-comment-regarder-la-ligue-1-mcdonalds-sur-ligue-1-disponible-sur-dazn/vjuzvk6k4muu1ej94e3b4ltk0)
-- **PRONOS PARIS RMC Le pari foot de Jérôme Rothen du 5 décembre – Ligue 1**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-foot-de-jerome-rothen-du-5-decembre-ligue-1_AN-202512050721.html)
-
-
-### mainz (N/A, 05/12/2025 15:28 Lima)
-
-- **Das waren alle Trainer von Mainz 05 seit Jürgen Klopp**: [Link](https://www.mittelhessen.de/sport/fussball/fussball-bundesliga/das-waren-alle-trainer-von-mainz-05-seit-juergen-klopp-5215303)
-- **Jetzt live: Geht ein Ruck durchs Mainzer Team nach der Trainerentlassung?**: [Link](https://sport.ch/topnews/1553643/jetzt-live-geht-ein-ruck-durchs-mainzer-team-nach-der-trainerentlassung)
-- **Castrop, Netz und Reitz kehren in Startelf zurück**: [Link](https://www.borussia.de/news/castrop-netz-und-reitz-kehren-in-startelf-zurueck)
-
-
-### mónaco vs (N/A, 05/12/2025 15:28 Lima)
-
-- **Brest - Monaco live**: [Link](https://www.marca.com/en/soccer/ligue-1/brest-monaco/2025/12/05/01_0109_20251205_862_146-live.html)
-- **Romain Del Castillo vs. AS Monaco – Player props & odds to score a goal on December 5**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/12/05/romain-del-castillo-soccer-player-props-12-5-2025/87617905007/)
-- **Sébastien Pocognoli: "Show the same desire as against Paris"**: [Link](https://onefootball.com/en/news/sebastien-pocognoli-show-the-same-desire-as-against-paris-42042668)
-
-
-### benfica - sporting lisboa (N/A, 05/12/2025 15:28 Lima)
-
-Sin noticias relacionadas disponibles.
-
-
-### cabo verde (N/A, 05/12/2025 15:28 Lima)
-
-- **Adversário do Uruguai na Copa do Mundo, Cabo Verde tem clube inspirado em time gaúcho**: [Link](https://gauchazh.clicrbs.com.br/zona-sul/esportes/noticia/2025/12/adversario-do-uruguai-na-copa-do-mundo-cabo-verde-tem-clube-inspirado-em-time-gaucho-cmit8vo350avr01jzhre11is4.html)
-- **Mundial 2026: Cabo Verde no grupo H**: [Link](https://expressodasilhas.cv/desporto/2025/12/05/mundial-2026-cabo-verde-no-grupo-h/100298)
-- **Portugal e não só: os adversários que o capitão de Cabo Verde quer no Mundial**: [Link](https://sapo.pt/artigo/portugal-e-nao-so-os-adversarios-que-o-capitao-de-cabo-verde-quer-no-mundial-692eb7fdd79d44a5cd75c7bb)
-
-
-### curacao (N/A, 05/12/2025 15:28 Lima)
-
-- **Curaçao inicia nueva etapa comercial en el Perú con capacitación a agentes de viajes**: [Link](https://portaldeturismo.pe/curacao-inicia-nueva-etapa-comercial-en-el-peru-con-capacitacion-a-agentes-de-viajes/)
-- **A partir de diciembre, habrá vuelo directo entre Lima y Curaçao: ¿Cuántas veces operará a la semana?**: [Link](https://rpp.pe/economia/economia/latam-airlines-anuncia-vuelo-directo-entre-lima-y-curacao-desde-diciembre-cuantas-veces-operara-a-la-semana-noticia-1666433)
-- **CURAZAO ESPERA RECIBIR 12 MIL TURISTAS PERUANOS EN 2026**: [Link](https://tnews.com.pe/curazao-espera-recibir-12-mil-turistas-peruanos-en-2026/)
-
-
-### mainz 05 - mönchengladbach (N/A, 05/12/2025 15:28 Lima)
-
-- **Jetzt live: Geht ein Ruck durchs Mainzer Team nach der Trainerentlassung?**: [Link](https://sport.ch/topnews/1553643/jetzt-live-geht-ein-ruck-durchs-mainzer-team-nach-der-trainerentlassung)
-- **Castrop, Netz und Reitz kehren in Startelf zurück**: [Link](https://www.borussia.de/news/castrop-netz-und-reitz-kehren-in-startelf-zurueck)
-- **Überraschender Torwartwechsel in Mainz**: [Link](https://www.fussballtransfers.com/a6056073506233607361-ueberraschender-torwartwechsel-in-mainz)
-
-
-### galatasaray - samsunspor (N/A, 05/12/2025 11:32 Lima)
-
-- **Canlı Anlatım: Galatasaray-Samsunspor maçı**: [Link](https://www.ntv.com.tr/sporskor/canli-anlatim-galatasaray-samsunspor-maci-1701773)
-- **Süper Lig puan durumu | 5 Aralık Süper Lig puan durumu tablosu nasıl?**: [Link](https://gdh.digital/haber/super-lig-puan-durumu-5-aralik-super-lig-puan-durumu-tablosu-nasil-zvp9bovm9ll)
-- **Futbol liglerinde haftanın maç programı**: [Link](https://www.24saatgazetesi.com/futbol-liglerinde-haftanin-mac-programi)
-
-
-### mef (N/A, 05/12/2025 11:32 Lima)
-
-- **Bono de S/100 se pagará en enero de 2026, pero requiere cumplir dos condiciones**: [Link](https://www.infobae.com/peru/2025/12/04/bono-de-s100-se-paga-en-enero-de-2026-pero-requiere-cumplir-dos-condiciones/)
-- **Ley 32514: Ley de equilibrio financiero del presupuesto del sector público 2026**: [Link](https://lpderecho.pe/ley-32514-ley-equilibrio-financiero-presupuesto-sector-publico-2026/)
-- **Tropezar de nuevo, por Alejandra Costa | OPINION**: [Link](https://elcomercio.pe/opinion/columnistas/tropezar-de-nuevo-por-alejandra-costa-noticia/)
 
 
