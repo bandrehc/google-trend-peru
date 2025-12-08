@@ -1,3 +1,10 @@
+### plaza norte (N/A, 08/12/2025 03:37 Lima)
+
+- **¿Sin planes? Las mejores actividades para disfrutar en Navidad y las fiestas de fin de año**: [Link](https://elcomercio.pe/respuestas/trends/todavia-sin-planes-las-mejores-actividades-para-disfrutar-en-navidad-y-las-fiestas-de-fin-de-ano-tdpe-noticia/)
+- **Fiestas de Fin de Año: Lima concentrará hasta 65% de eventos, ¿cómo se moverá el mercado?**: [Link](https://gestion.pe/economia/empresas/fiestas-de-fin-de-ano-lima-concentrara-hasta-65-de-eventos-como-se-movera-el-mercado-noticia/)
+- **¿En busca de regalo? ¡Aquí tienes 5 experiencias increíbles para regalar esta Navidad!**: [Link](https://blog.joinnus.com/5-experiencias-increibles-para-regalar-esta-navidad/)
+
+
 ### canal 5 en vivo (N/A, 07/12/2025 23:37 Lima)
 
 - **Mundial 2026: el camino a la gloria, con grupos de la muerte, cruces pesados y un choque de gigantes que podría llegar pronto**: [Link](https://cnnespanol.cnn.com/2025/12/06/deportes/mundial-2026-sorteo-calendario-grupos-muerte-orix)
@@ -1014,12 +1021,5 @@ Sin noticias relacionadas disponibles.
 - **La luna llena de diciembre es la última superluna del año**: [Link](https://cnnespanol.cnn.com/2025/12/03/clima-y-tiempo/superluna-diciembre-2025-ultima-ano-trax)
 - **Los astrónomos nos instan a prepararnos para lo que vendrá mañana 4 de diciembre**: [Link](https://www.larazon.es/ciencia/astronomos-nos-instan-prepararnos-que-vendra-manana-4-diciembre_20251203693006386e5e5012dcd88602.html)
 - **Esta noche se podrá observar el fenómeno astronómico más impresionante que volverá a ser visible hasta el 2042: la superluna y sus horarios de observación desde Colombia y Venezuela**: [Link](https://www.ntn24.com/noticias-ciencia-y-tecnologia/esta-noche-se-podra-observar-el-fenomeno-astronomico-mas-impresionante-que-volvera-a-ser-visible-hasta-el-2042-la-superluna-y-sus-horarios-de-observacion-desde-colombia-y-venezuela-593962)
-
-
-### minedu (N/A, 05/12/2025 03:34 Lima)
-
-- **Link de resultados del Ascenso Docente 2025: Minedu ya tiene fecha para publicar la lista de clasificados tras la Prueba Nacional**: [Link](https://elcomercio.pe/respuestas/ascenso-docente-2025-esta-es-la-fecha-en-que-el-minedu-publicara-la-lista-de-clasificados-tras-la-prueba-nacional-tdpe-noticia/)
-- **Les subirán salario a profesores: Ministerio de Educación publica listado de quienes están a un paso en col...**: [Link](https://redmas.com.co/colombia/les-subiran-salario-a-profesores-ministerio-de-educacion-publica-listado-de-quienes-estan-a-un-paso-en-colegios-de-colombia-20251204-0051.html)
-- **El examen de ascenso**: [Link](https://proycontra.com.pe/el-examen-de-ascenso/)
 
 
