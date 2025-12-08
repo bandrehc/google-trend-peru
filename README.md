@@ -1,3 +1,73 @@
+### terremoto japon (N/A, 08/12/2025 11:34 Lima)
+
+- **Un terremoto de magnitud 7,6 sacude el norte de Japón y obliga a activar una alerta por tsunami**: [Link](https://rpp.pe/mundo/asia/un-terremoto-de-magnitud-76-sacude-el-norte-de-japon-y-obliga-a-activar-una-alerta-por-tsunami-noticia-1667042)
+- **DHN descarta tsunami para el Perú tras fuerte sismo de 7,6 en Japón**: [Link](https://caretas.pe/nacional/dhn-descarta-tsunami-para-el-peru-tras-fuerte-sismo-de-76-en-japon/)
+- **Japón emite una alerta de tsunami después de un potente terremoto**: [Link](https://andina.pe/agencia/noticia-japon-emite-una-alerta-tsunami-despues-un-potente-terremoto-1054889.aspx)
+
+
+### japon (N/A, 08/12/2025 11:34 Lima)
+
+- **Une alerte au tsunami déclenchée au Japon après un important séisme de magnitude 7,6 au large du nord-est du pays**: [Link](https://www.franceinfo.fr/environnement/catastrophes-naturelles/seismes/une-alerte-au-tsunami-declenchee-au-japon-apres-un-important-seisme-de-magnitude-7-6-au-large-des-cotes_7666075.html)
+- **Séisme de magnitude 7,6 au Japon : les images du tremblement de terre à l’origine de l’alerte tsunami**: [Link](https://www.midilibre.fr/2025/12/08/seisme-de-magnitude-76-au-japon-les-images-du-tremblement-de-terre-a-lorigine-de-lalerte-tsunami-13098502.php)
+- **Un séisme de magnitude 7,2 secoue le Japon**: [Link](https://azertag.az/fr/xeber/un_seisme_de_magnitude_72_secoue_le_japon-3904519)
+
+
+### ticketmaster (N/A, 08/12/2025 11:34 Lima)
+
+- **Millions of disgruntled concertgoers likely to sue Ticketmaster**: [Link](https://missoulacurrent.com/ticketmaster-lawsuit/)
+- **Judge signals he’ll let Ticketmaster customers proceed as class in Live Nation antitrust lawsuit**: [Link](https://www.musicbusinessworldwide.com/judge-signals-hell-let-ticketmaster-customers-proceed-as-class-in-live-nation-antitrust-lawsuit/)
+- **Live Nation Customers Appear Poised For Antitrust Class Cert.**: [Link](https://www.law360.com/articles/2418479/live-nation-customers-appear-poised-for-antitrust-class-cert)
+
+
+### nintendo switch (N/A, 08/12/2025 11:34 Lima)
+
+- **System Shock remake reveals Nintendo Switch 2, Switch release date and new trailer**: [Link](https://nintendoeverything.com/system-shock-remake-reveals-nintendo-switch-2-switch-release-date-and-new-trailer/)
+- **Exclusive: System Shock Remake Hacks Onto Switch & Switch 2 Later This Month**: [Link](https://www.nintendolife.com/news/2025/12/exclusive-system-shock-remake-hacks-onto-switch-and-switch-2-later-this-month)
+- **System Shock Remake Releases on December 18 for Nintendo Switch And Switch 2**: [Link](https://finalweapon.net/2025/12/08/system-shock-remake-switch-switch-2-release-date/)
+
+
+### avellino - venezia (N/A, 08/12/2025 11:34 Lima)
+
+- **Che sofferenza al “Partenio-Lombardi”: punto prezioso contro il Venezia**: [Link](https://www.irpinianews.it/che-sofferenza-al-partenio-lombardi-punto-prezioso-contro-il-venezia/)
+- **Calcio Serie B: Avellino-Venezia. Segui la diretta testuale**: [Link](https://www.rainews.it/tgr/veneto/articoli/2025/12/calcio-serie-b-giornata-15-avellino-venezia-risultato-classifica-commenti-633e1b6c-6547-4ff2-9e81-94cbd39268c0.html)
+- **I convocati da mister Raffaele Biancolino contro il Venezia**: [Link](https://www.mercoglianonews.it/2025/12/i-convocati-da-mister-raffaele-biancolino-contro-il-venezia/)
+
+
+### onpe local de votación (N/A, 08/12/2025 11:34 Lima)
+
+- **Partidos definen 35 nuevas candidaturas presidenciales en elecciones por delegados: esta es la lista de postulantes a Palacio**: [Link](https://elcomercio.pe/politica/elecciones/partidos-definen-35-candidaturas-presidenciales-en-elecciones-por-delegados-esta-es-la-lista-de-postulantes-a-palacio-noticia/)
+- **Elecciones 2026: estos son los candidatos a la presidencia elegidos en primarias vía afiliados y delegados**: [Link](https://rpp.pe/politica/elecciones/candidatos-presidenciales-peru-2026-resultados-de-primarias-via-delegados-y-lista-completa-de-electos-noticia-1667017)
+- **Agrupaciones eligen a sus cartas para la Presidencia y el Congreso bicameral**: [Link](https://peru21.pe/politica/agrupaciones-eligen-sus-cartas-para-la-presidencia-y-el-congreso/)
+
+
+### serie b (N/A, 08/12/2025 11:34 Lima)
+
+- **Serie B, 15ª giornata: il Frosinone aggancia il Monza in vetta alla classifica**: [Link](https://www.tuttomercatoweb.com/serie-b/serie-b-15a-giornata-il-frosinone-aggancia-il-monza-in-vetta-alla-classifica-2176984)
+- **Serie B: i risultati della 15esima giornata**: [Link](https://www.diretta.it/news/calcio-serie-b-serie-b-il-frosinone-agguanta-in-vetta-il-monza-vittorie-esterne-per-catanzaro-e-reggiana/fPptPfpI/)
+- **Serie B: avanti il Monza contro il Sudtirol, Venezia sotto ad Avellino dopo i primi 45. I risultati parziali**: [Link](https://www.ilovepalermocalcio.com/serie-b-avanti-il-monza-contro-il-sudtirol-venezia-sotto-ad-avellino-dopo-i-primi-45-i-risultati-parziali/)
+
+
+### pisa - parma (N/A, 08/12/2025 11:34 Lima)
+
+- **Serie A: vittoria-salvezza per il Parma, espugnata Pisa**: [Link](https://www.sportmediaset.mediaset.it/calcio/seriea/serie-a-vittoria-salvezza-per-il-parma-espugnata-pisa_106883295-202502k.shtml)
+- **Parma, a Pisa è scontro salvezza**: [Link](https://www.gazzettadiparma.it/il-parma/2025/12/08/news/parma-a-pisa-e-scontro-salvezza-910709/)
+- **Chi è il rigorista del Parma? Benedyczak ha tirato con Pellegrino in campo, la gerarchia**: [Link](https://www.goal.com/it/liste/chi-e-rigorista-parma-benedyczak-pellegrino-gerarchia/blt76d634fa3ba7d869)
+
+
+### pisa vs parma (N/A, 08/12/2025 11:34 Lima)
+
+- **Pisa-Parma Calcio 1913 - Serie A 2025/2026 Statistical Preview**: [Link](https://www.whoscored.com/matches/1901287/preview/italy-serie-a-2025-2026-pisa-parma-calcio-1913)
+- **THE CHALLENGE WITH THE DUCALI. A seasonal crossroads. The Arena will be packed.**: [Link](https://sport.quotidiano.net/en/calcio/pisa/la-sfida-coi-ducali-crocevia-7bca3c6a)
+- **SERIE A ENILIVE | SQUAD FOR PISA VS. PARMA**: [Link](https://www.parmacalcio1913.com/en/main-news/serie-a-enilive-pisa-parma-squad/)
+
+
+### richard concepción carhuancho (N/A, 08/12/2025 11:34 Lima)
+
+- **LO DIO TODO | El juez Richard Concepción Carhuancho sorprendió en el evento “Vivo por el Derecho” al interpretar la popular canción “Triciclo Perú” de Los Mojarras junto a su hijo. Durante su presentación, también dedicó un mensaje a los asistentes: “Qu**: [Link](https://www.facebook.com/ElBuho.pe/posts/lo-dio-todo-el-juez-richard-concepci%C3%B3n-carhuancho-sorprendi%C3%B3-en-el-evento-vivo-p/1511672637160960/)
+- **“¡Para el Perú!”: Juez Richard Concepción Carhuancho debuta como cantante con Triciclo Perú de Los Mojarras**: [Link](https://www.infobae.com/peru/2025/12/07/juez-richard-concepcion-carhuancho-debuta-como-cantante-con-triciclo-peru-de-los-mojarras-en-evento-juridico/)
+- **Juez Carhuancho canta rock de protesta por los jóvenes del Perú (VIDEO)**: [Link](https://elbuho.pe/2025/12/juez-carhuancho-canta-rock-de-protesta-por-los-jovenes-del-peru-video/)
+
+
 ### sorteo la tinka hoy (N/A, 08/12/2025 07:54 Lima)
 
 - **La Tinka: descubre los números ganadores del sorteo del 07 de diciembre | nnav | video | amtv | VIDEOS**: [Link](https://elcomercio.pe/videos/entretenimiento/la-tinka-descubre-los-numeros-ganadores-del-sorteo-del-07-de-diciembre-nnav-video-amtv-noticia/)
@@ -951,75 +1021,5 @@ Sin noticias relacionadas disponibles.
 - **Bono de S/100 se pagará en enero de 2026, pero requiere cumplir dos condiciones**: [Link](https://www.infobae.com/peru/2025/12/04/bono-de-s100-se-paga-en-enero-de-2026-pero-requiere-cumplir-dos-condiciones/)
 - **Ley 32514: Ley de equilibrio financiero del presupuesto del sector público 2026**: [Link](https://lpderecho.pe/ley-32514-ley-equilibrio-financiero-presupuesto-sector-publico-2026/)
 - **Tropezar de nuevo, por Alejandra Costa | OPINION**: [Link](https://elcomercio.pe/opinion/columnistas/tropezar-de-nuevo-por-alejandra-costa-noticia/)
-
-
-### marruecos vs (N/A, 05/12/2025 11:32 Lima)
-
-- **Omán vs Marruecos EN VIVO, minuto a minuto en Copa Árabe FIFA 2025**: [Link](https://www.vavel.com/mx/futbol-internacional/2025/12/05/1243671-oman-vs-marruecos-en-vivo-copa-arabe.html)
-- **Selección marroquí se juega la clasificación: Sektioui analiza bajas, presión y ambición**: [Link](https://es.rue20.com/2025/12/05/seleccion-marroqui-se-juega-la-clasificacion-sektioui-analiza-bajas-presion-y-ambicion/)
-- **Copa Árabe: El partido contra Omán, decisivo para la clasificación a cuartos de final (Tarik Sektioui)**: [Link](https://ar.yabiladi.com/articles/details/182773/copa-arabe-partido-contra-oman.html)
-
-
-### warner bros (N/A, 05/12/2025 11:32 Lima)
-
-- **Anonymous A-Listers Lobby Congress Against Netflix-WBD Acquisition**: [Link](https://variety.com/2025/film/news/anonymous-filmmakers-netflix-wbd-open-letter-congress-1236600659/)
-- **Netflix to buy Warner Bros film and streaming businesses for $72bn**: [Link](https://www.bbc.com/news/articles/ce91x2jm5pjo)
-- **Paramount questions Warner Bros. Discovery on 'fairness and adequacy' of sale process: Read the full letter**: [Link](https://www.cnbc.com/2025/12/04/paramount-questions-warner-bros-discovery-sale-process-letter.html)
-
-
-### netflix compra warner (N/A, 05/12/2025 11:32 Lima)
-
-- **Netflix anuncia que llegó a un acuerdo para comprar Warner Bros. y HBO**: [Link](https://cnnespanol.cnn.com/2025/12/05/economia/netflix-comprar-warner-bros-y-hbo-trax)
-- **Netflix compra los estudios y activos de ‘streaming’ de Warner Bros, dueña de HBO, por 83.000 millones de dólares**: [Link](https://elpais.com/economia/2025-12-05/netflix-negocia-la-compra-de-los-estudios-y-activos-de-streaming-de-warner-bros-duena-de-hbo.html)
-- **Netflix compra Warner Bros, se queda con HBO y consuma uno de los movimientos más importantes de la...**: [Link](https://www.xataka.com/streaming/oficial-netflix-compra-warner-bros-consuma-uno-movimientos-importantes-historia-streaming)
-
-
-### jaguar gerry mcgovern (N/A, 05/12/2025 11:32 Lima)
-
-- **Gerry McGovern next high-profile exit from JLR**: [Link](https://www.autocarindia.com/industry/gerry-mcgovern-next-high-profile-exit-from-jlr-438546)
-- **JLR axes design boss Gerry McGovern**: [Link](https://www.autocar.co.uk/car-news/new-cars/jlr-axes-design-boss-gerry-mcgovern)
-- **The Guy Who Designed Norton's New Motorcycles Just Got Fired By Jaguar, Escorted Out**: [Link](https://www.rideapart.com/news/780754/gerry-mcgovern-fired-jaguar-norton-motorcycles-rebrand-designer/)
-
-
-### cary hiroyuki tagawa (N/A, 05/12/2025 11:32 Lima)
-
-- **James Bond & Mortal Kombat star dies aged 75 after suffering stroke**: [Link](https://www.the-sun.com/entertainment/15593602/cary-hiroyuki-tagawa-dead/)
-- **Cary-Hiroyuki Tagawa Dies: ‘Mortal Kombat, ‘Last Emperor’ & ‘Man In The High Castle’ Actor Was 75**: [Link](https://deadline.com/2025/12/cary-hiroyuki-tagawa-dead-mortal-kombat-actor-1236636368/)
-- **The deceased Shang Zong from Mortal Kombat turned out to be an Orthodox Russian Panteleimon**: [Link](https://eadaily.com/en/news/2025/12/05/the-deceased-shang-zong-from-mortal-kombat-turned-out-to-be-an-orthodox-russian-panteleimon)
-
-
-### costa verde cerrada (N/A, 05/12/2025 07:53 Lima)
-
-- **La Costa Verde estará cerrada este viernes 5 de diciembre por los Juegos Bolivarianos: fechas, horarios y desvíos**: [Link](https://www.infobae.com/peru/2025/12/03/la-costa-verde-estara-cerrada-este-viernes-5-de-diciembre-por-los-juegos-bolivarianos-fechas-horarios-y-desvios/)
-- **Costa Verde cierre HOY 3 de Diciembre: Consulta los HORARIOS y desvíos por los Juegos Bolivarianos**: [Link](https://elcomercio.pe/respuestas/cual/costa-verde-cierra-este-2-y-3-de-diciembre-consulta-los-horarios-y-desvios-por-los-juegos-bolivarianos-tdpe-noticia/)
-- **Costa Verde: a la 1 p. m. se reabre vía rápida, ¿qué otros cierres se vienen?**: [Link](https://andina.pe/agencia/noticia-costa-verde-a-1-p-m-se-reabre-via-rapida-otros-cierres-se-vienen-1053773.aspx)
-
-
-### temperatura lima (N/A, 05/12/2025 07:53 Lima)
-
-- **Toda la costa peruana enfrentará noches frías y descensos de temperatura la siguiente semana, según Senamhi**: [Link](https://www.infobae.com/peru/2025/12/05/toda-la-costa-peruana-enfrentara-noches-frias-y-descensos-de-temperatura-segun-senamhi/)
-- **A pocos días del verano, se activa una alerta naranja por bajas temperaturas en 13 regiones del Perú**: [Link](https://rpp.pe/peru/actualidad/senamhi-emitio-alerta-naranja-por-bajas-temperaturas-en-13-regiones-del-peru-noticia-1666480)
-- **Temperatura nocturna en zonas altas de la sierra sur llegará a los 10 grados menos cero**: [Link](https://andina.pe/agencia/noticia-temperatura-nocturna-zonas-altas-de-sierra-sur-llegara-a-los-10-grados-menos-cero-1054562.aspx)
-
-
-### clima lima (N/A, 05/12/2025 07:53 Lima)
-
-- **SENAMHI: Pronóstico del clima hoy viernes 05 de diciembre 2025**: [Link](https://rpp.pe/peru/actualidad/senamhi-pronostico-del-clima-hoy-viernes-05-de-diciembre-2025-noticia-1666640)
-- **Senamhi, pronóstico del clima HOY en Lima: temperaturas mínimas y máximas para este viernes 5 de diciembre de 2025**: [Link](https://www.expreso.com.pe/actualidad/senamhi-pronostico-del-clima-hoy-en-lima-temperaturas-minimas-y-maximas-para-este-viernes-5-de-diciembre-de-2025-invierno-verano-otono-primavera-soleado-calor-humedad-neblina-tiempo-noticia/1244879/)
-- **Senamhi advierte de madrugadas calurosas: temperatura llegaría a los 28 grados**: [Link](https://latinanoticias.pe/lima/senamhi-advierte-de-madrugadas-calurosas-temperatura-llegaria-a-los-28-grados_20251202/)
-
-
-### kick (N/A, 05/12/2025 07:53 Lima)
-
-- **Leinster Kick Off Champions Cup Campaign**: [Link](https://www.midlands103.com/news/sports/leinster-kick-off-champions-cup-campaign/)
-- **McCarthy Returns From Injury For Leinster’s Champions Cup Opener**: [Link](https://www.irishrugby.ie/2025/12/04/mccarthy-returns-from-injury-for-leinsters-champions-cup-opener/)
-- **Tickets for Leinster’s Champions Cup clash with Harlequins prove hard to shift**: [Link](https://www.independent.ie/sport/rugby/champions-cup/tickets-for-leinsters-champions-cup-clash-with-harlequins-prove-hard-to-shift/a24269357.html)
-
-
-### canva (N/A, 05/12/2025 07:53 Lima)
-
-- **Another Cloudflare outage takes down websites including LinkedIn and Zoom**: [Link](https://www.theguardian.com/technology/2025/dec/05/another-cloudflare-outage-takes-down-websites-linkedin-zoom)
-- **Second Outage Within Three Weeks Hits CFD Broker and Prop Firms During Cloudflare “Maintenance”**: [Link](https://www.financemagnates.com/forex/second-outage-hits-cfd-broker-and-prop-firms-amid-cloudflare-maintenance/)
-- **[Upbit] Notice of service access delays due to Cloudflare service outage**: [Link](https://bloomingbit.io/en/feed/news/101933)
 
 
