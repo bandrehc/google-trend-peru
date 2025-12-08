@@ -1,3 +1,29 @@
+### sorteo la tinka hoy (N/A, 08/12/2025 07:54 Lima)
+
+- **La Tinka: descubre los números ganadores del sorteo del 07 de diciembre | nnav | video | amtv | VIDEOS**: [Link](https://elcomercio.pe/videos/entretenimiento/la-tinka-descubre-los-numeros-ganadores-del-sorteo-del-07-de-diciembre-nnav-video-amtv-noticia/)
+- **La Tinka: mira los resultados del sorteo de este 7 de diciembre y descubre si tu combinación ganó el premio mayor**: [Link](https://www.infobae.com/peru/2025/12/08/resultados-ganadores-de-la-tinka-del-domingo-7-de-diciembre/)
+- **Resultados de La Tinka del domingo 7 de diciembre: números ganadores del Pozo Millonario**: [Link](https://depor.com/peru/la-tinka-hoy-domingo-7-de-diciembre-en-vivo-resultados-numeros-ganadores-del-ultimo-sorteo-pozo-millonario-boliyapa-resultado-si-o-si-intralot-peru-noticia/)
+
+
+### hoy es feriado (N/A, 08/12/2025 07:54 Lima)
+
+Sin noticias relacionadas disponibles.
+
+
+### mtc (N/A, 08/12/2025 07:54 Lima)
+
+- **“Un desastre”: pasajeros de vuelos internacionales rechazan cobro “arbitrario” de la TUUA en el Jorge Chávez**: [Link](https://www.infobae.com/peru/2025/12/07/caos-en-el-aeropuerto-jorge-chavez-colas-y-quejas-de-pasajeros-de-vuelos-internacionales-por-el-cobro-de-la-tuua/)
+- **En las primeras horas del cobro de la TUUA de transferencia, pasajeros desconocían la medida y su pago obligatorio, informó LAP**: [Link](https://elcomercio.pe/economia/peru/cobro-de-tuua-de-transferencia-pasajeros-senalaron-no-haber-recibido-informacion-previa-sobre-el-pago-jorge-chavez-lap-noticia/)
+- **Pasajeros de vuelos nacionales no pagarán tarifa de conexión en aeropuerto Jorge Chávez**: [Link](https://peru21.pe/economia/pasajeros-de-vuelos-nacionales-no-pagaran-tarifa-de-conexion/)
+
+
+### que se celebra hoy (N/A, 08/12/2025 07:54 Lima)
+
+- **Día de la Inmaculada Concepción: debates teológicos sobre María, el inicio de la Navidad y la relación con la bandera argentina**: [Link](https://www.infobae.com/sociedad/2025/12/08/dia-de-la-inmaculada-concepcion-debates-teologicos-sobre-maria-el-inicio-de-la-navidad-y-la-relacion-con-la-bandera-argentina/)
+- **La Inmaculada en el corazón y en las palabras de los Papas**: [Link](https://www.vaticannews.va/es/papa/news/2025-12/inmaculada-concepcion-palabras-papas.html)
+- **Las mejores frases para felicitar por WhatsApp el Día de la Inmaculada Concepción**: [Link](https://www.elconfidencial.com/alma-corazon-vida/2025-12-08/mejores-frases-felicitar-whatsapp-dia-inmaculada_4260855/)
+
+
 ### plaza norte (N/A, 08/12/2025 03:37 Lima)
 
 - **¿Sin planes? Las mejores actividades para disfrutar en Navidad y las fiestas de fin de año**: [Link](https://elcomercio.pe/respuestas/trends/todavia-sin-planes-las-mejores-actividades-para-disfrutar-en-navidad-y-las-fiestas-de-fin-de-ano-tdpe-noticia/)
@@ -995,31 +1021,5 @@ Sin noticias relacionadas disponibles.
 - **Another Cloudflare outage takes down websites including LinkedIn and Zoom**: [Link](https://www.theguardian.com/technology/2025/dec/05/another-cloudflare-outage-takes-down-websites-linkedin-zoom)
 - **Second Outage Within Three Weeks Hits CFD Broker and Prop Firms During Cloudflare “Maintenance”**: [Link](https://www.financemagnates.com/forex/second-outage-hits-cfd-broker-and-prop-firms-amid-cloudflare-maintenance/)
 - **[Upbit] Notice of service access delays due to Cloudflare service outage**: [Link](https://bloomingbit.io/en/feed/news/101933)
-
-
-### betano (N/A, 05/12/2025 07:53 Lima)
-
-- **Betano Casino New Customer Sign Up Bonus December 2025: Claim 100 Free Spins**: [Link](https://bookies.com/uk/news/betano-casino-new-customer-sign-up-bonus-4th-december-2025)
-
-
-### bet365 (N/A, 05/12/2025 07:53 Lima)
-
-- **bet365 Missouri bonus code NYPBET: Bet $10, get $365 bonus for college football championships**: [Link](https://nypost.com/2025/12/05/betting/bet365-missouri-bonus-code-nypbet-bet-10-get-365-bonus-for-college-football-championships/)
-- **Why Circa Became One of Missouri’s First Sportsbooks**: [Link](https://deadspin.com/legal-betting/why-circa-became-one-fmissouris-first-sportsbooks/)
-- **Missouri Sportsbook Promos: Get $4,715 in MO Sports Betting Bonuses**: [Link](https://www.rotowire.com/news/missouri-sportsbook-promos-get-4715-in-mo-sports-betting-bonuses-100036)
-
-
-### x (N/A, 05/12/2025 07:53 Lima)
-
-- **Elon Musk’s X Hit With $140 Million Fine in Europe**: [Link](https://www.nytimes.com/2025/12/05/technology/eu-elon-musk-x-140-million-fine.html)
-- **Elon Musk’s X fined $140 million by European Commission over 'deceptive' blue checkmark and lack of transparency**: [Link](https://www.cnbc.com/2025/12/05/elon-musks-x-fined-140-million-by-european-commission.html)
-- **Elon Musk's X fined €120m over 'deceptive' blue ticks**: [Link](https://www.bbc.com/news/articles/c4g9kejzvw0o)
-
-
-### superluna fría (N/A, 05/12/2025 03:34 Lima)
-
-- **La luna llena de diciembre es la última superluna del año**: [Link](https://cnnespanol.cnn.com/2025/12/03/clima-y-tiempo/superluna-diciembre-2025-ultima-ano-trax)
-- **Los astrónomos nos instan a prepararnos para lo que vendrá mañana 4 de diciembre**: [Link](https://www.larazon.es/ciencia/astronomos-nos-instan-prepararnos-que-vendra-manana-4-diciembre_20251203693006386e5e5012dcd88602.html)
-- **Esta noche se podrá observar el fenómeno astronómico más impresionante que volverá a ser visible hasta el 2042: la superluna y sus horarios de observación desde Colombia y Venezuela**: [Link](https://www.ntn24.com/noticias-ciencia-y-tecnologia/esta-noche-se-podra-observar-el-fenomeno-astronomico-mas-impresionante-que-volvera-a-ser-visible-hasta-el-2042-la-superluna-y-sus-horarios-de-observacion-desde-colombia-y-venezuela-593962)
 
 
