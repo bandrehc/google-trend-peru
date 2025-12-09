@@ -1,3 +1,73 @@
+### tottenham vs (N/A, 09/12/2025 15:26 Lima)
+
+- **Preview: Tottenham Hotspur vs Slavia Prague - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/spurs/preview/spurs-vs-slavia-prague-prediction-team-news-lineups_587312.html)
+- **Team news | Destiny out until January, Brennan ‘touch and go’ to face Slavia Prague**: [Link](https://www.tottenhamhotspur.com/news/2025/december/spurs-vs-slavia-prague-uefa-champions-league-team-news-destiny-udogie-out-until-january-brennan-johnson-touch-and-go-to-face-slavia-prague/)
+- **Spurs star now won't be seen again in 2025 after frustrating injury blow**: [Link](https://www.footballfancast.com/spurs-star-destiny-udogie-frustrating-injury-blow/)
+
+
+### monaco fc (N/A, 09/12/2025 15:26 Lima)
+
+- **Monaco predicted XI v Galatasaray: Folarin Balogun to return, Ansu Fati out**: [Link](https://www.getfootballnewsfrance.com/2025/monaco-predicted-xi-v-galatasaray-folarin-balogun-to-return-ansu-fati-out/)
+- **UCL: Victor Osimhen can break a major record against Monaco**: [Link](https://sports.yahoo.com/articles/ucl-victor-osimhen-break-major-095000121.html)
+- **Where to stream AS Monaco vs. Galatasaray Champions League match free today**: [Link](https://www.masslive.com/tv/2025/12/where-to-stream-as-monaco-vs-galatasaray-champions-league-match-free-today.html)
+
+
+### marsella (N/A, 09/12/2025 15:26 Lima)
+
+- **Royale Union Saint-Gilloise - Olympique de Marsella, en directo: Champions League, hoy en vivo**: [Link](https://as.com/futbol/champions/royale-union-saint-gilloise-olympique-de-marsella-en-directo-champions-league-hoy-en-vivo-f202512-d/)
+- **Marsella, De Zerbi: "Contra el Lille, el peor partido desde que estoy aquí". La intrahistoria de Vermeeren**: [Link](https://www.todomercadoweb.es/futbol-internacional/marsella-de-zerbi-contra-el-lille-el-peor-partido-desde-que-estoy-aqui-la-intrahistoria-de-vermeeren-530125)
+- **PSV - Atlético, en directo: Julián Álvarez y Sorloth, titulares**: [Link](https://www.elmundo.es/deportes/futbol/champions-league/psv-atletico/2025/12/09/01_0103_20251209_204_175-directo.html)
+
+
+### psv (N/A, 09/12/2025 15:26 Lima)
+
+- **LIVE Champions League | Fans PSV hebben vertrouwen in nieuwe stunt, talenten geven goede voorbeeld**: [Link](https://www.ad.nl/voetbal/live-champions-league-fans-psv-hebben-vertrouwen-in-nieuwe-stunt-talenten-geven-goede-voorbeeld~ad281698/)
+- **Bosz gebruikt Wanner om niet in het mes van Atlético Madrid te lopen**: [Link](https://www.vi.nl/nieuws/bosz-gebruikt-wanner-om-niet-in-het-mes-van-atl-tico-madrid-te-lopen)
+- **Jeroen Zoet ziet: "Kan je het beste in je eerste wedstrijd doen"**: [Link](https://www.psvfans.nl/jeroen-zoet-ziet-kan-je-het-beste-in-je-eerste-wedstrijd-doen/)
+
+
+### inter milan vs (N/A, 09/12/2025 15:26 Lima)
+
+- **Liverpool name 19-man squad for Inter fixture**: [Link](https://www.liverpoolfc.com/news/liverpool-name-19-man-squad-inter-fixture)
+- **Inter vs Liverpool Lineups: Salah left out as Slot confirms XI for crucial Champions League clash**: [Link](https://foot-africa.com/en/news/inter-vs-liverpool-lineups-salah-left-out-as-slot-confirms-xi-for-crucial-champions-league-clash-995570/)
+- **Liverpool Travel to the San Siro Desperate to Revive UCL League Phase Hopes**: [Link](https://www.dawan.africa/news/liverpool-travel-to-the-san-siro-desperate-to-revive-ucl-league-phase-hopes)
+
+
+### salah (N/A, 09/12/2025 15:26 Lima)
+
+- **Alisson Becker: Read the goalkeeper's pre-Inter press conference in full**: [Link](https://www.liverpoolfc.com/news/alisson-becker-read-goalkeepers-pre-inter-press-conference-full)
+- **Mohamed Salah left out of Liverpool squad for Inter match - The Athletic**: [Link](https://www.nytimes.com/athletic/6872322/2025/12/08/salah-liverpool-future/)
+- **'Disgraceful' Salah comments caused 'carnage' - pundits**: [Link](https://www.bbc.com/sport/football/articles/c05897vy81eo)
+
+
+### frankfurt vs. atalanta (N/A, 09/12/2025 15:26 Lima)
+
+- **UEFA Champions League Predictions: Matchday 12/9**: [Link](https://www.si.com/soccer/uefa-champions-league-predictions-matchday-12-9-2025-26)
+- **Champions League projections: Will Man City, Chelsea and Liverpool boost their top-eight chances? - The Athletic**: [Link](https://www.nytimes.com/athletic/6872476/2025/12/09/champions-league-projections-manchester-city-real-madrid/)
+- **All you need to know for this week's Champions League matches**: [Link](https://www.premierleague.com/en/news/4491129/all-you-need-to-know-for-this-weeks-champions-league-matches)
+
+
+### gonzalo mastriani (N/A, 09/12/2025 15:26 Lima)
+
+- **Se confirmó si Universitario dará golpe fichando a delantero de Botafogo el 2026: "Contrato..."**: [Link](https://libero.pe/futbol-peruano/universitario/2025/12/09/gonzalo-mastriani-se-confirmo-universitario-dara-golpe-fichando-delantero-de-botafogo-2026-es-imposible-video-284499)
+- **Fichajes Universitario 2026: altas, bajas y renovaciones para Liga 1 y fase de grupos de Copa Libertadores**: [Link](https://larepublica.pe/futbol-peruano/2025/12/08/fichajes-de-universitario-2026-altas-bajas-y-rumores-sobre-refuerzos-de-la-u-para-la-liga-1-y-copa-libertadores-335424)
+- **¿Cómo van las conversaciones con Gonzalo Napoli en Universitario?**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/como-van-conversaciones-gonzalo-napoli-universitario-n451891)
+
+
+### frankfurt (N/A, 09/12/2025 15:26 Lima)
+
+- **Prozessbeginn in Frankfurt: Angeklagte sollen Ukrainer ausspioniert haben**: [Link](https://www.zdfheute.de/video/heute-nachrichten/russischer-geheimdienst-spionage-video-100.html)
+- **Russische Spione aus der Bar Celona: Prozess gegen mutmaßliche Täter startet**: [Link](https://www.rnd.de/politik/russische-spione-aus-der-bar-celona-prozess-gegen-mutmassliche-taeter-startet-POHMZVBUGZAIJAA3LNSZV77XW4.html)
+- **Nachrichten aus Deutschland: Drei wegen von Russland unterstütztem Spionagekomplott vor Gericht**: [Link](https://www.dein-niedersachsen.de/nachrichten/nachrichten-aus-deutschland-drei-wegen-von-russland-unterstuetztem-spionagekomplott-vor-gericht/)
+
+
+### union saint-gilloise (N/A, 09/12/2025 15:26 Lima)
+
+- **Union Saint‑Gilloise vs. Olympique Marseille—How & When to Watch**: [Link](https://www.moroccoworldnews.com/2025/12/271156/union-saint-gilloise-vs-olympique-marseille-how-when-to-watch/)
+- **UEFA Champions League 2025: What time and on which channel to watch Union Saint-Gilloise vs OM?**: [Link](https://sports.yahoo.com/articles/uefa-champions-league-2025-time-105500576.html)
+- **Belgium Champions League Soccer**: [Link](https://www.hjnews.com/sports/nation/belgium-champions-league-soccer/image_43f7f5c0-08c0-5a70-bb23-8cef2bafefba.html)
+
+
 ### feriados perú (N/A, 09/12/2025 11:33 Lima)
 
 - **Feriado largo de diciembre: Conozca por qué el 8 y 9 son feriados en Perú**: [Link](https://peru21.pe/peru/feriado-largo-de-diciembre-conozca-por-que-el-8-y-9-son-feriados-en-peru/)
@@ -952,75 +1022,5 @@ Sin noticias relacionadas disponibles.
 - **Preview: Augsburg vs Bayer Leverkusen - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/augsburg/preview/augsburg-vs-b-leverkusen-prediction-team-news-lineups_587165.html)
 - **Germany Bundesliga Soccer**: [Link](https://www.wvnews.com/sports/pro/germany-bundesliga-soccer/image_866c4d17-391f-557e-9a1c-07cbce1a5cc0.html)
 - **'We're not tired, we love games' – Leverkusen boss Hjulmand brushes off fatigue**: [Link](https://www.beinsports.com/en-us/soccer/bundesliga/articles/were-not-tired-we-love-games--leverkusen-boss-hjulmand-brushes-off-fatigue-2025-12-05)
-
-
-### heerenveen - psv (N/A, 06/12/2025 11:29 Lima)
-
-- **VI Live: PSV trapt af in Heerenveen**: [Link](https://www.vi.nl/nieuws/vi-live-sc-heerenveen-tegen-psv)
-- **Koploper PSV met Pepi en Wanner tegen Heerenveen • Later nog Ajax en Feyenoord**: [Link](https://nos.nl/liveblog/2593434-koploper-psv-met-pepi-en-wanner-tegen-heerenveen-later-nog-ajax-en-feyenoord)
-- **Live Eredivisie | Heerenveen krijgt mogelijkheden in openingsfase tegen PSV**: [Link](https://www.nu.nl/voetbal/6378527/live-eredivisie-heerenveen-krijgt-mogelijkheden-in-openingsfase-tegen-psv.html)
-
-
-### leverkusen vs (N/A, 06/12/2025 11:29 Lima)
-
-- **RB Leipzig: EM-Push für Frauen-Team vor Leverkusen-Match - News vom 05.12.2025**: [Link](https://www.lvz.de/sport/regional/rb-leipzig-em-push-fuer-frauen-team-vor-leverkusen-match-news-vom-05-12-2025-FEUNU4PZA4TRPOCCO5RAO35JFA.html)
-- **Bayer-Torjägerin Vanessa Fudalla: "Ich würde nicht Nein sagen"**: [Link](https://www.dfb.de/news/bayer-torjaegerin-vanessa-fudalla-ich-wuerde-nicht-nein-sagen)
-- **Rückkehrerin Cornelia Kramer entfacht bei Bayers Frauen neuen Mut**: [Link](https://www.fupa.net/news/rueckkehrerin-cornelia-kramer-entfacht-bei-bayers-frauen-neuen-mut-3150214)
-
-
-### wolfsburg - fc union berlin (N/A, 06/12/2025 11:29 Lima)
-
-- **Baumgart: "Dieses Heidenheim-Spiel hängt uns allen noch im Nacken"**: [Link](https://www.kicker.de/baumgart-dieses-heidenheim-spiel-haengt-uns-allen-noch-im-nacken-1172709/artikel)
-- **Liveticker | VfL Wolfsburg - 1. FC Union Berlin 2:0 | 13. Spieltag | Bundesliga 2025/26**: [Link](https://www.kicker.at/wolfsburg-gegen-union-2025-bundesliga-5050862/ticker)
-- **Kann der 1. FC Union bei heimschwachen Wolfsburgern wieder punkten?**: [Link](https://www.rbb24.de/sport/beitrag/2025/12/fussball-bundesliga-union-berlin-vfl-wolfsburg-audiostream-spielbericht.html)
-
-
-### alavés - real sociedad (N/A, 06/12/2025 11:29 Lima)
-
-- **Alavés - Real Sociedad en directo: LaLiga EA Sports hoy, en vivo**: [Link](https://as.com/futbol/primera/alaves-real-sociedad-en-directo-laliga-ea-sports-hoy-en-vivo-f202512-d/)
-- **Apuestas y Pronóstico del Alavés vs Real Sociedad 06/12/25**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/2025/diciembre/pronostico-alaves-vs-real-sociedad-06-12-25)
-- **🔴La Liga EN VIVO: Jon Martín, al palo y el Alaves-Real sigue 0-0**: [Link](https://onefootball.com/es/noticias/la-liga-en-vivo-jon-martin-al-palo-y-el-alaves-real-sigue-0-0-42056346)
-
-
-### arsenal football club (N/A, 06/12/2025 11:29 Lima)
-
-- **Teams news: Odegaard one of three changes for Bees**: [Link](https://www.arsenal.com/news/teams-news-odegaard-one-three-changes-bees)
-- **Arsenal get injured star back for Brentford at ‘ideal’ time for Arteta**: [Link](https://www.standard.co.uk/sport/football/arsenal-fc-odegaard-return-ideal-time-arteta-b1260911.html)
-- **Arsenal star set to make first start in two months against Brentford**: [Link](https://www.independent.co.uk/bulletin/sport/martin-odegaard-arsenal-brentford-team-news-b2877532.html)
-
-
-### manchester city - sunderland afc (N/A, 06/12/2025 11:29 Lima)
-
-- **Preview: Manchester City vs Sunderland - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/man-city/preview/man-city-vs-sunderland-prediction-team-news-lineups_587040.html)
-- **'Used to pray for times like this': Fans happy to see one Man City player in the starting XI vs Sunderland**: [Link](https://tribuna.com/en/blogs/used-to-pray-for-times-like-this-fans-happy-to-see-one-man-c/)
-- **🚨Guardiola goes all out to close the gap in the Premier League**: [Link](https://sports.yahoo.com/articles/guardiola-goes-close-gap-premier-134800833.html)
-
-
-### bournemouth - chelsea (N/A, 06/12/2025 11:29 Lima)
-
-- **Cole Palmer returns to Chelsea starting line up vs Bournemouth | News | Official Site**: [Link](https://www.chelseafc.com/en/news/article/cole-palmer-returns-to-chelsea-starting-line-up-vs-bournemouth)
-- **Enzo Maresca provides concerning Romeo Lavia update ahead of Bournemouth clash**: [Link](https://chelsea.news/2025/12/enzo-maresca-romeo-lavia-latest/)
-- **Iraola on team news, Tavernier's reaction and Chelsea**: [Link](https://sports.yahoo.com/articles/iraola-team-news-taverniers-reaction-141726811.html)
-
-
-### newcastle - burnley (N/A, 06/12/2025 11:29 Lima)
-
-- **Lewis Hall omission from Newcastle United XI explained as star benched for Burnley clash**: [Link](https://www.chroniclelive.co.uk/sport/football/football-news/lewis-hall-omission-newcastle-united-33013151)
-- **Burnley (H) – Pre-match thoughts, team news, possible XI and prediction**: [Link](https://www.nufcblog.co.uk/2025/12/05/burnley-h-pre-match-thoughts-team-news-possible-xi-and-prediction/)
-- **Read Eddie Howe's pre-Burnley programme notes**: [Link](https://onefootball.com/de/news/read-eddie-howes-pre-burnley-programme-notes-42055689)
-
-
-### villarreal - getafe (N/A, 06/12/2025 07:48 Lima)
-
-- **Apuestas y Pronóstico del Villarreal vs Getafe 06/12/25**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/2025/diciembre/pronostico-villarreal-vs-getafe-06-12-25)
-- **El duelo de la ambición en la Cerámica**: [Link](https://www.epe.es/es/madrid/20251206/duelo-ambicion-ceramica-124504898)
-- **Marcelino: "No somos candidatos al título"**: [Link](https://www.ondacero.es/emisoras/comunidad-valenciana/castellon/deportes/marcelino-somos-candidatos-titulo_202512056932d8246e5e5012dcdba2a2.html)
-
-
-### brighton vs. aston villa (N/A, 06/12/2025 07:48 Lima)
-
-- **Brighton undermined by unfamiliar fragility to ruin Lewis Dunk’s landmark night - The Athletic**: [Link](https://www.nytimes.com/athletic/6857999/2025/12/04/brighton-dunk-hurzeler-euvrard-villa/)
-- **Unai Emery goes viral for hilarious 'coat throw' celebration as Aston Villa pull off incredible comeback in Brighton win**: [Link](https://tribuna.com/en/blogs/unai-emery-goes-viral-for-hilarious-coat-throw-celebration-a/)
-- **Analysis: Rare home defeat despite bright start**: [Link](https://www.bbc.com/sport/football/articles/cwyl6d1y29yo)
 
 
