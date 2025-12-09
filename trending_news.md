@@ -1,3 +1,24 @@
+### pelicans - spurs (N/A, 08/12/2025 23:33 Lima)
+
+- **Dylan Harper’s late jumper lifts Spurs past Derik Queen, Pelicans**: [Link](https://www.thesportsleader.com/2025/12/08/dylan-harpers-late-jumper-lifts-spurs-past-derik-queen-pelicans/)
+- **Pelicans' Derik Queen makes basketball history never done before in NBA**: [Link](https://ca.sports.yahoo.com/news/pelicans-derik-queen-makes-basketball-031143232.html)
+- **Pels' Derik Queen joins LeBron, Luka in historic triple-double feat**: [Link](https://basketnews.com/news-236475-pels-derik-queen-joins-lebron-luka-in-historic-triple-double-feat.html)
+
+
+### billie eilish (N/A, 08/12/2025 23:33 Lima)
+
+- **Celebrity birthdays for the week of Dec. 14-20 includes Billie Eilish and Brad Pitt | Hollywood**: [Link](https://www.hindustantimes.com/entertainment/hollywood/celebrity-birthdays-for-the-week-of-dec-14-20-includes-billie-eilish-and-brad-pitt-101765233967133.html)
+- **Celebrity birthdays for the week of Dec. 14-20 includes Billie Eilish and Brad Pitt**: [Link](https://kdhnews.com/living/ae/celebrity-birthdays-for-the-week-of-dec-14-20-includes-billie-eilish-and-brad-pitt/article_082b1142-217f-59f4-b678-ab39fbe4e6ec.html)
+- **Celebrity birthdays for the week of Dec. 14-20 includes Billie Eilish and Brad Pitt**: [Link](https://www.sfchronicle.com/entertainment/article/celebrity-birthdays-for-the-week-of-dec-14-20-21231361.php)
+
+
+### bucaramanga vs (N/A, 08/12/2025 23:33 Lima)
+
+- **Santa Fe vs Bucaramanga hoy: Resultado EN VIVO, minuto a minuto, goles y tabla del grupo B**: [Link](https://www.365scores.com/es/news/santa-fe-vs-bucaramanga-en-vivo/)
+- **Santa Fe no pudo subir al marcador por fuera de lugar**: [Link](https://www.winsports.co/futbol-colombiano/noticias/santa-fe-no-pudo-subir-al-marcador-por-fuera-de-lugar-397820)
+- **Santa Fe vs. Bucaramanga en Liga BetPlay: el 'León' y el 'Leopardo' no se sacaron ventaja en el final de lo...**: [Link](https://redmas.com.co/en-vivo-santa-fe-vs-atletico-bucaramanga-en-liga-betplay-ver-partido-gratis-y-online-minuto-a-minuto-de-cuadrangulares-ultima-fecha-lb202512080004.html)
+
+
 ### timberwolves - suns (N/A, 08/12/2025 21:00 Lima)
 
 - **Minnesota Timberwolves Injury Report: Latest update on Enrique Freeman and Rocco Zikarsky**: [Link](https://thesportstak.com/basketball/nba-24-oct-2022/story/minnesota-timberwolves-injury-report-latest-update-on-enrique-freeman-and-rocco-zikarsky-3219568-2025-12-09)
@@ -1001,26 +1022,5 @@ Sin noticias relacionadas disponibles.
 - **Iowa weather: Snow showers return for the weekend**: [Link](https://www.kcci.com/article/iowa-weather-snow-showers-return-for-the-weekend/69642910)
 - **FIRST ALERT: Slick travel this weekend as we add more snow**: [Link](https://www.kcrg.com/2025/12/05/first-alert-slick-travel-this-weekend-we-add-more-snow/)
 - **Another winter storm is headed for Iowa. How much snow is expected?**: [Link](https://www.desmoinesregister.com/story/weather/2025/12/05/iowa-weather-snow-forecast-nws-winter-storm-polar-vortex-arctic-air/87619806007/)
-
-
-### bonos (N/A, 05/12/2025 23:28 Lima)
-
-- **Bono de S/100 se pagará en enero de 2026, pero requiere cumplir dos condiciones**: [Link](https://www.infobae.com/peru/2025/12/04/bono-de-s100-se-paga-en-enero-de-2026-pero-requiere-cumplir-dos-condiciones/)
-- **Ley 32513: Ley de presupuesto del sector público para el año fiscal 2026**: [Link](https://lpderecho.pe/ley-32513-ley-presupuesto-sector-publico-ano-fiscal-2026/)
-- **Tropezar de nuevo, por Alejandra Costa | OPINION**: [Link](https://elcomercio.pe/opinion/columnistas/tropezar-de-nuevo-por-alejandra-costa-noticia/)
-
-
-### fuerza armada nacional bolivariana (N/A, 05/12/2025 20:54 Lima)
-
-- **VenezuelaHoy: el Ejército intercepta e inmoviliza una aeronave "hostil" en el suroccidente del país**: [Link](https://www.france24.com/es/am%C3%A9rica-latina/20251205-venezuelahoy-video-muestra-%C3%BAltimos-momentos-de-los-sobrevivientes-en-un-ataque-que-aumenta-el-escrutinio-en-ee-uu)
-- **Control para la Defensa Integral del Espacio Aéreo**: [Link](https://www.e-consulta.com/nota/2025-12-05/mundo/control-para-la-defensa-integral-del-espacio-aereo)
-- **Fuerza Armada contabiliza 28 aeronaves hostiles neutralizadas en 2025**: [Link](https://noticiasdeaqui.co/2025/12/05/fuerza-armada-contabiliza-28-aeronaves-hostiles-neutralizadas-en-2025/)
-
-
-### atv en vivo (N/A, 05/12/2025 20:54 Lima)
-
-- **Perú vs Venezuela EN VIVO HOY: punto a punto del duelo de vóley femenino por los Juegos Bolivarianos 2025**: [Link](https://www.infobae.com/peru/deportes/2025/12/05/peru-vs-venezuela-en-vivo-hoy-atv-youtube-voley-femenino-juegos-bolivarianos-2025-resumen-resultado/)
-- **Perú a la final del vóley: así fue la eufórica celebración tras triunfo ante Colombia por los Juegos Bolivarianos 2025**: [Link](https://rpp.pe/voley/seleccion-peruana/peru-a-la-final-del-voley-asi-fue-la-euforica-celebracion-tras-triunfo-ante-colombia-por-los-juegos-bolivarianos-2025-noticia-1666632)
-- **Perú Vs. Venezuela EN VIVO: Horario y cómo ver el partido por los Juegos Bolivarianos por ATV y ATV.pe**: [Link](https://www.atv.pe/noticia/peru-vs-venezuela-en-vivo-horario-y-como-ver-el-partido-por-los-juegos-bolivarianos-por-atv-y-atv-pe/)
 
 
