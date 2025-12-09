@@ -1,3 +1,70 @@
+### timberwolves - suns (N/A, 08/12/2025 21:00 Lima)
+
+- **Minnesota Timberwolves Injury Report: Latest update on Enrique Freeman and Rocco Zikarsky**: [Link](https://thesportstak.com/basketball/nba-24-oct-2022/story/minnesota-timberwolves-injury-report-latest-update-on-enrique-freeman-and-rocco-zikarsky-3219568-2025-12-09)
+- **BetMGM bonus code NYPDM1500: Get a 20% first deposit match up to $1,500 for Suns vs. Timberwolves**: [Link](https://nypost.com/2025/12/08/betting/betmgm-bonus-code-nypdm1500-get-a-20-first-deposit-match-up-to-1500-for-suns-vs-timberwolves/)
+- **Live Updates: Suns-Timberwolves highlights a 3-game night**: [Link](https://www.nba.com/news/live-updates-suns-timberwolves-highlights-a-3-game-night)
+
+
+### independiente santa fe (N/A, 08/12/2025 21:00 Lima)
+
+- **Santa Fe vs. Bucaramanga por la última fecha de cuadrangulares de la Liga: Fecha, hora y cómo seguir**: [Link](https://caracol.com.co/2025/12/07/santa-fe-vs-bucaramanga-por-la-ultima-fecha-de-cuadrangulares-de-la-liga-fecha-hora-y-como-seguir/)
+- **Santa Fe – Bucaramanga en vivo online: Liga BetPlay, en directo**: [Link](https://colombia.as.com/futbol/santa-fe-bucaramanga-en-vivo-online-liga-betplay-en-directo-f202512-n/)
+- **Previa Santa Fe vs: Atlético Bucaramanga: El partido de cierre de 2025**: [Link](https://www.vavel.com/colombia/futbol-colombiano/2025/12/08/independiente-santa-fe/1244006-previa-santa-fe-vs-atletico-bucaramanga-el-partido-de-cierre-de-2025.html)
+
+
+### pacers - kings (N/A, 08/12/2025 21:00 Lima)
+
+- **Halftime Rewind: Pacers 66, Kings 51**: [Link](https://www.nba.com/pacers/news/rewind-pacers-kings-251208)
+- **Kings vs. Pacers Prediction, Odds and Best NBA Prop Bets for Monday, Dec. 8**: [Link](https://www.si.com/betting/kings-vs-pacers-prediction-odds-and-best-nba-prop-bets-for-monday-dec-8)
+- **Sacramento Kings @ Indiana Pacers Odds**: [Link](https://sportsbook.fanduel.com/basketball/nba/sacramento-kings-@-indiana-pacers-35036255)
+
+
+### santa fe - bucaramanga (N/A, 08/12/2025 21:00 Lima)
+
+- **Santa Fe vs Atlético Bucaramanga Stats & Insights**: [Link](https://www.betshoot.com/football/19609204-Santa-Fe-vs-Atl%C3%A9tico-Bucaramanga-prediction/)
+- **Independiente Santa Fe se despide del campeonato en su duelo contra Atlético Bucaramanga**: [Link](https://news.ssbcrack.com/independiente-santa-fe-se-despide-del-campeonato-en-su-duelo-contra-atletico-bucaramanga/)
+
+
+### junior (N/A, 08/12/2025 21:00 Lima)
+
+- **Brunicke Headed to Team Canada**: [Link](https://pittsburghhockeynow.com/brunicke-headed-to-team-canada/)
+- **Red Wings Prospect To Play For Canadian Juniors / DHN**: [Link](https://detroithockeynow.com/2025/12/08/world-juniors-a-bear-market-for-red-wings-prospect/)
+- **Michael Misa among Sharks prospects playing in the WJC this year**: [Link](https://bladesofteal.com/michael-misa-among-sharks-prospects-playing-in-the-wjc-this-year-01kbzqg64a2e)
+
+
+### duberlí rodríguez (N/A, 08/12/2025 21:00 Lima)
+
+- **Declaran "improcedente" demanda de amparo que pedía que el JNE ordene inscripción del partido de Duberlí Rodríguez**: [Link](https://rpp.pe/politica/elecciones/declaran-improcedente-demanda-de-amparo-que-pedia-que-el-jne-ordene-inscripcion-de-partido-de-duberli-rodriguez-noticia-1667000)
+- **Caso JNE: Resuelven en mayoría declarar improcedente participación de partido [Exp. 06374-2025-0]**: [Link](https://lpderecho.pe/caso-jne-resuelven-en-mayoria-declarar-improcedente-participacion-de-partido-exp-06374-2025-0/)
+- **Sala Constitucional detecta errores de JNE en caso Unidad Popular: ¿partido de Duberlí Rodríguez puede participar en Elecciones 2026?**: [Link](https://www.expreso.com.pe/judicial/sala-constitucional-detecta-errores-de-jne-en-caso-unidad-popular-partido-de-duberli-rodriguez-puede-participar-en-elecciones-2026-demanda-de-amparo-noticia/1245552/)
+
+
+### emelec - macará (N/A, 08/12/2025 21:00 Lima)
+
+- **Emelec vs Macara: Resultado EN VIVO y tabla de posiciones de la Liga Pro**: [Link](https://www.365scores.com/es/news/emelec-vs-macara-resultado-en-vivo/)
+- **Emelec busca recuperarse ante Macará por Liga Ecuabet**: [Link](https://www.espn.com.ar/futbol/ecuador/nota/_/id/16045520/emelec-vs-macara-fecha-8-hexagonal-liga-ecuabet-equipo-fecha-hora-y-tv-en-vivo)
+- **Emelec vs Macará: Fecha, hora y dónde ver EN VIVO el partido de la LigaPro 2026**: [Link](https://www.expreso.ec/deportes/emelec-vs-macara-fecha-hora-y-donde-ver-en-vivo-el-partido-de-la-ligapro-2026-267067.html)
+
+
+### pablo erustes (N/A, 08/12/2025 21:00 Lima)
+
+- **Fue ofrecido a Universitario: Pablo Erustes será nuevo jugador de Melgar**: [Link](https://depor.com/futbol-peruano/descentralizado/pablo-erustes-sera-jugador-de-melgar-desde-2026-detalles-del-fichaje-ofertas-y-por-que-no-llego-a-universitario-liga-1-video-noticia/)
+- **Melgar anunció el fichaje de Pablo Erustes para la temporada 2026**: [Link](https://www.espn.com.pe/futbol/peru/nota/_/id/16061829/pablo-erustes-es-nuevo-jugador-de-melgar-para-la-temporada-2026)
+- **Melgar sorprende y le arrebata a Universitario al delantero que marcó 15 goles esta temporada**: [Link](https://libero.pe/futbol-peruano/liga-1/2025/12/08/fichajes-liga-1-melgar-sorprende-le-arrebata-universitario-delantero-marco-15-goles-temporada-788576)
+
+
+### mercedes roa (N/A, 08/12/2025 21:00 Lima)
+
+Sin noticias relacionadas disponibles.
+
+
+### américa - atlético nacional (N/A, 08/12/2025 21:00 Lima)
+
+- **Liga BetPlay: Nacional perdió ante América y se quedó sin final**: [Link](https://www.espn.com.ar/futbol/colombia/nota/_/id/16054407/atletico-nacional-perdio-ante-america-se-quedo-sin-final-liga-betplay-2025)
+- **Resumen, goles y video: América venció 3-2 a Nacional por la Liga BetPlay 2025**: [Link](https://depor.com/colombia/liga-bet-play/win-sports-en-vivo-america-vs-nacional-en-directo-gratis-ver-futbol-libre-tv-canal-rcn-online-por-internet-streaming-cuadrangulares-semifinales-liga-betplay-colombia-video-noticia/)
+- **Nacional obligado a ganar: la apuesta que se puede ir a las nubes**: [Link](https://www.futbolred.com/apuestas/pronosticos-america-vs-nacional-08-12-2025-259726)
+
+
 ### manchester united vs (N/A, 08/12/2025 15:29 Lima)
 
 - **Manchester United busca volver al triunfo en duelo a domicilio ante Wolves**: [Link](https://www.espn.com.pe/futbol/inglaterra/nota/_/id/16044961/manchester-united-vs-west-ham-fecha-15-premier-league-equipo-fecha-hora-y-tv-en-vivo)
@@ -955,73 +1022,5 @@ Sin noticias relacionadas disponibles.
 - **Perú vs Venezuela EN VIVO HOY: punto a punto del duelo de vóley femenino por los Juegos Bolivarianos 2025**: [Link](https://www.infobae.com/peru/deportes/2025/12/05/peru-vs-venezuela-en-vivo-hoy-atv-youtube-voley-femenino-juegos-bolivarianos-2025-resumen-resultado/)
 - **Perú a la final del vóley: así fue la eufórica celebración tras triunfo ante Colombia por los Juegos Bolivarianos 2025**: [Link](https://rpp.pe/voley/seleccion-peruana/peru-a-la-final-del-voley-asi-fue-la-euforica-celebracion-tras-triunfo-ante-colombia-por-los-juegos-bolivarianos-2025-noticia-1666632)
 - **Perú Vs. Venezuela EN VIVO: Horario y cómo ver el partido por los Juegos Bolivarianos por ATV y ATV.pe**: [Link](https://www.atv.pe/noticia/peru-vs-venezuela-en-vivo-horario-y-como-ver-el-partido-por-los-juegos-bolivarianos-por-atv-y-atv-pe/)
-
-
-### dep. cuenca - delfín (N/A, 05/12/2025 20:54 Lima)
-
-Sin noticias relacionadas disponibles.
-
-
-### arena monumental (N/A, 05/12/2025 20:54 Lima)
-
-- **Cris MJ anuncia nueva zona para fans en su concierto de Lima: aquí los precios**: [Link](https://elcomercio.pe/luces/musica/cris-mj-anuncia-nueva-zona-para-fans-en-su-concierto-de-lima-aqui-los-precios-ultimas-noticia/)
-- **CRIS MJ cantará en el Arena Monumental**: [Link](https://agenciaorbita.org/cris-mj-cantara-en-el-arena-monumental/)
-- **Cris MJ abre nueva zona para fans y amplía aforo de su concierto en el Arena Monumental**: [Link](https://www.expreso.com.pe/entretenimiento/cris-mj-abre-nueva-zona-para-fans-y-amplia-aforo-de-su-concierto-en-el-arena-monumental-noticia/1244777/)
-
-
-### precio dolar peru (N/A, 05/12/2025 20:54 Lima)
-
-- **Precio del dólar con alza: Así cerró el tipo de cambio hoy 5 de diciembre en Perú**: [Link](https://www.infobae.com/peru/2025/12/05/dolar-cotizacion-de-apertura-hoy-5-de-diciembre-en-peru/)
-- **¿Cuál es la cotización del dólar hoy jueves 5 de diciembre del 2025?**: [Link](https://andina.pe/agencia/noticia-cual-es-cotizacion-del-dolar-hoy-jueves-5-diciembre-del-2025-1054590.aspx)
-- **BCR interviene y compra $ 294 millones y da respiro al dólar que cerró en S/ 3.362**: [Link](https://diariocorreo.pe/economia/bcr-interviene-y-compra-294-millones-y-da-respiro-al-dolar-que-cerro-en-s-3362-noticia/)
-
-
-### anuel (N/A, 05/12/2025 20:54 Lima)
-
-- **Los Jaivas en Estadio Nacional 2025: Metro de Santiago anuncia extensión de su servicio por el concierto**: [Link](https://los40.cl/2025/12/05/los-jaivas-en-estadio-nacional-2025-metro-de-santiago-anuncia-extension-de-su-servicio-por-el-concierto/)
-- **Concierto en Anuel AA en Chile 2026: este es el posible setlist del esperado concierto en el Estadio Santa Laura**: [Link](https://www.radioactiva.cl/2025/12/concierto-en-anuel-aa-en-chile-2026-este-es-el-posible-setlist-del-esperado-concierto-en-el-estadio-santa-laura/)
-- **Metro de Santiago anuncia extensión de horarios por concierto: Revisa las Líneas y estaciones modificadas**: [Link](https://www.radioimagina.cl/2025/12/metro-de-santiago-anuncia-extension-de-horarios-por-concierto-revisa-las-lineas-y-estaciones-modificadas/)
-
-
-### celtics - lakers (N/A, 05/12/2025 20:54 Lima)
-
-- **Live Updates: Lakers-Celtics, and top moments of a 12 game-night**: [Link](https://www.nba.com/news/live-updates-lakers-celtics-and-top-moments-of-a-12-game-night-in-the-nba)
-- **BetMGM Bonus Code COVERS: How to Unlock up to $1,500 Bonus Bets for Lakers vs. Celtics**: [Link](https://www.covers.com/daily-promos/betmgm-bonus-code-nba-lakers-celtics-12-5-2025)
-- **How to watch Boston Celtics game today free vs. Los Angeles Lakers**: [Link](https://www.masslive.com/tv/2025/12/how-to-watch-boston-celtics-game-today-free-vs-los-angeles-lakers.html)
-
-
-### concierto de anuel (N/A, 05/12/2025 20:54 Lima)
-
-- **CONCIERTOS EN LIMA 2025: TODO LO QUE TE ESPERA EN DICIEMBRE**: [Link](https://blog.ticketmaster.pe/noticias-ticketmaster/conciertos-en-lima-2025-todo-lo-que-te-espera-en-diciembre-3362/)
-- **Conciertos en Lima este fin de semana: Anuel AA, Vibra Perú y más shows imperdibles para el 5, 6 y 7 de diciembre**: [Link](https://larepublica.pe/entretenimiento/2025/12/04/conciertos-en-lima-2025-entradas-fecha-y-lugar-para-anuel-aa-vibra-peru-living-flow-y-tono-good-este-fin-de-semana-328488)
-- **Agenda musical de lujo en Perú: Limp Bizkit, Morat, Anuel AA, y otros artistas llegan a Lima para presentarse en concierto durante diciembre 2025**: [Link](https://elcomercio.pe/respuestas/farandula/agenda-musical-de-lujo-en-peru-limp-bizkit-morat-anuel-aa-y-otros-artistas-llegan-a-lima-para-presentarse-en-concierto-durante-diciembre-2025-tdpe-noticia/)
-
-
-### palestino vs (N/A, 05/12/2025 20:54 Lima)
-
-- **Club Deportivo Palestino S.A.D.P. vs Huachipato S.A.D.P. | Pronóstico y cuotas 05.12.2025**: [Link](https://www.transfermarkt.es/apuestas/pronosticos-deportivos/palestino-vs-huachipato-pronostico-apuestas-06-12-2025/)
-- **Tabla de posiciones del Torneo Nacional: Última fecha**: [Link](https://www.emol.com/noticias/Deportes/2025/12/05/1185180/tabla-posiciones-torneonacional-ultima-fecha.html)
-- **¡Noche de golazos en el fútbol chileno!**: [Link](https://chile.as.com/futbol/noche-de-golazos-en-el-futbol-chileno-f202512-n/)
-
-
-### oscar gayoso (N/A, 05/12/2025 20:54 Lima)
-
-- **"No me gustan los dramas": Óscar Gayoso revela por qué decidió mantener en reserva su diagnóstico de cáncer**: [Link](https://rpp.pe/famosos/celebridades/oscar-gayoso-explica-por-que-decidio-mantener-en-reserva-su-diagnostico-de-cancer-noticia-1666500)
-- **Óscar Gayoso revela quién propició su famoso beso con Beto Ortiz: “Fue obra y gracia de Chibolín”**: [Link](https://trome.com/espectaculos/tv/oscar-gayoso-revela-quien-propicio-su-famoso-beso-con-beto-ortiz-fue-obra-y-gracia-de-andres-hurtado-chibolin-cafe-con-la-chevez-foto-video-farandula-noticia/)
-- **Óscar Gayoso confiesa por qué decidió ocultar su batalla contra el cáncer: "No me gustan los dramas"**: [Link](https://larepublica.pe/espectaculos/2025/12/04/oscar-gayoso-confiesa-por-que-decidio-ocultar-su-batalla-contra-el-cancer-no-me-gustan-los-dramas-121888)
-
-
-### mallorca vs (N/A, 05/12/2025 15:28 Lima)
-
-- **odds to score a goal on December 5**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/12/05/vedat-muriqi-soccer-player-props-12-5-2025/87617911007/)
-- **Real Oviedo vs Mallorca Prediction and Betting Tips | December 5th 2025**: [Link](https://www.sportskeeda.com/football/real-oviedo-vs-mallorca-prediction-betting-tips-december-5th-2025)
-- **PREVIEW | Real Oviedo vs Mallorca - team news, lineups, predictions**: [Link](https://www.playmakerstats.com/news/preview-real-oviedo-vs-mallorca-team-news-lineups-predictions/993346)
-
-
-### mallorca fc (N/A, 05/12/2025 15:28 Lima)
-
-- **Real Oviedo recibe a Mallorca en busca de salir del fondo de LaLiga**: [Link](https://www.espn.com.pe/futbol/espana/nota/_/id/16035234/real-viedo-vs-mallorca-laliga-fecha-15-equipo-fecha-hora-y-tv-en-vivo)
-- **LaLiga EA Sports: Real Oviedo busca salir del último lugar ante Mallorca**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-real-oviedo-busca-salir-del-ultimo-lugar-ante-mallorca-noticia-1666521)
-- **Pronóstico Oviedo vs. Mallorca: Finalísima**: [Link](https://gainblers.com/pe/pronosticos/futbol/espana/liga-primera-division/pronostico-oviedo-mallorca-05-12-2025/)
 
 
