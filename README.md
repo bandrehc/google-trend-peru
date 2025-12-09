@@ -1,3 +1,73 @@
+### feriados perú (N/A, 09/12/2025 11:33 Lima)
+
+- **Feriado largo de diciembre: Conozca por qué el 8 y 9 son feriados en Perú**: [Link](https://peru21.pe/peru/feriado-largo-de-diciembre-conozca-por-que-el-8-y-9-son-feriados-en-peru/)
+- **La Inmaculada en el corazón y en las palabras de los Papas**: [Link](https://www.vaticannews.va/es/papa/news/2025-12/inmaculada-concepcion-palabras-papas.html)
+- **El Obispo D. Casimiro: “María es el signo más luminoso de lo que Dios puede hacer cuando encuentra un corazón disponible”**: [Link](https://obsegorbecastellon.es/el-obispo-d-casimiro-maria-es-el-signo-mas-luminoso-de-lo-que-dios-puede-hacer-cuando-encuentra-un-corazon-disponible/)
+
+
+### ticketmaster (N/A, 09/12/2025 11:33 Lima)
+
+- **Millions of disgruntled concertgoers likely to proceed as class against Ticketmaster**: [Link](https://www.courthousenews.com/millions-of-disgruntled-concertgoers-likely-to-proceed-as-class-against-ticketmaster/)
+- **Judge signals he’ll let Ticketmaster customers proceed as class in Live Nation antitrust lawsuit**: [Link](https://www.musicbusinessworldwide.com/judge-signals-hell-let-ticketmaster-customers-proceed-as-class-in-live-nation-antitrust-lawsuit/)
+- **Live Nation Customers Appear Poised For Antitrust Class Cert.**: [Link](https://www.law360.com/articles/2418479/live-nation-customers-appear-poised-for-antitrust-class-cert)
+
+
+### egipto vs (N/A, 09/12/2025 11:33 Lima)
+
+- **Egipto vs Jordania EN VIVO: Gol jordano de penal (0-3)**: [Link](https://www.vavel.com/mx/futbol-internacional/2025/12/09/1244049-egipto-vs-jordania-en-vivo-copa-arabe.html)
+- **Irán rechaza que su partido ante Egipto sea el del orgullo LGBTQ+ en el Mundial**: [Link](https://as.com/futbol/mundial/iran-rechaza-que-su-partido-ante-egipto-sea-el-del-orgullo-lgbtq-en-el-mundial-f202512-n/)
+- **El llamativo partido del Mundial 2026 que la FIFA designó para celebrar la Semana del Orgullo LGBTQ+**: [Link](https://www.msn.com/es-ar/noticias/other/el-llamativo-partido-del-mundial-2026-que-la-fifa-design%C3%B3-para-celebrar-la-semana-del-orgullo-lgbtq/ar-AA1RY522)
+
+
+### kairat - olympiacos (N/A, 09/12/2025 11:33 Lima)
+
+- **Preview: Kairat vs Olympiacos - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/kairat/preview/kairat-vs-olympiacos-prediction-team-news-lineups_587346.html)
+- **Champions League: Why is Kairat Almaty v Olympiakos a 15:30 kick-off in the UK?**: [Link](https://www.bbc.com/sport/football/articles/cwyp980y9rzo)
+- **Follow Matchday 6 in the Champions League live here**: [Link](https://www.flashscore.com/news/soccer-champions-league-champions-league-live-kairat-hosting-olympiacos-bayern-vs-sporting-to-follow/ImLVTSOG/)
+
+
+### olympiacos vs (N/A, 09/12/2025 11:33 Lima)
+
+- **Champions League: Olympiacos visita a Kairat Almaty por la fecha 6**: [Link](https://rpp.pe/futbol/ligas-internacionales/champions-league-olympiacos-visita-a-kairat-almaty-por-la-fecha-6-noticia-1667020)
+- **▶️ Kairat contra Olympiacos Ver en directo, Consejo » Como ver el partido️ - 9 dic.**: [Link](https://footballpredictions.net/es/predicciones-kairat-v-olympiacos-datos-apuestas)
+- **Olympiacos vs Valencia tickets | EuroLeague 2025/2026, Round 16, Piraeus – Peace and Friendship Stadium**: [Link](https://karlobag.eu/en/tickets/basketball/olympiacos-vs-valencia-tickets-buy-tickets-for-euroleague-20252026-round-16-piraeus---peace-and-friendship-stadium-ln4xy)
+
+
+### marruecos - arabia saudita (N/A, 09/12/2025 11:33 Lima)
+
+- **Marruecos vs Arabia Saudita EN VIVO: Últimos minutos (1-0)**: [Link](https://www.vavel.com/mx/futbol-internacional/2025/12/08/1243991-marruecos-vs-arabia-saudita-en-vivo-copa-arabe.html)
+- **Renard: “Muchas selecciones, como Brasil, temen ahora cuando escuchan el nombre de Marruecos”**: [Link](https://es.rue20.com/2025/12/08/renard-muchas-selecciones-como-brasil-temen-ahora-cuando-escuchan-el-nombre-de-marruecos/)
+- **Quiso picar el penal y lo erró: Arabia Saudita, rival de Uruguay en el Mundial 2026, perdió ante Marruecos por la Copa Árabe de la FIFA**: [Link](https://www.elobservador.com.uy/futbol-internacional/quiso-picar-el-penal-y-lo-erro-arabia-saudita-rival-uruguay-el-mundial-2026-perdio-marruecos-la-copa-arabe-la-fifa-n6027488)
+
+
+### inter vs liverpool (N/A, 09/12/2025 11:33 Lima)
+
+- **Inter vs. Liverpool en vivo, Champions League: a qué hora juegan, canal que transmite y dónde ver**: [Link](https://elcomercio.pe/deporte-total/champions-league/inter-vs-liverpool-en-vivo-online-gratis-via-espn-disney-plus-tnt-sports-movistar-tudn-a-que-hora-juegan-canal-que-transmite-y-donde-ver-por-champions-league-video-noticia/)
+- **Champions League: Por la fecha 6, Inter recibirá a Liverpool**: [Link](https://rpp.pe/futbol/ligas-internacionales/champions-league-por-la-fecha-6-inter-recibira-a-liverpool-noticia-1667044)
+- **Inter vs Liverpool: ¡Juega en la Champions League y gana S/. 30,000 en premios con Meridianbet!**: [Link](https://ovacion.pe/noticias/nota-promocional/inter-vs-liverpool-juega-champions-league-gana-s-30000-premios)
+
+
+### copa árabe de la fifa (N/A, 09/12/2025 11:33 Lima)
+
+- **Argelia vs Irak EN VIVO, minuto a minuto en Copa Árabe FIFA 2025**: [Link](https://www.vavel.com/mx/futbol-internacional/2025/12/09/1244041-argelia-vs-irak-en-vivo-copa-arabe.html)
+- **Copa Árabe 2025/Argelia-Irak: Posibles alineaciones**: [Link](https://www.elpueblo.pe/deportes/copa-arabe-2025-argelia-irak-posibles-alineaciones/157720/)
+- **Copa Árabe: Emilio Saba, el futbolista peruano que llena de alegría a los fans de la selección de Palestina**: [Link](https://www.latimes.com/espanol/deportes/articulo/2025-12-07/copa-arabe-emilio-saba-el-futbolista-peruano-que-llena-de-alegria-los-fans-de-la-seleccion-de-palestina)
+
+
+### madrid vs city (N/A, 09/12/2025 11:33 Lima)
+
+- **Un Real Madrid complicado recibe a Manchester City por la Champions League**: [Link](https://www.espn.com.pe/futbol/champions-league/nota/_/id/16064268/real-madrid-vs-manchester-city-fase-liga-fecha-6-champions-equipo-fecha-hora-tv-en-vivo)
+- **Pronósticos Real Madrid vs Manchester City 10/12/2025**: [Link](https://bolavip.com/pe/apuestas/pronosticos/real-madrid-vs-manchester-city-10-12-2025)
+- **Real Madrid vs Manchester City: vista previa del partido, últimas noticias del equipo y cómo verlo**: [Link](https://www.elpueblo.pe/deportes/real-madrid-vs-manchester-city-vista-previa-del-partido-ultimas-noticias-del-equipo-y-como-verlo/157740/)
+
+
+### paramount netflix warner bros (N/A, 09/12/2025 11:33 Lima)
+
+- **Paramount Skydance launches hostile bid for WBD after Netflix deal**: [Link](https://www.cnbc.com/2025/12/08/paramount-skydance-hostile-bid-wbd-netflix.html)
+- **Why has Paramount launched a hostile bid for Warner Bros Discovery?**: [Link](https://www.bbc.com/news/articles/cm21z4zgkx7o)
+- **Jared Kushner is part of Paramount's hostile bid for Warner Bros. Discovery**: [Link](https://www.axios.com/2025/12/08/jared-kushner-paramount-warner-bros-netflix)
+
+
 ### 9 de diciembre (N/A, 09/12/2025 07:55 Lima)
 
 - **Horóscopo de hoy, 9 de diciembre: Estas son las predicciones más exactas para tu signo**: [Link](https://elcomercio.pe/luces/vida-social/horoscopo-de-hoy-9-de-diciembre-estas-son-las-predicciones-mas-exactas-para-tu-signo-noticia/)
@@ -952,75 +1022,5 @@ Sin noticias relacionadas disponibles.
 - **Brighton undermined by unfamiliar fragility to ruin Lewis Dunk’s landmark night - The Athletic**: [Link](https://www.nytimes.com/athletic/6857999/2025/12/04/brighton-dunk-hurzeler-euvrard-villa/)
 - **Unai Emery goes viral for hilarious 'coat throw' celebration as Aston Villa pull off incredible comeback in Brighton win**: [Link](https://tribuna.com/en/blogs/unai-emery-goes-viral-for-hilarious-coat-throw-celebration-a/)
 - **Analysis: Rare home defeat despite bright start**: [Link](https://www.bbc.com/sport/football/articles/cwyl6d1y29yo)
-
-
-### arsenal vs. brentford (N/A, 06/12/2025 07:48 Lima)
-
-- **Odegaard on his return, Madueke and Brentford | Interview | News**: [Link](https://www.arsenal.com/news/odegaard-his-return-madueke-and-brentford)
-- **Gunners stay on target, but Slot's machine jams again vs Sunderland**: [Link](https://www.chinadaily.com.cn/a/202512/05/WS693232e6a310d6866eb2cff2.html)
-- **Merino strikes again to extend Arsenal's Premier League lead**: [Link](https://www.beinsports.com/en-mena/football/premier-league/articles-video/merino-strikes-again-to-extend-arsenal-s-premier-league-lead-2025-12-03)
-
-
-### aston villa - arsenal (N/A, 06/12/2025 07:48 Lima)
-
-- **Premier League LIVE: Aston Villa vs Arsenal - scores, stats & updates**: [Link](https://www.bbc.com/sport/football/live/c4gwyz8el2vt)
-- **Unai Emery expects a ‘huge test’ against his old employers**: [Link](https://www.vavel.com/en/football/2025/12/06/aston-villa/1243776-unai-emery-expects-a-huge-test-against-his-old-employers.html)
-- **Paul Merson Predicts Arsenal "Panic" Ahead Of "Big, Big Football Match" Against Aston Villa**: [Link](https://goonernews.com/blog/arsenal-news-paul-merson-aston-villa-prediction/)
-
-
-### tea (N/A, 06/12/2025 07:48 Lima)
-
-- **Vladimir Putin in India live: Putin says Russia ready to supply 'uninterrupted' fuel to India despite objection from Trump**: [Link](https://www.bbc.com/news/live/cjwyqpn8252t?page=2)
-- **The Modi-Putin Summit Is a Message to Trump**: [Link](https://time.com/7338871/putin-trip-modi-india-trump/)
-- **Opinion: Opinion | Navigating the Tightrope: Why Putin's Visit Is A Masterclass In India's Foreign Policy**: [Link](https://www.ndtv.com/opinion/navigating-the-tightrope-why-putins-visit-is-a-masterclass-in-indias-foreign-policy-9760749)
-
-
-### clima de hoy (N/A, 06/12/2025 07:48 Lima)
-
-- **SENAMHI: Pronóstico del clima hoy sábado 06 de diciembre 2025**: [Link](https://rpp.pe/peru/actualidad/senamhi-pronostico-del-clima-hoy-sabado-06-de-diciembre-2025-noticia-1666816)
-- **Senamhi advierte de madrugadas calurosas: temperatura llegaría a los 28 grados**: [Link](https://latinanoticias.pe/lima/senamhi-advierte-de-madrugadas-calurosas-temperatura-llegaria-a-los-28-grados_20251202/)
-- **Lima seguirá con días nublados y temperaturas frescas en los próximos días, advierte especialista del Senamhi**: [Link](https://www.infobae.com/peru/2025/11/29/lima-seguira-con-dias-nublados-y-temperaturas-frescas-en-los-proximos-dias-advierte-especialista-del-senamhi/)
-
-
-### barcelona vs betis (N/A, 06/12/2025 07:48 Lima)
-
-- **¿A qué hora juega y qué canal transmite FC Barcelona vs. Betis EN VIVO hoy 6 de diciembre en USA, España y México? Canales TV online**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/a-que-hora-juega-y-que-canal-transmite-fc-barcelona-vs-betis-en-vivo-hoy-6-de-diciembre-en-usa-espana-y-mexico-canales-tv-online-nnda-nnrt-noticia/)
-- **Pronósticos Betis vs Barcelona: cuota atractiva por más de 3.5 goles**: [Link](https://depor.com/apuestas-deportivas/betis-vs-barcelona-pronosticos-apuestas-cuotas-06-12-2025-2/)
-- **Barcelona vs Real Betis EN VIVO por LaLiga 2025: hora y canales para ver el partido con Lamine Yamal**: [Link](https://larepublica.pe/deportes/2025/12/05/barcelona-vs-real-betis-en-vivo-laliga-2025-via-dsports-movistar-laliga-sky-sports-y-espn-267365)
-
-
-### radio exitosa (N/A, 06/12/2025 07:48 Lima)
-
-- **Presidente Jerí recibe a Clíver Huamán, 'Pol Deportes', en Palacio de Gobierno| Galería Fotográfica**: [Link](https://andina.pe/agencia/galeria-presidente-jeri-recibe-a-cliver-huaman-pol-deportes-palacio-gobierno-27963.aspx)
-- **Mario Irivarren emociona al regalar un iPhone al joven que narró la final de la Copa Libertadores: “Cuando ya seas conocido, no te olvides acá”**: [Link](https://elcomercio.pe/respuestas/farandula/mario-irivarren-emociona-al-regalar-un-iphone-al-joven-que-narro-la-final-de-la-copa-libertadores-cuando-ya-seas-conocido-no-te-olvides-aca-tdpe-noticia/)
-- **"Desde un cerro hasta la Videna": Cliver Huamán, de 'Pol Deportes', recibió camiseta de la Selección Peruana**: [Link](https://rpp.pe/futbol/seleccion-peruana/seleccion-peruana-cliver-huaman-de-pol-deportes-recibio-la-camiseta-de-bicolor-de-fpf-agustin-lozano-noticia-1666547)
-
-
-### precio dolar hoy peru (N/A, 06/12/2025 07:48 Lima)
-
-- **Precio del dólar hoy: Así se cotiza el tipo de cambio en Perú este 6 de diciembre**: [Link](https://www.infobae.com/peru/2025/12/05/dolar-cotizacion-de-apertura-hoy-5-de-diciembre-en-peru/)
-- **Precio del dólar en Perú: a cuánto cerró el tipo de cambio el viernes 5 de diciembre**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-2025-a-cuanto-esta-el-dolar-este-viernes-5-de-diciembre-de-2025-tipo-de-cambio-segun-bcrp-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
-- **BCR interviene y compra $ 294 millones y da respiro al dólar que cerró en S/ 3.362**: [Link](https://diariocorreo.pe/economia/bcr-interviene-y-compra-294-millones-y-da-respiro-al-dolar-que-cerro-en-s-3362-noticia/)
-
-
-### it (N/A, 06/12/2025 03:31 Lima)
-
-- **Newberry College prepares to take on Albany State in quarterfinals of the NCAA Division II playoffs**: [Link](https://www.wistv.com/2025/12/03/newberry-college-prepares-take-albany-state-quarterfinals-ncaa-division-ii-playoffs/)
-- **Wolves late game heroics lead to 24-17 playoff victory**: [Link](https://www.abccolumbia.com/2025/11/29/wolves-late-game-heroics-lead-to-24-17-playoff-victory/)
-- **SALUTE TO OUR MILITARY: Capt James Smith**: [Link](https://weartv.com/features/salute-to-our-military/salute-to-our-military-capt-james-smith-11-25-2025)
-
-
-### julinho (N/A, 06/12/2025 03:31 Lima)
-
-- **Brenda Carvalho y Julinho revelan si volverían a Brasil: "Nosotros ya somos peruanos"**: [Link](https://www.atv.pe/noticia/brenda-carvalho-y-julinho-revelan-si-volverian-a-brasil-nosotros-ya-somos-peruanos/)
-- **¡Aquí la portada del Diario Expreso para este domingo 30 noviembre de 2025! 📲 Visita nuestra web: https://www.expreso.com.pe/**: [Link](https://www.facebook.com/diario.expreso/posts/aqu%C3%AD-la-portada-del-diario-expreso-para-este-domingo-30-noviembre-de-2025-visita/1272789828211959/)
-- **Julinho y Brenda Carvalho: Una historia de amor con mucha química**: [Link](https://www.atv.pe/noticia/julinho-y-brenda-carvalho-una-historia-de-amor-con-mucha-quimica/)
-
-
-### aston villa vs arsenal (N/A, 06/12/2025 03:31 Lima)
-
-- **Preview: Aston Villa vs Arsenal - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/arsenal/preview/aston-villa-vs-arsenal-prediction-team-news-lineups_587068.html)
-- **Alan Shearer's Premier League Previews: Shearer Predictions MD15**: [Link](https://onefootball.com/it/notizie/alan-shearers-premier-league-previews-shearer-predictions-md15-42052795)
-- **Saturday’s Football Tips: Boost Your Bankroll with a Fouls Bet Builder as Villa Aim to Defeat Arsenal – SCCG Management**: [Link](https://sccgmanagement.com/sccg-news/2025/12/5/saturdays-football-tips-boost-your-bankroll-with-a-fouls-bet-builder-as-villa-aim-to-defeat-arsenal-sccg-management/)
 
 
