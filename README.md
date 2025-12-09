@@ -1,3 +1,24 @@
+### 9 de diciembre (N/A, 09/12/2025 07:55 Lima)
+
+- **Horóscopo de hoy, 9 de diciembre: Estas son las predicciones más exactas para tu signo**: [Link](https://elcomercio.pe/luces/vida-social/horoscopo-de-hoy-9-de-diciembre-estas-son-las-predicciones-mas-exactas-para-tu-signo-noticia/)
+- **Horóscopo de Josie para el martes 9 de diciembre: predicciones en el amor, salud y dinero**: [Link](https://libero.pe/ocio/2025/12/08/horoscopo-hoy-martes-9-de-diciembre-predicciones-en-amor-salud-dinero-josie-diez-canseco-285648)
+- **Martes 9 de diciembre de 2025: Día de intuición afilada, honestidad radical y renovación interior que traerá revelaciones profundas y comunicaciones transformadoras. Suerte**: [Link](https://elcorreodepozuelo.com/2025/12/09/martes-9-de-diciembre-de-2025-dia-de-intuicion-afilada-honestidad-radical-y-renovacion-interior-que-traera-revelaciones-profundas-y-comunicaciones-transformadoras-suerte/)
+
+
+### hoy es feriado (N/A, 09/12/2025 07:55 Lima)
+
+- **¿HOY, martes 9 de diciembre es FERIADO también para el sector privado peruano? Esto se sabe**: [Link](https://elcomercio.pe/respuestas/tramites/el-9-de-diciembre-del-2025-es-dia-libre-o-feriado-tambien-para-el-sector-privado-en-el-peru-esto-dice-el-peruano-tdpe-noticia/)
+- **Feriados lunes 8 y martes 9 de diciembre: las reglas que se aplicarán a este beneficio laboral | ECONOMIA**: [Link](https://gestion.pe/economia/management-empleo/feriados-lunes-8-y-martes-9-de-diciembre-las-reglas-que-se-aplicaran-a-este-beneficio-laboral-noticia/)
+- **Feriados laborales generan dudas y experta aclara cuándo corresponde doble pago**: [Link](https://www.atv.pe/noticia/feriados-laborales-generan-dudas-y-experta-aclara-cuando-corresponde-doble-pago/)
+
+
+### xuper (N/A, 09/12/2025 07:55 Lima)
+
+- **Del crimen real al thriller de Netflix: dónde se grabó “Estado de fuga 1986”**: [Link](https://elcomercio.pe/mag/fama/que-ver/estado-de-fuga-1986-locaciones-donde-ha-sido-grabada-la-serie-colombiana-de-netflix-nnda-nnlt-noticia/)
+- **“Estado de Fuga 1986”: de qué trata y cómo ver la serie colombiana de Netflix basada en hechos reales**: [Link](https://gestion.pe/mix/tendencias-mix/estado-de-fuga-1986-de-que-trata-y-como-ver-la-serie-colombiana-de-netflix-basada-en-hechos-reales-nnda-nnlt-noticia/)
+- **Estado de fuga 1986, actores y personajes: guía del elenco de la serie colombiana de Netflix | MAG**: [Link](https://elcomercio.pe/mag/fama/que-ver/estado-de-fuga-1986-actores-y-personajes-guia-del-elenco-de-la-serie-colombiana-de-netflix-nnda-nnlt-noticia/)
+
+
 ### dolar peru (N/A, 09/12/2025 03:36 Lima)
 
 - **Precio del dólar hoy: Así se cotiza el tipo de cambio este 8 de diciembre en Perú**: [Link](https://www.infobae.com/peru/2025/12/08/peru-cotizacion-de-apertura-del-dolar-hoy-8-de-diciembre-de-usd-a-pen/)
@@ -1001,26 +1022,5 @@ Sin noticias relacionadas disponibles.
 - **Preview: Aston Villa vs Arsenal - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/arsenal/preview/aston-villa-vs-arsenal-prediction-team-news-lineups_587068.html)
 - **Alan Shearer's Premier League Previews: Shearer Predictions MD15**: [Link](https://onefootball.com/it/notizie/alan-shearers-premier-league-previews-shearer-predictions-md15-42052795)
 - **Saturday’s Football Tips: Boost Your Bankroll with a Fouls Bet Builder as Villa Aim to Defeat Arsenal – SCCG Management**: [Link](https://sccgmanagement.com/sccg-news/2025/12/5/saturdays-football-tips-boost-your-bankroll-with-a-fouls-bet-builder-as-villa-aim-to-defeat-arsenal-sccg-management/)
-
-
-### ufc 323 (N/A, 06/12/2025 03:31 Lima)
-
-- **UFC 323 Walkout Songs: List of Entrance Music Used by Merab Dvalishvili, Petr Yan, Alexandre Pantoja, and Others**: [Link](https://www.essentiallysports.com/ufc-mma-news-ufc-323-walkout-songs-list-of-entrance-music-used-by-merab-dvalishvili-petr-yan-alexandre-pantoja-and-others/)
-- **Video: UFC 323 ‘Embedded,’ Ep. 5**: [Link](https://www.sherdog.com/videos/misc.video/Video-UFC-323-Embedded-Ep-5-23052)
-- **Merab Dvalishvili Successfully Hits Championship Weight for UFC 323**: [Link](https://bvmsports.com/2025/12/05/merab-dvalishvili-successfully-hits-championship-weight-for-ufc-323/)
-
-
-### brenda carvalho (N/A, 05/12/2025 23:28 Lima)
-
-- **"Ya me habían traído un cura": Brenda Carvalho revela que una "parálisis intestinal" la puso al borde de la muerte**: [Link](https://rpp.pe/famosos/farandula/brenda-carvalho-revela-que-una-paralisis-intestinal-la-puso-al-borde-de-la-muerte-noticia-1666658)
-- **Brenda Carvalho reveló que estuvo al borde de la muerte por una parálisis intestinal: "Me trajeron un cura"**: [Link](https://willax.pe/entretenimiento/brenda-carvalho-borde-muerte-paralisis-intestinal-willax)
-- **Brenda Carvalho confiesa que casi pierde la vida tras sufrir parálisis intestinal: “Me sentía mal”**: [Link](https://trome.com/espectaculos/tv/brenda-carvalho-confiesa-que-casi-pierde-la-vida-tras-sufrir-paralisis-intestinal-me-sentia-mal-video-fotos-farandula-noticia/)
-
-
-### laura spoya (N/A, 05/12/2025 23:28 Lima)
-
-- **Laura Spoya llora ante afirmaciones de Brian Rullan y desmiente que le haya sido infiel: “No aceptaré calumnias”**: [Link](https://www.infobae.com/peru/2025/12/05/laura-spoya-llora-ante-afirmaciones-de-brian-rullan-y-desmiente-que-le-haya-sido-infiel-son-calumnias/)
-- **Laura Spoya se quiebra en vivo tras desmentir infidelidad y exige respeto para su familia**: [Link](https://rpp.pe/famosos/farandula/laura-spoya-se-quiebra-en-vivo-tras-desmentir-infidelidad-y-exige-respeto-para-su-familia-noticia-1666725)
-- **“Es otra mujer, no la reconozco”: Brian Rullan y el sorpresivo mensaje sobre Laura Spoya tras divorcio**: [Link](https://elcomercio.pe/tvmas/farandula/brian-rullan-y-el-sorpresivo-mensaje-sobre-laura-spoya-tras-divorcio-es-otra-mujer-ultimas-noticia/)
 
 
