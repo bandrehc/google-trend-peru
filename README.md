@@ -1,3 +1,24 @@
+### dolar peru (N/A, 09/12/2025 03:36 Lima)
+
+- **Precio del dólar hoy: Así se cotiza el tipo de cambio este 8 de diciembre en Perú**: [Link](https://www.infobae.com/peru/2025/12/08/peru-cotizacion-de-apertura-del-dolar-hoy-8-de-diciembre-de-usd-a-pen/)
+- **Tipo de cambio en Perú detendrá caída en diciembre: divisa norteamericana muestra señales de estabilización**: [Link](https://www.expreso.com.pe/economia/tipo-de-cambio-en-peru-detendra-caida-en-diciembre-divisa-norteamericana-muestra-senales-de-estabilizacion-bcrp-noticia/1245604/)
+- **BCR interviene y compra $ 294 millones y da respiro al dólar que cerró en S/ 3.362**: [Link](https://diariocorreo.pe/economia/bcr-interviene-y-compra-294-millones-y-da-respiro-al-dolar-que-cerro-en-s-3362-noticia/)
+
+
+### paramount warner bros (N/A, 09/12/2025 03:36 Lima)
+
+- **Why has Paramount launched a hostile bid for Warner Bros Discovery?**: [Link](https://www.bbc.com/news/articles/cm21z4zgkx7o)
+- **Paramount Skydance launches hostile bid for WBD 'to finish what we started,' CEO Ellison tells CNBC**: [Link](https://www.cnbc.com/2025/12/08/paramount-skydance-hostile-bid-wbd-netflix.html)
+- **Jared Kushner is part of Paramount's hostile bid for Warner Bros. Discovery**: [Link](https://www.axios.com/2025/12/08/jared-kushner-paramount-warner-bros-netflix)
+
+
+### rosangela espinoza (N/A, 09/12/2025 03:36 Lima)
+
+- **José Jerí confiesa su impresión sobre Rosángela Espinoza y revive un encuentro pasado: "Me parece una mujer muy atractiva"**: [Link](https://www.expreso.com.pe/variedades/jose-jeri-confiesa-su-impresion-sobre-rosangela-espinoza-y-revive-un-encuentro-pasado-me-parece-una-mujer-muy-atractiva-milagros-leiva-noticia/1245724/)
+- **Presidente Jerí dice que Rosángela le sigue pareciendo ‘muy atractiva’: ¿Han tenido contacto últimamente?**: [Link](https://trome.com/espectaculos/tv/presidente-jose-jeri-dice-que-rosangela-espinoza-le-sigue-pareciendo-muy-atractiva-han-tenido-contacto-ultimamente-foto-video-farandula-noticia/)
+- **José Jerí revela que Rosángela Espinoza le parece una mujer muy atractiva: "Tuve la oportunidad de conocerla"**: [Link](https://willax.pe/entretenimiento/jose-jeri-rosangela-espinoza-mujer-atractica-willax)
+
+
 ### pelicans - spurs (N/A, 08/12/2025 23:33 Lima)
 
 - **Dylan Harper’s late jumper lifts Spurs past Derik Queen, Pelicans**: [Link](https://www.thesportsleader.com/2025/12/08/dylan-harpers-late-jumper-lifts-spurs-past-derik-queen-pelicans/)
@@ -1001,26 +1022,5 @@ Sin noticias relacionadas disponibles.
 - **Laura Spoya llora ante afirmaciones de Brian Rullan y desmiente que le haya sido infiel: “No aceptaré calumnias”**: [Link](https://www.infobae.com/peru/2025/12/05/laura-spoya-llora-ante-afirmaciones-de-brian-rullan-y-desmiente-que-le-haya-sido-infiel-son-calumnias/)
 - **Laura Spoya se quiebra en vivo tras desmentir infidelidad y exige respeto para su familia**: [Link](https://rpp.pe/famosos/farandula/laura-spoya-se-quiebra-en-vivo-tras-desmentir-infidelidad-y-exige-respeto-para-su-familia-noticia-1666725)
 - **“Es otra mujer, no la reconozco”: Brian Rullan y el sorpresivo mensaje sobre Laura Spoya tras divorcio**: [Link](https://elcomercio.pe/tvmas/farandula/brian-rullan-y-el-sorpresivo-mensaje-sobre-laura-spoya-tras-divorcio-es-otra-mujer-ultimas-noticia/)
-
-
-### green day (N/A, 05/12/2025 23:28 Lima)
-
-- **Hearing Double: The Holiday season**: [Link](https://dailycampus.com/2025/12/04/hearing-double-the-holiday-season/)
-- **The Rock Band That Unexpectedly Became the Biggest Broadway Sensation in Rock History**: [Link](https://collider.com/green-day-biggest-broadway-sensation-rock-history/)
-- **Did Green Day frontman Billie have a guest appearance in Nurse Jackie? Details revealed**: [Link](https://www.soapcentral.com/shows/did-green-day-frontman-billie-guest-appearance-nurse-jackie-details-revealed)
-
-
-### thunder - mavericks (N/A, 05/12/2025 23:28 Lima)
-
-- **Thunder put 13-game win streak on the line vs. Cooper Flagg’s Mavericks**: [Link](https://www.thesportsleader.com/2025/12/04/thunder-put-13-game-win-streak-on-the-line-vs-cooper-flaggs-mavericks/)
-- **Oklahoma vs Dallas Prediction: the Thunder Will Be Closer to Victory**: [Link](https://www.telecomasia.net/sports-betting/tips/basketball/nba/oklahoma-vs-dallas-prediction-for-the-match-on-december-6-2025/)
-- **Mavericks vs Thunder Preview and Injury Update: Colliding win streaks**: [Link](https://www.mavsmoneyball.com/mavericks-game-previews/53465/mavericks-vs-thunder-preview-start-time-tv-stream-injury-report-how-to-watch)
-
-
-### weather tomorrow (N/A, 05/12/2025 23:28 Lima)
-
-- **Iowa weather: Snow showers return for the weekend**: [Link](https://www.kcci.com/article/iowa-weather-snow-showers-return-for-the-weekend/69642910)
-- **FIRST ALERT: Slick travel this weekend as we add more snow**: [Link](https://www.kcrg.com/2025/12/05/first-alert-slick-travel-this-weekend-we-add-more-snow/)
-- **Another winter storm is headed for Iowa. How much snow is expected?**: [Link](https://www.desmoinesregister.com/story/weather/2025/12/05/iowa-weather-snow-forecast-nws-winter-storm-polar-vortex-arctic-air/87619806007/)
 
 
