@@ -1,3 +1,74 @@
+### borussia dortmund vs (N/A, 10/12/2025 15:31 Lima)
+
+- **Erstes Duell mit Bodø – BVB will den nächsten Heimsieg**: [Link](https://www.bvb.de/de/de/aktuelles/news/news.html/2025/12/9/Erstes-Duell-mit-Bod-BVB-will-den-naechsten-Heimsieg.html)
+- **Live: Die Watchparty zum Spiel gegen Bodø/Glimt**: [Link](https://onefootball.com/de/news/live-die-watchparty-zum-spiel-gegen-bodoglimt-42077302)
+- **Champions League: "Wenn ich zurückdenke, würde ich sagen: Das ist nicht möglich"**: [Link](https://www.sport1.de/news/fussball/champions-league/2025/12/champions-league-die-exoten-vom-polarkreis)
+
+
+### bayer leverkusen (N/A, 10/12/2025 15:31 Lima)
+
+- **Leverkusen empfängt Newcastle ++ Bodö/Glimt fordert Dortmund ++ PSG zu Gast in Bilbao**: [Link](https://www.bluewin.ch/de/sport/champions-league/leverkusen-empfaengt-newcastle-bodoeglimt-fordert-dortmund-psg-zu-gast-in-bilbao-3003843.html)
+- **Bayer Leverkusen – Newcastle United im TV und Livestream: Hier siehst du das Spiel live**: [Link](https://www.derwesten.de/sport/fussball/bayer-04-leverkusen-tv-livestream-sky-dazn-newcastle-id300790552.html)
+- **"Persönliche Gründe": Trainer Hjulmand fehlt gegen Newcastle**: [Link](https://www.zeit.de/news/2025-12/10/persoenliche-gruende-trainer-hjulmand-fehlt-gegen-newcastle)
+
+
+### dortmund (N/A, 10/12/2025 15:31 Lima)
+
+- **„Dortmunder Begegnungen“: Kreativ Kontakte knüpfen**: [Link](https://www.dortmund.de/newsroom/nachrichten-dortmund.de/%E2%80%9Edortmunder-begegnungen-im-weltladen-gemeinsam-aktiv-und-kreativ-im-winter-gegen-einsamkeit.html)
+- **„Dortmunder Begegnungen“ im Weltladen – Auftakt am 13. Dezember**: [Link](https://www.wirindortmund.de/dortmund/beim-auftakttermin-am-samstag-13-dezember-werden-die-teilnehmenden-gemeinsam-kerzen-herstellen-im-weltladen-auftakt-am-13-dezember-296494)
+- **Bratwurst-Ampelmännchen: Coburg führt einzigartige Figur ein**: [Link](https://www.upday.com/de/news/bratwurst-ampelmannchen-coburg-fuhrt-einzigartige-figur-ein/ccvfr1x)
+
+
+### espn (N/A, 10/12/2025 15:31 Lima)
+
+- **CFP anger is high — and it’s aimed right at the committee, plus more in Mandel’s Mailbag**: [Link](https://www.nytimes.com/athletic/6877349/2025/12/10/college-football-playoff-committee-notre-dame/)
+- **Opinion & "Thought of the Day:" College Football Playoffs Will Always Have a "Notre Dame" Until System Is Fixed**: [Link](https://thepressboxlts.com/opinion-thought-of-the-day-college-football-playoffs-will-always-have-a-notre-dame-until-system-is-fixed/)
+- **Kirk Herbstreit shares suggestions to fix College Football Playoff**: [Link](https://www.saturdaydownsouth.com/news/college-football/kirk-herbstreit-shares-suggestions-to-fix-college-football-playoff/)
+
+
+### erling haaland (N/A, 10/12/2025 15:31 Lima)
+
+- **Erling Haaland reveals why he rejected Real Madrid for Manchester City - 'Guardiola told me...'**: [Link](https://madriduniversal.com/erling-haaland-reveals-why-he-rejected-real-madrid-for-manchester-city-guardiola-told-me/)
+- **Erling Haaland not interested in a transfer, England "is the best place to play football"**: [Link](https://www.gamereactor.eu/erling-haaland-not-interested-in-a-transfer-england-is-the-best-place-to-play-football-1646803/)
+- **Erling Haaland: 'I’m the striker of City. I have to score goals. If not, they have to replace me'**: [Link](https://tribuna.com/en/news/2025-12-10-erling-haaland-im-the-striker-of-city-i-have-to-score-goals-if-not-they-have-to-replace-m/)
+
+
+### rayan cherki (N/A, 10/12/2025 15:31 Lima)
+
+- **Rayan Cherki tipped to break Kevin De Bruyne record at Man City after "I am here moment"**: [Link](https://www.sportsmole.co.uk/football/man-city/news/cherki-tipped-to-break-de-bruyne-record-at-man-city-after-i-am-here-moment_587399.html)
+- **Regis Le Bris acknowledges the ‘relentless’
+quality of Man City**: [Link](https://www.vavel.com/en/football/2025/12/07/sunderland/1243903-regis-le-bris-acknowledges-the-relentlessquality-of-man-city.html)
+- **Analysing Sunderland ahead of Saturday’s Premier League clash**: [Link](https://www.mancity.com/news/mens/sunderland-home-premier-league-opta-analysis-63900455)
+
+
+### marca (N/A, 10/12/2025 15:31 Lima)
+
+- **Marca peruana continúa su expansión en Chile y se acerca a las 30 inauguraciones**: [Link](https://www.infobae.com/peru/2025/12/09/marca-peruana-continua-su-expansion-en-chile-y-se-acerca-a-las-30-inauguraciones/)
+- **Mass inaugura 6 nuevas tiendas y se acerca a las 30 en Chile: así avanza su expansión**: [Link](https://www.peru-retail.com/mass-inaugura-6-nuevas-tiendas-y-se-acerca-a-las-30-en-chile-asi-avanza-su-expansion/)
+- **ES OFICIAL | Marca peruana conquista Chile y continúa su expansión con 30 inauguraciones**: [Link](https://wapa.pe/ocio/2025/12/10/es-oficial-marca-peruana-conquista-chile-continua-su-expansion-30-inauguraciones-529250)
+
+
+### barcelona vs benfica (N/A, 10/12/2025 15:31 Lima)
+
+- **🚨 One out with fever, Barça’s line-up to face Benfica**: [Link](https://sports.yahoo.com/articles/one-fever-bar-line-face-163800817.html)
+- **Barcelona vs Benfica Women's Champions League clash could change everything for European title race**: [Link](https://www.red94.net/news/77140-barcelona-faces-benfica-in-women-s-champions-league-clash-blaugrana-look-to-cont/)
+- **Where to Watch Barcelona Women vs Benfica Women? Live Streaming & Broadcasting**: [Link](https://www.sportsdunia.com/football-news/where-to-watch-barcelona-women-vs-benfica-women-live-stream-tv-channels-10th-december-2025)
+
+
+### disney plus (N/A, 10/12/2025 15:31 Lima)
+
+- **You can save over 40% by bundling ESPN Unlimited with Disney Plus and Hulu**: [Link](https://www.businessinsider.com/guides/deals/disney-plus-hulu-espn-unlimited-bundle-deal-2025-12)
+- **The best Disney+ deals and bundles in December 2025**: [Link](https://mashable.com/article/best-disney-plus-deals-december-2025)
+- **The ESPN Unlimited Bundle Is the Only Good Cyber Monday Streaming Deal for Sports**: [Link](https://www.ign.com/articles/espn-unlimited-cyber-monday-sports-streaming-deal-2025)
+
+
+### bristol city - leicester city (N/A, 10/12/2025 15:31 Lima)
+
+- **Leicester City team news v Bristol City as Harry Winks left out again**: [Link](https://www.leicestermercury.co.uk/sport/football/football-news/leicester-city-team-news-v-10698019)
+- **Bird, Atkinson, Knight: Bristol City injury news and return dates**: [Link](https://www.bristolworld.com/sport/football/bristol-city/bristol-city-injury-news-and-expected-return-dates-5435362)
+- **Bristol City vs Leicester LIVE Score Updates in EFL Championship Match**: [Link](https://www.vavel.com/en-us/soccer/2025/12/10/1244078-bristol-city-vs-leicester-live-championship.html)
+
+
 ### latina en vivo (N/A, 10/12/2025 11:37 Lima)
 
 - **Alianza Lima vs Osasco 0-3: resumen de la caída ‘blanquiazul’ en su debut por el Mundial de Clubes de Vóley 2025**: [Link](https://www.infobae.com/peru/deportes/2025/12/09/alianza-lima-vs-osasco-en-vivo-hoy-latina-tv-grupo-a-fecha-1-mundial-clubes-voley-2025-resumen-resultado/)
@@ -949,73 +1020,5 @@ Sin noticias relacionadas disponibles.
 - **Adiós al artista Carlos Runcie Tanaka**: [Link](https://caretas.pe/cultura/adios-al-artista-runcie-tanaka/)
 - **Falleció Carlos Runcie Tanaka, destacado artista peruano, a los 67 años**: [Link](https://elcomercio.pe/luces/arte/fallecio-carlos-runcie-tanaka-destacado-artista-peruano-a-los-67-anos-noticia/)
 - **Carlos Runcie Tanaka (1958 – 2025)**: [Link](https://larepublica.pe/cultural/2025/12/07/carlos-runcie-tanaka-1958-2025-hnews-154315)
-
-
-### petr yan (N/A, 07/12/2025 03:30 Lima)
-
-- **Yan upsets Dvalishvili to capture bantamweight championship at UFC 323**: [Link](https://www.aljazeera.com/sports/2025/12/7/yan-upsets-dvalishvili-to-capture-bantamweight-championship-at-ufc-323)
-- **UFC 323 post-fight press conference video**: [Link](https://www.mmafighting.com/ufc/460343/ufc-323-post-fight-press-conference-video)
-- **Justin Gaethje Makes His $50K Bonus Pick as UFC 323 Kicks Off With Four Back-to-Back Finishes**: [Link](https://www.essentiallysports.com/ufc-mma-news-justin-gaethje-makes-his-fifty-k-bonus-pick-as-ufc-323-kicks-off-with-four-back-to-back-finishes/)
-
-
-### brighton (N/A, 07/12/2025 03:30 Lima)
-
-- **Brighton & Hove Albion v West Ham United: Key stats and talking points**: [Link](https://www.bbc.co.uk/sport/football/articles/cdj8xx80m8wo)
-- **'We can't' - Fabian Hurzeler issues Carlos Baleba update ahead of West Ham**: [Link](https://www.sussexexpress.co.uk/sport/football/brighton-and-hove-albion/we-cant-fabian-hurzeler-issues-carlos-baleba-update-ahead-of-west-ham-5432046)
-- **Premier League Tips: Six player prop bets for Sunday including Welbeck and Wilson shot shouts**: [Link](https://onefootball.com/pt-br/noticias/premier-league-tips-six-player-prop-bets-for-sunday-including-welbeck-and-wilson-shot-shouts-42055654)
-
-
-### ufc hoy (N/A, 07/12/2025 03:30 Lima)
-
-- **¿Quién ganó la pelea Merad Dvalishvili vs. Petr Yan 2 EN VIVO hoy por el UFC 323? Resultados de la cartelera en directo**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/quien-gano-la-pelea-merad-dvalishvili-vs-petr-yan-2-en-vivo-hoy-por-el-ufc-323-resultados-en-directo-y-como-quedo-la-cartelera-estelar-nnda-nnrt-noticia/)
-- **¿Merab es inevitable? ¿Moreno-Pantoja 3 saldrá de UFC 323?**: [Link](https://www.espn.com.pe/mma/nota/_/id/16039735/ufc-323-dvalishvili-vs-yan-historias-preguntas-clave-pantoja-moreno)
-- **Mira aquí - Merab Dvalishvili vs. Petr Yan EN VIVO vía Disney Premium por UFC 323**: [Link](https://depor.com/full-deportes/merab-dvalishvili-vs-petr-yan-en-vivo-gratis-hoy-via-espn-disney-premium-ufc-fight-pass-futbol-libre-tv-en-directo-online-por-internet-ufc-323-video-noticia/)
-
-
-### cruz azul (N/A, 07/12/2025 03:30 Lima)
-
-- **Futbolista de Alianza Lima se perderá partidos finales del torneo y revelan su futuro: "Cruz Azul"**: [Link](https://libero.pe/futbol-peruano/alianza-lima/2025/12/06/alianza-lima-futbolista-se-perdera-partidos-finales-del-torneo-revelan-su-futuro-cruz-azul-330906)
-
-
-### gerald tavara (N/A, 07/12/2025 03:30 Lima)
-
-- **El eufórico abrazo entre Autuori y Yotún, y el desahogo hasta las lágrimas de un Távara épico, capitán y goleador: lo que no se vio del triunfazo de Cristal**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/sporting-cristal-el-euforico-abrazo-entre-paulo-autuori-y-yoshimar-yotun-y-el-desahogo-hasta-las-lagrimas-de-un-martin-tavara-epico-capitan-y-goleador-lo-que-no-se-vio-del-triunfazo-de-cristal-tlcnota-noticia/)
-- **Hinchas de Universitario piden fichaje de Martín Távara tras arruinar a Alianza Lima con Cristal**: [Link](https://bolavip.com/pe/liga-1/hinchas-de-universitario-piden-fichaje-de-martin-tavara-tras-arruinar-a-alianza-lima-con-cristal)
-- **Sporting Cristal decidió sobre el futuro de Paulo Autuori**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/sporting-cristal-tomo-decision-sobre-futuro-paulo-autuori-n451928)
-
-
-### gorosito (N/A, 06/12/2025 23:35 Lima)
-
-- **Final de la historia: Néstor Gorosito no sigue en Alianza Lima tras perder con Sporting Cristal**: [Link](https://bolavip.com/pe/alianza-lima/final-de-la-historia-nestor-gorosito-no-sigue-en-alianza-lima-tras-perder-con-sporting-cristal)
-- **Alianza Lima y la drástica decisión que tomó tras caer en penales ante Sporting Cristal**: [Link](https://libero.pe/futbol-peruano/alianza-lima/2025/12/06/alianza-lima-drastica-decision-tomo-caer-en-penales-sporting-cristal-393354)
-- **Néstor Gorosito no fue a conferencia tras derrota de Alianza Lima en playoffs: ¿seguirá para el 2026?**: [Link](https://www.espn.com.pe/futbol/peru/nota/_/id/16054581/nestor-gorosito-no-fue-a-conferencia-tras-derrota-de-alianza-lima-en-playoffs)
-
-
-### samahara lobaton (N/A, 06/12/2025 23:35 Lima)
-
-- **Samahara Lobatón reaparece y detalla conciliación con Bryan Torres últimas | TVMAS**: [Link](https://elcomercio.pe/tvmas/farandula/samahara-lobaton-reaparece-y-detalla-conciliacion-con-bryan-torres-ultimas-noticia/)
-- **Samahara Lobatón: el video de 'infidelidad' de Bryan Torres**: [Link](https://www.americatv.com.pe/esta-noche/samahara-lobaton-mostro-video-infidelidad-bryan-torres-noticia-161787?ref=portal-amtv)
-- **"A Samahara Lobatón le rompieron el corazón", afirma Mónica Cabrejos**: [Link](https://peru21.pe/espectaculos/samahara-lobaton-le-rompieron-el-corazon-afirma-monica-cabrejos/)
-
-
-### joshua van (N/A, 06/12/2025 23:35 Lima)
-
-- **Max Holloway: I hear the Joshua Van comparisons, but he has KO power**: [Link](https://mmajunkie.usatoday.com/story/sports/ufc/2025/12/05/ufc-323-max-holloway-prediction-joshua-van-vs-alexandre-pantoja-comparisons-similar-styles/87619301007/)
-- **Alexandre Pantoja | Viva Las Vegas**: [Link](https://www.ufc.com/news/alexandre-pantoja-viva-las-vegas-ufc-323)
-- **Joshua Van told that this 'nasty' move could change the fight against Alexandre Pantoja at UFC 323**: [Link](https://bloodyelbow.com/2025/12/06/joshua-van-told-that-this-nasty-move-could-change-the-fight-against-alexandre-pantoja-at-ufc-323/)
-
-
-### hernán barcos (N/A, 06/12/2025 23:35 Lima)
-
-- **Paolo Guerrero rompió el silencio sobre la salida de Hernán Barcos de Alianza Lima**: [Link](https://www.espn.com.ar/futbol/peru/nota/_/id/16044737/paolo-guerrero-rompio-el-silencio-sobre-la-salida-de-hernan-barcos-de-alianza-lima)
-- **¿Alianza Lima se arrepintió de no renovarle a Hernán Barcos? Se conoció postura oficial tras gol ante Cristal**: [Link](https://bolavip.com/pe/alianza-lima/alianza-lima-tomo-tajante-decision-sobre-futuro-de-hernan-barcos-tras-gol-ante-sporting-cristal)
-- **Paolo Guerrero se defiende y niega ser responsable de la salida de Hernán Barcos en Alianza Lima: “Me afecta mucho, no soy un robot”**: [Link](https://www.infobae.com/peru/deportes/2025/12/04/paolo-guerrero-se-defiende-y-niega-ser-responsable-de-la-salida-de-hernan-barcos-en-alianza-lima-me-afecta-mucho-no-soy-un-robot/)
-
-
-### peru 4 (N/A, 06/12/2025 23:35 Lima)
-
-- **Precio del dólar hoy: Así se cotiza el tipo de cambio en Perú este 6 de diciembre**: [Link](https://www.infobae.com/peru/2025/12/05/dolar-cotizacion-de-apertura-hoy-5-de-diciembre-en-peru/)
-- **Precio del dólar en Perú, sábado 6 de diciembre: a cuánto cerró el tipo de cambio hoy**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-2025-cuanto-esta-el-dolar-este-sabado-6-de-diciembre-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
-- **BCR interviene y compra $ 294 millones y da respiro al dólar que cerró en S/ 3.362**: [Link](https://diariocorreo.pe/economia/bcr-interviene-y-compra-294-millones-y-da-respiro-al-dolar-que-cerro-en-s-3362-noticia/)
 
 
