@@ -1,3 +1,71 @@
+### latina en vivo (N/A, 10/12/2025 11:37 Lima)
+
+- **Alianza Lima vs Osasco 0-3: resumen de la caída ‘blanquiazul’ en su debut por el Mundial de Clubes de Vóley 2025**: [Link](https://www.infobae.com/peru/deportes/2025/12/09/alianza-lima-vs-osasco-en-vivo-hoy-latina-tv-grupo-a-fecha-1-mundial-clubes-voley-2025-resumen-resultado/)
+- **Tabla posiciones Mundial de Clubes de Vóley 2025 EN VIVO: sigue los resultados de los equipos en la fecha 2 del torneo**: [Link](https://rpp.pe/voley/mas-voley/tabla-posiciones-mundial-de-clubes-de-voley-2025-en-vivo-resultados-de-hoy-directo-con-alianza-lima-fase-de-grupos-del-torneo-fivb-noticia-1667110)
+- **Alianza Lima vs. Zhetysu: horario, fecha y canal por Mundial de Clubes**: [Link](https://elcomercio.pe/deporte-total/polideportivo/alianza-lima-vs-zhetysu-a-que-hora-juegan-canal-que-transmite-y-donde-ver-por-mundial-de-clubes-noticia/)
+
+
+### latina (N/A, 10/12/2025 11:37 Lima)
+
+Sin noticias relacionadas disponibles.
+
+
+### manchester city vs real madrid (N/A, 10/12/2025 11:37 Lima)
+
+- **Real Madrid y Manchester City se cruzan en el Bernabéu en un nuevo "clásico" de la Champions**: [Link](https://www.espn.com.pe/futbol/champions-league/nota/_/id/16064268/real-madrid-vs-manchester-city-fase-liga-fecha-6-champions-equipo-fecha-hora-tv-en-vivo)
+- **El inédito once del Real Madrid para enfrentar al Manchester City por la Champions League**: [Link](https://rpp.pe/futbol/champions-league/real-madrid-vs-manchester-city-alineacion-de-xabi-alonso-por-la-champions-league-en-el-bernabeu-noticia-1667242)
+- **A que hora ver la reacción de Pol Deportes sobre el Madrid - City por la Champions League**: [Link](https://elcomercio.pe/respuestas/donde/madrid-city-en-vivo-por-la-champions-league-con-pol-deportes-donde-y-a-que-hora-se-transmite-tdpe-noticia/)
+
+
+### al nassr vs (N/A, 10/12/2025 11:37 Lima)
+
+- **¡‘Fierrazo’ infernal! Golazo de Cristiano Ronaldo para el 1-0 del Al-Nassr vs. Al-Wahda**: [Link](https://depor.com/futbol-internacional/resto-del-mundo/gol-cristiano-ronaldo-al-nassr-vs-al-wahda-golazo-en-arabia-saudita-video-noticia/)
+- **You can see Cristiano Ronaldo play in Abu Dhabi tonight**: [Link](https://www.timeoutabudhabi.com/news/cristiano-ronaldo-al-nassr)
+- **Watch Ronaldo score and deliver his iconic 'Suuui' celebration in Abu Dhabi against Al Wahda**: [Link](https://gulfnews.com/sport/football/watch-ronaldo-score-and-deliver-his-iconic-suuui-celebration-in-abu-dhabi-against-al-wahda-1.500375677)
+
+
+### al nassr (N/A, 10/12/2025 11:37 Lima)
+
+- **You can see Cristiano Ronaldo play in Abu Dhabi tonight**: [Link](https://www.timeoutabudhabi.com/news/cristiano-ronaldo-al-nassr)
+- **Watch Ronaldo score and deliver his iconic 'Suuui' celebration in Abu Dhabi against Al Wahda**: [Link](https://gulfnews.com/sport/football/watch-ronaldo-score-and-deliver-his-iconic-suuui-celebration-in-abu-dhabi-against-al-wahda-1.500375677)
+- **Video: Cristiano Ronaldo scores Al Nassr’s first goal vs Wahda Abu Dhabi**: [Link](https://bolavip.com/en/soccer/video-cristiano-ronaldo-scores-al-nassrs-first-goal-vs-wahda-abu-dhabi)
+
+
+### bn (N/A, 10/12/2025 11:37 Lima)
+
+- **Amazon pledges massive $35 billion worth of investments in India with focus on AI**: [Link](https://www.cnbc.com/2025/12/10/amazon-pledges-35-billion-investments-in-indias-ai-space-through-2030-million-jobs.html)
+- **Amazon to invest over $35 billion in India on AI, exports**: [Link](https://www.reuters.com/business/retail-consumer/amazon-invest-over-35-billion-india-by-2030-expand-operations-boost-ai-2025-12-10/)
+- **Microsoft, Amazon Bet Billions on India**: [Link](https://www.wsj.com/tech/microsoft-plans-to-invest-23-billion-on-ai-in-india-canada-52f7c077?gaa_at=eafs&gaa_n=AWEtsqccgIXFUmEOSIo2aDz-WKm4gX_aaOT925JNQ1cC7vGaxizbt96cgBSa&gaa_ts=6939a543&gaa_sig=7urBGXyXWKOdqcTKNi1C8UlrgNUHZDX2iH4f5pAy5KbmkXnKaY5g6Ok983OxLv-LEztWWOFeAkrdnqK2fb9RfQ%3D%3D)
+
+
+### yarita lizeth (N/A, 10/12/2025 11:37 Lima)
+
+- **Yarita Lizeth confirma romance con el hijo de Dina Páucar y recibe la bendición de la cantante folclórica**: [Link](https://rpp.pe/famosos/farandula/yarita-lizeth-confirma-romance-con-el-hijo-de-dina-paucar-y-recibe-la-bendicion-de-la-cantante-folclorica-noticia-1667245)
+- **Hijo de Dina Páucar confirma relación con cantante Yarita Lizeth: “Es una grata sorpresa”**: [Link](https://elcomercio.pe/tvmas/farandula/hijo-de-dina-paucar-confirma-relacion-con-cantante-yarita-lizeth-es-una-grata-sorpresa-ultimas-noticia/)
+- **Alejandro, hijo de Dina Páucar, confirma relación con Yarita Lizeth tras meses de rumores**: [Link](https://www.infobae.com/peru/2025/12/09/alejandro-hijo-de-dina-paucar-confirma-relacion-con-yarita-lizeth-tras-meses-de-rumores/)
+
+
+### bcp (N/A, 10/12/2025 11:37 Lima)
+
+- **BCP sostiene que la TPM del 6% sigue siendo necesaria pese a los recortes de la Fed**: [Link](https://marketdata.com.py/noticias/bcp-sostiene-que-la-tpm-del-6-sigue-siendo-necesaria-pese-a-los-recortes-de-la-fed-148303/)
+- **Horario de atención de bancos en Lima en el feriado de hoy, martes 9 de diciembre**: [Link](https://elcomercio.pe/respuestas/tramites/horario-de-bancos-en-lima-para-atencion-en-los-feriados-8-y-9-de-diciembre-del-2025-tdpe-noticia/)
+- **Horario de atención de los bancos para el feriado del martes 9 de diciembre: BCP, Interbank, Scotiabank, Banco de la Nación y más**: [Link](https://larepublica.pe/economia/2025/12/07/horario-de-atencion-de-los-bancos-en-peru-para-los-feriados-del-lunes-8-y-martes-9-de-diciembre-revisa-todos-los-detalles-del-bcp-interbank-scotiabank-banco-de-la-nacion-y-mas-atmp-376971)
+
+
+### sunat (N/A, 10/12/2025 11:37 Lima)
+
+- **Decreto Supremo que aprueba el Reglamento que regula el establecimiento de cursos de capacitación como medida preventiva para las microempresas en el marco de la potestad sancionadora de la Superintendencia Nacional de Aduanas y de Administra**: [Link](https://actualidadempresarial.pe/comentario-legal/decreto-supremo-que-aprueba-el-reglamento-que-regula-el-establecimiento-de-cursos-de-capacitacion-como-medida-preventiva-para-las-microempresas-en-el-marco-de-la-potestad-sancionadora-de-la-superintendencia-nacional-de-aduanas-y-de-administracion-tributar/1)
+- **SUNAT reemplazará multas tributarias por cursos de capacitación obligatoria: ¿Para quiénes?**: [Link](https://www.infobae.com/peru/2025/12/08/mef-sunat-reemplazara-multas-tributarias-por-cursos-de-capacitacion-obligatoria-para-quienes-microempresas/)
+- **Sunat realizará capacitación obligatoria a microempresas antes de multarlas**: [Link](https://revistaganamas.com.pe/sunat-realizara-capacitacion-obligatoria-a-microempresas-antes-de-multarlas/)
+
+
+### ticket master (N/A, 10/12/2025 11:37 Lima)
+
+- **Judge Likely to Let Ticketmaster Customers Proceed in Antitrust Class Action Suit**: [Link](https://www.ticketnews.com/2025/12/judge-likely-to-let-ticketmaster-customers-proceed-in-antitrust-class-action-suit/)
+- **Live Nation Customers Appear Poised For Antitrust Class Cert.**: [Link](https://www.law360.com/articles/2418479/live-nation-customers-appear-poised-for-antitrust-class-cert)
+- **Live Nation and Ticketmaster Face Growing Legal Threat as Judge Signals Class Action Could Advance**: [Link](https://edm.com/news/live-nation-ticketmaster-judge-signals-class-action-lawsuit/)
+
+
 ### copa intercontinental (N/A, 10/12/2025 07:56 Lima)
 
 - **Cruz Azul vs. Flamengo: fecha, horarios y canales de TV por Copa Intercontinental 2025**: [Link](https://depor.com/futbol-internacional/resto-del-mundo/cruz-azul-vs-flamengo-fecha-horarios-y-canales-de-tv-por-copa-intercontinental-via-directv-dsports-y-fifa-noticia/)
@@ -949,75 +1017,5 @@ Sin noticias relacionadas disponibles.
 - **Precio del dólar hoy: Así se cotiza el tipo de cambio en Perú este 6 de diciembre**: [Link](https://www.infobae.com/peru/2025/12/05/dolar-cotizacion-de-apertura-hoy-5-de-diciembre-en-peru/)
 - **Precio del dólar en Perú, sábado 6 de diciembre: a cuánto cerró el tipo de cambio hoy**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-2025-cuanto-esta-el-dolar-este-sabado-6-de-diciembre-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
 - **BCR interviene y compra $ 294 millones y da respiro al dólar que cerró en S/ 3.362**: [Link](https://diariocorreo.pe/economia/bcr-interviene-y-compra-294-millones-y-da-respiro-al-dolar-que-cerro-en-s-3362-noticia/)
-
-
-### jungkook (N/A, 06/12/2025 23:35 Lima)
-
-- **aespa Winter's Fansites' Allegedly Leaked Knowledge Of Her Relationship With BTS's Jungkook Goes Viral**: [Link](https://www.koreaboo.com/news/aespa-winter-fansites-allegedly-spot-btss-jungkook-claim-dating-photos/)
-- **BTS' Jungkook Dating Aespa's Winter? Their Matching Tattoos Leave Fans Excited**: [Link](https://www.news18.com/movies/korean/bts-jungkook-dating-aespas-winter-their-matching-tattoos-leave-fans-excited-ws-l-9753249.html)
-- **Fans Shocked as Winter Wears Jungkook’s Shorts to aespa Fansign**: [Link](https://kbizoom.com/jungkook-winter-fan-event-shorts/)
-
-
-### ufc en vivo (N/A, 06/12/2025 23:35 Lima)
-
-- **UFC 323 en vivo: ver pelea de Merab Dvalishvili vs Petr Yan**: [Link](https://elcomercio.pe/deporte-total/polideportivo/ufc-323-en-vivo-gratis-hoy-via-espn-fox-sports-dazn-cartelera-horarios-canales-tv-y-donde-ver-pelea-de-merab-dvalishvili-vs-petr-yan-video-noticia/)
-- **Merab Dvalishvili vs. Petr Yan EN VIVO vía Disney Premium: link de transmisión por UFC 323**: [Link](https://depor.com/full-deportes/merab-dvalishvili-vs-petr-yan-en-vivo-gratis-hoy-via-espn-disney-premium-ufc-fight-pass-futbol-libre-tv-en-directo-online-por-internet-ufc-323-video-noticia/)
-- **Dvalishvili y Pantoja están listos para peleas por el título después de pesajes exitosos en UFC 323**: [Link](https://www.ucvradio.pe/mas-actualidad/dvalishvili-y-pantoja-estan-listos-para-peleas-por-el-titulo-despues-de-pesajes-exitosos-en-ufc-323/68288/)
-
-
-### cristal vs cusco (N/A, 06/12/2025 23:35 Lima)
-
-- **Cuándo juega Sporting Cristal ante Cusco FC por la final de los Playoffs de la Liga 1 2025**: [Link](https://bolavip.com/pe/liga-1/cuando-juega-sporting-cristal-ante-cusco-fc-por-la-final-de-los-playoffs-de-la-liga-1-2025)
-- **Conoce fechas y horas de la final de los playoffs entre Cusco FC y Sporting Cristal**: [Link](https://ovacion.pe/noticias/liga1-te-apuesto-2025/conoce-fechas-horas-final-playoffs-entre-cusco-fc-sporting-cristal)
-- **Sporting Cristal vs. Cusco FC: fecha y hora confirmada del primer playoff de la Liga 1 2025**: [Link](https://libero.pe/futbol-peruano/liga-1/2025/12/06/sporting-cristal-vs-cusco-fc-fecha-hora-del-partido-de-ida-playoffs-de-liga-1-peru-188382)
-
-
-### mavericks - rockets (N/A, 06/12/2025 23:35 Lima)
-
-- **Mavericks - Rockets live**: [Link](https://www.marca.com/en/basket/nba/mavericks-rockets/2025/12/07/02_0202_20251207_7420_7423-live.html)
-- **NBA World Reacts To Anthony Davis’ Performance In Rockets-Mavs Game**: [Link](https://www.profootballnetwork.com/nba/nba-world-reacts-to-anthony-davis-performance-in-rockets-mavs-game/)
-- **Houston Rockets at Dallas Mavericks: lineups, injury reports, broadcast (12/06)**: [Link](https://sports.yahoo.com/articles/houston-rockets-dallas-mavericks-lineups-191623230.html)
-
-
-### henry cejudo (N/A, 06/12/2025 23:35 Lima)
-
-- **Henry Cejudo | Triple C’s Last Dance**: [Link](https://www.ufc.com/news/henry-cejudo-triple-c-last-dance-ufc-323)
-- **UFC 323 results: Payton Talbott overwhelms Henry Cejudo in former champ's retirement fight**: [Link](https://sports.yahoo.com/mma/article/ufc-323-results-payton-talbott-overwhelms-henry-cejudo-in-former-champs-retirement-fight-042235830.html)
-- **Aiemann Zahabi questions Henry Cejudo's hunger for UFC 323 bout**: [Link](https://mmajunkie.usatoday.com/story/sports/ufc/2025/12/05/ufc-323-aiemann-zahabi-concerned-henry-cejudo-fight-payton-talbott/87564330007/)
-
-
-### bogotá (N/A, 06/12/2025 21:09 Lima)
-
-- **Cambian los viajes de fin de año en la Terminal de Transporte de Bogotá: nueva medida impactará a millones ...**: [Link](https://redmas.com.co/colombia/cambian-los-viajes-de-fin-de-ano-en-la-terminal-de-transporte-de-bogota-nueva-medida-impactara-a-millones-de-pasajeros-20251206-0009.html)
-- **Cámaras de fotomultas en Bogotá: estos son los nuevos puntos instalados en la ciudad**: [Link](https://www.lafm.com.co/actualidad/camaras-de-fotomultas-en-bogota-lista-de-nuevos-puntos-instalados-384149)
-- **Nuevas cámaras de fotodetección en Bogotá: conductores no podrán exceder 20 km/h porque serán sancionados**: [Link](https://www.infobae.com/colombia/2025/12/06/nuevas-camaras-de-fotodeteccion-en-bogota-conductores-no-podran-exceder-20-kmh-porque-seran-sancionados/)
-
-
-### paolo guerrero (N/A, 06/12/2025 21:09 Lima)
-
-- **Paolo y el romántico mensaje a Ana Paula por defenderlo**: [Link](https://www.americatv.com.pe/america-hoy/paolo-guerrero-y-romantico-mensaje-ana-paula-defenderlo-noticia-161764)
-- **Ana Paula envió fuerte mensaje a detractores de Paolo Guerrero: "No haces chismes, no creas conflictos"**: [Link](https://libero.pe/ocio/famosos/2025/12/04/ana-paula-envio-fuerte-mensaje-detractores-de-paolo-guerrero-haces-chismes-creas-conflictos-133500)
-- **Ana Paula Consorte respalda a Paolo Guerrero tras críticas en Alianza Lima: “A tus 41 años sigues vigente”**: [Link](https://www.infobae.com/peru/2025/12/04/ana-paula-consorte-respalda-a-paolo-guerrero-tras-criticas-en-alianza-lima-a-tus-41-anos-sigues-vigente/)
-
-
-### al vs (N/A, 06/12/2025 21:09 Lima)
-
-- **Alabama vs Georgia score, highlights: Bulldogs win SEC title game**: [Link](https://www.usatoday.com/story/sports/ncaaf/sec/2025/12/06/alabama-vs-georgia-football-score-live-updates-sec-championship-game/87591485007/)
-- **It's fair to question Alabama's College Football Playoff legitimacy after lopsided SEC Championship Game loss**: [Link](https://www.cbssports.com/college-football/news/alabama-college-football-playoff-legitimacy-sec-championship-game-loss/)
-- **Kalen DeBoer, Ty Simpson talk CFP, injuries after Georgia dominates Alabama in SEC Championship**: [Link](https://www.al.com/alabamafootball/2025/12/live-updates-kalen-deboer-speaks-after-georgia-dominates-alabama-in-sec-championship.html)
-
-
-### felipe vizeu (N/A, 06/12/2025 21:09 Lima)
-
-- **Uribe defendió a Sporting Cristal de críticas: “Tenemos la misma jerarquía que Alianza”**: [Link](https://depor.com/futbol-peruano/descentralizado/julio-cesar-uribe-sporting-cristal-vs-alianza-lima-jerarquia-de-los-celestes-y-panorama-de-renovaciones-liga-1-noticia/)
-- **Alianza Lima vs Sporting Cristal - Felipe Vizeu resbala cuando estaba solo y no pudo anotar el primer gol**: [Link](https://rpp.pe/futbol/descentralizado/alianza-lima-vs-sporting-cristal-felipe-vizeu-resbala-cuando-estaba-solo-y-no-pudo-anotar-el-primer-gol-noticia-1666295)
-- **Uribe dio tajante opinión sobre el blooper del '9' de Sporting Cristal: "Vizeu hizo..."**: [Link](https://libero.pe/futbol-peruano/sporting-cristal/2025/12/04/sporting-cristal-julio-cesar-uribe-dio-tajante-opinion-blooper-felipe-vizeu-alianza-lima-270648)
-
-
-### l1max (N/A, 06/12/2025 21:09 Lima)
-
-- **Magaly Medina pide a empresas beca para ‘Pol Deportes’ tras invitación a España: “Los sueños no tienen límites”**: [Link](https://www.infobae.com/peru/2025/12/04/magaly-medina-pide-a-empresas-beca-para-pol-deportes-tras-invitacion-a-espana-los-suenos-no-tienen-limites/)
-- **Manchester City dedica emotivo mensaje a 'Pol Deportes' y desea que narre un gol de Haaland al Real Madrid: "Nos encantaría"**: [Link](https://larepublica.pe/deportes/2025/12/04/manchester-city-dedica-emotivo-mensaje-a-pol-deportes-y-desea-que-narre-gol-de-erling-haaland-ante-real-madrid-por-champions-league-nos-encantaria-303888)
-- **‘Melcochita’ respalda a Pol Deportes tras su narración viral en la Copa Libertadores**: [Link](https://peru21.pe/espectaculos/melcochita-respalda-pol-deportes-tras-su-narracion-viral-copa-libertadores/)
 
 
