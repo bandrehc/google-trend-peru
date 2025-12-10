@@ -1,3 +1,37 @@
+### copa intercontinental (N/A, 10/12/2025 07:56 Lima)
+
+- **Cruz Azul vs. Flamengo: fecha, horarios y canales de TV por Copa Intercontinental 2025**: [Link](https://depor.com/futbol-internacional/resto-del-mundo/cruz-azul-vs-flamengo-fecha-horarios-y-canales-de-tv-por-copa-intercontinental-via-directv-dsports-y-fifa-noticia/)
+- **▷ FIFA Plus TV EN VIVO GRATIS - dónde mirar juego Cruz Azul vs. Flamengo online por Copa Intercontinental 2025**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/fifa-plus-tv-en-vivo-gratis-donde-ver-cruz-azul-vs-flamengo-online-por-copa-intercontinental-2025-desde-mexico-y-usa-duelo-de-las-americas-nnda-nnrt-noticia/)
+- **Andrés Gudiño: No hay tiempo para lamentarse en Cruz Azul**: [Link](https://www.espn.com.pe/futbol/mexico/nota/_/id/16066712/cruz-azul-vs-flamengo-copa-intercontinental-andres-gudino)
+
+
+### temblor hoy (N/A, 10/12/2025 07:56 Lima)
+
+- **Sismo remeció Lima y Callao la madrugada de este miércoles 10 de diciembre: ¿Dónde fue el epicentro, según el IGP?**: [Link](https://www.infobae.com/peru/2025/12/10/sismo-remecio-lima-y-callao-la-madrugada-de-este-miercoles-10-de-diciembre-donde-fue-el-epicentro-segun-el-igp/)
+- **Un sismo de magnitud 3.6 remeció Lima y Callao esta madrugada**: [Link](https://rpp.pe/lima/actualidad/sismo-de-magnitud-36-remecio-lima-y-callao-esta-madrugada-noticia-1667230)
+- **Dos sismos de magnitud 3.6 se registran en Callao y Puerto Bermúdez en menos de 24 horas**: [Link](https://caretas.pe/nacional/dos-sismos-de-magnitud-3-6-se-registran-en-callao-y-puerto-bermudez-en-menos-de-24-horas/)
+
+
+### alerta roja (N/A, 10/12/2025 07:56 Lima)
+
+- **Senamhi activa alerta roja en 19 regiones del país: Advierten temperaturas extremas cercanas a los 40 grados**: [Link](https://www.infobae.com/peru/2025/12/09/senamhi-activa-alerta-roja-en-19-regiones-del-pais-advierten-temperaturas-extremas-cercanas-a-los-40-grados/)
+- **Senamhi alerta incremento de temperaturas y prevé hasta 30 °C a fin de mes en Lima Metropolitana**: [Link](https://larepublica.pe/sociedad/2025/12/02/senamhi-alerta-incremento-de-temperaturas-y-preve-hasta-30-c-a-fin-de-mes-en-lima-metropolitana-ntpe-116530)
+- **¡Llegaremos a los 40 grados! SENAMHI declara Alerta Roja por ola de calor extremo**: [Link](https://www.atv.pe/noticia/llegaremos-a-los-40-grados-senamhi-declara-alerta-roja-por-ola-de-calor-extremo/)
+
+
+### qarabag vs (N/A, 10/12/2025 07:56 Lima)
+
+- **Ajax busca salir del fondo de la Champions y visita a Qarabag**: [Link](https://www.espn.com.pe/futbol/champions-league/nota/_/id/16064553/qarabag-vs-ajax-fase-liga-champions-league-equipo-fecha-hora-y-tv-en-vivo)
+- **Champions League: Por la fecha 6 se enfrentarán Qarabag y Ajax**: [Link](https://rpp.pe/futbol/ligas-internacionales/champions-league-por-la-fecha-6-se-enfrentaran-qarabag-y-ajax-noticia-1667134)
+
+
+### local de votación (N/A, 10/12/2025 07:56 Lima)
+
+- **¿Habrá Ley Seca para la segunda vuelta presidencial? Esto dice la normativa**: [Link](https://www.biobiochile.cl/noticias/servicios/toma-nota/2025/12/09/habra-ley-seca-para-la-segunda-vuelta-presidencial-esto-dice-la-normativa.shtml)
+- **Cómo funciona el comercio durante la segunda vuelta de las elecciones presidenciales de Chile**: [Link](https://elpais.com/chile/2025-12-10/como-funciona-el-comercio-durante-la-segunda-vuelta-de-las-elecciones-presidenciales-de-chile.html)
+- **¿Quiénes deben desempeñarse como vocales de mesa en la segunda vuelta?**: [Link](https://www.latercera.com/servicios/noticia/quienes-deben-desempenarse-como-vocales-de-mesa-en-la-segunda-vuelta/)
+
+
 ### karol g (N/A, 09/12/2025 23:37 Lima)
 
 - **La Tigresa del Oriente apareció en el videoclip oficial de “Tropicoqueta” de Karol G**: [Link](https://elcomercio.pe/tvmas/famosos/la-tigresa-del-oriente-aparecio-en-el-videoclip-oficial-de-tropicoqueta-de-karol-g-celebs-ultimas-noticia/)
@@ -985,40 +1019,5 @@ Sin noticias relacionadas disponibles.
 - **Magaly Medina pide a empresas beca para ‘Pol Deportes’ tras invitación a España: “Los sueños no tienen límites”**: [Link](https://www.infobae.com/peru/2025/12/04/magaly-medina-pide-a-empresas-beca-para-pol-deportes-tras-invitacion-a-espana-los-suenos-no-tienen-limites/)
 - **Manchester City dedica emotivo mensaje a 'Pol Deportes' y desea que narre un gol de Haaland al Real Madrid: "Nos encantaría"**: [Link](https://larepublica.pe/deportes/2025/12/04/manchester-city-dedica-emotivo-mensaje-a-pol-deportes-y-desea-que-narre-gol-de-erling-haaland-ante-real-madrid-por-champions-league-nos-encantaria-303888)
 - **‘Melcochita’ respalda a Pol Deportes tras su narración viral en la Copa Libertadores**: [Link](https://peru21.pe/espectaculos/melcochita-respalda-pol-deportes-tras-su-narracion-viral-copa-libertadores/)
-
-
-### liga1 (N/A, 06/12/2025 21:09 Lima)
-
-- **Partidos de hoy, sábado 6 de diciembre de 2025: programación, canales TV y resultados en vivo**: [Link](https://www.infobae.com/peru/deportes/2025/12/06/partidos-de-hoy-sabado-6-de-diciembre-de-2025-programacion-canales-tv-y-resultados-en-vivo/)
-- **Partidos de HOY EN VIVO: programación, horario y dónde ver fútbol gratis este sábado 6 de diciembre**: [Link](https://libero.pe/futbol-internacional/2025/12/05/partidos-en-vivo-hoy-sabado-6-de-diciembre-63620)
-- **Partidos que serán transmitidos EN VIVO por TV el sábado 6 de diciembre**: [Link](https://www.futbolperuano.com/partidos-por-tv/noticias/programacion-de-partidos-por-tv-del-sabado-6-de-diciembre-554251)
-
-
-### tarjeta roja (N/A, 06/12/2025 21:09 Lima)
-
-- **¿Cómo puede ayudar Luis Díaz para que el Bayern defienda mejor?**: [Link](https://www.espn.com.ar/futbol/alemania/nota/_/id/16046129/como-puede-ayudar-luis-diaz-para-que-el-bayern-defienda-mejor)
-- **UEFA responde pedido de Bayern y toma decisión con la fuerte sanción a Luis Díaz**: [Link](https://espndeportes.espn.com/futbol/champions-league/nota/_/id/16047682/uefa-responde-pedido-bayern-toma-decision-fuerte-sancion-luis-diaz)
-- **En pleno sorteo del Mundial 2026: Luis Díaz recibió la mejor noticia de todas**: [Link](https://bolavip.com/futbol-colombia/en-pleno-sorteo-del-mundial-2026-luis-diaz-recibio-la-mejor-noticia-de-todas)
-
-
-### directv (N/A, 06/12/2025 21:09 Lima)
-
-- **Así quedaron los grupos del Mundial 2026, tras el sorteo**: [Link](https://www.espn.com.pe/futbol/mundial/nota/_/id/15485766/mundial-2026-sorteo-fecha-bombos-clasificados-grupos)
-- **Gianni Infantino pidió disculpas a Lionel Scaloni tras negarle tocar la Copa del Mundo | VIDEO**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/argentina-gianni-infantino-pidio-disculpas-a-lionel-scaloni-tras-negarle-tocar-la-copa-del-mundo-video-noticia/)
-- **Argentina buscará retener la corona obtenida en Qatar 2022 y ya conoce a sus rivales en este Mundial que se avecina**: [Link](https://larepublica.pe/deportes/2025/12/05/argentina-buscara-retener-la-corona-obtenida-en-qatar-2022-y-ya-conoce-a-sus-rivales-en-este-mundial-que-se-avecina-193265)
-
-
-### toluca - monterrey (N/A, 06/12/2025 21:09 Lima)
-
-- **Toluca vs Monterrey: posibles alineaciones, semifinal, Apertura 2025**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/16045144/toluca-vs-monterrey-alineaciones-formaciones-semifinal-vuelta-apertura-2025-liga-mx)
-- **📺 TUDN y Canal 5 EN VIVO GRATIS — mira ahora transmisión Toluca vs. Rayados Monterrey vía TV Abierta ONLINE**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/tudn-y-canal-5-en-vivo-gratis-como-mirar-partido-toluca-vs-rayados-de-monterrey-por-tv-abierta-y-futbol-online-nnda-nnrt-noticia/)
-- **Qué canal pasa Toluca vs Monterrey hoy: dónde ver GRATIS y EN VIVO el partido de la Liga MX**: [Link](https://www.365scores.com/es/news/toluca-vs-monterrey-vivo-donde-ver/)
-
-
-### cavaliers - warriors (N/A, 06/12/2025 21:09 Lima)
-
-- **Pat Spencer, Warriors take aim at Cavaliers**: [Link](https://www.thesportsleader.com/2025/12/06/pat-spencer-warriors-take-aim-at-cavaliers/)
-- **Warriors-Cavs Game Statuses Revealed for Butler, Green, Melton, Seth Curry**: [Link](https://www.si.com/nba/warriors/onsi/news/warriors-cavs-game-statuses-revealed-butler-green-melton-seth-curry-01kbtt3pqza0)
-- **3 things to watch in Warriors-Cavaliers on NBA TV**: [Link](https://www.nba.com/news/3-things-to-watch-in-warriors-cavaliers-on-nba-tv)
 
 
