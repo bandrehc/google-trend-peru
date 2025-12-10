@@ -1,3 +1,69 @@
+### kick (N/A, 09/12/2025 21:02 Lima)
+
+- **Top 10 most-followed Kick streamers 2025: From WestCOL to xQc, the biggest names on the platform today**: [Link](https://timesofindia.indiatimes.com/world/us-streamers/top-10-most-followed-kick-streamers-2025-from-westcol-to-xqc-the-biggest-names-on-kick-today/articleshow/125874345.cms)
+- **Drake’s Kick Streams: When a Superstar Rapper Breaks Live Streaming Records**: [Link](https://punchng.com/drakes-kick-streams-when-a-superstar-rapper-breaks-live-streaming-records/)
+- **Two SPFL stadiums damaged by Storm Bram as club forced to relocate supporters with other game CALLED OFF**: [Link](https://www.thescottishsun.co.uk/sport/15667838/spfl-club-relocates-supporters-storm-bram-damages-stadium/)
+
+
+### h3n2 (N/A, 09/12/2025 21:02 Lima)
+
+- **El NHS se enfrenta a una oleada de casos de gripe con la cepa H3N2 dominando la temporada de invierno**: [Link](https://www.ucvradio.pe/mas-actualidad/el-nhs-se-enfrenta-a-una-oleada-de-casos-de-gripe-con-la-cepa-h3n2-dominando-la-temporada-de-invierno/70604/)
+
+
+### jorge wilstermann vs (N/A, 09/12/2025 21:02 Lima)
+
+Sin noticias relacionadas disponibles.
+
+
+### federico girotti (N/A, 09/12/2025 21:02 Lima)
+
+- **Alianza Lima busca el fichaje de ‘9′ con pasado en River Plate que le anotó en Copa Libertadores y enfrentó a Carlos Zambrano**: [Link](https://www.infobae.com/peru/deportes/2025/12/08/alianza-lima-busca-el-fichaje-de-9-con-pasado-en-river-plate-que-le-anoto-en-copa-libertadores-y-enfrento-a-carlos-zambrano/)
+- **Alianza Lima apunta a exjugador de River Plate para ser su nuevo 9**: [Link](https://kchcomunicacion.com/2025/12/08/alianza-lima-apunta-a-exjugador-de-river-plate-para-ser-su-nuevo-9/)
+- **Federico Girotti aparece en la mira de Alianza Lima: quién es y cuál ha sido su trayectoria**: [Link](https://www.eldiez.com.pe/alianza-lima/federico-girotti-aparece-en-la-mira-de-alianza-lima-quien-es-y-cual-ha-sido-su-trayectoria-liga-1-talleres-noticia/)
+
+
+### magic - heat (N/A, 09/12/2025 21:02 Lima)
+
+- **Orlando Magic vs Miami Heat Prediction: Strong Underdog Against Out-of-Form Miami**: [Link](https://www.telecomasia.net/sports-betting/tips/basketball/nba/orlando-magic-vs-miami-heat-prediction-for-the-match-on-december-10-2025/)
+- **bet365 bonus code NYPBET: Bet $5, get $150 in bonus bets for Heat vs. Magic**: [Link](https://nypost.com/2025/12/09/betting/bet365-bonus-code-nypbet-bet-5-get-150-in-bonus-bets-for-heat-vs-magic/)
+- **Desmond Bane torches the Heat's defense and a tale of two quarters in loss to Magic**: [Link](https://www.yardbarker.com/nba/articles/desmond_bane_torches_the_heats_defense_and_a_tale_of_two_quarters_in_loss_to_magic/s1_16619_43183971)
+
+
+### latina tv (N/A, 09/12/2025 21:02 Lima)
+
+- **Moisés y los diez mandamientos, Lunes 08 de diciembre – ver capítulo 135 completo**: [Link](https://www.latina.pe/entretenimiento/moises-y-los-10-mandamientos/moises-y-los-diez-mandamientos-lunes-08-de-diciembre-ver-capitulo-135-completo_20251208/)
+- **ERES MI BIEN – CAPÍTULO 80 COMPLETO: Lunes 08 de diciembre**: [Link](https://www.latina.pe/entretenimiento/eres-mi-bien/capitulos-completos-eres-mi-bien/eres-mi-bien-capitulo-80-completo-lunes-08-de-diciembre_20251208/)
+- **Hasta que la plata nos separe, Lunes 08 de diciembre – ver capítulo 34 completo**: [Link](https://www.latina.pe/entretenimiento/hasta-que-la-plata-nos-separe-novela/hasta-que-la-plata-nos-separe-lunes-08-de-diciembre-ver-capitulo-34-completo_20251208/)
+
+
+### latina noticias (N/A, 09/12/2025 21:02 Lima)
+
+- **El niño peruano que narró la final de la Libertadores desde un cerro y conquistó Europa**: [Link](https://elpais.com/america/2025-12-07/el-nino-peruano-que-narro-la-final-de-la-libertadores-desde-un-cerro-y-conquisto-europa.html)
+- **‘Pol Deportes’ llegó a España y fue recibido por la comunidad peruana: “Gracias por el cariño”**: [Link](https://www.infobae.com/peru/2025/12/08/pol-deportes-llego-a-espana-y-fue-recibido-por-la-comunidad-peruana-gracias-por-el-carino/)
+- **¡Emotivo! El tierno recibimiento de decenas de peruanos a Pol Deportes en España | VIDEO**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/el-tierno-recibimiento-de-decenas-de-peruanos-a-pol-deportes-en-espana-video-noticia/)
+
+
+### latina (N/A, 09/12/2025 21:02 Lima)
+
+- **Fernando Rospigliosi participó en 201.° aniversario de batalla de Ayacucho y Día del Ejército del Perú**: [Link](https://comunicaciones.congreso.gob.pe/noticias/fernando-rospigliosi-participo-en-201-aniversario-de-batalla-de-ayacucho-y-dia-del-ejercito-del-peru/)
+- **9 de diciembre: la patria que nos siguen debiendo | Editorial**: [Link](https://jornada.com.pe/9-de-diciembre-la-patria-que-nos-siguen-debiendo-editorial/)
+- **El presidente José Jerí participó en la ceremonia por el 201.º aniversario de la Batalla de Ayacucho y Día del Ejército del Perú. El mandatario rindió un emotivo homenaje a los integrantes de esta institución armada, quienes vienen trabajando por la paz y el d**: [Link](https://x.com/presidenciaperu/status/1998463049020154116)
+
+
+### costa 21 (N/A, 09/12/2025 21:02 Lima)
+
+- **Limp Bizkit en Lima: setlist, horarios, mapa, recomendaciones y todo lo que debes saber para su concierto en Costa 21**: [Link](https://rpp.pe/musica/conciertos/limp-bizkit-en-lima-setlist-horarios-mapa-recomendaciones-y-todo-lo-que-debes-saber-para-su-concierto-en-costa-21-noticia-1667096)
+- **ATU: servicio Bus Stage facilitará el retorno de los asistentes al concierto de Limp Bizkit**: [Link](https://www.cronicaviva.com.pe/atu-servicio-bus-stage-facilitara-el-retorno-de-los-asistentes-al-concierto-de-limp-bizkit/)
+- **Gana entradas dobles para Limp Bizkit con Nación Oxígeno**: [Link](https://www.oxigeno.com.pe/concursos/gana-entradas-dobles-para-limp-bizkit-con-nacion-oxigeno-noticia-1666057)
+
+
+### samantha batallanos (N/A, 09/12/2025 21:02 Lima)
+
+- **Presidente Jerí no descarta cenar con Samantha Batallanos**: [Link](https://www.americatv.com.pe/videos/mas-espectaculos/presidente-jeri-no-descarta-cenar-samantha-y-ella-acepta-noticia-161811?ref=portal-amtv)
+- **Samantha Batallanos sorprende con halagos al presidente José Jerí: "Lindo, me encanta"**: [Link](https://www.exitosanoticias.pe/espectaculos/samantha-batallanos-sorprende-halagos-presidente-jose-jeri-lindo-me-encanta-n163881)
+- **Samantha Batallanos se suelta y le lanza su 'maicito' al presidente José Jerí: "Lindo, me encanta"**: [Link](https://wapa.pe/espectaculos-y-tv/farandula/2025/12/01/samantha-batallanos-sorprende-lanza-atrevido-cumplido-presidente-jose-jeri-lindo-me-encanta-12583)
+
+
 ### tottenham vs (N/A, 09/12/2025 15:26 Lima)
 
 - **Preview: Tottenham Hotspur vs Slavia Prague - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/spurs/preview/spurs-vs-slavia-prague-prediction-team-news-lineups_587312.html)
@@ -954,73 +1020,5 @@ Sin noticias relacionadas disponibles.
 - **LIVE eredivisie | Ueda zet Feyenoord snel op voorsprong tegen PEC Zwolle, mooie assist van Borges**: [Link](https://www.ad.nl/voetbal/live-eredivisie-ueda-zet-feyenoord-snel-op-voorsprong-tegen-pec-zwolle-mooie-assist-van-borges~a5dafcbb/)
 - **OPSTELLING | Van Persie geeft basisplaats aan Borges**: [Link](https://www.fr-fans.nl/nieuws/75188/opstelling-van-persie-geeft-basisplaats-aan-borges)
 - **Ueda twee keer trefzeker tegen PEC • Heracles en Telstar vermaken nog niet**: [Link](https://nos.nl/liveblog/2593434-ueda-twee-keer-trefzeker-tegen-pec-heracles-en-telstar-vermaken-nog-niet)
-
-
-### feyenoord vs (N/A, 06/12/2025 15:26 Lima)
-
-- **Preview: Feyenoord vs PEC Zwolle - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/feyenoord/preview/feyenoord-vs-pec-zwolle-prediction-team-news-lineups_587116.html)
-
-
-### verona vs (N/A, 06/12/2025 15:26 Lima)
-
-- **✅ Verona-Atalanta line-ups: Orban, Scamacca, CDK, Hien decisions**: [Link](https://sports.yahoo.com/articles/verona-atalanta-line-ups-orban-184900378.html)
-- **Serie A Enilive 2025/26 | Pre-partita di #VeronaAtalanta: vendita biglietti e ritiro tessere 'Non vi lasceremo mai'**: [Link](https://onefootball.com/en/news/serie-a-enilive-202526-pre-partita-di-veronaatalanta-vendita-biglietti-e-ritiro-tessere-non-vi-lasceremo-mai-42053674)
-- **Where to Watch Hellas Verona vs. Atalanta: TV Channel, Start Time and Live Stream**: [Link](https://www.bleachernation.com/how-to-watch/2025/12/05/where-to-watch-hellas-verona-vs-atalanta-tv-channel-start-time-and-live-stream-2/)
-
-
-### apple tv (N/A, 06/12/2025 15:26 Lima)
-
-- **Nuevos programas y películas para Pressfion en Netflix, Hulu, Peak Video, Apple TV y más**: [Link](https://www.elpueblo.pe/noticias-internacionales/nuevos-programas-y-peliculas-para-pressfion-en-netflix-hulu-peak-video-apple-tv-y-mas/154278/)
-- **¿A qué hora juegan Messi vs. Müller en vivo por final de la MLS Cup? Horarios del Inter Miami-Vancouver Whitecaps**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/a-que-hora-juega-lionel-messi-vs-thomas-muller-en-la-final-de-la-mls-cup-2026-horarios-inter-miami-vs-vancouver-whitecaps-en-usa-y-mexico-nnda-nnrt-noticia/)
-- **MLS 2025: Predicciones, factor x y más de la final Miami-Vancouver**: [Link](https://www.espn.com.pe/futbol/mls/nota/_/id/16040508/mls-2025-inter-miami-vs-vancouver-whitecaps-final)
-
-
-### athletic - atlético madrid (N/A, 06/12/2025 15:26 Lima)
-
-- **Cuándo juegan Athletic Bilbao vs. Atlético Madrid por La Liga 2025: equipo, fecha, hora y TV en vivo**: [Link](https://www.espn.com.pe/futbol/espana/nota/_/id/16042897/cuando-juegan-athletic-bilbao-vs-atletico-madrid-por-la-liga-2025-equipo-fecha-hora-y-tv-en-vivo)
-- **🚨 Sin Vivian, Koke...los ONCES del Athletic-Atlético en San Mamés**: [Link](https://onefootball.com/es/noticias/sin-vivian-kokelos-onces-del-athletic-atletico-en-san-mames-42058341)
-- **LaLiga EA Sports: Por la fecha 15 se enfrentarán Athletic Bilbao y Atlético de Madrid**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-por-la-fecha-15-se-enfrentaran-athletic-bilbao-y-atletico-de-madrid-noticia-1666684)
-
-
-### psg - rennes (N/A, 06/12/2025 15:26 Lima)
-
-- **PSG-Rennes : Zabarnyi malade et forfait de dernière minute**: [Link](https://www.leparisien.fr/sports/football/ligue-1/psg-rennes-zabarnyi-malade-et-forfait-de-derniere-minute-06-12-2025-7DZCRYU2DJA7JCNRXFVCPNTDVI.php)
-- **Luis Enrique : « En ce moment, la meilleure équipe, c’est clairement Lens »**: [Link](https://onefootball.com/fr/news/luis-enrique-en-ce-moment-la-meilleure-equipe-cest-clairement-lens-42055724)
-- **Ligue 1 : Les cotes de PSG - Stade Rennais : Ousmane Dembélé lance sa saison avec un doublé !**: [Link](https://madeinfoot.ouest-france.fr/infos/article-ligue-1-les-cotes-de-psg-stade-rennais-ousmane-dembele-lance-sa-saison-avec-un-double-505088.html)
-
-
-### hellas verona - atalanta (N/A, 06/12/2025 15:26 Lima)
-
-- **✅ Verona-Atalanta line-ups: Orban, Scamacca, CDK, Hien decisions**: [Link](https://sports.yahoo.com/articles/verona-atalanta-line-ups-orban-184900378.html)
-- **Serie A Enilive 2025/26 | Pre-partita di #VeronaAtalanta: vendita biglietti e ritiro tessere 'Non vi lasceremo mai'**: [Link](https://onefootball.com/en/news/serie-a-enilive-202526-pre-partita-di-veronaatalanta-vendita-biglietti-e-ritiro-tessere-non-vi-lasceremo-mai-42053674)
-- **Where to Watch Hellas Verona vs. Atalanta: TV Channel, Start Time and Live Stream**: [Link](https://www.bleachernation.com/how-to-watch/2025/12/05/where-to-watch-hellas-verona-vs-atalanta-tv-channel-start-time-and-live-stream-2/)
-
-
-### toulouse vs (N/A, 06/12/2025 15:26 Lima)
-
-- **Match d'impro Junior Toulouse VS Ariège, Samedi 17 janvier 2026, Café -théâtre le 57 / Toulouse**: [Link](https://www.ramdam.com/Match-d-impro-Junior-Toulouse-VS-Ariege)
-- **Spectacle Match d’impro Junior Toulouse VS Ariège à Toulouse, Café-théâtre Le 57 : billets, réservations, dates**: [Link](https://www.jds.fr/toulouse/spectacles/theatre/match-d-impro-junior-toulouse-vs-ariege-1271969_A)
-- **DIRECT. Le PSG face à Rennes pour se relancer en Ligue 1...**: [Link](https://www.flashscore.fr/actualites/football-ligue-1-direct-le-psg-face-a-rennes-pour-se-relancer-en-ligue-1/OjFMGzUg/)
-
-
-### inter miami - whitecaps (N/A, 06/12/2025 15:26 Lima)
-
-- **MLS Cup final: Inter Miami v Vancouver Whitecaps – live**: [Link](https://www.theguardian.com/football/live/2025/dec/06/mls-cup-final-inter-miami-v-vancouver-whitecaps-live-build-up)
-- **Lionel Messi vs Thomas Muller Stats Compared Before Inter Miami-Vancouver Whitecaps MLS Cup Final**: [Link](https://sports.yahoo.com/articles/lionel-messi-vs-thomas-muller-143000817.html)
-- **[TOTAL SPORTEK]…! Soccer/MLS Cup Final Live Streams Free 06 December 2025**: [Link](https://www.goldderby.com/topic/total-sportek-soccer-mls-cup-final-live-streams-free-06-december-2025/)
-
-
-### stuttgart vs. bayern (N/A, 06/12/2025 11:29 Lima)
-
-- **Preview: VfB Stuttgart vs. Bayern, Bundesliga Matchday 13**: [Link](https://fcbayern.com/en/matches/profis/bundesliga/2025-2026/vfb-stuttgart-fc-bayern-muenchen-06-12-2025/preview)
-- **Stuttgart coach Hoeness ahead of Bayern clash: 'We want to put them under real pressure and play with lot of bravery'**: [Link](https://tribuna.com/en/news/2025-12-05-stuttgart-coach-hoeness-ahead-of-bayern-clash-we-want-to-put-them-under-real-pressure-and/)
-- **Prolific Kane and Undav Face Off as Bayern Head to Stuttgart**: [Link](https://english.aawsat.com/sports/5216209-prolific-kane-and-undav-face-bayern-head-stuttgart)
-
-
-### bayer leverkusen vs (N/A, 06/12/2025 11:29 Lima)
-
-- **Preview: Augsburg vs Bayer Leverkusen - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/augsburg/preview/augsburg-vs-b-leverkusen-prediction-team-news-lineups_587165.html)
-- **Germany Bundesliga Soccer**: [Link](https://www.wvnews.com/sports/pro/germany-bundesliga-soccer/image_866c4d17-391f-557e-9a1c-07cbce1a5cc0.html)
-- **'We're not tired, we love games' – Leverkusen boss Hjulmand brushes off fatigue**: [Link](https://www.beinsports.com/en-us/soccer/bundesliga/articles/were-not-tired-we-love-games--leverkusen-boss-hjulmand-brushes-off-fatigue-2025-12-05)
 
 
