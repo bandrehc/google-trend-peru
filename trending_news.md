@@ -1,3 +1,17 @@
+### karol g (N/A, 09/12/2025 23:37 Lima)
+
+- **La Tigresa del Oriente apareció en el videoclip oficial de “Tropicoqueta” de Karol G**: [Link](https://elcomercio.pe/tvmas/famosos/la-tigresa-del-oriente-aparecio-en-el-videoclip-oficial-de-tropicoqueta-de-karol-g-celebs-ultimas-noticia/)
+- **“La Tigresa del Oriente” sorprende con su aparición en el nuevo videoclip “Tropicoqueta” de Karol G**: [Link](https://www.infobae.com/peru/2025/12/08/la-tigresa-del-oriente-sorprende-con-su-aparicion-en-el-nuevo-videoclip-tropicoqueta-de-karol-g/)
+- **¿Karol G y La Tigresa del Oriente cantarán juntas? Difunden 'colaboración' tras la sorpresiva aparición de la peruana en el videoclip de 'Tropicoqueta'**: [Link](https://larepublica.pe/entretenimiento/2025/12/08/karol-g-y-la-tigresa-del-oriente-cantaran-juntas-difunden-colaboracion-tras-la-sorpresiva-aparicion-de-la-peruana-en-el-videoclip-de-tropicoqueta-757976)
+
+
+### raptors - knicks (N/A, 09/12/2025 23:37 Lima)
+
+- **Magic, Knicks Advance To Cup Semifinals**: [Link](https://www.hoopsrumors.com/2025/12/magic-knicks-advance-to-cup-semifinals.html)
+- **BetMGM bonus code NYPDM1500: Get a 20% first deposit match up to $1,500 for Knicks vs. Raptors**: [Link](https://nypost.com/2025/12/09/betting/betmgm-bonus-code-nypdm1500-get-a-20-first-deposit-match-up-to-1500-for-knicks-vs-raptors/)
+- **NBA Cup Matchup Should Reveal Everything About the Toronto Raptors**: [Link](https://sports.yahoo.com/articles/nba-cup-matchup-reveal-everything-121100779.html)
+
+
 ### kick (N/A, 09/12/2025 21:02 Lima)
 
 - **Top 10 most-followed Kick streamers 2025: From WestCOL to xQc, the biggest names on the platform today**: [Link](https://timesofindia.indiatimes.com/world/us-streamers/top-10-most-followed-kick-streamers-2025-from-westcol-to-xqc-the-biggest-names-on-kick-today/articleshow/125874345.cms)
@@ -1006,19 +1020,5 @@ Sin noticias relacionadas disponibles.
 - **Pat Spencer, Warriors take aim at Cavaliers**: [Link](https://www.thesportsleader.com/2025/12/06/pat-spencer-warriors-take-aim-at-cavaliers/)
 - **Warriors-Cavs Game Statuses Revealed for Butler, Green, Melton, Seth Curry**: [Link](https://www.si.com/nba/warriors/onsi/news/warriors-cavs-game-statuses-revealed-butler-green-melton-seth-curry-01kbtt3pqza0)
 - **3 things to watch in Warriors-Cavaliers on NBA TV**: [Link](https://www.nba.com/news/3-things-to-watch-in-warriors-cavaliers-on-nba-tv)
-
-
-### psg vs (N/A, 06/12/2025 15:26 Lima)
-
-- **PSG predicted XI v Rennes: Lucas Chevalier and Illia Zabarnyi out, Matvey Safonov to start**: [Link](https://www.getfootballnewsfrance.com/2025/psg-predicted-xi-v-rennes-lucas-chevalier-and-illia-zabarnyi-out-matvey-safonov-to-start/)
-- **Luis Enrique happy with the competition in Ligue 1**: [Link](https://www.gazetaexpress.com/en/luis-enrique-happy-with-the-competition-in-league-1/)
-- **PSG's Vitinha says squad will do best to overcome injuries**: [Link](https://www.msn.com/en-us/sports/other/psg-s-vitinha-says-squad-will-do-best-to-overcome-injuries/vi-AA1RIKXn)
-
-
-### feyenoord - zwolle (N/A, 06/12/2025 15:26 Lima)
-
-- **LIVE eredivisie | Ueda zet Feyenoord snel op voorsprong tegen PEC Zwolle, mooie assist van Borges**: [Link](https://www.ad.nl/voetbal/live-eredivisie-ueda-zet-feyenoord-snel-op-voorsprong-tegen-pec-zwolle-mooie-assist-van-borges~a5dafcbb/)
-- **OPSTELLING | Van Persie geeft basisplaats aan Borges**: [Link](https://www.fr-fans.nl/nieuws/75188/opstelling-van-persie-geeft-basisplaats-aan-borges)
-- **Ueda twee keer trefzeker tegen PEC • Heracles en Telstar vermaken nog niet**: [Link](https://nos.nl/liveblog/2593434-ueda-twee-keer-trefzeker-tegen-pec-heracles-en-telstar-vermaken-nog-niet)
 
 
