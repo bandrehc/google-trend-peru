@@ -1,3 +1,24 @@
+### dni (N/A, 11/12/2025 11:37 Lima)
+
+- **Esperanto łączy narody | wystawa**: [Link](https://bok.bialystok.pl/wydarzenie/esperanto-laczy-narody-wystawa/)
+- **Przed nami 26. Białostockie Dni Zamenhofa. Będą wystąpienia artystyczne, spotkania i nie tylko**: [Link](https://poranny.pl/przed-nami-26-bialostockie-dni-zamenhofa-beda-wystapienia-artystyczne-spotkania-i-nie-tylko/ar/c13p2-28258629)
+- **Wkrótce ruszają 26. Białostockie Dni Zamenhofa. Zobacz, co przygotowano**: [Link](https://www.bialystokonline.pl/wkrotce-ruszaja-26-bialostockie-dni-zamenhofa-zobacz-co-przygotowano,artykul,147544,2,1.html)
+
+
+### marruecos vs (N/A, 11/12/2025 11:37 Lima)
+
+- **Marruecos vs Siria EN VIVO y EN DIRECTO: Juego apretado (1-0)**: [Link](https://www.vavel.com/es/futbol-internacional/2025/12/11/1244133-marruecos-vs-siria-en-vivo-copa-arabe.html)
+- **Sektioui ajusta los últimos detalles de la selección marroquí rumbo a semis de la Copa Árabe**: [Link](https://es.rue20.com/2025/12/10/sektioui-ajusta-los-ultimos-detalles-de-la-seleccion-marroqui-rumbo-a-semis-de-la-copa-arabe/)
+- **Marruecos y Siria se enfrentan en cuartos de final de la Copa Árabe 2025: horarios y canales para seguir el partido**: [Link](https://www.elperiodicodeceuta.es/marruecos-y-siria-se-enfrentan-en-cuartos-de-final-de-la-copa-arabe-2025-horarios-y-canales-para-seguir-el-partido/)
+
+
+### 67 (N/A, 11/12/2025 11:37 Lima)
+
+- **In-N-Out removes number 67 from order system due to viral 6-7 trend**: [Link](https://abc7.com/post/removes-number-67-order-system-due-viral-6-7-trend/18268599/)
+- **In-N-Out drops 67 from orders due to ‘6-7’ craze**: [Link](https://www.hawaiinewsnow.com/2025/12/10/in-n-out-drops-67-orders-due-6-7-craze/)
+- **In-N-Out stops serving order number 67 because of a nonsensical meme**: [Link](https://www.scrippsnews.com/science-and-tech/social-media/in-n-out-stops-serving-order-number-67-because-of-a-nonsensical-meme)
+
+
 ### bcp (N/A, 11/12/2025 07:57 Lima)
 
 - **BCP moderniza Credinet para responder a la nueva demanda digital de las empresas**: [Link](https://www.economy.com.bo/articulo/banca-finanzas/bcp-moderniza-credinet-responder-nueva-demanda-digital-empresas/20251210142036021273.html)
@@ -1001,26 +1022,5 @@ Sin noticias relacionadas disponibles.
 - **La compo de l'OL contre Lorient : Le onze explosif de Paulo Fonseca**: [Link](https://www.goal.com/fr/listes/la-compo-de-l-ol-contre-lorient-le-onze-explosif-de-paulo-fonseca/bltc972806089b3fda7)
 - **PRONOS PARIS RMC Le pari sûr du 7 décembre – Ligue 1**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-sur-du-7-decembre-ligue-1_AN-202512060391.html)
 - **Avec Fonseca de retour, l'OL a une fin d'année pour enfin enchaîner**: [Link](https://www.eurosport.fr/football/ligue-1/2025-2026/ligue-1-avec-paulo-fonseca-de-retour-loympique-lyonnais-a-une-fin-dannee-pour-enfin-enchainer_sto23247902/story.shtml)
-
-
-### 8 de diciembre feriado (N/A, 07/12/2025 15:26 Lima)
-
-- **FERIADO LARGO en Perú: Últimos feriados en diciembre 2025 y qué se celebra**: [Link](https://elcomercio.pe/respuestas/cuando/feriado-largo-y-ultimos-feriados-del-2025-en-peru-dias-que-se-celebra-y-mas-calendario-2025-tdpe-noticia/)
-- **Feriados lunes 8 y martes 9 de diciembre: las reglas que se aplicarán a este beneficio laboral | ECONOMIA**: [Link](https://gestion.pe/economia/management-empleo/feriados-lunes-8-y-martes-9-de-diciembre-las-reglas-que-se-aplicaran-a-este-beneficio-laboral-noticia/)
-- **No pierdas tu beneficio: consulta cuánto deben pagarte por trabajar los feriados 8 y 9 de diciembre**: [Link](https://www.elperuano.pe/noticia/284113-no-pierdas-tu-beneficio-consulta-cuanto-deben-pagarte-por-trabajar-los-feriados-8-y-9-de-diciembre)
-
-
-### liga brasileña (N/A, 07/12/2025 15:26 Lima)
-
-- **Pronóstico Mirassol vs Flamengo – Brasileirão Serie A (06/12/2025)**: [Link](https://www.hispanosnba.com/futbol/pronostico-mirassol-vs-flamengo-06-12-2025/)
-- **Ver EN VIVO Mirassol vs. Flamengo: dónde seguir por TV y ONLINE**: [Link](https://www.tycsports.com/futbol-de-brasil/mirassol-vs-flamengo-en-vivo-donde-ver-por-tv-y-online-id701776.html)
-- **Nadine Bastos da su veredicto en directo sobre el penalti sin marcar del Flamengo ante el Mirassol**: [Link](https://www.aaaj.com.ar/eventos/93082/nadine-bastos-da-su-veredicto-en-directo-sobre-el-penalti-sin-marcar-del-flamengo-ante-el-mirassol/)
-
-
-### precio del dólar hoy (N/A, 07/12/2025 11:28 Lima)
-
-- **Precio del dólar en Perú hoy, domingo 7 de diciembre: cuál es el tipo de cambio del día**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-2025-a-cuanto-esta-el-dolar-este-domingo-7-de-diciembre-y-tipo-de-cambio-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
-- **Precio del dólar hoy: Así se cotiza el tipo de cambio en Perú este 6 de diciembre**: [Link](https://www.infobae.com/peru/2025/12/05/dolar-cotizacion-de-apertura-hoy-5-de-diciembre-en-peru/)
-- **BCR interviene y compra $ 294 millones y da respiro al dólar que cerró en S/ 3.362**: [Link](https://diariocorreo.pe/economia/bcr-interviene-y-compra-294-millones-y-da-respiro-al-dolar-que-cerro-en-s-3362-noticia/)
 
 
