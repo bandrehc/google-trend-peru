@@ -1,3 +1,71 @@
+### fcsb - feyenoord (N/A, 11/12/2025 15:29 Lima)
+
+- **FCSB vs Feyenoord: UEFA Europa League stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c783zeg7pnxt)
+- **FCSB vs Feyenoord LIVE Score Updates in UEFA Europa League Match**: [Link](https://www.vavel.com/en-us/soccer/2025/12/11/1244181-fcsb-vs-feyenoord-live-score-europa-league.html)
+- **Preview: FCSB vs. Feyenoord - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/fcsb/europa-league/preview/fcsb-vs-feyenoord-prediction-team-news-lineups_587458.html)
+
+
+### latina noticias (N/A, 11/12/2025 15:29 Lima)
+
+- **jueves 11 de diciembre**: [Link](https://latinanoticias.pe/noticias/latina-noticias-edicion-mediodia-encuesta-de-hoy-miercoles-10-de-diciembre_20251210/)
+- **Nueva información sobre el futuro de Hernán Barcos en Alianza Lima: "Va a..."**: [Link](https://libero.pe/futbol-peruano/alianza-lima/2025/12/09/nueva-informacion-futuro-de-hernan-barcos-en-alianza-lima-va-151884)
+- **¿Qué ocurrirá en Alianza Lima? titular del Fondo Blanquiazul Jorge Zúñiga se pronuncia**: [Link](https://www.cronicaviva.com.pe/presidente-del-fondo-blanquiazul-se-pronuncia-sobre-lo-que-puede-ocurrir-en-alianza-lima/)
+
+
+### real madrid - baskonia (N/A, 11/12/2025 15:29 Lima)
+
+- **Real Madrid-Baskonia: Whites return to Movistar Arena**: [Link](https://www.realmadrid.com/ar-AE/news/basket/first-team/fixtures/real-madrid-baskonia-11-12-2025)
+- **Sergio Scariolo ahead of Baskonia: We have to take full advantage of that**: [Link](https://basketballsphere.com/en/sergio-scariolo-ahead-of-baskonia-we-have-to-take-full-advantage-of-that/)
+- **Real Madrid vs Baskonia prediction – Odds & stats – 11 December 2025**: [Link](https://www.wincomparator.com/predictions/real-madrid-baskonia-vitoria-gasteiz-7734659/)
+
+
+### brann - fenerbahçe (N/A, 11/12/2025 15:29 Lima)
+
+Sin noticias relacionadas disponibles.
+
+
+### latina en vivo (N/A, 11/12/2025 15:29 Lima)
+
+- **Alianza Lima y los resultados que necesita en la fecha final para clasificar a semifinales del Mundial de Clubes 2025**: [Link](https://www.infobae.com/peru/deportes/2025/12/10/alianza-lima-mantiene-vivo-el-sueno-los-resultados-que-necesita-para-clasificar-a-semifinales-del-mundial-de-clubes-2025/)
+- **Hoy, Alianza vs. Savino Del Bene Scandicci: ¿a qué hora juegan y dónde ver EN VIVO fecha 3 del Mundial de Clubes de Vóley?**: [Link](https://rpp.pe/voley/mas-voley/alianza-lima-vs-savino-del-bene-scandicci-en-vivo-a-que-hora-juegan-y-donde-ver-fecha-3-mundial-de-clubes-de-voley-2025-via-latina-voley-en-vivo-noticia-1667306)
+- **Mundial de Clubes: Alianza Lima remonta y gana 3-1 a Zhetysu en duelo de alto voltaje**: [Link](https://elcomercio.pe/videos/deportes/alianza-lima-remonta-y-gana-3-1-a-zhetysu-en-mundial-de-clubes-nnav-latv-video-noticia/)
+
+
+### lyon - go ahead eagles (N/A, 11/12/2025 15:29 Lima)
+
+- **Olympique de Lyon vs Go Ahead Eagles LIVE Score Updates in Europa League Match**: [Link](https://www.vavel.com/en-us/soccer/2025/12/10/1244226-lyon-vs-go-ahead-eagles-live-score-europa-league.html)
+- **Lyon predicted XI v Go Ahead Eagles: Rémy Descamps and Martin Satriano to start**: [Link](https://www.getfootballnewsfrance.com/2025/lyon-predicted-xi-v-go-ahead-eagles-remy-descamps-and-martin-satriano-to-start/)
+- **Lyon vs Go Ahead Eagles: French side aims to maintain Europa League lead as Paulo Fonseca faces Dutch debutants tonight**: [Link](https://www.red94.net/news/38169-lyon-vs-go-ahead-eagles-live-in-europa-league-tonight-french-side-aims-for-cruci/)
+
+
+### latina (N/A, 11/12/2025 15:29 Lima)
+
+- **China gana terreno en América Latina ante una política estadounidense basada en la presión**: [Link](https://gestion.pe/mundo/china-gana-terreno-en-america-latina-ante-una-politica-estadounidense-basada-en-la-presion-noticia/)
+- **Alianza Lima y los resultados que necesita en la fecha final para clasificar a semifinales del Mundial de Clubes 2025**: [Link](https://www.infobae.com/peru/deportes/2025/12/10/alianza-lima-mantiene-vivo-el-sueno-los-resultados-que-necesita-para-clasificar-a-semifinales-del-mundial-de-clubes-2025/)
+- **Hoy, Alianza vs. Savino Del Bene Scandicci: ¿a qué hora juegan y dónde ver EN VIVO fecha 3 del Mundial de Clubes de Vóley?**: [Link](https://rpp.pe/voley/mas-voley/alianza-lima-vs-savino-del-bene-scandicci-en-vivo-a-que-hora-juegan-y-donde-ver-fecha-3-mundial-de-clubes-de-voley-2025-via-latina-voley-en-vivo-noticia-1667306)
+
+
+### lyon vs (N/A, 11/12/2025 15:29 Lima)
+
+- **OL - Go Ahead Eagles : les compositions officielles**: [Link](https://www.footmercato.net/a2323482068389418699-ol-go-ahead-eagles-les-compositions-officielles)
+- **"C’est fantastique" : les Go Ahead Eagles vont "savourer le match" contre l’OL**: [Link](https://www.lyonfoot.com/article/11622/c-est-fantastique-les-go-ahead-eagles-vont-savourer-le-match-contre-l-ol)
+- **Lyon – Go Ahead Eagles : à quelle heure et sur quelle chaîne suivre la rencontre de l’OL en Ligue Europa**: [Link](https://www.ladepeche.fr/2025/12/11/lyon-go-ahead-eagles-a-quelle-heure-et-sur-quelle-chaine-suivre-la-rencontre-de-lol-en-ligue-europa-13105010.php)
+
+
+### latina tv (N/A, 11/12/2025 15:29 Lima)
+
+- **Yo Soy – Miércoles 10 de diciembre – PROGRAMA COMPLETO**: [Link](https://www.latina.pe/entretenimiento/yo-soy/programas-completos-yo-soy/yo-soy-miercoles-10-de-diciembre-programa-completo_20251210/)
+- **Génesis, Miércoles 10 de diciembre – ver capítulo 6 completo**: [Link](https://www.latina.pe/entretenimiento/genesis-novela/genesis-miercoles-10-de-diciembre-ver-capitulo-6-completo_20251210/)
+- **Moisés y los diez mandamientos, Viernes 05 de diciembre – ver capítulo 134 completo**: [Link](https://www.latina.pe/entretenimiento/moises-y-los-10-mandamientos/moises-y-los-diez-mandamientos-viernes-05-de-diciembre-ver-capitulo-134-completo_20251205/)
+
+
+### midtjylland (N/A, 11/12/2025 15:29 Lima)
+
+- **Europa League: Se enfrentan Midtjylland y KRC Genk por la fecha 6**: [Link](https://rpp.pe/futbol/ligas-internacionales/europa-league-se-enfrentan-midtjylland-y-krc-genk-por-la-fecha-6-noticia-1667249)
+- **Europa League Matchday 6: What to look out for**: [Link](https://www.uefa.com/uefaeuropaleague/news/02a0-1f572df78383-8e4c8d7974db-1000--europa-league-matchday-6-what-to-look-out-for/)
+- **Midtjylland on brink of Europa League knockout rounds after beating Genk**: [Link](https://www.flashscore.com/news/midtjylland-genk-report-2025-12-11/MDFfsUGs/)
+
+
 ### dni (N/A, 11/12/2025 11:37 Lima)
 
 - **Esperanto łączy narody | wystawa**: [Link](https://bok.bialystok.pl/wydarzenie/esperanto-laczy-narody-wystawa/)
@@ -954,73 +1022,5 @@ Sin noticias relacionadas disponibles.
 - **Karol G Expands the ‘Tropicoqueta’ Universe With Special Visual Album Broadcast**: [Link](https://www.rollingstone.com/music/music-news/karol-g-tropicoqueta-la-premiere-broadcast-1235477199/)
 - **KAROL G Brings "Tropicoqueta" to Life With TV Special "La Premiere"**: [Link](https://www.hitsdailydouble.com/news/stage-and-screen/karol-g-la-premiere-tv-special-2025-12-05)
 - **Karol G Designs ‘Tropicoqueta’ as a Visual Album for the Latino Collective With ‘La Premiere’**: [Link](https://belatina.com/karol-g-designs-tropicoqueta-as-a-visual-album-for-the-latino-collective-with-la-premiere/)
-
-
-### williot swedberg (N/A, 07/12/2025 21:01 Lima)
-
-- **VIDEO: Celta chockade "Kungarna" mitt i Madrid**: [Link](https://www.slobodenpecat.mk/sv/video-selta-srede-madrid-gi-shokirashe-kralevite/)
-- **Swedbergs succé: Sänkte Real Madrid på Bernabéu**: [Link](https://omni.se/swedbergs-succe-sankte-real-madrid-pa-bernabeu/a/Gx1P2V)
-- **Bellingham lämnade chockförlusten mot Celta Vigo blodig**: [Link](https://www.aftonbladet.se/sportbladet/fotboll/a/rrL8K8/jude-bellingham-lamnade-chockforlusten-blodig)
-
-
-### álvaro carreras (N/A, 07/12/2025 21:01 Lima)
-
-- **La expulsión de Fran García en un minuto y el cabreo de Xabi Alonso: "Fran, no me jodas"**: [Link](https://www.marca.com/futbol/real-madrid/2025/12/07/expulsion-fran-garcia-minuto-cabreo-xabi-alonso-fran-me-jodas.html)
-- **Xabi: “Nos ha desquiciado el árbitro”**: [Link](https://as.com/futbol/real-madrid/xabi-nos-ha-desquiciado-la-decision-del-arbitro-f202512-n/)
-- **¡Festival de tarjetas rojas en el Bernabéu y tangana con el árbitro!**: [Link](https://www.mundodeportivo.com/futbol/real-madrid/20251207/1002582872/festival-tarjetas-rojas-bernabeu-tangana-arbitro.html)
-
-
-### america tvgo (N/A, 07/12/2025 15:26 Lima)
-
-- **Mundial 2026: el camino a la gloria, con grupos de la muerte, cruces pesados y un choque de gigantes que podría llegar pronto**: [Link](https://cnnespanol.cnn.com/2025/12/06/deportes/mundial-2026-sorteo-calendario-grupos-muerte-orix)
-- **¿Argentina, España, Inglaterra...? Cuáles son las selecciones favoritas para ganar el Mundial 2026, según las apuestas, las estadísticas y los expertos**: [Link](https://www.bbc.com/mundo/articles/c898e48ny5xo)
-- **Una supercomputadora predijo quién ganará el Mundial 2026 tras el sorteo: cómo le irá a la selección argentina**: [Link](https://www.infobae.com/deportes/2025/12/07/una-supercomputadora-predijo-quien-ganara-el-mundial-2026-tras-el-sorteo-como-le-ira-a-la-seleccion-argentina/)
-
-
-### tondela - porto (N/A, 07/12/2025 15:26 Lima)
-
-- **Tondela x Porto – Palpite, Onde Assistir, Hora e Escalações 07-12**: [Link](https://onefootball.com/pt-br/apostas/palpites/futebol/tondela-x-porto-07-12-2025)
-- **Em direto/ Tondela-FC Porto. Líder visita Beira Alta à procura de aumentar distância para os rivais**: [Link](https://observador.pt/liveblogs/tondela-fc-porto-lider-visita-beira-alta-a-procura-de-aumentar-distancias/)
-- **Cinco pontos de vantagem à 13.ª jornada? Neste século, deu sempre título de campeão ao FC Porto**: [Link](https://www.abola.pt/noticias/cinco-pontos-de-vantagem-a-13a-jornada-neste-seculo-deu-sempre-titulo-de-campeao-ao-fc-porto-2025120617022728490)
-
-
-### alianza vs universitario femenino (N/A, 07/12/2025 15:26 Lima)
-
-- **Alianza Lima vs Universitario EN VIVO HOY: minuto a minuto en Matute por final ida de la Liga Femenina 2025**: [Link](https://www.infobae.com/peru/deportes/2025/12/07/alianza-lima-vs-universitario-en-vivo-hoy-america-tv-movistar-deportes-matute-final-ida-liga-femenina-2025-goles-resumen-resultado/)
-- **Alianza Lima vs. Universitario en vivo, Liga Femenina: a qué hora juegan, canal que transmite y dónde ver la primera final**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/alianza-lima-vs-universitario-femenino-en-vivo-online-gratis-via-america-tv-canal-4-america-tvgo-movistar-deportes-movistar-play-a-que-hora-juegan-canal-que-transmite-y-donde-ver-por-final-de-liga-femenina-video-noticia/)
-- **Alianza Lima vs. Universitario EN VIVO, final Liga Femenina: transmisión del partido**: [Link](https://libero.pe/futbol-peruano/2025/12/06/alianza-lima-vs-universitario-en-vivo-gratis-final-ida-de-liga-femenina-via-america-tvgo-canal-4-lbev-359778)
-
-
-### napoles vs (N/A, 07/12/2025 15:26 Lima)
-
-- **Nápoles-Juventus, en directo: Serie A, hoy en vivo**: [Link](https://as.com/futbol/internacional/napoles-juventus-en-directo-serie-a-hoy-en-vivo-f202512-n/)
-- **Apuestas y Pronóstico del Napoli vs Juventus 07/12/25**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/2025/diciembre/pronostico-napoli-vs-juventus-07-12-25)
-- **Serie A: Napoli necesita los 3 puntos para escalar en la tabla de posiciones y llegar a la cima**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-napoli-necesita-los-3-puntos-para-escalar-en-la-tabla-de-posiciones-y-llegar-a-la-cima-noticia-1666846)
-
-
-### real madrid vs celta vigo (N/A, 07/12/2025 15:26 Lima)
-
-- **Real Madrid - RC Celta Live - La Liga: Football Scores & Highlights - 07/12/2025**: [Link](https://www.tntsports.co.uk/football/la-liga/2025-2026/live-real-madrid-rc-celta_mtc1610573/live-commentary.shtml)
-- **Relentless Real Madrid Welcome Celta Vigo as Title Charge Gathers Pace**: [Link](https://dawan.africa/news/relentless-real-madrid-welcome-celta-vigo-as-title-charge-gathers-pace)
-- **LIVE: Real Madrid vs Celta Vigo – La Liga**: [Link](https://www.aljazeera.com/sports/liveblog/2025/12/7/live-real-madrid-vs-celta-vigo-la-liga?update=4157964)
-
-
-### internacional vs (N/A, 07/12/2025 15:26 Lima)
-
-- **Internacional vs Red Bull Bragantino pronostico y comparación de cuotas 07.12.2025**: [Link](https://www.livetipsportal.com/es/pronosticos-apuestas-deportivas/internacional-vs-red-bull-bragantino-serie-a-10963535/)
-- **Internacional vs RB Bragantino, Brasileirao 2025: Dónde ver el partido online, streaming en vivo, canales de TV y hora de inicio**: [Link](https://www.goal.com/es-ar/noticias/internacional-vs-rb-bragantino-brasileirao-2025-donde-ver-partido-online-streaming-en-vivo-canales-tv-hora-inicio/blt8a5b298ed811b989)
-- **Alineación del Inter: Abel Braga define titulares para el partido de vida o muerte en la Serie A**: [Link](https://www.aaaj.com.ar/eventos/92775/alineacion-del-inter-abel-braga-define-titulares-para-el-partido-de-vida-o-muerte-en-la-serie-a/)
-
-
-### fluminense vs (N/A, 07/12/2025 15:26 Lima)
-
-Sin noticias relacionadas disponibles.
-
-
-### lorient - lyon (N/A, 07/12/2025 15:26 Lima)
-
-- **La compo de l'OL contre Lorient : Le onze explosif de Paulo Fonseca**: [Link](https://www.goal.com/fr/listes/la-compo-de-l-ol-contre-lorient-le-onze-explosif-de-paulo-fonseca/bltc972806089b3fda7)
-- **PRONOS PARIS RMC Le pari sûr du 7 décembre – Ligue 1**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-sur-du-7-decembre-ligue-1_AN-202512060391.html)
-- **Avec Fonseca de retour, l'OL a une fin d'année pour enfin enchaîner**: [Link](https://www.eurosport.fr/football/ligue-1/2025-2026/ligue-1-avec-paulo-fonseca-de-retour-loympique-lyonnais-a-une-fin-dannee-pour-enfin-enchainer_sto23247902/story.shtml)
 
 
