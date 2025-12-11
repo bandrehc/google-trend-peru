@@ -1,3 +1,17 @@
+### mauricio diez canseco (N/A, 10/12/2025 23:38 Lima)
+
+- **Mauricio Diez Canseco y Aixa Sosa firmes en su relación y se tatúan sus nombres**: [Link](https://elcomercio.pe/tvmas/farandula/mauricio-diez-canseco-y-aixa-sosa-firmes-en-su-relacion-y-se-tatuan-sus-nombres-ultimas-noticia/)
+- **Mauricio Diez Canseco y cómo empezó su relación con Aixa Sosa**: [Link](https://www.atv.pe/noticia/mauricio-diez-canseco-y-como-empezo-su-relacion-con-aixa-sosa/)
+- **Brad Pizza y su novia Aixa Sosa se hacen tatuajes y lucen anillos simbólicos**: [Link](https://trome.com/espectaculos/brad-pizza-y-su-novia-aixa-sosa-se-hacen-tatuajes-y-lucen-anillos-simbolicos-noticia/)
+
+
+### lakers - spurs (N/A, 10/12/2025 23:38 Lima)
+
+- **Lakers won’t use NBA Cup court for quarterfinal matchup against Spurs: Source**: [Link](https://www.nytimes.com/athletic/6879915/2025/12/10/lakers-nba-cup-court-quarterfinals-spurs/)
+- **BetRivers Bonus Code: Secure a Second Chance Bet Up to $500 for Spurs vs. Lakers NBA Cup Quarterfinal**: [Link](https://www.wsn.com/nba/betrivers-bonus-code-spurs-vs-lakers-12-10-2025/)
+- **Marc Stein: The Lakers will play host tonight to San …**: [Link](https://www.hoopshype.com/story/sports/nba/rumors/2025/12/10/marc-stein-the-lakers-will-play-host-tonight-to-san/87708267007/)
+
+
 ### corinthians vs (N/A, 10/12/2025 21:04 Lima)
 
 - **🧐 Dates, kick-off times and form: Copa do Brasil semi-finals guide**: [Link](https://sports.yahoo.com/articles/dates-kick-off-times-form-235100442.html)
@@ -1010,17 +1024,5 @@ Sin noticias relacionadas disponibles.
 - **Valencia - Sevilla, en directo | LaLiga EA Sports hoy en vivo**: [Link](https://www.marca.com/futbol/laliga-ea-sports/valencia-sevilla/2025/12/07/01_0101_20251207_191_179-directo.html)
 - **Corberán y Almeyda calibran secuelas**: [Link](https://as.com/futbol/primera/corberan-y-almeyda-calibran-secuelas-f202512-n/)
 - **Apuestas y Pronóstico del Valencia vs Sevilla 07/12/25**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/2025/diciembre/pronostico-valencia-vs-sevilla-07-12-25)
-
-
-### lando norris (N/A, 07/12/2025 11:28 Lima)
-
-- **Norris secures maiden F1 title in Abu Dhabi with P3 finish**: [Link](https://www.formula1.com/en/latest/article/norris-secures-maiden-f1-title-in-abu-dhabi-with-podium-finish-behind.EMJtmvRA0uzmzUC4MZgmw)
-- **Lando Norris wins 2025 F1 drivers’ championship - Abu Dhabi Grand Prix result & reaction**: [Link](https://www.bbc.com/sport/formula1/live/c2dnzd5ldy3t)
-- **F1 Abu Dhabi GP LIVE: Race, Qualifying, Practice title decider updates, stream, highlights in Lando Norris, Max Verstappen, Oscar Piastri fight**: [Link](https://www.skysports.com/f1/live-blog/12040/13478726/f1-abu-dhabi-gp-live-race-qualifying-practice-title-decider-updates-stream-highlights-in-lando-norris-max-verstappen-oscar-piastri-fight)
-
-
-### niza vs (N/A, 07/12/2025 11:28 Lima)
-
-- **Liga de Francia: Nice quiere volver a festejar frente a Angers**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-de-francia-nice-quiere-volver-a-festejar-frente-a-angers-noticia-1666819)
 
 
