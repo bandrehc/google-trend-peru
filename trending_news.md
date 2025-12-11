@@ -1,3 +1,31 @@
+### bcp (N/A, 11/12/2025 07:57 Lima)
+
+- **BCP moderniza Credinet para responder a la nueva demanda digital de las empresas**: [Link](https://www.economy.com.bo/articulo/banca-finanzas/bcp-moderniza-credinet-responder-nueva-demanda-digital-empresas/20251210142036021273.html)
+- **Las Cazadoras de K-Pop suben a escenario del BCP**: [Link](https://www.ultimahora.com/las-cazadoras-de-k-pop-suben-a-escenario-del-bcp)
+- **Musical Las Cazadoras K-Pop tendrá gira al interior del Perú: fechas, ciudades, entradas y más**: [Link](https://www.infobae.com/peru/2025/12/04/musical-las-cazadoras-k-pop-tendra-gira-al-interior-del-peru-fechas-ciudades-y-mas/)
+
+
+### trome (N/A, 11/12/2025 07:57 Lima)
+
+- **Ya me contaron otra de las razones por la que los compañeros le pusieron la cruz al tío que se tapa un ojo**: [Link](https://trome.com/opinion/el-bombardero/pisa-pelota-ya-me-contaron-otra-de-las-razones-por-la-que-los-companeros-le-pusieron-la-cruz-al-tio-que-se-tapa-un-ojo-noticia/)
+- **Jackson Mora responde a Tilsa Lozano con vouchers en mano y le responde acerca de las deudas: “Se agarró la plata”**: [Link](https://www.infobae.com/peru/2025/12/11/jackson-mora-responde-a-tilsa-lozano-con-vouchers-en-mano-y-le-responde-acerca-de-las-deudas-se-agarro-la-plata/)
+- **Jackson Mora desmiente a Tilsa Lozano y expone transferencias de la camioneta: “Se agarró la plata”**: [Link](https://trome.com/espectaculos/tv/jackson-mora-desmiente-a-tilsa-lozano-y-expone-transferencias-de-la-camioneta-se-agarro-la-plata-video-fotos-farandula-noticia/)
+
+
+### jorge fossati (N/A, 11/12/2025 07:57 Lima)
+
+- **Jorge Fossati a un paso de dejar Universitario: los entretelones detrás de su inminente salida**: [Link](https://depor.com/futbol-peruano/descentralizado/universitario-jorge-fossati-se-va-que-paso-con-negociaciones-por-que-el-club-se-canso-de-la-situacion-y-candidatos-para-sustituirlo-liga-1-2026-noticia/)
+- **Universitario y la medida tras situación con Fossati**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/universitario-y-medida-no-llegar-acuerdo-fossati-n451964)
+- **Franco Velazco puso fecha para definir el futuro de Jorge Fossati en Universitario**: [Link](https://bolavip.com/pe/universitario/franco-velazco-puso-fecha-para-definir-el-futuro-de-jorge-fossati-en-universitario)
+
+
+### lakers (N/A, 11/12/2025 07:57 Lima)
+
+- **Luka Doncic Blasted for His Defense in Lakers Loss: ‘A Traffic Cone’**: [Link](https://heavy.com/sports/nba/los-angeles-lakers/luka-doncic-defense-lakers/)
+- **Lakers swat away playoff talk, focus on reeling D**: [Link](https://www.espn.com/nba/story/_/id/47274638/lakers-focus-reeling-d-not-playoff-talk-loss-spurs)
+- **Luka Doncic: “Each one of us has to guard better”**: [Link](https://www.talkbasket.net/207880-luka-doncic-each-one-of-us-has-to-guard-better)
+
+
 ### dólar hoy perú (N/A, 11/12/2025 03:36 Lima)
 
 - **Precio del dólar en Perú: cierre de la cotización de hoy, miércoles 10 de diciembre**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-a-cuanto-esta-el-dolar-y-tipo-de-cambio-este-miercoles-10-de-diciembre-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
@@ -994,33 +1022,5 @@ Sin noticias relacionadas disponibles.
 - **Precio del dólar en Perú hoy, domingo 7 de diciembre: cuál es el tipo de cambio del día**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-2025-a-cuanto-esta-el-dolar-este-domingo-7-de-diciembre-y-tipo-de-cambio-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
 - **Precio del dólar hoy: Así se cotiza el tipo de cambio en Perú este 6 de diciembre**: [Link](https://www.infobae.com/peru/2025/12/05/dolar-cotizacion-de-apertura-hoy-5-de-diciembre-en-peru/)
 - **BCR interviene y compra $ 294 millones y da respiro al dólar que cerró en S/ 3.362**: [Link](https://diariocorreo.pe/economia/bcr-interviene-y-compra-294-millones-y-da-respiro-al-dolar-que-cerro-en-s-3362-noticia/)
-
-
-### boca vs racing (N/A, 07/12/2025 11:28 Lima)
-
-- **La formación de Boca vs. Racing, por las semifinales del Torneo Clausura**: [Link](https://www.tycsports.com/boca-juniors/la-formacion-de-boca-vs-racing-torneo-clausura-id702419.html)
-- **Boca Juniors recibirá a Racing por un lugar en la final del Torneo Clausura: hora, TV y formaciones**: [Link](https://www.infobae.com/deportes/2025/12/07/boca-juniors-recibira-a-racing-por-un-lugar-en-la-final-del-torneo-clausura-hora-tv-y-formaciones/)
-- **Boca Juniors vs. Racing por internet: cuándo juegan, horarios y en qué canales lo pasan**: [Link](https://elcomercio.pe/deporte-total/argentina/como-ver-boca-vs-racing-en-vivo-hoy-gratis-por-semifinal-del-torneo-clausura-liga-argentina-a-que-hora-juegan-canal-tv-y-donde-ver-partido-via-espn-premium-disney-plus-futbol-libre-tv-video-noticia/)
-
-
-### dortmund - hoffenheim (N/A, 07/12/2025 11:28 Lima)
-
-- **Ist das Dortmunder 1:0 gegen Hoffenheim schon in Stein gemeißelt?**: [Link](https://www.kicker.de/ist-das-dortmunder-1-0-gegen-hoffenheim-schon-in-stein-gemeisselt-1172624/artikel)
-- **BVB: Guirassy zurück in der Startelf**: [Link](https://www.fussballtransfers.com/a749603777179075926-bvb-guirassy-zurueck-in-der-startelf)
-- **BVB (Borussia Dortmund) vs. TSG Hoffenheim live: Die Bundesliga im LIVE-TICKER**: [Link](https://www.dazn.com/de-DE/news/fussball/bvb-borussia-dortmund-tsg-hoffenheim-live-die-bundesliga-im-live-ticker/1vvgqwafrer7u1tjavj3wy0jok)
-
-
-### fulham - crystal palace (N/A, 07/12/2025 11:28 Lima)
-
-- **Fulham aiming to end 20-year winless run in Crystal Palace meeting**: [Link](https://www.sportsmole.co.uk/football/fulham/news/fulham-out-to-end-20-year-winless-run-in-palace-meeting_587279.html)
-- **EPL: Chukwueze banks on home support to beat Crystal Palace**: [Link](https://dailypost.ng/2025/12/06/epl-chukwueze-banks-on-home-support-to-beat-crystal-palace/)
-- **Nigerian trio face another derby weekend**: [Link](https://punchng.com/nigerian-trio-face-another-derby-weekend/)
-
-
-### celtic f. c. - hearts (N/A, 07/12/2025 11:28 Lima)
-
-- **Celtic starting XI to face Hearts at Paradise**: [Link](https://www.celticfc.com/news/2025/december/07/starting-xi-to-face-hearts-at-celtic-park/)
-- **Putting on a Show – Wilfried Nancy can hit the ground running against Hearts**: [Link](https://thecelticstar.com/putting-on-a-show-wilfried-nancy-can-hit-the-ground-running-against-hearts/)
-- **Sunday's Football Tips: Hotshot Daizen 8/5 To Maintain Momentum In Celtic's Key Match Against Hearts - SCCG Management**: [Link](https://sccgmanagement.com/sccg-news/2025/12/6/sundays-football-tips-hotshot-daizen-8-5-to-maintain-momentum-in-celtics-key-match-against-hearts-sccg-management/)
 
 
