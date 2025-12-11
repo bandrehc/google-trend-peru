@@ -1,3 +1,22 @@
+### dólar hoy perú (N/A, 11/12/2025 03:36 Lima)
+
+- **Precio del dólar en Perú: cierre de la cotización de hoy, miércoles 10 de diciembre**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-a-cuanto-esta-el-dolar-y-tipo-de-cambio-este-miercoles-10-de-diciembre-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
+- **Precio del dólar subió: Así cerró el tipo de cambio hoy 10 de diciembre en Perú**: [Link](https://www.infobae.com/peru/2025/12/10/dolar-cotizacion-de-apertura-hoy-10-de-diciembre-en-peru/)
+- **Tipo de cambio en Perú detendrá caída en diciembre: divisa norteamericana muestra señales de estabilización**: [Link](https://www.expreso.com.pe/economia/tipo-de-cambio-en-peru-detendra-caida-en-diciembre-divisa-norteamericana-muestra-senales-de-estabilizacion-bcrp-noticia/1245604/)
+
+
+### facundo callejo (N/A, 11/12/2025 03:36 Lima)
+
+- **“Muchos tenemos hambre de jugar nuestra primera Copa Libertadores con Cusco FC”: Callejo, Tévez y Colman, el tridente dorado que sueña en grande**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/cusco-fc-muchos-tenemos-hambre-de-jugar-nuestra-primera-copa-libertadores-con-cusco-fc-facundo-callejo-juan-manuel-tevez-e-ivan-colman-el-tridente-dorado-que-suena-en-grande-noticia/)
+
+
+### cristal vs cuzco (N/A, 11/12/2025 03:36 Lima)
+
+- **Sporting Cristal defeats Cusco 2-0 in Lima, here's what this dominant display means for the playoff's second leg**: [Link](https://www.red94.net/news/23590-sporting-cristal-defeats-cusco-2-0-in-liga-1-playoff-clash/)
+- **Cusco FC vs. Sporting Cristal: Potential Starting Lineups for Liga 1 Playoffs**: [Link](https://www.el-balad.com/6791530)
+- **Alianza Lima and Sporting Cristal battle tonight for Copa Libertadores destiny, what happens if extras needed**: [Link](https://www.red94.net/news/91818-alianza-lima-faces-sporting-cristal-tonight-in-crucial-lima-playoff-both-teams-c/)
+
+
 ### mauricio diez canseco (N/A, 10/12/2025 23:38 Lima)
 
 - **Mauricio Diez Canseco y Aixa Sosa firmes en su relación y se tatúan sus nombres**: [Link](https://elcomercio.pe/tvmas/farandula/mauricio-diez-canseco-y-aixa-sosa-firmes-en-su-relacion-y-se-tatuan-sus-nombres-ultimas-noticia/)
@@ -1003,26 +1022,5 @@ Sin noticias relacionadas disponibles.
 - **Celtic starting XI to face Hearts at Paradise**: [Link](https://www.celticfc.com/news/2025/december/07/starting-xi-to-face-hearts-at-celtic-park/)
 - **Putting on a Show – Wilfried Nancy can hit the ground running against Hearts**: [Link](https://thecelticstar.com/putting-on-a-show-wilfried-nancy-can-hit-the-ground-running-against-hearts/)
 - **Sunday's Football Tips: Hotshot Daizen 8/5 To Maintain Momentum In Celtic's Key Match Against Hearts - SCCG Management**: [Link](https://sccgmanagement.com/sccg-news/2025/12/6/sundays-football-tips-hotshot-daizen-8-5-to-maintain-momentum-in-celtics-key-match-against-hearts-sccg-management/)
-
-
-### hamburg - werder bremen (N/A, 07/12/2025 11:28 Lima)
-
-- **Sorgen-Zwillinge der Buli: Welches Duo schießt sich zuerst aus der Krise?**: [Link](https://onefootball.com/es/noticias/sorgen-zwillinge-der-buli-welches-duo-schiesst-sich-zuerst-aus-der-krise-42059960)
-- **Ex-Werder-Keeper Wiese mit scharfer Derby-Kritik und überraschendem HSV-Geständnis**: [Link](https://www.90min.de/ex-werder-keeper-wiese-mit-scharfer-derby-kritik-und-uberraschendem-hsv-gestandnis)
-- **Stage beginnt: Die Werder-Startelf im Nordderby**: [Link](https://www.werder.de/news/maenner/2025-2026/aufstellung-nordderby-07122025)
-
-
-### ana de armas (N/A, 07/12/2025 11:28 Lima)
-
-- **Ana de Armas Opens Up About Her “Beautiful Friendship” With Keanu Reeves; Becoming an Action Star by Accident**: [Link](https://www.hollywoodreporter.com/movies/movie-news/ana-de-armas-keanu-reeves-red-sea-film-festival-1236443623/)
-- **Ana de Armas candidly talks about Keanu Reeves amid Tom Cruise split**: [Link](https://www.geo.tv/latest/637914-ana-de-armas-candidly-talks-about-keanu-reeves-amid-tom-cruise-split)
-- **Ana de Armas reflects on Keanu Reeves friendship and her unexpected path to action films**: [Link](https://tribune.com.pk/story/2580853/ana-de-armas-reflects-on-keanu-reeves-friendship-and-her-unexpected-path-to-action-films)
-
-
-### valencia c. f. - sevilla (N/A, 07/12/2025 11:28 Lima)
-
-- **Valencia - Sevilla, en directo | LaLiga EA Sports hoy en vivo**: [Link](https://www.marca.com/futbol/laliga-ea-sports/valencia-sevilla/2025/12/07/01_0101_20251207_191_179-directo.html)
-- **Corberán y Almeyda calibran secuelas**: [Link](https://as.com/futbol/primera/corberan-y-almeyda-calibran-secuelas-f202512-n/)
-- **Apuestas y Pronóstico del Valencia vs Sevilla 07/12/25**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/2025/diciembre/pronostico-valencia-vs-sevilla-07-12-25)
 
 
