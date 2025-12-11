@@ -1,3 +1,73 @@
+### corinthians vs (N/A, 10/12/2025 21:04 Lima)
+
+- **🧐 Dates, kick-off times and form: Copa do Brasil semi-finals guide**: [Link](https://sports.yahoo.com/articles/dates-kick-off-times-form-235100442.html)
+- **How to watch today's Cruzeiro vs Corinthians Copa do Brasil game: Live stream, TV channel, and start time**: [Link](https://www.goal.com/en-us/news/where-to-watch-cruzeiro-v-corinthians-live-stream-online-tv/blt172efc94fd6001a0)
+- **Where to watch Cruzeiro vs Corinthians live in the USA: 2025 Copa do Brasil**: [Link](https://bolavip.com/en/soccer/where-to-watch-cruzeiro-vs-corinthians-live-in-the-usa-2025-copa-do-brasil)
+
+
+### thunder - suns (N/A, 10/12/2025 21:04 Lima)
+
+- **Shai Gilgeous-Alexander: Player Props, Odds, and Lines for Reigning MVP in NBA Cup vs. Suns**: [Link](https://news.bet365.com/en-us/article/shai-gilgeous-alexander-player-props-in-nba-cup-vs-suns/2025121017423309860)
+- **NBA Fantasy: DFS picks & advice for Dec. 10**: [Link](https://www.nba.com/news/nba-fantasy-dfs-picks-advice-for-dec-10-2025)
+- **How to watch Suns vs. Thunder: TV channel and streaming options for December 10**: [Link](https://www.nytimes.com/athletic/6879659/2025/12/10/suns-vs-thunder-stream-how-to-watch-dec-10/)
+
+
+### sporting cristal - cusco (N/A, 10/12/2025 21:04 Lima)
+
+- **Sorprendió a todos: Santiago González anotó el 1-0 de Cristal ante Cusco FC en el Nacional [VIDEO]**: [Link](https://rpp.pe/futbol/descentralizado/ver-gol-santiago-gonzalez-en-sporting-cristal-vs-cusco-fc-video-1-0-en-el-nacional-partidos-de-hoy-noticia-1667376)
+- **Canal Liga 1 MAX EN VIVO Por Internet | Cristal-Cusco FC 2025**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/liga-1-max-en-vivo-gratis-ver-futbol-libre-tv-cristal-vs-cusco-fc-por-final-de-playoffs-liga-1-video-noticia/)
+- **A qué hora juega Sporting Cristal vs Cusco FC HOY: partido en el Nacional por final ida de los ‘play-offs’ de la Liga 1 2025**: [Link](https://www.infobae.com/peru/deportes/2025/12/09/a-que-hora-juega-sporting-cristal-vs-cusco-fc-partido-nacional-final-ida-play-offs-liga-1-2025-horario/)
+
+
+### gripe h3n2 (N/A, 10/12/2025 21:04 Lima)
+
+- **Gripe H3N2 alerta a Europa y Estados Unidos qué es, síntomas y cómo se contagia variante**: [Link](https://rpp.pe/mundo/actualidad/influenzavirus-a-subtipo-h3n2-gripe-alerta-a-europa-y-estados-unidos-que-es-sintomas-y-como-se-contagia-variante-noticia-1667363)
+- **Gripe H3N2 pone en alerta a Reino Unido con uso de mascarillas y cierre de escuelas**: [Link](https://n60.pe/gripe-h3n2-pone-en-alerta-a-reino-unido-con-uso-de-mascarillas-y-cierre-de-escuelas/)
+- **Alerta mundial por gripe agresiva H3N2 que desborda hospitales en EE.UU. y Europa**: [Link](https://www.expreso.com.pe/mundo/alerta-mundial-por-gripe-agresiva-h3n2-que-desborda-hospitales-en-ee-uu-y-europa-organizacion-mundial-de-la-salud-h3n2-andrew-pekosz-noticia/1246149/)
+
+
+### cruzeiro - corinthians (N/A, 10/12/2025 21:04 Lima)
+
+- **Dono do Cruzeiro, Pedro Lourenço é recepcionado por torcedores em chegada ao Mineirão**: [Link](https://www.otempo.com.br/sports/cruzeiro/2025/12/10/dono-do-cruzeiro-pedro-lourenco-e-recepcionado-por-torcedores-em-chegada-ao-mineirao)
+- **Cruzeiro x Corinthians: titular se lesiona, é substituído e preocupa**: [Link](https://www.cnnbrasil.com.br/esportes/futebol/copa-do-brasil/cruzeiro-x-corinthians-titular-se-lesiona-e-substituido-e-preocupa/)
+- **Aos 21 min do 1º tempo - gol de cabeça de Memphis Depay do Corinthians contra o Cruzeiro**: [Link](https://ge.globo.com/futebol/video/aos-21-min-do-1o-tempo-gol-de-cabeca-de-memphis-depay-do-corinthians-contra-o-cruzeiro-14171082.ghtml)
+
+
+### huachipato (N/A, 10/12/2025 21:04 Lima)
+
+- **Huachipato y Deportes Limache, cara a cara por el título de la Copa Chile 2025**: [Link](https://www.espn.com.pe/futbol/chile/nota/_/id/16067930/huachipato-vs-deportes-limache-por-la-final-de-la-copa-chile-2025-equipo-fecha-y-hora)
+- **🏆Champions: Huachipato crowned in the 2025 Copa Chile**: [Link](https://sports.yahoo.com/articles/champions-huachipato-crowned-2025-copa-013000950.html)
+- **🏆Champions: Huachipato crowned in the 2025 Copa Chile**: [Link](https://onefootball.com/en/news/champions-huachipato-crowned-in-the-2025-copa-chile-42079414)
+
+
+### onpe lugar de votacion (N/A, 10/12/2025 21:04 Lima)
+
+- **Más de 2 millones ya eligieron su local de votación: esa opción estará vigente solo hasta este domingo 14**: [Link](https://larepublica.pe/politica/2025/12/10/mas-de-2-millones-ya-eligieron-su-local-de-votacion-esa-opcion-estara-vigente-solo-hasta-este-domingo-14-hnews-806790)
+- **Elecciones 2026: Más de 24 mil electores cambiaron su local de votación en Huamanga**: [Link](https://jornada.com.pe/elecciones-2026-mas-de-24-mil-electores-cambiaron-su-local-de-votacion-en-huamanga/)
+- **Elecciones 2026: Este domingo 14 de dicembre vence plazo para elegir local de votación y millones podrían quedar con asignación automática**: [Link](https://www.infobae.com/peru/2025/12/10/elecciones-2026-este-domingo-14-de-dicembre-vence-plazo-para-elegir-local-de-votacion-y-millones-podrian-quedar-con-asignacion-automatica/)
+
+
+### cruzeiro vs corinthians (N/A, 10/12/2025 21:04 Lima)
+
+- **Dono do Cruzeiro, Pedro Lourenço é recepcionado por torcedores em chegada ao Mineirão**: [Link](https://www.otempo.com.br/sports/cruzeiro/2025/12/10/dono-do-cruzeiro-pedro-lourenco-e-recepcionado-por-torcedores-em-chegada-ao-mineirao)
+- **Cruzeiro x Corinthians: titular se lesiona, é substituído e preocupa**: [Link](https://www.cnnbrasil.com.br/esportes/futebol/copa-do-brasil/cruzeiro-x-corinthians-titular-se-lesiona-e-substituido-e-preocupa/)
+- **Aos 21 min do 1º tempo - gol de cabeça de Memphis Depay do Corinthians contra o Cruzeiro**: [Link](https://ge.globo.com/futebol/video/aos-21-min-do-1o-tempo-gol-de-cabeca-de-memphis-depay-do-corinthians-contra-o-cruzeiro-14171082.ghtml)
+
+
+### independiente del valle vs (N/A, 10/12/2025 21:04 Lima)
+
+- **LDU Quito vs. Universidad Católica - Boxscore - Live Score - December 21, 2025**: [Link](https://www.foxsports.com/soccer/ecuadorian-liga-pro-ldu-quito-vs-u-catolica-ecu-dec-21-2025-game-boxscore-647714?tab=boxscore)
+- **How to watch today's Independiente del Valle vs LDU Quito LigaPro Serie A game: Live stream, TV channel, and start time**: [Link](https://www.goal.com/en-us/news/where-to-watch-independiente-del-valle-v-ldu-quito-live-stream-online-tv/blt2e8a27f206d092d3)
+- **Orense faces LDU Quito tonight in championship clash, can they bridge the 14-point gap and pull off home upset?**: [Link](https://www.red94.net/news/22170-orense-faces-ldu-quito-tonight-in-crucial-ecuador-ligapro-championship-clash/)
+
+
+### victor osimhen (N/A, 10/12/2025 21:04 Lima)
+
+- **'It's tough' - Ex-Senegal star says Super Eagles' Afcon quest complicated after WCQ exit**: [Link](https://allnigeriasoccer.com/its-tough-ex-senegal-star-says-super-eagles-afcon-quest-complicated-after-wcq-exit)
+- **Don’t rely too much on Osimhen, Babangida tells Chelle**: [Link](https://punchng.com/?p=2006975)
+- **Femi Ajilore Remarks: Winning AFCON Would Be Huge Consolation For Nigerian Football Fans**: [Link](https://www.sports247.ng/femi-ajilore-remarks-winning-afcon-would-be-huge-consolation-for-nigerian-football-fans/)
+
+
 ### borussia dortmund vs (N/A, 10/12/2025 15:31 Lima)
 
 - **Erstes Duell mit Bodø – BVB will den nächsten Heimsieg**: [Link](https://www.bvb.de/de/de/aktuelles/news/news.html/2025/12/9/Erstes-Duell-mit-Bod-BVB-will-den-naechsten-Heimsieg.html)
@@ -952,73 +1022,5 @@ Sin noticias relacionadas disponibles.
 ### niza vs (N/A, 07/12/2025 11:28 Lima)
 
 - **Liga de Francia: Nice quiere volver a festejar frente a Angers**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-de-francia-nice-quiere-volver-a-festejar-frente-a-angers-noticia-1666819)
-
-
-### cb canarias - real madrid (N/A, 07/12/2025 07:47 Lima)
-
-- **La Laguna Tenerife-Real Madrid: el equipo busca el triunfo en su cuarta salida consecutiva**: [Link](https://www.realmadrid.com/es-ES/noticias/baloncesto/primer-equipo/previas/la-laguna-tenerife-real-madrid-07-12-2025)
-- **Duelo en las alturas para continuar la racha**: [Link](https://www.24segundosenblanco.es/2025/12/duelo-en-las-alturas-para-continuar-la-racha/)
-- **El CB Canarias recibe al visitante más desagradable en el Santiago Martín**: [Link](https://www.eldia.es/deportes/cb-canarias/2025/12/06/cb-canarias-recibe-visitante-desagradable-124525995.html)
-
-
-### f1 (N/A, 07/12/2025 07:47 Lima)
-
-- **What To Watch For in the Abu Dhabi Grand Prix**: [Link](https://www.formula1.com/en/latest/article/title-permutations-and-team-tactics-what-to-watch-for-in-the-abu-dhabi-title.4y0RGRxoAbcyI7bkWLSabc)
-- **Abu Dhabi Grand Prix: Max Verstappen beats Lando Norris and Oscar Piastri to pole position for title decider**: [Link](https://www.bbc.com/sport/formula1/articles/cd6xgjgx9ddo)
-- **F1 Abu Dhabi GP live commentary and updates - Race**: [Link](https://www.motorsport.com/f1/live-text/f1-abu-dhabi-gp-live-commentary-and-updates-race-1126198/1126199/)
-
-
-### elche c. f. - girona (N/A, 07/12/2025 07:47 Lima)
-
-- **LaLiga EA Sports: Girona visita a Elche por la fecha 15**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-girona-visita-a-elche-por-la-fecha-15-noticia-1666815)
-- **✅ Cremonese v Lecce line-ups: Vardy, Bonazzoli start, Camarda out?**: [Link](https://sports.yahoo.com/articles/cremonese-v-lecce-line-ups-103500033.html)
-- **Football Tracker: Cremonese welcome Lecce in Serie A as Salah fallout continues**: [Link](https://www.flashscore.com/news/football-tracker-cremonese-welcome-lecce-in-serie-a-as-salah-fallout-continues/f3F8qdTG/)
-
-
-### cuándo juega el real madrid (N/A, 07/12/2025 07:47 Lima)
-
-- **Real Madrid-Celta, en directo: LaLiga EA Sports, hoy en vivo**: [Link](https://as.com/futbol/primera/real-madrid-celta-en-directo-laliga-ea-sports-hoy-en-vivo-f202512-d/)
-- **Xabi Alonso tira de Joan Martínez ante el drama defensivo**: [Link](https://www.marca.com/futbol/real-madrid/2025/12/06/xabi-alonso-tira-joan-martinez-drama-defensivo.html)
-- **Convocatoria del Real Madrid contra el Celta**: [Link](https://www.realmadrid.com/es-ES/noticias/futbol/primer-equipo/convocatorias/convocatoria-del-real-madrid-contra-el-celta-06-12-2025)
-
-
-### fonavi 2025 (N/A, 07/12/2025 07:47 Lima)
-
-- **Malas noticias para cobro del Fonavi: Gobierno de Jerí busca que Lista 22 tenga pocos beneficiarios**: [Link](https://www.infobae.com/peru/2025/12/02/malas-noticias-para-el-fonavi-gobierno-de-jeri-busca-pagar-a-menos-beneficiarios/)
-- **Pago Fonavi, diciembre 2025: LINK para verificar con DNI si cobras la devolución de aportes en Banco de la Nación**: [Link](https://libero.pe/tiempoextra/2025/12/06/pago-fonavi-diciembre-2025-link-verificar-dni-cobras-devolucion-de-aportes-en-banco-de-nacion-130932)
-- **¿Eres beneficiario? Fonavi 2025: consulta AQUÍ con tu DNI si accedes a la devolución de aportes**: [Link](https://willax.pe/actualidad/beneficiario-fonavi-2025-consulta-dni-devolucion-aportes-willax)
-
-
-### fulham vs (N/A, 07/12/2025 07:47 Lima)
-
-- **Premier League predictions and best bets: Fulham to beat flagging Crystal Palace**: [Link](https://www.skysports.com/football/news/11095/13479765/premier-league-predictions-and-best-bets-fulham-to-beat-flagging-crystal-palace)
-- **EPL: Chukwueze banks on home support to beat Crystal Palace**: [Link](https://dailypost.ng/2025/12/06/epl-chukwueze-banks-on-home-support-to-beat-crystal-palace/)
-- **Nigerian trio face another derby weekend**: [Link](https://punchng.com/nigerian-trio-face-another-derby-weekend/)
-
-
-### grupo d mundial 2026 (N/A, 07/12/2025 07:47 Lima)
-
-- **Mundial 2026: el camino a la gloria, con grupos de la muerte, cruces pesados y un choque de gigantes que podría llegar pronto**: [Link](https://cnnespanol.cnn.com/2025/12/06/deportes/mundial-2026-sorteo-calendario-grupos-muerte-orix)
-- **Cuáles son las selecciones favoritas para ganar el Mundial 2026, según las casas de apuestas, las estadísticas y los expertos**: [Link](https://www.bbc.com/mundo/articles/c898e48ny5xo)
-- **España jugará en Atlanta los dos primeros partidos del Mundial 2026 contra Cabo Verde y Arabia Saudí**: [Link](https://elpais.com/deportes/mundial-futbol/2025-12-06/espana-jugara-en-atlanta-los-dos-primeros-partidos-del-mundial-2026-contra-cabo-verde-y-arabia-saudi.html)
-
-
-### cremonese - lecce (N/A, 07/12/2025 07:47 Lima)
-
-Sin noticias relacionadas disponibles.
-
-
-### f1 horarios (N/A, 07/12/2025 07:47 Lima)
-
-- **La dramática definición de la F1 tiene tres nombres propios, pero también un lugar clave: la primera curva**: [Link](https://www.lanacion.com.ar/deportes/automovilismo/colapinto-largara-20-en-abu-dhabi-donde-norris-verstappen-y-piastri-protagonizaran-un-dramatica-nid06122025/)
-- **Max Verstappen: "Intentaré ganar la carrera y el campeonato"**: [Link](https://www.espn.com.ar/deporte-motor/f1/nota/_/id/16051873/max-verstappen-intentare-ganar-la-carrera-y-el-campeonato)
-- **¿A qué hora es el GP de Abu Dhabi de F1? TV, cómo y dónde ver la carrera que decidirá el Mundial**: [Link](https://as.com/motor/formula_1/a-que-hora-es-el-gp-de-abu-dhabi-de-f1-tv-como-y-donde-ver-la-carrera-que-decidira-el-mundial-entre-norris-verstappen-y-piastri-f202512-n/)
-
-
-### la republica (N/A, 07/12/2025 07:47 Lima)
-
-- **Adiós al artista Carlos Runcie Tanaka**: [Link](https://caretas.pe/cultura/adios-al-artista-runcie-tanaka/)
-- **Falleció Carlos Runcie Tanaka, destacado artista peruano, a los 67 años**: [Link](https://elcomercio.pe/luces/arte/fallecio-carlos-runcie-tanaka-destacado-artista-peruano-a-los-67-anos-noticia/)
-- **Carlos Runcie Tanaka (1958 – 2025)**: [Link](https://larepublica.pe/cultural/2025/12/07/carlos-runcie-tanaka-1958-2025-hnews-154315)
 
 
