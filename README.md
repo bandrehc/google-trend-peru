@@ -1,3 +1,24 @@
+### gripe h3n2 peru sintomas (N/A, 12/12/2025 07:54 Lima)
+
+- **Gripe H3N2 en Perú: ¿Qué es, cuáles son los síntomas y cómo diferenciarla?**: [Link](https://www.infobae.com/peru/2025/12/11/gripe-h3n2-en-peru-que-es-cuales-son-los-sintomas-y-como-diferenciarla/)
+- **Influenza A H3N2: Minsa señala riesgo leve a moderado y activa vigilancia epidemiológica por fin de año**: [Link](https://elcomercio.pe/lima/influenza-a-h3n2-minsa-senala-riesgo-leve-a-moderado-y-activa-vigilancia-epidemiologica-por-fin-de-ano-ultimas-noticia/)
+- **Sistema de salud en crisis: Hospitales colapsan mientras gripe H3N2 amenaza con llegar al país**: [Link](https://www.atv.pe/noticia/sistema-de-salud-en-crisis-hospitales-colapsan-mientras-gripe-h3n2-amenaza-con-llegar-al-pais/)
+
+
+### epic store (N/A, 12/12/2025 07:54 Lima)
+
+- **Out of Words creators fueled by ongoing positive fan reaction**: [Link](https://store.epicgames.com/es-MX/news/out-of-words-creators-on-new-trailer-emotional-reaction-to-game-reveal)
+- **Out of Words announced for Nintendo Switch 2**: [Link](https://nintendoeverything.com/out-of-words-announced-for-nintendo-switch-2/)
+- **Out of Words adds Switch 2 version**: [Link](https://www.gematsu.com/2025/12/out-of-words-adds-switch-2-version)
+
+
+### epicgames (N/A, 12/12/2025 07:54 Lima)
+
+- **Epic is letting you grab this critically acclaimed roguelite for free**: [Link](https://www.androidauthority.com/epic-games-store-free-dead-cells-3624566/)
+- **Out of Words creators fueled by ongoing positive fan reaction**: [Link](https://store.epicgames.com/es-MX/news/out-of-words-creators-on-new-trailer-emotional-reaction-to-game-reveal)
+- **Out of Words announced for Nintendo Switch 2**: [Link](https://nintendoeverything.com/out-of-words-announced-for-nintendo-switch-2/)
+
+
 ### gripe h3n2 sintomas (N/A, 12/12/2025 03:36 Lima)
 
 - **Gripe H3N2 en Perú: ¿Qué es, cuáles son los síntomas y cómo diferenciarla?**: [Link](https://www.infobae.com/peru/2025/12/11/gripe-h3n2-en-peru-que-es-cuales-son-los-sintomas-y-como-diferenciarla/)
@@ -1004,26 +1025,5 @@ Sin noticias relacionadas disponibles.
 - **Serie B, 15ª giornata: il Frosinone aggancia il Monza in vetta alla classifica**: [Link](https://www.tuttomercatoweb.com/serie-b/serie-b-15a-giornata-il-frosinone-aggancia-il-monza-in-vetta-alla-classifica-2176984)
 - **Serie B: i risultati della 15esima giornata**: [Link](https://www.diretta.it/news/calcio-serie-b-serie-b-il-frosinone-agguanta-in-vetta-il-monza-vittorie-esterne-per-catanzaro-e-reggiana/fPptPfpI/)
 - **Serie B: avanti il Monza contro il Sudtirol, Venezia sotto ad Avellino dopo i primi 45. I risultati parziali**: [Link](https://www.ilovepalermocalcio.com/serie-b-avanti-il-monza-contro-il-sudtirol-venezia-sotto-ad-avellino-dopo-i-primi-45-i-risultati-parziali/)
-
-
-### pisa - parma (N/A, 08/12/2025 11:34 Lima)
-
-- **Serie A: vittoria-salvezza per il Parma, espugnata Pisa**: [Link](https://www.sportmediaset.mediaset.it/calcio/seriea/serie-a-vittoria-salvezza-per-il-parma-espugnata-pisa_106883295-202502k.shtml)
-- **Parma, a Pisa è scontro salvezza**: [Link](https://www.gazzettadiparma.it/il-parma/2025/12/08/news/parma-a-pisa-e-scontro-salvezza-910709/)
-- **Chi è il rigorista del Parma? Benedyczak ha tirato con Pellegrino in campo, la gerarchia**: [Link](https://www.goal.com/it/liste/chi-e-rigorista-parma-benedyczak-pellegrino-gerarchia/blt76d634fa3ba7d869)
-
-
-### pisa vs parma (N/A, 08/12/2025 11:34 Lima)
-
-- **Pisa-Parma Calcio 1913 - Serie A 2025/2026 Statistical Preview**: [Link](https://www.whoscored.com/matches/1901287/preview/italy-serie-a-2025-2026-pisa-parma-calcio-1913)
-- **THE CHALLENGE WITH THE DUCALI. A seasonal crossroads. The Arena will be packed.**: [Link](https://sport.quotidiano.net/en/calcio/pisa/la-sfida-coi-ducali-crocevia-7bca3c6a)
-- **SERIE A ENILIVE | SQUAD FOR PISA VS. PARMA**: [Link](https://www.parmacalcio1913.com/en/main-news/serie-a-enilive-pisa-parma-squad/)
-
-
-### richard concepción carhuancho (N/A, 08/12/2025 11:34 Lima)
-
-- **LO DIO TODO | El juez Richard Concepción Carhuancho sorprendió en el evento “Vivo por el Derecho” al interpretar la popular canción “Triciclo Perú” de Los Mojarras junto a su hijo. Durante su presentación, también dedicó un mensaje a los asistentes: “Qu**: [Link](https://www.facebook.com/ElBuho.pe/posts/lo-dio-todo-el-juez-richard-concepci%C3%B3n-carhuancho-sorprendi%C3%B3-en-el-evento-vivo-p/1511672637160960/)
-- **“¡Para el Perú!”: Juez Richard Concepción Carhuancho debuta como cantante con Triciclo Perú de Los Mojarras**: [Link](https://www.infobae.com/peru/2025/12/07/juez-richard-concepcion-carhuancho-debuta-como-cantante-con-triciclo-peru-de-los-mojarras-en-evento-juridico/)
-- **Juez Carhuancho canta rock de protesta por los jóvenes del Perú (VIDEO)**: [Link](https://elbuho.pe/2025/12/juez-carhuancho-canta-rock-de-protesta-por-los-jovenes-del-peru-video/)
 
 
