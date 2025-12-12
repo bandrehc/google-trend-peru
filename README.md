@@ -1,3 +1,10 @@
+### gripe h3n2 sintomas (N/A, 12/12/2025 03:36 Lima)
+
+- **Gripe H3N2 en Perú: ¿Qué es, cuáles son los síntomas y cómo diferenciarla?**: [Link](https://www.infobae.com/peru/2025/12/11/gripe-h3n2-en-peru-que-es-cuales-son-los-sintomas-y-como-diferenciarla/)
+- **Sistema de salud en crisis: Hospitales colapsan mientras gripe H3N2 amenaza con llegar al país**: [Link](https://www.atv.pe/noticia/sistema-de-salud-en-crisis-hospitales-colapsan-mientras-gripe-h3n2-amenaza-con-llegar-al-pais/)
+- **Europa registra brote adelantado de gripe H3N2 con fuerte impacto en Reino Unido y otros países**: [Link](https://canaln.pe/internacionales/europa-enfrenta-aumento-gripe-h3n2-antes-lo-habitual-n488867)
+
+
 ### kings - nuggets (N/A, 11/12/2025 23:37 Lima)
 
 - **Denver Nuggets vs Sacramento Kings Prediction, Pick, Odds -- 12/11**: [Link](https://www.actionnetwork.com/nba/denver-nuggets-vs-sacramento-kings-prediction-pick-odds-thursday-december-11)
@@ -1018,12 +1025,5 @@ Sin noticias relacionadas disponibles.
 - **LO DIO TODO | El juez Richard Concepción Carhuancho sorprendió en el evento “Vivo por el Derecho” al interpretar la popular canción “Triciclo Perú” de Los Mojarras junto a su hijo. Durante su presentación, también dedicó un mensaje a los asistentes: “Qu**: [Link](https://www.facebook.com/ElBuho.pe/posts/lo-dio-todo-el-juez-richard-concepci%C3%B3n-carhuancho-sorprendi%C3%B3-en-el-evento-vivo-p/1511672637160960/)
 - **“¡Para el Perú!”: Juez Richard Concepción Carhuancho debuta como cantante con Triciclo Perú de Los Mojarras**: [Link](https://www.infobae.com/peru/2025/12/07/juez-richard-concepcion-carhuancho-debuta-como-cantante-con-triciclo-peru-de-los-mojarras-en-evento-juridico/)
 - **Juez Carhuancho canta rock de protesta por los jóvenes del Perú (VIDEO)**: [Link](https://elbuho.pe/2025/12/juez-carhuancho-canta-rock-de-protesta-por-los-jovenes-del-peru-video/)
-
-
-### sorteo la tinka hoy (N/A, 08/12/2025 07:54 Lima)
-
-- **La Tinka: descubre los números ganadores del sorteo del 07 de diciembre | nnav | video | amtv | VIDEOS**: [Link](https://elcomercio.pe/videos/entretenimiento/la-tinka-descubre-los-numeros-ganadores-del-sorteo-del-07-de-diciembre-nnav-video-amtv-noticia/)
-- **La Tinka: mira los resultados del sorteo de este 7 de diciembre y descubre si tu combinación ganó el premio mayor**: [Link](https://www.infobae.com/peru/2025/12/08/resultados-ganadores-de-la-tinka-del-domingo-7-de-diciembre/)
-- **Resultados de La Tinka del domingo 7 de diciembre: números ganadores del Pozo Millonario**: [Link](https://depor.com/peru/la-tinka-hoy-domingo-7-de-diciembre-en-vivo-resultados-numeros-ganadores-del-ultimo-sorteo-pozo-millonario-boliyapa-resultado-si-o-si-intralot-peru-noticia/)
 
 
