@@ -1,3 +1,72 @@
+### angers - nantes (N/A, 12/12/2025 15:29 Lima)
+
+- **DIRECT. Angers-Nantes: suivez le match d'ouverture de la 16e journée de Ligue 1 en live**: [Link](https://rmcsport.bfmtv.com/football/ligue-1/direct-angers-nantes-suivez-le-match-d-ouverture-de-la-16e-journee-de-ligue-1-en-live_LS-202512120747.html)
+- **L’Angers SCO a un plan anti-nantais**: [Link](https://www.sofoot.com/breves/langers-sco-a-un-plan-anti-nantais)
+- **DIRECT - FC Nantes : dos au mur, les Jaunes partent jouer un derby à Angers**: [Link](https://www.francebleu.fr/sports/football/direct-fc-nantes-dos-au-mur-les-jaunes-partent-jouer-un-derby-a-angers-6030893)
+
+
+### leipzig (N/A, 12/12/2025 15:29 Lima)
+
+- **Sachsen: Wieder Vogelgrippe-Fälle im Zoo Leipzig: Diesmal bei den Pelikanen**: [Link](https://www.tagesschau.de/inland/regional/sachsen/mdr-wieder-vogelgrippe-faelle-im-zoo-leipzig-diesmal-bei-den-pelikanen-100.html)
+- **Pongoland und Gondwanaland wieder geöffnet**: [Link](https://www.sachsen-fernsehen.de/mediathek/video/pongoland-und-gondwanaland-wieder-geoeffnet/)
+- **Virus-Verdacht am Zoo Leipzig! Besucher bekommen das zu spüren**: [Link](https://www.thueringen24.de/umland/article300599453/zoo-leipzig-vogel-grippe-verdach-besucher.html)
+
+
+### lecce - pisa (N/A, 12/12/2025 15:29 Lima)
+
+- **LIVE Lecce-Pisa 0-0 Serie A 2025/2026: Scontro in area tra Moreo e Tiago Gabriel**: [Link](https://sport.virgilio.it/dirette/live/serie-a/12-12-2025/lecce-pisa/2558652/)
+- **Tutte le news sul calcio in Diretta**: [Link](https://www.diretta.it/news/calcio-live-news-si-rialza-il-sipario-sui-campionati-in-campo-lecce-pisa-0-0/vNV8A0Sb/)
+- **Lecce-Pisa: ecco i convocati per stasera**: [Link](https://www.corrieresalentino.it/2025/12/lecce-pisa-ecco-i-convocati-per-stasera/)
+
+
+### palermo vs (N/A, 12/12/2025 15:29 Lima)
+
+- **Al Barbera una sfida d'altri tempi: quando Palermo-Samp valeva la Champions... Con Messina Denaro in tribuna**: [Link](https://www.gazzetta.it/Calcio/Serie-B/12-12-2025/palermo-samp-in-serie-b-quindici-anni-fa-valeva-un-posto-in-champions.shtml)
+- **Qui Sampdoria: al Barbera per curare il mal di trasferta**: [Link](https://forzapalermo.it/qui-sampdoria-al-barbera-per-curare-il-mal-di-trasferta)
+- **Sasà e un Masterchef a Tgs Studio Stadio**: [Link](https://palermo.gds.it/articoli/calcio/2025/12/12/sasa-e-un-masterchef-a-tgs-studio-stadio-7f07da15-b8f1-4c0d-8f92-6b98a48ee84b/)
+
+
+### real sociedad - girona (N/A, 12/12/2025 15:29 Lima)
+
+- **Real Sociedad - Girona, en directo: LaLiga EA Sports, en vivo**: [Link](https://as.com/futbol/primera/real-sociedad-girona-en-directo-laliga-ea-sports-en-vivo-f202512-d/)
+- **Apuestas y Pronóstico del Real Sociedad vs Girona 12/12/25**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/2025/diciembre/pronostico-real-sociedad-vs-girona-12-12-25)
+- **Un reto para demostrar fortaleza**: [Link](https://www.gironafc.cat/es/noticias/un-reto-para-demostrar-fortaleza)
+
+
+### barça - olympiacos (N/A, 12/12/2025 15:29 Lima)
+
+- **Apuestas y Pronóstico del Barcelona vs Olympiakos 12/12/25**: [Link](https://www.oddschecker.com/es/pronosticos/otros-deportes/2025/diciembre/pronostico-barcelona-vs-olympiakos-12-12-25)
+- **El reencuentro de Xavi Pascual y Georgios Bartzokas**: [Link](https://www.lavanguardia.com/deportes/baloncesto/20251211/11352618/reencuentro-xavi-pascual-georgios-bartzokas.html)
+- **Apoyo de última hora en el Olympiacos en su visita al Palau**: [Link](https://www.mundodeportivo.com/baloncesto/euroliga/20251212/1002585739/apoyo-ultima-hora-olympiacos-visita-palau.html)
+
+
+### fc union berlin - rb leipzig (N/A, 12/12/2025 15:29 Lima)
+
+- **Bundesliga LIVE: Ilic erneut nur auf der Bank - Werner im Kader von RB**: [Link](https://www.flashscore.de/news/fu-ball-bundesliga-bundesliga-live-ilic-erneut-nur-auf-der-bank-werner-im-kader-von-rb/bDec9K15/)
+- **Baumgart genervt: "Das geht mir richtig auf die Eier!"**: [Link](https://www.sport1.de/tv-video/video/baumgart-genervt-das-geht-mir-richtig-auf-die-eier__babe488e-5fc7-4eb0-85dd-88f2fcd6592d)
+- **Union Berlin - RB Leipzig im Liveticker: Ostduell an der Alten Försterei – Leipzig ohne Nusa**: [Link](https://www.welt.de/sport/fussball/bundesliga/article693c5ed1f679420e000b2eca/union-berlin-rb-leipzig-im-liveticker-ostduell-an-der-alten-foersterei-leipzig-ohne-nusa.html)
+
+
+### argelia vs (N/A, 12/12/2025 15:29 Lima)
+
+- **Argelia se enfrentará a los Emiratos Árabes Unidos en la Copa Árabe el 12 de diciembre de 2025 en el estadio Al Bait**: [Link](https://www.ucvradio.pe/mas-actualidad/argelia-se-enfrentara-a-los-emiratos-arabes-unidos-en-la-copa-arabe-el-12-de-diciembre-de-2025-en-el-estadio-al-bait/74292/)
+- **Copa Árabe FIFA 2025: ¿Dónde ver en vivo gratis el partido Argelia vs Emiratos?**: [Link](https://www.elpueblo.pe/deportes/copa-arabe-fifa-2025-donde-ver-en-vivo-gratis-el-partido-argelia-vs-emiratos/160646/)
+
+
+### precio del dólar en perú hoy compra y venta (N/A, 12/12/2025 15:29 Lima)
+
+- **Precio del dólar baja: Así abre el tipo de cambio hoy 12 de diciembre en Perú**: [Link](https://www.infobae.com/peru/2025/12/12/dolar-cotizacion-de-apertura-hoy-12-de-diciembre-en-peru/)
+- **¿Cuál es la cotización del dólar hoy viernes 12 de diciembre del 2025?**: [Link](https://andina.pe/agencia/noticia-cual-es-cotizacion-del-dolar-hoy-viernes-12-diciembre-del-2025-1055375.aspx)
+- **Precio del dólar del jueves 11 de diciembre: a cuánto cerró el tipo de cambio**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-2025-a-cuanto-esta-el-dolar-el-jueves-11-de-diciembre-y-tipo-de-cambio-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
+
+
+### lecce vs pisa (N/A, 12/12/2025 15:29 Lima)
+
+- **Serie A: Lecce vs. Pisa – Confirmed line-ups and updates**: [Link](https://ca.sports.yahoo.com/news/serie-lecce-vs-pisa-confirmed-191000528.html)
+- **Lecce - Pisa: Live Score, Stream and H2H results 12/12/2025**: [Link](https://tribuna.com/en/match/102689453/)
+- **Lecce vs Pisa ignites tonight's biggest survival battle, one team could escape the drop with this victory**: [Link](https://www.red94.net/news/48902-lecce-faces-pisa-in-desperate-serie-a-relegation-battle-tonight-both-teams-fight/)
+
+
 ### iron maiden peru (N/A, 12/12/2025 11:32 Lima)
 
 - **Iron Maiden, la leyenda del heavy metal, regresa a Perú con su gira mundial por los 50 años de la banda**: [Link](https://rpp.pe/musica/conciertos/iron-maiden-la-leyenda-del-heavy-metal-regresa-a-peru-con-su-gira-mundial-por-los-50-anos-de-la-banda-noticia-1667613)
@@ -955,75 +1024,5 @@ Sin noticias relacionadas disponibles.
 - **“It: Welcome to Derry” Capítulo 7: Hora de estreno confirmado en HBO Max | tdpe | TVMAS**: [Link](https://elcomercio.pe/tvmas/series/it-welcome-to-derry-capitulo-7-hora-de-estreno-confirmado-hbo-max-tdpe-noticia/)
 - **‘It: Welcome to Derry’: Andy Muschietti habla sobre la escena más aterradora de la temporada**: [Link](https://www.ecartelera.com/noticias/it-welcome-to-derry-andy-muschietti-habla-sobre-la-escena-82654/)
 - **‘It: Bienvenido al Starry’ Shift Surethourte Por qué ‘it’ este ‘it’ este bebé forma en el episodio 7 y si las estrellas de la película se escucharán pronto | HO, IT: Bienvenido a Derry, TV | Noticias y chismes Entretenimiento, fotos y vídeos.**: [Link](https://aeroagora.com.br/entretenimento/it-bienvenido-al-starry-shift-surethourte-por-que-it-este-it-este-bebe-forma-en-el-episodio-7-y-si-las-estrellas-de-la-pelicula-se-escucharan-pronto-ho-it-bienvenido-a-derry-tv-noticias/9186/)
-
-
-### gimnasia - estudiantes (N/A, 08/12/2025 15:29 Lima)
-
-- **Gimnasia y Estudiantes se enfrentarán en un histórico clásico por el pase a la final del Torneo Clausura: hora, TV y formaciones**: [Link](https://www.infobae.com/deportes/2025/12/08/gimnasia-y-estudiantes-se-enfrentaran-en-un-historico-clasico-por-el-pase-a-la-final-del-torneo-clausura-hora-tv-y-formaciones/)
-- **Gimnasia vs. Estudiantes, hoy EN VIVO por el Torneo Clausura: horario, cómo ver y formaciones**: [Link](https://www.ole.com.ar/futbol-primera/gimnasia-vs-estudiantes-semifinal-clasico-plata-torneo-clausura-2025-minuto-minuto_0_CeAljZouH5.html)
-- **Partido gratis, Estudiantes vs. Gimnasia: ver ESPN, TNT Sports y Disney Plus por internet**: [Link](https://depor.com/futbol-internacional/argentina/pelota-libre-tv-en-vivo-estudiantes-vs-gimnasia-gratis-hoy-ver-espn-en-directo-canales-de-tnt-sports-disney-plus-directv-online-liga-profesional-video-noticia/)
-
-
-### torino fc (N/A, 08/12/2025 15:29 Lima)
-
-- **✅ Le UFFICIALI di Torino-Milan: la scelta su Pulisic, Nkunku e Zapata**: [Link](https://onefootball.com/it/notizie/le-ufficiali-di-torino-milan-la-scelta-su-pulisic-nkunku-e-zapata-42067328)
-- **Vlasic ritrova Ricci: è duello a centrocampo**: [Link](https://www.toro.it/toro/primo-piano/vlasic-rincontra-ricci-e-duello-a-centrocampo-dicembre-2025/1406284/)
-- **Saelemaekers: "Torino in casa sempre difficile: serve essere forti fisicamente e mentalmente"**: [Link](https://www.tuttomercatoweb.com/serie-a/saelemaekers-torino-in-casa-sempre-difficile-serve-essere-forti-fisicamente-e-mentalmente-2177116)
-
-
-### milan vs (N/A, 08/12/2025 15:29 Lima)
-
-- **Milan busca seguir en la punta en su visita a Torino**: [Link](https://www.espn.com.pe/futbol/italia/nota/_/id/16049592/torino-vs-milan-fecha-14-serie-a-equipo-fecha-hora-y-tv-en-vivo)
-- **Serie A: Milan necesita el triunfo ante Torino para llegar a la cima**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-milan-necesita-el-triunfo-ante-torino-para-llegar-a-la-cima-noticia-1666951)
-- **Vista previa de la Serie A: Torino vs Milán – Noticias del equipo, alineaciones y predicciones**: [Link](https://www.elpueblo.pe/deportes/vista-previa-de-la-serie-a-torino-vs-milan-noticias-del-equipo-alineaciones-y-predicciones/156450/)
-
-
-### wolves - manchester united (N/A, 08/12/2025 15:29 Lima)
-
-- **Manchester United vs Wolves Confirmed Lineups for December 8**: [Link](https://lastwordonsports.com/football/2025/12/08/manchester-united-vs-wolves-confirmed-lineups-december/)
-- **Where to watch Wolverhampton vs Manchester United live in the USA: 2025/2026 Premier League**: [Link](https://bolavip.com/en/soccer/where-to-watch-wolverhampton-vs-manchester-united-live-in-the-usa-2025-2026-premier-league)
-- **Bryan Mbeumo has already done against Wolves what Ruben Amorim needs from him at Man Utd**: [Link](https://www.unitedinfocus.com/news/bryan-mbeumo-has-already-done-against-wolves-what-ruben-amorim-needs-from-him-at-man-utd/)
-
-
-### osasuna - levante (N/A, 08/12/2025 15:29 Lima)
-
-- **LaLiga EA Sports: Levante saldrá a buscar los puntos ante Osasuna para salir del fondo de la tabla**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-levante-saldra-a-buscar-los-puntos-ante-osasuna-para-salir-del-fondo-de-la-tabla-noticia-1666956)
-- **Pronóstico Osasuna - Levante. LaLiga | 08/12/2025**: [Link](https://gainblers.com/pe/pronosticos/futbol/espana/liga-primera-division/pronostico-osasuna-levante-08-12-2025/)
-- **Where to Watch CA Osasuna vs. Levante UD: TV Channel, Start Time and Live Stream**: [Link](https://www.bleachernation.com/how-to-watch/2025/12/07/where-to-watch-ca-osasuna-vs-levante-ud-tv-channel-start-time-and-live-stream/)
-
-
-### manchester united vs. west ham (N/A, 08/12/2025 15:29 Lima)
-
-- **World Cup winner Guido Rodríguez benched in Premier League**: [Link](https://onefootball.com/en/news/world-cup-winner-guido-rodriguez-benched-in-premier-league-42067971)
-- **Guido Rodriguez handed West Ham lifeline as £13m transfer update emerges at Napoli**: [Link](https://www.westhamzone.com/opinion/guido-rodriguez-handed-west-ham-lifeline-as-13m-transfer-update-emerges-at-napoli/)
-- **Man Utd 2-1 West Ham: Dominique Janssen hits free-kick winner**: [Link](https://www.bbc.com/sport/football/live/cn81v0l634xt)
-
-
-### lazio vs. milan (N/A, 08/12/2025 15:29 Lima)
-
-- **Pulisic returns but Lazio bounce Milan from Coppa Italia**: [Link](https://www.espn.com/soccer/story/_/id/47204656/christian-pulisic-ac-milan-lazio-coppa-italia)
-- **Sarri wins chess game against Allegri: Tactical analysis of Lazio 1-0 AC Milan**: [Link](https://sempremilan.com/tactical-analysis-of-lazio-1-0-ac-milan-2025)
-- **Zaccagni leads Lazio to win over Milan in Coppa Italia last 16**: [Link](https://www.thescore.com/seri/news/3418856/zaccagni-leads-lazio-to-win-over-milan-in-coppa-italia-last-16)
-
-
-### terremoto japon (N/A, 08/12/2025 11:34 Lima)
-
-- **Un terremoto de magnitud 7,6 sacude el norte de Japón y obliga a activar una alerta por tsunami**: [Link](https://rpp.pe/mundo/asia/un-terremoto-de-magnitud-76-sacude-el-norte-de-japon-y-obliga-a-activar-una-alerta-por-tsunami-noticia-1667042)
-- **DHN descarta tsunami para el Perú tras fuerte sismo de 7,6 en Japón**: [Link](https://caretas.pe/nacional/dhn-descarta-tsunami-para-el-peru-tras-fuerte-sismo-de-76-en-japon/)
-- **Japón emite una alerta de tsunami después de un potente terremoto**: [Link](https://andina.pe/agencia/noticia-japon-emite-una-alerta-tsunami-despues-un-potente-terremoto-1054889.aspx)
-
-
-### japon (N/A, 08/12/2025 11:34 Lima)
-
-- **Une alerte au tsunami déclenchée au Japon après un important séisme de magnitude 7,6 au large du nord-est du pays**: [Link](https://www.franceinfo.fr/environnement/catastrophes-naturelles/seismes/une-alerte-au-tsunami-declenchee-au-japon-apres-un-important-seisme-de-magnitude-7-6-au-large-des-cotes_7666075.html)
-- **Séisme de magnitude 7,6 au Japon : les images du tremblement de terre à l’origine de l’alerte tsunami**: [Link](https://www.midilibre.fr/2025/12/08/seisme-de-magnitude-76-au-japon-les-images-du-tremblement-de-terre-a-lorigine-de-lalerte-tsunami-13098502.php)
-- **Un séisme de magnitude 7,2 secoue le Japon**: [Link](https://azertag.az/fr/xeber/un_seisme_de_magnitude_72_secoue_le_japon-3904519)
-
-
-### ticketmaster (N/A, 08/12/2025 11:34 Lima)
-
-- **Millions of disgruntled concertgoers likely to sue Ticketmaster**: [Link](https://missoulacurrent.com/ticketmaster-lawsuit/)
-- **Judge signals he’ll let Ticketmaster customers proceed as class in Live Nation antitrust lawsuit**: [Link](https://www.musicbusinessworldwide.com/judge-signals-hell-let-ticketmaster-customers-proceed-as-class-in-live-nation-antitrust-lawsuit/)
-- **Live Nation Customers Appear Poised For Antitrust Class Cert.**: [Link](https://www.law360.com/articles/2418479/live-nation-customers-appear-poised-for-antitrust-class-cert)
 
 
