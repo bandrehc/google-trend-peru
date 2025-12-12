@@ -1,3 +1,73 @@
+### kings - nuggets (N/A, 11/12/2025 23:37 Lima)
+
+- **Denver Nuggets vs Sacramento Kings Prediction, Pick, Odds -- 12/11**: [Link](https://www.actionnetwork.com/nba/denver-nuggets-vs-sacramento-kings-prediction-pick-odds-thursday-december-11)
+- **BetRivers Bonus Code: Unlock a Second Chance Bet Up to $500 for Nuggets vs. Kings No Matter the Outcome**: [Link](https://www.wsn.com/nba/betrivers-bonus-code-nuggets-vs-kings-12-11-2025/)
+- **Is Domantas Sabonis Playing Tonight? (Injury Update, Betting Impact for Nuggets vs. Kings)**: [Link](https://www.si.com/betting/domantas-sabonis-injury-update-betting-impact-for-nuggets-vs-kings)
+
+
+### arc raiders (N/A, 11/12/2025 23:37 Lima)
+
+- **Arc Raiders' latest mini update fixes a bunch of ratty exploits, including the zipline that set players free in Stella Montis, as Embark announces it's stepping back from weekly fixes**: [Link](https://www.pcgamer.com/games/third-person-shooter/arc-raiders-latest-mini-update-fixes-a-bunch-of-ratty-exploits-including-the-zipline-that-set-players-free-in-stella-montis-as-embark-announces-its-stepping-back-from-weekly-fixes/)
+- **Arc Raiders Shares New Tease for Upcoming Event 'Cold Snap' and It Looks Deadly**: [Link](https://www.ign.com/articles/arc-raiders-shares-new-tease-for-upcoming-event-cold-snap-and-it-looks-deadly)
+- **ARC Raiders patch 1.6.0 attempts to stop players going out of bounds**: [Link](https://www.thesixthaxis.com/2025/12/11/arc-raiders-patch-1-6-0-attempts-to-stop-players-going-out-of-bounds/)
+
+
+### pablo guede (N/A, 11/12/2025 23:37 Lima)
+
+- **Alianza Lima ya tiene nuevo DT para el 2026 tras salida de Néstor Gorosito: llegaría con 2 delanteros**: [Link](https://www.infobae.com/peru/deportes/2025/12/11/alianza-lima-ya-tiene-nuevo-dt-para-el-2026-tras-salida-de-nestor-gorosito-llegaria-con-2-delanteros/)
+- **Llegó a un acuerdo: Pablo Guede será nuevo entrenador de Alianza Lima**: [Link](https://rpp.pe/futbol/descentralizado/alianza-lima-y-pablo-guede-llego-a-un-acuerdo-para-nuevo-tecnico-para-temporada-2026-noticia-1667471)
+- **DT de Cusco FC muestra su postura sobre la salida de Néstor Gorosito de Alianza Lima: "El que pierde parece ser un inútil"**: [Link](https://larepublica.pe/futbol-peruano/2025/12/10/dt-de-cusco-fc-muestra-su-postura-sobre-la-salida-de-nestor-gorosito-de-alianza-lima-el-que-pierde-parece-ser-un-inutil-457950)
+
+
+### pelicans - trail blazers (N/A, 11/12/2025 23:37 Lima)
+
+- **Jim Eichenhofer:Good win. #Pelicans continue to pile …**: [Link](https://www.hoopshype.com/story/sports/nba/rumors/2025/12/11/jim-eichenhofergood-win-pelicans-continue-to-pile/87727646007/)
+- **Trail Blazers Pelicans Basketball**: [Link](https://www.couriernews.com/sports/trail-blazers-pelicans-basketball/image_5c1dd2ce-38e2-51ad-b235-6ba88d5c6da5.html)
+- **Jordan Poole Highlights vs. Trail Blazers 12/11/25**: [Link](https://www.nba.com/pelicans/videos/jordan-poole-highlights-vs-portland-trail-blazers-12-11-25)
+
+
+### local de votación (N/A, 11/12/2025 23:37 Lima)
+
+- **Elecciones 2026: Este domingo 14 de dicembre vence plazo para elegir local de votación y millones podrían quedar con asignación automática**: [Link](https://www.infobae.com/peru/2025/12/10/elecciones-2026-este-domingo-14-de-dicembre-vence-plazo-para-elegir-local-de-votacion-y-millones-podrian-quedar-con-asignacion-automatica/)
+- **ONPE: más de 38 mil electores en Junín completaron su elección de locales**: [Link](https://diariocorreo.pe/edicion/huancayo/registro-de-locales-de-votacion-en-junin-cierra-este-14-de-diciembre-noticia/)
+- **Informe de ONPE señala que puneños aún no eligen su local de votación**: [Link](https://ladecana.pe/informe-de-onpe-senala-que-punenos-aun-no-eligen-su-local-de-votacion/)
+
+
+### the forest 3 (N/A, 11/12/2025 23:37 Lima)
+
+- **Forest 3 Takes Sons Of The Forest To Space**: [Link](https://currently.att.yahoo.com/att/forest-3-takes-sons-forest-025300744.html)
+- **Forest 3 Confirmed by Endnight as Sons of the Forest Follow-Up With First Trailer Trailer | The Game Awards 2025**: [Link](https://www.ign.com/articles/forest-3-confirmed-by-endnight-as-sons-of-the-forest-follow-up-with-first-trailer-trailer-the-game-awards-2025)
+- **Endnight Debuts Forest 3**: [Link](https://gameinformer.com/the-game-awards-2025/2025/12/11/endnight-debuts-forest-3)
+
+
+### rockets - clippers (N/A, 11/12/2025 23:37 Lima)
+
+- **Clippers vs. Rockets: Prediction, How to Watch (12/11/25)**: [Link](https://globelynews.com/sports/clippers-vs-rockets-prediction-how-to-watch-12-11-25/)
+- **Thompson has near triple double as Rockets beat Clippers**: [Link](https://www.tsn.ca/nba/article/thompson-has-near-triple-double-as-rockets-beat-clippers/)
+- **Clippers Rockets Basketball**: [Link](https://www.couriernews.com/sports/clippers-rockets-basketball/image_295a9b1f-2568-5e1f-8d83-6a545cd508e2.html)
+
+
+### sorteo la tinka resultados (N/A, 11/12/2025 23:37 Lima)
+
+- **La Tinka del miércoles 10 de diciembre: conoce los números ganadores del sorteo**: [Link](https://elcomercio.pe/respuestas/loterias/la-tinka-hoy-miercoles-10-de-diciembre-en-vivo-resultados-del-ultimo-sorteo-numeros-y-jugada-ganadora-pozo-millonario-loteria-resultado-si-o-si-boliyapa-intralot-lbposting-noticia/)
+- **La Tinka en vivo: consulta los resultados del 7 de diciembre y confirma si tu combinación fue premiada**: [Link](https://www.infobae.com/peru/2025/12/11/la-tinka-del-miercoles-10-de-diciembre-de-2025-todos-los-ganadores-del-ultimo-sorteo/)
+- **La Tinka: resultados de sorteo de domingo 7 de diciembre 2025**: [Link](https://larepublica.pe/sociedad/2025/12/07/la-tinka-resultados-de-sorteo-de-domingo-7-de-diciembre-2025-atmp-499176)
+
+
+### southampton (N/A, 11/12/2025 23:37 Lima)
+
+- **Cameron Bragg: Southampton midfielder extends contract until 2027**: [Link](https://www.bbc.co.uk/sport/football/articles/cj9y7mznr8lo)
+- **'It’s been unreal' - Saints activate option to extend midfielder's contract**: [Link](https://www.dailyecho.co.uk/sport/25690501.southampton-fc-trigger-option-extend-braggs-contract/)
+- **Bragg signs contract extension**: [Link](https://www.southamptonfc.com/en/news/article/bragg-signs-contract-extension)
+
+
+### always ready (N/A, 11/12/2025 23:37 Lima)
+
+- **Always Ready vs Guabirá: Resultado EN VIVO, minuto a minuto y goles de la Liga Boliviana**: [Link](https://www.365scores.com/es/news/always-ready-vs-guabira-resultado-vivo-2/)
+- **Ver EN VIVO Bolívar vs. San Antonio Bulo Bulo: dónde seguir por TV y ONLINE**: [Link](https://www.tycsports.com/bolivia/futbol-de-bolivia/bolivar-vs-san-antonio-bulo-bulo-en-vivo-donde-ver-por-tv-y-online-id702977.html)
+- **Always Ready va por la corona del torneo de la Liga: jugará esta noche frente a Guabirá**: [Link](https://onefootball.com/es/noticias/always-ready-va-por-la-corona-del-torneo-de-la-liga-jugara-esta-noche-frente-a-guabira-42081950)
+
+
 ### bucks - celtics (N/A, 11/12/2025 21:03 Lima)
 
 - **Bucks vs. Celtics tonight, live updates, injury report**: [Link](https://www.jsonline.com/story/sports/nba/bucks/2025/12/11/milwaukee-bucks-boston-celtics-tonight-live-updates-injury-report/87708017007/)
@@ -955,73 +1025,5 @@ Sin noticias relacionadas disponibles.
 - **La Tinka: descubre los números ganadores del sorteo del 07 de diciembre | nnav | video | amtv | VIDEOS**: [Link](https://elcomercio.pe/videos/entretenimiento/la-tinka-descubre-los-numeros-ganadores-del-sorteo-del-07-de-diciembre-nnav-video-amtv-noticia/)
 - **La Tinka: mira los resultados del sorteo de este 7 de diciembre y descubre si tu combinación ganó el premio mayor**: [Link](https://www.infobae.com/peru/2025/12/08/resultados-ganadores-de-la-tinka-del-domingo-7-de-diciembre/)
 - **Resultados de La Tinka del domingo 7 de diciembre: números ganadores del Pozo Millonario**: [Link](https://depor.com/peru/la-tinka-hoy-domingo-7-de-diciembre-en-vivo-resultados-numeros-ganadores-del-ultimo-sorteo-pozo-millonario-boliyapa-resultado-si-o-si-intralot-peru-noticia/)
-
-
-### hoy es feriado (N/A, 08/12/2025 07:54 Lima)
-
-Sin noticias relacionadas disponibles.
-
-
-### mtc (N/A, 08/12/2025 07:54 Lima)
-
-- **“Un desastre”: pasajeros de vuelos internacionales rechazan cobro “arbitrario” de la TUUA en el Jorge Chávez**: [Link](https://www.infobae.com/peru/2025/12/07/caos-en-el-aeropuerto-jorge-chavez-colas-y-quejas-de-pasajeros-de-vuelos-internacionales-por-el-cobro-de-la-tuua/)
-- **En las primeras horas del cobro de la TUUA de transferencia, pasajeros desconocían la medida y su pago obligatorio, informó LAP**: [Link](https://elcomercio.pe/economia/peru/cobro-de-tuua-de-transferencia-pasajeros-senalaron-no-haber-recibido-informacion-previa-sobre-el-pago-jorge-chavez-lap-noticia/)
-- **Pasajeros de vuelos nacionales no pagarán tarifa de conexión en aeropuerto Jorge Chávez**: [Link](https://peru21.pe/economia/pasajeros-de-vuelos-nacionales-no-pagaran-tarifa-de-conexion/)
-
-
-### que se celebra hoy (N/A, 08/12/2025 07:54 Lima)
-
-- **Día de la Inmaculada Concepción: debates teológicos sobre María, el inicio de la Navidad y la relación con la bandera argentina**: [Link](https://www.infobae.com/sociedad/2025/12/08/dia-de-la-inmaculada-concepcion-debates-teologicos-sobre-maria-el-inicio-de-la-navidad-y-la-relacion-con-la-bandera-argentina/)
-- **La Inmaculada en el corazón y en las palabras de los Papas**: [Link](https://www.vaticannews.va/es/papa/news/2025-12/inmaculada-concepcion-palabras-papas.html)
-- **Las mejores frases para felicitar por WhatsApp el Día de la Inmaculada Concepción**: [Link](https://www.elconfidencial.com/alma-corazon-vida/2025-12-08/mejores-frases-felicitar-whatsapp-dia-inmaculada_4260855/)
-
-
-### plaza norte (N/A, 08/12/2025 03:37 Lima)
-
-- **¿Sin planes? Las mejores actividades para disfrutar en Navidad y las fiestas de fin de año**: [Link](https://elcomercio.pe/respuestas/trends/todavia-sin-planes-las-mejores-actividades-para-disfrutar-en-navidad-y-las-fiestas-de-fin-de-ano-tdpe-noticia/)
-- **Fiestas de Fin de Año: Lima concentrará hasta 65% de eventos, ¿cómo se moverá el mercado?**: [Link](https://gestion.pe/economia/empresas/fiestas-de-fin-de-ano-lima-concentrara-hasta-65-de-eventos-como-se-movera-el-mercado-noticia/)
-- **¿En busca de regalo? ¡Aquí tienes 5 experiencias increíbles para regalar esta Navidad!**: [Link](https://blog.joinnus.com/5-experiencias-increibles-para-regalar-esta-navidad/)
-
-
-### canal 5 en vivo (N/A, 07/12/2025 23:37 Lima)
-
-- **Mundial 2026: el camino a la gloria, con grupos de la muerte, cruces pesados y un choque de gigantes que podría llegar pronto**: [Link](https://cnnespanol.cnn.com/2025/12/06/deportes/mundial-2026-sorteo-calendario-grupos-muerte-orix)
-- **¿Argentina, España, Inglaterra...? Cuáles son las selecciones favoritas para ganar el Mundial 2026, según las apuestas, las estadísticas y los expertos**: [Link](https://www.bbc.com/mundo/articles/c898e48ny5xo)
-- **Una supercomputadora predijo quién ganará el Mundial 2026 tras el sorteo: cómo le irá a la selección argentina**: [Link](https://www.infobae.com/deportes/2025/12/07/una-supercomputadora-predijo-quien-ganara-el-mundial-2026-tras-el-sorteo-como-le-ira-a-la-seleccion-argentina/)
-
-
-### tilsa lozano (N/A, 07/12/2025 23:37 Lima)
-
-- **Magaly Medina y su dura opinión por el regreso de Tilsa Lozano a ‘El Valor de la Verdad’: “La amante icónica del Perú”**: [Link](https://www.infobae.com/peru/2025/12/06/magaly-medina-y-su-dura-opinion-por-el-regreso-de-tilsa-lozano-a-el-valor-de-la-verdad-la-amante-iconica-del-peru/)
-- **Magaly Medina LAPIDA a Tilsa Lozano por hablar nuevamente del 'loco' Vargas: "La amante icónica del Perú"**: [Link](https://www.atv.pe/noticia/magaly-medina-lapida-a-tilsa-lozano-por-hablar-nuevamente-del-loco-vargas-la-amante-iconica-del-peru/)
-- **Magaly Medina cuestiona a Tilsa Lozano por revivir su pasado con Juan Manuel Vargas | Últimas | TVMAS**: [Link](https://elcomercio.pe/tvmas/farandula/magaly-medina-cuestiona-a-tilsa-lozano-por-revivir-su-pasado-con-juan-manuel-vargas-ultimas-noticia/)
-
-
-### panamericana tv (N/A, 07/12/2025 23:37 Lima)
-
-- **Karla Tarazona tras polémico beso con Gisela Valcárcel: “No guardo rencor, me da igual lo que digan”**: [Link](https://elcomercio.pe/tvmas/farandula/karla-tarazona-tras-polemico-beso-con-gisela-valcarcel-no-guardo-rencor-me-da-igual-lo-que-digan-ultimas-noticia/)
-- **Panamericana anuncia el formato La granja VIP Perú y el regreso de Gisela Valcárcel a su pantalla**: [Link](https://www.produ.com/television/noticias/panamericana-anuncia-el-formato-la-granja-vip-peru-y-el-regreso-de-gisela-valcarcel-a-su-pantalla/)
-- **Magaly Medina habla del regreso de Gisela Valcárcel a la TV y la tilda de una manera inesperada**: [Link](https://www.apnoticias.pe/peru/exitosa-noticias/magaly-medina-habla-del-regreso-de-gisela-valcarcel-a-la-tv-y-la-tilda-de-una-manera-inesperada-1473722)
-
-
-### it (N/A, 07/12/2025 23:37 Lima)
-
-- **Republicans in Congress mocked Trump privately, Marjorie Taylor Greene says**: [Link](https://www.theguardian.com/us-news/2025/dec/07/congress-republicans-tease-trump-marjorie-taylor-greene)
-- **Greene rejects ‘MAGA’ label: ‘I’m America first’**: [Link](https://thehill.com/homenews/house/5638229-marjorie-greene-trump-maga-split/)
-- **Fmr. Republican congressman Adam Kinzinger reacts to Marjorie Taylor Greene's new stance on Trump**: [Link](https://www.cnn.com/2025/12/07/politics/video/fmr-republican-congressman-adam-kinzinger-reacts-to-marjorie-taylor-greenes-new-stance-on-trump)
-
-
-### jazz - thunder (N/A, 07/12/2025 23:37 Lima)
-
-- **Thunder 131-101 Jazz (Dec 7, 2025) Game Recap**: [Link](https://www.espn.com/nba/recap/_/gameId/401810218)
-- **Preview: Utah Jazz challenge the scraps of the OKC machine**: [Link](https://sports.yahoo.com/articles/preview-utah-jazz-challenge-scraps-002828215.html)
-- **Highlights: Thunder throttle Jazz in road win**: [Link](https://www.nbcsports.com/watch/nba/nba-2025-26-highlights-oklahoma-city-thunder-131-utah-jazz-101)
-
-
-### hbo max (N/A, 07/12/2025 23:37 Lima)
-
-- **Hugh Grant considera que la compra de Warner por Netflix es una mala noticia para el cine**: [Link](https://elcomercio.pe/luces/cine/hugh-grant-considera-que-la-compra-de-warner-por-netflix-es-una-mala-noticia-para-el-cine-celebs-ultimas-noticia/)
-- **Paramount cuestionó el proceso de venta de Warner Bros. por presunto favoritismo hacia Netflix**: [Link](https://rpp.pe/tv/netflix/paramount-cuestiono-proceso-de-venta-de-warner-bros-por-presunto-favoritismo-a-netflix-noticia-1666710)
-- **Actriz Jane Fonda advierte que compra de Warner por Netflix amenaza a toda la industria**: [Link](https://gestion.pe/mundo/eeuu/actriz-jane-fonda-advierte-que-compra-de-warner-por-netflix-amenaza-a-toda-la-industria-noticia/)
 
 
