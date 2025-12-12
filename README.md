@@ -1,3 +1,31 @@
+### iron maiden peru (N/A, 12/12/2025 11:32 Lima)
+
+- **Iron Maiden, la leyenda del heavy metal, regresa a Perú con su gira mundial por los 50 años de la banda**: [Link](https://rpp.pe/musica/conciertos/iron-maiden-la-leyenda-del-heavy-metal-regresa-a-peru-con-su-gira-mundial-por-los-50-anos-de-la-banda-noticia-1667613)
+- **¿Iron Maiden vuelve a Lima? Productora lanza campaña de intriga en redes**: [Link](https://elcomercio.pe/luces/musica/iron-maiden-vuelve-a-lima-productora-lanza-campana-de-intriga-en-redes-celebs-ultimas-noticia/)
+- **Iron Maiden en Lima 2026: El Estadio Nacional será escenario de su Run For Your Lives World Tour**: [Link](https://peru21.pe/espectaculos/iron-maiden-en-lima-2026-el-estadio-nacional-run-your-lives-world-tour/)
+
+
+### fonavi lista 22 (N/A, 12/12/2025 11:32 Lima)
+
+- **Fonavi: Lista 22 ya confirmó fecha de pago oficial en el Banco de la Nación**: [Link](https://www.infobae.com/peru/2025/12/12/fonavi-lista-22-ya-confirmo-fecha-de-pago-oficial-en-el-banco-de-la-nacion/)
+- **Fonavi lista 22: pagarán a 32.000 fonavistas sin límite de edad desde el jueves 18 de diciembre, los detalles**: [Link](https://larepublica.pe/economia/2025/12/11/fonavi-pagaran-a-32000-fonavistas-sin-limite-de-edad-desde-el-jueves-18-de-diciembre-se-devolveran-s102-millones-hnews-1004949)
+- **Devolución Fonavi, diciembre 2025: ¿qué se sabe sobre los beneficiarios de la Lista 22?**: [Link](https://www.expreso.com.pe/economia/devolucion-fonavi-diciembre-2025-que-se-sabe-sobre-los-beneficiarios-de-la-lista-22-comision-ad-hoc-fenaf-noticia/1246413/)
+
+
+### cotizacion del dolar hoy (N/A, 12/12/2025 11:32 Lima)
+
+- **Precio del dólar baja: Así abre el tipo de cambio hoy 12 de diciembre en Perú**: [Link](https://www.infobae.com/peru/2025/12/12/dolar-cotizacion-de-apertura-hoy-12-de-diciembre-en-peru/)
+- **¿Cuál es la cotización del dólar hoy viernes 12 de diciembre del 2025?**: [Link](https://andina.pe/agencia/noticia-cual-es-cotizacion-del-dolar-hoy-viernes-12-diciembre-del-2025-1055375.aspx)
+- **Precio del dólar del jueves 11 de diciembre: a cuánto cerró el tipo de cambio**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-2025-a-cuanto-esta-el-dolar-el-jueves-11-de-diciembre-y-tipo-de-cambio-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
+
+
+### papo rosario (N/A, 12/12/2025 11:32 Lima)
+
+- **Muere Papo Rosario, exintegrante de El Gran Combo**: [Link](https://www.americatv.com.pe/noticias/espectaculos/murio-luis-antonio-papo-rosario-exintegrante-gran-combo-n513853)
+- **La salsa de luto: muere Papo Rosario, histórica voz de El Gran Combo de Puerto Rico, a los 78 años**: [Link](https://andina.pe/agencia/galeria-la-salsa-luto-muere-papo-rosario-historica-voz-de-gran-combo-puerto-rico-a-los-78-anos-28027.aspx)
+- **El Gran Combo de Puerto Rico: Fallece Papo Rosario, exintegrante del grupo, a los 78 años**: [Link](https://elcomercio.pe/luces/musica/el-gran-combo-de-puerto-rico-fallece-papo-rosario-exintegrante-del-grupo-a-los-78-anos-celebs-ultimas-noticia/)
+
+
 ### gripe h3n2 peru sintomas (N/A, 12/12/2025 07:54 Lima)
 
 - **Gripe H3N2 en Perú: ¿Qué es, cuáles son los síntomas y cómo diferenciarla?**: [Link](https://www.infobae.com/peru/2025/12/11/gripe-h3n2-en-peru-que-es-cuales-son-los-sintomas-y-como-diferenciarla/)
@@ -997,33 +1025,5 @@ Sin noticias relacionadas disponibles.
 - **Millions of disgruntled concertgoers likely to sue Ticketmaster**: [Link](https://missoulacurrent.com/ticketmaster-lawsuit/)
 - **Judge signals he’ll let Ticketmaster customers proceed as class in Live Nation antitrust lawsuit**: [Link](https://www.musicbusinessworldwide.com/judge-signals-hell-let-ticketmaster-customers-proceed-as-class-in-live-nation-antitrust-lawsuit/)
 - **Live Nation Customers Appear Poised For Antitrust Class Cert.**: [Link](https://www.law360.com/articles/2418479/live-nation-customers-appear-poised-for-antitrust-class-cert)
-
-
-### nintendo switch (N/A, 08/12/2025 11:34 Lima)
-
-- **System Shock remake reveals Nintendo Switch 2, Switch release date and new trailer**: [Link](https://nintendoeverything.com/system-shock-remake-reveals-nintendo-switch-2-switch-release-date-and-new-trailer/)
-- **Exclusive: System Shock Remake Hacks Onto Switch & Switch 2 Later This Month**: [Link](https://www.nintendolife.com/news/2025/12/exclusive-system-shock-remake-hacks-onto-switch-and-switch-2-later-this-month)
-- **System Shock Remake Releases on December 18 for Nintendo Switch And Switch 2**: [Link](https://finalweapon.net/2025/12/08/system-shock-remake-switch-switch-2-release-date/)
-
-
-### avellino - venezia (N/A, 08/12/2025 11:34 Lima)
-
-- **Che sofferenza al “Partenio-Lombardi”: punto prezioso contro il Venezia**: [Link](https://www.irpinianews.it/che-sofferenza-al-partenio-lombardi-punto-prezioso-contro-il-venezia/)
-- **Calcio Serie B: Avellino-Venezia. Segui la diretta testuale**: [Link](https://www.rainews.it/tgr/veneto/articoli/2025/12/calcio-serie-b-giornata-15-avellino-venezia-risultato-classifica-commenti-633e1b6c-6547-4ff2-9e81-94cbd39268c0.html)
-- **I convocati da mister Raffaele Biancolino contro il Venezia**: [Link](https://www.mercoglianonews.it/2025/12/i-convocati-da-mister-raffaele-biancolino-contro-il-venezia/)
-
-
-### onpe local de votación (N/A, 08/12/2025 11:34 Lima)
-
-- **Partidos definen 35 nuevas candidaturas presidenciales en elecciones por delegados: esta es la lista de postulantes a Palacio**: [Link](https://elcomercio.pe/politica/elecciones/partidos-definen-35-candidaturas-presidenciales-en-elecciones-por-delegados-esta-es-la-lista-de-postulantes-a-palacio-noticia/)
-- **Elecciones 2026: estos son los candidatos a la presidencia elegidos en primarias vía afiliados y delegados**: [Link](https://rpp.pe/politica/elecciones/candidatos-presidenciales-peru-2026-resultados-de-primarias-via-delegados-y-lista-completa-de-electos-noticia-1667017)
-- **Agrupaciones eligen a sus cartas para la Presidencia y el Congreso bicameral**: [Link](https://peru21.pe/politica/agrupaciones-eligen-sus-cartas-para-la-presidencia-y-el-congreso/)
-
-
-### serie b (N/A, 08/12/2025 11:34 Lima)
-
-- **Serie B, 15ª giornata: il Frosinone aggancia il Monza in vetta alla classifica**: [Link](https://www.tuttomercatoweb.com/serie-b/serie-b-15a-giornata-il-frosinone-aggancia-il-monza-in-vetta-alla-classifica-2176984)
-- **Serie B: i risultati della 15esima giornata**: [Link](https://www.diretta.it/news/calcio-serie-b-serie-b-il-frosinone-agguanta-in-vetta-il-monza-vittorie-esterne-per-catanzaro-e-reggiana/fPptPfpI/)
-- **Serie B: avanti il Monza contro il Sudtirol, Venezia sotto ad Avellino dopo i primi 45. I risultati parziali**: [Link](https://www.ilovepalermocalcio.com/serie-b-avanti-il-monza-contro-il-sudtirol-venezia-sotto-ad-avellino-dopo-i-primi-45-i-risultati-parziali/)
 
 
