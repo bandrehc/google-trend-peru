@@ -1,3 +1,72 @@
+### bucks - celtics (N/A, 11/12/2025 21:03 Lima)
+
+- **Bucks vs. Celtics tonight, live updates, injury report**: [Link](https://www.jsonline.com/story/sports/nba/bucks/2025/12/11/milwaukee-bucks-boston-celtics-tonight-live-updates-injury-report/87708017007/)
+- **Milwaukee Bucks Injury Report: Latest update on Giannis Antetokounmpo and others**: [Link](https://thesportstak.com/basketball/nba-24-oct-2022/story/milwaukee-bucks-injury-report-latest-update-on-giannis-antetokounmpo-and-others-3220251-2025-12-12)
+- **BetMGM Bonus Code COVERS: Unlock $1,500 Bonus for Bucks vs. Celtics**: [Link](https://www.covers.com/daily-promos/betmgm-bonus-code-nba-bucks-celtics-12-11-2025)
+
+
+### tigres - toluca (N/A, 11/12/2025 21:03 Lima)
+
+- **Tigres vs Toluca: ¿Cómo están las apuestas para el partido de ida de la final?**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/16072060/tigres-vs-toluca-como-estan-las-apuestas-final-ida)
+- **⚫ TUDN y Canal 5 EN VIVO | Transmisión gratis para ver Tigres UANL vs. Toluca por TV abierta y Online**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/tudn-y-canal-5-en-vivo-gratis-como-ver-partido-tigres-uanl-vs-toluca-por-tv-abierta-y-futbol-online-nnda-nnrt-noticia/)
+- **Liga MX: Mohamed se reencuentra con Gignac y Nahuel en una final**: [Link](https://www.espn.com.pe/futbol/mexico/nota/_/id/16066740/liga-mx-toluca-vs-tigres-antonio-mohamed-final-nahuel-guzman-andre-gignac)
+
+
+### half life 3 (N/A, 11/12/2025 21:03 Lima)
+
+- **After Two Months Of Unprecedented Copium, Half-Life 3 Probably Won't Be Announced In 2025 After All**: [Link](https://www.thegamer.com/half-life-3-2026-announcement/)
+- **Half-Life 3 Title And Release Month Leaked By Resi 9 Leaker**: [Link](https://screenrant.com/half-life-3-title-release-date-leak/)
+
+
+### divinity (N/A, 11/12/2025 21:03 Lima)
+
+- **Yup, That Weird Statue Was Teasing a New Divinity Game | The Game Awards 2025**: [Link](https://www.ign.com/articles/yup-that-weird-statue-was-teasing-a-new-divinity-game-the-game-awards-2025)
+- **Larian reveals Divinity, its 'biggest game ever,' that will be 'even larger than Baldur's Gate 3'**: [Link](https://www.pcgamer.com/games/rpg/larian-reveals-its-divinity-its-biggest-game-ever-even-larger-than-baldurs-gate-3/)
+- **The Maker Of Baldur’s Gate 3 Reveals Its Next RPG And This One’s ‘Even Larger’**: [Link](https://kotaku.com/divinity-original-sin-3-rpg-trailer-larian-bg4-game-awards-2000652714)
+
+
+### luis ramos (N/A, 11/12/2025 21:03 Lima)
+
+- **Luis Ramos dice adiós a América de Cali después de establecerse como su goleador en Liga BetPlay 2025**: [Link](https://www.infobae.com/peru/deportes/2025/12/11/luis-ramos-dice-adios-a-america-de-cali-despues-de-establecerse-como-su-goleador-en-liga-betplay-2025/)
+- **América: Luis Ramos finalizó contrato y es jugador libre**: [Link](https://www.espn.com.ar/futbol/colombia/nota/_/id/16073214/luis-ramos-rescindio-contrato-america-de-cali-es-jugador-libre)
+- **Luis Ramos será el reemplazante de Hernán Barcos en Alianza Lima: acuerdo de palabra por el delantero**: [Link](https://depor.com/futbol-peruano/peruanos-en-el-mundo/luis-ramos-despedida-oficial-de-america-de-cali-ofertas-en-la-mesa-de-alianza-lima-para-reemplazar-a-hernan-barcos-video-noticia/)
+
+
+### jairo velez (N/A, 11/12/2025 21:03 Lima)
+
+- **Alianza Lima oficializa la incorporación de Jairo Vélez para disputar la Liga 1 y la Copa Libertadores 2026: “A darlo todo por esta camiseta”**: [Link](https://www.infobae.com/peru/deportes/2025/12/11/alianza-lima-oficializa-la-incorporacion-de-jairo-velez-para-disputar-la-liga-1-y-la-copa-libertadores-2026-a-darlo-todo-por-esta-camiseta/)
+- **Es oficial: Alianza Lima anunció a Jairo Vélez, ex Universitario, como nuevo refuerzo**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/alianza-lima-anuncio-a-jairo-velez-ex-universitario-como-nuevo-refuerzo-temporada-2026-liga-1-noticia/)
+- **Oficial: Jairo Vélez es el primer refuerzo de Alianza Lima para el 2026**: [Link](https://depor.com/futbol-peruano/descentralizado/alianza-lima-jairo-velez-fue-presentado-como-nuevo-jugador-blanquiazul-directamente-desde-universitario-detalles-del-contrato-fichajes-noticia/)
+
+
+### fluminense (N/A, 11/12/2025 21:03 Lima)
+
+- **Vasco 2 X 1 Fluminense - Copa do Brasil 2025**: [Link](https://www.uol.com.br/esporte/videos/gols/2025/12/11/vasco-2-x-1-fluminense---copa-do-brasil-2025.htm)
+- **Aos 16 min do 1º tempo - cartão amarelo de Léo Jardim do Vasco contra o Fluminense**: [Link](https://ge.globo.com/futebol/video/aos-16-min-do-1o-tempo-cartao-amarelo-de-leo-jardim-do-vasco-contra-o-fluminense-14174080.ghtml)
+- **Atacante do Fluminense sente dores e é substituído em semifinal contra o Vasco**: [Link](https://www.itatiaia.com.br/esportes/futebol/futebol-nacional/futebol-carioca/fluminense/atacante-do-fluminense-sente-dores-e-e-substituido-em-semifinal-contra-o-vasco)
+
+
+### vasco da gama - fluminense (N/A, 11/12/2025 21:03 Lima)
+
+- **Jueves: semifinal Vasco vs Fluminense, lo más destacado de la Europa League**: [Link](https://www.elpueblo.pe/deportes/jueves-semifinal-vasco-vs-fluminense-lo-mas-destacado-de-la-europa-league/160638/)
+- **Jueves: semifinal Vasco vs Fluminense, lo más destacado de la Europa League**: [Link](https://www.elpueblo.pe/deportes/jueves-semifinal-vasco-vs-fluminense-lo-mas-destacado-de-la-europa-league/160638/)
+- **Vasco 2 X 1 Fluminense - Copa do Brasil 2025**: [Link](https://www.uol.com.br/esporte/videos/gols/2025/12/11/vasco-2-x-1-fluminense---copa-do-brasil-2025.htm)
+
+
+### freiburg vs (N/A, 11/12/2025 21:03 Lima)
+
+- **FC Salzburg ohne Punkte und Letsch beim SC Freiburg! Rot Ratkov!**: [Link](https://www.ligaportal.at/international/europa-league/86565-fc-salzburg-ohne-punkte-und-letsch-beim-sc-freiburg-rot-ratkov)
+- **Urgestein singt bemerkenswerte Lobeshymne**: [Link](https://www.sport1.de/tv-video/video/urgestein-singt-bemerkenswerte-lobeshymne__18647B77-B022-4283-8384-D92B6EAE1D7B)
+- **Europacup: Round-up - Manzambis Freiburg überzeugt weiter – Roma zerzaust Celtic**: [Link](https://www.srf.ch/sport/fussball/europa-league/europacup-round-up-manzambis-freiburg-ueberzeugt-weiter-roma-zerzaust-celtic)
+
+
+### lech poznań - mainz 05 (N/A, 11/12/2025 21:03 Lima)
+
+- **Lech zremisował z zespołem z Bundesligi i wciąż jest w grze o fazę pucharową!**: [Link](https://www.laczynaspilka.pl/aktualnosci/europejskie-puchary/lech-zremisowal-z-zespolem-z-bundesligi-i-wciaz-jest-w-grze-o-faze)
+- **Ten strzał będzie mu się śnił po nocach! Zawiódł Lecha w takim momencie [OCENY]**: [Link](https://przegladsportowy.onet.pl/pilka-nozna/liga-konferencji-europy/ten-strzal-bedzie-mu-sie-snil-po-nocach-zawiodl-lecha-w-takim-momencie-oceny/mkjg4ky)
+- **Wiadomości Poznań, Informacje Poznań**: [Link](https://gloswielkopolski.pl/mecz-lech-poznan-1fsv-mainz-online-rywal-dostanie-w-trabe-transmisja-i-stream-w-internecie-z-5-kolejki-fazy-ligowej-ligi/rs/c2-7496902449)
+
+
 ### fcsb - feyenoord (N/A, 11/12/2025 15:29 Lima)
 
 - **FCSB vs Feyenoord: UEFA Europa League stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c783zeg7pnxt)
@@ -954,73 +1023,5 @@ Sin noticias relacionadas disponibles.
 - **Hugh Grant considera que la compra de Warner por Netflix es una mala noticia para el cine**: [Link](https://elcomercio.pe/luces/cine/hugh-grant-considera-que-la-compra-de-warner-por-netflix-es-una-mala-noticia-para-el-cine-celebs-ultimas-noticia/)
 - **Paramount cuestionó el proceso de venta de Warner Bros. por presunto favoritismo hacia Netflix**: [Link](https://rpp.pe/tv/netflix/paramount-cuestiono-proceso-de-venta-de-warner-bros-por-presunto-favoritismo-a-netflix-noticia-1666710)
 - **Actriz Jane Fonda advierte que compra de Warner por Netflix amenaza a toda la industria**: [Link](https://gestion.pe/mundo/eeuu/actriz-jane-fonda-advierte-que-compra-de-warner-por-netflix-amenaza-a-toda-la-industria-noticia/)
-
-
-### registro nacional de infieles excel (N/A, 07/12/2025 23:37 Lima)
-
-- **El “registro de infieles” en Ecuador replica una tendencia regional de escarnio digital y vulneración de datos**: [Link](https://www.infobae.com/america/america-latina/2025/12/05/el-registro-de-infieles-en-ecuador-replica-una-tendencia-regional-de-escarnio-digital-y-vulneracion-de-datos/)
-- **Registro Público de Infidelidad: Alerta por web que expone datos y advierten cobros por borrar nombres**: [Link](https://elcomercio.pe/lima/registro-publico-de-infidelidad-alerta-por-web-que-expone-datos-y-advierten-cobros-y-posible-extorsion-minjusdh-ultimas-noticia/)
-- **La lista negra de las girls: ¿qué delitos enfrentarían quienes expusieron datos de supuestos infieles?**: [Link](https://lpderecho.pe/la-lista-negra-de-las-girls-delitos-enfrentarian-exponer-datos-infieles/)
-
-
-### rafael ithier gran combo (N/A, 07/12/2025 23:37 Lima)
-
-- **Muere Rafael Ithier, cofundador de El Gran Combo de Puerto Rico y leyenda de la salsa**: [Link](https://cnnespanol.cnn.com/2025/12/07/entretenimiento/muere-rafael-ithier-gran-combo-orix)
-- **Gilberto Santa Rosa se despide de Rafael Ithier: “Con el dolor de un hijo que pierde a un padre”**: [Link](https://elcomercio.pe/luces/musica/gilberto-santa-rosa-se-despide-de-rafael-ithier-con-el-dolor-de-un-hijo-que-pierde-a-un-padre-celebs-ultimas-noticia/)
-- **Esta es la historia de Rafael Ithier, el 'máximo mulato' que convirtió a El Gran Combo en un símbolo mundial de la salsa**: [Link](https://www.eltiempo.com/cultura/gente/como-rafael-ithier-se-convirtio-en-el-maximo-mulato-de-la-salsa-y-en-el-simbolo-de-el-gran-combo-de-puerto-rico-3515000)
-
-
-### porque es feriado el 8 y 9 de diciembre (N/A, 07/12/2025 21:01 Lima)
-
-- **Inicio del feriado largo en Perú: estos son los últimos feriados de diciembre 2025**: [Link](https://elcomercio.pe/respuestas/cuando/feriado-largo-y-ultimos-feriados-del-2025-en-peru-dias-que-se-celebra-y-mas-calendario-2025-tdpe-noticia/)
-- **Feriados lunes 8 y martes 9 de diciembre: las reglas que aplicarán a este beneficio laboral**: [Link](https://gestion.pe/economia/management-empleo/feriados-lunes-8-y-martes-9-de-diciembre-las-reglas-que-se-aplicaran-a-este-beneficio-laboral-noticia/)
-- **No pierdas tu beneficio: consulta cuánto deben pagarte por trabajar los feriados 8 y 9 de diciembre**: [Link](https://www.elperuano.pe/noticia/284113-no-pierdas-tu-beneficio-consulta-cuanto-deben-pagarte-por-trabajar-los-feriados-8-y-9-de-diciembre)
-
-
-### 76ers - lakers (N/A, 07/12/2025 21:01 Lima)
-
-- **Los Angeles Lakers vs Philadelphia 76ers Prediction, Pick, Odds -- 12/7**: [Link](https://www.actionnetwork.com/nba/los-angeles-lakers-vs-philadelphia-76ers-prediction-pick-odds-sunday-november-7)
-- **LeBron James (foot/sciatica) upgraded to probable Sunday**: [Link](https://www.fantasypros.com/nba/news/557589/lebron-james-footsciatica-upgraded-to-probable-sunday.php)
-- **NBA Best Bets: Lakers at 76ers Prop Bets for Sunday 12/7/25**: [Link](https://dknetwork.draftkings.com/2025/12/07/nba-best-bets-lakers-at-76ers-prop-bets-for-sunday-12-7-25/)
-
-
-### feriado 8 y 9 de diciembre (N/A, 07/12/2025 21:01 Lima)
-
-- **¿A qué hora abren los Supermercados este feriado 8 y 9 de diciembre en Lima? Así será su atención en estas fechas**: [Link](https://elcomercio.pe/respuestas/tramites/a-que-hora-abren-los-supermercados-este-feriado-8-y-9-de-diciembre-en-lima-asi-sera-su-atencion-en-estas-fechas-tdpe-noticia/)
-- **ATU: conoce el horario del Metropolitano y corredores durante el feriado largo del 8 y 9 de diciembre en Lima**: [Link](https://larepublica.pe/sociedad/2025/12/07/atu-conoce-el-horario-del-metropolitano-y-corredores-durante-el-feriado-largo-del-8-y-9-de-diciembre-en-lima-164214)
-- **Feriados del 8 y 9 de diciembre: conoce los horarios del Metropolitano, Corredores Complementarios, Metro de Lima y más**: [Link](https://rpp.pe/lima/actualidad/feriados-del-8-y-9-de-diciembre-conoce-los-horarios-del-metropolitano-corredores-complementarios-metro-de-lima-y-mas-noticia-1666871)
-
-
-### bulls - warriors (N/A, 07/12/2025 21:01 Lima)
-
-- **How to Watch Warriors vs Bulls: Live Stream NBA, TV Channel**: [Link](https://www.newsweek.com/how-to-watch-warriors-vs-bulls-live-stream-nba-tv-channel-11169496)
-- **Chicago faces Golden State, looks to halt 6-game skid**: [Link](https://abcnews.go.com/Sports/wireStory/chicago-faces-golden-state-halt-6-game-skid-128182676)
-- **Warriors' Jimmy Butler: Good to go Sunday**: [Link](https://www.cbssports.com/fantasy/basketball/news/warriors-jimmy-butler-good-to-go-sunday/)
-
-
-### hornets - nuggets (N/A, 07/12/2025 21:01 Lima)
-
-- **Nuggets 115-106 Hornets (7 Dec, 2025) Game Recap**: [Link](https://www.espn.co.uk/nba/recap?gameId=401810214)
-- **Hornets Highlights vs Nuggets ‑ 12/07/25**: [Link](https://www.nba.com/hornets/videos/hornets-highlights-vs-nuggets-12-07-25)
-- **Jokic passes Jordan, Billups in all-time book, Nuggets make it 10 in a road**: [Link](https://denversports.com/nba/denver-nuggets/jokic-jordan-billups-10/2127295)
-
-
-### christian cueva (N/A, 07/12/2025 21:01 Lima)
-
-- **Regresa al fútbol peruano: Christian Cueva será nuevo jugador de Juan Pablo II**: [Link](https://rpp.pe/futbol/descentralizado/christian-cueva-sera-nuevo-jugador-de-juan-pablo-ii-liga-1-emelec-noticia-1666971)
-- **¡Bombazo en la Liga 1! Christian Cueva es nuevo jugador de Juan Pablo II**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/cueva-a-juan-pablo-ii-christian-cueva-vuelve-a-la-liga-1-noticia/)
-- **Christian Cueva es nuevo jugador de Juan Pablo II College**: [Link](https://caretas.pe/deportes/christian-cueva-juan-pablo-ii-2026/)
-
-
-### mañana es feriado (N/A, 07/12/2025 21:01 Lima)
-
-Sin noticias relacionadas disponibles.
-
-
-### karol g (N/A, 07/12/2025 21:01 Lima)
-
-- **Karol G Expands the ‘Tropicoqueta’ Universe With Special Visual Album Broadcast**: [Link](https://www.rollingstone.com/music/music-news/karol-g-tropicoqueta-la-premiere-broadcast-1235477199/)
-- **KAROL G Brings "Tropicoqueta" to Life With TV Special "La Premiere"**: [Link](https://www.hitsdailydouble.com/news/stage-and-screen/karol-g-la-premiere-tv-special-2025-12-05)
-- **Karol G Designs ‘Tropicoqueta’ as a Visual Album for the Latino Collective With ‘La Premiere’**: [Link](https://belatina.com/karol-g-designs-tropicoqueta-as-a-visual-album-for-the-latino-collective-with-la-premiere/)
 
 
