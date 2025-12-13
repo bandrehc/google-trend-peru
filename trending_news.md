@@ -1,3 +1,71 @@
+### rennes vs (N/A, 13/12/2025 11:30 Lima)
+
+- **Where to Watch Stade Rennes vs. Stade Brest 29: TV Channel, Start Time and Live Stream**: [Link](https://www.bleachernation.com/how-to-watch/2025/12/12/where-to-watch-stade-rennes-vs-stade-brest-29-tv-channel-start-time-and-live-stream-2/)
+- **Rennes vs Brest Prediction, 12/13/2025 Soccer Pick, Tips and Odds**: [Link](https://www.docsports.com/free-picks/soccer/2025/rennes-vs-brest-prediction-12-13-2025-soccer-pick-tips-and-odds.html)
+- **Rennes vs Brest kicks off today with both teams desperate for European spots, but one shocking recent stat might change everything**: [Link](https://www.red94.net/news/14368-rennes-vs-brest-kicks-off-today-in-ligue-1-clash-both-teams-eyeing-european-spot/)
+
+
+### jeriel de santis (N/A, 13/12/2025 11:30 Lima)
+
+- **Vuelve al fútbol peruano: Jeriel De Santis se convirtió en nuevo jugador de Melgar**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/jeriel-de-santis-se-convirtio-en-nuevo-jugador-de-melgar-liga-1-noticia/)
+- **Melgar da el golpe con Reynoso, ficha a exdelantero de Alianza Lima y sacude la Liga 1**: [Link](https://bolavip.com/pe/liga-1/melgar-da-el-golpe-con-reynoso-ficha-a-exdelantero-de-alianza-lima-y-sacude-la-liga-1)
+- **(VIDEO) ¡Se muda a Arequipa! Jeriel de Santis jugará por FBC Melgar en 2026**: [Link](https://ovacion.pe/noticias/fbc-melgar/video-se-muda-arequipa-jeriel-santis-jugara-fbc-melgar-2026)
+
+
+### mallorca vs (N/A, 13/12/2025 11:30 Lima)
+
+- **Takuma Asano vs. Elche CF – Player props & odds to score a goal on December 13**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/12/12/takuma-asano-soccer-player-props-12-13-2025/87743209007/)
+- **Mallorca - Elche live**: [Link](https://www.marca.com/en/soccer/laliga-ea-sports/mallorca-elche/2025/12/13/01_0101_20251213_181_954-live.html)
+- **Preview: Mallorca vs Elche - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/mallorca/preview/mallorca-vs-elche-prediction-team-news-lineups_587616.html)
+
+
+### rennes - stade brestois (N/A, 13/12/2025 11:30 Lima)
+
+- **Rennes - Brest : les Rennais doivent remettre la main sur le derby**: [Link](https://www.sportytrader.com/actualite/rennes-brest-rennais-veulent-remettre-la-main-sur-le-derby-13-12-2025/)
+- **Stade Rennais - Stade Brestois en direct - Ligue 1 : Football Scores & Résultats - 13/12/2025**: [Link](https://www.eurosport.fr/football/ligue-1/2025-2026/live-stade-rennais-stade-brestois_mtc1609247/live-commentary.shtml)
+- **L1 : Rennes-Brest, les compos**: [Link](https://news.maxifoot.fr/ligue-1/rennes-brest-les-compos-foot-446372.htm)
+
+
+### dólar hoy perú (N/A, 13/12/2025 11:30 Lima)
+
+- **Precio del dólar cae: Así cerró el tipo de cambio hoy 11 de diciembre en Perú**: [Link](https://www.infobae.com/peru/2025/12/10/dolar-cotizacion-de-apertura-hoy-10-de-diciembre-en-peru/)
+- **Precio del dólar este sábado 13 de diciembre: Así cotiza el tipo de cambio HOY en Perú**: [Link](https://www.exitosanoticias.pe/actualidad/precio-dolar-sabado-13-diciembre-asi-cotiza-tipo-cambio-hoy-peru-n164594)
+- **Precio del dólar del jueves 11 de diciembre: a cuánto cerró el tipo de cambio**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-2025-a-cuanto-esta-el-dolar-el-jueves-11-de-diciembre-y-tipo-de-cambio-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
+
+
+### liverpool fc (N/A, 13/12/2025 11:30 Lima)
+
+- **Former Italy Forward Slams ‘Disgraceful’ Liverpool Penalty & ‘Expected More’ From Inter Milan Duo**: [Link](https://sempreinter.com/2025/12/12/inter-liverpool-cassano-thuram-champions-league/)
+- **No Mo worries as Reds snatch vital win**: [Link](https://www.chinadaily.com.cn/a/202512/11/WS693a2d83a310d6866eb2e154.html)
+- **Highlights: Drita 0-3 AZ Alkmaar | Highlights | UEFA Conference League**: [Link](https://www.uefa.com/uefaconferenceleague/video/highlights/02a0-1f6a7d1fa0be-8217f3e00c5d-1000--highlights-drita-0-3-az-alkmaar/)
+
+
+### burnley vs (N/A, 13/12/2025 11:30 Lima)
+
+- **Burnley vs Fulham LIVE! Premier League match updates, news, score, stream and highlights - live on Sky Sports**: [Link](https://www.skysports.com/football/live-blog/11681/13482218/burnley-vs-fulham-live-premier-league-match-updates-news-score-stream-and-highlights-live-on-sky-sports)
+- **From the Press Box: Sess out, but perhaps the Return of the Jedi?**: [Link](https://www.fulhamish.co.uk/p/from-the-press-box-sess-out-but-perhaps)
+- **Final One Standing: Gameweek 16 Predictions**: [Link](https://news.williamhill.com/football/final-one-standing-gameweek-16-predictions/)
+
+
+### actualización ios 26.2 (N/A, 13/12/2025 11:30 Lima)
+
+Sin noticias relacionadas disponibles.
+
+
+### st. pauli - heidenheim (N/A, 13/12/2025 11:30 Lima)
+
+- **Lage am Millerntor – 12. Dezember 2025**: [Link](https://millernton.de/2025/12/12/lage-am-millerntor-12-dezember-2025/)
+- **St. Pauli bereitet sich auf Heimspiel gegen Heidenheim vor**: [Link](https://www.ndr.de/fernsehen/sendungen/hamburg_journal/st-pauli-bereitet-sich-auf-heimspiel-gegen-heidenheim-vor,hamj-6078.html)
+- **😌 Mehr Befreiung geht nicht! Das ist das wichtigste Buli-Tor des Spieltags**: [Link](https://onefootball.com/de/news/mehr-befreiung-geht-nicht-das-ist-das-wichtigste-buli-tor-des-spieltags-42091322)
+
+
+### spezia - modena (N/A, 13/12/2025 11:30 Lima)
+
+- **Spezia - Modena 0-2 | Apre Nieling, chiude Gliozzi, vittoria gialla dopo oltre un mese**: [Link](https://www.modenatoday.it/sport/calcio/Spezia-Modena-0-2-tabellino-cronaca-commenti-13-dicembre-2025.html)
+- **"Gliozzi ha dato tanto, Mendes lo vedo sul pezzo"**: [Link](https://www.ilrestodelcarlino.it/modena/cronaca/gliozzi-ha-dato-tanto-mendes-bdcf0f7f)
+- **Spezia-Modena: le formazioni ufficiali**: [Link](https://modenacalcio.com/spezia-modena-le-formazioni-ufficiali/)
+
+
 ### atlético madrid - valencia c. f. (N/A, 13/12/2025 07:49 Lima)
 
 - **Atlético de Madrid - Valencia, en directo: LaLiga EA Sports hoy, en vivo**: [Link](https://as.com/futbol/primera/atletico-de-madrid-valencia-en-directo-laliga-ea-sports-hoy-en-vivo-f202512-d/)
@@ -956,75 +1024,5 @@ Sin noticias relacionadas disponibles.
 - **UEFA Champions League Predictions: Matchday 12/9**: [Link](https://www.si.com/soccer/uefa-champions-league-predictions-matchday-12-9-2025-26)
 - **Champions League projections: Will Man City, Chelsea and Liverpool boost their top-eight chances? - The Athletic**: [Link](https://www.nytimes.com/athletic/6872476/2025/12/09/champions-league-projections-manchester-city-real-madrid/)
 - **All you need to know for this week's Champions League matches**: [Link](https://www.premierleague.com/en/news/4491129/all-you-need-to-know-for-this-weeks-champions-league-matches)
-
-
-### gonzalo mastriani (N/A, 09/12/2025 15:26 Lima)
-
-- **Se confirmó si Universitario dará golpe fichando a delantero de Botafogo el 2026: "Contrato..."**: [Link](https://libero.pe/futbol-peruano/universitario/2025/12/09/gonzalo-mastriani-se-confirmo-universitario-dara-golpe-fichando-delantero-de-botafogo-2026-es-imposible-video-284499)
-- **Fichajes Universitario 2026: altas, bajas y renovaciones para Liga 1 y fase de grupos de Copa Libertadores**: [Link](https://larepublica.pe/futbol-peruano/2025/12/08/fichajes-de-universitario-2026-altas-bajas-y-rumores-sobre-refuerzos-de-la-u-para-la-liga-1-y-copa-libertadores-335424)
-- **¿Cómo van las conversaciones con Gonzalo Napoli en Universitario?**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/como-van-conversaciones-gonzalo-napoli-universitario-n451891)
-
-
-### frankfurt (N/A, 09/12/2025 15:26 Lima)
-
-- **Prozessbeginn in Frankfurt: Angeklagte sollen Ukrainer ausspioniert haben**: [Link](https://www.zdfheute.de/video/heute-nachrichten/russischer-geheimdienst-spionage-video-100.html)
-- **Russische Spione aus der Bar Celona: Prozess gegen mutmaßliche Täter startet**: [Link](https://www.rnd.de/politik/russische-spione-aus-der-bar-celona-prozess-gegen-mutmassliche-taeter-startet-POHMZVBUGZAIJAA3LNSZV77XW4.html)
-- **Nachrichten aus Deutschland: Drei wegen von Russland unterstütztem Spionagekomplott vor Gericht**: [Link](https://www.dein-niedersachsen.de/nachrichten/nachrichten-aus-deutschland-drei-wegen-von-russland-unterstuetztem-spionagekomplott-vor-gericht/)
-
-
-### union saint-gilloise (N/A, 09/12/2025 15:26 Lima)
-
-- **Union Saint‑Gilloise vs. Olympique Marseille—How & When to Watch**: [Link](https://www.moroccoworldnews.com/2025/12/271156/union-saint-gilloise-vs-olympique-marseille-how-when-to-watch/)
-- **UEFA Champions League 2025: What time and on which channel to watch Union Saint-Gilloise vs OM?**: [Link](https://sports.yahoo.com/articles/uefa-champions-league-2025-time-105500576.html)
-- **Belgium Champions League Soccer**: [Link](https://www.hjnews.com/sports/nation/belgium-champions-league-soccer/image_43f7f5c0-08c0-5a70-bb23-8cef2bafefba.html)
-
-
-### feriados perú (N/A, 09/12/2025 11:33 Lima)
-
-- **Feriado largo de diciembre: Conozca por qué el 8 y 9 son feriados en Perú**: [Link](https://peru21.pe/peru/feriado-largo-de-diciembre-conozca-por-que-el-8-y-9-son-feriados-en-peru/)
-- **La Inmaculada en el corazón y en las palabras de los Papas**: [Link](https://www.vaticannews.va/es/papa/news/2025-12/inmaculada-concepcion-palabras-papas.html)
-- **El Obispo D. Casimiro: “María es el signo más luminoso de lo que Dios puede hacer cuando encuentra un corazón disponible”**: [Link](https://obsegorbecastellon.es/el-obispo-d-casimiro-maria-es-el-signo-mas-luminoso-de-lo-que-dios-puede-hacer-cuando-encuentra-un-corazon-disponible/)
-
-
-### ticketmaster (N/A, 09/12/2025 11:33 Lima)
-
-- **Millions of disgruntled concertgoers likely to proceed as class against Ticketmaster**: [Link](https://www.courthousenews.com/millions-of-disgruntled-concertgoers-likely-to-proceed-as-class-against-ticketmaster/)
-- **Judge signals he’ll let Ticketmaster customers proceed as class in Live Nation antitrust lawsuit**: [Link](https://www.musicbusinessworldwide.com/judge-signals-hell-let-ticketmaster-customers-proceed-as-class-in-live-nation-antitrust-lawsuit/)
-- **Live Nation Customers Appear Poised For Antitrust Class Cert.**: [Link](https://www.law360.com/articles/2418479/live-nation-customers-appear-poised-for-antitrust-class-cert)
-
-
-### egipto vs (N/A, 09/12/2025 11:33 Lima)
-
-- **Egipto vs Jordania EN VIVO: Gol jordano de penal (0-3)**: [Link](https://www.vavel.com/mx/futbol-internacional/2025/12/09/1244049-egipto-vs-jordania-en-vivo-copa-arabe.html)
-- **Irán rechaza que su partido ante Egipto sea el del orgullo LGBTQ+ en el Mundial**: [Link](https://as.com/futbol/mundial/iran-rechaza-que-su-partido-ante-egipto-sea-el-del-orgullo-lgbtq-en-el-mundial-f202512-n/)
-- **El llamativo partido del Mundial 2026 que la FIFA designó para celebrar la Semana del Orgullo LGBTQ+**: [Link](https://www.msn.com/es-ar/noticias/other/el-llamativo-partido-del-mundial-2026-que-la-fifa-design%C3%B3-para-celebrar-la-semana-del-orgullo-lgbtq/ar-AA1RY522)
-
-
-### kairat - olympiacos (N/A, 09/12/2025 11:33 Lima)
-
-- **Preview: Kairat vs Olympiacos - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/kairat/preview/kairat-vs-olympiacos-prediction-team-news-lineups_587346.html)
-- **Champions League: Why is Kairat Almaty v Olympiakos a 15:30 kick-off in the UK?**: [Link](https://www.bbc.com/sport/football/articles/cwyp980y9rzo)
-- **Follow Matchday 6 in the Champions League live here**: [Link](https://www.flashscore.com/news/soccer-champions-league-champions-league-live-kairat-hosting-olympiacos-bayern-vs-sporting-to-follow/ImLVTSOG/)
-
-
-### olympiacos vs (N/A, 09/12/2025 11:33 Lima)
-
-- **Champions League: Olympiacos visita a Kairat Almaty por la fecha 6**: [Link](https://rpp.pe/futbol/ligas-internacionales/champions-league-olympiacos-visita-a-kairat-almaty-por-la-fecha-6-noticia-1667020)
-- **▶️ Kairat contra Olympiacos Ver en directo, Consejo » Como ver el partido️ - 9 dic.**: [Link](https://footballpredictions.net/es/predicciones-kairat-v-olympiacos-datos-apuestas)
-- **Olympiacos vs Valencia tickets | EuroLeague 2025/2026, Round 16, Piraeus – Peace and Friendship Stadium**: [Link](https://karlobag.eu/en/tickets/basketball/olympiacos-vs-valencia-tickets-buy-tickets-for-euroleague-20252026-round-16-piraeus---peace-and-friendship-stadium-ln4xy)
-
-
-### marruecos - arabia saudita (N/A, 09/12/2025 11:33 Lima)
-
-- **Marruecos vs Arabia Saudita EN VIVO: Últimos minutos (1-0)**: [Link](https://www.vavel.com/mx/futbol-internacional/2025/12/08/1243991-marruecos-vs-arabia-saudita-en-vivo-copa-arabe.html)
-- **Renard: “Muchas selecciones, como Brasil, temen ahora cuando escuchan el nombre de Marruecos”**: [Link](https://es.rue20.com/2025/12/08/renard-muchas-selecciones-como-brasil-temen-ahora-cuando-escuchan-el-nombre-de-marruecos/)
-- **Quiso picar el penal y lo erró: Arabia Saudita, rival de Uruguay en el Mundial 2026, perdió ante Marruecos por la Copa Árabe de la FIFA**: [Link](https://www.elobservador.com.uy/futbol-internacional/quiso-picar-el-penal-y-lo-erro-arabia-saudita-rival-uruguay-el-mundial-2026-perdio-marruecos-la-copa-arabe-la-fifa-n6027488)
-
-
-### inter vs liverpool (N/A, 09/12/2025 11:33 Lima)
-
-- **Inter vs. Liverpool en vivo, Champions League: a qué hora juegan, canal que transmite y dónde ver**: [Link](https://elcomercio.pe/deporte-total/champions-league/inter-vs-liverpool-en-vivo-online-gratis-via-espn-disney-plus-tnt-sports-movistar-tudn-a-que-hora-juegan-canal-que-transmite-y-donde-ver-por-champions-league-video-noticia/)
-- **Champions League: Por la fecha 6, Inter recibirá a Liverpool**: [Link](https://rpp.pe/futbol/ligas-internacionales/champions-league-por-la-fecha-6-inter-recibira-a-liverpool-noticia-1667044)
-- **Inter vs Liverpool: ¡Juega en la Champions League y gana S/. 30,000 en premios con Meridianbet!**: [Link](https://ovacion.pe/noticias/nota-promocional/inter-vs-liverpool-juega-champions-league-gana-s-30000-premios)
 
 
