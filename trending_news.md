@@ -1,3 +1,31 @@
+### atlético madrid - valencia c. f. (N/A, 13/12/2025 07:49 Lima)
+
+- **Atlético de Madrid - Valencia, en directo: LaLiga EA Sports hoy, en vivo**: [Link](https://as.com/futbol/primera/atletico-de-madrid-valencia-en-directo-laliga-ea-sports-hoy-en-vivo-f202512-d/)
+- **Apuestas y Pronóstico del Atlético Madrid vs Valencia 13/12/25**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/2025/diciembre/pronostico-atletico-madrid-vs-valencia-13-12-25)
+- **Atlético-Valencia: Alineaciones probables, estadísticas y cómo ver por TV y online (14:00)**: [Link](https://espanol.eurosport.com/futbol/la-liga/2025-2026/atletico-valencia-alineaciones-probables-previa-estadisticas-horario-como-donde-ver-television-online-streaming-hoy_sto23250053/story.shtml)
+
+
+### perth glory - sydney (N/A, 13/12/2025 07:49 Lima)
+
+- **Timberwolves vs. Warriors (Dec 12, 2025) Live Score**: [Link](https://www.espn.com/nba/game?gameId=401836796)
+- **Nets vs. Mavericks (Dec 12, 2025) Live Score**: [Link](https://www.espn.com/nba/game/_/gameId/401836795)
+- **Timberwolves 127-120 Warriors (Dec 12, 2025) Final Score**: [Link](https://www.espn.com/nba/game/_/gameId/401836796/timberwolves-warriors)
+
+
+### peter greene (N/A, 13/12/2025 07:49 Lima)
+
+- **Peter Greene, actor known for 'Pulp Fiction' and 'The Mask,' dead at 60**: [Link](https://www.nbcnews.com/news/obituaries/peter-greene-actor-known-pulp-fiction-mask-dead-60-rcna248976)
+- **'Pulp Fiction' actor Peter Greene dies at 60**: [Link](https://www.10tv.com/article/news/nation-world/pulp-fiction-actor-peter-greene-dies/507-c7243c5a-0d25-4fc5-87e6-c796551dc1ea)
+- **Peter Greene, 60, actor in ‘Pulp Fiction,’ ‘The Mask,’ found dead in NYC apartment**: [Link](https://www.nydailynews.com/2025/12/12/peter-greene-60-actor-pulp-fiction-the-mask-found-dead-in-nyc-apartment-lower-east-side/)
+
+
+### la gripe h3n2 (N/A, 13/12/2025 07:49 Lima)
+
+- **Suba de casos de gripe H3N2: el virus puede ingresar por múltiples vías en una comunidad y acelerar los brotes**: [Link](https://www.infobae.com/america/ciencia-america/2025/12/13/suba-de-casos-de-gripe-h3n2-el-virus-puede-ingresar-por-multiples-vias-en-una-comunidad-y-acelerar-los-brotes/)
+- **México confirma primer caso de influenza A H3N2 y refuerza vigilancia**: [Link](https://canaln.pe/internacionales/mexico-confirma-primer-caso-influenza-h3n2-y-refuerza-vigilancia-n488916)
+- **Un fuerte brote de gripe afecta a Europa y toman medidas para evitar su propagación**: [Link](https://www.lanacion.com.ar/el-mundo/un-fuerte-brote-de-gripe-afecta-a-europa-y-toman-medidas-para-evitar-su-propagacion-nid10122025/)
+
+
 ### barcelona vs osasuna (N/A, 13/12/2025 03:31 Lima)
 
 - **Barcelona vs Osasuna: alineaciones, Jornada 16, LaLiga**: [Link](https://www.espn.com.ar/futbol/nota/_/id/16077728/barcelona-vs-osasuna-alineaciones-jornada-16-laliga)
@@ -998,33 +1026,5 @@ Sin noticias relacionadas disponibles.
 - **Inter vs. Liverpool en vivo, Champions League: a qué hora juegan, canal que transmite y dónde ver**: [Link](https://elcomercio.pe/deporte-total/champions-league/inter-vs-liverpool-en-vivo-online-gratis-via-espn-disney-plus-tnt-sports-movistar-tudn-a-que-hora-juegan-canal-que-transmite-y-donde-ver-por-champions-league-video-noticia/)
 - **Champions League: Por la fecha 6, Inter recibirá a Liverpool**: [Link](https://rpp.pe/futbol/ligas-internacionales/champions-league-por-la-fecha-6-inter-recibira-a-liverpool-noticia-1667044)
 - **Inter vs Liverpool: ¡Juega en la Champions League y gana S/. 30,000 en premios con Meridianbet!**: [Link](https://ovacion.pe/noticias/nota-promocional/inter-vs-liverpool-juega-champions-league-gana-s-30000-premios)
-
-
-### copa árabe de la fifa (N/A, 09/12/2025 11:33 Lima)
-
-- **Argelia vs Irak EN VIVO, minuto a minuto en Copa Árabe FIFA 2025**: [Link](https://www.vavel.com/mx/futbol-internacional/2025/12/09/1244041-argelia-vs-irak-en-vivo-copa-arabe.html)
-- **Copa Árabe 2025/Argelia-Irak: Posibles alineaciones**: [Link](https://www.elpueblo.pe/deportes/copa-arabe-2025-argelia-irak-posibles-alineaciones/157720/)
-- **Copa Árabe: Emilio Saba, el futbolista peruano que llena de alegría a los fans de la selección de Palestina**: [Link](https://www.latimes.com/espanol/deportes/articulo/2025-12-07/copa-arabe-emilio-saba-el-futbolista-peruano-que-llena-de-alegria-los-fans-de-la-seleccion-de-palestina)
-
-
-### madrid vs city (N/A, 09/12/2025 11:33 Lima)
-
-- **Un Real Madrid complicado recibe a Manchester City por la Champions League**: [Link](https://www.espn.com.pe/futbol/champions-league/nota/_/id/16064268/real-madrid-vs-manchester-city-fase-liga-fecha-6-champions-equipo-fecha-hora-tv-en-vivo)
-- **Pronósticos Real Madrid vs Manchester City 10/12/2025**: [Link](https://bolavip.com/pe/apuestas/pronosticos/real-madrid-vs-manchester-city-10-12-2025)
-- **Real Madrid vs Manchester City: vista previa del partido, últimas noticias del equipo y cómo verlo**: [Link](https://www.elpueblo.pe/deportes/real-madrid-vs-manchester-city-vista-previa-del-partido-ultimas-noticias-del-equipo-y-como-verlo/157740/)
-
-
-### paramount netflix warner bros (N/A, 09/12/2025 11:33 Lima)
-
-- **Paramount Skydance launches hostile bid for WBD after Netflix deal**: [Link](https://www.cnbc.com/2025/12/08/paramount-skydance-hostile-bid-wbd-netflix.html)
-- **Why has Paramount launched a hostile bid for Warner Bros Discovery?**: [Link](https://www.bbc.com/news/articles/cm21z4zgkx7o)
-- **Jared Kushner is part of Paramount's hostile bid for Warner Bros. Discovery**: [Link](https://www.axios.com/2025/12/08/jared-kushner-paramount-warner-bros-netflix)
-
-
-### 9 de diciembre (N/A, 09/12/2025 07:55 Lima)
-
-- **Horóscopo de hoy, 9 de diciembre: Estas son las predicciones más exactas para tu signo**: [Link](https://elcomercio.pe/luces/vida-social/horoscopo-de-hoy-9-de-diciembre-estas-son-las-predicciones-mas-exactas-para-tu-signo-noticia/)
-- **Horóscopo de Josie para el martes 9 de diciembre: predicciones en el amor, salud y dinero**: [Link](https://libero.pe/ocio/2025/12/08/horoscopo-hoy-martes-9-de-diciembre-predicciones-en-amor-salud-dinero-josie-diez-canseco-285648)
-- **Martes 9 de diciembre de 2025: Día de intuición afilada, honestidad radical y renovación interior que traerá revelaciones profundas y comunicaciones transformadoras. Suerte**: [Link](https://elcorreodepozuelo.com/2025/12/09/martes-9-de-diciembre-de-2025-dia-de-intuicion-afilada-honestidad-radical-y-renovacion-interior-que-traera-revelaciones-profundas-y-comunicaciones-transformadoras-suerte/)
 
 
