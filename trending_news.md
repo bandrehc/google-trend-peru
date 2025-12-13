@@ -1,3 +1,45 @@
+### junior - tolima (N/A, 12/12/2025 20:56 Lima)
+
+- **Tolima: Lucas González, el presupuesto de Junior y su 'responsabilidad' en la final**: [Link](https://www.espn.com.ar/futbol/colombia/nota/_/id/16074013/lucas-gonzalez-tolima-tira-responsabilidad-a-junior-presupuesto-final-liga-betplay-2025)
+- **Alfredo Arias destacó al Tolima y agregó: "ojalá que ellos tengan que defender mucho"**: [Link](https://espndeportes.espn.com/futbol/colombia/nota/_/id/16074063/alfredo-arias-destaco-al-tolima-y-agrego-ojala-que-ellos-tengan-que-defender-mucho)
+- **Aida Cortés confesó su amor por uno de los finalistas de la Liga que disputarán Junior y Deportes Tolima: “Mi corazón se sentiría más alegre si...”**: [Link](https://www.infobae.com/colombia/2025/12/11/aida-cortes-confeso-su-amor-por-uno-de-los-finalistas-de-la-liga-que-disputaran-junior-y-deportes-tolima-mi-corazon-se-sentiria-mas-alegre-si/)
+
+
+### otan (N/A, 12/12/2025 20:56 Lima)
+
+- **Trump planea designar a Perú como aliado principal extra-OTAN: los motivos**: [Link](https://gestion.pe/mundo/eeuu/trump-planea-designar-a-peru-como-aliado-principal-extra-otan-los-motivos-noticia/)
+- **Donald Trump propone elevar a Perú como aliado estratégico fuera de la OTAN: premier Ernesto Álvarez reacciona rápidamente | Lo que implicaría**: [Link](https://www.expreso.com.pe/politica/donald-trump-propone-elevar-a-peru-como-aliado-estrategico-fuera-de-la-otan-premier-ernesto-alvarez-reacciona-rapidamente-lo-que-implicaria-ernesto-alvarez-casa-blanca-noticia/1246747/)
+- **🔴 Propuesta sorprendió a analistas, pues se dirige a un país que atraviesa una transición política sensible.**: [Link](https://www.facebook.com/diario.expreso/posts/-propuesta-sorprendi%C3%B3-a-analistas-pues-se-dirige-a-un-pa%C3%ADs-que-atraviesa-una-tra/1282343097256632/)
+
+
+### hailee steinfeld (N/A, 12/12/2025 20:56 Lima)
+
+- **See Hailee Steinfeld and Josh Allen's Rare Couple Photos as They Prepare to Welcome Their First Child**: [Link](https://people.com/hailee-steinfeld-josh-allen-rare-couple-photos-11868487)
+- **Bills QB Josh Allen Announces Personal News Amid NFL Season**: [Link](https://sports.yahoo.com/articles/bills-qb-josh-allen-announces-223436425.html)
+- **Hailee Steinfeld's Pregnancy Announcement Is About to Make This Trendy Fleece Jacket Sell Out**: [Link](https://www.whowhatwear.com/fashion/celebrity-style/hailee-steinfeld-pregnancy-announcement-mother-sweatshirt)
+
+
+### game awards goty 2025 (N/A, 12/12/2025 20:56 Lima)
+
+- **Game Awards 2025: Expedition 33 tops winners list**: [Link](https://www.bbc.com/news/articles/c1kpwmezkpdo)
+- **The Game Awards 2025: All The Biggest Announcements**: [Link](https://www.gamespot.com/gallery/the-game-awards-2025-all-the-biggest-announcements/2900-7341/)
+- **GR Readers Successfully Pick The 2025 GOTY**: [Link](https://gamerant.com/game-rant-readers-successfully-predict-the-2025-goty/)
+
+
+### cotizacion dolar hoy (N/A, 12/12/2025 20:56 Lima)
+
+- **Precio del dólar cae: Así cerró el tipo de cambio hoy 11 de diciembre en Perú**: [Link](https://www.infobae.com/peru/2025/12/10/dolar-cotizacion-de-apertura-hoy-10-de-diciembre-en-peru/)
+- **¿Cuál es la cotización del dólar hoy viernes 12 de diciembre del 2025?**: [Link](https://andina.pe/agencia/noticia-cual-es-cotizacion-del-dolar-hoy-viernes-12-diciembre-del-2025-1055375.aspx)
+- **¿Cuánto está el dólar HOY? Precio compra y venta para este viernes 12 de diciembre**: [Link](https://latinanoticias.pe/te-ayudo/cuanto-esta-el-dolar-hoy-precio-compra-y-venta-para-este-12-de-diciembre-cotizacion-dolar-ahora-en-lima-sunat-sbs-bcrp-adp-noticia_20251212/)
+
+
+### john cena (N/A, 12/12/2025 20:56 Lima)
+
+- **WWE's Lilian Garcia Talks John Cena's Last Match & Finding Love Again**: [Link](https://www.tvinsider.com/1232459/wwe-ring-announcer-lilian-garcia-talks-john-cenas-last-match-finding-love-again/)
+- **Update on John Cena vs. Gunther at WWE Saturday Night’s Main Event**: [Link](https://www.f4wonline.com/news/wwe/john-cena-gunther-wwe-saturday-nights-main-event-plans/)
+- **“Athletes Die Twice”: John Cena’s Chilling Perspective On Retirement**: [Link](https://wrestlingnews.co/wwe-news/athletes-die-twice-john-cenas-chilling-perspective-retirement/)
+
+
 ### angers - nantes (N/A, 12/12/2025 15:29 Lima)
 
 - **DIRECT. Angers-Nantes: suivez le match d'ouverture de la 16e journée de Ligue 1 en live**: [Link](https://rmcsport.bfmtv.com/football/ligue-1/direct-angers-nantes-suivez-le-match-d-ouverture-de-la-16e-journee-de-ligue-1-en-live_LS-202512120747.html)
@@ -984,45 +1026,5 @@ Sin noticias relacionadas disponibles.
 - **Emelec vs Macara: Resultado EN VIVO y tabla de posiciones de la Liga Pro**: [Link](https://www.365scores.com/es/news/emelec-vs-macara-resultado-en-vivo/)
 - **Emelec busca recuperarse ante Macará por Liga Ecuabet**: [Link](https://www.espn.com.ar/futbol/ecuador/nota/_/id/16045520/emelec-vs-macara-fecha-8-hexagonal-liga-ecuabet-equipo-fecha-hora-y-tv-en-vivo)
 - **Emelec vs Macará: Fecha, hora y dónde ver EN VIVO el partido de la LigaPro 2026**: [Link](https://www.expreso.ec/deportes/emelec-vs-macara-fecha-hora-y-donde-ver-en-vivo-el-partido-de-la-ligapro-2026-267067.html)
-
-
-### pablo erustes (N/A, 08/12/2025 21:00 Lima)
-
-- **Fue ofrecido a Universitario: Pablo Erustes será nuevo jugador de Melgar**: [Link](https://depor.com/futbol-peruano/descentralizado/pablo-erustes-sera-jugador-de-melgar-desde-2026-detalles-del-fichaje-ofertas-y-por-que-no-llego-a-universitario-liga-1-video-noticia/)
-- **Melgar anunció el fichaje de Pablo Erustes para la temporada 2026**: [Link](https://www.espn.com.pe/futbol/peru/nota/_/id/16061829/pablo-erustes-es-nuevo-jugador-de-melgar-para-la-temporada-2026)
-- **Melgar sorprende y le arrebata a Universitario al delantero que marcó 15 goles esta temporada**: [Link](https://libero.pe/futbol-peruano/liga-1/2025/12/08/fichajes-liga-1-melgar-sorprende-le-arrebata-universitario-delantero-marco-15-goles-temporada-788576)
-
-
-### mercedes roa (N/A, 08/12/2025 21:00 Lima)
-
-Sin noticias relacionadas disponibles.
-
-
-### américa - atlético nacional (N/A, 08/12/2025 21:00 Lima)
-
-- **Liga BetPlay: Nacional perdió ante América y se quedó sin final**: [Link](https://www.espn.com.ar/futbol/colombia/nota/_/id/16054407/atletico-nacional-perdio-ante-america-se-quedo-sin-final-liga-betplay-2025)
-- **Resumen, goles y video: América venció 3-2 a Nacional por la Liga BetPlay 2025**: [Link](https://depor.com/colombia/liga-bet-play/win-sports-en-vivo-america-vs-nacional-en-directo-gratis-ver-futbol-libre-tv-canal-rcn-online-por-internet-streaming-cuadrangulares-semifinales-liga-betplay-colombia-video-noticia/)
-- **Nacional obligado a ganar: la apuesta que se puede ir a las nubes**: [Link](https://www.futbolred.com/apuestas/pronosticos-america-vs-nacional-08-12-2025-259726)
-
-
-### manchester united vs (N/A, 08/12/2025 15:29 Lima)
-
-- **Manchester United busca volver al triunfo en duelo a domicilio ante Wolves**: [Link](https://www.espn.com.pe/futbol/inglaterra/nota/_/id/16044961/manchester-united-vs-west-ham-fecha-15-premier-league-equipo-fecha-hora-y-tv-en-vivo)
-- **Premier League: Wolverhampton quiere romper su racha negativa y ganar frente a Manchester United**: [Link](https://rpp.pe/futbol/ligas-internacionales/premier-league-wolverhampton-quiere-romper-su-racha-negativa-y-ganar-frente-a-manchester-united-noticia-1666955)
-- **¡Continuo! Programación de TV y enlaces de transmisión en vivo para la Premier League Wolverhampton vs Manchester United**: [Link](https://www.ucvradio.pe/mas-actualidad/continuo-programacion-de-tv-y-enlaces-de-transmision-en-vivo-para-la-premier-league-wolverhampton-vs-manchester-united/70834/)
-
-
-### tolima - fortaleza (N/A, 08/12/2025 15:29 Lima)
-
-- **Pronóstico de Tolima vs Fortaleza por la Liga BetPlay 2025**: [Link](https://www.365scores.com/es/news/pronostico-tolima-vs-fortaleza-liga/)
-- **Noticias Tolima: Lista la seguridad para el partido Deportes Tolima**: [Link](https://www.alertatolima.com/noticias/deportes/lista-la-seguridad-para-el-partido-deportes-tolima-fortaleza-en-ibague)
-- **Deportes Tolima vs Fortaleza, en vivo el partido de los cuadrangulares de la Liga BetPlay 2025-II**: [Link](https://www.clarosports.com/colombia/liga-bet-play/deportes-tolima-vs-fortaleza-en-vivo-el-partido-de-los-cuadrangulares-de-la-liga-betplay-2025-ii/)
-
-
-### it welcome to derry capitulo 7 estreno (N/A, 08/12/2025 15:29 Lima)
-
-- **“It: Welcome to Derry” Capítulo 7: Hora de estreno confirmado en HBO Max | tdpe | TVMAS**: [Link](https://elcomercio.pe/tvmas/series/it-welcome-to-derry-capitulo-7-hora-de-estreno-confirmado-hbo-max-tdpe-noticia/)
-- **‘It: Welcome to Derry’: Andy Muschietti habla sobre la escena más aterradora de la temporada**: [Link](https://www.ecartelera.com/noticias/it-welcome-to-derry-andy-muschietti-habla-sobre-la-escena-82654/)
-- **‘It: Bienvenido al Starry’ Shift Surethourte Por qué ‘it’ este ‘it’ este bebé forma en el episodio 7 y si las estrellas de la película se escucharán pronto | HO, IT: Bienvenido a Derry, TV | Noticias y chismes Entretenimiento, fotos y vídeos.**: [Link](https://aeroagora.com.br/entretenimento/it-bienvenido-al-starry-shift-surethourte-por-que-it-este-it-este-bebe-forma-en-el-episodio-7-y-si-las-estrellas-de-la-pelicula-se-escucharan-pronto-ho-it-bienvenido-a-derry-tv-noticias/9186/)
 
 
