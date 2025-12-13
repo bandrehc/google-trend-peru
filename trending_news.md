@@ -1,3 +1,73 @@
+### arsenal football club (N/A, 13/12/2025 15:26 Lima)
+
+- **Gyokeres sent warning as surprise £52m Arsenal replacement named with Arteta given 'problem'**: [Link](https://www.football365.com/news/arsenal-gyokeres-warning-surprise-52m-replacement-named-arteta-problem)
+- **Viktor Gyokeres set for Arsenal demotion - but that's no bad thing**: [Link](https://www.standard.co.uk/sport/football/gyokeres-arsenal-fc-demotion-b1262343.html)
+- **Mikel Arteta calls for everyone to leave Gyokeres alone & get behind him**: [Link](https://sports.yahoo.com/articles/mikel-arteta-calls-everyone-leave-180500800.html)
+
+
+### cusco vs cristal (N/A, 13/12/2025 15:26 Lima)
+
+- **Cusco FC recibe a Sporting Cristal por los playoffs para definir a Perú 2 en la CONMEBOL Libertadores**: [Link](https://www.espn.com.pe/futbol/peru/nota/_/id/16072272/cusco-fc-vs-sporting-cristal-por-los-playoffs-de-la-liga1-equipo-fecha-hora-y-tv-en-vivo)
+- **Liga 1: Cusco FC y Sporting Cristal se miden por la fase 2**: [Link](https://rpp.pe/futbol/descentralizado/liga-1-cusco-fc-y-sporting-cristal-se-miden-por-la-fase-2-noticia-1667799)
+- **Bruno Pérez será el árbitro del Cusco FC vs Sporting Cristal por la final vuelta de los playoffs de Liga 1**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/bruno-perez-sera-el-arbitro-del-cusco-fc-vs-sporting-cristal-por-la-final-vuelta-de-los-playoffs-de-liga-1-noticia/)
+
+
+### sporting cp (N/A, 13/12/2025 15:26 Lima)
+
+- **Bayern Munich train ahead of Champions League game against Lisbon**: [Link](https://www.reutersconnect.com/item/bayern-munich-train-ahead-of-champions-league-game-against-lisbon/dGFnOnJldXRlcnMuY29tLDIwMjU6bmV3c21sX1ZBODExMDA4MTIyMDI1UlAx)
+- **Kompany lauds 'dangerous' Karl after record-breaking Champions League goal**: [Link](https://www.beinsports.com/en-us/soccer/uefa-champions-league/articles/kompany-lauds-dangerous-karl-after-record-breaking-champions-league-goal-2025-12-09)
+- **FC Bayern vs Sporting: preview, prediction and odds**: [Link](https://fcbinside.com/fc-bayern-vs-sporting-preview-prediction-and-odds/)
+
+
+### arsenal fc (N/A, 13/12/2025 15:26 Lima)
+
+- **Done Deel? New Arsenal partner to take over sleeve sponsorship**: [Link](https://arseblog.news/2025/12/done-deel-new-arsenal-partner-to-take-over-sleeve-sponsorship/)
+- **Gunners bolster ranks with new commercial signing**: [Link](https://bdaily.co.uk/articles/2025/12/12/gunners-bolster-ranks-with-commercial-signing)
+- **Arsenal announce Deel partnership 'ahead of shirt sponsor agreement'**: [Link](https://www.standard.co.uk/sport/football/arsenal-agree-huge-new-deal-ahead-of-january-transfer-window-b1262317.html)
+
+
+### arsenal vs (N/A, 13/12/2025 15:26 Lima)
+
+- **Arteta's update on Rice, Timber, Trossard & Saliba | Press conference | News**: [Link](https://www.arsenal.com/news/artetas-update-rice-timber-trossard-saliba)
+- **Edwards | 'It's got to come, we've got to deliver' | Men's First-Team | News**: [Link](https://www.wolves.co.uk/news/mens-first-team/20251212-edwards-its-got-to-come-weve-got-to-deliver/)
+- **Arsenal Seek to Extend Lead as Struggling Wolves Come to Emirates**: [Link](https://www.dawan.africa/news/arsenal-seek-to-extend-lead-as-struggling-wolves-come-to-emirates)
+
+
+### paris fc (N/A, 13/12/2025 15:26 Lima)
+
+- **How to watch today's Paris FC vs Toulouse Ligue 1 game: Live stream, TV channel, and start time**: [Link](https://www.goal.com/en-us/news/watch-paris-fc-vs-toulouse-ligue-1-game-live-stream-tv-channel-start-time/blt00ff6effeb9fe882)
+- **Paris FC vs Toulouse Prediction, 12/13/2025 Soccer Pick, Tips and Odds**: [Link](https://www.docsports.com/free-picks/soccer/2025/paris-fc-vs-toulouse-prediction-12-13-2025-soccer-pick-tips-and-odds.html)
+- **Ligue 1 News: Paris FC vs Toulouse Confirmed Line-ups**: [Link](https://footballpredictions.net/paris-fc-v-toulouse-team-news-confirmed-lineups)
+
+
+### getafe vs espanyol (N/A, 13/12/2025 15:26 Lima)
+
+- **Getafe vs Espanyol: Predictions, Betting odds, Lineups, Preview**: [Link](https://www.bwin.com/en/news/match-preview-getafe-espanyol-la-liga-gameweek-16/)
+- **Where to Watch Getafe CF vs. Espanyol: TV Channel, Start Time and Live Stream**: [Link](https://www.bleachernation.com/how-to-watch/2025/12/12/where-to-watch-getafe-cf-vs-espanyol-tv-channel-start-time-and-live-stream-2/)
+- **Getafe vs Espanyol Prediction, 12/13/2025 Soccer Pick, Tips and Odds**: [Link](https://www.docsports.com/free-picks/soccer/2025/getafe-vs-espanyol-prediction-12-13-2025-soccer-pick-tips-and-odds.html)
+
+
+### atalanta (N/A, 13/12/2025 15:26 Lima)
+
+- **Serie A: Cagliari visita a Atalanta por la fecha 15**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-cagliari-visita-a-atalanta-por-la-fecha-15-noticia-1667610)
+- **El Atalanta BC recibirá al Cagliari en un choque crucial de la Serie A**: [Link](https://www.ucvradio.pe/mas-actualidad/el-atalanta-bc-recibira-al-cagliari-en-un-choque-crucial-de-la-serie-a/75291/)
+- **Malinowski perseguido por los mejores clubes, Napoli-Atalanta, Dumfries en duda**: [Link](https://www.elpueblo.pe/deportes/malinowski-perseguido-por-los-mejores-clubes-napoli-atalanta-dumfries-en-duda/163684/)
+
+
+### universitario vs alianza lima femenino (N/A, 13/12/2025 15:26 Lima)
+
+- **A qué hora juega Alianza Lima vs Universitario HOY: partido por final vuelta de la Liga Femenina 2025**: [Link](https://www.infobae.com/peru/deportes/2025/12/13/a-que-hora-juega-alianza-lima-vs-universitario-partido-vidu-final-vuelta-liga-femenina-2025-horario/)
+- **Alianza Lima vs Universitario femenino: íntimos se quejan sede por la sede de la final de vuelta de la Liga Femenina 2025**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/alianza-lima-vs-universitario-femenino-intimos-se-quejan-sede-por-la-sede-de-la-final-de-vuelta-de-la-liga-femenina-2025-noticia/)
+- **Canales de TV para ver Universitario vs. Alianza Lima: horarios de la final de Liga Femenina**: [Link](https://depor.com/futbol-peruano/futbol-femenino/universitario-de-deportes-vs-alianza-lima-en-vivo-fecha-horarios-y-canales-de-tv-donde-ver-transmision-gratis-por-la-liga-femenina-2025-noticia/)
+
+
+### sporting lisboa (N/A, 13/12/2025 15:26 Lima)
+
+- **Revolução no onze do Sporting com grande ausência**: [Link](https://www.abola.pt/noticias/revolucao-no-onze-do-sporting-com-grande-ausencia-2025121319273617043)
+- **«Não é o adversário ideal»**: [Link](https://www.pressreader.com/portugal/a-bola-358A/20251213/281595246863120)
+- **Obras vão condicionar acessos ao Estádio José Alvalade no jogo com o AVS SAD**: [Link](https://www.record.pt/futebol/futebol-nacional/liga-betclic/sporting/detalhe/obras-vao-condicionar-acessos-ao-estadio-jose-alvalade-no-jogo-com-o-avs-sad)
+
+
 ### rennes vs (N/A, 13/12/2025 11:30 Lima)
 
 - **Where to Watch Stade Rennes vs. Stade Brest 29: TV Channel, Start Time and Live Stream**: [Link](https://www.bleachernation.com/how-to-watch/2025/12/12/where-to-watch-stade-rennes-vs-stade-brest-29-tv-channel-start-time-and-live-stream-2/)
@@ -954,75 +1024,5 @@ Sin noticias relacionadas disponibles.
 - **El niño peruano que narró la final de la Libertadores desde un cerro y conquistó Europa**: [Link](https://elpais.com/america/2025-12-07/el-nino-peruano-que-narro-la-final-de-la-libertadores-desde-un-cerro-y-conquisto-europa.html)
 - **‘Pol Deportes’ llegó a España y fue recibido por la comunidad peruana: “Gracias por el cariño”**: [Link](https://www.infobae.com/peru/2025/12/08/pol-deportes-llego-a-espana-y-fue-recibido-por-la-comunidad-peruana-gracias-por-el-carino/)
 - **¡Emotivo! El tierno recibimiento de decenas de peruanos a Pol Deportes en España | VIDEO**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/el-tierno-recibimiento-de-decenas-de-peruanos-a-pol-deportes-en-espana-video-noticia/)
-
-
-### latina (N/A, 09/12/2025 21:02 Lima)
-
-- **Fernando Rospigliosi participó en 201.° aniversario de batalla de Ayacucho y Día del Ejército del Perú**: [Link](https://comunicaciones.congreso.gob.pe/noticias/fernando-rospigliosi-participo-en-201-aniversario-de-batalla-de-ayacucho-y-dia-del-ejercito-del-peru/)
-- **9 de diciembre: la patria que nos siguen debiendo | Editorial**: [Link](https://jornada.com.pe/9-de-diciembre-la-patria-que-nos-siguen-debiendo-editorial/)
-- **El presidente José Jerí participó en la ceremonia por el 201.º aniversario de la Batalla de Ayacucho y Día del Ejército del Perú. El mandatario rindió un emotivo homenaje a los integrantes de esta institución armada, quienes vienen trabajando por la paz y el d**: [Link](https://x.com/presidenciaperu/status/1998463049020154116)
-
-
-### costa 21 (N/A, 09/12/2025 21:02 Lima)
-
-- **Limp Bizkit en Lima: setlist, horarios, mapa, recomendaciones y todo lo que debes saber para su concierto en Costa 21**: [Link](https://rpp.pe/musica/conciertos/limp-bizkit-en-lima-setlist-horarios-mapa-recomendaciones-y-todo-lo-que-debes-saber-para-su-concierto-en-costa-21-noticia-1667096)
-- **ATU: servicio Bus Stage facilitará el retorno de los asistentes al concierto de Limp Bizkit**: [Link](https://www.cronicaviva.com.pe/atu-servicio-bus-stage-facilitara-el-retorno-de-los-asistentes-al-concierto-de-limp-bizkit/)
-- **Gana entradas dobles para Limp Bizkit con Nación Oxígeno**: [Link](https://www.oxigeno.com.pe/concursos/gana-entradas-dobles-para-limp-bizkit-con-nacion-oxigeno-noticia-1666057)
-
-
-### samantha batallanos (N/A, 09/12/2025 21:02 Lima)
-
-- **Presidente Jerí no descarta cenar con Samantha Batallanos**: [Link](https://www.americatv.com.pe/videos/mas-espectaculos/presidente-jeri-no-descarta-cenar-samantha-y-ella-acepta-noticia-161811?ref=portal-amtv)
-- **Samantha Batallanos sorprende con halagos al presidente José Jerí: "Lindo, me encanta"**: [Link](https://www.exitosanoticias.pe/espectaculos/samantha-batallanos-sorprende-halagos-presidente-jose-jeri-lindo-me-encanta-n163881)
-- **Samantha Batallanos se suelta y le lanza su 'maicito' al presidente José Jerí: "Lindo, me encanta"**: [Link](https://wapa.pe/espectaculos-y-tv/farandula/2025/12/01/samantha-batallanos-sorprende-lanza-atrevido-cumplido-presidente-jose-jeri-lindo-me-encanta-12583)
-
-
-### tottenham vs (N/A, 09/12/2025 15:26 Lima)
-
-- **Preview: Tottenham Hotspur vs Slavia Prague - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/spurs/preview/spurs-vs-slavia-prague-prediction-team-news-lineups_587312.html)
-- **Team news | Destiny out until January, Brennan ‘touch and go’ to face Slavia Prague**: [Link](https://www.tottenhamhotspur.com/news/2025/december/spurs-vs-slavia-prague-uefa-champions-league-team-news-destiny-udogie-out-until-january-brennan-johnson-touch-and-go-to-face-slavia-prague/)
-- **Spurs star now won't be seen again in 2025 after frustrating injury blow**: [Link](https://www.footballfancast.com/spurs-star-destiny-udogie-frustrating-injury-blow/)
-
-
-### monaco fc (N/A, 09/12/2025 15:26 Lima)
-
-- **Monaco predicted XI v Galatasaray: Folarin Balogun to return, Ansu Fati out**: [Link](https://www.getfootballnewsfrance.com/2025/monaco-predicted-xi-v-galatasaray-folarin-balogun-to-return-ansu-fati-out/)
-- **UCL: Victor Osimhen can break a major record against Monaco**: [Link](https://sports.yahoo.com/articles/ucl-victor-osimhen-break-major-095000121.html)
-- **Where to stream AS Monaco vs. Galatasaray Champions League match free today**: [Link](https://www.masslive.com/tv/2025/12/where-to-stream-as-monaco-vs-galatasaray-champions-league-match-free-today.html)
-
-
-### marsella (N/A, 09/12/2025 15:26 Lima)
-
-- **Royale Union Saint-Gilloise - Olympique de Marsella, en directo: Champions League, hoy en vivo**: [Link](https://as.com/futbol/champions/royale-union-saint-gilloise-olympique-de-marsella-en-directo-champions-league-hoy-en-vivo-f202512-d/)
-- **Marsella, De Zerbi: "Contra el Lille, el peor partido desde que estoy aquí". La intrahistoria de Vermeeren**: [Link](https://www.todomercadoweb.es/futbol-internacional/marsella-de-zerbi-contra-el-lille-el-peor-partido-desde-que-estoy-aqui-la-intrahistoria-de-vermeeren-530125)
-- **PSV - Atlético, en directo: Julián Álvarez y Sorloth, titulares**: [Link](https://www.elmundo.es/deportes/futbol/champions-league/psv-atletico/2025/12/09/01_0103_20251209_204_175-directo.html)
-
-
-### psv (N/A, 09/12/2025 15:26 Lima)
-
-- **LIVE Champions League | Fans PSV hebben vertrouwen in nieuwe stunt, talenten geven goede voorbeeld**: [Link](https://www.ad.nl/voetbal/live-champions-league-fans-psv-hebben-vertrouwen-in-nieuwe-stunt-talenten-geven-goede-voorbeeld~ad281698/)
-- **Bosz gebruikt Wanner om niet in het mes van Atlético Madrid te lopen**: [Link](https://www.vi.nl/nieuws/bosz-gebruikt-wanner-om-niet-in-het-mes-van-atl-tico-madrid-te-lopen)
-- **Jeroen Zoet ziet: "Kan je het beste in je eerste wedstrijd doen"**: [Link](https://www.psvfans.nl/jeroen-zoet-ziet-kan-je-het-beste-in-je-eerste-wedstrijd-doen/)
-
-
-### inter milan vs (N/A, 09/12/2025 15:26 Lima)
-
-- **Liverpool name 19-man squad for Inter fixture**: [Link](https://www.liverpoolfc.com/news/liverpool-name-19-man-squad-inter-fixture)
-- **Inter vs Liverpool Lineups: Salah left out as Slot confirms XI for crucial Champions League clash**: [Link](https://foot-africa.com/en/news/inter-vs-liverpool-lineups-salah-left-out-as-slot-confirms-xi-for-crucial-champions-league-clash-995570/)
-- **Liverpool Travel to the San Siro Desperate to Revive UCL League Phase Hopes**: [Link](https://www.dawan.africa/news/liverpool-travel-to-the-san-siro-desperate-to-revive-ucl-league-phase-hopes)
-
-
-### salah (N/A, 09/12/2025 15:26 Lima)
-
-- **Alisson Becker: Read the goalkeeper's pre-Inter press conference in full**: [Link](https://www.liverpoolfc.com/news/alisson-becker-read-goalkeepers-pre-inter-press-conference-full)
-- **Mohamed Salah left out of Liverpool squad for Inter match - The Athletic**: [Link](https://www.nytimes.com/athletic/6872322/2025/12/08/salah-liverpool-future/)
-- **'Disgraceful' Salah comments caused 'carnage' - pundits**: [Link](https://www.bbc.com/sport/football/articles/c05897vy81eo)
-
-
-### frankfurt vs. atalanta (N/A, 09/12/2025 15:26 Lima)
-
-- **UEFA Champions League Predictions: Matchday 12/9**: [Link](https://www.si.com/soccer/uefa-champions-league-predictions-matchday-12-9-2025-26)
-- **Champions League projections: Will Man City, Chelsea and Liverpool boost their top-eight chances? - The Athletic**: [Link](https://www.nytimes.com/athletic/6872476/2025/12/09/champions-league-projections-manchester-city-real-madrid/)
-- **All you need to know for this week's Champions League matches**: [Link](https://www.premierleague.com/en/news/4491129/all-you-need-to-know-for-this-weeks-champions-league-matches)
 
 
