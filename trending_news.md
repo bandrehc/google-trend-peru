@@ -1,3 +1,58 @@
+### barcelona vs osasuna (N/A, 13/12/2025 03:31 Lima)
+
+- **Barcelona vs Osasuna: alineaciones, Jornada 16, LaLiga**: [Link](https://www.espn.com.ar/futbol/nota/_/id/16077728/barcelona-vs-osasuna-alineaciones-jornada-16-laliga)
+- **Flick, con retoques mínimos ante Osasuna**: [Link](https://www.sport.es/es/noticias/barca/flick-retoques-minimos-osasuna-124729248)
+- **Apuestas y Pronóstico del Barcelona vs Osasuna 13/12/25**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/2025/diciembre/pronostico-barcelona-vs-osasuna-13-12-25)
+
+
+### taylor swift (N/A, 13/12/2025 03:31 Lima)
+
+- **Taylor Swift reveals moment she broke down over Southport attack in new documentary**: [Link](https://www.bbc.com/news/articles/czxgnqx1yplo)
+- **Taylor Swift Eras Tour Docuseries on Disney+ December 12 | Explore Disney+**: [Link](https://www.disneyplus.com/en-gb/explore/articles/taylor-swift-the-eras-tour)
+- **Taylor Swift reveals obsessions, strengths and fears in new documentary: ‘I don’t want to be tracked like an animal, I’ve just felt very hunted lately’**: [Link](https://english.elpais.com/culture/2025-12-12/taylor-swift-reveals-obsessions-strengths-and-fears-in-new-documentary-i-dont-want-to-be-tracked-like-an-animal-ive-just-felt-very-hunted-lately.html)
+
+
+### chelsea vs everton (N/A, 13/12/2025 03:31 Lima)
+
+- **Maresca provides latest on Palmer, Fofana and Delap | News | Official Site**: [Link](https://www.chelseafc.com/en/news/article/enzo-maresca-delivers-chelsea-team-news-ahead-of-everton-december-2025)
+- **Rotation kings face consistency loyalists in a Stamford Bridge battle**: [Link](https://www.besoccer.com/new/rotation-kings-face-consistency-loyalists-in-a-stamford-bridge-battle-1385409)
+- **Maresca “completely relaxed” after slump in form; tells fans “that’s football”**: [Link](https://onefootball.com/id/berita/maresca-completely-relaxed-after-slump-in-form-tells-fans-thats-football-42086881)
+
+
+### flamengo vs pyramids (N/A, 13/12/2025 03:31 Lima)
+
+- **Jurčić Fires Up the Challenge: Flamengo Clash the Most Important in Pyramids’ History**: [Link](https://koorabreak.com/en/230054/)
+- **Jurčić: I Fully Recognize Flamengo's Strength... And I Call on Egyptian Fans to Support Us**: [Link](https://www.ysscores.com/en/news/13871024/Jur%C4%8Di%C4%87:-I-Fully-Recognize-Flamengo's-Strength...-And-I-Call-on-Egyptian-Fans-to-Support-Us)
+- **FIFA Intercontinental Cup: Pyramids learn their next opponent**: [Link](https://sports.yahoo.com/articles/fifa-intercontinental-cup-pyramids-learn-110000220.html)
+
+
+### venezuela (N/A, 13/12/2025 03:31 Lima)
+
+- **Veterano de las fuerzas especiales de EE.UU. que ayudó a Machado a salir de Venezuela le suplica que no regrese**: [Link](https://cnnespanol.cnn.com/2025/12/12/mundo/veterano-ee-uu-ayudo-machado-venezuela-trax)
+- **La odisea para salir de Venezuela, la oposición a Maduro y las críticas a España: María Corina Machado habla en Oslo**: [Link](https://elpais.com/expres/2025-12-13/la-odisea-para-salir-de-venezuela-la-oposicion-a-maduro-y-las-criticas-a-espana-maria-corina-machado-habla-en-oslo.html)
+- **"Dinamita dorada": así fue la operación secreta para sacar de Venezuela a María Corina Machado, según el exmilitar que la dirigió**: [Link](https://www.bbc.com/mundo/articles/c93nn9wk51eo)
+
+
+### mavericks - nets (N/A, 13/12/2025 03:31 Lima)
+
+- **Mavericks vs Nets Preview and Injury Update: Welcome back, basketball**: [Link](https://sports.yahoo.com/articles/mavericks-vs-nets-preview-injury-003000486.html)
+- **Game Recap: Mavericks 119, Nets 111**: [Link](https://www.nba.com/watch/video/game-recap-mavericks-119-nets-111)
+- **Stats Rundown: 3 numbers to know from a Mavericks win over the Nets**: [Link](https://www.mavsmoneyball.com/dallas-mavericks-game-coverage/53650/stats-rundown-3-numbers-to-know-from-a-mavericks-win-over-the-nets)
+
+
+### dimelo bajito (N/A, 13/12/2025 03:31 Lima)
+
+- **Dímelo bajito, actores y personajes: guía del elenco de la película española de Amazon Prime Video | MAG**: [Link](https://elcomercio.pe/mag/fama/que-ver/dimelo-bajito-actores-y-personajes-guia-del-elenco-de-la-pelicula-espanola-de-amazon-prime-video-tell-me-softly-nnda-nnlt-noticia/)
+- **La sucesora de Culpa Mía llega este viernes a Prime Video: así es la nueva serie adolescente con triángulo amoroso**: [Link](https://www.adslzone.net/noticias/streaming-tv/sucesora-culpa-mia-prime-video-triangulo-amoroso/)
+- **Mercedes Ron, autora de Culpa mía, habla sobre cómo se prepara para repetir el fenómeno con Dímelo bajito**: [Link](https://www.fmdos.cl/noticias/mercedes-ron-autora-de-culpa-mia-habla-sobre-como-se-prepara-para-repetir-el-fenomeno-con-dimelo-bajito/)
+
+
+### diego bertie (N/A, 13/12/2025 03:31 Lima)
+
+- **Yo Soy conciertos 2025: imitador de Diego Bertie dejó al público ANONADADO y EMOCIONADO por su interpretación de “Qué Difícil Es Amar”**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-conciertos-2025-imitador-de-diego-bertie-dejo-al-publico-anonadado-y-emocionado-por-su-interpretacion-de-que-dificil-es-amar_20251212/)
+- **Yo Soy conciertos 2025: ¡BRILLÓ CON EL CORAZÓN! Una noche llena de sensibilidad al estilo Diego Bertie**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-conciertos-2025-brillo-con-el-corazon-una-noche-llena-de-sensibilidad-al-estilo-diego-bertie_20251210/)
+
+
 ### terremoto japón (N/A, 12/12/2025 23:30 Lima)
 
 - **Sismo de magnitud 6,7 sacude la costa de Japón, se emiten avisos de tsunami**: [Link](https://cnnespanol.cnn.com/2025/12/11/mundo/sismo-6-7-japon-avisos-tsunami-trax)
@@ -971,61 +1026,5 @@ Sin noticias relacionadas disponibles.
 - **Horóscopo de hoy, 9 de diciembre: Estas son las predicciones más exactas para tu signo**: [Link](https://elcomercio.pe/luces/vida-social/horoscopo-de-hoy-9-de-diciembre-estas-son-las-predicciones-mas-exactas-para-tu-signo-noticia/)
 - **Horóscopo de Josie para el martes 9 de diciembre: predicciones en el amor, salud y dinero**: [Link](https://libero.pe/ocio/2025/12/08/horoscopo-hoy-martes-9-de-diciembre-predicciones-en-amor-salud-dinero-josie-diez-canseco-285648)
 - **Martes 9 de diciembre de 2025: Día de intuición afilada, honestidad radical y renovación interior que traerá revelaciones profundas y comunicaciones transformadoras. Suerte**: [Link](https://elcorreodepozuelo.com/2025/12/09/martes-9-de-diciembre-de-2025-dia-de-intuicion-afilada-honestidad-radical-y-renovacion-interior-que-traera-revelaciones-profundas-y-comunicaciones-transformadoras-suerte/)
-
-
-### hoy es feriado (N/A, 09/12/2025 07:55 Lima)
-
-- **¿HOY, martes 9 de diciembre es FERIADO también para el sector privado peruano? Esto se sabe**: [Link](https://elcomercio.pe/respuestas/tramites/el-9-de-diciembre-del-2025-es-dia-libre-o-feriado-tambien-para-el-sector-privado-en-el-peru-esto-dice-el-peruano-tdpe-noticia/)
-- **Feriados lunes 8 y martes 9 de diciembre: las reglas que se aplicarán a este beneficio laboral | ECONOMIA**: [Link](https://gestion.pe/economia/management-empleo/feriados-lunes-8-y-martes-9-de-diciembre-las-reglas-que-se-aplicaran-a-este-beneficio-laboral-noticia/)
-- **Feriados laborales generan dudas y experta aclara cuándo corresponde doble pago**: [Link](https://www.atv.pe/noticia/feriados-laborales-generan-dudas-y-experta-aclara-cuando-corresponde-doble-pago/)
-
-
-### xuper (N/A, 09/12/2025 07:55 Lima)
-
-- **Del crimen real al thriller de Netflix: dónde se grabó “Estado de fuga 1986”**: [Link](https://elcomercio.pe/mag/fama/que-ver/estado-de-fuga-1986-locaciones-donde-ha-sido-grabada-la-serie-colombiana-de-netflix-nnda-nnlt-noticia/)
-- **“Estado de Fuga 1986”: de qué trata y cómo ver la serie colombiana de Netflix basada en hechos reales**: [Link](https://gestion.pe/mix/tendencias-mix/estado-de-fuga-1986-de-que-trata-y-como-ver-la-serie-colombiana-de-netflix-basada-en-hechos-reales-nnda-nnlt-noticia/)
-- **Estado de fuga 1986, actores y personajes: guía del elenco de la serie colombiana de Netflix | MAG**: [Link](https://elcomercio.pe/mag/fama/que-ver/estado-de-fuga-1986-actores-y-personajes-guia-del-elenco-de-la-serie-colombiana-de-netflix-nnda-nnlt-noticia/)
-
-
-### dolar peru (N/A, 09/12/2025 03:36 Lima)
-
-- **Precio del dólar hoy: Así se cotiza el tipo de cambio este 8 de diciembre en Perú**: [Link](https://www.infobae.com/peru/2025/12/08/peru-cotizacion-de-apertura-del-dolar-hoy-8-de-diciembre-de-usd-a-pen/)
-- **Tipo de cambio en Perú detendrá caída en diciembre: divisa norteamericana muestra señales de estabilización**: [Link](https://www.expreso.com.pe/economia/tipo-de-cambio-en-peru-detendra-caida-en-diciembre-divisa-norteamericana-muestra-senales-de-estabilizacion-bcrp-noticia/1245604/)
-- **BCR interviene y compra $ 294 millones y da respiro al dólar que cerró en S/ 3.362**: [Link](https://diariocorreo.pe/economia/bcr-interviene-y-compra-294-millones-y-da-respiro-al-dolar-que-cerro-en-s-3362-noticia/)
-
-
-### paramount warner bros (N/A, 09/12/2025 03:36 Lima)
-
-- **Why has Paramount launched a hostile bid for Warner Bros Discovery?**: [Link](https://www.bbc.com/news/articles/cm21z4zgkx7o)
-- **Paramount Skydance launches hostile bid for WBD 'to finish what we started,' CEO Ellison tells CNBC**: [Link](https://www.cnbc.com/2025/12/08/paramount-skydance-hostile-bid-wbd-netflix.html)
-- **Jared Kushner is part of Paramount's hostile bid for Warner Bros. Discovery**: [Link](https://www.axios.com/2025/12/08/jared-kushner-paramount-warner-bros-netflix)
-
-
-### rosangela espinoza (N/A, 09/12/2025 03:36 Lima)
-
-- **José Jerí confiesa su impresión sobre Rosángela Espinoza y revive un encuentro pasado: "Me parece una mujer muy atractiva"**: [Link](https://www.expreso.com.pe/variedades/jose-jeri-confiesa-su-impresion-sobre-rosangela-espinoza-y-revive-un-encuentro-pasado-me-parece-una-mujer-muy-atractiva-milagros-leiva-noticia/1245724/)
-- **Presidente Jerí dice que Rosángela le sigue pareciendo ‘muy atractiva’: ¿Han tenido contacto últimamente?**: [Link](https://trome.com/espectaculos/tv/presidente-jose-jeri-dice-que-rosangela-espinoza-le-sigue-pareciendo-muy-atractiva-han-tenido-contacto-ultimamente-foto-video-farandula-noticia/)
-- **José Jerí revela que Rosángela Espinoza le parece una mujer muy atractiva: "Tuve la oportunidad de conocerla"**: [Link](https://willax.pe/entretenimiento/jose-jeri-rosangela-espinoza-mujer-atractica-willax)
-
-
-### pelicans - spurs (N/A, 08/12/2025 23:33 Lima)
-
-- **Dylan Harper’s late jumper lifts Spurs past Derik Queen, Pelicans**: [Link](https://www.thesportsleader.com/2025/12/08/dylan-harpers-late-jumper-lifts-spurs-past-derik-queen-pelicans/)
-- **Pelicans' Derik Queen makes basketball history never done before in NBA**: [Link](https://ca.sports.yahoo.com/news/pelicans-derik-queen-makes-basketball-031143232.html)
-- **Pels' Derik Queen joins LeBron, Luka in historic triple-double feat**: [Link](https://basketnews.com/news-236475-pels-derik-queen-joins-lebron-luka-in-historic-triple-double-feat.html)
-
-
-### billie eilish (N/A, 08/12/2025 23:33 Lima)
-
-- **Celebrity birthdays for the week of Dec. 14-20 includes Billie Eilish and Brad Pitt | Hollywood**: [Link](https://www.hindustantimes.com/entertainment/hollywood/celebrity-birthdays-for-the-week-of-dec-14-20-includes-billie-eilish-and-brad-pitt-101765233967133.html)
-- **Celebrity birthdays for the week of Dec. 14-20 includes Billie Eilish and Brad Pitt**: [Link](https://kdhnews.com/living/ae/celebrity-birthdays-for-the-week-of-dec-14-20-includes-billie-eilish-and-brad-pitt/article_082b1142-217f-59f4-b678-ab39fbe4e6ec.html)
-- **Celebrity birthdays for the week of Dec. 14-20 includes Billie Eilish and Brad Pitt**: [Link](https://www.sfchronicle.com/entertainment/article/celebrity-birthdays-for-the-week-of-dec-14-20-21231361.php)
-
-
-### bucaramanga vs (N/A, 08/12/2025 23:33 Lima)
-
-- **Santa Fe vs Bucaramanga hoy: Resultado EN VIVO, minuto a minuto, goles y tabla del grupo B**: [Link](https://www.365scores.com/es/news/santa-fe-vs-bucaramanga-en-vivo/)
-- **Santa Fe no pudo subir al marcador por fuera de lugar**: [Link](https://www.winsports.co/futbol-colombiano/noticias/santa-fe-no-pudo-subir-al-marcador-por-fuera-de-lugar-397820)
-- **Santa Fe vs. Bucaramanga en Liga BetPlay: el 'León' y el 'Leopardo' no se sacaron ventaja en el final de lo...**: [Link](https://redmas.com.co/en-vivo-santa-fe-vs-atletico-bucaramanga-en-liga-betplay-ver-partido-gratis-y-online-minuto-a-minuto-de-cuadrangulares-ultima-fecha-lb202512080004.html)
 
 
