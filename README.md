@@ -1,3 +1,52 @@
+### terremoto japón (N/A, 12/12/2025 23:30 Lima)
+
+- **Sismo de magnitud 6,7 sacude la costa de Japón, se emiten avisos de tsunami**: [Link](https://cnnespanol.cnn.com/2025/12/11/mundo/sismo-6-7-japon-avisos-tsunami-trax)
+- **Las imágenes del terremoto que ha conmocionado Japón: alerta de Tsunami**: [Link](https://as.com/actualidad/las-imagenes-del-terremoto-que-ha-conmocionado-japon-alerta-de-tsunami-f202512-v/)
+- **Dos fuertes terremotos sacuden Japón en menos de 24 horas y reactivan temores**: [Link](https://panamericana.pe/internacionales/460924-fuertes-terremotos-sacuden-japon-menos-24-horas-reactivan-temores)
+
+
+### warriors - timberwolves (N/A, 12/12/2025 23:30 Lima)
+
+- **Anthony Edwards ruled out of Friday night Wolves-Warriors battle**: [Link](https://www.si.com/nba/timberwolves/onsi/minnesota-timberwolves-news/anthony-edwards-ruled-out-of-friday-night-wolves-warriors-battle)
+- **BetRivers Bonus Code: Unlock a Second Chance Bet Up to $500 for Timberwolves vs Warriors**: [Link](https://www.wsn.com/nba/betrivers-bonus-code-timberwolves-vs-warriors-12-12-2025/)
+- **Preview: Will Kuminga get on the court vs Timberwolves Friday?**: [Link](https://sports.yahoo.com/articles/preview-kuminga-court-vs-timberwolves-093023342.html)
+
+
+### pablo guede (N/A, 12/12/2025 23:30 Lima)
+
+- **Alianza Lima ya tiene nuevo DT para el 2026 tras salida de Néstor Gorosito: llegaría con 2 delanteros**: [Link](https://www.infobae.com/peru/deportes/2025/12/11/alianza-lima-ya-tiene-nuevo-dt-para-el-2026-tras-salida-de-nestor-gorosito-llegaria-con-2-delanteros/)
+- **Alianza Lima se enamoró de su estilo: Pablo Guede es anunciado como nuevo entrenador**: [Link](https://depor.com/futbol-peruano/descentralizado/pablo-guede-a-alianza-lima-anuncio-oficial-del-nuevo-entrenador-fichajes-liga-1-2026-noticia/)
+- **¡Es oficial! Pablo Guede es el nuevo entrenador de Alianza Lima**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/alianza-lima-pablo-guede-es-nuevo-entrenador-del-club-blanquiazul-liga-1-noticia/)
+
+
+### bono onp (N/A, 12/12/2025 23:30 Lima)
+
+- **Propone retiro de 16,000 soles de la ONP y abre camino a un alivio económico para miles de aportantes**: [Link](https://comunicaciones.congreso.gob.pe/damos-cuenta/propone-retiro-de-16000-soles-de-la-onp-y-abre-camino-a-un-alivio-economico-para-miles-de-aportantes/)
+- **Retiro de ONP: Nuevo proyecto busca dar hasta S/16.050 a aportantes de su “dinero ahorrado”**: [Link](https://www.infobae.com/peru/2025/12/11/retiro-de-onp-nuevo-proyecto-busca-dar-hasta-s16050-a-aportantes-de-su-dinero-ahorrado/)
+- **Retiro de ONP, tal como en AFP: ¿Será posible para los afiliados?**: [Link](https://gestion.pe/tu-dinero/retiro-de-onp-es-realmente-posible-para-los-afiliados-noticia/)
+
+
+### sam smith (N/A, 12/12/2025 23:30 Lima)
+
+- **Sam Smith Brings Out Surprise Guests Ed Sheeran and Brandi Carlile at 22nd Show at Brooklyn’s Warsaw Venue—And Gives One Duet Its Live Debut**: [Link](https://www.billboard.com/music/music-news/sam-smith-ed-sheeran-brandi-carlile-warsaw-1236135035/)
+- **Brandi Carlile Delivers Surprise to Audience With ‘Absolutely Iconic’ Performance**: [Link](https://parade.com/news/brandi-carlile-delivers-surprise-to-audience-absolutely-iconic-performance-sam-smith-ed-sheeran)
+- **Sam Smith sings with Ed Sheeran and Brandi Carlile during NYC residency**: [Link](https://digital.abcaudio.com/news/sam-smith-sings-ed-sheeran-and-brandi-carlile-during-nyc-residency)
+
+
+### dni (N/A, 12/12/2025 23:30 Lima)
+
+- **Reniec anuncia campaña gratuita de DNI a nivel nacional: consulta fecha y lugares de atención**: [Link](https://www.tvperu.gob.pe/noticias/nacionales/reniec-anuncia-campana-gratuita-de-dni-a-nivel-nacional-consulta-fecha-y-lugares-de-atencion)
+- **DNI electrónico gratis: Reniec anuncia nueva campaña para el 16 de diciembre y así puedes realizar el trámite**: [Link](https://elcomercio.pe/respuestas/tramites/dni-electronico-gratis-reniec-anuncia-nueva-campana-para-el-16-de-diciembre-y-asi-puedes-realizar-el-tramite-tdpe-noticia/)
+- **Reniec lanza nueva campaña de DNI electrónico gratis: revisa cómo hacer el trámite este 16 de diciembre**: [Link](https://larepublica.pe/sociedad/2025/12/11/reniec-lanza-nueva-campana-de-dni-electronico-gratis-revisa-como-hacer-el-tramite-este-16-de-diciembre-757933)
+
+
+### elige tu local de votacion (N/A, 12/12/2025 23:30 Lima)
+
+- **Hasta el 14 de diciembre se tiene la posibilidad de elegir local de votación**: [Link](https://gestion.pe/peru/hasta-el-14-de-diciembre-se-tiene-la-posibilidad-de-elegir-local-de-votacion-noticia/)
+- **Elecciones 2026: ONPE informa que no habrá prórroga para que ciudadanía elija su local de votación**: [Link](https://elcomercio.pe/politica/elecciones/elecciones-2026-onpe-informa-que-no-habra-prorroga-para-que-ciudadania-elija-su-local-de-votacion-ultimas-noticia/)
+- **Más de 10 mil electores ya seleccionaron sus tres opciones de local en Huánuco**: [Link](https://diariocorreo.pe/edicion/huanuco/mas-de-10-mil-electores-ya-seleccionaron-sus-tres-opciones-de-local-en-huanuco-noticia/)
+
+
 ### junior - tolima (N/A, 12/12/2025 20:56 Lima)
 
 - **Tolima: Lucas González, el presupuesto de Junior y su 'responsabilidad' en la final**: [Link](https://www.espn.com.ar/futbol/colombia/nota/_/id/16074013/lucas-gonzalez-tolima-tira-responsabilidad-a-junior-presupuesto-final-liga-betplay-2025)
@@ -978,53 +1027,5 @@ Sin noticias relacionadas disponibles.
 - **Santa Fe vs Bucaramanga hoy: Resultado EN VIVO, minuto a minuto, goles y tabla del grupo B**: [Link](https://www.365scores.com/es/news/santa-fe-vs-bucaramanga-en-vivo/)
 - **Santa Fe no pudo subir al marcador por fuera de lugar**: [Link](https://www.winsports.co/futbol-colombiano/noticias/santa-fe-no-pudo-subir-al-marcador-por-fuera-de-lugar-397820)
 - **Santa Fe vs. Bucaramanga en Liga BetPlay: el 'León' y el 'Leopardo' no se sacaron ventaja en el final de lo...**: [Link](https://redmas.com.co/en-vivo-santa-fe-vs-atletico-bucaramanga-en-liga-betplay-ver-partido-gratis-y-online-minuto-a-minuto-de-cuadrangulares-ultima-fecha-lb202512080004.html)
-
-
-### timberwolves - suns (N/A, 08/12/2025 21:00 Lima)
-
-- **Minnesota Timberwolves Injury Report: Latest update on Enrique Freeman and Rocco Zikarsky**: [Link](https://thesportstak.com/basketball/nba-24-oct-2022/story/minnesota-timberwolves-injury-report-latest-update-on-enrique-freeman-and-rocco-zikarsky-3219568-2025-12-09)
-- **BetMGM bonus code NYPDM1500: Get a 20% first deposit match up to $1,500 for Suns vs. Timberwolves**: [Link](https://nypost.com/2025/12/08/betting/betmgm-bonus-code-nypdm1500-get-a-20-first-deposit-match-up-to-1500-for-suns-vs-timberwolves/)
-- **Live Updates: Suns-Timberwolves highlights a 3-game night**: [Link](https://www.nba.com/news/live-updates-suns-timberwolves-highlights-a-3-game-night)
-
-
-### independiente santa fe (N/A, 08/12/2025 21:00 Lima)
-
-- **Santa Fe vs. Bucaramanga por la última fecha de cuadrangulares de la Liga: Fecha, hora y cómo seguir**: [Link](https://caracol.com.co/2025/12/07/santa-fe-vs-bucaramanga-por-la-ultima-fecha-de-cuadrangulares-de-la-liga-fecha-hora-y-como-seguir/)
-- **Santa Fe – Bucaramanga en vivo online: Liga BetPlay, en directo**: [Link](https://colombia.as.com/futbol/santa-fe-bucaramanga-en-vivo-online-liga-betplay-en-directo-f202512-n/)
-- **Previa Santa Fe vs: Atlético Bucaramanga: El partido de cierre de 2025**: [Link](https://www.vavel.com/colombia/futbol-colombiano/2025/12/08/independiente-santa-fe/1244006-previa-santa-fe-vs-atletico-bucaramanga-el-partido-de-cierre-de-2025.html)
-
-
-### pacers - kings (N/A, 08/12/2025 21:00 Lima)
-
-- **Halftime Rewind: Pacers 66, Kings 51**: [Link](https://www.nba.com/pacers/news/rewind-pacers-kings-251208)
-- **Kings vs. Pacers Prediction, Odds and Best NBA Prop Bets for Monday, Dec. 8**: [Link](https://www.si.com/betting/kings-vs-pacers-prediction-odds-and-best-nba-prop-bets-for-monday-dec-8)
-- **Sacramento Kings @ Indiana Pacers Odds**: [Link](https://sportsbook.fanduel.com/basketball/nba/sacramento-kings-@-indiana-pacers-35036255)
-
-
-### santa fe - bucaramanga (N/A, 08/12/2025 21:00 Lima)
-
-- **Santa Fe vs Atlético Bucaramanga Stats & Insights**: [Link](https://www.betshoot.com/football/19609204-Santa-Fe-vs-Atl%C3%A9tico-Bucaramanga-prediction/)
-- **Independiente Santa Fe se despide del campeonato en su duelo contra Atlético Bucaramanga**: [Link](https://news.ssbcrack.com/independiente-santa-fe-se-despide-del-campeonato-en-su-duelo-contra-atletico-bucaramanga/)
-
-
-### junior (N/A, 08/12/2025 21:00 Lima)
-
-- **Brunicke Headed to Team Canada**: [Link](https://pittsburghhockeynow.com/brunicke-headed-to-team-canada/)
-- **Red Wings Prospect To Play For Canadian Juniors / DHN**: [Link](https://detroithockeynow.com/2025/12/08/world-juniors-a-bear-market-for-red-wings-prospect/)
-- **Michael Misa among Sharks prospects playing in the WJC this year**: [Link](https://bladesofteal.com/michael-misa-among-sharks-prospects-playing-in-the-wjc-this-year-01kbzqg64a2e)
-
-
-### duberlí rodríguez (N/A, 08/12/2025 21:00 Lima)
-
-- **Declaran "improcedente" demanda de amparo que pedía que el JNE ordene inscripción del partido de Duberlí Rodríguez**: [Link](https://rpp.pe/politica/elecciones/declaran-improcedente-demanda-de-amparo-que-pedia-que-el-jne-ordene-inscripcion-de-partido-de-duberli-rodriguez-noticia-1667000)
-- **Caso JNE: Resuelven en mayoría declarar improcedente participación de partido [Exp. 06374-2025-0]**: [Link](https://lpderecho.pe/caso-jne-resuelven-en-mayoria-declarar-improcedente-participacion-de-partido-exp-06374-2025-0/)
-- **Sala Constitucional detecta errores de JNE en caso Unidad Popular: ¿partido de Duberlí Rodríguez puede participar en Elecciones 2026?**: [Link](https://www.expreso.com.pe/judicial/sala-constitucional-detecta-errores-de-jne-en-caso-unidad-popular-partido-de-duberli-rodriguez-puede-participar-en-elecciones-2026-demanda-de-amparo-noticia/1245552/)
-
-
-### emelec - macará (N/A, 08/12/2025 21:00 Lima)
-
-- **Emelec vs Macara: Resultado EN VIVO y tabla de posiciones de la Liga Pro**: [Link](https://www.365scores.com/es/news/emelec-vs-macara-resultado-en-vivo/)
-- **Emelec busca recuperarse ante Macará por Liga Ecuabet**: [Link](https://www.espn.com.ar/futbol/ecuador/nota/_/id/16045520/emelec-vs-macara-fecha-8-hexagonal-liga-ecuabet-equipo-fecha-hora-y-tv-en-vivo)
-- **Emelec vs Macará: Fecha, hora y dónde ver EN VIVO el partido de la LigaPro 2026**: [Link](https://www.expreso.ec/deportes/emelec-vs-macara-fecha-hora-y-donde-ver-en-vivo-el-partido-de-la-ligapro-2026-267067.html)
 
 
