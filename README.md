@@ -1,3 +1,73 @@
+### genoa - inter (N/A, 14/12/2025 11:29 Lima)
+
+- **Genoa Inter, formazioni ufficiali e risultato in diretta live della partita di Serie A**: [Link](https://sport.sky.it/calcio/serie-a/partite/2025/giornata-15/genoa-inter/risultato-gol)
+- **Visnadi: “Non solo orgoglio: ieri Chivu per la prima volta in stagione ha…”**: [Link](https://www.fcinter1908.it/news/rassegna-stampa/visnadi-orgoglio-chivu-prima-volta/)
+- **Tensione a Marassi, incidenti tra tifosi di Genoa e Inter**: [Link](https://www.repubblica.it/sport/calcio/2025/12/14/news/incidenti_marassi_tifosi_genoa_inter-425039219/)
+
+
+### st. mirren - celtic f. c. (N/A, 14/12/2025 11:29 Lima)
+
+- **Celtic starting XI for League Cup Final against St Mirren**: [Link](https://www.celticfc.com/news/2025/december/14/celtic-starting-xi-for-league-cup-final-against-st-mirren/)
+- **Stephen Robinson and Marcus Fraser up for the cup final**: [Link](https://onefootball.com/en/news/stephen-robinson-and-marcus-fraser-up-for-the-cup-final-42094967)
+- **Celtic Manager Speaks Paulo Bernardo Ahead of Cup Final**: [Link](https://celtsarehere.com/celtic-fc-paulo-bernardo-cup-final/)
+
+
+### alaves vs (N/A, 14/12/2025 11:29 Lima)
+
+- **Real Madrid vs Alavés EN VIVO por ESPN: pronóstico, a qué hora juega y dónde ver LaLiga**: [Link](https://libero.pe/futbol-internacional/liga-espanola/2025/12/13/real-madrid-vs-alaves-en-vivo-en-directo-laliga-hoy-via-espn-movistar-plus-lbev-354445)
+- **Alavés vs Real Madrid: alineaciones, Jornada 16, LaLiga**: [Link](https://www.espn.com.pe/futbol/espana/nota/_/id/16079708/real-madrid-alaves-laliga-alineaciones)
+- **LaLiga EA Sports: Alavés recibirá a Real Madrid por la fecha 16**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-alaves-recibira-a-real-madrid-por-la-fecha-16-noticia-1667780)
+
+
+### bundesliga (N/A, 14/12/2025 11:29 Lima)
+
+- **Becker-Tor und Becker-Comeback: Königsblau besiegt den FCN mit 1:0**: [Link](https://onefootball.com/fr/news/becker-tor-und-becker-comeback-koenigsblau-besiegt-den-fcn-mit-10-42095582)
+- **FC Schalke 04 feiert Club-Freundschaft mit irrer Choreo**: [Link](https://www.sport.de/news/ne16309588/fc-schalke-04-feiert-club-freundschaft-mit-irrer-choreo/)
+- **2. Fußball-Bundesliga: "Der muss runter": Klose ärgert sich über den Referee**: [Link](https://www.zeit.de/news/2025-12/14/1-fc-nuernberg-wartet-weiter-wieder-kein-sieg-auf-schalke)
+
+
+### bayern - mainz 05 (N/A, 14/12/2025 11:29 Lima)
+
+- **"Goretzka zerstört es gleich doppelt": Bayern-Fans würden gegen Mainz lieber Bischof im Zentrum sehen**: [Link](https://tribuna.com/de/blogs/goretzka-zerstort-es-gleich-doppelt-bayernfans-wurden-gegen/)
+- **Bundesliga, FC Bayern – Mainz 05 live: Bayern mit drei Neuen in der Abwehr**: [Link](https://www.welt.de/sport/fussball/article693ebfbd629fc38b106a3497/bundesliga-fc-bayern-mainz-05-live-bayern-mit-drei-neuen-in-der-abwehr.html)
+- **Der Sport-Tag: Nach über neun Monaten: Bayern-Verteidiger zurück in Startformation**: [Link](https://www.n-tv.de/sport/der_sport_tag/Nach-ueber-neun-Monaten-Bayern-Verteidiger-zurueck-in-Startformation-id30141993.html)
+
+
+### dortmund (N/A, 14/12/2025 11:29 Lima)
+
+- **BVB-Aufstellung gegen Freiburg: Plötzlich herrscht Abwehr-Notstand**: [Link](https://www.absolutfussball.com/deutschland/borussia-dortmund/notstand-bvb-aufstellung-gegen-freiburg-ploetzlich-herrscht-abwehr-94080545.html)
+- **Bellingham sieht die Rote Karte**: [Link](https://www.ligainsider.de/jobe-bellingham_38153/bellingham-sieht-die-rote-karte-405768/)
+- **Liveticker | SC Freiburg - Borussia Dortmund 0:0 | 14. Spieltag | Bundesliga 2025/26**: [Link](https://www.kicker.at/freiburg-gegen-dortmund-2025-bundesliga-5050870/ticker)
+
+
+### napoli vs (N/A, 14/12/2025 11:29 Lima)
+
+- **Napoli miss chance to go top of Serie A with disappointing loss at Udinese**: [Link](https://www.flashscore.com/news/serie-a-udinese-napoli-report-december-14/rBU7E57r/)
+- **Napoli's Quest for Serie A Supremacy**: [Link](https://www.ilmessaggero.it/en/napoli_s_quest_for_serie_a_supremacy-9243344.html)
+- **Match Preview: Udinese v Napoli**: [Link](https://sscnapoli.it/en/match-preview-focus-di-udinese-napoli/)
+
+
+### celta de vigo vs (N/A, 14/12/2025 11:29 Lima)
+
+- **Celta - Athletic live**: [Link](https://www.marca.com/en/soccer/laliga-ea-sports/celta-athletic/2025/12/14/01_0101_20251214_176_174-live.html)
+- **Celta de Vigo faces Athletic Bilbao in La Liga clash with both teams chasing consistency, stakes high in battle for European qualification**: [Link](https://www.red94.net/news/80335-celta-de-vigo-faces-athletic-bilbao-in-la-liga-clash-with-both-teams-chasing-con/)
+- **Where to Watch RC Celta de Vigo vs. Athletic Bilbao: TV Channel, Start Time and Live Stream**: [Link](https://www.bleachernation.com/how-to-watch/2025/12/13/where-to-watch-rc-celta-de-vigo-vs-athletic-bilbao-tv-channel-start-time-and-live-stream-2/)
+
+
+### brentford (N/A, 14/12/2025 11:29 Lima)
+
+- **Brentford v Leeds United: Premier League – live**: [Link](https://www.theguardian.com/football/live/2025/dec/14/brentford-v-leeds-united-premier-league-live)
+- **Football Bet of the Day: Goals galore at the Gtech on Sunday**: [Link](https://mrfixitstips.co.uk/football-bet-of-the-day-goals-galore-at-the-gtech-on-sunday/)
+- **Brentford v Leeds prediction, betting tips and bet builder – Will Thiago be on target again?**: [Link](https://talksport.com/betting/3815832/brentford-leeds-prediction-betting-tips-bet-builder-free-bets/)
+
+
+### elecciones chile (N/A, 14/12/2025 11:29 Lima)
+
+- **Elecciones presidenciales de Chile 2025, en vivo | Kast, tras votar en la segunda vuelta: “Hoy es un gran día para Chile”**: [Link](https://elpais.com/chile/2025-12-14/elecciones-presidenciales-de-chile-2025-en-vivo-kast-y-jara-se-disputan-la-segunda-vuelta.html)
+- **Jeannette Jara y José Antonio Kast: dos polos opuestos que chocan en el balotaje para llegar al Palacio de la Moneda en Chile**: [Link](https://www.infobae.com/america/america-latina/2025/12/14/jeannette-jara-y-jose-antonio-kast-dos-polos-opuestos-que-chocan-en-el-balotaje-para-llegar-al-palacio-de-la-moneda-en-chile/)
+- **Abren los colegios electorales en Chile para el balotaje presidencial entre Jara y Kast**: [Link](https://cnnespanol.cnn.com/2025/12/14/latinoamerica/abren-colegios-electorales-chile-balotaje-presidencial-efe)
+
+
 ### alaves vs real madrid (N/A, 14/12/2025 07:49 Lima)
 
 - **Alavés - Real Madrid, en directo: LaLiga EA Sports, en vivo y online**: [Link](https://as.com/futbol/primera/alaves-real-madrid-en-directo-laliga-ea-sports-en-vivo-y-online-f202512-d/)
@@ -959,75 +1029,5 @@ Sin noticias relacionadas disponibles.
 - **Gripe H3N2 alerta a Europa y Estados Unidos qué es, síntomas y cómo se contagia variante**: [Link](https://rpp.pe/mundo/actualidad/influenzavirus-a-subtipo-h3n2-gripe-alerta-a-europa-y-estados-unidos-que-es-sintomas-y-como-se-contagia-variante-noticia-1667363)
 - **Gripe H3N2 pone en alerta a Reino Unido con uso de mascarillas y cierre de escuelas**: [Link](https://n60.pe/gripe-h3n2-pone-en-alerta-a-reino-unido-con-uso-de-mascarillas-y-cierre-de-escuelas/)
 - **Alerta mundial por gripe agresiva H3N2 que desborda hospitales en EE.UU. y Europa**: [Link](https://www.expreso.com.pe/mundo/alerta-mundial-por-gripe-agresiva-h3n2-que-desborda-hospitales-en-ee-uu-y-europa-organizacion-mundial-de-la-salud-h3n2-andrew-pekosz-noticia/1246149/)
-
-
-### cruzeiro - corinthians (N/A, 10/12/2025 21:04 Lima)
-
-- **Dono do Cruzeiro, Pedro Lourenço é recepcionado por torcedores em chegada ao Mineirão**: [Link](https://www.otempo.com.br/sports/cruzeiro/2025/12/10/dono-do-cruzeiro-pedro-lourenco-e-recepcionado-por-torcedores-em-chegada-ao-mineirao)
-- **Cruzeiro x Corinthians: titular se lesiona, é substituído e preocupa**: [Link](https://www.cnnbrasil.com.br/esportes/futebol/copa-do-brasil/cruzeiro-x-corinthians-titular-se-lesiona-e-substituido-e-preocupa/)
-- **Aos 21 min do 1º tempo - gol de cabeça de Memphis Depay do Corinthians contra o Cruzeiro**: [Link](https://ge.globo.com/futebol/video/aos-21-min-do-1o-tempo-gol-de-cabeca-de-memphis-depay-do-corinthians-contra-o-cruzeiro-14171082.ghtml)
-
-
-### huachipato (N/A, 10/12/2025 21:04 Lima)
-
-- **Huachipato y Deportes Limache, cara a cara por el título de la Copa Chile 2025**: [Link](https://www.espn.com.pe/futbol/chile/nota/_/id/16067930/huachipato-vs-deportes-limache-por-la-final-de-la-copa-chile-2025-equipo-fecha-y-hora)
-- **🏆Champions: Huachipato crowned in the 2025 Copa Chile**: [Link](https://sports.yahoo.com/articles/champions-huachipato-crowned-2025-copa-013000950.html)
-- **🏆Champions: Huachipato crowned in the 2025 Copa Chile**: [Link](https://onefootball.com/en/news/champions-huachipato-crowned-in-the-2025-copa-chile-42079414)
-
-
-### onpe lugar de votacion (N/A, 10/12/2025 21:04 Lima)
-
-- **Más de 2 millones ya eligieron su local de votación: esa opción estará vigente solo hasta este domingo 14**: [Link](https://larepublica.pe/politica/2025/12/10/mas-de-2-millones-ya-eligieron-su-local-de-votacion-esa-opcion-estara-vigente-solo-hasta-este-domingo-14-hnews-806790)
-- **Elecciones 2026: Más de 24 mil electores cambiaron su local de votación en Huamanga**: [Link](https://jornada.com.pe/elecciones-2026-mas-de-24-mil-electores-cambiaron-su-local-de-votacion-en-huamanga/)
-- **Elecciones 2026: Este domingo 14 de dicembre vence plazo para elegir local de votación y millones podrían quedar con asignación automática**: [Link](https://www.infobae.com/peru/2025/12/10/elecciones-2026-este-domingo-14-de-dicembre-vence-plazo-para-elegir-local-de-votacion-y-millones-podrian-quedar-con-asignacion-automatica/)
-
-
-### cruzeiro vs corinthians (N/A, 10/12/2025 21:04 Lima)
-
-- **Dono do Cruzeiro, Pedro Lourenço é recepcionado por torcedores em chegada ao Mineirão**: [Link](https://www.otempo.com.br/sports/cruzeiro/2025/12/10/dono-do-cruzeiro-pedro-lourenco-e-recepcionado-por-torcedores-em-chegada-ao-mineirao)
-- **Cruzeiro x Corinthians: titular se lesiona, é substituído e preocupa**: [Link](https://www.cnnbrasil.com.br/esportes/futebol/copa-do-brasil/cruzeiro-x-corinthians-titular-se-lesiona-e-substituido-e-preocupa/)
-- **Aos 21 min do 1º tempo - gol de cabeça de Memphis Depay do Corinthians contra o Cruzeiro**: [Link](https://ge.globo.com/futebol/video/aos-21-min-do-1o-tempo-gol-de-cabeca-de-memphis-depay-do-corinthians-contra-o-cruzeiro-14171082.ghtml)
-
-
-### independiente del valle vs (N/A, 10/12/2025 21:04 Lima)
-
-- **LDU Quito vs. Universidad Católica - Boxscore - Live Score - December 21, 2025**: [Link](https://www.foxsports.com/soccer/ecuadorian-liga-pro-ldu-quito-vs-u-catolica-ecu-dec-21-2025-game-boxscore-647714?tab=boxscore)
-- **How to watch today's Independiente del Valle vs LDU Quito LigaPro Serie A game: Live stream, TV channel, and start time**: [Link](https://www.goal.com/en-us/news/where-to-watch-independiente-del-valle-v-ldu-quito-live-stream-online-tv/blt2e8a27f206d092d3)
-- **Orense faces LDU Quito tonight in championship clash, can they bridge the 14-point gap and pull off home upset?**: [Link](https://www.red94.net/news/22170-orense-faces-ldu-quito-tonight-in-crucial-ecuador-ligapro-championship-clash/)
-
-
-### victor osimhen (N/A, 10/12/2025 21:04 Lima)
-
-- **'It's tough' - Ex-Senegal star says Super Eagles' Afcon quest complicated after WCQ exit**: [Link](https://allnigeriasoccer.com/its-tough-ex-senegal-star-says-super-eagles-afcon-quest-complicated-after-wcq-exit)
-- **Don’t rely too much on Osimhen, Babangida tells Chelle**: [Link](https://punchng.com/?p=2006975)
-- **Femi Ajilore Remarks: Winning AFCON Would Be Huge Consolation For Nigerian Football Fans**: [Link](https://www.sports247.ng/femi-ajilore-remarks-winning-afcon-would-be-huge-consolation-for-nigerian-football-fans/)
-
-
-### borussia dortmund vs (N/A, 10/12/2025 15:31 Lima)
-
-- **Erstes Duell mit Bodø – BVB will den nächsten Heimsieg**: [Link](https://www.bvb.de/de/de/aktuelles/news/news.html/2025/12/9/Erstes-Duell-mit-Bod-BVB-will-den-naechsten-Heimsieg.html)
-- **Live: Die Watchparty zum Spiel gegen Bodø/Glimt**: [Link](https://onefootball.com/de/news/live-die-watchparty-zum-spiel-gegen-bodoglimt-42077302)
-- **Champions League: "Wenn ich zurückdenke, würde ich sagen: Das ist nicht möglich"**: [Link](https://www.sport1.de/news/fussball/champions-league/2025/12/champions-league-die-exoten-vom-polarkreis)
-
-
-### bayer leverkusen (N/A, 10/12/2025 15:31 Lima)
-
-- **Leverkusen empfängt Newcastle ++ Bodö/Glimt fordert Dortmund ++ PSG zu Gast in Bilbao**: [Link](https://www.bluewin.ch/de/sport/champions-league/leverkusen-empfaengt-newcastle-bodoeglimt-fordert-dortmund-psg-zu-gast-in-bilbao-3003843.html)
-- **Bayer Leverkusen – Newcastle United im TV und Livestream: Hier siehst du das Spiel live**: [Link](https://www.derwesten.de/sport/fussball/bayer-04-leverkusen-tv-livestream-sky-dazn-newcastle-id300790552.html)
-- **"Persönliche Gründe": Trainer Hjulmand fehlt gegen Newcastle**: [Link](https://www.zeit.de/news/2025-12/10/persoenliche-gruende-trainer-hjulmand-fehlt-gegen-newcastle)
-
-
-### dortmund (N/A, 10/12/2025 15:31 Lima)
-
-- **„Dortmunder Begegnungen“: Kreativ Kontakte knüpfen**: [Link](https://www.dortmund.de/newsroom/nachrichten-dortmund.de/%E2%80%9Edortmunder-begegnungen-im-weltladen-gemeinsam-aktiv-und-kreativ-im-winter-gegen-einsamkeit.html)
-- **„Dortmunder Begegnungen“ im Weltladen – Auftakt am 13. Dezember**: [Link](https://www.wirindortmund.de/dortmund/beim-auftakttermin-am-samstag-13-dezember-werden-die-teilnehmenden-gemeinsam-kerzen-herstellen-im-weltladen-auftakt-am-13-dezember-296494)
-- **Bratwurst-Ampelmännchen: Coburg führt einzigartige Figur ein**: [Link](https://www.upday.com/de/news/bratwurst-ampelmannchen-coburg-fuhrt-einzigartige-figur-ein/ccvfr1x)
-
-
-### espn (N/A, 10/12/2025 15:31 Lima)
-
-- **CFP anger is high — and it’s aimed right at the committee, plus more in Mandel’s Mailbag**: [Link](https://www.nytimes.com/athletic/6877349/2025/12/10/college-football-playoff-committee-notre-dame/)
-- **Opinion & "Thought of the Day:" College Football Playoffs Will Always Have a "Notre Dame" Until System Is Fixed**: [Link](https://thepressboxlts.com/opinion-thought-of-the-day-college-football-playoffs-will-always-have-a-notre-dame-until-system-is-fixed/)
-- **Kirk Herbstreit shares suggestions to fix College Football Playoff**: [Link](https://www.saturdaydownsouth.com/news/college-football/kirk-herbstreit-shares-suggestions-to-fix-college-football-playoff/)
 
 
