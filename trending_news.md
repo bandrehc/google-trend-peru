@@ -1,3 +1,59 @@
+### alaves vs real madrid (N/A, 14/12/2025 07:49 Lima)
+
+- **Alavés - Real Madrid, en directo: LaLiga EA Sports, en vivo y online**: [Link](https://as.com/futbol/primera/alaves-real-madrid-en-directo-laliga-ea-sports-en-vivo-y-online-f202512-d/)
+- **En Vitoria sigue el juicio blanco**: [Link](https://www.marca.com/futbol/real-madrid/2025/12/14/alaves-real-madrid-vitoria-sigue-juicio-blanco.html)
+- **Alavés vs Real Madrid: alineaciones, Jornada 16, LaLiga**: [Link](https://www.espn.com.ar/futbol/espana/nota/_/id/16079708/real-madrid-alaves-laliga-alineaciones)
+
+
+### sevilla - real oviedo (N/A, 14/12/2025 07:49 Lima)
+
+- **Sevilla quiere volver al triunfo ante un necesitado Real Oviedo**: [Link](https://www.espn.com.ar/futbol/espana/nota/_/id/16076978/sevilla-vs-real-oviedo-fecha-16-laliga-equipo-fecha-hora-y-tv-en-vivo)
+- **Sevilla - Oviedo | A espantar fantasmas, 25 años después: previa, análisis, pronóstico y predicción**: [Link](https://www.marca.com/futbol/primera-division/2025/12/14/sevilla-oviedo-espantar-fantasmas-25-anos-despues-previa-analisis-pronostico-prediccion.html)
+- **Eau del 97**: [Link](https://as.com/futbol/primera/eau-del-97-f202512-n/)
+
+
+### liga italiana (N/A, 14/12/2025 07:49 Lima)
+
+- **Verso Udinese-Napoli, Conte ne cambia solo uno. Novità Lobotka in panchina**: [Link](https://www.ottopagine.it/na/sport/napolicalcio/412108/verso-udinese-napoli-conte-ne-cambia-solo-uno-novita-lobotka-in-panchina.shtml)
+- **Lucca torna a Udine, Runjaic lo punge: "Non mi ha neppure salutato"**: [Link](https://tribuna.com/it/news/2025-12-14-lucca-torna-a-udine-runjaic-lo-punge-non-mi-ha-neppure-salutato/)
+- **Udinese, prove di formazione: dal dubbio Rui Modesto a Piotrowski, Kabasele e Davis**: [Link](https://www.sosfanta.com/news/udinese-prove-di-formazione-dal-dubbio-rui-modesto-a-piotrowski-kabasele-e-davis/)
+
+
+### milan (N/A, 14/12/2025 07:49 Lima)
+
+- **El líder Milan recibe a Sassuolo, por la 15ª fecha de la Serie A**: [Link](https://www.espn.com.pe/futbol/italia/nota/_/id/16066513/milan-vs-sassuolo-serie-a-2025-equipo-fecha-hora-y-tv-en-vivo)
+- **Serie A: Milan no quiere soltar el liderato ante Sassuolo**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-milan-no-quiere-soltar-el-liderato-ante-sassuolo-noticia-1667739)
+- **En vivo por ANTV, Jay Idges y otros luchan por contener los ataques del AC Milan**: [Link](https://www.ucvradio.pe/mas-actualidad/en-vivo-por-antv-jay-idges-y-otros-luchan-por-contener-los-ataques-del-ac-milan/74756/)
+
+
+### milan vs (N/A, 14/12/2025 07:49 Lima)
+
+- **GdS: Predicted XIs for Milan vs. Sassuolo – One forced change for Allegri**: [Link](https://sempremilan.com/gds-xis-milan-sassuolo-one-change)
+- **Italy Serie A Soccer**: [Link](https://www.wvnews.com/sports/pro/italy-serie-a-soccer/image_45e34cbc-caf2-50ff-8843-1599605748f3.html)
+- **AC Milan Head Coach Claims ‘Inter & Napoli Are Favourites For The Scudetto’ As Serie A Title Race Heats Up**: [Link](https://sempreinter.com/2025/12/13/milan-allegri-inter-napoli-scudetto-favourites/)
+
+
+### ac milan (N/A, 14/12/2025 07:49 Lima)
+
+- **GdS: ‘At all costs’ – Milan outline plan to keep Maignan despite contract impasse**: [Link](https://sempremilan.com/milan-outline-maignan-plan-contract-impasse)
+- **Sky Sports: Another Liverpool legend could be set to leave the club**: [Link](https://anfieldindex.com/89226/sky-sports-another-liverpool-legend-could-be-set-to-leave-the-club.html)
+- **Liverpool star 'packing his bags' as Salah 'won't be the only player to leave' amid interesting offer**: [Link](https://www.football365.com/news/liverpool-alisson-packing-bags-salah-not-only-player-leave-milan-offer)
+
+
+### milan - sassuolo (N/A, 14/12/2025 07:49 Lima)
+
+- **Serie A: in campo Milan-Sassuolo DIRETTA**: [Link](https://www.ansa.it/sito/notizie/sport/calcio/2025/12/14/serie-a-in-campo-milan-sassuolo-diretta_7db84a17-fc5a-430d-90bf-9b123d0ed1ed.html)
+- **Milan, primo gol per Bartesaghi in Serie A**: [Link](https://gianlucadimarzio.com/milan-primo-gol-bartesaghi-serie-a-news/)
+- **Sassuolo, Carnevali: “Fascino speciale in questo stadio: il ricordo degli Squinzi tifosi del Milan”**: [Link](https://www.pianetamilan.it/stagione/serie-a-news-e-risultati/milan-sassuolo-carnevali-fascino-speciale-giocare-in-questo-stadio-14-12-2025/)
+
+
+### x (N/A, 14/12/2025 07:49 Lima)
+
+- **Grimes Claims Ex Elon Musk Blocked Her on X amid Their Co-Parenting Relationship: 'This Is So Silly'**: [Link](https://people.com/grimes-claims-ex-elon-musk-blocked-her-on-x-11868685)
+- **Grimes Claims Elon Musk Has Blocked Her On X: 'Not Interested In Public Dramatics'**: [Link](https://www.ndtv.com/world-news/grimes-claims-elon-musk-has-blocked-her-on-x-not-interested-in-public-dramatics-9806206)
+- **Singer Grimes Claims Ex and Co-Parent Elon Musk Blocked Her on X: 'I Am Not Interested in Public Dramatics'**: [Link](https://www.inkl.com/news/singer-grimes-claims-ex-and-co-parent-elon-musk-blocked-her-on-x-i-am-not-interested-in-public-dramatics)
+
+
 ### manel kape (N/A, 14/12/2025 03:31 Lima)
 
 - **Main Card Results | UFC Fight Night: Royval vs Kape**: [Link](https://www.ufc.com/news/main-card-results-ufc-fight-night-royval-vs-kape-event-tonight-recaps-highlights-interviews)
@@ -973,60 +1029,5 @@ Sin noticias relacionadas disponibles.
 - **CFP anger is high — and it’s aimed right at the committee, plus more in Mandel’s Mailbag**: [Link](https://www.nytimes.com/athletic/6877349/2025/12/10/college-football-playoff-committee-notre-dame/)
 - **Opinion & "Thought of the Day:" College Football Playoffs Will Always Have a "Notre Dame" Until System Is Fixed**: [Link](https://thepressboxlts.com/opinion-thought-of-the-day-college-football-playoffs-will-always-have-a-notre-dame-until-system-is-fixed/)
 - **Kirk Herbstreit shares suggestions to fix College Football Playoff**: [Link](https://www.saturdaydownsouth.com/news/college-football/kirk-herbstreit-shares-suggestions-to-fix-college-football-playoff/)
-
-
-### erling haaland (N/A, 10/12/2025 15:31 Lima)
-
-- **Erling Haaland reveals why he rejected Real Madrid for Manchester City - 'Guardiola told me...'**: [Link](https://madriduniversal.com/erling-haaland-reveals-why-he-rejected-real-madrid-for-manchester-city-guardiola-told-me/)
-- **Erling Haaland not interested in a transfer, England "is the best place to play football"**: [Link](https://www.gamereactor.eu/erling-haaland-not-interested-in-a-transfer-england-is-the-best-place-to-play-football-1646803/)
-- **Erling Haaland: 'I’m the striker of City. I have to score goals. If not, they have to replace me'**: [Link](https://tribuna.com/en/news/2025-12-10-erling-haaland-im-the-striker-of-city-i-have-to-score-goals-if-not-they-have-to-replace-m/)
-
-
-### rayan cherki (N/A, 10/12/2025 15:31 Lima)
-
-- **Rayan Cherki tipped to break Kevin De Bruyne record at Man City after "I am here moment"**: [Link](https://www.sportsmole.co.uk/football/man-city/news/cherki-tipped-to-break-de-bruyne-record-at-man-city-after-i-am-here-moment_587399.html)
-- **Regis Le Bris acknowledges the ‘relentless’
-quality of Man City**: [Link](https://www.vavel.com/en/football/2025/12/07/sunderland/1243903-regis-le-bris-acknowledges-the-relentlessquality-of-man-city.html)
-- **Analysing Sunderland ahead of Saturday’s Premier League clash**: [Link](https://www.mancity.com/news/mens/sunderland-home-premier-league-opta-analysis-63900455)
-
-
-### marca (N/A, 10/12/2025 15:31 Lima)
-
-- **Marca peruana continúa su expansión en Chile y se acerca a las 30 inauguraciones**: [Link](https://www.infobae.com/peru/2025/12/09/marca-peruana-continua-su-expansion-en-chile-y-se-acerca-a-las-30-inauguraciones/)
-- **Mass inaugura 6 nuevas tiendas y se acerca a las 30 en Chile: así avanza su expansión**: [Link](https://www.peru-retail.com/mass-inaugura-6-nuevas-tiendas-y-se-acerca-a-las-30-en-chile-asi-avanza-su-expansion/)
-- **ES OFICIAL | Marca peruana conquista Chile y continúa su expansión con 30 inauguraciones**: [Link](https://wapa.pe/ocio/2025/12/10/es-oficial-marca-peruana-conquista-chile-continua-su-expansion-30-inauguraciones-529250)
-
-
-### barcelona vs benfica (N/A, 10/12/2025 15:31 Lima)
-
-- **🚨 One out with fever, Barça’s line-up to face Benfica**: [Link](https://sports.yahoo.com/articles/one-fever-bar-line-face-163800817.html)
-- **Barcelona vs Benfica Women's Champions League clash could change everything for European title race**: [Link](https://www.red94.net/news/77140-barcelona-faces-benfica-in-women-s-champions-league-clash-blaugrana-look-to-cont/)
-- **Where to Watch Barcelona Women vs Benfica Women? Live Streaming & Broadcasting**: [Link](https://www.sportsdunia.com/football-news/where-to-watch-barcelona-women-vs-benfica-women-live-stream-tv-channels-10th-december-2025)
-
-
-### disney plus (N/A, 10/12/2025 15:31 Lima)
-
-- **You can save over 40% by bundling ESPN Unlimited with Disney Plus and Hulu**: [Link](https://www.businessinsider.com/guides/deals/disney-plus-hulu-espn-unlimited-bundle-deal-2025-12)
-- **The best Disney+ deals and bundles in December 2025**: [Link](https://mashable.com/article/best-disney-plus-deals-december-2025)
-- **The ESPN Unlimited Bundle Is the Only Good Cyber Monday Streaming Deal for Sports**: [Link](https://www.ign.com/articles/espn-unlimited-cyber-monday-sports-streaming-deal-2025)
-
-
-### bristol city - leicester city (N/A, 10/12/2025 15:31 Lima)
-
-- **Leicester City team news v Bristol City as Harry Winks left out again**: [Link](https://www.leicestermercury.co.uk/sport/football/football-news/leicester-city-team-news-v-10698019)
-- **Bird, Atkinson, Knight: Bristol City injury news and return dates**: [Link](https://www.bristolworld.com/sport/football/bristol-city/bristol-city-injury-news-and-expected-return-dates-5435362)
-- **Bristol City vs Leicester LIVE Score Updates in EFL Championship Match**: [Link](https://www.vavel.com/en-us/soccer/2025/12/10/1244078-bristol-city-vs-leicester-live-championship.html)
-
-
-### latina en vivo (N/A, 10/12/2025 11:37 Lima)
-
-- **Alianza Lima vs Osasco 0-3: resumen de la caída ‘blanquiazul’ en su debut por el Mundial de Clubes de Vóley 2025**: [Link](https://www.infobae.com/peru/deportes/2025/12/09/alianza-lima-vs-osasco-en-vivo-hoy-latina-tv-grupo-a-fecha-1-mundial-clubes-voley-2025-resumen-resultado/)
-- **Tabla posiciones Mundial de Clubes de Vóley 2025 EN VIVO: sigue los resultados de los equipos en la fecha 2 del torneo**: [Link](https://rpp.pe/voley/mas-voley/tabla-posiciones-mundial-de-clubes-de-voley-2025-en-vivo-resultados-de-hoy-directo-con-alianza-lima-fase-de-grupos-del-torneo-fivb-noticia-1667110)
-- **Alianza Lima vs. Zhetysu: horario, fecha y canal por Mundial de Clubes**: [Link](https://elcomercio.pe/deporte-total/polideportivo/alianza-lima-vs-zhetysu-a-que-hora-juegan-canal-que-transmite-y-donde-ver-por-mundial-de-clubes-noticia/)
-
-
-### latina (N/A, 10/12/2025 11:37 Lima)
-
-Sin noticias relacionadas disponibles.
 
 
