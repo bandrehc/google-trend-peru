@@ -1,3 +1,73 @@
+### wwe en vivo (N/A, 13/12/2025 21:10 Lima)
+
+- **WWE Saturday Night’s Main Event: cartelera completa, a qué hora y dónde ver en vivo desde México el adiós de John Cena**: [Link](https://www.infobae.com/mexico/deportes/2025/12/13/wwe-saturday-nights-main-event-cartelera-completa-a-que-hora-y-donde-ver-en-vivo-desde-mexico-el-adios-de-john-cena/)
+- **Dónde ver gratis Retiro de John Cena EN VIVO: ‘The Last Time Is Now’ en Saturday Night’s Main Event 2025**: [Link](https://depor.com/full-deportes/retiro-de-john-cena-en-vivo-hoy-gratis-donde-ver-the-last-time-is-now-en-saturday-nights-main-event-2025-en-directo-online-via-wwe-youtube-futbol-libre-tv-peacock-por-internet-video-noticia/)
+- **John Cena vs. Gunther, EN VIVO: dónde verlo por TV y cómo seguirlo ONLINE**: [Link](https://www.tycsports.com/polideportivo/john-cena-vs-gunther-en-vivo-donde-verlo-por-tv-y-online-id703595.html)
+
+
+### atlético nacional - medellín (N/A, 13/12/2025 21:10 Lima)
+
+- **Nacional vs. Medellín: Así serán las alineaciones titulares en final de Copa BetPlay**: [Link](https://www.espn.com.ar/futbol/colombia/nota/_/id/16079780/nacional-vs-medellin-asi-seran-alineaciones-titulares-final-copa-betplay-2025)
+- **¡Llave abierta! Atlético Nacional y Medellín empataron 0-0 en la final de ida de Copa BetPlay**: [Link](https://libero.pe/futbol-internacional/2025/12/13/atletico-nacional-vs-medellin-en-vivo-gratis-final-ida-de-copa-colombia-via-win-sports-online-lbev-432660)
+- **Atlético Nacional y Medellín no se hicieron daño en la ida: empate sin goles en la final de la Copa Colombia**: [Link](https://www.infobae.com/colombia/deportes/2025/12/13/atletico-nacional-vs-medellin-en-vivo-siga-el-minuto-a-minuto-de-la-final-de-la-copa-betplay/)
+
+
+### boca juniors vs. racing (N/A, 13/12/2025 21:10 Lima)
+
+- **El fixture de Boca Juniors en el Torneo Apertura 2026**: [Link](https://www.espn.com.ar/futbol/argentina/nota/_/id/16074037/el-fixture-de-boca-juniors-en-el-torneo-apertura-2026)
+- **Torneo Apertura 2026: ¿cuándo se juegan todos los clásicos del fútbol argentino?**: [Link](https://espndeportes.espn.com/futbol/argentina/nota/_/id/16073695/torneo-apertura-2026-cuando-se-juegan-clasicos-fechas)
+- **Ya hay fecha para el primer Superclásico entre River y Boca en 2026**: [Link](https://tribuna.com/es/news/2025-12-12-ya-hay-fecha-definida-para-el-primer-superclasico-entre-river-y-boca-en-2026/)
+
+
+### racing (N/A, 13/12/2025 21:10 Lima)
+
+- **22:30 Los Alamitos Racecourse - 14 December 2025 - Racecard - Horse Racing**: [Link](https://www.sportinglife.com/racing/racecards/2025-12-14/los-alamitos-racecourse/racecard/894570/race-6-allowance-optional-claiming)
+- **14/12/2025 Horse Racing Tips and Best Bets – Moe**: [Link](https://www.justhorseracing.com.au/tips/14-12-2025-horse-racing-tips-and-best-bets-moe/874939)
+- **An Early Look - Moe**: [Link](https://www.racing.com/news/2025/12/13/an-early-look-ben-asgari-moe-141225)
+
+
+### racing - estudiantes (N/A, 13/12/2025 21:10 Lima)
+
+- **Racing vs. Estudiantes, por la Final del Clausura: seguilo EN VIVO**: [Link](https://www.tycsports.com/liga-profesional-de-futbol/argentina-torneo-clausura-2025-racing-club-vs-estudiantes-final-id703619.html)
+- **¡Una Maravilla! Adrián Martínez marcó un golazo para Racing vs. Estudiantes en la final del Torneo Clausura 2025**: [Link](https://www.espn.com.ar/futbol/argentina/nota/_/id/16080845/video-gol-de-maravilla-martinez-racing-vs-estudiantes-final)
+- **Cuánto dinero ganará el campeón del Torneo Clausura: la abismal diferencia con otras ligas de Sudamérica y Europa**: [Link](https://www.infobae.com/deportes/2025/12/13/cuanto-dinero-ganara-el-campeon-del-torneo-clausura-la-abismal-diferencia-con-otras-ligas-de-sudamerica-y-europa/)
+
+
+### magic - knicks (N/A, 13/12/2025 21:10 Lima)
+
+- **Knicks vs. Magic (Dec 13, 2025) Live Score**: [Link](https://www.espn.com/nba/game/_/gameId/401809837/knicks-magic)
+- **Jalen Suggs, Jalen Brunson duel in first half of Emirates NBA Cup 2025**: [Link](https://www.nba.com/watch/video/top-2-pointers-3-pointers-from-orlando-magic-vs-new-york-knicks)
+- **Spurs vs. Thunder FREE LIVE STREAM (12/13/25): How to watch NBA Cup semifinals**: [Link](https://www.nj.com/tv/2025/12/spurs-vs-thunder-free-live-stream-121325-how-to-watch-nba-cup-semifinals.html)
+
+
+### accion popular (N/A, 13/12/2025 21:10 Lima)
+
+- **JNE anula elecciones primarias de Acción Popular por tener «vicios sustanciales»**: [Link](https://lpderecho.pe/jne-anula-elecciones-primarias-accion-popular-tener-vicios-sustanciales/)
+- **Acción Popular queda fuera de las Elecciones 2026 tras anularse sus primarias: claves de la decisión del JNE**: [Link](https://www.infobae.com/peru/2025/12/13/accion-popular-queda-fuera-de-las-elecciones-2026-tras-anularse-sus-primarias-claves-de-la-decision-del-jne/)
+- **JNE declara nulas las elecciones primarias de Acción Popular para los comicios generales de 2026**: [Link](https://rpp.pe/politica/elecciones/jne-declara-nulas-las-elecciones-primarias-de-accion-popular-para-las-elecciones-generales-de-2026-noticia-1667828)
+
+
+### yerson mosquera (N/A, 13/12/2025 21:10 Lima)
+
+- **La suerte de tener a Saka**: [Link](https://as.com/futbol/internacional/la-suerte-de-tener-a-saka-f202512-n/)
+- **Dura advertencia de Arteta tras sufrir para vencer a Wolves**: [Link](https://espndeportes.espn.com/futbol/inglaterra/nota/_/id/16080528/mikel-arteta-arsenal-vs-wolves-premier-league)
+- **Así fue el partido de Piero Hincapié en el triunfo de Arsenal vs. Wolves**: [Link](https://www.espn.com.ar/futbol/inglaterra/nota/_/id/16080126/arsenal-vs-wolverhampton-asi-fue-el-partido-de-piero-hincapie)
+
+
+### joran van der sloot (N/A, 13/12/2025 21:10 Lima)
+
+- **🔴🔵 ¡Lo último! A través de un breve comunicado, el Instituto Nacional Penitenciario confirmó que Joran Van der Sloot intentó quitarse la vida al interior de su celda en el penal de Challapalca durante la mañana de este sábado 13 de diciembre. 🌐Más informa**: [Link](https://www.facebook.com/Exitosanoticias/posts/-lo-%C3%BAltimo-a-trav%C3%A9s-de-un-breve-comunicado-el-instituto-nacional-penitenciario-c/1299379725558416/)
+- **Joran van der Sloot: Reportan que neerlandés habría intentado quitarse la vida en su celda del penal Challapalca**: [Link](https://www.infobae.com/peru/2025/12/13/joran-van-der-sloot-reportan-que-neerlandes-habria-intentado-quitarse-la-vida-en-su-celda-del-penal-challapalca/)
+- **Joran van der Sloot es hallado en estado grave en el interior de su celda en Challapalca**: [Link](https://diariocorreo.pe/edicion/tacna/joran-van-der-sloot-es-hallado-en-estado-grave-en-el-interior-de-su-celda-en-challapalca-noticia/)
+
+
+### paris fc - toulouse (N/A, 13/12/2025 21:10 Lima)
+
+- **How to watch today's Paris FC vs Toulouse Ligue 1 game: Live stream, TV channel, and start time**: [Link](https://www.goal.com/en-us/news/watch-paris-fc-vs-toulouse-ligue-1-game-live-stream-tv-channel-start-time/blt00ff6effeb9fe882)
+- **Toulouse Secures Major Victory in Paris**: [Link](https://zamin.uz/en/sport/175738-toulouse-secures-major-victory-in-paris.html)
+- **Ligue 1 News: Paris FC vs Toulouse Confirmed Line-ups**: [Link](https://footballpredictions.net/paris-fc-v-toulouse-team-news-confirmed-lineups)
+
+
 ### arsenal football club (N/A, 13/12/2025 15:26 Lima)
 
 - **Gyokeres sent warning as surprise £52m Arsenal replacement named with Arteta given 'problem'**: [Link](https://www.football365.com/news/arsenal-gyokeres-warning-surprise-52m-replacement-named-arteta-problem)
@@ -958,71 +1028,5 @@ Sin noticias relacionadas disponibles.
 
 - **Ajax busca salir del fondo de la Champions y visita a Qarabag**: [Link](https://www.espn.com.pe/futbol/champions-league/nota/_/id/16064553/qarabag-vs-ajax-fase-liga-champions-league-equipo-fecha-hora-y-tv-en-vivo)
 - **Champions League: Por la fecha 6 se enfrentarán Qarabag y Ajax**: [Link](https://rpp.pe/futbol/ligas-internacionales/champions-league-por-la-fecha-6-se-enfrentaran-qarabag-y-ajax-noticia-1667134)
-
-
-### local de votación (N/A, 10/12/2025 07:56 Lima)
-
-- **¿Habrá Ley Seca para la segunda vuelta presidencial? Esto dice la normativa**: [Link](https://www.biobiochile.cl/noticias/servicios/toma-nota/2025/12/09/habra-ley-seca-para-la-segunda-vuelta-presidencial-esto-dice-la-normativa.shtml)
-- **Cómo funciona el comercio durante la segunda vuelta de las elecciones presidenciales de Chile**: [Link](https://elpais.com/chile/2025-12-10/como-funciona-el-comercio-durante-la-segunda-vuelta-de-las-elecciones-presidenciales-de-chile.html)
-- **¿Quiénes deben desempeñarse como vocales de mesa en la segunda vuelta?**: [Link](https://www.latercera.com/servicios/noticia/quienes-deben-desempenarse-como-vocales-de-mesa-en-la-segunda-vuelta/)
-
-
-### karol g (N/A, 09/12/2025 23:37 Lima)
-
-- **La Tigresa del Oriente apareció en el videoclip oficial de “Tropicoqueta” de Karol G**: [Link](https://elcomercio.pe/tvmas/famosos/la-tigresa-del-oriente-aparecio-en-el-videoclip-oficial-de-tropicoqueta-de-karol-g-celebs-ultimas-noticia/)
-- **“La Tigresa del Oriente” sorprende con su aparición en el nuevo videoclip “Tropicoqueta” de Karol G**: [Link](https://www.infobae.com/peru/2025/12/08/la-tigresa-del-oriente-sorprende-con-su-aparicion-en-el-nuevo-videoclip-tropicoqueta-de-karol-g/)
-- **¿Karol G y La Tigresa del Oriente cantarán juntas? Difunden 'colaboración' tras la sorpresiva aparición de la peruana en el videoclip de 'Tropicoqueta'**: [Link](https://larepublica.pe/entretenimiento/2025/12/08/karol-g-y-la-tigresa-del-oriente-cantaran-juntas-difunden-colaboracion-tras-la-sorpresiva-aparicion-de-la-peruana-en-el-videoclip-de-tropicoqueta-757976)
-
-
-### raptors - knicks (N/A, 09/12/2025 23:37 Lima)
-
-- **Magic, Knicks Advance To Cup Semifinals**: [Link](https://www.hoopsrumors.com/2025/12/magic-knicks-advance-to-cup-semifinals.html)
-- **BetMGM bonus code NYPDM1500: Get a 20% first deposit match up to $1,500 for Knicks vs. Raptors**: [Link](https://nypost.com/2025/12/09/betting/betmgm-bonus-code-nypdm1500-get-a-20-first-deposit-match-up-to-1500-for-knicks-vs-raptors/)
-- **NBA Cup Matchup Should Reveal Everything About the Toronto Raptors**: [Link](https://sports.yahoo.com/articles/nba-cup-matchup-reveal-everything-121100779.html)
-
-
-### kick (N/A, 09/12/2025 21:02 Lima)
-
-- **Top 10 most-followed Kick streamers 2025: From WestCOL to xQc, the biggest names on the platform today**: [Link](https://timesofindia.indiatimes.com/world/us-streamers/top-10-most-followed-kick-streamers-2025-from-westcol-to-xqc-the-biggest-names-on-kick-today/articleshow/125874345.cms)
-- **Drake’s Kick Streams: When a Superstar Rapper Breaks Live Streaming Records**: [Link](https://punchng.com/drakes-kick-streams-when-a-superstar-rapper-breaks-live-streaming-records/)
-- **Two SPFL stadiums damaged by Storm Bram as club forced to relocate supporters with other game CALLED OFF**: [Link](https://www.thescottishsun.co.uk/sport/15667838/spfl-club-relocates-supporters-storm-bram-damages-stadium/)
-
-
-### h3n2 (N/A, 09/12/2025 21:02 Lima)
-
-- **El NHS se enfrenta a una oleada de casos de gripe con la cepa H3N2 dominando la temporada de invierno**: [Link](https://www.ucvradio.pe/mas-actualidad/el-nhs-se-enfrenta-a-una-oleada-de-casos-de-gripe-con-la-cepa-h3n2-dominando-la-temporada-de-invierno/70604/)
-
-
-### jorge wilstermann vs (N/A, 09/12/2025 21:02 Lima)
-
-Sin noticias relacionadas disponibles.
-
-
-### federico girotti (N/A, 09/12/2025 21:02 Lima)
-
-- **Alianza Lima busca el fichaje de ‘9′ con pasado en River Plate que le anotó en Copa Libertadores y enfrentó a Carlos Zambrano**: [Link](https://www.infobae.com/peru/deportes/2025/12/08/alianza-lima-busca-el-fichaje-de-9-con-pasado-en-river-plate-que-le-anoto-en-copa-libertadores-y-enfrento-a-carlos-zambrano/)
-- **Alianza Lima apunta a exjugador de River Plate para ser su nuevo 9**: [Link](https://kchcomunicacion.com/2025/12/08/alianza-lima-apunta-a-exjugador-de-river-plate-para-ser-su-nuevo-9/)
-- **Federico Girotti aparece en la mira de Alianza Lima: quién es y cuál ha sido su trayectoria**: [Link](https://www.eldiez.com.pe/alianza-lima/federico-girotti-aparece-en-la-mira-de-alianza-lima-quien-es-y-cual-ha-sido-su-trayectoria-liga-1-talleres-noticia/)
-
-
-### magic - heat (N/A, 09/12/2025 21:02 Lima)
-
-- **Orlando Magic vs Miami Heat Prediction: Strong Underdog Against Out-of-Form Miami**: [Link](https://www.telecomasia.net/sports-betting/tips/basketball/nba/orlando-magic-vs-miami-heat-prediction-for-the-match-on-december-10-2025/)
-- **bet365 bonus code NYPBET: Bet $5, get $150 in bonus bets for Heat vs. Magic**: [Link](https://nypost.com/2025/12/09/betting/bet365-bonus-code-nypbet-bet-5-get-150-in-bonus-bets-for-heat-vs-magic/)
-- **Desmond Bane torches the Heat's defense and a tale of two quarters in loss to Magic**: [Link](https://www.yardbarker.com/nba/articles/desmond_bane_torches_the_heats_defense_and_a_tale_of_two_quarters_in_loss_to_magic/s1_16619_43183971)
-
-
-### latina tv (N/A, 09/12/2025 21:02 Lima)
-
-- **Moisés y los diez mandamientos, Lunes 08 de diciembre – ver capítulo 135 completo**: [Link](https://www.latina.pe/entretenimiento/moises-y-los-10-mandamientos/moises-y-los-diez-mandamientos-lunes-08-de-diciembre-ver-capitulo-135-completo_20251208/)
-- **ERES MI BIEN – CAPÍTULO 80 COMPLETO: Lunes 08 de diciembre**: [Link](https://www.latina.pe/entretenimiento/eres-mi-bien/capitulos-completos-eres-mi-bien/eres-mi-bien-capitulo-80-completo-lunes-08-de-diciembre_20251208/)
-- **Hasta que la plata nos separe, Lunes 08 de diciembre – ver capítulo 34 completo**: [Link](https://www.latina.pe/entretenimiento/hasta-que-la-plata-nos-separe-novela/hasta-que-la-plata-nos-separe-lunes-08-de-diciembre-ver-capitulo-34-completo_20251208/)
-
-
-### latina noticias (N/A, 09/12/2025 21:02 Lima)
-
-- **El niño peruano que narró la final de la Libertadores desde un cerro y conquistó Europa**: [Link](https://elpais.com/america/2025-12-07/el-nino-peruano-que-narro-la-final-de-la-libertadores-desde-un-cerro-y-conquisto-europa.html)
-- **‘Pol Deportes’ llegó a España y fue recibido por la comunidad peruana: “Gracias por el cariño”**: [Link](https://www.infobae.com/peru/2025/12/08/pol-deportes-llego-a-espana-y-fue-recibido-por-la-comunidad-peruana-gracias-por-el-carino/)
-- **¡Emotivo! El tierno recibimiento de decenas de peruanos a Pol Deportes en España | VIDEO**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/el-tierno-recibimiento-de-decenas-de-peruanos-a-pol-deportes-en-espana-video-noticia/)
 
 
