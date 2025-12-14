@@ -1,3 +1,71 @@
+### corinthians - cruzeiro (N/A, 14/12/2025 15:27 Lima)
+
+- **André Ramalho, do Corinthians, projeta jogo complicado contra o Cruzeiro: “Vão tentar reverter”**: [Link](https://br.bolavip.com/campeonato-copa-do-brasil/andre-ramalho-do-corinthians-projeta-jogo-complicado-contra-o-cruzeiro-vao-tentar-reverter)
+- **Comentário de Corinthiano em 'Jogo do Corinthians ao vivo'**: [Link](https://www.meutimao.com.br/comentario/16378620/que_essa_noite_o_yuri_alberto_esteja_inspirado)
+- **Ídolo do Cruzeiro, Fabrício aposta em virada diante do Corinthians na decisão**: [Link](https://www.antenadosnofutebol.com.br/copa-do-brasil/idolo-do-cruzeiro-fabricio-aposta-em-virada-diante-do-corinthians-na-decisao)
+
+
+### juventus vs (N/A, 14/12/2025 15:27 Lima)
+
+- **Opinion: Spalletti risks replicating costly Napoli mistake against Bologna**: [Link](https://www.juvefc.com/opinion-spalletti-risks-replicating-costly-napoli-mistake-against-bologna/)
+- **Bologna vs Juventus Prediction, 12/14/2025 Soccer Pick, Tips and Odds**: [Link](https://www.docsports.com/free-picks/soccer/2025/bologna-vs-juventus-prediction-12-14-2025-soccer-pick-tips-and-odds.html)
+- **Game Time Thread: Juventus vs. Bologna**: [Link](https://sports.yahoo.com/articles/game-time-thread-juventus-vs-183000397.html)
+
+
+### juventus (N/A, 14/12/2025 15:27 Lima)
+
+- **Bologna-Juventus: Formazioni ufficiali e Cronaca in diretta**: [Link](https://sport.virgilio.it/dirette/live/serie-a/14-12-2025/bologna-juventus/2558649/)
+- **Serie A | Le formazioni ufficiali di Bologna-Juventus**: [Link](https://www.juventus.com/it/news/articoli/serie-a-2025-2026-bologna-juventus-formazioni)
+- **Bologna-Juve diretta: segui la partita di Serie A LIVE**: [Link](https://www.corrieredellosport.it/news/calcio/serie-a/2025/12/14-145257177/bologna-juve_diretta_segui_la_partita_di_serie_a_live)
+
+
+### marsella vs monaco (N/A, 14/12/2025 15:27 Lima)
+
+- **Ligue 1 Predictions | Round 16: Lens look hold hold top spot against Nice, OM host Monaco**: [Link](https://www.getfootballnewsfrance.com/2025/ligue-1-predictions-round-16-lens-look-hold-hold-top-spot-against-nice-om-host-monaco/)
+- **OM: Nayef Aguerd and Aubameyang included in squad to face AS Monaco ahead of AFCON 2025**: [Link](https://foot-africa.com/en/news/om-nayef-aguerd-and-aubameyang-included-in-squad-to-face-as-monaco-ahead-of-afcon-2025-1001828/)
+- **Marseille vs Monaco Prediction, 12/14/2025 Soccer Pick, Tips and Odds**: [Link](https://www.docsports.com/free-picks/soccer/2025/marseille-vs-monaco-prediction-12-14-2025-soccer-pick-tips-and-odds.html)
+
+
+### alavés - real madrid (N/A, 14/12/2025 15:27 Lima)
+
+- **Uno a uno del Real Madrid contra el Alavés: valoración y comentarios**: [Link](https://www.marca.com/futbol/real-madrid/2025/12/14/real-madrid-alaves-valoracion-comentarios.html)
+- **Alavés vs Real Madrid: alineaciones, Jornada 16, LaLiga**: [Link](https://www.espn.com.pe/futbol/espana/nota/_/id/16079708/real-madrid-alaves-laliga-alineaciones)
+- **Arranca la era de ‘Mbappés y Valdepeñas’**: [Link](https://as.com/opinion/arranca-la-era-de-mbappes-y-valdepenas-f202512-n/)
+
+
+### bolonia - juventus (N/A, 14/12/2025 15:27 Lima)
+
+- **Juventus visita a Bologna en un gran duelo de la Serie A**: [Link](https://www.espn.com.pe/futbol/italia/nota/_/id/16069999/bologna-vs-juventus-fecha-15-serie-a-equipo-fecha-hora-y-tv-en-vivo)
+- **Serie A: Se enfrentan Bologna y Juventus por la fecha 15**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-se-enfrentan-bologna-y-juventus-por-la-fecha-15-noticia-1667776)
+
+
+### víctor valdepeñas (N/A, 14/12/2025 15:27 Lima)
+
+- **Valdepeñas, una bestia sin límites para Xabi Alonso**: [Link](https://www.marca.com/futbol/real-madrid/2025/12/13/valdepenas-bestia-limites-xabi-alonso.html)
+- **La hora de Valdepeñas**: [Link](https://as.com/futbol/champions/la-hora-de-valdepenas-f202512-n/)
+- **¿Quién es Valdepeñas, nuevo talento de Real Madrid?**: [Link](https://espndeportes.espn.com/futbol/espana/nota/_/id/16082358/real-madrid-vs-alaves-victor-valdepenas-debutaria-nuevo-talento)
+
+
+### marsella vs (N/A, 14/12/2025 15:27 Lima)
+
+- **Marsella y Monaco juegan un partido imperdible de la Ligue 1**: [Link](https://www.espn.com.pe/futbol/francia/nota/_/id/16075298/marsella-vs-monaco-por-la-ligue-1-equipo-fecha-hora-y-tv-en-vivo)
+- **Liga de Francia: Olympique de Marsella se enfrenta ante la visita Mónaco por la fecha 16**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-de-francia-olympique-de-marsella-se-enfrenta-ante-la-visita-monaco-por-la-fecha-16-noticia-1667777)
+- **Ligue 1 Predictions | Round 16: Lens look hold hold top spot against Nice, OM host Monaco**: [Link](https://www.getfootballnewsfrance.com/2025/ligue-1-predictions-round-16-lens-look-hold-hold-top-spot-against-nice-om-host-monaco/)
+
+
+### benfica vs (N/A, 14/12/2025 15:27 Lima)
+
+- **Preview: Moreirense vs Benfica - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/moreirense/preview/moreirense-vs-benfica-prediction-team-news-lineups_587744.html)
+- **Moreirense vs Benfica tonight in Primeira Liga clash, here's why Mourinho's flawless form makes this more than just another game**: [Link](https://www.red94.net/news/95511-moreirense-takes-on-benfica-tonight-in-primeira-liga-clash-lisbon-side-seek-3rd/)
+
+
+### stuttgart vs (N/A, 14/12/2025 15:27 Lima)
+
+- **Hansa Rostock nimmt die Aufstiegsplätze ins Visier**: [Link](https://www.nordkurier.de/regional/rostock/hansa-rostock-nimmt-die-aufstiegsplaetze-ins-visier-4191444)
+- **Keine Punkte gegen Rostock**: [Link](https://www.vfb.de/de/vfb/junge-wilde/u21/3--liga/2526/18-vfb-stuttgart-ii----f-c--hansa-rostock-/)
+- **Hansa Rostock: Torwart Uphoff rettet Sieg mit Monster-Parade**: [Link](https://www.bild.de/sport/fussball/hansa-rostock-torwart-uphoff-rettet-sieg-mit-monster-parade-693e9e2d56897b02d266bcdc)
+
+
 ### genoa - inter (N/A, 14/12/2025 11:29 Lima)
 
 - **Genoa Inter, formazioni ufficiali e risultato in diretta live della partita di Serie A**: [Link](https://sport.sky.it/calcio/serie-a/partite/2025/giornata-15/genoa-inter/risultato-gol)
@@ -961,73 +1029,5 @@ Sin noticias relacionadas disponibles.
 - **Jorge Fossati a un paso de dejar Universitario: los entretelones detrás de su inminente salida**: [Link](https://depor.com/futbol-peruano/descentralizado/universitario-jorge-fossati-se-va-que-paso-con-negociaciones-por-que-el-club-se-canso-de-la-situacion-y-candidatos-para-sustituirlo-liga-1-2026-noticia/)
 - **Universitario y la medida tras situación con Fossati**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/universitario-y-medida-no-llegar-acuerdo-fossati-n451964)
 - **Franco Velazco puso fecha para definir el futuro de Jorge Fossati en Universitario**: [Link](https://bolavip.com/pe/universitario/franco-velazco-puso-fecha-para-definir-el-futuro-de-jorge-fossati-en-universitario)
-
-
-### lakers (N/A, 11/12/2025 07:57 Lima)
-
-- **Luka Doncic Blasted for His Defense in Lakers Loss: ‘A Traffic Cone’**: [Link](https://heavy.com/sports/nba/los-angeles-lakers/luka-doncic-defense-lakers/)
-- **Lakers swat away playoff talk, focus on reeling D**: [Link](https://www.espn.com/nba/story/_/id/47274638/lakers-focus-reeling-d-not-playoff-talk-loss-spurs)
-- **Luka Doncic: “Each one of us has to guard better”**: [Link](https://www.talkbasket.net/207880-luka-doncic-each-one-of-us-has-to-guard-better)
-
-
-### dólar hoy perú (N/A, 11/12/2025 03:36 Lima)
-
-- **Precio del dólar en Perú: cierre de la cotización de hoy, miércoles 10 de diciembre**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-a-cuanto-esta-el-dolar-y-tipo-de-cambio-este-miercoles-10-de-diciembre-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
-- **Precio del dólar subió: Así cerró el tipo de cambio hoy 10 de diciembre en Perú**: [Link](https://www.infobae.com/peru/2025/12/10/dolar-cotizacion-de-apertura-hoy-10-de-diciembre-en-peru/)
-- **Tipo de cambio en Perú detendrá caída en diciembre: divisa norteamericana muestra señales de estabilización**: [Link](https://www.expreso.com.pe/economia/tipo-de-cambio-en-peru-detendra-caida-en-diciembre-divisa-norteamericana-muestra-senales-de-estabilizacion-bcrp-noticia/1245604/)
-
-
-### facundo callejo (N/A, 11/12/2025 03:36 Lima)
-
-- **“Muchos tenemos hambre de jugar nuestra primera Copa Libertadores con Cusco FC”: Callejo, Tévez y Colman, el tridente dorado que sueña en grande**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/cusco-fc-muchos-tenemos-hambre-de-jugar-nuestra-primera-copa-libertadores-con-cusco-fc-facundo-callejo-juan-manuel-tevez-e-ivan-colman-el-tridente-dorado-que-suena-en-grande-noticia/)
-
-
-### cristal vs cuzco (N/A, 11/12/2025 03:36 Lima)
-
-- **Sporting Cristal defeats Cusco 2-0 in Lima, here's what this dominant display means for the playoff's second leg**: [Link](https://www.red94.net/news/23590-sporting-cristal-defeats-cusco-2-0-in-liga-1-playoff-clash/)
-- **Cusco FC vs. Sporting Cristal: Potential Starting Lineups for Liga 1 Playoffs**: [Link](https://www.el-balad.com/6791530)
-- **Alianza Lima and Sporting Cristal battle tonight for Copa Libertadores destiny, what happens if extras needed**: [Link](https://www.red94.net/news/91818-alianza-lima-faces-sporting-cristal-tonight-in-crucial-lima-playoff-both-teams-c/)
-
-
-### mauricio diez canseco (N/A, 10/12/2025 23:38 Lima)
-
-- **Mauricio Diez Canseco y Aixa Sosa firmes en su relación y se tatúan sus nombres**: [Link](https://elcomercio.pe/tvmas/farandula/mauricio-diez-canseco-y-aixa-sosa-firmes-en-su-relacion-y-se-tatuan-sus-nombres-ultimas-noticia/)
-- **Mauricio Diez Canseco y cómo empezó su relación con Aixa Sosa**: [Link](https://www.atv.pe/noticia/mauricio-diez-canseco-y-como-empezo-su-relacion-con-aixa-sosa/)
-- **Brad Pizza y su novia Aixa Sosa se hacen tatuajes y lucen anillos simbólicos**: [Link](https://trome.com/espectaculos/brad-pizza-y-su-novia-aixa-sosa-se-hacen-tatuajes-y-lucen-anillos-simbolicos-noticia/)
-
-
-### lakers - spurs (N/A, 10/12/2025 23:38 Lima)
-
-- **Lakers won’t use NBA Cup court for quarterfinal matchup against Spurs: Source**: [Link](https://www.nytimes.com/athletic/6879915/2025/12/10/lakers-nba-cup-court-quarterfinals-spurs/)
-- **BetRivers Bonus Code: Secure a Second Chance Bet Up to $500 for Spurs vs. Lakers NBA Cup Quarterfinal**: [Link](https://www.wsn.com/nba/betrivers-bonus-code-spurs-vs-lakers-12-10-2025/)
-- **Marc Stein: The Lakers will play host tonight to San …**: [Link](https://www.hoopshype.com/story/sports/nba/rumors/2025/12/10/marc-stein-the-lakers-will-play-host-tonight-to-san/87708267007/)
-
-
-### corinthians vs (N/A, 10/12/2025 21:04 Lima)
-
-- **🧐 Dates, kick-off times and form: Copa do Brasil semi-finals guide**: [Link](https://sports.yahoo.com/articles/dates-kick-off-times-form-235100442.html)
-- **How to watch today's Cruzeiro vs Corinthians Copa do Brasil game: Live stream, TV channel, and start time**: [Link](https://www.goal.com/en-us/news/where-to-watch-cruzeiro-v-corinthians-live-stream-online-tv/blt172efc94fd6001a0)
-- **Where to watch Cruzeiro vs Corinthians live in the USA: 2025 Copa do Brasil**: [Link](https://bolavip.com/en/soccer/where-to-watch-cruzeiro-vs-corinthians-live-in-the-usa-2025-copa-do-brasil)
-
-
-### thunder - suns (N/A, 10/12/2025 21:04 Lima)
-
-- **Shai Gilgeous-Alexander: Player Props, Odds, and Lines for Reigning MVP in NBA Cup vs. Suns**: [Link](https://news.bet365.com/en-us/article/shai-gilgeous-alexander-player-props-in-nba-cup-vs-suns/2025121017423309860)
-- **NBA Fantasy: DFS picks & advice for Dec. 10**: [Link](https://www.nba.com/news/nba-fantasy-dfs-picks-advice-for-dec-10-2025)
-- **How to watch Suns vs. Thunder: TV channel and streaming options for December 10**: [Link](https://www.nytimes.com/athletic/6879659/2025/12/10/suns-vs-thunder-stream-how-to-watch-dec-10/)
-
-
-### sporting cristal - cusco (N/A, 10/12/2025 21:04 Lima)
-
-- **Sorprendió a todos: Santiago González anotó el 1-0 de Cristal ante Cusco FC en el Nacional [VIDEO]**: [Link](https://rpp.pe/futbol/descentralizado/ver-gol-santiago-gonzalez-en-sporting-cristal-vs-cusco-fc-video-1-0-en-el-nacional-partidos-de-hoy-noticia-1667376)
-- **Canal Liga 1 MAX EN VIVO Por Internet | Cristal-Cusco FC 2025**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/liga-1-max-en-vivo-gratis-ver-futbol-libre-tv-cristal-vs-cusco-fc-por-final-de-playoffs-liga-1-video-noticia/)
-- **A qué hora juega Sporting Cristal vs Cusco FC HOY: partido en el Nacional por final ida de los ‘play-offs’ de la Liga 1 2025**: [Link](https://www.infobae.com/peru/deportes/2025/12/09/a-que-hora-juega-sporting-cristal-vs-cusco-fc-partido-nacional-final-ida-play-offs-liga-1-2025-horario/)
-
-
-### gripe h3n2 (N/A, 10/12/2025 21:04 Lima)
-
-- **Gripe H3N2 alerta a Europa y Estados Unidos qué es, síntomas y cómo se contagia variante**: [Link](https://rpp.pe/mundo/actualidad/influenzavirus-a-subtipo-h3n2-gripe-alerta-a-europa-y-estados-unidos-que-es-sintomas-y-como-se-contagia-variante-noticia-1667363)
-- **Gripe H3N2 pone en alerta a Reino Unido con uso de mascarillas y cierre de escuelas**: [Link](https://n60.pe/gripe-h3n2-pone-en-alerta-a-reino-unido-con-uso-de-mascarillas-y-cierre-de-escuelas/)
-- **Alerta mundial por gripe agresiva H3N2 que desborda hospitales en EE.UU. y Europa**: [Link](https://www.expreso.com.pe/mundo/alerta-mundial-por-gripe-agresiva-h3n2-que-desborda-hospitales-en-ee-uu-y-europa-organizacion-mundial-de-la-salud-h3n2-andrew-pekosz-noticia/1246149/)
 
 
