@@ -1,3 +1,45 @@
+### manel kape (N/A, 14/12/2025 03:31 Lima)
+
+- **Main Card Results | UFC Fight Night: Royval vs Kape**: [Link](https://www.ufc.com/news/main-card-results-ufc-fight-night-royval-vs-kape-event-tonight-recaps-highlights-interviews)
+- **UFC Vegas 112 post-fight show: Reaction to Manel Kape destroying Brandon Royval in final UFC fight of 2025**: [Link](https://sports.yahoo.com/articles/ufc-vegas-112-post-fight-074623153.html)
+- **UFC Fight Night predictions: Odds, start time for Brandon Royval vs. Manel Kape in Las Vegas**: [Link](https://www.cbssports.com/ufc/news/ufc-fight-night-predictions-odds-start-time-brandon-royval-vs-manel-kape-live-stream/)
+
+
+### kevin vallejos (N/A, 14/12/2025 03:31 Lima)
+
+- **Chikadze vs. Vallejos: Patadas vs. Boxeo**: [Link](https://www.ufcespanol.com/news/chikadze-vs-vallejos-patadas-vs-boxeo)
+- **El argentino Kevin Vallejos afrontará una pelea clave en la UFC contra Giga Chikadze: hora, TV y todo lo que hay que saber**: [Link](https://www.infobae.com/deportes/2025/12/13/el-argentino-kevin-vallejos-afrontara-una-pelea-clave-en-la-ufc-contra-giga-chikadze-hora-tv-y-todo-lo-que-hay-que-saber/)
+- **Vuelve el 'Chino' Vallejos, la gran esperanza de las MMA argentinas… ¿y el clon de Topuria?**: [Link](https://www.marca.com/combates-ufc/2025/12/12/vuelve-chino-vallejos-gran-esperanza-mma-argentinas-clon-topuria.html)
+
+
+### shai gilgeous-alexander (N/A, 14/12/2025 03:31 Lima)
+
+- **'He didn't change one bit': Shai Gilgeous-Alexander remains Oklahoma City's humble superstar**: [Link](https://andscape.com/features/he-didnt-change-one-bit-shai-gilgeous-alexander-remains-oklahoma-citys-humble-superstar/)
+- **“The Champagne Just Wasn’t Popped”: Shai Gilgeous-Alexander Breaks Down How He Celebrated the Thunder’s 2025 Championship**: [Link](https://thesportsrush.com/nba-news-the-champagne-just-wasnt-popped-shai-gilgeous-alexander-breaks-down-how-he-celebrated-the-thunders-2025-championship/)
+- **Thunder MVP Shai Gilgeous-Alexander Announces Exciting Personal News**: [Link](https://www.newsweek.com/sports/nba/thunder-mvp-shai-gilgeous-alexander-announces-exciting-personal-news-11190991)
+
+
+### john cena wwe (N/A, 14/12/2025 03:31 Lima)
+
+- **Saturday Night's Main Event Match Card, How to Watch, Previews, Start Time and More**: [Link](https://www.wwe.com/article/snme-dec-13-2025-match-card-how-to-watch-previews-start-time-and-more)
+- **John Cena last match: How he reached the top of WWE**: [Link](https://www.bbc.com/news/articles/cx2dp15zglxo)
+- **Paul Levesque addresses crowd backlash to John Cena’s loss**: [Link](https://www.postwrestling.com/2025/12/13/paul-levesque-addresses-crowd-backlash-to-john-cenas-loss/)
+
+
+### lugar de votación (N/A, 14/12/2025 03:31 Lima)
+
+- **Ya está en marcha: Voto de chilenos en Nueva Zelanda da inicio a la segunda vuelta de las elecciones presidenciales**: [Link](https://www.emol.com/noticias/Nacional/2025/12/13/1185760/comienza-segunda-vuelta-elecciones-presidenciales.html)
+- **Elecciones presidenciales de Chile 2025, en vivo | Comienza la votación de los chilenos en el exterior**: [Link](https://elpais.com/chile/2025-12-13/elecciones-presidenciales-de-chile-2025-en-vivo-kast-y-jara-se-disputan-la-segunda-vuelta.html)
+- **Consulados chilenos en Texas habilitados para votar en la segunda vuelta presidencial del 14 de diciembre 2025**: [Link](https://gestion.pe/mix/usa/consulados-chilenos-en-texas-habilitados-para-votar-en-la-segunda-vuelta-presidencial-del-14-de-diciembre-2025-nnda-nnrt-noticia/)
+
+
+### muslera (N/A, 14/12/2025 03:31 Lima)
+
+- **Muslera penaltılarda devleşti, Arjantin'de şampiyon Estudiantes oldu!**: [Link](https://t24.com.tr/haber/muslera-penaltilarda-devlesti-arjantin-de-sampiyon-estudiantes-oldu,1283445)
+- **Clausura 2025 Finali Nefes Kesecek!**: [Link](https://www.cnnturk.com/magazin/clausura-2025-finali-nefes-kesecek-2371721)
+- **Fernando Muslera'dan şampiyonluk itirafı!**: [Link](https://www.sporx.com/futbol/ekstra/fernando-muslera-dan-sampiyonluk-itirafi-SXGLQ78007SXQ)
+
+
 ### yailin la mas viral (N/A, 13/12/2025 23:39 Lima)
 
 - **Yo Soy conciertos 2025: imitadora de Yailin La Más Viral volvió a SORPRENDER con su interpretación de “Bing Bong”**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-conciertos-2025-imitadora-de-yailin-la-mas-viral-volvio-a-sorprender-con-su-interpretacion-de-bing-bong_20251212/)
@@ -986,47 +1028,5 @@ quality of Man City**: [Link](https://www.vavel.com/en/football/2025/12/07/sunde
 ### latina (N/A, 10/12/2025 11:37 Lima)
 
 Sin noticias relacionadas disponibles.
-
-
-### manchester city vs real madrid (N/A, 10/12/2025 11:37 Lima)
-
-- **Real Madrid y Manchester City se cruzan en el Bernabéu en un nuevo "clásico" de la Champions**: [Link](https://www.espn.com.pe/futbol/champions-league/nota/_/id/16064268/real-madrid-vs-manchester-city-fase-liga-fecha-6-champions-equipo-fecha-hora-tv-en-vivo)
-- **El inédito once del Real Madrid para enfrentar al Manchester City por la Champions League**: [Link](https://rpp.pe/futbol/champions-league/real-madrid-vs-manchester-city-alineacion-de-xabi-alonso-por-la-champions-league-en-el-bernabeu-noticia-1667242)
-- **A que hora ver la reacción de Pol Deportes sobre el Madrid - City por la Champions League**: [Link](https://elcomercio.pe/respuestas/donde/madrid-city-en-vivo-por-la-champions-league-con-pol-deportes-donde-y-a-que-hora-se-transmite-tdpe-noticia/)
-
-
-### al nassr vs (N/A, 10/12/2025 11:37 Lima)
-
-- **¡‘Fierrazo’ infernal! Golazo de Cristiano Ronaldo para el 1-0 del Al-Nassr vs. Al-Wahda**: [Link](https://depor.com/futbol-internacional/resto-del-mundo/gol-cristiano-ronaldo-al-nassr-vs-al-wahda-golazo-en-arabia-saudita-video-noticia/)
-- **You can see Cristiano Ronaldo play in Abu Dhabi tonight**: [Link](https://www.timeoutabudhabi.com/news/cristiano-ronaldo-al-nassr)
-- **Watch Ronaldo score and deliver his iconic 'Suuui' celebration in Abu Dhabi against Al Wahda**: [Link](https://gulfnews.com/sport/football/watch-ronaldo-score-and-deliver-his-iconic-suuui-celebration-in-abu-dhabi-against-al-wahda-1.500375677)
-
-
-### al nassr (N/A, 10/12/2025 11:37 Lima)
-
-- **You can see Cristiano Ronaldo play in Abu Dhabi tonight**: [Link](https://www.timeoutabudhabi.com/news/cristiano-ronaldo-al-nassr)
-- **Watch Ronaldo score and deliver his iconic 'Suuui' celebration in Abu Dhabi against Al Wahda**: [Link](https://gulfnews.com/sport/football/watch-ronaldo-score-and-deliver-his-iconic-suuui-celebration-in-abu-dhabi-against-al-wahda-1.500375677)
-- **Video: Cristiano Ronaldo scores Al Nassr’s first goal vs Wahda Abu Dhabi**: [Link](https://bolavip.com/en/soccer/video-cristiano-ronaldo-scores-al-nassrs-first-goal-vs-wahda-abu-dhabi)
-
-
-### bn (N/A, 10/12/2025 11:37 Lima)
-
-- **Amazon pledges massive $35 billion worth of investments in India with focus on AI**: [Link](https://www.cnbc.com/2025/12/10/amazon-pledges-35-billion-investments-in-indias-ai-space-through-2030-million-jobs.html)
-- **Amazon to invest over $35 billion in India on AI, exports**: [Link](https://www.reuters.com/business/retail-consumer/amazon-invest-over-35-billion-india-by-2030-expand-operations-boost-ai-2025-12-10/)
-- **Microsoft, Amazon Bet Billions on India**: [Link](https://www.wsj.com/tech/microsoft-plans-to-invest-23-billion-on-ai-in-india-canada-52f7c077?gaa_at=eafs&gaa_n=AWEtsqccgIXFUmEOSIo2aDz-WKm4gX_aaOT925JNQ1cC7vGaxizbt96cgBSa&gaa_ts=6939a543&gaa_sig=7urBGXyXWKOdqcTKNi1C8UlrgNUHZDX2iH4f5pAy5KbmkXnKaY5g6Ok983OxLv-LEztWWOFeAkrdnqK2fb9RfQ%3D%3D)
-
-
-### yarita lizeth (N/A, 10/12/2025 11:37 Lima)
-
-- **Yarita Lizeth confirma romance con el hijo de Dina Páucar y recibe la bendición de la cantante folclórica**: [Link](https://rpp.pe/famosos/farandula/yarita-lizeth-confirma-romance-con-el-hijo-de-dina-paucar-y-recibe-la-bendicion-de-la-cantante-folclorica-noticia-1667245)
-- **Hijo de Dina Páucar confirma relación con cantante Yarita Lizeth: “Es una grata sorpresa”**: [Link](https://elcomercio.pe/tvmas/farandula/hijo-de-dina-paucar-confirma-relacion-con-cantante-yarita-lizeth-es-una-grata-sorpresa-ultimas-noticia/)
-- **Alejandro, hijo de Dina Páucar, confirma relación con Yarita Lizeth tras meses de rumores**: [Link](https://www.infobae.com/peru/2025/12/09/alejandro-hijo-de-dina-paucar-confirma-relacion-con-yarita-lizeth-tras-meses-de-rumores/)
-
-
-### bcp (N/A, 10/12/2025 11:37 Lima)
-
-- **BCP sostiene que la TPM del 6% sigue siendo necesaria pese a los recortes de la Fed**: [Link](https://marketdata.com.py/noticias/bcp-sostiene-que-la-tpm-del-6-sigue-siendo-necesaria-pese-a-los-recortes-de-la-fed-148303/)
-- **Horario de atención de bancos en Lima en el feriado de hoy, martes 9 de diciembre**: [Link](https://elcomercio.pe/respuestas/tramites/horario-de-bancos-en-lima-para-atencion-en-los-feriados-8-y-9-de-diciembre-del-2025-tdpe-noticia/)
-- **Horario de atención de los bancos para el feriado del martes 9 de diciembre: BCP, Interbank, Scotiabank, Banco de la Nación y más**: [Link](https://larepublica.pe/economia/2025/12/07/horario-de-atencion-de-los-bancos-en-peru-para-los-feriados-del-lunes-8-y-martes-9-de-diciembre-revisa-todos-los-detalles-del-bcp-interbank-scotiabank-banco-de-la-nacion-y-mas-atmp-376971)
 
 
