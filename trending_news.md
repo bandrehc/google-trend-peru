@@ -1,3 +1,44 @@
+### yailin la mas viral (N/A, 13/12/2025 23:39 Lima)
+
+- **Yo Soy conciertos 2025: imitadora de Yailin La Más Viral volvió a SORPRENDER con su interpretación de “Bing Bong”**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-conciertos-2025-imitadora-de-yailin-la-mas-viral-volvio-a-sorprender-con-su-interpretacion-de-bing-bong_20251212/)
+- **Yo Soy conciertos 2025: imitadora de Yailin La Más Viral PRENDIÓ el escenario con su interpretación de “Yo No Olvido”**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-conciertos-2025-imitadora-de-yailin-la-mas-viral-prendio-el-escenario-con-su-interpretacion-de-yo-no-olvido_20251206/)
+
+
+### sam smith (N/A, 13/12/2025 23:39 Lima)
+
+- **Sam Smith Brings Out Surprise Guests Ed Sheeran and Brandi Carlile at 22nd Show at Brooklyn’s Warsaw Venue—And Gives One Duet Its Live Debut**: [Link](https://www.billboard.com/music/music-news/sam-smith-ed-sheeran-brandi-carlile-warsaw-1236135035/)
+- **Sam Smith Delivers Unforgettable Performances with Special Guests at Warsaw Residency**: [Link](https://news.ssbcrack.com/sam-smith-delivers-unforgettable-performances-with-special-guests-at-warsaw-residency/)
+- **Sam Smith sings with Ed Sheeran and Brandi Carlile during NYC residency**: [Link](https://digital.abcaudio.com/news/sam-smith-sings-ed-sheeran-and-brandi-carlile-during-nyc-residency)
+
+
+### billie eilish (N/A, 13/12/2025 23:39 Lima)
+
+- **Watch the Trailer for Billie Eilish and James Cameron’s Hit Me Hard and Soft: The Tour**: [Link](https://pitchfork.com/news/watch-the-trailer-for-billie-eilishs-james-cameron-directed-concert-film/)
+- **James Cameron’s Next 3D Movie After Avatar: Fire and Ash Gets Trailer**: [Link](https://www.comingsoon.net/movies/trailers/2072721-james-cameron-next-3d-movie-after-avatar-fire-and-ash)
+- **See the New Trailer for Billie Eilish’s Concert Film**: [Link](https://www.today.com/video/see-the-new-trailer-for-billie-eilish-s-concert-film-254222405527)
+
+
+### thunder - spurs (N/A, 13/12/2025 23:39 Lima)
+
+- **Mitch Johnson, Pre‑Game vs Oklahoma Thunder | 12/13/25**: [Link](https://www.nba.com/spurs/videos/mitch-johnson-pre-game-vs-oklahoma-thunder-12-13-25)
+- **Isaiah Hartenstein To Return For NBA Cup Semis On Saturday**: [Link](https://basketball.realgm.com/wiretap/283111/Isaiah-Hartenstein-To-Return-For-NBA-Cup-Semis-On-Saturday)
+- **Best Shai Gilgeous-Alexander prop bet for Spurs vs. Thunder on Saturday 12/13/25**: [Link](https://dknetwork.draftkings.com/2025/12/13/best-shai-gilgeous-alexander-prop-bet-for-spurs-vs-thunder-on-saturday-12-13-25/)
+
+
+### diego bertie (N/A, 13/12/2025 23:39 Lima)
+
+- **Yo Soy conciertos 2025: imitador de Diego Bertie dejó al público ANONADADO y EMOCIONADO por su interpretación de “Qué Difícil Es Amar”**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-conciertos-2025-imitador-de-diego-bertie-dejo-al-publico-anonadado-y-emocionado-por-su-interpretacion-de-que-dificil-es-amar_20251212/)
+- **Imitador de Diego Bertie conmueve al público al cantar a dúo con el original en el ‘reto del espejo’ de Yo Soy**: [Link](https://www.infobae.com/peru/2025/12/13/imitador-de-diego-bertie-conmueve-al-publico-al-cantar-a-duo-con-el-original-en-el-reto-del-espejo-de-yo-soy/)
+- **Yo Soy conciertos 2025: ¡BRILLÓ CON EL CORAZÓN! Una noche llena de sensibilidad al estilo Diego Bertie**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-conciertos-2025-brillo-con-el-corazon-una-noche-llena-de-sensibilidad-al-estilo-diego-bertie_20251210/)
+
+
+### primera división (N/A, 13/12/2025 23:39 Lima)
+
+- **Partidos de hoy, sábado 13 de diciembre de 2025: programación, canales TV y resultados en vivo**: [Link](https://www.infobae.com/peru/deportes/2025/12/13/partidos-de-hoy-sabado-13-de-diciembre-de-2025-programacion-canales-tv-y-resultados-en-vivo/)
+- **Partidos de hoy EN VIVO: programación, horarios y dónde ver fútbol este sábado 13 de diciembre**: [Link](https://libero.pe/futbol-internacional/2025/12/12/partidos-de-hoy-sabado-13-de-diciembre-programacion-horarios-donde-ver-714012)
+- **Partidos de HOY, sábado 13 de diciembre: agenda, hora y dónde ver fútbol en vivo**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/partidos-de-hoy-sabado-13-de-diciembre-del-2025-resultados-horarios-canales-tv-y-donde-ver-futbol-en-vivo-noticia/)
+
+
 ### wwe en vivo (N/A, 13/12/2025 21:10 Lima)
 
 - **WWE Saturday Night’s Main Event: cartelera completa, a qué hora y dónde ver en vivo desde México el adiós de John Cena**: [Link](https://www.infobae.com/mexico/deportes/2025/12/13/wwe-saturday-nights-main-event-cartelera-completa-a-que-hora-y-donde-ver-en-vivo-desde-mexico-el-adios-de-john-cena/)
@@ -987,46 +1028,5 @@ Sin noticias relacionadas disponibles.
 - **BCP sostiene que la TPM del 6% sigue siendo necesaria pese a los recortes de la Fed**: [Link](https://marketdata.com.py/noticias/bcp-sostiene-que-la-tpm-del-6-sigue-siendo-necesaria-pese-a-los-recortes-de-la-fed-148303/)
 - **Horario de atención de bancos en Lima en el feriado de hoy, martes 9 de diciembre**: [Link](https://elcomercio.pe/respuestas/tramites/horario-de-bancos-en-lima-para-atencion-en-los-feriados-8-y-9-de-diciembre-del-2025-tdpe-noticia/)
 - **Horario de atención de los bancos para el feriado del martes 9 de diciembre: BCP, Interbank, Scotiabank, Banco de la Nación y más**: [Link](https://larepublica.pe/economia/2025/12/07/horario-de-atencion-de-los-bancos-en-peru-para-los-feriados-del-lunes-8-y-martes-9-de-diciembre-revisa-todos-los-detalles-del-bcp-interbank-scotiabank-banco-de-la-nacion-y-mas-atmp-376971)
-
-
-### sunat (N/A, 10/12/2025 11:37 Lima)
-
-- **Decreto Supremo que aprueba el Reglamento que regula el establecimiento de cursos de capacitación como medida preventiva para las microempresas en el marco de la potestad sancionadora de la Superintendencia Nacional de Aduanas y de Administra**: [Link](https://actualidadempresarial.pe/comentario-legal/decreto-supremo-que-aprueba-el-reglamento-que-regula-el-establecimiento-de-cursos-de-capacitacion-como-medida-preventiva-para-las-microempresas-en-el-marco-de-la-potestad-sancionadora-de-la-superintendencia-nacional-de-aduanas-y-de-administracion-tributar/1)
-- **SUNAT reemplazará multas tributarias por cursos de capacitación obligatoria: ¿Para quiénes?**: [Link](https://www.infobae.com/peru/2025/12/08/mef-sunat-reemplazara-multas-tributarias-por-cursos-de-capacitacion-obligatoria-para-quienes-microempresas/)
-- **Sunat realizará capacitación obligatoria a microempresas antes de multarlas**: [Link](https://revistaganamas.com.pe/sunat-realizara-capacitacion-obligatoria-a-microempresas-antes-de-multarlas/)
-
-
-### ticket master (N/A, 10/12/2025 11:37 Lima)
-
-- **Judge Likely to Let Ticketmaster Customers Proceed in Antitrust Class Action Suit**: [Link](https://www.ticketnews.com/2025/12/judge-likely-to-let-ticketmaster-customers-proceed-in-antitrust-class-action-suit/)
-- **Live Nation Customers Appear Poised For Antitrust Class Cert.**: [Link](https://www.law360.com/articles/2418479/live-nation-customers-appear-poised-for-antitrust-class-cert)
-- **Live Nation and Ticketmaster Face Growing Legal Threat as Judge Signals Class Action Could Advance**: [Link](https://edm.com/news/live-nation-ticketmaster-judge-signals-class-action-lawsuit/)
-
-
-### copa intercontinental (N/A, 10/12/2025 07:56 Lima)
-
-- **Cruz Azul vs. Flamengo: fecha, horarios y canales de TV por Copa Intercontinental 2025**: [Link](https://depor.com/futbol-internacional/resto-del-mundo/cruz-azul-vs-flamengo-fecha-horarios-y-canales-de-tv-por-copa-intercontinental-via-directv-dsports-y-fifa-noticia/)
-- **▷ FIFA Plus TV EN VIVO GRATIS - dónde mirar juego Cruz Azul vs. Flamengo online por Copa Intercontinental 2025**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/fifa-plus-tv-en-vivo-gratis-donde-ver-cruz-azul-vs-flamengo-online-por-copa-intercontinental-2025-desde-mexico-y-usa-duelo-de-las-americas-nnda-nnrt-noticia/)
-- **Andrés Gudiño: No hay tiempo para lamentarse en Cruz Azul**: [Link](https://www.espn.com.pe/futbol/mexico/nota/_/id/16066712/cruz-azul-vs-flamengo-copa-intercontinental-andres-gudino)
-
-
-### temblor hoy (N/A, 10/12/2025 07:56 Lima)
-
-- **Sismo remeció Lima y Callao la madrugada de este miércoles 10 de diciembre: ¿Dónde fue el epicentro, según el IGP?**: [Link](https://www.infobae.com/peru/2025/12/10/sismo-remecio-lima-y-callao-la-madrugada-de-este-miercoles-10-de-diciembre-donde-fue-el-epicentro-segun-el-igp/)
-- **Un sismo de magnitud 3.6 remeció Lima y Callao esta madrugada**: [Link](https://rpp.pe/lima/actualidad/sismo-de-magnitud-36-remecio-lima-y-callao-esta-madrugada-noticia-1667230)
-- **Dos sismos de magnitud 3.6 se registran en Callao y Puerto Bermúdez en menos de 24 horas**: [Link](https://caretas.pe/nacional/dos-sismos-de-magnitud-3-6-se-registran-en-callao-y-puerto-bermudez-en-menos-de-24-horas/)
-
-
-### alerta roja (N/A, 10/12/2025 07:56 Lima)
-
-- **Senamhi activa alerta roja en 19 regiones del país: Advierten temperaturas extremas cercanas a los 40 grados**: [Link](https://www.infobae.com/peru/2025/12/09/senamhi-activa-alerta-roja-en-19-regiones-del-pais-advierten-temperaturas-extremas-cercanas-a-los-40-grados/)
-- **Senamhi alerta incremento de temperaturas y prevé hasta 30 °C a fin de mes en Lima Metropolitana**: [Link](https://larepublica.pe/sociedad/2025/12/02/senamhi-alerta-incremento-de-temperaturas-y-preve-hasta-30-c-a-fin-de-mes-en-lima-metropolitana-ntpe-116530)
-- **¡Llegaremos a los 40 grados! SENAMHI declara Alerta Roja por ola de calor extremo**: [Link](https://www.atv.pe/noticia/llegaremos-a-los-40-grados-senamhi-declara-alerta-roja-por-ola-de-calor-extremo/)
-
-
-### qarabag vs (N/A, 10/12/2025 07:56 Lima)
-
-- **Ajax busca salir del fondo de la Champions y visita a Qarabag**: [Link](https://www.espn.com.pe/futbol/champions-league/nota/_/id/16064553/qarabag-vs-ajax-fase-liga-champions-league-equipo-fecha-hora-y-tv-en-vivo)
-- **Champions League: Por la fecha 6 se enfrentarán Qarabag y Ajax**: [Link](https://rpp.pe/futbol/ligas-internacionales/champions-league-por-la-fecha-6-se-enfrentaran-qarabag-y-ajax-noticia-1667134)
 
 
