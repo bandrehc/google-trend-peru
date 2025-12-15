@@ -1,3 +1,66 @@
+### tilsa lozano (N/A, 14/12/2025 23:45 Lima)
+
+- **Tilsa Lozano en 'El valor de la verdad': por qué decidió sentarse otra vez en el sillón rojo**: [Link](https://rpp.pe/famosos/farandula/tilsa-lozano-en-el-valor-de-la-verdad-por-que-decidio-sentarse-otra-vez-en-el-sillon-rojo-noticia-1667889)
+- **Tilsa Lozano en ‘El valor de la verdad’: sigue EN VIVO la segunda parte de su presentación**: [Link](https://elcomercio.pe/respuestas/farandula/tilsa-lozano-en-el-valor-de-la-verdad-en-vivo-a-que-hora-y-donde-ver-la-segunda-parte-de-sus-revelaciones-lbposting-noticia/)
+- **Tuvo romance con Yaco y se arrepiente de su relación con el 'Loco' Vargas: Las revelaciones de Tilsa Lozano**: [Link](https://peru21.pe/espectaculos/su-romance-con-yaco-y-se-arrepiente-de-estar-con-el-loco-vargas-tilsa-lozano/)
+
+
+### rob reiner (N/A, 14/12/2025 23:45 Lima)
+
+- **Rob Reiner, Wife Michele Found Dead in Their L.A. Home with Knife Wounds**: [Link](https://www.tmz.com/2025/12/14/rob-reiner-wife-michele-found-dead-los-angeles-home/)
+- **2 found dead at Brentwood mansion that belongs to director Rob Reiner**: [Link](https://www.nbclosangeles.com/investigations/2-found-dead-at-brentwood-mansion-owned-by-director-rob-reiner/3815886/)
+- **Legendary director Rob Reiner, wife found stabbed to death in LA home, son eyed as person of interest**: [Link](https://nypost.com/2025/12/14/us-news/2-dead-at-rob-reiners-la-home-lapds-robbery-homicide-division-respond/)
+
+
+### it (N/A, 14/12/2025 23:45 Lima)
+
+- **Burning of the Black Spot: How It: Welcome to Derry adapted the traumatic book moment — death scene and all**: [Link](https://ew.com/black-spot-burning-explained-it-welcome-to-derry-adaptation-episode-7-11863005)
+- **Welcome To Derry’s Mid-Credits Scene: Is Real Mrs. Ingrid Kersh Dead?**: [Link](https://dmtalkies.com/welcome-to-derry-season-1-mid-credits-scene-2025/)
+- **‘IT: Welcome to Derry’s Showrunner Breaks Down the Shocking Finale and How That Marge Reveal Plays Into the Mythology**: [Link](https://collider.com/it-welcome-to-derry-finale-explained-marge-richie-tozier-connection-showrunner-jason-fuchs/)
+
+
+### h3n2 que es (N/A, 14/12/2025 23:45 Lima)
+
+- **H3N2, la gripe que pone a prueba a los sistemas de salud, llegó a México: cuáles son los síntomas y cómo prevenir**: [Link](https://www.infobae.com/salud/2025/12/14/h3n2-la-gripe-que-pone-a-prueba-a-los-sistemas-de-salud-llego-a-mexico-cuales-son-los-sintomas-y-como-prevenir/)
+- **¿Qué es la "supergripe", el virus que ya tiene su primer caso en México?**: [Link](https://cnnespanol.cnn.com/2025/12/14/salud/video/supergripe-h4n2-mexico-primer-caso-mirador-mundial-tv)
+- **Nota informativa - Influenza A(H3N2) subclado K (J.2.4.1), consideraciones para la Región de las Américas - 11 de diciembre del 2025 - OPS/OMS | Organización Panamericana de la Salud**: [Link](https://www.paho.org/es/documentos/nota-informativa-influenza-ah3n2-subclado-k-j241-consideraciones-para-region-americas-11)
+
+
+### alfredo barnechea (N/A, 14/12/2025 23:45 Lima)
+
+- **Acción Popular queda fuera de las Elecciones 2026 tras anularse sus primarias: claves de la decisión del JNE**: [Link](https://www.infobae.com/peru/2025/12/13/accion-popular-queda-fuera-de-las-elecciones-2026-tras-anularse-sus-primarias-claves-de-la-decision-del-jne/)
+- **El JNE anula las internas de Acción Popular y lo deja fuera de las elecciones: ¿qué implica la decisión y qué pasará con el partido?**: [Link](https://elcomercio.pe/politica/el-jne-anula-las-elecciones-internas-de-accion-popular-y-lo-deja-fuera-de-carrera-que-implica-la-decision-y-que-pasara-con-el-partido-noticia/)
+- **Alfredo Barnechea: Es una decisión completamente ilegal, apelaremos**: [Link](https://canaln.pe/actualidad/alfredo-barnechea-decision-completamente-ilegal-n488924)
+
+
+### viaducto javier prado (N/A, 14/12/2025 23:45 Lima)
+
+- **Mariana Alegre: No a los viaductos**: [Link](https://peru21.pe/opinion/mariana-alegre-no-los-viaductos/)
+- **Proyectos de viaductos en Javier Prado provocan batalla vecinal**: [Link](https://www.americatv.com.pe/noticias/actualidad/proyectos-viaductos-javier-prado-provocan-batalla-vecinal-n513913)
+- **Dos viaductos en Av. Canadá para reducir el tráfico: detalles, opinión de vecinos y análisis de la obra de la MML**: [Link](https://elcomercio.pe/lima/mml-anuncia-proyecto-de-dos-viaductos-en-la-av-canada-para-reducir-tiempos-de-viaje-detalles-de-la-obra-opinion-de-vecinos-y-analisis-noticia/)
+
+
+### trail blazers - warriors (N/A, 14/12/2025 23:45 Lima)
+
+- **Stephen Curry, Warriors out to rebound vs. slumping Blazers**: [Link](https://www.thesportsleader.com/2025/12/13/stephen-curry-warriors-out-to-rebound-vs-slumping-blazers-2/)
+- **BetMGM Bonus Code WSNSPORTS: Get $1,500 Back in Bonus Bets for Warriors vs Trail Blazers**: [Link](https://www.wsn.com/nba/betmgm-bonus-code-warriors-vs-trail-blazers-12-14-2025/)
+- **Portland Trail Blazers vs Golden State Warriors (12-14-2025) game preview: When and where to watch, expec**: [Link](https://timesofindia.indiatimes.com/sports/nba/top-stories/portland-trail-blazers-vs-golden-state-warriors-12-14-2025-game-preview-when-and-where-to-watch-expected-lineup-injury-report-prediction-and-more/articleshow/125968341.cms)
+
+
+### safap (N/A, 14/12/2025 23:45 Lima)
+
+- **Gerardo Ameli dirigirá a Perú en amistoso ante Bolivia: ¿por qué se tomó dicha decisión?**: [Link](https://rpp.pe/futbol/seleccion-peruana/seleccion-peruana-gerardo-ameli-sera-tecnico-de-peru-en-amistoso-ante-bolivia-por-que-se-tomo-dicha-decision-videna-noticia-1667896)
+- **Lista de convocados de la selección peruana: Safap reveló nómina para el amistoso ante Bolivia en Chincha**: [Link](https://larepublica.pe/deportes/2025/12/14/lista-de-convocados-de-la-seleccion-peruana-safap-revelo-nomina-para-el-amistoso-ante-bolivia-en-chincha-461664)
+- **Volvió a jugar tras una lesión y Felipe Chávez es el primer convocado a la Selección Peruana**: [Link](https://bolavip.com/pe/seleccion-peruana/volvio-a-jugar-tras-una-lesion-y-felipe-chavez-es-el-primer-convocado-a-la-seleccion-peruana)
+
+
+### depor (N/A, 14/12/2025 23:45 Lima)
+
+- **Alan Cantero, cerca de Universitario para el 2026**: [Link](https://www.espn.com.pe/futbol/peru/nota/_/id/16076795/alan-cantero-cerca-pasar-alianza-lima-a-universitario-2026)
+- **Alan Cantero responde sobre interés de Universitario: “Llamaron a mi...” [VIDEO]**: [Link](https://trome.com/deportes/futbol-peruano/alianza-lima-alan-cantero-responde-sobre-interes-de-universitario-de-deportes-video-llamaron-a-mi-representante-fichajes-2025-noticia/)
+- **Universitario interesado en figura actual de Alianza Lima: "Lo observan y es del agrado"**: [Link](https://larepublica.pe/deportes/2025/12/09/universitario-de-deportes-interesado-en-figura-actual-de-alianza-lima-lo-observan-y-es-del-agrado-599157)
+
+
 ### tabla de posiciones liga 1 (N/A, 14/12/2025 21:07 Lima)
 
 - **Universitario vs Circolo EN VIVO HOY: punto a punto del duelo por la fecha 8 de la Liga Peruana de Vóley 2025/2026**: [Link](https://www.infobae.com/peru/deportes/2025/12/14/universitario-vs-circolo-en-vivo-hoy-latina-tv-fecha-8-primera-fase-liga-peruana-de-voley-2025-2026-resumen-resultado/)
@@ -968,66 +1031,5 @@ Sin noticias relacionadas disponibles.
 - **Vasco 2 X 1 Fluminense - Copa do Brasil 2025**: [Link](https://www.uol.com.br/esporte/videos/gols/2025/12/11/vasco-2-x-1-fluminense---copa-do-brasil-2025.htm)
 - **Aos 16 min do 1º tempo - cartão amarelo de Léo Jardim do Vasco contra o Fluminense**: [Link](https://ge.globo.com/futebol/video/aos-16-min-do-1o-tempo-cartao-amarelo-de-leo-jardim-do-vasco-contra-o-fluminense-14174080.ghtml)
 - **Atacante do Fluminense sente dores e é substituído em semifinal contra o Vasco**: [Link](https://www.itatiaia.com.br/esportes/futebol/futebol-nacional/futebol-carioca/fluminense/atacante-do-fluminense-sente-dores-e-e-substituido-em-semifinal-contra-o-vasco)
-
-
-### vasco da gama - fluminense (N/A, 11/12/2025 21:03 Lima)
-
-- **Jueves: semifinal Vasco vs Fluminense, lo más destacado de la Europa League**: [Link](https://www.elpueblo.pe/deportes/jueves-semifinal-vasco-vs-fluminense-lo-mas-destacado-de-la-europa-league/160638/)
-- **Jueves: semifinal Vasco vs Fluminense, lo más destacado de la Europa League**: [Link](https://www.elpueblo.pe/deportes/jueves-semifinal-vasco-vs-fluminense-lo-mas-destacado-de-la-europa-league/160638/)
-- **Vasco 2 X 1 Fluminense - Copa do Brasil 2025**: [Link](https://www.uol.com.br/esporte/videos/gols/2025/12/11/vasco-2-x-1-fluminense---copa-do-brasil-2025.htm)
-
-
-### freiburg vs (N/A, 11/12/2025 21:03 Lima)
-
-- **FC Salzburg ohne Punkte und Letsch beim SC Freiburg! Rot Ratkov!**: [Link](https://www.ligaportal.at/international/europa-league/86565-fc-salzburg-ohne-punkte-und-letsch-beim-sc-freiburg-rot-ratkov)
-- **Urgestein singt bemerkenswerte Lobeshymne**: [Link](https://www.sport1.de/tv-video/video/urgestein-singt-bemerkenswerte-lobeshymne__18647B77-B022-4283-8384-D92B6EAE1D7B)
-- **Europacup: Round-up - Manzambis Freiburg überzeugt weiter – Roma zerzaust Celtic**: [Link](https://www.srf.ch/sport/fussball/europa-league/europacup-round-up-manzambis-freiburg-ueberzeugt-weiter-roma-zerzaust-celtic)
-
-
-### lech poznań - mainz 05 (N/A, 11/12/2025 21:03 Lima)
-
-- **Lech zremisował z zespołem z Bundesligi i wciąż jest w grze o fazę pucharową!**: [Link](https://www.laczynaspilka.pl/aktualnosci/europejskie-puchary/lech-zremisowal-z-zespolem-z-bundesligi-i-wciaz-jest-w-grze-o-faze)
-- **Ten strzał będzie mu się śnił po nocach! Zawiódł Lecha w takim momencie [OCENY]**: [Link](https://przegladsportowy.onet.pl/pilka-nozna/liga-konferencji-europy/ten-strzal-bedzie-mu-sie-snil-po-nocach-zawiodl-lecha-w-takim-momencie-oceny/mkjg4ky)
-- **Wiadomości Poznań, Informacje Poznań**: [Link](https://gloswielkopolski.pl/mecz-lech-poznan-1fsv-mainz-online-rywal-dostanie-w-trabe-transmisja-i-stream-w-internecie-z-5-kolejki-fazy-ligowej-ligi/rs/c2-7496902449)
-
-
-### fcsb - feyenoord (N/A, 11/12/2025 15:29 Lima)
-
-- **FCSB vs Feyenoord: UEFA Europa League stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c783zeg7pnxt)
-- **FCSB vs Feyenoord LIVE Score Updates in UEFA Europa League Match**: [Link](https://www.vavel.com/en-us/soccer/2025/12/11/1244181-fcsb-vs-feyenoord-live-score-europa-league.html)
-- **Preview: FCSB vs. Feyenoord - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/fcsb/europa-league/preview/fcsb-vs-feyenoord-prediction-team-news-lineups_587458.html)
-
-
-### latina noticias (N/A, 11/12/2025 15:29 Lima)
-
-- **jueves 11 de diciembre**: [Link](https://latinanoticias.pe/noticias/latina-noticias-edicion-mediodia-encuesta-de-hoy-miercoles-10-de-diciembre_20251210/)
-- **Nueva información sobre el futuro de Hernán Barcos en Alianza Lima: "Va a..."**: [Link](https://libero.pe/futbol-peruano/alianza-lima/2025/12/09/nueva-informacion-futuro-de-hernan-barcos-en-alianza-lima-va-151884)
-- **¿Qué ocurrirá en Alianza Lima? titular del Fondo Blanquiazul Jorge Zúñiga se pronuncia**: [Link](https://www.cronicaviva.com.pe/presidente-del-fondo-blanquiazul-se-pronuncia-sobre-lo-que-puede-ocurrir-en-alianza-lima/)
-
-
-### real madrid - baskonia (N/A, 11/12/2025 15:29 Lima)
-
-- **Real Madrid-Baskonia: Whites return to Movistar Arena**: [Link](https://www.realmadrid.com/ar-AE/news/basket/first-team/fixtures/real-madrid-baskonia-11-12-2025)
-- **Sergio Scariolo ahead of Baskonia: We have to take full advantage of that**: [Link](https://basketballsphere.com/en/sergio-scariolo-ahead-of-baskonia-we-have-to-take-full-advantage-of-that/)
-- **Real Madrid vs Baskonia prediction – Odds & stats – 11 December 2025**: [Link](https://www.wincomparator.com/predictions/real-madrid-baskonia-vitoria-gasteiz-7734659/)
-
-
-### brann - fenerbahçe (N/A, 11/12/2025 15:29 Lima)
-
-Sin noticias relacionadas disponibles.
-
-
-### latina en vivo (N/A, 11/12/2025 15:29 Lima)
-
-- **Alianza Lima y los resultados que necesita en la fecha final para clasificar a semifinales del Mundial de Clubes 2025**: [Link](https://www.infobae.com/peru/deportes/2025/12/10/alianza-lima-mantiene-vivo-el-sueno-los-resultados-que-necesita-para-clasificar-a-semifinales-del-mundial-de-clubes-2025/)
-- **Hoy, Alianza vs. Savino Del Bene Scandicci: ¿a qué hora juegan y dónde ver EN VIVO fecha 3 del Mundial de Clubes de Vóley?**: [Link](https://rpp.pe/voley/mas-voley/alianza-lima-vs-savino-del-bene-scandicci-en-vivo-a-que-hora-juegan-y-donde-ver-fecha-3-mundial-de-clubes-de-voley-2025-via-latina-voley-en-vivo-noticia-1667306)
-- **Mundial de Clubes: Alianza Lima remonta y gana 3-1 a Zhetysu en duelo de alto voltaje**: [Link](https://elcomercio.pe/videos/deportes/alianza-lima-remonta-y-gana-3-1-a-zhetysu-en-mundial-de-clubes-nnav-latv-video-noticia/)
-
-
-### lyon - go ahead eagles (N/A, 11/12/2025 15:29 Lima)
-
-- **Olympique de Lyon vs Go Ahead Eagles LIVE Score Updates in Europa League Match**: [Link](https://www.vavel.com/en-us/soccer/2025/12/10/1244226-lyon-vs-go-ahead-eagles-live-score-europa-league.html)
-- **Lyon predicted XI v Go Ahead Eagles: Rémy Descamps and Martin Satriano to start**: [Link](https://www.getfootballnewsfrance.com/2025/lyon-predicted-xi-v-go-ahead-eagles-remy-descamps-and-martin-satriano-to-start/)
-- **Lyon vs Go Ahead Eagles: French side aims to maintain Europa League lead as Paulo Fonseca faces Dutch debutants tonight**: [Link](https://www.red94.net/news/38169-lyon-vs-go-ahead-eagles-live-in-europa-league-tonight-french-side-aims-for-cruci/)
 
 
