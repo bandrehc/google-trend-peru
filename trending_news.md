@@ -1,3 +1,71 @@
+### fenerbahce vs (N/A, 15/12/2025 11:38 Lima)
+
+- **Preview: Fenerbahce vs Konyaspor - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/fenerbahce/preview/fenerbahce-vs-konyaspor-prediction-team-news-lineups_587755.html)
+- **Fenerbahce look to make up ground in Super Lig race: How to watch and live stream their home tie versus Konyaspor today**: [Link](https://www.goal.com/en-sa/news/how-to-watch-fenerbahce-konyaspor-15122025/blt102720355359dba1)
+
+
+### fenerbahçe - konyaspor (N/A, 15/12/2025 11:38 Lima)
+
+- **Fenerbahçe–Konyaspor maçı: Nene, Semedo ve En-Nesyri neden yok?**: [Link](https://oxu.az/tr/spor/fenerbahce-konyaspor-maci-nene-semedo-ve-en-nesyri-neden-yok)
+- **Fenerbahçe farkı yeniden 3'e indirmek için sahada, ilk 11'ler belli oldu**: [Link](https://www.ntv.com.tr/sporskor/fenerbahce-farki-yeniden-3e-indirmek-icin-sahada-ilk-11-belli-oldu-1703207)
+- **Tedesco, 2 yıldız ismi işaret etti: "Aynı şeyleri bekliyoruz"**: [Link](https://www.ntvspor.net/futbol/tedesco-2-yildiz-ismi-isaret-etti-ayni-seyleri-bekliyoruz-414502)
+
+
+### marruecos (N/A, 15/12/2025 11:38 Lima)
+
+- **Mueren 37 personas en inundaciones repentinas en Marruecos**: [Link](https://www.dw.com/es/mueren-37-personas-en-inundaciones-repentinas-en-marruecos/a-75160005)
+- **Suben a 37 los fallecidos por las lluvias torrenciales en el suroeste de Marruecos**: [Link](https://www.abc.es/sociedad/suben-fallecidos-lluvias-torrenciales-suroeste-marruecos-20251215141940-vi.html)
+- **Imágenes: Fotos | Inundaciones en Safi (Marruecos)**: [Link](https://www.heraldo.es/multimedia/imagenes/internacional/fotos-inundaciones-en-safi-marruecos/)
+
+
+### roma vs como (N/A, 15/12/2025 11:38 Lima)
+
+- **Serie A: Roma se enfrenta ante la visita Como 1907 por la fecha 15**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-roma-se-enfrenta-ante-la-visita-como-1907-por-la-fecha-15-noticia-1667863)
+- **Roma - Como: horario y dónde ver hoy en TV el partido de Serie A**: [Link](https://www.marca.com/futbol/liga-italiana/2025/12/15/roma-horario-ver-hoy-tv-partido-serie.html)
+- **Roma – Como Pronóstico y Apuestas | Serie A 15/12/2025**: [Link](https://www.apuestas-deportivas.es/pronostico/roma-vs-como-pronostico-serie-a-15-12-2025/)
+
+
+### marruecos vs (N/A, 15/12/2025 11:38 Lima)
+
+- **Marruecos vs Emiratos Árabes Unidos EN VIVO: Se amplía la ventaja (2-0)**: [Link](https://www.vavel.com/es/futbol-internacional/2025/12/15/1244484-marruecos-vs-emiratos-arabes-en-vivo-copa-arab.html)
+- **السكتيوي يتطلعون لتخطي الإمارات والوصول إلى نهائي كأس العرب**: [Link](https://tanja24.com/es/2025/12/14/%D8%A7%D9%84%D8%B3%D9%83%D8%AA%D9%8A%D9%88%D9%8A-%D9%8A%D8%AA%D8%B7%D9%84%D8%B9%D9%88%D9%86-%D9%84%D8%AA%D8%AE%D8%B7%D9%8A-%D8%A7%D9%84%D8%A5%D9%85%D8%A7%D8%B1%D8%A7%D8%AA-%D9%88%D8%A7%D9%84%D9%88/)
+- **Portero de Emiratos reconoce la dificultad del duelo ante Marruecos en semis de la Copa Árabe**: [Link](https://es.rue20.com/2025/12/13/portero-de-emiratos-reconoce-la-dificultad-del-duelo-ante-marruecos-en-semis-de-la-copa-arabe/)
+
+
+### spotify (N/A, 15/12/2025 11:38 Lima)
+
+- **Spotify largely back up after outage affects thousands worldwide, Downdetector shows**: [Link](https://www.reuters.com/technology/spotify-down-thousands-us-users-downdetector-shows-2025-12-15/)
+- **Spotify says it is investigating after thousands of users report outages**: [Link](https://www.cbsnews.com/news/is-spotify-down-december-15-downdetector-outage/)
+- **Is Spotify Down for You? Streaming Service Suffering 'Login and Playback Issues'**: [Link](https://www.cnet.com/news-live/is-spotify-down-for-you-streaming-service-suffering-login-and-playback-issues/)
+
+
+### calendario 2026 (N/A, 15/12/2025 11:38 Lima)
+
+- **Cuáles son los feriados, festivos y puentes no laborables 2026 en Colombia**: [Link](https://gestion.pe/mix/respuestas/feriados-festivos-y-puentes-no-laborables-2026-en-colombia-calendario-completo-nnda-nnlt-noticia/)
+- **Calendario 2026 de los feriados, fines de semana largos y días no laborables en Chile**: [Link](https://gestion.pe/mix/respuestas/feriados-fines-de-semana-largos-y-dias-no-laborables-2026-en-chile-calendario-completo-nnda-nnlt-noticia/)
+
+
+### inpe (N/A, 15/12/2025 11:38 Lima)
+
+- **Puno: Dictan detención preliminar de cuatro agentes del INPE investigados por tortura**: [Link](https://diariocorreo.pe/edicion/puno/puno-dictan-detencion-preliminar-de-cuatro-agentes-del-inpe-investigados-por-tortura-noticia/)
+- **Fiscalía detiene a cuatro agentes del INPE investigados por tortura**: [Link](https://www.televisiontarapoto.pe/fiscalia-detiene-a-cuatro-agentes-del-inpe-investigados-por-tortura/)
+- **Detienen a cuatro agentes del INPE acusados de torturar a reo: Fiscalía allana sus viviendas y abre investigación por abusos físicos en Puno**: [Link](https://larepublica.pe/sociedad/2025/12/14/detienen-a-cuatro-agentes-del-inpe-acusados-de-torturar-a-reo-fiscalia-allana-sus-viviendas-y-abre-investigacion-por-abusos-fisicos-en-puno-213248)
+
+
+### sorteo la tinka hoy (N/A, 15/12/2025 11:38 Lima)
+
+- **Resultados de La Tinka del domingo 14 de diciembre: resultados y números del Pozo Millonario**: [Link](https://depor.com/peru/la-tinka-hoy-domingo-14-de-diciembre-en-vivo-resultados-numeros-ganadores-del-ultimo-sorteo-pozo-millonario-boliyapa-resultado-si-o-si-intralot-peru-noticia/)
+- **Resultados de La Tinka: revisa los números ganadores del sorteo del domingo 14 de diciembre**: [Link](https://elcomercio.pe/respuestas/loterias/resultados-de-la-tinka-hoy-14-de-diciembre-en-vivo-ultimo-sorteo-del-domingo-14-numeros-y-jugada-ganadora-cotejar-tinkanet-resultado-si-o-si-boliyapa-intralot-lbposting-noticia/)
+- **La Tinka del miércoles 10 de diciembre: conoce los números ganadores del sorteo**: [Link](https://elcomercio.pe/respuestas/loterias/la-tinka-hoy-miercoles-10-de-diciembre-en-vivo-resultados-del-ultimo-sorteo-numeros-y-jugada-ganadora-pozo-millonario-loteria-resultado-si-o-si-boliyapa-intralot-lbposting-noticia/)
+
+
+### rt (N/A, 15/12/2025 11:38 Lima)
+
+- **RT India deletes X post about PM ‘waiting to meet’ Putin, says it ‘may have been misrepresentation of events’**: [Link](https://www.dawn.com/news/1960880)
+- **Video of Pakistan PM Shehbaz Sharif gatecrashing Putin–Erdogan meet viral: Is it real?**: [Link](https://timesofindia.indiatimes.com/world/europe/video-after-40-minute-wait-pakistan-pm-shehbaz-sharif-gate-crashes-putinerdogan-meet-leaves-within-minutes/articleshow/125935240.cms)
+- **Pak PM interacts with global leaders including Russian Prez Putin in Turkmenistan**: [Link](https://www.theweek.in/wire-updates/international/2025/12/12/fgn56-pak-sharif.html)
+
+
 ### ciro castillo (N/A, 15/12/2025 07:58 Lima)
 
 - **Megaoperativo en el Callao: 27 allanamientos y 7 detenidos por “Los Socios del Callao”, banda criminal presuntamente liderada por Ciro Castillo**: [Link](https://www.infobae.com/peru/2025/12/15/megaoperativo-en-el-callao-27-allanamientos-y-7-detenidos-por-red-criminal-los-socios-del-callao-liderada-por-el-gobernador-ciro-castillo/)
@@ -962,74 +1030,5 @@ Sin noticias relacionadas disponibles.
 - **Jim Eichenhofer:Good win. #Pelicans continue to pile …**: [Link](https://www.hoopshype.com/story/sports/nba/rumors/2025/12/11/jim-eichenhofergood-win-pelicans-continue-to-pile/87727646007/)
 - **Trail Blazers Pelicans Basketball**: [Link](https://www.couriernews.com/sports/trail-blazers-pelicans-basketball/image_5c1dd2ce-38e2-51ad-b235-6ba88d5c6da5.html)
 - **Jordan Poole Highlights vs. Trail Blazers 12/11/25**: [Link](https://www.nba.com/pelicans/videos/jordan-poole-highlights-vs-portland-trail-blazers-12-11-25)
-
-
-### local de votación (N/A, 11/12/2025 23:37 Lima)
-
-- **Elecciones 2026: Este domingo 14 de dicembre vence plazo para elegir local de votación y millones podrían quedar con asignación automática**: [Link](https://www.infobae.com/peru/2025/12/10/elecciones-2026-este-domingo-14-de-dicembre-vence-plazo-para-elegir-local-de-votacion-y-millones-podrian-quedar-con-asignacion-automatica/)
-- **ONPE: más de 38 mil electores en Junín completaron su elección de locales**: [Link](https://diariocorreo.pe/edicion/huancayo/registro-de-locales-de-votacion-en-junin-cierra-este-14-de-diciembre-noticia/)
-- **Informe de ONPE señala que puneños aún no eligen su local de votación**: [Link](https://ladecana.pe/informe-de-onpe-senala-que-punenos-aun-no-eligen-su-local-de-votacion/)
-
-
-### the forest 3 (N/A, 11/12/2025 23:37 Lima)
-
-- **Forest 3 Takes Sons Of The Forest To Space**: [Link](https://currently.att.yahoo.com/att/forest-3-takes-sons-forest-025300744.html)
-- **Forest 3 Confirmed by Endnight as Sons of the Forest Follow-Up With First Trailer Trailer | The Game Awards 2025**: [Link](https://www.ign.com/articles/forest-3-confirmed-by-endnight-as-sons-of-the-forest-follow-up-with-first-trailer-trailer-the-game-awards-2025)
-- **Endnight Debuts Forest 3**: [Link](https://gameinformer.com/the-game-awards-2025/2025/12/11/endnight-debuts-forest-3)
-
-
-### rockets - clippers (N/A, 11/12/2025 23:37 Lima)
-
-- **Clippers vs. Rockets: Prediction, How to Watch (12/11/25)**: [Link](https://globelynews.com/sports/clippers-vs-rockets-prediction-how-to-watch-12-11-25/)
-- **Thompson has near triple double as Rockets beat Clippers**: [Link](https://www.tsn.ca/nba/article/thompson-has-near-triple-double-as-rockets-beat-clippers/)
-- **Clippers Rockets Basketball**: [Link](https://www.couriernews.com/sports/clippers-rockets-basketball/image_295a9b1f-2568-5e1f-8d83-6a545cd508e2.html)
-
-
-### sorteo la tinka resultados (N/A, 11/12/2025 23:37 Lima)
-
-- **La Tinka del miércoles 10 de diciembre: conoce los números ganadores del sorteo**: [Link](https://elcomercio.pe/respuestas/loterias/la-tinka-hoy-miercoles-10-de-diciembre-en-vivo-resultados-del-ultimo-sorteo-numeros-y-jugada-ganadora-pozo-millonario-loteria-resultado-si-o-si-boliyapa-intralot-lbposting-noticia/)
-- **La Tinka en vivo: consulta los resultados del 7 de diciembre y confirma si tu combinación fue premiada**: [Link](https://www.infobae.com/peru/2025/12/11/la-tinka-del-miercoles-10-de-diciembre-de-2025-todos-los-ganadores-del-ultimo-sorteo/)
-- **La Tinka: resultados de sorteo de domingo 7 de diciembre 2025**: [Link](https://larepublica.pe/sociedad/2025/12/07/la-tinka-resultados-de-sorteo-de-domingo-7-de-diciembre-2025-atmp-499176)
-
-
-### southampton (N/A, 11/12/2025 23:37 Lima)
-
-- **Cameron Bragg: Southampton midfielder extends contract until 2027**: [Link](https://www.bbc.co.uk/sport/football/articles/cj9y7mznr8lo)
-- **'It’s been unreal' - Saints activate option to extend midfielder's contract**: [Link](https://www.dailyecho.co.uk/sport/25690501.southampton-fc-trigger-option-extend-braggs-contract/)
-- **Bragg signs contract extension**: [Link](https://www.southamptonfc.com/en/news/article/bragg-signs-contract-extension)
-
-
-### always ready (N/A, 11/12/2025 23:37 Lima)
-
-- **Always Ready vs Guabirá: Resultado EN VIVO, minuto a minuto y goles de la Liga Boliviana**: [Link](https://www.365scores.com/es/news/always-ready-vs-guabira-resultado-vivo-2/)
-- **Ver EN VIVO Bolívar vs. San Antonio Bulo Bulo: dónde seguir por TV y ONLINE**: [Link](https://www.tycsports.com/bolivia/futbol-de-bolivia/bolivar-vs-san-antonio-bulo-bulo-en-vivo-donde-ver-por-tv-y-online-id702977.html)
-- **Always Ready va por la corona del torneo de la Liga: jugará esta noche frente a Guabirá**: [Link](https://onefootball.com/es/noticias/always-ready-va-por-la-corona-del-torneo-de-la-liga-jugara-esta-noche-frente-a-guabira-42081950)
-
-
-### bucks - celtics (N/A, 11/12/2025 21:03 Lima)
-
-- **Bucks vs. Celtics tonight, live updates, injury report**: [Link](https://www.jsonline.com/story/sports/nba/bucks/2025/12/11/milwaukee-bucks-boston-celtics-tonight-live-updates-injury-report/87708017007/)
-- **Milwaukee Bucks Injury Report: Latest update on Giannis Antetokounmpo and others**: [Link](https://thesportstak.com/basketball/nba-24-oct-2022/story/milwaukee-bucks-injury-report-latest-update-on-giannis-antetokounmpo-and-others-3220251-2025-12-12)
-- **BetMGM Bonus Code COVERS: Unlock $1,500 Bonus for Bucks vs. Celtics**: [Link](https://www.covers.com/daily-promos/betmgm-bonus-code-nba-bucks-celtics-12-11-2025)
-
-
-### tigres - toluca (N/A, 11/12/2025 21:03 Lima)
-
-- **Tigres vs Toluca: ¿Cómo están las apuestas para el partido de ida de la final?**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/16072060/tigres-vs-toluca-como-estan-las-apuestas-final-ida)
-- **⚫ TUDN y Canal 5 EN VIVO | Transmisión gratis para ver Tigres UANL vs. Toluca por TV abierta y Online**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/tudn-y-canal-5-en-vivo-gratis-como-ver-partido-tigres-uanl-vs-toluca-por-tv-abierta-y-futbol-online-nnda-nnrt-noticia/)
-- **Liga MX: Mohamed se reencuentra con Gignac y Nahuel en una final**: [Link](https://www.espn.com.pe/futbol/mexico/nota/_/id/16066740/liga-mx-toluca-vs-tigres-antonio-mohamed-final-nahuel-guzman-andre-gignac)
-
-
-### half life 3 (N/A, 11/12/2025 21:03 Lima)
-
-- **After Two Months Of Unprecedented Copium, Half-Life 3 Probably Won't Be Announced In 2025 After All**: [Link](https://www.thegamer.com/half-life-3-2026-announcement/)
-- **Half-Life 3 Title And Release Month Leaked By Resi 9 Leaker**: [Link](https://screenrant.com/half-life-3-title-release-date-leak/)
-
-
-### divinity (N/A, 11/12/2025 21:03 Lima)
-
-- **Yup, That Weird Statue Was Teasing a New Divinity Game | The Game Awards 2025**: [Link](https://www.ign.com/articles/yup-that-weird-statue-was-teasing-a-new-divinity-game-the-game-awards-2025)
-- **Larian reveals Divinity, its 'biggest game ever,' that will be 'even larger than Baldur's Gate 3'**: [Link](https://www.pcgamer.com/games/rpg/larian-reveals-its-divinity-its-biggest-game-ever-even-larger-than-baldurs-gate-3/)
-- **The Maker Of Baldur’s Gate 3 Reveals Its Next RPG And This One’s ‘Even Larger’**: [Link](https://kotaku.com/divinity-original-sin-3-rpg-trailer-larian-bg4-game-awards-2000652714)
 
 
