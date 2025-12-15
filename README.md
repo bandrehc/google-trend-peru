@@ -1,3 +1,73 @@
+### manchester united vs (N/A, 15/12/2025 15:30 Lima)
+
+- **Manchester United recibe a Bournemouth por la Premier League**: [Link](https://www.espn.com.pe/futbol/inglaterra/nota/_/id/16076396/manchester-united-vs-bournemouth-premier-league-equipo-fecha-hora-y-tv-en-vivo)
+- **Pronóstico Manchester United - Bournemouth. Premier League | 15/12/2025**: [Link](https://gainblers.com/pe/pronosticos/futbol/inglaterra/premier-league/pronostico-manchester-united-bournemouth-15-12-2025/)
+- **Premier League: Manchester United y Bournemouth se miden por la fecha 16**: [Link](https://rpp.pe/futbol/ligas-internacionales/premier-league-manchester-united-y-bournemouth-se-miden-por-la-fecha-16-noticia-1667864)
+
+
+### manchester united vs. bournemouth (N/A, 15/12/2025 15:30 Lima)
+
+- **'Not good enough' - Amorim admits he and Man Utd are 'underachieving'**: [Link](https://www.bbc.com/sport/football/articles/c5yq2qydly7o)
+- **FOOTBALL DAILY | Amorim feeling the Manchester heat, Pep's London City-slickers, Rodgers off to Saudi and Bohs launch their Kneecap jersey**: [Link](https://www.offtheball.com/podcasts/otb-football/football-daily-amorim-feeling-the-manchester-heat-peps-london-city-slickers-rodgers-off-to-saudi-and-bohs-launch-their-kneecap-jersey)
+- **Amorim responds to Scholes’ claim that he isn’t ‘the right man’ for Man Utd and Mainoo dig**: [Link](https://www.football365.com/news/man-utd-amorim-responds-scholes-not-right-man-mainoo-dig)
+
+
+### roma (N/A, 15/12/2025 15:30 Lima)
+
+- **Roma-Como LIVE**: [Link](https://sport.sky.it/calcio/serie-a/partite/2025/giornata-15/roma-como/risultato-gol)
+- **Tutte le news sul calcio in Diretta**: [Link](https://www.diretta.it/news/calcio-live-news-a-breve-in-campo-roma-como-dal-primo-ferguson-e-baturina/vNV8A0Sb/)
+- **Fabregas: 'Gasperini una leggenda. Questo è un test per me e per la società'**: [Link](https://www.virgilio.it/italia/roma/notizielocali/fabregas_gasperini_una_leggenda_questo_un_test_per_me_e_per_la_societ_-76172707.html)
+
+
+### rangers vs (N/A, 15/12/2025 15:30 Lima)
+
+- **Hibs team news vs Rangers as Elie Youan makes rare start**: [Link](https://www.hibsobserver.co.uk/news/25699992.hibs-team-news-elie-youan-returns-rangers/)
+- **Team News: Rohl Names Side To Face Hibernian**: [Link](https://www.rangers.co.uk/article/team-news-rohl-names-side-to-face-hibernian/qL1k6ndFdJ9AWVB0Cu4L6)
+- **Rangers at Ibrox not daunting for Hibs team harnessing 'Aussie digger spirit'**: [Link](https://www.edinburghnews.scotsman.com/sport/football/hibs/hibs-rangers-ibrox-aussie-digger-spirit-5440986)
+
+
+### roma vs (N/A, 15/12/2025 15:30 Lima)
+
+- **Probable Formation: Roma vs Como**: [Link](https://www.chiesaditotti.com/roma-matchday-coverage/38718/probable-formation-roma-vs-como)
+- **Roma lose El Aynaoui appeal over AFCON, Ndicka and Diao get permission**: [Link](https://sports.yahoo.com/articles/roma-lose-el-aynaoui-appeal-163000448.html)
+- **Fabregas on new Como role for Nico Paz and joke ‘we could just defend’**: [Link](https://www.yardbarker.com/soccer/articles/fabregas_on_new_como_role_for_nico_paz_and_joke_we_could_just_defend/s1_17344_43208803)
+
+
+### maccabi tel aviv (N/A, 15/12/2025 15:30 Lima)
+
+- **Maccabi held to 2-2 draw by Petah Tikva**: [Link](https://www.maccabi-tlv.co.il/en/2025/12/maccabi-held-to-2-2-draw-by-petah-tikva/)
+- **Match Preview: Maccabi Tel Aviv vs Hapoel Petah Tikva: 15/12/2025 – Ligat HaAl**: [Link](https://dailystar.com.lb/match-preview-maccabi-tel-aviv-vs-hapoel-petah-tikva-15-12-2025/)
+- **Peretz: “There is no option to give up at any stage”**: [Link](https://www.maccabi-tlv.co.il/en/2025/12/peretz-there-is-no-option-to-give-up-at-any-stage/)
+
+
+### manchester united - bournemouth (N/A, 15/12/2025 15:30 Lima)
+
+- **Manchester United’s Amad, Bryan Mbeumo available for Bournemouth game before AFCON - The Athletic**: [Link](https://www.nytimes.com/athletic/6875057/2025/12/15/amad-mbeumo-afcon-manchester-united-deadline/)
+- **Team news: United v Bournemouth**: [Link](https://www.manutd.com/en/news/detail/ruben-amorim-gives-team-news-update-for-bournemouth-game-15-december)
+- **'The formation is not the most important thing': Ruben Amorim ahead of Bournemouth clash**: [Link](https://tribuna.com/en/news/2025-12-15-the-formation-is-not-the-most-important-thing-ruben-amorim-ahead-of-bournemouth-clash/)
+
+
+### rayo vallecano - real betis (N/A, 15/12/2025 15:30 Lima)
+
+- **LaLiga EA Sports: Rayo Vallecano y Betis se encuentran en la fecha 16**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-rayo-vallecano-y-betis-se-encuentran-en-la-fecha-16-noticia-1667865)
+- **Pronóstico Rayo Vallecano - Betis. LaLiga | 15/12/2025**: [Link](https://gainblers.com/pe/pronosticos/futbol/espana/liga-primera-division/pronostico-rayo-vallecano-betis-15-12-2025/)
+- **Rayo Vallecano vs. Real Betis prediction, odds, La Liga picks [12/15/2025]**: [Link](https://www.dimers.com/news/rayo-vallecano-vs-real-betis-prediction-la-liga-monday-12-15-2025-ac)
+
+
+### braga (N/A, 15/12/2025 15:30 Lima)
+
+- **Siga o SC Braga vs Santa Clara em direto**: [Link](https://www.abola.pt/futebol/jogo/sc-braga-santa-clara-8047355/liveblog)
+- **Juvenis: confira os resultados da jornada 15 e as classificações**: [Link](https://sapo.pt/artigo/juvenis-confira-os-resultados-da-jornada-15-e-as-classificacoes-693ee69cbc04939e44e18542)
+- **Carlos Vicens: "O importante é ganhar e centrar-nos em nós"**: [Link](https://scbraga.pt/carlos-vicens-o-importante-e-ganhar-e-centrar-nos-em-nos/)
+
+
+### liga portugal (N/A, 15/12/2025 15:30 Lima)
+
+- **João Nuno: “Ainda ninguém venceu o FC Porto, podemos ser os primeiros”**: [Link](https://onefootball.com/en/news/joao-nuno-ainda-ninguem-venceu-o-fc-porto-podemos-ser-os-primeiros-42099878)
+- **“O Estrela bate-se bem e vem com algum oxigénio”: Chaínho e um aviso para o FC Porto**: [Link](https://rr.pt/bola-branca/noticia/porto/2025/12/15/o-estrela-bate-se-bem-e-vem-com-algum-oxigenio-chainho-e-um-aviso-para-o-fc-porto/451700/)
+- **"Rodrigo Mora e Samu são uma dupla quase perfeita"**: [Link](https://sicnoticias.pt/especiais/primeira-liga/2025-12-15-video-rodrigo-mora-e-samu-sao-uma-dupla-quase-perfeita-9f102b9b)
+
+
 ### fenerbahce vs (N/A, 15/12/2025 11:38 Lima)
 
 - **Preview: Fenerbahce vs Konyaspor - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/fenerbahce/preview/fenerbahce-vs-konyaspor-prediction-team-news-lineups_587755.html)
@@ -960,75 +1030,5 @@ Sin noticias relacionadas disponibles.
 - **Fonavi: Lista 22 ya confirmó fecha de pago oficial en el Banco de la Nación**: [Link](https://www.infobae.com/peru/2025/12/12/fonavi-lista-22-ya-confirmo-fecha-de-pago-oficial-en-el-banco-de-la-nacion/)
 - **Fonavi lista 22: pagarán a 32.000 fonavistas sin límite de edad desde el jueves 18 de diciembre, los detalles**: [Link](https://larepublica.pe/economia/2025/12/11/fonavi-pagaran-a-32000-fonavistas-sin-limite-de-edad-desde-el-jueves-18-de-diciembre-se-devolveran-s102-millones-hnews-1004949)
 - **Devolución Fonavi, diciembre 2025: ¿qué se sabe sobre los beneficiarios de la Lista 22?**: [Link](https://www.expreso.com.pe/economia/devolucion-fonavi-diciembre-2025-que-se-sabe-sobre-los-beneficiarios-de-la-lista-22-comision-ad-hoc-fenaf-noticia/1246413/)
-
-
-### cotizacion del dolar hoy (N/A, 12/12/2025 11:32 Lima)
-
-- **Precio del dólar baja: Así abre el tipo de cambio hoy 12 de diciembre en Perú**: [Link](https://www.infobae.com/peru/2025/12/12/dolar-cotizacion-de-apertura-hoy-12-de-diciembre-en-peru/)
-- **¿Cuál es la cotización del dólar hoy viernes 12 de diciembre del 2025?**: [Link](https://andina.pe/agencia/noticia-cual-es-cotizacion-del-dolar-hoy-viernes-12-diciembre-del-2025-1055375.aspx)
-- **Precio del dólar del jueves 11 de diciembre: a cuánto cerró el tipo de cambio**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-2025-a-cuanto-esta-el-dolar-el-jueves-11-de-diciembre-y-tipo-de-cambio-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
-
-
-### papo rosario (N/A, 12/12/2025 11:32 Lima)
-
-- **Muere Papo Rosario, exintegrante de El Gran Combo**: [Link](https://www.americatv.com.pe/noticias/espectaculos/murio-luis-antonio-papo-rosario-exintegrante-gran-combo-n513853)
-- **La salsa de luto: muere Papo Rosario, histórica voz de El Gran Combo de Puerto Rico, a los 78 años**: [Link](https://andina.pe/agencia/galeria-la-salsa-luto-muere-papo-rosario-historica-voz-de-gran-combo-puerto-rico-a-los-78-anos-28027.aspx)
-- **El Gran Combo de Puerto Rico: Fallece Papo Rosario, exintegrante del grupo, a los 78 años**: [Link](https://elcomercio.pe/luces/musica/el-gran-combo-de-puerto-rico-fallece-papo-rosario-exintegrante-del-grupo-a-los-78-anos-celebs-ultimas-noticia/)
-
-
-### gripe h3n2 peru sintomas (N/A, 12/12/2025 07:54 Lima)
-
-- **Gripe H3N2 en Perú: ¿Qué es, cuáles son los síntomas y cómo diferenciarla?**: [Link](https://www.infobae.com/peru/2025/12/11/gripe-h3n2-en-peru-que-es-cuales-son-los-sintomas-y-como-diferenciarla/)
-- **Influenza A H3N2: Minsa señala riesgo leve a moderado y activa vigilancia epidemiológica por fin de año**: [Link](https://elcomercio.pe/lima/influenza-a-h3n2-minsa-senala-riesgo-leve-a-moderado-y-activa-vigilancia-epidemiologica-por-fin-de-ano-ultimas-noticia/)
-- **Sistema de salud en crisis: Hospitales colapsan mientras gripe H3N2 amenaza con llegar al país**: [Link](https://www.atv.pe/noticia/sistema-de-salud-en-crisis-hospitales-colapsan-mientras-gripe-h3n2-amenaza-con-llegar-al-pais/)
-
-
-### epic store (N/A, 12/12/2025 07:54 Lima)
-
-- **Out of Words creators fueled by ongoing positive fan reaction**: [Link](https://store.epicgames.com/es-MX/news/out-of-words-creators-on-new-trailer-emotional-reaction-to-game-reveal)
-- **Out of Words announced for Nintendo Switch 2**: [Link](https://nintendoeverything.com/out-of-words-announced-for-nintendo-switch-2/)
-- **Out of Words adds Switch 2 version**: [Link](https://www.gematsu.com/2025/12/out-of-words-adds-switch-2-version)
-
-
-### epicgames (N/A, 12/12/2025 07:54 Lima)
-
-- **Epic is letting you grab this critically acclaimed roguelite for free**: [Link](https://www.androidauthority.com/epic-games-store-free-dead-cells-3624566/)
-- **Out of Words creators fueled by ongoing positive fan reaction**: [Link](https://store.epicgames.com/es-MX/news/out-of-words-creators-on-new-trailer-emotional-reaction-to-game-reveal)
-- **Out of Words announced for Nintendo Switch 2**: [Link](https://nintendoeverything.com/out-of-words-announced-for-nintendo-switch-2/)
-
-
-### gripe h3n2 sintomas (N/A, 12/12/2025 03:36 Lima)
-
-- **Gripe H3N2 en Perú: ¿Qué es, cuáles son los síntomas y cómo diferenciarla?**: [Link](https://www.infobae.com/peru/2025/12/11/gripe-h3n2-en-peru-que-es-cuales-son-los-sintomas-y-como-diferenciarla/)
-- **Sistema de salud en crisis: Hospitales colapsan mientras gripe H3N2 amenaza con llegar al país**: [Link](https://www.atv.pe/noticia/sistema-de-salud-en-crisis-hospitales-colapsan-mientras-gripe-h3n2-amenaza-con-llegar-al-pais/)
-- **Europa registra brote adelantado de gripe H3N2 con fuerte impacto en Reino Unido y otros países**: [Link](https://canaln.pe/internacionales/europa-enfrenta-aumento-gripe-h3n2-antes-lo-habitual-n488867)
-
-
-### kings - nuggets (N/A, 11/12/2025 23:37 Lima)
-
-- **Denver Nuggets vs Sacramento Kings Prediction, Pick, Odds -- 12/11**: [Link](https://www.actionnetwork.com/nba/denver-nuggets-vs-sacramento-kings-prediction-pick-odds-thursday-december-11)
-- **BetRivers Bonus Code: Unlock a Second Chance Bet Up to $500 for Nuggets vs. Kings No Matter the Outcome**: [Link](https://www.wsn.com/nba/betrivers-bonus-code-nuggets-vs-kings-12-11-2025/)
-- **Is Domantas Sabonis Playing Tonight? (Injury Update, Betting Impact for Nuggets vs. Kings)**: [Link](https://www.si.com/betting/domantas-sabonis-injury-update-betting-impact-for-nuggets-vs-kings)
-
-
-### arc raiders (N/A, 11/12/2025 23:37 Lima)
-
-- **Arc Raiders' latest mini update fixes a bunch of ratty exploits, including the zipline that set players free in Stella Montis, as Embark announces it's stepping back from weekly fixes**: [Link](https://www.pcgamer.com/games/third-person-shooter/arc-raiders-latest-mini-update-fixes-a-bunch-of-ratty-exploits-including-the-zipline-that-set-players-free-in-stella-montis-as-embark-announces-its-stepping-back-from-weekly-fixes/)
-- **Arc Raiders Shares New Tease for Upcoming Event 'Cold Snap' and It Looks Deadly**: [Link](https://www.ign.com/articles/arc-raiders-shares-new-tease-for-upcoming-event-cold-snap-and-it-looks-deadly)
-- **ARC Raiders patch 1.6.0 attempts to stop players going out of bounds**: [Link](https://www.thesixthaxis.com/2025/12/11/arc-raiders-patch-1-6-0-attempts-to-stop-players-going-out-of-bounds/)
-
-
-### pablo guede (N/A, 11/12/2025 23:37 Lima)
-
-- **Alianza Lima ya tiene nuevo DT para el 2026 tras salida de Néstor Gorosito: llegaría con 2 delanteros**: [Link](https://www.infobae.com/peru/deportes/2025/12/11/alianza-lima-ya-tiene-nuevo-dt-para-el-2026-tras-salida-de-nestor-gorosito-llegaria-con-2-delanteros/)
-- **Llegó a un acuerdo: Pablo Guede será nuevo entrenador de Alianza Lima**: [Link](https://rpp.pe/futbol/descentralizado/alianza-lima-y-pablo-guede-llego-a-un-acuerdo-para-nuevo-tecnico-para-temporada-2026-noticia-1667471)
-- **DT de Cusco FC muestra su postura sobre la salida de Néstor Gorosito de Alianza Lima: "El que pierde parece ser un inútil"**: [Link](https://larepublica.pe/futbol-peruano/2025/12/10/dt-de-cusco-fc-muestra-su-postura-sobre-la-salida-de-nestor-gorosito-de-alianza-lima-el-que-pierde-parece-ser-un-inutil-457950)
-
-
-### pelicans - trail blazers (N/A, 11/12/2025 23:37 Lima)
-
-- **Jim Eichenhofer:Good win. #Pelicans continue to pile …**: [Link](https://www.hoopshype.com/story/sports/nba/rumors/2025/12/11/jim-eichenhofergood-win-pelicans-continue-to-pile/87727646007/)
-- **Trail Blazers Pelicans Basketball**: [Link](https://www.couriernews.com/sports/trail-blazers-pelicans-basketball/image_5c1dd2ce-38e2-51ad-b235-6ba88d5c6da5.html)
-- **Jordan Poole Highlights vs. Trail Blazers 12/11/25**: [Link](https://www.nba.com/pelicans/videos/jordan-poole-highlights-vs-portland-trail-blazers-12-11-25)
 
 
