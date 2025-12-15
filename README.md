@@ -1,3 +1,24 @@
+### ciro castillo (N/A, 15/12/2025 07:58 Lima)
+
+- **Megaoperativo en el Callao: 27 allanamientos y 7 detenidos por “Los Socios del Callao”, banda criminal presuntamente liderada por Ciro Castillo**: [Link](https://www.infobae.com/peru/2025/12/15/megaoperativo-en-el-callao-27-allanamientos-y-7-detenidos-por-red-criminal-los-socios-del-callao-liderada-por-el-gobernador-ciro-castillo/)
+- **Allanan casa del gobernador del Callao Ciro Castillo**: [Link](https://www.americatv.com.pe/noticias/actualidad/allanan-casa-gobernador-callao-ciro-castillo-n513917)
+- **Callao: PNP allana casa de Ciro Castillo por presunta organización criminal ‘Los socios del Callao’**: [Link](https://diariocorreo.pe/politica/callao-pnp-allana-casa-de-ciro-castillo-por-presunta-organizacion-criminal-los-socios-del-callao-noticia/)
+
+
+### nick reiner (N/A, 15/12/2025 07:58 Lima)
+
+- **Medienberichte - US-Regisseur Rob Reiner und seine Frau tot aufgefunden**: [Link](https://www.deutschlandfunk.de/us-regisseur-rob-reiner-und-seine-frau-tot-aufgefunden-112.html)
+- **Nick Reiner: Ein Leben zwischen Abgrund und Erlösung**: [Link](https://www.ilmessaggero.it/de/nick_reiner_ein_leben_zwischen_abgrund_und_erlosung-9246371.html)
+- **Kathy Bates ‚entsetzt‘ über den Tod von Rob Reiner**: [Link](https://www.klatsch-tratsch.de/aktuelles/kathy-bates-entsetzt-ueber-den-tod-von-rob-reiner-2097005/)
+
+
+### local de votación onpe (N/A, 15/12/2025 07:58 Lima)
+
+- **Elecciones 2026: ¿Qué pasa si no elijo mi local de votación hasta este domingo 14 de diciembre?**: [Link](https://www.infobae.com/peru/2025/12/13/elecciones-2026-que-pasa-si-no-elijo-mi-local-de-votacion-hasta-este-domingo-14-de-diciembre/)
+- **ONPE: más de 2 millones de peruanos ya eligieron su local de votación**: [Link](https://rpp.pe/politica/elecciones/onpe-mas-de-2-millones-de-peruanos-ya-eligieron-su-local-de-votacion-noticia-1667783)
+- **Plazo vence HOY, 14 de diciembre: elige tus 3 locales de votación para las Elecciones Generales 2026**: [Link](https://larepublica.pe/elecciones/2025/12/14/plazo-vence-hoy-14-de-diciembre-elige-tus-3-locales-de-votacion-para-las-elecciones-generales-2026-atmp-959938)
+
+
 ### tilsa lozano (N/A, 14/12/2025 23:45 Lima)
 
 - **Tilsa Lozano en 'El valor de la verdad': por qué decidió sentarse otra vez en el sillón rojo**: [Link](https://rpp.pe/famosos/farandula/tilsa-lozano-en-el-valor-de-la-verdad-por-que-decidio-sentarse-otra-vez-en-el-sillon-rojo-noticia-1667889)
@@ -1010,26 +1031,5 @@ Sin noticias relacionadas disponibles.
 - **Yup, That Weird Statue Was Teasing a New Divinity Game | The Game Awards 2025**: [Link](https://www.ign.com/articles/yup-that-weird-statue-was-teasing-a-new-divinity-game-the-game-awards-2025)
 - **Larian reveals Divinity, its 'biggest game ever,' that will be 'even larger than Baldur's Gate 3'**: [Link](https://www.pcgamer.com/games/rpg/larian-reveals-its-divinity-its-biggest-game-ever-even-larger-than-baldurs-gate-3/)
 - **The Maker Of Baldur’s Gate 3 Reveals Its Next RPG And This One’s ‘Even Larger’**: [Link](https://kotaku.com/divinity-original-sin-3-rpg-trailer-larian-bg4-game-awards-2000652714)
-
-
-### luis ramos (N/A, 11/12/2025 21:03 Lima)
-
-- **Luis Ramos dice adiós a América de Cali después de establecerse como su goleador en Liga BetPlay 2025**: [Link](https://www.infobae.com/peru/deportes/2025/12/11/luis-ramos-dice-adios-a-america-de-cali-despues-de-establecerse-como-su-goleador-en-liga-betplay-2025/)
-- **América: Luis Ramos finalizó contrato y es jugador libre**: [Link](https://www.espn.com.ar/futbol/colombia/nota/_/id/16073214/luis-ramos-rescindio-contrato-america-de-cali-es-jugador-libre)
-- **Luis Ramos será el reemplazante de Hernán Barcos en Alianza Lima: acuerdo de palabra por el delantero**: [Link](https://depor.com/futbol-peruano/peruanos-en-el-mundo/luis-ramos-despedida-oficial-de-america-de-cali-ofertas-en-la-mesa-de-alianza-lima-para-reemplazar-a-hernan-barcos-video-noticia/)
-
-
-### jairo velez (N/A, 11/12/2025 21:03 Lima)
-
-- **Alianza Lima oficializa la incorporación de Jairo Vélez para disputar la Liga 1 y la Copa Libertadores 2026: “A darlo todo por esta camiseta”**: [Link](https://www.infobae.com/peru/deportes/2025/12/11/alianza-lima-oficializa-la-incorporacion-de-jairo-velez-para-disputar-la-liga-1-y-la-copa-libertadores-2026-a-darlo-todo-por-esta-camiseta/)
-- **Es oficial: Alianza Lima anunció a Jairo Vélez, ex Universitario, como nuevo refuerzo**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/alianza-lima-anuncio-a-jairo-velez-ex-universitario-como-nuevo-refuerzo-temporada-2026-liga-1-noticia/)
-- **Oficial: Jairo Vélez es el primer refuerzo de Alianza Lima para el 2026**: [Link](https://depor.com/futbol-peruano/descentralizado/alianza-lima-jairo-velez-fue-presentado-como-nuevo-jugador-blanquiazul-directamente-desde-universitario-detalles-del-contrato-fichajes-noticia/)
-
-
-### fluminense (N/A, 11/12/2025 21:03 Lima)
-
-- **Vasco 2 X 1 Fluminense - Copa do Brasil 2025**: [Link](https://www.uol.com.br/esporte/videos/gols/2025/12/11/vasco-2-x-1-fluminense---copa-do-brasil-2025.htm)
-- **Aos 16 min do 1º tempo - cartão amarelo de Léo Jardim do Vasco contra o Fluminense**: [Link](https://ge.globo.com/futebol/video/aos-16-min-do-1o-tempo-cartao-amarelo-de-leo-jardim-do-vasco-contra-o-fluminense-14174080.ghtml)
-- **Atacante do Fluminense sente dores e é substituído em semifinal contra o Vasco**: [Link](https://www.itatiaia.com.br/esportes/futebol/futebol-nacional/futebol-carioca/fluminense/atacante-do-fluminense-sente-dores-e-e-substituido-em-semifinal-contra-o-vasco)
 
 
