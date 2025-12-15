@@ -1,3 +1,73 @@
+### tabla de posiciones liga 1 (N/A, 14/12/2025 21:07 Lima)
+
+- **Universitario vs Circolo EN VIVO HOY: punto a punto del duelo por la fecha 8 de la Liga Peruana de Vóley 2025/2026**: [Link](https://www.infobae.com/peru/deportes/2025/12/14/universitario-vs-circolo-en-vivo-hoy-latina-tv-fecha-8-primera-fase-liga-peruana-de-voley-2025-2026-resumen-resultado/)
+- **Con el Alianza Lima vs Universitario: conoce la programación de la fecha 9 de la Liga Peruana de Vóley 2025-2026**: [Link](https://rpp.pe/voley/mas-voley/liga-peruana-de-voley-2025-2026-programacion-de-la-fecha-9-fixture-fecha-y-horario-de-los-partidos-alianza-lima-vs-universitario-san-martin-regatas-lpv-noticia-1667871)
+- **Partidos Liga Peruana de Vóley: programación y tabla de posiciones con la fecha 8**: [Link](https://libero.pe/deportes/voley/2025/12/12/partidos-liga-peruana-de-voley-tabla-de-posiciones-programacion-donde-ver-transmision-fecha-8-1164096)
+
+
+### suns - lakers (N/A, 14/12/2025 21:07 Lima)
+
+- **3 Lakers Ruled Out Ahead of Suns Rematch**: [Link](https://www.si.com/nba/lakers/onsi/news/3-lakers-ruled-out-ahead-of-suns-rematch)
+- **Los Angeles Lakers vs Phoenix Suns Dec 14, 2025 Game Summary**: [Link](https://www.nba.com/game/0022501228?utm_source=ko_2umogo4v8g4idzvx9&utm_campaign=nba_onramp&utm_medium=social_partner_widget&utm_term=Lakers&utm_content=0022501228&partnerRef=Lakers&howToWatch=false&cp1=web&cp2=scorestrip&cp3={cp_3}&cp4={cp_4}&referrer=utm_source%3Dko_2umogo4v8g4idzvx9%26utm_campaign%3D{campaign_id}%26utm_medium%3DLakers%26utm_term%3D%7BpartnerRef%7D%26utm_content%3D%7Bgame_id%7D)
+- **Suns-Lakers live updates. Suns look to respond from worst loss ever**: [Link](https://sports.yahoo.com/articles/suns-lakers-live-updates-suns-203113460.html)
+
+
+### copa libertadores 2026 (N/A, 14/12/2025 21:07 Lima)
+
+- **Atención, Alianza Lima y Sporting Cristal: fecha y hora del sorteo de la fase previa de la Copa Libertadores**: [Link](https://depor.com/futbol-peruano/copa-libertadores/alianza-lima-sporting-cristal-copa-libertadores-2026-fecha-hora-y-como-sera-el-sorteo-de-la-fase-preliminar-noticia/)
+- **Los posiles rivales de Alianza Lima en Fase 1 de la Copa Libertadores 2026**: [Link](https://www.futbolperuano.com/copa-libertadores/noticias/alianza-lima-como-peru-4-los-posibles-rivales-que-complican-su-camino-en-la-fase-1-de-la-copa-libertadores-2026-554385)
+- **Alianza Lima: Conmebol anuncia fecha para sorteo a fase previa de Copa Libertadores**: [Link](https://trome.com/deportes/futbol-internacional/alianza-lima-conmebol-anuncia-fecha-de-sorteo-a-fase-previa-a-copa-libertadores-video-sporting-cristal-cusco-fc-noticia/)
+
+
+### aldair fuentes (N/A, 14/12/2025 21:07 Lima)
+
+- **Fuentes: “La temporada no iba a valer de nada si no ganábamos este partido”**: [Link](https://ovacion.pe/noticias/cusco-fc/fuentes-temporada-no-iba-valer-nada-si-no-ganabamos-este-partido)
+- **Aldair Fuentes, figura de Cusco FC, sorprende con firme calificativo a Cristal: "Es un..."**: [Link](https://libero.pe/futbol-peruano/liga-1/2025/12/14/aldair-fuentes-figura-de-cusco-fc-sorprende-firme-calificativo-sporting-cristal-es-1051512)
+- **Iván Colman cuestiona el formato de ‘play-offs’ de la Liga 1 2025: “Lo justo sería que Cusco FC vaya Fase de Grupos de Copa Libertadores”**: [Link](https://www.infobae.com/peru/deportes/2025/12/10/ivan-colman-cuestiona-el-formato-de-play-offs-de-la-liga-1-2025-lo-justo-seria-que-cusco-fc-vaya-fase-de-grupos-de-copa-libertadores/)
+
+
+### van der sloot (N/A, 14/12/2025 21:07 Lima)
+
+- **🔴🔵 ¡Lo último! A través de un breve comunicado, el Instituto Nacional Penitenciario confirmó que Joran Van der Sloot intentó quitarse la vida al interior de su celda en el penal de Challapalca durante la mañana de este sábado 13 de diciembre. 🌐Más informa**: [Link](https://www.facebook.com/Exitosanoticias/posts/-lo-%C3%BAltimo-a-trav%C3%A9s-de-un-breve-comunicado-el-instituto-nacional-penitenciario-c/1299379725558416/)
+- **Feminicida Joran van der Sloot mandó mensaje a los padres de Stephany Flores: lo que dijo tras años de silencio**: [Link](https://larepublica.pe/sociedad/2025/12/14/feminicida-joran-van-der-sloot-mando-mensaje-a-los-padres-de-stephany-flores-lo-que-dijo-tras-anos-de-silencio-1173284)
+- **Joran van der Sloot: Minjusdh detalla estado de salud del neerlandés tras intento de quitarse la vida**: [Link](https://www.infobae.com/peru/2025/12/14/joran-van-der-sloot-minjusdh-detalla-estado-de-salud-del-neerlandes-tras-intento-de-quitarse-la-vida/)
+
+
+### influenza h3n2 (N/A, 14/12/2025 21:07 Lima)
+
+- **Minsa informa sobre la situación de la gripe H3N2 en Perú y recomienda vacunación y medidas preventivas por fiestas de fin de año**: [Link](https://www.infobae.com/peru/2025/12/12/minsa-informa-sobre-la-situacion-de-la-gripe-h3n2-en-peru-y-recomienda-vacunacion-y-medidas-preventivas-por-fiestas-de-fin-de-ano/)
+- **Minsa declara alerta epidemiológica nacional ante posible ingreso de la influenza H3N2 al Perú**: [Link](https://larepublica.pe/sociedad/2025/12/14/minsa-declara-alerta-epidemiologica-nacional-ante-posible-ingreso-de-la-influenza-h3n2-al-peru-944090)
+- **Ciro Maguiña, ex Decano Nacional del Colegio Médico del Perú: “La gente ha bajado la guardia después del COVID”**: [Link](https://diariocorreo.pe/edicion/lima/ciro-maguina-ex-decano-nacional-del-colegio-medico-del-peru-la-gente-ha-bajado-la-guardia-despues-del-covid-noticia/)
+
+
+### toluca - tigres (N/A, 14/12/2025 21:07 Lima)
+
+- **¡EN VIVO! Toluca y Tigres definen al campeón del Apertura de la Liga MX**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/16085102/toluca-vs-tigres-final-campeon-apertura-2025-en-vivo-cuando-juegan-formaciones)
+- **Transmisión EN VIVO del Toluca vs Tigres hoy: cómo mirar el partido por TV o streaming**: [Link](https://www.365scores.com/es/news/toluca-vs-tigres-como-ver-transmision/)
+- **▼ ¿A qué hora es y qué canal transmite Toluca vs. Tigres UANL EN VIVO HOY domingo 14 de diciembre, por final de la Liga MX 2025?**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/a-que-hora-juega-y-que-canal-transmite-toluca-vs-tigres-uanl-en-vivo-hoy-por-gran-final-de-liguilla-mx-2025-en-mexico-y-usa-canales-tv-online-nnda-nnrt-noticia/)
+
+
+### liga1 (N/A, 14/12/2025 21:07 Lima)
+
+- **Por sus goles: Juan Reynoso indicó que el fichaje de Jeriel De Santis a Melgar fue un pedido exclusivo suyo**: [Link](https://rpp.pe/futbol/descentralizado/liga-1-juan-reynoso-indico-que-fichaje-de-jeriel-de-santis-a-melgar-fue-un-pedido-exclusivo-suyo-noticia-1667858)
+- **Vuelve al fútbol peruano: Jeriel De Santis se convirtió en nuevo jugador de Melgar**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/jeriel-de-santis-se-convirtio-en-nuevo-jugador-de-melgar-liga-1-noticia/)
+- **Jeriel De Santis, ex Alianza Lima, remece el mercado y firma por mítico club de Liga 1: "Por un año"**: [Link](https://libero.pe/futbol-peruano/liga-1/2025/12/13/fichajes-2026-jeriel-de-santis-ex-alianza-lima-remece-mercado-firma-mitico-club-de-liga-1-ano-1023035)
+
+
+### fluminense - vasco da gama (N/A, 14/12/2025 21:07 Lima)
+
+- **Jueves: semifinal Vasco vs Fluminense, lo más destacado de la Europa League**: [Link](https://www.elpueblo.pe/deportes/jueves-semifinal-vasco-vs-fluminense-lo-mas-destacado-de-la-europa-league/160638/)
+- **Os destaques da classificação do Vasco, segundo finalista da Copa do Brasil 2025**: [Link](https://www.90min.com/pt-br/destaques-classificacao-vasco-segundo-finalista-copa-do-brasil-2025)
+- **1ºT no Maracanã tem defesaças de Fábio e gol contra bizarro; veja 🎥**: [Link](https://onefootball.com/pt-br/noticias/1t-no-maracana-tem-defesacas-de-fabio-e-gol-contra-bizarro-veja-42097831)
+
+
+### serie a de ecuador (N/A, 14/12/2025 21:07 Lima)
+
+- **Emelec recibe al descendido El Nacional, en el cierre de la Liga Ecuabet**: [Link](https://www.espn.com.ar/futbol/ecuador/nota/_/id/16077342/emelec-vs-el-nacional-fecha-9-hexagonal-dos-torneo-equipo-fecha-hora-y-tv-en-vivo)
+- **Tras el escándalo por el descenso del Bi-Tri: ¿se juega el partido entre Emelec y El Nacional por la LigaPro?**: [Link](https://www.ole.com.ar/ecuador/liga-pro/escandalo-descenso-juega-emelec-nacional-ligapro_0_K9RtDtMCRe.html)
+- **Emelec vs. El Nacional en vivo: cómo llegan al partido**: [Link](https://www.tycsports.com/ecuador/futbol-de-ecuador/ecuador-liga-pro-2025-emelec-vs-el-nacional-fecha-9-id703957.html)
+
+
 ### corinthians - cruzeiro (N/A, 14/12/2025 15:27 Lima)
 
 - **André Ramalho, do Corinthians, projeta jogo complicado contra o Cruzeiro: “Vão tentar reverter”**: [Link](https://br.bolavip.com/campeonato-copa-do-brasil/andre-ramalho-do-corinthians-projeta-jogo-complicado-contra-o-cruzeiro-vao-tentar-reverter)
@@ -959,75 +1029,5 @@ Sin noticias relacionadas disponibles.
 - **Olympique de Lyon vs Go Ahead Eagles LIVE Score Updates in Europa League Match**: [Link](https://www.vavel.com/en-us/soccer/2025/12/10/1244226-lyon-vs-go-ahead-eagles-live-score-europa-league.html)
 - **Lyon predicted XI v Go Ahead Eagles: Rémy Descamps and Martin Satriano to start**: [Link](https://www.getfootballnewsfrance.com/2025/lyon-predicted-xi-v-go-ahead-eagles-remy-descamps-and-martin-satriano-to-start/)
 - **Lyon vs Go Ahead Eagles: French side aims to maintain Europa League lead as Paulo Fonseca faces Dutch debutants tonight**: [Link](https://www.red94.net/news/38169-lyon-vs-go-ahead-eagles-live-in-europa-league-tonight-french-side-aims-for-cruci/)
-
-
-### latina (N/A, 11/12/2025 15:29 Lima)
-
-- **China gana terreno en América Latina ante una política estadounidense basada en la presión**: [Link](https://gestion.pe/mundo/china-gana-terreno-en-america-latina-ante-una-politica-estadounidense-basada-en-la-presion-noticia/)
-- **Alianza Lima y los resultados que necesita en la fecha final para clasificar a semifinales del Mundial de Clubes 2025**: [Link](https://www.infobae.com/peru/deportes/2025/12/10/alianza-lima-mantiene-vivo-el-sueno-los-resultados-que-necesita-para-clasificar-a-semifinales-del-mundial-de-clubes-2025/)
-- **Hoy, Alianza vs. Savino Del Bene Scandicci: ¿a qué hora juegan y dónde ver EN VIVO fecha 3 del Mundial de Clubes de Vóley?**: [Link](https://rpp.pe/voley/mas-voley/alianza-lima-vs-savino-del-bene-scandicci-en-vivo-a-que-hora-juegan-y-donde-ver-fecha-3-mundial-de-clubes-de-voley-2025-via-latina-voley-en-vivo-noticia-1667306)
-
-
-### lyon vs (N/A, 11/12/2025 15:29 Lima)
-
-- **OL - Go Ahead Eagles : les compositions officielles**: [Link](https://www.footmercato.net/a2323482068389418699-ol-go-ahead-eagles-les-compositions-officielles)
-- **"C’est fantastique" : les Go Ahead Eagles vont "savourer le match" contre l’OL**: [Link](https://www.lyonfoot.com/article/11622/c-est-fantastique-les-go-ahead-eagles-vont-savourer-le-match-contre-l-ol)
-- **Lyon – Go Ahead Eagles : à quelle heure et sur quelle chaîne suivre la rencontre de l’OL en Ligue Europa**: [Link](https://www.ladepeche.fr/2025/12/11/lyon-go-ahead-eagles-a-quelle-heure-et-sur-quelle-chaine-suivre-la-rencontre-de-lol-en-ligue-europa-13105010.php)
-
-
-### latina tv (N/A, 11/12/2025 15:29 Lima)
-
-- **Yo Soy – Miércoles 10 de diciembre – PROGRAMA COMPLETO**: [Link](https://www.latina.pe/entretenimiento/yo-soy/programas-completos-yo-soy/yo-soy-miercoles-10-de-diciembre-programa-completo_20251210/)
-- **Génesis, Miércoles 10 de diciembre – ver capítulo 6 completo**: [Link](https://www.latina.pe/entretenimiento/genesis-novela/genesis-miercoles-10-de-diciembre-ver-capitulo-6-completo_20251210/)
-- **Moisés y los diez mandamientos, Viernes 05 de diciembre – ver capítulo 134 completo**: [Link](https://www.latina.pe/entretenimiento/moises-y-los-10-mandamientos/moises-y-los-diez-mandamientos-viernes-05-de-diciembre-ver-capitulo-134-completo_20251205/)
-
-
-### midtjylland (N/A, 11/12/2025 15:29 Lima)
-
-- **Europa League: Se enfrentan Midtjylland y KRC Genk por la fecha 6**: [Link](https://rpp.pe/futbol/ligas-internacionales/europa-league-se-enfrentan-midtjylland-y-krc-genk-por-la-fecha-6-noticia-1667249)
-- **Europa League Matchday 6: What to look out for**: [Link](https://www.uefa.com/uefaeuropaleague/news/02a0-1f572df78383-8e4c8d7974db-1000--europa-league-matchday-6-what-to-look-out-for/)
-- **Midtjylland on brink of Europa League knockout rounds after beating Genk**: [Link](https://www.flashscore.com/news/midtjylland-genk-report-2025-12-11/MDFfsUGs/)
-
-
-### dni (N/A, 11/12/2025 11:37 Lima)
-
-- **Esperanto łączy narody | wystawa**: [Link](https://bok.bialystok.pl/wydarzenie/esperanto-laczy-narody-wystawa/)
-- **Przed nami 26. Białostockie Dni Zamenhofa. Będą wystąpienia artystyczne, spotkania i nie tylko**: [Link](https://poranny.pl/przed-nami-26-bialostockie-dni-zamenhofa-beda-wystapienia-artystyczne-spotkania-i-nie-tylko/ar/c13p2-28258629)
-- **Wkrótce ruszają 26. Białostockie Dni Zamenhofa. Zobacz, co przygotowano**: [Link](https://www.bialystokonline.pl/wkrotce-ruszaja-26-bialostockie-dni-zamenhofa-zobacz-co-przygotowano,artykul,147544,2,1.html)
-
-
-### marruecos vs (N/A, 11/12/2025 11:37 Lima)
-
-- **Marruecos vs Siria EN VIVO y EN DIRECTO: Juego apretado (1-0)**: [Link](https://www.vavel.com/es/futbol-internacional/2025/12/11/1244133-marruecos-vs-siria-en-vivo-copa-arabe.html)
-- **Sektioui ajusta los últimos detalles de la selección marroquí rumbo a semis de la Copa Árabe**: [Link](https://es.rue20.com/2025/12/10/sektioui-ajusta-los-ultimos-detalles-de-la-seleccion-marroqui-rumbo-a-semis-de-la-copa-arabe/)
-- **Marruecos y Siria se enfrentan en cuartos de final de la Copa Árabe 2025: horarios y canales para seguir el partido**: [Link](https://www.elperiodicodeceuta.es/marruecos-y-siria-se-enfrentan-en-cuartos-de-final-de-la-copa-arabe-2025-horarios-y-canales-para-seguir-el-partido/)
-
-
-### 67 (N/A, 11/12/2025 11:37 Lima)
-
-- **In-N-Out removes number 67 from order system due to viral 6-7 trend**: [Link](https://abc7.com/post/removes-number-67-order-system-due-viral-6-7-trend/18268599/)
-- **In-N-Out drops 67 from orders due to ‘6-7’ craze**: [Link](https://www.hawaiinewsnow.com/2025/12/10/in-n-out-drops-67-orders-due-6-7-craze/)
-- **In-N-Out stops serving order number 67 because of a nonsensical meme**: [Link](https://www.scrippsnews.com/science-and-tech/social-media/in-n-out-stops-serving-order-number-67-because-of-a-nonsensical-meme)
-
-
-### bcp (N/A, 11/12/2025 07:57 Lima)
-
-- **BCP moderniza Credinet para responder a la nueva demanda digital de las empresas**: [Link](https://www.economy.com.bo/articulo/banca-finanzas/bcp-moderniza-credinet-responder-nueva-demanda-digital-empresas/20251210142036021273.html)
-- **Las Cazadoras de K-Pop suben a escenario del BCP**: [Link](https://www.ultimahora.com/las-cazadoras-de-k-pop-suben-a-escenario-del-bcp)
-- **Musical Las Cazadoras K-Pop tendrá gira al interior del Perú: fechas, ciudades, entradas y más**: [Link](https://www.infobae.com/peru/2025/12/04/musical-las-cazadoras-k-pop-tendra-gira-al-interior-del-peru-fechas-ciudades-y-mas/)
-
-
-### trome (N/A, 11/12/2025 07:57 Lima)
-
-- **Ya me contaron otra de las razones por la que los compañeros le pusieron la cruz al tío que se tapa un ojo**: [Link](https://trome.com/opinion/el-bombardero/pisa-pelota-ya-me-contaron-otra-de-las-razones-por-la-que-los-companeros-le-pusieron-la-cruz-al-tio-que-se-tapa-un-ojo-noticia/)
-- **Jackson Mora responde a Tilsa Lozano con vouchers en mano y le responde acerca de las deudas: “Se agarró la plata”**: [Link](https://www.infobae.com/peru/2025/12/11/jackson-mora-responde-a-tilsa-lozano-con-vouchers-en-mano-y-le-responde-acerca-de-las-deudas-se-agarro-la-plata/)
-- **Jackson Mora desmiente a Tilsa Lozano y expone transferencias de la camioneta: “Se agarró la plata”**: [Link](https://trome.com/espectaculos/tv/jackson-mora-desmiente-a-tilsa-lozano-y-expone-transferencias-de-la-camioneta-se-agarro-la-plata-video-fotos-farandula-noticia/)
-
-
-### jorge fossati (N/A, 11/12/2025 07:57 Lima)
-
-- **Jorge Fossati a un paso de dejar Universitario: los entretelones detrás de su inminente salida**: [Link](https://depor.com/futbol-peruano/descentralizado/universitario-jorge-fossati-se-va-que-paso-con-negociaciones-por-que-el-club-se-canso-de-la-situacion-y-candidatos-para-sustituirlo-liga-1-2026-noticia/)
-- **Universitario y la medida tras situación con Fossati**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/universitario-y-medida-no-llegar-acuerdo-fossati-n451964)
-- **Franco Velazco puso fecha para definir el futuro de Jorge Fossati en Universitario**: [Link](https://bolavip.com/pe/universitario/franco-velazco-puso-fecha-para-definir-el-futuro-de-jorge-fossati-en-universitario)
 
 
