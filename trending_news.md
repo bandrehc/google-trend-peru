@@ -1,3 +1,31 @@
+### bn (N/A, 16/12/2025 03:37 Lima)
+
+- **Donald Trump sues BBC for up to $10bn over edit of January 6 speech**: [Link](https://www.theguardian.com/us-news/2025/dec/15/trump-bbc-lawsuit)
+- **Trump sues BBC for defamation over Panorama speech edit**: [Link](https://www.bbc.com/news/articles/cpvd81470v1o)
+- **Trump Files $10 Billion Suit Against BBC Over Documentary**: [Link](https://www.nytimes.com/2025/12/15/us/politics/trump-sues-bbc.html)
+
+
+### the church of jesus christ of latter-day saints (N/A, 16/12/2025 03:37 Lima)
+
+- **Temple to Be Built in Portland, Maine**: [Link](https://newsroom.churchofjesuschrist.org/article/temple-to-be-built-in-portland-maine)
+- **Latter-day Saint leaders break with tradition on temples**: [Link](https://www.sltrib.com/religion/2025/12/14/surprise-announcement-lds-church/)
+- **Church of Jesus Christ departs tradition in new Maine temple announcement**: [Link](https://kutv.com/news/local/church-of-jesus-christ-departs-tradition-in-new-maine-temple-announcement)
+
+
+### stephen king (N/A, 16/12/2025 03:37 Lima)
+
+- **Rob Reiner & Son Nick in Heated Argument at Conan O'Brien's Christmas Party**: [Link](https://www.tmz.com/2025/12/15/rob-reiner-son-nick-argument-conan-obrien-christmas-party/)
+- **Rob Reiner's son arrested on suspicion of homicide after director and his wife are found dead**: [Link](https://www.latimes.com/california/story/2025-12-14/2-found-dead-at-home-of-rob-reiner)
+- **Director Rob Reiner and wife Michele Singer stabbed to death in Brentwood home, sources tell ABC News**: [Link](https://abc7.com/post/2-found-dead-brentwood-home-owned-director-rob-reiner-lapd-launches-murder-investigation/18287399/)
+
+
+### jazz - mavericks (N/A, 16/12/2025 03:37 Lima)
+
+- **NBA results and standings: Markkanen saves the Mavs, Jovic gets injured**: [Link](https://www.eurohoops.net/en/nba-news/1907691/nba-results-and-standings-markkanen-saves-the-mavs-jovic-gets-injured/)
+- **Cooper Flagg drops a career-high 42 points, breaks decades-old LeBron James record in overtime loss to Jazz**: [Link](https://bvmsports.com/2025/12/15/cooper-flagg-drops-a-career-high-42-points-breaks-decades-old-lebron-james-record-in-overtime-loss-to-jazz/)
+- **George scores 37, Marklkanen adds 33 as Jazz top Mavericks in OT despite Flagg's career-high 42**: [Link](https://www.rmoutlook.com/basketball/george-scores-37-marklkanen-adds-33-as-jazz-top-mavericks-in-ot-despite-flaggs-career-high-42-11629491)
+
+
 ### billie eilish (N/A, 15/12/2025 23:39 Lima)
 
 - **Billie Eilish Pushes for Gun Control Amid ‘Devastating’ Shootings in U.S. & Australia: ‘Raise Your Voice’**: [Link](https://www.yahoo.com/news/articles/billie-eilish-pushes-gun-control-221334419.html)
@@ -1002,33 +1030,5 @@ Sin noticias relacionadas disponibles.
 - **Propone retiro de 16,000 soles de la ONP y abre camino a un alivio económico para miles de aportantes**: [Link](https://comunicaciones.congreso.gob.pe/damos-cuenta/propone-retiro-de-16000-soles-de-la-onp-y-abre-camino-a-un-alivio-economico-para-miles-de-aportantes/)
 - **Retiro de ONP: Nuevo proyecto busca dar hasta S/16.050 a aportantes de su “dinero ahorrado”**: [Link](https://www.infobae.com/peru/2025/12/11/retiro-de-onp-nuevo-proyecto-busca-dar-hasta-s16050-a-aportantes-de-su-dinero-ahorrado/)
 - **Retiro de ONP, tal como en AFP: ¿Será posible para los afiliados?**: [Link](https://gestion.pe/tu-dinero/retiro-de-onp-es-realmente-posible-para-los-afiliados-noticia/)
-
-
-### sam smith (N/A, 12/12/2025 23:30 Lima)
-
-- **Sam Smith Brings Out Surprise Guests Ed Sheeran and Brandi Carlile at 22nd Show at Brooklyn’s Warsaw Venue—And Gives One Duet Its Live Debut**: [Link](https://www.billboard.com/music/music-news/sam-smith-ed-sheeran-brandi-carlile-warsaw-1236135035/)
-- **Brandi Carlile Delivers Surprise to Audience With ‘Absolutely Iconic’ Performance**: [Link](https://parade.com/news/brandi-carlile-delivers-surprise-to-audience-absolutely-iconic-performance-sam-smith-ed-sheeran)
-- **Sam Smith sings with Ed Sheeran and Brandi Carlile during NYC residency**: [Link](https://digital.abcaudio.com/news/sam-smith-sings-ed-sheeran-and-brandi-carlile-during-nyc-residency)
-
-
-### dni (N/A, 12/12/2025 23:30 Lima)
-
-- **Reniec anuncia campaña gratuita de DNI a nivel nacional: consulta fecha y lugares de atención**: [Link](https://www.tvperu.gob.pe/noticias/nacionales/reniec-anuncia-campana-gratuita-de-dni-a-nivel-nacional-consulta-fecha-y-lugares-de-atencion)
-- **DNI electrónico gratis: Reniec anuncia nueva campaña para el 16 de diciembre y así puedes realizar el trámite**: [Link](https://elcomercio.pe/respuestas/tramites/dni-electronico-gratis-reniec-anuncia-nueva-campana-para-el-16-de-diciembre-y-asi-puedes-realizar-el-tramite-tdpe-noticia/)
-- **Reniec lanza nueva campaña de DNI electrónico gratis: revisa cómo hacer el trámite este 16 de diciembre**: [Link](https://larepublica.pe/sociedad/2025/12/11/reniec-lanza-nueva-campana-de-dni-electronico-gratis-revisa-como-hacer-el-tramite-este-16-de-diciembre-757933)
-
-
-### elige tu local de votacion (N/A, 12/12/2025 23:30 Lima)
-
-- **Hasta el 14 de diciembre se tiene la posibilidad de elegir local de votación**: [Link](https://gestion.pe/peru/hasta-el-14-de-diciembre-se-tiene-la-posibilidad-de-elegir-local-de-votacion-noticia/)
-- **Elecciones 2026: ONPE informa que no habrá prórroga para que ciudadanía elija su local de votación**: [Link](https://elcomercio.pe/politica/elecciones/elecciones-2026-onpe-informa-que-no-habra-prorroga-para-que-ciudadania-elija-su-local-de-votacion-ultimas-noticia/)
-- **Más de 10 mil electores ya seleccionaron sus tres opciones de local en Huánuco**: [Link](https://diariocorreo.pe/edicion/huanuco/mas-de-10-mil-electores-ya-seleccionaron-sus-tres-opciones-de-local-en-huanuco-noticia/)
-
-
-### junior - tolima (N/A, 12/12/2025 20:56 Lima)
-
-- **Tolima: Lucas González, el presupuesto de Junior y su 'responsabilidad' en la final**: [Link](https://www.espn.com.ar/futbol/colombia/nota/_/id/16074013/lucas-gonzalez-tolima-tira-responsabilidad-a-junior-presupuesto-final-liga-betplay-2025)
-- **Alfredo Arias destacó al Tolima y agregó: "ojalá que ellos tengan que defender mucho"**: [Link](https://espndeportes.espn.com/futbol/colombia/nota/_/id/16074063/alfredo-arias-destaco-al-tolima-y-agrego-ojala-que-ellos-tengan-que-defender-mucho)
-- **Aida Cortés confesó su amor por uno de los finalistas de la Liga que disputarán Junior y Deportes Tolima: “Mi corazón se sentiría más alegre si...”**: [Link](https://www.infobae.com/colombia/2025/12/11/aida-cortes-confeso-su-amor-por-uno-de-los-finalistas-de-la-liga-que-disputaran-junior-y-deportes-tolima-mi-corazon-se-sentiria-mas-alegre-si/)
 
 
