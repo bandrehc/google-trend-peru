@@ -1,3 +1,73 @@
+### cd eldense - real sociedad (N/A, 16/12/2025 15:30 Lima)
+
+- **Apuestas y pronósticos Eldense vs Real Sociedad**: [Link](https://www.marca.com/apuestas-deportivas/predicciones/2025/12/15/apuestas-pronosticos-eldense-vs-real-sociedad.html)
+- **Responsabilidad con la ilusión**: [Link](https://www.realsociedad.eus/es/noticias/detalle/responsabilidad-con-la-ilusion)
+- **Claudio Barragán sobre el banquillo de la Real Sociedad: "Puede ser una motivación extra"**: [Link](https://www.estadiodeportivo.com/futbol/real-sociedad/claudio-barragan-sobre-banquillo-real-sociedad-puede-ser-una-motivacion-extra-20251215-523816.html)
+
+
+### valencia vs (N/A, 16/12/2025 15:30 Lima)
+
+- **Preview: Sporting Gijon vs Valencia - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/valencia/copa-del-rey/preview/sporting-gijon-vs-valencia-prediction-team-news-lineups_587831.html)
+- **Sporting vs. Valencia (17 Dec, 2025) Live Score**: [Link](https://www.espn.in/football/match/_/gameId/762542)
+- **🚨 Sporting v Valencia line-ups: Raba and Ramazani start**: [Link](https://ca.sports.yahoo.com/news/sporting-v-valencia-line-ups-192000899.html)
+
+
+### valencia cf (N/A, 16/12/2025 15:30 Lima)
+
+- **Sporting - Valencia hoy en directo: última hora de la Copa del Rey en vivo**: [Link](https://as.com/futbol/copa_del_rey/sporting-valencia-hoy-en-directo-ultima-hora-de-la-copa-del-rey-en-vivo-f202512-d/)
+- **Sporting vs. Valencia (16 de Dic., 2025) Resultados en Vivo**: [Link](https://www.espn.com.ar/futbol/partido/_/juegoId/762542)
+- **Molinón, ¿Punto de inflexión?**: [Link](https://onefootball.com/en/news/molinon-punto-de-inflexion-42101102)
+
+
+### premio the best fifa (N/A, 16/12/2025 15:30 Lima)
+
+- **Premios The Best 2025: minuto a minuto y resumen con Ousmane Dembélé como mejor del mundo**: [Link](https://depor.com/futbol-internacional/resto-del-mundo/premios-the-best-2025-en-vivo-hoy-minuto-a-minuto-gratis-espn-fifa-plus-tv-futbol-libre-tv-disney-plus-directv-movistar-ganadores-nominados-premiados-y-favoritos-con-mbappe-lamine-yamal-y-dembele-noticia/)
+- **Resultados de los Premios The Best 2025 EN VIVO EN DIRECTO - quién fue el mejor jugador de la FIFA**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/resultados-de-los-premios-the-best-2025-en-vivo-en-directo-quien-gue-el-mejor-jugador-de-la-fifa-nnda-nnrt-noticia/)
+- **¿A qué hora inician los Premios The Best FIFA 2025 EN VIVO en EE.UU., México, España y otros países del mundo?**: [Link](https://gestion.pe/mix/sports/a-que-hora-inician-los-premios-the-best-fifa-2025-en-vivo-en-eeuu-mexico-espana-y-otros-paises-del-mundo-nnda-nnrt-noticia/)
+
+
+### cardiff vs. doncaster rovers (N/A, 16/12/2025 15:30 Lima)
+
+- **Nathan Trott Makes Superb Save In Victory**: [Link](https://bernews.com/2025/12/dec15-nathan-trott-makes-superb-save-victory/)
+- **Ashford looking forward to a blue Christmas**: [Link](https://ca.sports.yahoo.com/news/ashford-looking-forward-blue-christmas-165314754.html)
+- **Sky Bet League One Round Up: Cardiff hit 99th minute winner**: [Link](https://www.efl.com/news/2025/december/14/sky-bet-league-one-round-up-Cardiff-hit-99th-minute-winner/)
+
+
+### noche blanquiazul (N/A, 16/12/2025 15:30 Lima)
+
+- **¡Alianza Lima enfrentará a Lionel Messi! Productora confirmó la Noche Blanquiazul 2026 con Inter Miami**: [Link](https://rpp.pe/futbol/descentralizado/alianza-lima-vs-lionel-messi-confirmada-la-noche-blanquiazul-2026-con-inter-miami-por-la-productora-noticia-1668131)
+- **Lionel Messi vuelve al Perú: Alianza Lima vs. Inter Miami en Noche Blanquiazul 2026**: [Link](https://depor.com/futbol-peruano/descentralizado/alianza-lima-vs-inter-miami-por-noche-blanquiazul-2026-fecha-confirmada-para-presentacion-con-lionel-messi-noticia/)
+- **Alianza Lima vs Inter Miami con Lionel Messi: Sound Music Entertainment confirma la fecha, hora y canal del partido por Noche Blanquiazul**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/alianza-lima-vs-inter-miami-con-lionel-messi-sound-music-entertainment-confirma-la-fecha-hora-y-canal-de-la-noche-blanquiazul-noticia/)
+
+
+### cardiff - chelsea (N/A, 16/12/2025 15:30 Lima)
+
+- **Preview: Cardiff City vs Chelsea - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/chelsea/league-cup/preview/cardiff-vs-chelsea-prediction-team-news-lineups_587785.html)
+- **Predicted XI: Enzo Maresca has to risk it all with this changed up team selection**: [Link](https://chelsea.news/2025/12/maresca-predicted-xi-changed-up-team/)
+- **'Estevao banished to the shadow realm': fans react to Chelsea XI vs Cardiff**: [Link](https://tribuna.com/en/blogs/estevao-banished-to-the-shadow-realm-fans-react-to-chelsea-x/)
+
+
+### olympiacos - valencia (N/A, 16/12/2025 15:30 Lima)
+
+- **Monte Morris status for Round 16 vs. Valencia confirmed**: [Link](https://basketnews.com/news-236883-monte-morris-status-for-round-16-vs-valencia-confirmed.html)
+- **Bartzokas begs for mercy following constant signing rumors surrounding Olympiacos**: [Link](https://www.eurohoops.net/en/euroleague/1905701/giorgos-bartzokas-talks-monte-morris-signing-olympiacos-euroleague/)
+- **Morris: «We must first find chemistry and then you will see the better me»**: [Link](https://www.olympiacosbc.gr/en/news-en/latest-news-en/11701-morris-we-must-first-find-chemistry-and-then-you-will-see-the-better-me.html)
+
+
+### guadalajara - barcelona (N/A, 16/12/2025 15:30 Lima)
+
+- **Barcelona visita a Guadalajara por los dieciseavos de final de final de la Copa del Rey**: [Link](https://www.espn.com.pe/futbol/espana/nota/_/id/16083624/guadalajara-vs-barcelna-dieciseavos-de-final-copa-del-rey-equipo-fecha-hora-y-tv-en-vivo)
+- **¿A qué hora es el Guadalajara - Barcelona? Canal TV, horario dónde y cómo ver hoy los dieciseisavos de Copa de**: [Link](https://as.com/futbol/copa_del_rey/a-que-hora-es-el-guadalajara-barcelona-canal-tv-horario-donde-y-como-ver-hoy-los-dieciseisavos-de-copa-del-rey-f202512-n/)
+- **El mensaje de Flick a la plantilla del Barça**: [Link](https://www.sport.es/es/noticias/barca/mensaje-flick-plantilla-barca-124831372)
+
+
+### blooming vs bolívar (N/A, 16/12/2025 15:30 Lima)
+
+- **Bolívar vs. Blooming EN VIVO HOY vía Fútbol Canal por Copa Paceña**: [Link](https://libero.pe/futbol-internacional/2025/12/15/bolivar-vs-blooming-en-vivo-gratis-semifinal-ida-de-copa-pacena-via-futbol-canal-video-vilb-194940)
+- **Semifinales de ida de la Copa Paceña: horarios, dónde ver y más detalles**: [Link](https://www.bolivia.com/futbol/liga-boliviana/horarios-donde-ver-y-mas-sobre-las-semifinales-de-ida-de-la-copa-pacena-555419)
+- **Blooming, diezmado por sanción masiva y lesiones, busca dar el primer golpe ante Bolívar en la semifinal**: [Link](https://eldia.com.bo/2025-12-15/deportes/blooming-diezmado-por-sancion-masiva-y-lesiones-busca-dar-el-primer-golpe-ante-bolivar-en-la-semifinal.html)
+
+
 ### memorias ram (N/A, 16/12/2025 11:36 Lima)
 
 - **El aumento del consumo de memoria puede afectar al precio y al rendimiento de tu próximo smartphone Android**: [Link](https://www.elpueblo.pe/ciencia-y-tecnologia/el-aumento-del-consumo-de-memoria-puede-afectar-al-precio-y-al-rendimiento-de-tu-proximo-smartphone-android/166279/)
@@ -962,73 +1032,5 @@
 - **Precio del dólar cae: Así cerró el tipo de cambio hoy 11 de diciembre en Perú**: [Link](https://www.infobae.com/peru/2025/12/10/dolar-cotizacion-de-apertura-hoy-10-de-diciembre-en-peru/)
 - **Precio del dólar este sábado 13 de diciembre: Así cotiza el tipo de cambio HOY en Perú**: [Link](https://www.exitosanoticias.pe/actualidad/precio-dolar-sabado-13-diciembre-asi-cotiza-tipo-cambio-hoy-peru-n164594)
 - **Precio del dólar del jueves 11 de diciembre: a cuánto cerró el tipo de cambio**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-2025-a-cuanto-esta-el-dolar-el-jueves-11-de-diciembre-y-tipo-de-cambio-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
-
-
-### liverpool fc (N/A, 13/12/2025 11:30 Lima)
-
-- **Former Italy Forward Slams ‘Disgraceful’ Liverpool Penalty & ‘Expected More’ From Inter Milan Duo**: [Link](https://sempreinter.com/2025/12/12/inter-liverpool-cassano-thuram-champions-league/)
-- **No Mo worries as Reds snatch vital win**: [Link](https://www.chinadaily.com.cn/a/202512/11/WS693a2d83a310d6866eb2e154.html)
-- **Highlights: Drita 0-3 AZ Alkmaar | Highlights | UEFA Conference League**: [Link](https://www.uefa.com/uefaconferenceleague/video/highlights/02a0-1f6a7d1fa0be-8217f3e00c5d-1000--highlights-drita-0-3-az-alkmaar/)
-
-
-### burnley vs (N/A, 13/12/2025 11:30 Lima)
-
-- **Burnley vs Fulham LIVE! Premier League match updates, news, score, stream and highlights - live on Sky Sports**: [Link](https://www.skysports.com/football/live-blog/11681/13482218/burnley-vs-fulham-live-premier-league-match-updates-news-score-stream-and-highlights-live-on-sky-sports)
-- **From the Press Box: Sess out, but perhaps the Return of the Jedi?**: [Link](https://www.fulhamish.co.uk/p/from-the-press-box-sess-out-but-perhaps)
-- **Final One Standing: Gameweek 16 Predictions**: [Link](https://news.williamhill.com/football/final-one-standing-gameweek-16-predictions/)
-
-
-### actualización ios 26.2 (N/A, 13/12/2025 11:30 Lima)
-
-Sin noticias relacionadas disponibles.
-
-
-### st. pauli - heidenheim (N/A, 13/12/2025 11:30 Lima)
-
-- **Lage am Millerntor – 12. Dezember 2025**: [Link](https://millernton.de/2025/12/12/lage-am-millerntor-12-dezember-2025/)
-- **St. Pauli bereitet sich auf Heimspiel gegen Heidenheim vor**: [Link](https://www.ndr.de/fernsehen/sendungen/hamburg_journal/st-pauli-bereitet-sich-auf-heimspiel-gegen-heidenheim-vor,hamj-6078.html)
-- **😌 Mehr Befreiung geht nicht! Das ist das wichtigste Buli-Tor des Spieltags**: [Link](https://onefootball.com/de/news/mehr-befreiung-geht-nicht-das-ist-das-wichtigste-buli-tor-des-spieltags-42091322)
-
-
-### spezia - modena (N/A, 13/12/2025 11:30 Lima)
-
-- **Spezia - Modena 0-2 | Apre Nieling, chiude Gliozzi, vittoria gialla dopo oltre un mese**: [Link](https://www.modenatoday.it/sport/calcio/Spezia-Modena-0-2-tabellino-cronaca-commenti-13-dicembre-2025.html)
-- **"Gliozzi ha dato tanto, Mendes lo vedo sul pezzo"**: [Link](https://www.ilrestodelcarlino.it/modena/cronaca/gliozzi-ha-dato-tanto-mendes-bdcf0f7f)
-- **Spezia-Modena: le formazioni ufficiali**: [Link](https://modenacalcio.com/spezia-modena-le-formazioni-ufficiali/)
-
-
-### atlético madrid - valencia c. f. (N/A, 13/12/2025 07:49 Lima)
-
-- **Atlético de Madrid - Valencia, en directo: LaLiga EA Sports hoy, en vivo**: [Link](https://as.com/futbol/primera/atletico-de-madrid-valencia-en-directo-laliga-ea-sports-hoy-en-vivo-f202512-d/)
-- **Apuestas y Pronóstico del Atlético Madrid vs Valencia 13/12/25**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/2025/diciembre/pronostico-atletico-madrid-vs-valencia-13-12-25)
-- **Atlético-Valencia: Alineaciones probables, estadísticas y cómo ver por TV y online (14:00)**: [Link](https://espanol.eurosport.com/futbol/la-liga/2025-2026/atletico-valencia-alineaciones-probables-previa-estadisticas-horario-como-donde-ver-television-online-streaming-hoy_sto23250053/story.shtml)
-
-
-### perth glory - sydney (N/A, 13/12/2025 07:49 Lima)
-
-- **Timberwolves vs. Warriors (Dec 12, 2025) Live Score**: [Link](https://www.espn.com/nba/game?gameId=401836796)
-- **Nets vs. Mavericks (Dec 12, 2025) Live Score**: [Link](https://www.espn.com/nba/game/_/gameId/401836795)
-- **Timberwolves 127-120 Warriors (Dec 12, 2025) Final Score**: [Link](https://www.espn.com/nba/game/_/gameId/401836796/timberwolves-warriors)
-
-
-### peter greene (N/A, 13/12/2025 07:49 Lima)
-
-- **Peter Greene, actor known for 'Pulp Fiction' and 'The Mask,' dead at 60**: [Link](https://www.nbcnews.com/news/obituaries/peter-greene-actor-known-pulp-fiction-mask-dead-60-rcna248976)
-- **'Pulp Fiction' actor Peter Greene dies at 60**: [Link](https://www.10tv.com/article/news/nation-world/pulp-fiction-actor-peter-greene-dies/507-c7243c5a-0d25-4fc5-87e6-c796551dc1ea)
-- **Peter Greene, 60, actor in ‘Pulp Fiction,’ ‘The Mask,’ found dead in NYC apartment**: [Link](https://www.nydailynews.com/2025/12/12/peter-greene-60-actor-pulp-fiction-the-mask-found-dead-in-nyc-apartment-lower-east-side/)
-
-
-### la gripe h3n2 (N/A, 13/12/2025 07:49 Lima)
-
-- **Suba de casos de gripe H3N2: el virus puede ingresar por múltiples vías en una comunidad y acelerar los brotes**: [Link](https://www.infobae.com/america/ciencia-america/2025/12/13/suba-de-casos-de-gripe-h3n2-el-virus-puede-ingresar-por-multiples-vias-en-una-comunidad-y-acelerar-los-brotes/)
-- **México confirma primer caso de influenza A H3N2 y refuerza vigilancia**: [Link](https://canaln.pe/internacionales/mexico-confirma-primer-caso-influenza-h3n2-y-refuerza-vigilancia-n488916)
-- **Un fuerte brote de gripe afecta a Europa y toman medidas para evitar su propagación**: [Link](https://www.lanacion.com.ar/el-mundo/un-fuerte-brote-de-gripe-afecta-a-europa-y-toman-medidas-para-evitar-su-propagacion-nid10122025/)
-
-
-### barcelona vs osasuna (N/A, 13/12/2025 03:31 Lima)
-
-- **Barcelona vs Osasuna: alineaciones, Jornada 16, LaLiga**: [Link](https://www.espn.com.ar/futbol/nota/_/id/16077728/barcelona-vs-osasuna-alineaciones-jornada-16-laliga)
-- **Flick, con retoques mínimos ante Osasuna**: [Link](https://www.sport.es/es/noticias/barca/flick-retoques-minimos-osasuna-124729248)
-- **Apuestas y Pronóstico del Barcelona vs Osasuna 13/12/25**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/2025/diciembre/pronostico-barcelona-vs-osasuna-13-12-25)
 
 
