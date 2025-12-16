@@ -1,3 +1,51 @@
+### billie eilish (N/A, 15/12/2025 23:39 Lima)
+
+- **Billie Eilish Pushes for Gun Control Amid ‘Devastating’ Shootings in U.S. & Australia: ‘Raise Your Voice’**: [Link](https://www.yahoo.com/news/articles/billie-eilish-pushes-gun-control-221334419.html)
+- **Billie Eilish calls for gun policy reform after weekend of multiple mass shootings**: [Link](https://www.indy100.com/celebrities/billie-eilish-gun-reform-calls)
+- **Billie Eilish makes strong plea after Australia Bondi shooting**: [Link](https://www.geo.tv/latest/639491-billie-eilish-makes-strong-plea-after-australia-bondi-shooting)
+
+
+### nuggets - rockets (N/A, 15/12/2025 23:39 Lima)
+
+- **Nuggets And Rockets Set For High-Stakes Rematch**: [Link](https://evrimagaci.org/gpt/nuggets-and-rockets-set-for-highstakes-rematch-520082)
+- **Nikola Jokic: Player Props, Odds, and Lines for 3x MVP vs. Houston Rockets**: [Link](https://news.bet365.com/en-us/article/nikola-jokic-player-props-odds-and-lines-for-3x-mvp-vs-houston-rockets/2025121519200617794)
+- **Where to watch Rockets vs. Nuggets free stream today**: [Link](https://www.masslive.com/tv/2025/12/where-to-watch-rockets-vs-nuggets-free-stream-today.html)
+
+
+### yo soy (N/A, 15/12/2025 23:39 Lima)
+
+- **Yo Soy SEMANA FINAL: Conoce CÓMO VOTAR GRATIS por tu imitador favorito**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-final-como-votar-descargar-app-gratis-imitador-favorito_20251215/)
+- **“Yo soy”: ¿Qué participantes clasificaron a la semana final de la temporada?**: [Link](https://elcomercio.pe/tvmas/television/yo-soy-que-participantes-clasificaron-a-la-semana-final-de-la-temporada-latina-ultimas-noticia/)
+- **Yo Soy conciertos 2025: ¡ARRANCA LA SEMANA FINAL! Alejandra Guzmán abre la noche más decisiva**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-conciertos-2025-arranca-la-semana-final-alejandra-guzman-abre-la-noche-mas-decisiva_20251215/)
+
+
+### latina (N/A, 15/12/2025 23:39 Lima)
+
+- **Emergent Cold LatAm: el gigante de la cadena de frío que transforma la logística alimentaria en América Latina**: [Link](https://agronoticias.pe/emergent-cold-latam-el-gigante-de-la-cadena-de-frio-que-transforma-la-logistica-alimentaria-en-america-latina/)
+- **Los 3 países de América Latina cuyas economías crecerían más en 2026: superarán más de 2 veces a Chile, México y Brasil**: [Link](https://larepublica.pe/mundo/2025/12/15/los-3-paises-de-america-latina-cuyas-economias-crecerian-mas-en-2026-superaran-mas-de-2-veces-a-chile-mexico-y-brasil-405315)
+
+
+### alfredo barnechea (N/A, 15/12/2025 23:39 Lima)
+
+- **Víctor Andrés García Belaúnde: "Barnechea se apoya en 'Los niños' para el fraude que se ha hecho"**: [Link](https://peru21.pe/politica/victor-andres-garcia-belaunde-barnechea-se-apoya-en-los-ninos-para-el-fraude-que-se-ha-hecho/)
+- **JNE defiende legalidad de anulación de internas de Acción Popular y rechaza presiones políticas**: [Link](https://canaln.pe/actualidad/jne-defiende-anulacion-elecciones-internas-accion-popular-n488944)
+- **A lampazos aprendí. Una crónica de Fernando Vivas sobre cómo Acción Popular quedó fuera de las elecciones generales**: [Link](https://elcomercio.pe/politica/elecciones/accion-popular-a-lampazos-aprendi-una-cronica-de-fernando-vivas-sobre-como-el-partido-quedo-fuera-de-las-elecciones-alfredo-barnechea-julio-chavez-noticia/)
+
+
+### h3n2 es mortal (N/A, 15/12/2025 23:39 Lima)
+
+- **Aumento de casos de gripe H3N2 en el mundo: esto se sabe sobre sus principales síntomas**: [Link](https://diariocorreo.pe/salud/aumento-de-casos-de-gripe-h3n2-en-el-mundo-esto-se-sabe-sobre-sus-principales-sintomas-noticia/)
+- **La variante de la gripe H3N2 azota a Europa: qué se sabe del virus que satura hospitales en el Reino Unido**: [Link](https://larepublica.pe/mundo/2025/12/10/la-variante-de-la-gripe-h3n2-azota-a-europa-que-se-sabe-del-virus-que-satura-hospitales-en-el-reino-unido-941730)
+- **Doctor Marco Almerí especialista en salud pública ante nuevo virus H3N2: "No estamos preparados como país para soportar"**: [Link](https://wapa.pe/estilo-de-vida/2025/12/11/doctor-marco-almeri-especialista-en-salud-publica-nuevo-virus-h3n2-no-estamos-preparados-como-pais-soportar-459745)
+
+
+### h3n2 sintomas (N/A, 15/12/2025 23:39 Lima)
+
+- **Minsa confirma primeros dos casos de Gripe H3N2 en el Perú: “No es una pandemia”**: [Link](https://www.infobae.com/peru/2025/12/15/minsa-confirma-primeros-dos-casos-de-gripe-h3n2-en-el-peru-no-es-una-pandemia/)
+- **Minsa confirma dos contagios de influenza A H3N2 en menores en Lima y declara alerta epidemiológica nacional**: [Link](https://canaln.pe/actualidad/minsa-confirma-dos-casos-influenza-h3n2-ninos-lima-n488955)
+- **Supergripe H3N2: especialistas alertan riesgo de ingreso al Perú en semanas**: [Link](https://diariocorreo.pe/peru/supergripe-h3n2-piden-medidas-urgentes-ante-posible-ingreso-al-peru-noticia/)
+
+
 ### copa del rey (N/A, 15/12/2025 21:04 Lima)
 
 - **Barcelona visita a Guadalajara por los dieciseavos de final de final de la Copa del Rey**: [Link](https://www.espn.com.ar/futbol/espana/nota/_/id/16083624/guadalajara-vs-barcelna-dieciseavos-de-final-copa-del-rey-equipo-fecha-hora-y-tv-en-vivo)
@@ -982,54 +1030,5 @@ Sin noticias relacionadas disponibles.
 - **Tolima: Lucas González, el presupuesto de Junior y su 'responsabilidad' en la final**: [Link](https://www.espn.com.ar/futbol/colombia/nota/_/id/16074013/lucas-gonzalez-tolima-tira-responsabilidad-a-junior-presupuesto-final-liga-betplay-2025)
 - **Alfredo Arias destacó al Tolima y agregó: "ojalá que ellos tengan que defender mucho"**: [Link](https://espndeportes.espn.com/futbol/colombia/nota/_/id/16074063/alfredo-arias-destaco-al-tolima-y-agrego-ojala-que-ellos-tengan-que-defender-mucho)
 - **Aida Cortés confesó su amor por uno de los finalistas de la Liga que disputarán Junior y Deportes Tolima: “Mi corazón se sentiría más alegre si...”**: [Link](https://www.infobae.com/colombia/2025/12/11/aida-cortes-confeso-su-amor-por-uno-de-los-finalistas-de-la-liga-que-disputaran-junior-y-deportes-tolima-mi-corazon-se-sentiria-mas-alegre-si/)
-
-
-### otan (N/A, 12/12/2025 20:56 Lima)
-
-- **Trump planea designar a Perú como aliado principal extra-OTAN: los motivos**: [Link](https://gestion.pe/mundo/eeuu/trump-planea-designar-a-peru-como-aliado-principal-extra-otan-los-motivos-noticia/)
-- **Donald Trump propone elevar a Perú como aliado estratégico fuera de la OTAN: premier Ernesto Álvarez reacciona rápidamente | Lo que implicaría**: [Link](https://www.expreso.com.pe/politica/donald-trump-propone-elevar-a-peru-como-aliado-estrategico-fuera-de-la-otan-premier-ernesto-alvarez-reacciona-rapidamente-lo-que-implicaria-ernesto-alvarez-casa-blanca-noticia/1246747/)
-- **🔴 Propuesta sorprendió a analistas, pues se dirige a un país que atraviesa una transición política sensible.**: [Link](https://www.facebook.com/diario.expreso/posts/-propuesta-sorprendi%C3%B3-a-analistas-pues-se-dirige-a-un-pa%C3%ADs-que-atraviesa-una-tra/1282343097256632/)
-
-
-### hailee steinfeld (N/A, 12/12/2025 20:56 Lima)
-
-- **See Hailee Steinfeld and Josh Allen's Rare Couple Photos as They Prepare to Welcome Their First Child**: [Link](https://people.com/hailee-steinfeld-josh-allen-rare-couple-photos-11868487)
-- **Bills QB Josh Allen Announces Personal News Amid NFL Season**: [Link](https://sports.yahoo.com/articles/bills-qb-josh-allen-announces-223436425.html)
-- **Hailee Steinfeld's Pregnancy Announcement Is About to Make This Trendy Fleece Jacket Sell Out**: [Link](https://www.whowhatwear.com/fashion/celebrity-style/hailee-steinfeld-pregnancy-announcement-mother-sweatshirt)
-
-
-### game awards goty 2025 (N/A, 12/12/2025 20:56 Lima)
-
-- **Game Awards 2025: Expedition 33 tops winners list**: [Link](https://www.bbc.com/news/articles/c1kpwmezkpdo)
-- **The Game Awards 2025: All The Biggest Announcements**: [Link](https://www.gamespot.com/gallery/the-game-awards-2025-all-the-biggest-announcements/2900-7341/)
-- **GR Readers Successfully Pick The 2025 GOTY**: [Link](https://gamerant.com/game-rant-readers-successfully-predict-the-2025-goty/)
-
-
-### cotizacion dolar hoy (N/A, 12/12/2025 20:56 Lima)
-
-- **Precio del dólar cae: Así cerró el tipo de cambio hoy 11 de diciembre en Perú**: [Link](https://www.infobae.com/peru/2025/12/10/dolar-cotizacion-de-apertura-hoy-10-de-diciembre-en-peru/)
-- **¿Cuál es la cotización del dólar hoy viernes 12 de diciembre del 2025?**: [Link](https://andina.pe/agencia/noticia-cual-es-cotizacion-del-dolar-hoy-viernes-12-diciembre-del-2025-1055375.aspx)
-- **¿Cuánto está el dólar HOY? Precio compra y venta para este viernes 12 de diciembre**: [Link](https://latinanoticias.pe/te-ayudo/cuanto-esta-el-dolar-hoy-precio-compra-y-venta-para-este-12-de-diciembre-cotizacion-dolar-ahora-en-lima-sunat-sbs-bcrp-adp-noticia_20251212/)
-
-
-### john cena (N/A, 12/12/2025 20:56 Lima)
-
-- **WWE's Lilian Garcia Talks John Cena's Last Match & Finding Love Again**: [Link](https://www.tvinsider.com/1232459/wwe-ring-announcer-lilian-garcia-talks-john-cenas-last-match-finding-love-again/)
-- **Update on John Cena vs. Gunther at WWE Saturday Night’s Main Event**: [Link](https://www.f4wonline.com/news/wwe/john-cena-gunther-wwe-saturday-nights-main-event-plans/)
-- **“Athletes Die Twice”: John Cena’s Chilling Perspective On Retirement**: [Link](https://wrestlingnews.co/wwe-news/athletes-die-twice-john-cenas-chilling-perspective-retirement/)
-
-
-### angers - nantes (N/A, 12/12/2025 15:29 Lima)
-
-- **DIRECT. Angers-Nantes: suivez le match d'ouverture de la 16e journée de Ligue 1 en live**: [Link](https://rmcsport.bfmtv.com/football/ligue-1/direct-angers-nantes-suivez-le-match-d-ouverture-de-la-16e-journee-de-ligue-1-en-live_LS-202512120747.html)
-- **L’Angers SCO a un plan anti-nantais**: [Link](https://www.sofoot.com/breves/langers-sco-a-un-plan-anti-nantais)
-- **DIRECT - FC Nantes : dos au mur, les Jaunes partent jouer un derby à Angers**: [Link](https://www.francebleu.fr/sports/football/direct-fc-nantes-dos-au-mur-les-jaunes-partent-jouer-un-derby-a-angers-6030893)
-
-
-### leipzig (N/A, 12/12/2025 15:29 Lima)
-
-- **Sachsen: Wieder Vogelgrippe-Fälle im Zoo Leipzig: Diesmal bei den Pelikanen**: [Link](https://www.tagesschau.de/inland/regional/sachsen/mdr-wieder-vogelgrippe-faelle-im-zoo-leipzig-diesmal-bei-den-pelikanen-100.html)
-- **Pongoland und Gondwanaland wieder geöffnet**: [Link](https://www.sachsen-fernsehen.de/mediathek/video/pongoland-und-gondwanaland-wieder-geoeffnet/)
-- **Virus-Verdacht am Zoo Leipzig! Besucher bekommen das zu spüren**: [Link](https://www.thueringen24.de/umland/article300599453/zoo-leipzig-vogel-grippe-verdach-besucher.html)
 
 
