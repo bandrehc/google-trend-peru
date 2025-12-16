@@ -1,3 +1,31 @@
+### fonavi (N/A, 16/12/2025 07:56 Lima)
+
+- **Lista 22 del Fonavi: Esta es la fecha de pago exacta que los fonavistas buscan aprobar**: [Link](https://www.infobae.com/peru/2025/12/10/cobro-de-la-lista-22-del-fonavi-la-fecha-exacta-en-que-los-fonavistas-buscan-acceder/)
+- **Fonavi: presentan proyecto de ley para incorporar a más de 375.000 exaportantes al proceso de devolución**: [Link](https://larepublica.pe/economia/2025/12/15/fonavi-2025-presentan-proyecto-de-ley-para-incorporar-a-mas-de-375000-exaportantes-al-proceso-de-devolucion-hnews-1109865)
+- **Congreso: proyecto busca incluir a más de 300 mil aportantes excluidos de devolución del Fonavi**: [Link](https://panamericana.pe/politica/461049-congreso-proyecto-busca-incluir-300-mil-aportantes-excluidos-devolucion-fonavi)
+
+
+### cronograma de pagos (N/A, 16/12/2025 07:56 Lima)
+
+- **En enero, los empleados de Gimnasia quedarían totalmente al día**: [Link](https://eleditorplatense.com/deportes/en-enero-los-empleados-gimnasia-quedarian-totalmente-al-dia-n5379874)
+- **¿Qué grave problema acordó la dirigencia del Lobo que le permite cerrar el año con un poco de paz?**: [Link](https://www.laplata1.com/2025-12-11/que-grave-problema-acordo-la-dirigencia-del-lobo-que-le-permite-cerrar-el-ano-con-un-poco-de-paz-121468/)
+- **Acuerdo entre la nueva dirigencia de Gimnasia y los trabajadores de UTEDYC**: [Link](https://www.dobleamarilla.com.ar/liga-/acuerdo-entre-la-nueva-dirigencia-de-gimnasia-y-los-trabajadores-de-utedyc_a693b3abd1be5db0161503920)
+
+
+### lds church (N/A, 16/12/2025 07:56 Lima)
+
+- **Temple to Be Built in Portland, Maine**: [Link](https://newsroom.churchofjesuschrist.org/article/temple-to-be-built-in-portland-maine)
+- **Church of Jesus Christ departs tradition in new Maine temple announcement**: [Link](https://kutv.com/news/local/church-of-jesus-christ-departs-tradition-in-new-maine-temple-announcement)
+- **Latter-day Saint leaders break with tradition on temples**: [Link](https://www.sltrib.com/religion/2025/12/14/surprise-announcement-lds-church/)
+
+
+### javier rabanal universitario de deportes (N/A, 16/12/2025 07:56 Lima)
+
+- **Humo blanco en Universitario: Javier Rabanal será el nuevo DT para la temporada 2026**: [Link](https://depor.com/futbol-peruano/descentralizado/javier-rabanal-nuevo-dt-de-universitario-2026-acuerdo-con-la-institucion-para-dirigir-independiente-del-valle-noticia/)
+- **Javier Rabanal será el entrenador de Universitario para la temporada 2026**: [Link](https://www.espn.com.ar/futbol/peru/nota/_/id/16076624/javier-rabanal-nuevo-entrenador-de-universitario-de-deportes)
+- **"Me llevaría a 8 jugadores": Rabanal tiene sus 'preferidos' en IDV**: [Link](https://www.americatv.com.pe/deportes/futbol-mundial/me-llevaria-8-jugadores-rabanal-tiene-sus-preferidos-idv-n451988)
+
+
 ### bn (N/A, 16/12/2025 03:37 Lima)
 
 - **Donald Trump sues BBC for up to $10bn over edit of January 6 speech**: [Link](https://www.theguardian.com/us-news/2025/dec/15/trump-bbc-lawsuit)
@@ -1002,33 +1030,5 @@ Sin noticias relacionadas disponibles.
 
 - **Yo Soy conciertos 2025: imitador de Diego Bertie dejó al público ANONADADO y EMOCIONADO por su interpretación de “Qué Difícil Es Amar”**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-conciertos-2025-imitador-de-diego-bertie-dejo-al-publico-anonadado-y-emocionado-por-su-interpretacion-de-que-dificil-es-amar_20251212/)
 - **Yo Soy conciertos 2025: ¡BRILLÓ CON EL CORAZÓN! Una noche llena de sensibilidad al estilo Diego Bertie**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-conciertos-2025-brillo-con-el-corazon-una-noche-llena-de-sensibilidad-al-estilo-diego-bertie_20251210/)
-
-
-### terremoto japón (N/A, 12/12/2025 23:30 Lima)
-
-- **Sismo de magnitud 6,7 sacude la costa de Japón, se emiten avisos de tsunami**: [Link](https://cnnespanol.cnn.com/2025/12/11/mundo/sismo-6-7-japon-avisos-tsunami-trax)
-- **Las imágenes del terremoto que ha conmocionado Japón: alerta de Tsunami**: [Link](https://as.com/actualidad/las-imagenes-del-terremoto-que-ha-conmocionado-japon-alerta-de-tsunami-f202512-v/)
-- **Dos fuertes terremotos sacuden Japón en menos de 24 horas y reactivan temores**: [Link](https://panamericana.pe/internacionales/460924-fuertes-terremotos-sacuden-japon-menos-24-horas-reactivan-temores)
-
-
-### warriors - timberwolves (N/A, 12/12/2025 23:30 Lima)
-
-- **Anthony Edwards ruled out of Friday night Wolves-Warriors battle**: [Link](https://www.si.com/nba/timberwolves/onsi/minnesota-timberwolves-news/anthony-edwards-ruled-out-of-friday-night-wolves-warriors-battle)
-- **BetRivers Bonus Code: Unlock a Second Chance Bet Up to $500 for Timberwolves vs Warriors**: [Link](https://www.wsn.com/nba/betrivers-bonus-code-timberwolves-vs-warriors-12-12-2025/)
-- **Preview: Will Kuminga get on the court vs Timberwolves Friday?**: [Link](https://sports.yahoo.com/articles/preview-kuminga-court-vs-timberwolves-093023342.html)
-
-
-### pablo guede (N/A, 12/12/2025 23:30 Lima)
-
-- **Alianza Lima ya tiene nuevo DT para el 2026 tras salida de Néstor Gorosito: llegaría con 2 delanteros**: [Link](https://www.infobae.com/peru/deportes/2025/12/11/alianza-lima-ya-tiene-nuevo-dt-para-el-2026-tras-salida-de-nestor-gorosito-llegaria-con-2-delanteros/)
-- **Alianza Lima se enamoró de su estilo: Pablo Guede es anunciado como nuevo entrenador**: [Link](https://depor.com/futbol-peruano/descentralizado/pablo-guede-a-alianza-lima-anuncio-oficial-del-nuevo-entrenador-fichajes-liga-1-2026-noticia/)
-- **¡Es oficial! Pablo Guede es el nuevo entrenador de Alianza Lima**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/alianza-lima-pablo-guede-es-nuevo-entrenador-del-club-blanquiazul-liga-1-noticia/)
-
-
-### bono onp (N/A, 12/12/2025 23:30 Lima)
-
-- **Propone retiro de 16,000 soles de la ONP y abre camino a un alivio económico para miles de aportantes**: [Link](https://comunicaciones.congreso.gob.pe/damos-cuenta/propone-retiro-de-16000-soles-de-la-onp-y-abre-camino-a-un-alivio-economico-para-miles-de-aportantes/)
-- **Retiro de ONP: Nuevo proyecto busca dar hasta S/16.050 a aportantes de su “dinero ahorrado”**: [Link](https://www.infobae.com/peru/2025/12/11/retiro-de-onp-nuevo-proyecto-busca-dar-hasta-s16050-a-aportantes-de-su-dinero-ahorrado/)
-- **Retiro de ONP, tal como en AFP: ¿Será posible para los afiliados?**: [Link](https://gestion.pe/tu-dinero/retiro-de-onp-es-realmente-posible-para-los-afiliados-noticia/)
 
 
