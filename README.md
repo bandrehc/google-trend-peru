@@ -1,3 +1,51 @@
+### memorias ram (N/A, 16/12/2025 11:36 Lima)
+
+- **El aumento del consumo de memoria puede afectar al precio y al rendimiento de tu próximo smartphone Android**: [Link](https://www.elpueblo.pe/ciencia-y-tecnologia/el-aumento-del-consumo-de-memoria-puede-afectar-al-precio-y-al-rendimiento-de-tu-proximo-smartphone-android/166279/)
+- **Escasez de DRAM, demanda de IA y aumento de precios: lo que ha quebrado el mercado de la memoria**: [Link](https://www.elpueblo.pe/ciencia-y-tecnologia/escasez-de-dram-demanda-de-ia-y-aumento-de-precios-lo-que-ha-quebrado-el-mercado-de-la-memoria/159694/)
+
+
+### ticket master (N/A, 16/12/2025 11:36 Lima)
+
+- **Live Nation, Ticketmaster must face sprawling class action over prices**: [Link](https://www.cnbc.com/2025/12/12/live-nation-ticketmaster-must-face-sprawling-class-action-over-prices-.html)
+- **Canceling the Antitrust Show? Live Nation-Ticketmaster’s Latest Attempt To Keep Its Monopoly**: [Link](https://www.promarket.org/2025/12/11/canceling-the-antitrust-show-live-nation-ticketmasters-latest-attempt-to-keep-its-monopoly/)
+- **Ticketmaster under fire - Here's all about the monopoly case that could cost billions**: [Link](https://m.economictimes.com/news/international/us/ticketmaster-under-fire-heres-all-about-the-monopoly-case-that-could-cost-billions/articleshow/125916858.cms)
+
+
+### avengers doomsday (N/A, 16/12/2025 11:36 Lima)
+
+- **'Avengers: Doomsday' Trailers: Thor & Doom Receive Trailers + Full Teaser Audio Description (Exclusive)**: [Link](https://featurefirst.net/avengers-doomsday-trailers-thor-doom-exclusive/)
+- **Leaked Footage Confirms Steve Rogers Returns to Marvel Cinematic Universe as a Father**: [Link](https://www.inkl.com/news/leaked-footage-confirms-steve-rogers-returns-to-marvel-cinematic-universe-as-a-father)
+- **What Chris Evans Said About ‘Avengers: Doomsday’ & If He’d Ever Return as Captain America**: [Link](https://www.justjared.com/2025/12/16/what-chris-evans-said-about-avengers-doomsday-if-hed-ever-return-as-captain-america/)
+
+
+### the best (N/A, 16/12/2025 11:36 Lima)
+
+- **FIFA The Best 2025: Santiago Montiel wins the Puskás award**: [Link](https://foot-africa.com/en/news/fifa-the-best-2025-santiago-montiel-wins-the-puskas-award-1004549/)
+- **2025 Puskas & Marta Awards: Lamine Yamal & Declan Rice beaten to FIFA goal prize as Lizbeth Ovalle's sensational scorpion kick wins Women's vote**: [Link](https://www.goal.com/en-sa/lists/2025-puskas-marta-awards-lamine-yamal-declan-rice-lizbeth-ovalle/blt5afc7f38c30e3f49)
+- **Lizbeth Ovalle wins FIFA’s Marta Award after stunning scorpion kick goal**: [Link](https://onefootball.com/en/news/lizbeth-ovalle-wins-fifas-marta-award-after-stunning-scorpion-kick-goal-42105141)
+
+
+### cementos pacasmayo (N/A, 16/12/2025 11:36 Lima)
+
+- **Holcim da el golpe y adquiere la participación mayoritaria de Cementos Pacasmayo por US$1.500 millones en Perú**: [Link](https://www.infobae.com/peru/2025/12/16/holcim-da-el-golpe-y-adquiere-la-participacion-mayoritaria-de-cementos-pacasmayo-por-us1500-millones-en-peru/)
+- **La suiza Holcim adquiere participación mayoritaria en Cementos Pacasmayo: ¿Qué implica para el sector construcción?**: [Link](https://rpp.pe/economia/negocios/la-suiza-holcim-adquiere-participacion-mayoritaria-en-cementos-pacasmayo-que-implica-para-el-sector-construccion-noticia-1668108)
+- **Holcim pagará US$ 1,500 millones para tomar control de Cementos Pacasmayo**: [Link](https://gestion.pe/economia/empresas/holcim-adquirira-participacion-mayoritaria-en-cementos-pacasmayo-noticia/)
+
+
+### rodrigo ureña (N/A, 16/12/2025 11:36 Lima)
+
+- **Rodrigo Ureña cerca de irse de Universitario: el caso con Millonarios y qué se sabe del interés de Alianza Lima**: [Link](https://depor.com/futbol-peruano/descentralizado/rodrigo-urena-deja-universitario-de-deportes-como-va-negociacion-con-millonarios-y-que-se-sabe-de-alianza-lima-al-acecho-fichajes-liga-1-2026-video-noticia/)
+- **Cantoro no se midió y dio fuerte comentario sobre el posible fichaje de Ureña a Alianza: "Creo..."**: [Link](https://libero.pe/futbol-peruano/alianza-lima/2025/12/15/mauro-cantoro-se-midio-dio-fuerte-comentario-posible-fichaje-de-rodrigo-urena-alianza-lima-creo-1371645)
+- **No solo Jairo Vélez: La figura de Universitario que Alianza Lima busca fichar de sorpresa**: [Link](https://bolavip.com/pe/liga-1/no-solo-jairo-velez-la-figura-de-universitario-que-alianza-lima-busca-fichar-de-sorpresa)
+
+
+### poder judicial (N/A, 16/12/2025 11:36 Lima)
+
+- **Poder Judicial suspende reposición de Delia Espinoza como Fiscal de la Nación**: [Link](https://peru21.pe/politica/poder-judicial-suspende-reposicion-de-delia-espinoza-como-fiscal-de-la-nacion/)
+- **TC OTORGÓ MEDIDA CAUTELAR A LA JNJ Y DISPUSO SUSPENDER RESOLUCIÓN JUDICIAL QUE ORDENABA REPOSICIÓN DE DELIA ESPINOZA COMO FISCAL DE LA NACIÓN | TC**: [Link](https://www.tc.gob.pe/institucional/notas-de-prensa/tc-otorgo-medida-cautelar-a-la-jnj-y-dispuso-suspender-resolucion-judicial/)
+- **Delia Espinoza: Juez Torres Tasso suspende proceso de amparo y medida cautelar de reposición en el cargo**: [Link](https://lpderecho.pe/delia-espinoza-juez-torres-tasso-suspende-proceso-amparo-medida-cautelar-reposicion-cargo/)
+
+
 ### fonavi (N/A, 16/12/2025 07:56 Lima)
 
 - **Lista 22 del Fonavi: Esta es la fecha de pago exacta que los fonavistas buscan aprobar**: [Link](https://www.infobae.com/peru/2025/12/10/cobro-de-la-lista-22-del-fonavi-la-fecha-exacta-en-que-los-fonavistas-buscan-acceder/)
@@ -982,53 +1030,5 @@ Sin noticias relacionadas disponibles.
 - **Barcelona vs Osasuna: alineaciones, Jornada 16, LaLiga**: [Link](https://www.espn.com.ar/futbol/nota/_/id/16077728/barcelona-vs-osasuna-alineaciones-jornada-16-laliga)
 - **Flick, con retoques mínimos ante Osasuna**: [Link](https://www.sport.es/es/noticias/barca/flick-retoques-minimos-osasuna-124729248)
 - **Apuestas y Pronóstico del Barcelona vs Osasuna 13/12/25**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/2025/diciembre/pronostico-barcelona-vs-osasuna-13-12-25)
-
-
-### taylor swift (N/A, 13/12/2025 03:31 Lima)
-
-- **Taylor Swift reveals moment she broke down over Southport attack in new documentary**: [Link](https://www.bbc.com/news/articles/czxgnqx1yplo)
-- **Taylor Swift Eras Tour Docuseries on Disney+ December 12 | Explore Disney+**: [Link](https://www.disneyplus.com/en-gb/explore/articles/taylor-swift-the-eras-tour)
-- **Taylor Swift reveals obsessions, strengths and fears in new documentary: ‘I don’t want to be tracked like an animal, I’ve just felt very hunted lately’**: [Link](https://english.elpais.com/culture/2025-12-12/taylor-swift-reveals-obsessions-strengths-and-fears-in-new-documentary-i-dont-want-to-be-tracked-like-an-animal-ive-just-felt-very-hunted-lately.html)
-
-
-### chelsea vs everton (N/A, 13/12/2025 03:31 Lima)
-
-- **Maresca provides latest on Palmer, Fofana and Delap | News | Official Site**: [Link](https://www.chelseafc.com/en/news/article/enzo-maresca-delivers-chelsea-team-news-ahead-of-everton-december-2025)
-- **Rotation kings face consistency loyalists in a Stamford Bridge battle**: [Link](https://www.besoccer.com/new/rotation-kings-face-consistency-loyalists-in-a-stamford-bridge-battle-1385409)
-- **Maresca “completely relaxed” after slump in form; tells fans “that’s football”**: [Link](https://onefootball.com/id/berita/maresca-completely-relaxed-after-slump-in-form-tells-fans-thats-football-42086881)
-
-
-### flamengo vs pyramids (N/A, 13/12/2025 03:31 Lima)
-
-- **Jurčić Fires Up the Challenge: Flamengo Clash the Most Important in Pyramids’ History**: [Link](https://koorabreak.com/en/230054/)
-- **Jurčić: I Fully Recognize Flamengo's Strength... And I Call on Egyptian Fans to Support Us**: [Link](https://www.ysscores.com/en/news/13871024/Jur%C4%8Di%C4%87:-I-Fully-Recognize-Flamengo's-Strength...-And-I-Call-on-Egyptian-Fans-to-Support-Us)
-- **FIFA Intercontinental Cup: Pyramids learn their next opponent**: [Link](https://sports.yahoo.com/articles/fifa-intercontinental-cup-pyramids-learn-110000220.html)
-
-
-### venezuela (N/A, 13/12/2025 03:31 Lima)
-
-- **Veterano de las fuerzas especiales de EE.UU. que ayudó a Machado a salir de Venezuela le suplica que no regrese**: [Link](https://cnnespanol.cnn.com/2025/12/12/mundo/veterano-ee-uu-ayudo-machado-venezuela-trax)
-- **La odisea para salir de Venezuela, la oposición a Maduro y las críticas a España: María Corina Machado habla en Oslo**: [Link](https://elpais.com/expres/2025-12-13/la-odisea-para-salir-de-venezuela-la-oposicion-a-maduro-y-las-criticas-a-espana-maria-corina-machado-habla-en-oslo.html)
-- **"Dinamita dorada": así fue la operación secreta para sacar de Venezuela a María Corina Machado, según el exmilitar que la dirigió**: [Link](https://www.bbc.com/mundo/articles/c93nn9wk51eo)
-
-
-### mavericks - nets (N/A, 13/12/2025 03:31 Lima)
-
-- **Mavericks vs Nets Preview and Injury Update: Welcome back, basketball**: [Link](https://sports.yahoo.com/articles/mavericks-vs-nets-preview-injury-003000486.html)
-- **Game Recap: Mavericks 119, Nets 111**: [Link](https://www.nba.com/watch/video/game-recap-mavericks-119-nets-111)
-- **Stats Rundown: 3 numbers to know from a Mavericks win over the Nets**: [Link](https://www.mavsmoneyball.com/dallas-mavericks-game-coverage/53650/stats-rundown-3-numbers-to-know-from-a-mavericks-win-over-the-nets)
-
-
-### dimelo bajito (N/A, 13/12/2025 03:31 Lima)
-
-- **Dímelo bajito, actores y personajes: guía del elenco de la película española de Amazon Prime Video | MAG**: [Link](https://elcomercio.pe/mag/fama/que-ver/dimelo-bajito-actores-y-personajes-guia-del-elenco-de-la-pelicula-espanola-de-amazon-prime-video-tell-me-softly-nnda-nnlt-noticia/)
-- **La sucesora de Culpa Mía llega este viernes a Prime Video: así es la nueva serie adolescente con triángulo amoroso**: [Link](https://www.adslzone.net/noticias/streaming-tv/sucesora-culpa-mia-prime-video-triangulo-amoroso/)
-- **Mercedes Ron, autora de Culpa mía, habla sobre cómo se prepara para repetir el fenómeno con Dímelo bajito**: [Link](https://www.fmdos.cl/noticias/mercedes-ron-autora-de-culpa-mia-habla-sobre-como-se-prepara-para-repetir-el-fenomeno-con-dimelo-bajito/)
-
-
-### diego bertie (N/A, 13/12/2025 03:31 Lima)
-
-- **Yo Soy conciertos 2025: imitador de Diego Bertie dejó al público ANONADADO y EMOCIONADO por su interpretación de “Qué Difícil Es Amar”**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-conciertos-2025-imitador-de-diego-bertie-dejo-al-publico-anonadado-y-emocionado-por-su-interpretacion-de-que-dificil-es-amar_20251212/)
-- **Yo Soy conciertos 2025: ¡BRILLÓ CON EL CORAZÓN! Una noche llena de sensibilidad al estilo Diego Bertie**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-conciertos-2025-brillo-con-el-corazon-una-noche-llena-de-sensibilidad-al-estilo-diego-bertie_20251210/)
 
 
