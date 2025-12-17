@@ -1,3 +1,64 @@
+### categoría primera a (N/A, 16/12/2025 20:59 Lima)
+
+- **Máximos campeones de la Liga BetPlay en la historia**: [Link](https://www.365scores.com/es/news/maximos-campeones-de-liga-betplay/)
+- **Así está el palmarés de los torneos cortos en la Liga BetPlay**: [Link](https://www.winsports.co/futbol-colombiano/noticias/asi-esta-el-palmares-de-los-torneos-cortos-en-la-liga-betplay-399101)
+- **El autosabotaje de las finales: el FPC define a sus campeones**: [Link](https://www.elespectador.com/deportes/futbol-colombiano/el-autosabotaje-de-las-finales-el-fpc-define-a-sus-campeones/)
+
+
+### vacancia por incapacidad moral permanente (N/A, 16/12/2025 20:59 Lima)
+
+- **Dina Boluarte: PJ admite demanda para anular su vacancia y fija audiencia para marzo de 2026**: [Link](https://www.infobae.com/peru/2025/12/16/dina-boluarte-pj-admite-demanda-para-anular-su-vacancia-pero-fija-audiencia-para-marzo-de-2026/)
+- **Poder Judicial admite demanda de Dina Boluarte contra vacancia y fija audiencia virtual para el 12 de marzo**: [Link](https://canaln.pe/actualidad/poder-judicial-admite-demanda-dina-boluarte-vacancia-n488975)
+- **Dina Boluarte: Poder Judicial admite demanda para anular vacancia, ¿qué puede pasar?**: [Link](https://gestion.pe/peru/politica/dina-boluarte-poder-judicial-admite-demanda-para-anular-vacancia-noticia/)
+
+
+### tolima - junior (N/A, 16/12/2025 20:59 Lima)
+
+- **Tolima vs. Junior: Enamorado encamina el título con golazos y final perfecta**: [Link](https://www.espn.com.ar/futbol/colombia/nota/_/id/16091926/tolima-vs-junior-enamorado-encamina-el-titulo-con-golazos-y-final-perfecta)
+- **Tolima: Lucas González pide 'manejar' provocaciones de Teo, que "lo volverá a hacer"**: [Link](https://espndeportes.espn.com/futbol/colombia/nota/_/id/16088388/lucas-gonzalez-deportes-tolima-vs-junior-pide-manejar-provocaciones-teo-gutierrez)
+- **¿Se puede remontar un 3-0 en una final? Lo que dicen las apuestas (y la historia)**: [Link](https://www.eltiempo.com/apuestas-deportivas/remontadas-historicas-finales-colombia-apuestas-3517260)
+
+
+### the strongest vs nacional potosi (N/A, 16/12/2025 20:59 Lima)
+
+Sin noticias relacionadas disponibles.
+
+
+### the strongest (N/A, 16/12/2025 20:59 Lima)
+
+- **Ukraine Plan Calls For Enhanced Military, With U.S. and European Backup**: [Link](https://www.nytimes.com/2025/12/16/world/europe/ukraine-security-guarantees-talks.html)
+- **Zelenskyy says no consensus reached on territory after US-Ukraine peace talks**: [Link](https://abcnews.go.com/International/zelenskyy-consensus-reached-territory-after-us-ukraine-peace/story?id=128443493)
+- **As the US, Ukraine, and Europe talk of peace, Russia still thinks only of surrender**: [Link](https://www.atlanticcouncil.org/dispatches/as-the-us-ukraine-and-europe-talk-of-peace-russia-still-thinks-only-of-surrender/)
+
+
+### sergio ramos (N/A, 16/12/2025 20:59 Lima)
+
+- **Manu Tenorio cuando le preguntan por Sergio Ramos y su nueva faceta musical**: [Link](https://www.europapress.tv/reportajes/1036388/1/manu-tenorio-cuando-le-preguntan-sergio-ramos-nueva-faceta-musical)
+- **Manu Tenorio atiza a Sergio Ramos por su despegue como cantante tras abandonar el Monterrey mexicano.**: [Link](https://www.infobae.com/america/agencias/2025/12/16/manu-tenorio-atiza-a-sergio-ramos-por-su-despegue-como-cantante-tras-abandonar-el-monterrey-mexicano/)
+- **El dardo de Manu Tenorio a Sergio Ramos: "Hoy en día no hace falta cantar para cantar"**: [Link](https://www.libertaddigital.com/chic/corazon/2025-12-16/el-dardo-de-manu-tenorio-a-sergio-ramos-hoy-en-dia-no-hace-falta-cantar-para-cantar-7334330/)
+
+
+### psv vs (N/A, 16/12/2025 20:59 Lima)
+
+- **All About | Six years ago, PSV almost tripped over GVVV**: [Link](https://www.psv.nl/en/media/artikel/alles-over-zes-jaar-geleden-struikelde-psv-bijna-over-gvvv)
+- **Preview: PSV Eindhoven vs GVVV - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/psv-eindhoven/knvb-beker/preview/psv-vs-gvvv-prediction-team-news-lineups_587821.html)
+- **KNVB Beker News: PSV Eindhoven vs GVVV Confirmed Line-ups**: [Link](https://footballpredictions.net/gvvv-v-psv-team-news-confirmed-lineups)
+
+
+### america tv (N/A, 16/12/2025 20:59 Lima)
+
+- **Debut del Real Madrid y Barcelona en Copa del Rey por América TV**: [Link](https://www.americatv.com.pe/deportes/futbol-mundial/debut-real-madrid-y-barcelona-copa-rey-america-tv-n451993)
+- **Copa del Rey: canales de TV adquirieron los derechos de TV en Latinoamérica y resto del Mundo**: [Link](https://www.365scores.com/es/news/copa-del-rey-hoy-canales-derechos-latam/)
+- **Copa del Rey con Real Madrid: Transmisión por televisión y transmisión en vivo**: [Link](https://www.realtotal.de/es/copa-del-rey-real-madrid-uebertragung-tv-livestream-dazn-2025-26-spanien-pokal/)
+
+
+### incendio en la victoria (N/A, 16/12/2025 20:59 Lima)
+
+- **Incendio en La Victoria: Emergencia moviliza a Bomberos a casona usada como almacén de bicicletas en Jirón Raymondi**: [Link](https://www.infobae.com/peru/2025/12/16/incendio-en-la-victoria-emergencia-moviliza-nueve-unidades-de-bomberos-al-jiron-antonio-raymondi/)
+- **La Victoria: Incendio en almacén de ropa moviliza a cinco unidades de bomberos**: [Link](https://www.atv.pe/noticia/la-victoria-incendio-en-almacen-de-ropa-moviliza-a-cinco-unidades-de-bomberos/)
+- **La Victoria: se registra incendio en un depósito de bicicletas en el jirón Antonio Raymondi**: [Link](https://rpp.pe/lima/accidentes/la-victoria-se-registra-incendio-en-un-deposito-de-bicicletas-en-el-jiron-antonio-raymondi-noticia-1668153)
+
+
 ### cd eldense - real sociedad (N/A, 16/12/2025 15:30 Lima)
 
 - **Apuestas y pronósticos Eldense vs Real Sociedad**: [Link](https://www.marca.com/apuestas-deportivas/predicciones/2025/12/15/apuestas-pronosticos-eldense-vs-real-sociedad.html)
@@ -969,68 +1030,5 @@
 - **How to watch today's Paris FC vs Toulouse Ligue 1 game: Live stream, TV channel, and start time**: [Link](https://www.goal.com/en-us/news/watch-paris-fc-vs-toulouse-ligue-1-game-live-stream-tv-channel-start-time/blt00ff6effeb9fe882)
 - **Paris FC vs Toulouse Prediction, 12/13/2025 Soccer Pick, Tips and Odds**: [Link](https://www.docsports.com/free-picks/soccer/2025/paris-fc-vs-toulouse-prediction-12-13-2025-soccer-pick-tips-and-odds.html)
 - **Ligue 1 News: Paris FC vs Toulouse Confirmed Line-ups**: [Link](https://footballpredictions.net/paris-fc-v-toulouse-team-news-confirmed-lineups)
-
-
-### getafe vs espanyol (N/A, 13/12/2025 15:26 Lima)
-
-- **Getafe vs Espanyol: Predictions, Betting odds, Lineups, Preview**: [Link](https://www.bwin.com/en/news/match-preview-getafe-espanyol-la-liga-gameweek-16/)
-- **Where to Watch Getafe CF vs. Espanyol: TV Channel, Start Time and Live Stream**: [Link](https://www.bleachernation.com/how-to-watch/2025/12/12/where-to-watch-getafe-cf-vs-espanyol-tv-channel-start-time-and-live-stream-2/)
-- **Getafe vs Espanyol Prediction, 12/13/2025 Soccer Pick, Tips and Odds**: [Link](https://www.docsports.com/free-picks/soccer/2025/getafe-vs-espanyol-prediction-12-13-2025-soccer-pick-tips-and-odds.html)
-
-
-### atalanta (N/A, 13/12/2025 15:26 Lima)
-
-- **Serie A: Cagliari visita a Atalanta por la fecha 15**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-cagliari-visita-a-atalanta-por-la-fecha-15-noticia-1667610)
-- **El Atalanta BC recibirá al Cagliari en un choque crucial de la Serie A**: [Link](https://www.ucvradio.pe/mas-actualidad/el-atalanta-bc-recibira-al-cagliari-en-un-choque-crucial-de-la-serie-a/75291/)
-- **Malinowski perseguido por los mejores clubes, Napoli-Atalanta, Dumfries en duda**: [Link](https://www.elpueblo.pe/deportes/malinowski-perseguido-por-los-mejores-clubes-napoli-atalanta-dumfries-en-duda/163684/)
-
-
-### universitario vs alianza lima femenino (N/A, 13/12/2025 15:26 Lima)
-
-- **A qué hora juega Alianza Lima vs Universitario HOY: partido por final vuelta de la Liga Femenina 2025**: [Link](https://www.infobae.com/peru/deportes/2025/12/13/a-que-hora-juega-alianza-lima-vs-universitario-partido-vidu-final-vuelta-liga-femenina-2025-horario/)
-- **Alianza Lima vs Universitario femenino: íntimos se quejan sede por la sede de la final de vuelta de la Liga Femenina 2025**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/alianza-lima-vs-universitario-femenino-intimos-se-quejan-sede-por-la-sede-de-la-final-de-vuelta-de-la-liga-femenina-2025-noticia/)
-- **Canales de TV para ver Universitario vs. Alianza Lima: horarios de la final de Liga Femenina**: [Link](https://depor.com/futbol-peruano/futbol-femenino/universitario-de-deportes-vs-alianza-lima-en-vivo-fecha-horarios-y-canales-de-tv-donde-ver-transmision-gratis-por-la-liga-femenina-2025-noticia/)
-
-
-### sporting lisboa (N/A, 13/12/2025 15:26 Lima)
-
-- **Revolução no onze do Sporting com grande ausência**: [Link](https://www.abola.pt/noticias/revolucao-no-onze-do-sporting-com-grande-ausencia-2025121319273617043)
-- **«Não é o adversário ideal»**: [Link](https://www.pressreader.com/portugal/a-bola-358A/20251213/281595246863120)
-- **Obras vão condicionar acessos ao Estádio José Alvalade no jogo com o AVS SAD**: [Link](https://www.record.pt/futebol/futebol-nacional/liga-betclic/sporting/detalhe/obras-vao-condicionar-acessos-ao-estadio-jose-alvalade-no-jogo-com-o-avs-sad)
-
-
-### rennes vs (N/A, 13/12/2025 11:30 Lima)
-
-- **Where to Watch Stade Rennes vs. Stade Brest 29: TV Channel, Start Time and Live Stream**: [Link](https://www.bleachernation.com/how-to-watch/2025/12/12/where-to-watch-stade-rennes-vs-stade-brest-29-tv-channel-start-time-and-live-stream-2/)
-- **Rennes vs Brest Prediction, 12/13/2025 Soccer Pick, Tips and Odds**: [Link](https://www.docsports.com/free-picks/soccer/2025/rennes-vs-brest-prediction-12-13-2025-soccer-pick-tips-and-odds.html)
-- **Rennes vs Brest kicks off today with both teams desperate for European spots, but one shocking recent stat might change everything**: [Link](https://www.red94.net/news/14368-rennes-vs-brest-kicks-off-today-in-ligue-1-clash-both-teams-eyeing-european-spot/)
-
-
-### jeriel de santis (N/A, 13/12/2025 11:30 Lima)
-
-- **Vuelve al fútbol peruano: Jeriel De Santis se convirtió en nuevo jugador de Melgar**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/jeriel-de-santis-se-convirtio-en-nuevo-jugador-de-melgar-liga-1-noticia/)
-- **Melgar da el golpe con Reynoso, ficha a exdelantero de Alianza Lima y sacude la Liga 1**: [Link](https://bolavip.com/pe/liga-1/melgar-da-el-golpe-con-reynoso-ficha-a-exdelantero-de-alianza-lima-y-sacude-la-liga-1)
-- **(VIDEO) ¡Se muda a Arequipa! Jeriel de Santis jugará por FBC Melgar en 2026**: [Link](https://ovacion.pe/noticias/fbc-melgar/video-se-muda-arequipa-jeriel-santis-jugara-fbc-melgar-2026)
-
-
-### mallorca vs (N/A, 13/12/2025 11:30 Lima)
-
-- **Takuma Asano vs. Elche CF – Player props & odds to score a goal on December 13**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/12/12/takuma-asano-soccer-player-props-12-13-2025/87743209007/)
-- **Mallorca - Elche live**: [Link](https://www.marca.com/en/soccer/laliga-ea-sports/mallorca-elche/2025/12/13/01_0101_20251213_181_954-live.html)
-- **Preview: Mallorca vs Elche - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/mallorca/preview/mallorca-vs-elche-prediction-team-news-lineups_587616.html)
-
-
-### rennes - stade brestois (N/A, 13/12/2025 11:30 Lima)
-
-- **Rennes - Brest : les Rennais doivent remettre la main sur le derby**: [Link](https://www.sportytrader.com/actualite/rennes-brest-rennais-veulent-remettre-la-main-sur-le-derby-13-12-2025/)
-- **Stade Rennais - Stade Brestois en direct - Ligue 1 : Football Scores & Résultats - 13/12/2025**: [Link](https://www.eurosport.fr/football/ligue-1/2025-2026/live-stade-rennais-stade-brestois_mtc1609247/live-commentary.shtml)
-- **L1 : Rennes-Brest, les compos**: [Link](https://news.maxifoot.fr/ligue-1/rennes-brest-les-compos-foot-446372.htm)
-
-
-### dólar hoy perú (N/A, 13/12/2025 11:30 Lima)
-
-- **Precio del dólar cae: Así cerró el tipo de cambio hoy 11 de diciembre en Perú**: [Link](https://www.infobae.com/peru/2025/12/10/dolar-cotizacion-de-apertura-hoy-10-de-diciembre-en-peru/)
-- **Precio del dólar este sábado 13 de diciembre: Así cotiza el tipo de cambio HOY en Perú**: [Link](https://www.exitosanoticias.pe/actualidad/precio-dolar-sabado-13-diciembre-asi-cotiza-tipo-cambio-hoy-peru-n164594)
-- **Precio del dólar del jueves 11 de diciembre: a cuánto cerró el tipo de cambio**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-2025-a-cuanto-esta-el-dolar-el-jueves-11-de-diciembre-y-tipo-de-cambio-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
 
 
