@@ -1,3 +1,38 @@
+### hora (N/A, 17/12/2025 03:37 Lima)
+
+- **PSG vs Flamengo: posibles alineaciones, Copa Intercontinental**: [Link](https://espndeportes.espn.com/futbol/nota/_/id/16089888/psg-vs-flamengo-alineaciones-copa-intercontinental-2025-que-debes-saber)
+- **PSG | Luis Enrique, a completar el sextete ante Filipe Luis: "Seguimos en la línea de querer hacer historia"**: [Link](https://espanol.eurosport.com/futbol/fifa-intercontinental-cup/2025/psg-luis-enrique-a-completar-el-sextete-ante-filipe-luis-seguimos-en-la-linea-de-querer-hacer-historia_vid60042351/video.shtml)
+- **Luis Enrique: “Sé de la importancia de este partido, representa mucho para este club”**: [Link](https://ovacion.pe/noticias/futbol-internacional/luis-enrique-se-importancia-este-partido-representa-mucho-este-club)
+
+
+### avatar 3 (N/A, 17/12/2025 03:37 Lima)
+
+- **Avatar: Fire and Ash First Reviews: Familiar, but Still a Spectacle to Behold**: [Link](https://editorial.rottentomatoes.com/article/avatar-fire-and-ash-first-reviews/)
+- **‘Avatar: Fire and Ash’ Review: For the First Time in His Spectacular Career, James Cameron Delivers a Movie That Feels Like Something You’ve Seen Before**: [Link](https://www.indiewire.com/criticism/movies/avatar-fire-and-ash-movie-review-james-cameron-1235167902/)
+- **Avatar Used to Be Revolutionary. Three Movies in, the Franchise Has Lost Its Wonder**: [Link](https://time.com/7341098/avatar-fire-and-ash-review/)
+
+
+### jorge gonzalez (N/A, 17/12/2025 03:37 Lima)
+
+- **Jorge González es ELIMINADO tras una INTENSA noche de COMPETENCIA: “No imaginaba que tanta gente realmente me iba a apoyar”**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/jorge-gonzalez-es-eliminado-tras-una-intensa-noche-de-competencia-no-imaginaba-que-tanta-gente-realmente-me-iba-a-apoyar_20251217/)
+- **Yo Soy EN VIVO 2025: Jorge González y Enrique Bumbury REVIENTAN el set a base de PURO ROCK con “Paramar”**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-en-vivo-2025-jorge-gonzalez-y-enrique-bumbury-revientan-el-set-a-base-de-puro-rock-con-paramar_20251216/)
+- **Yo Soy conciertos 2025: ¡SU MEJOR VERSIÓN HASTA HOY! Jorge González brilló con “El baile de los que sobran”**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-conciertos-2025-su-mejor-version-hasta-hoy-jorge-gonzalez-brillo-con-el-baile-de-los-que-sobran_20251215/)
+
+
+### objeto interestelar 3i atlas cometa (N/A, 17/12/2025 03:37 Lima)
+
+- **El cometa 3I/ATLAS alcanzará su máxima proximidad a la Tierra esta semana**: [Link](https://www.infobae.com/america/ciencia-america/2025/12/16/el-cometa-3iatlas-alcanzara-su-maxima-proximidad-a-la-tierra-esta-semana/)
+- **Qué significa que el Sistema de Alertas de la ONU esté investigando el cometa 3I/Atlas**: [Link](https://www.nationalgeographic.com.es/ciencia/que-significa-que-sistema-alertas-onu-este-investigando-comenta-3iatlas-cara-a-su-aproximacion-19-diciembre_27033)
+- **Cometa 3I/ATLAS: ¿Por qué la NASA y agencias espaciales activaron ejercicios de defensa planetaria ante su acercamiento?**: [Link](https://rpp.pe/ciencia/espacio/cometa-3i-atlas-por-que-nasa-y-agencias-activaron-defensa-planetaria-ante-cercania-del-objeto-interestelar-a-la-tierra-noticia-1668198)
+
+
+### yo soy en vivo (N/A, 17/12/2025 03:37 Lima)
+
+- **Yo Soy EN VIVO 2025: Encuesta del REACT, Martes 16 de Diciembre**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-en-vivo-2025-encuesta-del-react-martes-16-de-diciembre_20251216/)
+- **Yo Soy conciertos 2025: ¡Green Day desata su versión más teatral y sólida con “She”!**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-conciertos-2025-green-day-desata-su-version-mas-teatral-y-solida-con-she_20251215/)
+- **Imitadores de Green Day brindaron arriesgada presentación en ‘Yo Soy’ y Carlos Alcántara suelta lisura de la emoción**: [Link](https://www.infobae.com/peru/2025/12/16/imitadores-de-green-day-brindaron-arriesgada-presentacion-en-yo-soy-y-carlos-alcantara-suelta-lisura-de-la-emocion/)
+
+
 ### flamengo vs psg hora peruana (N/A, 16/12/2025 23:36 Lima)
 
 - **PSG vs Flamengo: posibles alineaciones, Copa Intercontinental**: [Link](https://espndeportes.espn.com/futbol/nota/_/id/16089888/psg-vs-flamengo-alineaciones-copa-intercontinental-2025-que-debes-saber)
@@ -995,40 +1030,5 @@ Sin noticias relacionadas disponibles.
 - **22:30 Los Alamitos Racecourse - 14 December 2025 - Racecard - Horse Racing**: [Link](https://www.sportinglife.com/racing/racecards/2025-12-14/los-alamitos-racecourse/racecard/894570/race-6-allowance-optional-claiming)
 - **14/12/2025 Horse Racing Tips and Best Bets – Moe**: [Link](https://www.justhorseracing.com.au/tips/14-12-2025-horse-racing-tips-and-best-bets-moe/874939)
 - **An Early Look - Moe**: [Link](https://www.racing.com/news/2025/12/13/an-early-look-ben-asgari-moe-141225)
-
-
-### racing - estudiantes (N/A, 13/12/2025 21:10 Lima)
-
-- **Racing vs. Estudiantes, por la Final del Clausura: seguilo EN VIVO**: [Link](https://www.tycsports.com/liga-profesional-de-futbol/argentina-torneo-clausura-2025-racing-club-vs-estudiantes-final-id703619.html)
-- **¡Una Maravilla! Adrián Martínez marcó un golazo para Racing vs. Estudiantes en la final del Torneo Clausura 2025**: [Link](https://www.espn.com.ar/futbol/argentina/nota/_/id/16080845/video-gol-de-maravilla-martinez-racing-vs-estudiantes-final)
-- **Cuánto dinero ganará el campeón del Torneo Clausura: la abismal diferencia con otras ligas de Sudamérica y Europa**: [Link](https://www.infobae.com/deportes/2025/12/13/cuanto-dinero-ganara-el-campeon-del-torneo-clausura-la-abismal-diferencia-con-otras-ligas-de-sudamerica-y-europa/)
-
-
-### magic - knicks (N/A, 13/12/2025 21:10 Lima)
-
-- **Knicks vs. Magic (Dec 13, 2025) Live Score**: [Link](https://www.espn.com/nba/game/_/gameId/401809837/knicks-magic)
-- **Jalen Suggs, Jalen Brunson duel in first half of Emirates NBA Cup 2025**: [Link](https://www.nba.com/watch/video/top-2-pointers-3-pointers-from-orlando-magic-vs-new-york-knicks)
-- **Spurs vs. Thunder FREE LIVE STREAM (12/13/25): How to watch NBA Cup semifinals**: [Link](https://www.nj.com/tv/2025/12/spurs-vs-thunder-free-live-stream-121325-how-to-watch-nba-cup-semifinals.html)
-
-
-### accion popular (N/A, 13/12/2025 21:10 Lima)
-
-- **JNE anula elecciones primarias de Acción Popular por tener «vicios sustanciales»**: [Link](https://lpderecho.pe/jne-anula-elecciones-primarias-accion-popular-tener-vicios-sustanciales/)
-- **Acción Popular queda fuera de las Elecciones 2026 tras anularse sus primarias: claves de la decisión del JNE**: [Link](https://www.infobae.com/peru/2025/12/13/accion-popular-queda-fuera-de-las-elecciones-2026-tras-anularse-sus-primarias-claves-de-la-decision-del-jne/)
-- **JNE declara nulas las elecciones primarias de Acción Popular para los comicios generales de 2026**: [Link](https://rpp.pe/politica/elecciones/jne-declara-nulas-las-elecciones-primarias-de-accion-popular-para-las-elecciones-generales-de-2026-noticia-1667828)
-
-
-### yerson mosquera (N/A, 13/12/2025 21:10 Lima)
-
-- **La suerte de tener a Saka**: [Link](https://as.com/futbol/internacional/la-suerte-de-tener-a-saka-f202512-n/)
-- **Dura advertencia de Arteta tras sufrir para vencer a Wolves**: [Link](https://espndeportes.espn.com/futbol/inglaterra/nota/_/id/16080528/mikel-arteta-arsenal-vs-wolves-premier-league)
-- **Así fue el partido de Piero Hincapié en el triunfo de Arsenal vs. Wolves**: [Link](https://www.espn.com.ar/futbol/inglaterra/nota/_/id/16080126/arsenal-vs-wolverhampton-asi-fue-el-partido-de-piero-hincapie)
-
-
-### joran van der sloot (N/A, 13/12/2025 21:10 Lima)
-
-- **🔴🔵 ¡Lo último! A través de un breve comunicado, el Instituto Nacional Penitenciario confirmó que Joran Van der Sloot intentó quitarse la vida al interior de su celda en el penal de Challapalca durante la mañana de este sábado 13 de diciembre. 🌐Más informa**: [Link](https://www.facebook.com/Exitosanoticias/posts/-lo-%C3%BAltimo-a-trav%C3%A9s-de-un-breve-comunicado-el-instituto-nacional-penitenciario-c/1299379725558416/)
-- **Joran van der Sloot: Reportan que neerlandés habría intentado quitarse la vida en su celda del penal Challapalca**: [Link](https://www.infobae.com/peru/2025/12/13/joran-van-der-sloot-reportan-que-neerlandes-habria-intentado-quitarse-la-vida-en-su-celda-del-penal-challapalca/)
-- **Joran van der Sloot es hallado en estado grave en el interior de su celda en Challapalca**: [Link](https://diariocorreo.pe/edicion/tacna/joran-van-der-sloot-es-hallado-en-estado-grave-en-el-interior-de-su-celda-en-challapalca-noticia/)
 
 
