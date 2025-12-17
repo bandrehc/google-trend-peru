@@ -1,3 +1,73 @@
+### america tv (N/A, 17/12/2025 15:30 Lima)
+
+- **Debut del Real Madrid y Barcelona en Copa del Rey por América TV**: [Link](https://www.americatv.com.pe/deportes/futbol-mundial/debut-real-madrid-y-barcelona-copa-rey-america-tv-n451993)
+- **Canal peruano transmitirá GRATIS partidos de Barcelona y Real Madrid: cómo y dónde ver**: [Link](https://libero.pe/futbol-internacional/2025/12/14/america-tv-canal-peruano-transmitira-gratis-partidos-de-barcelona-real-madrid-como-ver-senal-abierta-via-canal-4-america-tvgo-443366)
+- **Gisela Valcárcel suspende fiesta de fin de año tras decisión de su equipo de ‘América Hoy’ de quedarse en América TV**: [Link](https://www.infobae.com/peru/2025/12/16/gisela-valcarcel-suspende-fiesta-de-fin-de-ano-tras-decision-de-su-equipo-de-america-hoy-de-quedarse-en-america-tv/)
+
+
+### city (N/A, 17/12/2025 15:30 Lima)
+
+- **¡EN VIVO! Manchester City recibe a Brentford en cuartos de final de la Copa de la Liga**: [Link](https://www.espn.com.pe/futbol/inglaterra/nota/_/id/16086777/manchester-city-vs-brentford-cuartos-de-final-copa-de-la-liga-equipo-fecha-hora-tv-en-vivo)
+- **Pronósticos Manchester City FC vs Brentford FC: apuestas apuntan a goleada de los Citizens**: [Link](https://depor.com/apuestas-deportivas/manchester-city-fc-vs-brentford-fc-pronosticos-apuestas-cuotas-17-12-2025-2/)
+- **Manchester City vs. Brentford EN VIVO y GRATIS por la EFL Cup: minuto a minuto**: [Link](https://bolavip.com/pe/premier-league/manchester-city-vs-brentford-en-vivo-y-gratis-por-la-efl-cup-minuto-a-minuto)
+
+
+### farense - benfica (N/A, 17/12/2025 15:30 Lima)
+
+- **Este é o 11 do Benfica para o jogo com o Farense**: [Link](https://onefootball.com/pt-br/noticias/este-e-o-11-do-benfica-para-o-jogo-com-o-farense-42110626)
+- **AO VIVO: Regresso de Manu Silva e uma nova frente de ataque no onze do Benfica**: [Link](https://www.flashscore.pt/noticias/futebol-taca-de-portugal-ao-vivo-grande-novidade-no-onze-do-benfica/4jhUXuYI/)
+- **Banjaqui estreante e Manu Silva titular**: [Link](https://www.pressreader.com/portugal/a-bola-358A/20251217/281578067001370)
+
+
+### champions femenina (N/A, 17/12/2025 15:30 Lima)
+
+- **Clasificar en el top 4, la tarea de Linda con Real Madrid en Women's Champions League 2025-2026**: [Link](https://www.espn.com.ar/futbol/champions-league/nota/_/id/16089735/twente-fc-vs-real-madrid-fecha-6-fase-liga-champions-femenina-2025-2026-equipo-fecha-hora-y-tv-en-vivo)
+- **Pau Quesada: "Tenemos que enfocarnos en lo que podemos controlar"**: [Link](https://www.infobae.com/america/agencias/2025/12/16/pau-quesada-tenemos-que-enfocarnos-en-lo-que-podemos-controlar/)
+- **Las cuentas del Real Madrid para clasificarse a cuartos de final de la Champions League femenina**: [Link](https://okdiario.com/diariomadridista/real-madrid/cuentas-del-real-madrid-clasificarse-cuartos-final-champions-league-femenina-588546)
+
+
+### paris football club femenino - barcelona (N/A, 17/12/2025 15:30 Lima)
+
+- **Paris FC - FC Barcelona en directo: UEFA Champions League Femenina hoy en vivo**: [Link](https://as.com/futbol/femenino/paris-fc-fc-barcelona-en-directo-uefa-champions-league-femenina-hoy-en-vivo-f202512-d/)
+- **El Barça femenino, a rematar el trabajo en París**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20251217/1002588117/barca-femenino-rematar-trabajo-paris.html)
+- **El Barça sellará en París su pase a cuartos**: [Link](https://www.msn.com/es-es/deportes/futbol/el-bar%C3%A7a-sellar%C3%A1-en-par%C3%ADs-su-pase-a-cuartos/ar-AA1Sv9YZ)
+
+
+### newcastle - fulham (N/A, 17/12/2025 15:30 Lima)
+
+- **Latest. Confirmed line-up: Six changes for Fulham quarter-final clash**: [Link](https://www.newcastleunited.com/en/news/confirmed-line-up-six-changes-for-fulham-quarter-final-clash)
+- **It’s time for Eddie Howe to give Nick Woltemade exactly what he wants vs Fulham**: [Link](https://www.geordiebootboys.com/opinion/its-time-for-eddie-howe-to-give-nick-woltemade-exactly-what-he-wants-vs-fulham/)
+- **Newcastle vs Fulham: Get £30 in Carabao Cup free bets with William Hill**: [Link](https://www.thesun.co.uk/sport/37640970/newcastle-fulham-carabao-cup-free-bets-william-hill/)
+
+
+### alavés - sevilla (N/A, 17/12/2025 15:30 Lima)
+
+- **Alavés - Sevilla hoy en directo: última hora de la Copa del Rey en vivo**: [Link](https://as.com/futbol/copa_del_rey/alaves-sevilla-hoy-en-directo-ultima-hora-de-la-copa-del-rey-en-vivo-f202512-d/)
+- **Gabriel Suazo vuelve a la convocatoria en el Sevilla para la Copa del Rey**: [Link](https://www.espn.com.ar/futbol/espana/nota/_/id/16090699/gabriel-suazo-vuelve-a-la-convocatoria-en-el-sevilla-para-la-copa-del-rey)
+- **Apuestas y Pronóstico del Alavés vs Sevilla 17/12/25**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/2025/diciembre/pronostico-alaves-vs-sevilla-17-12-25)
+
+
+### villareal (N/A, 17/12/2025 15:30 Lima)
+
+- **El Villarreal anuncia un presupuesto récord de 215 millones**: [Link](https://www.marca.com/futbol/villarreal/2025/12/15/villarreal-anuncia-presupuesto-record-215-millones.html)
+- **Villarreal CF General Shareholders’ Meeting**: [Link](https://villarrealcf.es/en/villarreal-cf-general-shareholders-meeting/)
+- **Villarreal CF cierra 2024-2025 en beneficio y proyecta un presupuesto de 215 millones**: [Link](https://palco23.mundodeportivo.com/clubes/villarreal-cf-cierra-la-temporada-2024-2025-con-un-beneficio-de-14-millones-y-proyecta-un-presupuesto-de-215-millones)
+
+
+### talavera - real madrid (N/A, 17/12/2025 15:30 Lima)
+
+- **Talavera - Real Madrid hoy, en directo: dieciseisavos de Copa del Rey, última hora en El Prado**: [Link](https://as.com/futbol/copa_del_rey/talavera-real-madrid-hoy-en-directo-dieciseisavos-de-copa-del-rey-ultima-hora-en-el-prado-f202512-d/)
+- **Real Madrid vs. Talavera EN VIVO y EN DIRECTO: transmisión del partido**: [Link](https://libero.pe/futbol-internacional/2025/12/17/real-madrid-vs-talavera-en-vivo-en-directo-copa-del-rey-via-america-tvgo-rtve-1-lbev-1430384)
+- **🔴 Ver ESPN EN VIVO — transmisión partido Real Madrid vs. CF Talavera por TV y Online**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/espn-en-vivo-gratis-donde-ver-partido-real-madrid-vs-cf-talavera-por-futbol-tv-y-disney-plus-premium-online-en-usa-nnda-nnrt-noticia/)
+
+
+### noche crema 2026 (N/A, 17/12/2025 15:30 Lima)
+
+- **Universitario desafía a Alianza Lima con anuncio de la Noche Crema: día, hora y rival confirmado**: [Link](https://bolavip.com/pe/universitario/universitario-desafia-a-alianza-lima-con-anuncio-de-la-noche-crema-dia-hora-y-rival-confirmado)
+- **Oficial la Noche Crema 2026: Rival de Universitario, hora y lugar para la presentación del nuevo plantel**: [Link](https://depor.com/futbol-peruano/descentralizado/universitario-noche-crema-2026-fecha-rival-estadio-y-venta-de-entradas-para-la-presentacion-de-los-cremas-liga-1-noticia/)
+- **Universitario confirmó la fecha de su 'Noche Crema 2026'**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/universitario-confirmo-fecha-su-noche-crema-2026-n452013)
+
+
 ### flamengo (N/A, 17/12/2025 11:36 Lima)
 
 - **PSG x Flamengo: onde assistir ao vivo, horário e escalações**: [Link](https://ge.globo.com/futebol/times/flamengo/noticia/2025/12/17/psg-x-flamengo-onde-assistir-ao-vivo-horario-e-escalacoes.ghtml)
@@ -961,75 +1031,5 @@ Sin noticias relacionadas disponibles.
 - **Verso Udinese-Napoli, Conte ne cambia solo uno. Novità Lobotka in panchina**: [Link](https://www.ottopagine.it/na/sport/napolicalcio/412108/verso-udinese-napoli-conte-ne-cambia-solo-uno-novita-lobotka-in-panchina.shtml)
 - **Lucca torna a Udine, Runjaic lo punge: "Non mi ha neppure salutato"**: [Link](https://tribuna.com/it/news/2025-12-14-lucca-torna-a-udine-runjaic-lo-punge-non-mi-ha-neppure-salutato/)
 - **Udinese, prove di formazione: dal dubbio Rui Modesto a Piotrowski, Kabasele e Davis**: [Link](https://www.sosfanta.com/news/udinese-prove-di-formazione-dal-dubbio-rui-modesto-a-piotrowski-kabasele-e-davis/)
-
-
-### milan (N/A, 14/12/2025 07:49 Lima)
-
-- **El líder Milan recibe a Sassuolo, por la 15ª fecha de la Serie A**: [Link](https://www.espn.com.pe/futbol/italia/nota/_/id/16066513/milan-vs-sassuolo-serie-a-2025-equipo-fecha-hora-y-tv-en-vivo)
-- **Serie A: Milan no quiere soltar el liderato ante Sassuolo**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-milan-no-quiere-soltar-el-liderato-ante-sassuolo-noticia-1667739)
-- **En vivo por ANTV, Jay Idges y otros luchan por contener los ataques del AC Milan**: [Link](https://www.ucvradio.pe/mas-actualidad/en-vivo-por-antv-jay-idges-y-otros-luchan-por-contener-los-ataques-del-ac-milan/74756/)
-
-
-### milan vs (N/A, 14/12/2025 07:49 Lima)
-
-- **GdS: Predicted XIs for Milan vs. Sassuolo – One forced change for Allegri**: [Link](https://sempremilan.com/gds-xis-milan-sassuolo-one-change)
-- **Italy Serie A Soccer**: [Link](https://www.wvnews.com/sports/pro/italy-serie-a-soccer/image_45e34cbc-caf2-50ff-8843-1599605748f3.html)
-- **AC Milan Head Coach Claims ‘Inter & Napoli Are Favourites For The Scudetto’ As Serie A Title Race Heats Up**: [Link](https://sempreinter.com/2025/12/13/milan-allegri-inter-napoli-scudetto-favourites/)
-
-
-### ac milan (N/A, 14/12/2025 07:49 Lima)
-
-- **GdS: ‘At all costs’ – Milan outline plan to keep Maignan despite contract impasse**: [Link](https://sempremilan.com/milan-outline-maignan-plan-contract-impasse)
-- **Sky Sports: Another Liverpool legend could be set to leave the club**: [Link](https://anfieldindex.com/89226/sky-sports-another-liverpool-legend-could-be-set-to-leave-the-club.html)
-- **Liverpool star 'packing his bags' as Salah 'won't be the only player to leave' amid interesting offer**: [Link](https://www.football365.com/news/liverpool-alisson-packing-bags-salah-not-only-player-leave-milan-offer)
-
-
-### milan - sassuolo (N/A, 14/12/2025 07:49 Lima)
-
-- **Serie A: in campo Milan-Sassuolo DIRETTA**: [Link](https://www.ansa.it/sito/notizie/sport/calcio/2025/12/14/serie-a-in-campo-milan-sassuolo-diretta_7db84a17-fc5a-430d-90bf-9b123d0ed1ed.html)
-- **Milan, primo gol per Bartesaghi in Serie A**: [Link](https://gianlucadimarzio.com/milan-primo-gol-bartesaghi-serie-a-news/)
-- **Sassuolo, Carnevali: “Fascino speciale in questo stadio: il ricordo degli Squinzi tifosi del Milan”**: [Link](https://www.pianetamilan.it/stagione/serie-a-news-e-risultati/milan-sassuolo-carnevali-fascino-speciale-giocare-in-questo-stadio-14-12-2025/)
-
-
-### x (N/A, 14/12/2025 07:49 Lima)
-
-- **Grimes Claims Ex Elon Musk Blocked Her on X amid Their Co-Parenting Relationship: 'This Is So Silly'**: [Link](https://people.com/grimes-claims-ex-elon-musk-blocked-her-on-x-11868685)
-- **Grimes Claims Elon Musk Has Blocked Her On X: 'Not Interested In Public Dramatics'**: [Link](https://www.ndtv.com/world-news/grimes-claims-elon-musk-has-blocked-her-on-x-not-interested-in-public-dramatics-9806206)
-- **Singer Grimes Claims Ex and Co-Parent Elon Musk Blocked Her on X: 'I Am Not Interested in Public Dramatics'**: [Link](https://www.inkl.com/news/singer-grimes-claims-ex-and-co-parent-elon-musk-blocked-her-on-x-i-am-not-interested-in-public-dramatics)
-
-
-### manel kape (N/A, 14/12/2025 03:31 Lima)
-
-- **Main Card Results | UFC Fight Night: Royval vs Kape**: [Link](https://www.ufc.com/news/main-card-results-ufc-fight-night-royval-vs-kape-event-tonight-recaps-highlights-interviews)
-- **UFC Vegas 112 post-fight show: Reaction to Manel Kape destroying Brandon Royval in final UFC fight of 2025**: [Link](https://sports.yahoo.com/articles/ufc-vegas-112-post-fight-074623153.html)
-- **UFC Fight Night predictions: Odds, start time for Brandon Royval vs. Manel Kape in Las Vegas**: [Link](https://www.cbssports.com/ufc/news/ufc-fight-night-predictions-odds-start-time-brandon-royval-vs-manel-kape-live-stream/)
-
-
-### kevin vallejos (N/A, 14/12/2025 03:31 Lima)
-
-- **Chikadze vs. Vallejos: Patadas vs. Boxeo**: [Link](https://www.ufcespanol.com/news/chikadze-vs-vallejos-patadas-vs-boxeo)
-- **El argentino Kevin Vallejos afrontará una pelea clave en la UFC contra Giga Chikadze: hora, TV y todo lo que hay que saber**: [Link](https://www.infobae.com/deportes/2025/12/13/el-argentino-kevin-vallejos-afrontara-una-pelea-clave-en-la-ufc-contra-giga-chikadze-hora-tv-y-todo-lo-que-hay-que-saber/)
-- **Vuelve el 'Chino' Vallejos, la gran esperanza de las MMA argentinas… ¿y el clon de Topuria?**: [Link](https://www.marca.com/combates-ufc/2025/12/12/vuelve-chino-vallejos-gran-esperanza-mma-argentinas-clon-topuria.html)
-
-
-### shai gilgeous-alexander (N/A, 14/12/2025 03:31 Lima)
-
-- **'He didn't change one bit': Shai Gilgeous-Alexander remains Oklahoma City's humble superstar**: [Link](https://andscape.com/features/he-didnt-change-one-bit-shai-gilgeous-alexander-remains-oklahoma-citys-humble-superstar/)
-- **“The Champagne Just Wasn’t Popped”: Shai Gilgeous-Alexander Breaks Down How He Celebrated the Thunder’s 2025 Championship**: [Link](https://thesportsrush.com/nba-news-the-champagne-just-wasnt-popped-shai-gilgeous-alexander-breaks-down-how-he-celebrated-the-thunders-2025-championship/)
-- **Thunder MVP Shai Gilgeous-Alexander Announces Exciting Personal News**: [Link](https://www.newsweek.com/sports/nba/thunder-mvp-shai-gilgeous-alexander-announces-exciting-personal-news-11190991)
-
-
-### john cena wwe (N/A, 14/12/2025 03:31 Lima)
-
-- **Saturday Night's Main Event Match Card, How to Watch, Previews, Start Time and More**: [Link](https://www.wwe.com/article/snme-dec-13-2025-match-card-how-to-watch-previews-start-time-and-more)
-- **John Cena last match: How he reached the top of WWE**: [Link](https://www.bbc.com/news/articles/cx2dp15zglxo)
-- **Paul Levesque addresses crowd backlash to John Cena’s loss**: [Link](https://www.postwrestling.com/2025/12/13/paul-levesque-addresses-crowd-backlash-to-john-cenas-loss/)
-
-
-### lugar de votación (N/A, 14/12/2025 03:31 Lima)
-
-- **Ya está en marcha: Voto de chilenos en Nueva Zelanda da inicio a la segunda vuelta de las elecciones presidenciales**: [Link](https://www.emol.com/noticias/Nacional/2025/12/13/1185760/comienza-segunda-vuelta-elecciones-presidenciales.html)
-- **Elecciones presidenciales de Chile 2025, en vivo | Comienza la votación de los chilenos en el exterior**: [Link](https://elpais.com/chile/2025-12-13/elecciones-presidenciales-de-chile-2025-en-vivo-kast-y-jara-se-disputan-la-segunda-vuelta.html)
-- **Consulados chilenos en Texas habilitados para votar en la segunda vuelta presidencial del 14 de diciembre 2025**: [Link](https://gestion.pe/mix/usa/consulados-chilenos-en-texas-habilitados-para-votar-en-la-segunda-vuelta-presidencial-del-14-de-diciembre-2025-nnda-nnrt-noticia/)
 
 
