@@ -1,3 +1,52 @@
+### flamengo vs psg hora peruana (N/A, 16/12/2025 23:36 Lima)
+
+- **PSG vs Flamengo: posibles alineaciones, Copa Intercontinental**: [Link](https://espndeportes.espn.com/futbol/nota/_/id/16089888/psg-vs-flamengo-alineaciones-copa-intercontinental-2025-que-debes-saber)
+- **Copa Intercontinental | Luis Enrique llenó de elogios a Flamengo previo a la final: "Sabe jugar partidos importantes"**: [Link](https://rpp.pe/futbol/futbol-mundial/copa-intercontinental-luis-enrique-lleno-de-elogios-a-flamengo-previo-a-la-final-sabe-jugar-partidos-importantes-noticia-1668129)
+- **PSG | Luis Enrique, a completar el sextete ante Filipe Luis: "Seguimos en la línea de querer hacer historia"**: [Link](https://espanol.eurosport.com/futbol/fifa-intercontinental-cup/2025/psg-luis-enrique-a-completar-el-sextete-ante-filipe-luis-seguimos-en-la-linea-de-querer-hacer-historia_vid60042351/video.shtml)
+
+
+### billie eilish (N/A, 16/12/2025 23:36 Lima)
+
+- **Billie Eilish trades baggy clothes for a plunging polka-dot tank top**: [Link](https://pagesix.com/2025/12/16/style/billie-eilish-trades-baggy-clothes-for-a-plunging-polka-dot-tank-top/)
+- **Billie Eilish Poses With a Milk Bottle in Boldest Top Yet**: [Link](https://www.realitytea.com/2025/12/16/billie-eilish-poses-milk-bottle-bold-top-phot/)
+- **Billie Eilish ditches her baggy sweats for VERY low-cut tank top in sultry new selfie**: [Link](https://www.the-sun.com/entertainment/15651169/billie-eilish-busty-top-selfie-kitchen/)
+
+
+### ureña (N/A, 16/12/2025 23:36 Lima)
+
+- **“Nos encantaría, es un excelente jugador”: Navarro sobre la posible llegada de Ureña a Alianza Lima**: [Link](https://depor.com/futbol-peruano/descentralizado/alianza-lima-franco-navarro-hablo-sobre-la-permanencia-de-alan-cantero-y-la-posibilidad-de-que-llegue-rodrigo-urena-video-noticia/)
+- **Universitario se desmantela y el próximo jugador con destino Colombia, no es Rodrigo Ureña**: [Link](https://bolavip.com/pe/universitario/universitario-se-desmantela-y-el-proximo-jugador-con-destino-colombia-no-es-rodrigo-urena)
+- **Confirmado: Rodrigo Ureña deja Universitario y será nuevo jugador de Millonarios**: [Link](https://libero.pe/futbol-peruano/universitario/2025/12/16/confirmado-rodrigo-urena-dejara-universitario-sera-nuevo-jugador-de-millonarios-de-colombia-328368)
+
+
+### green day (N/A, 16/12/2025 23:36 Lima)
+
+- **Classic DVD Review: Green Day | Bullet In A Bible**: [Link](https://tinnitist.com/2025/12/16/classic-dvd-review-green-day-bullet-in-a-bible/)
+- **Yo Soy conciertos 2025: Encuesta del REACT, 15 de Diciembre**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-conciertos-2025-encuesta-del-react-15-de-diciembre_20251215/)
+- **Imitadores de Green Day brindaron arriesgada presentación en ‘Yo Soy’ y Carlos Alcántara suelta lisura de la emoción**: [Link](https://www.infobae.com/peru/2025/12/16/imitadores-de-green-day-brindaron-arriesgada-presentacion-en-yo-soy-y-carlos-alcantara-suelta-lisura-de-la-emocion/)
+
+
+### dominic sanchez yo soy (N/A, 16/12/2025 23:36 Lima)
+
+- **¿Quién era Dominic Sánchez?, el concursante de ‘Yo Soy’ asesinado en Puente Piedra**: [Link](https://www.infobae.com/peru/2025/12/16/quien-era-dominic-sanchez-el-concursante-de-yo-soy-asesinado-en-puente-piedra/)
+- **Sicarios matan de catorce disparos a imitador de reguetón que daba show en Puente Piedra**: [Link](https://www.atv.pe/noticia/sicarios-matan-de-catorce-disparos-a-imitador-de-regueton-que-daba-show-en-puente-piedra/)
+- **Exartista de ‘Yo soy’ es asesinado a balazos frente a su vivienda en Puente Piedra**: [Link](https://diariocorreo.pe/edicion/lima/exartista-de-yo-soy-es-asesinado-a-balazos-frente-a-su-vivienda-en-puente-piedra-noticia/)
+
+
+### knicks - spurs (N/A, 16/12/2025 23:36 Lima)
+
+- **San Antonio Spurs vs New York Knicks Dec 16, 2025 Game Summary**: [Link](https://www.nba.com/game/sas-vs-nyk-0062500001)
+- **DraftKings NBA Pick6 Fantasy Basketball Picks Today: Top Picks for December 16**: [Link](https://dknetwork.draftkings.com/2025/12/16/draftkings-nba-pick6-fantasy-basketball-picks-today-top-picks-for-december-16/)
+- **Fanatics Sportsbook Promo Code ACTIONNY: Get $250 for NBA Cup Knicks Bets**: [Link](https://www.actionnetwork.com/legal-online-sports-betting/fanatics-sportsbook-ny-promo-code-actionny-claim-exclusive-250-offer-nba-cup-knicks)
+
+
+### junior (N/A, 16/12/2025 23:36 Lima)
+
+- **Resident doctors, a fair deal is on the table. Please do not strike at this moment of crisis for the NHS | Keir Starmer**: [Link](https://www.theguardian.com/commentisfree/2025/dec/12/resident-doctors-strike-super-flu-keir-starmer-nhs)
+- **Letters: Labour claims to be the party of the NHS – yet the doctors’ strikes go on**: [Link](https://www.telegraph.co.uk/opinion/2025/12/17/letters-labour-claims-party-of-nhs-yet-doctor-strikes-go-on/)
+- **Devon and Exeter pre-Christmas hospital strike goes ahead after “too little, too late” from health secretary Wes Streeting**: [Link](https://exeterobserver.org/2025/12/16/devon-and-exeter-pre-christmas-hospital-strike-goes-ahead-too-little-too-late-health-secretary-wes-streeting-fourteenth-round-industrial-action-follows-vote-reject-speciality-training-places-offer-british-medical-association/)
+
+
 ### categoría primera a (N/A, 16/12/2025 20:59 Lima)
 
 - **Máximos campeones de la Liga BetPlay en la historia**: [Link](https://www.365scores.com/es/news/maximos-campeones-de-liga-betplay/)
@@ -981,54 +1030,5 @@ Sin noticias relacionadas disponibles.
 - **🔴🔵 ¡Lo último! A través de un breve comunicado, el Instituto Nacional Penitenciario confirmó que Joran Van der Sloot intentó quitarse la vida al interior de su celda en el penal de Challapalca durante la mañana de este sábado 13 de diciembre. 🌐Más informa**: [Link](https://www.facebook.com/Exitosanoticias/posts/-lo-%C3%BAltimo-a-trav%C3%A9s-de-un-breve-comunicado-el-instituto-nacional-penitenciario-c/1299379725558416/)
 - **Joran van der Sloot: Reportan que neerlandés habría intentado quitarse la vida en su celda del penal Challapalca**: [Link](https://www.infobae.com/peru/2025/12/13/joran-van-der-sloot-reportan-que-neerlandes-habria-intentado-quitarse-la-vida-en-su-celda-del-penal-challapalca/)
 - **Joran van der Sloot es hallado en estado grave en el interior de su celda en Challapalca**: [Link](https://diariocorreo.pe/edicion/tacna/joran-van-der-sloot-es-hallado-en-estado-grave-en-el-interior-de-su-celda-en-challapalca-noticia/)
-
-
-### paris fc - toulouse (N/A, 13/12/2025 21:10 Lima)
-
-- **How to watch today's Paris FC vs Toulouse Ligue 1 game: Live stream, TV channel, and start time**: [Link](https://www.goal.com/en-us/news/watch-paris-fc-vs-toulouse-ligue-1-game-live-stream-tv-channel-start-time/blt00ff6effeb9fe882)
-- **Toulouse Secures Major Victory in Paris**: [Link](https://zamin.uz/en/sport/175738-toulouse-secures-major-victory-in-paris.html)
-- **Ligue 1 News: Paris FC vs Toulouse Confirmed Line-ups**: [Link](https://footballpredictions.net/paris-fc-v-toulouse-team-news-confirmed-lineups)
-
-
-### arsenal football club (N/A, 13/12/2025 15:26 Lima)
-
-- **Gyokeres sent warning as surprise £52m Arsenal replacement named with Arteta given 'problem'**: [Link](https://www.football365.com/news/arsenal-gyokeres-warning-surprise-52m-replacement-named-arteta-problem)
-- **Viktor Gyokeres set for Arsenal demotion - but that's no bad thing**: [Link](https://www.standard.co.uk/sport/football/gyokeres-arsenal-fc-demotion-b1262343.html)
-- **Mikel Arteta calls for everyone to leave Gyokeres alone & get behind him**: [Link](https://sports.yahoo.com/articles/mikel-arteta-calls-everyone-leave-180500800.html)
-
-
-### cusco vs cristal (N/A, 13/12/2025 15:26 Lima)
-
-- **Cusco FC recibe a Sporting Cristal por los playoffs para definir a Perú 2 en la CONMEBOL Libertadores**: [Link](https://www.espn.com.pe/futbol/peru/nota/_/id/16072272/cusco-fc-vs-sporting-cristal-por-los-playoffs-de-la-liga1-equipo-fecha-hora-y-tv-en-vivo)
-- **Liga 1: Cusco FC y Sporting Cristal se miden por la fase 2**: [Link](https://rpp.pe/futbol/descentralizado/liga-1-cusco-fc-y-sporting-cristal-se-miden-por-la-fase-2-noticia-1667799)
-- **Bruno Pérez será el árbitro del Cusco FC vs Sporting Cristal por la final vuelta de los playoffs de Liga 1**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/bruno-perez-sera-el-arbitro-del-cusco-fc-vs-sporting-cristal-por-la-final-vuelta-de-los-playoffs-de-liga-1-noticia/)
-
-
-### sporting cp (N/A, 13/12/2025 15:26 Lima)
-
-- **Bayern Munich train ahead of Champions League game against Lisbon**: [Link](https://www.reutersconnect.com/item/bayern-munich-train-ahead-of-champions-league-game-against-lisbon/dGFnOnJldXRlcnMuY29tLDIwMjU6bmV3c21sX1ZBODExMDA4MTIyMDI1UlAx)
-- **Kompany lauds 'dangerous' Karl after record-breaking Champions League goal**: [Link](https://www.beinsports.com/en-us/soccer/uefa-champions-league/articles/kompany-lauds-dangerous-karl-after-record-breaking-champions-league-goal-2025-12-09)
-- **FC Bayern vs Sporting: preview, prediction and odds**: [Link](https://fcbinside.com/fc-bayern-vs-sporting-preview-prediction-and-odds/)
-
-
-### arsenal fc (N/A, 13/12/2025 15:26 Lima)
-
-- **Done Deel? New Arsenal partner to take over sleeve sponsorship**: [Link](https://arseblog.news/2025/12/done-deel-new-arsenal-partner-to-take-over-sleeve-sponsorship/)
-- **Gunners bolster ranks with new commercial signing**: [Link](https://bdaily.co.uk/articles/2025/12/12/gunners-bolster-ranks-with-commercial-signing)
-- **Arsenal announce Deel partnership 'ahead of shirt sponsor agreement'**: [Link](https://www.standard.co.uk/sport/football/arsenal-agree-huge-new-deal-ahead-of-january-transfer-window-b1262317.html)
-
-
-### arsenal vs (N/A, 13/12/2025 15:26 Lima)
-
-- **Arteta's update on Rice, Timber, Trossard & Saliba | Press conference | News**: [Link](https://www.arsenal.com/news/artetas-update-rice-timber-trossard-saliba)
-- **Edwards | 'It's got to come, we've got to deliver' | Men's First-Team | News**: [Link](https://www.wolves.co.uk/news/mens-first-team/20251212-edwards-its-got-to-come-weve-got-to-deliver/)
-- **Arsenal Seek to Extend Lead as Struggling Wolves Come to Emirates**: [Link](https://www.dawan.africa/news/arsenal-seek-to-extend-lead-as-struggling-wolves-come-to-emirates)
-
-
-### paris fc (N/A, 13/12/2025 15:26 Lima)
-
-- **How to watch today's Paris FC vs Toulouse Ligue 1 game: Live stream, TV channel, and start time**: [Link](https://www.goal.com/en-us/news/watch-paris-fc-vs-toulouse-ligue-1-game-live-stream-tv-channel-start-time/blt00ff6effeb9fe882)
-- **Paris FC vs Toulouse Prediction, 12/13/2025 Soccer Pick, Tips and Odds**: [Link](https://www.docsports.com/free-picks/soccer/2025/paris-fc-vs-toulouse-prediction-12-13-2025-soccer-pick-tips-and-odds.html)
-- **Ligue 1 News: Paris FC vs Toulouse Confirmed Line-ups**: [Link](https://footballpredictions.net/paris-fc-v-toulouse-team-news-confirmed-lineups)
 
 
