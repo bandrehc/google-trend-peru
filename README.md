@@ -1,3 +1,31 @@
+### boluarte (N/A, 17/12/2025 07:56 Lima)
+
+- **Poder Judicial admitió a trámite demanda de Dina Boluarte para anular vacancia presidencial en su contra**: [Link](https://rpp.pe/politica/judiciales/poder-judicial-admitio-a-tramite-demanda-de-dina-boluarte-para-anular-vacancia-presidencial-en-su-contra-noticia-1668149)
+- **Dina Boluarte: PJ evaluará en marzo del 2026 demanda contra vacancia por incapacidad moral permanente**: [Link](https://elcomercio.pe/politica/justicia/dina-boluarte-pj-evaluara-en-marzo-del-2026-demanda-contra-vacancia-por-incapacidad-moral-permanente-ultimas-noticia/)
+- **Dina Boluarte: Poder Judicial admite demanda para anular vacancia, ¿qué puede pasar?**: [Link](https://gestion.pe/peru/politica/dina-boluarte-poder-judicial-admite-demanda-para-anular-vacancia-noticia/)
+
+
+### radio exitosa en vivo (N/A, 17/12/2025 07:56 Lima)
+
+- **San Martín de Porres: delincuentes disparan contra cúster de transporte público en la avenida Dominicos**: [Link](https://rpp.pe/lima/policiales/san-martin-de-porres-delincuentes-disparan-contra-custer-de-transporte-publico-en-la-avenida-dominicos-noticia-1668220)
+- **San Martín de Porres: Extorsionadores disparan cúster**: [Link](https://www.americatv.com.pe/noticias/actualidad/extorsionadores-balean-custer-san-martin-porres-n513985)
+- **Bus es atacado por presuntos extorsionadores en SMP: Pasajeros salen ilesos**: [Link](https://www.apnoticias.pe/peru/exitosa-noticias/bus-es-atacado-por-presuntos-extorsionadores-en-smp-pasajeros-salen-ilesos-1477546)
+
+
+### psg vs flamengo pronostico (N/A, 17/12/2025 07:56 Lima)
+
+- **PSG y Flamengo definen al nuevo campeón de la Copa Intercontinental**: [Link](https://www.espn.com.pe/futbol/nota/_/id/16087043/psg-vs-flamengo-final-intercontinental-equipo-fecha-hora-y-tv-en-vivo)
+- **¿Qué es la Copa Intercontinental de la FIFA? Formato, sede y calendario del torneo anual que sustituirá al Mundial de Clubes**: [Link](https://www.ucvradio.pe/mas-actualidad/que-es-la-copa-intercontinental-de-la-fifa-formato-sede-y-calendario-del-torneo-anual-que-sustituira-al-mundial-de-clubes/77648/)
+- **Copa Intercontinental | Luis Enrique llenó de elogios a Flamengo previo a la final: "Sabe jugar partidos importantes"**: [Link](https://rpp.pe/futbol/futbol-mundial/copa-intercontinental-luis-enrique-lleno-de-elogios-a-flamengo-previo-a-la-final-sabe-jugar-partidos-importantes-noticia-1668129)
+
+
+### bn (N/A, 17/12/2025 07:56 Lima)
+
+- **Warner Bros. Says Ellisons ‘Misled’ Shareholders in Takeover Bid**: [Link](https://www.nytimes.com/2025/12/17/business/media/warner-bros-paramount-takeover-netflix.html)
+- **Warner Bros. Discovery recommends investors reject Paramount's hostile takeover bid**: [Link](https://www.nbcnews.com/business/media/warner-bros-discovery-recommends-investors-reject-paramounts-hostile-t-rcna249658)
+- **WBD board tells shareholders to reject Paramount Skydance's takeover offer, saying 'value is inadequate'**: [Link](https://www.cnbc.com/2025/12/17/wbd-board-paramount-skydance-reject-value.html)
+
+
 ### hora (N/A, 17/12/2025 03:37 Lima)
 
 - **PSG vs Flamengo: posibles alineaciones, Copa Intercontinental**: [Link](https://espndeportes.espn.com/futbol/nota/_/id/16089888/psg-vs-flamengo-alineaciones-copa-intercontinental-2025-que-debes-saber)
@@ -1002,33 +1030,5 @@ Sin noticias relacionadas disponibles.
 - **Partidos de hoy, sábado 13 de diciembre de 2025: programación, canales TV y resultados en vivo**: [Link](https://www.infobae.com/peru/deportes/2025/12/13/partidos-de-hoy-sabado-13-de-diciembre-de-2025-programacion-canales-tv-y-resultados-en-vivo/)
 - **Partidos de hoy EN VIVO: programación, horarios y dónde ver fútbol este sábado 13 de diciembre**: [Link](https://libero.pe/futbol-internacional/2025/12/12/partidos-de-hoy-sabado-13-de-diciembre-programacion-horarios-donde-ver-714012)
 - **Partidos de HOY, sábado 13 de diciembre: agenda, hora y dónde ver fútbol en vivo**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/partidos-de-hoy-sabado-13-de-diciembre-del-2025-resultados-horarios-canales-tv-y-donde-ver-futbol-en-vivo-noticia/)
-
-
-### wwe en vivo (N/A, 13/12/2025 21:10 Lima)
-
-- **WWE Saturday Night’s Main Event: cartelera completa, a qué hora y dónde ver en vivo desde México el adiós de John Cena**: [Link](https://www.infobae.com/mexico/deportes/2025/12/13/wwe-saturday-nights-main-event-cartelera-completa-a-que-hora-y-donde-ver-en-vivo-desde-mexico-el-adios-de-john-cena/)
-- **Dónde ver gratis Retiro de John Cena EN VIVO: ‘The Last Time Is Now’ en Saturday Night’s Main Event 2025**: [Link](https://depor.com/full-deportes/retiro-de-john-cena-en-vivo-hoy-gratis-donde-ver-the-last-time-is-now-en-saturday-nights-main-event-2025-en-directo-online-via-wwe-youtube-futbol-libre-tv-peacock-por-internet-video-noticia/)
-- **John Cena vs. Gunther, EN VIVO: dónde verlo por TV y cómo seguirlo ONLINE**: [Link](https://www.tycsports.com/polideportivo/john-cena-vs-gunther-en-vivo-donde-verlo-por-tv-y-online-id703595.html)
-
-
-### atlético nacional - medellín (N/A, 13/12/2025 21:10 Lima)
-
-- **Nacional vs. Medellín: Así serán las alineaciones titulares en final de Copa BetPlay**: [Link](https://www.espn.com.ar/futbol/colombia/nota/_/id/16079780/nacional-vs-medellin-asi-seran-alineaciones-titulares-final-copa-betplay-2025)
-- **¡Llave abierta! Atlético Nacional y Medellín empataron 0-0 en la final de ida de Copa BetPlay**: [Link](https://libero.pe/futbol-internacional/2025/12/13/atletico-nacional-vs-medellin-en-vivo-gratis-final-ida-de-copa-colombia-via-win-sports-online-lbev-432660)
-- **Atlético Nacional y Medellín no se hicieron daño en la ida: empate sin goles en la final de la Copa Colombia**: [Link](https://www.infobae.com/colombia/deportes/2025/12/13/atletico-nacional-vs-medellin-en-vivo-siga-el-minuto-a-minuto-de-la-final-de-la-copa-betplay/)
-
-
-### boca juniors vs. racing (N/A, 13/12/2025 21:10 Lima)
-
-- **El fixture de Boca Juniors en el Torneo Apertura 2026**: [Link](https://www.espn.com.ar/futbol/argentina/nota/_/id/16074037/el-fixture-de-boca-juniors-en-el-torneo-apertura-2026)
-- **Torneo Apertura 2026: ¿cuándo se juegan todos los clásicos del fútbol argentino?**: [Link](https://espndeportes.espn.com/futbol/argentina/nota/_/id/16073695/torneo-apertura-2026-cuando-se-juegan-clasicos-fechas)
-- **Ya hay fecha para el primer Superclásico entre River y Boca en 2026**: [Link](https://tribuna.com/es/news/2025-12-12-ya-hay-fecha-definida-para-el-primer-superclasico-entre-river-y-boca-en-2026/)
-
-
-### racing (N/A, 13/12/2025 21:10 Lima)
-
-- **22:30 Los Alamitos Racecourse - 14 December 2025 - Racecard - Horse Racing**: [Link](https://www.sportinglife.com/racing/racecards/2025-12-14/los-alamitos-racecourse/racecard/894570/race-6-allowance-optional-claiming)
-- **14/12/2025 Horse Racing Tips and Best Bets – Moe**: [Link](https://www.justhorseracing.com.au/tips/14-12-2025-horse-racing-tips-and-best-bets-moe/874939)
-- **An Early Look - Moe**: [Link](https://www.racing.com/news/2025/12/13/an-early-look-ben-asgari-moe-141225)
 
 
