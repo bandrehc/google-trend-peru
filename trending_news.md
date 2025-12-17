@@ -1,3 +1,52 @@
+### flamengo (N/A, 17/12/2025 11:36 Lima)
+
+- **PSG x Flamengo: onde assistir ao vivo, horário e escalações**: [Link](https://ge.globo.com/futebol/times/flamengo/noticia/2025/12/17/psg-x-flamengo-onde-assistir-ao-vivo-horario-e-escalacoes.ghtml)
+- **Globo tem "super quarta" de futebol com decisões e campeões de audiência**: [Link](https://natelinha.uol.com.br/televisao/2025/12/17/globo-tem-super-quarta-de-futebol-com-decisoes-e-campeoes-de-audiencia-235310.php)
+- **Intercontinental: Filipe Luís carrega marca histórica contra o PSG**: [Link](https://www.metropoles.com/esportes/intercontinental-filipe-luis-tem-marca-historica-contra-o-psg-saiba)
+
+
+### mustafa suleyman (N/A, 17/12/2025 11:36 Lima)
+
+- **Microsoft AI boss Suleyman opens up about his peers and calls Elon Musk a 'bulldozer' with 'superhuman capabilities to bend reality to his will'**: [Link](https://fortune.com/2025/12/13/microsoft-ai-ceo-mustafa-suleyman-elon-musk-sam-altman-demis-hassabis/)
+- **Microsoft AI CEO Mustafa Suleyman says he won't match Meta's high-flying pay packages**: [Link](https://www.businessinsider.com/microsoft-ai-mustafa-suleyman-talent-wars-pay-packages-salaries-meta-2025-12)
+- **Microsoft AI chief Mustafa Suleyman: Gemini 3 can do things that Copilot can’t, we are really trying to …**: [Link](https://timesofindia.indiatimes.com/technology/tech-news/microsoft-ai-chief-mustafa-suleyman-gemini-3-can-do-things-that-copilot-cant-we-are-really-trying-to-/articleshow/126036641.cms)
+
+
+### cultural leonesa - levante (N/A, 17/12/2025 11:36 Lima)
+
+- **Cultural Leonesa - Levante, en directo: dieciseisavos de Copa del Rey hoy en vivo**: [Link](https://as.com/futbol/copa_del_rey/cultural-leonesa-levante-en-directo-dieciseisavos-de-copa-del-rey-hoy-en-vivo-f202512-d/)
+- **RUEDA DE PRENSA | Álvaro del Moral: “Le damos mucho valor a la Copa, es una competición muy bonita”**: [Link](https://www.levanteud.com/noticias/rueda-de-prensa-or-alvaro-del-moral-le-damos-mucho-valor-a-la-copa-es-una-competicion-muy-bonita)
+- **Ziganda: «Merecen jugar los de Tropezón»**: [Link](https://www.diariodeleon.es/deportes/251216/2069676/merecen-jugar-tropezon.html)
+
+
+### psg vs (N/A, 17/12/2025 11:36 Lima)
+
+- **PSG y Flamengo definen al nuevo campeón de la Copa Intercontinental**: [Link](https://www.espn.com.pe/futbol/nota/_/id/16087043/psg-vs-flamengo-final-intercontinental-equipo-fecha-hora-y-tv-en-vivo)
+- **Copa Intercontinental | Luis Enrique llenó de elogios a Flamengo previo a la final: "Sabe jugar partidos importantes"**: [Link](https://rpp.pe/futbol/futbol-mundial/copa-intercontinental-luis-enrique-lleno-de-elogios-a-flamengo-previo-a-la-final-sabe-jugar-partidos-importantes-noticia-1668129)
+- **Resumen extendido: Flamengo vs. Pyramids (2-0) y clasificación a la final de la Copa Intercontinental**: [Link](https://depor.com/futbol-internacional/resto-del-mundo/fifa-plus-tv-en-vivo-flamengo-vs-pyramids-online-gratis-por-copa-intercontinental-canales-de-futbol-libre-tv-directv-dsports-dgo-video-noticia/)
+
+
+### elon musk (N/A, 17/12/2025 11:36 Lima)
+
+- **SpaceX Tender Offer Pushes Musk’s Net Worth To Record $677 Billion**: [Link](https://www.forbes.com/sites/mattdurot/2025/12/15/elon-musk-just-became-the-first-person-ever-worth-600-billion/)
+- **Elon Musk Is on the Verge of a $1 Trillion Net Worth**: [Link](https://www.investopedia.com/elon-musk-is-on-the-verge-of-a-usd1-trillion-net-worth-spacex-tesla-xai-11870414)
+- **SpaceX Valuation Boosts Musk’s Net Worth to New Heights**: [Link](https://meyka.com/blog/spacex-valuation-boosts-musks-net-worth-to-new-heights-1612/)
+
+
+### ultra peru (N/A, 17/12/2025 11:36 Lima)
+
+- **ULTRA Worldwide confirma su regreso a Perú en 2026**: [Link](https://rpp.pe/musica/conciertos/ultra-worldwide-confirma-su-regreso-a-peru-en-2026-noticia-1668183)
+- **ULTRA Perú regresa con su cuarta edición consecutiva en el país**: [Link](https://www.serperuano.com/2025/12/ultra-peru-regresa-con-su-cuarta-edicion-consecutiva-en-el-pais/)
+- **Ultra Perú 2026: fecha, entradas, precios, artistas, djs, lineup y todo sobre el festival de música electrónica en el Club Cultural Lima**: [Link](https://larepublica.pe/entretenimiento/2025/12/16/ultra-peru-2026-fecha-entradas-precios-artistas-djs-lineup-y-todo-sobre-el-festival-de-musica-electronica-en-el-club-cultural-lima-317872)
+
+
+### uit 2026 (N/A, 17/12/2025 11:36 Lima)
+
+- **Aprueban valor de la UIT para el año 2026 [Decreto Supremo 301-2025-EF]**: [Link](https://lpderecho.pe/valor-uit-2026-decreto-supremo-301-2025-ef/)
+- **UIT 2026: MEF oficializa en S/5.500 la Unidad Impositiva Tributaria para el próximo año, ¿Cuánto afecta las multas y sueldos?**: [Link](https://www.infobae.com/peru/2025/12/17/uit-2026-mef-oficializa-en-s5500-la-unidad-impositiva-tributaria-para-el-proximo-ano-cuanto-afecta-las-multas-y-sueldos/)
+- **UIT sube a S/ 5,500 para el 2026: ¿Afectará próximos retiros de AFP? Sepa cuánto adicional podrá solicitar**: [Link](https://rpp.pe/economia/economia/retiro-afp-como-podria-afectar-aumento-uit-2026-a-5500-soles-a-futuros-desembolsos-y-cuanto-adicional-podras-solicitar-noticia-1668264)
+
+
 ### boluarte (N/A, 17/12/2025 07:56 Lima)
 
 - **Poder Judicial admitió a trámite demanda de Dina Boluarte para anular vacancia presidencial en su contra**: [Link](https://rpp.pe/politica/judiciales/poder-judicial-admitio-a-tramite-demanda-de-dina-boluarte-para-anular-vacancia-presidencial-en-su-contra-noticia-1668149)
@@ -982,53 +1031,5 @@ Sin noticias relacionadas disponibles.
 - **Ya está en marcha: Voto de chilenos en Nueva Zelanda da inicio a la segunda vuelta de las elecciones presidenciales**: [Link](https://www.emol.com/noticias/Nacional/2025/12/13/1185760/comienza-segunda-vuelta-elecciones-presidenciales.html)
 - **Elecciones presidenciales de Chile 2025, en vivo | Comienza la votación de los chilenos en el exterior**: [Link](https://elpais.com/chile/2025-12-13/elecciones-presidenciales-de-chile-2025-en-vivo-kast-y-jara-se-disputan-la-segunda-vuelta.html)
 - **Consulados chilenos en Texas habilitados para votar en la segunda vuelta presidencial del 14 de diciembre 2025**: [Link](https://gestion.pe/mix/usa/consulados-chilenos-en-texas-habilitados-para-votar-en-la-segunda-vuelta-presidencial-del-14-de-diciembre-2025-nnda-nnrt-noticia/)
-
-
-### muslera (N/A, 14/12/2025 03:31 Lima)
-
-- **Muslera penaltılarda devleşti, Arjantin'de şampiyon Estudiantes oldu!**: [Link](https://t24.com.tr/haber/muslera-penaltilarda-devlesti-arjantin-de-sampiyon-estudiantes-oldu,1283445)
-- **Clausura 2025 Finali Nefes Kesecek!**: [Link](https://www.cnnturk.com/magazin/clausura-2025-finali-nefes-kesecek-2371721)
-- **Fernando Muslera'dan şampiyonluk itirafı!**: [Link](https://www.sporx.com/futbol/ekstra/fernando-muslera-dan-sampiyonluk-itirafi-SXGLQ78007SXQ)
-
-
-### yailin la mas viral (N/A, 13/12/2025 23:39 Lima)
-
-- **Yo Soy conciertos 2025: imitadora de Yailin La Más Viral volvió a SORPRENDER con su interpretación de “Bing Bong”**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-conciertos-2025-imitadora-de-yailin-la-mas-viral-volvio-a-sorprender-con-su-interpretacion-de-bing-bong_20251212/)
-- **Yo Soy conciertos 2025: imitadora de Yailin La Más Viral PRENDIÓ el escenario con su interpretación de “Yo No Olvido”**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-conciertos-2025-imitadora-de-yailin-la-mas-viral-prendio-el-escenario-con-su-interpretacion-de-yo-no-olvido_20251206/)
-
-
-### sam smith (N/A, 13/12/2025 23:39 Lima)
-
-- **Sam Smith Brings Out Surprise Guests Ed Sheeran and Brandi Carlile at 22nd Show at Brooklyn’s Warsaw Venue—And Gives One Duet Its Live Debut**: [Link](https://www.billboard.com/music/music-news/sam-smith-ed-sheeran-brandi-carlile-warsaw-1236135035/)
-- **Sam Smith Delivers Unforgettable Performances with Special Guests at Warsaw Residency**: [Link](https://news.ssbcrack.com/sam-smith-delivers-unforgettable-performances-with-special-guests-at-warsaw-residency/)
-- **Sam Smith sings with Ed Sheeran and Brandi Carlile during NYC residency**: [Link](https://digital.abcaudio.com/news/sam-smith-sings-ed-sheeran-and-brandi-carlile-during-nyc-residency)
-
-
-### billie eilish (N/A, 13/12/2025 23:39 Lima)
-
-- **Watch the Trailer for Billie Eilish and James Cameron’s Hit Me Hard and Soft: The Tour**: [Link](https://pitchfork.com/news/watch-the-trailer-for-billie-eilishs-james-cameron-directed-concert-film/)
-- **James Cameron’s Next 3D Movie After Avatar: Fire and Ash Gets Trailer**: [Link](https://www.comingsoon.net/movies/trailers/2072721-james-cameron-next-3d-movie-after-avatar-fire-and-ash)
-- **See the New Trailer for Billie Eilish’s Concert Film**: [Link](https://www.today.com/video/see-the-new-trailer-for-billie-eilish-s-concert-film-254222405527)
-
-
-### thunder - spurs (N/A, 13/12/2025 23:39 Lima)
-
-- **Mitch Johnson, Pre‑Game vs Oklahoma Thunder | 12/13/25**: [Link](https://www.nba.com/spurs/videos/mitch-johnson-pre-game-vs-oklahoma-thunder-12-13-25)
-- **Isaiah Hartenstein To Return For NBA Cup Semis On Saturday**: [Link](https://basketball.realgm.com/wiretap/283111/Isaiah-Hartenstein-To-Return-For-NBA-Cup-Semis-On-Saturday)
-- **Best Shai Gilgeous-Alexander prop bet for Spurs vs. Thunder on Saturday 12/13/25**: [Link](https://dknetwork.draftkings.com/2025/12/13/best-shai-gilgeous-alexander-prop-bet-for-spurs-vs-thunder-on-saturday-12-13-25/)
-
-
-### diego bertie (N/A, 13/12/2025 23:39 Lima)
-
-- **Yo Soy conciertos 2025: imitador de Diego Bertie dejó al público ANONADADO y EMOCIONADO por su interpretación de “Qué Difícil Es Amar”**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-conciertos-2025-imitador-de-diego-bertie-dejo-al-publico-anonadado-y-emocionado-por-su-interpretacion-de-que-dificil-es-amar_20251212/)
-- **Imitador de Diego Bertie conmueve al público al cantar a dúo con el original en el ‘reto del espejo’ de Yo Soy**: [Link](https://www.infobae.com/peru/2025/12/13/imitador-de-diego-bertie-conmueve-al-publico-al-cantar-a-duo-con-el-original-en-el-reto-del-espejo-de-yo-soy/)
-- **Yo Soy conciertos 2025: ¡BRILLÓ CON EL CORAZÓN! Una noche llena de sensibilidad al estilo Diego Bertie**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-conciertos-2025-brillo-con-el-corazon-una-noche-llena-de-sensibilidad-al-estilo-diego-bertie_20251210/)
-
-
-### primera división (N/A, 13/12/2025 23:39 Lima)
-
-- **Partidos de hoy, sábado 13 de diciembre de 2025: programación, canales TV y resultados en vivo**: [Link](https://www.infobae.com/peru/deportes/2025/12/13/partidos-de-hoy-sabado-13-de-diciembre-de-2025-programacion-canales-tv-y-resultados-en-vivo/)
-- **Partidos de hoy EN VIVO: programación, horarios y dónde ver fútbol este sábado 13 de diciembre**: [Link](https://libero.pe/futbol-internacional/2025/12/12/partidos-de-hoy-sabado-13-de-diciembre-programacion-horarios-donde-ver-714012)
-- **Partidos de HOY, sábado 13 de diciembre: agenda, hora y dónde ver fútbol en vivo**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/partidos-de-hoy-sabado-13-de-diciembre-del-2025-resultados-horarios-canales-tv-y-donde-ver-futbol-en-vivo-noticia/)
 
 
