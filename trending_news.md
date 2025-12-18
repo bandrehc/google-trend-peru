@@ -1,3 +1,24 @@
+### cometa 3i atlas nasa (N/A, 18/12/2025 03:36 Lima)
+
+- **Cometa 3I/ATLAS: ¿Por qué la NASA activó los protocolos de defensa planetaria ante su cercanía?**: [Link](https://rpp.pe/ciencia/espacio/cometa-3i-atlas-por-que-nasa-y-agencias-activaron-defensa-planetaria-ante-cercania-del-objeto-interestelar-a-la-tierra-noticia-1668198)
+- **Por qué el 19 de diciembre será un día clave para el cometa 3I/ATLAS y qué pasará tras su acercamiento a la Tierra**: [Link](https://elcomercio.pe/mag/respuestas/ciencias/por-que-el-19-de-diciembre-sera-un-dia-clave-para-el-cometa-3iatlas-y-que-pasara-tras-su-acercamiento-a-la-tierra-nnda-nnrt-noticia/)
+- **Faltan pocos días para la llegada del 3I/ATLAS: el cometa interestelar se ha vuelto verde y más brillante mientras se acerca a la Tierra**: [Link](https://larepublica.pe/ciencia/2025/12/16/faltan-pocos-dias-para-la-llegada-del-3iatlas-el-cometa-interestelar-se-ha-vuelto-verde-y-mas-brillante-mientras-se-acerca-a-la-tierra-1264208)
+
+
+### avatar 3 tiene escena post creditos (N/A, 18/12/2025 03:36 Lima)
+
+- **La alegría de Oona Chaplin, la hija de Geraldine y nieta de Charles, en la alfombra roja de Avatar junto a Sigourney Weaver**: [Link](https://www.lanacion.com.ar/espectaculos/cine/la-alegria-de-oona-chaplin-la-hija-de-geraldine-y-nieta-de-charles-en-la-alfombra-roja-de-avatar-nid16122025/)
+- **Crítica de 'Avatar: Fuego y ceniza', la tercera película de la saga de James Cameron: "Un estirado chicle azul con trucos de feria fallidos como el insulso 3D"**: [Link](https://www.fotogramas.es/peliculas-criticas/a69736962/avatar-fuego-y-ceniza-pelicula-james-cameron-critica-opinion/)
+- **'Avatar: Fuego y cenizas': Lima se convirtió en Pandora durante la premier de la nueva película de James Cameron [FOTOS]**: [Link](https://rpp.pe/cine/peru/avatar-fuego-y-cenizas-lima-se-convirtio-en-pandora-durante-la-premier-de-la-nueva-pelicula-de-james-cameron-fotos-noticia-1668296)
+
+
+### blake mitchell (N/A, 18/12/2025 03:36 Lima)
+
+- **OnlyFans Star Lane V Rogers Killed in Motorcycle Accident**: [Link](https://www.tmz.com/2025/12/17/onlyfans-lane-v-rogers-killed-motorcycle-accident/)
+- **10 Photos Of Blake Mitchell: Remembering The OnlyFans…**: [Link](https://www.inkl.com/news/10-photos-of-blake-mitchell-remembering-the-onlyfans-adult-star-who-recently-died-cause-of-death-and-most-notable-moments)
+- **OnlyFans star, 31, dies in tragic motorbike accident with truck**: [Link](https://www.the-sun.com/entertainment/15657655/onlyfans-star-dies-tragic-motorbike-accident/)
+
+
 ### kick (N/A, 17/12/2025 23:38 Lima)
 
 - **Learn all about popular Kick streamer Davoo Xeneize**: [Link](https://win.gg/kick-streamer-davoo-xeneize/)
@@ -1012,26 +1033,5 @@ Sin noticias relacionadas disponibles.
 - **Emelec recibe al descendido El Nacional, en el cierre de la Liga Ecuabet**: [Link](https://www.espn.com.ar/futbol/ecuador/nota/_/id/16077342/emelec-vs-el-nacional-fecha-9-hexagonal-dos-torneo-equipo-fecha-hora-y-tv-en-vivo)
 - **Tras el escándalo por el descenso del Bi-Tri: ¿se juega el partido entre Emelec y El Nacional por la LigaPro?**: [Link](https://www.ole.com.ar/ecuador/liga-pro/escandalo-descenso-juega-emelec-nacional-ligapro_0_K9RtDtMCRe.html)
 - **Emelec vs. El Nacional en vivo: cómo llegan al partido**: [Link](https://www.tycsports.com/ecuador/futbol-de-ecuador/ecuador-liga-pro-2025-emelec-vs-el-nacional-fecha-9-id703957.html)
-
-
-### corinthians - cruzeiro (N/A, 14/12/2025 15:27 Lima)
-
-- **André Ramalho, do Corinthians, projeta jogo complicado contra o Cruzeiro: “Vão tentar reverter”**: [Link](https://br.bolavip.com/campeonato-copa-do-brasil/andre-ramalho-do-corinthians-projeta-jogo-complicado-contra-o-cruzeiro-vao-tentar-reverter)
-- **Comentário de Corinthiano em 'Jogo do Corinthians ao vivo'**: [Link](https://www.meutimao.com.br/comentario/16378620/que_essa_noite_o_yuri_alberto_esteja_inspirado)
-- **Ídolo do Cruzeiro, Fabrício aposta em virada diante do Corinthians na decisão**: [Link](https://www.antenadosnofutebol.com.br/copa-do-brasil/idolo-do-cruzeiro-fabricio-aposta-em-virada-diante-do-corinthians-na-decisao)
-
-
-### juventus vs (N/A, 14/12/2025 15:27 Lima)
-
-- **Opinion: Spalletti risks replicating costly Napoli mistake against Bologna**: [Link](https://www.juvefc.com/opinion-spalletti-risks-replicating-costly-napoli-mistake-against-bologna/)
-- **Bologna vs Juventus Prediction, 12/14/2025 Soccer Pick, Tips and Odds**: [Link](https://www.docsports.com/free-picks/soccer/2025/bologna-vs-juventus-prediction-12-14-2025-soccer-pick-tips-and-odds.html)
-- **Game Time Thread: Juventus vs. Bologna**: [Link](https://sports.yahoo.com/articles/game-time-thread-juventus-vs-183000397.html)
-
-
-### juventus (N/A, 14/12/2025 15:27 Lima)
-
-- **Bologna-Juventus: Formazioni ufficiali e Cronaca in diretta**: [Link](https://sport.virgilio.it/dirette/live/serie-a/14-12-2025/bologna-juventus/2558649/)
-- **Serie A | Le formazioni ufficiali di Bologna-Juventus**: [Link](https://www.juventus.com/it/news/articoli/serie-a-2025-2026-bologna-juventus-formazioni)
-- **Bologna-Juve diretta: segui la partita di Serie A LIVE**: [Link](https://www.corrieredellosport.it/news/calcio/serie-a/2025/12/14-145257177/bologna-juve_diretta_segui_la_partita_di_serie_a_live)
 
 
