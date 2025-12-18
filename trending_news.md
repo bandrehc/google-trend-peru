@@ -1,3 +1,73 @@
+### kick (N/A, 17/12/2025 23:38 Lima)
+
+- **Learn all about popular Kick streamer Davoo Xeneize**: [Link](https://win.gg/kick-streamer-davoo-xeneize/)
+- **Kick CEO Confirms Inevitable Introduction of Ads on the Platform**: [Link](https://news.ssbcrack.com/kick-ceo-confirms-inevitable-introduction-of-ads-on-the-platform/)
+- **Kick CEO confirms the platform will turn on ads "at some point"**: [Link](https://www.tubefilter.com/2025/12/16/kick-ceo-ed-craven-ads-coming-soon/)
+
+
+### billie eilish (N/A, 17/12/2025 23:38 Lima)
+
+- **Billie Eilish trades baggy clothes for a plunging polka-dot tank top**: [Link](https://pagesix.com/2025/12/16/style/billie-eilish-trades-baggy-clothes-for-a-plunging-polka-dot-tank-top/)
+- **Billie Eilish ditches her baggy sweats for VERY low-cut tank top in sultry new selfie**: [Link](https://www.the-sun.com/entertainment/15651169/billie-eilish-busty-top-selfie-kitchen/)
+- **Milk Bottle, Polka Dots and...: Billie Eilish BREAKS internet after..., treats fans on her birthday with new**: [Link](https://www.bollywoodlife.com/viral-stories/billie-eilish-new-bold-look-with-milk-bottle-and-polka-dot-tank-top-makes-internet-go-crazy-singer-treats-fans-on-her-birthday-3297141/)
+
+
+### medellín - atlético nacional (N/A, 17/12/2025 23:38 Lima)
+
+- **Nacional gritó campeón por primera vez frente a su eterno rival, el Medellín**: [Link](https://www.espn.com.ar/futbol/colombia/nota/_/id/16095936/nacional-grito-campeon-por-primera-vez-frente-a-su-eterno-rival-el-medellin)
+- **Medellín vs. Atlético Nacional EN VIVO GRATIS vía Win Sports por final de Copa Colombia**: [Link](https://libero.pe/futbol-internacional/2025/12/16/medellin-vs-atletico-nacional-en-vivo-gratis-partido-de-vuelta-de-final-copa-colombia-via-win-sports-online-lbev-764176)
+- **Qué canal pasa Medellín vs Atlético Nacional hoy: dónde ver el partido gratis y en vivo de la final Copa BetPlay 2025**: [Link](https://www.365scores.com/es/news/canal-medellin-vs-atletico-nacional-copa/)
+
+
+### green day (N/A, 17/12/2025 23:38 Lima)
+
+- **Classic DVD Review: Green Day | Bullet In A Bible**: [Link](https://tinnitist.com/2025/12/16/classic-dvd-review-green-day-bullet-in-a-bible/)
+- **Yo Soy EN VIVO 2025: Encuesta del REACT, Miércoles 17 de Diciembre**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-en-vivo-2025-encuesta-del-react-miercoles-17-de-diciembre_20251217/)
+- **Yo Soy EN VIVO 2025: Green Day y Jim Morrison ponen LA PIEL DE GALLINA tras una icónica presentación de “Wake Me Up When September Ends”**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-en-vivo-2025-green-day-y-jim-morrison-ponen-la-piel-de-gallina-tras-una-iconica-presentacion-de-wake-me-up-when-september-ends_20251216/)
+
+
+### yo soy (N/A, 17/12/2025 23:38 Lima)
+
+- **Asesinan a concursante de ‘Yo Soy’ en la puerta de su casa en Puente Piedra**: [Link](https://www.infobae.com/peru/2025/12/16/asesinan-a-concursante-de-yo-soy-en-la-puerta-de-su-casa-en-puente-piedra/)
+- **Sicarios matan de catorce disparos a imitador de reguetón que daba show en Puente Piedra**: [Link](https://www.atv.pe/noticia/sicarios-matan-de-catorce-disparos-a-imitador-de-regueton-que-daba-show-en-puente-piedra/)
+- **Ricardo Morán dedica gala de “Yo Soy” a Dominic Sánchez, imitador de Lenox que fue asesinado**: [Link](https://elcomercio.pe/tvmas/famosos/ricardo-moran-dedica-gala-de-yo-soy-a-dominic-sanchez-imitador-de-lenox-que-fue-asesinado-ultimas-noticia/)
+
+
+### alejandra guzmán (N/A, 17/12/2025 23:38 Lima)
+
+- **Yo Soy EN VIVO 2025: Alejandra Guzmán y Juan Gabriel SE BESAN tras una EXPLOSIVA y SENSUAL presentación en “Hacer El Amor Con Otro”**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-en-vivo-2025-alejandra-guzman-y-juan-gabriel-se-besan-tras-una-explosiva-y-sensual-presentacion-en-hacer-el-amor-con-otro_20251216/)
+- **Yo Soy SEMANA FINAL: CÓMO VOTAR GRATIS por tu imitador favorito a través de la APP de Latina**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-final-como-votar-descargar-app-gratis-imitador-favorito_20251215/)
+- **“Yo soy”: ¿Qué participantes clasificaron a la semana final de la temporada?**: [Link](https://elcomercio.pe/tvmas/television/yo-soy-que-participantes-clasificaron-a-la-semana-final-de-la-temporada-latina-ultimas-noticia/)
+
+
+### ana lucia urbina (N/A, 17/12/2025 23:38 Lima)
+
+- **Ana Lucía Urbina evita responder sobre su relación con las integrantes de Corazón Serrano**: [Link](https://elcomercio.pe/tvmas/famosos/ana-lucia-urbina-evita-responder-sobre-su-relacion-con-las-integrantes-de-corazon-serrano-ultimas-noticia/)
+- **La incómoda reacción de Ana Lucía Urbina sobre su relación con las chicas de Corazón Serrano: “Yo no opino de eso”**: [Link](https://www.infobae.com/peru/2025/12/17/la-incomoda-reaccion-de-ana-lucia-urbina-sobre-su-relacion-con-las-chicas-de-corazon-serrano-yo-no-opino-de-eso/)
+- **Ana Lucía Urbina vive incómodo momento durante entrevista en Ouke por singular pregunta: “A mí no me gusta hablar de eso”**: [Link](https://larepublica.pe/espectaculos/2025/12/16/ana-lucia-urbina-vive-incomodo-momento-durante-entrevista-en-ouke-por-singular-pregunta-a-mi-no-me-gusta-hablar-de-eso-799392)
+
+
+### bulls - cavaliers (N/A, 17/12/2025 23:38 Lima)
+
+- **Cavaliers vs Bulls Picks & Odds Today: Cleveland's Offense To Be Saving Grace**: [Link](https://www.oddsshark.com/nba/cavaliers-bulls-picks-odds-december-17-2025)
+- **NBA Matchups: December 17**: [Link](https://establishtherun.com/nba-matchups-december-17-3/)
+- **Live Updates: Cavs-Bulls, Grizzlies-Timberwolves, top moments and highlights**: [Link](https://www.nba.com/news/live-updates-cavs-bulls-grizzlies-timberwolves-top-moments-and-highlights-2)
+
+
+### yo soy en vivo (N/A, 17/12/2025 23:38 Lima)
+
+- **Yo Soy EN VIVO 2025: Encuesta del REACT, Martes 16 de Diciembre**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-en-vivo-2025-encuesta-del-react-martes-16-de-diciembre_20251216/)
+- **Yo Soy conciertos 2025: ¡Green Day desata su versión más teatral y sólida con “She”!**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-conciertos-2025-green-day-desata-su-version-mas-teatral-y-solida-con-she_20251215/)
+- **Imitadores de Green Day brindaron arriesgada presentación en ‘Yo Soy’ y Carlos Alcántara suelta lisura de la emoción**: [Link](https://www.infobae.com/peru/2025/12/16/imitadores-de-green-day-brindaron-arriesgada-presentacion-en-yo-soy-y-carlos-alcantara-suelta-lisura-de-la-emocion/)
+
+
+### timberwolves - grizzlies (N/A, 17/12/2025 23:38 Lima)
+
+- **Grizzlies vs. Timberwolves: Prediction, Injury Report, How to Watch**: [Link](https://globelynews.com/sports/grizzlies-vs-timberwolves-prediction-injury-report-how-to-watch/)
+- **Jaren Jackson Jr. Records 28-Point Game vs. Timberwolves**: [Link](https://www.nba.com/watch/video/highlights-from-jaren-jackson-jr-28-point-game)
+- **Everybody gets a bucket in Grizzlies comeback win against Minnesota**: [Link](https://dailymemphian.com/article/58218)
+
+
 ### venezuela (N/A, 17/12/2025 21:00 Lima)
 
 - **Cómo el bloqueo petrolero "total y completo" de Trump puede impactar la economía de Venezuela (y jugar en contra de EE.UU.)**: [Link](https://www.bbc.com/mundo/articles/cwylx7107nyo)
@@ -963,73 +1033,5 @@ Sin noticias relacionadas disponibles.
 - **Bologna-Juventus: Formazioni ufficiali e Cronaca in diretta**: [Link](https://sport.virgilio.it/dirette/live/serie-a/14-12-2025/bologna-juventus/2558649/)
 - **Serie A | Le formazioni ufficiali di Bologna-Juventus**: [Link](https://www.juventus.com/it/news/articoli/serie-a-2025-2026-bologna-juventus-formazioni)
 - **Bologna-Juve diretta: segui la partita di Serie A LIVE**: [Link](https://www.corrieredellosport.it/news/calcio/serie-a/2025/12/14-145257177/bologna-juve_diretta_segui_la_partita_di_serie_a_live)
-
-
-### marsella vs monaco (N/A, 14/12/2025 15:27 Lima)
-
-- **Ligue 1 Predictions | Round 16: Lens look hold hold top spot against Nice, OM host Monaco**: [Link](https://www.getfootballnewsfrance.com/2025/ligue-1-predictions-round-16-lens-look-hold-hold-top-spot-against-nice-om-host-monaco/)
-- **OM: Nayef Aguerd and Aubameyang included in squad to face AS Monaco ahead of AFCON 2025**: [Link](https://foot-africa.com/en/news/om-nayef-aguerd-and-aubameyang-included-in-squad-to-face-as-monaco-ahead-of-afcon-2025-1001828/)
-- **Marseille vs Monaco Prediction, 12/14/2025 Soccer Pick, Tips and Odds**: [Link](https://www.docsports.com/free-picks/soccer/2025/marseille-vs-monaco-prediction-12-14-2025-soccer-pick-tips-and-odds.html)
-
-
-### alavés - real madrid (N/A, 14/12/2025 15:27 Lima)
-
-- **Uno a uno del Real Madrid contra el Alavés: valoración y comentarios**: [Link](https://www.marca.com/futbol/real-madrid/2025/12/14/real-madrid-alaves-valoracion-comentarios.html)
-- **Alavés vs Real Madrid: alineaciones, Jornada 16, LaLiga**: [Link](https://www.espn.com.pe/futbol/espana/nota/_/id/16079708/real-madrid-alaves-laliga-alineaciones)
-- **Arranca la era de ‘Mbappés y Valdepeñas’**: [Link](https://as.com/opinion/arranca-la-era-de-mbappes-y-valdepenas-f202512-n/)
-
-
-### bolonia - juventus (N/A, 14/12/2025 15:27 Lima)
-
-- **Juventus visita a Bologna en un gran duelo de la Serie A**: [Link](https://www.espn.com.pe/futbol/italia/nota/_/id/16069999/bologna-vs-juventus-fecha-15-serie-a-equipo-fecha-hora-y-tv-en-vivo)
-- **Serie A: Se enfrentan Bologna y Juventus por la fecha 15**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-se-enfrentan-bologna-y-juventus-por-la-fecha-15-noticia-1667776)
-
-
-### víctor valdepeñas (N/A, 14/12/2025 15:27 Lima)
-
-- **Valdepeñas, una bestia sin límites para Xabi Alonso**: [Link](https://www.marca.com/futbol/real-madrid/2025/12/13/valdepenas-bestia-limites-xabi-alonso.html)
-- **La hora de Valdepeñas**: [Link](https://as.com/futbol/champions/la-hora-de-valdepenas-f202512-n/)
-- **¿Quién es Valdepeñas, nuevo talento de Real Madrid?**: [Link](https://espndeportes.espn.com/futbol/espana/nota/_/id/16082358/real-madrid-vs-alaves-victor-valdepenas-debutaria-nuevo-talento)
-
-
-### marsella vs (N/A, 14/12/2025 15:27 Lima)
-
-- **Marsella y Monaco juegan un partido imperdible de la Ligue 1**: [Link](https://www.espn.com.pe/futbol/francia/nota/_/id/16075298/marsella-vs-monaco-por-la-ligue-1-equipo-fecha-hora-y-tv-en-vivo)
-- **Liga de Francia: Olympique de Marsella se enfrenta ante la visita Mónaco por la fecha 16**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-de-francia-olympique-de-marsella-se-enfrenta-ante-la-visita-monaco-por-la-fecha-16-noticia-1667777)
-- **Ligue 1 Predictions | Round 16: Lens look hold hold top spot against Nice, OM host Monaco**: [Link](https://www.getfootballnewsfrance.com/2025/ligue-1-predictions-round-16-lens-look-hold-hold-top-spot-against-nice-om-host-monaco/)
-
-
-### benfica vs (N/A, 14/12/2025 15:27 Lima)
-
-- **Preview: Moreirense vs Benfica - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/moreirense/preview/moreirense-vs-benfica-prediction-team-news-lineups_587744.html)
-- **Moreirense vs Benfica tonight in Primeira Liga clash, here's why Mourinho's flawless form makes this more than just another game**: [Link](https://www.red94.net/news/95511-moreirense-takes-on-benfica-tonight-in-primeira-liga-clash-lisbon-side-seek-3rd/)
-
-
-### stuttgart vs (N/A, 14/12/2025 15:27 Lima)
-
-- **Hansa Rostock nimmt die Aufstiegsplätze ins Visier**: [Link](https://www.nordkurier.de/regional/rostock/hansa-rostock-nimmt-die-aufstiegsplaetze-ins-visier-4191444)
-- **Keine Punkte gegen Rostock**: [Link](https://www.vfb.de/de/vfb/junge-wilde/u21/3--liga/2526/18-vfb-stuttgart-ii----f-c--hansa-rostock-/)
-- **Hansa Rostock: Torwart Uphoff rettet Sieg mit Monster-Parade**: [Link](https://www.bild.de/sport/fussball/hansa-rostock-torwart-uphoff-rettet-sieg-mit-monster-parade-693e9e2d56897b02d266bcdc)
-
-
-### genoa - inter (N/A, 14/12/2025 11:29 Lima)
-
-- **Genoa Inter, formazioni ufficiali e risultato in diretta live della partita di Serie A**: [Link](https://sport.sky.it/calcio/serie-a/partite/2025/giornata-15/genoa-inter/risultato-gol)
-- **Visnadi: “Non solo orgoglio: ieri Chivu per la prima volta in stagione ha…”**: [Link](https://www.fcinter1908.it/news/rassegna-stampa/visnadi-orgoglio-chivu-prima-volta/)
-- **Tensione a Marassi, incidenti tra tifosi di Genoa e Inter**: [Link](https://www.repubblica.it/sport/calcio/2025/12/14/news/incidenti_marassi_tifosi_genoa_inter-425039219/)
-
-
-### st. mirren - celtic f. c. (N/A, 14/12/2025 11:29 Lima)
-
-- **Celtic starting XI for League Cup Final against St Mirren**: [Link](https://www.celticfc.com/news/2025/december/14/celtic-starting-xi-for-league-cup-final-against-st-mirren/)
-- **Stephen Robinson and Marcus Fraser up for the cup final**: [Link](https://onefootball.com/en/news/stephen-robinson-and-marcus-fraser-up-for-the-cup-final-42094967)
-- **Celtic Manager Speaks Paulo Bernardo Ahead of Cup Final**: [Link](https://celtsarehere.com/celtic-fc-paulo-bernardo-cup-final/)
-
-
-### alaves vs (N/A, 14/12/2025 11:29 Lima)
-
-- **Real Madrid vs Alavés EN VIVO por ESPN: pronóstico, a qué hora juega y dónde ver LaLiga**: [Link](https://libero.pe/futbol-internacional/liga-espanola/2025/12/13/real-madrid-vs-alaves-en-vivo-en-directo-laliga-hoy-via-espn-movistar-plus-lbev-354445)
-- **Alavés vs Real Madrid: alineaciones, Jornada 16, LaLiga**: [Link](https://www.espn.com.pe/futbol/espana/nota/_/id/16079708/real-madrid-alaves-laliga-alineaciones)
-- **LaLiga EA Sports: Alavés recibirá a Real Madrid por la fecha 16**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-alaves-recibira-a-real-madrid-por-la-fecha-16-noticia-1667780)
 
 
