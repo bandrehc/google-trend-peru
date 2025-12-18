@@ -1,3 +1,45 @@
+### marruecos vs (N/A, 18/12/2025 11:37 Lima)
+
+- **Watch Live! Jordan vs Morocco Final in the FIFA Arab Cup on beIN SPORTS**: [Link](https://www.beinsports.com/en-us/soccer/fifa-arab-cup/articles/watch-live-jordan-vs-morocco-final-in-the-fifa-arab-cup-on-bein-sports-2025-12-18)
+- **Amin Zahzouh: Focus is the Key to Crowning the Moroccan Reserve Team with the Arab Cup Title**: [Link](https://www.ysscores.com/en/news/13873651/Amin-Zahzouh:-Focus-is-the-Key-to-Crowning-the-Moroccan-Reserve-Team-with-the-Arab-Cup-Title)
+- **Ayed: We're Capable Of Winning Title**: [Link](https://menafn.com/1110489916/Ayed-Were-Capable-Of-Winning-Title)
+
+
+### 2 de mayo (N/A, 18/12/2025 11:37 Lima)
+
+- **Sorteo de Copa Libertadores: minuto a minuto y rivales de Alianza Lima y Sporting Cristal**: [Link](https://depor.com/futbol-peruano/copa-libertadores/sorteo-de-copa-libertadores-2026-en-vivo-hoy-minuto-a-minuto-gratis-espn-futbol-libre-tv-directv-dsports-disney-plus-tnt-sports-y-partidos-con-rivales-de-alianza-lima-y-sporting-cristal-noticia/)
+- **Alianza Lima enfrentará a 2 de mayo de Paraguay por la fase previa de la Copa Libertadores**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/alianza-lima-enfrentara-a-2-de-mayo-de-paraguay-por-la-fase-previa-de-la-copa-libertadores-noticia/)
+- **Rival de Sporting Cristal en Copa Libertadores 2026: fechas de los partidos por la segunda fase del torneo**: [Link](https://www.infobae.com/peru/deportes/2025/12/18/rival-de-sporting-cristal-en-copa-libertadores-2026-fechas-de-los-partidos-por-la-segunda-fase-del-torneo/)
+
+
+### napoli vs milan (N/A, 18/12/2025 11:37 Lima)
+
+- **Allegri: ‘Milan need new energy, Gimenez advised to have surgery, we’ll see about transfers’**: [Link](https://football-italia.net/allegri-milan-need-energy-gimenez-surgery/)
+- **Italian Super Cup: Which channel and what time to watch Napoli vs AC Milan?**: [Link](https://foot-africa.com/en/news/italian-super-cup-which-channel-and-what-time-to-watch-napoli-vs-ac-milan-1006712/)
+- **Supercoppa Italiana: Extra time or straight to penalties with a draw?**: [Link](https://www.yardbarker.com/soccer/articles/supercoppa_italiana_extra_time_or_straight_to_penalties_with_a_draw/s1_17344_43220488)
+
+
+### sorteo copa libertadores 2026 (N/A, 18/12/2025 11:37 Lima)
+
+- **Sorteo de la Copa Libertadores EN VIVO HOY: Alianza Lima y Sporting Cristal conocerán a sus rivales en la fase previa del torneo**: [Link](https://www.infobae.com/peru/deportes/2025/12/18/sorteo-copa-libertadores-2026-en-vivo-hoy-alianza-lima-sporting-cristal-rivales-fase-previa-fechas-partidos/)
+- **ESPN EN VIVO, Sorteo Fase Previa Copa Libertadores con Alianza Lima y Sporting Cristal: canales de TV**: [Link](https://depor.com/futbol-peruano/copa-libertadores/espn-en-vivo-sorteo-fase-previa-copa-libertadores-2026-en-directo-gratis-canales-para-ver-futbol-libre-tv-disney-plus-directv-y-conocer-rivales-de-alianza-lima-y-sporting-cristal-video-noticia/)
+- **VER ESPN EN VIVO, Sorteo de Copa Libertadores hoy vía Disney Plus**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/espn-en-vivo-sorteo-de-copa-libertadores-hoy-via-disney-plus-youtube-con-alianza-lima-y-sporting-cristal-video-noticia/)
+
+
+### villancicos navideños (N/A, 18/12/2025 11:37 Lima)
+
+- **El Centro Cívico será sede de la víspera de Navidad con un encuentro de villancicos**: [Link](https://sisanjuan.gob.ar/23-gobierno/2025-12-17/65500-el-centro-civico-sera-sede-de-la-vispera-de-navidad-con-un-encuentro-de-villancicos)
+- **Vísperas de Navidad: realizarán un concierto coral en el Centro Cívico**: [Link](https://www.diariohuarpe.com/nota/visperas-de-navidad-coros-y-musica-en-vivo-este-lunes-en-el-centro-civico-2025121717150)
+- **El Centro Cívico se viste de fiesta con un encuentro de villancicos para toda la comunidad**: [Link](https://www.delsurdiario.com/73671-el-centro-civico-se-viste-de-fiesta-con-un-encuentro-de-villancicos-para-toda-la-comunidad)
+
+
+### supercopa de italia (N/A, 18/12/2025 11:37 Lima)
+
+- **Apuestas y Pronóstico del Napoli vs Milan 18/12/25**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/2025/diciembre/pronostico-napoli-vs-milan-18-12-25)
+- **Napoli vs. Milan en vivo, Supercopa de Italia: a qué hora juegan y en qué canal ver transmisión**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/mirar-napoli-vs-milan-en-vivo-hoy-gratis-via-directv-dgo-futbol-libre-tv-a-que-hora-juegan-canal-que-transmite-y-donde-ver-por-supercopa-de-italia-video-noticia/)
+- **Duelo Conte-Allegri por alcanzar la final de la Supercoppa**: [Link](https://www.mundodeportivo.com/futbol/serie-a/20251218/1002588614/duelo-conte-allegri-alcanzar-final-supercoppa.html)
+
+
 ### fonavi diciembre 2025 (N/A, 18/12/2025 07:54 Lima)
 
 - **Fonavi pagará a la Lista 22 mañana jueves 18 de diciembre: ¿Quiénes la integran?**: [Link](https://www.infobae.com/peru/2025/12/16/fonavi-pagara-a-lista-22-este-jueves-18-de-diciembre-quienes-la-integran/)
@@ -991,47 +1033,5 @@ Sin noticias relacionadas disponibles.
 - **3 Lakers Ruled Out Ahead of Suns Rematch**: [Link](https://www.si.com/nba/lakers/onsi/news/3-lakers-ruled-out-ahead-of-suns-rematch)
 - **Los Angeles Lakers vs Phoenix Suns Dec 14, 2025 Game Summary**: [Link](https://www.nba.com/game/0022501228?utm_source=ko_2umogo4v8g4idzvx9&utm_campaign=nba_onramp&utm_medium=social_partner_widget&utm_term=Lakers&utm_content=0022501228&partnerRef=Lakers&howToWatch=false&cp1=web&cp2=scorestrip&cp3={cp_3}&cp4={cp_4}&referrer=utm_source%3Dko_2umogo4v8g4idzvx9%26utm_campaign%3D{campaign_id}%26utm_medium%3DLakers%26utm_term%3D%7BpartnerRef%7D%26utm_content%3D%7Bgame_id%7D)
 - **Suns-Lakers live updates. Suns look to respond from worst loss ever**: [Link](https://sports.yahoo.com/articles/suns-lakers-live-updates-suns-203113460.html)
-
-
-### copa libertadores 2026 (N/A, 14/12/2025 21:07 Lima)
-
-- **Atención, Alianza Lima y Sporting Cristal: fecha y hora del sorteo de la fase previa de la Copa Libertadores**: [Link](https://depor.com/futbol-peruano/copa-libertadores/alianza-lima-sporting-cristal-copa-libertadores-2026-fecha-hora-y-como-sera-el-sorteo-de-la-fase-preliminar-noticia/)
-- **Los posiles rivales de Alianza Lima en Fase 1 de la Copa Libertadores 2026**: [Link](https://www.futbolperuano.com/copa-libertadores/noticias/alianza-lima-como-peru-4-los-posibles-rivales-que-complican-su-camino-en-la-fase-1-de-la-copa-libertadores-2026-554385)
-- **Alianza Lima: Conmebol anuncia fecha para sorteo a fase previa de Copa Libertadores**: [Link](https://trome.com/deportes/futbol-internacional/alianza-lima-conmebol-anuncia-fecha-de-sorteo-a-fase-previa-a-copa-libertadores-video-sporting-cristal-cusco-fc-noticia/)
-
-
-### aldair fuentes (N/A, 14/12/2025 21:07 Lima)
-
-- **Fuentes: “La temporada no iba a valer de nada si no ganábamos este partido”**: [Link](https://ovacion.pe/noticias/cusco-fc/fuentes-temporada-no-iba-valer-nada-si-no-ganabamos-este-partido)
-- **Aldair Fuentes, figura de Cusco FC, sorprende con firme calificativo a Cristal: "Es un..."**: [Link](https://libero.pe/futbol-peruano/liga-1/2025/12/14/aldair-fuentes-figura-de-cusco-fc-sorprende-firme-calificativo-sporting-cristal-es-1051512)
-- **Iván Colman cuestiona el formato de ‘play-offs’ de la Liga 1 2025: “Lo justo sería que Cusco FC vaya Fase de Grupos de Copa Libertadores”**: [Link](https://www.infobae.com/peru/deportes/2025/12/10/ivan-colman-cuestiona-el-formato-de-play-offs-de-la-liga-1-2025-lo-justo-seria-que-cusco-fc-vaya-fase-de-grupos-de-copa-libertadores/)
-
-
-### van der sloot (N/A, 14/12/2025 21:07 Lima)
-
-- **🔴🔵 ¡Lo último! A través de un breve comunicado, el Instituto Nacional Penitenciario confirmó que Joran Van der Sloot intentó quitarse la vida al interior de su celda en el penal de Challapalca durante la mañana de este sábado 13 de diciembre. 🌐Más informa**: [Link](https://www.facebook.com/Exitosanoticias/posts/-lo-%C3%BAltimo-a-trav%C3%A9s-de-un-breve-comunicado-el-instituto-nacional-penitenciario-c/1299379725558416/)
-- **Feminicida Joran van der Sloot mandó mensaje a los padres de Stephany Flores: lo que dijo tras años de silencio**: [Link](https://larepublica.pe/sociedad/2025/12/14/feminicida-joran-van-der-sloot-mando-mensaje-a-los-padres-de-stephany-flores-lo-que-dijo-tras-anos-de-silencio-1173284)
-- **Joran van der Sloot: Minjusdh detalla estado de salud del neerlandés tras intento de quitarse la vida**: [Link](https://www.infobae.com/peru/2025/12/14/joran-van-der-sloot-minjusdh-detalla-estado-de-salud-del-neerlandes-tras-intento-de-quitarse-la-vida/)
-
-
-### influenza h3n2 (N/A, 14/12/2025 21:07 Lima)
-
-- **Minsa informa sobre la situación de la gripe H3N2 en Perú y recomienda vacunación y medidas preventivas por fiestas de fin de año**: [Link](https://www.infobae.com/peru/2025/12/12/minsa-informa-sobre-la-situacion-de-la-gripe-h3n2-en-peru-y-recomienda-vacunacion-y-medidas-preventivas-por-fiestas-de-fin-de-ano/)
-- **Minsa declara alerta epidemiológica nacional ante posible ingreso de la influenza H3N2 al Perú**: [Link](https://larepublica.pe/sociedad/2025/12/14/minsa-declara-alerta-epidemiologica-nacional-ante-posible-ingreso-de-la-influenza-h3n2-al-peru-944090)
-- **Ciro Maguiña, ex Decano Nacional del Colegio Médico del Perú: “La gente ha bajado la guardia después del COVID”**: [Link](https://diariocorreo.pe/edicion/lima/ciro-maguina-ex-decano-nacional-del-colegio-medico-del-peru-la-gente-ha-bajado-la-guardia-despues-del-covid-noticia/)
-
-
-### toluca - tigres (N/A, 14/12/2025 21:07 Lima)
-
-- **¡EN VIVO! Toluca y Tigres definen al campeón del Apertura de la Liga MX**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/16085102/toluca-vs-tigres-final-campeon-apertura-2025-en-vivo-cuando-juegan-formaciones)
-- **Transmisión EN VIVO del Toluca vs Tigres hoy: cómo mirar el partido por TV o streaming**: [Link](https://www.365scores.com/es/news/toluca-vs-tigres-como-ver-transmision/)
-- **▼ ¿A qué hora es y qué canal transmite Toluca vs. Tigres UANL EN VIVO HOY domingo 14 de diciembre, por final de la Liga MX 2025?**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/a-que-hora-juega-y-que-canal-transmite-toluca-vs-tigres-uanl-en-vivo-hoy-por-gran-final-de-liguilla-mx-2025-en-mexico-y-usa-canales-tv-online-nnda-nnrt-noticia/)
-
-
-### liga1 (N/A, 14/12/2025 21:07 Lima)
-
-- **Por sus goles: Juan Reynoso indicó que el fichaje de Jeriel De Santis a Melgar fue un pedido exclusivo suyo**: [Link](https://rpp.pe/futbol/descentralizado/liga-1-juan-reynoso-indico-que-fichaje-de-jeriel-de-santis-a-melgar-fue-un-pedido-exclusivo-suyo-noticia-1667858)
-- **Vuelve al fútbol peruano: Jeriel De Santis se convirtió en nuevo jugador de Melgar**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/jeriel-de-santis-se-convirtio-en-nuevo-jugador-de-melgar-liga-1-noticia/)
-- **Jeriel De Santis, ex Alianza Lima, remece el mercado y firma por mítico club de Liga 1: "Por un año"**: [Link](https://libero.pe/futbol-peruano/liga-1/2025/12/13/fichajes-2026-jeriel-de-santis-ex-alianza-lima-remece-mercado-firma-mitico-club-de-liga-1-ano-1023035)
 
 
