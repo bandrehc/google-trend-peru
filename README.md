@@ -1,3 +1,73 @@
+### liga conferencia (N/A, 18/12/2025 15:26 Lima)
+
+- **Crystal Palace regresa a casa para sellar la clasificación en Conference**: [Link](https://www.espn.com.pe/futbol/nota/_/id/16093109/crystal-palace-vs-kups-fecha-seis-fase-liga-conference-equipo-fecha-hora-y-tv-en-vivo)
+- **El jefe de Crystal Palace, Oliver Glasner, planea rotar el equipo en ausencia de Daichi Kamada**: [Link](https://www.elpueblo.pe/deportes/el-jefe-de-crystal-palace-oliver-glasner-planea-rotar-el-equipo-en-ausencia-de-daichi-kamada/169599/)
+- **Confirmed lineups: Mainz 05 vs. Samsunspor**: [Link](https://ca.sports.yahoo.com/news/confirmed-lineups-mainz-05-vs-185500155.html)
+
+
+### sporting cp (N/A, 18/12/2025 15:26 Lima)
+
+- **Santa Clara vs Sporting CP where to watch: Portuguese Cup Last 16 Live on beIN SPORTS**: [Link](https://www.beinsports.com/en-us/soccer/articles/santa-clara-vs-sporting-cp-where-to-watch-portuguese-cup-last-16-live-on-bein-sports-2025-12-17)
+- **Sporting CP explores youth football partnership in Hengqin**: [Link](https://macaonews.org/life/sports/sporting-cp-youth-football-hengqin/)
+- **Futbolista de Sporting Cristal se iría a Sporting de Lisboa**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/futbolista-sporting-cristal-ficharia-sporting-lisboa-n452005)
+
+
+### crystal palace (N/A, 18/12/2025 15:26 Lima)
+
+- **'No player will start both games' - Palace to pick two teams**: [Link](https://www.bbc.co.uk/sport/football/articles/c5y9wlkj3w1o)
+- **'Turned my head' - Gary Neville and Ian Wright disagree on Leeds United vs Crystal Palace prediction**: [Link](https://www.yorkshireeveningpost.co.uk/sport/football/leeds-united/leeds-united-crystal-palace-gary-neville-ian-wright-prediction-5447369)
+- **Crystal Palace clash may trigger Marcelo Bielsa and Pablo Hernandez nightmares for Leeds United fans**: [Link](https://www.leedsunited.news/throwbacks/crystal-palace-clash-may-trigger-marcelo-bielsa-and-pablo-hernandez-nightmares-for-leeds-united-fans/)
+
+
+### napoli (N/A, 18/12/2025 15:26 Lima)
+
+- **Loftus-Cheek: «Il #Napoli è una grande squadra con calciatori molto pericolosi, ma abbiamo preparato bene il match» A Sport Mediaset: «Dobbiamo stare calmi con la testa. È difficile a volte in queste occasioni, ma siamo pronti adesso a giocare calcio» https:**: [Link](https://www.facebook.com/ilnapolista/photos/loftus-cheek-il-napoli-%C3%A8-una-grande-squadra-con-calciatori-molto-pericolosi-ma-a/1381893647282620/)
+- **Milan, Allegri: "Milan-Como a Perth? Spero che non sia solo un caso isolato, altrimenti sarebbe un problema"**: [Link](https://www.calciomercato.com/liste/milan-allegri-milan-como-a-perth-spero-che-non-sia-solo-un-caso-isolato-altrimenti-sarebbe-un-problema/bltf27af247a7b78579)
+- **Calcio Live News: tutte le notizie di giornata in diretta**: [Link](https://www.diretta.it/news/calcio-serie-a-calcio-live-news-in-supercoppa-napoli-milan-1-0-grazie-a-neres-in-conference-losanna-fiorentina-0-0/fcAYlFdc/)
+
+
+### crystal palace vs (N/A, 18/12/2025 15:26 Lima)
+
+- **Crystal Palace academy pair set for professional debuts against KuPS**: [Link](https://www.newsshopper.co.uk/sport/25707711.crystal-palace-academy-pair-set-start-kups/)
+- **talkSPORT tips – Best football bets and expert advice for Thursday 18 December**: [Link](https://talksport.com/football/3828635/betting-tips-best-football-bets-thursday-18-december/)
+- **Eddie Nketiah must step up and Crystal Palace must go all out in Conference League**: [Link](https://www.fotmob.com/topnews/24657-eddie-nketiah-must-step-up-crystal-palace-must-go-all-out-conference-league?utm_source=fotmob)
+
+
+### sporting lisboa (N/A, 18/12/2025 15:26 Lima)
+
+- **Sporting: jogadores oferecem prendas a jovens da formação**: [Link](https://www.abola.pt/noticias/sporting-jogadores-oferecem-prendas-a-jovens-da-formacao-2025121817223395973)
+- **Sporting: jogadores oferecem prendas a jovens da formação**: [Link](https://sapo.pt/artigo/sporting-jogadores-oferecem-prendas-a-jovens-da-formacao-69443ba4cb2ba1f28f68193b)
+- **VÍDEO: momento de inspiração de Lucas Soares 'trama' o Sporting**: [Link](https://www.abola.pt/noticias/video-momento-de-inspiracao-de-lucas-soares-trama-o-sporting-2025121819224349990)
+
+
+### athletic bilbao (N/A, 18/12/2025 15:26 Lima)
+
+- **How to watch today's Ourense vs Athletic Bilbao Copa del Rey game: Live stream, TV channel, and start time**: [Link](https://www.goal.com/en-sa/news/live-stream-online-tv-where-to-watch-ourense-v-athletic-bilbao/blt72c940bcecbaf4e8)
+- **Preview: Ourense CF vs Athletic Bilbao - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/ourense-cf/copa-del-rey/preview/ourense-cf-vs-athletic-bilbao-prediction-team-news-lineups_587928.html)
+- **Athletic Bilbao set for Copa del Rey clash with giant-killers Ourense CF**: [Link](https://news.ssbcrack.com/athletic-bilbao-set-for-copa-del-rey-clash-with-giant-killers-ourense-cf/)
+
+
+### portugal vs (N/A, 18/12/2025 15:26 Lima)
+
+- **Buy your tickets for Portugal vs FIFA Play Off 1 at the 2026 World Cup at the best price with Tickets MARCA**: [Link](https://www.marca.com/en/world-cup/2025/12/16/69409d8146163f8e738b45d7.html)
+- **Ronaldo’s dream and Portugal’s chance to better their best**: [Link](https://revsportz.in/ronaldos-dream-and-portugals-chance-to-better-their-best/)
+- **World Cup 2026 ticket resale prices for Portugal, Argentina rise nearly 300 per cent after draw - The Athletic**: [Link](https://www.nytimes.com/athletic/6870859/2025/12/08/world-cup-2026-tickets-resale-price/)
+
+
+### bilbao vs (N/A, 18/12/2025 15:26 Lima)
+
+- **How to watch today's Ourense vs Athletic Bilbao Copa del Rey game: Live stream, TV channel, and start time**: [Link](https://www.goal.com/en-sa/news/live-stream-online-tv-where-to-watch-ourense-v-athletic-bilbao/blt72c940bcecbaf4e8)
+- **Preview: Ourense CF vs Athletic Bilbao - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/ourense-cf/copa-del-rey/preview/ourense-cf-vs-athletic-bilbao-prediction-team-news-lineups_587928.html)
+- **Athletic Bilbao set for Copa del Rey clash with giant-killers Ourense CF**: [Link](https://news.ssbcrack.com/athletic-bilbao-set-for-copa-del-rey-clash-with-giant-killers-ourense-cf/)
+
+
+### getafe (N/A, 18/12/2025 15:26 Lima)
+
+- **Burgos 3-1 Getafe: resumen, goles y resultado**: [Link](https://as.com/futbol/copa_del_rey/burgos-getafe-en-directo-copa-del-rey-hoy-en-vivo-f202512-d/)
+- **Murcia - Betis de Copa del Rey: horario y dónde ver por TV**: [Link](https://www.sportaragon.com/articulo/futbol-aragon/murcia-betis-copa-rey-horario-donde-ver-tv/20251218104431143774.html)
+- **Ramis da el 'sí' al método de José Bordalás**: [Link](https://www.estadiodeportivo.com/futbol/burgos/ramis-metodo-jose-bordalas-20251217-524004.html)
+
+
 ### marruecos vs (N/A, 18/12/2025 11:37 Lima)
 
 - **Watch Live! Jordan vs Morocco Final in the FIFA Arab Cup on beIN SPORTS**: [Link](https://www.beinsports.com/en-us/soccer/fifa-arab-cup/articles/watch-live-jordan-vs-morocco-final-in-the-fifa-arab-cup-on-bein-sports-2025-12-18)
@@ -963,75 +1033,5 @@ Sin noticias relacionadas disponibles.
 - **Tilsa Lozano en 'El valor de la verdad': por qué decidió sentarse otra vez en el sillón rojo**: [Link](https://rpp.pe/famosos/farandula/tilsa-lozano-en-el-valor-de-la-verdad-por-que-decidio-sentarse-otra-vez-en-el-sillon-rojo-noticia-1667889)
 - **Tilsa Lozano en ‘El valor de la verdad’: sigue EN VIVO la segunda parte de su presentación**: [Link](https://elcomercio.pe/respuestas/farandula/tilsa-lozano-en-el-valor-de-la-verdad-en-vivo-a-que-hora-y-donde-ver-la-segunda-parte-de-sus-revelaciones-lbposting-noticia/)
 - **Tuvo romance con Yaco y se arrepiente de su relación con el 'Loco' Vargas: Las revelaciones de Tilsa Lozano**: [Link](https://peru21.pe/espectaculos/su-romance-con-yaco-y-se-arrepiente-de-estar-con-el-loco-vargas-tilsa-lozano/)
-
-
-### rob reiner (N/A, 14/12/2025 23:45 Lima)
-
-- **Rob Reiner, Wife Michele Found Dead in Their L.A. Home with Knife Wounds**: [Link](https://www.tmz.com/2025/12/14/rob-reiner-wife-michele-found-dead-los-angeles-home/)
-- **2 found dead at Brentwood mansion that belongs to director Rob Reiner**: [Link](https://www.nbclosangeles.com/investigations/2-found-dead-at-brentwood-mansion-owned-by-director-rob-reiner/3815886/)
-- **Legendary director Rob Reiner, wife found stabbed to death in LA home, son eyed as person of interest**: [Link](https://nypost.com/2025/12/14/us-news/2-dead-at-rob-reiners-la-home-lapds-robbery-homicide-division-respond/)
-
-
-### it (N/A, 14/12/2025 23:45 Lima)
-
-- **Burning of the Black Spot: How It: Welcome to Derry adapted the traumatic book moment — death scene and all**: [Link](https://ew.com/black-spot-burning-explained-it-welcome-to-derry-adaptation-episode-7-11863005)
-- **Welcome To Derry’s Mid-Credits Scene: Is Real Mrs. Ingrid Kersh Dead?**: [Link](https://dmtalkies.com/welcome-to-derry-season-1-mid-credits-scene-2025/)
-- **‘IT: Welcome to Derry’s Showrunner Breaks Down the Shocking Finale and How That Marge Reveal Plays Into the Mythology**: [Link](https://collider.com/it-welcome-to-derry-finale-explained-marge-richie-tozier-connection-showrunner-jason-fuchs/)
-
-
-### h3n2 que es (N/A, 14/12/2025 23:45 Lima)
-
-- **H3N2, la gripe que pone a prueba a los sistemas de salud, llegó a México: cuáles son los síntomas y cómo prevenir**: [Link](https://www.infobae.com/salud/2025/12/14/h3n2-la-gripe-que-pone-a-prueba-a-los-sistemas-de-salud-llego-a-mexico-cuales-son-los-sintomas-y-como-prevenir/)
-- **¿Qué es la "supergripe", el virus que ya tiene su primer caso en México?**: [Link](https://cnnespanol.cnn.com/2025/12/14/salud/video/supergripe-h4n2-mexico-primer-caso-mirador-mundial-tv)
-- **Nota informativa - Influenza A(H3N2) subclado K (J.2.4.1), consideraciones para la Región de las Américas - 11 de diciembre del 2025 - OPS/OMS | Organización Panamericana de la Salud**: [Link](https://www.paho.org/es/documentos/nota-informativa-influenza-ah3n2-subclado-k-j241-consideraciones-para-region-americas-11)
-
-
-### alfredo barnechea (N/A, 14/12/2025 23:45 Lima)
-
-- **Acción Popular queda fuera de las Elecciones 2026 tras anularse sus primarias: claves de la decisión del JNE**: [Link](https://www.infobae.com/peru/2025/12/13/accion-popular-queda-fuera-de-las-elecciones-2026-tras-anularse-sus-primarias-claves-de-la-decision-del-jne/)
-- **El JNE anula las internas de Acción Popular y lo deja fuera de las elecciones: ¿qué implica la decisión y qué pasará con el partido?**: [Link](https://elcomercio.pe/politica/el-jne-anula-las-elecciones-internas-de-accion-popular-y-lo-deja-fuera-de-carrera-que-implica-la-decision-y-que-pasara-con-el-partido-noticia/)
-- **Alfredo Barnechea: Es una decisión completamente ilegal, apelaremos**: [Link](https://canaln.pe/actualidad/alfredo-barnechea-decision-completamente-ilegal-n488924)
-
-
-### viaducto javier prado (N/A, 14/12/2025 23:45 Lima)
-
-- **Mariana Alegre: No a los viaductos**: [Link](https://peru21.pe/opinion/mariana-alegre-no-los-viaductos/)
-- **Proyectos de viaductos en Javier Prado provocan batalla vecinal**: [Link](https://www.americatv.com.pe/noticias/actualidad/proyectos-viaductos-javier-prado-provocan-batalla-vecinal-n513913)
-- **Dos viaductos en Av. Canadá para reducir el tráfico: detalles, opinión de vecinos y análisis de la obra de la MML**: [Link](https://elcomercio.pe/lima/mml-anuncia-proyecto-de-dos-viaductos-en-la-av-canada-para-reducir-tiempos-de-viaje-detalles-de-la-obra-opinion-de-vecinos-y-analisis-noticia/)
-
-
-### trail blazers - warriors (N/A, 14/12/2025 23:45 Lima)
-
-- **Stephen Curry, Warriors out to rebound vs. slumping Blazers**: [Link](https://www.thesportsleader.com/2025/12/13/stephen-curry-warriors-out-to-rebound-vs-slumping-blazers-2/)
-- **BetMGM Bonus Code WSNSPORTS: Get $1,500 Back in Bonus Bets for Warriors vs Trail Blazers**: [Link](https://www.wsn.com/nba/betmgm-bonus-code-warriors-vs-trail-blazers-12-14-2025/)
-- **Portland Trail Blazers vs Golden State Warriors (12-14-2025) game preview: When and where to watch, expec**: [Link](https://timesofindia.indiatimes.com/sports/nba/top-stories/portland-trail-blazers-vs-golden-state-warriors-12-14-2025-game-preview-when-and-where-to-watch-expected-lineup-injury-report-prediction-and-more/articleshow/125968341.cms)
-
-
-### safap (N/A, 14/12/2025 23:45 Lima)
-
-- **Gerardo Ameli dirigirá a Perú en amistoso ante Bolivia: ¿por qué se tomó dicha decisión?**: [Link](https://rpp.pe/futbol/seleccion-peruana/seleccion-peruana-gerardo-ameli-sera-tecnico-de-peru-en-amistoso-ante-bolivia-por-que-se-tomo-dicha-decision-videna-noticia-1667896)
-- **Lista de convocados de la selección peruana: Safap reveló nómina para el amistoso ante Bolivia en Chincha**: [Link](https://larepublica.pe/deportes/2025/12/14/lista-de-convocados-de-la-seleccion-peruana-safap-revelo-nomina-para-el-amistoso-ante-bolivia-en-chincha-461664)
-- **Volvió a jugar tras una lesión y Felipe Chávez es el primer convocado a la Selección Peruana**: [Link](https://bolavip.com/pe/seleccion-peruana/volvio-a-jugar-tras-una-lesion-y-felipe-chavez-es-el-primer-convocado-a-la-seleccion-peruana)
-
-
-### depor (N/A, 14/12/2025 23:45 Lima)
-
-- **Alan Cantero, cerca de Universitario para el 2026**: [Link](https://www.espn.com.pe/futbol/peru/nota/_/id/16076795/alan-cantero-cerca-pasar-alianza-lima-a-universitario-2026)
-- **Alan Cantero responde sobre interés de Universitario: “Llamaron a mi...” [VIDEO]**: [Link](https://trome.com/deportes/futbol-peruano/alianza-lima-alan-cantero-responde-sobre-interes-de-universitario-de-deportes-video-llamaron-a-mi-representante-fichajes-2025-noticia/)
-- **Universitario interesado en figura actual de Alianza Lima: "Lo observan y es del agrado"**: [Link](https://larepublica.pe/deportes/2025/12/09/universitario-de-deportes-interesado-en-figura-actual-de-alianza-lima-lo-observan-y-es-del-agrado-599157)
-
-
-### tabla de posiciones liga 1 (N/A, 14/12/2025 21:07 Lima)
-
-- **Universitario vs Circolo EN VIVO HOY: punto a punto del duelo por la fecha 8 de la Liga Peruana de Vóley 2025/2026**: [Link](https://www.infobae.com/peru/deportes/2025/12/14/universitario-vs-circolo-en-vivo-hoy-latina-tv-fecha-8-primera-fase-liga-peruana-de-voley-2025-2026-resumen-resultado/)
-- **Con el Alianza Lima vs Universitario: conoce la programación de la fecha 9 de la Liga Peruana de Vóley 2025-2026**: [Link](https://rpp.pe/voley/mas-voley/liga-peruana-de-voley-2025-2026-programacion-de-la-fecha-9-fixture-fecha-y-horario-de-los-partidos-alianza-lima-vs-universitario-san-martin-regatas-lpv-noticia-1667871)
-- **Partidos Liga Peruana de Vóley: programación y tabla de posiciones con la fecha 8**: [Link](https://libero.pe/deportes/voley/2025/12/12/partidos-liga-peruana-de-voley-tabla-de-posiciones-programacion-donde-ver-transmision-fecha-8-1164096)
-
-
-### suns - lakers (N/A, 14/12/2025 21:07 Lima)
-
-- **3 Lakers Ruled Out Ahead of Suns Rematch**: [Link](https://www.si.com/nba/lakers/onsi/news/3-lakers-ruled-out-ahead-of-suns-rematch)
-- **Los Angeles Lakers vs Phoenix Suns Dec 14, 2025 Game Summary**: [Link](https://www.nba.com/game/0022501228?utm_source=ko_2umogo4v8g4idzvx9&utm_campaign=nba_onramp&utm_medium=social_partner_widget&utm_term=Lakers&utm_content=0022501228&partnerRef=Lakers&howToWatch=false&cp1=web&cp2=scorestrip&cp3={cp_3}&cp4={cp_4}&referrer=utm_source%3Dko_2umogo4v8g4idzvx9%26utm_campaign%3D{campaign_id}%26utm_medium%3DLakers%26utm_term%3D%7BpartnerRef%7D%26utm_content%3D%7Bgame_id%7D)
-- **Suns-Lakers live updates. Suns look to respond from worst loss ever**: [Link](https://sports.yahoo.com/articles/suns-lakers-live-updates-suns-203113460.html)
 
 
