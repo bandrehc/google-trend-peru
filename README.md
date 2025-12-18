@@ -1,3 +1,17 @@
+### fonavi diciembre 2025 (N/A, 18/12/2025 07:54 Lima)
+
+- **Fonavi pagará a la Lista 22 mañana jueves 18 de diciembre: ¿Quiénes la integran?**: [Link](https://www.infobae.com/peru/2025/12/16/fonavi-pagara-a-lista-22-este-jueves-18-de-diciembre-quienes-la-integran/)
+- **Aprueban nuevo padrón de beneficiarios del Fonavi**: [Link](https://peru21.pe/economia/aprueban-nuevo-padron-de-beneficiarios-del-fonavi/)
+- **FONAVI: Presentan proyecto de ley para incorporar a exaportantes que no pudieron recuperar sus ahorros**: [Link](https://www.exitosanoticias.pe/actualidad/fonavi-presentan-proyecto-ley-incorporar-exaportantes-pudieron-recuperar-sus-ahorros-n164651)
+
+
+### hora peru (N/A, 18/12/2025 07:54 Lima)
+
+- **Canal TV confirmado que transmitirá el Perú vs Bolivia por último amistoso 2025 en Chincha**: [Link](https://www.infobae.com/peru/deportes/2025/12/17/canal-tv-confirmado-que-transmitira-el-peru-vs-bolivia-por-ultimo-amistoso-2025-en-chincha/)
+- **Gerardo Ameli sobre las críticas por dirigir Perú vs. Bolivia: “Me importa lo que piensen mis jugadores”**: [Link](https://depor.com/futbol-peruano/seleccion-peruana/peru-vs-bolivia-declaraciones-de-gerardo-ameli-sobre-su-designacion-y-criticas-solo-me-importa-lo-que-piensen-mis-jugadores-video-noticia/)
+- **Conferencia de prensa Perú agremiados previo al amistoso contra Bolivia**: [Link](https://elcomercio.pe/deporte-total/seleccion/conferencia-de-prensa-peru-agremiados-en-vivo-hablan-alfonso-barco-pedro-gallese-y-jesus-castillo-sobre-el-duelo-amistoso-contra-bolivia-noticia/)
+
+
 ### cometa 3i atlas nasa (N/A, 18/12/2025 03:36 Lima)
 
 - **Cometa 3I/ATLAS: ¿Por qué la NASA activó los protocolos de defensa planetaria ante su cercanía?**: [Link](https://rpp.pe/ciencia/espacio/cometa-3i-atlas-por-que-nasa-y-agencias-activaron-defensa-planetaria-ante-cercania-del-objeto-interestelar-a-la-tierra-noticia-1668198)
@@ -1019,19 +1033,5 @@ Sin noticias relacionadas disponibles.
 - **Por sus goles: Juan Reynoso indicó que el fichaje de Jeriel De Santis a Melgar fue un pedido exclusivo suyo**: [Link](https://rpp.pe/futbol/descentralizado/liga-1-juan-reynoso-indico-que-fichaje-de-jeriel-de-santis-a-melgar-fue-un-pedido-exclusivo-suyo-noticia-1667858)
 - **Vuelve al fútbol peruano: Jeriel De Santis se convirtió en nuevo jugador de Melgar**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/jeriel-de-santis-se-convirtio-en-nuevo-jugador-de-melgar-liga-1-noticia/)
 - **Jeriel De Santis, ex Alianza Lima, remece el mercado y firma por mítico club de Liga 1: "Por un año"**: [Link](https://libero.pe/futbol-peruano/liga-1/2025/12/13/fichajes-2026-jeriel-de-santis-ex-alianza-lima-remece-mercado-firma-mitico-club-de-liga-1-ano-1023035)
-
-
-### fluminense - vasco da gama (N/A, 14/12/2025 21:07 Lima)
-
-- **Jueves: semifinal Vasco vs Fluminense, lo más destacado de la Europa League**: [Link](https://www.elpueblo.pe/deportes/jueves-semifinal-vasco-vs-fluminense-lo-mas-destacado-de-la-europa-league/160638/)
-- **Os destaques da classificação do Vasco, segundo finalista da Copa do Brasil 2025**: [Link](https://www.90min.com/pt-br/destaques-classificacao-vasco-segundo-finalista-copa-do-brasil-2025)
-- **1ºT no Maracanã tem defesaças de Fábio e gol contra bizarro; veja 🎥**: [Link](https://onefootball.com/pt-br/noticias/1t-no-maracana-tem-defesacas-de-fabio-e-gol-contra-bizarro-veja-42097831)
-
-
-### serie a de ecuador (N/A, 14/12/2025 21:07 Lima)
-
-- **Emelec recibe al descendido El Nacional, en el cierre de la Liga Ecuabet**: [Link](https://www.espn.com.ar/futbol/ecuador/nota/_/id/16077342/emelec-vs-el-nacional-fecha-9-hexagonal-dos-torneo-equipo-fecha-hora-y-tv-en-vivo)
-- **Tras el escándalo por el descenso del Bi-Tri: ¿se juega el partido entre Emelec y El Nacional por la LigaPro?**: [Link](https://www.ole.com.ar/ecuador/liga-pro/escandalo-descenso-juega-emelec-nacional-ligapro_0_K9RtDtMCRe.html)
-- **Emelec vs. El Nacional en vivo: cómo llegan al partido**: [Link](https://www.tycsports.com/ecuador/futbol-de-ecuador/ecuador-liga-pro-2025-emelec-vs-el-nacional-fecha-9-id703957.html)
 
 
