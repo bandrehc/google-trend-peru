@@ -1,3 +1,73 @@
+### venezuela (N/A, 17/12/2025 21:00 Lima)
+
+- **Cómo el bloqueo petrolero "total y completo" de Trump puede impactar la economía de Venezuela (y jugar en contra de EE.UU.)**: [Link](https://www.bbc.com/mundo/articles/cwylx7107nyo)
+- **Maduro ordena a la Armada venezolana la escolta de buques petroleros**: [Link](https://elpais.com/america/2025-12-17/maduro-ordena-a-la-armada-venezolana-la-escolta-de-buques-petroleros.html)
+- **Trump insiste en que Venezuela le quitó derechos petroleros a EE.UU. y dice que los quiere de vuelta**: [Link](https://cnnespanol.cnn.com/2025/12/17/eeuu/trump-venezuela-derechos-petroleros-estados-unidos-efe)
+
+
+### cnn (N/A, 17/12/2025 21:00 Lima)
+
+- **Trump Says Warner Bros. Deal Should Include Sale of CNN**: [Link](https://www.bloomberg.com/news/articles/2025-12-10/trump-says-warner-bros-deal-should-include-sale-of-cnn)
+- **Trump's plot to 'turn CNN full MAGA' fails following Paramount deal collapse**: [Link](https://www.rawstory.com/donald-trump-cnn-2674407438/)
+- **President Trump says he's going to play a role in the sale of CNN's parent company**: [Link](https://www.npr.org/2025/12/11/nx-s1-5640096/president-trump-says-hes-going-to-play-a-role-in-the-sale-of-cnns-parent-company)
+
+
+### atlético nacional (N/A, 17/12/2025 21:00 Lima)
+
+- **Medellín vs. Atlético Nacional EN VIVO GRATIS vía Win Sports por final de Copa Colombia**: [Link](https://libero.pe/futbol-internacional/2025/12/16/medellin-vs-atletico-nacional-en-vivo-gratis-partido-de-vuelta-de-final-copa-colombia-via-win-sports-online-lbev-764176)
+- **Medellín busca frenar a Nacional y evitar el triplete en la Copa BetPlay**: [Link](https://www.espn.com.ar/futbol/colombia/nota/_/id/16092889/medellin-busca-frenar-a-nacional-y-evitar-el-triplete-en-la-copa-betplay)
+- **Medellín vs. Atlético Nacional: fecha, horarios y canales de TV por Copa Colombia**: [Link](https://depor.com/colombia/liga-bet-play/medellin-vs-atletico-nacional-fecha-canales-de-tv-horarios-y-donde-ver-transmision-gratis-por-final-de-vuelta-de-copa-colombia-via-win-sports-y-rcn-noticia/)
+
+
+### corinthians vs. cruzeiro (N/A, 17/12/2025 21:00 Lima)
+
+- **Torcida do Corinthians esgota ingressos para primeira partida da final da Copa do Brasil**: [Link](https://ge.globo.com/futebol/times/corinthians/noticia/2025/12/16/torcida-do-corinthians-esgota-ingressos-para-primeira-partida-da-final-da-copa-do-brasil.ghtml)
+- **Bastidores: Timão faz a festa com a Fiel após garantir vaga na final da Copa do Brasil**: [Link](https://www.gazetaesportiva.com/todas-as-noticias/bastidores-timao-faz-a-festa-com-a-fiel-apos-garantir-vaga-na-final-da-copa-do-brasil/)
+- **Ainda não acabou…**: [Link](https://www.opresente.com.br/colunas/pos-rodada-do-futebol-no-o-presente/ainda-nao-acabou/)
+
+
+### avatar (N/A, 17/12/2025 21:00 Lima)
+
+- **‘Avatar: Fire and Ash’ Review: For the First Time in His Spectacular Career, James Cameron Delivers a Movie That Feels Like Something You’ve Seen Before**: [Link](https://www.indiewire.com/criticism/movies/avatar-fire-and-ash-movie-review-james-cameron-1235167902/)
+- **Same old ‘Avatar’, this time with ‘Fire and Ash’**: [Link](https://www.bostonglobe.com/2025/12/16/arts/avatar-fire-and-ash-review/)
+- **Avatar Used to Be Revolutionary. Three Movies in, the Franchise Has Lost Its Wonder**: [Link](https://time.com/7341098/avatar-fire-and-ash-review/)
+
+
+### mario pineida (N/A, 17/12/2025 21:00 Lima)
+
+- **Conmoción en el fútbol: asesinaron a Mario Pineida, jugador del Barcelona de Ecuador**: [Link](https://www.infobae.com/deportes/2025/12/17/conmocion-en-el-futbol-asesinaron-a-mario-pineida-jugador-del-barcelona-de-ecuador/)
+- **¡Conmoción en Ecuador! Jugador del Barcelona de Guayaquil fue asesinado a balazos por sicarios**: [Link](https://trome.com/actualidad/internacional/ecuador-jugador-del-barcelona-de-guayaquil-mario-pineida-fue-asesinado-a-balazos-por-sicarios-video-noticia/)
+- **Matan a jugador del Barcelona de Ecuador Mario Pineida**: [Link](https://www.dw.com/es/matan-a-jugador-del-barcelona-de-ecuador-mario-pineida/a-75210830)
+
+
+### trump (N/A, 17/12/2025 21:00 Lima)
+
+- **US has seized an oil tanker off the coast of Venezuela, Trump says**: [Link](https://apnews.com/article/trump-tanker-seized-venezuela-maduro-0a148ba01684fc6ce1a228dd276732c0)
+- **Trump Live Updates: Venezuela Escorts Ships Amid Blockade Threat**: [Link](https://www.nytimes.com/live/2025/12/17/us/trump-news)
+- **What are the 'ghost ships' Venezuela is using to evade oil sanctions?**: [Link](https://www.bbc.com/news/articles/c4g562vz34ro)
+
+
+### corinthians (N/A, 17/12/2025 21:00 Lima)
+
+- **Ao vivo: Corinthians x Vasco | Final | Copa do Brasil**: [Link](https://ge.globo.com/sp/futebol/copa-do-brasil/jogo/17-12-2025/corinthians-vasco.ghtml)
+- **Rayan abre o placar contra o Corinthians, mas gol estava impedido por um detalhe**: [Link](https://br.bolavip.com/vasco/rayan-abre-o-placar-contra-o-corinthians-mas-gol-estava-impedido-por-um-detalhe)
+- **😅 Referência ao rival? Corinthians CENSURA nome de fotógrafo; entenda**: [Link](https://onefootball.com/pt-br/noticias/referencia-ao-rival-corinthians-censura-nome-de-fotografo-entenda-42111680)
+
+
+### donald trump (N/A, 17/12/2025 21:00 Lima)
+
+- **Trump to address nation from the White House**: [Link](https://www.cnn.com/politics/live-news/trump-administration-news-12-17-25)
+- **Trump announces primetime address to the nation**: [Link](https://www.foxnews.com/politics/trump-announces-primetime-address-nation)
+- **"We Inherited A Mess": Trump To Set Out Plans To Make US "Stronger"**: [Link](https://www.ndtv.com/world-news/donald-trump-news-donald-trump-tv-address-today-we-inherited-a-mess-trump-to-set-out-plans-to-make-us-stronger-9835523)
+
+
+### corinthians vs (N/A, 17/12/2025 21:00 Lima)
+
+- **Hoy, Corinthians vs Vasco da Gama EN VIVO: ¿a qué hora juegan y dónde ver la final ida de la Copa de Brasil 2025?**: [Link](https://rpp.pe/futbol/peruanos-en-el-mundo/corinthians-vs-vasco-da-gama-en-vivo-con-andre-carrillo-a-que-hora-es-y-donde-ver-final-ida-copa-de-brasil-2025-partidos-de-hoy-noticia-1668182)
+- **VER EN VIVO y GRATIS Corinthians 0-0 Vasco Da Gama vía Fútbol Libre: Con André Carrillo por final de Copa B...**: [Link](https://bolavip.com/pe/peruanos-en-el-exterior/ver-gratis-corinthians-vs-vasco-da-gama-en-vivo-via-globo-tv-por-la-final-de-ida-de-la-copa-brasil-hoy-andre-carrillo-vs-philippe-coutinho)
+- **Aún queda un título en Brasil para los colombianos de Vasco Da Gama**: [Link](https://www.espn.com.pe/futbol/brasil/nota/_/id/16087108/colombianos-cuesta-gomez-finalistas-copa-brasil-vasco-da-gama)
+
+
 ### america tv (N/A, 17/12/2025 15:30 Lima)
 
 - **Debut del Real Madrid y Barcelona en Copa del Rey por América TV**: [Link](https://www.americatv.com.pe/deportes/futbol-mundial/debut-real-madrid-y-barcelona-copa-rey-america-tv-n451993)
@@ -961,75 +1031,5 @@ Sin noticias relacionadas disponibles.
 - **Real Madrid vs Alavés EN VIVO por ESPN: pronóstico, a qué hora juega y dónde ver LaLiga**: [Link](https://libero.pe/futbol-internacional/liga-espanola/2025/12/13/real-madrid-vs-alaves-en-vivo-en-directo-laliga-hoy-via-espn-movistar-plus-lbev-354445)
 - **Alavés vs Real Madrid: alineaciones, Jornada 16, LaLiga**: [Link](https://www.espn.com.pe/futbol/espana/nota/_/id/16079708/real-madrid-alaves-laliga-alineaciones)
 - **LaLiga EA Sports: Alavés recibirá a Real Madrid por la fecha 16**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-alaves-recibira-a-real-madrid-por-la-fecha-16-noticia-1667780)
-
-
-### bundesliga (N/A, 14/12/2025 11:29 Lima)
-
-- **Becker-Tor und Becker-Comeback: Königsblau besiegt den FCN mit 1:0**: [Link](https://onefootball.com/fr/news/becker-tor-und-becker-comeback-koenigsblau-besiegt-den-fcn-mit-10-42095582)
-- **FC Schalke 04 feiert Club-Freundschaft mit irrer Choreo**: [Link](https://www.sport.de/news/ne16309588/fc-schalke-04-feiert-club-freundschaft-mit-irrer-choreo/)
-- **2. Fußball-Bundesliga: "Der muss runter": Klose ärgert sich über den Referee**: [Link](https://www.zeit.de/news/2025-12/14/1-fc-nuernberg-wartet-weiter-wieder-kein-sieg-auf-schalke)
-
-
-### bayern - mainz 05 (N/A, 14/12/2025 11:29 Lima)
-
-- **"Goretzka zerstört es gleich doppelt": Bayern-Fans würden gegen Mainz lieber Bischof im Zentrum sehen**: [Link](https://tribuna.com/de/blogs/goretzka-zerstort-es-gleich-doppelt-bayernfans-wurden-gegen/)
-- **Bundesliga, FC Bayern – Mainz 05 live: Bayern mit drei Neuen in der Abwehr**: [Link](https://www.welt.de/sport/fussball/article693ebfbd629fc38b106a3497/bundesliga-fc-bayern-mainz-05-live-bayern-mit-drei-neuen-in-der-abwehr.html)
-- **Der Sport-Tag: Nach über neun Monaten: Bayern-Verteidiger zurück in Startformation**: [Link](https://www.n-tv.de/sport/der_sport_tag/Nach-ueber-neun-Monaten-Bayern-Verteidiger-zurueck-in-Startformation-id30141993.html)
-
-
-### dortmund (N/A, 14/12/2025 11:29 Lima)
-
-- **BVB-Aufstellung gegen Freiburg: Plötzlich herrscht Abwehr-Notstand**: [Link](https://www.absolutfussball.com/deutschland/borussia-dortmund/notstand-bvb-aufstellung-gegen-freiburg-ploetzlich-herrscht-abwehr-94080545.html)
-- **Bellingham sieht die Rote Karte**: [Link](https://www.ligainsider.de/jobe-bellingham_38153/bellingham-sieht-die-rote-karte-405768/)
-- **Liveticker | SC Freiburg - Borussia Dortmund 0:0 | 14. Spieltag | Bundesliga 2025/26**: [Link](https://www.kicker.at/freiburg-gegen-dortmund-2025-bundesliga-5050870/ticker)
-
-
-### napoli vs (N/A, 14/12/2025 11:29 Lima)
-
-- **Napoli miss chance to go top of Serie A with disappointing loss at Udinese**: [Link](https://www.flashscore.com/news/serie-a-udinese-napoli-report-december-14/rBU7E57r/)
-- **Napoli's Quest for Serie A Supremacy**: [Link](https://www.ilmessaggero.it/en/napoli_s_quest_for_serie_a_supremacy-9243344.html)
-- **Match Preview: Udinese v Napoli**: [Link](https://sscnapoli.it/en/match-preview-focus-di-udinese-napoli/)
-
-
-### celta de vigo vs (N/A, 14/12/2025 11:29 Lima)
-
-- **Celta - Athletic live**: [Link](https://www.marca.com/en/soccer/laliga-ea-sports/celta-athletic/2025/12/14/01_0101_20251214_176_174-live.html)
-- **Celta de Vigo faces Athletic Bilbao in La Liga clash with both teams chasing consistency, stakes high in battle for European qualification**: [Link](https://www.red94.net/news/80335-celta-de-vigo-faces-athletic-bilbao-in-la-liga-clash-with-both-teams-chasing-con/)
-- **Where to Watch RC Celta de Vigo vs. Athletic Bilbao: TV Channel, Start Time and Live Stream**: [Link](https://www.bleachernation.com/how-to-watch/2025/12/13/where-to-watch-rc-celta-de-vigo-vs-athletic-bilbao-tv-channel-start-time-and-live-stream-2/)
-
-
-### brentford (N/A, 14/12/2025 11:29 Lima)
-
-- **Brentford v Leeds United: Premier League – live**: [Link](https://www.theguardian.com/football/live/2025/dec/14/brentford-v-leeds-united-premier-league-live)
-- **Football Bet of the Day: Goals galore at the Gtech on Sunday**: [Link](https://mrfixitstips.co.uk/football-bet-of-the-day-goals-galore-at-the-gtech-on-sunday/)
-- **Brentford v Leeds prediction, betting tips and bet builder – Will Thiago be on target again?**: [Link](https://talksport.com/betting/3815832/brentford-leeds-prediction-betting-tips-bet-builder-free-bets/)
-
-
-### elecciones chile (N/A, 14/12/2025 11:29 Lima)
-
-- **Elecciones presidenciales de Chile 2025, en vivo | Kast, tras votar en la segunda vuelta: “Hoy es un gran día para Chile”**: [Link](https://elpais.com/chile/2025-12-14/elecciones-presidenciales-de-chile-2025-en-vivo-kast-y-jara-se-disputan-la-segunda-vuelta.html)
-- **Jeannette Jara y José Antonio Kast: dos polos opuestos que chocan en el balotaje para llegar al Palacio de la Moneda en Chile**: [Link](https://www.infobae.com/america/america-latina/2025/12/14/jeannette-jara-y-jose-antonio-kast-dos-polos-opuestos-que-chocan-en-el-balotaje-para-llegar-al-palacio-de-la-moneda-en-chile/)
-- **Abren los colegios electorales en Chile para el balotaje presidencial entre Jara y Kast**: [Link](https://cnnespanol.cnn.com/2025/12/14/latinoamerica/abren-colegios-electorales-chile-balotaje-presidencial-efe)
-
-
-### alaves vs real madrid (N/A, 14/12/2025 07:49 Lima)
-
-- **Alavés - Real Madrid, en directo: LaLiga EA Sports, en vivo y online**: [Link](https://as.com/futbol/primera/alaves-real-madrid-en-directo-laliga-ea-sports-en-vivo-y-online-f202512-d/)
-- **En Vitoria sigue el juicio blanco**: [Link](https://www.marca.com/futbol/real-madrid/2025/12/14/alaves-real-madrid-vitoria-sigue-juicio-blanco.html)
-- **Alavés vs Real Madrid: alineaciones, Jornada 16, LaLiga**: [Link](https://www.espn.com.ar/futbol/espana/nota/_/id/16079708/real-madrid-alaves-laliga-alineaciones)
-
-
-### sevilla - real oviedo (N/A, 14/12/2025 07:49 Lima)
-
-- **Sevilla quiere volver al triunfo ante un necesitado Real Oviedo**: [Link](https://www.espn.com.ar/futbol/espana/nota/_/id/16076978/sevilla-vs-real-oviedo-fecha-16-laliga-equipo-fecha-hora-y-tv-en-vivo)
-- **Sevilla - Oviedo | A espantar fantasmas, 25 años después: previa, análisis, pronóstico y predicción**: [Link](https://www.marca.com/futbol/primera-division/2025/12/14/sevilla-oviedo-espantar-fantasmas-25-anos-despues-previa-analisis-pronostico-prediccion.html)
-- **Eau del 97**: [Link](https://as.com/futbol/primera/eau-del-97-f202512-n/)
-
-
-### liga italiana (N/A, 14/12/2025 07:49 Lima)
-
-- **Verso Udinese-Napoli, Conte ne cambia solo uno. Novità Lobotka in panchina**: [Link](https://www.ottopagine.it/na/sport/napolicalcio/412108/verso-udinese-napoli-conte-ne-cambia-solo-uno-novita-lobotka-in-panchina.shtml)
-- **Lucca torna a Udine, Runjaic lo punge: "Non mi ha neppure salutato"**: [Link](https://tribuna.com/it/news/2025-12-14-lucca-torna-a-udine-runjaic-lo-punge-non-mi-ha-neppure-salutato/)
-- **Udinese, prove di formazione: dal dubbio Rui Modesto a Piotrowski, Kabasele e Davis**: [Link](https://www.sosfanta.com/news/udinese-prove-di-formazione-dal-dubbio-rui-modesto-a-piotrowski-kabasele-e-davis/)
 
 
