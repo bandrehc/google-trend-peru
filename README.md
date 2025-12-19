@@ -1,3 +1,57 @@
+### borussia dortmund vs (N/A, 19/12/2025 15:28 Lima)
+
+- **Liveticker | Borussia Dortmund - Bor. Mönchengladbach 1:0 | 15. Spieltag | Bundesliga 2025/26**: [Link](https://www.kicker.de/dortmund-gegen-mgladbach-2025-bundesliga-5050876/ticker)
+- **Die Sport-Höhepunkte am Freitag, 19. Dezember**: [Link](https://onefootball.com/en/news/die-sport-hoehepunkte-am-freitag-19-dezember-42116399)
+- **Mit Campbell und Mane, ohne Duranville: 20-köpfiger BVB-Kader für das Spiel gegen Gladbach steht fest**: [Link](https://tribuna.com/de/news/2025-12-19-mit-campbell-und-mane-ohne-duranville-20kopfiger-bvbkader-fur-das-spiel-gegen-gladbach-st/)
+
+
+### dortmund (N/A, 19/12/2025 15:28 Lima)
+
+- **Stadtverwaltung zwischen Weihnachten und Neujahr geschlossen – Notdienste eingerichtet**: [Link](https://www.bad-kreuznach.de/buergerservice/politik-und-verwaltung/weitere-nachrichten/stadtverwaltung-zwischen-weihnachten-und-neujahr-geschlossen-notdienste-eingerichtet/)
+- **So bleibt die Stadtverwaltung Dortmund über Weihnachten und Neujahr erreichbar**: [Link](https://www.nordstadtblogger.de/so-bleibt-die-stadtverwaltung-dortmund-ueber-weihnachten-und-neu-jahr-erreichbar/)
+- **Behördenpause: Stadtverwaltung regelt Erreichbarkeit zwischen den Jahren**: [Link](https://wiesbaden-lebt.de/erreichbarkeit-der-stadtverwaltung-zwischen-den-jahren)
+
+
+### eibar vs (N/A, 19/12/2025 15:28 Lima)
+
+Sin noticias relacionadas disponibles.
+
+
+### bologna (N/A, 19/12/2025 15:28 Lima)
+
+- **Thuram ci mette 70 secondi per segnare in Supercoppa: tutto il merito del gol però è di Bastoni**: [Link](https://tribuna.com/it/blogs/thuram-ci-mette-70-secondi-per-segnare-in-supercoppa-tutto-i/)
+- **LIVE! Bologna-Inter: via alla seconda semifinale, Bonny-Thuram in attacco**: [Link](https://www.eurosport.it/calcio/supercoppa/2025-2026/bologna-inter-live-diretta-scritta-e-aggiornamenti-in-tempo-reale.-cronaca-gol-marcatori-assist-cartellini-semifinale-supercoppa-italiana_sto23252217/story.shtml)
+- **Calcio Live News: tutte le notizie di giornata in diretta**: [Link](https://www.diretta.it/news/calcio-serie-a-calcio-live-news-lautaor-fuori-in-bologna-inter-il-napoli-si-scaglia-contro-allegri/fcAYlFdc/)
+
+
+### inter (N/A, 19/12/2025 15:28 Lima)
+
+- **Inter no tiene margen de error ante Bologna en la semifinal de la Supercopa de Italia**: [Link](https://www.espn.com.pe/futbol/italia/nota/_/id/16086878/bologna-vs-inter-supercopa-italia-equipo-fecha-hora-y-tv-en-vivo)
+- **Bolonia vs. Inter de Milán – El ex centrocampista del AC Milan elogia a los nerazzurri: “Intensos, hay que subir el nivel”**: [Link](https://www.elpueblo.pe/deportes/bolonia-vs-inter-de-milan-el-ex-centrocampista-del-ac-milan-elogia-a-los-nerazzurri-intensos-hay-que-subir-el-nivel/170743/)
+- **¡Continuo! En vivo por ANTV, semifinal de la Supercopa de Italia 2025 Bolonia vs Inter de Milán**: [Link](https://www.ucvradio.pe/mas-actualidad/continuo-en-vivo-por-antv-semifinal-de-la-supercopa-de-italia-2025-bolonia-vs-inter-de-milan/80602/)
+
+
+### bologna vs (N/A, 19/12/2025 15:28 Lima)
+
+- **Preview: Bologna vs Inter Milan - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/bologna/preview/bologna-vs-inter-milan-prediction-team-news-lineups_587969.html)
+- **Di Vaio: ‘Bologna tense and eager to enjoy’ first ever Supercoppa**: [Link](https://football-italia.net/di-vaio-bologna-tense-eager-enjoy-supercoppa/)
+- **Former Arsenal & Man Utd Midfielder Reflects On Simone Inzaghi’s Inter Milan Exit: ‘Everyone Makes Their Own Decisions, You Have To Accept Them & Move On’**: [Link](https://sempreinter.com/2025/12/19/inter-milan-mkhitaryan-inzaghi-departure-decisions/)
+
+
+### valencia vs (N/A, 19/12/2025 15:28 Lima)
+
+- **LALIGA 1 - BORRADOR - Apuestas y Pronóstico del Valencia vs Mallorca 19/12/25**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2025/diciembre/pronostico-valencia-vs-mallorca-19-12-25)
+- **LaLiga EA Sports: Valencia se enfrenta ante la visita Mallorca por la fecha 17**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-valencia-se-enfrenta-ante-la-visita-mallorca-por-la-fecha-17-noticia-1668398)
+- **Compromiso a prueba en Mestalla**: [Link](https://okdiario.com/baleares/compromiso-prueba-mestalla-15960153)
+
+
+### alejandro aramburu (N/A, 19/12/2025 15:28 Lima)
+
+- **Alejandro Aramburú emociona a sus fans tras regresar a Perú luego de debutar en Santos Bravos**: [Link](https://elcomercio.pe/tvmas/famosos/alejandro-aramburu-emociona-a-sus-fans-tras-regresar-a-peru-luego-de-debutar-en-santos-bravos-celebs-ultimas-noticia/)
+- **Cantante Alejandro Aramburú regresa a Perú tras debutar en Santos Bravos, la boyband latina de HYBE, y desata furor en aeropuerto**: [Link](https://larepublica.pe/entretenimiento/2025/12/19/cantante-alejandro-aramburu-regresa-a-peru-tras-debutar-en-santos-bravos-la-boyband-latina-de-hybe-y-desata-furor-en-aeropuerto-440534)
+- **Alejandro Aramburú causa furor en el aeropuerto de Lima: cantante regresó a Perú tras su debut internacional en Santos Bravos**: [Link](https://www.infobae.com/peru/2025/12/19/alejandro-aramburu-de-santos-bravos-causa-furor-en-el-aeropuerto-de-lima-cantante-regreso-a-peru-tras-su-debut-internacional/)
+
+
 ### vasco madueño (N/A, 19/12/2025 11:33 Lima)
 
 - **ROTO EN PEDAZOS: Vasco Madueño, el hijo de Guillermo Dávila, confirma la muerte de su madre**: [Link](https://peru21.pe/espectaculos/vasco-madueno-confirma-la-muerte-de-su-madre/)
@@ -978,61 +1032,5 @@ Sin noticias relacionadas disponibles.
 - **Live Updates: Pistons-Celtics, Rockets-Nuggets lead Monday night**: [Link](https://www.nba.com/news/live-updates-pistons-vs-celtics-rockets-vs-nuggets-and-the-latest-action-from-a-5-game-night-in-the-nba)
 - **bet365 bonus code NYPBET: Bet $5, get $150 in bonus bets for Pistons vs. Celtics**: [Link](https://nypost.com/2025/12/15/betting/bet365-bonus-code-nypbet-bet-5-get-150-in-bonus-bets-for-pistons-vs-celtics/)
 - **NBA Matchups: December 15**: [Link](https://establishtherun.com/nba-matchups-december-15-3/)
-
-
-### luis ramos (N/A, 15/12/2025 21:04 Lima)
-
-- **Comenzó el rompecabezas en Alianza Lima: Luis Ramos fue oficializado como fichaje**: [Link](https://depor.com/futbol-peruano/descentralizado/luis-ramos-fue-anunciado-en-alianza-lima-fichaje-oficial-para-la-temporada-2026-desde-cusco-fc-america-de-cali-liga-1-noticia/)
-- **Alianza Lima oficializó así el fichaje de Luis Ramos para temporada 2026 [VIDEO]**: [Link](https://trome.com/deportes/futbol-peruano/alianza-lima-oficializo-asi-el-fichaje-de-luis-ramos-para-temporada-2026-video-america-de-cali-pablo-guede-liga-1-noticia/)
-- **Alianza Lima hace oficial el fichaje del delantero Luis Ramos**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/alianza-lima-hace-oficial-fichaje-delantero-luis-ramos-n451986)
-
-
-### emelec - el nacional (N/A, 15/12/2025 21:04 Lima)
-
-- **Qué canal pasa Emelec vs El Nacional hoy: dónde ver gratis y en vivo**: [Link](https://www.365scores.com/es/news/donde-ver-emelec-vs-el-nacional-gratis/)
-- **Emelec vs El Nacional hoy EN VIVO, por la LigaPro: ¡alineaciones confirmadas!**: [Link](https://www.ole.com.ar/ecuador/liga-pro/emelec-vs-nacional-ligapro-partido-ecuador-guayaquil-goles-acciones-segundo-hexagonal_0_VuikRMFrcf.html)
-- **EN VIVO Emelec vs. El Nacional: dónde ver y detalles del partido de la LigaPro 2025**: [Link](https://www.extra.ec/noticia/deportes/en-vivo-emelec-vs-el-nacional-donde-ver-y-detalles-del-partido-de-la-ligapro-2025-142987.html)
-
-
-### gta 6 (N/A, 15/12/2025 21:04 Lima)
-
-- **GTA 6 LIVE: Rockstar Games shares gameplay 'small glimpse'**: [Link](https://www.indy100.com/gaming/gta-6-gameplay-rockstar-update)
-- **New GTA 6 Feature Seemingly Revealed by Rockstar Games**: [Link](https://comicbook.com/gaming/news/new-gta-6-feature-seemingly-confirmed-by-rockstar-games/)
-- **GTA 6 animation leaks from developer demo reel ahead of trailer 3**: [Link](https://www.technobezz.com/news/gta-6-animation-leaks-from-developer-demo-reel-ahead-of-trai-2025-12-15-v7bf)
-
-
-### emelec (N/A, 15/12/2025 21:04 Lima)
-
-- **Emelec: Un campeón de Libertadores tiene en su radar a Luis Fernando León**: [Link](https://www.espn.com.ar/futbol/ecuador/nota/_/id/16076916/campeon-libertadores-tiene-en-su-radar-luis-fernando-leon-emelec)
-- **Exclusivo Olé: Liga de Quito e Independiente del Valle realizaron ofertas a Luis Fernando León**: [Link](https://www.ole.com.ar/ecuador/liga-pro/liga-quito-independiente-valle-realizaron-ofertas-luis-fernando-leon_0_cKaIUz5OVB.html)
-- **Bombazo en LigaPro… ¡LDU tiene atado al Mejor Jugador de Emelec para Reforzar su Punto Débil!**: [Link](https://onefootball.com/es/noticias/bombazo-en-ligapro-ldu-tiene-atado-al-mejor-jugador-de-emelec-para-reforzar-su-punto-debil-42101159)
-
-
-### efl cup (N/A, 15/12/2025 21:04 Lima)
-
-- **Enzo Maresca delivers Chelsea team news ahead of Cardiff | News | Official Site**: [Link](https://www.chelseafc.com/en/news/article/enzo-maresca-delivers-chelsea-team-news-ahead-of-cardiff)
-- **Match Sponsors | Cardiff City vs. Chelsea**: [Link](https://www.cardiffcityfc.co.uk/news/match-sponsors-cardiff-city-vs-chelsea)
-- **Cardiff City: Brian Barry-Murphy issues Pep Guardiola claim on eve of EFL Cup last 8 clash with Chelsea**: [Link](https://footballleagueworld.co.uk/cardiff-city-brian-barry-murphy-highlights-pep-guardiola-influence-ahead-of-chelsea/)
-
-
-### influenza h3n2 minsa (N/A, 15/12/2025 21:04 Lima)
-
-- **Minsa confirma dos casos de la influenza A H3N2 en el Perú**: [Link](https://rpp.pe/lima/actualidad/minsa-confirma-dos-casos-de-la-influenza-a-h3n2-en-el-peru-noticia-1668044)
-- **Cómo se contagiaron los pacientes cero de gripe H3N2 en el Perú: “El virus ya está circulando”**: [Link](https://www.infobae.com/peru/2025/12/16/como-se-contagiaron-los-pacientes-cero-de-gripe-h3n2-en-el-peru-el-virus-ya-esta-circulando/)
-- **maricarmen alva exige vigilancia epidemiológica ante expansión de la influenza a H3N2**: [Link](https://comunicaciones.congreso.gob.pe/damos-cuenta/maricarmen-alva-exige-vigilancia-epidemiologica-ante-expansion-de-la-influenza-a-h3n2/)
-
-
-### porto - estrela amadora (N/A, 15/12/2025 21:04 Lima)
-
-- **Farioli para os livros: este é o melhor FC Porto de sempre em 14 jornadas**: [Link](https://sapo.pt/artigo/farioli-para-os-livros-este-e-o-melhor-fc-porto-de-sempre-em-14-jornadas-6940917d8cd072bbb3757924)
-- **AO VIVO: Cartão amarelo para Bednarek (53')**: [Link](https://www.flashscore.pt/noticias/futebol-liga-portugal-betclic-ao-vivo-cartao-amarelo-para-bednarek-53/zV2to1GG/)
-- **Jorge Meireles: «É sempre especial voltar a uma casa onde cresci»**: [Link](https://www.abola.pt/noticias/jorge-meireles-e-sempre-especial-voltar-a-uma-casa-onde-cresci-2025121522524567718)
-
-
-### fonavi lista 22 (N/A, 15/12/2025 21:04 Lima)
-
-- **Buscan que fonavistas que se prestaron del Banco de materiales sean incluidos en devolución**: [Link](https://www.infobae.com/peru/2025/12/13/buscan-que-fonavistas-que-se-prestaron-del-banco-de-materiales-sean-incluidos-en-devolucion/)
-- **FONAVI: Presentan proyecto de ley para incorporar a exaportantes que no pudieron recuperar sus ahorros**: [Link](https://www.exitosanoticias.pe/actualidad/fonavi-presentan-proyecto-ley-incorporar-exaportantes-pudieron-recuperar-sus-ahorros-n164651)
-- **Fecha confirmada para el pago a beneficiarios de la devolución del FONAVI: ¿Será para antes que termine el 2025?**: [Link](https://elcomercio.pe/respuestas/tramites/fecha-confirmada-para-el-pago-a-beneficiarios-de-la-devolucion-del-fonavi-sera-para-antes-que-termine-el-2025-tdpe-noticia/)
 
 
