@@ -1,3 +1,31 @@
+### vasco madueño (N/A, 19/12/2025 11:33 Lima)
+
+- **ROTO EN PEDAZOS: Vasco Madueño, el hijo de Guillermo Dávila, confirma la muerte de su madre**: [Link](https://peru21.pe/espectaculos/vasco-madueno-confirma-la-muerte-de-su-madre/)
+- **Guillermo Dávila participará en ‘El valor de la verdad’: ¿Qué dijo sobre su hijo Vasco Madueño?**: [Link](https://elcomercio.pe/tvmas/farandula/guillermo-davila-participara-en-el-valor-de-la-verdad-que-dijo-sobre-su-hijo-vasco-madueno-ultimas-noticia/)
+- **Vasco Madueño, hijo de Guillermo Dávila, anuncia la muerte de su madre tras una prolongada lucha contra el cáncer**: [Link](https://diariocorreo.pe/espectaculos/vasco-madueno-hijo-de-guillermo-davila-anuncia-la-muerte-de-su-madre-tras-una-prolongada-lucha-contra-el-cancer-noticia/)
+
+
+### villancicos (N/A, 19/12/2025 11:33 Lima)
+
+- **Orquesta Juvenil de Lo Barnechea cierra ciclo de conciertos con imperdible concierto navideño gratuito**: [Link](https://portalmetropolitano.cl/orquesta-juvenil-de-lo-barnechea-cierra-ciclo-de-conciertos-con-imperdible-concierto-navideno-gratuito/)
+- **Música clásica y villancicos: conoce cuándo y dónde será el concierto navideño gratuito en Lo Barnechea**: [Link](https://www.eldinamo.cl/entretencion/panoramas/2025/12/19/anuncian-concierto-navideno-gratuito-en-lo-barnechea-revisa-cuando-y-a-que-hora/)
+- **Imperdible: Concierto Navideño de la Orquesta Juvenil de Lo Barnechea este sábado 20 de diciembre**: [Link](https://aquitedateamos.cl/imperdible-concierto-navideno-de-la-orquesta-juvenil-de-lo-barnechea-este-sabado-20-de-diciembre/)
+
+
+### valencia vs mallorca (N/A, 19/12/2025 11:33 Lima)
+
+- **LALIGA 1 - BORRADOR - Apuestas y Pronóstico del Valencia vs Mallorca 19/12/25**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2025/diciembre/pronostico-valencia-vs-mallorca-19-12-25)
+- **LaLiga EA Sports: Valencia se enfrenta ante la visita Mallorca por la fecha 17**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-valencia-se-enfrenta-ante-la-visita-mallorca-por-la-fecha-17-noticia-1668398)
+- **Alineación posible del Valencia ante el Mallorca en la Liga EA Sports**: [Link](https://as.com/futbol/alineacion-posible-del-valencia-ante-el-mallorca-en-la-liga-ea-sports-f202512-n/)
+
+
+### {"errors":[{"code":9007,"message":"service instances unavailable"}]} (N/A, 19/12/2025 11:33 Lima)
+
+- **Roblox Faces Global Outage, Players Hit By Error 9007, Login And Server Issues**: [Link](https://www.ndtv.com/offbeat/roblox-faces-major-global-outage-players-hit-by-error-9007-login-and-server-issues-9847600)
+- **Roblox - More News on LatestLY**: [Link](https://www.latestly.com/google-trends/19122025/roblox/)
+- **Is Roblox down? Users reporting issues accessing online game**: [Link](https://www.northjersey.com/story/tech/gaming/2025/12/18/is-roblox-down-users-reporting-issues-accessing-online-game/87839528007/)
+
+
 ### avatar 2 (N/A, 19/12/2025 03:35 Lima)
 
 - **Disney, James Cameron sued for copyright infringement over 'Avatar'**: [Link](https://www.reuters.com/legal/litigation/disney-james-cameron-sued-copyright-infringement-over-avatar-2025-12-16/)
@@ -1006,33 +1034,5 @@ Sin noticias relacionadas disponibles.
 - **Buscan que fonavistas que se prestaron del Banco de materiales sean incluidos en devolución**: [Link](https://www.infobae.com/peru/2025/12/13/buscan-que-fonavistas-que-se-prestaron-del-banco-de-materiales-sean-incluidos-en-devolucion/)
 - **FONAVI: Presentan proyecto de ley para incorporar a exaportantes que no pudieron recuperar sus ahorros**: [Link](https://www.exitosanoticias.pe/actualidad/fonavi-presentan-proyecto-ley-incorporar-exaportantes-pudieron-recuperar-sus-ahorros-n164651)
 - **Fecha confirmada para el pago a beneficiarios de la devolución del FONAVI: ¿Será para antes que termine el 2025?**: [Link](https://elcomercio.pe/respuestas/tramites/fecha-confirmada-para-el-pago-a-beneficiarios-de-la-devolucion-del-fonavi-sera-para-antes-que-termine-el-2025-tdpe-noticia/)
-
-
-### manchester united vs (N/A, 15/12/2025 15:30 Lima)
-
-- **Manchester United recibe a Bournemouth por la Premier League**: [Link](https://www.espn.com.pe/futbol/inglaterra/nota/_/id/16076396/manchester-united-vs-bournemouth-premier-league-equipo-fecha-hora-y-tv-en-vivo)
-- **Pronóstico Manchester United - Bournemouth. Premier League | 15/12/2025**: [Link](https://gainblers.com/pe/pronosticos/futbol/inglaterra/premier-league/pronostico-manchester-united-bournemouth-15-12-2025/)
-- **Premier League: Manchester United y Bournemouth se miden por la fecha 16**: [Link](https://rpp.pe/futbol/ligas-internacionales/premier-league-manchester-united-y-bournemouth-se-miden-por-la-fecha-16-noticia-1667864)
-
-
-### manchester united vs. bournemouth (N/A, 15/12/2025 15:30 Lima)
-
-- **'Not good enough' - Amorim admits he and Man Utd are 'underachieving'**: [Link](https://www.bbc.com/sport/football/articles/c5yq2qydly7o)
-- **FOOTBALL DAILY | Amorim feeling the Manchester heat, Pep's London City-slickers, Rodgers off to Saudi and Bohs launch their Kneecap jersey**: [Link](https://www.offtheball.com/podcasts/otb-football/football-daily-amorim-feeling-the-manchester-heat-peps-london-city-slickers-rodgers-off-to-saudi-and-bohs-launch-their-kneecap-jersey)
-- **Amorim responds to Scholes’ claim that he isn’t ‘the right man’ for Man Utd and Mainoo dig**: [Link](https://www.football365.com/news/man-utd-amorim-responds-scholes-not-right-man-mainoo-dig)
-
-
-### roma (N/A, 15/12/2025 15:30 Lima)
-
-- **Roma-Como LIVE**: [Link](https://sport.sky.it/calcio/serie-a/partite/2025/giornata-15/roma-como/risultato-gol)
-- **Tutte le news sul calcio in Diretta**: [Link](https://www.diretta.it/news/calcio-live-news-a-breve-in-campo-roma-como-dal-primo-ferguson-e-baturina/vNV8A0Sb/)
-- **Fabregas: 'Gasperini una leggenda. Questo è un test per me e per la società'**: [Link](https://www.virgilio.it/italia/roma/notizielocali/fabregas_gasperini_una_leggenda_questo_un_test_per_me_e_per_la_societ_-76172707.html)
-
-
-### rangers vs (N/A, 15/12/2025 15:30 Lima)
-
-- **Hibs team news vs Rangers as Elie Youan makes rare start**: [Link](https://www.hibsobserver.co.uk/news/25699992.hibs-team-news-elie-youan-returns-rangers/)
-- **Team News: Rohl Names Side To Face Hibernian**: [Link](https://www.rangers.co.uk/article/team-news-rohl-names-side-to-face-hibernian/qL1k6ndFdJ9AWVB0Cu4L6)
-- **Rangers at Ibrox not daunting for Hibs team harnessing 'Aussie digger spirit'**: [Link](https://www.edinburghnews.scotsman.com/sport/football/hibs/hibs-rangers-ibrox-aussie-digger-spirit-5440986)
 
 
