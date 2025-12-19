@@ -1,3 +1,38 @@
+### avatar 2 (N/A, 19/12/2025 03:35 Lima)
+
+- **Disney, James Cameron sued for copyright infringement over 'Avatar'**: [Link](https://www.reuters.com/legal/litigation/disney-james-cameron-sued-copyright-infringement-over-avatar-2025-12-16/)
+- **Kasowitz Files Copyright Infringement Lawsuit Against James Cameron and Major Hollywood Studios Over 'Avatar: The Way of Water'**: [Link](https://santamariatimes.com/online_features/press_releases/kasowitz-files-copyright-infringement-lawsuit-against-james-cameron-and-major-hollywood-studios-over-avatar-the/article_de0d4efa-b4f4-5757-bb78-05abff9f53fc.html)
+- **Second ‘Avatar’ Copied More Than Original, Writer’s Suit Says**: [Link](https://news.bloomberglaw.com/ip-law/second-avatar-copied-more-than-original-writers-suit-says)
+
+
+### roblox (N/A, 19/12/2025 03:35 Lima)
+
+- **Is Roblox down? Users reporting issues accessing online game**: [Link](https://www.northjersey.com/story/tech/gaming/2025/12/18/is-roblox-down-users-reporting-issues-accessing-online-game/87839528007/)
+- **Roblox down gobally: Outage hits thousands of players with error code 9007 and login issues**: [Link](https://www.moneycontrol.com/technology/roblox-down-gobally-outage-hits-thousands-of-players-with-error-code-9007-and-login-issues-article-13733669.html)
+- **Why is roblox trending?**: [Link](https://www.latestly.com/google-trends/19122025/roblox/)
+
+
+### nba (N/A, 19/12/2025 03:35 Lima)
+
+- **Exclusive | Jalen Brunson wasn’t consulted on Knicks’ NBA banner decision — but has no problem with it**: [Link](https://nypost.com/2025/12/18/sports/jalen-brunson-wasnt-consulted-on-knicks-nba-banner-decision/)
+- **The scenario that will have Dwight Howard ’embarrassed’ for Knicks after nixing NBA Cup banner**: [Link](https://sports.yahoo.com/articles/scenario-dwight-howard-embarrassed-knicks-172217656.html)
+- **Knicks Won’t Raise Banner After Winning Emirates NBA Cup Like Lakers & Bucks Did**: [Link](https://lakersnation.com/knicks-wont-raise-banner-after-winning-emirates-nba-cup-like-lakers-bucks-did/)
+
+
+### lakers (N/A, 19/12/2025 03:35 Lima)
+
+- **Lakers Without Deandre Ayton for Matchup Against Jazz**: [Link](https://news.ssbcrack.com/lakers-without-deandre-ayton-for-matchup-against-jazz/)
+- **LeBron James cites ‘Luka magic’ as Dončić has 45-point triple-double**: [Link](https://www.nba.com/news/lebron-james-cites-luka-magic-as-doncic-has-45-point-triple-double)
+- **Lakers' Luka Doncic broke all-time Anthony Davis record**: [Link](https://www.sportingnews.com/ca/nba/los-angeles-lakers/news/lakers-luka-doncic-broke-all-time-anthony-davis-record/cc58b2058357f2340fc2b683)
+
+
+### yo soy en vivo (N/A, 19/12/2025 03:35 Lima)
+
+- **Yo Soy EN VIVO 2025: Encuesta del REACT, Jueves 18 de Diciembre**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-en-vivo-2025-encuesta-del-react-jueves-18-de-diciembre_20251218/)
+- **Yo Soy EN VIVO 2025: Encuesta del REACT, Miércoles 17 de Diciembre**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-en-vivo-2025-encuesta-del-react-miercoles-17-de-diciembre_20251217/)
+- **Yo Soy EN VIVO 2025: Encuesta del REACT, Martes 16 de Diciembre**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-en-vivo-2025-encuesta-del-react-martes-16-de-diciembre_20251216/)
+
+
 ### alejandra guzmán (N/A, 18/12/2025 23:38 Lima)
 
 - **Yo Soy EN VIVO 2025: imitadora de Alejandra Guzmán evidencia su FUERTE y poderosa personalidad en “Mala Hierba”**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-en-vivo-2025-imitadora-de-alejandra-guzman-evidencia-su-fuerte-y-poderosa-personalidad-en-mala-hierba_20251218/)
@@ -999,40 +1034,5 @@ Sin noticias relacionadas disponibles.
 - **Hibs team news vs Rangers as Elie Youan makes rare start**: [Link](https://www.hibsobserver.co.uk/news/25699992.hibs-team-news-elie-youan-returns-rangers/)
 - **Team News: Rohl Names Side To Face Hibernian**: [Link](https://www.rangers.co.uk/article/team-news-rohl-names-side-to-face-hibernian/qL1k6ndFdJ9AWVB0Cu4L6)
 - **Rangers at Ibrox not daunting for Hibs team harnessing 'Aussie digger spirit'**: [Link](https://www.edinburghnews.scotsman.com/sport/football/hibs/hibs-rangers-ibrox-aussie-digger-spirit-5440986)
-
-
-### roma vs (N/A, 15/12/2025 15:30 Lima)
-
-- **Probable Formation: Roma vs Como**: [Link](https://www.chiesaditotti.com/roma-matchday-coverage/38718/probable-formation-roma-vs-como)
-- **Roma lose El Aynaoui appeal over AFCON, Ndicka and Diao get permission**: [Link](https://sports.yahoo.com/articles/roma-lose-el-aynaoui-appeal-163000448.html)
-- **Fabregas on new Como role for Nico Paz and joke ‘we could just defend’**: [Link](https://www.yardbarker.com/soccer/articles/fabregas_on_new_como_role_for_nico_paz_and_joke_we_could_just_defend/s1_17344_43208803)
-
-
-### maccabi tel aviv (N/A, 15/12/2025 15:30 Lima)
-
-- **Maccabi held to 2-2 draw by Petah Tikva**: [Link](https://www.maccabi-tlv.co.il/en/2025/12/maccabi-held-to-2-2-draw-by-petah-tikva/)
-- **Match Preview: Maccabi Tel Aviv vs Hapoel Petah Tikva: 15/12/2025 – Ligat HaAl**: [Link](https://dailystar.com.lb/match-preview-maccabi-tel-aviv-vs-hapoel-petah-tikva-15-12-2025/)
-- **Peretz: “There is no option to give up at any stage”**: [Link](https://www.maccabi-tlv.co.il/en/2025/12/peretz-there-is-no-option-to-give-up-at-any-stage/)
-
-
-### manchester united - bournemouth (N/A, 15/12/2025 15:30 Lima)
-
-- **Manchester United’s Amad, Bryan Mbeumo available for Bournemouth game before AFCON - The Athletic**: [Link](https://www.nytimes.com/athletic/6875057/2025/12/15/amad-mbeumo-afcon-manchester-united-deadline/)
-- **Team news: United v Bournemouth**: [Link](https://www.manutd.com/en/news/detail/ruben-amorim-gives-team-news-update-for-bournemouth-game-15-december)
-- **'The formation is not the most important thing': Ruben Amorim ahead of Bournemouth clash**: [Link](https://tribuna.com/en/news/2025-12-15-the-formation-is-not-the-most-important-thing-ruben-amorim-ahead-of-bournemouth-clash/)
-
-
-### rayo vallecano - real betis (N/A, 15/12/2025 15:30 Lima)
-
-- **LaLiga EA Sports: Rayo Vallecano y Betis se encuentran en la fecha 16**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-rayo-vallecano-y-betis-se-encuentran-en-la-fecha-16-noticia-1667865)
-- **Pronóstico Rayo Vallecano - Betis. LaLiga | 15/12/2025**: [Link](https://gainblers.com/pe/pronosticos/futbol/espana/liga-primera-division/pronostico-rayo-vallecano-betis-15-12-2025/)
-- **Rayo Vallecano vs. Real Betis prediction, odds, La Liga picks [12/15/2025]**: [Link](https://www.dimers.com/news/rayo-vallecano-vs-real-betis-prediction-la-liga-monday-12-15-2025-ac)
-
-
-### braga (N/A, 15/12/2025 15:30 Lima)
-
-- **Siga o SC Braga vs Santa Clara em direto**: [Link](https://www.abola.pt/futebol/jogo/sc-braga-santa-clara-8047355/liveblog)
-- **Juvenis: confira os resultados da jornada 15 e as classificações**: [Link](https://sapo.pt/artigo/juvenis-confira-os-resultados-da-jornada-15-e-as-classificacoes-693ee69cbc04939e44e18542)
-- **Carlos Vicens: "O importante é ganhar e centrar-nos em nós"**: [Link](https://scbraga.pt/carlos-vicens-o-importante-e-ganhar-e-centrar-nos-em-nos/)
 
 
