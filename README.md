@@ -1,3 +1,73 @@
+### emily en parís (N/A, 18/12/2025 21:03 Lima)
+
+- **Cada temporada de esta serie de Netflix se estrena con más de 100 millones de horas vistas: ahora llega la quinta entrega**: [Link](https://www.sensacine.com/noticias/series/noticia-1000181560/)
+- **“Emily in Paris”: conoce los títulos de los episodios de la temporada 5**: [Link](https://gestion.pe/mix/tendencias-mix/emily-in-paris-5-conoce-los-titulos-de-los-episodios-de-la-temporada-5-serie-de-netflix-video-nnda-nnlt-noticia/)
+- **Emily in Paris Temporada 5: final explicado de la serie de Netflix | MAG**: [Link](https://elcomercio.pe/mag/fama/que-ver/emily-in-paris-temporada-5-final-explicado-de-la-serie-de-netflix-video-nnda-nnlt-noticia/)
+
+
+### bolivar vs (N/A, 18/12/2025 21:03 Lima)
+
+- **Bolívar vs Blooming: Resultado EN VIVO, minuto a minuto y goles de la Copa Paceña**: [Link](https://www.365scores.com/es/news/bolivar-vs-blooming-resultado-vivo-goles/)
+- **Copa Paceña: ¿cuándo se juegan y dónde ver las semifinales de vuelta?**: [Link](https://www.bolivia.com/futbol/liga-boliviana/cuando-se-juegan-y-donde-ver-las-semifinales-de-vuelta-de-la-copa-pacena-555568)
+- **Vallas y venestas para sacar el agua del estadio de Real Santa Cruz**: [Link](https://diez.bo/futbol/vallas-y-venestas-para-sacar-el-agua-del-estadio-de-real-santa-cruz_1765930467)
+
+
+### cristian carbajal (N/A, 18/12/2025 21:03 Lima)
+
+- **Alianza Lima presentó a D'Alessandro Montenegro como su flamente fichaje para el 2026**: [Link](https://libero.pe/futbol-peruano/alianza-lima/2025/12/18/alianza-lima-presento-dalessandro-montenegro-como-su-flamente-fichaje-2026-1028808)
+- **Fichajes de Alianza Lima 2026: altas, bajas y rumores para la Liga 1 y primera fase de Copa Libertadores**: [Link](https://larepublica.pe/deportes/2025/12/15/fichajes-alianza-lima-2026-altas-bajas-renovaciones-y-rumores-de-contrataciones-de-alianza-para-la-liga-1-y-copa-libertadores-1009095)
+- **Nuevo refuerzo: Alianza Lima anunció la contratación de Cristian Carbajal**: [Link](https://rpp.pe/futbol/descentralizado/alianza-lima-anuncio-la-contratacion-de-cristian-carbajal-liga-1-sport-boys-noticia-1668492)
+
+
+### ldu vs (N/A, 18/12/2025 21:03 Lima)
+
+- **Liga de Quito vs. U. Católica EN VIVO por Teleamazonas: transmisión del partido**: [Link](https://libero.pe/futbol-internacional/2025/12/17/liga-de-quito-vs-universidad-catolica-en-vivo-gratis-final-copa-ecuador-via-teleamazonas-directv-sports-lbev-573308)
+- **Liga de Quito vs. U. Católica en vivo: dónde ver por final de Copa Ecuador**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/liga-de-quito-vs-u-catolica-en-vivo-online-gratis-por-final-de-copa-ecuador-a-que-hora-juegan-canal-que-transmite-y-donde-ver-via-directv-dgo-teleamazonas-futbol-libre-tv-video-noticia/)
+- **¿A qué hora juega Liga de Quito vs. U. Católica HOY y dónde ver EN VIVO?**: [Link](https://libero.pe/futbol-internacional/2025/12/17/hora-juega-liga-de-quito-vs-universidad-catolica-canal-de-transmision-en-vivo-donde-ver-partido-final-copa-ecuador-997951)
+
+
+### greg biffle (N/A, 18/12/2025 21:03 Lima)
+
+- **NASCAR driver Greg Biffle, family believed dead in Statesville plane crash**: [Link](https://www.wsoctv.com/news/local/plane-crash-reported-statesville-airport/NY3I3WYHWJDJPPOPTOD2BG4Z64/)
+- **Former NASCAR driver and 6 others dead after private jet crashes in North Carolina**: [Link](https://www.cnn.com/2025/12/18/us/north-carolina-private-jet-crash)
+- **Multiple dead after plane crash at Iredell County airport: What we know**: [Link](https://www.wbtv.com/2025/12/18/plane-crash-iredell-county-airport-leaves-unknown-number-dead/)
+
+
+### rayo vallecano (N/A, 18/12/2025 21:03 Lima)
+
+- **🚨 Rayo v Drita XIs: Iñigo Pérez shakes up his entire XI!**: [Link](https://sports.yahoo.com/articles/rayo-v-drita-xis-igo-191200180.html)
+- **Drita secures the Conference League play-offs for the first time, despite losing to Vallecano**: [Link](https://www.gazetaexpress.com/en/Drita-secures-the-conference-league-play-offs-for-the-first-time-despite-losing-to-Vallecano/)
+- **Preview: Rayo Vallecano vs Drita - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/rayo-vallecano/europa-conference-league/preview/rayo-vallecano-vs-drita-prediction-team-news-lineups_587929.html)
+
+
+### alianza lima vs inter miami (N/A, 18/12/2025 21:03 Lima)
+
+- **Todo listo: Alianza Lima anunció los precios de las entradas para la Noche Blanquiazul 2026**: [Link](https://rpp.pe/futbol/descentralizado/noche-blanquiazul-2026-conoce-los-precios-de-las-entradas-para-el-partido-alianza-lima-vs-inter-miami-noticia-1668476)
+- **Noche Blanquiazul 2026: Todo sobre el partido de Alianza Lima vs Inter Miami**: [Link](https://blog.joinnus.com/noche-blanquiazul-2026-todo-sobre-el-partido-de-alianza-lima-vs-inter-miami/)
+- **Alianza Lima vs Inter Miami: estos son los precios para ver a Messi en la ‘Noche Blanquiazul’**: [Link](https://latinanoticias.pe/deportes/alianza-lima-vs-inter-miami-estos-son-los-precios-para-ver-a-messi-en-la-noche-blanquiazul_20251218/)
+
+
+### az alkmaar (N/A, 18/12/2025 21:03 Lima)
+
+- **AZ vs Jagiellonia Białystok: UEFA Conference League stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cvg1rnm121lt)
+- **Preview: AZ Alkmaar vs. Jagiellonia Bialystok - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/az/europa-conference-league/preview/az-vs-jagiellonia-prediction-team-news-lineups_587926.html)
+- **AZ Alkmaar vs Jagiellonia Bialystok Prediction and Betting Tips | December 18th 2025**: [Link](https://www.sportskeeda.com/football/az-alkmaar-vs-jagiellonia-bialystok-prediction-betting-tips-december-18th-2025)
+
+
+### lisboa fc (N/A, 18/12/2025 21:03 Lima)
+
+- **Taça de Portugal: Sporting nos ‘quartos’ após afastar Santa Clara no prolongamento**: [Link](https://www.correiodamanhacanada.com/taca-de-portugal-sporting-nos-quartos-apos-afastar-santa-clara-no-prolongamento/)
+- **João Simões assume: «Não estivemos ao melhor nível»**: [Link](https://sapo.pt/artigo/joao-simoes-assume-nao-estivemos-ao-melhor-nivel-69447b7ccd48b804e50ffb55)
+- **Rui Borges: «Anda muita malta doente, com gripes e vírus»**: [Link](https://cnnportugal.iol.pt/videos/rui-borges-anda-muita-malta-doente-com-gripes-e-virus/69447f0e0cf2c7eb2444769d)
+
+
+### fiorentina (N/A, 18/12/2025 21:03 Lima)
+
+- **Vanoli: "Con il club non ho parlato. Restiamo in ritiro: con l'Udinese la partita della vita"**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Fiorentina/19-12-2025/fiorentina-vanoli-restiamo-in-ritiro-con-l-udinese-la-partita-della-vita.shtml)
+- **Fiorentina perde ancora: a Losanna è 1-0, viola ai playoff di Conference**: [Link](https://www.radiolombardia.it/2025/12/19/fiorentina-perde-ancora-a-losanna-e-1-0-viola-ai-playoff-di-conference/)
+- **Pagelle F1, Losanna 1-0 Fiorentina: gli unici eroi sono i tifosi, chi non lotta per la maglia lasci Firenze**: [Link](https://onefootball.com/en/news/pagelle-f1-losanna-1-0-fiorentina-gli-unici-eroi-sono-i-tifosi-chi-non-lotta-per-la-maglia-lasci-firenze-42115939)
+
+
 ### liga conferencia (N/A, 18/12/2025 15:26 Lima)
 
 - **Crystal Palace regresa a casa para sellar la clasificación en Conference**: [Link](https://www.espn.com.pe/futbol/nota/_/id/16093109/crystal-palace-vs-kups-fecha-seis-fase-liga-conference-equipo-fecha-hora-y-tv-en-vivo)
@@ -964,74 +1034,5 @@ Sin noticias relacionadas disponibles.
 - **Serie A: Roma se enfrenta ante la visita Como 1907 por la fecha 15**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-roma-se-enfrenta-ante-la-visita-como-1907-por-la-fecha-15-noticia-1667863)
 - **Roma - Como: horario y dónde ver hoy en TV el partido de Serie A**: [Link](https://www.marca.com/futbol/liga-italiana/2025/12/15/roma-horario-ver-hoy-tv-partido-serie.html)
 - **Roma – Como Pronóstico y Apuestas | Serie A 15/12/2025**: [Link](https://www.apuestas-deportivas.es/pronostico/roma-vs-como-pronostico-serie-a-15-12-2025/)
-
-
-### marruecos vs (N/A, 15/12/2025 11:38 Lima)
-
-- **Marruecos vs Emiratos Árabes Unidos EN VIVO: Se amplía la ventaja (2-0)**: [Link](https://www.vavel.com/es/futbol-internacional/2025/12/15/1244484-marruecos-vs-emiratos-arabes-en-vivo-copa-arab.html)
-- **السكتيوي يتطلعون لتخطي الإمارات والوصول إلى نهائي كأس العرب**: [Link](https://tanja24.com/es/2025/12/14/%D8%A7%D9%84%D8%B3%D9%83%D8%AA%D9%8A%D9%88%D9%8A-%D9%8A%D8%AA%D8%B7%D9%84%D8%B9%D9%88%D9%86-%D9%84%D8%AA%D8%AE%D8%B7%D9%8A-%D8%A7%D9%84%D8%A5%D9%85%D8%A7%D8%B1%D8%A7%D8%AA-%D9%88%D8%A7%D9%84%D9%88/)
-- **Portero de Emiratos reconoce la dificultad del duelo ante Marruecos en semis de la Copa Árabe**: [Link](https://es.rue20.com/2025/12/13/portero-de-emiratos-reconoce-la-dificultad-del-duelo-ante-marruecos-en-semis-de-la-copa-arabe/)
-
-
-### spotify (N/A, 15/12/2025 11:38 Lima)
-
-- **Spotify largely back up after outage affects thousands worldwide, Downdetector shows**: [Link](https://www.reuters.com/technology/spotify-down-thousands-us-users-downdetector-shows-2025-12-15/)
-- **Spotify says it is investigating after thousands of users report outages**: [Link](https://www.cbsnews.com/news/is-spotify-down-december-15-downdetector-outage/)
-- **Is Spotify Down for You? Streaming Service Suffering 'Login and Playback Issues'**: [Link](https://www.cnet.com/news-live/is-spotify-down-for-you-streaming-service-suffering-login-and-playback-issues/)
-
-
-### calendario 2026 (N/A, 15/12/2025 11:38 Lima)
-
-- **Cuáles son los feriados, festivos y puentes no laborables 2026 en Colombia**: [Link](https://gestion.pe/mix/respuestas/feriados-festivos-y-puentes-no-laborables-2026-en-colombia-calendario-completo-nnda-nnlt-noticia/)
-- **Calendario 2026 de los feriados, fines de semana largos y días no laborables en Chile**: [Link](https://gestion.pe/mix/respuestas/feriados-fines-de-semana-largos-y-dias-no-laborables-2026-en-chile-calendario-completo-nnda-nnlt-noticia/)
-
-
-### inpe (N/A, 15/12/2025 11:38 Lima)
-
-- **Puno: Dictan detención preliminar de cuatro agentes del INPE investigados por tortura**: [Link](https://diariocorreo.pe/edicion/puno/puno-dictan-detencion-preliminar-de-cuatro-agentes-del-inpe-investigados-por-tortura-noticia/)
-- **Fiscalía detiene a cuatro agentes del INPE investigados por tortura**: [Link](https://www.televisiontarapoto.pe/fiscalia-detiene-a-cuatro-agentes-del-inpe-investigados-por-tortura/)
-- **Detienen a cuatro agentes del INPE acusados de torturar a reo: Fiscalía allana sus viviendas y abre investigación por abusos físicos en Puno**: [Link](https://larepublica.pe/sociedad/2025/12/14/detienen-a-cuatro-agentes-del-inpe-acusados-de-torturar-a-reo-fiscalia-allana-sus-viviendas-y-abre-investigacion-por-abusos-fisicos-en-puno-213248)
-
-
-### sorteo la tinka hoy (N/A, 15/12/2025 11:38 Lima)
-
-- **Resultados de La Tinka del domingo 14 de diciembre: resultados y números del Pozo Millonario**: [Link](https://depor.com/peru/la-tinka-hoy-domingo-14-de-diciembre-en-vivo-resultados-numeros-ganadores-del-ultimo-sorteo-pozo-millonario-boliyapa-resultado-si-o-si-intralot-peru-noticia/)
-- **Resultados de La Tinka: revisa los números ganadores del sorteo del domingo 14 de diciembre**: [Link](https://elcomercio.pe/respuestas/loterias/resultados-de-la-tinka-hoy-14-de-diciembre-en-vivo-ultimo-sorteo-del-domingo-14-numeros-y-jugada-ganadora-cotejar-tinkanet-resultado-si-o-si-boliyapa-intralot-lbposting-noticia/)
-- **La Tinka del miércoles 10 de diciembre: conoce los números ganadores del sorteo**: [Link](https://elcomercio.pe/respuestas/loterias/la-tinka-hoy-miercoles-10-de-diciembre-en-vivo-resultados-del-ultimo-sorteo-numeros-y-jugada-ganadora-pozo-millonario-loteria-resultado-si-o-si-boliyapa-intralot-lbposting-noticia/)
-
-
-### rt (N/A, 15/12/2025 11:38 Lima)
-
-- **RT India deletes X post about PM ‘waiting to meet’ Putin, says it ‘may have been misrepresentation of events’**: [Link](https://www.dawn.com/news/1960880)
-- **Video of Pakistan PM Shehbaz Sharif gatecrashing Putin–Erdogan meet viral: Is it real?**: [Link](https://timesofindia.indiatimes.com/world/europe/video-after-40-minute-wait-pakistan-pm-shehbaz-sharif-gate-crashes-putinerdogan-meet-leaves-within-minutes/articleshow/125935240.cms)
-- **Pak PM interacts with global leaders including Russian Prez Putin in Turkmenistan**: [Link](https://www.theweek.in/wire-updates/international/2025/12/12/fgn56-pak-sharif.html)
-
-
-### ciro castillo (N/A, 15/12/2025 07:58 Lima)
-
-- **Megaoperativo en el Callao: 27 allanamientos y 7 detenidos por “Los Socios del Callao”, banda criminal presuntamente liderada por Ciro Castillo**: [Link](https://www.infobae.com/peru/2025/12/15/megaoperativo-en-el-callao-27-allanamientos-y-7-detenidos-por-red-criminal-los-socios-del-callao-liderada-por-el-gobernador-ciro-castillo/)
-- **Allanan casa del gobernador del Callao Ciro Castillo**: [Link](https://www.americatv.com.pe/noticias/actualidad/allanan-casa-gobernador-callao-ciro-castillo-n513917)
-- **Callao: PNP allana casa de Ciro Castillo por presunta organización criminal ‘Los socios del Callao’**: [Link](https://diariocorreo.pe/politica/callao-pnp-allana-casa-de-ciro-castillo-por-presunta-organizacion-criminal-los-socios-del-callao-noticia/)
-
-
-### nick reiner (N/A, 15/12/2025 07:58 Lima)
-
-- **Medienberichte - US-Regisseur Rob Reiner und seine Frau tot aufgefunden**: [Link](https://www.deutschlandfunk.de/us-regisseur-rob-reiner-und-seine-frau-tot-aufgefunden-112.html)
-- **Nick Reiner: Ein Leben zwischen Abgrund und Erlösung**: [Link](https://www.ilmessaggero.it/de/nick_reiner_ein_leben_zwischen_abgrund_und_erlosung-9246371.html)
-- **Kathy Bates ‚entsetzt‘ über den Tod von Rob Reiner**: [Link](https://www.klatsch-tratsch.de/aktuelles/kathy-bates-entsetzt-ueber-den-tod-von-rob-reiner-2097005/)
-
-
-### local de votación onpe (N/A, 15/12/2025 07:58 Lima)
-
-- **Elecciones 2026: ¿Qué pasa si no elijo mi local de votación hasta este domingo 14 de diciembre?**: [Link](https://www.infobae.com/peru/2025/12/13/elecciones-2026-que-pasa-si-no-elijo-mi-local-de-votacion-hasta-este-domingo-14-de-diciembre/)
-- **ONPE: más de 2 millones de peruanos ya eligieron su local de votación**: [Link](https://rpp.pe/politica/elecciones/onpe-mas-de-2-millones-de-peruanos-ya-eligieron-su-local-de-votacion-noticia-1667783)
-- **Plazo vence HOY, 14 de diciembre: elige tus 3 locales de votación para las Elecciones Generales 2026**: [Link](https://larepublica.pe/elecciones/2025/12/14/plazo-vence-hoy-14-de-diciembre-elige-tus-3-locales-de-votacion-para-las-elecciones-generales-2026-atmp-959938)
-
-
-### tilsa lozano (N/A, 14/12/2025 23:45 Lima)
-
-- **Tilsa Lozano en 'El valor de la verdad': por qué decidió sentarse otra vez en el sillón rojo**: [Link](https://rpp.pe/famosos/farandula/tilsa-lozano-en-el-valor-de-la-verdad-por-que-decidio-sentarse-otra-vez-en-el-sillon-rojo-noticia-1667889)
-- **Tilsa Lozano en ‘El valor de la verdad’: sigue EN VIVO la segunda parte de su presentación**: [Link](https://elcomercio.pe/respuestas/farandula/tilsa-lozano-en-el-valor-de-la-verdad-en-vivo-a-que-hora-y-donde-ver-la-segunda-parte-de-sus-revelaciones-lbposting-noticia/)
-- **Tuvo romance con Yaco y se arrepiente de su relación con el 'Loco' Vargas: Las revelaciones de Tilsa Lozano**: [Link](https://peru21.pe/espectaculos/su-romance-con-yaco-y-se-arrepiente-de-estar-con-el-loco-vargas-tilsa-lozano/)
 
 
