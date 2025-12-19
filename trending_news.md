@@ -1,3 +1,37 @@
+### alejandra guzmán (N/A, 18/12/2025 23:38 Lima)
+
+- **Yo Soy EN VIVO 2025: imitadora de Alejandra Guzmán evidencia su FUERTE y poderosa personalidad en “Mala Hierba”**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-en-vivo-2025-imitadora-de-alejandra-guzman-evidencia-su-fuerte-y-poderosa-personalidad-en-mala-hierba_20251218/)
+- **Yo Soy EN VIVO 2025: imitadora de Alejandra Guzmán despierta la emoción a FLOR DE PIEL con “Volverte a Amar”**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-en-vivo-2025-imitadora-de-alejandra-guzman-despierta-la-emocion-a-flor-de-piel-con-volverte-a-amar_20251218/)
+- **¿Cuándo es la final de 'Yo soy' 2025 segunda temporada y cómo votar online por tu participante favorito?**: [Link](https://larepublica.pe/espectaculos/2025/12/18/cuando-es-la-final-de-yo-soy-2025-y-como-votar-por-tu-participante-favorito-desde-la-app-de-latina-1793808)
+
+
+### latina (N/A, 18/12/2025 23:38 Lima)
+
+- **Los 3 países de América Latina que tendrán mayor crecimiento económico en 2026: superarán más de 2 veces a Chile, México y Brasil**: [Link](https://larepublica.pe/mundo/2025/12/15/los-3-paises-de-america-latina-cuyas-economias-crecerian-mas-en-2026-superaran-mas-de-2-veces-a-chile-mexico-y-brasil-405315)
+- **lunes 15 de diciembre**: [Link](https://latinanoticias.pe/noticias/latina-noticias-edicion-mediodia-encuesta-de-hoy-lunes-15-de-diciembre_20251215/)
+- **Cuando la FED mueve sus piezas, América Latina siente el impacto de esta manera**: [Link](https://forbes.pe/red-forbes/2025-12-18/cuando-la-fed-mueve-sus-piezas-america-latina-siente-el-impacto-de-esta-manera/)
+
+
+### yo soy (N/A, 18/12/2025 23:38 Lima)
+
+- **Yo Soy EN VIVO 2025: Encuesta del REACT, Jueves 18 de Diciembre**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-en-vivo-2025-encuesta-del-react-jueves-18-de-diciembre_20251218/)
+- **Yo Soy EN VIVO 2025: Encuesta del REACT, Miércoles 17 de Diciembre**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-en-vivo-2025-encuesta-del-react-miercoles-17-de-diciembre_20251217/)
+- **Yo Soy EN VIVO 2025: Encuesta del REACT, Martes 16 de Diciembre**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-en-vivo-2025-encuesta-del-react-martes-16-de-diciembre_20251216/)
+
+
+### green day (N/A, 18/12/2025 23:38 Lima)
+
+- **Yo Soy EN VIVO 2025: Green Day sirve el ROCK AND ROLL sobre la mesa una vez más en “When i Come Around”**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-en-vivo-2025-green-day-sirve-el-rock-and-roll-sobre-la-mesa-una-vez-mas-en-when-i-come-around_20251218/)
+- **Yo Soy EN VIVO 2025: ¡Green Day se lució con “Welcome to Paradise” y mostró su mejor versión!**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-en-vivo-2025-green-day-se-lucio-con-welcome-to-paradise-y-mostro-su-mejor-version_20251217/)
+- **Yo Soy EN VIVO 2025: imitadores de Green Day provoca una OLA de EMOCIONES con “21 Guns”**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-en-vivo-2025-imitadores-de-green-day-provoca-una-ola-de-emociones-con-21-guns_20251218/)
+
+
+### ldu (N/A, 18/12/2025 23:38 Lima)
+
+- **¿A qué hora juega Liga de Quito vs. U. Católica HOY y dónde ver EN VIVO?**: [Link](https://libero.pe/futbol-internacional/2025/12/17/hora-juega-liga-de-quito-vs-universidad-catolica-canal-de-transmision-en-vivo-donde-ver-partido-final-copa-ecuador-997951)
+- **Liga de Quito vs. U. Católica en vivo: dónde ver por final de Copa Ecuador**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/liga-de-quito-vs-u-catolica-en-vivo-online-gratis-por-final-de-copa-ecuador-a-que-hora-juegan-canal-que-transmite-y-donde-ver-via-directv-dgo-teleamazonas-futbol-libre-tv-video-noticia/)
+
+
 ### emily en parís (N/A, 18/12/2025 21:03 Lima)
 
 - **Cada temporada de esta serie de Netflix se estrena con más de 100 millones de horas vistas: ahora llega la quinta entrega**: [Link](https://www.sensacine.com/noticias/series/noticia-1000181560/)
@@ -1000,39 +1034,5 @@ Sin noticias relacionadas disponibles.
 - **Siga o SC Braga vs Santa Clara em direto**: [Link](https://www.abola.pt/futebol/jogo/sc-braga-santa-clara-8047355/liveblog)
 - **Juvenis: confira os resultados da jornada 15 e as classificações**: [Link](https://sapo.pt/artigo/juvenis-confira-os-resultados-da-jornada-15-e-as-classificacoes-693ee69cbc04939e44e18542)
 - **Carlos Vicens: "O importante é ganhar e centrar-nos em nós"**: [Link](https://scbraga.pt/carlos-vicens-o-importante-e-ganhar-e-centrar-nos-em-nos/)
-
-
-### liga portugal (N/A, 15/12/2025 15:30 Lima)
-
-- **João Nuno: “Ainda ninguém venceu o FC Porto, podemos ser os primeiros”**: [Link](https://onefootball.com/en/news/joao-nuno-ainda-ninguem-venceu-o-fc-porto-podemos-ser-os-primeiros-42099878)
-- **“O Estrela bate-se bem e vem com algum oxigénio”: Chaínho e um aviso para o FC Porto**: [Link](https://rr.pt/bola-branca/noticia/porto/2025/12/15/o-estrela-bate-se-bem-e-vem-com-algum-oxigenio-chainho-e-um-aviso-para-o-fc-porto/451700/)
-- **"Rodrigo Mora e Samu são uma dupla quase perfeita"**: [Link](https://sicnoticias.pt/especiais/primeira-liga/2025-12-15-video-rodrigo-mora-e-samu-sao-uma-dupla-quase-perfeita-9f102b9b)
-
-
-### fenerbahce vs (N/A, 15/12/2025 11:38 Lima)
-
-- **Preview: Fenerbahce vs Konyaspor - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/fenerbahce/preview/fenerbahce-vs-konyaspor-prediction-team-news-lineups_587755.html)
-- **Fenerbahce look to make up ground in Super Lig race: How to watch and live stream their home tie versus Konyaspor today**: [Link](https://www.goal.com/en-sa/news/how-to-watch-fenerbahce-konyaspor-15122025/blt102720355359dba1)
-
-
-### fenerbahçe - konyaspor (N/A, 15/12/2025 11:38 Lima)
-
-- **Fenerbahçe–Konyaspor maçı: Nene, Semedo ve En-Nesyri neden yok?**: [Link](https://oxu.az/tr/spor/fenerbahce-konyaspor-maci-nene-semedo-ve-en-nesyri-neden-yok)
-- **Fenerbahçe farkı yeniden 3'e indirmek için sahada, ilk 11'ler belli oldu**: [Link](https://www.ntv.com.tr/sporskor/fenerbahce-farki-yeniden-3e-indirmek-icin-sahada-ilk-11-belli-oldu-1703207)
-- **Tedesco, 2 yıldız ismi işaret etti: "Aynı şeyleri bekliyoruz"**: [Link](https://www.ntvspor.net/futbol/tedesco-2-yildiz-ismi-isaret-etti-ayni-seyleri-bekliyoruz-414502)
-
-
-### marruecos (N/A, 15/12/2025 11:38 Lima)
-
-- **Mueren 37 personas en inundaciones repentinas en Marruecos**: [Link](https://www.dw.com/es/mueren-37-personas-en-inundaciones-repentinas-en-marruecos/a-75160005)
-- **Suben a 37 los fallecidos por las lluvias torrenciales en el suroeste de Marruecos**: [Link](https://www.abc.es/sociedad/suben-fallecidos-lluvias-torrenciales-suroeste-marruecos-20251215141940-vi.html)
-- **Imágenes: Fotos | Inundaciones en Safi (Marruecos)**: [Link](https://www.heraldo.es/multimedia/imagenes/internacional/fotos-inundaciones-en-safi-marruecos/)
-
-
-### roma vs como (N/A, 15/12/2025 11:38 Lima)
-
-- **Serie A: Roma se enfrenta ante la visita Como 1907 por la fecha 15**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-roma-se-enfrenta-ante-la-visita-como-1907-por-la-fecha-15-noticia-1667863)
-- **Roma - Como: horario y dónde ver hoy en TV el partido de Serie A**: [Link](https://www.marca.com/futbol/liga-italiana/2025/12/15/roma-horario-ver-hoy-tv-partido-serie.html)
-- **Roma – Como Pronóstico y Apuestas | Serie A 15/12/2025**: [Link](https://www.apuestas-deportivas.es/pronostico/roma-vs-como-pronostico-serie-a-15-12-2025/)
 
 
