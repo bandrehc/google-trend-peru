@@ -1,3 +1,74 @@
+### wolves vs (N/A, 20/12/2025 11:30 Lima)
+
+- **Wolves issue Hugo Bueno injury update ahead of Brentford showdown**: [Link](https://www.molineux.news/news/wolves-issue-hugo-bueno-injury-update-ahead-of-brentford-showdown/)
+- **Use Tote promo code ‘B10G40’ to grab £40 in bonus bets ahead of Wolves vs Brentford**: [Link](https://talksport.com/betting/3835469/wolves-vs-brentford-tote-free-bets/)
+- **Fantasy Premier League Q&A with expert Gianni Buttice - send us your questions**: [Link](https://www.bbc.co.uk/sport/football/live/c23e9rrvznyt?page=3)
+
+
+### brighton (N/A, 20/12/2025 11:30 Lima)
+
+- **Régis Le Bris on squad depth and facing Brighton**: [Link](https://www.safc.com/news/2025/december/19/r-gis-le-bris--on-squad-depth-and-facing-brighton/)
+- **The Early Bird: Weekend football predictions & free betting accumulator tips from James Milton**: [Link](https://www.racingpost.com/sport/football-tips/the-early-bird-weekend-football-predictions-free-betting-accumulator-tips-from-james-milton-aw3IK8B7ppD4/)
+- **Fabian Hurzeler backs a ‘strong squad’ to respond to key absence
+against Sunderland**: [Link](https://www.vavel.com/en/football/2025/12/19/brighton-hove-albion/1245058-fabian-hurzeler-backs-a-strong-squad-to-respond-to-key-absenceagainst-sunderlandthe-seagulls-seek-their-first-win-in-december-without-the-clubcaptain.html)
+
+
+### copa de francia (N/A, 20/12/2025 11:30 Lima)
+
+- **Pronóstico Fontenay LCVF PSG - Copa de Francia 20/12/25**: [Link](https://www.sportytrader.com/es/pronosticos/fontenay-lcvf-psg-313142/)
+- **PSG inicia defensa de título en Copa Francia de fútbol**: [Link](https://www.prensa-latina.cu/2025/12/20/psg-inicia-defensa-de-titulo-en-copa-francia-de-futbol/)
+- **Así se juega una nueva jornada de la Copa Francia: horarios, formaciones y donde ver en vivo**: [Link](https://www.directvsports.com/futbol/asi-se-juega-una-nueva-jornada-de-la-copa-francia-horarios-formaciones-y-donde-ver-en-vivo-20251219-0006.html)
+
+
+### levante vs (N/A, 20/12/2025 11:30 Lima)
+
+- **Levante - Real Sociedad, en directo: LaLiga EA Sports, en vivo hoy**: [Link](https://as.com/futbol/primera/levante-real-sociedad-en-directo-laliga-ea-sports-en-vivo-f202512-d/)
+- **Levante - Real Sociedad, en directo | LaLiga EA Sports, hoy en vivo**: [Link](https://www.marca.com/futbol/laliga-ea-sports/levante-real-sociedad/2025/12/20/01_0101_20251220_855_188-directo.html)
+- **Sequía goleadora en el Levante: un solo gol en cinco encuentros agrava la crisis ofensiva**: [Link](https://www.superdeporte.es/levante-ud/2025/12/18/sequia-goleadora-levante-gol-cinco-laliga-124936459.html)
+
+
+### manchester city - west ham (N/A, 20/12/2025 11:30 Lima)
+
+- **Premier League: Haaland double as Man City cruise, Brentford and Bournemouth also lead**: [Link](https://www.bbc.com/sport/football/live/cy9pwyyjg9jt)
+- **City without injured quartet for Hammers clash**: [Link](https://www.mancity.com/news/mens/manchester-city-v-west-ham-pep-guardiola-injury-update-1-63901743)
+- **Starting XI | Walker-Peters, Scarles and Kilman come in at Manchester City**: [Link](https://www.whufc.com/en/news/starting-xi-or-walker-peters-scarles-and-kilman-come-in-at-manchester-city)
+
+
+### fenerbahçe (N/A, 20/12/2025 11:30 Lima)
+
+- **Tedesco yıldız ismi riske etmedi: Altyapıdan 2 isim kadroda**: [Link](https://www.nefes.com.tr/tedesco-yildiz-ismi-riske-etmedi-altyapidan-2-isim-kadroda-90028)
+- **Fenerbahçe Eyüpspor’u 3-0 mağlup etti: Maç fazlasıyla liderliğe yükseldi**: [Link](https://ww2.kibrispostasi.com/c41-SPOR/n586245-fenerbahce-eyupsporu-30-maglup-etti-mac-fazlasiyla-liderlige-yukseldi)
+- **Fenerbahçe rahat kazandı**: [Link](https://t24.com.tr/yazarlar/melih-gumusbicak/fenerbahce-rahat-kazandi,52938)
+
+
+### real oviedo vs (N/A, 20/12/2025 11:30 Lima)
+
+- **Luka Ilic vs. RC Celta de Vigo – Player props & odds to score a goal on December 20**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/12/19/luka-ilic-soccer-player-props-12-20-2025/87853412007/)
+- **Oviedo - Celta live**: [Link](https://www.marca.com/en/soccer/laliga-ea-sports/oviedo-celta/2025/12/20/01_0101_20251220_187_176-live.html)
+- **Real Oviedo vs Celta Vigo: Prediction, Preview and Team News – 20/12/25**: [Link](https://ghanasoccernet.com/bookmaker-ratings/tips/real-oviedo-vs-celta-vigo-prediction-preview-and-team-news-20-12-25/)
+
+
+### celta de vigo (N/A, 20/12/2025 11:30 Lima)
+
+- **LaLiga EA Sports: Celta se enfrentará a Real Oviedo por la fecha 17**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-celta-se-enfrentara-a-real-oviedo-por-la-fecha-17-noticia-1668522)
+- **Oviedo - Celta live**: [Link](https://www.marca.com/en/soccer/laliga-ea-sports/oviedo-celta/2025/12/20/01_0101_20251220_187_176-live.html)
+- **Where to Watch Real Oviedo vs. RC Celta de Vigo: TV Channel, Start Time and Live Stream**: [Link](https://www.bleachernation.com/how-to-watch/2025/12/19/where-to-watch-real-oviedo-vs-rc-celta-de-vigo-tv-channel-start-time-and-live-stream/)
+
+
+### chelsea vs newcastle (N/A, 20/12/2025 11:30 Lima)
+
+- **Football Tracker: Newcastle ahead against Chelsea, Man City to follow**: [Link](https://www.flashscore.com/news/football-tracker-newcastle-ahead-against-chelsea-man-city-to-follow/p0SNiXEF/)
+- **5 shots, 1 on target and 0/6 crosses: Chelsea’s inefficient winger frustrates fans**: [Link](https://chelsea.news/2025/12/garnacho-winger-inefficient-crosses-chelsea/)
+- **Woltemade thrilled to repay Newcastle fans after Tyne-Wear derby own goal**: [Link](https://www.beinsports.com/en-us/soccer/premier-league/articles/woltemade-thrilled-to-repay-newcastle-fans-after-tyne-wear-derby-own-goal-2025-12-20)
+
+
+### peru vs (N/A, 20/12/2025 11:30 Lima)
+
+- **Con Gallese como capitán: el posible once de la Selección Peruana-SAFAP para el amistoso con Bolivia**: [Link](https://rpp.pe/futbol/seleccion-peruana/peru-safap-vs-bolivia-alineacion-en-amistoso-internacional-en-chincha-con-gallese-gerardo-ameli-noticia-1668686)
+- **Perú vs Bolivia: 50% de descuento en las entradas para ver el último partido de la selección peruana**: [Link](https://elcomercio.pe/deporte-total/seleccion/entradas-peru-vs-bolivia-50-de-descuento-en-las-entradas-para-ver-el-ultimo-partido-de-la-seleccion-peruana-noticia/)
+- **Gerardo Ameli sobre las críticas por dirigir Perú vs. Bolivia: “Me importa lo que piensen mis jugadores”**: [Link](https://depor.com/futbol-peruano/seleccion-peruana/peru-vs-bolivia-declaraciones-de-gerardo-ameli-sobre-su-designacion-y-criticas-solo-me-importa-lo-que-piensen-mis-jugadores-video-noticia/)
+
+
 ### newcastle vs (N/A, 20/12/2025 07:49 Lima)
 
 - **John Terry warns Chelsea of a trick Newcastle have up their sleeve ahead of Premier League clash**: [Link](https://www.thechelseachronicle.com/news/john-terry-warns-chelsea-of-a-trick-newcastle-have-up-their-sleeve-ahead-of-premier-league-clash/)
@@ -959,74 +1030,5 @@ Sin noticias relacionadas disponibles.
 - **Sporting - Valencia hoy en directo: última hora de la Copa del Rey en vivo**: [Link](https://as.com/futbol/copa_del_rey/sporting-valencia-hoy-en-directo-ultima-hora-de-la-copa-del-rey-en-vivo-f202512-d/)
 - **Sporting vs. Valencia (16 de Dic., 2025) Resultados en Vivo**: [Link](https://www.espn.com.ar/futbol/partido/_/juegoId/762542)
 - **Molinón, ¿Punto de inflexión?**: [Link](https://onefootball.com/en/news/molinon-punto-de-inflexion-42101102)
-
-
-### premio the best fifa (N/A, 16/12/2025 15:30 Lima)
-
-- **Premios The Best 2025: minuto a minuto y resumen con Ousmane Dembélé como mejor del mundo**: [Link](https://depor.com/futbol-internacional/resto-del-mundo/premios-the-best-2025-en-vivo-hoy-minuto-a-minuto-gratis-espn-fifa-plus-tv-futbol-libre-tv-disney-plus-directv-movistar-ganadores-nominados-premiados-y-favoritos-con-mbappe-lamine-yamal-y-dembele-noticia/)
-- **Resultados de los Premios The Best 2025 EN VIVO EN DIRECTO - quién fue el mejor jugador de la FIFA**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/resultados-de-los-premios-the-best-2025-en-vivo-en-directo-quien-gue-el-mejor-jugador-de-la-fifa-nnda-nnrt-noticia/)
-- **¿A qué hora inician los Premios The Best FIFA 2025 EN VIVO en EE.UU., México, España y otros países del mundo?**: [Link](https://gestion.pe/mix/sports/a-que-hora-inician-los-premios-the-best-fifa-2025-en-vivo-en-eeuu-mexico-espana-y-otros-paises-del-mundo-nnda-nnrt-noticia/)
-
-
-### cardiff vs. doncaster rovers (N/A, 16/12/2025 15:30 Lima)
-
-- **Nathan Trott Makes Superb Save In Victory**: [Link](https://bernews.com/2025/12/dec15-nathan-trott-makes-superb-save-victory/)
-- **Ashford looking forward to a blue Christmas**: [Link](https://ca.sports.yahoo.com/news/ashford-looking-forward-blue-christmas-165314754.html)
-- **Sky Bet League One Round Up: Cardiff hit 99th minute winner**: [Link](https://www.efl.com/news/2025/december/14/sky-bet-league-one-round-up-Cardiff-hit-99th-minute-winner/)
-
-
-### noche blanquiazul (N/A, 16/12/2025 15:30 Lima)
-
-- **¡Alianza Lima enfrentará a Lionel Messi! Productora confirmó la Noche Blanquiazul 2026 con Inter Miami**: [Link](https://rpp.pe/futbol/descentralizado/alianza-lima-vs-lionel-messi-confirmada-la-noche-blanquiazul-2026-con-inter-miami-por-la-productora-noticia-1668131)
-- **Lionel Messi vuelve al Perú: Alianza Lima vs. Inter Miami en Noche Blanquiazul 2026**: [Link](https://depor.com/futbol-peruano/descentralizado/alianza-lima-vs-inter-miami-por-noche-blanquiazul-2026-fecha-confirmada-para-presentacion-con-lionel-messi-noticia/)
-- **Alianza Lima vs Inter Miami con Lionel Messi: Sound Music Entertainment confirma la fecha, hora y canal del partido por Noche Blanquiazul**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/alianza-lima-vs-inter-miami-con-lionel-messi-sound-music-entertainment-confirma-la-fecha-hora-y-canal-de-la-noche-blanquiazul-noticia/)
-
-
-### cardiff - chelsea (N/A, 16/12/2025 15:30 Lima)
-
-- **Preview: Cardiff City vs Chelsea - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/chelsea/league-cup/preview/cardiff-vs-chelsea-prediction-team-news-lineups_587785.html)
-- **Predicted XI: Enzo Maresca has to risk it all with this changed up team selection**: [Link](https://chelsea.news/2025/12/maresca-predicted-xi-changed-up-team/)
-- **'Estevao banished to the shadow realm': fans react to Chelsea XI vs Cardiff**: [Link](https://tribuna.com/en/blogs/estevao-banished-to-the-shadow-realm-fans-react-to-chelsea-x/)
-
-
-### olympiacos - valencia (N/A, 16/12/2025 15:30 Lima)
-
-- **Monte Morris status for Round 16 vs. Valencia confirmed**: [Link](https://basketnews.com/news-236883-monte-morris-status-for-round-16-vs-valencia-confirmed.html)
-- **Bartzokas begs for mercy following constant signing rumors surrounding Olympiacos**: [Link](https://www.eurohoops.net/en/euroleague/1905701/giorgos-bartzokas-talks-monte-morris-signing-olympiacos-euroleague/)
-- **Morris: «We must first find chemistry and then you will see the better me»**: [Link](https://www.olympiacosbc.gr/en/news-en/latest-news-en/11701-morris-we-must-first-find-chemistry-and-then-you-will-see-the-better-me.html)
-
-
-### guadalajara - barcelona (N/A, 16/12/2025 15:30 Lima)
-
-- **Barcelona visita a Guadalajara por los dieciseavos de final de final de la Copa del Rey**: [Link](https://www.espn.com.pe/futbol/espana/nota/_/id/16083624/guadalajara-vs-barcelna-dieciseavos-de-final-copa-del-rey-equipo-fecha-hora-y-tv-en-vivo)
-- **¿A qué hora es el Guadalajara - Barcelona? Canal TV, horario dónde y cómo ver hoy los dieciseisavos de Copa de**: [Link](https://as.com/futbol/copa_del_rey/a-que-hora-es-el-guadalajara-barcelona-canal-tv-horario-donde-y-como-ver-hoy-los-dieciseisavos-de-copa-del-rey-f202512-n/)
-- **El mensaje de Flick a la plantilla del Barça**: [Link](https://www.sport.es/es/noticias/barca/mensaje-flick-plantilla-barca-124831372)
-
-
-### blooming vs bolívar (N/A, 16/12/2025 15:30 Lima)
-
-- **Bolívar vs. Blooming EN VIVO HOY vía Fútbol Canal por Copa Paceña**: [Link](https://libero.pe/futbol-internacional/2025/12/15/bolivar-vs-blooming-en-vivo-gratis-semifinal-ida-de-copa-pacena-via-futbol-canal-video-vilb-194940)
-- **Semifinales de ida de la Copa Paceña: horarios, dónde ver y más detalles**: [Link](https://www.bolivia.com/futbol/liga-boliviana/horarios-donde-ver-y-mas-sobre-las-semifinales-de-ida-de-la-copa-pacena-555419)
-- **Blooming, diezmado por sanción masiva y lesiones, busca dar el primer golpe ante Bolívar en la semifinal**: [Link](https://eldia.com.bo/2025-12-15/deportes/blooming-diezmado-por-sancion-masiva-y-lesiones-busca-dar-el-primer-golpe-ante-bolivar-en-la-semifinal.html)
-
-
-### memorias ram (N/A, 16/12/2025 11:36 Lima)
-
-- **El aumento del consumo de memoria puede afectar al precio y al rendimiento de tu próximo smartphone Android**: [Link](https://www.elpueblo.pe/ciencia-y-tecnologia/el-aumento-del-consumo-de-memoria-puede-afectar-al-precio-y-al-rendimiento-de-tu-proximo-smartphone-android/166279/)
-- **Escasez de DRAM, demanda de IA y aumento de precios: lo que ha quebrado el mercado de la memoria**: [Link](https://www.elpueblo.pe/ciencia-y-tecnologia/escasez-de-dram-demanda-de-ia-y-aumento-de-precios-lo-que-ha-quebrado-el-mercado-de-la-memoria/159694/)
-
-
-### ticket master (N/A, 16/12/2025 11:36 Lima)
-
-- **Live Nation, Ticketmaster must face sprawling class action over prices**: [Link](https://www.cnbc.com/2025/12/12/live-nation-ticketmaster-must-face-sprawling-class-action-over-prices-.html)
-- **Canceling the Antitrust Show? Live Nation-Ticketmaster’s Latest Attempt To Keep Its Monopoly**: [Link](https://www.promarket.org/2025/12/11/canceling-the-antitrust-show-live-nation-ticketmasters-latest-attempt-to-keep-its-monopoly/)
-- **Ticketmaster under fire - Here's all about the monopoly case that could cost billions**: [Link](https://m.economictimes.com/news/international/us/ticketmaster-under-fire-heres-all-about-the-monopoly-case-that-could-cost-billions/articleshow/125916858.cms)
-
-
-### avengers doomsday (N/A, 16/12/2025 11:36 Lima)
-
-- **'Avengers: Doomsday' Trailers: Thor & Doom Receive Trailers + Full Teaser Audio Description (Exclusive)**: [Link](https://featurefirst.net/avengers-doomsday-trailers-thor-doom-exclusive/)
-- **Leaked Footage Confirms Steve Rogers Returns to Marvel Cinematic Universe as a Father**: [Link](https://www.inkl.com/news/leaked-footage-confirms-steve-rogers-returns-to-marvel-cinematic-universe-as-a-father)
-- **What Chris Evans Said About ‘Avengers: Doomsday’ & If He’d Ever Return as Captain America**: [Link](https://www.justjared.com/2025/12/16/what-chris-evans-said-about-avengers-doomsday-if-hed-ever-return-as-captain-america/)
 
 
