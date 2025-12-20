@@ -1,3 +1,66 @@
+### gustavo bueno (N/A, 19/12/2025 23:31 Lima)
+
+- **Final Al fondo hay sitio: Don Gilberto reapareció**: [Link](https://www.americatv.com.pe/al-fondo-hay-sitio/don-gilberto-reaparecio-afhs-olinda-noticia-161991)
+- **Gustavo Bueno: "Me siento nuevamente en casa"**: [Link](https://www.americatv.com.pe/al-fondo-hay-sitio/gustavo-bueno-sobre-su-regreso-me-siento-nuevamente-casa-noticia-162002)
+- **Olinda descubrirá el secreto de don Gilberto (AVANCE)**: [Link](https://www.americatv.com.pe/al-fondo-hay-sitio/olinda-descubrira-secreto-mejor-guardado-gilberto-avance-noticia-161936)
+
+
+### latina (N/A, 19/12/2025 23:31 Lima)
+
+- **Yo Soy EN VIVO 2025: Encuesta del REACT, Viernes 19 de Diciembre**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-en-vivo-2025-encuesta-del-react-viernes-19-de-diciembre_20251219/)
+- **Yo Soy EN VIVO 2025: Encuesta del REACT, Jueves 18 de Diciembre**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-en-vivo-2025-encuesta-del-react-jueves-18-de-diciembre_20251218/)
+- **Yo Soy EN VIVO 2025: Encuesta del REACT, Miércoles 17 de Diciembre**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-en-vivo-2025-encuesta-del-react-miercoles-17-de-diciembre_20251217/)
+
+
+### michael jackson (N/A, 19/12/2025 23:31 Lima)
+
+- **Live updates: The Jeffrey Epstein files released | CNN Politics**: [Link](https://www.cnn.com/politics/live-news/jeffrey-epstein-files-released)
+- **Epstein’s Victims Are Furious**: [Link](https://www.theatlantic.com/politics/2025/12/epstein-victims-trump-bondi-justice-department/685369/)
+- **Pam Bondi could be convicted of obstruction of justice over partial release of redacted Epstein files, Massie says – live**: [Link](https://www.theguardian.com/us-news/live/2025/dec/19/jeffrey-epstein-files-released-trump-administration)
+
+
+### green day (N/A, 19/12/2025 23:31 Lima)
+
+- **Yo Soy EN VIVO 2025: imitadores de Green Day REVIVIERON el ROCK de los 2000’s con “Holiday”**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-en-vivo-2025-imitadores-de-green-day-revivieron-el-rock-de-los-2000s-con-holiday_20251219/)
+- **Yo Soy EN VIVO 2025: ¡Green Day se lució con “Welcome to Paradise” y mostró su mejor versión!**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-en-vivo-2025-green-day-se-lucio-con-welcome-to-paradise-y-mostro-su-mejor-version_20251217/)
+- **Yo Soy EN VIVO 2025: Green Day sirve el ROCK AND ROLL sobre la mesa una vez más en “When i Come Around”**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-en-vivo-2025-green-day-sirve-el-rock-and-roll-sobre-la-mesa-una-vez-mas-en-when-i-come-around_20251218/)
+
+
+### avatar 1 (N/A, 19/12/2025 23:31 Lima)
+
+- **‘Avatar: Fire And Ash’ Flying To $86M-$90M Opening; ‘Housemaid’ & ‘David’ In A Tiff For No. 2 With $20M-$24M Apiece**: [Link](https://deadline.com/2025/12/box-office-avatar-fire-and-ash-housemaid-1236653423/)
+- **‘Avatar: Fire and Ash’ Review: By Land, by Water, by Air!**: [Link](https://www.nytimes.com/2025/12/18/movies/avatar-fire-and-ash-review.html)
+- **‘Avatar: Fire and Ash’ Wants to Please Only the Fans**: [Link](https://www.theatlantic.com/culture/2025/12/avatar-3-fire-and-ash-review/685322/)
+
+
+### alejandra guzmán (N/A, 19/12/2025 23:31 Lima)
+
+- **Yo Soy EN VIVO 2025: imitadora de Alejandra Guzmán ROMPE el escenario con “Reina de Corazones”**: [Link](https://www.latina.pe/entretenimiento/yo-soy/programas-completos-yo-soy/yo-soy-en-vivo-2025-imitadora-de-alejandra-guzman-rompe-el-escenario-con-reina-de-corazones_20251219/)
+- **Yo Soy EN VIVO 2025: imitadora de Alejandra Guzmán hace CANTAR al público junto a ella con “Día de Suerte”**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-en-vivo-2025-imitadora-de-alejandra-guzman-hace-cantar-al-publico-junto-a-ella-con-dia-de-suerte_20251219/)
+- **Yo Soy EN VIVO 2025: imitadora de Alejandra Guzmán despierta la emoción a FLOR DE PIEL con “Volverte a Amar”**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-en-vivo-2025-imitadora-de-alejandra-guzman-despierta-la-emocion-a-flor-de-piel-con-volverte-a-amar_20251218/)
+
+
+### al fondo hay sitio (N/A, 19/12/2025 23:31 Lima)
+
+- **'Al fondo hay sitio' temporada 12 capítulo final: a qué hora se estrena y cómo ver en vivo**: [Link](https://larepublica.pe/cine-series/2025/12/19/al-fondo-hay-sitio-temporada-12-capitulo-final-a-que-hora-se-estrena-y-como-ver-en-vivo-783598)
+- **Jimmy confesó a Alessia que la ama y se reconcilian**: [Link](https://www.americatv.com.pe/al-fondo-hay-sitio/jimmy-confeso-alessia-que-ama-noticia-161995)
+- **Yesenia llora: ¿Qué habría leído la novia de Jimmy?**: [Link](https://www.americatv.com.pe/noticias/espectaculos/yesenia-llora-carta-que-habria-leido-novia-jimmy-n514059)
+
+
+### america tv (N/A, 19/12/2025 23:31 Lima)
+
+- **Janet Barboza y Edson Dávila le dicen adiós a Gisela Valcárcel: ‘América Hoy’ sigue pero sin Ethel Pozo**: [Link](https://www.infobae.com/peru/2025/12/19/janet-barboza-y-edson-davila-le-dicen-adios-a-gisela-valcarcel-america-hoy-sigue-pero-sin-ethel-pozo/)
+- **Ethel Pozo se despide de América Hoy entre lágrimas: “Es mi último día. Es la última vez que vamos a estar juntos”**: [Link](https://trome.com/espectaculos/tv/ethel-pozo-se-despide-de-america-hoy-entre-lagrimas-es-mi-ultimo-dia-es-la-ultima-vez-que-vamos-a-estar-juntos-video-fotos-farandula-noticia/)
+- **Edson Dávila lloró al despedirse de Ethel Pozo**: [Link](https://www.americatv.com.pe/videos/america-hoy/edson-davila-rompio-llanto-al-despedirse-ethel-pozo-noticia-161979)
+
+
+### tvgo (N/A, 19/12/2025 23:31 Lima)
+
+- **Con Gallese al frente: esta es la lista de convocados de Perú para partido amistoso con Bolivia en Chincha**: [Link](https://rpp.pe/futbol/seleccion-peruana/seleccion-peruana-lista-de-convocados-safap-partido-amistoso-con-bolivia-pedro-gallese-noticia-1667906)
+- **Perú vs Bolivia: 50% de descuento en las entradas para ver el último partido de la selección peruana**: [Link](https://elcomercio.pe/deporte-total/seleccion/entradas-peru-vs-bolivia-50-de-descuento-en-las-entradas-para-ver-el-ultimo-partido-de-la-seleccion-peruana-noticia/)
+- **Gerardo Ameli sobre las críticas por dirigir Perú vs. Bolivia: “Me importa lo que piensen mis jugadores”**: [Link](https://depor.com/futbol-peruano/seleccion-peruana/peru-vs-bolivia-declaraciones-de-gerardo-ameli-sobre-su-designacion-y-criticas-solo-me-importa-lo-que-piensen-mis-jugadores-video-noticia/)
+
+
 ### wordle (N/A, 19/12/2025 20:56 Lima)
 
 - **Today's Wordle Hints, Answer and Help for Dec. 20, #1645**: [Link](https://www.cnet.com/tech/gaming/todays-wordle-hints-answer-and-help-for-dec-20-1645/)
@@ -966,68 +1029,5 @@ Sin noticias relacionadas disponibles.
 - **Poder Judicial suspende reposición de Delia Espinoza como Fiscal de la Nación**: [Link](https://peru21.pe/politica/poder-judicial-suspende-reposicion-de-delia-espinoza-como-fiscal-de-la-nacion/)
 - **TC OTORGÓ MEDIDA CAUTELAR A LA JNJ Y DISPUSO SUSPENDER RESOLUCIÓN JUDICIAL QUE ORDENABA REPOSICIÓN DE DELIA ESPINOZA COMO FISCAL DE LA NACIÓN | TC**: [Link](https://www.tc.gob.pe/institucional/notas-de-prensa/tc-otorgo-medida-cautelar-a-la-jnj-y-dispuso-suspender-resolucion-judicial/)
 - **Delia Espinoza: Juez Torres Tasso suspende proceso de amparo y medida cautelar de reposición en el cargo**: [Link](https://lpderecho.pe/delia-espinoza-juez-torres-tasso-suspende-proceso-amparo-medida-cautelar-reposicion-cargo/)
-
-
-### fonavi (N/A, 16/12/2025 07:56 Lima)
-
-- **Lista 22 del Fonavi: Esta es la fecha de pago exacta que los fonavistas buscan aprobar**: [Link](https://www.infobae.com/peru/2025/12/10/cobro-de-la-lista-22-del-fonavi-la-fecha-exacta-en-que-los-fonavistas-buscan-acceder/)
-- **Fonavi: presentan proyecto de ley para incorporar a más de 375.000 exaportantes al proceso de devolución**: [Link](https://larepublica.pe/economia/2025/12/15/fonavi-2025-presentan-proyecto-de-ley-para-incorporar-a-mas-de-375000-exaportantes-al-proceso-de-devolucion-hnews-1109865)
-- **Congreso: proyecto busca incluir a más de 300 mil aportantes excluidos de devolución del Fonavi**: [Link](https://panamericana.pe/politica/461049-congreso-proyecto-busca-incluir-300-mil-aportantes-excluidos-devolucion-fonavi)
-
-
-### cronograma de pagos (N/A, 16/12/2025 07:56 Lima)
-
-- **En enero, los empleados de Gimnasia quedarían totalmente al día**: [Link](https://eleditorplatense.com/deportes/en-enero-los-empleados-gimnasia-quedarian-totalmente-al-dia-n5379874)
-- **¿Qué grave problema acordó la dirigencia del Lobo que le permite cerrar el año con un poco de paz?**: [Link](https://www.laplata1.com/2025-12-11/que-grave-problema-acordo-la-dirigencia-del-lobo-que-le-permite-cerrar-el-ano-con-un-poco-de-paz-121468/)
-- **Acuerdo entre la nueva dirigencia de Gimnasia y los trabajadores de UTEDYC**: [Link](https://www.dobleamarilla.com.ar/liga-/acuerdo-entre-la-nueva-dirigencia-de-gimnasia-y-los-trabajadores-de-utedyc_a693b3abd1be5db0161503920)
-
-
-### lds church (N/A, 16/12/2025 07:56 Lima)
-
-- **Temple to Be Built in Portland, Maine**: [Link](https://newsroom.churchofjesuschrist.org/article/temple-to-be-built-in-portland-maine)
-- **Church of Jesus Christ departs tradition in new Maine temple announcement**: [Link](https://kutv.com/news/local/church-of-jesus-christ-departs-tradition-in-new-maine-temple-announcement)
-- **Latter-day Saint leaders break with tradition on temples**: [Link](https://www.sltrib.com/religion/2025/12/14/surprise-announcement-lds-church/)
-
-
-### javier rabanal universitario de deportes (N/A, 16/12/2025 07:56 Lima)
-
-- **Humo blanco en Universitario: Javier Rabanal será el nuevo DT para la temporada 2026**: [Link](https://depor.com/futbol-peruano/descentralizado/javier-rabanal-nuevo-dt-de-universitario-2026-acuerdo-con-la-institucion-para-dirigir-independiente-del-valle-noticia/)
-- **Javier Rabanal será el entrenador de Universitario para la temporada 2026**: [Link](https://www.espn.com.ar/futbol/peru/nota/_/id/16076624/javier-rabanal-nuevo-entrenador-de-universitario-de-deportes)
-- **"Me llevaría a 8 jugadores": Rabanal tiene sus 'preferidos' en IDV**: [Link](https://www.americatv.com.pe/deportes/futbol-mundial/me-llevaria-8-jugadores-rabanal-tiene-sus-preferidos-idv-n451988)
-
-
-### bn (N/A, 16/12/2025 03:37 Lima)
-
-- **Donald Trump sues BBC for up to $10bn over edit of January 6 speech**: [Link](https://www.theguardian.com/us-news/2025/dec/15/trump-bbc-lawsuit)
-- **Trump sues BBC for defamation over Panorama speech edit**: [Link](https://www.bbc.com/news/articles/cpvd81470v1o)
-- **Trump Files $10 Billion Suit Against BBC Over Documentary**: [Link](https://www.nytimes.com/2025/12/15/us/politics/trump-sues-bbc.html)
-
-
-### the church of jesus christ of latter-day saints (N/A, 16/12/2025 03:37 Lima)
-
-- **Temple to Be Built in Portland, Maine**: [Link](https://newsroom.churchofjesuschrist.org/article/temple-to-be-built-in-portland-maine)
-- **Latter-day Saint leaders break with tradition on temples**: [Link](https://www.sltrib.com/religion/2025/12/14/surprise-announcement-lds-church/)
-- **Church of Jesus Christ departs tradition in new Maine temple announcement**: [Link](https://kutv.com/news/local/church-of-jesus-christ-departs-tradition-in-new-maine-temple-announcement)
-
-
-### stephen king (N/A, 16/12/2025 03:37 Lima)
-
-- **Rob Reiner & Son Nick in Heated Argument at Conan O'Brien's Christmas Party**: [Link](https://www.tmz.com/2025/12/15/rob-reiner-son-nick-argument-conan-obrien-christmas-party/)
-- **Rob Reiner's son arrested on suspicion of homicide after director and his wife are found dead**: [Link](https://www.latimes.com/california/story/2025-12-14/2-found-dead-at-home-of-rob-reiner)
-- **Director Rob Reiner and wife Michele Singer stabbed to death in Brentwood home, sources tell ABC News**: [Link](https://abc7.com/post/2-found-dead-brentwood-home-owned-director-rob-reiner-lapd-launches-murder-investigation/18287399/)
-
-
-### jazz - mavericks (N/A, 16/12/2025 03:37 Lima)
-
-- **NBA results and standings: Markkanen saves the Mavs, Jovic gets injured**: [Link](https://www.eurohoops.net/en/nba-news/1907691/nba-results-and-standings-markkanen-saves-the-mavs-jovic-gets-injured/)
-- **Cooper Flagg drops a career-high 42 points, breaks decades-old LeBron James record in overtime loss to Jazz**: [Link](https://bvmsports.com/2025/12/15/cooper-flagg-drops-a-career-high-42-points-breaks-decades-old-lebron-james-record-in-overtime-loss-to-jazz/)
-- **George scores 37, Marklkanen adds 33 as Jazz top Mavericks in OT despite Flagg's career-high 42**: [Link](https://www.rmoutlook.com/basketball/george-scores-37-marklkanen-adds-33-as-jazz-top-mavericks-in-ot-despite-flaggs-career-high-42-11629491)
-
-
-### billie eilish (N/A, 15/12/2025 23:39 Lima)
-
-- **Billie Eilish Pushes for Gun Control Amid ‘Devastating’ Shootings in U.S. & Australia: ‘Raise Your Voice’**: [Link](https://www.yahoo.com/news/articles/billie-eilish-pushes-gun-control-221334419.html)
-- **Billie Eilish calls for gun policy reform after weekend of multiple mass shootings**: [Link](https://www.indy100.com/celebrities/billie-eilish-gun-reform-calls)
-- **Billie Eilish makes strong plea after Australia Bondi shooting**: [Link](https://www.geo.tv/latest/639491-billie-eilish-makes-strong-plea-after-australia-bondi-shooting)
 
 
