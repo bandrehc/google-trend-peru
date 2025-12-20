@@ -1,3 +1,23 @@
+### rome (N/A, 20/12/2025 03:31 Lima)
+
+- **Toss a Coin in the Trevi Fountain? That’ll Be 2 Euros, Wish Not Included**: [Link](https://www.nytimes.com/2025/12/19/world/europe/trevi-fountain-2-euro-fee.html)
+- **Starting in February, tourists will have to pay to get close to Trevi Fountain as Rome introduces an entrance fee for the popular monument and five other sites.**: [Link](https://www.facebook.com/deutschewellenews/posts/starting-in-february-tourists-will-have-to-pay-to-get-close-to-trevi-fountain-as/1303627295125915/)
+- **Rome to introduce ticket for Trevi Fountain basin to curb overtourism**: [Link](https://www.myanmaritv.com/news/rome-introduce-ticket-trevi-fountain-basin-curb-overtourism)
+
+
+### yo soy (N/A, 20/12/2025 03:31 Lima)
+
+- **Yo Soy EN VIVO 2025: imitadora de Alejandra Guzmán hace CANTAR al público junto a ella con “Día de Suerte”**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-en-vivo-2025-imitadora-de-alejandra-guzman-hace-cantar-al-publico-junto-a-ella-con-dia-de-suerte_20251219/)
+- **Imitadora de Alejandra Guzmán a UN DÍA de la GRAN FINAL: “El sacrificio más fuerte ha sido separarme de mis hijos”**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/imitadora-de-alejandra-guzman-a-un-dia-de-la-gran-final-el-sacrificio-mas-fuerte-ha-sido-separarme-de-mis-hijos_20251220/)
+- **Yo Soy EN VIVO 2025: imitadora de Alejandra Guzmán ROMPE el escenario con “Reina de Corazones”**: [Link](https://www.latina.pe/entretenimiento/yo-soy/programas-completos-yo-soy/yo-soy-en-vivo-2025-imitadora-de-alejandra-guzman-rompe-el-escenario-con-reina-de-corazones_20251219/)
+
+
+### canal 4 en vivo (N/A, 20/12/2025 03:31 Lima)
+
+- **Préstamo para limpiar deudas: Dile adiós a Infocorp con este crédito**: [Link](https://www.latina.pe/entretenimiento/anuncios/prestamo-para-limpiar-deudas-dile-adios-a-infocorp-con-este-credito_20251218/)
+- **Prestamype: la fintech líder del país que ofrece préstamos desde S/15 mil hasta S/2 millones**: [Link](https://rpp.pe/campanas/publirreportaje/prestamype-la-fintech-lider-del-pais-que-ofrece-prestamos-desde-s-15-mil-hasta-s-2-millones-noticia-1667334)
+
+
 ### gustavo bueno (N/A, 19/12/2025 23:31 Lima)
 
 - **Final Al fondo hay sitio: Don Gilberto reapareció**: [Link](https://www.americatv.com.pe/al-fondo-hay-sitio/don-gilberto-reaparecio-afhs-olinda-noticia-161991)
@@ -1008,26 +1028,5 @@ Sin noticias relacionadas disponibles.
 - **FIFA The Best 2025: Santiago Montiel wins the Puskás award**: [Link](https://foot-africa.com/en/news/fifa-the-best-2025-santiago-montiel-wins-the-puskas-award-1004549/)
 - **2025 Puskas & Marta Awards: Lamine Yamal & Declan Rice beaten to FIFA goal prize as Lizbeth Ovalle's sensational scorpion kick wins Women's vote**: [Link](https://www.goal.com/en-sa/lists/2025-puskas-marta-awards-lamine-yamal-declan-rice-lizbeth-ovalle/blt5afc7f38c30e3f49)
 - **Lizbeth Ovalle wins FIFA’s Marta Award after stunning scorpion kick goal**: [Link](https://onefootball.com/en/news/lizbeth-ovalle-wins-fifas-marta-award-after-stunning-scorpion-kick-goal-42105141)
-
-
-### cementos pacasmayo (N/A, 16/12/2025 11:36 Lima)
-
-- **Holcim da el golpe y adquiere la participación mayoritaria de Cementos Pacasmayo por US$1.500 millones en Perú**: [Link](https://www.infobae.com/peru/2025/12/16/holcim-da-el-golpe-y-adquiere-la-participacion-mayoritaria-de-cementos-pacasmayo-por-us1500-millones-en-peru/)
-- **La suiza Holcim adquiere participación mayoritaria en Cementos Pacasmayo: ¿Qué implica para el sector construcción?**: [Link](https://rpp.pe/economia/negocios/la-suiza-holcim-adquiere-participacion-mayoritaria-en-cementos-pacasmayo-que-implica-para-el-sector-construccion-noticia-1668108)
-- **Holcim pagará US$ 1,500 millones para tomar control de Cementos Pacasmayo**: [Link](https://gestion.pe/economia/empresas/holcim-adquirira-participacion-mayoritaria-en-cementos-pacasmayo-noticia/)
-
-
-### rodrigo ureña (N/A, 16/12/2025 11:36 Lima)
-
-- **Rodrigo Ureña cerca de irse de Universitario: el caso con Millonarios y qué se sabe del interés de Alianza Lima**: [Link](https://depor.com/futbol-peruano/descentralizado/rodrigo-urena-deja-universitario-de-deportes-como-va-negociacion-con-millonarios-y-que-se-sabe-de-alianza-lima-al-acecho-fichajes-liga-1-2026-video-noticia/)
-- **Cantoro no se midió y dio fuerte comentario sobre el posible fichaje de Ureña a Alianza: "Creo..."**: [Link](https://libero.pe/futbol-peruano/alianza-lima/2025/12/15/mauro-cantoro-se-midio-dio-fuerte-comentario-posible-fichaje-de-rodrigo-urena-alianza-lima-creo-1371645)
-- **No solo Jairo Vélez: La figura de Universitario que Alianza Lima busca fichar de sorpresa**: [Link](https://bolavip.com/pe/liga-1/no-solo-jairo-velez-la-figura-de-universitario-que-alianza-lima-busca-fichar-de-sorpresa)
-
-
-### poder judicial (N/A, 16/12/2025 11:36 Lima)
-
-- **Poder Judicial suspende reposición de Delia Espinoza como Fiscal de la Nación**: [Link](https://peru21.pe/politica/poder-judicial-suspende-reposicion-de-delia-espinoza-como-fiscal-de-la-nacion/)
-- **TC OTORGÓ MEDIDA CAUTELAR A LA JNJ Y DISPUSO SUSPENDER RESOLUCIÓN JUDICIAL QUE ORDENABA REPOSICIÓN DE DELIA ESPINOZA COMO FISCAL DE LA NACIÓN | TC**: [Link](https://www.tc.gob.pe/institucional/notas-de-prensa/tc-otorgo-medida-cautelar-a-la-jnj-y-dispuso-suspender-resolucion-judicial/)
-- **Delia Espinoza: Juez Torres Tasso suspende proceso de amparo y medida cautelar de reposición en el cargo**: [Link](https://lpderecho.pe/delia-espinoza-juez-torres-tasso-suspende-proceso-amparo-medida-cautelar-reposicion-cargo/)
 
 
