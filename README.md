@@ -1,3 +1,55 @@
+### wordle (N/A, 19/12/2025 20:56 Lima)
+
+- **Today's Wordle Hints, Answer and Help for Dec. 20, #1645**: [Link](https://www.cnet.com/tech/gaming/todays-wordle-hints-answer-and-help-for-dec-20-1645/)
+- **Wordle hint today: Clues for December 19 2025 NYT puzzle #1644**: [Link](https://ftw.usatoday.com/story/tech/gaming/2025/12/19/wordle-hint-today-clues-december-19-2025/87824870007/)
+- **Today’s Wordle answer is rugby and this sport’s oval ball shape has a wild history behind it**: [Link](https://www.red94.net/news/70169-today-s-wordle-answer-is-rugby-sport-played-with-oval-ball/)
+
+
+### jake paul vs joshua (N/A, 19/12/2025 20:56 Lima)
+
+- **'No fear' but spectacle and serious risk looms large over Paul v Joshua**: [Link](https://www.bbc.com/sport/boxing/articles/c87lq101j17o)
+- **How and why is Jake Paul fighting former world heavyweight champion Anthony Joshua?**: [Link](https://www.cnn.com/2025/12/18/sport/boxing-jake-paul-anthony-joshua-fight-explainer)
+- **Anthony Joshua says boxers have ‘license to kill’ as he explains controversial comment**: [Link](https://www.independent.co.uk/bulletin/sport/jake-paul-anthony-joshua-fight-kill-comments-b2888125.html)
+
+
+### braga (N/A, 19/12/2025 20:56 Lima)
+
+- **O que fazer em Braga no Natal: vive a magia da quadra no Minho**: [Link](https://www.idealista.pt/news/ferias/viagens/2025/12/17/73070-o-que-fazer-em-braga-no-natal-vive-a-magia-da-quadra-no-minho)
+- **Braga tem um fim de semana cheio de programas gratuitos — mesmo com chuva**: [Link](https://newinbraga.nit.pt/na-cidade/braga-tem-um-fim-de-semana-cheio-de-programas-gratuitos-mesmo-com-chuva)
+- **Braga Parque promove programação natalícia dedicada às famílias**: [Link](https://sapo.pt/artigo/braga-parque-promove-programacao-natalicia-dedicada-as-familias-694281b760efc136c2cc3d37)
+
+
+### borussia vs (N/A, 19/12/2025 20:56 Lima)
+
+Sin noticias relacionadas disponibles.
+
+
+### braga fc (N/A, 19/12/2025 20:56 Lima)
+
+- **Bola no Lacximicant(o) foi 'tiro' na rota dos guerreiros (crónica)**: [Link](https://www.abola.pt/noticias/bola-no-lacximicanto-foi-tiro-na-rota-dos-guerreiros-cronica-2025121923263814242)
+- **João Moutinho: «Faltou-nos competência para concretizar as oportunidades flagrantes que criámos»**: [Link](https://sapo.pt/artigo/joao-moutinho-faltou-nos-competencia-para-concretizar-as-oportunidades-flagrantes-que-criamos-6945f04e52dc24aee9a17684)
+- **Todas as incidências e os melhores lances do fim de semana desportivo**: [Link](https://www.flashscore.pt/noticias/futebol-liga-portugal-2-jornada-ao-vivo-estoril-sc-braga-em-acao-bolonha-na-final-da-supertaca-de-italia/2iZStF55/)
+
+
+### braga vs (N/A, 19/12/2025 20:56 Lima)
+
+- **Preview: Estoril Praia vs Braga - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/estoril-praia/preview/estoril-vs-braga-prediction-team-news-lineups_587979.html)
+
+
+### swansea vs (N/A, 19/12/2025 20:56 Lima)
+
+- **Swans come from behind to beat Wrexham in Welsh derby**: [Link](https://www.bbc.com/sport/football/live/cqlk4qd6wqet)
+- **Matos relishing Swansea's 'special' home form**: [Link](https://ca.sports.yahoo.com/news/matos-relishing-swanseas-special-home-000213204.html)
+- **Swansea fight back after Cameron Burgess misfortune**: [Link](https://www.canberratimes.com.au/story/9138775/swansea-fight-back-after-cameron-burgess-misfortune/)
+
+
+### copa de francia (N/A, 19/12/2025 20:56 Lima)
+
+- **Brest es eliminado de la Copa de Francia por Avranches, de tercera división**: [Link](https://www.bostonherald.com/2025/12/19/brest-es-eliminado-de-la-copa-de-francia-por-avranches-de-tercera-divisin/)
+- **Inician los treintaidosavos de la Copa Francia de fútbol**: [Link](https://momentodeportivord.com/inician-los-treintaidosavos-de-la-copa-francia-de-futbol/)
+- **Así se jugó una nueva jornada de la Copa Francia: todos los resultados**: [Link](https://www.directvsports.com/futbol/asi-se-jugo-una-nueva-jornada-de-la-copa-francia-todos-los-resultados-20251219-0006.html)
+
+
 ### borussia dortmund vs (N/A, 19/12/2025 15:28 Lima)
 
 - **Liveticker | Borussia Dortmund - Bor. Mönchengladbach 1:0 | 15. Spieltag | Bundesliga 2025/26**: [Link](https://www.kicker.de/dortmund-gegen-mgladbach-2025-bundesliga-5050876/ticker)
@@ -977,60 +1029,5 @@ Sin noticias relacionadas disponibles.
 - **Billie Eilish Pushes for Gun Control Amid ‘Devastating’ Shootings in U.S. & Australia: ‘Raise Your Voice’**: [Link](https://www.yahoo.com/news/articles/billie-eilish-pushes-gun-control-221334419.html)
 - **Billie Eilish calls for gun policy reform after weekend of multiple mass shootings**: [Link](https://www.indy100.com/celebrities/billie-eilish-gun-reform-calls)
 - **Billie Eilish makes strong plea after Australia Bondi shooting**: [Link](https://www.geo.tv/latest/639491-billie-eilish-makes-strong-plea-after-australia-bondi-shooting)
-
-
-### nuggets - rockets (N/A, 15/12/2025 23:39 Lima)
-
-- **Nuggets And Rockets Set For High-Stakes Rematch**: [Link](https://evrimagaci.org/gpt/nuggets-and-rockets-set-for-highstakes-rematch-520082)
-- **Nikola Jokic: Player Props, Odds, and Lines for 3x MVP vs. Houston Rockets**: [Link](https://news.bet365.com/en-us/article/nikola-jokic-player-props-odds-and-lines-for-3x-mvp-vs-houston-rockets/2025121519200617794)
-- **Where to watch Rockets vs. Nuggets free stream today**: [Link](https://www.masslive.com/tv/2025/12/where-to-watch-rockets-vs-nuggets-free-stream-today.html)
-
-
-### yo soy (N/A, 15/12/2025 23:39 Lima)
-
-- **Yo Soy SEMANA FINAL: Conoce CÓMO VOTAR GRATIS por tu imitador favorito**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-final-como-votar-descargar-app-gratis-imitador-favorito_20251215/)
-- **“Yo soy”: ¿Qué participantes clasificaron a la semana final de la temporada?**: [Link](https://elcomercio.pe/tvmas/television/yo-soy-que-participantes-clasificaron-a-la-semana-final-de-la-temporada-latina-ultimas-noticia/)
-- **Yo Soy conciertos 2025: ¡ARRANCA LA SEMANA FINAL! Alejandra Guzmán abre la noche más decisiva**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-conciertos-2025-arranca-la-semana-final-alejandra-guzman-abre-la-noche-mas-decisiva_20251215/)
-
-
-### latina (N/A, 15/12/2025 23:39 Lima)
-
-- **Emergent Cold LatAm: el gigante de la cadena de frío que transforma la logística alimentaria en América Latina**: [Link](https://agronoticias.pe/emergent-cold-latam-el-gigante-de-la-cadena-de-frio-que-transforma-la-logistica-alimentaria-en-america-latina/)
-- **Los 3 países de América Latina cuyas economías crecerían más en 2026: superarán más de 2 veces a Chile, México y Brasil**: [Link](https://larepublica.pe/mundo/2025/12/15/los-3-paises-de-america-latina-cuyas-economias-crecerian-mas-en-2026-superaran-mas-de-2-veces-a-chile-mexico-y-brasil-405315)
-
-
-### alfredo barnechea (N/A, 15/12/2025 23:39 Lima)
-
-- **Víctor Andrés García Belaúnde: "Barnechea se apoya en 'Los niños' para el fraude que se ha hecho"**: [Link](https://peru21.pe/politica/victor-andres-garcia-belaunde-barnechea-se-apoya-en-los-ninos-para-el-fraude-que-se-ha-hecho/)
-- **JNE defiende legalidad de anulación de internas de Acción Popular y rechaza presiones políticas**: [Link](https://canaln.pe/actualidad/jne-defiende-anulacion-elecciones-internas-accion-popular-n488944)
-- **A lampazos aprendí. Una crónica de Fernando Vivas sobre cómo Acción Popular quedó fuera de las elecciones generales**: [Link](https://elcomercio.pe/politica/elecciones/accion-popular-a-lampazos-aprendi-una-cronica-de-fernando-vivas-sobre-como-el-partido-quedo-fuera-de-las-elecciones-alfredo-barnechea-julio-chavez-noticia/)
-
-
-### h3n2 es mortal (N/A, 15/12/2025 23:39 Lima)
-
-- **Aumento de casos de gripe H3N2 en el mundo: esto se sabe sobre sus principales síntomas**: [Link](https://diariocorreo.pe/salud/aumento-de-casos-de-gripe-h3n2-en-el-mundo-esto-se-sabe-sobre-sus-principales-sintomas-noticia/)
-- **La variante de la gripe H3N2 azota a Europa: qué se sabe del virus que satura hospitales en el Reino Unido**: [Link](https://larepublica.pe/mundo/2025/12/10/la-variante-de-la-gripe-h3n2-azota-a-europa-que-se-sabe-del-virus-que-satura-hospitales-en-el-reino-unido-941730)
-- **Doctor Marco Almerí especialista en salud pública ante nuevo virus H3N2: "No estamos preparados como país para soportar"**: [Link](https://wapa.pe/estilo-de-vida/2025/12/11/doctor-marco-almeri-especialista-en-salud-publica-nuevo-virus-h3n2-no-estamos-preparados-como-pais-soportar-459745)
-
-
-### h3n2 sintomas (N/A, 15/12/2025 23:39 Lima)
-
-- **Minsa confirma primeros dos casos de Gripe H3N2 en el Perú: “No es una pandemia”**: [Link](https://www.infobae.com/peru/2025/12/15/minsa-confirma-primeros-dos-casos-de-gripe-h3n2-en-el-peru-no-es-una-pandemia/)
-- **Minsa confirma dos contagios de influenza A H3N2 en menores en Lima y declara alerta epidemiológica nacional**: [Link](https://canaln.pe/actualidad/minsa-confirma-dos-casos-influenza-h3n2-ninos-lima-n488955)
-- **Supergripe H3N2: especialistas alertan riesgo de ingreso al Perú en semanas**: [Link](https://diariocorreo.pe/peru/supergripe-h3n2-piden-medidas-urgentes-ante-posible-ingreso-al-peru-noticia/)
-
-
-### copa del rey (N/A, 15/12/2025 21:04 Lima)
-
-- **Barcelona visita a Guadalajara por los dieciseavos de final de final de la Copa del Rey**: [Link](https://www.espn.com.ar/futbol/espana/nota/_/id/16083624/guadalajara-vs-barcelna-dieciseavos-de-final-copa-del-rey-equipo-fecha-hora-y-tv-en-vivo)
-- **Guadalajara-Barcelona: En directo online streaming - Dieciseisavos de Final - Copa del Rey 2025/2026 - Información en vivo - Hoy**: [Link](https://espanol.eurosport.com/futbol/copa-del-rey/2025-2026/guadalajara-barcelona_mtc1646268/live-commentary.shtml)
-- **Alineaciones probables del Dépor Guadalajara - Barça de los dieciseisavos de final de la Copa**: [Link](https://www.marca.com/futbol/barcelona/2025/12/15/alineaciones-probables-depor-guadalajara-barca-dieciseisavos-final-copa.html)
-
-
-### celtics - pistons (N/A, 15/12/2025 21:04 Lima)
-
-- **Live Updates: Pistons-Celtics, Rockets-Nuggets lead Monday night**: [Link](https://www.nba.com/news/live-updates-pistons-vs-celtics-rockets-vs-nuggets-and-the-latest-action-from-a-5-game-night-in-the-nba)
-- **bet365 bonus code NYPBET: Bet $5, get $150 in bonus bets for Pistons vs. Celtics**: [Link](https://nypost.com/2025/12/15/betting/bet365-bonus-code-nypbet-bet-5-get-150-in-bonus-bets-for-pistons-vs-celtics/)
-- **NBA Matchups: December 15**: [Link](https://establishtherun.com/nba-matchups-december-15-3/)
 
 
