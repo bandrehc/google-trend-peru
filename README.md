@@ -1,3 +1,10 @@
+### newcastle vs (N/A, 20/12/2025 07:49 Lima)
+
+- **John Terry warns Chelsea of a trick Newcastle have up their sleeve ahead of Premier League clash**: [Link](https://www.thechelseachronicle.com/news/john-terry-warns-chelsea-of-a-trick-newcastle-have-up-their-sleeve-ahead-of-premier-league-clash/)
+- **Confirmed Chelsea line up vs Newcastle | News | Official Site**: [Link](https://www.chelseafc.com/en/news/article/confirmed-chelsea-line-up-vs-newcastle-a-25-26)
+- **Chelsea: Enzo Maresca out to prove his worth as Blues size up 'perfect' Newcastle**: [Link](https://www.inkl.com/news/chelsea-enzo-maresca-out-to-prove-his-worth-as-blues-size-up-perfect-newcastle)
+
+
 ### rome (N/A, 20/12/2025 03:31 Lima)
 
 - **Toss a Coin in the Trevi Fountain? That’ll Be 2 Euros, Wish Not Included**: [Link](https://www.nytimes.com/2025/12/19/world/europe/trevi-fountain-2-euro-fee.html)
@@ -1021,12 +1028,5 @@ Sin noticias relacionadas disponibles.
 - **'Avengers: Doomsday' Trailers: Thor & Doom Receive Trailers + Full Teaser Audio Description (Exclusive)**: [Link](https://featurefirst.net/avengers-doomsday-trailers-thor-doom-exclusive/)
 - **Leaked Footage Confirms Steve Rogers Returns to Marvel Cinematic Universe as a Father**: [Link](https://www.inkl.com/news/leaked-footage-confirms-steve-rogers-returns-to-marvel-cinematic-universe-as-a-father)
 - **What Chris Evans Said About ‘Avengers: Doomsday’ & If He’d Ever Return as Captain America**: [Link](https://www.justjared.com/2025/12/16/what-chris-evans-said-about-avengers-doomsday-if-hed-ever-return-as-captain-america/)
-
-
-### the best (N/A, 16/12/2025 11:36 Lima)
-
-- **FIFA The Best 2025: Santiago Montiel wins the Puskás award**: [Link](https://foot-africa.com/en/news/fifa-the-best-2025-santiago-montiel-wins-the-puskas-award-1004549/)
-- **2025 Puskas & Marta Awards: Lamine Yamal & Declan Rice beaten to FIFA goal prize as Lizbeth Ovalle's sensational scorpion kick wins Women's vote**: [Link](https://www.goal.com/en-sa/lists/2025-puskas-marta-awards-lamine-yamal-declan-rice-lizbeth-ovalle/blt5afc7f38c30e3f49)
-- **Lizbeth Ovalle wins FIFA’s Marta Award after stunning scorpion kick goal**: [Link](https://onefootball.com/en/news/lizbeth-ovalle-wins-fifas-marta-award-after-stunning-scorpion-kick-goal-42105141)
 
 
