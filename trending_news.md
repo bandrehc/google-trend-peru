@@ -1,3 +1,74 @@
+### juventus (N/A, 20/12/2025 15:26 Lima)
+
+- **Juve, la formazione ufficiale contro la Roma: le scelte di Spalletti**: [Link](https://www.tuttosport.com/news/calcio/serie-a/juventus/2025/12/20-145343917/juve_la_formazione_ufficiale_contro_la_roma_le_scelte_di_spalletti)
+- **Juventus-Roma, il risultato in diretta LIVE**: [Link](https://sport.sky.it/calcio/serie-a/partite/2025/giornata-16/juventus-roma/risultato-gol)
+- **Serie A | Le formazioni ufficiali di Juventus-Roma**: [Link](https://www.juventus.com/it/news/articoli/serie-a-2025-2026-juventus-roma-formazioni-ufficiali)
+
+
+### everton vs (N/A, 20/12/2025 15:26 Lima)
+
+- **¡EN VIVO! Arsenal visita a Everton con el objetivo de seguir en lo más alto de la Premier League**: [Link](https://www.espn.com.pe/futbol/inglaterra/nota/_/id/16093328/everton-vs-arsenal-por-la-premier-league-equipo-fecha-hora-y-tv-en-vivo)
+- **Everton vs. Arsenal EN VIVO Y GRATIS por la Premier League Vía ESPN, Disney+ y Fútbol Libre: minuto a minuto**: [Link](https://bolavip.com/pe/premier-league/everton-vs-arsenal-en-vivo-y-gratis-por-la-premier-league-via-espn-disney-y-futbol-libre-minuto-a-minuto)
+- **Pronóstico Everton - Arsenal. Premier League | 20/12/2025**: [Link](https://gainblers.com/pe/pronosticos/futbol/inglaterra/premier-league/pronostico-everton-arsenal-20-12-2025/)
+
+
+### ajax (N/A, 20/12/2025 15:26 Lima)
+
+- **LIVE eredivisie | Grim zet Steur en Gloukh terug in de basis, Ajax in Nijmegen op jacht naar vijfde zege op rij**: [Link](https://www.ad.nl/voetbal/live-eredivisie-grim-zet-steur-en-gloukh-terug-in-de-basis-ajax-in-nijmegen-op-jacht-naar-vijfde-zege-op-rij~af0a9cd8/)
+- **Linssen ontsnapt bij ongelukkige aanslag op enkel Itakura aan rood**: [Link](https://nos.nl/video/2595384-linssen-ontsnapt-bij-ongelukkige-aanslag-op-enkel-itakura-aan-rood)
+- **NEC bij rust ondanks overwicht achter tegen Ajax**: [Link](https://www.gld.nl/sport/8409569/nec-bij-rust-ondanks-overwicht-achter-tegen-ajax)
+
+
+### leeds vs (N/A, 20/12/2025 15:26 Lima)
+
+- **Bijol says unpredictability can aid Leeds' survival bid ahead of Palace clash**: [Link](https://www.beinsports.com/en-us/soccer/premier-league/articles/bijol-says-unpredictability-can-aid-leeds-survival-bid-ahead-of-palace-clash-2025-12-19)
+- **Lucas Perri: It is important to keep steady**: [Link](https://sports.yahoo.com/articles/lucas-perri-important-keep-steady-025100455.html)
+- **Oliver Glasner talks about being ‘psychologically ready’ for the
+battle with Leeds**: [Link](https://www.vavel.com/en/football/2025/12/19/crystal-palace/1245066-oliver-glasner-talks-about-being-psychologically-ready-for-thebattle-with-leedsit-is-business-as-usual-for-the-flying-eagles-under-glasner.html)
+
+
+### liverpool football club (N/A, 20/12/2025 15:26 Lima)
+
+- **Csiki | Liverpool draw has made us even more hungry to win against Manchester City**: [Link](https://whufc.com/en/news/csiki-or-liverpool-draw-has-made-us-even-more-hungry-to-win-against)
+- **West Ham v City: Kick-off time, team news and TV information**: [Link](https://www.mancity.com/news/womens/west-ham-man-city-womens-league-cup-match-preview-63901395)
+- **‘We’ll do everything we can’ – West Ham United will give their all against Manchester City says Csiki**: [Link](https://ca.sports.yahoo.com/news/ll-everything-west-ham-united-101100336.html)
+
+
+### xavi simons (N/A, 20/12/2025 15:26 Lima)
+
+- **Thomas Frank press conference LIVE - Tottenham boss on Xavi and Romero red cards against Liverpool**: [Link](https://www.football.london/tottenham-hotspur-fc/fixtures-results/thomas-frank-press-conference-live-33097038)
+- **What Ryan Gravenberch did to Xavi Simons after Spurs forward’s red card v Liverpool**: [Link](https://www.empireofthekop.com/2025/12/20/gravenberch-simons-red-card-spurs-liverpool/)
+- **Liverpool VAR incident as referee and Premier League explain Tottenham red card**: [Link](https://www.liverpool.com/liverpool-fc-news/features/xavi-simons-red-card-tottenham-33096978)
+
+
+### cochinola (N/A, 20/12/2025 15:26 Lima)
+
+- **José Zafra rompe su silencio y responde qué hay entre Laura Spoya y él: “No tienen por qué escarbar”**: [Link](https://trome.com/espectaculos/tv/laura-spoya-jose-zafra-rompe-su-silencio-y-responde-que-hay-entre-ellos-tras-ser-vinculados-no-tienen-por-que-escarbar-foto-video-farandula-noticia/)
+- **José Zafra, dueño de Cochinola, rompe su silencio tras imágenes con Laura Spoya: "Es mi pata"**: [Link](https://www.atv.pe/noticia/jose-zafra-dueno-de-cochinola-rompe-su-silencio-tras-imagenes-con-laura-spoya-es-mi-pata/)
+- **José Zafra, empresario vinculado con Laura Spoya, se pronuncia sobre rumores de citas: "Ella es mi pata"**: [Link](https://larepublica.pe/espectaculos/2025/12/19/jose-zafra-empresario-vinculado-a-laura-spoya-se-pronuncia-sobre-rumores-de-citas-ella-es-mi-pata-mdga-359727)
+
+
+### tottenham vs. liverpool (N/A, 20/12/2025 15:26 Lima)
+
+- **Isak injures ankle in act of scoring for Liverpool against Tottenham**: [Link](https://infonews.ca/news/7471574/isak-injures-ankle-in-act-of-scoring-for-liverpool-against-tottenham/)
+- **'Like playing with 10 men': Fans want Arne Slot to take one Liverpool player off at half-time against Tottenham**: [Link](https://tribuna.com/en/blogs/like-playing-with-10-men-fans-want-arne-slot-to-take-one-liv/)
+- **Tottenham host Liverpool in pivotal North London Premier League clash**: [Link](https://www.dawan.africa/news/tottenham-host-liverpool-in-pivotal-north-london-premier-league-clash)
+
+
+### osasuna vs (N/A, 20/12/2025 15:26 Lima)
+
+- **LaLiga EA Sports: Osasuna y Alavés se encuentran en la fecha 17**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-osasuna-y-alaves-se-encuentran-en-la-fecha-17-noticia-1668546)
+- **Pronóstico Osasuna - Alavés. LaLiga | 20/12/2025**: [Link](https://gainblers.com/pe/pronosticos/futbol/espana/liga-primera-division/pronostico-osasuna-alaves-20-12-2025/)
+- **Osasuna - Alavés live**: [Link](https://www.marca.com/en/soccer/laliga-ea-sports/osasuna-alaves/2025/12/20/01_0101_20251220_450_173-live.html)
+
+
+### tottenham (N/A, 20/12/2025 15:26 Lima)
+
+- **Tottenham vs. Liverpool EN VIVO ONLINE: a qué hora juegan y en qué canales ver partido por Premier League**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/tottenham-vs-liverpool-en-vivo-horarios-canales-tv-y-donde-ver-partido-por-premier-league-noticia/)
+- **Predicciones de la Premier League: Chris Sutton vs el rapero zambiano Sampa the Great – e inteligencia artificial**: [Link](https://www.elpueblo.pe/deportes/predicciones-de-la-premier-league-chris-sutton-vs-el-rapero-zambiano-sampa-the-great-e-inteligencia-artificial/171929/)
+- **Premier League: Por la fecha 17, Tottenham recibirá a Liverpool**: [Link](https://rpp.pe/futbol/ligas-internacionales/premier-league-por-la-fecha-17-tottenham-recibira-a-liverpool-noticia-1668545)
+
+
 ### wolves vs (N/A, 20/12/2025 11:30 Lima)
 
 - **Wolves issue Hugo Bueno injury update ahead of Brentford showdown**: [Link](https://www.molineux.news/news/wolves-issue-hugo-bueno-injury-update-ahead-of-brentford-showdown/)
@@ -962,73 +1033,5 @@ Sin noticias relacionadas disponibles.
 - **Dina Boluarte: PJ admite demanda para anular su vacancia y fija audiencia para marzo de 2026**: [Link](https://www.infobae.com/peru/2025/12/16/dina-boluarte-pj-admite-demanda-para-anular-su-vacancia-pero-fija-audiencia-para-marzo-de-2026/)
 - **Poder Judicial admite demanda de Dina Boluarte contra vacancia y fija audiencia virtual para el 12 de marzo**: [Link](https://canaln.pe/actualidad/poder-judicial-admite-demanda-dina-boluarte-vacancia-n488975)
 - **Dina Boluarte: Poder Judicial admite demanda para anular vacancia, ¿qué puede pasar?**: [Link](https://gestion.pe/peru/politica/dina-boluarte-poder-judicial-admite-demanda-para-anular-vacancia-noticia/)
-
-
-### tolima - junior (N/A, 16/12/2025 20:59 Lima)
-
-- **Tolima vs. Junior: Enamorado encamina el título con golazos y final perfecta**: [Link](https://www.espn.com.ar/futbol/colombia/nota/_/id/16091926/tolima-vs-junior-enamorado-encamina-el-titulo-con-golazos-y-final-perfecta)
-- **Tolima: Lucas González pide 'manejar' provocaciones de Teo, que "lo volverá a hacer"**: [Link](https://espndeportes.espn.com/futbol/colombia/nota/_/id/16088388/lucas-gonzalez-deportes-tolima-vs-junior-pide-manejar-provocaciones-teo-gutierrez)
-- **¿Se puede remontar un 3-0 en una final? Lo que dicen las apuestas (y la historia)**: [Link](https://www.eltiempo.com/apuestas-deportivas/remontadas-historicas-finales-colombia-apuestas-3517260)
-
-
-### the strongest vs nacional potosi (N/A, 16/12/2025 20:59 Lima)
-
-Sin noticias relacionadas disponibles.
-
-
-### the strongest (N/A, 16/12/2025 20:59 Lima)
-
-- **Ukraine Plan Calls For Enhanced Military, With U.S. and European Backup**: [Link](https://www.nytimes.com/2025/12/16/world/europe/ukraine-security-guarantees-talks.html)
-- **Zelenskyy says no consensus reached on territory after US-Ukraine peace talks**: [Link](https://abcnews.go.com/International/zelenskyy-consensus-reached-territory-after-us-ukraine-peace/story?id=128443493)
-- **As the US, Ukraine, and Europe talk of peace, Russia still thinks only of surrender**: [Link](https://www.atlanticcouncil.org/dispatches/as-the-us-ukraine-and-europe-talk-of-peace-russia-still-thinks-only-of-surrender/)
-
-
-### sergio ramos (N/A, 16/12/2025 20:59 Lima)
-
-- **Manu Tenorio cuando le preguntan por Sergio Ramos y su nueva faceta musical**: [Link](https://www.europapress.tv/reportajes/1036388/1/manu-tenorio-cuando-le-preguntan-sergio-ramos-nueva-faceta-musical)
-- **Manu Tenorio atiza a Sergio Ramos por su despegue como cantante tras abandonar el Monterrey mexicano.**: [Link](https://www.infobae.com/america/agencias/2025/12/16/manu-tenorio-atiza-a-sergio-ramos-por-su-despegue-como-cantante-tras-abandonar-el-monterrey-mexicano/)
-- **El dardo de Manu Tenorio a Sergio Ramos: "Hoy en día no hace falta cantar para cantar"**: [Link](https://www.libertaddigital.com/chic/corazon/2025-12-16/el-dardo-de-manu-tenorio-a-sergio-ramos-hoy-en-dia-no-hace-falta-cantar-para-cantar-7334330/)
-
-
-### psv vs (N/A, 16/12/2025 20:59 Lima)
-
-- **All About | Six years ago, PSV almost tripped over GVVV**: [Link](https://www.psv.nl/en/media/artikel/alles-over-zes-jaar-geleden-struikelde-psv-bijna-over-gvvv)
-- **Preview: PSV Eindhoven vs GVVV - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/psv-eindhoven/knvb-beker/preview/psv-vs-gvvv-prediction-team-news-lineups_587821.html)
-- **KNVB Beker News: PSV Eindhoven vs GVVV Confirmed Line-ups**: [Link](https://footballpredictions.net/gvvv-v-psv-team-news-confirmed-lineups)
-
-
-### america tv (N/A, 16/12/2025 20:59 Lima)
-
-- **Debut del Real Madrid y Barcelona en Copa del Rey por América TV**: [Link](https://www.americatv.com.pe/deportes/futbol-mundial/debut-real-madrid-y-barcelona-copa-rey-america-tv-n451993)
-- **Copa del Rey: canales de TV adquirieron los derechos de TV en Latinoamérica y resto del Mundo**: [Link](https://www.365scores.com/es/news/copa-del-rey-hoy-canales-derechos-latam/)
-- **Copa del Rey con Real Madrid: Transmisión por televisión y transmisión en vivo**: [Link](https://www.realtotal.de/es/copa-del-rey-real-madrid-uebertragung-tv-livestream-dazn-2025-26-spanien-pokal/)
-
-
-### incendio en la victoria (N/A, 16/12/2025 20:59 Lima)
-
-- **Incendio en La Victoria: Emergencia moviliza a Bomberos a casona usada como almacén de bicicletas en Jirón Raymondi**: [Link](https://www.infobae.com/peru/2025/12/16/incendio-en-la-victoria-emergencia-moviliza-nueve-unidades-de-bomberos-al-jiron-antonio-raymondi/)
-- **La Victoria: Incendio en almacén de ropa moviliza a cinco unidades de bomberos**: [Link](https://www.atv.pe/noticia/la-victoria-incendio-en-almacen-de-ropa-moviliza-a-cinco-unidades-de-bomberos/)
-- **La Victoria: se registra incendio en un depósito de bicicletas en el jirón Antonio Raymondi**: [Link](https://rpp.pe/lima/accidentes/la-victoria-se-registra-incendio-en-un-deposito-de-bicicletas-en-el-jiron-antonio-raymondi-noticia-1668153)
-
-
-### cd eldense - real sociedad (N/A, 16/12/2025 15:30 Lima)
-
-- **Apuestas y pronósticos Eldense vs Real Sociedad**: [Link](https://www.marca.com/apuestas-deportivas/predicciones/2025/12/15/apuestas-pronosticos-eldense-vs-real-sociedad.html)
-- **Responsabilidad con la ilusión**: [Link](https://www.realsociedad.eus/es/noticias/detalle/responsabilidad-con-la-ilusion)
-- **Claudio Barragán sobre el banquillo de la Real Sociedad: "Puede ser una motivación extra"**: [Link](https://www.estadiodeportivo.com/futbol/real-sociedad/claudio-barragan-sobre-banquillo-real-sociedad-puede-ser-una-motivacion-extra-20251215-523816.html)
-
-
-### valencia vs (N/A, 16/12/2025 15:30 Lima)
-
-- **Preview: Sporting Gijon vs Valencia - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/valencia/copa-del-rey/preview/sporting-gijon-vs-valencia-prediction-team-news-lineups_587831.html)
-- **Sporting vs. Valencia (17 Dec, 2025) Live Score**: [Link](https://www.espn.in/football/match/_/gameId/762542)
-- **🚨 Sporting v Valencia line-ups: Raba and Ramazani start**: [Link](https://ca.sports.yahoo.com/news/sporting-v-valencia-line-ups-192000899.html)
-
-
-### valencia cf (N/A, 16/12/2025 15:30 Lima)
-
-- **Sporting - Valencia hoy en directo: última hora de la Copa del Rey en vivo**: [Link](https://as.com/futbol/copa_del_rey/sporting-valencia-hoy-en-directo-ultima-hora-de-la-copa-del-rey-en-vivo-f202512-d/)
-- **Sporting vs. Valencia (16 de Dic., 2025) Resultados en Vivo**: [Link](https://www.espn.com.ar/futbol/partido/_/juegoId/762542)
-- **Molinón, ¿Punto de inflexión?**: [Link](https://onefootball.com/en/news/molinon-punto-de-inflexion-42101102)
 
 
