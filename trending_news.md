@@ -1,3 +1,45 @@
+### cagliari vs (N/A, 21/12/2025 07:49 Lima)
+
+- **Serie A: Pisa quiere volver a festejar frente a Cagliari**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-pisa-quiere-volver-a-festejar-frente-a-cagliari-noticia-1668665)
+- **Serie A: Cagliari vs. Pisa – official line-ups and live updates**: [Link](https://sports.yahoo.com/articles/serie-cagliari-vs-pisa-official-105000748.html)
+- **Cagliari vs Pisa Preview: Team News & Prediction**: [Link](https://www.thestatszone.com/cagliari-vs-pisa-preview-team-news-prediction-162730)
+
+
+### psv (N/A, 21/12/2025 07:49 Lima)
+
+- **LIVE | PSV staat te schutteren en FC Utrecht komt op voorsprong: Van der Hoorn kopt raak**: [Link](https://www.ed.nl/psv/live-psv-staat-te-schutteren-en-fc-utrecht-komt-op-voorsprong-van-der-hoorn-kopt-raak~ab270c3b/)
+- **LIVE eredivisie | Viergever mag niet klagen over geel na mislukte tackle bij Til**: [Link](https://www.gelderlander.nl/utrecht/live-eredivisie-pover-fc-utrecht-heeft-niets-te-klagen-over-weinig-doortastend-psv~a034205f/)
+- **Livestream FC Utrecht - PSV | Luister vanaf 11.45 uur live!**: [Link](https://www.rtvutrecht.nl/sport/3983690/livestream-fc-utrecht-psv-luister-vanaf-1145-uur-live)
+
+
+### psv vs (N/A, 21/12/2025 07:49 Lima)
+
+- **All About | Multiple milestones beckon in final showdown of 2025**: [Link](https://www.psv.nl/en/media/artikel/alles-over-meerdere-mijlpalen-lonken-in-laatste-krachtmeting-van-2025)
+- **Preview: FC Utrecht vs. PSV Eindhoven - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/fc-utrecht/preview/utrecht-vs-psv-prediction-team-news-lineups_588153.html)
+- **Predicted Lineups and Player News for FC Utrecht vs PSV Eindhoven 21/12/25 - Eredivisie News**: [Link](https://footballpredictions.net/predicted-lineups-fc-utrecht-v-psv-21-12-2025)
+
+
+### por (N/A, 21/12/2025 07:49 Lima)
+
+- **Cajamarca: denuncian a profesor por presunto abuso sexual contra estudiante de 16 años**: [Link](https://rpp.pe/peru/actualidad/cajamarca-denuncian-a-profesor-por-presunto-abuso-sexual-contra-estudiante-de-16-anos-noticia-1668744)
+- **No se trata de una simple decoración: por qué se cuelgan calcetines cerca de la chimenea en Navidad**: [Link](https://gestion.pe/mix/usa/no-se-trata-de-una-simple-decoracion-por-que-se-cuelgan-calcetines-cerca-de-la-chimenea-en-navidad-nnda-nnrt-noticia/)
+- **Video capta el instante en que delincuentes arrojan explosivo en el cuarto atentado al alcalde de Carabayllo**: [Link](https://www.infobae.com/peru/2025/12/21/video-capta-el-instante-en-que-delincuentes-arrojan-explosivo-en-el-cuarto-atentado-al-alcalde-de-carabayllo/)
+
+
+### girona vs atlético madrid (N/A, 21/12/2025 07:49 Lima)
+
+- **Girona - Atlético de Madrid hoy en directo: última hora de LaLiga EA Sports en vivo**: [Link](https://as.com/futbol/primera/girona-atletico-de-madrid-hoy-en-directo-ultima-hora-de-laliga-ea-sports-en-vivo-f202512-d/)
+- **Apuestas y Pronóstico del Girona vs Atlético Madrid 21/12/25**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2025/diciembre/pronostico-girona-vs-atletico-madrid-21-12-25)
+- **Girona-Atlético: Alineaciones probables, estadísticas y cómo ver por TV y online (14:00)**: [Link](https://espanol.eurosport.com/futbol/la-liga/2025-2026/girona-atletico-madrid-alineaciones-probables-previa-estadisticas-horario-como-donde-ver-television-online-streaming-hoy_sto23252431/story.shtml)
+
+
+### lakers vs (N/A, 21/12/2025 07:49 Lima)
+
+- **Rui Hachimura (right groin soreness) is the third …**: [Link](https://www.hoopshype.com/story/sports/nba/rumors/2025/12/20/rui-hachimura-right-groin-soreness-is-the-third/87863318007/)
+- **TST Best Bets- December 20, 2025**: [Link](https://www.thesportingtribune.com/2025/12/20/best-bets-dec20)
+- **Lakers at Clippers Preview: Battle in Inglewood**: [Link](https://sports.yahoo.com/articles/lakers-clippers-preview-battle-inglewood-231226168.html)
+
+
 ### thriller (N/A, 21/12/2025 03:32 Lima)
 
 - **One of the best thriller movies of this decade is on TV tonight**: [Link](https://www.joe.ie/movies-tv/nightmare-alley-movies-on-tv-saturday-20-december-best-thrillers-decade-861198)
@@ -989,47 +1031,5 @@ Sin noticias relacionadas disponibles.
 - **Latest. Confirmed line-up: Six changes for Fulham quarter-final clash**: [Link](https://www.newcastleunited.com/en/news/confirmed-line-up-six-changes-for-fulham-quarter-final-clash)
 - **It’s time for Eddie Howe to give Nick Woltemade exactly what he wants vs Fulham**: [Link](https://www.geordiebootboys.com/opinion/its-time-for-eddie-howe-to-give-nick-woltemade-exactly-what-he-wants-vs-fulham/)
 - **Newcastle vs Fulham: Get £30 in Carabao Cup free bets with William Hill**: [Link](https://www.thesun.co.uk/sport/37640970/newcastle-fulham-carabao-cup-free-bets-william-hill/)
-
-
-### alavés - sevilla (N/A, 17/12/2025 15:30 Lima)
-
-- **Alavés - Sevilla hoy en directo: última hora de la Copa del Rey en vivo**: [Link](https://as.com/futbol/copa_del_rey/alaves-sevilla-hoy-en-directo-ultima-hora-de-la-copa-del-rey-en-vivo-f202512-d/)
-- **Gabriel Suazo vuelve a la convocatoria en el Sevilla para la Copa del Rey**: [Link](https://www.espn.com.ar/futbol/espana/nota/_/id/16090699/gabriel-suazo-vuelve-a-la-convocatoria-en-el-sevilla-para-la-copa-del-rey)
-- **Apuestas y Pronóstico del Alavés vs Sevilla 17/12/25**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/2025/diciembre/pronostico-alaves-vs-sevilla-17-12-25)
-
-
-### villareal (N/A, 17/12/2025 15:30 Lima)
-
-- **El Villarreal anuncia un presupuesto récord de 215 millones**: [Link](https://www.marca.com/futbol/villarreal/2025/12/15/villarreal-anuncia-presupuesto-record-215-millones.html)
-- **Villarreal CF General Shareholders’ Meeting**: [Link](https://villarrealcf.es/en/villarreal-cf-general-shareholders-meeting/)
-- **Villarreal CF cierra 2024-2025 en beneficio y proyecta un presupuesto de 215 millones**: [Link](https://palco23.mundodeportivo.com/clubes/villarreal-cf-cierra-la-temporada-2024-2025-con-un-beneficio-de-14-millones-y-proyecta-un-presupuesto-de-215-millones)
-
-
-### talavera - real madrid (N/A, 17/12/2025 15:30 Lima)
-
-- **Talavera - Real Madrid hoy, en directo: dieciseisavos de Copa del Rey, última hora en El Prado**: [Link](https://as.com/futbol/copa_del_rey/talavera-real-madrid-hoy-en-directo-dieciseisavos-de-copa-del-rey-ultima-hora-en-el-prado-f202512-d/)
-- **Real Madrid vs. Talavera EN VIVO y EN DIRECTO: transmisión del partido**: [Link](https://libero.pe/futbol-internacional/2025/12/17/real-madrid-vs-talavera-en-vivo-en-directo-copa-del-rey-via-america-tvgo-rtve-1-lbev-1430384)
-- **🔴 Ver ESPN EN VIVO — transmisión partido Real Madrid vs. CF Talavera por TV y Online**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/espn-en-vivo-gratis-donde-ver-partido-real-madrid-vs-cf-talavera-por-futbol-tv-y-disney-plus-premium-online-en-usa-nnda-nnrt-noticia/)
-
-
-### noche crema 2026 (N/A, 17/12/2025 15:30 Lima)
-
-- **Universitario desafía a Alianza Lima con anuncio de la Noche Crema: día, hora y rival confirmado**: [Link](https://bolavip.com/pe/universitario/universitario-desafia-a-alianza-lima-con-anuncio-de-la-noche-crema-dia-hora-y-rival-confirmado)
-- **Oficial la Noche Crema 2026: Rival de Universitario, hora y lugar para la presentación del nuevo plantel**: [Link](https://depor.com/futbol-peruano/descentralizado/universitario-noche-crema-2026-fecha-rival-estadio-y-venta-de-entradas-para-la-presentacion-de-los-cremas-liga-1-noticia/)
-- **Universitario confirmó la fecha de su 'Noche Crema 2026'**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/universitario-confirmo-fecha-su-noche-crema-2026-n452013)
-
-
-### flamengo (N/A, 17/12/2025 11:36 Lima)
-
-- **PSG x Flamengo: onde assistir ao vivo, horário e escalações**: [Link](https://ge.globo.com/futebol/times/flamengo/noticia/2025/12/17/psg-x-flamengo-onde-assistir-ao-vivo-horario-e-escalacoes.ghtml)
-- **Globo tem "super quarta" de futebol com decisões e campeões de audiência**: [Link](https://natelinha.uol.com.br/televisao/2025/12/17/globo-tem-super-quarta-de-futebol-com-decisoes-e-campeoes-de-audiencia-235310.php)
-- **Intercontinental: Filipe Luís carrega marca histórica contra o PSG**: [Link](https://www.metropoles.com/esportes/intercontinental-filipe-luis-tem-marca-historica-contra-o-psg-saiba)
-
-
-### mustafa suleyman (N/A, 17/12/2025 11:36 Lima)
-
-- **Microsoft AI boss Suleyman opens up about his peers and calls Elon Musk a 'bulldozer' with 'superhuman capabilities to bend reality to his will'**: [Link](https://fortune.com/2025/12/13/microsoft-ai-ceo-mustafa-suleyman-elon-musk-sam-altman-demis-hassabis/)
-- **Microsoft AI CEO Mustafa Suleyman says he won't match Meta's high-flying pay packages**: [Link](https://www.businessinsider.com/microsoft-ai-mustafa-suleyman-talent-wars-pay-packages-salaries-meta-2025-12)
-- **Microsoft AI chief Mustafa Suleyman: Gemini 3 can do things that Copilot can’t, we are really trying to …**: [Link](https://timesofindia.indiatimes.com/technology/tech-news/microsoft-ai-chief-mustafa-suleyman-gemini-3-can-do-things-that-copilot-cant-we-are-really-trying-to-/articleshow/126036641.cms)
 
 
