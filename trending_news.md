@@ -1,3 +1,24 @@
+### thriller (N/A, 21/12/2025 03:32 Lima)
+
+- **One of the best thriller movies of this decade is on TV tonight**: [Link](https://www.joe.ie/movies-tv/nightmare-alley-movies-on-tv-saturday-20-december-best-thrillers-decade-861198)
+- **Bradley Cooper's 'dark and delirious' thriller airs on Film 4 tonight**: [Link](https://www.express.co.uk/showbiz/tv-radio/2146595/nightmare-alley-bradley-cooper-s-dark-delirious-thriller-airs-film-4-tonight)
+- **'Masterful' thriller from legendary director with an all-star cast is on Film 4 tonight**: [Link](https://www.mirror.co.uk/tv/tv-news/masterful-thriller-legendary-director-star-36405158)
+
+
+### ganador de yo soy (N/A, 21/12/2025 03:32 Lima)
+
+- **Michael Jackson ganó la final ‘Yo Soy’ 2025: Gabriela Villanueva se llevó 20 mil soles tras derrotar a Green Day y Alejandra Guzmán**: [Link](https://www.infobae.com/peru/2025/12/20/gran-final-de-yo-soy-2025-minuto-a-minuto-de-todos-los-detalles-de-la-ultima-gala-de-michael-jackson-green-day-y-alejandra-guzman-por-latina/)
+- **YO SOY Gran Final HOY EN VIVO: horario, dónde ver y cómo votar por tu imitador favorito**: [Link](https://elcomercio.pe/respuestas/a-que-hora/yo-soy-final-en-vivo-hora-donde-ver-y-como-votar-por-tu-imitador-favorito-canal-tv-senal-online-latina-tv-tdpe-noticia/)
+- **Yo Soy EN VIVO 2025: ¡THRILLER TOMÓ EL ESCENARIO! Michael Jackson cerró la ronda final como una película de terror en vivo**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-en-vivo-2025-thriller-tomo-el-escenario-michael-jackson-cerro-la-ronda-final-como-una-pelicula-de-terror-en-vivo_20251220/)
+
+
+### lakers (N/A, 21/12/2025 03:32 Lima)
+
+- **Luka Doncic exits Lakers game with leg injury**: [Link](https://apnews.com/article/luka-doncic-hurt-lakers-03b8050cc7b45d4866b3fc66a22b1a4c)
+- **Doncic and Zubac hurt during LA clash, Jokic surrenders to Rockets**: [Link](https://www.eurohoops.net/en/nba-news/1910031/luka-doncic-left-leg-contusion-los-angeles-lakers-nba/)
+- **LeBron, Lakers Disappoint NBA Fans in Loss to James Harden, Clippers as Luka Injured**: [Link](https://bleacherreport.com/articles/25335028-lebron-lakers-disappoint-nba-fans-loss-james-harden-clippers-luka-injured)
+
+
 ### diana sanchez (N/A, 20/12/2025 23:40 Lima)
 
 - **Imitador de Josimar se PRONUNCIA tras su ELIMINACIÓN en Yo Soy: “Muchas gracias a todos… Mil disculpas si en algo les fallé, si algún error cometí”**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/imitador-de-josimar-se-pronuncia-tras-su-eliminacion-en-yo-soy-muchas-gracias-a-todos-mil-disculpas-si-en-algo-les-falle-si-algun-error-cometi_20251219/)
@@ -1010,26 +1031,5 @@ Sin noticias relacionadas disponibles.
 - **Microsoft AI boss Suleyman opens up about his peers and calls Elon Musk a 'bulldozer' with 'superhuman capabilities to bend reality to his will'**: [Link](https://fortune.com/2025/12/13/microsoft-ai-ceo-mustafa-suleyman-elon-musk-sam-altman-demis-hassabis/)
 - **Microsoft AI CEO Mustafa Suleyman says he won't match Meta's high-flying pay packages**: [Link](https://www.businessinsider.com/microsoft-ai-mustafa-suleyman-talent-wars-pay-packages-salaries-meta-2025-12)
 - **Microsoft AI chief Mustafa Suleyman: Gemini 3 can do things that Copilot can’t, we are really trying to …**: [Link](https://timesofindia.indiatimes.com/technology/tech-news/microsoft-ai-chief-mustafa-suleyman-gemini-3-can-do-things-that-copilot-cant-we-are-really-trying-to-/articleshow/126036641.cms)
-
-
-### cultural leonesa - levante (N/A, 17/12/2025 11:36 Lima)
-
-- **Cultural Leonesa - Levante, en directo: dieciseisavos de Copa del Rey hoy en vivo**: [Link](https://as.com/futbol/copa_del_rey/cultural-leonesa-levante-en-directo-dieciseisavos-de-copa-del-rey-hoy-en-vivo-f202512-d/)
-- **RUEDA DE PRENSA | Álvaro del Moral: “Le damos mucho valor a la Copa, es una competición muy bonita”**: [Link](https://www.levanteud.com/noticias/rueda-de-prensa-or-alvaro-del-moral-le-damos-mucho-valor-a-la-copa-es-una-competicion-muy-bonita)
-- **Ziganda: «Merecen jugar los de Tropezón»**: [Link](https://www.diariodeleon.es/deportes/251216/2069676/merecen-jugar-tropezon.html)
-
-
-### psg vs (N/A, 17/12/2025 11:36 Lima)
-
-- **PSG y Flamengo definen al nuevo campeón de la Copa Intercontinental**: [Link](https://www.espn.com.pe/futbol/nota/_/id/16087043/psg-vs-flamengo-final-intercontinental-equipo-fecha-hora-y-tv-en-vivo)
-- **Copa Intercontinental | Luis Enrique llenó de elogios a Flamengo previo a la final: "Sabe jugar partidos importantes"**: [Link](https://rpp.pe/futbol/futbol-mundial/copa-intercontinental-luis-enrique-lleno-de-elogios-a-flamengo-previo-a-la-final-sabe-jugar-partidos-importantes-noticia-1668129)
-- **Resumen extendido: Flamengo vs. Pyramids (2-0) y clasificación a la final de la Copa Intercontinental**: [Link](https://depor.com/futbol-internacional/resto-del-mundo/fifa-plus-tv-en-vivo-flamengo-vs-pyramids-online-gratis-por-copa-intercontinental-canales-de-futbol-libre-tv-directv-dsports-dgo-video-noticia/)
-
-
-### elon musk (N/A, 17/12/2025 11:36 Lima)
-
-- **SpaceX Tender Offer Pushes Musk’s Net Worth To Record $677 Billion**: [Link](https://www.forbes.com/sites/mattdurot/2025/12/15/elon-musk-just-became-the-first-person-ever-worth-600-billion/)
-- **Elon Musk Is on the Verge of a $1 Trillion Net Worth**: [Link](https://www.investopedia.com/elon-musk-is-on-the-verge-of-a-usd1-trillion-net-worth-spacex-tesla-xai-11870414)
-- **SpaceX Valuation Boosts Musk’s Net Worth to New Heights**: [Link](https://meyka.com/blog/spacex-valuation-boosts-musks-net-worth-to-new-heights-1612/)
 
 
