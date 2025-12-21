@@ -1,3 +1,71 @@
+### final de yo soy (N/A, 20/12/2025 21:10 Lima)
+
+- **Gran Final de ‘Yo Soy 2025′: minuto a minuto de la última gala de Michael Jackson, Green Day y Alejandra Guzmán**: [Link](https://www.infobae.com/peru/2025/12/20/gran-final-de-yo-soy-2025-minuto-a-minuto-de-todos-los-detalles-de-la-ultima-gala-de-michael-jackson-green-day-y-alejandra-guzman-por-latina/)
+- **Final de ‘Yo Soy’ 2025: fecha y cómo votar en línea por tu favorito | tdpe | RESPUESTAS**: [Link](https://elcomercio.pe/respuestas/a-que-hora/final-de-yo-soy-2025-fecha-y-como-votar-en-linea-por-tu-favorito-tdpe-noticia/)
+- **Final de 'Yo soy 2025' en vivo: a qué hora ver y quiénes son los finalistas**: [Link](https://larepublica.pe/espectaculos/2025/12/20/final-de-yo-soy-2025-segunda-temporada-en-vivo-horario-canal-en-vivo-y-como-ver-el-ultimo-programa-por-latina-television-1269882)
+
+
+### bolivar vs (N/A, 20/12/2025 21:10 Lima)
+
+- **Video, resumen y goles: Nacional Potosí vs. Bolívar (0-2) por la final Copa Paceña | VIDEO | FUTBOL-INTERNACIONAL**: [Link](https://depor.com/futbol-internacional/resto-del-mundo/futbol-canal-en-vivo-nacional-potosi-vs-bolivar-en-directo-gratis-en-que-canales-ver-futbol-libre-tv-fbf-play-online-por-internet-video-noticia/)
+- **Qué canal pasa Nacional Potosí vs Bolívar hoy: dónde ver GRATIS y EN VIVO el partido de la Copa Paceña**: [Link](https://www.365scores.com/es/news/nacional-potosi-vs-bolivar-donde-ver-hoy/)
+- **Malestar y tristeza en el plantel de Blooming**: [Link](https://eju.tv/2025/12/malestar-y-tristeza-en-el-plantel-de-blooming/)
+
+
+### aucas vs (N/A, 20/12/2025 21:10 Lima)
+
+Sin noticias relacionadas disponibles.
+
+
+### parense de manos 3 (N/A, 20/12/2025 21:10 Lima)
+
+- **Párense de Manos 3: Goncho fue una máquina y venció a Grego Rossello en el primer round**: [Link](https://www.tycsports.com/gaming/parense-de-manos-3-goncho-fue-una-maquina-y-vencio-a-grego-rossello-en-el-primer-round-id704952.html)
+- **Goncho Banzas noqueó a Grego Rossello en Párense de Manos 3**: [Link](https://www.minutouno.com/espectaculos/goncho-banzas-noqueo-grego-rossello-parense-manos-3-n6226458)
+- **Flor Vigna versus Mica Viciconte: el origen de su rivalidad, los gestos de reconciliación y la batalla final en un ring**: [Link](https://www.infobae.com/teleshow/2025/12/20/flor-vigna-versus-mica-viciconte-el-origen-de-su-rivalidad-los-gestos-de-reconciliacion-y-la-batalla-final-en-un-ring/)
+
+
+### estudiantes (N/A, 20/12/2025 21:10 Lima)
+
+- **Estudiantes venció 2-1 a Platense sobre el final y se quedó con el Trofeo de Campeones**: [Link](https://www.infobae.com/deportes/2025/12/20/estudiantes-y-platense-definiran-al-ganador-del-trofeo-de-campeones-hora-tv-y-formaciones/)
+- **Todos los campeones de la historia del Trofeo de Campeones**: [Link](https://www.espn.com.ar/futbol/argentina/nota/_/id/16090643/historia-trofeo-campeones-argentina)
+- **Noche de héroe: Alario y un doblete para la gloria del Pincha**: [Link](https://espndeportes.espn.com/futbol/argentina/nota/_/id/16106194/video-noche-de-heroe-alario-y-un-doblete-para-la-gloria-del-pincha)
+
+
+### real madrid versus sevilla (N/A, 20/12/2025 21:10 Lima)
+
+- **Fede Valverde se cae de la lista para la cita ante el Sevilla**: [Link](https://www.marca.com/futbol/real-madrid/2025/12/20/valverde-cae-lista-sevilla.html)
+- **Fede Valverde no entra en la convocatoria frente al Sevilla: Xabi Alonso recupera a Camavinga**: [Link](https://espanol.eurosport.com/futbol/la-liga/2025-2026/convocatoria-real-madrid-sevilla-jornada-17-fede-valverde-baja-lesion-gripe-xabi-alonso-recupera-camavinga-hoy_sto23252406/story.shtml)
+- **Real Madrid: Camavinga, Mendy y Alaba apuran para volver contra Sevilla**: [Link](https://www.espn.com.ar/futbol/espana/nota/_/id/16096973/real-madrid-camavinga-mendy-alaba-apuran-volver-sevilla)
+
+
+### juventus vs (N/A, 20/12/2025 21:10 Lima)
+
+- **¡EN VIVO! Juventus y Roma se enfrentan en un partidazo de Serie A**: [Link](https://www.espn.com.pe/futbol/italia/nota/_/id/16095198/juventus-vs-roma-fecha-16-serie-a-equipo-fecha-hora-y-tv-en-vivo)
+- **Massara: la Roma busca cambiar su pobre historial en los partidos importantes contra la Juventus**: [Link](https://www.elpueblo.pe/deportes/massara-la-roma-busca-cambiar-su-pobre-historial-en-los-partidos-importantes-contra-la-juventus/173999/)
+- **Serie A: Roma busca derrotar a Juventus para subirse al liderato**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-roma-busca-derrotar-a-juventus-para-subirse-al-liderato-noticia-1668564)
+
+
+### vendée fontenay foot - psg (N/A, 20/12/2025 21:10 Lima)
+
+- **Fontenay-le-Comte 0-4 PSG, Coupe de France : résumé du match (20/12/2025)**: [Link](https://www.lequipe.fr/Football/match-direct/coupe-de-france/2025-2026/fontenay-le-comte-psg-live/686890)
+- **"Rien d'important" : Luis Enrique se montre rassurant l'état de David Boly**: [Link](https://tribuna.com/fr/news/2025-12-20-rien-dimportant-luis-enrique-se-montre-rassurant-letat-de-david-boly/)
+- **«Et si on prend l’orage, pas de panique !», les derniers mots des joueurs de Fontenay avant de défier le PSG**: [Link](https://www.lefigaro.fr/sports/football/coupe-de-france/et-si-on-prend-l-orage-pas-de-panique-les-derniers-mots-des-joueurs-de-fontenay-avant-de-defier-le-psg-20251220)
+
+
+### arsenal vs (N/A, 20/12/2025 21:10 Lima)
+
+- **Everton 0-1 Arsenal: Gunners return to the top with victory at Toffees**: [Link](https://www.bbc.com/sport/football/live/ckgd8k8mlwrt)
+- **Arteta describes what he feels about playing at a new stadium**: [Link](https://www.justarsenal.com/arteta-describes-what-he-feels-about-playing-at-a-new-stadium/406389)
+- **Gyokeres ends drought to gift Arsenal top spot for Christmas**: [Link](https://www.beinsports.com/en-mena/football/premier-league/articles-video/gyokeres-ends-drought-to-gift-arsenal-top-spot-for-christmas-2025-12-20)
+
+
+### temblor arequipa (N/A, 20/12/2025 21:10 Lima)
+
+- **Temblor en Perú: ¿dónde fue el epicentro del último sismo hoy, 20 de diciembre, según IGP?**: [Link](https://larepublica.pe/sociedad/2025/12/20/temblor-en-peru-hoy-sabado-20-de-diciembre-del-2025-magnitud-epicentro-y-mas-sobre-sismos-recientes-segun-igp-ultimo-sismo-en-lima-ica-callao-y-otras-provincias-atmp-465861)
+- **Temblor en Lima: Sismo de magnitud 3.7 se registró en Huacho**: [Link](https://diariocorreo.pe/edicion/lima/temblor-en-lima-sismo-de-magnitud-37-se-registro-en-huacho-noticia/)
+- **Un sismo de magnitud 3.8 remeció la región Tumbes esta madrugada**: [Link](https://rpp.pe/peru/tumbes/tumbes-sismo-de-magnitud-38-remecio-la-region-esta-madrugada-noticia-1668354)
+
+
 ### juventus (N/A, 20/12/2025 15:26 Lima)
 
 - **Juve, la formazione ufficiale contro la Roma: le scelte di Spalletti**: [Link](https://www.tuttosport.com/news/calcio/serie-a/juventus/2025/12/20-145343917/juve_la_formazione_ufficiale_contro_la_roma_le_scelte_di_spalletti)
@@ -963,75 +1031,5 @@ Sin noticias relacionadas disponibles.
 - **El cometa 3I/ATLAS alcanzará su máxima proximidad a la Tierra esta semana**: [Link](https://www.infobae.com/america/ciencia-america/2025/12/16/el-cometa-3iatlas-alcanzara-su-maxima-proximidad-a-la-tierra-esta-semana/)
 - **Qué significa que el Sistema de Alertas de la ONU esté investigando el cometa 3I/Atlas**: [Link](https://www.nationalgeographic.com.es/ciencia/que-significa-que-sistema-alertas-onu-este-investigando-comenta-3iatlas-cara-a-su-aproximacion-19-diciembre_27033)
 - **Cometa 3I/ATLAS: ¿Por qué la NASA y agencias espaciales activaron ejercicios de defensa planetaria ante su acercamiento?**: [Link](https://rpp.pe/ciencia/espacio/cometa-3i-atlas-por-que-nasa-y-agencias-activaron-defensa-planetaria-ante-cercania-del-objeto-interestelar-a-la-tierra-noticia-1668198)
-
-
-### yo soy en vivo (N/A, 17/12/2025 03:37 Lima)
-
-- **Yo Soy EN VIVO 2025: Encuesta del REACT, Martes 16 de Diciembre**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-en-vivo-2025-encuesta-del-react-martes-16-de-diciembre_20251216/)
-- **Yo Soy conciertos 2025: ¡Green Day desata su versión más teatral y sólida con “She”!**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-conciertos-2025-green-day-desata-su-version-mas-teatral-y-solida-con-she_20251215/)
-- **Imitadores de Green Day brindaron arriesgada presentación en ‘Yo Soy’ y Carlos Alcántara suelta lisura de la emoción**: [Link](https://www.infobae.com/peru/2025/12/16/imitadores-de-green-day-brindaron-arriesgada-presentacion-en-yo-soy-y-carlos-alcantara-suelta-lisura-de-la-emocion/)
-
-
-### flamengo vs psg hora peruana (N/A, 16/12/2025 23:36 Lima)
-
-- **PSG vs Flamengo: posibles alineaciones, Copa Intercontinental**: [Link](https://espndeportes.espn.com/futbol/nota/_/id/16089888/psg-vs-flamengo-alineaciones-copa-intercontinental-2025-que-debes-saber)
-- **Copa Intercontinental | Luis Enrique llenó de elogios a Flamengo previo a la final: "Sabe jugar partidos importantes"**: [Link](https://rpp.pe/futbol/futbol-mundial/copa-intercontinental-luis-enrique-lleno-de-elogios-a-flamengo-previo-a-la-final-sabe-jugar-partidos-importantes-noticia-1668129)
-- **PSG | Luis Enrique, a completar el sextete ante Filipe Luis: "Seguimos en la línea de querer hacer historia"**: [Link](https://espanol.eurosport.com/futbol/fifa-intercontinental-cup/2025/psg-luis-enrique-a-completar-el-sextete-ante-filipe-luis-seguimos-en-la-linea-de-querer-hacer-historia_vid60042351/video.shtml)
-
-
-### billie eilish (N/A, 16/12/2025 23:36 Lima)
-
-- **Billie Eilish trades baggy clothes for a plunging polka-dot tank top**: [Link](https://pagesix.com/2025/12/16/style/billie-eilish-trades-baggy-clothes-for-a-plunging-polka-dot-tank-top/)
-- **Billie Eilish Poses With a Milk Bottle in Boldest Top Yet**: [Link](https://www.realitytea.com/2025/12/16/billie-eilish-poses-milk-bottle-bold-top-phot/)
-- **Billie Eilish ditches her baggy sweats for VERY low-cut tank top in sultry new selfie**: [Link](https://www.the-sun.com/entertainment/15651169/billie-eilish-busty-top-selfie-kitchen/)
-
-
-### ureña (N/A, 16/12/2025 23:36 Lima)
-
-- **“Nos encantaría, es un excelente jugador”: Navarro sobre la posible llegada de Ureña a Alianza Lima**: [Link](https://depor.com/futbol-peruano/descentralizado/alianza-lima-franco-navarro-hablo-sobre-la-permanencia-de-alan-cantero-y-la-posibilidad-de-que-llegue-rodrigo-urena-video-noticia/)
-- **Universitario se desmantela y el próximo jugador con destino Colombia, no es Rodrigo Ureña**: [Link](https://bolavip.com/pe/universitario/universitario-se-desmantela-y-el-proximo-jugador-con-destino-colombia-no-es-rodrigo-urena)
-- **Confirmado: Rodrigo Ureña deja Universitario y será nuevo jugador de Millonarios**: [Link](https://libero.pe/futbol-peruano/universitario/2025/12/16/confirmado-rodrigo-urena-dejara-universitario-sera-nuevo-jugador-de-millonarios-de-colombia-328368)
-
-
-### green day (N/A, 16/12/2025 23:36 Lima)
-
-- **Classic DVD Review: Green Day | Bullet In A Bible**: [Link](https://tinnitist.com/2025/12/16/classic-dvd-review-green-day-bullet-in-a-bible/)
-- **Yo Soy conciertos 2025: Encuesta del REACT, 15 de Diciembre**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-conciertos-2025-encuesta-del-react-15-de-diciembre_20251215/)
-- **Imitadores de Green Day brindaron arriesgada presentación en ‘Yo Soy’ y Carlos Alcántara suelta lisura de la emoción**: [Link](https://www.infobae.com/peru/2025/12/16/imitadores-de-green-day-brindaron-arriesgada-presentacion-en-yo-soy-y-carlos-alcantara-suelta-lisura-de-la-emocion/)
-
-
-### dominic sanchez yo soy (N/A, 16/12/2025 23:36 Lima)
-
-- **¿Quién era Dominic Sánchez?, el concursante de ‘Yo Soy’ asesinado en Puente Piedra**: [Link](https://www.infobae.com/peru/2025/12/16/quien-era-dominic-sanchez-el-concursante-de-yo-soy-asesinado-en-puente-piedra/)
-- **Sicarios matan de catorce disparos a imitador de reguetón que daba show en Puente Piedra**: [Link](https://www.atv.pe/noticia/sicarios-matan-de-catorce-disparos-a-imitador-de-regueton-que-daba-show-en-puente-piedra/)
-- **Exartista de ‘Yo soy’ es asesinado a balazos frente a su vivienda en Puente Piedra**: [Link](https://diariocorreo.pe/edicion/lima/exartista-de-yo-soy-es-asesinado-a-balazos-frente-a-su-vivienda-en-puente-piedra-noticia/)
-
-
-### knicks - spurs (N/A, 16/12/2025 23:36 Lima)
-
-- **San Antonio Spurs vs New York Knicks Dec 16, 2025 Game Summary**: [Link](https://www.nba.com/game/sas-vs-nyk-0062500001)
-- **DraftKings NBA Pick6 Fantasy Basketball Picks Today: Top Picks for December 16**: [Link](https://dknetwork.draftkings.com/2025/12/16/draftkings-nba-pick6-fantasy-basketball-picks-today-top-picks-for-december-16/)
-- **Fanatics Sportsbook Promo Code ACTIONNY: Get $250 for NBA Cup Knicks Bets**: [Link](https://www.actionnetwork.com/legal-online-sports-betting/fanatics-sportsbook-ny-promo-code-actionny-claim-exclusive-250-offer-nba-cup-knicks)
-
-
-### junior (N/A, 16/12/2025 23:36 Lima)
-
-- **Resident doctors, a fair deal is on the table. Please do not strike at this moment of crisis for the NHS | Keir Starmer**: [Link](https://www.theguardian.com/commentisfree/2025/dec/12/resident-doctors-strike-super-flu-keir-starmer-nhs)
-- **Letters: Labour claims to be the party of the NHS – yet the doctors’ strikes go on**: [Link](https://www.telegraph.co.uk/opinion/2025/12/17/letters-labour-claims-party-of-nhs-yet-doctor-strikes-go-on/)
-- **Devon and Exeter pre-Christmas hospital strike goes ahead after “too little, too late” from health secretary Wes Streeting**: [Link](https://exeterobserver.org/2025/12/16/devon-and-exeter-pre-christmas-hospital-strike-goes-ahead-too-little-too-late-health-secretary-wes-streeting-fourteenth-round-industrial-action-follows-vote-reject-speciality-training-places-offer-british-medical-association/)
-
-
-### categoría primera a (N/A, 16/12/2025 20:59 Lima)
-
-- **Máximos campeones de la Liga BetPlay en la historia**: [Link](https://www.365scores.com/es/news/maximos-campeones-de-liga-betplay/)
-- **Así está el palmarés de los torneos cortos en la Liga BetPlay**: [Link](https://www.winsports.co/futbol-colombiano/noticias/asi-esta-el-palmares-de-los-torneos-cortos-en-la-liga-betplay-399101)
-- **El autosabotaje de las finales: el FPC define a sus campeones**: [Link](https://www.elespectador.com/deportes/futbol-colombiano/el-autosabotaje-de-las-finales-el-fpc-define-a-sus-campeones/)
-
-
-### vacancia por incapacidad moral permanente (N/A, 16/12/2025 20:59 Lima)
-
-- **Dina Boluarte: PJ admite demanda para anular su vacancia y fija audiencia para marzo de 2026**: [Link](https://www.infobae.com/peru/2025/12/16/dina-boluarte-pj-admite-demanda-para-anular-su-vacancia-pero-fija-audiencia-para-marzo-de-2026/)
-- **Poder Judicial admite demanda de Dina Boluarte contra vacancia y fija audiencia virtual para el 12 de marzo**: [Link](https://canaln.pe/actualidad/poder-judicial-admite-demanda-dina-boluarte-vacancia-n488975)
-- **Dina Boluarte: Poder Judicial admite demanda para anular vacancia, ¿qué puede pasar?**: [Link](https://gestion.pe/peru/politica/dina-boluarte-poder-judicial-admite-demanda-para-anular-vacancia-noticia/)
 
 
