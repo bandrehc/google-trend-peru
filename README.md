@@ -1,3 +1,73 @@
+### sassuolo vs (N/A, 21/12/2025 11:29 Lima)
+
+- **Serie A | Sassuolo 0-1 Torino: In-form Vlasic punishes Doig shocker**: [Link](https://sports.yahoo.com/articles/serie-sassuolo-0-1-torino-160500271.html)
+- **Sassuolo vs. Torino: Serie A Week 16 official line-ups**: [Link](https://football-italia.net/serie-a-sassuolo-vs-torino-confirmed-line-ups/)
+- **Toro festeggia seconda vittoria consecutiva con rigore di Vlasic e clean sheet nel match contro il Sassuolo**: [Link](https://news.ssbcrack.com/toro-festeggia-seconda-vittoria-consecutiva-con-rigore-di-vlasic-e-clean-sheet-nel-match-contro-il-sassuolo/)
+
+
+### pedri (N/A, 21/12/2025 11:29 Lima)
+
+- **Villarreal vs Barcelona: Pedri es baja; Flick defiende a Raphinha**: [Link](https://www.espn.com.ar/futbol/espana/nota/_/id/16104070/villarreal-vs-barcelona-pedri-raphinha-flick)
+- **Flick apuesta por un once sin Lewandowski ante el Villarreal**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20251221/1002590535/flick-apuesta-once-lewandowski-villarreal.html)
+- **Flick descarta a Pedri para La Cerámica: "El riesgo es alto"**: [Link](https://www.marca.com/futbol/barcelona/2025/12/20/flick-descarta-pedri-ceramica-riesgo-alto.html)
+
+
+### fiorentina (N/A, 21/12/2025 11:29 Lima)
+
+- **Fiorentina, i convocati per l'Udinese: a sorpresa fuori Marì. Out Fazzini e Gosens**: [Link](https://www.gazzetta.it/calcio/fantanews/21-12-2025/fiorentina-i-convocati-per-l-udinese.shtml)
+- **FIORENTINA - UDINESE: LA STORIA DEL MATCH -**: [Link](https://www.acffiorentina.com/news/fiorentina-udinese-la-storia-del-match)
+- **Vanoli le prova tutte per salvare la panchina della Fiorentina: contro l'Udinese si metterà a quattro! Le ultime in vista della delicatissima sfida**: [Link](https://tribuna.com/it/news/2025-12-21-vanoli-le-prova-tutte-per-salvare-la-panchina-della-fiorentina-contro-ludinese-si-mettera/)
+
+
+### barcelona vs (N/A, 21/12/2025 11:29 Lima)
+
+- **Villarreal - Barcelona hoy, en directo: LaLiga EA Sports en vivo, ultima hora en La Cerámica**: [Link](https://as.com/futbol/primera/villarreal-barcelona-en-directo-laliga-ea-sports-hoy-en-vivo-f202512-d/)
+- **Villarreal - Barcelona, en directo hoy: resultado del partido de la jornada 17 de La Liga EA Sports, en vivo**: [Link](https://www.sport.es/es/noticias/barca/villarreal-barcelona-liga-flick-directo-125016092)
+- **"Todos los entrenadores nos adaptamos a los futbolistas, muchas veces en contra de nuestra voluntad"**: [Link](https://www.marca.com/calendario-adviento/entrevista-marcelino.html)
+
+
+### barca (N/A, 21/12/2025 11:29 Lima)
+
+- **Villarreal vs Barcelona LIVE: Spanish La Liga score, stats & updates**: [Link](https://www.bbc.com/sport/football/live/c5y27g3v92kt)
+- **LIVE: Villarreal vs Barcelona – La Liga**: [Link](https://www.aljazeera.com/sports/liveblog/2025/12/21/live-villarreal-vs-barcelona-la-liga)
+- **Barcelona Predicted Lineup vs. Villarreal: Major Absence for La Liga Leaders**: [Link](https://www.si.com/soccer/barcelona-predicted-lineup-vs-villarreal-la-liga-12-21-25)
+
+
+### cuándo juega barcelona (N/A, 21/12/2025 11:29 Lima)
+
+- **La postura del plantel de Barcelona en la previa del duelo frente a Independiente del Valle por Liga Ecuabet**: [Link](https://www.espn.com.ar/futbol/ecuador/nota/_/id/16102682/la-postura-del-plantel-de-barcelona-en-la-previa-del-duelo-frente-a-independiente-del-valle-por-liga-ecuabet)
+- **Tras una semana difícil, Barcelona visita a Independiente en el cierre del hexagonal de la Liga Ecuabet**: [Link](https://espndeportes.espn.com/futbol/ecuador/nota/_/id/16098774/independiente-del-valle-vs-barcelona-por-liga-ecuabet-equipo-fecha-y-hora)
+- **¿No quieren jugar los titulares? Barcelona S.C., ex equipo de Mario Pineida, terminaría la temporada en Ecuado**: [Link](https://www.telediario.mx/deportes/futbol-internacional/barcelona-de-ecuador-por-que-no-jugaran-titulares-ultimo-partido-liga)
+
+
+### cuarto domingo de adviento 2025 (N/A, 21/12/2025 11:29 Lima)
+
+- **Oración para encender la cuarta vela de la Corona de Adviento 2025 este domingo 21 de diciembre**: [Link](https://elcomercio.pe/mag/respuestas/oracion-para-encender-la-cuarta-vela-de-la-corona-de-adviento-2025-este-domingo-21-de-diciembre-navidad-nnda-nnni-noticia/)
+- **En este último día de rito del encendido de la vela violeta, marca el momento de la alegría y nos recuerda la vida antes de Jesús y la luz que imperó en el mundo con su llegada**: [Link](https://www.facebook.com/infobaecolombia/photos/en-este-%C3%BAltimo-d%C3%ADa-de-rito-del-encendido-de-la-vela-violeta-marca-el-momento-de-/1306689224807170/)
+- **Oración para rezar en familia el cuarto Domingo de Adviento 2025**: [Link](https://www.eluniverso.com/larevista/sociedad/oracion-para-rezar-en-familia-el-cuarto-domingo-de-adviento-2025-nota/)
+
+
+### celtic (N/A, 21/12/2025 11:29 Lima)
+
+- **Celtic v Aberdeen: Predicted XI from Wilfried Nancy at Paradise**: [Link](https://thecelticstar.com/celtic-v-aberdeen-predicted-xi-from-wilfried-nancy-at-paradise/)
+- **Missed chances but Celtic ahead at half time, Celtic 1-0 Aberdeen**: [Link](https://onefootball.com/en/news/missed-chances-but-celtic-ahead-at-half-time-celtic-1-0-aberdeen-42127835)
+- **Nicky Devlin admits Aberdeen didn't give fans enough to 'shout about' in Europe, but Dons still confident they can maintain Premiership surge at Celtic**: [Link](https://www.pressandjournal.co.uk/fp/sport/football/aberdeen-fc/6920778/aberdeen-nicky-devlin-celtic-preview/)
+
+
+### atletico madrid (N/A, 21/12/2025 11:29 Lima)
+
+- **Preview: Girona vs Atletico Madrid - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/atletico-madrid/race-for-the-la-liga-title/preview/girona-vs-atletico-prediction-team-news-lineups_588179.html)
+- **Football Tracker: Cagliari level against Pisa in Serie A, Atletico and Barca to follow**: [Link](https://www.flashscore.com/news/football-tracker-cagliari-level-against-pisa-in-serie-a-atletico-and-barca-to-follow/p0SNiXEF/)
+- **🚨 Vanat starts, no Molina... the starting XIs for Girona-Atlético**: [Link](https://sports.yahoo.com/articles/vanat-starts-no-molina-starting-114800753.html)
+
+
+### mainz (N/A, 21/12/2025 11:29 Lima)
+
+- **Urs Fischer löst in Mainz ein Union-Problem**: [Link](https://www.berliner-kurier.de/union/urs-fischer-hollerbach-mainz-union-problem-li.10011084)
+- **Mainz 05 im Abstiegskampf: Der Sporttalk mit Thorsten Arnold**: [Link](https://www.1730live.de/2025/12/12/mainz-05-im-abstiegskampf-der-1730-sporttalk-mit-thorsten-arnold/)
+- **05 Inside: Auf Mainz 05 wartet die Woche der Wahrheit**: [Link](https://www.allgemeine-zeitung.de/videos/videos-mainz-rheinhessen/05-inside-auf-mainz-05-wartet-die-woche-der-wahrheit-5255221)
+
+
 ### cagliari vs (N/A, 21/12/2025 07:49 Lima)
 
 - **Serie A: Pisa quiere volver a festejar frente a Cagliari**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-pisa-quiere-volver-a-festejar-frente-a-cagliari-noticia-1668665)
@@ -961,75 +1031,5 @@ Sin noticias relacionadas disponibles.
 - **Conmoción en el fútbol: asesinaron a Mario Pineida, jugador del Barcelona de Ecuador**: [Link](https://www.infobae.com/deportes/2025/12/17/conmocion-en-el-futbol-asesinaron-a-mario-pineida-jugador-del-barcelona-de-ecuador/)
 - **¡Conmoción en Ecuador! Jugador del Barcelona de Guayaquil fue asesinado a balazos por sicarios**: [Link](https://trome.com/actualidad/internacional/ecuador-jugador-del-barcelona-de-guayaquil-mario-pineida-fue-asesinado-a-balazos-por-sicarios-video-noticia/)
 - **Matan a jugador del Barcelona de Ecuador Mario Pineida**: [Link](https://www.dw.com/es/matan-a-jugador-del-barcelona-de-ecuador-mario-pineida/a-75210830)
-
-
-### trump (N/A, 17/12/2025 21:00 Lima)
-
-- **US has seized an oil tanker off the coast of Venezuela, Trump says**: [Link](https://apnews.com/article/trump-tanker-seized-venezuela-maduro-0a148ba01684fc6ce1a228dd276732c0)
-- **Trump Live Updates: Venezuela Escorts Ships Amid Blockade Threat**: [Link](https://www.nytimes.com/live/2025/12/17/us/trump-news)
-- **What are the 'ghost ships' Venezuela is using to evade oil sanctions?**: [Link](https://www.bbc.com/news/articles/c4g562vz34ro)
-
-
-### corinthians (N/A, 17/12/2025 21:00 Lima)
-
-- **Ao vivo: Corinthians x Vasco | Final | Copa do Brasil**: [Link](https://ge.globo.com/sp/futebol/copa-do-brasil/jogo/17-12-2025/corinthians-vasco.ghtml)
-- **Rayan abre o placar contra o Corinthians, mas gol estava impedido por um detalhe**: [Link](https://br.bolavip.com/vasco/rayan-abre-o-placar-contra-o-corinthians-mas-gol-estava-impedido-por-um-detalhe)
-- **😅 Referência ao rival? Corinthians CENSURA nome de fotógrafo; entenda**: [Link](https://onefootball.com/pt-br/noticias/referencia-ao-rival-corinthians-censura-nome-de-fotografo-entenda-42111680)
-
-
-### donald trump (N/A, 17/12/2025 21:00 Lima)
-
-- **Trump to address nation from the White House**: [Link](https://www.cnn.com/politics/live-news/trump-administration-news-12-17-25)
-- **Trump announces primetime address to the nation**: [Link](https://www.foxnews.com/politics/trump-announces-primetime-address-nation)
-- **"We Inherited A Mess": Trump To Set Out Plans To Make US "Stronger"**: [Link](https://www.ndtv.com/world-news/donald-trump-news-donald-trump-tv-address-today-we-inherited-a-mess-trump-to-set-out-plans-to-make-us-stronger-9835523)
-
-
-### corinthians vs (N/A, 17/12/2025 21:00 Lima)
-
-- **Hoy, Corinthians vs Vasco da Gama EN VIVO: ¿a qué hora juegan y dónde ver la final ida de la Copa de Brasil 2025?**: [Link](https://rpp.pe/futbol/peruanos-en-el-mundo/corinthians-vs-vasco-da-gama-en-vivo-con-andre-carrillo-a-que-hora-es-y-donde-ver-final-ida-copa-de-brasil-2025-partidos-de-hoy-noticia-1668182)
-- **VER EN VIVO y GRATIS Corinthians 0-0 Vasco Da Gama vía Fútbol Libre: Con André Carrillo por final de Copa B...**: [Link](https://bolavip.com/pe/peruanos-en-el-exterior/ver-gratis-corinthians-vs-vasco-da-gama-en-vivo-via-globo-tv-por-la-final-de-ida-de-la-copa-brasil-hoy-andre-carrillo-vs-philippe-coutinho)
-- **Aún queda un título en Brasil para los colombianos de Vasco Da Gama**: [Link](https://www.espn.com.pe/futbol/brasil/nota/_/id/16087108/colombianos-cuesta-gomez-finalistas-copa-brasil-vasco-da-gama)
-
-
-### america tv (N/A, 17/12/2025 15:30 Lima)
-
-- **Debut del Real Madrid y Barcelona en Copa del Rey por América TV**: [Link](https://www.americatv.com.pe/deportes/futbol-mundial/debut-real-madrid-y-barcelona-copa-rey-america-tv-n451993)
-- **Canal peruano transmitirá GRATIS partidos de Barcelona y Real Madrid: cómo y dónde ver**: [Link](https://libero.pe/futbol-internacional/2025/12/14/america-tv-canal-peruano-transmitira-gratis-partidos-de-barcelona-real-madrid-como-ver-senal-abierta-via-canal-4-america-tvgo-443366)
-- **Gisela Valcárcel suspende fiesta de fin de año tras decisión de su equipo de ‘América Hoy’ de quedarse en América TV**: [Link](https://www.infobae.com/peru/2025/12/16/gisela-valcarcel-suspende-fiesta-de-fin-de-ano-tras-decision-de-su-equipo-de-america-hoy-de-quedarse-en-america-tv/)
-
-
-### city (N/A, 17/12/2025 15:30 Lima)
-
-- **¡EN VIVO! Manchester City recibe a Brentford en cuartos de final de la Copa de la Liga**: [Link](https://www.espn.com.pe/futbol/inglaterra/nota/_/id/16086777/manchester-city-vs-brentford-cuartos-de-final-copa-de-la-liga-equipo-fecha-hora-tv-en-vivo)
-- **Pronósticos Manchester City FC vs Brentford FC: apuestas apuntan a goleada de los Citizens**: [Link](https://depor.com/apuestas-deportivas/manchester-city-fc-vs-brentford-fc-pronosticos-apuestas-cuotas-17-12-2025-2/)
-- **Manchester City vs. Brentford EN VIVO y GRATIS por la EFL Cup: minuto a minuto**: [Link](https://bolavip.com/pe/premier-league/manchester-city-vs-brentford-en-vivo-y-gratis-por-la-efl-cup-minuto-a-minuto)
-
-
-### farense - benfica (N/A, 17/12/2025 15:30 Lima)
-
-- **Este é o 11 do Benfica para o jogo com o Farense**: [Link](https://onefootball.com/pt-br/noticias/este-e-o-11-do-benfica-para-o-jogo-com-o-farense-42110626)
-- **AO VIVO: Regresso de Manu Silva e uma nova frente de ataque no onze do Benfica**: [Link](https://www.flashscore.pt/noticias/futebol-taca-de-portugal-ao-vivo-grande-novidade-no-onze-do-benfica/4jhUXuYI/)
-- **Banjaqui estreante e Manu Silva titular**: [Link](https://www.pressreader.com/portugal/a-bola-358A/20251217/281578067001370)
-
-
-### champions femenina (N/A, 17/12/2025 15:30 Lima)
-
-- **Clasificar en el top 4, la tarea de Linda con Real Madrid en Women's Champions League 2025-2026**: [Link](https://www.espn.com.ar/futbol/champions-league/nota/_/id/16089735/twente-fc-vs-real-madrid-fecha-6-fase-liga-champions-femenina-2025-2026-equipo-fecha-hora-y-tv-en-vivo)
-- **Pau Quesada: "Tenemos que enfocarnos en lo que podemos controlar"**: [Link](https://www.infobae.com/america/agencias/2025/12/16/pau-quesada-tenemos-que-enfocarnos-en-lo-que-podemos-controlar/)
-- **Las cuentas del Real Madrid para clasificarse a cuartos de final de la Champions League femenina**: [Link](https://okdiario.com/diariomadridista/real-madrid/cuentas-del-real-madrid-clasificarse-cuartos-final-champions-league-femenina-588546)
-
-
-### paris football club femenino - barcelona (N/A, 17/12/2025 15:30 Lima)
-
-- **Paris FC - FC Barcelona en directo: UEFA Champions League Femenina hoy en vivo**: [Link](https://as.com/futbol/femenino/paris-fc-fc-barcelona-en-directo-uefa-champions-league-femenina-hoy-en-vivo-f202512-d/)
-- **El Barça femenino, a rematar el trabajo en París**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20251217/1002588117/barca-femenino-rematar-trabajo-paris.html)
-- **El Barça sellará en París su pase a cuartos**: [Link](https://www.msn.com/es-es/deportes/futbol/el-bar%C3%A7a-sellar%C3%A1-en-par%C3%ADs-su-pase-a-cuartos/ar-AA1Sv9YZ)
-
-
-### newcastle - fulham (N/A, 17/12/2025 15:30 Lima)
-
-- **Latest. Confirmed line-up: Six changes for Fulham quarter-final clash**: [Link](https://www.newcastleunited.com/en/news/confirmed-line-up-six-changes-for-fulham-quarter-final-clash)
-- **It’s time for Eddie Howe to give Nick Woltemade exactly what he wants vs Fulham**: [Link](https://www.geordiebootboys.com/opinion/its-time-for-eddie-howe-to-give-nick-woltemade-exactly-what-he-wants-vs-fulham/)
-- **Newcastle vs Fulham: Get £30 in Carabao Cup free bets with William Hill**: [Link](https://www.thesun.co.uk/sport/37640970/newcastle-fulham-carabao-cup-free-bets-william-hill/)
 
 
