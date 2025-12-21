@@ -1,3 +1,73 @@
+### diana sanchez (N/A, 20/12/2025 23:40 Lima)
+
+- **Imitador de Josimar se PRONUNCIA tras su ELIMINACIÓN en Yo Soy: “Muchas gracias a todos… Mil disculpas si en algo les fallé, si algún error cometí”**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/imitador-de-josimar-se-pronuncia-tras-su-eliminacion-en-yo-soy-muchas-gracias-a-todos-mil-disculpas-si-en-algo-les-falle-si-algun-error-cometi_20251219/)
+- **Diana Sánchez rompe en llanto tras eliminación del imitador de Josimar en ‘Yo soy’ y él le seca las lágrimas: “No me gusta que la gente llore”**: [Link](https://larepublica.pe/espectaculos/2025/12/19/diana-sanchez-rompe-en-llanto-tras-eliminacion-del-imitador-de-josimar-en-yo-soy-y-el-le-seca-las-lagrimas-no-me-gusta-que-la-gente-llore-427101)
+- **“Yo soy”: Imitador de Josimar es eliminado a poco del final de temporada**: [Link](https://elcomercio.pe/tvmas/farandula/yo-soy-imitador-de-josimar-es-eliminado-a-poco-del-final-de-temporada-latina-ultimas-noticia/)
+
+
+### pamela franco (N/A, 20/12/2025 23:40 Lima)
+
+- **Vanessa manda fuerte misil: “Pamela Franco quiere casarse”**: [Link](https://trome.com/espectaculos/tv/vanessa-pumarica-manda-fuerte-misil-pamela-franco-quiere-casarse-christian-cueva-video-fotos-farandula-noticia/)
+- **Christian Cueva lloró con mensajes de sus papás en TV**: [Link](https://www.americatv.com.pe/esta-noche/christian-cueva-lloro-emotivos-mensajes-sus-padres-tv-noticia-162020)
+- **"Todo es mentira": Cueva lanza explosivas declaraciones sobre su vida sentimental**: [Link](https://peru21.pe/espectaculos/todo-es-mentira-cueva-lanza-explosivas-declaraciones-sobre-su-vida-sentimental/)
+
+
+### kick (N/A, 20/12/2025 23:40 Lima)
+
+- **Atro shows the power of streamers switching to Kick**: [Link](https://win.gg/atro-streamers-switching-to-kick/)
+- **What really happened when Kick streamer Clavicular was forced to the ground and arrested live on stream?**: [Link](https://timesofindia.indiatimes.com/world/us-streamers/what-really-happened-when-kick-streamer-clavicular-was-forced-to-the-ground-and-arrested-live-on-stream/articleshow/126100427.cms)
+- **Why was Kick streamer Clavicular swatted and detained during a Miami IRL livestream?**: [Link](https://timesofindia.indiatimes.com/world/us-streamers/why-was-kick-streamer-clavicular-swatted-and-detained-during-a-miami-irl-livestream/articleshow/126086797.cms)
+
+
+### franco cabrera (N/A, 20/12/2025 23:40 Lima)
+
+- **Franco Cabrera recibe sorpresa por su cumpleaños en la final de 'Yo Soy' 2025: “No me esperaba esto”**: [Link](https://larepublica.pe/espectaculos/2025/12/20/franco-cabrera-recibe-sorpresa-por-su-cumpleanos-en-la-final-de-yo-soy-2025-no-esperaba-1800300)
+- **Gran Final de ‘Yo Soy 2025′: minuto a minuto de la última gala de Michael Jackson, Green Day y Alejandra Guzmán**: [Link](https://www.infobae.com/peru/2025/12/20/gran-final-de-yo-soy-2025-minuto-a-minuto-de-todos-los-detalles-de-la-ultima-gala-de-michael-jackson-green-day-y-alejandra-guzman-por-latina/)
+- **imitadora de Michael Jackson se SINCERA en la penúltima noche de competencia: “Llevo mucho tiempo lejos de mi familia, escucharlos ha sido recordar todo mi recorrido”**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/imitadora-de-michael-jackson-se-sincera-en-la-penultima-noche-de-competencia-llevo-mucho-tiempo-lejos-de-mi-familia-escucharlos-ha-sido-recordar-todo-mi-recorrido_20251220/)
+
+
+### el gran diluvio (N/A, 20/12/2025 23:40 Lima)
+
+- **Final explicado de “El Gran Diluvio”: cuál es la verdadera misión de An-na y qué pasó con Ja-in**: [Link](https://elcomercio.pe/mag/fama/que-ver/el-gran-diluvio-final-explicado-de-la-pelicula-coreana-the-great-flood-video-nnda-nnlt-noticia/)
+- **“El Gran Diluvio”: las películas y series que puedes ver en Netflix después de “The Great Flood”**: [Link](https://gestion.pe/mix/tendencias-mix/el-gran-diluvio-las-peliculas-y-series-que-puedes-ver-en-netflix-despues-de-the-great-flood-nnda-nnlt-noticia/)
+- **El gran diluvio: Todo lo que debes saber sobre la película coreana de Netflix**: [Link](https://www.gq.com.mx/articulo/pelicula-el-gran-diluvio-de-que-trata-reparto-trailer-donde-verla)
+
+
+### michael jackson (N/A, 20/12/2025 23:40 Lima)
+
+- **What’s inside the Epstein files released by the Justice Department**: [Link](https://www.cnn.com/2025/12/20/politics/jeffrey-epstein-files-released-doj)
+- **Epstein Files Photos Disappear From Government Website, Including One of Trump**: [Link](https://www.nytimes.com/2025/12/20/us/politics/trump-epstein-files-government-website.html)
+- **‘They’re Delusional If They Think This Is Going to Go Away’**: [Link](https://www.theatlantic.com/politics/2025/12/epstein-victims-trump-bondi-justice-department/685369/)
+
+
+### alejandra guzmán (N/A, 20/12/2025 23:40 Lima)
+
+- **Imitadora de Alejandra Guzmán a UN DÍA de la GRAN FINAL: “El sacrificio más fuerte ha sido separarme de mis hijos”**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/imitadora-de-alejandra-guzman-a-un-dia-de-la-gran-final-el-sacrificio-mas-fuerte-ha-sido-separarme-de-mis-hijos_20251220/)
+- **Yo Soy EN VIVO 2025: imitadora de Alejandra Guzmán ROMPE el escenario con “Reina de Corazones”**: [Link](https://www.latina.pe/entretenimiento/yo-soy/programas-completos-yo-soy/yo-soy-en-vivo-2025-imitadora-de-alejandra-guzman-rompe-el-escenario-con-reina-de-corazones_20251219/)
+- **Yo Soy EN VIVO 2025: imitadora de Alejandra Guzmán hace CANTAR al público junto a ella con “Día de Suerte”**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-en-vivo-2025-imitadora-de-alejandra-guzman-hace-cantar-al-publico-junto-a-ella-con-dia-de-suerte_20251219/)
+
+
+### green day (N/A, 20/12/2025 23:40 Lima)
+
+- **Gran Final de ‘Yo Soy 2025′: minuto a minuto de la última gala de Michael Jackson, Green Day y Alejandra Guzmán**: [Link](https://www.infobae.com/peru/2025/12/20/gran-final-de-yo-soy-2025-minuto-a-minuto-de-todos-los-detalles-de-la-ultima-gala-de-michael-jackson-green-day-y-alejandra-guzman-por-latina/)
+- **imitadora de Michael Jackson se SINCERA en la penúltima noche de competencia: “Llevo mucho tiempo lejos de mi familia, escucharlos ha sido recordar todo mi recorrido”**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/imitadora-de-michael-jackson-se-sincera-en-la-penultima-noche-de-competencia-llevo-mucho-tiempo-lejos-de-mi-familia-escucharlos-ha-sido-recordar-todo-mi-recorrido_20251220/)
+- **Gran final de ‘Yo soy’ 2025 en vivo: Imitadores de Michael Jackson, Alejandra Guzmán y Green Day compiten por el título**: [Link](https://larepublica.pe/espectaculos/2025/12/20/final-de-yo-soy-2025-segunda-temporada-en-vivo-horario-canal-en-vivo-y-como-ver-el-ultimo-programa-por-latina-television-1269882)
+
+
+### latina noticias (N/A, 20/12/2025 23:40 Lima)
+
+- **lunes 15 de diciembre**: [Link](https://latinanoticias.pe/noticias/latina-noticias-edicion-mediodia-encuesta-de-hoy-lunes-15-de-diciembre_20251215/)
+- **Fernando Rospigliosi: Se requiere soluciones radicales contra la criminalidad**: [Link](https://comunicaciones.congreso.gob.pe/noticias/fernando-rospigliosi-se-requiere-soluciones-radicales-contra-la-criminalidad/)
+- **¿Quién mató a regidora? Elena Rojas denunciaba corrupción en el municipio de Chicama**: [Link](https://www.atv.pe/noticia/quien-mato-a-regidora-elena-rojas-denunciaba-corrupcion-en-el-municipio-de-chicama/)
+
+
+### latina en vivo (N/A, 20/12/2025 23:40 Lima)
+
+- **Yo Soy EN VIVO 2025: Encuesta del REACT, Sábado 20 de Diciembre**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-en-vivo-2025-encuesta-del-react-viernes-19-de-diciembre-2_20251220/)
+- **Yo Soy EN VIVO 2025: Encuesta del REACT, Viernes 19 de Diciembre**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-en-vivo-2025-encuesta-del-react-viernes-19-de-diciembre_20251219/)
+- **Yo Soy EN VIVO 2025: Encuesta del REACT, Jueves 18 de Diciembre**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-en-vivo-2025-encuesta-del-react-jueves-18-de-diciembre_20251218/)
+
+
 ### final de yo soy (N/A, 20/12/2025 21:10 Lima)
 
 - **Gran Final de ‘Yo Soy 2025′: minuto a minuto de la última gala de Michael Jackson, Green Day y Alejandra Guzmán**: [Link](https://www.infobae.com/peru/2025/12/20/gran-final-de-yo-soy-2025-minuto-a-minuto-de-todos-los-detalles-de-la-ultima-gala-de-michael-jackson-green-day-y-alejandra-guzman-por-latina/)
@@ -961,75 +1031,5 @@ Sin noticias relacionadas disponibles.
 - **SpaceX Tender Offer Pushes Musk’s Net Worth To Record $677 Billion**: [Link](https://www.forbes.com/sites/mattdurot/2025/12/15/elon-musk-just-became-the-first-person-ever-worth-600-billion/)
 - **Elon Musk Is on the Verge of a $1 Trillion Net Worth**: [Link](https://www.investopedia.com/elon-musk-is-on-the-verge-of-a-usd1-trillion-net-worth-spacex-tesla-xai-11870414)
 - **SpaceX Valuation Boosts Musk’s Net Worth to New Heights**: [Link](https://meyka.com/blog/spacex-valuation-boosts-musks-net-worth-to-new-heights-1612/)
-
-
-### ultra peru (N/A, 17/12/2025 11:36 Lima)
-
-- **ULTRA Worldwide confirma su regreso a Perú en 2026**: [Link](https://rpp.pe/musica/conciertos/ultra-worldwide-confirma-su-regreso-a-peru-en-2026-noticia-1668183)
-- **ULTRA Perú regresa con su cuarta edición consecutiva en el país**: [Link](https://www.serperuano.com/2025/12/ultra-peru-regresa-con-su-cuarta-edicion-consecutiva-en-el-pais/)
-- **Ultra Perú 2026: fecha, entradas, precios, artistas, djs, lineup y todo sobre el festival de música electrónica en el Club Cultural Lima**: [Link](https://larepublica.pe/entretenimiento/2025/12/16/ultra-peru-2026-fecha-entradas-precios-artistas-djs-lineup-y-todo-sobre-el-festival-de-musica-electronica-en-el-club-cultural-lima-317872)
-
-
-### uit 2026 (N/A, 17/12/2025 11:36 Lima)
-
-- **Aprueban valor de la UIT para el año 2026 [Decreto Supremo 301-2025-EF]**: [Link](https://lpderecho.pe/valor-uit-2026-decreto-supremo-301-2025-ef/)
-- **UIT 2026: MEF oficializa en S/5.500 la Unidad Impositiva Tributaria para el próximo año, ¿Cuánto afecta las multas y sueldos?**: [Link](https://www.infobae.com/peru/2025/12/17/uit-2026-mef-oficializa-en-s5500-la-unidad-impositiva-tributaria-para-el-proximo-ano-cuanto-afecta-las-multas-y-sueldos/)
-- **UIT sube a S/ 5,500 para el 2026: ¿Afectará próximos retiros de AFP? Sepa cuánto adicional podrá solicitar**: [Link](https://rpp.pe/economia/economia/retiro-afp-como-podria-afectar-aumento-uit-2026-a-5500-soles-a-futuros-desembolsos-y-cuanto-adicional-podras-solicitar-noticia-1668264)
-
-
-### boluarte (N/A, 17/12/2025 07:56 Lima)
-
-- **Poder Judicial admitió a trámite demanda de Dina Boluarte para anular vacancia presidencial en su contra**: [Link](https://rpp.pe/politica/judiciales/poder-judicial-admitio-a-tramite-demanda-de-dina-boluarte-para-anular-vacancia-presidencial-en-su-contra-noticia-1668149)
-- **Dina Boluarte: PJ evaluará en marzo del 2026 demanda contra vacancia por incapacidad moral permanente**: [Link](https://elcomercio.pe/politica/justicia/dina-boluarte-pj-evaluara-en-marzo-del-2026-demanda-contra-vacancia-por-incapacidad-moral-permanente-ultimas-noticia/)
-- **Dina Boluarte: Poder Judicial admite demanda para anular vacancia, ¿qué puede pasar?**: [Link](https://gestion.pe/peru/politica/dina-boluarte-poder-judicial-admite-demanda-para-anular-vacancia-noticia/)
-
-
-### radio exitosa en vivo (N/A, 17/12/2025 07:56 Lima)
-
-- **San Martín de Porres: delincuentes disparan contra cúster de transporte público en la avenida Dominicos**: [Link](https://rpp.pe/lima/policiales/san-martin-de-porres-delincuentes-disparan-contra-custer-de-transporte-publico-en-la-avenida-dominicos-noticia-1668220)
-- **San Martín de Porres: Extorsionadores disparan cúster**: [Link](https://www.americatv.com.pe/noticias/actualidad/extorsionadores-balean-custer-san-martin-porres-n513985)
-- **Bus es atacado por presuntos extorsionadores en SMP: Pasajeros salen ilesos**: [Link](https://www.apnoticias.pe/peru/exitosa-noticias/bus-es-atacado-por-presuntos-extorsionadores-en-smp-pasajeros-salen-ilesos-1477546)
-
-
-### psg vs flamengo pronostico (N/A, 17/12/2025 07:56 Lima)
-
-- **PSG y Flamengo definen al nuevo campeón de la Copa Intercontinental**: [Link](https://www.espn.com.pe/futbol/nota/_/id/16087043/psg-vs-flamengo-final-intercontinental-equipo-fecha-hora-y-tv-en-vivo)
-- **¿Qué es la Copa Intercontinental de la FIFA? Formato, sede y calendario del torneo anual que sustituirá al Mundial de Clubes**: [Link](https://www.ucvradio.pe/mas-actualidad/que-es-la-copa-intercontinental-de-la-fifa-formato-sede-y-calendario-del-torneo-anual-que-sustituira-al-mundial-de-clubes/77648/)
-- **Copa Intercontinental | Luis Enrique llenó de elogios a Flamengo previo a la final: "Sabe jugar partidos importantes"**: [Link](https://rpp.pe/futbol/futbol-mundial/copa-intercontinental-luis-enrique-lleno-de-elogios-a-flamengo-previo-a-la-final-sabe-jugar-partidos-importantes-noticia-1668129)
-
-
-### bn (N/A, 17/12/2025 07:56 Lima)
-
-- **Warner Bros. Says Ellisons ‘Misled’ Shareholders in Takeover Bid**: [Link](https://www.nytimes.com/2025/12/17/business/media/warner-bros-paramount-takeover-netflix.html)
-- **Warner Bros. Discovery recommends investors reject Paramount's hostile takeover bid**: [Link](https://www.nbcnews.com/business/media/warner-bros-discovery-recommends-investors-reject-paramounts-hostile-t-rcna249658)
-- **WBD board tells shareholders to reject Paramount Skydance's takeover offer, saying 'value is inadequate'**: [Link](https://www.cnbc.com/2025/12/17/wbd-board-paramount-skydance-reject-value.html)
-
-
-### hora (N/A, 17/12/2025 03:37 Lima)
-
-- **PSG vs Flamengo: posibles alineaciones, Copa Intercontinental**: [Link](https://espndeportes.espn.com/futbol/nota/_/id/16089888/psg-vs-flamengo-alineaciones-copa-intercontinental-2025-que-debes-saber)
-- **PSG | Luis Enrique, a completar el sextete ante Filipe Luis: "Seguimos en la línea de querer hacer historia"**: [Link](https://espanol.eurosport.com/futbol/fifa-intercontinental-cup/2025/psg-luis-enrique-a-completar-el-sextete-ante-filipe-luis-seguimos-en-la-linea-de-querer-hacer-historia_vid60042351/video.shtml)
-- **Luis Enrique: “Sé de la importancia de este partido, representa mucho para este club”**: [Link](https://ovacion.pe/noticias/futbol-internacional/luis-enrique-se-importancia-este-partido-representa-mucho-este-club)
-
-
-### avatar 3 (N/A, 17/12/2025 03:37 Lima)
-
-- **Avatar: Fire and Ash First Reviews: Familiar, but Still a Spectacle to Behold**: [Link](https://editorial.rottentomatoes.com/article/avatar-fire-and-ash-first-reviews/)
-- **‘Avatar: Fire and Ash’ Review: For the First Time in His Spectacular Career, James Cameron Delivers a Movie That Feels Like Something You’ve Seen Before**: [Link](https://www.indiewire.com/criticism/movies/avatar-fire-and-ash-movie-review-james-cameron-1235167902/)
-- **Avatar Used to Be Revolutionary. Three Movies in, the Franchise Has Lost Its Wonder**: [Link](https://time.com/7341098/avatar-fire-and-ash-review/)
-
-
-### jorge gonzalez (N/A, 17/12/2025 03:37 Lima)
-
-- **Jorge González es ELIMINADO tras una INTENSA noche de COMPETENCIA: “No imaginaba que tanta gente realmente me iba a apoyar”**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/jorge-gonzalez-es-eliminado-tras-una-intensa-noche-de-competencia-no-imaginaba-que-tanta-gente-realmente-me-iba-a-apoyar_20251217/)
-- **Yo Soy EN VIVO 2025: Jorge González y Enrique Bumbury REVIENTAN el set a base de PURO ROCK con “Paramar”**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-en-vivo-2025-jorge-gonzalez-y-enrique-bumbury-revientan-el-set-a-base-de-puro-rock-con-paramar_20251216/)
-- **Yo Soy conciertos 2025: ¡SU MEJOR VERSIÓN HASTA HOY! Jorge González brilló con “El baile de los que sobran”**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-conciertos-2025-su-mejor-version-hasta-hoy-jorge-gonzalez-brillo-con-el-baile-de-los-que-sobran_20251215/)
-
-
-### objeto interestelar 3i atlas cometa (N/A, 17/12/2025 03:37 Lima)
-
-- **El cometa 3I/ATLAS alcanzará su máxima proximidad a la Tierra esta semana**: [Link](https://www.infobae.com/america/ciencia-america/2025/12/16/el-cometa-3iatlas-alcanzara-su-maxima-proximidad-a-la-tierra-esta-semana/)
-- **Qué significa que el Sistema de Alertas de la ONU esté investigando el cometa 3I/Atlas**: [Link](https://www.nationalgeographic.com.es/ciencia/que-significa-que-sistema-alertas-onu-este-investigando-comenta-3iatlas-cara-a-su-aproximacion-19-diciembre_27033)
-- **Cometa 3I/ATLAS: ¿Por qué la NASA y agencias espaciales activaron ejercicios de defensa planetaria ante su acercamiento?**: [Link](https://rpp.pe/ciencia/espacio/cometa-3i-atlas-por-que-nasa-y-agencias-activaron-defensa-planetaria-ante-cercania-del-objeto-interestelar-a-la-tierra-noticia-1668198)
 
 
