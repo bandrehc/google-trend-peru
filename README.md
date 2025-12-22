@@ -1,3 +1,64 @@
+### tyler chase (N/A, 22/12/2025 11:33 Lima)
+
+- **Ex-Nickelodeon Child Star Tylor Chase Spotted Homeless On California Streets**: [Link](https://www.ndtv.com/world-news/ex-nickelodeon-child-star-tylor-chase-spotted-homeless-on-california-streets-9863043)
+- **Nickelodeon ‘Ned’s Declassified’ Star Found Homeless – See Heartbreaking Video**: [Link](https://www.yahoo.com/entertainment/tv/articles/nickelodeon-ned-declassified-star-found-142056972.html)
+- **Riches to rags! Former child actors who once went battled drug addiction, homelessness, and more**: [Link](https://www.wionews.com/photos/riches-to-rags-former-child-actors-who-once-went-battled-drug-addiction-homelessness-and-more-1766399861601)
+
+
+### sharjah fc - al hilal (N/A, 22/12/2025 11:33 Lima)
+
+- **Al-Hilal continues preparations for the ACL Champions League... and International Players to resume training on Monday**: [Link](https://alhilal.com/en/news/al-hilal-continues-preparations-for-the-acl-champions-league-and)
+- **Sharjah FC vs. Al-Hilal - AFC Champions League East - Football**: [Link](https://www.sportsmole.co.uk/football/afc-champions-league/al-sharjah-vs-al-hilal_game_235576.html)
+- **Sudden Absence Disrupts Al Hilal Before Sharjah Match**: [Link](https://www.ysscores.com/en/news/13874869/Sudden-Absence-Disrupts-Al-Hilal-Before-Sharjah-Match)
+
+
+### mali vs zambia (N/A, 22/12/2025 11:33 Lima)
+
+- **Patson Daka’s diving header earns Zambia dramatic late Afcon draw with Mali**: [Link](https://www.theguardian.com/football/live/2025/dec/22/mali-v-zambia-africa-cup-of-nations-live)
+- **Live! Mali vs Zambia at the AFCON 2025 on beIN SPORTS**: [Link](https://www.beinsports.com/en-us/soccer/africa-cup-of-nations/articles/live-mali-vs-zambia-at-the-afcon-2025-on-bein-sports-2025-12-22)
+- **Mali vs Zambia: Group A Meeting Promises Thrills in Casablanca**: [Link](https://www.cafonline.com/afcon2025/news/mali-vs-zambia-group-a-meeting-promises-thrills-in-casablanca/)
+
+
+### radios (N/A, 22/12/2025 11:33 Lima)
+
+- **Israeli government approves controversial closure of Army Radio after 75 years**: [Link](https://www.cnn.com/2025/12/22/middleeast/israeli-army-radio-closure-intl)
+- **Netanyahu government moves to shut down Israel's Army Radio station**: [Link](https://www.reuters.com/business/media-telecom/netanyahu-government-moves-shut-down-israels-army-radio-station-2025-12-22/)
+- **Netanyahu Government Unanimously Votes to Shutter Army Radio by March 1**: [Link](https://www.haaretz.com/israel-news/2025-12-22/ty-article/.premium/netanyahu-government-unanimously-votes-to-shutter-army-radio-by-march-1/0000019b-45df-d41d-adfb-75ff963b0000)
+
+
+### normas legales el peruano (N/A, 22/12/2025 11:33 Lima)
+
+- **Estas son las normas legales más importantes del lunes 22 de diciembre del 2025**: [Link](https://andina.pe/agencia/noticia-estas-son-las-normas-legales-mas-importantes-del-lunes-22-diciembre-del-2025-1056519.aspx)
+- **Estas son las normas legales más importantes del domingo 21 de diciembre del 2025**: [Link](https://andina.pe/agencia/noticia-estas-son-las-normas-legales-mas-importantes-del-domingo-21-diciembre-del-2025-1056448.aspx)
+- **Estas son las normas legales más importantes del sábado 20 de diciembre del 2025**: [Link](https://andina.pe/agencia/noticia-estas-son-las-normas-legales-mas-importantes-del-sabado-20-diciembre-del-2025-1056366.aspx)
+
+
+### mali vs (N/A, 22/12/2025 11:33 Lima)
+
+- **Mali y Zambia empataron en la Copa Africana**: [Link](https://ovacion.pe/noticias/futbol-internacional/mali-zambia-empataron-copa-africana)
+
+
+### inpe (N/A, 22/12/2025 11:33 Lima)
+
+- **🔴🔵 El Ministerio de Justicia y Derechos Humanos (Minjusdh) dispuso el cierre definitivo de estos economatos por incumplimiento normativo, con el fin de restablecer el orden y seguridad penitenciaria. 🌐Más información en: https://www.exitosanoticias.pe/**: [Link](https://www.facebook.com/story.php?story_fbid=1305669848262737&id=100064592023543)
+- **INPE ordena cierre definitivo de 141 comercios en penales**: [Link](https://caretas.pe/politica/inpe-ordena-cierre-definitivo-de-141-comercios-en-penales/)
+- **INPE clausura 141 comercios en penales por seguridad penitenciaria**: [Link](https://diariocorreo.pe/peru/inpe-clausura-141-comercios-en-penales-por-seguridad-penitenciaria-noticia/)
+
+
+### feriados 2025 (N/A, 22/12/2025 11:33 Lima)
+
+- **Último feriado largo del año: quiénes descansan cuatro días**: [Link](https://caretas.pe/nacional/ultimo-feriado-largo-del-ano-quienes-descansan-cuatro-dias/)
+- **¡Atención! El Peruano aclara si el 24 de diciembre será feriado o día no laborable a nivel nacional**: [Link](https://elcomercio.pe/respuestas/que/el-peruano-aclara-si-el-24-de-diciembre-sera-feriado-o-dia-no-laborable-a-nivel-nacional-tdpe-noticia/)
+- **Navidad: el viernes 26 será no laborable, ¿para quiénes aplica?**: [Link](https://andina.pe/agencia/noticia-navidad-viernes-26-sera-no-laborable-para-quienes-aplica-1055080.aspx)
+
+
+### napoli vs bologna (N/A, 22/12/2025 11:33 Lima)
+
+- **How to watch Napoli vs Bologna in the USA: Live Stream and TV for 2025/2026 Supercoppa Italiana**: [Link](https://worldsoccertalk.com/watch-on-us-tv/how-to-watch-napoli-vs-bologna-in-the-usa-live-stream-and-tv-for-2025-2026-supercoppa-italiana/)
+- **Politano: “We’re a solid team and want to play a great final”**: [Link](https://sscnapoli.it/en/politano-siamo-un-gruppo-solido-e-vogliamo-giocare-una-gran-finale/)
+- **Recovery session in Riyadh**: [Link](https://onefootball.com/en/news/recovery-session-in-riyadh-42123266)
+
+
 ### ciro castillo rojo (N/A, 22/12/2025 07:53 Lima)
 
 - **¿Sabía que iban por él? Ciro Castillo abandonó clínica minutos antes de ser detenido**: [Link](https://peru21.pe/politica/ciro-castillo-abandono-clinica-20-minutos-antes-de-ser-detenido/)
@@ -968,68 +1029,5 @@ Sin noticias relacionadas disponibles.
 - **Alianza Lima presentó a D'Alessandro Montenegro como su flamente fichaje para el 2026**: [Link](https://libero.pe/futbol-peruano/alianza-lima/2025/12/18/alianza-lima-presento-dalessandro-montenegro-como-su-flamente-fichaje-2026-1028808)
 - **Fichajes de Alianza Lima 2026: altas, bajas y rumores para la Liga 1 y primera fase de Copa Libertadores**: [Link](https://larepublica.pe/deportes/2025/12/15/fichajes-alianza-lima-2026-altas-bajas-renovaciones-y-rumores-de-contrataciones-de-alianza-para-la-liga-1-y-copa-libertadores-1009095)
 - **Nuevo refuerzo: Alianza Lima anunció la contratación de Cristian Carbajal**: [Link](https://rpp.pe/futbol/descentralizado/alianza-lima-anuncio-la-contratacion-de-cristian-carbajal-liga-1-sport-boys-noticia-1668492)
-
-
-### ldu vs (N/A, 18/12/2025 21:03 Lima)
-
-- **Liga de Quito vs. U. Católica EN VIVO por Teleamazonas: transmisión del partido**: [Link](https://libero.pe/futbol-internacional/2025/12/17/liga-de-quito-vs-universidad-catolica-en-vivo-gratis-final-copa-ecuador-via-teleamazonas-directv-sports-lbev-573308)
-- **Liga de Quito vs. U. Católica en vivo: dónde ver por final de Copa Ecuador**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/liga-de-quito-vs-u-catolica-en-vivo-online-gratis-por-final-de-copa-ecuador-a-que-hora-juegan-canal-que-transmite-y-donde-ver-via-directv-dgo-teleamazonas-futbol-libre-tv-video-noticia/)
-- **¿A qué hora juega Liga de Quito vs. U. Católica HOY y dónde ver EN VIVO?**: [Link](https://libero.pe/futbol-internacional/2025/12/17/hora-juega-liga-de-quito-vs-universidad-catolica-canal-de-transmision-en-vivo-donde-ver-partido-final-copa-ecuador-997951)
-
-
-### greg biffle (N/A, 18/12/2025 21:03 Lima)
-
-- **NASCAR driver Greg Biffle, family believed dead in Statesville plane crash**: [Link](https://www.wsoctv.com/news/local/plane-crash-reported-statesville-airport/NY3I3WYHWJDJPPOPTOD2BG4Z64/)
-- **Former NASCAR driver and 6 others dead after private jet crashes in North Carolina**: [Link](https://www.cnn.com/2025/12/18/us/north-carolina-private-jet-crash)
-- **Multiple dead after plane crash at Iredell County airport: What we know**: [Link](https://www.wbtv.com/2025/12/18/plane-crash-iredell-county-airport-leaves-unknown-number-dead/)
-
-
-### rayo vallecano (N/A, 18/12/2025 21:03 Lima)
-
-- **🚨 Rayo v Drita XIs: Iñigo Pérez shakes up his entire XI!**: [Link](https://sports.yahoo.com/articles/rayo-v-drita-xis-igo-191200180.html)
-- **Drita secures the Conference League play-offs for the first time, despite losing to Vallecano**: [Link](https://www.gazetaexpress.com/en/Drita-secures-the-conference-league-play-offs-for-the-first-time-despite-losing-to-Vallecano/)
-- **Preview: Rayo Vallecano vs Drita - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/rayo-vallecano/europa-conference-league/preview/rayo-vallecano-vs-drita-prediction-team-news-lineups_587929.html)
-
-
-### alianza lima vs inter miami (N/A, 18/12/2025 21:03 Lima)
-
-- **Todo listo: Alianza Lima anunció los precios de las entradas para la Noche Blanquiazul 2026**: [Link](https://rpp.pe/futbol/descentralizado/noche-blanquiazul-2026-conoce-los-precios-de-las-entradas-para-el-partido-alianza-lima-vs-inter-miami-noticia-1668476)
-- **Noche Blanquiazul 2026: Todo sobre el partido de Alianza Lima vs Inter Miami**: [Link](https://blog.joinnus.com/noche-blanquiazul-2026-todo-sobre-el-partido-de-alianza-lima-vs-inter-miami/)
-- **Alianza Lima vs Inter Miami: estos son los precios para ver a Messi en la ‘Noche Blanquiazul’**: [Link](https://latinanoticias.pe/deportes/alianza-lima-vs-inter-miami-estos-son-los-precios-para-ver-a-messi-en-la-noche-blanquiazul_20251218/)
-
-
-### az alkmaar (N/A, 18/12/2025 21:03 Lima)
-
-- **AZ vs Jagiellonia Białystok: UEFA Conference League stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cvg1rnm121lt)
-- **Preview: AZ Alkmaar vs. Jagiellonia Bialystok - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/az/europa-conference-league/preview/az-vs-jagiellonia-prediction-team-news-lineups_587926.html)
-- **AZ Alkmaar vs Jagiellonia Bialystok Prediction and Betting Tips | December 18th 2025**: [Link](https://www.sportskeeda.com/football/az-alkmaar-vs-jagiellonia-bialystok-prediction-betting-tips-december-18th-2025)
-
-
-### lisboa fc (N/A, 18/12/2025 21:03 Lima)
-
-- **Taça de Portugal: Sporting nos ‘quartos’ após afastar Santa Clara no prolongamento**: [Link](https://www.correiodamanhacanada.com/taca-de-portugal-sporting-nos-quartos-apos-afastar-santa-clara-no-prolongamento/)
-- **João Simões assume: «Não estivemos ao melhor nível»**: [Link](https://sapo.pt/artigo/joao-simoes-assume-nao-estivemos-ao-melhor-nivel-69447b7ccd48b804e50ffb55)
-- **Rui Borges: «Anda muita malta doente, com gripes e vírus»**: [Link](https://cnnportugal.iol.pt/videos/rui-borges-anda-muita-malta-doente-com-gripes-e-virus/69447f0e0cf2c7eb2444769d)
-
-
-### fiorentina (N/A, 18/12/2025 21:03 Lima)
-
-- **Vanoli: "Con il club non ho parlato. Restiamo in ritiro: con l'Udinese la partita della vita"**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Fiorentina/19-12-2025/fiorentina-vanoli-restiamo-in-ritiro-con-l-udinese-la-partita-della-vita.shtml)
-- **Fiorentina perde ancora: a Losanna è 1-0, viola ai playoff di Conference**: [Link](https://www.radiolombardia.it/2025/12/19/fiorentina-perde-ancora-a-losanna-e-1-0-viola-ai-playoff-di-conference/)
-- **Pagelle F1, Losanna 1-0 Fiorentina: gli unici eroi sono i tifosi, chi non lotta per la maglia lasci Firenze**: [Link](https://onefootball.com/en/news/pagelle-f1-losanna-1-0-fiorentina-gli-unici-eroi-sono-i-tifosi-chi-non-lotta-per-la-maglia-lasci-firenze-42115939)
-
-
-### liga conferencia (N/A, 18/12/2025 15:26 Lima)
-
-- **Crystal Palace regresa a casa para sellar la clasificación en Conference**: [Link](https://www.espn.com.pe/futbol/nota/_/id/16093109/crystal-palace-vs-kups-fecha-seis-fase-liga-conference-equipo-fecha-hora-y-tv-en-vivo)
-- **El jefe de Crystal Palace, Oliver Glasner, planea rotar el equipo en ausencia de Daichi Kamada**: [Link](https://www.elpueblo.pe/deportes/el-jefe-de-crystal-palace-oliver-glasner-planea-rotar-el-equipo-en-ausencia-de-daichi-kamada/169599/)
-- **Confirmed lineups: Mainz 05 vs. Samsunspor**: [Link](https://ca.sports.yahoo.com/news/confirmed-lineups-mainz-05-vs-185500155.html)
-
-
-### sporting cp (N/A, 18/12/2025 15:26 Lima)
-
-- **Santa Clara vs Sporting CP where to watch: Portuguese Cup Last 16 Live on beIN SPORTS**: [Link](https://www.beinsports.com/en-us/soccer/articles/santa-clara-vs-sporting-cp-where-to-watch-portuguese-cup-last-16-live-on-bein-sports-2025-12-17)
-- **Sporting CP explores youth football partnership in Hengqin**: [Link](https://macaonews.org/life/sports/sporting-cp-youth-football-hengqin/)
-- **Futbolista de Sporting Cristal se iría a Sporting de Lisboa**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/futbolista-sporting-cristal-ficharia-sporting-lisboa-n452005)
 
 
