@@ -1,3 +1,72 @@
+### benfica - famalicão (N/A, 22/12/2025 15:28 Lima)
+
+- **Prestianni titular: confira o onze do Benfica contra o Famalicão**: [Link](https://sapo.pt/artigo/prestianni-titular-confira-o-onze-do-benfica-contra-o-famalicao-69499ff12c7b75270a67791d)
+- **Mourinho surpreende no ataque ao Famalicão**: [Link](https://www.jn.pt/desporto/artigo/mourinho-surpreende-no-ataque-ao-famalicao/18033112)
+- **Leandro Barreiro e Sudakov são trunfos de natal**: [Link](https://www.record.pt/futebol/futebol-nacional/liga-betclic/benfica/detalhe/leandro-barreiro-e-sudakov-sao-trunfos-de-natal?Mulher%20R)
+
+
+### espanyol vs (N/A, 22/12/2025 15:28 Lima)
+
+- **Athletic Bilbao vs. Espanyol prediction, odds, La Liga picks [12/22/2025]**: [Link](https://www.dimers.com/news/athletic-bilbao-vs-espanyol-prediction-la-liga-monday-12-22-2025-ac)
+- **Where to Watch Athletic Bilbao vs. Espanyol: TV Channel, Start Time and Live Stream**: [Link](https://www.bleachernation.com/how-to-watch/2025/12/21/where-to-watch-athletic-bilbao-vs-espanyol-tv-channel-start-time-and-live-stream-2/)
+- **Athletic Club vs Espanyol tonight: Both teams desperate for redemption after shocking performances, but one streak will decide everything**: [Link](https://www.red94.net/news/73280-athletic-club-faces-espanyol-tonight-in-crucial-laliga-clash-at-san-mames-both-t/)
+
+
+### benfica vs (N/A, 22/12/2025 15:28 Lima)
+
+- **How to watch Benfica vs Famalicao in the USA: Live Stream and TV for 2025/2026 Primeira Liga**: [Link](https://worldsoccertalk.com/watch-on-us-tv/how-to-watch-benfica-vs-famalicao-in-the-usa-live-stream-and-tv-for-2025-2026-primeira-liga/)
+- **Benfica vs Famalicao LIVE Score Updates in Portuguese League Match**: [Link](https://www.vavel.com/en-us/soccer/2025/12/22/1245288-benfica-vs-famalicao-live-score-portuguese-league.html)
+- **Preview: Benfica vs Famalicao - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/benfica/preview/benfica-vs-famalicao-prediction-team-news-lineups_588239.html)
+
+
+### porto fc (N/A, 22/12/2025 15:28 Lima)
+
+- **FC Porto beat CDE Camões to reach the Portuguese Cup last 16**: [Link](https://onefootball.com/fr/news/fc-porto-beat-cde-camoes-to-reach-the-portuguese-cup-last-16-42126995)
+- **Alverca vs. FC Porto (22 de Dic., 2025) Resultados en Vivo**: [Link](https://www.espn.com.pe/futbol/partido/_/juegoId/750375)
+- **Bills 23-20 Browns (21 de Dic., 2025) Resultado Final**: [Link](https://www.espn.com.pe/futbol-americano/nfl/juego/_/juegoId/401772802)
+
+
+### athletic - rcd espanyol (N/A, 22/12/2025 15:28 Lima)
+
+- **Apuestas y pronósticos Athletic Club vs Espanyol**: [Link](https://www.marca.com/apuestas-deportivas/predicciones/2025/12/21/apuestas-pronosticos-athletic-club-vs-espanyol.html)
+- **Alineación posible del Athletic ante el Espanyol en la Liga EA Sports**: [Link](https://as.com/futbol/alineacion-posible-del-athletic-ante-el-espanyol-en-la-liga-ea-sports-f202512-n/)
+- **Qué canal pasa Athletic vs Espanyol hoy: dónde ver GRATIS y EN VIVO el duelo de La Liga**: [Link](https://www.365scores.com/es/news/athletic-vs-espanyol-donde-ver-duelo/)
+
+
+### fulham - nottingham forest (N/A, 22/12/2025 15:28 Lima)
+
+- **Fulham v Nottingham Forest: Premier League – live**: [Link](https://www.theguardian.com/football/live/2025/dec/22/fulham-v-nottingham-forest-premier-league-live)
+- **From the Press Box: Silva says everyone on same page ahead of window**: [Link](https://www.fulhamish.co.uk/p/from-the-press-box-silva-says-everyone)
+- **SlipsTips’ Bet Builder Tips: Back player-based combo at Craven Cottage**: [Link](https://mrfixitstips.co.uk/slipstips-bet-builder-tips-back-player-based-combo-at-craven-cottage/)
+
+
+### napoli vs (N/A, 22/12/2025 15:28 Lima)
+
+- **Napoli is winning against Bologna after the first half**: [Link](https://www.gazetaexpress.com/en/Napoli-is-winning-against-Bologna-after-the-first-half./)
+- **Conte: Reaching the Final Is Nice but Winners Are Remembered**: [Link](https://zamin.uz/en/sport/178047-conte-reaching-the-final-is-nice-but-winners-are-remembered.html)
+- **Saudi Arabia Italian Super Cup Soccer**: [Link](https://www.bdtonline.com/sports/national_sports/saudi-arabia-italian-super-cup-soccer/image_0778881c-2007-5bc1-85c3-5836f2102ba8.html)
+
+
+### alverca vs porto (N/A, 22/12/2025 15:28 Lima)
+
+- **Karamoh chamado para Alverca e Tomás Pérez fora dos 22 convocados do FC Porto**: [Link](https://onefootball.com/en/news/karamoh-chamado-para-alverca-e-tomas-perez-fora-dos-22-convocados-do-fc-porto-42130724)
+- **Assistir Benfica e Famalicão online nesta segunda (22/12/2025)**: [Link](https://tvhistoria.com.br/assistir-benfica-e-famalicao-online-nesta-segunda-22-12-2025/)
+- **AO VIVO: Diogo Costa nega golo a Marezi com uma grande defesa (38')**: [Link](https://www.flashscore.pt/noticias/futebol-liga-portugal-betclic-ao-vivo-diogo-costa-nega-golo-a-marezi-com-uma-grande-defesa-38/CbvVScSH/)
+
+
+### al ahli (N/A, 22/12/2025 15:28 Lima)
+
+- **Al Shorta vs Al Ahli Preview, prediction, lineups, betting tips & odds | AFC Champions League Elite 2025-26**: [Link](https://khelnow.com/football/world-football-al-shorta-vs-al-ahli-preview-202512)
+- **Al-Shorta face defending champions Al-Ahli in Asian Elite showdown in Baghdad**: [Link](https://www.iraqinews.com/sports/al-shorta-vs-al-ahli-asian-elite-baghdad/)
+
+
+### porto vs (N/A, 22/12/2025 15:28 Lima)
+
+- **Preview: Alverca vs Porto - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/alverca/preview/alverca-vs-porto-prediction-team-news-lineups_588230.html)
+- **FC Porto to have 4,000 fans in Alverca**: [Link](https://onefootball.com/en/news/fc-porto-to-have-4000-fans-in-alverca-42130388)
+- **Alverca vs Porto LIVE Score Updates in Portuguese League Match**: [Link](https://www.vavel.com/en-us/soccer/2025/12/22/1245294-alverca-x-porto-live-score-portuguese-league.html)
+
+
 ### tyler chase (N/A, 22/12/2025 11:33 Lima)
 
 - **Ex-Nickelodeon Child Star Tylor Chase Spotted Homeless On California Streets**: [Link](https://www.ndtv.com/world-news/ex-nickelodeon-child-star-tylor-chase-spotted-homeless-on-california-streets-9863043)
@@ -960,74 +1029,5 @@ Sin noticias relacionadas disponibles.
 - **Exclusive | Jalen Brunson wasn’t consulted on Knicks’ NBA banner decision — but has no problem with it**: [Link](https://nypost.com/2025/12/18/sports/jalen-brunson-wasnt-consulted-on-knicks-nba-banner-decision/)
 - **The scenario that will have Dwight Howard ’embarrassed’ for Knicks after nixing NBA Cup banner**: [Link](https://sports.yahoo.com/articles/scenario-dwight-howard-embarrassed-knicks-172217656.html)
 - **Knicks Won’t Raise Banner After Winning Emirates NBA Cup Like Lakers & Bucks Did**: [Link](https://lakersnation.com/knicks-wont-raise-banner-after-winning-emirates-nba-cup-like-lakers-bucks-did/)
-
-
-### lakers (N/A, 19/12/2025 03:35 Lima)
-
-- **Lakers Without Deandre Ayton for Matchup Against Jazz**: [Link](https://news.ssbcrack.com/lakers-without-deandre-ayton-for-matchup-against-jazz/)
-- **LeBron James cites ‘Luka magic’ as Dončić has 45-point triple-double**: [Link](https://www.nba.com/news/lebron-james-cites-luka-magic-as-doncic-has-45-point-triple-double)
-- **Lakers' Luka Doncic broke all-time Anthony Davis record**: [Link](https://www.sportingnews.com/ca/nba/los-angeles-lakers/news/lakers-luka-doncic-broke-all-time-anthony-davis-record/cc58b2058357f2340fc2b683)
-
-
-### yo soy en vivo (N/A, 19/12/2025 03:35 Lima)
-
-- **Yo Soy EN VIVO 2025: Encuesta del REACT, Jueves 18 de Diciembre**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-en-vivo-2025-encuesta-del-react-jueves-18-de-diciembre_20251218/)
-- **Yo Soy EN VIVO 2025: Encuesta del REACT, Miércoles 17 de Diciembre**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-en-vivo-2025-encuesta-del-react-miercoles-17-de-diciembre_20251217/)
-- **Yo Soy EN VIVO 2025: Encuesta del REACT, Martes 16 de Diciembre**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-en-vivo-2025-encuesta-del-react-martes-16-de-diciembre_20251216/)
-
-
-### alejandra guzmán (N/A, 18/12/2025 23:38 Lima)
-
-- **Yo Soy EN VIVO 2025: imitadora de Alejandra Guzmán evidencia su FUERTE y poderosa personalidad en “Mala Hierba”**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-en-vivo-2025-imitadora-de-alejandra-guzman-evidencia-su-fuerte-y-poderosa-personalidad-en-mala-hierba_20251218/)
-- **Yo Soy EN VIVO 2025: imitadora de Alejandra Guzmán despierta la emoción a FLOR DE PIEL con “Volverte a Amar”**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-en-vivo-2025-imitadora-de-alejandra-guzman-despierta-la-emocion-a-flor-de-piel-con-volverte-a-amar_20251218/)
-- **¿Cuándo es la final de 'Yo soy' 2025 segunda temporada y cómo votar online por tu participante favorito?**: [Link](https://larepublica.pe/espectaculos/2025/12/18/cuando-es-la-final-de-yo-soy-2025-y-como-votar-por-tu-participante-favorito-desde-la-app-de-latina-1793808)
-
-
-### latina (N/A, 18/12/2025 23:38 Lima)
-
-- **Los 3 países de América Latina que tendrán mayor crecimiento económico en 2026: superarán más de 2 veces a Chile, México y Brasil**: [Link](https://larepublica.pe/mundo/2025/12/15/los-3-paises-de-america-latina-cuyas-economias-crecerian-mas-en-2026-superaran-mas-de-2-veces-a-chile-mexico-y-brasil-405315)
-- **lunes 15 de diciembre**: [Link](https://latinanoticias.pe/noticias/latina-noticias-edicion-mediodia-encuesta-de-hoy-lunes-15-de-diciembre_20251215/)
-- **Cuando la FED mueve sus piezas, América Latina siente el impacto de esta manera**: [Link](https://forbes.pe/red-forbes/2025-12-18/cuando-la-fed-mueve-sus-piezas-america-latina-siente-el-impacto-de-esta-manera/)
-
-
-### yo soy (N/A, 18/12/2025 23:38 Lima)
-
-- **Yo Soy EN VIVO 2025: Encuesta del REACT, Jueves 18 de Diciembre**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-en-vivo-2025-encuesta-del-react-jueves-18-de-diciembre_20251218/)
-- **Yo Soy EN VIVO 2025: Encuesta del REACT, Miércoles 17 de Diciembre**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-en-vivo-2025-encuesta-del-react-miercoles-17-de-diciembre_20251217/)
-- **Yo Soy EN VIVO 2025: Encuesta del REACT, Martes 16 de Diciembre**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-en-vivo-2025-encuesta-del-react-martes-16-de-diciembre_20251216/)
-
-
-### green day (N/A, 18/12/2025 23:38 Lima)
-
-- **Yo Soy EN VIVO 2025: Green Day sirve el ROCK AND ROLL sobre la mesa una vez más en “When i Come Around”**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-en-vivo-2025-green-day-sirve-el-rock-and-roll-sobre-la-mesa-una-vez-mas-en-when-i-come-around_20251218/)
-- **Yo Soy EN VIVO 2025: ¡Green Day se lució con “Welcome to Paradise” y mostró su mejor versión!**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-en-vivo-2025-green-day-se-lucio-con-welcome-to-paradise-y-mostro-su-mejor-version_20251217/)
-- **Yo Soy EN VIVO 2025: imitadores de Green Day provoca una OLA de EMOCIONES con “21 Guns”**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-en-vivo-2025-imitadores-de-green-day-provoca-una-ola-de-emociones-con-21-guns_20251218/)
-
-
-### ldu (N/A, 18/12/2025 23:38 Lima)
-
-- **¿A qué hora juega Liga de Quito vs. U. Católica HOY y dónde ver EN VIVO?**: [Link](https://libero.pe/futbol-internacional/2025/12/17/hora-juega-liga-de-quito-vs-universidad-catolica-canal-de-transmision-en-vivo-donde-ver-partido-final-copa-ecuador-997951)
-- **Liga de Quito vs. U. Católica en vivo: dónde ver por final de Copa Ecuador**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/liga-de-quito-vs-u-catolica-en-vivo-online-gratis-por-final-de-copa-ecuador-a-que-hora-juegan-canal-que-transmite-y-donde-ver-via-directv-dgo-teleamazonas-futbol-libre-tv-video-noticia/)
-
-
-### emily en parís (N/A, 18/12/2025 21:03 Lima)
-
-- **Cada temporada de esta serie de Netflix se estrena con más de 100 millones de horas vistas: ahora llega la quinta entrega**: [Link](https://www.sensacine.com/noticias/series/noticia-1000181560/)
-- **“Emily in Paris”: conoce los títulos de los episodios de la temporada 5**: [Link](https://gestion.pe/mix/tendencias-mix/emily-in-paris-5-conoce-los-titulos-de-los-episodios-de-la-temporada-5-serie-de-netflix-video-nnda-nnlt-noticia/)
-- **Emily in Paris Temporada 5: final explicado de la serie de Netflix | MAG**: [Link](https://elcomercio.pe/mag/fama/que-ver/emily-in-paris-temporada-5-final-explicado-de-la-serie-de-netflix-video-nnda-nnlt-noticia/)
-
-
-### bolivar vs (N/A, 18/12/2025 21:03 Lima)
-
-- **Bolívar vs Blooming: Resultado EN VIVO, minuto a minuto y goles de la Copa Paceña**: [Link](https://www.365scores.com/es/news/bolivar-vs-blooming-resultado-vivo-goles/)
-- **Copa Paceña: ¿cuándo se juegan y dónde ver las semifinales de vuelta?**: [Link](https://www.bolivia.com/futbol/liga-boliviana/cuando-se-juegan-y-donde-ver-las-semifinales-de-vuelta-de-la-copa-pacena-555568)
-- **Vallas y venestas para sacar el agua del estadio de Real Santa Cruz**: [Link](https://diez.bo/futbol/vallas-y-venestas-para-sacar-el-agua-del-estadio-de-real-santa-cruz_1765930467)
-
-
-### cristian carbajal (N/A, 18/12/2025 21:03 Lima)
-
-- **Alianza Lima presentó a D'Alessandro Montenegro como su flamente fichaje para el 2026**: [Link](https://libero.pe/futbol-peruano/alianza-lima/2025/12/18/alianza-lima-presento-dalessandro-montenegro-como-su-flamente-fichaje-2026-1028808)
-- **Fichajes de Alianza Lima 2026: altas, bajas y rumores para la Liga 1 y primera fase de Copa Libertadores**: [Link](https://larepublica.pe/deportes/2025/12/15/fichajes-alianza-lima-2026-altas-bajas-renovaciones-y-rumores-de-contrataciones-de-alianza-para-la-liga-1-y-copa-libertadores-1009095)
-- **Nuevo refuerzo: Alianza Lima anunció la contratación de Cristian Carbajal**: [Link](https://rpp.pe/futbol/descentralizado/alianza-lima-anuncio-la-contratacion-de-cristian-carbajal-liga-1-sport-boys-noticia-1668492)
 
 
