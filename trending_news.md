@@ -1,3 +1,24 @@
+### ciro castillo rojo (N/A, 22/12/2025 07:53 Lima)
+
+- **¿Sabía que iban por él? Ciro Castillo abandonó clínica minutos antes de ser detenido**: [Link](https://peru21.pe/politica/ciro-castillo-abandono-clinica-20-minutos-antes-de-ser-detenido/)
+- **Ciro Castillo-Rojo: ¿Cómo queda configurado el gobierno regional con su ausencia?**: [Link](https://elcomercio.pe/lima/sucesos/ciro-castillo-rojo-como-queda-configurado-el-gobierno-regional-con-su-ausencia-noticia/)
+- **Ciro Castillo: Dictan detención preliminar contra gobernador del Callao por caso Los Socios del Callao**: [Link](https://lpderecho.pe/ciro-castillo-dictan-detencion-preliminar-gobernador-callao-caso-los-socios-del-callao/)
+
+
+### pandora (N/A, 22/12/2025 07:53 Lima)
+
+- **Disney's 'Avatar: Fire and Ash' disappoints with weak $88 million domestic opening**: [Link](https://www.cnbc.com/2025/12/21/disneys-avatar-fire-and-ash-box-office.html)
+- **‘Avatar: Fire and Ash’ Gets Off To a Hot Theatrical Start**: [Link](https://gizmodo.com/avatar-fire-and-ash-gets-off-to-a-hot-theatrical-start-2000702376)
+- **Third ‘Avatar’ Movie Off to Slower Box Office Start Than Predecessor**: [Link](https://www.wsj.com/business/media/third-avatar-movie-off-to-slower-box-office-start-than-predecessor-9b099bd0?gaa_at=eafs&gaa_n=AWEtsqfkTLZx8-wY9_tpEtZJBFK0fbMnhMDBcAB-Iwn4Lu0Kx-vXs_5LcPWn&gaa_ts=694942e9&gaa_sig=JVrmtWVj0qHNFd9bDmWYjobBCwsf8mBAxhGBPREKbh48Ja2Soee7wvGgyFNKjjSwsPHfP4FogSyR-M3-U5C_3w%3D%3D)
+
+
+### al hilal (N/A, 22/12/2025 07:53 Lima)
+
+- **Former Liverpool star Darwin Nunez reveals comeback plan amid recent struggles - 'One day'**: [Link](https://www.liverpoolecho.co.uk/sport/football/football-news/darwin-nunez-liverpool-al-hilal-33094755)
+- **Darwin Nunez hints at transfer return after Liverpool summer exit - 'One day'**: [Link](https://www.liverpool.com/liverpool-fc-news/features/darwin-nunez-transfer-return-liverpool-33095316)
+- **Darwin Nunez vows to make transfer return as ex-Liverpool striker makes 'one day' claim**: [Link](https://www.express.co.uk/sport/football/2148714/darwin-nunez-liverpool-transfer-al-hilal)
+
+
 ### pronabec beca 18 (N/A, 22/12/2025 03:37 Lima)
 
 - **Incertidumbre por Beca 18: aplazan fecha de publicación de los resultados de preseleccionados**: [Link](https://www.infobae.com/peru/2025/12/20/incertidumbre-por-beca-18-aplazan-fecha-de-publicacion-de-los-resultados-de-preseleccionados/)
@@ -1010,26 +1031,5 @@ Sin noticias relacionadas disponibles.
 - **Santa Clara vs Sporting CP where to watch: Portuguese Cup Last 16 Live on beIN SPORTS**: [Link](https://www.beinsports.com/en-us/soccer/articles/santa-clara-vs-sporting-cp-where-to-watch-portuguese-cup-last-16-live-on-bein-sports-2025-12-17)
 - **Sporting CP explores youth football partnership in Hengqin**: [Link](https://macaonews.org/life/sports/sporting-cp-youth-football-hengqin/)
 - **Futbolista de Sporting Cristal se iría a Sporting de Lisboa**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/futbolista-sporting-cristal-ficharia-sporting-lisboa-n452005)
-
-
-### crystal palace (N/A, 18/12/2025 15:26 Lima)
-
-- **'No player will start both games' - Palace to pick two teams**: [Link](https://www.bbc.co.uk/sport/football/articles/c5y9wlkj3w1o)
-- **'Turned my head' - Gary Neville and Ian Wright disagree on Leeds United vs Crystal Palace prediction**: [Link](https://www.yorkshireeveningpost.co.uk/sport/football/leeds-united/leeds-united-crystal-palace-gary-neville-ian-wright-prediction-5447369)
-- **Crystal Palace clash may trigger Marcelo Bielsa and Pablo Hernandez nightmares for Leeds United fans**: [Link](https://www.leedsunited.news/throwbacks/crystal-palace-clash-may-trigger-marcelo-bielsa-and-pablo-hernandez-nightmares-for-leeds-united-fans/)
-
-
-### napoli (N/A, 18/12/2025 15:26 Lima)
-
-- **Loftus-Cheek: «Il #Napoli è una grande squadra con calciatori molto pericolosi, ma abbiamo preparato bene il match» A Sport Mediaset: «Dobbiamo stare calmi con la testa. È difficile a volte in queste occasioni, ma siamo pronti adesso a giocare calcio» https:**: [Link](https://www.facebook.com/ilnapolista/photos/loftus-cheek-il-napoli-%C3%A8-una-grande-squadra-con-calciatori-molto-pericolosi-ma-a/1381893647282620/)
-- **Milan, Allegri: "Milan-Como a Perth? Spero che non sia solo un caso isolato, altrimenti sarebbe un problema"**: [Link](https://www.calciomercato.com/liste/milan-allegri-milan-como-a-perth-spero-che-non-sia-solo-un-caso-isolato-altrimenti-sarebbe-un-problema/bltf27af247a7b78579)
-- **Calcio Live News: tutte le notizie di giornata in diretta**: [Link](https://www.diretta.it/news/calcio-serie-a-calcio-live-news-in-supercoppa-napoli-milan-1-0-grazie-a-neres-in-conference-losanna-fiorentina-0-0/fcAYlFdc/)
-
-
-### crystal palace vs (N/A, 18/12/2025 15:26 Lima)
-
-- **Crystal Palace academy pair set for professional debuts against KuPS**: [Link](https://www.newsshopper.co.uk/sport/25707711.crystal-palace-academy-pair-set-start-kups/)
-- **talkSPORT tips – Best football bets and expert advice for Thursday 18 December**: [Link](https://talksport.com/football/3828635/betting-tips-best-football-bets-thursday-18-december/)
-- **Eddie Nketiah must step up and Crystal Palace must go all out in Conference League**: [Link](https://www.fotmob.com/topnews/24657-eddie-nketiah-must-step-up-crystal-palace-must-go-all-out-conference-league?utm_source=fotmob)
 
 
