@@ -1,3 +1,73 @@
+### la tinka (N/A, 21/12/2025 21:09 Lima)
+
+- **Resultados de La Tinka EN VIVO del domingo 21 de diciembre: números ganadores del Pozo Millonario**: [Link](https://depor.com/peru/la-tinka-hoy-domingo-21-de-diciembre-en-vivo-resultados-numeros-ganadores-del-ultimo-sorteo-pozo-millonario-boliyapa-resultado-si-o-si-intralot-peru-noticia/)
+- **Sorteo de La Tinka EN VIVO hoy, miércoles 17 de diciembre de 2025: ¿cuáles serán los números ganadores del Pozo Millonario y más?**: [Link](https://larepublica.pe/sociedad/2025/12/17/sorteo-de-la-tinka-en-vivo-hoy-miercoles-17-de-diciembre-de-2025-sigue-minuto-a-minuto-los-numeros-ganadores-del-pozo-millonario-boliyapa-y-mas-atmp-659104)
+- **Resultados La Tinka del domingo 14 de diciembre: esta fue la jugada ganadora**: [Link](https://libero.pe/ocio/2025/12/14/resultados-tinka-hoy-domingo-14-de-diciembre-ultimos-numeros-ganadores-del-pozo-millonario-intralot-peru-1211093)
+
+
+### unac resultados (N/A, 21/12/2025 21:09 Lima)
+
+- **Resultados UNAC 2025-II: link oficial con la lista de ingresantes y puntajes del examen de admisión de este 21 de diciembre**: [Link](https://larepublica.pe/sociedad/2025/12/21/resultados-unac-2025ii-link-oficial-de-la-lista-de-ingresantes-y-puntajes-del-examen-de-admision-de-la-universidad-nacional-del-callao-564837)
+- **Resultados del examen de admisión general UNAC 2025- II: ver lista de ingresantes y puntajes finales**: [Link](https://libero.pe/tiempoextra/2025/12/21/resultados-del-examen-de-admision-general-unac-2025-ii-ver-lista-de-ingresantes-puntajes-finales-universidad-nacional-del-callao-1126320)
+- **Resultados del examen de admisión UNAC 2025-II: Puntajes y lista de ingresantes a Otras Modalidades y Centro Pre**: [Link](https://libero.pe/tiempoextra/2025/12/14/resultados-del-examen-de-admision-unac-2025ii-puntajes-lista-de-ingresantes-otras-modalidades-centro-pre-590746)
+
+
+### javier rabanal (N/A, 21/12/2025 21:09 Lima)
+
+- **Universitario lo hizo oficial: Javier Rabanal es anunciado como nuevo entrenador crema**: [Link](https://depor.com/futbol-peruano/descentralizado/javier-rabanal-a-universitario-de-deportes-anuncio-oficial-del-nuevo-entrenador-fichajes-liga-1-2026-noticia/)
+- **“Bienvenido a su nueva casa, profe”: Universitario anuncia a Javier Rabanal como su nuevo técnico**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/universitario-anuncia-a-javier-rabanal-como-su-nuevo-tecnico-liga-1-noticia/)
+- **Javier Rabanal se despidió de Independiente del Valle y está próximo a ser el nuevo DT de Universitario**: [Link](https://rpp.pe/futbol/descentralizado/javier-rabanal-se-despidio-de-independiente-del-valle-y-esta-proximo-a-ser-el-nuevo-dt-de-universitario-noticia-1668786)
+
+
+### andré carrillo (N/A, 21/12/2025 21:09 Lima)
+
+- **André Carrillo se consagró campeón de la Copa de Brasil con Corinthians**: [Link](https://www.espn.com.ar/futbol/brasil/nota/_/id/16110507/andre-carrillo-corinthians-campeon-copa-de-brasil-final-vs-vasco-da-gama)
+- **Vasco vs Corinthians: Resultado EN VIVO, minuto a minuto y goles de la final de Copa Brasil**: [Link](https://www.365scores.com/es/news/vasco-vs-corinthians-resultado-en-vivo/)
+- **El Pumita Rodríguez, sin Copa do Brasil**: [Link](https://espndeportes.espn.com/futbol/brasil/nota/_/id/16110299/pumita-jose-luis-rodriguez-sin-copa-do-brasil-vasco-da-gama-corinthians)
+
+
+### orense - libertad fc (N/A, 21/12/2025 21:09 Lima)
+
+- **Remontada en Machala: Orense derrota a Libertad FC en el cierre de temporada del hexagonal final de la Liga Ecuabet**: [Link](https://www.eluniverso.com/deportes/campeonato-ecuatoriano/orense-y-libertad-fc-igualan-en-machala-en-el-cierre-de-temporada-del-hexagonal-final-de-la-liga-ecuabet-nota/)
+- **EN VIVO | Orense vs. Libertad por el hexagonal final de la LigaPro**: [Link](https://www.ecuavisa.com/deportes/futbol-nacional/envivo-orense-vs-libertad-resultado-fecha-10-hexagonal-final-ligapro-ON10590709)
+- **EN VIVO: Orense vs. Libertad definen su ubicación para la Copa Sudamericana 2026**: [Link](https://www.teleamazonas.com/deportes/futbol/ligapro/vivo-orense-vs-libertad-definen-ubicacion-copa-sudamericana-108220/)
+
+
+### feyenoord - twente (N/A, 21/12/2025 21:09 Lima)
+
+- **FC Twente vol vertrouwen naar De Kuip na ongeslagen reeks van acht duels: ’Gebruikmaken van situtie bij Feyenoord’**: [Link](https://www.telegraaf.nl/sport/voetbal/fc-twente-vol-vertrouwen-naar-de-kuip-na-ongeslagen-reeks-van-acht-duels-gebruikmaken-van-situatie-bij-feyenoord/115723667.html)
+- **Karim El Ahmadi slacht Feyenoord-coach Van Persie met dodelijke woorden in rust**: [Link](https://www.msn.com/nl-nl/nieuws/other/karim-el-ahmadi-slacht-feyenoord-coach-van-persie-met-dodelijke-woorden/ar-AA1SLVWj?ocid=finance-verthp-feeds)
+- **Lammers kritisch op zichzelf en het team: "Bij ons is het extreem"**: [Link](https://www.twentefans.nl/lammers-zelfkritisch-en-op-team-bij-ons-is-het-echt-extreem/)
+
+
+### serie a de ecuador (N/A, 21/12/2025 21:09 Lima)
+
+- **Libertadores 2026: tras el sorteo de las fases previas, así quedó el fixture**: [Link](https://www.espn.com.pe/futbol/copa-libertadores/nota/_/id/16087819/libertadores-2026-sorteo-fases-previas-asi-quedo-el-fixture-copa-equipos)
+- **Cruces definidos para la Fase Preliminar de la CONMEBOL Libertadores 2026**: [Link](https://www.conmebol.com/noticias/cruces-definidos-para-la-fase-preliminar-de-la-conmebol-libertadores-2026-2/)
+- **Se conocieron las fechas para los partidos de los clubes colombianos en Copa Libertadores y Copa Sudamericana**: [Link](https://www.infobae.com/colombia/deportes/2025/12/19/se-conocieron-las-fechas-para-los-partidos-de-los-clubes-colombianos-en-copa-libertadores-y-copa-sudamericana/)
+
+
+### ldu quito - u. católica (N/A, 21/12/2025 21:09 Lima)
+
+- **El último objetivo de Liga de Quito en 2025**: [Link](https://www.espn.com.ar/futbol/ecuador/nota/_/id/16099750/el-ultimo-objetivo-de-liga-de-quito-en-2025)
+- **Hasta el momento, así quedan repartidos los cupos de Ecuador para las Copas Libertadores y Sudamericana**: [Link](https://www.primicias.ec/deportes/cupos-copa-libertadores-sudamericana-ecuador-torneos-internacionales-112245/)
+- **LDU vs Barcelona: posiciones en vivo por la fase de grupos de la Copa Libertadores**: [Link](https://www.365scores.com/es/news/ldu-vs-barcelona-posiciones-libertadores/)
+
+
+### independiente del valle - barcelona sc (N/A, 21/12/2025 21:09 Lima)
+
+- **Barcelona ya tiene rival en la fase previa de la CONMEBOL Libertadores 2026**: [Link](https://www.espn.com.ar/futbol/copa-libertadores/nota/_/id/16110851/copa-libertadores-2026-barcelona-tiene-rival-fase-dos-previa)
+- **Independiente del Valle vs Barcelona SC (1-0): resumen y goles del partido por LigaPro | VIDEO**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/independiente-del-valle-vs-barcelona-sc-en-vivo-gratis-hoy-via-futbol-libre-tv-canal-del-futbol-zapping-horarios-canales-tv-y-donde-ver-partido-por-ligapro-video-noticia/)
+- **La postura del plantel de Barcelona en la previa del duelo frente a Independiente del Valle por Liga Ecuabet**: [Link](https://espndeportes.espn.com/futbol/ecuador/nota/_/id/16102682/la-postura-del-plantel-de-barcelona-en-la-previa-del-duelo-frente-a-independiente-del-valle-por-liga-ecuabet)
+
+
+### america (N/A, 21/12/2025 21:09 Lima)
+
+- **Club América se les adelanta y confirma el fichaje de Max Serrano, portero proveniente de Toluca, ¿quién es?**: [Link](https://bolavip.com/mx/america/club-america-se-les-adelanta-y-confirma-el-fichaje-de-max-serrano-portero-proveniente-de-toluca-quien-es)
+- **¿Quién es Max Serrano? El arquero que deja Toluca para llegar al América**: [Link](https://www.elfutbolero.com.mx/ligamx/quien-es-max-serrano-el-arquero-que-deja-toluca-para-llegar-al-america-20251221-148288.html)
+- **Movimiento silencioso en Coapa: América amarró a un futbolista de Toluca**: [Link](https://www.soyaguila.com.mx/noticias-club-america/movimiento-silencioso-en-coapa-america-amarro-a-un-futbolista-de-toluca-20251222-29871.html)
+
+
 ### vasco da gama - corinthians (N/A, 21/12/2025 15:27 Lima)
 
 - **Vasco x Corinthians: onde assistir ao vivo, horário e escalações**: [Link](https://ge.globo.com/futebol/copa-do-brasil/noticia/2025/12/21/vasco-x-corinthians-onde-assistir-ao-vivo-horario-e-escalacoes.ghtml)
@@ -961,75 +1031,5 @@ Sin noticias relacionadas disponibles.
 - **Fonavi pagará a la Lista 22 mañana jueves 18 de diciembre: ¿Quiénes la integran?**: [Link](https://www.infobae.com/peru/2025/12/16/fonavi-pagara-a-lista-22-este-jueves-18-de-diciembre-quienes-la-integran/)
 - **Aprueban nuevo padrón de beneficiarios del Fonavi**: [Link](https://peru21.pe/economia/aprueban-nuevo-padron-de-beneficiarios-del-fonavi/)
 - **FONAVI: Presentan proyecto de ley para incorporar a exaportantes que no pudieron recuperar sus ahorros**: [Link](https://www.exitosanoticias.pe/actualidad/fonavi-presentan-proyecto-ley-incorporar-exaportantes-pudieron-recuperar-sus-ahorros-n164651)
-
-
-### hora peru (N/A, 18/12/2025 07:54 Lima)
-
-- **Canal TV confirmado que transmitirá el Perú vs Bolivia por último amistoso 2025 en Chincha**: [Link](https://www.infobae.com/peru/deportes/2025/12/17/canal-tv-confirmado-que-transmitira-el-peru-vs-bolivia-por-ultimo-amistoso-2025-en-chincha/)
-- **Gerardo Ameli sobre las críticas por dirigir Perú vs. Bolivia: “Me importa lo que piensen mis jugadores”**: [Link](https://depor.com/futbol-peruano/seleccion-peruana/peru-vs-bolivia-declaraciones-de-gerardo-ameli-sobre-su-designacion-y-criticas-solo-me-importa-lo-que-piensen-mis-jugadores-video-noticia/)
-- **Conferencia de prensa Perú agremiados previo al amistoso contra Bolivia**: [Link](https://elcomercio.pe/deporte-total/seleccion/conferencia-de-prensa-peru-agremiados-en-vivo-hablan-alfonso-barco-pedro-gallese-y-jesus-castillo-sobre-el-duelo-amistoso-contra-bolivia-noticia/)
-
-
-### cometa 3i atlas nasa (N/A, 18/12/2025 03:36 Lima)
-
-- **Cometa 3I/ATLAS: ¿Por qué la NASA activó los protocolos de defensa planetaria ante su cercanía?**: [Link](https://rpp.pe/ciencia/espacio/cometa-3i-atlas-por-que-nasa-y-agencias-activaron-defensa-planetaria-ante-cercania-del-objeto-interestelar-a-la-tierra-noticia-1668198)
-- **Por qué el 19 de diciembre será un día clave para el cometa 3I/ATLAS y qué pasará tras su acercamiento a la Tierra**: [Link](https://elcomercio.pe/mag/respuestas/ciencias/por-que-el-19-de-diciembre-sera-un-dia-clave-para-el-cometa-3iatlas-y-que-pasara-tras-su-acercamiento-a-la-tierra-nnda-nnrt-noticia/)
-- **Faltan pocos días para la llegada del 3I/ATLAS: el cometa interestelar se ha vuelto verde y más brillante mientras se acerca a la Tierra**: [Link](https://larepublica.pe/ciencia/2025/12/16/faltan-pocos-dias-para-la-llegada-del-3iatlas-el-cometa-interestelar-se-ha-vuelto-verde-y-mas-brillante-mientras-se-acerca-a-la-tierra-1264208)
-
-
-### avatar 3 tiene escena post creditos (N/A, 18/12/2025 03:36 Lima)
-
-- **La alegría de Oona Chaplin, la hija de Geraldine y nieta de Charles, en la alfombra roja de Avatar junto a Sigourney Weaver**: [Link](https://www.lanacion.com.ar/espectaculos/cine/la-alegria-de-oona-chaplin-la-hija-de-geraldine-y-nieta-de-charles-en-la-alfombra-roja-de-avatar-nid16122025/)
-- **Crítica de 'Avatar: Fuego y ceniza', la tercera película de la saga de James Cameron: "Un estirado chicle azul con trucos de feria fallidos como el insulso 3D"**: [Link](https://www.fotogramas.es/peliculas-criticas/a69736962/avatar-fuego-y-ceniza-pelicula-james-cameron-critica-opinion/)
-- **'Avatar: Fuego y cenizas': Lima se convirtió en Pandora durante la premier de la nueva película de James Cameron [FOTOS]**: [Link](https://rpp.pe/cine/peru/avatar-fuego-y-cenizas-lima-se-convirtio-en-pandora-durante-la-premier-de-la-nueva-pelicula-de-james-cameron-fotos-noticia-1668296)
-
-
-### blake mitchell (N/A, 18/12/2025 03:36 Lima)
-
-- **OnlyFans Star Lane V Rogers Killed in Motorcycle Accident**: [Link](https://www.tmz.com/2025/12/17/onlyfans-lane-v-rogers-killed-motorcycle-accident/)
-- **10 Photos Of Blake Mitchell: Remembering The OnlyFans…**: [Link](https://www.inkl.com/news/10-photos-of-blake-mitchell-remembering-the-onlyfans-adult-star-who-recently-died-cause-of-death-and-most-notable-moments)
-- **OnlyFans star, 31, dies in tragic motorbike accident with truck**: [Link](https://www.the-sun.com/entertainment/15657655/onlyfans-star-dies-tragic-motorbike-accident/)
-
-
-### kick (N/A, 17/12/2025 23:38 Lima)
-
-- **Learn all about popular Kick streamer Davoo Xeneize**: [Link](https://win.gg/kick-streamer-davoo-xeneize/)
-- **Kick CEO Confirms Inevitable Introduction of Ads on the Platform**: [Link](https://news.ssbcrack.com/kick-ceo-confirms-inevitable-introduction-of-ads-on-the-platform/)
-- **Kick CEO confirms the platform will turn on ads "at some point"**: [Link](https://www.tubefilter.com/2025/12/16/kick-ceo-ed-craven-ads-coming-soon/)
-
-
-### billie eilish (N/A, 17/12/2025 23:38 Lima)
-
-- **Billie Eilish trades baggy clothes for a plunging polka-dot tank top**: [Link](https://pagesix.com/2025/12/16/style/billie-eilish-trades-baggy-clothes-for-a-plunging-polka-dot-tank-top/)
-- **Billie Eilish ditches her baggy sweats for VERY low-cut tank top in sultry new selfie**: [Link](https://www.the-sun.com/entertainment/15651169/billie-eilish-busty-top-selfie-kitchen/)
-- **Milk Bottle, Polka Dots and...: Billie Eilish BREAKS internet after..., treats fans on her birthday with new**: [Link](https://www.bollywoodlife.com/viral-stories/billie-eilish-new-bold-look-with-milk-bottle-and-polka-dot-tank-top-makes-internet-go-crazy-singer-treats-fans-on-her-birthday-3297141/)
-
-
-### medellín - atlético nacional (N/A, 17/12/2025 23:38 Lima)
-
-- **Nacional gritó campeón por primera vez frente a su eterno rival, el Medellín**: [Link](https://www.espn.com.ar/futbol/colombia/nota/_/id/16095936/nacional-grito-campeon-por-primera-vez-frente-a-su-eterno-rival-el-medellin)
-- **Medellín vs. Atlético Nacional EN VIVO GRATIS vía Win Sports por final de Copa Colombia**: [Link](https://libero.pe/futbol-internacional/2025/12/16/medellin-vs-atletico-nacional-en-vivo-gratis-partido-de-vuelta-de-final-copa-colombia-via-win-sports-online-lbev-764176)
-- **Qué canal pasa Medellín vs Atlético Nacional hoy: dónde ver el partido gratis y en vivo de la final Copa BetPlay 2025**: [Link](https://www.365scores.com/es/news/canal-medellin-vs-atletico-nacional-copa/)
-
-
-### green day (N/A, 17/12/2025 23:38 Lima)
-
-- **Classic DVD Review: Green Day | Bullet In A Bible**: [Link](https://tinnitist.com/2025/12/16/classic-dvd-review-green-day-bullet-in-a-bible/)
-- **Yo Soy EN VIVO 2025: Encuesta del REACT, Miércoles 17 de Diciembre**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-en-vivo-2025-encuesta-del-react-miercoles-17-de-diciembre_20251217/)
-- **Yo Soy EN VIVO 2025: Green Day y Jim Morrison ponen LA PIEL DE GALLINA tras una icónica presentación de “Wake Me Up When September Ends”**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-en-vivo-2025-green-day-y-jim-morrison-ponen-la-piel-de-gallina-tras-una-iconica-presentacion-de-wake-me-up-when-september-ends_20251216/)
-
-
-### yo soy (N/A, 17/12/2025 23:38 Lima)
-
-- **Asesinan a concursante de ‘Yo Soy’ en la puerta de su casa en Puente Piedra**: [Link](https://www.infobae.com/peru/2025/12/16/asesinan-a-concursante-de-yo-soy-en-la-puerta-de-su-casa-en-puente-piedra/)
-- **Sicarios matan de catorce disparos a imitador de reguetón que daba show en Puente Piedra**: [Link](https://www.atv.pe/noticia/sicarios-matan-de-catorce-disparos-a-imitador-de-regueton-que-daba-show-en-puente-piedra/)
-- **Ricardo Morán dedica gala de “Yo Soy” a Dominic Sánchez, imitador de Lenox que fue asesinado**: [Link](https://elcomercio.pe/tvmas/famosos/ricardo-moran-dedica-gala-de-yo-soy-a-dominic-sanchez-imitador-de-lenox-que-fue-asesinado-ultimas-noticia/)
-
-
-### alejandra guzmán (N/A, 17/12/2025 23:38 Lima)
-
-- **Yo Soy EN VIVO 2025: Alejandra Guzmán y Juan Gabriel SE BESAN tras una EXPLOSIVA y SENSUAL presentación en “Hacer El Amor Con Otro”**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-en-vivo-2025-alejandra-guzman-y-juan-gabriel-se-besan-tras-una-explosiva-y-sensual-presentacion-en-hacer-el-amor-con-otro_20251216/)
-- **Yo Soy SEMANA FINAL: CÓMO VOTAR GRATIS por tu imitador favorito a través de la APP de Latina**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-final-como-votar-descargar-app-gratis-imitador-favorito_20251215/)
-- **“Yo soy”: ¿Qué participantes clasificaron a la semana final de la temporada?**: [Link](https://elcomercio.pe/tvmas/television/yo-soy-que-participantes-clasificaron-a-la-semana-final-de-la-temporada-latina-ultimas-noticia/)
 
 
