@@ -1,3 +1,59 @@
+### tinka resultados (N/A, 21/12/2025 23:44 Lima)
+
+- **Resultados de La Tinka del domingo 21 de diciembre: números ganadores del Pozo Millonario**: [Link](https://depor.com/peru/la-tinka-hoy-domingo-21-de-diciembre-en-vivo-resultados-numeros-ganadores-del-ultimo-sorteo-pozo-millonario-boliyapa-resultado-si-o-si-intralot-peru-noticia/)
+- **La Tinka: conoce a los ganadores del sorteo del 21 de diciembre**: [Link](https://elcomercio.pe/videos/entretenimiento/la-tinka-conoce-a-los-ganadores-del-sorteo-del-21-de-diciembre-nnav-amtv-video-noticia/)
+- **Resultados La Tinka HOY, domingo 21 de diciembre: últimos números ganadores del Pozo Millonario**: [Link](https://libero.pe/ocio/2025/12/21/resultados-tinka-hoy-domingo-21-de-diciembre-ultimos-numeros-ganadores-del-pozo-millonario-1809080)
+
+
+### adriana tudela (N/A, 21/12/2025 23:44 Lima)
+
+- **Adriana Tudela: ¿Qué implica su ingreso como candidata en la plancha presidencial de Avanza País?**: [Link](https://elcomercio.pe/politica/congreso/avanza-pais-vuelve-a-modificar-su-plancha-presidencial-que-implica-el-ingreso-de-adriana-tudela-tlc-nota-noticia/)
+- **Karol Paredes dice que ingreso de Adriana Tudela en la plancha presidencial de Avanza País fue “un reacomodo a nivel del partido”**: [Link](https://rpp.pe/politica/elecciones/karol-paredes-dice-que-ingreso-de-adriana-tudela-en-la-plancha-presidencial-de-avanza-pais-fue-un-reacomodo-a-nivel-del-partido-noticia-1668690)
+- **Karol Paredes aclara ingreso de Adriana Tudela a plancha presidencial de Avanza País: asegura transparencia y consenso**: [Link](https://www.expreso.com.pe/politica/karol-paredes-aclara-ingreso-de-adriana-tudela-a-plancha-presidencial-de-avanza-pais-asegura-transparencia-y-consenso-congreso-phillip-butters-jose-williams-comite-ejecutivo-politico/1248751/)
+
+
+### guillermo davila (N/A, 21/12/2025 23:44 Lima)
+
+- **Guillermo Dávila en ‘El valor de la verdad’ EN VIVO: Todas la preguntas y respuestas**: [Link](https://trome.com/espectaculos/tv/guillermo-davila-en-el-valor-de-la-verdad-en-vivo-que-preguntas-respondera-y-en-que-plataformas-ver-el-estreno-de-evdlv-vasco-madueno-video-farandula-noticia/)
+- **Guillermo Dávila en ‘El valor de la verdad’: su hijo Vasco, Gisela Valcárcel y las confesiones más íntimas de su vida amorosa**: [Link](https://rpp.pe/famosos/farandula/guillermo-davila-en-el-valor-de-la-verdad-su-hijo-vasco-gisela-valcarcel-y-las-confesiones-mas-intimas-de-su-vida-amorosa-noticia-1668821)
+- **Guillermo Dávila confiesa que no se arrepiente de negar a su hijo Vasco y señala manipulación mediática**: [Link](https://diariocorreo.pe/espectaculos/guillermo-davila-confiesa-que-no-se-arrepiente-de-negar-a-su-hijo-vasco-y-senala-manipulacion-mediatica-noticia/)
+
+
+### wizards - spurs (N/A, 21/12/2025 23:44 Lima)
+
+- **San Antonio Spurs vs Washington Wizards Prediction, Pick, Odds -- 12/21**: [Link](https://www.actionnetwork.com/nba/spurs-vs-wizards-prediction-pick-odds-for-sunday-december-21)
+- **Game Recap: Spurs 124, Wizards 113**: [Link](https://www.nba.com/watch/video/game-recap-spurs-124-wizards-113?plsrc=nba&collection=2025-26-game-recaps)
+- **It’s time for Basketball: Spurs at Washington Wizards**: [Link](https://sports.yahoo.com/articles/time-basketball-spurs-washington-wizards-233000520.html)
+
+
+### timberwolves - bucks (N/A, 21/12/2025 23:44 Lima)
+
+- **Bucks Aim to End Seven-Game Road Losing Streak Against Timberwolves**: [Link](https://news.ssbcrack.com/bucks-aim-to-end-seven-game-road-losing-streak-against-timberwolves/)
+- **Conley and the bench help Timberwolves rally past Milwaukee**: [Link](https://www.twincities.com/2025/12/21/conley-and-the-bench-help-timberwolves-rally-past-milwaukee/)
+- **Timberwolves 103, Bucks 100: Unc Still Got It**: [Link](https://www.canishoopus.com/timberwolves-scores-results/63254/timberwolves-vs-bucks-game-recap-final-score)
+
+
+### ciro castillo (N/A, 21/12/2025 23:44 Lima)
+
+- **Ciro Castillo fugó desde clínica antes del operativo**: [Link](https://www.americatv.com.pe/noticias/actualidad/ciro-castillo-fugo-desde-clinica-antes-operativo-su-contra-n514123)
+- **¡El colmo! Ciro Castillo y Ulises Villegas dan entrevistas pese a estar prófugos**: [Link](https://www.atv.pe/noticia/el-colmo-ciro-castillo-y-ulises-villegas-dan-entrevistas-pese-a-estar-profugos/)
+- **Ciro Castillo se defiende desde la clandestinidad**: [Link](https://caretas.pe/home_web/home_principal_secundario/ciro-castillo-se-defiende-desde-la-clandestinidad/)
+
+
+### avatar 1 (N/A, 21/12/2025 23:44 Lima)
+
+- **‘Avatar’ Sequel Is Neither Fire Nor Ash at North American Box Office**: [Link](https://www.nytimes.com/2025/12/21/business/avatar-fire-and-ash-opening-weekend.html)
+- **‘Avatar 3’ Tops China Box Office in Another Win for Disney**: [Link](https://www.bloomberg.com/news/articles/2025-12-21/-avatar-3-tops-china-box-office-in-another-win-for-disney)
+- **Review: Three Movies in, Avatar Has Lost Its Wonder**: [Link](https://time.com/7341098/avatar-fire-and-ash-review/)
+
+
+### hawks - bulls (N/A, 21/12/2025 23:44 Lima)
+
+- **Two Aussies, one classic and two almost triple-doubles**: [Link](https://www.basketball.com.au/news/josh-giddey-dyson-daniels-aussie-almost-triple-double-fest-bulls-hawks)
+- **Bulls edge Hawks 152-150 in NBA’s highest-scoring game this season**: [Link](https://sports.yahoo.com/articles/bulls-edge-hawks-152-150-030351115.html)
+- **Jalen Johnson sounds off on the Atlanta Hawks' "embarassing" loss to the Chicago Bulls**: [Link](https://www.sportingnews.com/us/nba/atlanta-hawks/news/jalen-johnson-sounds-atlanta-hawks-embarassing-loss-bulls/9400928c1031cf7de29eb398)
+
+
 ### la tinka (N/A, 21/12/2025 21:09 Lima)
 
 - **Resultados de La Tinka EN VIVO del domingo 21 de diciembre: números ganadores del Pozo Millonario**: [Link](https://depor.com/peru/la-tinka-hoy-domingo-21-de-diciembre-en-vivo-resultados-numeros-ganadores-del-ultimo-sorteo-pozo-millonario-boliyapa-resultado-si-o-si-intralot-peru-noticia/)
@@ -975,61 +1031,5 @@ Sin noticias relacionadas disponibles.
 - **How to watch today's Ourense vs Athletic Bilbao Copa del Rey game: Live stream, TV channel, and start time**: [Link](https://www.goal.com/en-sa/news/live-stream-online-tv-where-to-watch-ourense-v-athletic-bilbao/blt72c940bcecbaf4e8)
 - **Preview: Ourense CF vs Athletic Bilbao - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/ourense-cf/copa-del-rey/preview/ourense-cf-vs-athletic-bilbao-prediction-team-news-lineups_587928.html)
 - **Athletic Bilbao set for Copa del Rey clash with giant-killers Ourense CF**: [Link](https://news.ssbcrack.com/athletic-bilbao-set-for-copa-del-rey-clash-with-giant-killers-ourense-cf/)
-
-
-### getafe (N/A, 18/12/2025 15:26 Lima)
-
-- **Burgos 3-1 Getafe: resumen, goles y resultado**: [Link](https://as.com/futbol/copa_del_rey/burgos-getafe-en-directo-copa-del-rey-hoy-en-vivo-f202512-d/)
-- **Murcia - Betis de Copa del Rey: horario y dónde ver por TV**: [Link](https://www.sportaragon.com/articulo/futbol-aragon/murcia-betis-copa-rey-horario-donde-ver-tv/20251218104431143774.html)
-- **Ramis da el 'sí' al método de José Bordalás**: [Link](https://www.estadiodeportivo.com/futbol/burgos/ramis-metodo-jose-bordalas-20251217-524004.html)
-
-
-### marruecos vs (N/A, 18/12/2025 11:37 Lima)
-
-- **Watch Live! Jordan vs Morocco Final in the FIFA Arab Cup on beIN SPORTS**: [Link](https://www.beinsports.com/en-us/soccer/fifa-arab-cup/articles/watch-live-jordan-vs-morocco-final-in-the-fifa-arab-cup-on-bein-sports-2025-12-18)
-- **Amin Zahzouh: Focus is the Key to Crowning the Moroccan Reserve Team with the Arab Cup Title**: [Link](https://www.ysscores.com/en/news/13873651/Amin-Zahzouh:-Focus-is-the-Key-to-Crowning-the-Moroccan-Reserve-Team-with-the-Arab-Cup-Title)
-- **Ayed: We're Capable Of Winning Title**: [Link](https://menafn.com/1110489916/Ayed-Were-Capable-Of-Winning-Title)
-
-
-### 2 de mayo (N/A, 18/12/2025 11:37 Lima)
-
-- **Sorteo de Copa Libertadores: minuto a minuto y rivales de Alianza Lima y Sporting Cristal**: [Link](https://depor.com/futbol-peruano/copa-libertadores/sorteo-de-copa-libertadores-2026-en-vivo-hoy-minuto-a-minuto-gratis-espn-futbol-libre-tv-directv-dsports-disney-plus-tnt-sports-y-partidos-con-rivales-de-alianza-lima-y-sporting-cristal-noticia/)
-- **Alianza Lima enfrentará a 2 de mayo de Paraguay por la fase previa de la Copa Libertadores**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/alianza-lima-enfrentara-a-2-de-mayo-de-paraguay-por-la-fase-previa-de-la-copa-libertadores-noticia/)
-- **Rival de Sporting Cristal en Copa Libertadores 2026: fechas de los partidos por la segunda fase del torneo**: [Link](https://www.infobae.com/peru/deportes/2025/12/18/rival-de-sporting-cristal-en-copa-libertadores-2026-fechas-de-los-partidos-por-la-segunda-fase-del-torneo/)
-
-
-### napoli vs milan (N/A, 18/12/2025 11:37 Lima)
-
-- **Allegri: ‘Milan need new energy, Gimenez advised to have surgery, we’ll see about transfers’**: [Link](https://football-italia.net/allegri-milan-need-energy-gimenez-surgery/)
-- **Italian Super Cup: Which channel and what time to watch Napoli vs AC Milan?**: [Link](https://foot-africa.com/en/news/italian-super-cup-which-channel-and-what-time-to-watch-napoli-vs-ac-milan-1006712/)
-- **Supercoppa Italiana: Extra time or straight to penalties with a draw?**: [Link](https://www.yardbarker.com/soccer/articles/supercoppa_italiana_extra_time_or_straight_to_penalties_with_a_draw/s1_17344_43220488)
-
-
-### sorteo copa libertadores 2026 (N/A, 18/12/2025 11:37 Lima)
-
-- **Sorteo de la Copa Libertadores EN VIVO HOY: Alianza Lima y Sporting Cristal conocerán a sus rivales en la fase previa del torneo**: [Link](https://www.infobae.com/peru/deportes/2025/12/18/sorteo-copa-libertadores-2026-en-vivo-hoy-alianza-lima-sporting-cristal-rivales-fase-previa-fechas-partidos/)
-- **ESPN EN VIVO, Sorteo Fase Previa Copa Libertadores con Alianza Lima y Sporting Cristal: canales de TV**: [Link](https://depor.com/futbol-peruano/copa-libertadores/espn-en-vivo-sorteo-fase-previa-copa-libertadores-2026-en-directo-gratis-canales-para-ver-futbol-libre-tv-disney-plus-directv-y-conocer-rivales-de-alianza-lima-y-sporting-cristal-video-noticia/)
-- **VER ESPN EN VIVO, Sorteo de Copa Libertadores hoy vía Disney Plus**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/espn-en-vivo-sorteo-de-copa-libertadores-hoy-via-disney-plus-youtube-con-alianza-lima-y-sporting-cristal-video-noticia/)
-
-
-### villancicos navideños (N/A, 18/12/2025 11:37 Lima)
-
-- **El Centro Cívico será sede de la víspera de Navidad con un encuentro de villancicos**: [Link](https://sisanjuan.gob.ar/23-gobierno/2025-12-17/65500-el-centro-civico-sera-sede-de-la-vispera-de-navidad-con-un-encuentro-de-villancicos)
-- **Vísperas de Navidad: realizarán un concierto coral en el Centro Cívico**: [Link](https://www.diariohuarpe.com/nota/visperas-de-navidad-coros-y-musica-en-vivo-este-lunes-en-el-centro-civico-2025121717150)
-- **El Centro Cívico se viste de fiesta con un encuentro de villancicos para toda la comunidad**: [Link](https://www.delsurdiario.com/73671-el-centro-civico-se-viste-de-fiesta-con-un-encuentro-de-villancicos-para-toda-la-comunidad)
-
-
-### supercopa de italia (N/A, 18/12/2025 11:37 Lima)
-
-- **Apuestas y Pronóstico del Napoli vs Milan 18/12/25**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/2025/diciembre/pronostico-napoli-vs-milan-18-12-25)
-- **Napoli vs. Milan en vivo, Supercopa de Italia: a qué hora juegan y en qué canal ver transmisión**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/mirar-napoli-vs-milan-en-vivo-hoy-gratis-via-directv-dgo-futbol-libre-tv-a-que-hora-juegan-canal-que-transmite-y-donde-ver-por-supercopa-de-italia-video-noticia/)
-- **Duelo Conte-Allegri por alcanzar la final de la Supercoppa**: [Link](https://www.mundodeportivo.com/futbol/serie-a/20251218/1002588614/duelo-conte-allegri-alcanzar-final-supercoppa.html)
-
-
-### fonavi diciembre 2025 (N/A, 18/12/2025 07:54 Lima)
-
-- **Fonavi pagará a la Lista 22 mañana jueves 18 de diciembre: ¿Quiénes la integran?**: [Link](https://www.infobae.com/peru/2025/12/16/fonavi-pagara-a-lista-22-este-jueves-18-de-diciembre-quienes-la-integran/)
-- **Aprueban nuevo padrón de beneficiarios del Fonavi**: [Link](https://peru21.pe/economia/aprueban-nuevo-padron-de-beneficiarios-del-fonavi/)
-- **FONAVI: Presentan proyecto de ley para incorporar a exaportantes que no pudieron recuperar sus ahorros**: [Link](https://www.exitosanoticias.pe/actualidad/fonavi-presentan-proyecto-ley-incorporar-exaportantes-pudieron-recuperar-sus-ahorros-n164651)
 
 
