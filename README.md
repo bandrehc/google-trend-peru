@@ -1,3 +1,31 @@
+### pronabec beca 18 (N/A, 22/12/2025 03:37 Lima)
+
+- **Incertidumbre por Beca 18: aplazan fecha de publicación de los resultados de preseleccionados**: [Link](https://www.infobae.com/peru/2025/12/20/incertidumbre-por-beca-18-aplazan-fecha-de-publicacion-de-los-resultados-de-preseleccionados/)
+- **Crisis en Pronabec: MEF descarta ir a comisión del Congreso para abordar soluciones**: [Link](https://gestion.pe/peru/politica/crisis-en-pronabec-mef-descarta-ir-a-comision-del-congreso-para-abordar-soluciones-noticia/)
+- **Congresista Segundo Montalvo cita a Ministros de Economía y Educación para este lunes por la Crisis de Beca 18**: [Link](https://comunicaciones.congreso.gob.pe/damos-cuenta/congresista-segundo-montalvo-cita-a-ministros-de-economia-y-educacion-para-este-lunes-por-la-crisis-de-beca-18/)
+
+
+### catherine fulop (N/A, 22/12/2025 03:37 Lima)
+
+- **Catherine Fulop reveló cuándo nace el bebé de Oriana Sabatini y Dybala**: [Link](https://es-us.vida-estilo.yahoo.com/catherine-fulop-revel%C3%B3-cu%C3%A1ndo-nace-191705147.html)
+- **La contundente advertencia de Oriana Sabatini a Catherine Fulop antes de su participación en Otro día perdido**: [Link](https://www.eltrecetv.com.ar/otro-dia-perdido/2025/12/19/la-contundente-advertencia-de-oriana-sabatini-a-catherine-fulop-antes-de-su-participacion-en-otro-dia-perdido/)
+- **Catherine Fulop reveló cuándo nacerá su primera nieta y ya planea el viaje a Europa para acompañar a Oriana Sabatini**: [Link](https://www.revistagente.com/entretenimiento/catherine-fulop-revelo-cuando-nacera-su-primera-nieta-y-ya-planea-el-viaje-a-europa-para-acompanar-a-oriana-sabatini/)
+
+
+### kings - rockets (N/A, 22/12/2025 03:37 Lima)
+
+- **Russell Westbrook’s Clutch Three-Pointer Stuns Fans and Shifts Momentum in 2025 NBA Match**: [Link](https://azat.tv/en/russell-westbrook-clutch-three-pointer-2025-nba/)
+- **NBA results and standings: Wembanyama posts double-double, Schroder hits game-winner**: [Link](https://www.eurohoops.net/en/nba-news/1910461/victor-wembanyama-alperen-sengun-nba-european-recap/)
+- **DeMar DeRozan Reflects Sacramento Kings Hectic 125-124 Overtime Win Over The Houston Rockets**: [Link](https://sactownsports.com/watch/demar-derozan-reflects-sacramento-kings-hectic-125-124-overtime-win-over-the-houston-rockets/019b44ab-4268-8008-f7de-6a112a960a88)
+
+
+### yuca (N/A, 22/12/2025 03:37 Lima)
+
+- **El emotivo mensaje de Jorge Benavides para Enrique Espejo, ‘Yuca’: “Si existen los milagros, puedas regresar a nuestro lado”**: [Link](https://www.infobae.com/peru/2025/12/22/el-emotivo-mensaje-de-jorge-benavides-para-enrique-espejo-yuca-si-existen-los-milagros-puedas-regresar-a-nuestro-lado/)
+- **Jorge Benavides reveló el delicado estado de salud del comediante 'Yuca': "Ya no nos escucha"**: [Link](https://libero.pe/ocio/famosos/2025/12/21/jorge-benavides-revelo-delicado-estado-de-salud-del-comediante-yuca-nos-escucha-340914)
+- **JB revela que Enrique Espejo 'Yuca' está muy delicado de salud: "Te extrañamos, ojalá te recuperes"**: [Link](https://lakaribena.com.pe/espectaculos/jb-revela-enrique-espejo-yuca-esta-muy-delicado-salud-te-extranamos-ojala-te-recuperes-n29979)
+
+
 ### tinka resultados (N/A, 21/12/2025 23:44 Lima)
 
 - **Resultados de La Tinka del domingo 21 de diciembre: números ganadores del Pozo Millonario**: [Link](https://depor.com/peru/la-tinka-hoy-domingo-21-de-diciembre-en-vivo-resultados-numeros-ganadores-del-ultimo-sorteo-pozo-millonario-boliyapa-resultado-si-o-si-intralot-peru-noticia/)
@@ -1003,33 +1031,5 @@ Sin noticias relacionadas disponibles.
 - **Crystal Palace academy pair set for professional debuts against KuPS**: [Link](https://www.newsshopper.co.uk/sport/25707711.crystal-palace-academy-pair-set-start-kups/)
 - **talkSPORT tips – Best football bets and expert advice for Thursday 18 December**: [Link](https://talksport.com/football/3828635/betting-tips-best-football-bets-thursday-18-december/)
 - **Eddie Nketiah must step up and Crystal Palace must go all out in Conference League**: [Link](https://www.fotmob.com/topnews/24657-eddie-nketiah-must-step-up-crystal-palace-must-go-all-out-conference-league?utm_source=fotmob)
-
-
-### sporting lisboa (N/A, 18/12/2025 15:26 Lima)
-
-- **Sporting: jogadores oferecem prendas a jovens da formação**: [Link](https://www.abola.pt/noticias/sporting-jogadores-oferecem-prendas-a-jovens-da-formacao-2025121817223395973)
-- **Sporting: jogadores oferecem prendas a jovens da formação**: [Link](https://sapo.pt/artigo/sporting-jogadores-oferecem-prendas-a-jovens-da-formacao-69443ba4cb2ba1f28f68193b)
-- **VÍDEO: momento de inspiração de Lucas Soares 'trama' o Sporting**: [Link](https://www.abola.pt/noticias/video-momento-de-inspiracao-de-lucas-soares-trama-o-sporting-2025121819224349990)
-
-
-### athletic bilbao (N/A, 18/12/2025 15:26 Lima)
-
-- **How to watch today's Ourense vs Athletic Bilbao Copa del Rey game: Live stream, TV channel, and start time**: [Link](https://www.goal.com/en-sa/news/live-stream-online-tv-where-to-watch-ourense-v-athletic-bilbao/blt72c940bcecbaf4e8)
-- **Preview: Ourense CF vs Athletic Bilbao - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/ourense-cf/copa-del-rey/preview/ourense-cf-vs-athletic-bilbao-prediction-team-news-lineups_587928.html)
-- **Athletic Bilbao set for Copa del Rey clash with giant-killers Ourense CF**: [Link](https://news.ssbcrack.com/athletic-bilbao-set-for-copa-del-rey-clash-with-giant-killers-ourense-cf/)
-
-
-### portugal vs (N/A, 18/12/2025 15:26 Lima)
-
-- **Buy your tickets for Portugal vs FIFA Play Off 1 at the 2026 World Cup at the best price with Tickets MARCA**: [Link](https://www.marca.com/en/world-cup/2025/12/16/69409d8146163f8e738b45d7.html)
-- **Ronaldo’s dream and Portugal’s chance to better their best**: [Link](https://revsportz.in/ronaldos-dream-and-portugals-chance-to-better-their-best/)
-- **World Cup 2026 ticket resale prices for Portugal, Argentina rise nearly 300 per cent after draw - The Athletic**: [Link](https://www.nytimes.com/athletic/6870859/2025/12/08/world-cup-2026-tickets-resale-price/)
-
-
-### bilbao vs (N/A, 18/12/2025 15:26 Lima)
-
-- **How to watch today's Ourense vs Athletic Bilbao Copa del Rey game: Live stream, TV channel, and start time**: [Link](https://www.goal.com/en-sa/news/live-stream-online-tv-where-to-watch-ourense-v-athletic-bilbao/blt72c940bcecbaf4e8)
-- **Preview: Ourense CF vs Athletic Bilbao - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/ourense-cf/copa-del-rey/preview/ourense-cf-vs-athletic-bilbao-prediction-team-news-lineups_587928.html)
-- **Athletic Bilbao set for Copa del Rey clash with giant-killers Ourense CF**: [Link](https://news.ssbcrack.com/athletic-bilbao-set-for-copa-del-rey-clash-with-giant-killers-ourense-cf/)
 
 
