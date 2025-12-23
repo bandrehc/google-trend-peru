@@ -1,3 +1,73 @@
+### weather tomorrow (N/A, 22/12/2025 21:04 Lima)
+
+- **Light snow expected to hamper travel Tuesday: How many inches might you get?**: [Link](https://www.nbcnewyork.com/weather/weather-stories/nyc-weather-forecast-snow-white-christmas-travel-delays/6434154/)
+- **Tracking the snow in NY, NJ: Timeline, totals and more**: [Link](https://pix11.com/news/local-news/tracking-the-snow-in-ny-nj-timeline-totals-and-more/)
+- **Wintry mix could mean messy Tuesday commute on Long Island**: [Link](https://www.newsday.com/news/weather/weather-forecast-rain-snow-jzoqjo1w)
+
+
+### celtics - pacers (N/A, 22/12/2025 21:04 Lima)
+
+- **How to watch Boston Celtics free stream today**: [Link](https://www.masslive.com/tv/2025/12/how-to-watch-boston-celtics-free-stream-today.html)
+- **WATCH: Celtics clash with Pascal Siakam, Pacers at TD Garden**: [Link](https://sports.yahoo.com/articles/watch-celtics-clash-pascal-siakam-102411085.html)
+- **Indiana takes on Boston, aims to end 4-game skid**: [Link](https://spectrumlocalnews.com/me/maine/sports/2025/12/22/indiana-takes-on-boston--aims-to-end-4-game-skid)
+
+
+### cavaliers - hornets (N/A, 22/12/2025 21:04 Lima)
+
+- **BetMGM Bonus Code COVERS: Unlock up to $1,500 in Bonus Bets for Hornets vs. Cavaliers**: [Link](https://www.covers.com/daily-promos/betmgm-bonus-code-nba-hornets-cavs-12-22-2025)
+- **Cavaliers vs. Hornets odds, prediction, line, time: 2025 NBA picks for December 22 from proven model**: [Link](https://www.cbssports.com/nba/news/cavaliers-hornets-odds-prediction-line-time-2025-nba-picks-best-bets-december-22/)
+- **Fanatics Sportsbook promo code NYPOST: Get up to $2,000 in FanCash for Hornets vs. Cavaliers**: [Link](https://nypost.com/2025/12/22/betting/fanatics-sportsbook-promo-code-nypost-get-up-to-2000-in-fancash-for-hornets-vs-cavaliers/)
+
+
+### nigeria vs (N/A, 22/12/2025 21:04 Lima)
+
+- **AFCON 2025: Nigeria vs Tanzania – team news, start time and lineups**: [Link](https://www.aljazeera.com/sports/2025/12/22/afcon-2025-nigeria-vs-tanzania-team-news-start-time-lineups-osimhen-lookman)
+- **Nigeria's Chelle focused on AFCON amid sack talk**: [Link](https://www.espn.com/soccer/story/_/id/47391182/nigeria-coach-eric-chelle-focused-afcon-amid-sack-talk)
+- **Eric Chelle's future on the line as Nigeria being AFCON campaign against Tanzania**: [Link](https://www.espn.co.uk/espn/story/_/id/47387532/eric-chelle-future-line-nigeria-being-afcon-campaign-tanzania)
+
+
+### cain fara (N/A, 22/12/2025 21:04 Lima)
+
+- **Lo confirmó su exclub: Universitario cerca de anunciar central del ascenso argentino**: [Link](https://depor.com/futbol-peruano/descentralizado/universitario-cain-fara-atlanta-anuncia-salida-y-llegada-como-fichaje-de-liga-1-2026-quien-es-y-de-que-jugara-en-equipo-de-javier-rabanal-noticia/)
+- **Defensor de Atlético Atlanta jugará en Universitario**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/atletico-atlanta-confirmo-que-defensor-jugara-universitario-cain-fara-n452073)
+- **Se refuerza: Universitario llegó a un acuerdo con el argentino Caín Fara**: [Link](https://rpp.pe/futbol/descentralizado/universitario-llego-a-un-acuerdo-con-el-defensa-argentino-cain-fara-fichajes-2026-noticia-1668924)
+
+
+### senegal vs (N/A, 22/12/2025 21:04 Lima)
+
+- **Senegal vs Botswana: Teranga Lions open AFCON 2025 campaign against determined Zebras**: [Link](https://www.cafonline.com/afcon2025/news/senegal-vs-botswana-teranga-lions-open-afcon-2025-campaign-against-determined-zebras/)
+- **Mane v Mbemba: An AFCON cameo to relish in Morocco**: [Link](https://supersport.com/football/africa-cup-of-nations/news/fe0a34c1-d017-479f-a246-1ce2030f1aba/mane-v-mbemba-an-afcon-cameo-to-relish-in-morocco)
+- **AFCON 2025: Senegal, DR Congo... the likely group D standings**: [Link](https://foot-africa.com/en/news/can-2025-first-second-the-likely-standings-in-group-d-1011140/)
+
+
+### bolivar vs (N/A, 22/12/2025 21:04 Lima)
+
+- **Transmisión EN VIVO de Bolívar vs Nacional Potosí: cómo mirar el partido por TV o streaming**: [Link](https://www.365scores.com/es/news/transmision-bolivar-vs-nacional-potosi/)
+- **Nacional Potosí goleó a Bolívar y se proclamó campeón de la Copa Paceña 2025: jugará la Copa Libertadores**: [Link](https://larepublica.pe/deportes/2025/12/22/bolivar-vs-nacional-potosi-en-vivo-final-copa-pacena-2025-2015860)
+- **Leo Egüez lo predijo: “Vamos a salir campeón”**: [Link](https://diez.bo/futbol/leo-eguez-lo-predijo-vamos-a-salir-campeon_1766453310)
+
+
+### vince zampella (N/A, 22/12/2025 21:04 Lima)
+
+- **Vince Zampella, video game developer behind ‘Call of Duty,' killed in Ferrari crash**: [Link](https://www.nbclosangeles.com/news/local/video-game-developer-vince-zampella-crash-call-of-duty/3819576/)
+- **Vince Zampella, Battlefield Boss And Call Of Duty Co-Creator, Killed In Car Crash**: [Link](https://kotaku.com/report-vince-zampella-battlefield-boss-and-call-of-duty-co-creator-killed-in-car-crash-2000655216)
+- **Vince Zampella, co-creator of Call of Duty video game series, dies aged 55**: [Link](https://www.theguardian.com/us-news/2025/dec/22/vince-zampella-co-creator-of-call-of-duty-video-game-series-dies-aged-55)
+
+
+### athletic (N/A, 22/12/2025 21:04 Lima)
+
+- **Georgia gives AD Josh Brooks another contract extension, boost in pay**: [Link](https://sports.yahoo.com/articles/georgia-gives-ad-josh-brooks-215051427.html)
+- **Georgia rewards athletic director Josh Brooks with raise and contract extension through 2031**: [Link](https://www.msn.com/en-us/sports/other/georgia-rewards-athletic-director-josh-brooks-with-raise-and-contract-extension-through-2031/ar-AA1SR9Fk)
+- **Georgia gives AD Josh Brooks new contract extension with raise**: [Link](https://www.saturdaydownsouth.com/news/college-football/georgia-gives-ad-josh-brooks-new-contract-extension-with-raise/)
+
+
+### atletico bilbao (N/A, 22/12/2025 21:04 Lima)
+
+- **Espanyol ride the Athletic Club storm to enter Champions League conversation**: [Link](https://www.football-espana.net/2025/12/22/athletic-club-1-2-espanyol)
+- **Predicted Lineups and Player News for Athletic Bilbao vs Espanyol 22/12/25 - La Liga News**: [Link](https://footballpredictions.net/predicted-lineups-athletic-bilbao-v-espanyol-22-12-2025)
+- **🚨 Confirmed XIs: Espanyol and Athletic wrap up the La Liga matchday**: [Link](https://sports.yahoo.com/articles/confirmed-xis-espanyol-athletic-wrap-185800510.html)
+
+
 ### benfica - famalicão (N/A, 22/12/2025 15:28 Lima)
 
 - **Prestianni titular: confira o onze do Benfica contra o Famalicão**: [Link](https://sapo.pt/artigo/prestianni-titular-confira-o-onze-do-benfica-contra-o-famalicao-69499ff12c7b75270a67791d)
@@ -959,75 +1029,5 @@ Sin noticias relacionadas disponibles.
 - **Inter no tiene margen de error ante Bologna en la semifinal de la Supercopa de Italia**: [Link](https://www.espn.com.pe/futbol/italia/nota/_/id/16086878/bologna-vs-inter-supercopa-italia-equipo-fecha-hora-y-tv-en-vivo)
 - **Bolonia vs. Inter de Milán – El ex centrocampista del AC Milan elogia a los nerazzurri: “Intensos, hay que subir el nivel”**: [Link](https://www.elpueblo.pe/deportes/bolonia-vs-inter-de-milan-el-ex-centrocampista-del-ac-milan-elogia-a-los-nerazzurri-intensos-hay-que-subir-el-nivel/170743/)
 - **¡Continuo! En vivo por ANTV, semifinal de la Supercopa de Italia 2025 Bolonia vs Inter de Milán**: [Link](https://www.ucvradio.pe/mas-actualidad/continuo-en-vivo-por-antv-semifinal-de-la-supercopa-de-italia-2025-bolonia-vs-inter-de-milan/80602/)
-
-
-### bologna vs (N/A, 19/12/2025 15:28 Lima)
-
-- **Preview: Bologna vs Inter Milan - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/bologna/preview/bologna-vs-inter-milan-prediction-team-news-lineups_587969.html)
-- **Di Vaio: ‘Bologna tense and eager to enjoy’ first ever Supercoppa**: [Link](https://football-italia.net/di-vaio-bologna-tense-eager-enjoy-supercoppa/)
-- **Former Arsenal & Man Utd Midfielder Reflects On Simone Inzaghi’s Inter Milan Exit: ‘Everyone Makes Their Own Decisions, You Have To Accept Them & Move On’**: [Link](https://sempreinter.com/2025/12/19/inter-milan-mkhitaryan-inzaghi-departure-decisions/)
-
-
-### valencia vs (N/A, 19/12/2025 15:28 Lima)
-
-- **LALIGA 1 - BORRADOR - Apuestas y Pronóstico del Valencia vs Mallorca 19/12/25**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2025/diciembre/pronostico-valencia-vs-mallorca-19-12-25)
-- **LaLiga EA Sports: Valencia se enfrenta ante la visita Mallorca por la fecha 17**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-valencia-se-enfrenta-ante-la-visita-mallorca-por-la-fecha-17-noticia-1668398)
-- **Compromiso a prueba en Mestalla**: [Link](https://okdiario.com/baleares/compromiso-prueba-mestalla-15960153)
-
-
-### alejandro aramburu (N/A, 19/12/2025 15:28 Lima)
-
-- **Alejandro Aramburú emociona a sus fans tras regresar a Perú luego de debutar en Santos Bravos**: [Link](https://elcomercio.pe/tvmas/famosos/alejandro-aramburu-emociona-a-sus-fans-tras-regresar-a-peru-luego-de-debutar-en-santos-bravos-celebs-ultimas-noticia/)
-- **Cantante Alejandro Aramburú regresa a Perú tras debutar en Santos Bravos, la boyband latina de HYBE, y desata furor en aeropuerto**: [Link](https://larepublica.pe/entretenimiento/2025/12/19/cantante-alejandro-aramburu-regresa-a-peru-tras-debutar-en-santos-bravos-la-boyband-latina-de-hybe-y-desata-furor-en-aeropuerto-440534)
-- **Alejandro Aramburú causa furor en el aeropuerto de Lima: cantante regresó a Perú tras su debut internacional en Santos Bravos**: [Link](https://www.infobae.com/peru/2025/12/19/alejandro-aramburu-de-santos-bravos-causa-furor-en-el-aeropuerto-de-lima-cantante-regreso-a-peru-tras-su-debut-internacional/)
-
-
-### vasco madueño (N/A, 19/12/2025 11:33 Lima)
-
-- **ROTO EN PEDAZOS: Vasco Madueño, el hijo de Guillermo Dávila, confirma la muerte de su madre**: [Link](https://peru21.pe/espectaculos/vasco-madueno-confirma-la-muerte-de-su-madre/)
-- **Guillermo Dávila participará en ‘El valor de la verdad’: ¿Qué dijo sobre su hijo Vasco Madueño?**: [Link](https://elcomercio.pe/tvmas/farandula/guillermo-davila-participara-en-el-valor-de-la-verdad-que-dijo-sobre-su-hijo-vasco-madueno-ultimas-noticia/)
-- **Vasco Madueño, hijo de Guillermo Dávila, anuncia la muerte de su madre tras una prolongada lucha contra el cáncer**: [Link](https://diariocorreo.pe/espectaculos/vasco-madueno-hijo-de-guillermo-davila-anuncia-la-muerte-de-su-madre-tras-una-prolongada-lucha-contra-el-cancer-noticia/)
-
-
-### villancicos (N/A, 19/12/2025 11:33 Lima)
-
-- **Orquesta Juvenil de Lo Barnechea cierra ciclo de conciertos con imperdible concierto navideño gratuito**: [Link](https://portalmetropolitano.cl/orquesta-juvenil-de-lo-barnechea-cierra-ciclo-de-conciertos-con-imperdible-concierto-navideno-gratuito/)
-- **Música clásica y villancicos: conoce cuándo y dónde será el concierto navideño gratuito en Lo Barnechea**: [Link](https://www.eldinamo.cl/entretencion/panoramas/2025/12/19/anuncian-concierto-navideno-gratuito-en-lo-barnechea-revisa-cuando-y-a-que-hora/)
-- **Imperdible: Concierto Navideño de la Orquesta Juvenil de Lo Barnechea este sábado 20 de diciembre**: [Link](https://aquitedateamos.cl/imperdible-concierto-navideno-de-la-orquesta-juvenil-de-lo-barnechea-este-sabado-20-de-diciembre/)
-
-
-### valencia vs mallorca (N/A, 19/12/2025 11:33 Lima)
-
-- **LALIGA 1 - BORRADOR - Apuestas y Pronóstico del Valencia vs Mallorca 19/12/25**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2025/diciembre/pronostico-valencia-vs-mallorca-19-12-25)
-- **LaLiga EA Sports: Valencia se enfrenta ante la visita Mallorca por la fecha 17**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-valencia-se-enfrenta-ante-la-visita-mallorca-por-la-fecha-17-noticia-1668398)
-- **Alineación posible del Valencia ante el Mallorca en la Liga EA Sports**: [Link](https://as.com/futbol/alineacion-posible-del-valencia-ante-el-mallorca-en-la-liga-ea-sports-f202512-n/)
-
-
-### {"errors":[{"code":9007,"message":"service instances unavailable"}]} (N/A, 19/12/2025 11:33 Lima)
-
-- **Roblox Faces Global Outage, Players Hit By Error 9007, Login And Server Issues**: [Link](https://www.ndtv.com/offbeat/roblox-faces-major-global-outage-players-hit-by-error-9007-login-and-server-issues-9847600)
-- **Roblox - More News on LatestLY**: [Link](https://www.latestly.com/google-trends/19122025/roblox/)
-- **Is Roblox down? Users reporting issues accessing online game**: [Link](https://www.northjersey.com/story/tech/gaming/2025/12/18/is-roblox-down-users-reporting-issues-accessing-online-game/87839528007/)
-
-
-### avatar 2 (N/A, 19/12/2025 03:35 Lima)
-
-- **Disney, James Cameron sued for copyright infringement over 'Avatar'**: [Link](https://www.reuters.com/legal/litigation/disney-james-cameron-sued-copyright-infringement-over-avatar-2025-12-16/)
-- **Kasowitz Files Copyright Infringement Lawsuit Against James Cameron and Major Hollywood Studios Over 'Avatar: The Way of Water'**: [Link](https://santamariatimes.com/online_features/press_releases/kasowitz-files-copyright-infringement-lawsuit-against-james-cameron-and-major-hollywood-studios-over-avatar-the/article_de0d4efa-b4f4-5757-bb78-05abff9f53fc.html)
-- **Second ‘Avatar’ Copied More Than Original, Writer’s Suit Says**: [Link](https://news.bloomberglaw.com/ip-law/second-avatar-copied-more-than-original-writers-suit-says)
-
-
-### roblox (N/A, 19/12/2025 03:35 Lima)
-
-- **Is Roblox down? Users reporting issues accessing online game**: [Link](https://www.northjersey.com/story/tech/gaming/2025/12/18/is-roblox-down-users-reporting-issues-accessing-online-game/87839528007/)
-- **Roblox down gobally: Outage hits thousands of players with error code 9007 and login issues**: [Link](https://www.moneycontrol.com/technology/roblox-down-gobally-outage-hits-thousands-of-players-with-error-code-9007-and-login-issues-article-13733669.html)
-- **Why is roblox trending?**: [Link](https://www.latestly.com/google-trends/19122025/roblox/)
-
-
-### nba (N/A, 19/12/2025 03:35 Lima)
-
-- **Exclusive | Jalen Brunson wasn’t consulted on Knicks’ NBA banner decision — but has no problem with it**: [Link](https://nypost.com/2025/12/18/sports/jalen-brunson-wasnt-consulted-on-knicks-nba-banner-decision/)
-- **The scenario that will have Dwight Howard ’embarrassed’ for Knicks after nixing NBA Cup banner**: [Link](https://sports.yahoo.com/articles/scenario-dwight-howard-embarrassed-knicks-172217656.html)
-- **Knicks Won’t Raise Banner After Winning Emirates NBA Cup Like Lakers & Bucks Did**: [Link](https://lakersnation.com/knicks-wont-raise-banner-after-winning-emirates-nba-cup-like-lakers-bucks-did/)
 
 
