@@ -1,3 +1,17 @@
+### al ittihad (N/A, 23/12/2025 03:36 Lima)
+
+- **Roziqul Berdiev Shares Thoughts on Tomorrow's Match Against Al Ittihad**: [Link](https://zamin.uz/en/sport/178037-roziqul-berdiev-shares-thoughts-on-tomorrow-s-match-against-al-ittihad.html)
+- **Al-Ghamdi Reveals His Readiness and Chances of Joining the National Team in the World Cup**: [Link](https://www.ysscores.com/en/news/13876699/Al-Ghamdi-Reveals-His-Readiness-and-Chances-of-Joining-the-National-Team-in-the-World-Cup)
+- **Conceição Reveals Al-Ittihad’s Cards Ahead of Nasaf Match**: [Link](https://www.ysscores.com/en/news/13876647/Concei%C3%A7%C3%A3o-Reveals-Al-Ittihad%E2%80%99s-Cards-Ahead-of-Nasaf-Match)
+
+
+### phillip chu joy (N/A, 23/12/2025 03:36 Lima)
+
+- **Supercanastas 2025 bajo la lupa de la Sunat: “Su alto valor puede aumentar la retención salarial”, advierte experta**: [Link](https://www.infobae.com/peru/2025/12/21/supercanastas-2025-bajo-la-lupa-de-la-sunat-su-alto-valor-puede-aumentar-la-retencion-salarial-advierte-experta/)
+- **Phillip Chu Joy deja boquiabiertos a sus trabajadores con canasta navideña que incluye laptop gamer**: [Link](https://www.exitosanoticias.pe/espectaculos/phillip-chu-joy-deja-boquiabiertos-sus-trabajadores-canasta-navidena-incluye-laptop-gamer-n165175)
+- **¿Entregaste canastas solo a algunos trabajadores? Revisa el riesgo tributario**: [Link](https://actualidadempresarial.pe/noticia/entregaste-canastas-solo-a-algunos-trabajadores-revisa-el-riesgo-tributario/738ebdec-7b8a-46c0-9a40-df6e43be759d/1)
+
+
 ### endrick (N/A, 22/12/2025 23:41 Lima)
 
 - **Real Madrid Agree First Major Transfer of January Window—Report**: [Link](https://www.si.com/soccer/real-madrid-agree-first-major-transfer-january-window)
@@ -1017,17 +1031,5 @@ against Sunderland**: [Link](https://www.vavel.com/en/football/2025/12/19/bright
 ### borussia vs (N/A, 19/12/2025 20:56 Lima)
 
 Sin noticias relacionadas disponibles.
-
-
-### braga fc (N/A, 19/12/2025 20:56 Lima)
-
-- **Bola no Lacximicant(o) foi 'tiro' na rota dos guerreiros (crónica)**: [Link](https://www.abola.pt/noticias/bola-no-lacximicanto-foi-tiro-na-rota-dos-guerreiros-cronica-2025121923263814242)
-- **João Moutinho: «Faltou-nos competência para concretizar as oportunidades flagrantes que criámos»**: [Link](https://sapo.pt/artigo/joao-moutinho-faltou-nos-competencia-para-concretizar-as-oportunidades-flagrantes-que-criamos-6945f04e52dc24aee9a17684)
-- **Todas as incidências e os melhores lances do fim de semana desportivo**: [Link](https://www.flashscore.pt/noticias/futebol-liga-portugal-2-jornada-ao-vivo-estoril-sc-braga-em-acao-bolonha-na-final-da-supertaca-de-italia/2iZStF55/)
-
-
-### braga vs (N/A, 19/12/2025 20:56 Lima)
-
-- **Preview: Estoril Praia vs Braga - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/estoril-praia/preview/estoril-vs-braga-prediction-team-news-lineups_587979.html)
 
 
