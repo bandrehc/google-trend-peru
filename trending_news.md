@@ -1,3 +1,17 @@
+### dólar hoy perú (N/A, 23/12/2025 07:55 Lima)
+
+- **Precio del dólar hoy, martes 23 de diciembre de 2025: a cuánto abrió el tipo de cambio**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-2025-a-cuanto-esta-el-dolar-este-martes-23-de-diciembre-y-tipo-de-cambio-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
+- **Dólar SUNAT en Perú hoy 23 de diciembre 2025**: [Link](https://www.americatv.com.pe/noticias/actualidad/dolar-sunat-hoy-23-diciembre-tipo-cambio-oficial-n514165)
+- **Tipo de cambio hoy en Perú: ¿En cuánto cerró el dólar este lunes 22 de diciembre?**: [Link](https://gestion.pe/economia/mercados/tipo-de-cambio-dolar-hoy-en-peru-cuanto-esta-el-precio-del-dolar-este-lunes-22-de-diciembre-dolares-a-soles-compra-y-venta-bcrp-noticia/)
+
+
+### arsenal vs crystal palace (N/A, 23/12/2025 07:55 Lima)
+
+- **Every word Mikel Arteta said on Arsenal vs Crystal Palace, striker dilemma and fixture chaos**: [Link](https://www.football.london/arsenal-fc/news/every-word-mikel-arteta-said-33102300)
+- **bet365 bonus code: Score £30 bonus for Arsenal vs Crystal Palace with code SUN365**: [Link](https://www.thesun.co.uk/betting/37719711/bet365-bonus-code-arsenal-vs-crystal-palace-sun365/)
+- **'He lifted the belief, the spirit': Mikel Arteta reflects on Gabriel Jesus' role ahead of 100th Arsenal game**: [Link](https://tribuna.com/en/news/2025-12-22-he-lifted-the-belief-the-spirit-mikel-arteta-reflects-on-gabriel-jesus-role-ahead-of-100t/)
+
+
 ### al ittihad (N/A, 23/12/2025 03:36 Lima)
 
 - **Roziqul Berdiev Shares Thoughts on Tomorrow's Match Against Al Ittihad**: [Link](https://zamin.uz/en/sport/178037-roziqul-berdiev-shares-thoughts-on-tomorrow-s-match-against-al-ittihad.html)
@@ -1019,17 +1033,5 @@ against Sunderland**: [Link](https://www.vavel.com/en/football/2025/12/19/bright
 - **'No fear' but spectacle and serious risk looms large over Paul v Joshua**: [Link](https://www.bbc.com/sport/boxing/articles/c87lq101j17o)
 - **How and why is Jake Paul fighting former world heavyweight champion Anthony Joshua?**: [Link](https://www.cnn.com/2025/12/18/sport/boxing-jake-paul-anthony-joshua-fight-explainer)
 - **Anthony Joshua says boxers have ‘license to kill’ as he explains controversial comment**: [Link](https://www.independent.co.uk/bulletin/sport/jake-paul-anthony-joshua-fight-kill-comments-b2888125.html)
-
-
-### braga (N/A, 19/12/2025 20:56 Lima)
-
-- **O que fazer em Braga no Natal: vive a magia da quadra no Minho**: [Link](https://www.idealista.pt/news/ferias/viagens/2025/12/17/73070-o-que-fazer-em-braga-no-natal-vive-a-magia-da-quadra-no-minho)
-- **Braga tem um fim de semana cheio de programas gratuitos — mesmo com chuva**: [Link](https://newinbraga.nit.pt/na-cidade/braga-tem-um-fim-de-semana-cheio-de-programas-gratuitos-mesmo-com-chuva)
-- **Braga Parque promove programação natalícia dedicada às famílias**: [Link](https://sapo.pt/artigo/braga-parque-promove-programacao-natalicia-dedicada-as-familias-694281b760efc136c2cc3d37)
-
-
-### borussia vs (N/A, 19/12/2025 20:56 Lima)
-
-Sin noticias relacionadas disponibles.
 
 
