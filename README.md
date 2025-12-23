@@ -1,3 +1,50 @@
+### endrick (N/A, 22/12/2025 23:41 Lima)
+
+- **Real Madrid Agree First Major Transfer of January Window—Report**: [Link](https://www.si.com/soccer/real-madrid-agree-first-major-transfer-january-window)
+- **Endrick to Lyon, imminent**: [Link](https://www.marca.com/en/football/real-madrid/2025/12/22/6949a207268e3ea9398b45cb.html)
+- **Xabi Alonso dismissal would not affect planned exit for Real Madrid star**: [Link](https://www.football-espana.net/2025/12/13/xabi-alonso-dismissal-exit-real-madrid-star)
+
+
+### jueza vivian polanía (N/A, 22/12/2025 23:41 Lima)
+
+Sin noticias relacionadas disponibles.
+
+
+### warriors - magic (N/A, 22/12/2025 23:41 Lima)
+
+- **Warriors vs. Magic injury report: Seth Curry, Al Horford still out**: [Link](https://www.goldenstateofmind.com/warriors-injury-report/106453/warriors-magic-injury-report-al-horford-franz-wagner-seth-curry)
+- **Betr Picks Promo Code BETRWSN: Grab $10 Sign-Up + $200 Bonus for Magic vs Warriors**: [Link](https://www.wsn.com/nba/betr-promo-code-magic-vs-warriors-12-22-2025/)
+- **Orlando Magic at Golden State Warriors: Game Preview**: [Link](https://orlandomagic.com/news/orlando-magic-golden-state-warriors-game-preview-injury-report-20251222)
+
+
+### precio del dolar hoy (N/A, 22/12/2025 23:41 Lima)
+
+- **Precio del dólar en Perú: a cuánto cerró el tipo de cambio hoy, lunes 22 de diciembre**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-2025-a-cuanto-esta-el-dolar-este-lunes-22-de-diciembre-y-tipo-de-cambio-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
+- **Precio del Dólar en Perú HOY, domingo 21 de diciembre: consulta aquí la última cotización y el tipo de cambio**: [Link](https://larepublica.pe/economia/precio-del-dolar/2025/12/21/precio-del-dolar-hoy-en-peru-21-de-diciembre-2025-cotizacion-de-compra-y-venta-segun-bcr-y-tasa-de-cambio-dolares-a-soles-ocona-dolar-bloomberg-atmp-240760)
+- **¿Cuánto está el dólar HOY? Precio compra y venta para este lunes 22 de diciembre**: [Link](https://latinanoticias.pe/te-ayudo/cuanto-esta-el-dolar-hoy-precio-compra-y-venta-para-este-22-de-diciembre-cotizacion-dolar-ahora-en-lima-sunat-sbs-bcrp-adp-noticia_20251222/)
+
+
+### melissa paredes (N/A, 22/12/2025 23:41 Lima)
+
+- **Magaly Medina le responde a Melissa Paredes tras cartas notariales: “Que ella tenga cuidado”**: [Link](https://trome.com/espectaculos/tv/magaly-medina-le-responde-a-melissa-paredes-tras-cartas-notariales-que-ella-tenga-cuidado-video-fotos-farandula-noticia/)
+- **Melissa Paredes manda segunda carta notarial a Magaly Medina: ¿qué exige ahora?**: [Link](https://www.expreso.com.pe/entretenimiento/melissa-paredes-manda-segunda-carta-notarial-a-magaly-medina-que-exige-ahora-rodrigo-cuba-noticia/1248440/)
+- **Melissa Paredes envía nueva carta notarial a Magaly Medina y exige respeto a la privacidad de su hija**: [Link](https://www.infobae.com/peru/2025/12/18/melissa-paredes-envia-nueva-carta-notarial-a-magaly-medina-y-exige-respeto-a-la-privacidad-de-su-hija/)
+
+
+### adriana tudela (N/A, 22/12/2025 23:41 Lima)
+
+- **Adriana Tudela sobre nueva fórmula de Avanza País: “Todavía hay tiempo y la campaña realmente inicia en enero”**: [Link](https://elcomercio.pe/politica/adriana-tudela-sobre-nueva-formula-de-avanza-pais-todavia-hay-tiempo-y-la-campana-realmente-inicia-en-enero-noticia/)
+- **José Williams: "Yo pensé que le iban a colocar más años al señor Pedro Castillo”**: [Link](https://peru21.pe/politica/jose-williams-yo-pense-que-le-iban-colocar-mas-anos-al-senor-pedro-castillo/)
+- **Karol Paredes dice que ingreso de Adriana Tudela en la plancha presidencial de Avanza País fue “un reacomodo a nivel del partido”**: [Link](https://rpp.pe/politica/elecciones/karol-paredes-dice-que-ingreso-de-adriana-tudela-en-la-plancha-presidencial-de-avanza-pais-fue-un-reacomodo-a-nivel-del-partido-noticia-1668690)
+
+
+### boston celtics (N/A, 22/12/2025 23:41 Lima)
+
+- **Excelling on defense, Celtics face sputtering Pacers**: [Link](https://www.thesportsleader.com/2025/12/21/excelling-on-defense-celtics-face-sputtering-pacers/)
+- **How to watch Boston Celtics free stream today**: [Link](https://www.masslive.com/tv/2025/12/how-to-watch-boston-celtics-free-stream-today.html)
+- **Halftime Rewind: Pacers 61, Celtics 43**: [Link](https://pacers.com/news/rewind-pacers-celtics-251222)
+
+
 ### weather tomorrow (N/A, 22/12/2025 21:04 Lima)
 
 - **Light snow expected to hamper travel Tuesday: How many inches might you get?**: [Link](https://www.nbcnewyork.com/weather/weather-stories/nyc-weather-forecast-snow-white-christmas-travel-delays/6434154/)
@@ -982,52 +1029,5 @@ Sin noticias relacionadas disponibles.
 ### braga vs (N/A, 19/12/2025 20:56 Lima)
 
 - **Preview: Estoril Praia vs Braga - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/estoril-praia/preview/estoril-vs-braga-prediction-team-news-lineups_587979.html)
-
-
-### swansea vs (N/A, 19/12/2025 20:56 Lima)
-
-- **Swans come from behind to beat Wrexham in Welsh derby**: [Link](https://www.bbc.com/sport/football/live/cqlk4qd6wqet)
-- **Matos relishing Swansea's 'special' home form**: [Link](https://ca.sports.yahoo.com/news/matos-relishing-swanseas-special-home-000213204.html)
-- **Swansea fight back after Cameron Burgess misfortune**: [Link](https://www.canberratimes.com.au/story/9138775/swansea-fight-back-after-cameron-burgess-misfortune/)
-
-
-### copa de francia (N/A, 19/12/2025 20:56 Lima)
-
-- **Brest es eliminado de la Copa de Francia por Avranches, de tercera división**: [Link](https://www.bostonherald.com/2025/12/19/brest-es-eliminado-de-la-copa-de-francia-por-avranches-de-tercera-divisin/)
-- **Inician los treintaidosavos de la Copa Francia de fútbol**: [Link](https://momentodeportivord.com/inician-los-treintaidosavos-de-la-copa-francia-de-futbol/)
-- **Así se jugó una nueva jornada de la Copa Francia: todos los resultados**: [Link](https://www.directvsports.com/futbol/asi-se-jugo-una-nueva-jornada-de-la-copa-francia-todos-los-resultados-20251219-0006.html)
-
-
-### borussia dortmund vs (N/A, 19/12/2025 15:28 Lima)
-
-- **Liveticker | Borussia Dortmund - Bor. Mönchengladbach 1:0 | 15. Spieltag | Bundesliga 2025/26**: [Link](https://www.kicker.de/dortmund-gegen-mgladbach-2025-bundesliga-5050876/ticker)
-- **Die Sport-Höhepunkte am Freitag, 19. Dezember**: [Link](https://onefootball.com/en/news/die-sport-hoehepunkte-am-freitag-19-dezember-42116399)
-- **Mit Campbell und Mane, ohne Duranville: 20-köpfiger BVB-Kader für das Spiel gegen Gladbach steht fest**: [Link](https://tribuna.com/de/news/2025-12-19-mit-campbell-und-mane-ohne-duranville-20kopfiger-bvbkader-fur-das-spiel-gegen-gladbach-st/)
-
-
-### dortmund (N/A, 19/12/2025 15:28 Lima)
-
-- **Stadtverwaltung zwischen Weihnachten und Neujahr geschlossen – Notdienste eingerichtet**: [Link](https://www.bad-kreuznach.de/buergerservice/politik-und-verwaltung/weitere-nachrichten/stadtverwaltung-zwischen-weihnachten-und-neujahr-geschlossen-notdienste-eingerichtet/)
-- **So bleibt die Stadtverwaltung Dortmund über Weihnachten und Neujahr erreichbar**: [Link](https://www.nordstadtblogger.de/so-bleibt-die-stadtverwaltung-dortmund-ueber-weihnachten-und-neu-jahr-erreichbar/)
-- **Behördenpause: Stadtverwaltung regelt Erreichbarkeit zwischen den Jahren**: [Link](https://wiesbaden-lebt.de/erreichbarkeit-der-stadtverwaltung-zwischen-den-jahren)
-
-
-### eibar vs (N/A, 19/12/2025 15:28 Lima)
-
-Sin noticias relacionadas disponibles.
-
-
-### bologna (N/A, 19/12/2025 15:28 Lima)
-
-- **Thuram ci mette 70 secondi per segnare in Supercoppa: tutto il merito del gol però è di Bastoni**: [Link](https://tribuna.com/it/blogs/thuram-ci-mette-70-secondi-per-segnare-in-supercoppa-tutto-i/)
-- **LIVE! Bologna-Inter: via alla seconda semifinale, Bonny-Thuram in attacco**: [Link](https://www.eurosport.it/calcio/supercoppa/2025-2026/bologna-inter-live-diretta-scritta-e-aggiornamenti-in-tempo-reale.-cronaca-gol-marcatori-assist-cartellini-semifinale-supercoppa-italiana_sto23252217/story.shtml)
-- **Calcio Live News: tutte le notizie di giornata in diretta**: [Link](https://www.diretta.it/news/calcio-serie-a-calcio-live-news-lautaor-fuori-in-bologna-inter-il-napoli-si-scaglia-contro-allegri/fcAYlFdc/)
-
-
-### inter (N/A, 19/12/2025 15:28 Lima)
-
-- **Inter no tiene margen de error ante Bologna en la semifinal de la Supercopa de Italia**: [Link](https://www.espn.com.pe/futbol/italia/nota/_/id/16086878/bologna-vs-inter-supercopa-italia-equipo-fecha-hora-y-tv-en-vivo)
-- **Bolonia vs. Inter de Milán – El ex centrocampista del AC Milan elogia a los nerazzurri: “Intensos, hay que subir el nivel”**: [Link](https://www.elpueblo.pe/deportes/bolonia-vs-inter-de-milan-el-ex-centrocampista-del-ac-milan-elogia-a-los-nerazzurri-intensos-hay-que-subir-el-nivel/170743/)
-- **¡Continuo! En vivo por ANTV, semifinal de la Supercopa de Italia 2025 Bolonia vs Inter de Milán**: [Link](https://www.ucvradio.pe/mas-actualidad/continuo-en-vivo-por-antv-semifinal-de-la-supercopa-de-italia-2025-bolonia-vs-inter-de-milan/80602/)
 
 
