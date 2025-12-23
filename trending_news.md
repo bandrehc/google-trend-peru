@@ -1,3 +1,56 @@
+### avengers doomsday (N/A, 23/12/2025 11:34 Lima)
+
+- **Chris Evans Returns for ‘Avengers: Doomsday’ as Captain America With a Child, Teaser Confirms**: [Link](https://variety.com/2025/film/news/chris-evans-avengers-doomsday-teaser-captain-america-1236609054/)
+- **'Avengers: Doomsday' trailer reveals beloved hero's surprise return**: [Link](https://www.usatoday.com/story/entertainment/movies/2025/12/18/avengers-doomsday-trailer-description-chris-evans/87777832007/)
+- **Fans Flock to Theaters for ‘Avatar,’ But Many Fail to Find Avengers**: [Link](https://barlamantoday.com/2025/12/23/fans-flock-to-theaters-for-avatar-but-many-fail-to-find-avengers/)
+
+
+### senegal (N/A, 23/12/2025 11:34 Lima)
+
+- **CAN 2025: Senegal vs Botswana 5 jugadores clave**: [Link](https://www.elpueblo.pe/deportes/can-2025-senegal-vs-botswana-5-jugadores-clave/173403/)
+- **Senegal aspira a un segundo título de la CAN 2025 con una plantilla rejuvenecida y experimentada**: [Link](https://www.ucvradio.pe/mas-actualidad/senegal-aspira-a-un-segundo-titulo-de-la-can-2025-con-una-plantilla-rejuvenecida-y-experimentada/83994/)
+
+
+### konyaspor - antalyaspor (N/A, 23/12/2025 11:34 Lima)
+
+- **Konya'da ilk yarı sona erdi**: [Link](https://www.antalyaekspres.com.tr/konyada-ilk-yari-sona-erdi-1)
+- **Antalyaspor ve Konyaspor’un Kadroları Belli Oldu**: [Link](https://sadeceantalyaspor.com/haber/ztk/konyaspor-ztkb-antalyaspor-kadro)
+- **TÜMOSAN Konyaspor-Hesap.com Antalyaspor maçı canlı izle | Ziraat Türkiye Kupası**: [Link](https://www.fotomac.com.tr/futbol/2025/12/23/tumosan-konyaspor-hesapcom-antalyaspor-maci-izle-saati-ve-kanali)
+
+
+### actor james ransone (N/A, 23/12/2025 11:34 Lima)
+
+- **'The Wire' Star James Ransone Dead at 46 After Apparent Suicide**: [Link](https://www.tmz.com/2025/12/21/the-wire-star-james-ransone-dead/)
+- **James Ransone, Who Played Ziggy Sobotka on ‘The Wire,’ Dies at 46**: [Link](https://variety.com/2025/tv/obituaries-people-news/james-ransone-dead-ziggy-sobotka-the-wire-it-chapter-two-1236613869/)
+- **‘Will Miss You, Hermano.’ Andy Muschietti, Spike Lee And More Pay Tribute To ‘PJ’ James Ransone After Death At 46**: [Link](https://www.inkl.com/news/will-miss-you-hermano-andy-muschietti-spike-lee-and-more-pay-tribute-to-pj-james-ransone-after-death-at-46)
+
+
+### avanza pais (N/A, 23/12/2025 11:34 Lima)
+
+- **JNE declaró inadmisible la fórmula presidencial de Avanza País**: [Link](https://rpp.pe/politica/elecciones/jne-declaro-inadmisible-la-formula-presidencial-de-avanza-pais-noticia-1668947)
+- **Avanza País: Declaran inadmisible la plancha presidencial de José Williams, Fernán Altuve y Adriana Tudela**: [Link](https://www.infobae.com/peru/2025/12/23/avanza-pais-declaran-inadmisible-la-plancha-presidencial-de-jose-williams-fernan-altuve-y-adriana-tudela/)
+- **Adriana Tudela: “Desde mi punto de vista se la ha dado un poder desmedido al Senado” tlc nota | POLITICA**: [Link](https://elcomercio.pe/politica/adriana-tudela-desde-mi-punto-de-vista-se-la-ha-dado-un-poder-desmedido-al-senado-tlc-nota-noticia/)
+
+
+### 24 de diciembre es feriado (N/A, 23/12/2025 11:34 Lima)
+
+- **Último feriado largo del año: quiénes descansan cuatro días**: [Link](https://caretas.pe/nacional/ultimo-feriado-largo-del-ano-quienes-descansan-cuatro-dias/)
+- **¿Habrá feriado largo por Navidad y Año Nuevo?: Esto dice el calendario y la ley**: [Link](https://latinanoticias.pe/tendencias/habra-feriado-largo-por-navidad-y-ano-nuevo-esto-dice-el-calendario-y-la-ley_20251219/)
+- **¡Atención! ¿Confirman FERIADO o día NO laborable este 24 de diciembre a nivel nacional? Esto se sabe**: [Link](https://www.exitosanoticias.pe/actualidad/atencion-confirman-feriado-o-dia-laborable-24-diciembre-nivel-nacional-esto-sabe-n165189)
+
+
+### congo vs (N/A, 23/12/2025 11:34 Lima)
+
+- **Congo venció en su debut en la Copa Africana**: [Link](https://ovacion.pe/noticias/futbol-internacional/congo-vencio-su-debut-copa-africana)
+- **RD Congo - Bénin : les Léopards mènent à la mi-temps (vidéo but)**: [Link](https://foot-africa.com/actualites/rd-congo-benin-les-leopards-menent-a-la-mi-temps-video-but-1013966/)
+- **CAN 2025 : la panne lunaire de la VAR et la malchance du Bénin**: [Link](https://www.france24.com/fr/sports/20251223-can-2025-panne-var-malchance-nin)
+
+
+### premios lorenzo (N/A, 23/12/2025 11:34 Lima)
+
+Sin noticias relacionadas disponibles.
+
+
 ### dólar hoy perú (N/A, 23/12/2025 07:55 Lima)
 
 - **Precio del dólar hoy, martes 23 de diciembre de 2025: a cuánto abrió el tipo de cambio**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-2025-a-cuanto-esta-el-dolar-este-martes-23-de-diciembre-y-tipo-de-cambio-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
@@ -977,61 +1030,5 @@ against Sunderland**: [Link](https://www.vavel.com/en/football/2025/12/19/bright
 - **Live updates: The Jeffrey Epstein files released | CNN Politics**: [Link](https://www.cnn.com/politics/live-news/jeffrey-epstein-files-released)
 - **Epstein’s Victims Are Furious**: [Link](https://www.theatlantic.com/politics/2025/12/epstein-victims-trump-bondi-justice-department/685369/)
 - **Pam Bondi could be convicted of obstruction of justice over partial release of redacted Epstein files, Massie says – live**: [Link](https://www.theguardian.com/us-news/live/2025/dec/19/jeffrey-epstein-files-released-trump-administration)
-
-
-### green day (N/A, 19/12/2025 23:31 Lima)
-
-- **Yo Soy EN VIVO 2025: imitadores de Green Day REVIVIERON el ROCK de los 2000’s con “Holiday”**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-en-vivo-2025-imitadores-de-green-day-revivieron-el-rock-de-los-2000s-con-holiday_20251219/)
-- **Yo Soy EN VIVO 2025: ¡Green Day se lució con “Welcome to Paradise” y mostró su mejor versión!**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-en-vivo-2025-green-day-se-lucio-con-welcome-to-paradise-y-mostro-su-mejor-version_20251217/)
-- **Yo Soy EN VIVO 2025: Green Day sirve el ROCK AND ROLL sobre la mesa una vez más en “When i Come Around”**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-en-vivo-2025-green-day-sirve-el-rock-and-roll-sobre-la-mesa-una-vez-mas-en-when-i-come-around_20251218/)
-
-
-### avatar 1 (N/A, 19/12/2025 23:31 Lima)
-
-- **‘Avatar: Fire And Ash’ Flying To $86M-$90M Opening; ‘Housemaid’ & ‘David’ In A Tiff For No. 2 With $20M-$24M Apiece**: [Link](https://deadline.com/2025/12/box-office-avatar-fire-and-ash-housemaid-1236653423/)
-- **‘Avatar: Fire and Ash’ Review: By Land, by Water, by Air!**: [Link](https://www.nytimes.com/2025/12/18/movies/avatar-fire-and-ash-review.html)
-- **‘Avatar: Fire and Ash’ Wants to Please Only the Fans**: [Link](https://www.theatlantic.com/culture/2025/12/avatar-3-fire-and-ash-review/685322/)
-
-
-### alejandra guzmán (N/A, 19/12/2025 23:31 Lima)
-
-- **Yo Soy EN VIVO 2025: imitadora de Alejandra Guzmán ROMPE el escenario con “Reina de Corazones”**: [Link](https://www.latina.pe/entretenimiento/yo-soy/programas-completos-yo-soy/yo-soy-en-vivo-2025-imitadora-de-alejandra-guzman-rompe-el-escenario-con-reina-de-corazones_20251219/)
-- **Yo Soy EN VIVO 2025: imitadora de Alejandra Guzmán hace CANTAR al público junto a ella con “Día de Suerte”**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-en-vivo-2025-imitadora-de-alejandra-guzman-hace-cantar-al-publico-junto-a-ella-con-dia-de-suerte_20251219/)
-- **Yo Soy EN VIVO 2025: imitadora de Alejandra Guzmán despierta la emoción a FLOR DE PIEL con “Volverte a Amar”**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-en-vivo-2025-imitadora-de-alejandra-guzman-despierta-la-emocion-a-flor-de-piel-con-volverte-a-amar_20251218/)
-
-
-### al fondo hay sitio (N/A, 19/12/2025 23:31 Lima)
-
-- **'Al fondo hay sitio' temporada 12 capítulo final: a qué hora se estrena y cómo ver en vivo**: [Link](https://larepublica.pe/cine-series/2025/12/19/al-fondo-hay-sitio-temporada-12-capitulo-final-a-que-hora-se-estrena-y-como-ver-en-vivo-783598)
-- **Jimmy confesó a Alessia que la ama y se reconcilian**: [Link](https://www.americatv.com.pe/al-fondo-hay-sitio/jimmy-confeso-alessia-que-ama-noticia-161995)
-- **Yesenia llora: ¿Qué habría leído la novia de Jimmy?**: [Link](https://www.americatv.com.pe/noticias/espectaculos/yesenia-llora-carta-que-habria-leido-novia-jimmy-n514059)
-
-
-### america tv (N/A, 19/12/2025 23:31 Lima)
-
-- **Janet Barboza y Edson Dávila le dicen adiós a Gisela Valcárcel: ‘América Hoy’ sigue pero sin Ethel Pozo**: [Link](https://www.infobae.com/peru/2025/12/19/janet-barboza-y-edson-davila-le-dicen-adios-a-gisela-valcarcel-america-hoy-sigue-pero-sin-ethel-pozo/)
-- **Ethel Pozo se despide de América Hoy entre lágrimas: “Es mi último día. Es la última vez que vamos a estar juntos”**: [Link](https://trome.com/espectaculos/tv/ethel-pozo-se-despide-de-america-hoy-entre-lagrimas-es-mi-ultimo-dia-es-la-ultima-vez-que-vamos-a-estar-juntos-video-fotos-farandula-noticia/)
-- **Edson Dávila lloró al despedirse de Ethel Pozo**: [Link](https://www.americatv.com.pe/videos/america-hoy/edson-davila-rompio-llanto-al-despedirse-ethel-pozo-noticia-161979)
-
-
-### tvgo (N/A, 19/12/2025 23:31 Lima)
-
-- **Con Gallese al frente: esta es la lista de convocados de Perú para partido amistoso con Bolivia en Chincha**: [Link](https://rpp.pe/futbol/seleccion-peruana/seleccion-peruana-lista-de-convocados-safap-partido-amistoso-con-bolivia-pedro-gallese-noticia-1667906)
-- **Perú vs Bolivia: 50% de descuento en las entradas para ver el último partido de la selección peruana**: [Link](https://elcomercio.pe/deporte-total/seleccion/entradas-peru-vs-bolivia-50-de-descuento-en-las-entradas-para-ver-el-ultimo-partido-de-la-seleccion-peruana-noticia/)
-- **Gerardo Ameli sobre las críticas por dirigir Perú vs. Bolivia: “Me importa lo que piensen mis jugadores”**: [Link](https://depor.com/futbol-peruano/seleccion-peruana/peru-vs-bolivia-declaraciones-de-gerardo-ameli-sobre-su-designacion-y-criticas-solo-me-importa-lo-que-piensen-mis-jugadores-video-noticia/)
-
-
-### wordle (N/A, 19/12/2025 20:56 Lima)
-
-- **Today's Wordle Hints, Answer and Help for Dec. 20, #1645**: [Link](https://www.cnet.com/tech/gaming/todays-wordle-hints-answer-and-help-for-dec-20-1645/)
-- **Wordle hint today: Clues for December 19 2025 NYT puzzle #1644**: [Link](https://ftw.usatoday.com/story/tech/gaming/2025/12/19/wordle-hint-today-clues-december-19-2025/87824870007/)
-- **Today’s Wordle answer is rugby and this sport’s oval ball shape has a wild history behind it**: [Link](https://www.red94.net/news/70169-today-s-wordle-answer-is-rugby-sport-played-with-oval-ball/)
-
-
-### jake paul vs joshua (N/A, 19/12/2025 20:56 Lima)
-
-- **'No fear' but spectacle and serious risk looms large over Paul v Joshua**: [Link](https://www.bbc.com/sport/boxing/articles/c87lq101j17o)
-- **How and why is Jake Paul fighting former world heavyweight champion Anthony Joshua?**: [Link](https://www.cnn.com/2025/12/18/sport/boxing-jake-paul-anthony-joshua-fight-explainer)
-- **Anthony Joshua says boxers have ‘license to kill’ as he explains controversial comment**: [Link](https://www.independent.co.uk/bulletin/sport/jake-paul-anthony-joshua-fight-kill-comments-b2888125.html)
 
 
