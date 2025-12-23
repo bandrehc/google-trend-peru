@@ -1,3 +1,72 @@
+### sporting lisboa (N/A, 23/12/2025 15:28 Lima)
+
+- **Vitória de Guimarães x Sporting Palpite – Onde Assistir, Hora e Escalações 23-12**: [Link](https://onefootball.com/pt-br/apostas/palpites/futebol/vitoria-de-guimaraes-x-sporting-23-12)
+- **Treinador irritado com pergunta sobre a polémica nos Açores**: [Link](https://www.pressreader.com/portugal/a-bola-358A/20251223/281904484527981)
+- **Rui Borges vai mexer no onze, mas não muito...(fotos)**: [Link](https://www.abola.pt/noticias/rui-borges-vai-mexer-no-onze-mas-nao-muitofotos-2025122222022635269)
+
+
+### everton vs. arsenal (N/A, 23/12/2025 15:28 Lima)
+
+- **Bench Cam: Arteta's best moments from Everton win | Video | News**: [Link](https://www.arsenal.com/news/bench-cam-artetas-best-moments-everton-win)
+- **Arsenal Edge Ahead Of Manchester City In Christmas Title Race**: [Link](https://evrimagaci.org/gpt/arsenal-edge-ahead-of-manchester-city-in-christmas-title-race-520858)
+- **Declan Rice posted some incredible stats you may have missed against Everton**: [Link](https://www.justarsenal.com/declan-rice-posted-some-incredible-stats-you-may-have-missed-against-everton/406524)
+
+
+### tylor chase ned (N/A, 23/12/2025 15:28 Lima)
+
+- **Former Nickelodeon Star Tylor Chase Refusing Treatment, Housing From Police**: [Link](https://www.tmz.com/2025/12/22/nickelodeon-star-tylor-chase-refuses-treatment-housing/)
+- **Full story of Nickelodeon star Tylor Chase's fall to homelessness**: [Link](https://www.dailymail.co.uk/news/article-15407271/tylor-chase-nickelodeon-star-homeless.html)
+- **Challenges Faced by Former Child Actors: A Closer Look**: [Link](https://www.indianewsnetwork.com/en/challenges-faced-former-child-actors-closer-look-20251223)
+
+
+### braga vs (N/A, 23/12/2025 15:28 Lima)
+
+- **Preview: Caldas vs Braga - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/caldas/preview/caldas-vs-braga-prediction-team-news-lineups_588274.html)
+- **Caldas vs Sporting Braga Prediction and Betting Tips | December 23rd 2025**: [Link](https://www.sportskeeda.com/football/caldas-vs-sporting-braga-prediction-betting-tips-december-23rd-2025)
+
+
+### leeds vs. crystal palace (N/A, 23/12/2025 15:28 Lima)
+
+- **Oliver Glasner's embarrassing moment storming off after Crystal Palace's crushing loss to Leeds United - spotted**: [Link](https://tribuna.com/en/blogs/oliver-glasners-embarrassing-moment-storming-off-after-cryst/)
+- **Calvert-Lewin claims Hisense Player of the Match honours in 4-1 win**: [Link](https://sports.yahoo.com/articles/calvert-lewin-claims-hisense-player-091400912.html)
+- **Leeds 4-1 Crystal Palace: Fan views on Premier League game**: [Link](https://www.bbc.com/sport/football/articles/c4gpyypm8mro)
+
+
+### arsenal - crystal palace (N/A, 23/12/2025 15:28 Lima)
+
+- **Team news: Jesus starts quarter-final**: [Link](https://www.arsenal.com/news/team-news-jesus-starts-quarter-final)
+- **Every word Mikel Arteta said on Arsenal vs Crystal Palace, striker dilemma and fixture chaos**: [Link](https://www.football.london/arsenal-fc/news/every-word-mikel-arteta-said-33102300)
+- **'When you get to the last eight of a cup competition, you can start to smell the final': Odegaard on EFL Cup clash**: [Link](https://tribuna.com/en/news/2025-12-23-when-you-get-to-the-last-eight-of-a-cup-competition-you-can-start-to-smell-the-final-odeg/)
+
+
+### liga de campeones de la afc (N/A, 23/12/2025 15:28 Lima)
+
+- **Darwin Núñez, clave en el triunfo de Al-Hilal**: [Link](https://www.espn.com.ar/futbol/nota/_/id/16113232/darwin-nunez-clave-triunfo-al-hilal-champions-league-asia-asistencia-gol-malcom)
+- **Gol tardío de Al-Hilal asegura récord perfecto en la fase de grupos de la Liga de Campeones AFC**: [Link](https://www.thehour.com/sports/article/gol-tard-o-de-al-hilal-asegura-record-perfecto-21257608.php)
+- **Al-Sharjah vs Al Hilal: pronósticos, cuotas, y datos para apostar**: [Link](https://www.apwin.com/es/pronosticos/al-sharjah-vs-al-hilal-pronostico-afc-champions-league-22-12-2025/)
+
+
+### caldas sc - braga (N/A, 23/12/2025 15:28 Lima)
+
+- **Caldas obrigado a sair do Campo da Mata: decisão revolta o futebol**: [Link](https://onefootball.com/es/noticias/caldas-obrigado-a-sair-do-campo-da-mata-decisao-revolta-o-futebol-42136167)
+- **19h Ataque em Tomar: suspeito tinha sido preso por homicídio**: [Link](https://www.rtp.pt/noticias/noticiario-desporto/19h-ataque-em-tomar-suspeito-tinha-sido-preso-por-homicidio_a1_1706081)
+- **Jogadores do Calda protestam com um minuto sem jogar**: [Link](https://rr.pt/bola-branca/noticia/futebol-nacional/2025/12/23/taca-jogadores-do-calda-protestam-com-um-minuto-sem-jogar/452825/)
+
+
+### cristiano da silva (N/A, 23/12/2025 15:28 Lima)
+
+- **Sporting Cristal anunció lateral izquierdo brasileño: uno de los héroes del Sheriff ante Real Madrid en Champions**: [Link](https://depor.com/futbol-peruano/descentralizado/sporting-cristal-cristiano-da-silva-lateral-izquierdo-brasileno-nuevo-fichaje-quien-es-le-gano-al-real-madrid-en-champions-noticia/)
+- **Sporting Cristal anunció fichaje de un lateral derecho argentino**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/sporting-cristal-anuncio-fichaje-lateral-derecho-argentino-n452067)
+- **Bombazo en Sporting Cristal: Fichó a Cristiano Da Silva Leite, verdugo del Real Madrid en Champions League**: [Link](https://bolavip.com/pe/sporting-cristal/bombazo-en-sporting-cristal-ficho-a-cristiano-da-silva-leite-verdugo-del-real-madrid-en-champions-league)
+
+
+### nigeria (N/A, 23/12/2025 15:28 Lima)
+
+- **Afcon 2025 LIVE: Nigeria vs Tanzania - text updates, stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cyvg2erqj93t)
+- **Nigeria 2-1 Tanzania (Dec 23, 2025) Game Analysis**: [Link](https://www.espn.com/soccer/report/_/gameId/732138)
+- **Nigeria 2 Tanzania 1: Why did Iwobi stand out? Was Osimhen unlucky? How was Tanzania’s magic moment?**: [Link](https://www.nytimes.com/athletic/6911615/2025/12/23/nigeria-tanzania-afcon-iwobi-osimhen/)
+
+
 ### avengers doomsday (N/A, 23/12/2025 11:34 Lima)
 
 - **Chris Evans Returns for ‘Avengers: Doomsday’ as Captain America With a Child, Teaser Confirms**: [Link](https://variety.com/2025/film/news/chris-evans-avengers-doomsday-teaser-captain-america-1236609054/)
@@ -961,74 +1030,5 @@ against Sunderland**: [Link](https://www.vavel.com/en/football/2025/12/19/bright
 - **Luka Ilic vs. RC Celta de Vigo – Player props & odds to score a goal on December 20**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/12/19/luka-ilic-soccer-player-props-12-20-2025/87853412007/)
 - **Oviedo - Celta live**: [Link](https://www.marca.com/en/soccer/laliga-ea-sports/oviedo-celta/2025/12/20/01_0101_20251220_187_176-live.html)
 - **Real Oviedo vs Celta Vigo: Prediction, Preview and Team News – 20/12/25**: [Link](https://ghanasoccernet.com/bookmaker-ratings/tips/real-oviedo-vs-celta-vigo-prediction-preview-and-team-news-20-12-25/)
-
-
-### celta de vigo (N/A, 20/12/2025 11:30 Lima)
-
-- **LaLiga EA Sports: Celta se enfrentará a Real Oviedo por la fecha 17**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-celta-se-enfrentara-a-real-oviedo-por-la-fecha-17-noticia-1668522)
-- **Oviedo - Celta live**: [Link](https://www.marca.com/en/soccer/laliga-ea-sports/oviedo-celta/2025/12/20/01_0101_20251220_187_176-live.html)
-- **Where to Watch Real Oviedo vs. RC Celta de Vigo: TV Channel, Start Time and Live Stream**: [Link](https://www.bleachernation.com/how-to-watch/2025/12/19/where-to-watch-real-oviedo-vs-rc-celta-de-vigo-tv-channel-start-time-and-live-stream/)
-
-
-### chelsea vs newcastle (N/A, 20/12/2025 11:30 Lima)
-
-- **Football Tracker: Newcastle ahead against Chelsea, Man City to follow**: [Link](https://www.flashscore.com/news/football-tracker-newcastle-ahead-against-chelsea-man-city-to-follow/p0SNiXEF/)
-- **5 shots, 1 on target and 0/6 crosses: Chelsea’s inefficient winger frustrates fans**: [Link](https://chelsea.news/2025/12/garnacho-winger-inefficient-crosses-chelsea/)
-- **Woltemade thrilled to repay Newcastle fans after Tyne-Wear derby own goal**: [Link](https://www.beinsports.com/en-us/soccer/premier-league/articles/woltemade-thrilled-to-repay-newcastle-fans-after-tyne-wear-derby-own-goal-2025-12-20)
-
-
-### peru vs (N/A, 20/12/2025 11:30 Lima)
-
-- **Con Gallese como capitán: el posible once de la Selección Peruana-SAFAP para el amistoso con Bolivia**: [Link](https://rpp.pe/futbol/seleccion-peruana/peru-safap-vs-bolivia-alineacion-en-amistoso-internacional-en-chincha-con-gallese-gerardo-ameli-noticia-1668686)
-- **Perú vs Bolivia: 50% de descuento en las entradas para ver el último partido de la selección peruana**: [Link](https://elcomercio.pe/deporte-total/seleccion/entradas-peru-vs-bolivia-50-de-descuento-en-las-entradas-para-ver-el-ultimo-partido-de-la-seleccion-peruana-noticia/)
-- **Gerardo Ameli sobre las críticas por dirigir Perú vs. Bolivia: “Me importa lo que piensen mis jugadores”**: [Link](https://depor.com/futbol-peruano/seleccion-peruana/peru-vs-bolivia-declaraciones-de-gerardo-ameli-sobre-su-designacion-y-criticas-solo-me-importa-lo-que-piensen-mis-jugadores-video-noticia/)
-
-
-### newcastle vs (N/A, 20/12/2025 07:49 Lima)
-
-- **John Terry warns Chelsea of a trick Newcastle have up their sleeve ahead of Premier League clash**: [Link](https://www.thechelseachronicle.com/news/john-terry-warns-chelsea-of-a-trick-newcastle-have-up-their-sleeve-ahead-of-premier-league-clash/)
-- **Confirmed Chelsea line up vs Newcastle | News | Official Site**: [Link](https://www.chelseafc.com/en/news/article/confirmed-chelsea-line-up-vs-newcastle-a-25-26)
-- **Chelsea: Enzo Maresca out to prove his worth as Blues size up 'perfect' Newcastle**: [Link](https://www.inkl.com/news/chelsea-enzo-maresca-out-to-prove-his-worth-as-blues-size-up-perfect-newcastle)
-
-
-### rome (N/A, 20/12/2025 03:31 Lima)
-
-- **Toss a Coin in the Trevi Fountain? That’ll Be 2 Euros, Wish Not Included**: [Link](https://www.nytimes.com/2025/12/19/world/europe/trevi-fountain-2-euro-fee.html)
-- **Starting in February, tourists will have to pay to get close to Trevi Fountain as Rome introduces an entrance fee for the popular monument and five other sites.**: [Link](https://www.facebook.com/deutschewellenews/posts/starting-in-february-tourists-will-have-to-pay-to-get-close-to-trevi-fountain-as/1303627295125915/)
-- **Rome to introduce ticket for Trevi Fountain basin to curb overtourism**: [Link](https://www.myanmaritv.com/news/rome-introduce-ticket-trevi-fountain-basin-curb-overtourism)
-
-
-### yo soy (N/A, 20/12/2025 03:31 Lima)
-
-- **Yo Soy EN VIVO 2025: imitadora de Alejandra Guzmán hace CANTAR al público junto a ella con “Día de Suerte”**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-en-vivo-2025-imitadora-de-alejandra-guzman-hace-cantar-al-publico-junto-a-ella-con-dia-de-suerte_20251219/)
-- **Imitadora de Alejandra Guzmán a UN DÍA de la GRAN FINAL: “El sacrificio más fuerte ha sido separarme de mis hijos”**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/imitadora-de-alejandra-guzman-a-un-dia-de-la-gran-final-el-sacrificio-mas-fuerte-ha-sido-separarme-de-mis-hijos_20251220/)
-- **Yo Soy EN VIVO 2025: imitadora de Alejandra Guzmán ROMPE el escenario con “Reina de Corazones”**: [Link](https://www.latina.pe/entretenimiento/yo-soy/programas-completos-yo-soy/yo-soy-en-vivo-2025-imitadora-de-alejandra-guzman-rompe-el-escenario-con-reina-de-corazones_20251219/)
-
-
-### canal 4 en vivo (N/A, 20/12/2025 03:31 Lima)
-
-- **Préstamo para limpiar deudas: Dile adiós a Infocorp con este crédito**: [Link](https://www.latina.pe/entretenimiento/anuncios/prestamo-para-limpiar-deudas-dile-adios-a-infocorp-con-este-credito_20251218/)
-- **Prestamype: la fintech líder del país que ofrece préstamos desde S/15 mil hasta S/2 millones**: [Link](https://rpp.pe/campanas/publirreportaje/prestamype-la-fintech-lider-del-pais-que-ofrece-prestamos-desde-s-15-mil-hasta-s-2-millones-noticia-1667334)
-
-
-### gustavo bueno (N/A, 19/12/2025 23:31 Lima)
-
-- **Final Al fondo hay sitio: Don Gilberto reapareció**: [Link](https://www.americatv.com.pe/al-fondo-hay-sitio/don-gilberto-reaparecio-afhs-olinda-noticia-161991)
-- **Gustavo Bueno: "Me siento nuevamente en casa"**: [Link](https://www.americatv.com.pe/al-fondo-hay-sitio/gustavo-bueno-sobre-su-regreso-me-siento-nuevamente-casa-noticia-162002)
-- **Olinda descubrirá el secreto de don Gilberto (AVANCE)**: [Link](https://www.americatv.com.pe/al-fondo-hay-sitio/olinda-descubrira-secreto-mejor-guardado-gilberto-avance-noticia-161936)
-
-
-### latina (N/A, 19/12/2025 23:31 Lima)
-
-- **Yo Soy EN VIVO 2025: Encuesta del REACT, Viernes 19 de Diciembre**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-en-vivo-2025-encuesta-del-react-viernes-19-de-diciembre_20251219/)
-- **Yo Soy EN VIVO 2025: Encuesta del REACT, Jueves 18 de Diciembre**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-en-vivo-2025-encuesta-del-react-jueves-18-de-diciembre_20251218/)
-- **Yo Soy EN VIVO 2025: Encuesta del REACT, Miércoles 17 de Diciembre**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-en-vivo-2025-encuesta-del-react-miercoles-17-de-diciembre_20251217/)
-
-
-### michael jackson (N/A, 19/12/2025 23:31 Lima)
-
-- **Live updates: The Jeffrey Epstein files released | CNN Politics**: [Link](https://www.cnn.com/politics/live-news/jeffrey-epstein-files-released)
-- **Epstein’s Victims Are Furious**: [Link](https://www.theatlantic.com/politics/2025/12/epstein-victims-trump-bondi-justice-department/685369/)
-- **Pam Bondi could be convicted of obstruction of justice over partial release of redacted Epstein files, Massie says – live**: [Link](https://www.theguardian.com/us-news/live/2025/dec/19/jeffrey-epstein-files-released-trump-administration)
 
 
