@@ -1,3 +1,72 @@
+### federico girotti (N/A, 23/12/2025 21:02 Lima)
+
+- **Delantero extranjero que Alianza Lima buscó, ya negocia con otro club: "Conversaciones"**: [Link](https://libero.pe/futbol-internacional/2025/12/22/alianza-lima-busco-delantero-negocia-otro-club-adrian-balboa-1541122)
+- **¿Peligra el fichaje de Federico Girotti por Alianza Lima? La revelación de Mr. Peet por el ‘9′ extranjero**: [Link](https://www.infobae.com/peru/deportes/2025/12/17/peligra-el-fichaje-de-federico-girotti-por-alianza-lima-la-revelacion-de-mr-peet-por-el-9-extranjero/)
+- **Mr. Peet revela que exdelantero de PSV podría reencontrarse con Paolo Guerrero en Alianza Lima: "Es una posibilidad"**: [Link](https://larepublica.pe/futbol-peruano/2025/12/17/mr-peet-revela-que-exdelantero-de-psv-podria-reencontrarse-con-paolo-guerrero-en-alianza-lima-es-una-posibilidad-854471)
+
+
+### caín fara (N/A, 23/12/2025 21:02 Lima)
+
+- **“Me llena de ilusión y compromiso”: Caín Fara reacciona a su fichaje con Universitario en redes sociales**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/universitario-cain-fara-reacciona-a-su-fichaje-en-redes-sociales-me-llena-de-ilusion-y-compromiso-video-noticia/)
+- **Mientras presentaban a Javier Rabanal como DT, en Argentina confirmaron a Caín fara como primer refuerzo de...**: [Link](https://bolavip.com/pe/universitario/mientras-presentaban-a-javier-rabanal-como-dt-en-argentina-confirmaron-a-cain-fara-como-primer-refuerzo-de-universitario)
+- **Defensor de Atlético Atlanta jugará en Universitario**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/atletico-atlanta-confirmo-que-defensor-jugara-universitario-cain-fara-n452073)
+
+
+### esto es guerra en vivo (N/A, 23/12/2025 21:02 Lima)
+
+- **¿Quién ganó la final de 'Esto es guerra' 2025 en diciembre y es el nuevo campeón de la temporada?**: [Link](https://larepublica.pe/espectaculos/2025/12/23/quien-gano-la-final-de-esto-es-guerra-2025-en-diciembre-y-es-el-nuevo-campeon-de-la-temporada-1265368)
+- **Romances, conflictos y condiciones extremas: así fue el camino a la gran final**: [Link](https://www.televisa.com/canal5/realities/el-conquistador-supervivencia-extrema/romances-conflictos-y-condiciones-extremas-asi-fue-el-camino-a-la-gran-final-video)
+- **Los 'Guerreros' se imponen a los 'Combatientes' en el primer día de la gran final de 'Esto es guerra' 2025**: [Link](https://larepublica.pe/espectaculos/2025/12/22/final-de-esto-es-guerra-2025-en-vivo-via-america-tvgo-a-que-hora-y-donde-ver-competencia-entre-guerreros-y-combatientes-en-eeg-hoy-1067220)
+
+
+### inkafarma sorteo (N/A, 23/12/2025 21:02 Lima)
+
+- **Inkafarma realiza sorteo de “Una casa o un millón” con presencia de notario público**: [Link](https://peru21.pe/peru/inkafarma-realiza-sorteo-de-una-casa-o-un-millon-con-presencia-de-notario-publico/)
+- **Inkafarma: Este martes conoceremos al ganador del sorteo millonario**: [Link](https://www.atv.pe/noticia/inkafarma-este-martes-conoceremos-al-ganador-del-sorteo-millonario/)
+
+
+### avanza pais plancha presidencial (N/A, 23/12/2025 21:02 Lima)
+
+- **Avanza País: Declaran inadmisible la plancha presidencial de José Williams, Fernán Altuve y Adriana Tudela**: [Link](https://www.infobae.com/peru/2025/12/23/avanza-pais-declaran-inadmisible-la-plancha-presidencial-de-jose-williams-fernan-altuve-y-adriana-tudela/)
+- **Avanza País subsana observaciones del JNE**: [Link](https://peru21.pe/politica/avanza-pais-subsana-observaciones-del-jne/)
+- **Adriana Tudela: “Desde mi punto de vista se la ha dado un poder desmedido al Senado” tlc nota | POLITICA**: [Link](https://elcomercio.pe/politica/adriana-tudela-desde-mi-punto-de-vista-se-la-ha-dado-un-poder-desmedido-al-senado-tlc-nota-noticia/)
+
+
+### zendaya (N/A, 23/12/2025 21:02 Lima)
+
+- **Zendaya Joins Fiancé Tom Holland and His Parents in Rare London Outing**: [Link](https://people.com/zendaya-joins-fiance-tom-holland-and-his-parents-in-rare-london-outing-11874949)
+- **Zendaya Chops Off Her Hair for a Striking New Bixie Cut**: [Link](https://www.aol.com/articles/zendaya-chops-off-her-hair-151200716.html)
+- **Zendaya's New Bob Will Make You Want To Book A Haircut**: [Link](https://www.thezoereport.com/culture/zendaya-chocolate-brown-bob)
+
+
+### fa cup (N/A, 23/12/2025 21:02 Lima)
+
+- **WOMEN'S CUP GAME ABANDONED**: [Link](https://www.cu-fc.com/news/2025/december/23/women-s-cup-game-abandoned/)
+- **FA make final decision on Colchester United Women's abandoned cup-tie**: [Link](https://www.gazette-news.co.uk/sport/25721795.fa-make-decision-colchester-united-womens-abandoned-tie/)
+- **Colchester United Women’s Victory Over Braintree Athletic Confirmed by FA**: [Link](https://news.ssbcrack.com/colchester-united-womens-victory-over-braintree-athletic-confirmed-by-fa/)
+
+
+### guimaraes vs (N/A, 23/12/2025 21:02 Lima)
+
+- **Pronóstico Vitoria Guimaraes - Sporting. Primeira Liga | 23/12/2025**: [Link](https://gainblers.com/pe/pronosticos/futbol/portugal/primeira-liga/pronostico-vitoria-guimaraes-sporting-23-12-2025/)
+- **Bengals glimpse hope defensively with Al Golden's unit vs. Dolphins**: [Link](https://ca.sports.yahoo.com/news/bengals-glimpse-hope-defensively-al-195636254.html)
+- **Bengals D/ST logs two interceptions Sunday**: [Link](https://www.fantasypros.com/nfl/news/561067/bengals-dst-logs-two-interceptions-sunday.php)
+
+
+### arsenal football club (N/A, 23/12/2025 21:02 Lima)
+
+- **Inside Training: Havertz is back! | Video | News**: [Link](https://www.arsenal.com/news/inside-training-havertz-back)
+- **Arsenal star suffers frustrating injury setback after being just 'one week away' from recovery - as new expected return date is set**: [Link](https://www.dailymail.co.uk/sport/football/article-15396479/Arsenal-star-suffers-frustrating-injury-setback.html)
+- **Arsenal release three-word injury update as Mikel Arteta huge step closer to dream scenario**: [Link](https://www.mirror.co.uk/sport/football/news/arsenal-injury-latest-kai-havertz-36444222)
+
+
+### liga peruana de vóley (N/A, 23/12/2025 21:02 Lima)
+
+- **La nueva sanción contra Alianza Lima en medio de su polémica en el partido ante Universitario por Liga Peruana de Vóley 2025/2026**: [Link](https://www.infobae.com/peru/deportes/2025/12/23/la-nueva-sancion-contra-alianza-lima-en-medio-de-su-polemica-en-el-partido-ante-universitario-por-liga-peruana-de-voley-20252026/)
+- **¿Alianza perderá los puntos y Universitario será el ganador? ¿Qué dice el reglamento? Cinco respuestas a la polémica del clásico en el vóley**: [Link](https://elcomercio.pe/deporte-total/polideportivo/liga-peruana-de-voley-alianza-lima-perdera-los-puntos-y-universitario-sera-el-ganador-que-dice-el-reglamento-cinco-respuestas-a-la-polemica-del-clasico-en-el-voley-tlcnota-noticia/)
+- **Así reaccionaron las voleibolistas de Alianza Lima tras ver error de su DT ante Universitario**: [Link](https://bolavip.com/pe/voley/asi-reaccionaron-las-voleibolistas-de-alianza-lima-tras-ver-error-de-su-dt-ante-universitario)
+
+
 ### sporting lisboa (N/A, 23/12/2025 15:28 Lima)
 
 - **Vitória de Guimarães x Sporting Palpite – Onde Assistir, Hora e Escalações 23-12**: [Link](https://onefootball.com/pt-br/apostas/palpites/futebol/vitoria-de-guimaraes-x-sporting-23-12)
@@ -959,76 +1028,5 @@ battle with Leeds**: [Link](https://www.vavel.com/en/football/2025/12/19/crystal
 - **José Zafra rompe su silencio y responde qué hay entre Laura Spoya y él: “No tienen por qué escarbar”**: [Link](https://trome.com/espectaculos/tv/laura-spoya-jose-zafra-rompe-su-silencio-y-responde-que-hay-entre-ellos-tras-ser-vinculados-no-tienen-por-que-escarbar-foto-video-farandula-noticia/)
 - **José Zafra, dueño de Cochinola, rompe su silencio tras imágenes con Laura Spoya: "Es mi pata"**: [Link](https://www.atv.pe/noticia/jose-zafra-dueno-de-cochinola-rompe-su-silencio-tras-imagenes-con-laura-spoya-es-mi-pata/)
 - **José Zafra, empresario vinculado con Laura Spoya, se pronuncia sobre rumores de citas: "Ella es mi pata"**: [Link](https://larepublica.pe/espectaculos/2025/12/19/jose-zafra-empresario-vinculado-a-laura-spoya-se-pronuncia-sobre-rumores-de-citas-ella-es-mi-pata-mdga-359727)
-
-
-### tottenham vs. liverpool (N/A, 20/12/2025 15:26 Lima)
-
-- **Isak injures ankle in act of scoring for Liverpool against Tottenham**: [Link](https://infonews.ca/news/7471574/isak-injures-ankle-in-act-of-scoring-for-liverpool-against-tottenham/)
-- **'Like playing with 10 men': Fans want Arne Slot to take one Liverpool player off at half-time against Tottenham**: [Link](https://tribuna.com/en/blogs/like-playing-with-10-men-fans-want-arne-slot-to-take-one-liv/)
-- **Tottenham host Liverpool in pivotal North London Premier League clash**: [Link](https://www.dawan.africa/news/tottenham-host-liverpool-in-pivotal-north-london-premier-league-clash)
-
-
-### osasuna vs (N/A, 20/12/2025 15:26 Lima)
-
-- **LaLiga EA Sports: Osasuna y Alavés se encuentran en la fecha 17**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-osasuna-y-alaves-se-encuentran-en-la-fecha-17-noticia-1668546)
-- **Pronóstico Osasuna - Alavés. LaLiga | 20/12/2025**: [Link](https://gainblers.com/pe/pronosticos/futbol/espana/liga-primera-division/pronostico-osasuna-alaves-20-12-2025/)
-- **Osasuna - Alavés live**: [Link](https://www.marca.com/en/soccer/laliga-ea-sports/osasuna-alaves/2025/12/20/01_0101_20251220_450_173-live.html)
-
-
-### tottenham (N/A, 20/12/2025 15:26 Lima)
-
-- **Tottenham vs. Liverpool EN VIVO ONLINE: a qué hora juegan y en qué canales ver partido por Premier League**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/tottenham-vs-liverpool-en-vivo-horarios-canales-tv-y-donde-ver-partido-por-premier-league-noticia/)
-- **Predicciones de la Premier League: Chris Sutton vs el rapero zambiano Sampa the Great – e inteligencia artificial**: [Link](https://www.elpueblo.pe/deportes/predicciones-de-la-premier-league-chris-sutton-vs-el-rapero-zambiano-sampa-the-great-e-inteligencia-artificial/171929/)
-- **Premier League: Por la fecha 17, Tottenham recibirá a Liverpool**: [Link](https://rpp.pe/futbol/ligas-internacionales/premier-league-por-la-fecha-17-tottenham-recibira-a-liverpool-noticia-1668545)
-
-
-### wolves vs (N/A, 20/12/2025 11:30 Lima)
-
-- **Wolves issue Hugo Bueno injury update ahead of Brentford showdown**: [Link](https://www.molineux.news/news/wolves-issue-hugo-bueno-injury-update-ahead-of-brentford-showdown/)
-- **Use Tote promo code ‘B10G40’ to grab £40 in bonus bets ahead of Wolves vs Brentford**: [Link](https://talksport.com/betting/3835469/wolves-vs-brentford-tote-free-bets/)
-- **Fantasy Premier League Q&A with expert Gianni Buttice - send us your questions**: [Link](https://www.bbc.co.uk/sport/football/live/c23e9rrvznyt?page=3)
-
-
-### brighton (N/A, 20/12/2025 11:30 Lima)
-
-- **Régis Le Bris on squad depth and facing Brighton**: [Link](https://www.safc.com/news/2025/december/19/r-gis-le-bris--on-squad-depth-and-facing-brighton/)
-- **The Early Bird: Weekend football predictions & free betting accumulator tips from James Milton**: [Link](https://www.racingpost.com/sport/football-tips/the-early-bird-weekend-football-predictions-free-betting-accumulator-tips-from-james-milton-aw3IK8B7ppD4/)
-- **Fabian Hurzeler backs a ‘strong squad’ to respond to key absence
-against Sunderland**: [Link](https://www.vavel.com/en/football/2025/12/19/brighton-hove-albion/1245058-fabian-hurzeler-backs-a-strong-squad-to-respond-to-key-absenceagainst-sunderlandthe-seagulls-seek-their-first-win-in-december-without-the-clubcaptain.html)
-
-
-### copa de francia (N/A, 20/12/2025 11:30 Lima)
-
-- **Pronóstico Fontenay LCVF PSG - Copa de Francia 20/12/25**: [Link](https://www.sportytrader.com/es/pronosticos/fontenay-lcvf-psg-313142/)
-- **PSG inicia defensa de título en Copa Francia de fútbol**: [Link](https://www.prensa-latina.cu/2025/12/20/psg-inicia-defensa-de-titulo-en-copa-francia-de-futbol/)
-- **Así se juega una nueva jornada de la Copa Francia: horarios, formaciones y donde ver en vivo**: [Link](https://www.directvsports.com/futbol/asi-se-juega-una-nueva-jornada-de-la-copa-francia-horarios-formaciones-y-donde-ver-en-vivo-20251219-0006.html)
-
-
-### levante vs (N/A, 20/12/2025 11:30 Lima)
-
-- **Levante - Real Sociedad, en directo: LaLiga EA Sports, en vivo hoy**: [Link](https://as.com/futbol/primera/levante-real-sociedad-en-directo-laliga-ea-sports-en-vivo-f202512-d/)
-- **Levante - Real Sociedad, en directo | LaLiga EA Sports, hoy en vivo**: [Link](https://www.marca.com/futbol/laliga-ea-sports/levante-real-sociedad/2025/12/20/01_0101_20251220_855_188-directo.html)
-- **Sequía goleadora en el Levante: un solo gol en cinco encuentros agrava la crisis ofensiva**: [Link](https://www.superdeporte.es/levante-ud/2025/12/18/sequia-goleadora-levante-gol-cinco-laliga-124936459.html)
-
-
-### manchester city - west ham (N/A, 20/12/2025 11:30 Lima)
-
-- **Premier League: Haaland double as Man City cruise, Brentford and Bournemouth also lead**: [Link](https://www.bbc.com/sport/football/live/cy9pwyyjg9jt)
-- **City without injured quartet for Hammers clash**: [Link](https://www.mancity.com/news/mens/manchester-city-v-west-ham-pep-guardiola-injury-update-1-63901743)
-- **Starting XI | Walker-Peters, Scarles and Kilman come in at Manchester City**: [Link](https://www.whufc.com/en/news/starting-xi-or-walker-peters-scarles-and-kilman-come-in-at-manchester-city)
-
-
-### fenerbahçe (N/A, 20/12/2025 11:30 Lima)
-
-- **Tedesco yıldız ismi riske etmedi: Altyapıdan 2 isim kadroda**: [Link](https://www.nefes.com.tr/tedesco-yildiz-ismi-riske-etmedi-altyapidan-2-isim-kadroda-90028)
-- **Fenerbahçe Eyüpspor’u 3-0 mağlup etti: Maç fazlasıyla liderliğe yükseldi**: [Link](https://ww2.kibrispostasi.com/c41-SPOR/n586245-fenerbahce-eyupsporu-30-maglup-etti-mac-fazlasiyla-liderlige-yukseldi)
-- **Fenerbahçe rahat kazandı**: [Link](https://t24.com.tr/yazarlar/melih-gumusbicak/fenerbahce-rahat-kazandi,52938)
-
-
-### real oviedo vs (N/A, 20/12/2025 11:30 Lima)
-
-- **Luka Ilic vs. RC Celta de Vigo – Player props & odds to score a goal on December 20**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/12/19/luka-ilic-soccer-player-props-12-20-2025/87853412007/)
-- **Oviedo - Celta live**: [Link](https://www.marca.com/en/soccer/laliga-ea-sports/oviedo-celta/2025/12/20/01_0101_20251220_187_176-live.html)
-- **Real Oviedo vs Celta Vigo: Prediction, Preview and Team News – 20/12/25**: [Link](https://ghanasoccernet.com/bookmaker-ratings/tips/real-oviedo-vs-celta-vigo-prediction-preview-and-team-news-20-12-25/)
 
 
