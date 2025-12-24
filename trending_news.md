@@ -1,3 +1,73 @@
+### daniel curtis lee (N/A, 24/12/2025 11:32 Lima)
+
+- **Former Nickelodeon Star Tylor Chase Refusing Treatment, Housing From Police**: [Link](https://www.tmz.com/2025/12/22/nickelodeon-star-tylor-chase-refuses-treatment-housing/)
+- **Tylor Chase’s Life Takes A Turn After A Former Costar Reaches Out**: [Link](https://www.yahoo.com/entertainment/celebrity/articles/tylor-chase-life-takes-turn-160010629.html)
+- **Former 'Ned's Declassified' actor Tylor Chase offered help from Shaun Weiss after viral video**: [Link](https://abc7.com/post/former-neds-declassified-actor-tylor-chase-offered-help-shaun-weiss-viral-video/18309390/)
+
+
+### cena navideña (N/A, 24/12/2025 11:32 Lima)
+
+- **Nicolás Maduro, entre gaitas y timbales: cena navideña, baile y un mensaje desafiante a Trump**: [Link](https://www.clarin.com/mundo/nicolas-maduro-gaitas-timbales-cena-navidena-baile-mensaje-desafiante-trump_0_gPR6kIPD6K.html)
+- **Nicolás Maduro encabezó cena navideña en Caracas por “la paz y felicidad” en medio de tensiones con EE.UU. [FOTOS]**: [Link](https://rpp.pe/mundo/venezuela/nicolas-maduro-encabezo-cena-navidena-en-caracas-por-la-paz-y-felicidad-en-medio-de-tensiones-con-eeuu-fotos-noticia-1669090)
+- **Inicia el hallacazo🎄 #venezuela #hallaca #paz #alegría #viralvideo**: [Link](https://www.instagram.com/reel/DSpRUgDEcy_/)
+
+
+### al-nassr - al-zawraa sport club (N/A, 24/12/2025 11:32 Lima)
+
+- **Juega Cristiano Ronaldo EN VIVO y GRATIS Al Nassr vs. Al Zawraa por la AFC Champions League Two: minuto a m...**: [Link](https://bolavip.com/pe/futbol-internacional/juega-cristiano-ronaldo-en-vivo-y-gratis-al-nassr-vs-al-zawraa-por-la-afc-champions-league-two-minuto-a-minuto)
+- **Al-Nassr vs. Al-Zawraa en vivo con Cristiano Ronaldo: horario, canal TV y dónde ver transmisión**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/al-nassr-vs-al-zawraa-en-vivo-hoy-con-cristiano-ronaldo-via-disney-plus-espn-futbol-libre-tv-a-que-hora-juegan-canal-que-transmite-y-donde-ver-por-copa-afc-video-noticia/)
+- **FIFA sancionó a Al-Nassr de Cristiano Ronaldo y genera impacto en Arabia Saudita**: [Link](https://www.eldiez.com.pe/internacional/fifa-sanciono-a-al-nassr-de-cristiano-ronaldo-y-genera-impacto-en-arabia-saudita-noticia/)
+
+
+### algeria vs (N/A, 24/12/2025 11:32 Lima)
+
+- **How and Where to Watch Algeria vs. Sudan at AFCON 2025 on beIN SPORTS**: [Link](https://www.beinsports.com/en-us/soccer/africa-cup-of-nations/articles/how-and-where-to-watch-algeria-vs-sudan-at-afcon-2025-on-bein-sports-2025-12-23)
+- **Algeria and Sudan to meet for the first time at TotalEnergies CAF AFCON finals on Wednesday**: [Link](https://www.cafonline.com/afcon2025/news/algeria-and-sudan-to-meet-for-the-first-time-at-totalenergies-caf-afcon-finals-on-wednesday/)
+- **Morocco Africa Cup of Nations Soccer**: [Link](https://www.wvnews.com/sports/pro/morocco-africa-cup-of-nations-soccer/image_0683473f-2d92-58d4-90ae-f43163440c71.html)
+
+
+### sebastian hertner (N/A, 24/12/2025 11:32 Lima)
+
+- **Luto en vísperas de Navidad: futbolista alemán Sebastian Hertner murió tras caer 70 metros de un teleférico**: [Link](https://rpp.pe/futbol/futbol-mundial/sebastian-hertner-futbolista-aleman-murio-a-los-34-anos-tras-caer-70-metros-de-un-teleferico-en-montenegro-noticia-1669097)
+- **Futbolista alemán Sebastian Hertner murió en sus vacaciones: Los detalles del accidente que sufrió**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/futbolista-aleman-sebastian-hertner-murio-en-sus-vacaciones-los-detalles-del-accidente-que-sufrio-noticia/)
+- **Alemania: Futbolista Sebastian Hertner muere al caer de una telesilla, a unos 70 metros de altura**: [Link](https://trome.com/deportes/futbol-internacional/alemania-futbolista-sebastian-hertner-muere-al-caer-de-una-telesilla-a-unos-70-metros-de-altura-noticia/)
+
+
+### burkina faso (N/A, 24/12/2025 11:32 Lima)
+
+- **CAN 2025 : en supériorité numérique, le Burkina Faso renverse tout dans le temps additionnel contre la Guinée équatoriale**: [Link](https://www.lequipe.fr/Football/Actualites/Can-2025-en-superiorite-numerique-le-burkina-faso-renverse-tout-dans-le-temps-additionnel-contre-la-guinee-equatoriale/1629343)
+- **CAN 2025 – Guinée Équatoriale : Basilio Ndong écope du premier carton rouge du tournoi**: [Link](https://africafootunited.com/can-2025-guinee-equatoriale-basilio-ndong-ecope-du-premier-carton-rouge-du-tournoi/)
+- **Afrique: Burkina / Guinée Équatoriale - Gagner pour mieux entrer dans la danse**: [Link](https://fr.allafrica.com/stories/202512240139.html)
+
+
+### villancicos navideños (N/A, 24/12/2025 11:32 Lima)
+
+- **Navidad 2025: las 10 canciones imprescindibles para llenar de alegría este 25 de diciembre**: [Link](https://elcomercio.pe/respuestas/cual/navidad-2025-las-10-canciones-imprescindibles-para-llenar-de-alegria-este-25-de-diciembre-tdpe-noticia/)
+- **Los clásicos navideños que no pueden faltar en tu playlist de Nochebuena, según la IA**: [Link](https://www.canal26.com/tecnologia/2025/12/24/los-clasicos-navidenos-que-no-pueden-faltar-en-tu-playlist-de-nochebuena-segun-la-ia/)
+- **¿La música navideña te vuelve loco? Por qué las listas de reproducción navideñas están en todas partes**: [Link](https://noticiashuesca.com/economia/la-musica-navidena-te-vuelve-loco-por-que-las-listas-de-reproduccion-navidenas-estan-en-todas-partes/181210/)
+
+
+### santa tracker (N/A, 24/12/2025 11:32 Lima)
+
+- **Where is Santa right now? NORAD tracker maps his 2025 Christmas flight**: [Link](https://www.cbsnews.com/news/santa-tracker-2025/)
+- **Santa tracker 2025: Follow his Christmas Eve trip using NORAD, Google**: [Link](https://www.usatoday.com/story/news/nation/2025/12/24/santa-tracker-2025-norad-google/87901243007/)
+- **December 23, 2025**: [Link](https://heathercoxrichardson.substack.com/p/december-23-2025)
+
+
+### feriados diciembre 2025 (N/A, 24/12/2025 11:32 Lima)
+
+- **Es oficial: ¿Hoy 24 de diciembre es feriado en Perú? Esto marca la norma vigente**: [Link](https://www.infobae.com/peru/2025/12/23/manana-24-de-diciembre-es-feriado-en-peru-conoce-lo-que-dice-la-norma-vigente/)
+- **¿Feriado largo por Navidad y Año Nuevo?: Esto dice el calendario oficial**: [Link](https://latinanoticias.pe/tendencias/habra-feriado-largo-por-navidad-y-ano-nuevo-esto-dice-el-calendario-y-la-ley_20251219/)
+- **Navidad: el viernes 26 de diciembre será día no laborable ¿para quiénes aplica?**: [Link](https://andina.pe/agencia/noticia-navidad-viernes-26-diciembre-sera-dia-no-laborable-para-quienes-aplica-1055080.aspx)
+
+
+### camerun vs gabon (N/A, 24/12/2025 11:32 Lima)
+
+- **Carlos Baleba: Brighton and Cameroon midfielder hoping to light up the Africa Cup of Nations**: [Link](https://www.skysports.com/football/news/11095/13486916/carlos-baleba-brighton-and-cameroon-midfielder-hoping-to-light-up-the-africa-cup-of-nations)
+- **AFCON 2025 : Onana Sends Powerful Message to Indomitable Lions Ahead of Gabon Clash**: [Link](https://en.africatopsports.com/2025/12/23/afcon-2025-onana-sends-powerful-message-to-indomitable-lions-ahead-of-gabon-clash/)
+- **After football World Cup exit and coaching shake-up, Cameroon braces for AFCON challenge**: [Link](https://www.france24.com/en/video/20251224-after-football-world-cup-exit-and-coaching-shake-up-cameroon-braces-for-afcon-challenge)
+
+
 ### té (N/A, 24/12/2025 07:53 Lima)
 
 - **Este es el té que produce colágeno y combate las arrugas de la cara**: [Link](https://www.laprensagrafica.com/salud/este-es-el-te-que-produce-colageno-y-combate-las-arrugas-de-la-cara-20251222-0027.html)
@@ -956,75 +1026,5 @@ Sin noticias relacionadas disponibles.
 - **Luka Doncic exits Lakers game with leg injury**: [Link](https://apnews.com/article/luka-doncic-hurt-lakers-03b8050cc7b45d4866b3fc66a22b1a4c)
 - **Doncic and Zubac hurt during LA clash, Jokic surrenders to Rockets**: [Link](https://www.eurohoops.net/en/nba-news/1910031/luka-doncic-left-leg-contusion-los-angeles-lakers-nba/)
 - **LeBron, Lakers Disappoint NBA Fans in Loss to James Harden, Clippers as Luka Injured**: [Link](https://bleacherreport.com/articles/25335028-lebron-lakers-disappoint-nba-fans-loss-james-harden-clippers-luka-injured)
-
-
-### diana sanchez (N/A, 20/12/2025 23:40 Lima)
-
-- **Imitador de Josimar se PRONUNCIA tras su ELIMINACIÓN en Yo Soy: “Muchas gracias a todos… Mil disculpas si en algo les fallé, si algún error cometí”**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/imitador-de-josimar-se-pronuncia-tras-su-eliminacion-en-yo-soy-muchas-gracias-a-todos-mil-disculpas-si-en-algo-les-falle-si-algun-error-cometi_20251219/)
-- **Diana Sánchez rompe en llanto tras eliminación del imitador de Josimar en ‘Yo soy’ y él le seca las lágrimas: “No me gusta que la gente llore”**: [Link](https://larepublica.pe/espectaculos/2025/12/19/diana-sanchez-rompe-en-llanto-tras-eliminacion-del-imitador-de-josimar-en-yo-soy-y-el-le-seca-las-lagrimas-no-me-gusta-que-la-gente-llore-427101)
-- **“Yo soy”: Imitador de Josimar es eliminado a poco del final de temporada**: [Link](https://elcomercio.pe/tvmas/farandula/yo-soy-imitador-de-josimar-es-eliminado-a-poco-del-final-de-temporada-latina-ultimas-noticia/)
-
-
-### pamela franco (N/A, 20/12/2025 23:40 Lima)
-
-- **Vanessa manda fuerte misil: “Pamela Franco quiere casarse”**: [Link](https://trome.com/espectaculos/tv/vanessa-pumarica-manda-fuerte-misil-pamela-franco-quiere-casarse-christian-cueva-video-fotos-farandula-noticia/)
-- **Christian Cueva lloró con mensajes de sus papás en TV**: [Link](https://www.americatv.com.pe/esta-noche/christian-cueva-lloro-emotivos-mensajes-sus-padres-tv-noticia-162020)
-- **"Todo es mentira": Cueva lanza explosivas declaraciones sobre su vida sentimental**: [Link](https://peru21.pe/espectaculos/todo-es-mentira-cueva-lanza-explosivas-declaraciones-sobre-su-vida-sentimental/)
-
-
-### kick (N/A, 20/12/2025 23:40 Lima)
-
-- **Atro shows the power of streamers switching to Kick**: [Link](https://win.gg/atro-streamers-switching-to-kick/)
-- **What really happened when Kick streamer Clavicular was forced to the ground and arrested live on stream?**: [Link](https://timesofindia.indiatimes.com/world/us-streamers/what-really-happened-when-kick-streamer-clavicular-was-forced-to-the-ground-and-arrested-live-on-stream/articleshow/126100427.cms)
-- **Why was Kick streamer Clavicular swatted and detained during a Miami IRL livestream?**: [Link](https://timesofindia.indiatimes.com/world/us-streamers/why-was-kick-streamer-clavicular-swatted-and-detained-during-a-miami-irl-livestream/articleshow/126086797.cms)
-
-
-### franco cabrera (N/A, 20/12/2025 23:40 Lima)
-
-- **Franco Cabrera recibe sorpresa por su cumpleaños en la final de 'Yo Soy' 2025: “No me esperaba esto”**: [Link](https://larepublica.pe/espectaculos/2025/12/20/franco-cabrera-recibe-sorpresa-por-su-cumpleanos-en-la-final-de-yo-soy-2025-no-esperaba-1800300)
-- **Gran Final de ‘Yo Soy 2025′: minuto a minuto de la última gala de Michael Jackson, Green Day y Alejandra Guzmán**: [Link](https://www.infobae.com/peru/2025/12/20/gran-final-de-yo-soy-2025-minuto-a-minuto-de-todos-los-detalles-de-la-ultima-gala-de-michael-jackson-green-day-y-alejandra-guzman-por-latina/)
-- **imitadora de Michael Jackson se SINCERA en la penúltima noche de competencia: “Llevo mucho tiempo lejos de mi familia, escucharlos ha sido recordar todo mi recorrido”**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/imitadora-de-michael-jackson-se-sincera-en-la-penultima-noche-de-competencia-llevo-mucho-tiempo-lejos-de-mi-familia-escucharlos-ha-sido-recordar-todo-mi-recorrido_20251220/)
-
-
-### el gran diluvio (N/A, 20/12/2025 23:40 Lima)
-
-- **Final explicado de “El Gran Diluvio”: cuál es la verdadera misión de An-na y qué pasó con Ja-in**: [Link](https://elcomercio.pe/mag/fama/que-ver/el-gran-diluvio-final-explicado-de-la-pelicula-coreana-the-great-flood-video-nnda-nnlt-noticia/)
-- **“El Gran Diluvio”: las películas y series que puedes ver en Netflix después de “The Great Flood”**: [Link](https://gestion.pe/mix/tendencias-mix/el-gran-diluvio-las-peliculas-y-series-que-puedes-ver-en-netflix-despues-de-the-great-flood-nnda-nnlt-noticia/)
-- **El gran diluvio: Todo lo que debes saber sobre la película coreana de Netflix**: [Link](https://www.gq.com.mx/articulo/pelicula-el-gran-diluvio-de-que-trata-reparto-trailer-donde-verla)
-
-
-### michael jackson (N/A, 20/12/2025 23:40 Lima)
-
-- **What’s inside the Epstein files released by the Justice Department**: [Link](https://www.cnn.com/2025/12/20/politics/jeffrey-epstein-files-released-doj)
-- **Epstein Files Photos Disappear From Government Website, Including One of Trump**: [Link](https://www.nytimes.com/2025/12/20/us/politics/trump-epstein-files-government-website.html)
-- **‘They’re Delusional If They Think This Is Going to Go Away’**: [Link](https://www.theatlantic.com/politics/2025/12/epstein-victims-trump-bondi-justice-department/685369/)
-
-
-### alejandra guzmán (N/A, 20/12/2025 23:40 Lima)
-
-- **Imitadora de Alejandra Guzmán a UN DÍA de la GRAN FINAL: “El sacrificio más fuerte ha sido separarme de mis hijos”**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/imitadora-de-alejandra-guzman-a-un-dia-de-la-gran-final-el-sacrificio-mas-fuerte-ha-sido-separarme-de-mis-hijos_20251220/)
-- **Yo Soy EN VIVO 2025: imitadora de Alejandra Guzmán ROMPE el escenario con “Reina de Corazones”**: [Link](https://www.latina.pe/entretenimiento/yo-soy/programas-completos-yo-soy/yo-soy-en-vivo-2025-imitadora-de-alejandra-guzman-rompe-el-escenario-con-reina-de-corazones_20251219/)
-- **Yo Soy EN VIVO 2025: imitadora de Alejandra Guzmán hace CANTAR al público junto a ella con “Día de Suerte”**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-en-vivo-2025-imitadora-de-alejandra-guzman-hace-cantar-al-publico-junto-a-ella-con-dia-de-suerte_20251219/)
-
-
-### green day (N/A, 20/12/2025 23:40 Lima)
-
-- **Gran Final de ‘Yo Soy 2025′: minuto a minuto de la última gala de Michael Jackson, Green Day y Alejandra Guzmán**: [Link](https://www.infobae.com/peru/2025/12/20/gran-final-de-yo-soy-2025-minuto-a-minuto-de-todos-los-detalles-de-la-ultima-gala-de-michael-jackson-green-day-y-alejandra-guzman-por-latina/)
-- **imitadora de Michael Jackson se SINCERA en la penúltima noche de competencia: “Llevo mucho tiempo lejos de mi familia, escucharlos ha sido recordar todo mi recorrido”**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/imitadora-de-michael-jackson-se-sincera-en-la-penultima-noche-de-competencia-llevo-mucho-tiempo-lejos-de-mi-familia-escucharlos-ha-sido-recordar-todo-mi-recorrido_20251220/)
-- **Gran final de ‘Yo soy’ 2025 en vivo: Imitadores de Michael Jackson, Alejandra Guzmán y Green Day compiten por el título**: [Link](https://larepublica.pe/espectaculos/2025/12/20/final-de-yo-soy-2025-segunda-temporada-en-vivo-horario-canal-en-vivo-y-como-ver-el-ultimo-programa-por-latina-television-1269882)
-
-
-### latina noticias (N/A, 20/12/2025 23:40 Lima)
-
-- **lunes 15 de diciembre**: [Link](https://latinanoticias.pe/noticias/latina-noticias-edicion-mediodia-encuesta-de-hoy-lunes-15-de-diciembre_20251215/)
-- **Fernando Rospigliosi: Se requiere soluciones radicales contra la criminalidad**: [Link](https://comunicaciones.congreso.gob.pe/noticias/fernando-rospigliosi-se-requiere-soluciones-radicales-contra-la-criminalidad/)
-- **¿Quién mató a regidora? Elena Rojas denunciaba corrupción en el municipio de Chicama**: [Link](https://www.atv.pe/noticia/quien-mato-a-regidora-elena-rojas-denunciaba-corrupcion-en-el-municipio-de-chicama/)
-
-
-### latina en vivo (N/A, 20/12/2025 23:40 Lima)
-
-- **Yo Soy EN VIVO 2025: Encuesta del REACT, Sábado 20 de Diciembre**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-en-vivo-2025-encuesta-del-react-viernes-19-de-diciembre-2_20251220/)
-- **Yo Soy EN VIVO 2025: Encuesta del REACT, Viernes 19 de Diciembre**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-en-vivo-2025-encuesta-del-react-viernes-19-de-diciembre_20251219/)
-- **Yo Soy EN VIVO 2025: Encuesta del REACT, Jueves 18 de Diciembre**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-en-vivo-2025-encuesta-del-react-jueves-18-de-diciembre_20251218/)
 
 
