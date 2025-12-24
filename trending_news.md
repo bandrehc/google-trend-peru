@@ -1,3 +1,44 @@
+### spurs - thunder (N/A, 23/12/2025 23:39 Lima)
+
+- **OKC shrugs off loss, 'excited' to have challenge**: [Link](https://www.espn.com/nba/story/_/id/47301200/thunder-shrug-loss-spurs-excited-challenge)
+- **BetMGM Bonus Code NEWSWEEK: Claim $1,500 Bonus For NBA Xmas Week Games**: [Link](https://www.newsweek.com/sports/betting/betmgm-bonus-code-newsweek-claim-1500-bonus-for-nba-xmas-week-games-11262830)
+- **It’s time for Basketball: Spurs vs Oklahoma City Thunder**: [Link](https://www.poundingtherock.com/general/91854/its-time-for-basketball-spurs-vs-oklahoma-city-thunder)
+
+
+### burkina faso vs (N/A, 23/12/2025 23:39 Lima)
+
+- **CAN 2025: Probable lineups Burkina Faso – Equatorial Guinea**: [Link](https://sports.yahoo.com/articles/2025-probable-lineups-burkina-faso-173000890.html)
+- **Stallions and National Thunder meet for only second time at AFCON - 2025 Africa Cup of Nations - Burkina Faso**: [Link](https://africanfootball.com/news/834277/Stallions-and-National-Thunder-meet-for-only-second-time-at-AFCON)
+- **Football accumulator tips for Wednesday December 24: Back our acca at 11-1 with bet365**: [Link](https://www.racingpost.com/sport/football-tips/football-acca-tips/football-accumulator-tips-for-wednesday-december-24-back-our-acca-at-11-1-with-bet365-arqdl5N3JXMb/)
+
+
+### suns - lakers (N/A, 23/12/2025 23:39 Lima)
+
+- **Austin Reaves Cleared To Return For Lakers**: [Link](https://www.hoopsrumors.com/2025/12/austin-reaves-cleared-to-return-for-lakers.html)
+- **TST Best Bets- December 23, 2025**: [Link](https://www.thesportingtribune.com/2025/12/23/best-best-dec23-2025)
+- **Dillon Brooks scores 25, Suns dominate Luka-less Lakers for a 132-108 victory**: [Link](https://www.cbssports.com/nba/news/dillon-brooks-scores-25-suns-dominate-luka-less-lakers-for-a-132-108-victory/)
+
+
+### esto es guerra (N/A, 23/12/2025 23:39 Lima)
+
+- **¿Quién ganó la final de 'Esto es guerra' 2025 en diciembre y es el nuevo campeón de la temporada?**: [Link](https://larepublica.pe/espectaculos/2025/12/23/quien-gano-la-final-de-esto-es-guerra-2025-en-diciembre-y-es-el-nuevo-campeon-de-la-temporada-1265368)
+- **Romances, conflictos y condiciones extremas: así fue el camino a la gran final**: [Link](https://www.televisa.com/canal5/realities/el-conquistador-supervivencia-extrema/romances-conflictos-y-condiciones-extremas-asi-fue-el-camino-a-la-gran-final-video)
+- **'Esto es guerra' 2025: Los 'Combatientes' se consagran campeones de la temporada tras vencer a los 'Guerreros'**: [Link](https://larepublica.pe/espectaculos/2025/12/23/esto-es-guerra-2025-los-combatientes-se-consagran-campeones-de-la-temporada-tras-vencer-a-los-guerreros-1596407)
+
+
+### costa de marfil vs (N/A, 23/12/2025 23:39 Lima)
+
+- **Pronóstico Costa de Marfil Mozambique - CAN 24/12/25**: [Link](https://www.sportytrader.com/es/pronosticos/costa-de-marfil-mozambique-313777/)
+- **Cómo y dónde ver: Costa de Marfil vs. Mozambique en la AFCON 2025 por beIN SPORTS**: [Link](https://www.beinsports.com/es-us/football/copa-africana-de-naciones/articles/c%C3%B3mo-y-d%C3%B3nde-ver-costa-de-marfil-vs-mozambique-en-la-afcon-2025-por-bein-sports-2025-12-23)
+- **Costa de Marfil vs Mozambique Pronóstico y Apuestas | 24/12/25**: [Link](https://www.apuestas-deportivas.es/pronostico/costa-de-marfil-mozambique-pronostico-copa-africana-de-naciones-24-12-2025/)
+
+
+### ganador de inkafarma (N/A, 23/12/2025 23:39 Lima)
+
+- **Inkafarma realiza sorteo de “Una casa o un millón” con presencia de notario público**: [Link](https://peru21.pe/peru/inkafarma-realiza-sorteo-de-una-casa-o-un-millon-con-presencia-de-notario-publico/)
+- **Inkafarma: Este martes conoceremos al ganador del sorteo millonario**: [Link](https://www.atv.pe/noticia/inkafarma-este-martes-conoceremos-al-ganador-del-sorteo-millonario/)
+
+
 ### federico girotti (N/A, 23/12/2025 21:02 Lima)
 
 - **Delantero extranjero que Alianza Lima buscó, ya negocia con otro club: "Conversaciones"**: [Link](https://libero.pe/futbol-internacional/2025/12/22/alianza-lima-busco-delantero-negocia-otro-club-adrian-balboa-1541122)
@@ -985,48 +1026,5 @@ Sin noticias relacionadas disponibles.
 - **Juve, la formazione ufficiale contro la Roma: le scelte di Spalletti**: [Link](https://www.tuttosport.com/news/calcio/serie-a/juventus/2025/12/20-145343917/juve_la_formazione_ufficiale_contro_la_roma_le_scelte_di_spalletti)
 - **Juventus-Roma, il risultato in diretta LIVE**: [Link](https://sport.sky.it/calcio/serie-a/partite/2025/giornata-16/juventus-roma/risultato-gol)
 - **Serie A | Le formazioni ufficiali di Juventus-Roma**: [Link](https://www.juventus.com/it/news/articoli/serie-a-2025-2026-juventus-roma-formazioni-ufficiali)
-
-
-### everton vs (N/A, 20/12/2025 15:26 Lima)
-
-- **¡EN VIVO! Arsenal visita a Everton con el objetivo de seguir en lo más alto de la Premier League**: [Link](https://www.espn.com.pe/futbol/inglaterra/nota/_/id/16093328/everton-vs-arsenal-por-la-premier-league-equipo-fecha-hora-y-tv-en-vivo)
-- **Everton vs. Arsenal EN VIVO Y GRATIS por la Premier League Vía ESPN, Disney+ y Fútbol Libre: minuto a minuto**: [Link](https://bolavip.com/pe/premier-league/everton-vs-arsenal-en-vivo-y-gratis-por-la-premier-league-via-espn-disney-y-futbol-libre-minuto-a-minuto)
-- **Pronóstico Everton - Arsenal. Premier League | 20/12/2025**: [Link](https://gainblers.com/pe/pronosticos/futbol/inglaterra/premier-league/pronostico-everton-arsenal-20-12-2025/)
-
-
-### ajax (N/A, 20/12/2025 15:26 Lima)
-
-- **LIVE eredivisie | Grim zet Steur en Gloukh terug in de basis, Ajax in Nijmegen op jacht naar vijfde zege op rij**: [Link](https://www.ad.nl/voetbal/live-eredivisie-grim-zet-steur-en-gloukh-terug-in-de-basis-ajax-in-nijmegen-op-jacht-naar-vijfde-zege-op-rij~af0a9cd8/)
-- **Linssen ontsnapt bij ongelukkige aanslag op enkel Itakura aan rood**: [Link](https://nos.nl/video/2595384-linssen-ontsnapt-bij-ongelukkige-aanslag-op-enkel-itakura-aan-rood)
-- **NEC bij rust ondanks overwicht achter tegen Ajax**: [Link](https://www.gld.nl/sport/8409569/nec-bij-rust-ondanks-overwicht-achter-tegen-ajax)
-
-
-### leeds vs (N/A, 20/12/2025 15:26 Lima)
-
-- **Bijol says unpredictability can aid Leeds' survival bid ahead of Palace clash**: [Link](https://www.beinsports.com/en-us/soccer/premier-league/articles/bijol-says-unpredictability-can-aid-leeds-survival-bid-ahead-of-palace-clash-2025-12-19)
-- **Lucas Perri: It is important to keep steady**: [Link](https://sports.yahoo.com/articles/lucas-perri-important-keep-steady-025100455.html)
-- **Oliver Glasner talks about being ‘psychologically ready’ for the
-battle with Leeds**: [Link](https://www.vavel.com/en/football/2025/12/19/crystal-palace/1245066-oliver-glasner-talks-about-being-psychologically-ready-for-thebattle-with-leedsit-is-business-as-usual-for-the-flying-eagles-under-glasner.html)
-
-
-### liverpool football club (N/A, 20/12/2025 15:26 Lima)
-
-- **Csiki | Liverpool draw has made us even more hungry to win against Manchester City**: [Link](https://whufc.com/en/news/csiki-or-liverpool-draw-has-made-us-even-more-hungry-to-win-against)
-- **West Ham v City: Kick-off time, team news and TV information**: [Link](https://www.mancity.com/news/womens/west-ham-man-city-womens-league-cup-match-preview-63901395)
-- **‘We’ll do everything we can’ – West Ham United will give their all against Manchester City says Csiki**: [Link](https://ca.sports.yahoo.com/news/ll-everything-west-ham-united-101100336.html)
-
-
-### xavi simons (N/A, 20/12/2025 15:26 Lima)
-
-- **Thomas Frank press conference LIVE - Tottenham boss on Xavi and Romero red cards against Liverpool**: [Link](https://www.football.london/tottenham-hotspur-fc/fixtures-results/thomas-frank-press-conference-live-33097038)
-- **What Ryan Gravenberch did to Xavi Simons after Spurs forward’s red card v Liverpool**: [Link](https://www.empireofthekop.com/2025/12/20/gravenberch-simons-red-card-spurs-liverpool/)
-- **Liverpool VAR incident as referee and Premier League explain Tottenham red card**: [Link](https://www.liverpool.com/liverpool-fc-news/features/xavi-simons-red-card-tottenham-33096978)
-
-
-### cochinola (N/A, 20/12/2025 15:26 Lima)
-
-- **José Zafra rompe su silencio y responde qué hay entre Laura Spoya y él: “No tienen por qué escarbar”**: [Link](https://trome.com/espectaculos/tv/laura-spoya-jose-zafra-rompe-su-silencio-y-responde-que-hay-entre-ellos-tras-ser-vinculados-no-tienen-por-que-escarbar-foto-video-farandula-noticia/)
-- **José Zafra, dueño de Cochinola, rompe su silencio tras imágenes con Laura Spoya: "Es mi pata"**: [Link](https://www.atv.pe/noticia/jose-zafra-dueno-de-cochinola-rompe-su-silencio-tras-imagenes-con-laura-spoya-es-mi-pata/)
-- **José Zafra, empresario vinculado con Laura Spoya, se pronuncia sobre rumores de citas: "Ella es mi pata"**: [Link](https://larepublica.pe/espectaculos/2025/12/19/jose-zafra-empresario-vinculado-a-laura-spoya-se-pronuncia-sobre-rumores-de-citas-ella-es-mi-pata-mdga-359727)
 
 
