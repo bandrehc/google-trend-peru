@@ -1,3 +1,64 @@
+### españa hora (N/A, 24/12/2025 15:28 Lima)
+
+- **Solsticio de invierno: La noche más corta del año**: [Link](https://es.euronews.com/2025/12/21/solsticio-de-invierno-los-dias-vuelven-a-ser-mas-largos-y-frios)
+- **Nuestra Navidad de importación**: [Link](https://www.milenio.com/opinion/roman-revueltas-retes/apuntes-decembrinos/nuestra-navidad-de-importacion)
+- **Dos lluvias de estrellas, tres lunas llenas y dos eclipses: estos son todos los eventos astronómicos de este**: [Link](https://www.lasexta.com/tecnologia-tecnoxplora/ciencia/dos-lluvias-estrellas-tres-lunas-llenas-dos-eclipses-estos-son-todos-eventos-astronomicos-este-otono_2025122269493220af09df501090dcd7.html)
+
+
+### cronograma pagos 2026 (N/A, 24/12/2025 15:28 Lima)
+
+- **MEF publica el cronograma de pagos del 2026 del Banco de la Nación: Estos son los tres calendarios**: [Link](https://www.infobae.com/peru/2025/12/24/mef-aprueba-el-cronograma-de-pagos-del-2026-del-banco-de-la-nacion-estas-son-las-fechas/)
+- **Nuevo cronograma de pagos en el Estado 2025: remuneraciones y pensiones se pagarán de manera ordenada y previsible**: [Link](https://www.expreso.com.pe/economia/nuevo-cronograma-de-pagos-en-el-estado-2025-remuneraciones-y-pensiones-se-pagaran-de-manera-ordenada-y-previsible-ministerio-de-economia-y-finanzas-oficina-de-normalizacion-previsional-noticia/1249443/)
+- **Conoce el cronograma 2026 de pagos de sueldos y pensiones en el Estado**: [Link](https://andina.pe/agencia/noticia-conoce-cronograma-2026-pagos-sueldos-y-pensiones-el-estado-1056807.aspx)
+
+
+### píldora wegovy (N/A, 24/12/2025 15:28 Lima)
+
+- **FDA autoriza píldora Wegovy para tratar obesidad en adultos**: [Link](https://canaln.pe/internacionales/fda-autoriza-pildora-wegovy-tratar-obesidad-adultos-n489134)
+- **FDA aprueba nueva pastilla para bajar de peso: qué tan efectiva es**: [Link](https://panamericana.pe/salud/461875-fda-aprueba-nueva-pastilla-bajar-peso-tan-efectiva)
+- **La FDA aprueba la primera píldora oral GLP-1 para la obesidad de Novo Nordisk**: [Link](https://www.ucvradio.pe/mas-actualidad/la-fda-aprueba-la-primera-pildora-oral-glp-1-para-la-obesidad-de-novo-nordisk/83394/)
+
+
+### samsunspor - eyüpspor (N/A, 24/12/2025 15:28 Lima)
+
+- **Samsunspor'da Veysel Bilen: "Galibiyetle başlamak önemliydi"**: [Link](https://www.samsungazetesi.com/samsunsporda-veysel-bilen-galibiyetle-baslamak-onemliydi)
+- **Futbol: Ziraat Türkiye Kupası**: [Link](https://www.haberturk.com/samsun-haberleri/40068352-futbol-ziraat-turkiye-kupasi)
+- **Samsunspor, Kupa Galibiyeti İle Araya Moralli Girdi!**: [Link](https://www.samsunhaberx.com/samsunspor-kupa-galibiyeti-ile-araya-moralli-girdi/74449/)
+
+
+### samsunspor vs (N/A, 24/12/2025 15:28 Lima)
+
+Sin noticias relacionadas disponibles.
+
+
+### amad diallo (N/A, 24/12/2025 15:28 Lima)
+
+- **Wednesday's Africa Cup of Nations predictions including Ivory Coast vs. Mozambique**: [Link](https://www.sportsmole.co.uk/football/ivory-coast/africa-cup-of-nations/feature/will-mbeumo-and-mahrez-triumph-wednesdays-afcon-predictions-and-previews_588332.html)
+- **LIVE BLOG: Rolling AFCON updates of the day’s action, events and key moments (1)**: [Link](https://www.cafonline.com/afcon2025/news/live-blog-rolling-afcon-updates-of-the-day-s-action-events-and-key-moments-1/)
+- **CAN 2025 - Côte d'Ivoire: "We want that fourth star," says Yahia Fofana**: [Link](https://foot-africa.com/en/news/can-2025-cote-divoire-we-want-that-fourth-star-says-yahia-fofana-1015526/)
+
+
+### yan diomande (N/A, 24/12/2025 15:28 Lima)
+
+- **Informe: el Manchester United considera fichar al delantero de la Bundesliga por 80 millones de libras**: [Link](https://www.elpueblo.pe/deportes/informe-el-manchester-united-considera-fichar-al-delantero-de-la-bundesliga-por-80-millones-de-libras/179611/)
+- **Perfect Semenyo Alternative: Man Utd Eyeing Move to Sign £87m Forward With 'Outstanding Speed'**: [Link](https://www.givemesport.com/diomande-man-utd-signing-semenyo-alternative/)
+- **Amad Diallo could boost Manchester United’s Yan Diomande chase**: [Link](https://www.yardbarker.com/soccer/articles/amad_diallo_could_boost_manchester_uniteds_yan_diomande_chase/s1_17737_43242345)
+
+
+### estreno de stranger things (N/A, 24/12/2025 15:28 Lima)
+
+- **Stranger Things 5: Fecha de estreno de los episodios del Volumen 2 y la duración de la última temporada**: [Link](https://www.atv.pe/noticia/stranger-things-5-fecha-de-estreno-de-los-episodios-del-volumen-2-y-la-duracion-de-la-ultima-temporada/)
+- **Stranger Things Temporada 5 Volumen 2: fecha, hora y link para ver los nuevos episodios de la serie de Netflix | MAG**: [Link](https://elcomercio.pe/mag/fama/que-ver/stranger-things-temporada-5-volumen-2-fecha-hora-y-link-para-ver-los-nuevos-episodios-de-la-serie-de-netflix-nnda-nnlt-noticia/)
+- **‘Stranger Things 5’: Ross Duffer confirma que el episodio final será uno de los más largos de la serie**: [Link](https://rpp.pe/tv/streaming/stranger-things-5-ross-duffer-confirma-que-el-episodio-final-sera-uno-de-los-mas-largos-de-la-serie-noticia-1668913)
+
+
+### luca zidane (N/A, 24/12/2025 15:28 Lima)
+
+- **TotalEnergies Africa Cup of Nations 2025 Morocco: Algeria Claim First Finals Win Since 2019**: [Link](https://www.cafonline.com/afcon2025/news/totalenergies-africa-cup-of-nations-2025-morocco-algeria-claim-first-finals-win-since-2019/)
+- **AFCON 2025: Riyad Mahrez brace dispatches 10-man Sudan**: [Link](https://www.olympics.com/en/news/afcon-2025-riyad-mahrez-brace-dispatches-10-man-sudan-burkina-faso-equatorial-guinea)
+- **Zidane steals the show in stands while supporting Algerian son Luca against Sudan**: [Link](https://english.ahram.org.eg/NewsAFCON2025/2025/559305.aspx)
+
+
 ### daniel curtis lee (N/A, 24/12/2025 11:32 Lima)
 
 - **Former Nickelodeon Star Tylor Chase Refusing Treatment, Housing From Police**: [Link](https://www.tmz.com/2025/12/22/nickelodeon-star-tylor-chase-refuses-treatment-housing/)
@@ -963,68 +1024,5 @@ Sin noticias relacionadas disponibles.
 - **Urs Fischer löst in Mainz ein Union-Problem**: [Link](https://www.berliner-kurier.de/union/urs-fischer-hollerbach-mainz-union-problem-li.10011084)
 - **Mainz 05 im Abstiegskampf: Der Sporttalk mit Thorsten Arnold**: [Link](https://www.1730live.de/2025/12/12/mainz-05-im-abstiegskampf-der-1730-sporttalk-mit-thorsten-arnold/)
 - **05 Inside: Auf Mainz 05 wartet die Woche der Wahrheit**: [Link](https://www.allgemeine-zeitung.de/videos/videos-mainz-rheinhessen/05-inside-auf-mainz-05-wartet-die-woche-der-wahrheit-5255221)
-
-
-### cagliari vs (N/A, 21/12/2025 07:49 Lima)
-
-- **Serie A: Pisa quiere volver a festejar frente a Cagliari**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-pisa-quiere-volver-a-festejar-frente-a-cagliari-noticia-1668665)
-- **Serie A: Cagliari vs. Pisa – official line-ups and live updates**: [Link](https://sports.yahoo.com/articles/serie-cagliari-vs-pisa-official-105000748.html)
-- **Cagliari vs Pisa Preview: Team News & Prediction**: [Link](https://www.thestatszone.com/cagliari-vs-pisa-preview-team-news-prediction-162730)
-
-
-### psv (N/A, 21/12/2025 07:49 Lima)
-
-- **LIVE | PSV staat te schutteren en FC Utrecht komt op voorsprong: Van der Hoorn kopt raak**: [Link](https://www.ed.nl/psv/live-psv-staat-te-schutteren-en-fc-utrecht-komt-op-voorsprong-van-der-hoorn-kopt-raak~ab270c3b/)
-- **LIVE eredivisie | Viergever mag niet klagen over geel na mislukte tackle bij Til**: [Link](https://www.gelderlander.nl/utrecht/live-eredivisie-pover-fc-utrecht-heeft-niets-te-klagen-over-weinig-doortastend-psv~a034205f/)
-- **Livestream FC Utrecht - PSV | Luister vanaf 11.45 uur live!**: [Link](https://www.rtvutrecht.nl/sport/3983690/livestream-fc-utrecht-psv-luister-vanaf-1145-uur-live)
-
-
-### psv vs (N/A, 21/12/2025 07:49 Lima)
-
-- **All About | Multiple milestones beckon in final showdown of 2025**: [Link](https://www.psv.nl/en/media/artikel/alles-over-meerdere-mijlpalen-lonken-in-laatste-krachtmeting-van-2025)
-- **Preview: FC Utrecht vs. PSV Eindhoven - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/fc-utrecht/preview/utrecht-vs-psv-prediction-team-news-lineups_588153.html)
-- **Predicted Lineups and Player News for FC Utrecht vs PSV Eindhoven 21/12/25 - Eredivisie News**: [Link](https://footballpredictions.net/predicted-lineups-fc-utrecht-v-psv-21-12-2025)
-
-
-### por (N/A, 21/12/2025 07:49 Lima)
-
-- **Cajamarca: denuncian a profesor por presunto abuso sexual contra estudiante de 16 años**: [Link](https://rpp.pe/peru/actualidad/cajamarca-denuncian-a-profesor-por-presunto-abuso-sexual-contra-estudiante-de-16-anos-noticia-1668744)
-- **No se trata de una simple decoración: por qué se cuelgan calcetines cerca de la chimenea en Navidad**: [Link](https://gestion.pe/mix/usa/no-se-trata-de-una-simple-decoracion-por-que-se-cuelgan-calcetines-cerca-de-la-chimenea-en-navidad-nnda-nnrt-noticia/)
-- **Video capta el instante en que delincuentes arrojan explosivo en el cuarto atentado al alcalde de Carabayllo**: [Link](https://www.infobae.com/peru/2025/12/21/video-capta-el-instante-en-que-delincuentes-arrojan-explosivo-en-el-cuarto-atentado-al-alcalde-de-carabayllo/)
-
-
-### girona vs atlético madrid (N/A, 21/12/2025 07:49 Lima)
-
-- **Girona - Atlético de Madrid hoy en directo: última hora de LaLiga EA Sports en vivo**: [Link](https://as.com/futbol/primera/girona-atletico-de-madrid-hoy-en-directo-ultima-hora-de-laliga-ea-sports-en-vivo-f202512-d/)
-- **Apuestas y Pronóstico del Girona vs Atlético Madrid 21/12/25**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2025/diciembre/pronostico-girona-vs-atletico-madrid-21-12-25)
-- **Girona-Atlético: Alineaciones probables, estadísticas y cómo ver por TV y online (14:00)**: [Link](https://espanol.eurosport.com/futbol/la-liga/2025-2026/girona-atletico-madrid-alineaciones-probables-previa-estadisticas-horario-como-donde-ver-television-online-streaming-hoy_sto23252431/story.shtml)
-
-
-### lakers vs (N/A, 21/12/2025 07:49 Lima)
-
-- **Rui Hachimura (right groin soreness) is the third …**: [Link](https://www.hoopshype.com/story/sports/nba/rumors/2025/12/20/rui-hachimura-right-groin-soreness-is-the-third/87863318007/)
-- **TST Best Bets- December 20, 2025**: [Link](https://www.thesportingtribune.com/2025/12/20/best-bets-dec20)
-- **Lakers at Clippers Preview: Battle in Inglewood**: [Link](https://sports.yahoo.com/articles/lakers-clippers-preview-battle-inglewood-231226168.html)
-
-
-### thriller (N/A, 21/12/2025 03:32 Lima)
-
-- **One of the best thriller movies of this decade is on TV tonight**: [Link](https://www.joe.ie/movies-tv/nightmare-alley-movies-on-tv-saturday-20-december-best-thrillers-decade-861198)
-- **Bradley Cooper's 'dark and delirious' thriller airs on Film 4 tonight**: [Link](https://www.express.co.uk/showbiz/tv-radio/2146595/nightmare-alley-bradley-cooper-s-dark-delirious-thriller-airs-film-4-tonight)
-- **'Masterful' thriller from legendary director with an all-star cast is on Film 4 tonight**: [Link](https://www.mirror.co.uk/tv/tv-news/masterful-thriller-legendary-director-star-36405158)
-
-
-### ganador de yo soy (N/A, 21/12/2025 03:32 Lima)
-
-- **Michael Jackson ganó la final ‘Yo Soy’ 2025: Gabriela Villanueva se llevó 20 mil soles tras derrotar a Green Day y Alejandra Guzmán**: [Link](https://www.infobae.com/peru/2025/12/20/gran-final-de-yo-soy-2025-minuto-a-minuto-de-todos-los-detalles-de-la-ultima-gala-de-michael-jackson-green-day-y-alejandra-guzman-por-latina/)
-- **YO SOY Gran Final HOY EN VIVO: horario, dónde ver y cómo votar por tu imitador favorito**: [Link](https://elcomercio.pe/respuestas/a-que-hora/yo-soy-final-en-vivo-hora-donde-ver-y-como-votar-por-tu-imitador-favorito-canal-tv-senal-online-latina-tv-tdpe-noticia/)
-- **Yo Soy EN VIVO 2025: ¡THRILLER TOMÓ EL ESCENARIO! Michael Jackson cerró la ronda final como una película de terror en vivo**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-en-vivo-2025-thriller-tomo-el-escenario-michael-jackson-cerro-la-ronda-final-como-una-pelicula-de-terror-en-vivo_20251220/)
-
-
-### lakers (N/A, 21/12/2025 03:32 Lima)
-
-- **Luka Doncic exits Lakers game with leg injury**: [Link](https://apnews.com/article/luka-doncic-hurt-lakers-03b8050cc7b45d4866b3fc66a22b1a4c)
-- **Doncic and Zubac hurt during LA clash, Jokic surrenders to Rockets**: [Link](https://www.eurohoops.net/en/nba-news/1910031/luka-doncic-left-leg-contusion-los-angeles-lakers-nba/)
-- **LeBron, Lakers Disappoint NBA Fans in Loss to James Harden, Clippers as Luka Injured**: [Link](https://bleacherreport.com/articles/25335028-lebron-lakers-disappoint-nba-fans-loss-james-harden-clippers-luka-injured)
 
 
