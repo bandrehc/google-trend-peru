@@ -1,3 +1,57 @@
+### tesla cybertruck (N/A, 24/12/2025 03:36 Lima)
+
+- **Tesla Opens Probe Into Cybertruck’s Massive ‘Gigawiper’**: [Link](https://teslanorth.com/2025/12/23/tesla-opens-probe-into-cybertrucks-massive-gigawiper/)
+- **Tesla Opens Engineering Investigation into Cybertruck Wipers**: [Link](https://www.notateslaapp.com/news/3439/tesla-opens-engineering-investigation-into-cybertruck-wipers)
+- **Tesla Cybertruck Owner Says, “I Must Live In an Alternate Universe, One Month In, and No Hate, Everyone Loves Elon, Hates Biden, Loves Tesla and My CT”**: [Link](https://www.torquenews.com/1084/tesla-cybertruck-owner-says-i-must-live-alternate-universe-one-month-and-no-hate-everyone)
+
+
+### argelia vs (N/A, 24/12/2025 03:36 Lima)
+
+- **CAN 2025/D-1 Argelia vs Sudán: “Estamos preparados”, dice Riyad Mahrez**: [Link](https://www.elpueblo.pe/deportes/can-2025-d-1-argelia-vs-sudan-estamos-preparados-dice-riyad-mahrez/177931/)
+
+
+### alianza lima vóley (N/A, 24/12/2025 03:36 Lima)
+
+- **¿Universitario sería líder? Así quedaría la tabla de la Liga Peruana de Vóley si se acepta el reclamo ante Alianza Lima**: [Link](https://www.infobae.com/peru/deportes/2025/12/22/universitario-seria-lider-asi-quedaria-la-tabla-de-la-liga-peruana-de-voley-si-se-acepta-el-reclamo-ante-alianza-lima/)
+- **¿Alianza perderá los puntos y Universitario será el ganador? ¿Qué dice el reglamento? Cinco respuestas a la polémica del clásico en el vóley**: [Link](https://elcomercio.pe/deporte-total/polideportivo/liga-peruana-de-voley-alianza-lima-perdera-los-puntos-y-universitario-sera-el-ganador-que-dice-el-reglamento-cinco-respuestas-a-la-polemica-del-clasico-en-el-voley-tlcnota-noticia/)
+- **Así reaccionaron las voleibolistas de Alianza Lima tras ver error de su DT ante Universitario**: [Link](https://bolavip.com/pe/voley/asi-reaccionaron-las-voleibolistas-de-alianza-lima-tras-ver-error-de-su-dt-ante-universitario)
+
+
+### navidad (N/A, 24/12/2025 03:36 Lima)
+
+- **Navidad 2025 EN VIVO: Por dónde está Papá Noel en este momento; sigue la ruta de Santa Claus en directo**: [Link](https://elcomercio.pe/mundo/actualidad/navidad-2025-en-vivo-donde-esta-papa-noel-en-este-momento-sigue-la-ruta-de-santa-claus-en-directo-norad-tracks-santa-recorrido-felices-fiestas-christmas-feliz-navidad-noche-buena-estados-unidos-nueva-zelanda-noticia/)
+- **¿Por dónde va Papa Noel hoy, 24 de diciembre? seguí todo el recorrido, EN VIVO**: [Link](https://www.tycsports.com/interes-general/por-donde-va-papa-noel-hoy-id704885.html)
+- **Santa Claus ya se alista para repartir regalos**: [Link](https://laoctava.com/podcasts/2025/12/23/santa-claus-ya-se-alista-para-repartir-regalos)
+
+
+### camerun vs (N/A, 24/12/2025 03:36 Lima)
+
+- **Camerún vs. Gabón: ¿a qué hora juegan y dónde ver EN VIVO por la Copa Africana de Naciones?**: [Link](https://rpp.pe/futbol/futbol-mundial/camerun-vs-gabon-en-vivo-a-que-hora-juegan-y-donde-ver-fecha-1-copa-africana-de-naciones-2025-link-claro-sports-partidos-de-hoy-noticia-1668988)
+- **Camerún vs Gabón Pronóstico y Apuestas | 24/12/2025**: [Link](https://www.apuestas-deportivas.es/pronostico/camerun-gabon-pronostico-copa-africana-de-naciones-24-12-2025/)
+- **Cómo y dónde ver: Camerún vs. Gabón en la AFCON 2025 por beIN SPORTS**: [Link](https://www.beinsports.com/es-us/football/copa-africana-de-naciones/articles/c%C3%B3mo-y-d%C3%B3nde-ver-camer%C3%BAn-vs-gab%C3%B3n-en-la-afcon-2025-por-bein-sports-2025-12-23)
+
+
+### merry christmas (N/A, 24/12/2025 03:36 Lima)
+
+- **Merry Christmas 2025: 50+ Wishes, Image, Quotes, Status, Message, GIFs and WhatsApp Greetings to Share with Family**: [Link](https://indianexpress.com/article/lifestyle/merry-christmas-2025-50-wishes-image-quotes-status-message-gifs-and-whatsapp-greetings-to-share-with-family-10435966/)
+- **Christmas season greetings 2025 to readers, subscribers, advertisers & supporters**: [Link](https://islandsocialtrends.ca/christmas-season-greetings-2025-to-readers-subscribers-advertisers-supporters/)
+- **Merry Christmas & Happy Holidays 2025!**: [Link](https://www.strata-gee.com/merry-christmas-happy-holidays-2025/)
+
+
+### objeto interestelar 3i atlas cometa (N/A, 24/12/2025 03:36 Lima)
+
+- **Revelan imágenes de rayos x del cometa interestelar 3I/ATLAS**: [Link](https://cnnespanol.cnn.com/2025/12/18/ciencia/cometa-interestelar-3iatlas-rayos-x-trax)
+- **Larry Denneau, descubridor del cometa 3l/Atlas: "No debería haber estado allí"**: [Link](https://www.elconfidencial.com/tecnologia/ciencia/2025-12-18/larry-denneau-3l-atlas-no-deberia-estar-ahi-1qrt_4269070/)
+- **El cometa 3I/ATLAS alcanzó su mayor acercamiento a la Tierra: cómo fue y hacia dónde seguirá su camino**: [Link](https://www.clarin.com/internacional/cometa-3iatlas-alcanzo-mayor-acercamiento-tierra-seguira-camino_0_Qa1TLiXKYJ.html)
+
+
+### mavericks - nuggets (N/A, 24/12/2025 03:36 Lima)
+
+- **Denver Nuggets vs Dallas Mavericks Dec 23, 2025 Box Scores**: [Link](https://www.nba.com/game/den-vs-dal-0022500415/box-score)
+- **Grading the Mavericks: second half runs were Dallas’ Achilles heal**: [Link](https://www.mavsmoneyball.com/mavericks-analysis/53958/grading-the-mavericks-second-half-runs-were-dallas-achilles-heal)
+- **How The Mavericks’ Name And Logo Trace Back To Dallas’ Equestrian Past**: [Link](https://dallashoopsjournal.com/p/dallas-mavericks-name-logo-equestrian-history/)
+
+
 ### spurs - thunder (N/A, 23/12/2025 23:39 Lima)
 
 - **OKC shrugs off loss, 'excited' to have challenge**: [Link](https://www.espn.com/nba/story/_/id/47301200/thunder-shrug-loss-spurs-excited-challenge)
@@ -970,61 +1024,5 @@ Sin noticias relacionadas disponibles.
 ### aucas vs (N/A, 20/12/2025 21:10 Lima)
 
 Sin noticias relacionadas disponibles.
-
-
-### parense de manos 3 (N/A, 20/12/2025 21:10 Lima)
-
-- **Párense de Manos 3: Goncho fue una máquina y venció a Grego Rossello en el primer round**: [Link](https://www.tycsports.com/gaming/parense-de-manos-3-goncho-fue-una-maquina-y-vencio-a-grego-rossello-en-el-primer-round-id704952.html)
-- **Goncho Banzas noqueó a Grego Rossello en Párense de Manos 3**: [Link](https://www.minutouno.com/espectaculos/goncho-banzas-noqueo-grego-rossello-parense-manos-3-n6226458)
-- **Flor Vigna versus Mica Viciconte: el origen de su rivalidad, los gestos de reconciliación y la batalla final en un ring**: [Link](https://www.infobae.com/teleshow/2025/12/20/flor-vigna-versus-mica-viciconte-el-origen-de-su-rivalidad-los-gestos-de-reconciliacion-y-la-batalla-final-en-un-ring/)
-
-
-### estudiantes (N/A, 20/12/2025 21:10 Lima)
-
-- **Estudiantes venció 2-1 a Platense sobre el final y se quedó con el Trofeo de Campeones**: [Link](https://www.infobae.com/deportes/2025/12/20/estudiantes-y-platense-definiran-al-ganador-del-trofeo-de-campeones-hora-tv-y-formaciones/)
-- **Todos los campeones de la historia del Trofeo de Campeones**: [Link](https://www.espn.com.ar/futbol/argentina/nota/_/id/16090643/historia-trofeo-campeones-argentina)
-- **Noche de héroe: Alario y un doblete para la gloria del Pincha**: [Link](https://espndeportes.espn.com/futbol/argentina/nota/_/id/16106194/video-noche-de-heroe-alario-y-un-doblete-para-la-gloria-del-pincha)
-
-
-### real madrid versus sevilla (N/A, 20/12/2025 21:10 Lima)
-
-- **Fede Valverde se cae de la lista para la cita ante el Sevilla**: [Link](https://www.marca.com/futbol/real-madrid/2025/12/20/valverde-cae-lista-sevilla.html)
-- **Fede Valverde no entra en la convocatoria frente al Sevilla: Xabi Alonso recupera a Camavinga**: [Link](https://espanol.eurosport.com/futbol/la-liga/2025-2026/convocatoria-real-madrid-sevilla-jornada-17-fede-valverde-baja-lesion-gripe-xabi-alonso-recupera-camavinga-hoy_sto23252406/story.shtml)
-- **Real Madrid: Camavinga, Mendy y Alaba apuran para volver contra Sevilla**: [Link](https://www.espn.com.ar/futbol/espana/nota/_/id/16096973/real-madrid-camavinga-mendy-alaba-apuran-volver-sevilla)
-
-
-### juventus vs (N/A, 20/12/2025 21:10 Lima)
-
-- **¡EN VIVO! Juventus y Roma se enfrentan en un partidazo de Serie A**: [Link](https://www.espn.com.pe/futbol/italia/nota/_/id/16095198/juventus-vs-roma-fecha-16-serie-a-equipo-fecha-hora-y-tv-en-vivo)
-- **Massara: la Roma busca cambiar su pobre historial en los partidos importantes contra la Juventus**: [Link](https://www.elpueblo.pe/deportes/massara-la-roma-busca-cambiar-su-pobre-historial-en-los-partidos-importantes-contra-la-juventus/173999/)
-- **Serie A: Roma busca derrotar a Juventus para subirse al liderato**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-roma-busca-derrotar-a-juventus-para-subirse-al-liderato-noticia-1668564)
-
-
-### vendée fontenay foot - psg (N/A, 20/12/2025 21:10 Lima)
-
-- **Fontenay-le-Comte 0-4 PSG, Coupe de France : résumé du match (20/12/2025)**: [Link](https://www.lequipe.fr/Football/match-direct/coupe-de-france/2025-2026/fontenay-le-comte-psg-live/686890)
-- **"Rien d'important" : Luis Enrique se montre rassurant l'état de David Boly**: [Link](https://tribuna.com/fr/news/2025-12-20-rien-dimportant-luis-enrique-se-montre-rassurant-letat-de-david-boly/)
-- **«Et si on prend l’orage, pas de panique !», les derniers mots des joueurs de Fontenay avant de défier le PSG**: [Link](https://www.lefigaro.fr/sports/football/coupe-de-france/et-si-on-prend-l-orage-pas-de-panique-les-derniers-mots-des-joueurs-de-fontenay-avant-de-defier-le-psg-20251220)
-
-
-### arsenal vs (N/A, 20/12/2025 21:10 Lima)
-
-- **Everton 0-1 Arsenal: Gunners return to the top with victory at Toffees**: [Link](https://www.bbc.com/sport/football/live/ckgd8k8mlwrt)
-- **Arteta describes what he feels about playing at a new stadium**: [Link](https://www.justarsenal.com/arteta-describes-what-he-feels-about-playing-at-a-new-stadium/406389)
-- **Gyokeres ends drought to gift Arsenal top spot for Christmas**: [Link](https://www.beinsports.com/en-mena/football/premier-league/articles-video/gyokeres-ends-drought-to-gift-arsenal-top-spot-for-christmas-2025-12-20)
-
-
-### temblor arequipa (N/A, 20/12/2025 21:10 Lima)
-
-- **Temblor en Perú: ¿dónde fue el epicentro del último sismo hoy, 20 de diciembre, según IGP?**: [Link](https://larepublica.pe/sociedad/2025/12/20/temblor-en-peru-hoy-sabado-20-de-diciembre-del-2025-magnitud-epicentro-y-mas-sobre-sismos-recientes-segun-igp-ultimo-sismo-en-lima-ica-callao-y-otras-provincias-atmp-465861)
-- **Temblor en Lima: Sismo de magnitud 3.7 se registró en Huacho**: [Link](https://diariocorreo.pe/edicion/lima/temblor-en-lima-sismo-de-magnitud-37-se-registro-en-huacho-noticia/)
-- **Un sismo de magnitud 3.8 remeció la región Tumbes esta madrugada**: [Link](https://rpp.pe/peru/tumbes/tumbes-sismo-de-magnitud-38-remecio-la-region-esta-madrugada-noticia-1668354)
-
-
-### juventus (N/A, 20/12/2025 15:26 Lima)
-
-- **Juve, la formazione ufficiale contro la Roma: le scelte di Spalletti**: [Link](https://www.tuttosport.com/news/calcio/serie-a/juventus/2025/12/20-145343917/juve_la_formazione_ufficiale_contro_la_roma_le_scelte_di_spalletti)
-- **Juventus-Roma, il risultato in diretta LIVE**: [Link](https://sport.sky.it/calcio/serie-a/partite/2025/giornata-16/juventus-roma/risultato-gol)
-- **Serie A | Le formazioni ufficiali di Juventus-Roma**: [Link](https://www.juventus.com/it/news/articoli/serie-a-2025-2026-juventus-roma-formazioni-ufficiali)
 
 
