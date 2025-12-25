@@ -1,3 +1,73 @@
+### plaza vea horario (N/A, 24/12/2025 21:04 Lima)
+
+- **Navidad: los horarios de los supermercados para este 24 y 25 de diciembre**: [Link](https://gestion.pe/peru/navidad-los-horarios-de-los-supermercados-para-este-24-y-25-de-diciembre-noticia/)
+- **¿Centros comerciales tendrán horario extendido por Navidad? Esta será su hora de cierre hoy 24 de diciembre**: [Link](https://www.infobae.com/peru/2025/12/23/centros-comerciales-tendran-horario-extendido-por-navidad-esta-sera-su-hora-de-cierre-manana-24-de-diciembre/)
+- **Horario de atención durante el miércoles 24 y jueves 25 de diciembre en supermercados y centros comerciales del Perú: Metro, Plaza Vea, Tottus, Wong y más**: [Link](https://larepublica.pe/economia/2025/12/22/horario-de-atencion-durante-el-miercoles-24-y-jueves-25-de-diciembre-en-supermercados-y-centros-comerciales-del-peru-metro-plaza-vea-tottus-wong-y-mas-atmp-1532564)
+
+
+### cuetes (N/A, 24/12/2025 21:04 Lima)
+
+- **Llama el HPS a evitar el uso de cuetes y prevenir accidentes en motocicletas**: [Link](https://vivalanoticia.mx/llama-el-hps-a-evitar-el-uso-de-cuetes-y-prevenir-accidentes-en-motocicletas/)
+- **Exhorta PC Culiacán a festejar Navidad y Año Nuevo sin pirotecnia**: [Link](https://revistaespejo.com/2025/12/24/exhorta-pc-culiacan-a-festejar-navidad-y-ano-nuevo-sin-pirotecnia/)
+- **En Angostura refuerza campaña “No más pólvora” con recorridos en zonas comerciales**: [Link](https://www.puntualizando.com/en-angostura-refuerza-campana-no-mas-polvora-con-recorridos-en-zonas-comerciales/)
+
+
+### la tinka (N/A, 24/12/2025 21:04 Lima)
+
+- **En la ONU, Rusia y China critican conducta de EEUU hacia Venezuela | nnav | video | agafp | VIDEOS**: [Link](https://elcomercio.pe/videos/global/en-la-onu-rusia-y-china-critican-conducta-de-eeuu-hacia-venezuela-nnav-video-agafp-noticia/)
+- **Resultados de La Tinka del domingo 21 de diciembre**: [Link](https://www.americatv.com.pe/americlub/tinka-resultados-sorteo-jugado-domingo-21-diciembre-noticia-162025)
+- **Resultados de La Tinka del domingo 21 de diciembre: números ganadores del Pozo Millonario**: [Link](https://depor.com/peru/la-tinka-hoy-domingo-21-de-diciembre-en-vivo-resultados-numeros-ganadores-del-ultimo-sorteo-pozo-millonario-boliyapa-resultado-si-o-si-intralot-peru-noticia/)
+
+
+### peliculas navideñas (N/A, 24/12/2025 21:04 Lima)
+
+- **¿Dónde ver las películas clásicas de Navidad en streaming? “Mi Pobre Angelito”, “El Grinch” y más**: [Link](https://elcomercio.pe/respuestas/cual/donde-ver-las-peliculas-clasicas-de-navidad-en-streaming-mi-pobre-angelito-el-grinch-y-mas-christmas-tdpe-noticia/)
+- **Las 5 mejores películas para ver durante Nochebuena, según Gemini y ChatGPT**: [Link](https://www.infobae.com/tecno/2025/12/24/las-5-mejores-peliculas-para-ver-durante-nochebuena-segun-gemini-y-chatgpt/)
+- **Películas para recibir la Navidad**: [Link](https://peru21.pe/cultura/peliculas-para-recibir-la-navidad/)
+
+
+### mi pobre angelito 2 (N/A, 24/12/2025 21:04 Lima)
+
+- **Cómo Joe Pesci y Daniel Stern se transformaron en los villanos de Mi Pobre Angelito**: [Link](https://www.latercera.com/culto/noticia/como-joe-pesci-y-daniel-stern-se-transformaron-en-los-villanos-de-mi-pobre-angelito/)
+- **Actor de 'Mi pobre angelito' está irreconocible 35 años después del estreno de la película**: [Link](https://es-us.vida-estilo.yahoo.com/actor-pobre-angelito-irreconocible-35-151739015.html)
+- **A 35 años de "Mi Pobre Angelito", el "villano" Daniel Stern cambió radicalmente: "No salgo de mi granja"**: [Link](https://www.guioteca.com/celebridades/a-35-anos-de-mi-pobre-angelito-el-villano-daniel-stern-cambio-radicalmente-no-salgo-de-mi-granja/)
+
+
+### casma (N/A, 24/12/2025 21:04 Lima)
+
+- **Áncash: múltiple choque vehicular deja cinco personas fallecidas en Casma**: [Link](https://rpp.pe/peru/ancash/multiple-choque-vehicular-deja-cinco-personas-fallecidas-en-casma-noticia-1669156)
+- **¡A horas de Navidad! Familia entera muere en quíntuple choque en casma**: [Link](https://peru21.pe/peru/horas-de-navidad-familia-entera-muere-en-quintuple-choque-en-casma/)
+- **Múltiple choque en la Panamericana Norte deja al menos cinco fallecidos: miniván con pasajeros quedó aplastada**: [Link](https://larepublica.pe/sociedad/2025/12/24/multiple-choque-en-la-panamericana-norte-deja-al-menos-cinco-fallecidos-minivan-con-pasajeros-quedo-aplastada-1812912)
+
+
+### misa de gallo (N/A, 24/12/2025 21:04 Lima)
+
+- **Papa León XIV: En el niño Jesús, Dios da al mundo una nueva vida**: [Link](https://www.vaticannews.va/es/papa/news/2025-12/papa-leon-xiv-en-el-nino-jesus-dios-da-al-mundo-una-nueva-vida.html)
+- **La primera Navidad del papa León trae un poderoso mensaje**: [Link](https://cnnespanol.cnn.com/2025/12/23/mundo/video/papa-leo-primera-navidad-trax)
+- **El papa León XIV celebrará su primera Navidad recuperando la tradicional misa en San Pedro después de 30 años**: [Link](https://www.infobae.com/america/mundo/2025/12/24/el-papa-leon-xiv-celebrara-su-primera-navidad-recuperando-la-tradicional-misa-en-san-pedro-despues-de-30-anos/)
+
+
+### villancicos (N/A, 24/12/2025 21:04 Lima)
+
+- **Navidad 2025: las 10 canciones imprescindibles para llenar de alegría este 25 de diciembre**: [Link](https://elcomercio.pe/respuestas/cual/navidad-2025-las-10-canciones-imprescindibles-para-llenar-de-alegria-este-25-de-diciembre-tdpe-noticia/)
+- **El secreto de los clásicos navideños: Brenda Lee celebra 65 años de Rockin’ around the Christmas tree**: [Link](https://www.publimetro.com.mx/entretenimiento/2025/12/23/el-secreto-de-los-clasicos-navidenos-brenda-lee-celebra-65-anos-de-rockin-around-the-christmas-tree/)
+- **Navidad también se escucha, así suenan las playlists más reproducidas del año**: [Link](https://oem.com.mx/tribunadesanluis/tendencias/navidad-tambien-se-escucha-asi-suenan-las-playlists-mas-reproducidas-del-ano-27398690)
+
+
+### españa (N/A, 24/12/2025 21:04 Lima)
+
+- **Prime Video: Así quedo el top de las mejores películas de la plataforma en España**: [Link](https://www.infobae.com/noticias/2025/12/22/prime-video-asi-quedo-el-top-de-las-mejores-peliculas-de-la-plataforma-en-espana/)
+- **Estas son las mejores películas de Prime Video para ver hoy en España**: [Link](https://www.infobae.com/noticias/2025/12/25/estas-son-las-mejores-peliculas-de-prime-video-para-ver-hoy-en-espana/)
+- **Estas son las películas que están de moda en Prime Video España este día**: [Link](https://www.infobae.com/noticias/2025/12/18/estas-son-las-peliculas-que-estan-de-moda-en-prime-video-espana-este-dia/)
+
+
+### christmas (N/A, 24/12/2025 21:04 Lima)
+
+- **Trump answers phone calls from kids on Christmas Eve**: [Link](https://www.cnn.com/2025/12/24/us/video/trump-norad-santa-tracker-hotline-digvid)
+- **Trump takes NORAD Santa calls from kids. Here's what he said.**: [Link](https://www.usatoday.com/story/news/politics/2025/12/24/donald-trump-melania-norad-santa-christmas-eve-calls/87911347007/)
+- **Donald Trump, on Christmas Eve Calls with Children, Brags About Winning Pennsylvania ‘3 Times’**: [Link](https://people.com/donald-trump-calls-child-christmas-brags-about-winning-pennsylvania-11876057)
+
+
 ### españa hora (N/A, 24/12/2025 15:28 Lima)
 
 - **Solsticio de invierno: La noche más corta del año**: [Link](https://es.euronews.com/2025/12/21/solsticio-de-invierno-los-dias-vuelven-a-ser-mas-largos-y-frios)
@@ -954,75 +1024,5 @@ Sin noticias relacionadas disponibles.
 - **Genoa v Atalanta: the line-ups | 2025/26 Serie A Enilive MD16**: [Link](https://en.atalanta.it/news/genoa-v-atalanta-the-line-ups-2025-26-serie-a-enilive-md16)
 - **Calcio Live: in campo Genoa-Atalanta (0-0), rosso per Leali**: [Link](https://www.diretta.it/news/calcio-serie-a-calcio-live-in-campo-genoa-atalanta-0-0-rosso-per-leali/SQIMSPum/)
 - **Genoa Atalanta in tv e streaming: dove vedere la partita**: [Link](https://sport.sky.it/calcio/serie-a/2025/12/21/genoa-atalanta-dove-vedere-tv-streaming)
-
-
-### sassuolo vs (N/A, 21/12/2025 11:29 Lima)
-
-- **Serie A | Sassuolo 0-1 Torino: In-form Vlasic punishes Doig shocker**: [Link](https://sports.yahoo.com/articles/serie-sassuolo-0-1-torino-160500271.html)
-- **Sassuolo vs. Torino: Serie A Week 16 official line-ups**: [Link](https://football-italia.net/serie-a-sassuolo-vs-torino-confirmed-line-ups/)
-- **Toro festeggia seconda vittoria consecutiva con rigore di Vlasic e clean sheet nel match contro il Sassuolo**: [Link](https://news.ssbcrack.com/toro-festeggia-seconda-vittoria-consecutiva-con-rigore-di-vlasic-e-clean-sheet-nel-match-contro-il-sassuolo/)
-
-
-### pedri (N/A, 21/12/2025 11:29 Lima)
-
-- **Villarreal vs Barcelona: Pedri es baja; Flick defiende a Raphinha**: [Link](https://www.espn.com.ar/futbol/espana/nota/_/id/16104070/villarreal-vs-barcelona-pedri-raphinha-flick)
-- **Flick apuesta por un once sin Lewandowski ante el Villarreal**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20251221/1002590535/flick-apuesta-once-lewandowski-villarreal.html)
-- **Flick descarta a Pedri para La Cerámica: "El riesgo es alto"**: [Link](https://www.marca.com/futbol/barcelona/2025/12/20/flick-descarta-pedri-ceramica-riesgo-alto.html)
-
-
-### fiorentina (N/A, 21/12/2025 11:29 Lima)
-
-- **Fiorentina, i convocati per l'Udinese: a sorpresa fuori Marì. Out Fazzini e Gosens**: [Link](https://www.gazzetta.it/calcio/fantanews/21-12-2025/fiorentina-i-convocati-per-l-udinese.shtml)
-- **FIORENTINA - UDINESE: LA STORIA DEL MATCH -**: [Link](https://www.acffiorentina.com/news/fiorentina-udinese-la-storia-del-match)
-- **Vanoli le prova tutte per salvare la panchina della Fiorentina: contro l'Udinese si metterà a quattro! Le ultime in vista della delicatissima sfida**: [Link](https://tribuna.com/it/news/2025-12-21-vanoli-le-prova-tutte-per-salvare-la-panchina-della-fiorentina-contro-ludinese-si-mettera/)
-
-
-### barcelona vs (N/A, 21/12/2025 11:29 Lima)
-
-- **Villarreal - Barcelona hoy, en directo: LaLiga EA Sports en vivo, ultima hora en La Cerámica**: [Link](https://as.com/futbol/primera/villarreal-barcelona-en-directo-laliga-ea-sports-hoy-en-vivo-f202512-d/)
-- **Villarreal - Barcelona, en directo hoy: resultado del partido de la jornada 17 de La Liga EA Sports, en vivo**: [Link](https://www.sport.es/es/noticias/barca/villarreal-barcelona-liga-flick-directo-125016092)
-- **"Todos los entrenadores nos adaptamos a los futbolistas, muchas veces en contra de nuestra voluntad"**: [Link](https://www.marca.com/calendario-adviento/entrevista-marcelino.html)
-
-
-### barca (N/A, 21/12/2025 11:29 Lima)
-
-- **Villarreal vs Barcelona LIVE: Spanish La Liga score, stats & updates**: [Link](https://www.bbc.com/sport/football/live/c5y27g3v92kt)
-- **LIVE: Villarreal vs Barcelona – La Liga**: [Link](https://www.aljazeera.com/sports/liveblog/2025/12/21/live-villarreal-vs-barcelona-la-liga)
-- **Barcelona Predicted Lineup vs. Villarreal: Major Absence for La Liga Leaders**: [Link](https://www.si.com/soccer/barcelona-predicted-lineup-vs-villarreal-la-liga-12-21-25)
-
-
-### cuándo juega barcelona (N/A, 21/12/2025 11:29 Lima)
-
-- **La postura del plantel de Barcelona en la previa del duelo frente a Independiente del Valle por Liga Ecuabet**: [Link](https://www.espn.com.ar/futbol/ecuador/nota/_/id/16102682/la-postura-del-plantel-de-barcelona-en-la-previa-del-duelo-frente-a-independiente-del-valle-por-liga-ecuabet)
-- **Tras una semana difícil, Barcelona visita a Independiente en el cierre del hexagonal de la Liga Ecuabet**: [Link](https://espndeportes.espn.com/futbol/ecuador/nota/_/id/16098774/independiente-del-valle-vs-barcelona-por-liga-ecuabet-equipo-fecha-y-hora)
-- **¿No quieren jugar los titulares? Barcelona S.C., ex equipo de Mario Pineida, terminaría la temporada en Ecuado**: [Link](https://www.telediario.mx/deportes/futbol-internacional/barcelona-de-ecuador-por-que-no-jugaran-titulares-ultimo-partido-liga)
-
-
-### cuarto domingo de adviento 2025 (N/A, 21/12/2025 11:29 Lima)
-
-- **Oración para encender la cuarta vela de la Corona de Adviento 2025 este domingo 21 de diciembre**: [Link](https://elcomercio.pe/mag/respuestas/oracion-para-encender-la-cuarta-vela-de-la-corona-de-adviento-2025-este-domingo-21-de-diciembre-navidad-nnda-nnni-noticia/)
-- **En este último día de rito del encendido de la vela violeta, marca el momento de la alegría y nos recuerda la vida antes de Jesús y la luz que imperó en el mundo con su llegada**: [Link](https://www.facebook.com/infobaecolombia/photos/en-este-%C3%BAltimo-d%C3%ADa-de-rito-del-encendido-de-la-vela-violeta-marca-el-momento-de-/1306689224807170/)
-- **Oración para rezar en familia el cuarto Domingo de Adviento 2025**: [Link](https://www.eluniverso.com/larevista/sociedad/oracion-para-rezar-en-familia-el-cuarto-domingo-de-adviento-2025-nota/)
-
-
-### celtic (N/A, 21/12/2025 11:29 Lima)
-
-- **Celtic v Aberdeen: Predicted XI from Wilfried Nancy at Paradise**: [Link](https://thecelticstar.com/celtic-v-aberdeen-predicted-xi-from-wilfried-nancy-at-paradise/)
-- **Missed chances but Celtic ahead at half time, Celtic 1-0 Aberdeen**: [Link](https://onefootball.com/en/news/missed-chances-but-celtic-ahead-at-half-time-celtic-1-0-aberdeen-42127835)
-- **Nicky Devlin admits Aberdeen didn't give fans enough to 'shout about' in Europe, but Dons still confident they can maintain Premiership surge at Celtic**: [Link](https://www.pressandjournal.co.uk/fp/sport/football/aberdeen-fc/6920778/aberdeen-nicky-devlin-celtic-preview/)
-
-
-### atletico madrid (N/A, 21/12/2025 11:29 Lima)
-
-- **Preview: Girona vs Atletico Madrid - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/atletico-madrid/race-for-the-la-liga-title/preview/girona-vs-atletico-prediction-team-news-lineups_588179.html)
-- **Football Tracker: Cagliari level against Pisa in Serie A, Atletico and Barca to follow**: [Link](https://www.flashscore.com/news/football-tracker-cagliari-level-against-pisa-in-serie-a-atletico-and-barca-to-follow/p0SNiXEF/)
-- **🚨 Vanat starts, no Molina... the starting XIs for Girona-Atlético**: [Link](https://sports.yahoo.com/articles/vanat-starts-no-molina-starting-114800753.html)
-
-
-### mainz (N/A, 21/12/2025 11:29 Lima)
-
-- **Urs Fischer löst in Mainz ein Union-Problem**: [Link](https://www.berliner-kurier.de/union/urs-fischer-hollerbach-mainz-union-problem-li.10011084)
-- **Mainz 05 im Abstiegskampf: Der Sporttalk mit Thorsten Arnold**: [Link](https://www.1730live.de/2025/12/12/mainz-05-im-abstiegskampf-der-1730-sporttalk-mit-thorsten-arnold/)
-- **05 Inside: Auf Mainz 05 wartet die Woche der Wahrheit**: [Link](https://www.allgemeine-zeitung.de/videos/videos-mainz-rheinhessen/05-inside-auf-mainz-05-wartet-die-woche-der-wahrheit-5255221)
 
 
