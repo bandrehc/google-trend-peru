@@ -1,3 +1,66 @@
+### hora (N/A, 24/12/2025 23:41 Lima)
+
+- **Navidad en Perú EN VIVO: a qué hora llega Papa Noel, tráfico en Lima, cena navideña y últimas noticias de hoy 24 de diciembre**: [Link](https://www.infobae.com/peru/2025/12/24/navidad-en-peru-en-vivo-a-que-hora-llega-papa-noel-compras-de-ultima-hora-trafico-cena-navidena-y-ultimas-noticias-de-hoy-24-de-diciembre/)
+- **Tráfico vehicular se desborda por Navidad: panorama desde tres puntos de Lima | Tenemos Que Hablar**: [Link](https://elcomercio.pe/lima/sucesos/trafico-vehicular-se-desborda-por-navidad-panorama-desde-tres-puntos-de-lima-tenemos-que-hablar-noticia/)
+- **Tráfico en Lima hoy EN VIVO: reporte de accidentes, calles congestionadas y estado del tránsito vehicular a pocas horas de Navidad**: [Link](https://larepublica.pe/sociedad/2025/12/23/trafico-en-lima-en-vivo-hoy-calles-cerradas-rutas-alternas-y-estado-del-transito-vehicular-en-tiempo-real-a-pocos-dias-de-navidad-1769574)
+
+
+### radio (N/A, 24/12/2025 23:41 Lima)
+
+- **Earth’s radio bubble marks how far our signals have traveled**: [Link](https://earthsky.org/space/earths-radio-bubble-extent-of-radio-signals/)
+- **Old FM Radio Upcycled Into Classy Bluetooth Speaker**: [Link](https://hackaday.com/2025/12/23/old-fm-radio-upcycled-into-classy-bluetooth-speaker/)
+- **Transforming a Forgotten 1980s FM Radio Into a Modern Bluetooth Speaker**: [Link](https://www.techeblog.com/fm-radio-turned-bluetooth-speaker-mod/)
+
+
+### pluto tv (N/A, 24/12/2025 23:41 Lima)
+
+- **Things To Do in Bloomington, IN**: [Link](https://www.heraldtimesonline.com/things-to-do/events/?_evDiscoveryPath=/event%2F212856x-the-shawshank-redemption)
+- **“Hope Is a Dangerous Thing”: The Soul of 'The Shawshank Redemption' in American Cinema**: [Link](https://nofilmschool.com/shawshank-redemption-hope-is-a-dangerous-thing)
+- **Jude Law’s Iconic Roles Resurface: ‘Cold Mountain’ Streams Free, ‘Eden’ Debuts on Netflix, and ‘The Holiday’ Cast Grows Up**: [Link](https://azat.tv/en/jude-law-cold-mountain-eden-holiday-streaming-2025/)
+
+
+### jose feliciano (N/A, 24/12/2025 23:41 Lima)
+
+- **La historia detrás de "Feliz Navidad" de José Feliciano, la canción festiva más exitosa escrita por un artista latino**: [Link](https://www.bbc.com/mundo/articles/cz94jpkpzk4o)
+- **El capítulo final, en unos pocos días 👉🏼 https://bbc.in/49aNpCE**: [Link](https://www.facebook.com/BBCnewsMundo/photos/el-cap%C3%ADtulo-final-en-unos-pocos-d%C3%ADas-httpsbbcin49anpce/1403978361090480/)
+- **¿Lo sabías? La historia de 'Feliz Navidad', canción que José Feliciano escribió en 10 minutos y fue rechazada**: [Link](https://www.milenio.com/espectaculos/musica/jose-feliciano-feliz-navidad-historia-rechazo-10-minutos)
+
+
+### hora mexico (N/A, 24/12/2025 23:41 Lima)
+
+- **Naoya Inoue, el japonés de los puños de oro, no se pone límites**: [Link](https://www.marca.com/boxeo/2025/12/24/naoya-inoue-japones-punos-oro-pone-limites.html)
+- **¿Quién es Alan David Picasso, el boxeador mexicano y estudiante de neurociencia que enfrentará al japonés Naoya Inoue por el campeonato indiscutido de peso supergallo?**: [Link](https://www.elimparcial.com/deporte/2025/12/24/quien-es-alan-david-picasso-el-boxeador-mexicano-y-estudiante-de-neurociencia-que-enfrentara-al-japones-naoya-inoue-por-el-campeonato-indiscutido-de-peso-supergallo/)
+- **Sostendrán duros retos**: [Link](https://www.pressreader.com/mexico/esto/20251223/281771340542426)
+
+
+### candidatos presidenciales 2026 (N/A, 24/12/2025 23:41 Lima)
+
+- **JNE informa que 36 fórmulas presidenciales y más de 1.700 listas de candidatos fueron inscritas para las elecciones 2026**: [Link](https://www.infobae.com/peru/2025/12/25/jne-informa-que-36-formulas-presidenciales-y-mas-de-1700-listas-de-candidatos-fueron-inscritas-para-las-elecciones-2026/)
+- **Elecciones 2026: 33 partidos solicitaron inscribir sus fórmulas presidenciales antes del cierre**: [Link](https://canaln.pe/actualidad/jne-33-partidos-inscribieron-formulas-presidenciales-ante-plazo-n489144)
+- **Elecciones 2026: quiénes son los candidatos invitados al Senado y por qué agrupación postularán**: [Link](https://rpp.pe/peru/actualidad/elecciones-2026-quienes-son-los-candidatos-invitados-al-senado-y-por-que-agrupacion-postularan-noticia-1669011)
+
+
+### fuegos artificiales (N/A, 24/12/2025 23:41 Lima)
+
+- **Fuegos artificiales y mascotas: el peligro real que pocos advierten | Actualidad Parlamentaria**: [Link](https://comunicaciones.congreso.gob.pe/tv-congreso/fuegos-artificiales-y-mascotas-el-peligro-real-que-pocos-advierten-actualidad-parlamentaria/)
+- **Navidad y Año Nuevo: ¿cómo proteger a tu mascota de los peligros de las fiestas de fin de año?**: [Link](https://elcomercio.pe/somos/estilo/navidad-y-ano-nuevo-como-proteger-a-tu-mascota-de-los-peligros-para-que-tambien-disfrute-de-las-fiestas-noticia/)
+- **LA PIROTECNIA NO ES UNA FIESTA PARA TODOS**: [Link](https://rionegroahora.com/2025/12/24/la-pirotecnia-no-es-una-fiesta-para-todos/)
+
+
+### papa noel en vivo (N/A, 24/12/2025 23:41 Lima)
+
+- **Santa Tracker de Google, en vivo: el recorrido por el mundo de Papá Noel en Navidad, minuto a minuto**: [Link](https://www.infobae.com/tecno/2025/12/24/google-santa-tracker-en-vivo-2025-sigue-su-recorrido-por-el-mundo-durante-navidad/)
+- **Navidad 2025 EN VIVO: Por dónde está Papá Noel en este momento; sigue la ruta de Santa Claus en directo**: [Link](https://elcomercio.pe/mundo/actualidad/navidad-2025-en-vivo-donde-esta-papa-noel-en-este-momento-sigue-la-ruta-de-santa-claus-en-directo-norad-tracks-santa-recorrido-felices-fiestas-christmas-feliz-navidad-noche-buena-estados-unidos-nueva-zelanda-noticia/)
+- **¡Verifica tus conexiones de luz! Recomiendan tomar previsiones para evitar percances en casa por temporada vacacional https://mile.io/49aXXBU**: [Link](https://www.facebook.com/MilenioDiario/posts/verifica-tus-conexiones-de-luz-recomiendan-tomar-previsiones-para-evitar-percanc/1341797701311031/)
+
+
+### mensaje por navidad (N/A, 24/12/2025 23:41 Lima)
+
+- **Navidad 2025: El Gobierno de José Jerí pide unidad a los peruanos en mensaje por Nochebuena**: [Link](https://www.infobae.com/peru/2025/12/25/navidad-2025-el-gobierno-de-jose-jeri-pide-unidad-a-los-peruanos-en-mensaje-por-nochebuena/)
+- **Congreso: Rospigliosi saluda a los peruanos por Navidad y reafirma compromiso con el país**: [Link](https://andina.pe/agencia/noticia-congreso-rospigliosi-saluda-a-los-peruanos-navidad-y-reafirma-compromiso-con-pais-1056877.aspx)
+- **Presidencia de la República envía saludo por Fiestas Navideñas**: [Link](https://andina.pe/agencia/noticia-presidencia-de-republica-envia-saludo-fiestas-navidenas-1056922.aspx)
+
+
 ### plaza vea horario (N/A, 24/12/2025 21:04 Lima)
 
 - **Navidad: los horarios de los supermercados para este 24 y 25 de diciembre**: [Link](https://gestion.pe/peru/navidad-los-horarios-de-los-supermercados-para-este-24-y-25-de-diciembre-noticia/)
@@ -961,68 +1024,5 @@ Sin noticias relacionadas disponibles.
 - **Vasco x Corinthians: onde assistir ao vivo, horário e escalações**: [Link](https://ge.globo.com/futebol/copa-do-brasil/noticia/2025/12/21/vasco-x-corinthians-onde-assistir-ao-vivo-horario-e-escalacoes.ghtml)
 - **Dorival Júnior já foi campeão diante de Fernando Diniz na única final entre os técnicos**: [Link](https://br.bolavip.com/campeonato-copa-do-brasil/dorival-junior-ja-foi-campeao-diante-de-fernando-diniz-em-final-decisiva)
 - **Por que a Copa do Brasil ganhou relevância e aumentou premiações? Entenda**: [Link](https://www.estadao.com.br/esportes/futebol/por-que-a-copa-do-brasil-ganhou-relevancia-e-aumentou-premiacoes-entenda-npres/)
-
-
-### america tv (N/A, 21/12/2025 15:27 Lima)
-
-- **Magaly Medina se burla de Gisela Valcárcel, luego de que Edson Dávila y Janet Barboza se quedaran en América TV**: [Link](https://www.infobae.com/peru/2025/12/21/magaly-medina-se-burla-de-gisela-valcarcel-luego-de-que-edson-davila-y-janet-barboza-se-quedaran-en-america-tv/)
-- **América Hoy: Ethel Pozo se despide, Janet y Edson se quedan impreso | ESPECTACULOS**: [Link](https://diariocorreo.pe/espectaculos/america-hoy-ethel-pozo-se-despide-janet-y-edson-se-quedan-impreso-noticia/)
-- **‘Giselo’ se quiebra EN VIVO con salida de Ethel Pozo de ‘América Hoy’: “Estoy con un nudo en la garganta”**: [Link](https://trome.com/espectaculos/tv/edson-davila-se-quiebra-en-vivo-y-rompe-en-llanto-con-la-salida-de-ethel-pozo-de-america-hoy-estoy-con-un-nudo-en-la-garganta-noticia/)
-
-
-### mainz 05 - st. pauli (N/A, 21/12/2025 15:27 Lima)
-
-- **Bundesliga: Mainz und St. Pauli treten auf der Stelle**: [Link](https://www.zdfheute.de/sport/bundesliga-mainz-05-st-pauli-spielbericht-100.html)
-- **„Ball ist komisch gesprungen“: St. Pauli-Profi grübelt über den Platz**: [Link](https://stpauli24.mopo.de/2025/12/21/ball-ist-komisch-gesprungen-st-pauli-profi-gruebelt-ueber-den-platz.html)
-- **„Wir sitzen nicht unglücklich unterm Weihnachtsbaum“**: [Link](https://www.fcstpauli.com/news/stimmen-auswaertsspiel-mainz-2526)
-
-
-### james ransone (N/A, 21/12/2025 15:27 Lima)
-
-- **James Ransone, Who Played Ziggy Sobotka on ‘The Wire,’ Dies at 46**: [Link](https://variety.com/2025/tv/obituaries-people-news/james-ransone-dead-ziggy-sobotka-the-wire-it-chapter-two-1236613869/)
-- **James Ransone, Actor Known for Roles in The Wire and It: Chapter Two , Dies by Suicide at 46**: [Link](https://people.com/actor-james-ransone-the-wire-dead-at-46-11874095)
-- **'The Wire' actor James Ransone dies by suicide at 46**: [Link](https://nypost.com/2025/12/21/entertainment/the-wire-actor-james-ransone-dies-by-suicide-at-46/)
-
-
-### aek (N/A, 21/12/2025 15:27 Lima)
-
-- **AEK Athens vs Universitatea Craiova: UEFA Conference League stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cx2dkr6d80rt)
-- **€500,000 bonus: AEK Athens owner generously rewards players after Conference League knockout qualification in viral video**: [Link](https://tribuna.com/en/blogs/500000-bonus-aek-athens-owner-generously-rewards-players-aft/)
-- **AEK Athens break CS Universitatea Craiova hearts in 105th minute to stun the Romanians**: [Link](https://www.flashscore.com/news/conference-league-aek-athens-univ-craiova-report-december-18/MZ0LP3I0/)
-
-
-### vasco da gama vs (N/A, 21/12/2025 15:27 Lima)
-
-- **Where to watch Vasco da Gama vs Corinthians live in the USA: 2025 Copa do Brasil**: [Link](https://bolavip.com/en/soccer/where-to-watch-vasco-da-gama-vs-corinthians-live-in-the-usa-2025-copa-do-brasil)
-- **André Carrillo sueña con la Copa do Brasil: jugará la final con Corinthians ante Vasco da Gama**: [Link](https://rpp.pe/futbol/peruanos-en-el-mundo/andre-carrillo-corinthians-jugara-la-final-de-la-copa-do-brasil-2025-ante-vasco-da-gama-libertadores-noticia-1667920)
-- **Junior: Vasco da Gama vs. Corinthians, una final clave para Libertadores 2026**: [Link](https://www.espn.com.pe/futbol/colombia/nota/_/id/16108245/vasco-da-gama-vs-corinthians-copa-de-brasil-define-futuro-junior-copa-libertadores-2026)
-
-
-### atalanta vs (N/A, 21/12/2025 15:27 Lima)
-
-- **Serie A: Genoa y Atalanta se encuentran en la fecha 16**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-genoa-y-atalanta-se-encuentran-en-la-fecha-16-noticia-1668693)
-- **Pronóstico Genoa - Atalanta. Serie A | 21/12/2025**: [Link](https://gainblers.com/pe/pronosticos/futbol/italia/serie-a/pronostico-genoa-atalanta-21-12-2025/)
-- **Where to Watch Genoa CFC vs. Atalanta: TV Channel, Start Time and Live Stream**: [Link](https://www.bleachernation.com/how-to-watch/2025/12/20/where-to-watch-genoa-cfc-vs-atalanta-tv-channel-start-time-and-live-stream-2/)
-
-
-### real betis - getafe (N/A, 21/12/2025 15:27 Lima)
-
-- **LaLiga EA Sports: Por la fecha 17 se enfrentarán Betis y Getafe**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-por-la-fecha-17-se-enfrentaran-betis-y-getafe-noticia-1668694)
-- **Getoff busca romper la racha de derrotas ante el Real Betis en el choque de La Liga**: [Link](https://www.ucvradio.pe/mas-actualidad/getoff-busca-romper-la-racha-de-derrotas-ante-el-real-betis-en-el-choque-de-la-liga/82383/)
-- **Pronóstico Betis - Getafe. LaLiga | 21/12/2025**: [Link](https://gainblers.com/pe/pronosticos/futbol/espana/liga-primera-division/pronostico-betis-getafe-21-12-2025/)
-
-
-### utrecht - psv (N/A, 21/12/2025 15:27 Lima)
-
-- **Belgen in het buitenland - Assist Siebe Horemans levert FC Utrecht niets op tegen leider PSV**: [Link](https://starsporttv.be/content/belgen-in-het-buitenland-assist-siebe-horemans-levert-fc-utrecht-niets-op-tegen-leider-psv)
-- **Viergever baalt: "Een gelijkspel was denk ik wel terecht geweest"**: [Link](https://www.psvfans.nl/viergever-baalt-een-gelijkspel-was-denk-ik-wel-terecht-geweest/)
-- **LIVE | PSV moet op het tandvlees zege over de streep zien te trekken, aanvoerder Schouten krijgt rode kaart**: [Link](https://www.ad.nl/eindhoven/live-psv-op-bezoek-bij-fc-utrecht-kunnen-de-eindhovenaren-weer-een-uitduel-winnen-en-2025-goed-afsluiten~ab270c3b/)
-
-
-### genoa - atalanta (N/A, 21/12/2025 15:27 Lima)
-
-- **Genoa v Atalanta: the line-ups | 2025/26 Serie A Enilive MD16**: [Link](https://en.atalanta.it/news/genoa-v-atalanta-the-line-ups-2025-26-serie-a-enilive-md16)
-- **Calcio Live: in campo Genoa-Atalanta (0-0), rosso per Leali**: [Link](https://www.diretta.it/news/calcio-serie-a-calcio-live-in-campo-genoa-atalanta-0-0-rosso-per-leali/SQIMSPum/)
-- **Genoa Atalanta in tv e streaming: dove vedere la partita**: [Link](https://sport.sky.it/calcio/serie-a/2025/12/21/genoa-atalanta-dove-vedere-tv-streaming)
 
 
