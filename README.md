@@ -1,3 +1,10 @@
+### larepublica (N/A, 25/12/2025 07:52 Lima)
+
+- **JNE confirmó que 36 fórmulas presidenciales quedaron inscritas para competir en elecciones generales 2026**: [Link](https://canaln.pe/actualidad/jne-confirma-inscripcion-36-formulas-presidenciales-2026-n489162)
+- **A candidatear, a candidatear que el mundo se va a acabar**: [Link](https://peru21.pe/opinion/candidatear-candidatear-que-el-mundo-se-va-acabar/)
+- **36 candidatos y una pregunta incómoda**: [Link](https://elcomercio.pe/opinion/columnistas/36-candidatos-y-una-pregunta-incomoda-por-maite-vizcarra-elecciones-2026-postulantes-presidenciales-campana-electoral-lideres-politicos-noticia/)
+
+
 ### incendio (N/A, 25/12/2025 03:34 Lima)
 
 - **Incendios en Navidad: Reportan múltiples emergencias en Lima y provincias del país**: [Link](https://www.exitosanoticias.pe/actualidad/incendios-navidad-reportan-multiples-emergencias-lima-provincias-pais-n165335)
@@ -1015,12 +1022,5 @@ Sin noticias relacionadas disponibles.
 - **Two Aussies, one classic and two almost triple-doubles**: [Link](https://www.basketball.com.au/news/josh-giddey-dyson-daniels-aussie-almost-triple-double-fest-bulls-hawks)
 - **Bulls edge Hawks 152-150 in NBA’s highest-scoring game this season**: [Link](https://sports.yahoo.com/articles/bulls-edge-hawks-152-150-030351115.html)
 - **Jalen Johnson sounds off on the Atlanta Hawks' "embarassing" loss to the Chicago Bulls**: [Link](https://www.sportingnews.com/us/nba/atlanta-hawks/news/jalen-johnson-sounds-atlanta-hawks-embarassing-loss-bulls/9400928c1031cf7de29eb398)
-
-
-### la tinka (N/A, 21/12/2025 21:09 Lima)
-
-- **Resultados de La Tinka EN VIVO del domingo 21 de diciembre: números ganadores del Pozo Millonario**: [Link](https://depor.com/peru/la-tinka-hoy-domingo-21-de-diciembre-en-vivo-resultados-numeros-ganadores-del-ultimo-sorteo-pozo-millonario-boliyapa-resultado-si-o-si-intralot-peru-noticia/)
-- **Sorteo de La Tinka EN VIVO hoy, miércoles 17 de diciembre de 2025: ¿cuáles serán los números ganadores del Pozo Millonario y más?**: [Link](https://larepublica.pe/sociedad/2025/12/17/sorteo-de-la-tinka-en-vivo-hoy-miercoles-17-de-diciembre-de-2025-sigue-minuto-a-minuto-los-numeros-ganadores-del-pozo-millonario-boliyapa-y-mas-atmp-659104)
-- **Resultados La Tinka del domingo 14 de diciembre: esta fue la jugada ganadora**: [Link](https://libero.pe/ocio/2025/12/14/resultados-tinka-hoy-domingo-14-de-diciembre-ultimos-numeros-ganadores-del-pozo-millonario-intralot-peru-1211093)
 
 
