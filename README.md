@@ -1,3 +1,52 @@
+### thunder - spurs (N/A, 25/12/2025 15:29 Lima)
+
+- **Spurs vs. Thunder Picks & Odds: December 25, 2025**: [Link](https://www.oddsshark.com/nba/spurs-thunder-christmas-picks-odds-december-25-2025)
+- **BetMGM bonus code CBSSPORTS: Get $150 bonus bets for Christmas NBA games, Rockets-Lakers, Nuggets-Timberwolves**: [Link](https://www.cbssports.com/nba/news/betmgm-bonus-code-cbssports-get-150-bonus-bets-christmas-nba-games-rockets-lakers-nuggets-timberwolves/)
+- **Open Thread: There is no rivalry budding between the Spurs and Thunder**: [Link](https://www.poundingtherock.com/spurs-discussion-threads/91866/open-thread-there-is-no-rivalry-budding-between-the-spurs-and-thunder)
+
+
+### knicks - cavaliers (N/A, 25/12/2025 15:29 Lima)
+
+- **Cavs led for over 35 minutes of this one but had …**: [Link](https://www.hoopshype.com/story/sports/nba/rumors/2025/12/25/cavs-led-for-over-35-minutes-of-this-one-but-had/87914674007/)
+- **Game Preview: Knicks vs Cavaliers, December 25, 2025**: [Link](https://www.postingandtoasting.com/knicks-game-previews/76971/game-preview-knicks-vs-cavaliers-december-25-2025)
+- **Mavericks vs. Warriors FREE LIVE STREAM (12/25/25): Watch NBA Christmas Day online | Time, TV channel**: [Link](https://www.nj.com/tv/2025/12/mavericks-vs-warriors-free-live-stream-122525-watch-nba-christmas-day-online-time-tv-channel.html)
+
+
+### angola vs (N/A, 25/12/2025 15:29 Lima)
+
+- **Sudáfrica: Lo que debes saber sobre la Copa Africana 2025**: [Link](https://www.espn.com.pe/futbol/selecciones/nota/_/id/16108689/sudafrica-partidos-copa-africa-2025-rival-mexico-mundial-2026)
+- **Los Bafana apuntan a la Copa Africana de Naciones, dice Ronswens Williams**: [Link](https://www.elpueblo.pe/deportes/los-bafana-apuntan-a-la-copa-africana-de-naciones-dice-ronswens-williams/179879/)
+- **Sudáfrica debutó con triunfo en la Copa Africana**: [Link](https://ovacion.pe/noticias/futbol-internacional/sudafrica-debuto-triunfo-copa-africana)
+
+
+### nba (N/A, 25/12/2025 15:29 Lima)
+
+- **Christmas Day 2025: News, notes and quick facts**: [Link](https://www.nba.com/news/christmas-day-2025-news-notes-and-quick-facts)
+- **Streameast alternatives for free NBA live streams today: NBA Christmas Schedule**: [Link](https://www.masslive.com/tv/2025/12/streameast-alternatives-for-free-nba-live-streams-today-nba-christmas-schedule.html)
+- **NBA Christmas watch guide: Spurs-Thunder rematch, animated Knicks, LeBron vs. KD - The Athletic**: [Link](https://www.nytimes.com/athletic/6912179/2025/12/25/nba-christmas-wembanyama-knicks-lebron-durant/)
+
+
+### nfl (N/A, 25/12/2025 15:29 Lima)
+
+- **Ranking the Six NFL Quarterbacks Playing on Christmas Day 2025**: [Link](https://www.inkl.com/news/ranking-the-six-nfl-quarterbacks-playing-on-christmas-day-2025)
+- **Thursday Football DFS Picks – Christmas Special**: [Link](https://fantraxhq.com/thursday-football-dfs-picks-christmas-special/)
+- **NFL games today: How to watch the Cowboys, Lions, and Chiefs headline the Christmas Day tripleheader**: [Link](https://www.mundodeportivo.com/us/en/20251225/736759/nfl-games-today-how-to-watch-the-cowboys-lions-and-chiefs-headline-the-christmas-day-tripleheader.html)
+
+
+### amazon (N/A, 25/12/2025 15:29 Lima)
+
+- **A $61 Billion Reason to Buy Amazon Stock for 2026**: [Link](https://finance.yahoo.com/news/61-billion-reason-buy-amazon-143002062.html)
+- **Amazon: A Correction Under $200 May Be Necessary Before Uptrend Resumes (Technical Analysis)**: [Link](https://seekingalpha.com/article/4855722-amazon-a-correction-under-200-may-be-necessary-before-uptrend-resumes-technical-analysis)
+- **Is Amazon Stock Poised to Rally With AI Expansion in Cloud & Retail?**: [Link](https://www.zacks.com/stock/news/2808037/is-amazon-stock-poised-to-rally-with-ai-expansion-in-cloud-retail)
+
+
+### peaky blinders el hombre inmortal (N/A, 25/12/2025 15:29 Lima)
+
+- **El primer tráiler de ‘Peaky Blinders: The Immortal Man’ es puro hype y Cillian Murphy avisa: “Tommy Shelby no**: [Link](https://as.com/meristation/cine/el-primer-trailer-de-peaky-blinders-the-immortal-man-es-puro-hype-y-cillian-murphy-avisa-tommy-shelby-no-es-el-mismo-f202512-v/)
+- **El regreso de Cillian Murphy en la película de Peaky Blinders: teaser, fecha de estreno y todo lo que sabemos de “El hombre inmortal”**: [Link](https://www.infobae.com/entretenimiento/2025/12/25/el-regreso-de-cillian-murphy-en-la-pelicula-de-peaky-blinders-teaser-fecha-de-estreno-y-todo-lo-que-sabemos-de-el-hombre-inmortal/)
+- **“El hombre que fui, desapareció”: Netflix lanza el tráiler oficial de ‘Peaky Blinders: El hombre inmortal’**: [Link](https://rpp.pe/tv/netflix/peaky-blinders-el-hombre-inmortal-netflix-lanza-el-trailer-oficial-de-la-pelicula-con-cillian-murphy-noticia-1669114)
+
+
 ### netflix (N/A, 25/12/2025 11:32 Lima)
 
 - **Guía de actores y personajes de “Cashman”: quién es quién en la nueva serie coreana de Netflix**: [Link](https://elcomercio.pe/mag/fama/que-ver/cashman-actores-y-personajes-guia-del-elenco-de-la-serie-coreana-de-netflix-video-nnda-nnlt-noticia/)
@@ -973,54 +1022,5 @@ Sin noticias relacionadas disponibles.
 - **Último feriado largo del año: quiénes descansan cuatro días**: [Link](https://caretas.pe/nacional/ultimo-feriado-largo-del-ano-quienes-descansan-cuatro-dias/)
 - **¡Atención! El Peruano aclara si el 24 de diciembre será feriado o día no laborable a nivel nacional**: [Link](https://elcomercio.pe/respuestas/que/el-peruano-aclara-si-el-24-de-diciembre-sera-feriado-o-dia-no-laborable-a-nivel-nacional-tdpe-noticia/)
 - **Navidad: el viernes 26 será no laborable, ¿para quiénes aplica?**: [Link](https://andina.pe/agencia/noticia-navidad-viernes-26-sera-no-laborable-para-quienes-aplica-1055080.aspx)
-
-
-### napoli vs bologna (N/A, 22/12/2025 11:33 Lima)
-
-- **How to watch Napoli vs Bologna in the USA: Live Stream and TV for 2025/2026 Supercoppa Italiana**: [Link](https://worldsoccertalk.com/watch-on-us-tv/how-to-watch-napoli-vs-bologna-in-the-usa-live-stream-and-tv-for-2025-2026-supercoppa-italiana/)
-- **Politano: “We’re a solid team and want to play a great final”**: [Link](https://sscnapoli.it/en/politano-siamo-un-gruppo-solido-e-vogliamo-giocare-una-gran-finale/)
-- **Recovery session in Riyadh**: [Link](https://onefootball.com/en/news/recovery-session-in-riyadh-42123266)
-
-
-### ciro castillo rojo (N/A, 22/12/2025 07:53 Lima)
-
-- **¿Sabía que iban por él? Ciro Castillo abandonó clínica minutos antes de ser detenido**: [Link](https://peru21.pe/politica/ciro-castillo-abandono-clinica-20-minutos-antes-de-ser-detenido/)
-- **Ciro Castillo-Rojo: ¿Cómo queda configurado el gobierno regional con su ausencia?**: [Link](https://elcomercio.pe/lima/sucesos/ciro-castillo-rojo-como-queda-configurado-el-gobierno-regional-con-su-ausencia-noticia/)
-- **Ciro Castillo: Dictan detención preliminar contra gobernador del Callao por caso Los Socios del Callao**: [Link](https://lpderecho.pe/ciro-castillo-dictan-detencion-preliminar-gobernador-callao-caso-los-socios-del-callao/)
-
-
-### pandora (N/A, 22/12/2025 07:53 Lima)
-
-- **Disney's 'Avatar: Fire and Ash' disappoints with weak $88 million domestic opening**: [Link](https://www.cnbc.com/2025/12/21/disneys-avatar-fire-and-ash-box-office.html)
-- **‘Avatar: Fire and Ash’ Gets Off To a Hot Theatrical Start**: [Link](https://gizmodo.com/avatar-fire-and-ash-gets-off-to-a-hot-theatrical-start-2000702376)
-- **Third ‘Avatar’ Movie Off to Slower Box Office Start Than Predecessor**: [Link](https://www.wsj.com/business/media/third-avatar-movie-off-to-slower-box-office-start-than-predecessor-9b099bd0?gaa_at=eafs&gaa_n=AWEtsqfkTLZx8-wY9_tpEtZJBFK0fbMnhMDBcAB-Iwn4Lu0Kx-vXs_5LcPWn&gaa_ts=694942e9&gaa_sig=JVrmtWVj0qHNFd9bDmWYjobBCwsf8mBAxhGBPREKbh48Ja2Soee7wvGgyFNKjjSwsPHfP4FogSyR-M3-U5C_3w%3D%3D)
-
-
-### al hilal (N/A, 22/12/2025 07:53 Lima)
-
-- **Former Liverpool star Darwin Nunez reveals comeback plan amid recent struggles - 'One day'**: [Link](https://www.liverpoolecho.co.uk/sport/football/football-news/darwin-nunez-liverpool-al-hilal-33094755)
-- **Darwin Nunez hints at transfer return after Liverpool summer exit - 'One day'**: [Link](https://www.liverpool.com/liverpool-fc-news/features/darwin-nunez-transfer-return-liverpool-33095316)
-- **Darwin Nunez vows to make transfer return as ex-Liverpool striker makes 'one day' claim**: [Link](https://www.express.co.uk/sport/football/2148714/darwin-nunez-liverpool-transfer-al-hilal)
-
-
-### pronabec beca 18 (N/A, 22/12/2025 03:37 Lima)
-
-- **Incertidumbre por Beca 18: aplazan fecha de publicación de los resultados de preseleccionados**: [Link](https://www.infobae.com/peru/2025/12/20/incertidumbre-por-beca-18-aplazan-fecha-de-publicacion-de-los-resultados-de-preseleccionados/)
-- **Crisis en Pronabec: MEF descarta ir a comisión del Congreso para abordar soluciones**: [Link](https://gestion.pe/peru/politica/crisis-en-pronabec-mef-descarta-ir-a-comision-del-congreso-para-abordar-soluciones-noticia/)
-- **Congresista Segundo Montalvo cita a Ministros de Economía y Educación para este lunes por la Crisis de Beca 18**: [Link](https://comunicaciones.congreso.gob.pe/damos-cuenta/congresista-segundo-montalvo-cita-a-ministros-de-economia-y-educacion-para-este-lunes-por-la-crisis-de-beca-18/)
-
-
-### catherine fulop (N/A, 22/12/2025 03:37 Lima)
-
-- **Catherine Fulop reveló cuándo nace el bebé de Oriana Sabatini y Dybala**: [Link](https://es-us.vida-estilo.yahoo.com/catherine-fulop-revel%C3%B3-cu%C3%A1ndo-nace-191705147.html)
-- **La contundente advertencia de Oriana Sabatini a Catherine Fulop antes de su participación en Otro día perdido**: [Link](https://www.eltrecetv.com.ar/otro-dia-perdido/2025/12/19/la-contundente-advertencia-de-oriana-sabatini-a-catherine-fulop-antes-de-su-participacion-en-otro-dia-perdido/)
-- **Catherine Fulop reveló cuándo nacerá su primera nieta y ya planea el viaje a Europa para acompañar a Oriana Sabatini**: [Link](https://www.revistagente.com/entretenimiento/catherine-fulop-revelo-cuando-nacera-su-primera-nieta-y-ya-planea-el-viaje-a-europa-para-acompanar-a-oriana-sabatini/)
-
-
-### kings - rockets (N/A, 22/12/2025 03:37 Lima)
-
-- **Russell Westbrook’s Clutch Three-Pointer Stuns Fans and Shifts Momentum in 2025 NBA Match**: [Link](https://azat.tv/en/russell-westbrook-clutch-three-pointer-2025-nba/)
-- **NBA results and standings: Wembanyama posts double-double, Schroder hits game-winner**: [Link](https://www.eurohoops.net/en/nba-news/1910461/victor-wembanyama-alperen-sengun-nba-european-recap/)
-- **DeMar DeRozan Reflects Sacramento Kings Hectic 125-124 Overtime Win Over The Houston Rockets**: [Link](https://sactownsports.com/watch/demar-derozan-reflects-sacramento-kings-hectic-125-124-overtime-win-over-the-houston-rockets/019b44ab-4268-8008-f7de-6a112a960a88)
 
 
