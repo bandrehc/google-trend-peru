@@ -1,3 +1,71 @@
+### incendio (N/A, 25/12/2025 03:34 Lima)
+
+- **Incendios en Navidad: Reportan múltiples emergencias en Lima y provincias del país**: [Link](https://www.exitosanoticias.pe/actualidad/incendios-navidad-reportan-multiples-emergencias-lima-provincias-pais-n165335)
+- **San Luis: Bomberos controlan incendio a horas de Navidad y evitan una tragedia**: [Link](https://www.apnoticias.pe/peru/exitosa-noticias/san-luis-bomberos-controlan-incendio-a-horas-de-navidad-y-evitan-una-tragedia-1479397)
+- **¡Navidad al extremo! Entre polémicas, emergencias y creatividad ciudadana**: [Link](https://panamericana.pe/alsextodia/nacionales/461573-navidad-extremo-polemicas-emergencias-creatividad-ciudadana)
+
+
+### instagram (N/A, 25/12/2025 03:34 Lima)
+
+- **Nicki Minaj Deactivates Instagram After Appearing With Erika Kirk at Turning Point USA’s AmericaFest**: [Link](https://www.yahoo.com/entertainment/music/articles/nicki-minaj-deactivates-instagram-appearing-175030112.html)
+- **Nicki Minaj surprises conservatives with praise for Trump, Vance at Arizona event**: [Link](https://apnews.com/article/nicki-minaj-charlie-kirk-erika-kirk-trump-b6f5b45521368447e174f040ae7eab8c)
+- **Nicki Minaj’s Surprising Shift Toward Trump and Vance**: [Link](https://www.wsj.com/politics/elections/nicki-minajs-surprising-shift-toward-trump-and-vance-e0cdf1f0?gaa_at=eafs&gaa_n=AWEtsqdQgHe-oL309uV3snl660OjtFEg61emsD4SaubzsYEzrl7Qn10U46ti&gaa_ts=694cfab5&gaa_sig=Wu4I0DDO-hZG-4t55_WS_00cKbRThyH0U57kC_GfcRy_QeRkgIEK7tMyRje2ubxxtGPHC2mfcQzyidoSSg2Jjw%3D%3D)
+
+
+### nintendo switch 2 (N/A, 25/12/2025 03:34 Lima)
+
+- **21 Nintendo Switch Games Are Yours For $1 in 99% Discount, Save $300**: [Link](https://www.gamingbible.com/news/platform/nintendo/switch-games-bundle-almost-free-788524-20251224)
+- **Switch into savings: Nintendo's holiday game sale is here**: [Link](https://www.techspot.com/news/110698-switch-savings-nintendo-holiday-game-sale-here.html)
+- **‘Hits for the Holidays’: Nintendo offering discounts on select digital Switch, Switch 2 titles**: [Link](https://www.wbrc.com/2025/12/24/hits-holidays-nintendo-offering-discounts-select-digital-switch-switch-2-titles/)
+
+
+### la tinka resultados (N/A, 25/12/2025 03:34 Lima)
+
+- **En la ONU, Rusia y China critican conducta de EEUU hacia Venezuela | nnav | video | agafp | VIDEOS**: [Link](https://elcomercio.pe/videos/global/en-la-onu-rusia-y-china-critican-conducta-de-eeuu-hacia-venezuela-nnav-video-agafp-noticia/)
+- **La Tinka del 24 de diciembre de 2025: descubre los ganadores del último sorteo**: [Link](https://www.infobae.com/peru/2025/12/25/la-tinka-del-24-de-diciembre-de-2025-descubre-los-ganadores-del-ultimo-sorteo/)
+- **La Tinka EN VIVO HOY, 24 de diciembre: últimos números ganadores y resultados del Pozo Millonario**: [Link](https://libero.pe/ocio/2025/12/24/tinka-hoy-24-de-diciembre-ultimos-numeros-ganadores-resultados-del-pozo-millonario-2210040)
+
+
+### playstation 5 (N/A, 25/12/2025 03:34 Lima)
+
+Sin noticias relacionadas disponibles.
+
+
+### iphone 13 (N/A, 25/12/2025 03:34 Lima)
+
+- **How Shih-Ching Tsou Shot 'Left-Handed Girl' on an iPhone 13 with Beastgrip Accessories**: [Link](https://nofilmschool.com/how-shih-ching-tsou-shot-left-handed-girl-on-an-iphone-13-with-beastgrip-accessories)
+- **'Left-Handed Girl' shortlisted for international film Oscar**: [Link](https://focustaiwan.tw/culture/202512170009)
+- **‘Left-Handed Girl’ Director on the Superstition at the Center of Her Oscar-Shortlisted Drama**: [Link](https://www.thewrap.com/left-handed-girl-director-oscars-interview/)
+
+
+### ps5 (N/A, 25/12/2025 03:34 Lima)
+
+- **Your Last Chance to Save on PS5 Pro Before Christmas Is Here**: [Link](https://www.ign.com/articles/ps5-pro-last-minute-christmas-deal)
+- **Sony’s souped-up PlayStation 5 Pro is $100 off for the rest of today**: [Link](https://www.theverge.com/gadgets/684281/sony-playstation-5-ps5-pro-christmas-deal-sale-2025)
+- **Today's the last day to get $100 off the PS5 and PS5 Pro**: [Link](https://www.engadget.com/gaming/playstation/todays-the-last-day-to-get-100-off-the-ps5-and-ps5-pro-181454333.html)
+
+
+### iphone (N/A, 25/12/2025 03:34 Lima)
+
+- **Samsung expected to place kits soon at Austin for iPhone CIS**: [Link](https://www.thelec.net/news/articleView.html?idxno=5530)
+- **Advanced iPhone 18 Camera Sensor to Be Made in Texas**: [Link](https://www.macrumors.com/2025/12/24/iphone-18-camera-sensor-to-be-made-in-texas/)
+- **Samsung getting ready to make camera sensors for iPhones**: [Link](https://www.sammobile.com/news/samsung-getting-ready-make-camera-sensors-iphones/)
+
+
+### ppk (N/A, 25/12/2025 03:34 Lima)
+
+- **PJ evalúa pedido de PPK para archivar investigación por aportes de campaña**: [Link](https://caretas.pe/politica/pj-evalua-pedido-de-ppk-para-archivar-investigacion-por-aportes-de-campana/)
+- **PPK pide al Poder Judicial archivar investigación por supuestos aportes ilícitos de Odebrecht**: [Link](https://rpp.pe/politica/judiciales/ppk-pide-al-poder-judicial-archivar-investigacion-por-supuestos-aportes-ilicitos-de-odebrecht-noticia-1669094)
+- **PPK pide al Poder Judicial archivar investigación por aportes de campaña del 2011**: [Link](https://diariocorreo.pe/politica/ppk-solicita-archivar-investigacion-por-aportes-a-campana-presidencial-del-2011-noticia/)
+
+
+### sorteo online (N/A, 25/12/2025 03:34 Lima)
+
+- **Lotería de Navidad 2025, en directo: El 79.432, el Gordo**: [Link](https://www.msn.com/es-pe/noticias/other/loter%C3%ADa-de-navidad-2025-en-directo-79-432-el-n%C3%BAmero-premiado-con-el-gordo/ar-AA1SOl3G?ocid=finance-verthp-feeds)
+- **Loterías paga más de 710 millones de euros en premios del Sorteo de Navidad 2025 hasta hoy 24 de diciembre**: [Link](https://www.infobae.com/america/agencias/2025/12/24/loterias-paga-mas-de-710-millones-de-euros-en-premios-del-sorteo-de-navidad-2025-hasta-hoy-24-de-diciembre/)
+- **🎄 La Grand Place de Bruselas se ilumina para dar la bienvenida a la Navidad 🎥 Agencia EFE**: [Link](https://www.facebook.com/story.php?story_fbid=838886602453209&id=100089956306194)
+
+
 ### hora (N/A, 24/12/2025 23:41 Lima)
 
 - **Navidad en Perú EN VIVO: a qué hora llega Papa Noel, tráfico en Lima, cena navideña y últimas noticias de hoy 24 de diciembre**: [Link](https://www.infobae.com/peru/2025/12/24/navidad-en-peru-en-vivo-a-que-hora-llega-papa-noel-compras-de-ultima-hora-trafico-cena-navidena-y-ultimas-noticias-de-hoy-24-de-diciembre/)
@@ -954,75 +1022,5 @@ Sin noticias relacionadas disponibles.
 - **Resultados de La Tinka EN VIVO del domingo 21 de diciembre: números ganadores del Pozo Millonario**: [Link](https://depor.com/peru/la-tinka-hoy-domingo-21-de-diciembre-en-vivo-resultados-numeros-ganadores-del-ultimo-sorteo-pozo-millonario-boliyapa-resultado-si-o-si-intralot-peru-noticia/)
 - **Sorteo de La Tinka EN VIVO hoy, miércoles 17 de diciembre de 2025: ¿cuáles serán los números ganadores del Pozo Millonario y más?**: [Link](https://larepublica.pe/sociedad/2025/12/17/sorteo-de-la-tinka-en-vivo-hoy-miercoles-17-de-diciembre-de-2025-sigue-minuto-a-minuto-los-numeros-ganadores-del-pozo-millonario-boliyapa-y-mas-atmp-659104)
 - **Resultados La Tinka del domingo 14 de diciembre: esta fue la jugada ganadora**: [Link](https://libero.pe/ocio/2025/12/14/resultados-tinka-hoy-domingo-14-de-diciembre-ultimos-numeros-ganadores-del-pozo-millonario-intralot-peru-1211093)
-
-
-### unac resultados (N/A, 21/12/2025 21:09 Lima)
-
-- **Resultados UNAC 2025-II: link oficial con la lista de ingresantes y puntajes del examen de admisión de este 21 de diciembre**: [Link](https://larepublica.pe/sociedad/2025/12/21/resultados-unac-2025ii-link-oficial-de-la-lista-de-ingresantes-y-puntajes-del-examen-de-admision-de-la-universidad-nacional-del-callao-564837)
-- **Resultados del examen de admisión general UNAC 2025- II: ver lista de ingresantes y puntajes finales**: [Link](https://libero.pe/tiempoextra/2025/12/21/resultados-del-examen-de-admision-general-unac-2025-ii-ver-lista-de-ingresantes-puntajes-finales-universidad-nacional-del-callao-1126320)
-- **Resultados del examen de admisión UNAC 2025-II: Puntajes y lista de ingresantes a Otras Modalidades y Centro Pre**: [Link](https://libero.pe/tiempoextra/2025/12/14/resultados-del-examen-de-admision-unac-2025ii-puntajes-lista-de-ingresantes-otras-modalidades-centro-pre-590746)
-
-
-### javier rabanal (N/A, 21/12/2025 21:09 Lima)
-
-- **Universitario lo hizo oficial: Javier Rabanal es anunciado como nuevo entrenador crema**: [Link](https://depor.com/futbol-peruano/descentralizado/javier-rabanal-a-universitario-de-deportes-anuncio-oficial-del-nuevo-entrenador-fichajes-liga-1-2026-noticia/)
-- **“Bienvenido a su nueva casa, profe”: Universitario anuncia a Javier Rabanal como su nuevo técnico**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/universitario-anuncia-a-javier-rabanal-como-su-nuevo-tecnico-liga-1-noticia/)
-- **Javier Rabanal se despidió de Independiente del Valle y está próximo a ser el nuevo DT de Universitario**: [Link](https://rpp.pe/futbol/descentralizado/javier-rabanal-se-despidio-de-independiente-del-valle-y-esta-proximo-a-ser-el-nuevo-dt-de-universitario-noticia-1668786)
-
-
-### andré carrillo (N/A, 21/12/2025 21:09 Lima)
-
-- **André Carrillo se consagró campeón de la Copa de Brasil con Corinthians**: [Link](https://www.espn.com.ar/futbol/brasil/nota/_/id/16110507/andre-carrillo-corinthians-campeon-copa-de-brasil-final-vs-vasco-da-gama)
-- **Vasco vs Corinthians: Resultado EN VIVO, minuto a minuto y goles de la final de Copa Brasil**: [Link](https://www.365scores.com/es/news/vasco-vs-corinthians-resultado-en-vivo/)
-- **El Pumita Rodríguez, sin Copa do Brasil**: [Link](https://espndeportes.espn.com/futbol/brasil/nota/_/id/16110299/pumita-jose-luis-rodriguez-sin-copa-do-brasil-vasco-da-gama-corinthians)
-
-
-### orense - libertad fc (N/A, 21/12/2025 21:09 Lima)
-
-- **Remontada en Machala: Orense derrota a Libertad FC en el cierre de temporada del hexagonal final de la Liga Ecuabet**: [Link](https://www.eluniverso.com/deportes/campeonato-ecuatoriano/orense-y-libertad-fc-igualan-en-machala-en-el-cierre-de-temporada-del-hexagonal-final-de-la-liga-ecuabet-nota/)
-- **EN VIVO | Orense vs. Libertad por el hexagonal final de la LigaPro**: [Link](https://www.ecuavisa.com/deportes/futbol-nacional/envivo-orense-vs-libertad-resultado-fecha-10-hexagonal-final-ligapro-ON10590709)
-- **EN VIVO: Orense vs. Libertad definen su ubicación para la Copa Sudamericana 2026**: [Link](https://www.teleamazonas.com/deportes/futbol/ligapro/vivo-orense-vs-libertad-definen-ubicacion-copa-sudamericana-108220/)
-
-
-### feyenoord - twente (N/A, 21/12/2025 21:09 Lima)
-
-- **FC Twente vol vertrouwen naar De Kuip na ongeslagen reeks van acht duels: ’Gebruikmaken van situtie bij Feyenoord’**: [Link](https://www.telegraaf.nl/sport/voetbal/fc-twente-vol-vertrouwen-naar-de-kuip-na-ongeslagen-reeks-van-acht-duels-gebruikmaken-van-situatie-bij-feyenoord/115723667.html)
-- **Karim El Ahmadi slacht Feyenoord-coach Van Persie met dodelijke woorden in rust**: [Link](https://www.msn.com/nl-nl/nieuws/other/karim-el-ahmadi-slacht-feyenoord-coach-van-persie-met-dodelijke-woorden/ar-AA1SLVWj?ocid=finance-verthp-feeds)
-- **Lammers kritisch op zichzelf en het team: "Bij ons is het extreem"**: [Link](https://www.twentefans.nl/lammers-zelfkritisch-en-op-team-bij-ons-is-het-echt-extreem/)
-
-
-### serie a de ecuador (N/A, 21/12/2025 21:09 Lima)
-
-- **Libertadores 2026: tras el sorteo de las fases previas, así quedó el fixture**: [Link](https://www.espn.com.pe/futbol/copa-libertadores/nota/_/id/16087819/libertadores-2026-sorteo-fases-previas-asi-quedo-el-fixture-copa-equipos)
-- **Cruces definidos para la Fase Preliminar de la CONMEBOL Libertadores 2026**: [Link](https://www.conmebol.com/noticias/cruces-definidos-para-la-fase-preliminar-de-la-conmebol-libertadores-2026-2/)
-- **Se conocieron las fechas para los partidos de los clubes colombianos en Copa Libertadores y Copa Sudamericana**: [Link](https://www.infobae.com/colombia/deportes/2025/12/19/se-conocieron-las-fechas-para-los-partidos-de-los-clubes-colombianos-en-copa-libertadores-y-copa-sudamericana/)
-
-
-### ldu quito - u. católica (N/A, 21/12/2025 21:09 Lima)
-
-- **El último objetivo de Liga de Quito en 2025**: [Link](https://www.espn.com.ar/futbol/ecuador/nota/_/id/16099750/el-ultimo-objetivo-de-liga-de-quito-en-2025)
-- **Hasta el momento, así quedan repartidos los cupos de Ecuador para las Copas Libertadores y Sudamericana**: [Link](https://www.primicias.ec/deportes/cupos-copa-libertadores-sudamericana-ecuador-torneos-internacionales-112245/)
-- **LDU vs Barcelona: posiciones en vivo por la fase de grupos de la Copa Libertadores**: [Link](https://www.365scores.com/es/news/ldu-vs-barcelona-posiciones-libertadores/)
-
-
-### independiente del valle - barcelona sc (N/A, 21/12/2025 21:09 Lima)
-
-- **Barcelona ya tiene rival en la fase previa de la CONMEBOL Libertadores 2026**: [Link](https://www.espn.com.ar/futbol/copa-libertadores/nota/_/id/16110851/copa-libertadores-2026-barcelona-tiene-rival-fase-dos-previa)
-- **Independiente del Valle vs Barcelona SC (1-0): resumen y goles del partido por LigaPro | VIDEO**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/independiente-del-valle-vs-barcelona-sc-en-vivo-gratis-hoy-via-futbol-libre-tv-canal-del-futbol-zapping-horarios-canales-tv-y-donde-ver-partido-por-ligapro-video-noticia/)
-- **La postura del plantel de Barcelona en la previa del duelo frente a Independiente del Valle por Liga Ecuabet**: [Link](https://espndeportes.espn.com/futbol/ecuador/nota/_/id/16102682/la-postura-del-plantel-de-barcelona-en-la-previa-del-duelo-frente-a-independiente-del-valle-por-liga-ecuabet)
-
-
-### america (N/A, 21/12/2025 21:09 Lima)
-
-- **Club América se les adelanta y confirma el fichaje de Max Serrano, portero proveniente de Toluca, ¿quién es?**: [Link](https://bolavip.com/mx/america/club-america-se-les-adelanta-y-confirma-el-fichaje-de-max-serrano-portero-proveniente-de-toluca-quien-es)
-- **¿Quién es Max Serrano? El arquero que deja Toluca para llegar al América**: [Link](https://www.elfutbolero.com.mx/ligamx/quien-es-max-serrano-el-arquero-que-deja-toluca-para-llegar-al-america-20251221-148288.html)
-- **Movimiento silencioso en Coapa: América amarró a un futbolista de Toluca**: [Link](https://www.soyaguila.com.mx/noticias-club-america/movimiento-silencioso-en-coapa-america-amarro-a-un-futbolista-de-toluca-20251222-29871.html)
-
-
-### vasco da gama - corinthians (N/A, 21/12/2025 15:27 Lima)
-
-- **Vasco x Corinthians: onde assistir ao vivo, horário e escalações**: [Link](https://ge.globo.com/futebol/copa-do-brasil/noticia/2025/12/21/vasco-x-corinthians-onde-assistir-ao-vivo-horario-e-escalacoes.ghtml)
-- **Dorival Júnior já foi campeão diante de Fernando Diniz na única final entre os técnicos**: [Link](https://br.bolavip.com/campeonato-copa-do-brasil/dorival-junior-ja-foi-campeao-diante-de-fernando-diniz-em-final-decisiva)
-- **Por que a Copa do Brasil ganhou relevância e aumentou premiações? Entenda**: [Link](https://www.estadao.com.br/esportes/futebol/por-que-a-copa-do-brasil-ganhou-relevancia-e-aumentou-premiacoes-entenda-npres/)
 
 
