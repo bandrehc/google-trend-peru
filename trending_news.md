@@ -1,3 +1,66 @@
+### netflix (N/A, 25/12/2025 11:32 Lima)
+
+- **Guía de actores y personajes de “Cashman”: quién es quién en la nueva serie coreana de Netflix**: [Link](https://elcomercio.pe/mag/fama/que-ver/cashman-actores-y-personajes-guia-del-elenco-de-la-serie-coreana-de-netflix-video-nnda-nnlt-noticia/)
+- **Un drama de acción coreano: “Cashman”, la serie de Netflix sobre un hombre común que hereda una fuerza increíble**: [Link](https://elcomercio.pe/mag/fama/que-ver/cashman-de-que-trata-y-fecha-de-estreno-guia-completa-de-la-serie-coreana-de-netflix-video-nnda-nnlt-noticia/)
+- **“El hombre que fui, desapareció”: Netflix lanza el tráiler oficial de ‘Peaky Blinders: El hombre inmortal’**: [Link](https://rpp.pe/tv/netflix/peaky-blinders-el-hombre-inmortal-netflix-lanza-el-trailer-oficial-de-la-pelicula-con-cillian-murphy-noticia-1669114)
+
+
+### xiaomi hyperos (N/A, 25/12/2025 11:32 Lima)
+
+- **Xiaomi 13T Pro Gets Android 16: HyperOS 3 Stable Update Enters Final Testing**: [Link](https://www.gizchina.com/xiaomi-phones/xiaomi-13t-pro-gets-android-16-hyperos-3-stable-update-enters-final-testing)
+- **The Evolution from MIUI to HyperOS: Key Features Shaping Xiaomi’s Ecosystem by 2025**: [Link](https://www.qoo10.co.id/en/gadget/57766/the-evolution-from-miui-to-hyperos-key-features-shaping-xiaomis-ecosystem-by-2025/)
+- **25 Xiaomi devices set to receive HyperOS 3 update before 2026**: [Link](https://www.gizmochina.com/2025/12/25/25-xiaomi-redmi-and-poco-devices-set-to-receive-hyperos-3-update-before-2026/)
+
+
+### 26 de diciembre es feriado (N/A, 25/12/2025 11:32 Lima)
+
+- **Ejecutivo declaró al 26 de diciembre y al 2 de enero como días no laborables: ¿a quiénes se aplica este beneficio?**: [Link](https://rpp.pe/politica/gobierno/ejecutivo-declaro-al-26-de-diciembre-y-al-2-de-enero-como-dias-no-laborables-a-quienes-se-aplica-este-beneficio-noticia-1669186)
+- **Día no laborable el 26 de diciembre: ¿Quiénes descansan en esta jornada?**: [Link](https://www.infobae.com/peru/2025/12/24/dia-no-laborable-el-26-de-diciembre-quienes-descansan-en-esta-jornada/)
+- **¿Es feriado hoy, miércoles 24 de diciembre en el Perú? Esto indica la norma**: [Link](https://elcomercio.pe/respuestas/que/este-24-de-diciembre-es-feriado-en-el-peru-esto-indica-la-norma-en-el-peruano-sobre-el-descanso-por-navidad-tdpe-noticia/)
+
+
+### jockey plaza (N/A, 25/12/2025 11:32 Lima)
+
+- **Jockey Plaza impulsa una Navidad más empática con una campaña que reduce el ruido**: [Link](https://stakeholders.com.pe/noticias-sh/jockey-plaza-impulsa-una-navidad-mas-empatica-con-una-campana-que-reduce-el-ruido/)
+- **Jockey Plaza apuesta por celebrar sin ruido y pone la empatía en el centro de la Navidad en su nueva campaña**: [Link](https://www.mercadonegro.pe/marketing/jockey-plaza-apuesta-por-celebrar-sin-ruido-y-pone-la-empatia-en-el-centro-de-la-navidad-en-su-nueva-campana/)
+- **“La idea de morir sobre el escenario no es atractiva cuando eres cantante para niños”**: [Link](https://elcomercio.pe/luces/musica/miss-rosi-la-idea-de-morir-sobre-el-escenario-no-es-atractiva-cuando-eres-cantante-para-ninos-musica-noticia/)
+
+
+### alexis arias (N/A, 25/12/2025 11:32 Lima)
+
+- **Alexis Arias, a un paso de irse de Melgar: el ‘Chaka’ orillado a abandonar el club insignia de Arequipa por medida de Juan Reynoso**: [Link](https://www.infobae.com/peru/deportes/2025/12/25/alexis-arias-a-un-paso-de-irse-de-melgar-el-chaka-orillado-a-abandonar-el-club-insignia-de-arequipa-por-medida-de-juan-reynoso/)
+- **Juan Reynoso sorprende a todo Melgar: deja fuera a un seleccionado y lo presta a otro club**: [Link](https://libero.pe/futbol-peruano/melgar/2025/12/24/juan-reynoso-sorprende-todo-melgar-deja-fuera-seleccionado-presta-otro-club-1855152)
+- **Juan Reynoso saca a otro referente de Melgar y ya le busca nuevo equipo**: [Link](https://bolavip.com/pe/liga-1/juan-reynoso-saca-a-otro-referente-de-melgar-y-ya-le-busca-nuevo-equipo)
+
+
+### proyecto san gabriel (N/A, 25/12/2025 11:32 Lima)
+
+- **Buenaventura produce su primera barra doré en el proyecto San Gabriel**: [Link](https://www.rumbominero.com/peru/noticias/mineria/proyecto-san-gabriel-primera-barra-de-oro-dore/)
+- **Buenaventura anuncia que proyecto San Gabriel produjo su primera barra de doré**: [Link](https://gestion.pe/economia/empresas/buenaventura-anuncia-que-proyecto-san-gabriel-produjo-su-primera-barra-de-dore-noticia/)
+- **Mina San Gabriel en Moquegua produjo su primera barra de oro y pronto iniciaría su operación comercial.**: [Link](https://www.gatoencerrado.net/mina-san-gabriel-en-moquegua-produjo-su-primera-barra-de-oro-y-pronto-iniciaria-su-operacion-comercial/)
+
+
+### weather (N/A, 25/12/2025 11:32 Lima)
+
+- **New Year's forecast has big change from Christmas weather in Nashville**: [Link](https://www.tennessean.com/story/weather/2025/12/25/nashville-weather-forecast-christmas-day-warm-new-years-cold/87906440007/)
+- **Rainy weather to linger over western Hawaiian islands**: [Link](https://www.staradvertiser.com/2025/12/19/breaking-news/oahu-under-flood-advisory-as-storm-system-lingers-over-hawaii/)
+- **First Alert Forecast: Breezy winds expected to ease over Christmas with minimal rainfall through the weekend**: [Link](https://www.hawaiinewsnow.com/2025/12/24/first-alert-forecast-breezy-winds-expected-ease-over-christmas-with-minimal-rainfall-through-weekend/)
+
+
+### partidos de hoy (N/A, 25/12/2025 11:32 Lima)
+
+- **Partidos de hoy, Perú, miércoles 24 de diciembre del 2025: horarios y canales TV ver Fútbol EN VIVO**: [Link](https://rpp.pe/futbol/futbol-mundial/partidos-de-hoy-peru-miercoles-24-de-diciembre-del-2025-horarios-y-canales-tv-ver-futbol-en-vivo-noticia-1668980)
+- **El fútbol no para: todos los partidos que se juegan en Navidad**: [Link](https://www.directvsports.com/futbol/el-futbol-no-para-todos-los-partidos-que-se-juegan-en-navidad-20251225-0010.html)
+- **Con NBA y NFL como platos fuertes: la programación deportiva navideña de este 25 de diciembre**: [Link](https://www.biobiochile.cl/noticias/deportes/mas-deportes/2025/12/25/con-nba-y-nfl-como-platos-fuertes-la-programacion-deportiva-navidena-de-este-25-de-diciembre.shtml)
+
+
+### eryc castillo (N/A, 25/12/2025 11:32 Lima)
+
+- **Eryc Castillo se refirió al objetivo de Alianza Lima en 2026**: [Link](https://espndeportes.espn.com/futbol/peru/nota/_/id/16116462/que-dijo-eryc-castillo-sobre-el-objetivo-de-alianza-lima)
+- **Eryc Castillo aseguró que Alianza Lima quedó en deuda en 2025: "En lo grupal no se logró todo lo que queríamos"**: [Link](https://rpp.pe/futbol/descentralizado/alianza-lima-eryc-castillo-en-lo-personal-fue-un-2025-muy-productivo-aunque-en-lo-grupal-no-se-logro-todo-lo-que-queriamos-noticia-1669022)
+- **Eryc Castillo no descarta volver a Barcelona SC en un futuro tras renovar con Alianza Lima: "Solo hay que coordinarlo"**: [Link](https://larepublica.pe/deportes/2025/12/24/eryc-castillo-no-descarta-volver-a-barcelona-sc-en-un-futuro-tras-renovar-con-alianza-lima-solo-hay-que-coordinarlo-847848)
+
+
 ### larepublica (N/A, 25/12/2025 07:52 Lima)
 
 - **JNE confirmó que 36 fórmulas presidenciales quedaron inscritas para competir en elecciones generales 2026**: [Link](https://canaln.pe/actualidad/jne-confirma-inscripcion-36-formulas-presidenciales-2026-n489162)
@@ -959,68 +1022,5 @@ Sin noticias relacionadas disponibles.
 - **Russell Westbrook’s Clutch Three-Pointer Stuns Fans and Shifts Momentum in 2025 NBA Match**: [Link](https://azat.tv/en/russell-westbrook-clutch-three-pointer-2025-nba/)
 - **NBA results and standings: Wembanyama posts double-double, Schroder hits game-winner**: [Link](https://www.eurohoops.net/en/nba-news/1910461/victor-wembanyama-alperen-sengun-nba-european-recap/)
 - **DeMar DeRozan Reflects Sacramento Kings Hectic 125-124 Overtime Win Over The Houston Rockets**: [Link](https://sactownsports.com/watch/demar-derozan-reflects-sacramento-kings-hectic-125-124-overtime-win-over-the-houston-rockets/019b44ab-4268-8008-f7de-6a112a960a88)
-
-
-### yuca (N/A, 22/12/2025 03:37 Lima)
-
-- **El emotivo mensaje de Jorge Benavides para Enrique Espejo, ‘Yuca’: “Si existen los milagros, puedas regresar a nuestro lado”**: [Link](https://www.infobae.com/peru/2025/12/22/el-emotivo-mensaje-de-jorge-benavides-para-enrique-espejo-yuca-si-existen-los-milagros-puedas-regresar-a-nuestro-lado/)
-- **Jorge Benavides reveló el delicado estado de salud del comediante 'Yuca': "Ya no nos escucha"**: [Link](https://libero.pe/ocio/famosos/2025/12/21/jorge-benavides-revelo-delicado-estado-de-salud-del-comediante-yuca-nos-escucha-340914)
-- **JB revela que Enrique Espejo 'Yuca' está muy delicado de salud: "Te extrañamos, ojalá te recuperes"**: [Link](https://lakaribena.com.pe/espectaculos/jb-revela-enrique-espejo-yuca-esta-muy-delicado-salud-te-extranamos-ojala-te-recuperes-n29979)
-
-
-### tinka resultados (N/A, 21/12/2025 23:44 Lima)
-
-- **Resultados de La Tinka del domingo 21 de diciembre: números ganadores del Pozo Millonario**: [Link](https://depor.com/peru/la-tinka-hoy-domingo-21-de-diciembre-en-vivo-resultados-numeros-ganadores-del-ultimo-sorteo-pozo-millonario-boliyapa-resultado-si-o-si-intralot-peru-noticia/)
-- **La Tinka: conoce a los ganadores del sorteo del 21 de diciembre**: [Link](https://elcomercio.pe/videos/entretenimiento/la-tinka-conoce-a-los-ganadores-del-sorteo-del-21-de-diciembre-nnav-amtv-video-noticia/)
-- **Resultados La Tinka HOY, domingo 21 de diciembre: últimos números ganadores del Pozo Millonario**: [Link](https://libero.pe/ocio/2025/12/21/resultados-tinka-hoy-domingo-21-de-diciembre-ultimos-numeros-ganadores-del-pozo-millonario-1809080)
-
-
-### adriana tudela (N/A, 21/12/2025 23:44 Lima)
-
-- **Adriana Tudela: ¿Qué implica su ingreso como candidata en la plancha presidencial de Avanza País?**: [Link](https://elcomercio.pe/politica/congreso/avanza-pais-vuelve-a-modificar-su-plancha-presidencial-que-implica-el-ingreso-de-adriana-tudela-tlc-nota-noticia/)
-- **Karol Paredes dice que ingreso de Adriana Tudela en la plancha presidencial de Avanza País fue “un reacomodo a nivel del partido”**: [Link](https://rpp.pe/politica/elecciones/karol-paredes-dice-que-ingreso-de-adriana-tudela-en-la-plancha-presidencial-de-avanza-pais-fue-un-reacomodo-a-nivel-del-partido-noticia-1668690)
-- **Karol Paredes aclara ingreso de Adriana Tudela a plancha presidencial de Avanza País: asegura transparencia y consenso**: [Link](https://www.expreso.com.pe/politica/karol-paredes-aclara-ingreso-de-adriana-tudela-a-plancha-presidencial-de-avanza-pais-asegura-transparencia-y-consenso-congreso-phillip-butters-jose-williams-comite-ejecutivo-politico/1248751/)
-
-
-### guillermo davila (N/A, 21/12/2025 23:44 Lima)
-
-- **Guillermo Dávila en ‘El valor de la verdad’ EN VIVO: Todas la preguntas y respuestas**: [Link](https://trome.com/espectaculos/tv/guillermo-davila-en-el-valor-de-la-verdad-en-vivo-que-preguntas-respondera-y-en-que-plataformas-ver-el-estreno-de-evdlv-vasco-madueno-video-farandula-noticia/)
-- **Guillermo Dávila en ‘El valor de la verdad’: su hijo Vasco, Gisela Valcárcel y las confesiones más íntimas de su vida amorosa**: [Link](https://rpp.pe/famosos/farandula/guillermo-davila-en-el-valor-de-la-verdad-su-hijo-vasco-gisela-valcarcel-y-las-confesiones-mas-intimas-de-su-vida-amorosa-noticia-1668821)
-- **Guillermo Dávila confiesa que no se arrepiente de negar a su hijo Vasco y señala manipulación mediática**: [Link](https://diariocorreo.pe/espectaculos/guillermo-davila-confiesa-que-no-se-arrepiente-de-negar-a-su-hijo-vasco-y-senala-manipulacion-mediatica-noticia/)
-
-
-### wizards - spurs (N/A, 21/12/2025 23:44 Lima)
-
-- **San Antonio Spurs vs Washington Wizards Prediction, Pick, Odds -- 12/21**: [Link](https://www.actionnetwork.com/nba/spurs-vs-wizards-prediction-pick-odds-for-sunday-december-21)
-- **Game Recap: Spurs 124, Wizards 113**: [Link](https://www.nba.com/watch/video/game-recap-spurs-124-wizards-113?plsrc=nba&collection=2025-26-game-recaps)
-- **It’s time for Basketball: Spurs at Washington Wizards**: [Link](https://sports.yahoo.com/articles/time-basketball-spurs-washington-wizards-233000520.html)
-
-
-### timberwolves - bucks (N/A, 21/12/2025 23:44 Lima)
-
-- **Bucks Aim to End Seven-Game Road Losing Streak Against Timberwolves**: [Link](https://news.ssbcrack.com/bucks-aim-to-end-seven-game-road-losing-streak-against-timberwolves/)
-- **Conley and the bench help Timberwolves rally past Milwaukee**: [Link](https://www.twincities.com/2025/12/21/conley-and-the-bench-help-timberwolves-rally-past-milwaukee/)
-- **Timberwolves 103, Bucks 100: Unc Still Got It**: [Link](https://www.canishoopus.com/timberwolves-scores-results/63254/timberwolves-vs-bucks-game-recap-final-score)
-
-
-### ciro castillo (N/A, 21/12/2025 23:44 Lima)
-
-- **Ciro Castillo fugó desde clínica antes del operativo**: [Link](https://www.americatv.com.pe/noticias/actualidad/ciro-castillo-fugo-desde-clinica-antes-operativo-su-contra-n514123)
-- **¡El colmo! Ciro Castillo y Ulises Villegas dan entrevistas pese a estar prófugos**: [Link](https://www.atv.pe/noticia/el-colmo-ciro-castillo-y-ulises-villegas-dan-entrevistas-pese-a-estar-profugos/)
-- **Ciro Castillo se defiende desde la clandestinidad**: [Link](https://caretas.pe/home_web/home_principal_secundario/ciro-castillo-se-defiende-desde-la-clandestinidad/)
-
-
-### avatar 1 (N/A, 21/12/2025 23:44 Lima)
-
-- **‘Avatar’ Sequel Is Neither Fire Nor Ash at North American Box Office**: [Link](https://www.nytimes.com/2025/12/21/business/avatar-fire-and-ash-opening-weekend.html)
-- **‘Avatar 3’ Tops China Box Office in Another Win for Disney**: [Link](https://www.bloomberg.com/news/articles/2025-12-21/-avatar-3-tops-china-box-office-in-another-win-for-disney)
-- **Review: Three Movies in, Avatar Has Lost Its Wonder**: [Link](https://time.com/7341098/avatar-fire-and-ash-review/)
-
-
-### hawks - bulls (N/A, 21/12/2025 23:44 Lima)
-
-- **Two Aussies, one classic and two almost triple-doubles**: [Link](https://www.basketball.com.au/news/josh-giddey-dyson-daniels-aussie-almost-triple-double-fest-bulls-hawks)
-- **Bulls edge Hawks 152-150 in NBA’s highest-scoring game this season**: [Link](https://sports.yahoo.com/articles/bulls-edge-hawks-152-150-030351115.html)
-- **Jalen Johnson sounds off on the Atlanta Hawks' "embarassing" loss to the Chicago Bulls**: [Link](https://www.sportingnews.com/us/nba/atlanta-hawks/news/jalen-johnson-sounds-atlanta-hawks-embarassing-loss-bulls/9400928c1031cf7de29eb398)
 
 
