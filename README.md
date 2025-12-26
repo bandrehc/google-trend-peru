@@ -1,3 +1,73 @@
+### lakers - rockets (N/A, 25/12/2025 21:03 Lima)
+
+- **Rockets vs Lakers Christmas Picks & Odds: Los Angeles Sexy Pick On Moneyline**: [Link](https://www.oddsshark.com/nba/rockets-lakers-picks-odds-christmas-december-25-2025)
+- **theScore Bet bonus code NPNEWS: Bet $10, get $100 in bonus bets for Lakers vs. Rockets**: [Link](https://nypost.com/2025/12/25/betting/thescore-bet-bonus-code-npnews-bet-10-get-100-in-bonus-bets-for-lakers-vs-rockets/)
+- **Where to watch Rockets vs. Lakers free stream today**: [Link](https://www.masslive.com/tv/2025/12/where-to-watch-rockets-vs-lakers-free-stream-today.html)
+
+
+### peliculas (N/A, 25/12/2025 21:03 Lima)
+
+- **¿Dónde ver las películas clásicas de Navidad en streaming? “Mi Pobre Angelito”, “El Grinch” y más**: [Link](https://elcomercio.pe/respuestas/cual/donde-ver-las-peliculas-clasicas-de-navidad-en-streaming-mi-pobre-angelito-el-grinch-y-mas-christmas-tdpe-noticia/)
+- **Cinco películas navideñas para disfrutar con los nietos**: [Link](https://www.infobae.com/generacion-silver/2025/12/25/cinco-peliculas-navidenas-para-disfrutar-junto-a-los-nietos/)
+- **Películas animadas para ver esta navidad**: [Link](https://www.diariodemexico.com/escena/peliculas-animadas-para-ver-esta-navidad)
+
+
+### darinka ramirez (N/A, 25/12/2025 21:03 Lima)
+
+- **Darinka Ramírez anuncia embarazo y confirma que su hija con Jefferson Farfán tendrá una hermanita**: [Link](https://www.infobae.com/peru/2025/12/25/darinka-ramirez-anuncia-embarazo-y-confirma-que-su-hija-con-jefferson-farfan-tendra-una-hermanita/)
+- **Darinka Ramírez sorprende al anunciar su segundo embarazo con tiernas fotos: "Estamos emocionados"**: [Link](https://libero.pe/ocio/famosos/2025/12/25/darinka-ramirez-sorprende-anunciar-su-segundo-embarazo-tiernas-fotos-estamos-emocionados-408250)
+- **Darinka Ramírez anuncia embarazo y revela sexo de bebé**: [Link](https://www.americatv.com.pe/noticias/espectaculos/darinka-ramirez-paraliza-seguidores-anuncio-su-embarazo-n514231)
+
+
+### anaconda 2025 (N/A, 25/12/2025 21:03 Lima)
+
+- **Box Office: ‘Marty Supreme’ Almost Beats ‘Anaconda’ in Christmas Eve Surprise; ‘Avatar 3’ Jumps $500M Globally**: [Link](https://www.hollywoodreporter.com/movies/movie-news/marty-supreme-box-office-timothee-chalamet-anaconda-avatar-1236458813/)
+- **Box Office: Christmas Eve Led by 'Avatar: Fire and Ash'; Marty Supreme & 'Anaconda' Previews**: [Link](https://deadline.com/2025/12/box-office-christmas-avatar-fire-and-ash-marty-supreme-anaconda-1236656840/)
+- **Christmas Box Office 2025: ‘Song Sung Blue,’ ‘Anaconda,' More**: [Link](https://www.today.com/video/christmas-box-office-2025-song-sung-blue-anaconda-more-255002181598)
+
+
+### avatar (N/A, 25/12/2025 21:03 Lima)
+
+- **Walt Disney Studios Officially First & Only Studio To Cross $6B WW In 2025; ‘Avatar: Fire & Ash’ At $450M WW**: [Link](https://deadline.com/2025/12/disney-global-box-office-2025-1236656467/)
+- **'Avatar 3' Propels Disney Global Box Office Revenue to $6 Billion**: [Link](https://www.hollywoodreporter.com/movies/movie-news/disney-box-office-global-revenue-six-billion-avatar-1236458554/)
+- **Disney Studios Has Already Grossed Over $6 Billion At Box Office in Best Year Since 2019**: [Link](https://www.forbes.com/sites/zacharyfolk/2025/12/24/disney-studios-had-best-year-at-box-office-since-before-the-pandemic-heres-why/)
+
+
+### avatar 2 (N/A, 25/12/2025 21:03 Lima)
+
+- **Box Office: Christmas Eve Led by 'Avatar: Fire and Ash'; Marty Supreme & 'Anaconda' Previews**: [Link](https://deadline.com/2025/12/box-office-christmas-avatar-fire-and-ash-marty-supreme-anaconda-1236656840/)
+- **‘Avatar: Fire and Ash’ Review: For the First Time in His Spectacular Career, James Cameron Delivers a Movie That Feels Like Something You’ve Seen Before**: [Link](https://www.indiewire.com/criticism/movies/avatar-fire-and-ash-movie-review-james-cameron-1235167902/)
+- **Weekend Box Office: AVATAR Reigns as DAVID and HOUSEMAID Post Solid Debuts**: [Link](https://www.boxofficepro.com/weekend-box-office-avatar-reigns-as-david-and-housemaid-post-solid-debuts/)
+
+
+### mensajes navidad (N/A, 25/12/2025 21:03 Lima)
+
+- **León XIV denuncia que los palestinos de Gaza están obligados a refugiarse en tiendas ante la "lluvia, el viento y el frío"**: [Link](https://cnnespanol.cnn.com/2025/12/25/mundo/papa-leon-xiv-denuncia-palestinos-gaza-misa-trax)
+- **León XIV en Navidad: La paz de Dios nace de un sollozo acogido**: [Link](https://www.vaticannews.va/es/papa/news/2025-12/papa-leon-xiv-misa-dia-navidad-homilia-basilica-vaticana.html)
+- **Los conflictos, en el primer 'Urbi et Orbi' de León XIV**: [Link](https://www.dw.com/es/los-conflictos-del-mundo-en-la-primera-bendici%C3%B3n-urbi-et-orbi-de-le%C3%B3n-xiv/a-75302349)
+
+
+### prime video (N/A, 25/12/2025 21:03 Lima)
+
+- **WTF Is This Version of ‘It’s A Wonderful Life’?**: [Link](https://gizmodo.com/wtf-is-this-version-of-its-a-wonderful-life-2000702125)
+- **Amazon Prime slammed as 'abomination' after removing crucial scene from iconic holiday film**: [Link](https://www.the-sun.com/entertainment/15691311/amazon-prime-slammed-removing-scene-holiday-film/)
+- **Amazon Prime slammed for streaming 'It’s a Wonderful Life' with key scene cut out: 'Sacrilege'**: [Link](https://nypost.com/2025/12/25/business/amazon-prime-slammed-for-streaming-its-a-wonderful-life-with-key-scene-cut-out-sacrilege/)
+
+
+### cinemark cartelera (N/A, 25/12/2025 21:03 Lima)
+
+- **Cartelera Cine en Lima y Perú hoy jueves 25 de diciembre**: [Link](https://rpp.pe/cine/cartelera/cartelera-cine-en-lima-y-peru-hoy-jueves-25-de-diciembre-noticia-1669179)
+- **Esponjas y anacondas para despedir el curso cinematográfico 2025. Lo mejor y lo peor de los estrenos de...**: [Link](https://www.espinof.com/estrenos/esponjas-anacondas-para-despedir-curso-cinematografico-2025-mejor-peor-estrenos-cine)
+- **Llegan nuevas películas al cine: estos son los estrenos recomendados del jueves 25 de diciembre**: [Link](https://www.mdzol.com/mdz-show/llegan-nuevas-peliculas-al-cine-estos-son-los-estrenos-recomendados-del-jueves-25-diciembre-n1415633)
+
+
+### angelo campos (N/A, 25/12/2025 21:03 Lima)
+
+- **Carlos Bustos tiene en la mira a un bicampeón con Alianza Lima: UTC se mueve en el mercado**: [Link](https://depor.com/futbol-peruano/descentralizado/angelo-campos-en-la-mira-de-utc-refuerzo-de-carlos-bustos-bicampeones-con-alianza-lima-en-2021-liga-1-noticia/)
+- **Ángelo Campos y donde atajaría tras dejar Alianza Lima**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/se-conocio-donde-atajaria-angelo-campos-dejar-alianza-lima-n452087)
+- **En la mira del "Gavilán": Ángelo Campos cerca de fichar por UTC de Cajamarca**: [Link](https://panamericana.pe/deportes/461904-mira-gavilan-angelo-campos-cerca-fichar-utc-cajamarca)
+
+
 ### thunder - spurs (N/A, 25/12/2025 15:29 Lima)
 
 - **Spurs vs. Thunder Picks & Odds: December 25, 2025**: [Link](https://www.oddsshark.com/nba/spurs-thunder-christmas-picks-odds-december-25-2025)
@@ -955,72 +1025,5 @@ Sin noticias relacionadas disponibles.
 - **Karamoh chamado para Alverca e Tomás Pérez fora dos 22 convocados do FC Porto**: [Link](https://onefootball.com/en/news/karamoh-chamado-para-alverca-e-tomas-perez-fora-dos-22-convocados-do-fc-porto-42130724)
 - **Assistir Benfica e Famalicão online nesta segunda (22/12/2025)**: [Link](https://tvhistoria.com.br/assistir-benfica-e-famalicao-online-nesta-segunda-22-12-2025/)
 - **AO VIVO: Diogo Costa nega golo a Marezi com uma grande defesa (38')**: [Link](https://www.flashscore.pt/noticias/futebol-liga-portugal-betclic-ao-vivo-diogo-costa-nega-golo-a-marezi-com-uma-grande-defesa-38/CbvVScSH/)
-
-
-### al ahli (N/A, 22/12/2025 15:28 Lima)
-
-- **Al Shorta vs Al Ahli Preview, prediction, lineups, betting tips & odds | AFC Champions League Elite 2025-26**: [Link](https://khelnow.com/football/world-football-al-shorta-vs-al-ahli-preview-202512)
-- **Al-Shorta face defending champions Al-Ahli in Asian Elite showdown in Baghdad**: [Link](https://www.iraqinews.com/sports/al-shorta-vs-al-ahli-asian-elite-baghdad/)
-
-
-### porto vs (N/A, 22/12/2025 15:28 Lima)
-
-- **Preview: Alverca vs Porto - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/alverca/preview/alverca-vs-porto-prediction-team-news-lineups_588230.html)
-- **FC Porto to have 4,000 fans in Alverca**: [Link](https://onefootball.com/en/news/fc-porto-to-have-4000-fans-in-alverca-42130388)
-- **Alverca vs Porto LIVE Score Updates in Portuguese League Match**: [Link](https://www.vavel.com/en-us/soccer/2025/12/22/1245294-alverca-x-porto-live-score-portuguese-league.html)
-
-
-### tyler chase (N/A, 22/12/2025 11:33 Lima)
-
-- **Ex-Nickelodeon Child Star Tylor Chase Spotted Homeless On California Streets**: [Link](https://www.ndtv.com/world-news/ex-nickelodeon-child-star-tylor-chase-spotted-homeless-on-california-streets-9863043)
-- **Nickelodeon ‘Ned’s Declassified’ Star Found Homeless – See Heartbreaking Video**: [Link](https://www.yahoo.com/entertainment/tv/articles/nickelodeon-ned-declassified-star-found-142056972.html)
-- **Riches to rags! Former child actors who once went battled drug addiction, homelessness, and more**: [Link](https://www.wionews.com/photos/riches-to-rags-former-child-actors-who-once-went-battled-drug-addiction-homelessness-and-more-1766399861601)
-
-
-### sharjah fc - al hilal (N/A, 22/12/2025 11:33 Lima)
-
-- **Al-Hilal continues preparations for the ACL Champions League... and International Players to resume training on Monday**: [Link](https://alhilal.com/en/news/al-hilal-continues-preparations-for-the-acl-champions-league-and)
-- **Sharjah FC vs. Al-Hilal - AFC Champions League East - Football**: [Link](https://www.sportsmole.co.uk/football/afc-champions-league/al-sharjah-vs-al-hilal_game_235576.html)
-- **Sudden Absence Disrupts Al Hilal Before Sharjah Match**: [Link](https://www.ysscores.com/en/news/13874869/Sudden-Absence-Disrupts-Al-Hilal-Before-Sharjah-Match)
-
-
-### mali vs zambia (N/A, 22/12/2025 11:33 Lima)
-
-- **Patson Daka’s diving header earns Zambia dramatic late Afcon draw with Mali**: [Link](https://www.theguardian.com/football/live/2025/dec/22/mali-v-zambia-africa-cup-of-nations-live)
-- **Live! Mali vs Zambia at the AFCON 2025 on beIN SPORTS**: [Link](https://www.beinsports.com/en-us/soccer/africa-cup-of-nations/articles/live-mali-vs-zambia-at-the-afcon-2025-on-bein-sports-2025-12-22)
-- **Mali vs Zambia: Group A Meeting Promises Thrills in Casablanca**: [Link](https://www.cafonline.com/afcon2025/news/mali-vs-zambia-group-a-meeting-promises-thrills-in-casablanca/)
-
-
-### radios (N/A, 22/12/2025 11:33 Lima)
-
-- **Israeli government approves controversial closure of Army Radio after 75 years**: [Link](https://www.cnn.com/2025/12/22/middleeast/israeli-army-radio-closure-intl)
-- **Netanyahu government moves to shut down Israel's Army Radio station**: [Link](https://www.reuters.com/business/media-telecom/netanyahu-government-moves-shut-down-israels-army-radio-station-2025-12-22/)
-- **Netanyahu Government Unanimously Votes to Shutter Army Radio by March 1**: [Link](https://www.haaretz.com/israel-news/2025-12-22/ty-article/.premium/netanyahu-government-unanimously-votes-to-shutter-army-radio-by-march-1/0000019b-45df-d41d-adfb-75ff963b0000)
-
-
-### normas legales el peruano (N/A, 22/12/2025 11:33 Lima)
-
-- **Estas son las normas legales más importantes del lunes 22 de diciembre del 2025**: [Link](https://andina.pe/agencia/noticia-estas-son-las-normas-legales-mas-importantes-del-lunes-22-diciembre-del-2025-1056519.aspx)
-- **Estas son las normas legales más importantes del domingo 21 de diciembre del 2025**: [Link](https://andina.pe/agencia/noticia-estas-son-las-normas-legales-mas-importantes-del-domingo-21-diciembre-del-2025-1056448.aspx)
-- **Estas son las normas legales más importantes del sábado 20 de diciembre del 2025**: [Link](https://andina.pe/agencia/noticia-estas-son-las-normas-legales-mas-importantes-del-sabado-20-diciembre-del-2025-1056366.aspx)
-
-
-### mali vs (N/A, 22/12/2025 11:33 Lima)
-
-- **Mali y Zambia empataron en la Copa Africana**: [Link](https://ovacion.pe/noticias/futbol-internacional/mali-zambia-empataron-copa-africana)
-
-
-### inpe (N/A, 22/12/2025 11:33 Lima)
-
-- **🔴🔵 El Ministerio de Justicia y Derechos Humanos (Minjusdh) dispuso el cierre definitivo de estos economatos por incumplimiento normativo, con el fin de restablecer el orden y seguridad penitenciaria. 🌐Más información en: https://www.exitosanoticias.pe/**: [Link](https://www.facebook.com/story.php?story_fbid=1305669848262737&id=100064592023543)
-- **INPE ordena cierre definitivo de 141 comercios en penales**: [Link](https://caretas.pe/politica/inpe-ordena-cierre-definitivo-de-141-comercios-en-penales/)
-- **INPE clausura 141 comercios en penales por seguridad penitenciaria**: [Link](https://diariocorreo.pe/peru/inpe-clausura-141-comercios-en-penales-por-seguridad-penitenciaria-noticia/)
-
-
-### feriados 2025 (N/A, 22/12/2025 11:33 Lima)
-
-- **Último feriado largo del año: quiénes descansan cuatro días**: [Link](https://caretas.pe/nacional/ultimo-feriado-largo-del-ano-quienes-descansan-cuatro-dias/)
-- **¡Atención! El Peruano aclara si el 24 de diciembre será feriado o día no laborable a nivel nacional**: [Link](https://elcomercio.pe/respuestas/que/el-peruano-aclara-si-el-24-de-diciembre-sera-feriado-o-dia-no-laborable-a-nivel-nacional-tdpe-noticia/)
-- **Navidad: el viernes 26 será no laborable, ¿para quiénes aplica?**: [Link](https://andina.pe/agencia/noticia-navidad-viernes-26-sera-no-laborable-para-quienes-aplica-1055080.aspx)
 
 
