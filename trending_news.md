@@ -1,3 +1,31 @@
+### heated rivalry (N/A, 26/12/2025 03:34 Lima)
+
+- **‘Heated Rivalry’ Scores Big With Hockey and Sex**: [Link](https://www.nytimes.com/2025/12/23/arts/television/heated-rivalry-connor-storrie-hudson-williams.html)
+- **'Heated Rivalry' Stars Connor Storrie and Hudson Williams Talk Hockey, Sex Scenes, and Overnight Success**: [Link](https://www.gq.com/story/heated-rivalry-gq-hype)
+- **What Time Does 'Heated Rivalry' Episode 6 Come Out On HBO Max?**: [Link](https://decider.com/2025/12/25/what-time-heated-rivalry-episode-6-come-out-hbo-max/)
+
+
+### fichajes universitario (N/A, 26/12/2025 03:34 Lima)
+
+- **Universitario apunta a armar un equipazo en busca del tetracampeonato: “Jugadores destacados”**: [Link](https://depor.com/futbol-peruano/descentralizado/universitario-franco-velazco-refuerzos-fichajes-y-la-promesa-de-jugadores-destacados-para-el-tetracampeonato-liga-1-noticia/)
+- **Fichajes de Universitario 2026 EN VIVO: nuevos jugadores, rumores, renovaciones y salidas confirmadas**: [Link](https://www.infobae.com/peru/deportes/2025/12/24/fichajes-de-universitario-2026-en-vivo-nuevos-jugadores-rumores-renovaciones-y-salidas-confirmadas/)
+- **Universitario busca remecer el mercado fichando a exdelantero de Celta de Vigo: "Interés"**: [Link](https://libero.pe/futbol-peruano/universitario/2025/12/25/fichajes-liga-1-universitario-busca-remecer-mercado-fichando-exdelantero-de-celta-de-vigo-interes-913950)
+
+
+### vecna (N/A, 26/12/2025 03:34 Lima)
+
+- **Stranger Things season five vol 2 review – the fact that this isn’t unbearable is a miracle**: [Link](https://www.theguardian.com/tv-and-radio/2025/dec/26/stranger-things-season-five-vol-2-review)
+- **Here's when 'Stranger Things' Season 5 Volume 2 drops on Netflix**: [Link](https://www.abc10.com/article/news/nation-world/stranger-things-vol-2-release-date-runtimes/507-10fae444-e295-452e-8711-d5e6367ff181)
+- **Where ‘Stranger Things’ Lost Itself**: [Link](https://www.theatlantic.com/culture/2025/12/stranger-things-season-5-volume-2-review/685465/)
+
+
+### cuantos capitulos tiene stranger things 5 (N/A, 26/12/2025 03:34 Lima)
+
+- **Stranger Things 5: fecha de estreno de los episodios de cada parte y la duración de la última temporada**: [Link](https://cnnespanol.cnn.com/2025/12/24/entretenimiento/stranger-things-5-final-orix)
+- **¿A qué hora se estrena ‘Stranger Things 5’ en España y Latinoamérica? Horarios de los capítulos finales de la**: [Link](https://as.com/meristation/series/a-que-hora-se-estrena-stranger-things-5-en-espana-y-latinoamerica-horarios-de-los-capitulos-finales-de-la-serie-de-netflix-f202512-n/)
+- **“Ha cambiado mi vida drásticamente”: los protagonistas de ‘Stranger Things’ se despiden de sus personajes**: [Link](https://elpais.com/television/series/2025-12-26/ha-cambiado-mi-vida-drasticamente-los-protagonistas-de-stranger-things-se-despiden-de-sus-personajes.html)
+
+
 ### nuggets - timberwolves (N/A, 25/12/2025 23:38 Lima)
 
 - **Minnesota Timberwolves at Denver Nuggets odds, picks and predictions**: [Link](https://sportsbookwire.usatoday.com/story/sports/nba/2025/12/25/timberwolves-at-nuggets-odds-picks-and-predictions/87913544007/)
@@ -996,33 +1024,5 @@ Sin noticias relacionadas disponibles.
 - **Vince Zampella, video game developer behind ‘Call of Duty,' killed in Ferrari crash**: [Link](https://www.nbclosangeles.com/news/local/video-game-developer-vince-zampella-crash-call-of-duty/3819576/)
 - **Vince Zampella, Battlefield Boss And Call Of Duty Co-Creator, Killed In Car Crash**: [Link](https://kotaku.com/report-vince-zampella-battlefield-boss-and-call-of-duty-co-creator-killed-in-car-crash-2000655216)
 - **Vince Zampella, co-creator of Call of Duty video game series, dies aged 55**: [Link](https://www.theguardian.com/us-news/2025/dec/22/vince-zampella-co-creator-of-call-of-duty-video-game-series-dies-aged-55)
-
-
-### athletic (N/A, 22/12/2025 21:04 Lima)
-
-- **Georgia gives AD Josh Brooks another contract extension, boost in pay**: [Link](https://sports.yahoo.com/articles/georgia-gives-ad-josh-brooks-215051427.html)
-- **Georgia rewards athletic director Josh Brooks with raise and contract extension through 2031**: [Link](https://www.msn.com/en-us/sports/other/georgia-rewards-athletic-director-josh-brooks-with-raise-and-contract-extension-through-2031/ar-AA1SR9Fk)
-- **Georgia gives AD Josh Brooks new contract extension with raise**: [Link](https://www.saturdaydownsouth.com/news/college-football/georgia-gives-ad-josh-brooks-new-contract-extension-with-raise/)
-
-
-### atletico bilbao (N/A, 22/12/2025 21:04 Lima)
-
-- **Espanyol ride the Athletic Club storm to enter Champions League conversation**: [Link](https://www.football-espana.net/2025/12/22/athletic-club-1-2-espanyol)
-- **Predicted Lineups and Player News for Athletic Bilbao vs Espanyol 22/12/25 - La Liga News**: [Link](https://footballpredictions.net/predicted-lineups-athletic-bilbao-v-espanyol-22-12-2025)
-- **🚨 Confirmed XIs: Espanyol and Athletic wrap up the La Liga matchday**: [Link](https://sports.yahoo.com/articles/confirmed-xis-espanyol-athletic-wrap-185800510.html)
-
-
-### benfica - famalicão (N/A, 22/12/2025 15:28 Lima)
-
-- **Prestianni titular: confira o onze do Benfica contra o Famalicão**: [Link](https://sapo.pt/artigo/prestianni-titular-confira-o-onze-do-benfica-contra-o-famalicao-69499ff12c7b75270a67791d)
-- **Mourinho surpreende no ataque ao Famalicão**: [Link](https://www.jn.pt/desporto/artigo/mourinho-surpreende-no-ataque-ao-famalicao/18033112)
-- **Leandro Barreiro e Sudakov são trunfos de natal**: [Link](https://www.record.pt/futebol/futebol-nacional/liga-betclic/benfica/detalhe/leandro-barreiro-e-sudakov-sao-trunfos-de-natal?Mulher%20R)
-
-
-### espanyol vs (N/A, 22/12/2025 15:28 Lima)
-
-- **Athletic Bilbao vs. Espanyol prediction, odds, La Liga picks [12/22/2025]**: [Link](https://www.dimers.com/news/athletic-bilbao-vs-espanyol-prediction-la-liga-monday-12-22-2025-ac)
-- **Where to Watch Athletic Bilbao vs. Espanyol: TV Channel, Start Time and Live Stream**: [Link](https://www.bleachernation.com/how-to-watch/2025/12/21/where-to-watch-athletic-bilbao-vs-espanyol-tv-channel-start-time-and-live-stream-2/)
-- **Athletic Club vs Espanyol tonight: Both teams desperate for redemption after shocking performances, but one streak will decide everything**: [Link](https://www.red94.net/news/73280-athletic-club-faces-espanyol-tonight-in-crucial-laliga-clash-at-san-mames-both-t/)
 
 
