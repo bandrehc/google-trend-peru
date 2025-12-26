@@ -1,3 +1,44 @@
+### nuggets - timberwolves (N/A, 25/12/2025 23:38 Lima)
+
+- **Minnesota Timberwolves at Denver Nuggets odds, picks and predictions**: [Link](https://sportsbookwire.usatoday.com/story/sports/nba/2025/12/25/timberwolves-at-nuggets-odds-picks-and-predictions/87913544007/)
+- **Anthony Edwards Player Prop Picks for NBA Christmas Day | Best Props vs. Nuggets**: [Link](https://www.sportsbookreview.com/picks/nba/anthony-edwards-player-prop-picks-christmas-2025/)
+- **Get In And Out With Christmas Day Finale**: [Link](https://www.outkick.com/betting/get-out-christmas-day-finale)
+
+
+### millie bobby brown (N/A, 25/12/2025 23:38 Lima)
+
+- **How David Harbour’s ‘Fear’ of Losing Millie Bobby Brown Influences 'Stranger Things' Finale (Exclusive)**: [Link](https://people.com/stranger-things-david-harbour-fear-losing-millie-bobby-brown-exclusive-11873756)
+- **El’s Frustration With Hopper Is Real and Relatable**: [Link](https://www.themarysue.com/stranger-things-eleven-hopper-relationship/)
+- **David Harbour’s 'Fear' of Losing Millie Bobby Brown's Eleven Is Driving Force Going into “Stranger Things” Finale (Exclusive)**: [Link](https://www.aol.com/articles/david-harbour-fear-losing-millie-033000410.html)
+
+
+### winona ryder (N/A, 25/12/2025 23:38 Lima)
+
+- **Winona Ryder Breaks Down Her Most Iconic Characters**: [Link](https://www.yahoo.com/lifestyle/videos/winona-ryder-breaks-down-her-170000165.html)
+- **What are Winona Ryder's most iconic characters? Here's what the Stranger Things star recently revealed**: [Link](https://www.soapcentral.com/shows/news-what-winona-ryder-s-iconic-characters-here-s-stranger-things-star-recently-revealed)
+
+
+### jim carrey (N/A, 25/12/2025 23:38 Lima)
+
+- **Taylor Momsen reveals what Jim Carrey ‘freaked out’ about on ‘Grinch’ set: ‘Over the top’**: [Link](https://nypost.com/2025/12/24/entertainment/taylor-momsen-reveals-what-jim-carrey-freaked-out-over-on-grinch-set/)
+- **He Hated the Filming: This Actor Wanted to Return His $20 Million to Leave This Cult Christmas Movie**: [Link](https://3dvf.com/en/he-hated-the-filming-this-actor-wanted-to-return-his-20-million-to-leave-this-cult-christmas-movie/)
+- **19 Nostalgic Photos of the “How the Grinch Stole Christmas” Cast Then and Now**: [Link](https://www.yahoo.com/entertainment/movies/articles/19-nostalgic-photos-grinch-stole-203600221.html)
+
+
+### dólar blue hoy (N/A, 25/12/2025 23:38 Lima)
+
+- **Dólar HOY: cotización del dólar oficial y precios del jueves 25 de diciembre**: [Link](https://www.tycsports.com/interes-general/dolar-hoy-cotizacion-del-dolar-oficial-y-precios-del-jueves-25-de-diciembre-id705407.html)
+- **Argentina: dólar blue hoy a cuánto cotiza este jueves 25 de diciembre**: [Link](https://rpp.pe/mundo/argentina/argentina-dolar-blue-hoy-a-cuanto-cotiza-este-jueves-25-de-diciembre-noticia-1669176)
+- **Cuál es la cotizacion del dólar hoy, 25 de diciembre, banco por banco**: [Link](https://www.lanacion.com.ar/economia/dolar/cual-es-la-cotizacion-del-dolar-hoy-25-de-diciembre-banco-por-banco-nid25122025/)
+
+
+### stranger things temporada 5 (N/A, 25/12/2025 23:38 Lima)
+
+- **¿A qué hora se estrena ‘Stranger Things 5’ en España y Latinoamérica? Horarios de los capítulos finales de la**: [Link](https://as.com/meristation/series/a-que-hora-se-estrena-stranger-things-5-en-espana-y-latinoamerica-horarios-de-los-capitulos-finales-de-la-serie-de-netflix-f202512-n/)
+- **“Stranger Things 5”: fecha y hora del estreno del Volumen 2 en Netflix**: [Link](https://www.infobae.com/entretenimiento/2025/12/24/stranger-things-5-fecha-y-hora-del-estreno-del-volumen-2-en-netflix/)
+- **Stranger Things: las teorías de lo que puede pasar en el final de la exitosa serie**: [Link](https://www.bbc.com/mundo/articles/czj0z1rl3wyo)
+
+
 ### lakers - rockets (N/A, 25/12/2025 21:03 Lima)
 
 - **Rockets vs Lakers Christmas Picks & Odds: Los Angeles Sexy Pick On Moneyline**: [Link](https://www.oddsshark.com/nba/rockets-lakers-picks-odds-christmas-december-25-2025)
@@ -983,47 +1024,5 @@ Sin noticias relacionadas disponibles.
 - **Athletic Bilbao vs. Espanyol prediction, odds, La Liga picks [12/22/2025]**: [Link](https://www.dimers.com/news/athletic-bilbao-vs-espanyol-prediction-la-liga-monday-12-22-2025-ac)
 - **Where to Watch Athletic Bilbao vs. Espanyol: TV Channel, Start Time and Live Stream**: [Link](https://www.bleachernation.com/how-to-watch/2025/12/21/where-to-watch-athletic-bilbao-vs-espanyol-tv-channel-start-time-and-live-stream-2/)
 - **Athletic Club vs Espanyol tonight: Both teams desperate for redemption after shocking performances, but one streak will decide everything**: [Link](https://www.red94.net/news/73280-athletic-club-faces-espanyol-tonight-in-crucial-laliga-clash-at-san-mames-both-t/)
-
-
-### benfica vs (N/A, 22/12/2025 15:28 Lima)
-
-- **How to watch Benfica vs Famalicao in the USA: Live Stream and TV for 2025/2026 Primeira Liga**: [Link](https://worldsoccertalk.com/watch-on-us-tv/how-to-watch-benfica-vs-famalicao-in-the-usa-live-stream-and-tv-for-2025-2026-primeira-liga/)
-- **Benfica vs Famalicao LIVE Score Updates in Portuguese League Match**: [Link](https://www.vavel.com/en-us/soccer/2025/12/22/1245288-benfica-vs-famalicao-live-score-portuguese-league.html)
-- **Preview: Benfica vs Famalicao - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/benfica/preview/benfica-vs-famalicao-prediction-team-news-lineups_588239.html)
-
-
-### porto fc (N/A, 22/12/2025 15:28 Lima)
-
-- **FC Porto beat CDE Camões to reach the Portuguese Cup last 16**: [Link](https://onefootball.com/fr/news/fc-porto-beat-cde-camoes-to-reach-the-portuguese-cup-last-16-42126995)
-- **Alverca vs. FC Porto (22 de Dic., 2025) Resultados en Vivo**: [Link](https://www.espn.com.pe/futbol/partido/_/juegoId/750375)
-- **Bills 23-20 Browns (21 de Dic., 2025) Resultado Final**: [Link](https://www.espn.com.pe/futbol-americano/nfl/juego/_/juegoId/401772802)
-
-
-### athletic - rcd espanyol (N/A, 22/12/2025 15:28 Lima)
-
-- **Apuestas y pronósticos Athletic Club vs Espanyol**: [Link](https://www.marca.com/apuestas-deportivas/predicciones/2025/12/21/apuestas-pronosticos-athletic-club-vs-espanyol.html)
-- **Alineación posible del Athletic ante el Espanyol en la Liga EA Sports**: [Link](https://as.com/futbol/alineacion-posible-del-athletic-ante-el-espanyol-en-la-liga-ea-sports-f202512-n/)
-- **Qué canal pasa Athletic vs Espanyol hoy: dónde ver GRATIS y EN VIVO el duelo de La Liga**: [Link](https://www.365scores.com/es/news/athletic-vs-espanyol-donde-ver-duelo/)
-
-
-### fulham - nottingham forest (N/A, 22/12/2025 15:28 Lima)
-
-- **Fulham v Nottingham Forest: Premier League – live**: [Link](https://www.theguardian.com/football/live/2025/dec/22/fulham-v-nottingham-forest-premier-league-live)
-- **From the Press Box: Silva says everyone on same page ahead of window**: [Link](https://www.fulhamish.co.uk/p/from-the-press-box-silva-says-everyone)
-- **SlipsTips’ Bet Builder Tips: Back player-based combo at Craven Cottage**: [Link](https://mrfixitstips.co.uk/slipstips-bet-builder-tips-back-player-based-combo-at-craven-cottage/)
-
-
-### napoli vs (N/A, 22/12/2025 15:28 Lima)
-
-- **Napoli is winning against Bologna after the first half**: [Link](https://www.gazetaexpress.com/en/Napoli-is-winning-against-Bologna-after-the-first-half./)
-- **Conte: Reaching the Final Is Nice but Winners Are Remembered**: [Link](https://zamin.uz/en/sport/178047-conte-reaching-the-final-is-nice-but-winners-are-remembered.html)
-- **Saudi Arabia Italian Super Cup Soccer**: [Link](https://www.bdtonline.com/sports/national_sports/saudi-arabia-italian-super-cup-soccer/image_0778881c-2007-5bc1-85c3-5836f2102ba8.html)
-
-
-### alverca vs porto (N/A, 22/12/2025 15:28 Lima)
-
-- **Karamoh chamado para Alverca e Tomás Pérez fora dos 22 convocados do FC Porto**: [Link](https://onefootball.com/en/news/karamoh-chamado-para-alverca-e-tomas-perez-fora-dos-22-convocados-do-fc-porto-42130724)
-- **Assistir Benfica e Famalicão online nesta segunda (22/12/2025)**: [Link](https://tvhistoria.com.br/assistir-benfica-e-famalicao-online-nesta-segunda-22-12-2025/)
-- **AO VIVO: Diogo Costa nega golo a Marezi com uma grande defesa (38')**: [Link](https://www.flashscore.pt/noticias/futebol-liga-portugal-betclic-ao-vivo-diogo-costa-nega-golo-a-marezi-com-uma-grande-defesa-38/CbvVScSH/)
 
 
