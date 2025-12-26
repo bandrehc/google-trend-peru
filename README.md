@@ -1,3 +1,72 @@
+### jorge luna (N/A, 26/12/2025 11:30 Lima)
+
+- **¿Cómo Jorge Luna, de Hablando Huevadas, se volvió millonario y cuánto estaría ganando al mes?**: [Link](https://www.infobae.com/peru/2025/12/23/como-jorge-luna-de-hablando-huevadas-se-volvio-millonario-y-cuanto-estaria-ganando-al-mes/)
+- **Jorge Luna consolida imperio empresarial y se posiciona como uno de los creadores más rentables del país**: [Link](https://diarioviral.pe/peru/jorge-luna-consolida-imperio-empresarial-y-se-posiciona-como-uno-de-los-creadores-mas-rentables-del-pais-50274)
+- **Las claves para ganar más de 300 millones de pesos al mes que siguió el comediante peruano Jorge Luna**: [Link](https://www.diarioadn.co/noticias/las-claves-para-ganar-mas-de-300-millones-de-pesos-al-mes-que-siguio-el-comediante-peruano+articulo+71904)
+
+
+### union saint-gilloise (N/A, 26/12/2025 11:30 Lima)
+
+- **Bologna interested in Union St Gilloise defender**: [Link](https://sports.yahoo.com/articles/bologna-interested-union-st-gilloise-160600524.html)
+- **Bologna interested in Union St Gilloise defender**: [Link](https://onefootball.com/fr/news/bologna-interested-in-union-st-gilloise-defender-42140494)
+- **Victor Osimhen’s Scorching Form Faces Belgian Test in Crucial Champions League Clash**: [Link](https://inews.zoombangla.com/?p=3163360)
+
+
+### coventry vs (N/A, 26/12/2025 11:30 Lima)
+
+- **Championship LIVE: Birmingham vs Derby & Millwall vs Ipswich - scores, results & updates**: [Link](https://www.bbc.com/sport/football/live/cze6zdw699yt)
+- **Two back amid four changes as Frank Lampard names Coventry City team v Swansea**: [Link](https://www.coventrytelegraph.net/sport/football/football-news/coventry-city-team-news-swansea-33123135)
+- **Your Matchday guide against Swansea City**: [Link](https://www.ccfc.co.uk/news/2025/december/24/your-matchday-guide-for-swansea/)
+
+
+### cardiff - exeter city (N/A, 26/12/2025 11:30 Lima)
+
+- **Preview: Cardiff City vs Exeter City - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/cardiff-city/preview/cardiff-vs-exeter-prediction-team-news-lineups_588401.html)
+- **Boxing Day bring a top of the table test for Exeter City**: [Link](https://www.themoorlander.co.uk/news/sport/1975032/boxing-day-bring-a-top-of-the-table-test-for-exeter-city.html)
+- **Team News | Cardiff City vs. Exeter City**: [Link](https://www.cardiffcityfc.co.uk/news/team-news-cardiff-city-vs-exeter-city)
+
+
+### egipto vs (N/A, 26/12/2025 11:30 Lima)
+
+- **Egipto - Sudáfrica, en directo**: [Link](https://as.com/futbol/internacional/egipto-sudafrica-en-directo-f202512-n/)
+- **Pronóstico Egipto Sudáfrica - CAN 26/12/25**: [Link](https://www.sportytrader.com/es/pronosticos/egipto-sudafrica-313805/)
+- **Copa Africana de Naciones 2025: Nos espera un partido apasionante entre Egipto y Sudáfrica.**: [Link](https://www.vietnam.vn/es/afcon-2025-ruc-lua-tran-ai-cap-nam-phi)
+
+
+### leicester city - watford (N/A, 26/12/2025 11:30 Lima)
+
+- **Predicting Javi Gracia's Watford XI to take on Leicester City on Boxing Day**: [Link](https://www.watfordobserver.co.uk/sport/25721786.predicting-gracias-watford-xi-take-leicester-city/)
+- **EFL Betting Tips: Goals at the King Power**: [Link](https://mrfixitstips.co.uk/efl-betting-tips-goals-at-the-king-power/)
+- **Leicester City team news v Watford as Jannik Vestergaard misses out**: [Link](https://www.leicestermercury.co.uk/sport/football/football-news/leicester-city-team-news-v-10724533)
+
+
+### belgian pro league (N/A, 26/12/2025 11:30 Lima)
+
+- **Bitesize Prediction: Antwerp vs Waregem – 27/12/25**: [Link](https://www.soccernews.com/bitesize-prediction-antwerp-vs-waregem-27-12-25/393824/)
+- **Gent vs Westerlo Prediction and Betting Tips | December 27, 2025**: [Link](https://www.sportskeeda.com/football/gent-vs-westerlo-prediction-betting-tips-december-27-2025)
+
+
+### calendario 2026 (N/A, 26/12/2025 11:30 Lima)
+
+- **🔴🔵El Gobierno peruano hizo público la lista de feriados nacionales para el año 2026. De esta manera, tendrás 16 días para disfrutar de un buen momento en casa o conocer un poco de los atractivos que tiene nuestro país.**: [Link](https://www.facebook.com/Exitosanoticias/posts/el-gobierno-peruano-hizo-p%C3%BAblico-la-lista-de-feriados-nacionales-para-el-a%C3%B1o-202/1307755264720862/)
+- **Calendario 2026 con feriados: Lista de fechas festivas y días no laborables**: [Link](https://libero.pe/tiempoextra/2025/12/26/calendario-2026-feriados-lista-de-fechas-festivas-dias-laborables-1079052)
+- **LA MEJOR NOTICIA | Perú arranca 2026 con un FERIADO LARGO de 4 días consecutivos a NIVEL NACIONAL**: [Link](https://wapa.pe/ocio/2025/12/22/mejor-noticia-peru-arranca-2026-feriado-largo-4-dias-consecutivos-nivel-nacional-1172094)
+
+
+### angola (N/A, 26/12/2025 11:30 Lima)
+
+- **CAN: Angola conquista primeiro ponto com a ajuda de ex-Sporting**: [Link](https://www.abola.pt/noticias/can-angola-conquista-primeiro-ponto-com-a-ajuda-de-ex-sporting-2025122614323431630)
+- **Ary Papel: «Estou aqui para ajudar a selecção angolana»**: [Link](https://www.rfi.fr/pt/%C3%A1frica-lus%C3%B3fona/20251226-ary-papel-estou-aqui-para-ajudar-a-selec%C3%A7%C3%A3o-angolana)
+- **Todas as incidências e os melhores lances do fim de semana desportivo**: [Link](https://www.flashscore.pt/noticias/futebol-liga-portugal-betclic-jornada-ao-vivo-salah-da-vantagem-ao-egito-angola-empata-com-zimbabue/W27ij1aB/)
+
+
+### tipo de cambio sunat (N/A, 26/12/2025 11:30 Lima)
+
+- **Precio del dólar con alza: Así abrió el tipo de cambio hoy 26 de diciembre en Perú**: [Link](https://www.infobae.com/peru/2025/12/26/valor-de-apertura-del-dolar-en-peru-este-26-de-diciembre-de-usd-a-pen/)
+- **Consulta el tipo de cambio oficial del dólar SUNAT para este jueves 26 de diciembre del 2025**: [Link](https://canaln.pe/actualidad/dolar-hoy-peru-tipo-cambio-sunat-este-26-diciembre-n489178)
+- **Precio del dólar HOY en Perú: ¿Cómo cotiza el tipo de cambio este viernes, 26 de diciembre?**: [Link](https://www.exitosanoticias.pe/actualidad/precio-dolar-hoy-peru-como-cotiza-tipo-cambio-viernes-26-diciembre-n165386)
+
+
 ### dolar hoy (N/A, 26/12/2025 07:53 Lima)
 
 - **Cambio del dólar hoy: ¿qué pasó en México, Colombia y RD?**: [Link](https://www.msn.com/es-us/noticias/other/cambio-del-d%C3%B3lar-hoy-qu%C3%A9-pas%C3%B3-en-m%C3%A9xico-colombia-y-rd/ar-AA1T4fbY)
@@ -956,73 +1025,5 @@ Sin noticias relacionadas disponibles.
 - **Real Madrid Agree First Major Transfer of January Window—Report**: [Link](https://www.si.com/soccer/real-madrid-agree-first-major-transfer-january-window)
 - **Endrick to Lyon, imminent**: [Link](https://www.marca.com/en/football/real-madrid/2025/12/22/6949a207268e3ea9398b45cb.html)
 - **Xabi Alonso dismissal would not affect planned exit for Real Madrid star**: [Link](https://www.football-espana.net/2025/12/13/xabi-alonso-dismissal-exit-real-madrid-star)
-
-
-### jueza vivian polanía (N/A, 22/12/2025 23:41 Lima)
-
-Sin noticias relacionadas disponibles.
-
-
-### warriors - magic (N/A, 22/12/2025 23:41 Lima)
-
-- **Warriors vs. Magic injury report: Seth Curry, Al Horford still out**: [Link](https://www.goldenstateofmind.com/warriors-injury-report/106453/warriors-magic-injury-report-al-horford-franz-wagner-seth-curry)
-- **Betr Picks Promo Code BETRWSN: Grab $10 Sign-Up + $200 Bonus for Magic vs Warriors**: [Link](https://www.wsn.com/nba/betr-promo-code-magic-vs-warriors-12-22-2025/)
-- **Orlando Magic at Golden State Warriors: Game Preview**: [Link](https://orlandomagic.com/news/orlando-magic-golden-state-warriors-game-preview-injury-report-20251222)
-
-
-### precio del dolar hoy (N/A, 22/12/2025 23:41 Lima)
-
-- **Precio del dólar en Perú: a cuánto cerró el tipo de cambio hoy, lunes 22 de diciembre**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-2025-a-cuanto-esta-el-dolar-este-lunes-22-de-diciembre-y-tipo-de-cambio-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
-- **Precio del Dólar en Perú HOY, domingo 21 de diciembre: consulta aquí la última cotización y el tipo de cambio**: [Link](https://larepublica.pe/economia/precio-del-dolar/2025/12/21/precio-del-dolar-hoy-en-peru-21-de-diciembre-2025-cotizacion-de-compra-y-venta-segun-bcr-y-tasa-de-cambio-dolares-a-soles-ocona-dolar-bloomberg-atmp-240760)
-- **¿Cuánto está el dólar HOY? Precio compra y venta para este lunes 22 de diciembre**: [Link](https://latinanoticias.pe/te-ayudo/cuanto-esta-el-dolar-hoy-precio-compra-y-venta-para-este-22-de-diciembre-cotizacion-dolar-ahora-en-lima-sunat-sbs-bcrp-adp-noticia_20251222/)
-
-
-### melissa paredes (N/A, 22/12/2025 23:41 Lima)
-
-- **Magaly Medina le responde a Melissa Paredes tras cartas notariales: “Que ella tenga cuidado”**: [Link](https://trome.com/espectaculos/tv/magaly-medina-le-responde-a-melissa-paredes-tras-cartas-notariales-que-ella-tenga-cuidado-video-fotos-farandula-noticia/)
-- **Melissa Paredes manda segunda carta notarial a Magaly Medina: ¿qué exige ahora?**: [Link](https://www.expreso.com.pe/entretenimiento/melissa-paredes-manda-segunda-carta-notarial-a-magaly-medina-que-exige-ahora-rodrigo-cuba-noticia/1248440/)
-- **Melissa Paredes envía nueva carta notarial a Magaly Medina y exige respeto a la privacidad de su hija**: [Link](https://www.infobae.com/peru/2025/12/18/melissa-paredes-envia-nueva-carta-notarial-a-magaly-medina-y-exige-respeto-a-la-privacidad-de-su-hija/)
-
-
-### adriana tudela (N/A, 22/12/2025 23:41 Lima)
-
-- **Adriana Tudela sobre nueva fórmula de Avanza País: “Todavía hay tiempo y la campaña realmente inicia en enero”**: [Link](https://elcomercio.pe/politica/adriana-tudela-sobre-nueva-formula-de-avanza-pais-todavia-hay-tiempo-y-la-campana-realmente-inicia-en-enero-noticia/)
-- **José Williams: "Yo pensé que le iban a colocar más años al señor Pedro Castillo”**: [Link](https://peru21.pe/politica/jose-williams-yo-pense-que-le-iban-colocar-mas-anos-al-senor-pedro-castillo/)
-- **Karol Paredes dice que ingreso de Adriana Tudela en la plancha presidencial de Avanza País fue “un reacomodo a nivel del partido”**: [Link](https://rpp.pe/politica/elecciones/karol-paredes-dice-que-ingreso-de-adriana-tudela-en-la-plancha-presidencial-de-avanza-pais-fue-un-reacomodo-a-nivel-del-partido-noticia-1668690)
-
-
-### boston celtics (N/A, 22/12/2025 23:41 Lima)
-
-- **Excelling on defense, Celtics face sputtering Pacers**: [Link](https://www.thesportsleader.com/2025/12/21/excelling-on-defense-celtics-face-sputtering-pacers/)
-- **How to watch Boston Celtics free stream today**: [Link](https://www.masslive.com/tv/2025/12/how-to-watch-boston-celtics-free-stream-today.html)
-- **Halftime Rewind: Pacers 61, Celtics 43**: [Link](https://pacers.com/news/rewind-pacers-celtics-251222)
-
-
-### weather tomorrow (N/A, 22/12/2025 21:04 Lima)
-
-- **Light snow expected to hamper travel Tuesday: How many inches might you get?**: [Link](https://www.nbcnewyork.com/weather/weather-stories/nyc-weather-forecast-snow-white-christmas-travel-delays/6434154/)
-- **Tracking the snow in NY, NJ: Timeline, totals and more**: [Link](https://pix11.com/news/local-news/tracking-the-snow-in-ny-nj-timeline-totals-and-more/)
-- **Wintry mix could mean messy Tuesday commute on Long Island**: [Link](https://www.newsday.com/news/weather/weather-forecast-rain-snow-jzoqjo1w)
-
-
-### celtics - pacers (N/A, 22/12/2025 21:04 Lima)
-
-- **How to watch Boston Celtics free stream today**: [Link](https://www.masslive.com/tv/2025/12/how-to-watch-boston-celtics-free-stream-today.html)
-- **WATCH: Celtics clash with Pascal Siakam, Pacers at TD Garden**: [Link](https://sports.yahoo.com/articles/watch-celtics-clash-pascal-siakam-102411085.html)
-- **Indiana takes on Boston, aims to end 4-game skid**: [Link](https://spectrumlocalnews.com/me/maine/sports/2025/12/22/indiana-takes-on-boston--aims-to-end-4-game-skid)
-
-
-### cavaliers - hornets (N/A, 22/12/2025 21:04 Lima)
-
-- **BetMGM Bonus Code COVERS: Unlock up to $1,500 in Bonus Bets for Hornets vs. Cavaliers**: [Link](https://www.covers.com/daily-promos/betmgm-bonus-code-nba-hornets-cavs-12-22-2025)
-- **Cavaliers vs. Hornets odds, prediction, line, time: 2025 NBA picks for December 22 from proven model**: [Link](https://www.cbssports.com/nba/news/cavaliers-hornets-odds-prediction-line-time-2025-nba-picks-best-bets-december-22/)
-- **Fanatics Sportsbook promo code NYPOST: Get up to $2,000 in FanCash for Hornets vs. Cavaliers**: [Link](https://nypost.com/2025/12/22/betting/fanatics-sportsbook-promo-code-nypost-get-up-to-2000-in-fancash-for-hornets-vs-cavaliers/)
-
-
-### nigeria vs (N/A, 22/12/2025 21:04 Lima)
-
-- **AFCON 2025: Nigeria vs Tanzania – team news, start time and lineups**: [Link](https://www.aljazeera.com/sports/2025/12/22/afcon-2025-nigeria-vs-tanzania-team-news-start-time-lineups-osimhen-lookman)
-- **Nigeria's Chelle focused on AFCON amid sack talk**: [Link](https://www.espn.com/soccer/story/_/id/47391182/nigeria-coach-eric-chelle-focused-afcon-amid-sack-talk)
-- **Eric Chelle's future on the line as Nigeria being AFCON campaign against Tanzania**: [Link](https://www.espn.co.uk/espn/story/_/id/47387532/eric-chelle-future-line-nigeria-being-afcon-campaign-tanzania)
 
 
