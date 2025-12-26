@@ -1,3 +1,31 @@
+### dolar hoy (N/A, 26/12/2025 07:53 Lima)
+
+- **Cambio del dólar hoy: ¿qué pasó en México, Colombia y RD?**: [Link](https://www.msn.com/es-us/noticias/other/cambio-del-d%C3%B3lar-hoy-qu%C3%A9-pas%C3%B3-en-m%C3%A9xico-colombia-y-rd/ar-AA1T4fbY)
+- **Dólar: cotización de apertura hoy 25 de diciembre en Bolivia**: [Link](https://www.infobae.com/noticias/2025/12/25/dolar-cotizacion-de-apertura-hoy-25-de-diciembre-en-bolivia/)
+- **Cotización del dólar hoy 24 de diciembre de 2025**: [Link](https://www.atb.com.bo/2025/12/24/cotizacion-del-dolar-hoy-24-de-diciembre-de-2025/)
+
+
+### linea 1 (N/A, 26/12/2025 07:53 Lima)
+
+- **Navidad en Lima: conoce los horarios del Metropolitano, Metro, corredores y taxis este 24 y 25**: [Link](https://canaln.pe/actualidad/atu-confirma-horarios-transporte-publico-navidad-n489152)
+- **Navidad 2025: Horarios del Metropolitano, Metro y corredores este 24 y 25 de diciembre**: [Link](https://www.atv.pe/noticia/navidad-2025-horarios-del-metropolitano-metro-y-corredores-este-24-y-25-de-diciembre/)
+- **Navidad 2025: conozca los horarios de Línea 1, Línea 2, Metropolitano y demás buses convencionales**: [Link](https://www.expreso.com.pe/actualidad/navidad-2025-conozca-los-horarios-de-linea-1-linea-2-metropolitano-y-demas-buses-convencionales-atu-noticia/1249579/)
+
+
+### el comercio (N/A, 26/12/2025 07:53 Lima)
+
+- **Noche intensa para los bomberos en el inicio de la Navidad: Atendieron más de 60 siniestros solo en Lima y Callao**: [Link](https://www.infobae.com/peru/2025/12/25/noche-intensa-para-los-bomberos-en-el-inicio-de-la-navidad-atendieron-mas-de-60-siniestros-solo-en-lima-y-callao/)
+- **Incendio consumió una fábrica de plásticos en San Juan de Lurigancho tras celebraciones navideñas**: [Link](https://canaln.pe/actualidad/incendio-destruyo-fabrica-plasticos-san-juan-lurigancho-n489167)
+- **La imprudencia de siempre**: [Link](https://elcomercio.pe/opinion/editorial/decenas-de-incendios-se-registran-en-todo-el-pais-en-estas-fechas-por-la-irresponsabilidad-y-la-falta-de-conciencia-noticia/)
+
+
+### reniec (N/A, 26/12/2025 07:53 Lima)
+
+- **Reniec atenderá este 26 y 27 de diciembre en más de 50 sedes para trámites y entrega de DNI**: [Link](https://canaln.pe/actualidad/reniec-atendera-26-y-27-diciembre-mas-50-sedes-n489171)
+- **Reniec: Sedes atenderán el 26 y 27 de diciembre por DNI**: [Link](https://www.americatv.com.pe/noticias/actualidad/reniec-atendera-26-y-27-diciembre-mas-50-sedes-n514229)
+- **Estas son las agencias del Reniec en Ucayali que atenderá el 26 y 27 de diciembre**: [Link](https://andina.pe/agencia/noticia-estas-son-las-agencias-del-reniec-ucayali-atendera-26-y-27-diciembre-1056940.aspx)
+
+
 ### heated rivalry (N/A, 26/12/2025 03:34 Lima)
 
 - **‘Heated Rivalry’ Scores Big With Hockey and Sex**: [Link](https://www.nytimes.com/2025/12/23/arts/television/heated-rivalry-connor-storrie-hudson-williams.html)
@@ -996,33 +1024,5 @@ Sin noticias relacionadas disponibles.
 - **AFCON 2025: Nigeria vs Tanzania – team news, start time and lineups**: [Link](https://www.aljazeera.com/sports/2025/12/22/afcon-2025-nigeria-vs-tanzania-team-news-start-time-lineups-osimhen-lookman)
 - **Nigeria's Chelle focused on AFCON amid sack talk**: [Link](https://www.espn.com/soccer/story/_/id/47391182/nigeria-coach-eric-chelle-focused-afcon-amid-sack-talk)
 - **Eric Chelle's future on the line as Nigeria being AFCON campaign against Tanzania**: [Link](https://www.espn.co.uk/espn/story/_/id/47387532/eric-chelle-future-line-nigeria-being-afcon-campaign-tanzania)
-
-
-### cain fara (N/A, 22/12/2025 21:04 Lima)
-
-- **Lo confirmó su exclub: Universitario cerca de anunciar central del ascenso argentino**: [Link](https://depor.com/futbol-peruano/descentralizado/universitario-cain-fara-atlanta-anuncia-salida-y-llegada-como-fichaje-de-liga-1-2026-quien-es-y-de-que-jugara-en-equipo-de-javier-rabanal-noticia/)
-- **Defensor de Atlético Atlanta jugará en Universitario**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/atletico-atlanta-confirmo-que-defensor-jugara-universitario-cain-fara-n452073)
-- **Se refuerza: Universitario llegó a un acuerdo con el argentino Caín Fara**: [Link](https://rpp.pe/futbol/descentralizado/universitario-llego-a-un-acuerdo-con-el-defensa-argentino-cain-fara-fichajes-2026-noticia-1668924)
-
-
-### senegal vs (N/A, 22/12/2025 21:04 Lima)
-
-- **Senegal vs Botswana: Teranga Lions open AFCON 2025 campaign against determined Zebras**: [Link](https://www.cafonline.com/afcon2025/news/senegal-vs-botswana-teranga-lions-open-afcon-2025-campaign-against-determined-zebras/)
-- **Mane v Mbemba: An AFCON cameo to relish in Morocco**: [Link](https://supersport.com/football/africa-cup-of-nations/news/fe0a34c1-d017-479f-a246-1ce2030f1aba/mane-v-mbemba-an-afcon-cameo-to-relish-in-morocco)
-- **AFCON 2025: Senegal, DR Congo... the likely group D standings**: [Link](https://foot-africa.com/en/news/can-2025-first-second-the-likely-standings-in-group-d-1011140/)
-
-
-### bolivar vs (N/A, 22/12/2025 21:04 Lima)
-
-- **Transmisión EN VIVO de Bolívar vs Nacional Potosí: cómo mirar el partido por TV o streaming**: [Link](https://www.365scores.com/es/news/transmision-bolivar-vs-nacional-potosi/)
-- **Nacional Potosí goleó a Bolívar y se proclamó campeón de la Copa Paceña 2025: jugará la Copa Libertadores**: [Link](https://larepublica.pe/deportes/2025/12/22/bolivar-vs-nacional-potosi-en-vivo-final-copa-pacena-2025-2015860)
-- **Leo Egüez lo predijo: “Vamos a salir campeón”**: [Link](https://diez.bo/futbol/leo-eguez-lo-predijo-vamos-a-salir-campeon_1766453310)
-
-
-### vince zampella (N/A, 22/12/2025 21:04 Lima)
-
-- **Vince Zampella, video game developer behind ‘Call of Duty,' killed in Ferrari crash**: [Link](https://www.nbclosangeles.com/news/local/video-game-developer-vince-zampella-crash-call-of-duty/3819576/)
-- **Vince Zampella, Battlefield Boss And Call Of Duty Co-Creator, Killed In Car Crash**: [Link](https://kotaku.com/report-vince-zampella-battlefield-boss-and-call-of-duty-co-creator-killed-in-car-crash-2000655216)
-- **Vince Zampella, co-creator of Call of Duty video game series, dies aged 55**: [Link](https://www.theguardian.com/us-news/2025/dec/22/vince-zampella-co-creator-of-call-of-duty-video-game-series-dies-aged-55)
 
 
