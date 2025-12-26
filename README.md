@@ -1,3 +1,72 @@
+### perry bamonte (N/A, 26/12/2025 15:27 Lima)
+
+- **Perry Bamonte, integrante de The Cure, falleció a los 65 años: "Será recordado con gran cariño"**: [Link](https://rpp.pe/famosos/celebridades/perry-bamonte-integrante-de-the-cure-fallecio-a-los-65-anos-noticia-1669337)
+- **Muere Perry Bamonte, guitarrista de The Cure, a los 65 años**: [Link](https://www.ucvradio.pe/noticias-del-mundo/muere-perry-bamonte-guitarrista-de-the-cure-a-los-65-anos/86601/)
+
+
+### aston villa vs. manchester united (N/A, 26/12/2025 15:27 Lima)
+
+- **Aston Villa vs Manchester United: Manchester United Left to Rue Missed Opportunities in Defeat**: [Link](https://extratimetalk.com/aston-villa-vs-manchester-united-defeat/)
+- **Rogers Fires Twice For Villa’s Title Run**: [Link](https://www.sarawaktribune.com/rogers-fires-twice-for-villas-title-run/)
+- **Ruben Amorim showed vs Villa he has already learned from his worst moment as Man Utd boss this season**: [Link](https://www.unitedinfocus.com/opinion/ruben-amorim-showed-vs-villa-he-has-already-learned-from-his-worst-moment-as-man-utd-boss-this-season/)
+
+
+### anderlecht (N/A, 26/12/2025 15:27 Lima)
+
+- **Injury update Mario Stroeykens and Ilay Camara**: [Link](https://www.rsca.be/en/news/stroeykens-camara)
+- **Downsizing selection first (25 Dec 25)**: [Link](https://www.anderlecht-online.be/en/article/247928)
+- **Camara and Stroeykens out of action for at least another month (24 Dec 25)**: [Link](https://www.anderlecht-online.be/en/article/247922)
+
+
+### marruecos - malí (N/A, 26/12/2025 15:27 Lima)
+
+- **Marruecos - Mali, en directo**: [Link](https://as.com/futbol/internacional/marruecos-mali-en-directo-f202512-n/)
+- **Marruecos - Malí en directo | Copa de África hoy en vivo**: [Link](https://www.marca.com/futbol/copa-de-africa/marruecos-mali/2025/12/26/01_0167_20251226_1057_1218-directo.html)
+- **Pronóstico Marruecos Malí - CAN 26/12/25**: [Link](https://www.sportytrader.com/es/pronosticos/marruecos-mali-314075/)
+
+
+### manchester united - newcastle (N/A, 26/12/2025 15:27 Lima)
+
+- **Premier League LIVE: Manchester United vs Newcastle - text commentary, score, stats & updates**: [Link](https://www.bbc.com/sport/football/live/c3w706e7nd4t)
+- **'We're doomed, straight L': – Man United fans spot 'automatic red flag' in starting XI vs Newcastle**: [Link](https://tribuna.com/en/blogs/were-doomed-straight-l-man-united-fans-spot-automatic-red-fl/)
+- **Amorim: I'm a better manager now than when I joined Man Utd**: [Link](https://www.tribalfootball.com/article/soccer-premier-league-amorim-i-m-a-better-manager-now-than-when-i-joined-man-utd-5850d5f2-7cc6-4887-9f25-086d6703fb83)
+
+
+### anderlecht vs (N/A, 26/12/2025 15:27 Lima)
+
+- **Cvetkovic likely to start against Charleroi (24 Dec 25)**: [Link](https://www.anderlecht-online.be/en/article/247924)
+- **Bitesize Prediction: Anderlecht vs Charleroi – 26/12/25**: [Link](https://www.soccernews.com/bitesize-prediction-anderlecht-vs-charleroi-26-12-25/393787/)
+- **Van Driessche referee against Charleroi (23 Dec 25)**: [Link](https://www.anderlecht-online.be/en/article/247901)
+
+
+### mónaco - real madrid (N/A, 26/12/2025 15:27 Lima)
+
+- **AS Monaco - Real Madrid en directo | Euroliga hoy en vivo**: [Link](https://www.marca.com/baloncesto/euroliga/as-monaco-real-madrid/2025/12/26/02_0203_20251226_13240_6210-directo.html)
+- **Scariolo: “Nos enfrentamos a uno de los rivales más complicados”**: [Link](https://www.realmadrid.com/es-ES/noticias/baloncesto/primer-equipo/ruedas-de-prensa/scariolo-declaraciones-25-12-2025)
+- **Noticias Deportes 12:00 (25/12/25)**: [Link](https://www.ondacero.es/podcast/programas/noticias-deportes/noticias-deportes-1200-251225_20251225694d1b67b2fc62000736a283.html)
+
+
+### beso dinamita (N/A, 26/12/2025 15:27 Lima)
+
+- **“Beso dinamita” supera a “Stranger Things” en fin de año: ¿Qué hace especial a este drama coreano?**: [Link](https://elcomercio.pe/tvmas/series/beso-dinamita-supera-a-stranger-things-en-fin-de-ano-que-hace-especial-a-este-drama-coreano-noticia/)
+- **‘Beso dinamita’: reparto, episodios y por qué este k-drama es el nuevo fenómeno de Netflix**: [Link](https://rpp.pe/tv/streaming/beso-dinamita-reparto-episodios-y-por-que-este-k-drama-es-el-nuevo-fenomeno-de-netflix-noticia-1669227)
+- **¿'Beso dinamita' tendrá temporada 2 en Netflix?: todo lo que debes saber del k-drama tras su final**: [Link](https://larepublica.pe/cultura-asiatica/2025/12/25/beso-dinamita-tendra-temporada-2-en-netflix-todo-lo-que-debes-saber-del-kdrama-tras-su-final-2371400)
+
+
+### feriados no laborables (N/A, 26/12/2025 15:27 Lima)
+
+- **Calendario de feriados 2026: los fines de semana largos y días no laborables que habrá, mes a mes**: [Link](https://www.infobae.com/sociedad/2025/12/26/calendario-de-feriados-2026-los-fines-de-semana-largos-y-dias-no-laborables-que-habra-mes-a-mes/)
+- **El Gobierno definió los tres días no laborables con fines turísticos**: [Link](https://comercioyjusticia.info/leyes-y-comentarios/el-gobierno-definio-los-tres-dias-no-laborables-con-fines-turisticos/)
+- **hotelera archivos**: [Link](https://economis.com.ar/tag/hotelera/)
+
+
+### al hilal - al khaleej (N/A, 26/12/2025 15:27 Lima)
+
+- **Al-Hilal 3-2 Al-Khaleej: Malcom's goal enough after visitors fightback**: [Link](https://www.fotmob.com/news/gmok6jceltrf1gcjud87offf5-al-hilal-3-2-al-khaleej-malcoms-goal-enough-after-visitors-fightback)
+- **Absence of Three Key Players in Al Hilal Ahead of the Match Against Al Khaleej**: [Link](https://www.ysscores.com/en/news/13878609/Absence-of-Three-Key-Players-in-Al-Hilal-Ahead-of-the-Match-Against-Al-Khaleej)
+- **Al-Hilal vs Al-Khaleej December 26 2025 Blue Waves chase 15th straight win seeking to extend dominance**: [Link](https://www.red94.net/news/73413-al-hilal-takes-on-al-khaleej-in-crucial-saudi-pro-league-clash-blue-waves-look-t/)
+
+
 ### jorge luna (N/A, 26/12/2025 11:30 Lima)
 
 - **¿Cómo Jorge Luna, de Hablando Huevadas, se volvió millonario y cuánto estaría ganando al mes?**: [Link](https://www.infobae.com/peru/2025/12/23/como-jorge-luna-de-hablando-huevadas-se-volvio-millonario-y-cuanto-estaria-ganando-al-mes/)
@@ -957,73 +1026,5 @@ Sin noticias relacionadas disponibles.
 - **Konya'da ilk yarı sona erdi**: [Link](https://www.antalyaekspres.com.tr/konyada-ilk-yari-sona-erdi-1)
 - **Antalyaspor ve Konyaspor’un Kadroları Belli Oldu**: [Link](https://sadeceantalyaspor.com/haber/ztk/konyaspor-ztkb-antalyaspor-kadro)
 - **TÜMOSAN Konyaspor-Hesap.com Antalyaspor maçı canlı izle | Ziraat Türkiye Kupası**: [Link](https://www.fotomac.com.tr/futbol/2025/12/23/tumosan-konyaspor-hesapcom-antalyaspor-maci-izle-saati-ve-kanali)
-
-
-### actor james ransone (N/A, 23/12/2025 11:34 Lima)
-
-- **'The Wire' Star James Ransone Dead at 46 After Apparent Suicide**: [Link](https://www.tmz.com/2025/12/21/the-wire-star-james-ransone-dead/)
-- **James Ransone, Who Played Ziggy Sobotka on ‘The Wire,’ Dies at 46**: [Link](https://variety.com/2025/tv/obituaries-people-news/james-ransone-dead-ziggy-sobotka-the-wire-it-chapter-two-1236613869/)
-- **‘Will Miss You, Hermano.’ Andy Muschietti, Spike Lee And More Pay Tribute To ‘PJ’ James Ransone After Death At 46**: [Link](https://www.inkl.com/news/will-miss-you-hermano-andy-muschietti-spike-lee-and-more-pay-tribute-to-pj-james-ransone-after-death-at-46)
-
-
-### avanza pais (N/A, 23/12/2025 11:34 Lima)
-
-- **JNE declaró inadmisible la fórmula presidencial de Avanza País**: [Link](https://rpp.pe/politica/elecciones/jne-declaro-inadmisible-la-formula-presidencial-de-avanza-pais-noticia-1668947)
-- **Avanza País: Declaran inadmisible la plancha presidencial de José Williams, Fernán Altuve y Adriana Tudela**: [Link](https://www.infobae.com/peru/2025/12/23/avanza-pais-declaran-inadmisible-la-plancha-presidencial-de-jose-williams-fernan-altuve-y-adriana-tudela/)
-- **Adriana Tudela: “Desde mi punto de vista se la ha dado un poder desmedido al Senado” tlc nota | POLITICA**: [Link](https://elcomercio.pe/politica/adriana-tudela-desde-mi-punto-de-vista-se-la-ha-dado-un-poder-desmedido-al-senado-tlc-nota-noticia/)
-
-
-### 24 de diciembre es feriado (N/A, 23/12/2025 11:34 Lima)
-
-- **Último feriado largo del año: quiénes descansan cuatro días**: [Link](https://caretas.pe/nacional/ultimo-feriado-largo-del-ano-quienes-descansan-cuatro-dias/)
-- **¿Habrá feriado largo por Navidad y Año Nuevo?: Esto dice el calendario y la ley**: [Link](https://latinanoticias.pe/tendencias/habra-feriado-largo-por-navidad-y-ano-nuevo-esto-dice-el-calendario-y-la-ley_20251219/)
-- **¡Atención! ¿Confirman FERIADO o día NO laborable este 24 de diciembre a nivel nacional? Esto se sabe**: [Link](https://www.exitosanoticias.pe/actualidad/atencion-confirman-feriado-o-dia-laborable-24-diciembre-nivel-nacional-esto-sabe-n165189)
-
-
-### congo vs (N/A, 23/12/2025 11:34 Lima)
-
-- **Congo venció en su debut en la Copa Africana**: [Link](https://ovacion.pe/noticias/futbol-internacional/congo-vencio-su-debut-copa-africana)
-- **RD Congo - Bénin : les Léopards mènent à la mi-temps (vidéo but)**: [Link](https://foot-africa.com/actualites/rd-congo-benin-les-leopards-menent-a-la-mi-temps-video-but-1013966/)
-- **CAN 2025 : la panne lunaire de la VAR et la malchance du Bénin**: [Link](https://www.france24.com/fr/sports/20251223-can-2025-panne-var-malchance-nin)
-
-
-### premios lorenzo (N/A, 23/12/2025 11:34 Lima)
-
-Sin noticias relacionadas disponibles.
-
-
-### dólar hoy perú (N/A, 23/12/2025 07:55 Lima)
-
-- **Precio del dólar hoy, martes 23 de diciembre de 2025: a cuánto abrió el tipo de cambio**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-2025-a-cuanto-esta-el-dolar-este-martes-23-de-diciembre-y-tipo-de-cambio-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
-- **Dólar SUNAT en Perú hoy 23 de diciembre 2025**: [Link](https://www.americatv.com.pe/noticias/actualidad/dolar-sunat-hoy-23-diciembre-tipo-cambio-oficial-n514165)
-- **Tipo de cambio hoy en Perú: ¿En cuánto cerró el dólar este lunes 22 de diciembre?**: [Link](https://gestion.pe/economia/mercados/tipo-de-cambio-dolar-hoy-en-peru-cuanto-esta-el-precio-del-dolar-este-lunes-22-de-diciembre-dolares-a-soles-compra-y-venta-bcrp-noticia/)
-
-
-### arsenal vs crystal palace (N/A, 23/12/2025 07:55 Lima)
-
-- **Every word Mikel Arteta said on Arsenal vs Crystal Palace, striker dilemma and fixture chaos**: [Link](https://www.football.london/arsenal-fc/news/every-word-mikel-arteta-said-33102300)
-- **bet365 bonus code: Score £30 bonus for Arsenal vs Crystal Palace with code SUN365**: [Link](https://www.thesun.co.uk/betting/37719711/bet365-bonus-code-arsenal-vs-crystal-palace-sun365/)
-- **'He lifted the belief, the spirit': Mikel Arteta reflects on Gabriel Jesus' role ahead of 100th Arsenal game**: [Link](https://tribuna.com/en/news/2025-12-22-he-lifted-the-belief-the-spirit-mikel-arteta-reflects-on-gabriel-jesus-role-ahead-of-100t/)
-
-
-### al ittihad (N/A, 23/12/2025 03:36 Lima)
-
-- **Roziqul Berdiev Shares Thoughts on Tomorrow's Match Against Al Ittihad**: [Link](https://zamin.uz/en/sport/178037-roziqul-berdiev-shares-thoughts-on-tomorrow-s-match-against-al-ittihad.html)
-- **Al-Ghamdi Reveals His Readiness and Chances of Joining the National Team in the World Cup**: [Link](https://www.ysscores.com/en/news/13876699/Al-Ghamdi-Reveals-His-Readiness-and-Chances-of-Joining-the-National-Team-in-the-World-Cup)
-- **Conceição Reveals Al-Ittihad’s Cards Ahead of Nasaf Match**: [Link](https://www.ysscores.com/en/news/13876647/Concei%C3%A7%C3%A3o-Reveals-Al-Ittihad%E2%80%99s-Cards-Ahead-of-Nasaf-Match)
-
-
-### phillip chu joy (N/A, 23/12/2025 03:36 Lima)
-
-- **Supercanastas 2025 bajo la lupa de la Sunat: “Su alto valor puede aumentar la retención salarial”, advierte experta**: [Link](https://www.infobae.com/peru/2025/12/21/supercanastas-2025-bajo-la-lupa-de-la-sunat-su-alto-valor-puede-aumentar-la-retencion-salarial-advierte-experta/)
-- **Phillip Chu Joy deja boquiabiertos a sus trabajadores con canasta navideña que incluye laptop gamer**: [Link](https://www.exitosanoticias.pe/espectaculos/phillip-chu-joy-deja-boquiabiertos-sus-trabajadores-canasta-navidena-incluye-laptop-gamer-n165175)
-- **¿Entregaste canastas solo a algunos trabajadores? Revisa el riesgo tributario**: [Link](https://actualidadempresarial.pe/noticia/entregaste-canastas-solo-a-algunos-trabajadores-revisa-el-riesgo-tributario/738ebdec-7b8a-46c0-9a40-df6e43be759d/1)
-
-
-### endrick (N/A, 22/12/2025 23:41 Lima)
-
-- **Real Madrid Agree First Major Transfer of January Window—Report**: [Link](https://www.si.com/soccer/real-madrid-agree-first-major-transfer-january-window)
-- **Endrick to Lyon, imminent**: [Link](https://www.marca.com/en/football/real-madrid/2025/12/22/6949a207268e3ea9398b45cb.html)
-- **Xabi Alonso dismissal would not affect planned exit for Real Madrid star**: [Link](https://www.football-espana.net/2025/12/13/xabi-alonso-dismissal-exit-real-madrid-star)
 
 
