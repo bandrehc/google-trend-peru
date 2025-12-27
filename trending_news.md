@@ -1,3 +1,73 @@
+### nigeria fc (N/A, 27/12/2025 15:27 Lima)
+
+- **Matawalle FC Clinches Mailafia Peace, Unity Cup Trophy**: [Link](https://von.gov.ng/matawalle-fc-clinches-mailafia-peace-unity-cup-trophy/)
+- **Matawalle FC clinch 9th ACP Mailafia Peace, Unity Football Tournament**: [Link](https://thesun.ng/matawalle-fc-clinch-9th-acp-mailafia-peace-unity-football-tournament/)
+- **NPFL: Niger Tornadoes target victory over Barau FC**: [Link](https://dailypost.ng/2025/12/26/npfl-niger-tornadoes-target-victory-over-barau-fc/)
+
+
+### nigeria (N/A, 27/12/2025 15:27 Lima)
+
+- **Trump’s Claims About Nigeria Strike Belie a Complex Situation on the Ground**: [Link](https://www.nytimes.com/2025/12/26/world/africa/trump-isis-strikes-nigeria-christians-facts.html)
+- **US air strikes won’t fix Nigeria’s security crisis but could make it worse**: [Link](https://www.aljazeera.com/opinions/2025/12/27/us-air-strikes-wont-fix-nigerias-security-crisis-but-could-make-it-worse)
+- **Opinion | Trump Bombs ISIS in Africa**: [Link](https://www.wsj.com/opinion/donald-trump-strikes-isis-nigeria-terrorism-christians-pete-hegseth-pentagon-32d8f2b4?gaa_at=eafs&gaa_n=AWEtsqdtQxGz3ARZ-ov6uP24hmjldnuww1xuPZCEYpi2st3Fxl3Hznr8uYCr&gaa_ts=6950445b&gaa_sig=aTvnTghX4bkpKEBHxXaJzhhus-jVyD_hoix0rahhFNBBq2YrqPCewYNZTTFPN7TMtJYKei0dIwUtLJ0TqiRCkQ%3D%3D)
+
+
+### nigeria vs (N/A, 27/12/2025 15:27 Lima)
+
+- **Nigeria vs Tunisia live updates: AFCON 2025 game team news, predictions and more**: [Link](https://www.nytimes.com/athletic/live-blogs/nigeria-vs-tunisia-live-updates-afcon-2025-score-result/jvdJcW3i8ttq/)
+- **LIVE: Nigeria vs Tunisia – AFCON 2025**: [Link](https://www.aljazeera.com/sports/liveblog/2025/12/27/live-nigeria-vs-tunisia-afcon-2025)
+- **AFCON 2025 -- Victor Osimhen has point to prove as Nigeria face Tunisia**: [Link](https://africa.espn.com/espn/story/_/id/47417369/afcon-2025-victor-osimhen-point-prove-nigeria-face-tunisia)
+
+
+### nigeria - túnez (N/A, 27/12/2025 15:27 Lima)
+
+- **Pronóstico Nigeria Túnez - CAN 27/12/25**: [Link](https://www.sportytrader.com/es/pronosticos/nigeria-tunez-314233/)
+- **Lookman deja atrás sus demonios**: [Link](https://as.com/futbol/internacional/lookman-deja-atras-sus-demonios-f202512-n/)
+- **Nigeria vs Tanzania Pronóstico y Apuestas | 23/12/25**: [Link](https://www.apuestas-deportivas.es/pronostico/nigeria-tanzania-pronostico-copa-africana-de-naciones-23-12-2025/)
+
+
+### juventus vs (N/A, 27/12/2025 15:27 Lima)
+
+- **Game Time Thread: Juventus vs. Pisa**: [Link](https://sports.yahoo.com/articles/game-time-thread-juventus-vs-183000331.html)
+- **Idrissa Toure vs. Juventus – Player props & odds to score a goal on December 27**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/12/27/idrissa-toure-soccer-player-props-12-27-2025/87925578007/)
+- **Spalletti explains unexpected Juventus changes and new roles**: [Link](https://football-italia.net/spalletti-explains-unexpected-juventus-changes/)
+
+
+### pisa - juventus (N/A, 27/12/2025 15:27 Lima)
+
+- **Serie A: in campo Pisa-Juventus 0-0 DIRETTA**: [Link](https://www.ansa.it/sito/notizie/sport/calcio/2025/12/27/serie-a-in-campo-pisa-juventus-0-0-diretta_a8dd1f0a-3e08-41d2-b345-7b044cab2d97.html)
+- **Pisa-Juve | ✅ UFFICIALI: la scelta su David, McKennie, Tramoni e Bremer**: [Link](https://onefootball.com/en/news/pisa-juve-ufficiali-la-scelta-su-david-mckennie-tramoni-e-bremer-42150199)
+- **Serie A | Le formazioni ufficiali di Pisa-Juventus**: [Link](https://www.juventus.com/it/news/articoli/serie-a-2025-2026-pisa-juventus-formazioni-ufficiali)
+
+
+### jesus alcantar (N/A, 27/12/2025 15:27 Lima)
+
+- **Jale internacional para Melgar: futbolista mexicano llega al ‘Dominó’ a pedido de Juan Reynoso**: [Link](https://depor.com/futbol-peruano/descentralizado/melgar-fichara-refuerzo-internacional-mexicano-quien-es-jesus-alcantar-en-que-equipos-jugo-y-el-pedido-de-juan-reynoso-liga-1-noticia/)
+- **Jesús Alcántar se suma a las filas del FBC Melgar**: [Link](https://diariocorreo.pe/deportes/jesus-alcantar-se-suma-a-las-filas-del-fbc-melgar-noticia/)
+- **Melgar rompe el mercado con futbolista de selección que jugó en el Sporting de Lisboa**: [Link](https://libero.pe/futbol-peruano/liga-1/2025/12/27/melgar-rompe-mercado-futbolista-de-seleccion-jugo-en-sporting-de-lisboa-liga-1-885519)
+
+
+### billy arce (N/A, 27/12/2025 15:27 Lima)
+
+- **Campeón en Brasil, Colombia y Ecuador: el fichajazo que apuntan en Universitario**: [Link](https://depor.com/futbol-peruano/descentralizado/universitario-posible-refuerzo-en-la-mira-el-extremo-ecuatoriano-billy-arce-opcion-de-los-cremas-junta-a-dos-equipos-colombianos-de-gran-paso-en-ecuador-brasil-y-colombia-video-noticia/)
+- **Universitario apunta a un fichaje de alto calibre desde Colombia**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/universitario-apunta-fichaje-alto-calibre-desde-colombia-n452120)
+- **Fichajes de Universitario 2026 EN VIVO: nuevos jugadores, rumores, renovaciones y salidas confirmadas**: [Link](https://www.infobae.com/peru/deportes/2025/12/24/fichajes-de-universitario-2026-en-vivo-nuevos-jugadores-rumores-renovaciones-y-salidas-confirmadas/)
+
+
+### famalicao (N/A, 27/12/2025 15:27 Lima)
+
+- **Diário da Jornada | Estrela arranca empolgante vitória em Famalicão**: [Link](https://goalpoint.pt/diario-da-jornada-16_219601)
+- **Tricolores vencem em Famalicão**: [Link](https://www.ligaportugal.pt/news/26329/tricolores-vencem-em-famalicao)
+- **FC Famalicão x Est. Amadora - Resumo, Destaques e Crónica do Jogo**: [Link](https://sapo.pt/artigo/fc-famalicao-x-est-amadora-resumo-destaques-e-cronica-do-jogo-69502da252dc24aee9cdd64a)
+
+
+### dólar hoy perú (N/A, 27/12/2025 15:27 Lima)
+
+- **Precio del dólar con alza: Así se cotiza el tipo de cambio hoy 27 de diciembre en Perú**: [Link](https://www.infobae.com/peru/2025/12/26/valor-de-apertura-del-dolar-en-peru-este-26-de-diciembre-de-usd-a-pen/)
+- **Precio del dólar en Perú: a cuánto cerró el tipo de cambio el viernes 26 de diciembre**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-2025-a-cuanto-esta-el-dolar-este-viernes-26-de-diciembre-tipo-de-cambio-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
+- **Consulta el tipo de cambio oficial del dólar SUNAT para este viernes 26 de diciembre del 2025**: [Link](https://canaln.pe/actualidad/dolar-hoy-peru-tipo-cambio-sunat-este-26-diciembre-n489178)
+
+
 ### bruno pinasco (N/A, 27/12/2025 11:30 Lima)
 
 - **“Estamos muy orgullosos de nunca haber caído en la tentación del populismo televisivo”: la historia de “Cinescape” y su adiós tras 25 años**: [Link](https://elcomercio.pe/somos/historias/bruno-pinasco-y-el-fin-de-cinescape-el-programa-que-empezo-con-el-vhs-y-con-solo-4-personas-noticia/)
@@ -962,73 +1032,5 @@ Sin noticias relacionadas disponibles.
 - **Es oficial: ¿Hoy 24 de diciembre es feriado en Perú? Esto marca la norma vigente**: [Link](https://www.infobae.com/peru/2025/12/23/manana-24-de-diciembre-es-feriado-en-peru-conoce-lo-que-dice-la-norma-vigente/)
 - **¿Feriado largo por Navidad y Año Nuevo?: Esto dice el calendario oficial**: [Link](https://latinanoticias.pe/tendencias/habra-feriado-largo-por-navidad-y-ano-nuevo-esto-dice-el-calendario-y-la-ley_20251219/)
 - **Navidad: el viernes 26 de diciembre será día no laborable ¿para quiénes aplica?**: [Link](https://andina.pe/agencia/noticia-navidad-viernes-26-diciembre-sera-dia-no-laborable-para-quienes-aplica-1055080.aspx)
-
-
-### camerun vs gabon (N/A, 24/12/2025 11:32 Lima)
-
-- **Carlos Baleba: Brighton and Cameroon midfielder hoping to light up the Africa Cup of Nations**: [Link](https://www.skysports.com/football/news/11095/13486916/carlos-baleba-brighton-and-cameroon-midfielder-hoping-to-light-up-the-africa-cup-of-nations)
-- **AFCON 2025 : Onana Sends Powerful Message to Indomitable Lions Ahead of Gabon Clash**: [Link](https://en.africatopsports.com/2025/12/23/afcon-2025-onana-sends-powerful-message-to-indomitable-lions-ahead-of-gabon-clash/)
-- **After football World Cup exit and coaching shake-up, Cameroon braces for AFCON challenge**: [Link](https://www.france24.com/en/video/20251224-after-football-world-cup-exit-and-coaching-shake-up-cameroon-braces-for-afcon-challenge)
-
-
-### té (N/A, 24/12/2025 07:53 Lima)
-
-- **Este es el té que produce colágeno y combate las arrugas de la cara**: [Link](https://www.laprensagrafica.com/salud/este-es-el-te-que-produce-colageno-y-combate-las-arrugas-de-la-cara-20251222-0027.html)
-- **Expertos advierten que los amantes del té podrían estar ingiriendo microplásticos**: [Link](https://es-us.noticias.yahoo.com/expertos-advierten-amantes-t%C3%A9-ingiriendo-204044637.html)
-- **¿Qué son esas bolitas?: el ingrediente oculto en las bolsitas de té**: [Link](https://cadenaser.com/video/canarias/2025/12/19/que-son-esas-bolitas-el-ingrediente-oculto-en-las-bolsitas-de-te-radio-la-palma/)
-
-
-### weather (N/A, 24/12/2025 07:53 Lima)
-
-- **Airdrie set for white, frigid Christmas**: [Link](https://www.discoverairdrie.com/articles/airdrie-set-for-white-frigid-christmas)
-- **Western and Northern Canada braces for chilly, snowy Christmas**: [Link](https://www.thespec.com/news/canada/western-and-northern-canada-braces-for-chilly-snowy-christmas/article_5b6991df-fa65-549b-a658-cdb09a9bf2a5.html)
-- **Messy snow and ice hit the Prairies for the holidays**: [Link](https://www.theweathernetwork.com/en/news/weather/forecasts/back-to-back-storms-bring-messy-holiday-weather-to-the-prairies)
-
-
-### al nassr (N/A, 24/12/2025 07:53 Lima)
-
-- **Cristiano Ronaldo’s Al Nassr Gets Bad Injury News on Tuesday**: [Link](https://sports.yahoo.com/articles/cristiano-ronaldo-al-nassr-gets-180325504.html)
-- **Al-Zawraa face Al-Nassr in crucial Asian Champions League 2 clash**: [Link](https://www.iraqinews.com/iraq/al-zawraa-al-nassr-asian-champions-league-2-qualification/)
-- **Al-Zawraa Receives Good News Before Facing Al-Nassr**: [Link](https://www.ysscores.com/en/news/13877280/Al-Zawraa-Receives-Good-News-Before-Facing-Al-Nassr)
-
-
-### tesla cybertruck (N/A, 24/12/2025 03:36 Lima)
-
-- **Tesla Opens Probe Into Cybertruck’s Massive ‘Gigawiper’**: [Link](https://teslanorth.com/2025/12/23/tesla-opens-probe-into-cybertrucks-massive-gigawiper/)
-- **Tesla Opens Engineering Investigation into Cybertruck Wipers**: [Link](https://www.notateslaapp.com/news/3439/tesla-opens-engineering-investigation-into-cybertruck-wipers)
-- **Tesla Cybertruck Owner Says, “I Must Live In an Alternate Universe, One Month In, and No Hate, Everyone Loves Elon, Hates Biden, Loves Tesla and My CT”**: [Link](https://www.torquenews.com/1084/tesla-cybertruck-owner-says-i-must-live-alternate-universe-one-month-and-no-hate-everyone)
-
-
-### argelia vs (N/A, 24/12/2025 03:36 Lima)
-
-- **CAN 2025/D-1 Argelia vs Sudán: “Estamos preparados”, dice Riyad Mahrez**: [Link](https://www.elpueblo.pe/deportes/can-2025-d-1-argelia-vs-sudan-estamos-preparados-dice-riyad-mahrez/177931/)
-
-
-### alianza lima vóley (N/A, 24/12/2025 03:36 Lima)
-
-- **¿Universitario sería líder? Así quedaría la tabla de la Liga Peruana de Vóley si se acepta el reclamo ante Alianza Lima**: [Link](https://www.infobae.com/peru/deportes/2025/12/22/universitario-seria-lider-asi-quedaria-la-tabla-de-la-liga-peruana-de-voley-si-se-acepta-el-reclamo-ante-alianza-lima/)
-- **¿Alianza perderá los puntos y Universitario será el ganador? ¿Qué dice el reglamento? Cinco respuestas a la polémica del clásico en el vóley**: [Link](https://elcomercio.pe/deporte-total/polideportivo/liga-peruana-de-voley-alianza-lima-perdera-los-puntos-y-universitario-sera-el-ganador-que-dice-el-reglamento-cinco-respuestas-a-la-polemica-del-clasico-en-el-voley-tlcnota-noticia/)
-- **Así reaccionaron las voleibolistas de Alianza Lima tras ver error de su DT ante Universitario**: [Link](https://bolavip.com/pe/voley/asi-reaccionaron-las-voleibolistas-de-alianza-lima-tras-ver-error-de-su-dt-ante-universitario)
-
-
-### navidad (N/A, 24/12/2025 03:36 Lima)
-
-- **Navidad 2025 EN VIVO: Por dónde está Papá Noel en este momento; sigue la ruta de Santa Claus en directo**: [Link](https://elcomercio.pe/mundo/actualidad/navidad-2025-en-vivo-donde-esta-papa-noel-en-este-momento-sigue-la-ruta-de-santa-claus-en-directo-norad-tracks-santa-recorrido-felices-fiestas-christmas-feliz-navidad-noche-buena-estados-unidos-nueva-zelanda-noticia/)
-- **¿Por dónde va Papa Noel hoy, 24 de diciembre? seguí todo el recorrido, EN VIVO**: [Link](https://www.tycsports.com/interes-general/por-donde-va-papa-noel-hoy-id704885.html)
-- **Santa Claus ya se alista para repartir regalos**: [Link](https://laoctava.com/podcasts/2025/12/23/santa-claus-ya-se-alista-para-repartir-regalos)
-
-
-### camerun vs (N/A, 24/12/2025 03:36 Lima)
-
-- **Camerún vs. Gabón: ¿a qué hora juegan y dónde ver EN VIVO por la Copa Africana de Naciones?**: [Link](https://rpp.pe/futbol/futbol-mundial/camerun-vs-gabon-en-vivo-a-que-hora-juegan-y-donde-ver-fecha-1-copa-africana-de-naciones-2025-link-claro-sports-partidos-de-hoy-noticia-1668988)
-- **Camerún vs Gabón Pronóstico y Apuestas | 24/12/2025**: [Link](https://www.apuestas-deportivas.es/pronostico/camerun-gabon-pronostico-copa-africana-de-naciones-24-12-2025/)
-- **Cómo y dónde ver: Camerún vs. Gabón en la AFCON 2025 por beIN SPORTS**: [Link](https://www.beinsports.com/es-us/football/copa-africana-de-naciones/articles/c%C3%B3mo-y-d%C3%B3nde-ver-camer%C3%BAn-vs-gab%C3%B3n-en-la-afcon-2025-por-bein-sports-2025-12-23)
-
-
-### merry christmas (N/A, 24/12/2025 03:36 Lima)
-
-- **Merry Christmas 2025: 50+ Wishes, Image, Quotes, Status, Message, GIFs and WhatsApp Greetings to Share with Family**: [Link](https://indianexpress.com/article/lifestyle/merry-christmas-2025-50-wishes-image-quotes-status-message-gifs-and-whatsapp-greetings-to-share-with-family-10435966/)
-- **Christmas season greetings 2025 to readers, subscribers, advertisers & supporters**: [Link](https://islandsocialtrends.ca/christmas-season-greetings-2025-to-readers-subscribers-advertisers-supporters/)
-- **Merry Christmas & Happy Holidays 2025!**: [Link](https://www.strata-gee.com/merry-christmas-happy-holidays-2025/)
 
 
