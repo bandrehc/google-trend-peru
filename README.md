@@ -1,3 +1,73 @@
+### pacers - celtics (N/A, 26/12/2025 21:01 Lima)
+
+- **bet365 Bonus Code WSN365: Get $150 in Bonus Bets Win or Lose for Celtics vs Pacers**: [Link](https://www.wsn.com/nba/bet365-bonus-code-celtics-vs-pacers-12-26-2025/)
+- **How to watch Boston Celtics free stream today**: [Link](https://www.masslive.com/tv/2025/12/how-to-watch-boston-celtics-free-stream-today.html-2)
+- **BSJ Live Coverage: Celtics at Pacers, 7 p.m. - Walsh returns as C's being long road trip**: [Link](https://www.bostonsportsjournal.com/live/bsj-live-coverage-celtics-at-pacers-7-pm---walsh-returns-as-cs-being-long-road-trip)
+
+
+### gta vi (N/A, 26/12/2025 21:01 Lima)
+
+- **"Let's talk in a year": New Lara Croft responds to criticism from the creator of the original Tomb Raider**: [Link](https://ixbt.games/en/news/2025/12/23/pogovorim-cerez-god-novaia-lara-kroft-otvetila-na-kritiku-sozdatelia-originalnoi-tomb-raider.html)
+- **Steam Replay Pokes Fun At GTA 6 Delay (For The Second Time)**: [Link](https://gameranx.com/updates/id/559884/article/steam-replay-pokes-fun-at-gta-6-delay-for-the-second-time/)
+- **Interview: How Call of Duty and gaming can be fixed**: [Link](https://www.esportsbets.com/news/oncade-greg-reisdorf-ex-call-of-duty-director-interview/)
+
+
+### te (N/A, 26/12/2025 21:01 Lima)
+
+- **VS roept Cambodja en Thailand op dodelijk geweld te beëindigen**: [Link](https://www.ad.nl/buitenland/vs-roept-cambodja-en-thailand-op-dodelijk-geweld-te-beeindigen~ae4b1b6d/)
+- **Vietnam presenteert zijn standpunt tijdens de speciale conferentie over de situatie tussen Cambodja en Thailand.**: [Link](https://www.vietnam.vn/nl/viet-nam-neu-quan-diem-tai-hoi-nghi-dac-biet-ve-tinh-hinh-campuchia-thai-lan)
+- **Thailand haalt uit naar Trump om 'overhaaste' vrede: 'Moest op tijd voor de foto'**: [Link](https://www.nu.nl/buitenland/6380399/thailand-haalt-uit-naar-trump-om-overhaaste-vrede-moest-op-tijd-voor-de-foto.html)
+
+
+### temblor hoy (N/A, 26/12/2025 21:01 Lima)
+
+- **Temblor de 4.8 remece Lima este 26 de diciembre**: [Link](https://www.infobae.com/peru/2025/12/27/temblor-de-48-remece-lima-este-26-de-diciembre/)
+- **Sismo de magnitud 4.8 se sintió esta noche en Lima y Callao**: [Link](https://rpp.pe/lima/actualidad/sismo-de-magnitud-48-grados-se-sintio-esta-noche-en-lima-y-callao-noticia-1669367)
+- **Temblor en Perú, hoy 26 de diciembre: ¿dónde fue el epicentro y qué magnitud tuvo?**: [Link](https://gestion.pe/peru/temblor-en-peru-hoy-26-de-diciembre-donde-fue-el-epicentro-noticia/)
+
+
+### senamhi (N/A, 26/12/2025 21:01 Lima)
+
+- **Frío en verano: temperatura noctura de Lima Metropolitana descendería hasta los 13 °C, según Senamhi**: [Link](https://www.infobae.com/peru/2025/12/26/frio-en-verano-temperatura-noctura-de-lima-metropolitana-descenderia-hasta-los-13-c-segun-senamhi/)
+- **¿Qué dijo el Senamhi sobre las temperaturas nocturnas en Lima?**: [Link](https://www.americatv.com.pe/noticias/actualidad/que-dijo-senamhi-sobre-temperaturas-nocturnas-lima-n514266)
+- **Descenso de temperaturas nocturnas se sentirá en la costa peruana entre el 26 y 30 de diciembre**: [Link](https://diariocorreo.pe/edicion/lima/descenso-de-temperaturas-nocturnas-se-sentira-en-la-costa-peruana-entre-el-26-y-30-de-diciembre-noticia/)
+
+
+### dolar cotizacion (N/A, 26/12/2025 21:01 Lima)
+
+- **Precio del dólar con alza: Así se cotiza el tipo de cambio hoy 26 de diciembre en Perú**: [Link](https://www.infobae.com/peru/2025/12/26/valor-de-apertura-del-dolar-en-peru-este-26-de-diciembre-de-usd-a-pen/)
+- **Precio del dólar en Perú: a cuánto cerró el tipo de cambio el viernes 26 de diciembre**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-2025-a-cuanto-esta-el-dolar-este-viernes-26-de-diciembre-tipo-de-cambio-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
+- **Consulta el tipo de cambio oficial del dólar SUNAT para este viernes 26 de diciembre del 2025**: [Link](https://canaln.pe/actualidad/dolar-hoy-peru-tipo-cambio-sunat-este-26-diciembre-n489178)
+
+
+### carlos anderson (N/A, 26/12/2025 21:01 Lima)
+
+- **Falleció el congresista Carlos Anderson a los 65 años**: [Link](https://www.infobae.com/peru/2025/12/26/fallecio-el-congresista-carlos-anderson-a-los-65-anos/)
+- **Falleció el congresista Carlos Anderson**: [Link](https://gestion.pe/peru/politica/fallecio-el-congresista-carlos-anderson-noticia/)
+- **Falleció Carlos Anderson: congresista y economista a los 65 años**: [Link](https://www.expreso.com.pe/actualidad/fallecio-carlos-anderson-congresista-y-economista-a-los-65-anos-parlamento-noticia/1250316/)
+
+
+### sedapal corte de agua programado (N/A, 26/12/2025 21:01 Lima)
+
+- **Sedapal suspenderá su servicio en tres distritos de Lima este viernes 26 de diciembre: ¿Qué zonas serán afectadas?**: [Link](https://www.infobae.com/peru/2025/12/25/sedapal-suspendera-su-servicio-en-tres-distritos-de-lima-este-viernes-26-de-diciembre-que-zonas-seran-afectadas/)
+- **Corte de agua en Lima hoy 26 de diciembre: Distritos y horarios afectados**: [Link](https://rpp.pe/lima/obras/corte-de-agua-en-lima-hoy-26-de-diciembre-distritos-y-horarios-afectados-noticia-1669262)
+- **Sedapal anuncia corte de agua este sábado 27 de diciembre: distrito afectado y horarios**: [Link](https://libero.pe/tiempoextra/2025/12/26/sedapal-anuncia-corte-de-agua-sabado-27-de-diciembre-distrito-afectado-horarios-614770)
+
+
+### feriados peru (N/A, 26/12/2025 21:01 Lima)
+
+- **Ejecutivo declaró al 26 de diciembre y al 2 de enero como días no laborables: ¿a quiénes se aplica este beneficio?**: [Link](https://rpp.pe/politica/gobierno/ejecutivo-declaro-al-26-de-diciembre-y-al-2-de-enero-como-dias-no-laborables-a-quienes-se-aplica-este-beneficio-noticia-1669186)
+- **Hoy 26 de diciembre: ¿descansas o compensas? Conoce qué aplica en tu trabajo**: [Link](https://www.elperuano.pe/noticia/285837-hoy-26-de-diciembre-descansas-o-compensas-conoce-que-aplica-en-tu-trabajo)
+- **Días no laborables**: [Link](https://caretas.pe/nacional/dias-no-laborables/)
+
+
+### sydney sweeney (N/A, 26/12/2025 21:01 Lima)
+
+- **From the kiss-cam scandal to Wicked witches, these are our top pop-culture moments of 2025**: [Link](https://www.theage.com.au/culture/celebrity/from-the-kiss-cam-scandal-to-wicked-witches-these-are-our-top-pop-culture-moments-of-2025-20251215-p5nnrh.html)
+- **Year-Ender 2025: Biggest Entertainment And Sartorial Moments Of The Year**: [Link](https://www.outlookindia.com/art-entertainment/year-ender-2025-biggest-entertainment-and-sartorial-moments-of-the-year-in-pics)
+- **Seven of the biggest social-media moments of 2025**: [Link](https://www.thenewdaily.com.au/life/social-media-life/2025/12/26/2025-social-media-moments)
+
+
 ### perry bamonte (N/A, 26/12/2025 15:27 Lima)
 
 - **Perry Bamonte, integrante de The Cure, falleció a los 65 años: "Será recordado con gran cariño"**: [Link](https://rpp.pe/famosos/celebridades/perry-bamonte-integrante-de-the-cure-fallecio-a-los-65-anos-noticia-1669337)
@@ -958,73 +1028,5 @@ Sin noticias relacionadas disponibles.
 - **Former Nickelodeon Star Tylor Chase Refusing Treatment, Housing From Police**: [Link](https://www.tmz.com/2025/12/22/nickelodeon-star-tylor-chase-refuses-treatment-housing/)
 - **Full story of Nickelodeon star Tylor Chase's fall to homelessness**: [Link](https://www.dailymail.co.uk/news/article-15407271/tylor-chase-nickelodeon-star-homeless.html)
 - **Challenges Faced by Former Child Actors: A Closer Look**: [Link](https://www.indianewsnetwork.com/en/challenges-faced-former-child-actors-closer-look-20251223)
-
-
-### braga vs (N/A, 23/12/2025 15:28 Lima)
-
-- **Preview: Caldas vs Braga - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/caldas/preview/caldas-vs-braga-prediction-team-news-lineups_588274.html)
-- **Caldas vs Sporting Braga Prediction and Betting Tips | December 23rd 2025**: [Link](https://www.sportskeeda.com/football/caldas-vs-sporting-braga-prediction-betting-tips-december-23rd-2025)
-
-
-### leeds vs. crystal palace (N/A, 23/12/2025 15:28 Lima)
-
-- **Oliver Glasner's embarrassing moment storming off after Crystal Palace's crushing loss to Leeds United - spotted**: [Link](https://tribuna.com/en/blogs/oliver-glasners-embarrassing-moment-storming-off-after-cryst/)
-- **Calvert-Lewin claims Hisense Player of the Match honours in 4-1 win**: [Link](https://sports.yahoo.com/articles/calvert-lewin-claims-hisense-player-091400912.html)
-- **Leeds 4-1 Crystal Palace: Fan views on Premier League game**: [Link](https://www.bbc.com/sport/football/articles/c4gpyypm8mro)
-
-
-### arsenal - crystal palace (N/A, 23/12/2025 15:28 Lima)
-
-- **Team news: Jesus starts quarter-final**: [Link](https://www.arsenal.com/news/team-news-jesus-starts-quarter-final)
-- **Every word Mikel Arteta said on Arsenal vs Crystal Palace, striker dilemma and fixture chaos**: [Link](https://www.football.london/arsenal-fc/news/every-word-mikel-arteta-said-33102300)
-- **'When you get to the last eight of a cup competition, you can start to smell the final': Odegaard on EFL Cup clash**: [Link](https://tribuna.com/en/news/2025-12-23-when-you-get-to-the-last-eight-of-a-cup-competition-you-can-start-to-smell-the-final-odeg/)
-
-
-### liga de campeones de la afc (N/A, 23/12/2025 15:28 Lima)
-
-- **Darwin Núñez, clave en el triunfo de Al-Hilal**: [Link](https://www.espn.com.ar/futbol/nota/_/id/16113232/darwin-nunez-clave-triunfo-al-hilal-champions-league-asia-asistencia-gol-malcom)
-- **Gol tardío de Al-Hilal asegura récord perfecto en la fase de grupos de la Liga de Campeones AFC**: [Link](https://www.thehour.com/sports/article/gol-tard-o-de-al-hilal-asegura-record-perfecto-21257608.php)
-- **Al-Sharjah vs Al Hilal: pronósticos, cuotas, y datos para apostar**: [Link](https://www.apwin.com/es/pronosticos/al-sharjah-vs-al-hilal-pronostico-afc-champions-league-22-12-2025/)
-
-
-### caldas sc - braga (N/A, 23/12/2025 15:28 Lima)
-
-- **Caldas obrigado a sair do Campo da Mata: decisão revolta o futebol**: [Link](https://onefootball.com/es/noticias/caldas-obrigado-a-sair-do-campo-da-mata-decisao-revolta-o-futebol-42136167)
-- **19h Ataque em Tomar: suspeito tinha sido preso por homicídio**: [Link](https://www.rtp.pt/noticias/noticiario-desporto/19h-ataque-em-tomar-suspeito-tinha-sido-preso-por-homicidio_a1_1706081)
-- **Jogadores do Calda protestam com um minuto sem jogar**: [Link](https://rr.pt/bola-branca/noticia/futebol-nacional/2025/12/23/taca-jogadores-do-calda-protestam-com-um-minuto-sem-jogar/452825/)
-
-
-### cristiano da silva (N/A, 23/12/2025 15:28 Lima)
-
-- **Sporting Cristal anunció lateral izquierdo brasileño: uno de los héroes del Sheriff ante Real Madrid en Champions**: [Link](https://depor.com/futbol-peruano/descentralizado/sporting-cristal-cristiano-da-silva-lateral-izquierdo-brasileno-nuevo-fichaje-quien-es-le-gano-al-real-madrid-en-champions-noticia/)
-- **Sporting Cristal anunció fichaje de un lateral derecho argentino**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/sporting-cristal-anuncio-fichaje-lateral-derecho-argentino-n452067)
-- **Bombazo en Sporting Cristal: Fichó a Cristiano Da Silva Leite, verdugo del Real Madrid en Champions League**: [Link](https://bolavip.com/pe/sporting-cristal/bombazo-en-sporting-cristal-ficho-a-cristiano-da-silva-leite-verdugo-del-real-madrid-en-champions-league)
-
-
-### nigeria (N/A, 23/12/2025 15:28 Lima)
-
-- **Afcon 2025 LIVE: Nigeria vs Tanzania - text updates, stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cyvg2erqj93t)
-- **Nigeria 2-1 Tanzania (Dec 23, 2025) Game Analysis**: [Link](https://www.espn.com/soccer/report/_/gameId/732138)
-- **Nigeria 2 Tanzania 1: Why did Iwobi stand out? Was Osimhen unlucky? How was Tanzania’s magic moment?**: [Link](https://www.nytimes.com/athletic/6911615/2025/12/23/nigeria-tanzania-afcon-iwobi-osimhen/)
-
-
-### avengers doomsday (N/A, 23/12/2025 11:34 Lima)
-
-- **Chris Evans Returns for ‘Avengers: Doomsday’ as Captain America With a Child, Teaser Confirms**: [Link](https://variety.com/2025/film/news/chris-evans-avengers-doomsday-teaser-captain-america-1236609054/)
-- **'Avengers: Doomsday' trailer reveals beloved hero's surprise return**: [Link](https://www.usatoday.com/story/entertainment/movies/2025/12/18/avengers-doomsday-trailer-description-chris-evans/87777832007/)
-- **Fans Flock to Theaters for ‘Avatar,’ But Many Fail to Find Avengers**: [Link](https://barlamantoday.com/2025/12/23/fans-flock-to-theaters-for-avatar-but-many-fail-to-find-avengers/)
-
-
-### senegal (N/A, 23/12/2025 11:34 Lima)
-
-- **CAN 2025: Senegal vs Botswana 5 jugadores clave**: [Link](https://www.elpueblo.pe/deportes/can-2025-senegal-vs-botswana-5-jugadores-clave/173403/)
-- **Senegal aspira a un segundo título de la CAN 2025 con una plantilla rejuvenecida y experimentada**: [Link](https://www.ucvradio.pe/mas-actualidad/senegal-aspira-a-un-segundo-titulo-de-la-can-2025-con-una-plantilla-rejuvenecida-y-experimentada/83994/)
-
-
-### konyaspor - antalyaspor (N/A, 23/12/2025 11:34 Lima)
-
-- **Konya'da ilk yarı sona erdi**: [Link](https://www.antalyaekspres.com.tr/konyada-ilk-yari-sona-erdi-1)
-- **Antalyaspor ve Konyaspor’un Kadroları Belli Oldu**: [Link](https://sadeceantalyaspor.com/haber/ztk/konyaspor-ztkb-antalyaspor-kadro)
-- **TÜMOSAN Konyaspor-Hesap.com Antalyaspor maçı canlı izle | Ziraat Türkiye Kupası**: [Link](https://www.fotomac.com.tr/futbol/2025/12/23/tumosan-konyaspor-hesapcom-antalyaspor-maci-izle-saati-ve-kanali)
 
 
