@@ -1,3 +1,17 @@
+### camila cabello (N/A, 26/12/2025 23:36 Lima)
+
+- **Camila Cabello Says December Is a 'Triggering Time' After Viral 'Quismois' White House Performance**: [Link](https://people.com/camila-cabello-says-december-is-triggering-time-after-quismois-meme-11876241)
+- **Camila Cabello’s Christmas fail is going viral again: Here’s the clip living rent-free online**: [Link](https://www.hola.com/us/celebrities/20251226874853/camila-cabello-christmas-fail-viral/)
+- **Camila Cabello Reveals Why December Is A 'Triggering Time' For Her**: [Link](https://kiisfm.iheart.com/featured/on-the-move-with-enrique-santos/content/2025-12-26-camila-cabello-reveals-why-december-is-a-triggering-time-for-her/)
+
+
+### huntrix (N/A, 26/12/2025 23:36 Lima)
+
+- **'Can't Believe I'm Going To Say This': Snoop Dogg Did The NFL's Christmas Halftime Show, And Fans Had Some Big Feelings**: [Link](https://www.yahoo.com/entertainment/music/articles/cant-believe-im-going-snoop-184322454.html)
+- **Snoop Dogg leads star-studded NFL halftime show | Reactions**: [Link](https://www.usatoday.com/story/sports/nfl/2025/12/25/snoop-dogg-nfl-halftime-show-k-pop-lainey-wilson-andrea-bocelli/87915660007/)
+- **Snoop Dogg Brought out K-Pop, Country and Opera Stars for Memorable Holiday Halftime Show**: [Link](https://www.today.com/news/sports/snoop-dogg-halftime-show-reactions-rcna251024)
+
+
 ### pacers - celtics (N/A, 26/12/2025 21:01 Lima)
 
 - **bet365 Bonus Code WSN365: Get $150 in Bonus Bets Win or Lose for Celtics vs Pacers**: [Link](https://www.wsn.com/nba/bet365-bonus-code-celtics-vs-pacers-12-26-2025/)
@@ -1014,19 +1028,5 @@ Sin noticias relacionadas disponibles.
 - **Vitória de Guimarães x Sporting Palpite – Onde Assistir, Hora e Escalações 23-12**: [Link](https://onefootball.com/pt-br/apostas/palpites/futebol/vitoria-de-guimaraes-x-sporting-23-12)
 - **Treinador irritado com pergunta sobre a polémica nos Açores**: [Link](https://www.pressreader.com/portugal/a-bola-358A/20251223/281904484527981)
 - **Rui Borges vai mexer no onze, mas não muito...(fotos)**: [Link](https://www.abola.pt/noticias/rui-borges-vai-mexer-no-onze-mas-nao-muitofotos-2025122222022635269)
-
-
-### everton vs. arsenal (N/A, 23/12/2025 15:28 Lima)
-
-- **Bench Cam: Arteta's best moments from Everton win | Video | News**: [Link](https://www.arsenal.com/news/bench-cam-artetas-best-moments-everton-win)
-- **Arsenal Edge Ahead Of Manchester City In Christmas Title Race**: [Link](https://evrimagaci.org/gpt/arsenal-edge-ahead-of-manchester-city-in-christmas-title-race-520858)
-- **Declan Rice posted some incredible stats you may have missed against Everton**: [Link](https://www.justarsenal.com/declan-rice-posted-some-incredible-stats-you-may-have-missed-against-everton/406524)
-
-
-### tylor chase ned (N/A, 23/12/2025 15:28 Lima)
-
-- **Former Nickelodeon Star Tylor Chase Refusing Treatment, Housing From Police**: [Link](https://www.tmz.com/2025/12/22/nickelodeon-star-tylor-chase-refuses-treatment-housing/)
-- **Full story of Nickelodeon star Tylor Chase's fall to homelessness**: [Link](https://www.dailymail.co.uk/news/article-15407271/tylor-chase-nickelodeon-star-homeless.html)
-- **Challenges Faced by Former Child Actors: A Closer Look**: [Link](https://www.indianewsnetwork.com/en/challenges-faced-former-child-actors-closer-look-20251223)
 
 
