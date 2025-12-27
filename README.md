@@ -1,3 +1,73 @@
+### bruno pinasco (N/A, 27/12/2025 11:30 Lima)
+
+- **“Estamos muy orgullosos de nunca haber caído en la tentación del populismo televisivo”: la historia de “Cinescape” y su adiós tras 25 años**: [Link](https://elcomercio.pe/somos/historias/bruno-pinasco-y-el-fin-de-cinescape-el-programa-que-empezo-con-el-vhs-y-con-solo-4-personas-noticia/)
+- **Bruno Pinasco llevará 'Cinescape' a YouTube tras 25 años en la televisión: "La diversión recién comienza"**: [Link](https://www.exitosanoticias.pe/espectaculos/bruno-pinasco-llevara-cinescape-youtube-tras-25-anos-television-la-diversion-recien-comienza-n165460)
+- **Bruno Pinasco se despide de 'Cinescape' tras 25 años: este sábado 27 de diciembre será su último programa**: [Link](https://larepublica.pe/espectaculos/2025/12/24/bruno-pinasco-se-despide-de-cinescape-tras-25-anos-el-programa-de-cine-mas-longevo-de-la-tv-peruana-dice-adios-1530576)
+
+
+### arsenal football club (N/A, 27/12/2025 11:30 Lima)
+
+- **Arsenal could ‘hijack’ Man City’s Antoine Semenyo deal after confirmed news**: [Link](https://www.footballinsider247.com/arsenal-could-hijack-man-citys-antoine-semenyo-deal-after-confirmed-news/)
+- **Antoine Semenyo’s preference to join Manchester City from Bournemouth - The Athletic**: [Link](https://www.nytimes.com/athletic/6915594/2025/12/23/antoine-semenyo-manchester-city-transfer/)
+- **Fabrizio Romano: Liverpool remain in contact with forward over January move**: [Link](https://onefootball.com/en/news/fabrizio-romano-liverpool-remain-in-contact-with-forward-over-january-move-42146536)
+
+
+### senegal (N/A, 27/12/2025 11:30 Lima)
+
+- **Javier Rabanal trae a uno de sus favoritos a Universitario: fue su goleador en Países Bajos**: [Link](https://depor.com/futbol-peruano/descentralizado/universitario-javier-rabanal-tiene-en-la-mira-como-fichaje-a-fran-sol-delantero-espanol-fue-su-goleador-en-willem-ii-de-paises-bajos-detalles-y-posible-acuerdo-video-noticia/)
+- **Universitario duda en el '9': Un español formado en el Real Madrid o un senegalés**: [Link](https://peru21.pe/deportes/universitario-duda-en-el-9-un-espanol-ex-real-madrid-o-senegales-de-barcelona/)
+- **Universitario estaría cerca de fichar a Sekou Gassama, delantero senegalés proveniente del fútbol español**: [Link](https://larepublica.pe/deportes/2025/12/24/universitario-estaria-cerca-de-fichar-a-sekou-gassama-delantero-senegales-proveniente-del-futbol-espanol-637392)
+
+
+### liverpool vs (N/A, 27/12/2025 11:30 Lima)
+
+- **How To Watch Liverpool vs. Wolves: Live Streams And TV Channels**: [Link](https://www.thisisanfield.com/2025/12/how-to-watch-liverpool-vs-wolves-live-streams-and-tv-channels/)
+- **Premier League / Liverpool - Wolverhampton: the official lineups are in!**: [Link](https://foot-africa.com/en/news/premier-league-liverpool-wolverhampton-the-official-lineups-are-in-1019384/)
+- **Preview: Liverpool host luckless Wolves at Anfield**: [Link](https://www.fotmob.com/topnews/24757-preview-liverpool-host-luckless-wolves-at-anfield?utm_source=fotmob)
+
+
+### senegal vs (N/A, 27/12/2025 11:30 Lima)
+
+- **LIVE: AFCON 2025 - Rolling updates of today’s action and key moments (27 December)**: [Link](https://www.cafonline.com/afcon2025/news/live-afcon-2025-rolling-updates-of-today-s-action-and-key-moments-27-december/)
+- **CAN 2025 - Senegal vs DR Congo: Lahlou Benbraham, a referee who brings luck to both teams**: [Link](https://foot-africa.com/en/news/can-2025-senegal-vs-dr-congo-lahlou-benbraham-a-referee-who-brings-luck-to-both-teams-1019285/)
+- **Morocco Africa Cup of Nations Soccer**: [Link](https://www.wvnews.com/sports/pro/morocco-africa-cup-of-nations-soccer/image_10919e44-6642-5a21-9ea0-c1eef96024b4.html)
+
+
+### livingston - celtic f. c. (N/A, 27/12/2025 11:30 Lima)
+
+- **Celtic starting XI to face Livingston**: [Link](https://www.celticfc.com/news/2025/december/27/celtic-starting-xi-to-face-livingston/)
+- **Matthew MacDermid then Kevin Clancy to referee Celtic’s next two matches**: [Link](https://thecelticstar.com/matthew-macdermid-then-kevin-clancy-to-referee-celtics-next-two-matches/)
+- **A hectic schedule awaits Celtic and Wilfried Nancy. The baptism of fire continues**: [Link](https://readceltic.com/2025/12/26/a-hectic-schedule-awaits-celtic-and-wilfried-nancy-the-baptism-of-fire-continues/)
+
+
+### zafiro sensual (N/A, 27/12/2025 11:30 Lima)
+
+- **Murió a los 37 años Dennys Quevedo, director de las orquestas Zafiro Sensual y Pluma Dorada**: [Link](https://rpp.pe/musica/nacional/murio-dennys-quevedo-a-los-37-anos-director-de-zafiro-sensual-y-pluma-dorada-noticia-1669410)
+- **🔴🔵¡Luto en la cumbia peruana! 🕊😭Fallece reconocido compositor y líder musical: Amigos y familiares lamentan su pérdida 👇**: [Link](https://www.facebook.com/story.php?story_fbid=1309790481184007&id=100064592023543)
+- **Muere Dennys Quevedo, director de los grupos de cumbia Zafiro Sensual y Pluma Dorada, a los 37 años**: [Link](https://larepublica.pe/espectaculos/2025/12/27/muere-dennys-quevedo-director-de-los-grupos-de-cumbia-zafiro-sensual-y-pluma-dorada-a-los-37-anos-1035315)
+
+
+### al nassr (N/A, 27/12/2025 11:30 Lima)
+
+- **Al-Nassr vs Al-Akhdoud today: Unbeaten leaders aim to extend perfect home record against outmatched rivals**: [Link](https://www.red94.net/news/80970-al-nassr-faces-al-akhdoud-in-saudi-pro-league-clash-riyadh-side-aims-for-dominan/)
+- **Cristiano Ronaldo scores career goal number 955**: [Link](https://tribuna.com/en/news/2025-12-27-cristiano-ronaldo-scores-career-goal-number-955/)
+- **How to Watch Al Nassr vs Al Okhdood: Live Stream Saudi League Soccer, TV Channel**: [Link](https://www.newsweek.com/sports/how-to-watch-al-nassr-vs-al-okhdood-live-stream-saudi-league-soccer-tv-channel-11272894)
+
+
+### senegal - rd congo (N/A, 27/12/2025 11:30 Lima)
+
+- **CAN 2025 - Sénégal vs RDC : Lahlou Benbraham, un arbitre qui réussit aux deux sélections**: [Link](https://foot-africa.com/actualites/can-2025-senegal-vs-rdc-lahlou-benbraham-un-arbitre-qui-reussit-aux-deux-selections-1019285/)
+- **En direct: Sénégal - RD Congo (CAN 2025, phase de poules)**: [Link](https://french.ahram.org.eg/infoCan2025/2025/76400.aspx)
+- **Pape Matar Sarr : « Nous sommes prêts à répondre à la RDC »**: [Link](https://www.senenews.com/actualites/pape-matar-sarr-nous-sommes-prets-a-repondre-a-la-rdc_570725.html)
+
+
+### everton (N/A, 27/12/2025 11:30 Lima)
+
+- **Jack Grealish treats friends to a '£20,000 Christmas night out' that ends when England star leaves strip club at 4am 'with a smile on his face'**: [Link](https://www.dailymail.co.uk/news/article-15415721/Jack-Grealish-friends-Christmas-England-star-strip-club.html)
+- **Jack Grealish injury update after missing Burnley vs Everton**: [Link](https://metro.co.uk/2025/12/27/jack-grealish-injury-update-missing-burnley-vs-everton-25852900/)
+- **Jack Grealish's Christmas party! Everton star and Kyle Walker spotted in London for festive celebrations with night ending at strip club**: [Link](https://www.goal.com/en-us/lists/jack-grealish-kyle-walker-spotted-in-london-for-festive-celebrations-with-night-ending-at-strip-club/blt63fe5945a0eb8aad)
+
+
 ### manchester city vs (N/A, 27/12/2025 07:50 Lima)
 
 - **Manchester City busca acechar la punta de la Premier League ante un resurgido Nottingham Forest**: [Link](https://www.espn.com.pe/futbol/inglaterra/nota/_/id/16111832/nottingham-forest-vs-manchester-city-fecha-18-premier-league-equipo-fecha-hora-y-tv-en-vivo)
@@ -960,74 +1030,5 @@ Sin noticias relacionadas disponibles.
 - **Merry Christmas 2025: 50+ Wishes, Image, Quotes, Status, Message, GIFs and WhatsApp Greetings to Share with Family**: [Link](https://indianexpress.com/article/lifestyle/merry-christmas-2025-50-wishes-image-quotes-status-message-gifs-and-whatsapp-greetings-to-share-with-family-10435966/)
 - **Christmas season greetings 2025 to readers, subscribers, advertisers & supporters**: [Link](https://islandsocialtrends.ca/christmas-season-greetings-2025-to-readers-subscribers-advertisers-supporters/)
 - **Merry Christmas & Happy Holidays 2025!**: [Link](https://www.strata-gee.com/merry-christmas-happy-holidays-2025/)
-
-
-### objeto interestelar 3i atlas cometa (N/A, 24/12/2025 03:36 Lima)
-
-- **Revelan imágenes de rayos x del cometa interestelar 3I/ATLAS**: [Link](https://cnnespanol.cnn.com/2025/12/18/ciencia/cometa-interestelar-3iatlas-rayos-x-trax)
-- **Larry Denneau, descubridor del cometa 3l/Atlas: "No debería haber estado allí"**: [Link](https://www.elconfidencial.com/tecnologia/ciencia/2025-12-18/larry-denneau-3l-atlas-no-deberia-estar-ahi-1qrt_4269070/)
-- **El cometa 3I/ATLAS alcanzó su mayor acercamiento a la Tierra: cómo fue y hacia dónde seguirá su camino**: [Link](https://www.clarin.com/internacional/cometa-3iatlas-alcanzo-mayor-acercamiento-tierra-seguira-camino_0_Qa1TLiXKYJ.html)
-
-
-### mavericks - nuggets (N/A, 24/12/2025 03:36 Lima)
-
-- **Denver Nuggets vs Dallas Mavericks Dec 23, 2025 Box Scores**: [Link](https://www.nba.com/game/den-vs-dal-0022500415/box-score)
-- **Grading the Mavericks: second half runs were Dallas’ Achilles heal**: [Link](https://www.mavsmoneyball.com/mavericks-analysis/53958/grading-the-mavericks-second-half-runs-were-dallas-achilles-heal)
-- **How The Mavericks’ Name And Logo Trace Back To Dallas’ Equestrian Past**: [Link](https://dallashoopsjournal.com/p/dallas-mavericks-name-logo-equestrian-history/)
-
-
-### spurs - thunder (N/A, 23/12/2025 23:39 Lima)
-
-- **OKC shrugs off loss, 'excited' to have challenge**: [Link](https://www.espn.com/nba/story/_/id/47301200/thunder-shrug-loss-spurs-excited-challenge)
-- **BetMGM Bonus Code NEWSWEEK: Claim $1,500 Bonus For NBA Xmas Week Games**: [Link](https://www.newsweek.com/sports/betting/betmgm-bonus-code-newsweek-claim-1500-bonus-for-nba-xmas-week-games-11262830)
-- **It’s time for Basketball: Spurs vs Oklahoma City Thunder**: [Link](https://www.poundingtherock.com/general/91854/its-time-for-basketball-spurs-vs-oklahoma-city-thunder)
-
-
-### burkina faso vs (N/A, 23/12/2025 23:39 Lima)
-
-- **CAN 2025: Probable lineups Burkina Faso – Equatorial Guinea**: [Link](https://sports.yahoo.com/articles/2025-probable-lineups-burkina-faso-173000890.html)
-- **Stallions and National Thunder meet for only second time at AFCON - 2025 Africa Cup of Nations - Burkina Faso**: [Link](https://africanfootball.com/news/834277/Stallions-and-National-Thunder-meet-for-only-second-time-at-AFCON)
-- **Football accumulator tips for Wednesday December 24: Back our acca at 11-1 with bet365**: [Link](https://www.racingpost.com/sport/football-tips/football-acca-tips/football-accumulator-tips-for-wednesday-december-24-back-our-acca-at-11-1-with-bet365-arqdl5N3JXMb/)
-
-
-### suns - lakers (N/A, 23/12/2025 23:39 Lima)
-
-- **Austin Reaves Cleared To Return For Lakers**: [Link](https://www.hoopsrumors.com/2025/12/austin-reaves-cleared-to-return-for-lakers.html)
-- **TST Best Bets- December 23, 2025**: [Link](https://www.thesportingtribune.com/2025/12/23/best-best-dec23-2025)
-- **Dillon Brooks scores 25, Suns dominate Luka-less Lakers for a 132-108 victory**: [Link](https://www.cbssports.com/nba/news/dillon-brooks-scores-25-suns-dominate-luka-less-lakers-for-a-132-108-victory/)
-
-
-### esto es guerra (N/A, 23/12/2025 23:39 Lima)
-
-- **¿Quién ganó la final de 'Esto es guerra' 2025 en diciembre y es el nuevo campeón de la temporada?**: [Link](https://larepublica.pe/espectaculos/2025/12/23/quien-gano-la-final-de-esto-es-guerra-2025-en-diciembre-y-es-el-nuevo-campeon-de-la-temporada-1265368)
-- **Romances, conflictos y condiciones extremas: así fue el camino a la gran final**: [Link](https://www.televisa.com/canal5/realities/el-conquistador-supervivencia-extrema/romances-conflictos-y-condiciones-extremas-asi-fue-el-camino-a-la-gran-final-video)
-- **'Esto es guerra' 2025: Los 'Combatientes' se consagran campeones de la temporada tras vencer a los 'Guerreros'**: [Link](https://larepublica.pe/espectaculos/2025/12/23/esto-es-guerra-2025-los-combatientes-se-consagran-campeones-de-la-temporada-tras-vencer-a-los-guerreros-1596407)
-
-
-### costa de marfil vs (N/A, 23/12/2025 23:39 Lima)
-
-- **Pronóstico Costa de Marfil Mozambique - CAN 24/12/25**: [Link](https://www.sportytrader.com/es/pronosticos/costa-de-marfil-mozambique-313777/)
-- **Cómo y dónde ver: Costa de Marfil vs. Mozambique en la AFCON 2025 por beIN SPORTS**: [Link](https://www.beinsports.com/es-us/football/copa-africana-de-naciones/articles/c%C3%B3mo-y-d%C3%B3nde-ver-costa-de-marfil-vs-mozambique-en-la-afcon-2025-por-bein-sports-2025-12-23)
-- **Costa de Marfil vs Mozambique Pronóstico y Apuestas | 24/12/25**: [Link](https://www.apuestas-deportivas.es/pronostico/costa-de-marfil-mozambique-pronostico-copa-africana-de-naciones-24-12-2025/)
-
-
-### ganador de inkafarma (N/A, 23/12/2025 23:39 Lima)
-
-- **Inkafarma realiza sorteo de “Una casa o un millón” con presencia de notario público**: [Link](https://peru21.pe/peru/inkafarma-realiza-sorteo-de-una-casa-o-un-millon-con-presencia-de-notario-publico/)
-- **Inkafarma: Este martes conoceremos al ganador del sorteo millonario**: [Link](https://www.atv.pe/noticia/inkafarma-este-martes-conoceremos-al-ganador-del-sorteo-millonario/)
-
-
-### federico girotti (N/A, 23/12/2025 21:02 Lima)
-
-- **Delantero extranjero que Alianza Lima buscó, ya negocia con otro club: "Conversaciones"**: [Link](https://libero.pe/futbol-internacional/2025/12/22/alianza-lima-busco-delantero-negocia-otro-club-adrian-balboa-1541122)
-- **¿Peligra el fichaje de Federico Girotti por Alianza Lima? La revelación de Mr. Peet por el ‘9′ extranjero**: [Link](https://www.infobae.com/peru/deportes/2025/12/17/peligra-el-fichaje-de-federico-girotti-por-alianza-lima-la-revelacion-de-mr-peet-por-el-9-extranjero/)
-- **Mr. Peet revela que exdelantero de PSV podría reencontrarse con Paolo Guerrero en Alianza Lima: "Es una posibilidad"**: [Link](https://larepublica.pe/futbol-peruano/2025/12/17/mr-peet-revela-que-exdelantero-de-psv-podria-reencontrarse-con-paolo-guerrero-en-alianza-lima-es-una-posibilidad-854471)
-
-
-### caín fara (N/A, 23/12/2025 21:02 Lima)
-
-- **“Me llena de ilusión y compromiso”: Caín Fara reacciona a su fichaje con Universitario en redes sociales**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/universitario-cain-fara-reacciona-a-su-fichaje-en-redes-sociales-me-llena-de-ilusion-y-compromiso-video-noticia/)
-- **Mientras presentaban a Javier Rabanal como DT, en Argentina confirmaron a Caín fara como primer refuerzo de...**: [Link](https://bolavip.com/pe/universitario/mientras-presentaban-a-javier-rabanal-como-dt-en-argentina-confirmaron-a-cain-fara-como-primer-refuerzo-de-universitario)
-- **Defensor de Atlético Atlanta jugará en Universitario**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/atletico-atlanta-confirmo-que-defensor-jugara-universitario-cain-fara-n452073)
 
 
