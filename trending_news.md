@@ -1,3 +1,24 @@
+### dolar peru (N/A, 27/12/2025 03:33 Lima)
+
+- **Precio del dólar con alza: Así se cotiza el tipo de cambio hoy 26 de diciembre en Perú**: [Link](https://www.infobae.com/peru/2025/12/26/valor-de-apertura-del-dolar-en-peru-este-26-de-diciembre-de-usd-a-pen/)
+- **Precio del dólar en Perú: a cuánto cerró el tipo de cambio el viernes 26 de diciembre**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-2025-a-cuanto-esta-el-dolar-este-viernes-26-de-diciembre-tipo-de-cambio-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
+- **Consulta el tipo de cambio oficial del dólar SUNAT para este viernes 26 de diciembre del 2025**: [Link](https://canaln.pe/actualidad/dolar-hoy-peru-tipo-cambio-sunat-este-26-diciembre-n489178)
+
+
+### pulisic (N/A, 27/12/2025 03:33 Lima)
+
+- **Mexico’s double, historic World Cup qualifications lead 2025 Top National Team Moments in Concacaf**: [Link](https://www.concacaf.com/en/news/mexico-s-double-historic-world-cup-qualifications-lead-2025-top-national-team-moments-in-concacaf/)
+- **CONCACAF 2025 Player Rankings: Christian Pulisic and Jonathan David lead race for region’s top honor**: [Link](https://www.goal.com/en-ca/lists/concacaf-2025-player-rankings-christian-pulisic-and-jonathan-david-battle-mexico-s-trophy-winners-for-region-s-top-spot/blt3e2f2ffe9cfd2483)
+- **USMNT star Pulisic the best Serie A player so far, according to Italian journalists**: [Link](https://sports.yahoo.com/articles/usmnt-star-pulisic-best-serie-201000641.html)
+
+
+### anderson (N/A, 27/12/2025 03:33 Lima)
+
+- **Teresa "Faye" Anderson Obituary December 24, 2025**: [Link](https://www.hayworth-miller.com/obituaries/teresa-anderson)
+- **🔴🔵🚨 #LOÚLTIMO | Luto en la política peruana. El congresista Carlos Anderson falleció este viernes, 26 de diciembre, a los 65 años de edad. Así lo pudieron confirmar fuentes de Exitosa. El también economista perdió la vida esta tarde, en circunstancias aún**: [Link](https://www.facebook.com/Exitosanoticias/photos/-lo%C3%BAltimo-luto-en-la-pol%C3%ADtica-peruana-el-congresista-carlos-anderson-falleci%C3%B3-es/1309322577897464/)
+- **Falleció el congresista Carlos Anderson a los 65 años de edad**: [Link](https://caretas.pe/politica/fallecio-el-congresista-carlos-anderson-a-los-65-anos-de-edad/)
+
+
 ### camila cabello (N/A, 26/12/2025 23:36 Lima)
 
 - **Camila Cabello Says December Is a 'Triggering Time' After Viral 'Quismois' White House Performance**: [Link](https://people.com/camila-cabello-says-december-is-triggering-time-after-quismois-meme-11876241)
@@ -1007,26 +1028,5 @@ Sin noticias relacionadas disponibles.
 - **Pronóstico Vitoria Guimaraes - Sporting. Primeira Liga | 23/12/2025**: [Link](https://gainblers.com/pe/pronosticos/futbol/portugal/primeira-liga/pronostico-vitoria-guimaraes-sporting-23-12-2025/)
 - **Bengals glimpse hope defensively with Al Golden's unit vs. Dolphins**: [Link](https://ca.sports.yahoo.com/news/bengals-glimpse-hope-defensively-al-195636254.html)
 - **Bengals D/ST logs two interceptions Sunday**: [Link](https://www.fantasypros.com/nfl/news/561067/bengals-dst-logs-two-interceptions-sunday.php)
-
-
-### arsenal football club (N/A, 23/12/2025 21:02 Lima)
-
-- **Inside Training: Havertz is back! | Video | News**: [Link](https://www.arsenal.com/news/inside-training-havertz-back)
-- **Arsenal star suffers frustrating injury setback after being just 'one week away' from recovery - as new expected return date is set**: [Link](https://www.dailymail.co.uk/sport/football/article-15396479/Arsenal-star-suffers-frustrating-injury-setback.html)
-- **Arsenal release three-word injury update as Mikel Arteta huge step closer to dream scenario**: [Link](https://www.mirror.co.uk/sport/football/news/arsenal-injury-latest-kai-havertz-36444222)
-
-
-### liga peruana de vóley (N/A, 23/12/2025 21:02 Lima)
-
-- **La nueva sanción contra Alianza Lima en medio de su polémica en el partido ante Universitario por Liga Peruana de Vóley 2025/2026**: [Link](https://www.infobae.com/peru/deportes/2025/12/23/la-nueva-sancion-contra-alianza-lima-en-medio-de-su-polemica-en-el-partido-ante-universitario-por-liga-peruana-de-voley-20252026/)
-- **¿Alianza perderá los puntos y Universitario será el ganador? ¿Qué dice el reglamento? Cinco respuestas a la polémica del clásico en el vóley**: [Link](https://elcomercio.pe/deporte-total/polideportivo/liga-peruana-de-voley-alianza-lima-perdera-los-puntos-y-universitario-sera-el-ganador-que-dice-el-reglamento-cinco-respuestas-a-la-polemica-del-clasico-en-el-voley-tlcnota-noticia/)
-- **Así reaccionaron las voleibolistas de Alianza Lima tras ver error de su DT ante Universitario**: [Link](https://bolavip.com/pe/voley/asi-reaccionaron-las-voleibolistas-de-alianza-lima-tras-ver-error-de-su-dt-ante-universitario)
-
-
-### sporting lisboa (N/A, 23/12/2025 15:28 Lima)
-
-- **Vitória de Guimarães x Sporting Palpite – Onde Assistir, Hora e Escalações 23-12**: [Link](https://onefootball.com/pt-br/apostas/palpites/futebol/vitoria-de-guimaraes-x-sporting-23-12)
-- **Treinador irritado com pergunta sobre a polémica nos Açores**: [Link](https://www.pressreader.com/portugal/a-bola-358A/20251223/281904484527981)
-- **Rui Borges vai mexer no onze, mas não muito...(fotos)**: [Link](https://www.abola.pt/noticias/rui-borges-vai-mexer-no-onze-mas-nao-muitofotos-2025122222022635269)
 
 
