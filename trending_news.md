@@ -1,3 +1,45 @@
+### manchester city vs (N/A, 27/12/2025 07:50 Lima)
+
+- **Manchester City busca acechar la punta de la Premier League ante un resurgido Nottingham Forest**: [Link](https://www.espn.com.pe/futbol/inglaterra/nota/_/id/16111832/nottingham-forest-vs-manchester-city-fecha-18-premier-league-equipo-fecha-hora-y-tv-en-vivo)
+- **¿Juega Haaland? Las alineaciones para Nottingham Forest vs. Manchester City tras la última polémica de Pep ...**: [Link](https://bolavip.com/pe/premier-league/juega-haaland-las-alineaciones-para-nottingham-forest-vs-manchester-city-tras-la-ultima-polemica-de-pep-guardiola)
+- **Premier League: Manchester City busca derrotar a Nottingham Forest para posicionarse en la cima del torneo**: [Link](https://rpp.pe/futbol/ligas-internacionales/premier-league-manchester-city-busca-derrotar-a-nottingham-forest-para-posicionarse-en-la-cima-del-torneo-noticia-1669258)
+
+
+### fiorentina vs (N/A, 27/12/2025 07:50 Lima)
+
+- **Serie A: Parma vs. Fiorentina – Confirmed line-ups and updates**: [Link](https://sports.yahoo.com/articles/serie-parma-vs-fiorentina-confirmed-105000937.html)
+- **Football Tracker: Parma lead Fiorentina as Forest take on Man City in Premier League**: [Link](https://www.flashscore.com/news/football-tracker-parma-lead-fiorentina-as-forest-take-on-man-city-in-premier-league/QgA3dzM0/)
+- **Parma vs Fiorentina Prediction, 12/27/2025 Soccer Pick, Tips and Odds**: [Link](https://www.docsports.com/free-picks/soccer/2025/parma-vs-fiorentina-prediction-12-27-2025-soccer-pick-tips-and-odds.html)
+
+
+### nottingham forest - manchester city (N/A, 27/12/2025 07:50 Lima)
+
+- **We’ll decide on Rodri fitness today, says Guardiola**: [Link](https://www.mancity.com/news/mens/pep-guardiola-rodri-update-nottingham-forest-63902351)
+- **Nottingham Forest vs Manchester City: Where to watch the match online, live stream, TV channels, and kick-off time**: [Link](https://www.goal.com/en-ca/news/how-to-watch-nottingham-forest-v-manchester-city-27122025/bltdd4f18117e3dcf47)
+- **Rodri closing in on return as Man City target trophies**: [Link](https://www.beinsports.com/en-us/soccer/premier-league/articles/rodri-closing-in-on-return-as-man-city-target-trophies-2025-12-26)
+
+
+### serie a (N/A, 27/12/2025 07:50 Lima)
+
+- **Serie A, Milan-Verona, Cremonese-Napoli e Atalanta-Inter: 3 gare per chiudere in vetta il 2025**: [Link](https://www.rainews.it/maratona/2025/12/calcio-serie-a-giornata-17-risultati-cronaca-aggiornamenti-diretta-highlights-sintesi-inter-roma-milan-napoli-como-bologna-juventus-41beec00-7d85-41df-82d2-e29e51fb6623.html)
+- **CALCIO SERIE A: OGGI SI RIPRENDE**: [Link](https://www.persemprenews.it/calcio/calcio-serie-a-oggi-si-riprende/)
+- **Ecco il kit per la 17a giornata al fantacalcio: tutti i consigli, dai casi delicati fino al Mantra**: [Link](https://www.sosfanta.com/consigli-fantacalcio/ecco-il-kit-per-la-17a-giornata-al-fantacalcio-tutti-i-consigli-dai-casi-delicati-fino-al-mantra/)
+
+
+### parma - fiorentina (N/A, 27/12/2025 07:50 Lima)
+
+- **LIVE Parma-Fiorentina 1-0 Serie A 2025/2026: Sorensen sblocca Parma Fiorentina**: [Link](https://sport.virgilio.it/dirette/live/serie-a/27-12-2025/parma-fiorentina/2558673/)
+- **Calcio Live News: tutte le notizie di giornata in diretta**: [Link](https://www.diretta.it/news/calcio-live-in-campo-parma-fiorentina-1-0-juve-senza-cabal-e-conceicao/dEhNDbpp/)
+- **Parma, contro la Fiorentina torna Circati dal 1' - Le videoformazioni di Sandro Piovani**: [Link](https://www.gazzettadiparma.it/il-parma/2025/12/27/video/parma-contro-la-fiorentina-torna-circati-dal-1-le-videoformazioni-di-sandro-piovani-914274/)
+
+
+### chelsea vs aston villa (N/A, 27/12/2025 07:50 Lima)
+
+- **Maresca updates on duo and the need to rotate | News | Official Site**: [Link](https://www.chelseafc.com/en/news/article/maresca-updates-on-duo-and-the-need-to-rotate)
+- **Chelsea vs. Aston Villa: Preview, Predictions and Lineups**: [Link](https://www.si.com/soccer/chelsea-vs-aston-villa-preview-predictions-and-lineups-12-27-25)
+- **'Chelsea are favourites to fight for the Premier League trophy': Unai Emery**: [Link](https://tribuna.com/en/news/2025-12-26-chelsea-are-favourites-to-fight-for-the-premier-league-trophy-unai-emery/)
+
+
 ### dolar peru (N/A, 27/12/2025 03:33 Lima)
 
 - **Precio del dólar con alza: Así se cotiza el tipo de cambio hoy 26 de diciembre en Perú**: [Link](https://www.infobae.com/peru/2025/12/26/valor-de-apertura-del-dolar-en-peru-este-26-de-diciembre-de-usd-a-pen/)
@@ -987,46 +1029,5 @@ Sin noticias relacionadas disponibles.
 - **“Me llena de ilusión y compromiso”: Caín Fara reacciona a su fichaje con Universitario en redes sociales**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/universitario-cain-fara-reacciona-a-su-fichaje-en-redes-sociales-me-llena-de-ilusion-y-compromiso-video-noticia/)
 - **Mientras presentaban a Javier Rabanal como DT, en Argentina confirmaron a Caín fara como primer refuerzo de...**: [Link](https://bolavip.com/pe/universitario/mientras-presentaban-a-javier-rabanal-como-dt-en-argentina-confirmaron-a-cain-fara-como-primer-refuerzo-de-universitario)
 - **Defensor de Atlético Atlanta jugará en Universitario**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/atletico-atlanta-confirmo-que-defensor-jugara-universitario-cain-fara-n452073)
-
-
-### esto es guerra en vivo (N/A, 23/12/2025 21:02 Lima)
-
-- **¿Quién ganó la final de 'Esto es guerra' 2025 en diciembre y es el nuevo campeón de la temporada?**: [Link](https://larepublica.pe/espectaculos/2025/12/23/quien-gano-la-final-de-esto-es-guerra-2025-en-diciembre-y-es-el-nuevo-campeon-de-la-temporada-1265368)
-- **Romances, conflictos y condiciones extremas: así fue el camino a la gran final**: [Link](https://www.televisa.com/canal5/realities/el-conquistador-supervivencia-extrema/romances-conflictos-y-condiciones-extremas-asi-fue-el-camino-a-la-gran-final-video)
-- **Los 'Guerreros' se imponen a los 'Combatientes' en el primer día de la gran final de 'Esto es guerra' 2025**: [Link](https://larepublica.pe/espectaculos/2025/12/22/final-de-esto-es-guerra-2025-en-vivo-via-america-tvgo-a-que-hora-y-donde-ver-competencia-entre-guerreros-y-combatientes-en-eeg-hoy-1067220)
-
-
-### inkafarma sorteo (N/A, 23/12/2025 21:02 Lima)
-
-- **Inkafarma realiza sorteo de “Una casa o un millón” con presencia de notario público**: [Link](https://peru21.pe/peru/inkafarma-realiza-sorteo-de-una-casa-o-un-millon-con-presencia-de-notario-publico/)
-- **Inkafarma: Este martes conoceremos al ganador del sorteo millonario**: [Link](https://www.atv.pe/noticia/inkafarma-este-martes-conoceremos-al-ganador-del-sorteo-millonario/)
-
-
-### avanza pais plancha presidencial (N/A, 23/12/2025 21:02 Lima)
-
-- **Avanza País: Declaran inadmisible la plancha presidencial de José Williams, Fernán Altuve y Adriana Tudela**: [Link](https://www.infobae.com/peru/2025/12/23/avanza-pais-declaran-inadmisible-la-plancha-presidencial-de-jose-williams-fernan-altuve-y-adriana-tudela/)
-- **Avanza País subsana observaciones del JNE**: [Link](https://peru21.pe/politica/avanza-pais-subsana-observaciones-del-jne/)
-- **Adriana Tudela: “Desde mi punto de vista se la ha dado un poder desmedido al Senado” tlc nota | POLITICA**: [Link](https://elcomercio.pe/politica/adriana-tudela-desde-mi-punto-de-vista-se-la-ha-dado-un-poder-desmedido-al-senado-tlc-nota-noticia/)
-
-
-### zendaya (N/A, 23/12/2025 21:02 Lima)
-
-- **Zendaya Joins Fiancé Tom Holland and His Parents in Rare London Outing**: [Link](https://people.com/zendaya-joins-fiance-tom-holland-and-his-parents-in-rare-london-outing-11874949)
-- **Zendaya Chops Off Her Hair for a Striking New Bixie Cut**: [Link](https://www.aol.com/articles/zendaya-chops-off-her-hair-151200716.html)
-- **Zendaya's New Bob Will Make You Want To Book A Haircut**: [Link](https://www.thezoereport.com/culture/zendaya-chocolate-brown-bob)
-
-
-### fa cup (N/A, 23/12/2025 21:02 Lima)
-
-- **WOMEN'S CUP GAME ABANDONED**: [Link](https://www.cu-fc.com/news/2025/december/23/women-s-cup-game-abandoned/)
-- **FA make final decision on Colchester United Women's abandoned cup-tie**: [Link](https://www.gazette-news.co.uk/sport/25721795.fa-make-decision-colchester-united-womens-abandoned-tie/)
-- **Colchester United Women’s Victory Over Braintree Athletic Confirmed by FA**: [Link](https://news.ssbcrack.com/colchester-united-womens-victory-over-braintree-athletic-confirmed-by-fa/)
-
-
-### guimaraes vs (N/A, 23/12/2025 21:02 Lima)
-
-- **Pronóstico Vitoria Guimaraes - Sporting. Primeira Liga | 23/12/2025**: [Link](https://gainblers.com/pe/pronosticos/futbol/portugal/primeira-liga/pronostico-vitoria-guimaraes-sporting-23-12-2025/)
-- **Bengals glimpse hope defensively with Al Golden's unit vs. Dolphins**: [Link](https://ca.sports.yahoo.com/news/bengals-glimpse-hope-defensively-al-195636254.html)
-- **Bengals D/ST logs two interceptions Sunday**: [Link](https://www.fantasypros.com/nfl/news/561067/bengals-dst-logs-two-interceptions-sunday.php)
 
 
