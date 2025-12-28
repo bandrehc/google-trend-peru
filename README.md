@@ -1,3 +1,52 @@
+### brigitte bardot (N/A, 28/12/2025 07:51 Lima)
+
+- **La piste de Livigno a fait parler autant que le classement ce samedi. Neige trop sèche, manque de glace, sécurité en question: les cadors, de Marco Odermatt à Franjo von Allmen, ont livré des avis tranchés sur la qualité de la préparation de la piste italienne.**: [Link](https://www.facebook.com/blickfr/posts/la-piste-de-livigno-a-fait-parler-autant-que-le-classement-ce-samedi-neige-trop-/1242007531317837/)
+- **Et B.B. créa le style**: [Link](https://www.france24.com/fr/info-en-continu/20251228-et-b-b-cr%C3%A9a-le-style)
+- **Mort de Brigitte Bardot : Saint-Tropez salue "l'ambassadrice la plus éclatante" de la commune**: [Link](https://www.tf1info.fr/culture/mort-de-brigitte-bardot-saint-tropez-salue-l-ambassadrice-la-plus-eclatante-de-la-commune-2415297.html)
+
+
+### sunderland vs (N/A, 28/12/2025 07:51 Lima)
+
+- **Starting XI: One Change For Sunderland Today?**: [Link](https://rokerreport.sbnation.com/match-previews/119408/starting-xi-one-change-for-sunderland-today)
+- **Mark Viduka sends warning to Daniel Farke after Leeds United’s stunning revival**: [Link](https://www.leedsunited.news/news/mark-viduka-sends-warning-to-daniel-farke-after-leeds-uniteds-stunning-revival/)
+- **Supporters travelling to Stadium of Light**: [Link](https://onefootball.com/en/news/supporters-travelling-to-stadium-of-light-42149615)
+
+
+### milan vs verona (N/A, 28/12/2025 07:51 Lima)
+
+- **Milan recibe a Hellas Verona en busca de llegar a lo más alto de la Serie A**: [Link](https://www.espn.com.pe/futbol/italia/nota/_/id/16116805/milan-vs-hellas-verona-fecha-17-serie-a-equipo-fecha-hora-y-tv-en-vivo)
+- **Serie A: Milan busca derrotar a Hellas Verona para posicionarse en la cima del torneo**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-milan-busca-derrotar-a-hellas-verona-para-posicionarse-en-la-cima-del-torneo-noticia-1669380)
+- **AC Milán vs Hellas Verona: previa del partido**: [Link](https://www.elpueblo.pe/deportes/ac-milan-vs-hellas-verona-previa-del-partido/184398/)
+
+
+### milan vs (N/A, 28/12/2025 07:51 Lima)
+
+- **GdS: 73,000 and counting – Milan expected to end 2025 with a sell-out at San Siro**: [Link](https://sempremilan.com/milan-end-2025-sell-out-verona)
+- **No certainty that Leao will be able to return vs Cagliari on Friday**: [Link](https://milanreports.com/2025/12/28/no-certainty-leao-cagliari-friday/)
+- **Italy Serie A Soccer**: [Link](https://www.wvnews.com/sports/pro/italy-serie-a-soccer/image_83001c20-ef23-564c-a21c-560ebb70e2ca.html)
+
+
+### milan - hellas verona (N/A, 28/12/2025 07:51 Lima)
+
+- **Allegri: "Leao non è convocato, Nkunku contro il Verona può fare bene. Füllkrug? Unico"**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Milan/27-12-2025/allegri-prima-di-milan-verona-leao-non-convocato-neanche-gabbia-nkunku-si-fullkrug.shtml)
+- **Calcio Live News: tutte le notizie di giornata in diretta**: [Link](https://www.diretta.it/news/calcio-live-in-campo-milan-verona-2-0-nkunku-raddoppia-su-rigore/dEhNDbpp/)
+- **LIVE! Milan-Hellas Verona: Allegri vuole ritornare alla vittoria. Diretta scritta e aggiornamenti in tempo reale**: [Link](https://www.eurosport.it/calcio/serie-a/2025-2026/live-milan-hellas-verona_mtc1598702/live-commentary.shtml)
+
+
+### 28 de diciembre (N/A, 28/12/2025 07:51 Lima)
+
+- **Horóscopo de hoy, domingo 28 de diciembre: Lee aquí las predicciones para tu signo**: [Link](https://elcomercio.pe/luces/vida-social/horoscopo-de-hoy-domingo-28-de-diciembre-lee-aqui-las-predicciones-para-tu-signo-noticia/)
+- **Aries, Tauro, Géminis, Cáncer, Leo, Virgo, Libra, Escorpio, Sagitario, Capricornio, Acuario y Piscis: así será este domingo 28 de diciembre**: [Link](https://www.vanitatis.elconfidencial.com/horoscopo/2025-12-28/horoscopo-hoy-domingo-28-diciembre-astros-1qrt_4275163/)
+- **Horóscopo de hoy, domingo 28 de diciembre de 2025 según Josie: revisa el tarot y predicciones AQUÍ**: [Link](https://libero.pe/ocio/2025/12/27/horoscopo-de-hoy-domingo-28-de-diciembre-segun-josie-diez-canseco-tarot-predicciones-en-internet-chatea-josie-citas-numero-contacto-963063)
+
+
+### xiaomi hyperos (N/A, 28/12/2025 07:51 Lima)
+
+- **Redmi Note 13 Pro 4G and POCO M6 Pro get HyperOS 3 Android 16 update**: [Link](https://xiaomitime.com/redmi-note-13-pro-4g-and-poco-m6-pro-get-hyperos-3-android-16-update-83551/)
+- **Xiaomi HyperOS 3.0 Rollout: Full List of Eligible Devices Getting the Update Before 2026**: [Link](https://nokiamob.net/2025/12/26/xiaomi-hyperos-3-0-rollout-full-list-of-eligible-devices-getting-the-update-before-2026/)
+- **By the end of the year, another twenty-five Xiaomi, Redmi, and Poco devices will receive HyperOS 3 firmware (list)**: [Link](https://gagadget.com/en/689391-by-the-end-of-the-year-another-twenty-five-xiaomi-redmi-and-poco-devices-will-receive-hyperos-3-firmware-list/)
+
+
 ### gabon vs (N/A, 28/12/2025 03:33 Lima)
 
 - **Preview: Gabon vs Mozambique - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/gabon/africa-cup-of-nations/preview/gabon-vs-mozambique-prediction-team-news-lineups_588523.html)
@@ -985,54 +1034,5 @@ Sin noticias relacionadas disponibles.
 - **Cómo Joe Pesci y Daniel Stern se transformaron en los villanos de Mi Pobre Angelito**: [Link](https://www.latercera.com/culto/noticia/como-joe-pesci-y-daniel-stern-se-transformaron-en-los-villanos-de-mi-pobre-angelito/)
 - **Actor de 'Mi pobre angelito' está irreconocible 35 años después del estreno de la película**: [Link](https://es-us.vida-estilo.yahoo.com/actor-pobre-angelito-irreconocible-35-151739015.html)
 - **A 35 años de "Mi Pobre Angelito", el "villano" Daniel Stern cambió radicalmente: "No salgo de mi granja"**: [Link](https://www.guioteca.com/celebridades/a-35-anos-de-mi-pobre-angelito-el-villano-daniel-stern-cambio-radicalmente-no-salgo-de-mi-granja/)
-
-
-### casma (N/A, 24/12/2025 21:04 Lima)
-
-- **Áncash: múltiple choque vehicular deja cinco personas fallecidas en Casma**: [Link](https://rpp.pe/peru/ancash/multiple-choque-vehicular-deja-cinco-personas-fallecidas-en-casma-noticia-1669156)
-- **¡A horas de Navidad! Familia entera muere en quíntuple choque en casma**: [Link](https://peru21.pe/peru/horas-de-navidad-familia-entera-muere-en-quintuple-choque-en-casma/)
-- **Múltiple choque en la Panamericana Norte deja al menos cinco fallecidos: miniván con pasajeros quedó aplastada**: [Link](https://larepublica.pe/sociedad/2025/12/24/multiple-choque-en-la-panamericana-norte-deja-al-menos-cinco-fallecidos-minivan-con-pasajeros-quedo-aplastada-1812912)
-
-
-### misa de gallo (N/A, 24/12/2025 21:04 Lima)
-
-- **Papa León XIV: En el niño Jesús, Dios da al mundo una nueva vida**: [Link](https://www.vaticannews.va/es/papa/news/2025-12/papa-leon-xiv-en-el-nino-jesus-dios-da-al-mundo-una-nueva-vida.html)
-- **La primera Navidad del papa León trae un poderoso mensaje**: [Link](https://cnnespanol.cnn.com/2025/12/23/mundo/video/papa-leo-primera-navidad-trax)
-- **El papa León XIV celebrará su primera Navidad recuperando la tradicional misa en San Pedro después de 30 años**: [Link](https://www.infobae.com/america/mundo/2025/12/24/el-papa-leon-xiv-celebrara-su-primera-navidad-recuperando-la-tradicional-misa-en-san-pedro-despues-de-30-anos/)
-
-
-### villancicos (N/A, 24/12/2025 21:04 Lima)
-
-- **Navidad 2025: las 10 canciones imprescindibles para llenar de alegría este 25 de diciembre**: [Link](https://elcomercio.pe/respuestas/cual/navidad-2025-las-10-canciones-imprescindibles-para-llenar-de-alegria-este-25-de-diciembre-tdpe-noticia/)
-- **El secreto de los clásicos navideños: Brenda Lee celebra 65 años de Rockin’ around the Christmas tree**: [Link](https://www.publimetro.com.mx/entretenimiento/2025/12/23/el-secreto-de-los-clasicos-navidenos-brenda-lee-celebra-65-anos-de-rockin-around-the-christmas-tree/)
-- **Navidad también se escucha, así suenan las playlists más reproducidas del año**: [Link](https://oem.com.mx/tribunadesanluis/tendencias/navidad-tambien-se-escucha-asi-suenan-las-playlists-mas-reproducidas-del-ano-27398690)
-
-
-### españa (N/A, 24/12/2025 21:04 Lima)
-
-- **Prime Video: Así quedo el top de las mejores películas de la plataforma en España**: [Link](https://www.infobae.com/noticias/2025/12/22/prime-video-asi-quedo-el-top-de-las-mejores-peliculas-de-la-plataforma-en-espana/)
-- **Estas son las mejores películas de Prime Video para ver hoy en España**: [Link](https://www.infobae.com/noticias/2025/12/25/estas-son-las-mejores-peliculas-de-prime-video-para-ver-hoy-en-espana/)
-- **Estas son las películas que están de moda en Prime Video España este día**: [Link](https://www.infobae.com/noticias/2025/12/18/estas-son-las-peliculas-que-estan-de-moda-en-prime-video-espana-este-dia/)
-
-
-### christmas (N/A, 24/12/2025 21:04 Lima)
-
-- **Trump answers phone calls from kids on Christmas Eve**: [Link](https://www.cnn.com/2025/12/24/us/video/trump-norad-santa-tracker-hotline-digvid)
-- **Trump takes NORAD Santa calls from kids. Here's what he said.**: [Link](https://www.usatoday.com/story/news/politics/2025/12/24/donald-trump-melania-norad-santa-christmas-eve-calls/87911347007/)
-- **Donald Trump, on Christmas Eve Calls with Children, Brags About Winning Pennsylvania ‘3 Times’**: [Link](https://people.com/donald-trump-calls-child-christmas-brags-about-winning-pennsylvania-11876057)
-
-
-### españa hora (N/A, 24/12/2025 15:28 Lima)
-
-- **Solsticio de invierno: La noche más corta del año**: [Link](https://es.euronews.com/2025/12/21/solsticio-de-invierno-los-dias-vuelven-a-ser-mas-largos-y-frios)
-- **Nuestra Navidad de importación**: [Link](https://www.milenio.com/opinion/roman-revueltas-retes/apuntes-decembrinos/nuestra-navidad-de-importacion)
-- **Dos lluvias de estrellas, tres lunas llenas y dos eclipses: estos son todos los eventos astronómicos de este**: [Link](https://www.lasexta.com/tecnologia-tecnoxplora/ciencia/dos-lluvias-estrellas-tres-lunas-llenas-dos-eclipses-estos-son-todos-eventos-astronomicos-este-otono_2025122269493220af09df501090dcd7.html)
-
-
-### cronograma pagos 2026 (N/A, 24/12/2025 15:28 Lima)
-
-- **MEF publica el cronograma de pagos del 2026 del Banco de la Nación: Estos son los tres calendarios**: [Link](https://www.infobae.com/peru/2025/12/24/mef-aprueba-el-cronograma-de-pagos-del-2026-del-banco-de-la-nacion-estas-son-las-fechas/)
-- **Nuevo cronograma de pagos en el Estado 2025: remuneraciones y pensiones se pagarán de manera ordenada y previsible**: [Link](https://www.expreso.com.pe/economia/nuevo-cronograma-de-pagos-en-el-estado-2025-remuneraciones-y-pensiones-se-pagaran-de-manera-ordenada-y-previsible-ministerio-de-economia-y-finanzas-oficina-de-normalizacion-previsional-noticia/1249443/)
-- **Conoce el cronograma 2026 de pagos de sueldos y pensiones en el Estado**: [Link](https://andina.pe/agencia/noticia-conoce-cronograma-2026-pagos-sueldos-y-pensiones-el-estado-1056807.aspx)
 
 
