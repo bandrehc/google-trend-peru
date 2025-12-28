@@ -1,3 +1,73 @@
+### millie bobby brown (N/A, 27/12/2025 23:49 Lima)
+
+- **“I’m already in love with her”: Millie Bobby Brown Wants on Screen Romance With Florence Pugh**: [Link](https://fandomwire.com/im-already-in-love-with-her-millie-bobby-brown-wants-on-screen-romance-with-florence-pugh/)
+- **Millie Bobby Brown's Favorite Snacks And Drinks On The Stranger Things Set**: [Link](https://www.mashed.com/2057618/millie-bobby-brown-favorite-snacks-stranger-things-set/)
+- **Millie Bobby Brown's stylist recommends this £5 spray to keep hair protected ahead of TV filming**: [Link](https://www.mirror.co.uk/money/shopping-deals/millie-bobby-brown-hair-spray-36460989)
+
+
+### selena quintanilla (N/A, 27/12/2025 23:49 Lima)
+
+- **Hermano de Selena revela cómo murió su padre: “Rezo para que no haya sufrido”**: [Link](https://www.univision.com/famosos/hermano-de-selena-revela-como-murio-su-padre-rezo-para-que-no-haya-sufrido-video)
+- **Mamá de Selena vive duro duelo tras la muerte de Abraham Quintanilla: “Perdió a su hija y a su compañero de vida”**: [Link](https://www.infobae.com/mexico/2025/12/26/mama-de-selena-vive-duro-duelo-tras-la-muerte-de-abraham-quintanilla-perdio-a-su-hija-y-a-su-companero-de-vida/)
+- **Revelan la última voluntad de Abraham Quintanilla, tras fallecer a los 86 años de edad**: [Link](https://lamejor.com.mx/news/2025/12/26/revelan-la-ultima-voluntad-de-abraham-quintanilla-tras-fallecer-los-86-anos-de-edad-24383.html)
+
+
+### taiwan (N/A, 27/12/2025 23:49 Lima)
+
+- **Sismo de 6.6 sacudió el noreste de Taiwán sin reportes de daños**: [Link](https://www.tvperu.gob.pe/noticias/internacionales/sismo-de-66-sacudio-el-noreste-de-taiwan-sin-reportes-de-danos)
+- **Un terremoto de magnitud 6.6 sacudió las costas de Taiwán**: [Link](https://andina.pe/agencia/noticia-un-terremoto-magnitud-66-sacudio-las-costas-taiwan-1057194.aspx)
+- **Tiembla el 'Cinturón de Fuego': Terremoto de 6.6 sacudió las costas de Taiwán (VIDEO)**: [Link](https://peru21.pe/mundo/terremoto-de-66-sacudio-las-costas-de-taiwan-video-cinturon-de-fuego/)
+
+
+### exitosa en vivo (N/A, 27/12/2025 23:49 Lima)
+
+- **Caen presuntos autores del asesinato de dos trabajadores de ladrillera Pirámide**: [Link](https://larepublica.pe/sociedad/2025/12/27/caen-presuntos-autores-del-asesinato-de-dos-trabajadores-de-ladrillera-piramide-crimen-organizado-hnews-1247319)
+- **Golpe a la extorsión en Lima Sur: Policía desarticula a peligrosa banda vinculada al 'Tren de Aragua'**: [Link](https://peru21.pe/policiales/golpe-la-extorsion-en-lima-sur-policia-desarticula-peligrosa-banda-vinculada-al-tren-de-aragua/)
+- **Capturan a implicados en ataque a ladrillera en Carabayllo**: [Link](https://panamericana.pe/24horas/locales/462067-capturan-implicados-ataque-ladrillera-carabayllo)
+
+
+### chiclayo (N/A, 27/12/2025 23:49 Lima)
+
+- **Incendio en Chiclayo: niña de 8 años logró salvar a su hermana de 2 de siniestro**: [Link](https://www.infobae.com/peru/2025/12/27/incendio-en-chiclayo-nina-de-8-anos-logro-salvar-a-su-hermana-de-2-de-siniestro/)
+- **Chiclayo: disminuyen emergencias en Navidad pero persisten retos por falsas alarmas**: [Link](https://andina.pe/agencia/noticia-chiclayo-disminuyen-emergencias-navidad-pero-persisten-retos-falsas-alarmas-1057180.aspx)
+- **Chiclayo: bomberos tardan más de 15 minutos en salir de su estación por ambulantes en la zona**: [Link](https://larepublica.pe/sociedad/2025/12/27/chiclayo-bomberos-tardan-mas-de-15-minutos-en-salir-de-su-estacion-por-ambulantes-en-la-zona-524745)
+
+
+### el comercio peru (N/A, 27/12/2025 23:49 Lima)
+
+- **Repensando la edad**: [Link](https://elcomercio.pe/opinion/columnistas/repensando-la-edad-por-urpi-torrado-juventud-peruana-vejez-en-el-peru-noticia/)
+- **Un sismo de magnitud 6.0 con epicentro en Chimbote remeció Lima y otras regiones**: [Link](https://rpp.pe/lima/actualidad/un-sismo-de-magnitud-60-remecio-esta-noche-lima-y-otras-regiones-noticia-1669460)
+- **Cuatro temblores remecen al Perú en un solo día y reactivan la alerta sobre prevención sísmica**: [Link](https://www.infobae.com/peru/2025/12/27/tres-temblores-remecen-lima-y-callao-en-un-solo-dia-y-reactivan-la-alerta-sobre-prevencion-sismica/)
+
+
+### earthquake (N/A, 27/12/2025 23:49 Lima)
+
+- **Taiwan rattled by 7.0 magnitude quake, no major damage reported**: [Link](https://www.cnn.com/2025/12/27/asia/taiwan-earthquake-tremors-intl-latam)
+- **7.0-magnitude earthquake rattles Taiwan**: [Link](https://www.dw.com/en/70-magnitude-earthquake-rattles-taiwan/a-75317087)
+- **TSMC says some facilities evacuated after quake**: [Link](https://www.reuters.com/world/asia-pacific/tsmc-says-some-facilities-evacuated-after-quake-2025-12-27/)
+
+
+### ipg (N/A, 27/12/2025 23:49 Lima)
+
+- **'India's next media consolidation will be regional, not corporate'**: [Link](https://www.manifest-media.in/media-/241225/indias-next-media-consolidation-will-be-regional-not-corporate.html)
+- **Omnicom–IPG face 2026 pitch test | CTV leads video shift | FSSAI Warns on ‘Herbal Tea’**: [Link](https://www.storyboard18.com/special-coverage/omnicom-ipg-face-2026-pitch-test-ctv-leads-video-shift-fssai-warns-on-herbal-tea-86609.htm)
+- **Inside India’s 2026 Media Pitches: How Omnicom–IPG will be tested beyond scale**: [Link](https://www.storyboard18.com/advertising/inside-indias-2026-media-pitches-how-omnicom-ipg-will-be-tested-beyond-scale-86522.htm)
+
+
+### sismo (N/A, 27/12/2025 23:49 Lima)
+
+- **Un sismo de magnitud 6.0 con epicentro en Chimbote remeció Lima y otras regiones**: [Link](https://rpp.pe/lima/actualidad/un-sismo-de-magnitud-60-remecio-esta-noche-lima-y-otras-regiones-noticia-1669460)
+- **Cuatro temblores remecen al Perú en un solo día y reactivan la alerta sobre prevención sísmica**: [Link](https://www.infobae.com/peru/2025/12/27/tres-temblores-remecen-lima-y-callao-en-un-solo-dia-y-reactivan-la-alerta-sobre-prevencion-sismica/)
+- **Temblor en Perú HOY, 27 de diciembre: ¿En qué lugar se produjo el último sismo de magnitud 6,0?**: [Link](https://larepublica.pe/sociedad/2025/12/27/temblor-en-peru-hoy-sabado-27-de-diciembre-del-2025-magnitud-epicentro-y-mas-sobre-sismos-recientes-segun-igp-ultimo-sismo-en-lima-ica-callao-y-otras-provincias-atmp-1330446)
+
+
+### rpp noticias (N/A, 27/12/2025 23:49 Lima)
+
+- **Falleció Carlos Anderson a los 65 años: ¿quién asumiría su escaño en el Congreso?**: [Link](https://www.infobae.com/peru/2025/12/27/fallecio-carlos-anderson-a-los-65-anos-quien-asumiria-su-escano-en-el-congreso/)
+- **Falleció el congresista Carlos Anderson**: [Link](https://gestion.pe/peru/politica/fallecio-el-congresista-carlos-anderson-noticia/)
+- **Presidencia de la República expresa condolencias por fallecimiento de Carlos Anderson**: [Link](https://andina.pe/agencia/noticia-presidencia-de-republica-expresa-condolencias-fallecimiento-carlos-anderson-1057131.aspx)
+
+
 ### sekou gassama futbolista (N/A, 27/12/2025 21:21 Lima)
 
 - **Rugirá en Ate: Universitario anunció fichaje de Seskou Gassama para la temporada 2026**: [Link](https://depor.com/futbol-peruano/descentralizado/seskou-gassama-fichajes-universitario-2026-anuncio-oficial-del-delantero-senegales-para-liga-1-video-noticia/)
@@ -964,73 +1034,5 @@ Sin noticias relacionadas disponibles.
 - **Samsunspor'da Veysel Bilen: "Galibiyetle başlamak önemliydi"**: [Link](https://www.samsungazetesi.com/samsunsporda-veysel-bilen-galibiyetle-baslamak-onemliydi)
 - **Futbol: Ziraat Türkiye Kupası**: [Link](https://www.haberturk.com/samsun-haberleri/40068352-futbol-ziraat-turkiye-kupasi)
 - **Samsunspor, Kupa Galibiyeti İle Araya Moralli Girdi!**: [Link](https://www.samsunhaberx.com/samsunspor-kupa-galibiyeti-ile-araya-moralli-girdi/74449/)
-
-
-### samsunspor vs (N/A, 24/12/2025 15:28 Lima)
-
-Sin noticias relacionadas disponibles.
-
-
-### amad diallo (N/A, 24/12/2025 15:28 Lima)
-
-- **Wednesday's Africa Cup of Nations predictions including Ivory Coast vs. Mozambique**: [Link](https://www.sportsmole.co.uk/football/ivory-coast/africa-cup-of-nations/feature/will-mbeumo-and-mahrez-triumph-wednesdays-afcon-predictions-and-previews_588332.html)
-- **LIVE BLOG: Rolling AFCON updates of the day’s action, events and key moments (1)**: [Link](https://www.cafonline.com/afcon2025/news/live-blog-rolling-afcon-updates-of-the-day-s-action-events-and-key-moments-1/)
-- **CAN 2025 - Côte d'Ivoire: "We want that fourth star," says Yahia Fofana**: [Link](https://foot-africa.com/en/news/can-2025-cote-divoire-we-want-that-fourth-star-says-yahia-fofana-1015526/)
-
-
-### yan diomande (N/A, 24/12/2025 15:28 Lima)
-
-- **Informe: el Manchester United considera fichar al delantero de la Bundesliga por 80 millones de libras**: [Link](https://www.elpueblo.pe/deportes/informe-el-manchester-united-considera-fichar-al-delantero-de-la-bundesliga-por-80-millones-de-libras/179611/)
-- **Perfect Semenyo Alternative: Man Utd Eyeing Move to Sign £87m Forward With 'Outstanding Speed'**: [Link](https://www.givemesport.com/diomande-man-utd-signing-semenyo-alternative/)
-- **Amad Diallo could boost Manchester United’s Yan Diomande chase**: [Link](https://www.yardbarker.com/soccer/articles/amad_diallo_could_boost_manchester_uniteds_yan_diomande_chase/s1_17737_43242345)
-
-
-### estreno de stranger things (N/A, 24/12/2025 15:28 Lima)
-
-- **Stranger Things 5: Fecha de estreno de los episodios del Volumen 2 y la duración de la última temporada**: [Link](https://www.atv.pe/noticia/stranger-things-5-fecha-de-estreno-de-los-episodios-del-volumen-2-y-la-duracion-de-la-ultima-temporada/)
-- **Stranger Things Temporada 5 Volumen 2: fecha, hora y link para ver los nuevos episodios de la serie de Netflix | MAG**: [Link](https://elcomercio.pe/mag/fama/que-ver/stranger-things-temporada-5-volumen-2-fecha-hora-y-link-para-ver-los-nuevos-episodios-de-la-serie-de-netflix-nnda-nnlt-noticia/)
-- **‘Stranger Things 5’: Ross Duffer confirma que el episodio final será uno de los más largos de la serie**: [Link](https://rpp.pe/tv/streaming/stranger-things-5-ross-duffer-confirma-que-el-episodio-final-sera-uno-de-los-mas-largos-de-la-serie-noticia-1668913)
-
-
-### luca zidane (N/A, 24/12/2025 15:28 Lima)
-
-- **TotalEnergies Africa Cup of Nations 2025 Morocco: Algeria Claim First Finals Win Since 2019**: [Link](https://www.cafonline.com/afcon2025/news/totalenergies-africa-cup-of-nations-2025-morocco-algeria-claim-first-finals-win-since-2019/)
-- **AFCON 2025: Riyad Mahrez brace dispatches 10-man Sudan**: [Link](https://www.olympics.com/en/news/afcon-2025-riyad-mahrez-brace-dispatches-10-man-sudan-burkina-faso-equatorial-guinea)
-- **Zidane steals the show in stands while supporting Algerian son Luca against Sudan**: [Link](https://english.ahram.org.eg/NewsAFCON2025/2025/559305.aspx)
-
-
-### daniel curtis lee (N/A, 24/12/2025 11:32 Lima)
-
-- **Former Nickelodeon Star Tylor Chase Refusing Treatment, Housing From Police**: [Link](https://www.tmz.com/2025/12/22/nickelodeon-star-tylor-chase-refuses-treatment-housing/)
-- **Tylor Chase’s Life Takes A Turn After A Former Costar Reaches Out**: [Link](https://www.yahoo.com/entertainment/celebrity/articles/tylor-chase-life-takes-turn-160010629.html)
-- **Former 'Ned's Declassified' actor Tylor Chase offered help from Shaun Weiss after viral video**: [Link](https://abc7.com/post/former-neds-declassified-actor-tylor-chase-offered-help-shaun-weiss-viral-video/18309390/)
-
-
-### cena navideña (N/A, 24/12/2025 11:32 Lima)
-
-- **Nicolás Maduro, entre gaitas y timbales: cena navideña, baile y un mensaje desafiante a Trump**: [Link](https://www.clarin.com/mundo/nicolas-maduro-gaitas-timbales-cena-navidena-baile-mensaje-desafiante-trump_0_gPR6kIPD6K.html)
-- **Nicolás Maduro encabezó cena navideña en Caracas por “la paz y felicidad” en medio de tensiones con EE.UU. [FOTOS]**: [Link](https://rpp.pe/mundo/venezuela/nicolas-maduro-encabezo-cena-navidena-en-caracas-por-la-paz-y-felicidad-en-medio-de-tensiones-con-eeuu-fotos-noticia-1669090)
-- **Inicia el hallacazo🎄 #venezuela #hallaca #paz #alegría #viralvideo**: [Link](https://www.instagram.com/reel/DSpRUgDEcy_/)
-
-
-### al-nassr - al-zawraa sport club (N/A, 24/12/2025 11:32 Lima)
-
-- **Juega Cristiano Ronaldo EN VIVO y GRATIS Al Nassr vs. Al Zawraa por la AFC Champions League Two: minuto a m...**: [Link](https://bolavip.com/pe/futbol-internacional/juega-cristiano-ronaldo-en-vivo-y-gratis-al-nassr-vs-al-zawraa-por-la-afc-champions-league-two-minuto-a-minuto)
-- **Al-Nassr vs. Al-Zawraa en vivo con Cristiano Ronaldo: horario, canal TV y dónde ver transmisión**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/al-nassr-vs-al-zawraa-en-vivo-hoy-con-cristiano-ronaldo-via-disney-plus-espn-futbol-libre-tv-a-que-hora-juegan-canal-que-transmite-y-donde-ver-por-copa-afc-video-noticia/)
-- **FIFA sancionó a Al-Nassr de Cristiano Ronaldo y genera impacto en Arabia Saudita**: [Link](https://www.eldiez.com.pe/internacional/fifa-sanciono-a-al-nassr-de-cristiano-ronaldo-y-genera-impacto-en-arabia-saudita-noticia/)
-
-
-### algeria vs (N/A, 24/12/2025 11:32 Lima)
-
-- **How and Where to Watch Algeria vs. Sudan at AFCON 2025 on beIN SPORTS**: [Link](https://www.beinsports.com/en-us/soccer/africa-cup-of-nations/articles/how-and-where-to-watch-algeria-vs-sudan-at-afcon-2025-on-bein-sports-2025-12-23)
-- **Algeria and Sudan to meet for the first time at TotalEnergies CAF AFCON finals on Wednesday**: [Link](https://www.cafonline.com/afcon2025/news/algeria-and-sudan-to-meet-for-the-first-time-at-totalenergies-caf-afcon-finals-on-wednesday/)
-- **Morocco Africa Cup of Nations Soccer**: [Link](https://www.wvnews.com/sports/pro/morocco-africa-cup-of-nations-soccer/image_0683473f-2d92-58d4-90ae-f43163440c71.html)
-
-
-### sebastian hertner (N/A, 24/12/2025 11:32 Lima)
-
-- **Luto en vísperas de Navidad: futbolista alemán Sebastian Hertner murió tras caer 70 metros de un teleférico**: [Link](https://rpp.pe/futbol/futbol-mundial/sebastian-hertner-futbolista-aleman-murio-a-los-34-anos-tras-caer-70-metros-de-un-teleferico-en-montenegro-noticia-1669097)
-- **Futbolista alemán Sebastian Hertner murió en sus vacaciones: Los detalles del accidente que sufrió**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/futbolista-aleman-sebastian-hertner-murio-en-sus-vacaciones-los-detalles-del-accidente-que-sufrio-noticia/)
-- **Alemania: Futbolista Sebastian Hertner muere al caer de una telesilla, a unos 70 metros de altura**: [Link](https://trome.com/deportes/futbol-internacional/alemania-futbolista-sebastian-hertner-muere-al-caer-de-una-telesilla-a-unos-70-metros-de-altura-noticia/)
 
 
