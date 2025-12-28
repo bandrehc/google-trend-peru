@@ -1,3 +1,31 @@
+### sekou gassama futbolista (N/A, 27/12/2025 21:21 Lima)
+
+- **Rugirá en Ate: Universitario anunció fichaje de Seskou Gassama para la temporada 2026**: [Link](https://depor.com/futbol-peruano/descentralizado/seskou-gassama-fichajes-universitario-2026-anuncio-oficial-del-delantero-senegales-para-liga-1-video-noticia/)
+- **Universitario presentó a su nuevo delantero: ‘La Pantera’ Sekou Gassama**: [Link](https://trome.com/deportes/futbol-peruano/universitario-presento-a-su-nuevo-delantero-la-pantera-sekou-gassama-noticia/)
+- **¡Llegó el ‘9’! Sekou Gassama es anunciado como el nuevo fichaje de Universitario de Deportes**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/universitario-sekou-gassama-es-anunciado-como-el-nuevo-fichaje-de-la-u-liga-1-noticia/)
+
+
+### latina tv (N/A, 27/12/2025 21:21 Lima)
+
+- **Hasta que la plata nos separe, Viernes 26 de diciembre – ver capítulo 46 completo**: [Link](https://www.latina.pe/entretenimiento/hasta-que-la-plata-nos-separe-novela/hasta-que-la-plata-nos-separe-viernes-26-de-diciembre-ver-capitulo-46-completo_20251226/)
+- **¿Cuál es tu pedido? Martes 16 de diciembre – PROGRAMA COMPLETO**: [Link](https://www.latina.pe/entretenimiento/cual-es-tu-pedido/programas-completos-cual-es-tu-pedido/cual-es-tu-pedido-martes-16-de-diciembre-programa-completo_20251217/)
+- **Yo Soy – Viernes 26 de Diciembre – PROGRAMA COMPLETO**: [Link](https://www.latina.pe/entretenimiento/yo-soy/programas-completos-yo-soy/yo-soy-viernes-26-de-diciembre-programa-completo_20251226/)
+
+
+### kings - mavericks (N/A, 27/12/2025 21:21 Lima)
+
+- **Russell Westbrook lauds Kings' effort in Sacramento's clutch win over Mavericks**: [Link](https://www.nbcsportsbayarea.com/video/nba/sacramento-kings/russell-westbrook-interview-watch-video/1902549/)
+- **Player Grades: Recapping Mavericks vs. Kings**: [Link](https://www.mavsmoneyball.com/dallas-mavericks-game-coverage/54139/mavs-kings-cooper-flagg-keon-clark-mavs-lose-113-107)
+- **Cooper Flagg's Determination Praised by NBA Fans As Mavs Lose to Westbrook, Kings**: [Link](https://bleacherreport.com/articles/25340182-cooper-flaggs-determination-praised-nba-fans-mavs-lose-westbrook-kings)
+
+
+### alianza vs san martin voley (N/A, 27/12/2025 21:21 Lima)
+
+- **Tabla de posiciones de la Liga Peruana de Vóley 2025/26: así van los equipos durante la fecha 10 de la primera fase**: [Link](https://www.infobae.com/peru/deportes/2025/12/27/tabla-de-posiciones-liga-peruana-de-voley-2025-2026-en-vivo-fecha-10-alianza-lima-universitario-san-martin-regatas-resultados/)
+- **Alianza Lima vs. San Martín: ¿a qué hora juegan y dónde ver EN VIVO hoy por la Liga Peruana de Vóley?**: [Link](https://rpp.pe/voley/mas-voley/alianza-lima-vs-san-martin-en-vivo-a-que-hora-juegan-y-donde-ver-fecha-10-liga-peruana-de-voley-2025-via-latina-voley-en-vivo-noticia-1669215)
+- **Universitario contra Regatas: día, hora y canal del partido por la fecha 10 en la Liga Peruana de Vóley**: [Link](https://larepublica.pe/deportes/2025/12/26/universitario-contra-regatas-dia-hora-y-canal-del-partido-por-la-fecha-10-en-la-liga-peruana-de-voley-1727076)
+
+
 ### nigeria fc (N/A, 27/12/2025 15:27 Lima)
 
 - **Matawalle FC Clinches Mailafia Peace, Unity Cup Trophy**: [Link](https://von.gov.ng/matawalle-fc-clinches-mailafia-peace-unity-cup-trophy/)
@@ -1004,33 +1032,5 @@ Sin noticias relacionadas disponibles.
 - **Luto en vísperas de Navidad: futbolista alemán Sebastian Hertner murió tras caer 70 metros de un teleférico**: [Link](https://rpp.pe/futbol/futbol-mundial/sebastian-hertner-futbolista-aleman-murio-a-los-34-anos-tras-caer-70-metros-de-un-teleferico-en-montenegro-noticia-1669097)
 - **Futbolista alemán Sebastian Hertner murió en sus vacaciones: Los detalles del accidente que sufrió**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/futbolista-aleman-sebastian-hertner-murio-en-sus-vacaciones-los-detalles-del-accidente-que-sufrio-noticia/)
 - **Alemania: Futbolista Sebastian Hertner muere al caer de una telesilla, a unos 70 metros de altura**: [Link](https://trome.com/deportes/futbol-internacional/alemania-futbolista-sebastian-hertner-muere-al-caer-de-una-telesilla-a-unos-70-metros-de-altura-noticia/)
-
-
-### burkina faso (N/A, 24/12/2025 11:32 Lima)
-
-- **CAN 2025 : en supériorité numérique, le Burkina Faso renverse tout dans le temps additionnel contre la Guinée équatoriale**: [Link](https://www.lequipe.fr/Football/Actualites/Can-2025-en-superiorite-numerique-le-burkina-faso-renverse-tout-dans-le-temps-additionnel-contre-la-guinee-equatoriale/1629343)
-- **CAN 2025 – Guinée Équatoriale : Basilio Ndong écope du premier carton rouge du tournoi**: [Link](https://africafootunited.com/can-2025-guinee-equatoriale-basilio-ndong-ecope-du-premier-carton-rouge-du-tournoi/)
-- **Afrique: Burkina / Guinée Équatoriale - Gagner pour mieux entrer dans la danse**: [Link](https://fr.allafrica.com/stories/202512240139.html)
-
-
-### villancicos navideños (N/A, 24/12/2025 11:32 Lima)
-
-- **Navidad 2025: las 10 canciones imprescindibles para llenar de alegría este 25 de diciembre**: [Link](https://elcomercio.pe/respuestas/cual/navidad-2025-las-10-canciones-imprescindibles-para-llenar-de-alegria-este-25-de-diciembre-tdpe-noticia/)
-- **Los clásicos navideños que no pueden faltar en tu playlist de Nochebuena, según la IA**: [Link](https://www.canal26.com/tecnologia/2025/12/24/los-clasicos-navidenos-que-no-pueden-faltar-en-tu-playlist-de-nochebuena-segun-la-ia/)
-- **¿La música navideña te vuelve loco? Por qué las listas de reproducción navideñas están en todas partes**: [Link](https://noticiashuesca.com/economia/la-musica-navidena-te-vuelve-loco-por-que-las-listas-de-reproduccion-navidenas-estan-en-todas-partes/181210/)
-
-
-### santa tracker (N/A, 24/12/2025 11:32 Lima)
-
-- **Where is Santa right now? NORAD tracker maps his 2025 Christmas flight**: [Link](https://www.cbsnews.com/news/santa-tracker-2025/)
-- **Santa tracker 2025: Follow his Christmas Eve trip using NORAD, Google**: [Link](https://www.usatoday.com/story/news/nation/2025/12/24/santa-tracker-2025-norad-google/87901243007/)
-- **December 23, 2025**: [Link](https://heathercoxrichardson.substack.com/p/december-23-2025)
-
-
-### feriados diciembre 2025 (N/A, 24/12/2025 11:32 Lima)
-
-- **Es oficial: ¿Hoy 24 de diciembre es feriado en Perú? Esto marca la norma vigente**: [Link](https://www.infobae.com/peru/2025/12/23/manana-24-de-diciembre-es-feriado-en-peru-conoce-lo-que-dice-la-norma-vigente/)
-- **¿Feriado largo por Navidad y Año Nuevo?: Esto dice el calendario oficial**: [Link](https://latinanoticias.pe/tendencias/habra-feriado-largo-por-navidad-y-ano-nuevo-esto-dice-el-calendario-y-la-ley_20251219/)
-- **Navidad: el viernes 26 de diciembre será día no laborable ¿para quiénes aplica?**: [Link](https://andina.pe/agencia/noticia-navidad-viernes-26-diciembre-sera-dia-no-laborable-para-quienes-aplica-1055080.aspx)
 
 
