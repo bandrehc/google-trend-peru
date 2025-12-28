@@ -1,3 +1,73 @@
+### gta 6 (N/A, 28/12/2025 15:28 Lima)
+
+- **Ex-Rockstar developer has a GTA 6 warning: ‘If the game is delayed again…'**: [Link](https://timesofindia.indiatimes.com/technology/gaming/ex-rockstar-developer-has-a-gta-6-warning-if-the-game-is-delayed-again/articleshow/126189019.cms)
+- **GTA 6 characters, maps, gameplay, price in India, release date, and more: What can we get to see in 2026**: [Link](https://www.msn.com/en-in/money/technology/gta-6-characters-maps-gameplay-price-in-india-release-date-and-more-what-can-we-get-to-see-in-2026/ar-AA1T6ssI)
+- **A Look at the 2025 Gaming World That Almost Existed If GTA 6 Hadn’t Been Delayed Again**: [Link](https://beebom.com/a-look-at-the-2025-gaming-world-that-almost-existed-if-gta-6-hadnt-been-delayed-again/)
+
+
+### mirtha vásquez (N/A, 28/12/2025 15:28 Lima)
+
+- **Fiscal de la Nación ‘cuadra’ a Mirtha ‘Sarratea’ Vásquez**: [Link](https://www.expreso.com.pe/?p=1250585)
+- **Comisión Permanente debatirá el lunes 29 informe final de denuncia constitucional y dictámenes de preponderancia nacional**: [Link](https://comunicaciones.congreso.gob.pe/noticias/comision-permanente-debatira-el-lunes-29-informe-final-de-denuncia-constitucional-y-dictamenes-de-preponderancia-nacional/)
+- **Comisión Permanente sesiona este lunes 29**: [Link](https://caretas.pe/politica/comision-permanente-sesiona-este-lunes-29/)
+
+
+### inter vs (N/A, 28/12/2025 15:28 Lima)
+
+- **Serie A: Inter, con la misión de ganar para seguir en la cima**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-inter-con-la-mision-de-ganar-para-seguir-en-la-cima-noticia-1669407)
+- **🔴#ENVIVO | Sigue las incidencias del partido entre Atalanta e Inter de Milán**: [Link](https://ovacion.pe/noticias/futbol-internacional/envivo-sigue-las-incidencias-del-partido-entre-atalanta-e-inter-milan)
+- **Pronósticos Atalanta vs Inter: apuestas apuntan a más de 1.5 goles de los visitantes**: [Link](https://depor.com/apuestas-deportivas/atalanta-vs-inter-apuestas-pronosticos-apuestas-cuotas-28-12-2025-2/)
+
+
+### juan pablo freytes (N/A, 28/12/2025 15:28 Lima)
+
+- **Ingreso para Alianza Lima: Juan Pablo Freytes en agenda de Bologna y se aleja de Fluminense**: [Link](https://depor.com/futbol-peruano/descentralizado/juan-pablo-freytes-posible-fichaje-de-bologna-y-beneficio-economico-para-alianza-lima-fluminense-noticia/)
+- **Juan Pablo Freytes en la mira de Bolonia de Italia y Alianza Lima podría recibir millonaria suma**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/alianza-lima-juan-pablo-freytes-en-la-mira-de-bolonia-de-italia-y-alianza-podria-recibir-millonaria-suma-noticia/)
+- **Alianza Lima recibiría exorbitante monto por posible venta de 8 millones de Juan Pablo Freytes a la Serie A de Italia**: [Link](https://larepublica.pe/deportes/2025/12/28/alianza-lima-recibiria-exorbitante-monto-por-posible-venta-de-8-millones-de-juan-pablo-freytes-a-la-serie-a-de-italia-1490188)
+
+
+### bolonia vs. inter (N/A, 28/12/2025 15:28 Lima)
+
+- **Revealed: The 3 Key Factors Inter Milan Must Improve Ahead Of Decisive Tests In January**: [Link](https://sempreinter.com/2025/12/28/inter-must-improve-ahead-napoli-bologna/)
+- **Inter's calendar: upcoming fixtures**: [Link](https://onefootball.com/en/news/inters-calendar-upcoming-fixtures-42126118)
+- **Inter need more from their midfielders. Barella and Mkhitaryan are missing goals.**: [Link](https://sport.quotidiano.net/en/calcio/inter/inter-serve-di-piu-dai-14570aa3)
+
+
+### atalanta - inter (N/A, 28/12/2025 15:28 Lima)
+
+- **Serie A: in campo Atalanta-Inter 0-0 DIRETTA**: [Link](https://www.ansa.it/sito/notizie/sport/calcio/2025/12/28/serie-a-in-campo-atalanta-inter-0-0-diretta_8142828d-e124-41d8-bb11-fa6dd7eaa5df.html)
+- **Atalanta vs. Inter, live from Bergamo**: [Link](https://www.inter.it/en/news/atalanta-inter-serie-a-2025-26)
+- **Atalanta-Inter, la moviola LIVE: Barella fa ammonire Kolasinac con un numero**: [Link](https://www.calciomercato.com/liste/atalanta-inter-la-moviola-live/blta1b5ba90b9c9ee3e)
+
+
+### real madrid - unicaja (N/A, 28/12/2025 15:28 Lima)
+
+- **Apuestas y pronósticos Real Madrid vs Unicaja**: [Link](https://www.marca.com/apuestas-deportivas/predicciones/2025/12/27/apuestas-pronosticos-real-madrid-vs-unicaja.html)
+- **Remontada y 10ª victoria seguida en Liga**: [Link](https://www.realmadrid.com/es-ES/noticias/baloncesto/primer-equipo/cronicas/cronica-baloncesto-28-12-2025)
+- **Usman Garuba alza la voz y responde a Scariolo sobre la exigencia de jugar en el Real Madrid: "Habrá días buenos y otros malos, pero tenemos que estar listos siempre**: [Link](https://www.estadiodeportivo.com/baloncesto/acb/usman-garuba-alza-voz-responde-scariolo-sobre-exigencia-jugar-real-madrid-habra-dias-buenos-otros-malos-pero-tenemos-que-estar-listos-siempre-20251227-524978.html)
+
+
+### benfica vs (N/A, 28/12/2025 15:28 Lima)
+
+- **How to watch Sporting Braga vs Benfica in the USA: Live Stream and TV for 2025/2026 Primeira Liga**: [Link](https://worldsoccertalk.com/watch-on-us-tv/how-to-watch-sporting-braga-vs-benfica-in-the-usa-live-stream-and-tv-for-2025-2026-primeira-liga/)
+- **Benfica slip at Braga, title hopes fade in Portugal 🔭**: [Link](https://onefootball.com/en/news/benfica-slip-at-braga-title-hopes-fade-in-portugal-42154409)
+- **Jose Mourinho's Benfica is heavily wounded! They have fallen far from the championship even before entering 2026.**: [Link](https://en.haberler.com/jose-mourinho-s-benfica-is-heavily-wounded-they-19401520/)
+
+
+### aryna sabalenka vs nick kyrgios (N/A, 28/12/2025 15:28 Lima)
+
+- **Sabalenka vs Kyrgios LIVE: Battle of the Sexes scores, results & updates**: [Link](https://www.bbc.com/sport/tennis/live/cre3xyjnr1zt)
+- **Former ATP star claims Aryna Sabalenka would not beat a single player inside the ATP top 500**: [Link](https://tennishead.net/former-atp-star-claims-aryna-sabalenka-would-not-beat-a-single-player-inside-the-atp-top-500/)
+- **Indian Startup, Kpro.Ai, To Deploy Performance Analytics At Kyrgios-Sabalenka 'Battle Of Sexes' Match In Dubai**: [Link](https://menafn.com/1110531095/Indian-Startup-KproAi-To-Deploy-Performance-Analytics-At-Kyrgios-Sabalenka-Battle-Of-Sexes-Match-In-Dubai)
+
+
+### algeria vs (N/A, 28/12/2025 15:28 Lima)
+
+- **Algeria vs Burkina Faso: CAF Africa Cup of Nations stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c0l9rz88p57t)
+- **Algeria books place in Africa Cup knockout stage as France great Zidane cheers team on**: [Link](https://www.newsday.com/sports/soccer/ivory-coast-cameroon-algeria-africa-cup-v19644)
+- **MATCH STATS: Algeria vs Burkina Faso – TotalEnergies CAF Africa Cup of Nations Morocco 2025 Group E**: [Link](https://www.cafonline.com/afcon2025/news/match-stats-algeria-vs-burkina-faso-totalenergies-caf-africa-cup-of-nations-morocco-2025-group-e/)
+
+
 ### bolonia - sassuolo (N/A, 28/12/2025 11:31 Lima)
 
 - **Serie A: Sassuolo visita a Bologna por la fecha 17**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-sassuolo-visita-a-bologna-por-la-fecha-17-noticia-1669391)
@@ -964,73 +1034,5 @@ Sin noticias relacionadas disponibles.
 - **En la ONU, Rusia y China critican conducta de EEUU hacia Venezuela | nnav | video | agafp | VIDEOS**: [Link](https://elcomercio.pe/videos/global/en-la-onu-rusia-y-china-critican-conducta-de-eeuu-hacia-venezuela-nnav-video-agafp-noticia/)
 - **La Tinka del 24 de diciembre de 2025: descubre los ganadores del último sorteo**: [Link](https://www.infobae.com/peru/2025/12/25/la-tinka-del-24-de-diciembre-de-2025-descubre-los-ganadores-del-ultimo-sorteo/)
 - **La Tinka EN VIVO HOY, 24 de diciembre: últimos números ganadores y resultados del Pozo Millonario**: [Link](https://libero.pe/ocio/2025/12/24/tinka-hoy-24-de-diciembre-ultimos-numeros-ganadores-resultados-del-pozo-millonario-2210040)
-
-
-### playstation 5 (N/A, 25/12/2025 03:34 Lima)
-
-Sin noticias relacionadas disponibles.
-
-
-### iphone 13 (N/A, 25/12/2025 03:34 Lima)
-
-- **How Shih-Ching Tsou Shot 'Left-Handed Girl' on an iPhone 13 with Beastgrip Accessories**: [Link](https://nofilmschool.com/how-shih-ching-tsou-shot-left-handed-girl-on-an-iphone-13-with-beastgrip-accessories)
-- **'Left-Handed Girl' shortlisted for international film Oscar**: [Link](https://focustaiwan.tw/culture/202512170009)
-- **‘Left-Handed Girl’ Director on the Superstition at the Center of Her Oscar-Shortlisted Drama**: [Link](https://www.thewrap.com/left-handed-girl-director-oscars-interview/)
-
-
-### ps5 (N/A, 25/12/2025 03:34 Lima)
-
-- **Your Last Chance to Save on PS5 Pro Before Christmas Is Here**: [Link](https://www.ign.com/articles/ps5-pro-last-minute-christmas-deal)
-- **Sony’s souped-up PlayStation 5 Pro is $100 off for the rest of today**: [Link](https://www.theverge.com/gadgets/684281/sony-playstation-5-ps5-pro-christmas-deal-sale-2025)
-- **Today's the last day to get $100 off the PS5 and PS5 Pro**: [Link](https://www.engadget.com/gaming/playstation/todays-the-last-day-to-get-100-off-the-ps5-and-ps5-pro-181454333.html)
-
-
-### iphone (N/A, 25/12/2025 03:34 Lima)
-
-- **Samsung expected to place kits soon at Austin for iPhone CIS**: [Link](https://www.thelec.net/news/articleView.html?idxno=5530)
-- **Advanced iPhone 18 Camera Sensor to Be Made in Texas**: [Link](https://www.macrumors.com/2025/12/24/iphone-18-camera-sensor-to-be-made-in-texas/)
-- **Samsung getting ready to make camera sensors for iPhones**: [Link](https://www.sammobile.com/news/samsung-getting-ready-make-camera-sensors-iphones/)
-
-
-### ppk (N/A, 25/12/2025 03:34 Lima)
-
-- **PJ evalúa pedido de PPK para archivar investigación por aportes de campaña**: [Link](https://caretas.pe/politica/pj-evalua-pedido-de-ppk-para-archivar-investigacion-por-aportes-de-campana/)
-- **PPK pide al Poder Judicial archivar investigación por supuestos aportes ilícitos de Odebrecht**: [Link](https://rpp.pe/politica/judiciales/ppk-pide-al-poder-judicial-archivar-investigacion-por-supuestos-aportes-ilicitos-de-odebrecht-noticia-1669094)
-- **PPK pide al Poder Judicial archivar investigación por aportes de campaña del 2011**: [Link](https://diariocorreo.pe/politica/ppk-solicita-archivar-investigacion-por-aportes-a-campana-presidencial-del-2011-noticia/)
-
-
-### sorteo online (N/A, 25/12/2025 03:34 Lima)
-
-- **Lotería de Navidad 2025, en directo: El 79.432, el Gordo**: [Link](https://www.msn.com/es-pe/noticias/other/loter%C3%ADa-de-navidad-2025-en-directo-79-432-el-n%C3%BAmero-premiado-con-el-gordo/ar-AA1SOl3G?ocid=finance-verthp-feeds)
-- **Loterías paga más de 710 millones de euros en premios del Sorteo de Navidad 2025 hasta hoy 24 de diciembre**: [Link](https://www.infobae.com/america/agencias/2025/12/24/loterias-paga-mas-de-710-millones-de-euros-en-premios-del-sorteo-de-navidad-2025-hasta-hoy-24-de-diciembre/)
-- **🎄 La Grand Place de Bruselas se ilumina para dar la bienvenida a la Navidad 🎥 Agencia EFE**: [Link](https://www.facebook.com/story.php?story_fbid=838886602453209&id=100089956306194)
-
-
-### hora (N/A, 24/12/2025 23:41 Lima)
-
-- **Navidad en Perú EN VIVO: a qué hora llega Papa Noel, tráfico en Lima, cena navideña y últimas noticias de hoy 24 de diciembre**: [Link](https://www.infobae.com/peru/2025/12/24/navidad-en-peru-en-vivo-a-que-hora-llega-papa-noel-compras-de-ultima-hora-trafico-cena-navidena-y-ultimas-noticias-de-hoy-24-de-diciembre/)
-- **Tráfico vehicular se desborda por Navidad: panorama desde tres puntos de Lima | Tenemos Que Hablar**: [Link](https://elcomercio.pe/lima/sucesos/trafico-vehicular-se-desborda-por-navidad-panorama-desde-tres-puntos-de-lima-tenemos-que-hablar-noticia/)
-- **Tráfico en Lima hoy EN VIVO: reporte de accidentes, calles congestionadas y estado del tránsito vehicular a pocas horas de Navidad**: [Link](https://larepublica.pe/sociedad/2025/12/23/trafico-en-lima-en-vivo-hoy-calles-cerradas-rutas-alternas-y-estado-del-transito-vehicular-en-tiempo-real-a-pocos-dias-de-navidad-1769574)
-
-
-### radio (N/A, 24/12/2025 23:41 Lima)
-
-- **Earth’s radio bubble marks how far our signals have traveled**: [Link](https://earthsky.org/space/earths-radio-bubble-extent-of-radio-signals/)
-- **Old FM Radio Upcycled Into Classy Bluetooth Speaker**: [Link](https://hackaday.com/2025/12/23/old-fm-radio-upcycled-into-classy-bluetooth-speaker/)
-- **Transforming a Forgotten 1980s FM Radio Into a Modern Bluetooth Speaker**: [Link](https://www.techeblog.com/fm-radio-turned-bluetooth-speaker-mod/)
-
-
-### pluto tv (N/A, 24/12/2025 23:41 Lima)
-
-- **Things To Do in Bloomington, IN**: [Link](https://www.heraldtimesonline.com/things-to-do/events/?_evDiscoveryPath=/event%2F212856x-the-shawshank-redemption)
-- **“Hope Is a Dangerous Thing”: The Soul of 'The Shawshank Redemption' in American Cinema**: [Link](https://nofilmschool.com/shawshank-redemption-hope-is-a-dangerous-thing)
-- **Jude Law’s Iconic Roles Resurface: ‘Cold Mountain’ Streams Free, ‘Eden’ Debuts on Netflix, and ‘The Holiday’ Cast Grows Up**: [Link](https://azat.tv/en/jude-law-cold-mountain-eden-holiday-streaming-2025/)
-
-
-### jose feliciano (N/A, 24/12/2025 23:41 Lima)
-
-- **La historia detrás de "Feliz Navidad" de José Feliciano, la canción festiva más exitosa escrita por un artista latino**: [Link](https://www.bbc.com/mundo/articles/cz94jpkpzk4o)
-- **El capítulo final, en unos pocos días 👉🏼 https://bbc.in/49aNpCE**: [Link](https://www.facebook.com/BBCnewsMundo/photos/el-cap%C3%ADtulo-final-en-unos-pocos-d%C3%ADas-httpsbbcin49anpce/1403978361090480/)
-- **¿Lo sabías? La historia de 'Feliz Navidad', canción que José Feliciano escribió en 10 minutos y fue rechazada**: [Link](https://www.milenio.com/espectaculos/musica/jose-feliciano-feliz-navidad-historia-rechazo-10-minutos)
 
 
