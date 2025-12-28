@@ -1,3 +1,71 @@
+### bolonia - sassuolo (N/A, 28/12/2025 11:31 Lima)
+
+- **Serie A: Sassuolo visita a Bologna por la fecha 17**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-sassuolo-visita-a-bologna-por-la-fecha-17-noticia-1669391)
+- **Olimpia Milano: January 2026 is crucial for the EuroLeague season.**: [Link](https://www.backdoorpodcast.com/en/olimia-milano-gennaio-2026-eurolega/)
+- **Tickets: Virtus Bologna vs Milano EuroLeague (2026)**: [Link](https://karlobag.eu/en/tickets/basketball/tickets-for-virtus-bologna-vs-milano-euroleague-round-19-buy-basketball-tickets-for-the-big-derby-in-bologna-5qt1d)
+
+
+### tottenham (N/A, 28/12/2025 11:31 Lima)
+
+- **Lerma cerrará el Boxing Day de Premier con Palace vs Tottenham**: [Link](https://www.espn.com.pe/futbol/inglaterra/nota/_/id/16121460/lerma-cerrara-el-boxing-day-de-premier-con-palace-vs-tottenham)
+- **Premier League: Tottenham visita a Crystal Palace por la fecha 18**: [Link](https://rpp.pe/futbol/ligas-internacionales/premier-league-tottenham-visita-a-crystal-palace-por-la-fecha-18-noticia-1669387)
+- **Pronóstico Crystal Palace - Tottenham. Premier League | 28/12/2025**: [Link](https://gainblers.com/pe/pronosticos/futbol/inglaterra/premier-league/pronostico-crystal-palace-tottenham-28-12-2025/)
+
+
+### bologna (N/A, 28/12/2025 11:31 Lima)
+
+- **Bologna-Sassuolo, tornano Freuler e Casale, out Cambiaghi: le scelte di Italiano**: [Link](https://onefootball.com/de/news/bologna-sassuolo-tornano-freuler-e-casale-out-cambiaghi-le-scelte-di-italiano-42152241)
+- **Il piano di Grosso al Dall’Ara: "Faremo la nostra gara"**: [Link](https://www.ilrestodelcarlino.it/modena/sport/il-piano-di-grosso-al-eeb70abc)
+- **La prevendita si è accesa. Il colpo d’occhio: il Dall’Ara pronto a illuminarsi per 28.000 tifosi**: [Link](https://sport.quotidiano.net/calcio/bologna/la-prevendita-si-e-accesa-a37ac000)
+
+
+### calendario chino (N/A, 28/12/2025 11:31 Lima)
+
+- **2026: ¿el año del fuego?, por Ramiro Escobar**: [Link](https://larepublica.pe/opinion/2025/12/28/2026-el-ano-del-fuego-por-ramiro-escobar-hnews-1538516)
+- **Qué animal eres en el Horóscopo chino 2026 y consulta las predicciones en el Año del Caballo de Fuego**: [Link](https://elcomercio.pe/respuestas/que/horoscopo-chino-2026-conoce-cual-es-tu-animal-y-tu-prediccion-en-el-ano-del-caballo-de-fuego-tdpe-noticia/)
+- **Los 5 rituales que debés hacer para empezar el 2026 de buena manera, según el horóscopo chino**: [Link](https://tn.com.ar/sociedad/2025/12/28/los-5-rituales-que-debes-hacer-para-empezar-el-2026-de-buena-manera-segun-el-horoscopo-chino/)
+
+
+### crystal palace - tottenham (N/A, 28/12/2025 11:31 Lima)
+
+- **Crystal Palace v Tottenham: Premier League – live**: [Link](https://www.theguardian.com/football/live/2025/dec/28/crystal-palace-v-tottenham-premier-league-live)
+- **Crystal Palace vs Spurs betting tips & predictions - Mateta scores at home again**: [Link](https://talksport.com/betting/3848656/crystal-palace-vs-spurs-betting-tips-predictions-mateta-score/)
+- **Dominic Solanke injury latest shared as ‘unlucky’ Tottenham developments detailed**: [Link](https://www.tottenhamhotspurnews.com/exclusives/dominic-solanke-injury-latest-shared-as-unlucky-tottenham-developments-detailed/)
+
+
+### guinea ecuatorial vs (N/A, 28/12/2025 11:31 Lima)
+
+Sin noticias relacionadas disponibles.
+
+
+### cremonese vs napoli pronostico (N/A, 28/12/2025 11:31 Lima)
+
+- **Napoli vista a Cremonese necesitado de sumar para pelear por lo más alto de la Serie A**: [Link](https://www.espn.com.pe/futbol/italia/nota/_/id/16116809/cremonese-vs-napoli-fecha-17-serie-a-equipo-fecha-hora-y-tv-en-vivo)
+- **Nápoli derrotó a Cremonese y no le pierde pisada a AC Milán**: [Link](https://ovacion.pe/noticias/futbol-internacional/napoli-derroto-cremonese-no-le-pierde-pisada-ac-milan)
+- **Serie A: Napoli busca subir a la cima del torneo**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-napoli-busca-subir-a-la-cima-del-torneo-noticia-1669383)
+
+
+### braga vs benfica (N/A, 28/12/2025 11:31 Lima)
+
+- **How to watch Sporting Braga vs Benfica in the USA: Live Stream and TV for 2025/2026 Primeira Liga**: [Link](https://worldsoccertalk.com/watch-on-us-tv/how-to-watch-sporting-braga-vs-benfica-in-the-usa-live-stream-and-tv-for-2025-2026-primeira-liga/)
+- **Braga vs Benfica LIVE Score Updates in Portuguese League Match**: [Link](https://www.vavel.com/en-us/soccer/2025/12/28/1245674-braga-vs-benfica-live-score-liga-portugal.html)
+- **Preview: Braga vs Benfica - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/braga/preview/braga-vs-benfica-prediction-team-news-lineups_588531.html)
+
+
+### napoli vs (N/A, 28/12/2025 11:31 Lima)
+
+- **Cremonese vs Napoli: Serie A stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c208l34470gt)
+- **Napoli's Historic Double Victory**: [Link](https://www.ilmattino.it/en/napoli_s_historic_double_victory-9261819.html)
+- **Cremonese v Napoli match preview**: [Link](https://sscnapoli.it/en/match-preview-focus-di-cremonese-napoli/)
+
+
+### sunderland afc - leeds (N/A, 28/12/2025 11:31 Lima)
+
+- **Premier League: Calvert-Lewin earns Leeds draw at Sunderland - reaction**: [Link](https://www.bbc.com/sport/football/live/c87lvdggp8nt)
+- **Sunderland 1 Leeds 1: A sublime team goal, Rodon injury and dominant second half**: [Link](https://www.nytimes.com/athletic/6919841/2025/12/28/sunderland-leeds-calvert-lewin-rodon-result-analysis/)
+- **Simon Adingra fires Sunderland in front of Leeds**: [Link](https://www.nbcsports.com/watch/watch/premier-league/simon-adingra-fires-sunderland-in-front-of-leeds)
+
+
 ### brigitte bardot (N/A, 28/12/2025 07:51 Lima)
 
 - **La piste de Livigno a fait parler autant que le classement ce samedi. Neige trop sèche, manque de glace, sécurité en question: les cadors, de Marco Odermatt à Franjo von Allmen, ont livré des avis tranchés sur la qualité de la préparation de la piste italienne.**: [Link](https://www.facebook.com/blickfr/posts/la-piste-de-livigno-a-fait-parler-autant-que-le-classement-ce-samedi-neige-trop-/1242007531317837/)
@@ -964,75 +1032,5 @@ Sin noticias relacionadas disponibles.
 - **La historia detrás de "Feliz Navidad" de José Feliciano, la canción festiva más exitosa escrita por un artista latino**: [Link](https://www.bbc.com/mundo/articles/cz94jpkpzk4o)
 - **El capítulo final, en unos pocos días 👉🏼 https://bbc.in/49aNpCE**: [Link](https://www.facebook.com/BBCnewsMundo/photos/el-cap%C3%ADtulo-final-en-unos-pocos-d%C3%ADas-httpsbbcin49anpce/1403978361090480/)
 - **¿Lo sabías? La historia de 'Feliz Navidad', canción que José Feliciano escribió en 10 minutos y fue rechazada**: [Link](https://www.milenio.com/espectaculos/musica/jose-feliciano-feliz-navidad-historia-rechazo-10-minutos)
-
-
-### hora mexico (N/A, 24/12/2025 23:41 Lima)
-
-- **Naoya Inoue, el japonés de los puños de oro, no se pone límites**: [Link](https://www.marca.com/boxeo/2025/12/24/naoya-inoue-japones-punos-oro-pone-limites.html)
-- **¿Quién es Alan David Picasso, el boxeador mexicano y estudiante de neurociencia que enfrentará al japonés Naoya Inoue por el campeonato indiscutido de peso supergallo?**: [Link](https://www.elimparcial.com/deporte/2025/12/24/quien-es-alan-david-picasso-el-boxeador-mexicano-y-estudiante-de-neurociencia-que-enfrentara-al-japones-naoya-inoue-por-el-campeonato-indiscutido-de-peso-supergallo/)
-- **Sostendrán duros retos**: [Link](https://www.pressreader.com/mexico/esto/20251223/281771340542426)
-
-
-### candidatos presidenciales 2026 (N/A, 24/12/2025 23:41 Lima)
-
-- **JNE informa que 36 fórmulas presidenciales y más de 1.700 listas de candidatos fueron inscritas para las elecciones 2026**: [Link](https://www.infobae.com/peru/2025/12/25/jne-informa-que-36-formulas-presidenciales-y-mas-de-1700-listas-de-candidatos-fueron-inscritas-para-las-elecciones-2026/)
-- **Elecciones 2026: 33 partidos solicitaron inscribir sus fórmulas presidenciales antes del cierre**: [Link](https://canaln.pe/actualidad/jne-33-partidos-inscribieron-formulas-presidenciales-ante-plazo-n489144)
-- **Elecciones 2026: quiénes son los candidatos invitados al Senado y por qué agrupación postularán**: [Link](https://rpp.pe/peru/actualidad/elecciones-2026-quienes-son-los-candidatos-invitados-al-senado-y-por-que-agrupacion-postularan-noticia-1669011)
-
-
-### fuegos artificiales (N/A, 24/12/2025 23:41 Lima)
-
-- **Fuegos artificiales y mascotas: el peligro real que pocos advierten | Actualidad Parlamentaria**: [Link](https://comunicaciones.congreso.gob.pe/tv-congreso/fuegos-artificiales-y-mascotas-el-peligro-real-que-pocos-advierten-actualidad-parlamentaria/)
-- **Navidad y Año Nuevo: ¿cómo proteger a tu mascota de los peligros de las fiestas de fin de año?**: [Link](https://elcomercio.pe/somos/estilo/navidad-y-ano-nuevo-como-proteger-a-tu-mascota-de-los-peligros-para-que-tambien-disfrute-de-las-fiestas-noticia/)
-- **LA PIROTECNIA NO ES UNA FIESTA PARA TODOS**: [Link](https://rionegroahora.com/2025/12/24/la-pirotecnia-no-es-una-fiesta-para-todos/)
-
-
-### papa noel en vivo (N/A, 24/12/2025 23:41 Lima)
-
-- **Santa Tracker de Google, en vivo: el recorrido por el mundo de Papá Noel en Navidad, minuto a minuto**: [Link](https://www.infobae.com/tecno/2025/12/24/google-santa-tracker-en-vivo-2025-sigue-su-recorrido-por-el-mundo-durante-navidad/)
-- **Navidad 2025 EN VIVO: Por dónde está Papá Noel en este momento; sigue la ruta de Santa Claus en directo**: [Link](https://elcomercio.pe/mundo/actualidad/navidad-2025-en-vivo-donde-esta-papa-noel-en-este-momento-sigue-la-ruta-de-santa-claus-en-directo-norad-tracks-santa-recorrido-felices-fiestas-christmas-feliz-navidad-noche-buena-estados-unidos-nueva-zelanda-noticia/)
-- **¡Verifica tus conexiones de luz! Recomiendan tomar previsiones para evitar percances en casa por temporada vacacional https://mile.io/49aXXBU**: [Link](https://www.facebook.com/MilenioDiario/posts/verifica-tus-conexiones-de-luz-recomiendan-tomar-previsiones-para-evitar-percanc/1341797701311031/)
-
-
-### mensaje por navidad (N/A, 24/12/2025 23:41 Lima)
-
-- **Navidad 2025: El Gobierno de José Jerí pide unidad a los peruanos en mensaje por Nochebuena**: [Link](https://www.infobae.com/peru/2025/12/25/navidad-2025-el-gobierno-de-jose-jeri-pide-unidad-a-los-peruanos-en-mensaje-por-nochebuena/)
-- **Congreso: Rospigliosi saluda a los peruanos por Navidad y reafirma compromiso con el país**: [Link](https://andina.pe/agencia/noticia-congreso-rospigliosi-saluda-a-los-peruanos-navidad-y-reafirma-compromiso-con-pais-1056877.aspx)
-- **Presidencia de la República envía saludo por Fiestas Navideñas**: [Link](https://andina.pe/agencia/noticia-presidencia-de-republica-envia-saludo-fiestas-navidenas-1056922.aspx)
-
-
-### plaza vea horario (N/A, 24/12/2025 21:04 Lima)
-
-- **Navidad: los horarios de los supermercados para este 24 y 25 de diciembre**: [Link](https://gestion.pe/peru/navidad-los-horarios-de-los-supermercados-para-este-24-y-25-de-diciembre-noticia/)
-- **¿Centros comerciales tendrán horario extendido por Navidad? Esta será su hora de cierre hoy 24 de diciembre**: [Link](https://www.infobae.com/peru/2025/12/23/centros-comerciales-tendran-horario-extendido-por-navidad-esta-sera-su-hora-de-cierre-manana-24-de-diciembre/)
-- **Horario de atención durante el miércoles 24 y jueves 25 de diciembre en supermercados y centros comerciales del Perú: Metro, Plaza Vea, Tottus, Wong y más**: [Link](https://larepublica.pe/economia/2025/12/22/horario-de-atencion-durante-el-miercoles-24-y-jueves-25-de-diciembre-en-supermercados-y-centros-comerciales-del-peru-metro-plaza-vea-tottus-wong-y-mas-atmp-1532564)
-
-
-### cuetes (N/A, 24/12/2025 21:04 Lima)
-
-- **Llama el HPS a evitar el uso de cuetes y prevenir accidentes en motocicletas**: [Link](https://vivalanoticia.mx/llama-el-hps-a-evitar-el-uso-de-cuetes-y-prevenir-accidentes-en-motocicletas/)
-- **Exhorta PC Culiacán a festejar Navidad y Año Nuevo sin pirotecnia**: [Link](https://revistaespejo.com/2025/12/24/exhorta-pc-culiacan-a-festejar-navidad-y-ano-nuevo-sin-pirotecnia/)
-- **En Angostura refuerza campaña “No más pólvora” con recorridos en zonas comerciales**: [Link](https://www.puntualizando.com/en-angostura-refuerza-campana-no-mas-polvora-con-recorridos-en-zonas-comerciales/)
-
-
-### la tinka (N/A, 24/12/2025 21:04 Lima)
-
-- **En la ONU, Rusia y China critican conducta de EEUU hacia Venezuela | nnav | video | agafp | VIDEOS**: [Link](https://elcomercio.pe/videos/global/en-la-onu-rusia-y-china-critican-conducta-de-eeuu-hacia-venezuela-nnav-video-agafp-noticia/)
-- **Resultados de La Tinka del domingo 21 de diciembre**: [Link](https://www.americatv.com.pe/americlub/tinka-resultados-sorteo-jugado-domingo-21-diciembre-noticia-162025)
-- **Resultados de La Tinka del domingo 21 de diciembre: números ganadores del Pozo Millonario**: [Link](https://depor.com/peru/la-tinka-hoy-domingo-21-de-diciembre-en-vivo-resultados-numeros-ganadores-del-ultimo-sorteo-pozo-millonario-boliyapa-resultado-si-o-si-intralot-peru-noticia/)
-
-
-### peliculas navideñas (N/A, 24/12/2025 21:04 Lima)
-
-- **¿Dónde ver las películas clásicas de Navidad en streaming? “Mi Pobre Angelito”, “El Grinch” y más**: [Link](https://elcomercio.pe/respuestas/cual/donde-ver-las-peliculas-clasicas-de-navidad-en-streaming-mi-pobre-angelito-el-grinch-y-mas-christmas-tdpe-noticia/)
-- **Las 5 mejores películas para ver durante Nochebuena, según Gemini y ChatGPT**: [Link](https://www.infobae.com/tecno/2025/12/24/las-5-mejores-peliculas-para-ver-durante-nochebuena-segun-gemini-y-chatgpt/)
-- **Películas para recibir la Navidad**: [Link](https://peru21.pe/cultura/peliculas-para-recibir-la-navidad/)
-
-
-### mi pobre angelito 2 (N/A, 24/12/2025 21:04 Lima)
-
-- **Cómo Joe Pesci y Daniel Stern se transformaron en los villanos de Mi Pobre Angelito**: [Link](https://www.latercera.com/culto/noticia/como-joe-pesci-y-daniel-stern-se-transformaron-en-los-villanos-de-mi-pobre-angelito/)
-- **Actor de 'Mi pobre angelito' está irreconocible 35 años después del estreno de la película**: [Link](https://es-us.vida-estilo.yahoo.com/actor-pobre-angelito-irreconocible-35-151739015.html)
-- **A 35 años de "Mi Pobre Angelito", el "villano" Daniel Stern cambió radicalmente: "No salgo de mi granja"**: [Link](https://www.guioteca.com/celebridades/a-35-anos-de-mi-pobre-angelito-el-villano-daniel-stern-cambio-radicalmente-no-salgo-de-mi-granja/)
 
 
