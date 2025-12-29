@@ -1,3 +1,23 @@
+### clippers - pistons (N/A, 29/12/2025 03:38 Lima)
+
+- **Game Recap: Clippers 112, Pistons 99**: [Link](https://www.nba.com/watch/video/game-recap-clippers-112-pistons-99)
+- **HoopsHype Daily: Kawhi Leonard explodes for 55, Scottie Barnes delivers 20-25-10 game**: [Link](https://www.hoopshype.com/story/sports/nba/2025/12/29/hoopshype-daily-payton-pritchard-catches-fire-kawhi-leonard-breaks-out/87728974007/)
+- **Highlights: Clippers take down the Pistons behind Kawhi's career-high night**: [Link](https://www.nbcmiami.com/video/news/sports/nba-highlights-pistons-clippers-dec-28/3740724/)
+
+
+### cesar inga (N/A, 29/12/2025 03:38 Lima)
+
+- **El inesperado mensaje de César Inga a Christian Cueva que sorprendió a hinchas: "Mucho..."**: [Link](https://libero.pe/futbol-peruano/2025/12/28/cesar-inga-su-inesperado-mensaje-christian-cueva-sorprendio-hinchas-mucho-2481080)
+- **César Inga y su inesperado recado a Christian Cueva tras encontrarse en 'pichanga'**: [Link](https://www.eldiez.com.pe/universitario/cesar-inga-y-su-inesperado-recado-a-christian-cueva-tras-encontrarse-en-pichanga-noticia/)
+
+
+### temblor hace 5 minutos chimbote (N/A, 29/12/2025 03:38 Lima)
+
+- **Cañete reporta al menos 17 sismos en 2025: Estas son las zonas más vulnerables tras el temblor de 4.8**: [Link](https://www.infobae.com/peru/2025/12/28/canete-reporta-al-menos-17-sismos-en-2025-estas-son-las-zonas-mas-vulnerables-tras-el-temblor-de-48/)
+- **Ingemmet advierte zonas de alto riesgo geológico en Áncash y La Libertad tras sismo de 6.0**: [Link](https://elcomercio.pe/peru/ingemmet-advierte-zonas-de-alto-riesgo-geologico-en-ancash-y-la-libertad-tras-sismo-de-60-ultimas-noticia/)
+- **Tres sismos con epicentro en Chimbote volvieron a sacudir el norte del país**: [Link](https://rpp.pe/peru/actualidad/sismos-en-chimbote-tres-replicas-de-magnitudes-51-38-y-39-este-domingo-y-coer-reporta-44-heridos-en-ancash-danos-en-colegios-y-hospitales-noticia-1669535)
+
+
 ### lakers (N/A, 28/12/2025 23:53 Lima)
 
 - **Redick rips into Lakers: 'We don't care enough'**: [Link](https://www.espn.com/nba/story/_/id/47416168/jj-redick-rips-lakers-loss-care-enough)
@@ -1013,26 +1033,5 @@ Sin noticias relacionadas disponibles.
 - **Christmas Day 2025: News, notes and quick facts**: [Link](https://www.nba.com/news/christmas-day-2025-news-notes-and-quick-facts)
 - **Streameast alternatives for free NBA live streams today: NBA Christmas Schedule**: [Link](https://www.masslive.com/tv/2025/12/streameast-alternatives-for-free-nba-live-streams-today-nba-christmas-schedule.html)
 - **NBA Christmas watch guide: Spurs-Thunder rematch, animated Knicks, LeBron vs. KD - The Athletic**: [Link](https://www.nytimes.com/athletic/6912179/2025/12/25/nba-christmas-wembanyama-knicks-lebron-durant/)
-
-
-### nfl (N/A, 25/12/2025 15:29 Lima)
-
-- **Ranking the Six NFL Quarterbacks Playing on Christmas Day 2025**: [Link](https://www.inkl.com/news/ranking-the-six-nfl-quarterbacks-playing-on-christmas-day-2025)
-- **Thursday Football DFS Picks – Christmas Special**: [Link](https://fantraxhq.com/thursday-football-dfs-picks-christmas-special/)
-- **NFL games today: How to watch the Cowboys, Lions, and Chiefs headline the Christmas Day tripleheader**: [Link](https://www.mundodeportivo.com/us/en/20251225/736759/nfl-games-today-how-to-watch-the-cowboys-lions-and-chiefs-headline-the-christmas-day-tripleheader.html)
-
-
-### amazon (N/A, 25/12/2025 15:29 Lima)
-
-- **A $61 Billion Reason to Buy Amazon Stock for 2026**: [Link](https://finance.yahoo.com/news/61-billion-reason-buy-amazon-143002062.html)
-- **Amazon: A Correction Under $200 May Be Necessary Before Uptrend Resumes (Technical Analysis)**: [Link](https://seekingalpha.com/article/4855722-amazon-a-correction-under-200-may-be-necessary-before-uptrend-resumes-technical-analysis)
-- **Is Amazon Stock Poised to Rally With AI Expansion in Cloud & Retail?**: [Link](https://www.zacks.com/stock/news/2808037/is-amazon-stock-poised-to-rally-with-ai-expansion-in-cloud-retail)
-
-
-### peaky blinders el hombre inmortal (N/A, 25/12/2025 15:29 Lima)
-
-- **El primer tráiler de ‘Peaky Blinders: The Immortal Man’ es puro hype y Cillian Murphy avisa: “Tommy Shelby no**: [Link](https://as.com/meristation/cine/el-primer-trailer-de-peaky-blinders-the-immortal-man-es-puro-hype-y-cillian-murphy-avisa-tommy-shelby-no-es-el-mismo-f202512-v/)
-- **El regreso de Cillian Murphy en la película de Peaky Blinders: teaser, fecha de estreno y todo lo que sabemos de “El hombre inmortal”**: [Link](https://www.infobae.com/entretenimiento/2025/12/25/el-regreso-de-cillian-murphy-en-la-pelicula-de-peaky-blinders-teaser-fecha-de-estreno-y-todo-lo-que-sabemos-de-el-hombre-inmortal/)
-- **“El hombre que fui, desapareció”: Netflix lanza el tráiler oficial de ‘Peaky Blinders: El hombre inmortal’**: [Link](https://rpp.pe/tv/netflix/peaky-blinders-el-hombre-inmortal-netflix-lanza-el-trailer-oficial-de-la-pelicula-con-cillian-murphy-noticia-1669114)
 
 
