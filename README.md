@@ -1,3 +1,36 @@
+### weather (N/A, 29/12/2025 07:56 Lima)
+
+- **City facing freezing rain warning**: [Link](https://www.tbnewswatch.com/local-news/city-facing-freezing-rain-warning-11672377)
+- **December 29, 2025: Dryden & Vermilion Bay Weather Focus — Deep Cold, Wind Chills Near -32 Overnight, Light Snow Tuesday**: [Link](https://www.netnewsledger.com/2025/12/29/december-29-2025-dryden-vermilion-bay-weather-focus-deep-cold-wind-chills-near-32-overnight-light-snow-tuesday/)
+- **NetNewsLedger Weather Advisory — Freezing Rain — Atikokan / Shebandowan / Quetico Park**: [Link](https://www.netnewsledger.com/2025/12/26/netnewsledger-weather-advisory-freezing-rain-atikokan-shebandowan-quetico-park/)
+
+
+### rpp noticias (N/A, 29/12/2025 07:56 Lima)
+
+- **Tres sismos con epicentro en Chimbote volvieron a sacudir el norte del país**: [Link](https://rpp.pe/peru/actualidad/sismos-en-chimbote-tres-replicas-de-magnitudes-51-38-y-39-este-domingo-y-coer-reporta-44-heridos-en-ancash-danos-en-colegios-y-hospitales-noticia-1669535)
+- **Prepararnos para lo inevitable**: [Link](https://www.elperuano.pe/noticia/286022-prepararnos-para-lo-inevitable)
+- **Defensoría exige implementar sistema de alerta sísmica en Perú**: [Link](https://canaln.pe/actualidad/defensoria-exige-implementar-sistema-alerta-sismica-peru-n489217)
+
+
+### dni electrónico gratis (N/A, 29/12/2025 07:56 Lima)
+
+- **Reniec anuncia DNI electrónico gratuito todo el 2026: ¿Quiénes son los beneficiados?**: [Link](https://www.infobae.com/peru/2025/12/27/reniec-anuncia-dni-electronico-gratuito-todo-el-2026-quienes-son-los-beneficiados/)
+- **¡Atención!: Reniec autoriza la gratuidad para la tramitación del DNI electrónico**: [Link](https://elperuano.pe/noticia/285933-atencion-reniec-autoriza-la-gratuidad-para-la-tramitacion-del-dni-electronico)
+- **Estas son las normas legales más importantes del sábado 27 de diciembre del 2025**: [Link](https://andina.pe/agencia/noticia-estas-son-las-normas-legales-mas-importantes-del-sabado-27-diciembre-del-2025-1057143.aspx)
+
+
+### liga peruana de vóley alianza lima (N/A, 29/12/2025 07:56 Lima)
+
+- **Tabla de posiciones de la Liga Peruana de Vóley 2025/26: así quedaron los equipos tras la fecha 10 de la primera fase**: [Link](https://www.infobae.com/peru/deportes/2025/12/27/tabla-de-posiciones-liga-peruana-de-voley-2025-2026-en-vivo-fecha-10-alianza-lima-universitario-san-martin-regatas-resultados/)
+- **Tabla de posiciones de Liga Peruana de Vóley tras triunfo de Universitario y derrota de Alianza**: [Link](https://libero.pe/deportes/voley/2025/12/25/tabla-de-posiciones-de-liga-peruana-de-voley-programacion-de-partidos-resultados-de-fecha-10-855000)
+- **Universitario venció 3-1 a Regatas Lima por fecha 10 de la Liga Peruana de Vóley | RESUMEN**: [Link](https://elcomercio.pe/deporte-total/voley/universitario-vs-regatas-voley-en-vivo-online-gratis-via-latina-tv-canal-2-a-que-hora-juegan-canal-que-transmite-y-donde-ver-por-liga-peruana-de-voley-video-noticia/)
+
+
+### calendario (N/A, 29/12/2025 07:56 Lima)
+
+- **Comienza el año del Mundial 2026: los récords que buscará Argentina en la Copa del Mundo**: [Link](https://www.espn.com.pe/futbol/mundial/nota/_/id/16113439/comienza-el-ano-del-mundial-2026-los-records-que-buscara-argentina-en-la-copa-del-mundo)
+
+
 ### clippers - pistons (N/A, 29/12/2025 03:38 Lima)
 
 - **Game Recap: Clippers 112, Pistons 99**: [Link](https://www.nba.com/watch/video/game-recap-clippers-112-pistons-99)
@@ -998,40 +1031,5 @@ Sin noticias relacionadas disponibles.
 - **Cartelera Cine en Lima y Perú hoy jueves 25 de diciembre**: [Link](https://rpp.pe/cine/cartelera/cartelera-cine-en-lima-y-peru-hoy-jueves-25-de-diciembre-noticia-1669179)
 - **Esponjas y anacondas para despedir el curso cinematográfico 2025. Lo mejor y lo peor de los estrenos de...**: [Link](https://www.espinof.com/estrenos/esponjas-anacondas-para-despedir-curso-cinematografico-2025-mejor-peor-estrenos-cine)
 - **Llegan nuevas películas al cine: estos son los estrenos recomendados del jueves 25 de diciembre**: [Link](https://www.mdzol.com/mdz-show/llegan-nuevas-peliculas-al-cine-estos-son-los-estrenos-recomendados-del-jueves-25-diciembre-n1415633)
-
-
-### angelo campos (N/A, 25/12/2025 21:03 Lima)
-
-- **Carlos Bustos tiene en la mira a un bicampeón con Alianza Lima: UTC se mueve en el mercado**: [Link](https://depor.com/futbol-peruano/descentralizado/angelo-campos-en-la-mira-de-utc-refuerzo-de-carlos-bustos-bicampeones-con-alianza-lima-en-2021-liga-1-noticia/)
-- **Ángelo Campos y donde atajaría tras dejar Alianza Lima**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/se-conocio-donde-atajaria-angelo-campos-dejar-alianza-lima-n452087)
-- **En la mira del "Gavilán": Ángelo Campos cerca de fichar por UTC de Cajamarca**: [Link](https://panamericana.pe/deportes/461904-mira-gavilan-angelo-campos-cerca-fichar-utc-cajamarca)
-
-
-### thunder - spurs (N/A, 25/12/2025 15:29 Lima)
-
-- **Spurs vs. Thunder Picks & Odds: December 25, 2025**: [Link](https://www.oddsshark.com/nba/spurs-thunder-christmas-picks-odds-december-25-2025)
-- **BetMGM bonus code CBSSPORTS: Get $150 bonus bets for Christmas NBA games, Rockets-Lakers, Nuggets-Timberwolves**: [Link](https://www.cbssports.com/nba/news/betmgm-bonus-code-cbssports-get-150-bonus-bets-christmas-nba-games-rockets-lakers-nuggets-timberwolves/)
-- **Open Thread: There is no rivalry budding between the Spurs and Thunder**: [Link](https://www.poundingtherock.com/spurs-discussion-threads/91866/open-thread-there-is-no-rivalry-budding-between-the-spurs-and-thunder)
-
-
-### knicks - cavaliers (N/A, 25/12/2025 15:29 Lima)
-
-- **Cavs led for over 35 minutes of this one but had …**: [Link](https://www.hoopshype.com/story/sports/nba/rumors/2025/12/25/cavs-led-for-over-35-minutes-of-this-one-but-had/87914674007/)
-- **Game Preview: Knicks vs Cavaliers, December 25, 2025**: [Link](https://www.postingandtoasting.com/knicks-game-previews/76971/game-preview-knicks-vs-cavaliers-december-25-2025)
-- **Mavericks vs. Warriors FREE LIVE STREAM (12/25/25): Watch NBA Christmas Day online | Time, TV channel**: [Link](https://www.nj.com/tv/2025/12/mavericks-vs-warriors-free-live-stream-122525-watch-nba-christmas-day-online-time-tv-channel.html)
-
-
-### angola vs (N/A, 25/12/2025 15:29 Lima)
-
-- **Sudáfrica: Lo que debes saber sobre la Copa Africana 2025**: [Link](https://www.espn.com.pe/futbol/selecciones/nota/_/id/16108689/sudafrica-partidos-copa-africa-2025-rival-mexico-mundial-2026)
-- **Los Bafana apuntan a la Copa Africana de Naciones, dice Ronswens Williams**: [Link](https://www.elpueblo.pe/deportes/los-bafana-apuntan-a-la-copa-africana-de-naciones-dice-ronswens-williams/179879/)
-- **Sudáfrica debutó con triunfo en la Copa Africana**: [Link](https://ovacion.pe/noticias/futbol-internacional/sudafrica-debuto-triunfo-copa-africana)
-
-
-### nba (N/A, 25/12/2025 15:29 Lima)
-
-- **Christmas Day 2025: News, notes and quick facts**: [Link](https://www.nba.com/news/christmas-day-2025-news-notes-and-quick-facts)
-- **Streameast alternatives for free NBA live streams today: NBA Christmas Schedule**: [Link](https://www.masslive.com/tv/2025/12/streameast-alternatives-for-free-nba-live-streams-today-nba-christmas-schedule.html)
-- **NBA Christmas watch guide: Spurs-Thunder rematch, animated Knicks, LeBron vs. KD - The Athletic**: [Link](https://www.nytimes.com/athletic/6912179/2025/12/25/nba-christmas-wembanyama-knicks-lebron-durant/)
 
 
