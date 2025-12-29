@@ -1,3 +1,31 @@
+### lakers (N/A, 28/12/2025 23:53 Lima)
+
+- **Redick rips into Lakers: 'We don't care enough'**: [Link](https://www.espn.com/nba/story/_/id/47416168/jj-redick-rips-lakers-loss-care-enough)
+- **“LeBron on His Golf Simulator Right Now”: Dwyane Wade Believes LBJ Isn’t Too Concerned With JJ Redick’s Recent Comments**: [Link](https://thesportsrush.com/nba-news-lebron-on-his-golf-simulator-right-now-dwyane-wade-believes-lbj-isnt-too-concerned-with-jj-redicks-recent-comments/)
+- **NBA Notes: Lakers, recent slide, Kings, Keon Ellis, Clippers**: [Link](https://hoopswire.com/nba-notes-lakers-recent-slide-kings-keon-ellis-clippers/)
+
+
+### lakers - kings (N/A, 28/12/2025 23:53 Lima)
+
+- **Kings vs. Lakers: Beat L.A.**: [Link](https://kingsherald.com/articles/kings-vs-lakers-beat-l-a/)
+- **Los Angeles faces Sacramento, looks to break 3-game slide**: [Link](https://www.heraldbulletin.com/sports/national_sports/los-angeles-faces-sacramento-looks-to-break-3-game-slide/article_5d4cd199-2785-545b-9b4c-5ac9bc3a427e.html)
+- **NBA Best Bets: Kings at Lakers Prop Bets for Sunday 12/28/25**: [Link](https://dknetwork.draftkings.com/2025/12/28/nba-best-bets-kings-at-lakers-prop-bets-for-sunday-12-28-25-2/)
+
+
+### 2 de enero feriado (N/A, 28/12/2025 23:53 Lima)
+
+- **Gobierno declara el 2 de enero como día no laborable oficial para el sector público**: [Link](https://canaln.pe/actualidad/gobierno-declara-viernes-2-enero-como-dia-no-laborable-n489209)
+- **¿El 31 de diciembre es feriado o día no laborable en Perú? Conoce lo que dice la norma vigente**: [Link](https://www.infobae.com/peru/2025/12/27/el-31-de-diciembre-es-feriado-o-dia-no-laborable-en-peru-conoce-lo-que-dice-la-norma-vigente/)
+- **Hoy 26 de diciembre: ¿descansas o compensas? Conoce qué aplica en tu trabajo**: [Link](https://www.elperuano.pe/noticia/285837-hoy-26-de-diciembre-descansas-o-compensas-conoce-que-aplica-en-tu-trabajo)
+
+
+### san luis gonzaga (N/A, 28/12/2025 23:53 Lima)
+
+- **RESULTADOS EXAMEN DE ADMISIÓN: Más de 4600 postulantes a la UNICA**: [Link](https://diariocorreo.pe/edicion/ica/resultados-examen-de-admision-mas-de-4600-postulantes-a-la-unica-noticia/)
+- **Ica: Postulantes deberán verificar su puerta de ingreso para el examen de admisión de la UNICA**: [Link](https://diariocorreo.pe/edicion/ica/ica-postulantes-deberan-verificar-su-puerta-de-ingreso-para-el-examen-de-admision-de-la-unica-noticia/)
+- **Ica: más de 4600 postulantes rendirán examen de admisión en la Universidad Nacional San Luis Gonzaga**: [Link](https://diariocorreo.pe/edicion/ica/ica-mas-de-4600-postulantes-rendiran-examen-de-admision-en-la-universidad-nacional-san-luis-gonzaga-noticia/)
+
+
 ### universitario vs regatas (N/A, 28/12/2025 21:19 Lima)
 
 - **Tabla de posiciones de la Liga Peruana de Vóley 2025/26: así van los equipos durante la fecha 10 de la primera fase**: [Link](https://www.infobae.com/peru/deportes/2025/12/27/tabla-de-posiciones-liga-peruana-de-voley-2025-2026-en-vivo-fecha-10-alianza-lima-universitario-san-martin-regatas-resultados/)
@@ -1006,33 +1034,5 @@ Sin noticias relacionadas disponibles.
 - **El primer tráiler de ‘Peaky Blinders: The Immortal Man’ es puro hype y Cillian Murphy avisa: “Tommy Shelby no**: [Link](https://as.com/meristation/cine/el-primer-trailer-de-peaky-blinders-the-immortal-man-es-puro-hype-y-cillian-murphy-avisa-tommy-shelby-no-es-el-mismo-f202512-v/)
 - **El regreso de Cillian Murphy en la película de Peaky Blinders: teaser, fecha de estreno y todo lo que sabemos de “El hombre inmortal”**: [Link](https://www.infobae.com/entretenimiento/2025/12/25/el-regreso-de-cillian-murphy-en-la-pelicula-de-peaky-blinders-teaser-fecha-de-estreno-y-todo-lo-que-sabemos-de-el-hombre-inmortal/)
 - **“El hombre que fui, desapareció”: Netflix lanza el tráiler oficial de ‘Peaky Blinders: El hombre inmortal’**: [Link](https://rpp.pe/tv/netflix/peaky-blinders-el-hombre-inmortal-netflix-lanza-el-trailer-oficial-de-la-pelicula-con-cillian-murphy-noticia-1669114)
-
-
-### netflix (N/A, 25/12/2025 11:32 Lima)
-
-- **Guía de actores y personajes de “Cashman”: quién es quién en la nueva serie coreana de Netflix**: [Link](https://elcomercio.pe/mag/fama/que-ver/cashman-actores-y-personajes-guia-del-elenco-de-la-serie-coreana-de-netflix-video-nnda-nnlt-noticia/)
-- **Un drama de acción coreano: “Cashman”, la serie de Netflix sobre un hombre común que hereda una fuerza increíble**: [Link](https://elcomercio.pe/mag/fama/que-ver/cashman-de-que-trata-y-fecha-de-estreno-guia-completa-de-la-serie-coreana-de-netflix-video-nnda-nnlt-noticia/)
-- **“El hombre que fui, desapareció”: Netflix lanza el tráiler oficial de ‘Peaky Blinders: El hombre inmortal’**: [Link](https://rpp.pe/tv/netflix/peaky-blinders-el-hombre-inmortal-netflix-lanza-el-trailer-oficial-de-la-pelicula-con-cillian-murphy-noticia-1669114)
-
-
-### xiaomi hyperos (N/A, 25/12/2025 11:32 Lima)
-
-- **Xiaomi 13T Pro Gets Android 16: HyperOS 3 Stable Update Enters Final Testing**: [Link](https://www.gizchina.com/xiaomi-phones/xiaomi-13t-pro-gets-android-16-hyperos-3-stable-update-enters-final-testing)
-- **The Evolution from MIUI to HyperOS: Key Features Shaping Xiaomi’s Ecosystem by 2025**: [Link](https://www.qoo10.co.id/en/gadget/57766/the-evolution-from-miui-to-hyperos-key-features-shaping-xiaomis-ecosystem-by-2025/)
-- **25 Xiaomi devices set to receive HyperOS 3 update before 2026**: [Link](https://www.gizmochina.com/2025/12/25/25-xiaomi-redmi-and-poco-devices-set-to-receive-hyperos-3-update-before-2026/)
-
-
-### 26 de diciembre es feriado (N/A, 25/12/2025 11:32 Lima)
-
-- **Ejecutivo declaró al 26 de diciembre y al 2 de enero como días no laborables: ¿a quiénes se aplica este beneficio?**: [Link](https://rpp.pe/politica/gobierno/ejecutivo-declaro-al-26-de-diciembre-y-al-2-de-enero-como-dias-no-laborables-a-quienes-se-aplica-este-beneficio-noticia-1669186)
-- **Día no laborable el 26 de diciembre: ¿Quiénes descansan en esta jornada?**: [Link](https://www.infobae.com/peru/2025/12/24/dia-no-laborable-el-26-de-diciembre-quienes-descansan-en-esta-jornada/)
-- **¿Es feriado hoy, miércoles 24 de diciembre en el Perú? Esto indica la norma**: [Link](https://elcomercio.pe/respuestas/que/este-24-de-diciembre-es-feriado-en-el-peru-esto-indica-la-norma-en-el-peruano-sobre-el-descanso-por-navidad-tdpe-noticia/)
-
-
-### jockey plaza (N/A, 25/12/2025 11:32 Lima)
-
-- **Jockey Plaza impulsa una Navidad más empática con una campaña que reduce el ruido**: [Link](https://stakeholders.com.pe/noticias-sh/jockey-plaza-impulsa-una-navidad-mas-empatica-con-una-campana-que-reduce-el-ruido/)
-- **Jockey Plaza apuesta por celebrar sin ruido y pone la empatía en el centro de la Navidad en su nueva campaña**: [Link](https://www.mercadonegro.pe/marketing/jockey-plaza-apuesta-por-celebrar-sin-ruido-y-pone-la-empatia-en-el-centro-de-la-navidad-en-su-nueva-campana/)
-- **“La idea de morir sobre el escenario no es atractiva cuando eres cantante para niños”**: [Link](https://elcomercio.pe/luces/musica/miss-rosi-la-idea-de-morir-sobre-el-escenario-no-es-atractiva-cuando-eres-cantante-para-ninos-musica-noticia/)
 
 
