@@ -1,3 +1,73 @@
+### universitario vs regatas (N/A, 28/12/2025 21:19 Lima)
+
+- **Tabla de posiciones de la Liga Peruana de Vóley 2025/26: así van los equipos durante la fecha 10 de la primera fase**: [Link](https://www.infobae.com/peru/deportes/2025/12/27/tabla-de-posiciones-liga-peruana-de-voley-2025-2026-en-vivo-fecha-10-alianza-lima-universitario-san-martin-regatas-resultados/)
+- **Tabla de posiciones de Liga Peruana de Vóley tras derrota de Alianza: resultados de la fecha 10**: [Link](https://libero.pe/deportes/voley/2025/12/25/tabla-de-posiciones-de-liga-peruana-de-voley-programacion-de-partidos-resultados-de-fecha-10-855000)
+- **Universitario vs. Regatas Lima en vivo: transmisión del partido por Liga Peruana de Vóley**: [Link](https://elcomercio.pe/deporte-total/voley/universitario-vs-regatas-voley-en-vivo-online-gratis-via-latina-tv-canal-2-a-que-hora-juegan-canal-que-transmite-y-donde-ver-por-liga-peruana-de-voley-video-noticia/)
+
+
+### trail blazers - celtics (N/A, 28/12/2025 21:19 Lima)
+
+- **Celtics being haunted by old ghost (but this time, it didn't matter)**: [Link](https://hardwoodhoudini.com/celtics-being-haunted-old-ghost-but-this-time-didnt-matter-blazers-donovan-clingan-jaylen-brown)
+- **HIGHLIGHTS » Blazers Snap Losing Streak To Celtics Sunday Afternoon**: [Link](https://www.nba.com/blazers/videos/highlights-blazers-snap-losing-streak-to-celtics-sunday-afternoon)
+- **Boston Celtics vs Portland Trail Blazers regular season game: Full injury report, who's out, where to wat**: [Link](https://timesofindia.indiatimes.com/sports/nba/top-stories/boston-celtics-vs-portland-trail-blazers-regular-season-game-full-injury-report-whos-out-where-to-watch-and-more-december-28-2025/articleshow/126219934.cms)
+
+
+### pablo lavandeira (N/A, 28/12/2025 21:19 Lima)
+
+- **FC Cajamarca a ritmo blanquiazul: otro bicampeón con Alianza Lima en la mira**: [Link](https://depor.com/futbol-peruano/descentralizado/fc-cajamarca-busca-el-fichaje-de-ricardo-lagos-bicampeon-con-alianza-lima-en-agenda-del-club-pablo-lavandeira-noticia/)
+- **Tras su salida de Alianza Lima: Pablo Lavandeira es nuevo jugador de FC Cajamarca**: [Link](https://rpp.pe/futbol/descentralizado/pablo-lavandeira-fue-presentado-como-jugador-de-fc-cajamarca-tras-su-salida-de-alianza-lima-liga-1-noticia-1669517)
+- **Bicampeón con Alianza Lima podría llegar a inesperado equipo de la Liga 1: "Interesa mucho..."**: [Link](https://libero.pe/futbol-peruano/alianza-lima/2025/12/28/bicampeon-alianza-lima-podria-llegar-inesperado-equipo-de-liga-1-interesa-mucho-1997772)
+
+
+### lisboa fc (N/A, 28/12/2025 21:19 Lima)
+
+- **Interrogatório do Sporting-Rio Ave: provavelmente o melhor leão da época**: [Link](https://www.record.pt/futebol/futebol-nacional/liga-betclic/amp/interrogatorio-do-sporting-rio-ave-provavelmente-o-melhor-leao-da-epoca)
+- **Leão termina 2025 em grande**: [Link](https://www.abola.pt/noticias/leao-termina-2025-em-grande-2025122820124417249)
+- **Liga de Futsal: Rio Ave e Caxinas fecham ano com derrotas**: [Link](https://maissemanario.pt/liga-futsal-rio-ave-e-caxinas-fecham-ano-com-derrotas/)
+
+
+### thunder - 76ers (N/A, 28/12/2025 21:19 Lima)
+
+- **Thunder end skid with big win, Raptors beat Warriors in overtime**: [Link](https://thesun.my/sports/basketball/thunder-end-skid-with-big-win-raptors-beat-warriors-in-overtime/)
+- **SGA & Chet combine for an efficient 56 points in win**: [Link](https://www.nba.com/watch/video/sga-chet-combine-for-an-efficient-56-points-in-win)
+- **Sixers hang tough early in OKC, but reigning champs dominate second half**: [Link](https://sports.yahoo.com/articles/sixers-hang-tough-early-okc-225655025.html)
+
+
+### predicciones horoscopo chino 2026 (N/A, 28/12/2025 21:19 Lima)
+
+- **¿Qué día inicia el Año Nuevo Chino 2026? Fecha exacta y qué animal lo representa**: [Link](https://elcomercio.pe/respuestas/cuando/ano-nuevo-chino-2026-fecha-exacta-de-inicio-y-que-animal-lo-representa-tdpe-noticia/)
+- **2026: ¿el año del fuego?, por Ramiro Escobar**: [Link](https://larepublica.pe/opinion/2025/12/28/2026-el-ano-del-fuego-por-ramiro-escobar-hnews-1538516)
+- **Los 5 rituales que debés hacer para empezar el 2026 de buena manera, según el horóscopo chino**: [Link](https://tn.com.ar/sociedad/2025/12/28/los-5-rituales-que-debes-hacer-para-empezar-el-2026-de-buena-manera-segun-el-horoscopo-chino/)
+
+
+### raptors - warriors (N/A, 28/12/2025 21:19 Lima)
+
+- **Kendrick Perkins rips Steve Kerr for ignoring Jonathan Kuminga upon Raptors loss**: [Link](https://basketnews.com/news-237681-kendrick-perkins-rips-steve-kerr-for-ignoring-jonathan-kuminga-upon-raptors-loss.html)
+- **Scottie Barnes is the 9th player in NBA history …**: [Link](https://www.hoopshype.com/story/sports/nba/rumors/2025/12/28/scottie-barnes-is-the-9th-player-in-nba-history/87939567007/)
+- **Highlights: Warriors fall to Raptors in OT**: [Link](https://www.nbcmiami.com/video/news/sports/nba-highlights-warriors-raptors-dec-28/3740678/)
+
+
+### sporting lisboa (N/A, 28/12/2025 21:19 Lima)
+
+- **Sporting aproxima-se do líder com goleada sobre o Rio Ave**: [Link](https://www.correiodamanhacanada.com/sporting-aproxima-se-do-lider-com-goleada-sobre-o-rio-ave/)
+- **«Edu Quaresma fez uma segunda parte de Seleção e jogou doente»**: [Link](https://maisfutebol.iol.pt/rui-borges/sporting/edu-quaresma-fez-uma-segunda-parte-de-selecao-e-jogou-doente)
+- **Maxi Araújo fez de Miszta uma 'tosta' e aumentou a vantagem do Sporting**: [Link](https://www.noticiasaominuto.com/desporto/2910631/maxi-araujo-fez-de-miszta-uma-tosta-e-aumentou-a-vantagem-do-sporting)
+
+
+### sporting cp (N/A, 28/12/2025 21:19 Lima)
+
+- **Preview: Sporting Lisbon vs Rio Ave - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/sporting-lisbon/preview/sporting-lisbon-vs-rio-ave-prediction-team-news-lineups_588530.html)
+- **Sporting CP 4-0 Rio Ave - Luis Suárez hat-trick keeps the Lions on pace in the Primeira Liga**: [Link](https://portugoal.net/club-news/5419-sporting-cp-4-0-rio-ave-luis-suarez-hat-trick-keeps-the-lions-on-pace-in-the-primeira-liga)
+- **Sporting vs Rio Ave shows Leões nowhere near title favorites position despite 38 points, predicted scoreline shocks fans**: [Link](https://www.red94.net/news/78926-sporting-faces-rio-ave-today-in-crucial-liga-portugal-clash-lions-aim-to-strengt/)
+
+
+### jorge montoya (N/A, 28/12/2025 21:19 Lima)
+
+- **Carlos Espá justifica ingreso de Jorge Montoya a lista al Senado tras cuestionamientos**: [Link](https://www.expreso.com.pe/politica/carlos-espa-justifica-ingreso-de-jorge-montoya-a-lista-al-senado-tras-cuestionamientos-tacna-noticia/1250575/)
+- **Tacna rechaza a Carlos Espá y Jorge Montoya: ciudadanos borran muros con pintas de propaganda electoral de SíCreo**: [Link](https://www.infobae.com/peru/2025/12/27/tacna-rechaza-a-carlos-espa-y-jorge-montoya-ciudadanos-borran-muros-con-pintas-de-propaganda-electoral-de-sicreo/)
+- **Elecciones 2026: Carlos Espá defiende ingreso de Jorge Montoya tras rechazo de simpatizantes en Tacna**: [Link](https://diariocorreo.pe/politica/elecciones-2026-carlos-espa-defiende-ingreso-de-jorge-montoya-tras-rechazo-de-simpatizantes-en-tacna-noticia/)
+
+
 ### gta 6 (N/A, 28/12/2025 15:28 Lima)
 
 - **Ex-Rockstar developer has a GTA 6 warning: ‘If the game is delayed again…'**: [Link](https://timesofindia.indiatimes.com/technology/gaming/ex-rockstar-developer-has-a-gta-6-warning-if-the-game-is-delayed-again/articleshow/126189019.cms)
@@ -964,75 +1034,5 @@ Sin noticias relacionadas disponibles.
 - **Jockey Plaza impulsa una Navidad más empática con una campaña que reduce el ruido**: [Link](https://stakeholders.com.pe/noticias-sh/jockey-plaza-impulsa-una-navidad-mas-empatica-con-una-campana-que-reduce-el-ruido/)
 - **Jockey Plaza apuesta por celebrar sin ruido y pone la empatía en el centro de la Navidad en su nueva campaña**: [Link](https://www.mercadonegro.pe/marketing/jockey-plaza-apuesta-por-celebrar-sin-ruido-y-pone-la-empatia-en-el-centro-de-la-navidad-en-su-nueva-campana/)
 - **“La idea de morir sobre el escenario no es atractiva cuando eres cantante para niños”**: [Link](https://elcomercio.pe/luces/musica/miss-rosi-la-idea-de-morir-sobre-el-escenario-no-es-atractiva-cuando-eres-cantante-para-ninos-musica-noticia/)
-
-
-### alexis arias (N/A, 25/12/2025 11:32 Lima)
-
-- **Alexis Arias, a un paso de irse de Melgar: el ‘Chaka’ orillado a abandonar el club insignia de Arequipa por medida de Juan Reynoso**: [Link](https://www.infobae.com/peru/deportes/2025/12/25/alexis-arias-a-un-paso-de-irse-de-melgar-el-chaka-orillado-a-abandonar-el-club-insignia-de-arequipa-por-medida-de-juan-reynoso/)
-- **Juan Reynoso sorprende a todo Melgar: deja fuera a un seleccionado y lo presta a otro club**: [Link](https://libero.pe/futbol-peruano/melgar/2025/12/24/juan-reynoso-sorprende-todo-melgar-deja-fuera-seleccionado-presta-otro-club-1855152)
-- **Juan Reynoso saca a otro referente de Melgar y ya le busca nuevo equipo**: [Link](https://bolavip.com/pe/liga-1/juan-reynoso-saca-a-otro-referente-de-melgar-y-ya-le-busca-nuevo-equipo)
-
-
-### proyecto san gabriel (N/A, 25/12/2025 11:32 Lima)
-
-- **Buenaventura produce su primera barra doré en el proyecto San Gabriel**: [Link](https://www.rumbominero.com/peru/noticias/mineria/proyecto-san-gabriel-primera-barra-de-oro-dore/)
-- **Buenaventura anuncia que proyecto San Gabriel produjo su primera barra de doré**: [Link](https://gestion.pe/economia/empresas/buenaventura-anuncia-que-proyecto-san-gabriel-produjo-su-primera-barra-de-dore-noticia/)
-- **Mina San Gabriel en Moquegua produjo su primera barra de oro y pronto iniciaría su operación comercial.**: [Link](https://www.gatoencerrado.net/mina-san-gabriel-en-moquegua-produjo-su-primera-barra-de-oro-y-pronto-iniciaria-su-operacion-comercial/)
-
-
-### weather (N/A, 25/12/2025 11:32 Lima)
-
-- **New Year's forecast has big change from Christmas weather in Nashville**: [Link](https://www.tennessean.com/story/weather/2025/12/25/nashville-weather-forecast-christmas-day-warm-new-years-cold/87906440007/)
-- **Rainy weather to linger over western Hawaiian islands**: [Link](https://www.staradvertiser.com/2025/12/19/breaking-news/oahu-under-flood-advisory-as-storm-system-lingers-over-hawaii/)
-- **First Alert Forecast: Breezy winds expected to ease over Christmas with minimal rainfall through the weekend**: [Link](https://www.hawaiinewsnow.com/2025/12/24/first-alert-forecast-breezy-winds-expected-ease-over-christmas-with-minimal-rainfall-through-weekend/)
-
-
-### partidos de hoy (N/A, 25/12/2025 11:32 Lima)
-
-- **Partidos de hoy, Perú, miércoles 24 de diciembre del 2025: horarios y canales TV ver Fútbol EN VIVO**: [Link](https://rpp.pe/futbol/futbol-mundial/partidos-de-hoy-peru-miercoles-24-de-diciembre-del-2025-horarios-y-canales-tv-ver-futbol-en-vivo-noticia-1668980)
-- **El fútbol no para: todos los partidos que se juegan en Navidad**: [Link](https://www.directvsports.com/futbol/el-futbol-no-para-todos-los-partidos-que-se-juegan-en-navidad-20251225-0010.html)
-- **Con NBA y NFL como platos fuertes: la programación deportiva navideña de este 25 de diciembre**: [Link](https://www.biobiochile.cl/noticias/deportes/mas-deportes/2025/12/25/con-nba-y-nfl-como-platos-fuertes-la-programacion-deportiva-navidena-de-este-25-de-diciembre.shtml)
-
-
-### eryc castillo (N/A, 25/12/2025 11:32 Lima)
-
-- **Eryc Castillo se refirió al objetivo de Alianza Lima en 2026**: [Link](https://espndeportes.espn.com/futbol/peru/nota/_/id/16116462/que-dijo-eryc-castillo-sobre-el-objetivo-de-alianza-lima)
-- **Eryc Castillo aseguró que Alianza Lima quedó en deuda en 2025: "En lo grupal no se logró todo lo que queríamos"**: [Link](https://rpp.pe/futbol/descentralizado/alianza-lima-eryc-castillo-en-lo-personal-fue-un-2025-muy-productivo-aunque-en-lo-grupal-no-se-logro-todo-lo-que-queriamos-noticia-1669022)
-- **Eryc Castillo no descarta volver a Barcelona SC en un futuro tras renovar con Alianza Lima: "Solo hay que coordinarlo"**: [Link](https://larepublica.pe/deportes/2025/12/24/eryc-castillo-no-descarta-volver-a-barcelona-sc-en-un-futuro-tras-renovar-con-alianza-lima-solo-hay-que-coordinarlo-847848)
-
-
-### larepublica (N/A, 25/12/2025 07:52 Lima)
-
-- **JNE confirmó que 36 fórmulas presidenciales quedaron inscritas para competir en elecciones generales 2026**: [Link](https://canaln.pe/actualidad/jne-confirma-inscripcion-36-formulas-presidenciales-2026-n489162)
-- **A candidatear, a candidatear que el mundo se va a acabar**: [Link](https://peru21.pe/opinion/candidatear-candidatear-que-el-mundo-se-va-acabar/)
-- **36 candidatos y una pregunta incómoda**: [Link](https://elcomercio.pe/opinion/columnistas/36-candidatos-y-una-pregunta-incomoda-por-maite-vizcarra-elecciones-2026-postulantes-presidenciales-campana-electoral-lideres-politicos-noticia/)
-
-
-### incendio (N/A, 25/12/2025 03:34 Lima)
-
-- **Incendios en Navidad: Reportan múltiples emergencias en Lima y provincias del país**: [Link](https://www.exitosanoticias.pe/actualidad/incendios-navidad-reportan-multiples-emergencias-lima-provincias-pais-n165335)
-- **San Luis: Bomberos controlan incendio a horas de Navidad y evitan una tragedia**: [Link](https://www.apnoticias.pe/peru/exitosa-noticias/san-luis-bomberos-controlan-incendio-a-horas-de-navidad-y-evitan-una-tragedia-1479397)
-- **¡Navidad al extremo! Entre polémicas, emergencias y creatividad ciudadana**: [Link](https://panamericana.pe/alsextodia/nacionales/461573-navidad-extremo-polemicas-emergencias-creatividad-ciudadana)
-
-
-### instagram (N/A, 25/12/2025 03:34 Lima)
-
-- **Nicki Minaj Deactivates Instagram After Appearing With Erika Kirk at Turning Point USA’s AmericaFest**: [Link](https://www.yahoo.com/entertainment/music/articles/nicki-minaj-deactivates-instagram-appearing-175030112.html)
-- **Nicki Minaj surprises conservatives with praise for Trump, Vance at Arizona event**: [Link](https://apnews.com/article/nicki-minaj-charlie-kirk-erika-kirk-trump-b6f5b45521368447e174f040ae7eab8c)
-- **Nicki Minaj’s Surprising Shift Toward Trump and Vance**: [Link](https://www.wsj.com/politics/elections/nicki-minajs-surprising-shift-toward-trump-and-vance-e0cdf1f0?gaa_at=eafs&gaa_n=AWEtsqdQgHe-oL309uV3snl660OjtFEg61emsD4SaubzsYEzrl7Qn10U46ti&gaa_ts=694cfab5&gaa_sig=Wu4I0DDO-hZG-4t55_WS_00cKbRThyH0U57kC_GfcRy_QeRkgIEK7tMyRje2ubxxtGPHC2mfcQzyidoSSg2Jjw%3D%3D)
-
-
-### nintendo switch 2 (N/A, 25/12/2025 03:34 Lima)
-
-- **21 Nintendo Switch Games Are Yours For $1 in 99% Discount, Save $300**: [Link](https://www.gamingbible.com/news/platform/nintendo/switch-games-bundle-almost-free-788524-20251224)
-- **Switch into savings: Nintendo's holiday game sale is here**: [Link](https://www.techspot.com/news/110698-switch-savings-nintendo-holiday-game-sale-here.html)
-- **‘Hits for the Holidays’: Nintendo offering discounts on select digital Switch, Switch 2 titles**: [Link](https://www.wbrc.com/2025/12/24/hits-holidays-nintendo-offering-discounts-select-digital-switch-switch-2-titles/)
-
-
-### la tinka resultados (N/A, 25/12/2025 03:34 Lima)
-
-- **En la ONU, Rusia y China critican conducta de EEUU hacia Venezuela | nnav | video | agafp | VIDEOS**: [Link](https://elcomercio.pe/videos/global/en-la-onu-rusia-y-china-critican-conducta-de-eeuu-hacia-venezuela-nnav-video-agafp-noticia/)
-- **La Tinka del 24 de diciembre de 2025: descubre los ganadores del último sorteo**: [Link](https://www.infobae.com/peru/2025/12/25/la-tinka-del-24-de-diciembre-de-2025-descubre-los-ganadores-del-ultimo-sorteo/)
-- **La Tinka EN VIVO HOY, 24 de diciembre: últimos números ganadores y resultados del Pozo Millonario**: [Link](https://libero.pe/ocio/2025/12/24/tinka-hoy-24-de-diciembre-ultimos-numeros-ganadores-resultados-del-pozo-millonario-2210040)
 
 
