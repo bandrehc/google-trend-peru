@@ -1,3 +1,73 @@
+### newjeans (N/A, 29/12/2025 15:30 Lima)
+
+- **NJZ’s (NewJeans) Danielle Could Join THE BLACK LABEL**: [Link](https://www.koreaboo.com/news/njz-newjeans-danielle-join-black-label/)
+- **ADOR Share NewJeans Update: Hanni Returns, Minji In Talks, Danielle’s Contract Terminated**: [Link](https://www.forbes.com/sites/jeffbenjamin/2025/12/28/ador-share-newjeans-update-hanni-returns-minji-in-talks-danielles-contract-terminated/)
+- **"Defamed NewJeans' Reputation"... Danielle Marsh Faces Over 100 Billion KRW Penalty from ADOR**: [Link](https://www.mk.co.kr/en/culture/11912314)
+
+
+### porto - avs (N/A, 29/12/2025 15:30 Lima)
+
+- **Boas memórias para terminar 2025 em alta: o onze provável do FC Porto**: [Link](https://onefootball.com/de/news/boas-memorias-para-terminar-2025-em-alta-o-onze-provavel-do-fc-porto-42156044)
+- **Porto x AVS no Campeonato Português: onde assistir ao vivo, horário e escalação**: [Link](https://www.estadao.com.br/esportes/futebol/porto-x-avs-no-campeonato-portugues-onde-assistir-ao-vivo-horario-e-escalacao-npres/)
+- **Francesco Farioli: “Este é o momento para acelerarmos a todo o gás na Liga”**: [Link](https://portocanal.sapo.pt/noticia/371254)
+
+
+### roma vs (N/A, 29/12/2025 15:30 Lima)
+
+- **Surprise omission from Roma’s squad to face Genoa: chance for Ferguson?**: [Link](https://football-italia.net/surprise-omission-roma-genoa-chance-ferguson/)
+- **De Rossi has 'no desire for revenge' ahead of Roma return**: [Link](https://www.beinsports.com/en-us/soccer/serie-a/articles/de-rossi-has-no-desire-for-revenge-ahead-of-roma-return-2025-12-28)
+- **Roma v Genoa: the official line-ups**: [Link](https://www.asroma.com/en/news/74569/roma-v-genoa-the-official-line-ups)
+
+
+### roma - genoa (N/A, 29/12/2025 15:30 Lima)
+
+- **Serie A, in campo Roma-Genoa: Hermoso e Vitinha schierati dal primo minuto 📍 Stadio Olimpico Segui tutti gli aggiornamenti in tempo reale qui 👉🏻 https://www.rainews.it/maratona/2025/12/calcio-serie-a-giornata-17-risultati-cronaca-aggiornamenti-diretta-hi**: [Link](https://www.facebook.com/RaiNews/photos/serie-a-in-campo-roma-genoa-hermoso-e-vitinha-schierati-dal-primo-minuto-stadio-/1348746223958561/)
+- **Calcio Live News: tutte le notizie di giornata in diretta**: [Link](https://www.diretta.it/news/calcio-live-de-rossi-torna-all-olimpico-da-avversario-gasp-si-affida-a-ferguson-davanti/dEhNDbpp/)
+- **Roma-Genoa, queste sono le formazioni ufficiali**: [Link](https://www.asroma.com/it/notizie/74568/roma-genoa-queste-sono-le-formazioni-ufficiali)
+
+
+### mali vs (N/A, 29/12/2025 15:30 Lima)
+
+- **Yves Bissouma's Mali left frustrated in Africa Cup of Nations opener**: [Link](https://www.tottenhamhotspur.com/news/2025/december/yves-bissoumas-mali-left-frustrated-in-africa-cup-of-nations-opener/)
+- **Ex-Premier League striker lands on his neck while celebrating Afcon goal**: [Link](https://www.independent.co.uk/bulletin/sport/patson-daka-premier-league-afcon-celebration-b2889109.html)
+- **The Atlas Lions Stand Alone at the Top of Group A After Mali–Zambia Draw**: [Link](https://www.moroccoworldnews.com/2025/12/272699/the-atlas-lions-stand-alone-at-the-top-of-group-a-after-mali-zambia-draw/)
+
+
+### championship (N/A, 29/12/2025 15:30 Lima)
+
+- **How Illinois State and Montana State Built Championship FCS Rosters**: [Link](https://www.si.com/college/fcs/big-sky/how-illinois-state-and-montana-state-built-championship-fcs-football-rosters)
+- **How to Watch: Bobcat football plays for a national title in Nashville Jan. 5**: [Link](https://www.explorebigsky.com/how-to-watch-bobcat-football-plays-for-a-national-title-in-nashville-jan-5/167615)
+- **Redbird Nation plans watch parties to cheer ISU’s national title quest**: [Link](https://www.25newsnow.com/2025/12/29/redbird-nation-plans-watch-parties-cheer-isus-national-title-quest/)
+
+
+### horóscopo chino 2026 caballo (N/A, 29/12/2025 15:30 Lima)
+
+- **Año Nuevo Chino: por qué 2026 estará regido por el Caballo de Fuego**: [Link](https://www.perfil.com/noticias/sociedad/ano-nuevo-chino-2026-cuando-comienza-y-que-significa-el-caballo-de-fuego.phtml)
+- **2026: ¿el año del fuego?, por Ramiro Escobar**: [Link](https://larepublica.pe/opinion/2025/12/28/2026-el-ano-del-fuego-por-ramiro-escobar-hnews-1538516)
+- **¿Cuál es el signo más afortunado del horóscopo chino en 2026? | tdpe | RESPUESTAS**: [Link](https://elcomercio.pe/respuestas/que/cual-es-el-signo-mas-afortunado-del-horoscopo-chino-en-2026-tdpe-noticia/)
+
+
+### leicester (N/A, 29/12/2025 15:30 Lima)
+
+- **TEAM NEWS: Leicester City Vs Derby County**: [Link](https://www.dcfc.co.uk/news/2025/12/team-news-leicester-city-vs-derby-county-december-2025)
+- **Rams face injury concerns ahead of crucial clash with Leicester City**: [Link](https://news.ssbcrack.com/rams-face-injury-concerns-ahead-of-crucial-clash-with-leicester-city/)
+- **What channel is Leicester v Derby Championship match on? TV coverage, live stream and kick-off time**: [Link](https://www.radiotimes.com/tv/sport/football/leicester-derby-championship-2025-26-preview/)
+
+
+### sentinel (N/A, 29/12/2025 15:30 Lima)
+
+- **Paolo Banchero says narrative that his pairing with Franz Wagner doesn’t work is ‘bull—’ - The Athletic**: [Link](https://www.nytimes.com/athletic/6913110/2025/12/23/paolo-banchero-orlando-magic-season/)
+- **Magic star upset at narrative regarding fit with co-star**: [Link](https://www.si.com/nba/magic/onsi/news/magic-star-upset-at-narrative-regarding-fit-with-co-star-01kdc1rzp957)
+- **I knew coming back that, with it being a groin injury, …**: [Link](https://sports.yahoo.com/articles/knew-coming-back-being-groin-141856428.html)
+
+
+### zambia - marruecos (N/A, 29/12/2025 15:30 Lima)
+
+- **Zambia - Marruecos, en directo: Copa África, hoy en vivo**: [Link](https://as.com/futbol/internacional/zambia-marruecos-en-directo-copa-africa-hoy-en-vivo-f202512-n/)
+- **Apuestas y pronósticos Zambia vs Marruecos**: [Link](https://www.marca.com/apuestas-deportivas/predicciones/2025/12/28/apuestas-pronosticos-zambia-vs-marruecos.html)
+- **Akhomach: “Estamos listos para Zambia y lucharemos hasta el final”**: [Link](https://es.rue20.com/2025/12/29/akhomach-estamos-listos-para-zambia-y-lucharemos-hasta-el-final/)
+
+
 ### zimbabue - sudáfrica (N/A, 29/12/2025 11:32 Lima)
 
 - **Pronóstico Zimbabue Sudáfrica - CAN 29/12/25**: [Link](https://www.sportytrader.com/es/pronosticos/zimbabue-sudafrica-314492/)
@@ -962,74 +1032,5 @@ Sin noticias relacionadas disponibles.
 - **Noche intensa para los bomberos en el inicio de la Navidad: Atendieron más de 60 siniestros solo en Lima y Callao**: [Link](https://www.infobae.com/peru/2025/12/25/noche-intensa-para-los-bomberos-en-el-inicio-de-la-navidad-atendieron-mas-de-60-siniestros-solo-en-lima-y-callao/)
 - **Incendio consumió una fábrica de plásticos en San Juan de Lurigancho tras celebraciones navideñas**: [Link](https://canaln.pe/actualidad/incendio-destruyo-fabrica-plasticos-san-juan-lurigancho-n489167)
 - **La imprudencia de siempre**: [Link](https://elcomercio.pe/opinion/editorial/decenas-de-incendios-se-registran-en-todo-el-pais-en-estas-fechas-por-la-irresponsabilidad-y-la-falta-de-conciencia-noticia/)
-
-
-### reniec (N/A, 26/12/2025 07:53 Lima)
-
-- **Reniec atenderá este 26 y 27 de diciembre en más de 50 sedes para trámites y entrega de DNI**: [Link](https://canaln.pe/actualidad/reniec-atendera-26-y-27-diciembre-mas-50-sedes-n489171)
-- **Reniec: Sedes atenderán el 26 y 27 de diciembre por DNI**: [Link](https://www.americatv.com.pe/noticias/actualidad/reniec-atendera-26-y-27-diciembre-mas-50-sedes-n514229)
-- **Estas son las agencias del Reniec en Ucayali que atenderá el 26 y 27 de diciembre**: [Link](https://andina.pe/agencia/noticia-estas-son-las-agencias-del-reniec-ucayali-atendera-26-y-27-diciembre-1056940.aspx)
-
-
-### heated rivalry (N/A, 26/12/2025 03:34 Lima)
-
-- **‘Heated Rivalry’ Scores Big With Hockey and Sex**: [Link](https://www.nytimes.com/2025/12/23/arts/television/heated-rivalry-connor-storrie-hudson-williams.html)
-- **'Heated Rivalry' Stars Connor Storrie and Hudson Williams Talk Hockey, Sex Scenes, and Overnight Success**: [Link](https://www.gq.com/story/heated-rivalry-gq-hype)
-- **What Time Does 'Heated Rivalry' Episode 6 Come Out On HBO Max?**: [Link](https://decider.com/2025/12/25/what-time-heated-rivalry-episode-6-come-out-hbo-max/)
-
-
-### fichajes universitario (N/A, 26/12/2025 03:34 Lima)
-
-- **Universitario apunta a armar un equipazo en busca del tetracampeonato: “Jugadores destacados”**: [Link](https://depor.com/futbol-peruano/descentralizado/universitario-franco-velazco-refuerzos-fichajes-y-la-promesa-de-jugadores-destacados-para-el-tetracampeonato-liga-1-noticia/)
-- **Fichajes de Universitario 2026 EN VIVO: nuevos jugadores, rumores, renovaciones y salidas confirmadas**: [Link](https://www.infobae.com/peru/deportes/2025/12/24/fichajes-de-universitario-2026-en-vivo-nuevos-jugadores-rumores-renovaciones-y-salidas-confirmadas/)
-- **Universitario busca remecer el mercado fichando a exdelantero de Celta de Vigo: "Interés"**: [Link](https://libero.pe/futbol-peruano/universitario/2025/12/25/fichajes-liga-1-universitario-busca-remecer-mercado-fichando-exdelantero-de-celta-de-vigo-interes-913950)
-
-
-### vecna (N/A, 26/12/2025 03:34 Lima)
-
-- **Stranger Things season five vol 2 review – the fact that this isn’t unbearable is a miracle**: [Link](https://www.theguardian.com/tv-and-radio/2025/dec/26/stranger-things-season-five-vol-2-review)
-- **Here's when 'Stranger Things' Season 5 Volume 2 drops on Netflix**: [Link](https://www.abc10.com/article/news/nation-world/stranger-things-vol-2-release-date-runtimes/507-10fae444-e295-452e-8711-d5e6367ff181)
-- **Where ‘Stranger Things’ Lost Itself**: [Link](https://www.theatlantic.com/culture/2025/12/stranger-things-season-5-volume-2-review/685465/)
-
-
-### cuantos capitulos tiene stranger things 5 (N/A, 26/12/2025 03:34 Lima)
-
-- **Stranger Things 5: fecha de estreno de los episodios de cada parte y la duración de la última temporada**: [Link](https://cnnespanol.cnn.com/2025/12/24/entretenimiento/stranger-things-5-final-orix)
-- **¿A qué hora se estrena ‘Stranger Things 5’ en España y Latinoamérica? Horarios de los capítulos finales de la**: [Link](https://as.com/meristation/series/a-que-hora-se-estrena-stranger-things-5-en-espana-y-latinoamerica-horarios-de-los-capitulos-finales-de-la-serie-de-netflix-f202512-n/)
-- **“Ha cambiado mi vida drásticamente”: los protagonistas de ‘Stranger Things’ se despiden de sus personajes**: [Link](https://elpais.com/television/series/2025-12-26/ha-cambiado-mi-vida-drasticamente-los-protagonistas-de-stranger-things-se-despiden-de-sus-personajes.html)
-
-
-### nuggets - timberwolves (N/A, 25/12/2025 23:38 Lima)
-
-- **Minnesota Timberwolves at Denver Nuggets odds, picks and predictions**: [Link](https://sportsbookwire.usatoday.com/story/sports/nba/2025/12/25/timberwolves-at-nuggets-odds-picks-and-predictions/87913544007/)
-- **Anthony Edwards Player Prop Picks for NBA Christmas Day | Best Props vs. Nuggets**: [Link](https://www.sportsbookreview.com/picks/nba/anthony-edwards-player-prop-picks-christmas-2025/)
-- **Get In And Out With Christmas Day Finale**: [Link](https://www.outkick.com/betting/get-out-christmas-day-finale)
-
-
-### millie bobby brown (N/A, 25/12/2025 23:38 Lima)
-
-- **How David Harbour’s ‘Fear’ of Losing Millie Bobby Brown Influences 'Stranger Things' Finale (Exclusive)**: [Link](https://people.com/stranger-things-david-harbour-fear-losing-millie-bobby-brown-exclusive-11873756)
-- **El’s Frustration With Hopper Is Real and Relatable**: [Link](https://www.themarysue.com/stranger-things-eleven-hopper-relationship/)
-- **David Harbour’s 'Fear' of Losing Millie Bobby Brown's Eleven Is Driving Force Going into “Stranger Things” Finale (Exclusive)**: [Link](https://www.aol.com/articles/david-harbour-fear-losing-millie-033000410.html)
-
-
-### winona ryder (N/A, 25/12/2025 23:38 Lima)
-
-- **Winona Ryder Breaks Down Her Most Iconic Characters**: [Link](https://www.yahoo.com/lifestyle/videos/winona-ryder-breaks-down-her-170000165.html)
-- **What are Winona Ryder's most iconic characters? Here's what the Stranger Things star recently revealed**: [Link](https://www.soapcentral.com/shows/news-what-winona-ryder-s-iconic-characters-here-s-stranger-things-star-recently-revealed)
-
-
-### jim carrey (N/A, 25/12/2025 23:38 Lima)
-
-- **Taylor Momsen reveals what Jim Carrey ‘freaked out’ about on ‘Grinch’ set: ‘Over the top’**: [Link](https://nypost.com/2025/12/24/entertainment/taylor-momsen-reveals-what-jim-carrey-freaked-out-over-on-grinch-set/)
-- **He Hated the Filming: This Actor Wanted to Return His $20 Million to Leave This Cult Christmas Movie**: [Link](https://3dvf.com/en/he-hated-the-filming-this-actor-wanted-to-return-his-20-million-to-leave-this-cult-christmas-movie/)
-- **19 Nostalgic Photos of the “How the Grinch Stole Christmas” Cast Then and Now**: [Link](https://www.yahoo.com/entertainment/movies/articles/19-nostalgic-photos-grinch-stole-203600221.html)
-
-
-### dólar blue hoy (N/A, 25/12/2025 23:38 Lima)
-
-- **Dólar HOY: cotización del dólar oficial y precios del jueves 25 de diciembre**: [Link](https://www.tycsports.com/interes-general/dolar-hoy-cotizacion-del-dolar-oficial-y-precios-del-jueves-25-de-diciembre-id705407.html)
-- **Argentina: dólar blue hoy a cuánto cotiza este jueves 25 de diciembre**: [Link](https://rpp.pe/mundo/argentina/argentina-dolar-blue-hoy-a-cuanto-cotiza-este-jueves-25-de-diciembre-noticia-1669176)
-- **Cuál es la cotizacion del dólar hoy, 25 de diciembre, banco por banco**: [Link](https://www.lanacion.com.ar/economia/dolar/cual-es-la-cotizacion-del-dolar-hoy-25-de-diciembre-banco-por-banco-nid25122025/)
 
 
