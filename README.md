@@ -1,3 +1,73 @@
+### zimbabue - sudáfrica (N/A, 29/12/2025 11:32 Lima)
+
+- **Pronóstico Zimbabue Sudáfrica - CAN 29/12/25**: [Link](https://www.sportytrader.com/es/pronosticos/zimbabue-sudafrica-314492/)
+- **Copa Africana: Horario y canales para ver el partido de Sudáfrica, rival de México en el Mundial de 2026; HOY, 29 de diciembre**: [Link](https://www.eluniversal.com.mx/deportes/copa-africana-horario-y-canales-para-ver-el-partido-de-sudafrica-rival-de-mexico-en-el-mundial-de-2026-este-lunes-29-de-diciembre/)
+- **Juega Sudáfrica su pase a Octavos en Copa Africana**: [Link](https://lucesdelsiglo.com/2025/12/28/juega-sudafrica-su-pase-a-octavos-en-copa-africana-deportes/)
+
+
+### egipto vs. sudáfrica (N/A, 29/12/2025 11:32 Lima)
+
+- **Con un gol de Salah, Egipto se metió en los octavos de la Copa Africana de Naciones**: [Link](https://www.espn.com.ar/futbol/nota/_/id/16122070/gol-mohamed-salah-egipto-vencio-sudafrica-octavos-de-la-copa-africana-de-naciones-2025-26)
+- **La tabla de la Copa Africana, tras Egipto vs. Sudáfrica: se definió el primer clasificado**: [Link](https://www.msn.com/es-co/deportes/other/la-tabla-de-la-copa-africana-tras-egipto-vs-sud%C3%A1frica-se-defini%C3%B3-el-primer-clasificado/ar-AA1T5bEv)
+- **"Hasta Mo Salah se sorprendió": el seleccionador sudafricano critica el "ridículo" penalti de Egipto**: [Link](https://tribuna.com/es/blogs/hasta-mo-salah-se-sorprendio-el-seleccionador-sudafricano-cr/)
+
+
+### angola vs egipto (N/A, 29/12/2025 11:32 Lima)
+
+- **Pronóstico Angola - Egipto - CAN**: [Link](https://www.sportytrader.es/pronosticos/angola-egipto-314206/)
+- **Mohamed Salah descansará en el último partido de la fase de grupos de la Copa Africana de Naciones de Egipto contra Angola**: [Link](https://tribuna.com/es/news/2025-12-29-mohamed-salah-descansara-en-el-ultimo-partido-de-la-fase-de-grupos-de-la-copa-africana-de/)
+- **Zimbabue - Sudáfrica en directo - Copa de África: Resultados y resúmenes de Fútbol - 29/12/2025**: [Link](https://www.eurosport.es/futbol/copa-de-africa/2025/live-zimbabue-sudafrica_mtc1584146/live-commentary.shtml)
+
+
+### calendario 2026 (N/A, 29/12/2025 11:32 Lima)
+
+- **¡Angelados! Los feriados del 2026 que te permitirán desconectarte del mundo**: [Link](https://www.revistaeconomia.com/angelados-los-feriados-del-2026-que-te-permitiran-desconectarte-del-mundo/)
+- **PLANIFICA TUS ESCAPADAS: Estos son los 16 feriados del 2026**: [Link](https://peru21.pe/peru/estos-son-los-16-feriados-nacionales-del-2026/)
+- **¿Habrá FERIADO LARGO del 29 al 31 de diciembre por Año Nuevo? Lo que indica la norma en El Peruano**: [Link](https://elcomercio.pe/respuestas/cuando/habra-feriado-largo-del-29-al-31-de-diciembre-por-ano-nuevo-esto-indica-la-norma-en-el-peruano-tdpe-noticia/)
+
+
+### michael schumacher (N/A, 29/12/2025 11:32 Lima)
+
+- **Michael Schumacher's devastating text message to wife 12 years on from tragic skiing accident**: [Link](https://www.gbnews.com/sport/f1/michael-schumacher-text-wife-skiing-accident)
+- **12 years on from Schumacher's skiing accident, everything we know about his condition**: [Link](https://www.nationalworld.com/sport/formula-1/michael-schumacher-12-years-since-skiing-accident-condition-who-is-allowed-to-visit-him-5457433)
+- **Michael Schumacher’s friend reveals ‘strict rules’ around visiting F1 star**: [Link](https://www.express.co.uk/news/world/2151202/michael-schumacher-health-condition-visit-f1-driver)
+
+
+### al khaleej - al-fateh (N/A, 29/12/2025 11:32 Lima)
+
+- **49ers 42-38 Bears (Dec 28, 2025) Box Score**: [Link](https://www.espn.com/nfl/boxscore/_/gameId/401772935)
+- **Clippers 112-99 Pistons (Dec 28, 2025) Game Recap**: [Link](https://www.espn.com/nba/recap/_/gameId/401810300)
+- **Bucks 112-103 Bulls (Dec 27, 2025) Game Recap**: [Link](https://www.espn.com/nba/recap/_/gameId/401810292)
+
+
+### mef (N/A, 29/12/2025 11:32 Lima)
+
+- **MEF impulsa uso de metodología BIM**: [Link](https://elperuano.pe/noticia/286019-mef-impulsa-uso-de-metodologia-bim)
+- **Cronograma de pagos 2026 en el Banco de la Nación: Fechas de sueldos, aguinaldos y bono de escolaridad**: [Link](https://www.infobae.com/peru/2025/12/26/cronograma-de-pago-de-sueldos-aguinaldos-y-bono-de-escolaridad-en-el-banco-de-la-nacion-fechas-en-2026/)
+- **Cronograma Banco de la Nación en enero 2026: fechas de pago de sueldos, aguinaldos y bono escolar**: [Link](https://elcomercio.pe/respuestas/tramites/cronograma-banco-de-la-nacion-en-enero-2026-fechas-de-pago-de-sueldos-aguinaldos-y-bono-escolar-tdpe-noticia/)
+
+
+### minsa (N/A, 29/12/2025 11:32 Lima)
+
+- **Tres sismos con epicentro en Chimbote volvieron a sacudir el norte del país**: [Link](https://rpp.pe/peru/actualidad/sismos-en-chimbote-tres-replicas-de-magnitudes-51-38-y-39-este-domingo-y-coer-reporta-44-heridos-en-ancash-danos-en-colegios-y-hospitales-noticia-1669535)
+- **Prepararnos para lo inevitable**: [Link](https://www.elperuano.pe/noticia/286022-prepararnos-para-lo-inevitable)
+- **INGEMMET alertó desde 2015 sobre zonas críticas en Áncash y La Libertad expuestas a deslizamientos y sismos**: [Link](https://canaln.pe/actualidad/zonas-criticas-ancash-y-libertad-fueron-alertadas-2015-n489230)
+
+
+### el peruano (N/A, 29/12/2025 11:32 Lima)
+
+- **El Peruano te informa: consulta aquí las principales normas legales para hoy, lunes 29 de Diciembre del 2025**: [Link](https://elperuano.pe/noticia/285999-el-peruano-te-informa-consulta-aqui-las-principales-normas-legales-para-hoy-lunes-29-de-diciembre-del-2025)
+- **Estas son las normas legales más importantes del lunes 29 de diciembre del 2025**: [Link](https://andina.pe/agencia/noticia-estas-son-las-normas-legales-mas-importantes-del-lunes-29-diciembre-del-2025-1057291.aspx)
+- **PLANIFICA TUS ESCAPADAS: Estos son los 16 feriados del 2026**: [Link](https://peru21.pe/peru/estos-son-los-16-feriados-nacionales-del-2026/)
+
+
+### 29 de diciembre es feriado (N/A, 29/12/2025 11:32 Lima)
+
+- **PLANIFICA TUS ESCAPADAS: Estos son los 16 feriados del 2026**: [Link](https://peru21.pe/peru/estos-son-los-16-feriados-nacionales-del-2026/)
+- **Feriado largo antes de Año Nuevo: ¿Habrá descanso el 29 y 30 de diciembre? Esto dice El Peruano**: [Link](https://elcomercio.pe/respuestas/que/feriado-largo-antes-de-ano-nuevo-se-descansara-el-29-y-30-de-diciembre-esto-dice-el-peruano-tdpe-noticia/)
+- **Conoce los 16 feriados nacionales del Perú en el 2026**: [Link](https://rpp.pe/peru/actualidad/feriados-2026-la-lista-completa-de-los-16-feriados-nacionales-del-peru-noticia-1669432)
+
+
 ### weather (N/A, 29/12/2025 07:56 Lima)
 
 - **City facing freezing rain warning**: [Link](https://www.tbnewswatch.com/local-news/city-facing-freezing-rain-warning-11672377)
@@ -961,75 +1031,5 @@ Sin noticias relacionadas disponibles.
 - **Dólar HOY: cotización del dólar oficial y precios del jueves 25 de diciembre**: [Link](https://www.tycsports.com/interes-general/dolar-hoy-cotizacion-del-dolar-oficial-y-precios-del-jueves-25-de-diciembre-id705407.html)
 - **Argentina: dólar blue hoy a cuánto cotiza este jueves 25 de diciembre**: [Link](https://rpp.pe/mundo/argentina/argentina-dolar-blue-hoy-a-cuanto-cotiza-este-jueves-25-de-diciembre-noticia-1669176)
 - **Cuál es la cotizacion del dólar hoy, 25 de diciembre, banco por banco**: [Link](https://www.lanacion.com.ar/economia/dolar/cual-es-la-cotizacion-del-dolar-hoy-25-de-diciembre-banco-por-banco-nid25122025/)
-
-
-### stranger things temporada 5 (N/A, 25/12/2025 23:38 Lima)
-
-- **¿A qué hora se estrena ‘Stranger Things 5’ en España y Latinoamérica? Horarios de los capítulos finales de la**: [Link](https://as.com/meristation/series/a-que-hora-se-estrena-stranger-things-5-en-espana-y-latinoamerica-horarios-de-los-capitulos-finales-de-la-serie-de-netflix-f202512-n/)
-- **“Stranger Things 5”: fecha y hora del estreno del Volumen 2 en Netflix**: [Link](https://www.infobae.com/entretenimiento/2025/12/24/stranger-things-5-fecha-y-hora-del-estreno-del-volumen-2-en-netflix/)
-- **Stranger Things: las teorías de lo que puede pasar en el final de la exitosa serie**: [Link](https://www.bbc.com/mundo/articles/czj0z1rl3wyo)
-
-
-### lakers - rockets (N/A, 25/12/2025 21:03 Lima)
-
-- **Rockets vs Lakers Christmas Picks & Odds: Los Angeles Sexy Pick On Moneyline**: [Link](https://www.oddsshark.com/nba/rockets-lakers-picks-odds-christmas-december-25-2025)
-- **theScore Bet bonus code NPNEWS: Bet $10, get $100 in bonus bets for Lakers vs. Rockets**: [Link](https://nypost.com/2025/12/25/betting/thescore-bet-bonus-code-npnews-bet-10-get-100-in-bonus-bets-for-lakers-vs-rockets/)
-- **Where to watch Rockets vs. Lakers free stream today**: [Link](https://www.masslive.com/tv/2025/12/where-to-watch-rockets-vs-lakers-free-stream-today.html)
-
-
-### peliculas (N/A, 25/12/2025 21:03 Lima)
-
-- **¿Dónde ver las películas clásicas de Navidad en streaming? “Mi Pobre Angelito”, “El Grinch” y más**: [Link](https://elcomercio.pe/respuestas/cual/donde-ver-las-peliculas-clasicas-de-navidad-en-streaming-mi-pobre-angelito-el-grinch-y-mas-christmas-tdpe-noticia/)
-- **Cinco películas navideñas para disfrutar con los nietos**: [Link](https://www.infobae.com/generacion-silver/2025/12/25/cinco-peliculas-navidenas-para-disfrutar-junto-a-los-nietos/)
-- **Películas animadas para ver esta navidad**: [Link](https://www.diariodemexico.com/escena/peliculas-animadas-para-ver-esta-navidad)
-
-
-### darinka ramirez (N/A, 25/12/2025 21:03 Lima)
-
-- **Darinka Ramírez anuncia embarazo y confirma que su hija con Jefferson Farfán tendrá una hermanita**: [Link](https://www.infobae.com/peru/2025/12/25/darinka-ramirez-anuncia-embarazo-y-confirma-que-su-hija-con-jefferson-farfan-tendra-una-hermanita/)
-- **Darinka Ramírez sorprende al anunciar su segundo embarazo con tiernas fotos: "Estamos emocionados"**: [Link](https://libero.pe/ocio/famosos/2025/12/25/darinka-ramirez-sorprende-anunciar-su-segundo-embarazo-tiernas-fotos-estamos-emocionados-408250)
-- **Darinka Ramírez anuncia embarazo y revela sexo de bebé**: [Link](https://www.americatv.com.pe/noticias/espectaculos/darinka-ramirez-paraliza-seguidores-anuncio-su-embarazo-n514231)
-
-
-### anaconda 2025 (N/A, 25/12/2025 21:03 Lima)
-
-- **Box Office: ‘Marty Supreme’ Almost Beats ‘Anaconda’ in Christmas Eve Surprise; ‘Avatar 3’ Jumps $500M Globally**: [Link](https://www.hollywoodreporter.com/movies/movie-news/marty-supreme-box-office-timothee-chalamet-anaconda-avatar-1236458813/)
-- **Box Office: Christmas Eve Led by 'Avatar: Fire and Ash'; Marty Supreme & 'Anaconda' Previews**: [Link](https://deadline.com/2025/12/box-office-christmas-avatar-fire-and-ash-marty-supreme-anaconda-1236656840/)
-- **Christmas Box Office 2025: ‘Song Sung Blue,’ ‘Anaconda,' More**: [Link](https://www.today.com/video/christmas-box-office-2025-song-sung-blue-anaconda-more-255002181598)
-
-
-### avatar (N/A, 25/12/2025 21:03 Lima)
-
-- **Walt Disney Studios Officially First & Only Studio To Cross $6B WW In 2025; ‘Avatar: Fire & Ash’ At $450M WW**: [Link](https://deadline.com/2025/12/disney-global-box-office-2025-1236656467/)
-- **'Avatar 3' Propels Disney Global Box Office Revenue to $6 Billion**: [Link](https://www.hollywoodreporter.com/movies/movie-news/disney-box-office-global-revenue-six-billion-avatar-1236458554/)
-- **Disney Studios Has Already Grossed Over $6 Billion At Box Office in Best Year Since 2019**: [Link](https://www.forbes.com/sites/zacharyfolk/2025/12/24/disney-studios-had-best-year-at-box-office-since-before-the-pandemic-heres-why/)
-
-
-### avatar 2 (N/A, 25/12/2025 21:03 Lima)
-
-- **Box Office: Christmas Eve Led by 'Avatar: Fire and Ash'; Marty Supreme & 'Anaconda' Previews**: [Link](https://deadline.com/2025/12/box-office-christmas-avatar-fire-and-ash-marty-supreme-anaconda-1236656840/)
-- **‘Avatar: Fire and Ash’ Review: For the First Time in His Spectacular Career, James Cameron Delivers a Movie That Feels Like Something You’ve Seen Before**: [Link](https://www.indiewire.com/criticism/movies/avatar-fire-and-ash-movie-review-james-cameron-1235167902/)
-- **Weekend Box Office: AVATAR Reigns as DAVID and HOUSEMAID Post Solid Debuts**: [Link](https://www.boxofficepro.com/weekend-box-office-avatar-reigns-as-david-and-housemaid-post-solid-debuts/)
-
-
-### mensajes navidad (N/A, 25/12/2025 21:03 Lima)
-
-- **León XIV denuncia que los palestinos de Gaza están obligados a refugiarse en tiendas ante la "lluvia, el viento y el frío"**: [Link](https://cnnespanol.cnn.com/2025/12/25/mundo/papa-leon-xiv-denuncia-palestinos-gaza-misa-trax)
-- **León XIV en Navidad: La paz de Dios nace de un sollozo acogido**: [Link](https://www.vaticannews.va/es/papa/news/2025-12/papa-leon-xiv-misa-dia-navidad-homilia-basilica-vaticana.html)
-- **Los conflictos, en el primer 'Urbi et Orbi' de León XIV**: [Link](https://www.dw.com/es/los-conflictos-del-mundo-en-la-primera-bendici%C3%B3n-urbi-et-orbi-de-le%C3%B3n-xiv/a-75302349)
-
-
-### prime video (N/A, 25/12/2025 21:03 Lima)
-
-- **WTF Is This Version of ‘It’s A Wonderful Life’?**: [Link](https://gizmodo.com/wtf-is-this-version-of-its-a-wonderful-life-2000702125)
-- **Amazon Prime slammed as 'abomination' after removing crucial scene from iconic holiday film**: [Link](https://www.the-sun.com/entertainment/15691311/amazon-prime-slammed-removing-scene-holiday-film/)
-- **Amazon Prime slammed for streaming 'It’s a Wonderful Life' with key scene cut out: 'Sacrilege'**: [Link](https://nypost.com/2025/12/25/business/amazon-prime-slammed-for-streaming-its-a-wonderful-life-with-key-scene-cut-out-sacrilege/)
-
-
-### cinemark cartelera (N/A, 25/12/2025 21:03 Lima)
-
-- **Cartelera Cine en Lima y Perú hoy jueves 25 de diciembre**: [Link](https://rpp.pe/cine/cartelera/cartelera-cine-en-lima-y-peru-hoy-jueves-25-de-diciembre-noticia-1669179)
-- **Esponjas y anacondas para despedir el curso cinematográfico 2025. Lo mejor y lo peor de los estrenos de...**: [Link](https://www.espinof.com/estrenos/esponjas-anacondas-para-despedir-curso-cinematografico-2025-mejor-peor-estrenos-cine)
-- **Llegan nuevas películas al cine: estos son los estrenos recomendados del jueves 25 de diciembre**: [Link](https://www.mdzol.com/mdz-show/llegan-nuevas-peliculas-al-cine-estos-son-los-estrenos-recomendados-del-jueves-25-diciembre-n1415633)
 
 
