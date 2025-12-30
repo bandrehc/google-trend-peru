@@ -1,3 +1,73 @@
+### everton (N/A, 30/12/2025 15:29 Lima)
+
+- **Wrexham Association Football Club**: [Link](https://www.wrexhamafc.co.uk/news/2025/december/30/fa-cup-hospitality-limited-spaces-remain-for-nottingham-forest/)
+- **Away Fan Guide: Nottingham Forest**: [Link](https://www.evertonfc.com/news/2025/december/29/away-fan-guide-nottingham-forest/)
+- **Inside Nottingham Forest’s £130MILLION new stadium upgrade set to eclipse Chelsea’s Stamford Bridge**: [Link](https://www.thesun.co.uk/sport/36994685/nottingham-forest-stadium-upgrade-eclipses-chelsea/)
+
+
+### newcastle vs (N/A, 30/12/2025 15:29 Lima)
+
+- **Premier League: Burnley recibirá a Newcastle United por la fecha 19**: [Link](https://rpp.pe/futbol/ligas-internacionales/premier-league-burnley-recibira-a-newcastle-united-por-la-fecha-19-noticia-1669566)
+- **Oliver Sonne recibe tajante noticia de Burnley de cara a su partido ante Everton por Premier League**: [Link](https://libero.pe/futbol-internacional/2025/12/27/oliver-sonne-recibe-tajante-noticia-de-burnley-de-cara-su-partido-everton-premier-league-2198259)
+- **Eddie Howe must stick by ‘woeful’ Newcastle star vs Burnley, it could save him his job**: [Link](https://www.footballinsider247.com/eddie-howe-must-stick-by-woeful-newcastle-star-vs-burnley-it-could-save-him-his-job/)
+
+
+### semenyo (N/A, 30/12/2025 15:29 Lima)
+
+- **Manchester City step up chase for Antoine Semenyo**: [Link](https://www.thetimes.com/sport/football/article/antoine-semenyo-manchester-city-transfer-news-bournemouth-x6tplck9w)
+- **Jermaine Pennant says Liverpool have been ‘really stupid’ and missed golden opportunity to sign a real star**: [Link](https://www.rousingthekop.com/2025/12/30/jermaine-pennant-says-liverpool-have-been-really-stupid-and-missed-golden-opportunity-to-sign-a-real-star/)
+- **Liverpool transfer news: January twist hands Reds “opportunity” to beat Man City to Antoine Semenyo**: [Link](https://www.sportsmole.co.uk/football/liverpool/transfer-talk/news/january-twist-hands-reds-opportunity-to-beat-man-city-to-antoine-semenyo_588706.html)
+
+
+### rangers vs (N/A, 30/12/2025 15:29 Lima)
+
+- **Rangers and Celtic aren't the forces of the past as Alex Gogic confident of another St Mirren scalp**: [Link](https://www.dailyrecord.co.uk/sport/football/football-news/rangers-celtic-arent-forces-past-36470889)
+- **Team News: Rohl Makes Two Changes For St Mirren At Ibrox**: [Link](https://www.rangers.co.uk/article/team-news-rohl-makes-two-changes-for-st-mirren-at-ibrox/o0QmUdVNcX2I3vTtJjtxz)
+- **Stephen Robinson will make changes for St Mirren’s match at Rangers**: [Link](https://news.stv.tv/sport/football/stephen-robinson-will-make-changes-for-st-mirrens-match-at-rangers)
+
+
+### senegal (N/A, 30/12/2025 15:29 Lima)
+
+- **(VIDEO) Senegal y RD Congo se repartieron los puntos en la Copa de África**: [Link](https://ovacion.pe/noticias/futbol-internacional/video-senegal-rd-congo-se-repartieron-puntos-copa-africa)
+- **Nigeria ganó y accedió a octavos de la Copa de África**: [Link](https://ovacion.pe/noticias/futbol-internacional/nigeria-gano-accedio-octavos-copa-africa)
+- **Partido inaugural de la AFCON 2025 entre Nigeria y Tanzania**: [Link](https://www.ucvradio.pe/mas-actualidad/partido-inaugural-de-la-afcon-2025-entre-nigeria-y-tanzania/84016/)
+
+
+### arsenal - aston villa (N/A, 30/12/2025 15:29 Lima)
+
+- **Premier League LIVE: Commentary, scores, results & updates including Chelsea vs Bournemouth**: [Link](https://www.bbc.com/sport/football/live/cx2nz71d72jt)
+- **Team news: Gabriel and Timber back to face Villa**: [Link](https://www.arsenal.com/news/team-news-gabriel-and-timber-back-face-villa)
+- **Jamie Carragher: 'It's a huge game for Arsenal. Huge opportunity to put some distance between themselves and Aston Villa'**: [Link](https://tribuna.com/en/news/2025-12-30-jamie-carragher-its-a-huge-game-for-arsenal-huge-opportunity-to-put-some-distance-between/)
+
+
+### manchester united - wolves (N/A, 30/12/2025 15:29 Lima)
+
+- **Amorim's team news for United v Wolves**: [Link](https://www.manutd.com/en/news/detail/team-news-for-man-utd-v-wolves-in-premier-league-30-dec-2025)
+- **Exclusive: Mason Mount blow for Manchester United vs Wolverhampton Wanderers**: [Link](https://centredevils.co.uk/news/exclusive-mason-mount-blow-for-manchester-united-vs-wolverhampton-wanderers/)
+- **Shea Lacey should make first Man United start against Wolves after Ruben Amorim comments**: [Link](https://www.unitedinfocus.com/opinion/shea-lacey-should-make-first-man-united-start-against-wolves-after-ruben-amorim-comments/)
+
+
+### senegal vs (N/A, 30/12/2025 15:29 Lima)
+
+- **Senegal–Benin: ambition meets belief in decisive Group D clash**: [Link](https://www.cafonline.com/afcon2025/news/senegal-benin-ambition-meets-belief-in-decisive-group-d-clash/)
+- **Morocco Africa Cup of Nations Soccer**: [Link](https://www.wvnews.com/sports/pro/morocco-africa-cup-of-nations-soccer/image_9ac7007c-9486-5bbd-b9c3-9720bf1d0114.html)
+- **Senegal vs Benin: When and How to Watch AFCON Game**: [Link](https://www.moroccoworldnews.com/2025/12/273396/senegal-vs-benin-when-and-how-to-watch-afcon-game/)
+
+
+### congo vs (N/A, 30/12/2025 15:29 Lima)
+
+- **CAN 2025 : Pape Thiaw à l’heure des choix**: [Link](https://sportnewsafrica.com/articles/can-2025-pape-thiaw-a-lheure-des-choix)
+- **[CAN-J2] Un bon point de pris pour la RD Congo de Kakuta contre un favori, Hervé Koffi attend l’Algérie**: [Link](https://onefootball.com/pt-br/noticias/can-j2-un-bon-point-de-pris-pour-la-rd-congo-de-kakuta-contre-un-favori-herve-koffi-attend-lalgerie-42151685)
+- **Afrique: Revue de presse de l'Afrique francophone du 28 décembre 2025**: [Link](https://fr.allafrica.com/stories/202512280003.html)
+
+
+### barcelona vs real madrid (N/A, 30/12/2025 15:29 Lima)
+
+- **Espanyol y Barcelona disputan el derbi en el arranque del año**: [Link](https://www.espn.com.ar/futbol/espana/nota/_/id/16128843/espanyol-vs-barcelona-fecha-19-la-liga-equipo-fecha-hora-y-tv-en-vivo)
+- **Esperando el 3 de enero**: [Link](https://cronicaglobal.elespanol.com/culemania/hablemos-del-barca/20251228/esperando-enero/1003742719453_12.html)
+- **Manolo González y Hansi Flick: Así son los líderes del derbi más competido del siglo**: [Link](https://www.lavanguardia.com/deportes/rcde-espanyol/20251228/11397200/fuerza-conviccion.html)
+
+
 ### tanzania vs (N/A, 30/12/2025 11:34 Lima)
 
 - **Preview: Tanzania vs Tunisia - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/tanzania/africa-cup-of-nations/preview/tanzania-vs-tunisia-prediction-team-news-lineups_588636.html)
@@ -964,75 +1034,5 @@ Sin noticias relacionadas disponibles.
 - **Maresca updates on duo and the need to rotate | News | Official Site**: [Link](https://www.chelseafc.com/en/news/article/maresca-updates-on-duo-and-the-need-to-rotate)
 - **Chelsea vs. Aston Villa: Preview, Predictions and Lineups**: [Link](https://www.si.com/soccer/chelsea-vs-aston-villa-preview-predictions-and-lineups-12-27-25)
 - **'Chelsea are favourites to fight for the Premier League trophy': Unai Emery**: [Link](https://tribuna.com/en/news/2025-12-26-chelsea-are-favourites-to-fight-for-the-premier-league-trophy-unai-emery/)
-
-
-### dolar peru (N/A, 27/12/2025 03:33 Lima)
-
-- **Precio del dólar con alza: Así se cotiza el tipo de cambio hoy 26 de diciembre en Perú**: [Link](https://www.infobae.com/peru/2025/12/26/valor-de-apertura-del-dolar-en-peru-este-26-de-diciembre-de-usd-a-pen/)
-- **Precio del dólar en Perú: a cuánto cerró el tipo de cambio el viernes 26 de diciembre**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-2025-a-cuanto-esta-el-dolar-este-viernes-26-de-diciembre-tipo-de-cambio-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
-- **Consulta el tipo de cambio oficial del dólar SUNAT para este viernes 26 de diciembre del 2025**: [Link](https://canaln.pe/actualidad/dolar-hoy-peru-tipo-cambio-sunat-este-26-diciembre-n489178)
-
-
-### pulisic (N/A, 27/12/2025 03:33 Lima)
-
-- **Mexico’s double, historic World Cup qualifications lead 2025 Top National Team Moments in Concacaf**: [Link](https://www.concacaf.com/en/news/mexico-s-double-historic-world-cup-qualifications-lead-2025-top-national-team-moments-in-concacaf/)
-- **CONCACAF 2025 Player Rankings: Christian Pulisic and Jonathan David lead race for region’s top honor**: [Link](https://www.goal.com/en-ca/lists/concacaf-2025-player-rankings-christian-pulisic-and-jonathan-david-battle-mexico-s-trophy-winners-for-region-s-top-spot/blt3e2f2ffe9cfd2483)
-- **USMNT star Pulisic the best Serie A player so far, according to Italian journalists**: [Link](https://sports.yahoo.com/articles/usmnt-star-pulisic-best-serie-201000641.html)
-
-
-### anderson (N/A, 27/12/2025 03:33 Lima)
-
-- **Teresa "Faye" Anderson Obituary December 24, 2025**: [Link](https://www.hayworth-miller.com/obituaries/teresa-anderson)
-- **🔴🔵🚨 #LOÚLTIMO | Luto en la política peruana. El congresista Carlos Anderson falleció este viernes, 26 de diciembre, a los 65 años de edad. Así lo pudieron confirmar fuentes de Exitosa. El también economista perdió la vida esta tarde, en circunstancias aún**: [Link](https://www.facebook.com/Exitosanoticias/photos/-lo%C3%BAltimo-luto-en-la-pol%C3%ADtica-peruana-el-congresista-carlos-anderson-falleci%C3%B3-es/1309322577897464/)
-- **Falleció el congresista Carlos Anderson a los 65 años de edad**: [Link](https://caretas.pe/politica/fallecio-el-congresista-carlos-anderson-a-los-65-anos-de-edad/)
-
-
-### camila cabello (N/A, 26/12/2025 23:36 Lima)
-
-- **Camila Cabello Says December Is a 'Triggering Time' After Viral 'Quismois' White House Performance**: [Link](https://people.com/camila-cabello-says-december-is-triggering-time-after-quismois-meme-11876241)
-- **Camila Cabello’s Christmas fail is going viral again: Here’s the clip living rent-free online**: [Link](https://www.hola.com/us/celebrities/20251226874853/camila-cabello-christmas-fail-viral/)
-- **Camila Cabello Reveals Why December Is A 'Triggering Time' For Her**: [Link](https://kiisfm.iheart.com/featured/on-the-move-with-enrique-santos/content/2025-12-26-camila-cabello-reveals-why-december-is-a-triggering-time-for-her/)
-
-
-### huntrix (N/A, 26/12/2025 23:36 Lima)
-
-- **'Can't Believe I'm Going To Say This': Snoop Dogg Did The NFL's Christmas Halftime Show, And Fans Had Some Big Feelings**: [Link](https://www.yahoo.com/entertainment/music/articles/cant-believe-im-going-snoop-184322454.html)
-- **Snoop Dogg leads star-studded NFL halftime show | Reactions**: [Link](https://www.usatoday.com/story/sports/nfl/2025/12/25/snoop-dogg-nfl-halftime-show-k-pop-lainey-wilson-andrea-bocelli/87915660007/)
-- **Snoop Dogg Brought out K-Pop, Country and Opera Stars for Memorable Holiday Halftime Show**: [Link](https://www.today.com/news/sports/snoop-dogg-halftime-show-reactions-rcna251024)
-
-
-### pacers - celtics (N/A, 26/12/2025 21:01 Lima)
-
-- **bet365 Bonus Code WSN365: Get $150 in Bonus Bets Win or Lose for Celtics vs Pacers**: [Link](https://www.wsn.com/nba/bet365-bonus-code-celtics-vs-pacers-12-26-2025/)
-- **How to watch Boston Celtics free stream today**: [Link](https://www.masslive.com/tv/2025/12/how-to-watch-boston-celtics-free-stream-today.html-2)
-- **BSJ Live Coverage: Celtics at Pacers, 7 p.m. - Walsh returns as C's being long road trip**: [Link](https://www.bostonsportsjournal.com/live/bsj-live-coverage-celtics-at-pacers-7-pm---walsh-returns-as-cs-being-long-road-trip)
-
-
-### gta vi (N/A, 26/12/2025 21:01 Lima)
-
-- **"Let's talk in a year": New Lara Croft responds to criticism from the creator of the original Tomb Raider**: [Link](https://ixbt.games/en/news/2025/12/23/pogovorim-cerez-god-novaia-lara-kroft-otvetila-na-kritiku-sozdatelia-originalnoi-tomb-raider.html)
-- **Steam Replay Pokes Fun At GTA 6 Delay (For The Second Time)**: [Link](https://gameranx.com/updates/id/559884/article/steam-replay-pokes-fun-at-gta-6-delay-for-the-second-time/)
-- **Interview: How Call of Duty and gaming can be fixed**: [Link](https://www.esportsbets.com/news/oncade-greg-reisdorf-ex-call-of-duty-director-interview/)
-
-
-### te (N/A, 26/12/2025 21:01 Lima)
-
-- **VS roept Cambodja en Thailand op dodelijk geweld te beëindigen**: [Link](https://www.ad.nl/buitenland/vs-roept-cambodja-en-thailand-op-dodelijk-geweld-te-beeindigen~ae4b1b6d/)
-- **Vietnam presenteert zijn standpunt tijdens de speciale conferentie over de situatie tussen Cambodja en Thailand.**: [Link](https://www.vietnam.vn/nl/viet-nam-neu-quan-diem-tai-hoi-nghi-dac-biet-ve-tinh-hinh-campuchia-thai-lan)
-- **Thailand haalt uit naar Trump om 'overhaaste' vrede: 'Moest op tijd voor de foto'**: [Link](https://www.nu.nl/buitenland/6380399/thailand-haalt-uit-naar-trump-om-overhaaste-vrede-moest-op-tijd-voor-de-foto.html)
-
-
-### temblor hoy (N/A, 26/12/2025 21:01 Lima)
-
-- **Temblor de 4.8 remece Lima este 26 de diciembre**: [Link](https://www.infobae.com/peru/2025/12/27/temblor-de-48-remece-lima-este-26-de-diciembre/)
-- **Sismo de magnitud 4.8 se sintió esta noche en Lima y Callao**: [Link](https://rpp.pe/lima/actualidad/sismo-de-magnitud-48-grados-se-sintio-esta-noche-en-lima-y-callao-noticia-1669367)
-- **Temblor en Perú, hoy 26 de diciembre: ¿dónde fue el epicentro y qué magnitud tuvo?**: [Link](https://gestion.pe/peru/temblor-en-peru-hoy-26-de-diciembre-donde-fue-el-epicentro-noticia/)
-
-
-### senamhi (N/A, 26/12/2025 21:01 Lima)
-
-- **Frío en verano: temperatura noctura de Lima Metropolitana descendería hasta los 13 °C, según Senamhi**: [Link](https://www.infobae.com/peru/2025/12/26/frio-en-verano-temperatura-noctura-de-lima-metropolitana-descenderia-hasta-los-13-c-segun-senamhi/)
-- **¿Qué dijo el Senamhi sobre las temperaturas nocturnas en Lima?**: [Link](https://www.americatv.com.pe/noticias/actualidad/que-dijo-senamhi-sobre-temperaturas-nocturnas-lima-n514266)
-- **Descenso de temperaturas nocturnas se sentirá en la costa peruana entre el 26 y 30 de diciembre**: [Link](https://diariocorreo.pe/edicion/lima/descenso-de-temperaturas-nocturnas-se-sentira-en-la-costa-peruana-entre-el-26-y-30-de-diciembre-noticia/)
 
 
