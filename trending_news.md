@@ -1,3 +1,73 @@
+### helm bank (N/A, 29/12/2025 21:05 Lima)
+
+- **Credicorp anuncia que BCP adquirirá el 100% de Helm Bank en EE.UU.**: [Link](https://gestion.pe/tu-dinero/credicorp-anuncia-que-bcp-adquirira-el-100-de-helm-bank-en-eeuu-noticia/)
+- **Credicorp se expande en EE. UU.: BCP acuerda la compra total de Helm Bank USA por $ 180 millones**: [Link](https://rpp.pe/economia/economia/credicorp-se-expande-en-ee-uu-bcp-acuerda-la-compra-total-de-helm-bank-usa-por-180-millones-noticia-1669615)
+- **Credicorp anunció que el BCP adquirirá el 100% de las acciones de Helm Bank USA**: [Link](https://elcomercio.pe/economia/peru/credicorp-anuncia-que-el-bcp-adquirira-el-100-de-las-acciones-de-helm-bank-usa-noticia/)
+
+
+### whatsapp la app dejará de funcionar en celulares antiguos desde 2026 (N/A, 29/12/2025 21:05 Lima)
+
+- **WhatsApp no va más en estos celulares Android desde el 1 de enero de 2026**: [Link](https://www.infobae.com/tecno/2025/12/29/whatsapp-no-va-mas-en-estos-celulares-android-desde-el-1-de-enero-de-2026/)
+- **Malas noticias para millones de usuarios: estos son los móviles que no podrán usar WhatsApp a partir del 1 de**: [Link](https://as.com/meristation/betech/malas-noticias-para-millones-de-usuarios-estos-son-los-moviles-que-no-podran-usar-whatsapp-a-partir-del-1-de-enero-de-2026-f202512-n/)
+- **WhatsApp dejará de funcionar en estos dispositivos a partir de 2026**: [Link](https://es.digitaltrends.com/celular/whatsapp-dejara-de-funcionar-en-estos-dispositivos-a-partir-de-2026/)
+
+
+### predicciones horóscopo chino 2026 (N/A, 29/12/2025 21:05 Lima)
+
+- **Año Nuevo Chino: por qué 2026 estará regido por el Caballo de Fuego**: [Link](https://www.perfil.com/noticias/sociedad/ano-nuevo-chino-2026-cuando-comienza-y-que-significa-el-caballo-de-fuego.phtml)
+- **2026: ¿el año del fuego?, por Ramiro Escobar**: [Link](https://larepublica.pe/opinion/2025/12/28/2026-el-ano-del-fuego-por-ramiro-escobar-hnews-1538516)
+- **Horóscopo Chino 2026: ¿Cuál es tu signo y quiénes tendrán más suerte el próximo año?**: [Link](https://as.com/us/tikitakas/horoscopo-chino-2026-cual-es-tu-signo-y-quienes-tendran-mas-suerte-el-proximo-ano-f202512-n/)
+
+
+### nets - warriors (N/A, 29/12/2025 21:05 Lima)
+
+- **Stephen Curry and Draymond Green good to go against Brooklyn**: [Link](https://sports.yahoo.com/articles/stephen-curry-draymond-green-good-175759083.html)
+- **How to watch Warriors vs. Nets: TV channel and streaming options for December 29**: [Link](https://www.nytimes.com/athletic/6927225/2025/12/29/warriors-vs-nets-stream-how-to-watch-dec-29/)
+- **bet365 Bonus Code WSN365: Get $150 in Bonus Bets for Warriors vs Nets Win or Lose**: [Link](https://www.wsn.com/nba/bet365-bonus-code-warriors-vs-nets-12-29-2025/)
+
+
+### nuevo comandante general del ejercito (N/A, 29/12/2025 21:05 Lima)
+
+- **El General Oswaldo Calle es el nuevo Comandante General del Ejército del Perú. El General Briceño nuevo Jefe del Comando Conjunto de las Fuerzas Armadas**: [Link](https://www.defensa.com/peru/general-oswaldo-calle-nuevo-comandante-general-ejercito-peru)
+- **Nuevo jefe de las Fuerzas Armadas, Oswaldo Calle, fue investigado por la justicia**: [Link](https://www.infobae.com/peru/2025/12/29/nuevo-jefe-de-las-fuerzas-armadas-oswaldo-calle-fue-investigado-por-la-justicia/)
+- **Nombran a Oswaldo Calle comandante general del Ejercito**: [Link](https://lpderecho.pe/nombran-oswaldo-calle-comandante-general-ejercito/)
+
+
+### terremoto en chimbote (N/A, 29/12/2025 21:05 Lima)
+
+- **Alerta permanente en salud por fuerte sismo en Áncash**: [Link](https://elperuano.pe/noticia/286001-alerta-permanente-en-salud-por-fuerte-sismo-en-ancash)
+- **INGEMMET alertó desde 2015 sobre zonas críticas en Áncash y La Libertad expuestas a deslizamientos y sismos**: [Link](https://canaln.pe/actualidad/zonas-criticas-ancash-y-libertad-fueron-alertadas-2015-n489230)
+- **Tres sismos con epicentro en Chimbote volvieron a sacudir el norte del país**: [Link](https://rpp.pe/peru/actualidad/sismos-en-chimbote-tres-replicas-de-magnitudes-51-38-y-39-este-domingo-y-coer-reporta-44-heridos-en-ancash-danos-en-colegios-y-hospitales-noticia-1669535)
+
+
+### catherine flood (N/A, 29/12/2025 21:05 Lima)
+
+- **Catherine Flood, jugadora de Universitario, denunció amenazas de muerte tras triunfo ante Regatas**: [Link](https://rpp.pe/multideportes/mas-deportes/universitario-catherine-flood-denuncio-amenazas-de-muerte-tras-triunfo-ante-regatas-liga-peruana-de-voley-noticia-1669548)
+- **Catherine Flood: Voleibolista de Universitario de Deportes recibe amenazas de muerte**: [Link](https://www.atv.pe/noticia/catherine-flood-voleibolista-de-universitario-de-deportes-recibe-amenazas-de-muerte/)
+- **Figura de Universitario hace grave denuncia por amenazas en su contra: "Espero que no..."**: [Link](https://libero.pe/deportes/voley/2025/12/29/figura-de-universitario-hace-grave-denuncia-amenazas-en-su-espero-2418745)
+
+
+### norwich vs (N/A, 29/12/2025 21:05 Lima)
+
+- **Norwich City 0-1 Watford: Vivaldo Semedo scores late Hornets winner**: [Link](https://www.bbc.com/sport/football/live/c14vdygyrjzt)
+- **Norwich City 0-1 Watford: Vivaldo Semedo snatches late Hornets win**: [Link](https://www.skysports.com/football/news/11095/13484447/norwich-city-0-1-watford-vivaldo-semedo-snatches-late-hornets-win)
+- **iFollow: Get Your Pass For Norwich Trip!**: [Link](https://www.watfordfc.com/news/2025/december/29/how-to-stream-norwich-watford/)
+
+
+### porto fc (N/A, 29/12/2025 21:05 Lima)
+
+- **Mário Santos admits challenges for FC Porto to launch senior futsal team**: [Link](https://onefootball.com/en/news/mario-santos-admits-challenges-for-fc-porto-to-launch-senior-futsal-team-42156488)
+- **AS Roma vs. Génova (29 de Dic., 2025) Resultados en Vivo**: [Link](https://www.espn.com.pe/futbol/partido/_/juegoId/736946)
+- **Dolphins 20-17 Buccaneers (28 de Dic., 2025) Resultado Final**: [Link](https://www.espn.com.pe/futbol-americano/nfl/juego/_/juegoId/401772916)
+
+
+### birmingham city - southampton (N/A, 29/12/2025 21:05 Lima)
+
+- **The reason why Southampton goal wasn’t ruled out after Birmingham City fury at referee**: [Link](https://www.birminghammail.co.uk/sport/football/football-news/reason-southampton-goal-wasnt-ruled-33137684)
+- **Birmingham City 1-1 Southampton: Cameron Archer earns point for Saints**: [Link](https://www.skysports.com/football/news/11095/13484454/birmingham-city-1-1-southampton-cameron-archer-earns-point-for-saints)
+- **Birmingham City 1-1 Southampton: Birmingham assistant manager Ben Petty on draw**: [Link](https://www.bbc.co.uk/sport/football/articles/cy7v7jjxee6o)
+
+
 ### newjeans (N/A, 29/12/2025 15:30 Lima)
 
 - **NJZ’s (NewJeans) Danielle Could Join THE BLACK LABEL**: [Link](https://www.koreaboo.com/news/njz-newjeans-danielle-join-black-label/)
@@ -963,74 +1033,5 @@ Sin noticias relacionadas disponibles.
 - **Championship LIVE: Birmingham vs Derby & Millwall vs Ipswich - scores, results & updates**: [Link](https://www.bbc.com/sport/football/live/cze6zdw699yt)
 - **Two back amid four changes as Frank Lampard names Coventry City team v Swansea**: [Link](https://www.coventrytelegraph.net/sport/football/football-news/coventry-city-team-news-swansea-33123135)
 - **Your Matchday guide against Swansea City**: [Link](https://www.ccfc.co.uk/news/2025/december/24/your-matchday-guide-for-swansea/)
-
-
-### cardiff - exeter city (N/A, 26/12/2025 11:30 Lima)
-
-- **Preview: Cardiff City vs Exeter City - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/cardiff-city/preview/cardiff-vs-exeter-prediction-team-news-lineups_588401.html)
-- **Boxing Day bring a top of the table test for Exeter City**: [Link](https://www.themoorlander.co.uk/news/sport/1975032/boxing-day-bring-a-top-of-the-table-test-for-exeter-city.html)
-- **Team News | Cardiff City vs. Exeter City**: [Link](https://www.cardiffcityfc.co.uk/news/team-news-cardiff-city-vs-exeter-city)
-
-
-### egipto vs (N/A, 26/12/2025 11:30 Lima)
-
-- **Egipto - Sudáfrica, en directo**: [Link](https://as.com/futbol/internacional/egipto-sudafrica-en-directo-f202512-n/)
-- **Pronóstico Egipto Sudáfrica - CAN 26/12/25**: [Link](https://www.sportytrader.com/es/pronosticos/egipto-sudafrica-313805/)
-- **Copa Africana de Naciones 2025: Nos espera un partido apasionante entre Egipto y Sudáfrica.**: [Link](https://www.vietnam.vn/es/afcon-2025-ruc-lua-tran-ai-cap-nam-phi)
-
-
-### leicester city - watford (N/A, 26/12/2025 11:30 Lima)
-
-- **Predicting Javi Gracia's Watford XI to take on Leicester City on Boxing Day**: [Link](https://www.watfordobserver.co.uk/sport/25721786.predicting-gracias-watford-xi-take-leicester-city/)
-- **EFL Betting Tips: Goals at the King Power**: [Link](https://mrfixitstips.co.uk/efl-betting-tips-goals-at-the-king-power/)
-- **Leicester City team news v Watford as Jannik Vestergaard misses out**: [Link](https://www.leicestermercury.co.uk/sport/football/football-news/leicester-city-team-news-v-10724533)
-
-
-### belgian pro league (N/A, 26/12/2025 11:30 Lima)
-
-- **Bitesize Prediction: Antwerp vs Waregem – 27/12/25**: [Link](https://www.soccernews.com/bitesize-prediction-antwerp-vs-waregem-27-12-25/393824/)
-- **Gent vs Westerlo Prediction and Betting Tips | December 27, 2025**: [Link](https://www.sportskeeda.com/football/gent-vs-westerlo-prediction-betting-tips-december-27-2025)
-
-
-### calendario 2026 (N/A, 26/12/2025 11:30 Lima)
-
-- **🔴🔵El Gobierno peruano hizo público la lista de feriados nacionales para el año 2026. De esta manera, tendrás 16 días para disfrutar de un buen momento en casa o conocer un poco de los atractivos que tiene nuestro país.**: [Link](https://www.facebook.com/Exitosanoticias/posts/el-gobierno-peruano-hizo-p%C3%BAblico-la-lista-de-feriados-nacionales-para-el-a%C3%B1o-202/1307755264720862/)
-- **Calendario 2026 con feriados: Lista de fechas festivas y días no laborables**: [Link](https://libero.pe/tiempoextra/2025/12/26/calendario-2026-feriados-lista-de-fechas-festivas-dias-laborables-1079052)
-- **LA MEJOR NOTICIA | Perú arranca 2026 con un FERIADO LARGO de 4 días consecutivos a NIVEL NACIONAL**: [Link](https://wapa.pe/ocio/2025/12/22/mejor-noticia-peru-arranca-2026-feriado-largo-4-dias-consecutivos-nivel-nacional-1172094)
-
-
-### angola (N/A, 26/12/2025 11:30 Lima)
-
-- **CAN: Angola conquista primeiro ponto com a ajuda de ex-Sporting**: [Link](https://www.abola.pt/noticias/can-angola-conquista-primeiro-ponto-com-a-ajuda-de-ex-sporting-2025122614323431630)
-- **Ary Papel: «Estou aqui para ajudar a selecção angolana»**: [Link](https://www.rfi.fr/pt/%C3%A1frica-lus%C3%B3fona/20251226-ary-papel-estou-aqui-para-ajudar-a-selec%C3%A7%C3%A3o-angolana)
-- **Todas as incidências e os melhores lances do fim de semana desportivo**: [Link](https://www.flashscore.pt/noticias/futebol-liga-portugal-betclic-jornada-ao-vivo-salah-da-vantagem-ao-egito-angola-empata-com-zimbabue/W27ij1aB/)
-
-
-### tipo de cambio sunat (N/A, 26/12/2025 11:30 Lima)
-
-- **Precio del dólar con alza: Así abrió el tipo de cambio hoy 26 de diciembre en Perú**: [Link](https://www.infobae.com/peru/2025/12/26/valor-de-apertura-del-dolar-en-peru-este-26-de-diciembre-de-usd-a-pen/)
-- **Consulta el tipo de cambio oficial del dólar SUNAT para este jueves 26 de diciembre del 2025**: [Link](https://canaln.pe/actualidad/dolar-hoy-peru-tipo-cambio-sunat-este-26-diciembre-n489178)
-- **Precio del dólar HOY en Perú: ¿Cómo cotiza el tipo de cambio este viernes, 26 de diciembre?**: [Link](https://www.exitosanoticias.pe/actualidad/precio-dolar-hoy-peru-como-cotiza-tipo-cambio-viernes-26-diciembre-n165386)
-
-
-### dolar hoy (N/A, 26/12/2025 07:53 Lima)
-
-- **Cambio del dólar hoy: ¿qué pasó en México, Colombia y RD?**: [Link](https://www.msn.com/es-us/noticias/other/cambio-del-d%C3%B3lar-hoy-qu%C3%A9-pas%C3%B3-en-m%C3%A9xico-colombia-y-rd/ar-AA1T4fbY)
-- **Dólar: cotización de apertura hoy 25 de diciembre en Bolivia**: [Link](https://www.infobae.com/noticias/2025/12/25/dolar-cotizacion-de-apertura-hoy-25-de-diciembre-en-bolivia/)
-- **Cotización del dólar hoy 24 de diciembre de 2025**: [Link](https://www.atb.com.bo/2025/12/24/cotizacion-del-dolar-hoy-24-de-diciembre-de-2025/)
-
-
-### linea 1 (N/A, 26/12/2025 07:53 Lima)
-
-- **Navidad en Lima: conoce los horarios del Metropolitano, Metro, corredores y taxis este 24 y 25**: [Link](https://canaln.pe/actualidad/atu-confirma-horarios-transporte-publico-navidad-n489152)
-- **Navidad 2025: Horarios del Metropolitano, Metro y corredores este 24 y 25 de diciembre**: [Link](https://www.atv.pe/noticia/navidad-2025-horarios-del-metropolitano-metro-y-corredores-este-24-y-25-de-diciembre/)
-- **Navidad 2025: conozca los horarios de Línea 1, Línea 2, Metropolitano y demás buses convencionales**: [Link](https://www.expreso.com.pe/actualidad/navidad-2025-conozca-los-horarios-de-linea-1-linea-2-metropolitano-y-demas-buses-convencionales-atu-noticia/1249579/)
-
-
-### el comercio (N/A, 26/12/2025 07:53 Lima)
-
-- **Noche intensa para los bomberos en el inicio de la Navidad: Atendieron más de 60 siniestros solo en Lima y Callao**: [Link](https://www.infobae.com/peru/2025/12/25/noche-intensa-para-los-bomberos-en-el-inicio-de-la-navidad-atendieron-mas-de-60-siniestros-solo-en-lima-y-callao/)
-- **Incendio consumió una fábrica de plásticos en San Juan de Lurigancho tras celebraciones navideñas**: [Link](https://canaln.pe/actualidad/incendio-destruyo-fabrica-plasticos-san-juan-lurigancho-n489167)
-- **La imprudencia de siempre**: [Link](https://elcomercio.pe/opinion/editorial/decenas-de-incendios-se-registran-en-todo-el-pais-en-estas-fechas-por-la-irresponsabilidad-y-la-falta-de-conciencia-noticia/)
 
 
