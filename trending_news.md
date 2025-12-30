@@ -1,3 +1,24 @@
+### temblor hoy chimbote (N/A, 30/12/2025 07:55 Lima)
+
+- **Alerta permanente en salud por fuerte sismo en Áncash**: [Link](https://elperuano.pe/noticia/286001-alerta-permanente-en-salud-por-fuerte-sismo-en-ancash)
+- **Temblor en Perú HOY, 30 de diciembre: Dónde, cuándo y de cuántos grados fue vía IGP**: [Link](https://elcomercio.pe/peru/reporte-de-ultimo-temblor-hoy-en-peru-lugar-del-epicentro-hora-y-magnitud-de-sismos-segun-igp-tdpe-noticia/)
+- **INGEMMET alertó desde 2015 sobre zonas críticas en Áncash y La Libertad expuestas a deslizamientos y sismos**: [Link](https://canaln.pe/actualidad/zonas-criticas-ancash-y-libertad-fueron-alertadas-2015-n489230)
+
+
+### samsung (N/A, 30/12/2025 07:55 Lima)
+
+- **US approves Samsung, SK Hynix chipmaking tool shipments to China for 2026, sources say**: [Link](https://www.reuters.com/world/china/samsung-wins-us-annual-approval-chipmaking-tool-shipments-china-source-says-2025-12-30/)
+- **Samsung wins annual U.S. approval for chipmaking tool shipments to China - report (SSNLF:OTCMKTS)**: [Link](https://seekingalpha.com/news/4535760-samsung-wins-annual-us-approval-for-chipmaking-tool-shipments-to-china---report)
+- **U.S. approves Samsung, SK Hynix chipmaking tool shipments to China for 2026: Reuters**: [Link](https://www.cnbc.com/2025/12/30/us-approves-samsung-sk-hynix-chipmaking-tool-shipments-to-china-for-2026-reuters.html)
+
+
+### helm bank usa (N/A, 30/12/2025 07:55 Lima)
+
+- **Credicorp: BCP acordó la compra del community bank estadounidense Helm Bank**: [Link](https://semanaeconomica.com/economia-finanzas/banca/credicorp-bcp-acordo-la-adquisicion-del-100-de-helm-bank-usa)
+- **BCP compra banco en Estados Unidos por USD 180 millones: las claves del acuerdo**: [Link](https://www.infobae.com/peru/2025/12/29/bcp-compra-banco-en-estados-unidos-por-usd-180-millones-las-claves-del-acuerdo/)
+- **Credicorp anuncia la compra de Helm Bank en EEUU por US$ 180 millones**: [Link](https://dfsud.com/peru/credicorp-anuncia-la-compra-de-helm-bank-en-eeuu-por-us-180-millones)
+
+
 ### terremoto peru (N/A, 30/12/2025 03:36 Lima)
 
 - **Alerta permanente en salud por fuerte sismo en Áncash**: [Link](https://elperuano.pe/noticia/286001-alerta-permanente-en-salud-por-fuerte-sismo-en-ancash)
@@ -1012,26 +1033,5 @@ Sin noticias relacionadas disponibles.
 - **Premier League LIVE: Manchester United vs Newcastle - text commentary, score, stats & updates**: [Link](https://www.bbc.com/sport/football/live/c3w706e7nd4t)
 - **'We're doomed, straight L': – Man United fans spot 'automatic red flag' in starting XI vs Newcastle**: [Link](https://tribuna.com/en/blogs/were-doomed-straight-l-man-united-fans-spot-automatic-red-fl/)
 - **Amorim: I'm a better manager now than when I joined Man Utd**: [Link](https://www.tribalfootball.com/article/soccer-premier-league-amorim-i-m-a-better-manager-now-than-when-i-joined-man-utd-5850d5f2-7cc6-4887-9f25-086d6703fb83)
-
-
-### anderlecht vs (N/A, 26/12/2025 15:27 Lima)
-
-- **Cvetkovic likely to start against Charleroi (24 Dec 25)**: [Link](https://www.anderlecht-online.be/en/article/247924)
-- **Bitesize Prediction: Anderlecht vs Charleroi – 26/12/25**: [Link](https://www.soccernews.com/bitesize-prediction-anderlecht-vs-charleroi-26-12-25/393787/)
-- **Van Driessche referee against Charleroi (23 Dec 25)**: [Link](https://www.anderlecht-online.be/en/article/247901)
-
-
-### mónaco - real madrid (N/A, 26/12/2025 15:27 Lima)
-
-- **AS Monaco - Real Madrid en directo | Euroliga hoy en vivo**: [Link](https://www.marca.com/baloncesto/euroliga/as-monaco-real-madrid/2025/12/26/02_0203_20251226_13240_6210-directo.html)
-- **Scariolo: “Nos enfrentamos a uno de los rivales más complicados”**: [Link](https://www.realmadrid.com/es-ES/noticias/baloncesto/primer-equipo/ruedas-de-prensa/scariolo-declaraciones-25-12-2025)
-- **Noticias Deportes 12:00 (25/12/25)**: [Link](https://www.ondacero.es/podcast/programas/noticias-deportes/noticias-deportes-1200-251225_20251225694d1b67b2fc62000736a283.html)
-
-
-### beso dinamita (N/A, 26/12/2025 15:27 Lima)
-
-- **“Beso dinamita” supera a “Stranger Things” en fin de año: ¿Qué hace especial a este drama coreano?**: [Link](https://elcomercio.pe/tvmas/series/beso-dinamita-supera-a-stranger-things-en-fin-de-ano-que-hace-especial-a-este-drama-coreano-noticia/)
-- **‘Beso dinamita’: reparto, episodios y por qué este k-drama es el nuevo fenómeno de Netflix**: [Link](https://rpp.pe/tv/streaming/beso-dinamita-reparto-episodios-y-por-que-este-k-drama-es-el-nuevo-fenomeno-de-netflix-noticia-1669227)
-- **¿'Beso dinamita' tendrá temporada 2 en Netflix?: todo lo que debes saber del k-drama tras su final**: [Link](https://larepublica.pe/cultura-asiatica/2025/12/25/beso-dinamita-tendra-temporada-2-en-netflix-todo-lo-que-debes-saber-del-kdrama-tras-su-final-2371400)
 
 
