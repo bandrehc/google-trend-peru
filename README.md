@@ -1,3 +1,73 @@
+### tanzania vs (N/A, 30/12/2025 11:34 Lima)
+
+- **Preview: Tanzania vs Tunisia - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/tanzania/africa-cup-of-nations/preview/tanzania-vs-tunisia-prediction-team-news-lineups_588636.html)
+- **Tunisia coach Sami Trabelsi: 'Tactics are important, but without mental strength it’s difficult to win'- ahead of Tanzania clash**: [Link](https://boldsportsng.com/tunisia-coach-sami-trabelsi-tactics-are-important-but-without-mental-strength-its-difficult-to-win-ahead-of-tanzania-clash/)
+- **2025 AFCON Group C Match Preview: Tanzania vs Tunisia**: [Link](https://www.ghanaweb.com/GhanaHomePage/SportsArchive/2025-AFCON-Group-C-Match-Preview-Tanzania-vs-Tunisia-2015687)
+
+
+### al ahli vs (N/A, 30/12/2025 11:34 Lima)
+
+- **Hidd SCC vs Al-Ahli Prediction: 1/1/2026 – Premier League Betting Tips**: [Link](https://dailystar.com.lb/hidd-scc-vs-al-ahli-prediction-1-1-2026-premier-league/)
+- **Jaissle Explodes After the Defeat.. Reveals the Reason Behind the Loss to Al-Fateh**: [Link](https://www.ysscores.com/en/news/13879120/Jaissle-Explodes-After-the-Defeat..-Reveals-the-Reason-Behind-the-Loss-to-Al-Fateh)
+- **Al Ahli vs Al Fayha Preview & Prediction**: [Link](https://www.thestatszone.com/al-ahli-vs-al-fayha-preview-prediction-163311)
+
+
+### al ahli (N/A, 30/12/2025 11:34 Lima)
+
+- **Jaissle Explodes After the Defeat.. Reveals the Reason Behind the Loss to Al-Fateh**: [Link](https://www.ysscores.com/en/news/13879120/Jaissle-Explodes-After-the-Defeat..-Reveals-the-Reason-Behind-the-Loss-to-Al-Fateh)
+- **Al Ahli vs Al Fayha Preview & Prediction**: [Link](https://www.thestatszone.com/al-ahli-vs-al-fayha-preview-prediction-163311)
+- **Intriguing Reaction from José Gomes After Al-Fateh’s Win Over Al-Ahli in the Roshn League**: [Link](https://koorabreak.com/en/235926/)
+
+
+### uganda - nigeria (N/A, 30/12/2025 11:34 Lima)
+
+- **Nigeria XI vs Uganda: Starting lineup and confirmed team news**: [Link](https://www.standard.co.uk/sport/football/nigeria-xi-vs-uganda-starting-lineup-confirmed-team-news-injury-latest-afcon-2025-today-b1264239.html)
+- **AFCON 2025: Osimhen, Lookman, Nwabali, Ajayi Risk Suspension**: [Link](https://en.africatopsports.com/2025/12/30/afcon-2025-osimhen-lookman-nwabali-ajayi-risk-suspension/)
+- **Uganda v Nigeria: Africa Cup of Nations 2025 – live**: [Link](https://www.theguardian.com/football/live/2025/dec/30/uganda-v-nigeria-africa-cup-of-nations-2025-live?page=with:block-6953fba78f087b8b68f5e9a8)
+
+
+### tanzania - túnez (N/A, 30/12/2025 11:34 Lima)
+
+- **Pronóstico Tanzanía Túnez - CAN 30/12/25**: [Link](https://www.sportytrader.com/es/pronosticos/tanzania-tunez-314783/)
+- **Tanzania - Túnez en directo - Copa de África: Resultados y resúmenes de Fútbol - 30/12/2025**: [Link](https://espanol.eurosport.com/futbol/copa-de-africa/2025/live-tanzania-tunez_mtc1584156/live-commentary.shtml)
+- **¡En Vivo! Tanzania vs Túnez en la AFCON 2025 por beIN SPORTS**: [Link](https://www.beinsports.com/es-us/football/copa-africana-de-naciones/articles/-en-vivo-tanzania-vs-t%C3%BAnez-en-la-afcon-2025-por-bein-sports-2025-12-29)
+
+
+### chelsea vs bournemouth (N/A, 30/12/2025 11:34 Lima)
+
+- **Enzo Maresca confirms Chelsea team news for Bournemouth | News | Official Site**: [Link](https://www.chelseafc.com/en/news/article/enzo-maresca-chelsea-team-news-bournemouth-december-2025)
+- **Football Bet of the Day: Back goals at the Bridge on Tuesday**: [Link](https://mrfixitstips.co.uk/football-bet-of-the-day-back-goals-at-the-bridge-on-tuesday/)
+- **Chelsea boss drops worrying Reece James and Cole Palmer update**: [Link](https://theprideoflondon.com/chelsea-boss-reece-james-cole-palmer-update)
+
+
+### federico girotti (N/A, 30/12/2025 11:34 Lima)
+
+- **Federico Girotti dejó Talleres y es nuevo jugador de Alianza Lima**: [Link](https://www.espn.com.ar/futbol/peru/nota/_/id/16076924/federico-girotti-dejo-talleres-y-es-refuerzo-de-alianza-lima-2026)
+- **¡Llegó el ‘9’ de Guede! Federico Girotti aterrizó en Lima para sellar su vínculo con Alianza**: [Link](https://depor.com/futbol-peruano/descentralizado/alianza-lima-federico-girotti-llego-a-lima-para-firmar-su-contrato-cuando-lo-presentan-liga-1-fichajes-2026-noticia/)
+- **Federico Girotti es oficialmente nuevo jugador de Alianza Lima**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/federico-girotti-oficialmente-nuevo-jugador-alianza-lima-n452145)
+
+
+### feriados 2026 (N/A, 30/12/2025 11:34 Lima)
+
+- **¿Hoy 30 de diciembre es feriado en Perú? La norma oficializada ya lo aclara**: [Link](https://www.infobae.com/peru/2025/12/29/hay-asueto-manana-30-de-diciembre-en-peru-esto-deben-saber-los-trabajadores-del-sector-publico-y-privado/)
+- **¡Atención! Conoce los feriados calendario para este 2026**: [Link](https://www.atv.pe/noticia/atencion-conoce-los-feriados-calendario-para-este-2026/)
+- **Feriados 2026: Estos son los 16 días no laborales para el sector público y privado en Perú | video | ACTUALIDAD**: [Link](https://trome.com/actualidad/feriados-2026-estos-son-los-16-dias-no-laborales-para-el-sector-publico-y-privado-en-peru-video-noticia/)
+
+
+### el peru a toda maquina (N/A, 30/12/2025 11:34 Lima)
+
+- **‘¡El Perú a toda máquina!’ José Jerí establece frase para la publicidad institucional en 2026**: [Link](https://www.infobae.com/peru/2025/12/30/el-peru-a-toda-maquina-jose-jeri-establece-frase-para-la-publicidad-institucional-en-2026/)
+- **"¡El Perú a toda máquina!": Ejecutivo establece frase y logo para toda publicidad institucional en 2026**: [Link](https://rpp.pe/politica/gobierno/el-peru-a-toda-maquina-ejecutivo-establece-frase-y-logo-para-toda-publicidad-institucional-en-2026-noticia-1669660)
+- **¡El Perú a toda máquina!, Gobierno de Jerí lanza lema oficial para publicidad institucional**: [Link](https://gestion.pe/peru/politica/gobierno-de-jose-jeri-el-peru-a-toda-maquina-lanza-lema-para-toda-su-publicidad-institucional-noticia/)
+
+
+### el peruano (N/A, 30/12/2025 11:34 Lima)
+
+- **El Peruano te informa: consulta aquí las principales normas legales para hoy, lunes 29 de Diciembre del 2025**: [Link](https://elperuano.pe/noticia/285999-el-peruano-te-informa-consulta-aqui-las-principales-normas-legales-para-hoy-lunes-29-de-diciembre-del-2025)
+- **Estas son las normas legales más importantes del lunes 29 de diciembre del 2025**: [Link](https://andina.pe/agencia/noticia-estas-son-las-normas-legales-mas-importantes-del-lunes-29-diciembre-del-2025-1057291.aspx)
+- **Nueva norma de sonómetros 2025: verifica tus equipos y evita observaciones en fiscalización**: [Link](https://elperuano.pe/noticia/286068-nueva-norma-de-sonometros-2025-verifica-tus-equipos-y-evita-observaciones-en-fiscalizacion)
+
+
 ### temblor hoy chimbote (N/A, 30/12/2025 07:55 Lima)
 
 - **Alerta permanente en salud por fuerte sismo en Áncash**: [Link](https://elperuano.pe/noticia/286001-alerta-permanente-en-salud-por-fuerte-sismo-en-ancash)
@@ -964,74 +1034,5 @@ Sin noticias relacionadas disponibles.
 - **Frío en verano: temperatura noctura de Lima Metropolitana descendería hasta los 13 °C, según Senamhi**: [Link](https://www.infobae.com/peru/2025/12/26/frio-en-verano-temperatura-noctura-de-lima-metropolitana-descenderia-hasta-los-13-c-segun-senamhi/)
 - **¿Qué dijo el Senamhi sobre las temperaturas nocturnas en Lima?**: [Link](https://www.americatv.com.pe/noticias/actualidad/que-dijo-senamhi-sobre-temperaturas-nocturnas-lima-n514266)
 - **Descenso de temperaturas nocturnas se sentirá en la costa peruana entre el 26 y 30 de diciembre**: [Link](https://diariocorreo.pe/edicion/lima/descenso-de-temperaturas-nocturnas-se-sentira-en-la-costa-peruana-entre-el-26-y-30-de-diciembre-noticia/)
-
-
-### dolar cotizacion (N/A, 26/12/2025 21:01 Lima)
-
-- **Precio del dólar con alza: Así se cotiza el tipo de cambio hoy 26 de diciembre en Perú**: [Link](https://www.infobae.com/peru/2025/12/26/valor-de-apertura-del-dolar-en-peru-este-26-de-diciembre-de-usd-a-pen/)
-- **Precio del dólar en Perú: a cuánto cerró el tipo de cambio el viernes 26 de diciembre**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-2025-a-cuanto-esta-el-dolar-este-viernes-26-de-diciembre-tipo-de-cambio-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
-- **Consulta el tipo de cambio oficial del dólar SUNAT para este viernes 26 de diciembre del 2025**: [Link](https://canaln.pe/actualidad/dolar-hoy-peru-tipo-cambio-sunat-este-26-diciembre-n489178)
-
-
-### carlos anderson (N/A, 26/12/2025 21:01 Lima)
-
-- **Falleció el congresista Carlos Anderson a los 65 años**: [Link](https://www.infobae.com/peru/2025/12/26/fallecio-el-congresista-carlos-anderson-a-los-65-anos/)
-- **Falleció el congresista Carlos Anderson**: [Link](https://gestion.pe/peru/politica/fallecio-el-congresista-carlos-anderson-noticia/)
-- **Falleció Carlos Anderson: congresista y economista a los 65 años**: [Link](https://www.expreso.com.pe/actualidad/fallecio-carlos-anderson-congresista-y-economista-a-los-65-anos-parlamento-noticia/1250316/)
-
-
-### sedapal corte de agua programado (N/A, 26/12/2025 21:01 Lima)
-
-- **Sedapal suspenderá su servicio en tres distritos de Lima este viernes 26 de diciembre: ¿Qué zonas serán afectadas?**: [Link](https://www.infobae.com/peru/2025/12/25/sedapal-suspendera-su-servicio-en-tres-distritos-de-lima-este-viernes-26-de-diciembre-que-zonas-seran-afectadas/)
-- **Corte de agua en Lima hoy 26 de diciembre: Distritos y horarios afectados**: [Link](https://rpp.pe/lima/obras/corte-de-agua-en-lima-hoy-26-de-diciembre-distritos-y-horarios-afectados-noticia-1669262)
-- **Sedapal anuncia corte de agua este sábado 27 de diciembre: distrito afectado y horarios**: [Link](https://libero.pe/tiempoextra/2025/12/26/sedapal-anuncia-corte-de-agua-sabado-27-de-diciembre-distrito-afectado-horarios-614770)
-
-
-### feriados peru (N/A, 26/12/2025 21:01 Lima)
-
-- **Ejecutivo declaró al 26 de diciembre y al 2 de enero como días no laborables: ¿a quiénes se aplica este beneficio?**: [Link](https://rpp.pe/politica/gobierno/ejecutivo-declaro-al-26-de-diciembre-y-al-2-de-enero-como-dias-no-laborables-a-quienes-se-aplica-este-beneficio-noticia-1669186)
-- **Hoy 26 de diciembre: ¿descansas o compensas? Conoce qué aplica en tu trabajo**: [Link](https://www.elperuano.pe/noticia/285837-hoy-26-de-diciembre-descansas-o-compensas-conoce-que-aplica-en-tu-trabajo)
-- **Días no laborables**: [Link](https://caretas.pe/nacional/dias-no-laborables/)
-
-
-### sydney sweeney (N/A, 26/12/2025 21:01 Lima)
-
-- **From the kiss-cam scandal to Wicked witches, these are our top pop-culture moments of 2025**: [Link](https://www.theage.com.au/culture/celebrity/from-the-kiss-cam-scandal-to-wicked-witches-these-are-our-top-pop-culture-moments-of-2025-20251215-p5nnrh.html)
-- **Year-Ender 2025: Biggest Entertainment And Sartorial Moments Of The Year**: [Link](https://www.outlookindia.com/art-entertainment/year-ender-2025-biggest-entertainment-and-sartorial-moments-of-the-year-in-pics)
-- **Seven of the biggest social-media moments of 2025**: [Link](https://www.thenewdaily.com.au/life/social-media-life/2025/12/26/2025-social-media-moments)
-
-
-### perry bamonte (N/A, 26/12/2025 15:27 Lima)
-
-- **Perry Bamonte, integrante de The Cure, falleció a los 65 años: "Será recordado con gran cariño"**: [Link](https://rpp.pe/famosos/celebridades/perry-bamonte-integrante-de-the-cure-fallecio-a-los-65-anos-noticia-1669337)
-- **Muere Perry Bamonte, guitarrista de The Cure, a los 65 años**: [Link](https://www.ucvradio.pe/noticias-del-mundo/muere-perry-bamonte-guitarrista-de-the-cure-a-los-65-anos/86601/)
-
-
-### aston villa vs. manchester united (N/A, 26/12/2025 15:27 Lima)
-
-- **Aston Villa vs Manchester United: Manchester United Left to Rue Missed Opportunities in Defeat**: [Link](https://extratimetalk.com/aston-villa-vs-manchester-united-defeat/)
-- **Rogers Fires Twice For Villa’s Title Run**: [Link](https://www.sarawaktribune.com/rogers-fires-twice-for-villas-title-run/)
-- **Ruben Amorim showed vs Villa he has already learned from his worst moment as Man Utd boss this season**: [Link](https://www.unitedinfocus.com/opinion/ruben-amorim-showed-vs-villa-he-has-already-learned-from-his-worst-moment-as-man-utd-boss-this-season/)
-
-
-### anderlecht (N/A, 26/12/2025 15:27 Lima)
-
-- **Injury update Mario Stroeykens and Ilay Camara**: [Link](https://www.rsca.be/en/news/stroeykens-camara)
-- **Downsizing selection first (25 Dec 25)**: [Link](https://www.anderlecht-online.be/en/article/247928)
-- **Camara and Stroeykens out of action for at least another month (24 Dec 25)**: [Link](https://www.anderlecht-online.be/en/article/247922)
-
-
-### marruecos - malí (N/A, 26/12/2025 15:27 Lima)
-
-- **Marruecos - Mali, en directo**: [Link](https://as.com/futbol/internacional/marruecos-mali-en-directo-f202512-n/)
-- **Marruecos - Malí en directo | Copa de África hoy en vivo**: [Link](https://www.marca.com/futbol/copa-de-africa/marruecos-mali/2025/12/26/01_0167_20251226_1057_1218-directo.html)
-- **Pronóstico Marruecos Malí - CAN 26/12/25**: [Link](https://www.sportytrader.com/es/pronosticos/marruecos-mali-314075/)
-
-
-### manchester united - newcastle (N/A, 26/12/2025 15:27 Lima)
-
-- **Premier League LIVE: Manchester United vs Newcastle - text commentary, score, stats & updates**: [Link](https://www.bbc.com/sport/football/live/c3w706e7nd4t)
-- **'We're doomed, straight L': – Man United fans spot 'automatic red flag' in starting XI vs Newcastle**: [Link](https://tribuna.com/en/blogs/were-doomed-straight-l-man-united-fans-spot-automatic-red-fl/)
-- **Amorim: I'm a better manager now than when I joined Man Utd**: [Link](https://www.tribalfootball.com/article/soccer-premier-league-amorim-i-m-a-better-manager-now-than-when-i-joined-man-utd-5850d5f2-7cc6-4887-9f25-086d6703fb83)
 
 
