@@ -1,3 +1,38 @@
+### terremoto peru (N/A, 30/12/2025 03:36 Lima)
+
+- **Alerta permanente en salud por fuerte sismo en Áncash**: [Link](https://elperuano.pe/noticia/286001-alerta-permanente-en-salud-por-fuerte-sismo-en-ancash)
+- **Temblor en Perú HOY, 30 de diciembre: Dónde, cuándo y de cuántos grados fue vía IGP**: [Link](https://elcomercio.pe/peru/reporte-de-ultimo-temblor-hoy-en-peru-lugar-del-epicentro-hora-y-magnitud-de-sismos-segun-igp-tdpe-noticia/)
+- **INGEMMET alertó desde 2015 sobre zonas críticas en Áncash y La Libertad expuestas a deslizamientos y sismos**: [Link](https://canaln.pe/actualidad/zonas-criticas-ancash-y-libertad-fueron-alertadas-2015-n489230)
+
+
+### mormon church (N/A, 30/12/2025 03:36 Lima)
+
+- **Remembering the Life of President Jeffrey R. Holland**: [Link](https://newsroom.churchofjesuschrist.org/article/president-jeffrey-r-holland-memorial)
+- **LDS President Dallin Oaks has yet another chance to name a new apostle. Whom might he pick?**: [Link](https://www.sltrib.com/religion/2025/12/28/lds-church-president-dallin-oaks/)
+- **‘Weeping’: Anglican priest shares his emotional reaction to the loss of President Jeffrey R. Holland**: [Link](https://www.deseret.com/faith/2025/12/29/weeping-anglican-priest-shares-his-emotional-reaction-to-the-loss-of-president-jeffrey-r-holland/)
+
+
+### trail blazers - mavericks (N/A, 30/12/2025 03:36 Lima)
+
+- **Discuss Blazers-Mavericks Second Half Here!**: [Link](https://www.blazersedge.com/gameday-coverage/107144/discuss-blazers-mavericks-second-half-here)
+- **Trail Blazers show 'growth' in win over Mavericks**: [Link](https://www.nbcsports.com/watch/nba/portland-trail-blazers-show-growth-in-win-over-dallas-mavericks)
+- **Game Recap: Trail Blazers 125, Mavericks 122**: [Link](https://www.nba.com/watch/video/game-recap-trail-blazers-125-mavericks-122?plsrc=nba&collection=2025-26-game-recaps)
+
+
+### arsenal vs aston villa (N/A, 30/12/2025 03:36 Lima)
+
+- **Preview: Arsenal v Aston Villa | Pre-Match Report | News**: [Link](https://www.arsenal.com/news/preview-arsenal-v-aston-villa-2)
+- **Arsenal's Eberechi Eze could emulate Harry Kane and Spurs cult hero in Aston Villa Premier League clash**: [Link](https://www.sportsmole.co.uk/football/arsenal/news/why-berbatov-and-kane-chasing-eze-could-be-arsenals-secret-weapon-against-villa_588697.html)
+- **Tuesday’s football tips: Villa destroyer Onana 7/5 for over 1.5 fouls in battle with the Gunners**: [Link](https://mrfixitstips.co.uk/tuesdays-football-tips-villa-destroyer-onana-7-5-for-over-1-5-fouls-in-battle-with-the-gunners/)
+
+
+### lyon fc (N/A, 30/12/2025 03:36 Lima)
+
+- **À trois ou quatre derrière, quelle structure pour l'OL en 2026 ?**: [Link](https://www.olympique-et-lyonnais.com/a-trois-ou-quatre-derriere-quelle-structure-pour-lol-en-2026,387598.html)
+- **Transferts : Endrick va être prêté à l'OL**: [Link](https://www.lequipe.fr/Football/Actualites/Mercato-endrick-l-international-bresilien-du-real-madrid-va-etre-prete-a-l-ol/1628965)
+- **OL : Ernest Nuamah et Malick Fofana annoncent d’excellentes nouvelles**: [Link](https://www.goal.com/fr/listes/ol-ernest-nuamah-et-malick-fofana-annoncent-d-excellentes-nouvelles/blt5abe01f74d0b6c69)
+
+
 ### helm bank (N/A, 29/12/2025 21:05 Lima)
 
 - **Credicorp anuncia que BCP adquirirá el 100% de Helm Bank en EE.UU.**: [Link](https://gestion.pe/tu-dinero/credicorp-anuncia-que-bcp-adquirira-el-100-de-helm-bank-en-eeuu-noticia/)
@@ -998,40 +1033,5 @@ Sin noticias relacionadas disponibles.
 - **“Beso dinamita” supera a “Stranger Things” en fin de año: ¿Qué hace especial a este drama coreano?**: [Link](https://elcomercio.pe/tvmas/series/beso-dinamita-supera-a-stranger-things-en-fin-de-ano-que-hace-especial-a-este-drama-coreano-noticia/)
 - **‘Beso dinamita’: reparto, episodios y por qué este k-drama es el nuevo fenómeno de Netflix**: [Link](https://rpp.pe/tv/streaming/beso-dinamita-reparto-episodios-y-por-que-este-k-drama-es-el-nuevo-fenomeno-de-netflix-noticia-1669227)
 - **¿'Beso dinamita' tendrá temporada 2 en Netflix?: todo lo que debes saber del k-drama tras su final**: [Link](https://larepublica.pe/cultura-asiatica/2025/12/25/beso-dinamita-tendra-temporada-2-en-netflix-todo-lo-que-debes-saber-del-kdrama-tras-su-final-2371400)
-
-
-### feriados no laborables (N/A, 26/12/2025 15:27 Lima)
-
-- **Calendario de feriados 2026: los fines de semana largos y días no laborables que habrá, mes a mes**: [Link](https://www.infobae.com/sociedad/2025/12/26/calendario-de-feriados-2026-los-fines-de-semana-largos-y-dias-no-laborables-que-habra-mes-a-mes/)
-- **El Gobierno definió los tres días no laborables con fines turísticos**: [Link](https://comercioyjusticia.info/leyes-y-comentarios/el-gobierno-definio-los-tres-dias-no-laborables-con-fines-turisticos/)
-- **hotelera archivos**: [Link](https://economis.com.ar/tag/hotelera/)
-
-
-### al hilal - al khaleej (N/A, 26/12/2025 15:27 Lima)
-
-- **Al-Hilal 3-2 Al-Khaleej: Malcom's goal enough after visitors fightback**: [Link](https://www.fotmob.com/news/gmok6jceltrf1gcjud87offf5-al-hilal-3-2-al-khaleej-malcoms-goal-enough-after-visitors-fightback)
-- **Absence of Three Key Players in Al Hilal Ahead of the Match Against Al Khaleej**: [Link](https://www.ysscores.com/en/news/13878609/Absence-of-Three-Key-Players-in-Al-Hilal-Ahead-of-the-Match-Against-Al-Khaleej)
-- **Al-Hilal vs Al-Khaleej December 26 2025 Blue Waves chase 15th straight win seeking to extend dominance**: [Link](https://www.red94.net/news/73413-al-hilal-takes-on-al-khaleej-in-crucial-saudi-pro-league-clash-blue-waves-look-t/)
-
-
-### jorge luna (N/A, 26/12/2025 11:30 Lima)
-
-- **¿Cómo Jorge Luna, de Hablando Huevadas, se volvió millonario y cuánto estaría ganando al mes?**: [Link](https://www.infobae.com/peru/2025/12/23/como-jorge-luna-de-hablando-huevadas-se-volvio-millonario-y-cuanto-estaria-ganando-al-mes/)
-- **Jorge Luna consolida imperio empresarial y se posiciona como uno de los creadores más rentables del país**: [Link](https://diarioviral.pe/peru/jorge-luna-consolida-imperio-empresarial-y-se-posiciona-como-uno-de-los-creadores-mas-rentables-del-pais-50274)
-- **Las claves para ganar más de 300 millones de pesos al mes que siguió el comediante peruano Jorge Luna**: [Link](https://www.diarioadn.co/noticias/las-claves-para-ganar-mas-de-300-millones-de-pesos-al-mes-que-siguio-el-comediante-peruano+articulo+71904)
-
-
-### union saint-gilloise (N/A, 26/12/2025 11:30 Lima)
-
-- **Bologna interested in Union St Gilloise defender**: [Link](https://sports.yahoo.com/articles/bologna-interested-union-st-gilloise-160600524.html)
-- **Bologna interested in Union St Gilloise defender**: [Link](https://onefootball.com/fr/news/bologna-interested-in-union-st-gilloise-defender-42140494)
-- **Victor Osimhen’s Scorching Form Faces Belgian Test in Crucial Champions League Clash**: [Link](https://inews.zoombangla.com/?p=3163360)
-
-
-### coventry vs (N/A, 26/12/2025 11:30 Lima)
-
-- **Championship LIVE: Birmingham vs Derby & Millwall vs Ipswich - scores, results & updates**: [Link](https://www.bbc.com/sport/football/live/cze6zdw699yt)
-- **Two back amid four changes as Frank Lampard names Coventry City team v Swansea**: [Link](https://www.coventrytelegraph.net/sport/football/football-news/coventry-city-team-news-swansea-33123135)
-- **Your Matchday guide against Swansea City**: [Link](https://www.ccfc.co.uk/news/2025/december/24/your-matchday-guide-for-swansea/)
 
 
