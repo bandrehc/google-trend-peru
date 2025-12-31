@@ -1,3 +1,59 @@
+### 31 de diciembre fin de año (N/A, 31/12/2025 03:36 Lima)
+
+- **Guía de conciertos y fiestas para despedir el 2025: precios, horarios y detalles de los principales shows para recibir el Año Nuevo**: [Link](https://www.infobae.com/peru/2025/12/27/ano-nuevo-guia-de-conciertos-y-fiestas-para-despedir-el-2025-precios-horarios-y-detalles-de-los-principales-shows-para-recibir-2026/)
+- **Diez destinos ideales para recibir el Año Nuevo 2026**: [Link](https://peru21.pe/peru/diez-destinos-ideales-para-recibir-el-ano-nuevo-2026/)
+- **¿Sin planes para Año Nuevo? 5 destinos baratos y ubicados en Lima que puedes visitar el 1 de enero**: [Link](https://elcomercio.pe/respuestas/donde/sin-planes-para-ano-nuevo-5-destinos-baratos-y-ubicados-en-lima-que-puedes-visitar-el-1-de-enero-tdpe-noticia/)
+
+
+### new year's eve (N/A, 31/12/2025 03:36 Lima)
+
+- **What time does Walmart, Target, Macy's, PetSmart, Kohl's, other stores open and close on New Year's Eve? Check out list | Hindustan Times**: [Link](https://www.hindustantimes.com/world-news/us-news/what-time-does-walmart-target-macys-petsmart-kohls-other-stores-open-and-close-on-new-years-eve-check-out-list-101767165081484.html)
+- **Everything You Need to Know About Walmart's New Year's Day Hours**: [Link](https://www.yahoo.com/lifestyle/articles/everything-know-walmarts-years-day-045500231.html)
+- **New Year’s Day Brings Closures And Changes Nationwide**: [Link](https://evrimagaci.org/gpt/new-years-day-brings-closures-and-changes-nationwide-521780)
+
+
+### nochevieja (N/A, 31/12/2025 03:36 Lima)
+
+- **Cómo proteger a tu mascota de la pirotecnia en Año Nuevo: Guía paso a paso**: [Link](https://www.atv.pe/noticia/como-proteger-a-tu-mascota-de-la-pirotecnia-en-ano-nuevo-guia-paso-a-paso/)
+- **La Nochevieja y el perjudicial efecto de los petardos en algunos animales**: [Link](https://efe.com/espana/2025-12-31/nochevieja-petardos-animales/)
+- **Alan Peiró, adiestrador canino, detalla cómo ayudar a tu perro a sobrellevar el miedo a los fuegos artificiales: “Son aterradores para muchos perros”**: [Link](https://www.lavanguardia.com/mascotas/20251230/11403861/fuegos-artificiales-perros-miedo-fin-de-ano-epm.html)
+
+
+### fin de año (N/A, 31/12/2025 03:36 Lima)
+
+- **El ritual del 1 de enero para atraer la buena suerte este 2026, según tu signo del horóscopo**: [Link](https://www.vanitatis.elconfidencial.com/horoscopo/2025-12-31/ritual-buena-suerte-1-enero-2026-horoscopo-signo_4274389/)
+- **Año Nuevo en Arequipa: Amuletos desde 2 soles y rituales andinos para recibir el 2026 (VIDEO)**: [Link](https://diariocorreo.pe/edicion/arequipa/ano-nuevo-en-arequipa-amuletos-desde-2-soles-y-rituales-andinos-para-recibir-el-2026-video-noticia/)
+- **Cábalas para Año Nuevo 2026: los mejores rituales para atraer amor, dinero y limpiar energías negativas**: [Link](https://larepublica.pe/datos-lr/2025/12/30/cabalas-para-ano-nuevo-2026-los-mejores-rituales-para-atraer-amor-dinero-y-limpiar-energias-negativas-atmp-2118990)
+
+
+### ministerio de educación (N/A, 31/12/2025 03:36 Lima)
+
+- **Año escolar 2026: Niños que cumplan 3 años antes de esta fecha podrán ingresar a educación inicial, según Minedu**: [Link](https://www.infobae.com/peru/2025/12/28/ano-escolar-2026-ninos-que-cumplan-3-anos-antes-de-esta-fecha-podran-ingresar-a-educacion-inicial/)
+- **MINEDU activará matrícula digital desde el 19 de enero en Lima, Callao y otras regiones**: [Link](https://canaln.pe/actualidad/matricula-digital-minedu-iniciara-19-enero-n489266)
+- **Año escolar 2026: implementan dos modalidades de matrícula para garantizar acceso gratuito**: [Link](https://elperuano.pe/noticia/286118-ano-escolar-2026-implementan-dos-modalidades-de-matricula-para-garantizar-acceso-gratuito)
+
+
+### interbank (N/A, 31/12/2025 03:36 Lima)
+
+- **Horario de atención BCP, Banco de la Nación y Scotiabank este 31 de diciembre**: [Link](https://libero.pe/tiempoextra/2025/12/30/horario-de-atencion-bcp-banco-de-nacion-scotiabank-31-de-diciembre-1-de-enero-ano-nuevo-594450)
+- **Cómo hacer trámites urgentes durante el feriado: conoce los únicos servicios públicos que atienden el 25 de diciembre**: [Link](https://www.infobae.com/peru/2025/12/23/como-hacer-tramites-urgentes-durante-el-feriado-conoce-los-unicos-servicios-publicos-que-atienden-el-25-de-diciembre/)
+- **¿Habrá atención de los bancos para este miércoles 31 de diciembre y jueves 1 de enero?**: [Link](https://larepublica.pe/economia/2025/12/29/horario-de-atencion-de-los-bancos-para-este-miercoles-31-de-diciembre-y-jueves-1-de-enero-bcp-interbank-bbva-scotiabank-y-banco-de-la-nacion-atmp-1443446)
+
+
+### lebron james (N/A, 31/12/2025 03:36 Lima)
+
+- **LeBron James Serenaded With 'Happy Birthday' Song At Lakers Practice**: [Link](https://www.tmz.com/2025/12/30/lebron-james-41st-birthday-celebration-los-angeles-lakers/)
+- **“I have trouble getting out of bed in the morning and …**: [Link](https://www.hoopshype.com/story/sports/nba/rumors/2025/12/30/i-have-trouble-getting-out-of-bed-in-the-morning-and/87957191007/)
+- **Deandre Ayton Explains The Secret Behind LeBron James’ Longevity**: [Link](https://fadeawayworld.net/nba/los-angeles-lakers/deandre-ayton-explains-the-secret-behind-lebron-james-longevity)
+
+
+### weather tomorrow (N/A, 31/12/2025 03:36 Lima)
+
+- **Minnesota weather: Tracking light snow and falling temps to end the year**: [Link](https://www.mprnews.org/story/2025/12/30/tracking-light-snow-and-falling-temps-to-end-the-year)
+- **First Alert: Like snow and a spotty wintry mix on Wednesday**: [Link](https://www.kttc.com/2025/12/30/first-alert-like-snow-spotty-wintry-mix-wednesday/)
+- **Snow showers will move through on New Year's Eve**: [Link](https://www.nbcconnecticut.com/weather-news/stories/snow-showers-will-move-through-on-new-years-eve/3681024/)
+
+
 ### lakers - pistons (N/A, 30/12/2025 23:41 Lima)
 
 - **Pistons vs Lakers Picks & Odds Today: Detroit To Snap Skid On Road**: [Link](https://www.oddsshark.com/nba/pistons-lakers-picks-odds-december-30-2025)
@@ -976,61 +1032,5 @@ Sin noticias relacionadas disponibles.
 - **Pronóstico Nigeria Túnez - CAN 27/12/25**: [Link](https://www.sportytrader.com/es/pronosticos/nigeria-tunez-314233/)
 - **Lookman deja atrás sus demonios**: [Link](https://as.com/futbol/internacional/lookman-deja-atras-sus-demonios-f202512-n/)
 - **Nigeria vs Tanzania Pronóstico y Apuestas | 23/12/25**: [Link](https://www.apuestas-deportivas.es/pronostico/nigeria-tanzania-pronostico-copa-africana-de-naciones-23-12-2025/)
-
-
-### juventus vs (N/A, 27/12/2025 15:27 Lima)
-
-- **Game Time Thread: Juventus vs. Pisa**: [Link](https://sports.yahoo.com/articles/game-time-thread-juventus-vs-183000331.html)
-- **Idrissa Toure vs. Juventus – Player props & odds to score a goal on December 27**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/12/27/idrissa-toure-soccer-player-props-12-27-2025/87925578007/)
-- **Spalletti explains unexpected Juventus changes and new roles**: [Link](https://football-italia.net/spalletti-explains-unexpected-juventus-changes/)
-
-
-### pisa - juventus (N/A, 27/12/2025 15:27 Lima)
-
-- **Serie A: in campo Pisa-Juventus 0-0 DIRETTA**: [Link](https://www.ansa.it/sito/notizie/sport/calcio/2025/12/27/serie-a-in-campo-pisa-juventus-0-0-diretta_a8dd1f0a-3e08-41d2-b345-7b044cab2d97.html)
-- **Pisa-Juve | ✅ UFFICIALI: la scelta su David, McKennie, Tramoni e Bremer**: [Link](https://onefootball.com/en/news/pisa-juve-ufficiali-la-scelta-su-david-mckennie-tramoni-e-bremer-42150199)
-- **Serie A | Le formazioni ufficiali di Pisa-Juventus**: [Link](https://www.juventus.com/it/news/articoli/serie-a-2025-2026-pisa-juventus-formazioni-ufficiali)
-
-
-### jesus alcantar (N/A, 27/12/2025 15:27 Lima)
-
-- **Jale internacional para Melgar: futbolista mexicano llega al ‘Dominó’ a pedido de Juan Reynoso**: [Link](https://depor.com/futbol-peruano/descentralizado/melgar-fichara-refuerzo-internacional-mexicano-quien-es-jesus-alcantar-en-que-equipos-jugo-y-el-pedido-de-juan-reynoso-liga-1-noticia/)
-- **Jesús Alcántar se suma a las filas del FBC Melgar**: [Link](https://diariocorreo.pe/deportes/jesus-alcantar-se-suma-a-las-filas-del-fbc-melgar-noticia/)
-- **Melgar rompe el mercado con futbolista de selección que jugó en el Sporting de Lisboa**: [Link](https://libero.pe/futbol-peruano/liga-1/2025/12/27/melgar-rompe-mercado-futbolista-de-seleccion-jugo-en-sporting-de-lisboa-liga-1-885519)
-
-
-### billy arce (N/A, 27/12/2025 15:27 Lima)
-
-- **Campeón en Brasil, Colombia y Ecuador: el fichajazo que apuntan en Universitario**: [Link](https://depor.com/futbol-peruano/descentralizado/universitario-posible-refuerzo-en-la-mira-el-extremo-ecuatoriano-billy-arce-opcion-de-los-cremas-junta-a-dos-equipos-colombianos-de-gran-paso-en-ecuador-brasil-y-colombia-video-noticia/)
-- **Universitario apunta a un fichaje de alto calibre desde Colombia**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/universitario-apunta-fichaje-alto-calibre-desde-colombia-n452120)
-- **Fichajes de Universitario 2026 EN VIVO: nuevos jugadores, rumores, renovaciones y salidas confirmadas**: [Link](https://www.infobae.com/peru/deportes/2025/12/24/fichajes-de-universitario-2026-en-vivo-nuevos-jugadores-rumores-renovaciones-y-salidas-confirmadas/)
-
-
-### famalicao (N/A, 27/12/2025 15:27 Lima)
-
-- **Diário da Jornada | Estrela arranca empolgante vitória em Famalicão**: [Link](https://goalpoint.pt/diario-da-jornada-16_219601)
-- **Tricolores vencem em Famalicão**: [Link](https://www.ligaportugal.pt/news/26329/tricolores-vencem-em-famalicao)
-- **FC Famalicão x Est. Amadora - Resumo, Destaques e Crónica do Jogo**: [Link](https://sapo.pt/artigo/fc-famalicao-x-est-amadora-resumo-destaques-e-cronica-do-jogo-69502da252dc24aee9cdd64a)
-
-
-### dólar hoy perú (N/A, 27/12/2025 15:27 Lima)
-
-- **Precio del dólar con alza: Así se cotiza el tipo de cambio hoy 27 de diciembre en Perú**: [Link](https://www.infobae.com/peru/2025/12/26/valor-de-apertura-del-dolar-en-peru-este-26-de-diciembre-de-usd-a-pen/)
-- **Precio del dólar en Perú: a cuánto cerró el tipo de cambio el viernes 26 de diciembre**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-2025-a-cuanto-esta-el-dolar-este-viernes-26-de-diciembre-tipo-de-cambio-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
-- **Consulta el tipo de cambio oficial del dólar SUNAT para este viernes 26 de diciembre del 2025**: [Link](https://canaln.pe/actualidad/dolar-hoy-peru-tipo-cambio-sunat-este-26-diciembre-n489178)
-
-
-### bruno pinasco (N/A, 27/12/2025 11:30 Lima)
-
-- **“Estamos muy orgullosos de nunca haber caído en la tentación del populismo televisivo”: la historia de “Cinescape” y su adiós tras 25 años**: [Link](https://elcomercio.pe/somos/historias/bruno-pinasco-y-el-fin-de-cinescape-el-programa-que-empezo-con-el-vhs-y-con-solo-4-personas-noticia/)
-- **Bruno Pinasco llevará 'Cinescape' a YouTube tras 25 años en la televisión: "La diversión recién comienza"**: [Link](https://www.exitosanoticias.pe/espectaculos/bruno-pinasco-llevara-cinescape-youtube-tras-25-anos-television-la-diversion-recien-comienza-n165460)
-- **Bruno Pinasco se despide de 'Cinescape' tras 25 años: este sábado 27 de diciembre será su último programa**: [Link](https://larepublica.pe/espectaculos/2025/12/24/bruno-pinasco-se-despide-de-cinescape-tras-25-anos-el-programa-de-cine-mas-longevo-de-la-tv-peruana-dice-adios-1530576)
-
-
-### arsenal football club (N/A, 27/12/2025 11:30 Lima)
-
-- **Arsenal could ‘hijack’ Man City’s Antoine Semenyo deal after confirmed news**: [Link](https://www.footballinsider247.com/arsenal-could-hijack-man-citys-antoine-semenyo-deal-after-confirmed-news/)
-- **Antoine Semenyo’s preference to join Manchester City from Bournemouth - The Athletic**: [Link](https://www.nytimes.com/athletic/6915594/2025/12/23/antoine-semenyo-manchester-city-transfer/)
-- **Fabrizio Romano: Liverpool remain in contact with forward over January move**: [Link](https://onefootball.com/en/news/fabrizio-romano-liverpool-remain-in-contact-with-forward-over-january-move-42146536)
 
 
