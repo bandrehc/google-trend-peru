@@ -1,3 +1,31 @@
+### lakers - pistons (N/A, 30/12/2025 23:41 Lima)
+
+- **Pistons vs Lakers Picks & Odds Today: Detroit To Snap Skid On Road**: [Link](https://www.oddsshark.com/nba/pistons-lakers-picks-odds-december-30-2025)
+- **Rui Hachimura Expected to Miss One Week Due to Calf Soreness**: [Link](https://news.ssbcrack.com/rui-hachimura-expected-to-miss-one-week-due-to-calf-soreness/)
+- **BetMGM bonus code NYPDM1600: Get a 20% first deposit match up to $1,600 for Pistons vs. Lakers**: [Link](https://nypost.com/2025/12/30/betting/betmgm-bonus-code-nypdm1500-get-a-20-first-deposit-match-up-to-1600-for-pistons-vs-lakers/)
+
+
+### jazz - celtics (N/A, 30/12/2025 23:41 Lima)
+
+- **Live updates: Celtics, Jazz facing off in Utah**: [Link](https://www.nbcboston.com/nba/boston-celtics/live-updates-highlights-score-jazz/3869685/)
+- **Bruins prospects Hagens, Zellers dominating for Team USA at World Juniors**: [Link](https://sports.yahoo.com/articles/bruins-prospects-hagens-zellers-dominating-114639980.html)
+- **Tiny Nick's Gambling Picks 12/30**: [Link](https://zonecoverage.com/2025/gambling/tiny-nicks-gambling-picks-12-30-6/)
+
+
+### speed test (N/A, 30/12/2025 23:41 Lima)
+
+- **Fact vs. Fiction: Holloman High Speed Test Track Modernization – What We Know as of December 29, 2025**: [Link](https://2ndlifemediaalamogordo.town.news/g/alamogordo-nm/n/354084/fact-vs-fiction-holloman-high-speed-test-track-modernization-what-we-know)
+- **Vande Bharat Sleeper train clocks 180 kmph between Kota Nagda section, Ashwini Vaishnaw shares video: Watch | India News**: [Link](https://www.hindustantimes.com/india-news/vande-bharat-sleeper-train-clocks-180-kmph-between-kota-nagda-section-ashwini-vaishnaw-shares-video-watch-101767109119385.html)
+- **Vande Bharat sleeper clocks 180 kmph! Ashwini Vaishnaw shares video of train’s ‘water test’; watch**: [Link](https://timesofindia.indiatimes.com/business/infrastructure/vande-bharat-sleeper-clocks-180-kmph-ashwini-vaishnaw-shares-video-of-trains-water-test-watch/articleshow/126254357.cms)
+
+
+### peru rail (N/A, 30/12/2025 23:41 Lima)
+
+- **Gobernador del Cusco denuncia “repartija” de heridos “por parte de clínicas privadas” tras choque de trenes**: [Link](https://rpp.pe/peru/cusco/gobernador-del-cusco-denuncia-repartija-de-heridos-por-parte-de-clinicas-privadas-tras-choque-de-trenes-noticia-1669772)
+- **Choque entre trenes de Inca Rail y Perurail: lo que se sabe de la tragedia que se registró en la ruta a Machu Picchu**: [Link](https://elcomercio.pe/peru/cusco/choque-entre-trenes-de-inca-rail-y-perurail-lo-que-se-sabe-de-la-tragedia-que-se-registro-en-la-ruta-a-machu-picchu-noticia/)
+- **Choque de trenes en Cusco: Minsa envía 12 ambulancias a la zona para atender a los heridos**: [Link](https://elperuano.pe/noticia/286147-choque-de-trenes-en-cusco-minsa-envia-12-ambulancias-a-la-zona-para-atender-a-los-heridos)
+
+
 ### grizzlies - 76ers (N/A, 30/12/2025 21:05 Lima)
 
 - **Tyrese Maxey, Sixers face Ja Morant, Grizzlies in FINAL game of 2025**: [Link](https://bvmsports.com/2025/12/30/tyrese-maxey-sixers-face-ja-morant-grizzlies-in-final-game-of-2025/)
@@ -1004,33 +1032,5 @@ Sin noticias relacionadas disponibles.
 - **Arsenal could ‘hijack’ Man City’s Antoine Semenyo deal after confirmed news**: [Link](https://www.footballinsider247.com/arsenal-could-hijack-man-citys-antoine-semenyo-deal-after-confirmed-news/)
 - **Antoine Semenyo’s preference to join Manchester City from Bournemouth - The Athletic**: [Link](https://www.nytimes.com/athletic/6915594/2025/12/23/antoine-semenyo-manchester-city-transfer/)
 - **Fabrizio Romano: Liverpool remain in contact with forward over January move**: [Link](https://onefootball.com/en/news/fabrizio-romano-liverpool-remain-in-contact-with-forward-over-january-move-42146536)
-
-
-### senegal (N/A, 27/12/2025 11:30 Lima)
-
-- **Javier Rabanal trae a uno de sus favoritos a Universitario: fue su goleador en Países Bajos**: [Link](https://depor.com/futbol-peruano/descentralizado/universitario-javier-rabanal-tiene-en-la-mira-como-fichaje-a-fran-sol-delantero-espanol-fue-su-goleador-en-willem-ii-de-paises-bajos-detalles-y-posible-acuerdo-video-noticia/)
-- **Universitario duda en el '9': Un español formado en el Real Madrid o un senegalés**: [Link](https://peru21.pe/deportes/universitario-duda-en-el-9-un-espanol-ex-real-madrid-o-senegales-de-barcelona/)
-- **Universitario estaría cerca de fichar a Sekou Gassama, delantero senegalés proveniente del fútbol español**: [Link](https://larepublica.pe/deportes/2025/12/24/universitario-estaria-cerca-de-fichar-a-sekou-gassama-delantero-senegales-proveniente-del-futbol-espanol-637392)
-
-
-### liverpool vs (N/A, 27/12/2025 11:30 Lima)
-
-- **How To Watch Liverpool vs. Wolves: Live Streams And TV Channels**: [Link](https://www.thisisanfield.com/2025/12/how-to-watch-liverpool-vs-wolves-live-streams-and-tv-channels/)
-- **Premier League / Liverpool - Wolverhampton: the official lineups are in!**: [Link](https://foot-africa.com/en/news/premier-league-liverpool-wolverhampton-the-official-lineups-are-in-1019384/)
-- **Preview: Liverpool host luckless Wolves at Anfield**: [Link](https://www.fotmob.com/topnews/24757-preview-liverpool-host-luckless-wolves-at-anfield?utm_source=fotmob)
-
-
-### senegal vs (N/A, 27/12/2025 11:30 Lima)
-
-- **LIVE: AFCON 2025 - Rolling updates of today’s action and key moments (27 December)**: [Link](https://www.cafonline.com/afcon2025/news/live-afcon-2025-rolling-updates-of-today-s-action-and-key-moments-27-december/)
-- **CAN 2025 - Senegal vs DR Congo: Lahlou Benbraham, a referee who brings luck to both teams**: [Link](https://foot-africa.com/en/news/can-2025-senegal-vs-dr-congo-lahlou-benbraham-a-referee-who-brings-luck-to-both-teams-1019285/)
-- **Morocco Africa Cup of Nations Soccer**: [Link](https://www.wvnews.com/sports/pro/morocco-africa-cup-of-nations-soccer/image_10919e44-6642-5a21-9ea0-c1eef96024b4.html)
-
-
-### livingston - celtic f. c. (N/A, 27/12/2025 11:30 Lima)
-
-- **Celtic starting XI to face Livingston**: [Link](https://www.celticfc.com/news/2025/december/27/celtic-starting-xi-to-face-livingston/)
-- **Matthew MacDermid then Kevin Clancy to referee Celtic’s next two matches**: [Link](https://thecelticstar.com/matthew-macdermid-then-kevin-clancy-to-referee-celtics-next-two-matches/)
-- **A hectic schedule awaits Celtic and Wilfried Nancy. The baptism of fire continues**: [Link](https://readceltic.com/2025/12/26/a-hectic-schedule-awaits-celtic-and-wilfried-nancy-the-baptism-of-fire-continues/)
 
 
