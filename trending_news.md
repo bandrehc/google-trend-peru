@@ -1,3 +1,70 @@
+### supercopa de españa (N/A, 31/12/2025 11:32 Lima)
+
+- **Mbappé, baja para el Betis sin descartarse la Supercopa**: [Link](https://as.com/futbol/real-madrid/mbappe-baja-para-el-betis-sin-descartarse-la-supercopa-f202512-n/)
+- **¡¡¡Mbappé, lesionado!!!**: [Link](https://www.mundodeportivo.com/futbol/real-madrid/20251231/1002594235/mbappe-lesionado.html)
+- **Algo no iba bien: el gesto de Mbappé a Carreras tras tener que parar en el entrenamiento a puerta abierta**: [Link](https://www.marca.com/futbol/real-madrid/2025/12/31/iba-bien-gesto-mbappe-carreras-parar-entrenamiento-puerta-abierta-video.html)
+
+
+### guinea ecuatorial - argelia (N/A, 31/12/2025 11:32 Lima)
+
+- **Guinea Ecuatorial vs Argelia: Resultado EN VIVO, minuto a minuto y goles de la Copa Africana de Naciones**: [Link](https://www.365scores.com/es/news/guinea-ecuatorial-vs-argelia-resultados/)
+- **Guinea Ecuatorial busca cerrar con dignidad la Copa Africana**: [Link](https://www.sportytrader.es/actualidad/can-2025-guinea-ecuatorial-vs-argelia/)
+- **Guinea Ecuatorial vs Algeria: pronósticos, cuotas, y datos para apostar**: [Link](https://www.apwin.com/es/pronosticos/equatorial-guinea-vs-algeria-pronostico-africa-cup-of-nations-31-12-2025/)
+
+
+### cabalas (N/A, 31/12/2025 11:32 Lima)
+
+- **Año Nuevo: Revelamos las cábalas que no fallan para recibir este 2026**: [Link](https://www.atv.pe/noticia/ano-nuevo-revelamos-las-cabalas-que-no-fallan-para-recibir-este-2026/)
+- **Año Nuevo, ¿suerte nueva? Sigue estas cábalas para asegurar el éxito este 2026 (VIDEOS)**: [Link](https://peru21.pe/espectaculos/ano-nuevo-suerte-nueva-sigue-estas-cabalas-para-asegurar-el-exito-este-2026-videos/)
+- **Cábalas de Año Nuevo 2026: 7 rituales para atraer la suerte, el amor, salud y dinero**: [Link](https://elpopular.pe/actualidad/2025/12/29/cabalas-para-ano-nuevo-2026-5-rituales-para-atraer-amor-salud-y-prosperidad-886037)
+
+
+### neom sports club - al ittihad (N/A, 31/12/2025 11:32 Lima)
+
+- **Preview: NEOM SC vs Al-Ittihad - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/al-ittihad/preview/neom-sc-vs-al-ittihad-prediction-team-news-lineups_588704.html)
+- **Conceição Announces Al-Ittihad Squad for Match Against NEOM in the League**: [Link](https://www.ysscores.com/en/news/13881580/Concei%C3%A7%C3%A3o-Announces-Al-Ittihad-Squad-for-Match-Against-NEOM-in-the-League)
+- **Neom SC vs Al Ittihad Preview, prediction, lineups, betting tips & odds | Saudi Pro League 2025-26**: [Link](https://khelnow.com/football/world-football-neom-sc-vs-al-ittihad-preview-202512)
+
+
+### año nuevo chino 2026 (N/A, 31/12/2025 11:32 Lima)
+
+- **Predicciones del horóscopo chino para 2026: cómo te irá en el Año del Caballo de Fuego**: [Link](https://elcomercio.pe/respuestas/que/predicciones-del-horoscopo-chino-2026-en-el-ano-del-caballo-de-fuego-que-animal-tarera-mejor-suerte-tdpe-noticia/)
+- **Horóscopo chino 2026: así será el Año del Caballo de Fuego para cada signo | Año Nuevo | ACTUALIDAD**: [Link](https://trome.com/actualidad/horoscopo-chino-2026-asi-sera-el-ano-del-caballo-de-fuego-para-cada-signo-ano-nuevo-noticia/)
+- **Los productos con temática ecuestre vuelan de las estanterías antes del Año Nuevo chino**: [Link](https://espanol.cgtn.com/news/2025-12-29/2005457012937510914/index.html)
+
+
+### nombre del año 2026 (N/A, 31/12/2025 11:32 Lima)
+
+- **¿Cuál será el nombre oficial del año 2026 en Perú?**: [Link](https://elcomercio.pe/respuestas/tramites/cual-sera-el-nombre-oficial-del-ano-2026-en-peru-tdpe-noticia/)
+- **Nombre del Año 2026 en Perú: ¿cómo se decide, para qué sirve y qué nombres eligieron los años anteriores?**: [Link](https://larepublica.pe/datos-lr/2025/12/30/nombre-del-ano-2026-en-peru-como-se-decide-para-que-sirve-y-que-nombres-eligieron-los-anos-anteriores-atmp-1142280)
+
+
+### australia (N/A, 31/12/2025 11:32 Lima)
+
+- **New Year’s 2026 Celebrations Around the World: Photos and Videos**: [Link](https://www.nytimes.com/2025/12/31/world/new-years-2026-celebrations-photos.html)
+- **New Year celebrations: World ends 2025, welcomes 2026 with fireworks and fragile truces**: [Link](https://www.nbcnews.com/world/asia/new-year-celebrations-world-2025-2026-sydney-trump-ukraine-gaza-peace-rcna251651)
+- **Asia rings in 2026 and Australia is defiant after its worst mass shooting**: [Link](https://apnews.com/article/new-year-eve-2026-celebration-33d891df335fd824b29cff8994c61ca9)
+
+
+### mtv (N/A, 31/12/2025 11:32 Lima)
+
+- **MTV to pull the plug on multiple music channels this week**: [Link](https://www.syracuse.com/entertainment/2025/12/mtv-to-pull-the-plug-on-multiple-music-channels-this-week.html)
+- **MTV: A Farewell to the Channel That Changed Our World**: [Link](https://www.thatericalper.com/2025/12/30/mtv-a-farewell-to-the-channel-that-changed-our-world/)
+- **Eight beloved channels disappear from all Sky and Virgin Media boxes TODAY in final TV shut down of 2025**: [Link](https://www.thesun.co.uk/tech/37764296/eight-channels-shutting-down-sky-virgin-media/)
+
+
+### malory vargas al fondo hay sitio (N/A, 31/12/2025 11:32 Lima)
+
+- **¡Se aman! Exchica reality y querida actriz muestran TODO su amor con romántica publicación**: [Link](https://www.atv.pe/noticia/se-aman-exchica-reality-y-querida-actriz-muestran-todo-su-amor-con-romantica-publicacion/)
+- **🔴🔵Liliana Castro Mannarelli protagoniza romántico momento con exactriz de ‘Al fondo hay sitio’**: [Link](https://www.facebook.com/Exitosanoticias/posts/liliana-castro-mannarelli-protagoniza-rom%C3%A1ntico-momento-con-exactriz-de-al-fondo/1312458677583854/)
+- **Exchica reality Liliana Castro Mannarelli se luce muy enamorada de recordada actriz de ‘Al fondo hay sitio’ en restaurante: “A tu lado”**: [Link](https://larepublica.pe/espectaculos/2025/12/30/empresaria-liliana-castro-mannarelli-se-luce-muy-enamorada-de-exactriz-de-al-fondo-hay-sitio-en-restaurante-a-tu-lado-974850)
+
+
+### bryce dallas (N/A, 31/12/2025 11:32 Lima)
+
+- **Filming Star Wars' Ahsoka season 2 was "magical" for Bryce Dallas Howard, and more fun than Jurassic World or anything else in her adult life**: [Link](https://www.thepopverse.com/tv-bryce-dallas-howard-ahsoka-three-words-disney-plus)
+
+
 ### normas legales el peruano (N/A, 31/12/2025 07:54 Lima)
 
 - **Revise las principales normas legales publicadas del domingo 21 al sábado 27 de Diciembre del 2025**: [Link](https://www.elperuano.pe/noticia/285997-revise-las-principales-normas-legales-publicadas-del-domingo-21-al-sabado-27-de-diciembre-del-2025)
@@ -962,75 +1029,5 @@ Sin noticias relacionadas disponibles.
 - **Taiwan rattled by 7.0 magnitude quake, no major damage reported**: [Link](https://www.cnn.com/2025/12/27/asia/taiwan-earthquake-tremors-intl-latam)
 - **7.0-magnitude earthquake rattles Taiwan**: [Link](https://www.dw.com/en/70-magnitude-earthquake-rattles-taiwan/a-75317087)
 - **TSMC says some facilities evacuated after quake**: [Link](https://www.reuters.com/world/asia-pacific/tsmc-says-some-facilities-evacuated-after-quake-2025-12-27/)
-
-
-### ipg (N/A, 27/12/2025 23:49 Lima)
-
-- **'India's next media consolidation will be regional, not corporate'**: [Link](https://www.manifest-media.in/media-/241225/indias-next-media-consolidation-will-be-regional-not-corporate.html)
-- **Omnicom–IPG face 2026 pitch test | CTV leads video shift | FSSAI Warns on ‘Herbal Tea’**: [Link](https://www.storyboard18.com/special-coverage/omnicom-ipg-face-2026-pitch-test-ctv-leads-video-shift-fssai-warns-on-herbal-tea-86609.htm)
-- **Inside India’s 2026 Media Pitches: How Omnicom–IPG will be tested beyond scale**: [Link](https://www.storyboard18.com/advertising/inside-indias-2026-media-pitches-how-omnicom-ipg-will-be-tested-beyond-scale-86522.htm)
-
-
-### sismo (N/A, 27/12/2025 23:49 Lima)
-
-- **Un sismo de magnitud 6.0 con epicentro en Chimbote remeció Lima y otras regiones**: [Link](https://rpp.pe/lima/actualidad/un-sismo-de-magnitud-60-remecio-esta-noche-lima-y-otras-regiones-noticia-1669460)
-- **Cuatro temblores remecen al Perú en un solo día y reactivan la alerta sobre prevención sísmica**: [Link](https://www.infobae.com/peru/2025/12/27/tres-temblores-remecen-lima-y-callao-en-un-solo-dia-y-reactivan-la-alerta-sobre-prevencion-sismica/)
-- **Temblor en Perú HOY, 27 de diciembre: ¿En qué lugar se produjo el último sismo de magnitud 6,0?**: [Link](https://larepublica.pe/sociedad/2025/12/27/temblor-en-peru-hoy-sabado-27-de-diciembre-del-2025-magnitud-epicentro-y-mas-sobre-sismos-recientes-segun-igp-ultimo-sismo-en-lima-ica-callao-y-otras-provincias-atmp-1330446)
-
-
-### rpp noticias (N/A, 27/12/2025 23:49 Lima)
-
-- **Falleció Carlos Anderson a los 65 años: ¿quién asumiría su escaño en el Congreso?**: [Link](https://www.infobae.com/peru/2025/12/27/fallecio-carlos-anderson-a-los-65-anos-quien-asumiria-su-escano-en-el-congreso/)
-- **Falleció el congresista Carlos Anderson**: [Link](https://gestion.pe/peru/politica/fallecio-el-congresista-carlos-anderson-noticia/)
-- **Presidencia de la República expresa condolencias por fallecimiento de Carlos Anderson**: [Link](https://andina.pe/agencia/noticia-presidencia-de-republica-expresa-condolencias-fallecimiento-carlos-anderson-1057131.aspx)
-
-
-### sekou gassama futbolista (N/A, 27/12/2025 21:21 Lima)
-
-- **Rugirá en Ate: Universitario anunció fichaje de Seskou Gassama para la temporada 2026**: [Link](https://depor.com/futbol-peruano/descentralizado/seskou-gassama-fichajes-universitario-2026-anuncio-oficial-del-delantero-senegales-para-liga-1-video-noticia/)
-- **Universitario presentó a su nuevo delantero: ‘La Pantera’ Sekou Gassama**: [Link](https://trome.com/deportes/futbol-peruano/universitario-presento-a-su-nuevo-delantero-la-pantera-sekou-gassama-noticia/)
-- **¡Llegó el ‘9’! Sekou Gassama es anunciado como el nuevo fichaje de Universitario de Deportes**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/universitario-sekou-gassama-es-anunciado-como-el-nuevo-fichaje-de-la-u-liga-1-noticia/)
-
-
-### latina tv (N/A, 27/12/2025 21:21 Lima)
-
-- **Hasta que la plata nos separe, Viernes 26 de diciembre – ver capítulo 46 completo**: [Link](https://www.latina.pe/entretenimiento/hasta-que-la-plata-nos-separe-novela/hasta-que-la-plata-nos-separe-viernes-26-de-diciembre-ver-capitulo-46-completo_20251226/)
-- **¿Cuál es tu pedido? Martes 16 de diciembre – PROGRAMA COMPLETO**: [Link](https://www.latina.pe/entretenimiento/cual-es-tu-pedido/programas-completos-cual-es-tu-pedido/cual-es-tu-pedido-martes-16-de-diciembre-programa-completo_20251217/)
-- **Yo Soy – Viernes 26 de Diciembre – PROGRAMA COMPLETO**: [Link](https://www.latina.pe/entretenimiento/yo-soy/programas-completos-yo-soy/yo-soy-viernes-26-de-diciembre-programa-completo_20251226/)
-
-
-### kings - mavericks (N/A, 27/12/2025 21:21 Lima)
-
-- **Russell Westbrook lauds Kings' effort in Sacramento's clutch win over Mavericks**: [Link](https://www.nbcsportsbayarea.com/video/nba/sacramento-kings/russell-westbrook-interview-watch-video/1902549/)
-- **Player Grades: Recapping Mavericks vs. Kings**: [Link](https://www.mavsmoneyball.com/dallas-mavericks-game-coverage/54139/mavs-kings-cooper-flagg-keon-clark-mavs-lose-113-107)
-- **Cooper Flagg's Determination Praised by NBA Fans As Mavs Lose to Westbrook, Kings**: [Link](https://bleacherreport.com/articles/25340182-cooper-flaggs-determination-praised-nba-fans-mavs-lose-westbrook-kings)
-
-
-### alianza vs san martin voley (N/A, 27/12/2025 21:21 Lima)
-
-- **Tabla de posiciones de la Liga Peruana de Vóley 2025/26: así van los equipos durante la fecha 10 de la primera fase**: [Link](https://www.infobae.com/peru/deportes/2025/12/27/tabla-de-posiciones-liga-peruana-de-voley-2025-2026-en-vivo-fecha-10-alianza-lima-universitario-san-martin-regatas-resultados/)
-- **Alianza Lima vs. San Martín: ¿a qué hora juegan y dónde ver EN VIVO hoy por la Liga Peruana de Vóley?**: [Link](https://rpp.pe/voley/mas-voley/alianza-lima-vs-san-martin-en-vivo-a-que-hora-juegan-y-donde-ver-fecha-10-liga-peruana-de-voley-2025-via-latina-voley-en-vivo-noticia-1669215)
-- **Universitario contra Regatas: día, hora y canal del partido por la fecha 10 en la Liga Peruana de Vóley**: [Link](https://larepublica.pe/deportes/2025/12/26/universitario-contra-regatas-dia-hora-y-canal-del-partido-por-la-fecha-10-en-la-liga-peruana-de-voley-1727076)
-
-
-### nigeria fc (N/A, 27/12/2025 15:27 Lima)
-
-- **Matawalle FC Clinches Mailafia Peace, Unity Cup Trophy**: [Link](https://von.gov.ng/matawalle-fc-clinches-mailafia-peace-unity-cup-trophy/)
-- **Matawalle FC clinch 9th ACP Mailafia Peace, Unity Football Tournament**: [Link](https://thesun.ng/matawalle-fc-clinch-9th-acp-mailafia-peace-unity-football-tournament/)
-- **NPFL: Niger Tornadoes target victory over Barau FC**: [Link](https://dailypost.ng/2025/12/26/npfl-niger-tornadoes-target-victory-over-barau-fc/)
-
-
-### nigeria (N/A, 27/12/2025 15:27 Lima)
-
-- **Trump’s Claims About Nigeria Strike Belie a Complex Situation on the Ground**: [Link](https://www.nytimes.com/2025/12/26/world/africa/trump-isis-strikes-nigeria-christians-facts.html)
-- **US air strikes won’t fix Nigeria’s security crisis but could make it worse**: [Link](https://www.aljazeera.com/opinions/2025/12/27/us-air-strikes-wont-fix-nigerias-security-crisis-but-could-make-it-worse)
-- **Opinion | Trump Bombs ISIS in Africa**: [Link](https://www.wsj.com/opinion/donald-trump-strikes-isis-nigeria-terrorism-christians-pete-hegseth-pentagon-32d8f2b4?gaa_at=eafs&gaa_n=AWEtsqdtQxGz3ARZ-ov6uP24hmjldnuww1xuPZCEYpi2st3Fxl3Hznr8uYCr&gaa_ts=6950445b&gaa_sig=aTvnTghX4bkpKEBHxXaJzhhus-jVyD_hoix0rahhFNBBq2YrqPCewYNZTTFPN7TMtJYKei0dIwUtLJ0TqiRCkQ%3D%3D)
-
-
-### nigeria vs (N/A, 27/12/2025 15:27 Lima)
-
-- **Nigeria vs Tunisia live updates: AFCON 2025 game team news, predictions and more**: [Link](https://www.nytimes.com/athletic/live-blogs/nigeria-vs-tunisia-live-updates-afcon-2025-score-result/jvdJcW3i8ttq/)
-- **LIVE: Nigeria vs Tunisia – AFCON 2025**: [Link](https://www.aljazeera.com/sports/liveblog/2025/12/27/live-nigeria-vs-tunisia-afcon-2025)
-- **AFCON 2025 -- Victor Osimhen has point to prove as Nigeria face Tunisia**: [Link](https://africa.espn.com/espn/story/_/id/47417369/afcon-2025-victor-osimhen-point-prove-nigeria-face-tunisia)
 
 
