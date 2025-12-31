@@ -1,3 +1,72 @@
+### españa hora (N/A, 31/12/2025 15:28 Lima)
+
+- **Mario Picazo alerta de «nevadas contundentes» que afectarán a la Comunidad Valenciana**: [Link](https://www.eldebate.com/espana/comunidad-valenciana/20251231/mario-picazo-alerta-nevadas-contundentes-afectaran-comunidad-valenciana_370273.html)
+- **Nevazos al estilo Filomena en Albacete muy pronto si no cambia la previsión: los detalles**: [Link](https://www.eldigitaldealbacete.com/2025/12/31/nevazos-al-estilo-filomena-en-albacete-muy-pronto-si-no-cambia-la-prevision-los-detalles/)
+- **AEMET lanza un aviso especial sobre lo que ocurrirá en plena víspera de Reyes: jornada complicada y cabalgatas potencialmente afectadas**: [Link](https://www.huffingtonpost.es/tiempo/aemet-lanza-aviso-especial-sobre-ocurrira-plena-vispera-reyes-jornada-complicada-cabalgatas-potencialmente-afectadas-f202512.html)
+
+
+### horoscopo chino (N/A, 31/12/2025 15:28 Lima)
+
+- **Predicciones del horóscopo chino para 2026: así te irá en el Año del Caballo de Fuego**: [Link](https://elcomercio.pe/respuestas/que/predicciones-del-horoscopo-chino-2026-en-el-ano-del-caballo-de-fuego-que-animal-tarera-mejor-suerte-tdpe-noticia/)
+- **¿El año del caballo de fuego trae ganancias? Esta es la previsión financiera del zodíaco para 2026**: [Link](https://www.ucvradio.pe/mas-actualidad/el-ano-del-caballo-de-fuego-trae-ganancias-esta-es-la-prevision-financiera-del-zodiaco-para-2026/90741/)
+- **Los 6 signos del zodíaco chino que atraerán suerte y prosperidad el 1 de enero de 2026**: [Link](https://la100.cienradios.com/horoscopo/los-6-signos-del-zodiaco-chino-que-atraeran-suerte-y-prosperidad-el-1-de-enero-de-2026/)
+
+
+### costa de marfil (N/A, 31/12/2025 15:28 Lima)
+
+- **El partido en el poder en Costa de Marfil obtiene mayoría absoluta en las legislativas**: [Link](https://www.democrata.es/internacional/el-partido-en-el-poder-en-costa-de-marfil-obtiene-mayoria-absoluta-en-las-legislativas/)
+- **El partido gobernante de Costa de Marfil refuerza su mayoría en las elecciones del fin de semana**: [Link](https://es.marketscreener.com/noticias/el-partido-gobernante-de-costa-de-marfil-refuerza-su-mayor-a-en-las-elecciones-del-fin-de-semana-ce7e59dbd08ffe21)
+- **C. Marfil. El partido gubernamental de Costa de Marfil logra la mayoría absoluta en las elecciones parlamentarias**: [Link](https://www.lanacion.com.ar/agencias/c-marfil-el-partido-gubernamental-de-costa-de-marfil-logra-la-mayoria-absoluta-en-las-elecciones-nid30122025/)
+
+
+### camerun vs (N/A, 31/12/2025 15:28 Lima)
+
+- **Sigue el partido en directo**: [Link](https://as.com/futbol/internacional/mozambique-camerun-f202512-n/)
+- **Pronóstico Mozambique - Camerún - CAN**: [Link](https://www.sportytrader.es/pronosticos/mozambique-camerun-315008/)
+- **Mozambique vs Camerún: resultado EN VIVO y estadísticas de la Copa África**: [Link](https://www.365scores.com/es/news/mozambique-vs-camerun-resultado-en-vivo/)
+
+
+### costa de marfil vs (N/A, 31/12/2025 15:28 Lima)
+
+- **Koundé, Mbappé y Tchouameni se apuntan a la Copa África | Fútbol Internacional**: [Link](https://www.sport.es/es/noticias/futbol-internacional/kounde-mbappe-tchouameni-apuntan-copa-125214098)
+- **¿Qué superestrellas europeas han acudido a apoyar la CAN? Respondido con fotos**: [Link](https://tribuna.com/es/blogs/que-superestrellas-europeas-han-acudido-a-apoyar-la-can-resp/)
+- **Vídeo. AFCON 2025: Camerún y Costa de Marfil empatan, Argelia pasa**: [Link](https://es.euronews.com/video/2025/12/29/afcon-2025-camerun-y-costa-de-marfil-empatan-argelia-pasa)
+
+
+### copa africana de naciones (N/A, 31/12/2025 15:28 Lima)
+
+- **El ‘nuevo Wirtz’ encandila a Zidane**: [Link](https://as.com/futbol/internacional/el-nuevo-wirtz-encandila-a-zidane-f202512-n/)
+- **Argelia venció 3-1 a Guinea Ecuatorial y avanzó con puntaje perfecto**: [Link](https://ovacion.pe/noticias/futbol-internacional/argelia-vencio-3-1-guinea-ecuatorial-avanzo-puntaje-perfecto)
+- **Argelia termina con paso perfecto su grupo y con la mira en el Mundial 2026**: [Link](https://www.tudn.com/mundial-2026/argelia-acaba-con-paso-perfecto-grupo-copa-africana-hacia-mundial-2026)
+
+
+### gabon vs (N/A, 31/12/2025 15:28 Lima)
+
+- **Gabon vs Côte d’Ivoire: Pride at stake in Marrakech**: [Link](https://www.cafonline.com/afcon2025/news/gabon-vs-cote-d-ivoire-pride-at-stake-in-marrakech/)
+- **Gabon vs Ivory Coast Lineups, Live Streaming, How & Where to Watch on TV**: [Link](https://athlonsports.com/soccer/gabon-ivory-coast-lineups-live-streaming-tv-channels-afcon)
+- **Gabon - Ivory Coast live: Africa Cup of Nations - Football**: [Link](https://www.tntsports.co.uk/football/africa-cup-of-nations/2025/live-gabon-ivory-coast_mtc1584175/live-commentary.shtml)
+
+
+### mozambique vs (N/A, 31/12/2025 15:28 Lima)
+
+- **Mozambique da el golpe ante Gabón y revive en la Copa Africana de Naciones**: [Link](https://ovacion.pe/noticias/copa-africana-naciones/mozambique-da-golpe-ante-gabon-revive-copa-africana-naciones)
+- **Mozambique vence al Gabón de Aubameyang y gana la primera Copa Africana de Naciones**: [Link](https://www.elpueblo.pe/deportes/mozambique-vence-al-gabon-de-aubameyang-y-gana-la-primera-copa-africana-de-naciones/185932/)
+
+
+### gabón - costa de marfil (N/A, 31/12/2025 15:28 Lima)
+
+- **Sigue el partido en directo**: [Link](https://as.com/futbol/internacional/gabon-costa-de-marfil-en-directo-f202512-n/)
+- **Costa de Marfil vs. Gabón: ¿a qué hora juegan y dónde ver EN VIVO hoy por la Copa Africana de Naciones?**: [Link](https://rpp.pe/futbol/futbol-mundial/costa-de-marfil-vs-gabon-en-vivo-a-que-hora-juegan-y-donde-ver-fecha-3-copa-africana-de-naciones-2025-via-claro-sports-partidos-de-hoy-noticia-1669683)
+- **Dónde ver Gabon vs. Costa de Marfil: horario, canal y posibles alineaciones, Copa Africana de Naciones 2025 J3**: [Link](https://www.reporteindigo.com/deportes/donde-ver-gabon-vs.-costa-de-marfil-horario-canal-y-posibles-alineaciones-copa-africana-de-naciones-2025-j3-20251231-0016.html)
+
+
+### gamarra (N/A, 31/12/2025 15:28 Lima)
+
+- **Tragedia en Gamarra a horas del Año Nuevo: menor fallece tras ser atropellado por camión blindado**: [Link](https://www.infobae.com/peru/2025/12/31/tragedia-en-gamarra-a-horas-del-ano-nuevo-menor-fallece-tras-ser-atropellado-por-camion-blindado/)
+- **Gamarra: menor muere tras ser atropellada por camión a pocas horas del Año Nuevo**: [Link](https://elcomercio.pe/lima/accidentes/ano-nuevo-gamarra-menor-muere-tras-ser-atropellada-por-camion-la-victoria-nochevieja-ano-nuevo-2026-ultimas-noticia/)
+- **Tragedia de fin de año: menor fallece tras ser arrollado en Gamarra**: [Link](https://diariocorreo.pe/edicion/lima/tragedia-en-fin-de-ano-menor-fallece-tras-ser-arrollado-en-el-emporio-comercial-de-gamarra-noticia/)
+
+
 ### supercopa de españa (N/A, 31/12/2025 11:32 Lima)
 
 - **Mbappé, baja para el Betis sin descartarse la Supercopa**: [Link](https://as.com/futbol/real-madrid/mbappe-baja-para-el-betis-sin-descartarse-la-supercopa-f202512-n/)
@@ -959,75 +1028,5 @@ Sin noticias relacionadas disponibles.
 - **Horóscopo de hoy, domingo 28 de diciembre: Lee aquí las predicciones para tu signo**: [Link](https://elcomercio.pe/luces/vida-social/horoscopo-de-hoy-domingo-28-de-diciembre-lee-aqui-las-predicciones-para-tu-signo-noticia/)
 - **Aries, Tauro, Géminis, Cáncer, Leo, Virgo, Libra, Escorpio, Sagitario, Capricornio, Acuario y Piscis: así será este domingo 28 de diciembre**: [Link](https://www.vanitatis.elconfidencial.com/horoscopo/2025-12-28/horoscopo-hoy-domingo-28-diciembre-astros-1qrt_4275163/)
 - **Horóscopo de hoy, domingo 28 de diciembre de 2025 según Josie: revisa el tarot y predicciones AQUÍ**: [Link](https://libero.pe/ocio/2025/12/27/horoscopo-de-hoy-domingo-28-de-diciembre-segun-josie-diez-canseco-tarot-predicciones-en-internet-chatea-josie-citas-numero-contacto-963063)
-
-
-### xiaomi hyperos (N/A, 28/12/2025 07:51 Lima)
-
-- **Redmi Note 13 Pro 4G and POCO M6 Pro get HyperOS 3 Android 16 update**: [Link](https://xiaomitime.com/redmi-note-13-pro-4g-and-poco-m6-pro-get-hyperos-3-android-16-update-83551/)
-- **Xiaomi HyperOS 3.0 Rollout: Full List of Eligible Devices Getting the Update Before 2026**: [Link](https://nokiamob.net/2025/12/26/xiaomi-hyperos-3-0-rollout-full-list-of-eligible-devices-getting-the-update-before-2026/)
-- **By the end of the year, another twenty-five Xiaomi, Redmi, and Poco devices will receive HyperOS 3 firmware (list)**: [Link](https://gagadget.com/en/689391-by-the-end-of-the-year-another-twenty-five-xiaomi-redmi-and-poco-devices-will-receive-hyperos-3-firmware-list/)
-
-
-### gabon vs (N/A, 28/12/2025 03:33 Lima)
-
-- **Preview: Gabon vs Mozambique - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/gabon/africa-cup-of-nations/preview/gabon-vs-mozambique-prediction-team-news-lineups_588523.html)
-- **How and Where to Watch: Gabon vs. Mozambique in AFCON 2025 on beIN SPORTS**: [Link](https://www.beinsports.com/en-us/soccer/africa-cup-of-nations/articles/how-and-where-to-watch-gabon-vs-mozambique-in-afcon-2025-on-bein-sports-2025-12-26)
-- **AFCON preview – Gabon targeting improved performance against Mozambique**: [Link](https://africanfootball.com/news/834705/AFCON-preview-Gabon-targeting-improved-performance-against-Mozambique)
-
-
-### sunderland (N/A, 28/12/2025 03:33 Lima)
-
-- **Starting XI: One Change For Sunderland Today?**: [Link](https://rokerreport.sbnation.com/match-previews/119408/starting-xi-one-change-for-sunderland-today)
-- **Supporters travelling to Stadium of Light**: [Link](https://onefootball.com/en/news/supporters-travelling-to-stadium-of-light-42149615)
-- **Football accumulator tips for Sunday December 28: Back our acca at 20-1 with bet365**: [Link](https://www.racingpost.com/sport/football-tips/football-acca-tips/football-accumulator-tips-for-sunday-december-28-back-our-acca-at-20-1-with-bet365-avDz55h5uir1/)
-
-
-### millie bobby brown (N/A, 27/12/2025 23:49 Lima)
-
-- **“I’m already in love with her”: Millie Bobby Brown Wants on Screen Romance With Florence Pugh**: [Link](https://fandomwire.com/im-already-in-love-with-her-millie-bobby-brown-wants-on-screen-romance-with-florence-pugh/)
-- **Millie Bobby Brown's Favorite Snacks And Drinks On The Stranger Things Set**: [Link](https://www.mashed.com/2057618/millie-bobby-brown-favorite-snacks-stranger-things-set/)
-- **Millie Bobby Brown's stylist recommends this £5 spray to keep hair protected ahead of TV filming**: [Link](https://www.mirror.co.uk/money/shopping-deals/millie-bobby-brown-hair-spray-36460989)
-
-
-### selena quintanilla (N/A, 27/12/2025 23:49 Lima)
-
-- **Hermano de Selena revela cómo murió su padre: “Rezo para que no haya sufrido”**: [Link](https://www.univision.com/famosos/hermano-de-selena-revela-como-murio-su-padre-rezo-para-que-no-haya-sufrido-video)
-- **Mamá de Selena vive duro duelo tras la muerte de Abraham Quintanilla: “Perdió a su hija y a su compañero de vida”**: [Link](https://www.infobae.com/mexico/2025/12/26/mama-de-selena-vive-duro-duelo-tras-la-muerte-de-abraham-quintanilla-perdio-a-su-hija-y-a-su-companero-de-vida/)
-- **Revelan la última voluntad de Abraham Quintanilla, tras fallecer a los 86 años de edad**: [Link](https://lamejor.com.mx/news/2025/12/26/revelan-la-ultima-voluntad-de-abraham-quintanilla-tras-fallecer-los-86-anos-de-edad-24383.html)
-
-
-### taiwan (N/A, 27/12/2025 23:49 Lima)
-
-- **Sismo de 6.6 sacudió el noreste de Taiwán sin reportes de daños**: [Link](https://www.tvperu.gob.pe/noticias/internacionales/sismo-de-66-sacudio-el-noreste-de-taiwan-sin-reportes-de-danos)
-- **Un terremoto de magnitud 6.6 sacudió las costas de Taiwán**: [Link](https://andina.pe/agencia/noticia-un-terremoto-magnitud-66-sacudio-las-costas-taiwan-1057194.aspx)
-- **Tiembla el 'Cinturón de Fuego': Terremoto de 6.6 sacudió las costas de Taiwán (VIDEO)**: [Link](https://peru21.pe/mundo/terremoto-de-66-sacudio-las-costas-de-taiwan-video-cinturon-de-fuego/)
-
-
-### exitosa en vivo (N/A, 27/12/2025 23:49 Lima)
-
-- **Caen presuntos autores del asesinato de dos trabajadores de ladrillera Pirámide**: [Link](https://larepublica.pe/sociedad/2025/12/27/caen-presuntos-autores-del-asesinato-de-dos-trabajadores-de-ladrillera-piramide-crimen-organizado-hnews-1247319)
-- **Golpe a la extorsión en Lima Sur: Policía desarticula a peligrosa banda vinculada al 'Tren de Aragua'**: [Link](https://peru21.pe/policiales/golpe-la-extorsion-en-lima-sur-policia-desarticula-peligrosa-banda-vinculada-al-tren-de-aragua/)
-- **Capturan a implicados en ataque a ladrillera en Carabayllo**: [Link](https://panamericana.pe/24horas/locales/462067-capturan-implicados-ataque-ladrillera-carabayllo)
-
-
-### chiclayo (N/A, 27/12/2025 23:49 Lima)
-
-- **Incendio en Chiclayo: niña de 8 años logró salvar a su hermana de 2 de siniestro**: [Link](https://www.infobae.com/peru/2025/12/27/incendio-en-chiclayo-nina-de-8-anos-logro-salvar-a-su-hermana-de-2-de-siniestro/)
-- **Chiclayo: disminuyen emergencias en Navidad pero persisten retos por falsas alarmas**: [Link](https://andina.pe/agencia/noticia-chiclayo-disminuyen-emergencias-navidad-pero-persisten-retos-falsas-alarmas-1057180.aspx)
-- **Chiclayo: bomberos tardan más de 15 minutos en salir de su estación por ambulantes en la zona**: [Link](https://larepublica.pe/sociedad/2025/12/27/chiclayo-bomberos-tardan-mas-de-15-minutos-en-salir-de-su-estacion-por-ambulantes-en-la-zona-524745)
-
-
-### el comercio peru (N/A, 27/12/2025 23:49 Lima)
-
-- **Repensando la edad**: [Link](https://elcomercio.pe/opinion/columnistas/repensando-la-edad-por-urpi-torrado-juventud-peruana-vejez-en-el-peru-noticia/)
-- **Un sismo de magnitud 6.0 con epicentro en Chimbote remeció Lima y otras regiones**: [Link](https://rpp.pe/lima/actualidad/un-sismo-de-magnitud-60-remecio-esta-noche-lima-y-otras-regiones-noticia-1669460)
-- **Cuatro temblores remecen al Perú en un solo día y reactivan la alerta sobre prevención sísmica**: [Link](https://www.infobae.com/peru/2025/12/27/tres-temblores-remecen-lima-y-callao-en-un-solo-dia-y-reactivan-la-alerta-sobre-prevencion-sismica/)
-
-
-### earthquake (N/A, 27/12/2025 23:49 Lima)
-
-- **Taiwan rattled by 7.0 magnitude quake, no major damage reported**: [Link](https://www.cnn.com/2025/12/27/asia/taiwan-earthquake-tremors-intl-latam)
-- **7.0-magnitude earthquake rattles Taiwan**: [Link](https://www.dw.com/en/70-magnitude-earthquake-rattles-taiwan/a-75317087)
-- **TSMC says some facilities evacuated after quake**: [Link](https://www.reuters.com/world/asia-pacific/tsmc-says-some-facilities-evacuated-after-quake-2025-12-27/)
 
 
