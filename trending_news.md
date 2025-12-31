@@ -1,3 +1,10 @@
+### normas legales el peruano (N/A, 31/12/2025 07:54 Lima)
+
+- **Revise las principales normas legales publicadas del domingo 21 al sábado 27 de Diciembre del 2025**: [Link](https://www.elperuano.pe/noticia/285997-revise-las-principales-normas-legales-publicadas-del-domingo-21-al-sabado-27-de-diciembre-del-2025)
+- **Estas son las normas legales más importantes del martes 23 de diciembre de 2025**: [Link](https://andina.pe/agencia/noticia-estas-son-las-normas-legales-mas-importantes-del-martes-23-diciembre-2025-1056660.aspx)
+- **Estas son las normas legales más importantes del jueves 25 de diciembre de 2025**: [Link](https://www.apnoticias.pe/peru/andina/estas-son-las-normas-legales-mas-importantes-del-jueves-25-de-diciembre-de-2025-1479416)
+
+
 ### 31 de diciembre fin de año (N/A, 31/12/2025 03:36 Lima)
 
 - **Guía de conciertos y fiestas para despedir el 2025: precios, horarios y detalles de los principales shows para recibir el Año Nuevo**: [Link](https://www.infobae.com/peru/2025/12/27/ano-nuevo-guia-de-conciertos-y-fiestas-para-despedir-el-2025-precios-horarios-y-detalles-de-los-principales-shows-para-recibir-2026/)
@@ -1025,12 +1032,5 @@ Sin noticias relacionadas disponibles.
 - **Nigeria vs Tunisia live updates: AFCON 2025 game team news, predictions and more**: [Link](https://www.nytimes.com/athletic/live-blogs/nigeria-vs-tunisia-live-updates-afcon-2025-score-result/jvdJcW3i8ttq/)
 - **LIVE: Nigeria vs Tunisia – AFCON 2025**: [Link](https://www.aljazeera.com/sports/liveblog/2025/12/27/live-nigeria-vs-tunisia-afcon-2025)
 - **AFCON 2025 -- Victor Osimhen has point to prove as Nigeria face Tunisia**: [Link](https://africa.espn.com/espn/story/_/id/47417369/afcon-2025-victor-osimhen-point-prove-nigeria-face-tunisia)
-
-
-### nigeria - túnez (N/A, 27/12/2025 15:27 Lima)
-
-- **Pronóstico Nigeria Túnez - CAN 27/12/25**: [Link](https://www.sportytrader.com/es/pronosticos/nigeria-tunez-314233/)
-- **Lookman deja atrás sus demonios**: [Link](https://as.com/futbol/internacional/lookman-deja-atras-sus-demonios-f202512-n/)
-- **Nigeria vs Tanzania Pronóstico y Apuestas | 23/12/25**: [Link](https://www.apuestas-deportivas.es/pronostico/nigeria-tanzania-pronostico-copa-africana-de-naciones-23-12-2025/)
 
 
