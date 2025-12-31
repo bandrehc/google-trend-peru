@@ -1,3 +1,71 @@
+### grizzlies - 76ers (N/A, 30/12/2025 21:05 Lima)
+
+- **Tyrese Maxey, Sixers face Ja Morant, Grizzlies in FINAL game of 2025**: [Link](https://bvmsports.com/2025/12/30/tyrese-maxey-sixers-face-ja-morant-grizzlies-in-final-game-of-2025/)
+- **bet365 bonus code NYPBET: bet $5, get $150 in bonus bets for 76ers vs. Grizzlies**: [Link](https://nypost.com/2025/12/30/betting/bet365-bonus-code-nypbet-bet-5-get-150-in-bonus-bets-for-76ers-vs-grizzlies/)
+- **Jokic out at least four weeks with knee injury**: [Link](https://www.nbcsports.com/watch/nba/denver-nuggets-nikola-jokic-will-miss-at-least-four-weeks-with-knee-injury)
+
+
+### antamina (N/A, 30/12/2025 21:05 Lima)
+
+- **Antamina lanza programa de prácticas para jóvenes talentos**: [Link](https://www.rumbominero.com/portada2/antamina-programa-de-practicas-para-jovenes/)
+- **Programa de prácticas en Antamina 2026: Antaminando el futuro**: [Link](https://proactivo.com.pe/programa-de-practicas-en-antamina-2026-antaminando-el-futuro/)
+
+
+### tatiana schlossberg (N/A, 30/12/2025 21:05 Lima)
+
+- **Tatiana Schlossberg, granddaughter of John F Kennedy, dies aged 35**: [Link](https://www.bbc.com/news/articles/c338ne3relzo)
+- **Tatiana Schlossberg, Writer and Daughter of Caroline Kennedy, Dead at 35**: [Link](https://people.com/tatiana-schlossberg-dead-11855816)
+- **Tatiana Schlossberg, environmental journalist and JFK’s granddaughter, dies at 35 after terminal cancer diagnosis**: [Link](https://www.cnn.com/2025/12/30/politics/tatiana-schlossberg-dead)
+
+
+### rodrigo ureña (N/A, 30/12/2025 21:05 Lima)
+
+- **Anuncio oficial y destino a Millonarios: Rodrigo Ureña se desvinculó de Universitario**: [Link](https://depor.com/futbol-peruano/descentralizado/rodrigo-urena-quedo-libre-para-ir-a-millonarios-acuerdo-economico-con-universitario-y-los-numeros-que-deja-tras-su-salida-noticia/)
+- **Universitario anuncia la salida de Rodrigo Ureña: “Gracias eternas”**: [Link](https://trome.com/deportes/futbol-peruano/universitario-anuncia-la-salida-de-rodrigo-urena-gracias-eternas-noticia/)
+- **“Gracias eternas”: Universitario hace oficial salida de Rodrigo Ureña**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/universitario-hace-oficial-salida-de-rodrigo-urena-a-millonarios-de-colombia-noticia/)
+
+
+### feliz año 2026 (N/A, 30/12/2025 21:05 Lima)
+
+- **◉ 50 felicitaciones cortas y bonitas de ¡Feliz Año Nuevo 2026! para enviar en WhatsApp el 31 de diciembre en México**: [Link](https://gestion.pe/mix/respuestas/50-felicitaciones-cortas-y-bonitas-de-feliz-ano-nuevo-2026-para-compartir-en-whatsapp-el-31-de-diciembre-en-mexico-nnda-nnrt-noticia/)
+- **100 mensajes originales de ¡Feliz Año Nuevo 2026! para compartir en redes sociales en USA, México y España**: [Link](https://depor.com/usa/local-usa/100-mensajes-originales-de-feliz-ano-nuevo-2026-para-compartir-en-redes-sociales-en-usa-mexico-espana-nnda-nnrt-noticia/)
+- **25 tarjetas de Año Nuevo 2026 para clientes, amigos y familia en España**: [Link](https://elcomercio.pe/mag/respuestas/25-tarjetas-de-ano-nuevo-2026-para-clientes-amigos-y-familia-en-espana-nnda-nnrt-noticia/)
+
+
+### chelsea versus (N/A, 30/12/2025 21:05 Lima)
+
+- **Enzo Fernandez aprovechó la asistencia de Garnacho e hizo un golazo en Chelsea vs. Bournemouth**: [Link](https://www.espn.com.pe/futbol/inglaterra/nota/_/id/16133147/video-golazo-de-enzo-fernandez-para-que-chelsea-le-de-vuelta-el-partido-a-bournemouth)
+- **Partido de Chelsea-Bournemouth EN VIVO ONLINE: alineaciones, hora y TV**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/chelsea-vs-bournemouth-en-vivo-hoy-gratis-via-futbol-libre-tv-espn-disney-plus-horarios-canales-tv-y-donde-ver-partido-por-premier-league-video-noticia/)
+- **Chelsea y Bournemouth empataron 2-2 en Stamford Bridge**: [Link](https://www.elpueblo.pe/deportes/chelsea-y-bournemouth-empataron-2-2-en-stamford-bridge/188462/)
+
+
+### aumento de pensiones onp 2026 (N/A, 30/12/2025 21:05 Lima)
+
+- **Gobierno anuncia nueva pensión mínima de 1.000 soles para jubilados a partir del 1 de enero de 2026: quiénes serán los beneficiados**: [Link](https://www.infobae.com/peru/2025/12/30/gobierno-anuncia-nueva-pension-minima-de-1000-soles-para-jubilados-a-partir-del-1-de-enero-de-2026-quienes-seran-los-beneficiados/)
+- **MEF autoriza aumento a pensiones del régimen 19990: infórmate si te corresponde**: [Link](https://www.elperuano.pe/noticia/286116-mef-autoriza-aumento-a-pensiones-del-regimen-19990-informate-si-te-corresponde)
+- **Gobierno fija pensión mínima de S/1.000 para jubilados de la ONP desde enero de 2026**: [Link](https://caretas.pe/sociedad/gobierno-fija-pension-minima-de-s-1-000-para-jubilados-de-la-onp-desde-enero-de-2026/)
+
+
+### manchester united (N/A, 30/12/2025 21:05 Lima)
+
+- **Pronósticos Manchester United vs Wolves: cuota atractiva por goles de ambos equipos**: [Link](https://depor.com/apuestas-deportivas/manchester-united-vs-wolves-pronosticos-apuestas-cuotas-30-12-2025/)
+- **Premier League: Wolverhampton busca cortar su racha negativa ante Manchester United**: [Link](https://rpp.pe/futbol/ligas-internacionales/premier-league-wolverhampton-busca-cortar-su-racha-negativa-ante-manchester-united-noticia-1669573)
+- **Sorpresa: Manchester United igualó 1-1 ante Wolverhampton**: [Link](https://ovacion.pe/noticias/futbol-internacional/sorpresa-manchester-united-igualo-1-1-ante-wolverhampton)
+
+
+### tarjeta roja (N/A, 30/12/2025 21:05 Lima)
+
+- **Tarjeta roja: Ronald Araujo**: [Link](https://cronicaglobal.elespanol.com/culemania/tarjetas-jornada/20251228/tarjeta-roja-ronald-araujo/1003742719518_0.html)
+- **Insólito: las expulsiones más rápidas en la historia del fútbol**: [Link](https://www.ole.com.ar/futbol-internacional/insolito-las-expulsiones-mas-rapidas-en-la-historia-del-futbol_0_FXPuwjtSt2.html)
+
+
+### motherwell - celtic f. c. (N/A, 30/12/2025 21:05 Lima)
+
+- **Celtic Handed Fir Park Reality Check | Player Ratings and Reaction**: [Link](https://celtsarehere.substack.com/p/celtic-handed-fir-park-reality-check)
+- **Auston Trusty on new-found momentum, urges teammates to play 'The Celtic Way'**: [Link](https://www.celticway.co.uk/interviews/25731093.auston-trusty-urges-teammates-play-the-celtic-way/)
+- **Motherwell 2-0 Celtic**: [Link](https://www.motherwellfc.co.uk/2025/12/30/motherwell-2-0-celtic-2/)
+
+
 ### everton (N/A, 30/12/2025 15:29 Lima)
 
 - **Wrexham Association Football Club**: [Link](https://www.wrexhamafc.co.uk/news/2025/december/30/fa-cup-hospitality-limited-spaces-remain-for-nottingham-forest/)
@@ -964,75 +1032,5 @@ Sin noticias relacionadas disponibles.
 - **Celtic starting XI to face Livingston**: [Link](https://www.celticfc.com/news/2025/december/27/celtic-starting-xi-to-face-livingston/)
 - **Matthew MacDermid then Kevin Clancy to referee Celtic’s next two matches**: [Link](https://thecelticstar.com/matthew-macdermid-then-kevin-clancy-to-referee-celtics-next-two-matches/)
 - **A hectic schedule awaits Celtic and Wilfried Nancy. The baptism of fire continues**: [Link](https://readceltic.com/2025/12/26/a-hectic-schedule-awaits-celtic-and-wilfried-nancy-the-baptism-of-fire-continues/)
-
-
-### zafiro sensual (N/A, 27/12/2025 11:30 Lima)
-
-- **Murió a los 37 años Dennys Quevedo, director de las orquestas Zafiro Sensual y Pluma Dorada**: [Link](https://rpp.pe/musica/nacional/murio-dennys-quevedo-a-los-37-anos-director-de-zafiro-sensual-y-pluma-dorada-noticia-1669410)
-- **🔴🔵¡Luto en la cumbia peruana! 🕊😭Fallece reconocido compositor y líder musical: Amigos y familiares lamentan su pérdida 👇**: [Link](https://www.facebook.com/story.php?story_fbid=1309790481184007&id=100064592023543)
-- **Muere Dennys Quevedo, director de los grupos de cumbia Zafiro Sensual y Pluma Dorada, a los 37 años**: [Link](https://larepublica.pe/espectaculos/2025/12/27/muere-dennys-quevedo-director-de-los-grupos-de-cumbia-zafiro-sensual-y-pluma-dorada-a-los-37-anos-1035315)
-
-
-### al nassr (N/A, 27/12/2025 11:30 Lima)
-
-- **Al-Nassr vs Al-Akhdoud today: Unbeaten leaders aim to extend perfect home record against outmatched rivals**: [Link](https://www.red94.net/news/80970-al-nassr-faces-al-akhdoud-in-saudi-pro-league-clash-riyadh-side-aims-for-dominan/)
-- **Cristiano Ronaldo scores career goal number 955**: [Link](https://tribuna.com/en/news/2025-12-27-cristiano-ronaldo-scores-career-goal-number-955/)
-- **How to Watch Al Nassr vs Al Okhdood: Live Stream Saudi League Soccer, TV Channel**: [Link](https://www.newsweek.com/sports/how-to-watch-al-nassr-vs-al-okhdood-live-stream-saudi-league-soccer-tv-channel-11272894)
-
-
-### senegal - rd congo (N/A, 27/12/2025 11:30 Lima)
-
-- **CAN 2025 - Sénégal vs RDC : Lahlou Benbraham, un arbitre qui réussit aux deux sélections**: [Link](https://foot-africa.com/actualites/can-2025-senegal-vs-rdc-lahlou-benbraham-un-arbitre-qui-reussit-aux-deux-selections-1019285/)
-- **En direct: Sénégal - RD Congo (CAN 2025, phase de poules)**: [Link](https://french.ahram.org.eg/infoCan2025/2025/76400.aspx)
-- **Pape Matar Sarr : « Nous sommes prêts à répondre à la RDC »**: [Link](https://www.senenews.com/actualites/pape-matar-sarr-nous-sommes-prets-a-repondre-a-la-rdc_570725.html)
-
-
-### everton (N/A, 27/12/2025 11:30 Lima)
-
-- **Jack Grealish treats friends to a '£20,000 Christmas night out' that ends when England star leaves strip club at 4am 'with a smile on his face'**: [Link](https://www.dailymail.co.uk/news/article-15415721/Jack-Grealish-friends-Christmas-England-star-strip-club.html)
-- **Jack Grealish injury update after missing Burnley vs Everton**: [Link](https://metro.co.uk/2025/12/27/jack-grealish-injury-update-missing-burnley-vs-everton-25852900/)
-- **Jack Grealish's Christmas party! Everton star and Kyle Walker spotted in London for festive celebrations with night ending at strip club**: [Link](https://www.goal.com/en-us/lists/jack-grealish-kyle-walker-spotted-in-london-for-festive-celebrations-with-night-ending-at-strip-club/blt63fe5945a0eb8aad)
-
-
-### manchester city vs (N/A, 27/12/2025 07:50 Lima)
-
-- **Manchester City busca acechar la punta de la Premier League ante un resurgido Nottingham Forest**: [Link](https://www.espn.com.pe/futbol/inglaterra/nota/_/id/16111832/nottingham-forest-vs-manchester-city-fecha-18-premier-league-equipo-fecha-hora-y-tv-en-vivo)
-- **¿Juega Haaland? Las alineaciones para Nottingham Forest vs. Manchester City tras la última polémica de Pep ...**: [Link](https://bolavip.com/pe/premier-league/juega-haaland-las-alineaciones-para-nottingham-forest-vs-manchester-city-tras-la-ultima-polemica-de-pep-guardiola)
-- **Premier League: Manchester City busca derrotar a Nottingham Forest para posicionarse en la cima del torneo**: [Link](https://rpp.pe/futbol/ligas-internacionales/premier-league-manchester-city-busca-derrotar-a-nottingham-forest-para-posicionarse-en-la-cima-del-torneo-noticia-1669258)
-
-
-### fiorentina vs (N/A, 27/12/2025 07:50 Lima)
-
-- **Serie A: Parma vs. Fiorentina – Confirmed line-ups and updates**: [Link](https://sports.yahoo.com/articles/serie-parma-vs-fiorentina-confirmed-105000937.html)
-- **Football Tracker: Parma lead Fiorentina as Forest take on Man City in Premier League**: [Link](https://www.flashscore.com/news/football-tracker-parma-lead-fiorentina-as-forest-take-on-man-city-in-premier-league/QgA3dzM0/)
-- **Parma vs Fiorentina Prediction, 12/27/2025 Soccer Pick, Tips and Odds**: [Link](https://www.docsports.com/free-picks/soccer/2025/parma-vs-fiorentina-prediction-12-27-2025-soccer-pick-tips-and-odds.html)
-
-
-### nottingham forest - manchester city (N/A, 27/12/2025 07:50 Lima)
-
-- **We’ll decide on Rodri fitness today, says Guardiola**: [Link](https://www.mancity.com/news/mens/pep-guardiola-rodri-update-nottingham-forest-63902351)
-- **Nottingham Forest vs Manchester City: Where to watch the match online, live stream, TV channels, and kick-off time**: [Link](https://www.goal.com/en-ca/news/how-to-watch-nottingham-forest-v-manchester-city-27122025/bltdd4f18117e3dcf47)
-- **Rodri closing in on return as Man City target trophies**: [Link](https://www.beinsports.com/en-us/soccer/premier-league/articles/rodri-closing-in-on-return-as-man-city-target-trophies-2025-12-26)
-
-
-### serie a (N/A, 27/12/2025 07:50 Lima)
-
-- **Serie A, Milan-Verona, Cremonese-Napoli e Atalanta-Inter: 3 gare per chiudere in vetta il 2025**: [Link](https://www.rainews.it/maratona/2025/12/calcio-serie-a-giornata-17-risultati-cronaca-aggiornamenti-diretta-highlights-sintesi-inter-roma-milan-napoli-como-bologna-juventus-41beec00-7d85-41df-82d2-e29e51fb6623.html)
-- **CALCIO SERIE A: OGGI SI RIPRENDE**: [Link](https://www.persemprenews.it/calcio/calcio-serie-a-oggi-si-riprende/)
-- **Ecco il kit per la 17a giornata al fantacalcio: tutti i consigli, dai casi delicati fino al Mantra**: [Link](https://www.sosfanta.com/consigli-fantacalcio/ecco-il-kit-per-la-17a-giornata-al-fantacalcio-tutti-i-consigli-dai-casi-delicati-fino-al-mantra/)
-
-
-### parma - fiorentina (N/A, 27/12/2025 07:50 Lima)
-
-- **LIVE Parma-Fiorentina 1-0 Serie A 2025/2026: Sorensen sblocca Parma Fiorentina**: [Link](https://sport.virgilio.it/dirette/live/serie-a/27-12-2025/parma-fiorentina/2558673/)
-- **Calcio Live News: tutte le notizie di giornata in diretta**: [Link](https://www.diretta.it/news/calcio-live-in-campo-parma-fiorentina-1-0-juve-senza-cabal-e-conceicao/dEhNDbpp/)
-- **Parma, contro la Fiorentina torna Circati dal 1' - Le videoformazioni di Sandro Piovani**: [Link](https://www.gazzettadiparma.it/il-parma/2025/12/27/video/parma-contro-la-fiorentina-torna-circati-dal-1-le-videoformazioni-di-sandro-piovani-914274/)
-
-
-### chelsea vs aston villa (N/A, 27/12/2025 07:50 Lima)
-
-- **Maresca updates on duo and the need to rotate | News | Official Site**: [Link](https://www.chelseafc.com/en/news/article/maresca-updates-on-duo-and-the-need-to-rotate)
-- **Chelsea vs. Aston Villa: Preview, Predictions and Lineups**: [Link](https://www.si.com/soccer/chelsea-vs-aston-villa-preview-predictions-and-lineups-12-27-25)
-- **'Chelsea are favourites to fight for the Premier League trophy': Unai Emery**: [Link](https://tribuna.com/en/news/2025-12-26-chelsea-are-favourites-to-fight-for-the-premier-league-trophy-unai-emery/)
 
 
