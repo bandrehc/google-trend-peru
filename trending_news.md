@@ -1,3 +1,24 @@
+### clima (N/A, 01/01/2026 07:53 Lima)
+
+- **Feriado largo: Lima Metropolitana presentaría brillo solar hasta el 4 de enero**: [Link](https://elperuano.pe/noticia/286140-lima-metropolitana-presentaria-brillo-solar-y-temperaturas-templadas-durante-el-feriado-largo)
+- **SENAMHI: Pronóstico del clima hoy jueves 01 de enero 2026**: [Link](https://rpp.pe/peru/actualidad/senamhi-pronostico-del-clima-hoy-jueves-01-de-enero-2026-noticia-1669866)
+- **Lima tendrá brillo solar y clima templado en la primera semana del 2026, informa el Senamhi**: [Link](https://elcomercio.pe/lima/sucesos/lima-tendra-brillo-solar-y-clima-templado-en-la-primera-semana-del-2026-ultimas-noticia/)
+
+
+### peliculas (N/A, 01/01/2026 07:53 Lima)
+
+- **No sé si son las mejores, pero son mis favoritas: las 10 películas de 2025**: [Link](https://cnnespanol.cnn.com/2025/12/31/entretenimiento/10-peliculas-2025-orix)
+- **Las mejores películas de 2025**: [Link](https://www.infobae.com/malditos-nerds/2025/12/31/las-mejores-peliculas-de-2025/)
+- **Entre héroes, batallas y domingos: Las mejores películas de 2025**: [Link](https://www.ecartelera.com/noticias/heroes-batallas-domingos-mejores-peliculas-2025-82806/)
+
+
+### horario (N/A, 01/01/2026 07:53 Lima)
+
+- **Bancos en modo feriado**: [Link](https://caretas.pe/economia/bancos-en-modo-feriado/)
+- **¿Habrá atención de los bancos para este miércoles 31 de diciembre y jueves 1 de enero?**: [Link](https://larepublica.pe/economia/2025/12/29/horario-de-atencion-de-los-bancos-para-este-miercoles-31-de-diciembre-y-jueves-1-de-enero-bcp-interbank-bbva-scotiabank-y-banco-de-la-nacion-atmp-1443446)
+- **Horario de atención BCP, Banco de la Nación y Scotiabank este 31 de diciembre**: [Link](https://libero.pe/tiempoextra/2025/12/30/horario-de-atencion-bcp-banco-de-nacion-scotiabank-31-de-diciembre-1-de-enero-ano-nuevo-594450)
+
+
 ### año nuevo película (N/A, 01/01/2026 03:35 Lima)
 
 - **Renueva tu energía en 2026: 9 películas para empezar el año con inspiración**: [Link](https://elcomercio.pe/respuestas/trends/renueva-tu-energia-en-2026-9-peliculas-para-empezar-el-ano-con-inspiracion-tdpe-noticia/)
@@ -1009,26 +1030,5 @@
 - **FC Cajamarca a ritmo blanquiazul: otro bicampeón con Alianza Lima en la mira**: [Link](https://depor.com/futbol-peruano/descentralizado/fc-cajamarca-busca-el-fichaje-de-ricardo-lagos-bicampeon-con-alianza-lima-en-agenda-del-club-pablo-lavandeira-noticia/)
 - **Tras su salida de Alianza Lima: Pablo Lavandeira es nuevo jugador de FC Cajamarca**: [Link](https://rpp.pe/futbol/descentralizado/pablo-lavandeira-fue-presentado-como-jugador-de-fc-cajamarca-tras-su-salida-de-alianza-lima-liga-1-noticia-1669517)
 - **Bicampeón con Alianza Lima podría llegar a inesperado equipo de la Liga 1: "Interesa mucho..."**: [Link](https://libero.pe/futbol-peruano/alianza-lima/2025/12/28/bicampeon-alianza-lima-podria-llegar-inesperado-equipo-de-liga-1-interesa-mucho-1997772)
-
-
-### lisboa fc (N/A, 28/12/2025 21:19 Lima)
-
-- **Interrogatório do Sporting-Rio Ave: provavelmente o melhor leão da época**: [Link](https://www.record.pt/futebol/futebol-nacional/liga-betclic/amp/interrogatorio-do-sporting-rio-ave-provavelmente-o-melhor-leao-da-epoca)
-- **Leão termina 2025 em grande**: [Link](https://www.abola.pt/noticias/leao-termina-2025-em-grande-2025122820124417249)
-- **Liga de Futsal: Rio Ave e Caxinas fecham ano com derrotas**: [Link](https://maissemanario.pt/liga-futsal-rio-ave-e-caxinas-fecham-ano-com-derrotas/)
-
-
-### thunder - 76ers (N/A, 28/12/2025 21:19 Lima)
-
-- **Thunder end skid with big win, Raptors beat Warriors in overtime**: [Link](https://thesun.my/sports/basketball/thunder-end-skid-with-big-win-raptors-beat-warriors-in-overtime/)
-- **SGA & Chet combine for an efficient 56 points in win**: [Link](https://www.nba.com/watch/video/sga-chet-combine-for-an-efficient-56-points-in-win)
-- **Sixers hang tough early in OKC, but reigning champs dominate second half**: [Link](https://sports.yahoo.com/articles/sixers-hang-tough-early-okc-225655025.html)
-
-
-### predicciones horoscopo chino 2026 (N/A, 28/12/2025 21:19 Lima)
-
-- **¿Qué día inicia el Año Nuevo Chino 2026? Fecha exacta y qué animal lo representa**: [Link](https://elcomercio.pe/respuestas/cuando/ano-nuevo-chino-2026-fecha-exacta-de-inicio-y-que-animal-lo-representa-tdpe-noticia/)
-- **2026: ¿el año del fuego?, por Ramiro Escobar**: [Link](https://larepublica.pe/opinion/2025/12/28/2026-el-ano-del-fuego-por-ramiro-escobar-hnews-1538516)
-- **Los 5 rituales que debés hacer para empezar el 2026 de buena manera, según el horóscopo chino**: [Link](https://tn.com.ar/sociedad/2025/12/28/los-5-rituales-que-debes-hacer-para-empezar-el-2026-de-buena-manera-segun-el-horoscopo-chino/)
 
 
