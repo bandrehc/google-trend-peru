@@ -1,3 +1,72 @@
+### plaza norte (N/A, 01/01/2026 11:33 Lima)
+
+- **¿Atenderán los centros comerciales en el feriado del 1 de enero de 2026? Estos son los horarios de Plaza Norte, Megaplaza, Mall y Real Plaza**: [Link](https://www.infobae.com/peru/2025/12/30/atenderan-los-centros-comerciales-en-el-feriado-del-1-de-enero-de-2026-estos-son-los-horarios-de-plaza-norte-megaplaza-mall-y-real-plaza/)
+- **Horario de los centros comerciales este feriado 1 de enero de 2026: ¿Abrirán Plaza Norte, Jockey Plaza, Real Plaza y otros malls?**: [Link](https://wapa.pe/ocio/2025/12/31/ano-nuevo-2026-plaza-norte-jockey-plaza-real-plaza-sus-horarios-atencion-feriado-1-enero-1454241)
+
+
+### wycombe wanderers - cardiff (N/A, 01/01/2026 11:33 Lima)
+
+- **Wycombe Wanderers v Cardiff City: League One stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cpvd91pymk9t)
+- **Live EFL on Sky Sports Football HD: full details and when it's on**: [Link](https://www.tvguide.co.uk/schedule/1585a306-3ee8-5958-a27e-2bc4241c99e1/live-efl)
+- **Away Days - Travel Guide | Wycombe Wanderers vs. Cardiff City**: [Link](https://www.cardiffcityfc.co.uk/news/away-days-travel-guide-wycombe-wanderers-vs-cardiff-city)
+
+
+### pataz (N/A, 01/01/2026 11:33 Lima)
+
+- **Reportan nueva masacre en Pataz: mineros artesanales fueron asesinados la víspera de Año Nuevo**: [Link](https://www.infobae.com/peru/2026/01/01/reportan-nueva-masacre-en-pataz-mineros-artesanales-fueron-asesinados-la-vispera-de-ano-nuevo/)
+- **Masacre en Pataz a vísperas de Año Nuevo: reportan al menos 13 personas asesinadas en bocamina**: [Link](https://larepublica.pe/politica/2026/01/01/encuentran-a-13-mineros-sin-vida-en-pataz-alcalde-critico-estado-de-emergencia-hnews-28259)
+- **Ataque en socavón deja 3 muertos y 7 desaparecidos en Pataz: Víctimas serían mineros artesanales**: [Link](https://www.exitosanoticias.pe/actualidad/ataque-socavon-deja-3-muertos-7-desaparecidos-pataz-victimas-serian-mineros-artesanales-n165779)
+
+
+### plaza vea horario (N/A, 01/01/2026 11:33 Lima)
+
+- **Año Nuevo: Horarios de los supermercados para este 1 de enero**: [Link](https://gestion.pe/peru/ano-nuevo-2026-los-horarios-de-los-supermercados-para-este-31-de-diciembre-y-1-de-enero-noticia/)
+- **¿Cuál es el horario de atención de Plaza Vea, Tottus, Metro, Makro y otros supermercados para este 31 de diciembre y 1 de enero de 2026?**: [Link](https://www.infobae.com/peru/2025/12/31/cual-es-el-horario-de-atencion-de-plaza-vea-tottus-metro-makro-y-otros-supermercados-para-este-31-de-diciembre-y-1-de-enero-de-2026/)
+- **Estos son los horarios de los malls para el 31 de diciembre y 1 de enero**: [Link](https://chocale.cl/2025/12/horarios-malls-centros-comerciales-31-de-diciembre-2025-y-1-de-enero-de-2026/)
+
+
+### suiza (N/A, 01/01/2026 11:33 Lima)
+
+- **Decenas de muertos y al menos 100 heridos tras un incendio en un centro turístico de esquí en Suiza**: [Link](https://www.bbc.com/mundo/articles/c7v066y2l1do)
+- **Los testimonios del incendio en el bar Le Constellation en Crans-Montana: “Cundió el pánico absoluto, todo el mundo gritaba”**: [Link](https://elpais.com/internacional/2026-01-01/los-testimonios-del-incendio-en-el-bar-le-constellation-en-crans-montana-cundio-el-panico-absoluto-todo-el-mundo-gritaba.html)
+- **Decenas de muertos en el incencio en Suiza**: [Link](https://www.dw.com/es/decenas-de-muertos-en-el-incencio-en-suiza/a-75359790)
+
+
+### juegos ps plus enero 2026 (N/A, 01/01/2026 11:33 Lima)
+
+- **Los juegos de PS Essential en enero de 2026 tienen de todo: carreras ilegales y un clásico de Disney**: [Link](https://as.com/meristation/noticias/los-juegos-de-ps-essential-en-enero-de-2026-tienen-de-todo-carreras-ilegales-y-un-clasico-de-disney-f202512-n/)
+- **PlayStation Plus confirma sus 3 nuevos juegos gratis para enero de 2026**: [Link](https://alfabetajuega.com/playstation/playstation-plus-confirma-sus-3-nuevos-juegos-gratis-para-enero-de-2026)
+- **Si eres suscriptor de PS Plus en PS4, hay malas noticias en 2026: vas a pagar lo mismo que el resto por menos juegos**: [Link](https://www.vidaextra.com/ps4/eres-suscriptor-ps-plus-ps4-hay-malas-noticias-2026-vas-a-pagar-resto-juegos)
+
+
+### enzo maresca (N/A, 01/01/2026 11:33 Lima)
+
+- **Golpe de Año Nuevo: Enzo Maresca dejó de ser técnico del Chelsea en medio de una crisis de resultados**: [Link](https://rpp.pe/futbol/futbol-mundial/enzo-maresca-dejo-de-ser-tecnico-del-chelsea-en-medio-de-una-crisis-de-resultados-noticia-1669882)
+- **El Chelsea anunció el despido de su entrenador italiano Enzo Maresca**: [Link](https://andina.pe/agencia/noticia-el-chelsea-anuncio-despido-su-entrenador-italiano-enzo-maresca-1057709.aspx)
+- **Enzo Maresca deja el Chelsea pese a contrato hasta 2029**: [Link](https://caretas.pe/home_web/home_principal_secundario/enzo-maresca-deja-el-chelsea-pese-a-contrato-hasta-2029/)
+
+
+### leeds vs. liverpool (N/A, 01/01/2026 11:33 Lima)
+
+- **Liverpool Predicted Lineup vs Leeds United for 1 January**: [Link](https://lastwordonsports.com/football/2026/01/01/liverpool-predicted-lineup-vs-leeds-january/)
+- **Slot: Players like Wirtz need time to adapt to Premier League intensity**: [Link](https://www.beinsports.com/en-us/soccer/premier-league/articles/slot-players-like-wirtz-need-time-to-adapt-to-premier-league-intensity-2026-01-01)
+- **Arne Slot reacts to Florian Wirtz’s performance vs Wolves**: [Link](https://onefootball.com/fr/news/arne-slot-reacts-to-florian-wirtzs-performance-vs-wolves-42166300)
+
+
+### blackburn rovers - wrexham (N/A, 01/01/2026 11:33 Lima)
+
+- **Blackburn Rovers player ratings with 4 and 5/10s in limp display**: [Link](https://www.lancashiretelegraph.co.uk/sport/25733908.blackburn-rovers-player-ratings-4-5-10s-vs-wrexham/)
+- **Parkin's delight for goal duo Smith and 'van Basten'**: [Link](https://www.aol.com/articles/parkins-delight-goal-duo-smith-151819351.html)
+- **Wrexham end shock 60-year record to boost Championship play-off hopes**: [Link](https://talksport.com/football/3864340/wrexham-shock-record-championship-play-off-hopes/)
+
+
+### partidos de hoy (N/A, 01/01/2026 11:33 Lima)
+
+- **Partidos de hoy, jueves 1 de enero del 2026: horarios y canales TV para ver EN VIVO Premier League**: [Link](https://rpp.pe/futbol/futbol-mundial/partidos-de-hoy-peru-jueves-1-de-enero-del-2026-horarios-y-canales-tv-ver-futbol-en-vivo-noticia-1669828)
+- **La Premier League no se detiene: ¿qué partidos se jugarán el 1 de enero de 2026?**: [Link](https://depor.com/futbol-internacional/inglaterra/partidos-de-premier-league-del-1-de-enero-de-2026-liverpool-vs-leeds-y-sunderland-vs-manchester-city-noticia/)
+- **Con el foco en la Premier League y la NBA: las ocho propuestas deportivas para ver este 1° de enero**: [Link](https://www.infobae.com/deportes/2025/12/31/con-el-foco-en-la-premier-league-y-la-nba-las-ocho-propuestas-deportivas-para-ver-este-1-de-enero/)
+
+
 ### clima (N/A, 01/01/2026 07:53 Lima)
 
 - **Feriado largo: Lima Metropolitana presentaría brillo solar hasta el 4 de enero**: [Link](https://elperuano.pe/noticia/286140-lima-metropolitana-presentaria-brillo-solar-y-temperaturas-templadas-durante-el-feriado-largo)
@@ -961,74 +1030,5 @@
 ### calendario (N/A, 29/12/2025 07:56 Lima)
 
 - **Comienza el año del Mundial 2026: los récords que buscará Argentina en la Copa del Mundo**: [Link](https://www.espn.com.pe/futbol/mundial/nota/_/id/16113439/comienza-el-ano-del-mundial-2026-los-records-que-buscara-argentina-en-la-copa-del-mundo)
-
-
-### clippers - pistons (N/A, 29/12/2025 03:38 Lima)
-
-- **Game Recap: Clippers 112, Pistons 99**: [Link](https://www.nba.com/watch/video/game-recap-clippers-112-pistons-99)
-- **HoopsHype Daily: Kawhi Leonard explodes for 55, Scottie Barnes delivers 20-25-10 game**: [Link](https://www.hoopshype.com/story/sports/nba/2025/12/29/hoopshype-daily-payton-pritchard-catches-fire-kawhi-leonard-breaks-out/87728974007/)
-- **Highlights: Clippers take down the Pistons behind Kawhi's career-high night**: [Link](https://www.nbcmiami.com/video/news/sports/nba-highlights-pistons-clippers-dec-28/3740724/)
-
-
-### cesar inga (N/A, 29/12/2025 03:38 Lima)
-
-- **El inesperado mensaje de César Inga a Christian Cueva que sorprendió a hinchas: "Mucho..."**: [Link](https://libero.pe/futbol-peruano/2025/12/28/cesar-inga-su-inesperado-mensaje-christian-cueva-sorprendio-hinchas-mucho-2481080)
-- **César Inga y su inesperado recado a Christian Cueva tras encontrarse en 'pichanga'**: [Link](https://www.eldiez.com.pe/universitario/cesar-inga-y-su-inesperado-recado-a-christian-cueva-tras-encontrarse-en-pichanga-noticia/)
-
-
-### temblor hace 5 minutos chimbote (N/A, 29/12/2025 03:38 Lima)
-
-- **Cañete reporta al menos 17 sismos en 2025: Estas son las zonas más vulnerables tras el temblor de 4.8**: [Link](https://www.infobae.com/peru/2025/12/28/canete-reporta-al-menos-17-sismos-en-2025-estas-son-las-zonas-mas-vulnerables-tras-el-temblor-de-48/)
-- **Ingemmet advierte zonas de alto riesgo geológico en Áncash y La Libertad tras sismo de 6.0**: [Link](https://elcomercio.pe/peru/ingemmet-advierte-zonas-de-alto-riesgo-geologico-en-ancash-y-la-libertad-tras-sismo-de-60-ultimas-noticia/)
-- **Tres sismos con epicentro en Chimbote volvieron a sacudir el norte del país**: [Link](https://rpp.pe/peru/actualidad/sismos-en-chimbote-tres-replicas-de-magnitudes-51-38-y-39-este-domingo-y-coer-reporta-44-heridos-en-ancash-danos-en-colegios-y-hospitales-noticia-1669535)
-
-
-### lakers (N/A, 28/12/2025 23:53 Lima)
-
-- **Redick rips into Lakers: 'We don't care enough'**: [Link](https://www.espn.com/nba/story/_/id/47416168/jj-redick-rips-lakers-loss-care-enough)
-- **“LeBron on His Golf Simulator Right Now”: Dwyane Wade Believes LBJ Isn’t Too Concerned With JJ Redick’s Recent Comments**: [Link](https://thesportsrush.com/nba-news-lebron-on-his-golf-simulator-right-now-dwyane-wade-believes-lbj-isnt-too-concerned-with-jj-redicks-recent-comments/)
-- **NBA Notes: Lakers, recent slide, Kings, Keon Ellis, Clippers**: [Link](https://hoopswire.com/nba-notes-lakers-recent-slide-kings-keon-ellis-clippers/)
-
-
-### lakers - kings (N/A, 28/12/2025 23:53 Lima)
-
-- **Kings vs. Lakers: Beat L.A.**: [Link](https://kingsherald.com/articles/kings-vs-lakers-beat-l-a/)
-- **Los Angeles faces Sacramento, looks to break 3-game slide**: [Link](https://www.heraldbulletin.com/sports/national_sports/los-angeles-faces-sacramento-looks-to-break-3-game-slide/article_5d4cd199-2785-545b-9b4c-5ac9bc3a427e.html)
-- **NBA Best Bets: Kings at Lakers Prop Bets for Sunday 12/28/25**: [Link](https://dknetwork.draftkings.com/2025/12/28/nba-best-bets-kings-at-lakers-prop-bets-for-sunday-12-28-25-2/)
-
-
-### 2 de enero feriado (N/A, 28/12/2025 23:53 Lima)
-
-- **Gobierno declara el 2 de enero como día no laborable oficial para el sector público**: [Link](https://canaln.pe/actualidad/gobierno-declara-viernes-2-enero-como-dia-no-laborable-n489209)
-- **¿El 31 de diciembre es feriado o día no laborable en Perú? Conoce lo que dice la norma vigente**: [Link](https://www.infobae.com/peru/2025/12/27/el-31-de-diciembre-es-feriado-o-dia-no-laborable-en-peru-conoce-lo-que-dice-la-norma-vigente/)
-- **Hoy 26 de diciembre: ¿descansas o compensas? Conoce qué aplica en tu trabajo**: [Link](https://www.elperuano.pe/noticia/285837-hoy-26-de-diciembre-descansas-o-compensas-conoce-que-aplica-en-tu-trabajo)
-
-
-### san luis gonzaga (N/A, 28/12/2025 23:53 Lima)
-
-- **RESULTADOS EXAMEN DE ADMISIÓN: Más de 4600 postulantes a la UNICA**: [Link](https://diariocorreo.pe/edicion/ica/resultados-examen-de-admision-mas-de-4600-postulantes-a-la-unica-noticia/)
-- **Ica: Postulantes deberán verificar su puerta de ingreso para el examen de admisión de la UNICA**: [Link](https://diariocorreo.pe/edicion/ica/ica-postulantes-deberan-verificar-su-puerta-de-ingreso-para-el-examen-de-admision-de-la-unica-noticia/)
-- **Ica: más de 4600 postulantes rendirán examen de admisión en la Universidad Nacional San Luis Gonzaga**: [Link](https://diariocorreo.pe/edicion/ica/ica-mas-de-4600-postulantes-rendiran-examen-de-admision-en-la-universidad-nacional-san-luis-gonzaga-noticia/)
-
-
-### universitario vs regatas (N/A, 28/12/2025 21:19 Lima)
-
-- **Tabla de posiciones de la Liga Peruana de Vóley 2025/26: así van los equipos durante la fecha 10 de la primera fase**: [Link](https://www.infobae.com/peru/deportes/2025/12/27/tabla-de-posiciones-liga-peruana-de-voley-2025-2026-en-vivo-fecha-10-alianza-lima-universitario-san-martin-regatas-resultados/)
-- **Tabla de posiciones de Liga Peruana de Vóley tras derrota de Alianza: resultados de la fecha 10**: [Link](https://libero.pe/deportes/voley/2025/12/25/tabla-de-posiciones-de-liga-peruana-de-voley-programacion-de-partidos-resultados-de-fecha-10-855000)
-- **Universitario vs. Regatas Lima en vivo: transmisión del partido por Liga Peruana de Vóley**: [Link](https://elcomercio.pe/deporte-total/voley/universitario-vs-regatas-voley-en-vivo-online-gratis-via-latina-tv-canal-2-a-que-hora-juegan-canal-que-transmite-y-donde-ver-por-liga-peruana-de-voley-video-noticia/)
-
-
-### trail blazers - celtics (N/A, 28/12/2025 21:19 Lima)
-
-- **Celtics being haunted by old ghost (but this time, it didn't matter)**: [Link](https://hardwoodhoudini.com/celtics-being-haunted-old-ghost-but-this-time-didnt-matter-blazers-donovan-clingan-jaylen-brown)
-- **HIGHLIGHTS » Blazers Snap Losing Streak To Celtics Sunday Afternoon**: [Link](https://www.nba.com/blazers/videos/highlights-blazers-snap-losing-streak-to-celtics-sunday-afternoon)
-- **Boston Celtics vs Portland Trail Blazers regular season game: Full injury report, who's out, where to wat**: [Link](https://timesofindia.indiatimes.com/sports/nba/top-stories/boston-celtics-vs-portland-trail-blazers-regular-season-game-full-injury-report-whos-out-where-to-watch-and-more-december-28-2025/articleshow/126219934.cms)
-
-
-### pablo lavandeira (N/A, 28/12/2025 21:19 Lima)
-
-- **FC Cajamarca a ritmo blanquiazul: otro bicampeón con Alianza Lima en la mira**: [Link](https://depor.com/futbol-peruano/descentralizado/fc-cajamarca-busca-el-fichaje-de-ricardo-lagos-bicampeon-con-alianza-lima-en-agenda-del-club-pablo-lavandeira-noticia/)
-- **Tras su salida de Alianza Lima: Pablo Lavandeira es nuevo jugador de FC Cajamarca**: [Link](https://rpp.pe/futbol/descentralizado/pablo-lavandeira-fue-presentado-como-jugador-de-fc-cajamarca-tras-su-salida-de-alianza-lima-liga-1-noticia-1669517)
-- **Bicampeón con Alianza Lima podría llegar a inesperado equipo de la Liga 1: "Interesa mucho..."**: [Link](https://libero.pe/futbol-peruano/alianza-lima/2025/12/28/bicampeon-alianza-lima-podria-llegar-inesperado-equipo-de-liga-1-interesa-mucho-1997772)
 
 
