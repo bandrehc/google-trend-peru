@@ -1,3 +1,74 @@
+### city (N/A, 01/01/2026 15:29 Lima)
+
+- **Mamdani Is First New York Mayor to Use the Quran at His Swearing-In**: [Link](https://www.nytimes.com/2025/12/31/nyregion/mamdani-quran-inauguration-muslim.html)
+- **EXCLUSIVE: Mamdani's Official Swearing In Will Be At Abandoned Original City Hall Subway Station**: [Link](https://nyc.streetsblog.org/2025/12/29/exclusive-mamdani-will-be-sworn-in-at-abandoned-original-city-hall-subway-station)
+- **Zohran Mamdani to become NYC’s next mayor with a midnight oath underground**: [Link](https://apnews.com/article/zohran-mamdani-mayor-new-york-city-swearing-6e958e049e6611a9f487a6de61db2950)
+
+
+### crystal palace vs. manchester city (N/A, 01/01/2026 15:29 Lima)
+
+- **Pep Guardiola makes surprising Man City trophy claim after Rodri returns from injury**: [Link](https://www.mirror.co.uk/sport/football/news/pep-guardiola-man-city-rodri-36482285)
+- **Man City boss Pep Guardiola sends ominous title warning to Arsenal**: [Link](https://metro.co.uk/2026/01/01/manchester-city-boss-pep-guardiola-sends-ominous-warning-arsenal-premier-league-title-race-25984608/)
+- **Energetic Manchester City have lifted last season’s fog, says Pep Guardiola**: [Link](https://www.theguardian.com/football/2025/dec/28/pep-guardiola-admits-he-and-manchester-city-players-lacked-energy-last-season)
+
+
+### brentford vs. bournemouth (N/A, 01/01/2026 15:29 Lima)
+
+- **'Schade follows Lewis-Potter in finally getting what they deserve'**: [Link](https://sports.yahoo.com/articles/schade-follows-lewis-potter-finally-120840524.html)
+- **Brentford 4-1 Bournemouth: Fan views**: [Link](https://www.bbc.com/sport/football/articles/cwyp0vd1yrvo)
+- **Keith Andrews highlights the work of ‘outstanding’
+hat-trick scorer**: [Link](https://www.vavel.com/en/football/2025/12/27/premier-league/1245656-keith-andrews-highlights-the-work-of-outstandinghat-trick-scorer.html)
+
+
+### brentford - tottenham (N/A, 01/01/2026 15:29 Lima)
+
+- **Preview: Brentford vs Tottenham Hotspur - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/spurs/preview/brentford-vs-spurs-prediction-team-news-lineups_588734.html)
+- **Thomas Frank opens up on Tottenham Hotspur critics not saying it to his face**: [Link](https://www.spurs-web.com/spurs-news/thomas-frank-opens-up-on-tottenham-hotspur-critics-not-saying-it-to-his-face/)
+- **Brentford vs Tottenham: Get £40 free bets and bonus when you stake £10 on football with Tote**: [Link](https://www.thesun.co.uk/sport/37765613/brentford-vs-tottenham-free-bets-bonus-football-tote/)
+
+
+### amazon prime (N/A, 01/01/2026 15:29 Lima)
+
+- **New on Prime Video in January 2026 — The Complete List of Movies and TV Shows**: [Link](https://www.usmagazine.com/entertainment/news/new-on-prime-video-in-january-2026-the-complete-list-of-movies-and-tv-shows/)
+- **New on Prime Video: Full List of Movies, Shows in January 2026**: [Link](https://www.newsweek.com/entertainment/tv/new-on-prime-video-january-2026-11289480)
+- **What’s coming soon to Amazon Prime Video UK in January 2026?**: [Link](https://vodzilla.co/blog/coming-soon-to-amazon/whats-coming-soon-to-amazon-prime-video-uk-in-january-2026/)
+
+
+### sunderland afc - manchester city (N/A, 01/01/2026 15:29 Lima)
+
+- **Sudnerland vs Manchester City LIVE Score Updates in Premier League Match**: [Link](https://www.vavel.com/en-us/soccer/2026/01/01/1245898-sudnerland-vs-manchester-city-live-score-premier-league.html)
+- **Pep provides injury update ahead of Sunderland clash**: [Link](https://onefootball.com/en/news/pep-provides-injury-update-ahead-of-sunderland-clash-42167197)
+- **Khusanov on the bench: Sunderland - City squads announced**: [Link](https://zamin.uz/en/sport/179854-khusanov-on-the-bench-sunderland-city-squads-announced.html)
+
+
+### plaza vea horario hoy (N/A, 01/01/2026 15:29 Lima)
+
+- **¿Atenderán los centros comerciales en el feriado del 1 de enero de 2026? Estos son los horarios de Plaza Norte, Megaplaza, Mall y Real Plaza**: [Link](https://www.infobae.com/peru/2025/12/30/atenderan-los-centros-comerciales-en-el-feriado-del-1-de-enero-de-2026-estos-son-los-horarios-de-plaza-norte-megaplaza-mall-y-real-plaza/)
+- **Año Nuevo: Horarios de los supermercados para este 1 de enero**: [Link](https://gestion.pe/peru/ano-nuevo-2026-los-horarios-de-los-supermercados-para-este-31-de-diciembre-y-1-de-enero-noticia/)
+- **Horario de atención de Plaza Vea, Tottus y Metro hoy, 1 de enero**: [Link](https://libero.pe/tiempoextra/2025/12/30/horario-de-atencion-en-supermercados-plaza-vea-tottus-metro-miercoles-31-de-diciembre-1-ano-nuevo-693450)
+
+
+### disney (N/A, 01/01/2026 15:29 Lima)
+
+- **Guardians of the Galaxy Cosmic Rewind Nears Four-Hour Wait as EPCOT Crowds Swell on New Year's Eve**: [Link](https://www.wdwmagic.com/attractions/guardians-of-the-galaxy/news/31dec2025-guardians-of-the-galaxy-cosmic-rewind-nears-four-hour-wait-as-epcot-crowds-swell-on-new-years-eve.htm)
+- **Wait Times for New Year’s Eve in Disney World Were…Something**: [Link](https://allears.net/2026/01/01/wait-times-for-new-years-eve-in-disney-world-were-something/)
+- **Record New Year’s Eve Crowds Force Disney World Attractions To Cease Operations**: [Link](https://www.disneydining.com/record-new-years-eve-crowds-prompt-operational-changes-at-disney-world-ab1/)
+
+
+### tarjeta roja (N/A, 01/01/2026 15:29 Lima)
+
+- **El 2026 empezó con todo: así fue el primer gol de la temporada en el fútbol mundial | VIDEO**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/el-2026-empezo-con-todo-asi-fue-el-primer-gol-de-la-temporada-en-el-futbol-mundial-video-noticia/)
+- **¡Fútbol para empezar el año! Estos son los partidos para 1 y 2 de enero del 2026**: [Link](https://www.elcomercio.com/deportes/futbol/futbol-partidos-1-2-enero-feriado-2026/)
+- **¿Qué ligas alrededor del mundo tienen actividad el 1 de enero? #Futbol**: [Link](https://www.xeudeportes.mx/futbol-internacional/1401553/que-ligas-alrededor-del-mundo-tienen-actividad-el-1-de-enero)
+
+
+### leicester vs (N/A, 01/01/2026 15:29 Lima)
+
+- **Leicester City's 'incredible' duo help equal record as chairman's 'moments' comment confuses**: [Link](https://www.leicestermercury.co.uk/sport/football/match-reports/leicester-citys-incredible-duo-help-10729737)
+- **Marti Cifuentes hails Leicester’s attitude and character after Derby victory**: [Link](https://www.wattonandswaffhamtimes.co.uk/sport/national/25728653.marti-cifuentes-hails-leicesters-attitude-character-derby-victory/)
+- **THE DERBY DEBRIEF: Leicester City (A)**: [Link](https://www.dcfc.co.uk/news/2025/12/the-derby-debrief-leicester-city-a-202526)
+
+
 ### plaza norte (N/A, 01/01/2026 11:33 Lima)
 
 - **¿Atenderán los centros comerciales en el feriado del 1 de enero de 2026? Estos son los horarios de Plaza Norte, Megaplaza, Mall y Real Plaza**: [Link](https://www.infobae.com/peru/2025/12/30/atenderan-los-centros-comerciales-en-el-feriado-del-1-de-enero-de-2026-estos-son-los-horarios-de-plaza-norte-megaplaza-mall-y-real-plaza/)
@@ -962,73 +1033,5 @@
 - **Michael Schumacher's devastating text message to wife 12 years on from tragic skiing accident**: [Link](https://www.gbnews.com/sport/f1/michael-schumacher-text-wife-skiing-accident)
 - **12 years on from Schumacher's skiing accident, everything we know about his condition**: [Link](https://www.nationalworld.com/sport/formula-1/michael-schumacher-12-years-since-skiing-accident-condition-who-is-allowed-to-visit-him-5457433)
 - **Michael Schumacher’s friend reveals ‘strict rules’ around visiting F1 star**: [Link](https://www.express.co.uk/news/world/2151202/michael-schumacher-health-condition-visit-f1-driver)
-
-
-### al khaleej - al-fateh (N/A, 29/12/2025 11:32 Lima)
-
-- **49ers 42-38 Bears (Dec 28, 2025) Box Score**: [Link](https://www.espn.com/nfl/boxscore/_/gameId/401772935)
-- **Clippers 112-99 Pistons (Dec 28, 2025) Game Recap**: [Link](https://www.espn.com/nba/recap/_/gameId/401810300)
-- **Bucks 112-103 Bulls (Dec 27, 2025) Game Recap**: [Link](https://www.espn.com/nba/recap/_/gameId/401810292)
-
-
-### mef (N/A, 29/12/2025 11:32 Lima)
-
-- **MEF impulsa uso de metodología BIM**: [Link](https://elperuano.pe/noticia/286019-mef-impulsa-uso-de-metodologia-bim)
-- **Cronograma de pagos 2026 en el Banco de la Nación: Fechas de sueldos, aguinaldos y bono de escolaridad**: [Link](https://www.infobae.com/peru/2025/12/26/cronograma-de-pago-de-sueldos-aguinaldos-y-bono-de-escolaridad-en-el-banco-de-la-nacion-fechas-en-2026/)
-- **Cronograma Banco de la Nación en enero 2026: fechas de pago de sueldos, aguinaldos y bono escolar**: [Link](https://elcomercio.pe/respuestas/tramites/cronograma-banco-de-la-nacion-en-enero-2026-fechas-de-pago-de-sueldos-aguinaldos-y-bono-escolar-tdpe-noticia/)
-
-
-### minsa (N/A, 29/12/2025 11:32 Lima)
-
-- **Tres sismos con epicentro en Chimbote volvieron a sacudir el norte del país**: [Link](https://rpp.pe/peru/actualidad/sismos-en-chimbote-tres-replicas-de-magnitudes-51-38-y-39-este-domingo-y-coer-reporta-44-heridos-en-ancash-danos-en-colegios-y-hospitales-noticia-1669535)
-- **Prepararnos para lo inevitable**: [Link](https://www.elperuano.pe/noticia/286022-prepararnos-para-lo-inevitable)
-- **INGEMMET alertó desde 2015 sobre zonas críticas en Áncash y La Libertad expuestas a deslizamientos y sismos**: [Link](https://canaln.pe/actualidad/zonas-criticas-ancash-y-libertad-fueron-alertadas-2015-n489230)
-
-
-### el peruano (N/A, 29/12/2025 11:32 Lima)
-
-- **El Peruano te informa: consulta aquí las principales normas legales para hoy, lunes 29 de Diciembre del 2025**: [Link](https://elperuano.pe/noticia/285999-el-peruano-te-informa-consulta-aqui-las-principales-normas-legales-para-hoy-lunes-29-de-diciembre-del-2025)
-- **Estas son las normas legales más importantes del lunes 29 de diciembre del 2025**: [Link](https://andina.pe/agencia/noticia-estas-son-las-normas-legales-mas-importantes-del-lunes-29-diciembre-del-2025-1057291.aspx)
-- **PLANIFICA TUS ESCAPADAS: Estos son los 16 feriados del 2026**: [Link](https://peru21.pe/peru/estos-son-los-16-feriados-nacionales-del-2026/)
-
-
-### 29 de diciembre es feriado (N/A, 29/12/2025 11:32 Lima)
-
-- **PLANIFICA TUS ESCAPADAS: Estos son los 16 feriados del 2026**: [Link](https://peru21.pe/peru/estos-son-los-16-feriados-nacionales-del-2026/)
-- **Feriado largo antes de Año Nuevo: ¿Habrá descanso el 29 y 30 de diciembre? Esto dice El Peruano**: [Link](https://elcomercio.pe/respuestas/que/feriado-largo-antes-de-ano-nuevo-se-descansara-el-29-y-30-de-diciembre-esto-dice-el-peruano-tdpe-noticia/)
-- **Conoce los 16 feriados nacionales del Perú en el 2026**: [Link](https://rpp.pe/peru/actualidad/feriados-2026-la-lista-completa-de-los-16-feriados-nacionales-del-peru-noticia-1669432)
-
-
-### weather (N/A, 29/12/2025 07:56 Lima)
-
-- **City facing freezing rain warning**: [Link](https://www.tbnewswatch.com/local-news/city-facing-freezing-rain-warning-11672377)
-- **December 29, 2025: Dryden & Vermilion Bay Weather Focus — Deep Cold, Wind Chills Near -32 Overnight, Light Snow Tuesday**: [Link](https://www.netnewsledger.com/2025/12/29/december-29-2025-dryden-vermilion-bay-weather-focus-deep-cold-wind-chills-near-32-overnight-light-snow-tuesday/)
-- **NetNewsLedger Weather Advisory — Freezing Rain — Atikokan / Shebandowan / Quetico Park**: [Link](https://www.netnewsledger.com/2025/12/26/netnewsledger-weather-advisory-freezing-rain-atikokan-shebandowan-quetico-park/)
-
-
-### rpp noticias (N/A, 29/12/2025 07:56 Lima)
-
-- **Tres sismos con epicentro en Chimbote volvieron a sacudir el norte del país**: [Link](https://rpp.pe/peru/actualidad/sismos-en-chimbote-tres-replicas-de-magnitudes-51-38-y-39-este-domingo-y-coer-reporta-44-heridos-en-ancash-danos-en-colegios-y-hospitales-noticia-1669535)
-- **Prepararnos para lo inevitable**: [Link](https://www.elperuano.pe/noticia/286022-prepararnos-para-lo-inevitable)
-- **Defensoría exige implementar sistema de alerta sísmica en Perú**: [Link](https://canaln.pe/actualidad/defensoria-exige-implementar-sistema-alerta-sismica-peru-n489217)
-
-
-### dni electrónico gratis (N/A, 29/12/2025 07:56 Lima)
-
-- **Reniec anuncia DNI electrónico gratuito todo el 2026: ¿Quiénes son los beneficiados?**: [Link](https://www.infobae.com/peru/2025/12/27/reniec-anuncia-dni-electronico-gratuito-todo-el-2026-quienes-son-los-beneficiados/)
-- **¡Atención!: Reniec autoriza la gratuidad para la tramitación del DNI electrónico**: [Link](https://elperuano.pe/noticia/285933-atencion-reniec-autoriza-la-gratuidad-para-la-tramitacion-del-dni-electronico)
-- **Estas son las normas legales más importantes del sábado 27 de diciembre del 2025**: [Link](https://andina.pe/agencia/noticia-estas-son-las-normas-legales-mas-importantes-del-sabado-27-diciembre-del-2025-1057143.aspx)
-
-
-### liga peruana de vóley alianza lima (N/A, 29/12/2025 07:56 Lima)
-
-- **Tabla de posiciones de la Liga Peruana de Vóley 2025/26: así quedaron los equipos tras la fecha 10 de la primera fase**: [Link](https://www.infobae.com/peru/deportes/2025/12/27/tabla-de-posiciones-liga-peruana-de-voley-2025-2026-en-vivo-fecha-10-alianza-lima-universitario-san-martin-regatas-resultados/)
-- **Tabla de posiciones de Liga Peruana de Vóley tras triunfo de Universitario y derrota de Alianza**: [Link](https://libero.pe/deportes/voley/2025/12/25/tabla-de-posiciones-de-liga-peruana-de-voley-programacion-de-partidos-resultados-de-fecha-10-855000)
-- **Universitario venció 3-1 a Regatas Lima por fecha 10 de la Liga Peruana de Vóley | RESUMEN**: [Link](https://elcomercio.pe/deporte-total/voley/universitario-vs-regatas-voley-en-vivo-online-gratis-via-latina-tv-canal-2-a-que-hora-juegan-canal-que-transmite-y-donde-ver-por-liga-peruana-de-voley-video-noticia/)
-
-
-### calendario (N/A, 29/12/2025 07:56 Lima)
-
-- **Comienza el año del Mundial 2026: los récords que buscará Argentina en la Copa del Mundo**: [Link](https://www.espn.com.pe/futbol/mundial/nota/_/id/16113439/comienza-el-ano-del-mundial-2026-los-records-que-buscara-argentina-en-la-copa-del-mundo)
 
 
