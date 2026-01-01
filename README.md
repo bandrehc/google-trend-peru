@@ -1,3 +1,73 @@
+### año nuevo película (N/A, 01/01/2026 03:35 Lima)
+
+- **Renueva tu energía en 2026: 9 películas para empezar el año con inspiración**: [Link](https://elcomercio.pe/respuestas/trends/renueva-tu-energia-en-2026-9-peliculas-para-empezar-el-ano-con-inspiracion-tdpe-noticia/)
+- **12 escenas de películas y series para sincronizar con Año Nuevo**: [Link](https://indiehoy.com/cine/12-escenas-de-peliculas-y-series-para-sincronizar-con-ano-nuevo/)
+- **12 películas para celebrar las 12 campanadas: los mejores títulos sobre fin de año que puedes ver en streaming**: [Link](https://www.20minutos.es/cinemania/noticias/nochevieja-pelicula-streaming-fin-ano_6913337_0.html)
+
+
+### chistes (N/A, 01/01/2026 03:35 Lima)
+
+- **El chiste malo de Cristina Pedroche en las Campanadas para dar la bienvenida al 2026: "¿Cuál es el único pez**: [Link](https://www.lasexta.com/programas/zapeando/chiste-malo-cristina-pedroche-campanadas-dar-bienvenida-2026-cual-unico-pez-que_202601016955c598af09df5010984c3a.html)
+- **Cristina Pedroche busca ideas para su 'chiste malo' de Nochevieja: "¿Propuestas?"**: [Link](https://www.lasexta.com/programas/zapeando/cristina-pedroche-busca-ideas-chiste-malo-nochevieja-propuestas_202512316954e4b9af09df501097d021.html)
+- **Siguen los cortes de luz en otro día de calor agobiante: el mapa en vivo con los barrios afectados en la Ciudad y el GBA**: [Link](https://www.clarin.com/sociedad/siguen-cortes-luz-dia-calor-agobiante-mapa-vivo-barrios-afectados_0_MVwIwuxdAZ.html)
+
+
+### paolo guerrero (N/A, 01/01/2026 03:35 Lima)
+
+- **Girotti obligado a marcar historia: Barcos y los delanteros extranjeros que pasaron por Alianza Lima**: [Link](https://depor.com/futbol-peruano/descentralizado/federico-girotti-objetivos-en-alianza-lima-2026-mision-de-superar-a-hernan-barcos-y-ultimos-delanteros-extranjeros-en-el-club-liga-1-noticia/)
+- **Prensa de Argentina destacó a laureado delantero que firmó con Alianza Lima por 3 años: "Notable"**: [Link](https://libero.pe/futbol-peruano/alianza-lima/2025/12/31/fichajes-liga-1-prensa-argentina-destaco-laureado-delantero-firmo-alianza-lima-3-anos-notable-3011340)
+- **“El debut contra Inter Miami va a ser hermoso”: así fue la presentación de Federico Girotti en Alianza Lima | VIDEO**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/alianza-lima-asi-fue-presentacion-de-federico-girotti-en-matute-debut-contra-inter-miami-va-a-ser-hermoso-video-noticia/)
+
+
+### new year's day (N/A, 01/01/2026 03:35 Lima)
+
+- **LIST: Which restaurants are open for New Year’s Eve, Day?**: [Link](https://www.wdhn.com/nyecoasttocoast/list-which-restaurants-are-open-for-new-years-eve-day/?nxsparam=1)
+- **Starbucks store hours for New Year's Eve and New Year's Day 2026**: [Link](https://finance.yahoo.com/news/starbucks-store-hours-years-eve-180700964.html)
+- **Are Dunkin Donuts outlets open on New Year’s Day 2026? Store timings and more to know**: [Link](https://www.primetimer.com/news/are-dunkin-donuts-outlets-open-on-new-year-s-day-2026-store-timings-and-more-to-know)
+
+
+### día de año nuevo (N/A, 01/01/2026 03:35 Lima)
+
+- **¿Puedes ducharte o lavar los platos el día de Año Nuevo? Creencias populares explicadas**: [Link](https://www.ucvradio.pe/noticias-del-mundo/puedes-ducharte-o-lavar-los-platos-el-dia-de-ano-nuevo-creencias-populares-explicadas/91220/)
+- **Qué no debes hacer hoy 31 de diciembre si quieres empezar bien el 2026**: [Link](https://abcnoticias.mx/tendencia/2025/12/31/que-no-debes-hacer-hoy-31-de-diciembre-si-quieres-empezar-bien-el-2026-269765.html)
+- **Las cinco actividades que no debes hacer en Año Nuevo porque alejan la buena fortuna**: [Link](https://emisorasunidas.com/tendencias/2025/12/31/5-actividades-que-alejan-la-buena-fortuna-en-ano-nuevo/)
+
+
+### bomberos emergencia (N/A, 01/01/2026 03:35 Lima)
+
+- **Incendio en VES: siniestro afecta a cuatro predios; bomberos logran controlar la emergencia en un 80 %**: [Link](https://rpp.pe/lima/actualidad/reportan-incendio-en-ves-siniestro-genera-caida-de-cenizas-a-varios-kilometros-de-distancia-noticia-1669851)
+- **Incendio en zona comercial de Villa El Salvador moviliza a 15 unidades de bomberos**: [Link](https://diariocorreo.pe/edicion/lima/incendio-en-zona-comercial-de-villa-el-salvador-moviliza-a-15-unidades-de-bomberos-noticia/)
+- **Dos incendios en la víspera de Año Nuevo: Reportan siniestro en Villa El Salvador**: [Link](https://panamericana.pe/locales/462428-incendios-vispera-ano-nuevo-reportan-siniestro-villa-salvador)
+
+
+### cohetes (N/A, 01/01/2026 03:35 Lima)
+
+- **Escombros de cohetes espaciales son de alto peligro para la aviación en nuestra región (2da parte)**: [Link](https://www.diariolibre.com/usa/opinion-usa/2025/12/31/escombros-de-cohetes-espaciales-de-alto-riesgo-para-nuestra-region/3390744)
+- **SpaceX puso en peligro a un avión de pasajeros por culpa de una explosión**: [Link](https://www.softonic.com/articulos/spacex-puso-en-peligro-a-un-avion-de-pasajeros-por-culpa-de-una-explosion)
+- **Xi dice que la reunificación es "imparable" tras maniobras**: [Link](https://www.dw.com/es/la-reunificaci%C3%B3n-es-imparable-dice-xi-tras-maniobras-chinas-cerca-de-taiw%C3%A1n/a-75350316)
+
+
+### cuetes (N/A, 01/01/2026 03:35 Lima)
+
+- **Secretaría de Seguridad de Tijuana pide festejos responsables para recibir el Año Nuevo**: [Link](https://ksdy50.com/secretaria-de-seguridad-de-tijuana-pide-festejos-responsables-para-recibir-el-ano-nuevo/)
+- **#Morelia Llama Comisionado Alarcón A NO DISPARAR AL AIRE, Evita Tragedias Este Año Nuevo 2026**: [Link](https://changoonga.com/2025/12/31/morelia-llama-comisionado-alarcon-a-no-disparar-al-aire-evita-tragedias-este-ano-nuevo-2026/)
+- **Año Nuevo en Culiacán: confunden cuetes con disparos durante festejos en la madrugada**: [Link](https://oem.com.mx/elsoldesinaloa/local/ano-nuevo-en-culiacan-confunden-cuetes-con-disparos-durante-festejos-en-la-madrugada-27469599)
+
+
+### radio exitosa (N/A, 01/01/2026 03:35 Lima)
+
+- **Codeco emplaza a Ositran, Mincetur, Minsa e Indocopi a proteger a usuarios por colisión de trenes en Cusco**: [Link](https://comunicaciones.congreso.gob.pe/damos-cuenta/codeco-emplaza-a-ositran-mincetur-minsa-e-indocopi-a-proteger-a-usuarios-por-colision-de-trenes-en-cusco/)
+- **Inician diligencias tras choque de trenes en vía Machu Picchu que dejó un fallecido y más de 100 heridos**: [Link](https://lpderecho.pe/inician-diligencias-choque-trenes-via-machu-picchu-dejo-fallecido-100-heridos/)
+- **Presidente Jerí: somos un Gobierno que está en el lugar de los hechos y trabajando rápidamente**: [Link](https://elperuano.pe/noticia/286215-presidente-jeri-somos-un-gobierno-que-esta-en-el-lugar-de-los-hechos-y-trabajando-rapidamente)
+
+
+### calendario (N/A, 01/01/2026 03:35 Lima)
+
+- **Calendario del equipo de cricket masculino de la India 2026: fechas, series y sedes**: [Link](https://www.ucvradio.pe/deporte/calendario-del-equipo-de-cricket-masculino-de-la-india-2026-fechas-series-y-sedes/91193/)
+- **¿Hoy 31 de diciembre es feriado? Conoce tus derechos laborales antes de salir del trabajo**: [Link](https://www.elperuano.pe/noticia/286207-hoy-31-de-diciembre-es-feriado-conoce-tus-derechos-laborales-antes-de-salir-del-trabajo)
+- **¿Qué días son feriados 2026 en el Perú?**: [Link](https://www.americatv.com.pe/noticias/util-e-interesante/feriados-2026-lugares-cerca-lima-tomar-minivacaciones-n501166)
+
+
 ### cuenta regresiva año nuevo (N/A, 31/12/2025 23:51 Lima)
 
 - **Times Square estrena una deslumbrante bola de Año Nuevo, la más grande hasta ahora**: [Link](https://cnnespanol.cnn.com/2025/12/31/mundo/times-square-bola-ano-nuevo-2026-trax)
@@ -960,75 +1030,5 @@
 - **¿Qué día inicia el Año Nuevo Chino 2026? Fecha exacta y qué animal lo representa**: [Link](https://elcomercio.pe/respuestas/cuando/ano-nuevo-chino-2026-fecha-exacta-de-inicio-y-que-animal-lo-representa-tdpe-noticia/)
 - **2026: ¿el año del fuego?, por Ramiro Escobar**: [Link](https://larepublica.pe/opinion/2025/12/28/2026-el-ano-del-fuego-por-ramiro-escobar-hnews-1538516)
 - **Los 5 rituales que debés hacer para empezar el 2026 de buena manera, según el horóscopo chino**: [Link](https://tn.com.ar/sociedad/2025/12/28/los-5-rituales-que-debes-hacer-para-empezar-el-2026-de-buena-manera-segun-el-horoscopo-chino/)
-
-
-### raptors - warriors (N/A, 28/12/2025 21:19 Lima)
-
-- **Kendrick Perkins rips Steve Kerr for ignoring Jonathan Kuminga upon Raptors loss**: [Link](https://basketnews.com/news-237681-kendrick-perkins-rips-steve-kerr-for-ignoring-jonathan-kuminga-upon-raptors-loss.html)
-- **Scottie Barnes is the 9th player in NBA history …**: [Link](https://www.hoopshype.com/story/sports/nba/rumors/2025/12/28/scottie-barnes-is-the-9th-player-in-nba-history/87939567007/)
-- **Highlights: Warriors fall to Raptors in OT**: [Link](https://www.nbcmiami.com/video/news/sports/nba-highlights-warriors-raptors-dec-28/3740678/)
-
-
-### sporting lisboa (N/A, 28/12/2025 21:19 Lima)
-
-- **Sporting aproxima-se do líder com goleada sobre o Rio Ave**: [Link](https://www.correiodamanhacanada.com/sporting-aproxima-se-do-lider-com-goleada-sobre-o-rio-ave/)
-- **«Edu Quaresma fez uma segunda parte de Seleção e jogou doente»**: [Link](https://maisfutebol.iol.pt/rui-borges/sporting/edu-quaresma-fez-uma-segunda-parte-de-selecao-e-jogou-doente)
-- **Maxi Araújo fez de Miszta uma 'tosta' e aumentou a vantagem do Sporting**: [Link](https://www.noticiasaominuto.com/desporto/2910631/maxi-araujo-fez-de-miszta-uma-tosta-e-aumentou-a-vantagem-do-sporting)
-
-
-### sporting cp (N/A, 28/12/2025 21:19 Lima)
-
-- **Preview: Sporting Lisbon vs Rio Ave - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/sporting-lisbon/preview/sporting-lisbon-vs-rio-ave-prediction-team-news-lineups_588530.html)
-- **Sporting CP 4-0 Rio Ave - Luis Suárez hat-trick keeps the Lions on pace in the Primeira Liga**: [Link](https://portugoal.net/club-news/5419-sporting-cp-4-0-rio-ave-luis-suarez-hat-trick-keeps-the-lions-on-pace-in-the-primeira-liga)
-- **Sporting vs Rio Ave shows Leões nowhere near title favorites position despite 38 points, predicted scoreline shocks fans**: [Link](https://www.red94.net/news/78926-sporting-faces-rio-ave-today-in-crucial-liga-portugal-clash-lions-aim-to-strengt/)
-
-
-### jorge montoya (N/A, 28/12/2025 21:19 Lima)
-
-- **Carlos Espá justifica ingreso de Jorge Montoya a lista al Senado tras cuestionamientos**: [Link](https://www.expreso.com.pe/politica/carlos-espa-justifica-ingreso-de-jorge-montoya-a-lista-al-senado-tras-cuestionamientos-tacna-noticia/1250575/)
-- **Tacna rechaza a Carlos Espá y Jorge Montoya: ciudadanos borran muros con pintas de propaganda electoral de SíCreo**: [Link](https://www.infobae.com/peru/2025/12/27/tacna-rechaza-a-carlos-espa-y-jorge-montoya-ciudadanos-borran-muros-con-pintas-de-propaganda-electoral-de-sicreo/)
-- **Elecciones 2026: Carlos Espá defiende ingreso de Jorge Montoya tras rechazo de simpatizantes en Tacna**: [Link](https://diariocorreo.pe/politica/elecciones-2026-carlos-espa-defiende-ingreso-de-jorge-montoya-tras-rechazo-de-simpatizantes-en-tacna-noticia/)
-
-
-### gta 6 (N/A, 28/12/2025 15:28 Lima)
-
-- **Ex-Rockstar developer has a GTA 6 warning: ‘If the game is delayed again…'**: [Link](https://timesofindia.indiatimes.com/technology/gaming/ex-rockstar-developer-has-a-gta-6-warning-if-the-game-is-delayed-again/articleshow/126189019.cms)
-- **GTA 6 characters, maps, gameplay, price in India, release date, and more: What can we get to see in 2026**: [Link](https://www.msn.com/en-in/money/technology/gta-6-characters-maps-gameplay-price-in-india-release-date-and-more-what-can-we-get-to-see-in-2026/ar-AA1T6ssI)
-- **A Look at the 2025 Gaming World That Almost Existed If GTA 6 Hadn’t Been Delayed Again**: [Link](https://beebom.com/a-look-at-the-2025-gaming-world-that-almost-existed-if-gta-6-hadnt-been-delayed-again/)
-
-
-### mirtha vásquez (N/A, 28/12/2025 15:28 Lima)
-
-- **Fiscal de la Nación ‘cuadra’ a Mirtha ‘Sarratea’ Vásquez**: [Link](https://www.expreso.com.pe/?p=1250585)
-- **Comisión Permanente debatirá el lunes 29 informe final de denuncia constitucional y dictámenes de preponderancia nacional**: [Link](https://comunicaciones.congreso.gob.pe/noticias/comision-permanente-debatira-el-lunes-29-informe-final-de-denuncia-constitucional-y-dictamenes-de-preponderancia-nacional/)
-- **Comisión Permanente sesiona este lunes 29**: [Link](https://caretas.pe/politica/comision-permanente-sesiona-este-lunes-29/)
-
-
-### inter vs (N/A, 28/12/2025 15:28 Lima)
-
-- **Serie A: Inter, con la misión de ganar para seguir en la cima**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-inter-con-la-mision-de-ganar-para-seguir-en-la-cima-noticia-1669407)
-- **🔴#ENVIVO | Sigue las incidencias del partido entre Atalanta e Inter de Milán**: [Link](https://ovacion.pe/noticias/futbol-internacional/envivo-sigue-las-incidencias-del-partido-entre-atalanta-e-inter-milan)
-- **Pronósticos Atalanta vs Inter: apuestas apuntan a más de 1.5 goles de los visitantes**: [Link](https://depor.com/apuestas-deportivas/atalanta-vs-inter-apuestas-pronosticos-apuestas-cuotas-28-12-2025-2/)
-
-
-### juan pablo freytes (N/A, 28/12/2025 15:28 Lima)
-
-- **Ingreso para Alianza Lima: Juan Pablo Freytes en agenda de Bologna y se aleja de Fluminense**: [Link](https://depor.com/futbol-peruano/descentralizado/juan-pablo-freytes-posible-fichaje-de-bologna-y-beneficio-economico-para-alianza-lima-fluminense-noticia/)
-- **Juan Pablo Freytes en la mira de Bolonia de Italia y Alianza Lima podría recibir millonaria suma**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/alianza-lima-juan-pablo-freytes-en-la-mira-de-bolonia-de-italia-y-alianza-podria-recibir-millonaria-suma-noticia/)
-- **Alianza Lima recibiría exorbitante monto por posible venta de 8 millones de Juan Pablo Freytes a la Serie A de Italia**: [Link](https://larepublica.pe/deportes/2025/12/28/alianza-lima-recibiria-exorbitante-monto-por-posible-venta-de-8-millones-de-juan-pablo-freytes-a-la-serie-a-de-italia-1490188)
-
-
-### bolonia vs. inter (N/A, 28/12/2025 15:28 Lima)
-
-- **Revealed: The 3 Key Factors Inter Milan Must Improve Ahead Of Decisive Tests In January**: [Link](https://sempreinter.com/2025/12/28/inter-must-improve-ahead-napoli-bologna/)
-- **Inter's calendar: upcoming fixtures**: [Link](https://onefootball.com/en/news/inters-calendar-upcoming-fixtures-42126118)
-- **Inter need more from their midfielders. Barella and Mkhitaryan are missing goals.**: [Link](https://sport.quotidiano.net/en/calcio/inter/inter-serve-di-piu-dai-14570aa3)
-
-
-### atalanta - inter (N/A, 28/12/2025 15:28 Lima)
-
-- **Serie A: in campo Atalanta-Inter 0-0 DIRETTA**: [Link](https://www.ansa.it/sito/notizie/sport/calcio/2025/12/28/serie-a-in-campo-atalanta-inter-0-0-diretta_8142828d-e124-41d8-bb11-fa6dd7eaa5df.html)
-- **Atalanta vs. Inter, live from Bergamo**: [Link](https://www.inter.it/en/news/atalanta-inter-serie-a-2025-26)
-- **Atalanta-Inter, la moviola LIVE: Barella fa ammonire Kolasinac con un numero**: [Link](https://www.calciomercato.com/liste/atalanta-inter-la-moviola-live/blta1b5ba90b9c9ee3e)
 
 
