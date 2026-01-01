@@ -1,3 +1,73 @@
+### hora chile (N/A, 31/12/2025 21:22 Lima)
+
+- **¿Cuánto falta para el Año Nuevo 2026 en Chile? Revisa la hora oficial y evita confusiones**: [Link](https://www.meganoticias.cl/nacional/510799-cuanto-falta-ano-nuevo-2026-chile-hora-oficial-31-12-2025.html)
+- **¿Cuál es el horario de atención de Plaza Vea, Tottus, Metro, Makro y otros supermercados para este 31 de diciembre y 1 de enero de 2026?**: [Link](https://www.infobae.com/peru/2025/12/31/cual-es-el-horario-de-atencion-de-plaza-vea-tottus-metro-makro-y-otros-supermercados-para-este-31-de-diciembre-y-1-de-enero-de-2026/)
+- **Año Nuevo: Horarios de los supermercados para este 31 de diciembre y 1 de enero**: [Link](https://gestion.pe/peru/ano-nuevo-2026-los-horarios-de-los-supermercados-para-este-31-de-diciembre-y-1-de-enero-noticia/)
+
+
+### stranger things (N/A, 31/12/2025 21:22 Lima)
+
+- **What time does 'Stranger Things' come out? Finale release time**: [Link](https://www.azcentral.com/story/entertainment/television/2025/12/31/what-time-does-stranger-things-come-out/87965302007/)
+- **What time does the "Stranger Things" finale drop on Netflix?**: [Link](https://www.wcnc.com/article/news/nation-world/when-stranger-things-finale-drops-on-netflix-premiere-time/507-c25fcf2e-d4ef-4dc0-bb84-e260de3b6f4b)
+- **'Stranger Things' finale release time, date, how to watch last episode**: [Link](https://www.usatoday.com/story/entertainment/tv/2025/12/31/what-time-stranger-things-finale-season-5/87970465007/)
+
+
+### spurs - knicks (N/A, 31/12/2025 21:22 Lima)
+
+- **Knicks vs Spurs Picks & Odds Today: New York Rightful Road Underdog**: [Link](https://www.oddsshark.com/nba/knicks-spurs-picks-odds-december-31-2025)
+- **Updated Spurs' injury report ahead of NBA Cup Final rematch**: [Link](https://sports.yahoo.com/articles/updated-spurs-injury-report-ahead-143001488.html)
+- **NBA picks: Victor Wembanyama key to Knicks-Spurs same-game parlay for Dec. 31**: [Link](https://www.cbssports.com/nba/news/nba-picks-victor-wembanyama-is-the-key-to-this-knicks-vs-spurs-sgp-for-wednesday-dec-31/)
+
+
+### tarjetas de año nuevo (N/A, 31/12/2025 21:22 Lima)
+
+- **🙏🏻 Te enseño 25 tarjetas cristianas de ¡Feliz Año Nuevo 2026! con mensajes de fe y esperanza en EE.UU. y México**: [Link](https://elcomercio.pe/mag/respuestas/25-tarjetas-cristianas-de-feliz-ano-nuevo-2026-con-mensajes-de-fe-y-esperanza-en-eeuu-mexico-y-espana-nnda-nnrt-noticia/)
+- **💼 Elige 25 tarjetas bonitas de ¡Feliz Año Nuevo 2026! para enviar a clientes, amigos y familia**: [Link](https://elcomercio.pe/mag/respuestas/25-tarjetas-de-ano-nuevo-2026-para-clientes-amigos-y-familia-en-espana-nnda-nnrt-noticia/)
+- **🥳 Las mejores 50 frases por ¡Feliz Año Nuevo 2026! con imágenes GRATIS para enviar desde España, México y EE.UU.**: [Link](https://gestion.pe/mix/respuestas/50-frases-de-feliz-ano-nuevo-2026-con-imagenes-para-editar-gratis-y-compartir-en-espana-mexico-y-eeuu-nnda-nnrt-noticia/)
+
+
+### la tinka (N/A, 31/12/2025 21:22 Lima)
+
+- **Mira La Tinka EN VIVO del miércoles 31 de diciembre de 2025: resultados de hoy**: [Link](https://elcomercio.pe/respuestas/loterias/la-tinka-hoy-miercoles-31-de-diciembre-en-vivo-resultados-del-ultimo-sorteo-numeros-y-jugada-ganadora-pozo-millonario-loteria-si-o-si-boliyapa-intralot-lbposting-noticia/)
+- **Resultados La Tinka EN VIVO de HOY, miércoles 31 de diciembre: pozo millonario y cómo se juega**: [Link](https://libero.pe/ocio/2025/12/31/resultados-tinka-en-vivo-de-hoy-miercoles-31-de-diciembre-pozo-millonario-como-se-juega-intralot-pozo-millonario-1367250)
+- **Sorteo de La Tinka HOY miércoles 31 de diciembre de 2025: premios, jugada ganadora y Pozo Millonario**: [Link](https://larepublica.pe/sociedad/2025/12/31/sorteo-de-la-tinka-hoy-miercoles-31-de-diciembre-de-2025-premios-jugada-ganadora-y-pozo-millonario-atmp-2529390)
+
+
+### cuánto falta para año nuevo (N/A, 31/12/2025 21:22 Lima)
+
+- **¿Cuál es el país que recibe primero el Año Nuevo?**: [Link](https://cnnespanol.cnn.com/2025/12/30/mundo/pais-recibe-primero-anio-nuevo-trax)
+- **Año Nuevo 2026: las celebraciones y fiestas alrededor del mundo, en imágenes | Fotos | Internacional**: [Link](https://elpais.com/internacional/2025-12-31/ano-nuevo-las-celebraciones-y-fiestas-alrededor-del-mundo-en-imagenes.html)
+- **Feliz Año Nuevo 2026 EN VIVO: cómo se celebra en el Perú y en otros países del mundo | RESPUESTAS**: [Link](https://elcomercio.pe/respuestas/como/feliz-ano-nuevo-2026-en-vivo-como-se-celebra-en-peru-y-en-otros-paises-del-mundo-nochevieja-en-america-asia-europa-lbposting-noticia/)
+
+
+### mensaje de año nuevo (N/A, 31/12/2025 21:22 Lima)
+
+- **Claudia Sheinbaum comparte mensaje por fin de año: “Son momentos de reflexión y de buenos deseos para 2026”**: [Link](https://www.infobae.com/mexico/2026/01/01/claudia-sheinbaum-comparte-mensaje-por-fin-de-ano-son-momentos-de-reflexion-y-de-buenos-deseos-para-2026/)
+- **Para 2026 deseo salud, bienestar y amor a todas las familias mexicanas que viven dentro y fuera del país. ¡Feliz año nuevo!**: [Link](https://www.facebook.com/ClaudiaSheinbaumPardo/posts/para-2026-deseo-salud-bienestar-y-amor-a-todas-las-familias-mexicanas-que-viven-/1472139124279920/)
+- **Presidenta Claudia Sheinbaum desea para 2026, salud, mucho bienestar y amor a todas y todos los mexicanos**: [Link](https://www.gob.mx/presidencia/prensa/presidenta-claudia-sheinbaum-desea-para-2026-salud-mucho-bienestar-y-amor-a-todas-y-todos-los-mexicanos)
+
+
+### fertoli (N/A, 31/12/2025 21:22 Lima)
+
+- **El volante Héctor Fértoli se incorpora a Universitario de Deportes**: [Link](https://universitario.pe/noticias/noticias-primer-equipo/el-volante-hector-fertoli-se-incorpora-a-universitario-de-deportes)
+- **“El jugador clave”: Universitario fichó a Héctor Fértoli y los hinchas se ilusionaron en grande**: [Link](https://bolavip.com/pe/universitario/el-jugador-clave-universitario-ficho-a-hector-fertoli-y-los-hinchas-se-ilusionaron-en-grande)
+- **Héctor Fértoli, el nuevo fichaje de Universitario para el 2026: en qué posición juega, valor y tiempo de su contrato, y sus registros**: [Link](https://www.infobae.com/peru/deportes/2025/12/31/hector-fertoli-el-nuevo-fichaje-de-universitario-para-el-2026-en-que-posicion-juega-valor-y-tiempo-de-su-contrato-y-sus-registros/)
+
+
+### 250 (N/A, 31/12/2025 21:22 Lima)
+
+- **NYE Washington Monument illumination kicks off Trump's yearlong America 250 celebration**: [Link](https://www.axios.com/2026/01/01/trump-america-250-celebration-new-years-eve-dc)
+- **Washington Monument light show begins America’s anniversary celebrations**: [Link](https://www.foxnews.com/video/6387122388112)
+- **WATCH LIVE: New Year’s Eve fireworks and Washington Monument light show**: [Link](https://wtop.com/dc/2025/12/watch-live-new-years-eve-fireworks-and-national-monument-light-show/)
+
+
+### happy new year (N/A, 31/12/2025 21:22 Lima)
+
+- **New Year 2026 messages flood Romanian media as DefenseRomania touts nearly 6 million readers**: [Link](https://ts2.tech/en/new-year-2026-messages-flood-romanian-media-as-defenseromania-touts-nearly-6-million-readers/)
+- **Start the Year Strong With These 75 Motivational New Year Quotes**: [Link](https://www.thepioneerwoman.com/holidays-celebrations/a69711614/best-happy-new-year-quotes/)
+- **Happy New Year**: [Link](https://njjewishnews.timesofisrael.com/happy-new-year-3/)
+
+
 ### españa hora (N/A, 31/12/2025 15:28 Lima)
 
 - **Mario Picazo alerta de «nevadas contundentes» que afectarán a la Comunidad Valenciana**: [Link](https://www.eldebate.com/espana/comunidad-valenciana/20251231/mario-picazo-alerta-nevadas-contundentes-afectaran-comunidad-valenciana_370273.html)
@@ -958,75 +1028,5 @@
 ### guinea ecuatorial vs (N/A, 28/12/2025 11:31 Lima)
 
 Sin noticias relacionadas disponibles.
-
-
-### cremonese vs napoli pronostico (N/A, 28/12/2025 11:31 Lima)
-
-- **Napoli vista a Cremonese necesitado de sumar para pelear por lo más alto de la Serie A**: [Link](https://www.espn.com.pe/futbol/italia/nota/_/id/16116809/cremonese-vs-napoli-fecha-17-serie-a-equipo-fecha-hora-y-tv-en-vivo)
-- **Nápoli derrotó a Cremonese y no le pierde pisada a AC Milán**: [Link](https://ovacion.pe/noticias/futbol-internacional/napoli-derroto-cremonese-no-le-pierde-pisada-ac-milan)
-- **Serie A: Napoli busca subir a la cima del torneo**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-napoli-busca-subir-a-la-cima-del-torneo-noticia-1669383)
-
-
-### braga vs benfica (N/A, 28/12/2025 11:31 Lima)
-
-- **How to watch Sporting Braga vs Benfica in the USA: Live Stream and TV for 2025/2026 Primeira Liga**: [Link](https://worldsoccertalk.com/watch-on-us-tv/how-to-watch-sporting-braga-vs-benfica-in-the-usa-live-stream-and-tv-for-2025-2026-primeira-liga/)
-- **Braga vs Benfica LIVE Score Updates in Portuguese League Match**: [Link](https://www.vavel.com/en-us/soccer/2025/12/28/1245674-braga-vs-benfica-live-score-liga-portugal.html)
-- **Preview: Braga vs Benfica - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/braga/preview/braga-vs-benfica-prediction-team-news-lineups_588531.html)
-
-
-### napoli vs (N/A, 28/12/2025 11:31 Lima)
-
-- **Cremonese vs Napoli: Serie A stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c208l34470gt)
-- **Napoli's Historic Double Victory**: [Link](https://www.ilmattino.it/en/napoli_s_historic_double_victory-9261819.html)
-- **Cremonese v Napoli match preview**: [Link](https://sscnapoli.it/en/match-preview-focus-di-cremonese-napoli/)
-
-
-### sunderland afc - leeds (N/A, 28/12/2025 11:31 Lima)
-
-- **Premier League: Calvert-Lewin earns Leeds draw at Sunderland - reaction**: [Link](https://www.bbc.com/sport/football/live/c87lvdggp8nt)
-- **Sunderland 1 Leeds 1: A sublime team goal, Rodon injury and dominant second half**: [Link](https://www.nytimes.com/athletic/6919841/2025/12/28/sunderland-leeds-calvert-lewin-rodon-result-analysis/)
-- **Simon Adingra fires Sunderland in front of Leeds**: [Link](https://www.nbcsports.com/watch/watch/premier-league/simon-adingra-fires-sunderland-in-front-of-leeds)
-
-
-### brigitte bardot (N/A, 28/12/2025 07:51 Lima)
-
-- **La piste de Livigno a fait parler autant que le classement ce samedi. Neige trop sèche, manque de glace, sécurité en question: les cadors, de Marco Odermatt à Franjo von Allmen, ont livré des avis tranchés sur la qualité de la préparation de la piste italienne.**: [Link](https://www.facebook.com/blickfr/posts/la-piste-de-livigno-a-fait-parler-autant-que-le-classement-ce-samedi-neige-trop-/1242007531317837/)
-- **Et B.B. créa le style**: [Link](https://www.france24.com/fr/info-en-continu/20251228-et-b-b-cr%C3%A9a-le-style)
-- **Mort de Brigitte Bardot : Saint-Tropez salue "l'ambassadrice la plus éclatante" de la commune**: [Link](https://www.tf1info.fr/culture/mort-de-brigitte-bardot-saint-tropez-salue-l-ambassadrice-la-plus-eclatante-de-la-commune-2415297.html)
-
-
-### sunderland vs (N/A, 28/12/2025 07:51 Lima)
-
-- **Starting XI: One Change For Sunderland Today?**: [Link](https://rokerreport.sbnation.com/match-previews/119408/starting-xi-one-change-for-sunderland-today)
-- **Mark Viduka sends warning to Daniel Farke after Leeds United’s stunning revival**: [Link](https://www.leedsunited.news/news/mark-viduka-sends-warning-to-daniel-farke-after-leeds-uniteds-stunning-revival/)
-- **Supporters travelling to Stadium of Light**: [Link](https://onefootball.com/en/news/supporters-travelling-to-stadium-of-light-42149615)
-
-
-### milan vs verona (N/A, 28/12/2025 07:51 Lima)
-
-- **Milan recibe a Hellas Verona en busca de llegar a lo más alto de la Serie A**: [Link](https://www.espn.com.pe/futbol/italia/nota/_/id/16116805/milan-vs-hellas-verona-fecha-17-serie-a-equipo-fecha-hora-y-tv-en-vivo)
-- **Serie A: Milan busca derrotar a Hellas Verona para posicionarse en la cima del torneo**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-milan-busca-derrotar-a-hellas-verona-para-posicionarse-en-la-cima-del-torneo-noticia-1669380)
-- **AC Milán vs Hellas Verona: previa del partido**: [Link](https://www.elpueblo.pe/deportes/ac-milan-vs-hellas-verona-previa-del-partido/184398/)
-
-
-### milan vs (N/A, 28/12/2025 07:51 Lima)
-
-- **GdS: 73,000 and counting – Milan expected to end 2025 with a sell-out at San Siro**: [Link](https://sempremilan.com/milan-end-2025-sell-out-verona)
-- **No certainty that Leao will be able to return vs Cagliari on Friday**: [Link](https://milanreports.com/2025/12/28/no-certainty-leao-cagliari-friday/)
-- **Italy Serie A Soccer**: [Link](https://www.wvnews.com/sports/pro/italy-serie-a-soccer/image_83001c20-ef23-564c-a21c-560ebb70e2ca.html)
-
-
-### milan - hellas verona (N/A, 28/12/2025 07:51 Lima)
-
-- **Allegri: "Leao non è convocato, Nkunku contro il Verona può fare bene. Füllkrug? Unico"**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Milan/27-12-2025/allegri-prima-di-milan-verona-leao-non-convocato-neanche-gabbia-nkunku-si-fullkrug.shtml)
-- **Calcio Live News: tutte le notizie di giornata in diretta**: [Link](https://www.diretta.it/news/calcio-live-in-campo-milan-verona-2-0-nkunku-raddoppia-su-rigore/dEhNDbpp/)
-- **LIVE! Milan-Hellas Verona: Allegri vuole ritornare alla vittoria. Diretta scritta e aggiornamenti in tempo reale**: [Link](https://www.eurosport.it/calcio/serie-a/2025-2026/live-milan-hellas-verona_mtc1598702/live-commentary.shtml)
-
-
-### 28 de diciembre (N/A, 28/12/2025 07:51 Lima)
-
-- **Horóscopo de hoy, domingo 28 de diciembre: Lee aquí las predicciones para tu signo**: [Link](https://elcomercio.pe/luces/vida-social/horoscopo-de-hoy-domingo-28-de-diciembre-lee-aqui-las-predicciones-para-tu-signo-noticia/)
-- **Aries, Tauro, Géminis, Cáncer, Leo, Virgo, Libra, Escorpio, Sagitario, Capricornio, Acuario y Piscis: así será este domingo 28 de diciembre**: [Link](https://www.vanitatis.elconfidencial.com/horoscopo/2025-12-28/horoscopo-hoy-domingo-28-diciembre-astros-1qrt_4275163/)
-- **Horóscopo de hoy, domingo 28 de diciembre de 2025 según Josie: revisa el tarot y predicciones AQUÍ**: [Link](https://libero.pe/ocio/2025/12/27/horoscopo-de-hoy-domingo-28-de-diciembre-segun-josie-diez-canseco-tarot-predicciones-en-internet-chatea-josie-citas-numero-contacto-963063)
 
 
