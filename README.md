@@ -1,3 +1,73 @@
+### cuenta regresiva año nuevo (N/A, 31/12/2025 23:51 Lima)
+
+- **Times Square estrena una deslumbrante bola de Año Nuevo, la más grande hasta ahora**: [Link](https://cnnespanol.cnn.com/2025/12/31/mundo/times-square-bola-ano-nuevo-2026-trax)
+- **Nueva York celebra el Año Nuevo, y también la historia del Times**: [Link](https://www.nytimes.com/es/2025/12/31/espanol/estados-unidos/ano-nuevo-times-square-bola.html)
+- **HISTÓRICO en Nueva York: Times Square alista la lluvia de confeti más grande jamás vista para dar la bienvenida a 2026**: [Link](https://libero.pe/estados-unidos/2025/12/31/nueva-york-times-square-rompera-record-lluvia-de-confeti-sin-precedentes-2026-lbeu-2145479)
+
+
+### radio (N/A, 31/12/2025 23:51 Lima)
+
+- **Arch Manning juega Texas vs Michigan en el Citrus Bowl**: [Link](https://www.ucvradio.pe/noticias-del-mundo/arch-manning-juega-texas-vs-michigan-en-el-citrus-bowl/90982/)
+- **Arch Manning (4 TD), el No. 13 Texas derrota al No. 18 Michigan**: [Link](https://www.elpueblo.pe/deportes/arch-manning-4-td-el-no-13-texas-derrota-al-no-18-michigan/189944/)
+- **Después de ganar el MVP del Citrus Bowl como lo hizo su tío Peyton, Arch Manning bromea: “No quiero tener que jugar dos veces”.**: [Link](https://www.ucvradio.pe/noticias-del-mundo/despues-de-ganar-el-mvp-del-citrus-bowl-como-lo-hizo-su-tio-peyton-arch-manning-bromea-no-quiero-tener-que-jugar-dos-veces/91020/)
+
+
+### tinka resultados (N/A, 31/12/2025 23:51 Lima)
+
+- **Resultados de la La Tinka: números ganadores del sorteo del miércoles 31 de diciembre**: [Link](https://elcomercio.pe/respuestas/loterias/resultados-de-la-tinka-hoy-31-de-diciembre-en-vivo-ultimo-sorteo-del-miercoles-ver-numeros-y-jugada-ganadora-tinkanet-pozo-millonario-resultado-si-o-si-boliyapa-intralot-lbposting-noticia/)
+- **Resultados La Tinka EN VIVO de HOY, miércoles 31 de diciembre: pozo millonario y cómo se juega**: [Link](https://libero.pe/ocio/2025/12/31/resultados-tinka-en-vivo-de-hoy-miercoles-31-de-diciembre-pozo-millonario-como-se-juega-intralot-pozo-millonario-1367250)
+- **Sorteo de La Tinka HOY miércoles 31 de diciembre de 2025: premios, jugada ganadora y Pozo Millonario**: [Link](https://larepublica.pe/sociedad/2025/12/31/sorteo-de-la-tinka-hoy-miercoles-31-de-diciembre-de-2025-premios-jugada-ganadora-y-pozo-millonario-atmp-2529390)
+
+
+### cotización dólar oficial dólar blue hoy (N/A, 31/12/2025 23:51 Lima)
+
+- **Argentina: dólar blue hoy a cuánto cotiza este miércoles 31 de diciembre**: [Link](https://rpp.pe/mundo/argentina/argentina-dolar-blue-hoy-a-cuanto-cotiza-este-miercoles-31-de-diciembre-noticia-1669780)
+- **Dólar hoy y dólar blue hoy: cuál es la cotización del miércoles 31 de diciembre minuto a minuto**: [Link](https://www.cronista.com/finanzas-mercados/dolar-hoy-y-dolar-blue-hoy-cual-es-la-cotizacion-del-miercoles-31-de-diciembre-minuto-a-minuto/)
+- **Dólar HOY: cotización del dólar oficial y precios del miércoles 31 de diciembre**: [Link](https://www.tycsports.com/interes-general/dolar-hoy-cotizacion-del-dolar-oficial-y-precios-del-miercoles-31-de-diciembre-id706037.html)
+
+
+### juegos (N/A, 31/12/2025 23:51 Lima)
+
+- **Cuáles son los juegos de PlayStation Plus para enero de 2026**: [Link](https://www.infobae.com/tecno/2025/12/31/cuales-seran-los-juegos-de-playstation-plus-para-enero-de-2026/)
+- **Se filtra uno de los juegos de PS Plus Essential para enero de 2026 horas antes del anuncio oficial**: [Link](https://vandal.elespanol.com/noticia/1350786247/se-filtra-uno-de-los-juegos-de-ps-plus-essential-para-enero-de-2026-horas-antes-del-anuncio-oficial/)
+- **Si eres suscriptor de PS Plus en PS4, hay malas noticias en 2026: vas a pagar lo mismo que el resto por menos juegos**: [Link](https://www.vidaextra.com/ps4/eres-suscriptor-ps-plus-ps4-hay-malas-noticias-2026-vas-a-pagar-resto-juegos)
+
+
+### stake (N/A, 31/12/2025 23:51 Lima)
+
+- **Gordon Monson: Uh-oh. Did Utah’s Utes play too well against Nebraska in the Vegas Bowl?**: [Link](https://www.sltrib.com/sports/utah-utes/2025/12/31/utah-footballs-morgan-scalley-era/)
+- **Where to watch Nebraska vs. Utah: TV channel, stream, Las Vegas Bowl odds, prediction, pick**: [Link](https://www.cbssports.com/college-football/news/nebraska-utah-prediction-pick-odds-spread-where-to-watch-las-vegas-bowl-live/)
+- **Nebraska vs. Utah recap, stats and highlights**: [Link](https://cornhuskerswire.usatoday.com/story/sports/college/cornhuskers/football/2025/12/31/nebraska-vs-utah-live-updates-stats-and-highlights/87971675007/)
+
+
+### hora mexico (N/A, 31/12/2025 23:51 Lima)
+
+- **La Superluna y la lluvia de meteoritos coinciden en enero, pero un detalle podría arruinar el espectáculo: esto se sabe**: [Link](https://elcomercio.pe/mag/respuestas/ciencias/la-superluna-y-la-lluvia-de-meteoritos-coinciden-en-enero-pero-un-detalle-podria-arruinar-el-espectaculo-esto-se-sabe-nnda-nnrt-noticia/)
+- **Los eventos astronómicos que harán de 2026 un año inolvidable en el cielo**: [Link](https://www.infobae.com/salud/ciencia/2025/12/31/los-eventos-astronomicos-que-haran-de-2026-un-ano-inolvidable-en-el-cielo-2/)
+- **¿Por qué se le conoce como Luna de Lobo? Origen y significado de la luna llena de enero**: [Link](https://www.marca.com/mx/actualidad/sociedad/2025/12/31/6955997746163fb6568b456c.html)
+
+
+### winona ryder (N/A, 31/12/2025 23:51 Lima)
+
+- **Stranger Things star breaks silence on claims Winona Ryder made her cry**: [Link](https://www.themirror.com/entertainment/tv/stranger-things-winona-priah-tension-1589907)
+- **Is Winona Ryder really feuding with Priah Ferguson? The Stranger Things gossip taking over social media, explained**: [Link](https://www.indiatimes.com/entertainment/hollywood/is-winona-ryder-really-feuding-with-priah-ferguson-the-stranger-things-gossip-taking-over-social-media-explained/articleshow/126265532.html)
+- **Did Winona Ryder want less screen time with Priah Ferguson? Teen ‘Stranger Things’ star clears the air following viral TikTok claim**: [Link](https://www.soapcentral.com/entertainment/news-did-winona-ryder-want-less-screen-time-priah-ferguson-teen-stranger-things-star-clears-air-following-viral-tiktok-claim)
+
+
+### gianluca lapadula (N/A, 31/12/2025 23:51 Lima)
+
+- **Tras un irregular 2025: Spezia y el ultimátum a Gianluca Lapadula**: [Link](https://depor.com/futbol-peruano/peruanos-en-el-mundo/gianluca-lapadula-aclara-su-futuro-que-dijo-el-director-deportivo-de-spezia-y-numeros-de-su-temporada-en-italia-serie-b-noticia/)
+- **Directivo de Spezia habló del futuro de Gianluca Lapadula**: [Link](https://www.americatv.com.pe/deportes/futbol-mundial/directivo-spezia-se-refirio-al-futuro-gianluca-lapadula-n452142)
+- **Intocable: Spezia de Italia afirma que LAPADULA NO ESTÁ EN VENTA**: [Link](https://peru21.pe/deportes/intocable-spezia-de-italia-afirma-que-gianluca-lapadula-no-esta-en-venta/)
+
+
+### hora argentina (N/A, 31/12/2025 23:51 Lima)
+
+- **Stranger Things 5: fecha de estreno de los episodios de cada parte y la duración de la última temporada**: [Link](https://cnnespanol.cnn.com/2025/12/24/entretenimiento/stranger-things-5-final-orix)
+- **'Stranger Things 5': a qué hora se estrena el Volumen 2 de la temporada final en Perú y Latinoamérica**: [Link](https://rpp.pe/tv/streaming/stranger-things-5-a-que-hora-se-estrena-el-volumen-2-de-la-temporada-final-en-peru-y-latinoamerica-noticia-1669209)
+- **Stranger Things llega a su fin: Netflix estrena el histórico episodio final este 31 de diciembre**: [Link](https://www.atv.pe/noticia/stranger-things-llega-a-su-fin-netflix-estrena-el-historico-episodio-final-este-31-de-diciembre/)
+
+
 ### hora chile (N/A, 31/12/2025 21:22 Lima)
 
 - **¿Cuánto falta para el Año Nuevo 2026 en Chile? Revisa la hora oficial y evita confusiones**: [Link](https://www.meganoticias.cl/nacional/510799-cuanto-falta-ano-nuevo-2026-chile-hora-oficial-31-12-2025.html)
@@ -960,73 +1030,5 @@
 - **Serie A: in campo Atalanta-Inter 0-0 DIRETTA**: [Link](https://www.ansa.it/sito/notizie/sport/calcio/2025/12/28/serie-a-in-campo-atalanta-inter-0-0-diretta_8142828d-e124-41d8-bb11-fa6dd7eaa5df.html)
 - **Atalanta vs. Inter, live from Bergamo**: [Link](https://www.inter.it/en/news/atalanta-inter-serie-a-2025-26)
 - **Atalanta-Inter, la moviola LIVE: Barella fa ammonire Kolasinac con un numero**: [Link](https://www.calciomercato.com/liste/atalanta-inter-la-moviola-live/blta1b5ba90b9c9ee3e)
-
-
-### real madrid - unicaja (N/A, 28/12/2025 15:28 Lima)
-
-- **Apuestas y pronósticos Real Madrid vs Unicaja**: [Link](https://www.marca.com/apuestas-deportivas/predicciones/2025/12/27/apuestas-pronosticos-real-madrid-vs-unicaja.html)
-- **Remontada y 10ª victoria seguida en Liga**: [Link](https://www.realmadrid.com/es-ES/noticias/baloncesto/primer-equipo/cronicas/cronica-baloncesto-28-12-2025)
-- **Usman Garuba alza la voz y responde a Scariolo sobre la exigencia de jugar en el Real Madrid: "Habrá días buenos y otros malos, pero tenemos que estar listos siempre**: [Link](https://www.estadiodeportivo.com/baloncesto/acb/usman-garuba-alza-voz-responde-scariolo-sobre-exigencia-jugar-real-madrid-habra-dias-buenos-otros-malos-pero-tenemos-que-estar-listos-siempre-20251227-524978.html)
-
-
-### benfica vs (N/A, 28/12/2025 15:28 Lima)
-
-- **How to watch Sporting Braga vs Benfica in the USA: Live Stream and TV for 2025/2026 Primeira Liga**: [Link](https://worldsoccertalk.com/watch-on-us-tv/how-to-watch-sporting-braga-vs-benfica-in-the-usa-live-stream-and-tv-for-2025-2026-primeira-liga/)
-- **Benfica slip at Braga, title hopes fade in Portugal 🔭**: [Link](https://onefootball.com/en/news/benfica-slip-at-braga-title-hopes-fade-in-portugal-42154409)
-- **Jose Mourinho's Benfica is heavily wounded! They have fallen far from the championship even before entering 2026.**: [Link](https://en.haberler.com/jose-mourinho-s-benfica-is-heavily-wounded-they-19401520/)
-
-
-### aryna sabalenka vs nick kyrgios (N/A, 28/12/2025 15:28 Lima)
-
-- **Sabalenka vs Kyrgios LIVE: Battle of the Sexes scores, results & updates**: [Link](https://www.bbc.com/sport/tennis/live/cre3xyjnr1zt)
-- **Former ATP star claims Aryna Sabalenka would not beat a single player inside the ATP top 500**: [Link](https://tennishead.net/former-atp-star-claims-aryna-sabalenka-would-not-beat-a-single-player-inside-the-atp-top-500/)
-- **Indian Startup, Kpro.Ai, To Deploy Performance Analytics At Kyrgios-Sabalenka 'Battle Of Sexes' Match In Dubai**: [Link](https://menafn.com/1110531095/Indian-Startup-KproAi-To-Deploy-Performance-Analytics-At-Kyrgios-Sabalenka-Battle-Of-Sexes-Match-In-Dubai)
-
-
-### algeria vs (N/A, 28/12/2025 15:28 Lima)
-
-- **Algeria vs Burkina Faso: CAF Africa Cup of Nations stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c0l9rz88p57t)
-- **Algeria books place in Africa Cup knockout stage as France great Zidane cheers team on**: [Link](https://www.newsday.com/sports/soccer/ivory-coast-cameroon-algeria-africa-cup-v19644)
-- **MATCH STATS: Algeria vs Burkina Faso – TotalEnergies CAF Africa Cup of Nations Morocco 2025 Group E**: [Link](https://www.cafonline.com/afcon2025/news/match-stats-algeria-vs-burkina-faso-totalenergies-caf-africa-cup-of-nations-morocco-2025-group-e/)
-
-
-### bolonia - sassuolo (N/A, 28/12/2025 11:31 Lima)
-
-- **Serie A: Sassuolo visita a Bologna por la fecha 17**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-sassuolo-visita-a-bologna-por-la-fecha-17-noticia-1669391)
-- **Olimpia Milano: January 2026 is crucial for the EuroLeague season.**: [Link](https://www.backdoorpodcast.com/en/olimia-milano-gennaio-2026-eurolega/)
-- **Tickets: Virtus Bologna vs Milano EuroLeague (2026)**: [Link](https://karlobag.eu/en/tickets/basketball/tickets-for-virtus-bologna-vs-milano-euroleague-round-19-buy-basketball-tickets-for-the-big-derby-in-bologna-5qt1d)
-
-
-### tottenham (N/A, 28/12/2025 11:31 Lima)
-
-- **Lerma cerrará el Boxing Day de Premier con Palace vs Tottenham**: [Link](https://www.espn.com.pe/futbol/inglaterra/nota/_/id/16121460/lerma-cerrara-el-boxing-day-de-premier-con-palace-vs-tottenham)
-- **Premier League: Tottenham visita a Crystal Palace por la fecha 18**: [Link](https://rpp.pe/futbol/ligas-internacionales/premier-league-tottenham-visita-a-crystal-palace-por-la-fecha-18-noticia-1669387)
-- **Pronóstico Crystal Palace - Tottenham. Premier League | 28/12/2025**: [Link](https://gainblers.com/pe/pronosticos/futbol/inglaterra/premier-league/pronostico-crystal-palace-tottenham-28-12-2025/)
-
-
-### bologna (N/A, 28/12/2025 11:31 Lima)
-
-- **Bologna-Sassuolo, tornano Freuler e Casale, out Cambiaghi: le scelte di Italiano**: [Link](https://onefootball.com/de/news/bologna-sassuolo-tornano-freuler-e-casale-out-cambiaghi-le-scelte-di-italiano-42152241)
-- **Il piano di Grosso al Dall’Ara: "Faremo la nostra gara"**: [Link](https://www.ilrestodelcarlino.it/modena/sport/il-piano-di-grosso-al-eeb70abc)
-- **La prevendita si è accesa. Il colpo d’occhio: il Dall’Ara pronto a illuminarsi per 28.000 tifosi**: [Link](https://sport.quotidiano.net/calcio/bologna/la-prevendita-si-e-accesa-a37ac000)
-
-
-### calendario chino (N/A, 28/12/2025 11:31 Lima)
-
-- **2026: ¿el año del fuego?, por Ramiro Escobar**: [Link](https://larepublica.pe/opinion/2025/12/28/2026-el-ano-del-fuego-por-ramiro-escobar-hnews-1538516)
-- **Qué animal eres en el Horóscopo chino 2026 y consulta las predicciones en el Año del Caballo de Fuego**: [Link](https://elcomercio.pe/respuestas/que/horoscopo-chino-2026-conoce-cual-es-tu-animal-y-tu-prediccion-en-el-ano-del-caballo-de-fuego-tdpe-noticia/)
-- **Los 5 rituales que debés hacer para empezar el 2026 de buena manera, según el horóscopo chino**: [Link](https://tn.com.ar/sociedad/2025/12/28/los-5-rituales-que-debes-hacer-para-empezar-el-2026-de-buena-manera-segun-el-horoscopo-chino/)
-
-
-### crystal palace - tottenham (N/A, 28/12/2025 11:31 Lima)
-
-- **Crystal Palace v Tottenham: Premier League – live**: [Link](https://www.theguardian.com/football/live/2025/dec/28/crystal-palace-v-tottenham-premier-league-live)
-- **Crystal Palace vs Spurs betting tips & predictions - Mateta scores at home again**: [Link](https://talksport.com/betting/3848656/crystal-palace-vs-spurs-betting-tips-predictions-mateta-score/)
-- **Dominic Solanke injury latest shared as ‘unlucky’ Tottenham developments detailed**: [Link](https://www.tottenhamhotspurnews.com/exclusives/dominic-solanke-injury-latest-shared-as-unlucky-tottenham-developments-detailed/)
-
-
-### guinea ecuatorial vs (N/A, 28/12/2025 11:31 Lima)
-
-Sin noticias relacionadas disponibles.
 
 
