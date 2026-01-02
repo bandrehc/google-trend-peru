@@ -1,3 +1,73 @@
+### rayo vallecano (N/A, 02/01/2026 11:32 Lima)
+
+- **LaLiga EA Sports: Getafe quiere romper su racha negativa y ganar frente a Rayo Vallecano**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-getafe-quiere-romper-su-racha-negativa-y-ganar-frente-a-rayo-vallecano-noticia-1669893)
+- **Where to Watch Rayo Vallecano vs. Getafe CF: TV Channel, Start Time and Live Stream**: [Link](https://www.bleachernation.com/how-to-watch/2026/01/01/where-to-watch-rayo-vallecano-vs-getafe-cf-tv-channel-start-time-and-live-stream-2/)
+- **Rayo Vallecano-Getafe - LaLiga 2025/2026 Statistical Preview**: [Link](https://www.whoscored.com/matches/1914059/preview/spain-laliga-2025-2026-rayo-vallecano-getafe)
+
+
+### britanico (N/A, 02/01/2026 11:32 Lima)
+
+- **El individuo, señalado por intento de homicidio y porte ilegal de armas, fue puesto a disposición de la Policía tras ser interceptado en el aeropuerto antioqueño**: [Link](https://www.facebook.com/story.php?story_fbid=1316095220533237&id=100063983144594)
+- **Cae en Medellín ciudadano británico requerido en España: ¿a qué venía a Colombia y por qué era buscado?**: [Link](https://www.eltiempo.com/justicia/delitos/cae-en-medellin-ciudadano-britanico-requerido-en-espana-a-que-venia-a-colombia-y-por-que-era-buscado-3521246)
+- **Capturaron a un ciudadano británico por un delito cometido en España**: [Link](https://telemedellin.tv/capturaron-a-britanico-por-delito-en-espana/)
+
+
+### suspensión de 4ta categoria 2026 (N/A, 02/01/2026 11:32 Lima)
+
+- **Fijan nuevos montos para la suspensión de pagos y retenciones de cuarta categoría en 2026 [Resolución de Superintendencia 000390-2025/Sunat]**: [Link](https://lpderecho.pe/fijan-nuevos-montos-para-la-suspension-de-pagos-y-retenciones-de-cuarta-categoria-en-2026-resolucion-de-superintendencia-000390-2025-sunat/)
+- **Desde hoy 1 de enero, el transporte no autorizado será sancionado con S/5500. Cumple la norma**: [Link](https://www.elperuano.pe/noticia/286276-desde-hoy-1-de-enero-el-transporte-no-autorizado-sera-sancionado-con-s5500-cumple-la-norma)
+- **La UIT sube a S/ 5.500 este 2026: ¿Cómo impactará en nuestros impuestos, multas y en los retiros de las AFP?**: [Link](https://elcomercio.pe/economia/peru/uit-2026-sube-a-s-5500-como-impactara-el-nuevo-valor-en-impuestos-multas-y-retiros-de-las-afp-mef-noticia/)
+
+
+### mexico (N/A, 02/01/2026 11:32 Lima)
+
+- **Sismo de magnitud 6,5 con epicentro en Guerrero sacude la capital y varios estados de México**: [Link](https://cnnespanol.cnn.com/2026/01/02/mexico/sismo-magnitud-6-5-guerrero-orix)
+- **“Uy, está temblando”: el momento en el que el terremoto sorprendió a la presidenta Claudia Sheinbaum**: [Link](https://www.infobae.com/mexico/2026/01/02/uy-esta-temblando-el-momento-en-que-el-terremoto-sorprendio-la-presidenta-claudia-sheinbaum/)
+- **“Está temblando”: fuerte sismo en México sorprendió a Claudia Sheinbaum en plena conferencia de prensa [VIDEO]**: [Link](https://rpp.pe/mundo/mexico/fuerte-sismo-en-mexico-sorprendio-a-claudia-sheinbaum-en-plena-conferencia-de-prensa-esta-temblando-video-noticia-1669994)
+
+
+### signo caballo horoscopo chino (N/A, 02/01/2026 11:32 Lima)
+
+- **Horóscopo Chino 2026: ¿Cuál es tu signo y quiénes tendrán más suerte el próximo año?**: [Link](https://as.com/us/tikitakas/horoscopo-chino-2026-cual-es-tu-signo-y-quienes-tendran-mas-suerte-el-proximo-ano-f202512-n/)
+- **Los signos con más suerte para el Año del Caballo de Fuego según el Horóscopo Chino**: [Link](https://elcomercio.pe/mag/horoscopo/ano-nuevo-chino-2026-los-signos-con-mas-suerte-para-el-ano-del-caballo-de-fuego-segun-el-horoscopo-chino-nnda-nnlt-noticia/)
+- **Horóscopo chino 2026: Ludovica Squirru predice cómo le irá a cada signo en el año del Caballo de Fuego**: [Link](https://www.revistagente.com/horoscopo/horoscopo-chino-2026-ludovica-squirru-predice-como-le-ira-a-cada-signo-en-el-ano-del-caballo-de-fuego/)
+
+
+### sam smith (N/A, 02/01/2026 11:32 Lima)
+
+- **Blackburn Rovers 0-2 Wrexham: Red Dragons clinch third successive Championship win**: [Link](https://www.bbc.com/sport/football/live/c7412jrl924t)
+- **Parkin's delight for goal duo Smith and 'van Basten'**: [Link](https://www.aol.com/articles/parkins-delight-goal-duo-smith-151819351.html)
+- **'We are at the limit with the squad' - Ismael**: [Link](https://sports.yahoo.com/articles/limit-squad-ismael-100908770.html)
+
+
+### año 2026 (N/A, 02/01/2026 11:32 Lima)
+
+- **Elecciones 2026: Más de 2 millones de peruanos tienen el DNI vencido y NO podrán votar**: [Link](https://www.exitosanoticias.pe/actualidad/elecciones-2026-mas-2-millones-peruanos-tienen-dni-vencido-podran-votar-n165814)
+- **Elecciones 2026 JNE: Más de 2 millones de votantes tienen el DNI vencido | POLITICA**: [Link](https://diariocorreo.pe/politica/elecciones-2026-jne-mas-de-2-millones-de-votantes-tienen-el-dni-vencido-noticia/)
+- **Elecciones 2026: faltan 100 días para los comicios del 12 de abril**: [Link](https://andina.pe/agencia/noticia-elecciones-2026-faltan-100-dias-para-los-comicios-del-12-abril-1057787.aspx)
+
+
+### afp (N/A, 02/01/2026 11:32 Lima)
+
+- **Retiro de AFP 2026: ¿Quiénes cobran en los primeros días de enero?**: [Link](https://libero.pe/tiempoextra/2025/12/31/retiro-de-afp-en-2026-quienes-reciben-su-pago-primeros-dias-de-enero-2689095)
+- **¡Atención afiliados! Retiro-AFP 2025: último día para realizar el trámite online vía LINK oficial**: [Link](https://elcomercio.pe/respuestas/tramites/ultima-oportunidad-solicita-tu-retiro-afp-hoy-link-oficial-y-plazo-para-realizar-el-tramite-online-tdpe-noticia/)
+- **Nuevo valor de la UIT fija en S/22,000 el retiro máximo de AFP en 2026**: [Link](https://infomercado.pe/nuevo-valor-de-la-uit-fija-en-s-22000-el-retiro-maximo-de-afp-en-2026/)
+
+
+### año 2026 nombre (N/A, 02/01/2026 11:32 Lima)
+
+- **Nombre oficial del 2026 en el Perú: cuál será la denominación de este año**: [Link](https://elcomercio.pe/respuestas/tramites/cual-sera-el-nombre-oficial-del-ano-2026-en-peru-tdpe-noticia/)
+- **Nombre del Año 2026 en Perú: ¿cómo se decide, para qué sirve y qué nombres eligieron los años anteriores?**: [Link](https://larepublica.pe/datos-lr/2025/12/30/nombre-del-ano-2026-en-peru-como-se-decide-para-que-sirve-y-que-nombres-eligieron-los-anos-anteriores-atmp-1142280)
+- **Dime tu nombre y te diré cuál será arcano del año 2026**: [Link](https://www.buzzfeed.com/mx/ameyalli16/dime-tu-nombre-y-te-dire-cual-sera-arcano-del-ano-2026)
+
+
+### sga (N/A, 02/01/2026 11:32 Lima)
+
+- **Shai Gilgeous-Alexander Is SI’s 2025 Sportsperson of the Year**: [Link](https://www.si.com/sportsperson/shai-gilgeous-alexander-is-2025-sportsperson-of-the-year)
+- **Who was the NBA Player of the Year for 2025?**: [Link](https://www.nba.com/news/nba-player-of-year-for-2025)
+- **Shai Gilgeous-Alexander named SI’s 2025 Sportsperson of the Year**: [Link](https://www.usatoday.com/story/sports/nba/thunder/2026/01/02/shai-gilgeous-alexander-sports-illustrated-sportsperson-of-the-year/87990508007/)
+
+
 ### clima de hoy (N/A, 02/01/2026 07:53 Lima)
 
 - **SENAMHI: Pronóstico del clima hoy viernes 02 de enero 2026**: [Link](https://rpp.pe/peru/actualidad/senamhi-pronostico-del-clima-hoy-viernes-02-de-enero-2026-noticia-1669948)
@@ -963,75 +1033,5 @@ hat-trick scorer**: [Link](https://www.vavel.com/en/football/2025/12/27/premier-
 - **Credicorp: BCP acordó la compra del community bank estadounidense Helm Bank**: [Link](https://semanaeconomica.com/economia-finanzas/banca/credicorp-bcp-acordo-la-adquisicion-del-100-de-helm-bank-usa)
 - **BCP compra banco en Estados Unidos por USD 180 millones: las claves del acuerdo**: [Link](https://www.infobae.com/peru/2025/12/29/bcp-compra-banco-en-estados-unidos-por-usd-180-millones-las-claves-del-acuerdo/)
 - **Credicorp anuncia la compra de Helm Bank en EEUU por US$ 180 millones**: [Link](https://dfsud.com/peru/credicorp-anuncia-la-compra-de-helm-bank-en-eeuu-por-us-180-millones)
-
-
-### terremoto peru (N/A, 30/12/2025 03:36 Lima)
-
-- **Alerta permanente en salud por fuerte sismo en Áncash**: [Link](https://elperuano.pe/noticia/286001-alerta-permanente-en-salud-por-fuerte-sismo-en-ancash)
-- **Temblor en Perú HOY, 30 de diciembre: Dónde, cuándo y de cuántos grados fue vía IGP**: [Link](https://elcomercio.pe/peru/reporte-de-ultimo-temblor-hoy-en-peru-lugar-del-epicentro-hora-y-magnitud-de-sismos-segun-igp-tdpe-noticia/)
-- **INGEMMET alertó desde 2015 sobre zonas críticas en Áncash y La Libertad expuestas a deslizamientos y sismos**: [Link](https://canaln.pe/actualidad/zonas-criticas-ancash-y-libertad-fueron-alertadas-2015-n489230)
-
-
-### mormon church (N/A, 30/12/2025 03:36 Lima)
-
-- **Remembering the Life of President Jeffrey R. Holland**: [Link](https://newsroom.churchofjesuschrist.org/article/president-jeffrey-r-holland-memorial)
-- **LDS President Dallin Oaks has yet another chance to name a new apostle. Whom might he pick?**: [Link](https://www.sltrib.com/religion/2025/12/28/lds-church-president-dallin-oaks/)
-- **‘Weeping’: Anglican priest shares his emotional reaction to the loss of President Jeffrey R. Holland**: [Link](https://www.deseret.com/faith/2025/12/29/weeping-anglican-priest-shares-his-emotional-reaction-to-the-loss-of-president-jeffrey-r-holland/)
-
-
-### trail blazers - mavericks (N/A, 30/12/2025 03:36 Lima)
-
-- **Discuss Blazers-Mavericks Second Half Here!**: [Link](https://www.blazersedge.com/gameday-coverage/107144/discuss-blazers-mavericks-second-half-here)
-- **Trail Blazers show 'growth' in win over Mavericks**: [Link](https://www.nbcsports.com/watch/nba/portland-trail-blazers-show-growth-in-win-over-dallas-mavericks)
-- **Game Recap: Trail Blazers 125, Mavericks 122**: [Link](https://www.nba.com/watch/video/game-recap-trail-blazers-125-mavericks-122?plsrc=nba&collection=2025-26-game-recaps)
-
-
-### arsenal vs aston villa (N/A, 30/12/2025 03:36 Lima)
-
-- **Preview: Arsenal v Aston Villa | Pre-Match Report | News**: [Link](https://www.arsenal.com/news/preview-arsenal-v-aston-villa-2)
-- **Arsenal's Eberechi Eze could emulate Harry Kane and Spurs cult hero in Aston Villa Premier League clash**: [Link](https://www.sportsmole.co.uk/football/arsenal/news/why-berbatov-and-kane-chasing-eze-could-be-arsenals-secret-weapon-against-villa_588697.html)
-- **Tuesday’s football tips: Villa destroyer Onana 7/5 for over 1.5 fouls in battle with the Gunners**: [Link](https://mrfixitstips.co.uk/tuesdays-football-tips-villa-destroyer-onana-7-5-for-over-1-5-fouls-in-battle-with-the-gunners/)
-
-
-### lyon fc (N/A, 30/12/2025 03:36 Lima)
-
-- **À trois ou quatre derrière, quelle structure pour l'OL en 2026 ?**: [Link](https://www.olympique-et-lyonnais.com/a-trois-ou-quatre-derriere-quelle-structure-pour-lol-en-2026,387598.html)
-- **Transferts : Endrick va être prêté à l'OL**: [Link](https://www.lequipe.fr/Football/Actualites/Mercato-endrick-l-international-bresilien-du-real-madrid-va-etre-prete-a-l-ol/1628965)
-- **OL : Ernest Nuamah et Malick Fofana annoncent d’excellentes nouvelles**: [Link](https://www.goal.com/fr/listes/ol-ernest-nuamah-et-malick-fofana-annoncent-d-excellentes-nouvelles/blt5abe01f74d0b6c69)
-
-
-### helm bank (N/A, 29/12/2025 21:05 Lima)
-
-- **Credicorp anuncia que BCP adquirirá el 100% de Helm Bank en EE.UU.**: [Link](https://gestion.pe/tu-dinero/credicorp-anuncia-que-bcp-adquirira-el-100-de-helm-bank-en-eeuu-noticia/)
-- **Credicorp se expande en EE. UU.: BCP acuerda la compra total de Helm Bank USA por $ 180 millones**: [Link](https://rpp.pe/economia/economia/credicorp-se-expande-en-ee-uu-bcp-acuerda-la-compra-total-de-helm-bank-usa-por-180-millones-noticia-1669615)
-- **Credicorp anunció que el BCP adquirirá el 100% de las acciones de Helm Bank USA**: [Link](https://elcomercio.pe/economia/peru/credicorp-anuncia-que-el-bcp-adquirira-el-100-de-las-acciones-de-helm-bank-usa-noticia/)
-
-
-### whatsapp la app dejará de funcionar en celulares antiguos desde 2026 (N/A, 29/12/2025 21:05 Lima)
-
-- **WhatsApp no va más en estos celulares Android desde el 1 de enero de 2026**: [Link](https://www.infobae.com/tecno/2025/12/29/whatsapp-no-va-mas-en-estos-celulares-android-desde-el-1-de-enero-de-2026/)
-- **Malas noticias para millones de usuarios: estos son los móviles que no podrán usar WhatsApp a partir del 1 de**: [Link](https://as.com/meristation/betech/malas-noticias-para-millones-de-usuarios-estos-son-los-moviles-que-no-podran-usar-whatsapp-a-partir-del-1-de-enero-de-2026-f202512-n/)
-- **WhatsApp dejará de funcionar en estos dispositivos a partir de 2026**: [Link](https://es.digitaltrends.com/celular/whatsapp-dejara-de-funcionar-en-estos-dispositivos-a-partir-de-2026/)
-
-
-### predicciones horóscopo chino 2026 (N/A, 29/12/2025 21:05 Lima)
-
-- **Año Nuevo Chino: por qué 2026 estará regido por el Caballo de Fuego**: [Link](https://www.perfil.com/noticias/sociedad/ano-nuevo-chino-2026-cuando-comienza-y-que-significa-el-caballo-de-fuego.phtml)
-- **2026: ¿el año del fuego?, por Ramiro Escobar**: [Link](https://larepublica.pe/opinion/2025/12/28/2026-el-ano-del-fuego-por-ramiro-escobar-hnews-1538516)
-- **Horóscopo Chino 2026: ¿Cuál es tu signo y quiénes tendrán más suerte el próximo año?**: [Link](https://as.com/us/tikitakas/horoscopo-chino-2026-cual-es-tu-signo-y-quienes-tendran-mas-suerte-el-proximo-ano-f202512-n/)
-
-
-### nets - warriors (N/A, 29/12/2025 21:05 Lima)
-
-- **Stephen Curry and Draymond Green good to go against Brooklyn**: [Link](https://sports.yahoo.com/articles/stephen-curry-draymond-green-good-175759083.html)
-- **How to watch Warriors vs. Nets: TV channel and streaming options for December 29**: [Link](https://www.nytimes.com/athletic/6927225/2025/12/29/warriors-vs-nets-stream-how-to-watch-dec-29/)
-- **bet365 Bonus Code WSN365: Get $150 in Bonus Bets for Warriors vs Nets Win or Lose**: [Link](https://www.wsn.com/nba/bet365-bonus-code-warriors-vs-nets-12-29-2025/)
-
-
-### nuevo comandante general del ejercito (N/A, 29/12/2025 21:05 Lima)
-
-- **El General Oswaldo Calle es el nuevo Comandante General del Ejército del Perú. El General Briceño nuevo Jefe del Comando Conjunto de las Fuerzas Armadas**: [Link](https://www.defensa.com/peru/general-oswaldo-calle-nuevo-comandante-general-ejercito-peru)
-- **Nuevo jefe de las Fuerzas Armadas, Oswaldo Calle, fue investigado por la justicia**: [Link](https://www.infobae.com/peru/2025/12/29/nuevo-jefe-de-las-fuerzas-armadas-oswaldo-calle-fue-investigado-por-la-justicia/)
-- **Nombran a Oswaldo Calle comandante general del Ejercito**: [Link](https://lpderecho.pe/nombran-oswaldo-calle-comandante-general-ejercito/)
 
 
