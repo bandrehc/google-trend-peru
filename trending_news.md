@@ -1,3 +1,59 @@
+### warren buffett (N/A, 01/01/2026 21:07 Lima)
+
+- **The legendary Warren Buffett steps back this week and Berkshire Hathaway enters a new era**: [Link](https://apnews.com/article/warren-buffett-greg-abel-berkshire-hathaway-successor-4024a59d028e34ea54f8f5a5f7769f69)
+- **Warren Buffett retires as Berkshire Hathaway CEO**: [Link](https://www.nbcnews.com/business/corporations/warren-buffett-retires-legacy-rcna251590)
+- **Quick Take | For future Buffetts**: [Link](https://www.newindianexpress.com/editorial/quick-take/2026/Jan/01/quick-take-for-future-buffetts)
+
+
+### luna llena enero 2026 (N/A, 01/01/2026 21:07 Lima)
+
+- **La superluna llena de enero, conocida como la luna del lobo, y la lluvia de meteoros Cuadrántidas dan inicio al nuevo año**: [Link](https://cnnespanol.cnn.com/2026/01/01/ciencia/superluna-lobo-lluvia-meteoros-cuadrantidas-2026-trax)
+- **Superlunas, lluvias de meteoros y alineaciones planetarias: los eventos astronómicos de enero que no te puedes perder**: [Link](https://elcomercio.pe/mag/respuestas/ciencias/superlunas-lluvias-de-meteoros-y-alineaciones-planetarias-los-eventos-astronomicos-de-enero-que-no-te-puedes-perder-nnda-nnrt-noticia/)
+- **Eclipses de 2026: Descubre cómo estas lunas llenas y nuevas supercargadas revolucionarán tu signo del zodiaco**: [Link](https://www.usmagazine.com/enespanol/horoscopo/eclipses-de-2026-descubre-como-estas-lunas-llenas-y-nuevas-supercargadas-revolucionaran-tu-signo-del-zodiaco/)
+
+
+### cuantos dias tiene el 2026 (N/A, 01/01/2026 21:07 Lima)
+
+- **Los estadounidenses tomarán aún menos tiempo de vacaciones en 2026.**: [Link](https://es.qz.com/trabajadores-estadounidenses-americanos-tiempo-de-vacaciones-descanso)
+- **Días de descanso obligatorio 2026: trabajadores deberán recibir más sueldo si laboran en las siguientes fechas**: [Link](https://www.infobae.com/mexico/2026/01/01/dias-de-descanso-obligatorio-2026-trabajadores-deberan-recibir-mas-sueldo-si-laboran-en-las-siguientes-fechas/)
+- **Días Feriados en Nuevo León: Tu Guía Comprensiva para 2026**: [Link](https://noticiasnewmexico.com/cuales-son-los-dias-feriados-en-nuevo-leon-durante-el-2026/)
+
+
+### feriados 2026 (N/A, 01/01/2026 21:07 Lima)
+
+- **¿Te tocó trabajar en Año Nuevo? Conoce aquí si te corresponde pago extra y descanso**: [Link](https://www.elperuano.pe/noticia/286268-te-toco-trabajar-en-ano-nuevo-conoce-aqui-si-te-corresponde-pago-extra-y-descanso)
+- **¿El 31 de diciembre es feriado o día no laborable en Perú? Conoce lo que dice la norma vigente**: [Link](https://www.infobae.com/peru/2025/12/27/el-31-de-diciembre-es-feriado-o-dia-no-laborable-en-peru-conoce-lo-que-dice-la-norma-vigente/)
+- **Feriados nacionales del 2026: revisa el calendario completo y actualizado en Perú**: [Link](https://elcomercio.pe/respuestas/trends/feriados-nacionales-del-2026-revisa-el-calendario-completo-y-fechas-claves-en-peru-tdpe-noticia/)
+
+
+### la empleada (N/A, 01/01/2026 21:07 Lima)
+
+- **Sydney Sweeney y Amanda Seyfried cuentan cómo fue trabajar juntas y qué lugar de la Argentina quieren conocer**: [Link](https://www.lanacion.com.ar/espectaculos/cine/sydney-sweeney-y-amanda-seyfried-cuentan-como-fue-trabajar-juntas-y-que-lugar-de-la-argentina-nid30122025/)
+- **La película “The Housemaid”, ¿tiene escena post-créditos?: lo que debes saber antes de salir de la sala de cine**: [Link](https://elcomercio.pe/mag/fama/que-ver/the-housemaid-tiene-escenas-post-creditos-pelicula-la-empleada-post-credits-scene-nnda-nnlt-noticia/)
+- **"La asistenta" vuelve al thriller de los 90 con mucha caradura (y escotes)**: [Link](https://www.zendalibros.com/la-asistenta-vuelve-al-thriller-de-los-90-con-mucha-caradura-y-escotes/)
+
+
+### city vs (N/A, 01/01/2026 21:07 Lima)
+
+- **Manchester City no quiere que Chelsea lo baje de la pelea**: [Link](https://www.espn.com.pe/futbol/inglaterra/nota/_/id/16137353/manchester-city-vs-chelsea-fecha-20-premier-league-equipo-fecha-hora-y-tv-en-vivo)
+- **Se aleja del liderato: Manchester City empató 0-0 con Sunderland por Premier League | RESUMEN**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/manchester-city-vs-sunderland-en-vivo-gratis-hoy-horarios-canales-tv-y-donde-ver-partido-por-premier-league-video-noticia/)
+- **Premier League: Manchester City intentará seguir su racha positiva ante Sunderland**: [Link](https://rpp.pe/futbol/ligas-internacionales/premier-league-manchester-city-intentara-seguir-su-racha-positiva-ante-sunderland-noticia-1669808)
+
+
+### tottenham (N/A, 01/01/2026 21:07 Lima)
+
+- **Tottenham no pudo con el Brentford en el arranque del año**: [Link](https://www.espn.com.pe/futbol/inglaterra/nota/_/id/16137242/brentford-vs-tottenham-por-la-premier-league-equipo-fecha-hora-y-tv-en-vivo)
+- **El regreso de Thomas Frank a Brentford termina en un monótono empate 0-0, con los Spurs fallando en áreas clave y los Bees siendo el mejor equipo ilesos, escribe MATT BARLOW**: [Link](https://www.ucvradio.pe/deporte/el-regreso-de-thomas-frank-a-brentford-termina-en-un-monotono-empate-0-0-con-los-spurs-fallando-en-areas-clave-y-los-bees-siendo-el-mejor-equipo-ilesos-escribe-matt-barlow/91740/)
+- **Brentford y Tottenham se repartieron los puntos en la Premier League**: [Link](https://ovacion.pe/noticias/futbol-internacional/brentford-tottenham-se-repartieron-puntos-premier-league)
+
+
+### juegos gratis steam (N/A, 01/01/2026 21:07 Lima)
+
+- **Reclama estos 8 Nuevos Juegos de Steam Gratis (Quédatelos para Siempre)**: [Link](https://www.clavecd.es/reclama-8-nuevos-juegos-steam-gratis-quedatelos-siempre-free-news-r/)
+- **Steam regala un juego para PC por tiempo limitado: puedes quedártelo para siempre**: [Link](https://www.infobae.com/tecno/2025/12/27/steam-regala-un-juego-para-pc-por-tiempo-limitado-puedes-quedartelo-para-siempre/)
+- **Steam te deja jugar gratis a 4 nuevos juegos que puedes aprovechar antes de que llegue 2026**: [Link](https://www.larazon.es/videojuegos/steam-te-deja-jugar-gratis-a-4-nuevos-juegos-que-puedes-aprovechar-antes-de-que-llegue-2026_202512306953a2f7ea66eb7353221c4b.html)
+
+
 ### city (N/A, 01/01/2026 15:29 Lima)
 
 - **Mamdani Is First New York Mayor to Use the Quran at His Swearing-In**: [Link](https://www.nytimes.com/2025/12/31/nyregion/mamdani-quran-inauguration-muslim.html)
@@ -977,61 +1033,5 @@ hat-trick scorer**: [Link](https://www.vavel.com/en/football/2025/12/27/premier-
 - **Año Nuevo Chino: por qué 2026 estará regido por el Caballo de Fuego**: [Link](https://www.perfil.com/noticias/sociedad/ano-nuevo-chino-2026-cuando-comienza-y-que-significa-el-caballo-de-fuego.phtml)
 - **2026: ¿el año del fuego?, por Ramiro Escobar**: [Link](https://larepublica.pe/opinion/2025/12/28/2026-el-ano-del-fuego-por-ramiro-escobar-hnews-1538516)
 - **¿Cuál es el signo más afortunado del horóscopo chino en 2026? | tdpe | RESPUESTAS**: [Link](https://elcomercio.pe/respuestas/que/cual-es-el-signo-mas-afortunado-del-horoscopo-chino-en-2026-tdpe-noticia/)
-
-
-### leicester (N/A, 29/12/2025 15:30 Lima)
-
-- **TEAM NEWS: Leicester City Vs Derby County**: [Link](https://www.dcfc.co.uk/news/2025/12/team-news-leicester-city-vs-derby-county-december-2025)
-- **Rams face injury concerns ahead of crucial clash with Leicester City**: [Link](https://news.ssbcrack.com/rams-face-injury-concerns-ahead-of-crucial-clash-with-leicester-city/)
-- **What channel is Leicester v Derby Championship match on? TV coverage, live stream and kick-off time**: [Link](https://www.radiotimes.com/tv/sport/football/leicester-derby-championship-2025-26-preview/)
-
-
-### sentinel (N/A, 29/12/2025 15:30 Lima)
-
-- **Paolo Banchero says narrative that his pairing with Franz Wagner doesn’t work is ‘bull—’ - The Athletic**: [Link](https://www.nytimes.com/athletic/6913110/2025/12/23/paolo-banchero-orlando-magic-season/)
-- **Magic star upset at narrative regarding fit with co-star**: [Link](https://www.si.com/nba/magic/onsi/news/magic-star-upset-at-narrative-regarding-fit-with-co-star-01kdc1rzp957)
-- **I knew coming back that, with it being a groin injury, …**: [Link](https://sports.yahoo.com/articles/knew-coming-back-being-groin-141856428.html)
-
-
-### zambia - marruecos (N/A, 29/12/2025 15:30 Lima)
-
-- **Zambia - Marruecos, en directo: Copa África, hoy en vivo**: [Link](https://as.com/futbol/internacional/zambia-marruecos-en-directo-copa-africa-hoy-en-vivo-f202512-n/)
-- **Apuestas y pronósticos Zambia vs Marruecos**: [Link](https://www.marca.com/apuestas-deportivas/predicciones/2025/12/28/apuestas-pronosticos-zambia-vs-marruecos.html)
-- **Akhomach: “Estamos listos para Zambia y lucharemos hasta el final”**: [Link](https://es.rue20.com/2025/12/29/akhomach-estamos-listos-para-zambia-y-lucharemos-hasta-el-final/)
-
-
-### zimbabue - sudáfrica (N/A, 29/12/2025 11:32 Lima)
-
-- **Pronóstico Zimbabue Sudáfrica - CAN 29/12/25**: [Link](https://www.sportytrader.com/es/pronosticos/zimbabue-sudafrica-314492/)
-- **Copa Africana: Horario y canales para ver el partido de Sudáfrica, rival de México en el Mundial de 2026; HOY, 29 de diciembre**: [Link](https://www.eluniversal.com.mx/deportes/copa-africana-horario-y-canales-para-ver-el-partido-de-sudafrica-rival-de-mexico-en-el-mundial-de-2026-este-lunes-29-de-diciembre/)
-- **Juega Sudáfrica su pase a Octavos en Copa Africana**: [Link](https://lucesdelsiglo.com/2025/12/28/juega-sudafrica-su-pase-a-octavos-en-copa-africana-deportes/)
-
-
-### egipto vs. sudáfrica (N/A, 29/12/2025 11:32 Lima)
-
-- **Con un gol de Salah, Egipto se metió en los octavos de la Copa Africana de Naciones**: [Link](https://www.espn.com.ar/futbol/nota/_/id/16122070/gol-mohamed-salah-egipto-vencio-sudafrica-octavos-de-la-copa-africana-de-naciones-2025-26)
-- **La tabla de la Copa Africana, tras Egipto vs. Sudáfrica: se definió el primer clasificado**: [Link](https://www.msn.com/es-co/deportes/other/la-tabla-de-la-copa-africana-tras-egipto-vs-sud%C3%A1frica-se-defini%C3%B3-el-primer-clasificado/ar-AA1T5bEv)
-- **"Hasta Mo Salah se sorprendió": el seleccionador sudafricano critica el "ridículo" penalti de Egipto**: [Link](https://tribuna.com/es/blogs/hasta-mo-salah-se-sorprendio-el-seleccionador-sudafricano-cr/)
-
-
-### angola vs egipto (N/A, 29/12/2025 11:32 Lima)
-
-- **Pronóstico Angola - Egipto - CAN**: [Link](https://www.sportytrader.es/pronosticos/angola-egipto-314206/)
-- **Mohamed Salah descansará en el último partido de la fase de grupos de la Copa Africana de Naciones de Egipto contra Angola**: [Link](https://tribuna.com/es/news/2025-12-29-mohamed-salah-descansara-en-el-ultimo-partido-de-la-fase-de-grupos-de-la-copa-africana-de/)
-- **Zimbabue - Sudáfrica en directo - Copa de África: Resultados y resúmenes de Fútbol - 29/12/2025**: [Link](https://www.eurosport.es/futbol/copa-de-africa/2025/live-zimbabue-sudafrica_mtc1584146/live-commentary.shtml)
-
-
-### calendario 2026 (N/A, 29/12/2025 11:32 Lima)
-
-- **¡Angelados! Los feriados del 2026 que te permitirán desconectarte del mundo**: [Link](https://www.revistaeconomia.com/angelados-los-feriados-del-2026-que-te-permitiran-desconectarte-del-mundo/)
-- **PLANIFICA TUS ESCAPADAS: Estos son los 16 feriados del 2026**: [Link](https://peru21.pe/peru/estos-son-los-16-feriados-nacionales-del-2026/)
-- **¿Habrá FERIADO LARGO del 29 al 31 de diciembre por Año Nuevo? Lo que indica la norma en El Peruano**: [Link](https://elcomercio.pe/respuestas/cuando/habra-feriado-largo-del-29-al-31-de-diciembre-por-ano-nuevo-esto-indica-la-norma-en-el-peruano-tdpe-noticia/)
-
-
-### michael schumacher (N/A, 29/12/2025 11:32 Lima)
-
-- **Michael Schumacher's devastating text message to wife 12 years on from tragic skiing accident**: [Link](https://www.gbnews.com/sport/f1/michael-schumacher-text-wife-skiing-accident)
-- **12 years on from Schumacher's skiing accident, everything we know about his condition**: [Link](https://www.nationalworld.com/sport/formula-1/michael-schumacher-12-years-since-skiing-accident-condition-who-is-allowed-to-visit-him-5457433)
-- **Michael Schumacher’s friend reveals ‘strict rules’ around visiting F1 star**: [Link](https://www.express.co.uk/news/world/2151202/michael-schumacher-health-condition-visit-f1-driver)
 
 
