@@ -1,3 +1,31 @@
+### arley rodríguez (N/A, 02/01/2026 03:36 Lima)
+
+- **Reencuentro con viejos amigos: FC Cajamarca fichó a otro bicampeón con Alianza Lima**: [Link](https://depor.com/futbol-peruano/descentralizado/arley-rodriguez-jugara-en-fc-cajamarca-ex-alianza-lima-sera-companero-de-hernan-barcos-y-pablo-lavandeira-noticia/)
+- **Mr. Peet señaló al responsable de la salida de Pablo Lavandeira de Alianza Lima: “No encuentro un jugador de sus características en el club”**: [Link](https://www.infobae.com/peru/deportes/2025/12/30/mr-peet-senalo-al-responsable-de-la-salida-de-pablo-lavandeira-de-alianza-lima-no-encuentro-un-jugador-de-sus-caracteristicas-en-el-club/)
+- **Arley Rodríguez fichó por llamativo club de la Liga 1**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/arley-rodriguez-dejo-real-cartagena-y-ficho-club-liga-1-n452169)
+
+
+### millie bobby brown (N/A, 02/01/2026 03:36 Lima)
+
+- **The Duffer Brothers Dive Deep Into the Emotional Stranger Things Series Finale**: [Link](https://www.netflix.com/tudum/features/stranger-things-series-finale-duffer-brothers-interview)
+- **Stranger Things draws to an epic and emotional close**: [Link](https://www.bbc.com/news/articles/ckgl2je05j0o)
+- **‘Stranger Things’ Finale Spoiler Interview: Duffer Brothers on Whether Eleven Is Alive, Debating Who Got to Kill [SPOILER] and Why the Rock From the Briefcase Is Key to the Spinoff**: [Link](https://variety.com/2026/tv/news/stranger-things-finale-is-eleven-alive-vecna-killed-rock-spinoff-1236621528/)
+
+
+### japon (N/A, 02/01/2026 03:36 Lima)
+
+- **Infos Locales au Japon vous souhaite une merveilleuse année 2026 !**: [Link](https://infoslocalesaujapon.org/infos-locales-au-japon-vous-souhaite-une-merveilleuse-annee-2026/)
+- **Un séisme de magnitude 6,0 frappe le nord du Japon**: [Link](https://www.aa.com.tr/fr/monde/un-s%C3%A9isme-de-magnitude-6-0-frappe-le-nord-du-japon/3786395)
+- **Japon: un séisme de magnitude 5,6 au nord du pays**: [Link](https://www.yenisafak.com/fr/societe/japon-un-seisme-de-magnitude-56-au-nord-du-pays-51283)
+
+
+### tommy lee jones (N/A, 02/01/2026 03:36 Lima)
+
+- **Tommy Lee Jones' Daughter Victoria Found Dead at San Francisco Hotel**: [Link](https://www.tmz.com/2026/01/01/tommy-lee-jones-daughter-victoria-dead/)
+- **Woman found dead at SF hotel believed to be daughter of actor Tommy Lee Jones**: [Link](https://www.nbcbayarea.com/news/local/woman-found-dead-sf-hotel/4006464/)
+- **Hollywood icon Tommy Lee Jones's child star daughter found dead in luxury hotel aged just 34**: [Link](https://www.dailymail.co.uk/tvshowbiz/article-15428013/tommy-lee-jones-daughter-victoria-dead-hotel-room.html)
+
+
 ### mavericks - 76ers (N/A, 01/01/2026 23:46 Lima)
 
 - **Mavericks vs 76ers Preview and Injury Update: Philly comes to Dallas**: [Link](https://www.mavsmoneyball.com/mavericks-game-previews/54298/mavericks-vs-76ers-preview-start-time-tv-stream-injury-report-how-to-watch)
@@ -1005,33 +1033,5 @@ hat-trick scorer**: [Link](https://www.vavel.com/en/football/2025/12/27/premier-
 - **Norwich City 0-1 Watford: Vivaldo Semedo scores late Hornets winner**: [Link](https://www.bbc.com/sport/football/live/c14vdygyrjzt)
 - **Norwich City 0-1 Watford: Vivaldo Semedo snatches late Hornets win**: [Link](https://www.skysports.com/football/news/11095/13484447/norwich-city-0-1-watford-vivaldo-semedo-snatches-late-hornets-win)
 - **iFollow: Get Your Pass For Norwich Trip!**: [Link](https://www.watfordfc.com/news/2025/december/29/how-to-stream-norwich-watford/)
-
-
-### porto fc (N/A, 29/12/2025 21:05 Lima)
-
-- **Mário Santos admits challenges for FC Porto to launch senior futsal team**: [Link](https://onefootball.com/en/news/mario-santos-admits-challenges-for-fc-porto-to-launch-senior-futsal-team-42156488)
-- **AS Roma vs. Génova (29 de Dic., 2025) Resultados en Vivo**: [Link](https://www.espn.com.pe/futbol/partido/_/juegoId/736946)
-- **Dolphins 20-17 Buccaneers (28 de Dic., 2025) Resultado Final**: [Link](https://www.espn.com.pe/futbol-americano/nfl/juego/_/juegoId/401772916)
-
-
-### birmingham city - southampton (N/A, 29/12/2025 21:05 Lima)
-
-- **The reason why Southampton goal wasn’t ruled out after Birmingham City fury at referee**: [Link](https://www.birminghammail.co.uk/sport/football/football-news/reason-southampton-goal-wasnt-ruled-33137684)
-- **Birmingham City 1-1 Southampton: Cameron Archer earns point for Saints**: [Link](https://www.skysports.com/football/news/11095/13484454/birmingham-city-1-1-southampton-cameron-archer-earns-point-for-saints)
-- **Birmingham City 1-1 Southampton: Birmingham assistant manager Ben Petty on draw**: [Link](https://www.bbc.co.uk/sport/football/articles/cy7v7jjxee6o)
-
-
-### newjeans (N/A, 29/12/2025 15:30 Lima)
-
-- **NJZ’s (NewJeans) Danielle Could Join THE BLACK LABEL**: [Link](https://www.koreaboo.com/news/njz-newjeans-danielle-join-black-label/)
-- **ADOR Share NewJeans Update: Hanni Returns, Minji In Talks, Danielle’s Contract Terminated**: [Link](https://www.forbes.com/sites/jeffbenjamin/2025/12/28/ador-share-newjeans-update-hanni-returns-minji-in-talks-danielles-contract-terminated/)
-- **"Defamed NewJeans' Reputation"... Danielle Marsh Faces Over 100 Billion KRW Penalty from ADOR**: [Link](https://www.mk.co.kr/en/culture/11912314)
-
-
-### porto - avs (N/A, 29/12/2025 15:30 Lima)
-
-- **Boas memórias para terminar 2025 em alta: o onze provável do FC Porto**: [Link](https://onefootball.com/de/news/boas-memorias-para-terminar-2025-em-alta-o-onze-provavel-do-fc-porto-42156044)
-- **Porto x AVS no Campeonato Português: onde assistir ao vivo, horário e escalação**: [Link](https://www.estadao.com.br/esportes/futebol/porto-x-avs-no-campeonato-portugues-onde-assistir-ao-vivo-horario-e-escalacao-npres/)
-- **Francesco Farioli: “Este é o momento para acelerarmos a todo o gás na Liga”**: [Link](https://portocanal.sapo.pt/noticia/371254)
 
 
