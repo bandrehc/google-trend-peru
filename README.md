@@ -1,3 +1,71 @@
+### gil vicente vs. sporting lisboa (N/A, 02/01/2026 15:28 Lima)
+
+- **TCU 72-48 BYU (Dec 31, 2025) Game Recap**: [Link](https://www.espn.com/ncw/recap?gameId=401827297)
+- **North Dakota State 76-68 Oral Roberts (Jan 1, 2026) Final Score**: [Link](http://www.espn.com/ncw/preview?gameId=401818442)
+- **NJIT 80-75 UMBC (Jan 1, 2026) Final Score**: [Link](http://www.espn.com/ncw/preview?gameId=401812180)
+
+
+### panathinaikos - olympiacos (N/A, 02/01/2026 15:28 Lima)
+
+- **Message to our fans (02/01/26)**: [Link](https://www.paobc.gr/en/minyma-pros-tous-filathlous-mas-02-01-26/)
+- **Top five EuroLeague eternal derbies between Panathinaikos and Olympiacos**: [Link](https://www.eurohoops.net/en/trademarks/1913174/top-five-euroleague-eternal-derbies-between-panathinaikos-and-olympiacos/)
+- **Richaun Holmes on Panathinaikos vs Olympiacos: It’s going to be fun - I’m excited about the atmosphere**: [Link](https://basketballsphere.com/en/richaun-holmes-on-panathinaikos-vs-olympiacos-its-going-to-be-fun-im-excited-about-the-atmosphere/)
+
+
+### lens fc (N/A, 02/01/2026 15:28 Lima)
+
+- **Thomasson urges Lens to stay focused as Ligue 1 leaders**: [Link](https://www.beinsports.com/en-us/soccer/ligue-1/articles/thomasson-urges-lens-to-stay-focused-as-ligue-1-leaders-2026-01-01)
+- **Football Bet Of The Day: James Milton has selected a 9-5 shot in Ligue 1**: [Link](https://www.racingpost.com/sport/football-tips/football-bet-of-the-day-james-milton-has-selected-a-9-5-shot-in-ligue-1-aUyvN4Q7YPTh/)
+- **Toulouse v Lens Match Stats**: [Link](https://andysbetclub.co.uk/football-fixtures/toulouse-v-lens/02012026/9f42b90b-4ecf-417d-ac30-9f9a4cc0575a/)
+
+
+### milan (N/A, 02/01/2026 15:28 Lima)
+
+- **¡EN VIVO! Milan visita a Cagliari en busca de llegar a lo más alto de la Serie A**: [Link](https://www.espn.com.pe/futbol/italia/nota/_/id/16134040/cagliari-vs-milan-fecha-17-serie-a-equipo-fecha-hora-y-tv-en-vivo)
+- **Cagliari vs AC Milan en vivo por la Serie A de Italia**: [Link](https://www.futbolperuano.com/en-vivo/serie-a-de-italia-cagliari-vs-ac-milan-en-vivo-557316)
+- **Serie A: Milan busca subir a la cima del torneo**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-milan-busca-subir-a-la-cima-del-torneo-noticia-1669890)
+
+
+### eibar vs (N/A, 02/01/2026 15:28 Lima)
+
+Sin noticias relacionadas disponibles.
+
+
+### primeira liga (N/A, 02/01/2026 15:28 Lima)
+
+- **Atenção, Sporting: Hjulmand falha receção ao Casa Pia por castigo**: [Link](https://maisfutebol.iol.pt/sporting/liga/atencao-sporting-hjulmand-falha-rececao-ao-casa-pia-por-castigo)
+- **Sporting com baixa importante contra o Casa Pia na Primeira Liga**: [Link](https://bolanarede.pt/especial-bola-na-rede/atualidade/sporting-com-baixa-importante-contra-o-casa-pia-na-primeira-liga/)
+- **Atenção, Sporting: Hjulmand falha receção ao Casa Pia por castigo**: [Link](https://tvi.iol.pt/noticias/sporting/liga/atencao-sporting-hjulmand-falha-rececao-ao-casa-pia-por-castigo)
+
+
+### niño atropellado en gamarra (N/A, 02/01/2026 15:28 Lima)
+
+- **Madre del niño atropellado en Gamarra exige que el chofer pague: "¡Me lo mató! Que no quede impune"**: [Link](https://www.atv.pe/noticia/madre-del-nino-atropellado-en-gamarra-exige-que-el-chofer-pague-me-lo-mato-que-no-quede-impune/)
+- **Empresa Hermes se pronuncia luego del atropello de menor en Gamarra: “Nos encontramos comprometidos con las investigaciones”**: [Link](https://trome.com/actualidad/gamarra-empresa-hermes-se-pronuncia-luego-del-atropello-de-menor-de-dos-anos-nos-encontramos-comprometidos-con-las-investigaciones-video-fotos-historia-de-policiales-noticia/)
+- **El doloroso testimonio del padre de menor que murió atropellado en Gamarra frente a la hermana del niño: “Me lo mató”**: [Link](https://www.infobae.com/peru/2025/12/31/el-doloroso-testimonio-del-padre-tras-el-atropello-mortal-de-su-hijo-en-gamarra-frente-a-los-ojos-de-la-hermana-del-nino-me-lo-mato/)
+
+
+### rayo vallecano - getafe (N/A, 02/01/2026 15:28 Lima)
+
+- **Rayo Vallecano - Getafe, en directo: LaLiga EA Sports, en vivo hoy**: [Link](https://as.com/futbol/primera/rayo-vallecano-getafe-en-directo-laliga-ea-sports-en-vivo-hoy-f202601-d/)
+- **Apuestas y Pronóstico del Rayo Vallecano vs Getafe 02/01/26**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2026/enero/pronostico-rayo-vallecano-vs-getafe-02-01-26)
+- **Derbi madrileño de estilos opuestos para iniciar el año**: [Link](https://www.mundodeportivo.com/futbol/laliga/20260102/1002594544/derbi-madrileno-estilos-opuestos-iniciar-ano.html)
+
+
+### sporting lisboa (N/A, 02/01/2026 15:28 Lima)
+
+- **Grande passe de Quaresma e Suárez coloca o Sporting a vencer (vídeo)**: [Link](https://www.abola.pt/noticias/grande-passe-de-quaresma-e-suarez-coloca-o-sporting-a-vencer-video-2026010215533299921)
+- **AO VIVO: Enorme defesa de Rui Silva a Tidjany Touré (54')**: [Link](https://www.flashscore.pt/noticias/futebol-liga-portugal-betclic-ao-vivo-enorme-defesa-de-rui-silva-a-tidjany-toure-54/x2FTjAat/)
+- **Gil Vicente: Sporting (ONZES): Matheus Reis e Fresneda titulares em Barcelos**: [Link](https://maisfutebol.iol.pt/gil-vicente/sporting/gil-vicente-sporting-onzes-matheus-reis-e-fresneda-titulares-em-barcelos)
+
+
+### cagliari - milan (N/A, 02/01/2026 15:28 Lima)
+
+- **Tutto il calcio in Diretta**: [Link](https://www.diretta.it/news/calcio-live-in-campo-cagliari-milan-0-0/SK1IN9Q9/)
+- **Cagliari-AC Milan, Serie A Enilive 2025/2026: formazioni ufficiali**: [Link](https://www.acmilan.com/it/news/articoli/serie-a/2026-01-02/cagliari-milan-le-formazioni-ufficiali)
+- **Prima pagina Gazzetta dello Sport: “Ritorna Leao, Fullkrug in panchina. E sul mercato tentazione Kim”**: [Link](https://www.pianetamilan.it/news-milan/rassegna-stampa/prima-pagina-gazzetta-dello-sport-ritorna-leao-fullkrug-in-panchina-e-sul-mercato-tentazione-kim-02-01-2026/)
+
+
 ### rayo vallecano (N/A, 02/01/2026 11:32 Lima)
 
 - **LaLiga EA Sports: Getafe quiere romper su racha negativa y ganar frente a Rayo Vallecano**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-getafe-quiere-romper-su-racha-negativa-y-ganar-frente-a-rayo-vallecano-noticia-1669893)
@@ -963,75 +1031,5 @@ hat-trick scorer**: [Link](https://www.vavel.com/en/football/2025/12/27/premier-
 - **Jaissle Explodes After the Defeat.. Reveals the Reason Behind the Loss to Al-Fateh**: [Link](https://www.ysscores.com/en/news/13879120/Jaissle-Explodes-After-the-Defeat..-Reveals-the-Reason-Behind-the-Loss-to-Al-Fateh)
 - **Al Ahli vs Al Fayha Preview & Prediction**: [Link](https://www.thestatszone.com/al-ahli-vs-al-fayha-preview-prediction-163311)
 - **Intriguing Reaction from José Gomes After Al-Fateh’s Win Over Al-Ahli in the Roshn League**: [Link](https://koorabreak.com/en/235926/)
-
-
-### uganda - nigeria (N/A, 30/12/2025 11:34 Lima)
-
-- **Nigeria XI vs Uganda: Starting lineup and confirmed team news**: [Link](https://www.standard.co.uk/sport/football/nigeria-xi-vs-uganda-starting-lineup-confirmed-team-news-injury-latest-afcon-2025-today-b1264239.html)
-- **AFCON 2025: Osimhen, Lookman, Nwabali, Ajayi Risk Suspension**: [Link](https://en.africatopsports.com/2025/12/30/afcon-2025-osimhen-lookman-nwabali-ajayi-risk-suspension/)
-- **Uganda v Nigeria: Africa Cup of Nations 2025 – live**: [Link](https://www.theguardian.com/football/live/2025/dec/30/uganda-v-nigeria-africa-cup-of-nations-2025-live?page=with:block-6953fba78f087b8b68f5e9a8)
-
-
-### tanzania - túnez (N/A, 30/12/2025 11:34 Lima)
-
-- **Pronóstico Tanzanía Túnez - CAN 30/12/25**: [Link](https://www.sportytrader.com/es/pronosticos/tanzania-tunez-314783/)
-- **Tanzania - Túnez en directo - Copa de África: Resultados y resúmenes de Fútbol - 30/12/2025**: [Link](https://espanol.eurosport.com/futbol/copa-de-africa/2025/live-tanzania-tunez_mtc1584156/live-commentary.shtml)
-- **¡En Vivo! Tanzania vs Túnez en la AFCON 2025 por beIN SPORTS**: [Link](https://www.beinsports.com/es-us/football/copa-africana-de-naciones/articles/-en-vivo-tanzania-vs-t%C3%BAnez-en-la-afcon-2025-por-bein-sports-2025-12-29)
-
-
-### chelsea vs bournemouth (N/A, 30/12/2025 11:34 Lima)
-
-- **Enzo Maresca confirms Chelsea team news for Bournemouth | News | Official Site**: [Link](https://www.chelseafc.com/en/news/article/enzo-maresca-chelsea-team-news-bournemouth-december-2025)
-- **Football Bet of the Day: Back goals at the Bridge on Tuesday**: [Link](https://mrfixitstips.co.uk/football-bet-of-the-day-back-goals-at-the-bridge-on-tuesday/)
-- **Chelsea boss drops worrying Reece James and Cole Palmer update**: [Link](https://theprideoflondon.com/chelsea-boss-reece-james-cole-palmer-update)
-
-
-### federico girotti (N/A, 30/12/2025 11:34 Lima)
-
-- **Federico Girotti dejó Talleres y es nuevo jugador de Alianza Lima**: [Link](https://www.espn.com.ar/futbol/peru/nota/_/id/16076924/federico-girotti-dejo-talleres-y-es-refuerzo-de-alianza-lima-2026)
-- **¡Llegó el ‘9’ de Guede! Federico Girotti aterrizó en Lima para sellar su vínculo con Alianza**: [Link](https://depor.com/futbol-peruano/descentralizado/alianza-lima-federico-girotti-llego-a-lima-para-firmar-su-contrato-cuando-lo-presentan-liga-1-fichajes-2026-noticia/)
-- **Federico Girotti es oficialmente nuevo jugador de Alianza Lima**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/federico-girotti-oficialmente-nuevo-jugador-alianza-lima-n452145)
-
-
-### feriados 2026 (N/A, 30/12/2025 11:34 Lima)
-
-- **¿Hoy 30 de diciembre es feriado en Perú? La norma oficializada ya lo aclara**: [Link](https://www.infobae.com/peru/2025/12/29/hay-asueto-manana-30-de-diciembre-en-peru-esto-deben-saber-los-trabajadores-del-sector-publico-y-privado/)
-- **¡Atención! Conoce los feriados calendario para este 2026**: [Link](https://www.atv.pe/noticia/atencion-conoce-los-feriados-calendario-para-este-2026/)
-- **Feriados 2026: Estos son los 16 días no laborales para el sector público y privado en Perú | video | ACTUALIDAD**: [Link](https://trome.com/actualidad/feriados-2026-estos-son-los-16-dias-no-laborales-para-el-sector-publico-y-privado-en-peru-video-noticia/)
-
-
-### el peru a toda maquina (N/A, 30/12/2025 11:34 Lima)
-
-- **‘¡El Perú a toda máquina!’ José Jerí establece frase para la publicidad institucional en 2026**: [Link](https://www.infobae.com/peru/2025/12/30/el-peru-a-toda-maquina-jose-jeri-establece-frase-para-la-publicidad-institucional-en-2026/)
-- **"¡El Perú a toda máquina!": Ejecutivo establece frase y logo para toda publicidad institucional en 2026**: [Link](https://rpp.pe/politica/gobierno/el-peru-a-toda-maquina-ejecutivo-establece-frase-y-logo-para-toda-publicidad-institucional-en-2026-noticia-1669660)
-- **¡El Perú a toda máquina!, Gobierno de Jerí lanza lema oficial para publicidad institucional**: [Link](https://gestion.pe/peru/politica/gobierno-de-jose-jeri-el-peru-a-toda-maquina-lanza-lema-para-toda-su-publicidad-institucional-noticia/)
-
-
-### el peruano (N/A, 30/12/2025 11:34 Lima)
-
-- **El Peruano te informa: consulta aquí las principales normas legales para hoy, lunes 29 de Diciembre del 2025**: [Link](https://elperuano.pe/noticia/285999-el-peruano-te-informa-consulta-aqui-las-principales-normas-legales-para-hoy-lunes-29-de-diciembre-del-2025)
-- **Estas son las normas legales más importantes del lunes 29 de diciembre del 2025**: [Link](https://andina.pe/agencia/noticia-estas-son-las-normas-legales-mas-importantes-del-lunes-29-diciembre-del-2025-1057291.aspx)
-- **Nueva norma de sonómetros 2025: verifica tus equipos y evita observaciones en fiscalización**: [Link](https://elperuano.pe/noticia/286068-nueva-norma-de-sonometros-2025-verifica-tus-equipos-y-evita-observaciones-en-fiscalizacion)
-
-
-### temblor hoy chimbote (N/A, 30/12/2025 07:55 Lima)
-
-- **Alerta permanente en salud por fuerte sismo en Áncash**: [Link](https://elperuano.pe/noticia/286001-alerta-permanente-en-salud-por-fuerte-sismo-en-ancash)
-- **Temblor en Perú HOY, 30 de diciembre: Dónde, cuándo y de cuántos grados fue vía IGP**: [Link](https://elcomercio.pe/peru/reporte-de-ultimo-temblor-hoy-en-peru-lugar-del-epicentro-hora-y-magnitud-de-sismos-segun-igp-tdpe-noticia/)
-- **INGEMMET alertó desde 2015 sobre zonas críticas en Áncash y La Libertad expuestas a deslizamientos y sismos**: [Link](https://canaln.pe/actualidad/zonas-criticas-ancash-y-libertad-fueron-alertadas-2015-n489230)
-
-
-### samsung (N/A, 30/12/2025 07:55 Lima)
-
-- **US approves Samsung, SK Hynix chipmaking tool shipments to China for 2026, sources say**: [Link](https://www.reuters.com/world/china/samsung-wins-us-annual-approval-chipmaking-tool-shipments-china-source-says-2025-12-30/)
-- **Samsung wins annual U.S. approval for chipmaking tool shipments to China - report (SSNLF:OTCMKTS)**: [Link](https://seekingalpha.com/news/4535760-samsung-wins-annual-us-approval-for-chipmaking-tool-shipments-to-china---report)
-- **U.S. approves Samsung, SK Hynix chipmaking tool shipments to China for 2026: Reuters**: [Link](https://www.cnbc.com/2025/12/30/us-approves-samsung-sk-hynix-chipmaking-tool-shipments-to-china-for-2026-reuters.html)
-
-
-### helm bank usa (N/A, 30/12/2025 07:55 Lima)
-
-- **Credicorp: BCP acordó la compra del community bank estadounidense Helm Bank**: [Link](https://semanaeconomica.com/economia-finanzas/banca/credicorp-bcp-acordo-la-adquisicion-del-100-de-helm-bank-usa)
-- **BCP compra banco en Estados Unidos por USD 180 millones: las claves del acuerdo**: [Link](https://www.infobae.com/peru/2025/12/29/bcp-compra-banco-en-estados-unidos-por-usd-180-millones-las-claves-del-acuerdo/)
-- **Credicorp anuncia la compra de Helm Bank en EEUU por US$ 180 millones**: [Link](https://dfsud.com/peru/credicorp-anuncia-la-compra-de-helm-bank-en-eeuu-por-us-180-millones)
 
 
