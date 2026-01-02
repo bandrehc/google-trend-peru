@@ -1,3 +1,24 @@
+### clima de hoy (N/A, 02/01/2026 07:53 Lima)
+
+- **SENAMHI: Pronóstico del clima hoy viernes 02 de enero 2026**: [Link](https://rpp.pe/peru/actualidad/senamhi-pronostico-del-clima-hoy-viernes-02-de-enero-2026-noticia-1669948)
+- **El pronóstico del tiempo para los próximos cuatro días en el país**: [Link](https://caretas.pe/nacional/el-pronostico-del-tiempo-para-los-proximos-cuatro-dias-en-el-pais/)
+- **Senamhi: temperatura llegará a los 35 °C en Año Nuevo en estas tres regiones del Perú**: [Link](https://www.infobae.com/peru/2025/12/31/senamhi-temperatura-llegara-a-los-35-c-en-ano-nuevo-en-estas-tres-regiones-del-peru/)
+
+
+### hoy es feriado (N/A, 02/01/2026 07:53 Lima)
+
+- **¿Atenderán los centros comerciales en el feriado del 1 de enero de 2026? Estos son los horarios de Plaza Norte, Megaplaza, Mall y Real Plaza**: [Link](https://www.infobae.com/peru/2025/12/30/atenderan-los-centros-comerciales-en-el-feriado-del-1-de-enero-de-2026-estos-son-los-horarios-de-plaza-norte-megaplaza-mall-y-real-plaza/)
+- **Año Nuevo: Horarios de los supermercados para este 1 de enero**: [Link](https://gestion.pe/peru/ano-nuevo-2026-los-horarios-de-los-supermercados-para-este-31-de-diciembre-y-1-de-enero-noticia/)
+- **Así funcionará el comercio HOY jueves 1 de enero**: [Link](https://www.t13.cl/noticia/te-puede-servir/asi-funcionara-comercio-hoy-jueves-1-enero-1-1-2026)
+
+
+### servicio militar (N/A, 02/01/2026 07:53 Lima)
+
+- **Servicio Militar: conoce las nuevas disposiciones que mejoran derechos y regularizan inscripciones**: [Link](https://elperuano.pe/noticia/286266-servicio-militar-conoce-las-nuevas-disposiciones-que-mejoran-derechos-y-regularizan-inscripciones)
+- **Gobierno aprueba cambios a la ley del Servicio Militar: Los detalles**: [Link](https://gestion.pe/peru/gobierno-aprueba-cambios-a-la-ley-del-servicio-militar-los-detalles-noticia/)
+- **Gobierno oficializa decreto supremo que modifica el reglamento de la Ley del Servicio Militar**: [Link](https://peru21.pe/peru/gobierno-oficializa-decreto-supremo-que-modifica-el-reglamento-de-la-ley-del-servicio-militar/)
+
+
 ### arley rodríguez (N/A, 02/01/2026 03:36 Lima)
 
 - **Reencuentro con viejos amigos: FC Cajamarca fichó a otro bicampeón con Alianza Lima**: [Link](https://depor.com/futbol-peruano/descentralizado/arley-rodriguez-jugara-en-fc-cajamarca-ex-alianza-lima-sera-companero-de-hernan-barcos-y-pablo-lavandeira-noticia/)
@@ -1012,26 +1033,5 @@ hat-trick scorer**: [Link](https://www.vavel.com/en/football/2025/12/27/premier-
 - **El General Oswaldo Calle es el nuevo Comandante General del Ejército del Perú. El General Briceño nuevo Jefe del Comando Conjunto de las Fuerzas Armadas**: [Link](https://www.defensa.com/peru/general-oswaldo-calle-nuevo-comandante-general-ejercito-peru)
 - **Nuevo jefe de las Fuerzas Armadas, Oswaldo Calle, fue investigado por la justicia**: [Link](https://www.infobae.com/peru/2025/12/29/nuevo-jefe-de-las-fuerzas-armadas-oswaldo-calle-fue-investigado-por-la-justicia/)
 - **Nombran a Oswaldo Calle comandante general del Ejercito**: [Link](https://lpderecho.pe/nombran-oswaldo-calle-comandante-general-ejercito/)
-
-
-### terremoto en chimbote (N/A, 29/12/2025 21:05 Lima)
-
-- **Alerta permanente en salud por fuerte sismo en Áncash**: [Link](https://elperuano.pe/noticia/286001-alerta-permanente-en-salud-por-fuerte-sismo-en-ancash)
-- **INGEMMET alertó desde 2015 sobre zonas críticas en Áncash y La Libertad expuestas a deslizamientos y sismos**: [Link](https://canaln.pe/actualidad/zonas-criticas-ancash-y-libertad-fueron-alertadas-2015-n489230)
-- **Tres sismos con epicentro en Chimbote volvieron a sacudir el norte del país**: [Link](https://rpp.pe/peru/actualidad/sismos-en-chimbote-tres-replicas-de-magnitudes-51-38-y-39-este-domingo-y-coer-reporta-44-heridos-en-ancash-danos-en-colegios-y-hospitales-noticia-1669535)
-
-
-### catherine flood (N/A, 29/12/2025 21:05 Lima)
-
-- **Catherine Flood, jugadora de Universitario, denunció amenazas de muerte tras triunfo ante Regatas**: [Link](https://rpp.pe/multideportes/mas-deportes/universitario-catherine-flood-denuncio-amenazas-de-muerte-tras-triunfo-ante-regatas-liga-peruana-de-voley-noticia-1669548)
-- **Catherine Flood: Voleibolista de Universitario de Deportes recibe amenazas de muerte**: [Link](https://www.atv.pe/noticia/catherine-flood-voleibolista-de-universitario-de-deportes-recibe-amenazas-de-muerte/)
-- **Figura de Universitario hace grave denuncia por amenazas en su contra: "Espero que no..."**: [Link](https://libero.pe/deportes/voley/2025/12/29/figura-de-universitario-hace-grave-denuncia-amenazas-en-su-espero-2418745)
-
-
-### norwich vs (N/A, 29/12/2025 21:05 Lima)
-
-- **Norwich City 0-1 Watford: Vivaldo Semedo scores late Hornets winner**: [Link](https://www.bbc.com/sport/football/live/c14vdygyrjzt)
-- **Norwich City 0-1 Watford: Vivaldo Semedo snatches late Hornets win**: [Link](https://www.skysports.com/football/news/11095/13484447/norwich-city-0-1-watford-vivaldo-semedo-snatches-late-hornets-win)
-- **iFollow: Get Your Pass For Norwich Trip!**: [Link](https://www.watfordfc.com/news/2025/december/29/how-to-stream-norwich-watford/)
 
 
