@@ -1,3 +1,38 @@
+### mavericks - 76ers (N/A, 01/01/2026 23:46 Lima)
+
+- **Mavericks vs 76ers Preview and Injury Update: Philly comes to Dallas**: [Link](https://www.mavsmoneyball.com/mavericks-game-previews/54298/mavericks-vs-76ers-preview-start-time-tv-stream-injury-report-how-to-watch)
+- **Instant observations: Joel Embiid, Tyrese Maxey, Paul George finally figuring out their fit as Sixers nab second straight win**: [Link](https://www.phillyvoice.com/sixers-vs-mavericks-mavs-box-score-stats-highlights-tyrese-maxey-joel-embiid-vj-edgecombe-quentin-grimes-trade-caleb-martin/)
+- **Sixers takeaways: Big Three thrives, Quentin Grimes adjusting to new role, and more from win over Mavericks**: [Link](https://www.inquirer.com/sixers/sixers-takeaways-dallas-mavericks-tyrese-maxey-joel-embiid-paul-george-quentin-grimes-vj-edgecombe-cooper-flagg-20260101.html)
+
+
+### denzel washington (N/A, 01/01/2026 23:46 Lima)
+
+- **21 Years Later, Netflix Is Streaming an Action Thriller Classic Ahead of Their "Fantastic" Reboot**: [Link](https://movieweb.com/netflix-man-on-fire-denzel-washington-action-thriller-stream-january-2026/)
+- **Netflix Is About to Lose One of My Favorite Action-Thrillers Ever**: [Link](https://www.yahoo.com/entertainment/movies/articles/netflix-lose-one-favorite-action-131559404.html)
+- **Denzel Washington's Mystery Masterpiece Is Heading to a New Streamer**: [Link](https://collider.com/denzel-washington-mystery-movie-inside-man-streaming-starz-january-2026/)
+
+
+### 2 de enero 2026 es feriado (N/A, 01/01/2026 23:46 Lima)
+
+- **¿Te tocó trabajar en Año Nuevo? Conoce aquí si te corresponde pago extra y descanso**: [Link](https://www.elperuano.pe/noticia/286268-te-toco-trabajar-en-ano-nuevo-conoce-aqui-si-te-corresponde-pago-extra-y-descanso)
+- **¿El 31 de diciembre es feriado o día no laborable en Perú? Conoce lo que dice la norma vigente**: [Link](https://www.infobae.com/peru/2025/12/27/el-31-de-diciembre-es-feriado-o-dia-no-laborable-en-peru-conoce-lo-que-dice-la-norma-vigente/)
+- **Feriados nacionales del 2026: revisa el calendario completo y actualizado en Perú**: [Link](https://elcomercio.pe/respuestas/trends/feriados-nacionales-del-2026-revisa-el-calendario-completo-y-fechas-claves-en-peru-tdpe-noticia/)
+
+
+### pizza (N/A, 01/01/2026 23:46 Lima)
+
+- **India's KFC, Pizza Hut operators to merge in $934 million deal**: [Link](https://www.reuters.com/world/india/sapphire-foods-devyani-international-merge-create-fast-food-franchisee-giant-2026-01-01/)
+- **KFC operators Sapphire Foods-Devyani International's merger to create fast-food giant in India**: [Link](https://m.economictimes.com/industry/cons-products/food/kfc-operator-sapphire-foods-to-merge-with-devyani-international-to-create-fast-food-franchisee-giant-in-india/articleshow/126290468.cms)
+- **India's KFC, Pizza Hut operators to merge in $934 million deal**: [Link](https://www.cnbc.com/2026/01/01/yum-brands-india-partners-sapphire-devyani-to-merge-creating-fast-food-franchisee-giant.html)
+
+
+### pizza hut (N/A, 01/01/2026 23:46 Lima)
+
+- **Stock market today: Dow, S&P 500, Nasdaq sputter with Wall Street set to put a bow on roller-coaster 2025**: [Link](https://finance.yahoo.com/news/live/stock-market-today-dow-sp-500-nasdaq-sputter-with-wall-street-set-to-put-a-bow-on-roller-coaster-2025-143322938.html)
+- **US Stocks Slouch Into Year End With Nike and Tesla Rallying**: [Link](https://www.bloomberg.com/news/articles/2025-12-31/us-stocks-slouch-into-year-end-with-nike-and-tesla-rallying)
+- **Markets News, Dec. 31, 2025: Major Stock Indexes Close Strong Year With 4th Straight Session of Losses**: [Link](https://www.investopedia.com/dow-jones-today-12312025-11877684)
+
+
 ### warren buffett (N/A, 01/01/2026 21:07 Lima)
 
 - **The legendary Warren Buffett steps back this week and Berkshire Hathaway enters a new era**: [Link](https://apnews.com/article/warren-buffett-greg-abel-berkshire-hathaway-successor-4024a59d028e34ea54f8f5a5f7769f69)
@@ -998,40 +1033,5 @@ hat-trick scorer**: [Link](https://www.vavel.com/en/football/2025/12/27/premier-
 - **Boas memórias para terminar 2025 em alta: o onze provável do FC Porto**: [Link](https://onefootball.com/de/news/boas-memorias-para-terminar-2025-em-alta-o-onze-provavel-do-fc-porto-42156044)
 - **Porto x AVS no Campeonato Português: onde assistir ao vivo, horário e escalação**: [Link](https://www.estadao.com.br/esportes/futebol/porto-x-avs-no-campeonato-portugues-onde-assistir-ao-vivo-horario-e-escalacao-npres/)
 - **Francesco Farioli: “Este é o momento para acelerarmos a todo o gás na Liga”**: [Link](https://portocanal.sapo.pt/noticia/371254)
-
-
-### roma vs (N/A, 29/12/2025 15:30 Lima)
-
-- **Surprise omission from Roma’s squad to face Genoa: chance for Ferguson?**: [Link](https://football-italia.net/surprise-omission-roma-genoa-chance-ferguson/)
-- **De Rossi has 'no desire for revenge' ahead of Roma return**: [Link](https://www.beinsports.com/en-us/soccer/serie-a/articles/de-rossi-has-no-desire-for-revenge-ahead-of-roma-return-2025-12-28)
-- **Roma v Genoa: the official line-ups**: [Link](https://www.asroma.com/en/news/74569/roma-v-genoa-the-official-line-ups)
-
-
-### roma - genoa (N/A, 29/12/2025 15:30 Lima)
-
-- **Serie A, in campo Roma-Genoa: Hermoso e Vitinha schierati dal primo minuto 📍 Stadio Olimpico Segui tutti gli aggiornamenti in tempo reale qui 👉🏻 https://www.rainews.it/maratona/2025/12/calcio-serie-a-giornata-17-risultati-cronaca-aggiornamenti-diretta-hi**: [Link](https://www.facebook.com/RaiNews/photos/serie-a-in-campo-roma-genoa-hermoso-e-vitinha-schierati-dal-primo-minuto-stadio-/1348746223958561/)
-- **Calcio Live News: tutte le notizie di giornata in diretta**: [Link](https://www.diretta.it/news/calcio-live-de-rossi-torna-all-olimpico-da-avversario-gasp-si-affida-a-ferguson-davanti/dEhNDbpp/)
-- **Roma-Genoa, queste sono le formazioni ufficiali**: [Link](https://www.asroma.com/it/notizie/74568/roma-genoa-queste-sono-le-formazioni-ufficiali)
-
-
-### mali vs (N/A, 29/12/2025 15:30 Lima)
-
-- **Yves Bissouma's Mali left frustrated in Africa Cup of Nations opener**: [Link](https://www.tottenhamhotspur.com/news/2025/december/yves-bissoumas-mali-left-frustrated-in-africa-cup-of-nations-opener/)
-- **Ex-Premier League striker lands on his neck while celebrating Afcon goal**: [Link](https://www.independent.co.uk/bulletin/sport/patson-daka-premier-league-afcon-celebration-b2889109.html)
-- **The Atlas Lions Stand Alone at the Top of Group A After Mali–Zambia Draw**: [Link](https://www.moroccoworldnews.com/2025/12/272699/the-atlas-lions-stand-alone-at-the-top-of-group-a-after-mali-zambia-draw/)
-
-
-### championship (N/A, 29/12/2025 15:30 Lima)
-
-- **How Illinois State and Montana State Built Championship FCS Rosters**: [Link](https://www.si.com/college/fcs/big-sky/how-illinois-state-and-montana-state-built-championship-fcs-football-rosters)
-- **How to Watch: Bobcat football plays for a national title in Nashville Jan. 5**: [Link](https://www.explorebigsky.com/how-to-watch-bobcat-football-plays-for-a-national-title-in-nashville-jan-5/167615)
-- **Redbird Nation plans watch parties to cheer ISU’s national title quest**: [Link](https://www.25newsnow.com/2025/12/29/redbird-nation-plans-watch-parties-cheer-isus-national-title-quest/)
-
-
-### horóscopo chino 2026 caballo (N/A, 29/12/2025 15:30 Lima)
-
-- **Año Nuevo Chino: por qué 2026 estará regido por el Caballo de Fuego**: [Link](https://www.perfil.com/noticias/sociedad/ano-nuevo-chino-2026-cuando-comienza-y-que-significa-el-caballo-de-fuego.phtml)
-- **2026: ¿el año del fuego?, por Ramiro Escobar**: [Link](https://larepublica.pe/opinion/2025/12/28/2026-el-ano-del-fuego-por-ramiro-escobar-hnews-1538516)
-- **¿Cuál es el signo más afortunado del horóscopo chino en 2026? | tdpe | RESPUESTAS**: [Link](https://elcomercio.pe/respuestas/que/cual-es-el-signo-mas-afortunado-del-horoscopo-chino-en-2026-tdpe-noticia/)
 
 
