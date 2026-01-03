@@ -1,3 +1,73 @@
+### dolar (N/A, 03/01/2026 03:33 Lima)
+
+- **Precio del dólar en Perú hoy, jueves 1 de enero: cuál es el tipo de cambio**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-2026-a-cuanto-esta-el-tipo-de-cambio-este-jueves-1-de-enero-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
+- **Precio del dólar al inicio del año: ¿A cuánto se cotiza el tipo de cambio hoy 2 de enero?**: [Link](https://www.infobae.com/peru/2026/01/02/valor-de-apertura-del-dolar-en-peru-este-2-de-enero-de-usd-a-pen/)
+- **Tipo de cambio: ¿cómo cerró el año el billete verde y cuál fue su valor en el inicio del 2026?**: [Link](https://cuantoestaeldolar.pe/noticias/tipo-de-cambio-como-cerro-el-ano-el-billete-verde-y-cual-fue-su-valor-en-el-inicio-del-2026/)
+
+
+### trump (N/A, 03/01/2026 03:33 Lima)
+
+- **Exclusive | As Signs of Aging Emerge, Trump Responds With Defiance**: [Link](https://www.wsj.com/us-news/as-signs-of-aging-emerge-trump-responds-with-defiance-769c5dcd)
+- **Trump says he takes higher daily dose of aspirin than doctors recommend**: [Link](https://www.bbc.com/news/articles/c701z7g0ppro)
+- **Trump says he got a CT scan instead of an MRI**: [Link](https://digital.abcaudio.com/news/trump-says-he-got-ct-scan-instead-mri)
+
+
+### fuerte tiuna (N/A, 03/01/2026 03:33 Lima)
+
+- **Live updates: Multiple explosions rock Venezuelan capital Caracas**: [Link](https://www.cnn.com/world/live-news/venezuela-explosions-caracas-intl-hnk-01-03-26)
+- **Venezuela says it rejects "military aggression" by the US**: [Link](https://www.reuters.com/world/americas/venezuela-says-it-rejects-military-aggression-by-us-2026-01-03/)
+- **Explosions and low-flying aircraft reported in Venezuelan capital Caracas – live**: [Link](https://www.theguardian.com/world/live/2026/jan/03/caracas-explosions-venezuela-maduro-latest-news-updates-live)
+
+
+### el comercio (N/A, 03/01/2026 03:33 Lima)
+
+- **Proinversión presentará en 60 días un plan de acción para reorganizar Petroperú**: [Link](https://elperuano.pe/noticia/286328-proinversion-presentara-en-60-dias-un-plan-de-accion-para-reorganizar-petroperu)
+- **Premier Ernesto Álvarez anuncia el fin de las gollerias en Petroperú**: [Link](https://peru21.pe/economia/premier-ernesto-alvarez-anuncia-el-fin-de-las-gollerias-en-petroperu/)
+- **Exministro de Energía y Minas: La reorganización “es una forma de resolver el problema de Petroperú acabando con Petroperú”**: [Link](https://rpp.pe/politica/gobierno/exministro-de-energia-y-minas-la-reorganizacion-es-una-forma-de-resolver-el-problema-de-petroperu-acabando-con-petroperu-noticia-1670012)
+
+
+### venezuela hoy (N/A, 03/01/2026 03:33 Lima)
+
+- **"El olor a pólvora era fuerte": testigos hablan de la presunta explosión que destruyó una estructura en la Alta Guajira de Venezuela**: [Link](https://www.bbc.com/mundo/articles/ce8edkewprko)
+- **Maduro dice que hablará "en unos días” sobre el presunto ataque de la CIA en Venezuela**: [Link](https://cnnespanol.cnn.com/2026/01/01/venezuela/maduro-ataque-cia-venezuela-orix)
+- **Nicolás Maduro dice estar listo "para negociar" con EE. UU. sobre narcotráfico y petróleo**: [Link](https://rpp.pe/mundo/actualidad/nicolas-maduro-dice-estar-listo-para-negociar-con-ee-uu-sobre-narcotrafico-y-petroleo-noticia-1670036)
+
+
+### bbc (N/A, 03/01/2026 03:33 Lima)
+
+- **BBC settles with 7 October survivors for filming home ‘without permission’**: [Link](https://www.theguardian.com/media/2026/jan/02/bbc-settles-with-7-october-survivors-for-filming-home-without-permission)
+- **BBC settles with October 7 attack survivors after filming home ‘without permission’**: [Link](https://www.timesofisrael.com/liveblog_entry/bbc-settles-with-october-7-attack-survivors-after-filming-home-without-permission/)
+- **BBC apologises after Jeremy Bowen entered Oct 7 survivors’ home without permission**: [Link](https://www.telegraph.co.uk/news/2026/01/02/bbc-apology-oct7-survivors-filmed-home-jeremy-bowen/)
+
+
+### noticias (N/A, 03/01/2026 03:33 Lima)
+
+- **viernes 2 de enero**: [Link](https://latinanoticias.pe/noticias/latina-noticias-edicion-mediodia-encuesta-de-hoy-jueves-2-de-enero_20260102/)
+- **¿Por qué Fluminense rechazó la primera oferta del Bologna por Freytes y por qué Alianza tendrá un ingreso millonario si se da el fichaje?**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/alianza-lima-por-que-fluminense-rechazo-la-primera-oferta-del-bologna-por-juan-pablo-freytes-y-por-que-alianza-tendra-un-ingreso-millonario-si-se-da-el-fichaje-tlcnota-noticia/)
+- **Confirmado: Juan Pablo Freytes da el batacazo y firmará por campeón de Serie A, anuncian en Italia**: [Link](https://libero.pe/futbol-internacional/2025/12/28/juan-pablo-freytes-da-batacazo-firmara-campeon-de-serie-anuncian-en-italia-alianza-lima-fichajes-2026-1690108)
+
+
+### x (N/A, 03/01/2026 03:33 Lima)
+
+- **Woman felt 'dehumanised' after Musk's Grok AI used to digitally remove her clothes**: [Link](https://www.bbc.com/news/articles/c98p1r4e6m8o)
+- **Elon Musk’s Pornography Machine**: [Link](https://www.theatlantic.com/technology/2026/01/elon-musks-pornography-machine/685482/)
+- **Musk's xAI faces backlash after Grok generates sexualized images of children on X**: [Link](https://www.cnbc.com/2026/01/02/musk-grok-ai-bot-safeguard-sexualized-images-children.html)
+
+
+### cnn (N/A, 03/01/2026 03:33 Lima)
+
+- **Champagne sparklers and a fast-spreading inferno: How a deadly Swiss bar tragedy unfolded**: [Link](https://www.cnn.com/2026/01/02/europe/how-swiss-club-fire-unfolded-vis-intl)
+- **Swiss bar fire was like 'hell': Survivors recount ski resort blaze**: [Link](https://www.nbcnews.com/world/europe/swiss-bar-fire-survivors-recount-ski-resort-blaze-rcna251894)
+- **How one Swiss hospital coped with the injured from the Alpine bar fire**: [Link](https://apnews.com/article/switzerland-crans-montana-bar-fire-hospital-973802e916bd906bdfb947de46400c60)
+
+
+### venezuela (N/A, 03/01/2026 03:33 Lima)
+
+- **Reportan explosiones en Caracas, Venezuela, en vivo: daños, reacciones y más**: [Link](https://cnnespanol.cnn.com/venezuela/live-news/explosiones-caracas-venezuela-en-vivo-orix)
+- **Tensión en Caracas ante posible ataque estadounidense**: [Link](https://www.dw.com/es/tensi%C3%B3n-en-caracas-ante-posible-ataque-estadounidense/live-74484400)
+- **Reportan explosiones y sobrevuelo de aviones en Caracas y otras partes del país y el gobierno de Maduro denuncia una "agresión militar" de EE.UU.**: [Link](https://www.bbc.com/mundo/articles/cvgn5rk0k1wo)
+
+
 ### como vs (N/A, 02/01/2026 23:36 Lima)
 
 - **Preview: Como vs Udinese - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/como/preview/como-vs-udinese-prediction-team-news-lineups_588918.html)
@@ -961,73 +1031,5 @@ hat-trick scorer**: [Link](https://www.vavel.com/en/football/2025/12/27/premier-
 - **Tyrese Maxey, Sixers face Ja Morant, Grizzlies in FINAL game of 2025**: [Link](https://bvmsports.com/2025/12/30/tyrese-maxey-sixers-face-ja-morant-grizzlies-in-final-game-of-2025/)
 - **bet365 bonus code NYPBET: bet $5, get $150 in bonus bets for 76ers vs. Grizzlies**: [Link](https://nypost.com/2025/12/30/betting/bet365-bonus-code-nypbet-bet-5-get-150-in-bonus-bets-for-76ers-vs-grizzlies/)
 - **Jokic out at least four weeks with knee injury**: [Link](https://www.nbcsports.com/watch/nba/denver-nuggets-nikola-jokic-will-miss-at-least-four-weeks-with-knee-injury)
-
-
-### antamina (N/A, 30/12/2025 21:05 Lima)
-
-- **Antamina lanza programa de prácticas para jóvenes talentos**: [Link](https://www.rumbominero.com/portada2/antamina-programa-de-practicas-para-jovenes/)
-- **Programa de prácticas en Antamina 2026: Antaminando el futuro**: [Link](https://proactivo.com.pe/programa-de-practicas-en-antamina-2026-antaminando-el-futuro/)
-
-
-### tatiana schlossberg (N/A, 30/12/2025 21:05 Lima)
-
-- **Tatiana Schlossberg, granddaughter of John F Kennedy, dies aged 35**: [Link](https://www.bbc.com/news/articles/c338ne3relzo)
-- **Tatiana Schlossberg, Writer and Daughter of Caroline Kennedy, Dead at 35**: [Link](https://people.com/tatiana-schlossberg-dead-11855816)
-- **Tatiana Schlossberg, environmental journalist and JFK’s granddaughter, dies at 35 after terminal cancer diagnosis**: [Link](https://www.cnn.com/2025/12/30/politics/tatiana-schlossberg-dead)
-
-
-### rodrigo ureña (N/A, 30/12/2025 21:05 Lima)
-
-- **Anuncio oficial y destino a Millonarios: Rodrigo Ureña se desvinculó de Universitario**: [Link](https://depor.com/futbol-peruano/descentralizado/rodrigo-urena-quedo-libre-para-ir-a-millonarios-acuerdo-economico-con-universitario-y-los-numeros-que-deja-tras-su-salida-noticia/)
-- **Universitario anuncia la salida de Rodrigo Ureña: “Gracias eternas”**: [Link](https://trome.com/deportes/futbol-peruano/universitario-anuncia-la-salida-de-rodrigo-urena-gracias-eternas-noticia/)
-- **“Gracias eternas”: Universitario hace oficial salida de Rodrigo Ureña**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/universitario-hace-oficial-salida-de-rodrigo-urena-a-millonarios-de-colombia-noticia/)
-
-
-### feliz año 2026 (N/A, 30/12/2025 21:05 Lima)
-
-- **◉ 50 felicitaciones cortas y bonitas de ¡Feliz Año Nuevo 2026! para enviar en WhatsApp el 31 de diciembre en México**: [Link](https://gestion.pe/mix/respuestas/50-felicitaciones-cortas-y-bonitas-de-feliz-ano-nuevo-2026-para-compartir-en-whatsapp-el-31-de-diciembre-en-mexico-nnda-nnrt-noticia/)
-- **100 mensajes originales de ¡Feliz Año Nuevo 2026! para compartir en redes sociales en USA, México y España**: [Link](https://depor.com/usa/local-usa/100-mensajes-originales-de-feliz-ano-nuevo-2026-para-compartir-en-redes-sociales-en-usa-mexico-espana-nnda-nnrt-noticia/)
-- **25 tarjetas de Año Nuevo 2026 para clientes, amigos y familia en España**: [Link](https://elcomercio.pe/mag/respuestas/25-tarjetas-de-ano-nuevo-2026-para-clientes-amigos-y-familia-en-espana-nnda-nnrt-noticia/)
-
-
-### chelsea versus (N/A, 30/12/2025 21:05 Lima)
-
-- **Enzo Fernandez aprovechó la asistencia de Garnacho e hizo un golazo en Chelsea vs. Bournemouth**: [Link](https://www.espn.com.pe/futbol/inglaterra/nota/_/id/16133147/video-golazo-de-enzo-fernandez-para-que-chelsea-le-de-vuelta-el-partido-a-bournemouth)
-- **Partido de Chelsea-Bournemouth EN VIVO ONLINE: alineaciones, hora y TV**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/chelsea-vs-bournemouth-en-vivo-hoy-gratis-via-futbol-libre-tv-espn-disney-plus-horarios-canales-tv-y-donde-ver-partido-por-premier-league-video-noticia/)
-- **Chelsea y Bournemouth empataron 2-2 en Stamford Bridge**: [Link](https://www.elpueblo.pe/deportes/chelsea-y-bournemouth-empataron-2-2-en-stamford-bridge/188462/)
-
-
-### aumento de pensiones onp 2026 (N/A, 30/12/2025 21:05 Lima)
-
-- **Gobierno anuncia nueva pensión mínima de 1.000 soles para jubilados a partir del 1 de enero de 2026: quiénes serán los beneficiados**: [Link](https://www.infobae.com/peru/2025/12/30/gobierno-anuncia-nueva-pension-minima-de-1000-soles-para-jubilados-a-partir-del-1-de-enero-de-2026-quienes-seran-los-beneficiados/)
-- **MEF autoriza aumento a pensiones del régimen 19990: infórmate si te corresponde**: [Link](https://www.elperuano.pe/noticia/286116-mef-autoriza-aumento-a-pensiones-del-regimen-19990-informate-si-te-corresponde)
-- **Gobierno fija pensión mínima de S/1.000 para jubilados de la ONP desde enero de 2026**: [Link](https://caretas.pe/sociedad/gobierno-fija-pension-minima-de-s-1-000-para-jubilados-de-la-onp-desde-enero-de-2026/)
-
-
-### manchester united (N/A, 30/12/2025 21:05 Lima)
-
-- **Pronósticos Manchester United vs Wolves: cuota atractiva por goles de ambos equipos**: [Link](https://depor.com/apuestas-deportivas/manchester-united-vs-wolves-pronosticos-apuestas-cuotas-30-12-2025/)
-- **Premier League: Wolverhampton busca cortar su racha negativa ante Manchester United**: [Link](https://rpp.pe/futbol/ligas-internacionales/premier-league-wolverhampton-busca-cortar-su-racha-negativa-ante-manchester-united-noticia-1669573)
-- **Sorpresa: Manchester United igualó 1-1 ante Wolverhampton**: [Link](https://ovacion.pe/noticias/futbol-internacional/sorpresa-manchester-united-igualo-1-1-ante-wolverhampton)
-
-
-### tarjeta roja (N/A, 30/12/2025 21:05 Lima)
-
-- **Tarjeta roja: Ronald Araujo**: [Link](https://cronicaglobal.elespanol.com/culemania/tarjetas-jornada/20251228/tarjeta-roja-ronald-araujo/1003742719518_0.html)
-- **Insólito: las expulsiones más rápidas en la historia del fútbol**: [Link](https://www.ole.com.ar/futbol-internacional/insolito-las-expulsiones-mas-rapidas-en-la-historia-del-futbol_0_FXPuwjtSt2.html)
-
-
-### motherwell - celtic f. c. (N/A, 30/12/2025 21:05 Lima)
-
-- **Celtic Handed Fir Park Reality Check | Player Ratings and Reaction**: [Link](https://celtsarehere.substack.com/p/celtic-handed-fir-park-reality-check)
-- **Auston Trusty on new-found momentum, urges teammates to play 'The Celtic Way'**: [Link](https://www.celticway.co.uk/interviews/25731093.auston-trusty-urges-teammates-play-the-celtic-way/)
-- **Motherwell 2-0 Celtic**: [Link](https://www.motherwellfc.co.uk/2025/12/30/motherwell-2-0-celtic-2/)
-
-
-### everton (N/A, 30/12/2025 15:29 Lima)
-
-- **Wrexham Association Football Club**: [Link](https://www.wrexhamafc.co.uk/news/2025/december/30/fa-cup-hospitality-limited-spaces-remain-for-nottingham-forest/)
-- **Away Fan Guide: Nottingham Forest**: [Link](https://www.evertonfc.com/news/2025/december/29/away-fan-guide-nottingham-forest/)
-- **Inside Nottingham Forest’s £130MILLION new stadium upgrade set to eclipse Chelsea’s Stamford Bridge**: [Link](https://www.thesun.co.uk/sport/36994685/nottingham-forest-stadium-upgrade-eclipses-chelsea/)
 
 
