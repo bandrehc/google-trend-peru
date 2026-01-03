@@ -1,3 +1,31 @@
+### como vs (N/A, 02/01/2026 23:36 Lima)
+
+- **Preview: Como vs Udinese - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/como/preview/como-vs-udinese-prediction-team-news-lineups_588918.html)
+- **Como-Udinese: Match Preview**: [Link](https://comofootball.com/en/como-udinese-match-preview/)
+- **Tickets for Como vs Udinese, Serie A 2025/2026, buy seats for the match at Giuseppe Sinigaglia stadium in Como**: [Link](https://karlobag.eu/en/tickets/football/tickets-for-como-vs-udinese-serie-a-20252026-buy-seats-for-the-match-at-giuseppe-sinigaglia-stadium-in-como-jjo9a)
+
+
+### caballo horoscopo chino (N/A, 02/01/2026 23:36 Lima)
+
+- **Horóscopo Chino 2026: ¿Cuál es tu signo y quiénes tendrán más suerte el próximo año?**: [Link](https://as.com/us/tikitakas/horoscopo-chino-2026-cual-es-tu-signo-y-quienes-tendran-mas-suerte-el-proximo-ano-f202512-n/)
+- **Horóscopo chino 2026: Ludovica Squirru predice cómo le irá a cada signo en el año del Caballo de Fuego**: [Link](https://www.revistagente.com/horoscopo/horoscopo-chino-2026-ludovica-squirru-predice-como-le-ira-a-cada-signo-en-el-ano-del-caballo-de-fuego/)
+- **Cambios difíciles en el Año del Caballo: esto es lo que advierte un astrólogo sobre el horóscopo chino 2026**: [Link](https://www.colombia.com/horoscopo/esoterismo/ano-del-caballo-astrologo-daniel-daza-revela-cambios-dificiles-que-marcaran-este-ciclo-del-horoscopo-chino-557242)
+
+
+### lakers - grizzlies (N/A, 02/01/2026 23:36 Lima)
+
+- **JJ Redick drops major Dalton Knecht rotation change for Lakers**: [Link](https://basketnews.com/news-237970-jj-redick-drops-major-dalton-knecht-rotation-change-for-lakers.html)
+- **Is Luka Doncic playing tonight vs the Memphis Grizzlies? Latest update on the Los Angeles Lakers star's i**: [Link](https://timesofindia.indiatimes.com/sports/nba/top-stories/is-luka-doncic-playing-tonight-vs-the-memphis-grizzlies-latest-update-on-the-los-angeles-lakers-stars-injury-report-january-2-2026/articleshow/126315472.cms)
+- **Lakers vs Grizzlies! ANOTHER Injury Surprise Plus Keys To Victory**: [Link](https://bvmsports.com/2026/01/02/lakers-vs-grizzlies-another-injury-surprise-plus-keys-to-victory/)
+
+
+### warriors - thunder (N/A, 02/01/2026 23:36 Lima)
+
+- **Warriors without Curry, Butler, Green vs. Thunder**: [Link](https://www.espn.com/nba/story/_/id/47484011/sources-warriors-curry-butler-green-vs-thunder)
+- **Warriors testing NBA rules by sitting stars for high-profile game**: [Link](https://www.yardbarker.com/nba/articles/warriors_testing_nba_rules_by_sitting_stars_for_high_profile_game/s1_13132_43277588)
+- **Jimmy Butler is now questionable tonight with an …**: [Link](https://sports.yahoo.com/articles/jimmy-butler-now-questionable-tonight-194357778.html)
+
+
 ### ticketmaster (N/A, 02/01/2026 21:00 Lima)
 
 - **Ticketmaster Accused Of Monopoly Tactics By Ex-Startup**: [Link](https://www.law360.com/articles/2426008/ticketmaster-accused-of-monopoly-tactics-by-ex-startup)
@@ -1001,33 +1029,5 @@ hat-trick scorer**: [Link](https://www.vavel.com/en/football/2025/12/27/premier-
 - **Wrexham Association Football Club**: [Link](https://www.wrexhamafc.co.uk/news/2025/december/30/fa-cup-hospitality-limited-spaces-remain-for-nottingham-forest/)
 - **Away Fan Guide: Nottingham Forest**: [Link](https://www.evertonfc.com/news/2025/december/29/away-fan-guide-nottingham-forest/)
 - **Inside Nottingham Forest’s £130MILLION new stadium upgrade set to eclipse Chelsea’s Stamford Bridge**: [Link](https://www.thesun.co.uk/sport/36994685/nottingham-forest-stadium-upgrade-eclipses-chelsea/)
-
-
-### newcastle vs (N/A, 30/12/2025 15:29 Lima)
-
-- **Premier League: Burnley recibirá a Newcastle United por la fecha 19**: [Link](https://rpp.pe/futbol/ligas-internacionales/premier-league-burnley-recibira-a-newcastle-united-por-la-fecha-19-noticia-1669566)
-- **Oliver Sonne recibe tajante noticia de Burnley de cara a su partido ante Everton por Premier League**: [Link](https://libero.pe/futbol-internacional/2025/12/27/oliver-sonne-recibe-tajante-noticia-de-burnley-de-cara-su-partido-everton-premier-league-2198259)
-- **Eddie Howe must stick by ‘woeful’ Newcastle star vs Burnley, it could save him his job**: [Link](https://www.footballinsider247.com/eddie-howe-must-stick-by-woeful-newcastle-star-vs-burnley-it-could-save-him-his-job/)
-
-
-### semenyo (N/A, 30/12/2025 15:29 Lima)
-
-- **Manchester City step up chase for Antoine Semenyo**: [Link](https://www.thetimes.com/sport/football/article/antoine-semenyo-manchester-city-transfer-news-bournemouth-x6tplck9w)
-- **Jermaine Pennant says Liverpool have been ‘really stupid’ and missed golden opportunity to sign a real star**: [Link](https://www.rousingthekop.com/2025/12/30/jermaine-pennant-says-liverpool-have-been-really-stupid-and-missed-golden-opportunity-to-sign-a-real-star/)
-- **Liverpool transfer news: January twist hands Reds “opportunity” to beat Man City to Antoine Semenyo**: [Link](https://www.sportsmole.co.uk/football/liverpool/transfer-talk/news/january-twist-hands-reds-opportunity-to-beat-man-city-to-antoine-semenyo_588706.html)
-
-
-### rangers vs (N/A, 30/12/2025 15:29 Lima)
-
-- **Rangers and Celtic aren't the forces of the past as Alex Gogic confident of another St Mirren scalp**: [Link](https://www.dailyrecord.co.uk/sport/football/football-news/rangers-celtic-arent-forces-past-36470889)
-- **Team News: Rohl Makes Two Changes For St Mirren At Ibrox**: [Link](https://www.rangers.co.uk/article/team-news-rohl-makes-two-changes-for-st-mirren-at-ibrox/o0QmUdVNcX2I3vTtJjtxz)
-- **Stephen Robinson will make changes for St Mirren’s match at Rangers**: [Link](https://news.stv.tv/sport/football/stephen-robinson-will-make-changes-for-st-mirrens-match-at-rangers)
-
-
-### senegal (N/A, 30/12/2025 15:29 Lima)
-
-- **(VIDEO) Senegal y RD Congo se repartieron los puntos en la Copa de África**: [Link](https://ovacion.pe/noticias/futbol-internacional/video-senegal-rd-congo-se-repartieron-puntos-copa-africa)
-- **Nigeria ganó y accedió a octavos de la Copa de África**: [Link](https://ovacion.pe/noticias/futbol-internacional/nigeria-gano-accedio-octavos-copa-africa)
-- **Partido inaugural de la AFCON 2025 entre Nigeria y Tanzania**: [Link](https://www.ucvradio.pe/mas-actualidad/partido-inaugural-de-la-afcon-2025-entre-nigeria-y-tanzania/84016/)
 
 
