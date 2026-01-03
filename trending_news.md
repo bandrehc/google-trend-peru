@@ -1,3 +1,73 @@
+### juventus - lecce (N/A, 03/01/2026 11:31 Lima)
+
+- **Juve-Lecce, diretta: formazioni ufficiali e risultato in tempo reale. La scelta in attacco di Spalletti e due esclusi**: [Link](https://www.tuttosport.com/news/calcio/serie-a/juventus/2026/01/03-145596190/juve-lecce_diretta_formazioni_e_risultato_in_tempo_reale_in_campo_anche_la_next_gen)
+- **Serie A | Le formazioni ufficiali di Juventus-Lecce**: [Link](https://www.juventus.com/it/news/articoli/serie-a-2025-2026-juventus-lecce-formazioni-ufficiali)
+- **Spalletti risponde per le rime a Conte: "Alla Juve ho trovato le barriere che si muovono, a Napoli...**: [Link](https://www.milannews.it/news/spalletti-risponde-per-le-rime-a-conte-alla-juve-ho-trovato-le-barriere-che-si-muovono-a-napoli-erano-ferme-siamo-avanti-da-un-punto-di-vista-struttur-602740)
+
+
+### senegal vs (N/A, 03/01/2026 11:31 Lima)
+
+- **Senegal vs Sudan live updates: AFCON 2025 round of 16 game team news, predictions and more**: [Link](https://www.nytimes.com/athletic/live-blogs/senegal-vs-sudan-live-updates-afcon-2025-score-result/zL1jnERbAvgU/)
+- **Senegal to Face Sudan in First AFCON Playoff as Mali Meet Tunisia Later**: [Link](https://www.dawan.africa/news/senegal-to-face-sudan-in-first-afcon-playoff-as-mali-meet-tunisia-later)
+- **Senegalese federation comments on reports of tensions between coach Pape Thiaw and federation**: [Link](https://www.panafricafootball.com/post/senegal-fa-tensions-pape-thiaw/)
+
+
+### olympiacos vs (N/A, 03/01/2026 11:31 Lima)
+
+- **Olympiacos vs OFI Crete Prediction and Betting Tips | January 3rd 2026**: [Link](https://www.sportskeeda.com/football/olympiacos-vs-ofi-crete-prediction-betting-tips-january-3rd-2026)
+- **Ataman's criticism of the referees doesn't make much sense – here's why**: [Link](https://basketnews.com/news-237995-why-ergin-atamans-referee-criticism-doesnt-make-sense.html)
+- **Panathinaikos BC AKTOR – Olympiacos BC 82-87**: [Link](https://www.paobc.gr/en/panathinaikos-aktor-olympiakos-82-87/)
+
+
+### afp retiro (N/A, 03/01/2026 11:31 Lima)
+
+- **Retiro de AFP 2026: Link para solicitar hasta 4 UIT con nuevo monto de S/22.000**: [Link](https://www.infobae.com/peru/2026/01/02/retiro-de-afp-2026-link-para-solicitar-hasta-4-uit-con-el-nuevo-monto-de-s22000/)
+- **¡Atención afiliados! Retiro-AFP 2025: último día para realizar el trámite online vía LINK oficial**: [Link](https://elcomercio.pe/respuestas/tramites/ultima-oportunidad-solicita-tu-retiro-afp-hoy-link-oficial-y-plazo-para-realizar-el-tramite-online-tdpe-noticia/)
+- **Retiro de AFP 2026: ¿Quiénes cobran en los primeros días de enero?**: [Link](https://libero.pe/tiempoextra/2025/12/31/retiro-de-afp-en-2026-quienes-reciben-su-pago-primeros-dias-de-enero-2689095)
+
+
+### monaco vs lyon (N/A, 03/01/2026 11:31 Lima)
+
+- **Ligue 1: Pocognoli previews AS Monaco’s key clash with Lyon**: [Link](https://www.monaco-tribune.com/en/2026/01/ligue-1-pocognoli-previews-as-monacos-key-clash-with-lyon/)
+- **Monaco v Lyon: How to watch, live streaming, kick-off time & head-to-head record**: [Link](https://news.bet365.com/en-gb/article/monaco-v-lyon-how-to-watch/2026010213103131789)
+- **Monaco v Lyon Match Stats**: [Link](https://andysbetclub.co.uk/football-fixtures/monaco-v-lyon/03012026/9f42b924-aeb3-484f-9970-51051d096cf3/)
+
+
+### senegal - sudán (N/A, 03/01/2026 11:31 Lima)
+
+- **Senegal - Sudán, en directo: Copa África, hoy en vivo**: [Link](https://as.com/futbol/internacional/senegal-sudan-en-directo-copa-africa-hoy-en-vivo-f202601-n/)
+- **Informe desde Rabat: Senegal y Sudán, primer partido de octavos de la Copa Africana de Naciones**: [Link](https://www.france24.com/es/video/20260102-informe-desde-rabat-senegal-y-sud%C3%A1n-primer-partido-de-octavos-de-la-copa-africana-de-naciones)
+- **Pronóstico Senegal vs Sudán – Copa Africana de Naciones (03/01/2026)**: [Link](https://www.hispanosnba.com/futbol/pronostico-senegal-vs-sudan-03-01-2026/)
+
+
+### mónaco - lyon (N/A, 03/01/2026 11:31 Lima)
+
+- **Monaco - OL : Satriano sur le banc, Mata retrouve le 11**: [Link](https://www.olympique-et-lyonnais.com/monaco-ol-satriano-sur-le-banc-mata-retrouve-le-11,387807.html)
+- **Ligue 1 : Sébastien Pocognoli évoque le choc crucial contre Lyon**: [Link](https://www.monaco-tribune.com/2026/01/ligue-1-sebastien-pocognoli-evoque-le-choc-crucial-contre-lyon/)
+- **Le groupe monégasque : avec Touré et Nibombé**: [Link](https://www.ladiagonale.net/index.php/2026/01/03/le-groupe-monegasque-avec-toure-et-nibombe/)
+
+
+### monaco vs (N/A, 03/01/2026 11:31 Lima)
+
+- **Liga de Francia: Mónaco se enfrenta ante la visita Olympique Lyon por la fecha 17**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-de-francia-monaco-se-enfrenta-ante-la-visita-olympique-lyon-por-la-fecha-17-noticia-1669960)
+- **Ligue 1: Pocognoli previews AS Monaco’s key clash with Lyon**: [Link](https://www.monaco-tribune.com/en/2026/01/ligue-1-pocognoli-previews-as-monacos-key-clash-with-lyon/)
+- **Monaco v Lyon: How to watch, live streaming, kick-off time & head-to-head record**: [Link](https://news.bet365.com/en-gb/article/monaco-v-lyon-how-to-watch/2026010213103131789)
+
+
+### sassuolo vs (N/A, 03/01/2026 11:31 Lima)
+
+- **Sassuolo vs. Parma (3 de Ene., 2026) Resultados en Vivo**: [Link](https://www.espn.com.pe/futbol/partido/_/juegoId/736958)
+- **Serie A: Sassuolo recibirá a Parma por la fecha 18**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-sassuolo-recibira-a-parma-por-la-fecha-18-noticia-1669949)
+- **¡En vivo por ANTV! Jay espera el sólido muro de Idges para contrarrestar el ataque del Parma**: [Link](https://www.ucvradio.pe/mas-actualidad/en-vivo-por-antv-jay-espera-el-solido-muro-de-idges-para-contrarrestar-el-ataque-del-parma/91425/)
+
+
+### eclipse solar anillo de fuego (N/A, 03/01/2026 11:31 Lima)
+
+- **Eclipse solar del siglo en 2026: fecha, hora y por qué es considerado extremo este nuevo ‘anillo de fuego’**: [Link](https://www.infobae.com/peru/2026/01/02/eclipse-solar-del-siglo-en-2026-fecha-hora-y-por-que-es-considerado-extremo-este-nuevo-anillo-de-fuego/)
+- **En 2026, el primero de tres eclipses solares en España y el vuelo inaugural del Miura 5**: [Link](https://www.jornada.com.mx/2026/01/02/ciencias/a06n1cie)
+- **Eclipses totales de Sol y Luna protagonizarán el calendario astronómico**: [Link](https://primicia.com.ve/mas/ciencia-y-tecnologia/eclipses-totales-de-sol-y-luna-protagonizaran-el-calendario-astronomico/)
+
+
 ### dea (N/A, 03/01/2026 07:51 Lima)
 
 - **Avoiding the Telemedicine Cliff: Why the DEA Extended Prescribing Rules Through 2026**: [Link](https://hitconsultant.net/2026/01/02/avoiding-the-telemedicine-cliff-why-the-dea-extended-prescribing-rules-through-2026/)
@@ -964,72 +1034,5 @@ hat-trick scorer**: [Link](https://www.vavel.com/en/football/2025/12/27/premier-
 - **Preview: NEOM SC vs Al-Ittihad - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/al-ittihad/preview/neom-sc-vs-al-ittihad-prediction-team-news-lineups_588704.html)
 - **Conceição Announces Al-Ittihad Squad for Match Against NEOM in the League**: [Link](https://www.ysscores.com/en/news/13881580/Concei%C3%A7%C3%A3o-Announces-Al-Ittihad-Squad-for-Match-Against-NEOM-in-the-League)
 - **Neom SC vs Al Ittihad Preview, prediction, lineups, betting tips & odds | Saudi Pro League 2025-26**: [Link](https://khelnow.com/football/world-football-neom-sc-vs-al-ittihad-preview-202512)
-
-
-### año nuevo chino 2026 (N/A, 31/12/2025 11:32 Lima)
-
-- **Predicciones del horóscopo chino para 2026: cómo te irá en el Año del Caballo de Fuego**: [Link](https://elcomercio.pe/respuestas/que/predicciones-del-horoscopo-chino-2026-en-el-ano-del-caballo-de-fuego-que-animal-tarera-mejor-suerte-tdpe-noticia/)
-- **Horóscopo chino 2026: así será el Año del Caballo de Fuego para cada signo | Año Nuevo | ACTUALIDAD**: [Link](https://trome.com/actualidad/horoscopo-chino-2026-asi-sera-el-ano-del-caballo-de-fuego-para-cada-signo-ano-nuevo-noticia/)
-- **Los productos con temática ecuestre vuelan de las estanterías antes del Año Nuevo chino**: [Link](https://espanol.cgtn.com/news/2025-12-29/2005457012937510914/index.html)
-
-
-### nombre del año 2026 (N/A, 31/12/2025 11:32 Lima)
-
-- **¿Cuál será el nombre oficial del año 2026 en Perú?**: [Link](https://elcomercio.pe/respuestas/tramites/cual-sera-el-nombre-oficial-del-ano-2026-en-peru-tdpe-noticia/)
-- **Nombre del Año 2026 en Perú: ¿cómo se decide, para qué sirve y qué nombres eligieron los años anteriores?**: [Link](https://larepublica.pe/datos-lr/2025/12/30/nombre-del-ano-2026-en-peru-como-se-decide-para-que-sirve-y-que-nombres-eligieron-los-anos-anteriores-atmp-1142280)
-
-
-### australia (N/A, 31/12/2025 11:32 Lima)
-
-- **New Year’s 2026 Celebrations Around the World: Photos and Videos**: [Link](https://www.nytimes.com/2025/12/31/world/new-years-2026-celebrations-photos.html)
-- **New Year celebrations: World ends 2025, welcomes 2026 with fireworks and fragile truces**: [Link](https://www.nbcnews.com/world/asia/new-year-celebrations-world-2025-2026-sydney-trump-ukraine-gaza-peace-rcna251651)
-- **Asia rings in 2026 and Australia is defiant after its worst mass shooting**: [Link](https://apnews.com/article/new-year-eve-2026-celebration-33d891df335fd824b29cff8994c61ca9)
-
-
-### mtv (N/A, 31/12/2025 11:32 Lima)
-
-- **MTV to pull the plug on multiple music channels this week**: [Link](https://www.syracuse.com/entertainment/2025/12/mtv-to-pull-the-plug-on-multiple-music-channels-this-week.html)
-- **MTV: A Farewell to the Channel That Changed Our World**: [Link](https://www.thatericalper.com/2025/12/30/mtv-a-farewell-to-the-channel-that-changed-our-world/)
-- **Eight beloved channels disappear from all Sky and Virgin Media boxes TODAY in final TV shut down of 2025**: [Link](https://www.thesun.co.uk/tech/37764296/eight-channels-shutting-down-sky-virgin-media/)
-
-
-### malory vargas al fondo hay sitio (N/A, 31/12/2025 11:32 Lima)
-
-- **¡Se aman! Exchica reality y querida actriz muestran TODO su amor con romántica publicación**: [Link](https://www.atv.pe/noticia/se-aman-exchica-reality-y-querida-actriz-muestran-todo-su-amor-con-romantica-publicacion/)
-- **🔴🔵Liliana Castro Mannarelli protagoniza romántico momento con exactriz de ‘Al fondo hay sitio’**: [Link](https://www.facebook.com/Exitosanoticias/posts/liliana-castro-mannarelli-protagoniza-rom%C3%A1ntico-momento-con-exactriz-de-al-fondo/1312458677583854/)
-- **Exchica reality Liliana Castro Mannarelli se luce muy enamorada de recordada actriz de ‘Al fondo hay sitio’ en restaurante: “A tu lado”**: [Link](https://larepublica.pe/espectaculos/2025/12/30/empresaria-liliana-castro-mannarelli-se-luce-muy-enamorada-de-exactriz-de-al-fondo-hay-sitio-en-restaurante-a-tu-lado-974850)
-
-
-### bryce dallas (N/A, 31/12/2025 11:32 Lima)
-
-- **Filming Star Wars' Ahsoka season 2 was "magical" for Bryce Dallas Howard, and more fun than Jurassic World or anything else in her adult life**: [Link](https://www.thepopverse.com/tv-bryce-dallas-howard-ahsoka-three-words-disney-plus)
-
-
-### normas legales el peruano (N/A, 31/12/2025 07:54 Lima)
-
-- **Revise las principales normas legales publicadas del domingo 21 al sábado 27 de Diciembre del 2025**: [Link](https://www.elperuano.pe/noticia/285997-revise-las-principales-normas-legales-publicadas-del-domingo-21-al-sabado-27-de-diciembre-del-2025)
-- **Estas son las normas legales más importantes del martes 23 de diciembre de 2025**: [Link](https://andina.pe/agencia/noticia-estas-son-las-normas-legales-mas-importantes-del-martes-23-diciembre-2025-1056660.aspx)
-- **Estas son las normas legales más importantes del jueves 25 de diciembre de 2025**: [Link](https://www.apnoticias.pe/peru/andina/estas-son-las-normas-legales-mas-importantes-del-jueves-25-de-diciembre-de-2025-1479416)
-
-
-### 31 de diciembre fin de año (N/A, 31/12/2025 03:36 Lima)
-
-- **Guía de conciertos y fiestas para despedir el 2025: precios, horarios y detalles de los principales shows para recibir el Año Nuevo**: [Link](https://www.infobae.com/peru/2025/12/27/ano-nuevo-guia-de-conciertos-y-fiestas-para-despedir-el-2025-precios-horarios-y-detalles-de-los-principales-shows-para-recibir-2026/)
-- **Diez destinos ideales para recibir el Año Nuevo 2026**: [Link](https://peru21.pe/peru/diez-destinos-ideales-para-recibir-el-ano-nuevo-2026/)
-- **¿Sin planes para Año Nuevo? 5 destinos baratos y ubicados en Lima que puedes visitar el 1 de enero**: [Link](https://elcomercio.pe/respuestas/donde/sin-planes-para-ano-nuevo-5-destinos-baratos-y-ubicados-en-lima-que-puedes-visitar-el-1-de-enero-tdpe-noticia/)
-
-
-### new year's eve (N/A, 31/12/2025 03:36 Lima)
-
-- **What time does Walmart, Target, Macy's, PetSmart, Kohl's, other stores open and close on New Year's Eve? Check out list | Hindustan Times**: [Link](https://www.hindustantimes.com/world-news/us-news/what-time-does-walmart-target-macys-petsmart-kohls-other-stores-open-and-close-on-new-years-eve-check-out-list-101767165081484.html)
-- **Everything You Need to Know About Walmart's New Year's Day Hours**: [Link](https://www.yahoo.com/lifestyle/articles/everything-know-walmarts-years-day-045500231.html)
-- **New Year’s Day Brings Closures And Changes Nationwide**: [Link](https://evrimagaci.org/gpt/new-years-day-brings-closures-and-changes-nationwide-521780)
-
-
-### nochevieja (N/A, 31/12/2025 03:36 Lima)
-
-- **Cómo proteger a tu mascota de la pirotecnia en Año Nuevo: Guía paso a paso**: [Link](https://www.atv.pe/noticia/como-proteger-a-tu-mascota-de-la-pirotecnia-en-ano-nuevo-guia-paso-a-paso/)
-- **La Nochevieja y el perjudicial efecto de los petardos en algunos animales**: [Link](https://efe.com/espana/2025-12-31/nochevieja-petardos-animales/)
-- **Alan Peiró, adiestrador canino, detalla cómo ayudar a tu perro a sobrellevar el miedo a los fuegos artificiales: “Son aterradores para muchos perros”**: [Link](https://www.lavanguardia.com/mascotas/20251230/11403861/fuegos-artificiales-perros-miedo-fin-de-ano-epm.html)
 
 
