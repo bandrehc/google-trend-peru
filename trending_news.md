@@ -1,3 +1,73 @@
+### dea (N/A, 03/01/2026 07:51 Lima)
+
+- **Avoiding the Telemedicine Cliff: Why the DEA Extended Prescribing Rules Through 2026**: [Link](https://hitconsultant.net/2026/01/02/avoiding-the-telemedicine-cliff-why-the-dea-extended-prescribing-rules-through-2026/)
+- **DEA Extends Opioid Prescribing Via Telehealth**: [Link](https://hospicenews.com/2026/01/02/dea-extends-opioid-prescribing-via-telehealth/)
+- **Feds Extend COVID-Era Bupe Telemedicine Flexibilities, Again**: [Link](https://filtermag.org/dea-hhs-buprenorphine-telemedicine/)
+
+
+### mar a lago (N/A, 03/01/2026 07:51 Lima)
+
+- **Exclusive | The Incident That Prompted Trump to Ban Epstein From Mar-a-Lago’s Spa - WSJ**: [Link](https://www.wsj.com/us-news/trump-epstein-mar-a-lago-ban-2011dc53)
+- **Mar-a-Lago Was Key to Jeffrey Epstein’s Criminal Enterprise**: [Link](https://www.thenation.com/article/politics/mar-a-lago-jeffrey-epstein-donald-trump/)
+- **New report casts light on Epstein’s ban from Mar-a-Lago**: [Link](https://www.independent.co.uk/news/world/americas/us-politics/jeffrey-epstein-trump-mar-a-lago-b2892648.html)
+
+
+### celta de vigo - valencia c. f. (N/A, 03/01/2026 07:51 Lima)
+
+- **Celta - Valencia en directo: LaLiga EA Sports hoy en vivo**: [Link](https://as.com/futbol/primera/celta-valencia-en-directo-laliga-ea-sports-hoy-en-vivo-f202601-d/)
+- **Apuestas y Pronóstico del Celta vs Valencia 03/01/26**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2026/enero/pronostico-celta-vs-valencia-03-01-26)
+- **Sigue en directo toda la información del mundo del fútbol en formato exprés**: [Link](https://www.flashscore.es/noticias/futbol-laliga-ea-sports-futbol-en-directo-celta-y-valencia-abren-el-sabado/O4QRt9MP/)
+
+
+### aston villa - nottingham forest (N/A, 03/01/2026 07:51 Lima)
+
+- **Preview: Aston Villa vs Nottingham Forest - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/aston-villa/preview/aston-villa-vs-nottm-forest-prediction-team-news-lineups_588926.html)
+- **FOREST TV, RADIO & TV CHANNEL | HOW TO FOLLOW THE REDS AGAINST ASTON VILLA**: [Link](https://www.nottinghamforest.co.uk/news/2026/january/02/forest-tv--radio---tv-channel---how-to-follow-the-reds-against-aston-villa/)
+- **Football Tracker: Aston Villa hosting Forest in early kick-off, Como in Serie A action**: [Link](https://www.flashscore.com/news/football-tracker-aston-villa-hosting-forest-in-early-kick-off-como-in-serie-a-action/feHSqASE/)
+
+
+### como - udinese (N/A, 03/01/2026 07:51 Lima)
+
+- **Como - Udinese, en directo: Serie A, hoy en vivo**: [Link](https://as.com/futbol/internacional/como-udinese-en-directo-serie-a-hoy-en-vivo-f202601-n/)
+- **Serie A: Como 1907 y Udinese se miden por la fecha 18**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-como-1907-y-udinese-se-miden-por-la-fecha-18-noticia-1669945)
+- **EN VIVO: El partido se pone 1 a 0 a favor de Como 1907**: [Link](https://www.t13.cl/noticia/deportes13/en-vivo-el-partido-se-pone-1-a-0-a-favor-de-como-1907-03-01-2026)
+
+
+### melbourne city - sydney (N/A, 03/01/2026 07:51 Lima)
+
+- **Melbourne City vs Sydney FC: Key A-League Clash and Standings Impact**: [Link](https://azat.tv/en/melbourne-city-vs-sydney-fc-a-league-2026/)
+- **City huff and puff but can't blow Sydney down in ALM**: [Link](https://www.canberratimes.com.au/story/9144809/city-huff-and-puff-but-cant-blow-sydney-down-in-alm/)
+- **Melbourne City vs Sydney FC Prediction and Betting Tips | January 2nd 2026**: [Link](https://www.sportskeeda.com/football/melbourne-city-vs-sydney-fc-prediction-betting-tips-january-2nd-2026)
+
+
+### expreso (N/A, 03/01/2026 07:51 Lima)
+
+- **José Jerí sabe toda la crisis de EsSalud y calla: estarían preparando festín corrupto**: [Link](https://www.expreso.com.pe/en-portada/jose-jeri-sabe-toda-la-crisis-de-essalud-y-calla-estarian-preparando-festin-corrupto-alianza-para-el-progreso-dina-boluarte-noticia/1251835/)
+- **Diario Expreso**: [Link](https://www.facebook.com/diario.expreso/photos/d41d8cd9/1298379635652978/)
+- **"No responden": José Jerí contestó así a mensaje que pedía ayuda para paciente de Essalud**: [Link](https://larepublica.pe/politica/2025/12/27/no-responden-jose-jeri-contesto-asi-a-mensaje-que-pedia-ayuda-para-paciente-de-essalud-hnews-479385)
+
+
+### america tv (N/A, 03/01/2026 07:51 Lima)
+
+- **📢 Incidente ocurrió en un inmueble que albergó antiguos estudios televisivos.**: [Link](https://www.facebook.com/story.php?story_fbid=1298281605662781&id=100064428623066)
+- **Emergencia en antiguo estudio de América TV: amago de incendio moviliza a bomberos en Lince**: [Link](https://www.expreso.com.pe/actualidad/emergencia-en-antiguo-estudio-de-america-tv-amago-de-incendio-moviliza-a-bomberos-en-lince-noticia/1252028/)
+- **Emergencia en ex estudio de América Televisión: amago de incendio por cortocircuito en tercer piso movilizó a bomberos**: [Link](https://larepublica.pe/sociedad/2026/01/02/emergencia-en-ex-estudio-de-america-television-amago-de-incendio-por-presunto-problema-electrico-en-tercer-piso-moviliza-a-bomberos-39766)
+
+
+### china (N/A, 03/01/2026 07:51 Lima)
+
+- **Ten years after it ended its ‘one-child’ policy, China’s push for more babies isn’t winning its citizens over**: [Link](https://www.cnn.com/2026/01/01/china/china-one-child-anniversary-intl-hnk-vis-dst)
+- **Why China is doubling down on its export-led growth model**: [Link](https://www.ft.com/content/079f2014-ed56-4137-89ee-561d7a8226cf)
+- **China's baby steps: Ageing Beijing to tax condoms, contraceptives; why Xi Jinping is worried**: [Link](https://timesofindia.indiatimes.com/world/china/chinas-baby-steps-ageing-beijing-to-tax-condoms-contraceptives-heres-why/articleshow/126307300.cms)
+
+
+### rpp noticias (N/A, 03/01/2026 07:51 Lima)
+
+- **Podemos, Fuerza Popular, APP, Obras y Perú Libre lideran el listado de partidos con más candidatos con sentencias**: [Link](https://www.infobae.com/peru/2026/01/01/podemos-fuerza-popular-app-obras-y-peru-libre-lideran-el-listado-de-partidos-con-mas-candidatos-con-sentencias/)
+- **Reportan que 252 candidatos a las Elecciones 2026 registran sentencias penales vigentes**: [Link](https://canaln.pe/actualidad/252-candidatos-presentan-sentencias-vigentes-elecciones-2026-n489318)
+- **Elecciones 2026: 9 de cada 10 partidos políticos registraron en el JNE a candidatos con condenas ¿Cuáles son?**: [Link](https://rpp.pe/peru/actualidad/elecciones-2026-9-de-cada-10-partidos-politicos-registraron-en-el-jne-a-candidatos-con-condenas-cuales-son-noticia-1669810)
+
+
 ### dolar (N/A, 03/01/2026 03:33 Lima)
 
 - **Precio del dólar en Perú hoy, jueves 1 de enero: cuál es el tipo de cambio**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-2026-a-cuanto-esta-el-tipo-de-cambio-este-jueves-1-de-enero-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
@@ -961,75 +1031,5 @@ hat-trick scorer**: [Link](https://www.vavel.com/en/football/2025/12/27/premier-
 - **Cómo proteger a tu mascota de la pirotecnia en Año Nuevo: Guía paso a paso**: [Link](https://www.atv.pe/noticia/como-proteger-a-tu-mascota-de-la-pirotecnia-en-ano-nuevo-guia-paso-a-paso/)
 - **La Nochevieja y el perjudicial efecto de los petardos en algunos animales**: [Link](https://efe.com/espana/2025-12-31/nochevieja-petardos-animales/)
 - **Alan Peiró, adiestrador canino, detalla cómo ayudar a tu perro a sobrellevar el miedo a los fuegos artificiales: “Son aterradores para muchos perros”**: [Link](https://www.lavanguardia.com/mascotas/20251230/11403861/fuegos-artificiales-perros-miedo-fin-de-ano-epm.html)
-
-
-### fin de año (N/A, 31/12/2025 03:36 Lima)
-
-- **El ritual del 1 de enero para atraer la buena suerte este 2026, según tu signo del horóscopo**: [Link](https://www.vanitatis.elconfidencial.com/horoscopo/2025-12-31/ritual-buena-suerte-1-enero-2026-horoscopo-signo_4274389/)
-- **Año Nuevo en Arequipa: Amuletos desde 2 soles y rituales andinos para recibir el 2026 (VIDEO)**: [Link](https://diariocorreo.pe/edicion/arequipa/ano-nuevo-en-arequipa-amuletos-desde-2-soles-y-rituales-andinos-para-recibir-el-2026-video-noticia/)
-- **Cábalas para Año Nuevo 2026: los mejores rituales para atraer amor, dinero y limpiar energías negativas**: [Link](https://larepublica.pe/datos-lr/2025/12/30/cabalas-para-ano-nuevo-2026-los-mejores-rituales-para-atraer-amor-dinero-y-limpiar-energias-negativas-atmp-2118990)
-
-
-### ministerio de educación (N/A, 31/12/2025 03:36 Lima)
-
-- **Año escolar 2026: Niños que cumplan 3 años antes de esta fecha podrán ingresar a educación inicial, según Minedu**: [Link](https://www.infobae.com/peru/2025/12/28/ano-escolar-2026-ninos-que-cumplan-3-anos-antes-de-esta-fecha-podran-ingresar-a-educacion-inicial/)
-- **MINEDU activará matrícula digital desde el 19 de enero en Lima, Callao y otras regiones**: [Link](https://canaln.pe/actualidad/matricula-digital-minedu-iniciara-19-enero-n489266)
-- **Año escolar 2026: implementan dos modalidades de matrícula para garantizar acceso gratuito**: [Link](https://elperuano.pe/noticia/286118-ano-escolar-2026-implementan-dos-modalidades-de-matricula-para-garantizar-acceso-gratuito)
-
-
-### interbank (N/A, 31/12/2025 03:36 Lima)
-
-- **Horario de atención BCP, Banco de la Nación y Scotiabank este 31 de diciembre**: [Link](https://libero.pe/tiempoextra/2025/12/30/horario-de-atencion-bcp-banco-de-nacion-scotiabank-31-de-diciembre-1-de-enero-ano-nuevo-594450)
-- **Cómo hacer trámites urgentes durante el feriado: conoce los únicos servicios públicos que atienden el 25 de diciembre**: [Link](https://www.infobae.com/peru/2025/12/23/como-hacer-tramites-urgentes-durante-el-feriado-conoce-los-unicos-servicios-publicos-que-atienden-el-25-de-diciembre/)
-- **¿Habrá atención de los bancos para este miércoles 31 de diciembre y jueves 1 de enero?**: [Link](https://larepublica.pe/economia/2025/12/29/horario-de-atencion-de-los-bancos-para-este-miercoles-31-de-diciembre-y-jueves-1-de-enero-bcp-interbank-bbva-scotiabank-y-banco-de-la-nacion-atmp-1443446)
-
-
-### lebron james (N/A, 31/12/2025 03:36 Lima)
-
-- **LeBron James Serenaded With 'Happy Birthday' Song At Lakers Practice**: [Link](https://www.tmz.com/2025/12/30/lebron-james-41st-birthday-celebration-los-angeles-lakers/)
-- **“I have trouble getting out of bed in the morning and …**: [Link](https://www.hoopshype.com/story/sports/nba/rumors/2025/12/30/i-have-trouble-getting-out-of-bed-in-the-morning-and/87957191007/)
-- **Deandre Ayton Explains The Secret Behind LeBron James’ Longevity**: [Link](https://fadeawayworld.net/nba/los-angeles-lakers/deandre-ayton-explains-the-secret-behind-lebron-james-longevity)
-
-
-### weather tomorrow (N/A, 31/12/2025 03:36 Lima)
-
-- **Minnesota weather: Tracking light snow and falling temps to end the year**: [Link](https://www.mprnews.org/story/2025/12/30/tracking-light-snow-and-falling-temps-to-end-the-year)
-- **First Alert: Like snow and a spotty wintry mix on Wednesday**: [Link](https://www.kttc.com/2025/12/30/first-alert-like-snow-spotty-wintry-mix-wednesday/)
-- **Snow showers will move through on New Year's Eve**: [Link](https://www.nbcconnecticut.com/weather-news/stories/snow-showers-will-move-through-on-new-years-eve/3681024/)
-
-
-### lakers - pistons (N/A, 30/12/2025 23:41 Lima)
-
-- **Pistons vs Lakers Picks & Odds Today: Detroit To Snap Skid On Road**: [Link](https://www.oddsshark.com/nba/pistons-lakers-picks-odds-december-30-2025)
-- **Rui Hachimura Expected to Miss One Week Due to Calf Soreness**: [Link](https://news.ssbcrack.com/rui-hachimura-expected-to-miss-one-week-due-to-calf-soreness/)
-- **BetMGM bonus code NYPDM1600: Get a 20% first deposit match up to $1,600 for Pistons vs. Lakers**: [Link](https://nypost.com/2025/12/30/betting/betmgm-bonus-code-nypdm1500-get-a-20-first-deposit-match-up-to-1600-for-pistons-vs-lakers/)
-
-
-### jazz - celtics (N/A, 30/12/2025 23:41 Lima)
-
-- **Live updates: Celtics, Jazz facing off in Utah**: [Link](https://www.nbcboston.com/nba/boston-celtics/live-updates-highlights-score-jazz/3869685/)
-- **Bruins prospects Hagens, Zellers dominating for Team USA at World Juniors**: [Link](https://sports.yahoo.com/articles/bruins-prospects-hagens-zellers-dominating-114639980.html)
-- **Tiny Nick's Gambling Picks 12/30**: [Link](https://zonecoverage.com/2025/gambling/tiny-nicks-gambling-picks-12-30-6/)
-
-
-### speed test (N/A, 30/12/2025 23:41 Lima)
-
-- **Fact vs. Fiction: Holloman High Speed Test Track Modernization – What We Know as of December 29, 2025**: [Link](https://2ndlifemediaalamogordo.town.news/g/alamogordo-nm/n/354084/fact-vs-fiction-holloman-high-speed-test-track-modernization-what-we-know)
-- **Vande Bharat Sleeper train clocks 180 kmph between Kota Nagda section, Ashwini Vaishnaw shares video: Watch | India News**: [Link](https://www.hindustantimes.com/india-news/vande-bharat-sleeper-train-clocks-180-kmph-between-kota-nagda-section-ashwini-vaishnaw-shares-video-watch-101767109119385.html)
-- **Vande Bharat sleeper clocks 180 kmph! Ashwini Vaishnaw shares video of train’s ‘water test’; watch**: [Link](https://timesofindia.indiatimes.com/business/infrastructure/vande-bharat-sleeper-clocks-180-kmph-ashwini-vaishnaw-shares-video-of-trains-water-test-watch/articleshow/126254357.cms)
-
-
-### peru rail (N/A, 30/12/2025 23:41 Lima)
-
-- **Gobernador del Cusco denuncia “repartija” de heridos “por parte de clínicas privadas” tras choque de trenes**: [Link](https://rpp.pe/peru/cusco/gobernador-del-cusco-denuncia-repartija-de-heridos-por-parte-de-clinicas-privadas-tras-choque-de-trenes-noticia-1669772)
-- **Choque entre trenes de Inca Rail y Perurail: lo que se sabe de la tragedia que se registró en la ruta a Machu Picchu**: [Link](https://elcomercio.pe/peru/cusco/choque-entre-trenes-de-inca-rail-y-perurail-lo-que-se-sabe-de-la-tragedia-que-se-registro-en-la-ruta-a-machu-picchu-noticia/)
-- **Choque de trenes en Cusco: Minsa envía 12 ambulancias a la zona para atender a los heridos**: [Link](https://elperuano.pe/noticia/286147-choque-de-trenes-en-cusco-minsa-envia-12-ambulancias-a-la-zona-para-atender-a-los-heridos)
-
-
-### grizzlies - 76ers (N/A, 30/12/2025 21:05 Lima)
-
-- **Tyrese Maxey, Sixers face Ja Morant, Grizzlies in FINAL game of 2025**: [Link](https://bvmsports.com/2025/12/30/tyrese-maxey-sixers-face-ja-morant-grizzlies-in-final-game-of-2025/)
-- **bet365 bonus code NYPBET: bet $5, get $150 in bonus bets for 76ers vs. Grizzlies**: [Link](https://nypost.com/2025/12/30/betting/bet365-bonus-code-nypbet-bet-5-get-150-in-bonus-bets-for-76ers-vs-grizzlies/)
-- **Jokic out at least four weeks with knee injury**: [Link](https://www.nbcsports.com/watch/nba/denver-nuggets-nikola-jokic-will-miss-at-least-four-weeks-with-knee-injury)
 
 
