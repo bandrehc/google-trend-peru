@@ -1,3 +1,70 @@
+### tarjeta roja (N/A, 03/01/2026 15:28 Lima)
+
+- **Una reacción que le impulsa hacia la tranquilidad**: [Link](https://www.diariovasco.com/sdeibar/reaccion-impulsa-tranquilidad-20260102234010-nt.html)
+- **Álvaro Rodríguez: “No hay que darle demasiada importancia a estos tres puntos”**: [Link](https://as.com/futbol/alvaro-rodriguez-no-hay-que-darle-demasiada-importancia-a-estos-tres-puntos-f202601-n/)
+- **El Mirandés pierde demasiadas oportunidades**: [Link](https://www.elcorreo.com/mirandes/mirandes-pierde-demasiadas-oportunidades-20260103134524-nt.html)
+
+
+### roma vs (N/A, 03/01/2026 15:28 Lima)
+
+- **Roma visita a Atalanta en busca de mantenerse en la lucha por la cima de la Serie A**: [Link](https://www.espn.com.pe/futbol/italia/nota/_/id/16132832/atalanta-vs-roma-serie-a-equipo-fecha-hora-y-tv-en-vivo)
+- **Serie A: Roma enfrenta a Atalanta para subirse a la cima**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-roma-enfrenta-a-atalanta-para-subirse-a-la-cima-noticia-1669996)
+- **Atalanta vs Roma: ¡Incrementa tus ganancias hasta 200% con la Serie A en Meridianbet!**: [Link](https://ovacion.pe/noticias/nota-promocional/atalanta-vs-roma-incrementa-tus-ganancias-hasta-200-serie-meridianbet)
+
+
+### roma fc (N/A, 03/01/2026 15:28 Lima)
+
+- **Espanyol vs. Barcelona (4 Jan, 2026) Live Score**: [Link](https://www.espn.in/football/match/_/gameId/748319)
+- **Temple 76-57 UTSA (Jan 3, 2026) Game Recap**: [Link](https://www.espn.com/ncb/recap?gameId=401828158)
+- **Lille vs. Rennes (3 Jan, 2026) Live Score**: [Link](https://www.espn.co.uk/football/match/_/gameId/746558)
+
+
+### mali vs (N/A, 03/01/2026 15:28 Lima)
+
+Sin noticias relacionadas disponibles.
+
+
+### lille (N/A, 03/01/2026 15:28 Lima)
+
+- **Nathan Ngoy rebuilds at Lille after injuries, making up lost time**: [Link](https://onefootball.com/en/news/nathan-ngoy-rebuilds-at-lille-after-injuries-making-up-lost-time-42175848)
+- **Rayo vs. Getafe (2 de Ene., 2026) Resultados en Vivo**: [Link](https://www.espn.com.pe/futbol/partido/_/juegoId/748316)
+- **Sunderland 0-0 Man City (1 de Ene., 2026) Resultado Final**: [Link](https://www.espn.com.pe/futbol/partido/_/juegoId/740784)
+
+
+### rcd espanyol - barcelona (N/A, 03/01/2026 15:28 Lima)
+
+- **Alineación confirmada del Barcelona hoy ante el Espanyol en LaLiga EA Sports: la reválida de Joan García**: [Link](https://as.com/futbol/primera/alineacion-posible-del-barcelona-hoy-ante-el-espanyol-en-laliga-ea-sports-la-revalida-de-joan-garcia-f202601-n/)
+- **Joan García, recibido con billetes y pancartas: la afición de Espanyol no le perdona su marcha al Barça**: [Link](https://www.marca.com/futbol/barcelona/2026/01/03/joan-garcia-recibido-billetes-pancartas-aficion-espanyol-le-perdona-marcha-barca.html)
+- **Barcelona vs. Espanyol EN VIVO vía ESPN y Disney Plus por LaLiga**: [Link](https://depor.com/futbol-internacional/espana/barcelona-vs-espanyol-en-vivo-gratis-hoy-espn-disney-plus-futbol-libre-tv-directv-dazn-movistar-laliga-espn-deportes-dgo-a-que-hora-juegan-en-directo-online-por-internet-video-noticia/)
+
+
+### juventus fc (N/A, 03/01/2026 15:28 Lima)
+
+- **U20 | Juventus-Parma | Il commento di Padoin**: [Link](https://onefootball.com/de/news/u20-juventus-parma-il-commento-di-padoin-42175507)
+- **Primavera Juve, il nuovo anno inizia con un pareggio: a Vinovo è 0-0 col Parma**: [Link](https://www.tuttosport.com/news/calcio/primavera/2026/01/03-145572996/primavera_juve_il_nuovo_anno_inizia_con_un_pareggio_a_vinovo_0-0_col_parma)
+- **PRIMAVERA 1, L’ALLENATORE NICOLA CORRENT: “ORGOGLIOSO DEI MIEI RAGAZZI”**: [Link](https://www.parmacalcio1913.com/news/primavera-1-lallenatore-nicola-corrent-orgoglioso-dei-miei-ragazzi/)
+
+
+### atalanta - roma (N/A, 03/01/2026 15:28 Lima)
+
+- **Serie A: in campo Atalanta-Roma 2-0 DIRETTA e FOTO**: [Link](https://www.ansa.it/sito/notizie/sport/calcio/2026/01/03/serie-a-in-campo-atalanta-roma-2-0-diretta-e-foto_f63ae3ed-6de1-465e-90fd-8e29d49b1885.html)
+- **Carnesecchi: 'Questa per noi è un'occasione. Siamo contenti del ritorno di Gasp'**: [Link](https://www.virgilio.it/italia/roma/notizielocali/carnesecchi_questa_per_noi_un_occasione_siamo_contenti_del_ritorno_di_gasp_-76248811.html)
+- **Gasperini a Bergamo, non tutti i tifosi dell’Atalanta ringraziano l’ex tecnico**: [Link](https://www.repubblica.it/sport/calcio/serie-a/roma/2026/01/03/news/gasperini_bergamo_ritorno_striscioni_tifosi-425074522/)
+
+
+### braga vs (N/A, 03/01/2026 15:28 Lima)
+
+- **Preview: Estrela Amadora vs Braga - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/estrela-amadora/preview/estrela-amadora-vs-braga-prediction-team-news-lineups_588993.html)
+- **Estrela da Amadora vs Braga prediction and betting tips 03 January 2026**: [Link](https://dailysports.net/predictions/estrela-amadora-vs-braga-who-will-be-able-to-extend-their-unbeaten-run/)
+
+
+### benfica vs (N/A, 03/01/2026 15:28 Lima)
+
+- **El 2025 de Richard Ríos: el salto a Europa y clasificación al Mundial con Colombia**: [Link](https://www.espn.com.pe/futbol/nota/_/id/16129384/el-2025-de-richard-rios-salto-a-europa-y-clasificacion-al-mundial-colombia)
+- **Preview: Benfica vs Estoril Praia - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/benfica/preview/benfica-vs-estoril-prediction-team-news-lineups_588987.html)
+- **Benfica faces Estoril Praia tonight seeking to close 10-point gap to Porto, but recent momentum might shock the Eagles**: [Link](https://www.red94.net/news/42643-benfica-faces-estoril-praia-tonight-in-liga-portugal-clash-with-playoff-implicat/)
+
+
 ### juventus - lecce (N/A, 03/01/2026 11:31 Lima)
 
 - **Juve-Lecce, diretta: formazioni ufficiali e risultato in tempo reale. La scelta in attacco di Spalletti e due esclusi**: [Link](https://www.tuttosport.com/news/calcio/serie-a/juventus/2026/01/03-145596190/juve-lecce_diretta_formazioni_e_risultato_in_tempo_reale_in_campo_anche_la_next_gen)
@@ -965,74 +1032,5 @@ hat-trick scorer**: [Link](https://www.vavel.com/en/football/2025/12/27/premier-
 - **Sigue el partido en directo**: [Link](https://as.com/futbol/internacional/mozambique-camerun-f202512-n/)
 - **Pronóstico Mozambique - Camerún - CAN**: [Link](https://www.sportytrader.es/pronosticos/mozambique-camerun-315008/)
 - **Mozambique vs Camerún: resultado EN VIVO y estadísticas de la Copa África**: [Link](https://www.365scores.com/es/news/mozambique-vs-camerun-resultado-en-vivo/)
-
-
-### costa de marfil vs (N/A, 31/12/2025 15:28 Lima)
-
-- **Koundé, Mbappé y Tchouameni se apuntan a la Copa África | Fútbol Internacional**: [Link](https://www.sport.es/es/noticias/futbol-internacional/kounde-mbappe-tchouameni-apuntan-copa-125214098)
-- **¿Qué superestrellas europeas han acudido a apoyar la CAN? Respondido con fotos**: [Link](https://tribuna.com/es/blogs/que-superestrellas-europeas-han-acudido-a-apoyar-la-can-resp/)
-- **Vídeo. AFCON 2025: Camerún y Costa de Marfil empatan, Argelia pasa**: [Link](https://es.euronews.com/video/2025/12/29/afcon-2025-camerun-y-costa-de-marfil-empatan-argelia-pasa)
-
-
-### copa africana de naciones (N/A, 31/12/2025 15:28 Lima)
-
-- **El ‘nuevo Wirtz’ encandila a Zidane**: [Link](https://as.com/futbol/internacional/el-nuevo-wirtz-encandila-a-zidane-f202512-n/)
-- **Argelia venció 3-1 a Guinea Ecuatorial y avanzó con puntaje perfecto**: [Link](https://ovacion.pe/noticias/futbol-internacional/argelia-vencio-3-1-guinea-ecuatorial-avanzo-puntaje-perfecto)
-- **Argelia termina con paso perfecto su grupo y con la mira en el Mundial 2026**: [Link](https://www.tudn.com/mundial-2026/argelia-acaba-con-paso-perfecto-grupo-copa-africana-hacia-mundial-2026)
-
-
-### gabon vs (N/A, 31/12/2025 15:28 Lima)
-
-- **Gabon vs Côte d’Ivoire: Pride at stake in Marrakech**: [Link](https://www.cafonline.com/afcon2025/news/gabon-vs-cote-d-ivoire-pride-at-stake-in-marrakech/)
-- **Gabon vs Ivory Coast Lineups, Live Streaming, How & Where to Watch on TV**: [Link](https://athlonsports.com/soccer/gabon-ivory-coast-lineups-live-streaming-tv-channels-afcon)
-- **Gabon - Ivory Coast live: Africa Cup of Nations - Football**: [Link](https://www.tntsports.co.uk/football/africa-cup-of-nations/2025/live-gabon-ivory-coast_mtc1584175/live-commentary.shtml)
-
-
-### mozambique vs (N/A, 31/12/2025 15:28 Lima)
-
-- **Mozambique da el golpe ante Gabón y revive en la Copa Africana de Naciones**: [Link](https://ovacion.pe/noticias/copa-africana-naciones/mozambique-da-golpe-ante-gabon-revive-copa-africana-naciones)
-- **Mozambique vence al Gabón de Aubameyang y gana la primera Copa Africana de Naciones**: [Link](https://www.elpueblo.pe/deportes/mozambique-vence-al-gabon-de-aubameyang-y-gana-la-primera-copa-africana-de-naciones/185932/)
-
-
-### gabón - costa de marfil (N/A, 31/12/2025 15:28 Lima)
-
-- **Sigue el partido en directo**: [Link](https://as.com/futbol/internacional/gabon-costa-de-marfil-en-directo-f202512-n/)
-- **Costa de Marfil vs. Gabón: ¿a qué hora juegan y dónde ver EN VIVO hoy por la Copa Africana de Naciones?**: [Link](https://rpp.pe/futbol/futbol-mundial/costa-de-marfil-vs-gabon-en-vivo-a-que-hora-juegan-y-donde-ver-fecha-3-copa-africana-de-naciones-2025-via-claro-sports-partidos-de-hoy-noticia-1669683)
-- **Dónde ver Gabon vs. Costa de Marfil: horario, canal y posibles alineaciones, Copa Africana de Naciones 2025 J3**: [Link](https://www.reporteindigo.com/deportes/donde-ver-gabon-vs.-costa-de-marfil-horario-canal-y-posibles-alineaciones-copa-africana-de-naciones-2025-j3-20251231-0016.html)
-
-
-### gamarra (N/A, 31/12/2025 15:28 Lima)
-
-- **Tragedia en Gamarra a horas del Año Nuevo: menor fallece tras ser atropellado por camión blindado**: [Link](https://www.infobae.com/peru/2025/12/31/tragedia-en-gamarra-a-horas-del-ano-nuevo-menor-fallece-tras-ser-atropellado-por-camion-blindado/)
-- **Gamarra: menor muere tras ser atropellada por camión a pocas horas del Año Nuevo**: [Link](https://elcomercio.pe/lima/accidentes/ano-nuevo-gamarra-menor-muere-tras-ser-atropellada-por-camion-la-victoria-nochevieja-ano-nuevo-2026-ultimas-noticia/)
-- **Tragedia de fin de año: menor fallece tras ser arrollado en Gamarra**: [Link](https://diariocorreo.pe/edicion/lima/tragedia-en-fin-de-ano-menor-fallece-tras-ser-arrollado-en-el-emporio-comercial-de-gamarra-noticia/)
-
-
-### supercopa de españa (N/A, 31/12/2025 11:32 Lima)
-
-- **Mbappé, baja para el Betis sin descartarse la Supercopa**: [Link](https://as.com/futbol/real-madrid/mbappe-baja-para-el-betis-sin-descartarse-la-supercopa-f202512-n/)
-- **¡¡¡Mbappé, lesionado!!!**: [Link](https://www.mundodeportivo.com/futbol/real-madrid/20251231/1002594235/mbappe-lesionado.html)
-- **Algo no iba bien: el gesto de Mbappé a Carreras tras tener que parar en el entrenamiento a puerta abierta**: [Link](https://www.marca.com/futbol/real-madrid/2025/12/31/iba-bien-gesto-mbappe-carreras-parar-entrenamiento-puerta-abierta-video.html)
-
-
-### guinea ecuatorial - argelia (N/A, 31/12/2025 11:32 Lima)
-
-- **Guinea Ecuatorial vs Argelia: Resultado EN VIVO, minuto a minuto y goles de la Copa Africana de Naciones**: [Link](https://www.365scores.com/es/news/guinea-ecuatorial-vs-argelia-resultados/)
-- **Guinea Ecuatorial busca cerrar con dignidad la Copa Africana**: [Link](https://www.sportytrader.es/actualidad/can-2025-guinea-ecuatorial-vs-argelia/)
-- **Guinea Ecuatorial vs Algeria: pronósticos, cuotas, y datos para apostar**: [Link](https://www.apwin.com/es/pronosticos/equatorial-guinea-vs-algeria-pronostico-africa-cup-of-nations-31-12-2025/)
-
-
-### cabalas (N/A, 31/12/2025 11:32 Lima)
-
-- **Año Nuevo: Revelamos las cábalas que no fallan para recibir este 2026**: [Link](https://www.atv.pe/noticia/ano-nuevo-revelamos-las-cabalas-que-no-fallan-para-recibir-este-2026/)
-- **Año Nuevo, ¿suerte nueva? Sigue estas cábalas para asegurar el éxito este 2026 (VIDEOS)**: [Link](https://peru21.pe/espectaculos/ano-nuevo-suerte-nueva-sigue-estas-cabalas-para-asegurar-el-exito-este-2026-videos/)
-- **Cábalas de Año Nuevo 2026: 7 rituales para atraer la suerte, el amor, salud y dinero**: [Link](https://elpopular.pe/actualidad/2025/12/29/cabalas-para-ano-nuevo-2026-5-rituales-para-atraer-amor-salud-y-prosperidad-886037)
-
-
-### neom sports club - al ittihad (N/A, 31/12/2025 11:32 Lima)
-
-- **Preview: NEOM SC vs Al-Ittihad - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/al-ittihad/preview/neom-sc-vs-al-ittihad-prediction-team-news-lineups_588704.html)
-- **Conceição Announces Al-Ittihad Squad for Match Against NEOM in the League**: [Link](https://www.ysscores.com/en/news/13881580/Concei%C3%A7%C3%A3o-Announces-Al-Ittihad-Squad-for-Match-Against-NEOM-in-the-League)
-- **Neom SC vs Al Ittihad Preview, prediction, lineups, betting tips & odds | Saudi Pro League 2025-26**: [Link](https://khelnow.com/football/world-football-neom-sc-vs-al-ittihad-preview-202512)
 
 
