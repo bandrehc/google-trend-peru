@@ -1,3 +1,57 @@
+### ticketmaster (N/A, 02/01/2026 21:00 Lima)
+
+- **Ticketmaster Accused Of Monopoly Tactics By Ex-Startup**: [Link](https://www.law360.com/articles/2426008/ticketmaster-accused-of-monopoly-tactics-by-ex-startup)
+- **Live Nation moves again to dismiss DOJ antitrust suit, claims ‘Zero Proof’**: [Link](https://www.hypebot.com/hypebot/2025/12/live-nation-move-again-to-dismiss-anti-trust-suit.html)
+- **Will California’s fight with Live Nation make tickets affordable again? | Opinion**: [Link](https://www.sacbee.com/opinion/op-ed/article313927223.html)
+
+
+### luna llena enero 2026 (N/A, 02/01/2026 21:00 Lima)
+
+- **La superluna llena de enero, conocida como la luna del lobo, y la lluvia de meteoros Cuadrántidas dan inicio al nuevo año**: [Link](https://cnnespanol.cnn.com/2026/01/01/ciencia/superluna-lobo-lluvia-meteoros-cuadrantidas-2026-trax)
+- **Los 12 fenómenos astronómicos más espectaculares de 2026: desde un eclipse total hasta auroras impresionantes**: [Link](https://www.nationalgeographicla.com/espacio/2026/01/los-12-fenomenos-astronomicos-mas-espectaculares-de-2026-desde-un-eclipse-total-hasta-auroras-impresionantes)
+- **Superlunas, lluvias de meteoros y alineaciones planetarias: los eventos astronómicos de enero que no te puedes perder**: [Link](https://elcomercio.pe/mag/respuestas/ciencias/superlunas-lluvias-de-meteoros-y-alineaciones-planetarias-los-eventos-astronomicos-de-enero-que-no-te-puedes-perder-nnda-nnrt-noticia/)
+
+
+### servicio militar obligatorio (N/A, 02/01/2026 21:00 Lima)
+
+- **Inscripción militar obligatoria 2026: jóvenes de 17 años serán multados si no se inscriben en el Ejército, FAP y la Marina**: [Link](https://www.infobae.com/peru/2026/01/02/inscripcion-militar-obligatoria-2026-jovenes-de-17-anos-seran-multados-si-no-se-inscriben-en-el-ejercito-fap-y-la-marina/)
+- **Modifican Reglamento de la Ley del Servicio Militar para fortalecer inscripción y beneficios [DS 018-2025-DE]**: [Link](https://lpderecho.pe/modifican-reglamento-ley-servicio-militar-fortalecer-inscripcion-beneficios-ds-018-2025-de/)
+- **Cambios en el Servicio Militar: Inscripción obligatoria antes de 18 años y nuevas multas establecidas**: [Link](https://canaln.pe/actualidad/gobierno-establece-disposiciones-y-multas-servicio-militar-n489322)
+
+
+### juegos ps plus (N/A, 02/01/2026 21:00 Lima)
+
+- **Juegos mensuales de PlayStation Plus de enero: Need For Speed Unbound, Disney Epic Mickey: Rebrushed y Core Keeper**: [Link](https://blog.es.playstation.com/2025/12/31/juegos-mensuales-de-playstation-plus-de-enero-need-for-speed-unbound-disney-epic-mickey-rebrushed-y-core-keeper/)
+- **PlayStation Plus: confirmados los juegos gratis de enero de 2026 para PS5 y PS4**: [Link](https://www.vidaextra.com/ps5/playstation-plus-confirmados-juegos-gratis-enero-2026-para-ps5)
+- **Si tienes una PS5 o PS4, pronto podrás jugar a los 3 juegos gratis de PS Plus Essential de enero de 2026**: [Link](https://www.3djuegos.com/ps5/noticias/tienes-ps5-ps4-pronto-podras-jugar-a-3-juegos-gratis-ps-plus-essential-enero-2026)
+
+
+### guimaraes vs (N/A, 02/01/2026 21:00 Lima)
+
+- **Preview: Vitoria de Guimaraes vs Nacional - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/vitoria-de-guimaraes/preview/guimaraes-vs-nacional-prediction-team-news-lineups_588891.html)
+
+
+### guimarães - nacional (N/A, 02/01/2026 21:00 Lima)
+
+- **Tiago Margarido: «Lance de sorte desbloqueou o jogo»**: [Link](https://www.record.pt/futebol/futebol-nacional/liga-betclic/nacional/detalhe/tiago-margarido-lance-de-sorte-desbloqueou-o-jogo)
+- **Triunfo vimaranense frente ao CD Nacional**: [Link](https://www.ligaportugal.pt/news/26374/triunfo-vimaranense-frente-ao-cd-nacional)
+- **Luís Pinto: «A paciência no nosso estádio não é fácil de ter»**: [Link](https://sapo.pt/artigo/luis-pinto-a-paciencia-no-nosso-estadio-nao-e-facil-de-ter-69586dd32c7b75270a33ff29)
+
+
+### vitoria guimaraes (N/A, 02/01/2026 21:00 Lima)
+
+- **TCU 72-48 BYU (Dec 31, 2025) Game Recap**: [Link](https://www.espn.com/ncw/recap?gameId=401827297)
+- **North Dakota State 76-68 Oral Roberts (Jan 1, 2026) Final Score**: [Link](http://www.espn.com/ncw/preview?gameId=401818442)
+- **NJIT 80-75 UMBC (Jan 1, 2026) Final Score**: [Link](http://www.espn.com/ncw/preview?gameId=401812180)
+
+
+### milan vs (N/A, 02/01/2026 21:00 Lima)
+
+- **¡EN VIVO! Milan visita a Cagliari en busca de llegar a lo más alto de la Serie A**: [Link](https://www.espn.com.pe/futbol/italia/nota/_/id/16134040/cagliari-vs-milan-fecha-17-serie-a-equipo-fecha-hora-y-tv-en-vivo)
+- **AC Milán pasó a la punta de la Serie «A» del Calcio Italiano al vencer a Cagliari 1-0**: [Link](https://diariouno.pe/2026/01/02/ac-milan-paso-a-la-punta-de-la-serie-a-del-calcio-italiano-al-vencer-a-cagliari-1-0/)
+- **Cagliari vs AC Milan en vivo por la Serie A de Italia**: [Link](https://www.futbolperuano.com/en-vivo/serie-a-de-italia-cagliari-vs-ac-milan-en-vivo-557316)
+
+
 ### gil vicente vs. sporting lisboa (N/A, 02/01/2026 15:28 Lima)
 
 - **TCU 72-48 BYU (Dec 31, 2025) Game Recap**: [Link](https://www.espn.com/ncw/recap?gameId=401827297)
@@ -975,61 +1029,5 @@ hat-trick scorer**: [Link](https://www.vavel.com/en/football/2025/12/27/premier-
 - **(VIDEO) Senegal y RD Congo se repartieron los puntos en la Copa de África**: [Link](https://ovacion.pe/noticias/futbol-internacional/video-senegal-rd-congo-se-repartieron-puntos-copa-africa)
 - **Nigeria ganó y accedió a octavos de la Copa de África**: [Link](https://ovacion.pe/noticias/futbol-internacional/nigeria-gano-accedio-octavos-copa-africa)
 - **Partido inaugural de la AFCON 2025 entre Nigeria y Tanzania**: [Link](https://www.ucvradio.pe/mas-actualidad/partido-inaugural-de-la-afcon-2025-entre-nigeria-y-tanzania/84016/)
-
-
-### arsenal - aston villa (N/A, 30/12/2025 15:29 Lima)
-
-- **Premier League LIVE: Commentary, scores, results & updates including Chelsea vs Bournemouth**: [Link](https://www.bbc.com/sport/football/live/cx2nz71d72jt)
-- **Team news: Gabriel and Timber back to face Villa**: [Link](https://www.arsenal.com/news/team-news-gabriel-and-timber-back-face-villa)
-- **Jamie Carragher: 'It's a huge game for Arsenal. Huge opportunity to put some distance between themselves and Aston Villa'**: [Link](https://tribuna.com/en/news/2025-12-30-jamie-carragher-its-a-huge-game-for-arsenal-huge-opportunity-to-put-some-distance-between/)
-
-
-### manchester united - wolves (N/A, 30/12/2025 15:29 Lima)
-
-- **Amorim's team news for United v Wolves**: [Link](https://www.manutd.com/en/news/detail/team-news-for-man-utd-v-wolves-in-premier-league-30-dec-2025)
-- **Exclusive: Mason Mount blow for Manchester United vs Wolverhampton Wanderers**: [Link](https://centredevils.co.uk/news/exclusive-mason-mount-blow-for-manchester-united-vs-wolverhampton-wanderers/)
-- **Shea Lacey should make first Man United start against Wolves after Ruben Amorim comments**: [Link](https://www.unitedinfocus.com/opinion/shea-lacey-should-make-first-man-united-start-against-wolves-after-ruben-amorim-comments/)
-
-
-### senegal vs (N/A, 30/12/2025 15:29 Lima)
-
-- **Senegal–Benin: ambition meets belief in decisive Group D clash**: [Link](https://www.cafonline.com/afcon2025/news/senegal-benin-ambition-meets-belief-in-decisive-group-d-clash/)
-- **Morocco Africa Cup of Nations Soccer**: [Link](https://www.wvnews.com/sports/pro/morocco-africa-cup-of-nations-soccer/image_9ac7007c-9486-5bbd-b9c3-9720bf1d0114.html)
-- **Senegal vs Benin: When and How to Watch AFCON Game**: [Link](https://www.moroccoworldnews.com/2025/12/273396/senegal-vs-benin-when-and-how-to-watch-afcon-game/)
-
-
-### congo vs (N/A, 30/12/2025 15:29 Lima)
-
-- **CAN 2025 : Pape Thiaw à l’heure des choix**: [Link](https://sportnewsafrica.com/articles/can-2025-pape-thiaw-a-lheure-des-choix)
-- **[CAN-J2] Un bon point de pris pour la RD Congo de Kakuta contre un favori, Hervé Koffi attend l’Algérie**: [Link](https://onefootball.com/pt-br/noticias/can-j2-un-bon-point-de-pris-pour-la-rd-congo-de-kakuta-contre-un-favori-herve-koffi-attend-lalgerie-42151685)
-- **Afrique: Revue de presse de l'Afrique francophone du 28 décembre 2025**: [Link](https://fr.allafrica.com/stories/202512280003.html)
-
-
-### barcelona vs real madrid (N/A, 30/12/2025 15:29 Lima)
-
-- **Espanyol y Barcelona disputan el derbi en el arranque del año**: [Link](https://www.espn.com.ar/futbol/espana/nota/_/id/16128843/espanyol-vs-barcelona-fecha-19-la-liga-equipo-fecha-hora-y-tv-en-vivo)
-- **Esperando el 3 de enero**: [Link](https://cronicaglobal.elespanol.com/culemania/hablemos-del-barca/20251228/esperando-enero/1003742719453_12.html)
-- **Manolo González y Hansi Flick: Así son los líderes del derbi más competido del siglo**: [Link](https://www.lavanguardia.com/deportes/rcde-espanyol/20251228/11397200/fuerza-conviccion.html)
-
-
-### tanzania vs (N/A, 30/12/2025 11:34 Lima)
-
-- **Preview: Tanzania vs Tunisia - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/tanzania/africa-cup-of-nations/preview/tanzania-vs-tunisia-prediction-team-news-lineups_588636.html)
-- **Tunisia coach Sami Trabelsi: 'Tactics are important, but without mental strength it’s difficult to win'- ahead of Tanzania clash**: [Link](https://boldsportsng.com/tunisia-coach-sami-trabelsi-tactics-are-important-but-without-mental-strength-its-difficult-to-win-ahead-of-tanzania-clash/)
-- **2025 AFCON Group C Match Preview: Tanzania vs Tunisia**: [Link](https://www.ghanaweb.com/GhanaHomePage/SportsArchive/2025-AFCON-Group-C-Match-Preview-Tanzania-vs-Tunisia-2015687)
-
-
-### al ahli vs (N/A, 30/12/2025 11:34 Lima)
-
-- **Hidd SCC vs Al-Ahli Prediction: 1/1/2026 – Premier League Betting Tips**: [Link](https://dailystar.com.lb/hidd-scc-vs-al-ahli-prediction-1-1-2026-premier-league/)
-- **Jaissle Explodes After the Defeat.. Reveals the Reason Behind the Loss to Al-Fateh**: [Link](https://www.ysscores.com/en/news/13879120/Jaissle-Explodes-After-the-Defeat..-Reveals-the-Reason-Behind-the-Loss-to-Al-Fateh)
-- **Al Ahli vs Al Fayha Preview & Prediction**: [Link](https://www.thestatszone.com/al-ahli-vs-al-fayha-preview-prediction-163311)
-
-
-### al ahli (N/A, 30/12/2025 11:34 Lima)
-
-- **Jaissle Explodes After the Defeat.. Reveals the Reason Behind the Loss to Al-Fateh**: [Link](https://www.ysscores.com/en/news/13879120/Jaissle-Explodes-After-the-Defeat..-Reveals-the-Reason-Behind-the-Loss-to-Al-Fateh)
-- **Al Ahli vs Al Fayha Preview & Prediction**: [Link](https://www.thestatszone.com/al-ahli-vs-al-fayha-preview-prediction-163311)
-- **Intriguing Reaction from José Gomes After Al-Fateh’s Win Over Al-Ahli in the Roshn League**: [Link](https://koorabreak.com/en/235926/)
 
 
