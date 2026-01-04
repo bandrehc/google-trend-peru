@@ -1,3 +1,38 @@
+### selena gomez (N/A, 03/01/2026 23:52 Lima)
+
+- **Selena Gomez & Karol G on their GOAT Spanish slang #goattalk**: [Link](https://www.yahoo.com/lifestyle/videos/selena-gomez-karol-g-goat-190450168.html)
+- **India Love clears up the "my ball" topic on #360withspeedy**: [Link](https://www.yahoo.com/lifestyle/videos/india-love-clears-ball-topic-140456161.html)
+- **Justin and Hailey Bieber Mark ‘10 New Years Together and Counting’ with Racy PDA Pic**: [Link](https://people.com/justin-hailey-bieber-mark-10-new-years-together-sexy-pda-photo-11878059)
+
+
+### warriors - jazz (N/A, 03/01/2026 23:52 Lima)
+
+- **Steph Curry, Jimmy Butler and Jonathan Kuminga are all …**: [Link](https://www.hoopshype.com/story/sports/nba/rumors/2026/01/03/steph-curry-jimmy-butler-and-jonathan-kuminga-are-all/88009849007/)
+- **Warriors vs Jazz LIVE Score Updates: Key match for the home team (58-65)**: [Link](https://www.vavel.com/en-us/nba/2026/01/04/1246066-warriors-vs-jazz-live-score-nba.html)
+- **NBA 2025-26 Free Live Streaming Online in India: Watch Golden State Warriors vs Utah Jazz Basketball Match**: [Link](https://www.latestly.com/sports/nba-2025-26-free-live-streaming-online-in-india-watch-golden-state-warriors-vs-utah-jazz-basketball-match-live-telecast-with-timing-in-ist-7261917.html)
+
+
+### roberto carlos jugador (N/A, 03/01/2026 23:52 Lima)
+
+- **Roberto Carlos, ingresado por un problema de corazón: “Estoy bien y vigilado”**: [Link](https://as.com/futbol/roberto-carlos-ingresado-en-brasil-por-un-problema-de-corazon-f202512-n/)
+- **Roberto Carlos, intervenido del corazón tras unas pruebas médicas en Brasil**: [Link](https://www.marca.com/futbol/real-madrid/2025/12/31/roberto-carlos-intervenido-corazon-pruebas-medicas-brasil.html)
+- **“No sufrí un infarto”: Roberto Carlos aclaró su estado de salud**: [Link](https://onefootball.com/es/noticias/no-sufri-un-infarto-roberto-carlos-aclaro-su-estado-de-salud-42167740)
+
+
+### sueldo docente (N/A, 03/01/2026 23:52 Lima)
+
+- **Aumento de remuneración de profesores se concreta: MEF destina S/208 millones para incremento**: [Link](https://www.infobae.com/peru/2025/12/27/aumento-de-remuneracion-de-profesores-se-concreta-mef-destina-s208-millones-para-incremento/)
+- **Docentes recibirán mejores sueldos: Minedu publica la escala magisterial 2026**: [Link](https://elcomercio.pe/respuestas/cuanto/docentes-recibiran-mejores-sueldos-minedu-publica-la-escala-magisterial-2026-tdpe-noticia/)
+- **Nuevo sueldo docente 2026: revisa los montos oficiales de la escala magisterial para este año**: [Link](https://libero.pe/tiempoextra/2026/01/03/nuevo-sueldo-docente-2026-revisa-montos-oficiales-de-escala-magisterial-ano-291672)
+
+
+### la luna llena (N/A, 03/01/2026 23:52 Lima)
+
+- **La superluna llena de enero, conocida como la luna del lobo, y la lluvia de meteoros Cuadrántidas dan inicio al nuevo año**: [Link](https://cnnespanol.cnn.com/2026/01/01/ciencia/superluna-lobo-lluvia-meteoros-cuadrantidas-2026-trax)
+- **Superluna de enero 2026: cuándo y cómo verla en Argentina**: [Link](https://www.infobae.com/america/ciencia-america/2026/01/03/superluna-de-enero-2026-cuando-y-como-verla-en-argentina/)
+- **Los 12 fenómenos astronómicos más espectaculares de 2026: desde un eclipse total hasta auroras impresionantes**: [Link](https://www.nationalgeographicla.com/espacio/2026/01/los-12-fenomenos-astronomicos-mas-espectaculares-de-2026-desde-un-eclipse-total-hasta-auroras-impresionantes)
+
+
 ### liga peruana de voley (N/A, 03/01/2026 21:23 Lima)
 
 - **Resultados de la fecha 11 de la Liga Peruana de Vóley 2025/2026 EN VIVO: Alianza Lima, Universitario y San Martín disputan liderazgo punto a punto**: [Link](https://www.infobae.com/peru/deportes/2026/01/03/resultados-de-la-fecha-11-de-la-liga-peruana-de-voley-20252026-en-vivo-asi-van-los-partidos-en-el-cierre-de-la-primera-fase/)
@@ -997,40 +1032,5 @@ hat-trick scorer**: [Link](https://www.vavel.com/en/football/2025/12/27/premier-
 - **¿Cuánto falta para el Año Nuevo 2026 en Chile? Revisa la hora oficial y evita confusiones**: [Link](https://www.meganoticias.cl/nacional/510799-cuanto-falta-ano-nuevo-2026-chile-hora-oficial-31-12-2025.html)
 - **¿Cuál es el horario de atención de Plaza Vea, Tottus, Metro, Makro y otros supermercados para este 31 de diciembre y 1 de enero de 2026?**: [Link](https://www.infobae.com/peru/2025/12/31/cual-es-el-horario-de-atencion-de-plaza-vea-tottus-metro-makro-y-otros-supermercados-para-este-31-de-diciembre-y-1-de-enero-de-2026/)
 - **Año Nuevo: Horarios de los supermercados para este 31 de diciembre y 1 de enero**: [Link](https://gestion.pe/peru/ano-nuevo-2026-los-horarios-de-los-supermercados-para-este-31-de-diciembre-y-1-de-enero-noticia/)
-
-
-### stranger things (N/A, 31/12/2025 21:22 Lima)
-
-- **What time does 'Stranger Things' come out? Finale release time**: [Link](https://www.azcentral.com/story/entertainment/television/2025/12/31/what-time-does-stranger-things-come-out/87965302007/)
-- **What time does the "Stranger Things" finale drop on Netflix?**: [Link](https://www.wcnc.com/article/news/nation-world/when-stranger-things-finale-drops-on-netflix-premiere-time/507-c25fcf2e-d4ef-4dc0-bb84-e260de3b6f4b)
-- **'Stranger Things' finale release time, date, how to watch last episode**: [Link](https://www.usatoday.com/story/entertainment/tv/2025/12/31/what-time-stranger-things-finale-season-5/87970465007/)
-
-
-### spurs - knicks (N/A, 31/12/2025 21:22 Lima)
-
-- **Knicks vs Spurs Picks & Odds Today: New York Rightful Road Underdog**: [Link](https://www.oddsshark.com/nba/knicks-spurs-picks-odds-december-31-2025)
-- **Updated Spurs' injury report ahead of NBA Cup Final rematch**: [Link](https://sports.yahoo.com/articles/updated-spurs-injury-report-ahead-143001488.html)
-- **NBA picks: Victor Wembanyama key to Knicks-Spurs same-game parlay for Dec. 31**: [Link](https://www.cbssports.com/nba/news/nba-picks-victor-wembanyama-is-the-key-to-this-knicks-vs-spurs-sgp-for-wednesday-dec-31/)
-
-
-### tarjetas de año nuevo (N/A, 31/12/2025 21:22 Lima)
-
-- **🙏🏻 Te enseño 25 tarjetas cristianas de ¡Feliz Año Nuevo 2026! con mensajes de fe y esperanza en EE.UU. y México**: [Link](https://elcomercio.pe/mag/respuestas/25-tarjetas-cristianas-de-feliz-ano-nuevo-2026-con-mensajes-de-fe-y-esperanza-en-eeuu-mexico-y-espana-nnda-nnrt-noticia/)
-- **💼 Elige 25 tarjetas bonitas de ¡Feliz Año Nuevo 2026! para enviar a clientes, amigos y familia**: [Link](https://elcomercio.pe/mag/respuestas/25-tarjetas-de-ano-nuevo-2026-para-clientes-amigos-y-familia-en-espana-nnda-nnrt-noticia/)
-- **🥳 Las mejores 50 frases por ¡Feliz Año Nuevo 2026! con imágenes GRATIS para enviar desde España, México y EE.UU.**: [Link](https://gestion.pe/mix/respuestas/50-frases-de-feliz-ano-nuevo-2026-con-imagenes-para-editar-gratis-y-compartir-en-espana-mexico-y-eeuu-nnda-nnrt-noticia/)
-
-
-### la tinka (N/A, 31/12/2025 21:22 Lima)
-
-- **Mira La Tinka EN VIVO del miércoles 31 de diciembre de 2025: resultados de hoy**: [Link](https://elcomercio.pe/respuestas/loterias/la-tinka-hoy-miercoles-31-de-diciembre-en-vivo-resultados-del-ultimo-sorteo-numeros-y-jugada-ganadora-pozo-millonario-loteria-si-o-si-boliyapa-intralot-lbposting-noticia/)
-- **Resultados La Tinka EN VIVO de HOY, miércoles 31 de diciembre: pozo millonario y cómo se juega**: [Link](https://libero.pe/ocio/2025/12/31/resultados-tinka-en-vivo-de-hoy-miercoles-31-de-diciembre-pozo-millonario-como-se-juega-intralot-pozo-millonario-1367250)
-- **Sorteo de La Tinka HOY miércoles 31 de diciembre de 2025: premios, jugada ganadora y Pozo Millonario**: [Link](https://larepublica.pe/sociedad/2025/12/31/sorteo-de-la-tinka-hoy-miercoles-31-de-diciembre-de-2025-premios-jugada-ganadora-y-pozo-millonario-atmp-2529390)
-
-
-### cuánto falta para año nuevo (N/A, 31/12/2025 21:22 Lima)
-
-- **¿Cuál es el país que recibe primero el Año Nuevo?**: [Link](https://cnnespanol.cnn.com/2025/12/30/mundo/pais-recibe-primero-anio-nuevo-trax)
-- **Año Nuevo 2026: las celebraciones y fiestas alrededor del mundo, en imágenes | Fotos | Internacional**: [Link](https://elpais.com/internacional/2025-12-31/ano-nuevo-las-celebraciones-y-fiestas-alrededor-del-mundo-en-imagenes.html)
-- **Feliz Año Nuevo 2026 EN VIVO: cómo se celebra en el Perú y en otros países del mundo | RESPUESTAS**: [Link](https://elcomercio.pe/respuestas/como/feliz-ano-nuevo-2026-en-vivo-como-se-celebra-en-peru-y-en-otros-paises-del-mundo-nochevieja-en-america-asia-europa-lbposting-noticia/)
 
 
