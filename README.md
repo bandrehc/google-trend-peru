@@ -1,3 +1,72 @@
+### twitch (N/A, 04/01/2026 15:28 Lima)
+
+- **The Most Popular Streamer on Twitch Is Now an AI Construct**: [Link](https://futurism.com/artificial-intelligence/ai-twitch-streamer-neuro-sama)
+- **AI-powered VTuber Neuro-Sama rewrites Twitch history by becoming the platform’s most subscribed streamer**: [Link](https://timesofindia.indiatimes.com/world/us-streamers/ai-powered-vtuber-neuro-sama-rewrites-twitch-history-by-becoming-the-platforms-most-subscribed-streamer/articleshow/126308833.cms)
+- **AI VTuber Neuro-sama becomes Twitch’s biggest streamer**: [Link](https://cybernews.com/ai-news/twitch-neuro-sama-reddit-vtuber/)
+
+
+### evangelio de hoy 4 de enero 2026 (N/A, 04/01/2026 15:28 Lima)
+
+- **Comentario al Evangelio del domingo 4 de enero de 2025**: [Link](https://www.ciudadredonda.org/events/comentario-al-evangelio-del-domingo-4-de-enero-de-2025/)
+- **Las Calendas de Navidad y la Epifanía del Señor**: [Link](https://desdelafe.mx/opinion-y-blogs/voz-del-obispo/las-calendas-de-navidad-y-la-epifania-del-senor/)
+- **“Mírale a él también humanado” (Epifanía del Señor 6 enero 2026)**: [Link](https://www.religiondigital.org/atrevete_a_orar/mirale-humanado-epifania-senor-6_132_1438718.html)
+
+
+### inter (N/A, 04/01/2026 15:28 Lima)
+
+- **Preview: Inter Milan vs Bologna - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/inter-milan/preview/inter-milan-vs-bologna-prediction-team-news-lineups_589013.html)
+- **Mkhitaryan Remains on the Bench in the First Match of 2026**: [Link](https://sportaran.com/en/post/mhitaryan-ostalsya-v-zapase-v-pervom-matche-2026-goda/)
+- **Bologna Given Massive Boost As Key Duo Set To Return For Trip To Inter Milan**: [Link](https://sempreinter.com/2026/01/04/inter-bologna-selection-heggem-ferguson/)
+
+
+### paris fc (N/A, 04/01/2026 15:28 Lima)
+
+- **Kevin Hatchard's European Tips: Back fireworks in Paris match**: [Link](https://betting.betfair.com/football/european-football-tips/kevin-hatchards-european-tips---fireworks-in-paris-match-020126-140.html)
+- **'It could be interesting if we manage to break free from it': Paris FC coach Stephane Gilli reveals key to troubling PSG**: [Link](https://tribuna.com/en/news/2026-01-04-it-could-be-interesting-if-we-manage-to-break-free-from-it-paris-fc-coach-stephane-gilli/)
+- **PSG boss Luis Enrique ready to embrace 'special' derby against Paris FC**: [Link](https://www.beinsports.com/en-us/soccer/ligue-1/articles/psg-boss-luis-enrique-ready-to-embrace-special-derby-against-paris-fc-2026-01-03)
+
+
+### chelsea football club (N/A, 04/01/2026 15:28 Lima)
+
+- **Club statement: Enzo Maresca | News | Official Site**: [Link](https://www.chelseafc.com/en/news/article/club-statement-enzo-maresca)
+- **Harry Redknapp blames Chelsea's sporting directors for area of squad that's 'not good enough'**: [Link](https://www.thechelseachronicle.com/news/harry-redknapp-blames-chelseas-sporting-directors-for-area-of-squad-thats-not-good-enough/)
+- **How did Pep Guardiola respond to journalists' questions about his future with Manchester City?**: [Link](https://foot-africa.com/en/news/how-did-pep-guardiola-respond-to-journalists-questions-about-his-future-with-manchester-city-1028225/)
+
+
+### real sociedad - atlético madrid (N/A, 04/01/2026 15:28 Lima)
+
+- **Real Sociedad - Atlético de Madrid, en directo: LaLiga EA Sports, en vivo hoy**: [Link](https://as.com/futbol/real-sociedad-atletico-de-madrid-en-directo-laliga-ea-sports-en-vivo-hoy-f202601-d/)
+- **Apuestas y Pronóstico del Real Sociedad vs Atlético Madrid 04/01/26**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2026/enero/pronostico-real-sociedad-vs-atletico-madrid-04-01-26)
+- **Anoeta, primer propósito**: [Link](https://www.pressreader.com/spain/as-valencia/20260104/281646786510426)
+
+
+### psg - paris fc (N/A, 04/01/2026 15:28 Lima)
+
+- **Pronostic PSG - Paris FC, Ligue 1**: [Link](https://www.sportytrader.com/pronostics/psg-paris-fc-315637/)
+- **[Podcasts] Le premier derby parisien de la saison ! – 04/01**: [Link](https://rmcsport.bfmtv.com/replay-emissions/bartoli-time/le-premier-derby-parisien-de-la-saison-04-01_EN-202601040304.html)
+- **Comment regarder Paris Saint-Germain - Paris FC ? Date, heure, streaming et comment regarder la Ligue 1 McDonald’s sur Ligue 1+, disponible sur DAZN​ | DAZN News FR**: [Link](https://www.dazn.com/fr-FR/news/football/comment-regarder-paris-saint-germain-paris-fc-date-heure-streaming-et-comment-regarder-la-ligue-1-mcdonalds-sur-ligue-1-disponible-sur-dazn/wqa4i552724p1qf7rtf9k2d2j)
+
+
+### inter - bolonia (N/A, 04/01/2026 15:28 Lima)
+
+- **Inter vs Bologna: ¡Incrementa tus ganancias hasta 200% con la Serie A en Meridianbet!**: [Link](https://ovacion.pe/noticias/nota-promocional/inter-vs-bologna-incrementa-tus-ganancias-hasta-200-serie-meridianbet)
+- **Serie A: Inter busca derrotar a Bologna para subirse al liderato**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-inter-busca-derrotar-a-bologna-para-subirse-al-liderato-noticia-1670133)
+- **La superestrella argentina regresará al XI del Inter de Milán para un enfrentamiento clave de la Serie A con el Bolonia**: [Link](https://www.elpueblo.pe/deportes/la-superestrella-argentina-regresara-al-xi-del-inter-de-milan-para-un-enfrentamiento-clave-de-la-serie-a-con-el-bolonia/191933/)
+
+
+### sudáfrica - camerún (N/A, 04/01/2026 15:28 Lima)
+
+- **Sudáfrica - Camerún, en directo: Copa África, hoy en vivo**: [Link](https://as.com/futbol/internacional/sudafrica-camerun-en-directo-copa-africa-hoy-en-vivo-f202601-n/)
+- **Sudáfrica vs Camerún EN VIVO: ¿a qué hora juegan y por dónde ver los octavos de final de la Copa Africana de Naciones?**: [Link](https://rpp.pe/futbol/futbol-mundial/sudafrica-vs-camerun-en-vivo-a-que-hora-juegan-y-donde-ver-octavos-de-copa-africana-de-naciones-2026-via-claro-sports-gratis-partidos-de-hoy-noticia-1670174)
+- **2B - 2F en directo - Copa de África: Resultados y resúmenes de Fútbol - 04/01/2026**: [Link](https://espanol.eurosport.com/futbol/copa-de-africa/2025/live-sudafrica-camerun_mtc1584179/live-commentary.shtml)
+
+
+### porto vs (N/A, 04/01/2026 15:28 Lima)
+
+- **Preview: Santa Clara vs Porto - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/santa-clara/preview/santa-clara-vs-porto-prediction-team-news-lineups_589091.html)
+- **Likely Porto line-up v Santa Clara features Diogo Costa and Borja**: [Link](https://onefootball.com/en/news/likely-porto-line-up-v-santa-clara-features-diogo-costa-and-borja-42178032)
+
+
 ### vuelos a aruba (N/A, 04/01/2026 11:30 Lima)
 
 - **Estados Unidos levantó las restricciones de vuelo en el Caribe implementadas tras el ataque sobre Venezuela**: [Link](https://www.infobae.com/venezuela/2026/01/04/estados-unidos-levantara-las-restricciones-de-vuelo-en-el-caribe-a-partir-de-este-domingo/)
@@ -962,75 +1031,5 @@ hat-trick scorer**: [Link](https://www.vavel.com/en/football/2025/12/27/premier-
 - **Partidos de hoy, jueves 1 de enero del 2026: horarios y canales TV para ver EN VIVO Premier League**: [Link](https://rpp.pe/futbol/futbol-mundial/partidos-de-hoy-peru-jueves-1-de-enero-del-2026-horarios-y-canales-tv-ver-futbol-en-vivo-noticia-1669828)
 - **La Premier League no se detiene: ¿qué partidos se jugarán el 1 de enero de 2026?**: [Link](https://depor.com/futbol-internacional/inglaterra/partidos-de-premier-league-del-1-de-enero-de-2026-liverpool-vs-leeds-y-sunderland-vs-manchester-city-noticia/)
 - **Con el foco en la Premier League y la NBA: las ocho propuestas deportivas para ver este 1° de enero**: [Link](https://www.infobae.com/deportes/2025/12/31/con-el-foco-en-la-premier-league-y-la-nba-las-ocho-propuestas-deportivas-para-ver-este-1-de-enero/)
-
-
-### clima (N/A, 01/01/2026 07:53 Lima)
-
-- **Feriado largo: Lima Metropolitana presentaría brillo solar hasta el 4 de enero**: [Link](https://elperuano.pe/noticia/286140-lima-metropolitana-presentaria-brillo-solar-y-temperaturas-templadas-durante-el-feriado-largo)
-- **SENAMHI: Pronóstico del clima hoy jueves 01 de enero 2026**: [Link](https://rpp.pe/peru/actualidad/senamhi-pronostico-del-clima-hoy-jueves-01-de-enero-2026-noticia-1669866)
-- **Lima tendrá brillo solar y clima templado en la primera semana del 2026, informa el Senamhi**: [Link](https://elcomercio.pe/lima/sucesos/lima-tendra-brillo-solar-y-clima-templado-en-la-primera-semana-del-2026-ultimas-noticia/)
-
-
-### peliculas (N/A, 01/01/2026 07:53 Lima)
-
-- **No sé si son las mejores, pero son mis favoritas: las 10 películas de 2025**: [Link](https://cnnespanol.cnn.com/2025/12/31/entretenimiento/10-peliculas-2025-orix)
-- **Las mejores películas de 2025**: [Link](https://www.infobae.com/malditos-nerds/2025/12/31/las-mejores-peliculas-de-2025/)
-- **Entre héroes, batallas y domingos: Las mejores películas de 2025**: [Link](https://www.ecartelera.com/noticias/heroes-batallas-domingos-mejores-peliculas-2025-82806/)
-
-
-### horario (N/A, 01/01/2026 07:53 Lima)
-
-- **Bancos en modo feriado**: [Link](https://caretas.pe/economia/bancos-en-modo-feriado/)
-- **¿Habrá atención de los bancos para este miércoles 31 de diciembre y jueves 1 de enero?**: [Link](https://larepublica.pe/economia/2025/12/29/horario-de-atencion-de-los-bancos-para-este-miercoles-31-de-diciembre-y-jueves-1-de-enero-bcp-interbank-bbva-scotiabank-y-banco-de-la-nacion-atmp-1443446)
-- **Horario de atención BCP, Banco de la Nación y Scotiabank este 31 de diciembre**: [Link](https://libero.pe/tiempoextra/2025/12/30/horario-de-atencion-bcp-banco-de-nacion-scotiabank-31-de-diciembre-1-de-enero-ano-nuevo-594450)
-
-
-### año nuevo película (N/A, 01/01/2026 03:35 Lima)
-
-- **Renueva tu energía en 2026: 9 películas para empezar el año con inspiración**: [Link](https://elcomercio.pe/respuestas/trends/renueva-tu-energia-en-2026-9-peliculas-para-empezar-el-ano-con-inspiracion-tdpe-noticia/)
-- **12 escenas de películas y series para sincronizar con Año Nuevo**: [Link](https://indiehoy.com/cine/12-escenas-de-peliculas-y-series-para-sincronizar-con-ano-nuevo/)
-- **12 películas para celebrar las 12 campanadas: los mejores títulos sobre fin de año que puedes ver en streaming**: [Link](https://www.20minutos.es/cinemania/noticias/nochevieja-pelicula-streaming-fin-ano_6913337_0.html)
-
-
-### chistes (N/A, 01/01/2026 03:35 Lima)
-
-- **El chiste malo de Cristina Pedroche en las Campanadas para dar la bienvenida al 2026: "¿Cuál es el único pez**: [Link](https://www.lasexta.com/programas/zapeando/chiste-malo-cristina-pedroche-campanadas-dar-bienvenida-2026-cual-unico-pez-que_202601016955c598af09df5010984c3a.html)
-- **Cristina Pedroche busca ideas para su 'chiste malo' de Nochevieja: "¿Propuestas?"**: [Link](https://www.lasexta.com/programas/zapeando/cristina-pedroche-busca-ideas-chiste-malo-nochevieja-propuestas_202512316954e4b9af09df501097d021.html)
-- **Siguen los cortes de luz en otro día de calor agobiante: el mapa en vivo con los barrios afectados en la Ciudad y el GBA**: [Link](https://www.clarin.com/sociedad/siguen-cortes-luz-dia-calor-agobiante-mapa-vivo-barrios-afectados_0_MVwIwuxdAZ.html)
-
-
-### paolo guerrero (N/A, 01/01/2026 03:35 Lima)
-
-- **Girotti obligado a marcar historia: Barcos y los delanteros extranjeros que pasaron por Alianza Lima**: [Link](https://depor.com/futbol-peruano/descentralizado/federico-girotti-objetivos-en-alianza-lima-2026-mision-de-superar-a-hernan-barcos-y-ultimos-delanteros-extranjeros-en-el-club-liga-1-noticia/)
-- **Prensa de Argentina destacó a laureado delantero que firmó con Alianza Lima por 3 años: "Notable"**: [Link](https://libero.pe/futbol-peruano/alianza-lima/2025/12/31/fichajes-liga-1-prensa-argentina-destaco-laureado-delantero-firmo-alianza-lima-3-anos-notable-3011340)
-- **“El debut contra Inter Miami va a ser hermoso”: así fue la presentación de Federico Girotti en Alianza Lima | VIDEO**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/alianza-lima-asi-fue-presentacion-de-federico-girotti-en-matute-debut-contra-inter-miami-va-a-ser-hermoso-video-noticia/)
-
-
-### new year's day (N/A, 01/01/2026 03:35 Lima)
-
-- **LIST: Which restaurants are open for New Year’s Eve, Day?**: [Link](https://www.wdhn.com/nyecoasttocoast/list-which-restaurants-are-open-for-new-years-eve-day/?nxsparam=1)
-- **Starbucks store hours for New Year's Eve and New Year's Day 2026**: [Link](https://finance.yahoo.com/news/starbucks-store-hours-years-eve-180700964.html)
-- **Are Dunkin Donuts outlets open on New Year’s Day 2026? Store timings and more to know**: [Link](https://www.primetimer.com/news/are-dunkin-donuts-outlets-open-on-new-year-s-day-2026-store-timings-and-more-to-know)
-
-
-### día de año nuevo (N/A, 01/01/2026 03:35 Lima)
-
-- **¿Puedes ducharte o lavar los platos el día de Año Nuevo? Creencias populares explicadas**: [Link](https://www.ucvradio.pe/noticias-del-mundo/puedes-ducharte-o-lavar-los-platos-el-dia-de-ano-nuevo-creencias-populares-explicadas/91220/)
-- **Qué no debes hacer hoy 31 de diciembre si quieres empezar bien el 2026**: [Link](https://abcnoticias.mx/tendencia/2025/12/31/que-no-debes-hacer-hoy-31-de-diciembre-si-quieres-empezar-bien-el-2026-269765.html)
-- **Las cinco actividades que no debes hacer en Año Nuevo porque alejan la buena fortuna**: [Link](https://emisorasunidas.com/tendencias/2025/12/31/5-actividades-que-alejan-la-buena-fortuna-en-ano-nuevo/)
-
-
-### bomberos emergencia (N/A, 01/01/2026 03:35 Lima)
-
-- **Incendio en VES: siniestro afecta a cuatro predios; bomberos logran controlar la emergencia en un 80 %**: [Link](https://rpp.pe/lima/actualidad/reportan-incendio-en-ves-siniestro-genera-caida-de-cenizas-a-varios-kilometros-de-distancia-noticia-1669851)
-- **Incendio en zona comercial de Villa El Salvador moviliza a 15 unidades de bomberos**: [Link](https://diariocorreo.pe/edicion/lima/incendio-en-zona-comercial-de-villa-el-salvador-moviliza-a-15-unidades-de-bomberos-noticia/)
-- **Dos incendios en la víspera de Año Nuevo: Reportan siniestro en Villa El Salvador**: [Link](https://panamericana.pe/locales/462428-incendios-vispera-ano-nuevo-reportan-siniestro-villa-salvador)
-
-
-### cohetes (N/A, 01/01/2026 03:35 Lima)
-
-- **Escombros de cohetes espaciales son de alto peligro para la aviación en nuestra región (2da parte)**: [Link](https://www.diariolibre.com/usa/opinion-usa/2025/12/31/escombros-de-cohetes-espaciales-de-alto-riesgo-para-nuestra-region/3390744)
-- **SpaceX puso en peligro a un avión de pasajeros por culpa de una explosión**: [Link](https://www.softonic.com/articulos/spacex-puso-en-peligro-a-un-avion-de-pasajeros-por-culpa-de-una-explosion)
-- **Xi dice que la reunificación es "imparable" tras maniobras**: [Link](https://www.dw.com/es/la-reunificaci%C3%B3n-es-imparable-dice-xi-tras-maniobras-chinas-cerca-de-taiw%C3%A1n/a-75350316)
 
 
