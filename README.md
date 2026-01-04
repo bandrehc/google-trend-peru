@@ -1,3 +1,73 @@
+### vuelos a aruba (N/A, 04/01/2026 11:30 Lima)
+
+- **Estados Unidos levantó las restricciones de vuelo en el Caribe implementadas tras el ataque sobre Venezuela**: [Link](https://www.infobae.com/venezuela/2026/01/04/estados-unidos-levantara-las-restricciones-de-vuelo-en-el-caribe-a-partir-de-este-domingo/)
+- **Cientos de vuelos cancelados en Puerto Rico y el Caribe tras ataques en Venezuela**: [Link](https://cnnespanol.cnn.com/2026/01/03/latinoamerica/video/vuelos-cancelados-puerto-rico-ataque-venezuela-tv)
+- **Fuerza Aérea de EE.UU. prohíbe operaciones en espacio aéreo venezolano en medio de ataques**: [Link](https://elcomercio.pe/mundo/actualidad/venezuela-fuerza-aerea-de-estados-unidos-prohibe-operaciones-en-espacio-aereo-venezolano-en-medio-de-ataques-noticia/)
+
+
+### liverpool vs (N/A, 04/01/2026 11:30 Lima)
+
+- **Premier League LIVE: Live text for four matches after Leeds draw with Man Utd - score, stats & updates**: [Link](https://www.bbc.com/sport/football/live/cdj8d4097k9t)
+- **Liverpool necesita volver a ganar en la Premier League a costa del Fulham**: [Link](https://www.espn.com.pe/futbol/inglaterra/nota/_/id/16142162/fulham-vs-liverpool-por-la-premier-league-equipo-fecha-hora-y-tv-en-vivo)
+- **Fulham vs Liverpool – Premier League EN VIVO: últimos resultados, noticias del equipo y actualizaciones del inicio RETRASADA debido a ‘emergencia médica’ y actualizaciones de otros partidos a las 3 p.m.**: [Link](https://www.ucvradio.pe/deporte/fulham-vs-liverpool-premier-league-en-vivo-ultimos-resultados-noticias-del-equipo-y-actualizaciones-del-inicio-retrasada-debido-a-emergencia-medica-y-actualizaciones-de-otros-partidos-a-las-3-p/94006/)
+
+
+### supercopa de españa (N/A, 04/01/2026 11:30 Lima)
+
+- **¿Cuándo juega el Barcelona la Supercopa de España? Fecha, horario y dónde ver por TV y en directo**: [Link](https://www.sport.es/es/noticias/barca/barcelona-supercopa-espana-fecha-horario-donde-ver-tv-directo-125349159)
+- **Supercopa de España 2026: cuándo es, partidos, horarios equipos y formato de este año**: [Link](https://www.marca.com/futbol/supercopa-espana/2026/01/02/supercopa-espana-2026-partidos-horarios-equipos-formato-ano.html)
+- **Barcelona vs Athletic Bilbao: previa, horario y cómo llegan para la llave 1 de la Supercopa de España**: [Link](https://www.t13.cl/noticia/deportes13/barcelona-vs-athletic-bilbao-previa-horario-y-como-llegan-para-la-llave-1-de-la-supercopa-de-espana)
+
+
+### tarjeta roja (N/A, 04/01/2026 11:30 Lima)
+
+- **Tarjeta roja: Frenkie de Jong**: [Link](https://cronicaglobal.elespanol.com/culemania/tarjetas-jornada/20260104/tarjeta-roja-frenkie-jong/1003742720757_0.html)
+- **"¿Por qué sigue jugando?": Los aficionados del Barcelona quieren que un jugador sea sustituido ante el Espanyol lo antes posible**: [Link](https://tribuna.com/es/blogs/por-que-sigue-jugando-los-aficionados-del-barcelona-quieren/)
+- **Napoli superó a Lazio y sigue en la pelea por la Serie A**: [Link](https://www.espn.com.ar/futbol/italia/nota/_/id/16144525/lazio-vs-napoli-serie-a-equipo-fecha-hora-y-tv-en-vivo)
+
+
+### marsella (N/A, 04/01/2026 11:30 Lima)
+
+- **Liga de Francia: Nantes espera frenar su racha negativa y vencer a Olympique de Marsella**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-de-francia-nantes-espera-frenar-su-racha-negativa-y-vencer-a-olympique-de-marsella-noticia-1670082)
+- **Pronóstico Marsella - Nantes - Ligue 1**: [Link](https://www.sportytrader.es/pronosticos/marsella-nantes-315488/)
+- **Olympique Marseille vs Nantes: pronósticos, cuotas, y datos para apostar!**: [Link](https://www.apwin.com/es/pronosticos/olympique-marseille-vs-nantes-pronostico-ligue-1-04-01-2026/)
+
+
+### tottenham (N/A, 04/01/2026 11:30 Lima)
+
+- **Espanyol vs. Barcelona (3 de Ene., 2026) Resultados en Vivo**: [Link](https://www.espn.com.pe/futbol/partido/_/juegoId/748319)
+- **Rayo vs. Getafe (2 de Ene., 2026) Resultados en Vivo**: [Link](https://www.espn.com.pe/futbol/partido/_/juegoId/748316)
+- **Tottenham vs. Sunderland (4 de Ene., 2026) Resultados en Vivo**: [Link](https://www.espn.com.pe/futbol/partido/_/juegoId/740786)
+
+
+### mbappe (N/A, 04/01/2026 11:30 Lima)
+
+- **Mbappé medical report**: [Link](https://www.realmadrid.com/en-US/news/football/first-team/medical-reports/parte-medico-de-mbappe-31-12-2025)
+- **Xabi Alonso: “Real Madrid are always looking to improve the squad”**: [Link](https://www.managingmadrid.com/coach/102341/xabi-alonso-real-madrid-are-always-looking-to-improve-the-squad)
+- **Why Isn’t Kylian Mbappe Playing Tonight for Real Madrid vs. Real Betis?**: [Link](https://www.yardbarker.com/soccer/articles/why_isnt_kylian_mbappe_playing_tonight_for_real_madrid_vs_real_betis/s1_17615_43284242)
+
+
+### tottenham vs (N/A, 04/01/2026 11:30 Lima)
+
+- **Tottenham half-time player ratings vs Sunderland – 7/10 for energetic winger**: [Link](https://www.spurs-web.com/tottenham-hotspur-fan-articles/tottenham-half-time-player-ratings-vs-sunderland-7-10-for-energetic-winger/)
+- **Starting XI: Will Regis Le Bris Make Changes For Sunderland’s Trip To Tottenham?**: [Link](https://rokerreport.sbnation.com/match-previews/120481/starting-xi-will-le-bris-make-changes-for-sunderlands-trip-to-tottenham)
+- **Confirmed line-ups | Spurs vs Sunderland**: [Link](https://www.tottenhamhotspur.com/news/2026/january/confirmed-line-ups-tottenham-hotspur-vs-sunderland/)
+
+
+### marruecos - tanzania (N/A, 04/01/2026 11:30 Lima)
+
+- **Marruecos - Tanzania, en directo: Copa África, hoy en vivo**: [Link](https://as.com/futbol/internacional/marruecos-tanzania-en-directo-copa-africa-hoy-en-vivo-f202601-n/)
+- **Marruecos - Tanzania en directo: Octavos de final de la Copa de Africa**: [Link](https://www.marca.com/futbol/copa-de-africa/marruecos-tanzania/2026/01/04/01_0167_20260104_1057_1888-directo.html)
+- **Regragui comparece con Saïss ante la prensa antes de octavos de la Copa África**: [Link](https://es.rue20.com/2026/01/02/regragui-comparece-con-saiss-ante-la-prensa-antes-de-octavos-de-la-copa-africa/)
+
+
+### nantes vs (N/A, 04/01/2026 11:30 Lima)
+
+- **OM 0-2 Nantes, Ligue 1 : résumé du match (04/01/2026)**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-1/2025-2026/om-nantes-live/675946)
+- **Comment regarder Olympique de Marseille - FC Nantes ? Date, heure, streaming et comment regarder la Ligue 1 McDonald’s sur Ligue 1+, disponible sur DAZN​**: [Link](https://www.dazn.com/fr-FR/news/football/comment-regarder-olympique-de-marseille-fc-nantes-date-heure-streaming-et-comment-regarder-la-ligue-1-mcdonalds-sur-ligue-1-disponible-sur-dazn/4448vbitpzkj1nj99yk24rwhy)
+- **Mené face au FC Nantes, l’expulsion d’Arthur Vermeeren ne fait pas les affaires de l’Olympique de Marseille (vidéos)**: [Link](https://www.lesoir.be/720260/article/2026-01-04/mene-face-au-fc-nantes-lexpulsion-darthur-vermeeren-ne-fait-pas-les-affaires-de)
+
+
 ### kick (N/A, 04/01/2026 03:34 Lima)
 
 - **The 5 Hottest Robinhood Stocks to Kick Off 2026**: [Link](https://www.fool.com/investing/2026/01/04/the-5-hottest-robinhood-stocks-to-kick-off-2026/)
@@ -962,75 +1032,5 @@ hat-trick scorer**: [Link](https://www.vavel.com/en/football/2025/12/27/premier-
 - **Escombros de cohetes espaciales son de alto peligro para la aviación en nuestra región (2da parte)**: [Link](https://www.diariolibre.com/usa/opinion-usa/2025/12/31/escombros-de-cohetes-espaciales-de-alto-riesgo-para-nuestra-region/3390744)
 - **SpaceX puso en peligro a un avión de pasajeros por culpa de una explosión**: [Link](https://www.softonic.com/articulos/spacex-puso-en-peligro-a-un-avion-de-pasajeros-por-culpa-de-una-explosion)
 - **Xi dice que la reunificación es "imparable" tras maniobras**: [Link](https://www.dw.com/es/la-reunificaci%C3%B3n-es-imparable-dice-xi-tras-maniobras-chinas-cerca-de-taiw%C3%A1n/a-75350316)
-
-
-### cuetes (N/A, 01/01/2026 03:35 Lima)
-
-- **Secretaría de Seguridad de Tijuana pide festejos responsables para recibir el Año Nuevo**: [Link](https://ksdy50.com/secretaria-de-seguridad-de-tijuana-pide-festejos-responsables-para-recibir-el-ano-nuevo/)
-- **#Morelia Llama Comisionado Alarcón A NO DISPARAR AL AIRE, Evita Tragedias Este Año Nuevo 2026**: [Link](https://changoonga.com/2025/12/31/morelia-llama-comisionado-alarcon-a-no-disparar-al-aire-evita-tragedias-este-ano-nuevo-2026/)
-- **Año Nuevo en Culiacán: confunden cuetes con disparos durante festejos en la madrugada**: [Link](https://oem.com.mx/elsoldesinaloa/local/ano-nuevo-en-culiacan-confunden-cuetes-con-disparos-durante-festejos-en-la-madrugada-27469599)
-
-
-### radio exitosa (N/A, 01/01/2026 03:35 Lima)
-
-- **Codeco emplaza a Ositran, Mincetur, Minsa e Indocopi a proteger a usuarios por colisión de trenes en Cusco**: [Link](https://comunicaciones.congreso.gob.pe/damos-cuenta/codeco-emplaza-a-ositran-mincetur-minsa-e-indocopi-a-proteger-a-usuarios-por-colision-de-trenes-en-cusco/)
-- **Inician diligencias tras choque de trenes en vía Machu Picchu que dejó un fallecido y más de 100 heridos**: [Link](https://lpderecho.pe/inician-diligencias-choque-trenes-via-machu-picchu-dejo-fallecido-100-heridos/)
-- **Presidente Jerí: somos un Gobierno que está en el lugar de los hechos y trabajando rápidamente**: [Link](https://elperuano.pe/noticia/286215-presidente-jeri-somos-un-gobierno-que-esta-en-el-lugar-de-los-hechos-y-trabajando-rapidamente)
-
-
-### calendario (N/A, 01/01/2026 03:35 Lima)
-
-- **Calendario del equipo de cricket masculino de la India 2026: fechas, series y sedes**: [Link](https://www.ucvradio.pe/deporte/calendario-del-equipo-de-cricket-masculino-de-la-india-2026-fechas-series-y-sedes/91193/)
-- **¿Hoy 31 de diciembre es feriado? Conoce tus derechos laborales antes de salir del trabajo**: [Link](https://www.elperuano.pe/noticia/286207-hoy-31-de-diciembre-es-feriado-conoce-tus-derechos-laborales-antes-de-salir-del-trabajo)
-- **¿Qué días son feriados 2026 en el Perú?**: [Link](https://www.americatv.com.pe/noticias/util-e-interesante/feriados-2026-lugares-cerca-lima-tomar-minivacaciones-n501166)
-
-
-### cuenta regresiva año nuevo (N/A, 31/12/2025 23:51 Lima)
-
-- **Times Square estrena una deslumbrante bola de Año Nuevo, la más grande hasta ahora**: [Link](https://cnnespanol.cnn.com/2025/12/31/mundo/times-square-bola-ano-nuevo-2026-trax)
-- **Nueva York celebra el Año Nuevo, y también la historia del Times**: [Link](https://www.nytimes.com/es/2025/12/31/espanol/estados-unidos/ano-nuevo-times-square-bola.html)
-- **HISTÓRICO en Nueva York: Times Square alista la lluvia de confeti más grande jamás vista para dar la bienvenida a 2026**: [Link](https://libero.pe/estados-unidos/2025/12/31/nueva-york-times-square-rompera-record-lluvia-de-confeti-sin-precedentes-2026-lbeu-2145479)
-
-
-### radio (N/A, 31/12/2025 23:51 Lima)
-
-- **Arch Manning juega Texas vs Michigan en el Citrus Bowl**: [Link](https://www.ucvradio.pe/noticias-del-mundo/arch-manning-juega-texas-vs-michigan-en-el-citrus-bowl/90982/)
-- **Arch Manning (4 TD), el No. 13 Texas derrota al No. 18 Michigan**: [Link](https://www.elpueblo.pe/deportes/arch-manning-4-td-el-no-13-texas-derrota-al-no-18-michigan/189944/)
-- **Después de ganar el MVP del Citrus Bowl como lo hizo su tío Peyton, Arch Manning bromea: “No quiero tener que jugar dos veces”.**: [Link](https://www.ucvradio.pe/noticias-del-mundo/despues-de-ganar-el-mvp-del-citrus-bowl-como-lo-hizo-su-tio-peyton-arch-manning-bromea-no-quiero-tener-que-jugar-dos-veces/91020/)
-
-
-### tinka resultados (N/A, 31/12/2025 23:51 Lima)
-
-- **Resultados de la La Tinka: números ganadores del sorteo del miércoles 31 de diciembre**: [Link](https://elcomercio.pe/respuestas/loterias/resultados-de-la-tinka-hoy-31-de-diciembre-en-vivo-ultimo-sorteo-del-miercoles-ver-numeros-y-jugada-ganadora-tinkanet-pozo-millonario-resultado-si-o-si-boliyapa-intralot-lbposting-noticia/)
-- **Resultados La Tinka EN VIVO de HOY, miércoles 31 de diciembre: pozo millonario y cómo se juega**: [Link](https://libero.pe/ocio/2025/12/31/resultados-tinka-en-vivo-de-hoy-miercoles-31-de-diciembre-pozo-millonario-como-se-juega-intralot-pozo-millonario-1367250)
-- **Sorteo de La Tinka HOY miércoles 31 de diciembre de 2025: premios, jugada ganadora y Pozo Millonario**: [Link](https://larepublica.pe/sociedad/2025/12/31/sorteo-de-la-tinka-hoy-miercoles-31-de-diciembre-de-2025-premios-jugada-ganadora-y-pozo-millonario-atmp-2529390)
-
-
-### cotización dólar oficial dólar blue hoy (N/A, 31/12/2025 23:51 Lima)
-
-- **Argentina: dólar blue hoy a cuánto cotiza este miércoles 31 de diciembre**: [Link](https://rpp.pe/mundo/argentina/argentina-dolar-blue-hoy-a-cuanto-cotiza-este-miercoles-31-de-diciembre-noticia-1669780)
-- **Dólar hoy y dólar blue hoy: cuál es la cotización del miércoles 31 de diciembre minuto a minuto**: [Link](https://www.cronista.com/finanzas-mercados/dolar-hoy-y-dolar-blue-hoy-cual-es-la-cotizacion-del-miercoles-31-de-diciembre-minuto-a-minuto/)
-- **Dólar HOY: cotización del dólar oficial y precios del miércoles 31 de diciembre**: [Link](https://www.tycsports.com/interes-general/dolar-hoy-cotizacion-del-dolar-oficial-y-precios-del-miercoles-31-de-diciembre-id706037.html)
-
-
-### juegos (N/A, 31/12/2025 23:51 Lima)
-
-- **Cuáles son los juegos de PlayStation Plus para enero de 2026**: [Link](https://www.infobae.com/tecno/2025/12/31/cuales-seran-los-juegos-de-playstation-plus-para-enero-de-2026/)
-- **Se filtra uno de los juegos de PS Plus Essential para enero de 2026 horas antes del anuncio oficial**: [Link](https://vandal.elespanol.com/noticia/1350786247/se-filtra-uno-de-los-juegos-de-ps-plus-essential-para-enero-de-2026-horas-antes-del-anuncio-oficial/)
-- **Si eres suscriptor de PS Plus en PS4, hay malas noticias en 2026: vas a pagar lo mismo que el resto por menos juegos**: [Link](https://www.vidaextra.com/ps4/eres-suscriptor-ps-plus-ps4-hay-malas-noticias-2026-vas-a-pagar-resto-juegos)
-
-
-### stake (N/A, 31/12/2025 23:51 Lima)
-
-- **Gordon Monson: Uh-oh. Did Utah’s Utes play too well against Nebraska in the Vegas Bowl?**: [Link](https://www.sltrib.com/sports/utah-utes/2025/12/31/utah-footballs-morgan-scalley-era/)
-- **Where to watch Nebraska vs. Utah: TV channel, stream, Las Vegas Bowl odds, prediction, pick**: [Link](https://www.cbssports.com/college-football/news/nebraska-utah-prediction-pick-odds-spread-where-to-watch-las-vegas-bowl-live/)
-- **Nebraska vs. Utah recap, stats and highlights**: [Link](https://cornhuskerswire.usatoday.com/story/sports/college/cornhuskers/football/2025/12/31/nebraska-vs-utah-live-updates-stats-and-highlights/87971675007/)
-
-
-### hora mexico (N/A, 31/12/2025 23:51 Lima)
-
-- **La Superluna y la lluvia de meteoritos coinciden en enero, pero un detalle podría arruinar el espectáculo: esto se sabe**: [Link](https://elcomercio.pe/mag/respuestas/ciencias/la-superluna-y-la-lluvia-de-meteoritos-coinciden-en-enero-pero-un-detalle-podria-arruinar-el-espectaculo-esto-se-sabe-nnda-nnrt-noticia/)
-- **Los eventos astronómicos que harán de 2026 un año inolvidable en el cielo**: [Link](https://www.infobae.com/salud/ciencia/2025/12/31/los-eventos-astronomicos-que-haran-de-2026-un-ano-inolvidable-en-el-cielo-2/)
-- **¿Por qué se le conoce como Luna de Lobo? Origen y significado de la luna llena de enero**: [Link](https://www.marca.com/mx/actualidad/sociedad/2025/12/31/6955997746163fb6568b456c.html)
 
 
