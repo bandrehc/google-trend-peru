@@ -1,3 +1,73 @@
+### leicester city (N/A, 05/01/2026 15:31 Lima)
+
+- **Leicester City sign FC Rosengård midfielder Jansson**: [Link](https://sports.yahoo.com/articles/leicester-city-sign-fc-roseng-181200456.html)
+- **Leicester City sign Swede Jansson from Rosengard**: [Link](https://sports.yahoo.com/articles/leicester-city-sign-swede-jansson-184659539.html)
+- **Leicester City sign Swede Jansson from Rosengard**: [Link](https://www.bbc.com/sport/football/articles/cd6w0wd8nxqo)
+
+
+### montpellier vs (N/A, 05/01/2026 15:31 Lima)
+
+- **Ligue 2 : "On n’est pas dans la situation de l'ASSE"**: [Link](https://peuple-vert.fr/ligue-2/ligue-2-on-nest-pas-dans-la-situation-de-lasse/)
+- **DIRECT MHSC-Dunkerque : Montpellier perd déjà Chennahi sur blessure après un choc, Fayad entre**: [Link](https://www.midilibre.fr/2026/01/05/direct-mhsc-dunkerque-pour-la-reprise-montpellier-ne-peut-pas-perdre-le-nord-ce-lundi-a-20-h-45-13145234.php)
+- **En 2026, régler la mire pour viser plus haut**: [Link](https://onefootball.com/fr/news/en-2026-regler-la-mire-pour-viser-plus-haut-42183086)
+
+
+### perú (N/A, 05/01/2026 15:31 Lima)
+
+- **Mario Vizcarra: JEE Lima Centro 1 aceptó tachas en su contra y declaró improcedente la inscripción de su candidatura presidencial**: [Link](https://rpp.pe/politica/elecciones/elecciones-2026-jee-lima-centro-1-acepta-tachas-contra-mario-vizcarra-y-declara-improcedente-inscripcion-de-formula-presidencial-de-peru-primero-noticia-1670350)
+- **Elecciones 2026: Perú Primero denuncia a Luz Pacheco por presunta injerencia electoral**: [Link](https://gestion.pe/peru/politica/elecciones-2026-peru-primero-denuncia-a-luz-pacheco-por-comentarios-sobre-mario-vizcarra-noticia/)
+- **JEE deja fuera a Mario Vizcarra y declara improcedente la lista presidencial de Perú Primero**: [Link](https://caretas.pe/politica/jee-deja-fuera-a-mario-vizcarra-y-declara-improcedente-la-lista-presidencial-de-peru-primero/)
+
+
+### leicester city - albion (N/A, 05/01/2026 15:31 Lima)
+
+- **Leicester City v West Bromwich Albion: Championship stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cvg5rywg7qyt)
+- **'Own it and perform': West Brom boss fires out demand ahead of Leicester trip**: [Link](https://www.expressandstar.com/sport/football/west-bromwich-albion/2026/01/05/own-it-and-perform-west-brom-boss-fires-out-demand-ahead-of-leicester-trip/)
+- **Leicester vs WBA: Lineups, Prediction, Odds, and 5/1 Betting Tip**: [Link](https://www.oddschecker.com/tips/football/20260105-leicester-vs-wba-lineups-prediction-odds-and-5-1-betting-tip)
+
+
+### nigeria (N/A, 05/01/2026 15:31 Lima)
+
+- **Days After U.S. Strikes in Nigeria, Gunmen Kill Dozens of Villagers**: [Link](https://www.nytimes.com/2026/01/04/world/africa/nigeria-killings-niger-state.html)
+- **Gunmen raid village in northern Nigeria, killing at least 30 people and abducting others**: [Link](https://abcnews.go.com/International/wireStory/gunmen-raid-village-northern-nigeria-killing-30-people-128884984)
+- **Niger state: At least 30 killed in Kasuwan-Daji village attack in Nigeria**: [Link](https://www.bbc.com/news/articles/c0r4nwy7k48o)
+
+
+### nigeria vs (N/A, 05/01/2026 15:31 Lima)
+
+- **CAN 2025 – Round of 16 / Nigeria – Mozambique: XXL bonuses promised to the Super Eagles!**: [Link](https://foot-africa.com/en/news/can-2025-round-of-16-nigeria-mozambique-xxl-bonuses-promised-to-the-super-eagles-1030031/)
+- **LIVE: AFCON 2025 - Rolling updates of today’s action and key moments (5 January)**: [Link](https://www.cafonline.com/afcon2025/news/live-afcon-2025-rolling-updates-of-today-s-action-and-key-moments-5-january/)
+- **‘We’ve seen the team’ - Super Eagles captain warns teammates against complacency ahead of Mozambique clash**: [Link](https://www.pulsesports.ng/football/story/weve-seen-the-team-super-eagles-captain-warns-teammates-against-complacency-ahead-of-mozambique-clash-2026010509112188342)
+
+
+### groenlandia (N/A, 05/01/2026 15:31 Lima)
+
+- **Groenlandia no está en venta: autoridades reaccionan a imagen compartida por entorno de Trump**: [Link](https://gestion.pe/mundo/groenlandia-y-eeuu-advertencias-diplomaticas-tras-publicacion-en-redes-noticia/)
+- **Primera ministra de Dinamarca enfrenta a Donald Trump: “Respeten nuestra soberanía”**: [Link](https://diariocorreo.pe/mundo/primera-ministra-de-dinamarca-enfrenta-a-donald-trump-respeten-nuestra-soberania-noticia/)
+- **Estados Unidos metido en otro lío: País europeo molesto por pretensión de adueñarse de su territorio**: [Link](https://www.apnoticias.pe/peru/exitosa-noticias/estados-unidos-metido-en-otro-lio-pais-europeo-molesto-por-pretension-de-aduenarse-de-su-territorio-1481530)
+
+
+### joao cancelo (N/A, 05/01/2026 15:31 Lima)
+
+- **Inter Milan president confirms talks for €10 million-rated former Juventus defender amid Barcelona links**: [Link](https://semprebarca.com/inter-milan-president-confirms-talks-for-e10-million-rated-former-juventus-defender-amid-barcelona-links/)
+- **Former Barcelona star ‘dreams’ of return to the club**: [Link](https://getfootballnewsspain.com/former-barcelona-star-dreams-of-return-to-the-club/)
+- **Inter Chief Marotta confirms Cancelo talks, but no offers received for Frattesi**: [Link](https://tribuna.com/en/news/2026-01-05-inter-chief-marotta-confirms-cancelo-talks-but-no-offers-received-for-frattesi/)
+
+
+### julian assange (N/A, 05/01/2026 15:31 Lima)
+
+- **Venezuela Live Updates: Maduro Tells U.S. Judge He Was ‘Kidnapped’ in Trump's Military Raid**: [Link](https://www.nytimes.com/live/2026/01/05/world/venezuela-maduro-trump)
+- **'I'm a prisoner of war' - In the room for Maduro's dramatic court hearing**: [Link](https://www.bbc.com/news/articles/cq6v25eldmdo)
+- **Who is Alvin Hellerstein? 92-year-old hush money judge tapped for Maduro case**: [Link](https://www.nbcnewyork.com/new-york-city/maduro-court-appearance-judge-alvin-hellerstein/6439171/)
+
+
+### galatasaray - trabzonspor (N/A, 05/01/2026 15:31 Lima)
+
+- **Süper Kupa’da ilk finalist Galatasaray**: [Link](https://medyascope.tv/2026/01/05/super-kupa-da-ilk-finalist-galatasaray/)
+- **ÇÖKÜŞ!**: [Link](https://www.trabzonx.com/yazarlar/huseyin-terzi/cokus/1164/)
+- **Fatih Tekke maç öncesi 3 isim için konuştu: Forma ihtimalini yorumladı**: [Link](https://www.ntvspor.net/foto-galeri/fatih-tekke-mac-oncesi-3-isim-icin-konustu-forma-ihtimalini-yorumladi-415590)
+
+
 ### egipto - benín (N/A, 05/01/2026 11:34 Lima)
 
 - **Egipto vs Benin: Alineaciones, estadísticas y pronóstico**: [Link](https://www.365scores.com/es/football/match/africa-cup-of-nations-167/benin-egypt-5098-5100-167)
@@ -957,75 +1027,5 @@ Sin noticias relacionadas disponibles.
 - **Nombre oficial del 2026 en el Perú: cuál será la denominación de este año**: [Link](https://elcomercio.pe/respuestas/tramites/cual-sera-el-nombre-oficial-del-ano-2026-en-peru-tdpe-noticia/)
 - **Nombre del Año 2026 en Perú: ¿cómo se decide, para qué sirve y qué nombres eligieron los años anteriores?**: [Link](https://larepublica.pe/datos-lr/2025/12/30/nombre-del-ano-2026-en-peru-como-se-decide-para-que-sirve-y-que-nombres-eligieron-los-anos-anteriores-atmp-1142280)
 - **Dime tu nombre y te diré cuál será arcano del año 2026**: [Link](https://www.buzzfeed.com/mx/ameyalli16/dime-tu-nombre-y-te-dire-cual-sera-arcano-del-ano-2026)
-
-
-### sga (N/A, 02/01/2026 11:32 Lima)
-
-- **Shai Gilgeous-Alexander Is SI’s 2025 Sportsperson of the Year**: [Link](https://www.si.com/sportsperson/shai-gilgeous-alexander-is-2025-sportsperson-of-the-year)
-- **Who was the NBA Player of the Year for 2025?**: [Link](https://www.nba.com/news/nba-player-of-year-for-2025)
-- **Shai Gilgeous-Alexander named SI’s 2025 Sportsperson of the Year**: [Link](https://www.usatoday.com/story/sports/nba/thunder/2026/01/02/shai-gilgeous-alexander-sports-illustrated-sportsperson-of-the-year/87990508007/)
-
-
-### clima de hoy (N/A, 02/01/2026 07:53 Lima)
-
-- **SENAMHI: Pronóstico del clima hoy viernes 02 de enero 2026**: [Link](https://rpp.pe/peru/actualidad/senamhi-pronostico-del-clima-hoy-viernes-02-de-enero-2026-noticia-1669948)
-- **El pronóstico del tiempo para los próximos cuatro días en el país**: [Link](https://caretas.pe/nacional/el-pronostico-del-tiempo-para-los-proximos-cuatro-dias-en-el-pais/)
-- **Senamhi: temperatura llegará a los 35 °C en Año Nuevo en estas tres regiones del Perú**: [Link](https://www.infobae.com/peru/2025/12/31/senamhi-temperatura-llegara-a-los-35-c-en-ano-nuevo-en-estas-tres-regiones-del-peru/)
-
-
-### hoy es feriado (N/A, 02/01/2026 07:53 Lima)
-
-- **¿Atenderán los centros comerciales en el feriado del 1 de enero de 2026? Estos son los horarios de Plaza Norte, Megaplaza, Mall y Real Plaza**: [Link](https://www.infobae.com/peru/2025/12/30/atenderan-los-centros-comerciales-en-el-feriado-del-1-de-enero-de-2026-estos-son-los-horarios-de-plaza-norte-megaplaza-mall-y-real-plaza/)
-- **Año Nuevo: Horarios de los supermercados para este 1 de enero**: [Link](https://gestion.pe/peru/ano-nuevo-2026-los-horarios-de-los-supermercados-para-este-31-de-diciembre-y-1-de-enero-noticia/)
-- **Así funcionará el comercio HOY jueves 1 de enero**: [Link](https://www.t13.cl/noticia/te-puede-servir/asi-funcionara-comercio-hoy-jueves-1-enero-1-1-2026)
-
-
-### servicio militar (N/A, 02/01/2026 07:53 Lima)
-
-- **Servicio Militar: conoce las nuevas disposiciones que mejoran derechos y regularizan inscripciones**: [Link](https://elperuano.pe/noticia/286266-servicio-militar-conoce-las-nuevas-disposiciones-que-mejoran-derechos-y-regularizan-inscripciones)
-- **Gobierno aprueba cambios a la ley del Servicio Militar: Los detalles**: [Link](https://gestion.pe/peru/gobierno-aprueba-cambios-a-la-ley-del-servicio-militar-los-detalles-noticia/)
-- **Gobierno oficializa decreto supremo que modifica el reglamento de la Ley del Servicio Militar**: [Link](https://peru21.pe/peru/gobierno-oficializa-decreto-supremo-que-modifica-el-reglamento-de-la-ley-del-servicio-militar/)
-
-
-### arley rodríguez (N/A, 02/01/2026 03:36 Lima)
-
-- **Reencuentro con viejos amigos: FC Cajamarca fichó a otro bicampeón con Alianza Lima**: [Link](https://depor.com/futbol-peruano/descentralizado/arley-rodriguez-jugara-en-fc-cajamarca-ex-alianza-lima-sera-companero-de-hernan-barcos-y-pablo-lavandeira-noticia/)
-- **Mr. Peet señaló al responsable de la salida de Pablo Lavandeira de Alianza Lima: “No encuentro un jugador de sus características en el club”**: [Link](https://www.infobae.com/peru/deportes/2025/12/30/mr-peet-senalo-al-responsable-de-la-salida-de-pablo-lavandeira-de-alianza-lima-no-encuentro-un-jugador-de-sus-caracteristicas-en-el-club/)
-- **Arley Rodríguez fichó por llamativo club de la Liga 1**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/arley-rodriguez-dejo-real-cartagena-y-ficho-club-liga-1-n452169)
-
-
-### millie bobby brown (N/A, 02/01/2026 03:36 Lima)
-
-- **The Duffer Brothers Dive Deep Into the Emotional Stranger Things Series Finale**: [Link](https://www.netflix.com/tudum/features/stranger-things-series-finale-duffer-brothers-interview)
-- **Stranger Things draws to an epic and emotional close**: [Link](https://www.bbc.com/news/articles/ckgl2je05j0o)
-- **‘Stranger Things’ Finale Spoiler Interview: Duffer Brothers on Whether Eleven Is Alive, Debating Who Got to Kill [SPOILER] and Why the Rock From the Briefcase Is Key to the Spinoff**: [Link](https://variety.com/2026/tv/news/stranger-things-finale-is-eleven-alive-vecna-killed-rock-spinoff-1236621528/)
-
-
-### japon (N/A, 02/01/2026 03:36 Lima)
-
-- **Infos Locales au Japon vous souhaite une merveilleuse année 2026 !**: [Link](https://infoslocalesaujapon.org/infos-locales-au-japon-vous-souhaite-une-merveilleuse-annee-2026/)
-- **Un séisme de magnitude 6,0 frappe le nord du Japon**: [Link](https://www.aa.com.tr/fr/monde/un-s%C3%A9isme-de-magnitude-6-0-frappe-le-nord-du-japon/3786395)
-- **Japon: un séisme de magnitude 5,6 au nord du pays**: [Link](https://www.yenisafak.com/fr/societe/japon-un-seisme-de-magnitude-56-au-nord-du-pays-51283)
-
-
-### tommy lee jones (N/A, 02/01/2026 03:36 Lima)
-
-- **Tommy Lee Jones' Daughter Victoria Found Dead at San Francisco Hotel**: [Link](https://www.tmz.com/2026/01/01/tommy-lee-jones-daughter-victoria-dead/)
-- **Woman found dead at SF hotel believed to be daughter of actor Tommy Lee Jones**: [Link](https://www.nbcbayarea.com/news/local/woman-found-dead-sf-hotel/4006464/)
-- **Hollywood icon Tommy Lee Jones's child star daughter found dead in luxury hotel aged just 34**: [Link](https://www.dailymail.co.uk/tvshowbiz/article-15428013/tommy-lee-jones-daughter-victoria-dead-hotel-room.html)
-
-
-### mavericks - 76ers (N/A, 01/01/2026 23:46 Lima)
-
-- **Mavericks vs 76ers Preview and Injury Update: Philly comes to Dallas**: [Link](https://www.mavsmoneyball.com/mavericks-game-previews/54298/mavericks-vs-76ers-preview-start-time-tv-stream-injury-report-how-to-watch)
-- **Instant observations: Joel Embiid, Tyrese Maxey, Paul George finally figuring out their fit as Sixers nab second straight win**: [Link](https://www.phillyvoice.com/sixers-vs-mavericks-mavs-box-score-stats-highlights-tyrese-maxey-joel-embiid-vj-edgecombe-quentin-grimes-trade-caleb-martin/)
-- **Sixers takeaways: Big Three thrives, Quentin Grimes adjusting to new role, and more from win over Mavericks**: [Link](https://www.inquirer.com/sixers/sixers-takeaways-dallas-mavericks-tyrese-maxey-joel-embiid-paul-george-quentin-grimes-vj-edgecombe-cooper-flagg-20260101.html)
-
-
-### denzel washington (N/A, 01/01/2026 23:46 Lima)
-
-- **21 Years Later, Netflix Is Streaming an Action Thriller Classic Ahead of Their "Fantastic" Reboot**: [Link](https://movieweb.com/netflix-man-on-fire-denzel-washington-action-thriller-stream-january-2026/)
-- **Netflix Is About to Lose One of My Favorite Action-Thrillers Ever**: [Link](https://www.yahoo.com/entertainment/movies/articles/netflix-lose-one-favorite-action-131559404.html)
-- **Denzel Washington's Mystery Masterpiece Is Heading to a New Streamer**: [Link](https://collider.com/denzel-washington-mystery-movie-inside-man-streaming-starz-january-2026/)
 
 
