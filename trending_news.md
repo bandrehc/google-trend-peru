@@ -1,3 +1,24 @@
+### adolfo chuiman (N/A, 04/01/2026 23:59 Lima)
+
+- **La emotiva vida y carrera de Adolfo Chuiman**: [Link](https://www.atv.pe/noticia/la-emotiva-vida-y-carrera-de-adolfo-chuiman/)
+- **Adolfo Chuiman sobre 'Al fondo hay sitio': "Le están sacando el jugo"**: [Link](https://www.expreso.com.pe/entretenimiento/adolfo-chuiman-sobre-al-fondo-hay-sitio-le-estan-sacando-el-jugo-afhs-america-tv-noticia/1252184/)
+- **Adolfo Chuiman respalda las críticas de David Almandoz sobre el desgaste de ‘Al Fondo Hay Sitio’**: [Link](https://www.infobae.com/peru/2025/12/30/adolfo-chuiman-respalda-las-criticas-de-david-almandoz-sobre-el-desgaste-de-al-fondo-hay-sitio/)
+
+
+### marty supreme (N/A, 04/01/2026 23:59 Lima)
+
+- **Kylie Jenner Wears Plunging Skin-Tight Dress to Support Boyfriend Timothée Chalamet at Critics Choice Awards 2026**: [Link](https://people.com/critics-choice-awards-2026-timothee-chalamet-kylie-jenner-photos-11877976)
+- **Timothée Chalamet’s 'special person' cheers him as he gets award**: [Link](https://www.thenews.com.pk/latest/1387232-kylie-jenner-shows-support-for-timothee-chalamet-as-he-gets-award-for-marty-supreme)
+- **Fans Troll Timothée Chalamet’s Slim Physique Following His Public Outing With Kylie Jenner**: [Link](https://www.aol.com/articles/she-more-masculine-timmy-timoth-213820908.html)
+
+
+### lakers - grizzlies (N/A, 04/01/2026 23:59 Lima)
+
+- **JJ Redick says LeBron James was ‘phenomenal’ down stretch against Grizzlies**: [Link](https://www.silverscreenandroll.com/lakers-news/104105/jj-redick-lebron-james-lakers-grizzlies-fourth-quarter)
+- **Lakers News: Jake LaRavia Continuing To Trust Jump Shot Despite Struggles**: [Link](https://lakersnation.com/lakers-news-jake-laravia-continuing-to-trust-jump-shot-despite-struggles/)
+- **“Get Downhill”: Luka Dončić Explains How He and LeBron James Seized Control in Crucial Win vs. Grizzlies**: [Link](https://thesportsrush.com/nba-news-get-downhill-luka-doncic-explains-how-he-and-lebron-james-seized-control-in-crucial-win-vs-grizzlies/)
+
+
 ### suns - thunder (N/A, 04/01/2026 21:23 Lima)
 
 - **Suns eager to avenge historic blowout loss to Thunder**: [Link](https://www.thesportsleader.com/2026/01/03/suns-eager-to-avenge-historic-blowout-loss-to-thunder/)
@@ -1010,26 +1031,5 @@ hat-trick scorer**: [Link](https://www.vavel.com/en/football/2025/12/27/premier-
 - **¿Atenderán los centros comerciales en el feriado del 1 de enero de 2026? Estos son los horarios de Plaza Norte, Megaplaza, Mall y Real Plaza**: [Link](https://www.infobae.com/peru/2025/12/30/atenderan-los-centros-comerciales-en-el-feriado-del-1-de-enero-de-2026-estos-son-los-horarios-de-plaza-norte-megaplaza-mall-y-real-plaza/)
 - **Año Nuevo: Horarios de los supermercados para este 1 de enero**: [Link](https://gestion.pe/peru/ano-nuevo-2026-los-horarios-de-los-supermercados-para-este-31-de-diciembre-y-1-de-enero-noticia/)
 - **Horario de atención de Plaza Vea, Tottus y Metro hoy, 1 de enero**: [Link](https://libero.pe/tiempoextra/2025/12/30/horario-de-atencion-en-supermercados-plaza-vea-tottus-metro-miercoles-31-de-diciembre-1-ano-nuevo-693450)
-
-
-### disney (N/A, 01/01/2026 15:29 Lima)
-
-- **Guardians of the Galaxy Cosmic Rewind Nears Four-Hour Wait as EPCOT Crowds Swell on New Year's Eve**: [Link](https://www.wdwmagic.com/attractions/guardians-of-the-galaxy/news/31dec2025-guardians-of-the-galaxy-cosmic-rewind-nears-four-hour-wait-as-epcot-crowds-swell-on-new-years-eve.htm)
-- **Wait Times for New Year’s Eve in Disney World Were…Something**: [Link](https://allears.net/2026/01/01/wait-times-for-new-years-eve-in-disney-world-were-something/)
-- **Record New Year’s Eve Crowds Force Disney World Attractions To Cease Operations**: [Link](https://www.disneydining.com/record-new-years-eve-crowds-prompt-operational-changes-at-disney-world-ab1/)
-
-
-### tarjeta roja (N/A, 01/01/2026 15:29 Lima)
-
-- **El 2026 empezó con todo: así fue el primer gol de la temporada en el fútbol mundial | VIDEO**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/el-2026-empezo-con-todo-asi-fue-el-primer-gol-de-la-temporada-en-el-futbol-mundial-video-noticia/)
-- **¡Fútbol para empezar el año! Estos son los partidos para 1 y 2 de enero del 2026**: [Link](https://www.elcomercio.com/deportes/futbol/futbol-partidos-1-2-enero-feriado-2026/)
-- **¿Qué ligas alrededor del mundo tienen actividad el 1 de enero? #Futbol**: [Link](https://www.xeudeportes.mx/futbol-internacional/1401553/que-ligas-alrededor-del-mundo-tienen-actividad-el-1-de-enero)
-
-
-### leicester vs (N/A, 01/01/2026 15:29 Lima)
-
-- **Leicester City's 'incredible' duo help equal record as chairman's 'moments' comment confuses**: [Link](https://www.leicestermercury.co.uk/sport/football/match-reports/leicester-citys-incredible-duo-help-10729737)
-- **Marti Cifuentes hails Leicester’s attitude and character after Derby victory**: [Link](https://www.wattonandswaffhamtimes.co.uk/sport/national/25728653.marti-cifuentes-hails-leicesters-attitude-character-derby-victory/)
-- **THE DERBY DEBRIEF: Leicester City (A)**: [Link](https://www.dcfc.co.uk/news/2025/12/the-derby-debrief-leicester-city-a-202526)
 
 
