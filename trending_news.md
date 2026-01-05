@@ -1,3 +1,72 @@
+### suns - thunder (N/A, 04/01/2026 21:23 Lima)
+
+- **Suns eager to avenge historic blowout loss to Thunder**: [Link](https://www.thesportsleader.com/2026/01/03/suns-eager-to-avenge-historic-blowout-loss-to-thunder/)
+- **Fanatics Sportsbook promo code NYPOST: Get up to $2,000 in FanCash for Thunder vs. Suns**: [Link](https://nypost.com/2026/01/04/betting/fanatics-sportsbook-promo-code-nypost-get-up-to-2000-in-fancash-for-thunder-vs-suns/)
+- **PREGAME: Can Devin Booker AVENGE Phoenix Suns ALL-TIME LOSS To OKC Thunder?**: [Link](https://bvmsports.com/2026/01/04/pregame-can-devin-booker-avenge-phoenix-suns-all-time-loss-to-okc-thunder/)
+
+
+### el nombre del año 2026 (N/A, 04/01/2026 21:23 Lima)
+
+- **¿Se sabe cómo se llamará el año 2026 en Perú? Esto es lo último que se conoce**: [Link](https://www.infobae.com/peru/2026/01/04/se-sabe-como-se-llamara-el-ano-2026-en-peru-esto-es-lo-ultimo-que-se-conoce/)
+- **NOMBRE OFICIAL del 2026 en Perú: conoce cuál y cuándo inicia**: [Link](https://elcomercio.pe/respuestas/tramites/el-2026-en-peru-tendra-un-nombre-oficial-del-ano-conoce-cual-y-cuando-inicia-tdpe-noticia/)
+- **Nombre del Año 2026 en Perú: ¿cómo se decide, para qué sirve y qué nombres eligieron los años anteriores?**: [Link](https://larepublica.pe/datos-lr/2025/12/30/nombre-del-ano-2026-en-peru-como-se-decide-para-que-sirve-y-que-nombres-eligieron-los-anos-anteriores-atmp-1142280)
+
+
+### pedro sanchez (N/A, 04/01/2026 21:23 Lima)
+
+- **Feijóo reitera su apoyo a Edmundo González y afirma que encarna “la legitimidad democrática” en Venezuela**: [Link](https://www.infobae.com/espana/2026/01/03/feijoo-reitera-su-apoyo-a-edmundo-gonzalez-y-afirma-que-encarna-la-legitimidad-democratica-en-venezuela/)
+- **Ayuso critica que Sánchez elija "comunismo" al condenar la intervención de EEUU en Venezuela: "Prefiere la legalidad de un tirano"**: [Link](https://www.eldiario.es/internacional/ultima-hora-captura-nicolas-maduro-directo_6_12884566_1117817.html)
+- **Feijóo, portavoz del estupor por el desdén de Trump a María Corina: "Ella representa la vía democrática"**: [Link](https://www.elespanol.com/espana/politica/20260105/feijoo-portavoz-estupor-desden-trump-maria-corina-representa-via-democratica/1003744078113_0.html)
+
+
+### bts gira mundial (N/A, 04/01/2026 21:23 Lima)
+
+- **BTS regresa en 2026: cuántas canciones tendrá el nuevo álbum y más detalles de la gira mundial**: [Link](https://www.infobae.com/entretenimiento/2026/01/04/bts-regresa-en-2026-cuantas-canciones-tendra-el-nuevo-album-y-mas-detalles-de-la-gira-mundial/)
+- **BTS, BLACKPINK, EXO y BIGBANG: los comebacks que marcarán el k‑pop en 2026**: [Link](https://larepublica.pe/cultura-asiatica/2026/01/04/bts-blackpink-exo-y-bigbang-los-comebacks-que-marcaran-el-kpop-en-2026-184376)
+- **BTS confirma regreso con álbum y gira mundial en 2026. Expectativa global. #Kpop #Música**: [Link](https://www.facebook.com/infobaecolombia/posts/bts-confirma-regreso-con-%C3%A1lbum-y-gira-mundial-en-2026-expectativa-global-kpop-m%C3%BA/1317622720380487/)
+
+
+### alianza vs regatas (N/A, 04/01/2026 21:23 Lima)
+
+- **Alianza Lima vs Regatas Lima EN VIVO HOY: punto a punto del partido por la fecha 11 de la Liga Peruana de Vóley 2025/2026**: [Link](https://www.infobae.com/peru/deportes/2026/01/04/alianza-lima-vs-regatas-lima-en-vivo-hoy-latina-tv-fecha-11-fase-1-liga-peruana-de-voley-2025-2026-resumen-resultado/)
+- **Alianza Lima venció a Regatas por la fecha 11 de la Liga Peruana de Vóley 2025-2026**: [Link](https://rpp.pe/voley/mas-voley/alianza-lima-vs-regatas-en-vivo-ver-latina-transmision-directo-fecha-11-liga-peruana-de-voley-2026-link-gratis-voley-en-vivo-noticia-1670165)
+- **Conoce qué equipos jugarán el cuadrangular de revalidación para la Liga Peruana de Vóley**: [Link](https://ovacion.pe/noticias/voley/conoce-equipos-jugaran-cuadrangular-revalidacion-liga-peruana-voley)
+
+
+### nets - nuggets (N/A, 04/01/2026 21:23 Lima)
+
+- **Aaron Gordon & Christian Braun Return; Nuggets Fall to MPJ’s Nets**: [Link](https://bvmsports.com/2026/01/04/aaron-gordon-christian-braun-return-nuggets-fall-to-mpjs-nets/)
+- **Michael Porter gets revenge in first game against Denver**: [Link](https://www.hoopshype.com/story/sports/nba/rumors/2026/01/04/michael-porter-gets-revenge-in-first-game-against-denver/88022173007/)
+- **Game Recap: Nets 127, Nuggets 115**: [Link](https://www.nba.com/watch/video/game-recap-nets-127-nuggets-115)
+
+
+### lópez aliaga (N/A, 04/01/2026 21:23 Lima)
+
+- **Rafael López Aliaga continúa en carrera electoral tras fallo del JEE que rechazó tachas**: [Link](https://canaln.pe/actualidad/jee-declara-infundadas-tachas-contra-lopez-aliaga-n489358)
+- **JEE Lima Centro 1 declara inadmisible tacha contra plancha presidencial liderada por Rafael López Aliaga**: [Link](https://rpp.pe/politica/elecciones/jee-lima-centro-1-declara-inadmisible-tacha-contra-plancha-presidencial-liderada-por-rafael-lopez-aliaga-noticia-1669456)
+- **Elecciones 2026: JEE declara infundadas tachas contra candidatura de Rafael López Aliaga**: [Link](https://gestion.pe/peru/politica/elecciones-2026-jee-declara-infundadas-tachas-contra-candidatura-de-rafael-lopez-aliaga-noticia/)
+
+
+### famalicao (N/A, 04/01/2026 21:23 Lima)
+
+- **Sandro com Lima azeda... Chiquinho adoçou a noite (crónica)**: [Link](https://www.abola.pt/noticias/sandro-com-lima-azeda-chiquinho-adocou-a-noite-cronica-2026010423313591381)
+- **Hugo Oliveira: «Um penálti da moda leva o jogo para o adversário ganhar»**: [Link](https://www.record.pt/futebol/futebol-nacional/liga-betclic/famalicao/detalhe/hugo-oliveira-um-penalti-da-moda-leva-o-jogo-para-o-adversario-ganhar?ref=Sele%C3%A7%C3%A3o%20Feminina_Ultimas)
+- **Derrota no arranque do novo ano**: [Link](https://www.fcfamalicao.pt/derrota-no-arranque-do-novo-ano/)
+
+
+### critics choice awards 2026 (N/A, 04/01/2026 21:23 Lima)
+
+- **Ali Larter's Critics Choice Awards LBD Plunges Past Her Ribs and Has a Daring, Thigh-High Center Slit**: [Link](https://www.instyle.com/ali-larter-critics-choice-awards-2026-plunging-slip-dress-11878850)
+- **Critics Choice Awards 2026: All the Television Nominations**: [Link](https://spoiler.bolavip.com/en/tv/critics-choice-awards-2026-all-the-television-nominations)
+- **The Best Jewelry Moments of the 2026 Critics Choice Awards**: [Link](https://www.naturaldiamonds.com/culture-and-style/critics-choice-awards-2026/)
+
+
+### alverca vs (N/A, 04/01/2026 21:23 Lima)
+
+- **Preview: Alverca vs Famalicao - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/alverca/preview/alverca-vs-famalicao-prediction-team-news-lineups_589092.html)
+- **Primeira Liga News: Alverca vs Famalicão Confirmed Line-ups**: [Link](https://footballpredictions.net/alverca-v-famalicao-team-news-confirmed-lineups)
+
+
 ### twitch (N/A, 04/01/2026 15:28 Lima)
 
 - **The Most Popular Streamer on Twitch Is Now an AI Construct**: [Link](https://futurism.com/artificial-intelligence/ai-twitch-streamer-neuro-sama)
@@ -962,74 +1031,5 @@ hat-trick scorer**: [Link](https://www.vavel.com/en/football/2025/12/27/premier-
 - **Leicester City's 'incredible' duo help equal record as chairman's 'moments' comment confuses**: [Link](https://www.leicestermercury.co.uk/sport/football/match-reports/leicester-citys-incredible-duo-help-10729737)
 - **Marti Cifuentes hails Leicester’s attitude and character after Derby victory**: [Link](https://www.wattonandswaffhamtimes.co.uk/sport/national/25728653.marti-cifuentes-hails-leicesters-attitude-character-derby-victory/)
 - **THE DERBY DEBRIEF: Leicester City (A)**: [Link](https://www.dcfc.co.uk/news/2025/12/the-derby-debrief-leicester-city-a-202526)
-
-
-### plaza norte (N/A, 01/01/2026 11:33 Lima)
-
-- **¿Atenderán los centros comerciales en el feriado del 1 de enero de 2026? Estos son los horarios de Plaza Norte, Megaplaza, Mall y Real Plaza**: [Link](https://www.infobae.com/peru/2025/12/30/atenderan-los-centros-comerciales-en-el-feriado-del-1-de-enero-de-2026-estos-son-los-horarios-de-plaza-norte-megaplaza-mall-y-real-plaza/)
-- **Horario de los centros comerciales este feriado 1 de enero de 2026: ¿Abrirán Plaza Norte, Jockey Plaza, Real Plaza y otros malls?**: [Link](https://wapa.pe/ocio/2025/12/31/ano-nuevo-2026-plaza-norte-jockey-plaza-real-plaza-sus-horarios-atencion-feriado-1-enero-1454241)
-
-
-### wycombe wanderers - cardiff (N/A, 01/01/2026 11:33 Lima)
-
-- **Wycombe Wanderers v Cardiff City: League One stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cpvd91pymk9t)
-- **Live EFL on Sky Sports Football HD: full details and when it's on**: [Link](https://www.tvguide.co.uk/schedule/1585a306-3ee8-5958-a27e-2bc4241c99e1/live-efl)
-- **Away Days - Travel Guide | Wycombe Wanderers vs. Cardiff City**: [Link](https://www.cardiffcityfc.co.uk/news/away-days-travel-guide-wycombe-wanderers-vs-cardiff-city)
-
-
-### pataz (N/A, 01/01/2026 11:33 Lima)
-
-- **Reportan nueva masacre en Pataz: mineros artesanales fueron asesinados la víspera de Año Nuevo**: [Link](https://www.infobae.com/peru/2026/01/01/reportan-nueva-masacre-en-pataz-mineros-artesanales-fueron-asesinados-la-vispera-de-ano-nuevo/)
-- **Masacre en Pataz a vísperas de Año Nuevo: reportan al menos 13 personas asesinadas en bocamina**: [Link](https://larepublica.pe/politica/2026/01/01/encuentran-a-13-mineros-sin-vida-en-pataz-alcalde-critico-estado-de-emergencia-hnews-28259)
-- **Ataque en socavón deja 3 muertos y 7 desaparecidos en Pataz: Víctimas serían mineros artesanales**: [Link](https://www.exitosanoticias.pe/actualidad/ataque-socavon-deja-3-muertos-7-desaparecidos-pataz-victimas-serian-mineros-artesanales-n165779)
-
-
-### plaza vea horario (N/A, 01/01/2026 11:33 Lima)
-
-- **Año Nuevo: Horarios de los supermercados para este 1 de enero**: [Link](https://gestion.pe/peru/ano-nuevo-2026-los-horarios-de-los-supermercados-para-este-31-de-diciembre-y-1-de-enero-noticia/)
-- **¿Cuál es el horario de atención de Plaza Vea, Tottus, Metro, Makro y otros supermercados para este 31 de diciembre y 1 de enero de 2026?**: [Link](https://www.infobae.com/peru/2025/12/31/cual-es-el-horario-de-atencion-de-plaza-vea-tottus-metro-makro-y-otros-supermercados-para-este-31-de-diciembre-y-1-de-enero-de-2026/)
-- **Estos son los horarios de los malls para el 31 de diciembre y 1 de enero**: [Link](https://chocale.cl/2025/12/horarios-malls-centros-comerciales-31-de-diciembre-2025-y-1-de-enero-de-2026/)
-
-
-### suiza (N/A, 01/01/2026 11:33 Lima)
-
-- **Decenas de muertos y al menos 100 heridos tras un incendio en un centro turístico de esquí en Suiza**: [Link](https://www.bbc.com/mundo/articles/c7v066y2l1do)
-- **Los testimonios del incendio en el bar Le Constellation en Crans-Montana: “Cundió el pánico absoluto, todo el mundo gritaba”**: [Link](https://elpais.com/internacional/2026-01-01/los-testimonios-del-incendio-en-el-bar-le-constellation-en-crans-montana-cundio-el-panico-absoluto-todo-el-mundo-gritaba.html)
-- **Decenas de muertos en el incencio en Suiza**: [Link](https://www.dw.com/es/decenas-de-muertos-en-el-incencio-en-suiza/a-75359790)
-
-
-### juegos ps plus enero 2026 (N/A, 01/01/2026 11:33 Lima)
-
-- **Los juegos de PS Essential en enero de 2026 tienen de todo: carreras ilegales y un clásico de Disney**: [Link](https://as.com/meristation/noticias/los-juegos-de-ps-essential-en-enero-de-2026-tienen-de-todo-carreras-ilegales-y-un-clasico-de-disney-f202512-n/)
-- **PlayStation Plus confirma sus 3 nuevos juegos gratis para enero de 2026**: [Link](https://alfabetajuega.com/playstation/playstation-plus-confirma-sus-3-nuevos-juegos-gratis-para-enero-de-2026)
-- **Si eres suscriptor de PS Plus en PS4, hay malas noticias en 2026: vas a pagar lo mismo que el resto por menos juegos**: [Link](https://www.vidaextra.com/ps4/eres-suscriptor-ps-plus-ps4-hay-malas-noticias-2026-vas-a-pagar-resto-juegos)
-
-
-### enzo maresca (N/A, 01/01/2026 11:33 Lima)
-
-- **Golpe de Año Nuevo: Enzo Maresca dejó de ser técnico del Chelsea en medio de una crisis de resultados**: [Link](https://rpp.pe/futbol/futbol-mundial/enzo-maresca-dejo-de-ser-tecnico-del-chelsea-en-medio-de-una-crisis-de-resultados-noticia-1669882)
-- **El Chelsea anunció el despido de su entrenador italiano Enzo Maresca**: [Link](https://andina.pe/agencia/noticia-el-chelsea-anuncio-despido-su-entrenador-italiano-enzo-maresca-1057709.aspx)
-- **Enzo Maresca deja el Chelsea pese a contrato hasta 2029**: [Link](https://caretas.pe/home_web/home_principal_secundario/enzo-maresca-deja-el-chelsea-pese-a-contrato-hasta-2029/)
-
-
-### leeds vs. liverpool (N/A, 01/01/2026 11:33 Lima)
-
-- **Liverpool Predicted Lineup vs Leeds United for 1 January**: [Link](https://lastwordonsports.com/football/2026/01/01/liverpool-predicted-lineup-vs-leeds-january/)
-- **Slot: Players like Wirtz need time to adapt to Premier League intensity**: [Link](https://www.beinsports.com/en-us/soccer/premier-league/articles/slot-players-like-wirtz-need-time-to-adapt-to-premier-league-intensity-2026-01-01)
-- **Arne Slot reacts to Florian Wirtz’s performance vs Wolves**: [Link](https://onefootball.com/fr/news/arne-slot-reacts-to-florian-wirtzs-performance-vs-wolves-42166300)
-
-
-### blackburn rovers - wrexham (N/A, 01/01/2026 11:33 Lima)
-
-- **Blackburn Rovers player ratings with 4 and 5/10s in limp display**: [Link](https://www.lancashiretelegraph.co.uk/sport/25733908.blackburn-rovers-player-ratings-4-5-10s-vs-wrexham/)
-- **Parkin's delight for goal duo Smith and 'van Basten'**: [Link](https://www.aol.com/articles/parkins-delight-goal-duo-smith-151819351.html)
-- **Wrexham end shock 60-year record to boost Championship play-off hopes**: [Link](https://talksport.com/football/3864340/wrexham-shock-record-championship-play-off-hopes/)
-
-
-### partidos de hoy (N/A, 01/01/2026 11:33 Lima)
-
-- **Partidos de hoy, jueves 1 de enero del 2026: horarios y canales TV para ver EN VIVO Premier League**: [Link](https://rpp.pe/futbol/futbol-mundial/partidos-de-hoy-peru-jueves-1-de-enero-del-2026-horarios-y-canales-tv-ver-futbol-en-vivo-noticia-1669828)
-- **La Premier League no se detiene: ¿qué partidos se jugarán el 1 de enero de 2026?**: [Link](https://depor.com/futbol-internacional/inglaterra/partidos-de-premier-league-del-1-de-enero-de-2026-liverpool-vs-leeds-y-sunderland-vs-manchester-city-noticia/)
-- **Con el foco en la Premier League y la NBA: las ocho propuestas deportivas para ver este 1° de enero**: [Link](https://www.infobae.com/deportes/2025/12/31/con-el-foco-en-la-premier-league-y-la-nba-las-ocho-propuestas-deportivas-para-ver-este-1-de-enero/)
 
 
