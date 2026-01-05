@@ -1,3 +1,52 @@
+### egipto - benín (N/A, 05/01/2026 11:34 Lima)
+
+- **Egipto vs Benin: Alineaciones, estadísticas y pronóstico**: [Link](https://www.365scores.com/es/football/match/africa-cup-of-nations-167/benin-egypt-5098-5100-167)
+- **En directo online: Egipto-Benín - ¿Dónde ver por televisión? – Copa África 2025 – Octavos de final – Hoy**: [Link](https://espanol.eurosport.com/futbol/copa-de-africa/2025/live-egipto-benin_mtc1584180/live-commentary.shtml)
+- **Copa Africana de Naciones 2025: Rour habla sobre el desafío ante la selección de Egipto**: [Link](https://www.tesaaworld.com/es/news/africa-cup-of-nations-2025-rour-talks-about-the-challenge-against-the-egyptian-national-team)
+
+
+### minsa (N/A, 05/01/2026 11:34 Lima)
+
+- **Minsa Móvil realizó 193 campañas**: [Link](https://elperuano.pe/noticia/286405-minsa-movil-realizo-193-campanas)
+- **Minsa Móvil brindó más de 500 mil atenciones durante el 2025**: [Link](https://andina.pe/agencia/noticia-minsa-movil-brindo-mas-500-mil-atenciones-durante-2025-1057915.aspx)
+- **Minsa inaugura nuevo Centro de Salud Mental Comunitaria en Comas para beneficiar a más de 600 000 habitantes**: [Link](https://panamericana.pe/salud/462616-minsa-inaugura-nuevo-centro-salud-mental-comunitaria-comas-beneficiar-600-000-habitantes)
+
+
+### gta vi (N/A, 05/01/2026 11:34 Lima)
+
+- **GTA 6 Pre-Order Price Isn’t As Bad as We Thought**: [Link](https://www.gamingbible.com/news/gta-6-pre-order-price-378344-20260105)
+- **Rockstar Games Reportedly Confident In 2026 Release For GTA VI, As Price Rumors Surface**: [Link](https://twistedvoxel.com/gta-vi-price-2026-release/)
+- **GTA 6 Is Already My Most Anticipated Game of 2026, And It’s Not Even Close**: [Link](https://gamingbolt.com/gta-6-is-already-my-most-anticipated-game-of-2026-and-its-not-even-close)
+
+
+### ruben amorim (N/A, 05/01/2026 11:34 Lima)
+
+- **A tempestade nunca passou: as frases mais marcantes de Amorim em Inglaterra**: [Link](https://sapo.pt/artigo/a-tempestade-nunca-passou-as-frases-mais-marcantes-de-amorim-em-inglaterra-695bb93952dc24aee943c9c6)
+- **10.º a cair depois de Ferguson e o pior desde os anos 70**: [Link](https://observador.pt/2026/01/05/o-10-o-a-cair-depois-de-ferguson-o-pior-desde-os-anos-70-e-os-103-golos-sofridos-os-numeros-que-levaram-a-queda-de-amorim/)
+- **Os bastidores da "reunião tensa" com Jason Wilcox que terá sido o fim da linha para Amorim no Man. United**: [Link](https://www.record.pt/internacional/paises/inglaterra/detalhe/os-bastidores-da-reuniao-tensa-com-jason-wilcox-que-tera-sido-o-fim-da-linha-para-amorim-no-man-united)
+
+
+### feriados 2026 (N/A, 05/01/2026 11:34 Lima)
+
+- **Feriados 2026: ¿En qué fechas caen los días libres de Semana Santa este año?**: [Link](https://www.infobae.com/peru/2026/01/03/feriados-2026-en-que-fechas-caen-los-dias-libres-de-semana-santa-este-ano/)
+- **Próximo feriado en Perú tras Año Nuevo 2026: conoce la fecha oficial del siguiente descanso a nivel nacional, según El Peruano**: [Link](https://larepublica.pe/sociedad/2026/01/04/proximo-feriado-en-peru-tras-ano-nuevo-2026-conoce-la-fecha-oficial-del-siguiente-descanso-a-nivel-nacional-segun-el-peruano-evat-232488)
+- **Gobierno declara el viernes 2 de enero como día no laborable**: [Link](https://canaln.pe/actualidad/gobierno-declara-viernes-2-enero-como-dia-no-laborable-n489209)
+
+
+### stuttgart - luzern (N/A, 05/01/2026 11:34 Lima)
+
+- **VfB Stuttgart: „Das kann doch nicht sein“: Hoeneß wird im Testspiel plötzlich sauer**: [Link](https://www.bild.de/sport/fussball/vfb-stuttgart-das-kann-doch-nicht-sein-hoeness-wird-im-testspiel-ploetzlich-sauer-695bd484b0086aa64be6f848)
+- **Tomás fällt für Testkick gegen Luzern aus**: [Link](https://www.ligainsider.de/tiago-tomas_24512/tomas-faellt-fuer-testkick-gegen-luzern-aus-406438/)
+- **Premiere und Comeback bei Testspiel-Sieg**: [Link](https://www.vfb.de/de/vfb/aktuell/neues/profis/2526/testspiel-vfb-stuttgart-gegen-fc-luzern/)
+
+
+### 6 de enero es feriado (N/A, 05/01/2026 11:34 Lima)
+
+- **Mañana, 6 de enero no es feriado ni día NO laborable en el PERÚ y esta es la razón**: [Link](https://elcomercio.pe/respuestas/cuando/el-6-de-enero-no-es-feriado-ni-dia-no-laborable-en-el-peru-y-esta-es-la-razon-bajada-de-reyes-tdpe-noticia/)
+- **¿El 6 de enero es feriado o día no laborable en Perú por Bajada de Reyes? Esto es lo que dice el calendario**: [Link](https://libero.pe/tiempoextra/2026/01/04/6-de-enero-es-feriado-dia-laborable-en-peru-bajada-de-reyes-esto-es-dice-calendario-40644)
+- **¿El 6 de enero será feriado nacional o día no laborable en el Perú? Revisa lo que indica la ley durante la Bajada de Reyes**: [Link](https://larepublica.pe/sociedad/2026/01/02/el-6-de-enero-sera-feriado-nacional-o-dia-no-laborable-en-el-peru-revisa-lo-que-indica-la-ley-durante-la-bajada-de-reyes-atmp-54464)
+
+
 ### año 2026 (N/A, 05/01/2026 07:58 Lima)
 
 - **¿Se sabe cómo se llamará el año 2026 en Perú? Esto es lo último que se conoce**: [Link](https://www.infobae.com/peru/2026/01/04/se-sabe-como-se-llamara-el-ano-2026-en-peru-esto-es-lo-ultimo-que-se-conoce/)
@@ -978,54 +1027,5 @@ Sin noticias relacionadas disponibles.
 - **21 Years Later, Netflix Is Streaming an Action Thriller Classic Ahead of Their "Fantastic" Reboot**: [Link](https://movieweb.com/netflix-man-on-fire-denzel-washington-action-thriller-stream-january-2026/)
 - **Netflix Is About to Lose One of My Favorite Action-Thrillers Ever**: [Link](https://www.yahoo.com/entertainment/movies/articles/netflix-lose-one-favorite-action-131559404.html)
 - **Denzel Washington's Mystery Masterpiece Is Heading to a New Streamer**: [Link](https://collider.com/denzel-washington-mystery-movie-inside-man-streaming-starz-january-2026/)
-
-
-### 2 de enero 2026 es feriado (N/A, 01/01/2026 23:46 Lima)
-
-- **¿Te tocó trabajar en Año Nuevo? Conoce aquí si te corresponde pago extra y descanso**: [Link](https://www.elperuano.pe/noticia/286268-te-toco-trabajar-en-ano-nuevo-conoce-aqui-si-te-corresponde-pago-extra-y-descanso)
-- **¿El 31 de diciembre es feriado o día no laborable en Perú? Conoce lo que dice la norma vigente**: [Link](https://www.infobae.com/peru/2025/12/27/el-31-de-diciembre-es-feriado-o-dia-no-laborable-en-peru-conoce-lo-que-dice-la-norma-vigente/)
-- **Feriados nacionales del 2026: revisa el calendario completo y actualizado en Perú**: [Link](https://elcomercio.pe/respuestas/trends/feriados-nacionales-del-2026-revisa-el-calendario-completo-y-fechas-claves-en-peru-tdpe-noticia/)
-
-
-### pizza (N/A, 01/01/2026 23:46 Lima)
-
-- **India's KFC, Pizza Hut operators to merge in $934 million deal**: [Link](https://www.reuters.com/world/india/sapphire-foods-devyani-international-merge-create-fast-food-franchisee-giant-2026-01-01/)
-- **KFC operators Sapphire Foods-Devyani International's merger to create fast-food giant in India**: [Link](https://m.economictimes.com/industry/cons-products/food/kfc-operator-sapphire-foods-to-merge-with-devyani-international-to-create-fast-food-franchisee-giant-in-india/articleshow/126290468.cms)
-- **India's KFC, Pizza Hut operators to merge in $934 million deal**: [Link](https://www.cnbc.com/2026/01/01/yum-brands-india-partners-sapphire-devyani-to-merge-creating-fast-food-franchisee-giant.html)
-
-
-### pizza hut (N/A, 01/01/2026 23:46 Lima)
-
-- **Stock market today: Dow, S&P 500, Nasdaq sputter with Wall Street set to put a bow on roller-coaster 2025**: [Link](https://finance.yahoo.com/news/live/stock-market-today-dow-sp-500-nasdaq-sputter-with-wall-street-set-to-put-a-bow-on-roller-coaster-2025-143322938.html)
-- **US Stocks Slouch Into Year End With Nike and Tesla Rallying**: [Link](https://www.bloomberg.com/news/articles/2025-12-31/us-stocks-slouch-into-year-end-with-nike-and-tesla-rallying)
-- **Markets News, Dec. 31, 2025: Major Stock Indexes Close Strong Year With 4th Straight Session of Losses**: [Link](https://www.investopedia.com/dow-jones-today-12312025-11877684)
-
-
-### warren buffett (N/A, 01/01/2026 21:07 Lima)
-
-- **The legendary Warren Buffett steps back this week and Berkshire Hathaway enters a new era**: [Link](https://apnews.com/article/warren-buffett-greg-abel-berkshire-hathaway-successor-4024a59d028e34ea54f8f5a5f7769f69)
-- **Warren Buffett retires as Berkshire Hathaway CEO**: [Link](https://www.nbcnews.com/business/corporations/warren-buffett-retires-legacy-rcna251590)
-- **Quick Take | For future Buffetts**: [Link](https://www.newindianexpress.com/editorial/quick-take/2026/Jan/01/quick-take-for-future-buffetts)
-
-
-### luna llena enero 2026 (N/A, 01/01/2026 21:07 Lima)
-
-- **La superluna llena de enero, conocida como la luna del lobo, y la lluvia de meteoros Cuadrántidas dan inicio al nuevo año**: [Link](https://cnnespanol.cnn.com/2026/01/01/ciencia/superluna-lobo-lluvia-meteoros-cuadrantidas-2026-trax)
-- **Superlunas, lluvias de meteoros y alineaciones planetarias: los eventos astronómicos de enero que no te puedes perder**: [Link](https://elcomercio.pe/mag/respuestas/ciencias/superlunas-lluvias-de-meteoros-y-alineaciones-planetarias-los-eventos-astronomicos-de-enero-que-no-te-puedes-perder-nnda-nnrt-noticia/)
-- **Eclipses de 2026: Descubre cómo estas lunas llenas y nuevas supercargadas revolucionarán tu signo del zodiaco**: [Link](https://www.usmagazine.com/enespanol/horoscopo/eclipses-de-2026-descubre-como-estas-lunas-llenas-y-nuevas-supercargadas-revolucionaran-tu-signo-del-zodiaco/)
-
-
-### cuantos dias tiene el 2026 (N/A, 01/01/2026 21:07 Lima)
-
-- **Los estadounidenses tomarán aún menos tiempo de vacaciones en 2026.**: [Link](https://es.qz.com/trabajadores-estadounidenses-americanos-tiempo-de-vacaciones-descanso)
-- **Días de descanso obligatorio 2026: trabajadores deberán recibir más sueldo si laboran en las siguientes fechas**: [Link](https://www.infobae.com/mexico/2026/01/01/dias-de-descanso-obligatorio-2026-trabajadores-deberan-recibir-mas-sueldo-si-laboran-en-las-siguientes-fechas/)
-- **Días Feriados en Nuevo León: Tu Guía Comprensiva para 2026**: [Link](https://noticiasnewmexico.com/cuales-son-los-dias-feriados-en-nuevo-leon-durante-el-2026/)
-
-
-### feriados 2026 (N/A, 01/01/2026 21:07 Lima)
-
-- **¿Te tocó trabajar en Año Nuevo? Conoce aquí si te corresponde pago extra y descanso**: [Link](https://www.elperuano.pe/noticia/286268-te-toco-trabajar-en-ano-nuevo-conoce-aqui-si-te-corresponde-pago-extra-y-descanso)
-- **¿El 31 de diciembre es feriado o día no laborable en Perú? Conoce lo que dice la norma vigente**: [Link](https://www.infobae.com/peru/2025/12/27/el-31-de-diciembre-es-feriado-o-dia-no-laborable-en-peru-conoce-lo-que-dice-la-norma-vigente/)
-- **Feriados nacionales del 2026: revisa el calendario completo y actualizado en Perú**: [Link](https://elcomercio.pe/respuestas/trends/feriados-nacionales-del-2026-revisa-el-calendario-completo-y-fechas-claves-en-peru-tdpe-noticia/)
 
 
