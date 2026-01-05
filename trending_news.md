@@ -1,3 +1,10 @@
+### timothée chalamet (N/A, 05/01/2026 03:40 Lima)
+
+- **Timothée Chalamet Expresses His Love For Kylie Jenner At Critics Choice Awards**: [Link](https://www.tmz.com/2026/01/04/timothee-chalamet-says-love-you-kylie-jenner-critics-choice-awards/)
+- **Timothée Chalamet wins Critics Choice Award for best actor**: [Link](https://www.lemonde.fr/en/culture/article/2026/01/05/timothee-chalamet-wins-critics-choice-awards-for-best-actor_6749084_30.html)
+- **Kylie Jenner Kisses Timothée Chalamet Backstage at Palm Springs Film Festival**: [Link](https://www.aol.com/articles/kylie-jenner-kisses-timoth-e-011058262.html)
+
+
 ### adolfo chuiman (N/A, 04/01/2026 23:59 Lima)
 
 - **La emotiva vida y carrera de Adolfo Chuiman**: [Link](https://www.atv.pe/noticia/la-emotiva-vida-y-carrera-de-adolfo-chuiman/)
@@ -1024,12 +1031,5 @@ hat-trick scorer**: [Link](https://www.vavel.com/en/football/2025/12/27/premier-
 - **Sudnerland vs Manchester City LIVE Score Updates in Premier League Match**: [Link](https://www.vavel.com/en-us/soccer/2026/01/01/1245898-sudnerland-vs-manchester-city-live-score-premier-league.html)
 - **Pep provides injury update ahead of Sunderland clash**: [Link](https://onefootball.com/en/news/pep-provides-injury-update-ahead-of-sunderland-clash-42167197)
 - **Khusanov on the bench: Sunderland - City squads announced**: [Link](https://zamin.uz/en/sport/179854-khusanov-on-the-bench-sunderland-city-squads-announced.html)
-
-
-### plaza vea horario hoy (N/A, 01/01/2026 15:29 Lima)
-
-- **¿Atenderán los centros comerciales en el feriado del 1 de enero de 2026? Estos son los horarios de Plaza Norte, Megaplaza, Mall y Real Plaza**: [Link](https://www.infobae.com/peru/2025/12/30/atenderan-los-centros-comerciales-en-el-feriado-del-1-de-enero-de-2026-estos-son-los-horarios-de-plaza-norte-megaplaza-mall-y-real-plaza/)
-- **Año Nuevo: Horarios de los supermercados para este 1 de enero**: [Link](https://gestion.pe/peru/ano-nuevo-2026-los-horarios-de-los-supermercados-para-este-31-de-diciembre-y-1-de-enero-noticia/)
-- **Horario de atención de Plaza Vea, Tottus y Metro hoy, 1 de enero**: [Link](https://libero.pe/tiempoextra/2025/12/30/horario-de-atencion-en-supermercados-plaza-vea-tottus-metro-miercoles-31-de-diciembre-1-ano-nuevo-693450)
 
 
