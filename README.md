@@ -1,3 +1,29 @@
+### cotización dólar hoy (N/A, 05/01/2026 21:06 Lima)
+
+- **Precio del dólar al inicio del 2026: Así cerró el tipo de cambio hoy 5 de enero en Perú**: [Link](https://www.infobae.com/peru/2026/01/05/dolar-cotizacion-de-apertura-hoy-5-de-enero-en-peru/)
+- **Dólar, cotización HOY en Perú: ¿cuál es el tipo de cambio este lunes 5 de enero de 2026?**: [Link](https://www.expreso.com.pe/economia/dolar-cotizacion-hoy-en-peru-cual-es-el-tipo-de-cambio-este-lunes-5-de-enero-de-2026-sunat-mef-bcrp-ultima-hora-ultimo-minuto-soles-divisa-noticia/1252586/)
+- **Precio del dólar en Perú HOY, lunes 5 de enero: ¿cuál es la cotización del tipo de cambio?**: [Link](https://larepublica.pe/economia/precio-del-dolar/2026/01/05/precio-del-dolar-hoy-en-peru-5-de-enero-2026-cotizacion-de-compra-y-venta-segun-bcr-y-tasa-de-cambio-dolares-a-soles-ocona-dolar-bloomberg-atmp-206960)
+
+
+### eva (N/A, 05/01/2026 21:06 Lima)
+
+- **Eva Schloss, Anne Frank’s Stepsister and Holocaust Survivor, Dies at 96**: [Link](https://www.nytimes.com/2026/01/05/world/europe/eva-schloss-dead.html)
+- **Eva Schloss, Holocaust survivor and stepsister of Anne Frank, dead at 96**: [Link](https://www.cbc.ca/news/world/eva-schloss-obituary-stepsister-anne-frank-9.7034510)
+- **Anne Frank stepsister and Auschwitz survivor Eva Schloss dies aged 96**: [Link](https://www.theguardian.com/world/2026/jan/04/auschwitz-survivor-eva-schloss-dies-king-charles-leads-tributes)
+
+
+### cancelo (N/A, 05/01/2026 21:06 Lima)
+
+- **Rumores de traspasos, noticias: Cancelo vuelve al radar del Barcelona**: [Link](https://www.ucvradio.pe/deporte/rumores-de-traspasos-noticias-cancelo-vuelve-al-radar-del-barcelona/90465/)
+- **El Inter de Milán solo puede solicitar la transferencia de la ex estrella del Barcelona y la Juventus bajo una condición**: [Link](https://www.elpueblo.pe/deportes/el-inter-de-milan-solo-puede-solicitar-la-transferencia-de-la-ex-estrella-del-barcelona-y-la-juventus-bajo-una-condicion/191921/)
+- **El exdefensor desea volver a Barcelona: informe**: [Link](https://www.elpueblo.pe/deportes/el-exdefensor-desea-volver-a-barcelona-informe/187373/)
+
+
+### vizela vs (N/A, 05/01/2026 21:06 Lima)
+
+- **LigaPro News: Vizela vs União Torreense Confirmed Line-ups**: [Link](https://footballpredictions.net/uniao-torreense-v-vizela-team-news-confirmed-lineups)
+
+
 ### leicester city (N/A, 05/01/2026 15:31 Lima)
 
 - **Leicester City sign FC Rosengård midfielder Jansson**: [Link](https://sports.yahoo.com/articles/leicester-city-sign-fc-roseng-181200456.html)
@@ -999,33 +1025,5 @@ Sin noticias relacionadas disponibles.
 - **Horóscopo Chino 2026: ¿Cuál es tu signo y quiénes tendrán más suerte el próximo año?**: [Link](https://as.com/us/tikitakas/horoscopo-chino-2026-cual-es-tu-signo-y-quienes-tendran-mas-suerte-el-proximo-ano-f202512-n/)
 - **Los signos con más suerte para el Año del Caballo de Fuego según el Horóscopo Chino**: [Link](https://elcomercio.pe/mag/horoscopo/ano-nuevo-chino-2026-los-signos-con-mas-suerte-para-el-ano-del-caballo-de-fuego-segun-el-horoscopo-chino-nnda-nnlt-noticia/)
 - **Horóscopo chino 2026: Ludovica Squirru predice cómo le irá a cada signo en el año del Caballo de Fuego**: [Link](https://www.revistagente.com/horoscopo/horoscopo-chino-2026-ludovica-squirru-predice-como-le-ira-a-cada-signo-en-el-ano-del-caballo-de-fuego/)
-
-
-### sam smith (N/A, 02/01/2026 11:32 Lima)
-
-- **Blackburn Rovers 0-2 Wrexham: Red Dragons clinch third successive Championship win**: [Link](https://www.bbc.com/sport/football/live/c7412jrl924t)
-- **Parkin's delight for goal duo Smith and 'van Basten'**: [Link](https://www.aol.com/articles/parkins-delight-goal-duo-smith-151819351.html)
-- **'We are at the limit with the squad' - Ismael**: [Link](https://sports.yahoo.com/articles/limit-squad-ismael-100908770.html)
-
-
-### año 2026 (N/A, 02/01/2026 11:32 Lima)
-
-- **Elecciones 2026: Más de 2 millones de peruanos tienen el DNI vencido y NO podrán votar**: [Link](https://www.exitosanoticias.pe/actualidad/elecciones-2026-mas-2-millones-peruanos-tienen-dni-vencido-podran-votar-n165814)
-- **Elecciones 2026 JNE: Más de 2 millones de votantes tienen el DNI vencido | POLITICA**: [Link](https://diariocorreo.pe/politica/elecciones-2026-jne-mas-de-2-millones-de-votantes-tienen-el-dni-vencido-noticia/)
-- **Elecciones 2026: faltan 100 días para los comicios del 12 de abril**: [Link](https://andina.pe/agencia/noticia-elecciones-2026-faltan-100-dias-para-los-comicios-del-12-abril-1057787.aspx)
-
-
-### afp (N/A, 02/01/2026 11:32 Lima)
-
-- **Retiro de AFP 2026: ¿Quiénes cobran en los primeros días de enero?**: [Link](https://libero.pe/tiempoextra/2025/12/31/retiro-de-afp-en-2026-quienes-reciben-su-pago-primeros-dias-de-enero-2689095)
-- **¡Atención afiliados! Retiro-AFP 2025: último día para realizar el trámite online vía LINK oficial**: [Link](https://elcomercio.pe/respuestas/tramites/ultima-oportunidad-solicita-tu-retiro-afp-hoy-link-oficial-y-plazo-para-realizar-el-tramite-online-tdpe-noticia/)
-- **Nuevo valor de la UIT fija en S/22,000 el retiro máximo de AFP en 2026**: [Link](https://infomercado.pe/nuevo-valor-de-la-uit-fija-en-s-22000-el-retiro-maximo-de-afp-en-2026/)
-
-
-### año 2026 nombre (N/A, 02/01/2026 11:32 Lima)
-
-- **Nombre oficial del 2026 en el Perú: cuál será la denominación de este año**: [Link](https://elcomercio.pe/respuestas/tramites/cual-sera-el-nombre-oficial-del-ano-2026-en-peru-tdpe-noticia/)
-- **Nombre del Año 2026 en Perú: ¿cómo se decide, para qué sirve y qué nombres eligieron los años anteriores?**: [Link](https://larepublica.pe/datos-lr/2025/12/30/nombre-del-ano-2026-en-peru-como-se-decide-para-que-sirve-y-que-nombres-eligieron-los-anos-anteriores-atmp-1142280)
-- **Dime tu nombre y te diré cuál será arcano del año 2026**: [Link](https://www.buzzfeed.com/mx/ameyalli16/dime-tu-nombre-y-te-dire-cual-sera-arcano-del-ano-2026)
 
 
