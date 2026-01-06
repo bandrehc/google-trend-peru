@@ -1,3 +1,73 @@
+### lecce - roma (N/A, 06/01/2026 11:36 Lima)
+
+- **Lecce-Roma: le formazioni ufficiali**: [Link](https://www.asroma.com/it/notizie/74607/lecce-roma-le-formazioni-ufficiali)
+- **Roma, altri problemi in difesa per Gasperini: Rensch a rischio forfait per febbre**: [Link](https://www.ilmessaggero.it/sport/as_roma/rensch_roma_lecce_forfait_febbre_soule_gasperini_cosa_e_successo-9281882.html)
+- **Lecce Roma in tv e streaming: dove vedere la partita**: [Link](https://sport.sky.it/calcio/serie-a/2026/01/06/lecce-roma-dove-vedere-tv-streaming)
+
+
+### felipe chavez (N/A, 06/01/2026 11:36 Lima)
+
+- **¡Show del peruano! Gol y asistencia de Felipe Chávez para el 3-0 del Bayern Múnich vs. Salzburgo**: [Link](https://depor.com/futbol-peruano/peruanos-en-el-mundo/gol-felipe-chavez-bayern-munich-vs-salzburgo-pase-del-peruano-para-el-2-0-de-lennart-karl-y-anotacion-para-el-3-0-video-noticia/)
+- **Bayern Múnich: Felipe Chávez sigue entrenando con primer equipo**: [Link](https://www.americatv.com.pe/deportes/futbol-mundial/bayern-munich-felipe-chavez-sigue-entrenando-primer-equipo-n452147)
+- **Felipe Chávez: El volante peruano del Bayern Munich marca en amistoso ante el RB Salzburgo**: [Link](https://www.atv.pe/noticia/felipe-chavez-el-volante-peruano-del-bayern-munich-marca-en-amistoso-ante-el-rb-salzburgo/)
+
+
+### bruce willis (N/A, 06/01/2026 11:36 Lima)
+
+- **When Bruce Willis Helped Subaru Sell the Legacy**: [Link](https://www.autoblog.com/news/when-bruce-willis-helped-subaru-sell-the-legacy)
+- **The Forgotten 1991 Gangster Film Flop That Starred Nicole Kidman And Bruce Willis**: [Link](https://www.slashfilm.com/2061903/nicole-kidman-bruce-willis-gangster-film-flop-billy-bathgate/)
+- **Megyn Kelly Names the Meanest Celebrities She Has Met Over the Years**: [Link](https://www.usmagazine.com/celebrity-news/news/megyn-kelly-names-the-meanest-celebrities-she-has-met-over-the-years/)
+
+
+### argelia - rd congo (N/A, 06/01/2026 11:36 Lima)
+
+- **Argelia vs RD Congo: Alineaciones, estadísticas y pronóstico**: [Link](https://www.365scores.com/es/football/match/africa-cup-of-nations-167/algeria-dr-congo-5109-14650-167)
+- **Argelia vs República Democrática del Congo, en directo: Copa de África hoy, en vivo**: [Link](https://as.com/futbol/internacional/argelia-vs-republica-democratica-del-congo-en-directo-copa-de-africa-hoy-en-vivo-f202601-n/)
+- **FBI elogia la organización de la seguridad en la Copa África-Marruecos**: [Link](https://es.rue20.com/2026/01/05/fbi-elogia-la-organizacion-de-la-seguridad-en-la-copa-africa-marruecos/)
+
+
+### fernando carrillo (N/A, 06/01/2026 11:36 Lima)
+
+- **Fernando Carrillo, el actor de telenovelas que le rompió el corazón a Delcy Rodríguez**: [Link](https://peru21.pe/celebridades/fernando-carrillo-el-actor-que-fue-pareja-de-delcy-rodriguez/)
+- **Fernando Carrillo, exgalán de Thalía, recordó noviazgo que tuvo con presidenta de Venezuela**: [Link](https://www.elespectador.com/revista-vea/famosos/fernando-carrillo-exgalan-de-thalia-recordo-noviazgo-que-tuvo-con-presidenta-de-venezuela/)
+- **Fernando Carrillo sale en defensa de Delcy Rodríguez: "La traición no vino por ahí"**: [Link](https://okdiario.com/look/actualidad/fernando-carillo-sale-defensa-delcy-rodriguez-traicion-no-vino-ahi-2462904)
+
+
+### concierto bad bunny peru (N/A, 06/01/2026 11:36 Lima)
+
+- **Fans de Bad Bunny ya acampan en los exteriores del Estadio Nacional a días de su regreso a Lima [VIDEO]**: [Link](https://rpp.pe/musica/conciertos/bad-bunny-en-lima-fans-ya-acampan-en-los-alrededores-del-estadio-nacional-video-noticia-1670455)
+- **Bad Bunny en Lima: fanáticos inician acampada en el Estadio Nacional a 11 días del concierto**: [Link](https://caretas.pe/nacional/bad-bunny-en-lima-fanaticos-inician-acampada-en-el-estadio-nacional-a-11-dias-del-concierto/)
+- **Usuaria capta a fans de Bad Bunny acampando 10 días antes de su concierto en el Estadio Nacional y redes estallan: "¿No tienen nada que hacer?"**: [Link](https://larepublica.pe/entretenimiento/2026/01/05/usuaria-capta-a-fans-de-bad-bunny-acampando-10-dias-antes-de-su-concierto-en-el-estadio-nacional-y-redes-estallan-no-tienen-nada-que-hacer-atmp-441790)
+
+
+### como vs (N/A, 06/01/2026 11:36 Lima)
+
+- **Serie A: Why is Pisa v Como taking place on Tuesday afternoon?**: [Link](https://www.bbc.com/sport/football/articles/cgez95e9xnvo)
+- **Where to watch Serie A, live stream, schedule: Parma vs. Inter, AC Milan vs. Genoa and more**: [Link](https://www.cbssports.com/soccer/news/where-to-watch-serie-a-live-stream-schedule-2026-ac-milan-parma-inter/)
+- **Pisa-Como: Match Preview**: [Link](https://comofootball.com/en/pisa-como-matchpreview/)
+
+
+### amistosos (N/A, 06/01/2026 11:36 Lima)
+
+- **Plan de actividades del primer equipo de Universitario de Deportes**: [Link](https://universitario.pe/noticias/pretemporada/plan-de-actividades-del-primer-equipo-de-universitario-de-deportes-4)
+- **Inició la nueva era en Universitario: Javier Rabanal y su primer entrenamiento en Campo Mar 'U'**: [Link](https://rpp.pe/futbol/descentralizado/universitario-javier-rabanal-y-su-primer-entrenamiento-en-campo-mar-u-noticia-1670424)
+- **La frase que dio la bienvenida a los tricampeones y el plan de Sergi López para perfeccionar el rendimiento físico del plantel: Lo que no se vio del primer día de pretemporada de la ‘U’**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/universitario-hoy-la-frase-que-dio-la-bienvenida-a-los-tricampeones-y-el-plan-de-sergi-lopez-para-perfeccionar-el-rendimiento-fisico-del-plantel-lo-que-no-se-vio-del-primer-dia-de-pretemporada-de-la-u-liga-1-tlcnota-noticia/)
+
+
+### jayne trcka (N/A, 06/01/2026 11:36 Lima)
+
+- **Bodybuilder Jayne Trcka Who Played Miss Mann in 'Scary Movie' Dead at 62**: [Link](https://www.tmz.com/2026/01/05/jayne-trcka-dead/)
+- **'Scary Movie' actress and bodybuilder Jayne Trcka dead at 62**: [Link](https://www.usatoday.com/story/entertainment/celebrities/2026/01/06/jayne-trcka-death-scary-movie/88044251007/)
+- **'Scary Movie' actress and bodybuilder Jayne Trcka dead at 62**: [Link](https://nz.news.yahoo.com/scary-movie-actress-bodybuilder-jayne-141505299.html)
+
+
+### pisa - como (N/A, 06/01/2026 11:36 Lima)
+
+- **El vuelo del Como pasa por Pisa**: [Link](https://as.com/futbol/el-vuelo-del-como-hacia-arriba-pasa-por-pisa-f202601-n/)
+- **VIDEO: Máximo Perrone convirtió para Como ante Pisa**: [Link](https://www.espn.com.ar/futbol/italia/nota/_/id/16151481/maximo-perrone-gol-pisa-como-serie-a)
+- **Serie A: Pisa se enfrenta ante la visita Como 1907 por la fecha 19**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-pisa-se-enfrenta-ante-la-visita-como-1907-por-la-fecha-19-noticia-1670296)
+
+
 ### 6 de enero es feriado (N/A, 06/01/2026 07:56 Lima)
 
 - **¿El 6 de enero es feriado en Perú? Esto se sabe del día de Bajada de Reyes por la norma en El Peruano**: [Link](https://www.infobae.com/peru/2026/01/05/manana-6-de-enero-es-feriado-en-peru-esto-se-sabe-del-dia-de-bajada-de-reyes-por-la-norma-en-el-peruano/)
@@ -959,73 +1029,5 @@ Sin noticias relacionadas disponibles.
 - **Reportan explosiones en Caracas, Venezuela, en vivo: daños, reacciones y más**: [Link](https://cnnespanol.cnn.com/venezuela/live-news/explosiones-caracas-venezuela-en-vivo-orix)
 - **Tensión en Caracas ante posible ataque estadounidense**: [Link](https://www.dw.com/es/tensi%C3%B3n-en-caracas-ante-posible-ataque-estadounidense/live-74484400)
 - **Reportan explosiones y sobrevuelo de aviones en Caracas y otras partes del país y el gobierno de Maduro denuncia una "agresión militar" de EE.UU.**: [Link](https://www.bbc.com/mundo/articles/cvgn5rk0k1wo)
-
-
-### como vs (N/A, 02/01/2026 23:36 Lima)
-
-- **Preview: Como vs Udinese - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/como/preview/como-vs-udinese-prediction-team-news-lineups_588918.html)
-- **Como-Udinese: Match Preview**: [Link](https://comofootball.com/en/como-udinese-match-preview/)
-- **Tickets for Como vs Udinese, Serie A 2025/2026, buy seats for the match at Giuseppe Sinigaglia stadium in Como**: [Link](https://karlobag.eu/en/tickets/football/tickets-for-como-vs-udinese-serie-a-20252026-buy-seats-for-the-match-at-giuseppe-sinigaglia-stadium-in-como-jjo9a)
-
-
-### caballo horoscopo chino (N/A, 02/01/2026 23:36 Lima)
-
-- **Horóscopo Chino 2026: ¿Cuál es tu signo y quiénes tendrán más suerte el próximo año?**: [Link](https://as.com/us/tikitakas/horoscopo-chino-2026-cual-es-tu-signo-y-quienes-tendran-mas-suerte-el-proximo-ano-f202512-n/)
-- **Horóscopo chino 2026: Ludovica Squirru predice cómo le irá a cada signo en el año del Caballo de Fuego**: [Link](https://www.revistagente.com/horoscopo/horoscopo-chino-2026-ludovica-squirru-predice-como-le-ira-a-cada-signo-en-el-ano-del-caballo-de-fuego/)
-- **Cambios difíciles en el Año del Caballo: esto es lo que advierte un astrólogo sobre el horóscopo chino 2026**: [Link](https://www.colombia.com/horoscopo/esoterismo/ano-del-caballo-astrologo-daniel-daza-revela-cambios-dificiles-que-marcaran-este-ciclo-del-horoscopo-chino-557242)
-
-
-### lakers - grizzlies (N/A, 02/01/2026 23:36 Lima)
-
-- **JJ Redick drops major Dalton Knecht rotation change for Lakers**: [Link](https://basketnews.com/news-237970-jj-redick-drops-major-dalton-knecht-rotation-change-for-lakers.html)
-- **Is Luka Doncic playing tonight vs the Memphis Grizzlies? Latest update on the Los Angeles Lakers star's i**: [Link](https://timesofindia.indiatimes.com/sports/nba/top-stories/is-luka-doncic-playing-tonight-vs-the-memphis-grizzlies-latest-update-on-the-los-angeles-lakers-stars-injury-report-january-2-2026/articleshow/126315472.cms)
-- **Lakers vs Grizzlies! ANOTHER Injury Surprise Plus Keys To Victory**: [Link](https://bvmsports.com/2026/01/02/lakers-vs-grizzlies-another-injury-surprise-plus-keys-to-victory/)
-
-
-### warriors - thunder (N/A, 02/01/2026 23:36 Lima)
-
-- **Warriors without Curry, Butler, Green vs. Thunder**: [Link](https://www.espn.com/nba/story/_/id/47484011/sources-warriors-curry-butler-green-vs-thunder)
-- **Warriors testing NBA rules by sitting stars for high-profile game**: [Link](https://www.yardbarker.com/nba/articles/warriors_testing_nba_rules_by_sitting_stars_for_high_profile_game/s1_13132_43277588)
-- **Jimmy Butler is now questionable tonight with an …**: [Link](https://sports.yahoo.com/articles/jimmy-butler-now-questionable-tonight-194357778.html)
-
-
-### ticketmaster (N/A, 02/01/2026 21:00 Lima)
-
-- **Ticketmaster Accused Of Monopoly Tactics By Ex-Startup**: [Link](https://www.law360.com/articles/2426008/ticketmaster-accused-of-monopoly-tactics-by-ex-startup)
-- **Live Nation moves again to dismiss DOJ antitrust suit, claims ‘Zero Proof’**: [Link](https://www.hypebot.com/hypebot/2025/12/live-nation-move-again-to-dismiss-anti-trust-suit.html)
-- **Will California’s fight with Live Nation make tickets affordable again? | Opinion**: [Link](https://www.sacbee.com/opinion/op-ed/article313927223.html)
-
-
-### luna llena enero 2026 (N/A, 02/01/2026 21:00 Lima)
-
-- **La superluna llena de enero, conocida como la luna del lobo, y la lluvia de meteoros Cuadrántidas dan inicio al nuevo año**: [Link](https://cnnespanol.cnn.com/2026/01/01/ciencia/superluna-lobo-lluvia-meteoros-cuadrantidas-2026-trax)
-- **Los 12 fenómenos astronómicos más espectaculares de 2026: desde un eclipse total hasta auroras impresionantes**: [Link](https://www.nationalgeographicla.com/espacio/2026/01/los-12-fenomenos-astronomicos-mas-espectaculares-de-2026-desde-un-eclipse-total-hasta-auroras-impresionantes)
-- **Superlunas, lluvias de meteoros y alineaciones planetarias: los eventos astronómicos de enero que no te puedes perder**: [Link](https://elcomercio.pe/mag/respuestas/ciencias/superlunas-lluvias-de-meteoros-y-alineaciones-planetarias-los-eventos-astronomicos-de-enero-que-no-te-puedes-perder-nnda-nnrt-noticia/)
-
-
-### servicio militar obligatorio (N/A, 02/01/2026 21:00 Lima)
-
-- **Inscripción militar obligatoria 2026: jóvenes de 17 años serán multados si no se inscriben en el Ejército, FAP y la Marina**: [Link](https://www.infobae.com/peru/2026/01/02/inscripcion-militar-obligatoria-2026-jovenes-de-17-anos-seran-multados-si-no-se-inscriben-en-el-ejercito-fap-y-la-marina/)
-- **Modifican Reglamento de la Ley del Servicio Militar para fortalecer inscripción y beneficios [DS 018-2025-DE]**: [Link](https://lpderecho.pe/modifican-reglamento-ley-servicio-militar-fortalecer-inscripcion-beneficios-ds-018-2025-de/)
-- **Cambios en el Servicio Militar: Inscripción obligatoria antes de 18 años y nuevas multas establecidas**: [Link](https://canaln.pe/actualidad/gobierno-establece-disposiciones-y-multas-servicio-militar-n489322)
-
-
-### juegos ps plus (N/A, 02/01/2026 21:00 Lima)
-
-- **Juegos mensuales de PlayStation Plus de enero: Need For Speed Unbound, Disney Epic Mickey: Rebrushed y Core Keeper**: [Link](https://blog.es.playstation.com/2025/12/31/juegos-mensuales-de-playstation-plus-de-enero-need-for-speed-unbound-disney-epic-mickey-rebrushed-y-core-keeper/)
-- **PlayStation Plus: confirmados los juegos gratis de enero de 2026 para PS5 y PS4**: [Link](https://www.vidaextra.com/ps5/playstation-plus-confirmados-juegos-gratis-enero-2026-para-ps5)
-- **Si tienes una PS5 o PS4, pronto podrás jugar a los 3 juegos gratis de PS Plus Essential de enero de 2026**: [Link](https://www.3djuegos.com/ps5/noticias/tienes-ps5-ps4-pronto-podras-jugar-a-3-juegos-gratis-ps-plus-essential-enero-2026)
-
-
-### guimaraes vs (N/A, 02/01/2026 21:00 Lima)
-
-- **Preview: Vitoria de Guimaraes vs Nacional - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/vitoria-de-guimaraes/preview/guimaraes-vs-nacional-prediction-team-news-lineups_588891.html)
-
-
-### guimarães - nacional (N/A, 02/01/2026 21:00 Lima)
-
-- **Tiago Margarido: «Lance de sorte desbloqueou o jogo»**: [Link](https://www.record.pt/futebol/futebol-nacional/liga-betclic/nacional/detalhe/tiago-margarido-lance-de-sorte-desbloqueou-o-jogo)
-- **Triunfo vimaranense frente ao CD Nacional**: [Link](https://www.ligaportugal.pt/news/26374/triunfo-vimaranense-frente-ao-cd-nacional)
-- **Luís Pinto: «A paciência no nosso estádio não é fácil de ter»**: [Link](https://sapo.pt/artigo/luis-pinto-a-paciencia-no-nosso-estadio-nao-e-facil-de-ter-69586dd32c7b75270a33ff29)
 
 
