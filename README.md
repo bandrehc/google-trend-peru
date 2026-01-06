@@ -1,3 +1,73 @@
+### juventus vs (N/A, 06/01/2026 15:30 Lima)
+
+- **¡EN VIVO! Sassuolo vs. Juventus por Serie A**: [Link](https://www.espn.com.pe/futbol/italia/nota/_/id/16149542/sassuolo-vs-juventus-equipo-fecha-hora-y-tv-en-vivo)
+- **Serie A: Sassuolo recibirá a Juventus por la fecha 19**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-sassuolo-recibira-a-juventus-por-la-fecha-19-noticia-1670337)
+- **Serie A: Sassuolo vs Juventus – posibles alineaciones y dónde verlo por TV**: [Link](https://www.elpueblo.pe/deportes/serie-a-sassuolo-vs-juventus-posibles-alineaciones-y-donde-verlo-por-tv/197544/)
+
+
+### sporting lisboa (N/A, 06/01/2026 15:30 Lima)
+
+- **Em direto (pré-jogo): Sporting - Vitória (já há onzes - grande surpresa no Sporting)**: [Link](https://cnnportugal.iol.pt/taca-da-liga-sporting-vitoria-guimaraes/meias-finais/em-direto-pre-jogo-sporting-vitoria-ja-ha-onzes-grande-surpresa-no-sporting/20260106/695d624ad34e0ec52ec1c52b)
+- **AO VIVO: Trincão atira para defesa de Charles (13')**: [Link](https://www.flashscore.pt/noticias/futebol-taca-da-liga-ao-vivo-trincao-atira-para-defesa-de-charles-13/UyEolPtS/)
+- **Rui Borges com menos dez e a ter de 'inventar' à esquerda (o onze do Sporting)**: [Link](https://www.abola.pt/noticias/rui-borges-com-menos-dez-e-a-ter-de-inventar-a-esquerda-o-onze-do-sporting-2026010523421872485)
+
+
+### copa de la liga de portugal (N/A, 06/01/2026 15:30 Lima)
+
+- **Luis Suárez hoy: Probabilidad de gol ante Guimaraes por Copa de la Liga**: [Link](https://www.365scores.com/es/news/luis-suarez-cuota-vs-guimaraes-copa/)
+- **Sporting CP vs Vitória Guimarães EN VIVO HOY martes 6 de enero**: [Link](https://www.deportesrcn.com/futbol/sporting-cp-vs-vitoria-guimaraes-en-vivo-hoy-martes-6-de-enero-supercopa-de-turquia-143640)
+- **EN VIVO Sporting de Lisboa vs. Vitoria Guimaraes, semifinal Copa de la Liga de Portugal: Luis Suárez busca la final**: [Link](https://www.infobae.com/colombia/deportes/2026/01/06/en-vivo-sporting-de-lisboa-vs-vitoria-guimaraes-semifinal-copa-de-la-liga-de-portugal-luis-suarez-busca-la-final/)
+
+
+### mcdonalds (N/A, 06/01/2026 15:30 Lima)
+
+- **McDonald's releases statement after lawsuit says it ‘deceived' customers about McRib**: [Link](https://www.nbcchicago.com/news/local/mcdonalds-releases-statement-after-lawsuit-claims-it-deceived-customers-about-mcrib-sandwich/3871345/)
+- **McDonald's Faces Class Action Lawsuit Over Fan-Favorite McRib Sandwich**: [Link](https://people.com/mcdonalds-faces-class-action-lawsuit-over-fan-favorite-mcrib-sandwich-11879035)
+- **Lawsuit accuses Chicago-based McDonald's of deception on grounds that McRib has no rib meat**: [Link](https://www.cbsnews.com/chicago/news/lawsuit-accuses-mcdonalds-deception-mcrib-has-no-rib-meat/)
+
+
+### supercopa de turquía (N/A, 06/01/2026 15:30 Lima)
+
+- **Jhon Durán marca y Fenerbahce clasifica a la final de la Supercopa Turca**: [Link](https://www.espn.com.ar/futbol/nota/_/id/16152529/jhon-duran-marca-y-fenerbahce-clasifica-a-la-final-de-la-supercopa-turca)
+- **VIDEO - Gol de Jhon Jader Durán para Fenerbahçe en la Supercopa de Turquía**: [Link](https://www.deportesrcn.com/futbol/video-gol-de-jhon-jader-duran-para-fenerbahce-en-la-supercopa-de-turquia-143657)
+- **Recital de Asensio... y a la final de la Supercopa**: [Link](https://as.com/futbol/internacional/recital-de-asensio-y-a-la-final-de-la-supercopa-f202601-n/)
+
+
+### west ham - nottingham forest (N/A, 06/01/2026 15:30 Lima)
+
+- **West Ham v Nottingham Forest: Premier League – live**: [Link](https://www.theguardian.com/football/live/2026/jan/06/west-ham-v-nottingham-forest-premier-league-live)
+- **Tuesday's football tips: West Ham talisman Bowen 4/1 for over 1.5 shots on target against Forest**: [Link](https://mrfixitstips.co.uk/tuesdays-football-tips-west-ham-talisman-bowen-4-1-for-over-1-5-shots-on-target-against-forest/)
+- **West Ham need to make London Stadium a ‘nightmare’ for Forest tonight**: [Link](https://www.thewesthamway.com/2026/01/06/west-ham-need-to-make-london-stadium-a-nightmare-for-forest-tonight/)
+
+
+### sassuolo - juventus (N/A, 06/01/2026 15:30 Lima)
+
+- **Sassuolo-Juve diretta: segui la sfida di Serie A LIVE**: [Link](https://www.corrieredellosport.it/news/calcio/serie-a/2026/01/06-145675011/sassuolo-juve_diretta_segui_la_sfida_di_serie_a_live)
+- **Tutte le notizie sul calcio in Diretta**: [Link](https://www.diretta.it/news/calcio-live-news-in-campo-sassuolo-juventus-0-1-e-costa-d-avorio-burkina-faso-2-0/MsLpimyQ/)
+- **Serie A | Le formazioni ufficiali di Sassuolo-Juventus**: [Link](https://www.juventus.com/it/news/articoli/serie-a-2025-2026-sassuolo-juventus-formazioni-ufficiali)
+
+
+### sassuolo vs juventus (N/A, 06/01/2026 15:30 Lima)
+
+- **Sassuolo vs Juventus – Kelly & Conceicao left out of Bianconeri squad**: [Link](https://football-italia.net/sassuolo-vs-juventus-kelly-conceicao-left-out/)
+- **Preview: Sassuolo vs Juventus - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/sassuolo/preview/sassuolo-vs-juventus-prediction-team-news-lineups_589152.html)
+- **US Sassuolo Calcio vs Juventus: Preview and Prediction**: [Link](https://thehardtackle.com/round-up/2026/01/05/us-sassuolo-calcio-vs-juventus-preview-and-prediction/)
+
+
+### luis advíncula (N/A, 06/01/2026 15:30 Lima)
+
+- **Se filtró que Luis Advíncula fichará por Alianza Lima y ya tiene fecha de anuncio: “Con su entorno están últimando detalles”**: [Link](https://www.infobae.com/peru/deportes/2026/01/05/se-filtro-que-luis-advincula-fichara-por-alianza-lima-y-ya-tiene-fecha-de-anuncio-con-su-entorno-estan-ultimando-detalles/)
+- **Advíncula inició pretemporada en Boca: ¿Llega a Alianza Lima?**: [Link](https://www.americatv.com.pe/deportes/futbol-mundial/advincula-inicio-pretemporada-boca-llega-alianza-lima-n452217)
+- **Alianza Lima tomó una decisión final sobre Bryan Reyna y Fernando Pacheco**: [Link](https://bolavip.com/pe/alianza-lima/alianza-lima-tomo-una-decision-final-sobre-bryan-reyna-y-fernando-pacheco)
+
+
+### luca zidane (N/A, 06/01/2026 15:30 Lima)
+
+- **Watching his son. Legendary Zinedine Zidane attends CAF Algeria vs DR Congo match**: [Link](https://dailysports.net/news/watching-his-son-legendary-zinedine-zidane-attends-the-caf-algeria-vs-dr-congo-match/)
+- **Morocco Africa Cup of Nations Soccer**: [Link](https://www.wvnews.com/sports/pro/morocco-africa-cup-of-nations-soccer/image_0ded20e4-da5a-59e4-ad38-d9d3b45ba17e.html)
+- **Luca Zidane Shines as Algeria Proceeds to Afcon Knockouts with Family Support**: [Link](https://news.ssbcrack.com/luca-zidane-shines-as-algeria-proceeds-to-afcon-knockouts-with-family-support/)
+
+
 ### lecce - roma (N/A, 06/01/2026 11:36 Lima)
 
 - **Lecce-Roma: le formazioni ufficiali**: [Link](https://www.asroma.com/it/notizie/74607/lecce-roma-le-formazioni-ufficiali)
@@ -959,75 +1029,5 @@ Sin noticias relacionadas disponibles.
 - **Podemos, Fuerza Popular, APP, Obras y Perú Libre lideran el listado de partidos con más candidatos con sentencias**: [Link](https://www.infobae.com/peru/2026/01/01/podemos-fuerza-popular-app-obras-y-peru-libre-lideran-el-listado-de-partidos-con-mas-candidatos-con-sentencias/)
 - **Reportan que 252 candidatos a las Elecciones 2026 registran sentencias penales vigentes**: [Link](https://canaln.pe/actualidad/252-candidatos-presentan-sentencias-vigentes-elecciones-2026-n489318)
 - **Elecciones 2026: 9 de cada 10 partidos políticos registraron en el JNE a candidatos con condenas ¿Cuáles son?**: [Link](https://rpp.pe/peru/actualidad/elecciones-2026-9-de-cada-10-partidos-politicos-registraron-en-el-jne-a-candidatos-con-condenas-cuales-son-noticia-1669810)
-
-
-### dolar (N/A, 03/01/2026 03:33 Lima)
-
-- **Precio del dólar en Perú hoy, jueves 1 de enero: cuál es el tipo de cambio**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-2026-a-cuanto-esta-el-tipo-de-cambio-este-jueves-1-de-enero-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
-- **Precio del dólar al inicio del año: ¿A cuánto se cotiza el tipo de cambio hoy 2 de enero?**: [Link](https://www.infobae.com/peru/2026/01/02/valor-de-apertura-del-dolar-en-peru-este-2-de-enero-de-usd-a-pen/)
-- **Tipo de cambio: ¿cómo cerró el año el billete verde y cuál fue su valor en el inicio del 2026?**: [Link](https://cuantoestaeldolar.pe/noticias/tipo-de-cambio-como-cerro-el-ano-el-billete-verde-y-cual-fue-su-valor-en-el-inicio-del-2026/)
-
-
-### trump (N/A, 03/01/2026 03:33 Lima)
-
-- **Exclusive | As Signs of Aging Emerge, Trump Responds With Defiance**: [Link](https://www.wsj.com/us-news/as-signs-of-aging-emerge-trump-responds-with-defiance-769c5dcd)
-- **Trump says he takes higher daily dose of aspirin than doctors recommend**: [Link](https://www.bbc.com/news/articles/c701z7g0ppro)
-- **Trump says he got a CT scan instead of an MRI**: [Link](https://digital.abcaudio.com/news/trump-says-he-got-ct-scan-instead-mri)
-
-
-### fuerte tiuna (N/A, 03/01/2026 03:33 Lima)
-
-- **Live updates: Multiple explosions rock Venezuelan capital Caracas**: [Link](https://www.cnn.com/world/live-news/venezuela-explosions-caracas-intl-hnk-01-03-26)
-- **Venezuela says it rejects "military aggression" by the US**: [Link](https://www.reuters.com/world/americas/venezuela-says-it-rejects-military-aggression-by-us-2026-01-03/)
-- **Explosions and low-flying aircraft reported in Venezuelan capital Caracas – live**: [Link](https://www.theguardian.com/world/live/2026/jan/03/caracas-explosions-venezuela-maduro-latest-news-updates-live)
-
-
-### el comercio (N/A, 03/01/2026 03:33 Lima)
-
-- **Proinversión presentará en 60 días un plan de acción para reorganizar Petroperú**: [Link](https://elperuano.pe/noticia/286328-proinversion-presentara-en-60-dias-un-plan-de-accion-para-reorganizar-petroperu)
-- **Premier Ernesto Álvarez anuncia el fin de las gollerias en Petroperú**: [Link](https://peru21.pe/economia/premier-ernesto-alvarez-anuncia-el-fin-de-las-gollerias-en-petroperu/)
-- **Exministro de Energía y Minas: La reorganización “es una forma de resolver el problema de Petroperú acabando con Petroperú”**: [Link](https://rpp.pe/politica/gobierno/exministro-de-energia-y-minas-la-reorganizacion-es-una-forma-de-resolver-el-problema-de-petroperu-acabando-con-petroperu-noticia-1670012)
-
-
-### venezuela hoy (N/A, 03/01/2026 03:33 Lima)
-
-- **"El olor a pólvora era fuerte": testigos hablan de la presunta explosión que destruyó una estructura en la Alta Guajira de Venezuela**: [Link](https://www.bbc.com/mundo/articles/ce8edkewprko)
-- **Maduro dice que hablará "en unos días” sobre el presunto ataque de la CIA en Venezuela**: [Link](https://cnnespanol.cnn.com/2026/01/01/venezuela/maduro-ataque-cia-venezuela-orix)
-- **Nicolás Maduro dice estar listo "para negociar" con EE. UU. sobre narcotráfico y petróleo**: [Link](https://rpp.pe/mundo/actualidad/nicolas-maduro-dice-estar-listo-para-negociar-con-ee-uu-sobre-narcotrafico-y-petroleo-noticia-1670036)
-
-
-### bbc (N/A, 03/01/2026 03:33 Lima)
-
-- **BBC settles with 7 October survivors for filming home ‘without permission’**: [Link](https://www.theguardian.com/media/2026/jan/02/bbc-settles-with-7-october-survivors-for-filming-home-without-permission)
-- **BBC settles with October 7 attack survivors after filming home ‘without permission’**: [Link](https://www.timesofisrael.com/liveblog_entry/bbc-settles-with-october-7-attack-survivors-after-filming-home-without-permission/)
-- **BBC apologises after Jeremy Bowen entered Oct 7 survivors’ home without permission**: [Link](https://www.telegraph.co.uk/news/2026/01/02/bbc-apology-oct7-survivors-filmed-home-jeremy-bowen/)
-
-
-### noticias (N/A, 03/01/2026 03:33 Lima)
-
-- **viernes 2 de enero**: [Link](https://latinanoticias.pe/noticias/latina-noticias-edicion-mediodia-encuesta-de-hoy-jueves-2-de-enero_20260102/)
-- **¿Por qué Fluminense rechazó la primera oferta del Bologna por Freytes y por qué Alianza tendrá un ingreso millonario si se da el fichaje?**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/alianza-lima-por-que-fluminense-rechazo-la-primera-oferta-del-bologna-por-juan-pablo-freytes-y-por-que-alianza-tendra-un-ingreso-millonario-si-se-da-el-fichaje-tlcnota-noticia/)
-- **Confirmado: Juan Pablo Freytes da el batacazo y firmará por campeón de Serie A, anuncian en Italia**: [Link](https://libero.pe/futbol-internacional/2025/12/28/juan-pablo-freytes-da-batacazo-firmara-campeon-de-serie-anuncian-en-italia-alianza-lima-fichajes-2026-1690108)
-
-
-### x (N/A, 03/01/2026 03:33 Lima)
-
-- **Woman felt 'dehumanised' after Musk's Grok AI used to digitally remove her clothes**: [Link](https://www.bbc.com/news/articles/c98p1r4e6m8o)
-- **Elon Musk’s Pornography Machine**: [Link](https://www.theatlantic.com/technology/2026/01/elon-musks-pornography-machine/685482/)
-- **Musk's xAI faces backlash after Grok generates sexualized images of children on X**: [Link](https://www.cnbc.com/2026/01/02/musk-grok-ai-bot-safeguard-sexualized-images-children.html)
-
-
-### cnn (N/A, 03/01/2026 03:33 Lima)
-
-- **Champagne sparklers and a fast-spreading inferno: How a deadly Swiss bar tragedy unfolded**: [Link](https://www.cnn.com/2026/01/02/europe/how-swiss-club-fire-unfolded-vis-intl)
-- **Swiss bar fire was like 'hell': Survivors recount ski resort blaze**: [Link](https://www.nbcnews.com/world/europe/swiss-bar-fire-survivors-recount-ski-resort-blaze-rcna251894)
-- **How one Swiss hospital coped with the injured from the Alpine bar fire**: [Link](https://apnews.com/article/switzerland-crans-montana-bar-fire-hospital-973802e916bd906bdfb947de46400c60)
-
-
-### venezuela (N/A, 03/01/2026 03:33 Lima)
-
-- **Reportan explosiones en Caracas, Venezuela, en vivo: daños, reacciones y más**: [Link](https://cnnespanol.cnn.com/venezuela/live-news/explosiones-caracas-venezuela-en-vivo-orix)
-- **Tensión en Caracas ante posible ataque estadounidense**: [Link](https://www.dw.com/es/tensi%C3%B3n-en-caracas-ante-posible-ataque-estadounidense/live-74484400)
-- **Reportan explosiones y sobrevuelo de aviones en Caracas y otras partes del país y el gobierno de Maduro denuncia una "agresión militar" de EE.UU.**: [Link](https://www.bbc.com/mundo/articles/cvgn5rk0k1wo)
 
 
