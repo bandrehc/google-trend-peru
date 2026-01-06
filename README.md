@@ -1,3 +1,66 @@
+### aryna sabalenka (N/A, 05/01/2026 23:43 Lima)
+
+- **A Grand Slam-worthy start: Seven Top 10 stars headline Brisbane International**: [Link](https://www.wtatennis.com/news/4427367/brisbane-preview)
+- **Highlights: Nakashima upsets Davidovich Fokina in Brisbane 2026 opener**: [Link](https://www.atptour.com/en/video/highlights-nakashima-upsets-davidovich-fokina-in-brisbane-2026-opener)
+- **Brisbane International 2026: Prize Money for First WTA 500 Event of the Year**: [Link](https://sports.betmgm.com/en/blog/wta/brisbane-international-prize-money-tennis-payouts-bm06/)
+
+
+### david bisbal (N/A, 05/01/2026 23:43 Lima)
+
+- **David Bisbal: “En mi infancia, los que nos regalaban eran los Reyes Magos, no Papá Noel. El mejor regalo fue un disfraz de Superman”**: [Link](https://www.lecturas.com/actualidad/david-bisbal-sobre-su-infancia-que-nos-regalaban-eran-reyes-magos-no-papa-noel-mejor-regalo-fue-disfraz-superman_186768)
+- **Destacado cantante en Chile comparte emotiva charla con su padre enfermo de Alzheimer: "Dame un abrazo, vamos"**: [Link](https://www.fmdos.cl/noticias/destacado-cantante-en-chile-comparte-emotiva-charla-con-su-padre-enfermo-de-alzheimer-dame-un-abrazo-vamos/)
+- **¡Una conversación que conmueve al mundo! así fue el encuentro de David Bisbal con su padre que padece Alzheimer**: [Link](https://2001online.com/farandula/una-conversacion-que-conmueve-al-mundo-asi-fue-el-encuentro-de-david-bisbal-con-su-padre-que-padece-alzheimer-20261511310)
+
+
+### clippers - warriors (N/A, 05/01/2026 23:43 Lima)
+
+- **Live Updates: Warriors-Clippers highlights eight-game night**: [Link](https://www.nba.com/news/live-updates-warriors-clippers-highlights-eight-game-night)
+- **Fanatics Sportsbook promo code NYPOST: Get up to $2,000 in FanCash for Warriors vs. Clippers**: [Link](https://nypost.com/2026/01/05/betting/fanatics-sportsbook-promo-code-nypost-get-up-to-2000-in-fancash-for-warriors-vs-clippers/)
+- **Is Stephen Curry playing tonight vs te Los Angeles Clippers? Latest update on the Golden State Warriors s**: [Link](https://timesofindia.indiatimes.com/sports/nba/top-stories/is-stephen-curry-playing-tonight-vs-te-los-angeles-clippers-latest-update-on-the-golden-state-warriors-stars-injury-report-january-5-2026/articleshow/126363368.cms)
+
+
+### pedro el escamoso (N/A, 05/01/2026 23:43 Lima)
+
+- **Pedro el Escamoso vuelve HOY a las pantallas de ATV desde las 10:00 P.M.**: [Link](https://www.atv.pe/noticia/pedro-el-escamoso-llega-a-las-pantallas-de-atv-este-5-de-enero/)
+- **¡Pedro el escamoso 2! Reviva el inicio de la nueva temporada**: [Link](https://www.atv.pe/noticia/pedro-el-escamoso-2-reviva-el-inicio-de-la-nueva-temporada/)
+- **Pedro el escamoso 2: Pedro sufre cómico rechazo al no ser reconocido por su hijo**: [Link](https://www.atv.pe/noticia/pedro-el-escamoso-2-pedro-sufre-comico-rechazo-al-no-ser-reconocido-por-su-hijo/)
+
+
+### damiano david (N/A, 05/01/2026 23:43 Lima)
+
+- **The Biggest Celebrity Engagements of 2026—So Far**: [Link](https://www.vogue.com/article/celebrity-engagements-2026)
+- **Italian Rock Star Damiano David and Model Dove Cameron Are Engaged**: [Link](https://lavocedinewyork.com/en/people/2026/01/05/italian-rock-star-damiano-david-and-model-dove-cameron-are-engaged/)
+- **Descendants Star Dove Cameron Announces Engagement, Shares Photos**: [Link](https://www.comingsoon.net/pop-culture/news/2079709-dove-cameron-damiano-david-engaged-announcement-photos)
+
+
+### la empleada (N/A, 05/01/2026 23:43 Lima)
+
+- **La adaptación de ‘La asistenta’ reivindica el pitorreo sin vergüenza ajena: una película tan ridícula como retozona, tan tonta como divertida**: [Link](https://www.infobae.com/espana/cultura/2026/01/05/la-adaptacion-de-la-asistenta-reivindica-el-pitorreo-sin-verguenza-ajena-una-pelicula-tan-ridicula-como-retozona-tan-tonta-como-divertida/)
+- **Después de este inquietante final, ¿"La Señora de la Limpieza" tendrá una secuela?**: [Link](https://www.ma-grande-taille.com/es/culture/tras-un-final-inquietante-la-senora-de-la-limpieza-tendra-derecho-a-una-secuela-431832)
+- **Crítica: La empleada (The Housemaid)**: [Link](https://es.hollywoodreporter.com/critica-la-empleada-the-housemaid/)
+
+
+### olivia rodrigo (N/A, 05/01/2026 23:43 Lima)
+
+- **Olivia Rodrigo Is Renewing Her Driver’s License**: [Link](https://www.vulture.com/article/olivia-rodrigo-drivers-license-anniversary-website.html)
+- **What's with the driver's license renewal on Olivia Rodrigo's website? Singer updates website ahead of debut single's anniversary**: [Link](https://www.soapcentral.com/entertainment/news-what-s-driver-s-license-renewal-olivia-rodrigo-s-website-singer-updates-website-ahead-debut-single-s-anniversary)
+- **Olivia Rodrigo Hints at New Music for ‘Driver’s License’ Anniversary**: [Link](https://news.ssbcrack.com/olivia-rodrigo-hints-at-new-music-for-drivers-license-anniversary/)
+
+
+### thunder - hornets (N/A, 05/01/2026 23:43 Lima)
+
+- **Shai Gilgeous-Alexander gets brutally honest in OKC's major blowout loss vs Hornets**: [Link](https://basketnews.com/news-238182-shai-gilgeous-alexander-gets-brutally-honest-in-okcs-brutal-blowout-loss-vs-hornets.html)
+- **Hornets Shock Thunder As Pistons Dominate Knicks**: [Link](https://www.barrons.com/news/hornets-shock-thunder-as-pistons-dominate-knicks-1230cfed)
+- **OKC gets blown out at home to Charlotte, drops second straight game**: [Link](https://www.hoopshype.com/story/sports/nba/rumors/2026/01/05/okc-gets-blown-out-at-home-to-charlotte-drops-second-straight-game/88041375007/)
+
+
+### advincula (N/A, 05/01/2026 23:43 Lima)
+
+- **Se filtró que Luis Advíncula fichará por Alianza Lima y ya tiene fecha de anuncio: “Con su entorno están últimando detalles”**: [Link](https://www.infobae.com/peru/deportes/2026/01/05/se-filtro-que-luis-advincula-fichara-por-alianza-lima-y-ya-tiene-fecha-de-anuncio-con-su-entorno-estan-ultimando-detalles/)
+- **Revelan que Luis Advíncula llegó a un acuerdo con histórico club peruano: "Ya está"**: [Link](https://libero.pe/futbol-peruano/alianza-lima/2026/01/05/revelan-luis-advincula-llego-acuerdo-historico-club-peruano-139475)
+- **En Argentina confirman cuál será el futuro de Luis Advíncula tras una inminente salida de Boca Juniors**: [Link](https://bolavip.com/pe/peruanos-en-el-exterior/en-argentina-confirman-cual-sera-el-futuro-de-luis-advincula-tras-una-inminente-salida-de-boca-juniors)
+
+
 ### cotización dólar hoy (N/A, 05/01/2026 21:06 Lima)
 
 - **Precio del dólar al inicio del 2026: Así cerró el tipo de cambio hoy 5 de enero en Perú**: [Link](https://www.infobae.com/peru/2026/01/05/dolar-cotizacion-de-apertura-hoy-5-de-enero-en-peru/)
@@ -962,68 +1025,5 @@ Sin noticias relacionadas disponibles.
 - **Atenção, Sporting: Hjulmand falha receção ao Casa Pia por castigo**: [Link](https://maisfutebol.iol.pt/sporting/liga/atencao-sporting-hjulmand-falha-rececao-ao-casa-pia-por-castigo)
 - **Sporting com baixa importante contra o Casa Pia na Primeira Liga**: [Link](https://bolanarede.pt/especial-bola-na-rede/atualidade/sporting-com-baixa-importante-contra-o-casa-pia-na-primeira-liga/)
 - **Atenção, Sporting: Hjulmand falha receção ao Casa Pia por castigo**: [Link](https://tvi.iol.pt/noticias/sporting/liga/atencao-sporting-hjulmand-falha-rececao-ao-casa-pia-por-castigo)
-
-
-### niño atropellado en gamarra (N/A, 02/01/2026 15:28 Lima)
-
-- **Madre del niño atropellado en Gamarra exige que el chofer pague: "¡Me lo mató! Que no quede impune"**: [Link](https://www.atv.pe/noticia/madre-del-nino-atropellado-en-gamarra-exige-que-el-chofer-pague-me-lo-mato-que-no-quede-impune/)
-- **Empresa Hermes se pronuncia luego del atropello de menor en Gamarra: “Nos encontramos comprometidos con las investigaciones”**: [Link](https://trome.com/actualidad/gamarra-empresa-hermes-se-pronuncia-luego-del-atropello-de-menor-de-dos-anos-nos-encontramos-comprometidos-con-las-investigaciones-video-fotos-historia-de-policiales-noticia/)
-- **El doloroso testimonio del padre de menor que murió atropellado en Gamarra frente a la hermana del niño: “Me lo mató”**: [Link](https://www.infobae.com/peru/2025/12/31/el-doloroso-testimonio-del-padre-tras-el-atropello-mortal-de-su-hijo-en-gamarra-frente-a-los-ojos-de-la-hermana-del-nino-me-lo-mato/)
-
-
-### rayo vallecano - getafe (N/A, 02/01/2026 15:28 Lima)
-
-- **Rayo Vallecano - Getafe, en directo: LaLiga EA Sports, en vivo hoy**: [Link](https://as.com/futbol/primera/rayo-vallecano-getafe-en-directo-laliga-ea-sports-en-vivo-hoy-f202601-d/)
-- **Apuestas y Pronóstico del Rayo Vallecano vs Getafe 02/01/26**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2026/enero/pronostico-rayo-vallecano-vs-getafe-02-01-26)
-- **Derbi madrileño de estilos opuestos para iniciar el año**: [Link](https://www.mundodeportivo.com/futbol/laliga/20260102/1002594544/derbi-madrileno-estilos-opuestos-iniciar-ano.html)
-
-
-### sporting lisboa (N/A, 02/01/2026 15:28 Lima)
-
-- **Grande passe de Quaresma e Suárez coloca o Sporting a vencer (vídeo)**: [Link](https://www.abola.pt/noticias/grande-passe-de-quaresma-e-suarez-coloca-o-sporting-a-vencer-video-2026010215533299921)
-- **AO VIVO: Enorme defesa de Rui Silva a Tidjany Touré (54')**: [Link](https://www.flashscore.pt/noticias/futebol-liga-portugal-betclic-ao-vivo-enorme-defesa-de-rui-silva-a-tidjany-toure-54/x2FTjAat/)
-- **Gil Vicente: Sporting (ONZES): Matheus Reis e Fresneda titulares em Barcelos**: [Link](https://maisfutebol.iol.pt/gil-vicente/sporting/gil-vicente-sporting-onzes-matheus-reis-e-fresneda-titulares-em-barcelos)
-
-
-### cagliari - milan (N/A, 02/01/2026 15:28 Lima)
-
-- **Tutto il calcio in Diretta**: [Link](https://www.diretta.it/news/calcio-live-in-campo-cagliari-milan-0-0/SK1IN9Q9/)
-- **Cagliari-AC Milan, Serie A Enilive 2025/2026: formazioni ufficiali**: [Link](https://www.acmilan.com/it/news/articoli/serie-a/2026-01-02/cagliari-milan-le-formazioni-ufficiali)
-- **Prima pagina Gazzetta dello Sport: “Ritorna Leao, Fullkrug in panchina. E sul mercato tentazione Kim”**: [Link](https://www.pianetamilan.it/news-milan/rassegna-stampa/prima-pagina-gazzetta-dello-sport-ritorna-leao-fullkrug-in-panchina-e-sul-mercato-tentazione-kim-02-01-2026/)
-
-
-### rayo vallecano (N/A, 02/01/2026 11:32 Lima)
-
-- **LaLiga EA Sports: Getafe quiere romper su racha negativa y ganar frente a Rayo Vallecano**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-getafe-quiere-romper-su-racha-negativa-y-ganar-frente-a-rayo-vallecano-noticia-1669893)
-- **Where to Watch Rayo Vallecano vs. Getafe CF: TV Channel, Start Time and Live Stream**: [Link](https://www.bleachernation.com/how-to-watch/2026/01/01/where-to-watch-rayo-vallecano-vs-getafe-cf-tv-channel-start-time-and-live-stream-2/)
-- **Rayo Vallecano-Getafe - LaLiga 2025/2026 Statistical Preview**: [Link](https://www.whoscored.com/matches/1914059/preview/spain-laliga-2025-2026-rayo-vallecano-getafe)
-
-
-### britanico (N/A, 02/01/2026 11:32 Lima)
-
-- **El individuo, señalado por intento de homicidio y porte ilegal de armas, fue puesto a disposición de la Policía tras ser interceptado en el aeropuerto antioqueño**: [Link](https://www.facebook.com/story.php?story_fbid=1316095220533237&id=100063983144594)
-- **Cae en Medellín ciudadano británico requerido en España: ¿a qué venía a Colombia y por qué era buscado?**: [Link](https://www.eltiempo.com/justicia/delitos/cae-en-medellin-ciudadano-britanico-requerido-en-espana-a-que-venia-a-colombia-y-por-que-era-buscado-3521246)
-- **Capturaron a un ciudadano británico por un delito cometido en España**: [Link](https://telemedellin.tv/capturaron-a-britanico-por-delito-en-espana/)
-
-
-### suspensión de 4ta categoria 2026 (N/A, 02/01/2026 11:32 Lima)
-
-- **Fijan nuevos montos para la suspensión de pagos y retenciones de cuarta categoría en 2026 [Resolución de Superintendencia 000390-2025/Sunat]**: [Link](https://lpderecho.pe/fijan-nuevos-montos-para-la-suspension-de-pagos-y-retenciones-de-cuarta-categoria-en-2026-resolucion-de-superintendencia-000390-2025-sunat/)
-- **Desde hoy 1 de enero, el transporte no autorizado será sancionado con S/5500. Cumple la norma**: [Link](https://www.elperuano.pe/noticia/286276-desde-hoy-1-de-enero-el-transporte-no-autorizado-sera-sancionado-con-s5500-cumple-la-norma)
-- **La UIT sube a S/ 5.500 este 2026: ¿Cómo impactará en nuestros impuestos, multas y en los retiros de las AFP?**: [Link](https://elcomercio.pe/economia/peru/uit-2026-sube-a-s-5500-como-impactara-el-nuevo-valor-en-impuestos-multas-y-retiros-de-las-afp-mef-noticia/)
-
-
-### mexico (N/A, 02/01/2026 11:32 Lima)
-
-- **Sismo de magnitud 6,5 con epicentro en Guerrero sacude la capital y varios estados de México**: [Link](https://cnnespanol.cnn.com/2026/01/02/mexico/sismo-magnitud-6-5-guerrero-orix)
-- **“Uy, está temblando”: el momento en el que el terremoto sorprendió a la presidenta Claudia Sheinbaum**: [Link](https://www.infobae.com/mexico/2026/01/02/uy-esta-temblando-el-momento-en-que-el-terremoto-sorprendio-la-presidenta-claudia-sheinbaum/)
-- **“Está temblando”: fuerte sismo en México sorprendió a Claudia Sheinbaum en plena conferencia de prensa [VIDEO]**: [Link](https://rpp.pe/mundo/mexico/fuerte-sismo-en-mexico-sorprendio-a-claudia-sheinbaum-en-plena-conferencia-de-prensa-esta-temblando-video-noticia-1669994)
-
-
-### signo caballo horoscopo chino (N/A, 02/01/2026 11:32 Lima)
-
-- **Horóscopo Chino 2026: ¿Cuál es tu signo y quiénes tendrán más suerte el próximo año?**: [Link](https://as.com/us/tikitakas/horoscopo-chino-2026-cual-es-tu-signo-y-quienes-tendran-mas-suerte-el-proximo-ano-f202512-n/)
-- **Los signos con más suerte para el Año del Caballo de Fuego según el Horóscopo Chino**: [Link](https://elcomercio.pe/mag/horoscopo/ano-nuevo-chino-2026-los-signos-con-mas-suerte-para-el-ano-del-caballo-de-fuego-segun-el-horoscopo-chino-nnda-nnlt-noticia/)
-- **Horóscopo chino 2026: Ludovica Squirru predice cómo le irá a cada signo en el año del Caballo de Fuego**: [Link](https://www.revistagente.com/horoscopo/horoscopo-chino-2026-ludovica-squirru-predice-como-le-ira-a-cada-signo-en-el-ano-del-caballo-de-fuego/)
 
 
