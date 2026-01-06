@@ -1,3 +1,24 @@
+### minedu contrato docente 2026 (N/A, 06/01/2026 03:38 Lima)
+
+- **¿Eres docente? Conoce cómo postular o renovar tu contrato este 2025**: [Link](https://www.elperuano.pe/noticia/286320-eres-docente-conoce-como-postular-o-renovar-tu-contrato-este-2025)
+- **Estas son las normas legales más importantes del viernes 2 de enero del 2026**: [Link](https://andina.pe/agencia/noticia-estas-son-las-normas-legales-mas-importantes-del-viernes-2-enero-del-2026-1057770.aspx)
+- **Consulta las normas legales más importantes de hoy, viernes 2 de enero de 2026**: [Link](https://www.radionacional.gob.pe/noticias/politica/consulta-las-normas-legales-mas-importantes-de-hoy-viernes-2-de-enero-de-2026)
+
+
+### cotización del dólar hoy (N/A, 06/01/2026 03:38 Lima)
+
+- **Precio del dólar al inicio del 2026: Así cerró el tipo de cambio hoy 5 de enero en Perú**: [Link](https://www.infobae.com/peru/2026/01/05/dolar-cotizacion-de-apertura-hoy-5-de-enero-en-peru/)
+- **Dólar, cotización HOY en Perú: ¿cuál es el tipo de cambio este lunes 5 de enero de 2026?**: [Link](https://www.expreso.com.pe/economia/dolar-cotizacion-hoy-en-peru-cual-es-el-tipo-de-cambio-este-lunes-5-de-enero-de-2026-sunat-mef-bcrp-ultima-hora-ultimo-minuto-soles-divisa-noticia/1252586/)
+- **Precio del dólar en Perú HOY, lunes 5 de enero: ¿cuál es la cotización del tipo de cambio?**: [Link](https://larepublica.pe/economia/precio-del-dolar/2026/01/05/precio-del-dolar-hoy-en-peru-5-de-enero-2026-cotizacion-de-compra-y-venta-segun-bcr-y-tasa-de-cambio-dolares-a-soles-ocona-dolar-bloomberg-atmp-206960)
+
+
+### warriors (N/A, 06/01/2026 03:38 Lima)
+
+- **He’s likely in for a hefty punishment: he completely snaps and charges out of the bench at the referee!**: [Link](https://www.mundodeportivo.com/us/en/20260106/737471/he-s-likely-in-for-hefty-punishment-he-completely-snaps-and-charges-out-of-the-bench-at-the-referee.html)
+- **Terry Stotts steps in for Steve Kerr presser to save Warriors coach ‘money'**: [Link](https://www.nbcsportsbayarea.com/video/nba/golden-state-warriors/terry-stotts-presser-watch/1905010/)
+- **Clippers, without James Harden, maintain hot streak vs. Warriors**: [Link](https://www.reuters.com/sports/clippers-without-james-harden-maintain-hot-streak-vs-warriors-2026-01-06/)
+
+
 ### aryna sabalenka (N/A, 05/01/2026 23:43 Lima)
 
 - **A Grand Slam-worthy start: Seven Top 10 stars headline Brisbane International**: [Link](https://www.wtatennis.com/news/4427367/brisbane-preview)
@@ -1006,24 +1027,5 @@ Sin noticias relacionadas disponibles.
 - **Thomasson urges Lens to stay focused as Ligue 1 leaders**: [Link](https://www.beinsports.com/en-us/soccer/ligue-1/articles/thomasson-urges-lens-to-stay-focused-as-ligue-1-leaders-2026-01-01)
 - **Football Bet Of The Day: James Milton has selected a 9-5 shot in Ligue 1**: [Link](https://www.racingpost.com/sport/football-tips/football-bet-of-the-day-james-milton-has-selected-a-9-5-shot-in-ligue-1-aUyvN4Q7YPTh/)
 - **Toulouse v Lens Match Stats**: [Link](https://andysbetclub.co.uk/football-fixtures/toulouse-v-lens/02012026/9f42b90b-4ecf-417d-ac30-9f9a4cc0575a/)
-
-
-### milan (N/A, 02/01/2026 15:28 Lima)
-
-- **¡EN VIVO! Milan visita a Cagliari en busca de llegar a lo más alto de la Serie A**: [Link](https://www.espn.com.pe/futbol/italia/nota/_/id/16134040/cagliari-vs-milan-fecha-17-serie-a-equipo-fecha-hora-y-tv-en-vivo)
-- **Cagliari vs AC Milan en vivo por la Serie A de Italia**: [Link](https://www.futbolperuano.com/en-vivo/serie-a-de-italia-cagliari-vs-ac-milan-en-vivo-557316)
-- **Serie A: Milan busca subir a la cima del torneo**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-milan-busca-subir-a-la-cima-del-torneo-noticia-1669890)
-
-
-### eibar vs (N/A, 02/01/2026 15:28 Lima)
-
-Sin noticias relacionadas disponibles.
-
-
-### primeira liga (N/A, 02/01/2026 15:28 Lima)
-
-- **Atenção, Sporting: Hjulmand falha receção ao Casa Pia por castigo**: [Link](https://maisfutebol.iol.pt/sporting/liga/atencao-sporting-hjulmand-falha-rececao-ao-casa-pia-por-castigo)
-- **Sporting com baixa importante contra o Casa Pia na Primeira Liga**: [Link](https://bolanarede.pt/especial-bola-na-rede/atualidade/sporting-com-baixa-importante-contra-o-casa-pia-na-primeira-liga/)
-- **Atenção, Sporting: Hjulmand falha receção ao Casa Pia por castigo**: [Link](https://tvi.iol.pt/noticias/sporting/liga/atencao-sporting-hjulmand-falha-rececao-ao-casa-pia-por-castigo)
 
 
