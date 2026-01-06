@@ -1,3 +1,38 @@
+### 6 de enero es feriado (N/A, 06/01/2026 07:56 Lima)
+
+- **¿El 6 de enero es feriado en Perú? Esto se sabe del día de Bajada de Reyes por la norma en El Peruano**: [Link](https://www.infobae.com/peru/2026/01/05/manana-6-de-enero-es-feriado-en-peru-esto-se-sabe-del-dia-de-bajada-de-reyes-por-la-norma-en-el-peruano/)
+- **Mañana, 6 de enero no es feriado ni día NO laborable en el PERÚ y esta es la razón**: [Link](https://elcomercio.pe/respuestas/cuando/el-6-de-enero-no-es-feriado-ni-dia-no-laborable-en-el-peru-y-esta-es-la-razon-bajada-de-reyes-tdpe-noticia/)
+- **¿El 6 de enero es día no laborable? Esto es lo que dice El Peruano**: [Link](https://peru21.pe/peru/el-6-de-enero-es-dia-no-laborable-esto-es-lo-que-dice-el-peruano/)
+
+
+### copa del rey (N/A, 06/01/2026 07:56 Lima)
+
+- **Apuestas y Pronóstico del Granada vs Rayo Vallecano 06/01/26**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/2026/enero/pronostico-granada-vs-rayo-vallecano-06-01-26)
+- **El Granada, a ahogar las penas en la Copa**: [Link](https://www.granadaenjuego.com/Granada-CF/el-granada--a-ahogar-las-penas-en-la-copa-)
+- **Un partido copero del Granada CF marcado por el ambiente gélido en distintos aspectos**: [Link](https://www.ideal.es/granadacf/partido-copero-granada-marcado-ambiente-gelido-distintos-20260104190630-nt.html)
+
+
+### liga 1 (N/A, 06/01/2026 07:56 Lima)
+
+- **Inicio de la Liga 1 2026 corre peligro: 1190 Sports aún no corrige deudas a los clubes**: [Link](https://depor.com/futbol-peruano/descentralizado/liga-1-2026-inicio-del-torneo-apertura-se-veria-aplazado-por-las-deudas-que-mantiene-1190-sports-con-los-clubes-noticia/)
+- **Liga 1 envuelta en problemas serios por deudas y se estaría suspendiendo el inicio del campeonato**: [Link](https://bolavip.com/pe/liga-1/liga-1-envuelta-en-problemas-serios-por-deudas-y-se-estaria-suspendiendo-el-inicio-del-campeonato)
+- **Inicio de la Liga 1 2026 podría postergarse porque 1190 Sports no corrige deudas con clubes: "No nos pagan hace dos años"**: [Link](https://willax.pe/deportes/inicio-liga-1-2026-postergacion-deudas-1190-sports-willax)
+
+
+### normas legales (N/A, 06/01/2026 07:56 Lima)
+
+- **Conoce la Política Nacional de Comercio Exterior al 2040 y cómo impacta tus actividades económicas**: [Link](https://www.elperuano.pe/noticia/286486-conoce-la-politica-nacional-de-comercio-exterior-al-2040-y-como-impacta-tus-actividades-economicas)
+- **Perú publica su Política Nacional de Comercio Exterior para alcanzar exportaciones por más de US$140.000 millones al 2040**: [Link](https://www.infobae.com/peru/2026/01/05/peru-publica-su-politica-nacional-de-comercio-exterior-al-2040-y-buscara-pasar-del-023-a-03-su-peso-en-el-intercambio-global/)
+- **Consulta las normas legales más importantes de hoy, lunes 5 de enero de 2026**: [Link](https://www.tvperu.gob.pe/noticias/politica/consulta-las-normas-legales-mas-importantes-de-hoy-lunes-5-de-enero-de-2026)
+
+
+### nicolás maduro venezuela (N/A, 06/01/2026 07:56 Lima)
+
+- **"Fui secuestrado y sigo siendo el presidente": Nicolás Maduro se declara no culpable ante el tribunal de Nueva York**: [Link](https://www.bbc.com/mundo/articles/cwy181xwl42o)
+- **Grilletes, abucheos y un saludo de “happy new year”: los detalles de la comparecencia de Nicolás Maduro y Cilia Flores en Nueva York**: [Link](https://www.infobae.com/estados-unidos/2026/01/05/grilletes-abucheos-y-un-saludo-de-happy-new-year-los-detalles-de-la-comparecencia-de-nicolas-maduro-y-cilia-flores-en-nueva-york/)
+- **Quién es Barry Pollack, el abogado de Maduro que asistió a Julian Assange en el caso “WikiLeaks”**: [Link](https://cnnespanol.cnn.com/2026/01/05/venezuela/quien-es-barry-pollack-abogado-maduro-efe)
+
+
 ### minedu contrato docente 2026 (N/A, 06/01/2026 03:38 Lima)
 
 - **¿Eres docente? Conoce cómo postular o renovar tu contrato este 2025**: [Link](https://www.elperuano.pe/noticia/286320-eres-docente-conoce-como-postular-o-renovar-tu-contrato-este-2025)
@@ -992,40 +1027,5 @@ Sin noticias relacionadas disponibles.
 - **Tiago Margarido: «Lance de sorte desbloqueou o jogo»**: [Link](https://www.record.pt/futebol/futebol-nacional/liga-betclic/nacional/detalhe/tiago-margarido-lance-de-sorte-desbloqueou-o-jogo)
 - **Triunfo vimaranense frente ao CD Nacional**: [Link](https://www.ligaportugal.pt/news/26374/triunfo-vimaranense-frente-ao-cd-nacional)
 - **Luís Pinto: «A paciência no nosso estádio não é fácil de ter»**: [Link](https://sapo.pt/artigo/luis-pinto-a-paciencia-no-nosso-estadio-nao-e-facil-de-ter-69586dd32c7b75270a33ff29)
-
-
-### vitoria guimaraes (N/A, 02/01/2026 21:00 Lima)
-
-- **TCU 72-48 BYU (Dec 31, 2025) Game Recap**: [Link](https://www.espn.com/ncw/recap?gameId=401827297)
-- **North Dakota State 76-68 Oral Roberts (Jan 1, 2026) Final Score**: [Link](http://www.espn.com/ncw/preview?gameId=401818442)
-- **NJIT 80-75 UMBC (Jan 1, 2026) Final Score**: [Link](http://www.espn.com/ncw/preview?gameId=401812180)
-
-
-### milan vs (N/A, 02/01/2026 21:00 Lima)
-
-- **¡EN VIVO! Milan visita a Cagliari en busca de llegar a lo más alto de la Serie A**: [Link](https://www.espn.com.pe/futbol/italia/nota/_/id/16134040/cagliari-vs-milan-fecha-17-serie-a-equipo-fecha-hora-y-tv-en-vivo)
-- **AC Milán pasó a la punta de la Serie «A» del Calcio Italiano al vencer a Cagliari 1-0**: [Link](https://diariouno.pe/2026/01/02/ac-milan-paso-a-la-punta-de-la-serie-a-del-calcio-italiano-al-vencer-a-cagliari-1-0/)
-- **Cagliari vs AC Milan en vivo por la Serie A de Italia**: [Link](https://www.futbolperuano.com/en-vivo/serie-a-de-italia-cagliari-vs-ac-milan-en-vivo-557316)
-
-
-### gil vicente vs. sporting lisboa (N/A, 02/01/2026 15:28 Lima)
-
-- **TCU 72-48 BYU (Dec 31, 2025) Game Recap**: [Link](https://www.espn.com/ncw/recap?gameId=401827297)
-- **North Dakota State 76-68 Oral Roberts (Jan 1, 2026) Final Score**: [Link](http://www.espn.com/ncw/preview?gameId=401818442)
-- **NJIT 80-75 UMBC (Jan 1, 2026) Final Score**: [Link](http://www.espn.com/ncw/preview?gameId=401812180)
-
-
-### panathinaikos - olympiacos (N/A, 02/01/2026 15:28 Lima)
-
-- **Message to our fans (02/01/26)**: [Link](https://www.paobc.gr/en/minyma-pros-tous-filathlous-mas-02-01-26/)
-- **Top five EuroLeague eternal derbies between Panathinaikos and Olympiacos**: [Link](https://www.eurohoops.net/en/trademarks/1913174/top-five-euroleague-eternal-derbies-between-panathinaikos-and-olympiacos/)
-- **Richaun Holmes on Panathinaikos vs Olympiacos: It’s going to be fun - I’m excited about the atmosphere**: [Link](https://basketballsphere.com/en/richaun-holmes-on-panathinaikos-vs-olympiacos-its-going-to-be-fun-im-excited-about-the-atmosphere/)
-
-
-### lens fc (N/A, 02/01/2026 15:28 Lima)
-
-- **Thomasson urges Lens to stay focused as Ligue 1 leaders**: [Link](https://www.beinsports.com/en-us/soccer/ligue-1/articles/thomasson-urges-lens-to-stay-focused-as-ligue-1-leaders-2026-01-01)
-- **Football Bet Of The Day: James Milton has selected a 9-5 shot in Ligue 1**: [Link](https://www.racingpost.com/sport/football-tips/football-bet-of-the-day-james-milton-has-selected-a-9-5-shot-in-ligue-1-aUyvN4Q7YPTh/)
-- **Toulouse v Lens Match Stats**: [Link](https://andysbetclub.co.uk/football-fixtures/toulouse-v-lens/02012026/9f42b90b-4ecf-417d-ac30-9f9a4cc0575a/)
 
 
