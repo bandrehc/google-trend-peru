@@ -1,3 +1,71 @@
+### nico williams (N/A, 07/01/2026 15:31 Lima)
+
+- **Otro contratiempo con Lamine**: [Link](https://as.com/futbol/primera/otro-contratiempo-con-lamine-f202601-n/)
+- **Flick: "Si necesitamos a Lamine, jugará"**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20260107/1002597369/flick-necesitamos-lamine-jugara.html)
+- **¡Lamine Yamal será suplente en la semifinal de Supercopa!**: [Link](https://www.sport.es/es/noticias/barca/lamine-yamal-sera-suplente-semifinal-125458167)
+
+
+### lazio vs fiorentina (N/A, 07/01/2026 15:31 Lima)
+
+- **Lazio vs Fiorentina: Lineups and how to watch**: [Link](https://www.violanation.com/serie-a/20925/lazio-fiorentina-serie-a-lineups-formation-how-to-watch-online-stream-match-thread)
+- **Lazio in attacking emergency after selling Castellanos to West Ham**: [Link](https://football-italia.net/lazio-in-attacking-emergency-after-castellanos/)
+- **Who Will Replace Suspended Lazio Duo Against Fiorentina**: [Link](https://thelaziali.com/2026/01/06/who-will-replace-suspended-lazio-duo-against-fiorentina/)
+
+
+### city vs (N/A, 07/01/2026 15:31 Lima)
+
+- **Manchester City, sin margen de error ante un Brighton siempre peligroso**: [Link](https://www.espn.com.pe/futbol/inglaterra/nota/_/id/16148539/manchester-city-vs-brighton-fecha-21-premier-league-equipo-fecha-hora-y-tv-en-vivo)
+- **Premier League: Manchester City y Brighton and Hove se encuentran en la fecha 21**: [Link](https://rpp.pe/futbol/ligas-internacionales/premier-league-manchester-city-y-brighton-and-hove-se-encuentran-en-la-fecha-21-noticia-1670462)
+- **Manchester City vs Brighton: ¡Juega en la Premier League y gana hasta S/. 600,000 con Meridianbet!**: [Link](https://ovacion.pe/noticias/nota-promocional/manchester-city-vs-brighton-juega-premier-league-gana-hasta-s-600000)
+
+
+### city (N/A, 07/01/2026 15:31 Lima)
+
+- **Brentford open talks with Manchester City over defensive loan signing**: [Link](https://sports.yahoo.com/articles/brentford-open-talks-manchester-city-153000520.html)
+- **A promising centre-back seems destined to be sold by Manchester City**: [Link](https://esteemedkompany.com/2026/01/04/a-promising-centre-back-seems-destined-to-be-sold-by-manchester-city/)
+- **Crystal Palace and Brentford in for Man City defender with zero appearances in multi-million pound transfer**: [Link](https://cityxtra.co.uk/39344/crystal-palace-and-brentford-in-for-man-city-defender-with-zero-appearances-in-multi-million-pound-transfer/)
+
+
+### pedri (N/A, 07/01/2026 15:31 Lima)
+
+- **Maldini desvela la carta a los Reyes Magos del Barcelona y Real Madrid para triunfar en 2026: fichajes, renovaciones y una petición clave para Pedri**: [Link](https://www.cope.es/programas/el-partidazo-de-cope/audios/maldini-desvela-carta-reyes-magos-barcelona-madrid-triunfar-2026-fichajes-renovaciones-peticion-clave-pedri-20260107_3282173.html)
+- **Pedri, y no es el único, se queja de las constantes desobediencias a Flick**: [Link](https://www.msn.com/es-es/deportes/futbol/pedri-y-no-es-el-%C3%BAnico-se-queja-de-las-constantes-desobediencias-a-flick/ar-AA1TK0fC)
+- **Rashford, y no es el único, se queja de las reiteradas faltas de indisciplina que Flick no castiga**: [Link](https://www.elnacional.cat/es/deportes/rashford-no-es-unico-se-queja-reiteradas-faltas-indisciplina-flick-no-castiga_1533901_102.html)
+
+
+### inter milan (N/A, 07/01/2026 15:31 Lima)
+
+- **Apuestas y Pronóstico del Parma vs Inter 07/01/26**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/2026/enero/pronostico-parma-vs-inter-07-01-26)
+- **Serie A: Inter va en busca del triunfo ante Parma para mantenerse en la cima**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-inter-va-en-busca-del-triunfo-ante-parma-para-mantenerse-en-la-cima-noticia-1670467)
+- **Inter FC, Frattesi no viaja a Parma: leve sobrecarga en el aductor**: [Link](https://www.todomercadoweb.es/serie-a/inter-fc-frattesi-no-viaja-a-parma-leve-sobrecarga-en-el-aductor-533951)
+
+
+### unai simón (N/A, 07/01/2026 15:31 Lima)
+
+- **Joan García discute el puesto a Unai Simón, debate en directo con AS: ¡manda tu pregunta u opinión y participa!**: [Link](https://as.com/futbol/seleccion/joan-garcia-discute-el-puesto-a-unai-simon-debate-en-directo-con-as-manda-tu-pregunta-u-opinion-y-participa-f202601-d/)
+- **Joan García: "Todo jugador quiere ir a la selección"**: [Link](https://www.marca.com/futbol/barcelona/2026/01/06/joan-garcia-jugador-quiere-seleccion.html)
+- **Joan Garcia: "Mi objetivo no es el Mundial, es seguir mejorando"**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20260106/1002596747/joan-garcia-mi-objetivo-mundial-seguir-mejorando.html)
+
+
+### max alleyne (N/A, 07/01/2026 15:31 Lima)
+
+- **Pep Guardiola predicts impact of injuries as Manchester City draw emergency transfer plans**: [Link](https://onefootball.com/pt-br/noticias/pep-guardiola-predicts-impact-of-injuries-as-manchester-city-draw-emergency-transfer-plans-42193340)
+- **Who's Missing: Manchester City facing defensive injury crisis for Brighton meeting**: [Link](https://www.flashscore.com/news/soccer-premier-league-who-s-missing-manchester-city-facing-defensive-injury-crisis-for-brighton-meeting/zcoun33D/)
+- **Guardiola talks about injuries and transfers ahead of Brighton**: [Link](https://zamin.uz/en/sport/180883-guardiola-talks-about-injuries-and-transfers-ahead-of-brighton.html)
+
+
+### raphinha (N/A, 07/01/2026 15:31 Lima)
+
+- **Flick has made his decision on who will start in Barcelona midfield vs Athletic Club**: [Link](https://barcauniversal.com/flick-has-made-his-decision-on-who-will-start-in-barcelona-midfield-vs-athletic-club/)
+- **Spanish Super Cup: Why is it played in Saudi Arabia?**: [Link](https://www.bbc.com/sport/football/articles/cy9yq5jp559o)
+- **Barcelona’s starting XI vs. Athletic Club: no Lamine Yamal and two further changes included**: [Link](https://www.mundodeportivo.com/us/en/20260107/737581/barcelona-s-starting-xi-vs-athletic-club-lamine-yamal-and-two-further-changes-included.html)
+
+
+### torino - udinese (N/A, 07/01/2026 15:31 Lima)
+
+Sin noticias relacionadas disponibles.
+
+
 ### joaquín ramírez (N/A, 07/01/2026 11:37 Lima)
 
 - **PJ ordenó incorporar a Fuerza Popular como persona jurídica en el proceso contra Joaquín Ramírez por el caso 'Alas Peruanas'**: [Link](https://rpp.pe/politica/judiciales/pj-ordeno-incorporar-a-fuerza-popular-como-persona-juridica-en-el-proceso-contra-joaquin-ramirez-por-el-caso-alas-peruanas-noticia-1670548)
@@ -960,73 +1028,5 @@ Sin noticias relacionadas disponibles.
 - **Monopattino elettrico in barca: regole 2026, obblighi di legge e modelli ideali per i marina**: [Link](https://www.solovela.net/articoli/3/monopattino-elettrico-in-barca-regole-2026-modelli-consigliati/1354292/)
 - **Bando per 8 posti barca a Patresi**: [Link](https://www.quinewselba.it/marciana-elba-bando-per-8-posti-barca-a-patresi.htm)
 - **Galleria di palazzo San Giorgio: domenica 4 gennaio l’evento “Rotta verso Gaza: Diario di bordo”**: [Link](https://progettotouring.it/radiotouring104/2026/01/03/galleria-di-palazzo-san-giorgio-domenica-4-gennaio-levento-rotta-verso-gaza-diario-di-bordo/)
-
-
-### barsa vs (N/A, 03/01/2026 21:23 Lima)
-
-- **Espanyol 0-2 Barcelona: Dani Olmo and Robert Lewandowski score as Barca extend lead at top of La Liga**: [Link](https://www.bbc.com/sport/football/live/cg5m54m1j2mt)
-- **Barcelona's Joan García 'unbelievable' in hostile homecoming**: [Link](https://www.espn.com/soccer/story/_/id/47494582/barcelona-joan-garcia-espanyol-laliga-saves)
-- **Crossing Barcelona’s city divide: Joan Garcia, rats and fury at Espanyol**: [Link](https://www.nytimes.com/athletic/6935730/2026/01/03/barcelona-joan-garcia-espanyol-rivalry-rats/)
-
-
-### futbol en vivo (N/A, 03/01/2026 21:23 Lima)
-
-- **Partidos de hoy, sábado 3 de enero de 2026: programación, canales TV y resultados en vivo**: [Link](https://www.infobae.com/peru/deportes/2026/01/03/partidos-de-hoy-sabado-3-de-enero-de-2026-programacion-canales-tv-y-resultados-en-vivo/)
-- **Partidos de hoy EN VIVO, sábado 3 de enero del 2026: Programación, horarios y canales de TV**: [Link](https://libero.pe/futbol-internacional/2026/01/02/partidos-de-hoy-en-vivo-sabado-3-de-enero-del-2026-54352)
-- **¿Quién juega HOY? Dónde ver y horarios de la Copa Pacífica, LaLiga, Premier League, Copa Africana y más partidos sábado 3 de enero 2026**: [Link](https://www.estadiodeportes.mx/futbol/partidos-de-hoy-sabado-3-de-enero-2026-donde-ver-en-vivo-la-copa-pacifica-laliga-premier-league-copa-africana-y-mas-20260103-0017.html)
-
-
-### fútbol (N/A, 03/01/2026 21:23 Lima)
-
-- **Medellín vendería a Brayan León a club que jugó Mundial de Clubes**: [Link](https://www.winsports.co/futbol-colombiano/noticias/medellin-venderia-a-brayan-leon-a-club-que-jugo-mundial-de-clubes-400718)
-- **Medellín concretó otra venta millonaria: figura de la Liga BetPlay jugará en Sudáfrica**: [Link](https://www.elespectador.com/deportes/futbol-colombiano/otros-equipos/medellin-concreto-otra-venta-millonaria-figura-de-la-liga-betplay-jugara-en-sudafrica-brayan-leon-liga-betplay-fichajes-noticias-hoy/)
-- **Figura del fútbol colombiano fue vendido a Sudáfrica, los detalles de la transferencia**: [Link](https://www.infobae.com/colombia/deportes/2026/01/03/figura-del-futbol-colombiano-fue-vendido-a-sudafrica-los-detalles-de-la-transferencia/)
-
-
-### tarjeta roja (N/A, 03/01/2026 15:28 Lima)
-
-- **Una reacción que le impulsa hacia la tranquilidad**: [Link](https://www.diariovasco.com/sdeibar/reaccion-impulsa-tranquilidad-20260102234010-nt.html)
-- **Álvaro Rodríguez: “No hay que darle demasiada importancia a estos tres puntos”**: [Link](https://as.com/futbol/alvaro-rodriguez-no-hay-que-darle-demasiada-importancia-a-estos-tres-puntos-f202601-n/)
-- **El Mirandés pierde demasiadas oportunidades**: [Link](https://www.elcorreo.com/mirandes/mirandes-pierde-demasiadas-oportunidades-20260103134524-nt.html)
-
-
-### roma vs (N/A, 03/01/2026 15:28 Lima)
-
-- **Roma visita a Atalanta en busca de mantenerse en la lucha por la cima de la Serie A**: [Link](https://www.espn.com.pe/futbol/italia/nota/_/id/16132832/atalanta-vs-roma-serie-a-equipo-fecha-hora-y-tv-en-vivo)
-- **Serie A: Roma enfrenta a Atalanta para subirse a la cima**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-roma-enfrenta-a-atalanta-para-subirse-a-la-cima-noticia-1669996)
-- **Atalanta vs Roma: ¡Incrementa tus ganancias hasta 200% con la Serie A en Meridianbet!**: [Link](https://ovacion.pe/noticias/nota-promocional/atalanta-vs-roma-incrementa-tus-ganancias-hasta-200-serie-meridianbet)
-
-
-### roma fc (N/A, 03/01/2026 15:28 Lima)
-
-- **Espanyol vs. Barcelona (4 Jan, 2026) Live Score**: [Link](https://www.espn.in/football/match/_/gameId/748319)
-- **Temple 76-57 UTSA (Jan 3, 2026) Game Recap**: [Link](https://www.espn.com/ncb/recap?gameId=401828158)
-- **Lille vs. Rennes (3 Jan, 2026) Live Score**: [Link](https://www.espn.co.uk/football/match/_/gameId/746558)
-
-
-### mali vs (N/A, 03/01/2026 15:28 Lima)
-
-Sin noticias relacionadas disponibles.
-
-
-### lille (N/A, 03/01/2026 15:28 Lima)
-
-- **Nathan Ngoy rebuilds at Lille after injuries, making up lost time**: [Link](https://onefootball.com/en/news/nathan-ngoy-rebuilds-at-lille-after-injuries-making-up-lost-time-42175848)
-- **Rayo vs. Getafe (2 de Ene., 2026) Resultados en Vivo**: [Link](https://www.espn.com.pe/futbol/partido/_/juegoId/748316)
-- **Sunderland 0-0 Man City (1 de Ene., 2026) Resultado Final**: [Link](https://www.espn.com.pe/futbol/partido/_/juegoId/740784)
-
-
-### rcd espanyol - barcelona (N/A, 03/01/2026 15:28 Lima)
-
-- **Alineación confirmada del Barcelona hoy ante el Espanyol en LaLiga EA Sports: la reválida de Joan García**: [Link](https://as.com/futbol/primera/alineacion-posible-del-barcelona-hoy-ante-el-espanyol-en-laliga-ea-sports-la-revalida-de-joan-garcia-f202601-n/)
-- **Joan García, recibido con billetes y pancartas: la afición de Espanyol no le perdona su marcha al Barça**: [Link](https://www.marca.com/futbol/barcelona/2026/01/03/joan-garcia-recibido-billetes-pancartas-aficion-espanyol-le-perdona-marcha-barca.html)
-- **Barcelona vs. Espanyol EN VIVO vía ESPN y Disney Plus por LaLiga**: [Link](https://depor.com/futbol-internacional/espana/barcelona-vs-espanyol-en-vivo-gratis-hoy-espn-disney-plus-futbol-libre-tv-directv-dazn-movistar-laliga-espn-deportes-dgo-a-que-hora-juegan-en-directo-online-por-internet-video-noticia/)
-
-
-### juventus fc (N/A, 03/01/2026 15:28 Lima)
-
-- **U20 | Juventus-Parma | Il commento di Padoin**: [Link](https://onefootball.com/de/news/u20-juventus-parma-il-commento-di-padoin-42175507)
-- **Primavera Juve, il nuovo anno inizia con un pareggio: a Vinovo è 0-0 col Parma**: [Link](https://www.tuttosport.com/news/calcio/primavera/2026/01/03-145572996/primavera_juve_il_nuovo_anno_inizia_con_un_pareggio_a_vinovo_0-0_col_parma)
-- **PRIMAVERA 1, L’ALLENATORE NICOLA CORRENT: “ORGOGLIOSO DEI MIEI RAGAZZI”**: [Link](https://www.parmacalcio1913.com/news/primavera-1-lallenatore-nicola-corrent-orgoglioso-dei-miei-ragazzi/)
 
 
