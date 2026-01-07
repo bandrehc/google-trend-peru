@@ -1,3 +1,31 @@
+### normas legales (N/A, 07/01/2026 07:57 Lima)
+
+- **El Peruano te informa: consulta aquí las principales normas legales para hoy, martes 6 de Enero del 2026**: [Link](https://www.elperuano.pe/noticia/286515-el-peruano-te-informa-consulta-aqui-las-principales-normas-legales-para-hoy-martes-6-de-enero-del-2026)
+- **Regiones deben establecer Plan de Ordenamiento Territorial**: [Link](https://andina.pe/agencia/noticia-regiones-deben-establecer-plan-ordenamiento-territorial-1058198.aspx)
+- **Estas son las normas legales más importantes del miércoles 7 de enero del 2026**: [Link](https://www.apnoticias.pe/peru/andina/estas-son-las-normas-legales-mas-importantes-del-miercoles-7-de-enero-del-2026-1482064)
+
+
+### a (N/A, 07/01/2026 07:57 Lima)
+
+- **Buy Greenland? Take It? Why? An Old Pact Already Gives Trump a Free Hand.**: [Link](https://www.nytimes.com/2026/01/07/world/europe/trump-greenland-denmark-us-defense-pact.html)
+- **The US has tried to acquire Greenland before – and failed**: [Link](https://www.cnn.com/2026/01/07/politics/us-greenland-trump-denmark-history-hnk)
+- **Exclusive | Rubio Tells Lawmakers Trump Aims to Buy Greenland, Downplays Military Action**: [Link](https://www.wsj.com/politics/national-security/rubio-tells-lawmakers-trump-aims-to-buy-greenland-downplays-military-action-5c94e05c?gaa_at=eafs&gaa_n=AWEtsqdf5wy5mCaNCZERUnL8UQlSeZhjwUpVbEJBK_P3ILcmdyd6ivIqpLZZ&gaa_ts=695e5bb0&gaa_sig=RqmQ9YcLKmmxR185QwUrzY4IeIIHMgzK9Q-9hxfYalOB78VldPlU8OeMGp2YcwnZcjwqNmrDdhG-e-T99laxRQ%3D%3D)
+
+
+### sporting cristal (N/A, 07/01/2026 07:57 Lima)
+
+- **Sporting Cristal no lo renovó y ahora sacudió el mercado fichando por club campeón: "Bienvenido"**: [Link](https://libero.pe/futbol-peruano/sporting-cristal/2026/01/06/fichajes-liga-1-sporting-cristal-renovo-ahora-sacudio-mercado-fichando-club-campeon-bienvenido-210474)
+- **Atlético Grau presentó su comando técnico para el 2026**: [Link](https://ovacion.pe/noticias/atletico-grau/atletico-grau-presento-su-comando-tecnico-2026)
+- **Atlético Grau puso en marcha la pretemporada**: [Link](https://eltiempo.pe/deportes/atletico-grau-puso-en-marcha-la-pretemporada/)
+
+
+### pelicans - lakers (N/A, 07/01/2026 07:57 Lima)
+
+- **JJ Redick praises 'Wired' Luka Doncic after unreal late triple to bury Pelicans**: [Link](https://basketnews.com/news-238268-jj-redick-praises-wired-luka-doncic-after-unreal-late-triple-to-bury-pelicans.html)
+- **The 41-year-old ageless wonder put up 30 points, eight …**: [Link](https://sports.yahoo.com/articles/41-old-ageless-wonder-put-100546469.html)
+- **LeBron James Powers Lakers To Victory Against Pelicans**: [Link](https://thewhistler.ng/lebron-james-powers-lakers-to-victory-against-pelicans/)
+
+
 ### mcdonalds cajita feliz friends (N/A, 07/01/2026 03:38 Lima)
 
 - **McDonald’s Perú activa la nostalgia noventera con una campaña de intriga inspirada en Friends**: [Link](https://www.mercadonegro.pe/marketing/mcdonalds-peru-activa-la-nostalgia-noventera-con-una-campana-de-intriga-inspirada-en-friends/)
@@ -999,33 +1027,5 @@ Sin noticias relacionadas disponibles.
 - **El 2025 de Richard Ríos: el salto a Europa y clasificación al Mundial con Colombia**: [Link](https://www.espn.com.pe/futbol/nota/_/id/16129384/el-2025-de-richard-rios-salto-a-europa-y-clasificacion-al-mundial-colombia)
 - **Preview: Benfica vs Estoril Praia - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/benfica/preview/benfica-vs-estoril-prediction-team-news-lineups_588987.html)
 - **Benfica faces Estoril Praia tonight seeking to close 10-point gap to Porto, but recent momentum might shock the Eagles**: [Link](https://www.red94.net/news/42643-benfica-faces-estoril-praia-tonight-in-liga-portugal-clash-with-playoff-implicat/)
-
-
-### juventus - lecce (N/A, 03/01/2026 11:31 Lima)
-
-- **Juve-Lecce, diretta: formazioni ufficiali e risultato in tempo reale. La scelta in attacco di Spalletti e due esclusi**: [Link](https://www.tuttosport.com/news/calcio/serie-a/juventus/2026/01/03-145596190/juve-lecce_diretta_formazioni_e_risultato_in_tempo_reale_in_campo_anche_la_next_gen)
-- **Serie A | Le formazioni ufficiali di Juventus-Lecce**: [Link](https://www.juventus.com/it/news/articoli/serie-a-2025-2026-juventus-lecce-formazioni-ufficiali)
-- **Spalletti risponde per le rime a Conte: "Alla Juve ho trovato le barriere che si muovono, a Napoli...**: [Link](https://www.milannews.it/news/spalletti-risponde-per-le-rime-a-conte-alla-juve-ho-trovato-le-barriere-che-si-muovono-a-napoli-erano-ferme-siamo-avanti-da-un-punto-di-vista-struttur-602740)
-
-
-### senegal vs (N/A, 03/01/2026 11:31 Lima)
-
-- **Senegal vs Sudan live updates: AFCON 2025 round of 16 game team news, predictions and more**: [Link](https://www.nytimes.com/athletic/live-blogs/senegal-vs-sudan-live-updates-afcon-2025-score-result/zL1jnERbAvgU/)
-- **Senegal to Face Sudan in First AFCON Playoff as Mali Meet Tunisia Later**: [Link](https://www.dawan.africa/news/senegal-to-face-sudan-in-first-afcon-playoff-as-mali-meet-tunisia-later)
-- **Senegalese federation comments on reports of tensions between coach Pape Thiaw and federation**: [Link](https://www.panafricafootball.com/post/senegal-fa-tensions-pape-thiaw/)
-
-
-### olympiacos vs (N/A, 03/01/2026 11:31 Lima)
-
-- **Olympiacos vs OFI Crete Prediction and Betting Tips | January 3rd 2026**: [Link](https://www.sportskeeda.com/football/olympiacos-vs-ofi-crete-prediction-betting-tips-january-3rd-2026)
-- **Ataman's criticism of the referees doesn't make much sense – here's why**: [Link](https://basketnews.com/news-237995-why-ergin-atamans-referee-criticism-doesnt-make-sense.html)
-- **Panathinaikos BC AKTOR – Olympiacos BC 82-87**: [Link](https://www.paobc.gr/en/panathinaikos-aktor-olympiakos-82-87/)
-
-
-### afp retiro (N/A, 03/01/2026 11:31 Lima)
-
-- **Retiro de AFP 2026: Link para solicitar hasta 4 UIT con nuevo monto de S/22.000**: [Link](https://www.infobae.com/peru/2026/01/02/retiro-de-afp-2026-link-para-solicitar-hasta-4-uit-con-el-nuevo-monto-de-s22000/)
-- **¡Atención afiliados! Retiro-AFP 2025: último día para realizar el trámite online vía LINK oficial**: [Link](https://elcomercio.pe/respuestas/tramites/ultima-oportunidad-solicita-tu-retiro-afp-hoy-link-oficial-y-plazo-para-realizar-el-tramite-online-tdpe-noticia/)
-- **Retiro de AFP 2026: ¿Quiénes cobran en los primeros días de enero?**: [Link](https://libero.pe/tiempoextra/2025/12/31/retiro-de-afp-en-2026-quienes-reciben-su-pago-primeros-dias-de-enero-2689095)
 
 
