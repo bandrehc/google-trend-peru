@@ -1,3 +1,22 @@
+### mcdonalds cajita feliz friends (N/A, 07/01/2026 03:38 Lima)
+
+- **McDonald’s Perú activa la nostalgia noventera con una campaña de intriga inspirada en Friends**: [Link](https://www.mercadonegro.pe/marketing/mcdonalds-peru-activa-la-nostalgia-noventera-con-una-campana-de-intriga-inspirada-en-friends/)
+
+
+### mavericks - kings (N/A, 07/01/2026 03:38 Lima)
+
+- **NBA Kings vs Mavericks Draftstars DFS Captain Contest Preview and Projections for January 7, 2026**: [Link](https://www.statsinsider.com.au/news/nba-kings-vs-mavericks-draftstars-dfs-captain-contest-preview-and-projections-for-january-7-2026)
+- **Mavs 100, Kings 98: Cooper Flagg plays though knee injury**: [Link](https://alldlls.com/mavs-100-kings-98-cooper-flagg-plays-though-knee-injury/)
+- **Mavericks Kings Basketball**: [Link](https://www.yakimaherald.com/ap/sports/mavericks-kings-basketball/image_935629d5-1da9-5a0c-ba77-771420e0fec7.html)
+
+
+### barcelona vs. athletic (N/A, 07/01/2026 03:38 Lima)
+
+- **Supercopa de España: Real Madrid, FC Barcelona, Atlético de Madrid y Athletic Club buscan su primer título de 2026**: [Link](https://cnnespanol.cnn.com/2026/01/06/deportes/supercopa-espana-2026-formato-partidos-equipos-orix)
+- **Así es el reparto de dinero en la Supercopa de España 2026 y qué equipo recibe más**: [Link](https://as.com/futbol/primera/asi-es-el-reparto-de-dinero-en-la-supercopa-de-espana-2026-y-que-equipo-recibe-mas-f202601-n/)
+- **El Barça afronta la semifinal con la duda de Lamine y el aviso de Flick**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20260106/1002596786/barca-afronta-semifinal-duda-lamine-aviso-flick.html)
+
+
 ### pedro el escamoso (N/A, 06/01/2026 23:45 Lima)
 
 - **Pedro el escamoso 2: Pedro envía flores a Fernanda mientras busca trabajo**: [Link](https://www.atv.pe/noticia/pedro-el-escamoso-2-pedro-envia-flores-a-fernanda-mientras-busca-trabajo/)
@@ -1008,26 +1027,5 @@ Sin noticias relacionadas disponibles.
 - **Retiro de AFP 2026: Link para solicitar hasta 4 UIT con nuevo monto de S/22.000**: [Link](https://www.infobae.com/peru/2026/01/02/retiro-de-afp-2026-link-para-solicitar-hasta-4-uit-con-el-nuevo-monto-de-s22000/)
 - **¡Atención afiliados! Retiro-AFP 2025: último día para realizar el trámite online vía LINK oficial**: [Link](https://elcomercio.pe/respuestas/tramites/ultima-oportunidad-solicita-tu-retiro-afp-hoy-link-oficial-y-plazo-para-realizar-el-tramite-online-tdpe-noticia/)
 - **Retiro de AFP 2026: ¿Quiénes cobran en los primeros días de enero?**: [Link](https://libero.pe/tiempoextra/2025/12/31/retiro-de-afp-en-2026-quienes-reciben-su-pago-primeros-dias-de-enero-2689095)
-
-
-### monaco vs lyon (N/A, 03/01/2026 11:31 Lima)
-
-- **Ligue 1: Pocognoli previews AS Monaco’s key clash with Lyon**: [Link](https://www.monaco-tribune.com/en/2026/01/ligue-1-pocognoli-previews-as-monacos-key-clash-with-lyon/)
-- **Monaco v Lyon: How to watch, live streaming, kick-off time & head-to-head record**: [Link](https://news.bet365.com/en-gb/article/monaco-v-lyon-how-to-watch/2026010213103131789)
-- **Monaco v Lyon Match Stats**: [Link](https://andysbetclub.co.uk/football-fixtures/monaco-v-lyon/03012026/9f42b924-aeb3-484f-9970-51051d096cf3/)
-
-
-### senegal - sudán (N/A, 03/01/2026 11:31 Lima)
-
-- **Senegal - Sudán, en directo: Copa África, hoy en vivo**: [Link](https://as.com/futbol/internacional/senegal-sudan-en-directo-copa-africa-hoy-en-vivo-f202601-n/)
-- **Informe desde Rabat: Senegal y Sudán, primer partido de octavos de la Copa Africana de Naciones**: [Link](https://www.france24.com/es/video/20260102-informe-desde-rabat-senegal-y-sud%C3%A1n-primer-partido-de-octavos-de-la-copa-africana-de-naciones)
-- **Pronóstico Senegal vs Sudán – Copa Africana de Naciones (03/01/2026)**: [Link](https://www.hispanosnba.com/futbol/pronostico-senegal-vs-sudan-03-01-2026/)
-
-
-### mónaco - lyon (N/A, 03/01/2026 11:31 Lima)
-
-- **Monaco - OL : Satriano sur le banc, Mata retrouve le 11**: [Link](https://www.olympique-et-lyonnais.com/monaco-ol-satriano-sur-le-banc-mata-retrouve-le-11,387807.html)
-- **Ligue 1 : Sébastien Pocognoli évoque le choc crucial contre Lyon**: [Link](https://www.monaco-tribune.com/2026/01/ligue-1-sebastien-pocognoli-evoque-le-choc-crucial-contre-lyon/)
-- **Le groupe monégasque : avec Touré et Nibombé**: [Link](https://www.ladiagonale.net/index.php/2026/01/03/le-groupe-monegasque-avec-toure-et-nibombe/)
 
 
