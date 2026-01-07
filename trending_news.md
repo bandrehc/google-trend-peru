@@ -1,3 +1,24 @@
+### pedro el escamoso (N/A, 06/01/2026 23:45 Lima)
+
+- **Pedro el escamoso 2: Pedro envía flores a Fernanda mientras busca trabajo**: [Link](https://www.atv.pe/noticia/pedro-el-escamoso-2-pedro-envia-flores-a-fernanda-mientras-busca-trabajo/)
+- **Pedro el escamoso 2: Pedro Coral abandona la casa tras fuerte pelea con su hijo por Fernanda**: [Link](https://www.atv.pe/noticia/pedro-el-escamoso-2-pedro-coral-abandona-la-casa-tras-fuerte-pelea-con-su-hijo-por-fernanda/)
+- **Pedro el escamoso 2: Pedro Coral busca conquistar a la jefa de su hijo con un coqueteo inesperado**: [Link](https://www.atv.pe/noticia/pedro-el-escamoso-2-pedro-coral-busca-conquistar-a-la-jefa-de-su-hijo-con-un-coqueteo-inesperado/)
+
+
+### alejandro sanz (N/A, 06/01/2026 23:45 Lima)
+
+- **Ricardo Montaner, Yuri, Miguel Bosé, Gloria Trevi y otras celebridades se pronuncian por la situación en Venezuela**: [Link](https://cnnespanol.cnn.com/2026/01/05/venezuela/video/celebridades-bose-yuri-reacciones-venezuela-estados-unidos-orix)
+- **La esperanza da paso a la incertidumbre entre los exiliados venezolanos en Estados Unidos tras la captura de Maduro**: [Link](https://elpais.com/us/migracion/2026-01-06/la-esperanza-da-paso-a-la-incertidumbre-entre-los-exiliados-venezolanos-en-estados-unidos-tras-la-captura-de-maduro.html)
+- **El Pelotazo nos trae lo que es noticia en el deporte este martes 6 de enero**: [Link](https://www.telemundo.com/noticias/noticias-telemundo/internacional/video/el-pelotazo-nos-trae-lo-que-es-noticia-en-el-deporte-este-martes-6-de-enero-tmvo13097365)
+
+
+### alex turner (N/A, 06/01/2026 23:45 Lima)
+
+- **Are Arctic Monkeys Breaking Up? Inside the Rumors Surrounding Alex Turner’s Band**: [Link](https://spoiler.bolavip.com/en/celebrities/are-arctic-monkeys-breaking-up-inside-the-rumors-surrounding-alex-turners-band)
+- **Hear Me Out: ‘Everything You’ve Come To Expect’ is the most important song Alex Turner ever wrote**: [Link](https://faroutmagazine.co.uk/most-important-song-alex-turner-ever-wrote/)
+- **Alex Turner Turns 40: His 10 Greatest Songs with Arctic Monkeys**: [Link](https://spoiler.bolavip.com/en/celebrities/alex-turner-turns-40-his-10-greatest-songs-with-arctic-monkeys)
+
+
 ### lakers - pelicans (N/A, 06/01/2026 21:06 Lima)
 
 - **How to watch Lakers vs. Pelicans: TV channel and streaming options for January 6**: [Link](https://www.nytimes.com/athletic/6946802/2026/01/06/lakers-vs-pelicans-stream-how-to-watch-jan-6/)
@@ -1008,26 +1029,5 @@ Sin noticias relacionadas disponibles.
 - **Monaco - OL : Satriano sur le banc, Mata retrouve le 11**: [Link](https://www.olympique-et-lyonnais.com/monaco-ol-satriano-sur-le-banc-mata-retrouve-le-11,387807.html)
 - **Ligue 1 : Sébastien Pocognoli évoque le choc crucial contre Lyon**: [Link](https://www.monaco-tribune.com/2026/01/ligue-1-sebastien-pocognoli-evoque-le-choc-crucial-contre-lyon/)
 - **Le groupe monégasque : avec Touré et Nibombé**: [Link](https://www.ladiagonale.net/index.php/2026/01/03/le-groupe-monegasque-avec-toure-et-nibombe/)
-
-
-### monaco vs (N/A, 03/01/2026 11:31 Lima)
-
-- **Liga de Francia: Mónaco se enfrenta ante la visita Olympique Lyon por la fecha 17**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-de-francia-monaco-se-enfrenta-ante-la-visita-olympique-lyon-por-la-fecha-17-noticia-1669960)
-- **Ligue 1: Pocognoli previews AS Monaco’s key clash with Lyon**: [Link](https://www.monaco-tribune.com/en/2026/01/ligue-1-pocognoli-previews-as-monacos-key-clash-with-lyon/)
-- **Monaco v Lyon: How to watch, live streaming, kick-off time & head-to-head record**: [Link](https://news.bet365.com/en-gb/article/monaco-v-lyon-how-to-watch/2026010213103131789)
-
-
-### sassuolo vs (N/A, 03/01/2026 11:31 Lima)
-
-- **Sassuolo vs. Parma (3 de Ene., 2026) Resultados en Vivo**: [Link](https://www.espn.com.pe/futbol/partido/_/juegoId/736958)
-- **Serie A: Sassuolo recibirá a Parma por la fecha 18**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-sassuolo-recibira-a-parma-por-la-fecha-18-noticia-1669949)
-- **¡En vivo por ANTV! Jay espera el sólido muro de Idges para contrarrestar el ataque del Parma**: [Link](https://www.ucvradio.pe/mas-actualidad/en-vivo-por-antv-jay-espera-el-solido-muro-de-idges-para-contrarrestar-el-ataque-del-parma/91425/)
-
-
-### eclipse solar anillo de fuego (N/A, 03/01/2026 11:31 Lima)
-
-- **Eclipse solar del siglo en 2026: fecha, hora y por qué es considerado extremo este nuevo ‘anillo de fuego’**: [Link](https://www.infobae.com/peru/2026/01/02/eclipse-solar-del-siglo-en-2026-fecha-hora-y-por-que-es-considerado-extremo-este-nuevo-anillo-de-fuego/)
-- **En 2026, el primero de tres eclipses solares en España y el vuelo inaugural del Miura 5**: [Link](https://www.jornada.com.mx/2026/01/02/ciencias/a06n1cie)
-- **Eclipses totales de Sol y Luna protagonizarán el calendario astronómico**: [Link](https://primicia.com.ve/mas/ciencia-y-tecnologia/eclipses-totales-de-sol-y-luna-protagonizaran-el-calendario-astronomico/)
 
 
