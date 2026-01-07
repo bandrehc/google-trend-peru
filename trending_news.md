@@ -1,3 +1,73 @@
+### lakers - pelicans (N/A, 06/01/2026 21:06 Lima)
+
+- **How to watch Lakers vs. Pelicans: TV channel and streaming options for January 6**: [Link](https://www.nytimes.com/athletic/6946802/2026/01/06/lakers-vs-pelicans-stream-how-to-watch-jan-6/)
+- **NBA Predictions, Odds and Betting Lines - January 6**: [Link](https://www.fanduel.com/research/nba-predictions-odds-1-6-2026)
+- **NBA Best Bets: Lakers vs. Pelicans Prop Bets for Tuesday 1/6/26**: [Link](https://dknetwork.draftkings.com/2026/01/06/nba-best-bets-lakers-vs-pelicans-prop-bets-for-tuesday-1-6-26/)
+
+
+### kick (N/A, 06/01/2026 21:06 Lima)
+
+- **GOP lawmaker Doug LaMalfa dies at 65**: [Link](https://www.politico.com/news/2026/01/06/doug-lamalfa-dead-00712222)
+- **California Rep. Doug Lamalfa's death felt across Yuba-Sutter region**: [Link](https://www.cbsnews.com/sacramento/news/yuba-sutter-community-reacts-death-doug-lamalfa/)
+- **Northern California Republican Congressman Doug LaMalfa Dies at 65**: [Link](https://www.kqed.org/news/12068742/northern-california-republican-congressman-doug-lamalfa-dies-at-65)
+
+
+### the housemaid (N/A, 06/01/2026 21:06 Lima)
+
+- **Sydney Sweeney is returning in 'The Housemaid's Secret': What to know about 'The Housemaid' sequel**: [Link](https://www.yahoo.com/entertainment/movies/article/sydney-sweeney-is-returning-in-the-housemaids-secret-what-to-know-about-the-housemaid-sequel-213800089.html)
+- **Sydney Sweeney box-office hit ‘The Housemaid’ to get a sequel**: [Link](https://apnews.com/article/sydney-sweeney-housemaid-sequel-157a777a7fa309f1418ffe9a504d1df8)
+- **‘The Housemaid’ Sequel in the Works With Sydney Sweeney and Paul Feig Returning**: [Link](https://variety.com/2026/film/news/the-housemaid-sequel-sydney-sweeney-paul-feig-1236624121/)
+
+
+### joao grimaldo (N/A, 06/01/2026 21:06 Lima)
+
+- **Sigue en Serbia: Sparta Praga habría acordado compra de Joao Grimaldo**: [Link](https://ovacion.pe/noticias/peruanos-mundo/sigue-serbia-sparta-praga-habria-acordado-compra-joao-grimaldo)
+- **¡Bombazo! Universitario sacude el mercado y tiene en la mira a Joao Grimaldo: "Gestiones..."**: [Link](https://libero.pe/futbol-peruano/universitario/2025/12/31/fichajes-liga-1-universitario-sacude-mercado-tiene-en-mira-joao-grimaldo-gestiones-2795084)
+- **Joao Grimaldo daría un salto importante en su carrera: Ficharía por grande de Europa Central**: [Link](https://www.apnoticias.pe/peru/exitosa-noticias/joao-grimaldo-daria-un-salto-importante-en-su-carrera-ficharia-por-grande-de-europa-central-1482018)
+
+
+### emily in paris (N/A, 06/01/2026 21:06 Lima)
+
+- **Emily in Paris Renewed: Say ‘Bonjour’ to Season 6**: [Link](https://www.netflix.com/tudum/articles/emily-in-paris-season-6-plot-release-date-news)
+- **‘Emily In Paris’ Renewed For Season 6 By Netflix**: [Link](https://deadline.com/2026/01/emily-in-paris-renewed-season-6-netflix-1236664590/)
+- **‘Emily in Paris’ Renewed for Sixth Season at Netflix**: [Link](https://www.hollywoodreporter.com/tv/tv-news/emily-in-paris-renewed-season-6-netflix-1236464702/)
+
+
+### eclipse solar anular (N/A, 06/01/2026 21:06 Lima)
+
+- **Eclipse solar ‘anillo de fuego’ 2026: Desde qué países se podrá ver**: [Link](https://www.americatv.com.pe/noticias/internacionales/eclipse-solar-anillo-fuego-2026-que-paises-se-podra-ver-n514551)
+- **El eclipse solar más extremo del 2026: la luna y el sol formarán un anillo de fuego visible**: [Link](https://larepublica.pe/ciencia/2026/01/06/el-eclipse-solar-mas-extremo-del-2026-la-luna-y-el-sol-formaran-un-anillo-de-fuego-123216)
+- **Eclipse solar 2026: confirman fecha y hora del ‘anillo de fuego’ más extremo del siglo**: [Link](https://www.expreso.com.pe/variedades/eclipse-solar-2026-confirman-fecha-y-hora-del-anillo-de-fuego-mas-extremo-del-siglo-utc-tierra-noticia/1252276/)
+
+
+### kings league (N/A, 06/01/2026 21:06 Lima)
+
+- **Perú cayó ante España 5-8 por la Kings League World Cup 2026: goles y resumen de la dolorosa derrota bicolor en el torneo**: [Link](https://www.infobae.com/peru/deportes/2026/01/06/peru-vs-espana-en-vivo-hoy-por-la-kings-league-word-cup-2026-via-youtube-disney-plus-minuto-a-minuto-elzeein-djmariio-resumen-video/)
+- **Spursito aparece en el mejor momento para rescatar a una España que sufrió y 'sentenció' a Perú**: [Link](https://www.marca.com/videojuegos/kings-league/2026/01/07/spursito-aparece-peor-momento-rescatar-espana-sufrio-sentencio-peru.html)
+- **Perú vs España en vivo: ¿A qué hora juegan y dónde ver partido de la Kings World Cup Nations 2026?**: [Link](https://rpp.pe/futbol/mas-futbol/link-peru-vs-espana-en-vivo-via-disney-plus-a-que-hora-juegan-y-donde-ver-kings-world-cup-nations-2026-en-dazn-y-twitch-kings-league-noticia-1670534)
+
+
+### sporting de lisboa (N/A, 06/01/2026 21:06 Lima)
+
+- **VIDEO - Luis Javier Suárez sigue en racha: nuevo gol con Sporting**: [Link](https://www.deportesrcn.com/futbol/video-luis-javier-suarez-sigue-en-racha-nuevo-gol-con-sporting-143661)
+- **Luis Suárez marcó, pero Sporting de Lisboa quedó eliminado en las semifinales de la Copa de la Liga de Portugal**: [Link](https://www.elespectador.com/deportes/futbol-mundial/luis-suarez-marco-pero-sporting-de-lisboa-quedo-eliminado-en-las-semifinales-de-la-copa-de-la-liga-de-portugal/)
+- **Revive el gol número 20 de Luis Suárez en Portugal**: [Link](https://colombia.as.com/videos/revive-el-gol-numero-20-de-luis-suarez-en-portugal-f202601-v/)
+
+
+### lotería (N/A, 06/01/2026 21:06 Lima)
+
+- **Lotería del Niño 2026, en directo | El premio Gordo cae en toda España, menos en Cantabria, Ceuta y Melilla**: [Link](https://www.infobae.com/espana/2026/01/06/loteria-del-nino-2026-en-directo-horario-numeros-premiados-y-ultima-hora-del-sorteo/)
+- **Estas son las predicciones del número que va a tocar en la Lotería del Niño 2026**: [Link](https://as.com/tikitakas/famosos/estas-son-las-predicciones-del-numero-que-va-a-tocar-en-la-loteria-del-nino-2026-f202601-n/)
+- **Comprobar Lotería del Niño 2026, en directo: resultados oficiales y consulta los números con premio**: [Link](https://www.abc.es/loteria-del-nino/comprobar-loteria-nino-2026-directo-resultados-oficiales-numero-premio-20260106050000-di.html)
+
+
+### lisboa fc (N/A, 06/01/2026 21:06 Lima)
+
+- **João Coelho: «Merecíamos mais, fica sabor agridoce»**: [Link](https://www.abola.pt/noticias/joao-coelho-mereciamos-mais-fica-sabor-agridoce-2026010623500900456)
+- **Voleibol: Sporting perde na Champions, Benfica apurado na Taça Challenge**: [Link](https://maisfutebol.iol.pt/modalidades/benfica/voleibol-sporting-perde-na-champions-benfica-apurado-na-taca-challenge)
+- **"Vice" Warta Zawiercie derrota Sporting na Champions de voleibol**: [Link](https://www.ojogo.pt/modalidades/artigo/vice-warta-zawiercie-derrota-sporting-na-champions-de-voleibol/18037663)
+
+
 ### juventus vs (N/A, 06/01/2026 15:30 Lima)
 
 - **¡EN VIVO! Sassuolo vs. Juventus por Serie A**: [Link](https://www.espn.com.pe/futbol/italia/nota/_/id/16149542/sassuolo-vs-juventus-equipo-fecha-hora-y-tv-en-vivo)
@@ -959,75 +1029,5 @@ Sin noticias relacionadas disponibles.
 - **Eclipse solar del siglo en 2026: fecha, hora y por qué es considerado extremo este nuevo ‘anillo de fuego’**: [Link](https://www.infobae.com/peru/2026/01/02/eclipse-solar-del-siglo-en-2026-fecha-hora-y-por-que-es-considerado-extremo-este-nuevo-anillo-de-fuego/)
 - **En 2026, el primero de tres eclipses solares en España y el vuelo inaugural del Miura 5**: [Link](https://www.jornada.com.mx/2026/01/02/ciencias/a06n1cie)
 - **Eclipses totales de Sol y Luna protagonizarán el calendario astronómico**: [Link](https://primicia.com.ve/mas/ciencia-y-tecnologia/eclipses-totales-de-sol-y-luna-protagonizaran-el-calendario-astronomico/)
-
-
-### dea (N/A, 03/01/2026 07:51 Lima)
-
-- **Avoiding the Telemedicine Cliff: Why the DEA Extended Prescribing Rules Through 2026**: [Link](https://hitconsultant.net/2026/01/02/avoiding-the-telemedicine-cliff-why-the-dea-extended-prescribing-rules-through-2026/)
-- **DEA Extends Opioid Prescribing Via Telehealth**: [Link](https://hospicenews.com/2026/01/02/dea-extends-opioid-prescribing-via-telehealth/)
-- **Feds Extend COVID-Era Bupe Telemedicine Flexibilities, Again**: [Link](https://filtermag.org/dea-hhs-buprenorphine-telemedicine/)
-
-
-### mar a lago (N/A, 03/01/2026 07:51 Lima)
-
-- **Exclusive | The Incident That Prompted Trump to Ban Epstein From Mar-a-Lago’s Spa - WSJ**: [Link](https://www.wsj.com/us-news/trump-epstein-mar-a-lago-ban-2011dc53)
-- **Mar-a-Lago Was Key to Jeffrey Epstein’s Criminal Enterprise**: [Link](https://www.thenation.com/article/politics/mar-a-lago-jeffrey-epstein-donald-trump/)
-- **New report casts light on Epstein’s ban from Mar-a-Lago**: [Link](https://www.independent.co.uk/news/world/americas/us-politics/jeffrey-epstein-trump-mar-a-lago-b2892648.html)
-
-
-### celta de vigo - valencia c. f. (N/A, 03/01/2026 07:51 Lima)
-
-- **Celta - Valencia en directo: LaLiga EA Sports hoy en vivo**: [Link](https://as.com/futbol/primera/celta-valencia-en-directo-laliga-ea-sports-hoy-en-vivo-f202601-d/)
-- **Apuestas y Pronóstico del Celta vs Valencia 03/01/26**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2026/enero/pronostico-celta-vs-valencia-03-01-26)
-- **Sigue en directo toda la información del mundo del fútbol en formato exprés**: [Link](https://www.flashscore.es/noticias/futbol-laliga-ea-sports-futbol-en-directo-celta-y-valencia-abren-el-sabado/O4QRt9MP/)
-
-
-### aston villa - nottingham forest (N/A, 03/01/2026 07:51 Lima)
-
-- **Preview: Aston Villa vs Nottingham Forest - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/aston-villa/preview/aston-villa-vs-nottm-forest-prediction-team-news-lineups_588926.html)
-- **FOREST TV, RADIO & TV CHANNEL | HOW TO FOLLOW THE REDS AGAINST ASTON VILLA**: [Link](https://www.nottinghamforest.co.uk/news/2026/january/02/forest-tv--radio---tv-channel---how-to-follow-the-reds-against-aston-villa/)
-- **Football Tracker: Aston Villa hosting Forest in early kick-off, Como in Serie A action**: [Link](https://www.flashscore.com/news/football-tracker-aston-villa-hosting-forest-in-early-kick-off-como-in-serie-a-action/feHSqASE/)
-
-
-### como - udinese (N/A, 03/01/2026 07:51 Lima)
-
-- **Como - Udinese, en directo: Serie A, hoy en vivo**: [Link](https://as.com/futbol/internacional/como-udinese-en-directo-serie-a-hoy-en-vivo-f202601-n/)
-- **Serie A: Como 1907 y Udinese se miden por la fecha 18**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-como-1907-y-udinese-se-miden-por-la-fecha-18-noticia-1669945)
-- **EN VIVO: El partido se pone 1 a 0 a favor de Como 1907**: [Link](https://www.t13.cl/noticia/deportes13/en-vivo-el-partido-se-pone-1-a-0-a-favor-de-como-1907-03-01-2026)
-
-
-### melbourne city - sydney (N/A, 03/01/2026 07:51 Lima)
-
-- **Melbourne City vs Sydney FC: Key A-League Clash and Standings Impact**: [Link](https://azat.tv/en/melbourne-city-vs-sydney-fc-a-league-2026/)
-- **City huff and puff but can't blow Sydney down in ALM**: [Link](https://www.canberratimes.com.au/story/9144809/city-huff-and-puff-but-cant-blow-sydney-down-in-alm/)
-- **Melbourne City vs Sydney FC Prediction and Betting Tips | January 2nd 2026**: [Link](https://www.sportskeeda.com/football/melbourne-city-vs-sydney-fc-prediction-betting-tips-january-2nd-2026)
-
-
-### expreso (N/A, 03/01/2026 07:51 Lima)
-
-- **José Jerí sabe toda la crisis de EsSalud y calla: estarían preparando festín corrupto**: [Link](https://www.expreso.com.pe/en-portada/jose-jeri-sabe-toda-la-crisis-de-essalud-y-calla-estarian-preparando-festin-corrupto-alianza-para-el-progreso-dina-boluarte-noticia/1251835/)
-- **Diario Expreso**: [Link](https://www.facebook.com/diario.expreso/photos/d41d8cd9/1298379635652978/)
-- **"No responden": José Jerí contestó así a mensaje que pedía ayuda para paciente de Essalud**: [Link](https://larepublica.pe/politica/2025/12/27/no-responden-jose-jeri-contesto-asi-a-mensaje-que-pedia-ayuda-para-paciente-de-essalud-hnews-479385)
-
-
-### america tv (N/A, 03/01/2026 07:51 Lima)
-
-- **📢 Incidente ocurrió en un inmueble que albergó antiguos estudios televisivos.**: [Link](https://www.facebook.com/story.php?story_fbid=1298281605662781&id=100064428623066)
-- **Emergencia en antiguo estudio de América TV: amago de incendio moviliza a bomberos en Lince**: [Link](https://www.expreso.com.pe/actualidad/emergencia-en-antiguo-estudio-de-america-tv-amago-de-incendio-moviliza-a-bomberos-en-lince-noticia/1252028/)
-- **Emergencia en ex estudio de América Televisión: amago de incendio por cortocircuito en tercer piso movilizó a bomberos**: [Link](https://larepublica.pe/sociedad/2026/01/02/emergencia-en-ex-estudio-de-america-television-amago-de-incendio-por-presunto-problema-electrico-en-tercer-piso-moviliza-a-bomberos-39766)
-
-
-### china (N/A, 03/01/2026 07:51 Lima)
-
-- **Ten years after it ended its ‘one-child’ policy, China’s push for more babies isn’t winning its citizens over**: [Link](https://www.cnn.com/2026/01/01/china/china-one-child-anniversary-intl-hnk-vis-dst)
-- **Why China is doubling down on its export-led growth model**: [Link](https://www.ft.com/content/079f2014-ed56-4137-89ee-561d7a8226cf)
-- **China's baby steps: Ageing Beijing to tax condoms, contraceptives; why Xi Jinping is worried**: [Link](https://timesofindia.indiatimes.com/world/china/chinas-baby-steps-ageing-beijing-to-tax-condoms-contraceptives-heres-why/articleshow/126307300.cms)
-
-
-### rpp noticias (N/A, 03/01/2026 07:51 Lima)
-
-- **Podemos, Fuerza Popular, APP, Obras y Perú Libre lideran el listado de partidos con más candidatos con sentencias**: [Link](https://www.infobae.com/peru/2026/01/01/podemos-fuerza-popular-app-obras-y-peru-libre-lideran-el-listado-de-partidos-con-mas-candidatos-con-sentencias/)
-- **Reportan que 252 candidatos a las Elecciones 2026 registran sentencias penales vigentes**: [Link](https://canaln.pe/actualidad/252-candidatos-presentan-sentencias-vigentes-elecciones-2026-n489318)
-- **Elecciones 2026: 9 de cada 10 partidos políticos registraron en el JNE a candidatos con condenas ¿Cuáles son?**: [Link](https://rpp.pe/peru/actualidad/elecciones-2026-9-de-cada-10-partidos-politicos-registraron-en-el-jne-a-candidatos-con-condenas-cuales-son-noticia-1669810)
 
 
