@@ -1,3 +1,24 @@
+### joaquín ramírez (N/A, 07/01/2026 11:37 Lima)
+
+- **PJ ordenó incorporar a Fuerza Popular como persona jurídica en el proceso contra Joaquín Ramírez por el caso 'Alas Peruanas'**: [Link](https://rpp.pe/politica/judiciales/pj-ordeno-incorporar-a-fuerza-popular-como-persona-juridica-en-el-proceso-contra-joaquin-ramirez-por-el-caso-alas-peruanas-noticia-1670548)
+- **Fuerza Popular es incorporado como persona jurídica en caso Alas Peruanas**: [Link](https://altavoz.pe/locales/fuerza-popular-es-incorporado-como-persona-juridica-en-caso-alas-peruanas/)
+- **Caso Alas Peruanas: PJ ordena incorporar a Fuerza Popular como persona jurídica en proceso contra Joaquín Ramírez**: [Link](https://diariocorreo.pe/politica/caso-alas-peruanas-pj-ordena-incorporar-a-fuerza-popular-como-persona-juridica-en-proceso-contra-joaquin-ramirez-noticia/)
+
+
+### año 2026 nombre oficial peru (N/A, 07/01/2026 11:37 Lima)
+
+- **Nombre del Año 2026 en Perú: cómo se llamará, cuándo se conocerá y qué se sabe ahora**: [Link](https://gestion.pe/mix/respuestas/nombre-del-ano-2026-en-peru-cuando-se-dara-a-conocer-y-que-se-sabe-hasta-ahora-nnda-nnrt-noticia/)
+- **¿Cómo se llamará el año 2026 en Perú? Esto es lo último que se sabe hoy 7 de enero**: [Link](https://www.infobae.com/peru/2026/01/04/se-sabe-como-se-llamara-el-ano-2026-en-peru-esto-es-lo-ultimo-que-se-conoce/)
+- **Gobierno prepara NOMBRE DEL AÑO 2026 en Perú: cuándo se conocerá la denominación oficial**: [Link](https://elcomercio.pe/respuestas/tramites/el-2026-en-peru-tendra-un-nombre-oficial-del-ano-conoce-cual-y-cuando-inicia-tdpe-noticia/)
+
+
+### barcelona vs athletic bilbao (N/A, 07/01/2026 11:37 Lima)
+
+- **Supercopa de España: Real Madrid, FC Barcelona, Atlético de Madrid y Athletic Club buscan su primer título de 2026**: [Link](https://cnnespanol.cnn.com/2026/01/06/deportes/supercopa-espana-2026-formato-partidos-equipos-orix)
+- **¿Por qué no hay prórroga en los partidos de Supercopa de España? Así se decidirá el ganador en caso de empate**: [Link](https://as.com/futbol/primera/por-que-no-hay-prorroga-en-los-partidos-de-supercopa-de-espana-asi-se-decidira-el-ganador-en-caso-de-empate-f202601-n/)
+- **El Barça afronta la semifinal con la duda de Lamine y el aviso de Flick**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20260106/1002596786/barca-afronta-semifinal-duda-lamine-aviso-flick.html)
+
+
 ### normas legales (N/A, 07/01/2026 07:57 Lima)
 
 - **El Peruano te informa: consulta aquí las principales normas legales para hoy, martes 6 de Enero del 2026**: [Link](https://www.elperuano.pe/noticia/286515-el-peruano-te-informa-consulta-aqui-las-principales-normas-legales-para-hoy-martes-6-de-enero-del-2026)
@@ -1007,25 +1028,5 @@ Sin noticias relacionadas disponibles.
 - **U20 | Juventus-Parma | Il commento di Padoin**: [Link](https://onefootball.com/de/news/u20-juventus-parma-il-commento-di-padoin-42175507)
 - **Primavera Juve, il nuovo anno inizia con un pareggio: a Vinovo è 0-0 col Parma**: [Link](https://www.tuttosport.com/news/calcio/primavera/2026/01/03-145572996/primavera_juve_il_nuovo_anno_inizia_con_un_pareggio_a_vinovo_0-0_col_parma)
 - **PRIMAVERA 1, L’ALLENATORE NICOLA CORRENT: “ORGOGLIOSO DEI MIEI RAGAZZI”**: [Link](https://www.parmacalcio1913.com/news/primavera-1-lallenatore-nicola-corrent-orgoglioso-dei-miei-ragazzi/)
-
-
-### atalanta - roma (N/A, 03/01/2026 15:28 Lima)
-
-- **Serie A: in campo Atalanta-Roma 2-0 DIRETTA e FOTO**: [Link](https://www.ansa.it/sito/notizie/sport/calcio/2026/01/03/serie-a-in-campo-atalanta-roma-2-0-diretta-e-foto_f63ae3ed-6de1-465e-90fd-8e29d49b1885.html)
-- **Carnesecchi: 'Questa per noi è un'occasione. Siamo contenti del ritorno di Gasp'**: [Link](https://www.virgilio.it/italia/roma/notizielocali/carnesecchi_questa_per_noi_un_occasione_siamo_contenti_del_ritorno_di_gasp_-76248811.html)
-- **Gasperini a Bergamo, non tutti i tifosi dell’Atalanta ringraziano l’ex tecnico**: [Link](https://www.repubblica.it/sport/calcio/serie-a/roma/2026/01/03/news/gasperini_bergamo_ritorno_striscioni_tifosi-425074522/)
-
-
-### braga vs (N/A, 03/01/2026 15:28 Lima)
-
-- **Preview: Estrela Amadora vs Braga - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/estrela-amadora/preview/estrela-amadora-vs-braga-prediction-team-news-lineups_588993.html)
-- **Estrela da Amadora vs Braga prediction and betting tips 03 January 2026**: [Link](https://dailysports.net/predictions/estrela-amadora-vs-braga-who-will-be-able-to-extend-their-unbeaten-run/)
-
-
-### benfica vs (N/A, 03/01/2026 15:28 Lima)
-
-- **El 2025 de Richard Ríos: el salto a Europa y clasificación al Mundial con Colombia**: [Link](https://www.espn.com.pe/futbol/nota/_/id/16129384/el-2025-de-richard-rios-salto-a-europa-y-clasificacion-al-mundial-colombia)
-- **Preview: Benfica vs Estoril Praia - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/benfica/preview/benfica-vs-estoril-prediction-team-news-lineups_588987.html)
-- **Benfica faces Estoril Praia tonight seeking to close 10-point gap to Porto, but recent momentum might shock the Eagles**: [Link](https://www.red94.net/news/42643-benfica-faces-estoril-praia-tonight-in-liga-portugal-clash-with-playoff-implicat/)
 
 
