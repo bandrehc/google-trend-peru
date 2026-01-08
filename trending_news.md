@@ -1,3 +1,52 @@
+### samahara lobaton (N/A, 08/01/2026 11:37 Lima)
+
+- **Samahara Lobatón 'REMATA' cuenta de Instagram con 70k y pone el parche: "Gente seria, no sapos"**: [Link](https://www.atv.pe/noticia/samahara-lobaton-remata-cuenta-de-instagram-con-70k-y-pone-el-parche-gente-seria-no-sapos/)
+- **Influencer puso en venta su cuenta de Instagram con más de 70, 000 seguidores**: [Link](https://www.tvazteca.com/aztecauno/famosos/por-que-influencer-samahara-lobaton-vende-instagram-70-000-seguidores-pb-notas/)
+- **Samahara Lobatón insiste en vender su cuenta de Instagram con miles de seguidores: "Lista para ser transferida"**: [Link](https://larepublica.pe/espectaculos/2025/12/30/samahara-lobaton-insiste-en-vender-su-cuenta-de-instagram-con-miles-de-seguidores-lista-para-ser-transferida-2570940)
+
+
+### sat (N/A, 08/01/2026 11:37 Lima)
+
+- **SAT Requirements Should Be Aligned With Mission (opinion)**: [Link](https://www.insidehighered.com/opinion/views/2026/01/05/sat-requirements-should-be-aligned-mission-opinion)
+- **Worker Confused After Recruiter Asked To See College SAT Scores As Part Of Their Job Application**: [Link](https://www.yourtango.com/career/worker-confused-after-recruiter-asked-college-sat-scores)
+- **Knox County Public Library and Brainfuse offer free online SAT prep courses**: [Link](https://www.knoxtntoday.com/knox-county-public-library-and-brainfuse-offer-free-online-sat-prep-courses/)
+
+
+### jujutsu kaisen (N/A, 08/01/2026 11:37 Lima)
+
+- **JUJUTSU KAISEN Season 3: Where to Watch, Trailers, Voice Cast, Characters & More**: [Link](https://www.crunchyroll.com/news/guides/2026/1/6/jujutsu-kaisen-season-3-where-to-watch-guide)
+- **Jujutsu Kaisen Season 3 release: When and where to watch the manga adaptation of Gege Akutami's Dying Game**: [Link](https://www.moneycontrol.com/entertainment/jujutsu-kaisen-season-3-release-when-and-where-to-watch-the-manga-adaptation-of-gege-akutami-s-dying-game-article-13762563.html)
+- **Jujutsu Kaisen Creator Unveils a Shocking Spoiler Ahead of Season 3**: [Link](https://comicbook.com/anime/news/jujutsu-kaisen-creator-unveils-a-shocking-spoiler-ahead-of-season-3/)
+
+
+### al hilal (N/A, 08/01/2026 11:37 Lima)
+
+- **Al-Hilal’s repeated pursuit of Barcelona star fails again this winter – Report**: [Link](https://semprebarca.com/al-hilals-repeated-pursuit-of-barcelona-star-fails-again-this-winter-report/)
+- **Not Even Hansi Flick Knows What Robert Lewandowski’s Future Will Be**: [Link](https://www.beinsports.com/en-us/soccer/la-liga/articles/not-even-hansi-flick-knows-what-robert-lewandowski-s-future-will-be-2026-01-08)
+- **Lewandowski Decides on Potential Move to Al Hilal in the Winter Transfer Window**: [Link](https://koorabreak.com/en/240283/)
+
+
+### al hilal vs (N/A, 08/01/2026 11:37 Lima)
+
+- **Preview: Al-Hilal vs. Al Hazem - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/al-hilal/preview/al-hilal-vs-al-hazem-prediction-team-news-lineups_589343.html)
+- **Al Hilal Star's Return Revives the Leader Ahead of the Anticipated Al-Hazem Match**: [Link](https://www.ysscores.com/en/news/13885750/Al-Hilal-Star's-Return-Revives-the-Leader-Ahead-of-the-Anticipated-Al-Hazem-Match)
+- **Al-Hilal Vs Al-Hazm Live Score, Saudi Pro League 2025-26: Ruben Neves Doubles Lead As Blues Pull Ahead**: [Link](https://www.outlookindia.com/sports/football/al-hilal-vs-al-hazm-live-score-saudi-pro-league-2025-26-matchday-14-updates-highlights-kingdom-arena)
+
+
+### denominacion del año 2026 peru (N/A, 08/01/2026 11:37 Lima)
+
+- **Nombre del Año 2026 en Perú: cómo se llamará, qué día se conocerá y lo que se sabe ahora**: [Link](https://gestion.pe/mix/respuestas/nombre-del-ano-2026-en-peru-cuando-se-dara-a-conocer-y-que-se-sabe-hasta-ahora-nnda-nnrt-noticia/)
+- **¿Se sabe cómo se llamará el año 2026 en Perú? Esto es la última información hoy 7 de enero**: [Link](https://www.infobae.com/peru/2026/01/04/se-sabe-como-se-llamara-el-ano-2026-en-peru-esto-es-lo-ultimo-que-se-conoce/)
+- **Conoce la historia del nombre oficial del año en Perú**: [Link](https://andina.pe/agencia/noticia-conoce-historia-del-nombre-oficial-del-ano-peru-1058094.aspx)
+
+
+### defensoria del pueblo (N/A, 08/01/2026 11:37 Lima)
+
+- **Midis y Defensoría del Pueblo articulan acciones**: [Link](https://elperuano.pe/noticia/286669-midis-y-defensoria-del-pueblo-articulan-acciones)
+- **Crean comité para supervisar implementación del Programa de Alimentación Escolar**: [Link](https://gestion.pe/peru/crean-comite-para-supervisar-implementacion-del-programa-de-alimentacion-escolar-noticia/)
+- **Lesly Shica y Defensor del Pueblo crean comité para garantizar alimentos escolares de calidad en 2026**: [Link](https://altavoz.pe/locales/lesly-shica-y-defensor-del-pueblo-crean-comite-para-garantizar-alimentos-escolares-de-calidad-en-2026/)
+
+
 ### afp prima (N/A, 08/01/2026 07:57 Lima)
 
 - **Retiro de AFP: Afiliados sí pueden registrar una segunda solicitud bajo estas condiciones**: [Link](https://www.infobae.com/peru/2026/01/07/retiro-de-afp-afiliados-si-pueden-registrar-una-segunda-solicitud-bajo-estas-condiciones/)
@@ -980,54 +1029,5 @@ Sin noticias relacionadas disponibles.
 - **Comentario al Evangelio del domingo 4 de enero de 2025**: [Link](https://www.ciudadredonda.org/events/comentario-al-evangelio-del-domingo-4-de-enero-de-2025/)
 - **Las Calendas de Navidad y la Epifanía del Señor**: [Link](https://desdelafe.mx/opinion-y-blogs/voz-del-obispo/las-calendas-de-navidad-y-la-epifania-del-senor/)
 - **“Mírale a él también humanado” (Epifanía del Señor 6 enero 2026)**: [Link](https://www.religiondigital.org/atrevete_a_orar/mirale-humanado-epifania-senor-6_132_1438718.html)
-
-
-### inter (N/A, 04/01/2026 15:28 Lima)
-
-- **Preview: Inter Milan vs Bologna - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/inter-milan/preview/inter-milan-vs-bologna-prediction-team-news-lineups_589013.html)
-- **Mkhitaryan Remains on the Bench in the First Match of 2026**: [Link](https://sportaran.com/en/post/mhitaryan-ostalsya-v-zapase-v-pervom-matche-2026-goda/)
-- **Bologna Given Massive Boost As Key Duo Set To Return For Trip To Inter Milan**: [Link](https://sempreinter.com/2026/01/04/inter-bologna-selection-heggem-ferguson/)
-
-
-### paris fc (N/A, 04/01/2026 15:28 Lima)
-
-- **Kevin Hatchard's European Tips: Back fireworks in Paris match**: [Link](https://betting.betfair.com/football/european-football-tips/kevin-hatchards-european-tips---fireworks-in-paris-match-020126-140.html)
-- **'It could be interesting if we manage to break free from it': Paris FC coach Stephane Gilli reveals key to troubling PSG**: [Link](https://tribuna.com/en/news/2026-01-04-it-could-be-interesting-if-we-manage-to-break-free-from-it-paris-fc-coach-stephane-gilli/)
-- **PSG boss Luis Enrique ready to embrace 'special' derby against Paris FC**: [Link](https://www.beinsports.com/en-us/soccer/ligue-1/articles/psg-boss-luis-enrique-ready-to-embrace-special-derby-against-paris-fc-2026-01-03)
-
-
-### chelsea football club (N/A, 04/01/2026 15:28 Lima)
-
-- **Club statement: Enzo Maresca | News | Official Site**: [Link](https://www.chelseafc.com/en/news/article/club-statement-enzo-maresca)
-- **Harry Redknapp blames Chelsea's sporting directors for area of squad that's 'not good enough'**: [Link](https://www.thechelseachronicle.com/news/harry-redknapp-blames-chelseas-sporting-directors-for-area-of-squad-thats-not-good-enough/)
-- **How did Pep Guardiola respond to journalists' questions about his future with Manchester City?**: [Link](https://foot-africa.com/en/news/how-did-pep-guardiola-respond-to-journalists-questions-about-his-future-with-manchester-city-1028225/)
-
-
-### real sociedad - atlético madrid (N/A, 04/01/2026 15:28 Lima)
-
-- **Real Sociedad - Atlético de Madrid, en directo: LaLiga EA Sports, en vivo hoy**: [Link](https://as.com/futbol/real-sociedad-atletico-de-madrid-en-directo-laliga-ea-sports-en-vivo-hoy-f202601-d/)
-- **Apuestas y Pronóstico del Real Sociedad vs Atlético Madrid 04/01/26**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2026/enero/pronostico-real-sociedad-vs-atletico-madrid-04-01-26)
-- **Anoeta, primer propósito**: [Link](https://www.pressreader.com/spain/as-valencia/20260104/281646786510426)
-
-
-### psg - paris fc (N/A, 04/01/2026 15:28 Lima)
-
-- **Pronostic PSG - Paris FC, Ligue 1**: [Link](https://www.sportytrader.com/pronostics/psg-paris-fc-315637/)
-- **[Podcasts] Le premier derby parisien de la saison ! – 04/01**: [Link](https://rmcsport.bfmtv.com/replay-emissions/bartoli-time/le-premier-derby-parisien-de-la-saison-04-01_EN-202601040304.html)
-- **Comment regarder Paris Saint-Germain - Paris FC ? Date, heure, streaming et comment regarder la Ligue 1 McDonald’s sur Ligue 1+, disponible sur DAZN​ | DAZN News FR**: [Link](https://www.dazn.com/fr-FR/news/football/comment-regarder-paris-saint-germain-paris-fc-date-heure-streaming-et-comment-regarder-la-ligue-1-mcdonalds-sur-ligue-1-disponible-sur-dazn/wqa4i552724p1qf7rtf9k2d2j)
-
-
-### inter - bolonia (N/A, 04/01/2026 15:28 Lima)
-
-- **Inter vs Bologna: ¡Incrementa tus ganancias hasta 200% con la Serie A en Meridianbet!**: [Link](https://ovacion.pe/noticias/nota-promocional/inter-vs-bologna-incrementa-tus-ganancias-hasta-200-serie-meridianbet)
-- **Serie A: Inter busca derrotar a Bologna para subirse al liderato**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-inter-busca-derrotar-a-bologna-para-subirse-al-liderato-noticia-1670133)
-- **La superestrella argentina regresará al XI del Inter de Milán para un enfrentamiento clave de la Serie A con el Bolonia**: [Link](https://www.elpueblo.pe/deportes/la-superestrella-argentina-regresara-al-xi-del-inter-de-milan-para-un-enfrentamiento-clave-de-la-serie-a-con-el-bolonia/191933/)
-
-
-### sudáfrica - camerún (N/A, 04/01/2026 15:28 Lima)
-
-- **Sudáfrica - Camerún, en directo: Copa África, hoy en vivo**: [Link](https://as.com/futbol/internacional/sudafrica-camerun-en-directo-copa-africa-hoy-en-vivo-f202601-n/)
-- **Sudáfrica vs Camerún EN VIVO: ¿a qué hora juegan y por dónde ver los octavos de final de la Copa Africana de Naciones?**: [Link](https://rpp.pe/futbol/futbol-mundial/sudafrica-vs-camerun-en-vivo-a-que-hora-juegan-y-donde-ver-octavos-de-copa-africana-de-naciones-2026-via-claro-sports-gratis-partidos-de-hoy-noticia-1670174)
-- **2B - 2F en directo - Copa de África: Resultados y resúmenes de Fútbol - 04/01/2026**: [Link](https://espanol.eurosport.com/futbol/copa-de-africa/2025/live-sudafrica-camerun_mtc1584179/live-commentary.shtml)
 
 
