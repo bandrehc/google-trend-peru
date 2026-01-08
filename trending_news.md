@@ -1,3 +1,45 @@
+### lakers (N/A, 07/01/2026 23:43 Lima)
+
+- **LeBron James Says Playing In Back-To-Backs Now 'TBD' At 41 Years Old**: [Link](https://www.tmz.com/2026/01/07/lebron-james-back-to-backs-tbd-41-years-old/)
+- **JJ Redick says that the hope is that at some point …**: [Link](https://www.hoopshype.com/story/sports/nba/rumors/2026/01/07/jj-redick-says-that-the-hope-is-that-at-some-point/88073803007/)
+- **LeBron James’ All-NBA streak in jeopardy after 17th missed game**: [Link](https://sports.yahoo.com/articles/lebron-james-nba-streak-jeopardy-024127635.html)
+
+
+### bucks - warriors (N/A, 07/01/2026 23:43 Lima)
+
+- **Milwaukee Bucks at Golden State Warriors odds, picks and predictions**: [Link](https://sportsbookwire.usatoday.com/story/sports/nba/2026/01/07/bucks-at-warriors-odds-picks-and-predictions/88066288007/)
+- **theScore Bet bonus code NPNEWS: Bet $10, get $100 in bonus bets for Bucks vs. Warriors**: [Link](https://nypost.com/2026/01/07/betting/thescore-bet-bonus-code-npnews-bet-10-get-100-in-bonus-bets-for-bucks-vs-warriors/)
+- **Curry, Giannis and an uncertain path around Superstars**: [Link](https://dubnationhq.com/p/curry-giannis-and-an-uncertain-path)
+
+
+### pedro el escamoso (N/A, 07/01/2026 23:43 Lima)
+
+- **Pedro el escamoso 2: Paula aparece y revela por qué buscaba a Pedro tras décadas de silencio**: [Link](https://www.atv.pe/noticia/pedro-el-escamoso-2-paula-aparece-y-revela-por-que-buscaba-a-pedro-tras-decadas-de-silencio/)
+- **Pedro el escamoso 2: Revelan el dramático destino de Paula en emotivo encuentro**: [Link](https://www.atv.pe/noticia/pedro-el-escamoso-2-revelan-el-dramatico-destino-de-paula-en-emotivo-encuentro/)
+- **Pedro el escamoso 2: Fernanda cancela viaje a EE.UU. por Mariana, ¿quién acompañará a Pedro Junior?**: [Link](https://www.atv.pe/noticia/pedro-el-escamoso-2-fernanda-cancela-viaje-a-ee-uu-por-mariana-quien-acompanara-a-pedro-junior/)
+
+
+### lakers - spurs (N/A, 07/01/2026 23:43 Lima)
+
+- **Lakers vs Spurs Picks & Odds Today: Los Angeles To Cover As Road Underdog**: [Link](https://www.oddsshark.com/nba/lakers-spurs-picks-odds-january-7-2026)
+- **Kalshi Promo Code 'COVERS' Gives A $10 Bonus For Your First Predictions Play On Lakers-Spurs**: [Link](https://www.covers.com/daily-promos/kalshi-promo-code-nba-lakers-spurs-01-07-2026)
+- **BetMGM Bonus Code NYPDM1500: Get a 20% first deposit match up to $1,500 for Lakers vs. Spurs**: [Link](https://nypost.com/2026/01/07/betting/betmgm-bonus-code-nypdm1500-get-a-20-first-deposit-match-up-to-1500-for-lakers-vs-spurs/)
+
+
+### prima afp (N/A, 07/01/2026 23:43 Lima)
+
+- **Retiro de AFP: Afiliados sí pueden registrar una segunda solicitud bajo estas condiciones**: [Link](https://www.infobae.com/peru/2026/01/07/retiro-de-afp-afiliados-si-pueden-registrar-una-segunda-solicitud-bajo-estas-condiciones/)
+- **AFP: Siga estas claves para proteger su dinero si decide retirarlo tras el ajuste de la UIT**: [Link](https://elperuano.pe/noticia/286579-afp-siga-estas-claves-para-proteger-su-dinero-si-decide-retirarlo-tras-el-ajuste-de-la-uit)
+- **Retiro AFP 2026: Podrás retirar hasta S/22.000; plazo vence el 16 de enero**: [Link](https://peru21.pe/economia/retiro-afp-2026-vuelve-el-acceso-para-retirar-hasta-s22000/)
+
+
+### audrey nuna (N/A, 07/01/2026 23:43 Lima)
+
+- **How ‘KPop Demon Hunters’ Star Audrey Nuna Avoided a Wardrobe Malfunction at the Critics Choice Awards**: [Link](https://www.imdb.com/news/ni65645579/?ref_=nwc_art_perm)
+- **How ‘KPop Demon Hunters’ Star Audrey Nuna Avoided a Wardrobe Malfunction at the Critics Choice Awards**: [Link](https://www.hollywoodreporter.com/lifestyle/style/details-of-how-audrey-nunas-stylist-fixed-her-cca-dress-1236464399/)
+- **New VALORANT Cinematic, Named Welcome to My World... is Out!**: [Link](https://www.gamegrin.com/news/new-valorant-cinematic-named-welcome-to-my-world-is-out/)
+
+
 ### november 61987 (N/A, 07/01/2026 21:07 Lima)
 
 - **‘Stranger Things’ Surprise Final Episode Doesn’t Exist: Here’s Why Fans Thought ‘Conformity Gate’ Was Real**: [Link](https://variety.com/2026/tv/news/stranger-things-conformity-gate-final-episode-doesnt-exist-1236625074/)
@@ -986,47 +1028,5 @@ Sin noticias relacionadas disponibles.
 - **Tottenham half-time player ratings vs Sunderland – 7/10 for energetic winger**: [Link](https://www.spurs-web.com/tottenham-hotspur-fan-articles/tottenham-half-time-player-ratings-vs-sunderland-7-10-for-energetic-winger/)
 - **Starting XI: Will Regis Le Bris Make Changes For Sunderland’s Trip To Tottenham?**: [Link](https://rokerreport.sbnation.com/match-previews/120481/starting-xi-will-le-bris-make-changes-for-sunderlands-trip-to-tottenham)
 - **Confirmed line-ups | Spurs vs Sunderland**: [Link](https://www.tottenhamhotspur.com/news/2026/january/confirmed-line-ups-tottenham-hotspur-vs-sunderland/)
-
-
-### marruecos - tanzania (N/A, 04/01/2026 11:30 Lima)
-
-- **Marruecos - Tanzania, en directo: Copa África, hoy en vivo**: [Link](https://as.com/futbol/internacional/marruecos-tanzania-en-directo-copa-africa-hoy-en-vivo-f202601-n/)
-- **Marruecos - Tanzania en directo: Octavos de final de la Copa de Africa**: [Link](https://www.marca.com/futbol/copa-de-africa/marruecos-tanzania/2026/01/04/01_0167_20260104_1057_1888-directo.html)
-- **Regragui comparece con Saïss ante la prensa antes de octavos de la Copa África**: [Link](https://es.rue20.com/2026/01/02/regragui-comparece-con-saiss-ante-la-prensa-antes-de-octavos-de-la-copa-africa/)
-
-
-### nantes vs (N/A, 04/01/2026 11:30 Lima)
-
-- **OM 0-2 Nantes, Ligue 1 : résumé du match (04/01/2026)**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-1/2025-2026/om-nantes-live/675946)
-- **Comment regarder Olympique de Marseille - FC Nantes ? Date, heure, streaming et comment regarder la Ligue 1 McDonald’s sur Ligue 1+, disponible sur DAZN​**: [Link](https://www.dazn.com/fr-FR/news/football/comment-regarder-olympique-de-marseille-fc-nantes-date-heure-streaming-et-comment-regarder-la-ligue-1-mcdonalds-sur-ligue-1-disponible-sur-dazn/4448vbitpzkj1nj99yk24rwhy)
-- **Mené face au FC Nantes, l’expulsion d’Arthur Vermeeren ne fait pas les affaires de l’Olympique de Marseille (vidéos)**: [Link](https://www.lesoir.be/720260/article/2026-01-04/mene-face-au-fc-nantes-lexpulsion-darthur-vermeeren-ne-fait-pas-les-affaires-de)
-
-
-### kick (N/A, 04/01/2026 03:34 Lima)
-
-- **The 5 Hottest Robinhood Stocks to Kick Off 2026**: [Link](https://www.fool.com/investing/2026/01/04/the-5-hottest-robinhood-stocks-to-kick-off-2026/)
-- **3 High-Flying Robinhood Stocks to Watch in January 2026**: [Link](https://stockstotrade.com/news/robinhood-penny-stocks-2026-01-01/)
-- **5 "Magnificent" Stocks and 1 ETF That Are Must-Owns in 2026, According to Robinhood's Retail Investors**: [Link](https://finance.yahoo.com/news/5-magnificent-stocks-1-etf-092600068.html)
-
-
-### clippers - celtics (N/A, 04/01/2026 03:34 Lima)
-
-- **HoopsHype Daily: Jaylen Brown explodes for 50, VJ Edgecombe wows again**: [Link](https://www.hoopshype.com/story/sports/nba/2026/01/04/hoopshype-daily-payton-pritchard-catches-fire-kawhi-leonard-breaks-out/87728974007/)
-- **TST Images: Celtics defeat Clippers, 146-115, at Intuit Dome**: [Link](https://www.thesportingtribune.com/2026/01/03/celtics-clippers-photos)
-- **NBA fans react to Jaylen Brown's 50-point outburst vs Clippers**: [Link](https://sports.yahoo.com/articles/nba-fans-react-jaylen-browns-055839754.html)
-
-
-### vix (N/A, 04/01/2026 03:34 Lima)
-
-- **Wall Street's 'fear gauge' highest in two weeks**: [Link](https://www.marketwatch.com/livecoverage/stock-market-today-dow-s-p-500-and-nasdaq-set-to-kick-off-new-year-with-gains-silver-gold-surge/card/wall-street-s-fear-gauge-highest-in-two-weeks-mTpmQQcg6wNpVOKOfpgF?gaa_at=eafs&gaa_n=AWEtsqcvFj3_ukGBjwgMqaDtFcJ7bKA4yDxfmaCxsmorKcXLLXJWDX3jNuZZ&gaa_ts=695a298c&gaa_sig=in-8deDchkERaBnv5EW8hyHDBSHC565GMpVeMCWUBaxfw_8kV23hXkrhsforWAVeAZTjJ7-pI5yDt_o4FMzbzA%3D%3D)
-- **VIX hits highest level in 2 weeks as Wall Street's fear gauge spikes to 15.40, what this means for your portfolio in 2026**: [Link](https://www.red94.net/news/31790-vix-hits-highest-level-in-2-weeks-as-wall-street-s-fear-gauge-spikes-to-15-40/)
-- **The January "Rude Awakening": Why Wall Street Fears a Volatility Spike After a Deceptive 2025**: [Link](https://markets.financialcontent.com/stocks/article/marketminute-2026-1-2-the-january-rude-awakening-why-wall-street-fears-a-volatility-spike-after-a-deceptive-2025)
-
-
-### las guerreras k-pop (N/A, 04/01/2026 03:34 Lima)
-
-- **“Michiroscas” Panetta conquista la temporada de Roscas de Reyes**: [Link](https://www.meganoticias.mx/toluca/noticia/michiroscas-panetta-conquista-la-temporada-de-roscas-de-reyes/695757)
-- **Día de Reyes 2026: de las Guerreras K-pop a la F1, las roscas más creativas para disfrutar en familia**: [Link](https://www.eluniversal.com.mx/tendencias/dia-de-reyes-2026-de-las-guerreras-k-pop-a-la-f1-las-roscas-mas-creativas-para-disfrutar-en-familia/)
-- **Ajolotes, michis y Snoopy inspiran las roscas de Reyes más originales en CDMX y aquí las encuentras**: [Link](https://www.posta.com.mx/cdmx/donde-comprar-la-rosca-de-stranger-things-y-la-de-ajolotes-guia-de-precios-y-lugares-en-cdmx/vl2146242)
 
 
