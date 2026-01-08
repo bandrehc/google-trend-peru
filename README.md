@@ -1,3 +1,73 @@
+### november 61987 (N/A, 07/01/2026 21:07 Lima)
+
+- **‘Stranger Things’ Surprise Final Episode Doesn’t Exist: Here’s Why Fans Thought ‘Conformity Gate’ Was Real**: [Link](https://variety.com/2026/tv/news/stranger-things-conformity-gate-final-episode-doesnt-exist-1236625074/)
+- **Netflix Addresses Stranger Things Secret Episode Theory After Series Finale**: [Link](https://www.eonline.com/news/1426997/netflix-addresses-stranger-things-conformity-gate-theory)
+- **'Stranger Things' Conformity Gate countdown clock: Real or fake?**: [Link](https://uk.news.yahoo.com/stranger-things-conformity-gate-countdown-170929231.html)
+
+
+### kevin hart (N/A, 07/01/2026 21:07 Lima)
+
+- **Kevin Hart Enters Strategic Partnership With Authentic to Scale His Brand and Business Worldwide**: [Link](https://corporate.authentic.com/press-releases/kevin-hart-strategic-partnership-authentic-brands-group-scale-brand-business-worldwide)
+- **Shaquille O’Neal Featured in Kevin Hart’s Career Announcement**: [Link](https://athlonsports.com/nba/shaquille-oneal-featured-in-kevin-harts-game-changing-announcement)
+- **Kevin Hart becomes shareholder in $32 billion Authentic Brands Group**: [Link](https://www.billionaires.africa/2026/01/07/kevin-hart-becomes-shareholder-in-32-billion-authentic-brands-group/)
+
+
+### weather (N/A, 07/01/2026 21:07 Lima)
+
+- **Hundreds of flights cancelled as big freeze grips western Europe**: [Link](https://www.bbc.com/news/articles/cy59k13e7eqo)
+- **Severe winter storm forces Dutch railways to continue reduced services Thursday**: [Link](https://nltimes.nl/2026/01/07/severe-winter-storm-forces-dutch-railways-continue-reduced-services-thursday)
+- **In pictures: Rare heavy snowfall blankets Paris streets and monuments**: [Link](https://www.france24.com/en/france/20260107-in-pictures-rare-heavy-snowfall-blankets-paris-streets-and-monuments)
+
+
+### milo manheim (N/A, 07/01/2026 21:07 Lima)
+
+- **‘Tangled’ Live-Action Movie Finds Its Leads: Teagan Croft, Milo Manheim (Exclusive)**: [Link](https://www.hollywoodreporter.com/movies/movie-news/tangled-live-action-movie-teagan-croft-milo-manheim-1236466753/)
+- **'Tangled' Live-Action Casts Milo Manheim and Teagan Croft As Leads**: [Link](https://www.today.com/popculture/movies/tangled-live-action-milo-manheim-teagan-croft-cast-rcna252916)
+- **Live-action ‘Tangled’ will star Teagan Croft and Milo Manheim as Rapunzel and Flynn Rider**: [Link](https://apnews.com/article/tangled-liveaction-teagan-croft-milo-manheim-825fe3a9656135dd55a74ad4c52277fa)
+
+
+### santiago suárez (N/A, 07/01/2026 21:07 Lima)
+
+- **Mamá de Santiago Suárez se quiebra por lo que vive su hijo: "Ha pasado por momentos difíciles"**: [Link](https://www.atv.pe/noticia/mama-de-santiago-suarez-se-quiebra-por-lo-que-viene-pasando-su-hijo-ha-pasado-por-momentos-dificiles/)
+- **Santiago Suárez se quiebra tras hablar sobre denuncia de agresión sexual: “Todo se vino abajo”**: [Link](https://diariocorreo.pe/espectaculos/santiago-suarez-se-quiebra-tras-hablar-sobre-denuncia-de-agresion-sexual-todo-se-vino-abajo-noticia/)
+- **Famoso actor peruano perdió su trabajo por grave denuncia y ahora vende 'marcianos'**: [Link](https://www.planeta.pe/noticias/espectaculos/santiago-suarez-famoso-actor-peruano-perdio-su-trabajo-por-grave-denuncia-y-ahora-vende-marcianos-video/)
+
+
+### igor thiago (N/A, 07/01/2026 21:07 Lima)
+
+- **Brilliant Brazilian and defying the odds - Brentford's European charge**: [Link](https://www.bbc.com/sport/football/articles/clynelwgdd4o)
+- **Thiago strikes twice for Brentford but Sunderland’s Le Fée fluffs Panenka penalty**: [Link](https://www.theguardian.com/football/2026/jan/07/brentford-sunderland-premier-league-match-report)
+- **Yarmolyuk strikes Bees 3-0 in front of Sunderland**: [Link](https://www.nbcsports.com/watch/watch/premier-league/yehor-yarmolyuk-strikes-brentford-3-0-in-front-of-sunderland)
+
+
+### united (N/A, 07/01/2026 21:07 Lima)
+
+- **What happens to the planet if Trump gets his hands on all of Venezuela’s oil?**: [Link](https://www.cnn.com/2026/01/07/climate/venezuela-oil-dirty-emissions-methane)
+- **Venezuela will ship sanctioned oil to U.S. indefinitely, sources say**: [Link](https://www.cnbc.com/2026/01/07/oil-sales-from-venezuela-to-continue-indefinitely-sanctions-will-be-reduced-source-says.html)
+- **Congress wants oversight of Venezuelan oil revenues**: [Link](https://www.politico.com/live-updates/2026/01/07/congress/congress-venezuelan-oil-revenue-oversight-00714107)
+
+
+### burnley vs (N/A, 07/01/2026 21:07 Lima)
+
+- **Manchester United vs. Burnley (2-2): resumen y goles del partido por la Premier League | VIDEO**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/manchester-united-vs-burnley-en-vivo-gratis-hoy-via-futbol-libre-tv-espn-disney-plus-horarios-canales-tv-y-donde-ver-partido-por-premier-league-video-noticia/)
+- **Premier League: Por la fecha 21 se enfrentarán Burnley y Manchester United**: [Link](https://rpp.pe/futbol/ligas-internacionales/premier-league-por-la-fecha-21-se-enfrentaran-burnley-y-manchester-united-noticia-1670473)
+- **Sonne ingresó en el final en empate frente al Manchester United**: [Link](https://ovacion.pe/noticias/peruanos-mundo/sonne-ingreso-final-empate-frente-al-manchester-united)
+
+
+### liga inglesa (N/A, 07/01/2026 21:07 Lima)
+
+- **Cucurella propicia otro descalabro**: [Link](https://as.com/futbol/internacional/cucurella-propicia-otro-descalabro-f202601-n/)
+- **Moisés Caicedo cumplió con un buen trabajo a pesar de la derrota de Chelsea ante Fulham en la Premier League**: [Link](https://www.espn.com.ar/futbol/inglaterra/nota/_/id/16156099/moises-caicedo-cumplio-con-un-buen-trabajo-a-pesar-de-la-derrota-de-chelsea-ante-fulham)
+- **Raúl Jiménez anota ante el Chelsea su quinto gol de la temporada**: [Link](https://espndeportes.espn.com/futbol/inglaterra/nota/_/id/16155643/raul-jimenez-gol-fulham-vs-chelsea-premier-league)
+
+
+### benfica vs (N/A, 07/01/2026 21:07 Lima)
+
+- **Braga beat Benfica to reach the Portuguese League Cup final**: [Link](https://onefootball.com/de/news/braga-beat-benfica-to-reach-the-portuguese-league-cup-final-42194949)
+- **Preview: Benfica vs Braga - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/benfica/taca-da-liga/preview/benfica-vs-braga-prediction-team-news-lineups_589277.html)
+- **Golazo sensacional de Rodrigo Zalazar para Sporting Braga ante Benfica**: [Link](https://www.espn.com.pe/futbol/nota/_/id/16156237/rodrigo-zalazar-gol-en-sporting-braga-vs-benfica-copa-de-la-liga-de-portugal)
+
+
 ### nico williams (N/A, 07/01/2026 15:31 Lima)
 
 - **Otro contratiempo con Lamine**: [Link](https://as.com/futbol/primera/otro-contratiempo-con-lamine-f202601-n/)
@@ -958,75 +1028,5 @@ Sin noticias relacionadas disponibles.
 - **“Michiroscas” Panetta conquista la temporada de Roscas de Reyes**: [Link](https://www.meganoticias.mx/toluca/noticia/michiroscas-panetta-conquista-la-temporada-de-roscas-de-reyes/695757)
 - **Día de Reyes 2026: de las Guerreras K-pop a la F1, las roscas más creativas para disfrutar en familia**: [Link](https://www.eluniversal.com.mx/tendencias/dia-de-reyes-2026-de-las-guerreras-k-pop-a-la-f1-las-roscas-mas-creativas-para-disfrutar-en-familia/)
 - **Ajolotes, michis y Snoopy inspiran las roscas de Reyes más originales en CDMX y aquí las encuentras**: [Link](https://www.posta.com.mx/cdmx/donde-comprar-la-rosca-de-stranger-things-y-la-de-ajolotes-guia-de-precios-y-lugares-en-cdmx/vl2146242)
-
-
-### selena gomez (N/A, 03/01/2026 23:52 Lima)
-
-- **Selena Gomez & Karol G on their GOAT Spanish slang #goattalk**: [Link](https://www.yahoo.com/lifestyle/videos/selena-gomez-karol-g-goat-190450168.html)
-- **India Love clears up the "my ball" topic on #360withspeedy**: [Link](https://www.yahoo.com/lifestyle/videos/india-love-clears-ball-topic-140456161.html)
-- **Justin and Hailey Bieber Mark ‘10 New Years Together and Counting’ with Racy PDA Pic**: [Link](https://people.com/justin-hailey-bieber-mark-10-new-years-together-sexy-pda-photo-11878059)
-
-
-### warriors - jazz (N/A, 03/01/2026 23:52 Lima)
-
-- **Steph Curry, Jimmy Butler and Jonathan Kuminga are all …**: [Link](https://www.hoopshype.com/story/sports/nba/rumors/2026/01/03/steph-curry-jimmy-butler-and-jonathan-kuminga-are-all/88009849007/)
-- **Warriors vs Jazz LIVE Score Updates: Key match for the home team (58-65)**: [Link](https://www.vavel.com/en-us/nba/2026/01/04/1246066-warriors-vs-jazz-live-score-nba.html)
-- **NBA 2025-26 Free Live Streaming Online in India: Watch Golden State Warriors vs Utah Jazz Basketball Match**: [Link](https://www.latestly.com/sports/nba-2025-26-free-live-streaming-online-in-india-watch-golden-state-warriors-vs-utah-jazz-basketball-match-live-telecast-with-timing-in-ist-7261917.html)
-
-
-### roberto carlos jugador (N/A, 03/01/2026 23:52 Lima)
-
-- **Roberto Carlos, ingresado por un problema de corazón: “Estoy bien y vigilado”**: [Link](https://as.com/futbol/roberto-carlos-ingresado-en-brasil-por-un-problema-de-corazon-f202512-n/)
-- **Roberto Carlos, intervenido del corazón tras unas pruebas médicas en Brasil**: [Link](https://www.marca.com/futbol/real-madrid/2025/12/31/roberto-carlos-intervenido-corazon-pruebas-medicas-brasil.html)
-- **“No sufrí un infarto”: Roberto Carlos aclaró su estado de salud**: [Link](https://onefootball.com/es/noticias/no-sufri-un-infarto-roberto-carlos-aclaro-su-estado-de-salud-42167740)
-
-
-### sueldo docente (N/A, 03/01/2026 23:52 Lima)
-
-- **Aumento de remuneración de profesores se concreta: MEF destina S/208 millones para incremento**: [Link](https://www.infobae.com/peru/2025/12/27/aumento-de-remuneracion-de-profesores-se-concreta-mef-destina-s208-millones-para-incremento/)
-- **Docentes recibirán mejores sueldos: Minedu publica la escala magisterial 2026**: [Link](https://elcomercio.pe/respuestas/cuanto/docentes-recibiran-mejores-sueldos-minedu-publica-la-escala-magisterial-2026-tdpe-noticia/)
-- **Nuevo sueldo docente 2026: revisa los montos oficiales de la escala magisterial para este año**: [Link](https://libero.pe/tiempoextra/2026/01/03/nuevo-sueldo-docente-2026-revisa-montos-oficiales-de-escala-magisterial-ano-291672)
-
-
-### la luna llena (N/A, 03/01/2026 23:52 Lima)
-
-- **La superluna llena de enero, conocida como la luna del lobo, y la lluvia de meteoros Cuadrántidas dan inicio al nuevo año**: [Link](https://cnnespanol.cnn.com/2026/01/01/ciencia/superluna-lobo-lluvia-meteoros-cuadrantidas-2026-trax)
-- **Superluna de enero 2026: cuándo y cómo verla en Argentina**: [Link](https://www.infobae.com/america/ciencia-america/2026/01/03/superluna-de-enero-2026-cuando-y-como-verla-en-argentina/)
-- **Los 12 fenómenos astronómicos más espectaculares de 2026: desde un eclipse total hasta auroras impresionantes**: [Link](https://www.nationalgeographicla.com/espacio/2026/01/los-12-fenomenos-astronomicos-mas-espectaculares-de-2026-desde-un-eclipse-total-hasta-auroras-impresionantes)
-
-
-### liga peruana de voley (N/A, 03/01/2026 21:23 Lima)
-
-- **Resultados de la fecha 11 de la Liga Peruana de Vóley 2025/2026 EN VIVO: Alianza Lima, Universitario y San Martín disputan liderazgo punto a punto**: [Link](https://www.infobae.com/peru/deportes/2026/01/03/resultados-de-la-fecha-11-de-la-liga-peruana-de-voley-20252026-en-vivo-asi-van-los-partidos-en-el-cierre-de-la-primera-fase/)
-- **¿A qué hora juega Universitario vs. Wanka HOY y dónde ver transmisión de la Liga Peruana de Vóley?**: [Link](https://libero.pe/deportes/voley/2026/01/02/hora-juega-universitario-vs-deportivo-wanka-donde-ver-partido-liga-peruana-de-voley-186788)
-- **Tabla de posiciones de la Liga Peruana de Vóley 2025 - 26: partidos del día y resultados en la fecha 11**: [Link](https://larepublica.pe/deportes/2026/01/02/tabla-de-posiciones-de-la-liga-peruana-de-voley-programacion-y-partidos-de-la-fecha-11-155698)
-
-
-### heat - timberwolves (N/A, 03/01/2026 21:23 Lima)
-
-- **Heat streak snapped with 125-115 loss to Timberwolves, with Jaquez sidelined by ankle sprain**: [Link](https://www.sun-sentinel.com/2026/01/03/heat-streak-snapped-with-125-115-loss-to-timberwolves-with-jaquez-sidelined-by-ankle-sprain/)
-- **Coup’s Takeaways: Wolves Pull Away In Fourth As Battle Is Decided In The Halfcourt**: [Link](https://www.nba.com/heat/news/coups-takeaways-wolves-pull-away-in-fourth-edwards-powell-randle-gobert-010326)
-- **Timberwolves Heat Basketball**: [Link](https://www.couriernews.com/sports/timberwolves-heat-basketball/image_9674978f-1330-562c-a893-aa59a38986d5.html)
-
-
-### laliga (N/A, 03/01/2026 21:23 Lima)
-
-- **¿A qué hora juega y qué canal transmite Real Madrid vs. Betis EN VIVO hoy 04 de enero por LaLiga 2026 en USA, España y México?**: [Link](https://gestion.pe/mix/sports/a-que-hora-juega-y-que-canal-transmite-real-madrid-vs-betis-en-vivo-hoy-04-de-enero-por-laliga-2026-en-usa-espana-y-mexico-nnda-nnrt-noticia/)
-- **Real Madrid vs Betis: ¡Descarga la app de Meridianbet y gana una jugada gratis en La Liga!**: [Link](https://ovacion.pe/noticias/nota-promocional/real-madrid-vs-betis-descarga-app-meridianbet-gana-una-jugada-gratis-liga)
-- **Alineaciones Real Madrid - Real Betis: sin Kylian Mbappé, posibles equipos titulares por LaLiga**: [Link](https://larepublica.pe/deportes/2026/01/03/alineaciones-real-madrid-real-betis-sin-kylian-mbappe-posibles-equipos-titulares-por-laliga-116949)
-
-
-### supercopa de españa (N/A, 03/01/2026 21:23 Lima)
-
-- **Xabi Alonso: “No sé cuándo estará listo Mbappé”**: [Link](https://as.com/futbol/primera/xabi-alonso-no-se-cuando-estara-listo-mbappe-f202601-n/)
-- **Real Madrid quiere a Mbappé para la Supercopa**: [Link](https://www.espn.com.ar/futbol/espana/nota/_/id/16141054/real-madrid-mbappe-recuperar-supercopa-final-atletico-xabi-laliga)
-- **Mbappé se lesiona, baja contra el Betis y duda para la Supercopa**: [Link](https://www.marca.com/futbol/real-madrid/2025/12/31/mbappe-lesiona-dice-adios-supercopa-espana.html)
-
-
-### barca (N/A, 03/01/2026 21:23 Lima)
-
-- **Monopattino elettrico in barca: regole 2026, obblighi di legge e modelli ideali per i marina**: [Link](https://www.solovela.net/articoli/3/monopattino-elettrico-in-barca-regole-2026-modelli-consigliati/1354292/)
-- **Bando per 8 posti barca a Patresi**: [Link](https://www.quinewselba.it/marciana-elba-bando-per-8-posti-barca-a-patresi.htm)
-- **Galleria di palazzo San Giorgio: domenica 4 gennaio l’evento “Rotta verso Gaza: Diario di bordo”**: [Link](https://progettotouring.it/radiotouring104/2026/01/03/galleria-di-palazzo-san-giorgio-domenica-4-gennaio-levento-rotta-verso-gaza-diario-di-bordo/)
 
 
