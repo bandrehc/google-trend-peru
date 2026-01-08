@@ -1,3 +1,45 @@
+### afp prima (N/A, 08/01/2026 07:57 Lima)
+
+- **Retiro de AFP: Afiliados sí pueden registrar una segunda solicitud bajo estas condiciones**: [Link](https://www.infobae.com/peru/2026/01/07/retiro-de-afp-afiliados-si-pueden-registrar-una-segunda-solicitud-bajo-estas-condiciones/)
+- **AFP: Siga estas claves para proteger su dinero si decide retirarlo tras el ajuste de la UIT**: [Link](https://www.elperuano.pe/noticia/286579-afp-siga-estas-claves-para-proteger-su-dinero-si-decide-retirarlo-tras-el-ajuste-de-la-uit)
+- **Retiro AFP 2026: Podrás retirar hasta S/22.000; plazo vence el 16 de enero**: [Link](https://peru21.pe/economia/retiro-afp-2026-vuelve-el-acceso-para-retirar-hasta-s22000/)
+
+
+### el peruano (N/A, 08/01/2026 07:57 Lima)
+
+- **¿Se sabe cómo se llamará el año 2026 en Perú? Esto es la última información hoy 7 de enero**: [Link](https://www.infobae.com/peru/2026/01/04/se-sabe-como-se-llamara-el-ano-2026-en-peru-esto-es-lo-ultimo-que-se-conoce/)
+- **Nombre del Año 2026 en Perú: cómo se llamará, qué día se conocerá y lo que se sabe ahora**: [Link](https://gestion.pe/mix/respuestas/nombre-del-ano-2026-en-peru-cuando-se-dara-a-conocer-y-que-se-sabe-hasta-ahora-nnda-nnrt-noticia/)
+- **Conoce la historia del nombre oficial del año en el Perú**: [Link](https://andina.pe/agencia/noticia-conoce-historia-del-nombre-oficial-del-ano-el-peru-1058094.aspx)
+
+
+### alianza lima (N/A, 08/01/2026 07:57 Lima)
+
+- **La reacción de Paolo Guerrero al enterarse del fichaje de Luis Advíncula**: [Link](https://www.espn.com.ar/futbol/peru/nota/_/id/16156636/que-dijo-paolo-guerrero-sobre-la-llegada-de-luis-advincula-a-alianza-lima)
+- **Advíncula 2028: la historia detrás de un fichaje que se negoció 4 meses, cuánto costó realmente y por qué Alianza sería su último club**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/alianza-lima-luis-advincula-2028-la-historia-detras-de-un-fichaje-que-se-negocio-4-meses-cuanto-costo-realmente-y-por-que-alianza-seria-su-ultimo-club-liga-1-tlcnota-noticia/)
+- **"Casi se convierte en leyenda": prensa argentina reacciona por la salida de Luis Advíncula de Boca**: [Link](https://rpp.pe/futbol/peruanos-en-el-mundo/luis-advincula-se-va-de-boca-juniors-prensa-argentina-reacciona-por-salida-de-club-xeneize-noticia-1670604)
+
+
+### jujutsu kaisen temporada 3 (N/A, 08/01/2026 07:57 Lima)
+
+- **JUJUTSU KAISEN Temporada 3: Donde verla, avances, reparto, personajes y más**: [Link](https://www.crunchyroll.com/es-es/news/guides/2026/1/6/jujutsu-kaisen-temporada-3-wiki-estreno-detalles)
+- **#AnimeWave | Regresa Jujutsu Kaisen con su tercer temporada**: [Link](https://oem.com.mx/lavozdelafrontera/tendencias/animewave-regresa-jujutsu-kaisen-con-su-tercer-temporada-27567236)
+- **Jujutsu Kaisen regresa al anime con su Temporada 3: a qué hora se podrá ver en México y qué debo saber...**: [Link](https://www.3djuegos.lat/anime/jujutsu-kaisen-regresa-al-anime-su-temporada-3-a-que-hora-se-podra-ver-mexico-que-debo-saber-para-entenderle)
+
+
+### renee nicole good (N/A, 08/01/2026 07:57 Lima)
+
+- **US immigration officer fatally shoots woman in Minneapolis**: [Link](https://www.bbc.com/news/articles/c0jvnl4j1n4o)
+- **‘This is not normal’: Minneapolis on edge and angry after Ice killing of woman amid federal surge**: [Link](https://www.theguardian.com/us-news/2026/jan/08/minneapolis-ice-agent-shooting-killing)
+- **Multiple angles show Minnesota ICE shooting**: [Link](https://www.cnn.com/2026/01/07/us/video/mn-minnesota-shooting-timeline-digvid)
+
+
+### spurs - lakers (N/A, 08/01/2026 07:57 Lima)
+
+- **Lakers vs Spurs Picks & Odds Today: Los Angeles To Cover As Road Underdog**: [Link](https://www.oddsshark.com/nba/lakers-spurs-picks-odds-january-7-2026)
+- **Doncic signs a triple-double with 38 points in 'Alien' territory, but his teammates leave him alone**: [Link](https://www.marca.com/en/basketball/nba/los-angeles-lakers/2026/01/08/695f85e2e2704ef7278b45a2.html)
+- **NBA Roundup: Johnson, Wembanyama fuel Spurs to win over Lakers**: [Link](https://bvmsports.com/2026/01/08/nba-roundup-johnson-wembanyama-fuel-spurs-to-win-over-lakers/)
+
+
 ### sismo (N/A, 08/01/2026 03:38 Lima)
 
 - **Sismo de magnitud 6,7 sacude la isla filipina de Mindanao**: [Link](https://www.dw.com/es/sismo-de-magnitud-67-sacude-la-isla-filipina-de-mindanao/a-75414578)
@@ -987,46 +1029,5 @@ Sin noticias relacionadas disponibles.
 - **Sudáfrica - Camerún, en directo: Copa África, hoy en vivo**: [Link](https://as.com/futbol/internacional/sudafrica-camerun-en-directo-copa-africa-hoy-en-vivo-f202601-n/)
 - **Sudáfrica vs Camerún EN VIVO: ¿a qué hora juegan y por dónde ver los octavos de final de la Copa Africana de Naciones?**: [Link](https://rpp.pe/futbol/futbol-mundial/sudafrica-vs-camerun-en-vivo-a-que-hora-juegan-y-donde-ver-octavos-de-copa-africana-de-naciones-2026-via-claro-sports-gratis-partidos-de-hoy-noticia-1670174)
 - **2B - 2F en directo - Copa de África: Resultados y resúmenes de Fútbol - 04/01/2026**: [Link](https://espanol.eurosport.com/futbol/copa-de-africa/2025/live-sudafrica-camerun_mtc1584179/live-commentary.shtml)
-
-
-### porto vs (N/A, 04/01/2026 15:28 Lima)
-
-- **Preview: Santa Clara vs Porto - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/santa-clara/preview/santa-clara-vs-porto-prediction-team-news-lineups_589091.html)
-- **Likely Porto line-up v Santa Clara features Diogo Costa and Borja**: [Link](https://onefootball.com/en/news/likely-porto-line-up-v-santa-clara-features-diogo-costa-and-borja-42178032)
-
-
-### vuelos a aruba (N/A, 04/01/2026 11:30 Lima)
-
-- **Estados Unidos levantó las restricciones de vuelo en el Caribe implementadas tras el ataque sobre Venezuela**: [Link](https://www.infobae.com/venezuela/2026/01/04/estados-unidos-levantara-las-restricciones-de-vuelo-en-el-caribe-a-partir-de-este-domingo/)
-- **Cientos de vuelos cancelados en Puerto Rico y el Caribe tras ataques en Venezuela**: [Link](https://cnnespanol.cnn.com/2026/01/03/latinoamerica/video/vuelos-cancelados-puerto-rico-ataque-venezuela-tv)
-- **Fuerza Aérea de EE.UU. prohíbe operaciones en espacio aéreo venezolano en medio de ataques**: [Link](https://elcomercio.pe/mundo/actualidad/venezuela-fuerza-aerea-de-estados-unidos-prohibe-operaciones-en-espacio-aereo-venezolano-en-medio-de-ataques-noticia/)
-
-
-### liverpool vs (N/A, 04/01/2026 11:30 Lima)
-
-- **Premier League LIVE: Live text for four matches after Leeds draw with Man Utd - score, stats & updates**: [Link](https://www.bbc.com/sport/football/live/cdj8d4097k9t)
-- **Liverpool necesita volver a ganar en la Premier League a costa del Fulham**: [Link](https://www.espn.com.pe/futbol/inglaterra/nota/_/id/16142162/fulham-vs-liverpool-por-la-premier-league-equipo-fecha-hora-y-tv-en-vivo)
-- **Fulham vs Liverpool – Premier League EN VIVO: últimos resultados, noticias del equipo y actualizaciones del inicio RETRASADA debido a ‘emergencia médica’ y actualizaciones de otros partidos a las 3 p.m.**: [Link](https://www.ucvradio.pe/deporte/fulham-vs-liverpool-premier-league-en-vivo-ultimos-resultados-noticias-del-equipo-y-actualizaciones-del-inicio-retrasada-debido-a-emergencia-medica-y-actualizaciones-de-otros-partidos-a-las-3-p/94006/)
-
-
-### supercopa de españa (N/A, 04/01/2026 11:30 Lima)
-
-- **¿Cuándo juega el Barcelona la Supercopa de España? Fecha, horario y dónde ver por TV y en directo**: [Link](https://www.sport.es/es/noticias/barca/barcelona-supercopa-espana-fecha-horario-donde-ver-tv-directo-125349159)
-- **Supercopa de España 2026: cuándo es, partidos, horarios equipos y formato de este año**: [Link](https://www.marca.com/futbol/supercopa-espana/2026/01/02/supercopa-espana-2026-partidos-horarios-equipos-formato-ano.html)
-- **Barcelona vs Athletic Bilbao: previa, horario y cómo llegan para la llave 1 de la Supercopa de España**: [Link](https://www.t13.cl/noticia/deportes13/barcelona-vs-athletic-bilbao-previa-horario-y-como-llegan-para-la-llave-1-de-la-supercopa-de-espana)
-
-
-### tarjeta roja (N/A, 04/01/2026 11:30 Lima)
-
-- **Tarjeta roja: Frenkie de Jong**: [Link](https://cronicaglobal.elespanol.com/culemania/tarjetas-jornada/20260104/tarjeta-roja-frenkie-jong/1003742720757_0.html)
-- **"¿Por qué sigue jugando?": Los aficionados del Barcelona quieren que un jugador sea sustituido ante el Espanyol lo antes posible**: [Link](https://tribuna.com/es/blogs/por-que-sigue-jugando-los-aficionados-del-barcelona-quieren/)
-- **Napoli superó a Lazio y sigue en la pelea por la Serie A**: [Link](https://www.espn.com.ar/futbol/italia/nota/_/id/16144525/lazio-vs-napoli-serie-a-equipo-fecha-hora-y-tv-en-vivo)
-
-
-### marsella (N/A, 04/01/2026 11:30 Lima)
-
-- **Liga de Francia: Nantes espera frenar su racha negativa y vencer a Olympique de Marsella**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-de-francia-nantes-espera-frenar-su-racha-negativa-y-vencer-a-olympique-de-marsella-noticia-1670082)
-- **Pronóstico Marsella - Nantes - Ligue 1**: [Link](https://www.sportytrader.es/pronosticos/marsella-nantes-315488/)
-- **Olympique Marseille vs Nantes: pronósticos, cuotas, y datos para apostar!**: [Link](https://www.apwin.com/es/pronosticos/olympique-marseille-vs-nantes-pronostico-ligue-1-04-01-2026/)
 
 
