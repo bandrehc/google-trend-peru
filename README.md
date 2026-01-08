@@ -1,3 +1,24 @@
+### sismo (N/A, 08/01/2026 03:38 Lima)
+
+- **Sismo de magnitud 6,7 sacude la isla filipina de Mindanao**: [Link](https://www.dw.com/es/sismo-de-magnitud-67-sacude-la-isla-filipina-de-mindanao/a-75414578)
+- **Terremoto leve mag. 3.2 - Visayan Sea, Philippines, jueves 8 ene 2026 a las 09:50 (GMT +8) - hace 6 horas**: [Link](https://www.volcanodiscovery.com/es/sismos/informe-sismo/22593280/info.html)
+- **VIDEO: Captan momento exacto del SISMO de 6.4 hoy miércoles en Filipinas**: [Link](https://www.aztecaveracruz.com/noticias/que-se-sabe-del-sismo-6-4-en-filipinas-hoy-7-enero-2026/)
+
+
+### último sismo hoy (N/A, 08/01/2026 03:38 Lima)
+
+- **Temblor en Perú, hoy 7 de enero: magnitud y epicentro del sismo según IGP**: [Link](https://rpp.pe/lima/desastres-naturales/temblor-en-peru-hoy-5-de-enero-magnitud-y-epicentro-del-sismo-segun-igp-live-3118)
+- **Sismo remece HOY Perú: AQUÍ la magnitud y el epicentro del movimiento telúrico de este miércoles**: [Link](https://www.exitosanoticias.pe/actualidad/sismo-remece-hoy-peru-aqui-magnitud-epicentro-movimiento-telurico-miercoles-n166146)
+- **Ica: temblor de magnitud 4.6 sacudió la provincia de Nasca este lunes 5 de enero**: [Link](https://diariocorreo.pe/edicion/ica/ica-temblor-de-magnitud-46-sacude-la-provincia-de-nasca-este-lunes-5-de-enero-noticia/)
+
+
+### arsenal vs liverpool (N/A, 08/01/2026 03:38 Lima)
+
+- **Premier League: Arsenal necesita sumar de a 3 puntos para mantenerse en la cima**: [Link](https://rpp.pe/futbol/ligas-internacionales/premier-league-arsenal-necesita-sumar-de-a-3-puntos-para-mantenerse-en-la-cima-noticia-1670623)
+- **Arsenal vs. Liverpool EN VIVO vía ESPN: alineaciones, hora y dónde ver Premier League**: [Link](https://libero.pe/futbol-internacional/2026/01/07/arsenal-vs-liverpool-en-vivo-via-espn-disney-plus-internet-partido-de-premier-league-2026-video-vilb-325787)
+- **Arsenal vs. Liverpool: Arteta dice que tienen "algo que demostrar"**: [Link](https://www.espn.com.pe/futbol/inglaterra/nota/_/id/16155100/arsenal-vs-liverpool-arteta-algo-demostrar-campeon-premier-league)
+
+
 ### lakers (N/A, 07/01/2026 23:43 Lima)
 
 - **LeBron James Says Playing In Back-To-Backs Now 'TBD' At 41 Years Old**: [Link](https://www.tmz.com/2026/01/07/lebron-james-back-to-backs-tbd-41-years-old/)
@@ -1007,26 +1028,5 @@ Sin noticias relacionadas disponibles.
 - **Liga de Francia: Nantes espera frenar su racha negativa y vencer a Olympique de Marsella**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-de-francia-nantes-espera-frenar-su-racha-negativa-y-vencer-a-olympique-de-marsella-noticia-1670082)
 - **Pronóstico Marsella - Nantes - Ligue 1**: [Link](https://www.sportytrader.es/pronosticos/marsella-nantes-315488/)
 - **Olympique Marseille vs Nantes: pronósticos, cuotas, y datos para apostar!**: [Link](https://www.apwin.com/es/pronosticos/olympique-marseille-vs-nantes-pronostico-ligue-1-04-01-2026/)
-
-
-### tottenham (N/A, 04/01/2026 11:30 Lima)
-
-- **Espanyol vs. Barcelona (3 de Ene., 2026) Resultados en Vivo**: [Link](https://www.espn.com.pe/futbol/partido/_/juegoId/748319)
-- **Rayo vs. Getafe (2 de Ene., 2026) Resultados en Vivo**: [Link](https://www.espn.com.pe/futbol/partido/_/juegoId/748316)
-- **Tottenham vs. Sunderland (4 de Ene., 2026) Resultados en Vivo**: [Link](https://www.espn.com.pe/futbol/partido/_/juegoId/740786)
-
-
-### mbappe (N/A, 04/01/2026 11:30 Lima)
-
-- **Mbappé medical report**: [Link](https://www.realmadrid.com/en-US/news/football/first-team/medical-reports/parte-medico-de-mbappe-31-12-2025)
-- **Xabi Alonso: “Real Madrid are always looking to improve the squad”**: [Link](https://www.managingmadrid.com/coach/102341/xabi-alonso-real-madrid-are-always-looking-to-improve-the-squad)
-- **Why Isn’t Kylian Mbappe Playing Tonight for Real Madrid vs. Real Betis?**: [Link](https://www.yardbarker.com/soccer/articles/why_isnt_kylian_mbappe_playing_tonight_for_real_madrid_vs_real_betis/s1_17615_43284242)
-
-
-### tottenham vs (N/A, 04/01/2026 11:30 Lima)
-
-- **Tottenham half-time player ratings vs Sunderland – 7/10 for energetic winger**: [Link](https://www.spurs-web.com/tottenham-hotspur-fan-articles/tottenham-half-time-player-ratings-vs-sunderland-7-10-for-energetic-winger/)
-- **Starting XI: Will Regis Le Bris Make Changes For Sunderland’s Trip To Tottenham?**: [Link](https://rokerreport.sbnation.com/match-previews/120481/starting-xi-will-le-bris-make-changes-for-sunderlands-trip-to-tottenham)
-- **Confirmed line-ups | Spurs vs Sunderland**: [Link](https://www.tottenhamhotspur.com/news/2026/january/confirmed-line-ups-tottenham-hotspur-vs-sunderland/)
 
 
