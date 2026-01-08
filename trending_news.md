@@ -1,3 +1,73 @@
+### milan vs (N/A, 08/01/2026 15:31 Lima)
+
+- **Milan recibe a Genoa para meter más presión en la lucha por el título**: [Link](https://www.espn.com.pe/futbol/italia/nota/_/id/16150925/milan-vs-genoa-serie-a-2025-26-equipo-fecha-hora-y-tv-en-vivo)
+- **Preview: AC Milan vs Genoa - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/ac-milan/preview/ac-milan-vs-genoa-prediction-team-news-lineups_589331.html)
+- **CorSera: The team he designed – Allegri can call upon first choice XI at last**: [Link](https://sempremilan.com/allegri-call-upon-first-choice-xi-last)
+
+
+### arsenal vs (N/A, 08/01/2026 15:31 Lima)
+
+- **Arsenal vs Liverpool LIVE: Premier League score, team news & updates**: [Link](https://www.bbc.com/sport/football/live/cx20l04gjj7t)
+- **Every word of Mikel Arteta's pre-Liverpool presser | Press conference | News**: [Link](https://www.arsenal.com/news/every-word-mikel-artetas-pre-liverpool-presser)
+- **Bukayo Saka is on the brink of making history for Arsenal vs Liverpool**: [Link](https://paininthearsenal.com/bukayo-saka-brink-making-history-arsenal-vs-liverpool)
+
+
+### paris (N/A, 08/01/2026 15:31 Lima)
+
+- **DIRECT. Colère des agriculteurs : le président de la Coordination rurale appelle à "libérer" les tracteurs pour que ses troupes puissent rentrer**: [Link](https://www.franceinfo.fr/economie/crise/blocus-des-agriculteurs/direct-colere-agricole-plusieurs-dizaines-de-tracteurs-sont-entres-dans-paris_7727788.html)
+- **Colère agricole : la FDSEA et les JA se mobilisent ce vendredi matin devant la préfecture de l’Aveyron**: [Link](https://www.centrepresseaveyron.fr/2026/01/08/colere-agricole-la-fdsea-et-les-ja-se-mobilisent-ce-vendredi-matin-devant-la-prefecture-de-laveyron-13151238.php)
+- **Les livraisons de fioul et de gasoil bloquées**: [Link](https://www.ledauphine.com/economie/2026/01/08/les-livraisons-de-fioul-et-de-gasoil-bloquees)
+
+
+### supercopa de españa final (N/A, 08/01/2026 15:31 Lima)
+
+- **Supercopa de España: Real Madrid, FC Barcelona, Atlético de Madrid y Athletic Club buscan su primer título de 2026**: [Link](https://cnnespanol.cnn.com/2026/01/06/deportes/supercopa-espana-2026-formato-partidos-equipos-orix)
+- **¿Por qué no hay prórroga en la Supercopa de España? Así se decidirá el ganador en caso de empate**: [Link](https://as.com/futbol/primera/por-que-no-hay-prorroga-en-los-partidos-de-supercopa-de-espana-asi-se-decidira-el-ganador-en-caso-de-empate-f202601-n/)
+- **El incómodo examen general de la Supercopa de España**: [Link](https://elpais.com/deportes/futbol/2026-01-07/el-examen-general-de-la-supercopa-de-espana.html)
+
+
+### razer project ava (N/A, 08/01/2026 15:31 Lima)
+
+- **I tried Razer's Project Motoko AI headphones at CES 2026. Move over, smart glasses.**: [Link](https://mashable.com/article/ces-2026-razer-project-motoko-hands-on)
+- **CES 2026 Really Wants You to Own a Holographic Anime Girlfriend**: [Link](https://gizmodo.com/ces-2026-really-wants-you-to-own-a-holographic-anime-girlfriend-2000707138)
+- **AVA is a pocket-sized AI hologram that can help you win games and organize your life**: [Link](https://www.techradar.com/ai-platforms-assistants/meet-the-tiny-ai-hologram-ready-to-be-your-esports-coach-and-life-planner)
+
+
+### final supercopa de españa (N/A, 08/01/2026 15:31 Lima)
+
+- **Espionaje de alto nivel para el Barça de Flick**: [Link](https://as.com/futbol/copa_del_rey/espionaje-de-alto-nivel-para-el-barca-de-flick-f202601-n/)
+- **El FC Barcelona gana, gusta y golea, y espera por Real Madrid o Atlético de Madrid en la final de la Supercopa de España**: [Link](https://cnnespanol.cnn.com/2026/01/07/deportes/barcelona-golea-athletic-club-supercopa-espana-orix)
+- **Uno a uno del Barça vs Athletic de semifinales de la Supercopa: Raphinha, insaciable e incansable**: [Link](https://www.marca.com/futbol/barcelona/2026/01/07/barca-vs-athletic-semifinales-supercopa-valoracion-comentarios.html)
+
+
+### espn (N/A, 08/01/2026 15:31 Lima)
+
+- **Why 'The Pat McAfee Show' wasn't on today and when it will be back**: [Link](https://ew.com/why-pat-mcafee-show-wasnt-on-today-and-when-it-will-be-back-11881796)
+- **ESPN quietly removes Pat McAfee Show from air and replaces it with Rich Eisen show leaving viewers raging**: [Link](https://www.the-sun.com/sport/15752724/espn-removes-pat-mcafee-show/)
+- **Why was The Pat McAfee Show removed from ESPN? Viewers left frustrated; 'excuse me...' | Hindustan Times**: [Link](https://www.hindustantimes.com/world-news/us-news/why-was-the-pat-mcafee-show-removed-from-espn-viewers-left-frustrated-excuse-me-101767895303054.html)
+
+
+### arsenal - liverpool (N/A, 08/01/2026 15:31 Lima)
+
+- **Arsenal vs. Liverpool hoy: a qué hora juegan y cómo ver la transmisión del partido por la Premier League**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/arsenal-vs-liverpool-en-vivo-online-gratis-via-futbol-libre-tv-espn-disney-plus-tnt-sports-dazn-movistar-a-que-hora-juegan-canal-que-transmite-y-donde-ver-por-premier-league-video-noticia/)
+- **Premier League: Arsenal necesita sumar de a 3 puntos para mantenerse en la cima**: [Link](https://rpp.pe/futbol/ligas-internacionales/premier-league-arsenal-necesita-sumar-de-a-3-puntos-para-mantenerse-en-la-cima-noticia-1670623)
+- **Arsenal vs. Liverpool: Arteta dice que tienen "algo que demostrar"**: [Link](https://www.espn.com.pe/futbol/inglaterra/nota/_/id/16155100/arsenal-vs-liverpool-arteta-algo-demostrar-campeon-premier-league)
+
+
+### milan vs genoa (N/A, 08/01/2026 15:31 Lima)
+
+- **Preview: AC Milan vs Genoa - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/ac-milan/preview/ac-milan-vs-genoa-prediction-team-news-lineups_589331.html)
+- **CorSera: The team he designed – Allegri can call upon first choice XI at last**: [Link](https://sempremilan.com/allegri-call-upon-first-choice-xi-last)
+- **AC Milan’s official lineup vs Genoa | Pulisic and Leao from the start**: [Link](https://milanreports.com/2026/01/08/milan-lineup-genoa-pulisic-leao/)
+
+
+### futbol hoy (N/A, 08/01/2026 15:31 Lima)
+
+- **Partidos de hoy, jueves 8 de enero de 2026: programación, canales TV y resultados en vivo**: [Link](https://www.infobae.com/peru/deportes/2026/01/08/partidos-de-hoy-jueves-8-de-enero-de-2026-programacion-canales-tv-y-resultados-en-vivo/)
+- **Partidos de hoy, jueves 8 de enero del 2026: horarios y canales TV para ver EN VIVO la Supercopa de España y Premier League**: [Link](https://rpp.pe/futbol/futbol-mundial/partidos-de-hoy-peru-jueves-8-de-enero-del-2026-horarios-y-canales-tv-ver-futbol-en-vivo-noticia-1670665)
+- **Partidos de hoy, 08 de enero: Horario y canal EN VIVO**: [Link](https://www.americatv.com.pe/deportes/futbol-mundial/partidos-hoy-08-enero-horarios-y-transmisiones-n452245)
+
+
 ### samahara lobaton (N/A, 08/01/2026 11:37 Lima)
 
 - **Samahara Lobatón 'REMATA' cuenta de Instagram con 70k y pone el parche: "Gente seria, no sapos"**: [Link](https://www.atv.pe/noticia/samahara-lobaton-remata-cuenta-de-instagram-con-70k-y-pone-el-parche-gente-seria-no-sapos/)
@@ -960,74 +1030,5 @@ Sin noticias relacionadas disponibles.
 - **¿Se sabe cómo se llamará el año 2026 en Perú? Esto es lo último que se conoce**: [Link](https://www.infobae.com/peru/2026/01/04/se-sabe-como-se-llamara-el-ano-2026-en-peru-esto-es-lo-ultimo-que-se-conoce/)
 - **NOMBRE OFICIAL del 2026 en Perú: conoce cuál y cuándo inicia**: [Link](https://elcomercio.pe/respuestas/tramites/el-2026-en-peru-tendra-un-nombre-oficial-del-ano-conoce-cual-y-cuando-inicia-tdpe-noticia/)
 - **Nombre del Año 2026 en Perú: ¿cómo se decide, para qué sirve y qué nombres eligieron los años anteriores?**: [Link](https://larepublica.pe/datos-lr/2025/12/30/nombre-del-ano-2026-en-peru-como-se-decide-para-que-sirve-y-que-nombres-eligieron-los-anos-anteriores-atmp-1142280)
-
-
-### pedro sanchez (N/A, 04/01/2026 21:23 Lima)
-
-- **Feijóo reitera su apoyo a Edmundo González y afirma que encarna “la legitimidad democrática” en Venezuela**: [Link](https://www.infobae.com/espana/2026/01/03/feijoo-reitera-su-apoyo-a-edmundo-gonzalez-y-afirma-que-encarna-la-legitimidad-democratica-en-venezuela/)
-- **Ayuso critica que Sánchez elija "comunismo" al condenar la intervención de EEUU en Venezuela: "Prefiere la legalidad de un tirano"**: [Link](https://www.eldiario.es/internacional/ultima-hora-captura-nicolas-maduro-directo_6_12884566_1117817.html)
-- **Feijóo, portavoz del estupor por el desdén de Trump a María Corina: "Ella representa la vía democrática"**: [Link](https://www.elespanol.com/espana/politica/20260105/feijoo-portavoz-estupor-desden-trump-maria-corina-representa-via-democratica/1003744078113_0.html)
-
-
-### bts gira mundial (N/A, 04/01/2026 21:23 Lima)
-
-- **BTS regresa en 2026: cuántas canciones tendrá el nuevo álbum y más detalles de la gira mundial**: [Link](https://www.infobae.com/entretenimiento/2026/01/04/bts-regresa-en-2026-cuantas-canciones-tendra-el-nuevo-album-y-mas-detalles-de-la-gira-mundial/)
-- **BTS, BLACKPINK, EXO y BIGBANG: los comebacks que marcarán el k‑pop en 2026**: [Link](https://larepublica.pe/cultura-asiatica/2026/01/04/bts-blackpink-exo-y-bigbang-los-comebacks-que-marcaran-el-kpop-en-2026-184376)
-- **BTS confirma regreso con álbum y gira mundial en 2026. Expectativa global. #Kpop #Música**: [Link](https://www.facebook.com/infobaecolombia/posts/bts-confirma-regreso-con-%C3%A1lbum-y-gira-mundial-en-2026-expectativa-global-kpop-m%C3%BA/1317622720380487/)
-
-
-### alianza vs regatas (N/A, 04/01/2026 21:23 Lima)
-
-- **Alianza Lima vs Regatas Lima EN VIVO HOY: punto a punto del partido por la fecha 11 de la Liga Peruana de Vóley 2025/2026**: [Link](https://www.infobae.com/peru/deportes/2026/01/04/alianza-lima-vs-regatas-lima-en-vivo-hoy-latina-tv-fecha-11-fase-1-liga-peruana-de-voley-2025-2026-resumen-resultado/)
-- **Alianza Lima venció a Regatas por la fecha 11 de la Liga Peruana de Vóley 2025-2026**: [Link](https://rpp.pe/voley/mas-voley/alianza-lima-vs-regatas-en-vivo-ver-latina-transmision-directo-fecha-11-liga-peruana-de-voley-2026-link-gratis-voley-en-vivo-noticia-1670165)
-- **Conoce qué equipos jugarán el cuadrangular de revalidación para la Liga Peruana de Vóley**: [Link](https://ovacion.pe/noticias/voley/conoce-equipos-jugaran-cuadrangular-revalidacion-liga-peruana-voley)
-
-
-### nets - nuggets (N/A, 04/01/2026 21:23 Lima)
-
-- **Aaron Gordon & Christian Braun Return; Nuggets Fall to MPJ’s Nets**: [Link](https://bvmsports.com/2026/01/04/aaron-gordon-christian-braun-return-nuggets-fall-to-mpjs-nets/)
-- **Michael Porter gets revenge in first game against Denver**: [Link](https://www.hoopshype.com/story/sports/nba/rumors/2026/01/04/michael-porter-gets-revenge-in-first-game-against-denver/88022173007/)
-- **Game Recap: Nets 127, Nuggets 115**: [Link](https://www.nba.com/watch/video/game-recap-nets-127-nuggets-115)
-
-
-### lópez aliaga (N/A, 04/01/2026 21:23 Lima)
-
-- **Rafael López Aliaga continúa en carrera electoral tras fallo del JEE que rechazó tachas**: [Link](https://canaln.pe/actualidad/jee-declara-infundadas-tachas-contra-lopez-aliaga-n489358)
-- **JEE Lima Centro 1 declara inadmisible tacha contra plancha presidencial liderada por Rafael López Aliaga**: [Link](https://rpp.pe/politica/elecciones/jee-lima-centro-1-declara-inadmisible-tacha-contra-plancha-presidencial-liderada-por-rafael-lopez-aliaga-noticia-1669456)
-- **Elecciones 2026: JEE declara infundadas tachas contra candidatura de Rafael López Aliaga**: [Link](https://gestion.pe/peru/politica/elecciones-2026-jee-declara-infundadas-tachas-contra-candidatura-de-rafael-lopez-aliaga-noticia/)
-
-
-### famalicao (N/A, 04/01/2026 21:23 Lima)
-
-- **Sandro com Lima azeda... Chiquinho adoçou a noite (crónica)**: [Link](https://www.abola.pt/noticias/sandro-com-lima-azeda-chiquinho-adocou-a-noite-cronica-2026010423313591381)
-- **Hugo Oliveira: «Um penálti da moda leva o jogo para o adversário ganhar»**: [Link](https://www.record.pt/futebol/futebol-nacional/liga-betclic/famalicao/detalhe/hugo-oliveira-um-penalti-da-moda-leva-o-jogo-para-o-adversario-ganhar?ref=Sele%C3%A7%C3%A3o%20Feminina_Ultimas)
-- **Derrota no arranque do novo ano**: [Link](https://www.fcfamalicao.pt/derrota-no-arranque-do-novo-ano/)
-
-
-### critics choice awards 2026 (N/A, 04/01/2026 21:23 Lima)
-
-- **Ali Larter's Critics Choice Awards LBD Plunges Past Her Ribs and Has a Daring, Thigh-High Center Slit**: [Link](https://www.instyle.com/ali-larter-critics-choice-awards-2026-plunging-slip-dress-11878850)
-- **Critics Choice Awards 2026: All the Television Nominations**: [Link](https://spoiler.bolavip.com/en/tv/critics-choice-awards-2026-all-the-television-nominations)
-- **The Best Jewelry Moments of the 2026 Critics Choice Awards**: [Link](https://www.naturaldiamonds.com/culture-and-style/critics-choice-awards-2026/)
-
-
-### alverca vs (N/A, 04/01/2026 21:23 Lima)
-
-- **Preview: Alverca vs Famalicao - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/alverca/preview/alverca-vs-famalicao-prediction-team-news-lineups_589092.html)
-- **Primeira Liga News: Alverca vs Famalicão Confirmed Line-ups**: [Link](https://footballpredictions.net/alverca-v-famalicao-team-news-confirmed-lineups)
-
-
-### twitch (N/A, 04/01/2026 15:28 Lima)
-
-- **The Most Popular Streamer on Twitch Is Now an AI Construct**: [Link](https://futurism.com/artificial-intelligence/ai-twitch-streamer-neuro-sama)
-- **AI-powered VTuber Neuro-Sama rewrites Twitch history by becoming the platform’s most subscribed streamer**: [Link](https://timesofindia.indiatimes.com/world/us-streamers/ai-powered-vtuber-neuro-sama-rewrites-twitch-history-by-becoming-the-platforms-most-subscribed-streamer/articleshow/126308833.cms)
-- **AI VTuber Neuro-sama becomes Twitch’s biggest streamer**: [Link](https://cybernews.com/ai-news/twitch-neuro-sama-reddit-vtuber/)
-
-
-### evangelio de hoy 4 de enero 2026 (N/A, 04/01/2026 15:28 Lima)
-
-- **Comentario al Evangelio del domingo 4 de enero de 2025**: [Link](https://www.ciudadredonda.org/events/comentario-al-evangelio-del-domingo-4-de-enero-de-2025/)
-- **Las Calendas de Navidad y la Epifanía del Señor**: [Link](https://desdelafe.mx/opinion-y-blogs/voz-del-obispo/las-calendas-de-navidad-y-la-epifania-del-senor/)
-- **“Mírale a él también humanado” (Epifanía del Señor 6 enero 2026)**: [Link](https://www.religiondigital.org/atrevete_a_orar/mirale-humanado-epifania-senor-6_132_1438718.html)
 
 
