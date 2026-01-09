@@ -1,3 +1,70 @@
+### brahim díaz (N/A, 09/01/2026 15:30 Lima)
+
+- **MATCH STATS: Cameroon vs Morocco – TotalEnergies CAF Africa Cup of Nations Morocco 2025 Quarter-final**: [Link](https://www.cafonline.com/afcon2025/news/match-stats-cameroon-vs-morocco-totalenergies-caf-africa-cup-of-nations-morocco-2025-quarter-final/)
+- **AFCON 2025: Mali Protest Appointment of Senegalese Match Assessor Ahead of Quarter-Final Clash**: [Link](https://dailysports.net/news/afcon-2025-mali-protest-appointment-of-senegalese-match-assessor-ahead-of-quarter-final-clash/)
+- **Cameroon boss Pagou labels Morocco 'favourites'**: [Link](https://www.beinsports.com/en-nz/football/africa-cup-of-nations/articles-video/cameroon-boss-pagou-labels-morocco-favourites-2026-01-08)
+
+
+### cadiz vs (N/A, 09/01/2026 15:30 Lima)
+
+- **Cádiz vs Sporting Gijón prediction, preview, betting tips: 9/1/2026 – La Liga 2**: [Link](https://dailystar.com.lb/cadiz-vs-sporting-gijon-prediction-preview-betting-tips-9-1-2026/)
+
+
+### preston vs (N/A, 09/01/2026 15:30 Lima)
+
+- **Frankfurt vs. Dortmund (9 de Ene., 2026) Resultados en Vivo**: [Link](https://www.espn.com.pe/futbol/partido/_/juegoId/746859)
+- **Milan vs. Génova (8 de Ene., 2026) Resultados en Vivo - ESPN (PE)**: [Link](https://www.espn.com.pe/futbol/partido/_/juegoId/736968)
+- **Preston North End vs Wigan Athletic Pronóstico: Previa y Análisis del Partido | FA Cup 09-01-2026**: [Link](https://betmines.com/es/analisis-partido/preston-north-end-vs-wigan-athletic-pronostico-previa-y-analisis-fa-cup-09-01-2026)
+
+
+### dni (N/A, 09/01/2026 15:30 Lima)
+
+- **Rozpaczliwy wpis byłego piłkarza Chelsea. "Zostało mi kilka dni życia"**: [Link](https://www.polsatsport.pl/wiadomosc/2026-01-09/rozpaczliwy-wpis-bylego-pilkarza-chelsea-zostalo-mi-kilka-dni-zycia/)
+- **„Zostało mi tylko kilka dni życia”. Wstrząsające wyznanie Lamishy Musondy**: [Link](https://transfery.info/aktualnosci/zostalo-mi-tylko-kilka-dni-zycia-wstrzasajace-wyznanie-lamishy-musondy/263145)
+- **Rozpaczliwe wołanie byłego piłkarza akademii Chelsea. "Zostało mi tylko kilka dni"**: [Link](https://gol24.pl/rozpaczliwe-wolanie-bylego-pilkarza-akademii-chelsea-zostalo-mi-tylko-kilka-dni/ar/c2-19123875)
+
+
+### marruecos vs (N/A, 09/01/2026 15:30 Lima)
+
+- **Camerún - Marruecos, en directo: Copa de África, hoy en vivo**: [Link](https://as.com/futbol/internacional/camerun-marruecos-en-directo-copa-de-africa-hoy-en-vivo-f202601-d/)
+- **La Marruecos de Brahim se topa con su primer gran 'muro': Camerún**: [Link](https://www.marca.com/futbol/copa-africa/2026/01/09/marruecos-brahim-topa-primer-gran-muro-camerun.html)
+- **Eliminan a Sudáfrica, rival de México en el Mundial 2026, de la Copa Africana de Naciones**: [Link](https://www.infobae.com/mexico/deportes/2026/01/05/eliminan-a-sudafrica-rival-de-mexico-en-el-mundial-2026-de-la-copa-africana-de-naciones/)
+
+
+### getafe - real sociedad (N/A, 09/01/2026 15:30 Lima)
+
+- **LaLiga EA Sports: Por la fecha 19 se enfrentarán Getafe y Real Sociedad**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-por-la-fecha-19-se-enfrentaran-getafe-y-real-sociedad-noticia-1670766)
+- **Todos los datos sobre el Getafe-Real Sociedad de la Jornada 19**: [Link](https://www.flashscore.pe/noticias/futbol-laliga-ea-sports-previa-del-getafe-real-sociedad-curiosidades-estadisticas-datos-y-anecdotas/h27UIz25/)
+- **Real Sociedad Launches Bid for the Signing of Álvaro Fidalgo**: [Link](https://www.fichajes.net/en/news/real-sociedad-launches-bid-for-the-signing-of-alvaro-fidalgo-20260109.html)
+
+
+### lucinda vásquez (N/A, 09/01/2026 15:30 Lima)
+
+- **¡Guido Bellido es teléfono malogrado! Anunció fallecimiento de congresista Lúcida Vásquez y ella lo desmiente**: [Link](https://www.expreso.com.pe/politica/guido-bellido-es-telefono-malogrado-anuncio-fallecimiento-de-congresista-lucida-vasquez-y-ella-lo-desmiente-congreso-noticia/1253778/)
+- **Anuncian misa por la salud de la congresista Lucinda Vásquez y descartan versiones sobre su muerte**: [Link](https://www.infobae.com/peru/2026/01/09/anuncian-misa-por-la-salud-de-la-congresista-lucinda-vasquez-y-descartan-versiones-sobre-su-muerte/)
+
+
+### frankfurt - dortmund (N/A, 09/01/2026 15:30 Lima)
+
+- **Kovac blickt auf das Elfmeterschießen in Frankfurt zurück: "Das hätte auch gut und gerne in die andere Richtung gehen können"**: [Link](https://tribuna.com/de/news/2026-01-09-kovac-blickt-auf-das-elfmeterschieen-in-frankfurt-zuruck-das-hatte-auch-gut-und-gerne-in/)
+- **Guirassy weiter unglücklich! Aussetzer führt zu Elfmeter**: [Link](https://sport.sky.de/fussball/artikel/guirassy-weiter-ungluecklich-aussetzer-fuehrt-zu-elfmeter/13492622/34128)
+- **Bundesligakracher zum Jahresauftakt: Mit neuer Euphorie zu drei Punkten gegen den BVB**: [Link](https://www.sge4ever.de/bundesligakracher-zum-jahresauftakt-mit-neuer-euphorie-zu-drei-punkten-gegen-den-bvb/)
+
+
+### sedapal corte agua lima (N/A, 09/01/2026 15:30 Lima)
+
+- **Corte de agua en Lima para hoy, viernes 8 de enero: zonas afectadas y horarios, según Sedapal**: [Link](https://www.infobae.com/peru/2026/01/06/sedapal-anuncia-corte-de-agua-en-estos-distritos-de-lima-para-el-7-y-8-de-enero-zonas-afectadas-y-horarios/)
+- **Corte de agua hoy, 9 de enero: horarios y distritos afectados por Sedapal**: [Link](https://latinanoticias.pe/te-ayudo/corte-de-agua-hoy-9-de-enero-horarios-y-distritos-afectados-por-sedapal_20260109/)
+- **Sedapal anuncia CORTE DE AGUA este 8 y 9 de enero: Lista de distritos afectados**: [Link](https://peru21.pe/lima/sedapal-anuncia-corte-de-agua-este-8-y-9-de-enero-distritos/)
+
+
+### dortmund vs (N/A, 09/01/2026 15:30 Lima)
+
+- **Kovac blickt auf das Elfmeterschießen in Frankfurt zurück: "Das hätte auch gut und gerne in die andere Richtung gehen können"**: [Link](https://tribuna.com/de/news/2026-01-09-kovac-blickt-auf-das-elfmeterschieen-in-frankfurt-zuruck-das-hatte-auch-gut-und-gerne-in/)
+- **Guirassy weiter unglücklich! Aussetzer führt zu Elfmeter**: [Link](https://sport.sky.de/fussball/artikel/guirassy-weiter-ungluecklich-aussetzer-fuehrt-zu-elfmeter/13492622/34128)
+- **Bundesligakracher zum Jahresauftakt: Mit neuer Euphorie zu drei Punkten gegen den BVB**: [Link](https://www.sge4ever.de/bundesligakracher-zum-jahresauftakt-mit-neuer-euphorie-zu-drei-punkten-gegen-den-bvb/)
+
+
 ### agua potable (N/A, 09/01/2026 11:35 Lima)
 
 - **Nueva tarifa de agua: familias de Lima, Callao y 31 ciudades más pagarán S/ 7.70 adicionales en promedio**: [Link](https://www.infobae.com/peru/2026/01/09/nueva-tarifa-de-agua-familias-de-lima-callao-y-31-ciudades-mas-pagaran-s-770-adicionales-en-promedio-segun-sunass/)
@@ -965,73 +1032,5 @@ Sin noticias relacionadas disponibles.
 - **Pedro el Escamoso vuelve HOY a las pantallas de ATV desde las 10:00 P.M.**: [Link](https://www.atv.pe/noticia/pedro-el-escamoso-llega-a-las-pantallas-de-atv-este-5-de-enero/)
 - **¡Pedro el escamoso 2! Reviva el inicio de la nueva temporada**: [Link](https://www.atv.pe/noticia/pedro-el-escamoso-2-reviva-el-inicio-de-la-nueva-temporada/)
 - **Pedro el escamoso 2: Pedro sufre cómico rechazo al no ser reconocido por su hijo**: [Link](https://www.atv.pe/noticia/pedro-el-escamoso-2-pedro-sufre-comico-rechazo-al-no-ser-reconocido-por-su-hijo/)
-
-
-### damiano david (N/A, 05/01/2026 23:43 Lima)
-
-- **The Biggest Celebrity Engagements of 2026—So Far**: [Link](https://www.vogue.com/article/celebrity-engagements-2026)
-- **Italian Rock Star Damiano David and Model Dove Cameron Are Engaged**: [Link](https://lavocedinewyork.com/en/people/2026/01/05/italian-rock-star-damiano-david-and-model-dove-cameron-are-engaged/)
-- **Descendants Star Dove Cameron Announces Engagement, Shares Photos**: [Link](https://www.comingsoon.net/pop-culture/news/2079709-dove-cameron-damiano-david-engaged-announcement-photos)
-
-
-### la empleada (N/A, 05/01/2026 23:43 Lima)
-
-- **La adaptación de ‘La asistenta’ reivindica el pitorreo sin vergüenza ajena: una película tan ridícula como retozona, tan tonta como divertida**: [Link](https://www.infobae.com/espana/cultura/2026/01/05/la-adaptacion-de-la-asistenta-reivindica-el-pitorreo-sin-verguenza-ajena-una-pelicula-tan-ridicula-como-retozona-tan-tonta-como-divertida/)
-- **Después de este inquietante final, ¿"La Señora de la Limpieza" tendrá una secuela?**: [Link](https://www.ma-grande-taille.com/es/culture/tras-un-final-inquietante-la-senora-de-la-limpieza-tendra-derecho-a-una-secuela-431832)
-- **Crítica: La empleada (The Housemaid)**: [Link](https://es.hollywoodreporter.com/critica-la-empleada-the-housemaid/)
-
-
-### olivia rodrigo (N/A, 05/01/2026 23:43 Lima)
-
-- **Olivia Rodrigo Is Renewing Her Driver’s License**: [Link](https://www.vulture.com/article/olivia-rodrigo-drivers-license-anniversary-website.html)
-- **What's with the driver's license renewal on Olivia Rodrigo's website? Singer updates website ahead of debut single's anniversary**: [Link](https://www.soapcentral.com/entertainment/news-what-s-driver-s-license-renewal-olivia-rodrigo-s-website-singer-updates-website-ahead-debut-single-s-anniversary)
-- **Olivia Rodrigo Hints at New Music for ‘Driver’s License’ Anniversary**: [Link](https://news.ssbcrack.com/olivia-rodrigo-hints-at-new-music-for-drivers-license-anniversary/)
-
-
-### thunder - hornets (N/A, 05/01/2026 23:43 Lima)
-
-- **Shai Gilgeous-Alexander gets brutally honest in OKC's major blowout loss vs Hornets**: [Link](https://basketnews.com/news-238182-shai-gilgeous-alexander-gets-brutally-honest-in-okcs-brutal-blowout-loss-vs-hornets.html)
-- **Hornets Shock Thunder As Pistons Dominate Knicks**: [Link](https://www.barrons.com/news/hornets-shock-thunder-as-pistons-dominate-knicks-1230cfed)
-- **OKC gets blown out at home to Charlotte, drops second straight game**: [Link](https://www.hoopshype.com/story/sports/nba/rumors/2026/01/05/okc-gets-blown-out-at-home-to-charlotte-drops-second-straight-game/88041375007/)
-
-
-### advincula (N/A, 05/01/2026 23:43 Lima)
-
-- **Se filtró que Luis Advíncula fichará por Alianza Lima y ya tiene fecha de anuncio: “Con su entorno están últimando detalles”**: [Link](https://www.infobae.com/peru/deportes/2026/01/05/se-filtro-que-luis-advincula-fichara-por-alianza-lima-y-ya-tiene-fecha-de-anuncio-con-su-entorno-estan-ultimando-detalles/)
-- **Revelan que Luis Advíncula llegó a un acuerdo con histórico club peruano: "Ya está"**: [Link](https://libero.pe/futbol-peruano/alianza-lima/2026/01/05/revelan-luis-advincula-llego-acuerdo-historico-club-peruano-139475)
-- **En Argentina confirman cuál será el futuro de Luis Advíncula tras una inminente salida de Boca Juniors**: [Link](https://bolavip.com/pe/peruanos-en-el-exterior/en-argentina-confirman-cual-sera-el-futuro-de-luis-advincula-tras-una-inminente-salida-de-boca-juniors)
-
-
-### cotización dólar hoy (N/A, 05/01/2026 21:06 Lima)
-
-- **Precio del dólar al inicio del 2026: Así cerró el tipo de cambio hoy 5 de enero en Perú**: [Link](https://www.infobae.com/peru/2026/01/05/dolar-cotizacion-de-apertura-hoy-5-de-enero-en-peru/)
-- **Dólar, cotización HOY en Perú: ¿cuál es el tipo de cambio este lunes 5 de enero de 2026?**: [Link](https://www.expreso.com.pe/economia/dolar-cotizacion-hoy-en-peru-cual-es-el-tipo-de-cambio-este-lunes-5-de-enero-de-2026-sunat-mef-bcrp-ultima-hora-ultimo-minuto-soles-divisa-noticia/1252586/)
-- **Precio del dólar en Perú HOY, lunes 5 de enero: ¿cuál es la cotización del tipo de cambio?**: [Link](https://larepublica.pe/economia/precio-del-dolar/2026/01/05/precio-del-dolar-hoy-en-peru-5-de-enero-2026-cotizacion-de-compra-y-venta-segun-bcr-y-tasa-de-cambio-dolares-a-soles-ocona-dolar-bloomberg-atmp-206960)
-
-
-### eva (N/A, 05/01/2026 21:06 Lima)
-
-- **Eva Schloss, Anne Frank’s Stepsister and Holocaust Survivor, Dies at 96**: [Link](https://www.nytimes.com/2026/01/05/world/europe/eva-schloss-dead.html)
-- **Eva Schloss, Holocaust survivor and stepsister of Anne Frank, dead at 96**: [Link](https://www.cbc.ca/news/world/eva-schloss-obituary-stepsister-anne-frank-9.7034510)
-- **Anne Frank stepsister and Auschwitz survivor Eva Schloss dies aged 96**: [Link](https://www.theguardian.com/world/2026/jan/04/auschwitz-survivor-eva-schloss-dies-king-charles-leads-tributes)
-
-
-### cancelo (N/A, 05/01/2026 21:06 Lima)
-
-- **Rumores de traspasos, noticias: Cancelo vuelve al radar del Barcelona**: [Link](https://www.ucvradio.pe/deporte/rumores-de-traspasos-noticias-cancelo-vuelve-al-radar-del-barcelona/90465/)
-- **El Inter de Milán solo puede solicitar la transferencia de la ex estrella del Barcelona y la Juventus bajo una condición**: [Link](https://www.elpueblo.pe/deportes/el-inter-de-milan-solo-puede-solicitar-la-transferencia-de-la-ex-estrella-del-barcelona-y-la-juventus-bajo-una-condicion/191921/)
-- **El exdefensor desea volver a Barcelona: informe**: [Link](https://www.elpueblo.pe/deportes/el-exdefensor-desea-volver-a-barcelona-informe/187373/)
-
-
-### vizela vs (N/A, 05/01/2026 21:06 Lima)
-
-- **LigaPro News: Vizela vs União Torreense Confirmed Line-ups**: [Link](https://footballpredictions.net/uniao-torreense-v-vizela-team-news-confirmed-lineups)
-
-
-### leicester city (N/A, 05/01/2026 15:31 Lima)
-
-- **Leicester City sign FC Rosengård midfielder Jansson**: [Link](https://sports.yahoo.com/articles/leicester-city-sign-fc-roseng-181200456.html)
-- **Leicester City sign Swede Jansson from Rosengard**: [Link](https://sports.yahoo.com/articles/leicester-city-sign-swede-jansson-184659539.html)
-- **Leicester City sign Swede Jansson from Rosengard**: [Link](https://www.bbc.com/sport/football/articles/cd6w0wd8nxqo)
 
 
