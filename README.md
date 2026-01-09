@@ -1,3 +1,73 @@
+### monique pardo (N/A, 08/01/2026 21:08 Lima)
+
+- **Monique Pardo remata sus reliquias más preciadas por delicada situación de salud: "Al menos estoy viva"**: [Link](https://www.atv.pe/noticia/monique-pardo-remata-sus-reliquias-mas-preciadas-por-delicada-situacion-de-salud-al-menos-estoy-viva/)
+- **Monique Pardo subasta sus recuerdos para costear tratamiento de insuficiencia cardíaca**: [Link](https://caretas.pe/entretenimiento/monique-pardo-subasta-sus-recuerdos-para-costear-tratamiento-de-insuficiencia-cardiaca/)
+- **Monique Pardo pone en venta sus pertenencias y se define como “anticuaria”: “La antigüedad más preciada soy yo”**: [Link](https://diariocorreo.pe/espectaculos/monique-pardo-pone-en-venta-sus-pertenencias-y-se-define-como-anticuaria-la-antiguedad-mas-preciada-soy-yo-farandula-celebs-noticia/)
+
+
+### café tacvba (N/A, 08/01/2026 21:08 Lima)
+
+- **Café Tacvba pide que se retire su música de Spotify: “No queremos que nuestras regalías sean utilizadas para patrocinar guerras”**: [Link](https://elpais.com/mexico/2026-01-08/cafe-tacvba-pide-que-se-retire-su-musica-de-spotify-no-queremos-que-nuestras-regalias-sean-utilizadas-para-patrocinar-guerras.html)
+- **Café Tacvba pidió a disqueras retirar su música de Spotify: ¿a qué se debe?**: [Link](https://rpp.pe/musica/internacional/cafe-tacvba-pidio-a-disqueras-retirar-su-musica-de-spotify-a-que-se-debe-noticia-1670740)
+- **Spotify responde a las acusaciones de Café Tacvba: “No financiamos la guerra”**: [Link](https://elcomercio.pe/luces/musica/spotify-responde-a-las-acusaciones-de-cafe-tacvba-no-financiamos-la-guerra-ultimas-noticia/)
+
+
+### delia espinoza (N/A, 08/01/2026 21:08 Lima)
+
+- **Demanda de amparo presentada por Delia Espinoza contra inhabilitación aprobada en el Congreso será evaluada en marzo**: [Link](https://rpp.pe/politica/judiciales/demanda-de-amparo-presentada-por-delia-espinoza-contra-inhabilitacion-aprobada-en-el-congreso-sera-evaluada-en-marzo-noticia-1670722)
+- **Delia Espinoza: PJ admite demanda de amparo contra inhabilitación para ejercer cargos públicos**: [Link](https://gestion.pe/peru/politica/delia-espinoza-poder-judicial-admite-demanda-de-amparo-contra-su-inhabilitacion-como-fiscal-noticia/)
+- **Delia Espinoza logra que el PJ revise la legalidad de su inhabilitación**: [Link](https://caretas.pe/politica/delia-espinoza-logra-que-el-pj-revise-la-legalidad-de-su-inhabilitacion/)
+
+
+### fa cup (N/A, 08/01/2026 21:08 Lima)
+
+- **Sutton's FA Cup third-round predictions v DJ & producer Shadow Child - and AI**: [Link](https://www.bbc.com/sport/football/articles/cvg5ldyz606o)
+- **FA Cup Opta Stats: Saturday's best bets, bet builders and upsets**: [Link](https://onefootball.com/de/news/fa-cup-opta-stats-saturdays-best-bets-bet-builders-and-upsets-42199653)
+- **2025-26 FA Cup outright betting tips, odds and predictions: Arsenal's FA Cup love affair looks set to continue**: [Link](https://www.racingpost.com/sport/football-tips/fa-cup/2025-26-fa-cup-outright-betting-tips-odds-and-predictions-aDzBF8X8yMrK/)
+
+
+### liverpool fc (N/A, 08/01/2026 21:08 Lima)
+
+- **Dominik Szoboszlai: I don't enjoy my own form - the team's aims are everything**: [Link](https://www.liverpoolfc.com/news/dominik-szoboszlai-i-dont-enjoy-my-own-form-teams-aims-are-everything)
+- **Declan Rice shares blueprint to beating Liverpool after Dominik Szoboszlai reminder**: [Link](https://www.liverpool.com/liverpool-fc-news/features/declan-rice-shares-blueprint-beating-33190548)
+- **‘They Know’—Liverpool Star Warns Arsenal Ahead of Heavyweight Showdown**: [Link](https://www.si.com/soccer/they-know-liverpool-star-warns-arsenal-heavyweight-showdown)
+
+
+### vinícius júnior (N/A, 08/01/2026 21:08 Lima)
+
+- **Bellingham sobe em defesa de Vencius**: [Link](https://www.segundabase.com.br/estatisticas/bellingham-sobe-em-defesa-de-vencius/36645/)
+- **Vinícius Júnior chega a 19 jogos sem marcar pelo Real Madrid**: [Link](https://somosfanaticos.fans/br/futebol-europeu/vinicius-junior-chega-a-19-jogos-sem-marcar-pelo-real-madrid)
+- **Os números da crise: Vini Jr. afunda em jejum e vira preocupação para Real Madrid e Seleção**: [Link](https://trivela.com.br/espanha/vini-crise-real-madrid-selecao/)
+
+
+### copa de españa (N/A, 08/01/2026 21:08 Lima)
+
+- **Así quedan los cruces de octavos de la Copa del Rey: estos son los rivales de Real Madrid, Barça y Atlético**: [Link](https://as.com/futbol/copa_del_rey/asi-quedan-los-cruces-de-octavos-de-la-copa-del-rey-con-real-madrid-barca-y-atletico-f202601-n/)
+- **Racing-Barcelona y Albacete-Madrid; así ha sido el sorteo de los octavos de final de la Copa del Rey**: [Link](https://elpais.com/deportes/futbol/2026-01-07/asi-sera-el-sorteo-de-este-miercoles-de-los-octavos-de-final-de-la-copa-del-rey-bombos-y-equipos.html)
+- **Copa del Rey: Así quedaron las llaves de los octavos de final con Barcelona y Real Madrid | DEPORTE-TOTAL**: [Link](https://elcomercio.pe/deporte-total/espana/copa-del-rey-asi-quedaron-las-llaves-de-los-octavos-de-final-con-barcelona-y-real-madrid-noticia/)
+
+
+### julián alvarez (N/A, 08/01/2026 21:08 Lima)
+
+- **Los 19 jugadores que están por encima de los 100 M€: de Lamine a Bellingham y Dembélé**: [Link](https://www.transfermarkt.es/los-19-jugadores-que-estan-por-encima-de-los-100-m-euro-de-lamine-a-bellingham-y-dembele/view/news/473314)
+- **Lamine Yamal revienta la banca: su valor es de casi 100 millones más que Haaland**: [Link](https://www.marca.com/futbol/album/2026/01/07/lamine-yamal-revienta-banca-valor-100-millones-haaland.html)
+- **El sorprendente informe sobre los jugadores más caros del mundo: quiénes son los argentinos mejor valorados**: [Link](https://www.infobae.com/deportes/2026/01/07/el-sorprendente-informe-sobre-los-jugadores-mas-caros-del-mundo-quienes-son-los-argentinos-mejor-valorados/)
+
+
+### marca (N/A, 08/01/2026 21:08 Lima)
+
+- **Conflicto de marcas: Catitejas vs. Starbucks, ¿Cómo resolvió Indecopi la apelación de María Pía Copello?**: [Link](https://www.infobae.com/peru/2026/01/07/maria-pia-copello-y-el-dia-que-una-artista-peruana-vencio-a-la-transnacional-starbucks-el-caso-catitejas/)
+- **Puerto de Paracas marca récord y apunta a superar los 100,000 TEUs en 2026**: [Link](https://gestion.pe/economia/empresas/puerto-de-paracas-marca-record-y-apunta-a-superar-los-100000-teus-en-2026-noticia/)
+- **Puerto de Paracas avanza a convertirse en eje logístico del sur: balance del 2025 y proyecciones al 2026**: [Link](https://rpp.pe/economia/economia/puerto-de-paracas-avanza-a-convertirse-en-eje-logistico-del-sur-balance-del-2025-y-proyecciones-al-2026-noticia-1670835)
+
+
+### thiago almada (N/A, 08/01/2026 21:08 Lima)
+
+- **Atlético de Madrid no descarta venta de Thiago Almada en invierno**: [Link](https://www.espn.com.ar/futbol/espana/nota/_/id/16158461/atletico-madrid-thiago-almada-venta-invierno)
+- **Simeone le bajó el pulgar: Thiago Almada fue declarado transferible en el Atlético de Madrid**: [Link](https://noticiasargentinas.com/deportes/almada--en-la-rampa-de-salida-del-atletico_a695eb572cbf033dd9915ddc5)
+- **La contundente decisión de Atlético de Madrid con Thiago Almada a seis meses de su llegada**: [Link](https://www.tycsports.com/espana/la-liga/mercado-de-pases-la-liga-atletico-de-madrid-thiago-almada-transferible-id706872.html)
+
+
 ### milan vs (N/A, 08/01/2026 15:31 Lima)
 
 - **Milan recibe a Genoa para meter más presión en la lucha por el título**: [Link](https://www.espn.com.pe/futbol/italia/nota/_/id/16150925/milan-vs-genoa-serie-a-2025-26-equipo-fecha-hora-y-tv-en-vivo)
@@ -960,75 +1030,5 @@ Sin noticias relacionadas disponibles.
 - **SENAMHI: Pronóstico del clima hoy lunes 05 de enero 2026**: [Link](https://rpp.pe/peru/actualidad/senamhi-pronostico-del-clima-hoy-lunes-05-de-enero-2026-noticia-1670295)
 - **Senamhi, pronóstico del clima HOY en Lima: temperaturas mínimas y máximas para este domingo 4 de enero de 2026**: [Link](https://www.expreso.com.pe/actualidad/senamhi-pronostico-del-clima-hoy-en-lima-temperaturas-minimas-y-maximas-para-este-domingo-4-de-enero-de-2026-invierno-verano-otono-primavera-soleado-calor-humedad-neblina-tiempo-noticia/1252391/)
 - **Senamhi prevé brillo solar y ambiente cálido en Lima Metropolitana durante este fin de semana**: [Link](https://andina.pe/agencia/galeria-senamhi-preve-brillo-solar-y-ambiente-calido-lima-metropolitana-durante-este-fin-semana-28220.aspx)
-
-
-### cotización dólar blue (N/A, 05/01/2026 07:58 Lima)
-
-- **Argentina: dólar blue hoy a cuánto cotiza este lunes 05 de enero**: [Link](https://rpp.pe/mundo/argentina/argentina-dolar-blue-hoy-a-cuanto-cotiza-este-lunes-05-de-enero-noticia-1670302)
-- **Dólar HOY: cotización del dólar oficial y precios del domingo 4 de enero**: [Link](https://www.tycsports.com/interes-general/dolar-hoy-cotizacion-del-dolar-oficial-y-precios-del-domingo-4-de-enero-id706395.html)
-- **Dólar hoy y dólar blue hoy: cuál es la cotización del domingo 4 de enero minuto a minuto**: [Link](https://www.cronista.com/finanzas-mercados/dolar-hoy-y-dolar-blue-hoy-cual-es-la-cotizacion-del-domingo-4-de-enero-minuto-a-minuto/)
-
-
-### grok (N/A, 05/01/2026 07:58 Lima)
-
-- **Elon Musk's Grok AI floods X with sexualized photos of women and minors**: [Link](https://www.reuters.com/legal/litigation/grok-says-safeguard-lapses-led-images-minors-minimal-clothing-x-2026-01-02/)
-- **India gives Musk 72 hours as X floods with obscene images generated using Grok**: [Link](https://restofworld.org/2026/musk-grok-bikini-trend/)
-- **Elon Musk’s Pornography Machine**: [Link](https://www.theatlantic.com/technology/2026/01/elon-musks-pornography-machine/685482/)
-
-
-### critics choice awards 2026 ganadores (N/A, 05/01/2026 07:58 Lima)
-
-- **Estos son los ganadores de los Critic Choice Awards 2026: Timothée Chalamet se lleva el galardón de la noche**: [Link](https://www.infobae.com/entretenimiento/2026/01/05/estos-son-los-ganadores-de-los-critic-choice-awards-2026-timothee-chalamet-se-lleva-el-galardon-de-la-noche/)
-- **Critics Choice Awards 2026: los mejores looks de la alfombra roja**: [Link](https://www.elle.com/es/star-style/noticias-famosos/g69914349/critics-choice-awards-2026-mejores-looks-alfombra-roja/)
-- **Critics Choice Awards 2026: de Amanda Seyfried a Kylie Jenner, estos fueron los 5 vestidos más comentados de la alfombra roja aunque por motivos muy diferentes**: [Link](https://www.telva.com/moda/looks/2026/01/05/695b7c4f01a2f13f338b457e.html)
-
-
-### t (N/A, 05/01/2026 07:58 Lima)
-
-- **The surprising US plan in Venezuela comes with huge risks for Trump**: [Link](https://www.cnn.com/2026/01/05/politics/trump-venezuela-rodriguez-maduro-democracy-analysis)
-- **Why Russia is treading carefully after the ousting of Kremlin ally Maduro**: [Link](https://www.cnbc.com/2026/01/05/how-the-ousting-of-russias-ally-maduro-benefits-moscow.html)
-- **Donald Trump’s great Venezuelan oil gamble**: [Link](https://www.economist.com/finance-and-economics/2026/01/04/donald-trumps-great-venezuelan-oil-gamble)
-
-
-### timothée chalamet (N/A, 05/01/2026 03:40 Lima)
-
-- **Timothée Chalamet Expresses His Love For Kylie Jenner At Critics Choice Awards**: [Link](https://www.tmz.com/2026/01/04/timothee-chalamet-says-love-you-kylie-jenner-critics-choice-awards/)
-- **Timothée Chalamet wins Critics Choice Award for best actor**: [Link](https://www.lemonde.fr/en/culture/article/2026/01/05/timothee-chalamet-wins-critics-choice-awards-for-best-actor_6749084_30.html)
-- **Kylie Jenner Kisses Timothée Chalamet Backstage at Palm Springs Film Festival**: [Link](https://www.aol.com/articles/kylie-jenner-kisses-timoth-e-011058262.html)
-
-
-### adolfo chuiman (N/A, 04/01/2026 23:59 Lima)
-
-- **La emotiva vida y carrera de Adolfo Chuiman**: [Link](https://www.atv.pe/noticia/la-emotiva-vida-y-carrera-de-adolfo-chuiman/)
-- **Adolfo Chuiman sobre 'Al fondo hay sitio': "Le están sacando el jugo"**: [Link](https://www.expreso.com.pe/entretenimiento/adolfo-chuiman-sobre-al-fondo-hay-sitio-le-estan-sacando-el-jugo-afhs-america-tv-noticia/1252184/)
-- **Adolfo Chuiman respalda las críticas de David Almandoz sobre el desgaste de ‘Al Fondo Hay Sitio’**: [Link](https://www.infobae.com/peru/2025/12/30/adolfo-chuiman-respalda-las-criticas-de-david-almandoz-sobre-el-desgaste-de-al-fondo-hay-sitio/)
-
-
-### marty supreme (N/A, 04/01/2026 23:59 Lima)
-
-- **Kylie Jenner Wears Plunging Skin-Tight Dress to Support Boyfriend Timothée Chalamet at Critics Choice Awards 2026**: [Link](https://people.com/critics-choice-awards-2026-timothee-chalamet-kylie-jenner-photos-11877976)
-- **Timothée Chalamet’s 'special person' cheers him as he gets award**: [Link](https://www.thenews.com.pk/latest/1387232-kylie-jenner-shows-support-for-timothee-chalamet-as-he-gets-award-for-marty-supreme)
-- **Fans Troll Timothée Chalamet’s Slim Physique Following His Public Outing With Kylie Jenner**: [Link](https://www.aol.com/articles/she-more-masculine-timmy-timoth-213820908.html)
-
-
-### lakers - grizzlies (N/A, 04/01/2026 23:59 Lima)
-
-- **JJ Redick says LeBron James was ‘phenomenal’ down stretch against Grizzlies**: [Link](https://www.silverscreenandroll.com/lakers-news/104105/jj-redick-lebron-james-lakers-grizzlies-fourth-quarter)
-- **Lakers News: Jake LaRavia Continuing To Trust Jump Shot Despite Struggles**: [Link](https://lakersnation.com/lakers-news-jake-laravia-continuing-to-trust-jump-shot-despite-struggles/)
-- **“Get Downhill”: Luka Dončić Explains How He and LeBron James Seized Control in Crucial Win vs. Grizzlies**: [Link](https://thesportsrush.com/nba-news-get-downhill-luka-doncic-explains-how-he-and-lebron-james-seized-control-in-crucial-win-vs-grizzlies/)
-
-
-### suns - thunder (N/A, 04/01/2026 21:23 Lima)
-
-- **Suns eager to avenge historic blowout loss to Thunder**: [Link](https://www.thesportsleader.com/2026/01/03/suns-eager-to-avenge-historic-blowout-loss-to-thunder/)
-- **Fanatics Sportsbook promo code NYPOST: Get up to $2,000 in FanCash for Thunder vs. Suns**: [Link](https://nypost.com/2026/01/04/betting/fanatics-sportsbook-promo-code-nypost-get-up-to-2000-in-fancash-for-thunder-vs-suns/)
-- **PREGAME: Can Devin Booker AVENGE Phoenix Suns ALL-TIME LOSS To OKC Thunder?**: [Link](https://bvmsports.com/2026/01/04/pregame-can-devin-booker-avenge-phoenix-suns-all-time-loss-to-okc-thunder/)
-
-
-### el nombre del año 2026 (N/A, 04/01/2026 21:23 Lima)
-
-- **¿Se sabe cómo se llamará el año 2026 en Perú? Esto es lo último que se conoce**: [Link](https://www.infobae.com/peru/2026/01/04/se-sabe-como-se-llamara-el-ano-2026-en-peru-esto-es-lo-ultimo-que-se-conoce/)
-- **NOMBRE OFICIAL del 2026 en Perú: conoce cuál y cuándo inicia**: [Link](https://elcomercio.pe/respuestas/tramites/el-2026-en-peru-tendra-un-nombre-oficial-del-ano-conoce-cual-y-cuando-inicia-tdpe-noticia/)
-- **Nombre del Año 2026 en Perú: ¿cómo se decide, para qué sirve y qué nombres eligieron los años anteriores?**: [Link](https://larepublica.pe/datos-lr/2025/12/30/nombre-del-ano-2026-en-peru-como-se-decide-para-que-sirve-y-que-nombres-eligieron-los-anos-anteriores-atmp-1142280)
 
 
