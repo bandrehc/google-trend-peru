@@ -1,3 +1,59 @@
+### agua potable (N/A, 09/01/2026 11:35 Lima)
+
+- **Nueva tarifa de agua: familias de Lima, Callao y 31 ciudades más pagarán S/ 7.70 adicionales en promedio**: [Link](https://www.infobae.com/peru/2026/01/09/nueva-tarifa-de-agua-familias-de-lima-callao-y-31-ciudades-mas-pagaran-s-770-adicionales-en-promedio-segun-sunass/)
+- **Sociedad Nacional de Industrias rechaza alza de agua de Sedapal: Esperamos que paralicen este incremento**: [Link](https://canaln.pe/actualidad/sociedad-nacional-industrias-rechaza-alza-tarifaria-sedapal-n489470)
+- **Suben tarifas de agua en Lima: recibos llegarán con alzas de hasta 20%**: [Link](https://elcomercio.pe/videos/pais/tarifas-de-agua-en-lima-incremento-del-servicio-sera-hasta-el-20-sedapal-sunass-nnav-amtv-video-noticia/)
+
+
+### senegal vs (N/A, 09/01/2026 11:35 Lima)
+
+- **MATCH STATS: Mali vs Senegal – TotalEnergies CAF Africa Cup of Nations Morocco 2025 Quarter-final**: [Link](https://www.cafonline.com/afcon2025/news/match-stats-mali-vs-senegal-totalenergies-caf-africa-cup-of-nations-morocco-2025-quarter-final/)
+- **AFCON update: Sarr, Bissouma to face off in quarter finals**: [Link](https://cartilagefreecaptain.sbnation.com/tottenham-hotspur-news/68245/afcon-update-sarr-bissouma-to-face-off-in-quarter-finals)
+- **Mali's strong mentality key to overcoming favourites Senegal, says Coulibaly**: [Link](https://www.beinsports.com/en-us/soccer/africa-cup-of-nations/articles/malis-strong-mentality-key-to-overcoming-favourites-senegal-says-coulibaly-2026-01-08)
+
+
+### senegal (N/A, 09/01/2026 11:35 Lima)
+
+- **Senegal vs. Malí: ¿a qué hora juegan y dónde ver EN VIVO por cuartos de final de la Copa Africana de Naciones?**: [Link](https://rpp.pe/futbol/futbol-mundial/senegal-vs-mali-en-vivo-a-que-hora-juegan-y-donde-ver-cuartos-copa-africana-de-naciones-2026-via-claro-sports-link-gratis-partidos-de-hoy-noticia-1670868)
+- **Senegal en la Copa Africana de Naciones: ¡revive todos sus partidos de cuartos de final en vídeo!**: [Link](https://www.elpueblo.pe/deportes/senegal-en-la-copa-africana-de-naciones-revive-todos-sus-partidos-de-cuartos-de-final-en-video/202540/)
+- **Malí vs Senegal: duelo de gran nivel por los cuartos de final de la Copa Africana de Naciones**: [Link](https://zona.palmsbet.pe/deportes/futbol/mali-vs-senegal-duelo-de-gran-nivel-por-los-cuartos-de-final-de-la-copa-africana-de-naciones/)
+
+
+### cuál es el nombre del año 2026 en perú (N/A, 09/01/2026 11:35 Lima)
+
+- **Nombre del Año 2026 en Perú: qué día se dará a conocer y qué se sabe ahora**: [Link](https://gestion.pe/mix/respuestas/nombre-del-ano-2026-en-peru-cuando-se-dara-a-conocer-y-que-se-sabe-hasta-ahora-nnda-nnrt-noticia/)
+- **¿Cómo se llamará el año 2026 en Perú? Esto es lo último que se sabe hoy 8 de enero**: [Link](https://www.infobae.com/peru/2026/01/04/se-sabe-como-se-llamara-el-ano-2026-en-peru-esto-es-lo-ultimo-que-se-conoce/)
+- **Conoce la historia del nombre oficial del año en Perú**: [Link](https://andina.pe/agencia/noticia-conoce-historia-del-nombre-oficial-del-ano-peru-1058094.aspx)
+
+
+### gustavo alvarez (N/A, 09/01/2026 11:35 Lima)
+
+- **Gustavo Álvarez es la primera opción para ser el próximo seleccionador de Perú**: [Link](https://www.espn.com.pe/futbol/mundial/nota/_/id/16159828/gustavo-alvarez-es-la-primera-opcion-para-ser-el-proximo-seleccionador-de-peru)
+- **Recta final para conocer al nuevo DT de Perú: Jean Ferrari y sus dos candidatos desde Argentina**: [Link](https://depor.com/futbol-peruano/seleccion-peruana/seleccion-peruana-ariel-holan-y-gustavo-alvarez-los-principales-candidatos-de-jean-ferrari-para-asumir-el-cargo-conversaciones-y-negociaciones-en-recta-final-video-noticia/)
+- **Si bien dijo que no llegaría a Perú, al final será el nuevo técnico de la Selección Peruana**: [Link](https://bolavip.com/pe/seleccion-peruana/seleccion-peruana-ya-definio-a-su-nuevo-tecnico-aunque-habia-asegurado-que-no-llegaria-no-tengo-ninguna-oferta)
+
+
+### connie chaparro (N/A, 09/01/2026 11:35 Lima)
+
+- **Sergio Galliani celebró 16 años de casado Connie Chaparro**: [Link](https://www.americatv.com.pe/mas-espectaculos/sergio-galliani-y-su-romantico-mensaje-connie-aniversario-noticia-162258)
+- **Connie Chaparro celebra 16 años de matrimonio con Sergio Galliani: Una vida construida con amor y respeto**: [Link](https://rpp.pe/famosos/farandula/connie-chaparro-celebra-16-anos-de-matrimonio-con-sergio-galliani-una-vida-construida-con-amor-y-respeto-noticia-1670935)
+- **Sergio Galliani y Connie Chaparro en ‘La Suite’**: [Link](https://diariouno.pe/2026/01/07/sergio-galliani-y-connie-chaparro-en-la-suite/)
+
+
+### el peruano (N/A, 09/01/2026 11:35 Lima)
+
+- **El Peruano te informa: consulta aquí las principales normas legales para hoy, jueves 8 de Enero del 2026**: [Link](https://elperuano.pe/noticia/286701-el-peruano-te-informa-consulta-aqui-las-principales-normas-legales-para-hoy-jueves-8-de-enero-del-2026)
+- **La Libertad: Congreso aprueba ley que crea la Universidad Nacional de Pataz**: [Link](https://www.tvperu.gob.pe/noticias/nacionales/la-libertad-congreso-aprueba-ley-que-crea-la-universidad-nacional-de-pataz)
+- **La Libertad: Municipalidad transferirá terreno para Universidad Nacional de Pataz**: [Link](https://diariocorreo.pe/edicion/la-libertad/la-libertad-municipalidad-transferira-terreno-para-universidad-nacional-de-pataz-noticia/)
+
+
+### semenyo (N/A, 09/01/2026 11:35 Lima)
+
+- **City seal Semenyo signature**: [Link](https://www.mancity.com/news/mens/antoine-semenyo-transfer-manchester-city-bournemouth-63903542)
+- **Manchester City finalise Antoine Semenyo agreement without release clause activation - The Athletic**: [Link](https://www.nytimes.com/athletic/6953448/2026/01/08/man-city-semenyo-transfer-release-clause/)
+- **Guardiola says Semenyo's "best years" are to come as he reveals if he will feature at Exeter**: [Link](https://www.tribalfootball.com/article/soccer-fa-cup-guardiola-says-semenyo-s-best-years-are-to-come-as-he-reveals-if-he-will-feature-at-exeter-a218f42d-dfe8-4f26-a18d-11523d70fe38)
+
+
 ### weather (N/A, 09/01/2026 07:56 Lima)
 
 - **Winter storm bringing heavy snow and colder weather to Colorado at long last**: [Link](https://coloradosun.com/2026/01/07/colorado-winter-storm-snow-forecast/)
@@ -977,61 +1033,5 @@ Sin noticias relacionadas disponibles.
 - **Leicester City sign FC Rosengård midfielder Jansson**: [Link](https://sports.yahoo.com/articles/leicester-city-sign-fc-roseng-181200456.html)
 - **Leicester City sign Swede Jansson from Rosengard**: [Link](https://sports.yahoo.com/articles/leicester-city-sign-swede-jansson-184659539.html)
 - **Leicester City sign Swede Jansson from Rosengard**: [Link](https://www.bbc.com/sport/football/articles/cd6w0wd8nxqo)
-
-
-### montpellier vs (N/A, 05/01/2026 15:31 Lima)
-
-- **Ligue 2 : "On n’est pas dans la situation de l'ASSE"**: [Link](https://peuple-vert.fr/ligue-2/ligue-2-on-nest-pas-dans-la-situation-de-lasse/)
-- **DIRECT MHSC-Dunkerque : Montpellier perd déjà Chennahi sur blessure après un choc, Fayad entre**: [Link](https://www.midilibre.fr/2026/01/05/direct-mhsc-dunkerque-pour-la-reprise-montpellier-ne-peut-pas-perdre-le-nord-ce-lundi-a-20-h-45-13145234.php)
-- **En 2026, régler la mire pour viser plus haut**: [Link](https://onefootball.com/fr/news/en-2026-regler-la-mire-pour-viser-plus-haut-42183086)
-
-
-### perú (N/A, 05/01/2026 15:31 Lima)
-
-- **Mario Vizcarra: JEE Lima Centro 1 aceptó tachas en su contra y declaró improcedente la inscripción de su candidatura presidencial**: [Link](https://rpp.pe/politica/elecciones/elecciones-2026-jee-lima-centro-1-acepta-tachas-contra-mario-vizcarra-y-declara-improcedente-inscripcion-de-formula-presidencial-de-peru-primero-noticia-1670350)
-- **Elecciones 2026: Perú Primero denuncia a Luz Pacheco por presunta injerencia electoral**: [Link](https://gestion.pe/peru/politica/elecciones-2026-peru-primero-denuncia-a-luz-pacheco-por-comentarios-sobre-mario-vizcarra-noticia/)
-- **JEE deja fuera a Mario Vizcarra y declara improcedente la lista presidencial de Perú Primero**: [Link](https://caretas.pe/politica/jee-deja-fuera-a-mario-vizcarra-y-declara-improcedente-la-lista-presidencial-de-peru-primero/)
-
-
-### leicester city - albion (N/A, 05/01/2026 15:31 Lima)
-
-- **Leicester City v West Bromwich Albion: Championship stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cvg5rywg7qyt)
-- **'Own it and perform': West Brom boss fires out demand ahead of Leicester trip**: [Link](https://www.expressandstar.com/sport/football/west-bromwich-albion/2026/01/05/own-it-and-perform-west-brom-boss-fires-out-demand-ahead-of-leicester-trip/)
-- **Leicester vs WBA: Lineups, Prediction, Odds, and 5/1 Betting Tip**: [Link](https://www.oddschecker.com/tips/football/20260105-leicester-vs-wba-lineups-prediction-odds-and-5-1-betting-tip)
-
-
-### nigeria (N/A, 05/01/2026 15:31 Lima)
-
-- **Days After U.S. Strikes in Nigeria, Gunmen Kill Dozens of Villagers**: [Link](https://www.nytimes.com/2026/01/04/world/africa/nigeria-killings-niger-state.html)
-- **Gunmen raid village in northern Nigeria, killing at least 30 people and abducting others**: [Link](https://abcnews.go.com/International/wireStory/gunmen-raid-village-northern-nigeria-killing-30-people-128884984)
-- **Niger state: At least 30 killed in Kasuwan-Daji village attack in Nigeria**: [Link](https://www.bbc.com/news/articles/c0r4nwy7k48o)
-
-
-### nigeria vs (N/A, 05/01/2026 15:31 Lima)
-
-- **CAN 2025 – Round of 16 / Nigeria – Mozambique: XXL bonuses promised to the Super Eagles!**: [Link](https://foot-africa.com/en/news/can-2025-round-of-16-nigeria-mozambique-xxl-bonuses-promised-to-the-super-eagles-1030031/)
-- **LIVE: AFCON 2025 - Rolling updates of today’s action and key moments (5 January)**: [Link](https://www.cafonline.com/afcon2025/news/live-afcon-2025-rolling-updates-of-today-s-action-and-key-moments-5-january/)
-- **‘We’ve seen the team’ - Super Eagles captain warns teammates against complacency ahead of Mozambique clash**: [Link](https://www.pulsesports.ng/football/story/weve-seen-the-team-super-eagles-captain-warns-teammates-against-complacency-ahead-of-mozambique-clash-2026010509112188342)
-
-
-### groenlandia (N/A, 05/01/2026 15:31 Lima)
-
-- **Groenlandia no está en venta: autoridades reaccionan a imagen compartida por entorno de Trump**: [Link](https://gestion.pe/mundo/groenlandia-y-eeuu-advertencias-diplomaticas-tras-publicacion-en-redes-noticia/)
-- **Primera ministra de Dinamarca enfrenta a Donald Trump: “Respeten nuestra soberanía”**: [Link](https://diariocorreo.pe/mundo/primera-ministra-de-dinamarca-enfrenta-a-donald-trump-respeten-nuestra-soberania-noticia/)
-- **Estados Unidos metido en otro lío: País europeo molesto por pretensión de adueñarse de su territorio**: [Link](https://www.apnoticias.pe/peru/exitosa-noticias/estados-unidos-metido-en-otro-lio-pais-europeo-molesto-por-pretension-de-aduenarse-de-su-territorio-1481530)
-
-
-### joao cancelo (N/A, 05/01/2026 15:31 Lima)
-
-- **Inter Milan president confirms talks for €10 million-rated former Juventus defender amid Barcelona links**: [Link](https://semprebarca.com/inter-milan-president-confirms-talks-for-e10-million-rated-former-juventus-defender-amid-barcelona-links/)
-- **Former Barcelona star ‘dreams’ of return to the club**: [Link](https://getfootballnewsspain.com/former-barcelona-star-dreams-of-return-to-the-club/)
-- **Inter Chief Marotta confirms Cancelo talks, but no offers received for Frattesi**: [Link](https://tribuna.com/en/news/2026-01-05-inter-chief-marotta-confirms-cancelo-talks-but-no-offers-received-for-frattesi/)
-
-
-### julian assange (N/A, 05/01/2026 15:31 Lima)
-
-- **Venezuela Live Updates: Maduro Tells U.S. Judge He Was ‘Kidnapped’ in Trump's Military Raid**: [Link](https://www.nytimes.com/live/2026/01/05/world/venezuela-maduro-trump)
-- **'I'm a prisoner of war' - In the room for Maduro's dramatic court hearing**: [Link](https://www.bbc.com/news/articles/cq6v25eldmdo)
-- **Who is Alvin Hellerstein? 92-year-old hush money judge tapped for Maduro case**: [Link](https://www.nbcnewyork.com/new-york-city/maduro-court-appearance-judge-alvin-hellerstein/6439171/)
 
 
