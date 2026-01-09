@@ -1,3 +1,24 @@
+### weather (N/A, 09/01/2026 07:56 Lima)
+
+- **Winter storm bringing heavy snow and colder weather to Colorado at long last**: [Link](https://coloradosun.com/2026/01/07/colorado-winter-storm-snow-forecast/)
+- **Cold, brisk and snowy Friday**: [Link](https://krdo.com/video/2026/01/09/cold-brisk-and-snowy-friday/)
+- **Denver weather: Pinpoint weather alert day for Friday’s morning drive**: [Link](https://kdvr.com/weather/weather-forecast/denver-weather-pinpoint-weather-alert-day-for-fridays-morning-drive/)
+
+
+### integra afp (N/A, 09/01/2026 07:56 Lima)
+
+- **Amplían plazo para retiro de AFP: Hasta el 19 de enero se podrá solicitar hasta S/ 22.000**: [Link](https://www.infobae.com/peru/2026/01/07/amplian-plazo-para-retiro-de-afp-hasta-el-19-de-enero-se-podra-solicitar-hasta-s-22000/)
+- **Retiro AFP: última oportunidad para presentar solicitud vence este 18 de enero**: [Link](https://elperuano.pe/noticia/286717-retiro-afp-ultima-oportunidad-para-presentar-solicitud-vence-este-18-de-enero)
+- **Retiro de AFP 2026: solo ciertos afiliados pueden registrar segunda solicitud bajo condiciones muy específicas**: [Link](https://www.expreso.com.pe/economia/retiro-de-afp-2026-solo-ciertos-afiliados-pueden-registrar-segunda-solicitud-bajo-condiciones-muy-especificas-banco-de-la-nacion-prima-uit-noticia/1253444/)
+
+
+### poco m8 pro (N/A, 09/01/2026 07:56 Lima)
+
+- **Xiaomi empieza 2026 con una bomba de batería e imagen: el nuevo POCO M8 Pro 5G es así de atractivo**: [Link](https://www.mundoxiaomi.com/moviles/xiaomi-empieza-2026-bomba-bateria-e-imagen-nuevo-poco-m8-pro-5g-asi-atractivo)
+- **Pantalla AMOLED de 6,83 pulgadas, Snapdragon 8s Gen 4 y 12 GB de RAM: este es el POCO de Xiaomi que sigue reinando en la gama media**: [Link](https://topesdegama.com/ofertas/aliexpress/movil-xiaomi-poco-f7-080126)
+- **Amazon liquida el Xiaomi POCO más potente y lo deja 110 € más barato por tiempo limitado**: [Link](https://www.adslzone.net/ofertas/amazon/smartphone-xiaomi-poco-f7-0126/)
+
+
 ### clima lima (N/A, 09/01/2026 03:37 Lima)
 
 - **Calor en Lima: esta es la temperatura máxima que pronostica el Senamhi para hoy 7 de enero**: [Link](https://www.infobae.com/peru/2026/01/07/calor-en-lima-esta-es-la-temperatura-maxima-que-pronostica-el-senamhi-para-hoy-7-de-enero/)
@@ -1012,26 +1033,5 @@ Sin noticias relacionadas disponibles.
 - **Venezuela Live Updates: Maduro Tells U.S. Judge He Was ‘Kidnapped’ in Trump's Military Raid**: [Link](https://www.nytimes.com/live/2026/01/05/world/venezuela-maduro-trump)
 - **'I'm a prisoner of war' - In the room for Maduro's dramatic court hearing**: [Link](https://www.bbc.com/news/articles/cq6v25eldmdo)
 - **Who is Alvin Hellerstein? 92-year-old hush money judge tapped for Maduro case**: [Link](https://www.nbcnewyork.com/new-york-city/maduro-court-appearance-judge-alvin-hellerstein/6439171/)
-
-
-### galatasaray - trabzonspor (N/A, 05/01/2026 15:31 Lima)
-
-- **Süper Kupa’da ilk finalist Galatasaray**: [Link](https://medyascope.tv/2026/01/05/super-kupa-da-ilk-finalist-galatasaray/)
-- **ÇÖKÜŞ!**: [Link](https://www.trabzonx.com/yazarlar/huseyin-terzi/cokus/1164/)
-- **Fatih Tekke maç öncesi 3 isim için konuştu: Forma ihtimalini yorumladı**: [Link](https://www.ntvspor.net/foto-galeri/fatih-tekke-mac-oncesi-3-isim-icin-konustu-forma-ihtimalini-yorumladi-415590)
-
-
-### egipto - benín (N/A, 05/01/2026 11:34 Lima)
-
-- **Egipto vs Benin: Alineaciones, estadísticas y pronóstico**: [Link](https://www.365scores.com/es/football/match/africa-cup-of-nations-167/benin-egypt-5098-5100-167)
-- **En directo online: Egipto-Benín - ¿Dónde ver por televisión? – Copa África 2025 – Octavos de final – Hoy**: [Link](https://espanol.eurosport.com/futbol/copa-de-africa/2025/live-egipto-benin_mtc1584180/live-commentary.shtml)
-- **Copa Africana de Naciones 2025: Rour habla sobre el desafío ante la selección de Egipto**: [Link](https://www.tesaaworld.com/es/news/africa-cup-of-nations-2025-rour-talks-about-the-challenge-against-the-egyptian-national-team)
-
-
-### minsa (N/A, 05/01/2026 11:34 Lima)
-
-- **Minsa Móvil realizó 193 campañas**: [Link](https://elperuano.pe/noticia/286405-minsa-movil-realizo-193-campanas)
-- **Minsa Móvil brindó más de 500 mil atenciones durante el 2025**: [Link](https://andina.pe/agencia/noticia-minsa-movil-brindo-mas-500-mil-atenciones-durante-2025-1057915.aspx)
-- **Minsa inaugura nuevo Centro de Salud Mental Comunitaria en Comas para beneficiar a más de 600 000 habitantes**: [Link](https://panamericana.pe/salud/462616-minsa-inaugura-nuevo-centro-salud-mental-comunitaria-comas-beneficiar-600-000-habitantes)
 
 
