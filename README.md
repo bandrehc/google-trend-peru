@@ -1,3 +1,59 @@
+### aryna sabalenka (N/A, 08/01/2026 23:45 Lima)
+
+- **Aryna Sabalenka criticizes ‘insane’ tennis schedule, says she will skip some WTA events**: [Link](https://www.nytimes.com/athletic/6953670/2026/01/08/aryna-sabalenka-tennis-schedule-wta/)
+- **Aryna Sabalenka criticises busy tennis season**: [Link](https://www.geosuper.tv/latest/52196-aryna-sabalenka-criticises-busy-tennis-season)
+- **Why Aryna Sabalenka Is Skipping Tournaments to Prep for Australian Open 2026**: [Link](https://ticotimes.net/2026/01/08/why-aryna-sabalenka-is-skipping-tournaments-to-prep-for-australian-open-2026)
+
+
+### maranguita (N/A, 08/01/2026 23:45 Lima)
+
+- **Un trabajador herido tras un motín en Maranguita: internos provocaron incendio y PNP intervino el establecimiento**: [Link](https://rpp.pe/lima/actualidad/maranguita-internos-se-amotinaron-y-prendieron-fuego-a-colchones-noticia-1670876)
+- **Voraz incendio en Maranguita moviliza bomberos, ambulancias, brigada canina y se investiga presunto motín**: [Link](https://www.infobae.com/peru/2026/01/09/voraz-incendio-en-maranguita-moviliza-bomberos-ambulancias-brigada-canina-y-se-investiga-presunto-motin/)
+- **Maranguita: incendio moviliza a cinco unidades de bomberos en San Miguel**: [Link](https://elcomercio.pe/lima/incendio-en-maranguita-emergencia-moviliza-a-cinco-unidades-de-bomberos-en-san-miguel-ultimas-motin-noticia/)
+
+
+### iran (N/A, 08/01/2026 23:45 Lima)
+
+- **Huge anti-government protests in Tehran and other Iranian cities, videos show**: [Link](https://www.bbc.com/news/articles/cg7y0579lp8o)
+- **Street protests erupt in Tehran as nationwide anti-government turmoil spreads**: [Link](https://www.cnn.com/2026/01/08/middleeast/how-irans-protests-spread-intl)
+- **Iran plunged into internet blackout as protests over economy spread nationwide**: [Link](https://www.theguardian.com/world/2026/jan/08/iran-plunged-into-internet-blackout-as-protests-over-economy-spread-nationwide)
+
+
+### pedro el escamoso (N/A, 08/01/2026 23:45 Lima)
+
+- **Pedro el escamoso 2: ¡Impactante anuncio! Guillermina revela embarazo sin saber quién es el padre**: [Link](https://www.atv.pe/noticia/pedro-el-escamoso-2-impactante-anuncio-guillermina-revela-embarazo-sin-saber-quien-es-el-padre/)
+- **Pedro el escamoso 2: Pedro y Lucero viven noche mágica de baile y confesiones**: [Link](https://www.atv.pe/noticia/pedro-el-escamoso-2-pedro-y-lucero-viven-noche-magica-de-baile-y-confesiones/)
+- **Pedro el escamoso 2: Fernanda cancela viaje a EE.UU. por Mariana, ¿quién acompañará a Pedro Junior?**: [Link](https://www.atv.pe/noticia/pedro-el-escamoso-2-fernanda-cancela-viaje-a-ee-uu-por-mariana-quien-acompanara-a-pedro-junior/)
+
+
+### heat - bulls (N/A, 08/01/2026 23:45 Lima)
+
+- **Bulls-Heat game postponed due to condensation on United Center court**: [Link](https://www.nytimes.com/athletic/6956372/2026/01/08/bulls-heat-game-delayed-united-center/)
+- **Heat vs. Bulls Picks & Odds: January 8, 2026**: [Link](https://www.oddsshark.com/nba/heat-bulls-picks-odds-january-8-2026)
+- **‘Truly bizarre scenes’ as NBA game scrapped for shock reason; rising Aussie’s crucial act — Wrap**: [Link](https://www.foxsports.com.au/basketball/nba-2026-johnny-furphy-stats-in-charlotte-hornets-vs-indiana-pacers-josh-green-giannis-antetokounmpo-trade-rumours/news-story/3e9fab9288858a20cc46d9bf2cce5015)
+
+
+### ticketmaster (N/A, 08/01/2026 23:45 Lima)
+
+- **Live Nation and Ticketmaster Call FTC Lawsuit ‘Egregious Overreach,’ Request Dismissal**: [Link](https://variety.com/2026/music/news/live-nation-ticketmaster-request-dismissal-ftc-lawsuit-1236625607/)
+- **Ticketmaster, Live Nation urge court to throw out FTC’s lawsuit over ticket resales**: [Link](https://www.musicbusinessworldwide.com/live-nation-ticketmaster-urge-court-to-throw-out-ftcs-lawsuit-over-ticket-resales/)
+- **Ticketmaster seeks to end US FTC's ticket resale case**: [Link](https://www.reuters.com/legal/litigation/ticketmaster-seeks-end-us-ftcs-ticket-resale-case-2026-01-07/)
+
+
+### cavaliers - timberwolves (N/A, 08/01/2026 23:45 Lima)
+
+- **Cavaliers vs. Timberwolves: Prediction, How to Watch for Free (1/8)**: [Link](https://globelynews.com/sports/cavaliers-vs-timberwolves-prediction-how-to-watch-1-8-26/)
+- **Anthony Edwards becomes third youngest player to reach 10,000 career points**: [Link](https://www.hoopshype.com/story/sports/nba/rumors/2026/01/08/anthony-edwards-becomes-third-youngest-player-to-reach-10000-career-points/88095173007/)
+- **Winners and Losers: Cavs at Wolves – Starting lineup tanks an otherwise strong game**: [Link](https://sports.yahoo.com/articles/winners-losers-cavs-wolves-starting-033955177.html)
+
+
+### gta (N/A, 08/01/2026 23:45 Lima)
+
+- **GTA 6 Leaks Just Got Real as Rockstar Statement Confirms Major Gameplay Details**: [Link](https://beebom.com/gta-6-leaks-just-got-real-as-rockstar-statement-confirms-major-gameplay-details/)
+- **GTA 6: Map Leaks Suggest Bigger Map Than GTA 5 & Vice City Combines, Hints at Massive Open World Expansion**: [Link](https://sundayguardianlive.com/tech-news/gta-6-map-leaks-suggest-bigger-map-than-gta-5-vice-city-combines-hints-at-massive-open-world-expansion-163625/)
+- **This Old GTA 6 Plot Leak May Have Just Been Confirmed Real, and It Spoils a Big Lucia Twist**: [Link](https://gamerant.com/gta-6-plot-leak-lucia-baby/)
+
+
 ### monique pardo (N/A, 08/01/2026 21:08 Lima)
 
 - **Monique Pardo remata sus reliquias más preciadas por delicada situación de salud: "Al menos estoy viva"**: [Link](https://www.atv.pe/noticia/monique-pardo-remata-sus-reliquias-mas-preciadas-por-delicada-situacion-de-salud-al-menos-estoy-viva/)
@@ -977,58 +1033,5 @@ Sin noticias relacionadas disponibles.
 - **Feriados 2026: ¿En qué fechas caen los días libres de Semana Santa este año?**: [Link](https://www.infobae.com/peru/2026/01/03/feriados-2026-en-que-fechas-caen-los-dias-libres-de-semana-santa-este-ano/)
 - **Próximo feriado en Perú tras Año Nuevo 2026: conoce la fecha oficial del siguiente descanso a nivel nacional, según El Peruano**: [Link](https://larepublica.pe/sociedad/2026/01/04/proximo-feriado-en-peru-tras-ano-nuevo-2026-conoce-la-fecha-oficial-del-siguiente-descanso-a-nivel-nacional-segun-el-peruano-evat-232488)
 - **Gobierno declara el viernes 2 de enero como día no laborable**: [Link](https://canaln.pe/actualidad/gobierno-declara-viernes-2-enero-como-dia-no-laborable-n489209)
-
-
-### stuttgart - luzern (N/A, 05/01/2026 11:34 Lima)
-
-- **VfB Stuttgart: „Das kann doch nicht sein“: Hoeneß wird im Testspiel plötzlich sauer**: [Link](https://www.bild.de/sport/fussball/vfb-stuttgart-das-kann-doch-nicht-sein-hoeness-wird-im-testspiel-ploetzlich-sauer-695bd484b0086aa64be6f848)
-- **Tomás fällt für Testkick gegen Luzern aus**: [Link](https://www.ligainsider.de/tiago-tomas_24512/tomas-faellt-fuer-testkick-gegen-luzern-aus-406438/)
-- **Premiere und Comeback bei Testspiel-Sieg**: [Link](https://www.vfb.de/de/vfb/aktuell/neues/profis/2526/testspiel-vfb-stuttgart-gegen-fc-luzern/)
-
-
-### 6 de enero es feriado (N/A, 05/01/2026 11:34 Lima)
-
-- **Mañana, 6 de enero no es feriado ni día NO laborable en el PERÚ y esta es la razón**: [Link](https://elcomercio.pe/respuestas/cuando/el-6-de-enero-no-es-feriado-ni-dia-no-laborable-en-el-peru-y-esta-es-la-razon-bajada-de-reyes-tdpe-noticia/)
-- **¿El 6 de enero es feriado o día no laborable en Perú por Bajada de Reyes? Esto es lo que dice el calendario**: [Link](https://libero.pe/tiempoextra/2026/01/04/6-de-enero-es-feriado-dia-laborable-en-peru-bajada-de-reyes-esto-es-dice-calendario-40644)
-- **¿El 6 de enero será feriado nacional o día no laborable en el Perú? Revisa lo que indica la ley durante la Bajada de Reyes**: [Link](https://larepublica.pe/sociedad/2026/01/02/el-6-de-enero-sera-feriado-nacional-o-dia-no-laborable-en-el-peru-revisa-lo-que-indica-la-ley-durante-la-bajada-de-reyes-atmp-54464)
-
-
-### año 2026 (N/A, 05/01/2026 07:58 Lima)
-
-- **¿Se sabe cómo se llamará el año 2026 en Perú? Esto es lo último que se conoce**: [Link](https://www.infobae.com/peru/2026/01/04/se-sabe-como-se-llamara-el-ano-2026-en-peru-esto-es-lo-ultimo-que-se-conoce/)
-- **NOMBRE OFICIAL del 2026 en Perú: conoce cuál y cuándo inicia**: [Link](https://elcomercio.pe/respuestas/tramites/el-2026-en-peru-tendra-un-nombre-oficial-del-ano-conoce-cual-y-cuando-inicia-tdpe-noticia/)
-- **Conoce el nombre del año 2026 en Perú: ¿Desde cuando esta tradición sigue vigente?**: [Link](https://viajandoporperu.com/2026/01/05/conoce-el-nombre-del-ano-2026-en-peru-desde-cuando-esta-tradicion-sigue-vigente/)
-
-
-### feriados enero 2026 (N/A, 05/01/2026 07:58 Lima)
-
-- **Feriados 2026: ¿En qué fechas caen los días libres de Semana Santa este año?**: [Link](https://www.infobae.com/peru/2026/01/03/feriados-2026-en-que-fechas-caen-los-dias-libres-de-semana-santa-este-ano/)
-- **Próximo feriado en Perú tras Año Nuevo 2026: conoce la fecha oficial del siguiente descanso a nivel nacional, según El Peruano**: [Link](https://larepublica.pe/sociedad/2026/01/04/proximo-feriado-en-peru-tras-ano-nuevo-2026-conoce-la-fecha-oficial-del-siguiente-descanso-a-nivel-nacional-segun-el-peruano-evat-232488)
-- **Gobierno declara el viernes 2 de enero como día no laborable**: [Link](https://canaln.pe/actualidad/gobierno-declara-viernes-2-enero-como-dia-no-laborable-n489209)
-
-
-### la tinka pozo millonario (N/A, 05/01/2026 07:58 Lima)
-
-- **Sorteo de La Tinka: conoce el Pozo Millonario y ganadores del domingo 4 de enero**: [Link](https://elcomercio.pe/respuestas/loterias/la-tinka-hoy-domingo-4-de-enero-2026-en-vivo-resultados-del-ultimo-sorteo-numeros-y-jugada-ganadora-pozo-millonario-loteria-si-o-si-boliyapa-intralot-lbposting-noticia/)
-- **Resultados de La Tinka del domingo 4 de enero: sorteo y números de la jugada ganadora del pozo millonario**: [Link](https://depor.com/peru/la-tinka-en-vivo-hoy-domingo-4-de-enero-2026-ver-resultados-numeros-ganadores-del-ultimo-sorteo-quien-gano-pozo-millonario-intralot-boliyapa-loterias-de-peru-noticia/)
-- **Sorteo de La Tinka HOY domingo 4 de enero de 2025: premios, jugada ganadora y Pozo Millonario**: [Link](https://larepublica.pe/sociedad/2026/01/04/sorteo-de-la-tinka-hoy-domingo-4-de-enero-de-2025-premios-jugada-ganadora-y-pozo-millonario-atmp-163035)
-
-
-### galatasaray vs (N/A, 05/01/2026 07:58 Lima)
-
-- **Preview: Galatasaray vs Trabzonspor - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/preview/galatasaray-vs-trabzonspor-prediction-team-news-lineups_589136.html)
-- **Galatasaray vs Trabzonspor Prediction: 5/1/2026 – Süper Kupa Betting Preview**: [Link](https://dailystar.com.lb/galatasaray-vs-trabzonspor-prediction-5-1-2026-super-kupa/)
-
-
-### clima hoy (N/A, 05/01/2026 07:58 Lima)
-
-Sin noticias relacionadas disponibles.
-
-
-### clima de hoy (N/A, 05/01/2026 07:58 Lima)
-
-- **SENAMHI: Pronóstico del clima hoy lunes 05 de enero 2026**: [Link](https://rpp.pe/peru/actualidad/senamhi-pronostico-del-clima-hoy-lunes-05-de-enero-2026-noticia-1670295)
-- **Senamhi, pronóstico del clima HOY en Lima: temperaturas mínimas y máximas para este domingo 4 de enero de 2026**: [Link](https://www.expreso.com.pe/actualidad/senamhi-pronostico-del-clima-hoy-en-lima-temperaturas-minimas-y-maximas-para-este-domingo-4-de-enero-de-2026-invierno-verano-otono-primavera-soleado-calor-humedad-neblina-tiempo-noticia/1252391/)
-- **Senamhi prevé brillo solar y ambiente cálido en Lima Metropolitana durante este fin de semana**: [Link](https://andina.pe/agencia/galeria-senamhi-preve-brillo-solar-y-ambiente-calido-lima-metropolitana-durante-este-fin-semana-28220.aspx)
 
 
