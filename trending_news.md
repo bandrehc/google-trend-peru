@@ -1,3 +1,24 @@
+### clima lima (N/A, 09/01/2026 03:37 Lima)
+
+- **Calor en Lima: esta es la temperatura máxima que pronostica el Senamhi para hoy 7 de enero**: [Link](https://www.infobae.com/peru/2026/01/07/calor-en-lima-esta-es-la-temperatura-maxima-que-pronostica-el-senamhi-para-hoy-7-de-enero/)
+- **SENAMHI: Pronóstico del clima hoy jueves 08 de enero 2026**: [Link](https://rpp.pe/peru/actualidad/senamhi-pronostico-del-clima-hoy-jueves-08-de-enero-2026-noticia-1670727)
+- **🔴🔵#HablemosClaro💬💬 | ¡A tomar en cuenta! En diálogo con Exitosa, el especialista en Meteorología del Senamhi, Ing. José Mesía, indicó que distritos de Lima Metropolitana registrarían temperaturas máximas de 29 °C durante el primer fin de semana de 20**: [Link](https://www.facebook.com/story.php?story_fbid=1313648964131492&id=100064592023543)
+
+
+### bruno mars (N/A, 09/01/2026 03:37 Lima)
+
+- **Bruno Mars announces Colorado stadium concert**: [Link](https://www.9news.com/article/entertainment/music/colorado-music/bruno-mars-stadium-tour-dates/73-c6485984-47e2-4959-a27d-1ee18c047994)
+- **Georgia Tech to Host Bruno Mars: The Romantic Tour**: [Link](https://ramblinwreck.com/georgia-tech-to-host-bruno-mars-the-romantic-tour/)
+- **Bruno Mars bringing first tour in nearly a decade to Pittsburgh this summer**: [Link](https://www.cbsnews.com/pittsburgh/news/bruno-mars-2026-world-tour-pittsburgh-date/)
+
+
+### test (N/A, 09/01/2026 03:37 Lima)
+
+- **'America's Test Kitchen' chef, Detroit native Elle Simone Scott, has died**: [Link](https://www.detroitnews.com/story/entertainment/people/2026/01/08/americas-test-kitchen-chef-detroit-native-elle-simone-scott-has-died/88087086007/)
+- **Chef and food stylist Elle Simone Scott dies at 49**: [Link](https://www.wbur.org/news/2026/01/07/chef-food-stylist-elle-simone-scott-dies)
+- **PBS TV Chef Dies of Ovarian Cancer at 49**: [Link](https://people.com/elle-simone-scott-dies-at-49-11881449)
+
+
 ### aryna sabalenka (N/A, 08/01/2026 23:45 Lima)
 
 - **Aryna Sabalenka criticizes ‘insane’ tennis schedule, says she will skip some WTA events**: [Link](https://www.nytimes.com/athletic/6953670/2026/01/08/aryna-sabalenka-tennis-schedule-wta/)
@@ -1012,26 +1033,5 @@ Sin noticias relacionadas disponibles.
 - **Minsa Móvil realizó 193 campañas**: [Link](https://elperuano.pe/noticia/286405-minsa-movil-realizo-193-campanas)
 - **Minsa Móvil brindó más de 500 mil atenciones durante el 2025**: [Link](https://andina.pe/agencia/noticia-minsa-movil-brindo-mas-500-mil-atenciones-durante-2025-1057915.aspx)
 - **Minsa inaugura nuevo Centro de Salud Mental Comunitaria en Comas para beneficiar a más de 600 000 habitantes**: [Link](https://panamericana.pe/salud/462616-minsa-inaugura-nuevo-centro-salud-mental-comunitaria-comas-beneficiar-600-000-habitantes)
-
-
-### gta vi (N/A, 05/01/2026 11:34 Lima)
-
-- **GTA 6 Pre-Order Price Isn’t As Bad as We Thought**: [Link](https://www.gamingbible.com/news/gta-6-pre-order-price-378344-20260105)
-- **Rockstar Games Reportedly Confident In 2026 Release For GTA VI, As Price Rumors Surface**: [Link](https://twistedvoxel.com/gta-vi-price-2026-release/)
-- **GTA 6 Is Already My Most Anticipated Game of 2026, And It’s Not Even Close**: [Link](https://gamingbolt.com/gta-6-is-already-my-most-anticipated-game-of-2026-and-its-not-even-close)
-
-
-### ruben amorim (N/A, 05/01/2026 11:34 Lima)
-
-- **A tempestade nunca passou: as frases mais marcantes de Amorim em Inglaterra**: [Link](https://sapo.pt/artigo/a-tempestade-nunca-passou-as-frases-mais-marcantes-de-amorim-em-inglaterra-695bb93952dc24aee943c9c6)
-- **10.º a cair depois de Ferguson e o pior desde os anos 70**: [Link](https://observador.pt/2026/01/05/o-10-o-a-cair-depois-de-ferguson-o-pior-desde-os-anos-70-e-os-103-golos-sofridos-os-numeros-que-levaram-a-queda-de-amorim/)
-- **Os bastidores da "reunião tensa" com Jason Wilcox que terá sido o fim da linha para Amorim no Man. United**: [Link](https://www.record.pt/internacional/paises/inglaterra/detalhe/os-bastidores-da-reuniao-tensa-com-jason-wilcox-que-tera-sido-o-fim-da-linha-para-amorim-no-man-united)
-
-
-### feriados 2026 (N/A, 05/01/2026 11:34 Lima)
-
-- **Feriados 2026: ¿En qué fechas caen los días libres de Semana Santa este año?**: [Link](https://www.infobae.com/peru/2026/01/03/feriados-2026-en-que-fechas-caen-los-dias-libres-de-semana-santa-este-ano/)
-- **Próximo feriado en Perú tras Año Nuevo 2026: conoce la fecha oficial del siguiente descanso a nivel nacional, según El Peruano**: [Link](https://larepublica.pe/sociedad/2026/01/04/proximo-feriado-en-peru-tras-ano-nuevo-2026-conoce-la-fecha-oficial-del-siguiente-descanso-a-nivel-nacional-segun-el-peruano-evat-232488)
-- **Gobierno declara el viernes 2 de enero como día no laborable**: [Link](https://canaln.pe/actualidad/gobierno-declara-viernes-2-enero-como-dia-no-laborable-n489209)
 
 
