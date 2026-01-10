@@ -1,3 +1,73 @@
+### guimarães - braga (N/A, 10/01/2026 15:27 Lima)
+
+- **Equipa do V. Guimarães sobe ao terreno de jogo**: [Link](https://www.abola.pt/video/equipa-do-v-guimaraes-sobe-ao-terreno-de-jogo-2026011018474310689)
+- **AO VIVO: Dorgelles faz o 0-1 aos 17 minutos**: [Link](https://www.flashscore.pt/noticias/futebol-taca-da-liga-ao-vivo-dorgelles-faz-o-0-1-aos-17-minutos/EiMl66gA/)
+- **Os onzes iniciais para a final da Taça da Liga entre V. Guimarães e Braga**: [Link](https://sapo.pt/artigo/os-onzes-iniciais-para-a-final-da-taca-da-liga-entre-v-guimaraes-e-braga-6962a884bd01a240c1a7c3c6)
+
+
+### temblor hoy arequipa (N/A, 10/01/2026 15:27 Lima)
+
+- **Sismo de magnitud 4.0 remeció Arequipa esta tarde: es el segundo temblor sentido en la región**: [Link](https://rpp.pe/peru/arequipa/sismo-de-magnitud-40-remecio-arequipa-esta-tarde-es-el-segundo-temblor-sentido-en-la-region-noticia-1671102)
+- **Sismo de magnitud 5.3 sacude Perú: ¿dónde fue el epicentro y en qué distritos se sintió?**: [Link](https://www.infobae.com/peru/2026/01/09/sismo-de-magnitud-53-sacude-peru-donde-fue-el-epicentro-y-en-que-distritos-se-sintio/)
+- **Temblor en Perú hoy, sábado 10 de enero: Epicentro, magnitud y hora vía IGP**: [Link](https://elcomercio.pe/peru/ultimo-temblor-en-peru-hoy-via-igp-hora-exacta-lugar-y-magnitud-del-sismo-censis-reportes-tdpe-noticia/)
+
+
+### valencia vs elche (N/A, 10/01/2026 15:27 Lima)
+
+- **🚨 Dimitrievski, one year on: the line-ups for Valencia v Elche**: [Link](https://sports.yahoo.com/articles/dimitrievski-one-line-ups-valencia-185700095.html)
+- **Where to watch Valencia vs. Elche: La Liga FREE live stream today, time, schedule**: [Link](https://www.syracuse.com/tv/2026/01/where-to-watch-valencia-vs-elche-la-liga-free-live-stream-today-time-schedule.html)
+- **Where to Watch Valencia CF vs. Elche CF: TV Channel, Start Time and Live Stream**: [Link](https://www.bleachernation.com/how-to-watch/2026/01/09/where-to-watch-valencia-cf-vs-elche-cf-tv-channel-start-time-and-live-stream/)
+
+
+### valencia c. f. - elche c. f. (N/A, 10/01/2026 15:27 Lima)
+
+- **Apuestas y Pronóstico del Valencia vs Elche 10/01/26**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2026/enero/pronostico-valencia-vs-elche-10-01-26)
+- **LaLiga EA Sports: Valencia se enfrentará ante Elche por la fecha 19**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-valencia-se-enfrentara-ante-elche-por-la-fecha-19-noticia-1670928)
+- **Un duelo autonómico de contrastes en Mestalla**: [Link](https://www.mundodeportivo.com/futbol/laliga/20260110/1002598603/duelo-autonomico-contrastes-mestalla.html)
+
+
+### charlton - chelsea (N/A, 10/01/2026 15:27 Lima)
+
+- **Chelsea fans’ preferred lineup against Charlton Athletic: Bring out your subs!**: [Link](https://weaintgotnohistory.sbnation.com/domestic-cups/165017/chelsea-fans-preferred-lineup-against-charlton-athletic-bring-out-your-subs)
+- **“The message I’ve given…” – What Liam Rosenior has told his players ahead of underrated test in first game**: [Link](https://chelsea.news/2026/01/liam-rosenior-told-his-players-message/)
+- **Bench Delap and Joao Pedro: Chelsea fans pick best XI for Rosenior's debut as head coach**: [Link](https://tribuna.com/en/blogs/bench-delap-and-joao-pedro-chelsea-fans-pick-best-xi-for-ros/)
+
+
+### groenlandia (N/A, 10/01/2026 15:27 Lima)
+
+- **Líderes de partidos políticos groenlandeses responden a Donald Trump: "No queremos ser estadounidenses"**: [Link](https://rpp.pe/mundo/actualidad/lideres-de-partidos-politicos-groenlandeses-responden-a-donald-trump-no-queremos-ser-estadounidenses-noticia-1671058)
+- **Donald Trump pone en jaque a la OTAN y exige el control de Groenlandia: Aquí las claves de su deseo**: [Link](https://www.atv.pe/noticia/donald-trump-pone-en-jaque-a-la-otan-y-exige-el-control-de-groenlandia-aqui-las-claves-de-su-deseo/)
+- **EE.UU. ofrece dinero a Groenlandia para separarla de Dinamarca**: [Link](https://altavoz.pe/internacional/trump-estudia-pagar-hasta-100-000-dolares-a-cada-groenlandes-para-intentar-anexar-la-isla/)
+
+
+### atalanta - torino (N/A, 10/01/2026 15:27 Lima)
+
+- **LIVE Alle 20.45 Atalanta-Torino, le ufficiali: Palladino sceglie Zalewski, Ngonge con Zapata**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Atalanta/10-01-2026/atalanta-torino-live-risultato-e-gol-in-diretta-serie-a.shtml)
+- **Baroni a DAZN: "Zapata titolare? Non gli regalo niente"**: [Link](https://onefootball.com/pt-br/noticias/baroni-a-dazn-zapata-titolare-non-gli-regalo-niente-42209029)
+- **Atalanta-Torino, le formazioni ufficiali**: [Link](https://www.torinofc.it/news/10/01/2026/atalanta-torino-le-formazioni-ufficiali_40660)
+
+
+### atalanta vs torino (N/A, 10/01/2026 15:27 Lima)
+
+- **✅Atalanta v Torino line-ups: updates on Scalvini, Simeone, Krstovic**: [Link](https://ca.sports.yahoo.com/news/atalanta-v-torino-line-ups-185000412.html)
+- **Preview: Atalanta BC vs Torino - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/preview/atalanta-vs-torino-prediction-team-news-lineups_589448.html)
+- **Serie A official line-ups: Atalanta vs. Torino**: [Link](https://football-italia.net/serie-a-official-line-ups-atalanta-vs-torino/)
+
+
+### aston villa (N/A, 10/01/2026 15:27 Lima)
+
+- **Buendía deepens gloom for Frank and Spurs as Aston Villa progress in FA Cup**: [Link](https://www.theguardian.com/football/2026/jan/10/tottenham-aston-villa-fa-cup-match-report)
+- **FA Cup: Rogers extends Villa's advantage; Newcastle advance on penalties**: [Link](https://onefootball.com/en/news/fa-cup-rogers-extends-villas-advantage-newcastle-advance-on-penalties-42206983)
+- **Livestream FA Cup Soccer: Watch Tottenham vs. Aston Villa Free From Anywhere**: [Link](https://www.cnet.com/tech/services-and-software/fa-cup-soccer-2026-tottenham-vs-aston-villa/)
+
+
+### alianza (N/A, 10/01/2026 15:27 Lima)
+
+- **“A romperla, mi rayo. Te amo”: Daniela Darcourt celebra fichaje de Luis Advíncula a Alianza Lima**: [Link](https://rpp.pe/famosos/farandula/luis-advincula-daniela-darcourt-celebra-su-fichaje-a-alianza-lima-a-romperla-mi-rayo-te-amo-noticia-1671081)
+- **Bajo una intensa lluvia: Luis Advíncula llegó a Uruguay para sumarse a la pretemporada de Alianza Lima**: [Link](https://depor.com/futbol-peruano/descentralizado/luis-advincula-llegada-a-uruguay-para-sumarse-a-pretemporada-de-alianza-lima-amistosos-por-serie-rio-de-la-plata-declaraciones-video-noticia/)
+- **¡Un "rayo" cayó en Matute!: Alianza Lima anuncia el fichaje de Luis Advíncula**: [Link](https://panamericana.pe/deportes/463177-rayo-cayo-matute-alianza-lima-anuncia-fichaje-luis-advincula)
+
+
 ### argelia - nigeria (N/A, 10/01/2026 11:31 Lima)
 
 - **Argelia vs. Nigeria: ¿a qué hora juegan y dónde ver EN VIVO por cuartos de final de Copa Africana de Naciones?**: [Link](https://rpp.pe/futbol/futbol-mundial/argelia-vs-nigeria-en-vivo-a-que-hora-juegan-y-donde-ver-cuartos-copa-africana-de-naciones-2026-via-claro-sports-partidos-de-hoy-noticia-1670988)
@@ -960,75 +1030,5 @@ Sin noticias relacionadas disponibles.
 - **Supercopa de España: Real Madrid, FC Barcelona, Atlético de Madrid y Athletic Club buscan su primer título de 2026**: [Link](https://cnnespanol.cnn.com/2026/01/06/deportes/supercopa-espana-2026-formato-partidos-equipos-orix)
 - **Así es el reparto de dinero en la Supercopa de España 2026 y qué equipo recibe más**: [Link](https://as.com/futbol/primera/asi-es-el-reparto-de-dinero-en-la-supercopa-de-espana-2026-y-que-equipo-recibe-mas-f202601-n/)
 - **El Barça afronta la semifinal con la duda de Lamine y el aviso de Flick**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20260106/1002596786/barca-afronta-semifinal-duda-lamine-aviso-flick.html)
-
-
-### pedro el escamoso (N/A, 06/01/2026 23:45 Lima)
-
-- **Pedro el escamoso 2: Pedro envía flores a Fernanda mientras busca trabajo**: [Link](https://www.atv.pe/noticia/pedro-el-escamoso-2-pedro-envia-flores-a-fernanda-mientras-busca-trabajo/)
-- **Pedro el escamoso 2: Pedro Coral abandona la casa tras fuerte pelea con su hijo por Fernanda**: [Link](https://www.atv.pe/noticia/pedro-el-escamoso-2-pedro-coral-abandona-la-casa-tras-fuerte-pelea-con-su-hijo-por-fernanda/)
-- **Pedro el escamoso 2: Pedro Coral busca conquistar a la jefa de su hijo con un coqueteo inesperado**: [Link](https://www.atv.pe/noticia/pedro-el-escamoso-2-pedro-coral-busca-conquistar-a-la-jefa-de-su-hijo-con-un-coqueteo-inesperado/)
-
-
-### alejandro sanz (N/A, 06/01/2026 23:45 Lima)
-
-- **Ricardo Montaner, Yuri, Miguel Bosé, Gloria Trevi y otras celebridades se pronuncian por la situación en Venezuela**: [Link](https://cnnespanol.cnn.com/2026/01/05/venezuela/video/celebridades-bose-yuri-reacciones-venezuela-estados-unidos-orix)
-- **La esperanza da paso a la incertidumbre entre los exiliados venezolanos en Estados Unidos tras la captura de Maduro**: [Link](https://elpais.com/us/migracion/2026-01-06/la-esperanza-da-paso-a-la-incertidumbre-entre-los-exiliados-venezolanos-en-estados-unidos-tras-la-captura-de-maduro.html)
-- **El Pelotazo nos trae lo que es noticia en el deporte este martes 6 de enero**: [Link](https://www.telemundo.com/noticias/noticias-telemundo/internacional/video/el-pelotazo-nos-trae-lo-que-es-noticia-en-el-deporte-este-martes-6-de-enero-tmvo13097365)
-
-
-### alex turner (N/A, 06/01/2026 23:45 Lima)
-
-- **Are Arctic Monkeys Breaking Up? Inside the Rumors Surrounding Alex Turner’s Band**: [Link](https://spoiler.bolavip.com/en/celebrities/are-arctic-monkeys-breaking-up-inside-the-rumors-surrounding-alex-turners-band)
-- **Hear Me Out: ‘Everything You’ve Come To Expect’ is the most important song Alex Turner ever wrote**: [Link](https://faroutmagazine.co.uk/most-important-song-alex-turner-ever-wrote/)
-- **Alex Turner Turns 40: His 10 Greatest Songs with Arctic Monkeys**: [Link](https://spoiler.bolavip.com/en/celebrities/alex-turner-turns-40-his-10-greatest-songs-with-arctic-monkeys)
-
-
-### lakers - pelicans (N/A, 06/01/2026 21:06 Lima)
-
-- **How to watch Lakers vs. Pelicans: TV channel and streaming options for January 6**: [Link](https://www.nytimes.com/athletic/6946802/2026/01/06/lakers-vs-pelicans-stream-how-to-watch-jan-6/)
-- **NBA Predictions, Odds and Betting Lines - January 6**: [Link](https://www.fanduel.com/research/nba-predictions-odds-1-6-2026)
-- **NBA Best Bets: Lakers vs. Pelicans Prop Bets for Tuesday 1/6/26**: [Link](https://dknetwork.draftkings.com/2026/01/06/nba-best-bets-lakers-vs-pelicans-prop-bets-for-tuesday-1-6-26/)
-
-
-### kick (N/A, 06/01/2026 21:06 Lima)
-
-- **GOP lawmaker Doug LaMalfa dies at 65**: [Link](https://www.politico.com/news/2026/01/06/doug-lamalfa-dead-00712222)
-- **California Rep. Doug Lamalfa's death felt across Yuba-Sutter region**: [Link](https://www.cbsnews.com/sacramento/news/yuba-sutter-community-reacts-death-doug-lamalfa/)
-- **Northern California Republican Congressman Doug LaMalfa Dies at 65**: [Link](https://www.kqed.org/news/12068742/northern-california-republican-congressman-doug-lamalfa-dies-at-65)
-
-
-### the housemaid (N/A, 06/01/2026 21:06 Lima)
-
-- **Sydney Sweeney is returning in 'The Housemaid's Secret': What to know about 'The Housemaid' sequel**: [Link](https://www.yahoo.com/entertainment/movies/article/sydney-sweeney-is-returning-in-the-housemaids-secret-what-to-know-about-the-housemaid-sequel-213800089.html)
-- **Sydney Sweeney box-office hit ‘The Housemaid’ to get a sequel**: [Link](https://apnews.com/article/sydney-sweeney-housemaid-sequel-157a777a7fa309f1418ffe9a504d1df8)
-- **‘The Housemaid’ Sequel in the Works With Sydney Sweeney and Paul Feig Returning**: [Link](https://variety.com/2026/film/news/the-housemaid-sequel-sydney-sweeney-paul-feig-1236624121/)
-
-
-### joao grimaldo (N/A, 06/01/2026 21:06 Lima)
-
-- **Sigue en Serbia: Sparta Praga habría acordado compra de Joao Grimaldo**: [Link](https://ovacion.pe/noticias/peruanos-mundo/sigue-serbia-sparta-praga-habria-acordado-compra-joao-grimaldo)
-- **¡Bombazo! Universitario sacude el mercado y tiene en la mira a Joao Grimaldo: "Gestiones..."**: [Link](https://libero.pe/futbol-peruano/universitario/2025/12/31/fichajes-liga-1-universitario-sacude-mercado-tiene-en-mira-joao-grimaldo-gestiones-2795084)
-- **Joao Grimaldo daría un salto importante en su carrera: Ficharía por grande de Europa Central**: [Link](https://www.apnoticias.pe/peru/exitosa-noticias/joao-grimaldo-daria-un-salto-importante-en-su-carrera-ficharia-por-grande-de-europa-central-1482018)
-
-
-### emily in paris (N/A, 06/01/2026 21:06 Lima)
-
-- **Emily in Paris Renewed: Say ‘Bonjour’ to Season 6**: [Link](https://www.netflix.com/tudum/articles/emily-in-paris-season-6-plot-release-date-news)
-- **‘Emily In Paris’ Renewed For Season 6 By Netflix**: [Link](https://deadline.com/2026/01/emily-in-paris-renewed-season-6-netflix-1236664590/)
-- **‘Emily in Paris’ Renewed for Sixth Season at Netflix**: [Link](https://www.hollywoodreporter.com/tv/tv-news/emily-in-paris-renewed-season-6-netflix-1236464702/)
-
-
-### eclipse solar anular (N/A, 06/01/2026 21:06 Lima)
-
-- **Eclipse solar ‘anillo de fuego’ 2026: Desde qué países se podrá ver**: [Link](https://www.americatv.com.pe/noticias/internacionales/eclipse-solar-anillo-fuego-2026-que-paises-se-podra-ver-n514551)
-- **El eclipse solar más extremo del 2026: la luna y el sol formarán un anillo de fuego visible**: [Link](https://larepublica.pe/ciencia/2026/01/06/el-eclipse-solar-mas-extremo-del-2026-la-luna-y-el-sol-formaran-un-anillo-de-fuego-123216)
-- **Eclipse solar 2026: confirman fecha y hora del ‘anillo de fuego’ más extremo del siglo**: [Link](https://www.expreso.com.pe/variedades/eclipse-solar-2026-confirman-fecha-y-hora-del-anillo-de-fuego-mas-extremo-del-siglo-utc-tierra-noticia/1252276/)
-
-
-### kings league (N/A, 06/01/2026 21:06 Lima)
-
-- **Perú cayó ante España 5-8 por la Kings League World Cup 2026: goles y resumen de la dolorosa derrota bicolor en el torneo**: [Link](https://www.infobae.com/peru/deportes/2026/01/06/peru-vs-espana-en-vivo-hoy-por-la-kings-league-word-cup-2026-via-youtube-disney-plus-minuto-a-minuto-elzeein-djmariio-resumen-video/)
-- **Spursito aparece en el mejor momento para rescatar a una España que sufrió y 'sentenció' a Perú**: [Link](https://www.marca.com/videojuegos/kings-league/2026/01/07/spursito-aparece-peor-momento-rescatar-espana-sufrio-sentencio-peru.html)
-- **Perú vs España en vivo: ¿A qué hora juegan y dónde ver partido de la Kings World Cup Nations 2026?**: [Link](https://rpp.pe/futbol/mas-futbol/link-peru-vs-espana-en-vivo-via-disney-plus-a-que-hora-juegan-y-donde-ver-kings-world-cup-nations-2026-en-dazn-y-twitch-kings-league-noticia-1670534)
 
 
