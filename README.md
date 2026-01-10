@@ -1,3 +1,73 @@
+### argelia - nigeria (N/A, 10/01/2026 11:31 Lima)
+
+- **Argelia vs. Nigeria: ¿a qué hora juegan y dónde ver EN VIVO por cuartos de final de Copa Africana de Naciones?**: [Link](https://rpp.pe/futbol/futbol-mundial/argelia-vs-nigeria-en-vivo-a-que-hora-juegan-y-donde-ver-cuartos-copa-africana-de-naciones-2026-via-claro-sports-partidos-de-hoy-noticia-1670988)
+- **Resultado en vivo de Argelia vs Nigeria: actualizaciones de cuartos de final de la AFCON, resultados y estadísticas Las Super Eagles apuntan a las semifinales**: [Link](https://www.ucvradio.pe/mas-actualidad/resultado-en-vivo-de-argelia-vs-nigeria-actualizaciones-de-cuartos-de-final-de-la-afcon-resultados-y-estadisticas-las-super-eagles-apuntan-a-las-semifinales/99262/)
+- **Argelia vs. Nigeria: choque de gigantes en los cuartos de final de la Copa Africana de Naciones 2025**: [Link](https://zona.palmsbet.pe/deportes/futbol/argelia-vs-nigeria-choque-de-gigantes-en-los-cuartos-de-final-de-la-copa-africana-de-naciones-2025/)
+
+
+### como vs. bolonia (N/A, 10/01/2026 11:31 Lima)
+
+- **Como vs. Bolonia (10 de Ene., 2026) Resultados en Vivo**: [Link](https://www.espn.cl/futbol/partido/_/juegoId/736976)
+- **Como vs. Bolonia (10 de Ene., 2026) Resultados en Vivo**: [Link](https://www.espn.com.pe/futbol/partido/_/juegoId/736976)
+- **Como busca continuar su asalto a la Serie A ante Bologna**: [Link](https://www.espn.com.ar/futbol/italia/nota/_/id/16160733/como-vs-bologna-serie-a-2025-26-equipo-fecha-hora-y-tv-en-vivo)
+
+
+### fc union berlin - mainz 05 (N/A, 10/01/2026 11:31 Lima)
+
+- **Union Berlin empfängt Mainz 05 und Ex-Trainer Urs Fischer**: [Link](https://www.rbb24.de/sport/beitrag/2026/01/fussball-bundesliga-spiele-union-berlin-mainz-05-fcum05-urs-fischer.html)
+- **(k+) Ruhnert über Fischer: "Es ist nicht seine Art, rumzuschreien"**: [Link](https://www.kicker.at/ruhnert-ueber-fischer-es-ist-nicht-seine-art-rumzuschreien-1181001/artikel)
+- **Die emotionale und wichtige Fischer-Rückkehr**: [Link](https://www.sky-sport.ch/de/articles/die-emotionale-und-wichtige-fischer-rueckkehr/)
+
+
+### como fc (N/A, 10/01/2026 11:31 Lima)
+
+- **Preview: Como vs Bologna - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/como/preview/como-vs-bologna-prediction-team-news-lineups_589481.html)
+- **Como-Bologna: Match Preview**: [Link](https://comofootball.com/en/como-bologna-match-preview/)
+- **Serie A | Como 1-1 Bologna: Baturina magic, Cambiaghi hero and villain**: [Link](https://football-italia.net/serie-a-como-1-1-bologna-baturina-cambiaghi/)
+
+
+### newcastle (N/A, 10/01/2026 11:31 Lima)
+
+- **Newcastle United pick up January transfer fee as club statement confirms striker exit**: [Link](https://www.chroniclelive.co.uk/sport/football/football-news/newcastle-united-pick-up-january-33206197)
+- **What John McGlynn said after Falkirk completed forward signing from Newcastle**: [Link](https://www.heraldscotland.com/sport/25755439.john-mcglynn-said-falkirk-completed-forward-signing/)
+- **Newcastle United Academy Graduate Ben Joins Scottish Premiership Side**: [Link](https://news.ssbcrack.com/newcastle-united-academy-graduate-ben-joins-scottish-premiership-side/)
+
+
+### union berlin vs (N/A, 10/01/2026 11:31 Lima)
+
+- **Union to Open 2026 With Mainz Clash**: [Link](https://www.fc-union-berlin.de/en/news/unions-bundesliga-opener-2026-against-mainz-KA5zaW)
+- **Mainz coach Urs Fischer: 'I'll give everything to beat Union Berlin'**: [Link](https://www.bundesliga.com/en/bundesliga/news/urs-fischer-interview-mainz-union-berlin-klopp-burkardt-35447)
+- **Confirmed Lineups: Union Berlin vs. 1. FSV Mainz 05**: [Link](https://onefootball.com/en/news/confirmed-lineups-union-berlin-vs-1-fsv-mainz-05-42207380)
+
+
+### celtic vs (N/A, 10/01/2026 11:31 Lima)
+
+- **Jim Goodwin recalls damning Martin O’Neill verdict as Dundee United boss aims to wreck Celtic legend’s return**: [Link](https://www.thecourier.co.uk/fp/sport/football/dundee-united/5406814/jim-goodwin-martin-oneill-celtic-dundee-united/)
+- **Scottish Premiership LIVE - radio, text, team news, build up, updates, reaction & stats**: [Link](https://www.bbc.co.uk/sport/football/live/cn8jxj54d1mt)
+- **Dundee United star reveals boyhood memories of Martin O'Neill ahead of 'surreal' Celtic clash**: [Link](https://www.67hailhail.com/news/dundee-united-star-reveals-boyhood-memories-of-martin-oneill-ahead-of-surreal-celtic-clash/)
+
+
+### sheffield wednesday - brentford (N/A, 10/01/2026 11:31 Lima)
+
+- **Sheffield Wednesday v Brentford confirmed team news: Andrews selects strong side for FA Cup tie at Hillsborough**: [Link](https://www.brentfordfc.com/en/news/article/first-team-sheffield-wednesday-v-brentford-fa-cup-third-round-confirmed-team-news)
+- **'Really sad' - Chris Sutton makes Sheffield Wednesday admission ahead of FA Cup tie vs Brentford**: [Link](https://www.thestar.co.uk/sport/football/sheffield-wednesday/sheffield-wednesday-brentford-fa-cup-5469079)
+- **Match Pack: Owls v Brentford**: [Link](https://www.swfc.co.uk/news/2026/january/09/match-pack--owls-v-brentford/)
+
+
+### galatasaray - fenerbahçe (N/A, 10/01/2026 11:31 Lima)
+
+- **Matteo Guendouzi ayağının tozuyla sahada**: [Link](https://haberglobal.com/spor/matteo-guendouzi-ayaginin-tozuyla-sahada-501188)
+- **Okan Buruk Uğurcan Çakır'ı neden yedek bıraktığını açıkladı**: [Link](https://www.yenicaggazetesi.com/okan-buruk-ugurcan-cakiri-neden-yedek-biraktigini-acikladi-991981h.htm)
+- **Sanchez, Galatasaray'da "Dalya" dedi**: [Link](https://beinsports.com.tr/haber/sanchez-galatasarayda-dalya-dedi)
+
+
+### us orléans - mónaco (N/A, 10/01/2026 11:31 Lima)
+
+- **USO-ASM : les compos probables**: [Link](https://asm-supporters.fr/actualites/64762-uso-asm-les-compos-probables)
+- **Ratio, invincibilité, National 1… Les stats à connaître avant Orléans**: [Link](https://www.asmonaco.com/ratio-invincibilite-national-1-les-stats-a-connaitre-avant-orleans/)
+- **Akliouche absent du groupe de Monaco pour le déplacement à Orléans en Coupe de France**: [Link](https://www.lequipe.fr/Football/Actualites/Akliouche-absent-du-groupe-de-monaco-pour-le-deplacement-a-orleans-en-coupe-de-france/1632401)
+
+
 ### cheltenham - leicester city (N/A, 10/01/2026 07:51 Lima)
 
 - **Leicester City team news v Cheltenham as Page and Aluko start amid eight changes**: [Link](https://www.leicestermercury.co.uk/sport/football/football-news/leicester-city-team-news-v-10748103)
@@ -960,75 +1030,5 @@ Sin noticias relacionadas disponibles.
 - **Perú cayó ante España 5-8 por la Kings League World Cup 2026: goles y resumen de la dolorosa derrota bicolor en el torneo**: [Link](https://www.infobae.com/peru/deportes/2026/01/06/peru-vs-espana-en-vivo-hoy-por-la-kings-league-word-cup-2026-via-youtube-disney-plus-minuto-a-minuto-elzeein-djmariio-resumen-video/)
 - **Spursito aparece en el mejor momento para rescatar a una España que sufrió y 'sentenció' a Perú**: [Link](https://www.marca.com/videojuegos/kings-league/2026/01/07/spursito-aparece-peor-momento-rescatar-espana-sufrio-sentencio-peru.html)
 - **Perú vs España en vivo: ¿A qué hora juegan y dónde ver partido de la Kings World Cup Nations 2026?**: [Link](https://rpp.pe/futbol/mas-futbol/link-peru-vs-espana-en-vivo-via-disney-plus-a-que-hora-juegan-y-donde-ver-kings-world-cup-nations-2026-en-dazn-y-twitch-kings-league-noticia-1670534)
-
-
-### sporting de lisboa (N/A, 06/01/2026 21:06 Lima)
-
-- **VIDEO - Luis Javier Suárez sigue en racha: nuevo gol con Sporting**: [Link](https://www.deportesrcn.com/futbol/video-luis-javier-suarez-sigue-en-racha-nuevo-gol-con-sporting-143661)
-- **Luis Suárez marcó, pero Sporting de Lisboa quedó eliminado en las semifinales de la Copa de la Liga de Portugal**: [Link](https://www.elespectador.com/deportes/futbol-mundial/luis-suarez-marco-pero-sporting-de-lisboa-quedo-eliminado-en-las-semifinales-de-la-copa-de-la-liga-de-portugal/)
-- **Revive el gol número 20 de Luis Suárez en Portugal**: [Link](https://colombia.as.com/videos/revive-el-gol-numero-20-de-luis-suarez-en-portugal-f202601-v/)
-
-
-### lotería (N/A, 06/01/2026 21:06 Lima)
-
-- **Lotería del Niño 2026, en directo | El premio Gordo cae en toda España, menos en Cantabria, Ceuta y Melilla**: [Link](https://www.infobae.com/espana/2026/01/06/loteria-del-nino-2026-en-directo-horario-numeros-premiados-y-ultima-hora-del-sorteo/)
-- **Estas son las predicciones del número que va a tocar en la Lotería del Niño 2026**: [Link](https://as.com/tikitakas/famosos/estas-son-las-predicciones-del-numero-que-va-a-tocar-en-la-loteria-del-nino-2026-f202601-n/)
-- **Comprobar Lotería del Niño 2026, en directo: resultados oficiales y consulta los números con premio**: [Link](https://www.abc.es/loteria-del-nino/comprobar-loteria-nino-2026-directo-resultados-oficiales-numero-premio-20260106050000-di.html)
-
-
-### lisboa fc (N/A, 06/01/2026 21:06 Lima)
-
-- **João Coelho: «Merecíamos mais, fica sabor agridoce»**: [Link](https://www.abola.pt/noticias/joao-coelho-mereciamos-mais-fica-sabor-agridoce-2026010623500900456)
-- **Voleibol: Sporting perde na Champions, Benfica apurado na Taça Challenge**: [Link](https://maisfutebol.iol.pt/modalidades/benfica/voleibol-sporting-perde-na-champions-benfica-apurado-na-taca-challenge)
-- **"Vice" Warta Zawiercie derrota Sporting na Champions de voleibol**: [Link](https://www.ojogo.pt/modalidades/artigo/vice-warta-zawiercie-derrota-sporting-na-champions-de-voleibol/18037663)
-
-
-### juventus vs (N/A, 06/01/2026 15:30 Lima)
-
-- **¡EN VIVO! Sassuolo vs. Juventus por Serie A**: [Link](https://www.espn.com.pe/futbol/italia/nota/_/id/16149542/sassuolo-vs-juventus-equipo-fecha-hora-y-tv-en-vivo)
-- **Serie A: Sassuolo recibirá a Juventus por la fecha 19**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-sassuolo-recibira-a-juventus-por-la-fecha-19-noticia-1670337)
-- **Serie A: Sassuolo vs Juventus – posibles alineaciones y dónde verlo por TV**: [Link](https://www.elpueblo.pe/deportes/serie-a-sassuolo-vs-juventus-posibles-alineaciones-y-donde-verlo-por-tv/197544/)
-
-
-### sporting lisboa (N/A, 06/01/2026 15:30 Lima)
-
-- **Em direto (pré-jogo): Sporting - Vitória (já há onzes - grande surpresa no Sporting)**: [Link](https://cnnportugal.iol.pt/taca-da-liga-sporting-vitoria-guimaraes/meias-finais/em-direto-pre-jogo-sporting-vitoria-ja-ha-onzes-grande-surpresa-no-sporting/20260106/695d624ad34e0ec52ec1c52b)
-- **AO VIVO: Trincão atira para defesa de Charles (13')**: [Link](https://www.flashscore.pt/noticias/futebol-taca-da-liga-ao-vivo-trincao-atira-para-defesa-de-charles-13/UyEolPtS/)
-- **Rui Borges com menos dez e a ter de 'inventar' à esquerda (o onze do Sporting)**: [Link](https://www.abola.pt/noticias/rui-borges-com-menos-dez-e-a-ter-de-inventar-a-esquerda-o-onze-do-sporting-2026010523421872485)
-
-
-### copa de la liga de portugal (N/A, 06/01/2026 15:30 Lima)
-
-- **Luis Suárez hoy: Probabilidad de gol ante Guimaraes por Copa de la Liga**: [Link](https://www.365scores.com/es/news/luis-suarez-cuota-vs-guimaraes-copa/)
-- **Sporting CP vs Vitória Guimarães EN VIVO HOY martes 6 de enero**: [Link](https://www.deportesrcn.com/futbol/sporting-cp-vs-vitoria-guimaraes-en-vivo-hoy-martes-6-de-enero-supercopa-de-turquia-143640)
-- **EN VIVO Sporting de Lisboa vs. Vitoria Guimaraes, semifinal Copa de la Liga de Portugal: Luis Suárez busca la final**: [Link](https://www.infobae.com/colombia/deportes/2026/01/06/en-vivo-sporting-de-lisboa-vs-vitoria-guimaraes-semifinal-copa-de-la-liga-de-portugal-luis-suarez-busca-la-final/)
-
-
-### mcdonalds (N/A, 06/01/2026 15:30 Lima)
-
-- **McDonald's releases statement after lawsuit says it ‘deceived' customers about McRib**: [Link](https://www.nbcchicago.com/news/local/mcdonalds-releases-statement-after-lawsuit-claims-it-deceived-customers-about-mcrib-sandwich/3871345/)
-- **McDonald's Faces Class Action Lawsuit Over Fan-Favorite McRib Sandwich**: [Link](https://people.com/mcdonalds-faces-class-action-lawsuit-over-fan-favorite-mcrib-sandwich-11879035)
-- **Lawsuit accuses Chicago-based McDonald's of deception on grounds that McRib has no rib meat**: [Link](https://www.cbsnews.com/chicago/news/lawsuit-accuses-mcdonalds-deception-mcrib-has-no-rib-meat/)
-
-
-### supercopa de turquía (N/A, 06/01/2026 15:30 Lima)
-
-- **Jhon Durán marca y Fenerbahce clasifica a la final de la Supercopa Turca**: [Link](https://www.espn.com.ar/futbol/nota/_/id/16152529/jhon-duran-marca-y-fenerbahce-clasifica-a-la-final-de-la-supercopa-turca)
-- **VIDEO - Gol de Jhon Jader Durán para Fenerbahçe en la Supercopa de Turquía**: [Link](https://www.deportesrcn.com/futbol/video-gol-de-jhon-jader-duran-para-fenerbahce-en-la-supercopa-de-turquia-143657)
-- **Recital de Asensio... y a la final de la Supercopa**: [Link](https://as.com/futbol/internacional/recital-de-asensio-y-a-la-final-de-la-supercopa-f202601-n/)
-
-
-### west ham - nottingham forest (N/A, 06/01/2026 15:30 Lima)
-
-- **West Ham v Nottingham Forest: Premier League – live**: [Link](https://www.theguardian.com/football/live/2026/jan/06/west-ham-v-nottingham-forest-premier-league-live)
-- **Tuesday's football tips: West Ham talisman Bowen 4/1 for over 1.5 shots on target against Forest**: [Link](https://mrfixitstips.co.uk/tuesdays-football-tips-west-ham-talisman-bowen-4-1-for-over-1-5-shots-on-target-against-forest/)
-- **West Ham need to make London Stadium a ‘nightmare’ for Forest tonight**: [Link](https://www.thewesthamway.com/2026/01/06/west-ham-need-to-make-london-stadium-a-nightmare-for-forest-tonight/)
-
-
-### sassuolo - juventus (N/A, 06/01/2026 15:30 Lima)
-
-- **Sassuolo-Juve diretta: segui la sfida di Serie A LIVE**: [Link](https://www.corrieredellosport.it/news/calcio/serie-a/2026/01/06-145675011/sassuolo-juve_diretta_segui_la_sfida_di_serie_a_live)
-- **Tutte le notizie sul calcio in Diretta**: [Link](https://www.diretta.it/news/calcio-live-news-in-campo-sassuolo-juventus-0-1-e-costa-d-avorio-burkina-faso-2-0/MsLpimyQ/)
-- **Serie A | Le formazioni ufficiali di Sassuolo-Juventus**: [Link](https://www.juventus.com/it/news/articoli/serie-a-2025-2026-sassuolo-juventus-formazioni-ufficiali)
 
 
