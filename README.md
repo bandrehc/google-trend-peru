@@ -1,3 +1,22 @@
+### clima trujillo (N/A, 10/01/2026 03:33 Lima)
+
+- **Conoce el pronóstico del clima para mañana en Trujillo**: [Link](https://www.infobae.com/peru/2026/01/09/conoce-el-pronostico-del-clima-para-manana-en-trujillo/)
+- **Lluvia en Trujillo y La Libertad: pronóstico del clima para hoy**: [Link](https://noticiastrujillo.pe/lluvia-en-trujillo-y-la-libertad-pronostico-del-clima-para-hoy/)
+- **Trujillo: verano atípico mantiene temperaturas frías en la ciudad**: [Link](https://soltvperu.com/verano-atipico-trujillo-temperaturas-frias/)
+
+
+### dreamleague season 28 (N/A, 10/01/2026 03:33 Lima)
+
+- **DreamLeague Season 28 Qualification: vs. MOUZ - Natus Vincere**: [Link](https://navi.gg/en/publications/d2-dl28-quali-vs-mouz)
+
+
+### gustavo bueno (N/A, 10/01/2026 03:33 Lima)
+
+- **¿Qué contiene la cajita misteriosa de Gilberto?**: [Link](https://www.americatv.com.pe/al-fondo-hay-sitio/que-contiene-cajita-misteriosa-don-gilberto-noticia-162256)
+- **“Al fondo hay sitio”: Gustavo Bueno regresará como ‘Don Gilberto’ tras superar complicaciones de salud**: [Link](https://elcomercio.pe/tvmas/famosos/afhs-gustavo-bueno-volvera-como-don-gilberto-tras-superar-problemas-de-salud-ultimas-noticia/)
+- **Sobrina de Gustavo Bueno confirma regreso del actor en 'Al fondo hay sitio': "No hay persona más fuerte"**: [Link](https://rpp.pe/famosos/farandula/gustavo-bueno-su-sobrina-marialola-arispe-confirma-regreso-del-actor-en-al-fondo-hay-sitio-noticia-1670872)
+
+
 ### kick (N/A, 09/01/2026 23:37 Lima)
 
 - **Victor Wembanyama shows knee is fine by doing something that shouldn't be physically possible**: [Link](https://sports.yahoo.com/nba/article/victor-wembanyama-shows-knee-is-fine-by-doing-something-that-shouldnt-be-physically-possible-032839987.html)
@@ -1011,26 +1030,5 @@ Sin noticias relacionadas disponibles.
 - **Lecce-Roma: le formazioni ufficiali**: [Link](https://www.asroma.com/it/notizie/74607/lecce-roma-le-formazioni-ufficiali)
 - **Roma, altri problemi in difesa per Gasperini: Rensch a rischio forfait per febbre**: [Link](https://www.ilmessaggero.it/sport/as_roma/rensch_roma_lecce_forfait_febbre_soule_gasperini_cosa_e_successo-9281882.html)
 - **Lecce Roma in tv e streaming: dove vedere la partita**: [Link](https://sport.sky.it/calcio/serie-a/2026/01/06/lecce-roma-dove-vedere-tv-streaming)
-
-
-### felipe chavez (N/A, 06/01/2026 11:36 Lima)
-
-- **¡Show del peruano! Gol y asistencia de Felipe Chávez para el 3-0 del Bayern Múnich vs. Salzburgo**: [Link](https://depor.com/futbol-peruano/peruanos-en-el-mundo/gol-felipe-chavez-bayern-munich-vs-salzburgo-pase-del-peruano-para-el-2-0-de-lennart-karl-y-anotacion-para-el-3-0-video-noticia/)
-- **Bayern Múnich: Felipe Chávez sigue entrenando con primer equipo**: [Link](https://www.americatv.com.pe/deportes/futbol-mundial/bayern-munich-felipe-chavez-sigue-entrenando-primer-equipo-n452147)
-- **Felipe Chávez: El volante peruano del Bayern Munich marca en amistoso ante el RB Salzburgo**: [Link](https://www.atv.pe/noticia/felipe-chavez-el-volante-peruano-del-bayern-munich-marca-en-amistoso-ante-el-rb-salzburgo/)
-
-
-### bruce willis (N/A, 06/01/2026 11:36 Lima)
-
-- **When Bruce Willis Helped Subaru Sell the Legacy**: [Link](https://www.autoblog.com/news/when-bruce-willis-helped-subaru-sell-the-legacy)
-- **The Forgotten 1991 Gangster Film Flop That Starred Nicole Kidman And Bruce Willis**: [Link](https://www.slashfilm.com/2061903/nicole-kidman-bruce-willis-gangster-film-flop-billy-bathgate/)
-- **Megyn Kelly Names the Meanest Celebrities She Has Met Over the Years**: [Link](https://www.usmagazine.com/celebrity-news/news/megyn-kelly-names-the-meanest-celebrities-she-has-met-over-the-years/)
-
-
-### argelia - rd congo (N/A, 06/01/2026 11:36 Lima)
-
-- **Argelia vs RD Congo: Alineaciones, estadísticas y pronóstico**: [Link](https://www.365scores.com/es/football/match/africa-cup-of-nations-167/algeria-dr-congo-5109-14650-167)
-- **Argelia vs República Democrática del Congo, en directo: Copa de África hoy, en vivo**: [Link](https://as.com/futbol/internacional/argelia-vs-republica-democratica-del-congo-en-directo-copa-de-africa-hoy-en-vivo-f202601-n/)
-- **FBI elogia la organización de la seguridad en la Copa África-Marruecos**: [Link](https://es.rue20.com/2026/01/05/fbi-elogia-la-organizacion-de-la-seguridad-en-la-copa-africa-marruecos/)
 
 
