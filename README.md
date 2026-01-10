@@ -1,3 +1,31 @@
+### cheltenham - leicester city (N/A, 10/01/2026 07:51 Lima)
+
+- **Leicester City team news v Cheltenham as Page and Aluko start amid eight changes**: [Link](https://www.leicestermercury.co.uk/sport/football/football-news/leicester-city-team-news-v-10748103)
+- **Floods, floodlights and the Foxes: Cheltenham Town’s past meetings with Leicester City**: [Link](https://www.gloucestershirelive.co.uk/sport/football/football-news/floods-floodlights-foxes-cheltenham-towns-10746068)
+- **Match sponsor v Leicester City: YouFibre**: [Link](https://www.ctfc.com/news/2026/january/09/match-sponsor-v-leicester-city--youfibre/)
+
+
+### real oviedo - real betis (N/A, 10/01/2026 07:51 Lima)
+
+- **Apuestas y Pronóstico del Real Oviedo vs Real Betis 10/01/26**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2026/enero/pronostico-real-oviedo-vs-real-betis-10-01-26)
+- **En las antípodas del gol**: [Link](https://es.besoccer.com/noticia/real-oviedo-real-betis-antipodas-gol-laliga-1389016)
+- **Manuel Pellegrini le mete miedo al colista de La Liga: "Hay que hacerle sentir que..."**: [Link](https://www.msn.com/es-cl/deportes/futbol/manuel-pellegrini-le-mete-miedo-al-colista-de-la-liga-hay-que-hacerle-sentir-que/ar-AA1TUnaP)
+
+
+### weather (N/A, 10/01/2026 07:51 Lima)
+
+- **Good morning, Orillia! Here's today's weather!**: [Link](https://www.orilliamatters.com/good-morning-orillia/good-morning-orillia-heres-todays-weather-11707309)
+- **Good morning, Midland! Here's today's weather!**: [Link](https://www.midlandtoday.ca/good-morning/good-morning-midland-heres-todays-weather-11708763)
+- **Good morning, Barrie! Here's today's weather!**: [Link](https://www.barrietoday.com/good-morning/good-morning-barrie-heres-todays-weather-11699533)
+
+
+### grizzlies - thunder (N/A, 10/01/2026 07:51 Lima)
+
+- **Thunder vs Grizzlies Picks & Odds Today: OKC Depleted On Road With Tight Spread**: [Link](https://www.oddsshark.com/nba/thunder-grizzlies-picks-odds-january-9-2026)
+- **Jalen Williams finished with season highs of 26 points …**: [Link](https://www.hoopshype.com/story/sports/nba/rumors/2026/01/10/jalen-williams-finished-with-season-highs-of-26-points/88116217007/)
+- **Oklahoma City's Jalen Williams drives against GG Jackson in the Thunder's NBA victory over the Memphis Grizzlies**: [Link](https://www.islandernews.com/news/national/oklahoma-citys-jalen-williams-drives-against-gg-jackson-in-the-thunders-nba-victory-over-the/image_5d55667f-0910-5815-825d-5d334510773a.html)
+
+
 ### clima trujillo (N/A, 10/01/2026 03:33 Lima)
 
 - **Conoce el pronóstico del clima para mañana en Trujillo**: [Link](https://www.infobae.com/peru/2026/01/09/conoce-el-pronostico-del-clima-para-manana-en-trujillo/)
@@ -1002,33 +1030,5 @@ Sin noticias relacionadas disponibles.
 - **Sassuolo-Juve diretta: segui la sfida di Serie A LIVE**: [Link](https://www.corrieredellosport.it/news/calcio/serie-a/2026/01/06-145675011/sassuolo-juve_diretta_segui_la_sfida_di_serie_a_live)
 - **Tutte le notizie sul calcio in Diretta**: [Link](https://www.diretta.it/news/calcio-live-news-in-campo-sassuolo-juventus-0-1-e-costa-d-avorio-burkina-faso-2-0/MsLpimyQ/)
 - **Serie A | Le formazioni ufficiali di Sassuolo-Juventus**: [Link](https://www.juventus.com/it/news/articoli/serie-a-2025-2026-sassuolo-juventus-formazioni-ufficiali)
-
-
-### sassuolo vs juventus (N/A, 06/01/2026 15:30 Lima)
-
-- **Sassuolo vs Juventus – Kelly & Conceicao left out of Bianconeri squad**: [Link](https://football-italia.net/sassuolo-vs-juventus-kelly-conceicao-left-out/)
-- **Preview: Sassuolo vs Juventus - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/sassuolo/preview/sassuolo-vs-juventus-prediction-team-news-lineups_589152.html)
-- **US Sassuolo Calcio vs Juventus: Preview and Prediction**: [Link](https://thehardtackle.com/round-up/2026/01/05/us-sassuolo-calcio-vs-juventus-preview-and-prediction/)
-
-
-### luis advíncula (N/A, 06/01/2026 15:30 Lima)
-
-- **Se filtró que Luis Advíncula fichará por Alianza Lima y ya tiene fecha de anuncio: “Con su entorno están últimando detalles”**: [Link](https://www.infobae.com/peru/deportes/2026/01/05/se-filtro-que-luis-advincula-fichara-por-alianza-lima-y-ya-tiene-fecha-de-anuncio-con-su-entorno-estan-ultimando-detalles/)
-- **Advíncula inició pretemporada en Boca: ¿Llega a Alianza Lima?**: [Link](https://www.americatv.com.pe/deportes/futbol-mundial/advincula-inicio-pretemporada-boca-llega-alianza-lima-n452217)
-- **Alianza Lima tomó una decisión final sobre Bryan Reyna y Fernando Pacheco**: [Link](https://bolavip.com/pe/alianza-lima/alianza-lima-tomo-una-decision-final-sobre-bryan-reyna-y-fernando-pacheco)
-
-
-### luca zidane (N/A, 06/01/2026 15:30 Lima)
-
-- **Watching his son. Legendary Zinedine Zidane attends CAF Algeria vs DR Congo match**: [Link](https://dailysports.net/news/watching-his-son-legendary-zinedine-zidane-attends-the-caf-algeria-vs-dr-congo-match/)
-- **Morocco Africa Cup of Nations Soccer**: [Link](https://www.wvnews.com/sports/pro/morocco-africa-cup-of-nations-soccer/image_0ded20e4-da5a-59e4-ad38-d9d3b45ba17e.html)
-- **Luca Zidane Shines as Algeria Proceeds to Afcon Knockouts with Family Support**: [Link](https://news.ssbcrack.com/luca-zidane-shines-as-algeria-proceeds-to-afcon-knockouts-with-family-support/)
-
-
-### lecce - roma (N/A, 06/01/2026 11:36 Lima)
-
-- **Lecce-Roma: le formazioni ufficiali**: [Link](https://www.asroma.com/it/notizie/74607/lecce-roma-le-formazioni-ufficiali)
-- **Roma, altri problemi in difesa per Gasperini: Rensch a rischio forfait per febbre**: [Link](https://www.ilmessaggero.it/sport/as_roma/rensch_roma_lecce_forfait_febbre_soule_gasperini_cosa_e_successo-9281882.html)
-- **Lecce Roma in tv e streaming: dove vedere la partita**: [Link](https://sport.sky.it/calcio/serie-a/2026/01/06/lecce-roma-dove-vedere-tv-streaming)
 
 
