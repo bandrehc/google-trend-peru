@@ -1,3 +1,73 @@
+### mazatlán - juárez (N/A, 09/01/2026 21:03 Lima)
+
+- **Liga MX: Mazatlán y FC Juárez abren el telón**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-mazatlan-y-fc-juarez-abren-el-telon-noticia-1670826)
+- **Mazatlán vs Juárez EN VIVO Online. Partido inaugural del Clausura 2026 de la Liga MX**: [Link](https://www.marca.com/mx/futbol/liga-mx/mazatlan-juarez/2026/01/10/01_0168_20260110_16906_10991-directo.html)
+- **⚽ ¡Es hoy, es hoy! Checa a qué HORA y CÓMO VER el Mazatlán vs Juárez de la Liga MX ⚓🆚🐴**: [Link](https://www.facebook.com/MilenioDiario/posts/-es-hoy-es-hoycheca-a-qu%C3%A9-hora-y-c%C3%B3mo-ver-el-mazatl%C3%A1n-vs-ju%C3%A1rez-de-la-liga-mx-/1355078436649624/)
+
+
+### alianza lima (N/A, 09/01/2026 21:03 Lima)
+
+- **¡Rayo blanquiazul! Luis Advíncula es oficialmente nuevo jugador de Alianza Lima**: [Link](https://depor.com/futbol-peruano/descentralizado/alianza-lima-luis-advincula-nuevo-jugador-blanquiazul-tiempo-de-contrato-y-presentacion-en-redes-sociales-liga-1-fichajes-2026-noticia/)
+- **Advíncula 2028: la historia detrás de un fichaje que se negoció 4 meses, cuánto costó realmente y por qué Alianza sería su último club**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/alianza-lima-luis-advincula-2028-la-historia-detras-de-un-fichaje-que-se-negocio-4-meses-cuanto-costo-realmente-y-por-que-alianza-seria-su-ultimo-club-liga-1-tlcnota-noticia/)
+- **El regreso de Advíncula**: [Link](https://elperuano.pe/noticia/286697-el-regreso-de-advincula)
+
+
+### alianza lima vs (N/A, 09/01/2026 21:03 Lima)
+
+- **A qué hora juega Alianza Lima vs Independiente: debut ‘blanquiazul’ en la Serie Río de la Plata 2026**: [Link](https://www.infobae.com/peru/deportes/2026/01/09/a-que-hora-juega-alianza-lima-vs-independiente-hoy-partido-debut-fecha-1-serie-rio-de-la-plata-2026-horario/)
+- **Alianza Lima define su primer 11 del 2026: el posible equipo de Pablo Guede ante Independiente por Serie Río de La Plata**: [Link](https://larepublica.pe/deportes/2026/01/09/alineaciones-alianza-lima-independiente-amistoso-internacional-por-serie-rio-de-la-plata-2026-329481)
+- **Néstor Grindetti, presidente de Independiente de Avellaneda, sobre Alianza Lima: “Es una de las instituciones más prestigiosas de Sudamérica”**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/nestor-grindetti-presidente-de-independiente-de-avellaneda-sobre-alianza-lima-es-una-de-las-instituciones-mas-prestigiosas-de-sudamerica-serie-rio-de-la-plata-noticia/)
+
+
+### ozempic (N/A, 09/01/2026 21:03 Lima)
+
+- **Many people who come off GLP-1 drugs regain weight within 2 years, review suggests**: [Link](https://www.cnn.com/2026/01/08/health/weight-loss-drugs-regain-scli-intl-wellness)
+- **People coming off weight-loss injections risk fast weight gain**: [Link](https://www.bbc.com/news/articles/c050ljnrv2qo)
+- **Former GLP-1 users regain lost weight after about 18 months, study says**: [Link](https://www.washingtonpost.com/wellness/2026/01/08/ozempic-wegovy-weight-regain-glp1/)
+
+
+### liga mx (N/A, 09/01/2026 21:03 Lima)
+
+- **Tijuana vs América: posibles alineaciones de la Jornada 1**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/16160125/tijuana-vs-america-clausura-2026-alineaciones-horarios-jornada-1)
+- **Qué canal pasa Xolos vs América hoy: dónde ver GRATIS y EN VIVO el partido de la Liga MX**: [Link](https://www.365scores.com/es/news/xolos-vs-america-donde-ver-gratis-vivo/)
+- **Liga MX: Tijuana y Club América juegan su primer encuentro**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-tijuana-y-club-america-juegan-su-primer-encuentro-noticia-1670845)
+
+
+### groenlandia (N/A, 09/01/2026 21:03 Lima)
+
+- **Donald Trump: "Vamos a hacer algo con Groenlandia, ya sea por las buenas o por las malas"**: [Link](https://rpp.pe/mundo/actualidad/donald-trump-vamos-a-hacer-algo-con-groenlandia-ya-sea-por-las-buenas-o-por-las-malas-noticia-1670997)
+- **Trump pone a Groenlandia en la mira tras la caída de Maduro y genera tensión en Europa**: [Link](https://caretas.pe/mundo/trump-pone-a-groenlandia-en-la-mira-tras-la-caida-de-maduro-y-genera-tension-en-europa/)
+- **Donald Trump pone en jaque a la OTAN y exige el control de Groenlandia: Aquí las claves de su deseo**: [Link](https://www.atv.pe/noticia/donald-trump-pone-en-jaque-a-la-otan-y-exige-el-control-de-groenlandia-aqui-las-claves-de-su-deseo/)
+
+
+### ley 32551 (N/A, 09/01/2026 21:03 Lima)
+
+- **Congreso promulga Ley que garantiza la continuidad académica de los docentes universitarios nombrados**: [Link](https://comunicaciones.congreso.gob.pe/noticias/congreso-promulga-ley-que-garantiza-la-continuidad-academica-de-los-docentes-universitarios-nombrados/)
+- **Ley 32551: Modifican la Ley Universitaria para garantizar la continuidad académica de docentes universitarios nombrados bajo la derogada Ley 23733**: [Link](https://lpderecho.pe/ley-32551-modifican-la-ley-universitaria-para-garantizar-la-continuidad-academica-de-docentes-universitarios-nombrados-bajo-la-derogada-ley-23733/)
+- **Estas son las normas legales más importantes del viernes 9 de enero del 2026**: [Link](https://andina.pe/agencia/noticia-estas-son-las-normas-legales-mas-importantes-del-viernes-9-enero-del-2026-1058642.aspx)
+
+
+### volcan sabancaya (N/A, 09/01/2026 21:03 Lima)
+
+- **Indeci alerta explosión del Volcán Sabancaya en la provincia de Caylloma, Arequipa**: [Link](https://larepublica.pe/sociedad/2026/01/09/indeci-alerta-explosion-del-volcan-sabancaya-en-la-provincia-de-caylloma-arequipa-815292)
+- **Volcán Sabancaya: alerta por dispersión de cenizas y emisión de gases**: [Link](https://andina.pe/agencia/noticia-volcan-sabancaya-alerta-dispersion-cenizas-y-emision-gases-1058746.aspx)
+- **Volcán Sabancaya activa alerta naranja en Arequipa tras explosión con emisión de cenizas y gases**: [Link](https://www.infobae.com/peru/2026/01/10/volcan-sabancaya-activa-alerta-naranja-en-arequipa-tras-explosion-con-emision-de-cenizas-y-gases/)
+
+
+### minedu contrato docente 2026 (N/A, 09/01/2026 21:03 Lima)
+
+- **Plazas docentes: requisitos para las contrataciones y renovaciones**: [Link](https://www.elperuano.pe/noticia/286676-plazas-docentes-requisitos-para-las-contrataciones-y-renovaciones)
+- **Renovación del contrato docente 2026: El Minedu detalla los pasos que debes seguir, etapas y requisitos para asegurar plaza como maestro**: [Link](https://elcomercio.pe/respuestas/tramites/renovacion-del-contrato-docente-2026-el-minedu-detalla-los-pasos-que-debes-seguir-etapas-y-requisitos-para-asegurar-plaza-como-maestro-tdpe-noticia/)
+- **Año escolar 2026: Minedu contratará a 9 mil auxiliares, profesionales y estudiantes de Educación**: [Link](https://www.infobae.com/peru/2026/01/04/ano-escolar-2026-minedu-contratara-a-9-mil-auxiliares-profesionales-y-estudiantes-de-educacion/)
+
+
+### primero la gente (N/A, 09/01/2026 21:03 Lima)
+
+- **JNE declara fundada apelación de Primero la Gente contra resolución que declaró improcedente inscripción de fórmula presidencial**: [Link](https://rpp.pe/politica/elecciones/jne-declara-fundada-apelacion-de-primero-la-gente-contra-resolucion-que-declaro-improcedente-inscripcion-de-formula-presidencial-noticia-1670877)
+- **JNE declara fundada la apelación de Primero La Gente y Marisol Pérez Tello sigue en carrera**: [Link](https://www.infobae.com/peru/2026/01/09/jne-declara-fundada-la-apelacion-de-primero-la-gente-y-marisol-perez-tello-sigue-en-carrera/)
+- **Elecciones 2026: JNE admite apelación de Primero la Gente**: [Link](https://andina.pe/agencia/noticia-elecciones-2026-jne-admite-apelacion-primero-gente-1058630.aspx)
+
+
 ### brahim díaz (N/A, 09/01/2026 15:30 Lima)
 
 - **MATCH STATS: Cameroon vs Morocco – TotalEnergies CAF Africa Cup of Nations Morocco 2025 Quarter-final**: [Link](https://www.cafonline.com/afcon2025/news/match-stats-cameroon-vs-morocco-totalenergies-caf-africa-cup-of-nations-morocco-2025-quarter-final/)
@@ -962,75 +1032,5 @@ Sin noticias relacionadas disponibles.
 - **Apuestas y Pronóstico del Granada vs Rayo Vallecano 06/01/26**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/2026/enero/pronostico-granada-vs-rayo-vallecano-06-01-26)
 - **El Granada, a ahogar las penas en la Copa**: [Link](https://www.granadaenjuego.com/Granada-CF/el-granada--a-ahogar-las-penas-en-la-copa-)
 - **Un partido copero del Granada CF marcado por el ambiente gélido en distintos aspectos**: [Link](https://www.ideal.es/granadacf/partido-copero-granada-marcado-ambiente-gelido-distintos-20260104190630-nt.html)
-
-
-### liga 1 (N/A, 06/01/2026 07:56 Lima)
-
-- **Inicio de la Liga 1 2026 corre peligro: 1190 Sports aún no corrige deudas a los clubes**: [Link](https://depor.com/futbol-peruano/descentralizado/liga-1-2026-inicio-del-torneo-apertura-se-veria-aplazado-por-las-deudas-que-mantiene-1190-sports-con-los-clubes-noticia/)
-- **Liga 1 envuelta en problemas serios por deudas y se estaría suspendiendo el inicio del campeonato**: [Link](https://bolavip.com/pe/liga-1/liga-1-envuelta-en-problemas-serios-por-deudas-y-se-estaria-suspendiendo-el-inicio-del-campeonato)
-- **Inicio de la Liga 1 2026 podría postergarse porque 1190 Sports no corrige deudas con clubes: "No nos pagan hace dos años"**: [Link](https://willax.pe/deportes/inicio-liga-1-2026-postergacion-deudas-1190-sports-willax)
-
-
-### normas legales (N/A, 06/01/2026 07:56 Lima)
-
-- **Conoce la Política Nacional de Comercio Exterior al 2040 y cómo impacta tus actividades económicas**: [Link](https://www.elperuano.pe/noticia/286486-conoce-la-politica-nacional-de-comercio-exterior-al-2040-y-como-impacta-tus-actividades-economicas)
-- **Perú publica su Política Nacional de Comercio Exterior para alcanzar exportaciones por más de US$140.000 millones al 2040**: [Link](https://www.infobae.com/peru/2026/01/05/peru-publica-su-politica-nacional-de-comercio-exterior-al-2040-y-buscara-pasar-del-023-a-03-su-peso-en-el-intercambio-global/)
-- **Consulta las normas legales más importantes de hoy, lunes 5 de enero de 2026**: [Link](https://www.tvperu.gob.pe/noticias/politica/consulta-las-normas-legales-mas-importantes-de-hoy-lunes-5-de-enero-de-2026)
-
-
-### nicolás maduro venezuela (N/A, 06/01/2026 07:56 Lima)
-
-- **"Fui secuestrado y sigo siendo el presidente": Nicolás Maduro se declara no culpable ante el tribunal de Nueva York**: [Link](https://www.bbc.com/mundo/articles/cwy181xwl42o)
-- **Grilletes, abucheos y un saludo de “happy new year”: los detalles de la comparecencia de Nicolás Maduro y Cilia Flores en Nueva York**: [Link](https://www.infobae.com/estados-unidos/2026/01/05/grilletes-abucheos-y-un-saludo-de-happy-new-year-los-detalles-de-la-comparecencia-de-nicolas-maduro-y-cilia-flores-en-nueva-york/)
-- **Quién es Barry Pollack, el abogado de Maduro que asistió a Julian Assange en el caso “WikiLeaks”**: [Link](https://cnnespanol.cnn.com/2026/01/05/venezuela/quien-es-barry-pollack-abogado-maduro-efe)
-
-
-### minedu contrato docente 2026 (N/A, 06/01/2026 03:38 Lima)
-
-- **¿Eres docente? Conoce cómo postular o renovar tu contrato este 2025**: [Link](https://www.elperuano.pe/noticia/286320-eres-docente-conoce-como-postular-o-renovar-tu-contrato-este-2025)
-- **Estas son las normas legales más importantes del viernes 2 de enero del 2026**: [Link](https://andina.pe/agencia/noticia-estas-son-las-normas-legales-mas-importantes-del-viernes-2-enero-del-2026-1057770.aspx)
-- **Consulta las normas legales más importantes de hoy, viernes 2 de enero de 2026**: [Link](https://www.radionacional.gob.pe/noticias/politica/consulta-las-normas-legales-mas-importantes-de-hoy-viernes-2-de-enero-de-2026)
-
-
-### cotización del dólar hoy (N/A, 06/01/2026 03:38 Lima)
-
-- **Precio del dólar al inicio del 2026: Así cerró el tipo de cambio hoy 5 de enero en Perú**: [Link](https://www.infobae.com/peru/2026/01/05/dolar-cotizacion-de-apertura-hoy-5-de-enero-en-peru/)
-- **Dólar, cotización HOY en Perú: ¿cuál es el tipo de cambio este lunes 5 de enero de 2026?**: [Link](https://www.expreso.com.pe/economia/dolar-cotizacion-hoy-en-peru-cual-es-el-tipo-de-cambio-este-lunes-5-de-enero-de-2026-sunat-mef-bcrp-ultima-hora-ultimo-minuto-soles-divisa-noticia/1252586/)
-- **Precio del dólar en Perú HOY, lunes 5 de enero: ¿cuál es la cotización del tipo de cambio?**: [Link](https://larepublica.pe/economia/precio-del-dolar/2026/01/05/precio-del-dolar-hoy-en-peru-5-de-enero-2026-cotizacion-de-compra-y-venta-segun-bcr-y-tasa-de-cambio-dolares-a-soles-ocona-dolar-bloomberg-atmp-206960)
-
-
-### warriors (N/A, 06/01/2026 03:38 Lima)
-
-- **He’s likely in for a hefty punishment: he completely snaps and charges out of the bench at the referee!**: [Link](https://www.mundodeportivo.com/us/en/20260106/737471/he-s-likely-in-for-hefty-punishment-he-completely-snaps-and-charges-out-of-the-bench-at-the-referee.html)
-- **Terry Stotts steps in for Steve Kerr presser to save Warriors coach ‘money'**: [Link](https://www.nbcsportsbayarea.com/video/nba/golden-state-warriors/terry-stotts-presser-watch/1905010/)
-- **Clippers, without James Harden, maintain hot streak vs. Warriors**: [Link](https://www.reuters.com/sports/clippers-without-james-harden-maintain-hot-streak-vs-warriors-2026-01-06/)
-
-
-### aryna sabalenka (N/A, 05/01/2026 23:43 Lima)
-
-- **A Grand Slam-worthy start: Seven Top 10 stars headline Brisbane International**: [Link](https://www.wtatennis.com/news/4427367/brisbane-preview)
-- **Highlights: Nakashima upsets Davidovich Fokina in Brisbane 2026 opener**: [Link](https://www.atptour.com/en/video/highlights-nakashima-upsets-davidovich-fokina-in-brisbane-2026-opener)
-- **Brisbane International 2026: Prize Money for First WTA 500 Event of the Year**: [Link](https://sports.betmgm.com/en/blog/wta/brisbane-international-prize-money-tennis-payouts-bm06/)
-
-
-### david bisbal (N/A, 05/01/2026 23:43 Lima)
-
-- **David Bisbal: “En mi infancia, los que nos regalaban eran los Reyes Magos, no Papá Noel. El mejor regalo fue un disfraz de Superman”**: [Link](https://www.lecturas.com/actualidad/david-bisbal-sobre-su-infancia-que-nos-regalaban-eran-reyes-magos-no-papa-noel-mejor-regalo-fue-disfraz-superman_186768)
-- **Destacado cantante en Chile comparte emotiva charla con su padre enfermo de Alzheimer: "Dame un abrazo, vamos"**: [Link](https://www.fmdos.cl/noticias/destacado-cantante-en-chile-comparte-emotiva-charla-con-su-padre-enfermo-de-alzheimer-dame-un-abrazo-vamos/)
-- **¡Una conversación que conmueve al mundo! así fue el encuentro de David Bisbal con su padre que padece Alzheimer**: [Link](https://2001online.com/farandula/una-conversacion-que-conmueve-al-mundo-asi-fue-el-encuentro-de-david-bisbal-con-su-padre-que-padece-alzheimer-20261511310)
-
-
-### clippers - warriors (N/A, 05/01/2026 23:43 Lima)
-
-- **Live Updates: Warriors-Clippers highlights eight-game night**: [Link](https://www.nba.com/news/live-updates-warriors-clippers-highlights-eight-game-night)
-- **Fanatics Sportsbook promo code NYPOST: Get up to $2,000 in FanCash for Warriors vs. Clippers**: [Link](https://nypost.com/2026/01/05/betting/fanatics-sportsbook-promo-code-nypost-get-up-to-2000-in-fancash-for-warriors-vs-clippers/)
-- **Is Stephen Curry playing tonight vs te Los Angeles Clippers? Latest update on the Golden State Warriors s**: [Link](https://timesofindia.indiatimes.com/sports/nba/top-stories/is-stephen-curry-playing-tonight-vs-te-los-angeles-clippers-latest-update-on-the-golden-state-warriors-stars-injury-report-january-5-2026/articleshow/126363368.cms)
-
-
-### pedro el escamoso (N/A, 05/01/2026 23:43 Lima)
-
-- **Pedro el Escamoso vuelve HOY a las pantallas de ATV desde las 10:00 P.M.**: [Link](https://www.atv.pe/noticia/pedro-el-escamoso-llega-a-las-pantallas-de-atv-este-5-de-enero/)
-- **¡Pedro el escamoso 2! Reviva el inicio de la nueva temporada**: [Link](https://www.atv.pe/noticia/pedro-el-escamoso-2-reviva-el-inicio-de-la-nueva-temporada/)
-- **Pedro el escamoso 2: Pedro sufre cómico rechazo al no ser reconocido por su hijo**: [Link](https://www.atv.pe/noticia/pedro-el-escamoso-2-pedro-sufre-comico-rechazo-al-no-ser-reconocido-por-su-hijo/)
 
 
