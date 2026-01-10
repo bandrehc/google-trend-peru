@@ -1,3 +1,59 @@
+### kick (N/A, 09/01/2026 23:37 Lima)
+
+- **Victor Wembanyama shows knee is fine by doing something that shouldn't be physically possible**: [Link](https://sports.yahoo.com/nba/article/victor-wembanyama-shows-knee-is-fine-by-doing-something-that-shouldnt-be-physically-possible-032839987.html)
+- **Victor Wembanyama 'Confident' He Can Break World Record After Viral Video of High Kick**: [Link](https://bleacherreport.com/articles/25354674-victor-wembanyama-confident-he-can-break-world-record-after-viral-video-high-kick)
+- **Spurs Star Victor Wembanyama May Be Able To Break a Guinness World Record, and It Has Nothing To Do With Basketball**: [Link](https://www.profootballnetwork.com/nba/spurs-victor-wembanyama-may-break-guinness-wr-not-basketball-related/)
+
+
+### bucks - lakers (N/A, 09/01/2026 23:37 Lima)
+
+- **Milwaukee Bucks vs Los Angeles Lakers Prediction, Pick, Odds -- 1/9**: [Link](https://www.actionnetwork.com/nba/milwaukee-bucks-vs-los-angeles-lakers-prediction-pick-odds-friday-january-9)
+- **3 things to watch in Bucks-Lakers on NBA TV**: [Link](https://www.nba.com/news/3-things-to-watch-in-bucks-lakers-on-nba-tv-2)
+- **Here is the Bucks' injury report for Friday's game …**: [Link](https://sports.yahoo.com/articles/bucks-injury-report-fridays-game-021055037.html)
+
+
+### universitario (N/A, 09/01/2026 23:37 Lima)
+
+- **Universitario se retractó de palabras de Álvaro Barco contra 1190 Sports y FPF, pero dejó firme mensaje sobre derechos de TV**: [Link](https://www.infobae.com/peru/deportes/2026/01/09/universitario-se-retracto-de-palabras-de-alvaro-barco-contra-1190-sports-y-fpf-pero-dejo-firme-mensaje-sobre-derechos-de-tv/)
+- **Fernando Cabada anunció giro clave en Liga 1 y acuerdo con 1190 Sports**: [Link](https://depor.com/futbol-peruano/descentralizado/fernando-cabada-revela-acuerdos-con-1190-sports-y-cambios-clave-en-la-liga-1-federacion-peruana-de-futbol-alianza-lima-noticia/)
+- **“La FPF nos entregó un cadáver”: la rebelión de los clubes y el pacto con 1190 Sports por los derechos de TV para que la Liga 1 no se aplace**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/la-fpf-nos-entrego-un-cadaver-la-rebelion-de-los-clubes-y-el-pacto-con-1190-sports-por-los-derechos-de-tv-para-que-la-liga-1-no-se-aplace-tlcnota-noticia/)
+
+
+### kings - warriors (N/A, 09/01/2026 23:37 Lima)
+
+- **Warriors lean on veterans for visit from slumping Kings**: [Link](https://www.thesportsleader.com/2026/01/08/warriors-lean-on-veterans-for-visit-from-slumping-kings/)
+- **Is Stephen Curry playing tonight vs the Sacramento Kings? Latest update on the Golden State Warriors host**: [Link](https://timesofindia.indiatimes.com/sports/nba/top-stories/is-stephen-curry-playing-tonight-vs-the-sacramento-kings-latest-update-on-the-golden-state-warriors-host-the-on-friday-january-9-2026/articleshow/126445693.cms)
+- **LIVE Warriors vs Kings Live On Free NBA Basketball Game 2025**: [Link](https://www.westernwheel.ca/classifieds/announcements-and-events/volunteers-needed/2078538)
+
+
+### christina aguilera (N/A, 09/01/2026 23:37 Lima)
+
+- **Christina Aguilera, Calvin Harris to headline Sips & Sounds Music Festival at Auditorium Shores**: [Link](https://www.kvue.com/article/entertainment/events/sips-sounds-music-festival-austin-headliners/269-d222a2ff-5143-4ab9-b387-36ba8264e5e1)
+- **Tag Archives: Flipturn**: [Link](https://theearlyregistration.com/tag/flipturn/)
+- **Sips & Sounds is returning to Austin with Christina Aguilera and Calvin Harris**: [Link](https://www.melodicmag.com/news/sips-sounds-is-returning-to-austin-with-christina-aguilera-and-calvin-harris/)
+
+
+### atlas vs (N/A, 09/01/2026 23:37 Lima)
+
+- **Qué canal pasa Atlas vs Puebla hoy: dónde ver GRATIS y EN VIVO el partido de la Liga MX**: [Link](https://www.365scores.com/es/news/atlas-vs-puebla-donde-ver-gratis-vivo/)
+- **Liga MX: Puebla debuta en el campeonato ante Atlas**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-puebla-debuta-en-el-campeonato-ante-atlas-noticia-1670844)
+- **Zorro ajustado**: [Link](https://www.mural.com.mx/zorro-ajustado-2026-01-09/op306294)
+
+
+### tijuana - américa (N/A, 09/01/2026 23:37 Lima)
+
+- **Transmisión EN VIVO del Xolos vs América hoy: cómo mirar el partido por TV o streaming**: [Link](https://www.365scores.com/es/news/xolos-vs-america-como-ver-transmision/)
+- **Liga MX: Tijuana y Club América juegan su primer encuentro**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-tijuana-y-club-america-juegan-su-primer-encuentro-noticia-1670845)
+- **¿A qué hora juega Tijuana vs América HOY y dónde ver EN VIVO el partido por Clausura de Liga MX?**: [Link](https://libero.pe/futbol-internacional/liga-mx/2026/01/08/hora-juega-tijuana-vs-america-donde-ver-canal-de-transmision-clausura-de-liga-mx-2026-273136)
+
+
+### thunder - grizzlies (N/A, 09/01/2026 23:37 Lima)
+
+- **Thunder vs Grizzlies Picks & Odds Today: OKC Depleted On Road With Tight Spread**: [Link](https://www.oddsshark.com/nba/thunder-grizzlies-picks-odds-january-9-2026)
+- **Jalen Williams leads comeback in win against Memphis**: [Link](https://www.hoopshype.com/story/sports/nba/rumors/2026/01/09/jalen-williams-leads-comeback-in-win-against-memphis/88113425007/)
+- **Jalen Williams goes for 26 points vs. Grizzlies**: [Link](https://www.nba.com/watch/video/highlights-from-jalen-williams-26-point-game)
+
+
 ### mazatlán - juárez (N/A, 09/01/2026 21:03 Lima)
 
 - **Liga MX: Mazatlán y FC Juárez abren el telón**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-mazatlan-y-fc-juarez-abren-el-telon-noticia-1670826)
@@ -976,61 +1032,5 @@ Sin noticias relacionadas disponibles.
 - **Argelia vs RD Congo: Alineaciones, estadísticas y pronóstico**: [Link](https://www.365scores.com/es/football/match/africa-cup-of-nations-167/algeria-dr-congo-5109-14650-167)
 - **Argelia vs República Democrática del Congo, en directo: Copa de África hoy, en vivo**: [Link](https://as.com/futbol/internacional/argelia-vs-republica-democratica-del-congo-en-directo-copa-de-africa-hoy-en-vivo-f202601-n/)
 - **FBI elogia la organización de la seguridad en la Copa África-Marruecos**: [Link](https://es.rue20.com/2026/01/05/fbi-elogia-la-organizacion-de-la-seguridad-en-la-copa-africa-marruecos/)
-
-
-### fernando carrillo (N/A, 06/01/2026 11:36 Lima)
-
-- **Fernando Carrillo, el actor de telenovelas que le rompió el corazón a Delcy Rodríguez**: [Link](https://peru21.pe/celebridades/fernando-carrillo-el-actor-que-fue-pareja-de-delcy-rodriguez/)
-- **Fernando Carrillo, exgalán de Thalía, recordó noviazgo que tuvo con presidenta de Venezuela**: [Link](https://www.elespectador.com/revista-vea/famosos/fernando-carrillo-exgalan-de-thalia-recordo-noviazgo-que-tuvo-con-presidenta-de-venezuela/)
-- **Fernando Carrillo sale en defensa de Delcy Rodríguez: "La traición no vino por ahí"**: [Link](https://okdiario.com/look/actualidad/fernando-carillo-sale-defensa-delcy-rodriguez-traicion-no-vino-ahi-2462904)
-
-
-### concierto bad bunny peru (N/A, 06/01/2026 11:36 Lima)
-
-- **Fans de Bad Bunny ya acampan en los exteriores del Estadio Nacional a días de su regreso a Lima [VIDEO]**: [Link](https://rpp.pe/musica/conciertos/bad-bunny-en-lima-fans-ya-acampan-en-los-alrededores-del-estadio-nacional-video-noticia-1670455)
-- **Bad Bunny en Lima: fanáticos inician acampada en el Estadio Nacional a 11 días del concierto**: [Link](https://caretas.pe/nacional/bad-bunny-en-lima-fanaticos-inician-acampada-en-el-estadio-nacional-a-11-dias-del-concierto/)
-- **Usuaria capta a fans de Bad Bunny acampando 10 días antes de su concierto en el Estadio Nacional y redes estallan: "¿No tienen nada que hacer?"**: [Link](https://larepublica.pe/entretenimiento/2026/01/05/usuaria-capta-a-fans-de-bad-bunny-acampando-10-dias-antes-de-su-concierto-en-el-estadio-nacional-y-redes-estallan-no-tienen-nada-que-hacer-atmp-441790)
-
-
-### como vs (N/A, 06/01/2026 11:36 Lima)
-
-- **Serie A: Why is Pisa v Como taking place on Tuesday afternoon?**: [Link](https://www.bbc.com/sport/football/articles/cgez95e9xnvo)
-- **Where to watch Serie A, live stream, schedule: Parma vs. Inter, AC Milan vs. Genoa and more**: [Link](https://www.cbssports.com/soccer/news/where-to-watch-serie-a-live-stream-schedule-2026-ac-milan-parma-inter/)
-- **Pisa-Como: Match Preview**: [Link](https://comofootball.com/en/pisa-como-matchpreview/)
-
-
-### amistosos (N/A, 06/01/2026 11:36 Lima)
-
-- **Plan de actividades del primer equipo de Universitario de Deportes**: [Link](https://universitario.pe/noticias/pretemporada/plan-de-actividades-del-primer-equipo-de-universitario-de-deportes-4)
-- **Inició la nueva era en Universitario: Javier Rabanal y su primer entrenamiento en Campo Mar 'U'**: [Link](https://rpp.pe/futbol/descentralizado/universitario-javier-rabanal-y-su-primer-entrenamiento-en-campo-mar-u-noticia-1670424)
-- **La frase que dio la bienvenida a los tricampeones y el plan de Sergi López para perfeccionar el rendimiento físico del plantel: Lo que no se vio del primer día de pretemporada de la ‘U’**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/universitario-hoy-la-frase-que-dio-la-bienvenida-a-los-tricampeones-y-el-plan-de-sergi-lopez-para-perfeccionar-el-rendimiento-fisico-del-plantel-lo-que-no-se-vio-del-primer-dia-de-pretemporada-de-la-u-liga-1-tlcnota-noticia/)
-
-
-### jayne trcka (N/A, 06/01/2026 11:36 Lima)
-
-- **Bodybuilder Jayne Trcka Who Played Miss Mann in 'Scary Movie' Dead at 62**: [Link](https://www.tmz.com/2026/01/05/jayne-trcka-dead/)
-- **'Scary Movie' actress and bodybuilder Jayne Trcka dead at 62**: [Link](https://www.usatoday.com/story/entertainment/celebrities/2026/01/06/jayne-trcka-death-scary-movie/88044251007/)
-- **'Scary Movie' actress and bodybuilder Jayne Trcka dead at 62**: [Link](https://nz.news.yahoo.com/scary-movie-actress-bodybuilder-jayne-141505299.html)
-
-
-### pisa - como (N/A, 06/01/2026 11:36 Lima)
-
-- **El vuelo del Como pasa por Pisa**: [Link](https://as.com/futbol/el-vuelo-del-como-hacia-arriba-pasa-por-pisa-f202601-n/)
-- **VIDEO: Máximo Perrone convirtió para Como ante Pisa**: [Link](https://www.espn.com.ar/futbol/italia/nota/_/id/16151481/maximo-perrone-gol-pisa-como-serie-a)
-- **Serie A: Pisa se enfrenta ante la visita Como 1907 por la fecha 19**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-pisa-se-enfrenta-ante-la-visita-como-1907-por-la-fecha-19-noticia-1670296)
-
-
-### 6 de enero es feriado (N/A, 06/01/2026 07:56 Lima)
-
-- **¿El 6 de enero es feriado en Perú? Esto se sabe del día de Bajada de Reyes por la norma en El Peruano**: [Link](https://www.infobae.com/peru/2026/01/05/manana-6-de-enero-es-feriado-en-peru-esto-se-sabe-del-dia-de-bajada-de-reyes-por-la-norma-en-el-peruano/)
-- **Mañana, 6 de enero no es feriado ni día NO laborable en el PERÚ y esta es la razón**: [Link](https://elcomercio.pe/respuestas/cuando/el-6-de-enero-no-es-feriado-ni-dia-no-laborable-en-el-peru-y-esta-es-la-razon-bajada-de-reyes-tdpe-noticia/)
-- **¿El 6 de enero es día no laborable? Esto es lo que dice El Peruano**: [Link](https://peru21.pe/peru/el-6-de-enero-es-dia-no-laborable-esto-es-lo-que-dice-el-peruano/)
-
-
-### copa del rey (N/A, 06/01/2026 07:56 Lima)
-
-- **Apuestas y Pronóstico del Granada vs Rayo Vallecano 06/01/26**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/2026/enero/pronostico-granada-vs-rayo-vallecano-06-01-26)
-- **El Granada, a ahogar las penas en la Copa**: [Link](https://www.granadaenjuego.com/Granada-CF/el-granada--a-ahogar-las-penas-en-la-copa-)
-- **Un partido copero del Granada CF marcado por el ambiente gélido en distintos aspectos**: [Link](https://www.ideal.es/granadacf/partido-copero-granada-marcado-ambiente-gelido-distintos-20260104190630-nt.html)
 
 
