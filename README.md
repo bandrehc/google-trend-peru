@@ -1,3 +1,30 @@
+### naruto (N/A, 10/01/2026 23:51 Lima)
+
+- **Jujutsu Kaisen season 3 brings back Maki, but why does she look so different?**: [Link](https://www.polygon.com/maki-transformation-jujutsu-kaisen-season-3-premiere/)
+- **[Interview] JJK Season 3 Pushes Yuji into the Darkest Phase of His Journey: Adam McArthur (Yuji’s English VA)**: [Link](https://beebom.com/jujutsu-kaisen-season-3-pushes-yuji-into-darkest-phase-of-journey-adam-mcarthur-yujis-english-va/)
+- **5 Anime Shows Like Jujutsu Kaisen You Need To Watch ASAP**: [Link](https://www.herzindagi.com/tv-ott/anime-shows-like-jujutsu-kaisen-you-need-to-watch-article-1052310)
+
+
+### monterrey vs (N/A, 10/01/2026 23:51 Lima)
+
+- **Transmisión EN VIVO del Monterrey vs Toluca hoy: cómo mirar el partido por TV o streaming**: [Link](https://www.365scores.com/es/news/monterrey-vs-toluca-mirar-transmision/)
+- **Liga MX: CF Monterrey y Toluca FC juegan la Fecha 1 del campeonato**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-cf-monterrey-y-toluca-fc-juegan-la-fecha-1-del-campeonato-noticia-1671003)
+- **RAYADOS BUSCA MANTENER UN BALANCE POSITIVO EN SUS DEBUTS EN CASA**: [Link](https://onefootball.com/es/noticias/rayados-busca-mantener-un-balance-positivo-en-sus-debuts-en-casa-42209350)
+
+
+### andy bell (N/A, 10/01/2026 23:51 Lima)
+
+- **Andy Bell en Perú: ¡Encuentra aquí el posible setlist de su próximo concierto en Lima!**: [Link](https://blog.joinnus.com/andy-bell-en-peru-encuentra-aqui-el-posible-setlist-de-su-proximo-concierto-en-lima/)
+- **Andy Bell en Perú: 5 temazos del vocalista de Erasure que queremos escuchar en vivo**: [Link](https://blog.joinnus.com/andy-bell-en-peru-5-temazos-del-vocalista-de-erasure-que-queremos-escuchar-en-vivo/)
+
+
+### u vs (N/A, 10/01/2026 23:51 Lima)
+
+- **Universitario vs Soan EN VIVO HOY: punto a punto del partido por fecha 1 de la fase 2 de Liga Peruana de vóley 2025/2026**: [Link](https://www.infobae.com/peru/deportes/2026/01/09/universitario-vs-soan-en-vivo-hoy-latina-tv-fecha-1-fase-2-liga-peruana-de-voley-2025-2026-resumen-resultado/)
+- **San Martín superó a Olva Latino en la Liga Peruana de Vóley**: [Link](https://ovacion.pe/noticias/voley-apuesta-total/san-martin-supero-olva-latino-liga-peruana-voley)
+- **Busca el tricampeonato: Alianza Lima entrena con miras a inicio de la fase 2 de la Liga Peruana de Vóley**: [Link](https://rpp.pe/voley/mas-voley/alianza-lima-entrena-con-miras-a-inicio-de-la-fase-2-de-la-liga-peruana-de-voley-noticia-1670550)
+
+
 ### cruz azul vs (N/A, 10/01/2026 21:23 Lima)
 
 - **León vs Cruz Azul hoy: Resultado EN VIVO, minuto a minuto y goles de la Liga MX**: [Link](https://www.365scores.com/es/news/leon-vs-cruz-azul-resultado-vivo-goles/)
@@ -1004,31 +1031,5 @@
 - **Apuestas y Pronóstico del Parma vs Inter 07/01/26**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/2026/enero/pronostico-parma-vs-inter-07-01-26)
 - **Serie A: Inter va en busca del triunfo ante Parma para mantenerse en la cima**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-inter-va-en-busca-del-triunfo-ante-parma-para-mantenerse-en-la-cima-noticia-1670467)
 - **Inter FC, Frattesi no viaja a Parma: leve sobrecarga en el aductor**: [Link](https://www.todomercadoweb.es/serie-a/inter-fc-frattesi-no-viaja-a-parma-leve-sobrecarga-en-el-aductor-533951)
-
-
-### unai simón (N/A, 07/01/2026 15:31 Lima)
-
-- **Joan García discute el puesto a Unai Simón, debate en directo con AS: ¡manda tu pregunta u opinión y participa!**: [Link](https://as.com/futbol/seleccion/joan-garcia-discute-el-puesto-a-unai-simon-debate-en-directo-con-as-manda-tu-pregunta-u-opinion-y-participa-f202601-d/)
-- **Joan García: "Todo jugador quiere ir a la selección"**: [Link](https://www.marca.com/futbol/barcelona/2026/01/06/joan-garcia-jugador-quiere-seleccion.html)
-- **Joan Garcia: "Mi objetivo no es el Mundial, es seguir mejorando"**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20260106/1002596747/joan-garcia-mi-objetivo-mundial-seguir-mejorando.html)
-
-
-### max alleyne (N/A, 07/01/2026 15:31 Lima)
-
-- **Pep Guardiola predicts impact of injuries as Manchester City draw emergency transfer plans**: [Link](https://onefootball.com/pt-br/noticias/pep-guardiola-predicts-impact-of-injuries-as-manchester-city-draw-emergency-transfer-plans-42193340)
-- **Who's Missing: Manchester City facing defensive injury crisis for Brighton meeting**: [Link](https://www.flashscore.com/news/soccer-premier-league-who-s-missing-manchester-city-facing-defensive-injury-crisis-for-brighton-meeting/zcoun33D/)
-- **Guardiola talks about injuries and transfers ahead of Brighton**: [Link](https://zamin.uz/en/sport/180883-guardiola-talks-about-injuries-and-transfers-ahead-of-brighton.html)
-
-
-### raphinha (N/A, 07/01/2026 15:31 Lima)
-
-- **Flick has made his decision on who will start in Barcelona midfield vs Athletic Club**: [Link](https://barcauniversal.com/flick-has-made-his-decision-on-who-will-start-in-barcelona-midfield-vs-athletic-club/)
-- **Spanish Super Cup: Why is it played in Saudi Arabia?**: [Link](https://www.bbc.com/sport/football/articles/cy9yq5jp559o)
-- **Barcelona’s starting XI vs. Athletic Club: no Lamine Yamal and two further changes included**: [Link](https://www.mundodeportivo.com/us/en/20260107/737581/barcelona-s-starting-xi-vs-athletic-club-lamine-yamal-and-two-further-changes-included.html)
-
-
-### torino - udinese (N/A, 07/01/2026 15:31 Lima)
-
-Sin noticias relacionadas disponibles.
 
 
