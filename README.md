@@ -1,3 +1,73 @@
+### inter vs (N/A, 11/01/2026 15:28 Lima)
+
+- **En un partidazo, Inter defiende la cima de la Serie A ante Napoli**: [Link](https://www.espn.com.pe/futbol/italia/nota/_/id/16162931/inter-vs-napoli-fecha-20-serie-a-equipo-fecha-hora-y-tv-en-vivo)
+- **Serie A: Inter marcha como líder y busca llevarse los 3 puntos para mantenerse en la cima**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-inter-marcha-como-lider-y-busca-llevarse-los-3-puntos-para-mantenerse-en-la-cima-noticia-1671065)
+- **Inter vs Napoli: ¡Incrementa tus ganancias hasta 200% con la Serie A en Meridianbet!**: [Link](https://ovacion.pe/noticias/nota-promocional/inter-vs-napoli-incrementa-tus-ganancias-hasta-200-serie-meridianbet)
+
+
+### marca (N/A, 11/01/2026 15:28 Lima)
+
+- **Supercopa de Turquía: Jhon Durán gana su primer título en Fenerbahce vs Galatasaray**: [Link](https://www.espn.com.pe/futbol/nota/_/id/16165987/jhon-duran-gano-su-primer-titulo-como-profesional-con-fenerbahce)
+- **(VIDEO) Fenerbahce ganó el "Clásico turco" y alzó la Supercopa**: [Link](https://ovacion.pe/noticias/futbol-internacional/video-fenerbahce-gano-clasico-turco-alzo-supercopa)
+- **Jhon Durán marca y Fenerbahce clasifica a la final de la Supercopa Turca**: [Link](https://www.espn.com.pe/futbol/nota/_/id/16152529/jhon-duran-marca-y-fenerbahce-clasifica-a-la-final-de-la-supercopa-turca)
+
+
+### lyon vs (N/A, 11/01/2026 15:28 Lima)
+
+- **Lille - Lyon, en directo: Copa de Francia, el debut de Endrick hoy en vivo**: [Link](https://as.com/futbol/internacional/lille-lyon-en-directo-copa-de-francia-el-debut-de-endrick-hoy-en-vivo-f202601-n/)
+- **Apuestas y Pronóstico del Lille vs Olympique Lyon 11/01/26**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/2026/enero/pronostico-lille-vs-olympique-lyon-11-01-26)
+- **Endrick debuta como titular con el Olympique de Lyon en el choque de la Copa de Francia contra el Lille**: [Link](https://tribuna.com/es/news/2026-01-11-endrick-debuta-como-titular-con-el-olympique-de-lyon-en-el-choque-de-la-copa-de-francia-c/)
+
+
+### gonzalo garcía (N/A, 11/01/2026 15:28 Lima)
+
+- **Lewandowski definió de gran manera y convirtió para Barcelona ante Real Madrid**: [Link](https://www.espn.com.ar/futbol/espana/nota/_/id/16170826/video-gol-de-robert-lewandowski-barcelona-vs-real-madrid-clasico-final-supercopa)
+- **VIDEO: Desde el piso y en el epílogo del primer tiempo, Gonzalo García señaló el 2 a 2 de Real Madrid ante ...**: [Link](https://www.directvsports.com/futbol/video-desde-el-piso-y-en-el-epilogo-del-primer-tiempo-gonzalo-garcia-senalo-el-2-a-2-de-real-madrid-ante-barcelona-20260111-0017.html)
+- **Pedro Martín sentencia sobre el exceso de tiempo añadido en la primera parte del Barcelona-Real Madrid en la Supercopa y explica la razón objetiva: "Se debería haber acabado al minuto 48"**: [Link](https://www.cope.es/programas/tiempo-de-juego/audios/pedro-martin-sentencia-sobre-exceso-anadido-primera-parte-barcelona-real-madrid-supercopa-explica-razon-objetiva-deberia-haber-acabado-minuto-48-20260111_3284289.html)
+
+
+### futbol libre barcelona vs real madrid (N/A, 11/01/2026 15:28 Lima)
+
+- **Courtois y Valverde propician otro clásico en la Supercopa de Arabia Saudí**: [Link](https://elpais.com/deportes/futbol/2026-01-08/courtois-y-valverde-propician-otro-clasico-en-la-supercopa-de-arabia-saudi.html)
+- **Atlético 1-2 Real Madrid: resumen, goles y resultado**: [Link](https://as.com/futbol/primera/atletico-real-madrid-hoy-en-directo-previa-de-la-semifinal-de-supercopa-de-espana-ultima-hora-en-arabia-en-vivo-f202601-d/)
+- **¿Podrá Xabi Alonso alejar los fantasmas en el derbi en Arabia?**: [Link](https://espndeportes.espn.com/futbol/espana/nota/_/id/16157609/real-madrid-podra-xabi-alonso-alejar-fantasmas-ante-atletico-madrid)
+
+
+### américa (N/A, 11/01/2026 15:28 Lima)
+
+- **Tigres está cerca de fichar a Richard Sánchez como refuerzo**: [Link](https://www.mediotiempo.com/futbol/liga-mx/richard-sanchez-puede-llegar-a-tigres-como-refuerzo-para-el-clausura-2026)
+- **Rival directo del Club América está a nada de cerrar el fichaje de Richard Sánchez para el Clausura 2026**: [Link](https://bolavip.com/mx/ligamx/rival-directo-del-club-america-esta-a-nada-de-cerrar-el-fichaje-de-richard-sanchez-para-el-clausura-2026)
+- **Le dio el tricampeonato al América y ahora de manera sorpresiva firmaría con Tigres apenas iniciado el Clausura 2026**: [Link](https://www.elfutbolero.com.mx/ligamx/le-dio-el-tricampeonato-al-america-y-ahora-de-manera-sorpresiva-firmaria-con-tigres-apenas-iniciado-el-clausura-2026-20260111-148826.html)
+
+
+### álvaro carreras (N/A, 11/01/2026 15:28 Lima)
+
+- **El pisotón criminal de Álvaro Carreras a Lamine que incendia la final de la Supercopa**: [Link](https://www.sport.es/es/noticias/barca/pisoton-criminal-alvaro-carreras-lamine-125582673)
+- **“Munuera Montero no debió dejar que se sacase el córner del 2-2″**: [Link](https://as.com/futbol/copa_del_rey/era-amarilla-a-carreras-f202601-n/)
+- **Polémica en Barcelona vs. Real Madrid por falta sobre Lamine Yamal; ni mostraron amarilla**: [Link](https://www.noticiascaracol.com/golcaracol/polemica-en-barcelona-vs-real-madrid-por-falta-sobre-lamine-yamal-ni-mostraron-amarilla-rg10)
+
+
+### resultados (N/A, 11/01/2026 15:28 Lima)
+
+- **Inter vs. Napoli (11 de Ene., 2026) Resultados en Vivo**: [Link](https://www.espn.com.pe/futbol/partido/_/juegoId/736979)
+- **Port Vale 1-0 Fleetwood To (9 de Ene., 2026) Resultado Final**: [Link](https://www.espn.cl/futbol/partido/_/juegoId/762501/fleetwood-town-port-vale)
+- **Le Mans vs. Nancy (11 de Ene., 2026) Resultados en Vivo**: [Link](https://www.espn.com.ar/futbol/partido/_/juegoId/401843535)
+
+
+### iptv (N/A, 11/01/2026 15:28 Lima)
+
+- **NotCableTV Announces Comprehensive 2026 Industry Report on Global IPTV Streaming Safety and Legal Standards**: [Link](https://markets.financialcontent.com/wral/article/marketersmedia-2026-1-11-notcabletv-announces-comprehensive-2026-industry-report-on-global-iptv-streaming-safety-and-legal-standards)
+- **How to Choose the Best IPTV Service: 6 Factors to Consider**: [Link](https://intlbm.com/2026/01/09/how-to-choose-the-best-iptv-service-6-factors-to-consider/)
+- **IPTV 2026: 8K Streaming, Top Services, and Comparison Tools Revealed**: [Link](https://seczine.com/technology/2026/01/iptv-2026-8k-streaming-top-services/)
+
+
+### lewandowski (N/A, 11/01/2026 15:28 Lima)
+
+- **Akcja niczym z konsoli. Vinicius ośmieszył obronę Barcelony**: [Link](https://sportowefakty.wp.pl/pilka-nozna/1229008/akcja-niczym-z-konsoli-vinicius-osmieszyl-obrone-barcelony)
+- **Barcelona prowadzi w Superpucharze Hiszpanii! Nie dało się tego lepiej uderzyć**: [Link](https://sport.fakt.pl/pilka-nozna/superpuchar-hiszpanii-co-za-gol-w-el-clasico/xws1ktn)
+- **FC Barcelona - Real Madryt. Gdzie oglądać za darmo i na żywo? (11.01.2026)**: [Link](https://przegladsportowy.onet.pl/bukmacherzy/pilka-nozna/fc-barcelona-real-madryt-gdzie-ogladac-za-darmo-i-na-zywo-11012026/35bf2nz)
+
+
 ### danitza pilco (N/A, 11/01/2026 11:31 Lima)
 
 - **Actriz peruana es investigada por la muerte de su pareja en Puno**: [Link](https://trome.com/actualidad/policiales/puno-actriz-peruana-danitza-pilco-es-investigada-por-la-muerte-de-su-pareja-de-20-anos-historia-de-policiales-noticia/)
@@ -961,75 +1031,5 @@
 - **Nombre del Año 2026 en Perú: cómo se llamará, qué día se conocerá y lo que se sabe ahora**: [Link](https://gestion.pe/mix/respuestas/nombre-del-ano-2026-en-peru-cuando-se-dara-a-conocer-y-que-se-sabe-hasta-ahora-nnda-nnrt-noticia/)
 - **¿Se sabe cómo se llamará el año 2026 en Perú? Esto es la última información hoy 7 de enero**: [Link](https://www.infobae.com/peru/2026/01/04/se-sabe-como-se-llamara-el-ano-2026-en-peru-esto-es-lo-ultimo-que-se-conoce/)
 - **Conoce la historia del nombre oficial del año en Perú**: [Link](https://andina.pe/agencia/noticia-conoce-historia-del-nombre-oficial-del-ano-peru-1058094.aspx)
-
-
-### defensoria del pueblo (N/A, 08/01/2026 11:37 Lima)
-
-- **Midis y Defensoría del Pueblo articulan acciones**: [Link](https://elperuano.pe/noticia/286669-midis-y-defensoria-del-pueblo-articulan-acciones)
-- **Crean comité para supervisar implementación del Programa de Alimentación Escolar**: [Link](https://gestion.pe/peru/crean-comite-para-supervisar-implementacion-del-programa-de-alimentacion-escolar-noticia/)
-- **Lesly Shica y Defensor del Pueblo crean comité para garantizar alimentos escolares de calidad en 2026**: [Link](https://altavoz.pe/locales/lesly-shica-y-defensor-del-pueblo-crean-comite-para-garantizar-alimentos-escolares-de-calidad-en-2026/)
-
-
-### afp prima (N/A, 08/01/2026 07:57 Lima)
-
-- **Retiro de AFP: Afiliados sí pueden registrar una segunda solicitud bajo estas condiciones**: [Link](https://www.infobae.com/peru/2026/01/07/retiro-de-afp-afiliados-si-pueden-registrar-una-segunda-solicitud-bajo-estas-condiciones/)
-- **AFP: Siga estas claves para proteger su dinero si decide retirarlo tras el ajuste de la UIT**: [Link](https://www.elperuano.pe/noticia/286579-afp-siga-estas-claves-para-proteger-su-dinero-si-decide-retirarlo-tras-el-ajuste-de-la-uit)
-- **Retiro AFP 2026: Podrás retirar hasta S/22.000; plazo vence el 16 de enero**: [Link](https://peru21.pe/economia/retiro-afp-2026-vuelve-el-acceso-para-retirar-hasta-s22000/)
-
-
-### el peruano (N/A, 08/01/2026 07:57 Lima)
-
-- **¿Se sabe cómo se llamará el año 2026 en Perú? Esto es la última información hoy 7 de enero**: [Link](https://www.infobae.com/peru/2026/01/04/se-sabe-como-se-llamara-el-ano-2026-en-peru-esto-es-lo-ultimo-que-se-conoce/)
-- **Nombre del Año 2026 en Perú: cómo se llamará, qué día se conocerá y lo que se sabe ahora**: [Link](https://gestion.pe/mix/respuestas/nombre-del-ano-2026-en-peru-cuando-se-dara-a-conocer-y-que-se-sabe-hasta-ahora-nnda-nnrt-noticia/)
-- **Conoce la historia del nombre oficial del año en el Perú**: [Link](https://andina.pe/agencia/noticia-conoce-historia-del-nombre-oficial-del-ano-el-peru-1058094.aspx)
-
-
-### alianza lima (N/A, 08/01/2026 07:57 Lima)
-
-- **La reacción de Paolo Guerrero al enterarse del fichaje de Luis Advíncula**: [Link](https://www.espn.com.ar/futbol/peru/nota/_/id/16156636/que-dijo-paolo-guerrero-sobre-la-llegada-de-luis-advincula-a-alianza-lima)
-- **Advíncula 2028: la historia detrás de un fichaje que se negoció 4 meses, cuánto costó realmente y por qué Alianza sería su último club**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/alianza-lima-luis-advincula-2028-la-historia-detras-de-un-fichaje-que-se-negocio-4-meses-cuanto-costo-realmente-y-por-que-alianza-seria-su-ultimo-club-liga-1-tlcnota-noticia/)
-- **"Casi se convierte en leyenda": prensa argentina reacciona por la salida de Luis Advíncula de Boca**: [Link](https://rpp.pe/futbol/peruanos-en-el-mundo/luis-advincula-se-va-de-boca-juniors-prensa-argentina-reacciona-por-salida-de-club-xeneize-noticia-1670604)
-
-
-### jujutsu kaisen temporada 3 (N/A, 08/01/2026 07:57 Lima)
-
-- **JUJUTSU KAISEN Temporada 3: Donde verla, avances, reparto, personajes y más**: [Link](https://www.crunchyroll.com/es-es/news/guides/2026/1/6/jujutsu-kaisen-temporada-3-wiki-estreno-detalles)
-- **#AnimeWave | Regresa Jujutsu Kaisen con su tercer temporada**: [Link](https://oem.com.mx/lavozdelafrontera/tendencias/animewave-regresa-jujutsu-kaisen-con-su-tercer-temporada-27567236)
-- **Jujutsu Kaisen regresa al anime con su Temporada 3: a qué hora se podrá ver en México y qué debo saber...**: [Link](https://www.3djuegos.lat/anime/jujutsu-kaisen-regresa-al-anime-su-temporada-3-a-que-hora-se-podra-ver-mexico-que-debo-saber-para-entenderle)
-
-
-### renee nicole good (N/A, 08/01/2026 07:57 Lima)
-
-- **US immigration officer fatally shoots woman in Minneapolis**: [Link](https://www.bbc.com/news/articles/c0jvnl4j1n4o)
-- **‘This is not normal’: Minneapolis on edge and angry after Ice killing of woman amid federal surge**: [Link](https://www.theguardian.com/us-news/2026/jan/08/minneapolis-ice-agent-shooting-killing)
-- **Multiple angles show Minnesota ICE shooting**: [Link](https://www.cnn.com/2026/01/07/us/video/mn-minnesota-shooting-timeline-digvid)
-
-
-### spurs - lakers (N/A, 08/01/2026 07:57 Lima)
-
-- **Lakers vs Spurs Picks & Odds Today: Los Angeles To Cover As Road Underdog**: [Link](https://www.oddsshark.com/nba/lakers-spurs-picks-odds-january-7-2026)
-- **Doncic signs a triple-double with 38 points in 'Alien' territory, but his teammates leave him alone**: [Link](https://www.marca.com/en/basketball/nba/los-angeles-lakers/2026/01/08/695f85e2e2704ef7278b45a2.html)
-- **NBA Roundup: Johnson, Wembanyama fuel Spurs to win over Lakers**: [Link](https://bvmsports.com/2026/01/08/nba-roundup-johnson-wembanyama-fuel-spurs-to-win-over-lakers/)
-
-
-### sismo (N/A, 08/01/2026 03:38 Lima)
-
-- **Sismo de magnitud 6,7 sacude la isla filipina de Mindanao**: [Link](https://www.dw.com/es/sismo-de-magnitud-67-sacude-la-isla-filipina-de-mindanao/a-75414578)
-- **Terremoto leve mag. 3.2 - Visayan Sea, Philippines, jueves 8 ene 2026 a las 09:50 (GMT +8) - hace 6 horas**: [Link](https://www.volcanodiscovery.com/es/sismos/informe-sismo/22593280/info.html)
-- **VIDEO: Captan momento exacto del SISMO de 6.4 hoy miércoles en Filipinas**: [Link](https://www.aztecaveracruz.com/noticias/que-se-sabe-del-sismo-6-4-en-filipinas-hoy-7-enero-2026/)
-
-
-### último sismo hoy (N/A, 08/01/2026 03:38 Lima)
-
-- **Temblor en Perú, hoy 7 de enero: magnitud y epicentro del sismo según IGP**: [Link](https://rpp.pe/lima/desastres-naturales/temblor-en-peru-hoy-5-de-enero-magnitud-y-epicentro-del-sismo-segun-igp-live-3118)
-- **Sismo remece HOY Perú: AQUÍ la magnitud y el epicentro del movimiento telúrico de este miércoles**: [Link](https://www.exitosanoticias.pe/actualidad/sismo-remece-hoy-peru-aqui-magnitud-epicentro-movimiento-telurico-miercoles-n166146)
-- **Ica: temblor de magnitud 4.6 sacudió la provincia de Nasca este lunes 5 de enero**: [Link](https://diariocorreo.pe/edicion/ica/ica-temblor-de-magnitud-46-sacude-la-provincia-de-nasca-este-lunes-5-de-enero-noticia/)
-
-
-### arsenal vs liverpool (N/A, 08/01/2026 03:38 Lima)
-
-- **Premier League: Arsenal necesita sumar de a 3 puntos para mantenerse en la cima**: [Link](https://rpp.pe/futbol/ligas-internacionales/premier-league-arsenal-necesita-sumar-de-a-3-puntos-para-mantenerse-en-la-cima-noticia-1670623)
-- **Arsenal vs. Liverpool EN VIVO vía ESPN: alineaciones, hora y dónde ver Premier League**: [Link](https://libero.pe/futbol-internacional/2026/01/07/arsenal-vs-liverpool-en-vivo-via-espn-disney-plus-internet-partido-de-premier-league-2026-video-vilb-325787)
-- **Arsenal vs. Liverpool: Arteta dice que tienen "algo que demostrar"**: [Link](https://www.espn.com.pe/futbol/inglaterra/nota/_/id/16155100/arsenal-vs-liverpool-arteta-algo-demostrar-campeon-premier-league)
 
 
