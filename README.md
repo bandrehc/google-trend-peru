@@ -1,3 +1,71 @@
+### cruz azul vs (N/A, 10/01/2026 21:23 Lima)
+
+- **León vs Cruz Azul hoy: Resultado EN VIVO, minuto a minuto y goles de la Liga MX**: [Link](https://www.365scores.com/es/news/leon-vs-cruz-azul-resultado-vivo-goles/)
+- **Liga MX: León y Cruz Azul se estrenan en el campeonato**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-leon-y-cruz-azul-se-estrenan-en-el-campeonato-noticia-1670980)
+- **10 cosas que debes saber sobre el León-Cruz Azul**: [Link](https://luismiguelguerrero.com/2026/01/10/10-cosas-que-debes-saber-sobre-el-leon-cruz-azul/)
+
+
+### cruz azul (N/A, 10/01/2026 21:23 Lima)
+
+- **Liga MX: León y Cruz Azul se estrenan en el campeonato**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-leon-y-cruz-azul-se-estrenan-en-el-campeonato-noticia-1670980)
+
+
+### espn en vivo (N/A, 10/01/2026 21:23 Lima)
+
+- **El balón largo como plan de fuga: el récord de los 34 balonazos de Courtois contra el Atlético**: [Link](https://elpais.com/deportes/futbol/2026-01-10/el-balon-largo-como-plan-de-fuga-el-record-de-los-34-balonazos-de-courtois-contra-el-atletico.html)
+- **Atlético 1-2 Real Madrid: resumen, goles y resultado**: [Link](https://as.com/futbol/primera/atletico-real-madrid-hoy-en-directo-previa-de-la-semifinal-de-supercopa-de-espana-ultima-hora-en-arabia-en-vivo-f202601-d/)
+- **"Lo mío es tirar fuerte": Fede Valverde habló de su golazo de tiro libre en la Supercopa para Real Madrid**: [Link](https://www.espn.com.ar/futbol/espana/nota/_/id/16159402/federico-valverde-real-madrid-supercopa-atletico-tiro-libre-golazo-lo-mio-es-tirar-fuerte)
+
+
+### jairo velez (N/A, 10/01/2026 21:23 Lima)
+
+- **Edison Flores fue categórico sobre fichaje de Jairo Vélez por Alianza Lima: “Fue un...” [VIDEO]**: [Link](https://trome.com/deportes/futbol-peruano/edison-flores-fue-categorico-sobre-fichaje-de-jairo-velez-por-alianza-lima-video-fue-un-buen-companero-liga-1-fichajes-2026-noticia/)
+- **Zambrano dejó rotundo mensaje tras llegada de Jairo Vélez, ex Universitario: "Siempre vienen..."**: [Link](https://libero.pe/futbol-peruano/alianza-lima/2026/01/10/fichajes-alianza-lima-2026-carlos-zambrano-dejo-rotundo-mensaje-llegada-de-jairo-velez-ex-universitario-siempre-vienen-955160)
+- **“Lo deleitó”: el jugador de Alianza Lima que más sorprendió a Pablo Guede en el primer día de pretemporada**: [Link](https://bolavip.com/pe/alianza-lima/lo-deleito-el-jugador-de-alianza-lima-que-mas-sorprendio-a-pablo-guede-en-el-primer-dia-de-pretemporada)
+
+
+### esporte clube avenida - grêmio (N/A, 10/01/2026 21:23 Lima)
+
+- **Como é que tá o jogo do Grêmio? Estreia no Gauchão mobiliza torcida e marca novo começo em 2026**: [Link](https://gremioplay.com.br/como-e-que-ta-o-jogo-do-gremio/)
+- **Grêmio abre o ano com goleada sobre o Avenida no Gauchão**: [Link](https://gremio.net/noticias/detalhes/29894/gremio-abre-o-ano-com-goleada-sobre-o-avenida-no-gauchao)
+- **Se deixar jogar…**: [Link](https://ge.globo.com/rs/blogs/vida-real/post/2026/01/10/se-deixar-jogar.ghtml)
+
+
+### futbol en vivo (N/A, 10/01/2026 21:23 Lima)
+
+- **Partidos de hoy, sábado 10 de enero de 2026: programación, canales TV y resultados en vivo**: [Link](https://www.infobae.com/peru/deportes/2026/01/10/partidos-de-hoy-sabado-10-de-enero-de-2026-programacion-canales-tv-y-resultados-en-vivo/)
+- **Partidos de hoy EN VIVO: programación, horario y dónde ver fútbol online gratis este sábado 10 de enero**: [Link](https://libero.pe/futbol-internacional/2026/01/09/partidos-de-hoy-en-vivo-sabado-10-de-enero-638370)
+- **Partidos de hoy, sábado 10 de enero del 2026: horarios y canales TV para ver EN VIVO Amistosos y LaLiga**: [Link](https://rpp.pe/futbol/futbol-mundial/partidos-de-hoy-peru-sabado-10-de-enero-del-2026-horarios-y-canales-tv-ver-futbol-en-vivo-noticia-1671022)
+
+
+### tarjeta roja (N/A, 10/01/2026 21:23 Lima)
+
+- **Mujer arremete en contra de una ex alcaldesa públicamente**: [Link](https://saganoticias.com/politica/mujer-arremete-en-contra-de-una-ex-alcaldesa-publicamente)
+- **Exalcaldesa morenista de Múzquiz anda de “buscapleitos” con priistas**: [Link](https://www.eluniversal.com.mx/opinion/kiosko/exalcaldesa-morenista-de-muzquiz-anda-de-buscapleitos-con-priistas/)
+- **EN EL TINTERO**: [Link](https://elheraldodesaltillo.mx/2026/01/08/en-el-tintero-292/)
+
+
+### disney (N/A, 10/01/2026 21:23 Lima)
+
+- **Dopey Challenge | NC woman to run in all 4 Walt Disney World Marathon Weekend races: the 5K, 10K, half-marathon, marathon**: [Link](https://abc11.com/post/dopey-challenge-nc-woman-run-4-walt-disney-world-marathon-weekend-races-5k-10k-half/18373969/)
+- **Walt Disney World Marathon Weekend kicks off at Epcot**: [Link](https://www.wogx.com/video/fmc-2sb8pmg4alfhownz)
+- **Some runners participate in Disney 'Dopey Challenge'**: [Link](https://www.kvue.com/video/news/dopey-challenge-disney-runners/269-4bf081d8-251b-4055-820e-9c54d0849884)
+
+
+### guadalajara - pachuca (N/A, 10/01/2026 21:23 Lima)
+
+- **Liga MX: Chivas y Pachuca debutan en el torneo**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-chivas-y-pachuca-debutan-en-el-torneo-noticia-1670962)
+- **La 'Hormiga' González se estrena en el Clausura 2026 y manda mensaje al 'Vasco' Aguirre**: [Link](https://www.de10.com.mx/lo-viral/la-hormiga-gonzalez-se-estrena-en-el-clausura-2026-y-manda-mensaje-al-vasco-aguirre/)
+- **Nació en Estados Unidos, vivió en Chicago y ahora debuta con las Chivas en el Clausura 2026**: [Link](https://www.tvazteca.com/aztecadeportes/nacio-en-estados-unidos-vivio-en-chicago-y-ahora-debuta-con-las-chivas-en-el-clausura-2026/)
+
+
+### yeison jiménez (N/A, 10/01/2026 21:23 Lima)
+
+- **Músico colombiano Yeison Jímenez muere junto a sus acompañantes en un accidente de avioneta**: [Link](https://www.bbc.com/mundo/articles/clyn1x2qll5o)
+- **Murió Yeison Jiménez: el cantante estaba entre los pasajeros del avión que se accidentó en Boyacá**: [Link](https://www.infobae.com/colombia/2026/01/10/murio-yeison-jimenez-el-cantante-habria-estado-entre-los-pasajeros-del-avion-que-se-accidento-en-boyaca/)
+- **Atención: en accidente de avioneta esta tarde en Paipa (Boyacá) murieron el cantante Yeison Jiménez y sus músicos**: [Link](https://www.eltiempo.com/colombia/otras-ciudades/atencion-en-accidente-esta-tarde-en-paipa-habria-muerto-el-cantante-yeison-jimenez-y-sus-musicos-3523385)
+
+
 ### guimarães - braga (N/A, 10/01/2026 15:27 Lima)
 
 - **Equipa do V. Guimarães sobe ao terreno de jogo**: [Link](https://www.abola.pt/video/equipa-do-v-guimaraes-sobe-ao-terreno-de-jogo-2026011018474310689)
@@ -962,73 +1030,5 @@
 ### torino - udinese (N/A, 07/01/2026 15:31 Lima)
 
 Sin noticias relacionadas disponibles.
-
-
-### joaquín ramírez (N/A, 07/01/2026 11:37 Lima)
-
-- **PJ ordenó incorporar a Fuerza Popular como persona jurídica en el proceso contra Joaquín Ramírez por el caso 'Alas Peruanas'**: [Link](https://rpp.pe/politica/judiciales/pj-ordeno-incorporar-a-fuerza-popular-como-persona-juridica-en-el-proceso-contra-joaquin-ramirez-por-el-caso-alas-peruanas-noticia-1670548)
-- **Fuerza Popular es incorporado como persona jurídica en caso Alas Peruanas**: [Link](https://altavoz.pe/locales/fuerza-popular-es-incorporado-como-persona-juridica-en-caso-alas-peruanas/)
-- **Caso Alas Peruanas: PJ ordena incorporar a Fuerza Popular como persona jurídica en proceso contra Joaquín Ramírez**: [Link](https://diariocorreo.pe/politica/caso-alas-peruanas-pj-ordena-incorporar-a-fuerza-popular-como-persona-juridica-en-proceso-contra-joaquin-ramirez-noticia/)
-
-
-### año 2026 nombre oficial peru (N/A, 07/01/2026 11:37 Lima)
-
-- **Nombre del Año 2026 en Perú: cómo se llamará, cuándo se conocerá y qué se sabe ahora**: [Link](https://gestion.pe/mix/respuestas/nombre-del-ano-2026-en-peru-cuando-se-dara-a-conocer-y-que-se-sabe-hasta-ahora-nnda-nnrt-noticia/)
-- **¿Cómo se llamará el año 2026 en Perú? Esto es lo último que se sabe hoy 7 de enero**: [Link](https://www.infobae.com/peru/2026/01/04/se-sabe-como-se-llamara-el-ano-2026-en-peru-esto-es-lo-ultimo-que-se-conoce/)
-- **Gobierno prepara NOMBRE DEL AÑO 2026 en Perú: cuándo se conocerá la denominación oficial**: [Link](https://elcomercio.pe/respuestas/tramites/el-2026-en-peru-tendra-un-nombre-oficial-del-ano-conoce-cual-y-cuando-inicia-tdpe-noticia/)
-
-
-### barcelona vs athletic bilbao (N/A, 07/01/2026 11:37 Lima)
-
-- **Supercopa de España: Real Madrid, FC Barcelona, Atlético de Madrid y Athletic Club buscan su primer título de 2026**: [Link](https://cnnespanol.cnn.com/2026/01/06/deportes/supercopa-espana-2026-formato-partidos-equipos-orix)
-- **¿Por qué no hay prórroga en los partidos de Supercopa de España? Así se decidirá el ganador en caso de empate**: [Link](https://as.com/futbol/primera/por-que-no-hay-prorroga-en-los-partidos-de-supercopa-de-espana-asi-se-decidira-el-ganador-en-caso-de-empate-f202601-n/)
-- **El Barça afronta la semifinal con la duda de Lamine y el aviso de Flick**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20260106/1002596786/barca-afronta-semifinal-duda-lamine-aviso-flick.html)
-
-
-### normas legales (N/A, 07/01/2026 07:57 Lima)
-
-- **El Peruano te informa: consulta aquí las principales normas legales para hoy, martes 6 de Enero del 2026**: [Link](https://www.elperuano.pe/noticia/286515-el-peruano-te-informa-consulta-aqui-las-principales-normas-legales-para-hoy-martes-6-de-enero-del-2026)
-- **Regiones deben establecer Plan de Ordenamiento Territorial**: [Link](https://andina.pe/agencia/noticia-regiones-deben-establecer-plan-ordenamiento-territorial-1058198.aspx)
-- **Estas son las normas legales más importantes del miércoles 7 de enero del 2026**: [Link](https://www.apnoticias.pe/peru/andina/estas-son-las-normas-legales-mas-importantes-del-miercoles-7-de-enero-del-2026-1482064)
-
-
-### a (N/A, 07/01/2026 07:57 Lima)
-
-- **Buy Greenland? Take It? Why? An Old Pact Already Gives Trump a Free Hand.**: [Link](https://www.nytimes.com/2026/01/07/world/europe/trump-greenland-denmark-us-defense-pact.html)
-- **The US has tried to acquire Greenland before – and failed**: [Link](https://www.cnn.com/2026/01/07/politics/us-greenland-trump-denmark-history-hnk)
-- **Exclusive | Rubio Tells Lawmakers Trump Aims to Buy Greenland, Downplays Military Action**: [Link](https://www.wsj.com/politics/national-security/rubio-tells-lawmakers-trump-aims-to-buy-greenland-downplays-military-action-5c94e05c?gaa_at=eafs&gaa_n=AWEtsqdf5wy5mCaNCZERUnL8UQlSeZhjwUpVbEJBK_P3ILcmdyd6ivIqpLZZ&gaa_ts=695e5bb0&gaa_sig=RqmQ9YcLKmmxR185QwUrzY4IeIIHMgzK9Q-9hxfYalOB78VldPlU8OeMGp2YcwnZcjwqNmrDdhG-e-T99laxRQ%3D%3D)
-
-
-### sporting cristal (N/A, 07/01/2026 07:57 Lima)
-
-- **Sporting Cristal no lo renovó y ahora sacudió el mercado fichando por club campeón: "Bienvenido"**: [Link](https://libero.pe/futbol-peruano/sporting-cristal/2026/01/06/fichajes-liga-1-sporting-cristal-renovo-ahora-sacudio-mercado-fichando-club-campeon-bienvenido-210474)
-- **Atlético Grau presentó su comando técnico para el 2026**: [Link](https://ovacion.pe/noticias/atletico-grau/atletico-grau-presento-su-comando-tecnico-2026)
-- **Atlético Grau puso en marcha la pretemporada**: [Link](https://eltiempo.pe/deportes/atletico-grau-puso-en-marcha-la-pretemporada/)
-
-
-### pelicans - lakers (N/A, 07/01/2026 07:57 Lima)
-
-- **JJ Redick praises 'Wired' Luka Doncic after unreal late triple to bury Pelicans**: [Link](https://basketnews.com/news-238268-jj-redick-praises-wired-luka-doncic-after-unreal-late-triple-to-bury-pelicans.html)
-- **The 41-year-old ageless wonder put up 30 points, eight …**: [Link](https://sports.yahoo.com/articles/41-old-ageless-wonder-put-100546469.html)
-- **LeBron James Powers Lakers To Victory Against Pelicans**: [Link](https://thewhistler.ng/lebron-james-powers-lakers-to-victory-against-pelicans/)
-
-
-### mcdonalds cajita feliz friends (N/A, 07/01/2026 03:38 Lima)
-
-- **McDonald’s Perú activa la nostalgia noventera con una campaña de intriga inspirada en Friends**: [Link](https://www.mercadonegro.pe/marketing/mcdonalds-peru-activa-la-nostalgia-noventera-con-una-campana-de-intriga-inspirada-en-friends/)
-
-
-### mavericks - kings (N/A, 07/01/2026 03:38 Lima)
-
-- **NBA Kings vs Mavericks Draftstars DFS Captain Contest Preview and Projections for January 7, 2026**: [Link](https://www.statsinsider.com.au/news/nba-kings-vs-mavericks-draftstars-dfs-captain-contest-preview-and-projections-for-january-7-2026)
-- **Mavs 100, Kings 98: Cooper Flagg plays though knee injury**: [Link](https://alldlls.com/mavs-100-kings-98-cooper-flagg-plays-though-knee-injury/)
-- **Mavericks Kings Basketball**: [Link](https://www.yakimaherald.com/ap/sports/mavericks-kings-basketball/image_935629d5-1da9-5a0c-ba77-771420e0fec7.html)
-
-
-### barcelona vs. athletic (N/A, 07/01/2026 03:38 Lima)
-
-- **Supercopa de España: Real Madrid, FC Barcelona, Atlético de Madrid y Athletic Club buscan su primer título de 2026**: [Link](https://cnnespanol.cnn.com/2026/01/06/deportes/supercopa-espana-2026-formato-partidos-equipos-orix)
-- **Así es el reparto de dinero en la Supercopa de España 2026 y qué equipo recibe más**: [Link](https://as.com/futbol/primera/asi-es-el-reparto-de-dinero-en-la-supercopa-de-espana-2026-y-que-equipo-recibe-mas-f202601-n/)
-- **El Barça afronta la semifinal con la duda de Lamine y el aviso de Flick**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20260106/1002596786/barca-afronta-semifinal-duda-lamine-aviso-flick.html)
 
 
