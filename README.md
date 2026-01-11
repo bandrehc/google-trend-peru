@@ -1,3 +1,52 @@
+### rayo vallecano - r.c.d. mallorca (N/A, 11/01/2026 07:52 Lima)
+
+- **Rayo Vallecano - Mallorca, en directo: LaLiga EA Sports, en vivo hoy**: [Link](https://as.com/futbol/primera/rayo-vallecano-mallorca-en-directo-laliga-ea-sports-en-vivo-hoy-f202601-d/)
+- **Apuestas y Pronóstico del Rayo Vallecano vs Mallorca 11/01/26**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2026/enero/pronostico-rayo-vallecano-vs-mallorca-11-01-26)
+- **Iñigo Pérez: “La victoria de mañana son 3 puntos más, el devenir de la competición no se va a solucionar mañana”**: [Link](https://onefootball.com/fr/news/inigo-perez-la-victoria-de-manana-son-3-puntos-mas-el-devenir-de-la-competicion-no-se-va-a-solucionar-manana-42207487)
+
+
+### heerenveen - feyenoord (N/A, 11/01/2026 07:52 Lima)
+
+- **Live Eredivisie | Feyenoord op voorsprong in Heerenveen, opstelling Ajax binnen**: [Link](https://www.nu.nl/voetbal/6382219/live-eredivisie-feyenoord-op-voorsprong-in-heerenveen-opstelling-ajax-binnen.html)
+- **Van Persie: "Die verschillen ga je straks hopelijk wel zien"**: [Link](https://www.fr12.nl/nieuws/van-persie-die-verschillen-ga-je-straks-hopelijk-wel-zien)
+- **LIVE | SC Heerenveen ziet Jacob Trenskow in de openingsfase geblesseerd uitvallen tegen Feyenoord**: [Link](https://lc.nl/sport/sc-heerenveen/live-sc-heerenveen-ziet-jacob-trenskow-in-de-openingsfase-geblesseerd-uitvallen-tegen-feyenoord-48245527.html)
+
+
+### lecce - parma (N/A, 11/01/2026 07:52 Lima)
+
+- **LIVE Lecce-Parma 1-0: il giallo a Banda diventa giustamente rosso. Crisi di pianto per l'esterno**: [Link](https://www.gazzetta.it/Calcio/Serie-A/11-01-2026/lecce-parma-live-risultato-gol-diretta-serie-a.shtml)
+- **Di Francesco: “Camarda in tribuna? Ecco come sta. Su Coulibaly rientrato dalla Coppa d’Africa…”**: [Link](https://www.sosfanta.com/news/di-francesco-camarda-in-tribuna-ecco-come-sta-su-coulibaly-rientrato-dalla-coppa-dafrica/)
+- **LECCE-PARMA, I CONSIGLI FANTAPAZZ AL FANTACALCIO**: [Link](https://www.stadiotardini.it/2026/01/lecce-parma-i-consigli-fantapazz-al-fantacalcio.html)
+
+
+### derby county - leeds (N/A, 11/01/2026 07:52 Lima)
+
+- **Derby v Leeds United: FA Cup third round – live**: [Link](https://www.theguardian.com/football/live/2026/jan/11/derby-v-leeds-united-fa-cup-third-round-live)
+- **FROM SPYGATE TO OPERATION MINCEMEAT**: [Link](https://www.pressreader.com/uk/daily-star-sunday/20260111/283029765993361)
+- **FA Cup Tipsheet: Best bets and predictions for Sunday's third round contests**: [Link](https://betting.betfair.com/football/fa-cup/fa-cup-tipsheet-best-bets-and-predictions-for-sundays-third-round-contests-080126-904.html)
+
+
+### lecce vs (N/A, 11/01/2026 07:52 Lima)
+
+- **Serie A: Parma se enfrentará a Lecce por la fecha 20**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-parma-se-enfrentara-a-lecce-por-la-fecha-20-noticia-1671041)
+- **⚡ Stulic strikes in 51 seconds, Camarda off, Parma behind**: [Link](https://sports.yahoo.com/articles/stulic-strikes-51-seconds-camarda-120400407.html)
+- **Serie A: Lecce vs. Parma – confirmed line-ups and live updates**: [Link](https://football-italia.net/serie-a-lecce-v-parma-confirmed-line-ups-live/)
+
+
+### caballo horoscopo chino (N/A, 11/01/2026 07:52 Lima)
+
+- **Los signos más afortunados en el Año del Caballo de Fuego según el horóscopo chino**: [Link](https://elcomercio.pe/mag/horoscopo/los-signos-mas-afortunados-en-el-ano-del-caballo-de-fuego-segun-el-horoscopo-chino-nnda-nnlt-noticia/)
+- **Según el zodiaco chino, todos somos una mezcla de un animal y un elemento y este quiz te dirá cuales son los tuyos**: [Link](https://www.buzzfeed.com/mx/ameyalli16/quiz-descubre-tu-signo-del-zodiaco-chino)
+- **Quiénes encontrarán el amor en 2026: estas son las predicciones, según el horóscopo chino**: [Link](https://tn.com.ar/sociedad/2026/01/10/quienes-encontraran-el-amor-en-2026-estas-son-las-predicciones-segun-el-horoscopo-chino/)
+
+
+### corte de luz trujillo (N/A, 11/01/2026 07:52 Lima)
+
+- **¡Atención Trujillo! Hidrandina anuncia corte de luz este domingo 11 de enero: revisa las zonas afectadas**: [Link](https://larepublica.pe/sociedad/2026/01/10/corte-de-agua-en-trujillo-este-domingo-11-de-enero-distritos-y-horarios-afectados-por-hidrandina-evat-572960)
+- **Anuncian cortes de luz del 15 al 18 de enero: Revisa AQUÍ si tu zona se verá afectada con la medida**: [Link](https://www.exitosanoticias.pe/actualidad/anuncian-cortes-luz-15-18-enero-revisa-aqui-tu-zona-vera-afectada-medida-n166396)
+- **¡Trujillo sin luz el domingo 11 de enero! Conoce zonas y horarios**: [Link](https://n60.pe/trujillo-sin-luz-el-domingo-11-de-enero-conoce-zonas-y-horarios/)
+
+
 ### win (N/A, 11/01/2026 03:33 Lima)
 
 - **NFL news: Chicago Bears beat Green Bay Packers 31-27 in another thrilling comeback victory, advance to next round of playoffs**: [Link](https://abc7chicago.com/post/packers-bears-game-today-wild-card-nfl-playoff-chicago-green-bay-is-rare-matchup-long-running-rivalry/18382129/)
@@ -982,54 +1031,5 @@
 - **‘Tangled’ Live-Action Movie Finds Its Leads: Teagan Croft, Milo Manheim (Exclusive)**: [Link](https://www.hollywoodreporter.com/movies/movie-news/tangled-live-action-movie-teagan-croft-milo-manheim-1236466753/)
 - **'Tangled' Live-Action Casts Milo Manheim and Teagan Croft As Leads**: [Link](https://www.today.com/popculture/movies/tangled-live-action-milo-manheim-teagan-croft-cast-rcna252916)
 - **Live-action ‘Tangled’ will star Teagan Croft and Milo Manheim as Rapunzel and Flynn Rider**: [Link](https://apnews.com/article/tangled-liveaction-teagan-croft-milo-manheim-825fe3a9656135dd55a74ad4c52277fa)
-
-
-### santiago suárez (N/A, 07/01/2026 21:07 Lima)
-
-- **Mamá de Santiago Suárez se quiebra por lo que vive su hijo: "Ha pasado por momentos difíciles"**: [Link](https://www.atv.pe/noticia/mama-de-santiago-suarez-se-quiebra-por-lo-que-viene-pasando-su-hijo-ha-pasado-por-momentos-dificiles/)
-- **Santiago Suárez se quiebra tras hablar sobre denuncia de agresión sexual: “Todo se vino abajo”**: [Link](https://diariocorreo.pe/espectaculos/santiago-suarez-se-quiebra-tras-hablar-sobre-denuncia-de-agresion-sexual-todo-se-vino-abajo-noticia/)
-- **Famoso actor peruano perdió su trabajo por grave denuncia y ahora vende 'marcianos'**: [Link](https://www.planeta.pe/noticias/espectaculos/santiago-suarez-famoso-actor-peruano-perdio-su-trabajo-por-grave-denuncia-y-ahora-vende-marcianos-video/)
-
-
-### igor thiago (N/A, 07/01/2026 21:07 Lima)
-
-- **Brilliant Brazilian and defying the odds - Brentford's European charge**: [Link](https://www.bbc.com/sport/football/articles/clynelwgdd4o)
-- **Thiago strikes twice for Brentford but Sunderland’s Le Fée fluffs Panenka penalty**: [Link](https://www.theguardian.com/football/2026/jan/07/brentford-sunderland-premier-league-match-report)
-- **Yarmolyuk strikes Bees 3-0 in front of Sunderland**: [Link](https://www.nbcsports.com/watch/watch/premier-league/yehor-yarmolyuk-strikes-brentford-3-0-in-front-of-sunderland)
-
-
-### united (N/A, 07/01/2026 21:07 Lima)
-
-- **What happens to the planet if Trump gets his hands on all of Venezuela’s oil?**: [Link](https://www.cnn.com/2026/01/07/climate/venezuela-oil-dirty-emissions-methane)
-- **Venezuela will ship sanctioned oil to U.S. indefinitely, sources say**: [Link](https://www.cnbc.com/2026/01/07/oil-sales-from-venezuela-to-continue-indefinitely-sanctions-will-be-reduced-source-says.html)
-- **Congress wants oversight of Venezuelan oil revenues**: [Link](https://www.politico.com/live-updates/2026/01/07/congress/congress-venezuelan-oil-revenue-oversight-00714107)
-
-
-### burnley vs (N/A, 07/01/2026 21:07 Lima)
-
-- **Manchester United vs. Burnley (2-2): resumen y goles del partido por la Premier League | VIDEO**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/manchester-united-vs-burnley-en-vivo-gratis-hoy-via-futbol-libre-tv-espn-disney-plus-horarios-canales-tv-y-donde-ver-partido-por-premier-league-video-noticia/)
-- **Premier League: Por la fecha 21 se enfrentarán Burnley y Manchester United**: [Link](https://rpp.pe/futbol/ligas-internacionales/premier-league-por-la-fecha-21-se-enfrentaran-burnley-y-manchester-united-noticia-1670473)
-- **Sonne ingresó en el final en empate frente al Manchester United**: [Link](https://ovacion.pe/noticias/peruanos-mundo/sonne-ingreso-final-empate-frente-al-manchester-united)
-
-
-### liga inglesa (N/A, 07/01/2026 21:07 Lima)
-
-- **Cucurella propicia otro descalabro**: [Link](https://as.com/futbol/internacional/cucurella-propicia-otro-descalabro-f202601-n/)
-- **Moisés Caicedo cumplió con un buen trabajo a pesar de la derrota de Chelsea ante Fulham en la Premier League**: [Link](https://www.espn.com.ar/futbol/inglaterra/nota/_/id/16156099/moises-caicedo-cumplio-con-un-buen-trabajo-a-pesar-de-la-derrota-de-chelsea-ante-fulham)
-- **Raúl Jiménez anota ante el Chelsea su quinto gol de la temporada**: [Link](https://espndeportes.espn.com/futbol/inglaterra/nota/_/id/16155643/raul-jimenez-gol-fulham-vs-chelsea-premier-league)
-
-
-### benfica vs (N/A, 07/01/2026 21:07 Lima)
-
-- **Braga beat Benfica to reach the Portuguese League Cup final**: [Link](https://onefootball.com/de/news/braga-beat-benfica-to-reach-the-portuguese-league-cup-final-42194949)
-- **Preview: Benfica vs Braga - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/benfica/taca-da-liga/preview/benfica-vs-braga-prediction-team-news-lineups_589277.html)
-- **Golazo sensacional de Rodrigo Zalazar para Sporting Braga ante Benfica**: [Link](https://www.espn.com.pe/futbol/nota/_/id/16156237/rodrigo-zalazar-gol-en-sporting-braga-vs-benfica-copa-de-la-liga-de-portugal)
-
-
-### nico williams (N/A, 07/01/2026 15:31 Lima)
-
-- **Otro contratiempo con Lamine**: [Link](https://as.com/futbol/primera/otro-contratiempo-con-lamine-f202601-n/)
-- **Flick: "Si necesitamos a Lamine, jugará"**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20260107/1002597369/flick-necesitamos-lamine-jugara.html)
-- **¡Lamine Yamal será suplente en la semifinal de Supercopa!**: [Link](https://www.sport.es/es/noticias/barca/lamine-yamal-sera-suplente-semifinal-125458167)
 
 
