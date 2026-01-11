@@ -1,3 +1,38 @@
+### win (N/A, 11/01/2026 03:33 Lima)
+
+- **NFL news: Chicago Bears beat Green Bay Packers 31-27 in another thrilling comeback victory, advance to next round of playoffs**: [Link](https://abc7chicago.com/post/packers-bears-game-today-wild-card-nfl-playoff-chicago-green-bay-is-rare-matchup-long-running-rivalry/18382129/)
+- **How Ben Johnson urged the Bears to rally to win 'a game we'll never forget'**: [Link](https://chicago.suntimes.com/bears/2026/01/11/bears-packers-final-score-31-27-ben-johnson-rally-game-never-forget-caleb-williams-cole-kmet-nfl)
+- **Packers vs. Bears: Caleb Williams leads another incredible comeback over rivals with 25-point fourth quarter in Chicago's 31-27 victory**: [Link](https://sports.yahoo.com/nfl/live/packers-vs-bears-caleb-williams-leads-another-incredible-comeback-over-rivals-with-25-point-fourth-quarter-in-chicagos-31-27-victory-233006791.html)
+
+
+### john cena (N/A, 11/01/2026 03:33 Lima)
+
+- **TNA Star Frankie Kazarian Opens Up About Friendship With WWE's John Cena**: [Link](https://www.wrestlinginc.com/2068779/tna-wwe-frankie-kazarian-john-cena-friendship/)
+- **Chelsea Green Says The Idea For John Cena’s ‘Junk Or Jackpot’ Show Was Born On A Double Date Night**: [Link](https://www.fightful.com/wrestling/chelsea-green-matt-cardona-john-cena-280181/)
+- **John Cena's retirement**: [Link](https://vocal.media/geeks/john-cena-s-retirement)
+
+
+### deportivo cali (N/A, 11/01/2026 03:33 Lima)
+
+- **¡Con atajadón incluido! Pedro Gallese debutó con Deportivo Cali en partido de pretemporada**: [Link](https://depor.com/futbol-peruano/peruanos-en-el-mundo/pedro-gallese-debuto-con-deportivo-cali-atajadas-y-buenas-sensaciones-en-la-pretemporada-de-la-liga-colombiana-peruanos-en-el-exterior-video-noticia/)
+- **Deportivo Cali vs Once Caldas: A qué hora juega y dónde ver la Serie Río de La Plata 2026**: [Link](https://www.365scores.com/es/news/deportivo-cali-vs-once-caldas-a-que-hora/)
+- **Deportivo Cali y Once Caldas no se hicieron daño en Palmaseca: empate sin goles en amistoso por la Serie Colombia**: [Link](https://www.infobae.com/colombia/deportes/2026/01/10/en-vivo-deportivo-cali-vs-once-caldas-amistoso-de-preparacion-2026-verdiblancos-y-manizalenos-se-miden-por-la-serie-colombia/)
+
+
+### monterrey - toluca (N/A, 11/01/2026 03:33 Lima)
+
+- **Toluca vence a Rayados: Hugo González amarga debut de Monterrey**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/16168570/rayados-vs-toluca-clausura-2026-resultado-hugo-gonzalez)
+- **Vamos a hacer un mejor campeonato que el pasado.- Torrent**: [Link](https://www.elnorte.com/vamos-a-hacer-un-mejor-campeonato-que-el-pasado-torrent/ar3133922)
+- **Por qué no juegan Paulinho y Alexis Vega vs Monterrey en la debut de la Liga MX**: [Link](https://www.365scores.com/es/news/no-juegan-paulinho-alexis-vega-monterrey/)
+
+
+### motta alianza lima (N/A, 11/01/2026 03:33 Lima)
+
+- **Así fue el debut de Pablo Guede con Alianza Lima**: [Link](https://www.espn.com.ar/futbol/nota/_/id/16168128/video-asi-fue-el-debut-de-pablo-guede-con-alianza-lima-vs-independiente)
+- **La sorpresa de Geray Motta con 16 años y el show de Advíncula en la tribuna: lo que no se vio del debut de Guede en Alianza con derrota**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/alianza-lima-la-sorpresa-de-geray-motta-con-16-anos-y-el-show-de-luis-advincula-en-la-tribuna-lo-que-no-se-vio-del-debut-de-pablo-guede-con-derrota-ante-independiente-noticia/)
+- **El hincha de Alianza terminó furioso con Guede tras derrota ante Independiente: “Que no venga con experimen...**: [Link](https://bolavip.com/pe/alianza-lima/el-hincha-de-alianza-termino-furioso-con-guede-tras-derrota-ante-independiente-que-no-venga-con-experimentos)
+
+
 ### naruto (N/A, 10/01/2026 23:51 Lima)
 
 - **Jujutsu Kaisen season 3 brings back Maki, but why does she look so different?**: [Link](https://www.polygon.com/maki-transformation-jujutsu-kaisen-season-3-premiere/)
@@ -996,40 +1031,5 @@
 - **Otro contratiempo con Lamine**: [Link](https://as.com/futbol/primera/otro-contratiempo-con-lamine-f202601-n/)
 - **Flick: "Si necesitamos a Lamine, jugará"**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20260107/1002597369/flick-necesitamos-lamine-jugara.html)
 - **¡Lamine Yamal será suplente en la semifinal de Supercopa!**: [Link](https://www.sport.es/es/noticias/barca/lamine-yamal-sera-suplente-semifinal-125458167)
-
-
-### lazio vs fiorentina (N/A, 07/01/2026 15:31 Lima)
-
-- **Lazio vs Fiorentina: Lineups and how to watch**: [Link](https://www.violanation.com/serie-a/20925/lazio-fiorentina-serie-a-lineups-formation-how-to-watch-online-stream-match-thread)
-- **Lazio in attacking emergency after selling Castellanos to West Ham**: [Link](https://football-italia.net/lazio-in-attacking-emergency-after-castellanos/)
-- **Who Will Replace Suspended Lazio Duo Against Fiorentina**: [Link](https://thelaziali.com/2026/01/06/who-will-replace-suspended-lazio-duo-against-fiorentina/)
-
-
-### city vs (N/A, 07/01/2026 15:31 Lima)
-
-- **Manchester City, sin margen de error ante un Brighton siempre peligroso**: [Link](https://www.espn.com.pe/futbol/inglaterra/nota/_/id/16148539/manchester-city-vs-brighton-fecha-21-premier-league-equipo-fecha-hora-y-tv-en-vivo)
-- **Premier League: Manchester City y Brighton and Hove se encuentran en la fecha 21**: [Link](https://rpp.pe/futbol/ligas-internacionales/premier-league-manchester-city-y-brighton-and-hove-se-encuentran-en-la-fecha-21-noticia-1670462)
-- **Manchester City vs Brighton: ¡Juega en la Premier League y gana hasta S/. 600,000 con Meridianbet!**: [Link](https://ovacion.pe/noticias/nota-promocional/manchester-city-vs-brighton-juega-premier-league-gana-hasta-s-600000)
-
-
-### city (N/A, 07/01/2026 15:31 Lima)
-
-- **Brentford open talks with Manchester City over defensive loan signing**: [Link](https://sports.yahoo.com/articles/brentford-open-talks-manchester-city-153000520.html)
-- **A promising centre-back seems destined to be sold by Manchester City**: [Link](https://esteemedkompany.com/2026/01/04/a-promising-centre-back-seems-destined-to-be-sold-by-manchester-city/)
-- **Crystal Palace and Brentford in for Man City defender with zero appearances in multi-million pound transfer**: [Link](https://cityxtra.co.uk/39344/crystal-palace-and-brentford-in-for-man-city-defender-with-zero-appearances-in-multi-million-pound-transfer/)
-
-
-### pedri (N/A, 07/01/2026 15:31 Lima)
-
-- **Maldini desvela la carta a los Reyes Magos del Barcelona y Real Madrid para triunfar en 2026: fichajes, renovaciones y una petición clave para Pedri**: [Link](https://www.cope.es/programas/el-partidazo-de-cope/audios/maldini-desvela-carta-reyes-magos-barcelona-madrid-triunfar-2026-fichajes-renovaciones-peticion-clave-pedri-20260107_3282173.html)
-- **Pedri, y no es el único, se queja de las constantes desobediencias a Flick**: [Link](https://www.msn.com/es-es/deportes/futbol/pedri-y-no-es-el-%C3%BAnico-se-queja-de-las-constantes-desobediencias-a-flick/ar-AA1TK0fC)
-- **Rashford, y no es el único, se queja de las reiteradas faltas de indisciplina que Flick no castiga**: [Link](https://www.elnacional.cat/es/deportes/rashford-no-es-unico-se-queja-reiteradas-faltas-indisciplina-flick-no-castiga_1533901_102.html)
-
-
-### inter milan (N/A, 07/01/2026 15:31 Lima)
-
-- **Apuestas y Pronóstico del Parma vs Inter 07/01/26**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/2026/enero/pronostico-parma-vs-inter-07-01-26)
-- **Serie A: Inter va en busca del triunfo ante Parma para mantenerse en la cima**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-inter-va-en-busca-del-triunfo-ante-parma-para-mantenerse-en-la-cima-noticia-1670467)
-- **Inter FC, Frattesi no viaja a Parma: leve sobrecarga en el aductor**: [Link](https://www.todomercadoweb.es/serie-a/inter-fc-frattesi-no-viaja-a-parma-leve-sobrecarga-en-el-aductor-533951)
 
 
