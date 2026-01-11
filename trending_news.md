@@ -1,3 +1,73 @@
+### danitza pilco (N/A, 11/01/2026 11:31 Lima)
+
+- **Actriz peruana es investigada por la muerte de su pareja en Puno**: [Link](https://trome.com/actualidad/policiales/puno-actriz-peruana-danitza-pilco-es-investigada-por-la-muerte-de-su-pareja-de-20-anos-historia-de-policiales-noticia/)
+- **Puno: investigan a joven estudiante acusada de apuñalar a su enamorado en una vivienda**: [Link](https://rpp.pe/peru/puno/puno-investigan-a-joven-estudiante-acusada-de-apunalar-a-su-enamorado-en-una-vivienda-noticia-1671101)
+- **Actriz peruana es detenida por presuntamente apuñalar y asesinar a su pareja en Puno**: [Link](https://peru21.pe/peru/actriz-peruana-es-detenida-tras-apunalar-y-asesinar-su-pareja-en-puno/)
+
+
+### milan vs (N/A, 11/01/2026 11:31 Lima)
+
+- **Milan no quiere perder el tren del campeonato y visita a una Fiorentina en crisis**: [Link](https://www.espn.com.pe/futbol/italia/nota/_/id/16159631/fiorentina-vs-milan-fecha-20-serie-a-equipo-fecha-hora-y-tv-en-vivo)
+- **Milan salvó empate frente a Fiorentina**: [Link](https://ovacion.pe/noticias/futbol-internacional/milan-salvo-empate-frente-fiorentina)
+- **Fiorentina vs AC Milan Serie A dual, los rossoneri apuntan a comprometerse con el Inter de Milán**: [Link](https://www.ucvradio.pe/mas-actualidad/fiorentina-vs-ac-milan-serie-a-dual-los-rossoneri-apuntan-a-comprometerse-con-el-inter-de-milan/100106/)
+
+
+### felipe chávez (N/A, 11/01/2026 11:31 Lima)
+
+- **Lo piden para la Selección de Alemania: Felipe Chávez despertó elogios tras su primer gol con Bayern**: [Link](https://depor.com/futbol-peruano/peruanos-en-el-mundo/seleccion-peruana-felipe-chavez-estaria-siendo-seguido-por-la-seleccion-alemana-tras-su-gol-en-el-bayern-munich-noticia/)
+- **Felipe Chávez con ofertas en ligas top: Bayern tomó una decisión**: [Link](https://www.americatv.com.pe/deportes/futbol-mundial/felipe-chavez-ofertas-ligas-top-bayern-tomo-decision-n452270)
+- **En Alemania no descartan que Felipe Chávez renuncie a Perú y juegue para Alemania: “Está indeciso”**: [Link](https://bolavip.com/pe/peruanos-en-el-exterior/en-alemania-no-descartan-que-felipe-chavez-renuncie-a-peru-y-juegue-para-alemania-esta-indeciso)
+
+
+### manchester united - brighton (N/A, 11/01/2026 11:31 Lima)
+
+- **Team news for Man Utd v Brighton | Emirates FA Cup third-round tie | 11 Jan 2026**: [Link](https://www.manutd.com/en/news/detail/team-news-for-man-utd-v-brighton-fa-cup-third-round-2026)
+- **Manchester United Invite Brighton to Old Trafford for FA Cup Clash**: [Link](https://www.dawan.africa/news/manchester-united-invite-brighton-to-old-trafford-for-fa-cup-clash)
+- **Fletcher on the FA Cup: ‘Given the current season, this is a trophy that Manchester United should be fighting for’**: [Link](https://tribuna.com/en/news/2026-01-11-fletcher-on-the-fa-cup-given-the-current-season-this-is-a-trophy-that-manchester-united-s/)
+
+
+### bayern - wolfsburg (N/A, 11/01/2026 11:31 Lima)
+
+- **Bayern – Wolfsburg: Aufstellung da! Kompany baut auf 4 Positionen um**: [Link](https://sportbild.bild.de/fussball/fc-bayern-muenchen/bayern-wolfsburg-aufstellung-da-kompany-baut-auf-4-positionen-um-6963c9936d4e9eba622751f5)
+- **Bundesliga heute: Bayern - Wolfsburg LIVE im TV, Liveticker & Livestream**: [Link](https://www.sport1.de/news/fussball/bundesliga/2026/01/bundesliga-heute-bayern-wolfsburg-live-im-tv-liveticker-livestream)
+- **Bayern-Trainer Vincent Kompany hat hervorragenden Punkteschnitt**: [Link](https://sport.sky.de/fussball/artikel/bayern-trainer-vincent-kompany-hat-hervorragenden-punkteschnitt/13492005/33895)
+
+
+### sheffield united (N/A, 11/01/2026 11:31 Lima)
+
+- **Blades v Mansfield - confirmed teams**: [Link](https://www.sufc.co.uk/news/2026/january/11/blades-v-mansfield/)
+- **SUFC News: United’s cup approach outlined as Clough return offers timely reminder**: [Link](https://www.thestar.co.uk/sport/football/sheffield-united/chris-wilder-sheffield-united-fa-cup-approach-nigel-clough-mansfield-town-5470110)
+- **Wilder Makes “Ridiculously Inexperienced” Remark As Sheffield United Prepare For Stags Match**: [Link](https://sheffunitedway.co.uk/2026/01/09/wilder-makes-ridiculously-inexperienced-remark-as-sheffield-united-prepare-for-stags-match/)
+
+
+### copa fa (N/A, 11/01/2026 11:31 Lima)
+
+- **¡EN VIVO! Arsenal quiere prolongar su buen momento ante Portsmouth en FA Cup**: [Link](https://www.espn.com.pe/futbol/inglaterra/nota/_/id/16160644/arsenal-vs-portsmouth-tercera-ronda-fa-cup-equipo-fecha-hora-y-tv-en-vivo)
+- **Arsenal goleó al Portsmouth en la Copa FA**: [Link](https://ovacion.pe/noticias/futbol-internacional/arsenal-goleo-al-portsmouth-copa-fa)
+- **Tercera ronda de la Copa FA: el Arsenal lidera al Portsmouth 2-1, pero el penalti de Madduk falla**: [Link](https://www.elpueblo.pe/deportes/tercera-ronda-de-la-copa-fa-el-arsenal-lidera-al-portsmouth-2-1-pero-el-penalti-de-madduk-falla/205782/)
+
+
+### west ham (N/A, 11/01/2026 11:31 Lima)
+
+- **How can I watch City v Everton on TV?**: [Link](https://www.mancity.com/news/womens/man-city-everton-wsl-tv-information-63903723)
+- **Formidable Man City pick up where they left off**: [Link](https://www.skysports.com/football/news/11095/13492916/man-city-women-beat-everton-women-to-maintain-wsl-lead-as-chelsea-women-thump-west-ham-women-wsl-round-up)
+- **Blues Controversially Beaten By League Leaders**: [Link](https://www.evertonfc.com/news/2026/january/11/Blues-Controversially-Beaten-By-League-Leaders/)
+
+
+### milan (N/A, 11/01/2026 11:31 Lima)
+
+- **Gallery: ‘A new Milan lurking’, ‘Loftus-Cheek for Gatti’ – Today’s front pages in Italy**: [Link](https://sempremilan.com/front-pages-italy-fiorentina-milan-gatti)
+- **Allegri: Modric ‘on the bench’ against Fiorentina, Leao ‘more concrete’**: [Link](https://football-italia.net/allegri-modric-bench-fiorentina-leao-concrete/)
+- **Rabiot ‘not worried’ about Milan Scudetto chances: ‘There is a long way to go until May’**: [Link](https://www.yardbarker.com/soccer/articles/rabiot_not_worried_about_milan_scudetto_chances_there_is_a_long_way_to_go_until_may/s1_17344_43309107)
+
+
+### levante - rcd espanyol (N/A, 11/01/2026 11:31 Lima)
+
+- **LaLiga EA Sports: Espanyol se enfrentará a Levante por la fecha 19**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-espanyol-se-enfrentara-a-levante-por-la-fecha-19-noticia-1671044)
+- **Todo lo que debes saber del Levante-Espanyol de la jornada 19 | LaLiga**: [Link](https://www.flashscore.pe/noticias/futbol-laliga-ea-sports-previa-del-levante-espanyol-curiosidades-estadisticas-datos-y-anecdotas/W84bekuh/)
+- **Levante - Espanyol live**: [Link](https://www.marca.com/en/soccer/laliga-ea-sports/levante-espanyol/2026/01/11/01_0101_20260111_855_177-live.html)
+
+
 ### rayo vallecano - r.c.d. mallorca (N/A, 11/01/2026 07:52 Lima)
 
 - **Rayo Vallecano - Mallorca, en directo: LaLiga EA Sports, en vivo hoy**: [Link](https://as.com/futbol/primera/rayo-vallecano-mallorca-en-directo-laliga-ea-sports-en-vivo-hoy-f202601-d/)
@@ -961,75 +1031,5 @@
 - **Premier League: Arsenal necesita sumar de a 3 puntos para mantenerse en la cima**: [Link](https://rpp.pe/futbol/ligas-internacionales/premier-league-arsenal-necesita-sumar-de-a-3-puntos-para-mantenerse-en-la-cima-noticia-1670623)
 - **Arsenal vs. Liverpool EN VIVO vía ESPN: alineaciones, hora y dónde ver Premier League**: [Link](https://libero.pe/futbol-internacional/2026/01/07/arsenal-vs-liverpool-en-vivo-via-espn-disney-plus-internet-partido-de-premier-league-2026-video-vilb-325787)
 - **Arsenal vs. Liverpool: Arteta dice que tienen "algo que demostrar"**: [Link](https://www.espn.com.pe/futbol/inglaterra/nota/_/id/16155100/arsenal-vs-liverpool-arteta-algo-demostrar-campeon-premier-league)
-
-
-### lakers (N/A, 07/01/2026 23:43 Lima)
-
-- **LeBron James Says Playing In Back-To-Backs Now 'TBD' At 41 Years Old**: [Link](https://www.tmz.com/2026/01/07/lebron-james-back-to-backs-tbd-41-years-old/)
-- **JJ Redick says that the hope is that at some point …**: [Link](https://www.hoopshype.com/story/sports/nba/rumors/2026/01/07/jj-redick-says-that-the-hope-is-that-at-some-point/88073803007/)
-- **LeBron James’ All-NBA streak in jeopardy after 17th missed game**: [Link](https://sports.yahoo.com/articles/lebron-james-nba-streak-jeopardy-024127635.html)
-
-
-### bucks - warriors (N/A, 07/01/2026 23:43 Lima)
-
-- **Milwaukee Bucks at Golden State Warriors odds, picks and predictions**: [Link](https://sportsbookwire.usatoday.com/story/sports/nba/2026/01/07/bucks-at-warriors-odds-picks-and-predictions/88066288007/)
-- **theScore Bet bonus code NPNEWS: Bet $10, get $100 in bonus bets for Bucks vs. Warriors**: [Link](https://nypost.com/2026/01/07/betting/thescore-bet-bonus-code-npnews-bet-10-get-100-in-bonus-bets-for-bucks-vs-warriors/)
-- **Curry, Giannis and an uncertain path around Superstars**: [Link](https://dubnationhq.com/p/curry-giannis-and-an-uncertain-path)
-
-
-### pedro el escamoso (N/A, 07/01/2026 23:43 Lima)
-
-- **Pedro el escamoso 2: Paula aparece y revela por qué buscaba a Pedro tras décadas de silencio**: [Link](https://www.atv.pe/noticia/pedro-el-escamoso-2-paula-aparece-y-revela-por-que-buscaba-a-pedro-tras-decadas-de-silencio/)
-- **Pedro el escamoso 2: Revelan el dramático destino de Paula en emotivo encuentro**: [Link](https://www.atv.pe/noticia/pedro-el-escamoso-2-revelan-el-dramatico-destino-de-paula-en-emotivo-encuentro/)
-- **Pedro el escamoso 2: Fernanda cancela viaje a EE.UU. por Mariana, ¿quién acompañará a Pedro Junior?**: [Link](https://www.atv.pe/noticia/pedro-el-escamoso-2-fernanda-cancela-viaje-a-ee-uu-por-mariana-quien-acompanara-a-pedro-junior/)
-
-
-### lakers - spurs (N/A, 07/01/2026 23:43 Lima)
-
-- **Lakers vs Spurs Picks & Odds Today: Los Angeles To Cover As Road Underdog**: [Link](https://www.oddsshark.com/nba/lakers-spurs-picks-odds-january-7-2026)
-- **Kalshi Promo Code 'COVERS' Gives A $10 Bonus For Your First Predictions Play On Lakers-Spurs**: [Link](https://www.covers.com/daily-promos/kalshi-promo-code-nba-lakers-spurs-01-07-2026)
-- **BetMGM Bonus Code NYPDM1500: Get a 20% first deposit match up to $1,500 for Lakers vs. Spurs**: [Link](https://nypost.com/2026/01/07/betting/betmgm-bonus-code-nypdm1500-get-a-20-first-deposit-match-up-to-1500-for-lakers-vs-spurs/)
-
-
-### prima afp (N/A, 07/01/2026 23:43 Lima)
-
-- **Retiro de AFP: Afiliados sí pueden registrar una segunda solicitud bajo estas condiciones**: [Link](https://www.infobae.com/peru/2026/01/07/retiro-de-afp-afiliados-si-pueden-registrar-una-segunda-solicitud-bajo-estas-condiciones/)
-- **AFP: Siga estas claves para proteger su dinero si decide retirarlo tras el ajuste de la UIT**: [Link](https://elperuano.pe/noticia/286579-afp-siga-estas-claves-para-proteger-su-dinero-si-decide-retirarlo-tras-el-ajuste-de-la-uit)
-- **Retiro AFP 2026: Podrás retirar hasta S/22.000; plazo vence el 16 de enero**: [Link](https://peru21.pe/economia/retiro-afp-2026-vuelve-el-acceso-para-retirar-hasta-s22000/)
-
-
-### audrey nuna (N/A, 07/01/2026 23:43 Lima)
-
-- **How ‘KPop Demon Hunters’ Star Audrey Nuna Avoided a Wardrobe Malfunction at the Critics Choice Awards**: [Link](https://www.imdb.com/news/ni65645579/?ref_=nwc_art_perm)
-- **How ‘KPop Demon Hunters’ Star Audrey Nuna Avoided a Wardrobe Malfunction at the Critics Choice Awards**: [Link](https://www.hollywoodreporter.com/lifestyle/style/details-of-how-audrey-nunas-stylist-fixed-her-cca-dress-1236464399/)
-- **New VALORANT Cinematic, Named Welcome to My World... is Out!**: [Link](https://www.gamegrin.com/news/new-valorant-cinematic-named-welcome-to-my-world-is-out/)
-
-
-### november 61987 (N/A, 07/01/2026 21:07 Lima)
-
-- **‘Stranger Things’ Surprise Final Episode Doesn’t Exist: Here’s Why Fans Thought ‘Conformity Gate’ Was Real**: [Link](https://variety.com/2026/tv/news/stranger-things-conformity-gate-final-episode-doesnt-exist-1236625074/)
-- **Netflix Addresses Stranger Things Secret Episode Theory After Series Finale**: [Link](https://www.eonline.com/news/1426997/netflix-addresses-stranger-things-conformity-gate-theory)
-- **'Stranger Things' Conformity Gate countdown clock: Real or fake?**: [Link](https://uk.news.yahoo.com/stranger-things-conformity-gate-countdown-170929231.html)
-
-
-### kevin hart (N/A, 07/01/2026 21:07 Lima)
-
-- **Kevin Hart Enters Strategic Partnership With Authentic to Scale His Brand and Business Worldwide**: [Link](https://corporate.authentic.com/press-releases/kevin-hart-strategic-partnership-authentic-brands-group-scale-brand-business-worldwide)
-- **Shaquille O’Neal Featured in Kevin Hart’s Career Announcement**: [Link](https://athlonsports.com/nba/shaquille-oneal-featured-in-kevin-harts-game-changing-announcement)
-- **Kevin Hart becomes shareholder in $32 billion Authentic Brands Group**: [Link](https://www.billionaires.africa/2026/01/07/kevin-hart-becomes-shareholder-in-32-billion-authentic-brands-group/)
-
-
-### weather (N/A, 07/01/2026 21:07 Lima)
-
-- **Hundreds of flights cancelled as big freeze grips western Europe**: [Link](https://www.bbc.com/news/articles/cy59k13e7eqo)
-- **Severe winter storm forces Dutch railways to continue reduced services Thursday**: [Link](https://nltimes.nl/2026/01/07/severe-winter-storm-forces-dutch-railways-continue-reduced-services-thursday)
-- **In pictures: Rare heavy snowfall blankets Paris streets and monuments**: [Link](https://www.france24.com/en/france/20260107-in-pictures-rare-heavy-snowfall-blankets-paris-streets-and-monuments)
-
-
-### milo manheim (N/A, 07/01/2026 21:07 Lima)
-
-- **‘Tangled’ Live-Action Movie Finds Its Leads: Teagan Croft, Milo Manheim (Exclusive)**: [Link](https://www.hollywoodreporter.com/movies/movie-news/tangled-live-action-movie-teagan-croft-milo-manheim-1236466753/)
-- **'Tangled' Live-Action Casts Milo Manheim and Teagan Croft As Leads**: [Link](https://www.today.com/popculture/movies/tangled-live-action-milo-manheim-teagan-croft-cast-rcna252916)
-- **Live-action ‘Tangled’ will star Teagan Croft and Milo Manheim as Rapunzel and Flynn Rider**: [Link](https://apnews.com/article/tangled-liveaction-teagan-croft-milo-manheim-825fe3a9656135dd55a74ad4c52277fa)
 
 
