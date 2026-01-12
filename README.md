@@ -1,3 +1,16 @@
+### ana de armas (N/A, 12/01/2026 03:39 Lima)
+
+- **Ana de Armas Turns Up the Heat in a High-Slit Black Dress at the 2026 Golden Globes**: [Link](https://www.imdb.com/news/ni65654887/?ref_=nmnw_art_perm)
+- **"Superb" John Wick spin-off with "near-constant action" has just landed on Prime Video**: [Link](https://uk.news.yahoo.com/superb-john-wick-spin-off-164700851.html)
+
+
+### owen cooper (N/A, 12/01/2026 03:39 Lima)
+
+- **Adolscence: How many awards did Netflix's limited series bag at Golden Globes 2026?**: [Link](https://www.wionews.com/photos/adolscence-how-many-awards-did-netflix-s-limited-series-bag-at-golden-globes-2026-1768190593135)
+- **Pic Of The Day: Leonardo DiCaprio Poses With Golden Globes Winner Owen Cooper**: [Link](https://www.ndtv.com/entertainment/pic-of-the-day-leonardo-di-caprio-poses-with-golden-globes-winner-owen-cooper-10713396)
+- **'Adolescence's Owen Cooper Bags Golden Globe After Emmy, His Salary From The Series And Net Worth**: [Link](https://www.bollywoodshaadis.com/articles/adolesence-owen-cooper-golden-globe-73574)
+
+
 ### julia roberts (N/A, 11/01/2026 23:54 Lima)
 
 - **Julia Roberts and Husband Danny Moder Step Out for Rare Public Date Night at 2026 Golden Globes**: [Link](https://people.com/golden-globes-2026-julia-roberts-danny-moder-have-rare-date-night-11883270)
@@ -1017,19 +1030,5 @@
 - **Sutton's FA Cup third-round predictions v DJ & producer Shadow Child - and AI**: [Link](https://www.bbc.com/sport/football/articles/cvg5ldyz606o)
 - **FA Cup Opta Stats: Saturday's best bets, bet builders and upsets**: [Link](https://onefootball.com/de/news/fa-cup-opta-stats-saturdays-best-bets-bet-builders-and-upsets-42199653)
 - **2025-26 FA Cup outright betting tips, odds and predictions: Arsenal's FA Cup love affair looks set to continue**: [Link](https://www.racingpost.com/sport/football-tips/fa-cup/2025-26-fa-cup-outright-betting-tips-odds-and-predictions-aDzBF8X8yMrK/)
-
-
-### liverpool fc (N/A, 08/01/2026 21:08 Lima)
-
-- **Dominik Szoboszlai: I don't enjoy my own form - the team's aims are everything**: [Link](https://www.liverpoolfc.com/news/dominik-szoboszlai-i-dont-enjoy-my-own-form-teams-aims-are-everything)
-- **Declan Rice shares blueprint to beating Liverpool after Dominik Szoboszlai reminder**: [Link](https://www.liverpool.com/liverpool-fc-news/features/declan-rice-shares-blueprint-beating-33190548)
-- **‘They Know’—Liverpool Star Warns Arsenal Ahead of Heavyweight Showdown**: [Link](https://www.si.com/soccer/they-know-liverpool-star-warns-arsenal-heavyweight-showdown)
-
-
-### vinícius júnior (N/A, 08/01/2026 21:08 Lima)
-
-- **Bellingham sobe em defesa de Vencius**: [Link](https://www.segundabase.com.br/estatisticas/bellingham-sobe-em-defesa-de-vencius/36645/)
-- **Vinícius Júnior chega a 19 jogos sem marcar pelo Real Madrid**: [Link](https://somosfanaticos.fans/br/futebol-europeu/vinicius-junior-chega-a-19-jogos-sem-marcar-pelo-real-madrid)
-- **Os números da crise: Vini Jr. afunda em jejum e vira preocupação para Real Madrid e Seleção**: [Link](https://trivela.com.br/espanha/vini-crise-real-madrid-selecao/)
 
 
