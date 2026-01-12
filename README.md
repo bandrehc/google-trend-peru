@@ -1,3 +1,73 @@
+### julia roberts (N/A, 11/01/2026 23:54 Lima)
+
+- **Julia Roberts and Husband Danny Moder Step Out for Rare Public Date Night at 2026 Golden Globes**: [Link](https://people.com/golden-globes-2026-julia-roberts-danny-moder-have-rare-date-night-11883270)
+- **Julia Roberts Details “Life-Affirming” Party With Ayo Edebiri, Andrew Garfield Ahead of Golden Globes**: [Link](https://www.eonline.com/news/1427088/golden-globes-2026-julia-roberts-party-with-ayo-edebiri-andrew-garfield)
+- **Julia Roberts Wore A Wild Red Necklace To The Golden Globes, And I Can't Take My Eyes Off It**: [Link](https://www.inkl.com/news/julia-roberts-wore-a-wild-red-necklace-to-the-golden-globes-and-i-can-t-take-my-eyes-off-it)
+
+
+### hamnet (N/A, 11/01/2026 23:54 Lima)
+
+- **2026 Golden Globes live updates: Full list of winners as 'One Battle After Another' and 'Hamnet' take home top film nods; 'Adolescence' recognized for TV with 4 wins**: [Link](https://www.yahoo.com/entertainment/celebrity/live/2026-golden-globes-live-updates-full-list-of-winners-as-one-battle-after-another-and-hamnet-take-home-top-film-nods-adolescence-recognized-for-tv-with-4-wins-000306961.html)
+- **Live updates: The 2026 Golden Globes**: [Link](https://www.cnn.com/entertainment/live-news/golden-globes-01-11-26)
+- **Golden Globes 2026 Highlights: ‘One Battle After Another’ Dominates the Night**: [Link](https://www.vanityfair.com/live/golden-globes-2026-live-updates)
+
+
+### pluribus (N/A, 11/01/2026 23:54 Lima)
+
+- **Rhea Seehorn Wins Golden Globe for Best Actress in TV Drama**: [Link](https://variety.com/2026/tv/news/rhea-seehorn-golden-globes-best-actor-tv-drama-1236623747/)
+- **Rhea Seehorn Recalls Signing Up for Pluribus Before Seeing the Script — and Now She Has a Best Actress Award for It**: [Link](https://people.com/rhea-seehorn-recalls-signing-up-for-pluribus-before-seeing-script-best-actress-apple-tv-11879664)
+- **How Rhea Seehorn Reacted to Winning Best Actress in a TV Drama Series at the 2026 Golden Globes**: [Link](https://www.elle.com/culture/celebrities/a69966691/rhea-seehorn-best-actress-tv-drama-golden-globes-speech-transcript-2026/)
+
+
+### dakota fanning (N/A, 11/01/2026 23:54 Lima)
+
+- **Elle Fanning Says Big Sister Dakota Fanning Has 'Promised Not to Boss Me Around' on Their New Movie Set**: [Link](https://people.com/golden-globes-2026-elle-fanning-dakota-sister-dakota-promised-not-to-boss-me-around-11883202)
+- **Elle Fanning speaks candidly about upcoming movie 'The Nightingale'**: [Link](https://www.thenews.com.pk/latest/1387224-elle-fanning-speaks-candidly-about-upcoming-movie-the-nightingale)
+- **What Dakota Fanning Promised Elle Fanning Before The Nightingale**: [Link](https://www.yahoo.com/entertainment/movies/articles/dakota-fanning-promised-elle-fanning-004818276.html)
+
+
+### heated rivalry (N/A, 11/01/2026 23:54 Lima)
+
+- **'Heated Rivalry' Stars Hudson Williams and Connor Storrie Set the Red Carpet on Fire in 2026 Golden Globes Debut**: [Link](https://people.com/golden-globes-2026-heated-rivalry-stars-hudson-williams-connor-storrie-red-carpet-photos-11883049)
+- **Connor Storrie’s Sunglasses Are a Golden Globes Winner**: [Link](https://www.yahoo.com/entertainment/celebrity/articles/connor-storrie-sunglasses-golden-globes-033208253.html)
+- **The 'Heated Rivalry' Boys Hit the Fashion Big Leagues at the 2026 Golden Globes**: [Link](https://www.gq.com/story/golden-globes-2026-heated-rivalry-hudson-williams-connor-storrie)
+
+
+### carlos alvarez (N/A, 11/01/2026 23:54 Lima)
+
+- **Elecciones 2026: Rafael López Aliaga alcanza el 12 %, mientras la mayoría de peruanos sigue sin definir por quién votar**: [Link](https://www.infobae.com/peru/2026/01/11/elecciones-2026-rafael-lopez-aliaga-alcanza-el-12-mientras-la-mayoria-de-peruanos-sigue-sin-definir-por-quien-votar/)
+- **Elecciones 2026: solo 12% de peruanos ya decidió su voto presidencial, según Datum**: [Link](https://caretas.pe/politica/elecciones-2026-solo-12-de-peruanos-ya-decidio-su-voto-presidencial-segun-datum/)
+- **Datum: Rafael López Aliaga encabeza intención de voto con 12%**: [Link](https://www.americatv.com.pe/noticias/actualidad/datum-rafael-lopez-aliaga-encabeza-intencion-voto-12-n514716)
+
+
+### presidente de venezuela (N/A, 11/01/2026 23:54 Lima)
+
+- **¿Quién es "Nicolasito", hijo del derrocado presidente de Venezuela, y de qué lo acusa EE.UU.?**: [Link](https://cnnespanol.cnn.com/2026/01/09/venezuela/perfil-nicolasito-maduro-guerra-hijo-presidente-orix)
+- **Maduro dice estar "bien" en prisión en EE.UU., según su hijo**: [Link](https://www.dw.com/es/maduro-dice-estar-bien-en-prisi%C3%B3n-en-eeuu-seg%C3%BAn-su-hijo/a-75463094)
+- **El hijo de Maduro, hombre clave en la nueva etapa**: [Link](https://elpais.com/america/2026-01-07/el-hijo-de-maduro-hombre-clave-en-la-nueva-etapa.html)
+
+
+### kpop demon hunters (N/A, 11/01/2026 23:54 Lima)
+
+- **Golden Globes live updates: Timothée Chalamet wins best actor in musical or comedy film**: [Link](https://apnews.com/live/golden-globes-2026-updates)
+- **‘KPop Demon Hunters’ mastermind talks sequel following big Globes win: ‘Hopefully it will mean something to people’**: [Link](https://www.yahoo.com/entertainment/movies/articles/kpop-demon-hunters-mastermind-talks-035500525.html)
+- **Kpop Demon Hunters ’ “Golden” Wins Best Original Song at 2026 Golden Globes**: [Link](https://pitchfork.com/news/kpop-demon-hunters-golden-wins-best-original-song-at-2026-golden-globes/)
+
+
+### sinners (N/A, 11/01/2026 23:54 Lima)
+
+- **Ludwig Göransson Wins Best Original Score at 2026 Golden Globes for Sinners**: [Link](https://pitchfork.com/news/ludwig-goransson-wins-best-original-score-at-2026-golden-globes-for-sinners/)
+- **Ryan Coogler Admits at Golden Globes to Not Knowing if People “Would Show Up” to See ‘Sinners’**: [Link](https://www.hollywoodreporter.com/movies/movie-news/2026-golden-globes-box-office-ryan-coogler-sinners-1236470006/)
+- **‘Sinners’ Wins Two Golden Globes, Upset By ‘Hamnet’ For Best Drama**: [Link](https://www.forbes.com/sites/tonifitzgerald/2026/01/11/sinners-wins-two-golden-globes-upset-by-hamnet-for-best-drama/)
+
+
+### hailee steinfeld (N/A, 11/01/2026 23:54 Lima)
+
+- **Hailee Steinfeld Debuts Her Baby Bump on the 2026 Golden Globes Red Carpet**: [Link](https://www.vogue.com/article/hailee-steinfeld-baby-bump-2026-golden-globes)
+- **Josh Allen Drools Over Pregnant Wife Hailee Steinfeld's 2026 Golden Globes Outfit After She Hits Carpet Solo**: [Link](https://people.com/golden-globes-2026-josh-allen-drools-over-pregnant-wife-hailee-steinfeld-outfit-11883293)
+- **Hailee Steinfeld Arrives at Golden Globes 2026 After Husband Josh Allen’s NFL Playoff Win with the Bills!**: [Link](https://www.justjared.com/2026/01/11/hailee-steinfeld-arrives-at-golden-globes-2026-after-husband-josh-allens-nfl-playoff-win-with-the-bills/)
+
+
 ### ciro castillo rojo (N/A, 11/01/2026 21:19 Lima)
 
 - **Dictan 24 meses de prisión preventiva a Ciro Castillo, suspendido gobernador del Callao**: [Link](https://caretas.pe/politica/dictan-24-meses-de-prision-preventiva-a-ciro-castillo-suspendido-gobernador-del-callao/)
@@ -961,75 +1031,5 @@
 - **Bellingham sobe em defesa de Vencius**: [Link](https://www.segundabase.com.br/estatisticas/bellingham-sobe-em-defesa-de-vencius/36645/)
 - **Vinícius Júnior chega a 19 jogos sem marcar pelo Real Madrid**: [Link](https://somosfanaticos.fans/br/futebol-europeu/vinicius-junior-chega-a-19-jogos-sem-marcar-pelo-real-madrid)
 - **Os números da crise: Vini Jr. afunda em jejum e vira preocupação para Real Madrid e Seleção**: [Link](https://trivela.com.br/espanha/vini-crise-real-madrid-selecao/)
-
-
-### copa de españa (N/A, 08/01/2026 21:08 Lima)
-
-- **Así quedan los cruces de octavos de la Copa del Rey: estos son los rivales de Real Madrid, Barça y Atlético**: [Link](https://as.com/futbol/copa_del_rey/asi-quedan-los-cruces-de-octavos-de-la-copa-del-rey-con-real-madrid-barca-y-atletico-f202601-n/)
-- **Racing-Barcelona y Albacete-Madrid; así ha sido el sorteo de los octavos de final de la Copa del Rey**: [Link](https://elpais.com/deportes/futbol/2026-01-07/asi-sera-el-sorteo-de-este-miercoles-de-los-octavos-de-final-de-la-copa-del-rey-bombos-y-equipos.html)
-- **Copa del Rey: Así quedaron las llaves de los octavos de final con Barcelona y Real Madrid | DEPORTE-TOTAL**: [Link](https://elcomercio.pe/deporte-total/espana/copa-del-rey-asi-quedaron-las-llaves-de-los-octavos-de-final-con-barcelona-y-real-madrid-noticia/)
-
-
-### julián alvarez (N/A, 08/01/2026 21:08 Lima)
-
-- **Los 19 jugadores que están por encima de los 100 M€: de Lamine a Bellingham y Dembélé**: [Link](https://www.transfermarkt.es/los-19-jugadores-que-estan-por-encima-de-los-100-m-euro-de-lamine-a-bellingham-y-dembele/view/news/473314)
-- **Lamine Yamal revienta la banca: su valor es de casi 100 millones más que Haaland**: [Link](https://www.marca.com/futbol/album/2026/01/07/lamine-yamal-revienta-banca-valor-100-millones-haaland.html)
-- **El sorprendente informe sobre los jugadores más caros del mundo: quiénes son los argentinos mejor valorados**: [Link](https://www.infobae.com/deportes/2026/01/07/el-sorprendente-informe-sobre-los-jugadores-mas-caros-del-mundo-quienes-son-los-argentinos-mejor-valorados/)
-
-
-### marca (N/A, 08/01/2026 21:08 Lima)
-
-- **Conflicto de marcas: Catitejas vs. Starbucks, ¿Cómo resolvió Indecopi la apelación de María Pía Copello?**: [Link](https://www.infobae.com/peru/2026/01/07/maria-pia-copello-y-el-dia-que-una-artista-peruana-vencio-a-la-transnacional-starbucks-el-caso-catitejas/)
-- **Puerto de Paracas marca récord y apunta a superar los 100,000 TEUs en 2026**: [Link](https://gestion.pe/economia/empresas/puerto-de-paracas-marca-record-y-apunta-a-superar-los-100000-teus-en-2026-noticia/)
-- **Puerto de Paracas avanza a convertirse en eje logístico del sur: balance del 2025 y proyecciones al 2026**: [Link](https://rpp.pe/economia/economia/puerto-de-paracas-avanza-a-convertirse-en-eje-logistico-del-sur-balance-del-2025-y-proyecciones-al-2026-noticia-1670835)
-
-
-### thiago almada (N/A, 08/01/2026 21:08 Lima)
-
-- **Atlético de Madrid no descarta venta de Thiago Almada en invierno**: [Link](https://www.espn.com.ar/futbol/espana/nota/_/id/16158461/atletico-madrid-thiago-almada-venta-invierno)
-- **Simeone le bajó el pulgar: Thiago Almada fue declarado transferible en el Atlético de Madrid**: [Link](https://noticiasargentinas.com/deportes/almada--en-la-rampa-de-salida-del-atletico_a695eb572cbf033dd9915ddc5)
-- **La contundente decisión de Atlético de Madrid con Thiago Almada a seis meses de su llegada**: [Link](https://www.tycsports.com/espana/la-liga/mercado-de-pases-la-liga-atletico-de-madrid-thiago-almada-transferible-id706872.html)
-
-
-### milan vs (N/A, 08/01/2026 15:31 Lima)
-
-- **Milan recibe a Genoa para meter más presión en la lucha por el título**: [Link](https://www.espn.com.pe/futbol/italia/nota/_/id/16150925/milan-vs-genoa-serie-a-2025-26-equipo-fecha-hora-y-tv-en-vivo)
-- **Preview: AC Milan vs Genoa - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/ac-milan/preview/ac-milan-vs-genoa-prediction-team-news-lineups_589331.html)
-- **CorSera: The team he designed – Allegri can call upon first choice XI at last**: [Link](https://sempremilan.com/allegri-call-upon-first-choice-xi-last)
-
-
-### arsenal vs (N/A, 08/01/2026 15:31 Lima)
-
-- **Arsenal vs Liverpool LIVE: Premier League score, team news & updates**: [Link](https://www.bbc.com/sport/football/live/cx20l04gjj7t)
-- **Every word of Mikel Arteta's pre-Liverpool presser | Press conference | News**: [Link](https://www.arsenal.com/news/every-word-mikel-artetas-pre-liverpool-presser)
-- **Bukayo Saka is on the brink of making history for Arsenal vs Liverpool**: [Link](https://paininthearsenal.com/bukayo-saka-brink-making-history-arsenal-vs-liverpool)
-
-
-### paris (N/A, 08/01/2026 15:31 Lima)
-
-- **DIRECT. Colère des agriculteurs : le président de la Coordination rurale appelle à "libérer" les tracteurs pour que ses troupes puissent rentrer**: [Link](https://www.franceinfo.fr/economie/crise/blocus-des-agriculteurs/direct-colere-agricole-plusieurs-dizaines-de-tracteurs-sont-entres-dans-paris_7727788.html)
-- **Colère agricole : la FDSEA et les JA se mobilisent ce vendredi matin devant la préfecture de l’Aveyron**: [Link](https://www.centrepresseaveyron.fr/2026/01/08/colere-agricole-la-fdsea-et-les-ja-se-mobilisent-ce-vendredi-matin-devant-la-prefecture-de-laveyron-13151238.php)
-- **Les livraisons de fioul et de gasoil bloquées**: [Link](https://www.ledauphine.com/economie/2026/01/08/les-livraisons-de-fioul-et-de-gasoil-bloquees)
-
-
-### supercopa de españa final (N/A, 08/01/2026 15:31 Lima)
-
-- **Supercopa de España: Real Madrid, FC Barcelona, Atlético de Madrid y Athletic Club buscan su primer título de 2026**: [Link](https://cnnespanol.cnn.com/2026/01/06/deportes/supercopa-espana-2026-formato-partidos-equipos-orix)
-- **¿Por qué no hay prórroga en la Supercopa de España? Así se decidirá el ganador en caso de empate**: [Link](https://as.com/futbol/primera/por-que-no-hay-prorroga-en-los-partidos-de-supercopa-de-espana-asi-se-decidira-el-ganador-en-caso-de-empate-f202601-n/)
-- **El incómodo examen general de la Supercopa de España**: [Link](https://elpais.com/deportes/futbol/2026-01-07/el-examen-general-de-la-supercopa-de-espana.html)
-
-
-### razer project ava (N/A, 08/01/2026 15:31 Lima)
-
-- **I tried Razer's Project Motoko AI headphones at CES 2026. Move over, smart glasses.**: [Link](https://mashable.com/article/ces-2026-razer-project-motoko-hands-on)
-- **CES 2026 Really Wants You to Own a Holographic Anime Girlfriend**: [Link](https://gizmodo.com/ces-2026-really-wants-you-to-own-a-holographic-anime-girlfriend-2000707138)
-- **AVA is a pocket-sized AI hologram that can help you win games and organize your life**: [Link](https://www.techradar.com/ai-platforms-assistants/meet-the-tiny-ai-hologram-ready-to-be-your-esports-coach-and-life-planner)
-
-
-### final supercopa de españa (N/A, 08/01/2026 15:31 Lima)
-
-- **Espionaje de alto nivel para el Barça de Flick**: [Link](https://as.com/futbol/copa_del_rey/espionaje-de-alto-nivel-para-el-barca-de-flick-f202601-n/)
-- **El FC Barcelona gana, gusta y golea, y espera por Real Madrid o Atlético de Madrid en la final de la Supercopa de España**: [Link](https://cnnespanol.cnn.com/2026/01/07/deportes/barcelona-golea-athletic-club-supercopa-espana-orix)
-- **Uno a uno del Barça vs Athletic de semifinales de la Supercopa: Raphinha, insaciable e incansable**: [Link](https://www.marca.com/futbol/barcelona/2026/01/07/barca-vs-athletic-semifinales-supercopa-valoracion-comentarios.html)
 
 
