@@ -1,3 +1,51 @@
+### integra afp (N/A, 12/01/2026 07:59 Lima)
+
+- **Segunda solicitud de retiro de AFP ya se puede registrar con monto extra, por aumento de la UIT**: [Link](https://www.infobae.com/peru/2026/01/08/segunda-solicitud-de-retiro-de-afp-se-puede-registrar-desde-hoy-por-aumento-de-la-uit/)
+- **Retiro AFP 2026: VERIFICA AQUÍ si te toca cobrar tu primera UIT este lunes 12 de enero**: [Link](https://libero.pe/tiempoextra/2026/01/11/retiro-afp-2026-verifica-aqui-te-toca-cobrar-tu-primera-uit-lunes-12-de-enero-195360)
+- **Retiro de AFP: claves para proteger este dinero si decide retirarlo tras el ajuste de la UIT**: [Link](https://www.businessempresarial.com.pe/retiro-de-afp-claves-para-proteger-este-dinero-si-decide-retirarlo-tras-el-ajuste-de-la-uit/)
+
+
+### jerome powell (N/A, 12/01/2026 07:59 Lima)
+
+- **Statement from Federal Reserve Chair Jerome H. Powell**: [Link](https://www.federalreserve.gov/newsevents/speech/powell20260111a.htm)
+- **Trump denies involvement in DOJ's Fed subpoenas: 'I don't know anything about it'**: [Link](https://www.nbcnews.com/politics/donald-trump/trump-denies-involvement-doj-fed-subpoena-jerome-powell-rcna253526)
+- **Federal Prosecutors Open Investigation Into Fed Chair Powell**: [Link](https://www.nytimes.com/2026/01/11/us/politics/jerome-powell-fed-inquiry-trump.html)
+
+
+### temblor hoy chimbote (N/A, 12/01/2026 07:59 Lima)
+
+- **Sismos en Perú HOY, domingo 11 de enero vía IGP: Hora exacta, lugar y epicentro del temblor**: [Link](https://elcomercio.pe/peru/ultimo-temblor-en-peru-hoy-via-igp-hora-exacta-lugar-y-magnitud-del-sismo-censis-reportes-tdpe-noticia/)
+- **Sismo de magnitud 4,2 se registró en Chimbote**: [Link](https://andina.pe/agencia/noticia-sismo-magnitud-42-se-registro-chimbote-1058935.aspx)
+- **Temblor en Arequipa: sismo de magnitud 4,0 remeció Huambo según IGP**: [Link](https://larepublica.pe/sociedad/2026/01/11/temblor-en-arequipa-sismo-de-magnitud-40-remecio-huambo-segun-igp-645304)
+
+
+### ganadores golden globes 2026 (N/A, 12/01/2026 07:59 Lima)
+
+- **Ganadores de los premios Globos de Oro 2026: lista completa por categorías**: [Link](https://cnnespanol.cnn.com/2026/01/11/entretenimiento/ganadores-premios-globos-de-oro-2026-trax)
+- **La alfombra roja de los Globos de Oro 2026, en imágenes**: [Link](https://elpais.com/smoda/globos-de-oro/2026-01-11/la-alfombra-roja-de-los-globos-de-oro-en-imagenes.html)
+- **Golden Globes 2026: TODAS las celebridades en la alfombra roja**: [Link](https://www.vogue.mx/galeria/golden-globes-2026-alfombra-roja)
+
+
+### la tinka resultados (N/A, 12/01/2026 07:59 Lima)
+
+- **La Tinka: resultados del sorteo del 11 de enero y cuánto se llevó el ganador**: [Link](https://www.infobae.com/peru/2026/01/12/la-tinka-resultados-del-sorteo-del-11-de-enero-y-cuanto-se-llevo-el-ganador/)
+- **La Tinka del domingo 11 de enero: números ganadores de los 50 mil soles**: [Link](https://elcomercio.pe/respuestas/loterias/la-tinka-hoy-domingo-11-de-enero-2026-en-vivo-resultados-del-ultimo-sorteo-numeros-y-jugada-ganadora-pozo-millonario-loteria-si-o-si-boliyapa-intralot-lbposting-noticia/)
+- **Resultados de La Tinka del domingo 11 de enero: sorteo y números de la jugada ganadora del pozo millonario**: [Link](https://depor.com/peru/la-tinka-en-vivo-hoy-domingo-11-de-enero-2026-ver-resultados-numeros-ganadores-del-ultimo-sorteo-quien-gano-pozo-millonario-intralot-boliyapa-loterias-de-peru-noticia/)
+
+
+### polo magnetico (N/A, 12/01/2026 07:59 Lima)
+
+- **El polo magnético de la Tierra se desplazó y tendrá un impacto crucial en la navegación global y en la tecnología diaria**: [Link](https://www.lanacion.com.ar/ciencia/el-polo-magnetico-de-la-tierra-se-desplazo-y-tendra-un-impacto-crucial-en-la-navegacion-global-y-en-nid10012026/)
+- **Advertencia de la NASA: de qué se trata la anomalía que afecta a Argentina**: [Link](https://www.minutouno.com/lifestyle/advertencia-la-nasa-que-se-trata-la-anomalia-que-afecta-argentina-n6232306)
+- **Algo estaba moviendo el eje de la Tierra y los humanos serían los responsables**: [Link](https://www.lagaceta.com.ar/nota/1120088/sociedad/algo-estaba-moviendo-eje-tierra-humanos-serian-responsables.html)
+
+
+### nelson manrique (N/A, 12/01/2026 07:59 Lima)
+
+- **Murió Nelson Manrique, referente de las ciencias sociales en el Perú**: [Link](https://elcomercio.pe/luces/murio-nelson-manrique-referente-de-las-ciencias-sociales-en-el-peru-ultimas-noticia/)
+- **Falleció el huancaíno Nelson Manrique, referente de las ciencias sociales del Perú**: [Link](https://hytimes.pe/2026/01/12/fallecio-el-huancaino-nelson-manrique-referente-de-las-ciencias-sociales-del-peru/)
+
+
 ### ana de armas (N/A, 12/01/2026 03:39 Lima)
 
 - **Ana de Armas Turns Up the Heat in a High-Slit Black Dress at the 2026 Golden Globes**: [Link](https://www.imdb.com/news/ni65654887/?ref_=nmnw_art_perm)
@@ -981,54 +1029,5 @@
 - **Bulls-Heat game postponed due to condensation on United Center court**: [Link](https://www.nytimes.com/athletic/6956372/2026/01/08/bulls-heat-game-delayed-united-center/)
 - **Heat vs. Bulls Picks & Odds: January 8, 2026**: [Link](https://www.oddsshark.com/nba/heat-bulls-picks-odds-january-8-2026)
 - **‘Truly bizarre scenes’ as NBA game scrapped for shock reason; rising Aussie’s crucial act — Wrap**: [Link](https://www.foxsports.com.au/basketball/nba-2026-johnny-furphy-stats-in-charlotte-hornets-vs-indiana-pacers-josh-green-giannis-antetokounmpo-trade-rumours/news-story/3e9fab9288858a20cc46d9bf2cce5015)
-
-
-### ticketmaster (N/A, 08/01/2026 23:45 Lima)
-
-- **Live Nation and Ticketmaster Call FTC Lawsuit ‘Egregious Overreach,’ Request Dismissal**: [Link](https://variety.com/2026/music/news/live-nation-ticketmaster-request-dismissal-ftc-lawsuit-1236625607/)
-- **Ticketmaster, Live Nation urge court to throw out FTC’s lawsuit over ticket resales**: [Link](https://www.musicbusinessworldwide.com/live-nation-ticketmaster-urge-court-to-throw-out-ftcs-lawsuit-over-ticket-resales/)
-- **Ticketmaster seeks to end US FTC's ticket resale case**: [Link](https://www.reuters.com/legal/litigation/ticketmaster-seeks-end-us-ftcs-ticket-resale-case-2026-01-07/)
-
-
-### cavaliers - timberwolves (N/A, 08/01/2026 23:45 Lima)
-
-- **Cavaliers vs. Timberwolves: Prediction, How to Watch for Free (1/8)**: [Link](https://globelynews.com/sports/cavaliers-vs-timberwolves-prediction-how-to-watch-1-8-26/)
-- **Anthony Edwards becomes third youngest player to reach 10,000 career points**: [Link](https://www.hoopshype.com/story/sports/nba/rumors/2026/01/08/anthony-edwards-becomes-third-youngest-player-to-reach-10000-career-points/88095173007/)
-- **Winners and Losers: Cavs at Wolves – Starting lineup tanks an otherwise strong game**: [Link](https://sports.yahoo.com/articles/winners-losers-cavs-wolves-starting-033955177.html)
-
-
-### gta (N/A, 08/01/2026 23:45 Lima)
-
-- **GTA 6 Leaks Just Got Real as Rockstar Statement Confirms Major Gameplay Details**: [Link](https://beebom.com/gta-6-leaks-just-got-real-as-rockstar-statement-confirms-major-gameplay-details/)
-- **GTA 6: Map Leaks Suggest Bigger Map Than GTA 5 & Vice City Combines, Hints at Massive Open World Expansion**: [Link](https://sundayguardianlive.com/tech-news/gta-6-map-leaks-suggest-bigger-map-than-gta-5-vice-city-combines-hints-at-massive-open-world-expansion-163625/)
-- **This Old GTA 6 Plot Leak May Have Just Been Confirmed Real, and It Spoils a Big Lucia Twist**: [Link](https://gamerant.com/gta-6-plot-leak-lucia-baby/)
-
-
-### monique pardo (N/A, 08/01/2026 21:08 Lima)
-
-- **Monique Pardo remata sus reliquias más preciadas por delicada situación de salud: "Al menos estoy viva"**: [Link](https://www.atv.pe/noticia/monique-pardo-remata-sus-reliquias-mas-preciadas-por-delicada-situacion-de-salud-al-menos-estoy-viva/)
-- **Monique Pardo subasta sus recuerdos para costear tratamiento de insuficiencia cardíaca**: [Link](https://caretas.pe/entretenimiento/monique-pardo-subasta-sus-recuerdos-para-costear-tratamiento-de-insuficiencia-cardiaca/)
-- **Monique Pardo pone en venta sus pertenencias y se define como “anticuaria”: “La antigüedad más preciada soy yo”**: [Link](https://diariocorreo.pe/espectaculos/monique-pardo-pone-en-venta-sus-pertenencias-y-se-define-como-anticuaria-la-antiguedad-mas-preciada-soy-yo-farandula-celebs-noticia/)
-
-
-### café tacvba (N/A, 08/01/2026 21:08 Lima)
-
-- **Café Tacvba pide que se retire su música de Spotify: “No queremos que nuestras regalías sean utilizadas para patrocinar guerras”**: [Link](https://elpais.com/mexico/2026-01-08/cafe-tacvba-pide-que-se-retire-su-musica-de-spotify-no-queremos-que-nuestras-regalias-sean-utilizadas-para-patrocinar-guerras.html)
-- **Café Tacvba pidió a disqueras retirar su música de Spotify: ¿a qué se debe?**: [Link](https://rpp.pe/musica/internacional/cafe-tacvba-pidio-a-disqueras-retirar-su-musica-de-spotify-a-que-se-debe-noticia-1670740)
-- **Spotify responde a las acusaciones de Café Tacvba: “No financiamos la guerra”**: [Link](https://elcomercio.pe/luces/musica/spotify-responde-a-las-acusaciones-de-cafe-tacvba-no-financiamos-la-guerra-ultimas-noticia/)
-
-
-### delia espinoza (N/A, 08/01/2026 21:08 Lima)
-
-- **Demanda de amparo presentada por Delia Espinoza contra inhabilitación aprobada en el Congreso será evaluada en marzo**: [Link](https://rpp.pe/politica/judiciales/demanda-de-amparo-presentada-por-delia-espinoza-contra-inhabilitacion-aprobada-en-el-congreso-sera-evaluada-en-marzo-noticia-1670722)
-- **Delia Espinoza: PJ admite demanda de amparo contra inhabilitación para ejercer cargos públicos**: [Link](https://gestion.pe/peru/politica/delia-espinoza-poder-judicial-admite-demanda-de-amparo-contra-su-inhabilitacion-como-fiscal-noticia/)
-- **Delia Espinoza logra que el PJ revise la legalidad de su inhabilitación**: [Link](https://caretas.pe/politica/delia-espinoza-logra-que-el-pj-revise-la-legalidad-de-su-inhabilitacion/)
-
-
-### fa cup (N/A, 08/01/2026 21:08 Lima)
-
-- **Sutton's FA Cup third-round predictions v DJ & producer Shadow Child - and AI**: [Link](https://www.bbc.com/sport/football/articles/cvg5ldyz606o)
-- **FA Cup Opta Stats: Saturday's best bets, bet builders and upsets**: [Link](https://onefootball.com/de/news/fa-cup-opta-stats-saturdays-best-bets-bet-builders-and-upsets-42199653)
-- **2025-26 FA Cup outright betting tips, odds and predictions: Arsenal's FA Cup love affair looks set to continue**: [Link](https://www.racingpost.com/sport/football-tips/fa-cup/2025-26-fa-cup-outright-betting-tips-odds-and-predictions-aDzBF8X8yMrK/)
 
 
