@@ -1,3 +1,43 @@
+### the batman part ii (N/A, 12/01/2026 11:34 Lima)
+
+- **‘The Batman Part II’: Sebastian Stan In Talks For Role Opposite Robert Pattinson In Sequel – The Dish**: [Link](https://deadline.com/2026/01/the-batman-part-ii-sebastian-stan-1236665032/)
+- **Sebastian Stan to Join Robert Pattinson in ‘The Batman 2’**: [Link](https://variety.com/2026/film/news/batman-2-cast-robert-pattinson-sebastian-stan-1236607867/)
+- **Avengers: Doomsday Will Include Major MCU Deaths - Here’s Why I’m Convinced**: [Link](https://screenrant.com/avengers-doomsday-major-mcu-deaths-theory/)
+
+
+### nombre del año 2026 en peru (N/A, 12/01/2026 11:34 Lima)
+
+- **Nombre del año 2026 en Perú**: [Link](https://elcomercio.pe/respuestas/tramites/cual-es-el-nombre-del-ano-2026-en-peru-todo-lo-que-debes-saber-de-su-denominacion-oficial-tdpe-noticia/)
+- **¿Cómo se llamará el año 2026 en Perú? Esto es lo último que se sabe hoy 8 de enero**: [Link](https://www.infobae.com/peru/2026/01/04/se-sabe-como-se-llamara-el-ano-2026-en-peru-esto-es-lo-ultimo-que-se-conoce/)
+- **¿Cómo se llama el año 2026 en Perú y por qué cada año recibe un nombre distinto?**: [Link](https://larepublica.pe/datos-lr/2026/01/09/como-se-llama-el-ano-2026-en-peru-y-por-que-cada-ano-recibe-un-nombre-distinto-atmp-666999)
+
+
+### afp integra (N/A, 12/01/2026 11:34 Lima)
+
+- **Segunda solicitud de retiro de AFP ya se puede registrar con monto extra, por aumento de la UIT**: [Link](https://www.infobae.com/peru/2026/01/08/segunda-solicitud-de-retiro-de-afp-se-puede-registrar-desde-hoy-por-aumento-de-la-uit/)
+- **Retiro de la AFP: Extienden plazo límite y monto de retiro sube a S/ 22,000 por nueva UIT**: [Link](https://www.atv.pe/noticia/retiro-de-la-afp-extienden-plazo-limite-y-monto-de-retiro-sube-a-s-22000-por-nueva-uit/)
+- **Retiro de AFP: claves para proteger este dinero si decide retirarlo tras el ajuste de la UIT**: [Link](https://www.businessempresarial.com.pe/retiro-de-afp-claves-para-proteger-este-dinero-si-decide-retirarlo-tras-el-ajuste-de-la-uit/)
+
+
+### pierre-hugues herbert (N/A, 12/01/2026 11:34 Lima)
+
+- **H2H, prediction of Pierre-Hugues Herbert vs Guy Den Ouden at the Australian Open with odds, preview, pick |...**: [Link](https://tennistonic.com/tennis-news/943529/h2h-prediction-of-pierre-hugues-herbert-vs-guy-den-ouden-at-the-australian-open-with-odds-preview-pick-12th-january-2026/)
+
+
+### rafael lópez aliaga (N/A, 12/01/2026 11:34 Lima)
+
+- **Elecciones 2026: Rafael López Aliaga alcanza el 12 %, mientras la mayoría de peruanos sigue sin definir por quién votar**: [Link](https://www.infobae.com/peru/2026/01/11/elecciones-2026-rafael-lopez-aliaga-alcanza-el-12-mientras-la-mayoria-de-peruanos-sigue-sin-definir-por-quien-votar/)
+- **Rafael López Aliaga lidera intención de voto presidencial con 12%, según Datum**: [Link](https://canaln.pe/actualidad/rafael-lopez-aliaga-lidera-intencion-voto-presidencial-12-segun-datum-n489530)
+- **Datum: Indecisión electoral se reduce al 43%, pero persiste la falta de representatividad**: [Link](https://rpp.pe/politica/elecciones/datum-indecision-electoral-se-reduce-al-43-pero-persiste-la-falta-de-representatividad-noticia-1671245)
+
+
+### wagner moura (N/A, 12/01/2026 11:34 Lima)
+
+- **Wagner Moura alfineta Critics Choice Awards após vitória no Globo de Ouro**: [Link](https://vejario.abril.com.br/coluna/otavio-furtado/wagner-moura-alfineta-critics-choice/)
+- **'O agente secreto' vira bloco de carnaval e toma ruas da Zona Oeste de São Paulo; veja FOTOS**: [Link](https://g1.globo.com/sp/sao-paulo/carnaval/2026/noticia/2026/01/12/o-agente-secreto-vira-bloco-de-carnaval-e-toma-ruas-da-zona-oeste-de-sao-paulo-veja-fotos.ghtml)
+- **O Município de Viana endereça os parabéns à Associação Desportiva dos Caçadores …**: [Link](https://sapo.pt/artigo/o-municipio-de-viana-endereca-os-parabens-a-associacao-desportiva-dos-cacadores-6964c748bd01a240c17fd798)
+
+
 ### integra afp (N/A, 12/01/2026 07:59 Lima)
 
 - **Segunda solicitud de retiro de AFP ya se puede registrar con monto extra, por aumento de la UIT**: [Link](https://www.infobae.com/peru/2026/01/08/segunda-solicitud-de-retiro-de-afp-se-puede-registrar-desde-hoy-por-aumento-de-la-uit/)
@@ -987,47 +1027,5 @@
 - **Bruno Mars announces Colorado stadium concert**: [Link](https://www.9news.com/article/entertainment/music/colorado-music/bruno-mars-stadium-tour-dates/73-c6485984-47e2-4959-a27d-1ee18c047994)
 - **Georgia Tech to Host Bruno Mars: The Romantic Tour**: [Link](https://ramblinwreck.com/georgia-tech-to-host-bruno-mars-the-romantic-tour/)
 - **Bruno Mars bringing first tour in nearly a decade to Pittsburgh this summer**: [Link](https://www.cbsnews.com/pittsburgh/news/bruno-mars-2026-world-tour-pittsburgh-date/)
-
-
-### test (N/A, 09/01/2026 03:37 Lima)
-
-- **'America's Test Kitchen' chef, Detroit native Elle Simone Scott, has died**: [Link](https://www.detroitnews.com/story/entertainment/people/2026/01/08/americas-test-kitchen-chef-detroit-native-elle-simone-scott-has-died/88087086007/)
-- **Chef and food stylist Elle Simone Scott dies at 49**: [Link](https://www.wbur.org/news/2026/01/07/chef-food-stylist-elle-simone-scott-dies)
-- **PBS TV Chef Dies of Ovarian Cancer at 49**: [Link](https://people.com/elle-simone-scott-dies-at-49-11881449)
-
-
-### aryna sabalenka (N/A, 08/01/2026 23:45 Lima)
-
-- **Aryna Sabalenka criticizes ‘insane’ tennis schedule, says she will skip some WTA events**: [Link](https://www.nytimes.com/athletic/6953670/2026/01/08/aryna-sabalenka-tennis-schedule-wta/)
-- **Aryna Sabalenka criticises busy tennis season**: [Link](https://www.geosuper.tv/latest/52196-aryna-sabalenka-criticises-busy-tennis-season)
-- **Why Aryna Sabalenka Is Skipping Tournaments to Prep for Australian Open 2026**: [Link](https://ticotimes.net/2026/01/08/why-aryna-sabalenka-is-skipping-tournaments-to-prep-for-australian-open-2026)
-
-
-### maranguita (N/A, 08/01/2026 23:45 Lima)
-
-- **Un trabajador herido tras un motín en Maranguita: internos provocaron incendio y PNP intervino el establecimiento**: [Link](https://rpp.pe/lima/actualidad/maranguita-internos-se-amotinaron-y-prendieron-fuego-a-colchones-noticia-1670876)
-- **Voraz incendio en Maranguita moviliza bomberos, ambulancias, brigada canina y se investiga presunto motín**: [Link](https://www.infobae.com/peru/2026/01/09/voraz-incendio-en-maranguita-moviliza-bomberos-ambulancias-brigada-canina-y-se-investiga-presunto-motin/)
-- **Maranguita: incendio moviliza a cinco unidades de bomberos en San Miguel**: [Link](https://elcomercio.pe/lima/incendio-en-maranguita-emergencia-moviliza-a-cinco-unidades-de-bomberos-en-san-miguel-ultimas-motin-noticia/)
-
-
-### iran (N/A, 08/01/2026 23:45 Lima)
-
-- **Huge anti-government protests in Tehran and other Iranian cities, videos show**: [Link](https://www.bbc.com/news/articles/cg7y0579lp8o)
-- **Street protests erupt in Tehran as nationwide anti-government turmoil spreads**: [Link](https://www.cnn.com/2026/01/08/middleeast/how-irans-protests-spread-intl)
-- **Iran plunged into internet blackout as protests over economy spread nationwide**: [Link](https://www.theguardian.com/world/2026/jan/08/iran-plunged-into-internet-blackout-as-protests-over-economy-spread-nationwide)
-
-
-### pedro el escamoso (N/A, 08/01/2026 23:45 Lima)
-
-- **Pedro el escamoso 2: ¡Impactante anuncio! Guillermina revela embarazo sin saber quién es el padre**: [Link](https://www.atv.pe/noticia/pedro-el-escamoso-2-impactante-anuncio-guillermina-revela-embarazo-sin-saber-quien-es-el-padre/)
-- **Pedro el escamoso 2: Pedro y Lucero viven noche mágica de baile y confesiones**: [Link](https://www.atv.pe/noticia/pedro-el-escamoso-2-pedro-y-lucero-viven-noche-magica-de-baile-y-confesiones/)
-- **Pedro el escamoso 2: Fernanda cancela viaje a EE.UU. por Mariana, ¿quién acompañará a Pedro Junior?**: [Link](https://www.atv.pe/noticia/pedro-el-escamoso-2-fernanda-cancela-viaje-a-ee-uu-por-mariana-quien-acompanara-a-pedro-junior/)
-
-
-### heat - bulls (N/A, 08/01/2026 23:45 Lima)
-
-- **Bulls-Heat game postponed due to condensation on United Center court**: [Link](https://www.nytimes.com/athletic/6956372/2026/01/08/bulls-heat-game-delayed-united-center/)
-- **Heat vs. Bulls Picks & Odds: January 8, 2026**: [Link](https://www.oddsshark.com/nba/heat-bulls-picks-odds-january-8-2026)
-- **‘Truly bizarre scenes’ as NBA game scrapped for shock reason; rising Aussie’s crucial act — Wrap**: [Link](https://www.foxsports.com.au/basketball/nba-2026-johnny-furphy-stats-in-charlotte-hornets-vs-indiana-pacers-josh-green-giannis-antetokounmpo-trade-rumours/news-story/3e9fab9288858a20cc46d9bf2cce5015)
 
 
