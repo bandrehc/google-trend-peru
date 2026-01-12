@@ -1,3 +1,73 @@
+### ciro castillo rojo (N/A, 11/01/2026 21:19 Lima)
+
+- **Dictan 24 meses de prisión preventiva a Ciro Castillo, suspendido gobernador del Callao**: [Link](https://caretas.pe/politica/dictan-24-meses-de-prision-preventiva-a-ciro-castillo-suspendido-gobernador-del-callao/)
+- **Ciro Castillo Rojo en la mira: Poder Judicial ordena 24 meses de prisión preventiva y activa su captura**: [Link](https://trome.com/actualidad/politica/ciro-castillo-rojo-en-la-mira-poder-judicial-ordena-24-meses-de-prision-preventiva-y-activa-su-captura-video-historia-de-policiales-noticia/)
+- **Juez del caso Ciro Castillo es víctima de amenazas: familiar de uno de los investigados lo llamó antes de audiencia**: [Link](https://larepublica.pe/politica/2026/01/09/juez-del-caso-ciro-castillo-es-victima-de-amenazas-familiar-de-uno-de-los-investigados-lo-llamo-antes-de-audiencia-hnews-436707)
+
+
+### the pitt (N/A, 11/01/2026 21:19 Lima)
+
+- **'ER' Costars George Clooney & Noah Wyle Reunite in L.A., Plus Michael B. Jordan, Hailey Bieber & Kendall Jenner and More**: [Link](https://people.com/star-tracks-sunday-january-11-2026-new-celebrity-photos-updated-daily-11883062)
+- **George Clooney and Noah Wyle enjoy a touching “ER ”reunion over 30 years later**: [Link](https://www.yahoo.com/entertainment/tv/articles/george-clooney-noah-wyle-enjoy-001437427.html)
+- **'The Pitt' star Noah Wyle and George Clooney reunite at AARP Awards**: [Link](https://www.usatoday.com/story/entertainment/tv/2026/01/11/noah-wyle-george-clooney-er-reunion-aarp-awards/88128782007/)
+
+
+### tnt en vivo (N/A, 11/01/2026 21:19 Lima)
+
+- **Todos los nominados a los Globo de Oro 2026: lista completa por categorías**: [Link](https://cnnespanol.cnn.com/2026/01/10/entretenimiento/nominados-globo-oro-golden-globes-trax)
+- **Premios Globos de Oro 2026: todos los looks de las celebridades en la alfombra roja**: [Link](https://www.infobae.com/tendencias/2026/01/11/premios-globos-de-oro-2026-todos-los-looks-de-las-celebridades-en-la-alfombra-roja/)
+- **¿Cómo ver los Golden Globes 2026? Horarios, streaming y nominados**: [Link](https://www.usatoday.com/story/entertainment/2026/01/11/como-ver-los-golden-globes-2026-estrellas-y-filmes-favoritos/88131478007/)
+
+
+### kira alcarraz (N/A, 11/01/2026 21:19 Lima)
+
+- **Congreso: Comisión de Ética verá mañana caso de congresista Kira Alcarraz**: [Link](https://andina.pe/agencia/noticia-congreso-comision-etica-vera-manana-caso-congresista-kira-alcarraz-1058922.aspx)
+- **Ética podría abrir 2 investigaciones a Alcarraz mañana**: [Link](https://diariocorreo.pe/politica/comision-de-etica-podria-abrir-2-investigaciones-a-kira-alcarraz-manana-peru-congreso-noticia/)
+- **Alcarraz en la picota**: [Link](https://elcomercio.pe/opinion/editorial/la-congresista-denunciada-por-agresion-debe-enfrentar-su-responsabilidad-noticia/)
+
+
+### sentimental value (N/A, 11/01/2026 21:19 Lima)
+
+- **Stellan Skarsgård Wins Golden Globe for Supporting Actor in a Film**: [Link](https://variety.com/2026/film/news/stellan-skarsgard-golden-globes-supporting-actor-1236624577/)
+- **Stellan Skarsgård Thanks His Wife for Her 'Brutal Support' as He Wins Golden Globe: She's a 'Tough Lover'**: [Link](https://people.com/golden-globes-2026-best-supporting-actor-winner-stellan-skarsgard-11879585)
+- **For Stellan Skarsgård, 'Sentimental Value' Offered a Chance at Revenge**: [Link](https://www.wmagazine.com/culture/stellan-skarsgard-interview-sentimental-value)
+
+
+### tigres vs (N/A, 11/01/2026 21:19 Lima)
+
+- **Liga MX: Atl. de San Luis recibe a Tigres por el último duelo de la fecha 1**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-atl-de-san-luis-recibe-a-tigres-por-el-ultimo-duelo-de-la-fecha-1-noticia-1671103)
+- **Qué canal pasa Atlético San Luis vs Tigres hoy: dónde ver GRATIS y EN VIVO el partido de la Liga MX**: [Link](https://www.365scores.com/es/news/donde-ver-atletico-san-luis-vs-tigres/)
+- **Ver EN VIVO Atl. de San Luis vs. Tigres: dónde seguir por TV y ONLINE en streaming**: [Link](https://www.tycsports.com/mexico/liga-mx/atl-de-san-luis-vs-tigres-en-vivo-donde-ver-por-tv-y-online-id707323.html)
+
+
+### gonzalo bueno (N/A, 11/01/2026 21:19 Lima)
+
+- **Gonzalo Bueno vs Nikoloz Basilashvili EN VIVO: ¿a qué hora juegan y dónde ver la qualy del Abierto de Australia 2026?**: [Link](https://rpp.pe/tenis/grand-slam/gonzalo-bueno-vs-nikoloz-basilashvili-en-vivo-a-que-hora-juegan-y-donde-ver-la-qualy-del-abierto-de-australia-2026-en-directo-via-disney-plus-partidos-de-hoy-noticia-1671161)
+- **¡Empieza el sueño!: Gonzalo Bueno debuta hoy en la ‘qualy’ del Australia Open**: [Link](https://elcomercio.pe/deporte-total/polideportivo/tenis-gonzalo-bueno-debuta-hoy-ante-nikoloz-basilashvili-en-la-qualy-del-australia-open-2026-noticia/)
+- **Gonzalo Bueno inicia su sueño en la ‘qualy’ del Australian Open 2026: rival, horario y dónde ver el debut del peruano**: [Link](https://www.infobae.com/peru/deportes/2026/01/11/gonzalo-bueno-inicia-su-sueno-en-la-qualy-del-australian-open-2026-rival-horario-y-donde-ver-el-debut-del-peruano/)
+
+
+### golden globes (N/A, 11/01/2026 21:19 Lima)
+
+- **Comedian Nikki Glaser describes "very delicate" balance of jokes as she returns to host Golden Globes**: [Link](https://www.cbsnews.com/news/comedian-nikki-glaser-host-golden-globes/)
+- **Golden Globes host Nikki Glaser struggles with Julia Roberts and Venezuela while building monologue**: [Link](https://apnews.com/article/nikki-glaser-golden-globes-host-interview-jokes-c7f0a605e1b06b92447cd213a5fd619e)
+- **Teyana Taylor, Stellan Skarsgard are early Globes winners**: [Link](https://www.upi.com/Entertainment_News/TV/2026/01/11/golden-globes-winners/8691768176665/)
+
+
+### australian open (N/A, 11/01/2026 21:19 Lima)
+
+- **This is the seed order for the Australian Open 2026**: [Link](https://www.puntodebreak.com/en/2026/01/11/this-is-the-seed-order-for-the-australian-open-2026)
+- **Australian Open 2026: Schedule of Play for Monday January 12**: [Link](https://tennisconnected.com/australian-open-2026-schedule-of-play-for-monday-january-12/)
+- **Top Seeds Carlos Alcaraz and Aryna Sabalenka Lead Australian Open Draw**: [Link](https://news.ssbcrack.com/top-seeds-carlos-alcaraz-and-aryna-sabalenka-lead-australian-open-draw/)
+
+
+### river plate - millonarios (N/A, 11/01/2026 21:19 Lima)
+
+- **River Plate vs. Millonarios EN VIVO por Disney Plus: transmisión del partido**: [Link](https://libero.pe/futbol-internacional/2026/01/10/river-plate-vs-millonarios-en-vivo-gratis-serie-rio-de-plata-via-espn-disney-plus-lbev-907940)
+- **El verano de River: ¿cuándo y contra quién juega amistosos?**: [Link](https://www.espn.com.ar/futbol/nota/_/id/16133888/river-plate-verano-pretemporada-2026-fixture-calendario-resultados-como-ver-tv-en-vivo)
+- **Clásico sudamericano: ¿A qué hora juega Millonarios vs. River?**: [Link](https://espndeportes.espn.com/futbol/nota/_/id/16168913/serie-rio-de-la-plata-2026-a-que-hora-juega-como-ver-en-vivo-millonarios-vs-river-plate)
+
+
 ### inter vs (N/A, 11/01/2026 15:28 Lima)
 
 - **En un partidazo, Inter defiende la cima de la Serie A ante Napoli**: [Link](https://www.espn.com.pe/futbol/italia/nota/_/id/16162931/inter-vs-napoli-fecha-20-serie-a-equipo-fecha-hora-y-tv-en-vivo)
@@ -961,75 +1031,5 @@
 - **Espionaje de alto nivel para el Barça de Flick**: [Link](https://as.com/futbol/copa_del_rey/espionaje-de-alto-nivel-para-el-barca-de-flick-f202601-n/)
 - **El FC Barcelona gana, gusta y golea, y espera por Real Madrid o Atlético de Madrid en la final de la Supercopa de España**: [Link](https://cnnespanol.cnn.com/2026/01/07/deportes/barcelona-golea-athletic-club-supercopa-espana-orix)
 - **Uno a uno del Barça vs Athletic de semifinales de la Supercopa: Raphinha, insaciable e incansable**: [Link](https://www.marca.com/futbol/barcelona/2026/01/07/barca-vs-athletic-semifinales-supercopa-valoracion-comentarios.html)
-
-
-### espn (N/A, 08/01/2026 15:31 Lima)
-
-- **Why 'The Pat McAfee Show' wasn't on today and when it will be back**: [Link](https://ew.com/why-pat-mcafee-show-wasnt-on-today-and-when-it-will-be-back-11881796)
-- **ESPN quietly removes Pat McAfee Show from air and replaces it with Rich Eisen show leaving viewers raging**: [Link](https://www.the-sun.com/sport/15752724/espn-removes-pat-mcafee-show/)
-- **Why was The Pat McAfee Show removed from ESPN? Viewers left frustrated; 'excuse me...' | Hindustan Times**: [Link](https://www.hindustantimes.com/world-news/us-news/why-was-the-pat-mcafee-show-removed-from-espn-viewers-left-frustrated-excuse-me-101767895303054.html)
-
-
-### arsenal - liverpool (N/A, 08/01/2026 15:31 Lima)
-
-- **Arsenal vs. Liverpool hoy: a qué hora juegan y cómo ver la transmisión del partido por la Premier League**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/arsenal-vs-liverpool-en-vivo-online-gratis-via-futbol-libre-tv-espn-disney-plus-tnt-sports-dazn-movistar-a-que-hora-juegan-canal-que-transmite-y-donde-ver-por-premier-league-video-noticia/)
-- **Premier League: Arsenal necesita sumar de a 3 puntos para mantenerse en la cima**: [Link](https://rpp.pe/futbol/ligas-internacionales/premier-league-arsenal-necesita-sumar-de-a-3-puntos-para-mantenerse-en-la-cima-noticia-1670623)
-- **Arsenal vs. Liverpool: Arteta dice que tienen "algo que demostrar"**: [Link](https://www.espn.com.pe/futbol/inglaterra/nota/_/id/16155100/arsenal-vs-liverpool-arteta-algo-demostrar-campeon-premier-league)
-
-
-### milan vs genoa (N/A, 08/01/2026 15:31 Lima)
-
-- **Preview: AC Milan vs Genoa - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/ac-milan/preview/ac-milan-vs-genoa-prediction-team-news-lineups_589331.html)
-- **CorSera: The team he designed – Allegri can call upon first choice XI at last**: [Link](https://sempremilan.com/allegri-call-upon-first-choice-xi-last)
-- **AC Milan’s official lineup vs Genoa | Pulisic and Leao from the start**: [Link](https://milanreports.com/2026/01/08/milan-lineup-genoa-pulisic-leao/)
-
-
-### futbol hoy (N/A, 08/01/2026 15:31 Lima)
-
-- **Partidos de hoy, jueves 8 de enero de 2026: programación, canales TV y resultados en vivo**: [Link](https://www.infobae.com/peru/deportes/2026/01/08/partidos-de-hoy-jueves-8-de-enero-de-2026-programacion-canales-tv-y-resultados-en-vivo/)
-- **Partidos de hoy, jueves 8 de enero del 2026: horarios y canales TV para ver EN VIVO la Supercopa de España y Premier League**: [Link](https://rpp.pe/futbol/futbol-mundial/partidos-de-hoy-peru-jueves-8-de-enero-del-2026-horarios-y-canales-tv-ver-futbol-en-vivo-noticia-1670665)
-- **Partidos de hoy, 08 de enero: Horario y canal EN VIVO**: [Link](https://www.americatv.com.pe/deportes/futbol-mundial/partidos-hoy-08-enero-horarios-y-transmisiones-n452245)
-
-
-### samahara lobaton (N/A, 08/01/2026 11:37 Lima)
-
-- **Samahara Lobatón 'REMATA' cuenta de Instagram con 70k y pone el parche: "Gente seria, no sapos"**: [Link](https://www.atv.pe/noticia/samahara-lobaton-remata-cuenta-de-instagram-con-70k-y-pone-el-parche-gente-seria-no-sapos/)
-- **Influencer puso en venta su cuenta de Instagram con más de 70, 000 seguidores**: [Link](https://www.tvazteca.com/aztecauno/famosos/por-que-influencer-samahara-lobaton-vende-instagram-70-000-seguidores-pb-notas/)
-- **Samahara Lobatón insiste en vender su cuenta de Instagram con miles de seguidores: "Lista para ser transferida"**: [Link](https://larepublica.pe/espectaculos/2025/12/30/samahara-lobaton-insiste-en-vender-su-cuenta-de-instagram-con-miles-de-seguidores-lista-para-ser-transferida-2570940)
-
-
-### sat (N/A, 08/01/2026 11:37 Lima)
-
-- **SAT Requirements Should Be Aligned With Mission (opinion)**: [Link](https://www.insidehighered.com/opinion/views/2026/01/05/sat-requirements-should-be-aligned-mission-opinion)
-- **Worker Confused After Recruiter Asked To See College SAT Scores As Part Of Their Job Application**: [Link](https://www.yourtango.com/career/worker-confused-after-recruiter-asked-college-sat-scores)
-- **Knox County Public Library and Brainfuse offer free online SAT prep courses**: [Link](https://www.knoxtntoday.com/knox-county-public-library-and-brainfuse-offer-free-online-sat-prep-courses/)
-
-
-### jujutsu kaisen (N/A, 08/01/2026 11:37 Lima)
-
-- **JUJUTSU KAISEN Season 3: Where to Watch, Trailers, Voice Cast, Characters & More**: [Link](https://www.crunchyroll.com/news/guides/2026/1/6/jujutsu-kaisen-season-3-where-to-watch-guide)
-- **Jujutsu Kaisen Season 3 release: When and where to watch the manga adaptation of Gege Akutami's Dying Game**: [Link](https://www.moneycontrol.com/entertainment/jujutsu-kaisen-season-3-release-when-and-where-to-watch-the-manga-adaptation-of-gege-akutami-s-dying-game-article-13762563.html)
-- **Jujutsu Kaisen Creator Unveils a Shocking Spoiler Ahead of Season 3**: [Link](https://comicbook.com/anime/news/jujutsu-kaisen-creator-unveils-a-shocking-spoiler-ahead-of-season-3/)
-
-
-### al hilal (N/A, 08/01/2026 11:37 Lima)
-
-- **Al-Hilal’s repeated pursuit of Barcelona star fails again this winter – Report**: [Link](https://semprebarca.com/al-hilals-repeated-pursuit-of-barcelona-star-fails-again-this-winter-report/)
-- **Not Even Hansi Flick Knows What Robert Lewandowski’s Future Will Be**: [Link](https://www.beinsports.com/en-us/soccer/la-liga/articles/not-even-hansi-flick-knows-what-robert-lewandowski-s-future-will-be-2026-01-08)
-- **Lewandowski Decides on Potential Move to Al Hilal in the Winter Transfer Window**: [Link](https://koorabreak.com/en/240283/)
-
-
-### al hilal vs (N/A, 08/01/2026 11:37 Lima)
-
-- **Preview: Al-Hilal vs. Al Hazem - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/al-hilal/preview/al-hilal-vs-al-hazem-prediction-team-news-lineups_589343.html)
-- **Al Hilal Star's Return Revives the Leader Ahead of the Anticipated Al-Hazem Match**: [Link](https://www.ysscores.com/en/news/13885750/Al-Hilal-Star's-Return-Revives-the-Leader-Ahead-of-the-Anticipated-Al-Hazem-Match)
-- **Al-Hilal Vs Al-Hazm Live Score, Saudi Pro League 2025-26: Ruben Neves Doubles Lead As Blues Pull Ahead**: [Link](https://www.outlookindia.com/sports/football/al-hilal-vs-al-hazm-live-score-saudi-pro-league-2025-26-matchday-14-updates-highlights-kingdom-arena)
-
-
-### denominacion del año 2026 peru (N/A, 08/01/2026 11:37 Lima)
-
-- **Nombre del Año 2026 en Perú: cómo se llamará, qué día se conocerá y lo que se sabe ahora**: [Link](https://gestion.pe/mix/respuestas/nombre-del-ano-2026-en-peru-cuando-se-dara-a-conocer-y-que-se-sabe-hasta-ahora-nnda-nnrt-noticia/)
-- **¿Se sabe cómo se llamará el año 2026 en Perú? Esto es la última información hoy 7 de enero**: [Link](https://www.infobae.com/peru/2026/01/04/se-sabe-como-se-llamara-el-ano-2026-en-peru-esto-es-lo-ultimo-que-se-conoce/)
-- **Conoce la historia del nombre oficial del año en Perú**: [Link](https://andina.pe/agencia/noticia-conoce-historia-del-nombre-oficial-del-ano-peru-1058094.aspx)
 
 
