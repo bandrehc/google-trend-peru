@@ -1,3 +1,73 @@
+### juventus vs (N/A, 12/01/2026 15:31 Lima)
+
+- **Juventus recibe a Cremonese con el objetivo de seguir en los primeros puestos de la Serie A**: [Link](https://www.espn.com.pe/futbol/italia/nota/_/id/16163002/juventus-vs-cremonese-fecha-20-serie-a-equipo-fecha-hora-y-tv-en-vivo)
+- **Juventus vs Cremona, Kenan Yildiz y otros ponen a prueba el temple de Emil Auderu**: [Link](https://www.ucvradio.pe/mas-actualidad/juventus-vs-cremona-kenan-yildiz-y-otros-ponen-a-prueba-el-temple-de-emil-auderu/101196/)
+- **Serie A: Juventus se enfrentará ante Cremonese por la fecha 20**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-juventus-se-enfrentara-ante-cremonese-por-la-fecha-20-noticia-1671149)
+
+
+### psg vs paris fc (N/A, 12/01/2026 15:31 Lima)
+
+- **Gonçalo Ramos titulaire - Le Xl entrant du PSG pour la réception de Paris FC dévoilé**: [Link](https://tribuna.com/fr/news/2026-01-12-le-xl-du-psg-pour-la-reception-de-paris-fc-devoile/)
+- **Coupe de France : Ilan Kebbal, la surprise de Stéphane Gili (Paris FC) ?**: [Link](https://www.lequotidiendusport.fr/coupe-de-france-ilan-kebbal-la-surprise-de-stephane-gili-paris-fc/)
+- **DIRECT. Paris SG - Paris FC : suivez le derby parisien en 16e de finale de la Coupe de France en live**: [Link](https://www.ouest-france.fr/sport/football/coupe-de-france/direct-paris-sg-paris-fc-suivez-le-derby-parisien-en-16e-de-finale-de-la-coupe-de-france-en-live-a1a8ac4f-25e6-4bfe-9f22-d8aa6177ed36)
+
+
+### huesca vs (N/A, 12/01/2026 15:31 Lima)
+
+- **Apuestas y Pronóstico del Huesca vs Córdoba 12/01/26**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/2026/enero/pronostico-huesca-vs-cordoba-12-01-26)
+- **Iván Ania: “Creo que Pulido va a jugar y no les va a afectar su situación”**: [Link](https://www.pressreader.com/spain/diario-del-alto-aragon-eaje/20260112/281938844302342)
+- **El Córdoba CF se abona al frío en un duro mes de enero**: [Link](https://cordopolis.eldiario.es/deportes/ccf/cordoba-cf-abona-frio-duro-mes-enero_1_12900756.html)
+
+
+### al ettifaq (N/A, 12/01/2026 15:31 Lima)
+
+- **Patriots 16-3 Chargers (Jan 11, 2026) Final Score**: [Link](https://www.espn.com/nfl/game/_/gameId/401772978/chargers-patriots)
+- **49ers 23-19 Eagles (Jan 11, 2026) Final Score**: [Link](https://www.espn.com/nfl/game/_/gameId/401772980/49ers-eagles)
+- **Patriots 16-3 Chargers (Jan 11, 2026) Box Score**: [Link](https://www.espn.com/nfl/boxscore/_/gameId/401772978)
+
+
+### sevilla - celta de vigo (N/A, 12/01/2026 15:31 Lima)
+
+- **Sevilla recibe a Celta por la decimonovena fecha de LaLiga**: [Link](https://www.espn.com.ar/futbol/espana/nota/_/id/16172836/sevilla-vs-celta-de-vigo-fecha-19-laliga-equipo-fecha-hora-en-vivo)
+- **Sevilla – Celta Vigo Pronóstico y Apuestas | LaLiga 12/01/2026**: [Link](https://www.apuestas-deportivas.es/pronostico/sevilla-celta-vigo-pronostico-laliga-12-01-2026/)
+- **Consigue una apuesta gratis de 1 € en la YoSports para el partido Sevilla vs Celta hasta el 12 de enero 2025**: [Link](https://legalbet.es/bonos/yosports-apuesta-gratis-1-euro-por-apuesta-en-el-partido-sevilla-vs-celta/)
+
+
+### liverpool - barnsley (N/A, 12/01/2026 15:31 Lima)
+
+- **'It gives us a fresh opportunity' - Arne Slot's FA Cup programme notes**: [Link](https://www.liverpoolfc.com/news/it-gives-us-fresh-opportunity-arne-slots-fa-cup-programme-notes)
+- **Liverpool Face Barnsley In High-Stakes FA Cup Clash At Anfield**: [Link](https://evrimagaci.org/gpt/liverpool-face-barnsley-in-highstakes-fa-cup-clash-at-anfield-523589)
+- **How to watch FA Cup in India? TV channel, live stream and start time for Liverpool vs. Barnsley**: [Link](https://www.sportingnews.com/in/football/news/watch-fa-cup-india-tv-channel-live-stream-liverpool-barnsley-time/75b38fa5287eda235e4ca09f)
+
+
+### juventus vs cremonese (N/A, 12/01/2026 15:31 Lima)
+
+- **Spalletti: ‘Juventus short in a couple of positions, I trust blindly’**: [Link](https://football-italia.net/spalletti-juventus-short-in-couple-positions/)
+- **Game Time Thread: Juventus vs. Cremonese**: [Link](https://sports.yahoo.com/articles/game-time-thread-juventus-vs-183000032.html)
+- **Juventus vs. Cremonese: Serie A betting odds, prediction, pick**: [Link](https://www.usatoday.com/story/sports/soccer/2026/01/12/juventus-vs-cremonese-serie-a-betting-odds-prediction-pick/88135666007/)
+
+
+### juventus - cremonese (N/A, 12/01/2026 15:31 Lima)
+
+- **Goal di Miretti o rete di Bremer in Juventus-Cremonese? Cosa è successo e la decisione della Lega Serie A**: [Link](https://www.goal.com/it/liste/goal-di-miretti-o-rete-di-bremer-in-juventus-cremonese-cosa-e-successo-e-la-decisione-della-lega-serie-a/blt92cc18f836599318)
+- **Tutte le notizie sul calcio in Diretta**: [Link](https://www.diretta.it/news/calcio-live-genoa-cagliari-3-0-in-campo-juve-cremonese-3-0-gol-di-yildiz/2Jk93N0m/)
+- **Spalletti: “Vi spiego perché Koopmeiners in panchina! Su Kelly e Vardy…”**: [Link](https://www.sosfanta.com/news/spalletti-vi-spiego-perche-koopmeiners-in-panchina-su-kelly-e-vardy/)
+
+
+### primera división de arabia saudita (N/A, 12/01/2026 15:31 Lima)
+
+- **Equipo de Quioto y Deiby Flores es el peor de la Saudi Pro League: tenían cerca su primer triunfo y les remontaron en el 90+8'**: [Link](https://www.diez.hn/legionarios/equipo-quioto-y-deiby-flores-es-el-peor-de-la-saudi-pro-league-tenian-cerca-su-primer-triunfo-y-les-remontaron-en-el-90-8-FD28905275)
+- **Romell Quioto sufre golpe bajo en club en Superliga de Arabia Saudita**: [Link](https://www.deportestvc.com/mas/romell-quioto-golpe-bajo-arabia-saudita-borrado-tres-jornadas-2026-01-10)
+- **El Al-Najma de Deiby Flores y Quioto sigue sin ganar en la Saudi Pro League**: [Link](https://www.elheraldo.hn/deportes/alnajma-deiby-flores-quioto-sigue-sin-ganar-saudi-pro-league-OD28904875)
+
+
+### sentinel (N/A, 12/01/2026 15:31 Lima)
+
+- **Jerry Demings’ campaign for governor gets off to slow fundraising start**: [Link](https://www.orlandosentinel.com/2026/01/12/jerry-demings-campaign-for-governor-gets-off-to-slow-fundraising-start/)
+- **FORECAST 2026: Service is Jerry Demings' purpose**: [Link](https://www.orangeobserver.com/news/2026/jan/07/forecast-2026-service-is-jerry-demings-purpose/)
+- **San Angelo MLK Jr. Association hosting events honoring King**: [Link](https://www.gosanangelo.com/story/news/2026/01/12/three-days-of-events-planned-honoring-dr-martin-luther-king-jr-san-angelo/88100471007/)
+
+
 ### the batman part ii (N/A, 12/01/2026 11:34 Lima)
 
 - **‘The Batman Part II’: Sebastian Stan In Talks For Role Opposite Robert Pattinson In Sequel – The Dish**: [Link](https://deadline.com/2026/01/the-batman-part-ii-sebastian-stan-1236665032/)
@@ -957,75 +1027,5 @@
 - **Senegal vs. Malí: ¿a qué hora juegan y dónde ver EN VIVO por cuartos de final de la Copa Africana de Naciones?**: [Link](https://rpp.pe/futbol/futbol-mundial/senegal-vs-mali-en-vivo-a-que-hora-juegan-y-donde-ver-cuartos-copa-africana-de-naciones-2026-via-claro-sports-link-gratis-partidos-de-hoy-noticia-1670868)
 - **Senegal en la Copa Africana de Naciones: ¡revive todos sus partidos de cuartos de final en vídeo!**: [Link](https://www.elpueblo.pe/deportes/senegal-en-la-copa-africana-de-naciones-revive-todos-sus-partidos-de-cuartos-de-final-en-video/202540/)
 - **Malí vs Senegal: duelo de gran nivel por los cuartos de final de la Copa Africana de Naciones**: [Link](https://zona.palmsbet.pe/deportes/futbol/mali-vs-senegal-duelo-de-gran-nivel-por-los-cuartos-de-final-de-la-copa-africana-de-naciones/)
-
-
-### cuál es el nombre del año 2026 en perú (N/A, 09/01/2026 11:35 Lima)
-
-- **Nombre del Año 2026 en Perú: qué día se dará a conocer y qué se sabe ahora**: [Link](https://gestion.pe/mix/respuestas/nombre-del-ano-2026-en-peru-cuando-se-dara-a-conocer-y-que-se-sabe-hasta-ahora-nnda-nnrt-noticia/)
-- **¿Cómo se llamará el año 2026 en Perú? Esto es lo último que se sabe hoy 8 de enero**: [Link](https://www.infobae.com/peru/2026/01/04/se-sabe-como-se-llamara-el-ano-2026-en-peru-esto-es-lo-ultimo-que-se-conoce/)
-- **Conoce la historia del nombre oficial del año en Perú**: [Link](https://andina.pe/agencia/noticia-conoce-historia-del-nombre-oficial-del-ano-peru-1058094.aspx)
-
-
-### gustavo alvarez (N/A, 09/01/2026 11:35 Lima)
-
-- **Gustavo Álvarez es la primera opción para ser el próximo seleccionador de Perú**: [Link](https://www.espn.com.pe/futbol/mundial/nota/_/id/16159828/gustavo-alvarez-es-la-primera-opcion-para-ser-el-proximo-seleccionador-de-peru)
-- **Recta final para conocer al nuevo DT de Perú: Jean Ferrari y sus dos candidatos desde Argentina**: [Link](https://depor.com/futbol-peruano/seleccion-peruana/seleccion-peruana-ariel-holan-y-gustavo-alvarez-los-principales-candidatos-de-jean-ferrari-para-asumir-el-cargo-conversaciones-y-negociaciones-en-recta-final-video-noticia/)
-- **Si bien dijo que no llegaría a Perú, al final será el nuevo técnico de la Selección Peruana**: [Link](https://bolavip.com/pe/seleccion-peruana/seleccion-peruana-ya-definio-a-su-nuevo-tecnico-aunque-habia-asegurado-que-no-llegaria-no-tengo-ninguna-oferta)
-
-
-### connie chaparro (N/A, 09/01/2026 11:35 Lima)
-
-- **Sergio Galliani celebró 16 años de casado Connie Chaparro**: [Link](https://www.americatv.com.pe/mas-espectaculos/sergio-galliani-y-su-romantico-mensaje-connie-aniversario-noticia-162258)
-- **Connie Chaparro celebra 16 años de matrimonio con Sergio Galliani: Una vida construida con amor y respeto**: [Link](https://rpp.pe/famosos/farandula/connie-chaparro-celebra-16-anos-de-matrimonio-con-sergio-galliani-una-vida-construida-con-amor-y-respeto-noticia-1670935)
-- **Sergio Galliani y Connie Chaparro en ‘La Suite’**: [Link](https://diariouno.pe/2026/01/07/sergio-galliani-y-connie-chaparro-en-la-suite/)
-
-
-### el peruano (N/A, 09/01/2026 11:35 Lima)
-
-- **El Peruano te informa: consulta aquí las principales normas legales para hoy, jueves 8 de Enero del 2026**: [Link](https://elperuano.pe/noticia/286701-el-peruano-te-informa-consulta-aqui-las-principales-normas-legales-para-hoy-jueves-8-de-enero-del-2026)
-- **La Libertad: Congreso aprueba ley que crea la Universidad Nacional de Pataz**: [Link](https://www.tvperu.gob.pe/noticias/nacionales/la-libertad-congreso-aprueba-ley-que-crea-la-universidad-nacional-de-pataz)
-- **La Libertad: Municipalidad transferirá terreno para Universidad Nacional de Pataz**: [Link](https://diariocorreo.pe/edicion/la-libertad/la-libertad-municipalidad-transferira-terreno-para-universidad-nacional-de-pataz-noticia/)
-
-
-### semenyo (N/A, 09/01/2026 11:35 Lima)
-
-- **City seal Semenyo signature**: [Link](https://www.mancity.com/news/mens/antoine-semenyo-transfer-manchester-city-bournemouth-63903542)
-- **Manchester City finalise Antoine Semenyo agreement without release clause activation - The Athletic**: [Link](https://www.nytimes.com/athletic/6953448/2026/01/08/man-city-semenyo-transfer-release-clause/)
-- **Guardiola says Semenyo's "best years" are to come as he reveals if he will feature at Exeter**: [Link](https://www.tribalfootball.com/article/soccer-fa-cup-guardiola-says-semenyo-s-best-years-are-to-come-as-he-reveals-if-he-will-feature-at-exeter-a218f42d-dfe8-4f26-a18d-11523d70fe38)
-
-
-### weather (N/A, 09/01/2026 07:56 Lima)
-
-- **Winter storm bringing heavy snow and colder weather to Colorado at long last**: [Link](https://coloradosun.com/2026/01/07/colorado-winter-storm-snow-forecast/)
-- **Cold, brisk and snowy Friday**: [Link](https://krdo.com/video/2026/01/09/cold-brisk-and-snowy-friday/)
-- **Denver weather: Pinpoint weather alert day for Friday’s morning drive**: [Link](https://kdvr.com/weather/weather-forecast/denver-weather-pinpoint-weather-alert-day-for-fridays-morning-drive/)
-
-
-### integra afp (N/A, 09/01/2026 07:56 Lima)
-
-- **Amplían plazo para retiro de AFP: Hasta el 19 de enero se podrá solicitar hasta S/ 22.000**: [Link](https://www.infobae.com/peru/2026/01/07/amplian-plazo-para-retiro-de-afp-hasta-el-19-de-enero-se-podra-solicitar-hasta-s-22000/)
-- **Retiro AFP: última oportunidad para presentar solicitud vence este 18 de enero**: [Link](https://elperuano.pe/noticia/286717-retiro-afp-ultima-oportunidad-para-presentar-solicitud-vence-este-18-de-enero)
-- **Retiro de AFP 2026: solo ciertos afiliados pueden registrar segunda solicitud bajo condiciones muy específicas**: [Link](https://www.expreso.com.pe/economia/retiro-de-afp-2026-solo-ciertos-afiliados-pueden-registrar-segunda-solicitud-bajo-condiciones-muy-especificas-banco-de-la-nacion-prima-uit-noticia/1253444/)
-
-
-### poco m8 pro (N/A, 09/01/2026 07:56 Lima)
-
-- **Xiaomi empieza 2026 con una bomba de batería e imagen: el nuevo POCO M8 Pro 5G es así de atractivo**: [Link](https://www.mundoxiaomi.com/moviles/xiaomi-empieza-2026-bomba-bateria-e-imagen-nuevo-poco-m8-pro-5g-asi-atractivo)
-- **Pantalla AMOLED de 6,83 pulgadas, Snapdragon 8s Gen 4 y 12 GB de RAM: este es el POCO de Xiaomi que sigue reinando en la gama media**: [Link](https://topesdegama.com/ofertas/aliexpress/movil-xiaomi-poco-f7-080126)
-- **Amazon liquida el Xiaomi POCO más potente y lo deja 110 € más barato por tiempo limitado**: [Link](https://www.adslzone.net/ofertas/amazon/smartphone-xiaomi-poco-f7-0126/)
-
-
-### clima lima (N/A, 09/01/2026 03:37 Lima)
-
-- **Calor en Lima: esta es la temperatura máxima que pronostica el Senamhi para hoy 7 de enero**: [Link](https://www.infobae.com/peru/2026/01/07/calor-en-lima-esta-es-la-temperatura-maxima-que-pronostica-el-senamhi-para-hoy-7-de-enero/)
-- **SENAMHI: Pronóstico del clima hoy jueves 08 de enero 2026**: [Link](https://rpp.pe/peru/actualidad/senamhi-pronostico-del-clima-hoy-jueves-08-de-enero-2026-noticia-1670727)
-- **🔴🔵#HablemosClaro💬💬 | ¡A tomar en cuenta! En diálogo con Exitosa, el especialista en Meteorología del Senamhi, Ing. José Mesía, indicó que distritos de Lima Metropolitana registrarían temperaturas máximas de 29 °C durante el primer fin de semana de 20**: [Link](https://www.facebook.com/story.php?story_fbid=1313648964131492&id=100064592023543)
-
-
-### bruno mars (N/A, 09/01/2026 03:37 Lima)
-
-- **Bruno Mars announces Colorado stadium concert**: [Link](https://www.9news.com/article/entertainment/music/colorado-music/bruno-mars-stadium-tour-dates/73-c6485984-47e2-4959-a27d-1ee18c047994)
-- **Georgia Tech to Host Bruno Mars: The Romantic Tour**: [Link](https://ramblinwreck.com/georgia-tech-to-host-bruno-mars-the-romantic-tour/)
-- **Bruno Mars bringing first tour in nearly a decade to Pittsburgh this summer**: [Link](https://www.cbsnews.com/pittsburgh/news/bruno-mars-2026-world-tour-pittsburgh-date/)
 
 
