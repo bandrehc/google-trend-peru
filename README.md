@@ -1,3 +1,17 @@
+### stuttgart vs (N/A, 13/01/2026 03:37 Lima)
+
+- **Frankfurter Defensivprobleme: Toppmöller mit deutlicher Ansage**: [Link](https://www.90min.de/frankfurter-defensivprobleme-toppmoller-mit-deutlicher-ansage)
+- **VfB Stuttgart gegen Eintracht Frankfurt heute live: Wer überträgt die 1. Bundesliga im TV und Stream?**: [Link](https://www.swp.de/sport/sport-mix/vfb-stuttgart-gegen-eintracht-frankfurt-heute-live-wer-uebertraegt-die-1-bundesliga-im-tv-und-stream-78548718.html)
+- **Toppmöller erwägt Doppelspitze mit Kalimuendo und Ebnoutalib**: [Link](https://www.kicker.de/toppmoeller-erwaegt-doppelspitze-mit-kalimuendo-und-ebnoutalib-1183104/artikel)
+
+
+### peñarol vs central español (N/A, 13/01/2026 03:37 Lima)
+
+- **Diego Aguirre: "No da para sacar muchas conclusiones"**: [Link](https://www.espn.com.ar/futbol/uruguay/nota/_/id/16176380/diego-aguirre-penarol-central-copa-de-la-liga-auf-declaraciones-no-da-para-sacar-muchas-conclusiones)
+- **Peñarol tendrá su primera prueba en el año por la Copa de la Liga AUF ante Central Español**: [Link](https://espndeportes.espn.com/futbol/uruguay/nota/_/id/16170913/penarol-vs-central-espanol-copa-de-la-liga-auf-octavos-de-final-equipo-fecha-hora-tv-en-vivo)
+- **Peñarol vs Central Español hoy: Resultado EN VIVO, minuto a minuto y goles de la Copa de la Liga**: [Link](https://www.365scores.com/es/news/penarol-vs-central-espanol-resultdo-vivo/)
+
+
 ### lakers - kings (N/A, 12/01/2026 23:45 Lima)
 
 - **Best Luka Doncic Prop Bet for Lakers vs. Kings on Monday 1/12/26**: [Link](https://dknetwork.draftkings.com/2026/01/12/best-luka-doncic-prop-bet-for-lakers-vs-kings-on-monday-1-12-26/)
@@ -1016,19 +1030,5 @@
 - **Tijuana vs América: posibles alineaciones de la Jornada 1**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/16160125/tijuana-vs-america-clausura-2026-alineaciones-horarios-jornada-1)
 - **Qué canal pasa Xolos vs América hoy: dónde ver GRATIS y EN VIVO el partido de la Liga MX**: [Link](https://www.365scores.com/es/news/xolos-vs-america-donde-ver-gratis-vivo/)
 - **Liga MX: Tijuana y Club América juegan su primer encuentro**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-tijuana-y-club-america-juegan-su-primer-encuentro-noticia-1670845)
-
-
-### groenlandia (N/A, 09/01/2026 21:03 Lima)
-
-- **Donald Trump: "Vamos a hacer algo con Groenlandia, ya sea por las buenas o por las malas"**: [Link](https://rpp.pe/mundo/actualidad/donald-trump-vamos-a-hacer-algo-con-groenlandia-ya-sea-por-las-buenas-o-por-las-malas-noticia-1670997)
-- **Trump pone a Groenlandia en la mira tras la caída de Maduro y genera tensión en Europa**: [Link](https://caretas.pe/mundo/trump-pone-a-groenlandia-en-la-mira-tras-la-caida-de-maduro-y-genera-tension-en-europa/)
-- **Donald Trump pone en jaque a la OTAN y exige el control de Groenlandia: Aquí las claves de su deseo**: [Link](https://www.atv.pe/noticia/donald-trump-pone-en-jaque-a-la-otan-y-exige-el-control-de-groenlandia-aqui-las-claves-de-su-deseo/)
-
-
-### ley 32551 (N/A, 09/01/2026 21:03 Lima)
-
-- **Congreso promulga Ley que garantiza la continuidad académica de los docentes universitarios nombrados**: [Link](https://comunicaciones.congreso.gob.pe/noticias/congreso-promulga-ley-que-garantiza-la-continuidad-academica-de-los-docentes-universitarios-nombrados/)
-- **Ley 32551: Modifican la Ley Universitaria para garantizar la continuidad académica de docentes universitarios nombrados bajo la derogada Ley 23733**: [Link](https://lpderecho.pe/ley-32551-modifican-la-ley-universitaria-para-garantizar-la-continuidad-academica-de-docentes-universitarios-nombrados-bajo-la-derogada-ley-23733/)
-- **Estas son las normas legales más importantes del viernes 9 de enero del 2026**: [Link](https://andina.pe/agencia/noticia-estas-son-las-normas-legales-mas-importantes-del-viernes-9-enero-del-2026-1058642.aspx)
 
 
