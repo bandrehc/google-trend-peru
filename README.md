@@ -1,3 +1,71 @@
+### roma fc (N/A, 13/01/2026 15:31 Lima)
+
+- **Roma v Torino: Official Line-ups**: [Link](https://www.asroma.com/en/news/74656/roma-v-torino-official-line-ups)
+- **Coppa Italia – Roma in distress but favored against Torino**: [Link](https://www.pressgiochi.it/en/coppa-italia-roma-in-emergenza-ma-favorita-contro-il-torino/144670)
+- **Coppa Italia Liveblog: Roma vs. Torino**: [Link](https://football-italia.net/coppa-italia-liveblog-roma-vs-torino/)
+
+
+### atletico madrid (N/A, 13/01/2026 15:31 Lima)
+
+- **Atletico Madrid XI vs Deportivo La Coruna – Predicted lineup and team news**: [Link](https://sports.yahoo.com/articles/atletico-madrid-xi-vs-deportivo-122200416.html)
+- **Deportivo vs. Atletico Madrid: Betting odds, prediction, pick**: [Link](https://www.usatoday.com/story/sports/soccer/2026/01/13/deportivo-vs-atletico-madrid-copa-del-rey-betting-odds-prediction-pick/88153503007/)
+- **Atlético de Madrid – Deportivo de La Coruña: Match preview**: [Link](https://www.msn.com/en-us/sports/other/atl%C3%A9tico-de-madrid-deportivo-de-la-coru%C3%B1a-match-preview/ar-AA1U4ydc)
+
+
+### athletic bilbao (N/A, 13/01/2026 15:31 Lima)
+
+- **🎥Ernesto Valverde keeps quiet about his future**: [Link](https://sports.yahoo.com/articles/ernesto-valverde-keeps-quiet-future-085200542.html)
+- **Athletic Bilbao president Uriarte eager to secure Valverde to new deal**: [Link](https://www.tribalfootball.com/article/soccer-laliga-athletic-bilbao-president-uriarte-eager-to-secure-valverde-to-new-deal-59db5162-cef7-4ea4-8583-157155955037)
+- **Levante vs Espanyol - La Liga Round 19, 2025**: [Link](https://www.foxsports.com.au/football/la-liga/match-centre/LAL2025-261909)
+
+
+### roma - torino (N/A, 13/01/2026 15:31 Lima)
+
+- **Roma-Torino: Formazioni ufficiali e Cronaca in diretta**: [Link](https://sport.virgilio.it/dirette/live/coppa-italia/13-1-2026/roma-torino/2598749/)
+- **Lazaro: “Dobbiamo fare bene e prendere le misure in vista della sfida in campionato”**: [Link](https://www.forzaroma.info/news-as-roma/lazaro-dobbiamo-fare-bene-e-prendere-le-misure-in-vista-della-sfida-in-campionato/)
+- **Le ultime dall’Olimpico: panchina per Maripan, in attacco Adams e Simeone**: [Link](https://www.toro.it/toro/partite/roma-torino-coppa-italia-25-26-formazioni-ufficiali/1411049/)
+
+
+### mainz (N/A, 13/01/2026 15:31 Lima)
+
+- **79. Gutenberg-Stipendien an herausragende Arbeiten in Mainz verliehen**: [Link](https://www.allgemeine-zeitung.de/lokales/mainz/stadt-mainz/gutenberg-stipendien-in-mainz-verliehen-5290564)
+- **Mainz-News für heute, den 13.01.2026: Die aktuellen Nachrichten aus Ihrer Stadt im Überblick**: [Link](https://www.news.de/lokales/856994920/mainz-news-heute-aktuell-am-13-01-2026-lokal-nachrichten-zu-polizei-news-waldbrandgefahren-mobile-blitzer-veranstaltungen-kinoprogramm/1/)
+- **Mainz-News für heute, den 11.01.2026: Wir haben die Neuigkeiten des Tages für Ihre Stadt**: [Link](https://www.news.de/lokales/856994920/mainz-news-heute-aktuell-am-11-01-2026-lokal-nachrichten-zu-mobile-blitzer-veranstaltungen-kinoprogramm-notfallapotheken-biowetter/1/)
+
+
+### mainz vs (N/A, 13/01/2026 15:31 Lima)
+
+- **Fußball-Bundesliga: Abstiegskrimi vor Minus-Kulisse**: [Link](https://www.diefalsche9.de/fussball-bundesliga-abstiegskrimi-vor-minus-kulisse/)
+- **FSV Mainz 05: Ergebnisse, Spiele und Tabelle in der Saison 2025/2026**: [Link](https://www.news.de/sport/857120750/fsv-mainz-05-ergebnisse-statistik-und-fussball-news-vom-13-01-2026-tabelle-und-spielplan-fuer-naechste-spiele-in-der-bundesliga-2025-2026/1/)
+- **„Unser Kämpferherz auf den Platz bringen!“**: [Link](https://www.fc-heidenheim.de/news/detail/unser-kampferherz-auf-den-platz-bringen?cHash=0030e12e701835706e4c944861015fb0)
+
+
+### copa italia (N/A, 13/01/2026 15:31 Lima)
+
+- **¡EN VIVO! Roma y Torino se cruzan en octavos de la Copa Italia**: [Link](https://www.espn.com.ar/futbol/italia/nota/_/id/16176297/roma-vs-torino-octavos-copa-italia-equipo-fecha-hora-y-tv-en-vivo)
+- **Roma vs. Torino juegan hoy por Copa Italia 2025-2026, todo lo que tenés que saber**: [Link](https://www.directvsports.com/futbol/roma-vs.-torino-juegan-hoy-por-copa-italia-2025-2026-todo-lo-que-tenes-que-saber-20260110-0001.html)
+- **AS Roma-Torino, posibles XI: Ghilardi, Ziolkowski, Hermoso en defensa, Dybala en punta**: [Link](https://planetaroma.net/as-roma-torino-posibles-xi-ghilardi-ziolkowski-hermoso-en-defensa-dybala-en-punta/)
+
+
+### willax tv en vivo (N/A, 13/01/2026 15:31 Lima)
+
+Sin noticias relacionadas disponibles.
+
+
+### julio iglesias (N/A, 13/01/2026 15:31 Lima)
+
+- **Extrabajadoras de las mansiones de Julio Iglesias acusan al cantante de agresiones sexuales**: [Link](https://www.eldiario.es/cultura/extrabajadoras-mansiones-julio-iglesias-acusan-cantante-agresiones-sexuales_1_12902425.html)
+- **Julio Iglesias es acusado de agresión sexual por dos exempleadas de servicio doméstico**: [Link](https://rpp.pe/famosos/celebridades/julio-iglesias-es-acusado-de-agresion-sexual-por-dos-exempleadas-de-servicio-domestico-noticia-1671353)
+- **Dos mujeres denuncian en España a Julio Iglesias por agresión sexual y trata de seres humanos**: [Link](https://www.univision.com/especiales/noticias/infografias/2026/julio-iglesias-demanda)
+
+
+### newcastle - manchester city (N/A, 13/01/2026 15:31 Lima)
+
+- **Guardiola to assess squad with Ait-Nouri back from AFCON**: [Link](https://www.mancity.com/news/mens/pep-guardiola-202526-injury-update-newcastle-united-manchester-city-63903816)
+- **Newcastle Defend EFL Cup Title Against Man City at St James’ Park**: [Link](https://www.dawan.africa/news/newcastle-defend-efl-cup-title-against-man-city-at-st-james-park)
+- **Valentino Livramento out for two months with a hamstring injury**: [Link](https://footballtoday.com/2026/01/13/valentino-livramento-out-for-two-months-with-a-hamstring-injury/)
+
+
 ### dolares a soles (N/A, 13/01/2026 11:38 Lima)
 
 - **Precio del dólar en Perú: a cuánto cerró el tipo de cambio el domingo 11 de enero**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-2026-a-cuanto-esta-el-dolar-este-domingo-11-de-enero-tipo-de-cambio-tasa-cotizacion-compa-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
@@ -962,73 +1030,5 @@
 - **USO-ASM : les compos probables**: [Link](https://asm-supporters.fr/actualites/64762-uso-asm-les-compos-probables)
 - **Ratio, invincibilité, National 1… Les stats à connaître avant Orléans**: [Link](https://www.asmonaco.com/ratio-invincibilite-national-1-les-stats-a-connaitre-avant-orleans/)
 - **Akliouche absent du groupe de Monaco pour le déplacement à Orléans en Coupe de France**: [Link](https://www.lequipe.fr/Football/Actualites/Akliouche-absent-du-groupe-de-monaco-pour-le-deplacement-a-orleans-en-coupe-de-france/1632401)
-
-
-### cheltenham - leicester city (N/A, 10/01/2026 07:51 Lima)
-
-- **Leicester City team news v Cheltenham as Page and Aluko start amid eight changes**: [Link](https://www.leicestermercury.co.uk/sport/football/football-news/leicester-city-team-news-v-10748103)
-- **Floods, floodlights and the Foxes: Cheltenham Town’s past meetings with Leicester City**: [Link](https://www.gloucestershirelive.co.uk/sport/football/football-news/floods-floodlights-foxes-cheltenham-towns-10746068)
-- **Match sponsor v Leicester City: YouFibre**: [Link](https://www.ctfc.com/news/2026/january/09/match-sponsor-v-leicester-city--youfibre/)
-
-
-### real oviedo - real betis (N/A, 10/01/2026 07:51 Lima)
-
-- **Apuestas y Pronóstico del Real Oviedo vs Real Betis 10/01/26**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2026/enero/pronostico-real-oviedo-vs-real-betis-10-01-26)
-- **En las antípodas del gol**: [Link](https://es.besoccer.com/noticia/real-oviedo-real-betis-antipodas-gol-laliga-1389016)
-- **Manuel Pellegrini le mete miedo al colista de La Liga: "Hay que hacerle sentir que..."**: [Link](https://www.msn.com/es-cl/deportes/futbol/manuel-pellegrini-le-mete-miedo-al-colista-de-la-liga-hay-que-hacerle-sentir-que/ar-AA1TUnaP)
-
-
-### weather (N/A, 10/01/2026 07:51 Lima)
-
-- **Good morning, Orillia! Here's today's weather!**: [Link](https://www.orilliamatters.com/good-morning-orillia/good-morning-orillia-heres-todays-weather-11707309)
-- **Good morning, Midland! Here's today's weather!**: [Link](https://www.midlandtoday.ca/good-morning/good-morning-midland-heres-todays-weather-11708763)
-- **Good morning, Barrie! Here's today's weather!**: [Link](https://www.barrietoday.com/good-morning/good-morning-barrie-heres-todays-weather-11699533)
-
-
-### grizzlies - thunder (N/A, 10/01/2026 07:51 Lima)
-
-- **Thunder vs Grizzlies Picks & Odds Today: OKC Depleted On Road With Tight Spread**: [Link](https://www.oddsshark.com/nba/thunder-grizzlies-picks-odds-january-9-2026)
-- **Jalen Williams finished with season highs of 26 points …**: [Link](https://www.hoopshype.com/story/sports/nba/rumors/2026/01/10/jalen-williams-finished-with-season-highs-of-26-points/88116217007/)
-- **Oklahoma City's Jalen Williams drives against GG Jackson in the Thunder's NBA victory over the Memphis Grizzlies**: [Link](https://www.islandernews.com/news/national/oklahoma-citys-jalen-williams-drives-against-gg-jackson-in-the-thunders-nba-victory-over-the/image_5d55667f-0910-5815-825d-5d334510773a.html)
-
-
-### clima trujillo (N/A, 10/01/2026 03:33 Lima)
-
-- **Conoce el pronóstico del clima para mañana en Trujillo**: [Link](https://www.infobae.com/peru/2026/01/09/conoce-el-pronostico-del-clima-para-manana-en-trujillo/)
-- **Lluvia en Trujillo y La Libertad: pronóstico del clima para hoy**: [Link](https://noticiastrujillo.pe/lluvia-en-trujillo-y-la-libertad-pronostico-del-clima-para-hoy/)
-- **Trujillo: verano atípico mantiene temperaturas frías en la ciudad**: [Link](https://soltvperu.com/verano-atipico-trujillo-temperaturas-frias/)
-
-
-### dreamleague season 28 (N/A, 10/01/2026 03:33 Lima)
-
-- **DreamLeague Season 28 Qualification: vs. MOUZ - Natus Vincere**: [Link](https://navi.gg/en/publications/d2-dl28-quali-vs-mouz)
-
-
-### gustavo bueno (N/A, 10/01/2026 03:33 Lima)
-
-- **¿Qué contiene la cajita misteriosa de Gilberto?**: [Link](https://www.americatv.com.pe/al-fondo-hay-sitio/que-contiene-cajita-misteriosa-don-gilberto-noticia-162256)
-- **“Al fondo hay sitio”: Gustavo Bueno regresará como ‘Don Gilberto’ tras superar complicaciones de salud**: [Link](https://elcomercio.pe/tvmas/famosos/afhs-gustavo-bueno-volvera-como-don-gilberto-tras-superar-problemas-de-salud-ultimas-noticia/)
-- **Sobrina de Gustavo Bueno confirma regreso del actor en 'Al fondo hay sitio': "No hay persona más fuerte"**: [Link](https://rpp.pe/famosos/farandula/gustavo-bueno-su-sobrina-marialola-arispe-confirma-regreso-del-actor-en-al-fondo-hay-sitio-noticia-1670872)
-
-
-### kick (N/A, 09/01/2026 23:37 Lima)
-
-- **Victor Wembanyama shows knee is fine by doing something that shouldn't be physically possible**: [Link](https://sports.yahoo.com/nba/article/victor-wembanyama-shows-knee-is-fine-by-doing-something-that-shouldnt-be-physically-possible-032839987.html)
-- **Victor Wembanyama 'Confident' He Can Break World Record After Viral Video of High Kick**: [Link](https://bleacherreport.com/articles/25354674-victor-wembanyama-confident-he-can-break-world-record-after-viral-video-high-kick)
-- **Spurs Star Victor Wembanyama May Be Able To Break a Guinness World Record, and It Has Nothing To Do With Basketball**: [Link](https://www.profootballnetwork.com/nba/spurs-victor-wembanyama-may-break-guinness-wr-not-basketball-related/)
-
-
-### bucks - lakers (N/A, 09/01/2026 23:37 Lima)
-
-- **Milwaukee Bucks vs Los Angeles Lakers Prediction, Pick, Odds -- 1/9**: [Link](https://www.actionnetwork.com/nba/milwaukee-bucks-vs-los-angeles-lakers-prediction-pick-odds-friday-january-9)
-- **3 things to watch in Bucks-Lakers on NBA TV**: [Link](https://www.nba.com/news/3-things-to-watch-in-bucks-lakers-on-nba-tv-2)
-- **Here is the Bucks' injury report for Friday's game …**: [Link](https://sports.yahoo.com/articles/bucks-injury-report-fridays-game-021055037.html)
-
-
-### universitario (N/A, 09/01/2026 23:37 Lima)
-
-- **Universitario se retractó de palabras de Álvaro Barco contra 1190 Sports y FPF, pero dejó firme mensaje sobre derechos de TV**: [Link](https://www.infobae.com/peru/deportes/2026/01/09/universitario-se-retracto-de-palabras-de-alvaro-barco-contra-1190-sports-y-fpf-pero-dejo-firme-mensaje-sobre-derechos-de-tv/)
-- **Fernando Cabada anunció giro clave en Liga 1 y acuerdo con 1190 Sports**: [Link](https://depor.com/futbol-peruano/descentralizado/fernando-cabada-revela-acuerdos-con-1190-sports-y-cambios-clave-en-la-liga-1-federacion-peruana-de-futbol-alianza-lima-noticia/)
-- **“La FPF nos entregó un cadáver”: la rebelión de los clubes y el pacto con 1190 Sports por los derechos de TV para que la Liga 1 no se aplace**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/la-fpf-nos-entrego-un-cadaver-la-rebelion-de-los-clubes-y-el-pacto-con-1190-sports-por-los-derechos-de-tv-para-que-la-liga-1-no-se-aplace-tlcnota-noticia/)
 
 
