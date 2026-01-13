@@ -1,3 +1,10 @@
+### clima hoy (N/A, 13/01/2026 07:59 Lima)
+
+- **SENAMHI: Pronóstico del clima hoy martes 13 de enero 2026**: [Link](https://rpp.pe/peru/actualidad/senamhi-pronostico-del-clima-hoy-martes-13-de-enero-2026-noticia-1671341)
+- **Senamhi, pronóstico del clima HOY en Lima: temperaturas mínimas y máximas para este domingo 11 de enero de 2026**: [Link](https://www.expreso.com.pe/actualidad/senamhi-pronostico-del-clima-hoy-en-lima-temperaturas-minimas-y-maximas-para-este-domingo-11-de-enero-de-2026-invierno-verano-otono-primavera-soleado-calor-humedad-neblina-tiempo-noticia-2/1254145/)
+- **Calor y bochorno marcan el inicio del verano 2026 en Lima con temperaturas de hasta 29 °C**: [Link](https://diariocorreo.pe/edicion/lima/calor-y-bochorno-marcan-el-inicio-del-verano-2026-en-lima-con-temperaturas-de-hasta-29-c-noticia/)
+
+
 ### stuttgart vs (N/A, 13/01/2026 03:37 Lima)
 
 - **Frankfurter Defensivprobleme: Toppmöller mit deutlicher Ansage**: [Link](https://www.90min.de/frankfurter-defensivprobleme-toppmoller-mit-deutlicher-ansage)
@@ -1023,12 +1030,5 @@
 - **Many people who come off GLP-1 drugs regain weight within 2 years, review suggests**: [Link](https://www.cnn.com/2026/01/08/health/weight-loss-drugs-regain-scli-intl-wellness)
 - **People coming off weight-loss injections risk fast weight gain**: [Link](https://www.bbc.com/news/articles/c050ljnrv2qo)
 - **Former GLP-1 users regain lost weight after about 18 months, study says**: [Link](https://www.washingtonpost.com/wellness/2026/01/08/ozempic-wegovy-weight-regain-glp1/)
-
-
-### liga mx (N/A, 09/01/2026 21:03 Lima)
-
-- **Tijuana vs América: posibles alineaciones de la Jornada 1**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/16160125/tijuana-vs-america-clausura-2026-alineaciones-horarios-jornada-1)
-- **Qué canal pasa Xolos vs América hoy: dónde ver GRATIS y EN VIVO el partido de la Liga MX**: [Link](https://www.365scores.com/es/news/xolos-vs-america-donde-ver-gratis-vivo/)
-- **Liga MX: Tijuana y Club América juegan su primer encuentro**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-tijuana-y-club-america-juegan-su-primer-encuentro-noticia-1670845)
 
 
