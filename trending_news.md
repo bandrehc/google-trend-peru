@@ -1,3 +1,66 @@
+### steam machine (N/A, 12/01/2026 21:04 Lima)
+
+- **Reddit user finds Steam Machine price hidden in retailer's HTML**: [Link](https://boingboing.net/2026/01/11/reddit-user-finds-steam-machine-price-hidden-in-retailers-html.html)
+- **Valve’s New Steam Machine Could Launch at Premium PC Prices, Leaked Listings Suggest**: [Link](https://www.techloy.com/valves-new-steam-machine-could-launch-at-premium-pc-prices-leaked-listings-suggest/)
+- **What to expect from Valve in 2026: The return of the Steam Machine, a new VR headset, and more Half-Life 3 rumors**: [Link](https://www.gamesradar.com/platforms/pc-gaming/what-to-expect-from-valve-in-2026-the-return-of-steam-machines-a-new-vr-headset-and-more-half-life-3-rumors/)
+
+
+### édgar vivar (N/A, 12/01/2026 21:04 Lima)
+
+- **Édgar Vivar enfrenta rumores sobre su muerte y pide que no se viralice: “No tengo planes de morir”**: [Link](https://www.infobae.com/mexico/2026/01/13/edgar-vivar-enfrenta-rumores-sobre-su-muerte-y-pide-que-no-se-viralice-no-tengo-planes-de-morir/)
+- **Murió Edgar Vivar? Esto se sabe sobre el actor del Chavo del 8**: [Link](https://www.elsiglodetorreon.com.mx/noticia/2026/murio-edgar-vivar-esto-se-sabe-sobre-el-actor-del-chavo-del-8.html)
+- **¿Muere Édgar Vivar? Estas son todas las telenovelas en las que ha participado el actor**: [Link](https://www.televisa.com/tlnovelas/muere-edgar-vivar-estas-son-todas-las-telenovelas-en-las-que-ha-participado-el-actor)
+
+
+### delta (N/A, 12/01/2026 21:04 Lima)
+
+- **Delta Air Lines (DAL) Expected to Report Q4 Revenue Growth to $15.69B**: [Link](https://intellectia.ai/news/stock/delta-air-lines-dal-expected-to-report-q4-revenue-growth-to-1569b)
+- **Delta Air Lines Earnings Preview**: [Link](https://www.benzinga.com/insights/earnings/26/01/49843030/delta-air-lines-earnings-preview)
+- **Delta Air Lines (DAL) call put ratio 1 call to 2.4 puts into quarter results**: [Link](https://www.streetinsider.com/Option+EPS+Action/Delta+Air+Lines+%28DAL%29+call+put+ratio+1+call+to+2.4+puts+into+quarter+results/25836168.html)
+
+
+### peñarol vs (N/A, 12/01/2026 21:04 Lima)
+
+- **Juventud y Progreso avanzaron a cuartos de final de la Copa de la Liga AUF**: [Link](https://www.espn.com.ar/futbol/uruguay/nota/_/id/16172440/juventud-y-progreso-avanzaron-a-cuartos-de-final-de-la-copa-de-la-liga-auf)
+- **Peñarol tendrá su primera prueba en el año por la Copa de la Liga AUF ante Central Español**: [Link](https://espndeportes.espn.com/futbol/uruguay/nota/_/id/16170913/penarol-vs-central-espanol-copa-de-la-liga-auf-octavos-de-final-equipo-fecha-hora-tv-en-vivo)
+- **Juventud vs. Wanderers, hoy por la Copa de la Liga AUF: horario, formaciones y dónde ver en vivo**: [Link](https://www.directvsports.com/futbol/juventud-vs.-wanderers-hoy-por-la-copa-de-la-liga-auf-horario-formaciones-y-donde-ver-en-vivo-20260111-0011.html)
+
+
+### paris fc (N/A, 12/01/2026 21:04 Lima)
+
+- **Paris FC's Ikone stuns PSG to knock out former club from Coupe de France**: [Link](https://www.beinsports.com/en-mena/football/coupe-de-france/articles-video/paris-fc-s-ikone-stuns-psg-to-knock-out-former-club-from-coupe-de-france-2026-01-12)
+- **PSG knocked out: the incredible statistic 🤯**: [Link](https://sports.yahoo.com/articles/psg-knocked-incredible-statistic-221800890.html)
+- **PSG vs Paris FC: Predicted lineup for Coupe de France clash**: [Link](https://psgpost.com/psg-vs-paris-fc-predicted-lineup-for-coupe-de-france-clash-01kes5y2h799)
+
+
+### celta de vigo vs (N/A, 12/01/2026 21:04 Lima)
+
+- **Preview: Sevilla vs Celta Vigo - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/sevilla/preview/sevilla-vs-celta-vigo-prediction-team-news-lineups_589605.html)
+- **Sevilla vs Celta Vigo Prediction, 1/12/2026 Soccer Pick, Tips and Odds**: [Link](https://www.docsports.com/free-picks/soccer/2026/sevilla-vs-celta-vigo-prediction-1-12-2026-soccer-pick-tips-and-odds.html)
+- **Sevilla lose again as Marcos Alonso penalty sends Celta home happy**: [Link](https://www.washingtonpost.com/sports/soccer/2026/01/12/sevilla-celta-vigo-laliga/9ffe1e56-f00f-11f0-a4dc-effc74cb25af_story.html)
+
+
+### liverpool (N/A, 12/01/2026 21:04 Lima)
+
+- **Conor Bradley injury update**: [Link](https://www.liverpoolfc.com/news/conor-bradley-injury-update-1)
+- **Conor Bradley’s season over after suffering serious knee injury**: [Link](https://www.thetimes.com/sport/football/article/conor-bradley-liverpool-serious-knee-injury-ffzhzqr3m)
+- **Mikel Arteta sends message to Arne Slot after Gabriel Martinelli hat-trick**: [Link](https://www.nowarsenal.com/latest-news/mikel-arteta-sends-message-to-arne-slot-after-gabriel-martinelli-hat-trick/)
+
+
+### sorteo la tinka resultados (N/A, 12/01/2026 21:04 Lima)
+
+- **La Tinka: resultados del sorteo del 11 de enero y cuánto se llevó el ganador**: [Link](https://www.infobae.com/peru/2026/01/12/la-tinka-resultados-del-sorteo-del-11-de-enero-y-cuanto-se-llevo-el-ganador/)
+- **Resultados de La Tinka del domingo 11 de enero**: [Link](https://www.americatv.com.pe/americlub/tinka-resultados-sorteo-jugado-domingo-11-enero-noticia-162297)
+- **La Tinka del domingo 11 de enero: números ganadores de los 50 mil soles**: [Link](https://elcomercio.pe/respuestas/loterias/la-tinka-hoy-domingo-11-de-enero-2026-en-vivo-resultados-del-ultimo-sorteo-numeros-y-jugada-ganadora-pozo-millonario-loteria-si-o-si-boliyapa-intralot-lbposting-noticia/)
+
+
+### psg vs (N/A, 12/01/2026 21:04 Lima)
+
+- **Así fue el partido de Willian Pacho en la eliminación de PSG vs. Paris FC en la Copa de Francia**: [Link](https://www.espn.com.ar/futbol/francia/nota/_/id/16175185/psg-eliminado-vs-paris-fc-asi-fue-el-partido-de-willian-pacho)
+- **Paris Saint Germain recibe a Paris FC por la Copa Francia**: [Link](https://espndeportes.espn.com/futbol/francia/nota/_/id/16170290/psg-vs-paris-fc-por-la-copa-de-francia-equipo-fecha-hora-y-tv-en-vivo%C2%A0)
+- **¡Sorpresa! PSG fue eliminado en dieciseisavos de la Copa de Francia por París FC | VIDEO**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/psg-fue-eliminado-en-dieciseisavos-de-la-copa-de-francia-por-paris-fc-video-noticia/)
+
+
 ### juventus vs (N/A, 12/01/2026 15:31 Lima)
 
 - **Juventus recibe a Cremonese con el objetivo de seguir en los primeros puestos de la Serie A**: [Link](https://www.espn.com.pe/futbol/italia/nota/_/id/16163002/juventus-vs-cremonese-fecha-20-serie-a-equipo-fecha-hora-y-tv-en-vivo)
@@ -965,67 +1028,5 @@
 - **Rozpaczliwy wpis byłego piłkarza Chelsea. "Zostało mi kilka dni życia"**: [Link](https://www.polsatsport.pl/wiadomosc/2026-01-09/rozpaczliwy-wpis-bylego-pilkarza-chelsea-zostalo-mi-kilka-dni-zycia/)
 - **„Zostało mi tylko kilka dni życia”. Wstrząsające wyznanie Lamishy Musondy**: [Link](https://transfery.info/aktualnosci/zostalo-mi-tylko-kilka-dni-zycia-wstrzasajace-wyznanie-lamishy-musondy/263145)
 - **Rozpaczliwe wołanie byłego piłkarza akademii Chelsea. "Zostało mi tylko kilka dni"**: [Link](https://gol24.pl/rozpaczliwe-wolanie-bylego-pilkarza-akademii-chelsea-zostalo-mi-tylko-kilka-dni/ar/c2-19123875)
-
-
-### marruecos vs (N/A, 09/01/2026 15:30 Lima)
-
-- **Camerún - Marruecos, en directo: Copa de África, hoy en vivo**: [Link](https://as.com/futbol/internacional/camerun-marruecos-en-directo-copa-de-africa-hoy-en-vivo-f202601-d/)
-- **La Marruecos de Brahim se topa con su primer gran 'muro': Camerún**: [Link](https://www.marca.com/futbol/copa-africa/2026/01/09/marruecos-brahim-topa-primer-gran-muro-camerun.html)
-- **Eliminan a Sudáfrica, rival de México en el Mundial 2026, de la Copa Africana de Naciones**: [Link](https://www.infobae.com/mexico/deportes/2026/01/05/eliminan-a-sudafrica-rival-de-mexico-en-el-mundial-2026-de-la-copa-africana-de-naciones/)
-
-
-### getafe - real sociedad (N/A, 09/01/2026 15:30 Lima)
-
-- **LaLiga EA Sports: Por la fecha 19 se enfrentarán Getafe y Real Sociedad**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-por-la-fecha-19-se-enfrentaran-getafe-y-real-sociedad-noticia-1670766)
-- **Todos los datos sobre el Getafe-Real Sociedad de la Jornada 19**: [Link](https://www.flashscore.pe/noticias/futbol-laliga-ea-sports-previa-del-getafe-real-sociedad-curiosidades-estadisticas-datos-y-anecdotas/h27UIz25/)
-- **Real Sociedad Launches Bid for the Signing of Álvaro Fidalgo**: [Link](https://www.fichajes.net/en/news/real-sociedad-launches-bid-for-the-signing-of-alvaro-fidalgo-20260109.html)
-
-
-### lucinda vásquez (N/A, 09/01/2026 15:30 Lima)
-
-- **¡Guido Bellido es teléfono malogrado! Anunció fallecimiento de congresista Lúcida Vásquez y ella lo desmiente**: [Link](https://www.expreso.com.pe/politica/guido-bellido-es-telefono-malogrado-anuncio-fallecimiento-de-congresista-lucida-vasquez-y-ella-lo-desmiente-congreso-noticia/1253778/)
-- **Anuncian misa por la salud de la congresista Lucinda Vásquez y descartan versiones sobre su muerte**: [Link](https://www.infobae.com/peru/2026/01/09/anuncian-misa-por-la-salud-de-la-congresista-lucinda-vasquez-y-descartan-versiones-sobre-su-muerte/)
-
-
-### frankfurt - dortmund (N/A, 09/01/2026 15:30 Lima)
-
-- **Kovac blickt auf das Elfmeterschießen in Frankfurt zurück: "Das hätte auch gut und gerne in die andere Richtung gehen können"**: [Link](https://tribuna.com/de/news/2026-01-09-kovac-blickt-auf-das-elfmeterschieen-in-frankfurt-zuruck-das-hatte-auch-gut-und-gerne-in/)
-- **Guirassy weiter unglücklich! Aussetzer führt zu Elfmeter**: [Link](https://sport.sky.de/fussball/artikel/guirassy-weiter-ungluecklich-aussetzer-fuehrt-zu-elfmeter/13492622/34128)
-- **Bundesligakracher zum Jahresauftakt: Mit neuer Euphorie zu drei Punkten gegen den BVB**: [Link](https://www.sge4ever.de/bundesligakracher-zum-jahresauftakt-mit-neuer-euphorie-zu-drei-punkten-gegen-den-bvb/)
-
-
-### sedapal corte agua lima (N/A, 09/01/2026 15:30 Lima)
-
-- **Corte de agua en Lima para hoy, viernes 8 de enero: zonas afectadas y horarios, según Sedapal**: [Link](https://www.infobae.com/peru/2026/01/06/sedapal-anuncia-corte-de-agua-en-estos-distritos-de-lima-para-el-7-y-8-de-enero-zonas-afectadas-y-horarios/)
-- **Corte de agua hoy, 9 de enero: horarios y distritos afectados por Sedapal**: [Link](https://latinanoticias.pe/te-ayudo/corte-de-agua-hoy-9-de-enero-horarios-y-distritos-afectados-por-sedapal_20260109/)
-- **Sedapal anuncia CORTE DE AGUA este 8 y 9 de enero: Lista de distritos afectados**: [Link](https://peru21.pe/lima/sedapal-anuncia-corte-de-agua-este-8-y-9-de-enero-distritos/)
-
-
-### dortmund vs (N/A, 09/01/2026 15:30 Lima)
-
-- **Kovac blickt auf das Elfmeterschießen in Frankfurt zurück: "Das hätte auch gut und gerne in die andere Richtung gehen können"**: [Link](https://tribuna.com/de/news/2026-01-09-kovac-blickt-auf-das-elfmeterschieen-in-frankfurt-zuruck-das-hatte-auch-gut-und-gerne-in/)
-- **Guirassy weiter unglücklich! Aussetzer führt zu Elfmeter**: [Link](https://sport.sky.de/fussball/artikel/guirassy-weiter-ungluecklich-aussetzer-fuehrt-zu-elfmeter/13492622/34128)
-- **Bundesligakracher zum Jahresauftakt: Mit neuer Euphorie zu drei Punkten gegen den BVB**: [Link](https://www.sge4ever.de/bundesligakracher-zum-jahresauftakt-mit-neuer-euphorie-zu-drei-punkten-gegen-den-bvb/)
-
-
-### agua potable (N/A, 09/01/2026 11:35 Lima)
-
-- **Nueva tarifa de agua: familias de Lima, Callao y 31 ciudades más pagarán S/ 7.70 adicionales en promedio**: [Link](https://www.infobae.com/peru/2026/01/09/nueva-tarifa-de-agua-familias-de-lima-callao-y-31-ciudades-mas-pagaran-s-770-adicionales-en-promedio-segun-sunass/)
-- **Sociedad Nacional de Industrias rechaza alza de agua de Sedapal: Esperamos que paralicen este incremento**: [Link](https://canaln.pe/actualidad/sociedad-nacional-industrias-rechaza-alza-tarifaria-sedapal-n489470)
-- **Suben tarifas de agua en Lima: recibos llegarán con alzas de hasta 20%**: [Link](https://elcomercio.pe/videos/pais/tarifas-de-agua-en-lima-incremento-del-servicio-sera-hasta-el-20-sedapal-sunass-nnav-amtv-video-noticia/)
-
-
-### senegal vs (N/A, 09/01/2026 11:35 Lima)
-
-- **MATCH STATS: Mali vs Senegal – TotalEnergies CAF Africa Cup of Nations Morocco 2025 Quarter-final**: [Link](https://www.cafonline.com/afcon2025/news/match-stats-mali-vs-senegal-totalenergies-caf-africa-cup-of-nations-morocco-2025-quarter-final/)
-- **AFCON update: Sarr, Bissouma to face off in quarter finals**: [Link](https://cartilagefreecaptain.sbnation.com/tottenham-hotspur-news/68245/afcon-update-sarr-bissouma-to-face-off-in-quarter-finals)
-- **Mali's strong mentality key to overcoming favourites Senegal, says Coulibaly**: [Link](https://www.beinsports.com/en-us/soccer/africa-cup-of-nations/articles/malis-strong-mentality-key-to-overcoming-favourites-senegal-says-coulibaly-2026-01-08)
-
-
-### senegal (N/A, 09/01/2026 11:35 Lima)
-
-- **Senegal vs. Malí: ¿a qué hora juegan y dónde ver EN VIVO por cuartos de final de la Copa Africana de Naciones?**: [Link](https://rpp.pe/futbol/futbol-mundial/senegal-vs-mali-en-vivo-a-que-hora-juegan-y-donde-ver-cuartos-copa-africana-de-naciones-2026-via-claro-sports-link-gratis-partidos-de-hoy-noticia-1670868)
-- **Senegal en la Copa Africana de Naciones: ¡revive todos sus partidos de cuartos de final en vídeo!**: [Link](https://www.elpueblo.pe/deportes/senegal-en-la-copa-africana-de-naciones-revive-todos-sus-partidos-de-cuartos-de-final-en-video/202540/)
-- **Malí vs Senegal: duelo de gran nivel por los cuartos de final de la Copa Africana de Naciones**: [Link](https://zona.palmsbet.pe/deportes/futbol/mali-vs-senegal-duelo-de-gran-nivel-por-los-cuartos-de-final-de-la-copa-africana-de-naciones/)
 
 
