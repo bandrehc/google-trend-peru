@@ -1,3 +1,52 @@
+### lakers - kings (N/A, 12/01/2026 23:45 Lima)
+
+- **Best Luka Doncic Prop Bet for Lakers vs. Kings on Monday 1/12/26**: [Link](https://dknetwork.draftkings.com/2026/01/12/best-luka-doncic-prop-bet-for-lakers-vs-kings-on-monday-1-12-26/)
+- **Sacramento hosts conference foe Los Angeles**: [Link](https://abcnews.go.com/Sports/wireStory/sacramento-hosts-conference-foe-los-angeles-129123038)
+- **Kings vs. Lakers: Beat (Up) LA?**: [Link](https://kingsherald.com/articles/kings-vs-lakers-beat-up-la/)
+
+
+### renato tapia (N/A, 12/01/2026 23:45 Lima)
+
+- **Renato Tapia disparó contra la FPF: "No voy a soportar que se manipule mi nombre por intereses personales"**: [Link](https://www.espn.com.ar/futbol/mundial/nota/_/id/16174859/renato-tapia-contra-la-fpf-no-voy-a-soportar-que-se-manipule-mi-nombre)
+- **Christian Cueva a Renato Tapia por criticar al fútbol peruano: “No es el momento para hablar, no lo comparto”**: [Link](https://depor.com/futbol-peruano/seleccion-peruana/christian-cueva-a-renato-tapia-por-criticar-al-futbol-peruano-no-es-el-momento-para-hablar-no-lo-comparto-video-noticia/)
+- **Renato Tapia criticó al fútbol peruano: “No me apetece verlo”**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/renato-tapia-critico-al-futbol-peruano-no-me-apetece-verlo-n452298)
+
+
+### panamericana tv (N/A, 12/01/2026 23:45 Lima)
+
+- **Phillip Butters: entre el caos y la realidad**: [Link](https://www.expreso.com.pe/opinion/phillip-butters-entre-el-caos-y-la-realidad/)
+- **Phillip Butters estrena “Combutters” con entrevista a Rafael López Aliaga**: [Link](https://panamericana.pe/buenosdiasperu/locales/463284-phillip-butters-estrena-combutters-entrevista-rafael-lopez-aliaga)
+- **Phillip Butters regresa al ring: estrena programa en Panamericana Televisión**: [Link](https://www.apnoticias.pe/video/panorama/phillip-butters-regresa-al-ring-estrena-programa-en-panamericana-television-528397)
+
+
+### chappell roan (N/A, 12/01/2026 23:45 Lima)
+
+- **At the Shrine, Bella Hadid, Pedro Pascal and Chappell Roan push for humanitarian aid in Gaza and Sudan**: [Link](https://www.latimes.com/entertainment-arts/music/story/2026-01-11/gaza-benefit-bella-hadid-pedro-pascal-chappell-roan-shawn-mendez-blood-orange-geese)
+- **See Lucy Dacus and Chappell Roan Cover 'The Book of Love' at Artists for Aid Benefit Concert**: [Link](https://www.rollingstone.com/music/music-news/lucy-dacus-chappell-roan-the-book-of-love-benefit-concert-1235497509/)
+- **Mustafa Speaks Out as He Raises Money for Sudan and Palestine With Pedro Pascal and Bella Hadid**: [Link](https://timesofindia.indiatimes.com/short-videos/briefs/mustafa-speaks-out-as-he-raises-money-for-sudan-and-palestine-with-pedro-pascal-and-bella-hadid/shorttakes/126449396.cms)
+
+
+### los angeles azules (N/A, 12/01/2026 23:45 Lima)
+
+- **Los Ángeles Azules en Lima: la banda mexicana regresa con un esperado concierto en Costa 21**: [Link](https://rpp.pe/musica/conciertos/los-angeles-azules-vuelve-a-lima-2025-confirman-concierto-de-grupo-de-cumbia-mexicana-en-costa-21-cuando-sera-noticia-1671253)
+- **El popular grupo de cumbia mexicano “Los Ángeles Azules” llega a Lima**: [Link](https://diariocorreo.pe/espectaculos/el-popular-grupo-de-cumbia-mexicano-los-angeles-azules-llega-a-lima-noticia/)
+- **Los Ángeles Azules regresan a Lima este 8 de mayo**: [Link](https://andina.pe/agencia/noticia-los-angeles-azules-regresan-a-lima-este-8-mayo-1058961.aspx)
+
+
+### flow (N/A, 12/01/2026 23:45 Lima)
+
+- **Trinity County warns of increased water flow from Lewiston Dam**: [Link](https://www.actionnewsnow.com/news/trinity-county-warns-of-increased-water-flow-from-lewiston-dam/article_1a65b9a1-280a-4a93-afb3-9a4870296027.html)
+- **ENOV: Growth fueled by innovation, global expansion, and disciplined execution for higher margins**: [Link](https://www.tradingview.com/news/urn:summary_document_transcript:quartr.com:2587492:0-enov-growth-fueled-by-innovation-global-expansion-and-disciplined-execution-for-higher-margins/)
+- **Enovis to Present at J.P. Morgan Healthcare Conference**: [Link](https://www.tipranks.com/news/company-announcements/enovis-to-present-at-j-p-morgan-healthcare-conference)
+
+
+### psg vs paris fc alineaciones (N/A, 12/01/2026 23:45 Lima)
+
+- **PSG 0-1 Paris FC (12 de Ene., 2026) Resultado Final**: [Link](https://www.espn.com.pe/futbol/partido/_/juegoId/401843549/paris-fc-paris-saint-germain)
+- **(VIDEO) ¡Batacazo! París FC le ganó el clásico a PSG y lo dejó fuera de la Copa de Francia**: [Link](https://ovacion.pe/noticias/futbol-internacional/video-batacazo-paris-fc-le-gano-clasico-psg-dejo-fuera-copa-francia)
+- **El París FC echa al PSG de la Copa Francesa**: [Link](https://www.flashscore.pe/noticias/futbol-copa-de-francia-el-paris-fc-da-la-sorpresa-y-elimina-al-psg-de-la-copa-en-el-parque-de-los-principes-0-1/dz66lxTh/)
+
+
 ### steam machine (N/A, 12/01/2026 21:04 Lima)
 
 - **Reddit user finds Steam Machine price hidden in retailer's HTML**: [Link](https://boingboing.net/2026/01/11/reddit-user-finds-steam-machine-price-hidden-in-retailers-html.html)
@@ -981,52 +1030,5 @@
 - **Congreso promulga Ley que garantiza la continuidad académica de los docentes universitarios nombrados**: [Link](https://comunicaciones.congreso.gob.pe/noticias/congreso-promulga-ley-que-garantiza-la-continuidad-academica-de-los-docentes-universitarios-nombrados/)
 - **Ley 32551: Modifican la Ley Universitaria para garantizar la continuidad académica de docentes universitarios nombrados bajo la derogada Ley 23733**: [Link](https://lpderecho.pe/ley-32551-modifican-la-ley-universitaria-para-garantizar-la-continuidad-academica-de-docentes-universitarios-nombrados-bajo-la-derogada-ley-23733/)
 - **Estas son las normas legales más importantes del viernes 9 de enero del 2026**: [Link](https://andina.pe/agencia/noticia-estas-son-las-normas-legales-mas-importantes-del-viernes-9-enero-del-2026-1058642.aspx)
-
-
-### volcan sabancaya (N/A, 09/01/2026 21:03 Lima)
-
-- **Indeci alerta explosión del Volcán Sabancaya en la provincia de Caylloma, Arequipa**: [Link](https://larepublica.pe/sociedad/2026/01/09/indeci-alerta-explosion-del-volcan-sabancaya-en-la-provincia-de-caylloma-arequipa-815292)
-- **Volcán Sabancaya: alerta por dispersión de cenizas y emisión de gases**: [Link](https://andina.pe/agencia/noticia-volcan-sabancaya-alerta-dispersion-cenizas-y-emision-gases-1058746.aspx)
-- **Volcán Sabancaya activa alerta naranja en Arequipa tras explosión con emisión de cenizas y gases**: [Link](https://www.infobae.com/peru/2026/01/10/volcan-sabancaya-activa-alerta-naranja-en-arequipa-tras-explosion-con-emision-de-cenizas-y-gases/)
-
-
-### minedu contrato docente 2026 (N/A, 09/01/2026 21:03 Lima)
-
-- **Plazas docentes: requisitos para las contrataciones y renovaciones**: [Link](https://www.elperuano.pe/noticia/286676-plazas-docentes-requisitos-para-las-contrataciones-y-renovaciones)
-- **Renovación del contrato docente 2026: El Minedu detalla los pasos que debes seguir, etapas y requisitos para asegurar plaza como maestro**: [Link](https://elcomercio.pe/respuestas/tramites/renovacion-del-contrato-docente-2026-el-minedu-detalla-los-pasos-que-debes-seguir-etapas-y-requisitos-para-asegurar-plaza-como-maestro-tdpe-noticia/)
-- **Año escolar 2026: Minedu contratará a 9 mil auxiliares, profesionales y estudiantes de Educación**: [Link](https://www.infobae.com/peru/2026/01/04/ano-escolar-2026-minedu-contratara-a-9-mil-auxiliares-profesionales-y-estudiantes-de-educacion/)
-
-
-### primero la gente (N/A, 09/01/2026 21:03 Lima)
-
-- **JNE declara fundada apelación de Primero la Gente contra resolución que declaró improcedente inscripción de fórmula presidencial**: [Link](https://rpp.pe/politica/elecciones/jne-declara-fundada-apelacion-de-primero-la-gente-contra-resolucion-que-declaro-improcedente-inscripcion-de-formula-presidencial-noticia-1670877)
-- **JNE declara fundada la apelación de Primero La Gente y Marisol Pérez Tello sigue en carrera**: [Link](https://www.infobae.com/peru/2026/01/09/jne-declara-fundada-la-apelacion-de-primero-la-gente-y-marisol-perez-tello-sigue-en-carrera/)
-- **Elecciones 2026: JNE admite apelación de Primero la Gente**: [Link](https://andina.pe/agencia/noticia-elecciones-2026-jne-admite-apelacion-primero-gente-1058630.aspx)
-
-
-### brahim díaz (N/A, 09/01/2026 15:30 Lima)
-
-- **MATCH STATS: Cameroon vs Morocco – TotalEnergies CAF Africa Cup of Nations Morocco 2025 Quarter-final**: [Link](https://www.cafonline.com/afcon2025/news/match-stats-cameroon-vs-morocco-totalenergies-caf-africa-cup-of-nations-morocco-2025-quarter-final/)
-- **AFCON 2025: Mali Protest Appointment of Senegalese Match Assessor Ahead of Quarter-Final Clash**: [Link](https://dailysports.net/news/afcon-2025-mali-protest-appointment-of-senegalese-match-assessor-ahead-of-quarter-final-clash/)
-- **Cameroon boss Pagou labels Morocco 'favourites'**: [Link](https://www.beinsports.com/en-nz/football/africa-cup-of-nations/articles-video/cameroon-boss-pagou-labels-morocco-favourites-2026-01-08)
-
-
-### cadiz vs (N/A, 09/01/2026 15:30 Lima)
-
-- **Cádiz vs Sporting Gijón prediction, preview, betting tips: 9/1/2026 – La Liga 2**: [Link](https://dailystar.com.lb/cadiz-vs-sporting-gijon-prediction-preview-betting-tips-9-1-2026/)
-
-
-### preston vs (N/A, 09/01/2026 15:30 Lima)
-
-- **Frankfurt vs. Dortmund (9 de Ene., 2026) Resultados en Vivo**: [Link](https://www.espn.com.pe/futbol/partido/_/juegoId/746859)
-- **Milan vs. Génova (8 de Ene., 2026) Resultados en Vivo - ESPN (PE)**: [Link](https://www.espn.com.pe/futbol/partido/_/juegoId/736968)
-- **Preston North End vs Wigan Athletic Pronóstico: Previa y Análisis del Partido | FA Cup 09-01-2026**: [Link](https://betmines.com/es/analisis-partido/preston-north-end-vs-wigan-athletic-pronostico-previa-y-analisis-fa-cup-09-01-2026)
-
-
-### dni (N/A, 09/01/2026 15:30 Lima)
-
-- **Rozpaczliwy wpis byłego piłkarza Chelsea. "Zostało mi kilka dni życia"**: [Link](https://www.polsatsport.pl/wiadomosc/2026-01-09/rozpaczliwy-wpis-bylego-pilkarza-chelsea-zostalo-mi-kilka-dni-zycia/)
-- **„Zostało mi tylko kilka dni życia”. Wstrząsające wyznanie Lamishy Musondy**: [Link](https://transfery.info/aktualnosci/zostalo-mi-tylko-kilka-dni-zycia-wstrzasajace-wyznanie-lamishy-musondy/263145)
-- **Rozpaczliwe wołanie byłego piłkarza akademii Chelsea. "Zostało mi tylko kilka dni"**: [Link](https://gol24.pl/rozpaczliwe-wolanie-bylego-pilkarza-akademii-chelsea-zostalo-mi-tylko-kilka-dni/ar/c2-19123875)
 
 
