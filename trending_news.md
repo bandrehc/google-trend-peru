@@ -1,3 +1,45 @@
+### meet (N/A, 14/01/2026 07:58 Lima)
+
+- **‘We’re Not Stupid’: Greenlanders Fear What a U.S. Takeover Would Mean**: [Link](https://www.nytimes.com/2026/01/14/world/americas/greenland-fear-trump-us-takeover.html)
+- **Trump warns Greenland's defiance a 'major problem' ahead of meeting**: [Link](https://www.foxnews.com/video/6387709382112)
+- **Greenland and Denmark prepare for a White House showdown**: [Link](https://www.cnbc.com/2026/01/14/greenland-denmark-trump-white-house-meeting.html)
+
+
+### exitosa en vivo (N/A, 14/01/2026 07:58 Lima)
+
+- **ANC aparta a Domingo Pérez del cargo de fiscal por su actuación en caso Cócteles (lea la resolución)**: [Link](https://lpderecho.pe/anc-aparta-preventivamente-jose-domingo-perez-cargo-fiscal-seis-meses/)
+- **José Domingo Pérez es suspendido por seis meses**: [Link](https://www.americatv.com.pe/noticias/actualidad/jose-domingo-perez-suspendido-seis-meses-n514790)
+- **José Domingo Pérez: los argumentos de la Autoridad Nacional de Control del Ministerio Público para suspenderlo por seis meses**: [Link](https://elcomercio.pe/politica/justicia/jose-domingo-perez-por-que-la-autoridad-nacional-de-control-del-ministerio-publico-lo-suspende-por-seis-meses-noticia/)
+
+
+### canal 4 en vivo (N/A, 14/01/2026 07:58 Lima)
+
+- **Barcelona le ganó a Real Madrid y conquistó la Supercopa de España en un partidazo**: [Link](https://www.espn.com.ar/futbol/espana/nota/_/id/16164542/barcelona-se-impuso-en-el-clasico-y-conquisto-la-supercopa-en-un-partidazo)
+- **Flick conquista otro título**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20260114/1002600915/flick-conquista-titulo.html)
+- **La Supercopa de Raphinha**: [Link](https://as.com/futbol/primera/la-supercopa-de-raphinha-f202601-n/)
+
+
+### carlos torres vila (N/A, 14/01/2026 07:58 Lima)
+
+- **Carlos Torres Vila: “BBVA contará con €49.000 millones de capital de máxima calidad en el nuevo ciclo estratégico”**: [Link](https://www.bbva.com/es/economia-y-finanzas/carlos-torres-vila-bbva-contara-con-e49-000-millones-de-capital-de-maxima-calidad-en-el-nuevo-ciclo-estrategico/)
+- **Carlos Torres afirma que BBVA generará 49.000 millones hasta 2028 para crecer y remunerar al accionista**: [Link](https://www.lacronicabadajoz.com/economia/2026/01/13/carlos-torres-afirma-bbva-generara-125647979.html)
+- **BBVA tiene buenas perspectivas para 2026 en todos los mercados en los que opera, incluido México**: [Link](https://www.eleconomista.com.mx/sectorfinanciero/bbva-buenas-perspectivas-2026-todos-mercados-opera-incluido-mexico-20260113-795104.html)
+
+
+### chelsea vs arsenal (N/A, 14/01/2026 07:58 Lima)
+
+- **Chelsea star remains doubt for Arsenal after appearing to miss training**: [Link](https://dailycannon.com/2026/01/palmer-gusto-james-injuries-chelsea-arsenal/)
+- **Liam Rosenior quietly handed a huge edge over Arsenal**: [Link](https://theprideoflondon.com/liam-rosenior-quietly-handed-huge-edge-over-arsenal)
+- **Chelsea vs Arsenal prediction and odds ahead of Carabao Cup clash**: [Link](https://www.football.london/chelsea-fc/news/chelsea-arsenal-preview-prediction-tips-33222428)
+
+
+### caracol (N/A, 14/01/2026 07:58 Lima)
+
+- **Fredy Guarín denunció asalto violento a su finca de Rionegro mientras estaba de vacaciones: “Se siente uno impotente”**: [Link](https://www.infobae.com/colombia/2026/01/14/fredy-guarin-denuncio-asalto-violento-a-su-finca-de-rionegro-mientras-estaba-de-vacaciones-se-siente-uno-impotente/)
+- **[Video] Freddy Guarín denunció millonario robo que le hicieron en su finca**: [Link](https://www.deportesrcn.com/mas-alla-del-deporte/video-freddy-guarin-denuncio-millonario-robo-que-le-hicieron-en-su-finca-143964)
+- **Mundialista con la Selección Colombia denunció robo en su finca; "es frustrante"**: [Link](https://www.noticiascaracol.com/golcaracol/mundialista-con-la-seleccion-colombia-denuncio-robo-en-su-finca-es-frustrante-rg10)
+
+
 ### temblor chimbote (N/A, 14/01/2026 03:37 Lima)
 
 - **Sismo de magnitud 4.8 se registró esta madrugada al sur de Tacna, informó el IGP**: [Link](https://diariocorreo.pe/edicion/tacna/sismo-de-magnitud-48-se-registro-esta-madrugada-al-sur-de-tacna-informo-el-igp-noticia/)
@@ -986,47 +1028,5 @@ Sin noticias relacionadas disponibles.
 - **Mujer arremete en contra de una ex alcaldesa públicamente**: [Link](https://saganoticias.com/politica/mujer-arremete-en-contra-de-una-ex-alcaldesa-publicamente)
 - **Exalcaldesa morenista de Múzquiz anda de “buscapleitos” con priistas**: [Link](https://www.eluniversal.com.mx/opinion/kiosko/exalcaldesa-morenista-de-muzquiz-anda-de-buscapleitos-con-priistas/)
 - **EN EL TINTERO**: [Link](https://elheraldodesaltillo.mx/2026/01/08/en-el-tintero-292/)
-
-
-### disney (N/A, 10/01/2026 21:23 Lima)
-
-- **Dopey Challenge | NC woman to run in all 4 Walt Disney World Marathon Weekend races: the 5K, 10K, half-marathon, marathon**: [Link](https://abc11.com/post/dopey-challenge-nc-woman-run-4-walt-disney-world-marathon-weekend-races-5k-10k-half/18373969/)
-- **Walt Disney World Marathon Weekend kicks off at Epcot**: [Link](https://www.wogx.com/video/fmc-2sb8pmg4alfhownz)
-- **Some runners participate in Disney 'Dopey Challenge'**: [Link](https://www.kvue.com/video/news/dopey-challenge-disney-runners/269-4bf081d8-251b-4055-820e-9c54d0849884)
-
-
-### guadalajara - pachuca (N/A, 10/01/2026 21:23 Lima)
-
-- **Liga MX: Chivas y Pachuca debutan en el torneo**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-chivas-y-pachuca-debutan-en-el-torneo-noticia-1670962)
-- **La 'Hormiga' González se estrena en el Clausura 2026 y manda mensaje al 'Vasco' Aguirre**: [Link](https://www.de10.com.mx/lo-viral/la-hormiga-gonzalez-se-estrena-en-el-clausura-2026-y-manda-mensaje-al-vasco-aguirre/)
-- **Nació en Estados Unidos, vivió en Chicago y ahora debuta con las Chivas en el Clausura 2026**: [Link](https://www.tvazteca.com/aztecadeportes/nacio-en-estados-unidos-vivio-en-chicago-y-ahora-debuta-con-las-chivas-en-el-clausura-2026/)
-
-
-### yeison jiménez (N/A, 10/01/2026 21:23 Lima)
-
-- **Músico colombiano Yeison Jímenez muere junto a sus acompañantes en un accidente de avioneta**: [Link](https://www.bbc.com/mundo/articles/clyn1x2qll5o)
-- **Murió Yeison Jiménez: el cantante estaba entre los pasajeros del avión que se accidentó en Boyacá**: [Link](https://www.infobae.com/colombia/2026/01/10/murio-yeison-jimenez-el-cantante-habria-estado-entre-los-pasajeros-del-avion-que-se-accidento-en-boyaca/)
-- **Atención: en accidente de avioneta esta tarde en Paipa (Boyacá) murieron el cantante Yeison Jiménez y sus músicos**: [Link](https://www.eltiempo.com/colombia/otras-ciudades/atencion-en-accidente-esta-tarde-en-paipa-habria-muerto-el-cantante-yeison-jimenez-y-sus-musicos-3523385)
-
-
-### guimarães - braga (N/A, 10/01/2026 15:27 Lima)
-
-- **Equipa do V. Guimarães sobe ao terreno de jogo**: [Link](https://www.abola.pt/video/equipa-do-v-guimaraes-sobe-ao-terreno-de-jogo-2026011018474310689)
-- **AO VIVO: Dorgelles faz o 0-1 aos 17 minutos**: [Link](https://www.flashscore.pt/noticias/futebol-taca-da-liga-ao-vivo-dorgelles-faz-o-0-1-aos-17-minutos/EiMl66gA/)
-- **Os onzes iniciais para a final da Taça da Liga entre V. Guimarães e Braga**: [Link](https://sapo.pt/artigo/os-onzes-iniciais-para-a-final-da-taca-da-liga-entre-v-guimaraes-e-braga-6962a884bd01a240c1a7c3c6)
-
-
-### temblor hoy arequipa (N/A, 10/01/2026 15:27 Lima)
-
-- **Sismo de magnitud 4.0 remeció Arequipa esta tarde: es el segundo temblor sentido en la región**: [Link](https://rpp.pe/peru/arequipa/sismo-de-magnitud-40-remecio-arequipa-esta-tarde-es-el-segundo-temblor-sentido-en-la-region-noticia-1671102)
-- **Sismo de magnitud 5.3 sacude Perú: ¿dónde fue el epicentro y en qué distritos se sintió?**: [Link](https://www.infobae.com/peru/2026/01/09/sismo-de-magnitud-53-sacude-peru-donde-fue-el-epicentro-y-en-que-distritos-se-sintio/)
-- **Temblor en Perú hoy, sábado 10 de enero: Epicentro, magnitud y hora vía IGP**: [Link](https://elcomercio.pe/peru/ultimo-temblor-en-peru-hoy-via-igp-hora-exacta-lugar-y-magnitud-del-sismo-censis-reportes-tdpe-noticia/)
-
-
-### valencia vs elche (N/A, 10/01/2026 15:27 Lima)
-
-- **🚨 Dimitrievski, one year on: the line-ups for Valencia v Elche**: [Link](https://sports.yahoo.com/articles/dimitrievski-one-line-ups-valencia-185700095.html)
-- **Where to watch Valencia vs. Elche: La Liga FREE live stream today, time, schedule**: [Link](https://www.syracuse.com/tv/2026/01/where-to-watch-valencia-vs-elche-la-liga-free-live-stream-today-time-schedule.html)
-- **Where to Watch Valencia CF vs. Elche CF: TV Channel, Start Time and Live Stream**: [Link](https://www.bleachernation.com/how-to-watch/2026/01/09/where-to-watch-valencia-cf-vs-elche-cf-tv-channel-start-time-and-live-stream/)
 
 
