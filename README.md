@@ -1,3 +1,71 @@
+### az - ajax (N/A, 14/01/2026 15:28 Lima)
+
+- **Live KNVB-beker | AZ razendsnel op voorsprong tegen Ajax**: [Link](https://www.nu.nl/voetbal/6382592/live-knvb-beker-az-razendsnel-op-voorsprong-tegen-ajax.html)
+- **Grim geeft update over geblesseerd geraakte Baas**: [Link](https://www.vi.nl/nieuws/grim-geeft-update-over-geblesseerd-geraakte-baas)
+- **Snelle goals in Almere en Deventer, PSV op rozen • Later vanavond kraker AZ-Ajax**: [Link](https://nos.nl/liveblog/2598177-snelle-goals-in-almere-en-deventer-psv-op-rozen-later-vanavond-kraker-az-ajax)
+
+
+### inter vs (N/A, 14/01/2026 15:28 Lima)
+
+- **Pronóstico Inter Milán US Lecce - Serie A 14/01/26**: [Link](https://www.sportytrader.com/es/pronosticos/inter-milan-us-lecce-318091/)
+- **Serie A: Inter marcha como líder y busca llevarse los 3 puntos para mantenerse en la cima**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-inter-marcha-como-lider-y-busca-llevarse-los-3-puntos-para-mantenerse-en-la-cima-noticia-1671372)
+- **El líder Inter se pone al día en la Serie A ante Lecce**: [Link](https://www.espn.com.ar/futbol/italia/nota/_/id/16175628/inter-vs-lecce-serie-a-equipo-fecha-hora-y-tv-en-vivo)
+
+
+### porto - benfica (N/A, 14/01/2026 15:28 Lima)
+
+- **Novidades em perspetiva: o onze provável do FC Porto para o clássico**: [Link](https://www.abola.pt/noticias/novidades-em-perspetiva-o-onze-provavel-do-fc-porto-para-o-classico-2026011317090531392)
+- **18h30 Edição de João Gomes Dias**: [Link](https://www.rtp.pt/noticias/noticiario-desporto/18h30-edicao-de-joao-gomes-dias_a1_1710266)
+- **CNN Mais Transferências - Clássico no Dragão a contar para a Taça de Portugal**: [Link](https://tviplayer.iol.pt/programa/cnn-mais-transferencias/63b703740cf2665294cf6845/video/6967c0800cf24e58d783c89c)
+
+
+### hoffenheim - mönchengladbach (N/A, 14/01/2026 15:28 Lima)
+
+- **Borussia Mönchengladbach: Shuto Machino mit Doppel-Premiere bei TSG**: [Link](https://www.bild.de/sport/fussball/borussia-moenchengladbach-shuto-machino-mit-doppel-premiere-bei-tsg-6966692b0bbaff31d07df27e)
+- **Hoffenheim vs. Gladbach heute live: Übertragung im TV & Stream**: [Link](https://www.tipico.de/wett-tipps/sportwetten-news/hoffenheim-vs-gladbach-heute-live-uebertragung-im-tv-stream)
+- **Bundesliga LIVE: Infos, News und Liveticker zum 17. Spieltag | Flashscore.de**: [Link](https://www.flashscore.de/news/fu-ball-bundesliga-bundesliga-live-wolfsburg-zuhause-unter-druck-duell-der-youngster-in-koln/QqgAkzbt/)
+
+
+### albacete fc (N/A, 14/01/2026 15:28 Lima)
+
+- **A qué hora juega Real Madrid vs Albacete HOY en Perú: partido por octavos de final de la Copa del Rey 2026**: [Link](https://www.infobae.com/peru/deportes/2026/01/13/a-que-hora-juega-real-madrid-vs-albacete-partido-octavos-de-final-copa-del-rey-2026-horario/)
+- **VER Real Madrid vs Albacete EN VIVO HOY por la Copa del Rey vía América tvGO**: [Link](https://larepublica.pe/deportes/2026/01/13/real-madrid-vs-albacete-en-vivo-copa-del-rey-via-america-tv-1204749)
+- **▷ A qué horas juegan y en qué canales transmiten Real Madrid vs. Albacete EN VIVO hoy por Copa del Rey 2026**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/a-que-hora-y-en-que-canal-transmite-real-madrid-albacete-por-copa-del-rey-2026-en-espana-mexico-y-estados-unidos-nnda-nnrt-noticia/)
+
+
+### hoffenheim vs (N/A, 14/01/2026 15:28 Lima)
+
+- **TSG Hoffenheim vs. Borussia Mönchengladbach preview: European hopefuls lock horns in Englische Woche**: [Link](https://sports.yahoo.com/articles/tsg-hoffenheim-vs-borussia-m-175200755.html)
+- **Hoffenheim vs Monchengladbach Prediction, 1/14/2026 Soccer Pick, Tips and Odds**: [Link](https://www.docsports.com/free-picks/soccer/2026/hoffenheim-vs-monchengladbach-prediction-1-14-2026-soccer-pick-tips-and-odds.html)
+- **Where to Watch TSG Hoffenheim vs. Borussia Monchengladbach: TV Channel, Start Time and Live Stream**: [Link](https://www.bleachernation.com/how-to-watch/2026/01/13/where-to-watch-tsg-hoffenheim-vs-borussia-monchengladbach-tv-channel-start-time-and-live-stream-2/)
+
+
+### inter milan (N/A, 14/01/2026 15:28 Lima)
+
+- **Preview: Inter Milan vs Lecce - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/inter-milan/preview/inter-milan-vs-lecce-prediction-team-news-lineups_589709.html)
+- **Official Starting Lineups – Inter Milan Vs Lecce: Andy Diouf & Ange-Yoann Bonny Start**: [Link](https://onefootball.com/es/noticias/official-starting-lineups-inter-milan-vs-lecce-andy-diouf-ange-yoann-bonny-start-42228394)
+- **Revealed – Why Inter Milan Coach Cristian Chivu Didn’t Hold Pre-Match Training Session Ahead Of Lecce Clash**: [Link](https://sempreinter.com/2026/01/14/inter-milan-lecce-chivu-did-not-hold-pre-match-training/)
+
+
+### braga vs (N/A, 14/01/2026 15:28 Lima)
+
+- **Preview: Fafe vs Braga - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/fafe/preview/fafe-vs-braga-prediction-team-news-lineups_589742.html)
+
+
+### bayern (N/A, 14/01/2026 15:28 Lima)
+
+- **„Wir müssen unsere Hausaufgaben machen und unsere Punkte holen“**: [Link](https://www.fcstpauli.com/news/cheftrainer-alexander-blessin-vor-auswaertsspiel-wolfsburg-2526)
+- **Bundesliga LIVE: Infos, News und Liveticker zum 17. Spieltag | Flashscore.de**: [Link](https://www.flashscore.de/news/fu-ball-bundesliga-bundesliga-live-wolfsburg-fuhrt-nach-handelfmeter-jones-vergibt-doppelchance/QqgAkzbt/)
+- **"Geile Emotion": VfL-Matchwinner Pejcinovic glücklich über späten Sieg**: [Link](https://www.ndr.de/sport/fussball/dzenan-pejcinovic-vfl-matchwinner-gegen-st-pauli,audio-386642.html)
+
+
+### bayern munich vs (N/A, 14/01/2026 15:28 Lima)
+
+- **Kompany gives update on Musiala, Kimmich and Davies ahead of trip to Köln**: [Link](https://bulinews.com/kompany-gives-update-musiala-kimmich-and-davies-ahead-trip-koln)
+- **Preview: 1. FC Köln vs. FC Bayern, Bundesliga MD 17**: [Link](https://fcbayern.com/en/matches/profis/bundesliga/2025-2026/1-fc-koeln-fc-bayern-muenchen-14-01-2026/preview)
+- **Koln vs Bayern Munich Prediction, 1/14/2026 Soccer Pick, Tips and Odds**: [Link](https://www.docsports.com/free-picks/soccer/2026/koln-vs-bayern-munich-prediction-1-14-2026-soccer-pick-tips-and-odds.html)
+
+
 ### senegal vs egipto (N/A, 14/01/2026 11:38 Lima)
 
 - **Senegal - Egipto, en directo | La Copa África, hoy en vivo**: [Link](https://www.marca.com/futbol/copa-de-africa/senegal-egipto/2026/01/14/01_0167_20260114_1226_1225-directo.html)
@@ -961,75 +1029,5 @@ Sin noticias relacionadas disponibles.
 - **Derby v Leeds United: FA Cup third round – live**: [Link](https://www.theguardian.com/football/live/2026/jan/11/derby-v-leeds-united-fa-cup-third-round-live)
 - **FROM SPYGATE TO OPERATION MINCEMEAT**: [Link](https://www.pressreader.com/uk/daily-star-sunday/20260111/283029765993361)
 - **FA Cup Tipsheet: Best bets and predictions for Sunday's third round contests**: [Link](https://betting.betfair.com/football/fa-cup/fa-cup-tipsheet-best-bets-and-predictions-for-sundays-third-round-contests-080126-904.html)
-
-
-### lecce vs (N/A, 11/01/2026 07:52 Lima)
-
-- **Serie A: Parma se enfrentará a Lecce por la fecha 20**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-parma-se-enfrentara-a-lecce-por-la-fecha-20-noticia-1671041)
-- **⚡ Stulic strikes in 51 seconds, Camarda off, Parma behind**: [Link](https://sports.yahoo.com/articles/stulic-strikes-51-seconds-camarda-120400407.html)
-- **Serie A: Lecce vs. Parma – confirmed line-ups and live updates**: [Link](https://football-italia.net/serie-a-lecce-v-parma-confirmed-line-ups-live/)
-
-
-### caballo horoscopo chino (N/A, 11/01/2026 07:52 Lima)
-
-- **Los signos más afortunados en el Año del Caballo de Fuego según el horóscopo chino**: [Link](https://elcomercio.pe/mag/horoscopo/los-signos-mas-afortunados-en-el-ano-del-caballo-de-fuego-segun-el-horoscopo-chino-nnda-nnlt-noticia/)
-- **Según el zodiaco chino, todos somos una mezcla de un animal y un elemento y este quiz te dirá cuales son los tuyos**: [Link](https://www.buzzfeed.com/mx/ameyalli16/quiz-descubre-tu-signo-del-zodiaco-chino)
-- **Quiénes encontrarán el amor en 2026: estas son las predicciones, según el horóscopo chino**: [Link](https://tn.com.ar/sociedad/2026/01/10/quienes-encontraran-el-amor-en-2026-estas-son-las-predicciones-segun-el-horoscopo-chino/)
-
-
-### corte de luz trujillo (N/A, 11/01/2026 07:52 Lima)
-
-- **¡Atención Trujillo! Hidrandina anuncia corte de luz este domingo 11 de enero: revisa las zonas afectadas**: [Link](https://larepublica.pe/sociedad/2026/01/10/corte-de-agua-en-trujillo-este-domingo-11-de-enero-distritos-y-horarios-afectados-por-hidrandina-evat-572960)
-- **Anuncian cortes de luz del 15 al 18 de enero: Revisa AQUÍ si tu zona se verá afectada con la medida**: [Link](https://www.exitosanoticias.pe/actualidad/anuncian-cortes-luz-15-18-enero-revisa-aqui-tu-zona-vera-afectada-medida-n166396)
-- **¡Trujillo sin luz el domingo 11 de enero! Conoce zonas y horarios**: [Link](https://n60.pe/trujillo-sin-luz-el-domingo-11-de-enero-conoce-zonas-y-horarios/)
-
-
-### win (N/A, 11/01/2026 03:33 Lima)
-
-- **NFL news: Chicago Bears beat Green Bay Packers 31-27 in another thrilling comeback victory, advance to next round of playoffs**: [Link](https://abc7chicago.com/post/packers-bears-game-today-wild-card-nfl-playoff-chicago-green-bay-is-rare-matchup-long-running-rivalry/18382129/)
-- **How Ben Johnson urged the Bears to rally to win 'a game we'll never forget'**: [Link](https://chicago.suntimes.com/bears/2026/01/11/bears-packers-final-score-31-27-ben-johnson-rally-game-never-forget-caleb-williams-cole-kmet-nfl)
-- **Packers vs. Bears: Caleb Williams leads another incredible comeback over rivals with 25-point fourth quarter in Chicago's 31-27 victory**: [Link](https://sports.yahoo.com/nfl/live/packers-vs-bears-caleb-williams-leads-another-incredible-comeback-over-rivals-with-25-point-fourth-quarter-in-chicagos-31-27-victory-233006791.html)
-
-
-### john cena (N/A, 11/01/2026 03:33 Lima)
-
-- **TNA Star Frankie Kazarian Opens Up About Friendship With WWE's John Cena**: [Link](https://www.wrestlinginc.com/2068779/tna-wwe-frankie-kazarian-john-cena-friendship/)
-- **Chelsea Green Says The Idea For John Cena’s ‘Junk Or Jackpot’ Show Was Born On A Double Date Night**: [Link](https://www.fightful.com/wrestling/chelsea-green-matt-cardona-john-cena-280181/)
-- **John Cena's retirement**: [Link](https://vocal.media/geeks/john-cena-s-retirement)
-
-
-### deportivo cali (N/A, 11/01/2026 03:33 Lima)
-
-- **¡Con atajadón incluido! Pedro Gallese debutó con Deportivo Cali en partido de pretemporada**: [Link](https://depor.com/futbol-peruano/peruanos-en-el-mundo/pedro-gallese-debuto-con-deportivo-cali-atajadas-y-buenas-sensaciones-en-la-pretemporada-de-la-liga-colombiana-peruanos-en-el-exterior-video-noticia/)
-- **Deportivo Cali vs Once Caldas: A qué hora juega y dónde ver la Serie Río de La Plata 2026**: [Link](https://www.365scores.com/es/news/deportivo-cali-vs-once-caldas-a-que-hora/)
-- **Deportivo Cali y Once Caldas no se hicieron daño en Palmaseca: empate sin goles en amistoso por la Serie Colombia**: [Link](https://www.infobae.com/colombia/deportes/2026/01/10/en-vivo-deportivo-cali-vs-once-caldas-amistoso-de-preparacion-2026-verdiblancos-y-manizalenos-se-miden-por-la-serie-colombia/)
-
-
-### monterrey - toluca (N/A, 11/01/2026 03:33 Lima)
-
-- **Toluca vence a Rayados: Hugo González amarga debut de Monterrey**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/16168570/rayados-vs-toluca-clausura-2026-resultado-hugo-gonzalez)
-- **Vamos a hacer un mejor campeonato que el pasado.- Torrent**: [Link](https://www.elnorte.com/vamos-a-hacer-un-mejor-campeonato-que-el-pasado-torrent/ar3133922)
-- **Por qué no juegan Paulinho y Alexis Vega vs Monterrey en la debut de la Liga MX**: [Link](https://www.365scores.com/es/news/no-juegan-paulinho-alexis-vega-monterrey/)
-
-
-### motta alianza lima (N/A, 11/01/2026 03:33 Lima)
-
-- **Así fue el debut de Pablo Guede con Alianza Lima**: [Link](https://www.espn.com.ar/futbol/nota/_/id/16168128/video-asi-fue-el-debut-de-pablo-guede-con-alianza-lima-vs-independiente)
-- **La sorpresa de Geray Motta con 16 años y el show de Advíncula en la tribuna: lo que no se vio del debut de Guede en Alianza con derrota**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/alianza-lima-la-sorpresa-de-geray-motta-con-16-anos-y-el-show-de-luis-advincula-en-la-tribuna-lo-que-no-se-vio-del-debut-de-pablo-guede-con-derrota-ante-independiente-noticia/)
-- **El hincha de Alianza terminó furioso con Guede tras derrota ante Independiente: “Que no venga con experimen...**: [Link](https://bolavip.com/pe/alianza-lima/el-hincha-de-alianza-termino-furioso-con-guede-tras-derrota-ante-independiente-que-no-venga-con-experimentos)
-
-
-### naruto (N/A, 10/01/2026 23:51 Lima)
-
-- **Jujutsu Kaisen season 3 brings back Maki, but why does she look so different?**: [Link](https://www.polygon.com/maki-transformation-jujutsu-kaisen-season-3-premiere/)
-- **[Interview] JJK Season 3 Pushes Yuji into the Darkest Phase of His Journey: Adam McArthur (Yuji’s English VA)**: [Link](https://beebom.com/jujutsu-kaisen-season-3-pushes-yuji-into-darkest-phase-of-journey-adam-mcarthur-yujis-english-va/)
-- **5 Anime Shows Like Jujutsu Kaisen You Need To Watch ASAP**: [Link](https://www.herzindagi.com/tv-ott/anime-shows-like-jujutsu-kaisen-you-need-to-watch-article-1052310)
-
-
-### monterrey vs (N/A, 10/01/2026 23:51 Lima)
-
-- **Transmisión EN VIVO del Monterrey vs Toluca hoy: cómo mirar el partido por TV o streaming**: [Link](https://www.365scores.com/es/news/monterrey-vs-toluca-mirar-transmision/)
-- **Liga MX: CF Monterrey y Toluca FC juegan la Fecha 1 del campeonato**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-cf-monterrey-y-toluca-fc-juegan-la-fecha-1-del-campeonato-noticia-1671003)
-- **RAYADOS BUSCA MANTENER UN BALANCE POSITIVO EN SUS DEBUTS EN CASA**: [Link](https://onefootball.com/es/noticias/rayados-busca-mantener-un-balance-positivo-en-sus-debuts-en-casa-42209350)
 
 
