@@ -1,3 +1,57 @@
+### pachuca vs (N/A, 13/01/2026 21:11 Lima)
+
+- **Liga MX: León se enfrentará a Pachuca por la fecha 2**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-leon-se-enfrentara-a-pachuca-por-la-fecha-2-noticia-1671287)
+- **⚽ ¡No va por TV abierta! Checa a qué HORA y por DÓNDE VER el Pachuca vs León de la Liga MX 🦫🆚🦁**: [Link](https://www.facebook.com/MilenioDiario/photos/-no-va-por-tv-abiertacheca-a-qu%C3%A9-hora-y-por-d%C3%B3nde-ver-el-pachuca-vs-le%C3%B3n-de-la-l/1358315229659278/)
+- **Requieren Tuzos que pese la casa**: [Link](https://www.mural.com.mx/requieren-tuzos-que-pese-la-casa/ar3134705?v=1)
+
+
+### liga mx (N/A, 13/01/2026 21:11 Lima)
+
+- **Liga MX: Se enfrentan Club América y Atl. de San Luis por la fecha 2**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-se-enfrentan-club-america-y-atl-de-san-luis-por-la-fecha-2-noticia-1671424)
+- **Canal 5 online: dónde ver partido de América vs San Luis por el Torneo Clausura de la Liga MX**: [Link](https://elcomercio.pe/deporte-total/mexico/canal-5-en-vivo-online-ver-america-vs-san-luis-hoy-gratis-via-tudn-vix-por-torneo-clausura-de-la-liga-mx-video-noticia/)
+- **Guillermo Abascal, DT de San Luis, sorprendió con su opinión sobre el partido contra el América**: [Link](https://americamonumental.bolavip.com/ligamx/guillermo-abascal-dt-de-san-luis-sorprendio-con-su-opinion-sobre-el-partido-contra-el-america)
+
+
+### partidos futbol hoy (N/A, 13/01/2026 21:11 Lima)
+
+- **Partidos de hoy EN VIVO: programación y dónde ver fútbol online gratis este martes 13 de enero**: [Link](https://libero.pe/futbol-internacional/2026/01/12/partidos-de-hoy-en-vivo-martes-12-de-enero-622584)
+- **Partidos de hoy, martes 13 de enero del 2026: horarios y canales TV para ver EN VIVO la Bundesliga y Serie Río de la Plata**: [Link](https://rpp.pe/futbol/futbol-mundial/partidos-de-hoy-bundesliga-y-serie-rio-de-la-plata-en-vivo-peru-martes-13-de-enero-del-2026-horarios-y-canales-tv-ver-futbol-en-vivo-noticia-1671325)
+- **Partidos de hoy, 13 de enero: Horario y canal EN VIVO**: [Link](https://www.americatv.com.pe/deportes/futbol-mundial/partidos-hoy-13-enero-horarios-y-transmisiones-n452307)
+
+
+### puebla vs (N/A, 13/01/2026 21:11 Lima)
+
+- **Liga MX: Puebla recibe Mazatlán dando inicio a la Fecha 2**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-puebla-recibe-mazatlan-dando-inicio-a-la-fecha-2-noticia-1671275)
+- **La Franja debuta en el estadio Cuauhtémoc con victoria frente a Mazatlán**: [Link](https://heraldodepuebla.com/2026/01/13/la-franja-debuta-en-el-estadio-cuauhtemoc-con-victoria-frente-a-mazatlan/)
+- **Resumen del partido Puebla vs Mazatlán (2-1). Goles**: [Link](https://www.mediotiempo.com/futbol/liga-mx/resumen-partido-puebla-vs-mazatlan-jornada-2-clausura-2026)
+
+
+### juego hytale (N/A, 13/01/2026 21:11 Lima)
+
+- **Cuánto cuesta Hytale y dónde se puede comprar**: [Link](https://www.eurogamer.es/hytale-precio-donde-puedo-comprar)
+- **¿Es un clon de Minecraft? Comparan el nuevo Hytale con el icónico videojuego de Mojang y estas son sus diferencias**: [Link](https://vandal.elespanol.com/noticia/1350786525/es-un-clon-de-minecraft-comparan-el-nuevo-hytale-con-el-iconico-videojuego-de-mojang-y-estas-son-sus-diferencias/)
+- **Por qué no puedes jugar a Hytale: estado de los servidores y posibles errores de lanzamiento**: [Link](https://areajugones.sport.es/videojuegos/por-que-no-puedes-jugar-a-hytale-estado-de-los-servidores-y-posibles-errores-de-lanzamiento/)
+
+
+### agua (N/A, 13/01/2026 21:11 Lima)
+
+- **Circulación controlada en carretera al puerto de La Libertad por trabajos de ANDA**: [Link](https://www.elsalvador.com/noticias/nacional/anda-carretea-puerto-la-libertad/1258422/2026/)
+- **ANDA anuncia reparación nocturna de fuga de agua en San Salvador**: [Link](https://www.infobae.com/el-salvador/2026/01/13/anda-anuncia-reparacion-nocturna-de-fuga-de-agua-en-san-salvador/)
+- **ANDA suspenderá el servicio de agua potable este miércoles en el casco urbano del Puerto de La Libertad - La Prensa Gráfica**: [Link](https://www.laprensagrafica.com/elsalvador/anda-suspendera-el-servicio-de-agua-potable-este-miercoles-en-el-casco-urbano-del-puerto-de-la-libertad-20260113-0043.html)
+
+
+### borussia vs (N/A, 13/01/2026 21:11 Lima)
+
+- **Dortmund Outclass Bremen To Tighten Grip On Second Spot**: [Link](https://www.barrons.com/news/undav-scores-again-as-stuttgart-sink-frankfurt-to-go-third-3cfb16fa?gaa_at=eafs&gaa_n=AWEtsqe7bXQAz9prgpYGASrBGPEGqqsIRejuWzkBpilOHGiimFwRgTvUK_4m&gaa_ts=6966fee8&gaa_sig=-mE2ZuKl5IVYLlHDFh7Ke00jXbpYRpYMxXF6njL4_aTlBhLzDAuxOBrfY_j7KDlxdiJwVhA4qVTiOcokiBkZwQ%3D%3D)
+- **Tuesday's Bundesliga predictions including Borussia Dortmund vs. Werder Bremen**: [Link](https://www.sportsmole.co.uk/football/stuttgart/feature/dortmund-to-extend-lead-over-leverkusen-in-top-four-race-tuesdays-bundesliga-predictions_589750.html)
+- **Marco Grull vs. Borussia Dortmund – Player props & odds to score a goal on January 13**: [Link](https://prosoccerwire.usatoday.com/story/sports/2026/01/13/marco-grull-soccer-player-props-1-13-2026/88154377007/)
+
+
+### club brujas (N/A, 13/01/2026 21:11 Lima)
+
+- **Crocky Cup Anthony Valencia sumo mas de hora hora en cancha y el Antwerp avanzo a semifinales**: [Link](https://www.futbolecuador.com/site/noticia/pero-joel-ordonez-y-el-club-brugge-dejaron-al-torneo-sin-su-campeon-reinante-por-una-eliminacion-sorpresiva/165775?fromt=yes)
+
+
 ### roma fc (N/A, 13/01/2026 15:31 Lima)
 
 - **Roma v Torino: Official Line-ups**: [Link](https://www.asroma.com/en/news/74656/roma-v-torino-official-line-ups)
@@ -974,61 +1028,5 @@ Sin noticias relacionadas disponibles.
 - **Como vs. Bolonia (10 de Ene., 2026) Resultados en Vivo**: [Link](https://www.espn.cl/futbol/partido/_/juegoId/736976)
 - **Como vs. Bolonia (10 de Ene., 2026) Resultados en Vivo**: [Link](https://www.espn.com.pe/futbol/partido/_/juegoId/736976)
 - **Como busca continuar su asalto a la Serie A ante Bologna**: [Link](https://www.espn.com.ar/futbol/italia/nota/_/id/16160733/como-vs-bologna-serie-a-2025-26-equipo-fecha-hora-y-tv-en-vivo)
-
-
-### fc union berlin - mainz 05 (N/A, 10/01/2026 11:31 Lima)
-
-- **Union Berlin empfängt Mainz 05 und Ex-Trainer Urs Fischer**: [Link](https://www.rbb24.de/sport/beitrag/2026/01/fussball-bundesliga-spiele-union-berlin-mainz-05-fcum05-urs-fischer.html)
-- **(k+) Ruhnert über Fischer: "Es ist nicht seine Art, rumzuschreien"**: [Link](https://www.kicker.at/ruhnert-ueber-fischer-es-ist-nicht-seine-art-rumzuschreien-1181001/artikel)
-- **Die emotionale und wichtige Fischer-Rückkehr**: [Link](https://www.sky-sport.ch/de/articles/die-emotionale-und-wichtige-fischer-rueckkehr/)
-
-
-### como fc (N/A, 10/01/2026 11:31 Lima)
-
-- **Preview: Como vs Bologna - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/como/preview/como-vs-bologna-prediction-team-news-lineups_589481.html)
-- **Como-Bologna: Match Preview**: [Link](https://comofootball.com/en/como-bologna-match-preview/)
-- **Serie A | Como 1-1 Bologna: Baturina magic, Cambiaghi hero and villain**: [Link](https://football-italia.net/serie-a-como-1-1-bologna-baturina-cambiaghi/)
-
-
-### newcastle (N/A, 10/01/2026 11:31 Lima)
-
-- **Newcastle United pick up January transfer fee as club statement confirms striker exit**: [Link](https://www.chroniclelive.co.uk/sport/football/football-news/newcastle-united-pick-up-january-33206197)
-- **What John McGlynn said after Falkirk completed forward signing from Newcastle**: [Link](https://www.heraldscotland.com/sport/25755439.john-mcglynn-said-falkirk-completed-forward-signing/)
-- **Newcastle United Academy Graduate Ben Joins Scottish Premiership Side**: [Link](https://news.ssbcrack.com/newcastle-united-academy-graduate-ben-joins-scottish-premiership-side/)
-
-
-### union berlin vs (N/A, 10/01/2026 11:31 Lima)
-
-- **Union to Open 2026 With Mainz Clash**: [Link](https://www.fc-union-berlin.de/en/news/unions-bundesliga-opener-2026-against-mainz-KA5zaW)
-- **Mainz coach Urs Fischer: 'I'll give everything to beat Union Berlin'**: [Link](https://www.bundesliga.com/en/bundesliga/news/urs-fischer-interview-mainz-union-berlin-klopp-burkardt-35447)
-- **Confirmed Lineups: Union Berlin vs. 1. FSV Mainz 05**: [Link](https://onefootball.com/en/news/confirmed-lineups-union-berlin-vs-1-fsv-mainz-05-42207380)
-
-
-### celtic vs (N/A, 10/01/2026 11:31 Lima)
-
-- **Jim Goodwin recalls damning Martin O’Neill verdict as Dundee United boss aims to wreck Celtic legend’s return**: [Link](https://www.thecourier.co.uk/fp/sport/football/dundee-united/5406814/jim-goodwin-martin-oneill-celtic-dundee-united/)
-- **Scottish Premiership LIVE - radio, text, team news, build up, updates, reaction & stats**: [Link](https://www.bbc.co.uk/sport/football/live/cn8jxj54d1mt)
-- **Dundee United star reveals boyhood memories of Martin O'Neill ahead of 'surreal' Celtic clash**: [Link](https://www.67hailhail.com/news/dundee-united-star-reveals-boyhood-memories-of-martin-oneill-ahead-of-surreal-celtic-clash/)
-
-
-### sheffield wednesday - brentford (N/A, 10/01/2026 11:31 Lima)
-
-- **Sheffield Wednesday v Brentford confirmed team news: Andrews selects strong side for FA Cup tie at Hillsborough**: [Link](https://www.brentfordfc.com/en/news/article/first-team-sheffield-wednesday-v-brentford-fa-cup-third-round-confirmed-team-news)
-- **'Really sad' - Chris Sutton makes Sheffield Wednesday admission ahead of FA Cup tie vs Brentford**: [Link](https://www.thestar.co.uk/sport/football/sheffield-wednesday/sheffield-wednesday-brentford-fa-cup-5469079)
-- **Match Pack: Owls v Brentford**: [Link](https://www.swfc.co.uk/news/2026/january/09/match-pack--owls-v-brentford/)
-
-
-### galatasaray - fenerbahçe (N/A, 10/01/2026 11:31 Lima)
-
-- **Matteo Guendouzi ayağının tozuyla sahada**: [Link](https://haberglobal.com/spor/matteo-guendouzi-ayaginin-tozuyla-sahada-501188)
-- **Okan Buruk Uğurcan Çakır'ı neden yedek bıraktığını açıkladı**: [Link](https://www.yenicaggazetesi.com/okan-buruk-ugurcan-cakiri-neden-yedek-biraktigini-acikladi-991981h.htm)
-- **Sanchez, Galatasaray'da "Dalya" dedi**: [Link](https://beinsports.com.tr/haber/sanchez-galatasarayda-dalya-dedi)
-
-
-### us orléans - mónaco (N/A, 10/01/2026 11:31 Lima)
-
-- **USO-ASM : les compos probables**: [Link](https://asm-supporters.fr/actualites/64762-uso-asm-les-compos-probables)
-- **Ratio, invincibilité, National 1… Les stats à connaître avant Orléans**: [Link](https://www.asmonaco.com/ratio-invincibilite-national-1-les-stats-a-connaitre-avant-orleans/)
-- **Akliouche absent du groupe de Monaco pour le déplacement à Orléans en Coupe de France**: [Link](https://www.lequipe.fr/Football/Actualites/Akliouche-absent-du-groupe-de-monaco-pour-le-deplacement-a-orleans-en-coupe-de-france/1632401)
 
 
