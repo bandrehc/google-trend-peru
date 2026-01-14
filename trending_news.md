@@ -1,3 +1,24 @@
+### temblor chimbote (N/A, 14/01/2026 03:37 Lima)
+
+- **Sismo de magnitud 4.8 se registró esta madrugada al sur de Tacna, informó el IGP**: [Link](https://diariocorreo.pe/edicion/tacna/sismo-de-magnitud-48-se-registro-esta-madrugada-al-sur-de-tacna-informo-el-igp-noticia/)
+- **Temblor en Perú HOY, 14 de enero: ¿En qué lugar se produjo el último sismo y cuál fue su magnitud, según IGP?**: [Link](https://larepublica.pe/sociedad/2026/01/14/temblor-en-peru-hoy-miercoles-14-de-enero-del-2026-magnitud-epicentro-y-mas-sobre-sismos-recientes-segun-igp-ultimo-sismo-en-lima-ica-callao-y-otras-provincias-atmp-1270269)
+- **Temblor hoy en Perú: Sismo de magnitud 4,2 se registró en Chimbote**: [Link](https://andina.pe/agencia/noticia-temblor-hoy-peru-sismo-magnitud-42-se-registro-chimbote-1058935.aspx)
+
+
+### edgar vivar (N/A, 14/01/2026 03:37 Lima)
+
+- **¿Murió Édgar Vivar? El querido Señor Barriga y los rumores de su muerte**: [Link](https://www.marca.com/mx/trending/celebrities/2026/01/13/6965aacf46163f767d8b456c.html)
+- **Actor de "El Chavo del 8" desmiente fuertes rumores de muerte**: [Link](https://meridiano.net/usa/farandula/actor-de-el-chavo-del-8-desmiente-fuertes-rumores-de-muerte--202611312170)
+- **Edgar Vivar desmiente su muerte y tranquiliza a sus seguidores tras rumor viral**: [Link](https://www.redpat.tv/detalle/edgar-vivar-desmiente-su-muerte-y-tranquiliza-a-sus-seguidores-tras-rumor-viral)
+
+
+### caracol tv (N/A, 14/01/2026 03:37 Lima)
+
+- **Qué se sabe sobre el accidente de avioneta en el que murió el músico colombiano Yeison Jiménez y sus cinco acompañantes**: [Link](https://www.bbc.com/mundo/articles/c3ve5r2nkn5o)
+- **Hija de Yeison Jiménez compartió conmovedora fotografía junto a su papá: “Ojalá todo fuera un sueño”**: [Link](https://www.infobae.com/colombia/2026/01/12/hija-de-yeison-jimenez-compartio-conmovedora-fotografia-junto-a-su-papa-ojala-todo-fuera-un-sueno/)
+- **Hermana de Yeison Jiménez hace aclaración sobre homenaje que se le hará al cantante**: [Link](https://www.caracoltv.com/actualidad/funeral-de-yeison-jimenez-lina-jimenez--su-hermana-da-detalles-del-homenaje-ed45)
+
+
 ### concierto bad bunny (N/A, 13/01/2026 23:50 Lima)
 
 - **Confirman After Party oficial tras concierto de Bad Bunny**: [Link](https://caretas.pe/entretenimiento/after-party-bad-bunny-lima/)
@@ -1007,26 +1028,5 @@ Sin noticias relacionadas disponibles.
 - **🚨 Dimitrievski, one year on: the line-ups for Valencia v Elche**: [Link](https://sports.yahoo.com/articles/dimitrievski-one-line-ups-valencia-185700095.html)
 - **Where to watch Valencia vs. Elche: La Liga FREE live stream today, time, schedule**: [Link](https://www.syracuse.com/tv/2026/01/where-to-watch-valencia-vs-elche-la-liga-free-live-stream-today-time-schedule.html)
 - **Where to Watch Valencia CF vs. Elche CF: TV Channel, Start Time and Live Stream**: [Link](https://www.bleachernation.com/how-to-watch/2026/01/09/where-to-watch-valencia-cf-vs-elche-cf-tv-channel-start-time-and-live-stream/)
-
-
-### valencia c. f. - elche c. f. (N/A, 10/01/2026 15:27 Lima)
-
-- **Apuestas y Pronóstico del Valencia vs Elche 10/01/26**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2026/enero/pronostico-valencia-vs-elche-10-01-26)
-- **LaLiga EA Sports: Valencia se enfrentará ante Elche por la fecha 19**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-valencia-se-enfrentara-ante-elche-por-la-fecha-19-noticia-1670928)
-- **Un duelo autonómico de contrastes en Mestalla**: [Link](https://www.mundodeportivo.com/futbol/laliga/20260110/1002598603/duelo-autonomico-contrastes-mestalla.html)
-
-
-### charlton - chelsea (N/A, 10/01/2026 15:27 Lima)
-
-- **Chelsea fans’ preferred lineup against Charlton Athletic: Bring out your subs!**: [Link](https://weaintgotnohistory.sbnation.com/domestic-cups/165017/chelsea-fans-preferred-lineup-against-charlton-athletic-bring-out-your-subs)
-- **“The message I’ve given…” – What Liam Rosenior has told his players ahead of underrated test in first game**: [Link](https://chelsea.news/2026/01/liam-rosenior-told-his-players-message/)
-- **Bench Delap and Joao Pedro: Chelsea fans pick best XI for Rosenior's debut as head coach**: [Link](https://tribuna.com/en/blogs/bench-delap-and-joao-pedro-chelsea-fans-pick-best-xi-for-ros/)
-
-
-### groenlandia (N/A, 10/01/2026 15:27 Lima)
-
-- **Líderes de partidos políticos groenlandeses responden a Donald Trump: "No queremos ser estadounidenses"**: [Link](https://rpp.pe/mundo/actualidad/lideres-de-partidos-politicos-groenlandeses-responden-a-donald-trump-no-queremos-ser-estadounidenses-noticia-1671058)
-- **Donald Trump pone en jaque a la OTAN y exige el control de Groenlandia: Aquí las claves de su deseo**: [Link](https://www.atv.pe/noticia/donald-trump-pone-en-jaque-a-la-otan-y-exige-el-control-de-groenlandia-aqui-las-claves-de-su-deseo/)
-- **EE.UU. ofrece dinero a Groenlandia para separarla de Dinamarca**: [Link](https://altavoz.pe/internacional/trump-estudia-pagar-hasta-100-000-dolares-a-cada-groenlandes-para-intentar-anexar-la-isla/)
 
 
