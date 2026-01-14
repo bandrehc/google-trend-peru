@@ -1,3 +1,45 @@
+### concierto bad bunny (N/A, 13/01/2026 23:50 Lima)
+
+- **Confirman After Party oficial tras concierto de Bad Bunny**: [Link](https://caretas.pe/entretenimiento/after-party-bad-bunny-lima/)
+- **Alertan a seguidores de Bad Bunny por venta de entradas falsas para conciertos en Lima**: [Link](https://diariocorreo.pe/espectaculos/alertan-a-seguidores-de-bad-bunny-por-venta-de-entradas-falsas-a-sus-conciertos-noticia/)
+- **Bad Bunny en Lima: ¿Arcángel es el artista invitado de sus conciertos en el Estadio Nacional?**: [Link](https://www.oigo.com/noticias/musica/bad-bunny-en-lima-arcangel-es-el-artista-invitado-de-sus-conciertos-en-el-estadio-nacional/)
+
+
+### juarez vs (N/A, 13/01/2026 23:50 Lima)
+
+- **Liga MX: Chivas visita a FC Juárez por la fecha 2**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-chivas-visita-a-fc-juarez-por-la-fecha-2-noticia-1671304)
+- **Transmisión EN VIVO del Juárez vs Chivas hoy: cómo mirar el partido por TV o streaming**: [Link](https://www.365scores.com/es/news/juarez-vs-chivas-como-ver-transmision/)
+- **Recuperación de Diego Campillo causa problema para Gabriel Milito y sus alineaciones del CL26**: [Link](https://chivaspasion.bolavip.com/noticias/recuperacion-de-diego-campillo-causa-problema-para-gabriel-milito-y-sus-alineaciones-del-cl26)
+
+
+### la reina del flow 3 (N/A, 13/01/2026 23:50 Lima)
+
+- **A qué hora inicia 'La Reina del Flow 3' en Caracol y qué pasará en el capítulo 1**: [Link](https://www.caracoltv.com/la-reina-del-flow/la-reina-del-flow-3-en-caracol-fecha-hora-y-que-pasara-en-el-capitulo-1-pr30)
+- **La reina del flow Temporada 3, actores y personajes: guía del elenco de la serie colombiana de Netflix | MAG**: [Link](https://elcomercio.pe/mag/fama/que-ver/la-reina-del-flow-temporada-3-actores-y-personajes-guia-del-elenco-de-la-serie-colombiana-de-netflix-the-queen-of-flow-season-3-cast-guide-nnda-nnlt-noticia/)
+- **‘La reina del flow 3’: fecha de estreno, dónde y desde qué hora ver el regreso de Yeimy Montoya y Charly Flow**: [Link](https://rpp.pe/tv/streaming/la-reina-del-flow-3-fecha-de-estreno-donde-y-a-que-hora-ver-el-regreso-de-yeimy-montoya-y-charly-flow-noticia-1671179)
+
+
+### ariana grande (N/A, 13/01/2026 23:50 Lima)
+
+- **“Glinda Has Officially Left The Building”: Ariana Grande’s Appearance And Voice At The 2026 Golden Globes Are Going Super Viral**: [Link](https://www.yahoo.com/entertainment/celebrity/articles/people-think-ve-worked-why-140626963.html)
+- **Ariana Grande Brings Back Her Power Ponytail at Golden Globes 2026**: [Link](https://people.com/golden-globes-2026-ariana-grande-brings-back-her-power-ponytail-11883264)
+- **Ariana Grande Rocks Elphaba-Coded Look at the 2026 Golden Globes**: [Link](https://www.eonline.com/news/1426375/golden-globes-2026-ariana-grande-red-carpet-fashion-look)
+
+
+### monterrey vs (N/A, 13/01/2026 23:50 Lima)
+
+- **Liga MX: Necaxa recibirá a CF Monterrey por la fecha 2**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-necaxa-recibira-a-cf-monterrey-por-la-fecha-2-noticia-1671286)
+- **Monterrey vs. Necaxa EN VIVO vía Claro Sports, TV Azteca y VIX por Liga MX**: [Link](https://depor.com/mexico/liga-mx/monterrey-vs-necaxa-en-vivo-gratis-hoy-claro-sports-tv-azteca-7-vix-premium-pluto-tv-y-futbol-libre-tv-en-directo-online-donde-ver-partido-por-liga-mx-video-noticia/)
+- **¡RAYADOS, POR LOS TRES PUNTOS EN AGUASCALIENTES!**: [Link](https://onefootball.com/es/noticias/rayados-por-los-tres-puntos-en-aguascalientes-42222723)
+
+
+### manchester city vs (N/A, 13/01/2026 23:50 Lima)
+
+- **Newcastle vs. Manchester City (0-2): resumen y goles del partido por la Carabao Cup | VIDEO**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/manchester-city-vs-newcastle-en-vivo-hoy-gratis-via-futbol-libre-tv-espn-disney-plus-horarios-canales-tv-y-donde-ver-partido-por-carabao-cup-video-noticia/)
+- **Semenyo anota de nuevo y el Man City vence 2-0 al Newcastle en semifinal de la Copa de la Liga**: [Link](https://www.msn.com/es-pe/noticias/other/semenyo-anota-de-nuevo-y-el-man-city-vence-2-0-al-newcastle-en-semifinal-de-la-copa-de-la-liga/ar-AA1U9rwk)
+- **La EFL Cup, un título clave para Guardiola**: [Link](https://www.flashscore.pe/noticias/futbol-efl-cup-la-final-que-mas-se-le-resiste-a-pep-es-su-favorita/4zQeuzuI/)
+
+
 ### pachuca vs (N/A, 13/01/2026 21:11 Lima)
 
 - **Liga MX: León se enfrentará a Pachuca por la fecha 2**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-leon-se-enfrentara-a-pachuca-por-la-fecha-2-noticia-1671287)
@@ -986,47 +1028,5 @@ Sin noticias relacionadas disponibles.
 - **Líderes de partidos políticos groenlandeses responden a Donald Trump: "No queremos ser estadounidenses"**: [Link](https://rpp.pe/mundo/actualidad/lideres-de-partidos-politicos-groenlandeses-responden-a-donald-trump-no-queremos-ser-estadounidenses-noticia-1671058)
 - **Donald Trump pone en jaque a la OTAN y exige el control de Groenlandia: Aquí las claves de su deseo**: [Link](https://www.atv.pe/noticia/donald-trump-pone-en-jaque-a-la-otan-y-exige-el-control-de-groenlandia-aqui-las-claves-de-su-deseo/)
 - **EE.UU. ofrece dinero a Groenlandia para separarla de Dinamarca**: [Link](https://altavoz.pe/internacional/trump-estudia-pagar-hasta-100-000-dolares-a-cada-groenlandes-para-intentar-anexar-la-isla/)
-
-
-### atalanta - torino (N/A, 10/01/2026 15:27 Lima)
-
-- **LIVE Alle 20.45 Atalanta-Torino, le ufficiali: Palladino sceglie Zalewski, Ngonge con Zapata**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Atalanta/10-01-2026/atalanta-torino-live-risultato-e-gol-in-diretta-serie-a.shtml)
-- **Baroni a DAZN: "Zapata titolare? Non gli regalo niente"**: [Link](https://onefootball.com/pt-br/noticias/baroni-a-dazn-zapata-titolare-non-gli-regalo-niente-42209029)
-- **Atalanta-Torino, le formazioni ufficiali**: [Link](https://www.torinofc.it/news/10/01/2026/atalanta-torino-le-formazioni-ufficiali_40660)
-
-
-### atalanta vs torino (N/A, 10/01/2026 15:27 Lima)
-
-- **✅Atalanta v Torino line-ups: updates on Scalvini, Simeone, Krstovic**: [Link](https://ca.sports.yahoo.com/news/atalanta-v-torino-line-ups-185000412.html)
-- **Preview: Atalanta BC vs Torino - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/preview/atalanta-vs-torino-prediction-team-news-lineups_589448.html)
-- **Serie A official line-ups: Atalanta vs. Torino**: [Link](https://football-italia.net/serie-a-official-line-ups-atalanta-vs-torino/)
-
-
-### aston villa (N/A, 10/01/2026 15:27 Lima)
-
-- **Buendía deepens gloom for Frank and Spurs as Aston Villa progress in FA Cup**: [Link](https://www.theguardian.com/football/2026/jan/10/tottenham-aston-villa-fa-cup-match-report)
-- **FA Cup: Rogers extends Villa's advantage; Newcastle advance on penalties**: [Link](https://onefootball.com/en/news/fa-cup-rogers-extends-villas-advantage-newcastle-advance-on-penalties-42206983)
-- **Livestream FA Cup Soccer: Watch Tottenham vs. Aston Villa Free From Anywhere**: [Link](https://www.cnet.com/tech/services-and-software/fa-cup-soccer-2026-tottenham-vs-aston-villa/)
-
-
-### alianza (N/A, 10/01/2026 15:27 Lima)
-
-- **“A romperla, mi rayo. Te amo”: Daniela Darcourt celebra fichaje de Luis Advíncula a Alianza Lima**: [Link](https://rpp.pe/famosos/farandula/luis-advincula-daniela-darcourt-celebra-su-fichaje-a-alianza-lima-a-romperla-mi-rayo-te-amo-noticia-1671081)
-- **Bajo una intensa lluvia: Luis Advíncula llegó a Uruguay para sumarse a la pretemporada de Alianza Lima**: [Link](https://depor.com/futbol-peruano/descentralizado/luis-advincula-llegada-a-uruguay-para-sumarse-a-pretemporada-de-alianza-lima-amistosos-por-serie-rio-de-la-plata-declaraciones-video-noticia/)
-- **¡Un "rayo" cayó en Matute!: Alianza Lima anuncia el fichaje de Luis Advíncula**: [Link](https://panamericana.pe/deportes/463177-rayo-cayo-matute-alianza-lima-anuncia-fichaje-luis-advincula)
-
-
-### argelia - nigeria (N/A, 10/01/2026 11:31 Lima)
-
-- **Argelia vs. Nigeria: ¿a qué hora juegan y dónde ver EN VIVO por cuartos de final de Copa Africana de Naciones?**: [Link](https://rpp.pe/futbol/futbol-mundial/argelia-vs-nigeria-en-vivo-a-que-hora-juegan-y-donde-ver-cuartos-copa-africana-de-naciones-2026-via-claro-sports-partidos-de-hoy-noticia-1670988)
-- **Resultado en vivo de Argelia vs Nigeria: actualizaciones de cuartos de final de la AFCON, resultados y estadísticas Las Super Eagles apuntan a las semifinales**: [Link](https://www.ucvradio.pe/mas-actualidad/resultado-en-vivo-de-argelia-vs-nigeria-actualizaciones-de-cuartos-de-final-de-la-afcon-resultados-y-estadisticas-las-super-eagles-apuntan-a-las-semifinales/99262/)
-- **Argelia vs. Nigeria: choque de gigantes en los cuartos de final de la Copa Africana de Naciones 2025**: [Link](https://zona.palmsbet.pe/deportes/futbol/argelia-vs-nigeria-choque-de-gigantes-en-los-cuartos-de-final-de-la-copa-africana-de-naciones-2025/)
-
-
-### como vs. bolonia (N/A, 10/01/2026 11:31 Lima)
-
-- **Como vs. Bolonia (10 de Ene., 2026) Resultados en Vivo**: [Link](https://www.espn.cl/futbol/partido/_/juegoId/736976)
-- **Como vs. Bolonia (10 de Ene., 2026) Resultados en Vivo**: [Link](https://www.espn.com.pe/futbol/partido/_/juegoId/736976)
-- **Como busca continuar su asalto a la Serie A ante Bologna**: [Link](https://www.espn.com.ar/futbol/italia/nota/_/id/16160733/como-vs-bologna-serie-a-2025-26-equipo-fecha-hora-y-tv-en-vivo)
 
 
