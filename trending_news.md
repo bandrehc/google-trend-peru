@@ -1,3 +1,66 @@
+### senegal vs egipto (N/A, 14/01/2026 11:38 Lima)
+
+- **Senegal - Egipto, en directo | La Copa África, hoy en vivo**: [Link](https://www.marca.com/futbol/copa-de-africa/senegal-egipto/2026/01/14/01_0167_20260114_1226_1225-directo.html)
+- **Técnico de Nigeria bromeó sobre posible tanda de penales ante Marruecos en la Copa Africana: "Iré a rezar a la mezquita"**: [Link](https://rpp.pe/futbol/futbol-mundial/copa-africana-de-naciones-tecnico-de-nigeria-sobre-posible-tanda-de-penales-ante-marruecos-en-semifinales-ire-a-rezar-a-la-mezquita-noticia-1671412)
+- **¿A qué hora juega y qué canal transmite Nigeria vs. Marruecos EN VIVO hoy por Copa Africana 2026 EE.UU., México y España?**: [Link](https://elcomercio.pe/mag/respuestas/a-que-hora-juega-y-que-canal-transmite-nigeria-vs-marruecos-en-vivo-hoy-por-semifinal-copa-africana-naciones-2026-eeuu-mexico-espana-canales-tv-nnda-nnrt-noticia/)
+
+
+### istanbulspor - trabzonspor (N/A, 14/01/2026 11:38 Lima)
+
+- **İSTANBULSPOR - TRABZONSPOR CANLI | Fırtına'nın kupada rakibi İstanbulspor! Fatih Tekke'nin 11'i belli oldu…**: [Link](https://www.sabah.com.tr/spor/futbol/2026/01/14/istanbulspor-trabzonspor-canli-firtinanin-kupada-rakibi-istanbulspor-fatih-tekkenin-11i-belli-oldu)
+- **Fatih Tekke: "Hem kupa hem de ligde devam etmemiz gerekiyor"**: [Link](https://www.ntvspor.net/futbol/fatih-tekke-hem-kupa-hem-de-ligde-devam-etmemiz-gerekiyor-416086)
+- **İstanbulspor Teknik Sorumlusu İlyas Öztürk açıkladı! Rotasyonlu grupla çıkacağız**: [Link](https://www.61saat.com/istanbulspor-teknik-sorumlusu-ilyas-ozturk-acikladi-rotasyonlu-grupla-cikacagiz)
+
+
+### al qadsiah fc (N/A, 14/01/2026 11:38 Lima)
+
+- **Murray State vs. Southern Illinois (Jan 15, 2026) Pregame**: [Link](https://www.espn.com/womens-college-basketball/preview?gameId=401831105)
+- **Unsportsmanlike with Evan, Canty and Michelle - Hour 3: Pretty Privilege**: [Link](https://www.espn.com.au/radio/play/_/id/47608976)
+- **Al Qadsiah vs. Al Fayha (14 Jan, 2026) Live Score**: [Link](https://www.espn.co.uk/football/match/_/gameId/756031)
+
+
+### lakers - hawks (N/A, 14/01/2026 11:38 Lima)
+
+- **The definitive roundup of everything that unfolded across the NBA overnight**: [Link](https://www.mundodeportivo.com/us/en/20260114/738138/the-definitive-roundup-of-everything-that-unfolded-across-the-nba-overnight.html)
+- **LeBron James Leads LA Lakers Past Atlanta Hawks To End Losing Run**: [Link](https://thewhistler.ng/lebron-james-leads-la-lakers-past-atlanta-hawks-to-end-losing-run/)
+- **CJ McCollum scores 25 points off bench for Hawks at Lakers**: [Link](https://bvmsports.com/2026/01/14/cj-mccollum-scores-25-points-off-bench-for-hawks-at-lakers/)
+
+
+### juan pablo varillas (N/A, 14/01/2026 11:38 Lima)
+
+- **Entre los ochos mejores: Juan Pablo Varillas avanzó a los cuartos de final del Challenger de Buenos Aires**: [Link](https://depor.com/full-deportes/juan-pablo-varillas-avanzo-a-los-cuartos-de-final-del-challenger-de-buenos-aires-pedro-sakamoto-noticia/)
+- **Juan Pablo Varillas vs Pedro Sakamoto EN VIVO: ¿a qué hora juegan y dónde ver los octavos de final del Challenger de Buenos Aires?**: [Link](https://rpp.pe/tenis/mas-tenis/juan-pablo-varillas-vs-pedro-sakamoto-en-vivo-a-que-hora-juegan-y-donde-ver-challenger-buenos-aires-2026-via-atp-tour-link-gratis-partidos-de-hoy-noticia-1671456)
+- **Varillas debutó con triunfo en Challenger de Buenos Aires**: [Link](https://ovacion.pe/noticias/tenis/varillas-debuto-triunfo-challenger-buenos-aires)
+
+
+### rae (N/A, 14/01/2026 11:38 Lima)
+
+- **Rae emerging as Nunavut copper district**: [Link](https://www.miningnewsnorth.com/story/2026/01/14/mining-explorers-2025/rae-emerging-as-nunavut-copper-district/9442.html)
+- **Park Na Rae faces further scrutiny over contract dispute with former agency and alleged leverage attempts**: [Link](https://www.allkpop.com/article/2026/01/park-na-rae-faces-further-scrutiny-over-contract-dispute-with-former-agency-and-alleged-leverage-attempts)
+- **Park Na‑rae’s Calculated Demeanor in Her Final Statement Spurs New Debate**: [Link](https://kbizoom.com/park-na-rae-final-statement-analysis-expressions-tone-intent-debate/)
+
+
+### microsoft (N/A, 14/01/2026 11:38 Lima)
+
+- **Trump seeks to quell rebellion over data centers**: [Link](https://www.washingtonpost.com/technology/2026/01/13/trump-microsoft-data-centers-opposition/)
+- **Microsoft Pledges to Pay More for Electricity, Drawing Praise From Trump**: [Link](https://www.nytimes.com/2026/01/13/technology/microsoft-electricity-data-center-trump.html)
+- **Microsoft has a plan to stop AI data centers from hiking up your electricity bill**: [Link](https://www.cnn.com/2026/01/13/tech/microsoft-ai-data-centers-electricity-bills-plan)
+
+
+### teams (N/A, 14/01/2026 11:38 Lima)
+
+- **Teams that found the best fits in the college football transfer portal**: [Link](https://www.espn.com/college-football/story/_/id/47600962/ncaa-football-transfer-portal-teams-best-fits-2026)
+- **College football transfer portal: Bold predictions for QB market as window nears close**: [Link](https://www.cbssports.com/college-football/news/college-football-transfer-portal-qbs-bold-predictions-2026/)
+- **Transfer portal winners and losers: Which teams loaded up and which teams let down in January window?**: [Link](https://sports.yahoo.com/college-football/article/transfer-portal-winners-and-losers-college-football-january-window-155046297.html)
+
+
+### latina en vivo (N/A, 14/01/2026 11:38 Lima)
+
+- **ERES MI BIEN – CAPÍTULO 104 COMPLETO: Martes 13 de Enero**: [Link](https://www.latina.pe/entretenimiento/eres-mi-bien/capitulos-completos-eres-mi-bien/eres-mi-bien-capitulo-104-completo-martes-13-de-enero_20260114/)
+- **Hasta que la plata nos separe, Lunes 12 de Enero – ver capítulo 56 completo**: [Link](https://www.latina.pe/entretenimiento/hasta-que-la-plata-nos-separe-novela/hasta-que-la-plata-nos-separe-lunes-12-de-enero-ver-capitulo-56-completo_20260112/)
+- **ERES MI BIEN – CAPÍTULO 102 COMPLETO: Viernes 9 de Enero**: [Link](https://www.latina.pe/entretenimiento/eres-mi-bien/capitulos-completos-eres-mi-bien/eres-mi-bien-capitulo-102-completo-viernes-9-de-enero_20260109/)
+
+
 ### meet (N/A, 14/01/2026 07:58 Lima)
 
 - **‘We’re Not Stupid’: Greenlanders Fear What a U.S. Takeover Would Mean**: [Link](https://www.nytimes.com/2026/01/14/world/americas/greenland-fear-trump-us-takeover.html)
@@ -968,65 +1031,5 @@ Sin noticias relacionadas disponibles.
 - **Transmisión EN VIVO del Monterrey vs Toluca hoy: cómo mirar el partido por TV o streaming**: [Link](https://www.365scores.com/es/news/monterrey-vs-toluca-mirar-transmision/)
 - **Liga MX: CF Monterrey y Toluca FC juegan la Fecha 1 del campeonato**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-cf-monterrey-y-toluca-fc-juegan-la-fecha-1-del-campeonato-noticia-1671003)
 - **RAYADOS BUSCA MANTENER UN BALANCE POSITIVO EN SUS DEBUTS EN CASA**: [Link](https://onefootball.com/es/noticias/rayados-busca-mantener-un-balance-positivo-en-sus-debuts-en-casa-42209350)
-
-
-### andy bell (N/A, 10/01/2026 23:51 Lima)
-
-- **Andy Bell en Perú: ¡Encuentra aquí el posible setlist de su próximo concierto en Lima!**: [Link](https://blog.joinnus.com/andy-bell-en-peru-encuentra-aqui-el-posible-setlist-de-su-proximo-concierto-en-lima/)
-- **Andy Bell en Perú: 5 temazos del vocalista de Erasure que queremos escuchar en vivo**: [Link](https://blog.joinnus.com/andy-bell-en-peru-5-temazos-del-vocalista-de-erasure-que-queremos-escuchar-en-vivo/)
-
-
-### u vs (N/A, 10/01/2026 23:51 Lima)
-
-- **Universitario vs Soan EN VIVO HOY: punto a punto del partido por fecha 1 de la fase 2 de Liga Peruana de vóley 2025/2026**: [Link](https://www.infobae.com/peru/deportes/2026/01/09/universitario-vs-soan-en-vivo-hoy-latina-tv-fecha-1-fase-2-liga-peruana-de-voley-2025-2026-resumen-resultado/)
-- **San Martín superó a Olva Latino en la Liga Peruana de Vóley**: [Link](https://ovacion.pe/noticias/voley-apuesta-total/san-martin-supero-olva-latino-liga-peruana-voley)
-- **Busca el tricampeonato: Alianza Lima entrena con miras a inicio de la fase 2 de la Liga Peruana de Vóley**: [Link](https://rpp.pe/voley/mas-voley/alianza-lima-entrena-con-miras-a-inicio-de-la-fase-2-de-la-liga-peruana-de-voley-noticia-1670550)
-
-
-### cruz azul vs (N/A, 10/01/2026 21:23 Lima)
-
-- **León vs Cruz Azul hoy: Resultado EN VIVO, minuto a minuto y goles de la Liga MX**: [Link](https://www.365scores.com/es/news/leon-vs-cruz-azul-resultado-vivo-goles/)
-- **Liga MX: León y Cruz Azul se estrenan en el campeonato**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-leon-y-cruz-azul-se-estrenan-en-el-campeonato-noticia-1670980)
-- **10 cosas que debes saber sobre el León-Cruz Azul**: [Link](https://luismiguelguerrero.com/2026/01/10/10-cosas-que-debes-saber-sobre-el-leon-cruz-azul/)
-
-
-### cruz azul (N/A, 10/01/2026 21:23 Lima)
-
-- **Liga MX: León y Cruz Azul se estrenan en el campeonato**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-leon-y-cruz-azul-se-estrenan-en-el-campeonato-noticia-1670980)
-
-
-### espn en vivo (N/A, 10/01/2026 21:23 Lima)
-
-- **El balón largo como plan de fuga: el récord de los 34 balonazos de Courtois contra el Atlético**: [Link](https://elpais.com/deportes/futbol/2026-01-10/el-balon-largo-como-plan-de-fuga-el-record-de-los-34-balonazos-de-courtois-contra-el-atletico.html)
-- **Atlético 1-2 Real Madrid: resumen, goles y resultado**: [Link](https://as.com/futbol/primera/atletico-real-madrid-hoy-en-directo-previa-de-la-semifinal-de-supercopa-de-espana-ultima-hora-en-arabia-en-vivo-f202601-d/)
-- **"Lo mío es tirar fuerte": Fede Valverde habló de su golazo de tiro libre en la Supercopa para Real Madrid**: [Link](https://www.espn.com.ar/futbol/espana/nota/_/id/16159402/federico-valverde-real-madrid-supercopa-atletico-tiro-libre-golazo-lo-mio-es-tirar-fuerte)
-
-
-### jairo velez (N/A, 10/01/2026 21:23 Lima)
-
-- **Edison Flores fue categórico sobre fichaje de Jairo Vélez por Alianza Lima: “Fue un...” [VIDEO]**: [Link](https://trome.com/deportes/futbol-peruano/edison-flores-fue-categorico-sobre-fichaje-de-jairo-velez-por-alianza-lima-video-fue-un-buen-companero-liga-1-fichajes-2026-noticia/)
-- **Zambrano dejó rotundo mensaje tras llegada de Jairo Vélez, ex Universitario: "Siempre vienen..."**: [Link](https://libero.pe/futbol-peruano/alianza-lima/2026/01/10/fichajes-alianza-lima-2026-carlos-zambrano-dejo-rotundo-mensaje-llegada-de-jairo-velez-ex-universitario-siempre-vienen-955160)
-- **“Lo deleitó”: el jugador de Alianza Lima que más sorprendió a Pablo Guede en el primer día de pretemporada**: [Link](https://bolavip.com/pe/alianza-lima/lo-deleito-el-jugador-de-alianza-lima-que-mas-sorprendio-a-pablo-guede-en-el-primer-dia-de-pretemporada)
-
-
-### esporte clube avenida - grêmio (N/A, 10/01/2026 21:23 Lima)
-
-- **Como é que tá o jogo do Grêmio? Estreia no Gauchão mobiliza torcida e marca novo começo em 2026**: [Link](https://gremioplay.com.br/como-e-que-ta-o-jogo-do-gremio/)
-- **Grêmio abre o ano com goleada sobre o Avenida no Gauchão**: [Link](https://gremio.net/noticias/detalhes/29894/gremio-abre-o-ano-com-goleada-sobre-o-avenida-no-gauchao)
-- **Se deixar jogar…**: [Link](https://ge.globo.com/rs/blogs/vida-real/post/2026/01/10/se-deixar-jogar.ghtml)
-
-
-### futbol en vivo (N/A, 10/01/2026 21:23 Lima)
-
-- **Partidos de hoy, sábado 10 de enero de 2026: programación, canales TV y resultados en vivo**: [Link](https://www.infobae.com/peru/deportes/2026/01/10/partidos-de-hoy-sabado-10-de-enero-de-2026-programacion-canales-tv-y-resultados-en-vivo/)
-- **Partidos de hoy EN VIVO: programación, horario y dónde ver fútbol online gratis este sábado 10 de enero**: [Link](https://libero.pe/futbol-internacional/2026/01/09/partidos-de-hoy-en-vivo-sabado-10-de-enero-638370)
-- **Partidos de hoy, sábado 10 de enero del 2026: horarios y canales TV para ver EN VIVO Amistosos y LaLiga**: [Link](https://rpp.pe/futbol/futbol-mundial/partidos-de-hoy-peru-sabado-10-de-enero-del-2026-horarios-y-canales-tv-ver-futbol-en-vivo-noticia-1671022)
-
-
-### tarjeta roja (N/A, 10/01/2026 21:23 Lima)
-
-- **Mujer arremete en contra de una ex alcaldesa públicamente**: [Link](https://saganoticias.com/politica/mujer-arremete-en-contra-de-una-ex-alcaldesa-publicamente)
-- **Exalcaldesa morenista de Múzquiz anda de “buscapleitos” con priistas**: [Link](https://www.eluniversal.com.mx/opinion/kiosko/exalcaldesa-morenista-de-muzquiz-anda-de-buscapleitos-con-priistas/)
-- **EN EL TINTERO**: [Link](https://elheraldodesaltillo.mx/2026/01/08/en-el-tintero-292/)
 
 
