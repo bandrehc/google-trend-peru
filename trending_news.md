@@ -1,3 +1,65 @@
+### paro 15 de enero 2026 (N/A, 14/01/2026 23:46 Lima)
+
+- **Paro de transportistas EN VIVO en Lima y Callao: Martín Ojeda descarta paro de transportistas para este 15 de enero**: [Link](https://larepublica.pe/sociedad/2026/01/14/paro-de-transportistas-en-vivo-en-lima-y-callao-escasez-de-buses-pasajes-elevados-dialogo-con-jeri-y-mas-noticias-hoy-14-de-enero-1149960)
+- **MTPE exhorta a empleadores a otorgar tolerancia al ingreso y priorizar el teletrabajo**: [Link](https://andina.pe/agencia/noticia-mtpe-exhorta-a-empleadores-a-otorgar-tolerancia-al-ingreso-y-priorizar-teletrabajo-1059174.aspx)
+- **Presidente Jerí: Vamos a tener una comunicación mucho más estrecha con los transportistas**: [Link](https://elperuano.pe/noticia/287114--presidente-jeri-vamos-a-tener-una-comunicacion-mucho-mas-estrecha-con-los-transportistas)
+
+
+### madonna (N/A, 14/01/2026 23:46 Lima)
+
+- **Yo Soy castings 2026: ¡Regresó más segura y avanzó como Madonna!**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-castings-2026-regreso-mas-segura-y-avanzo-como-madonna_20260114/)
+- **Carlo Conti Debunks Madonna Rumors**: [Link](https://www.ilmattino.it/en/carlo_conti_debunks_madonna_rumors-9297430.html)
+- **Hunks, twinks & bisexual three-ways! Madonna is burning up in smoking-hot new video**: [Link](https://www.queerty.com/hunks-twinks-bisexual-three-ways-madonna-is-burning-up-in-smoking-hot-new-video-20260109/)
+
+
+### toluca - santos (N/A, 14/01/2026 23:46 Lima)
+
+- **Liga MX: Por el último encuentro de la fecha 2, Toluca FC se enfrenta ante Santos Laguna**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-por-el-ultimo-encuentro-de-la-fecha-2-toluca-fc-se-enfrenta-ante-santos-laguna-noticia-1671445)
+- **Toluca vs Santos EN VIVO Hoy. Inicio del segundo tiempo en el Nemecio Diez**: [Link](https://www.marca.com/mx/futbol/liga-mx/toluca-santos-laguna/2026/01/15/01_0168_20260115_1286_1287-directo.html)
+- **EN VIVO: Hay empate en el estadio Nemesio Díez por gol en contra de Santos Laguna**: [Link](https://www.t13.cl/noticia/deportes13/en-vivo-hay-empate-en-el-estadio-nemesio-diez-por-gol-en-contra-de-santos-laguna-15-01-2026)
+
+
+### tigres - pumas (N/A, 14/01/2026 23:46 Lima)
+
+- **Liga MX: Tigres y Pumas UNAM se encuentran en la fecha 2**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-tigres-y-pumas-unam-se-encuentran-en-la-fecha-2-noticia-1671443)
+- **Transmisión EN VIVO del Tigres vs Pumas hoy: cómo mirar el partido por TV o streaming**: [Link](https://www.365scores.com/es/news/tigres-vs-pumas-como-ver-transmision/)
+- **🚨 ¡PARTIDAZO! ¡SE ACERCA! 🚨 Esta televisora tendrá el Tigres vs Pumas en la Liga MX HOY 🏆 A esta HORA inicia... 🔥**: [Link](https://www.facebook.com/MilenioDiario/photos/-partidazo-se-acerca-esta-televisora-tendr%C3%A1-el-tigres-vs-pumas-en-la-liga-mx-hoy/1359295259561275/)
+
+
+### sabrina carpenter (N/A, 14/01/2026 23:46 Lima)
+
+- **Sabrina Carpenter Picks Pringles 'Petals' in Her First-Ever Super Bowl Commercial, Get a First Look (Exclusive)**: [Link](https://people.com/sabrina-carpenter-stars-in-her-first-super-bowl-advertisement-with-pringles-11884692)
+- **Get a sneak peek at Sabrina Carpenter’s first Super Bowl commercial**: [Link](https://www.lakesmedianetwork.com/ac/get-a-sneak-peek-at-sabrina-carpenters-first-super-bowl-commercial/)
+- **Sabrina Carpenter to Represent All the Single ‘Pringles’ Out There With Her First Super Bowl Ad**: [Link](https://www.billboard.com/music/music-news/sabrina-carpenter-pringles-super-bowl-ad-teaser-1236155001/)
+
+
+### liam gallagher (N/A, 14/01/2026 23:46 Lima)
+
+- **‘Liam exploded’: Terrifying Oasis brawl sparked by Beatles slur**: [Link](https://www.cairnspost.com.au/entertainment/music/liam-finally-exploded-inside-epic-oasis-studio-brawl-involving-pasta-a-cricket-bat-and-poor-decisions-by-a-nowforgotten-rocker/news-story/8fa19290714b4972b3eddf38a7907546)
+- **Yo Soy castings 2026: ¡Cambió de personaje y encontró su mejor versión como Liam Gallagher!**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-castings-2026-cambio-de-personaje-y-encontro-su-mejor-version-como-liam-gallagher_20260114/)
+
+
+### querétaro - tijuana (N/A, 14/01/2026 23:46 Lima)
+
+- **Liga MX: Querétaro y Tijuana se miden por la fecha 2**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-queretaro-y-tijuana-se-miden-por-la-fecha-2-noticia-1671423)
+- **Con Gilberto Mora: qué canal pasa Querétaro vs Xolos hoy: dónde ver GRATIS y EN VIVO el partido de la Liga MX**: [Link](https://www.365scores.com/es/news/queretaro-vs-xolos-donde-ver-gratis-vivo/)
+- **Ladran en Querétaro: Xolos vence 0-2 a Gallos y logran su primer triunfo de la temporada**: [Link](https://www.record.com.mx/futbol/liga-mx/tijuana/ladran-en-queretaro-xolos-vence-0-2-gallos-y-logran-su-primer-triunfo-de-la)
+
+
+### san lorenzo - cúcuta (N/A, 14/01/2026 23:46 Lima)
+
+- **Transmisión EN VIVO del San Lorenzo vs Cúcuta hoy: cómo mirar el partido por TV o streaming**: [Link](https://www.365scores.com/es/news/transmision-san-lorenzo-vs-cucuta-vivo/)
+- **Cúcuta sorprendió y derrotó 1-0 a San Lorenzo en amistoso internacional**: [Link](https://www.infobae.com/colombia/deportes/2026/01/14/en-vivo-san-lorenzo-vs-cucuta-deportivo-siga-aqui-el-partido-amistoso-de-la-serie-del-rio-de-la-plata-2026-que-se-jugara-en-uruguay/)
+- **En qué canal pasan San Lorenzo vs. Cúcuta Deportivo por el torneo de verano 2026 hoy**: [Link](https://www.lanacion.com.ar/deportes/futbol/en-que-canal-pasan-san-lorenzo-vs-cucuta-deportivo-por-el-torneo-de-verano-2026-hoy-nid14012026/)
+
+
+### liga mx (N/A, 14/01/2026 23:46 Lima)
+
+- **¿Penal? El VAR interviene de manera silenciosa para juzgar una posible falta**: [Link](https://www.tudn.com/futbol/liga-mx/penal-el-var-interviene-de-manera-silenciosa-para-juzgar-una-posible-falta-video)
+- **Liga MX: Tigres y Pumas UNAM se encuentran en la fecha 2**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-tigres-y-pumas-unam-se-encuentran-en-la-fecha-2-noticia-1671443)
+- **Transmisión EN VIVO del Tigres vs Pumas hoy: cómo mirar el partido por TV o streaming**: [Link](https://www.365scores.com/es/news/tigres-vs-pumas-como-ver-transmision/)
+
+
 ### américa - atl. san luis (N/A, 14/01/2026 21:06 Lima)
 
 - **¿Cómo llegará América a su debut en el torneo en casa?**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/16179498/america-vs-atletico-de-san-luis-liga-mx-clausura-2026-jornada-2)
@@ -966,68 +1028,5 @@ Sin noticias relacionadas disponibles.
 - **Courtois y Valverde propician otro clásico en la Supercopa de Arabia Saudí**: [Link](https://elpais.com/deportes/futbol/2026-01-08/courtois-y-valverde-propician-otro-clasico-en-la-supercopa-de-arabia-saudi.html)
 - **Atlético 1-2 Real Madrid: resumen, goles y resultado**: [Link](https://as.com/futbol/primera/atletico-real-madrid-hoy-en-directo-previa-de-la-semifinal-de-supercopa-de-espana-ultima-hora-en-arabia-en-vivo-f202601-d/)
 - **¿Podrá Xabi Alonso alejar los fantasmas en el derbi en Arabia?**: [Link](https://espndeportes.espn.com/futbol/espana/nota/_/id/16157609/real-madrid-podra-xabi-alonso-alejar-fantasmas-ante-atletico-madrid)
-
-
-### américa (N/A, 11/01/2026 15:28 Lima)
-
-- **Tigres está cerca de fichar a Richard Sánchez como refuerzo**: [Link](https://www.mediotiempo.com/futbol/liga-mx/richard-sanchez-puede-llegar-a-tigres-como-refuerzo-para-el-clausura-2026)
-- **Rival directo del Club América está a nada de cerrar el fichaje de Richard Sánchez para el Clausura 2026**: [Link](https://bolavip.com/mx/ligamx/rival-directo-del-club-america-esta-a-nada-de-cerrar-el-fichaje-de-richard-sanchez-para-el-clausura-2026)
-- **Le dio el tricampeonato al América y ahora de manera sorpresiva firmaría con Tigres apenas iniciado el Clausura 2026**: [Link](https://www.elfutbolero.com.mx/ligamx/le-dio-el-tricampeonato-al-america-y-ahora-de-manera-sorpresiva-firmaria-con-tigres-apenas-iniciado-el-clausura-2026-20260111-148826.html)
-
-
-### álvaro carreras (N/A, 11/01/2026 15:28 Lima)
-
-- **El pisotón criminal de Álvaro Carreras a Lamine que incendia la final de la Supercopa**: [Link](https://www.sport.es/es/noticias/barca/pisoton-criminal-alvaro-carreras-lamine-125582673)
-- **“Munuera Montero no debió dejar que se sacase el córner del 2-2″**: [Link](https://as.com/futbol/copa_del_rey/era-amarilla-a-carreras-f202601-n/)
-- **Polémica en Barcelona vs. Real Madrid por falta sobre Lamine Yamal; ni mostraron amarilla**: [Link](https://www.noticiascaracol.com/golcaracol/polemica-en-barcelona-vs-real-madrid-por-falta-sobre-lamine-yamal-ni-mostraron-amarilla-rg10)
-
-
-### resultados (N/A, 11/01/2026 15:28 Lima)
-
-- **Inter vs. Napoli (11 de Ene., 2026) Resultados en Vivo**: [Link](https://www.espn.com.pe/futbol/partido/_/juegoId/736979)
-- **Port Vale 1-0 Fleetwood To (9 de Ene., 2026) Resultado Final**: [Link](https://www.espn.cl/futbol/partido/_/juegoId/762501/fleetwood-town-port-vale)
-- **Le Mans vs. Nancy (11 de Ene., 2026) Resultados en Vivo**: [Link](https://www.espn.com.ar/futbol/partido/_/juegoId/401843535)
-
-
-### iptv (N/A, 11/01/2026 15:28 Lima)
-
-- **NotCableTV Announces Comprehensive 2026 Industry Report on Global IPTV Streaming Safety and Legal Standards**: [Link](https://markets.financialcontent.com/wral/article/marketersmedia-2026-1-11-notcabletv-announces-comprehensive-2026-industry-report-on-global-iptv-streaming-safety-and-legal-standards)
-- **How to Choose the Best IPTV Service: 6 Factors to Consider**: [Link](https://intlbm.com/2026/01/09/how-to-choose-the-best-iptv-service-6-factors-to-consider/)
-- **IPTV 2026: 8K Streaming, Top Services, and Comparison Tools Revealed**: [Link](https://seczine.com/technology/2026/01/iptv-2026-8k-streaming-top-services/)
-
-
-### lewandowski (N/A, 11/01/2026 15:28 Lima)
-
-- **Akcja niczym z konsoli. Vinicius ośmieszył obronę Barcelony**: [Link](https://sportowefakty.wp.pl/pilka-nozna/1229008/akcja-niczym-z-konsoli-vinicius-osmieszyl-obrone-barcelony)
-- **Barcelona prowadzi w Superpucharze Hiszpanii! Nie dało się tego lepiej uderzyć**: [Link](https://sport.fakt.pl/pilka-nozna/superpuchar-hiszpanii-co-za-gol-w-el-clasico/xws1ktn)
-- **FC Barcelona - Real Madryt. Gdzie oglądać za darmo i na żywo? (11.01.2026)**: [Link](https://przegladsportowy.onet.pl/bukmacherzy/pilka-nozna/fc-barcelona-real-madryt-gdzie-ogladac-za-darmo-i-na-zywo-11012026/35bf2nz)
-
-
-### danitza pilco (N/A, 11/01/2026 11:31 Lima)
-
-- **Actriz peruana es investigada por la muerte de su pareja en Puno**: [Link](https://trome.com/actualidad/policiales/puno-actriz-peruana-danitza-pilco-es-investigada-por-la-muerte-de-su-pareja-de-20-anos-historia-de-policiales-noticia/)
-- **Puno: investigan a joven estudiante acusada de apuñalar a su enamorado en una vivienda**: [Link](https://rpp.pe/peru/puno/puno-investigan-a-joven-estudiante-acusada-de-apunalar-a-su-enamorado-en-una-vivienda-noticia-1671101)
-- **Actriz peruana es detenida por presuntamente apuñalar y asesinar a su pareja en Puno**: [Link](https://peru21.pe/peru/actriz-peruana-es-detenida-tras-apunalar-y-asesinar-su-pareja-en-puno/)
-
-
-### milan vs (N/A, 11/01/2026 11:31 Lima)
-
-- **Milan no quiere perder el tren del campeonato y visita a una Fiorentina en crisis**: [Link](https://www.espn.com.pe/futbol/italia/nota/_/id/16159631/fiorentina-vs-milan-fecha-20-serie-a-equipo-fecha-hora-y-tv-en-vivo)
-- **Milan salvó empate frente a Fiorentina**: [Link](https://ovacion.pe/noticias/futbol-internacional/milan-salvo-empate-frente-fiorentina)
-- **Fiorentina vs AC Milan Serie A dual, los rossoneri apuntan a comprometerse con el Inter de Milán**: [Link](https://www.ucvradio.pe/mas-actualidad/fiorentina-vs-ac-milan-serie-a-dual-los-rossoneri-apuntan-a-comprometerse-con-el-inter-de-milan/100106/)
-
-
-### felipe chávez (N/A, 11/01/2026 11:31 Lima)
-
-- **Lo piden para la Selección de Alemania: Felipe Chávez despertó elogios tras su primer gol con Bayern**: [Link](https://depor.com/futbol-peruano/peruanos-en-el-mundo/seleccion-peruana-felipe-chavez-estaria-siendo-seguido-por-la-seleccion-alemana-tras-su-gol-en-el-bayern-munich-noticia/)
-- **Felipe Chávez con ofertas en ligas top: Bayern tomó una decisión**: [Link](https://www.americatv.com.pe/deportes/futbol-mundial/felipe-chavez-ofertas-ligas-top-bayern-tomo-decision-n452270)
-- **En Alemania no descartan que Felipe Chávez renuncie a Perú y juegue para Alemania: “Está indeciso”**: [Link](https://bolavip.com/pe/peruanos-en-el-exterior/en-alemania-no-descartan-que-felipe-chavez-renuncie-a-peru-y-juegue-para-alemania-esta-indeciso)
-
-
-### manchester united - brighton (N/A, 11/01/2026 11:31 Lima)
-
-- **Team news for Man Utd v Brighton | Emirates FA Cup third-round tie | 11 Jan 2026**: [Link](https://www.manutd.com/en/news/detail/team-news-for-man-utd-v-brighton-fa-cup-third-round-2026)
-- **Manchester United Invite Brighton to Old Trafford for FA Cup Clash**: [Link](https://www.dawan.africa/news/manchester-united-invite-brighton-to-old-trafford-for-fa-cup-clash)
-- **Fletcher on the FA Cup: ‘Given the current season, this is a trophy that Manchester United should be fighting for’**: [Link](https://tribuna.com/en/news/2026-01-11-fletcher-on-the-fa-cup-given-the-current-season-this-is-a-trophy-that-manchester-united-s/)
 
 
