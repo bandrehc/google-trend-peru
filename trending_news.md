@@ -1,3 +1,10 @@
+### campeonato gaúcho (N/A, 15/01/2026 03:37 Lima)
+
+- **Garanta ingresso para o duelo do Inter com Monsoon**: [Link](https://internacional.com.br/noticias/servico-de-jogo/garanta-ingresso-para-o-duelo-do-inter-com-monsoon)
+- **Elieser vê jogo contra o Inter como marco na carreira**: [Link](https://grupoahora.net.br/conteudos/2026/01/15/elieser-ve-jogo-contra-o-inter-como-marco-na-carreira/)
+- **Paulo Pezzolano estreia no Inter para espantar fantasmas de passado recente**: [Link](https://gauchazh.clicrbs.com.br/esportes/inter/noticia/2026/01/paulo-pezzolano-estreia-no-inter-para-espantar-fantasmas-de-passado-recente-cmkemujrg01ah013oo7pnss7u.html)
+
+
 ### paro 15 de enero 2026 (N/A, 14/01/2026 23:46 Lima)
 
 - **Paro de transportistas EN VIVO en Lima y Callao: Martín Ojeda descarta paro de transportistas para este 15 de enero**: [Link](https://larepublica.pe/sociedad/2026/01/14/paro-de-transportistas-en-vivo-en-lima-y-callao-escasez-de-buses-pasajes-elevados-dialogo-con-jeri-y-mas-noticias-hoy-14-de-enero-1149960)
@@ -1021,12 +1028,5 @@ Sin noticias relacionadas disponibles.
 - **Lewandowski definió de gran manera y convirtió para Barcelona ante Real Madrid**: [Link](https://www.espn.com.ar/futbol/espana/nota/_/id/16170826/video-gol-de-robert-lewandowski-barcelona-vs-real-madrid-clasico-final-supercopa)
 - **VIDEO: Desde el piso y en el epílogo del primer tiempo, Gonzalo García señaló el 2 a 2 de Real Madrid ante ...**: [Link](https://www.directvsports.com/futbol/video-desde-el-piso-y-en-el-epilogo-del-primer-tiempo-gonzalo-garcia-senalo-el-2-a-2-de-real-madrid-ante-barcelona-20260111-0017.html)
 - **Pedro Martín sentencia sobre el exceso de tiempo añadido en la primera parte del Barcelona-Real Madrid en la Supercopa y explica la razón objetiva: "Se debería haber acabado al minuto 48"**: [Link](https://www.cope.es/programas/tiempo-de-juego/audios/pedro-martin-sentencia-sobre-exceso-anadido-primera-parte-barcelona-real-madrid-supercopa-explica-razon-objetiva-deberia-haber-acabado-minuto-48-20260111_3284289.html)
-
-
-### futbol libre barcelona vs real madrid (N/A, 11/01/2026 15:28 Lima)
-
-- **Courtois y Valverde propician otro clásico en la Supercopa de Arabia Saudí**: [Link](https://elpais.com/deportes/futbol/2026-01-08/courtois-y-valverde-propician-otro-clasico-en-la-supercopa-de-arabia-saudi.html)
-- **Atlético 1-2 Real Madrid: resumen, goles y resultado**: [Link](https://as.com/futbol/primera/atletico-real-madrid-hoy-en-directo-previa-de-la-semifinal-de-supercopa-de-espana-ultima-hora-en-arabia-en-vivo-f202601-d/)
-- **¿Podrá Xabi Alonso alejar los fantasmas en el derbi en Arabia?**: [Link](https://espndeportes.espn.com/futbol/espana/nota/_/id/16157609/real-madrid-podra-xabi-alonso-alejar-fantasmas-ante-atletico-madrid)
 
 
