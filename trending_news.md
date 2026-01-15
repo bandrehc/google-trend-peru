@@ -1,3 +1,66 @@
+### scotiabank (N/A, 15/01/2026 11:41 Lima)
+
+- **Personal-trading probe led to firing of two Scotiabank analysts**: [Link](https://financialpost.com/fp-work/personal-trading-probe-led-to-firing-of-two-scotiabank-analysts)
+- **How a Trading Probe Led to the Firing of Two Scotiabank Analysts**: [Link](https://www.bloomberg.com/news/newsletters/2026-01-13/trading-probe-led-to-firing-of-scotiabank-analysts-canada-daily)
+- **City eyes old Scotiabank building for new Stratford police station**: [Link](https://www.stratfordbeaconherald.com/news/local-news/city-eyes-old-scotiabank-building-for-new-stratford-police-station)
+
+
+### jennie (N/A, 15/01/2026 11:41 Lima)
+
+- **BLACKPINK's Jennie Celebrates 30th Birthday with 'thirtyyyyyy' Cake Video**: [Link](https://www.chosun.com/english/kpop-culture-en/2026/01/16/BDQFR45MXJD4NNE6USLGDXDXDU/)
+- **Sexy And Revealing New Photos Of BLACKPINK’s Jennie Stir Up Major Reactions**: [Link](https://www.koreaboo.com/news/blackpink-jennie-photos-underwear-topless-sexy-revealing/)
+- **Jennie celebrates 30th birthday with cheerful cake moment - CHOSUNBIZ**: [Link](https://biz.chosun.com/en/en-entertainment/2026/01/16/RR7OGVRGCFENVNVEMK45PPCNCI/)
+
+
+### juan pablo varillas (N/A, 15/01/2026 11:41 Lima)
+
+- **Entre los ochos mejores: Juan Pablo Varillas avanzó a los cuartos de final del Challenger de Buenos Aires**: [Link](https://depor.com/full-deportes/juan-pablo-varillas-avanzo-a-los-cuartos-de-final-del-challenger-de-buenos-aires-pedro-sakamoto-noticia/)
+- **Juan Pablo Varillas venció a Pedro Sakamoto por octavos de final del Challenger de Buenos Aires**: [Link](https://elcomercio.pe/deporte-total/tenis/juan-pablo-varillas-vencio-a-pedro-sakamoto-por-octavos-de-final-del-challenger-de-buenos-aires-noticia/)
+- **Juan Pablo Varillas vs Lautaro Midon EN VIVO: ¿a qué hora juegan y dónde ver los cuartos de final del Challenger de Buenos Aires?**: [Link](https://rpp.pe/voley/mas-voley/juan-pablo-varillas-vs-lautaro-midon-en-vivo-a-que-hora-juegan-y-donde-ver-cuartos-de-final-challenger-buenos-aires-2026-via-atp-tour-link-gratis-partidos-de-hoy-noticia-1671582)
+
+
+### el peruano (N/A, 15/01/2026 11:41 Lima)
+
+- **Congreso promulga ley que fortalece la dignidad laboral del personal de la Biblioteca Nacional del Perú**: [Link](https://comunicaciones.congreso.gob.pe/noticias/congreso-promulga-ley-que-fortalece-la-dignidad-laboral-del-personal-de-la-biblioteca-nacional-del-peru/)
+- **El Peruano te informa: consulta aquí las principales normas legales para hoy, jueves 15 de Enero del 2026**: [Link](https://elperuano.pe/noticia/287145-el-peruano-te-informa-consulta-aqui-las-principales-normas-legales-para-hoy-jueves-15-de-enero-del-2026)
+- **Consulta las normas legales más importantes de hoy, jueves 15 de enero de 2026**: [Link](https://www.tvperu.gob.pe/noticias/politica/consulta-las-normas-legales-mas-importantes-de-hoy-jueves-15-de-enero-de-2026)
+
+
+### yahoo (N/A, 15/01/2026 11:41 Lima)
+
+- **20 charged in college hoops point-shaving plot**: [Link](https://www.espn.com/mens-college-basketball/story/_/id/47619154/many-college-players-20-charged-point-shaving-scheme)
+- **College basketball players among those charged in point-shaving scheme by FBI**: [Link](https://www.cbssports.com/college-basketball/news/college-basketball-players-point-shaving-fixing-games-fbi-scandal/)
+- **20 people indicted in alleged college basketball and Chinese Basketball Association point-shaving scheme**: [Link](https://sports.yahoo.com/mens-college-basketball/breaking-news/article/20-people-indicted-in-alleged-college-basketball-and-chinese-basketball-association-point-shaving-scheme-150308210.html)
+
+
+### iphone 18 pro (N/A, 15/01/2026 11:41 Lima)
+
+- **Leaker details iPhone 18 lineup screen sizes, Dynamic Island plans**: [Link](https://9to5mac.com/2026/01/14/leaker-details-iphone-18-lineup-screen-sizes-dynamic-island-plans/)
+- **Apple iPhone 18 Pro, iPhone Air 2 and iPhone 18 specs tipped: Launch timeline, specs and price range**: [Link](https://www.digit.in/news/mobile-phones/apple-iphone-18-pro-iphone-air-2-and-iphone-18-specs-tipped-launch-timeline-specs-and-price-range.html)
+- **iPhone 17e to iPhone Fold: Smartphones that Apple could launch in 2026**: [Link](https://www.moneycontrol.com/technology/iphone-17e-to-iphone-fold-smartphones-that-apple-could-launch-in-2026-article-13768787.html)
+
+
+### clima (N/A, 15/01/2026 11:41 Lima)
+
+- **Lima amanece hoy con lluvia de verano: ¿a qué se debe y hasta cuándo estará así el clima en la costa?**: [Link](https://www.infobae.com/peru/2026/01/15/lima-amanece-con-lluvia-de-verano-a-que-se-debe-y-hasta-cuando-estara-asi-el-clima-en-la-costa-peruana/)
+- **Fuerte lluvia sorprende a Lima: ¿Cuál será la temperatura de hoy?**: [Link](https://peru21.pe/lima/fuerte-lluvia-sorprende-lima-senamhi-revela-las-temperaturas-durante-el-dia/)
+- **Senamhi emite alerta por lluvias y no descartan un ‘Fenómeno del Niño’**: [Link](https://www.atv.pe/noticia/senamhi-emite-alerta-por-lluvias-y-no-descartan-un-fenomeno-del-nino/)
+
+
+### concierto bts perú entradas (N/A, 15/01/2026 11:41 Lima)
+
+- **Gira mundial de BTS 2026: fechas, ciudades, países y boletos**: [Link](https://cnnespanol.cnn.com/2026/01/13/entretenimiento/bts-gira-mundial-fecha-ciudades-2026-efe)
+- **Conciertos de BTS en Lima: ¿Cuánto costará la entrada para ver a la banda de K-pop en Perú?**: [Link](https://www.infobae.com/peru/2026/01/13/conciertos-de-bts-en-lima-cuanto-costara-ver-a-la-banda-de-k-pop-mas-famosa-del-mundo/)
+- **BTS: El millonario regreso de la banda de K-Pop tras su servicio militar y cómo será su gira mundial que incluye a América Latina**: [Link](https://www.bbc.com/mundo/articles/cdxj5drv4x2o)
+
+
+### pronostico (N/A, 15/01/2026 11:41 Lima)
+
+- **Prepárate antes de salir: conoce el pronóstico del clima en Nueva York**: [Link](https://www.infobae.com/noticias/2026/01/15/preparate-antes-de-salir-conoce-el-pronostico-del-clima-en-nueva-york/)
+- **Nueva York: el tiempo para hoy jueves 15 de enero**: [Link](https://eldiariony.com/2026/01/15/nueva-york-el-tiempo-para-hoy-jueves-15-de-enero/)
+- **Noticias de New York y New Jersey, en vivo: frente frío por la noche y actualizaciones de hoy, 15 de enero de 2026**: [Link](https://www.lanacion.com.ar/estados-unidos/nueva-york/noticias-de-new-york-y-new-jersey-en-vivo-frente-frio-por-la-noche-y-actualizaciones-de-hoy-15-de-nid15012026/)
+
+
 ### weather (N/A, 15/01/2026 07:57 Lima)
 
 - **Arctic front causes intense lake-effect snowstorm for the Midwest | Latest Weather Clips**: [Link](https://www.foxweather.com/watch/fmc-32tobnf5h607aibr)
@@ -965,68 +1028,5 @@ Sin noticias relacionadas disponibles.
 - **Hailee Steinfeld Debuts Her Baby Bump on the 2026 Golden Globes Red Carpet**: [Link](https://www.vogue.com/article/hailee-steinfeld-baby-bump-2026-golden-globes)
 - **Josh Allen Drools Over Pregnant Wife Hailee Steinfeld's 2026 Golden Globes Outfit After She Hits Carpet Solo**: [Link](https://people.com/golden-globes-2026-josh-allen-drools-over-pregnant-wife-hailee-steinfeld-outfit-11883293)
 - **Hailee Steinfeld Arrives at Golden Globes 2026 After Husband Josh Allen’s NFL Playoff Win with the Bills!**: [Link](https://www.justjared.com/2026/01/11/hailee-steinfeld-arrives-at-golden-globes-2026-after-husband-josh-allens-nfl-playoff-win-with-the-bills/)
-
-
-### ciro castillo rojo (N/A, 11/01/2026 21:19 Lima)
-
-- **Dictan 24 meses de prisión preventiva a Ciro Castillo, suspendido gobernador del Callao**: [Link](https://caretas.pe/politica/dictan-24-meses-de-prision-preventiva-a-ciro-castillo-suspendido-gobernador-del-callao/)
-- **Ciro Castillo Rojo en la mira: Poder Judicial ordena 24 meses de prisión preventiva y activa su captura**: [Link](https://trome.com/actualidad/politica/ciro-castillo-rojo-en-la-mira-poder-judicial-ordena-24-meses-de-prision-preventiva-y-activa-su-captura-video-historia-de-policiales-noticia/)
-- **Juez del caso Ciro Castillo es víctima de amenazas: familiar de uno de los investigados lo llamó antes de audiencia**: [Link](https://larepublica.pe/politica/2026/01/09/juez-del-caso-ciro-castillo-es-victima-de-amenazas-familiar-de-uno-de-los-investigados-lo-llamo-antes-de-audiencia-hnews-436707)
-
-
-### the pitt (N/A, 11/01/2026 21:19 Lima)
-
-- **'ER' Costars George Clooney & Noah Wyle Reunite in L.A., Plus Michael B. Jordan, Hailey Bieber & Kendall Jenner and More**: [Link](https://people.com/star-tracks-sunday-january-11-2026-new-celebrity-photos-updated-daily-11883062)
-- **George Clooney and Noah Wyle enjoy a touching “ER ”reunion over 30 years later**: [Link](https://www.yahoo.com/entertainment/tv/articles/george-clooney-noah-wyle-enjoy-001437427.html)
-- **'The Pitt' star Noah Wyle and George Clooney reunite at AARP Awards**: [Link](https://www.usatoday.com/story/entertainment/tv/2026/01/11/noah-wyle-george-clooney-er-reunion-aarp-awards/88128782007/)
-
-
-### tnt en vivo (N/A, 11/01/2026 21:19 Lima)
-
-- **Todos los nominados a los Globo de Oro 2026: lista completa por categorías**: [Link](https://cnnespanol.cnn.com/2026/01/10/entretenimiento/nominados-globo-oro-golden-globes-trax)
-- **Premios Globos de Oro 2026: todos los looks de las celebridades en la alfombra roja**: [Link](https://www.infobae.com/tendencias/2026/01/11/premios-globos-de-oro-2026-todos-los-looks-de-las-celebridades-en-la-alfombra-roja/)
-- **¿Cómo ver los Golden Globes 2026? Horarios, streaming y nominados**: [Link](https://www.usatoday.com/story/entertainment/2026/01/11/como-ver-los-golden-globes-2026-estrellas-y-filmes-favoritos/88131478007/)
-
-
-### kira alcarraz (N/A, 11/01/2026 21:19 Lima)
-
-- **Congreso: Comisión de Ética verá mañana caso de congresista Kira Alcarraz**: [Link](https://andina.pe/agencia/noticia-congreso-comision-etica-vera-manana-caso-congresista-kira-alcarraz-1058922.aspx)
-- **Ética podría abrir 2 investigaciones a Alcarraz mañana**: [Link](https://diariocorreo.pe/politica/comision-de-etica-podria-abrir-2-investigaciones-a-kira-alcarraz-manana-peru-congreso-noticia/)
-- **Alcarraz en la picota**: [Link](https://elcomercio.pe/opinion/editorial/la-congresista-denunciada-por-agresion-debe-enfrentar-su-responsabilidad-noticia/)
-
-
-### sentimental value (N/A, 11/01/2026 21:19 Lima)
-
-- **Stellan Skarsgård Wins Golden Globe for Supporting Actor in a Film**: [Link](https://variety.com/2026/film/news/stellan-skarsgard-golden-globes-supporting-actor-1236624577/)
-- **Stellan Skarsgård Thanks His Wife for Her 'Brutal Support' as He Wins Golden Globe: She's a 'Tough Lover'**: [Link](https://people.com/golden-globes-2026-best-supporting-actor-winner-stellan-skarsgard-11879585)
-- **For Stellan Skarsgård, 'Sentimental Value' Offered a Chance at Revenge**: [Link](https://www.wmagazine.com/culture/stellan-skarsgard-interview-sentimental-value)
-
-
-### tigres vs (N/A, 11/01/2026 21:19 Lima)
-
-- **Liga MX: Atl. de San Luis recibe a Tigres por el último duelo de la fecha 1**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-atl-de-san-luis-recibe-a-tigres-por-el-ultimo-duelo-de-la-fecha-1-noticia-1671103)
-- **Qué canal pasa Atlético San Luis vs Tigres hoy: dónde ver GRATIS y EN VIVO el partido de la Liga MX**: [Link](https://www.365scores.com/es/news/donde-ver-atletico-san-luis-vs-tigres/)
-- **Ver EN VIVO Atl. de San Luis vs. Tigres: dónde seguir por TV y ONLINE en streaming**: [Link](https://www.tycsports.com/mexico/liga-mx/atl-de-san-luis-vs-tigres-en-vivo-donde-ver-por-tv-y-online-id707323.html)
-
-
-### gonzalo bueno (N/A, 11/01/2026 21:19 Lima)
-
-- **Gonzalo Bueno vs Nikoloz Basilashvili EN VIVO: ¿a qué hora juegan y dónde ver la qualy del Abierto de Australia 2026?**: [Link](https://rpp.pe/tenis/grand-slam/gonzalo-bueno-vs-nikoloz-basilashvili-en-vivo-a-que-hora-juegan-y-donde-ver-la-qualy-del-abierto-de-australia-2026-en-directo-via-disney-plus-partidos-de-hoy-noticia-1671161)
-- **¡Empieza el sueño!: Gonzalo Bueno debuta hoy en la ‘qualy’ del Australia Open**: [Link](https://elcomercio.pe/deporte-total/polideportivo/tenis-gonzalo-bueno-debuta-hoy-ante-nikoloz-basilashvili-en-la-qualy-del-australia-open-2026-noticia/)
-- **Gonzalo Bueno inicia su sueño en la ‘qualy’ del Australian Open 2026: rival, horario y dónde ver el debut del peruano**: [Link](https://www.infobae.com/peru/deportes/2026/01/11/gonzalo-bueno-inicia-su-sueno-en-la-qualy-del-australian-open-2026-rival-horario-y-donde-ver-el-debut-del-peruano/)
-
-
-### golden globes (N/A, 11/01/2026 21:19 Lima)
-
-- **Comedian Nikki Glaser describes "very delicate" balance of jokes as she returns to host Golden Globes**: [Link](https://www.cbsnews.com/news/comedian-nikki-glaser-host-golden-globes/)
-- **Golden Globes host Nikki Glaser struggles with Julia Roberts and Venezuela while building monologue**: [Link](https://apnews.com/article/nikki-glaser-golden-globes-host-interview-jokes-c7f0a605e1b06b92447cd213a5fd619e)
-- **Teyana Taylor, Stellan Skarsgard are early Globes winners**: [Link](https://www.upi.com/Entertainment_News/TV/2026/01/11/golden-globes-winners/8691768176665/)
-
-
-### australian open (N/A, 11/01/2026 21:19 Lima)
-
-- **This is the seed order for the Australian Open 2026**: [Link](https://www.puntodebreak.com/en/2026/01/11/this-is-the-seed-order-for-the-australian-open-2026)
-- **Australian Open 2026: Schedule of Play for Monday January 12**: [Link](https://tennisconnected.com/australian-open-2026-schedule-of-play-for-monday-january-12/)
-- **Top Seeds Carlos Alcaraz and Aryna Sabalenka Lead Australian Open Draw**: [Link](https://news.ssbcrack.com/top-seeds-carlos-alcaraz-and-aryna-sabalenka-lead-australian-open-draw/)
 
 
