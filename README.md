@@ -1,3 +1,73 @@
+### américa - atl. san luis (N/A, 14/01/2026 21:06 Lima)
+
+- **¿Cómo llegará América a su debut en el torneo en casa?**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/16179498/america-vs-atletico-de-san-luis-liga-mx-clausura-2026-jornada-2)
+- **Transmisión EN VIVO del América vs San Luis hoy: cómo mirar el partido por TV o streaming**: [Link](https://www.365scores.com/es/news/america-vs-san-luis-como-ver-transmision/)
+- **Liga MX: Se enfrentan Club América y Atl. de San Luis por la fecha 2**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-se-enfrentan-club-america-y-atl-de-san-luis-por-la-fecha-2-noticia-1671424)
+
+
+### gremio (N/A, 14/01/2026 21:06 Lima)
+
+- **Estreia de Luís Castro na Arena do Grêmio será com portões fechados; saiba o motivo**: [Link](https://ge.globo.com/rs/futebol/times/gremio/noticia/2026/01/14/estreia-de-luis-castro-na-arena-do-gremio-sera-com-portoes-fechados-saiba-o-motivo.ghtml)
+- **Noriega Joga Hoje Pelo Grêmio? Veja Se O Zagueiro Enfrenta O São José Pelo Gauchão**: [Link](https://gremioplay.com.br/noriega-joga-hoje-pelo-gremio-sao-jose/)
+- **Grêmio x São José pelo Campeonato Gaúcho: onde assistir ao vivo, horário e escalação**: [Link](https://www.estadao.com.br/esportes/futebol/gremio-x-sao-jose-campeonato-gaucho-onde-assistir-ao-vivo-horario-escalacao-npres/)
+
+
+### bangu - flamengo (N/A, 14/01/2026 21:06 Lima)
+
+- **Time sub-20, ‘doblete’ de Carlinhos e mais: relembre último jogo entre Flamengo e Bangu, pelo Carioca**: [Link](https://colunadofla.com/2026/01/time-sub-20-doblete-de-carlinhos-e-mais-relembre-ultimo-jogo-entre-flamengo-e-bangu-pelo-carioca/)
+- **Aos 19 min do 1º tempo - gol de fora da área de Guilherme Gomes do Flamengo contra o Bangu**: [Link](https://ge.globo.com/futebol/video/aos-19-min-do-1o-tempo-gol-de-fora-da-area-de-guilherme-gomes-do-flamengo-contra-o-bangu-14255494.ghtml)
+- **Haitiano Garrinsha, do Bangu, brilha contra Flamengo e faz golaço; veja**: [Link](https://www.cnnbrasil.com.br/esportes/futebol/campeonato-carioca/haitiano-garrinsha-do-bangu-brilha-contra-flamengo-e-faz-golaco-veja/)
+
+
+### cruz azul - atlas (N/A, 14/01/2026 21:06 Lima)
+
+- **Cruz Azul: ¿Por qué Atlas y 'Mudo' Aguirre son sus pesadillas?**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/16179745/cruz-azul-vs-atlas-jornada-2-clausura-2026-liga-mx-estadio-cuauhtemoc)
+- **Cruz Azul vs. Atlas EN VIVO vía TUDN, Canal 5 y VIX: transmisión gratis por Liga MX**: [Link](https://depor.com/mexico/liga-mx/cruz-azul-vs-atlas-en-vivo-gratis-hoy-tudn-canal-5-vix-premium-y-futbol-libre-tv-en-directo-online-donde-ver-partido-por-liga-mx-video-noticia/)
+- **Qué canal pasa Cruz Azul vs Atlas hoy: dónde ver GRATIS y EN VIVO el partido de la Liga MX**: [Link](https://www.365scores.com/es/news/cruz-azul-vs-atlas-donde-ver-gratis-vivo/)
+
+
+### north esporte clube - atlético mineiro (N/A, 14/01/2026 21:06 Lima)
+
+- **Diogo Alves explica escolha por Sampaoli em ficar em BH, elogia jovens e admite atuação abaixo em Montes Claros**: [Link](https://onefootball.com/en/news/diogo-alves-explica-escolha-por-sampaoli-em-ficar-em-bh-elogia-jovens-e-admite-atuacao-abaixo-em-montes-claros-42230347)
+- **Atlético-MG arranca empate fora de casa em jogo com polêmica nos acréscimos pelo campeonato Mineiro**: [Link](https://esportenewsmundo.com.br/atletico-mg-arranca-empate-fora-de-casa-em-jogo-com-polemica-nos-acrescimos-pelo-campeonato-mineiro/)
+- **Atlético empata com o North em Montes Claros**: [Link](https://atletico.com.br/atletico-empata-com-o-north-em-montes-claros/)
+
+
+### palmeiras vs (N/A, 14/01/2026 21:06 Lima)
+
+- **Palmeiras beat Santos in the first Paulistão derby**: [Link](https://ca.sports.yahoo.com/news/palmeiras-beat-santos-first-paulist-003100643.html)
+- **Barreal cleared on CBF BID, could face Palmeiras in Paulistão**: [Link](https://onefootball.com/fr/news/barreal-cleared-on-cbf-bid-could-face-palmeiras-in-paulistao-42229276)
+- **Goal and Highlights: Palmeiras vs Santos in Paulista Championship (1-0)**: [Link](https://www.vavel.com/en-us/soccer/2026/01/14/1247206-palmeiras-vs-santos-live-score-paulista.html)
+
+
+### racing de santander vs. barcelona (N/A, 14/01/2026 21:06 Lima)
+
+- **Barcelona hoy: alineación probable vs Racing de Santander por la Copa del Rey**: [Link](https://www.365scores.com/es/news/barcelona-alineacion-probable-vs-racing/)
+- **José Alberto: "Nuestra afición lleva trece años tragando mierda"**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20260114/1002601269/jose-alberto-nuestra-aficion-lleva-trece-anos-tragando-mierda.html)
+- **¿En qué canal ver FC Barcelona - Racing EN VIVO HOY 15 de enero por La Copa del Rey 2026 en España, México y Estados Unidos?**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/en-que-canal-ver-fc-barcelona-racing-en-vivo-hoy-15-de-enero-por-la-copa-del-rey-2026-en-espana-mexico-y-estados-unidos-nnda-nnrt-noticia/)
+
+
+### fluminense vs (N/A, 14/01/2026 21:06 Lima)
+
+- **Atletico Mineiro Reveal & Debut First-Ever Kits From Nike**: [Link](https://www.soccerbible.com/performance/football-apparel/2026/01/atletico-mineiro-reveal-debut-first-ever-kits-from-nike/)
+- **Nike and Clube Atlético Mineiro Unveil Their 2026 Home Kit**: [Link](https://www.versus.uk.com/articles/nike-and-clube-atletico-mineiro-unveil-their-2026-home-kit/)
+- **Gremio vs. Atlético Mineiro - Boxscore - Live Score - February 25, 2026**: [Link](https://www.foxsports.com/soccer/brazil-serie-a-gremio-vs-atletico-mineiro-feb-25-2026-game-boxscore-648099?tab=boxscore)
+
+
+### rm vs (N/A, 14/01/2026 21:06 Lima)
+
+- **'If Flick hadn't come, I would have left Barca' - Raphinha**: [Link](https://www.bbc.com/sport/football/articles/crmlk8zgrzyo)
+- **How Barcelona won Supercopa; Man United exit FA Cup; Frank in trouble at Spurs; more**: [Link](https://www.espn.com/soccer/story/_/id/47589301/barcelona-real-madrid-spanish-supercopa-manchester-united-fa-cup-thomas-frank-tottenham-gab-marcotti)
+- **How Barcelona’s balanced attack is helping them get the better of Real Madrid - The Athletic**: [Link](https://www.nytimes.com/athletic/6963051/2026/01/12/barcelona-attacking-balance-real-madrid/)
+
+
+### jefté betancor (N/A, 14/01/2026 21:06 Lima)
+
+- **'I'm to blame' - Real Madrid stunned by Albacete in Arbeloa's first game**: [Link](https://www.bbc.com/sport/football/live/cy8pe7x2ekvt)
+- **Carvajal: We Have Hit Rock Bottom, and We Will Fight for Everything**: [Link](https://www.ysscores.com/en/news/13890990/Carvajal:-We-Have-Hit-Rock-Bottom,-and-We-Will-Fight-for-Everything)
+- **Arbeloa: "We all leave hurt, we have to pick ourselves up and go for the game on Saturday"**: [Link](https://www.realmadrid.com/en-US/news/football/first-team/press-conference/rueda-de-prensa-arbeloa-post-albacete-rm-octavos-copa-14-01-2026)
+
+
 ### az - ajax (N/A, 14/01/2026 15:28 Lima)
 
 - **Live KNVB-beker | AZ razendsnel op voorsprong tegen Ajax**: [Link](https://www.nu.nl/voetbal/6382592/live-knvb-beker-az-razendsnel-op-voorsprong-tegen-ajax.html)
@@ -959,75 +1029,5 @@ Sin noticias relacionadas disponibles.
 - **Team news for Man Utd v Brighton | Emirates FA Cup third-round tie | 11 Jan 2026**: [Link](https://www.manutd.com/en/news/detail/team-news-for-man-utd-v-brighton-fa-cup-third-round-2026)
 - **Manchester United Invite Brighton to Old Trafford for FA Cup Clash**: [Link](https://www.dawan.africa/news/manchester-united-invite-brighton-to-old-trafford-for-fa-cup-clash)
 - **Fletcher on the FA Cup: ‘Given the current season, this is a trophy that Manchester United should be fighting for’**: [Link](https://tribuna.com/en/news/2026-01-11-fletcher-on-the-fa-cup-given-the-current-season-this-is-a-trophy-that-manchester-united-s/)
-
-
-### bayern - wolfsburg (N/A, 11/01/2026 11:31 Lima)
-
-- **Bayern – Wolfsburg: Aufstellung da! Kompany baut auf 4 Positionen um**: [Link](https://sportbild.bild.de/fussball/fc-bayern-muenchen/bayern-wolfsburg-aufstellung-da-kompany-baut-auf-4-positionen-um-6963c9936d4e9eba622751f5)
-- **Bundesliga heute: Bayern - Wolfsburg LIVE im TV, Liveticker & Livestream**: [Link](https://www.sport1.de/news/fussball/bundesliga/2026/01/bundesliga-heute-bayern-wolfsburg-live-im-tv-liveticker-livestream)
-- **Bayern-Trainer Vincent Kompany hat hervorragenden Punkteschnitt**: [Link](https://sport.sky.de/fussball/artikel/bayern-trainer-vincent-kompany-hat-hervorragenden-punkteschnitt/13492005/33895)
-
-
-### sheffield united (N/A, 11/01/2026 11:31 Lima)
-
-- **Blades v Mansfield - confirmed teams**: [Link](https://www.sufc.co.uk/news/2026/january/11/blades-v-mansfield/)
-- **SUFC News: United’s cup approach outlined as Clough return offers timely reminder**: [Link](https://www.thestar.co.uk/sport/football/sheffield-united/chris-wilder-sheffield-united-fa-cup-approach-nigel-clough-mansfield-town-5470110)
-- **Wilder Makes “Ridiculously Inexperienced” Remark As Sheffield United Prepare For Stags Match**: [Link](https://sheffunitedway.co.uk/2026/01/09/wilder-makes-ridiculously-inexperienced-remark-as-sheffield-united-prepare-for-stags-match/)
-
-
-### copa fa (N/A, 11/01/2026 11:31 Lima)
-
-- **¡EN VIVO! Arsenal quiere prolongar su buen momento ante Portsmouth en FA Cup**: [Link](https://www.espn.com.pe/futbol/inglaterra/nota/_/id/16160644/arsenal-vs-portsmouth-tercera-ronda-fa-cup-equipo-fecha-hora-y-tv-en-vivo)
-- **Arsenal goleó al Portsmouth en la Copa FA**: [Link](https://ovacion.pe/noticias/futbol-internacional/arsenal-goleo-al-portsmouth-copa-fa)
-- **Tercera ronda de la Copa FA: el Arsenal lidera al Portsmouth 2-1, pero el penalti de Madduk falla**: [Link](https://www.elpueblo.pe/deportes/tercera-ronda-de-la-copa-fa-el-arsenal-lidera-al-portsmouth-2-1-pero-el-penalti-de-madduk-falla/205782/)
-
-
-### west ham (N/A, 11/01/2026 11:31 Lima)
-
-- **How can I watch City v Everton on TV?**: [Link](https://www.mancity.com/news/womens/man-city-everton-wsl-tv-information-63903723)
-- **Formidable Man City pick up where they left off**: [Link](https://www.skysports.com/football/news/11095/13492916/man-city-women-beat-everton-women-to-maintain-wsl-lead-as-chelsea-women-thump-west-ham-women-wsl-round-up)
-- **Blues Controversially Beaten By League Leaders**: [Link](https://www.evertonfc.com/news/2026/january/11/Blues-Controversially-Beaten-By-League-Leaders/)
-
-
-### milan (N/A, 11/01/2026 11:31 Lima)
-
-- **Gallery: ‘A new Milan lurking’, ‘Loftus-Cheek for Gatti’ – Today’s front pages in Italy**: [Link](https://sempremilan.com/front-pages-italy-fiorentina-milan-gatti)
-- **Allegri: Modric ‘on the bench’ against Fiorentina, Leao ‘more concrete’**: [Link](https://football-italia.net/allegri-modric-bench-fiorentina-leao-concrete/)
-- **Rabiot ‘not worried’ about Milan Scudetto chances: ‘There is a long way to go until May’**: [Link](https://www.yardbarker.com/soccer/articles/rabiot_not_worried_about_milan_scudetto_chances_there_is_a_long_way_to_go_until_may/s1_17344_43309107)
-
-
-### levante - rcd espanyol (N/A, 11/01/2026 11:31 Lima)
-
-- **LaLiga EA Sports: Espanyol se enfrentará a Levante por la fecha 19**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-espanyol-se-enfrentara-a-levante-por-la-fecha-19-noticia-1671044)
-- **Todo lo que debes saber del Levante-Espanyol de la jornada 19 | LaLiga**: [Link](https://www.flashscore.pe/noticias/futbol-laliga-ea-sports-previa-del-levante-espanyol-curiosidades-estadisticas-datos-y-anecdotas/W84bekuh/)
-- **Levante - Espanyol live**: [Link](https://www.marca.com/en/soccer/laliga-ea-sports/levante-espanyol/2026/01/11/01_0101_20260111_855_177-live.html)
-
-
-### rayo vallecano - r.c.d. mallorca (N/A, 11/01/2026 07:52 Lima)
-
-- **Rayo Vallecano - Mallorca, en directo: LaLiga EA Sports, en vivo hoy**: [Link](https://as.com/futbol/primera/rayo-vallecano-mallorca-en-directo-laliga-ea-sports-en-vivo-hoy-f202601-d/)
-- **Apuestas y Pronóstico del Rayo Vallecano vs Mallorca 11/01/26**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2026/enero/pronostico-rayo-vallecano-vs-mallorca-11-01-26)
-- **Iñigo Pérez: “La victoria de mañana son 3 puntos más, el devenir de la competición no se va a solucionar mañana”**: [Link](https://onefootball.com/fr/news/inigo-perez-la-victoria-de-manana-son-3-puntos-mas-el-devenir-de-la-competicion-no-se-va-a-solucionar-manana-42207487)
-
-
-### heerenveen - feyenoord (N/A, 11/01/2026 07:52 Lima)
-
-- **Live Eredivisie | Feyenoord op voorsprong in Heerenveen, opstelling Ajax binnen**: [Link](https://www.nu.nl/voetbal/6382219/live-eredivisie-feyenoord-op-voorsprong-in-heerenveen-opstelling-ajax-binnen.html)
-- **Van Persie: "Die verschillen ga je straks hopelijk wel zien"**: [Link](https://www.fr12.nl/nieuws/van-persie-die-verschillen-ga-je-straks-hopelijk-wel-zien)
-- **LIVE | SC Heerenveen ziet Jacob Trenskow in de openingsfase geblesseerd uitvallen tegen Feyenoord**: [Link](https://lc.nl/sport/sc-heerenveen/live-sc-heerenveen-ziet-jacob-trenskow-in-de-openingsfase-geblesseerd-uitvallen-tegen-feyenoord-48245527.html)
-
-
-### lecce - parma (N/A, 11/01/2026 07:52 Lima)
-
-- **LIVE Lecce-Parma 1-0: il giallo a Banda diventa giustamente rosso. Crisi di pianto per l'esterno**: [Link](https://www.gazzetta.it/Calcio/Serie-A/11-01-2026/lecce-parma-live-risultato-gol-diretta-serie-a.shtml)
-- **Di Francesco: “Camarda in tribuna? Ecco come sta. Su Coulibaly rientrato dalla Coppa d’Africa…”**: [Link](https://www.sosfanta.com/news/di-francesco-camarda-in-tribuna-ecco-come-sta-su-coulibaly-rientrato-dalla-coppa-dafrica/)
-- **LECCE-PARMA, I CONSIGLI FANTAPAZZ AL FANTACALCIO**: [Link](https://www.stadiotardini.it/2026/01/lecce-parma-i-consigli-fantapazz-al-fantacalcio.html)
-
-
-### derby county - leeds (N/A, 11/01/2026 07:52 Lima)
-
-- **Derby v Leeds United: FA Cup third round – live**: [Link](https://www.theguardian.com/football/live/2026/jan/11/derby-v-leeds-united-fa-cup-third-round-live)
-- **FROM SPYGATE TO OPERATION MINCEMEAT**: [Link](https://www.pressreader.com/uk/daily-star-sunday/20260111/283029765993361)
-- **FA Cup Tipsheet: Best bets and predictions for Sunday's third round contests**: [Link](https://betting.betfair.com/football/fa-cup/fa-cup-tipsheet-best-bets-and-predictions-for-sundays-third-round-contests-080126-904.html)
 
 
