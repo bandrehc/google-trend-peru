@@ -1,3 +1,73 @@
+### ac milan (N/A, 15/01/2026 15:32 Lima)
+
+- **GdS: Allegri turns to Leao and Nkunku – why Pulisic will not start against Como**: [Link](https://sempremilan.com/allegri-leao-pulisic-why-pulisic-como)
+- **Serie A official Week 16 line-ups: Como vs. Milan**: [Link](https://football-italia.net/serie-a-official-week-16-line-ups-como-v-milan/)
+- **Fabregas: ‘Allegri is the Number One’ at explaining football to players**: [Link](https://onefootball.com/pt-br/noticias/fabregas-allegri-is-the-number-one-at-explaining-football-to-players-42235328)
+
+
+### racing (N/A, 15/01/2026 15:32 Lima)
+
+- **Cadillac chief fires first shot as iconic rivalry set for F1 first**: [Link](https://racingnews365.com/cadillac-chief-fires-first-shot-as-iconic-rivalry-set-for-f1-first)
+- **Explained: Ford’s racing history and its partnership with Red Bull**: [Link](https://www.redbull.com/al-sq/ford-motorsports-racing-history)
+- **Formula 1 Showdown: GM vs Ford Sparks Rivalry Ahead of 2026**: [Link](https://bvmsports.com/2026/01/15/formula-1-showdown-gm-vs-ford-sparks-rivalry-ahead-of-2026/)
+
+
+### joão cancelo (N/A, 15/01/2026 15:32 Lima)
+
+- **Journalist reveals new Barcelona signing’s love for the club – ‘He is very Culer’**: [Link](https://barcauniversal.com/journalist-reveals-new-barcelona-signings-love-for-the-club-he-is-very-culer/)
+- **João Cancelo and His Multi-Million Euro Journey Through European Football**: [Link](https://www.beinsports.com/en-us/soccer/la-liga/articles/jo-o-cancelo-and-his-multi-million-euro-journey-through-european-football-2026-01-14)
+- **Joao Cancelo: the €145 million defender**: [Link](https://www.mundodeportivo.com/us/en/20260114/738141/joao-cancelo-the-145-million-defender.html)
+
+
+### grizzlies - magic (N/A, 15/01/2026 15:32 Lima)
+
+- **Live Updates: NBA Berlin Game, Grizzlies vs. Magic**: [Link](https://www.nba.com/news/live-updates-nba-berlin-game)
+- **Wagner Brothers Key to Orlando taking down Memphis in Berlin**: [Link](https://www.si.com/nba/magic/onsi/news/wagner-brothers-key-to-orlando-taking-down-memphis-in-berlin-01kf18se6tz2)
+- **DraftKings Pick6 promo code gives new users $50 for NBA in Berlin today**: [Link](https://www.pickswise.com/news/draftkings-pick6-promo-code-gives-new-users-50-for-nba-in-berlin-today/)
+
+
+### valencia (N/A, 15/01/2026 15:32 Lima)
+
+- **Valencia + Segura se extiende al área metropolitana para reforzar la seguridad ciudadana**: [Link](https://valencianews.es/valencia/valencia-segura-se-extiende-al-area-metropolitana-para-reforzar-la-seguridad-ciudadana/)
+- **Xirivella se une a València en el programa de formación ciudadana ante emergencias**: [Link](https://www.levante-emv.com/horta/2026/01/15/xirivella-une-valencia-programa-formacion-125725072.html)
+- **El plan València + Segura se extiende al área metropolitana con Xirivella como primer municipio adherido**: [Link](https://actualidadvalencia.com/valencia-segura-area-metropolitana-xirivella/)
+
+
+### valencia vs (N/A, 15/01/2026 15:32 Lima)
+
+- **Qué canal pasa Burgos vs Valencia hoy: dónde ver gratis y EN VIVO la Copa del Rey**: [Link](https://www.365scores.com/es/news/burgos-vs-valencia-donde-ver-gratis-copa/)
+- **Apuestas y Pronóstico del Burgos vs Valencia 15/01/26**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/2026/enero/pronostico-burgos-vs-valencia-15-01-26)
+- **La próxima cita del Valencia: cuándo juega los octavos de final de la Copa del Rey**: [Link](https://www.levante-emv.com/valencia-cf/2026/01/14/valencia-cf-octavos-final-copa-del-rey-burgos-dv-125684707.html)
+
+
+### union berlin vs (N/A, 15/01/2026 15:32 Lima)
+
+- **Confirmed Lineups: FC Augsburg vs. Union Berlin**: [Link](https://sports.yahoo.com/articles/confirmed-lineups-fc-augsburg-vs-183300081.html)
+- **FC Augsburg vs Union Berlin Prediction, 1/15/2026 Soccer Pick, Tips and Odds**: [Link](https://www.docsports.com/free-picks/soccer/2026/fc-augsburg-vs-union-berlin-prediction-1-15-2026-soccer-pick-tips-and-odds.html)
+- **Augsburg vs. Union Berlin: Bundesliga betting odds, prediction, pick**: [Link](https://www.usatoday.com/story/sports/soccer/2026/01/15/augsburg-vs-union-berlin-bundesliga-betting-odds-prediction-pick/88189533007/)
+
+
+### union berlin (N/A, 15/01/2026 15:32 Lima)
+
+- **"Donnerstags-Experte" Zieler - Novum für Augsburg und Union**: [Link](https://www.kicker.de/donnerstags-experte-zieler-novum-fuer-augsburg-und-union-1183240/artikel)
+- **Bundesliga LIVE: Infos, News und Liveticker zum 17. Spieltag | Flashscore.de**: [Link](https://www.flashscore.de/news/fu-ball-bundesliga-bundesliga-live-claude-maurice-trifft-aus-dem-nichts-fanproteste-der-fca-fans/QqgAkzbt/)
+- **Gregoritsch stürmt gegen Union Berlin**: [Link](https://www.fcaugsburg.de/article/gregoritsch-stuermt-gegen-union-berlin-22761)
+
+
+### racing de santander - barcelona (N/A, 15/01/2026 15:32 Lima)
+
+- **Racing - Barcelona, en directo: octavos Copa del Rey, hoy en vivo**: [Link](https://as.com/futbol/copa_del_rey/racing-barcelona-en-directo-octavos-copa-del-rey-hoy-en-vivo-f202601-d/)
+- **Canales TV que transmiten partido FC Barcelona - Racing EN VIVO y EN DIRECTO por Copa del Rey 2026 en España, México y EE.UU. | MAG**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/en-que-canal-ver-fc-barcelona-racing-en-vivo-hoy-15-de-enero-por-la-copa-del-rey-2026-en-espana-mexico-y-estados-unidos-nnda-nnrt-noticia/)
+- **Aplausos por lo que dice el entrenador del Racing antes del partido contra el Barça: "Me importa cero lo que piensen"**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20260115/1002601812/aplausos-dice-entrenador-racing-partido-barca-me-importa-cero-piensen.html)
+
+
+### como - milan (N/A, 15/01/2026 15:32 Lima)
+
+- **Milan visita a Como en un gran partido en busca del liderazgo de la Serie A**: [Link](https://www.espn.com.pe/futbol/italia/nota/_/id/16180098/como-vs-milan-por-la-serie-a-2026-equipo-fecha-hora-y-tv-en-vivo)
+- **Al equipo de Cesc se le atragantan los más grandes del Calcio**: [Link](https://www.flashscore.pe/noticias/futbol-serie-a-cesc-fabregas-hinca-rodilla-nobleza-italia/CAjYzzM8/)
+- **¡Continuo! En directo por ANTV, el AC Milan se enfrenta a un club de la rica Indonesia que está lleno de sorpresas**: [Link](https://www.ucvradio.pe/mas-actualidad/continuo-en-directo-por-antv-el-ac-milan-se-enfrenta-a-un-club-de-la-rica-indonesia-que-esta-lleno-de-sorpresas/103882/)
+
+
 ### scotiabank (N/A, 15/01/2026 11:41 Lima)
 
 - **Personal-trading probe led to firing of two Scotiabank analysts**: [Link](https://financialpost.com/fp-work/personal-trading-probe-led-to-firing-of-two-scotiabank-analysts)
@@ -958,75 +1028,5 @@ Sin noticias relacionadas disponibles.
 - **Adolscence: How many awards did Netflix's limited series bag at Golden Globes 2026?**: [Link](https://www.wionews.com/photos/adolscence-how-many-awards-did-netflix-s-limited-series-bag-at-golden-globes-2026-1768190593135)
 - **Pic Of The Day: Leonardo DiCaprio Poses With Golden Globes Winner Owen Cooper**: [Link](https://www.ndtv.com/entertainment/pic-of-the-day-leonardo-di-caprio-poses-with-golden-globes-winner-owen-cooper-10713396)
 - **'Adolescence's Owen Cooper Bags Golden Globe After Emmy, His Salary From The Series And Net Worth**: [Link](https://www.bollywoodshaadis.com/articles/adolesence-owen-cooper-golden-globe-73574)
-
-
-### julia roberts (N/A, 11/01/2026 23:54 Lima)
-
-- **Julia Roberts and Husband Danny Moder Step Out for Rare Public Date Night at 2026 Golden Globes**: [Link](https://people.com/golden-globes-2026-julia-roberts-danny-moder-have-rare-date-night-11883270)
-- **Julia Roberts Details “Life-Affirming” Party With Ayo Edebiri, Andrew Garfield Ahead of Golden Globes**: [Link](https://www.eonline.com/news/1427088/golden-globes-2026-julia-roberts-party-with-ayo-edebiri-andrew-garfield)
-- **Julia Roberts Wore A Wild Red Necklace To The Golden Globes, And I Can't Take My Eyes Off It**: [Link](https://www.inkl.com/news/julia-roberts-wore-a-wild-red-necklace-to-the-golden-globes-and-i-can-t-take-my-eyes-off-it)
-
-
-### hamnet (N/A, 11/01/2026 23:54 Lima)
-
-- **2026 Golden Globes live updates: Full list of winners as 'One Battle After Another' and 'Hamnet' take home top film nods; 'Adolescence' recognized for TV with 4 wins**: [Link](https://www.yahoo.com/entertainment/celebrity/live/2026-golden-globes-live-updates-full-list-of-winners-as-one-battle-after-another-and-hamnet-take-home-top-film-nods-adolescence-recognized-for-tv-with-4-wins-000306961.html)
-- **Live updates: The 2026 Golden Globes**: [Link](https://www.cnn.com/entertainment/live-news/golden-globes-01-11-26)
-- **Golden Globes 2026 Highlights: ‘One Battle After Another’ Dominates the Night**: [Link](https://www.vanityfair.com/live/golden-globes-2026-live-updates)
-
-
-### pluribus (N/A, 11/01/2026 23:54 Lima)
-
-- **Rhea Seehorn Wins Golden Globe for Best Actress in TV Drama**: [Link](https://variety.com/2026/tv/news/rhea-seehorn-golden-globes-best-actor-tv-drama-1236623747/)
-- **Rhea Seehorn Recalls Signing Up for Pluribus Before Seeing the Script — and Now She Has a Best Actress Award for It**: [Link](https://people.com/rhea-seehorn-recalls-signing-up-for-pluribus-before-seeing-script-best-actress-apple-tv-11879664)
-- **How Rhea Seehorn Reacted to Winning Best Actress in a TV Drama Series at the 2026 Golden Globes**: [Link](https://www.elle.com/culture/celebrities/a69966691/rhea-seehorn-best-actress-tv-drama-golden-globes-speech-transcript-2026/)
-
-
-### dakota fanning (N/A, 11/01/2026 23:54 Lima)
-
-- **Elle Fanning Says Big Sister Dakota Fanning Has 'Promised Not to Boss Me Around' on Their New Movie Set**: [Link](https://people.com/golden-globes-2026-elle-fanning-dakota-sister-dakota-promised-not-to-boss-me-around-11883202)
-- **Elle Fanning speaks candidly about upcoming movie 'The Nightingale'**: [Link](https://www.thenews.com.pk/latest/1387224-elle-fanning-speaks-candidly-about-upcoming-movie-the-nightingale)
-- **What Dakota Fanning Promised Elle Fanning Before The Nightingale**: [Link](https://www.yahoo.com/entertainment/movies/articles/dakota-fanning-promised-elle-fanning-004818276.html)
-
-
-### heated rivalry (N/A, 11/01/2026 23:54 Lima)
-
-- **'Heated Rivalry' Stars Hudson Williams and Connor Storrie Set the Red Carpet on Fire in 2026 Golden Globes Debut**: [Link](https://people.com/golden-globes-2026-heated-rivalry-stars-hudson-williams-connor-storrie-red-carpet-photos-11883049)
-- **Connor Storrie’s Sunglasses Are a Golden Globes Winner**: [Link](https://www.yahoo.com/entertainment/celebrity/articles/connor-storrie-sunglasses-golden-globes-033208253.html)
-- **The 'Heated Rivalry' Boys Hit the Fashion Big Leagues at the 2026 Golden Globes**: [Link](https://www.gq.com/story/golden-globes-2026-heated-rivalry-hudson-williams-connor-storrie)
-
-
-### carlos alvarez (N/A, 11/01/2026 23:54 Lima)
-
-- **Elecciones 2026: Rafael López Aliaga alcanza el 12 %, mientras la mayoría de peruanos sigue sin definir por quién votar**: [Link](https://www.infobae.com/peru/2026/01/11/elecciones-2026-rafael-lopez-aliaga-alcanza-el-12-mientras-la-mayoria-de-peruanos-sigue-sin-definir-por-quien-votar/)
-- **Elecciones 2026: solo 12% de peruanos ya decidió su voto presidencial, según Datum**: [Link](https://caretas.pe/politica/elecciones-2026-solo-12-de-peruanos-ya-decidio-su-voto-presidencial-segun-datum/)
-- **Datum: Rafael López Aliaga encabeza intención de voto con 12%**: [Link](https://www.americatv.com.pe/noticias/actualidad/datum-rafael-lopez-aliaga-encabeza-intencion-voto-12-n514716)
-
-
-### presidente de venezuela (N/A, 11/01/2026 23:54 Lima)
-
-- **¿Quién es "Nicolasito", hijo del derrocado presidente de Venezuela, y de qué lo acusa EE.UU.?**: [Link](https://cnnespanol.cnn.com/2026/01/09/venezuela/perfil-nicolasito-maduro-guerra-hijo-presidente-orix)
-- **Maduro dice estar "bien" en prisión en EE.UU., según su hijo**: [Link](https://www.dw.com/es/maduro-dice-estar-bien-en-prisi%C3%B3n-en-eeuu-seg%C3%BAn-su-hijo/a-75463094)
-- **El hijo de Maduro, hombre clave en la nueva etapa**: [Link](https://elpais.com/america/2026-01-07/el-hijo-de-maduro-hombre-clave-en-la-nueva-etapa.html)
-
-
-### kpop demon hunters (N/A, 11/01/2026 23:54 Lima)
-
-- **Golden Globes live updates: Timothée Chalamet wins best actor in musical or comedy film**: [Link](https://apnews.com/live/golden-globes-2026-updates)
-- **‘KPop Demon Hunters’ mastermind talks sequel following big Globes win: ‘Hopefully it will mean something to people’**: [Link](https://www.yahoo.com/entertainment/movies/articles/kpop-demon-hunters-mastermind-talks-035500525.html)
-- **Kpop Demon Hunters ’ “Golden” Wins Best Original Song at 2026 Golden Globes**: [Link](https://pitchfork.com/news/kpop-demon-hunters-golden-wins-best-original-song-at-2026-golden-globes/)
-
-
-### sinners (N/A, 11/01/2026 23:54 Lima)
-
-- **Ludwig Göransson Wins Best Original Score at 2026 Golden Globes for Sinners**: [Link](https://pitchfork.com/news/ludwig-goransson-wins-best-original-score-at-2026-golden-globes-for-sinners/)
-- **Ryan Coogler Admits at Golden Globes to Not Knowing if People “Would Show Up” to See ‘Sinners’**: [Link](https://www.hollywoodreporter.com/movies/movie-news/2026-golden-globes-box-office-ryan-coogler-sinners-1236470006/)
-- **‘Sinners’ Wins Two Golden Globes, Upset By ‘Hamnet’ For Best Drama**: [Link](https://www.forbes.com/sites/tonifitzgerald/2026/01/11/sinners-wins-two-golden-globes-upset-by-hamnet-for-best-drama/)
-
-
-### hailee steinfeld (N/A, 11/01/2026 23:54 Lima)
-
-- **Hailee Steinfeld Debuts Her Baby Bump on the 2026 Golden Globes Red Carpet**: [Link](https://www.vogue.com/article/hailee-steinfeld-baby-bump-2026-golden-globes)
-- **Josh Allen Drools Over Pregnant Wife Hailee Steinfeld's 2026 Golden Globes Outfit After She Hits Carpet Solo**: [Link](https://people.com/golden-globes-2026-josh-allen-drools-over-pregnant-wife-hailee-steinfeld-outfit-11883293)
-- **Hailee Steinfeld Arrives at Golden Globes 2026 After Husband Josh Allen’s NFL Playoff Win with the Bills!**: [Link](https://www.justjared.com/2026/01/11/hailee-steinfeld-arrives-at-golden-globes-2026-after-husband-josh-allens-nfl-playoff-win-with-the-bills/)
 
 
