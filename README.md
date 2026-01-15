@@ -1,3 +1,38 @@
+### weather (N/A, 15/01/2026 07:57 Lima)
+
+- **Arctic front causes intense lake-effect snowstorm for the Midwest | Latest Weather Clips**: [Link](https://www.foxweather.com/watch/fmc-32tobnf5h607aibr)
+- **Crews work to make Michiana roads safe with snowfall**: [Link](https://www.wndu.com/2026/01/15/crews-work-make-michiana-roads-safe-with-snowfall/)
+- **Wind and cold move back in**: [Link](https://www.wlfi.com/video/wind-and-cold-move-back-in/video_26c0f7cd-7c89-5216-926b-595c3adf61fc.html)
+
+
+### australian open (N/A, 15/01/2026 07:57 Lima)
+
+- **Australian Open Million Dollar One Point Slam: Amateur Jordan Smith stuns world's best**: [Link](https://www.bbc.com/sport/tennis/articles/ckgyl1ndw57o)
+- **Coco Gauff’s serve costs her a chance at $1 million in Australia**: [Link](https://www.hitc.com/coco-gauffs-serve-costs-her-a-chance-at-1-million-in-australia/)
+- **How close Carlos Alcaraz and Jannik Sinner were to winning $1 million at the One Point Slam**: [Link](https://www.thetennisgazette.com/news/how-close-carlos-alcaraz-and-jannik-sinner-were-to-winning-1-million-at-the-one-point-slam/)
+
+
+### clima lima (N/A, 15/01/2026 07:57 Lima)
+
+- **SENAMHI: Pronóstico del clima hoy jueves 15 de enero 2026**: [Link](https://rpp.pe/peru/actualidad/senamhi-pronostico-del-clima-hoy-jueves-15-de-enero-2026-noticia-1671638)
+- **Senamhi, pronóstico del clima HOY en Lima: temperaturas mínimas y máximas para este jueves 15 de enero de 2026**: [Link](https://www.expreso.com.pe/actualidad/senamhi-pronostico-del-clima-hoy-en-lima-temperaturas-minimas-y-maximas-para-este-jueves-15-de-enero-de-2026-invierno-verano-otono-primavera-soleado-calor-humedad-neblina-tiempo-noticia/1255154/)
+- **¿Cómo estará hoy el clima en Lima? Senamhi da su pronóstico para este martes 13 de enero**: [Link](https://www.infobae.com/peru/2026/01/13/como-estara-hoy-el-clima-en-lima-senamhi-da-su-pronostico-para-este-martes-13-de-enero/)
+
+
+### la tinka resultados (N/A, 15/01/2026 07:57 Lima)
+
+- **La Tinka: revisa los resultados del 14 de enero y comprueba si tu jugada fue una de las 13 premiadas**: [Link](https://www.infobae.com/peru/2026/01/15/la-tinka-consulta-los-resultados-del-14-de-enero-y-confirma-si-tu-jugada-fue-premiada/)
+- **Resultados de La Tinka del miércoles 14 de enero: sorteo y números de la jugada ganadora del pozo millonario**: [Link](https://depor.com/peru/la-tinka-en-vivo-hoy-miercoles-14-de-enero-2026-ver-resultados-numeros-ganadores-del-ultimo-sorteo-quien-gano-pozo-millonario-intralot-boliyapa-loterias-de-peru-noticia/)
+- **Resultados de La Tinka: números ganadores de los 50 mil soles del miércoles 14 de enero**: [Link](https://elcomercio.pe/respuestas/loterias/resultados-de-la-tinka-hoy-miercoles-14-de-enero-2026-en-vivo-ultimo-sorteo-numeros-y-jugada-ganadora-tinkanet-pozo-millonario-resultado-si-o-si-boliyapa-intralot-lbposting-noticia/)
+
+
+### lluvia (N/A, 15/01/2026 07:57 Lima)
+
+- **La Aemet avisa de que el frío traerá nevadas a “áreas más bajas” de España: estás son las regiones en las que se espera nieve**: [Link](https://www.infobae.com/espana/2026/01/15/la-aemet-avisa-de-que-el-frio-traera-nevadas-a-areas-mas-bajas-de-espana-estas-son-las-regiones-en-las-que-se-espera-nieve/)
+- **La niebla da paso a un día que terminará con lluvia: toda la previsión de César Gonzalo**: [Link](https://www.antena3.com/noticias/el-tiempo/la-prevision/niebla-paso-dia-que-terminara-lluvia-toda-prevision-cesar-gonzalo_202601156968bc1f384d9f038d8aa31e.html)
+- **El tiempo de este jueves 15 de enero: vuelven la inestabilidad y las lluvias en la Península**: [Link](https://www.rtve.es/play/videos/el-tiempo/tiempo-este-jueves-15-enero/16894935/)
+
+
 ### campeonato gaúcho (N/A, 15/01/2026 03:37 Lima)
 
 - **Garanta ingresso para o duelo do Inter com Monsoon**: [Link](https://internacional.com.br/noticias/servico-de-jogo/garanta-ingresso-para-o-duelo-do-inter-com-monsoon)
@@ -993,40 +1028,5 @@ Sin noticias relacionadas disponibles.
 - **This is the seed order for the Australian Open 2026**: [Link](https://www.puntodebreak.com/en/2026/01/11/this-is-the-seed-order-for-the-australian-open-2026)
 - **Australian Open 2026: Schedule of Play for Monday January 12**: [Link](https://tennisconnected.com/australian-open-2026-schedule-of-play-for-monday-january-12/)
 - **Top Seeds Carlos Alcaraz and Aryna Sabalenka Lead Australian Open Draw**: [Link](https://news.ssbcrack.com/top-seeds-carlos-alcaraz-and-aryna-sabalenka-lead-australian-open-draw/)
-
-
-### river plate - millonarios (N/A, 11/01/2026 21:19 Lima)
-
-- **River Plate vs. Millonarios EN VIVO por Disney Plus: transmisión del partido**: [Link](https://libero.pe/futbol-internacional/2026/01/10/river-plate-vs-millonarios-en-vivo-gratis-serie-rio-de-plata-via-espn-disney-plus-lbev-907940)
-- **El verano de River: ¿cuándo y contra quién juega amistosos?**: [Link](https://www.espn.com.ar/futbol/nota/_/id/16133888/river-plate-verano-pretemporada-2026-fixture-calendario-resultados-como-ver-tv-en-vivo)
-- **Clásico sudamericano: ¿A qué hora juega Millonarios vs. River?**: [Link](https://espndeportes.espn.com/futbol/nota/_/id/16168913/serie-rio-de-la-plata-2026-a-que-hora-juega-como-ver-en-vivo-millonarios-vs-river-plate)
-
-
-### inter vs (N/A, 11/01/2026 15:28 Lima)
-
-- **En un partidazo, Inter defiende la cima de la Serie A ante Napoli**: [Link](https://www.espn.com.pe/futbol/italia/nota/_/id/16162931/inter-vs-napoli-fecha-20-serie-a-equipo-fecha-hora-y-tv-en-vivo)
-- **Serie A: Inter marcha como líder y busca llevarse los 3 puntos para mantenerse en la cima**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-inter-marcha-como-lider-y-busca-llevarse-los-3-puntos-para-mantenerse-en-la-cima-noticia-1671065)
-- **Inter vs Napoli: ¡Incrementa tus ganancias hasta 200% con la Serie A en Meridianbet!**: [Link](https://ovacion.pe/noticias/nota-promocional/inter-vs-napoli-incrementa-tus-ganancias-hasta-200-serie-meridianbet)
-
-
-### marca (N/A, 11/01/2026 15:28 Lima)
-
-- **Supercopa de Turquía: Jhon Durán gana su primer título en Fenerbahce vs Galatasaray**: [Link](https://www.espn.com.pe/futbol/nota/_/id/16165987/jhon-duran-gano-su-primer-titulo-como-profesional-con-fenerbahce)
-- **(VIDEO) Fenerbahce ganó el "Clásico turco" y alzó la Supercopa**: [Link](https://ovacion.pe/noticias/futbol-internacional/video-fenerbahce-gano-clasico-turco-alzo-supercopa)
-- **Jhon Durán marca y Fenerbahce clasifica a la final de la Supercopa Turca**: [Link](https://www.espn.com.pe/futbol/nota/_/id/16152529/jhon-duran-marca-y-fenerbahce-clasifica-a-la-final-de-la-supercopa-turca)
-
-
-### lyon vs (N/A, 11/01/2026 15:28 Lima)
-
-- **Lille - Lyon, en directo: Copa de Francia, el debut de Endrick hoy en vivo**: [Link](https://as.com/futbol/internacional/lille-lyon-en-directo-copa-de-francia-el-debut-de-endrick-hoy-en-vivo-f202601-n/)
-- **Apuestas y Pronóstico del Lille vs Olympique Lyon 11/01/26**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/2026/enero/pronostico-lille-vs-olympique-lyon-11-01-26)
-- **Endrick debuta como titular con el Olympique de Lyon en el choque de la Copa de Francia contra el Lille**: [Link](https://tribuna.com/es/news/2026-01-11-endrick-debuta-como-titular-con-el-olympique-de-lyon-en-el-choque-de-la-copa-de-francia-c/)
-
-
-### gonzalo garcía (N/A, 11/01/2026 15:28 Lima)
-
-- **Lewandowski definió de gran manera y convirtió para Barcelona ante Real Madrid**: [Link](https://www.espn.com.ar/futbol/espana/nota/_/id/16170826/video-gol-de-robert-lewandowski-barcelona-vs-real-madrid-clasico-final-supercopa)
-- **VIDEO: Desde el piso y en el epílogo del primer tiempo, Gonzalo García señaló el 2 a 2 de Real Madrid ante ...**: [Link](https://www.directvsports.com/futbol/video-desde-el-piso-y-en-el-epilogo-del-primer-tiempo-gonzalo-garcia-senalo-el-2-a-2-de-real-madrid-ante-barcelona-20260111-0017.html)
-- **Pedro Martín sentencia sobre el exceso de tiempo añadido en la primera parte del Barcelona-Real Madrid en la Supercopa y explica la razón objetiva: "Se debería haber acabado al minuto 48"**: [Link](https://www.cope.es/programas/tiempo-de-juego/audios/pedro-martin-sentencia-sobre-exceso-anadido-primera-parte-barcelona-real-madrid-supercopa-explica-razon-objetiva-deberia-haber-acabado-minuto-48-20260111_3284289.html)
 
 
