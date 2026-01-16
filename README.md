@@ -1,3 +1,73 @@
+### atalanta (N/A, 16/01/2026 15:27 Lima)
+
+- **A new jack in Atalanta's deck: Raspadori is Nerazzurro**: [Link](https://en.atalanta.it/news/a-new-jack-in-atalanta-s-deck-raspadori-is-nerazzurro)
+- **Raspadori wants Napoli as Roma eye Villa forward Malen instead**: [Link](https://football-italia.net/raspadori-wants-napoli-as-roma-eye-villa-malen/)
+- **Massara shares update on Raspadori and Zirkzee**: [Link](https://romapress.net/massara-shares-update-on-raspadori-and-zirkzee/)
+
+
+### atalanta vs (N/A, 16/01/2026 15:27 Lima)
+
+- **‘There is no taboo-Arena; we must think positively.’**: [Link](https://pisasportingclub.com/en/there-is-no-taboo-arena-we-must-think-positively/)
+- **Serie A | Pisa vs Atalanta – Matchweek 21 Live Blog**: [Link](https://football-italia.net/serie-a-pisa-vs-atalanta-matchweek-21-live-blog/)
+- **Clash at Arena Garibaldi**: [Link](https://www.ilmessaggero.it/en/clash_at_arena_garibaldi-9299917.html)
+
+
+### watford (N/A, 16/01/2026 15:27 Lima)
+
+- **Coburn starts: Millwall team news and predicted XI to face Watford**: [Link](https://the72.co.uk/2026/01/16/millwall-team-news-predicted-xi-watford/)
+- **Expert EFL predictions and free football tips from Dan Childs: Hornets can grab another home win**: [Link](https://www.racingpost.com/sport/football-tips/efl/expert-efl-predictions-and-free-football-tips-from-dan-childs-aL09c9p42xeD/)
+- **Back to Championship action for Millwall's Head Coach**: [Link](https://www.millwallfc.co.uk/news/2026/january/16/back-to-championship-action-for-millwall-s-head-coach/)
+
+
+### real madrid - barça (N/A, 16/01/2026 15:27 Lima)
+
+- **Real Madrid - Barcelona en directo | Euroliga hoy en vivo**: [Link](https://www.marca.com/baloncesto/euroliga/real-madrid-barcelona/2026/01/16/02_0203_20260116_6210_6216-directo.html)
+- **Apuestas y Pronóstico del Real Madrid vs Barcelona 16/01/26**: [Link](https://www.oddschecker.com/es/pronosticos/otros-deportes/2026/enero/pronostico-real-madrid-vs-barcelona-16-01-26)
+- **Tavares: “El equipo está bien y vamos a dar el máximo”**: [Link](https://www.realmadrid.com/es-ES/noticias/baloncesto/primer-equipo/actualidad/tavares-declaraciones-15-01-2026)
+
+
+### pisa vs (N/A, 16/01/2026 15:27 Lima)
+
+- **Racing 0-2 Barcelona (15 de Ene., 2026) Resultado Final**: [Link](https://www.espn.com.pe/futbol/partido/_/juegoId/401846959/barcelona-racing-santander)
+- **Sporting vs. Casa Pia (16 de Ene., 2026) Resultados en Vivo**: [Link](https://www.espn.com.pe/futbol/partido/_/juegoId/750405)
+- **Pisa vs. Atalanta (16 de Ene., 2026) Resultados en Vivo**: [Link](https://www.espn.com.pe/futbol/partido/_/juegoId/736991)
+
+
+### liga francesa (N/A, 16/01/2026 15:27 Lima)
+
+- **PSG - Lille, en vivo: Ligue 1 en directo, hoy**: [Link](https://as.com/futbol/internacional/psg-lille-en-vivo-ligue-1-en-directo-hoy-f202601-n/)
+- **Liga de Francia: PSG necesita sumar de a 3 para escalar a la cima**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-de-francia-psg-necesita-sumar-de-a-3-para-escalar-a-la-cima-noticia-1671682)
+- **Pronóstico PSG Lille - Ligue 1 16/01/26**: [Link](https://www.sportytrader.com/es/pronosticos/psg-lille-318667/)
+
+
+### se cayó twitter (N/A, 16/01/2026 15:27 Lima)
+
+- **Se cayó X (antes Twitter) hoy, 16 de enero de 2026: qué pasó y a qué hora regresa la red social**: [Link](https://gestion.pe/mix/respuestas/se-cayo-x-antes-twitter-hoy-16-de-enero-de-2026-que-paso-y-a-que-hora-regresa-la-red-social-nnda-nnni-noticia/)
+- **La red social X sufre su segunda caída global en tres días**: [Link](https://elpais.com/tecnologia/2026-01-16/la-red-social-x-sufre-una-caida-global.html)
+- **La red social X, antes Twitter, sufrió caída global**: [Link](https://rpp.pe/tecnologia/redes-sociales/x-antes-twitter-sufre-caida-global-reportes-a-nivel-mundial-noticia-1671847)
+
+
+### castellón - leganés (N/A, 16/01/2026 15:27 Lima)
+
+- **Apuestas y Pronóstico del Castellón vs Leganés 16/01/26**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/2026/enero/pronostico-castellon-vs-leganes-16-01-26)
+- **Castellón - Leganés, en directo: LaLiga Hypermotion, hoy en vivo**: [Link](https://as.com/futbol/segunda/castellon-leganes-en-directo-laliga-hypermotion-hoy-en-vivo-f202601-d/)
+- **Castellón-Leganés: Duelo entre equipos recuperados**: [Link](https://onefootball.com/es/noticias/castellon-leganes-duelo-entre-equipos-recuperados-42237698)
+
+
+### psg vs lille (N/A, 16/01/2026 15:27 Lima)
+
+- **PSG Seek Redemption After Cup Shock as Arch-Rivals Lille Come Calling**: [Link](https://www.dawan.africa/news/psg-seek-redemption-after-cup-shock-as-arch-rivals-lille-come-calling)
+- **PSG vs Lille LIVE: Preview, Lineups and Ligue 1 Matchday 18**: [Link](https://www.beinsports.com/en-us/soccer/ligue-1/articles/live-psg-vs-lille-in-ligue-1-on-bein-sports-2026-01-16)
+- **Luis Enrique urges PSG to use shock Coupe de France exit as motivation**: [Link](https://www.fotmob.com/da/news/2noyil2dhhid18awlvahhyad6-luis-enrique-urges-psg-use-shock-coupe-de-france-exit-motivation)
+
+
+### frankfurt fc (N/A, 16/01/2026 15:27 Lima)
+
+- **BL: Stuttgart snatches victory against Frankfurt and climbs to 3rd place**: [Link](https://frenchfootballweekly.com/2026/01/15/bl-stuttgart-snatches-victory-against-frankfurt-and-climbs-to-3rd-place/)
+- **Dortmund outclass Bremen to tighten grip on second spot**: [Link](https://www.rfi.fr/en/sports/20260113-undav-scores-again-as-stuttgart-sink-frankfurt-to-go-third)
+- **Mönchengladbach vs. VfB Stuttgart - Boxscore - Live Score - January 25, 2026**: [Link](https://www.foxsports.com/soccer/bundesliga-b-mgladbach-vs-vfb-stuttgart-jan-25-2026-game-boxscore-631758?tab=boxscore)
+
+
 ### juan pablo varillas (N/A, 16/01/2026 11:36 Lima)
 
 - **Andrea Collarini es el único semifinalista argentino en el AAT Challenger y tres tenistas nacionales avanzaron a cuartos del W50**: [Link](https://www.infobae.com/deportes/2026/01/16/andrea-collarini-es-el-unico-semifinalista-argentino-en-el-aat-challenger-y-tres-tenistas-nacionales-avanzaron-a-cuartos-del-w50/)
@@ -962,75 +1032,5 @@ Sin noticias relacionadas disponibles.
 - **SENAMHI: Pronóstico del clima hoy martes 13 de enero 2026**: [Link](https://rpp.pe/peru/actualidad/senamhi-pronostico-del-clima-hoy-martes-13-de-enero-2026-noticia-1671341)
 - **Senamhi, pronóstico del clima HOY en Lima: temperaturas mínimas y máximas para este domingo 11 de enero de 2026**: [Link](https://www.expreso.com.pe/actualidad/senamhi-pronostico-del-clima-hoy-en-lima-temperaturas-minimas-y-maximas-para-este-domingo-11-de-enero-de-2026-invierno-verano-otono-primavera-soleado-calor-humedad-neblina-tiempo-noticia-2/1254145/)
 - **Calor y bochorno marcan el inicio del verano 2026 en Lima con temperaturas de hasta 29 °C**: [Link](https://diariocorreo.pe/edicion/lima/calor-y-bochorno-marcan-el-inicio-del-verano-2026-en-lima-con-temperaturas-de-hasta-29-c-noticia/)
-
-
-### stuttgart vs (N/A, 13/01/2026 03:37 Lima)
-
-- **Frankfurter Defensivprobleme: Toppmöller mit deutlicher Ansage**: [Link](https://www.90min.de/frankfurter-defensivprobleme-toppmoller-mit-deutlicher-ansage)
-- **VfB Stuttgart gegen Eintracht Frankfurt heute live: Wer überträgt die 1. Bundesliga im TV und Stream?**: [Link](https://www.swp.de/sport/sport-mix/vfb-stuttgart-gegen-eintracht-frankfurt-heute-live-wer-uebertraegt-die-1-bundesliga-im-tv-und-stream-78548718.html)
-- **Toppmöller erwägt Doppelspitze mit Kalimuendo und Ebnoutalib**: [Link](https://www.kicker.de/toppmoeller-erwaegt-doppelspitze-mit-kalimuendo-und-ebnoutalib-1183104/artikel)
-
-
-### peñarol vs central español (N/A, 13/01/2026 03:37 Lima)
-
-- **Diego Aguirre: "No da para sacar muchas conclusiones"**: [Link](https://www.espn.com.ar/futbol/uruguay/nota/_/id/16176380/diego-aguirre-penarol-central-copa-de-la-liga-auf-declaraciones-no-da-para-sacar-muchas-conclusiones)
-- **Peñarol tendrá su primera prueba en el año por la Copa de la Liga AUF ante Central Español**: [Link](https://espndeportes.espn.com/futbol/uruguay/nota/_/id/16170913/penarol-vs-central-espanol-copa-de-la-liga-auf-octavos-de-final-equipo-fecha-hora-tv-en-vivo)
-- **Peñarol vs Central Español hoy: Resultado EN VIVO, minuto a minuto y goles de la Copa de la Liga**: [Link](https://www.365scores.com/es/news/penarol-vs-central-espanol-resultdo-vivo/)
-
-
-### lakers - kings (N/A, 12/01/2026 23:45 Lima)
-
-- **Best Luka Doncic Prop Bet for Lakers vs. Kings on Monday 1/12/26**: [Link](https://dknetwork.draftkings.com/2026/01/12/best-luka-doncic-prop-bet-for-lakers-vs-kings-on-monday-1-12-26/)
-- **Sacramento hosts conference foe Los Angeles**: [Link](https://abcnews.go.com/Sports/wireStory/sacramento-hosts-conference-foe-los-angeles-129123038)
-- **Kings vs. Lakers: Beat (Up) LA?**: [Link](https://kingsherald.com/articles/kings-vs-lakers-beat-up-la/)
-
-
-### renato tapia (N/A, 12/01/2026 23:45 Lima)
-
-- **Renato Tapia disparó contra la FPF: "No voy a soportar que se manipule mi nombre por intereses personales"**: [Link](https://www.espn.com.ar/futbol/mundial/nota/_/id/16174859/renato-tapia-contra-la-fpf-no-voy-a-soportar-que-se-manipule-mi-nombre)
-- **Christian Cueva a Renato Tapia por criticar al fútbol peruano: “No es el momento para hablar, no lo comparto”**: [Link](https://depor.com/futbol-peruano/seleccion-peruana/christian-cueva-a-renato-tapia-por-criticar-al-futbol-peruano-no-es-el-momento-para-hablar-no-lo-comparto-video-noticia/)
-- **Renato Tapia criticó al fútbol peruano: “No me apetece verlo”**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/renato-tapia-critico-al-futbol-peruano-no-me-apetece-verlo-n452298)
-
-
-### panamericana tv (N/A, 12/01/2026 23:45 Lima)
-
-- **Phillip Butters: entre el caos y la realidad**: [Link](https://www.expreso.com.pe/opinion/phillip-butters-entre-el-caos-y-la-realidad/)
-- **Phillip Butters estrena “Combutters” con entrevista a Rafael López Aliaga**: [Link](https://panamericana.pe/buenosdiasperu/locales/463284-phillip-butters-estrena-combutters-entrevista-rafael-lopez-aliaga)
-- **Phillip Butters regresa al ring: estrena programa en Panamericana Televisión**: [Link](https://www.apnoticias.pe/video/panorama/phillip-butters-regresa-al-ring-estrena-programa-en-panamericana-television-528397)
-
-
-### chappell roan (N/A, 12/01/2026 23:45 Lima)
-
-- **At the Shrine, Bella Hadid, Pedro Pascal and Chappell Roan push for humanitarian aid in Gaza and Sudan**: [Link](https://www.latimes.com/entertainment-arts/music/story/2026-01-11/gaza-benefit-bella-hadid-pedro-pascal-chappell-roan-shawn-mendez-blood-orange-geese)
-- **See Lucy Dacus and Chappell Roan Cover 'The Book of Love' at Artists for Aid Benefit Concert**: [Link](https://www.rollingstone.com/music/music-news/lucy-dacus-chappell-roan-the-book-of-love-benefit-concert-1235497509/)
-- **Mustafa Speaks Out as He Raises Money for Sudan and Palestine With Pedro Pascal and Bella Hadid**: [Link](https://timesofindia.indiatimes.com/short-videos/briefs/mustafa-speaks-out-as-he-raises-money-for-sudan-and-palestine-with-pedro-pascal-and-bella-hadid/shorttakes/126449396.cms)
-
-
-### los angeles azules (N/A, 12/01/2026 23:45 Lima)
-
-- **Los Ángeles Azules en Lima: la banda mexicana regresa con un esperado concierto en Costa 21**: [Link](https://rpp.pe/musica/conciertos/los-angeles-azules-vuelve-a-lima-2025-confirman-concierto-de-grupo-de-cumbia-mexicana-en-costa-21-cuando-sera-noticia-1671253)
-- **El popular grupo de cumbia mexicano “Los Ángeles Azules” llega a Lima**: [Link](https://diariocorreo.pe/espectaculos/el-popular-grupo-de-cumbia-mexicano-los-angeles-azules-llega-a-lima-noticia/)
-- **Los Ángeles Azules regresan a Lima este 8 de mayo**: [Link](https://andina.pe/agencia/noticia-los-angeles-azules-regresan-a-lima-este-8-mayo-1058961.aspx)
-
-
-### flow (N/A, 12/01/2026 23:45 Lima)
-
-- **Trinity County warns of increased water flow from Lewiston Dam**: [Link](https://www.actionnewsnow.com/news/trinity-county-warns-of-increased-water-flow-from-lewiston-dam/article_1a65b9a1-280a-4a93-afb3-9a4870296027.html)
-- **ENOV: Growth fueled by innovation, global expansion, and disciplined execution for higher margins**: [Link](https://www.tradingview.com/news/urn:summary_document_transcript:quartr.com:2587492:0-enov-growth-fueled-by-innovation-global-expansion-and-disciplined-execution-for-higher-margins/)
-- **Enovis to Present at J.P. Morgan Healthcare Conference**: [Link](https://www.tipranks.com/news/company-announcements/enovis-to-present-at-j-p-morgan-healthcare-conference)
-
-
-### psg vs paris fc alineaciones (N/A, 12/01/2026 23:45 Lima)
-
-- **PSG 0-1 Paris FC (12 de Ene., 2026) Resultado Final**: [Link](https://www.espn.com.pe/futbol/partido/_/juegoId/401843549/paris-fc-paris-saint-germain)
-- **(VIDEO) ¡Batacazo! París FC le ganó el clásico a PSG y lo dejó fuera de la Copa de Francia**: [Link](https://ovacion.pe/noticias/futbol-internacional/video-batacazo-paris-fc-le-gano-clasico-psg-dejo-fuera-copa-francia)
-- **El París FC echa al PSG de la Copa Francesa**: [Link](https://www.flashscore.pe/noticias/futbol-copa-de-francia-el-paris-fc-da-la-sorpresa-y-elimina-al-psg-de-la-copa-en-el-parque-de-los-principes-0-1/dz66lxTh/)
-
-
-### steam machine (N/A, 12/01/2026 21:04 Lima)
-
-- **Reddit user finds Steam Machine price hidden in retailer's HTML**: [Link](https://boingboing.net/2026/01/11/reddit-user-finds-steam-machine-price-hidden-in-retailers-html.html)
-- **Valve’s New Steam Machine Could Launch at Premium PC Prices, Leaked Listings Suggest**: [Link](https://www.techloy.com/valves-new-steam-machine-could-launch-at-premium-pc-prices-leaked-listings-suggest/)
-- **What to expect from Valve in 2026: The return of the Steam Machine, a new VR headset, and more Half-Life 3 rumors**: [Link](https://www.gamesradar.com/platforms/pc-gaming/what-to-expect-from-valve-in-2026-the-return-of-steam-machines-a-new-vr-headset-and-more-half-life-3-rumors/)
 
 
