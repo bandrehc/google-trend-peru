@@ -1,3 +1,31 @@
+### juan pablo varillas (N/A, 16/01/2026 11:36 Lima)
+
+- **Andrea Collarini es el único semifinalista argentino en el AAT Challenger y tres tenistas nacionales avanzaron a cuartos del W50**: [Link](https://www.infobae.com/deportes/2026/01/16/andrea-collarini-es-el-unico-semifinalista-argentino-en-el-aat-challenger-y-tres-tenistas-nacionales-avanzaron-a-cuartos-del-w50/)
+- **¡Varillas a semifinales del Challenger de Buenos Aires! Gran triunfo sobre el local Lautaro Midon**: [Link](https://depor.com/full-deportes/juan-pablo-varillas-avanzo-semifinales-el-peruano-vencio-a-lautaro-midon-en-challenger-de-buenos-aires-noticia/)
+- **Juan Pablo Varillas venció a Pedro Sakamoto por octavos de final del Challenger de Buenos Aires**: [Link](https://elcomercio.pe/deporte-total/tenis/juan-pablo-varillas-vencio-a-pedro-sakamoto-por-octavos-de-final-del-challenger-de-buenos-aires-noticia/)
+
+
+### ds 003 mtc (N/A, 16/01/2026 11:36 Lima)
+
+- **Gobierno crea régimen que promueve profesionalización de choferes de transporte público**: [Link](https://andina.pe/agencia/noticia-gobierno-crea-regimen-promueve-profesionalizacion-choferes-transporte-publico-1059490.aspx)
+- **¿Empresa de transporte? Nuevo régimen permite formar conductores sin costo**: [Link](https://www.elperuano.pe/noticia/287269-empresa-de-transporte-nuevo-regimen-permite-formar-conductores-sin-costo)
+- **MTC cambia el sistema de puntajes: conductores con más de 100 puntos podrían ya no perder su licencia a partir de esta semana**: [Link](https://www.infobae.com/peru/2026/01/13/mtc-cambia-el-sistema-de-puntajes-y-conductores-con-mas-de-100-puntos-podrian-ya-no-perder-su-licencia-a-partir-de-esta-semana/)
+
+
+### werder bremen (N/A, 16/01/2026 11:36 Lima)
+
+- **Vor dem Rückrunden-Auftakt: Wie die Eintracht den Blinker in Bremen setzte**: [Link](https://www.sportschau.de/fussball/bundesliga/wie-die-eintracht-blinker-in-bremen-setzte,frankfurt-hat-bremen-ueberholt-100.html)
+- **Die Sport-Höhepunkte am Freitag, 16. Januar 2026**: [Link](https://www.ligaportal.at/international/ligen-mix/87256-die-sport-hoehepunkte-am-freitag-16-januar-2026)
+- **Werder Bremen: So könnte die Aufstellung gegen Frankfurt aussehen**: [Link](https://www.weser-kurier.de/werder/profis/werder-bremen-so-koennte-die-aufstellung-gegen-frankfurt-aussehen-doc8457j7clnp579y2tjmb)
+
+
+### clima arequipa (N/A, 16/01/2026 11:36 Lima)
+
+- **Clima en Arequipa: el estado del tiempo para este 16 de enero**: [Link](https://www.infobae.com/peru/2026/01/16/clima-en-arequipa-el-estado-del-tiempo-para-este-16-de-enero/)
+- **Prepárase antes de salir: Este es el pronóstico del clima en Arequipa este jueves**: [Link](https://www.infobae.com/peru/2026/01/15/preparase-antes-de-salir-este-es-el-pronostico-del-clima-en-arequipa-este-jueves/)
+- **Arequipa: el estado del tiempo para este 14 de enero**: [Link](https://www.infobae.com/peru/2026/01/14/arequipa-el-estado-del-tiempo-para-este-14-de-enero/)
+
+
 ### decreto motos (N/A, 16/01/2026 07:56 Lima)
 
 - **José Jerí anunció que en las próximas horas se publicará el decreto que prohíbe la circulación de motos con dos ocupantes**: [Link](https://rpp.pe/politica/gobierno/jose-jeri-anuncio-que-en-las-proximas-horas-se-publicara-el-decreto-que-prohibe-la-circulacion-de-motos-con-dos-ocupantes-noticia-1671642)
@@ -1004,33 +1032,5 @@ Sin noticias relacionadas disponibles.
 - **Reddit user finds Steam Machine price hidden in retailer's HTML**: [Link](https://boingboing.net/2026/01/11/reddit-user-finds-steam-machine-price-hidden-in-retailers-html.html)
 - **Valve’s New Steam Machine Could Launch at Premium PC Prices, Leaked Listings Suggest**: [Link](https://www.techloy.com/valves-new-steam-machine-could-launch-at-premium-pc-prices-leaked-listings-suggest/)
 - **What to expect from Valve in 2026: The return of the Steam Machine, a new VR headset, and more Half-Life 3 rumors**: [Link](https://www.gamesradar.com/platforms/pc-gaming/what-to-expect-from-valve-in-2026-the-return-of-steam-machines-a-new-vr-headset-and-more-half-life-3-rumors/)
-
-
-### édgar vivar (N/A, 12/01/2026 21:04 Lima)
-
-- **Édgar Vivar enfrenta rumores sobre su muerte y pide que no se viralice: “No tengo planes de morir”**: [Link](https://www.infobae.com/mexico/2026/01/13/edgar-vivar-enfrenta-rumores-sobre-su-muerte-y-pide-que-no-se-viralice-no-tengo-planes-de-morir/)
-- **Murió Edgar Vivar? Esto se sabe sobre el actor del Chavo del 8**: [Link](https://www.elsiglodetorreon.com.mx/noticia/2026/murio-edgar-vivar-esto-se-sabe-sobre-el-actor-del-chavo-del-8.html)
-- **¿Muere Édgar Vivar? Estas son todas las telenovelas en las que ha participado el actor**: [Link](https://www.televisa.com/tlnovelas/muere-edgar-vivar-estas-son-todas-las-telenovelas-en-las-que-ha-participado-el-actor)
-
-
-### delta (N/A, 12/01/2026 21:04 Lima)
-
-- **Delta Air Lines (DAL) Expected to Report Q4 Revenue Growth to $15.69B**: [Link](https://intellectia.ai/news/stock/delta-air-lines-dal-expected-to-report-q4-revenue-growth-to-1569b)
-- **Delta Air Lines Earnings Preview**: [Link](https://www.benzinga.com/insights/earnings/26/01/49843030/delta-air-lines-earnings-preview)
-- **Delta Air Lines (DAL) call put ratio 1 call to 2.4 puts into quarter results**: [Link](https://www.streetinsider.com/Option+EPS+Action/Delta+Air+Lines+%28DAL%29+call+put+ratio+1+call+to+2.4+puts+into+quarter+results/25836168.html)
-
-
-### peñarol vs (N/A, 12/01/2026 21:04 Lima)
-
-- **Juventud y Progreso avanzaron a cuartos de final de la Copa de la Liga AUF**: [Link](https://www.espn.com.ar/futbol/uruguay/nota/_/id/16172440/juventud-y-progreso-avanzaron-a-cuartos-de-final-de-la-copa-de-la-liga-auf)
-- **Peñarol tendrá su primera prueba en el año por la Copa de la Liga AUF ante Central Español**: [Link](https://espndeportes.espn.com/futbol/uruguay/nota/_/id/16170913/penarol-vs-central-espanol-copa-de-la-liga-auf-octavos-de-final-equipo-fecha-hora-tv-en-vivo)
-- **Juventud vs. Wanderers, hoy por la Copa de la Liga AUF: horario, formaciones y dónde ver en vivo**: [Link](https://www.directvsports.com/futbol/juventud-vs.-wanderers-hoy-por-la-copa-de-la-liga-auf-horario-formaciones-y-donde-ver-en-vivo-20260111-0011.html)
-
-
-### paris fc (N/A, 12/01/2026 21:04 Lima)
-
-- **Paris FC's Ikone stuns PSG to knock out former club from Coupe de France**: [Link](https://www.beinsports.com/en-mena/football/coupe-de-france/articles-video/paris-fc-s-ikone-stuns-psg-to-knock-out-former-club-from-coupe-de-france-2026-01-12)
-- **PSG knocked out: the incredible statistic 🤯**: [Link](https://sports.yahoo.com/articles/psg-knocked-incredible-statistic-221800890.html)
-- **PSG vs Paris FC: Predicted lineup for Coupe de France clash**: [Link](https://psgpost.com/psg-vs-paris-fc-predicted-lineup-for-coupe-de-france-clash-01kes5y2h799)
 
 
