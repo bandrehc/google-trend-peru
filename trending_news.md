@@ -1,3 +1,24 @@
+### decreto motos (N/A, 16/01/2026 07:56 Lima)
+
+- **José Jerí anunció que en las próximas horas se publicará el decreto que prohíbe la circulación de motos con dos ocupantes**: [Link](https://rpp.pe/politica/gobierno/jose-jeri-anuncio-que-en-las-proximas-horas-se-publicara-el-decreto-que-prohibe-la-circulacion-de-motos-con-dos-ocupantes-noticia-1671642)
+- **Estas son las drásticas multas para motociclistas que entrarán en vigor este lunes en Perú**: [Link](https://www.infobae.com/peru/2026/01/15/estas-son-las-drasticas-multas-para-motociclistas-que-entraran-en-vigor-este-lunes-en-peru/)
+- **Eduardo Pérez Rocha: Ley que prohíbe dos en moto no reducirá el crimen y el estado de emergencia es un fracaso**: [Link](https://canaln.pe/actualidad/eduardo-perez-rocha-ley-que-prohibe-dos-moto-no-reducira-crimen-n489615)
+
+
+### mtc (N/A, 16/01/2026 07:56 Lima)
+
+- **AAP responsabiliza al MTC por desabastecimiento de placas para motos y mototaxis**: [Link](https://gestion.pe/peru/desabastecimiento-de-placas-aap-responsabiliza-al-mtc-noticia/)
+- **Asociación Automotriz del Perú responsabiliza al MTC por desabastecimiento de placas para motos**: [Link](https://peru21.pe/peru/asociacion-automotriz-del-peru-responsabiliza-al-mtc-por-desabastecimiento-de-placas-para-motos/)
+- **Lima se está quedando sin placas para motos y mototaxis pese a que ventas llegan a 1.500 por día: ¿Qué está haciendo el MTC?**: [Link](https://www.infobae.com/peru/2026/01/13/lima-se-esta-quedando-sin-placas-para-motos-y-mototaxis-ventas-llegan-a-1500-unidades-por-dia-que-esta-previendo-el-mtc/)
+
+
+### lakers - hornets (N/A, 16/01/2026 07:56 Lima)
+
+- **Lakers And Hornets Clash In High-Stakes NBA Showdown**: [Link](https://evrimagaci.org/gpt/lakers-and-hornets-clash-in-highstakes-nba-showdown-524095)
+- **LaMelo Ball's promise should put fear into contenders' heart**: [Link](https://swarmandsting.com/lamelo-ball-promise-put-fear-contenders-heart)
+- **Luka Doncic Credits Hornets, Discusses What Went Wrong For Lakers**: [Link](https://bvmsports.com/2026/01/16/luka-doncic-credits-hornets-discusses-what-went-wrong-for-lakers/)
+
+
 ### igp (N/A, 16/01/2026 03:37 Lima)
 
 - **Temblor hoy en Perú, jueves 15 de enero: sismo de magnitud 4.3 se registra en Arequipa**: [Link](https://andina.pe/agencia/noticia-temblor-hoy-peru-jueves-15-enero-sismo-magnitud-43-se-registra-arequipa-1059446.aspx)
@@ -1011,26 +1032,5 @@ Sin noticias relacionadas disponibles.
 - **Paris FC's Ikone stuns PSG to knock out former club from Coupe de France**: [Link](https://www.beinsports.com/en-mena/football/coupe-de-france/articles-video/paris-fc-s-ikone-stuns-psg-to-knock-out-former-club-from-coupe-de-france-2026-01-12)
 - **PSG knocked out: the incredible statistic 🤯**: [Link](https://sports.yahoo.com/articles/psg-knocked-incredible-statistic-221800890.html)
 - **PSG vs Paris FC: Predicted lineup for Coupe de France clash**: [Link](https://psgpost.com/psg-vs-paris-fc-predicted-lineup-for-coupe-de-france-clash-01kes5y2h799)
-
-
-### celta de vigo vs (N/A, 12/01/2026 21:04 Lima)
-
-- **Preview: Sevilla vs Celta Vigo - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/sevilla/preview/sevilla-vs-celta-vigo-prediction-team-news-lineups_589605.html)
-- **Sevilla vs Celta Vigo Prediction, 1/12/2026 Soccer Pick, Tips and Odds**: [Link](https://www.docsports.com/free-picks/soccer/2026/sevilla-vs-celta-vigo-prediction-1-12-2026-soccer-pick-tips-and-odds.html)
-- **Sevilla lose again as Marcos Alonso penalty sends Celta home happy**: [Link](https://www.washingtonpost.com/sports/soccer/2026/01/12/sevilla-celta-vigo-laliga/9ffe1e56-f00f-11f0-a4dc-effc74cb25af_story.html)
-
-
-### liverpool (N/A, 12/01/2026 21:04 Lima)
-
-- **Conor Bradley injury update**: [Link](https://www.liverpoolfc.com/news/conor-bradley-injury-update-1)
-- **Conor Bradley’s season over after suffering serious knee injury**: [Link](https://www.thetimes.com/sport/football/article/conor-bradley-liverpool-serious-knee-injury-ffzhzqr3m)
-- **Mikel Arteta sends message to Arne Slot after Gabriel Martinelli hat-trick**: [Link](https://www.nowarsenal.com/latest-news/mikel-arteta-sends-message-to-arne-slot-after-gabriel-martinelli-hat-trick/)
-
-
-### sorteo la tinka resultados (N/A, 12/01/2026 21:04 Lima)
-
-- **La Tinka: resultados del sorteo del 11 de enero y cuánto se llevó el ganador**: [Link](https://www.infobae.com/peru/2026/01/12/la-tinka-resultados-del-sorteo-del-11-de-enero-y-cuanto-se-llevo-el-ganador/)
-- **Resultados de La Tinka del domingo 11 de enero**: [Link](https://www.americatv.com.pe/americlub/tinka-resultados-sorteo-jugado-domingo-11-enero-noticia-162297)
-- **La Tinka del domingo 11 de enero: números ganadores de los 50 mil soles**: [Link](https://elcomercio.pe/respuestas/loterias/la-tinka-hoy-domingo-11-de-enero-2026-en-vivo-resultados-del-ultimo-sorteo-numeros-y-jugada-ganadora-pozo-millonario-loteria-si-o-si-boliyapa-intralot-lbposting-noticia/)
 
 
