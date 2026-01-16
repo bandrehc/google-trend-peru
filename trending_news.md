@@ -1,3 +1,52 @@
+### igp (N/A, 16/01/2026 03:37 Lima)
+
+- **Temblor hoy en Perú, jueves 15 de enero: sismo de magnitud 4.3 se registra en Arequipa**: [Link](https://andina.pe/agencia/noticia-temblor-hoy-peru-jueves-15-enero-sismo-magnitud-43-se-registra-arequipa-1059446.aspx)
+- **Sismo de magnitud 4.0 se registró frente a Chimbote, informó el IGP**: [Link](https://diariocorreo.pe/edicion/chimbote/sismo-de-magnitud-40-se-registro-frente-a-chimbote-informo-el-igp-noticia/)
+- **Temblor en Piura: sismo de magnitud 4,2 remeció Sullana, según IGP**: [Link](https://larepublica.pe/sociedad/2026/01/12/temblor-en-piura-sismo-de-magnitud-42-remecio-sullana-segun-igp-mdga-261216)
+
+
+### temblor tacna (N/A, 16/01/2026 03:37 Lima)
+
+- **Sismo de magnitud 4.5 sacude a la Alianza, Tacna**: [Link](https://www.infobae.com/peru/2026/01/16/sismo-de-magnitud-45-sacude-a-la-alianza-tacna/)
+- **Terremoto moderado mag. 4.6 - Departamento de Tacna, Perú, viernes 16 ene 2026 a las 07:34 (Tiempo Universal)**: [Link](https://www.volcanodiscovery.com/es/sismos/informe-sismo/22620647/quake-felt-Jan-16-2026-Near-Arica-Arica-y-Parinacota-Region-Chile.html)
+- **Temblor remece a la zona norte del país: Revisa su epicentro y magnitud**: [Link](https://www.meganoticias.cl/nacional/512314-temblor-hoy-zona-norte-region-arica-parinacota-chile-sismologia-nacional-dcv-16-1-2026.html)
+
+
+### clima trujillo (N/A, 16/01/2026 03:37 Lima)
+
+- **El pronóstico del clima para mañana en Trujillo**: [Link](https://www.infobae.com/peru/2026/01/15/el-pronostico-del-clima-para-manana-en-trujillo/)
+- **Predicción del estado del tiempo en Trujillo para mañana**: [Link](https://www.infobae.com/peru/2026/01/13/prediccion-del-estado-del-tiempo-en-trujillo-para-manana/)
+- **El estado del tiempo en Trujillo para mañana**: [Link](https://www.infobae.com/peru/2026/01/07/el-estado-del-tiempo-en-trujillo-para-manana/)
+
+
+### aniversario de lima (N/A, 16/01/2026 03:37 Lima)
+
+- **Aniversario de Lima 2026: invitan a recorrer el Centro Histórico y disfrutar de sus atractivos**: [Link](https://elperuano.pe/noticia/287176-aniversario-de-lima-2026-invitan-a-recorrer-el-centro-historico-y-disfrutar-de-sus-atractivos)
+- **Aniversario de Lima 2026: cronograma de actividades y conciertos gratuitos por los 491 años de la ciudad**: [Link](https://rpp.pe/cultura/mas-cultura/aniversario-de-lima-2026-el-cronograma-de-actividades-y-conciertos-gratuitos-por-los-491-anos-de-la-ciudad-noticia-1671684)
+- **¿Qué hacer en Perú por el aniversario de Lima? Estos son los sitios turísticos para disfrutar de un espectáculo único de luces, agua y música**: [Link](https://larepublica.pe/turismo/2026/01/14/estos-son-los-sitios-turisticos-que-puedes-visitar-en-peru-por-el-aniversario-de-lima-uno-de-ellos-ofrece-un-espectaculo-unico-de-luces-agua-y-musica-atmp-299124)
+
+
+### alfonso barco (N/A, 16/01/2026 03:37 Lima)
+
+- **Destino Europa: Alfonso Barco cerca de fichar por campeón y jugará Conference League**: [Link](https://depor.com/futbol-peruano/peruanos-en-el-mundo/alfonso-barco-seria-nuevo-jugador-del-nhk-rijeka-de-croacia-tras-dejar-emelec-jugara-la-uefa-conference-league-y-la-liga-croata-peruanos-en-el-exterior-noticia/)
+- **¡Bombazo! Alfonso Barco, ex Universitario, será flamante refuerzo de destacado club europeo**: [Link](https://libero.pe/futbol-internacional/2026/01/15/bombazo-alfonso-barco-ex-universitario-sera-flamante-refuerzo-de-destacado-club-europeo-978030)
+- **Alfonso Barco tendría todo listo para firmar por HNK Rijeka de Croacia**: [Link](https://ovacion.pe/noticias/peruanos-mundo/alfonso-barco-tendria-todo-listo-firmar-hnk-rijeka-croacia)
+
+
+### temblor ica (N/A, 16/01/2026 03:37 Lima)
+
+- **Ica: se registró sismo de magnitud 4.3 en Pisco**: [Link](https://www.infobae.com/peru/2026/01/16/ica-se-registro-sismo-de-magnitud-43-en-pisco/)
+- **Temblor en Ica: sismo de magnitud 4,3 remeció Pisco, según IGP**: [Link](https://larepublica.pe/sociedad/2026/01/15/temblor-en-ica-sismo-de-magnitud-43-remecio-pisco-segun-igp-1303440)
+- **Temblor hoy en Perú, jueves 15 de enero: sismo de magnitud 4.3 se registra en Arequipa**: [Link](https://andina.pe/agencia/noticia-temblor-hoy-peru-jueves-15-enero-sismo-magnitud-43-se-registra-arequipa-1059446.aspx)
+
+
+### warriors - knicks (N/A, 16/01/2026 03:37 Lima)
+
+- **Golden State Warriors vs New York Knicks LIVE Score Updates (124-111)**: [Link](https://www.vavel.com/en-us/nba/2026/01/16/1247330-warriors-vs-knicks-live-score-nba.html)
+- **Where to watch Warriors-Knicks NBA game tonight free livestream**: [Link](https://www.al.com/tv/2026/01/where-to-watch-warriors-knicks-nba-game-tonight-free-livestream.html)
+- **Updated BetMGM bonus code CUSEMGM unlocks $150 bonus in NJ for Knicks vs. Warriors**: [Link](https://www.syracuse.com/betting/2026/01/updated-betmgm-bonus-code-cusemgm-unlocks-150-bonus-in-nj-for-knicks-vs-warriors.html)
+
+
 ### hornets - lakers (N/A, 15/01/2026 23:44 Lima)
 
 - **How to Watch Hornets vs Lakers: Live Stream NBA, TV Channel**: [Link](https://www.newsweek.com/how-to-watch-hornets-vs-lakers-live-stream-nba-tv-channel-11363315)
@@ -983,54 +1032,5 @@ Sin noticias relacionadas disponibles.
 - **La Tinka: resultados del sorteo del 11 de enero y cuánto se llevó el ganador**: [Link](https://www.infobae.com/peru/2026/01/12/la-tinka-resultados-del-sorteo-del-11-de-enero-y-cuanto-se-llevo-el-ganador/)
 - **Resultados de La Tinka del domingo 11 de enero**: [Link](https://www.americatv.com.pe/americlub/tinka-resultados-sorteo-jugado-domingo-11-enero-noticia-162297)
 - **La Tinka del domingo 11 de enero: números ganadores de los 50 mil soles**: [Link](https://elcomercio.pe/respuestas/loterias/la-tinka-hoy-domingo-11-de-enero-2026-en-vivo-resultados-del-ultimo-sorteo-numeros-y-jugada-ganadora-pozo-millonario-loteria-si-o-si-boliyapa-intralot-lbposting-noticia/)
-
-
-### psg vs (N/A, 12/01/2026 21:04 Lima)
-
-- **Así fue el partido de Willian Pacho en la eliminación de PSG vs. Paris FC en la Copa de Francia**: [Link](https://www.espn.com.ar/futbol/francia/nota/_/id/16175185/psg-eliminado-vs-paris-fc-asi-fue-el-partido-de-willian-pacho)
-- **Paris Saint Germain recibe a Paris FC por la Copa Francia**: [Link](https://espndeportes.espn.com/futbol/francia/nota/_/id/16170290/psg-vs-paris-fc-por-la-copa-de-francia-equipo-fecha-hora-y-tv-en-vivo%C2%A0)
-- **¡Sorpresa! PSG fue eliminado en dieciseisavos de la Copa de Francia por París FC | VIDEO**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/psg-fue-eliminado-en-dieciseisavos-de-la-copa-de-francia-por-paris-fc-video-noticia/)
-
-
-### juventus vs (N/A, 12/01/2026 15:31 Lima)
-
-- **Juventus recibe a Cremonese con el objetivo de seguir en los primeros puestos de la Serie A**: [Link](https://www.espn.com.pe/futbol/italia/nota/_/id/16163002/juventus-vs-cremonese-fecha-20-serie-a-equipo-fecha-hora-y-tv-en-vivo)
-- **Juventus vs Cremona, Kenan Yildiz y otros ponen a prueba el temple de Emil Auderu**: [Link](https://www.ucvradio.pe/mas-actualidad/juventus-vs-cremona-kenan-yildiz-y-otros-ponen-a-prueba-el-temple-de-emil-auderu/101196/)
-- **Serie A: Juventus se enfrentará ante Cremonese por la fecha 20**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-juventus-se-enfrentara-ante-cremonese-por-la-fecha-20-noticia-1671149)
-
-
-### psg vs paris fc (N/A, 12/01/2026 15:31 Lima)
-
-- **Gonçalo Ramos titulaire - Le Xl entrant du PSG pour la réception de Paris FC dévoilé**: [Link](https://tribuna.com/fr/news/2026-01-12-le-xl-du-psg-pour-la-reception-de-paris-fc-devoile/)
-- **Coupe de France : Ilan Kebbal, la surprise de Stéphane Gili (Paris FC) ?**: [Link](https://www.lequotidiendusport.fr/coupe-de-france-ilan-kebbal-la-surprise-de-stephane-gili-paris-fc/)
-- **DIRECT. Paris SG - Paris FC : suivez le derby parisien en 16e de finale de la Coupe de France en live**: [Link](https://www.ouest-france.fr/sport/football/coupe-de-france/direct-paris-sg-paris-fc-suivez-le-derby-parisien-en-16e-de-finale-de-la-coupe-de-france-en-live-a1a8ac4f-25e6-4bfe-9f22-d8aa6177ed36)
-
-
-### huesca vs (N/A, 12/01/2026 15:31 Lima)
-
-- **Apuestas y Pronóstico del Huesca vs Córdoba 12/01/26**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/2026/enero/pronostico-huesca-vs-cordoba-12-01-26)
-- **Iván Ania: “Creo que Pulido va a jugar y no les va a afectar su situación”**: [Link](https://www.pressreader.com/spain/diario-del-alto-aragon-eaje/20260112/281938844302342)
-- **El Córdoba CF se abona al frío en un duro mes de enero**: [Link](https://cordopolis.eldiario.es/deportes/ccf/cordoba-cf-abona-frio-duro-mes-enero_1_12900756.html)
-
-
-### al ettifaq (N/A, 12/01/2026 15:31 Lima)
-
-- **Patriots 16-3 Chargers (Jan 11, 2026) Final Score**: [Link](https://www.espn.com/nfl/game/_/gameId/401772978/chargers-patriots)
-- **49ers 23-19 Eagles (Jan 11, 2026) Final Score**: [Link](https://www.espn.com/nfl/game/_/gameId/401772980/49ers-eagles)
-- **Patriots 16-3 Chargers (Jan 11, 2026) Box Score**: [Link](https://www.espn.com/nfl/boxscore/_/gameId/401772978)
-
-
-### sevilla - celta de vigo (N/A, 12/01/2026 15:31 Lima)
-
-- **Sevilla recibe a Celta por la decimonovena fecha de LaLiga**: [Link](https://www.espn.com.ar/futbol/espana/nota/_/id/16172836/sevilla-vs-celta-de-vigo-fecha-19-laliga-equipo-fecha-hora-en-vivo)
-- **Sevilla – Celta Vigo Pronóstico y Apuestas | LaLiga 12/01/2026**: [Link](https://www.apuestas-deportivas.es/pronostico/sevilla-celta-vigo-pronostico-laliga-12-01-2026/)
-- **Consigue una apuesta gratis de 1 € en la YoSports para el partido Sevilla vs Celta hasta el 12 de enero 2025**: [Link](https://legalbet.es/bonos/yosports-apuesta-gratis-1-euro-por-apuesta-en-el-partido-sevilla-vs-celta/)
-
-
-### liverpool - barnsley (N/A, 12/01/2026 15:31 Lima)
-
-- **'It gives us a fresh opportunity' - Arne Slot's FA Cup programme notes**: [Link](https://www.liverpoolfc.com/news/it-gives-us-fresh-opportunity-arne-slots-fa-cup-programme-notes)
-- **Liverpool Face Barnsley In High-Stakes FA Cup Clash At Anfield**: [Link](https://evrimagaci.org/gpt/liverpool-face-barnsley-in-highstakes-fa-cup-clash-at-anfield-523589)
-- **How to watch FA Cup in India? TV channel, live stream and start time for Liverpool vs. Barnsley**: [Link](https://www.sportingnews.com/in/football/news/watch-fa-cup-india-tv-channel-live-stream-liverpool-barnsley-time/75b38fa5287eda235e4ca09f)
 
 
