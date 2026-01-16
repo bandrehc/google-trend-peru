@@ -1,3 +1,73 @@
+### junior (N/A, 15/01/2026 21:08 Lima)
+
+- **Junior vs. Santa Fe: Alineaciones titulares en final ida de Superliga 2026**: [Link](https://www.espn.com.pe/futbol/colombia/nota/_/id/16187355/junior-vs-santa-fe-alineacion-equipos-titulares-superliga-2026-ida)
+- **Uruguay sigue al mando del FPC: Arias y Repetto por título de Superliga**: [Link](https://www.espn.com.pe/futbol/colombia/nota/_/id/16185185/arias-repetto-tecnicos-uruguayos-superliga-junior-santa-fe)
+- **Cuándo juegan Junior vs Santa Fe por la Superliga: equipo, fecha, hora y TV en vivo**: [Link](https://www.espn.com.pe/futbol/colombia/nota/_/id/16179259/junior-vs-santa-fe-por-la-superliga-equipo-fecha-hora-y-tv-en-vivo)
+
+
+### vasco da gama (N/A, 15/01/2026 21:08 Lima)
+
+- **Rayan se acerta com Bournemouth e deixa decisão da venda nas mãos do Vasco; veja valores**: [Link](https://ge.globo.com/futebol/times/vasco/noticia/2026/01/15/rayan-se-acerta-com-bournemouth-e-deixa-decisao-da-venda-nas-maos-do-vasco-veja-valores.ghtml)
+- **Clube inglês se acerta com Ryan, West Ham impõe condição por Paquetá e +**: [Link](https://onefootball.com/pt-br/noticias/clube-ingles-se-acerta-com-ryan-west-ham-impoe-condicao-por-paqueta-e-42234216)
+- **Veja entrevista de Fernando Diniz antes de Vasco x Maricá**: [Link](https://netvasco.com.br/n/376908/veja-entrevista-de-fernando-diniz-antes-de-vasco-x-marica)
+
+
+### bono escolaridad (N/A, 15/01/2026 21:08 Lima)
+
+- **Disposiciones reglamentarias para el otorgamiento de la bonificación por escolaridad 2026 [Decreto Supremo 002-2026-EF]**: [Link](https://lpderecho.pe/disposiciones-reglamentarias-para-otorgamiento-de-la-bonificacion-por-escolaridad-2026-decreto-supremo-002-2026-ef/)
+- **CAS con bono de escolaridad de S/ 400: La propuesta del Convenio Colectivo 2026-2027**: [Link](https://www.infobae.com/peru/2026/01/15/cas-con-bono-de-escolaridad-de-s-400-la-propuesta-del-convenio-colectivo-2026-2027/)
+- **Bono de escolaridad 2026: ¿Cuándo se paga y cuánto es el monto para el sector estatal?**: [Link](https://gestion.pe/peru/bono-de-escolaridad-2026-mira-cuando-se-paga-y-cuanto-es-el-monto-para-el-sector-estatal-noticia/)
+
+
+### sao paulo fc (N/A, 15/01/2026 21:08 Lima)
+
+- **São Paulo goleia Operário-PR e pega Bragantino nas oitavas da Copinha**: [Link](https://www.gazetaesportiva.com/times/sao-paulo/sao-paulo-x-operario-copinha-2026/)
+- **Autor de hat-trick, Gustavo Santana fala sobre alívio em marcar gols pelo São Paulo na Copinha**: [Link](https://www.arqtricolor.com/base/autor-de-hat-trick-gustavo-santana-fala-sobre-alivio-em-marcar-gols-pelo-sao-paulo-na-copinha/)
+- **Operário-PR pega o São Paulo na Copinha com Schumacher de técnico e Rafael Nadal artilheiro**: [Link](https://ge.globo.com/pr/futebol/times/operario-pr/noticia/2026/01/15/operario-pr-pega-o-sao-paulo-na-copinha-com-schumacher-de-tecnico-e-rafael-nadal-artilheiro.ghtml)
+
+
+### vasco da gama - maricá (N/A, 15/01/2026 21:08 Lima)
+
+- **Vegetti joga hoje? Desfalques e escalação do Vasco contra o Maricá pelo Campeonato Carioca**: [Link](https://www.90min.com/pt-br/vegetti-joga-hoje-desfalques-escalacao-vasco-contra-marica-campeonato-carioca-15-01-2026)
+- **Aos 24 min do 1º tempo - gol de dentro da área de Coutinho do Vasco contra o Maricá**: [Link](https://ge.globo.com/futebol/video/aos-24-min-do-1o-tempo-gol-de-dentro-da-area-de-coutinho-do-vasco-contra-o-marica-14259200.ghtml)
+- **Matheus França sentiu desconforto muscular, mas deve ser relacionado contra o Nova Iguaçu**: [Link](https://netvasco.com.br/n/376879/matheus-franca-sentiu-desconforto-muscular-mas-deve-ser-relacionado-contra-o-nova-iguacu)
+
+
+### são paulo - são bernardo (N/A, 15/01/2026 21:08 Lima)
+
+- **Estádio vazio! São Paulo divulga parcial de ingressos vendidos para duelo contra o São Bernado**: [Link](https://nacaotricolor.com/noticias-do-sao-paulo/parcial-ingresso-sao-paulo-2/)
+- **São Paulo x São Bernardo: confira a transmissão da Jovem Pan ao vivo**: [Link](https://jovempan.com.br/esportes/futebol/sao-paulo-futebol/sao-paulo-x-sao-bernardo-confira-a-transmissao-da-jovem-pan-ao-vivo.html)
+- **Torcida do São Paulo protesta sem parar contra Casares e tem faixas retiradas no Morumbi**: [Link](https://onefootball.com/id/berita/torcida-do-sao-paulo-protesta-sem-parar-contra-casares-e-tem-faixas-retiradas-no-morumbi-42236800)
+
+
+### junior - santa fe (N/A, 15/01/2026 21:08 Lima)
+
+- **Junior vs. Santa Fe: Alineaciones titulares en final ida de Superliga 2026**: [Link](https://www.espn.com.pe/futbol/colombia/nota/_/id/16187355/junior-vs-santa-fe-alineacion-equipos-titulares-superliga-2026-ida)
+- **Uruguay sigue al mando del FPC: Arias y Repetto por título de Superliga**: [Link](https://www.espn.com.pe/futbol/colombia/nota/_/id/16185185/arias-repetto-tecnicos-uruguayos-superliga-junior-santa-fe)
+- **Cuándo juegan Junior vs Santa Fe por la Superliga: equipo, fecha, hora y TV en vivo**: [Link](https://www.espn.com.pe/futbol/colombia/nota/_/id/16179259/junior-vs-santa-fe-por-la-superliga-equipo-fecha-hora-y-tv-en-vivo)
+
+
+### concierto bad bunny peru (N/A, 15/01/2026 21:08 Lima)
+
+- **Bad Bunny en Lima: ¿Qué figuras peruanas podrían estar en ‘La Casita’?**: [Link](https://www.infobae.com/peru/2026/01/15/bad-bunny-en-peru-que-figuras-peruanas-podrian-estar-en-la-casita/)
+- **¡Bad Bunny ya está en Lima! El artista comió en Maido antes de sus shows en el Estadio Nacional**: [Link](https://www.atv.pe/noticia/bad-bunny-ya-esta-en-lima-el-artista-comio-en-maido-antes-de-sus-shows-en-el-estadio-nacional/)
+- **Fiebre por Bad Bunny en Lima 2026: atrae a fans de otros países y explotan ventas de productos del artista, ¿cuánto mueve su llegada?**: [Link](https://elcomercio.pe/economia/dia-1/fiebre-por-bad-bunny-en-lima-2026-atrae-a-fans-de-otros-paises-y-explotan-ventas-de-pymes-con-productos-del-puertorriqueno-noticia/)
+
+
+### olimpia - colo-colo (N/A, 15/01/2026 21:08 Lima)
+
+- **Olimpia vs Colo Colo EN VIVO por Serie Rio de La Plata: a qué hora juega y dónde ver**: [Link](https://libero.pe/futbol-internacional/2026/01/14/olimpia-vs-colo-colo-en-vivo-gratis-serie-rio-de-plata-via-espn-5-disney-plus-lbev-1136996)
+- **VER Disney Plus en vivo: Olimpia vs. Colo Colo por Serie Río de la Plata 2026**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/disney-plus-en-vivo-online-olimpia-vs-colo-colo-hoy-gratis-via-espn-premium-por-serie-rio-de-la-plata-2026-video-noticia/)
+- **¡La acción no se detiene! Colo Colo agenda nuevo amistoso en Uruguay**: [Link](https://dalealbo.cl/colocolo/la-accion-no-se-detiene-colo-colo-agenda-nuevo-amistoso-en-uruguay)
+
+
+### lisandro alzugaray (N/A, 15/01/2026 21:08 Lima)
+
+- **¡El último pasajero! Universitario cerca de fichar a Lisandro Alzugaray de LDU**: [Link](https://depor.com/futbol-peruano/descentralizado/universitario-de-deportes-ficharia-a-lisandro-alzugaray-para-la-liga-1-2026-tras-su-paso-por-ldu-fichajes-2026-noticia/)
+- **Universitario interesado en campeón de la Copa Sudamericana con Liga de Quito: "Gusta mucho..."**: [Link](https://libero.pe/futbol-peruano/universitario/2026/01/15/universitario-interesado-en-campeon-de-copa-sudamericana-liga-de-quito-gusta-mucho-1119915)
+- **Lisandro Alzugaray, la figura de LDU que quiere Universitario para la temporada 2026**: [Link](https://rpp.pe/futbol/descentralizado/universitario-lisandro-alzugaray-la-figura-de-ldu-quito-que-quiere-la-u-para-el-2026-fichajes-liga1-noticia-1671768)
+
+
 ### ac milan (N/A, 15/01/2026 15:32 Lima)
 
 - **GdS: Allegri turns to Leao and Nkunku – why Pulisic will not start against Como**: [Link](https://sempremilan.com/allegri-leao-pulisic-why-pulisic-como)
@@ -960,73 +1030,5 @@ Sin noticias relacionadas disponibles.
 - **Elecciones 2026: Rafael López Aliaga alcanza el 12 %, mientras la mayoría de peruanos sigue sin definir por quién votar**: [Link](https://www.infobae.com/peru/2026/01/11/elecciones-2026-rafael-lopez-aliaga-alcanza-el-12-mientras-la-mayoria-de-peruanos-sigue-sin-definir-por-quien-votar/)
 - **Rafael López Aliaga lidera intención de voto presidencial con 12%, según Datum**: [Link](https://canaln.pe/actualidad/rafael-lopez-aliaga-lidera-intencion-voto-presidencial-12-segun-datum-n489530)
 - **Datum: Indecisión electoral se reduce al 43%, pero persiste la falta de representatividad**: [Link](https://rpp.pe/politica/elecciones/datum-indecision-electoral-se-reduce-al-43-pero-persiste-la-falta-de-representatividad-noticia-1671245)
-
-
-### wagner moura (N/A, 12/01/2026 11:34 Lima)
-
-- **Wagner Moura alfineta Critics Choice Awards após vitória no Globo de Ouro**: [Link](https://vejario.abril.com.br/coluna/otavio-furtado/wagner-moura-alfineta-critics-choice/)
-- **'O agente secreto' vira bloco de carnaval e toma ruas da Zona Oeste de São Paulo; veja FOTOS**: [Link](https://g1.globo.com/sp/sao-paulo/carnaval/2026/noticia/2026/01/12/o-agente-secreto-vira-bloco-de-carnaval-e-toma-ruas-da-zona-oeste-de-sao-paulo-veja-fotos.ghtml)
-- **O Município de Viana endereça os parabéns à Associação Desportiva dos Caçadores …**: [Link](https://sapo.pt/artigo/o-municipio-de-viana-endereca-os-parabens-a-associacao-desportiva-dos-cacadores-6964c748bd01a240c17fd798)
-
-
-### integra afp (N/A, 12/01/2026 07:59 Lima)
-
-- **Segunda solicitud de retiro de AFP ya se puede registrar con monto extra, por aumento de la UIT**: [Link](https://www.infobae.com/peru/2026/01/08/segunda-solicitud-de-retiro-de-afp-se-puede-registrar-desde-hoy-por-aumento-de-la-uit/)
-- **Retiro AFP 2026: VERIFICA AQUÍ si te toca cobrar tu primera UIT este lunes 12 de enero**: [Link](https://libero.pe/tiempoextra/2026/01/11/retiro-afp-2026-verifica-aqui-te-toca-cobrar-tu-primera-uit-lunes-12-de-enero-195360)
-- **Retiro de AFP: claves para proteger este dinero si decide retirarlo tras el ajuste de la UIT**: [Link](https://www.businessempresarial.com.pe/retiro-de-afp-claves-para-proteger-este-dinero-si-decide-retirarlo-tras-el-ajuste-de-la-uit/)
-
-
-### jerome powell (N/A, 12/01/2026 07:59 Lima)
-
-- **Statement from Federal Reserve Chair Jerome H. Powell**: [Link](https://www.federalreserve.gov/newsevents/speech/powell20260111a.htm)
-- **Trump denies involvement in DOJ's Fed subpoenas: 'I don't know anything about it'**: [Link](https://www.nbcnews.com/politics/donald-trump/trump-denies-involvement-doj-fed-subpoena-jerome-powell-rcna253526)
-- **Federal Prosecutors Open Investigation Into Fed Chair Powell**: [Link](https://www.nytimes.com/2026/01/11/us/politics/jerome-powell-fed-inquiry-trump.html)
-
-
-### temblor hoy chimbote (N/A, 12/01/2026 07:59 Lima)
-
-- **Sismos en Perú HOY, domingo 11 de enero vía IGP: Hora exacta, lugar y epicentro del temblor**: [Link](https://elcomercio.pe/peru/ultimo-temblor-en-peru-hoy-via-igp-hora-exacta-lugar-y-magnitud-del-sismo-censis-reportes-tdpe-noticia/)
-- **Sismo de magnitud 4,2 se registró en Chimbote**: [Link](https://andina.pe/agencia/noticia-sismo-magnitud-42-se-registro-chimbote-1058935.aspx)
-- **Temblor en Arequipa: sismo de magnitud 4,0 remeció Huambo según IGP**: [Link](https://larepublica.pe/sociedad/2026/01/11/temblor-en-arequipa-sismo-de-magnitud-40-remecio-huambo-segun-igp-645304)
-
-
-### ganadores golden globes 2026 (N/A, 12/01/2026 07:59 Lima)
-
-- **Ganadores de los premios Globos de Oro 2026: lista completa por categorías**: [Link](https://cnnespanol.cnn.com/2026/01/11/entretenimiento/ganadores-premios-globos-de-oro-2026-trax)
-- **La alfombra roja de los Globos de Oro 2026, en imágenes**: [Link](https://elpais.com/smoda/globos-de-oro/2026-01-11/la-alfombra-roja-de-los-globos-de-oro-en-imagenes.html)
-- **Golden Globes 2026: TODAS las celebridades en la alfombra roja**: [Link](https://www.vogue.mx/galeria/golden-globes-2026-alfombra-roja)
-
-
-### la tinka resultados (N/A, 12/01/2026 07:59 Lima)
-
-- **La Tinka: resultados del sorteo del 11 de enero y cuánto se llevó el ganador**: [Link](https://www.infobae.com/peru/2026/01/12/la-tinka-resultados-del-sorteo-del-11-de-enero-y-cuanto-se-llevo-el-ganador/)
-- **La Tinka del domingo 11 de enero: números ganadores de los 50 mil soles**: [Link](https://elcomercio.pe/respuestas/loterias/la-tinka-hoy-domingo-11-de-enero-2026-en-vivo-resultados-del-ultimo-sorteo-numeros-y-jugada-ganadora-pozo-millonario-loteria-si-o-si-boliyapa-intralot-lbposting-noticia/)
-- **Resultados de La Tinka del domingo 11 de enero: sorteo y números de la jugada ganadora del pozo millonario**: [Link](https://depor.com/peru/la-tinka-en-vivo-hoy-domingo-11-de-enero-2026-ver-resultados-numeros-ganadores-del-ultimo-sorteo-quien-gano-pozo-millonario-intralot-boliyapa-loterias-de-peru-noticia/)
-
-
-### polo magnetico (N/A, 12/01/2026 07:59 Lima)
-
-- **El polo magnético de la Tierra se desplazó y tendrá un impacto crucial en la navegación global y en la tecnología diaria**: [Link](https://www.lanacion.com.ar/ciencia/el-polo-magnetico-de-la-tierra-se-desplazo-y-tendra-un-impacto-crucial-en-la-navegacion-global-y-en-nid10012026/)
-- **Advertencia de la NASA: de qué se trata la anomalía que afecta a Argentina**: [Link](https://www.minutouno.com/lifestyle/advertencia-la-nasa-que-se-trata-la-anomalia-que-afecta-argentina-n6232306)
-- **Algo estaba moviendo el eje de la Tierra y los humanos serían los responsables**: [Link](https://www.lagaceta.com.ar/nota/1120088/sociedad/algo-estaba-moviendo-eje-tierra-humanos-serian-responsables.html)
-
-
-### nelson manrique (N/A, 12/01/2026 07:59 Lima)
-
-- **Murió Nelson Manrique, referente de las ciencias sociales en el Perú**: [Link](https://elcomercio.pe/luces/murio-nelson-manrique-referente-de-las-ciencias-sociales-en-el-peru-ultimas-noticia/)
-- **Falleció el huancaíno Nelson Manrique, referente de las ciencias sociales del Perú**: [Link](https://hytimes.pe/2026/01/12/fallecio-el-huancaino-nelson-manrique-referente-de-las-ciencias-sociales-del-peru/)
-
-
-### ana de armas (N/A, 12/01/2026 03:39 Lima)
-
-- **Ana de Armas Turns Up the Heat in a High-Slit Black Dress at the 2026 Golden Globes**: [Link](https://www.imdb.com/news/ni65654887/?ref_=nmnw_art_perm)
-- **"Superb" John Wick spin-off with "near-constant action" has just landed on Prime Video**: [Link](https://uk.news.yahoo.com/superb-john-wick-spin-off-164700851.html)
-
-
-### owen cooper (N/A, 12/01/2026 03:39 Lima)
-
-- **Adolscence: How many awards did Netflix's limited series bag at Golden Globes 2026?**: [Link](https://www.wionews.com/photos/adolscence-how-many-awards-did-netflix-s-limited-series-bag-at-golden-globes-2026-1768190593135)
-- **Pic Of The Day: Leonardo DiCaprio Poses With Golden Globes Winner Owen Cooper**: [Link](https://www.ndtv.com/entertainment/pic-of-the-day-leonardo-di-caprio-poses-with-golden-globes-winner-owen-cooper-10713396)
-- **'Adolescence's Owen Cooper Bags Golden Globe After Emmy, His Salary From The Series And Net Worth**: [Link](https://www.bollywoodshaadis.com/articles/adolesence-owen-cooper-golden-globe-73574)
 
 
