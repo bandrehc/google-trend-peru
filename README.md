@@ -1,3 +1,66 @@
+### hornets - lakers (N/A, 15/01/2026 23:44 Lima)
+
+- **How to Watch Hornets vs Lakers: Live Stream NBA, TV Channel**: [Link](https://www.newsweek.com/how-to-watch-hornets-vs-lakers-live-stream-nba-tv-channel-11363315)
+- **Los Angeles hosts Charlotte following Doncic's 42-point game**: [Link](https://www.foxsports.com/articles/nba/los-angeles-hosts-charlotte-following-doncics-42point-game)
+- **Lakers vs. Hornets Prediction, Odds, Picks, Best Bets for Jan. 15**: [Link](https://www.fanduel.com/research/lakers-vs-hornets-prediction-nba-odds-spread-best-bets-for-1-15-2026)
+
+
+### knicks - warriors (N/A, 15/01/2026 23:44 Lima)
+
+- **Golden State Warriors vs New York Knicks LIVE Score Updates (78-70)**: [Link](https://www.vavel.com/en-us/nba/2026/01/16/1247330-warriors-vs-knicks-live-score-nba.html)
+- **Where to watch Warriors-Knicks NBA game tonight free livestream**: [Link](https://www.al.com/tv/2026/01/where-to-watch-warriors-knicks-nba-game-tonight-free-livestream.html)
+- **Stephen Curry, Josh Hart, and 3 Other Underdog Player Props For Warriors vs. Knicks**: [Link](https://www.si.com/onsi/fantasy/dfs/stephen-curry-josh-hart-and-3-other-underdog-player-props-for-warriors-vs-knicks)
+
+
+### bad bunny concierto peru (N/A, 15/01/2026 23:44 Lima)
+
+- **Bad Bunny en Lima: ¿Qué figuras peruanas podrían estar en ‘La Casita’?**: [Link](https://www.infobae.com/peru/2026/01/15/bad-bunny-en-peru-que-figuras-peruanas-podrian-estar-en-la-casita/)
+- **¡Bad Bunny ya está en Lima! El artista comió en Maido antes de sus shows en el Estadio Nacional**: [Link](https://www.atv.pe/noticia/bad-bunny-ya-esta-en-lima-el-artista-comio-en-maido-antes-de-sus-shows-en-el-estadio-nacional/)
+- **Fiebre por Bad Bunny en Lima 2026: atrae a fans de otros países y explotan ventas de productos del artista, ¿cuánto mueve su llegada?**: [Link](https://elcomercio.pe/economia/dia-1/fiebre-por-bad-bunny-en-lima-2026-atrae-a-fans-de-otros-paises-y-explotan-ventas-de-pymes-con-productos-del-puertorriqueno-noticia/)
+
+
+### kick (N/A, 15/01/2026 23:44 Lima)
+
+- **How TikTok star Absi made his big transition to Kick streaming**: [Link](https://win.gg/tiktok-absi-kick-streaming/)
+- **Abodby becomes the top Kick streamer in Jordan, and here's how**: [Link](https://win.gg/abodby-top-kick-streamer-jordan/)
+- **U-19 World Cup: Henil, Kundu secure India's first win; WI take down Tanzania with ease**: [Link](https://www.espncricinfo.com/story/under-19-world-cup-2026-henil-kundu-secure-india-s-first-win-wi-take-down-tanzania-with-ease-1519593)
+
+
+### openai (N/A, 15/01/2026 23:44 Lima)
+
+- **OpenAI tells investors to brace for 'deliberately outlandish' claims from Musk ahead of trial**: [Link](https://www.cnbc.com/2026/01/15/openai-to-investors-expect-deliberately-outlandish-claims-from-musk.html)
+- **Musk’s lawsuit against OpenAI, Microsoft heads to April jury trial**: [Link](https://www.investing.com/news/stock-market-news/musks-lawsuit-against-openai-microsoft-heads-to-april-jury-trial-4450989)
+- **Judge gives all clear for Elon Musk's lawsuit against OpenAI to head to trial: 'We look forward to presenting all the evidence'**: [Link](https://www.yahoo.com/news/articles/judge-gives-clear-elon-musks-220500788.html)
+
+
+### bono por escolaridad 2026 (N/A, 15/01/2026 23:44 Lima)
+
+- **Disposiciones reglamentarias para el otorgamiento de la bonificación por escolaridad 2026 [Decreto Supremo 002-2026-EF]**: [Link](https://lpderecho.pe/disposiciones-reglamentarias-para-otorgamiento-de-la-bonificacion-por-escolaridad-2026-decreto-supremo-002-2026-ef/)
+- **CAS con bono de escolaridad de S/ 400: La propuesta del Convenio Colectivo 2026-2027**: [Link](https://www.infobae.com/peru/2026/01/15/cas-con-bono-de-escolaridad-de-s-400-la-propuesta-del-convenio-colectivo-2026-2027/)
+- **Bono de escolaridad 2026: ¿Cuándo se paga y cuánto es el monto para el sector estatal?**: [Link](https://gestion.pe/peru/bono-de-escolaridad-2026-mira-cuando-se-paga-y-cuanto-es-el-monto-para-el-sector-estatal-noticia/)
+
+
+### nathy peluso (N/A, 15/01/2026 23:44 Lima)
+
+- **Rels B, Nathy Peluso e Iván Ferreiro se suman al Tenerife Music Festival 2026**: [Link](https://www.canarias7.es/cultura/musica/rels-nathy-peluso-ivan-ferreiro-suman-tenerife-20260114124309-nt.html)
+- **Tenerife Music Festival 2026: Cartel por días**: [Link](https://www.lahiguera.net/musicalia/noticias/31428.html)
+- **Rels B irrumpe en el cartel del Tenerife Music Festival 2026 y liderará una edición de alto voltaje en Santa Cruz**: [Link](https://www.eldia.es/tenerife/2026/01/14/rels-b-irrumpe-cartel-tenerife-125672561.html)
+
+
+### xiaomi redmi note 15 pro+ 5g (N/A, 15/01/2026 23:44 Lima)
+
+- **The global rollout of the Redmi Note 15 begins in earnest, here are the prices - GSMArena.com news**: [Link](https://www.gsmarena.com/the_global_rollout_of_the_redmi_note_15_begins_in_earnest_here_are_the_prices-news-71122.php)
+- **REDMI Note 15 Series smartphones now available in the Philippines**: [Link](https://www.bworldonline.com/technology/2026/01/15/724436/redmi-note-15-series-smartphones-now-available-in-the-philippines/)
+- **REDMI Note 15 Pro 5G and Note 15 Pro+ 5G go global**: [Link](https://www.fonearena.com/blog/473574/redmi-note-15-pro-5g-price-specifications-global-redmi-note-15-pro-plus-5g.html)
+
+
+### vasco da gama vs (N/A, 15/01/2026 23:44 Lima)
+
+- **coritiba vs vasco da gama**: [Link](http://www.ufrpe.br/app/coritiba-vs-vasco-da-gama.shtml)
+- **vasco da gama vs coritiba**: [Link](https://maraba.pa.gov.br/bull/vasco-da-gama-vs-coritiba)
+- **vasco da gama vs**: [Link](http://www.ufrpe.br/app/vasco-da-gama-vs.shtml)
+
+
 ### junior (N/A, 15/01/2026 21:08 Lima)
 
 - **Junior vs. Santa Fe: Alineaciones titulares en final ida de Superliga 2026**: [Link](https://www.espn.com.pe/futbol/colombia/nota/_/id/16187355/junior-vs-santa-fe-alineacion-equipos-titulares-superliga-2026-ida)
@@ -969,66 +1032,5 @@ Sin noticias relacionadas disponibles.
 - **'It gives us a fresh opportunity' - Arne Slot's FA Cup programme notes**: [Link](https://www.liverpoolfc.com/news/it-gives-us-fresh-opportunity-arne-slots-fa-cup-programme-notes)
 - **Liverpool Face Barnsley In High-Stakes FA Cup Clash At Anfield**: [Link](https://evrimagaci.org/gpt/liverpool-face-barnsley-in-highstakes-fa-cup-clash-at-anfield-523589)
 - **How to watch FA Cup in India? TV channel, live stream and start time for Liverpool vs. Barnsley**: [Link](https://www.sportingnews.com/in/football/news/watch-fa-cup-india-tv-channel-live-stream-liverpool-barnsley-time/75b38fa5287eda235e4ca09f)
-
-
-### juventus vs cremonese (N/A, 12/01/2026 15:31 Lima)
-
-- **Spalletti: ‘Juventus short in a couple of positions, I trust blindly’**: [Link](https://football-italia.net/spalletti-juventus-short-in-couple-positions/)
-- **Game Time Thread: Juventus vs. Cremonese**: [Link](https://sports.yahoo.com/articles/game-time-thread-juventus-vs-183000032.html)
-- **Juventus vs. Cremonese: Serie A betting odds, prediction, pick**: [Link](https://www.usatoday.com/story/sports/soccer/2026/01/12/juventus-vs-cremonese-serie-a-betting-odds-prediction-pick/88135666007/)
-
-
-### juventus - cremonese (N/A, 12/01/2026 15:31 Lima)
-
-- **Goal di Miretti o rete di Bremer in Juventus-Cremonese? Cosa è successo e la decisione della Lega Serie A**: [Link](https://www.goal.com/it/liste/goal-di-miretti-o-rete-di-bremer-in-juventus-cremonese-cosa-e-successo-e-la-decisione-della-lega-serie-a/blt92cc18f836599318)
-- **Tutte le notizie sul calcio in Diretta**: [Link](https://www.diretta.it/news/calcio-live-genoa-cagliari-3-0-in-campo-juve-cremonese-3-0-gol-di-yildiz/2Jk93N0m/)
-- **Spalletti: “Vi spiego perché Koopmeiners in panchina! Su Kelly e Vardy…”**: [Link](https://www.sosfanta.com/news/spalletti-vi-spiego-perche-koopmeiners-in-panchina-su-kelly-e-vardy/)
-
-
-### primera división de arabia saudita (N/A, 12/01/2026 15:31 Lima)
-
-- **Equipo de Quioto y Deiby Flores es el peor de la Saudi Pro League: tenían cerca su primer triunfo y les remontaron en el 90+8'**: [Link](https://www.diez.hn/legionarios/equipo-quioto-y-deiby-flores-es-el-peor-de-la-saudi-pro-league-tenian-cerca-su-primer-triunfo-y-les-remontaron-en-el-90-8-FD28905275)
-- **Romell Quioto sufre golpe bajo en club en Superliga de Arabia Saudita**: [Link](https://www.deportestvc.com/mas/romell-quioto-golpe-bajo-arabia-saudita-borrado-tres-jornadas-2026-01-10)
-- **El Al-Najma de Deiby Flores y Quioto sigue sin ganar en la Saudi Pro League**: [Link](https://www.elheraldo.hn/deportes/alnajma-deiby-flores-quioto-sigue-sin-ganar-saudi-pro-league-OD28904875)
-
-
-### sentinel (N/A, 12/01/2026 15:31 Lima)
-
-- **Jerry Demings’ campaign for governor gets off to slow fundraising start**: [Link](https://www.orlandosentinel.com/2026/01/12/jerry-demings-campaign-for-governor-gets-off-to-slow-fundraising-start/)
-- **FORECAST 2026: Service is Jerry Demings' purpose**: [Link](https://www.orangeobserver.com/news/2026/jan/07/forecast-2026-service-is-jerry-demings-purpose/)
-- **San Angelo MLK Jr. Association hosting events honoring King**: [Link](https://www.gosanangelo.com/story/news/2026/01/12/three-days-of-events-planned-honoring-dr-martin-luther-king-jr-san-angelo/88100471007/)
-
-
-### the batman part ii (N/A, 12/01/2026 11:34 Lima)
-
-- **‘The Batman Part II’: Sebastian Stan In Talks For Role Opposite Robert Pattinson In Sequel – The Dish**: [Link](https://deadline.com/2026/01/the-batman-part-ii-sebastian-stan-1236665032/)
-- **Sebastian Stan to Join Robert Pattinson in ‘The Batman 2’**: [Link](https://variety.com/2026/film/news/batman-2-cast-robert-pattinson-sebastian-stan-1236607867/)
-- **Avengers: Doomsday Will Include Major MCU Deaths - Here’s Why I’m Convinced**: [Link](https://screenrant.com/avengers-doomsday-major-mcu-deaths-theory/)
-
-
-### nombre del año 2026 en peru (N/A, 12/01/2026 11:34 Lima)
-
-- **Nombre del año 2026 en Perú**: [Link](https://elcomercio.pe/respuestas/tramites/cual-es-el-nombre-del-ano-2026-en-peru-todo-lo-que-debes-saber-de-su-denominacion-oficial-tdpe-noticia/)
-- **¿Cómo se llamará el año 2026 en Perú? Esto es lo último que se sabe hoy 8 de enero**: [Link](https://www.infobae.com/peru/2026/01/04/se-sabe-como-se-llamara-el-ano-2026-en-peru-esto-es-lo-ultimo-que-se-conoce/)
-- **¿Cómo se llama el año 2026 en Perú y por qué cada año recibe un nombre distinto?**: [Link](https://larepublica.pe/datos-lr/2026/01/09/como-se-llama-el-ano-2026-en-peru-y-por-que-cada-ano-recibe-un-nombre-distinto-atmp-666999)
-
-
-### afp integra (N/A, 12/01/2026 11:34 Lima)
-
-- **Segunda solicitud de retiro de AFP ya se puede registrar con monto extra, por aumento de la UIT**: [Link](https://www.infobae.com/peru/2026/01/08/segunda-solicitud-de-retiro-de-afp-se-puede-registrar-desde-hoy-por-aumento-de-la-uit/)
-- **Retiro de la AFP: Extienden plazo límite y monto de retiro sube a S/ 22,000 por nueva UIT**: [Link](https://www.atv.pe/noticia/retiro-de-la-afp-extienden-plazo-limite-y-monto-de-retiro-sube-a-s-22000-por-nueva-uit/)
-- **Retiro de AFP: claves para proteger este dinero si decide retirarlo tras el ajuste de la UIT**: [Link](https://www.businessempresarial.com.pe/retiro-de-afp-claves-para-proteger-este-dinero-si-decide-retirarlo-tras-el-ajuste-de-la-uit/)
-
-
-### pierre-hugues herbert (N/A, 12/01/2026 11:34 Lima)
-
-- **H2H, prediction of Pierre-Hugues Herbert vs Guy Den Ouden at the Australian Open with odds, preview, pick |...**: [Link](https://tennistonic.com/tennis-news/943529/h2h-prediction-of-pierre-hugues-herbert-vs-guy-den-ouden-at-the-australian-open-with-odds-preview-pick-12th-january-2026/)
-
-
-### rafael lópez aliaga (N/A, 12/01/2026 11:34 Lima)
-
-- **Elecciones 2026: Rafael López Aliaga alcanza el 12 %, mientras la mayoría de peruanos sigue sin definir por quién votar**: [Link](https://www.infobae.com/peru/2026/01/11/elecciones-2026-rafael-lopez-aliaga-alcanza-el-12-mientras-la-mayoria-de-peruanos-sigue-sin-definir-por-quien-votar/)
-- **Rafael López Aliaga lidera intención de voto presidencial con 12%, según Datum**: [Link](https://canaln.pe/actualidad/rafael-lopez-aliaga-lidera-intencion-voto-presidencial-12-segun-datum-n489530)
-- **Datum: Indecisión electoral se reduce al 43%, pero persiste la falta de representatividad**: [Link](https://rpp.pe/politica/elecciones/datum-indecision-electoral-se-reduce-al-43-pero-persiste-la-falta-de-representatividad-noticia-1671245)
 
 
