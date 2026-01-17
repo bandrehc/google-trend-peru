@@ -1,3 +1,17 @@
+### real madrid vs levante (N/A, 17/01/2026 03:32 Lima)
+
+- **Will Mbappe Be Called up Against Levante?**: [Link](https://www.beinsports.com/en-us/soccer/la-liga/articles/will-mbappe-be-called-up-against-levante-2026-01-16)
+- **Camavinga, Tchouameni And Carreras To Start | 4-2-3-1 Real Madrid Predicted Lineup Vs Levante**: [Link](https://sports.yahoo.com/articles/camavinga-tchouameni-carreras-start-4-190500531.html)
+- **Arbeloa talks Mbappe, Vinicius, Bellingham, Valverde, Rodrygo ahead of Real Madrid vs Levante**: [Link](https://madriduniversal.com/arbeloa-talks-mbappe-vinicius-bellingham-valverde-rodrygo-ahead-of-real-madrid-vs-levante/)
+
+
+### ter stegen (N/A, 17/01/2026 03:32 Lima)
+
+- **How Hansi Flick reacted to Dro’s decision to leave Barcelona**: [Link](https://getfootballnewsspain.com/how-hansi-flick-reacted-to-dros-decision-to-leave-barcelona/)
+- **Chelsea & Man City battle for Barca transfer raid as bargain release clause to be triggered soon**: [Link](https://www.yardbarker.com/soccer/articles/chelsea_man_city_battle_for_barca_transfer_raid_as_bargain_release_clause_to_be_triggered_soon/s1_15953_43343596)
+- **Luis Enrique gives cryptic response when asked about Barcelona youngster Dro Fernandez links to PSG**: [Link](https://semprebarca.com/luis-enrique-gives-cryptic-response-when-asked-about-barcelona-youngster-dro-fernandez-links-to-psg/)
+
+
 ### prince (N/A, 16/01/2026 23:36 Lima)
 
 - **Prince Harry expected to return to UK as tabloid trial begins**: [Link](https://abcnews.go.com/GMA/Culture/prince-harry-expected-return-uk-tabloid-trial-begins/story?id=129240052)
@@ -1020,17 +1034,5 @@
 - **Fußball-Bundesliga: Abstiegskrimi vor Minus-Kulisse**: [Link](https://www.diefalsche9.de/fussball-bundesliga-abstiegskrimi-vor-minus-kulisse/)
 - **FSV Mainz 05: Ergebnisse, Spiele und Tabelle in der Saison 2025/2026**: [Link](https://www.news.de/sport/857120750/fsv-mainz-05-ergebnisse-statistik-und-fussball-news-vom-13-01-2026-tabelle-und-spielplan-fuer-naechste-spiele-in-der-bundesliga-2025-2026/1/)
 - **„Unser Kämpferherz auf den Platz bringen!“**: [Link](https://www.fc-heidenheim.de/news/detail/unser-kampferherz-auf-den-platz-bringen?cHash=0030e12e701835706e4c944861015fb0)
-
-
-### copa italia (N/A, 13/01/2026 15:31 Lima)
-
-- **¡EN VIVO! Roma y Torino se cruzan en octavos de la Copa Italia**: [Link](https://www.espn.com.ar/futbol/italia/nota/_/id/16176297/roma-vs-torino-octavos-copa-italia-equipo-fecha-hora-y-tv-en-vivo)
-- **Roma vs. Torino juegan hoy por Copa Italia 2025-2026, todo lo que tenés que saber**: [Link](https://www.directvsports.com/futbol/roma-vs.-torino-juegan-hoy-por-copa-italia-2025-2026-todo-lo-que-tenes-que-saber-20260110-0001.html)
-- **AS Roma-Torino, posibles XI: Ghilardi, Ziolkowski, Hermoso en defensa, Dybala en punta**: [Link](https://planetaroma.net/as-roma-torino-posibles-xi-ghilardi-ziolkowski-hermoso-en-defensa-dybala-en-punta/)
-
-
-### willax tv en vivo (N/A, 13/01/2026 15:31 Lima)
-
-Sin noticias relacionadas disponibles.
 
 
