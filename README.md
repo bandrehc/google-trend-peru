@@ -1,3 +1,73 @@
+### lennart karl (N/A, 17/01/2026 15:27 Lima)
+
+- **Hamann chooses Bayern jewel Lennart Karl as player of the first half of the season**: [Link](https://fcbinside.com/2026/01/17/hamann-chooses-bayern-jewel-lennart-karl-as-player-of-the-first-half-of-the-season/)
+- **Ex-Germany coach Klinsmann assesses Karl’s chances of taking part in 2026 World Cup: 'If this guy keeps playing like this'**: [Link](https://tribuna.com/en/news/2026-01-17-exgermany-coach-klinsmann-assesses-karls-chances-of-taking-part-in-2026-world-cup-if-this/)
+- **"You have to take him with you!": Matthäus demands World Cup ticket for Bayern jewel Karl**: [Link](https://fcbinside.com/2026/01/15/you-have-to-take-him-with-you-matthaeus-demands-world-cup-ticket-for-bayern-jewel-karl/)
+
+
+### rio ave - benfica (N/A, 17/01/2026 15:27 Lima)
+
+- **Já há onze! Benfica com grande novidade para enfrentar o Rio Ave**: [Link](https://www.abola.pt/noticias/ja-ha-onze-benfica-com-grande-novidade-para-enfrentar-o-rio-ave-2026011718213354467)
+- **Tudo em aberto: representantes de André Luiz em Vila do Conde para assistir ao Rio Ave-Benfica**: [Link](https://sapo.pt/artigo/tudo-em-aberto-representantes-de-andre-luiz-em-vila-do-conde-para-assistir-ao-rio-ave-benfica-696bd2af4feb524eb6047060)
+- **“Motivados para caçar quem está à frente”**: [Link](https://www.pressreader.com/portugal/jornal-de-noticias/20260117/282505779996052)
+
+
+### cagliari vs (N/A, 17/01/2026 15:27 Lima)
+
+- **Cuándo juegan Cagliari vs Juventus por la Serie A 2026: equipo, fecha, hora y TV en vivo**: [Link](https://www.espn.com.pe/futbol/italia/nota/_/id/16180022/cagliari-vs-juventus-por-la-serie-a-2026-equipo-fecha-hora-y-tv-en-vivo)
+- **Serie A: Por la fecha 21 se enfrentarán Cagliari y Juventus**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-por-la-fecha-21-se-enfrentaran-cagliari-y-juventus-noticia-1671833)
+- **Duelo Cagliari vs Juventus, a la espera de buena acción de Kenan Yildiz**: [Link](https://www.ucvradio.pe/mas-actualidad/duelo-cagliari-vs-juventus-a-la-espera-de-buena-accion-de-kenan-yildiz/105702/)
+
+
+### bruno mars (N/A, 17/01/2026 15:27 Lima)
+
+- **Bruno Mars Is Performing A Roblox Steal A Brainrot Concert For One Day Only**: [Link](https://www.gamespot.com/articles/bruno-mars-is-performing-a-roblox-steal-a-brainrot-concert-for-one-day-only/1100-6537477/)
+- **Bruno Mars Concert - Steal a Brainrot Guide**: [Link](https://www.ign.com/wikis/steal-a-brainrot/Bruno_Mars_Concert)
+- **Bruno Mars Goes Full ‘Brainrot’ as the Pop Icon Storms Roblox This Sunday**: [Link](https://www.goldcentralvictoria.com.au/trending/gaming/bruno-mars-goes-full-brainrot-as-the-pop-icon-storms-roblox-this-sunday/)
+
+
+### cagliari vs juventus (N/A, 17/01/2026 15:27 Lima)
+
+- **Serie A: Cagliari vs. Juventus – probable line-ups and where to watch on TV**: [Link](https://football-italia.net/cagliari-v-juventus-probable-line-ups-watch-tv/)
+- **Chiellini: ‘Juventus see Spalletti here for many years’**: [Link](https://sports.yahoo.com/articles/chiellini-juventus-see-spalletti-many-193500894.html)
+- **Soccer Streams!Serie:Juventus Vs Cagliari LIVE Streams ON TV CHANNEL**: [Link](https://www.goldderby.com/topic/soccer-streamsseriejuventus-vs-cagliari-live-streams-on-tv-channel/)
+
+
+### angers - marsella (N/A, 17/01/2026 15:27 Lima)
+
+- **Preview: Angers vs Marseille - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/angers/preview/angers-vs-marseille-prediction-team-news-lineups_589848.html)
+- **Angers vs Marseille Preview: Team News & Prediction**: [Link](https://www.thestatszone.com/angers-vs-marseille-preview-team-news-prediction-165282)
+- **Pierre-Emerick Aubameyang vs. Angers SCO – Player props & odds to score a goal on January 17**: [Link](https://prosoccerwire.usatoday.com/story/sports/2026/01/17/pierre-emerick-aubameyang-soccer-player-props-1-17-2026/88228201007/)
+
+
+### real betis - villarreal (N/A, 17/01/2026 15:27 Lima)
+
+- **Pellegrini palpita el duelo ante un rival directo por clasificar a Champions**: [Link](https://www.espn.com.ar/futbol/espana/nota/_/id/16189341/pellegrini-palpita-el-duelo-ante-un-rival-directo-por-clasificar-a-champions)
+- **Apuestas y Pronóstico del Real Betis vs Villarreal 17/01/26**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2026/enero/pronostico-real-betis-vs-villarreal-17-01-26)
+- **Betis - Villarreal | El tren de Europa pasa por La Cartuja: previa, análisis, pronóstico y predicción**: [Link](https://www.marca.com/futbol/primera-division/2026/01/17/betis-villarreal-tren-europa-pasa-cartuja-previa-analisis-pronostico-prediccion.html)
+
+
+### psv vs (N/A, 17/01/2026 15:27 Lima)
+
+- **Fortuna vs. PSV (17 Jan, 2026) Live Score**: [Link](https://www.espn.co.uk/football/match/_/gameId/741144)
+- **Preview: Fortuna Sittard vs. PSV Eindhoven - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/fortuna-sittard/preview/sittard-vs-psv-prediction-team-news-lineups_589964.html)
+- **Fortuna Sittard-PSV Eindhoven - Eredivisie 2025/2026 Statistical Preview**: [Link](https://www.whoscored.com/matches/1903806/preview/netherlands-eredivisie-2025-2026-fortuna-sittard-psv-eindhoven)
+
+
+### al-nassr vs. al-shabab (N/A, 17/01/2026 15:27 Lima)
+
+- **Al Nassr vs. Al Shabab Lineups, Head-to-Head Stats, Live Score & Results**: [Link](https://athlonsports.com/soccer/al-nassr-al-shabab-lineups-stats-live-score-results)
+- **Will Cristiano Ronaldo Play Tonight in Al-Nassr vs Al-Shabab Saudi Pro League 2025-26 Match? Here’s the**: [Link](https://www.latestly.com/sports/football/will-cristiano-ronaldo-play-tonight-in-al-nassr-vs-al-shabab-saudi-pro-league-2025-26-match-heres-the-possibility-of-cr7-featuring-in-starting-xi-7278846.html)
+- **Goals and Highlights for Al-Nassr 3-2 Al-Shabab in Saudi Pro League Match**: [Link](https://www.vavel.com/en-us/soccer/2026/01/17/1247549-al-nassr-vs-al-shabab-live-score-saudi-pro-league-match.html)
+
+
+### zwolle - az (N/A, 17/01/2026 15:27 Lima)
+
+- **PEC - AZ (17 jan., 2026) Live tussenstand**: [Link](https://www.espn.nl/voetbal/wedstrijd/_/wedstrijdId/741142)
+- **AZ geeft 6-0-zege op Ajax geen goed vervolg ondanks cornergoal Koopmeiners**: [Link](https://www.nu.nl/voetbal/6382978/az-geeft-6-0-zege-op-ajax-geen-goed-vervolg-ondanks-cornergoal-koopmeiners.html)
+- **Verloren zoon Younes Namli bezorgt PEC Zwolle met twee oogstrelende assists zege op verbijsterend AZ**: [Link](https://www.telegraaf.nl/sport/voetbal/verloren-zoon-younes-namli-bezorgt-pec-zwolle-met-twee-oogstrelende-assists-zege-op-verbijsterend-az/124529452.html)
+
+
 ### leverkusen vs (N/A, 17/01/2026 11:29 Lima)
 
 - **Matchday 17 fixture between Hamburg and Bayer Leverkusen postponed**: [Link](https://www.bundesliga.com/en/bundesliga/news/matchday-17-fixture-hamburg-leverkusen-postponed-winter-weather-35536)
@@ -966,75 +1036,5 @@
 - **Carlos Torres Vila: “BBVA contará con €49.000 millones de capital de máxima calidad en el nuevo ciclo estratégico”**: [Link](https://www.bbva.com/es/economia-y-finanzas/carlos-torres-vila-bbva-contara-con-e49-000-millones-de-capital-de-maxima-calidad-en-el-nuevo-ciclo-estrategico/)
 - **Carlos Torres afirma que BBVA generará 49.000 millones hasta 2028 para crecer y remunerar al accionista**: [Link](https://www.lacronicabadajoz.com/economia/2026/01/13/carlos-torres-afirma-bbva-generara-125647979.html)
 - **BBVA tiene buenas perspectivas para 2026 en todos los mercados en los que opera, incluido México**: [Link](https://www.eleconomista.com.mx/sectorfinanciero/bbva-buenas-perspectivas-2026-todos-mercados-opera-incluido-mexico-20260113-795104.html)
-
-
-### chelsea vs arsenal (N/A, 14/01/2026 07:58 Lima)
-
-- **Chelsea star remains doubt for Arsenal after appearing to miss training**: [Link](https://dailycannon.com/2026/01/palmer-gusto-james-injuries-chelsea-arsenal/)
-- **Liam Rosenior quietly handed a huge edge over Arsenal**: [Link](https://theprideoflondon.com/liam-rosenior-quietly-handed-huge-edge-over-arsenal)
-- **Chelsea vs Arsenal prediction and odds ahead of Carabao Cup clash**: [Link](https://www.football.london/chelsea-fc/news/chelsea-arsenal-preview-prediction-tips-33222428)
-
-
-### caracol (N/A, 14/01/2026 07:58 Lima)
-
-- **Fredy Guarín denunció asalto violento a su finca de Rionegro mientras estaba de vacaciones: “Se siente uno impotente”**: [Link](https://www.infobae.com/colombia/2026/01/14/fredy-guarin-denuncio-asalto-violento-a-su-finca-de-rionegro-mientras-estaba-de-vacaciones-se-siente-uno-impotente/)
-- **[Video] Freddy Guarín denunció millonario robo que le hicieron en su finca**: [Link](https://www.deportesrcn.com/mas-alla-del-deporte/video-freddy-guarin-denuncio-millonario-robo-que-le-hicieron-en-su-finca-143964)
-- **Mundialista con la Selección Colombia denunció robo en su finca; "es frustrante"**: [Link](https://www.noticiascaracol.com/golcaracol/mundialista-con-la-seleccion-colombia-denuncio-robo-en-su-finca-es-frustrante-rg10)
-
-
-### temblor chimbote (N/A, 14/01/2026 03:37 Lima)
-
-- **Sismo de magnitud 4.8 se registró esta madrugada al sur de Tacna, informó el IGP**: [Link](https://diariocorreo.pe/edicion/tacna/sismo-de-magnitud-48-se-registro-esta-madrugada-al-sur-de-tacna-informo-el-igp-noticia/)
-- **Temblor en Perú HOY, 14 de enero: ¿En qué lugar se produjo el último sismo y cuál fue su magnitud, según IGP?**: [Link](https://larepublica.pe/sociedad/2026/01/14/temblor-en-peru-hoy-miercoles-14-de-enero-del-2026-magnitud-epicentro-y-mas-sobre-sismos-recientes-segun-igp-ultimo-sismo-en-lima-ica-callao-y-otras-provincias-atmp-1270269)
-- **Temblor hoy en Perú: Sismo de magnitud 4,2 se registró en Chimbote**: [Link](https://andina.pe/agencia/noticia-temblor-hoy-peru-sismo-magnitud-42-se-registro-chimbote-1058935.aspx)
-
-
-### edgar vivar (N/A, 14/01/2026 03:37 Lima)
-
-- **¿Murió Édgar Vivar? El querido Señor Barriga y los rumores de su muerte**: [Link](https://www.marca.com/mx/trending/celebrities/2026/01/13/6965aacf46163f767d8b456c.html)
-- **Actor de "El Chavo del 8" desmiente fuertes rumores de muerte**: [Link](https://meridiano.net/usa/farandula/actor-de-el-chavo-del-8-desmiente-fuertes-rumores-de-muerte--202611312170)
-- **Edgar Vivar desmiente su muerte y tranquiliza a sus seguidores tras rumor viral**: [Link](https://www.redpat.tv/detalle/edgar-vivar-desmiente-su-muerte-y-tranquiliza-a-sus-seguidores-tras-rumor-viral)
-
-
-### caracol tv (N/A, 14/01/2026 03:37 Lima)
-
-- **Qué se sabe sobre el accidente de avioneta en el que murió el músico colombiano Yeison Jiménez y sus cinco acompañantes**: [Link](https://www.bbc.com/mundo/articles/c3ve5r2nkn5o)
-- **Hija de Yeison Jiménez compartió conmovedora fotografía junto a su papá: “Ojalá todo fuera un sueño”**: [Link](https://www.infobae.com/colombia/2026/01/12/hija-de-yeison-jimenez-compartio-conmovedora-fotografia-junto-a-su-papa-ojala-todo-fuera-un-sueno/)
-- **Hermana de Yeison Jiménez hace aclaración sobre homenaje que se le hará al cantante**: [Link](https://www.caracoltv.com/actualidad/funeral-de-yeison-jimenez-lina-jimenez--su-hermana-da-detalles-del-homenaje-ed45)
-
-
-### concierto bad bunny (N/A, 13/01/2026 23:50 Lima)
-
-- **Confirman After Party oficial tras concierto de Bad Bunny**: [Link](https://caretas.pe/entretenimiento/after-party-bad-bunny-lima/)
-- **Alertan a seguidores de Bad Bunny por venta de entradas falsas para conciertos en Lima**: [Link](https://diariocorreo.pe/espectaculos/alertan-a-seguidores-de-bad-bunny-por-venta-de-entradas-falsas-a-sus-conciertos-noticia/)
-- **Bad Bunny en Lima: ¿Arcángel es el artista invitado de sus conciertos en el Estadio Nacional?**: [Link](https://www.oigo.com/noticias/musica/bad-bunny-en-lima-arcangel-es-el-artista-invitado-de-sus-conciertos-en-el-estadio-nacional/)
-
-
-### juarez vs (N/A, 13/01/2026 23:50 Lima)
-
-- **Liga MX: Chivas visita a FC Juárez por la fecha 2**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-chivas-visita-a-fc-juarez-por-la-fecha-2-noticia-1671304)
-- **Transmisión EN VIVO del Juárez vs Chivas hoy: cómo mirar el partido por TV o streaming**: [Link](https://www.365scores.com/es/news/juarez-vs-chivas-como-ver-transmision/)
-- **Recuperación de Diego Campillo causa problema para Gabriel Milito y sus alineaciones del CL26**: [Link](https://chivaspasion.bolavip.com/noticias/recuperacion-de-diego-campillo-causa-problema-para-gabriel-milito-y-sus-alineaciones-del-cl26)
-
-
-### la reina del flow 3 (N/A, 13/01/2026 23:50 Lima)
-
-- **A qué hora inicia 'La Reina del Flow 3' en Caracol y qué pasará en el capítulo 1**: [Link](https://www.caracoltv.com/la-reina-del-flow/la-reina-del-flow-3-en-caracol-fecha-hora-y-que-pasara-en-el-capitulo-1-pr30)
-- **La reina del flow Temporada 3, actores y personajes: guía del elenco de la serie colombiana de Netflix | MAG**: [Link](https://elcomercio.pe/mag/fama/que-ver/la-reina-del-flow-temporada-3-actores-y-personajes-guia-del-elenco-de-la-serie-colombiana-de-netflix-the-queen-of-flow-season-3-cast-guide-nnda-nnlt-noticia/)
-- **‘La reina del flow 3’: fecha de estreno, dónde y desde qué hora ver el regreso de Yeimy Montoya y Charly Flow**: [Link](https://rpp.pe/tv/streaming/la-reina-del-flow-3-fecha-de-estreno-donde-y-a-que-hora-ver-el-regreso-de-yeimy-montoya-y-charly-flow-noticia-1671179)
-
-
-### ariana grande (N/A, 13/01/2026 23:50 Lima)
-
-- **“Glinda Has Officially Left The Building”: Ariana Grande’s Appearance And Voice At The 2026 Golden Globes Are Going Super Viral**: [Link](https://www.yahoo.com/entertainment/celebrity/articles/people-think-ve-worked-why-140626963.html)
-- **Ariana Grande Brings Back Her Power Ponytail at Golden Globes 2026**: [Link](https://people.com/golden-globes-2026-ariana-grande-brings-back-her-power-ponytail-11883264)
-- **Ariana Grande Rocks Elphaba-Coded Look at the 2026 Golden Globes**: [Link](https://www.eonline.com/news/1426375/golden-globes-2026-ariana-grande-red-carpet-fashion-look)
-
-
-### monterrey vs (N/A, 13/01/2026 23:50 Lima)
-
-- **Liga MX: Necaxa recibirá a CF Monterrey por la fecha 2**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-necaxa-recibira-a-cf-monterrey-por-la-fecha-2-noticia-1671286)
-- **Monterrey vs. Necaxa EN VIVO vía Claro Sports, TV Azteca y VIX por Liga MX**: [Link](https://depor.com/mexico/liga-mx/monterrey-vs-necaxa-en-vivo-gratis-hoy-claro-sports-tv-azteca-7-vix-premium-pluto-tv-y-futbol-libre-tv-en-directo-online-donde-ver-partido-por-liga-mx-video-noticia/)
-- **¡RAYADOS, POR LOS TRES PUNTOS EN AGUASCALIENTES!**: [Link](https://onefootball.com/es/noticias/rayados-por-los-tres-puntos-en-aguascalientes-42222723)
 
 
