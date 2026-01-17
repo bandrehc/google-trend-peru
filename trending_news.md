@@ -1,3 +1,24 @@
+### prince (N/A, 16/01/2026 23:36 Lima)
+
+- **Prince Harry expected to return to UK as tabloid trial begins**: [Link](https://abcnews.go.com/GMA/Culture/prince-harry-expected-return-uk-tabloid-trial-begins/story?id=129240052)
+- **Prince Harry’s lawyers accused of fraud ahead of his testimony in UK**: [Link](https://www.newsnationnow.com/entertainment-news/prince-harry-lawyers-fraud-uk-testify-daily-mail-case/)
+- **Prince Harry’s lawyers accused of dishonesty, fraud and conspiracy**: [Link](https://www.telegraph.co.uk/royal-family/2026/01/15/prince-harry-lawyers-accused-of-dishonesty-fraud-conspiracy/)
+
+
+### fortaleza vs (N/A, 16/01/2026 23:36 Lima)
+
+- **Fortaleza vs Alianza hoy: Resultado EN VIVO, minuto a minuto y goles de la Liga BetPlay 2026**: [Link](https://www.365scores.com/es/news/fortaleza-vs-alianza-resultado-en-vivo/)
+- **Pronóstico Fortaleza FC Alianza FC Valledupar - Primera A Colombia 16/01/26**: [Link](https://www.sportytrader.com/es/pronosticos/fortaleza-fc-alianza-fc-valledupar-318520/)
+- **El año de la consolidación: Fortaleza vence a Alianza en su debut**: [Link](https://www.clarosports.com/colombia/liga-bet-play/fortaleza-vs-alianza-en-vivo-la-liga-betplay-2026-i-resultado-y-goles-de-la-jornada-1/)
+
+
+### mazatlán - monterrey (N/A, 16/01/2026 23:36 Lima)
+
+- **Liga MX: Se disputan Mazatlán y CF Monterrey en el primer duelo por la Fecha 3**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-se-disputan-mazatlan-y-cf-monterrey-en-el-primer-duelo-por-la-fecha-3-noticia-1671752)
+- **¡RAYADOS, POR UN TRIUNFO MÁS EN EL CLAUSURA 2026!**: [Link](https://onefootball.com/es/noticias/rayados-por-un-triunfo-mas-en-el-clausura-2026-42241583)
+- **¡Se quitó la mufa! Anthony Martial anota su primer gol con Rayados: así fue el 3-0 ante Mazatlán**: [Link](https://bolavip.com/mx/rayados-monterrey/se-quito-la-mufa-anthony-martial-anota-su-primer-gol-con-rayados-asi-fue-el-1-0-ante-mazatlan)
+
+
 ### mario vizcarra (N/A, 16/01/2026 21:02 Lima)
 
 - **Elecciones 2026: Mario Vizcarra seguirá en carrera presidencial tras resolución del JNE**: [Link](https://rpp.pe/politica/elecciones/elecciones-2026-mario-vizcarra-seguira-en-carrera-presidencial-tras-resolucion-del-jne-noticia-1671448)
@@ -1011,26 +1032,5 @@
 ### willax tv en vivo (N/A, 13/01/2026 15:31 Lima)
 
 Sin noticias relacionadas disponibles.
-
-
-### julio iglesias (N/A, 13/01/2026 15:31 Lima)
-
-- **Extrabajadoras de las mansiones de Julio Iglesias acusan al cantante de agresiones sexuales**: [Link](https://www.eldiario.es/cultura/extrabajadoras-mansiones-julio-iglesias-acusan-cantante-agresiones-sexuales_1_12902425.html)
-- **Julio Iglesias es acusado de agresión sexual por dos exempleadas de servicio doméstico**: [Link](https://rpp.pe/famosos/celebridades/julio-iglesias-es-acusado-de-agresion-sexual-por-dos-exempleadas-de-servicio-domestico-noticia-1671353)
-- **Dos mujeres denuncian en España a Julio Iglesias por agresión sexual y trata de seres humanos**: [Link](https://www.univision.com/especiales/noticias/infografias/2026/julio-iglesias-demanda)
-
-
-### newcastle - manchester city (N/A, 13/01/2026 15:31 Lima)
-
-- **Guardiola to assess squad with Ait-Nouri back from AFCON**: [Link](https://www.mancity.com/news/mens/pep-guardiola-202526-injury-update-newcastle-united-manchester-city-63903816)
-- **Newcastle Defend EFL Cup Title Against Man City at St James’ Park**: [Link](https://www.dawan.africa/news/newcastle-defend-efl-cup-title-against-man-city-at-st-james-park)
-- **Valentino Livramento out for two months with a hamstring injury**: [Link](https://footballtoday.com/2026/01/13/valentino-livramento-out-for-two-months-with-a-hamstring-injury/)
-
-
-### dolares a soles (N/A, 13/01/2026 11:38 Lima)
-
-- **Precio del dólar en Perú: a cuánto cerró el tipo de cambio el domingo 11 de enero**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-2026-a-cuanto-esta-el-dolar-este-domingo-11-de-enero-tipo-de-cambio-tasa-cotizacion-compa-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
-- **Precio del dólar en Perú hoy, lunes 12 de enero: así cotiza el tipo de cambio**: [Link](https://caretas.pe/economia/precio-del-dolar-en-peru-hoy-lunes-12-de-enero-asi-cotiza-el-tipo-de-cambio/)
-- **Tipo de cambio hoy en Perú: ¿Cuánto está el dólar este martes 13 de enero?**: [Link](https://gestion.pe/economia/mercados/tipo-de-cambio-dolar-hoy-en-peru-cuanto-esta-el-precio-del-dolar-este-viernes-21-de-enero-dolares-a-soles-compra-y-venta-bcrp-noticia/)
 
 
