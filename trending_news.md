@@ -1,3 +1,66 @@
+### mario vizcarra (N/A, 16/01/2026 21:02 Lima)
+
+- **Elecciones 2026: Mario Vizcarra seguirá en carrera presidencial tras resolución del JNE**: [Link](https://rpp.pe/politica/elecciones/elecciones-2026-mario-vizcarra-seguira-en-carrera-presidencial-tras-resolucion-del-jne-noticia-1671448)
+- **El lagarto fuera de carrera por Richard Arce**: [Link](https://peru21.pe/opinion/el-lagarto-fuera-de-carrera-por-richard-arce/)
+- **JNE deja al voto apelaciones por tachas contra Mario Vizcarra y López Aliaga**: [Link](https://caretas.pe/politica/jne-deja-al-voto-apelaciones-por-tachas-contra-mario-vizcarra-y-lopez-aliaga/)
+
+
+### hennessy (N/A, 16/01/2026 21:02 Lima)
+
+- **Celebrate the Chinese New Year with these limited-edition wines and spirits**: [Link](https://www.tatlerasia.com/dining/drinks/chinese-new-year-limited-edition-wines-and-spirits)
+- **Hennessy Welcomes the Year of the Horse with Limited Editions, Reunion Experiences and First Local CNY**: [Link](https://alvinology.com/2026/01/16/hennessy-welcomes-the-year-of-the-horse-with-limited-editions-reunion-experiences-and-first-local-cny-partnership/)
+- **Gallop Prosperously and Smoothly into the Year of the Horse with Carlsberg’s Limited-Edition Cans and Bottles**: [Link](https://worldofbuzz.com/gallop-prosperously-and-smoothly-into-the-year-of-the-horse-with-carlsbergs-limited-edition-cans-and-bottles/)
+
+
+### wanderers - independiente (N/A, 16/01/2026 21:02 Lima)
+
+- **Con un golazo y un penal, Ávalos metió un doblete para Independiente vs. Wanderers**: [Link](https://www.espn.com.ar/futbol/nota/_/id/16191608/video-gol-doblete-gabriel-avalos-wanderers-vs-independiente-por-la-serie-rio-de-la-plata)
+- **Qué canal pasa Independiente vs Wanderers hoy: dónde ver GRATIS y EN VIVO la Serie Río de La Plata 2026**: [Link](https://www.365scores.com/es/news/independiente-vs-wanderers-donde-ver-hoy/)
+- **El único antecedente oficial entre Montevideo Wanderers e Independiente**: [Link](https://espndeportes.espn.com/futbol/nota/_/id/16181661/independiente-montevideo-wanderers-antecedente-oficial-copa-competencia-1918)
+
+
+### cúcuta - huracán (N/A, 16/01/2026 21:02 Lima)
+
+- **Video: Léider Berdugo marca gol en Cúcuta vs Huracán por la Serie Colombia**: [Link](https://www.espn.com.ar/futbol/colombia/nota/_/id/16190516/cucuta-vs-huracan-goles-video-serie-colombia-berdugo-penal)
+- **Cúcuta vs Huracán hoy: Resultado EN VIVO, minuto a minuto y goles de la Serie Colombia 2026**: [Link](https://www.365scores.com/es/news/cucuta-vs-huracan-resultado-vivo-goles/)
+- **Cúcuta terminó su pretemporada con derrota en penales: Huracán ganó 6-5 en la serie en Montevideo**: [Link](https://www.infobae.com/colombia/deportes/2026/01/16/en-vivo-huracan-vs-cucuta-deportivo-amistoso-internacional-2026-el-motilon-cierra-la-pretemporada-en-uruguay/)
+
+
+### rcd espanyol vs. girona (N/A, 16/01/2026 21:02 Lima)
+
+- **Two penalties give Girona bragging rights over Espanyol in fierce Catalan derby**: [Link](https://www.kens5.com/article/syndication/associatedpress/two-penalties-give-girona-bragging-rights-over-espanyol-in-fierce-catalan-derby/616-c6601bf0-b969-437a-80ac-48479d6d0d89)
+- **Viktor Tsygankov vs. Espanyol – Player props & odds to score a goal on January 16**: [Link](https://prosoccerwire.usatoday.com/story/sports/2026/01/16/viktor-tsygankov-soccer-player-props-1-16-2026/88209296007/)
+- **González: "Ambition makes us stronger"**: [Link](https://www.rcdespanyol.com/en/new/gonzalez-ambition-makes-us-stronger/19690)
+
+
+### lisboa vs (N/A, 16/01/2026 21:02 Lima)
+
+- **Preview: Sporting Lisbon vs Casa Pia - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/sporting-lisbon/preview/sporting-lisbon-vs-casa-pia-prediction-team-news-lineups_589828.html)
+- **Geny Catamo makes successful return to club duties with brace in Sporting CP victory**: [Link](https://www.panafricafootball.com/post/geny-catamo-sporting-v-casa-pia/)
+- **Sporting CP v Casa Pia: title push meets survival fight**: [Link](https://onefootball.com/de/news/sporting-cp-v-casa-pia-title-push-meets-survival-fight-42235684)
+
+
+### sporting lisboa (N/A, 16/01/2026 21:02 Lima)
+
+- **Diário da Jornada | Geny e Bragança embalam Sporting**: [Link](https://goalpoint.pt/diario-da-jornada-18_220177)
+- **Três belos pensos rápidos para atenuar as dores do leão (crónica)**: [Link](https://www.abola.pt/noticias/tres-belos-pensos-rapidos-para-atenuar-as-dores-do-leao-cronica-2026011620024312511)
+- **Rui Borges: "Primeiro golo acalmou o jogo, resultado acaba por ser justo"**: [Link](https://www.flashscore.pt/noticias/futebol-liga-portugal-betclic-rui-borges-primeiro-golo-acalmou-o-jogo-resultado-acaba-por-ser-justo/fNFpqqMq/)
+
+
+### sporting cp (N/A, 16/01/2026 21:02 Lima)
+
+- **Sources: If quarterback Darian Mensah were to leave Duke, it’s...**: [Link](https://www.espn.com/contributor/espn/df791e30cf31d)
+- **Flames 3-1 Blackhawks (Jan 15, 2026) Game Recap**: [Link](https://www.espn.com/nhl/recap?gameId=401803096)
+- **Espanyol vs. Girona (16 Jan, 2026) Live Score**: [Link](https://www.espn.co.uk/football/match/_/gameId/748337)
+
+
+### psg vs (N/A, 16/01/2026 21:02 Lima)
+
+- **Directo al Puskas: El golazo de Dembélé en la victoria del PSG ante Lille | VIDEO**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/el-golazo-de-dembele-en-la-victoria-del-psg-ante-lille-video-noticia/)
+- **Liga de Francia: PSG necesita sumar de a 3 para escalar a la cima**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-de-francia-psg-necesita-sumar-de-a-3-para-escalar-a-la-cima-noticia-1671682)
+- **Ousmane Dembélé estuvo brillante, el PSG mató al club de Calvin Verdonck**: [Link](https://www.ucvradio.pe/mas-actualidad/ousmane-dembele-estuvo-brillante-el-psg-mato-al-club-de-calvin-verdonck/104973/)
+
+
 ### atalanta (N/A, 16/01/2026 15:27 Lima)
 
 - **A new jack in Atalanta's deck: Raspadori is Nerazzurro**: [Link](https://en.atalanta.it/news/a-new-jack-in-atalanta-s-deck-raspadori-is-nerazzurro)
@@ -969,68 +1032,5 @@ Sin noticias relacionadas disponibles.
 - **Precio del dólar en Perú: a cuánto cerró el tipo de cambio el domingo 11 de enero**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-2026-a-cuanto-esta-el-dolar-este-domingo-11-de-enero-tipo-de-cambio-tasa-cotizacion-compa-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
 - **Precio del dólar en Perú hoy, lunes 12 de enero: así cotiza el tipo de cambio**: [Link](https://caretas.pe/economia/precio-del-dolar-en-peru-hoy-lunes-12-de-enero-asi-cotiza-el-tipo-de-cambio/)
 - **Tipo de cambio hoy en Perú: ¿Cuánto está el dólar este martes 13 de enero?**: [Link](https://gestion.pe/economia/mercados/tipo-de-cambio-dolar-hoy-en-peru-cuanto-esta-el-precio-del-dolar-este-viernes-21-de-enero-dolares-a-soles-compra-y-venta-bcrp-noticia/)
-
-
-### ticket master (N/A, 13/01/2026 11:38 Lima)
-
-- **Case accusing Ticketmaster of abusive pricing moves forward**: [Link](https://www.cleveland.com/news/2026/01/case-accusing-ticketmaster-of-abusive-pricing-moves-forward.html)
-- **Ticketmaster’s pricing tactics spark new legal battle**: [Link](https://rollingout.com/2026/01/13/ticketmaster-lawsuit-abusive-fees-quebec/)
-- **Quebec Superior Court approves class action against Ticketmaster over service fees**: [Link](https://www.cbc.ca/news/canada/montreal/quebec-superior-court-class-action-ticketmaster-service-fees-9.7036289)
-
-
-### bts en peru (N/A, 13/01/2026 11:38 Lima)
-
-- **BTS regresa a Latinoamérica en 2026: países y fechas de su gira mundial**: [Link](https://www.infobae.com/entretenimiento/2026/01/13/bts-regresa-a-latinoamerica-en-2026-paises-y-fechas-de-su-gira-mundial/)
-- **BTS confirma conciertos en Perú: ¿Cuánto costarán las entradas para sus shows?**: [Link](https://elcomercio.pe/luces/musica/bts-confirma-conciertos-en-peru-cuanto-costaran-las-entradas-para-sus-shows-k-pop-celebs-ultimas-noticia/)
-- **¡BTS viene a Perú por primera vez con su gira BTS World Tour y tendrá dos fechas en Lima!**: [Link](https://blog.joinnus.com/bts-viene-a-peru-por-primera-vez-con-su-gira-bts-world-tour-y-tendra-dos-fechas-en-lima/)
-
-
-### dia mundial de la depresion (N/A, 13/01/2026 11:38 Lima)
-
-- **Qué es la depresión sonriente, cuando el dolor emocional se oculta tras una vida que parece “normal”**: [Link](https://www.infobae.com/salud/2026/01/13/que-es-la-depresion-sonriente-cuando-el-dolor-emocional-se-oculta-tras-una-vida-que-parece-normal/)
-- **Hablar también es sanar. 🧠💙 Hoy, en el Día Mundial de la Lucha contra la Depresión, recordamos que pedir ayuda es un acto de valentía. 📩 Comparte este mensaje. Puede salvar a alguien. 📲 Si quieres estar más informado, visita nuestra web: https://www.e**: [Link](https://www.instagram.com/p/DTdPO2EkrDC/)
-- **Depresión funcional: una forma silenciosa de depresión que suele ignorarse**: [Link](https://medicinaysaludpublica.com/noticias/psiquiatria-y-psicologia/depresion-funcional-una-forma-silenciosa-de-depresion-que-suele-ignorarse/29280)
-
-
-### retiro afp profuturo (N/A, 13/01/2026 11:38 Lima)
-
-- **Rectificación de retiro AFP: Integra y Hábitat confirman cómo registrar segunda solicitud**: [Link](https://www.infobae.com/peru/2026/01/13/rectificacion-de-retiro-afp-integra-y-habitat-confirman-como-registrar-segunda-solicitud/)
-- **Retiro de AFP 2026: extienden plazo para presentar solicitud de desembolso hasta el lunes 19 de enero**: [Link](https://rpp.pe/economia/economia/retiro-afp-2026-cual-es-la-nueva-fecha-limite-para-presentar-solicitud-de-desembolso-de-hasta-4-uit-19-de-enero-noticia-1670961)
-- **Retiro AFP: amplían hasta el 19 de enero plazo para solicitar retiro por S/ 22,000**: [Link](https://andina.pe/agencia/noticia-retiro-afp-amplian-hasta-19-enero-plazo-para-solicitar-retiro-s-22000-1059036.aspx)
-
-
-### bts (N/A, 13/01/2026 11:38 Lima)
-
-- **BTS propelled K-pop to global stardom. Nearly four years later, they’re back**: [Link](https://www.cnn.com/2026/01/13/style/south-korea-bts-tour-announcement-kpop-intl-hnk-dst)
-- **BTS to Hold Two Summer Concerts at M&T Bank Stadium**: [Link](https://www.baltimoreravens.com/news/bts-concerts-tour-tickets-mt-bank-stadium-ravens-summer-dates)
-- **BTS is bringing its new world tour to Tampa**: [Link](https://www.yahoo.com/entertainment/music/articles/bts-bringing-world-tour-tampa-155602125.html)
-
-
-### paro 14 de enero (N/A, 13/01/2026 11:38 Lima)
-
-- **Gremios de transportistas confirman paro en Lima y Callao para el próximo miércoles 14 de enero**: [Link](https://rpp.pe/politica/actualidad/gremios-de-transportistas-confirman-paro-en-lima-y-callao-para-el-proximo-miercoles-14-de-enero-noticia-1671269)
-- **EN VIVO El 100 % de empresas de transporte suspende labores este 14 de enero**: [Link](https://peru21.pe/lima/en-vivo-el-100-de-empresas-de-transporte-suspende-labores-este-14-de-enero/)
-- **Fortalecerán coordinación con transportistas para combatir delincuencia**: [Link](https://elperuano.pe/noticia/286980-fortaleceran-coordinacion-con-transportistas-para-combatir-delincuencia)
-
-
-### 13 de enero (N/A, 13/01/2026 11:38 Lima)
-
-- **Partidos de hoy, 12 de enero: Horario y canal EN VIVO**: [Link](https://www.americatv.com.pe/deportes/futbol-mundial/partidos-hoy-12-enero-horarios-y-transmisiones-n452295)
-- **Partidos de hoy, martes 13 de enero del 2026: horarios, canales TV y dónde ver fútbol en vivo**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/partidos-de-hoy-martes-13-de-enero-del-2026-resultados-horarios-canales-tv-y-donde-ver-futbol-en-vivo-noticia/)
-- **¿Quién juega HOY en la LaLiga, Serie A, FA Cup, Liga MX Femenil y más este 12 de enero de 2026? Partidos, horarios y transmisión**: [Link](https://www.estadiodeportes.mx/futbol/partidos-de-hoy-donde-ver-la-serie-a-fa-cup-laliga-liga-mx-femenil-y-mas-horario-y-canales-de-transmision-de-la-cartelera-del-futbol-internacional-20260111-0056.html)
-
-
-### lakers vs (N/A, 13/01/2026 11:38 Lima)
-
-- **bet365 Bonus Code GOALBET: Get $200 in Bonus Bets for Suns vs Heat, NHL & EFL Cup**: [Link](https://www.goal.com/en-us/betting/bet365-bonus-code-goalbet-get-200-bonus-bets-suns-vs-heat-nhl-efl-cup-1-13/blt2d8e489e37ba5643)
-- **Buy the best seats on Tickets MARCA to watch Hawks vs Lakers live at Crypto.com Arena**: [Link](https://www.marca.com/en/basketball/nba/los-angeles-lakers/2026/01/12/6965205f46163fec3e8b458f.html)
-- **Atlanta visits Los Angeles after Doncic's 42-point game**: [Link](https://abcnews.go.com/Sports/wireStory/atlanta-visits-los-angeles-after-doncics-42-point-129155635)
-
-
-### clima hoy (N/A, 13/01/2026 07:59 Lima)
-
-- **SENAMHI: Pronóstico del clima hoy martes 13 de enero 2026**: [Link](https://rpp.pe/peru/actualidad/senamhi-pronostico-del-clima-hoy-martes-13-de-enero-2026-noticia-1671341)
-- **Senamhi, pronóstico del clima HOY en Lima: temperaturas mínimas y máximas para este domingo 11 de enero de 2026**: [Link](https://www.expreso.com.pe/actualidad/senamhi-pronostico-del-clima-hoy-en-lima-temperaturas-minimas-y-maximas-para-este-domingo-11-de-enero-de-2026-invierno-verano-otono-primavera-soleado-calor-humedad-neblina-tiempo-noticia-2/1254145/)
-- **Calor y bochorno marcan el inicio del verano 2026 en Lima con temperaturas de hasta 29 °C**: [Link](https://diariocorreo.pe/edicion/lima/calor-y-bochorno-marcan-el-inicio-del-verano-2026-en-lima-con-temperaturas-de-hasta-29-c-noticia/)
 
 
