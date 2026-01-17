@@ -1,3 +1,38 @@
+### manchester city (N/A, 17/01/2026 07:51 Lima)
+
+- **Why Matheus Nunes misses Man City game at Manchester United**: [Link](https://www.manchestereveningnews.co.uk/sport/football/football-news/matheus-nunes-misses-man-city-33251478)
+- **Manchester City star absent from matchday squad against Manchester United**: [Link](https://cityxtra.co.uk/40424/manchester-city-star-absent-from-matchday-squad-against-manchester-united/)
+- **Premier League LIVE: Man United v Man City, Chelsea v Brentford, Tottenham Hotspur v West Ham United and more**: [Link](https://www.bbc.com/sport/football/live/c9w78r8l0e9t)
+
+
+### manchester city vs (N/A, 17/01/2026 07:51 Lima)
+
+- **Manchester United vs Manchester City: ¡Juega en la Premier League y gana hasta S/. 600,000 con Meridianbet!**: [Link](https://ovacion.pe/noticias/nota-promocional/manchester-united-vs-manchester-city-juega-premier-league-gana-hasta-s)
+- **Sigue pronósticos, mejores apuestas y cuotas de la Premier League (J22)**: [Link](https://www.flashscore.pe/noticias/futbol-premier-league-pronosticos-mejores-apuestas-cuotas-j22/dhDzcl3b/)
+- **El derbi de Manchester tiene una nueva edición, marcada por la irregularidad y los contrastes**: [Link](https://www.espn.com.pe/futbol/inglaterra/nota/_/id/16185835/derbi-de-manchester-nueva-edicion-marcada-por-irregularidad-y-contrastes)
+
+
+### manchester united - manchester city (N/A, 17/01/2026 07:51 Lima)
+
+- **Premier League LIVE: Man United v Man City, Chelsea v Brentford, Tottenham Hotspur v West Ham United and more**: [Link](https://www.bbc.com/sport/football/live/c9w78r8l0e9t)
+- **Preview: Manchester United vs Manchester City - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/man-utd/manchester-derby/preview/man-utd-vs-man-city-prediction-team-news-lineups_589854.html)
+- **United hit the corssbar in positive start against Man City**: [Link](https://onefootball.com/en/news/united-hit-the-corssbar-in-positive-start-against-man-city-42245288)
+
+
+### manchester united vs. brighton (N/A, 17/01/2026 07:51 Lima)
+
+- **'We know' - Fabian Hurzeler makes Bournemouth and Antoine Semenyo claim ahead of Brighton clash**: [Link](https://www.sussexexpress.co.uk/sport/football/brighton-and-hove-albion/we-know-fabian-hurzeler-makes-bournemouth-and-antoine-semenyo-claim-ahead-of-brighton-clash-5478485)
+- **Andoni Iraola looks ahead to Brighton test**: [Link](https://buzz.bournemouth.ac.uk/2026/01/andoni-iraola-looks-ahead-to-brighton-test/)
+- **Hurzeler and Brighton treating remaining Premier League games as finals**: [Link](https://www.beinsports.com/en-au/football/premier-league/articles/hurzeler-and-brighton-treating-remaining-premier-league-games-as-finals-2026-01-17)
+
+
+### decreto supremo (N/A, 17/01/2026 07:51 Lima)
+
+- **José Jerí anunció que en las próximas horas se publicará el decreto que prohíbe la circulación de motos con dos ocupantes**: [Link](https://rpp.pe/politica/gobierno/jose-jeri-anuncio-que-en-las-proximas-horas-se-publicara-el-decreto-que-prohibe-la-circulacion-de-motos-con-dos-ocupantes-noticia-1671642)
+- **Eduardo Pérez Rocha: Ley que prohíbe dos en moto no reducirá el crimen y el estado de emergencia es un fracaso**: [Link](https://canaln.pe/actualidad/eduardo-perez-rocha-ley-que-prohibe-dos-moto-no-reducira-crimen-n489615)
+- **Gobierno ejecuta acciones para recuperar tranquilidad y disminuir índices de inseguridad**: [Link](https://andina.pe/agencia/noticia-gobierno-ejecuta-acciones-para-recuperar-tranquilidad-y-disminuir-indices-inseguridad-1059360.aspx)
+
+
 ### real madrid vs levante (N/A, 17/01/2026 03:32 Lima)
 
 - **Will Mbappe Be Called up Against Levante?**: [Link](https://www.beinsports.com/en-us/soccer/la-liga/articles/will-mbappe-be-called-up-against-levante-2026-01-16)
@@ -999,40 +1034,5 @@
 - **Roma v Torino: Official Line-ups**: [Link](https://www.asroma.com/en/news/74656/roma-v-torino-official-line-ups)
 - **Coppa Italia – Roma in distress but favored against Torino**: [Link](https://www.pressgiochi.it/en/coppa-italia-roma-in-emergenza-ma-favorita-contro-il-torino/144670)
 - **Coppa Italia Liveblog: Roma vs. Torino**: [Link](https://football-italia.net/coppa-italia-liveblog-roma-vs-torino/)
-
-
-### atletico madrid (N/A, 13/01/2026 15:31 Lima)
-
-- **Atletico Madrid XI vs Deportivo La Coruna – Predicted lineup and team news**: [Link](https://sports.yahoo.com/articles/atletico-madrid-xi-vs-deportivo-122200416.html)
-- **Deportivo vs. Atletico Madrid: Betting odds, prediction, pick**: [Link](https://www.usatoday.com/story/sports/soccer/2026/01/13/deportivo-vs-atletico-madrid-copa-del-rey-betting-odds-prediction-pick/88153503007/)
-- **Atlético de Madrid – Deportivo de La Coruña: Match preview**: [Link](https://www.msn.com/en-us/sports/other/atl%C3%A9tico-de-madrid-deportivo-de-la-coru%C3%B1a-match-preview/ar-AA1U4ydc)
-
-
-### athletic bilbao (N/A, 13/01/2026 15:31 Lima)
-
-- **🎥Ernesto Valverde keeps quiet about his future**: [Link](https://sports.yahoo.com/articles/ernesto-valverde-keeps-quiet-future-085200542.html)
-- **Athletic Bilbao president Uriarte eager to secure Valverde to new deal**: [Link](https://www.tribalfootball.com/article/soccer-laliga-athletic-bilbao-president-uriarte-eager-to-secure-valverde-to-new-deal-59db5162-cef7-4ea4-8583-157155955037)
-- **Levante vs Espanyol - La Liga Round 19, 2025**: [Link](https://www.foxsports.com.au/football/la-liga/match-centre/LAL2025-261909)
-
-
-### roma - torino (N/A, 13/01/2026 15:31 Lima)
-
-- **Roma-Torino: Formazioni ufficiali e Cronaca in diretta**: [Link](https://sport.virgilio.it/dirette/live/coppa-italia/13-1-2026/roma-torino/2598749/)
-- **Lazaro: “Dobbiamo fare bene e prendere le misure in vista della sfida in campionato”**: [Link](https://www.forzaroma.info/news-as-roma/lazaro-dobbiamo-fare-bene-e-prendere-le-misure-in-vista-della-sfida-in-campionato/)
-- **Le ultime dall’Olimpico: panchina per Maripan, in attacco Adams e Simeone**: [Link](https://www.toro.it/toro/partite/roma-torino-coppa-italia-25-26-formazioni-ufficiali/1411049/)
-
-
-### mainz (N/A, 13/01/2026 15:31 Lima)
-
-- **79. Gutenberg-Stipendien an herausragende Arbeiten in Mainz verliehen**: [Link](https://www.allgemeine-zeitung.de/lokales/mainz/stadt-mainz/gutenberg-stipendien-in-mainz-verliehen-5290564)
-- **Mainz-News für heute, den 13.01.2026: Die aktuellen Nachrichten aus Ihrer Stadt im Überblick**: [Link](https://www.news.de/lokales/856994920/mainz-news-heute-aktuell-am-13-01-2026-lokal-nachrichten-zu-polizei-news-waldbrandgefahren-mobile-blitzer-veranstaltungen-kinoprogramm/1/)
-- **Mainz-News für heute, den 11.01.2026: Wir haben die Neuigkeiten des Tages für Ihre Stadt**: [Link](https://www.news.de/lokales/856994920/mainz-news-heute-aktuell-am-11-01-2026-lokal-nachrichten-zu-mobile-blitzer-veranstaltungen-kinoprogramm-notfallapotheken-biowetter/1/)
-
-
-### mainz vs (N/A, 13/01/2026 15:31 Lima)
-
-- **Fußball-Bundesliga: Abstiegskrimi vor Minus-Kulisse**: [Link](https://www.diefalsche9.de/fussball-bundesliga-abstiegskrimi-vor-minus-kulisse/)
-- **FSV Mainz 05: Ergebnisse, Spiele und Tabelle in der Saison 2025/2026**: [Link](https://www.news.de/sport/857120750/fsv-mainz-05-ergebnisse-statistik-und-fussball-news-vom-13-01-2026-tabelle-und-spielplan-fuer-naechste-spiele-in-der-bundesliga-2025-2026/1/)
-- **„Unser Kämpferherz auf den Platz bringen!“**: [Link](https://www.fc-heidenheim.de/news/detail/unser-kampferherz-auf-den-platz-bringen?cHash=0030e12e701835706e4c944861015fb0)
 
 
