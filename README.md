@@ -1,3 +1,73 @@
+### leverkusen vs (N/A, 17/01/2026 11:29 Lima)
+
+- **Matchday 17 fixture between Hamburg and Bayer Leverkusen postponed**: [Link](https://www.bundesliga.com/en/bundesliga/news/matchday-17-fixture-hamburg-leverkusen-postponed-winter-weather-35536)
+- **Two top-division soccer games in Germany called off amid heavy snow**: [Link](https://www.sfgate.com/sports/article/bundesliga-game-between-st-pauli-and-leipzig-21285605.php)
+- **Leverkusen's Bundesliga clash with Hamburg postponed due to weather concerns**: [Link](https://www.fotmob.com/news/1ps7zavou6fpu19tats842d7cx-leverkusens-bundesliga-clash-hamburg-postponed-due-weather-concerns)
+
+
+### lens vs (N/A, 17/01/2026 11:29 Lima)
+
+- **Liga de Francia: Lens quiere mantenerse en la punta del campeonato**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-de-francia-lens-quiere-mantenerse-en-la-punta-del-campeonato-noticia-1671803)
+- **Pierre Sage eyes Franck Haise records at RC Lens after nine straight wins**: [Link](https://onefootball.com/fr/news/pierre-sage-eyes-franck-haise-records-at-rc-lens-after-nine-straight-wins-42245803)
+- **Lens vs Auxerre Prediction, 1/17/2026 Soccer Pick, Tips and Odds**: [Link](https://www.docsports.com/free-picks/soccer/2026/lens-vs-auxerre-prediction-1-17-2026-soccer-pick-tips-and-odds.html)
+
+
+### mallorca vs (N/A, 17/01/2026 11:29 Lima)
+
+- **Vedat Muriqi vs. Athletic Bilbao – Player props & odds to score a goal on January 17**: [Link](https://prosoccerwire.usatoday.com/story/sports/2026/01/16/vedat-muriqi-soccer-player-props-1-17-2026/88222552007/)
+- **Mallorca vs Athletic Bilbao - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/mallorca/news/mallorca-vs-athletic-bilbao-prediction-team-news-lineups_589925.html)
+- **Mallorca vs Athletic Club Prediction, 1/17/2026 Soccer Pick, Tips and Odds**: [Link](https://www.docsports.com/free-picks/soccer/2026/mallorca-vs-athletic-club-prediction-1-17-2026-soccer-pick-tips-and-odds.html)
+
+
+### ajax - go ahead eagles (N/A, 17/01/2026 11:29 Lima)
+
+- **Grim geeft inkijkje in Ajax-analyse na AZ-uit: 'Er zijn woorden gevallen'**: [Link](https://www.voetbalprimeur.nl/nieuws/1732297/grim-vertelt-over-analyse-na-blamage-tegen-az.html)
+- **LIVE eredivisie | Sean Steur verzuimt na heerlijke actie Bouwman score verder op te voeren voor Ajax tegen Go Ahead**: [Link](https://www.ad.nl/voetbal/live-eredivisie-sean-steur-verzuimt-na-heerlijke-actie-bouwman-score-verder-op-te-voeren-voor-ajax-tegen-go-ahead~adfbdcf8/)
+- **LIVE | Go Ahead Eagles heeft werk te doen na rust, al is het alleen maar voor het eigen gevoel**: [Link](https://www.destentor.nl/ga-eagles/live-go-ahead-eagles-heeft-werk-te-doen-na-rust-al-is-het-alleen-maar-voor-het-eigen-gevoel~af9bf26c/)
+
+
+### liverpool (N/A, 17/01/2026 11:29 Lima)
+
+- **Liverpool v Brighton: FA Cup fixture details confirmed**: [Link](https://www.liverpoolfc.com/news/liverpool-v-brighton-fa-cup-fixture-details-confirmed)
+- **Barber's message to fans as he explains decision on cup-tie ticket prices**: [Link](https://www.theargus.co.uk/sport/25773466.brightons-fa-cup-ticket-gesture-explained-paul-barber/)
+- **Official announcement over upcoming Liverpool fixture is another slap in the face to supporters**: [Link](https://onefootball.com/id/berita/official-announcement-over-upcoming-liverpool-fixture-is-another-slap-in-the-face-to-supporters-42244494)
+
+
+### espacio aéreo (N/A, 17/01/2026 11:29 Lima)
+
+- **EE.UU. advierte sobre “riesgos potenciales” en varios puntos del espacio aéreo de América Latina debido a actividad militar**: [Link](https://cnnespanol.cnn.com/2026/01/16/eeuu/riesgos-espacio-aereo-america-latina-actividad-militar-trax)
+- **EE.UU. alerta peligro en espacio aéreo de varios países**: [Link](https://www.dw.com/es/eeuu-alerta-peligro-en-espacio-a%C3%A9reo-de-varios-pa%C3%ADses/a-75544939)
+- **Estados Unidos advirtió sobre riesgos en el espacio aéreo por actividad militar en varias zonas del continente americano**: [Link](https://www.infobae.com/estados-unidos/2026/01/17/estados-unidos-advirtio-sobre-riesgos-en-el-espacio-aereo-por-actividad-militar-en-todo-el-continente-americano/)
+
+
+### liga alemana (N/A, 17/01/2026 11:29 Lima)
+
+- **Capítulo 4 La Reina del Flow: el pasado vuelve a tocar la puerta de Charly en medio de la desaparición de Yeimy**: [Link](https://www.caracoltv.com/la-reina-del-flow/capitulos/capitulo-4-la-reina-del-flow-el-pasado-vuelve-a-tocar-la-puerta-de-charly-en-medio-de-la-desaparicion-de-yeimy-pr30)
+- **🔴RB Leipzig vs. Bayern Múnich, EN VIVO YA: siga el minuto a minuto de Luis Díaz en Bundesliga**: [Link](https://www.noticiascaracol.com/golcaracol/colombianos-en-el-exterior/rb-leipzig-vs-bayern-munich-en-vivo-ya-siga-el-minuto-a-minuto-de-luis-diaz-en-bundesliga-so35)
+- **Charly discute con Erik tras su desesperación por dar con el paradero de Yeimy**: [Link](https://www.caracoltv.com/la-reina-del-flow/charly-discute-con-erik-tras-su-desesperacion-por-dar-con-el-paradero-de-yeimy-pr30)
+
+
+### egipto - nigeria (N/A, 17/01/2026 11:29 Lima)
+
+- **Pronóstico Egipto Nigeria - CAN 17/01/26**: [Link](https://www.sportytrader.com/es/pronosticos/egipto-nigeria-319053/)
+- **Confirmada la alineación oficial del partido por el tercer puesto de la Copa Africana de Naciones Egipto vs Nigeria 2025 | El Pueblo**: [Link](https://www.elpueblo.pe/deportes/confirmada-la-alineacion-oficial-del-partido-por-el-tercer-puesto-de-la-copa-africana-de-naciones-egipto-vs-nigeria-2025/215651/)
+- **Nigeria y Egipto se medirán en el partido que nadie quiere disputar**: [Link](https://www.flashscore.es/noticias/futbol-copa-de-africa-de-naciones-una-final-destinada-al-olvido/vewMy7ph/)
+
+
+### inter (N/A, 17/01/2026 11:29 Lima)
+
+- **Brazil Winger Anticipates ‘Tough Match’ As Inter Milan Travel To Udinese In Serie A Clash**: [Link](https://sempreinter.com/2026/01/17/udinese-vs-inter-luis-henrique-tough/)
+- **Udinese vs Inter Milan Prediction, 1/17/2026 Soccer Pick, Tips and Odds**: [Link](https://www.docsports.com/free-picks/soccer/2026/udinese-vs-inter-milan-prediction-1-17-2026-soccer-pick-tips-and-odds.html)
+- **Udinese celebrate 10th stadium anniversary against Inter**: [Link](https://football-italia.net/udinese-10th-stadium-anniversary-inter/)
+
+
+### borussia (N/A, 17/01/2026 11:29 Lima)
+
+- **Schwarz und Gelb mit neuem Mut**: [Link](https://www.pressreader.com/germany/welt-am-sonntag/20260117/282205132284640)
+- **Borussia Dortmund hat Gewissheit: Schlotterbeck-Schrecken vom Tisch**: [Link](https://www.derwesten.de/sport/fussball/bvb/borussia-dortmund-nico-schlotterbeck-bayern-muenchen-wechsel-gewissheit-id301959630.html)
+- **Wende des FC Bayern München, es geht um Nico Schlotterbeck**: [Link](https://www.msn.com/de-at/nachrichten/other/wende-des-fc-bayern-m%C3%BCnchen-es-geht-um-nico-schlotterbeck/ss-AA1Ulbxe)
+
+
 ### manchester city (N/A, 17/01/2026 07:51 Lima)
 
 - **Why Matheus Nunes misses Man City game at Manchester United**: [Link](https://www.manchestereveningnews.co.uk/sport/football/football-news/matheus-nunes-misses-man-city-33251478)
@@ -966,73 +1036,5 @@
 - **Liga MX: Necaxa recibirá a CF Monterrey por la fecha 2**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-necaxa-recibira-a-cf-monterrey-por-la-fecha-2-noticia-1671286)
 - **Monterrey vs. Necaxa EN VIVO vía Claro Sports, TV Azteca y VIX por Liga MX**: [Link](https://depor.com/mexico/liga-mx/monterrey-vs-necaxa-en-vivo-gratis-hoy-claro-sports-tv-azteca-7-vix-premium-pluto-tv-y-futbol-libre-tv-en-directo-online-donde-ver-partido-por-liga-mx-video-noticia/)
 - **¡RAYADOS, POR LOS TRES PUNTOS EN AGUASCALIENTES!**: [Link](https://onefootball.com/es/noticias/rayados-por-los-tres-puntos-en-aguascalientes-42222723)
-
-
-### manchester city vs (N/A, 13/01/2026 23:50 Lima)
-
-- **Newcastle vs. Manchester City (0-2): resumen y goles del partido por la Carabao Cup | VIDEO**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/manchester-city-vs-newcastle-en-vivo-hoy-gratis-via-futbol-libre-tv-espn-disney-plus-horarios-canales-tv-y-donde-ver-partido-por-carabao-cup-video-noticia/)
-- **Semenyo anota de nuevo y el Man City vence 2-0 al Newcastle en semifinal de la Copa de la Liga**: [Link](https://www.msn.com/es-pe/noticias/other/semenyo-anota-de-nuevo-y-el-man-city-vence-2-0-al-newcastle-en-semifinal-de-la-copa-de-la-liga/ar-AA1U9rwk)
-- **La EFL Cup, un título clave para Guardiola**: [Link](https://www.flashscore.pe/noticias/futbol-efl-cup-la-final-que-mas-se-le-resiste-a-pep-es-su-favorita/4zQeuzuI/)
-
-
-### pachuca vs (N/A, 13/01/2026 21:11 Lima)
-
-- **Liga MX: León se enfrentará a Pachuca por la fecha 2**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-leon-se-enfrentara-a-pachuca-por-la-fecha-2-noticia-1671287)
-- **⚽ ¡No va por TV abierta! Checa a qué HORA y por DÓNDE VER el Pachuca vs León de la Liga MX 🦫🆚🦁**: [Link](https://www.facebook.com/MilenioDiario/photos/-no-va-por-tv-abiertacheca-a-qu%C3%A9-hora-y-por-d%C3%B3nde-ver-el-pachuca-vs-le%C3%B3n-de-la-l/1358315229659278/)
-- **Requieren Tuzos que pese la casa**: [Link](https://www.mural.com.mx/requieren-tuzos-que-pese-la-casa/ar3134705?v=1)
-
-
-### liga mx (N/A, 13/01/2026 21:11 Lima)
-
-- **Liga MX: Se enfrentan Club América y Atl. de San Luis por la fecha 2**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-se-enfrentan-club-america-y-atl-de-san-luis-por-la-fecha-2-noticia-1671424)
-- **Canal 5 online: dónde ver partido de América vs San Luis por el Torneo Clausura de la Liga MX**: [Link](https://elcomercio.pe/deporte-total/mexico/canal-5-en-vivo-online-ver-america-vs-san-luis-hoy-gratis-via-tudn-vix-por-torneo-clausura-de-la-liga-mx-video-noticia/)
-- **Guillermo Abascal, DT de San Luis, sorprendió con su opinión sobre el partido contra el América**: [Link](https://americamonumental.bolavip.com/ligamx/guillermo-abascal-dt-de-san-luis-sorprendio-con-su-opinion-sobre-el-partido-contra-el-america)
-
-
-### partidos futbol hoy (N/A, 13/01/2026 21:11 Lima)
-
-- **Partidos de hoy EN VIVO: programación y dónde ver fútbol online gratis este martes 13 de enero**: [Link](https://libero.pe/futbol-internacional/2026/01/12/partidos-de-hoy-en-vivo-martes-12-de-enero-622584)
-- **Partidos de hoy, martes 13 de enero del 2026: horarios y canales TV para ver EN VIVO la Bundesliga y Serie Río de la Plata**: [Link](https://rpp.pe/futbol/futbol-mundial/partidos-de-hoy-bundesliga-y-serie-rio-de-la-plata-en-vivo-peru-martes-13-de-enero-del-2026-horarios-y-canales-tv-ver-futbol-en-vivo-noticia-1671325)
-- **Partidos de hoy, 13 de enero: Horario y canal EN VIVO**: [Link](https://www.americatv.com.pe/deportes/futbol-mundial/partidos-hoy-13-enero-horarios-y-transmisiones-n452307)
-
-
-### puebla vs (N/A, 13/01/2026 21:11 Lima)
-
-- **Liga MX: Puebla recibe Mazatlán dando inicio a la Fecha 2**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-puebla-recibe-mazatlan-dando-inicio-a-la-fecha-2-noticia-1671275)
-- **La Franja debuta en el estadio Cuauhtémoc con victoria frente a Mazatlán**: [Link](https://heraldodepuebla.com/2026/01/13/la-franja-debuta-en-el-estadio-cuauhtemoc-con-victoria-frente-a-mazatlan/)
-- **Resumen del partido Puebla vs Mazatlán (2-1). Goles**: [Link](https://www.mediotiempo.com/futbol/liga-mx/resumen-partido-puebla-vs-mazatlan-jornada-2-clausura-2026)
-
-
-### juego hytale (N/A, 13/01/2026 21:11 Lima)
-
-- **Cuánto cuesta Hytale y dónde se puede comprar**: [Link](https://www.eurogamer.es/hytale-precio-donde-puedo-comprar)
-- **¿Es un clon de Minecraft? Comparan el nuevo Hytale con el icónico videojuego de Mojang y estas son sus diferencias**: [Link](https://vandal.elespanol.com/noticia/1350786525/es-un-clon-de-minecraft-comparan-el-nuevo-hytale-con-el-iconico-videojuego-de-mojang-y-estas-son-sus-diferencias/)
-- **Por qué no puedes jugar a Hytale: estado de los servidores y posibles errores de lanzamiento**: [Link](https://areajugones.sport.es/videojuegos/por-que-no-puedes-jugar-a-hytale-estado-de-los-servidores-y-posibles-errores-de-lanzamiento/)
-
-
-### agua (N/A, 13/01/2026 21:11 Lima)
-
-- **Circulación controlada en carretera al puerto de La Libertad por trabajos de ANDA**: [Link](https://www.elsalvador.com/noticias/nacional/anda-carretea-puerto-la-libertad/1258422/2026/)
-- **ANDA anuncia reparación nocturna de fuga de agua en San Salvador**: [Link](https://www.infobae.com/el-salvador/2026/01/13/anda-anuncia-reparacion-nocturna-de-fuga-de-agua-en-san-salvador/)
-- **ANDA suspenderá el servicio de agua potable este miércoles en el casco urbano del Puerto de La Libertad - La Prensa Gráfica**: [Link](https://www.laprensagrafica.com/elsalvador/anda-suspendera-el-servicio-de-agua-potable-este-miercoles-en-el-casco-urbano-del-puerto-de-la-libertad-20260113-0043.html)
-
-
-### borussia vs (N/A, 13/01/2026 21:11 Lima)
-
-- **Dortmund Outclass Bremen To Tighten Grip On Second Spot**: [Link](https://www.barrons.com/news/undav-scores-again-as-stuttgart-sink-frankfurt-to-go-third-3cfb16fa?gaa_at=eafs&gaa_n=AWEtsqe7bXQAz9prgpYGASrBGPEGqqsIRejuWzkBpilOHGiimFwRgTvUK_4m&gaa_ts=6966fee8&gaa_sig=-mE2ZuKl5IVYLlHDFh7Ke00jXbpYRpYMxXF6njL4_aTlBhLzDAuxOBrfY_j7KDlxdiJwVhA4qVTiOcokiBkZwQ%3D%3D)
-- **Tuesday's Bundesliga predictions including Borussia Dortmund vs. Werder Bremen**: [Link](https://www.sportsmole.co.uk/football/stuttgart/feature/dortmund-to-extend-lead-over-leverkusen-in-top-four-race-tuesdays-bundesliga-predictions_589750.html)
-- **Marco Grull vs. Borussia Dortmund – Player props & odds to score a goal on January 13**: [Link](https://prosoccerwire.usatoday.com/story/sports/2026/01/13/marco-grull-soccer-player-props-1-13-2026/88154377007/)
-
-
-### club brujas (N/A, 13/01/2026 21:11 Lima)
-
-- **Crocky Cup Anthony Valencia sumo mas de hora hora en cancha y el Antwerp avanzo a semifinales**: [Link](https://www.futbolecuador.com/site/noticia/pero-joel-ordonez-y-el-club-brugge-dejaron-al-torneo-sin-su-campeon-reinante-por-una-eliminacion-sorpresiva/165775?fromt=yes)
-
-
-### roma fc (N/A, 13/01/2026 15:31 Lima)
-
-- **Roma v Torino: Official Line-ups**: [Link](https://www.asroma.com/en/news/74656/roma-v-torino-official-line-ups)
-- **Coppa Italia – Roma in distress but favored against Torino**: [Link](https://www.pressgiochi.it/en/coppa-italia-roma-in-emergenza-ma-favorita-contro-il-torino/144670)
-- **Coppa Italia Liveblog: Roma vs. Torino**: [Link](https://football-italia.net/coppa-italia-liveblog-roma-vs-torino/)
 
 
