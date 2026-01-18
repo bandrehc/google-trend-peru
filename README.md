@@ -1,3 +1,45 @@
+### real sociedad vs. barcelona (N/A, 18/01/2026 07:51 Lima)
+
+- **Real Sociedad vs Barcelona: posibles alineaciones, J20 de LaLiga**: [Link](https://www.espn.com.ar/futbol/espana/nota/_/id/16194733/real-sociedad-vs-barcelona-laliga-2026-alineaciones)
+- **¿A qué hora juega y qué canal transmite FC Barcelona vs. Real Sociedad EN VIVO HOY por LaLiga 2026 en USA y México?**: [Link](https://gestion.pe/mix/sports/a-que-hora-juega-y-que-canal-transmite-fc-barcelona-vs-real-sociedad-en-vivo-hoy-por-laliga-2026-en-usa-y-mexico-hora-y-canales-de-tv-nnda-nnrt-noticia/)
+- **Baquetas listas para el golpe**: [Link](https://as.com/opinion/baquetas-listas-para-el-golpe-f202601-n/)
+
+
+### getafe - valencia c. f. (N/A, 18/01/2026 07:51 Lima)
+
+- **Alineación posible del Valencia ante el Getafe en LaLiga EA Sports**: [Link](https://as.com/futbol/primera/alineacion-posible-del-valencia-ante-el-getafe-en-laliga-ea-sports-f202601-n/)
+- **Apuestas y pronósticos Getafe vs Valencia**: [Link](https://www.marca.com/apuestas-deportivas/predicciones/2026/01/17/apuestas-pronosticos-getafe-vs-valencia.html)
+- **Pronóstico Getafe Valencia - LaLiga 18/01/26**: [Link](https://www.sportytrader.com/es/pronosticos/getafe-valencia-319245/)
+
+
+### parma vs (N/A, 18/01/2026 07:51 Lima)
+
+- **Serie A: Por la fecha 21, Parma recibirá a Genoa**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-por-la-fecha-21-parma-recibira-a-genoa-noticia-1671932)
+- **Parma vs Genoa CFC pronostico y comparación de cuotas 18.01.2026**: [Link](https://www.livetipsportal.com/es/pronosticos-apuestas-deportivas/parma-vs-cfc-genua-serie-a-11129205/)
+- **CARLOS CUESTA: "WE WANT TO BUILD CONSISTENCY IN OUR RESULTS"**: [Link](https://www.parmacalcio1913.com/en/main-news/carlos-cuesta-pre-parma-genoa/)
+
+
+### parma - genoa (N/A, 18/01/2026 07:51 Lima)
+
+- **LIVE Parma-Genoa 0-0 Serie A 2025/2026: Ammonito Vitinha per fallo**: [Link](https://sport.virgilio.it/dirette/live/serie-a/18-1-2026/parma-genoa/2558714/)
+- **Tutto il calcio in Diretta**: [Link](https://www.diretta.it/news/calcio-live-in-campo-parma-genoa-0-0/4pRc3tmm/)
+- **Perché Norton-Cuffy non gioca Parma-Genoa: infortunio, scelta tecnica o mercato?**: [Link](https://www.goal.com/it/liste/perche-norton-cuffy-non-gioca-parma-genoa-infortunio-scelta-tecnica-o-mercato/bltce1fd3dc28ed28e0)
+
+
+### agua (N/A, 18/01/2026 07:51 Lima)
+
+- **Sedapal anuncia cortes de agua en cinco distritos de Lima este domingo 18 y lunes 19 de enero: ¿En qué zonas?**: [Link](https://www.infobae.com/peru/2026/01/17/sedapal-anuncia-cortes-de-agua-en-cinco-distritos-de-lima-este-domingo-18-y-lunes-19-de-enero-en-que-zonas/)
+- **¡A llenar los baldes desde YA! Anuncian corte de agua el 18 y 19 de enero: AQUÍ la lista de distritos afectados**: [Link](https://www.exitosanoticias.pe/actualidad/a-llenar-baldes-ya-anuncian-corte-agua-18-19-enero-aqui-lista-distritos-afectados-n166848)
+- **Corte de agua en Lima: zonas afectadas y horario de Sedapal para este domingo 18 y lunes 19 de enero**: [Link](https://larepublica.pe/sociedad/2026/01/17/sedapal-suspendera-el-servicio-de-agua-en-lima-zonas-afectadas-y-horarios-del-18-y-19-de-enero-atmp-1331593)
+
+
+### carlos alcaraz (N/A, 18/01/2026 07:51 Lima)
+
+- **Alcaraz sigue con el pleno de triunfos en su debut en los Grand Slam**: [Link](https://www.marca.com/tenis/open-australia/2026/01/18/alcaraz-sigue-pleno-triunfos-debut-grand-slam.html)
+- **Resumen y resultado del Alcaraz - Walton en directo: Alcaraz somete a un combativo Walton**: [Link](https://as.com/tenis/alcaraz-walton-en-directo-open-de-australia-2026-en-vivo-hoy-f202601-d/)
+- **Alcaraz vence a Walton y accede a la segunda ronda del Open de Australia**: [Link](https://elpais.com/deportes/tenis/2026-01-18/alcaraz-vence-a-walton-y-accede-a-la-segunda-ronda-del-open-de-australia.html)
+
+
 ### segunda solicitud de retiro afp 2026 (N/A, 18/01/2026 03:33 Lima)
 
 - **Rectificación del retiro de AFP: Integra y Hábitat confirman cómo registrar la segunda solicitud**: [Link](https://www.infobae.com/peru/2026/01/13/rectificacion-de-retiro-afp-integra-y-habitat-confirman-como-registrar-segunda-solicitud/)
@@ -996,47 +1038,5 @@
 - **Diogo Alves explica escolha por Sampaoli em ficar em BH, elogia jovens e admite atuação abaixo em Montes Claros**: [Link](https://onefootball.com/en/news/diogo-alves-explica-escolha-por-sampaoli-em-ficar-em-bh-elogia-jovens-e-admite-atuacao-abaixo-em-montes-claros-42230347)
 - **Atlético-MG arranca empate fora de casa em jogo com polêmica nos acréscimos pelo campeonato Mineiro**: [Link](https://esportenewsmundo.com.br/atletico-mg-arranca-empate-fora-de-casa-em-jogo-com-polemica-nos-acrescimos-pelo-campeonato-mineiro/)
 - **Atlético empata com o North em Montes Claros**: [Link](https://atletico.com.br/atletico-empata-com-o-north-em-montes-claros/)
-
-
-### palmeiras vs (N/A, 14/01/2026 21:06 Lima)
-
-- **Palmeiras beat Santos in the first Paulistão derby**: [Link](https://ca.sports.yahoo.com/news/palmeiras-beat-santos-first-paulist-003100643.html)
-- **Barreal cleared on CBF BID, could face Palmeiras in Paulistão**: [Link](https://onefootball.com/fr/news/barreal-cleared-on-cbf-bid-could-face-palmeiras-in-paulistao-42229276)
-- **Goal and Highlights: Palmeiras vs Santos in Paulista Championship (1-0)**: [Link](https://www.vavel.com/en-us/soccer/2026/01/14/1247206-palmeiras-vs-santos-live-score-paulista.html)
-
-
-### racing de santander vs. barcelona (N/A, 14/01/2026 21:06 Lima)
-
-- **Barcelona hoy: alineación probable vs Racing de Santander por la Copa del Rey**: [Link](https://www.365scores.com/es/news/barcelona-alineacion-probable-vs-racing/)
-- **José Alberto: "Nuestra afición lleva trece años tragando mierda"**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20260114/1002601269/jose-alberto-nuestra-aficion-lleva-trece-anos-tragando-mierda.html)
-- **¿En qué canal ver FC Barcelona - Racing EN VIVO HOY 15 de enero por La Copa del Rey 2026 en España, México y Estados Unidos?**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/en-que-canal-ver-fc-barcelona-racing-en-vivo-hoy-15-de-enero-por-la-copa-del-rey-2026-en-espana-mexico-y-estados-unidos-nnda-nnrt-noticia/)
-
-
-### fluminense vs (N/A, 14/01/2026 21:06 Lima)
-
-- **Atletico Mineiro Reveal & Debut First-Ever Kits From Nike**: [Link](https://www.soccerbible.com/performance/football-apparel/2026/01/atletico-mineiro-reveal-debut-first-ever-kits-from-nike/)
-- **Nike and Clube Atlético Mineiro Unveil Their 2026 Home Kit**: [Link](https://www.versus.uk.com/articles/nike-and-clube-atletico-mineiro-unveil-their-2026-home-kit/)
-- **Gremio vs. Atlético Mineiro - Boxscore - Live Score - February 25, 2026**: [Link](https://www.foxsports.com/soccer/brazil-serie-a-gremio-vs-atletico-mineiro-feb-25-2026-game-boxscore-648099?tab=boxscore)
-
-
-### rm vs (N/A, 14/01/2026 21:06 Lima)
-
-- **'If Flick hadn't come, I would have left Barca' - Raphinha**: [Link](https://www.bbc.com/sport/football/articles/crmlk8zgrzyo)
-- **How Barcelona won Supercopa; Man United exit FA Cup; Frank in trouble at Spurs; more**: [Link](https://www.espn.com/soccer/story/_/id/47589301/barcelona-real-madrid-spanish-supercopa-manchester-united-fa-cup-thomas-frank-tottenham-gab-marcotti)
-- **How Barcelona’s balanced attack is helping them get the better of Real Madrid - The Athletic**: [Link](https://www.nytimes.com/athletic/6963051/2026/01/12/barcelona-attacking-balance-real-madrid/)
-
-
-### jefté betancor (N/A, 14/01/2026 21:06 Lima)
-
-- **'I'm to blame' - Real Madrid stunned by Albacete in Arbeloa's first game**: [Link](https://www.bbc.com/sport/football/live/cy8pe7x2ekvt)
-- **Carvajal: We Have Hit Rock Bottom, and We Will Fight for Everything**: [Link](https://www.ysscores.com/en/news/13890990/Carvajal:-We-Have-Hit-Rock-Bottom,-and-We-Will-Fight-for-Everything)
-- **Arbeloa: "We all leave hurt, we have to pick ourselves up and go for the game on Saturday"**: [Link](https://www.realmadrid.com/en-US/news/football/first-team/press-conference/rueda-de-prensa-arbeloa-post-albacete-rm-octavos-copa-14-01-2026)
-
-
-### az - ajax (N/A, 14/01/2026 15:28 Lima)
-
-- **Live KNVB-beker | AZ razendsnel op voorsprong tegen Ajax**: [Link](https://www.nu.nl/voetbal/6382592/live-knvb-beker-az-razendsnel-op-voorsprong-tegen-ajax.html)
-- **Grim geeft update over geblesseerd geraakte Baas**: [Link](https://www.vi.nl/nieuws/grim-geeft-update-over-geblesseerd-geraakte-baas)
-- **Snelle goals in Almere en Deventer, PSV op rozen • Later vanavond kraker AZ-Ajax**: [Link](https://nos.nl/liveblog/2598177-snelle-goals-in-almere-en-deventer-psv-op-rozen-later-vanavond-kraker-az-ajax)
 
 
