@@ -1,3 +1,17 @@
+### segunda solicitud de retiro afp 2026 (N/A, 18/01/2026 03:33 Lima)
+
+- **Rectificación del retiro de AFP: Integra y Hábitat confirman cómo registrar la segunda solicitud**: [Link](https://www.infobae.com/peru/2026/01/13/rectificacion-de-retiro-afp-integra-y-habitat-confirman-como-registrar-segunda-solicitud/)
+- **Rectificación retiro AFP: Paso a paso para registrar la segunda solicitud en Integra y Hábitat**: [Link](https://elcomercio.pe/respuestas/tramites/rectificacion-del-retiro-afp-mira-aqui-los-pasos-para-registrar-la-segunda-solicitud-en-integra-y-habitat-tdpe-noticia/)
+- **Última oportunidad para registrar octavo retiro de fondos AFP**: [Link](https://www.expreso.com.pe/economia/ultima-oportunidad-para-registrar-octavo-retiro-de-fondos-afp-sbs-noticia/1255856/)
+
+
+### warriors - hornets (N/A, 18/01/2026 03:33 Lima)
+
+- **Warriors cruise past Hornets**: [Link](https://www.goldenstateofmind.com/warriors-scores-results/107413/warriors-hornets-scores-recap-draymond-green-deanthony-melton)
+- **Game 42 wrap: (no spoiler title)**: [Link](https://dubnationhq.com/p/game-42-wrap-no-spoiler-title)
+- **Hornets Fall Behind Early, Warriors Stay In Control After That**: [Link](https://www.nba.com/hornets/news/hornets-fall-behind-early-warriors-stay-in-control-after-that)
+
+
 ### conciertos peru 2026 (N/A, 17/01/2026 23:46 Lima)
 
 - **Conciertos de BTS en Perú: ¿Cuánto costará la entrada para ver a la banda de K-pop en Lima?**: [Link](https://www.infobae.com/peru/2026/01/13/conciertos-de-bts-en-lima-cuanto-costara-ver-a-la-banda-de-k-pop-mas-famosa-del-mundo/)
@@ -1024,19 +1038,5 @@
 - **Live KNVB-beker | AZ razendsnel op voorsprong tegen Ajax**: [Link](https://www.nu.nl/voetbal/6382592/live-knvb-beker-az-razendsnel-op-voorsprong-tegen-ajax.html)
 - **Grim geeft update over geblesseerd geraakte Baas**: [Link](https://www.vi.nl/nieuws/grim-geeft-update-over-geblesseerd-geraakte-baas)
 - **Snelle goals in Almere en Deventer, PSV op rozen • Later vanavond kraker AZ-Ajax**: [Link](https://nos.nl/liveblog/2598177-snelle-goals-in-almere-en-deventer-psv-op-rozen-later-vanavond-kraker-az-ajax)
-
-
-### inter vs (N/A, 14/01/2026 15:28 Lima)
-
-- **Pronóstico Inter Milán US Lecce - Serie A 14/01/26**: [Link](https://www.sportytrader.com/es/pronosticos/inter-milan-us-lecce-318091/)
-- **Serie A: Inter marcha como líder y busca llevarse los 3 puntos para mantenerse en la cima**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-inter-marcha-como-lider-y-busca-llevarse-los-3-puntos-para-mantenerse-en-la-cima-noticia-1671372)
-- **El líder Inter se pone al día en la Serie A ante Lecce**: [Link](https://www.espn.com.ar/futbol/italia/nota/_/id/16175628/inter-vs-lecce-serie-a-equipo-fecha-hora-y-tv-en-vivo)
-
-
-### porto - benfica (N/A, 14/01/2026 15:28 Lima)
-
-- **Novidades em perspetiva: o onze provável do FC Porto para o clássico**: [Link](https://www.abola.pt/noticias/novidades-em-perspetiva-o-onze-provavel-do-fc-porto-para-o-classico-2026011317090531392)
-- **18h30 Edição de João Gomes Dias**: [Link](https://www.rtp.pt/noticias/noticiario-desporto/18h30-edicao-de-joao-gomes-dias_a1_1710266)
-- **CNN Mais Transferências - Clássico no Dragão a contar para a Taça de Portugal**: [Link](https://tviplayer.iol.pt/programa/cnn-mais-transferencias/63b703740cf2665294cf6845/video/6967c0800cf24e58d783c89c)
 
 
