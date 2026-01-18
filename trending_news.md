@@ -1,3 +1,73 @@
+### tarjeta roja (N/A, 18/01/2026 15:28 Lima)
+
+- **América: Comisión Disciplinaria quita expulsión a Ramón Juárez**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/16191554/america-comision-disciplinaria-quita-expulsion-a-ramon-juarez)
+- **La decisión de la Comisión Disciplinaria sobre Ramón Juárez**: [Link](https://www.tudn.com/futbol/liga-mx/america-podra-contar-ramon-juarez-partido-pachuca)
+- **Le quitan la roja a Ramón Juárez**: [Link](https://www.nvinoticias.com/deportes/futbol/le-quitan-la-roja-ramon-juarez/181992)
+
+
+### corinthians (N/A, 18/01/2026 15:28 Lima)
+
+- **Juan Carlos Amorós, do Gotham FC, fala sobre o Corinthians no Mundial: “Nunca devemos subestimar”**: [Link](https://somosfanaticos.fans/br/futebol-feminino/juan-carlos-amoros-do-gotham-fc-fala-sobre-o-corinthians-no-mundial-nunca-devemos-subestimar)
+- **FIFA confirma transmissão global inédita da fase final da Copa dos Campeões Feminina 2026, com exibição gratuita e grandes emissoras**: [Link](https://jornalgrandebahia.com.br/2026/01/fifa-confirma-transmissao-global-inedita-da-fase-final-da-copa-dos-campeoes-feminina-2026-com-exibicao-gratuita-e-grandes-emissoras/)
+- **Futebol feminino: Corinthians inicia semana de treinos antes de viagem para Londres**: [Link](https://www.corinthians.com.br/futebol-feminino-corinthians-inicia-semana-de-treinos-antes-de-viagem-para-londres)
+
+
+### espn (N/A, 18/01/2026 15:28 Lima)
+
+- **NFL play-offs LIVE: Houston Texans at New England Patriots before Los Angeles Rams face Chicago Bears**: [Link](https://www.bbc.com/sport/american-football/live/c781p0192q3t)
+- **Rebet Referral Code ROTO: Deposit Match up to $100 Rebet Cash (Jan. 18)**: [Link](https://www.rotowire.com/news/rebet-referral-code-roto-deposit-match-up-to-100-rebet-cash-jan-18-103004)
+- **NFL PrizePicks, Underdog Plays for Divisional Round Sunday on January 18**: [Link](https://www.actionnetwork.com/nfl/nfl-prizepicks-underdog-plays-for-divisional-round-sunday-on-january-18)
+
+
+### lyon (N/A, 18/01/2026 15:28 Lima)
+
+- **Temps sec et gris : la météo à Lyon dimanche**: [Link](https://www.lyoncapitale.fr/meteo/temps-sec-et-gris-la-meteo-a-lyon-dimanche)
+- **Lyon : météo du 17 au 19 janvier 2026, pluie samedi, éclaircies dimanche, froid lundi**: [Link](https://figurespubliques.fr/region/lyon-meteo-du-17-au-19-janvier-2026-pluie-samedi-eclaircies-dimanche-froid-lundi/)
+- **Météo Lyon : un week-end sous le signe de la grisaille et du brouillard**: [Link](https://actus.meteocity.com/actualites-meteo/meteo-lyon-un-week-end-sous-le-signe-de-la-grisaille-et-du-brouillard-3938)
+
+
+### barsa vs (N/A, 18/01/2026 15:28 Lima)
+
+- **Why Raphinha Isn’t Playing for Barcelona vs. Real Sociedad**: [Link](https://www.si.com/soccer/why-raphinha-isnt-playing-barcelona-vs-real-sociedad-1-18-26)
+- **Real Sociedad vs Barcelona, La Liga: TV & Streaming, Live Thread**: [Link](https://www.barcablaugranes.com/barcelona-la-liga/110356/real-sociedad-barcelona-live-stream-lineups-kickoff-time-tv-channel-how-to-watch-la-liga-online)
+- **Hansi Flick: 'We have to win at Anoeta'**: [Link](https://www.fcbarcelona.com/en/football/first-team/news/4435974/hansi-flick-we-have-to-win-at-anoeta)
+
+
+### cuándo juega barcelona (N/A, 18/01/2026 15:28 Lima)
+
+- **Racing 0-2 Barcelona: resumen, goles y resultado**: [Link](https://as.com/futbol/copa_del_rey/racing-barcelona-en-directo-octavos-copa-del-rey-hoy-en-vivo-f202601-d/)
+- **El éxito es de alquiler**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20260117/1002603355/exito-alquiler.html)
+- **Hansi Flick, luego del triunfo ante Racing: "Me ha gustado mucho la actitud de mi equipo"**: [Link](https://www.espn.com.ar/futbol/espana/nota/_/id/16187711/hansi-flick-declaraciones-racing-santander-vs-barcelona-octavos-de-final-copa-del-rey)
+
+
+### édouard mendy (N/A, 18/01/2026 15:28 Lima)
+
+- **AFCON 2025: Morocco targets the Côte d’Ivoire and Cameroon record**: [Link](https://foot-africa.com/en/news/afcon-2025-morocco-targets-the-cote-divoire-and-cameroon-record-1047941/)
+- **CAN 2025: Yassine Bounou makes history in the competition**: [Link](https://sports.yahoo.com/articles/2025-yassine-bounou-makes-history-160000256.html)
+- **AFCON 2025: Africa’s Saudi-Arabia-based goalkeepers to guard the final**: [Link](https://africasoccer.com/afcon-2025-africas-saudi-arabia-based-goalkeepers-to-guard-the-final/)
+
+
+### brahim díaz (N/A, 18/01/2026 15:28 Lima)
+
+- **Diaz could be the key for Morocco in Afcon final against Senegal**: [Link](https://www.beinsports.com/en-mena/football/2025-africa-cup-of-nations/articles-video/diaz-could-be-the-key-for-morocco-in-afcon-final-against-senegal-2026-01-17)
+- **AFCON Star Brahim Díaz Set to Return to Real Madrid Reinvigorated**: [Link](https://dailypioneer.com/news/morocco---s-brahim-d--az-is-africa-cup-star-thriving-away-from-real-madrid-s-turmoil)
+- **"Bring the Cup Home": Real Madrid Stars Rally Behind Brahim Diaz Ahead of AFCON Final**: [Link](https://m.elbotola.com/en/article/2026-01-18-18-34-572.html)
+
+
+### sadio mané (N/A, 18/01/2026 15:28 Lima)
+
+- **Senegal urges Mané to continue: “He represents Africa and the world”**: [Link](https://www.beinsports.com/en-us/soccer/africa-cup-of-nations/articles/senegal-urges-man%C3%A9-to-continue-he-represents-africa-and-the-world-2026-01-18)
+- **CAN 2025: The Teranga 'Musketeers' aim to establish a Senegalese dynasty**: [Link](https://www.besoccer.com/new/can-2025-the-teranga-and-39-musketeersand-39-aim-to-establish-a-senegalese-dynasty-1390301)
+- **Pape Thiaw Says Sadio Mané ‘Deserved 2025 Ballon d’Or’ Ahead of Senegal–Morocco Clash**: [Link](https://www.moroccoworldnews.com/2026/01/275423/pape-thiaw-says-sadio-mane-deserved-2025-ballon-dor-ahead-of-senegal-morocco-clash/)
+
+
+### guimarães - porto (N/A, 18/01/2026 15:28 Lima)
+
+- **FC Porto não perde em Guimarães há 10 anos e o treinador do Vitória era… Sérgio Conceição**: [Link](https://onefootball.com/en/news/fc-porto-nao-perde-em-guimaraes-ha-10-anos-e-o-treinador-do-vitoria-era-sergio-conceicao-42251580)
+- **Uma segunda volta para todos**: [Link](https://www.ojogo.pt/opiniao/artigo/uma-segunda-volta-para-todos/18041748)
+- **UM BOM DESAFIO À CONSISTÊNC­IA**: [Link](https://www.pressreader.com/portugal/o-jogo/20260118/281758455688108)
+
+
 ### torino - roma (N/A, 18/01/2026 11:31 Lima)
 
 - **Torino, contro la Roma Pedersen torna titolare: ecco le scelte di Baroni**: [Link](https://www.gazzetta.it/calcio/fantanews/18-01-2026/torino-la-probabile-formazione-contro-la-roma.shtml)
@@ -968,75 +1038,5 @@
 - **Prepárate antes de salir: conoce el pronóstico del clima en Nueva York**: [Link](https://www.infobae.com/noticias/2026/01/15/preparate-antes-de-salir-conoce-el-pronostico-del-clima-en-nueva-york/)
 - **Nueva York: el tiempo para hoy jueves 15 de enero**: [Link](https://eldiariony.com/2026/01/15/nueva-york-el-tiempo-para-hoy-jueves-15-de-enero/)
 - **Noticias de New York y New Jersey, en vivo: frente frío por la noche y actualizaciones de hoy, 15 de enero de 2026**: [Link](https://www.lanacion.com.ar/estados-unidos/nueva-york/noticias-de-new-york-y-new-jersey-en-vivo-frente-frio-por-la-noche-y-actualizaciones-de-hoy-15-de-nid15012026/)
-
-
-### weather (N/A, 15/01/2026 07:57 Lima)
-
-- **Arctic front causes intense lake-effect snowstorm for the Midwest | Latest Weather Clips**: [Link](https://www.foxweather.com/watch/fmc-32tobnf5h607aibr)
-- **Crews work to make Michiana roads safe with snowfall**: [Link](https://www.wndu.com/2026/01/15/crews-work-make-michiana-roads-safe-with-snowfall/)
-- **Wind and cold move back in**: [Link](https://www.wlfi.com/video/wind-and-cold-move-back-in/video_26c0f7cd-7c89-5216-926b-595c3adf61fc.html)
-
-
-### australian open (N/A, 15/01/2026 07:57 Lima)
-
-- **Australian Open Million Dollar One Point Slam: Amateur Jordan Smith stuns world's best**: [Link](https://www.bbc.com/sport/tennis/articles/ckgyl1ndw57o)
-- **Coco Gauff’s serve costs her a chance at $1 million in Australia**: [Link](https://www.hitc.com/coco-gauffs-serve-costs-her-a-chance-at-1-million-in-australia/)
-- **How close Carlos Alcaraz and Jannik Sinner were to winning $1 million at the One Point Slam**: [Link](https://www.thetennisgazette.com/news/how-close-carlos-alcaraz-and-jannik-sinner-were-to-winning-1-million-at-the-one-point-slam/)
-
-
-### clima lima (N/A, 15/01/2026 07:57 Lima)
-
-- **SENAMHI: Pronóstico del clima hoy jueves 15 de enero 2026**: [Link](https://rpp.pe/peru/actualidad/senamhi-pronostico-del-clima-hoy-jueves-15-de-enero-2026-noticia-1671638)
-- **Senamhi, pronóstico del clima HOY en Lima: temperaturas mínimas y máximas para este jueves 15 de enero de 2026**: [Link](https://www.expreso.com.pe/actualidad/senamhi-pronostico-del-clima-hoy-en-lima-temperaturas-minimas-y-maximas-para-este-jueves-15-de-enero-de-2026-invierno-verano-otono-primavera-soleado-calor-humedad-neblina-tiempo-noticia/1255154/)
-- **¿Cómo estará hoy el clima en Lima? Senamhi da su pronóstico para este martes 13 de enero**: [Link](https://www.infobae.com/peru/2026/01/13/como-estara-hoy-el-clima-en-lima-senamhi-da-su-pronostico-para-este-martes-13-de-enero/)
-
-
-### la tinka resultados (N/A, 15/01/2026 07:57 Lima)
-
-- **La Tinka: revisa los resultados del 14 de enero y comprueba si tu jugada fue una de las 13 premiadas**: [Link](https://www.infobae.com/peru/2026/01/15/la-tinka-consulta-los-resultados-del-14-de-enero-y-confirma-si-tu-jugada-fue-premiada/)
-- **Resultados de La Tinka del miércoles 14 de enero: sorteo y números de la jugada ganadora del pozo millonario**: [Link](https://depor.com/peru/la-tinka-en-vivo-hoy-miercoles-14-de-enero-2026-ver-resultados-numeros-ganadores-del-ultimo-sorteo-quien-gano-pozo-millonario-intralot-boliyapa-loterias-de-peru-noticia/)
-- **Resultados de La Tinka: números ganadores de los 50 mil soles del miércoles 14 de enero**: [Link](https://elcomercio.pe/respuestas/loterias/resultados-de-la-tinka-hoy-miercoles-14-de-enero-2026-en-vivo-ultimo-sorteo-numeros-y-jugada-ganadora-tinkanet-pozo-millonario-resultado-si-o-si-boliyapa-intralot-lbposting-noticia/)
-
-
-### lluvia (N/A, 15/01/2026 07:57 Lima)
-
-- **La Aemet avisa de que el frío traerá nevadas a “áreas más bajas” de España: estás son las regiones en las que se espera nieve**: [Link](https://www.infobae.com/espana/2026/01/15/la-aemet-avisa-de-que-el-frio-traera-nevadas-a-areas-mas-bajas-de-espana-estas-son-las-regiones-en-las-que-se-espera-nieve/)
-- **La niebla da paso a un día que terminará con lluvia: toda la previsión de César Gonzalo**: [Link](https://www.antena3.com/noticias/el-tiempo/la-prevision/niebla-paso-dia-que-terminara-lluvia-toda-prevision-cesar-gonzalo_202601156968bc1f384d9f038d8aa31e.html)
-- **El tiempo de este jueves 15 de enero: vuelven la inestabilidad y las lluvias en la Península**: [Link](https://www.rtve.es/play/videos/el-tiempo/tiempo-este-jueves-15-enero/16894935/)
-
-
-### campeonato gaúcho (N/A, 15/01/2026 03:37 Lima)
-
-- **Garanta ingresso para o duelo do Inter com Monsoon**: [Link](https://internacional.com.br/noticias/servico-de-jogo/garanta-ingresso-para-o-duelo-do-inter-com-monsoon)
-- **Elieser vê jogo contra o Inter como marco na carreira**: [Link](https://grupoahora.net.br/conteudos/2026/01/15/elieser-ve-jogo-contra-o-inter-como-marco-na-carreira/)
-- **Paulo Pezzolano estreia no Inter para espantar fantasmas de passado recente**: [Link](https://gauchazh.clicrbs.com.br/esportes/inter/noticia/2026/01/paulo-pezzolano-estreia-no-inter-para-espantar-fantasmas-de-passado-recente-cmkemujrg01ah013oo7pnss7u.html)
-
-
-### paro 15 de enero 2026 (N/A, 14/01/2026 23:46 Lima)
-
-- **Paro de transportistas EN VIVO en Lima y Callao: Martín Ojeda descarta paro de transportistas para este 15 de enero**: [Link](https://larepublica.pe/sociedad/2026/01/14/paro-de-transportistas-en-vivo-en-lima-y-callao-escasez-de-buses-pasajes-elevados-dialogo-con-jeri-y-mas-noticias-hoy-14-de-enero-1149960)
-- **MTPE exhorta a empleadores a otorgar tolerancia al ingreso y priorizar el teletrabajo**: [Link](https://andina.pe/agencia/noticia-mtpe-exhorta-a-empleadores-a-otorgar-tolerancia-al-ingreso-y-priorizar-teletrabajo-1059174.aspx)
-- **Presidente Jerí: Vamos a tener una comunicación mucho más estrecha con los transportistas**: [Link](https://elperuano.pe/noticia/287114--presidente-jeri-vamos-a-tener-una-comunicacion-mucho-mas-estrecha-con-los-transportistas)
-
-
-### madonna (N/A, 14/01/2026 23:46 Lima)
-
-- **Yo Soy castings 2026: ¡Regresó más segura y avanzó como Madonna!**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-castings-2026-regreso-mas-segura-y-avanzo-como-madonna_20260114/)
-- **Carlo Conti Debunks Madonna Rumors**: [Link](https://www.ilmattino.it/en/carlo_conti_debunks_madonna_rumors-9297430.html)
-- **Hunks, twinks & bisexual three-ways! Madonna is burning up in smoking-hot new video**: [Link](https://www.queerty.com/hunks-twinks-bisexual-three-ways-madonna-is-burning-up-in-smoking-hot-new-video-20260109/)
-
-
-### toluca - santos (N/A, 14/01/2026 23:46 Lima)
-
-- **Liga MX: Por el último encuentro de la fecha 2, Toluca FC se enfrenta ante Santos Laguna**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-por-el-ultimo-encuentro-de-la-fecha-2-toluca-fc-se-enfrenta-ante-santos-laguna-noticia-1671445)
-- **Toluca vs Santos EN VIVO Hoy. Inicio del segundo tiempo en el Nemecio Diez**: [Link](https://www.marca.com/mx/futbol/liga-mx/toluca-santos-laguna/2026/01/15/01_0168_20260115_1286_1287-directo.html)
-- **EN VIVO: Hay empate en el estadio Nemesio Díez por gol en contra de Santos Laguna**: [Link](https://www.t13.cl/noticia/deportes13/en-vivo-hay-empate-en-el-estadio-nemesio-diez-por-gol-en-contra-de-santos-laguna-15-01-2026)
-
-
-### tigres - pumas (N/A, 14/01/2026 23:46 Lima)
-
-- **Liga MX: Tigres y Pumas UNAM se encuentran en la fecha 2**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-tigres-y-pumas-unam-se-encuentran-en-la-fecha-2-noticia-1671443)
-- **Transmisión EN VIVO del Tigres vs Pumas hoy: cómo mirar el partido por TV o streaming**: [Link](https://www.365scores.com/es/news/tigres-vs-pumas-como-ver-transmision/)
-- **🚨 ¡PARTIDAZO! ¡SE ACERCA! 🚨 Esta televisora tendrá el Tigres vs Pumas en la Liga MX HOY 🏆 A esta HORA inicia... 🔥**: [Link](https://www.facebook.com/MilenioDiario/photos/-partidazo-se-acerca-esta-televisora-tendr%C3%A1-el-tigres-vs-pumas-en-la-liga-mx-hoy/1359295259561275/)
 
 
