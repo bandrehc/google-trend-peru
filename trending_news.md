@@ -1,3 +1,73 @@
+### conciertos peru 2026 (N/A, 17/01/2026 23:46 Lima)
+
+- **Conciertos de BTS en Perú: ¿Cuánto costará la entrada para ver a la banda de K-pop en Lima?**: [Link](https://www.infobae.com/peru/2026/01/13/conciertos-de-bts-en-lima-cuanto-costara-ver-a-la-banda-de-k-pop-mas-famosa-del-mundo/)
+- **BTS: el regreso del fenómeno del K-pop en su World Tour 2026**: [Link](https://cnnespanol.cnn.com/2026/01/13/entretenimiento/video/bts-historia-resumen-grupo-kpop-2026-orix)
+- **BTS en Lima: Conoce las fechas y cómo comprar entradas en preventa**: [Link](https://peru21.pe/espectaculos/bts-en-lima-conoce-las-fechas-y-como-comprar-entradas-en-preventa/)
+
+
+### booker t (N/A, 17/01/2026 23:46 Lima)
+
+- **Booker T: Zilla Fatu Is Going To Take The World By Storm**: [Link](https://www.fightful.com/wrestling/booker-t-zilla-fatu-is-going-to-take-the-world-by-storm/)
+- **Triple H Urged To Sign WWE Legend’s Son**: [Link](https://tjrwrestling.net/news/triple-h-urged-to-sign-wwe-legends-son/)
+- **Booker T wants WWE to sign a 26-year-old real-life Bloodline member**: [Link](https://www.sportskeeda.com/wwe/news-booker-t-wants-wwe-sign-26-year-old-real-life-bloodline-member)
+
+
+### monaco (N/A, 17/01/2026 23:46 Lima)
+
+- **La Roca Team vise encore la semaine parfaite**: [Link](https://asmonaco.basketball/news/show.php?ID=73971)
+- **Basket – Betclic Elite (J16) : Monaco maintient la cadence, Nanterre et Strasbourg assurent**: [Link](https://www.sport365.fr/basket-betclic-elite-j16-monaco-maintient-cadence-nanterre-strasbourg-assurent-10781859.html)
+- **Pro D2 : malgré de l'envie, le CA Brive a fini par craquer à Vannes (relire notre direct)**: [Link](https://www.lepopulaire.fr/brive-la-gaillarde-19100/sports/pro-d2-suivez-vannes-brive-en-direct-commente_14812156/)
+
+
+### tijuana - atl. san luis (N/A, 17/01/2026 23:46 Lima)
+
+- **Liga MX: Atl. de San Luis visita a Tijuana por la fecha 3**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-atl-de-san-luis-visita-a-tijuana-por-la-fecha-3-noticia-1671910)
+- **Qué canal pasa Xolos vs San Luis hoy: dónde ver GRATIS y EN VIVO el partido de la Liga MX**: [Link](https://www.365scores.com/es/news/xolos-vs-san-luis-donde-ver-gratis-vivo/)
+- **¿Qué descuentos tienen los adultos mayores con la tarjeta INAPAM en 2026? Conoce todos sus beneficios 💰 https://mile.io/4sKAa4D**: [Link](https://www.facebook.com/MilenioDiario/posts/qu%C3%A9-descuentos-tienen-los-adultos-mayores-con-la-tarjeta-inapam-en-2026conoce-to/1361866112637523/)
+
+
+### regatas vs san martin (N/A, 17/01/2026 23:46 Lima)
+
+- **Tabla de posiciones de la Liga Peruana de Vóley - fase 2: resultados y puntaje de los equipos en la fecha 2 del torneo**: [Link](https://www.infobae.com/peru/deportes/2026/01/17/tabla-de-posiciones-de-la-liga-peruana-de-voley-fase-2-resultados-y-puntaje-de-los-equipos-en-la-fecha-2-del-torneo/)
+- **Liga Peruana de Vóley por Latina: Revive AQUÍ el partido entre Alianza Lima vs Rebaza Acosta**: [Link](https://www.latina.pe/voley-por-latina/liga-peruana-de-voley-por-latina-revive-aqui-el-partido-entre-alianza-lima-vs-rebaza-acosta-2_20260111/)
+- **Universitario vs Olva Latino EN VIVO: ¿a qué hora juegan y dónde ver la fase 2 de la Liga Peruana de Vóley?**: [Link](https://rpp.pe/voley/mas-voley/universitario-vs-olva-latino-en-vivo-a-que-hora-juegan-y-donde-ver-fecha-2-fase-2-liga-peruana-de-voley-2026-via-latina-voley-en-vivo-noticia-1672022)
+
+
+### lakers - trail blazers (N/A, 17/01/2026 23:46 Lima)
+
+- **Trending Trail Blazers could be short-handed vs. lagging Lakers**: [Link](https://www.thesportsleader.com/2026/01/16/trending-trail-blazers-could-be-short-handed-vs-lagging-lakers/)
+- **Deandre Ayton (knee) questionable for Saturday**: [Link](https://www.fantasypros.com/nba/news/566203/deandre-ayton-knee-questionable-saturday.php)
+- **Is LeBron James playing tonight vs Portland Trail Blazers? Latest injury updates on Los Angeles Lakers st**: [Link](https://timesofindia.indiatimes.com/sports/nba/top-stories/is-lebron-james-playing-tonight-vs-portland-trail-blazers-latest-injury-updates-on-los-angeles-lakers-star-ahead-of-saturdays-clash/articleshow/126628737.cms)
+
+
+### alexander zverev (N/A, 17/01/2026 23:46 Lima)
+
+- **Live: Local wildcard nabs first win of Aus Open as thousands of fans stuck outside**: [Link](https://www.abc.net.au/news/2026-01-18/australian-open-2026-live-updates-sabalenka-alcaraz-berrettini/106238282)
+- **Aus Open Serves Up Incredible Tennis And Economic Boost**: [Link](https://www.miragenews.com/aus-open-serves-up-incredible-tennis-and-1603676/)
+- **Fans frustrated by long queues, ticket sales halt on day one of Australian Open**: [Link](https://supersport.com/tennis/australian-open/news/43ac5bc3-f936-4258-91f1-b4803420fb43/fans-frustrated-by-long-queues-ticket-sales-halt-on-day-one-of-australian-open)
+
+
+### メタマスク (N/A, 17/01/2026 23:46 Lima)
+
+- **MetaMaskがトロン（TRX）に正式対応：ビットコイン・ソラナに続く大型統合**: [Link](https://www.gfa.co.jp/crypto/news/alt-news/news-683/)
+- **メタマスク、トロンにネイティブ対応開始。昨年発表の統合計画が実装段階へ（あたらしい経済）**: [Link](https://news.yahoo.co.jp/articles/81be5e16129b90a0f457b7b24c4a79a5495f9a9a)
+- **メタマスク、トロン対応｜USDT送金・TRX運用がアプリで完結**: [Link](https://99bitcoins.com/jp/news/altcoins/metamask-launches-native-tron-support-mobile/)
+
+
+### cruz azul - puebla (N/A, 17/01/2026 23:46 Lima)
+
+- **Liga MX: Por la fecha 3 se enfrentarán Cruz Azul y Puebla**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-por-la-fecha-3-se-enfrentaran-cruz-azul-y-puebla-noticia-1671911)
+- **¿Por qué Miguel Borja viajó a Colombia y no ha jugado con Cruz Azul?**: [Link](https://www.espn.com.pe/futbol/mexico/nota/_/id/16178460/cruz-azul-por-que-miguel-borja-no-ha-jugado-clasura-2026)
+- **Pagará 11 MDP Cruz Azul por el uso del estadio Cuauhtémoc**: [Link](https://puebla.quadratin.com.mx/pagara-11-mdp-cruz-azul-por-el-uso-del-estadio-cuauhtemoc/)
+
+
+### setlist bad bunny peru (N/A, 17/01/2026 23:46 Lima)
+
+- **Bad Bunny en Perú: el setlist oficial de éxitos que prenderá el “Debí Tirar Más Fotos World Tour”**: [Link](https://elcomercio.pe/respuestas/trends/bad-bunny-en-peru-el-setlist-oficial-de-exitos-que-prendera-el-debi-tirar-mas-fotos-world-tour-tdpe-noticia/)
+- **Bad Bunny en Lima 2026 ATU anuncia ampliación de horarios del Metropolitano y Corredor Azul por concierto**: [Link](https://rpp.pe/musica/conciertos/bad-bunny-en-lima-2026-amplian-horarios-del-metropolitano-y-corredor-azul-por-conciertos-en-el-estadio-nacional-noticia-1671837)
+- **Adriana Campos Salazar y Thiago Vernal reaccionan al “Chile” de Bad Bunny en Perú**: [Link](https://www.americatv.com.pe/noticias/espectaculos/adriana-campos-salazar-y-thiago-vernal-reaccionan-al-chile-bad-bunny-peru-n514918)
+
+
 ### hornets - warriors (N/A, 17/01/2026 21:22 Lima)
 
 - **Spotlight on LaMelo Ball, Stephen Curry as Hornets visit Warriors**: [Link](https://www.thesportsleader.com/2026/01/16/spotlight-on-lamelo-ball-stephen-curry-as-hornets-visit-warriors/)
@@ -968,73 +1038,5 @@
 - **Novidades em perspetiva: o onze provável do FC Porto para o clássico**: [Link](https://www.abola.pt/noticias/novidades-em-perspetiva-o-onze-provavel-do-fc-porto-para-o-classico-2026011317090531392)
 - **18h30 Edição de João Gomes Dias**: [Link](https://www.rtp.pt/noticias/noticiario-desporto/18h30-edicao-de-joao-gomes-dias_a1_1710266)
 - **CNN Mais Transferências - Clássico no Dragão a contar para a Taça de Portugal**: [Link](https://tviplayer.iol.pt/programa/cnn-mais-transferencias/63b703740cf2665294cf6845/video/6967c0800cf24e58d783c89c)
-
-
-### hoffenheim - mönchengladbach (N/A, 14/01/2026 15:28 Lima)
-
-- **Borussia Mönchengladbach: Shuto Machino mit Doppel-Premiere bei TSG**: [Link](https://www.bild.de/sport/fussball/borussia-moenchengladbach-shuto-machino-mit-doppel-premiere-bei-tsg-6966692b0bbaff31d07df27e)
-- **Hoffenheim vs. Gladbach heute live: Übertragung im TV & Stream**: [Link](https://www.tipico.de/wett-tipps/sportwetten-news/hoffenheim-vs-gladbach-heute-live-uebertragung-im-tv-stream)
-- **Bundesliga LIVE: Infos, News und Liveticker zum 17. Spieltag | Flashscore.de**: [Link](https://www.flashscore.de/news/fu-ball-bundesliga-bundesliga-live-wolfsburg-zuhause-unter-druck-duell-der-youngster-in-koln/QqgAkzbt/)
-
-
-### albacete fc (N/A, 14/01/2026 15:28 Lima)
-
-- **A qué hora juega Real Madrid vs Albacete HOY en Perú: partido por octavos de final de la Copa del Rey 2026**: [Link](https://www.infobae.com/peru/deportes/2026/01/13/a-que-hora-juega-real-madrid-vs-albacete-partido-octavos-de-final-copa-del-rey-2026-horario/)
-- **VER Real Madrid vs Albacete EN VIVO HOY por la Copa del Rey vía América tvGO**: [Link](https://larepublica.pe/deportes/2026/01/13/real-madrid-vs-albacete-en-vivo-copa-del-rey-via-america-tv-1204749)
-- **▷ A qué horas juegan y en qué canales transmiten Real Madrid vs. Albacete EN VIVO hoy por Copa del Rey 2026**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/a-que-hora-y-en-que-canal-transmite-real-madrid-albacete-por-copa-del-rey-2026-en-espana-mexico-y-estados-unidos-nnda-nnrt-noticia/)
-
-
-### hoffenheim vs (N/A, 14/01/2026 15:28 Lima)
-
-- **TSG Hoffenheim vs. Borussia Mönchengladbach preview: European hopefuls lock horns in Englische Woche**: [Link](https://sports.yahoo.com/articles/tsg-hoffenheim-vs-borussia-m-175200755.html)
-- **Hoffenheim vs Monchengladbach Prediction, 1/14/2026 Soccer Pick, Tips and Odds**: [Link](https://www.docsports.com/free-picks/soccer/2026/hoffenheim-vs-monchengladbach-prediction-1-14-2026-soccer-pick-tips-and-odds.html)
-- **Where to Watch TSG Hoffenheim vs. Borussia Monchengladbach: TV Channel, Start Time and Live Stream**: [Link](https://www.bleachernation.com/how-to-watch/2026/01/13/where-to-watch-tsg-hoffenheim-vs-borussia-monchengladbach-tv-channel-start-time-and-live-stream-2/)
-
-
-### inter milan (N/A, 14/01/2026 15:28 Lima)
-
-- **Preview: Inter Milan vs Lecce - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/inter-milan/preview/inter-milan-vs-lecce-prediction-team-news-lineups_589709.html)
-- **Official Starting Lineups – Inter Milan Vs Lecce: Andy Diouf & Ange-Yoann Bonny Start**: [Link](https://onefootball.com/es/noticias/official-starting-lineups-inter-milan-vs-lecce-andy-diouf-ange-yoann-bonny-start-42228394)
-- **Revealed – Why Inter Milan Coach Cristian Chivu Didn’t Hold Pre-Match Training Session Ahead Of Lecce Clash**: [Link](https://sempreinter.com/2026/01/14/inter-milan-lecce-chivu-did-not-hold-pre-match-training/)
-
-
-### braga vs (N/A, 14/01/2026 15:28 Lima)
-
-- **Preview: Fafe vs Braga - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/fafe/preview/fafe-vs-braga-prediction-team-news-lineups_589742.html)
-
-
-### bayern (N/A, 14/01/2026 15:28 Lima)
-
-- **„Wir müssen unsere Hausaufgaben machen und unsere Punkte holen“**: [Link](https://www.fcstpauli.com/news/cheftrainer-alexander-blessin-vor-auswaertsspiel-wolfsburg-2526)
-- **Bundesliga LIVE: Infos, News und Liveticker zum 17. Spieltag | Flashscore.de**: [Link](https://www.flashscore.de/news/fu-ball-bundesliga-bundesliga-live-wolfsburg-fuhrt-nach-handelfmeter-jones-vergibt-doppelchance/QqgAkzbt/)
-- **"Geile Emotion": VfL-Matchwinner Pejcinovic glücklich über späten Sieg**: [Link](https://www.ndr.de/sport/fussball/dzenan-pejcinovic-vfl-matchwinner-gegen-st-pauli,audio-386642.html)
-
-
-### bayern munich vs (N/A, 14/01/2026 15:28 Lima)
-
-- **Kompany gives update on Musiala, Kimmich and Davies ahead of trip to Köln**: [Link](https://bulinews.com/kompany-gives-update-musiala-kimmich-and-davies-ahead-trip-koln)
-- **Preview: 1. FC Köln vs. FC Bayern, Bundesliga MD 17**: [Link](https://fcbayern.com/en/matches/profis/bundesliga/2025-2026/1-fc-koeln-fc-bayern-muenchen-14-01-2026/preview)
-- **Koln vs Bayern Munich Prediction, 1/14/2026 Soccer Pick, Tips and Odds**: [Link](https://www.docsports.com/free-picks/soccer/2026/koln-vs-bayern-munich-prediction-1-14-2026-soccer-pick-tips-and-odds.html)
-
-
-### senegal vs egipto (N/A, 14/01/2026 11:38 Lima)
-
-- **Senegal - Egipto, en directo | La Copa África, hoy en vivo**: [Link](https://www.marca.com/futbol/copa-de-africa/senegal-egipto/2026/01/14/01_0167_20260114_1226_1225-directo.html)
-- **Técnico de Nigeria bromeó sobre posible tanda de penales ante Marruecos en la Copa Africana: "Iré a rezar a la mezquita"**: [Link](https://rpp.pe/futbol/futbol-mundial/copa-africana-de-naciones-tecnico-de-nigeria-sobre-posible-tanda-de-penales-ante-marruecos-en-semifinales-ire-a-rezar-a-la-mezquita-noticia-1671412)
-- **¿A qué hora juega y qué canal transmite Nigeria vs. Marruecos EN VIVO hoy por Copa Africana 2026 EE.UU., México y España?**: [Link](https://elcomercio.pe/mag/respuestas/a-que-hora-juega-y-que-canal-transmite-nigeria-vs-marruecos-en-vivo-hoy-por-semifinal-copa-africana-naciones-2026-eeuu-mexico-espana-canales-tv-nnda-nnrt-noticia/)
-
-
-### istanbulspor - trabzonspor (N/A, 14/01/2026 11:38 Lima)
-
-- **İSTANBULSPOR - TRABZONSPOR CANLI | Fırtına'nın kupada rakibi İstanbulspor! Fatih Tekke'nin 11'i belli oldu…**: [Link](https://www.sabah.com.tr/spor/futbol/2026/01/14/istanbulspor-trabzonspor-canli-firtinanin-kupada-rakibi-istanbulspor-fatih-tekkenin-11i-belli-oldu)
-- **Fatih Tekke: "Hem kupa hem de ligde devam etmemiz gerekiyor"**: [Link](https://www.ntvspor.net/futbol/fatih-tekke-hem-kupa-hem-de-ligde-devam-etmemiz-gerekiyor-416086)
-- **İstanbulspor Teknik Sorumlusu İlyas Öztürk açıkladı! Rotasyonlu grupla çıkacağız**: [Link](https://www.61saat.com/istanbulspor-teknik-sorumlusu-ilyas-ozturk-acikladi-rotasyonlu-grupla-cikacagiz)
-
-
-### al qadsiah fc (N/A, 14/01/2026 11:38 Lima)
-
-- **Murray State vs. Southern Illinois (Jan 15, 2026) Pregame**: [Link](https://www.espn.com/womens-college-basketball/preview?gameId=401831105)
-- **Unsportsmanlike with Evan, Canty and Michelle - Hour 3: Pretty Privilege**: [Link](https://www.espn.com.au/radio/play/_/id/47608976)
-- **Al Qadsiah vs. Al Fayha (14 Jan, 2026) Live Score**: [Link](https://www.espn.co.uk/football/match/_/gameId/756031)
 
 
