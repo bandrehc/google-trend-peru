@@ -1,3 +1,73 @@
+### hornets - warriors (N/A, 17/01/2026 21:22 Lima)
+
+- **Spotlight on LaMelo Ball, Stephen Curry as Hornets visit Warriors**: [Link](https://www.thesportsleader.com/2026/01/16/spotlight-on-lamelo-ball-stephen-curry-as-hornets-visit-warriors/)
+- **Golden State takes on Charlotte in non-conference action**: [Link](https://abcnews.go.com/Sports/wireStory/golden-state-takes-charlotte-conference-action-129269967)
+- **Hornets vs Warriors Prediction, Picks & Odds for Tonight’s NBA Game**: [Link](https://sports.yahoo.com/articles/hornets-vs-warriors-prediction-picks-173900117.html)
+
+
+### kick (N/A, 17/01/2026 21:22 Lima)
+
+- **All-Big Ten Kick Returner in Transfer Portal Commits to MSU**: [Link](https://www.si.com/college/michiganstate/football/all-big-ten-kick-returner-transfer-portal-kenneth-williams-commits-msu-spartans)
+- **COMMITMENT: Michigan State lands Nebraska 2nd Team All- Big Ten kick returner Kenneth Williams**: [Link](https://247sports.com/college/michigan-state/article/michigan-state-football-recruiting-kenneth-williams-transfer-portal--270734270/)
+- **MSU football adds All-Big Ten kick return specialist via transfer portal**: [Link](https://spartanswire.usatoday.com/story/sports/college/spartans/football/2026/01/17/michigan-state-football-kenneth-williams-commitment/88238394007/)
+
+
+### river (N/A, 17/01/2026 21:22 Lima)
+
+- **Fire destroys school on Blueberry River First Nation north of Fort St. John**: [Link](https://www.cbc.ca/news/canada/british-columbia/blueberry-river-first-nation-school-destroyed-fire-9.7050231)
+- **(UPDATE) 'Tremendous loss': Fire engulfs 'multi-use building' on Blueberry River First Nations Reserve**: [Link](https://energeticcity.ca/2026/01/17/fire-erupts-in-blueberry-river-first-nations/)
+- **Rowdy raccoons break into house, prompting call to the police: Rocky River Police Blotter**: [Link](https://www.cleveland.com/community/2026/01/rowdy-raccoons-break-into-house-prompting-call-to-the-police-rocky-river-police-blotter.html)
+
+
+### melcochita (N/A, 17/01/2026 21:22 Lima)
+
+- **“Así no juega Perú” se manda contra la corrupción**: [Link](https://pressperu.com/2026/01/16/asi-no-juega-peru-se-manda-contra-la-corrupcion/)
+- **Melcochita feliz por homenaje en película ‘Así no juega Perú’: ¿en qué consistió?**: [Link](https://www.expreso.com.pe/entretenimiento/melcochita-feliz-por-homenaje-en-pelicula-asi-no-juega-peru-en-que-consistio-susan-leon-karen-america-miguel-vergara-noticia/1255233/)
+- **“Melcochita” feliz con homenaje en película ‘Así no juega Perú’**: [Link](https://diariouno.pe/2026/01/15/melcochita-feliz-con-homenaje-en-pelicula-asi-no-juega-peru/)
+
+
+### bucaramanga - millonarios (N/A, 17/01/2026 21:22 Lima)
+
+- **Liga BetPlay: ¿A qué hora juega Millonarios?**: [Link](https://www.espn.com.ar/futbol/colombia/nota/_/id/16192574/a-que-hora-juega-millonarios-hoy-fecha-hora-partido)
+- **Pronóstico Atlético Bucaramanga Millonarios - Primera A Colombia 17/01/26**: [Link](https://www.sportytrader.com/es/pronosticos/atletico-bucaramanga-millonarios-319243/)
+- **Transmisión EN VIVO del Bucaramanga vs Millonarios hoy: cómo mirar el partido por TV o streaming**: [Link](https://www.365scores.com/es/news/transmision-bucaramanga-vs-millonarios/)
+
+
+### nfl (N/A, 17/01/2026 21:22 Lima)
+
+- **NFL play-offs: Denver Broncos beat Buffalo Bills in overtime in Divisional Round**: [Link](https://www.bbc.com/sport/american-football/articles/cx2wn19xwj3o)
+- **Ja'Quan McMillian wrestles Brandin Cooks for pivotal Josh Allen INT**: [Link](https://uk.sports.yahoo.com/news/jaquan-mcmillian-wrestles-brandin-cooks-012102354.html)
+- **Buffalo eyes return to AFC title game, 5 other things to know about Bills vs. Broncos**: [Link](https://www.si.com/nfl/bills/onsi/playoffs-buffalo-eyes-return-to-afc-title-game-5-other-things-to-know-about-bills-vs-broncos)
+
+
+### peñarol - river plate (N/A, 17/01/2026 21:22 Lima)
+
+- **River vs Peñarol hoy: Resultado EN VIVO, minuto a minuto y goles de la Serie Río de La Plata 2026**: [Link](https://www.365scores.com/es/news/river-vs-penarol-resultado-vivo-goles/)
+- **River Plate enfrentará a Peñarol de Uruguay en su segundo amistoso del año: hora, TV y formaciones**: [Link](https://www.infobae.com/deportes/2026/01/17/river-plate-enfrentara-a-penarol-de-uruguay-en-su-segundo-amistoso-del-ano-hora-tv-y-formaciones/)
+- **Partido gratis, River vs. Peñarol EN VIVO vía ESPN y Disney Plus por Serie Río de la Plata**: [Link](https://depor.com/futbol-internacional/resto-del-mundo/pelota-libre-tv-en-vivo-river-vs-penarol-en-directo-espn-disney-plus-futbol-libre-tv-por-la-serie-rio-de-la-plata-2026-video-noticia/)
+
+
+### tigres - toluca (N/A, 17/01/2026 21:22 Lima)
+
+- **Liga MX: Tigres recibirá a Toluca FC por la fecha 3**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-tigres-recibira-a-toluca-fc-por-la-fecha-3-noticia-1671894)
+- **El Pelotazo Ahora | Show Completo | Tigres y Toluca revivirán la gran final**: [Link](https://www.telemundo.com/deportes/el-pelotazo/video/el-pelotazo-ahora-show-completo-tigres-y-toluca-reviviran-la-gran-final-tmvo13104844)
+- **Primera atajada de Nahuel Guzmán | Tigres vs Toluca | J3**: [Link](https://www.tvazteca.com/aztecadeportes/primera-atajada-nahuel-guzman-tigres-vs-toluca-j3/)
+
+
+### ufc (N/A, 17/01/2026 21:22 Lima)
+
+- **Josh Emmett Vs. Kevin Vallejos Set To Headline UFC Vegas 114 In March**: [Link](https://www.mmanews.com/article/josh-emmett-vs-kevin-vallejos-set-to-headline-ufc-vegas-114-in-march)
+- **Emmett and Vallejos to Headline UFC Fight Night 269**: [Link](https://www.telecomasia.net/news/mma/emmett-and-vallejos-to-headline-ufc-fight-night-269/)
+- **Featherweight Knockout Artists to Headline March 14 UFC Card**: [Link](https://www.chatsports.com/mma/a/source/featherweight-knockout-artists-to-headline-march-14-ufc-card-18458444)
+
+
+### estados unidos espacio aéreo (N/A, 17/01/2026 21:22 Lima)
+
+- **EE.UU. alerta peligro en espacio aéreo de varios países**: [Link](https://www.dw.com/es/eeuu-alerta-peligro-en-espacio-a%C3%A9reo-de-varios-pa%C3%ADses/a-75544939)
+- **EE.UU. advierte sobre “riesgos potenciales” en varios puntos del espacio aéreo de América Latina debido a actividad militar**: [Link](https://cnnespanol.cnn.com/2026/01/16/eeuu/riesgos-espacio-aereo-america-latina-actividad-militar-trax)
+- **Estados Unidos advierte al sector aéreo en el Pacífico mexicano ante “operaciones militares”**: [Link](https://elpais.com/mexico/2026-01-17/estados-unidos-advierte-al-sector-aereo-por-operaciones-militares-en-el-pacifico-mexicano.html)
+
+
 ### lennart karl (N/A, 17/01/2026 15:27 Lima)
 
 - **Hamann chooses Bayern jewel Lennart Karl as player of the first half of the season**: [Link](https://fcbinside.com/2026/01/17/hamann-chooses-bayern-jewel-lennart-karl-as-player-of-the-first-half-of-the-season/)
@@ -966,75 +1036,5 @@
 - **Murray State vs. Southern Illinois (Jan 15, 2026) Pregame**: [Link](https://www.espn.com/womens-college-basketball/preview?gameId=401831105)
 - **Unsportsmanlike with Evan, Canty and Michelle - Hour 3: Pretty Privilege**: [Link](https://www.espn.com.au/radio/play/_/id/47608976)
 - **Al Qadsiah vs. Al Fayha (14 Jan, 2026) Live Score**: [Link](https://www.espn.co.uk/football/match/_/gameId/756031)
-
-
-### lakers - hawks (N/A, 14/01/2026 11:38 Lima)
-
-- **The definitive roundup of everything that unfolded across the NBA overnight**: [Link](https://www.mundodeportivo.com/us/en/20260114/738138/the-definitive-roundup-of-everything-that-unfolded-across-the-nba-overnight.html)
-- **LeBron James Leads LA Lakers Past Atlanta Hawks To End Losing Run**: [Link](https://thewhistler.ng/lebron-james-leads-la-lakers-past-atlanta-hawks-to-end-losing-run/)
-- **CJ McCollum scores 25 points off bench for Hawks at Lakers**: [Link](https://bvmsports.com/2026/01/14/cj-mccollum-scores-25-points-off-bench-for-hawks-at-lakers/)
-
-
-### juan pablo varillas (N/A, 14/01/2026 11:38 Lima)
-
-- **Entre los ochos mejores: Juan Pablo Varillas avanzó a los cuartos de final del Challenger de Buenos Aires**: [Link](https://depor.com/full-deportes/juan-pablo-varillas-avanzo-a-los-cuartos-de-final-del-challenger-de-buenos-aires-pedro-sakamoto-noticia/)
-- **Juan Pablo Varillas vs Pedro Sakamoto EN VIVO: ¿a qué hora juegan y dónde ver los octavos de final del Challenger de Buenos Aires?**: [Link](https://rpp.pe/tenis/mas-tenis/juan-pablo-varillas-vs-pedro-sakamoto-en-vivo-a-que-hora-juegan-y-donde-ver-challenger-buenos-aires-2026-via-atp-tour-link-gratis-partidos-de-hoy-noticia-1671456)
-- **Varillas debutó con triunfo en Challenger de Buenos Aires**: [Link](https://ovacion.pe/noticias/tenis/varillas-debuto-triunfo-challenger-buenos-aires)
-
-
-### rae (N/A, 14/01/2026 11:38 Lima)
-
-- **Rae emerging as Nunavut copper district**: [Link](https://www.miningnewsnorth.com/story/2026/01/14/mining-explorers-2025/rae-emerging-as-nunavut-copper-district/9442.html)
-- **Park Na Rae faces further scrutiny over contract dispute with former agency and alleged leverage attempts**: [Link](https://www.allkpop.com/article/2026/01/park-na-rae-faces-further-scrutiny-over-contract-dispute-with-former-agency-and-alleged-leverage-attempts)
-- **Park Na‑rae’s Calculated Demeanor in Her Final Statement Spurs New Debate**: [Link](https://kbizoom.com/park-na-rae-final-statement-analysis-expressions-tone-intent-debate/)
-
-
-### microsoft (N/A, 14/01/2026 11:38 Lima)
-
-- **Trump seeks to quell rebellion over data centers**: [Link](https://www.washingtonpost.com/technology/2026/01/13/trump-microsoft-data-centers-opposition/)
-- **Microsoft Pledges to Pay More for Electricity, Drawing Praise From Trump**: [Link](https://www.nytimes.com/2026/01/13/technology/microsoft-electricity-data-center-trump.html)
-- **Microsoft has a plan to stop AI data centers from hiking up your electricity bill**: [Link](https://www.cnn.com/2026/01/13/tech/microsoft-ai-data-centers-electricity-bills-plan)
-
-
-### teams (N/A, 14/01/2026 11:38 Lima)
-
-- **Teams that found the best fits in the college football transfer portal**: [Link](https://www.espn.com/college-football/story/_/id/47600962/ncaa-football-transfer-portal-teams-best-fits-2026)
-- **College football transfer portal: Bold predictions for QB market as window nears close**: [Link](https://www.cbssports.com/college-football/news/college-football-transfer-portal-qbs-bold-predictions-2026/)
-- **Transfer portal winners and losers: Which teams loaded up and which teams let down in January window?**: [Link](https://sports.yahoo.com/college-football/article/transfer-portal-winners-and-losers-college-football-january-window-155046297.html)
-
-
-### latina en vivo (N/A, 14/01/2026 11:38 Lima)
-
-- **ERES MI BIEN – CAPÍTULO 104 COMPLETO: Martes 13 de Enero**: [Link](https://www.latina.pe/entretenimiento/eres-mi-bien/capitulos-completos-eres-mi-bien/eres-mi-bien-capitulo-104-completo-martes-13-de-enero_20260114/)
-- **Hasta que la plata nos separe, Lunes 12 de Enero – ver capítulo 56 completo**: [Link](https://www.latina.pe/entretenimiento/hasta-que-la-plata-nos-separe-novela/hasta-que-la-plata-nos-separe-lunes-12-de-enero-ver-capitulo-56-completo_20260112/)
-- **ERES MI BIEN – CAPÍTULO 102 COMPLETO: Viernes 9 de Enero**: [Link](https://www.latina.pe/entretenimiento/eres-mi-bien/capitulos-completos-eres-mi-bien/eres-mi-bien-capitulo-102-completo-viernes-9-de-enero_20260109/)
-
-
-### meet (N/A, 14/01/2026 07:58 Lima)
-
-- **‘We’re Not Stupid’: Greenlanders Fear What a U.S. Takeover Would Mean**: [Link](https://www.nytimes.com/2026/01/14/world/americas/greenland-fear-trump-us-takeover.html)
-- **Trump warns Greenland's defiance a 'major problem' ahead of meeting**: [Link](https://www.foxnews.com/video/6387709382112)
-- **Greenland and Denmark prepare for a White House showdown**: [Link](https://www.cnbc.com/2026/01/14/greenland-denmark-trump-white-house-meeting.html)
-
-
-### exitosa en vivo (N/A, 14/01/2026 07:58 Lima)
-
-- **ANC aparta a Domingo Pérez del cargo de fiscal por su actuación en caso Cócteles (lea la resolución)**: [Link](https://lpderecho.pe/anc-aparta-preventivamente-jose-domingo-perez-cargo-fiscal-seis-meses/)
-- **José Domingo Pérez es suspendido por seis meses**: [Link](https://www.americatv.com.pe/noticias/actualidad/jose-domingo-perez-suspendido-seis-meses-n514790)
-- **José Domingo Pérez: los argumentos de la Autoridad Nacional de Control del Ministerio Público para suspenderlo por seis meses**: [Link](https://elcomercio.pe/politica/justicia/jose-domingo-perez-por-que-la-autoridad-nacional-de-control-del-ministerio-publico-lo-suspende-por-seis-meses-noticia/)
-
-
-### canal 4 en vivo (N/A, 14/01/2026 07:58 Lima)
-
-- **Barcelona le ganó a Real Madrid y conquistó la Supercopa de España en un partidazo**: [Link](https://www.espn.com.ar/futbol/espana/nota/_/id/16164542/barcelona-se-impuso-en-el-clasico-y-conquisto-la-supercopa-en-un-partidazo)
-- **Flick conquista otro título**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20260114/1002600915/flick-conquista-titulo.html)
-- **La Supercopa de Raphinha**: [Link](https://as.com/futbol/primera/la-supercopa-de-raphinha-f202601-n/)
-
-
-### carlos torres vila (N/A, 14/01/2026 07:58 Lima)
-
-- **Carlos Torres Vila: “BBVA contará con €49.000 millones de capital de máxima calidad en el nuevo ciclo estratégico”**: [Link](https://www.bbva.com/es/economia-y-finanzas/carlos-torres-vila-bbva-contara-con-e49-000-millones-de-capital-de-maxima-calidad-en-el-nuevo-ciclo-estrategico/)
-- **Carlos Torres afirma que BBVA generará 49.000 millones hasta 2028 para crecer y remunerar al accionista**: [Link](https://www.lacronicabadajoz.com/economia/2026/01/13/carlos-torres-afirma-bbva-generara-125647979.html)
-- **BBVA tiene buenas perspectivas para 2026 en todos los mercados en los que opera, incluido México**: [Link](https://www.eleconomista.com.mx/sectorfinanciero/bbva-buenas-perspectivas-2026-todos-mercados-opera-incluido-mexico-20260113-795104.html)
 
 
