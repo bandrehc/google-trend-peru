@@ -1,3 +1,72 @@
+### torino - roma (N/A, 18/01/2026 11:31 Lima)
+
+- **Torino, contro la Roma Pedersen torna titolare: ecco le scelte di Baroni**: [Link](https://www.gazzetta.it/calcio/fantanews/18-01-2026/torino-la-probabile-formazione-contro-la-roma.shtml)
+- **Torino-Roma, le formazioni ufficiali**: [Link](https://www.torinofc.it/news/18/01/2026/torino-roma-le-formazioni-ufficiali_40804)
+- **Torino: Baroni recupera Ismajli e Simeone per la Roma**: [Link](https://www.ansa.it/sito/notizie/sport/calcio/2026/01/18/torino-baroni-recupera-ismajli-e-simeone-per-la-roma_40b49756-5d32-4012-9ec9-bff1004fb9ba.html)
+
+
+### aston villa (N/A, 18/01/2026 11:31 Lima)
+
+- **Cuándo juegan Aston Villa vs. Everton por la Premier League: equipo, fecha, hora y TV en vivo**: [Link](https://www.espn.com.pe/futbol/inglaterra/nota/_/id/16184060/aston-villa-vs-everton-fecha-21-de-la-premier-league-equipo-fecha-hora-y-tv-en-vivo)
+- **Premier League: Everton se enfrentará a Aston Villa por la fecha 22**: [Link](https://rpp.pe/futbol/ligas-internacionales/premier-league-everton-se-enfrentara-a-aston-villa-por-la-fecha-22-noticia-1671945)
+- **Conor Gallagher joins from Atletico Madrid**: [Link](https://www.tottenhamhotspur.com/news/2026/january/new-signing-conor-gallagher-joins-from-atletico-madrid/)
+
+
+### feyenoord - sparta rotterdam (N/A, 18/01/2026 11:31 Lima)
+
+- **Opstelling Feyenoord: Ueda ontbreekt, Valente neemt plek van Timber over**: [Link](https://www.fr12.nl/nieuws/dit-is-de-opstelling-van-feyenoord-voor-de-stadsderby-tegen-sparta-98923)
+- **Live Eredivisie | Valente raakt paal in derby tegen Sparta, morrende fans in Kuip**: [Link](https://www.nu.nl/voetbal/6383007/live-eredivisie-valente-raakt-paal-in-derby-tegen-sparta-morrende-fans-in-kuip.html)
+- **Van Persie over reserveplaats Timber: "Dat heeft niets met mijn keuze te maken...**: [Link](https://1908.nl/artikelen/van-persie-over-reserveplaats-timber-dat-heeft-niets-met-mijn-keuze-te-maken)
+
+
+### feyenoord vs (N/A, 18/01/2026 11:31 Lima)
+
+- **Preview: Feyenoord vs. Sparta Rotterdam - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/feyenoord/preview/feyenoord-vs-sparta-prediction-team-news-lineups_590017.html)
+- **Sparta Rotterdam Aims to End Derby Drought Against Struggling Feyenoord**: [Link](https://news.ssbcrack.com/sparta-rotterdam-aims-to-end-derby-drought-against-struggling-feyenoord/)
+
+
+### aston villa - everton (N/A, 18/01/2026 11:31 Lima)
+
+- **Aston Villa v Everton: Premier League – live**: [Link](https://www.theguardian.com/football/live/2026/jan/18/aston-villa-v-everton-premier-league-live)
+- **Football accumulator tips for Sunday January 18: Back our acca at 7-1 with bet365**: [Link](https://www.racingpost.com/sport/football-tips/football-acca-tips/football-accumulator-tips-for-sunday-january-18-back-our-acca-at-7-1-with-bet365-a5DAY9K5U7Le/)
+- **Premier League predictions and best bets: Aston Villa to beat Everton and close gap on leaders Arsenal**: [Link](https://www.skysports.com/football/news/11095/13494770/premier-league-predictions-and-best-bets-aston-villa-to-beat-everton-and-close-gap-on-leaders-arsenal)
+
+
+### feyenoord (N/A, 18/01/2026 11:31 Lima)
+
+- **'Geen Feyenoord–Sparta voor Ueda: spits niet op tijd fit'**: [Link](https://1908.nl/artikelen/geen-feyenoord-sparta-voor-ueda-spits-niet-op-tijd-fit)
+- **Van Persie legt uit waarom Timber op de bank zit**: [Link](https://www.soccernews.nl/news/van-persie-legt-uit-waarom-timber-op-de-bank-zit/)
+- **Live Eredivisie | Valente raakt paal in derby tegen Sparta, morrende fans in Kuip**: [Link](https://www.nu.nl/voetbal/6383007/live-eredivisie-valente-raakt-paal-in-derby-tegen-sparta-morrende-fans-in-kuip.html)
+
+
+### gregorio rodríguez (N/A, 18/01/2026 11:31 Lima)
+
+- **Melgar de exportación: delantero se va del ‘Dominó’ rumbo a un grande de Argentina**: [Link](https://depor.com/futbol-peruano/descentralizado/melgar-gregorio-rodriguez-jugara-en-san-lorenzo-de-argentina-tras-no-ser-tomado-en-cuenta-por-juan-reynoso-liga-1-video-noticia/)
+- **A pedir de Ayude, San Lorenzo cerró dos nuevos refuerzos**: [Link](https://www.tycsports.com/san-lorenzo/san-lorenzo-cerro-dos-nuevos-refuerzos-gonzalo-abrego-gregorio-rodriguez-id708383.html)
+- **Mauricio Cardillo se sumó a los entrenamientos del “Ciclón”**: [Link](https://www.infoeme.com/nota/2026-1-13-15-5-0-mauricio-cardillo-se-sumo-a-los-entrenamientos-del-ciclon)
+
+
+### atlético madrid - alavés (N/A, 18/01/2026 11:31 Lima)
+
+- **Atlético de Madrid - Alavés hoy, en directo: última hora en el Metropolitano, LaLiga EA Sports en vivo**: [Link](https://as.com/futbol/primera/atletico-alaves-en-directo-laliga-ea-sports-hoy-en-vivo-f202601-d/)
+- **Atlético - Alavés en directo | LaLiga EA Sports hoy, en vivo**: [Link](https://www.marca.com/futbol/laliga-ea-sports/atletico-alaves/2026/01/18/01_0101_20260118_175_173-directo.html)
+- **Apuestas y Pronóstico del Atlético Madrid vs Alavés 18/01/26**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2026/enero/pronostico-atletico-madrid-vs-alaves-18-01-26)
+
+
+### racing de estrasburgo - metz (N/A, 18/01/2026 11:31 Lima)
+
+- **"Rosenior ? Un électrochoc" : la mobilisation contre BlueCo a réuni plusieurs centaines de supporters strasbourgeois**: [Link](https://www.dna.fr/videos/rosenior-un-electrochoc-la-mobilisation-contre-blueco-a-reuni-plusieurs-centaines-de-supporters-strasbourgeois-35ump85)
+- **Des banderoles anti-multipropriété déployées à Strasbourg lors du derby face à Metz**: [Link](https://www.msn.com/fr-fr/sport/other/des-banderoles-anti-multipropri%C3%A9t%C3%A9-d%C3%A9ploy%C3%A9es-%C3%A0-strasbourg-lors-du-derby-face-%C3%A0-metz/ar-AA1UrRzf)
+- **Strasbourg : les supporters manifestent contre la multipropriété**: [Link](https://www.footmercato.net/a5598843700168336243-strasbourg-les-supporters-manifestent-contre-la-multipropriete)
+
+
+### princesa irene de grecia (N/A, 18/01/2026 11:31 Lima)
+
+- **La millonaria indemnización que Irene de Grecia recibió por Tatoi, el palacio griego en el que será enterrada**: [Link](https://www.infobae.com/espana/2026/01/18/la-millonaria-indemnizacion-que-irene-de-grecia-recibio-por-tatoi-el-palacio-griego-en-el-que-sera-enterrada/)
+- **La princesa Marie-Chantal no estará en el funeral de Irene de Grecia: un motivo de peso, dos ausencias más y las palabras del príncipe Pablo**: [Link](https://www.vanitatis.elconfidencial.com/casas-reales/2026-01-18/princesa-marie-chantal-funeral-irene-de-grecia-motivo_4286012/)
+- **Música elegida por la Reina Sofía, una bandera helena y el apoyo familiar: los detalles de la capilla ardiente de la Princesa Irene de Grecia**: [Link](https://www.elmundo.es/espana/2026/01/17/696b72a3e85ece98358b4586.html)
+
+
 ### real sociedad vs. barcelona (N/A, 18/01/2026 07:51 Lima)
 
 - **Real Sociedad vs Barcelona: posibles alineaciones, J20 de LaLiga**: [Link](https://www.espn.com.ar/futbol/espana/nota/_/id/16194733/real-sociedad-vs-barcelona-laliga-2026-alineaciones)
@@ -969,74 +1038,5 @@
 - **Liga MX: Tigres y Pumas UNAM se encuentran en la fecha 2**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-tigres-y-pumas-unam-se-encuentran-en-la-fecha-2-noticia-1671443)
 - **Transmisión EN VIVO del Tigres vs Pumas hoy: cómo mirar el partido por TV o streaming**: [Link](https://www.365scores.com/es/news/tigres-vs-pumas-como-ver-transmision/)
 - **🚨 ¡PARTIDAZO! ¡SE ACERCA! 🚨 Esta televisora tendrá el Tigres vs Pumas en la Liga MX HOY 🏆 A esta HORA inicia... 🔥**: [Link](https://www.facebook.com/MilenioDiario/photos/-partidazo-se-acerca-esta-televisora-tendr%C3%A1-el-tigres-vs-pumas-en-la-liga-mx-hoy/1359295259561275/)
-
-
-### sabrina carpenter (N/A, 14/01/2026 23:46 Lima)
-
-- **Sabrina Carpenter Picks Pringles 'Petals' in Her First-Ever Super Bowl Commercial, Get a First Look (Exclusive)**: [Link](https://people.com/sabrina-carpenter-stars-in-her-first-super-bowl-advertisement-with-pringles-11884692)
-- **Get a sneak peek at Sabrina Carpenter’s first Super Bowl commercial**: [Link](https://www.lakesmedianetwork.com/ac/get-a-sneak-peek-at-sabrina-carpenters-first-super-bowl-commercial/)
-- **Sabrina Carpenter to Represent All the Single ‘Pringles’ Out There With Her First Super Bowl Ad**: [Link](https://www.billboard.com/music/music-news/sabrina-carpenter-pringles-super-bowl-ad-teaser-1236155001/)
-
-
-### liam gallagher (N/A, 14/01/2026 23:46 Lima)
-
-- **‘Liam exploded’: Terrifying Oasis brawl sparked by Beatles slur**: [Link](https://www.cairnspost.com.au/entertainment/music/liam-finally-exploded-inside-epic-oasis-studio-brawl-involving-pasta-a-cricket-bat-and-poor-decisions-by-a-nowforgotten-rocker/news-story/8fa19290714b4972b3eddf38a7907546)
-- **Yo Soy castings 2026: ¡Cambió de personaje y encontró su mejor versión como Liam Gallagher!**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-castings-2026-cambio-de-personaje-y-encontro-su-mejor-version-como-liam-gallagher_20260114/)
-
-
-### querétaro - tijuana (N/A, 14/01/2026 23:46 Lima)
-
-- **Liga MX: Querétaro y Tijuana se miden por la fecha 2**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-queretaro-y-tijuana-se-miden-por-la-fecha-2-noticia-1671423)
-- **Con Gilberto Mora: qué canal pasa Querétaro vs Xolos hoy: dónde ver GRATIS y EN VIVO el partido de la Liga MX**: [Link](https://www.365scores.com/es/news/queretaro-vs-xolos-donde-ver-gratis-vivo/)
-- **Ladran en Querétaro: Xolos vence 0-2 a Gallos y logran su primer triunfo de la temporada**: [Link](https://www.record.com.mx/futbol/liga-mx/tijuana/ladran-en-queretaro-xolos-vence-0-2-gallos-y-logran-su-primer-triunfo-de-la)
-
-
-### san lorenzo - cúcuta (N/A, 14/01/2026 23:46 Lima)
-
-- **Transmisión EN VIVO del San Lorenzo vs Cúcuta hoy: cómo mirar el partido por TV o streaming**: [Link](https://www.365scores.com/es/news/transmision-san-lorenzo-vs-cucuta-vivo/)
-- **Cúcuta sorprendió y derrotó 1-0 a San Lorenzo en amistoso internacional**: [Link](https://www.infobae.com/colombia/deportes/2026/01/14/en-vivo-san-lorenzo-vs-cucuta-deportivo-siga-aqui-el-partido-amistoso-de-la-serie-del-rio-de-la-plata-2026-que-se-jugara-en-uruguay/)
-- **En qué canal pasan San Lorenzo vs. Cúcuta Deportivo por el torneo de verano 2026 hoy**: [Link](https://www.lanacion.com.ar/deportes/futbol/en-que-canal-pasan-san-lorenzo-vs-cucuta-deportivo-por-el-torneo-de-verano-2026-hoy-nid14012026/)
-
-
-### liga mx (N/A, 14/01/2026 23:46 Lima)
-
-- **¿Penal? El VAR interviene de manera silenciosa para juzgar una posible falta**: [Link](https://www.tudn.com/futbol/liga-mx/penal-el-var-interviene-de-manera-silenciosa-para-juzgar-una-posible-falta-video)
-- **Liga MX: Tigres y Pumas UNAM se encuentran en la fecha 2**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-tigres-y-pumas-unam-se-encuentran-en-la-fecha-2-noticia-1671443)
-- **Transmisión EN VIVO del Tigres vs Pumas hoy: cómo mirar el partido por TV o streaming**: [Link](https://www.365scores.com/es/news/tigres-vs-pumas-como-ver-transmision/)
-
-
-### américa - atl. san luis (N/A, 14/01/2026 21:06 Lima)
-
-- **¿Cómo llegará América a su debut en el torneo en casa?**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/16179498/america-vs-atletico-de-san-luis-liga-mx-clausura-2026-jornada-2)
-- **Transmisión EN VIVO del América vs San Luis hoy: cómo mirar el partido por TV o streaming**: [Link](https://www.365scores.com/es/news/america-vs-san-luis-como-ver-transmision/)
-- **Liga MX: Se enfrentan Club América y Atl. de San Luis por la fecha 2**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-se-enfrentan-club-america-y-atl-de-san-luis-por-la-fecha-2-noticia-1671424)
-
-
-### gremio (N/A, 14/01/2026 21:06 Lima)
-
-- **Estreia de Luís Castro na Arena do Grêmio será com portões fechados; saiba o motivo**: [Link](https://ge.globo.com/rs/futebol/times/gremio/noticia/2026/01/14/estreia-de-luis-castro-na-arena-do-gremio-sera-com-portoes-fechados-saiba-o-motivo.ghtml)
-- **Noriega Joga Hoje Pelo Grêmio? Veja Se O Zagueiro Enfrenta O São José Pelo Gauchão**: [Link](https://gremioplay.com.br/noriega-joga-hoje-pelo-gremio-sao-jose/)
-- **Grêmio x São José pelo Campeonato Gaúcho: onde assistir ao vivo, horário e escalação**: [Link](https://www.estadao.com.br/esportes/futebol/gremio-x-sao-jose-campeonato-gaucho-onde-assistir-ao-vivo-horario-escalacao-npres/)
-
-
-### bangu - flamengo (N/A, 14/01/2026 21:06 Lima)
-
-- **Time sub-20, ‘doblete’ de Carlinhos e mais: relembre último jogo entre Flamengo e Bangu, pelo Carioca**: [Link](https://colunadofla.com/2026/01/time-sub-20-doblete-de-carlinhos-e-mais-relembre-ultimo-jogo-entre-flamengo-e-bangu-pelo-carioca/)
-- **Aos 19 min do 1º tempo - gol de fora da área de Guilherme Gomes do Flamengo contra o Bangu**: [Link](https://ge.globo.com/futebol/video/aos-19-min-do-1o-tempo-gol-de-fora-da-area-de-guilherme-gomes-do-flamengo-contra-o-bangu-14255494.ghtml)
-- **Haitiano Garrinsha, do Bangu, brilha contra Flamengo e faz golaço; veja**: [Link](https://www.cnnbrasil.com.br/esportes/futebol/campeonato-carioca/haitiano-garrinsha-do-bangu-brilha-contra-flamengo-e-faz-golaco-veja/)
-
-
-### cruz azul - atlas (N/A, 14/01/2026 21:06 Lima)
-
-- **Cruz Azul: ¿Por qué Atlas y 'Mudo' Aguirre son sus pesadillas?**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/16179745/cruz-azul-vs-atlas-jornada-2-clausura-2026-liga-mx-estadio-cuauhtemoc)
-- **Cruz Azul vs. Atlas EN VIVO vía TUDN, Canal 5 y VIX: transmisión gratis por Liga MX**: [Link](https://depor.com/mexico/liga-mx/cruz-azul-vs-atlas-en-vivo-gratis-hoy-tudn-canal-5-vix-premium-y-futbol-libre-tv-en-directo-online-donde-ver-partido-por-liga-mx-video-noticia/)
-- **Qué canal pasa Cruz Azul vs Atlas hoy: dónde ver GRATIS y EN VIVO el partido de la Liga MX**: [Link](https://www.365scores.com/es/news/cruz-azul-vs-atlas-donde-ver-gratis-vivo/)
-
-
-### north esporte clube - atlético mineiro (N/A, 14/01/2026 21:06 Lima)
-
-- **Diogo Alves explica escolha por Sampaoli em ficar em BH, elogia jovens e admite atuação abaixo em Montes Claros**: [Link](https://onefootball.com/en/news/diogo-alves-explica-escolha-por-sampaoli-em-ficar-em-bh-elogia-jovens-e-admite-atuacao-abaixo-em-montes-claros-42230347)
-- **Atlético-MG arranca empate fora de casa em jogo com polêmica nos acréscimos pelo campeonato Mineiro**: [Link](https://esportenewsmundo.com.br/atletico-mg-arranca-empate-fora-de-casa-em-jogo-com-polemica-nos-acrescimos-pelo-campeonato-mineiro/)
-- **Atlético empata com o North em Montes Claros**: [Link](https://atletico.com.br/atletico-empata-com-o-north-em-montes-claros/)
 
 
