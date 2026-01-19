@@ -1,3 +1,73 @@
+### lanus vs (N/A, 18/01/2026 21:19 Lima)
+
+- **EN VIVO: Terminó el primer tiempo con un marcador 1-0 a favor de Lanús sobre Sarmiento (LB)**: [Link](https://www.directvsports.com/futbol/en-vivo-termino-el-primer-tiempo-con-un-marcador-1-0-a-favor-de-lanus-sobre-sarmiento-lb-20260115-0008.html)
+- **Lanús vs Sarmiento por los treintaidosavos de Copa Argentina EN VIVO. Seguilo minuto a minuto por la web de TN.**: [Link](https://tn.com.ar/deportes/futbol/2026/01/18/lanus-vs-sarmiento-en-vivo-por-los-treintaidosavos-de-la-copa-argentina-hora-donde-ver-y-formaciones/)
+- **Lanús vs Sarmiento de la Banda: resultado EN VIVO y estadísticas de la Copa Argentina**: [Link](https://www.365scores.com/es/news/lanus-vs-sarmiento-de-la-banda-vivo-copa/)
+
+
+### santa fe - águilas doradas (N/A, 18/01/2026 21:19 Lima)
+
+- **Pronóstico Santa Fe Águilas Doradas Rionegro - Primera A Colombia 18/01/26**: [Link](https://www.sportytrader.com/es/pronosticos/santa-fe-rionegro-aguilas-319388/)
+- **EN VIVO: siga el minuto a minuto de Santa Fe vs. Águilas Doradas en Liga BetPlay**: [Link](https://www.elespectador.com/deportes/futbol-colombiano/santa-fe/en-vivo-siga-el-minuto-a-minuto-de-santa-fe-vs-aguilas-doradas-en-liga-betplay-goles-alineaciones-video-resumen-noticias-hoy/)
+- **Historial Santa Fe vs Águilas Doradas: una leve ventaja para el 'cardenal'**: [Link](https://www.vavel.com/colombia/futbol-colombiano/2026/01/18/independiente-santa-fe/1247756-historial-santa-fe-vs-aguilas-doradas-una-leve-ventaja-para-el-cardenal.html)
+
+
+### emape (N/A, 18/01/2026 21:19 Lima)
+
+- **Habla el esposo de víctima del accidente en Panamericana Sur: “Era su segundo día de trabajo”**: [Link](https://www.infobae.com/peru/2026/01/15/habla-el-esposo-de-victima-del-accidente-en-panamericana-sur-era-su-segundo-dia-de-trabajo/)
+- **Municipalidad de Lima rindió homenaje póstumo a trabajadores de EMAPE fallecidos en accidente**: [Link](https://elperuano.pe/noticia/287297-municipalidad-de-lima-rindio-homenaje-postumo-a-trabajadores-de-emape-fallecidos-en-accidente)
+- **Se suspendió fiesta de aniversario de Lima ¿Cuándo es la nueva fecha?**: [Link](https://caretas.pe/sociedad/municipalidad-suspende-fiesta-por-aniversario-de-lima-por-muerte-de-trabajadores-de-emape/)
+
+
+### pachuca - américa (N/A, 18/01/2026 21:19 Lima)
+
+- **Pachuca vs América: posibles alineaciones de la Jornada 3**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/16195415/pachuca-vs-america-alineaciones-formaciones-liga-mx-jornada-3)
+- **Liga MX: Pachuca y Club América se enfrentan para cerrar el último partido de la Fecha 3**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-pachuca-y-club-america-se-enfrentan-para-cerrar-el-ultimo-partido-de-la-fecha-3-noticia-1672003)
+- **La tarjeta roja y el penal sobre Brian Rodríguez que no sancionaron y perjudicó a América**: [Link](https://americamonumental.bolavip.com/ligamx/la-tarjeta-roja-y-el-penal-sobre-brian-rodriguez-que-no-sancionaron-y-perjudico-a-america)
+
+
+### arturo vidal (N/A, 18/01/2026 21:19 Lima)
+
+- **El emocionante mensaje de aliento de Arturo Vidal ante incendios forestales**: [Link](https://www.t13.cl/noticia/deportes13/el-emocionante-mensaje-aliento-arturo-vidal-ante-incendios-forestales-18-1-2026)
+- **El emotivo mensaje de Arturo Vidal a víctimas de los incendios en Biobío y Ñuble**: [Link](https://www.pagina7.cl/redes-sociales/el-emotivo-mensaje-de-arturo-vidal-a-victimas-de-los-incendios-en-biobio-y-nuble/)
+- **La arenga de Arturo Vidal a los afectados por los incendios forestales**: [Link](https://www.cooperativa.cl/noticias/deportes/futbol/arturo-vidal/la-arenga-de-arturo-vidal-a-los-afectados-por-los-incendios-forestales/2026-01-18/203320.html)
+
+
+### disney (N/A, 18/01/2026 21:19 Lima)
+
+- **Roger Allers, ‘The Lion King’ Co-Director, Dies at 76**: [Link](https://www.hollywoodreporter.com/movies/movie-news/roger-allers-dead-director-the-lion-king-1236477359/)
+- **‘The White Lotus’ Adds Two-Time Oscar Nominee to Cast**: [Link](https://www.thedailybeast.com/the-lion-king-director-roger-allers-dies-at-76/)
+- **‘The Lion King’ Legend Dead at 76: Peers Confirm Death of Roger Allers**: [Link](https://www.suggest.com/the-lion-king-legend-dead-at-76-peers-confirm-death-of-roger-allers/2912605/)
+
+
+### boca vs (N/A, 18/01/2026 21:19 Lima)
+
+- **Boca vs. Olimpia, por un amistoso internacional: seguilo EN VIVO**: [Link](https://www.tycsports.com/boca-juniors/amistosos-clubes-2026-boca-juniors-vs-olimpia-clasicos-sudamericanos-id708273.html)
+- **Boca vs. Olimpia, hoy EN VIVO por un amistoso: horario, cómo ver y formaciones**: [Link](https://www.ole.com.ar/boca-juniors/boca-vs-olimpia-partido-amistoso-horario-formaciones-ver-vivo-minuto-minuto-resumen-fotos-videos_0_eFaldgVw6A.html)
+- **Transmisión EN VIVO del Boca vs Olimpia hoy: cómo mirar el partido por TV o streaming**: [Link](https://www.365scores.com/es/news/boca-vs-olimpia-como-ver-transmision/)
+
+
+### disney plus (N/A, 18/01/2026 21:19 Lima)
+
+- **Disney+ and Hulu February 2026 Schedules Announced**: [Link](https://www.vitalthrills.com/disney-plus-and-hulu-february-2026/)
+- **February 2026 Will Be a Rough Month For Disney+ Subscribers**: [Link](https://thedirect.com/article/disney-plus-february-2026-subscribers)
+- **What’s Coming To Hulu & Hulu On Disney+ In February 2026**: [Link](https://whatsondisneyplus.com/whats-coming-to-hulu-hulu-on-disney-in-february-2026/)
+
+
+### santos - juárez (N/A, 18/01/2026 21:19 Lima)
+
+- **Qué canal pasa Santos vs Juárez hoy: dónde ver GRATIS y EN VIVO el partido de la Liga MX**: [Link](https://www.365scores.com/es/news/santos-vs-juarez-donde-ver-liga-mexico/)
+- **Liga MX: Santos Laguna y FC Juárez se miden por la fecha 3**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-santos-laguna-y-fc-juarez-se-miden-por-la-fecha-3-noticia-1671987)
+- **Muchos goles, pocos puntos**: [Link](https://mexico.as.com/futbol/futbol-mexicano/muchos-goles-pocos-puntos-f202601-n/)
+
+
+### sampaio corrêa futebol e esporte - botafogo (N/A, 18/01/2026 21:19 Lima)
+
+- **📋 Botafogo escalado para tentar manter os 100% no Cariocão 2026**: [Link](https://onefootball.com/pt-br/noticias/botafogo-escalado-para-tentar-manter-os-100-no-cariocao-2026-42255422)
+- **Gol Rodrigo Andrade - Sampaio Corrêa 1 X 1 Botafogo - Campeonato Carioca 2026**: [Link](https://www.uol.com.br/esporte/videos/gols/2026/01/18/gol-rodrigo-andrade---sampaio-correa-1-x-1-botafogo---campeonato-carioca-2026.htm)
+- **Análise: Botafogo tem Kauan Toledo como destaque em derrota de virada marcada por expulsão boba**: [Link](https://oglobo.globo.com/esportes/futebol/botafogo/noticia/2026/01/18/analise-botafogo-tem-kauan-toledo-como-destaque-em-derrota-de-virada-marcada-por-expulsao-boba.ghtml)
+
+
 ### tarjeta roja (N/A, 18/01/2026 15:28 Lima)
 
 - **América: Comisión Disciplinaria quita expulsión a Ramón Juárez**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/16191554/america-comision-disciplinaria-quita-expulsion-a-ramon-juarez)
@@ -968,75 +1038,5 @@
 - **Racing - Barcelona, en directo: octavos Copa del Rey, hoy en vivo**: [Link](https://as.com/futbol/copa_del_rey/racing-barcelona-en-directo-octavos-copa-del-rey-hoy-en-vivo-f202601-d/)
 - **Canales TV que transmiten partido FC Barcelona - Racing EN VIVO y EN DIRECTO por Copa del Rey 2026 en España, México y EE.UU. | MAG**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/en-que-canal-ver-fc-barcelona-racing-en-vivo-hoy-15-de-enero-por-la-copa-del-rey-2026-en-espana-mexico-y-estados-unidos-nnda-nnrt-noticia/)
 - **Aplausos por lo que dice el entrenador del Racing antes del partido contra el Barça: "Me importa cero lo que piensen"**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20260115/1002601812/aplausos-dice-entrenador-racing-partido-barca-me-importa-cero-piensen.html)
-
-
-### como - milan (N/A, 15/01/2026 15:32 Lima)
-
-- **Milan visita a Como en un gran partido en busca del liderazgo de la Serie A**: [Link](https://www.espn.com.pe/futbol/italia/nota/_/id/16180098/como-vs-milan-por-la-serie-a-2026-equipo-fecha-hora-y-tv-en-vivo)
-- **Al equipo de Cesc se le atragantan los más grandes del Calcio**: [Link](https://www.flashscore.pe/noticias/futbol-serie-a-cesc-fabregas-hinca-rodilla-nobleza-italia/CAjYzzM8/)
-- **¡Continuo! En directo por ANTV, el AC Milan se enfrenta a un club de la rica Indonesia que está lleno de sorpresas**: [Link](https://www.ucvradio.pe/mas-actualidad/continuo-en-directo-por-antv-el-ac-milan-se-enfrenta-a-un-club-de-la-rica-indonesia-que-esta-lleno-de-sorpresas/103882/)
-
-
-### scotiabank (N/A, 15/01/2026 11:41 Lima)
-
-- **Personal-trading probe led to firing of two Scotiabank analysts**: [Link](https://financialpost.com/fp-work/personal-trading-probe-led-to-firing-of-two-scotiabank-analysts)
-- **How a Trading Probe Led to the Firing of Two Scotiabank Analysts**: [Link](https://www.bloomberg.com/news/newsletters/2026-01-13/trading-probe-led-to-firing-of-scotiabank-analysts-canada-daily)
-- **City eyes old Scotiabank building for new Stratford police station**: [Link](https://www.stratfordbeaconherald.com/news/local-news/city-eyes-old-scotiabank-building-for-new-stratford-police-station)
-
-
-### jennie (N/A, 15/01/2026 11:41 Lima)
-
-- **BLACKPINK's Jennie Celebrates 30th Birthday with 'thirtyyyyyy' Cake Video**: [Link](https://www.chosun.com/english/kpop-culture-en/2026/01/16/BDQFR45MXJD4NNE6USLGDXDXDU/)
-- **Sexy And Revealing New Photos Of BLACKPINK’s Jennie Stir Up Major Reactions**: [Link](https://www.koreaboo.com/news/blackpink-jennie-photos-underwear-topless-sexy-revealing/)
-- **Jennie celebrates 30th birthday with cheerful cake moment - CHOSUNBIZ**: [Link](https://biz.chosun.com/en/en-entertainment/2026/01/16/RR7OGVRGCFENVNVEMK45PPCNCI/)
-
-
-### juan pablo varillas (N/A, 15/01/2026 11:41 Lima)
-
-- **Entre los ochos mejores: Juan Pablo Varillas avanzó a los cuartos de final del Challenger de Buenos Aires**: [Link](https://depor.com/full-deportes/juan-pablo-varillas-avanzo-a-los-cuartos-de-final-del-challenger-de-buenos-aires-pedro-sakamoto-noticia/)
-- **Juan Pablo Varillas venció a Pedro Sakamoto por octavos de final del Challenger de Buenos Aires**: [Link](https://elcomercio.pe/deporte-total/tenis/juan-pablo-varillas-vencio-a-pedro-sakamoto-por-octavos-de-final-del-challenger-de-buenos-aires-noticia/)
-- **Juan Pablo Varillas vs Lautaro Midon EN VIVO: ¿a qué hora juegan y dónde ver los cuartos de final del Challenger de Buenos Aires?**: [Link](https://rpp.pe/voley/mas-voley/juan-pablo-varillas-vs-lautaro-midon-en-vivo-a-que-hora-juegan-y-donde-ver-cuartos-de-final-challenger-buenos-aires-2026-via-atp-tour-link-gratis-partidos-de-hoy-noticia-1671582)
-
-
-### el peruano (N/A, 15/01/2026 11:41 Lima)
-
-- **Congreso promulga ley que fortalece la dignidad laboral del personal de la Biblioteca Nacional del Perú**: [Link](https://comunicaciones.congreso.gob.pe/noticias/congreso-promulga-ley-que-fortalece-la-dignidad-laboral-del-personal-de-la-biblioteca-nacional-del-peru/)
-- **El Peruano te informa: consulta aquí las principales normas legales para hoy, jueves 15 de Enero del 2026**: [Link](https://elperuano.pe/noticia/287145-el-peruano-te-informa-consulta-aqui-las-principales-normas-legales-para-hoy-jueves-15-de-enero-del-2026)
-- **Consulta las normas legales más importantes de hoy, jueves 15 de enero de 2026**: [Link](https://www.tvperu.gob.pe/noticias/politica/consulta-las-normas-legales-mas-importantes-de-hoy-jueves-15-de-enero-de-2026)
-
-
-### yahoo (N/A, 15/01/2026 11:41 Lima)
-
-- **20 charged in college hoops point-shaving plot**: [Link](https://www.espn.com/mens-college-basketball/story/_/id/47619154/many-college-players-20-charged-point-shaving-scheme)
-- **College basketball players among those charged in point-shaving scheme by FBI**: [Link](https://www.cbssports.com/college-basketball/news/college-basketball-players-point-shaving-fixing-games-fbi-scandal/)
-- **20 people indicted in alleged college basketball and Chinese Basketball Association point-shaving scheme**: [Link](https://sports.yahoo.com/mens-college-basketball/breaking-news/article/20-people-indicted-in-alleged-college-basketball-and-chinese-basketball-association-point-shaving-scheme-150308210.html)
-
-
-### iphone 18 pro (N/A, 15/01/2026 11:41 Lima)
-
-- **Leaker details iPhone 18 lineup screen sizes, Dynamic Island plans**: [Link](https://9to5mac.com/2026/01/14/leaker-details-iphone-18-lineup-screen-sizes-dynamic-island-plans/)
-- **Apple iPhone 18 Pro, iPhone Air 2 and iPhone 18 specs tipped: Launch timeline, specs and price range**: [Link](https://www.digit.in/news/mobile-phones/apple-iphone-18-pro-iphone-air-2-and-iphone-18-specs-tipped-launch-timeline-specs-and-price-range.html)
-- **iPhone 17e to iPhone Fold: Smartphones that Apple could launch in 2026**: [Link](https://www.moneycontrol.com/technology/iphone-17e-to-iphone-fold-smartphones-that-apple-could-launch-in-2026-article-13768787.html)
-
-
-### clima (N/A, 15/01/2026 11:41 Lima)
-
-- **Lima amanece hoy con lluvia de verano: ¿a qué se debe y hasta cuándo estará así el clima en la costa?**: [Link](https://www.infobae.com/peru/2026/01/15/lima-amanece-con-lluvia-de-verano-a-que-se-debe-y-hasta-cuando-estara-asi-el-clima-en-la-costa-peruana/)
-- **Fuerte lluvia sorprende a Lima: ¿Cuál será la temperatura de hoy?**: [Link](https://peru21.pe/lima/fuerte-lluvia-sorprende-lima-senamhi-revela-las-temperaturas-durante-el-dia/)
-- **Senamhi emite alerta por lluvias y no descartan un ‘Fenómeno del Niño’**: [Link](https://www.atv.pe/noticia/senamhi-emite-alerta-por-lluvias-y-no-descartan-un-fenomeno-del-nino/)
-
-
-### concierto bts perú entradas (N/A, 15/01/2026 11:41 Lima)
-
-- **Gira mundial de BTS 2026: fechas, ciudades, países y boletos**: [Link](https://cnnespanol.cnn.com/2026/01/13/entretenimiento/bts-gira-mundial-fecha-ciudades-2026-efe)
-- **Conciertos de BTS en Lima: ¿Cuánto costará la entrada para ver a la banda de K-pop en Perú?**: [Link](https://www.infobae.com/peru/2026/01/13/conciertos-de-bts-en-lima-cuanto-costara-ver-a-la-banda-de-k-pop-mas-famosa-del-mundo/)
-- **BTS: El millonario regreso de la banda de K-Pop tras su servicio militar y cómo será su gira mundial que incluye a América Latina**: [Link](https://www.bbc.com/mundo/articles/cdxj5drv4x2o)
-
-
-### pronostico (N/A, 15/01/2026 11:41 Lima)
-
-- **Prepárate antes de salir: conoce el pronóstico del clima en Nueva York**: [Link](https://www.infobae.com/noticias/2026/01/15/preparate-antes-de-salir-conoce-el-pronostico-del-clima-en-nueva-york/)
-- **Nueva York: el tiempo para hoy jueves 15 de enero**: [Link](https://eldiariony.com/2026/01/15/nueva-york-el-tiempo-para-hoy-jueves-15-de-enero/)
-- **Noticias de New York y New Jersey, en vivo: frente frío por la noche y actualizaciones de hoy, 15 de enero de 2026**: [Link](https://www.lanacion.com.ar/estados-unidos/nueva-york/noticias-de-new-york-y-new-jersey-en-vivo-frente-frio-por-la-noche-y-actualizaciones-de-hoy-15-de-nid15012026/)
 
 
