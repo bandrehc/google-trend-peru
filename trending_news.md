@@ -1,3 +1,38 @@
+### minedu matricula 2026 (N/A, 19/01/2026 11:36 Lima)
+
+- **Colapsa página de Matrícula Digital 2026: padres no pueden registrar a sus hijos en el primer día de inscripciones**: [Link](https://www.infobae.com/peru/2026/01/19/colapsa-pagina-de-matricula-digital-2026-padres-no-pueden-registrar-a-sus-hijos-en-el-primer-dia-de-inscripciones/)
+- **Inicia matrícula digital 2026: ¿cómo crear un usuario en el link del Minedu desde el celular y asegurar vacante en colegios?**: [Link](https://larepublica.pe/sociedad/2026/01/18/inicia-matricula-digital-2026-como-crear-un-usuario-en-el-link-del-minedu-desde-el-celular-para-obtener-una-vacante-en-colegios-662202)
+- **Hoy lunes 19 arranca la matrícula digital: mira cómo hacerlo rápido y sencillo [video]**: [Link](https://andina.pe/agencia/noticia-hoy-lunes-19-arranca-matricula-digital-mira-como-hacerlo-rapido-y-sencillo-video-1059511.aspx)
+
+
+### rockstar (N/A, 19/01/2026 11:36 Lima)
+
+- **Edinburgh Rockstar North building taped off after 'boiler explosion'**: [Link](https://www.heraldscotland.com/news/25776012.gta6-dev-rockstar-north-building-taped-off-boiler-explosion/)
+- **Edinburgh fire crews rush to ongoing emergency as police tape off busy area**: [Link](https://www.edinburghlive.co.uk/news/edinburgh-news/edinburgh-fire-crews-rush-ongoing-33257244)
+- **GTA VI developer's building closed off after suffering 'structural damage'**: [Link](https://news.stv.tv/east-central/gta-vi-developers-building-in-edinburgh-closed-off-after-suffering-structural-damage)
+
+
+### pagos banco de la nacion (N/A, 19/01/2026 11:36 Lima)
+
+- **¿Cuándo se cobra el bono de escolaridad 2026? Cronograma del Banco de la Nación**: [Link](https://www.infobae.com/peru/2026/01/16/cuando-se-cobra-el-bono-de-escolaridad-las-fechas-del-cronograma-del-banco-de-la-nacion/)
+- **Disposiciones reglamentarias para el otorgamiento de la bonificación por escolaridad 2026 [Decreto Supremo 002-2026-EF]**: [Link](https://lpderecho.pe/disposiciones-reglamentarias-para-otorgamiento-de-la-bonificacion-por-escolaridad-2026-decreto-supremo-002-2026-ef/)
+- **Despilfarro unicameral: Congreso aumenta partida de bono de escolaridad en S/11 millones**: [Link](https://elcomercio.pe/politica/despilfarro-unicameral-congreso-aumenta-partida-de-bono-de-escolaridad-en-s11-millones-bono-por-escolaridad-noticia/)
+
+
+### retiro afp prima (N/A, 19/01/2026 11:36 Lima)
+
+- **Solicitud de retiro AFP vence el lunes 19 de enero: links oficiales y el paso a paso para la última oportunidad de acceder a tu fondo**: [Link](https://www.infobae.com/peru/2026/01/19/solicitud-de-retiro-afp-vence-el-lunes-19-de-enero-links-oficiales-y-el-paso-a-paso-para-la-ultima-oportunidad-de-acceder-a-tu-fondo/)
+- **Retiro AFP: este 19 de enero vence el plazo final para solicitar hasta S/22.000**: [Link](https://larepublica.pe/economia/2026/01/14/retiro-afp-este-19-de-enero-vence-el-plazo-final-para-solicitar-hasta-s22000-hnews-879060)
+- **AFP: último llamado para el octavo retiro**: [Link](https://caretas.pe/economia/afp-ultimo-llamado-para-el-octavo-retiro/)
+
+
+### peru 21 (N/A, 19/01/2026 11:36 Lima)
+
+- **PJ da la razón a Perú21 sobre demanda de PCM por registro de puertas de Dina Boluarte**: [Link](https://peru21.pe/politica/pj-da-la-razon-peru21-demanda-de-pcm-por-registro-de-puertas-de-dina-boluarte/)
+- **Intención de Voto Enero 2026| Encuesta Perú 21**: [Link](https://www.ipsos.com/es-pe/intencion-de-voto-enero-2026-encuesta-peru-21-ipsos)
+- **Los peruanos buscan un presidente “honesto” y con “mano dura”**: [Link](https://peru21.pe/politica/los-peruanos-buscan-un-presidente-honesto-y-con-mano-dura/)
+
+
 ### irene de grecia (N/A, 19/01/2026 08:02 Lima)
 
 - **La millonaria indemnización que Irene de Grecia recibió por Tatoi, el palacio griego en el que será enterrada**: [Link](https://www.infobae.com/espana/2026/01/18/la-millonaria-indemnizacion-que-irene-de-grecia-recibio-por-tatoi-el-palacio-griego-en-el-que-sera-enterrada/)
@@ -1003,40 +1038,5 @@
 - **coritiba vs vasco da gama**: [Link](http://www.ufrpe.br/app/coritiba-vs-vasco-da-gama.shtml)
 - **vasco da gama vs coritiba**: [Link](https://maraba.pa.gov.br/bull/vasco-da-gama-vs-coritiba)
 - **vasco da gama vs**: [Link](http://www.ufrpe.br/app/vasco-da-gama-vs.shtml)
-
-
-### junior (N/A, 15/01/2026 21:08 Lima)
-
-- **Junior vs. Santa Fe: Alineaciones titulares en final ida de Superliga 2026**: [Link](https://www.espn.com.pe/futbol/colombia/nota/_/id/16187355/junior-vs-santa-fe-alineacion-equipos-titulares-superliga-2026-ida)
-- **Uruguay sigue al mando del FPC: Arias y Repetto por título de Superliga**: [Link](https://www.espn.com.pe/futbol/colombia/nota/_/id/16185185/arias-repetto-tecnicos-uruguayos-superliga-junior-santa-fe)
-- **Cuándo juegan Junior vs Santa Fe por la Superliga: equipo, fecha, hora y TV en vivo**: [Link](https://www.espn.com.pe/futbol/colombia/nota/_/id/16179259/junior-vs-santa-fe-por-la-superliga-equipo-fecha-hora-y-tv-en-vivo)
-
-
-### vasco da gama (N/A, 15/01/2026 21:08 Lima)
-
-- **Rayan se acerta com Bournemouth e deixa decisão da venda nas mãos do Vasco; veja valores**: [Link](https://ge.globo.com/futebol/times/vasco/noticia/2026/01/15/rayan-se-acerta-com-bournemouth-e-deixa-decisao-da-venda-nas-maos-do-vasco-veja-valores.ghtml)
-- **Clube inglês se acerta com Ryan, West Ham impõe condição por Paquetá e +**: [Link](https://onefootball.com/pt-br/noticias/clube-ingles-se-acerta-com-ryan-west-ham-impoe-condicao-por-paqueta-e-42234216)
-- **Veja entrevista de Fernando Diniz antes de Vasco x Maricá**: [Link](https://netvasco.com.br/n/376908/veja-entrevista-de-fernando-diniz-antes-de-vasco-x-marica)
-
-
-### bono escolaridad (N/A, 15/01/2026 21:08 Lima)
-
-- **Disposiciones reglamentarias para el otorgamiento de la bonificación por escolaridad 2026 [Decreto Supremo 002-2026-EF]**: [Link](https://lpderecho.pe/disposiciones-reglamentarias-para-otorgamiento-de-la-bonificacion-por-escolaridad-2026-decreto-supremo-002-2026-ef/)
-- **CAS con bono de escolaridad de S/ 400: La propuesta del Convenio Colectivo 2026-2027**: [Link](https://www.infobae.com/peru/2026/01/15/cas-con-bono-de-escolaridad-de-s-400-la-propuesta-del-convenio-colectivo-2026-2027/)
-- **Bono de escolaridad 2026: ¿Cuándo se paga y cuánto es el monto para el sector estatal?**: [Link](https://gestion.pe/peru/bono-de-escolaridad-2026-mira-cuando-se-paga-y-cuanto-es-el-monto-para-el-sector-estatal-noticia/)
-
-
-### sao paulo fc (N/A, 15/01/2026 21:08 Lima)
-
-- **São Paulo goleia Operário-PR e pega Bragantino nas oitavas da Copinha**: [Link](https://www.gazetaesportiva.com/times/sao-paulo/sao-paulo-x-operario-copinha-2026/)
-- **Autor de hat-trick, Gustavo Santana fala sobre alívio em marcar gols pelo São Paulo na Copinha**: [Link](https://www.arqtricolor.com/base/autor-de-hat-trick-gustavo-santana-fala-sobre-alivio-em-marcar-gols-pelo-sao-paulo-na-copinha/)
-- **Operário-PR pega o São Paulo na Copinha com Schumacher de técnico e Rafael Nadal artilheiro**: [Link](https://ge.globo.com/pr/futebol/times/operario-pr/noticia/2026/01/15/operario-pr-pega-o-sao-paulo-na-copinha-com-schumacher-de-tecnico-e-rafael-nadal-artilheiro.ghtml)
-
-
-### vasco da gama - maricá (N/A, 15/01/2026 21:08 Lima)
-
-- **Vegetti joga hoje? Desfalques e escalação do Vasco contra o Maricá pelo Campeonato Carioca**: [Link](https://www.90min.com/pt-br/vegetti-joga-hoje-desfalques-escalacao-vasco-contra-marica-campeonato-carioca-15-01-2026)
-- **Aos 24 min do 1º tempo - gol de dentro da área de Coutinho do Vasco contra o Maricá**: [Link](https://ge.globo.com/futebol/video/aos-24-min-do-1o-tempo-gol-de-dentro-da-area-de-coutinho-do-vasco-contra-o-marica-14259200.ghtml)
-- **Matheus França sentiu desconforto muscular, mas deve ser relacionado contra o Nova Iguaçu**: [Link](https://netvasco.com.br/n/376879/matheus-franca-sentiu-desconforto-muscular-mas-deve-ser-relacionado-contra-o-nova-iguacu)
 
 
