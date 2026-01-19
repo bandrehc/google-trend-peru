@@ -1,3 +1,71 @@
+### thunder - cavaliers (N/A, 19/01/2026 15:30 Lima)
+
+- **Underdog Promo Code GOALBONUS: Get $75 in Fantasy Bonus Entries for Thunder vs Cavs, EPL & NHL**: [Link](https://www.goal.com/en-us/betting/underdog-promo-code-goalbonus-get-75-fantasy-bonus-entries-thunder-vs-cavs-epl-nhl-1-19/blt6659dc5477d0a0b8)
+- **Oklahoma City Thunder vs Cleveland Cavaliers injury report: Injured and questionable players, head-to-hea**: [Link](https://timesofindia.indiatimes.com/sports/nba/top-stories/oklahoma-city-thunder-vs-cleveland-cavaliers-injury-report-injured-and-questionable-players-head-to-head-records-team-stats-and-more-january-19-2026/articleshow/126703636.cms)
+- **OKC Thunder Turn to Double Big Starting Lineup vs. Cavs**: [Link](https://www.si.com/nba/thunder/onsi/news/okc-thunder-turn-to-double-big-starting-lineup-vs-cavs-01kfbtqtnjrv)
+
+
+### lazio (N/A, 19/01/2026 15:30 Lima)
+
+- **Lazio-Como: Formazioni ufficiali e Cronaca in diretta**: [Link](https://sport.virgilio.it/dirette/live/serie-a/19-1-2026/lazio-como/2558711/)
+- **Lazio-Como, in tribuna anche Cragnotti invitato da Lotito. Out Vecino, non convocato**: [Link](https://www.ilmessaggero.it/sport/ss_lazio/lazio_como_tribuna_cragnotti_invitato_da_lotito-9306966.html)
+- **IL PREGARA | Serie A, Lazio-Como, Zaccagni: “I nuovi acquisti ci daranno una mano a vincere”**: [Link](https://www.laziostory.it/2026/01/19/il-pregara-serie-a-lazio-como-zaccagni-i-nuovi-acquisti-ci-daranno-una-mano-a-vincere/)
+
+
+### lazio vs (N/A, 19/01/2026 15:30 Lima)
+
+- **Preview: Lazio vs Como - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/lazio/preview/lazio-vs-como-prediction-team-news-lineups_590065.html)
+- **Serie A Football Betting: James Milton Offers 7-2 Selection Today**: [Link](https://www.filmogaz.com/106976)
+- **Lazio's Evolving Lineup**: [Link](https://www.ilmessaggero.it/en/lazio_s_evolving_lineup-9305649.html)
+
+
+### gassama (N/A, 19/01/2026 15:30 Lima)
+
+- **Sekou Gassama bajo la lupa de su extécnico tras llegar a Universitario: “Va a hacer goles”**: [Link](https://depor.com/futbol-peruano/descentralizado/universitario-sekou-gassama-extecnico-analiza-su-juego-explica-por-que-se-quedo-sin-equipo-en-2025-y-dijo-que-marcara-goles-fichajes-liga-1-2026-noticia/)
+- **Edison Flores sobre el retraso de Sekou Gassama en Universitario: "Espero que venga..."**: [Link](https://libero.pe/futbol-peruano/universitario/2026/01/19/edison-flores-retraso-de-sekou-gassama-en-universitario-espero-venga-fichajes-2026-1597900)
+- **¡Lo celebra Javier Rabanal! Fecha y hora confirmada para la llegada de Sekou Gassama a Lima**: [Link](https://bolavip.com/pe/universitario/lo-celebra-javier-rabanal-fecha-y-hora-confirmada-para-la-llegada-de-sekou-gassama-a-lima)
+
+
+### granada vs (N/A, 19/01/2026 15:30 Lima)
+
+Sin noticias relacionadas disponibles.
+
+
+### brighton - bournemouth (N/A, 19/01/2026 15:30 Lima)
+
+- **Brighton v Bournemouth: Premier League – live**: [Link](https://www.theguardian.com/football/live/2026/jan/19/brighton-v-bournemouth-premier-league-live)
+- **How to watch, listen to and follow the action as Cherries visit Brighton**: [Link](https://uk.news.yahoo.com/watch-listen-action-cherries-visit-114743013.html)
+- **Brighton and Hove Albion boss says Bournemouth will cope without Semenyo**: [Link](https://www.brightonandhovenews.org/2026/01/18/brighton-and-hove-albion-boss-says-bournemouth-will-cope-without-semenyo/)
+
+
+### elche c. f. - sevilla (N/A, 19/01/2026 15:30 Lima)
+
+- **LaLiga EA Sports: Sevilla quiere volver a festejar frente a Elche**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-sevilla-quiere-volver-a-festejar-frente-a-elche-noticia-1672056)
+- **Elche – Sevilla Pronóstico y Apuestas | LaLiga 19/01/2026**: [Link](https://www.apuestas-deportivas.es/pronostico/elche-vs-sevilla-pronostico-laliga-19-01-2026/)
+- **Fútbol en directo l Alineaciones del Elche-Sevilla; la Champions ya calienta motores**: [Link](https://www.flashscore.es/noticias/futbol-en-directo-partidos-jornada-20-barcelona-madrid/6kZcYLmD/)
+
+
+### lazio - como (N/A, 19/01/2026 15:30 Lima)
+
+- **Nico Paz marcó el 2-0 para Como vs. Lazio por la Serie A**: [Link](https://espndeportes.espn.com/futbol/italia/nota/_/id/16202881/video-gol-de-nico-paz-lazio-vs-como-serie-a)
+- **Serie A: Se enfrentan Lazio y Como 1907 por la fecha 21**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-se-enfrentan-lazio-y-como-1907-por-la-fecha-21-noticia-1672051)
+- **Lazio y Como cierran la fecha**: [Link](https://www.ansalatina.com/americalatina/noticia/deportes/2026/01/18/lazio-y-como-cierran-la-fecha_03f1246e-f0c0-4894-b216-43f693b2a389.html)
+
+
+### betsson (N/A, 19/01/2026 15:30 Lima)
+
+- **Betsson forecasts stable revenue in Q4, despite Nordic and CEECA ‘slowdown’**: [Link](https://igamingbusiness.com/finance/quarterly-results/betsson-stable-revenue-in-q4/)
+- **Amid Profit Warning, Betsson’s Pontus Lindwall Building Bridges At ICE Barça**: [Link](https://igamingfuture.com/amid-profit-warning-betssons-pontus-lindwall-building-bridges-at-ice-barca/)
+- **Sportsbook and B2B decline weigh on Betsson in Q4 preliminary results**: [Link](https://www.gamingintelligence.com/finance/225098-sportsbook-and-b2b-decline-weigh-on-betsson-in-q4-preliminary-results/)
+
+
+### uefa champions league (N/A, 19/01/2026 15:30 Lima)
+
+- **USMNT, Monaco striker Balogun: Playing vs. Real Madrid 'a dream'**: [Link](https://www.espn.com/soccer/story/_/id/47662176/usa-monaco-striker-folarin-balogun-playing-real-madrid-dream)
+- **📋 No Rodrygo but two from Castilla, Arbeloa’s squad to face Monaco**: [Link](https://sports.yahoo.com/articles/no-rodrygo-two-castilla-arbeloas-144900934.html)
+- **Real Madrid announce squad for Champions League match against Monaco**: [Link](https://www.managingmadrid.com/103041/real-madrid-monaco-2026-squad-list)
+
+
 ### minedu matricula 2026 (N/A, 19/01/2026 11:36 Lima)
 
 - **Colapsa página de Matrícula Digital 2026: padres no pueden registrar a sus hijos en el primer día de inscripciones**: [Link](https://www.infobae.com/peru/2026/01/19/colapsa-pagina-de-matricula-digital-2026-padres-no-pueden-registrar-a-sus-hijos-en-el-primer-dia-de-inscripciones/)
@@ -968,75 +1036,5 @@
 - **Ica: se registró sismo de magnitud 4.3 en Pisco**: [Link](https://www.infobae.com/peru/2026/01/16/ica-se-registro-sismo-de-magnitud-43-en-pisco/)
 - **Temblor en Ica: sismo de magnitud 4,3 remeció Pisco, según IGP**: [Link](https://larepublica.pe/sociedad/2026/01/15/temblor-en-ica-sismo-de-magnitud-43-remecio-pisco-segun-igp-1303440)
 - **Temblor hoy en Perú, jueves 15 de enero: sismo de magnitud 4.3 se registra en Arequipa**: [Link](https://andina.pe/agencia/noticia-temblor-hoy-peru-jueves-15-enero-sismo-magnitud-43-se-registra-arequipa-1059446.aspx)
-
-
-### warriors - knicks (N/A, 16/01/2026 03:37 Lima)
-
-- **Golden State Warriors vs New York Knicks LIVE Score Updates (124-111)**: [Link](https://www.vavel.com/en-us/nba/2026/01/16/1247330-warriors-vs-knicks-live-score-nba.html)
-- **Where to watch Warriors-Knicks NBA game tonight free livestream**: [Link](https://www.al.com/tv/2026/01/where-to-watch-warriors-knicks-nba-game-tonight-free-livestream.html)
-- **Updated BetMGM bonus code CUSEMGM unlocks $150 bonus in NJ for Knicks vs. Warriors**: [Link](https://www.syracuse.com/betting/2026/01/updated-betmgm-bonus-code-cusemgm-unlocks-150-bonus-in-nj-for-knicks-vs-warriors.html)
-
-
-### hornets - lakers (N/A, 15/01/2026 23:44 Lima)
-
-- **How to Watch Hornets vs Lakers: Live Stream NBA, TV Channel**: [Link](https://www.newsweek.com/how-to-watch-hornets-vs-lakers-live-stream-nba-tv-channel-11363315)
-- **Los Angeles hosts Charlotte following Doncic's 42-point game**: [Link](https://www.foxsports.com/articles/nba/los-angeles-hosts-charlotte-following-doncics-42point-game)
-- **Lakers vs. Hornets Prediction, Odds, Picks, Best Bets for Jan. 15**: [Link](https://www.fanduel.com/research/lakers-vs-hornets-prediction-nba-odds-spread-best-bets-for-1-15-2026)
-
-
-### knicks - warriors (N/A, 15/01/2026 23:44 Lima)
-
-- **Golden State Warriors vs New York Knicks LIVE Score Updates (78-70)**: [Link](https://www.vavel.com/en-us/nba/2026/01/16/1247330-warriors-vs-knicks-live-score-nba.html)
-- **Where to watch Warriors-Knicks NBA game tonight free livestream**: [Link](https://www.al.com/tv/2026/01/where-to-watch-warriors-knicks-nba-game-tonight-free-livestream.html)
-- **Stephen Curry, Josh Hart, and 3 Other Underdog Player Props For Warriors vs. Knicks**: [Link](https://www.si.com/onsi/fantasy/dfs/stephen-curry-josh-hart-and-3-other-underdog-player-props-for-warriors-vs-knicks)
-
-
-### bad bunny concierto peru (N/A, 15/01/2026 23:44 Lima)
-
-- **Bad Bunny en Lima: ¿Qué figuras peruanas podrían estar en ‘La Casita’?**: [Link](https://www.infobae.com/peru/2026/01/15/bad-bunny-en-peru-que-figuras-peruanas-podrian-estar-en-la-casita/)
-- **¡Bad Bunny ya está en Lima! El artista comió en Maido antes de sus shows en el Estadio Nacional**: [Link](https://www.atv.pe/noticia/bad-bunny-ya-esta-en-lima-el-artista-comio-en-maido-antes-de-sus-shows-en-el-estadio-nacional/)
-- **Fiebre por Bad Bunny en Lima 2026: atrae a fans de otros países y explotan ventas de productos del artista, ¿cuánto mueve su llegada?**: [Link](https://elcomercio.pe/economia/dia-1/fiebre-por-bad-bunny-en-lima-2026-atrae-a-fans-de-otros-paises-y-explotan-ventas-de-pymes-con-productos-del-puertorriqueno-noticia/)
-
-
-### kick (N/A, 15/01/2026 23:44 Lima)
-
-- **How TikTok star Absi made his big transition to Kick streaming**: [Link](https://win.gg/tiktok-absi-kick-streaming/)
-- **Abodby becomes the top Kick streamer in Jordan, and here's how**: [Link](https://win.gg/abodby-top-kick-streamer-jordan/)
-- **U-19 World Cup: Henil, Kundu secure India's first win; WI take down Tanzania with ease**: [Link](https://www.espncricinfo.com/story/under-19-world-cup-2026-henil-kundu-secure-india-s-first-win-wi-take-down-tanzania-with-ease-1519593)
-
-
-### openai (N/A, 15/01/2026 23:44 Lima)
-
-- **OpenAI tells investors to brace for 'deliberately outlandish' claims from Musk ahead of trial**: [Link](https://www.cnbc.com/2026/01/15/openai-to-investors-expect-deliberately-outlandish-claims-from-musk.html)
-- **Musk’s lawsuit against OpenAI, Microsoft heads to April jury trial**: [Link](https://www.investing.com/news/stock-market-news/musks-lawsuit-against-openai-microsoft-heads-to-april-jury-trial-4450989)
-- **Judge gives all clear for Elon Musk's lawsuit against OpenAI to head to trial: 'We look forward to presenting all the evidence'**: [Link](https://www.yahoo.com/news/articles/judge-gives-clear-elon-musks-220500788.html)
-
-
-### bono por escolaridad 2026 (N/A, 15/01/2026 23:44 Lima)
-
-- **Disposiciones reglamentarias para el otorgamiento de la bonificación por escolaridad 2026 [Decreto Supremo 002-2026-EF]**: [Link](https://lpderecho.pe/disposiciones-reglamentarias-para-otorgamiento-de-la-bonificacion-por-escolaridad-2026-decreto-supremo-002-2026-ef/)
-- **CAS con bono de escolaridad de S/ 400: La propuesta del Convenio Colectivo 2026-2027**: [Link](https://www.infobae.com/peru/2026/01/15/cas-con-bono-de-escolaridad-de-s-400-la-propuesta-del-convenio-colectivo-2026-2027/)
-- **Bono de escolaridad 2026: ¿Cuándo se paga y cuánto es el monto para el sector estatal?**: [Link](https://gestion.pe/peru/bono-de-escolaridad-2026-mira-cuando-se-paga-y-cuanto-es-el-monto-para-el-sector-estatal-noticia/)
-
-
-### nathy peluso (N/A, 15/01/2026 23:44 Lima)
-
-- **Rels B, Nathy Peluso e Iván Ferreiro se suman al Tenerife Music Festival 2026**: [Link](https://www.canarias7.es/cultura/musica/rels-nathy-peluso-ivan-ferreiro-suman-tenerife-20260114124309-nt.html)
-- **Tenerife Music Festival 2026: Cartel por días**: [Link](https://www.lahiguera.net/musicalia/noticias/31428.html)
-- **Rels B irrumpe en el cartel del Tenerife Music Festival 2026 y liderará una edición de alto voltaje en Santa Cruz**: [Link](https://www.eldia.es/tenerife/2026/01/14/rels-b-irrumpe-cartel-tenerife-125672561.html)
-
-
-### xiaomi redmi note 15 pro+ 5g (N/A, 15/01/2026 23:44 Lima)
-
-- **The global rollout of the Redmi Note 15 begins in earnest, here are the prices - GSMArena.com news**: [Link](https://www.gsmarena.com/the_global_rollout_of_the_redmi_note_15_begins_in_earnest_here_are_the_prices-news-71122.php)
-- **REDMI Note 15 Series smartphones now available in the Philippines**: [Link](https://www.bworldonline.com/technology/2026/01/15/724436/redmi-note-15-series-smartphones-now-available-in-the-philippines/)
-- **REDMI Note 15 Pro 5G and Note 15 Pro+ 5G go global**: [Link](https://www.fonearena.com/blog/473574/redmi-note-15-pro-5g-price-specifications-global-redmi-note-15-pro-plus-5g.html)
-
-
-### vasco da gama vs (N/A, 15/01/2026 23:44 Lima)
-
-- **coritiba vs vasco da gama**: [Link](http://www.ufrpe.br/app/coritiba-vs-vasco-da-gama.shtml)
-- **vasco da gama vs coritiba**: [Link](https://maraba.pa.gov.br/bull/vasco-da-gama-vs-coritiba)
-- **vasco da gama vs**: [Link](http://www.ufrpe.br/app/vasco-da-gama-vs.shtml)
 
 
