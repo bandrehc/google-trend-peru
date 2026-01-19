@@ -1,3 +1,45 @@
+### irene de grecia (N/A, 19/01/2026 08:02 Lima)
+
+- **La millonaria indemnización que Irene de Grecia recibió por Tatoi, el palacio griego en el que será enterrada**: [Link](https://www.infobae.com/espana/2026/01/18/la-millonaria-indemnizacion-que-irene-de-grecia-recibio-por-tatoi-el-palacio-griego-en-el-que-sera-enterrada/)
+- **La reina Sofía, del brazo de Leonor y acompañada por los Reyes, preside una ceremonia en memoria de la princesa Irene**: [Link](https://www.vanitatis.elconfidencial.com/casas-reales/2026-01-17/sofia-leonor-reyes-ceremonia-memoria-princesa-irene_4285802/)
+- **La Familia Real, sin Juan Carlos I, despide a Irene de Grecia en Madrid**: [Link](https://elpais.com/gente/2026-01-17/la-familia-real-sin-juan-carlos-i-despide-a-irene-de-grecia-en-madrid.html)
+
+
+### novak djokovic (N/A, 19/01/2026 08:02 Lima)
+
+- **The Grand Slam master returns**: [Link](https://www.puntodebreak.com/en/2026/01/18/the-grand-slam-master-returns)
+- **Djokovic launches latest bid for record 25th Grand Slam title**: [Link](https://www.arabnews.com/node/2629817/sport)
+- **What 'Worrying' scenes at Australian Open led to Djokovic's rebuke: Here's what you should know**: [Link](https://www.geo.tv/latest/645995-what-worrying-scenes-at-australian-open-led-to-djokovics-rebuke-heres-what-you-should-know)
+
+
+### sorteo la tinka resultados (N/A, 19/01/2026 08:02 Lima)
+
+- **Natalie Vértiz destaca como invitada especial en el concierto de Bad Bunny en Lima**: [Link](https://elcomercio.pe/videos/entretenimiento/natalie-vertiz-destaca-como-invitada-especial-en-el-concierto-de-bad-bunny-en-lima-nnav-redes-sociales-espectaculos-video-noticia/)
+- **Resultados de La Tinka del domingo 18 de enero: sorteo y números de la jugada ganadora del pozo millonario**: [Link](https://depor.com/peru/la-tinka-hoy-en-vivo-domingo-18-de-enero-ver-resultados-del-ultimo-sorteo-numeros-jugada-ganadora-del-pozo-millonario-de-s18506285-intralot-resultado-si-o-si-boliyapa-peru-noticia/)
+- **Resultados de La Tinka hoy, domingo 18 de enero EN VIVO: pozo millonario y cómo jugar**: [Link](https://libero.pe/ocio/2026/01/18/tinka-hoy-18-de-enero-en-vivo-resultados-pozo-millonario-de-domingo-intralot-335444)
+
+
+### adamuz (N/A, 19/01/2026 08:02 Lima)
+
+- **Rescatan y evacúan a pasajeros tras descarrilamiento mortal de trenes en España**: [Link](https://cnnespanol.cnn.com/2026/01/19/espana/video/descarrilamiento-accidente-tren-espana-iryo-trax)
+- **Se elevan a 39 los muertos tras descarrilamiento de dos trenes en España**: [Link](https://rpp.pe/mundo/espana/espana-se-elevan-a-39-los-muertos-tras-descarrilamiento-de-dos-trenes-en-ademuz-noticia-1672127)
+- **Qué es la Comisión de Investigación de Accidentes Ferroviarios (CIAF) y cuál es su función**: [Link](https://www.infobae.com/espana/agencias/2026/01/19/que-es-la-comision-de-investigacion-de-accidentes-ferroviarios-ciaf-y-cual-es-su-funcion/)
+
+
+### armonia 10 (N/A, 19/01/2026 08:02 Lima)
+
+- **Atacan bus de Armonía 10 en Trujillo**: [Link](https://caretas.pe/nacional/atacan-bus-de-armonia-10-en-trujillo/)
+- **Imágenes del momento del atentado contra bus de Armonía 10 en Trujillo**: [Link](https://canaln.pe/actualidad/imagenes-momento-atentado-contra-bus-armonia-10-trujillo-n489688)
+- **¡ATENTADO EN TRUJILLO! Atacan con explosivos bus de Armonía 10 durante presentación**: [Link](https://peru21.pe/policiales/trujillo-atacan-con-explosivos-bus-de-armonia-10-durante-presentacion/)
+
+
+### coca cola (N/A, 19/01/2026 08:02 Lima)
+
+- **Coca-Cola (KO) Valuation Check As DCF Views Diverge On Future Upside Potential**: [Link](https://finance.yahoo.com/news/coca-cola-ko-valuation-check-110930113.html)
+- **1 Prediction for KO in 2026**: [Link](https://www.fool.com/investing/2026/01/16/1-prediction-for-ko-in-2026/)
+- **Coca-Cola, Procter & Gamble, Chevron: Recommended Stable Dividend Stocks**: [Link](https://intellectia.ai/news/stock/cocacola-procter--gamble-chevron-recommended-stable-dividend-stocks)
+
+
 ### matrícula digital 2026 minedu (N/A, 19/01/2026 03:40 Lima)
 
 - **Inicia matrícula digital 2026: ¿cómo crear un usuario en el link del Minedu desde el celular para obtener una vacante en colegios?**: [Link](https://larepublica.pe/sociedad/2026/01/18/inicia-matricula-digital-2026-como-crear-un-usuario-en-el-link-del-minedu-desde-el-celular-para-obtener-una-vacante-en-colegios-662202)
@@ -996,47 +1038,5 @@
 - **Vegetti joga hoje? Desfalques e escalação do Vasco contra o Maricá pelo Campeonato Carioca**: [Link](https://www.90min.com/pt-br/vegetti-joga-hoje-desfalques-escalacao-vasco-contra-marica-campeonato-carioca-15-01-2026)
 - **Aos 24 min do 1º tempo - gol de dentro da área de Coutinho do Vasco contra o Maricá**: [Link](https://ge.globo.com/futebol/video/aos-24-min-do-1o-tempo-gol-de-dentro-da-area-de-coutinho-do-vasco-contra-o-marica-14259200.ghtml)
 - **Matheus França sentiu desconforto muscular, mas deve ser relacionado contra o Nova Iguaçu**: [Link](https://netvasco.com.br/n/376879/matheus-franca-sentiu-desconforto-muscular-mas-deve-ser-relacionado-contra-o-nova-iguacu)
-
-
-### são paulo - são bernardo (N/A, 15/01/2026 21:08 Lima)
-
-- **Estádio vazio! São Paulo divulga parcial de ingressos vendidos para duelo contra o São Bernado**: [Link](https://nacaotricolor.com/noticias-do-sao-paulo/parcial-ingresso-sao-paulo-2/)
-- **São Paulo x São Bernardo: confira a transmissão da Jovem Pan ao vivo**: [Link](https://jovempan.com.br/esportes/futebol/sao-paulo-futebol/sao-paulo-x-sao-bernardo-confira-a-transmissao-da-jovem-pan-ao-vivo.html)
-- **Torcida do São Paulo protesta sem parar contra Casares e tem faixas retiradas no Morumbi**: [Link](https://onefootball.com/id/berita/torcida-do-sao-paulo-protesta-sem-parar-contra-casares-e-tem-faixas-retiradas-no-morumbi-42236800)
-
-
-### junior - santa fe (N/A, 15/01/2026 21:08 Lima)
-
-- **Junior vs. Santa Fe: Alineaciones titulares en final ida de Superliga 2026**: [Link](https://www.espn.com.pe/futbol/colombia/nota/_/id/16187355/junior-vs-santa-fe-alineacion-equipos-titulares-superliga-2026-ida)
-- **Uruguay sigue al mando del FPC: Arias y Repetto por título de Superliga**: [Link](https://www.espn.com.pe/futbol/colombia/nota/_/id/16185185/arias-repetto-tecnicos-uruguayos-superliga-junior-santa-fe)
-- **Cuándo juegan Junior vs Santa Fe por la Superliga: equipo, fecha, hora y TV en vivo**: [Link](https://www.espn.com.pe/futbol/colombia/nota/_/id/16179259/junior-vs-santa-fe-por-la-superliga-equipo-fecha-hora-y-tv-en-vivo)
-
-
-### concierto bad bunny peru (N/A, 15/01/2026 21:08 Lima)
-
-- **Bad Bunny en Lima: ¿Qué figuras peruanas podrían estar en ‘La Casita’?**: [Link](https://www.infobae.com/peru/2026/01/15/bad-bunny-en-peru-que-figuras-peruanas-podrian-estar-en-la-casita/)
-- **¡Bad Bunny ya está en Lima! El artista comió en Maido antes de sus shows en el Estadio Nacional**: [Link](https://www.atv.pe/noticia/bad-bunny-ya-esta-en-lima-el-artista-comio-en-maido-antes-de-sus-shows-en-el-estadio-nacional/)
-- **Fiebre por Bad Bunny en Lima 2026: atrae a fans de otros países y explotan ventas de productos del artista, ¿cuánto mueve su llegada?**: [Link](https://elcomercio.pe/economia/dia-1/fiebre-por-bad-bunny-en-lima-2026-atrae-a-fans-de-otros-paises-y-explotan-ventas-de-pymes-con-productos-del-puertorriqueno-noticia/)
-
-
-### olimpia - colo-colo (N/A, 15/01/2026 21:08 Lima)
-
-- **Olimpia vs Colo Colo EN VIVO por Serie Rio de La Plata: a qué hora juega y dónde ver**: [Link](https://libero.pe/futbol-internacional/2026/01/14/olimpia-vs-colo-colo-en-vivo-gratis-serie-rio-de-plata-via-espn-5-disney-plus-lbev-1136996)
-- **VER Disney Plus en vivo: Olimpia vs. Colo Colo por Serie Río de la Plata 2026**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/disney-plus-en-vivo-online-olimpia-vs-colo-colo-hoy-gratis-via-espn-premium-por-serie-rio-de-la-plata-2026-video-noticia/)
-- **¡La acción no se detiene! Colo Colo agenda nuevo amistoso en Uruguay**: [Link](https://dalealbo.cl/colocolo/la-accion-no-se-detiene-colo-colo-agenda-nuevo-amistoso-en-uruguay)
-
-
-### lisandro alzugaray (N/A, 15/01/2026 21:08 Lima)
-
-- **¡El último pasajero! Universitario cerca de fichar a Lisandro Alzugaray de LDU**: [Link](https://depor.com/futbol-peruano/descentralizado/universitario-de-deportes-ficharia-a-lisandro-alzugaray-para-la-liga-1-2026-tras-su-paso-por-ldu-fichajes-2026-noticia/)
-- **Universitario interesado en campeón de la Copa Sudamericana con Liga de Quito: "Gusta mucho..."**: [Link](https://libero.pe/futbol-peruano/universitario/2026/01/15/universitario-interesado-en-campeon-de-copa-sudamericana-liga-de-quito-gusta-mucho-1119915)
-- **Lisandro Alzugaray, la figura de LDU que quiere Universitario para la temporada 2026**: [Link](https://rpp.pe/futbol/descentralizado/universitario-lisandro-alzugaray-la-figura-de-ldu-quito-que-quiere-la-u-para-el-2026-fichajes-liga1-noticia-1671768)
-
-
-### ac milan (N/A, 15/01/2026 15:32 Lima)
-
-- **GdS: Allegri turns to Leao and Nkunku – why Pulisic will not start against Como**: [Link](https://sempremilan.com/allegri-leao-pulisic-why-pulisic-como)
-- **Serie A official Week 16 line-ups: Como vs. Milan**: [Link](https://football-italia.net/serie-a-official-week-16-line-ups-como-v-milan/)
-- **Fabregas: ‘Allegri is the Number One’ at explaining football to players**: [Link](https://onefootball.com/pt-br/noticias/fabregas-allegri-is-the-number-one-at-explaining-football-to-players-42235328)
 
 
