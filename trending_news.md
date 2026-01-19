@@ -1,3 +1,24 @@
+### matrícula digital 2026 minedu (N/A, 19/01/2026 03:40 Lima)
+
+- **Inicia matrícula digital 2026: ¿cómo crear un usuario en el link del Minedu desde el celular para obtener una vacante en colegios?**: [Link](https://larepublica.pe/sociedad/2026/01/18/inicia-matricula-digital-2026-como-crear-un-usuario-en-el-link-del-minedu-desde-el-celular-para-obtener-una-vacante-en-colegios-662202)
+- **Minedu capacita a 1,736 directores para el inicio de la Matrícula Digital 2026 en Lima**: [Link](https://andina.pe/agencia/noticia-minedu-capacita-a-1736-directores-para-inicio-de-matricula-digital-2026-lima-1059591.aspx)
+- **¿Habrá cobros en las inscripciones escolares 2026? El Ministerio de Educación emite una prohibición drástica**: [Link](https://www.reduno.com.bo/noticias/habra-cobros-en-las-inscripciones-escolares-2026-el-ministerio-de-educacion-emite-una-prohibicion-drastica-2026118114939)
+
+
+### apple iphone 18 pro max (N/A, 19/01/2026 03:40 Lima)
+
+- **Jeff Pu shares expected tech specs for the iPhone Fold**: [Link](https://9to5mac.com/2026/01/15/jeff-pu-shares-expected-tech-specs-for-the-iphone-fold/)
+- **Face ID under the screen and reduced Dynamic Island are Apple’s big bets for the new iPhone 18 Pro**: [Link](https://www.mixvale.com.br/2026/01/15/face-id-under-the-screen-and-reduced-dynamic-island-are-apples-big-bets-for-the-new-iphone-18-pro-en/)
+- **Apple iPhone 18: Display Leak Suggests Dramatic New Look For Some Models**: [Link](https://www.forbes.com/sites/davidphelan/2026/01/18/apple-iphone-18-display-leak-suggests-dramatic-new-look-for-some-models/)
+
+
+### miguel silveira dos santos (N/A, 19/01/2026 03:40 Lima)
+
+- **¡El último refuerzo! Universitario fichó a volante brasileño proveniente de la Liga de Japón**: [Link](https://depor.com/futbol-peruano/descentralizado/universitario-de-deportes-ficho-a-miguel-silveira-volante-brasileno-que-jugo-en-la-liga-de-japon-y-sera-el-ultimo-refuerzo-de-los-cremas-liga-1-2026-noticia/)
+- **Miguel Silveira será el nuevo refuerzo de Universitario**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/miguel-silveira-nuevo-refuerzo-universitario-quien-n452363)
+- **Universitario fichará a 'joya' brasileña que quiso Arsenal y Tottenham: Miguel Silveira será nuevo jugador de la 'U'**: [Link](https://larepublica.pe/futbol-peruano/2026/01/18/universitario-fichara-a-joya-brasilena-que-quiso-arsenal-y-tottenham-miguel-silveira-sera-nuevo-jugador-de-la-u-626526)
+
+
 ### nuggets - hornets (N/A, 18/01/2026 23:55 Lima)
 
 - **Nuggets lose the Hornets, 110-87. They're 29-14 …**: [Link](https://www.hoopshype.com/story/sports/nba/rumors/2026/01/18/nuggets-lose-the-hornets-110-87-theyre-29-14/88249439007/)
@@ -1017,26 +1038,5 @@
 - **GdS: Allegri turns to Leao and Nkunku – why Pulisic will not start against Como**: [Link](https://sempremilan.com/allegri-leao-pulisic-why-pulisic-como)
 - **Serie A official Week 16 line-ups: Como vs. Milan**: [Link](https://football-italia.net/serie-a-official-week-16-line-ups-como-v-milan/)
 - **Fabregas: ‘Allegri is the Number One’ at explaining football to players**: [Link](https://onefootball.com/pt-br/noticias/fabregas-allegri-is-the-number-one-at-explaining-football-to-players-42235328)
-
-
-### racing (N/A, 15/01/2026 15:32 Lima)
-
-- **Cadillac chief fires first shot as iconic rivalry set for F1 first**: [Link](https://racingnews365.com/cadillac-chief-fires-first-shot-as-iconic-rivalry-set-for-f1-first)
-- **Explained: Ford’s racing history and its partnership with Red Bull**: [Link](https://www.redbull.com/al-sq/ford-motorsports-racing-history)
-- **Formula 1 Showdown: GM vs Ford Sparks Rivalry Ahead of 2026**: [Link](https://bvmsports.com/2026/01/15/formula-1-showdown-gm-vs-ford-sparks-rivalry-ahead-of-2026/)
-
-
-### joão cancelo (N/A, 15/01/2026 15:32 Lima)
-
-- **Journalist reveals new Barcelona signing’s love for the club – ‘He is very Culer’**: [Link](https://barcauniversal.com/journalist-reveals-new-barcelona-signings-love-for-the-club-he-is-very-culer/)
-- **João Cancelo and His Multi-Million Euro Journey Through European Football**: [Link](https://www.beinsports.com/en-us/soccer/la-liga/articles/jo-o-cancelo-and-his-multi-million-euro-journey-through-european-football-2026-01-14)
-- **Joao Cancelo: the €145 million defender**: [Link](https://www.mundodeportivo.com/us/en/20260114/738141/joao-cancelo-the-145-million-defender.html)
-
-
-### grizzlies - magic (N/A, 15/01/2026 15:32 Lima)
-
-- **Live Updates: NBA Berlin Game, Grizzlies vs. Magic**: [Link](https://www.nba.com/news/live-updates-nba-berlin-game)
-- **Wagner Brothers Key to Orlando taking down Memphis in Berlin**: [Link](https://www.si.com/nba/magic/onsi/news/wagner-brothers-key-to-orlando-taking-down-memphis-in-berlin-01kf18se6tz2)
-- **DraftKings Pick6 promo code gives new users $50 for NBA in Berlin today**: [Link](https://www.pickswise.com/news/draftkings-pick6-promo-code-gives-new-users-50-for-nba-in-berlin-today/)
 
 
