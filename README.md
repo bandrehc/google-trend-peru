@@ -1,3 +1,38 @@
+### nuggets - hornets (N/A, 18/01/2026 23:55 Lima)
+
+- **Nuggets lose the Hornets, 110-87. They're 29-14 …**: [Link](https://www.hoopshype.com/story/sports/nba/rumors/2026/01/18/nuggets-lose-the-hornets-110-87-theyre-29-14/88249439007/)
+- **theScore Bet bonus code NPNEWS: Bet $10, get $100 in bonus bets for Hornets vs. Nuggets**: [Link](https://www.aol.com/articles/thescore-bet-bonus-code-npnews-210000179.html)
+- **Hornets Buckle Down Defensively In Denver To Secure Winning Road Trip**: [Link](https://www.nba.com/hornets/news/hornets-buckle-down-defensively-in-denver-to-secure-winning-road-trip)
+
+
+### enrique valderrama (N/A, 18/01/2026 23:55 Lima)
+
+- **Enrique Valderrama: Plantearemos cadena perpetua para policías y jueces que se coludan con el crimen**: [Link](https://rpp.pe/politica/elecciones/enrique-valderrama-plantearemos-cadena-perpetua-para-policias-y-jueces-que-se-coludan-con-el-crimen-noticia-1671832)
+- **Enrique Valderrama tendrá una campaña austera: "Algunos tienen plata como cancha, nosotros, militantes y mucha fe"**: [Link](https://willax.pe/politica/elige-bien-2026/enrique-valderrama-campana-austera-plata-como-cancha-willax)
+- **Elecciones 2026: Rechazan tacha contra candidato al Senado del Partido Aprista | últimas | POLITICA**: [Link](https://elcomercio.pe/politica/elecciones-2026-rechazan-tacha-contra-candidato-al-senado-del-partido-aprista-ultimas-noticia/)
+
+
+### raptors - lakers (N/A, 18/01/2026 23:55 Lima)
+
+- **Gameday: Raptors @ Lakers, January 18**: [Link](https://www.raptorsrepublic.com/2026/01/18/gameday-raptors-lakers-january-18/)
+- **NBA Best Bets: Raptors vs. Lakers Prop Bets for Sunday 1/18/26**: [Link](https://dknetwork.draftkings.com/2026/01/18/nba-best-bets-raptors-vs-lakers-prop-bets-for-sunday-1-18-26/)
+- **Are LeBron James, Luka Doncic playing tonight? Latest on Lakers injuries**: [Link](https://sports.yahoo.com/articles/lebron-james-luka-doncic-playing-233509132.html)
+
+
+### delia espinoza (N/A, 18/01/2026 23:55 Lima)
+
+- **JNJ: informe que recomienda la destitución de Delia Espinoza por actos relacionados a la reposición de Patricia Benavides (lea aquí)**: [Link](https://lpderecho.pe/jnj-informe-recomienda-destitucion-delia-espinoza-actos-relacionados-reposicion-patricia-benavides/)
+- **JNJ inicia proceso que podría destituir a Delia Espinoza como fiscal suprema**: [Link](https://caretas.pe/politica/jnj-inicia-proceso-que-podria-destituir-a-delia-espinoza-como-fiscal-suprema/)
+- **Junta Nacional de Justicia programa informe oral de Delia Espinoza**: [Link](https://www.elperuano.pe/noticia/287341-junta-nacional-de-justicia-programa-informe-oral-de-delia-espinoza)
+
+
+### miguel silveira (N/A, 18/01/2026 23:55 Lima)
+
+- **¡El último refuerzo! Universitario fichó a volante brasileño proveniente de la Liga de Japón**: [Link](https://depor.com/futbol-peruano/descentralizado/universitario-de-deportes-ficho-a-miguel-silveira-volante-brasileno-que-jugo-en-la-liga-de-japon-y-sera-el-ultimo-refuerzo-de-los-cremas-liga-1-2026-noticia/)
+- **Miguel Silveira será el nuevo refuerzo de Universitario**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/miguel-silveira-nuevo-refuerzo-universitario-quien-n452363)
+- **Universitario fichará a 'joya' brasileña que quiso Arsenal y Tottenham: Miguel Silveira será nuevo jugador de la 'U'**: [Link](https://larepublica.pe/futbol-peruano/2026/01/18/universitario-fichara-a-joya-brasilena-que-quiso-arsenal-y-tottenham-miguel-silveira-sera-nuevo-jugador-de-la-u-626526)
+
+
 ### lanus vs (N/A, 18/01/2026 21:19 Lima)
 
 - **EN VIVO: Terminó el primer tiempo con un marcador 1-0 a favor de Lanús sobre Sarmiento (LB)**: [Link](https://www.directvsports.com/futbol/en-vivo-termino-el-primer-tiempo-con-un-marcador-1-0-a-favor-de-lanus-sobre-sarmiento-lb-20260115-0008.html)
@@ -1003,40 +1038,5 @@
 - **Live Updates: NBA Berlin Game, Grizzlies vs. Magic**: [Link](https://www.nba.com/news/live-updates-nba-berlin-game)
 - **Wagner Brothers Key to Orlando taking down Memphis in Berlin**: [Link](https://www.si.com/nba/magic/onsi/news/wagner-brothers-key-to-orlando-taking-down-memphis-in-berlin-01kf18se6tz2)
 - **DraftKings Pick6 promo code gives new users $50 for NBA in Berlin today**: [Link](https://www.pickswise.com/news/draftkings-pick6-promo-code-gives-new-users-50-for-nba-in-berlin-today/)
-
-
-### valencia (N/A, 15/01/2026 15:32 Lima)
-
-- **Valencia + Segura se extiende al área metropolitana para reforzar la seguridad ciudadana**: [Link](https://valencianews.es/valencia/valencia-segura-se-extiende-al-area-metropolitana-para-reforzar-la-seguridad-ciudadana/)
-- **Xirivella se une a València en el programa de formación ciudadana ante emergencias**: [Link](https://www.levante-emv.com/horta/2026/01/15/xirivella-une-valencia-programa-formacion-125725072.html)
-- **El plan València + Segura se extiende al área metropolitana con Xirivella como primer municipio adherido**: [Link](https://actualidadvalencia.com/valencia-segura-area-metropolitana-xirivella/)
-
-
-### valencia vs (N/A, 15/01/2026 15:32 Lima)
-
-- **Qué canal pasa Burgos vs Valencia hoy: dónde ver gratis y EN VIVO la Copa del Rey**: [Link](https://www.365scores.com/es/news/burgos-vs-valencia-donde-ver-gratis-copa/)
-- **Apuestas y Pronóstico del Burgos vs Valencia 15/01/26**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/2026/enero/pronostico-burgos-vs-valencia-15-01-26)
-- **La próxima cita del Valencia: cuándo juega los octavos de final de la Copa del Rey**: [Link](https://www.levante-emv.com/valencia-cf/2026/01/14/valencia-cf-octavos-final-copa-del-rey-burgos-dv-125684707.html)
-
-
-### union berlin vs (N/A, 15/01/2026 15:32 Lima)
-
-- **Confirmed Lineups: FC Augsburg vs. Union Berlin**: [Link](https://sports.yahoo.com/articles/confirmed-lineups-fc-augsburg-vs-183300081.html)
-- **FC Augsburg vs Union Berlin Prediction, 1/15/2026 Soccer Pick, Tips and Odds**: [Link](https://www.docsports.com/free-picks/soccer/2026/fc-augsburg-vs-union-berlin-prediction-1-15-2026-soccer-pick-tips-and-odds.html)
-- **Augsburg vs. Union Berlin: Bundesliga betting odds, prediction, pick**: [Link](https://www.usatoday.com/story/sports/soccer/2026/01/15/augsburg-vs-union-berlin-bundesliga-betting-odds-prediction-pick/88189533007/)
-
-
-### union berlin (N/A, 15/01/2026 15:32 Lima)
-
-- **"Donnerstags-Experte" Zieler - Novum für Augsburg und Union**: [Link](https://www.kicker.de/donnerstags-experte-zieler-novum-fuer-augsburg-und-union-1183240/artikel)
-- **Bundesliga LIVE: Infos, News und Liveticker zum 17. Spieltag | Flashscore.de**: [Link](https://www.flashscore.de/news/fu-ball-bundesliga-bundesliga-live-claude-maurice-trifft-aus-dem-nichts-fanproteste-der-fca-fans/QqgAkzbt/)
-- **Gregoritsch stürmt gegen Union Berlin**: [Link](https://www.fcaugsburg.de/article/gregoritsch-stuermt-gegen-union-berlin-22761)
-
-
-### racing de santander - barcelona (N/A, 15/01/2026 15:32 Lima)
-
-- **Racing - Barcelona, en directo: octavos Copa del Rey, hoy en vivo**: [Link](https://as.com/futbol/copa_del_rey/racing-barcelona-en-directo-octavos-copa-del-rey-hoy-en-vivo-f202601-d/)
-- **Canales TV que transmiten partido FC Barcelona - Racing EN VIVO y EN DIRECTO por Copa del Rey 2026 en España, México y EE.UU. | MAG**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/en-que-canal-ver-fc-barcelona-racing-en-vivo-hoy-15-de-enero-por-la-copa-del-rey-2026-en-espana-mexico-y-estados-unidos-nnda-nnrt-noticia/)
-- **Aplausos por lo que dice el entrenador del Racing antes del partido contra el Barça: "Me importa cero lo que piensen"**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20260115/1002601812/aplausos-dice-entrenador-racing-partido-barca-me-importa-cero-piensen.html)
 
 
