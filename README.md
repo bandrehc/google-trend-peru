@@ -1,3 +1,38 @@
+### christian church (N/A, 20/01/2026 03:40 Lima)
+
+- **Kaduna state kidnap: More than 160 churchgoers kidnapped in twin Nigeria attacks, clergy say**: [Link](https://www.bbc.com/news/articles/c4grw9vg7y4o)
+- **Gunmen abduct over 150 worshippers from 3 churches in Nigeria**: [Link](https://abcnews.go.com/International/wireStory/gunmen-abduct-150-worshippers-3-churches-nigeria-129351483)
+- **Gunmen abduct dozens of worshippers from multiple Nigerian churches using sophisticated weapons**: [Link](https://www.foxnews.com/world/gunmen-abduct-dozens-worshippers-multiple-nigerian-churches-using-sophisticated-weapons)
+
+
+### church (N/A, 20/01/2026 03:40 Lima)
+
+- **Activists interrupt Sunday church service, say pastor works for ICE**: [Link](https://www.startribune.com/activists-interrupt-sunday-church-service-say-pastor-works-for-ice/601566591)
+- **Trump officials investigate protesters who interrupted Minnesota church service, targeting ICE official**: [Link](https://www.cnn.com/2026/01/19/us/st-paul-minnesota-church-protest-investigation)
+- **DOJ vows to press charges after activists disrupt church where Minnesota ICE official is a pastor**: [Link](https://apnews.com/article/minnesota-ice-doj-church-protest-st-paul-46dac5c5595ec78e3360ec927eef92d2)
+
+
+### lds church (N/A, 20/01/2026 03:40 Lima)
+
+- **Elder David A. Bednar Dedicates Alabang Philippines Temple**: [Link](https://newsroom.churchofjesuschrist.org/article/elder-david-a-bednar-dedicates-alabang-philippines-temple)
+- **Elder Bednar dedicates Alabang Philippines Temple, invites members to ‘bring the temple into our home’**: [Link](https://www.thechurchnews.com/temples/2026/01/18/alabang-philippines-temple-dedication-manila-elder-david-a-bednar/)
+- **Elder Bednar dedicates Alabang Philippines Temple, invites members to ‘bring the temple into our home’**: [Link](https://www.deseret.com/faith/2026/01/18/church-news-alabang-philippines-temple-dedication-manila-elder-david-a-bednar/)
+
+
+### pistons - celtics (N/A, 20/01/2026 03:40 Lima)
+
+- **Boston Celtics vs Detroit Pistons Jan 19, 2026 Box Scores**: [Link](https://www.nba.com/game/bos-vs-det-0022500017/box-score)
+- **Celtics vs Pistons Picks & Odds Today: Detroit Favored To Take Season Series**: [Link](https://www.oddsshark.com/nba/celtics-pistons-picks-odds-january-19-2026)
+- **Jaylen Brown News: Drops 32 points in defeat**: [Link](https://www.rotowire.com/basketball/headlines/jaylen-brown-news-drops-32-points-in-defeat-514642)
+
+
+### warriors - heat (N/A, 20/01/2026 03:40 Lima)
+
+- **Miami Heat vs Golden State Warriors Jan 19, 2026 Box Scores**: [Link](https://www.nba.com/game/mia-vs-gsw-0022500612/box-score)
+- **Jimmy Butler Undergoing MRI For Right Knee Injury**: [Link](https://www.hoopsrumors.com/2026/01/jimmy-butler-undergoing-mri-for-right-knee-injury.html)
+- **"He was still cracking jokes over there while he was …**: [Link](https://www.hoopshype.com/story/sports/nba/rumors/2026/01/20/he-was-still-cracking-jokes-over-there-while-he-was/88261194007/)
+
+
 ### ben shelton (N/A, 19/01/2026 23:50 Lima)
 
 - **Ben Shelton vs. Ugo Humbert Prediction, Odds and Best Bets (Australian Open 2026, Round of 128, January 20)**: [Link](https://theplayoffs.news/en/ben-shelton-vs-ugo-humbert-prediction-odds-best-bets-australian-open-2026/)
@@ -1001,40 +1036,5 @@ Sin noticias relacionadas disponibles.
 - **Coburn starts: Millwall team news and predicted XI to face Watford**: [Link](https://the72.co.uk/2026/01/16/millwall-team-news-predicted-xi-watford/)
 - **Expert EFL predictions and free football tips from Dan Childs: Hornets can grab another home win**: [Link](https://www.racingpost.com/sport/football-tips/efl/expert-efl-predictions-and-free-football-tips-from-dan-childs-aL09c9p42xeD/)
 - **Back to Championship action for Millwall's Head Coach**: [Link](https://www.millwallfc.co.uk/news/2026/january/16/back-to-championship-action-for-millwall-s-head-coach/)
-
-
-### real madrid - barça (N/A, 16/01/2026 15:27 Lima)
-
-- **Real Madrid - Barcelona en directo | Euroliga hoy en vivo**: [Link](https://www.marca.com/baloncesto/euroliga/real-madrid-barcelona/2026/01/16/02_0203_20260116_6210_6216-directo.html)
-- **Apuestas y Pronóstico del Real Madrid vs Barcelona 16/01/26**: [Link](https://www.oddschecker.com/es/pronosticos/otros-deportes/2026/enero/pronostico-real-madrid-vs-barcelona-16-01-26)
-- **Tavares: “El equipo está bien y vamos a dar el máximo”**: [Link](https://www.realmadrid.com/es-ES/noticias/baloncesto/primer-equipo/actualidad/tavares-declaraciones-15-01-2026)
-
-
-### pisa vs (N/A, 16/01/2026 15:27 Lima)
-
-- **Racing 0-2 Barcelona (15 de Ene., 2026) Resultado Final**: [Link](https://www.espn.com.pe/futbol/partido/_/juegoId/401846959/barcelona-racing-santander)
-- **Sporting vs. Casa Pia (16 de Ene., 2026) Resultados en Vivo**: [Link](https://www.espn.com.pe/futbol/partido/_/juegoId/750405)
-- **Pisa vs. Atalanta (16 de Ene., 2026) Resultados en Vivo**: [Link](https://www.espn.com.pe/futbol/partido/_/juegoId/736991)
-
-
-### liga francesa (N/A, 16/01/2026 15:27 Lima)
-
-- **PSG - Lille, en vivo: Ligue 1 en directo, hoy**: [Link](https://as.com/futbol/internacional/psg-lille-en-vivo-ligue-1-en-directo-hoy-f202601-n/)
-- **Liga de Francia: PSG necesita sumar de a 3 para escalar a la cima**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-de-francia-psg-necesita-sumar-de-a-3-para-escalar-a-la-cima-noticia-1671682)
-- **Pronóstico PSG Lille - Ligue 1 16/01/26**: [Link](https://www.sportytrader.com/es/pronosticos/psg-lille-318667/)
-
-
-### se cayó twitter (N/A, 16/01/2026 15:27 Lima)
-
-- **Se cayó X (antes Twitter) hoy, 16 de enero de 2026: qué pasó y a qué hora regresa la red social**: [Link](https://gestion.pe/mix/respuestas/se-cayo-x-antes-twitter-hoy-16-de-enero-de-2026-que-paso-y-a-que-hora-regresa-la-red-social-nnda-nnni-noticia/)
-- **La red social X sufre su segunda caída global en tres días**: [Link](https://elpais.com/tecnologia/2026-01-16/la-red-social-x-sufre-una-caida-global.html)
-- **La red social X, antes Twitter, sufrió caída global**: [Link](https://rpp.pe/tecnologia/redes-sociales/x-antes-twitter-sufre-caida-global-reportes-a-nivel-mundial-noticia-1671847)
-
-
-### castellón - leganés (N/A, 16/01/2026 15:27 Lima)
-
-- **Apuestas y Pronóstico del Castellón vs Leganés 16/01/26**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/2026/enero/pronostico-castellon-vs-leganes-16-01-26)
-- **Castellón - Leganés, en directo: LaLiga Hypermotion, hoy en vivo**: [Link](https://as.com/futbol/segunda/castellon-leganes-en-directo-laliga-hypermotion-hoy-en-vivo-f202601-d/)
-- **Castellón-Leganés: Duelo entre equipos recuperados**: [Link](https://onefootball.com/es/noticias/castellon-leganes-duelo-entre-equipos-recuperados-42237698)
 
 
