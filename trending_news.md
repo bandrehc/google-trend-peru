@@ -1,3 +1,38 @@
+### ben shelton (N/A, 19/01/2026 23:50 Lima)
+
+- **Ben Shelton vs. Ugo Humbert Prediction, Odds and Best Bets (Australian Open 2026, Round of 128, January 20)**: [Link](https://theplayoffs.news/en/ben-shelton-vs-ugo-humbert-prediction-odds-best-bets-australian-open-2026/)
+- **Australian Open Betting Odds and Match Previews for January 19, 2026, Men's Singles**: [Link](https://sportsbookwire.usatoday.com/story/sports/sports-betting/2026/01/19/australian-open-betting-odds-favorites-match-previews-1-18-2026-mens/88249643007/)
+- **Australian Open Men’s Day 3 Predictions Including Ben Shelton vs Ugo Humbert**: [Link](https://lastwordonsports.com/tennis/2026/01/19/australian-open-mens-day-3-predictions-including-ben-shelton-vs-ugo-humbert/)
+
+
+### lorenzo musetti (N/A, 19/01/2026 23:50 Lima)
+
+- **Australian Open Day 3 order of play: Keys, Osaka and Rybakina take center stage**: [Link](https://www.wtatennis.com/news/4436462/australian-open-day-3-order-of-play-keys-osaka-and-rybakina-take-center-stage)
+- **These are the countries with the most representatives in the individual draws of the 2026 Australian Open**: [Link](https://www.puntodebreak.com/en/2026/01/18/these-are-the-countries-with-the-most-representatives-in-the-individual-draws-of-the-2026-australian)
+- **Defending champions Sinner and Keys on court, Fritz tests knee**: [Link](https://www.reuters.com/sports/tennis/defending-champions-sinner-keys-court-fritz-tests-knee-2026-01-19/)
+
+
+### heat - warriors (N/A, 19/01/2026 23:50 Lima)
+
+- **Buy at Tickets MARCA the best seats to watch Heat vs Warriors live at the Chase Center**: [Link](https://www.marca.com/en/basketball/nba/miami-heat/2026/01/19/696e5c64268e3efc448b45b0.html)
+- **Steve Kerr said he expects Draymond Green to return …**: [Link](https://www.hoopshype.com/story/sports/nba/rumors/2026/01/19/steve-kerr-said-he-expects-draymond-green-to-return/88258639007/)
+- **De’Anthony Melton is out for the Warriors tomorrow …**: [Link](https://sports.yahoo.com/articles/anthony-melton-warriors-tomorrow-031854765.html)
+
+
+### peñarol vs (N/A, 19/01/2026 23:50 Lima)
+
+- **Cuándo juegan Peñarol vs Colo Colo por la Serie Río de la Plata: equipo, fecha, hora y TV en vivo**: [Link](https://www.espn.com.ar/futbol/nota/_/id/16201629/penarol-vs-colo-colo-serie-rio-de-la-plata-equipo-fecha-hora-tv-en-vivo)
+- **Tras derrota ante Alianza: ¿Cuándo y contra quién es el próximo partido de Colo Colo?**: [Link](https://bolavip.com/cl/colocolo/tras-derrota-ante-alianza-cuando-y-contra-quien-es-el-proximo-partido-de-colo-colo)
+- **Colo Colo vs. Peñarol: Cuándo juegan, a qué hora y dónde ver EN VIVO la Serie Río de La Plata**: [Link](https://redgol.cl/colocolo/colo-colo-vs-penarol-cuando-juegan-a-que-hora-y-donde-ver-en-vivo-la-serie-rio-de-la-plata)
+
+
+### fifa series 2026 (N/A, 19/01/2026 23:50 Lima)
+
+- **Chile disputará la FIFA Series 2026: ¿cuándo y contra quién jugará?**: [Link](https://www.espn.com.pe/futbol/mundial/nota/_/id/16201816/chile-grupo-rivales-fixture-en-la-fifa-series-2026)
+- **Oficial: Venezuela y Chile jugarán torneo FIFA en 2026 a pesar de quedar eliminados del Mundial**: [Link](https://libero.pe/futbol-internacional/2026/01/19/oficial-venezuela-chile-jugaran-torneo-fifa-en-2026-pesar-de-quedar-eliminados-del-mundial-448837)
+- **La FIFA ha anunciado el rival de la selección de Indonesia: Persib trae al ex PSG**: [Link](https://www.ucvradio.pe/mas-actualidad/la-fifa-ha-anunciado-el-rival-de-la-seleccion-de-indonesia-persib-trae-al-ex-psg/107430/)
+
+
 ### noche crema (N/A, 19/01/2026 21:08 Lima)
 
 - **Canal exclusivo para ver Universitario vs Melgar: partido amistoso de pretemporada en el Monumental 2026**: [Link](https://www.infobae.com/peru/deportes/2026/01/19/canal-exclusivo-para-ver-universitario-vs-melgar-partido-amistoso-de-pretemporada-en-el-monumental-2026/)
@@ -1001,40 +1036,5 @@ Sin noticias relacionadas disponibles.
 - **Apuestas y Pronóstico del Castellón vs Leganés 16/01/26**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/2026/enero/pronostico-castellon-vs-leganes-16-01-26)
 - **Castellón - Leganés, en directo: LaLiga Hypermotion, hoy en vivo**: [Link](https://as.com/futbol/segunda/castellon-leganes-en-directo-laliga-hypermotion-hoy-en-vivo-f202601-d/)
 - **Castellón-Leganés: Duelo entre equipos recuperados**: [Link](https://onefootball.com/es/noticias/castellon-leganes-duelo-entre-equipos-recuperados-42237698)
-
-
-### psg vs lille (N/A, 16/01/2026 15:27 Lima)
-
-- **PSG Seek Redemption After Cup Shock as Arch-Rivals Lille Come Calling**: [Link](https://www.dawan.africa/news/psg-seek-redemption-after-cup-shock-as-arch-rivals-lille-come-calling)
-- **PSG vs Lille LIVE: Preview, Lineups and Ligue 1 Matchday 18**: [Link](https://www.beinsports.com/en-us/soccer/ligue-1/articles/live-psg-vs-lille-in-ligue-1-on-bein-sports-2026-01-16)
-- **Luis Enrique urges PSG to use shock Coupe de France exit as motivation**: [Link](https://www.fotmob.com/da/news/2noyil2dhhid18awlvahhyad6-luis-enrique-urges-psg-use-shock-coupe-de-france-exit-motivation)
-
-
-### frankfurt fc (N/A, 16/01/2026 15:27 Lima)
-
-- **BL: Stuttgart snatches victory against Frankfurt and climbs to 3rd place**: [Link](https://frenchfootballweekly.com/2026/01/15/bl-stuttgart-snatches-victory-against-frankfurt-and-climbs-to-3rd-place/)
-- **Dortmund outclass Bremen to tighten grip on second spot**: [Link](https://www.rfi.fr/en/sports/20260113-undav-scores-again-as-stuttgart-sink-frankfurt-to-go-third)
-- **Mönchengladbach vs. VfB Stuttgart - Boxscore - Live Score - January 25, 2026**: [Link](https://www.foxsports.com/soccer/bundesliga-b-mgladbach-vs-vfb-stuttgart-jan-25-2026-game-boxscore-631758?tab=boxscore)
-
-
-### juan pablo varillas (N/A, 16/01/2026 11:36 Lima)
-
-- **Andrea Collarini es el único semifinalista argentino en el AAT Challenger y tres tenistas nacionales avanzaron a cuartos del W50**: [Link](https://www.infobae.com/deportes/2026/01/16/andrea-collarini-es-el-unico-semifinalista-argentino-en-el-aat-challenger-y-tres-tenistas-nacionales-avanzaron-a-cuartos-del-w50/)
-- **¡Varillas a semifinales del Challenger de Buenos Aires! Gran triunfo sobre el local Lautaro Midon**: [Link](https://depor.com/full-deportes/juan-pablo-varillas-avanzo-semifinales-el-peruano-vencio-a-lautaro-midon-en-challenger-de-buenos-aires-noticia/)
-- **Juan Pablo Varillas venció a Pedro Sakamoto por octavos de final del Challenger de Buenos Aires**: [Link](https://elcomercio.pe/deporte-total/tenis/juan-pablo-varillas-vencio-a-pedro-sakamoto-por-octavos-de-final-del-challenger-de-buenos-aires-noticia/)
-
-
-### ds 003 mtc (N/A, 16/01/2026 11:36 Lima)
-
-- **Gobierno crea régimen que promueve profesionalización de choferes de transporte público**: [Link](https://andina.pe/agencia/noticia-gobierno-crea-regimen-promueve-profesionalizacion-choferes-transporte-publico-1059490.aspx)
-- **¿Empresa de transporte? Nuevo régimen permite formar conductores sin costo**: [Link](https://www.elperuano.pe/noticia/287269-empresa-de-transporte-nuevo-regimen-permite-formar-conductores-sin-costo)
-- **MTC cambia el sistema de puntajes: conductores con más de 100 puntos podrían ya no perder su licencia a partir de esta semana**: [Link](https://www.infobae.com/peru/2026/01/13/mtc-cambia-el-sistema-de-puntajes-y-conductores-con-mas-de-100-puntos-podrian-ya-no-perder-su-licencia-a-partir-de-esta-semana/)
-
-
-### werder bremen (N/A, 16/01/2026 11:36 Lima)
-
-- **Vor dem Rückrunden-Auftakt: Wie die Eintracht den Blinker in Bremen setzte**: [Link](https://www.sportschau.de/fussball/bundesliga/wie-die-eintracht-blinker-in-bremen-setzte,frankfurt-hat-bremen-ueberholt-100.html)
-- **Die Sport-Höhepunkte am Freitag, 16. Januar 2026**: [Link](https://www.ligaportal.at/international/ligen-mix/87256-die-sport-hoehepunkte-am-freitag-16-januar-2026)
-- **Werder Bremen: So könnte die Aufstellung gegen Frankfurt aussehen**: [Link](https://www.weser-kurier.de/werder/profis/werder-bremen-so-koennte-die-aufstellung-gegen-frankfurt-aussehen-doc8457j7clnp579y2tjmb)
 
 
