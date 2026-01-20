@@ -1,3 +1,73 @@
+### noche crema (N/A, 19/01/2026 21:08 Lima)
+
+- **Canal exclusivo para ver Universitario vs Melgar: partido amistoso de pretemporada en el Monumental 2026**: [Link](https://www.infobae.com/peru/deportes/2026/01/19/canal-exclusivo-para-ver-universitario-vs-melgar-partido-amistoso-de-pretemporada-en-el-monumental-2026/)
+- **Universitario vs Melgar: cuándo jugarán, horarios y canales que TV para ver partido amistoso**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/universitario-vs-melgar-en-vivo-gratis-hoy-via-youtube-horarios-canales-tv-y-donde-ver-partido-amistoso-video-noticia/)
+- **FBC Melgar llegó a Lima para amistoso ante Universitario**: [Link](https://ovacion.pe/noticias/fbc-melgar/fbc-melgar-llego-lima-amistoso-ante-universitario)
+
+
+### estudiantes - ituzaingó (N/A, 19/01/2026 21:08 Lima)
+
+- **Qué canal pasa Estudiantes vs Ituzaingó hoy: dónde ver GRATIS y EN VIVO por la Copa Argentina 2026**: [Link](https://www.365scores.com/es/news/que-canal-pasa-estudiantes-vs-ituzaingo/)
+- **Debut en la Copa Argentina**: [Link](https://www.vavel.com/ar/futbol-argentino/2026/01/19/estudiantes/1247783-debut-en-la-copa-argentina.html)
+- **El bicampeón arranca el año con una llamativa formación**: [Link](https://www.laplata1.com/2026-01-19/el-bicampeon-arranca-el-ano-con-una-llamativa-formacion-121866/)
+
+
+### guillermo salatino periodista deportivo (N/A, 19/01/2026 21:08 Lima)
+
+- **Murió Guillermo Salatino, el periodista que en medio siglo cubrió casi todos los Grand Slam y se convirtió en una voz emblemática del tenis**: [Link](https://www.clarin.com/deportes/murio-guillermo-salatino-periodista-medio-siglo-cubrio-grand-slam-convirtio-voz-emblematica-tenis_0_xJOlajJlOH.html)
+- **La emotiva dedicatoria de Francisco Cerúndolo en el Australian Open por la muerte de Guillermo Salatino**: [Link](https://www.espn.com.ar/tenis/nota/_/id/16196744/la-emotiva-dedicatoria-de-francisco-cerundolo-en-el-australian-open-2026-por-la-muerte-de-guillermo-salatino-zhang)
+- **Hasta Siempre Salata!**: [Link](https://marianorinaldi.com/2026/01/19/hasta-siempre-salata/)
+
+
+### noche blanquiazul (N/A, 19/01/2026 21:08 Lima)
+
+- **¡Atención, blanquiazul! Productora de Alianza Lima vs. Inter Miami anunció cambió de precio de entradas**: [Link](https://depor.com/futbol-peruano/descentralizado/entradas-de-alianza-lima-vs-inter-miami-sound-music-entertainment-anuncio-40-de-descuento-noche-blanquiazul-noticia/)
+- **Alianza Lima e Inter Miami se miden en la Noche Blanquiazul**: [Link](https://www.espn.com.ar/futbol/nota/_/id/16202378/alianza-lima-vs-inter-miami-amistoso-noche-blanquiazul)
+- **Alianza Lima: empresa que traerá al Inter Miami de Messi anuncia 40% de descuento en venta de entradas**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/alianza-lima-empresa-que-traera-inter-miami-de-lionel-messi-anuncia-40-descuento-venta-de-entradas-para-noche-blanquiazul-noticia/)
+
+
+### brooklyn beckham (N/A, 19/01/2026 21:08 Lima)
+
+- **Brooklyn Peltz Beckham: 'I do not want to reconcile with my family'**: [Link](https://www.bbc.com/news/articles/ce3ekq4z5dyo)
+- **Why Brooklyn Beckham finally lost it: The ‘breaking point’ in his explosive feud with Victoria and David revealed**: [Link](https://pagesix.com/2026/01/19/celebrity-news/why-brooklyn-beckham-finally-lost-it-the-breaking-point-in-his-explosive-feud-with-victoria-and-david-revealed/)
+- **Brooklyn Beckham accuses mum Victoria of 'hijacking' his first dance with wife Nicola Peltz and 'humiliating' him at his own wedding by behaving inappropriately**: [Link](https://www.dailymail.co.uk/tvshowbiz/article-15478321/Brooklyn-Beckham-mum-Victoria-hijacked-wife-Nicola-Peltzs-dance-inappropriate.html)
+
+
+### estrela amadora - estoril (N/A, 19/01/2026 21:08 Lima)
+
+- **Estrela Amadora x Estoril – Palpite, Onde Assistir, Hora e Escalações 19-01**: [Link](https://onefootball.com/pt-br/apostas/palpites/futebol/estrela-amadora-x-estoril-19-01-2026)
+- **João Carvalho tira coelho da cartola e marca golaço (vídeo)**: [Link](https://www.abola.pt/noticias/joao-carvalho-tira-coelho-da-cartola-e-marca-golaco-video-2026011921202109807)
+- **Ian Cathro: "Temos de dar muito mérito aos jogadores na capacidade de gerir o jogo"**: [Link](https://www.ojogo.pt/futebol/artigo/ian-cathro-temos-de-dar-muito-merito-aos-jogadores-na-capacidade-de-gerir-o-jogo/18042346)
+
+
+### cúcuta - once caldas (N/A, 19/01/2026 21:08 Lima)
+
+- **Con doblete de Dayro Moreno, Once Caldas le amargó al Cúcuta su regreso a Primera**: [Link](https://www.espn.com.ar/futbol/colombia/nota/_/id/16198669/con-doblete-de-dayro-moreno-once-caldas-le-amargo-al-cucuta-su-regreso-a-primera)
+- **Qué canal pasa Cúcuta vs Once Caldas hoy: dónde ver el partido gratis y en vivo de la Liga BetPlay**: [Link](https://www.365scores.com/es/news/canal-tv-cucuta-vs-once-caldas-gratis/)
+- **¡Cúcuta Deportivo vuelve a la A! Así fue su odisea para regresar a la Liga BetPlay**: [Link](https://www.elespectador.com/deportes/futbol-colombiano/otros-equipos/cucuta-deporto-debuta-en-la-a-asi-fue-su-odisea-para-regresar-a-la-liga-betplay/)
+
+
+### ter stegen (N/A, 19/01/2026 21:08 Lima)
+
+- **West Ham Hold Talks to Sign £350,000-a-Week Champions League Star**: [Link](https://www.givemesport.com/west-ham-make-contact-marc-andre-ter-stegen-barcelona/)
+- **Lamine Yamal to say goodbye to key teammate: Marc-Andre ter Stegen close to leaving Barcelona on loan to sa...**: [Link](https://worldsoccertalk.com/news/lamine-yamal-to-say-goodbye-to-key-teammate-marc-andre-ter-stegen-close-to-leaving-barcelona-on-loan-to-save-2026-fifa-world-cup-hopes/)
+- **'Stubborn' Marc-Andre ter Stegen rejects Premier League transfer as major World Cup warning issued**: [Link](https://talksport.com/football/3911913/marc-andre-ter-stegen-transfer-west-ham-barcelona/)
+
+
+### patricia chirinos (N/A, 19/01/2026 21:08 Lima)
+
+- **JEE declara improcedente candidaturas al Senado de Patricia Chirinos y Enrique Morales**: [Link](https://lpderecho.pe/jee-declara-improcedente-candidaturas-senado-patricia-chirinos-enrique-morales/)
+- **Renovación Popular: JEE del Callao excluye a Patricia Chirinos y Félix Morales tras improcedencia de lista**: [Link](https://canaln.pe/actualidad/jee-callao-declara-improcedente-lista-renovacion-popular-n489705)
+- **Jurado Electoral Especial deja fuera de carrera a Patricia Chirinos**: [Link](https://peru21.pe/politica/jurado-electoral-especial-deja-fuera-de-carrera-patricia-chirinos/)
+
+
+### elche vs sevilla (N/A, 19/01/2026 21:08 Lima)
+
+- **Elche vs Sevilla - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/sevilla/news/elche-vs-sevilla-prediction-team-news-lineups_590095.html)
+- **Elche vs Sevilla Prediction, 1/19/2026 Soccer Pick, Tips and Odds**: [Link](https://www.docsports.com/free-picks/soccer/2026/elche-vs-sevilla-prediction-1-19-2026-soccer-pick-tips-and-odds.html)
+- **Matías Almeyda takes a risk against Elche!**: [Link](https://www.fichajes.net/en/news/matias-almeyda-takes-risk-against-elche-20260119.html)
+
+
 ### thunder - cavaliers (N/A, 19/01/2026 15:30 Lima)
 
 - **Underdog Promo Code GOALBONUS: Get $75 in Fantasy Bonus Entries for Thunder vs Cavs, EPL & NHL**: [Link](https://www.goal.com/en-us/betting/underdog-promo-code-goalbonus-get-75-fantasy-bonus-entries-thunder-vs-cavs-epl-nhl-1-19/blt6659dc5477d0a0b8)
@@ -966,75 +1036,5 @@ Sin noticias relacionadas disponibles.
 - **Vor dem Rückrunden-Auftakt: Wie die Eintracht den Blinker in Bremen setzte**: [Link](https://www.sportschau.de/fussball/bundesliga/wie-die-eintracht-blinker-in-bremen-setzte,frankfurt-hat-bremen-ueberholt-100.html)
 - **Die Sport-Höhepunkte am Freitag, 16. Januar 2026**: [Link](https://www.ligaportal.at/international/ligen-mix/87256-die-sport-hoehepunkte-am-freitag-16-januar-2026)
 - **Werder Bremen: So könnte die Aufstellung gegen Frankfurt aussehen**: [Link](https://www.weser-kurier.de/werder/profis/werder-bremen-so-koennte-die-aufstellung-gegen-frankfurt-aussehen-doc8457j7clnp579y2tjmb)
-
-
-### clima arequipa (N/A, 16/01/2026 11:36 Lima)
-
-- **Clima en Arequipa: el estado del tiempo para este 16 de enero**: [Link](https://www.infobae.com/peru/2026/01/16/clima-en-arequipa-el-estado-del-tiempo-para-este-16-de-enero/)
-- **Prepárase antes de salir: Este es el pronóstico del clima en Arequipa este jueves**: [Link](https://www.infobae.com/peru/2026/01/15/preparase-antes-de-salir-este-es-el-pronostico-del-clima-en-arequipa-este-jueves/)
-- **Arequipa: el estado del tiempo para este 14 de enero**: [Link](https://www.infobae.com/peru/2026/01/14/arequipa-el-estado-del-tiempo-para-este-14-de-enero/)
-
-
-### decreto motos (N/A, 16/01/2026 07:56 Lima)
-
-- **José Jerí anunció que en las próximas horas se publicará el decreto que prohíbe la circulación de motos con dos ocupantes**: [Link](https://rpp.pe/politica/gobierno/jose-jeri-anuncio-que-en-las-proximas-horas-se-publicara-el-decreto-que-prohibe-la-circulacion-de-motos-con-dos-ocupantes-noticia-1671642)
-- **Estas son las drásticas multas para motociclistas que entrarán en vigor este lunes en Perú**: [Link](https://www.infobae.com/peru/2026/01/15/estas-son-las-drasticas-multas-para-motociclistas-que-entraran-en-vigor-este-lunes-en-peru/)
-- **Eduardo Pérez Rocha: Ley que prohíbe dos en moto no reducirá el crimen y el estado de emergencia es un fracaso**: [Link](https://canaln.pe/actualidad/eduardo-perez-rocha-ley-que-prohibe-dos-moto-no-reducira-crimen-n489615)
-
-
-### mtc (N/A, 16/01/2026 07:56 Lima)
-
-- **AAP responsabiliza al MTC por desabastecimiento de placas para motos y mototaxis**: [Link](https://gestion.pe/peru/desabastecimiento-de-placas-aap-responsabiliza-al-mtc-noticia/)
-- **Asociación Automotriz del Perú responsabiliza al MTC por desabastecimiento de placas para motos**: [Link](https://peru21.pe/peru/asociacion-automotriz-del-peru-responsabiliza-al-mtc-por-desabastecimiento-de-placas-para-motos/)
-- **Lima se está quedando sin placas para motos y mototaxis pese a que ventas llegan a 1.500 por día: ¿Qué está haciendo el MTC?**: [Link](https://www.infobae.com/peru/2026/01/13/lima-se-esta-quedando-sin-placas-para-motos-y-mototaxis-ventas-llegan-a-1500-unidades-por-dia-que-esta-previendo-el-mtc/)
-
-
-### lakers - hornets (N/A, 16/01/2026 07:56 Lima)
-
-- **Lakers And Hornets Clash In High-Stakes NBA Showdown**: [Link](https://evrimagaci.org/gpt/lakers-and-hornets-clash-in-highstakes-nba-showdown-524095)
-- **LaMelo Ball's promise should put fear into contenders' heart**: [Link](https://swarmandsting.com/lamelo-ball-promise-put-fear-contenders-heart)
-- **Luka Doncic Credits Hornets, Discusses What Went Wrong For Lakers**: [Link](https://bvmsports.com/2026/01/16/luka-doncic-credits-hornets-discusses-what-went-wrong-for-lakers/)
-
-
-### igp (N/A, 16/01/2026 03:37 Lima)
-
-- **Temblor hoy en Perú, jueves 15 de enero: sismo de magnitud 4.3 se registra en Arequipa**: [Link](https://andina.pe/agencia/noticia-temblor-hoy-peru-jueves-15-enero-sismo-magnitud-43-se-registra-arequipa-1059446.aspx)
-- **Sismo de magnitud 4.0 se registró frente a Chimbote, informó el IGP**: [Link](https://diariocorreo.pe/edicion/chimbote/sismo-de-magnitud-40-se-registro-frente-a-chimbote-informo-el-igp-noticia/)
-- **Temblor en Piura: sismo de magnitud 4,2 remeció Sullana, según IGP**: [Link](https://larepublica.pe/sociedad/2026/01/12/temblor-en-piura-sismo-de-magnitud-42-remecio-sullana-segun-igp-mdga-261216)
-
-
-### temblor tacna (N/A, 16/01/2026 03:37 Lima)
-
-- **Sismo de magnitud 4.5 sacude a la Alianza, Tacna**: [Link](https://www.infobae.com/peru/2026/01/16/sismo-de-magnitud-45-sacude-a-la-alianza-tacna/)
-- **Terremoto moderado mag. 4.6 - Departamento de Tacna, Perú, viernes 16 ene 2026 a las 07:34 (Tiempo Universal)**: [Link](https://www.volcanodiscovery.com/es/sismos/informe-sismo/22620647/quake-felt-Jan-16-2026-Near-Arica-Arica-y-Parinacota-Region-Chile.html)
-- **Temblor remece a la zona norte del país: Revisa su epicentro y magnitud**: [Link](https://www.meganoticias.cl/nacional/512314-temblor-hoy-zona-norte-region-arica-parinacota-chile-sismologia-nacional-dcv-16-1-2026.html)
-
-
-### clima trujillo (N/A, 16/01/2026 03:37 Lima)
-
-- **El pronóstico del clima para mañana en Trujillo**: [Link](https://www.infobae.com/peru/2026/01/15/el-pronostico-del-clima-para-manana-en-trujillo/)
-- **Predicción del estado del tiempo en Trujillo para mañana**: [Link](https://www.infobae.com/peru/2026/01/13/prediccion-del-estado-del-tiempo-en-trujillo-para-manana/)
-- **El estado del tiempo en Trujillo para mañana**: [Link](https://www.infobae.com/peru/2026/01/07/el-estado-del-tiempo-en-trujillo-para-manana/)
-
-
-### aniversario de lima (N/A, 16/01/2026 03:37 Lima)
-
-- **Aniversario de Lima 2026: invitan a recorrer el Centro Histórico y disfrutar de sus atractivos**: [Link](https://elperuano.pe/noticia/287176-aniversario-de-lima-2026-invitan-a-recorrer-el-centro-historico-y-disfrutar-de-sus-atractivos)
-- **Aniversario de Lima 2026: cronograma de actividades y conciertos gratuitos por los 491 años de la ciudad**: [Link](https://rpp.pe/cultura/mas-cultura/aniversario-de-lima-2026-el-cronograma-de-actividades-y-conciertos-gratuitos-por-los-491-anos-de-la-ciudad-noticia-1671684)
-- **¿Qué hacer en Perú por el aniversario de Lima? Estos son los sitios turísticos para disfrutar de un espectáculo único de luces, agua y música**: [Link](https://larepublica.pe/turismo/2026/01/14/estos-son-los-sitios-turisticos-que-puedes-visitar-en-peru-por-el-aniversario-de-lima-uno-de-ellos-ofrece-un-espectaculo-unico-de-luces-agua-y-musica-atmp-299124)
-
-
-### alfonso barco (N/A, 16/01/2026 03:37 Lima)
-
-- **Destino Europa: Alfonso Barco cerca de fichar por campeón y jugará Conference League**: [Link](https://depor.com/futbol-peruano/peruanos-en-el-mundo/alfonso-barco-seria-nuevo-jugador-del-nhk-rijeka-de-croacia-tras-dejar-emelec-jugara-la-uefa-conference-league-y-la-liga-croata-peruanos-en-el-exterior-noticia/)
-- **¡Bombazo! Alfonso Barco, ex Universitario, será flamante refuerzo de destacado club europeo**: [Link](https://libero.pe/futbol-internacional/2026/01/15/bombazo-alfonso-barco-ex-universitario-sera-flamante-refuerzo-de-destacado-club-europeo-978030)
-- **Alfonso Barco tendría todo listo para firmar por HNK Rijeka de Croacia**: [Link](https://ovacion.pe/noticias/peruanos-mundo/alfonso-barco-tendria-todo-listo-firmar-hnk-rijeka-croacia)
-
-
-### temblor ica (N/A, 16/01/2026 03:37 Lima)
-
-- **Ica: se registró sismo de magnitud 4.3 en Pisco**: [Link](https://www.infobae.com/peru/2026/01/16/ica-se-registro-sismo-de-magnitud-43-en-pisco/)
-- **Temblor en Ica: sismo de magnitud 4,3 remeció Pisco, según IGP**: [Link](https://larepublica.pe/sociedad/2026/01/15/temblor-en-ica-sismo-de-magnitud-43-remecio-pisco-segun-igp-1303440)
-- **Temblor hoy en Perú, jueves 15 de enero: sismo de magnitud 4.3 se registra en Arequipa**: [Link](https://andina.pe/agencia/noticia-temblor-hoy-peru-jueves-15-enero-sismo-magnitud-43-se-registra-arequipa-1059446.aspx)
 
 
