@@ -1,3 +1,59 @@
+### josé jerí (N/A, 20/01/2026 11:41 Lima)
+
+- **Investigan a presidente de Perú por tráfico de influencias**: [Link](https://www.dw.com/es/investigan-a-presidente-de-per%C3%BA-por-tr%C3%A1fico-de-influencias/a-75572656)
+- **“No podemos permitir que el cargo y la investidura presidencial sigan siendo pisoteados”: Edward Málaga pide la censura de José Jerí**: [Link](https://rpp.pe/politica/congreso/no-podemos-permitir-que-el-cargo-y-la-investidura-presidencial-sigan-siendo-pisoteados-edward-malaga-pide-la-censura-de-jose-jeri-noticia-1672255)
+- **Caramelos chinos | editorial Perú21**: [Link](https://peru21.pe/opinion/caramelos-chinos-editorial-peru21/)
+
+
+### al shabab (N/A, 20/01/2026 11:41 Lima)
+
+- **El polémico gesto de Cristiano Ronaldo que se burla de sus rivales tras la victoria del Al Nassr**: [Link](https://bolavip.com/pe/futbol-internacional/el-polemico-gesto-de-cristiano-ronaldo-que-se-burla-de-sus-rivales-tras-la-victoria-del-al-nassr)
+- **Al Nassr vs. Al Shabab (3-2): video, resumen y goles con Cristiano Ronaldo en la Liga de Arabia**: [Link](https://depor.com/futbol-internacional/resto-del-mundo/al-nassr-vs-al-shabab-en-vivo-hoy-cristiano-ronaldo-via-futbol-libre-tv-en-directo-fox-deportes-fox-sports-movistar-plus-online-ver-partido-gratis-por-internet-liga-pro-saudi-video-noticia/)
+- **Al Nassr volvió al triunfo en Arabia Saudita**: [Link](https://ovacion.pe/noticias/futbol-internacional/al-nassr-volvio-al-triunfo-arabia-saudita)
+
+
+### ucl (N/A, 20/01/2026 11:41 Lima)
+
+- **Preview: Real Madrid vs Monaco - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/real-madrid/champions-league/preview/real-madrid-vs-monaco-prediction-team-news-lineups_590119.html)
+- **Vinicius enjoys fresh trust and key role under Arbeloa - reports**: [Link](https://tribuna.com/en/news/2026-01-20-vinicius-enjoys-fresh-trust-and-key-role-under-arbeloa-reports/)
+- **Monaco’s Sébastien Pocognoli says he ‘accepts the pressure’ ahead of Real Madrid tie**: [Link](https://www.getfootballnewsfrance.com/2026/monacos-sebastien-pocognoli-says-he-accepts-the-pressure-ahead-of-real-madrid-tie/)
+
+
+### matrícula digital lima metropolitana (N/A, 20/01/2026 11:41 Lima)
+
+- **Colapsa página de Matrícula Digital 2026: padres no pueden registrar a sus hijos en el primer día de inscripciones**: [Link](https://www.infobae.com/peru/2026/01/19/colapsa-pagina-de-matricula-digital-2026-padres-no-pueden-registrar-a-sus-hijos-en-el-primer-dia-de-inscripciones/)
+- **Matrícula digital 2026 arranca en Lima Metropolitana y en colegios focalizados del país**: [Link](https://www.tvperu.gob.pe/noticias/nacionales/matricula-digital-2026-arranca-en-lima-metropolitana-y-en-colegios-focalizados-del-pais)
+- **Hoy lunes 19 inicia la matrícula digital: conoce cómo hacer el trámite rápido y sencillo [video]**: [Link](https://elperuano.pe/noticia/287456-hoy-lunes-19-inicia-la-matricula-digital-conoce-como-hacer-el-tramite-rapido-y-sencillo-video)
+
+
+### kairat (N/A, 20/01/2026 11:41 Lima)
+
+- **Kairat Almaty keert terug van winterstop met nieuwe opstelling tegen Olympiakos**: [Link](https://news.ssbcrack.com/kairat-almaty-keert-terug-van-winterstop-met-nieuwe-opstelling-tegen-olympiakos/)
+- **FC Kairat's forward Satpaev to miss Champions League match against Club Brugge**: [Link](https://qazinform.com/news/fc-kairats-forward-satpaev-to-miss-champions-league-match-against-club-brugge-168493)
+- **Kairat Almaty Misses 17-Year-Old Prodigy Against Belgian Red Devils**: [Link](https://www.filmogaz.com/108227)
+
+
+### kairat - club brujas (N/A, 20/01/2026 11:41 Lima)
+
+- **Kairat Almaty - Brujas, en directo: Champions League, hoy en vivo**: [Link](https://as.com/futbol/champions/kairat-almaty-brujas-en-directo-champions-league-hoy-en-vivo-f202601-d/)
+- **En directo online: Kairat Almaty-Brujas - ¿Dónde y cuándo ver el partido? - Resultado en vivo Champions League 2025/2026 – Fase Liga – Jornada 7 - Hoy**: [Link](https://espanol.eurosport.com/futbol/champions-league/2025-2026/live-fc-kairat-club-brujas_mtc1601127/live-commentary.shtml)
+- **Cuándo juegan Kairat Almaty vs. Brujas por la UEFA Champions League: equipo, fecha, hora y TV en vivo**: [Link](https://espndeportes.espn.com/futbol/champions-league/nota/_/id/16201974/kairat-almaty-vs-brujas-fase-liga-fecha-7-champions-league-equipo-fecha-hora-tv-en-vivo)
+
+
+### universitario vs melgar (N/A, 20/01/2026 11:41 Lima)
+
+- **¡No lo dejen patear! Golazo de Jairo Concha para el 2-0 de Universitario vs. Melgar**: [Link](https://depor.com/futbol-peruano/descentralizado/gol-jairo-concha-universitario-vs-melgar-hoy-golazo-y-2-0-amistoso-video-noticia/)
+- **Transmisión Universitario vs Melgar EN VIVO HOY: ¿dónde ver el partido de la 'U' de pretemporada?**: [Link](https://larepublica.pe/futbol-peruano/2026/01/19/universitario-vs-melgar-en-vivo-partido-de-la-u-hoy-via-youtube-1808667)
+- **El primero del año: Matías Di Benedetto anotó el 1-0 de la 'U' en el amistoso ante Melgar (VIDEO)**: [Link](https://rpp.pe/futbol/descentralizado/ver-gol-universitario-vs-melgar-di-benedetto-anoto-el-1-0-de-la-u-en-amistoso-de-pretemporada-2026-video-noticia-1672310)
+
+
+### sedapal corte de agua (N/A, 20/01/2026 11:41 Lima)
+
+- **Estos distritos de Lima tendrán corte de agua el 20 y 21 de enero: zonas y horarios, según Sedapal**: [Link](https://www.infobae.com/peru/2026/01/19/cuatro-distritos-de-lima-tendran-corte-de-agua-este-20-y-21-de-enero-zonas-y-horarios-segun-sedapal/)
+- **Corte de agua hoy, 20 de enero: horarios y distritos afectados por Sedapal**: [Link](https://latinanoticias.pe/te-ayudo/corte-de-agua-hoy-20-de-enero-horarios-y-distritos-afectados-por-sedapal_20260120/)
+- **Corte de agua en Lima hoy 20 de enero: Distritos y horarios afectados**: [Link](https://rpp.pe/lima/obras/corte-de-agua-en-lima-hoy-20-de-enero-distritos-y-horarios-afectados-noticia-1672293)
+
+
 ### cronograma de pagos (N/A, 20/01/2026 08:02 Lima)
 
 - **Aumento confirmado para jubilados en febrero: los nuevos haberes tras la inflación de diciembre**: [Link](https://elnacionaldematanza.com.ar/2026/01/14/aumento-confirmado-para-jubilados-en-febrero-los-nuevos-haberes-tras-la-inflacion-de-diciembre/)
@@ -978,61 +1034,5 @@ Sin noticias relacionadas disponibles.
 - **Liga MX: Se disputan Mazatlán y CF Monterrey en el primer duelo por la Fecha 3**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-se-disputan-mazatlan-y-cf-monterrey-en-el-primer-duelo-por-la-fecha-3-noticia-1671752)
 - **¡RAYADOS, POR UN TRIUNFO MÁS EN EL CLAUSURA 2026!**: [Link](https://onefootball.com/es/noticias/rayados-por-un-triunfo-mas-en-el-clausura-2026-42241583)
 - **¡Se quitó la mufa! Anthony Martial anota su primer gol con Rayados: así fue el 3-0 ante Mazatlán**: [Link](https://bolavip.com/mx/rayados-monterrey/se-quito-la-mufa-anthony-martial-anota-su-primer-gol-con-rayados-asi-fue-el-1-0-ante-mazatlan)
-
-
-### mario vizcarra (N/A, 16/01/2026 21:02 Lima)
-
-- **Elecciones 2026: Mario Vizcarra seguirá en carrera presidencial tras resolución del JNE**: [Link](https://rpp.pe/politica/elecciones/elecciones-2026-mario-vizcarra-seguira-en-carrera-presidencial-tras-resolucion-del-jne-noticia-1671448)
-- **El lagarto fuera de carrera por Richard Arce**: [Link](https://peru21.pe/opinion/el-lagarto-fuera-de-carrera-por-richard-arce/)
-- **JNE deja al voto apelaciones por tachas contra Mario Vizcarra y López Aliaga**: [Link](https://caretas.pe/politica/jne-deja-al-voto-apelaciones-por-tachas-contra-mario-vizcarra-y-lopez-aliaga/)
-
-
-### hennessy (N/A, 16/01/2026 21:02 Lima)
-
-- **Celebrate the Chinese New Year with these limited-edition wines and spirits**: [Link](https://www.tatlerasia.com/dining/drinks/chinese-new-year-limited-edition-wines-and-spirits)
-- **Hennessy Welcomes the Year of the Horse with Limited Editions, Reunion Experiences and First Local CNY**: [Link](https://alvinology.com/2026/01/16/hennessy-welcomes-the-year-of-the-horse-with-limited-editions-reunion-experiences-and-first-local-cny-partnership/)
-- **Gallop Prosperously and Smoothly into the Year of the Horse with Carlsberg’s Limited-Edition Cans and Bottles**: [Link](https://worldofbuzz.com/gallop-prosperously-and-smoothly-into-the-year-of-the-horse-with-carlsbergs-limited-edition-cans-and-bottles/)
-
-
-### wanderers - independiente (N/A, 16/01/2026 21:02 Lima)
-
-- **Con un golazo y un penal, Ávalos metió un doblete para Independiente vs. Wanderers**: [Link](https://www.espn.com.ar/futbol/nota/_/id/16191608/video-gol-doblete-gabriel-avalos-wanderers-vs-independiente-por-la-serie-rio-de-la-plata)
-- **Qué canal pasa Independiente vs Wanderers hoy: dónde ver GRATIS y EN VIVO la Serie Río de La Plata 2026**: [Link](https://www.365scores.com/es/news/independiente-vs-wanderers-donde-ver-hoy/)
-- **El único antecedente oficial entre Montevideo Wanderers e Independiente**: [Link](https://espndeportes.espn.com/futbol/nota/_/id/16181661/independiente-montevideo-wanderers-antecedente-oficial-copa-competencia-1918)
-
-
-### cúcuta - huracán (N/A, 16/01/2026 21:02 Lima)
-
-- **Video: Léider Berdugo marca gol en Cúcuta vs Huracán por la Serie Colombia**: [Link](https://www.espn.com.ar/futbol/colombia/nota/_/id/16190516/cucuta-vs-huracan-goles-video-serie-colombia-berdugo-penal)
-- **Cúcuta vs Huracán hoy: Resultado EN VIVO, minuto a minuto y goles de la Serie Colombia 2026**: [Link](https://www.365scores.com/es/news/cucuta-vs-huracan-resultado-vivo-goles/)
-- **Cúcuta terminó su pretemporada con derrota en penales: Huracán ganó 6-5 en la serie en Montevideo**: [Link](https://www.infobae.com/colombia/deportes/2026/01/16/en-vivo-huracan-vs-cucuta-deportivo-amistoso-internacional-2026-el-motilon-cierra-la-pretemporada-en-uruguay/)
-
-
-### rcd espanyol vs. girona (N/A, 16/01/2026 21:02 Lima)
-
-- **Two penalties give Girona bragging rights over Espanyol in fierce Catalan derby**: [Link](https://www.kens5.com/article/syndication/associatedpress/two-penalties-give-girona-bragging-rights-over-espanyol-in-fierce-catalan-derby/616-c6601bf0-b969-437a-80ac-48479d6d0d89)
-- **Viktor Tsygankov vs. Espanyol – Player props & odds to score a goal on January 16**: [Link](https://prosoccerwire.usatoday.com/story/sports/2026/01/16/viktor-tsygankov-soccer-player-props-1-16-2026/88209296007/)
-- **González: "Ambition makes us stronger"**: [Link](https://www.rcdespanyol.com/en/new/gonzalez-ambition-makes-us-stronger/19690)
-
-
-### lisboa vs (N/A, 16/01/2026 21:02 Lima)
-
-- **Preview: Sporting Lisbon vs Casa Pia - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/sporting-lisbon/preview/sporting-lisbon-vs-casa-pia-prediction-team-news-lineups_589828.html)
-- **Geny Catamo makes successful return to club duties with brace in Sporting CP victory**: [Link](https://www.panafricafootball.com/post/geny-catamo-sporting-v-casa-pia/)
-- **Sporting CP v Casa Pia: title push meets survival fight**: [Link](https://onefootball.com/de/news/sporting-cp-v-casa-pia-title-push-meets-survival-fight-42235684)
-
-
-### sporting lisboa (N/A, 16/01/2026 21:02 Lima)
-
-- **Diário da Jornada | Geny e Bragança embalam Sporting**: [Link](https://goalpoint.pt/diario-da-jornada-18_220177)
-- **Três belos pensos rápidos para atenuar as dores do leão (crónica)**: [Link](https://www.abola.pt/noticias/tres-belos-pensos-rapidos-para-atenuar-as-dores-do-leao-cronica-2026011620024312511)
-- **Rui Borges: "Primeiro golo acalmou o jogo, resultado acaba por ser justo"**: [Link](https://www.flashscore.pt/noticias/futebol-liga-portugal-betclic-rui-borges-primeiro-golo-acalmou-o-jogo-resultado-acaba-por-ser-justo/fNFpqqMq/)
-
-
-### sporting cp (N/A, 16/01/2026 21:02 Lima)
-
-- **Sources: If quarterback Darian Mensah were to leave Duke, it’s...**: [Link](https://www.espn.com/contributor/espn/df791e30cf31d)
-- **Flames 3-1 Blackhawks (Jan 15, 2026) Game Recap**: [Link](https://www.espn.com/nhl/recap?gameId=401803096)
-- **Espanyol vs. Girona (16 Jan, 2026) Live Score**: [Link](https://www.espn.co.uk/football/match/_/gameId/748337)
 
 
