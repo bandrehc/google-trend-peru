@@ -1,3 +1,73 @@
+### borussia dortmund (N/A, 20/01/2026 15:44 Lima)
+
+- **Champions League: Holt der BVB heute Xavi zurück auf die Trainerbank?**: [Link](https://sportbild.bild.de/fussball/internationaler-fussball/champions-league-holt-der-bvb-heute-xavi-zurueck-auf-die-trainerbank-696faa6d568b91954b0e925a)
+- **Den eigenen Nachfolger geholt? CL-Coach versinkt mit Topklub im Chaos**: [Link](https://onefootball.com/es/noticias/den-eigenen-nachfolger-geholt-cl-coach-versinkt-mit-topklub-im-chaos-42265910)
+- **Niko Kovač reagiert nicht auf die Krise bei Tottenham: "Wir müssen das ignorieren"**: [Link](https://tribuna.com/de/news/2026-01-20-niko-kovac-reagiert-nicht-auf-die-krise-bei-tottenham-wir-mussen-das-ignorieren/)
+
+
+### ajax (N/A, 20/01/2026 15:44 Lima)
+
+- **LIVE Champions League | Ajax begint na minuut stilte voor slachtoffers treinramp aan belangrijk duel in Spanje**: [Link](https://www.ad.nl/voetbal/live-champions-league-ajax-begint-na-minuut-stilte-voor-slachtoffers-treinramp-aan-belangrijk-duel-in-spanje~ad6277ce/)
+- **Fred Grim onthult waarom hij Sean Steur na 5 basisplekken op rij ineens op de bank zet bij Ajax**: [Link](https://www.voetbalzone.nl/nieuws/fred-grim-onthult-waarom-hij-sean-steur-na-5-basisplekken-op-rij-ineens-op-de-bank-zet-bij-ajax/bltbe1dae272962f18e)
+- **Ajax met Bouwman en Mokio tegen Villarreal • NEC door naar kwartfinales beker**: [Link](https://nos.nl/liveblog/2599001-ajax-met-bouwman-en-mokio-tegen-villarreal-nec-door-naar-kwartfinales-beker)
+
+
+### villareal vs (N/A, 20/01/2026 15:44 Lima)
+
+- **Preview: Villarreal vs Ajax - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/villarreal/champions-league/preview/villarreal-vs-ajax-prediction-team-news-lineups_590137.html)
+- **Villarreal vs. Ajax: Champions League betting odds, prediction, pick**: [Link](https://www.usatoday.com/story/sports/soccer/ucl/2026/01/20/villarreal-vs-ajax-champions-league-betting-odds-prediction-pick/88258183007/)
+- **Marcelino: “Playing in the Champions League is a privilege and we only think about winning”**: [Link](https://villarrealcf.es/en/marcelino-playing-in-the-champions-league-is-a-privilege-and-we-only-think-about-winning/)
+
+
+### disney (N/A, 20/01/2026 15:44 Lima)
+
+- **Disney Reverses Exclusion of Shareholder Proposal to Review Controversial Disability Access Pass Changes**: [Link](https://www.disneytouristblog.com/disney-reverses-exclusion-of-shareholder-proposal-to-review-controversial-disability-access-pass-changes/)
+- **NEW: Disney World Pulls the Plug on Controversial DAS Program After Investigations Pile Up**: [Link](https://insidethemagic.net/2026/01/disney-disability-access-service-changes-emd1/comments/)
+- **NEWS: Disney Shareholders Set To Vote on Changes to Disability Access Service**: [Link](https://allears.net/2026/01/20/disney-shareholders-set-to-vote-on-changes-to-disability-access-service/)
+
+
+### olympiacos vs (N/A, 20/01/2026 15:44 Lima)
+
+- **Champions League: Olympiacos y Bayer Leverkusen se miden por la fecha 7**: [Link](https://rpp.pe/futbol/ligas-internacionales/champions-league-olympiacos-y-bayer-leverkusen-se-miden-por-la-fecha-7-noticia-1672153)
+- **Best bets: Champions League and Championship tips for 20 January 2026**: [Link](https://www.sportinglife.com/football/news/best-bets-champions-league-and-championship-tips-for-20-january-2026/229873)
+- **Hjulmand knows struggling Leverkusen must do more against Olympiacos**: [Link](https://www.beinsports.com/en-us/soccer/uefa-champions-league/articles/hjulmand-knows-struggling-leverkusen-must-do-more-against-olympiacos-2026-01-19)
+
+
+### wrexham - leicester city (N/A, 20/01/2026 15:44 Lima)
+
+- **Leicester City team news v Wrexham as two changes see Caleb Okoli start at right-back**: [Link](https://www.leicestermercury.co.uk/sport/football/football-news/leicester-city-team-news-v-10767425)
+- **The Championship Preview: Hollywood Meets the Foxes**: [Link](https://www.365scores.com/news/the-championship-preview-hollywood-meets-the-foxes)
+- **SlipsTips’ Tips: Foxes duo fancied in Bet Builder double**: [Link](https://mrfixitstips.co.uk/slipstips-tips-foxes-duo-fancied-in-bet-builder-double/)
+
+
+### anuel (N/A, 20/01/2026 15:44 Lima)
+
+- **¿Qué pasa con la salud de Anuel?: lo que se sabe**: [Link](https://www.univision.com/famosos/anuel-salud-lo-que-se-sabe)
+- **¿Qué le pasó? Anuel AA genera preocupación en sus fans por su apariencia física**: [Link](https://www.laopinion.co/tendencias/que-le-paso-anuel-aa-genera-preocupacion-en-sus-fans-por-su-apariencia-fisica)
+- **Preocupa el cambio físico de Anuel AA tras foto reciente, ¿qué le pasó?**: [Link](https://www.vanguardia.com/entretenimiento/tendencias/2026/01/18/preocupa-el-cambio-fisico-de-anuel-aa-tras-foto-reciente-que-le-paso/)
+
+
+### championship (N/A, 20/01/2026 15:44 Lima)
+
+- **The south lost another Civil War when it comes to college football**: [Link](https://sports.yahoo.com/articles/south-lost-another-civil-war-183803667.html)
+- **Paul Finebaum says SEC fall off is a billionaire problem**: [Link](https://clutchpoints.com/ncaa-football/ncaa-football-news-paul-finebaum-sec-fall-off-billionaire-problem)
+- **SEC Now Riding Longest National Championship Drought in Decades**: [Link](https://www.si.com/college-football/sec-longest-championship-drought)
+
+
+### monaco fc (N/A, 20/01/2026 15:44 Lima)
+
+- **Preview: Real Madrid vs Monaco - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/real-madrid/champions-league/preview/real-madrid-vs-monaco-prediction-team-news-lineups_590119.html)
+- **Not Mbappe or Tchouameni - Three players you may not remember played for Real Madrid and AS Monaco**: [Link](https://madriduniversal.com/not-mbappe-or-tchouameni-three-players-you-may-not-remember-played-for-real-madrid-and-as-monaco/)
+- **Vinicius enjoys fresh trust and key role under Arbeloa - reports**: [Link](https://tribuna.com/en/news/2026-01-20-vinicius-enjoys-fresh-trust-and-key-role-under-arbeloa-reports/)
+
+
+### manchester city hoy (N/A, 20/01/2026 15:44 Lima)
+
+- **Bodo/Glimt tuvo un partido celestial y logró una histórica goleada sobre Manchester City por la Champions**: [Link](https://www.espn.com.pe/futbol/champions-league/nota/_/id/16201887/bodo-glimt-vs-manchester-city-champions-equipo-fecha-hora-y-tv-en-vivo)
+- **¡Lo sufre Guardiola! Manchester City cayó 3-1 ante Bodø/Glimt en Noruega**: [Link](https://caretas.pe/deportes/manchester-city-perdio-bodo-glimt-champions/)
+- **Champions League: Por la fecha 7 se enfrentarán FK Bodo/Glimt y Manchester City**: [Link](https://rpp.pe/futbol/ligas-internacionales/champions-league-por-la-fecha-7-se-enfrentaran-fk-bodo-glimt-y-manchester-city-noticia-1672132)
+
+
 ### josé jerí (N/A, 20/01/2026 11:41 Lima)
 
 - **Investigan a presidente de Perú por tráfico de influencias**: [Link](https://www.dw.com/es/investigan-a-presidente-de-per%C3%BA-por-tr%C3%A1fico-de-influencias/a-75572656)
@@ -964,75 +1034,5 @@ Sin noticias relacionadas disponibles.
 - **Schwarz und Gelb mit neuem Mut**: [Link](https://www.pressreader.com/germany/welt-am-sonntag/20260117/282205132284640)
 - **Borussia Dortmund hat Gewissheit: Schlotterbeck-Schrecken vom Tisch**: [Link](https://www.derwesten.de/sport/fussball/bvb/borussia-dortmund-nico-schlotterbeck-bayern-muenchen-wechsel-gewissheit-id301959630.html)
 - **Wende des FC Bayern München, es geht um Nico Schlotterbeck**: [Link](https://www.msn.com/de-at/nachrichten/other/wende-des-fc-bayern-m%C3%BCnchen-es-geht-um-nico-schlotterbeck/ss-AA1Ulbxe)
-
-
-### manchester city (N/A, 17/01/2026 07:51 Lima)
-
-- **Why Matheus Nunes misses Man City game at Manchester United**: [Link](https://www.manchestereveningnews.co.uk/sport/football/football-news/matheus-nunes-misses-man-city-33251478)
-- **Manchester City star absent from matchday squad against Manchester United**: [Link](https://cityxtra.co.uk/40424/manchester-city-star-absent-from-matchday-squad-against-manchester-united/)
-- **Premier League LIVE: Man United v Man City, Chelsea v Brentford, Tottenham Hotspur v West Ham United and more**: [Link](https://www.bbc.com/sport/football/live/c9w78r8l0e9t)
-
-
-### manchester city vs (N/A, 17/01/2026 07:51 Lima)
-
-- **Manchester United vs Manchester City: ¡Juega en la Premier League y gana hasta S/. 600,000 con Meridianbet!**: [Link](https://ovacion.pe/noticias/nota-promocional/manchester-united-vs-manchester-city-juega-premier-league-gana-hasta-s)
-- **Sigue pronósticos, mejores apuestas y cuotas de la Premier League (J22)**: [Link](https://www.flashscore.pe/noticias/futbol-premier-league-pronosticos-mejores-apuestas-cuotas-j22/dhDzcl3b/)
-- **El derbi de Manchester tiene una nueva edición, marcada por la irregularidad y los contrastes**: [Link](https://www.espn.com.pe/futbol/inglaterra/nota/_/id/16185835/derbi-de-manchester-nueva-edicion-marcada-por-irregularidad-y-contrastes)
-
-
-### manchester united - manchester city (N/A, 17/01/2026 07:51 Lima)
-
-- **Premier League LIVE: Man United v Man City, Chelsea v Brentford, Tottenham Hotspur v West Ham United and more**: [Link](https://www.bbc.com/sport/football/live/c9w78r8l0e9t)
-- **Preview: Manchester United vs Manchester City - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/man-utd/manchester-derby/preview/man-utd-vs-man-city-prediction-team-news-lineups_589854.html)
-- **United hit the corssbar in positive start against Man City**: [Link](https://onefootball.com/en/news/united-hit-the-corssbar-in-positive-start-against-man-city-42245288)
-
-
-### manchester united vs. brighton (N/A, 17/01/2026 07:51 Lima)
-
-- **'We know' - Fabian Hurzeler makes Bournemouth and Antoine Semenyo claim ahead of Brighton clash**: [Link](https://www.sussexexpress.co.uk/sport/football/brighton-and-hove-albion/we-know-fabian-hurzeler-makes-bournemouth-and-antoine-semenyo-claim-ahead-of-brighton-clash-5478485)
-- **Andoni Iraola looks ahead to Brighton test**: [Link](https://buzz.bournemouth.ac.uk/2026/01/andoni-iraola-looks-ahead-to-brighton-test/)
-- **Hurzeler and Brighton treating remaining Premier League games as finals**: [Link](https://www.beinsports.com/en-au/football/premier-league/articles/hurzeler-and-brighton-treating-remaining-premier-league-games-as-finals-2026-01-17)
-
-
-### decreto supremo (N/A, 17/01/2026 07:51 Lima)
-
-- **José Jerí anunció que en las próximas horas se publicará el decreto que prohíbe la circulación de motos con dos ocupantes**: [Link](https://rpp.pe/politica/gobierno/jose-jeri-anuncio-que-en-las-proximas-horas-se-publicara-el-decreto-que-prohibe-la-circulacion-de-motos-con-dos-ocupantes-noticia-1671642)
-- **Eduardo Pérez Rocha: Ley que prohíbe dos en moto no reducirá el crimen y el estado de emergencia es un fracaso**: [Link](https://canaln.pe/actualidad/eduardo-perez-rocha-ley-que-prohibe-dos-moto-no-reducira-crimen-n489615)
-- **Gobierno ejecuta acciones para recuperar tranquilidad y disminuir índices de inseguridad**: [Link](https://andina.pe/agencia/noticia-gobierno-ejecuta-acciones-para-recuperar-tranquilidad-y-disminuir-indices-inseguridad-1059360.aspx)
-
-
-### real madrid vs levante (N/A, 17/01/2026 03:32 Lima)
-
-- **Will Mbappe Be Called up Against Levante?**: [Link](https://www.beinsports.com/en-us/soccer/la-liga/articles/will-mbappe-be-called-up-against-levante-2026-01-16)
-- **Camavinga, Tchouameni And Carreras To Start | 4-2-3-1 Real Madrid Predicted Lineup Vs Levante**: [Link](https://sports.yahoo.com/articles/camavinga-tchouameni-carreras-start-4-190500531.html)
-- **Arbeloa talks Mbappe, Vinicius, Bellingham, Valverde, Rodrygo ahead of Real Madrid vs Levante**: [Link](https://madriduniversal.com/arbeloa-talks-mbappe-vinicius-bellingham-valverde-rodrygo-ahead-of-real-madrid-vs-levante/)
-
-
-### ter stegen (N/A, 17/01/2026 03:32 Lima)
-
-- **How Hansi Flick reacted to Dro’s decision to leave Barcelona**: [Link](https://getfootballnewsspain.com/how-hansi-flick-reacted-to-dros-decision-to-leave-barcelona/)
-- **Chelsea & Man City battle for Barca transfer raid as bargain release clause to be triggered soon**: [Link](https://www.yardbarker.com/soccer/articles/chelsea_man_city_battle_for_barca_transfer_raid_as_bargain_release_clause_to_be_triggered_soon/s1_15953_43343596)
-- **Luis Enrique gives cryptic response when asked about Barcelona youngster Dro Fernandez links to PSG**: [Link](https://semprebarca.com/luis-enrique-gives-cryptic-response-when-asked-about-barcelona-youngster-dro-fernandez-links-to-psg/)
-
-
-### prince (N/A, 16/01/2026 23:36 Lima)
-
-- **Prince Harry expected to return to UK as tabloid trial begins**: [Link](https://abcnews.go.com/GMA/Culture/prince-harry-expected-return-uk-tabloid-trial-begins/story?id=129240052)
-- **Prince Harry’s lawyers accused of fraud ahead of his testimony in UK**: [Link](https://www.newsnationnow.com/entertainment-news/prince-harry-lawyers-fraud-uk-testify-daily-mail-case/)
-- **Prince Harry’s lawyers accused of dishonesty, fraud and conspiracy**: [Link](https://www.telegraph.co.uk/royal-family/2026/01/15/prince-harry-lawyers-accused-of-dishonesty-fraud-conspiracy/)
-
-
-### fortaleza vs (N/A, 16/01/2026 23:36 Lima)
-
-- **Fortaleza vs Alianza hoy: Resultado EN VIVO, minuto a minuto y goles de la Liga BetPlay 2026**: [Link](https://www.365scores.com/es/news/fortaleza-vs-alianza-resultado-en-vivo/)
-- **Pronóstico Fortaleza FC Alianza FC Valledupar - Primera A Colombia 16/01/26**: [Link](https://www.sportytrader.com/es/pronosticos/fortaleza-fc-alianza-fc-valledupar-318520/)
-- **El año de la consolidación: Fortaleza vence a Alianza en su debut**: [Link](https://www.clarosports.com/colombia/liga-bet-play/fortaleza-vs-alianza-en-vivo-la-liga-betplay-2026-i-resultado-y-goles-de-la-jornada-1/)
-
-
-### mazatlán - monterrey (N/A, 16/01/2026 23:36 Lima)
-
-- **Liga MX: Se disputan Mazatlán y CF Monterrey en el primer duelo por la Fecha 3**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-se-disputan-mazatlan-y-cf-monterrey-en-el-primer-duelo-por-la-fecha-3-noticia-1671752)
-- **¡RAYADOS, POR UN TRIUNFO MÁS EN EL CLAUSURA 2026!**: [Link](https://onefootball.com/es/noticias/rayados-por-un-triunfo-mas-en-el-clausura-2026-42241583)
-- **¡Se quitó la mufa! Anthony Martial anota su primer gol con Rayados: así fue el 3-0 ante Mazatlán**: [Link](https://bolavip.com/mx/rayados-monterrey/se-quito-la-mufa-anthony-martial-anota-su-primer-gol-con-rayados-asi-fue-el-1-0-ante-mazatlan)
 
 
