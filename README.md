@@ -1,3 +1,73 @@
+### bayer (N/A, 21/01/2026 15:37 Lima)
+
+- **Nach dem Glyphosat-Boost: Glyphosat-Knoten geplatzt? Was die Bayer-Aktie jetzt antreibt - 21.01.2026**: [Link](https://www.wallstreet-online.de/nachricht/20398303-glyphosat-boost-glyphosat-knoten-geplatzt-bayer-aktie-antreibt)
+- **Dax zittert vor Schicksalstag: Bayer - Aktuelle Kursrallye nur der Anfang?**: [Link](https://www.boersennews.de/nachrichten/artikel/boersennews/dax-zittert-vor-schicksalstag-bayer-aktuelle-kursrallye-nur-der-anfang/5015202/)
+- **Barclays hebt Ziel für Bayer auf 50 Euro - 'Overweight' - boerse.de**: [Link](https://www.boerse.de/nachrichten/Barclays-hebt-Ziel-fuer-Bayer-auf-50-Euro-Overweight/38099122)
+
+
+### bayern de múnich (N/A, 21/01/2026 15:37 Lima)
+
+- **Bayern - Union Saint-Gilloise, en directo: Champions League, hoy en vivo**: [Link](https://as.com/futbol/champions/bayern-union-saint-gilloise-en-directo-champions-league-hoy-en-vivo-f202601-d/)
+- **Bayern Munich: Pavlovic resalta el ataque que comandan Díaz y Kane**: [Link](https://www.espn.com.ar/futbol/champions-league/nota/_/id/16205703/bayern-munich-pavlovic-resalta-el-ataque-que-comandan-diaz-y-kane)
+- **Con Luis Díaz, Bayern va por el cupo a los octavos ante Union Saint-Gilloise**: [Link](https://espndeportes.espn.com/futbol/champions-league/nota/_/id/16209080/con-luis-diaz-bayern-va-por-cupo-octavos-champions-league-union-saint-gilloise)
+
+
+### joao grimaldo (N/A, 21/01/2026 15:37 Lima)
+
+- **“Es un gran chico, estaba en muy buena forma y demostró su calidad”: extécnico de Grimaldo lo elogia y opina sobre su llegada al Sparta Praga**: [Link](https://elcomercio.pe/deporte-total/seleccion/seleccion-peruana-hoy-es-un-gran-chico-estaba-en-muy-buena-forma-y-demostro-su-calidad-adrian-gula-extecnico-de-joao-grimaldo-lo-elogia-y-opina-sobre-su-llegada-al-sparta-praga-tlcnota-noticia/)
+- **Grata impresión: el debut de Joao Grimaldo en Sparta Praga y elogios a su juego**: [Link](https://depor.com/futbol-peruano/peruanos-en-el-mundo/joao-grimaldo-recibio-elogios-en-sparta-praga-debut-en-amistoso-ante-malmo-y-buenas-impresiones-noticia/)
+- **Periodista checo dio rotundo calificativo a Manco tras hablar de Joao Grimaldo: "Un..."**: [Link](https://libero.pe/futbol-internacional/2026/01/14/periodista-checo-dio-rotundo-calificativo-manco-hablar-de-joao-grimaldo-1192884)
+
+
+### roony bardghji (N/A, 21/01/2026 15:37 Lima)
+
+- **Preview: Slavia Prague vs Barcelona - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/barcelona/champions-league/preview/slavia-prague-vs-barcelona-prediction-team-news-lineups_590198.html)
+- **UEFA Champions League: What time and which channel to watch?**: [Link](https://foot-africa.com/en/news/uefa-champions-league-what-time-and-which-channel-to-watch-1052252/)
+- **Lewandowski ende pa gol në Ligën e Kampionëve, sonte synon t’i japë fund kësaj ecurie**: [Link](https://reporteri.net/en/sport/Lewandowski-still-without-a-goal-in-the-Champions-League-tonight-aims-to-end-this-run/)
+
+
+### slavia praha vs barcelona (N/A, 21/01/2026 15:37 Lima)
+
+- **Největší hvězda chybí. Přesto Barcelona do Prahy přivezla světovou extratřídu**: [Link](https://www.sport.cz/clanek/fotbal-liga-mistru-st-do-12-nejvetsi-hvezda-chybi-presto-barcelona-do-prahy-privezla-svetovou-extratridu-5379021)
+- **ŽIVĚ: Slavia Praha - Barcelona 1:0. Sešívaní zaskočili favorita rychlým gólem, trefil se Kušej**: [Link](https://www.irozhlas.cz/sport/fotbal/sk-slavia-praha-fc-barcelona-online-primy-prenos-liga-mistru_2601212005_mim)
+- **Český fanklub Barcelony nesmí mít na zápase choreo. Pocta „barcelonskému dědečkovi“ neprošla**: [Link](https://tv.idnes.cz/sport/fanklub-barcelona-fotbal-sport-choreografie-zakaz.V260121_125710_idnestv_pech)
+
+
+### marsella vs (N/A, 21/01/2026 15:37 Lima)
+
+- **Champions League: Olympique de Marsella y Liverpool se encuentran en la fecha 7**: [Link](https://rpp.pe/futbol/ligas-internacionales/champions-league-olympique-de-marsella-y-liverpool-se-encuentran-en-la-fecha-7-noticia-1672302)
+- **VER GRATIS - Liverpool vs Marsella EN VIVO por ESPN: alineaciones del partido y canal que transmite**: [Link](https://elcomercio.pe/deporte-total/champions-league/liverpool-vs-marsella-en-vivo-gratis-hoy-via-espn-disney-plus-max-movistar-plus-horarios-canales-tv-y-donde-ver-partido-por-champions-league-video-noticia/)
+- **Olympique Marsella vs Liverpool: ¡Incrementa tus ganancias hasta 200% con la Champions League en Meridianbet!**: [Link](https://ovacion.pe/noticias/nota-promocional/olympique-marsella-vs-liverpool-incrementa-tus-ganancias-hasta-200)
+
+
+### pafos fc (N/A, 21/01/2026 15:37 Lima)
+
+- **Cuándo juegan Chelsea vs. Pafos por la Champions League: equipo, fecha, hora y TV en vivo**: [Link](https://www.espn.com.pe/futbol/champions-league/nota/_/id/16202344/chelsea-vs-pafos-fase-liga-fecha-7-champions-league-equipo-fecha-hora-y-tv-en-vivo)
+- **Chelsea vs Pafos FC Pronóstico: Previa y Análisis del Partido | Champions League 21-01-2026**: [Link](https://betmines.com/es/analisis-partido/chelsea-vs-pafos-fc-pronostico-previa-y-analisis-champions-league-21-01-2026)
+- **Champions League: Se enfrentan Chelsea y Pafos por la fecha 7**: [Link](https://rpp.pe/futbol/ligas-internacionales/champions-league-se-enfrentan-chelsea-y-pafos-por-la-fecha-7-noticia-1672304)
+
+
+### dolar peru (N/A, 21/01/2026 15:37 Lima)
+
+- **Precio del dólar con baja: Así abrió el tipo de cambio en Perú hoy 21 de enero**: [Link](https://www.infobae.com/peru/2026/01/21/dolar-cotizacion-de-apertura-hoy-21-de-enero-en-peru/)
+- **¿Cuál es la cotización del dólar hoy miércoles 21 de enero del 2026?**: [Link](https://andina.pe/agencia/noticia-cual-es-cotizacion-del-dolar-hoy-miercoles-21-enero-del-2026-1060118.aspx)
+- **Pago de impuestos presionaría a la baja el tipo de cambio esta semana | Dólar | BCRP | ECONOMIA**: [Link](https://elcomercio.pe/economia/pago-de-impuestos-presionaria-a-la-baja-el-tipo-de-cambio-esta-semana-dolar-bcrp-noticia/)
+
+
+### juventus vs benfica (N/A, 21/01/2026 15:37 Lima)
+
+- **Preview: Juventus vs. Benfica - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/juventus/champions-league/preview/juventus-vs-benfica-prediction-team-news-lineups_590224.html)
+- **Jose Mourinho aims dig at coaches 'who have done nothing' taking charge of biggest clubs**: [Link](https://www.tntsports.co.uk/football/champions-league/2025-2026/jose-mourinho-aims-dig-coaches-who-have-done-nothing-taking-charge-biggest-clubs_vid60048343/video.shtml)
+- **The stadium where the Special One struggles**: [Link](https://www.besoccer.com/new/the-stadium-where-the-special-one-struggles-1390655)
+
+
+### cristiano ronaldo (N/A, 21/01/2026 15:37 Lima)
+
+- **Eternal icons? Cristiano Ronaldo chases all-time record for longest goalscoring streak**: [Link](https://www.transfermarkt.com/eternal-icons-cristiano-ronaldo-chases-all-time-record-for-longest-goalscoring-streak/view/news/473572)
+- **Al-Nassr Defeats Damac with a Double and Reclaims Second Place in the League**: [Link](https://www.ysscores.com/en/news/13895382/Al-Nassr-Defeats-Damac-with-a-Double-and-Reclaims-Second-Place-in-the-League)
+- **Ronaldo edges Messi in 1,000-goal race, breaks historic record**: [Link](https://onefootball.com/en/news/ronaldo-edges-messi-in-1000-goal-race-breaks-historic-record-42275350)
+
+
 ### damac - al-nassr (N/A, 21/01/2026 12:01 Lima)
 
 - **Al Nassr vs Damac: cuándo es el partido, horarios y canales que transmiten la Saudí Pro League 2026**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/al-nassr-vs-damac-en-vivo-gratis-hoy-con-cristiano-ronaldo-via-fox-sports-horarios-canales-tv-y-donde-ver-partido-por-saudi-pro-league-2026-video-noticia/)
@@ -962,75 +1032,5 @@ Sin noticias relacionadas disponibles.
 - **Warriors cruise past Hornets**: [Link](https://www.goldenstateofmind.com/warriors-scores-results/107413/warriors-hornets-scores-recap-draymond-green-deanthony-melton)
 - **Game 42 wrap: (no spoiler title)**: [Link](https://dubnationhq.com/p/game-42-wrap-no-spoiler-title)
 - **Hornets Fall Behind Early, Warriors Stay In Control After That**: [Link](https://www.nba.com/hornets/news/hornets-fall-behind-early-warriors-stay-in-control-after-that)
-
-
-### conciertos peru 2026 (N/A, 17/01/2026 23:46 Lima)
-
-- **Conciertos de BTS en Perú: ¿Cuánto costará la entrada para ver a la banda de K-pop en Lima?**: [Link](https://www.infobae.com/peru/2026/01/13/conciertos-de-bts-en-lima-cuanto-costara-ver-a-la-banda-de-k-pop-mas-famosa-del-mundo/)
-- **BTS: el regreso del fenómeno del K-pop en su World Tour 2026**: [Link](https://cnnespanol.cnn.com/2026/01/13/entretenimiento/video/bts-historia-resumen-grupo-kpop-2026-orix)
-- **BTS en Lima: Conoce las fechas y cómo comprar entradas en preventa**: [Link](https://peru21.pe/espectaculos/bts-en-lima-conoce-las-fechas-y-como-comprar-entradas-en-preventa/)
-
-
-### booker t (N/A, 17/01/2026 23:46 Lima)
-
-- **Booker T: Zilla Fatu Is Going To Take The World By Storm**: [Link](https://www.fightful.com/wrestling/booker-t-zilla-fatu-is-going-to-take-the-world-by-storm/)
-- **Triple H Urged To Sign WWE Legend’s Son**: [Link](https://tjrwrestling.net/news/triple-h-urged-to-sign-wwe-legends-son/)
-- **Booker T wants WWE to sign a 26-year-old real-life Bloodline member**: [Link](https://www.sportskeeda.com/wwe/news-booker-t-wants-wwe-sign-26-year-old-real-life-bloodline-member)
-
-
-### monaco (N/A, 17/01/2026 23:46 Lima)
-
-- **La Roca Team vise encore la semaine parfaite**: [Link](https://asmonaco.basketball/news/show.php?ID=73971)
-- **Basket – Betclic Elite (J16) : Monaco maintient la cadence, Nanterre et Strasbourg assurent**: [Link](https://www.sport365.fr/basket-betclic-elite-j16-monaco-maintient-cadence-nanterre-strasbourg-assurent-10781859.html)
-- **Pro D2 : malgré de l'envie, le CA Brive a fini par craquer à Vannes (relire notre direct)**: [Link](https://www.lepopulaire.fr/brive-la-gaillarde-19100/sports/pro-d2-suivez-vannes-brive-en-direct-commente_14812156/)
-
-
-### tijuana - atl. san luis (N/A, 17/01/2026 23:46 Lima)
-
-- **Liga MX: Atl. de San Luis visita a Tijuana por la fecha 3**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-atl-de-san-luis-visita-a-tijuana-por-la-fecha-3-noticia-1671910)
-- **Qué canal pasa Xolos vs San Luis hoy: dónde ver GRATIS y EN VIVO el partido de la Liga MX**: [Link](https://www.365scores.com/es/news/xolos-vs-san-luis-donde-ver-gratis-vivo/)
-- **¿Qué descuentos tienen los adultos mayores con la tarjeta INAPAM en 2026? Conoce todos sus beneficios 💰 https://mile.io/4sKAa4D**: [Link](https://www.facebook.com/MilenioDiario/posts/qu%C3%A9-descuentos-tienen-los-adultos-mayores-con-la-tarjeta-inapam-en-2026conoce-to/1361866112637523/)
-
-
-### regatas vs san martin (N/A, 17/01/2026 23:46 Lima)
-
-- **Tabla de posiciones de la Liga Peruana de Vóley - fase 2: resultados y puntaje de los equipos en la fecha 2 del torneo**: [Link](https://www.infobae.com/peru/deportes/2026/01/17/tabla-de-posiciones-de-la-liga-peruana-de-voley-fase-2-resultados-y-puntaje-de-los-equipos-en-la-fecha-2-del-torneo/)
-- **Liga Peruana de Vóley por Latina: Revive AQUÍ el partido entre Alianza Lima vs Rebaza Acosta**: [Link](https://www.latina.pe/voley-por-latina/liga-peruana-de-voley-por-latina-revive-aqui-el-partido-entre-alianza-lima-vs-rebaza-acosta-2_20260111/)
-- **Universitario vs Olva Latino EN VIVO: ¿a qué hora juegan y dónde ver la fase 2 de la Liga Peruana de Vóley?**: [Link](https://rpp.pe/voley/mas-voley/universitario-vs-olva-latino-en-vivo-a-que-hora-juegan-y-donde-ver-fecha-2-fase-2-liga-peruana-de-voley-2026-via-latina-voley-en-vivo-noticia-1672022)
-
-
-### lakers - trail blazers (N/A, 17/01/2026 23:46 Lima)
-
-- **Trending Trail Blazers could be short-handed vs. lagging Lakers**: [Link](https://www.thesportsleader.com/2026/01/16/trending-trail-blazers-could-be-short-handed-vs-lagging-lakers/)
-- **Deandre Ayton (knee) questionable for Saturday**: [Link](https://www.fantasypros.com/nba/news/566203/deandre-ayton-knee-questionable-saturday.php)
-- **Is LeBron James playing tonight vs Portland Trail Blazers? Latest injury updates on Los Angeles Lakers st**: [Link](https://timesofindia.indiatimes.com/sports/nba/top-stories/is-lebron-james-playing-tonight-vs-portland-trail-blazers-latest-injury-updates-on-los-angeles-lakers-star-ahead-of-saturdays-clash/articleshow/126628737.cms)
-
-
-### alexander zverev (N/A, 17/01/2026 23:46 Lima)
-
-- **Live: Local wildcard nabs first win of Aus Open as thousands of fans stuck outside**: [Link](https://www.abc.net.au/news/2026-01-18/australian-open-2026-live-updates-sabalenka-alcaraz-berrettini/106238282)
-- **Aus Open Serves Up Incredible Tennis And Economic Boost**: [Link](https://www.miragenews.com/aus-open-serves-up-incredible-tennis-and-1603676/)
-- **Fans frustrated by long queues, ticket sales halt on day one of Australian Open**: [Link](https://supersport.com/tennis/australian-open/news/43ac5bc3-f936-4258-91f1-b4803420fb43/fans-frustrated-by-long-queues-ticket-sales-halt-on-day-one-of-australian-open)
-
-
-### メタマスク (N/A, 17/01/2026 23:46 Lima)
-
-- **MetaMaskがトロン（TRX）に正式対応：ビットコイン・ソラナに続く大型統合**: [Link](https://www.gfa.co.jp/crypto/news/alt-news/news-683/)
-- **メタマスク、トロンにネイティブ対応開始。昨年発表の統合計画が実装段階へ（あたらしい経済）**: [Link](https://news.yahoo.co.jp/articles/81be5e16129b90a0f457b7b24c4a79a5495f9a9a)
-- **メタマスク、トロン対応｜USDT送金・TRX運用がアプリで完結**: [Link](https://99bitcoins.com/jp/news/altcoins/metamask-launches-native-tron-support-mobile/)
-
-
-### cruz azul - puebla (N/A, 17/01/2026 23:46 Lima)
-
-- **Liga MX: Por la fecha 3 se enfrentarán Cruz Azul y Puebla**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-por-la-fecha-3-se-enfrentaran-cruz-azul-y-puebla-noticia-1671911)
-- **¿Por qué Miguel Borja viajó a Colombia y no ha jugado con Cruz Azul?**: [Link](https://www.espn.com.pe/futbol/mexico/nota/_/id/16178460/cruz-azul-por-que-miguel-borja-no-ha-jugado-clasura-2026)
-- **Pagará 11 MDP Cruz Azul por el uso del estadio Cuauhtémoc**: [Link](https://puebla.quadratin.com.mx/pagara-11-mdp-cruz-azul-por-el-uso-del-estadio-cuauhtemoc/)
-
-
-### setlist bad bunny peru (N/A, 17/01/2026 23:46 Lima)
-
-- **Bad Bunny en Perú: el setlist oficial de éxitos que prenderá el “Debí Tirar Más Fotos World Tour”**: [Link](https://elcomercio.pe/respuestas/trends/bad-bunny-en-peru-el-setlist-oficial-de-exitos-que-prendera-el-debi-tirar-mas-fotos-world-tour-tdpe-noticia/)
-- **Bad Bunny en Lima 2026 ATU anuncia ampliación de horarios del Metropolitano y Corredor Azul por concierto**: [Link](https://rpp.pe/musica/conciertos/bad-bunny-en-lima-2026-amplian-horarios-del-metropolitano-y-corredor-azul-por-conciertos-en-el-estadio-nacional-noticia-1671837)
-- **Adriana Campos Salazar y Thiago Vernal reaccionan al “Chile” de Bad Bunny en Perú**: [Link](https://www.americatv.com.pe/noticias/espectaculos/adriana-campos-salazar-y-thiago-vernal-reaccionan-al-chile-bad-bunny-peru-n514918)
 
 
