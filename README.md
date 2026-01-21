@@ -1,3 +1,52 @@
+### yannick hanfmann (N/A, 20/01/2026 23:49 Lima)
+
+- **Australian Open 2026: Alcaraz in action after Sabalenka eases through – live**: [Link](https://www.theguardian.com/sport/live/2026/jan/21/aryna-sabalenka-carlos-alcaraz-australian-open-tennis-second-round-live)
+- **Carlos Alcaraz vs. Yannick Hanfmann Prediction, Odds for Australian Open Round 2**: [Link](https://www.si.com/betting/carlos-alcaraz-vs-yannick-hanfmann-prediction-odds-for-australian-open-round-2)
+- **Australian Open Picks & Best Bets for Tuesday, Jan. 20**: [Link](https://www.sportsbettingdime.com/news/tennis/australian-open-picks-best-bets-tuesday-jan-20/)
+
+
+### ifarhu (N/A, 20/01/2026 23:49 Lima)
+
+- **Minsa se reúne con Ifarhu para dar solución a pagos pendientes de becas a universitarios**: [Link](https://www.ecotvpanama.com/nacionales/minsa-se-reune-ifarhu-dar-solucion-pagos-pendientes-becas-universitarios-n6067327)
+- **Estudiantes de Medicina exigen pago de becas atrasadas y apoyo en IFARU ya**: [Link](https://www.critica.com.pa/nacional/estudiantes-de-medicina-exigen-pago-de-becas-atrasadas-y-apoyo-en-ifaru-ya-503153)
+- **Minsa coordina con Ifarhu soluciones para estudiantes de medicina becados - Nacionales | Tvn Panamá**: [Link](https://www.tvn-2.com/nacionales/minsa-coordina-ifarhu-soluciones-estudiantes_1_2223686.html)
+
+
+### igp tormenta geomagnética (N/A, 20/01/2026 23:49 Lima)
+
+- **El Sol libera la mayor tormenta de radiación "en más de 20 años", según pronosticadores**: [Link](https://cnnespanol.cnn.com/2026/01/19/ciencia/tormenta-radiacion-solar-auroras-trax)
+- **IGP informa que una tormenta geomagnética se encuentra en curso en el Perú**: [Link](https://elperuano.pe/noticia/287556-igp-informa-que-una-tormenta-geomagnetica-se-encuentra-en-curso-en-el-peru)
+- **Tormenta solar impacta la Tierra: qué significa este fenómeno y cuáles podrían ser sus efectos**: [Link](https://elcomercio.pe/mag/respuestas/ciencias/tormenta-solar-impacta-la-tierra-que-significa-este-fenomeno-y-cuales-podrian-ser-sus-efectos-nnda-nnni-noticia/)
+
+
+### carlos alcaraz (N/A, 20/01/2026 23:49 Lima)
+
+- **Alcaraz - Hanfmann, en directo: segunda ronda del Open de Australia hoy en vivo online**: [Link](https://as.com/tenis/open_australia/alcaraz-hanfmann-en-directo-segunda-ronda-del-open-de-australia-hoy-en-vivo-online-f202601-d/)
+- **Carlos Alcaraz - Yannick Hanfmann, en directo | segunda ronda del Open de Australia**: [Link](https://www.marca.com/tenis/open-australia/carlos-alcaraz-yannick-hanfmann/2026/01/21/04_0401_20260121_65-directo.html)
+- **Alcaraz quiere acelerar camino a R3 en Melbourne**: [Link](https://www.atptour.com/es/news/abierto-de-australia-2026-previa-miercoles-alcaraz-r2-jornada)
+
+
+### raptors - warriors (N/A, 20/01/2026 23:49 Lima)
+
+- **Warriors vs Raptors: Golden State looks to respond through adversity**: [Link](https://empiresportsmedia.com/warriors/warriors-vs-raptors-golden-state-looks-to-respond-through-adversity/)
+- **Golden State plays Toronto, seeks 5th straight win**: [Link](https://abcnews.go.com/Sports/wireStory/golden-state-plays-toronto-seeks-5th-straight-win-129372256)
+- **The Raptors risk wasting season with struggles against zone defences**: [Link](https://sports.yahoo.com/articles/raptors-risk-wasting-season-struggles-141100566.html)
+
+
+### lakers - nuggets (N/A, 20/01/2026 23:49 Lima)
+
+- **Lakers vs Nuggets Picks & Odds Today: Back LA Against Shorthanded Nuggets**: [Link](https://www.oddsshark.com/nba/lakers-nuggets-picks-odds-january-20-2026)
+- **Where to watch Lakers vs. Nuggets free stream today**: [Link](https://www.masslive.com/tv/2026/01/where-to-watch-lakers-vs-nuggets-free-stream-today.html)
+- **Underdog Promo Code GOALBONUS: Get $75 in Fantasy Bonus Entries for Lakers vs Nuggets, UCL & NHL**: [Link](https://www.goal.com/en-us/betting/underdog-promo-code-goalbonus-get-75-fantasy-bonus-entries-lakers-vs-nuggets-ucl-nhl-1-20/bltf44420640e5948b0)
+
+
+### rachel mcadams (N/A, 20/01/2026 23:49 Lima)
+
+- **Domhnall Gleeson explains why costar Rachel McAdams doesn't deserve Hollywood Walk of Fame star**: [Link](https://ew.com/domhnall-gleeson-on-why-costar-rachel-mcadams-doesnt-deserve-walk-of-fame-star-11889264)
+- **Rachel McAdams on Her Screen Journey and Hollywood Walk of Fame Honor**: [Link](https://variety.com/2026/film/focus/rachel-mcadams-hollywood-walk-fame-1236634936/)
+- **Rachel McAdams Calls Longtime Partner Jamie Linden 'My North Star' in Emotional Walk of Fame Speech**: [Link](https://people.com/rachel-mcadams-calls-partner-jamie-linden-my-north-star-11888528)
+
+
 ### aryna sabalenka (N/A, 20/01/2026 21:11 Lima)
 
 - **Australian Open Chaos: Calls to Ban Aryna Sabalenka Amid Parking Woes**: [Link](https://www.filmogaz.com/108957)
@@ -983,54 +1032,5 @@ Sin noticias relacionadas disponibles.
 - **Cuándo juegan Cagliari vs Juventus por la Serie A 2026: equipo, fecha, hora y TV en vivo**: [Link](https://www.espn.com.pe/futbol/italia/nota/_/id/16180022/cagliari-vs-juventus-por-la-serie-a-2026-equipo-fecha-hora-y-tv-en-vivo)
 - **Serie A: Por la fecha 21 se enfrentarán Cagliari y Juventus**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-por-la-fecha-21-se-enfrentaran-cagliari-y-juventus-noticia-1671833)
 - **Duelo Cagliari vs Juventus, a la espera de buena acción de Kenan Yildiz**: [Link](https://www.ucvradio.pe/mas-actualidad/duelo-cagliari-vs-juventus-a-la-espera-de-buena-accion-de-kenan-yildiz/105702/)
-
-
-### bruno mars (N/A, 17/01/2026 15:27 Lima)
-
-- **Bruno Mars Is Performing A Roblox Steal A Brainrot Concert For One Day Only**: [Link](https://www.gamespot.com/articles/bruno-mars-is-performing-a-roblox-steal-a-brainrot-concert-for-one-day-only/1100-6537477/)
-- **Bruno Mars Concert - Steal a Brainrot Guide**: [Link](https://www.ign.com/wikis/steal-a-brainrot/Bruno_Mars_Concert)
-- **Bruno Mars Goes Full ‘Brainrot’ as the Pop Icon Storms Roblox This Sunday**: [Link](https://www.goldcentralvictoria.com.au/trending/gaming/bruno-mars-goes-full-brainrot-as-the-pop-icon-storms-roblox-this-sunday/)
-
-
-### cagliari vs juventus (N/A, 17/01/2026 15:27 Lima)
-
-- **Serie A: Cagliari vs. Juventus – probable line-ups and where to watch on TV**: [Link](https://football-italia.net/cagliari-v-juventus-probable-line-ups-watch-tv/)
-- **Chiellini: ‘Juventus see Spalletti here for many years’**: [Link](https://sports.yahoo.com/articles/chiellini-juventus-see-spalletti-many-193500894.html)
-- **Soccer Streams!Serie:Juventus Vs Cagliari LIVE Streams ON TV CHANNEL**: [Link](https://www.goldderby.com/topic/soccer-streamsseriejuventus-vs-cagliari-live-streams-on-tv-channel/)
-
-
-### angers - marsella (N/A, 17/01/2026 15:27 Lima)
-
-- **Preview: Angers vs Marseille - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/angers/preview/angers-vs-marseille-prediction-team-news-lineups_589848.html)
-- **Angers vs Marseille Preview: Team News & Prediction**: [Link](https://www.thestatszone.com/angers-vs-marseille-preview-team-news-prediction-165282)
-- **Pierre-Emerick Aubameyang vs. Angers SCO – Player props & odds to score a goal on January 17**: [Link](https://prosoccerwire.usatoday.com/story/sports/2026/01/17/pierre-emerick-aubameyang-soccer-player-props-1-17-2026/88228201007/)
-
-
-### real betis - villarreal (N/A, 17/01/2026 15:27 Lima)
-
-- **Pellegrini palpita el duelo ante un rival directo por clasificar a Champions**: [Link](https://www.espn.com.ar/futbol/espana/nota/_/id/16189341/pellegrini-palpita-el-duelo-ante-un-rival-directo-por-clasificar-a-champions)
-- **Apuestas y Pronóstico del Real Betis vs Villarreal 17/01/26**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2026/enero/pronostico-real-betis-vs-villarreal-17-01-26)
-- **Betis - Villarreal | El tren de Europa pasa por La Cartuja: previa, análisis, pronóstico y predicción**: [Link](https://www.marca.com/futbol/primera-division/2026/01/17/betis-villarreal-tren-europa-pasa-cartuja-previa-analisis-pronostico-prediccion.html)
-
-
-### psv vs (N/A, 17/01/2026 15:27 Lima)
-
-- **Fortuna vs. PSV (17 Jan, 2026) Live Score**: [Link](https://www.espn.co.uk/football/match/_/gameId/741144)
-- **Preview: Fortuna Sittard vs. PSV Eindhoven - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/fortuna-sittard/preview/sittard-vs-psv-prediction-team-news-lineups_589964.html)
-- **Fortuna Sittard-PSV Eindhoven - Eredivisie 2025/2026 Statistical Preview**: [Link](https://www.whoscored.com/matches/1903806/preview/netherlands-eredivisie-2025-2026-fortuna-sittard-psv-eindhoven)
-
-
-### al-nassr vs. al-shabab (N/A, 17/01/2026 15:27 Lima)
-
-- **Al Nassr vs. Al Shabab Lineups, Head-to-Head Stats, Live Score & Results**: [Link](https://athlonsports.com/soccer/al-nassr-al-shabab-lineups-stats-live-score-results)
-- **Will Cristiano Ronaldo Play Tonight in Al-Nassr vs Al-Shabab Saudi Pro League 2025-26 Match? Here’s the**: [Link](https://www.latestly.com/sports/football/will-cristiano-ronaldo-play-tonight-in-al-nassr-vs-al-shabab-saudi-pro-league-2025-26-match-heres-the-possibility-of-cr7-featuring-in-starting-xi-7278846.html)
-- **Goals and Highlights for Al-Nassr 3-2 Al-Shabab in Saudi Pro League Match**: [Link](https://www.vavel.com/en-us/soccer/2026/01/17/1247549-al-nassr-vs-al-shabab-live-score-saudi-pro-league-match.html)
-
-
-### zwolle - az (N/A, 17/01/2026 15:27 Lima)
-
-- **PEC - AZ (17 jan., 2026) Live tussenstand**: [Link](https://www.espn.nl/voetbal/wedstrijd/_/wedstrijdId/741142)
-- **AZ geeft 6-0-zege op Ajax geen goed vervolg ondanks cornergoal Koopmeiners**: [Link](https://www.nu.nl/voetbal/6382978/az-geeft-6-0-zege-op-ajax-geen-goed-vervolg-ondanks-cornergoal-koopmeiners.html)
-- **Verloren zoon Younes Namli bezorgt PEC Zwolle met twee oogstrelende assists zege op verbijsterend AZ**: [Link](https://www.telegraaf.nl/sport/voetbal/verloren-zoon-younes-namli-bezorgt-pec-zwolle-met-twee-oogstrelende-assists-zege-op-verbijsterend-az/124529452.html)
 
 
