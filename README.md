@@ -1,3 +1,17 @@
+### nuggets - lakers (N/A, 21/01/2026 03:39 Lima)
+
+- **Lakers vs Nuggets Picks & Odds Today: Back LA Against Shorthanded Nuggets**: [Link](https://www.oddsshark.com/nba/lakers-nuggets-picks-odds-january-20-2026)
+- **Nuggets lose to Lakers at home**: [Link](https://www.nba.com/nuggets/news/nuggets-lose-to-lakers-at-home)
+- **Player Grades: Lakers vs. Nuggets**: [Link](https://www.silverscreenandroll.com/lakers-analysis/105773/player-grades-lakers-nuggets-stats-box-score-recap-lebron-james-luka-doncic)
+
+
+### palmeiras (N/A, 21/01/2026 03:39 Lima)
+
+- **Palmeiras sofre pior derrota da era Abel Ferreira em goleada para o Novorizontino**: [Link](https://ge.globo.com/futebol/times/palmeiras/noticia/2026/01/20/palmeiras-sofre-pior-derrota-da-era-abel-ferreira-em-goleada-para-o-novorizontino.ghtml)
+- **Destaque do Novorizontino celebra goleada contra o Palmeiras: 'Fizemos história'**: [Link](https://www.lance.com.br/futebol-nacional/destaque-do-novorizontino-celebra-goleada-contra-o-palmeiras-fizemos-historia.html)
+- **Abatido, Palmeiras vive alta tensão antes de clássico e jogo com Atlético**: [Link](https://www.itatiaia.com.br/esportes/futebol/futebol-nacional/futebol-paulista/palmeiras/abatido-palmeiras-vive-alta-tensao-antes-de-classico-e-jogo-com-atletico)
+
+
 ### yannick hanfmann (N/A, 20/01/2026 23:49 Lima)
 
 - **Australian Open 2026: Alcaraz in action after Sabalenka eases through – live**: [Link](https://www.theguardian.com/sport/live/2026/jan/21/aryna-sabalenka-carlos-alcaraz-australian-open-tennis-second-round-live)
@@ -1018,19 +1032,5 @@ Sin noticias relacionadas disponibles.
 - **Hamann chooses Bayern jewel Lennart Karl as player of the first half of the season**: [Link](https://fcbinside.com/2026/01/17/hamann-chooses-bayern-jewel-lennart-karl-as-player-of-the-first-half-of-the-season/)
 - **Ex-Germany coach Klinsmann assesses Karl’s chances of taking part in 2026 World Cup: 'If this guy keeps playing like this'**: [Link](https://tribuna.com/en/news/2026-01-17-exgermany-coach-klinsmann-assesses-karls-chances-of-taking-part-in-2026-world-cup-if-this/)
 - **"You have to take him with you!": Matthäus demands World Cup ticket for Bayern jewel Karl**: [Link](https://fcbinside.com/2026/01/15/you-have-to-take-him-with-you-matthaeus-demands-world-cup-ticket-for-bayern-jewel-karl/)
-
-
-### rio ave - benfica (N/A, 17/01/2026 15:27 Lima)
-
-- **Já há onze! Benfica com grande novidade para enfrentar o Rio Ave**: [Link](https://www.abola.pt/noticias/ja-ha-onze-benfica-com-grande-novidade-para-enfrentar-o-rio-ave-2026011718213354467)
-- **Tudo em aberto: representantes de André Luiz em Vila do Conde para assistir ao Rio Ave-Benfica**: [Link](https://sapo.pt/artigo/tudo-em-aberto-representantes-de-andre-luiz-em-vila-do-conde-para-assistir-ao-rio-ave-benfica-696bd2af4feb524eb6047060)
-- **“Motivados para caçar quem está à frente”**: [Link](https://www.pressreader.com/portugal/jornal-de-noticias/20260117/282505779996052)
-
-
-### cagliari vs (N/A, 17/01/2026 15:27 Lima)
-
-- **Cuándo juegan Cagliari vs Juventus por la Serie A 2026: equipo, fecha, hora y TV en vivo**: [Link](https://www.espn.com.pe/futbol/italia/nota/_/id/16180022/cagliari-vs-juventus-por-la-serie-a-2026-equipo-fecha-hora-y-tv-en-vivo)
-- **Serie A: Por la fecha 21 se enfrentarán Cagliari y Juventus**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-por-la-fecha-21-se-enfrentaran-cagliari-y-juventus-noticia-1671833)
-- **Duelo Cagliari vs Juventus, a la espera de buena acción de Kenan Yildiz**: [Link](https://www.ucvradio.pe/mas-actualidad/duelo-cagliari-vs-juventus-a-la-espera-de-buena-accion-de-kenan-yildiz/105702/)
 
 
