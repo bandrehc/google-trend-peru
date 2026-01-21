@@ -1,3 +1,31 @@
+### tormenta geomagnética peru (N/A, 21/01/2026 08:01 Lima)
+
+- **Una tormenta geomagnética, la más intensa en más de 20 años, impacta el Perú: qué es el fenómeno y cómo puede afectar al país**: [Link](https://www.infobae.com/peru/2026/01/20/una-tormenta-geomagnetica-la-mas-intensa-en-mas-de-20-anos-impacta-el-peru-que-es-el-fenomeno-y-como-puede-afectar-al-pais/)
+- **El Sol libera la mayor tormenta de radiación "en más de 20 años", según pronosticadores**: [Link](https://cnnespanol.cnn.com/2026/01/19/ciencia/tormenta-radiacion-solar-auroras-trax)
+- **IGP informa que una tormenta geomagnética se encuentra en curso en el Perú**: [Link](https://elperuano.pe/noticia/287556-igp-informa-que-una-tormenta-geomagnetica-se-encuentra-en-curso-en-el-peru)
+
+
+### radio exitosa en vivo (N/A, 21/01/2026 08:01 Lima)
+
+- **Caso incendio en galería Nicolini: detienen a mujer condenada por esclavitud laboral**: [Link](https://lpderecho.pe/primera-condena-obtenida-delito-esclavitud-laboral-peru-caso-incendio-contenedor-galeria-nicolini/)
+- **Capturan a Vilma Zeña Santamaría en San Martín de Porres, condenada por explotación laboral y esclavitud por el caso Galería Nicolini**: [Link](https://larepublica.pe/sociedad/2026/01/20/capturan-a-vilma-zena-santamaria-condenada-por-explotacion-laboral-y-esclavitud-por-el-caso-galeria-nicolini-1627600)
+- **Detienen a mujer condenada por muerte de dos jóvenes dentro de un contenedor durante incendio en Galería Nicolini**: [Link](https://rpp.pe/lima/actualidad/caso-nicolini-detienen-a-mujer-condenada-por-muerte-de-dos-jovenes-en-contenedor-de-galeria-noticia-1672333)
+
+
+### banco de la nacion (N/A, 21/01/2026 08:01 Lima)
+
+- **Cronograma de sueldo y bono de escolaridad del sector público: Pago inicia hoy 21 de enero**: [Link](https://www.infobae.com/peru/2026/01/20/cronograma-de-sueldo-y-bono-de-escolaridad-del-sector-publico-pago-inicia-manana-21-de-enero/)
+- **Bono por escolaridad 2026: ¿Cuándo se cobra y a qué trabajadores corresponde?**: [Link](https://andina.pe/agencia/noticia-bono-escolaridad-2026-cuando-se-cobra-y-a-trabajadores-corresponde-1059358.aspx)
+- **Bono Escolaridad, pagos enero 2026: ¿Cuándo se deposita y quiénes lo reciben?**: [Link](https://elcomercio.pe/respuestas/tramites/bono-escolaridad-de-400-soles-para-trabajadores-publicos-y-pensionistas-verifica-si-te-toca-cobrar-en-enero-2026-tdpe-noticia/)
+
+
+### alcaraz (N/A, 21/01/2026 08:01 Lima)
+
+- **Alcaraz cambia de modelo para lograr billete a la tercera ronda**: [Link](https://www.marca.com/tenis/open-australia/2026/01/21/alcaraz-cambia-modelo-lograr-billete-tercera-ronda.html)
+- **A cinco pasos del cielo, Alcaraz aprueba el reto del sol en Melbourne**: [Link](https://www.atptour.com/es/news/abierto-australia-2026-alcaraz-hanfmann-r2)
+- **Resumen, resultado y ganador del Alcaraz - Hanfmann: segunda ronda del Open de Australia hoy en vivo online**: [Link](https://as.com/tenis/open_australia/alcaraz-hanfmann-en-directo-segunda-ronda-del-open-de-australia-hoy-en-vivo-online-f202601-d/)
+
+
 ### nuggets - lakers (N/A, 21/01/2026 03:39 Lima)
 
 - **Lakers vs Nuggets Picks & Odds Today: Back LA Against Shorthanded Nuggets**: [Link](https://www.oddsshark.com/nba/lakers-nuggets-picks-odds-january-20-2026)
@@ -1004,33 +1032,5 @@ Sin noticias relacionadas disponibles.
 - **River vs Peñarol hoy: Resultado EN VIVO, minuto a minuto y goles de la Serie Río de La Plata 2026**: [Link](https://www.365scores.com/es/news/river-vs-penarol-resultado-vivo-goles/)
 - **River Plate enfrentará a Peñarol de Uruguay en su segundo amistoso del año: hora, TV y formaciones**: [Link](https://www.infobae.com/deportes/2026/01/17/river-plate-enfrentara-a-penarol-de-uruguay-en-su-segundo-amistoso-del-ano-hora-tv-y-formaciones/)
 - **Partido gratis, River vs. Peñarol EN VIVO vía ESPN y Disney Plus por Serie Río de la Plata**: [Link](https://depor.com/futbol-internacional/resto-del-mundo/pelota-libre-tv-en-vivo-river-vs-penarol-en-directo-espn-disney-plus-futbol-libre-tv-por-la-serie-rio-de-la-plata-2026-video-noticia/)
-
-
-### tigres - toluca (N/A, 17/01/2026 21:22 Lima)
-
-- **Liga MX: Tigres recibirá a Toluca FC por la fecha 3**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-tigres-recibira-a-toluca-fc-por-la-fecha-3-noticia-1671894)
-- **El Pelotazo Ahora | Show Completo | Tigres y Toluca revivirán la gran final**: [Link](https://www.telemundo.com/deportes/el-pelotazo/video/el-pelotazo-ahora-show-completo-tigres-y-toluca-reviviran-la-gran-final-tmvo13104844)
-- **Primera atajada de Nahuel Guzmán | Tigres vs Toluca | J3**: [Link](https://www.tvazteca.com/aztecadeportes/primera-atajada-nahuel-guzman-tigres-vs-toluca-j3/)
-
-
-### ufc (N/A, 17/01/2026 21:22 Lima)
-
-- **Josh Emmett Vs. Kevin Vallejos Set To Headline UFC Vegas 114 In March**: [Link](https://www.mmanews.com/article/josh-emmett-vs-kevin-vallejos-set-to-headline-ufc-vegas-114-in-march)
-- **Emmett and Vallejos to Headline UFC Fight Night 269**: [Link](https://www.telecomasia.net/news/mma/emmett-and-vallejos-to-headline-ufc-fight-night-269/)
-- **Featherweight Knockout Artists to Headline March 14 UFC Card**: [Link](https://www.chatsports.com/mma/a/source/featherweight-knockout-artists-to-headline-march-14-ufc-card-18458444)
-
-
-### estados unidos espacio aéreo (N/A, 17/01/2026 21:22 Lima)
-
-- **EE.UU. alerta peligro en espacio aéreo de varios países**: [Link](https://www.dw.com/es/eeuu-alerta-peligro-en-espacio-a%C3%A9reo-de-varios-pa%C3%ADses/a-75544939)
-- **EE.UU. advierte sobre “riesgos potenciales” en varios puntos del espacio aéreo de América Latina debido a actividad militar**: [Link](https://cnnespanol.cnn.com/2026/01/16/eeuu/riesgos-espacio-aereo-america-latina-actividad-militar-trax)
-- **Estados Unidos advierte al sector aéreo en el Pacífico mexicano ante “operaciones militares”**: [Link](https://elpais.com/mexico/2026-01-17/estados-unidos-advierte-al-sector-aereo-por-operaciones-militares-en-el-pacifico-mexicano.html)
-
-
-### lennart karl (N/A, 17/01/2026 15:27 Lima)
-
-- **Hamann chooses Bayern jewel Lennart Karl as player of the first half of the season**: [Link](https://fcbinside.com/2026/01/17/hamann-chooses-bayern-jewel-lennart-karl-as-player-of-the-first-half-of-the-season/)
-- **Ex-Germany coach Klinsmann assesses Karl’s chances of taking part in 2026 World Cup: 'If this guy keeps playing like this'**: [Link](https://tribuna.com/en/news/2026-01-17-exgermany-coach-klinsmann-assesses-karls-chances-of-taking-part-in-2026-world-cup-if-this/)
-- **"You have to take him with you!": Matthäus demands World Cup ticket for Bayern jewel Karl**: [Link](https://fcbinside.com/2026/01/15/you-have-to-take-him-with-you-matthaeus-demands-world-cup-ticket-for-bayern-jewel-karl/)
 
 
