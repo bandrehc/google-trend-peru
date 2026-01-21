@@ -1,3 +1,71 @@
+### aryna sabalenka (N/A, 20/01/2026 21:11 Lima)
+
+- **Australian Open Chaos: Calls to Ban Aryna Sabalenka Amid Parking Woes**: [Link](https://www.filmogaz.com/108957)
+- **Meet Aryna Sabalenka's Brazilian businessman boyfriend Georgios Frangulis whom she's ready to marry**: [Link](https://www.hellomagazine.com/celebrities/879100/meet-aryna-sabalenka-brazilian-businessman-boyfriend-georgios-frangulis-whom-she-ready-to-marry/)
+- **Aryna Sabalenka Aims for Third Australian Open Title Amidst Social Media Fame**: [Link](https://news.ssbcrack.com/aryna-sabalenka-aims-for-third-australian-open-title-amidst-social-media-fame/)
+
+
+### tormenta geomagnética (N/A, 20/01/2026 21:11 Lima)
+
+- **El Sol libera la mayor tormenta de radiación "en más de 20 años", según pronosticadores**: [Link](https://cnnespanol.cnn.com/2026/01/19/ciencia/tormenta-radiacion-solar-auroras-trax)
+- **Estados Unidos extiende alerta por tormenta solar histórica hasta el miércoles, ¿cuáles son sus efectos?**: [Link](https://www.univision.com/noticias/estados-unidos/estados-unidos-extiende-alerta-por-tormenta-solar-historica-hasta-el-miercoles-cuales-son-sus-efectos)
+- **“La más grande en 20 años”: pronostican tormenta geomagnética G4 tras una severa tormenta de radiación solar**: [Link](https://es.wired.com/articulos/la-mas-grande-en-20-anos-pronostican-tormenta-geomagnetica-g4-tras-una-severa-tormenta-de-radiacion-solar)
+
+
+### google (N/A, 20/01/2026 21:11 Lima)
+
+- **Google Gemini Prompt Injection Flaw Exposed Private Calendar Data via Malicious Invites**: [Link](https://thehackernews.com/2026/01/google-gemini-prompt-injection-flaw.html)
+- **Cybersecurity News: Gemini prompt injection flaw exposes calendar info, hacker admits to Supreme Court data leak, researchers uncover PDFSIDER malware**: [Link](https://cisoseries.com/cybersecurity-news-gemini-prompt-injection-flaw-exposes-calendar-info-hacker-admits-to-supreme-court-data-leak-researchers-uncover-pdfsider-malware/)
+- **Gemini AI assistant tricked into leaking Google Calendar data**: [Link](https://www.bleepingcomputer.com/news/security/gemini-ai-assistant-tricked-into-leaking-google-calendar-data/)
+
+
+### huachipato - u. católica (N/A, 20/01/2026 21:11 Lima)
+
+- **U. Católica vs. Huachipato (4-2): resumen y goles del partido por la Supercopa de Chile 2026 | VIDEO**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/u-catolica-de-chile-vs-huachipato-en-vivo-gratis-hoy-via-tnt-sports-hbo-max-horarios-canales-tv-y-donde-ver-partido-por-semifinal-supercopa-de-chile-video-noticia/)
+
+
+### hola (N/A, 20/01/2026 21:11 Lima)
+
+- **Camila Sodi disfruta de un viaje sorpresa a París**: [Link](https://www.hola.com/us-es/celebrities/20260121879107/camila-sodi-viaje-paris-madrid-trabajo/)
+- **TMZ revela que Karol G y Feid habrían puesto fin a su relación**: [Link](https://caretas.pe/entretenimiento/tmz-revela-que-karol-g-y-feid-habrian-puesto-fin-a-su-relacion/)
+- **Karol G habría anunciado su ruptura con Feid con esta canción que hoy cobra un nuevo significado**: [Link](https://www.eltiempo.com/cultura/gente/karol-g-habria-anunciado-su-ruptura-con-feid-con-esta-cancion-que-hoy-cobra-un-nuevo-significado-3525591)
+
+
+### novorizontino - palmeiras (N/A, 20/01/2026 21:11 Lima)
+
+- **#FicaAbel e vergonha: redes se divertem com goleada sofrida pelo Palmeiras**: [Link](https://onefootball.com/en/news/ficaabel-e-vergonha-redes-se-divertem-com-goleada-sofrida-pelo-palmeiras-42270118)
+- **Palmeiras toma quatro do Novorizontino e sofre maior derrota da era Abel**: [Link](https://www.gazetaesportiva.com/times/palmeiras/palmeiras-toma-quatro-do-novorizontino-e-sofre-a-pior-derrota-da-era-abel/?amp)
+- **Torcedores reagem a hat-trick de atacante contra o Palmeiras: 'Resenha boa'**: [Link](https://www.lance.com.br/fora-de-campo/torcedores-reagem-a-hat-trick-de-atacante-contra-o-palmeiras-resenha-boa.html)
+
+
+### slavia praga (N/A, 20/01/2026 21:11 Lima)
+
+- **¿Qué canal transmite FC Barcelona vs. Slavia Praga EN VIVO hoy 21 de enero por Champions League 2026?**: [Link](https://gestion.pe/mix/sports/que-canal-transmite-fc-barcelona-vs-slavia-praga-en-vivo-hoy-21-de-enero-por-champions-league-2026-canales-tv-nnda-nnrt-noticia/)
+- **Champions League: Slavia Praga se enfrentará ante Barcelona por la fecha 7**: [Link](https://rpp.pe/futbol/ligas-internacionales/champions-league-slavia-praga-se-enfrentara-ante-barcelona-por-la-fecha-7-noticia-1672305)
+- **Barcelona - Slavia Praga: día, hora y canal de TV para ver la penúltima fecha de la Champions League**: [Link](https://larepublica.pe/deportes/2026/01/19/barcelona-slavia-praga-fecha-hora-y-canal-de-tv-para-ver-la-penultima-fecha-de-la-champions-league-1833158)
+
+
+### bayern de múnich (N/A, 20/01/2026 21:11 Lima)
+
+- **Pronóstico Bayern Union Saint-Gilloise - Champions League 21/01/26**: [Link](https://www.sportytrader.com/es/pronosticos/bayern-union-saint-gilloise-320240/)
+- **Superar su mejor registro goleador, meta de Luis Díaz en regreso a Champions**: [Link](https://espndeportes.espn.com/futbol/champions-league/nota/_/id/16204860/bayern-vs-union-saint-gilloise-regresa-luis-diaz-fase-liga)
+- **Bayern Munich: Pavlovic resalta el ataque que comandan Díaz y Kane**: [Link](https://www.espn.com.ar/futbol/champions-league/nota/_/id/16205703/bayern-munich-pavlovic-resalta-el-ataque-que-comandan-diaz-y-kane)
+
+
+### atalanta bergamasca calcio (N/A, 20/01/2026 21:11 Lima)
+
+- **Atalanta-Inter-Juve-Napoli, quanti punti vi servono in Champions? Tutto in 10 domande e risposte**: [Link](https://www.gazzetta.it/Calcio/Champions-League/20-01-2026/champions-la-corsa-qualificazione-di-atalanta-inter-juve-e-napoli-i-punti-che-mancano.shtml)
+- **RaiNews**: [Link](https://www.facebook.com/RaiNews/photos/d41d8cd9/1367106568789193/)
+- **Notte di coppa e di campioni! Riparte l'avventura delle italiane in Europa**: [Link](https://www.sprintesport.it/nazionali/2026/01/20/news/notte-di-coppa-e-di-campioni-riparte-l-avventura-delle-italiane-in-europa-747620/)
+
+
+### liverpool football club (N/A, 20/01/2026 21:11 Lima)
+
+- **Mohamed Salah returns to Liverpool squad for Marseille clash**: [Link](https://www.espn.com/soccer/story/_/id/47670966/mohamed-salah-returns-liverpool-squad-marseille-clash)
+- **Liverpool: Dominik Szoboszlai on Mo Salah & 'disrespectful' jibe**: [Link](https://www.bbc.com/sport/football/articles/cje1k8807e0o)
+- **Salah set for Liverpool recall as Slot insists he has no issues with forward**: [Link](https://www.theguardian.com/football/2026/jan/20/dominik-szoboszlai-denies-error-against-barnsley-was-a-result-of-disrespect)
+
+
 ### borussia dortmund (N/A, 20/01/2026 15:44 Lima)
 
 - **Champions League: Holt der BVB heute Xavi zurück auf die Trainerbank?**: [Link](https://sportbild.bild.de/fussball/internationaler-fussball/champions-league-holt-der-bvb-heute-xavi-zurueck-auf-die-trainerbank-696faa6d568b91954b0e925a)
@@ -964,75 +1032,5 @@ Sin noticias relacionadas disponibles.
 - **PEC - AZ (17 jan., 2026) Live tussenstand**: [Link](https://www.espn.nl/voetbal/wedstrijd/_/wedstrijdId/741142)
 - **AZ geeft 6-0-zege op Ajax geen goed vervolg ondanks cornergoal Koopmeiners**: [Link](https://www.nu.nl/voetbal/6382978/az-geeft-6-0-zege-op-ajax-geen-goed-vervolg-ondanks-cornergoal-koopmeiners.html)
 - **Verloren zoon Younes Namli bezorgt PEC Zwolle met twee oogstrelende assists zege op verbijsterend AZ**: [Link](https://www.telegraaf.nl/sport/voetbal/verloren-zoon-younes-namli-bezorgt-pec-zwolle-met-twee-oogstrelende-assists-zege-op-verbijsterend-az/124529452.html)
-
-
-### leverkusen vs (N/A, 17/01/2026 11:29 Lima)
-
-- **Matchday 17 fixture between Hamburg and Bayer Leverkusen postponed**: [Link](https://www.bundesliga.com/en/bundesliga/news/matchday-17-fixture-hamburg-leverkusen-postponed-winter-weather-35536)
-- **Two top-division soccer games in Germany called off amid heavy snow**: [Link](https://www.sfgate.com/sports/article/bundesliga-game-between-st-pauli-and-leipzig-21285605.php)
-- **Leverkusen's Bundesliga clash with Hamburg postponed due to weather concerns**: [Link](https://www.fotmob.com/news/1ps7zavou6fpu19tats842d7cx-leverkusens-bundesliga-clash-hamburg-postponed-due-weather-concerns)
-
-
-### lens vs (N/A, 17/01/2026 11:29 Lima)
-
-- **Liga de Francia: Lens quiere mantenerse en la punta del campeonato**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-de-francia-lens-quiere-mantenerse-en-la-punta-del-campeonato-noticia-1671803)
-- **Pierre Sage eyes Franck Haise records at RC Lens after nine straight wins**: [Link](https://onefootball.com/fr/news/pierre-sage-eyes-franck-haise-records-at-rc-lens-after-nine-straight-wins-42245803)
-- **Lens vs Auxerre Prediction, 1/17/2026 Soccer Pick, Tips and Odds**: [Link](https://www.docsports.com/free-picks/soccer/2026/lens-vs-auxerre-prediction-1-17-2026-soccer-pick-tips-and-odds.html)
-
-
-### mallorca vs (N/A, 17/01/2026 11:29 Lima)
-
-- **Vedat Muriqi vs. Athletic Bilbao – Player props & odds to score a goal on January 17**: [Link](https://prosoccerwire.usatoday.com/story/sports/2026/01/16/vedat-muriqi-soccer-player-props-1-17-2026/88222552007/)
-- **Mallorca vs Athletic Bilbao - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/mallorca/news/mallorca-vs-athletic-bilbao-prediction-team-news-lineups_589925.html)
-- **Mallorca vs Athletic Club Prediction, 1/17/2026 Soccer Pick, Tips and Odds**: [Link](https://www.docsports.com/free-picks/soccer/2026/mallorca-vs-athletic-club-prediction-1-17-2026-soccer-pick-tips-and-odds.html)
-
-
-### ajax - go ahead eagles (N/A, 17/01/2026 11:29 Lima)
-
-- **Grim geeft inkijkje in Ajax-analyse na AZ-uit: 'Er zijn woorden gevallen'**: [Link](https://www.voetbalprimeur.nl/nieuws/1732297/grim-vertelt-over-analyse-na-blamage-tegen-az.html)
-- **LIVE eredivisie | Sean Steur verzuimt na heerlijke actie Bouwman score verder op te voeren voor Ajax tegen Go Ahead**: [Link](https://www.ad.nl/voetbal/live-eredivisie-sean-steur-verzuimt-na-heerlijke-actie-bouwman-score-verder-op-te-voeren-voor-ajax-tegen-go-ahead~adfbdcf8/)
-- **LIVE | Go Ahead Eagles heeft werk te doen na rust, al is het alleen maar voor het eigen gevoel**: [Link](https://www.destentor.nl/ga-eagles/live-go-ahead-eagles-heeft-werk-te-doen-na-rust-al-is-het-alleen-maar-voor-het-eigen-gevoel~af9bf26c/)
-
-
-### liverpool (N/A, 17/01/2026 11:29 Lima)
-
-- **Liverpool v Brighton: FA Cup fixture details confirmed**: [Link](https://www.liverpoolfc.com/news/liverpool-v-brighton-fa-cup-fixture-details-confirmed)
-- **Barber's message to fans as he explains decision on cup-tie ticket prices**: [Link](https://www.theargus.co.uk/sport/25773466.brightons-fa-cup-ticket-gesture-explained-paul-barber/)
-- **Official announcement over upcoming Liverpool fixture is another slap in the face to supporters**: [Link](https://onefootball.com/id/berita/official-announcement-over-upcoming-liverpool-fixture-is-another-slap-in-the-face-to-supporters-42244494)
-
-
-### espacio aéreo (N/A, 17/01/2026 11:29 Lima)
-
-- **EE.UU. advierte sobre “riesgos potenciales” en varios puntos del espacio aéreo de América Latina debido a actividad militar**: [Link](https://cnnespanol.cnn.com/2026/01/16/eeuu/riesgos-espacio-aereo-america-latina-actividad-militar-trax)
-- **EE.UU. alerta peligro en espacio aéreo de varios países**: [Link](https://www.dw.com/es/eeuu-alerta-peligro-en-espacio-a%C3%A9reo-de-varios-pa%C3%ADses/a-75544939)
-- **Estados Unidos advirtió sobre riesgos en el espacio aéreo por actividad militar en varias zonas del continente americano**: [Link](https://www.infobae.com/estados-unidos/2026/01/17/estados-unidos-advirtio-sobre-riesgos-en-el-espacio-aereo-por-actividad-militar-en-todo-el-continente-americano/)
-
-
-### liga alemana (N/A, 17/01/2026 11:29 Lima)
-
-- **Capítulo 4 La Reina del Flow: el pasado vuelve a tocar la puerta de Charly en medio de la desaparición de Yeimy**: [Link](https://www.caracoltv.com/la-reina-del-flow/capitulos/capitulo-4-la-reina-del-flow-el-pasado-vuelve-a-tocar-la-puerta-de-charly-en-medio-de-la-desaparicion-de-yeimy-pr30)
-- **🔴RB Leipzig vs. Bayern Múnich, EN VIVO YA: siga el minuto a minuto de Luis Díaz en Bundesliga**: [Link](https://www.noticiascaracol.com/golcaracol/colombianos-en-el-exterior/rb-leipzig-vs-bayern-munich-en-vivo-ya-siga-el-minuto-a-minuto-de-luis-diaz-en-bundesliga-so35)
-- **Charly discute con Erik tras su desesperación por dar con el paradero de Yeimy**: [Link](https://www.caracoltv.com/la-reina-del-flow/charly-discute-con-erik-tras-su-desesperacion-por-dar-con-el-paradero-de-yeimy-pr30)
-
-
-### egipto - nigeria (N/A, 17/01/2026 11:29 Lima)
-
-- **Pronóstico Egipto Nigeria - CAN 17/01/26**: [Link](https://www.sportytrader.com/es/pronosticos/egipto-nigeria-319053/)
-- **Confirmada la alineación oficial del partido por el tercer puesto de la Copa Africana de Naciones Egipto vs Nigeria 2025 | El Pueblo**: [Link](https://www.elpueblo.pe/deportes/confirmada-la-alineacion-oficial-del-partido-por-el-tercer-puesto-de-la-copa-africana-de-naciones-egipto-vs-nigeria-2025/215651/)
-- **Nigeria y Egipto se medirán en el partido que nadie quiere disputar**: [Link](https://www.flashscore.es/noticias/futbol-copa-de-africa-de-naciones-una-final-destinada-al-olvido/vewMy7ph/)
-
-
-### inter (N/A, 17/01/2026 11:29 Lima)
-
-- **Brazil Winger Anticipates ‘Tough Match’ As Inter Milan Travel To Udinese In Serie A Clash**: [Link](https://sempreinter.com/2026/01/17/udinese-vs-inter-luis-henrique-tough/)
-- **Udinese vs Inter Milan Prediction, 1/17/2026 Soccer Pick, Tips and Odds**: [Link](https://www.docsports.com/free-picks/soccer/2026/udinese-vs-inter-milan-prediction-1-17-2026-soccer-pick-tips-and-odds.html)
-- **Udinese celebrate 10th stadium anniversary against Inter**: [Link](https://football-italia.net/udinese-10th-stadium-anniversary-inter/)
-
-
-### borussia (N/A, 17/01/2026 11:29 Lima)
-
-- **Schwarz und Gelb mit neuem Mut**: [Link](https://www.pressreader.com/germany/welt-am-sonntag/20260117/282205132284640)
-- **Borussia Dortmund hat Gewissheit: Schlotterbeck-Schrecken vom Tisch**: [Link](https://www.derwesten.de/sport/fussball/bvb/borussia-dortmund-nico-schlotterbeck-bayern-muenchen-wechsel-gewissheit-id301959630.html)
-- **Wende des FC Bayern München, es geht um Nico Schlotterbeck**: [Link](https://www.msn.com/de-at/nachrichten/other/wende-des-fc-bayern-m%C3%BCnchen-es-geht-um-nico-schlotterbeck/ss-AA1Ulbxe)
 
 
