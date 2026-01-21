@@ -1,3 +1,52 @@
+### damac - al-nassr (N/A, 21/01/2026 12:01 Lima)
+
+- **Al Nassr vs Damac: cuándo es el partido, horarios y canales que transmiten la Saudí Pro League 2026**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/al-nassr-vs-damac-en-vivo-gratis-hoy-con-cristiano-ronaldo-via-fox-sports-horarios-canales-tv-y-donde-ver-partido-por-saudi-pro-league-2026-video-noticia/)
+- **Damac vs. Al Nassr EN VIVO y GRATIS con Cristiano Ronaldo por la Saudi Pro League 2025-26: previa del partido**: [Link](https://bolavip.com/pe/futbol-internacional/damac-vs-al-nassr-en-vivo-y-gratis-con-cristiano-ronaldo-saudi-pro-league-2025-26-hora-donde-ver-alineaciones-minuto-a-minuto-resultado-goles-resumen)
+- **Damac vs Al-Nassr LIVE Score Updates in Saudi Pro League Match**: [Link](https://www.vavel.com/en-us/soccer/2026/01/21/1247950-damac-vs-al-nassr-live-score-saudi-pro-league.html)
+
+
+### galatasaray vs atletico madrid (N/A, 21/01/2026 12:01 Lima)
+
+- **Pronósticos Galatasaray vs Atlético de Madrid: los colchoneros llegan como claros favoritos**: [Link](https://depor.com/apuestas-deportivas/galatasaray-vs-atletico-de-madrid-pronosticos-apuestas-cuotas-21-01-2026/)
+- **Champions League: Galatasaray se enfrenta ante la visita Atlético de Madrid por la fecha 7**: [Link](https://rpp.pe/futbol/ligas-internacionales/champions-league-galatasaray-se-enfrenta-ante-la-visita-atletico-de-madrid-por-la-fecha-7-noticia-1672279)
+- **Galatasaray vs Atlético de Madrid: ¡Juega en la Champions League y gana hasta S/. 600,000 con Meridianbet!**: [Link](https://ovacion.pe/noticias/nota-promocional/galatasaray-vs-atletico-madrid-juega-champions-league-gana-hasta-s-600000)
+
+
+### qarabag vs (N/A, 21/01/2026 12:01 Lima)
+
+- **Champions League: Qarabag recibirá a Eintracht Frankfurt por la fecha 7**: [Link](https://rpp.pe/futbol/ligas-internacionales/champions-league-qarabag-recibira-a-eintracht-frankfurt-por-la-fecha-7-noticia-1672280)
+- **Confirmed lineups: Qarabağ FK vs. Eintracht Frankfurt**: [Link](https://bulinews.com/confirmed-lineups-qarabag-eintracht-frankfurt)
+- **Afran Ismayilov: "It has always been difficult for us to play against German teams"**: [Link](https://offsideplus.az/en/category/champions-league/30660/afran-ismayilov-it-has-always-been-difficult-for-us-to-play-against-german-teams)
+
+
+### yahoo finance (N/A, 21/01/2026 12:01 Lima)
+
+- **Carney Speech on U.S. ‘Rupture’ and Canada’s Survival Draws Standing Ovation at Davos**: [Link](https://www.nytimes.com/2026/01/20/world/canada/carney-speech-davos-trump.html)
+- **Analysis: How Canada is positioning itself on Greenland knowing it could be next**: [Link](https://www.cnn.com/2026/01/20/americas/canada-greenland-trump-analysis-latam-intl)
+- **Carney says the old world order 'is not coming back' in Davos speech**: [Link](https://www.bbc.com/news/articles/cly3d28p4p8o)
+
+
+### davos (N/A, 21/01/2026 12:01 Lima)
+
+- **Trump in Davos - Showdown beim Weltwirtschaftsforum**: [Link](https://www.deutschlandfunk.de/trump-davos-groenland-ukraine-krieg-100.html)
+- **Vom „Doomsday Plane“ bis zur Trump-757 – so sieht die US-Präsidentenflotte aus**: [Link](https://www.fr.de/politik/vom-doomsday-plane-bis-zur-trump-757-so-sieht-die-us-praesidentenflotte-aus-94132759.html)
+- **Trump in Davos: Für das WEF reist Trump erstmals seit Oktober wieder ins Ausland | blue News**: [Link](https://www.bluewin.ch/de/news/international/fuer-das-wef-reist-trump-erstmals-seit-oktober-wieder-ins-ausland-3060411.html)
+
+
+### qarabag (N/A, 21/01/2026 12:01 Lima)
+
+- **Confirmed lineups: Qarabağ FK vs. Eintracht Frankfurt**: [Link](https://bulinews.com/confirmed-lineups-qarabag-eintracht-frankfurt)
+- **Afran Ismayilov: "It has always been difficult for us to play against German teams"**: [Link](https://offsideplus.az/en/category/champions-league/30660/afran-ismayilov-it-has-always-been-difficult-for-us-to-play-against-german-teams)
+- **"This is the most important game of my career" - VIDEO**: [Link](https://medianews.az/en/bu-karyeramin-en-vacib-oyunudur-video)
+
+
+### lakers (N/A, 21/01/2026 12:01 Lima)
+
+- **How Buss family infighting drove the $10B sale of the Lakers**: [Link](https://www.espn.com/nba/story/_/id/47594947/inside-jeanie-jerry-buss-family-infighting-drove-10b-sale-los-angeles-lakers-mark-walter)
+- **Now, the Lakers move forward under new …**: [Link](https://sports.yahoo.com/articles/now-lakers-move-forward-under-144655351.html)
+- **Jeanie Buss Cited Financial Competition As Reason For Sale Of Lakers**: [Link](https://basketball.realgm.com/wiretap/283535/Jeanie-Buss-Cited-Financial-Competition-As-Reason-For-Sale-Of-Lakers)
+
+
 ### tormenta geomagnética peru (N/A, 21/01/2026 08:01 Lima)
 
 - **Una tormenta geomagnética, la más intensa en más de 20 años, impacta el Perú: qué es el fenómeno y cómo puede afectar al país**: [Link](https://www.infobae.com/peru/2026/01/20/una-tormenta-geomagnetica-la-mas-intensa-en-mas-de-20-anos-impacta-el-peru-que-es-el-fenomeno-y-como-puede-afectar-al-pais/)
@@ -983,54 +1032,5 @@ Sin noticias relacionadas disponibles.
 - **Bad Bunny en Perú: el setlist oficial de éxitos que prenderá el “Debí Tirar Más Fotos World Tour”**: [Link](https://elcomercio.pe/respuestas/trends/bad-bunny-en-peru-el-setlist-oficial-de-exitos-que-prendera-el-debi-tirar-mas-fotos-world-tour-tdpe-noticia/)
 - **Bad Bunny en Lima 2026 ATU anuncia ampliación de horarios del Metropolitano y Corredor Azul por concierto**: [Link](https://rpp.pe/musica/conciertos/bad-bunny-en-lima-2026-amplian-horarios-del-metropolitano-y-corredor-azul-por-conciertos-en-el-estadio-nacional-noticia-1671837)
 - **Adriana Campos Salazar y Thiago Vernal reaccionan al “Chile” de Bad Bunny en Perú**: [Link](https://www.americatv.com.pe/noticias/espectaculos/adriana-campos-salazar-y-thiago-vernal-reaccionan-al-chile-bad-bunny-peru-n514918)
-
-
-### hornets - warriors (N/A, 17/01/2026 21:22 Lima)
-
-- **Spotlight on LaMelo Ball, Stephen Curry as Hornets visit Warriors**: [Link](https://www.thesportsleader.com/2026/01/16/spotlight-on-lamelo-ball-stephen-curry-as-hornets-visit-warriors/)
-- **Golden State takes on Charlotte in non-conference action**: [Link](https://abcnews.go.com/Sports/wireStory/golden-state-takes-charlotte-conference-action-129269967)
-- **Hornets vs Warriors Prediction, Picks & Odds for Tonight’s NBA Game**: [Link](https://sports.yahoo.com/articles/hornets-vs-warriors-prediction-picks-173900117.html)
-
-
-### kick (N/A, 17/01/2026 21:22 Lima)
-
-- **All-Big Ten Kick Returner in Transfer Portal Commits to MSU**: [Link](https://www.si.com/college/michiganstate/football/all-big-ten-kick-returner-transfer-portal-kenneth-williams-commits-msu-spartans)
-- **COMMITMENT: Michigan State lands Nebraska 2nd Team All- Big Ten kick returner Kenneth Williams**: [Link](https://247sports.com/college/michigan-state/article/michigan-state-football-recruiting-kenneth-williams-transfer-portal--270734270/)
-- **MSU football adds All-Big Ten kick return specialist via transfer portal**: [Link](https://spartanswire.usatoday.com/story/sports/college/spartans/football/2026/01/17/michigan-state-football-kenneth-williams-commitment/88238394007/)
-
-
-### river (N/A, 17/01/2026 21:22 Lima)
-
-- **Fire destroys school on Blueberry River First Nation north of Fort St. John**: [Link](https://www.cbc.ca/news/canada/british-columbia/blueberry-river-first-nation-school-destroyed-fire-9.7050231)
-- **(UPDATE) 'Tremendous loss': Fire engulfs 'multi-use building' on Blueberry River First Nations Reserve**: [Link](https://energeticcity.ca/2026/01/17/fire-erupts-in-blueberry-river-first-nations/)
-- **Rowdy raccoons break into house, prompting call to the police: Rocky River Police Blotter**: [Link](https://www.cleveland.com/community/2026/01/rowdy-raccoons-break-into-house-prompting-call-to-the-police-rocky-river-police-blotter.html)
-
-
-### melcochita (N/A, 17/01/2026 21:22 Lima)
-
-- **“Así no juega Perú” se manda contra la corrupción**: [Link](https://pressperu.com/2026/01/16/asi-no-juega-peru-se-manda-contra-la-corrupcion/)
-- **Melcochita feliz por homenaje en película ‘Así no juega Perú’: ¿en qué consistió?**: [Link](https://www.expreso.com.pe/entretenimiento/melcochita-feliz-por-homenaje-en-pelicula-asi-no-juega-peru-en-que-consistio-susan-leon-karen-america-miguel-vergara-noticia/1255233/)
-- **“Melcochita” feliz con homenaje en película ‘Así no juega Perú’**: [Link](https://diariouno.pe/2026/01/15/melcochita-feliz-con-homenaje-en-pelicula-asi-no-juega-peru/)
-
-
-### bucaramanga - millonarios (N/A, 17/01/2026 21:22 Lima)
-
-- **Liga BetPlay: ¿A qué hora juega Millonarios?**: [Link](https://www.espn.com.ar/futbol/colombia/nota/_/id/16192574/a-que-hora-juega-millonarios-hoy-fecha-hora-partido)
-- **Pronóstico Atlético Bucaramanga Millonarios - Primera A Colombia 17/01/26**: [Link](https://www.sportytrader.com/es/pronosticos/atletico-bucaramanga-millonarios-319243/)
-- **Transmisión EN VIVO del Bucaramanga vs Millonarios hoy: cómo mirar el partido por TV o streaming**: [Link](https://www.365scores.com/es/news/transmision-bucaramanga-vs-millonarios/)
-
-
-### nfl (N/A, 17/01/2026 21:22 Lima)
-
-- **NFL play-offs: Denver Broncos beat Buffalo Bills in overtime in Divisional Round**: [Link](https://www.bbc.com/sport/american-football/articles/cx2wn19xwj3o)
-- **Ja'Quan McMillian wrestles Brandin Cooks for pivotal Josh Allen INT**: [Link](https://uk.sports.yahoo.com/news/jaquan-mcmillian-wrestles-brandin-cooks-012102354.html)
-- **Buffalo eyes return to AFC title game, 5 other things to know about Bills vs. Broncos**: [Link](https://www.si.com/nfl/bills/onsi/playoffs-buffalo-eyes-return-to-afc-title-game-5-other-things-to-know-about-bills-vs-broncos)
-
-
-### peñarol - river plate (N/A, 17/01/2026 21:22 Lima)
-
-- **River vs Peñarol hoy: Resultado EN VIVO, minuto a minuto y goles de la Serie Río de La Plata 2026**: [Link](https://www.365scores.com/es/news/river-vs-penarol-resultado-vivo-goles/)
-- **River Plate enfrentará a Peñarol de Uruguay en su segundo amistoso del año: hora, TV y formaciones**: [Link](https://www.infobae.com/deportes/2026/01/17/river-plate-enfrentara-a-penarol-de-uruguay-en-su-segundo-amistoso-del-ano-hora-tv-y-formaciones/)
-- **Partido gratis, River vs. Peñarol EN VIVO vía ESPN y Disney Plus por Serie Río de la Plata**: [Link](https://depor.com/futbol-internacional/resto-del-mundo/pelota-libre-tv-en-vivo-river-vs-penarol-en-directo-espn-disney-plus-futbol-libre-tv-por-la-serie-rio-de-la-plata-2026-video-noticia/)
 
 
