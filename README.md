@@ -1,3 +1,73 @@
+### uefa europa league (N/A, 22/01/2026 11:41 Lima)
+
+- **Lazetic ahead of Freiburg**: [Link](https://www.maccabi-tlv.co.il/en/2026/01/lazetic-ahead-of-freiburg/)
+- **Freiburg vs Maccabi Tel Aviv LIVE Score Updates in UEFA Europa League Match**: [Link](https://www.vavel.com/en-us/soccer/2026/01/22/1248010-freiburg-vs-maccabi-tel-aviv-live-score-europa-league.html)
+- **Freiburg vs. Maccabi Tel Aviv Europa League preview: Team news and predicted lineups**: [Link](https://onefootball.com/de/news/freiburg-vs-maccabi-tel-aviv-europa-league-preview-team-news-and-predicted-lineups-42274461)
+
+
+### bugonia (N/A, 22/01/2026 11:41 Lima)
+
+- **Emma Stone Just Broke Oscar Nominations Records With Her ‘Bugonia’ Nods**: [Link](https://www.hollywoodreporter.com/movies/movie-news/emma-stone-oscar-nominations-records-1236480529/)
+- **How to Watch Emma Stone’s Oscar-Worthy Performance in ‘Bugonia’**: [Link](https://www.yahoo.com/entertainment/movies/articles/watch-emma-stone-oscar-worthy-143326981.html)
+- **Emma Stone scores 6th Oscar nomination for 'Bugonia.' Could she win?**: [Link](https://www.azcentral.com/story/entertainment/movies/billgoodykoontz/2026/01/22/emma-stone-oscar-nomination-bugonia/88294655007/)
+
+
+### scotiabank (N/A, 22/01/2026 11:41 Lima)
+
+- **Exxon Mobil (XOM) Price Target Raised by $9 at JPMorgan**: [Link](https://finance.yahoo.com/news/exxon-mobil-xom-price-target-035026569.html)
+- **Exxon Mobil (XOM) Named Among 11 Best Energy Stocks for Dividends in 2026, Price Target Raised to $133**: [Link](https://intellectia.ai/news/stock/exxon-mobil-xom-named-among-11-best-energy-stocks-for-dividends-in-2026-price-target-raised-to-133)
+- **EOG Resources price target lowered to $133 from $136 at Barclays**: [Link](https://www.tipranks.com/news/the-fly/eog-resources-price-target-lowered-to-133-from-136-at-barclays-thefly)
+
+
+### reniec (N/A, 22/01/2026 11:41 Lima)
+
+- **RENIEC amplía horarios tras caída de su sistema por dos días consecutivos**: [Link](https://caretas.pe/nacional/reniec-amplia-horarios-tras-caida-de-su-sistema-por-dos-dias-consecutivos/)
+- **Ciudadanos madrugan y hacen largas colas para realizar trámites en la Reniec**: [Link](https://www.atv.pe/noticia/ciudadanos-madrugan-y-hacen-largas-colas-para-realizar-tramites-en-la-reniec/)
+- **¿Aún no te entregan tu DNI? Consulta AQUÍ el estado de tu trámite**: [Link](https://elcomercio.pe/respuestas/tramites/aun-no-te-entregan-tu-dni-consulta-aqui-el-estado-de-tu-tramite-tdpe-noticia/)
+
+
+### bono por escolaridad (N/A, 22/01/2026 11:41 Lima)
+
+- **Cronograma de sueldo y bono de escolaridad para el sector público: Las fechas del pago**: [Link](https://www.infobae.com/peru/2026/01/20/cronograma-de-sueldo-y-bono-de-escolaridad-del-sector-publico-pago-inicia-manana-21-de-enero/)
+- **Disposiciones reglamentarias para el otorgamiento de la bonificación por escolaridad 2026 [Decreto Supremo 002-2026-EF]**: [Link](https://lpderecho.pe/disposiciones-reglamentarias-para-otorgamiento-de-la-bonificacion-por-escolaridad-2026-decreto-supremo-002-2026-ef/)
+- **Bono de escolaridad 2026 de S/ 400: ¿Quiénes lo cobran, cuáles son los requisitos y cuándo se paga?**: [Link](https://peru21.pe/economia/bono-escolaridad-2026-requisitos-y-fechas-de-pago-de-los-s-400/)
+
+
+### zambrano (N/A, 22/01/2026 11:41 Lima)
+
+- **Carlos Zambrano, Miguel Trauco y Sergio Peña denunciados por presunto abuso sexual: joven argentina acusa a jugadores de Alianza Lima**: [Link](https://trome.com/deportes/futbol-peruano/carlos-zambrano-segio-pena-y-miguel-trauco-son-acusados-de-abuso-sexual-en-uruguay-por-joven-argentina-video-alianza-lima-noticia/)
+- **Denuncian a futbolistas Carlos Zambrano, Miguel Trauco y Sergio Peña por presunto abuso sexual, según reporta medio argentino**: [Link](https://rpp.pe/lima/actualidad/denuncian-a-futbolistas-carlos-zambrano-miguel-trauco-y-sergio-pena-por-presunto-abuso-sexual-segun-reporta-medio-argentino-noticia-1672615)
+- **Tres jugadores de Alianza Lima denunciados por abuso sexual, según medio argentino**: [Link](https://elcomercio.pe/deporte-total/tres-jugadores-de-alianza-lima-denunciados-por-abuso-sexual-segun-medio-argentino-noticia/)
+
+
+### sinners (N/A, 22/01/2026 11:41 Lima)
+
+- **Oscar nominations announced live from Los Angeles**: [Link](https://www.bbc.com/news/live/cnvggypzp10t)
+- **2026 Oscar nominations: The complete list of nominees**: [Link](https://www.latimes.com/entertainment-arts/awards/story/2026-01-22/oscar-nominations-2026-list-nominees)
+- **Oscars: ‘Sinners,’ ‘One Battle After Another’ and Warner Bros. Poised to Make History and Break Records**: [Link](https://variety.com/2026/film/awards/final-academy-awards-predictions-2026-1236631556/)
+
+
+### maps (N/A, 22/01/2026 11:41 Lima)
+
+- **Winter Storm Forecast: What to Expect as Snow and Ice Move Across the U.S. This Weekend**: [Link](https://www.nytimes.com/2026/01/22/weather/winter-storm-forecast-snow-ice.html)
+- **Major Storm Threatens Northeast With Heavy Snow, Mix**: [Link](https://weather.com/storms/winter/video/northeast-winter-storm-fern-heavy-snow-wintry-mix-weekend)
+- **Maps show where winter storm threatens to bring heavy snow, brutal cold this weekend**: [Link](https://www.cbsnews.com/news/maps-winter-storm-snow-cold-weekend/)
+
+
+### nominados al oscar 2026 (N/A, 22/01/2026 11:41 Lima)
+
+- **Nominaciones de los premios Oscar 2026: lista completa de categorías**: [Link](https://cnnespanol.cnn.com/2026/01/22/entretenimiento/premios-oscar-2026-nominados-orix)
+- **Premios Oscar 2026: lista completa de nominados de la gala más prestigiosa del cine**: [Link](https://www.infobae.com/entretenimiento/2026/01/22/premios-oscar-2026-lista-completa-de-nominados-de-la-gala-mas-prestigiosa-del-cine/)
+- **En directo | La Academia de Cine de Hollywood anuncia los nominados para los Oscar de 2026**: [Link](https://elpais.com/cultura/premios-oscar/2026-01-22/la-academia-de-cine-de-hollywood-anuncia-los-nominados-para-los-oscar-de-2026.html)
+
+
+### sunat (N/A, 22/01/2026 11:41 Lima)
+
+- **SUNAT: evita multas participando en el curso virtual obligatorio para microempresas**: [Link](https://actualidadempresarial.pe/noticia/sunat-evita-multas-participando-en-el-curso-virtual-obligatorio-para-microempresas/4e0799f4-7d86-4b23-a5d4-f7ae46f879b4/1)
+- **Si eres microempresario y no pagas impuestos, así será el curso del Congreso para evitar sanciones de SUNAT (y sin cambiar de razón social)**: [Link](https://www.infobae.com/peru/2026/01/22/si-eres-microempresario-y-no-pagas-impuestos-asi-sera-el-curso-del-congreso-para-evitar-sanciones-de-sunat-y-sin-cambiar-de-razon-social/)
+- **Primera infracción tributaria: SUNAT aplicará capacitación en lugar de multa o cierre. Infórmate**: [Link](https://www.elperuano.pe/noticia/287682-primera-infraccion-tributaria-sunat-aplicara-capacitacion-en-lugar-de-multa-o-cierre-informate)
+
+
 ### sorteo la tinka resultados (N/A, 22/01/2026 08:02 Lima)
 
 - **Resultados de La Tinka del 21 de enero: conoce quiénes fueron los afortunados ganadores**: [Link](https://elcomercio.pe/videos/entretenimiento/resultados-de-la-tinka-del-21-de-enero-conoce-quienes-fueron-los-afortunados-ganadores-nnav-amtv-video-noticia/)
@@ -963,75 +1033,5 @@ Sin noticias relacionadas disponibles.
 - **América: Comisión Disciplinaria quita expulsión a Ramón Juárez**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/16191554/america-comision-disciplinaria-quita-expulsion-a-ramon-juarez)
 - **La decisión de la Comisión Disciplinaria sobre Ramón Juárez**: [Link](https://www.tudn.com/futbol/liga-mx/america-podra-contar-ramon-juarez-partido-pachuca)
 - **Le quitan la roja a Ramón Juárez**: [Link](https://www.nvinoticias.com/deportes/futbol/le-quitan-la-roja-ramon-juarez/181992)
-
-
-### corinthians (N/A, 18/01/2026 15:28 Lima)
-
-- **Juan Carlos Amorós, do Gotham FC, fala sobre o Corinthians no Mundial: “Nunca devemos subestimar”**: [Link](https://somosfanaticos.fans/br/futebol-feminino/juan-carlos-amoros-do-gotham-fc-fala-sobre-o-corinthians-no-mundial-nunca-devemos-subestimar)
-- **FIFA confirma transmissão global inédita da fase final da Copa dos Campeões Feminina 2026, com exibição gratuita e grandes emissoras**: [Link](https://jornalgrandebahia.com.br/2026/01/fifa-confirma-transmissao-global-inedita-da-fase-final-da-copa-dos-campeoes-feminina-2026-com-exibicao-gratuita-e-grandes-emissoras/)
-- **Futebol feminino: Corinthians inicia semana de treinos antes de viagem para Londres**: [Link](https://www.corinthians.com.br/futebol-feminino-corinthians-inicia-semana-de-treinos-antes-de-viagem-para-londres)
-
-
-### espn (N/A, 18/01/2026 15:28 Lima)
-
-- **NFL play-offs LIVE: Houston Texans at New England Patriots before Los Angeles Rams face Chicago Bears**: [Link](https://www.bbc.com/sport/american-football/live/c781p0192q3t)
-- **Rebet Referral Code ROTO: Deposit Match up to $100 Rebet Cash (Jan. 18)**: [Link](https://www.rotowire.com/news/rebet-referral-code-roto-deposit-match-up-to-100-rebet-cash-jan-18-103004)
-- **NFL PrizePicks, Underdog Plays for Divisional Round Sunday on January 18**: [Link](https://www.actionnetwork.com/nfl/nfl-prizepicks-underdog-plays-for-divisional-round-sunday-on-january-18)
-
-
-### lyon (N/A, 18/01/2026 15:28 Lima)
-
-- **Temps sec et gris : la météo à Lyon dimanche**: [Link](https://www.lyoncapitale.fr/meteo/temps-sec-et-gris-la-meteo-a-lyon-dimanche)
-- **Lyon : météo du 17 au 19 janvier 2026, pluie samedi, éclaircies dimanche, froid lundi**: [Link](https://figurespubliques.fr/region/lyon-meteo-du-17-au-19-janvier-2026-pluie-samedi-eclaircies-dimanche-froid-lundi/)
-- **Météo Lyon : un week-end sous le signe de la grisaille et du brouillard**: [Link](https://actus.meteocity.com/actualites-meteo/meteo-lyon-un-week-end-sous-le-signe-de-la-grisaille-et-du-brouillard-3938)
-
-
-### barsa vs (N/A, 18/01/2026 15:28 Lima)
-
-- **Why Raphinha Isn’t Playing for Barcelona vs. Real Sociedad**: [Link](https://www.si.com/soccer/why-raphinha-isnt-playing-barcelona-vs-real-sociedad-1-18-26)
-- **Real Sociedad vs Barcelona, La Liga: TV & Streaming, Live Thread**: [Link](https://www.barcablaugranes.com/barcelona-la-liga/110356/real-sociedad-barcelona-live-stream-lineups-kickoff-time-tv-channel-how-to-watch-la-liga-online)
-- **Hansi Flick: 'We have to win at Anoeta'**: [Link](https://www.fcbarcelona.com/en/football/first-team/news/4435974/hansi-flick-we-have-to-win-at-anoeta)
-
-
-### cuándo juega barcelona (N/A, 18/01/2026 15:28 Lima)
-
-- **Racing 0-2 Barcelona: resumen, goles y resultado**: [Link](https://as.com/futbol/copa_del_rey/racing-barcelona-en-directo-octavos-copa-del-rey-hoy-en-vivo-f202601-d/)
-- **El éxito es de alquiler**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20260117/1002603355/exito-alquiler.html)
-- **Hansi Flick, luego del triunfo ante Racing: "Me ha gustado mucho la actitud de mi equipo"**: [Link](https://www.espn.com.ar/futbol/espana/nota/_/id/16187711/hansi-flick-declaraciones-racing-santander-vs-barcelona-octavos-de-final-copa-del-rey)
-
-
-### édouard mendy (N/A, 18/01/2026 15:28 Lima)
-
-- **AFCON 2025: Morocco targets the Côte d’Ivoire and Cameroon record**: [Link](https://foot-africa.com/en/news/afcon-2025-morocco-targets-the-cote-divoire-and-cameroon-record-1047941/)
-- **CAN 2025: Yassine Bounou makes history in the competition**: [Link](https://sports.yahoo.com/articles/2025-yassine-bounou-makes-history-160000256.html)
-- **AFCON 2025: Africa’s Saudi-Arabia-based goalkeepers to guard the final**: [Link](https://africasoccer.com/afcon-2025-africas-saudi-arabia-based-goalkeepers-to-guard-the-final/)
-
-
-### brahim díaz (N/A, 18/01/2026 15:28 Lima)
-
-- **Diaz could be the key for Morocco in Afcon final against Senegal**: [Link](https://www.beinsports.com/en-mena/football/2025-africa-cup-of-nations/articles-video/diaz-could-be-the-key-for-morocco-in-afcon-final-against-senegal-2026-01-17)
-- **AFCON Star Brahim Díaz Set to Return to Real Madrid Reinvigorated**: [Link](https://dailypioneer.com/news/morocco---s-brahim-d--az-is-africa-cup-star-thriving-away-from-real-madrid-s-turmoil)
-- **"Bring the Cup Home": Real Madrid Stars Rally Behind Brahim Diaz Ahead of AFCON Final**: [Link](https://m.elbotola.com/en/article/2026-01-18-18-34-572.html)
-
-
-### sadio mané (N/A, 18/01/2026 15:28 Lima)
-
-- **Senegal urges Mané to continue: “He represents Africa and the world”**: [Link](https://www.beinsports.com/en-us/soccer/africa-cup-of-nations/articles/senegal-urges-man%C3%A9-to-continue-he-represents-africa-and-the-world-2026-01-18)
-- **CAN 2025: The Teranga 'Musketeers' aim to establish a Senegalese dynasty**: [Link](https://www.besoccer.com/new/can-2025-the-teranga-and-39-musketeersand-39-aim-to-establish-a-senegalese-dynasty-1390301)
-- **Pape Thiaw Says Sadio Mané ‘Deserved 2025 Ballon d’Or’ Ahead of Senegal–Morocco Clash**: [Link](https://www.moroccoworldnews.com/2026/01/275423/pape-thiaw-says-sadio-mane-deserved-2025-ballon-dor-ahead-of-senegal-morocco-clash/)
-
-
-### guimarães - porto (N/A, 18/01/2026 15:28 Lima)
-
-- **FC Porto não perde em Guimarães há 10 anos e o treinador do Vitória era… Sérgio Conceição**: [Link](https://onefootball.com/en/news/fc-porto-nao-perde-em-guimaraes-ha-10-anos-e-o-treinador-do-vitoria-era-sergio-conceicao-42251580)
-- **Uma segunda volta para todos**: [Link](https://www.ojogo.pt/opiniao/artigo/uma-segunda-volta-para-todos/18041748)
-- **UM BOM DESAFIO À CONSISTÊNC­IA**: [Link](https://www.pressreader.com/portugal/o-jogo/20260118/281758455688108)
-
-
-### torino - roma (N/A, 18/01/2026 11:31 Lima)
-
-- **Torino, contro la Roma Pedersen torna titolare: ecco le scelte di Baroni**: [Link](https://www.gazzetta.it/calcio/fantanews/18-01-2026/torino-la-probabile-formazione-contro-la-roma.shtml)
-- **Torino-Roma, le formazioni ufficiali**: [Link](https://www.torinofc.it/news/18/01/2026/torino-roma-le-formazioni-ufficiali_40804)
-- **Torino: Baroni recupera Ismajli e Simeone per la Roma**: [Link](https://www.ansa.it/sito/notizie/sport/calcio/2026/01/18/torino-baroni-recupera-ismajli-e-simeone-per-la-roma_40b49756-5d32-4012-9ec9-bff1004fb9ba.html)
 
 
