@@ -1,3 +1,24 @@
+### nike (N/A, 22/01/2026 03:39 Lima)
+
+- **NIKE, Inc. Announces New Geography Leadership Appointments**: [Link](https://www.businesswire.com/news/home/20260120575539/en/NIKE-Inc.-Announces-New-Geography-Leadership-Appointments)
+- **Nike Shifts Top Leadership in China, EMEA as Turnaround Efforts Continue**: [Link](https://wwd.com/footwear-news/shoe-industry-news/nike-vice-president-general-manager-emea-china-apla-1238465711/)
+- **Nike reshuffles regional leadership as it looks to strengthen key markets**: [Link](https://www.reuters.com/business/nike-reshuffles-regional-leadership-it-looks-strengthen-key-markets-2026-01-20/)
+
+
+### djokovic (N/A, 22/01/2026 03:39 Lima)
+
+- **Australian Open LIVE: Djokovic moves on with Anisimova in overnight action in Melbourne**: [Link](https://www.flashscore.com/news/tennis-australian-open-atp-singles-australian-open-live-djokovic-moves-on-with-anisimova-in-overnight-action-in-melbourne/hn7Br7Wb/)
+- **Lorenzo Musetti, Ben Shelton head to 3rd round in Melbourne**: [Link](https://www.yardbarker.com/tennis/articles/lorenzo_musetti_ben_shelton_head_to_3rd_round_in_melbourne/s1_17058_43365515)
+- **2026 Australian Open: Novak Djokovic powers into the third round with clinical play in Melbourne**: [Link](https://www.olympics.com/en/news/2026-australian-open-novak-djokovic-powers-into-the-third-round-with-clinical-play-in-melbourne)
+
+
+### sao paulo fc (N/A, 22/01/2026 03:39 Lima)
+
+- **São Paulo anunciará mais demissões em breve**: [Link](https://onefootball.com/de/news/sao-paulo-anunciara-mais-demissoes-em-breve-42276561)
+- **Diretor social do São Paulo, Dedé também deixa seu cargo**: [Link](https://tmc.com.br/esporte/dede-deixa-diretoria-social-saopaulo/)
+- **– Casares renunciou. E agora?**: [Link](https://professorrafaelporcari.com/2026/01/21/casares-renunciou-e-agora/)
+
+
 ### rectificación retiro afp integra (N/A, 21/01/2026 21:14 Lima)
 
 - **Rectificacion del retiro de AFP: Así se da seguimiento a la segunda solicitud**: [Link](https://www.infobae.com/peru/2026/01/21/rectificacion-del-retiro-de-afp-asi-se-da-seguimiento-a-la-segunda-solicitud/)
@@ -1011,26 +1032,5 @@ Sin noticias relacionadas disponibles.
 - **Aston Villa v Everton: Premier League – live**: [Link](https://www.theguardian.com/football/live/2026/jan/18/aston-villa-v-everton-premier-league-live)
 - **Football accumulator tips for Sunday January 18: Back our acca at 7-1 with bet365**: [Link](https://www.racingpost.com/sport/football-tips/football-acca-tips/football-accumulator-tips-for-sunday-january-18-back-our-acca-at-7-1-with-bet365-a5DAY9K5U7Le/)
 - **Premier League predictions and best bets: Aston Villa to beat Everton and close gap on leaders Arsenal**: [Link](https://www.skysports.com/football/news/11095/13494770/premier-league-predictions-and-best-bets-aston-villa-to-beat-everton-and-close-gap-on-leaders-arsenal)
-
-
-### feyenoord (N/A, 18/01/2026 11:31 Lima)
-
-- **'Geen Feyenoord–Sparta voor Ueda: spits niet op tijd fit'**: [Link](https://1908.nl/artikelen/geen-feyenoord-sparta-voor-ueda-spits-niet-op-tijd-fit)
-- **Van Persie legt uit waarom Timber op de bank zit**: [Link](https://www.soccernews.nl/news/van-persie-legt-uit-waarom-timber-op-de-bank-zit/)
-- **Live Eredivisie | Valente raakt paal in derby tegen Sparta, morrende fans in Kuip**: [Link](https://www.nu.nl/voetbal/6383007/live-eredivisie-valente-raakt-paal-in-derby-tegen-sparta-morrende-fans-in-kuip.html)
-
-
-### gregorio rodríguez (N/A, 18/01/2026 11:31 Lima)
-
-- **Melgar de exportación: delantero se va del ‘Dominó’ rumbo a un grande de Argentina**: [Link](https://depor.com/futbol-peruano/descentralizado/melgar-gregorio-rodriguez-jugara-en-san-lorenzo-de-argentina-tras-no-ser-tomado-en-cuenta-por-juan-reynoso-liga-1-video-noticia/)
-- **A pedir de Ayude, San Lorenzo cerró dos nuevos refuerzos**: [Link](https://www.tycsports.com/san-lorenzo/san-lorenzo-cerro-dos-nuevos-refuerzos-gonzalo-abrego-gregorio-rodriguez-id708383.html)
-- **Mauricio Cardillo se sumó a los entrenamientos del “Ciclón”**: [Link](https://www.infoeme.com/nota/2026-1-13-15-5-0-mauricio-cardillo-se-sumo-a-los-entrenamientos-del-ciclon)
-
-
-### atlético madrid - alavés (N/A, 18/01/2026 11:31 Lima)
-
-- **Atlético de Madrid - Alavés hoy, en directo: última hora en el Metropolitano, LaLiga EA Sports en vivo**: [Link](https://as.com/futbol/primera/atletico-alaves-en-directo-laliga-ea-sports-hoy-en-vivo-f202601-d/)
-- **Atlético - Alavés en directo | LaLiga EA Sports hoy, en vivo**: [Link](https://www.marca.com/futbol/laliga-ea-sports/atletico-alaves/2026/01/18/01_0101_20260118_175_173-directo.html)
-- **Apuestas y Pronóstico del Atlético Madrid vs Alavés 18/01/26**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2026/enero/pronostico-atletico-madrid-vs-alaves-18-01-26)
 
 
