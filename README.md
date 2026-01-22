@@ -1,3 +1,71 @@
+### roma vs (N/A, 22/01/2026 15:34 Lima)
+
+- **‘The one that takes all our attention’ – Gasperini admits to overlooking Europe for Milan clash**: [Link](https://sempremilan.com/gasperini-admits-overlooking-europe-milan)
+- **Why new Roma signings Malen and Vaz will not play against Stuttgart in Europa League**: [Link](https://football-italia.net/why-malen-vaz-cant-play-in-roma-stuttgart/)
+- **Evan Ferguson in line to return tomorrow as boss hails recent form and insists he remains a Roma player**: [Link](https://www.independent.ie/sport/soccer/evan-ferguson-in-line-to-return-tomorrow-as-boss-hails-recent-form-and-insists-he-remains-a-roma-player/a795049073.html)
+
+
+### roma (N/A, 22/01/2026 15:34 Lima)
+
+- **Una mostra racconta la "Roma del Terzo Millennio"**: [Link](https://www.italpress.com/una-mostra-racconta-la-roma-del-terzo-millennio/)
+- **Roma oltre il passato: allo Spazio WeGil arriva "Roma Terzo Millennio"**: [Link](https://www.romaweekend.it/articoli/roma-terzo-millennio/)
+- **Roma può essere una città contemporanea?**: [Link](https://www.domusweb.it/it/arte/2026/01/20/roma-citta-contemporanea-mostre-maxxi-macro.html)
+
+
+### rangers vs (N/A, 22/01/2026 15:34 Lima)
+
+- **Football Bet of the Day: Seventh time lucky for Rangers in Europe on Thursday?**: [Link](https://mrfixitstips.co.uk/football-bet-of-the-day-seventh-time-lucky-for-rangers-in-europe-on-thursday/)
+- **I was first Scot to play in Bulgaria, here's what to expect from Ludogorets**: [Link](https://www.thescottishsun.co.uk/sport/15828713/scottish-player-bulgaria-rangers-europa-ludogorets/)
+- **'We have to give the fans something to be proud of'**: [Link](https://www.bbc.com/sport/articles/cp82z8dp9qno)
+
+
+### dinamo zagreb (N/A, 22/01/2026 15:34 Lima)
+
+- **Inter Milan beat Barcelona to the signature of 18-year-old Croatian defensive gem – Report**: [Link](https://semprebarca.com/inter-milan-beat-barcelona-to-the-signature-of-18-year-old-croatian-defensive-gem-report/)
+- **Barcelona set to miss out on 18-year-old target as Inter Milan make move**: [Link](https://barcauniversal.com/barcelona-set-to-miss-out-on-18-year-old-target-as-inter-milan-make-move/)
+- **Barcelona losing ground on Milan giants in Jakirovic battle**: [Link](https://www.tribalfootball.com/article/soccer-laliga-barcelona-losing-ground-on-milan-giants-in-jakirovic-battle-549c674e-a326-4610-8a31-9cec6de950e3)
+
+
+### celta de vigo (N/A, 22/01/2026 15:34 Lima)
+
+- **Celta - Lille, en directo: Europa League, en vivo hoy**: [Link](https://as.com/futbol/uefa/celta-lille-en-directo-europa-league-en-vivo-hoy-f202601-d/)
+- **Celta de Vigo - Lille en directo: ¡Expulsado Sotelo! | Europa League hoy en vivo**: [Link](https://www.marca.com/futbol/europa-league/celta-lille/2026/01/22/01_0104_20260122_176_429-directo.html)
+- **Apuestas y Pronóstico del Celta Vigo vs Lille 22/01/26**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/2026/enero/pronostico-celta-vigo-vs-lille-22-01-26)
+
+
+### niza vs (N/A, 22/01/2026 15:34 Lima)
+
+- **Europa League: Se enfrentan Nice y Go Ahead Eagles por la fecha 7**: [Link](https://rpp.pe/futbol/ligas-internacionales/europa-league-se-enfrentan-nice-y-go-ahead-eagles-por-la-fecha-7-noticia-1672472)
+
+
+### superintendencia del mercado de valores (N/A, 22/01/2026 15:34 Lima)
+
+- **Bolsa de Valores de Lima: SMV cobrará contribución por invertir, ¿a qué productos afectará? | TU-DINERO**: [Link](https://gestion.pe/tu-dinero/bolsa-de-valores-de-lima-smv-cobrara-contribucion-por-invertir-a-que-productos-afectara-noticia/)
+- **📲 El crecimiento urbano impulsa la adopción de ciudades inteligentes en Perú para mejorar eficiencia, sostenibilidad y calidad de vida.**: [Link](https://www.facebook.com/story.php?story_fbid=1313536064137335&id=100064428623066)
+- **SMV reduce tasas bursátiles y amplía beneficios hasta 2026: revisa cómo impacta en tus inversiones**: [Link](https://www.elperuano.pe/noticia/287640-smv-reduce-tasas-bursatiles-y-amplia-beneficios-hasta-2026-revisa-como-impacta-en-tus-inversiones)
+
+
+### laura pausini (N/A, 22/01/2026 15:34 Lima)
+
+- **Laura Pausini: una vita per costruire una carriera internazionale, "Due vite" per una cover che diventa un processo**: [Link](https://www.allmusicitalia.it/approfondimenti-musica-italiana/w-la-mamma/cover-due-vite-laura-pausini-italia.html)
+- **Quando la cover diventa polemica: Laura Pausini di nuovo al centro delle critiche**: [Link](https://www.banquo.it/musica/2026/01/22/quando-la-cover-diventa-polemica-laura-pausini-di-nuovo-al-centro-delle-critiche)
+- **La Pennicanza, Fiorello apre la settimana con una puntata esplosiva: difesa a spada tratta di Laura Pausini sul caso Mengoni**: [Link](https://corrieredellumbria.it/news/cultura--spettacoli-e-tv/420825/la-pennicanza-fiorello-apre-la-settimana-con-una-puntata-esplosiva-difesa-a-spada-tratta-di-laura-pausini-sul-caso-mengoni.html)
+
+
+### braga - nottingham forest (N/A, 22/01/2026 15:34 Lima)
+
+- **Braga v Nottingham Forest, Rangers v Ludogorets, and more: Europa League – live**: [Link](https://www.theguardian.com/football/live/2026/jan/22/braga-v-nottingham-forest-rangers-v-ludogorets-and-more-europa-league-live)
+- **Best bets: Europa League tips for 22 January 2026**: [Link](https://www.sportinglife.com/football/news/best-bets-europa-league-tips-for-22-january-2026/229911)
+- **Igor Jesus a doubt for Nottingham Forest European tie – who could start up front?**: [Link](https://www.nytimes.com/athletic/6990918/2026/01/22/igor-jesus-injury-forest-braga/)
+
+
+### inter miami (N/A, 22/01/2026 15:34 Lima)
+
+- **Cuándo juegan Alianza Lima vs. Inter Miami por la Noche Blanquiazul: equipo, fecha, hora y TV en vivo**: [Link](https://www.espn.com.pe/futbol/nota/_/id/16202378/alianza-lima-vs-inter-miami-amistoso-noche-blanquiazul-equipo-fecha-hora-y-tv-en-vivo)
+- **Baja confirmada en Inter Miami para enfrentar a Alianza Lima**: [Link](https://www.americatv.com.pe/deportes/futbol-mundial/baja-confirmada-inter-miami-enfrentar-alianza-lima-n452403)
+- **Javier Mascherano opinó sobre Alianza Lima y definió a Pablo Guede**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/javier-mascherano-opino-de-alianza-lima-y-definio-a-pablo-guede-ultimas-noticia/)
+
+
 ### uefa europa league (N/A, 22/01/2026 11:41 Lima)
 
 - **Lazetic ahead of Freiburg**: [Link](https://www.maccabi-tlv.co.il/en/2026/01/lazetic-ahead-of-freiburg/)
@@ -963,75 +1031,5 @@ Sin noticias relacionadas disponibles.
 - **EN VIVO: Terminó el primer tiempo con un marcador 1-0 a favor de Lanús sobre Sarmiento (LB)**: [Link](https://www.directvsports.com/futbol/en-vivo-termino-el-primer-tiempo-con-un-marcador-1-0-a-favor-de-lanus-sobre-sarmiento-lb-20260115-0008.html)
 - **Lanús vs Sarmiento por los treintaidosavos de Copa Argentina EN VIVO. Seguilo minuto a minuto por la web de TN.**: [Link](https://tn.com.ar/deportes/futbol/2026/01/18/lanus-vs-sarmiento-en-vivo-por-los-treintaidosavos-de-la-copa-argentina-hora-donde-ver-y-formaciones/)
 - **Lanús vs Sarmiento de la Banda: resultado EN VIVO y estadísticas de la Copa Argentina**: [Link](https://www.365scores.com/es/news/lanus-vs-sarmiento-de-la-banda-vivo-copa/)
-
-
-### santa fe - águilas doradas (N/A, 18/01/2026 21:19 Lima)
-
-- **Pronóstico Santa Fe Águilas Doradas Rionegro - Primera A Colombia 18/01/26**: [Link](https://www.sportytrader.com/es/pronosticos/santa-fe-rionegro-aguilas-319388/)
-- **EN VIVO: siga el minuto a minuto de Santa Fe vs. Águilas Doradas en Liga BetPlay**: [Link](https://www.elespectador.com/deportes/futbol-colombiano/santa-fe/en-vivo-siga-el-minuto-a-minuto-de-santa-fe-vs-aguilas-doradas-en-liga-betplay-goles-alineaciones-video-resumen-noticias-hoy/)
-- **Historial Santa Fe vs Águilas Doradas: una leve ventaja para el 'cardenal'**: [Link](https://www.vavel.com/colombia/futbol-colombiano/2026/01/18/independiente-santa-fe/1247756-historial-santa-fe-vs-aguilas-doradas-una-leve-ventaja-para-el-cardenal.html)
-
-
-### emape (N/A, 18/01/2026 21:19 Lima)
-
-- **Habla el esposo de víctima del accidente en Panamericana Sur: “Era su segundo día de trabajo”**: [Link](https://www.infobae.com/peru/2026/01/15/habla-el-esposo-de-victima-del-accidente-en-panamericana-sur-era-su-segundo-dia-de-trabajo/)
-- **Municipalidad de Lima rindió homenaje póstumo a trabajadores de EMAPE fallecidos en accidente**: [Link](https://elperuano.pe/noticia/287297-municipalidad-de-lima-rindio-homenaje-postumo-a-trabajadores-de-emape-fallecidos-en-accidente)
-- **Se suspendió fiesta de aniversario de Lima ¿Cuándo es la nueva fecha?**: [Link](https://caretas.pe/sociedad/municipalidad-suspende-fiesta-por-aniversario-de-lima-por-muerte-de-trabajadores-de-emape/)
-
-
-### pachuca - américa (N/A, 18/01/2026 21:19 Lima)
-
-- **Pachuca vs América: posibles alineaciones de la Jornada 3**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/16195415/pachuca-vs-america-alineaciones-formaciones-liga-mx-jornada-3)
-- **Liga MX: Pachuca y Club América se enfrentan para cerrar el último partido de la Fecha 3**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-pachuca-y-club-america-se-enfrentan-para-cerrar-el-ultimo-partido-de-la-fecha-3-noticia-1672003)
-- **La tarjeta roja y el penal sobre Brian Rodríguez que no sancionaron y perjudicó a América**: [Link](https://americamonumental.bolavip.com/ligamx/la-tarjeta-roja-y-el-penal-sobre-brian-rodriguez-que-no-sancionaron-y-perjudico-a-america)
-
-
-### arturo vidal (N/A, 18/01/2026 21:19 Lima)
-
-- **El emocionante mensaje de aliento de Arturo Vidal ante incendios forestales**: [Link](https://www.t13.cl/noticia/deportes13/el-emocionante-mensaje-aliento-arturo-vidal-ante-incendios-forestales-18-1-2026)
-- **El emotivo mensaje de Arturo Vidal a víctimas de los incendios en Biobío y Ñuble**: [Link](https://www.pagina7.cl/redes-sociales/el-emotivo-mensaje-de-arturo-vidal-a-victimas-de-los-incendios-en-biobio-y-nuble/)
-- **La arenga de Arturo Vidal a los afectados por los incendios forestales**: [Link](https://www.cooperativa.cl/noticias/deportes/futbol/arturo-vidal/la-arenga-de-arturo-vidal-a-los-afectados-por-los-incendios-forestales/2026-01-18/203320.html)
-
-
-### disney (N/A, 18/01/2026 21:19 Lima)
-
-- **Roger Allers, ‘The Lion King’ Co-Director, Dies at 76**: [Link](https://www.hollywoodreporter.com/movies/movie-news/roger-allers-dead-director-the-lion-king-1236477359/)
-- **‘The White Lotus’ Adds Two-Time Oscar Nominee to Cast**: [Link](https://www.thedailybeast.com/the-lion-king-director-roger-allers-dies-at-76/)
-- **‘The Lion King’ Legend Dead at 76: Peers Confirm Death of Roger Allers**: [Link](https://www.suggest.com/the-lion-king-legend-dead-at-76-peers-confirm-death-of-roger-allers/2912605/)
-
-
-### boca vs (N/A, 18/01/2026 21:19 Lima)
-
-- **Boca vs. Olimpia, por un amistoso internacional: seguilo EN VIVO**: [Link](https://www.tycsports.com/boca-juniors/amistosos-clubes-2026-boca-juniors-vs-olimpia-clasicos-sudamericanos-id708273.html)
-- **Boca vs. Olimpia, hoy EN VIVO por un amistoso: horario, cómo ver y formaciones**: [Link](https://www.ole.com.ar/boca-juniors/boca-vs-olimpia-partido-amistoso-horario-formaciones-ver-vivo-minuto-minuto-resumen-fotos-videos_0_eFaldgVw6A.html)
-- **Transmisión EN VIVO del Boca vs Olimpia hoy: cómo mirar el partido por TV o streaming**: [Link](https://www.365scores.com/es/news/boca-vs-olimpia-como-ver-transmision/)
-
-
-### disney plus (N/A, 18/01/2026 21:19 Lima)
-
-- **Disney+ and Hulu February 2026 Schedules Announced**: [Link](https://www.vitalthrills.com/disney-plus-and-hulu-february-2026/)
-- **February 2026 Will Be a Rough Month For Disney+ Subscribers**: [Link](https://thedirect.com/article/disney-plus-february-2026-subscribers)
-- **What’s Coming To Hulu & Hulu On Disney+ In February 2026**: [Link](https://whatsondisneyplus.com/whats-coming-to-hulu-hulu-on-disney-in-february-2026/)
-
-
-### santos - juárez (N/A, 18/01/2026 21:19 Lima)
-
-- **Qué canal pasa Santos vs Juárez hoy: dónde ver GRATIS y EN VIVO el partido de la Liga MX**: [Link](https://www.365scores.com/es/news/santos-vs-juarez-donde-ver-liga-mexico/)
-- **Liga MX: Santos Laguna y FC Juárez se miden por la fecha 3**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-santos-laguna-y-fc-juarez-se-miden-por-la-fecha-3-noticia-1671987)
-- **Muchos goles, pocos puntos**: [Link](https://mexico.as.com/futbol/futbol-mexicano/muchos-goles-pocos-puntos-f202601-n/)
-
-
-### sampaio corrêa futebol e esporte - botafogo (N/A, 18/01/2026 21:19 Lima)
-
-- **📋 Botafogo escalado para tentar manter os 100% no Cariocão 2026**: [Link](https://onefootball.com/pt-br/noticias/botafogo-escalado-para-tentar-manter-os-100-no-cariocao-2026-42255422)
-- **Gol Rodrigo Andrade - Sampaio Corrêa 1 X 1 Botafogo - Campeonato Carioca 2026**: [Link](https://www.uol.com.br/esporte/videos/gols/2026/01/18/gol-rodrigo-andrade---sampaio-correa-1-x-1-botafogo---campeonato-carioca-2026.htm)
-- **Análise: Botafogo tem Kauan Toledo como destaque em derrota de virada marcada por expulsão boba**: [Link](https://oglobo.globo.com/esportes/futebol/botafogo/noticia/2026/01/18/analise-botafogo-tem-kauan-toledo-como-destaque-em-derrota-de-virada-marcada-por-expulsao-boba.ghtml)
-
-
-### tarjeta roja (N/A, 18/01/2026 15:28 Lima)
-
-- **América: Comisión Disciplinaria quita expulsión a Ramón Juárez**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/16191554/america-comision-disciplinaria-quita-expulsion-a-ramon-juarez)
-- **La decisión de la Comisión Disciplinaria sobre Ramón Juárez**: [Link](https://www.tudn.com/futbol/liga-mx/america-podra-contar-ramon-juarez-partido-pachuca)
-- **Le quitan la roja a Ramón Juárez**: [Link](https://www.nvinoticias.com/deportes/futbol/le-quitan-la-roja-ramon-juarez/181992)
 
 
