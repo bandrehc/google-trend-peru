@@ -1,3 +1,31 @@
+### sorteo la tinka resultados (N/A, 22/01/2026 08:02 Lima)
+
+- **Resultados de La Tinka del 21 de enero: conoce quiénes fueron los afortunados ganadores**: [Link](https://elcomercio.pe/videos/entretenimiento/resultados-de-la-tinka-del-21-de-enero-conoce-quienes-fueron-los-afortunados-ganadores-nnav-amtv-video-noticia/)
+- **Resultados de La Tinka HOY, miércoles 21 de enero: ver pozo millonario y jugada ganadora**: [Link](https://libero.pe/ocio/2026/01/21/resultados-de-tinka-hoy-miercoles-21-de-enero-pozo-millonario-jugada-ganadora-intralot-624280)
+- **Resultados de La Tinka del miércoles 14 de enero: sorteo y números de la jugada ganadora del pozo millonario**: [Link](https://depor.com/peru/la-tinka-en-vivo-hoy-miercoles-14-de-enero-2026-ver-resultados-numeros-ganadores-del-ultimo-sorteo-quien-gano-pozo-millonario-intralot-boliyapa-loterias-de-peru-noticia/)
+
+
+### cambio de dolar (N/A, 22/01/2026 08:02 Lima)
+
+- **Precio del dólar volvió a caer: Así se cotiza el tipo de cambio hoy 22 de enero en Perú**: [Link](https://www.infobae.com/peru/2026/01/21/dolar-cotizacion-de-apertura-hoy-21-de-enero-en-peru/)
+- **¿Cuál es la cotización del dólar hoy miércoles 21 de enero del 2026?**: [Link](https://andina.pe/agencia/noticia-cual-es-cotizacion-del-dolar-hoy-miercoles-21-enero-del-2026-1060118.aspx)
+- **El dólar cierra en S/ 3.357 y mantiene tendencia a la baja: ¿La coyuntura influirá en su valor los próximos días? [INFORME]**: [Link](https://rpp.pe/economia/economia/precio-del-dolar-cierra-en-3357-soles-y-se-mantiene-tendencia-a-baja-como-puede-afectar-coyuntura-politica-a-tipo-de-cambio-jose-jeri-noticia-1672534)
+
+
+### trome (N/A, 22/01/2026 08:02 Lima)
+
+- **Pisa pelota | El ‘Buque’ no se metió la mano al bolsillo y solo fichó puro pelotero de taco bajo | OPINION**: [Link](https://trome.com/opinion/el-bombardero/pisa-pelota-el-buque-no-se-metio-la-mano-al-bolsillo-y-solo-ficho-puro-pelotero-de-taco-bajo-noticia/)
+- **Samahara se ríe cuando le dicen que busque a su madre Melissa: “No la conocen… Ni pregunta por mis hijos”**: [Link](https://trome.com/espectaculos/tv/samahara-lobaton-como-se-rie-tras-llanto-de-su-madre-melissa-klug-revelan-chats-ja-ja-no-la-conocenni-pregunta-por-mis-hijos-video-farandula-noticia/)
+- **Difunden chats en los que Samahara Lobatón se refiere a su madre, Melissa Klug, sobre caso contra Bryan Torres: "Está haciendo su show"**: [Link](https://larepublica.pe/espectaculos/2026/01/21/difunden-chats-en-los-que-samahara-lobaton-se-refiere-a-su-madre-melissa-klug-sobre-caso-contra-bryan-torres-esta-haciendo-su-show-1345659)
+
+
+### australian open 2026 (N/A, 22/01/2026 08:02 Lima)
+
+- **Tennis-Osaka tones down outfit and beats Cirstea to reach Australian Open third round**: [Link](https://wkzo.com/2026/01/22/tennis-osaka-tones-down-outfit-and-beats-cirstea-to-reach-australian-open-third-round/)
+- **2026 Australian Open: Osaka [17th] vs. Cirstea [41st] Prediction, Odds and Match Preview**: [Link](https://sportsbookwire.usatoday.com/story/sports/sports-betting/2026/01/20/naomi-osaka-vs-sorana-cirstea-australian-open-tennis-odds-lines-betting-1-22-2026/88273819007/)
+- **Error-strewn Osaka edges past 'mad' Cirstea in fiery Australian Open clash**: [Link](https://www.flashscore.com/news/tennis-australian-open-wta-singles-error-strewn-osaka-edges-past-mad-cirstea-in-fiery-australian-open-clash/Uend5XAF/)
+
+
 ### nike (N/A, 22/01/2026 03:39 Lima)
 
 - **NIKE, Inc. Announces New Geography Leadership Appointments**: [Link](https://www.businesswire.com/news/home/20260120575539/en/NIKE-Inc.-Announces-New-Geography-Leadership-Appointments)
@@ -1005,32 +1033,5 @@ Sin noticias relacionadas disponibles.
 - **Torino, contro la Roma Pedersen torna titolare: ecco le scelte di Baroni**: [Link](https://www.gazzetta.it/calcio/fantanews/18-01-2026/torino-la-probabile-formazione-contro-la-roma.shtml)
 - **Torino-Roma, le formazioni ufficiali**: [Link](https://www.torinofc.it/news/18/01/2026/torino-roma-le-formazioni-ufficiali_40804)
 - **Torino: Baroni recupera Ismajli e Simeone per la Roma**: [Link](https://www.ansa.it/sito/notizie/sport/calcio/2026/01/18/torino-baroni-recupera-ismajli-e-simeone-per-la-roma_40b49756-5d32-4012-9ec9-bff1004fb9ba.html)
-
-
-### aston villa (N/A, 18/01/2026 11:31 Lima)
-
-- **Cuándo juegan Aston Villa vs. Everton por la Premier League: equipo, fecha, hora y TV en vivo**: [Link](https://www.espn.com.pe/futbol/inglaterra/nota/_/id/16184060/aston-villa-vs-everton-fecha-21-de-la-premier-league-equipo-fecha-hora-y-tv-en-vivo)
-- **Premier League: Everton se enfrentará a Aston Villa por la fecha 22**: [Link](https://rpp.pe/futbol/ligas-internacionales/premier-league-everton-se-enfrentara-a-aston-villa-por-la-fecha-22-noticia-1671945)
-- **Conor Gallagher joins from Atletico Madrid**: [Link](https://www.tottenhamhotspur.com/news/2026/january/new-signing-conor-gallagher-joins-from-atletico-madrid/)
-
-
-### feyenoord - sparta rotterdam (N/A, 18/01/2026 11:31 Lima)
-
-- **Opstelling Feyenoord: Ueda ontbreekt, Valente neemt plek van Timber over**: [Link](https://www.fr12.nl/nieuws/dit-is-de-opstelling-van-feyenoord-voor-de-stadsderby-tegen-sparta-98923)
-- **Live Eredivisie | Valente raakt paal in derby tegen Sparta, morrende fans in Kuip**: [Link](https://www.nu.nl/voetbal/6383007/live-eredivisie-valente-raakt-paal-in-derby-tegen-sparta-morrende-fans-in-kuip.html)
-- **Van Persie over reserveplaats Timber: "Dat heeft niets met mijn keuze te maken...**: [Link](https://1908.nl/artikelen/van-persie-over-reserveplaats-timber-dat-heeft-niets-met-mijn-keuze-te-maken)
-
-
-### feyenoord vs (N/A, 18/01/2026 11:31 Lima)
-
-- **Preview: Feyenoord vs. Sparta Rotterdam - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/feyenoord/preview/feyenoord-vs-sparta-prediction-team-news-lineups_590017.html)
-- **Sparta Rotterdam Aims to End Derby Drought Against Struggling Feyenoord**: [Link](https://news.ssbcrack.com/sparta-rotterdam-aims-to-end-derby-drought-against-struggling-feyenoord/)
-
-
-### aston villa - everton (N/A, 18/01/2026 11:31 Lima)
-
-- **Aston Villa v Everton: Premier League – live**: [Link](https://www.theguardian.com/football/live/2026/jan/18/aston-villa-v-everton-premier-league-live)
-- **Football accumulator tips for Sunday January 18: Back our acca at 7-1 with bet365**: [Link](https://www.racingpost.com/sport/football-tips/football-acca-tips/football-accumulator-tips-for-sunday-january-18-back-our-acca-at-7-1-with-bet365-a5DAY9K5U7Le/)
-- **Premier League predictions and best bets: Aston Villa to beat Everton and close gap on leaders Arsenal**: [Link](https://www.skysports.com/football/news/11095/13494770/premier-league-predictions-and-best-bets-aston-villa-to-beat-everton-and-close-gap-on-leaders-arsenal)
 
 
