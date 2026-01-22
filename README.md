@@ -1,3 +1,73 @@
+### rectificación retiro afp integra (N/A, 21/01/2026 21:14 Lima)
+
+- **Rectificacion del retiro de AFP: Así se da seguimiento a la segunda solicitud**: [Link](https://www.infobae.com/peru/2026/01/21/rectificacion-del-retiro-de-afp-asi-se-da-seguimiento-a-la-segunda-solicitud/)
+- **¿Cómo saber si mi solicitud para el retiro de AFP en 2026 fue rechazada? Estos son los pasos para verificar**: [Link](https://libero.pe/tiempoextra/2026/01/20/como-saber-mi-solicitud-retiro-de-afp-en-2026-fue-rechazada-son-pasos-verificar-726140)
+- **Vence plazo para retirar hasta S/22.000 del fondo AFP: podrás recibir tu dinero de Integra, Profuturo, Habitat o Prima a partir de esta fecha**: [Link](https://larepublica.pe/economia/2026/01/19/vence-plazo-para-retirar-hasta-s22000-del-fondo-afp-podras-recibir-tu-dinero-de-integra-profuturo-habitat-o-prima-a-partir-de-esta-fecha-atmp-1800592)
+
+
+### argentinos jrs. - midland (N/A, 21/01/2026 21:14 Lima)
+
+- **Con Enzo Pérez de titular, Argentinos iguala ante Midland en su debut por la Copa Argentina**: [Link](https://www.infobae.com/deportes/2026/01/22/con-enzo-perez-de-titular-argentinos-juniors-iguala-con-midland-en-su-debut-por-la-copa-argentina/)
+- **Juega el "Pupi" por Copa Argentina**: [Link](https://www.diariolamanana.com.ar/nota-juega-el-pupi-por-copa-argentina-153906)
+- **El turno del subcampeón: Argentinos Juniors debutará contra Ferrocarril Midland**: [Link](http://enelarea.com.ar/post/el-turno-del-subcampeon-argentinos-juniors-debutara-contra-ferrocarril-midland)
+
+
+### carioca serie a (N/A, 21/01/2026 21:14 Lima)
+
+- **Botafogo hizo respetar la casa en el Campeonato Carioca**: [Link](https://ovacion.pe/noticias/futbol-internacional/botafogo-hizo-respetar-casa-campeonato-carioca)
+- **ATUAÇÕES FN: Montoro é o melhor e Santi entra bem em Botafogo 1 x 0 Volta Redonda**: [Link](https://www.fogaonet.com/noticias-do-botafogo/atuacoes-fn-montoro-e-o-melhor-e-santi-entra-bem-em-botafogo-1-x-0-volta-redonda/)
+- **Botafogo 1 X 0 Volta Redonda - 3 Rodada - Campeonato Carioca 2026**: [Link](https://www.uol.com.br/esporte/videos/gols/2026/01/21/botafogo-1-x-0-volta-redonda---3-rodada---campeonato-carioca-2026.htm)
+
+
+### américa-mg - atlético mineiro (N/A, 21/01/2026 21:14 Lima)
+
+- **Sampaoli abre o jogo sobre rodagem de elenco no Atlético**: [Link](https://noataque.com.br/futebol/campeonato-mineiro/time/atletico-mg/noticia/2026/01/21/time-titular-sampaoli-abre-plano-do-atletico-para-classico-contra-o-cruzeiro/)
+- **📋 América e Atlético ESCALADOS para o 1º clássico do Mineiro**: [Link](https://onefootball.com/pt-br/noticias/america-e-atletico-escalados-para-o-1-classico-do-mineiro-42276798)
+- **Aos 14 min do 1º tempo - gol de dentro da área de Gabriel Barros do América-MG contra o Atlético-MG**: [Link](https://ge.globo.com/futebol/video/aos-14-min-do-1o-tempo-gol-de-dentro-da-area-de-gabriel-barros-do-america-mg-contra-o-atletico-mg-14275755.ghtml)
+
+
+### kevin serna (N/A, 21/01/2026 21:14 Lima)
+
+- **Alianza Lima está a la expectativa: Boca Juniors y el plan para cerrar el fichaje de Kevin Serna**: [Link](https://depor.com/futbol-peruano/descentralizado/alianza-lima-kevin-serna-boca-juniors-y-el-plan-para-ficharlo-cuanto-dinero-recibirian-los-blanquiazules-liga-1-noticia/)
+- **Serna dejaría Fluminense para ir a un gigante de Sudamérica**: [Link](https://www.americatv.com.pe/deportes/futbol-mundial/serna-dejaria-fluminense-fichar-gigante-sudamerica-n452398)
+- **Prensa de Argentina reaccionó ante interés de Boca Juniors en futbolista peruano**: [Link](https://libero.pe/futbol-internacional/2026/01/21/prensa-de-argentina-reacciono-interes-de-boca-juniors-en-futbolista-peruano-918624)
+
+
+### santa fe - junior (N/A, 21/01/2026 21:14 Lima)
+
+- **Después de cinco años, Santa Fe puede volver a festejar título en El Campín**: [Link](https://www.espn.com.ar/futbol/colombia/nota/_/id/16210192/despues-de-cinco-anos-santa-fe-puede-volver-a-festejar-titulo-en-el-campin-superliga)
+- **Superliga BetPlay: Rodallega marca un golazo en el Santa Fe vs. Junior**: [Link](https://espndeportes.espn.com/futbol/colombia/nota/_/id/16212352/superliga-betplay-rodallega-golazo-santa-fe-vs-junior)
+- **Santa Fe-Junior EN VIVO ONLINE: resultado EN DIRECTO**: [Link](https://elcomercio.pe/deporte-total/colombia/santa-fe-vs-junior-en-vivo-gratis-hoy-via-rcn-fanatiz-horarios-canales-tv-y-donde-ver-partido-de-vuelta-por-la-final-de-superliga-colombia-video-noticia/)
+
+
+### flamengo - vasco da gama (N/A, 21/01/2026 21:14 Lima)
+
+- **Bastidores: decisão de Bap por retorno do time principal do Flamengo dividiu opiniões e gerou incômodo**: [Link](https://ge.globo.com/futebol/times/flamengo/noticia/2026/01/21/bastidores-decisao-de-bap-por-retorno-do-time-principal-do-flamengo-dividiu-opinioes-e-gerou-incomodo.ghtml)
+- **Clássico dos Milhões começa com 8 minutos de atraso por conta do grande volume de fumaça das arquibancadas**: [Link](https://br.bolavip.com/vasco/classico-dos-milhoes-comeca-com-8-minutos-de-atraso-por-conta-do-grande-volume-de-fumaca-das-arquibancadas)
+- **Perto de ser vendido, Rayan está fora do clássico entre Vasco e Flamengo**: [Link](https://www.cnnbrasil.com.br/esportes/futebol/vasco-da-gama/perto-de-ser-vendido-rayan-esta-fora-do-classico-entre-vasco-e-flamengo/)
+
+
+### guarany de bagé - grêmio (N/A, 21/01/2026 21:14 Lima)
+
+- **Jogos do Grêmio hoje (21): Tricolor entra em campo pelo Gauchão e decide vaga na final da Copinha**: [Link](https://gremioplay.com.br/jogos-do-gremio-hoje-21-gauchao-copinha/)
+- **Guarany de Bagé x Grêmio pelo Campeonato Gaúcho: onde assistir ao vivo, horário e escalação**: [Link](https://www.estadao.com.br/esportes/futebol/guarany-de-bage-x-gremio-campeonato-gaucho-onde-assistir-ao-vivo-horario-escalacao-npres/)
+- **O último vestibular antes do primeiro grande compromisso do ano**: [Link](https://realnews.com.br/o-ultimo-vestibular-antes-do-primeiro-grande-compromisso-do-ano/)
+
+
+### peñarol - colo-colo (N/A, 21/01/2026 21:14 Lima)
+
+- **¡En vivo! Colo Colo enfrenta a Peñarol en Uruguay en un nuevo duelo amistoso**: [Link](https://www.emol.com/noticias/Deportes/2026/01/21/1189280/colocolo-penarol-amistoso-relato-envivo.html)
+- **Peñarol - Colo Colo en vivo: partido amistoso Serie Río de La Plata, en directo**: [Link](https://chile.as.com/futbol/penarol-colo-colo-en-vivo-partido-amistoso-serie-rio-de-la-plata-en-directo-f202601-d/)
+- **Peñarol vs. Colo Colo EN VIVO: minuto a minuto por Serie Río de la Plata 2026**: [Link](https://libero.pe/futbol-internacional/2026/01/20/penarol-vs-colo-colo-en-vivo-gratis-partido-de-serie-rio-de-plata-via-espn-disney-plus-lbev-1064080)
+
+
+### negociación colectiva (N/A, 21/01/2026 21:14 Lima)
+
+- **CAS: alza de sueldo, CTS y bonos para trabajadores, la propuesta en negociación colectiva**: [Link](https://gestion.pe/economia/cas-alza-de-sueldo-cts-y-bonos-para-trabajadores-la-propuesta-en-negociacion-colectiva-noticia/)
+- **Trabajadores del sector público piden aumento de sueldo de S/700, aguinaldo completo y bono único desde S/600: los detalles**: [Link](https://larepublica.pe/economia/2026/01/18/negociacion-colectiva-trabajadores-estatales-piden-aumento-salarial-de-s700-aguinaldo-completo-y-bono-desde-s600-hnews-1300464)
+- **Aumento de S/700 al sector público 2026: Consulta aquí si eres beneficiario**: [Link](https://lahora.pe/economia/aumento-de-s-700-al-sector-publico-2026-consulta-aqui-si-eres-beneficiario/)
+
+
 ### bayer (N/A, 21/01/2026 15:37 Lima)
 
 - **Nach dem Glyphosat-Boost: Glyphosat-Knoten geplatzt? Was die Bayer-Aktie jetzt antreibt - 21.01.2026**: [Link](https://www.wallstreet-online.de/nachricht/20398303-glyphosat-boost-glyphosat-knoten-geplatzt-bayer-aktie-antreibt)
@@ -962,75 +1032,5 @@ Sin noticias relacionadas disponibles.
 - **Atlético de Madrid - Alavés hoy, en directo: última hora en el Metropolitano, LaLiga EA Sports en vivo**: [Link](https://as.com/futbol/primera/atletico-alaves-en-directo-laliga-ea-sports-hoy-en-vivo-f202601-d/)
 - **Atlético - Alavés en directo | LaLiga EA Sports hoy, en vivo**: [Link](https://www.marca.com/futbol/laliga-ea-sports/atletico-alaves/2026/01/18/01_0101_20260118_175_173-directo.html)
 - **Apuestas y Pronóstico del Atlético Madrid vs Alavés 18/01/26**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2026/enero/pronostico-atletico-madrid-vs-alaves-18-01-26)
-
-
-### racing de estrasburgo - metz (N/A, 18/01/2026 11:31 Lima)
-
-- **"Rosenior ? Un électrochoc" : la mobilisation contre BlueCo a réuni plusieurs centaines de supporters strasbourgeois**: [Link](https://www.dna.fr/videos/rosenior-un-electrochoc-la-mobilisation-contre-blueco-a-reuni-plusieurs-centaines-de-supporters-strasbourgeois-35ump85)
-- **Des banderoles anti-multipropriété déployées à Strasbourg lors du derby face à Metz**: [Link](https://www.msn.com/fr-fr/sport/other/des-banderoles-anti-multipropri%C3%A9t%C3%A9-d%C3%A9ploy%C3%A9es-%C3%A0-strasbourg-lors-du-derby-face-%C3%A0-metz/ar-AA1UrRzf)
-- **Strasbourg : les supporters manifestent contre la multipropriété**: [Link](https://www.footmercato.net/a5598843700168336243-strasbourg-les-supporters-manifestent-contre-la-multipropriete)
-
-
-### princesa irene de grecia (N/A, 18/01/2026 11:31 Lima)
-
-- **La millonaria indemnización que Irene de Grecia recibió por Tatoi, el palacio griego en el que será enterrada**: [Link](https://www.infobae.com/espana/2026/01/18/la-millonaria-indemnizacion-que-irene-de-grecia-recibio-por-tatoi-el-palacio-griego-en-el-que-sera-enterrada/)
-- **La princesa Marie-Chantal no estará en el funeral de Irene de Grecia: un motivo de peso, dos ausencias más y las palabras del príncipe Pablo**: [Link](https://www.vanitatis.elconfidencial.com/casas-reales/2026-01-18/princesa-marie-chantal-funeral-irene-de-grecia-motivo_4286012/)
-- **Música elegida por la Reina Sofía, una bandera helena y el apoyo familiar: los detalles de la capilla ardiente de la Princesa Irene de Grecia**: [Link](https://www.elmundo.es/espana/2026/01/17/696b72a3e85ece98358b4586.html)
-
-
-### real sociedad vs. barcelona (N/A, 18/01/2026 07:51 Lima)
-
-- **Real Sociedad vs Barcelona: posibles alineaciones, J20 de LaLiga**: [Link](https://www.espn.com.ar/futbol/espana/nota/_/id/16194733/real-sociedad-vs-barcelona-laliga-2026-alineaciones)
-- **¿A qué hora juega y qué canal transmite FC Barcelona vs. Real Sociedad EN VIVO HOY por LaLiga 2026 en USA y México?**: [Link](https://gestion.pe/mix/sports/a-que-hora-juega-y-que-canal-transmite-fc-barcelona-vs-real-sociedad-en-vivo-hoy-por-laliga-2026-en-usa-y-mexico-hora-y-canales-de-tv-nnda-nnrt-noticia/)
-- **Baquetas listas para el golpe**: [Link](https://as.com/opinion/baquetas-listas-para-el-golpe-f202601-n/)
-
-
-### getafe - valencia c. f. (N/A, 18/01/2026 07:51 Lima)
-
-- **Alineación posible del Valencia ante el Getafe en LaLiga EA Sports**: [Link](https://as.com/futbol/primera/alineacion-posible-del-valencia-ante-el-getafe-en-laliga-ea-sports-f202601-n/)
-- **Apuestas y pronósticos Getafe vs Valencia**: [Link](https://www.marca.com/apuestas-deportivas/predicciones/2026/01/17/apuestas-pronosticos-getafe-vs-valencia.html)
-- **Pronóstico Getafe Valencia - LaLiga 18/01/26**: [Link](https://www.sportytrader.com/es/pronosticos/getafe-valencia-319245/)
-
-
-### parma vs (N/A, 18/01/2026 07:51 Lima)
-
-- **Serie A: Por la fecha 21, Parma recibirá a Genoa**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-por-la-fecha-21-parma-recibira-a-genoa-noticia-1671932)
-- **Parma vs Genoa CFC pronostico y comparación de cuotas 18.01.2026**: [Link](https://www.livetipsportal.com/es/pronosticos-apuestas-deportivas/parma-vs-cfc-genua-serie-a-11129205/)
-- **CARLOS CUESTA: "WE WANT TO BUILD CONSISTENCY IN OUR RESULTS"**: [Link](https://www.parmacalcio1913.com/en/main-news/carlos-cuesta-pre-parma-genoa/)
-
-
-### parma - genoa (N/A, 18/01/2026 07:51 Lima)
-
-- **LIVE Parma-Genoa 0-0 Serie A 2025/2026: Ammonito Vitinha per fallo**: [Link](https://sport.virgilio.it/dirette/live/serie-a/18-1-2026/parma-genoa/2558714/)
-- **Tutto il calcio in Diretta**: [Link](https://www.diretta.it/news/calcio-live-in-campo-parma-genoa-0-0/4pRc3tmm/)
-- **Perché Norton-Cuffy non gioca Parma-Genoa: infortunio, scelta tecnica o mercato?**: [Link](https://www.goal.com/it/liste/perche-norton-cuffy-non-gioca-parma-genoa-infortunio-scelta-tecnica-o-mercato/bltce1fd3dc28ed28e0)
-
-
-### agua (N/A, 18/01/2026 07:51 Lima)
-
-- **Sedapal anuncia cortes de agua en cinco distritos de Lima este domingo 18 y lunes 19 de enero: ¿En qué zonas?**: [Link](https://www.infobae.com/peru/2026/01/17/sedapal-anuncia-cortes-de-agua-en-cinco-distritos-de-lima-este-domingo-18-y-lunes-19-de-enero-en-que-zonas/)
-- **¡A llenar los baldes desde YA! Anuncian corte de agua el 18 y 19 de enero: AQUÍ la lista de distritos afectados**: [Link](https://www.exitosanoticias.pe/actualidad/a-llenar-baldes-ya-anuncian-corte-agua-18-19-enero-aqui-lista-distritos-afectados-n166848)
-- **Corte de agua en Lima: zonas afectadas y horario de Sedapal para este domingo 18 y lunes 19 de enero**: [Link](https://larepublica.pe/sociedad/2026/01/17/sedapal-suspendera-el-servicio-de-agua-en-lima-zonas-afectadas-y-horarios-del-18-y-19-de-enero-atmp-1331593)
-
-
-### carlos alcaraz (N/A, 18/01/2026 07:51 Lima)
-
-- **Alcaraz sigue con el pleno de triunfos en su debut en los Grand Slam**: [Link](https://www.marca.com/tenis/open-australia/2026/01/18/alcaraz-sigue-pleno-triunfos-debut-grand-slam.html)
-- **Resumen y resultado del Alcaraz - Walton en directo: Alcaraz somete a un combativo Walton**: [Link](https://as.com/tenis/alcaraz-walton-en-directo-open-de-australia-2026-en-vivo-hoy-f202601-d/)
-- **Alcaraz vence a Walton y accede a la segunda ronda del Open de Australia**: [Link](https://elpais.com/deportes/tenis/2026-01-18/alcaraz-vence-a-walton-y-accede-a-la-segunda-ronda-del-open-de-australia.html)
-
-
-### segunda solicitud de retiro afp 2026 (N/A, 18/01/2026 03:33 Lima)
-
-- **Rectificación del retiro de AFP: Integra y Hábitat confirman cómo registrar la segunda solicitud**: [Link](https://www.infobae.com/peru/2026/01/13/rectificacion-de-retiro-afp-integra-y-habitat-confirman-como-registrar-segunda-solicitud/)
-- **Rectificación retiro AFP: Paso a paso para registrar la segunda solicitud en Integra y Hábitat**: [Link](https://elcomercio.pe/respuestas/tramites/rectificacion-del-retiro-afp-mira-aqui-los-pasos-para-registrar-la-segunda-solicitud-en-integra-y-habitat-tdpe-noticia/)
-- **Última oportunidad para registrar octavo retiro de fondos AFP**: [Link](https://www.expreso.com.pe/economia/ultima-oportunidad-para-registrar-octavo-retiro-de-fondos-afp-sbs-noticia/1255856/)
-
-
-### warriors - hornets (N/A, 18/01/2026 03:33 Lima)
-
-- **Warriors cruise past Hornets**: [Link](https://www.goldenstateofmind.com/warriors-scores-results/107413/warriors-hornets-scores-recap-draymond-green-deanthony-melton)
-- **Game 42 wrap: (no spoiler title)**: [Link](https://dubnationhq.com/p/game-42-wrap-no-spoiler-title)
-- **Hornets Fall Behind Early, Warriors Stay In Control After That**: [Link](https://www.nba.com/hornets/news/hornets-fall-behind-early-warriors-stay-in-control-after-that)
 
 
