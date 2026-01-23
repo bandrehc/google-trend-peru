@@ -1,3 +1,57 @@
+### alcaraz (N/A, 22/01/2026 23:49 Lima)
+
+- **Carlos Alcaraz - Corentin Moutet en directo I Tercera ronda del Open de Australia en vivo**: [Link](https://www.marca.com/tenis/open-australia/carlos-alcaraz-corentin-moutet/2026/01/23/04_0401_20260123_97-directo.html)
+- **En el Australian Open 2026, Carlos Alcaraz va por un hito inédito que superaría a todo el Big 3**: [Link](https://www.espn.com.ar/tenis/nota/_/id/16215370/carlos-alcaraz-hito-partidos-grand-slam-australian-open-2026-big-3-borg-nadal-efectividad-federer-djokovic)
+- **Alcaraz pone toda la carne en el asador: Entrena sin descanso y lima los detalles con Samu López**: [Link](https://espanol.eurosport.com/tenis/open-australia/2026/alcaraz-entrena-sin-descanso-preparacion-partido-tercera-ronda-moutet-indicaciones-samu-lopez_vid60048503/video.shtml)
+
+
+### lakers - clippers (N/A, 22/01/2026 23:49 Lima)
+
+- **Lakers vs. Clippers Picks & Odds: January 22, 2026**: [Link](https://www.oddsshark.com/nba/lakers-clippers-picks-odds-january-22-2026)
+- **TST Best Bets- January 22, 2026**: [Link](https://www.thesportingtribune.com/2026/01/22/tst-best-bets--jan22-2026)
+- **Lakers-Clippers free livestream: How to watch NBA game tonight, TV, time**: [Link](https://www.al.com/tv/2026/01/lakers-clippers-free-livestream-how-to-watch-nba-game-tonight-tv-time.html)
+
+
+### kick (N/A, 22/01/2026 23:49 Lima)
+
+- **France says it has 'no desire' to boycott World Cup amid US-Greenland deal 'framework'**: [Link](https://www.foxnews.com/sports/france-says-has-no-desire-boycott-world-cup-amid-us-greenland-deal-framework)
+- **Europe Could Kick Trump Where It Hurts: The World Cup**: [Link](https://www.politico.com/news/magazine/2026/01/21/the-12-people-who-hold-trumps-world-cup-in-their-hands-00739998)
+- **'No desire' for World Cup boycott over Greenland**: [Link](https://www.bbc.com/sport/football/articles/cly3dedz10go)
+
+
+### warriors - mavericks (N/A, 22/01/2026 23:49 Lima)
+
+- **Raptors Notes: Quickley, Barrett, Murray-Boyles, Poeltl**: [Link](https://www.hoopsrumors.com/2026/01/raptors-notes-quickley-barrett-murray-boyles-poeltl.html)
+- **Kurtenbach: Empty calories, thunderous dunks — the Warriors, Kuminga embrace the art of losing**: [Link](https://www.mercurynews.com/2026/01/21/kurtenbach-empty-calories-thunderous-dunks-the-warriors-kuminga-embrace-the-art-of-losing/)
+- **Preview: Kuminga is back**: [Link](https://dubnationhq.com/p/preview-kuminga-is-back)
+
+
+### zamir villaverde (N/A, 22/01/2026 23:49 Lima)
+
+- **La cena en un restaurante chino disparó una crisis política para el presidente de Perú. ¿Cuál será su futuro?**: [Link](https://cnnespanol.cnn.com/2026/01/22/latinoamerica/peru-crisis-presidente-jose-jeri-futuro-orix)
+- **Comisión de Fiscalización interrogó a mandatario José Jerí por sus reuniones con empresario chino**: [Link](https://comunicaciones.congreso.gob.pe/noticias/comision-de-fiscalizacion-interrogo-a-mandatario-jose-jeri-por-sus-reuniones-con-empresario-chino/)
+- **La llamada desesperada a Alberto Otárola: José Jerí lo contactó para pedirle ayuda en medio del escándalo del “Chifagate”**: [Link](https://www.infobae.com/peru/2026/01/22/la-llamada-desesperada-a-alberto-otarola-jose-jeri-lo-contacto-para-pedirle-ayuda-en-medio-del-escandalo-del-chifagate/)
+
+
+### potapova (N/A, 22/01/2026 23:49 Lima)
+
+- **Top-ranked Sabalenka and Alcaraz advance on an opening day of records at the Australian Open**: [Link](https://apnews.com/article/australian-open-venus-williams-sabalenka-alcaraz-5ea2949fb303efe36c650ff48823d250)
+- **Emotional Aryna Sabalenka digs deep to reach last 16 at Australian Open**: [Link](https://www.japantimes.co.jp/sports/2026/01/23/tennis/sabalenka-advances-australian-openb/)
+- **Arina Sabalenka vs Anastasia Potapova: another convincing victory for Arina**: [Link](https://www.telecomasia.net/sports-betting/tips/tennis/arina-sabalenka-vs-anastasia-potapova-prediction-for-the-match-on-january-23-2026/)
+
+
+### velez vs (N/A, 22/01/2026 23:49 Lima)
+
+- **Vélez sufrió pero rescató un agónico triunfo ante Instituto gracias a los pibes**: [Link](https://www.tycsports.com/liga-profesional-de-futbol/argentina-torneo-apertura-2026-instituto-vs-velez-fecha-1-id708843.html)
+- **Montero arrancó el 2026 como titular y figura en triunfo de Vélez vs. Instituto**: [Link](https://espndeportes.espn.com/futbol/argentina/nota/_/id/16216552/montero-arranco-el-2026-como-titular-y-figura-en-triunfo-de-velez-vs-instituto)
+- **Tobías Andrada le dio el triunfo a Vélez sobre la hora**: [Link](https://www.espn.com.ar/futbol/argentina/nota/_/id/16216433/video-tobias-andrada-le-dio-el-triunfo-a-velez-sobre-la-hora)
+
+
+### sirena ortiz (N/A, 22/01/2026 23:49 Lima)
+
+- **Gabriel Meneses y Sirena Ortiz se besaron**: [Link](https://www.americatv.com.pe/esto-es-guerra/gabriel-meneses-y-sirena-ortiz-protagonizaron-tierno-beso-noticia-162541)
+
+
 ### noche crema (N/A, 22/01/2026 21:08 Lima)
 
 - **Universitario vs U. de Chile: día, hora y canal TV del amistoso por la Noche Crema 2026**: [Link](https://www.infobae.com/peru/deportes/2026/01/21/universitario-vs-u-de-chile-dia-hora-y-canal-tv-del-amistoso-por-la-noche-crema-2026/)
@@ -973,61 +1027,5 @@ Sin noticias relacionadas disponibles.
 - **Edinburgh Rockstar North building taped off after 'boiler explosion'**: [Link](https://www.heraldscotland.com/news/25776012.gta6-dev-rockstar-north-building-taped-off-boiler-explosion/)
 - **Edinburgh fire crews rush to ongoing emergency as police tape off busy area**: [Link](https://www.edinburghlive.co.uk/news/edinburgh-news/edinburgh-fire-crews-rush-ongoing-33257244)
 - **GTA VI developer's building closed off after suffering 'structural damage'**: [Link](https://news.stv.tv/east-central/gta-vi-developers-building-in-edinburgh-closed-off-after-suffering-structural-damage)
-
-
-### pagos banco de la nacion (N/A, 19/01/2026 11:36 Lima)
-
-- **¿Cuándo se cobra el bono de escolaridad 2026? Cronograma del Banco de la Nación**: [Link](https://www.infobae.com/peru/2026/01/16/cuando-se-cobra-el-bono-de-escolaridad-las-fechas-del-cronograma-del-banco-de-la-nacion/)
-- **Disposiciones reglamentarias para el otorgamiento de la bonificación por escolaridad 2026 [Decreto Supremo 002-2026-EF]**: [Link](https://lpderecho.pe/disposiciones-reglamentarias-para-otorgamiento-de-la-bonificacion-por-escolaridad-2026-decreto-supremo-002-2026-ef/)
-- **Despilfarro unicameral: Congreso aumenta partida de bono de escolaridad en S/11 millones**: [Link](https://elcomercio.pe/politica/despilfarro-unicameral-congreso-aumenta-partida-de-bono-de-escolaridad-en-s11-millones-bono-por-escolaridad-noticia/)
-
-
-### retiro afp prima (N/A, 19/01/2026 11:36 Lima)
-
-- **Solicitud de retiro AFP vence el lunes 19 de enero: links oficiales y el paso a paso para la última oportunidad de acceder a tu fondo**: [Link](https://www.infobae.com/peru/2026/01/19/solicitud-de-retiro-afp-vence-el-lunes-19-de-enero-links-oficiales-y-el-paso-a-paso-para-la-ultima-oportunidad-de-acceder-a-tu-fondo/)
-- **Retiro AFP: este 19 de enero vence el plazo final para solicitar hasta S/22.000**: [Link](https://larepublica.pe/economia/2026/01/14/retiro-afp-este-19-de-enero-vence-el-plazo-final-para-solicitar-hasta-s22000-hnews-879060)
-- **AFP: último llamado para el octavo retiro**: [Link](https://caretas.pe/economia/afp-ultimo-llamado-para-el-octavo-retiro/)
-
-
-### peru 21 (N/A, 19/01/2026 11:36 Lima)
-
-- **PJ da la razón a Perú21 sobre demanda de PCM por registro de puertas de Dina Boluarte**: [Link](https://peru21.pe/politica/pj-da-la-razon-peru21-demanda-de-pcm-por-registro-de-puertas-de-dina-boluarte/)
-- **Intención de Voto Enero 2026| Encuesta Perú 21**: [Link](https://www.ipsos.com/es-pe/intencion-de-voto-enero-2026-encuesta-peru-21-ipsos)
-- **Los peruanos buscan un presidente “honesto” y con “mano dura”**: [Link](https://peru21.pe/politica/los-peruanos-buscan-un-presidente-honesto-y-con-mano-dura/)
-
-
-### irene de grecia (N/A, 19/01/2026 08:02 Lima)
-
-- **La millonaria indemnización que Irene de Grecia recibió por Tatoi, el palacio griego en el que será enterrada**: [Link](https://www.infobae.com/espana/2026/01/18/la-millonaria-indemnizacion-que-irene-de-grecia-recibio-por-tatoi-el-palacio-griego-en-el-que-sera-enterrada/)
-- **La reina Sofía, del brazo de Leonor y acompañada por los Reyes, preside una ceremonia en memoria de la princesa Irene**: [Link](https://www.vanitatis.elconfidencial.com/casas-reales/2026-01-17/sofia-leonor-reyes-ceremonia-memoria-princesa-irene_4285802/)
-- **La Familia Real, sin Juan Carlos I, despide a Irene de Grecia en Madrid**: [Link](https://elpais.com/gente/2026-01-17/la-familia-real-sin-juan-carlos-i-despide-a-irene-de-grecia-en-madrid.html)
-
-
-### novak djokovic (N/A, 19/01/2026 08:02 Lima)
-
-- **The Grand Slam master returns**: [Link](https://www.puntodebreak.com/en/2026/01/18/the-grand-slam-master-returns)
-- **Djokovic launches latest bid for record 25th Grand Slam title**: [Link](https://www.arabnews.com/node/2629817/sport)
-- **What 'Worrying' scenes at Australian Open led to Djokovic's rebuke: Here's what you should know**: [Link](https://www.geo.tv/latest/645995-what-worrying-scenes-at-australian-open-led-to-djokovics-rebuke-heres-what-you-should-know)
-
-
-### sorteo la tinka resultados (N/A, 19/01/2026 08:02 Lima)
-
-- **Natalie Vértiz destaca como invitada especial en el concierto de Bad Bunny en Lima**: [Link](https://elcomercio.pe/videos/entretenimiento/natalie-vertiz-destaca-como-invitada-especial-en-el-concierto-de-bad-bunny-en-lima-nnav-redes-sociales-espectaculos-video-noticia/)
-- **Resultados de La Tinka del domingo 18 de enero: sorteo y números de la jugada ganadora del pozo millonario**: [Link](https://depor.com/peru/la-tinka-hoy-en-vivo-domingo-18-de-enero-ver-resultados-del-ultimo-sorteo-numeros-jugada-ganadora-del-pozo-millonario-de-s18506285-intralot-resultado-si-o-si-boliyapa-peru-noticia/)
-- **Resultados de La Tinka hoy, domingo 18 de enero EN VIVO: pozo millonario y cómo jugar**: [Link](https://libero.pe/ocio/2026/01/18/tinka-hoy-18-de-enero-en-vivo-resultados-pozo-millonario-de-domingo-intralot-335444)
-
-
-### adamuz (N/A, 19/01/2026 08:02 Lima)
-
-- **Rescatan y evacúan a pasajeros tras descarrilamiento mortal de trenes en España**: [Link](https://cnnespanol.cnn.com/2026/01/19/espana/video/descarrilamiento-accidente-tren-espana-iryo-trax)
-- **Se elevan a 39 los muertos tras descarrilamiento de dos trenes en España**: [Link](https://rpp.pe/mundo/espana/espana-se-elevan-a-39-los-muertos-tras-descarrilamiento-de-dos-trenes-en-ademuz-noticia-1672127)
-- **Qué es la Comisión de Investigación de Accidentes Ferroviarios (CIAF) y cuál es su función**: [Link](https://www.infobae.com/espana/agencias/2026/01/19/que-es-la-comision-de-investigacion-de-accidentes-ferroviarios-ciaf-y-cual-es-su-funcion/)
-
-
-### armonia 10 (N/A, 19/01/2026 08:02 Lima)
-
-- **Atacan bus de Armonía 10 en Trujillo**: [Link](https://caretas.pe/nacional/atacan-bus-de-armonia-10-en-trujillo/)
-- **Imágenes del momento del atentado contra bus de Armonía 10 en Trujillo**: [Link](https://canaln.pe/actualidad/imagenes-momento-atentado-contra-bus-armonia-10-trujillo-n489688)
-- **¡ATENTADO EN TRUJILLO! Atacan con explosivos bus de Armonía 10 durante presentación**: [Link](https://peru21.pe/policiales/trujillo-atacan-con-explosivos-bus-de-armonia-10-durante-presentacion/)
 
 
