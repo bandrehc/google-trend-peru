@@ -1,3 +1,38 @@
+### tormenta invernal en estados unidos (N/A, 23/01/2026 11:37 Lima)
+
+- **Por qué es tan peligrosa la gigantesca tormenta de nieve y hielo que amenaza a gran parte de EE.UU. este fin de semana**: [Link](https://www.bbc.com/mundo/articles/c620006pdp5o)
+- **Nueva York declara el estado de emergencia ante fuerte tormenta de nieve y frío extremo**: [Link](https://www.infobae.com/estados-unidos/2026/01/23/nueva-york-declara-el-estado-de-emergencia-ante-fuerte-tormenta-de-nieve-y-frio-extremo/)
+- **EE.UU. se prepara para una de las peores tormentas invernales en años**: [Link](https://cnnespanol.cnn.com/2026/01/22/eeuu/video/eeuu-clima-tormenta-invernal-extrema-ush-dusa-tv)
+
+
+### pablo sánchez (N/A, 23/01/2026 11:37 Lima)
+
+- **JNJ decide no ratificar en el cargo de fiscal supremo a Pablo Sanchez**: [Link](https://lpderecho.pe/jnj-no-ratificar-cargo-fiscal-supremo-pablo-sanchez/)
+- **Pablo Sánchez ya no es fiscal supremo: favor a Gustavo Gorriti le costó caro**: [Link](https://www.expreso.com.pe/judicial/pablo-sanchez-ya-no-es-fiscal-supremo-favor-a-gustavo-gorriti-le-costo-caro-idl-jnj-noticia/1257661/)
+- **JNJ no ratifica a Pablo Sánchez como fiscal supremo**: [Link](https://caretas.pe/home_web/home_principal_secundario/jnj-no-ratifica-a-pablo-sanchez-como-fiscal-supremo/)
+
+
+### ticketmaster mexico (N/A, 23/01/2026 11:37 Lima)
+
+- **BTS preventa Ticketmaster: fan graba su compra de entradas en vivo con la Army Membership y muestra lo que pasará en Perú**: [Link](https://www.infobae.com/peru/2026/01/22/bts-preventa-ticketmaster-fan-graba-su-compra-de-entradas-en-vivo-con-la-army-membership-y-muestra-lo-que-pasara-en-peru/)
+- **Cómo comprar entradas para los conciertos de BTS: así funciona la preventa y precios**: [Link](https://www.europafm.com/noticias/musica/como-comprar-entradas-bts-preventa-como-funciona-army-membership-precios_20260123696e1825f21351044da1b7df.html)
+- **Precios OFICIALES para conciertos de BTS en México: ¿Cuánto cuesta un boleto en el Estadio GNP?**: [Link](https://www.elfinanciero.com.mx/entretenimiento/2026/01/22/precios-oficiales-para-conciertos-de-bts-en-mexico-cuanto-cuesta-un-boleto-en-el-estadio-gnp/)
+
+
+### milo j (N/A, 23/01/2026 11:37 Lima)
+
+- **Milo J en Lima 2026: lugar, precios, preventa de entradas,**: [Link](https://www.americatv.com.pe/noticias/espectaculos/milo-j-lima-2026-fecha-lugar-y-todo-sobre-esperado-show-n515027)
+- **Foro Económico Mundial evalúa mudarse de Davos tras 60 años https://mile.io/4taVr83**: [Link](https://www.facebook.com/MilenioDiario/photos/foro-econ%C3%B3mico-mundial-eval%C3%BAa-mudarse-de-davos-tras-60-a%C3%B1oshttpsmileio4tavr83/1366362705521197/)
+- **¿Quién es Milo J? El rapero argentino dará concierto en el Palacio de los Deportes**: [Link](https://www.sdpnoticias.com/espectaculos/musica/quien-es-milo-j-el-rapero-argentino-dara-concierto-en-el-palacio-de-los-deportes/)
+
+
+### tormenta geomagnética perú (N/A, 23/01/2026 11:37 Lima)
+
+- **La mayor tormenta solar en más de dos décadas vuelve a poner en alerta a la Tierra**: [Link](https://www.infobae.com/america/ciencia-america/2026/01/20/la-mayor-tormenta-solar-en-mas-de-dos-decadas-vuelve-a-poner-en-alerta-a-la-tierra/)
+- **El Sol libera la mayor tormenta de radiación "en más de 20 años", según pronosticadores**: [Link](https://cnnespanol.cnn.com/2026/01/19/ciencia/tormenta-radiacion-solar-auroras-trax)
+- **Tormenta geomagnética ya concluyó y no dejó impactos en el Perú**: [Link](https://andina.pe/agencia/noticia-tormenta-geomagnetica-ya-concluyo-y-no-dejo-impactos-el-peru-1060027.aspx)
+
+
 ### año 2026 (N/A, 23/01/2026 07:59 Lima)
 
 - **Gobierno del Perú oficializa el nombre del año 2026: ¿Cómo se llama?**: [Link](https://www.infobae.com/peru/2026/01/23/gobierno-del-peru-oficializa-el-nombre-oficial-del-ano-2026-como-se-llama/)
@@ -994,38 +1029,5 @@
 - **Underdog Promo Code GOALBONUS: Get $75 in Fantasy Bonus Entries for Thunder vs Cavs, EPL & NHL**: [Link](https://www.goal.com/en-us/betting/underdog-promo-code-goalbonus-get-75-fantasy-bonus-entries-thunder-vs-cavs-epl-nhl-1-19/blt6659dc5477d0a0b8)
 - **Oklahoma City Thunder vs Cleveland Cavaliers injury report: Injured and questionable players, head-to-hea**: [Link](https://timesofindia.indiatimes.com/sports/nba/top-stories/oklahoma-city-thunder-vs-cleveland-cavaliers-injury-report-injured-and-questionable-players-head-to-head-records-team-stats-and-more-january-19-2026/articleshow/126703636.cms)
 - **OKC Thunder Turn to Double Big Starting Lineup vs. Cavs**: [Link](https://www.si.com/nba/thunder/onsi/news/okc-thunder-turn-to-double-big-starting-lineup-vs-cavs-01kfbtqtnjrv)
-
-
-### lazio (N/A, 19/01/2026 15:30 Lima)
-
-- **Lazio-Como: Formazioni ufficiali e Cronaca in diretta**: [Link](https://sport.virgilio.it/dirette/live/serie-a/19-1-2026/lazio-como/2558711/)
-- **Lazio-Como, in tribuna anche Cragnotti invitato da Lotito. Out Vecino, non convocato**: [Link](https://www.ilmessaggero.it/sport/ss_lazio/lazio_como_tribuna_cragnotti_invitato_da_lotito-9306966.html)
-- **IL PREGARA | Serie A, Lazio-Como, Zaccagni: “I nuovi acquisti ci daranno una mano a vincere”**: [Link](https://www.laziostory.it/2026/01/19/il-pregara-serie-a-lazio-como-zaccagni-i-nuovi-acquisti-ci-daranno-una-mano-a-vincere/)
-
-
-### lazio vs (N/A, 19/01/2026 15:30 Lima)
-
-- **Preview: Lazio vs Como - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/lazio/preview/lazio-vs-como-prediction-team-news-lineups_590065.html)
-- **Serie A Football Betting: James Milton Offers 7-2 Selection Today**: [Link](https://www.filmogaz.com/106976)
-- **Lazio's Evolving Lineup**: [Link](https://www.ilmessaggero.it/en/lazio_s_evolving_lineup-9305649.html)
-
-
-### gassama (N/A, 19/01/2026 15:30 Lima)
-
-- **Sekou Gassama bajo la lupa de su extécnico tras llegar a Universitario: “Va a hacer goles”**: [Link](https://depor.com/futbol-peruano/descentralizado/universitario-sekou-gassama-extecnico-analiza-su-juego-explica-por-que-se-quedo-sin-equipo-en-2025-y-dijo-que-marcara-goles-fichajes-liga-1-2026-noticia/)
-- **Edison Flores sobre el retraso de Sekou Gassama en Universitario: "Espero que venga..."**: [Link](https://libero.pe/futbol-peruano/universitario/2026/01/19/edison-flores-retraso-de-sekou-gassama-en-universitario-espero-venga-fichajes-2026-1597900)
-- **¡Lo celebra Javier Rabanal! Fecha y hora confirmada para la llegada de Sekou Gassama a Lima**: [Link](https://bolavip.com/pe/universitario/lo-celebra-javier-rabanal-fecha-y-hora-confirmada-para-la-llegada-de-sekou-gassama-a-lima)
-
-
-### granada vs (N/A, 19/01/2026 15:30 Lima)
-
-Sin noticias relacionadas disponibles.
-
-
-### brighton - bournemouth (N/A, 19/01/2026 15:30 Lima)
-
-- **Brighton v Bournemouth: Premier League – live**: [Link](https://www.theguardian.com/football/live/2026/jan/19/brighton-v-bournemouth-premier-league-live)
-- **How to watch, listen to and follow the action as Cherries visit Brighton**: [Link](https://uk.news.yahoo.com/watch-listen-action-cherries-visit-114743013.html)
-- **Brighton and Hove Albion boss says Bournemouth will cope without Semenyo**: [Link](https://www.brightonandhovenews.org/2026/01/18/brighton-and-hove-albion-boss-says-bournemouth-will-cope-without-semenyo/)
 
 
