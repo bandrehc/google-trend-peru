@@ -1,3 +1,24 @@
+### mavericks - warriors (N/A, 23/01/2026 03:37 Lima)
+
+- **Injury-Riddled Mavericks And Warriors Clash In Dallas Showdown**: [Link](https://evrimagaci.org/gpt/injuryriddled-mavericks-and-warriors-clash-in-dallas-showdown-525035)
+- **HLs: Marshall scores season-high 30 vs. Warriors**: [Link](https://www.nbcsports.com/watch/nba/nba-highlights-2025-26-naji-marshall-scores-30-for-dallas-mavericks-in-win)
+- **Steph Curry erupts for 38 points, but Warriors fade late to lose in Dallas**: [Link](https://www.msn.com/en-us/sports/nba/steph-curry-erupts-for-38-points-but-warriors-fade-late-to-lose-in-dallas/ar-AA1UMRJv)
+
+
+### temblor (N/A, 23/01/2026 03:37 Lima)
+
+- **Tres sismos de ligera magnitud se registran en Áncash, Ayacucho y Piura**: [Link](https://caretas.pe/nacional/tres-sismos-de-ligera-magnitud-se-registran-en-ancash-ayacucho-y-piura/)
+- **Temblor hoy en Perú, miércoles 21 de enero: sismo de magnitud 3.7 se registró en Piura**: [Link](https://andina.pe/agencia/noticia-temblor-hoy-peru-miercoles-21-enero-sismo-magnitud-37-se-registro-piura-1060094.aspx)
+- **🔴🔵¡Atención! ⚠️ Temblor remeció HOY Perú: AQUÍ epicentro y magnitud del ÚLTIMO SISMO sentido este miércoles 🤯👇**: [Link](https://www.facebook.com/story.php?story_fbid=1328976995932022&id=100064592023543)
+
+
+### medvedev (N/A, 23/01/2026 03:37 Lima)
+
+- **'Not again' - Medvedev battles back from brink**: [Link](https://www.bbc.co.uk/sport/tennis/articles/cwy88kj95xpo)
+- **Australian Open Tennis**: [Link](https://www.wvnews.com/sports/pro/australian-open-tennis/image_755e6550-7845-5379-bfca-b81a6bc27905.html)
+- **Medvedev expects ‘long, brutal’ rematch with Tien after 3am finish**: [Link](https://www.theage.com.au/sport/tennis/medvedev-expects-long-brutal-rematch-with-tien-after-3am-finish-20260123-p5nwlh.html)
+
+
 ### alcaraz (N/A, 22/01/2026 23:49 Lima)
 
 - **Carlos Alcaraz - Corentin Moutet en directo I Tercera ronda del Open de Australia en vivo**: [Link](https://www.marca.com/tenis/open-australia/carlos-alcaraz-corentin-moutet/2026/01/23/04_0401_20260123_97-directo.html)
@@ -1006,26 +1027,5 @@ Sin noticias relacionadas disponibles.
 - **Betsson forecasts stable revenue in Q4, despite Nordic and CEECA ‘slowdown’**: [Link](https://igamingbusiness.com/finance/quarterly-results/betsson-stable-revenue-in-q4/)
 - **Amid Profit Warning, Betsson’s Pontus Lindwall Building Bridges At ICE Barça**: [Link](https://igamingfuture.com/amid-profit-warning-betssons-pontus-lindwall-building-bridges-at-ice-barca/)
 - **Sportsbook and B2B decline weigh on Betsson in Q4 preliminary results**: [Link](https://www.gamingintelligence.com/finance/225098-sportsbook-and-b2b-decline-weigh-on-betsson-in-q4-preliminary-results/)
-
-
-### uefa champions league (N/A, 19/01/2026 15:30 Lima)
-
-- **USMNT, Monaco striker Balogun: Playing vs. Real Madrid 'a dream'**: [Link](https://www.espn.com/soccer/story/_/id/47662176/usa-monaco-striker-folarin-balogun-playing-real-madrid-dream)
-- **📋 No Rodrygo but two from Castilla, Arbeloa’s squad to face Monaco**: [Link](https://sports.yahoo.com/articles/no-rodrygo-two-castilla-arbeloas-144900934.html)
-- **Real Madrid announce squad for Champions League match against Monaco**: [Link](https://www.managingmadrid.com/103041/real-madrid-monaco-2026-squad-list)
-
-
-### minedu matricula 2026 (N/A, 19/01/2026 11:36 Lima)
-
-- **Colapsa página de Matrícula Digital 2026: padres no pueden registrar a sus hijos en el primer día de inscripciones**: [Link](https://www.infobae.com/peru/2026/01/19/colapsa-pagina-de-matricula-digital-2026-padres-no-pueden-registrar-a-sus-hijos-en-el-primer-dia-de-inscripciones/)
-- **Inicia matrícula digital 2026: ¿cómo crear un usuario en el link del Minedu desde el celular y asegurar vacante en colegios?**: [Link](https://larepublica.pe/sociedad/2026/01/18/inicia-matricula-digital-2026-como-crear-un-usuario-en-el-link-del-minedu-desde-el-celular-para-obtener-una-vacante-en-colegios-662202)
-- **Hoy lunes 19 arranca la matrícula digital: mira cómo hacerlo rápido y sencillo [video]**: [Link](https://andina.pe/agencia/noticia-hoy-lunes-19-arranca-matricula-digital-mira-como-hacerlo-rapido-y-sencillo-video-1059511.aspx)
-
-
-### rockstar (N/A, 19/01/2026 11:36 Lima)
-
-- **Edinburgh Rockstar North building taped off after 'boiler explosion'**: [Link](https://www.heraldscotland.com/news/25776012.gta6-dev-rockstar-north-building-taped-off-boiler-explosion/)
-- **Edinburgh fire crews rush to ongoing emergency as police tape off busy area**: [Link](https://www.edinburghlive.co.uk/news/edinburgh-news/edinburgh-fire-crews-rush-ongoing-33257244)
-- **GTA VI developer's building closed off after suffering 'structural damage'**: [Link](https://news.stv.tv/east-central/gta-vi-developers-building-in-edinburgh-closed-off-after-suffering-structural-damage)
 
 
