@@ -1,3 +1,71 @@
+### noche crema (N/A, 22/01/2026 21:08 Lima)
+
+- **Universitario vs U. de Chile: día, hora y canal TV del amistoso por la Noche Crema 2026**: [Link](https://www.infobae.com/peru/deportes/2026/01/21/universitario-vs-u-de-chile-dia-hora-y-canal-tv-del-amistoso-por-la-noche-crema-2026/)
+- **Con show internacional: Universitario confirmó el cronograma de la Noche Crema en el Monumental**: [Link](https://depor.com/futbol-peruano/descentralizado/universitario-confirmo-el-cronograma-de-la-noche-crema-vs-universidad-de-chile-en-el-monumental-noticia/)
+- **Plan de actividades del primer equipo de Universitario de Deportes**: [Link](https://universitario.pe/noticias/pretemporada/plan-de-actividades-del-primer-equipo-de-universitario-de-deportes-6)
+
+
+### fluminense (N/A, 22/01/2026 21:08 Lima)
+
+- **Em negociação com outros clubes, Lelê e Keno desfalcam o Fluminense contra o Nova Iguaçu no Carioca**: [Link](https://oglobo.globo.com/esportes/futebol/fluminense/noticia/2026/01/22/em-negociacao-com-outros-clubes-lele-e-keno-desfalcam-o-fluminense-contra-o-nova-iguacu-no-carioca.ghtml)
+- **📋 Elenco principal: Flu está escalado para tentar se recuperar no Cariocão**: [Link](https://onefootball.com/pt-br/noticias/elenco-principal-flu-esta-escalado-para-tentar-se-recuperar-no-cariocao-42283669)
+- **Esporte 93 – edição 22 de janeiro**: [Link](https://radio93.com.br/noticias/esporte/esporte-93-edicao-22-de-janeiro-3/)
+
+
+### panamá - méxico (N/A, 22/01/2026 21:08 Lima)
+
+- **Panamá vs México: Lo que debes saber y las alineaciones**: [Link](https://www.espn.com.ar/futbol/selecciones/nota/_/id/16205468/panama-vs-mexico-alineaciones-partido-amistoso-2026-fechas-horarios)
+- **TUDN EN VIVO, México vs. Panamá EN VIVO: mira gratis TV Azteca y Canal 5 (Televisa)**: [Link](https://depor.com/mexico/seleccion-mexicana/tudn-en-vivo-mexico-vs-panama-en-directo-donde-ver-tv-azteca-7-futbol-libre-tv-canal-5-rpc-tvmax-por-amistoso-video-noticia/)
+- **Amistoso internacional: Panamá se enfrentará ante México en un amistoso**: [Link](https://rpp.pe/futbol/ligas-internacionales/amistoso-internacional-panama-se-enfrentara-ante-mexico-en-un-amistoso-noticia-1672521)
+
+
+### banfield vs (N/A, 22/01/2026 21:08 Lima)
+
+- **Mauro Méndez anotó el primer gol del Torneo Apertura**: [Link](https://www.espn.com.ar/futbol/argentina/nota/_/id/16215810/video-banfield-vs-huracan-mauro-mendez-primer-gol-torneo-apertura)
+- **Banfield y Huracán le dan continuidad a la primera fecha del Torneo Apertura**: [Link](https://www.infobae.com/deportes/2026/01/22/el-torneo-apertura-2026-arrancara-con-cinco-partidos-la-agenda-completa-del-jueves/)
+- **Qué canal pasa Banfield vs Huracán hoy: dónde ver el partido gratis y en vivo de la Liga Profesional**: [Link](https://www.365scores.com/es/news/banfield-vs-huracan-donde-ver-gratis/)
+
+
+### aperture harry styles (N/A, 22/01/2026 21:08 Lima)
+
+- **Harry Styles Shares New Song "Aperture": Listen**: [Link](https://stereogum.com/2486352/harry-styles-aperture/music)
+- **Harry Styles ends hiatus with the new album Kiss All The Time. Disco, Occasionally. A return fans have waited years for**: [Link](https://panthernow.com/2026/01/22/harry-styles-ends-hiatus-with-the-new-album-kiss-all-the-time-disco-occasionally-a-return-fans-have-waited-years-for/)
+- **Harry Styles to appear on John Mayer’s SiriusXM show tomorrow**: [Link](https://tribune.com.pk/story/2588544/harry-styles-to-appear-on-john-mayers-siriusxm-show-tomorrow)
+
+
+### cruzeiro - esporte clube democrata (N/A, 22/01/2026 21:08 Lima)
+
+- **Cruzeiro x Atlético: Gerson admite estar pronto para o clássico e não 'escolhe' posição no time**: [Link](https://rede98.com.br/esportes/cruzeiro/cruzeiro-x-atletico-gerson-admite-estar-pronto-para-o-classico-e-nao-escolhe-posicao-no-time/)
+- **Tite fala sobre derrota e comenta sobre o clássico domingo (25)**: [Link](https://www.terra.com.br/esportes/cruzeiro/tite-fala-sobre-derrota-e-comenta-sobre-o-classico-domingo-25,059025ca4e505c6ae3d6a33d4f4240b72lg2ow6h.html)
+- **Edu Panzi | Cruzeiro usa o Campeonato Mineiro como deve usar**: [Link](https://www.itatiaia.com.br/esportes/comentaristas/edu-panzi/edu-panzi-cruzeiro-usa-o-campeonato-mineiro-como-deve-usar)
+
+
+### santos vs corinthians (N/A, 22/01/2026 21:08 Lima)
+
+- **Santos vs Corinthians: partidazo en vivo por el Campeonato Paulista**: [Link](https://www.futbolperuano.com/en-vivo/santos-vs-corinthians-en-vivo-por-el-campeonato-paulista-2026-560795)
+
+
+### silent hill (N/A, 22/01/2026 21:08 Lima)
+
+- **Return to Silent Hill review – video game horror series births another middling movie | Horror films**: [Link](https://www.theguardian.com/film/2026/jan/21/return-to-silent-hill-movie-review)
+- **Akira Yamaoka on Remaking Silent Hill 2's Soundtrack (Again) for Return to Silent Hill**: [Link](https://www.ign.com/articles/akira-yamaoka-on-remaking-silent-hill-2s-soundtrack-again-for-return-to-silent-hill)
+- **Can GameStop’s Silent Hill Tie-In Reveal the Real Potential of Its Experiential Strategy (GME)?**: [Link](https://finance.yahoo.com/news/gamestop-silent-hill-tie-reveal-221017042.html)
+
+
+### delia espinoza (N/A, 22/01/2026 21:08 Lima)
+
+- **Delia Espinoza protagoniza tenso cruce con la JNJ en audiencia por su posible destitución**: [Link](https://canaln.pe/actualidad/delia-espinoza-protagoniza-tenso-cruce-jnj-audiencia-su-posible-destitucion-n489787)
+- **JNJ evalúa destitución de Delia Espinoza como fiscal suprema**: [Link](https://peru21.pe/politica/jnj-evalua-destitucion-de-delia-espinoza-como-fiscal-suprema/)
+- **Delia Espinoza y Gino Ríos protagonizan tenso intercambio: “Usted no debería estar sentado allí”**: [Link](https://www.infobae.com/peru/2026/01/22/delia-espinoza-y-gino-rios-protagonizan-tenso-intercambio-usted-no-deberia-estar-sentado-alli/)
+
+
+### santos vs (N/A, 22/01/2026 21:08 Lima)
+
+- **Santos Vs Corinthians Live Streaming, Campeonato Paulista 2026: Classico Alvinegro Preview, Head-To-Head, And More**: [Link](https://www.outlookindia.com/sports/football/santos-vs-corinthians-live-streaming-campeonato-paulista-2026-classico-alvinegro-preview-head-to-head)
+- **Santos Stages Second-Half Comeback to Draw Classic Match with Corinthians**: [Link](https://www.filmogaz.com/112018)
+- **santos vs corinthians**: [Link](https://www.latestly.com/google-trends/23012026/santos-vs-corinthians/)
+
+
 ### roma vs (N/A, 22/01/2026 15:34 Lima)
 
 - **‘The one that takes all our attention’ – Gasperini admits to overlooking Europe for Milan clash**: [Link](https://sempremilan.com/gasperini-admits-overlooking-europe-milan)
@@ -961,75 +1029,5 @@ Sin noticias relacionadas disponibles.
 - **Atacan bus de Armonía 10 en Trujillo**: [Link](https://caretas.pe/nacional/atacan-bus-de-armonia-10-en-trujillo/)
 - **Imágenes del momento del atentado contra bus de Armonía 10 en Trujillo**: [Link](https://canaln.pe/actualidad/imagenes-momento-atentado-contra-bus-armonia-10-trujillo-n489688)
 - **¡ATENTADO EN TRUJILLO! Atacan con explosivos bus de Armonía 10 durante presentación**: [Link](https://peru21.pe/policiales/trujillo-atacan-con-explosivos-bus-de-armonia-10-durante-presentacion/)
-
-
-### coca cola (N/A, 19/01/2026 08:02 Lima)
-
-- **Coca-Cola (KO) Valuation Check As DCF Views Diverge On Future Upside Potential**: [Link](https://finance.yahoo.com/news/coca-cola-ko-valuation-check-110930113.html)
-- **1 Prediction for KO in 2026**: [Link](https://www.fool.com/investing/2026/01/16/1-prediction-for-ko-in-2026/)
-- **Coca-Cola, Procter & Gamble, Chevron: Recommended Stable Dividend Stocks**: [Link](https://intellectia.ai/news/stock/cocacola-procter--gamble-chevron-recommended-stable-dividend-stocks)
-
-
-### matrícula digital 2026 minedu (N/A, 19/01/2026 03:40 Lima)
-
-- **Inicia matrícula digital 2026: ¿cómo crear un usuario en el link del Minedu desde el celular para obtener una vacante en colegios?**: [Link](https://larepublica.pe/sociedad/2026/01/18/inicia-matricula-digital-2026-como-crear-un-usuario-en-el-link-del-minedu-desde-el-celular-para-obtener-una-vacante-en-colegios-662202)
-- **Minedu capacita a 1,736 directores para el inicio de la Matrícula Digital 2026 en Lima**: [Link](https://andina.pe/agencia/noticia-minedu-capacita-a-1736-directores-para-inicio-de-matricula-digital-2026-lima-1059591.aspx)
-- **¿Habrá cobros en las inscripciones escolares 2026? El Ministerio de Educación emite una prohibición drástica**: [Link](https://www.reduno.com.bo/noticias/habra-cobros-en-las-inscripciones-escolares-2026-el-ministerio-de-educacion-emite-una-prohibicion-drastica-2026118114939)
-
-
-### apple iphone 18 pro max (N/A, 19/01/2026 03:40 Lima)
-
-- **Jeff Pu shares expected tech specs for the iPhone Fold**: [Link](https://9to5mac.com/2026/01/15/jeff-pu-shares-expected-tech-specs-for-the-iphone-fold/)
-- **Face ID under the screen and reduced Dynamic Island are Apple’s big bets for the new iPhone 18 Pro**: [Link](https://www.mixvale.com.br/2026/01/15/face-id-under-the-screen-and-reduced-dynamic-island-are-apples-big-bets-for-the-new-iphone-18-pro-en/)
-- **Apple iPhone 18: Display Leak Suggests Dramatic New Look For Some Models**: [Link](https://www.forbes.com/sites/davidphelan/2026/01/18/apple-iphone-18-display-leak-suggests-dramatic-new-look-for-some-models/)
-
-
-### miguel silveira dos santos (N/A, 19/01/2026 03:40 Lima)
-
-- **¡El último refuerzo! Universitario fichó a volante brasileño proveniente de la Liga de Japón**: [Link](https://depor.com/futbol-peruano/descentralizado/universitario-de-deportes-ficho-a-miguel-silveira-volante-brasileno-que-jugo-en-la-liga-de-japon-y-sera-el-ultimo-refuerzo-de-los-cremas-liga-1-2026-noticia/)
-- **Miguel Silveira será el nuevo refuerzo de Universitario**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/miguel-silveira-nuevo-refuerzo-universitario-quien-n452363)
-- **Universitario fichará a 'joya' brasileña que quiso Arsenal y Tottenham: Miguel Silveira será nuevo jugador de la 'U'**: [Link](https://larepublica.pe/futbol-peruano/2026/01/18/universitario-fichara-a-joya-brasilena-que-quiso-arsenal-y-tottenham-miguel-silveira-sera-nuevo-jugador-de-la-u-626526)
-
-
-### nuggets - hornets (N/A, 18/01/2026 23:55 Lima)
-
-- **Nuggets lose the Hornets, 110-87. They're 29-14 …**: [Link](https://www.hoopshype.com/story/sports/nba/rumors/2026/01/18/nuggets-lose-the-hornets-110-87-theyre-29-14/88249439007/)
-- **theScore Bet bonus code NPNEWS: Bet $10, get $100 in bonus bets for Hornets vs. Nuggets**: [Link](https://www.aol.com/articles/thescore-bet-bonus-code-npnews-210000179.html)
-- **Hornets Buckle Down Defensively In Denver To Secure Winning Road Trip**: [Link](https://www.nba.com/hornets/news/hornets-buckle-down-defensively-in-denver-to-secure-winning-road-trip)
-
-
-### enrique valderrama (N/A, 18/01/2026 23:55 Lima)
-
-- **Enrique Valderrama: Plantearemos cadena perpetua para policías y jueces que se coludan con el crimen**: [Link](https://rpp.pe/politica/elecciones/enrique-valderrama-plantearemos-cadena-perpetua-para-policias-y-jueces-que-se-coludan-con-el-crimen-noticia-1671832)
-- **Enrique Valderrama tendrá una campaña austera: "Algunos tienen plata como cancha, nosotros, militantes y mucha fe"**: [Link](https://willax.pe/politica/elige-bien-2026/enrique-valderrama-campana-austera-plata-como-cancha-willax)
-- **Elecciones 2026: Rechazan tacha contra candidato al Senado del Partido Aprista | últimas | POLITICA**: [Link](https://elcomercio.pe/politica/elecciones-2026-rechazan-tacha-contra-candidato-al-senado-del-partido-aprista-ultimas-noticia/)
-
-
-### raptors - lakers (N/A, 18/01/2026 23:55 Lima)
-
-- **Gameday: Raptors @ Lakers, January 18**: [Link](https://www.raptorsrepublic.com/2026/01/18/gameday-raptors-lakers-january-18/)
-- **NBA Best Bets: Raptors vs. Lakers Prop Bets for Sunday 1/18/26**: [Link](https://dknetwork.draftkings.com/2026/01/18/nba-best-bets-raptors-vs-lakers-prop-bets-for-sunday-1-18-26/)
-- **Are LeBron James, Luka Doncic playing tonight? Latest on Lakers injuries**: [Link](https://sports.yahoo.com/articles/lebron-james-luka-doncic-playing-233509132.html)
-
-
-### delia espinoza (N/A, 18/01/2026 23:55 Lima)
-
-- **JNJ: informe que recomienda la destitución de Delia Espinoza por actos relacionados a la reposición de Patricia Benavides (lea aquí)**: [Link](https://lpderecho.pe/jnj-informe-recomienda-destitucion-delia-espinoza-actos-relacionados-reposicion-patricia-benavides/)
-- **JNJ inicia proceso que podría destituir a Delia Espinoza como fiscal suprema**: [Link](https://caretas.pe/politica/jnj-inicia-proceso-que-podria-destituir-a-delia-espinoza-como-fiscal-suprema/)
-- **Junta Nacional de Justicia programa informe oral de Delia Espinoza**: [Link](https://www.elperuano.pe/noticia/287341-junta-nacional-de-justicia-programa-informe-oral-de-delia-espinoza)
-
-
-### miguel silveira (N/A, 18/01/2026 23:55 Lima)
-
-- **¡El último refuerzo! Universitario fichó a volante brasileño proveniente de la Liga de Japón**: [Link](https://depor.com/futbol-peruano/descentralizado/universitario-de-deportes-ficho-a-miguel-silveira-volante-brasileno-que-jugo-en-la-liga-de-japon-y-sera-el-ultimo-refuerzo-de-los-cremas-liga-1-2026-noticia/)
-- **Miguel Silveira será el nuevo refuerzo de Universitario**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/miguel-silveira-nuevo-refuerzo-universitario-quien-n452363)
-- **Universitario fichará a 'joya' brasileña que quiso Arsenal y Tottenham: Miguel Silveira será nuevo jugador de la 'U'**: [Link](https://larepublica.pe/futbol-peruano/2026/01/18/universitario-fichara-a-joya-brasilena-que-quiso-arsenal-y-tottenham-miguel-silveira-sera-nuevo-jugador-de-la-u-626526)
-
-
-### lanus vs (N/A, 18/01/2026 21:19 Lima)
-
-- **EN VIVO: Terminó el primer tiempo con un marcador 1-0 a favor de Lanús sobre Sarmiento (LB)**: [Link](https://www.directvsports.com/futbol/en-vivo-termino-el-primer-tiempo-con-un-marcador-1-0-a-favor-de-lanus-sobre-sarmiento-lb-20260115-0008.html)
-- **Lanús vs Sarmiento por los treintaidosavos de Copa Argentina EN VIVO. Seguilo minuto a minuto por la web de TN.**: [Link](https://tn.com.ar/deportes/futbol/2026/01/18/lanus-vs-sarmiento-en-vivo-por-los-treintaidosavos-de-la-copa-argentina-hora-donde-ver-y-formaciones/)
-- **Lanús vs Sarmiento de la Banda: resultado EN VIVO y estadísticas de la Copa Argentina**: [Link](https://www.365scores.com/es/news/lanus-vs-sarmiento-de-la-banda-vivo-copa/)
 
 
