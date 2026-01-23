@@ -1,3 +1,24 @@
+### año 2026 (N/A, 23/01/2026 07:59 Lima)
+
+- **Gobierno del Perú oficializa el nombre del año 2026: ¿Cómo se llama?**: [Link](https://www.infobae.com/peru/2026/01/23/gobierno-del-peru-oficializa-el-nombre-oficial-del-ano-2026-como-se-llama/)
+- **Gobierno declaró el 2026 como el ‘Año de la Esperanza y el Fortalecimiento de la Democracia’**: [Link](https://rpp.pe/politica/gobierno/gobierno-declaro-el-2026-como-el-ano-de-la-esperanza-y-el-fortalecimiento-de-la-democracia-noticia-1672718)
+- **Declaran el 2026 como el Año de la esperanza y el fortalecimiento de la democracia**: [Link](https://andina.pe/agencia/noticia-declaran-2026-como-ano-de-esperanza-y-fortalecimiento-de-democracia-1060390.aspx)
+
+
+### delia espinoza jnj (N/A, 23/01/2026 07:59 Lima)
+
+- **Delia Espinoza en manos de la JNJ: ¿Por qué hechos se propone destituirla como fiscal suprema titular?**: [Link](https://elcomercio.pe/politica/delia-espinoza-jnj-por-que-hechos-informe-destituirla-como-fiscal-suprema-junta-nacional-de-justicia-fiscalia-de-la-nacion-noticia/)
+- **Delia Espinoza y Gino Ríos protagonizan tenso intercambio: “Usted no debería estar sentado allí”**: [Link](https://www.infobae.com/peru/2026/01/22/delia-espinoza-y-gino-rios-protagonizan-tenso-intercambio-usted-no-deberia-estar-sentado-alli/)
+- **Delia Espinoza cuestiona informe y denuncia irregularidades ante la JNJ**: [Link](https://caretas.pe/politica/delia-espinoza-cuestiona-informe-y-denuncia-irregularidades-ante-la-jnj/)
+
+
+### temblor peru (N/A, 23/01/2026 07:59 Lima)
+
+- **Tres sismos de ligera magnitud se registran en Áncash, Ayacucho y Piura**: [Link](https://caretas.pe/nacional/tres-sismos-de-ligera-magnitud-se-registran-en-ancash-ayacucho-y-piura/)
+- **Temblor HOY, 22 de enero: epicentro, hora y magnitud de últimos sismos en Perú**: [Link](https://elcomercio.pe/peru/temblor-hoy-epicentro-hora-y-magnitud-de-ultimos-sismos-en-peru-segun-igp-tdpe-noticia/)
+- **Temblor en Arequipa: sismo de magnitud 4,0 remeció Atico, según IGP**: [Link](https://larepublica.pe/sociedad/2026/01/23/temblor-en-arequipa-sismo-de-magnitud-40-remecio-atico-segun-igp-1572119)
+
+
 ### mavericks - warriors (N/A, 23/01/2026 03:37 Lima)
 
 - **Injury-Riddled Mavericks And Warriors Clash In Dallas Showdown**: [Link](https://evrimagaci.org/gpt/injuryriddled-mavericks-and-warriors-clash-in-dallas-showdown-525035)
@@ -1006,26 +1027,5 @@ Sin noticias relacionadas disponibles.
 - **Brighton v Bournemouth: Premier League – live**: [Link](https://www.theguardian.com/football/live/2026/jan/19/brighton-v-bournemouth-premier-league-live)
 - **How to watch, listen to and follow the action as Cherries visit Brighton**: [Link](https://uk.news.yahoo.com/watch-listen-action-cherries-visit-114743013.html)
 - **Brighton and Hove Albion boss says Bournemouth will cope without Semenyo**: [Link](https://www.brightonandhovenews.org/2026/01/18/brighton-and-hove-albion-boss-says-bournemouth-will-cope-without-semenyo/)
-
-
-### elche c. f. - sevilla (N/A, 19/01/2026 15:30 Lima)
-
-- **LaLiga EA Sports: Sevilla quiere volver a festejar frente a Elche**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-sevilla-quiere-volver-a-festejar-frente-a-elche-noticia-1672056)
-- **Elche – Sevilla Pronóstico y Apuestas | LaLiga 19/01/2026**: [Link](https://www.apuestas-deportivas.es/pronostico/elche-vs-sevilla-pronostico-laliga-19-01-2026/)
-- **Fútbol en directo l Alineaciones del Elche-Sevilla; la Champions ya calienta motores**: [Link](https://www.flashscore.es/noticias/futbol-en-directo-partidos-jornada-20-barcelona-madrid/6kZcYLmD/)
-
-
-### lazio - como (N/A, 19/01/2026 15:30 Lima)
-
-- **Nico Paz marcó el 2-0 para Como vs. Lazio por la Serie A**: [Link](https://espndeportes.espn.com/futbol/italia/nota/_/id/16202881/video-gol-de-nico-paz-lazio-vs-como-serie-a)
-- **Serie A: Se enfrentan Lazio y Como 1907 por la fecha 21**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-se-enfrentan-lazio-y-como-1907-por-la-fecha-21-noticia-1672051)
-- **Lazio y Como cierran la fecha**: [Link](https://www.ansalatina.com/americalatina/noticia/deportes/2026/01/18/lazio-y-como-cierran-la-fecha_03f1246e-f0c0-4894-b216-43f693b2a389.html)
-
-
-### betsson (N/A, 19/01/2026 15:30 Lima)
-
-- **Betsson forecasts stable revenue in Q4, despite Nordic and CEECA ‘slowdown’**: [Link](https://igamingbusiness.com/finance/quarterly-results/betsson-stable-revenue-in-q4/)
-- **Amid Profit Warning, Betsson’s Pontus Lindwall Building Bridges At ICE Barça**: [Link](https://igamingfuture.com/amid-profit-warning-betssons-pontus-lindwall-building-bridges-at-ice-barca/)
-- **Sportsbook and B2B decline weigh on Betsson in Q4 preliminary results**: [Link](https://www.gamingintelligence.com/finance/225098-sportsbook-and-b2b-decline-weigh-on-betsson-in-q4-preliminary-results/)
 
 
