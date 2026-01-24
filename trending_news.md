@@ -1,3 +1,24 @@
+### stan wawrinka (N/A, 24/01/2026 03:33 Lima)
+
+- **40yo Wawrinka's opponent can 'barely imagine' playing tennis at same age**: [Link](https://www.abc.net.au/news/2026-01-23/australian-open-stan-wawrinka-taylor-fritz-third-round/106261080)
+- **Wawrinka’s Rival Amazed by His Endurance in Tennis at 40**: [Link](https://www.filmogaz.com/113443)
+- **ATP Australian Open Best Bets Including Fritz vs Wawrinka**: [Link](https://lastwordonsports.com/tennis/2026/01/23/atp-australian-open-best-bets-including-fritz-vs-wawrinka/)
+
+
+### ben shelton (N/A, 24/01/2026 03:33 Lima)
+
+- **Ben Shelton vs. Valentin Vacherot: Prediction, How to Watch**: [Link](https://globelynews.com/sports/ben-shelton-vs-valentin-vacherot-prediction-how-to-watch/)
+- **Australian Open Tennis**: [Link](https://lufkindailynews.com/anpa/sports/australian-open-tennis/image_4951160a-b5a8-5c02-8a59-0b395a1e1a29.html)
+- **Australian Open Predictions Today: Tennis Picks & Best Bets for Day 7**: [Link](https://www.pickswise.com/news/australian-open-predictions-today-tennis-picks-best-bets-for-day-7/)
+
+
+### nuggets - bucks (N/A, 24/01/2026 03:33 Lima)
+
+- **Nuggets Seek Sixth Straight Road Win As Bucks Face Pressure At Home**: [Link](https://evrimagaci.org/gpt/nuggets-seek-sixth-straight-road-win-as-bucks-face-pressure-at-home-525216)
+- **Nuggets' Julian Strawther: Paces Denver in win**: [Link](https://www.cbssports.com/fantasy/basketball/news/nuggets-julian-strawther-paces-denver-in-win/)
+- **Game Recap: Nuggets 102, Bucks 100**: [Link](https://www.nba.com/watch/video/game-recap-nuggets-102-bucks-100)
+
+
 ### tormenta invernal estados unidos (N/A, 23/01/2026 23:38 Lima)
 
 - **Nueva York declara el estado de emergencia por megatormenta**: [Link](https://www.dw.com/es/nueva-york-declara-el-estado-de-emergencia-por-megatormenta/a-75634408)
@@ -1008,26 +1029,5 @@
 - **Colapsa página de Matrícula Digital 2026: padres no pueden registrar a sus hijos en el primer día de inscripciones**: [Link](https://www.infobae.com/peru/2026/01/19/colapsa-pagina-de-matricula-digital-2026-padres-no-pueden-registrar-a-sus-hijos-en-el-primer-dia-de-inscripciones/)
 - **Matrícula digital 2026 arranca en Lima Metropolitana y en colegios focalizados del país**: [Link](https://www.tvperu.gob.pe/noticias/nacionales/matricula-digital-2026-arranca-en-lima-metropolitana-y-en-colegios-focalizados-del-pais)
 - **Hoy lunes 19 inicia la matrícula digital: conoce cómo hacer el trámite rápido y sencillo [video]**: [Link](https://elperuano.pe/noticia/287456-hoy-lunes-19-inicia-la-matricula-digital-conoce-como-hacer-el-tramite-rapido-y-sencillo-video)
-
-
-### kairat (N/A, 20/01/2026 11:41 Lima)
-
-- **Kairat Almaty keert terug van winterstop met nieuwe opstelling tegen Olympiakos**: [Link](https://news.ssbcrack.com/kairat-almaty-keert-terug-van-winterstop-met-nieuwe-opstelling-tegen-olympiakos/)
-- **FC Kairat's forward Satpaev to miss Champions League match against Club Brugge**: [Link](https://qazinform.com/news/fc-kairats-forward-satpaev-to-miss-champions-league-match-against-club-brugge-168493)
-- **Kairat Almaty Misses 17-Year-Old Prodigy Against Belgian Red Devils**: [Link](https://www.filmogaz.com/108227)
-
-
-### kairat - club brujas (N/A, 20/01/2026 11:41 Lima)
-
-- **Kairat Almaty - Brujas, en directo: Champions League, hoy en vivo**: [Link](https://as.com/futbol/champions/kairat-almaty-brujas-en-directo-champions-league-hoy-en-vivo-f202601-d/)
-- **En directo online: Kairat Almaty-Brujas - ¿Dónde y cuándo ver el partido? - Resultado en vivo Champions League 2025/2026 – Fase Liga – Jornada 7 - Hoy**: [Link](https://espanol.eurosport.com/futbol/champions-league/2025-2026/live-fc-kairat-club-brujas_mtc1601127/live-commentary.shtml)
-- **Cuándo juegan Kairat Almaty vs. Brujas por la UEFA Champions League: equipo, fecha, hora y TV en vivo**: [Link](https://espndeportes.espn.com/futbol/champions-league/nota/_/id/16201974/kairat-almaty-vs-brujas-fase-liga-fecha-7-champions-league-equipo-fecha-hora-tv-en-vivo)
-
-
-### universitario vs melgar (N/A, 20/01/2026 11:41 Lima)
-
-- **¡No lo dejen patear! Golazo de Jairo Concha para el 2-0 de Universitario vs. Melgar**: [Link](https://depor.com/futbol-peruano/descentralizado/gol-jairo-concha-universitario-vs-melgar-hoy-golazo-y-2-0-amistoso-video-noticia/)
-- **Transmisión Universitario vs Melgar EN VIVO HOY: ¿dónde ver el partido de la 'U' de pretemporada?**: [Link](https://larepublica.pe/futbol-peruano/2026/01/19/universitario-vs-melgar-en-vivo-partido-de-la-u-hoy-via-youtube-1808667)
-- **El primero del año: Matías Di Benedetto anotó el 1-0 de la 'U' en el amistoso ante Melgar (VIDEO)**: [Link](https://rpp.pe/futbol/descentralizado/ver-gol-universitario-vs-melgar-di-benedetto-anoto-el-1-0-de-la-u-en-amistoso-de-pretemporada-2026-video-noticia-1672310)
 
 
