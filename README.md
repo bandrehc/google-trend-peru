@@ -1,3 +1,52 @@
+### valladolid - albacete (N/A, 24/01/2026 07:52 Lima)
+
+- **Triunfo para la afición**: [Link](https://www.diariodevalladolid.es/deportes/real-valladolid/260123/278958/triunfo-aficion.html)
+- **Real Valladolid - Albacete: a qué hora es, canal y dónde ver hoy en TV el partido de Segunda división**: [Link](https://www.marca.com/futbol/segunda-division/2026/01/22/real-valladolid-albacete-a-que-hora-es-canal-y-donde-ver-hoy-en-tv-el-partido-de-segunda-division.html)
+- **Los héroes de la Copa ponen a prueba la mejora de los de Tevenet**: [Link](https://as.com/futbol/segunda/los-heroes-de-la-copa-ponen-a-prueba-la-mejora-de-los-de-tevenet-f202601-n/)
+
+
+### rayo vallecano - osasuna (N/A, 24/01/2026 07:52 Lima)
+
+- **Rayo Vallecano - Osasuna, en directo: LaLiga EA Sports, en vivo hoy**: [Link](https://as.com/futbol/primera/rayo-vallecano-osasuna-en-directo-laliga-ea-sports-en-vivo-hoy-f202601-d/)
+- **Sigue en directo Tiempo de Juego este sábado desde las 13:00h con la jornada 21ª de Primera**: [Link](https://www.cope.es/programas/tiempo-de-juego/noticias/sigue-directo-juego-sabado-13-00h-jornada-21a-primera-20260124_3293571.html)
+- **Rayo - Osasuna en directo | LaLiga EA Sports en vivo**: [Link](https://www.marca.com/futbol/laliga-ea-sports/rayo-osasuna/2026/01/24/01_0101_20260124_184_450-directo.html)
+
+
+### west ham - sunderland afc (N/A, 24/01/2026 07:52 Lima)
+
+- **Preview: West Ham United vs Sunderland - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/west-ham-united/relegation-battle/preview/west-ham-vs-sunderland-prediction-team-news-lineups_590379.html)
+- **Starting XI: Xhaka Out? Diarra And Talbi Back? Is This Sunderland’s Team To Take On West Ham?**: [Link](https://rokerreport.sbnation.com/match-previews/123143/starting-xi-xhaka-out-diarra-and-talbi-back-is-this-sunderlands-team-to-take-on-west-ham)
+- **Scarles | I hope we're picking up positive momentum**: [Link](https://www.whufc.com/en/news/scarles-or-i-hope-were-picking-up-positive-momentum)
+
+
+### australian open 2026 (N/A, 24/01/2026 07:52 Lima)
+
+- **Novak Djokovic in near-disqualification drama as star quits Aus Open and career ends after 22 years**: [Link](https://au.news.yahoo.com/novak-djokovic-in-near-disqualification-drama-as-star-quits-aus-open-and-career-ends-after-22-years-104409607.html)
+- **Superfan banned from AO, Sinner ‘can’t walk’**: [Link](https://www.cairnspost.com.au/sport/tennis/australian-open-day-7-live/live-coverage/43fdfdc011b43bb78965c913641d09d9?expand_comments=true)
+- **Djokovic dodges default with wild swing during Open win**: [Link](https://www.canberratimes.com.au/story/9160042/djokovic-dodges-default-with-wild-swing-during-open-win/)
+
+
+### win (N/A, 24/01/2026 07:52 Lima)
+
+- **Tennis star mocks jeering crowd with provocative dance after Australian Open victory**: [Link](https://www.foxnews.com/sports/tennis-star-mocks-jeering-crowd-provocative-dance-after-australian-open-victory)
+- **Australian Open 2026: Yulia Putintseva drowns out 'disrespectful' crowd with rabbit song**: [Link](https://www.bbc.com/sport/tennis/articles/cn0yy72gky8o)
+- **Songs about rabbits help Yulia Putintseva dance through tense Australian Open third round**: [Link](https://www.tennis.com/news/articles/songs-about-rabbits-help-yulia-putintseva-dance-through-tense-australian-open-third-round)
+
+
+### naomi osaka (N/A, 24/01/2026 07:52 Lima)
+
+- **‘My body has changed’: Naomi Osaka pulls out of Australian Open with injury**: [Link](https://www.theguardian.com/sport/2026/jan/24/naomi-osaka-pulls-out-australian-open-injury-tennis)
+- **Australian Open: Djokovic in control, injured Osaka pulls out - listen & follow**: [Link](https://www.bbc.com/sport/tennis/live/ce8gr70jy12t?page=4)
+- **Australian Open 2026: Naomi Osaka pulls out with abdominal injury**: [Link](https://www.olympics.com/en/news/australian-open-2026-naomi-osaka-pulls-out-with-abdominal-injury)
+
+
+### novak djokovic (N/A, 24/01/2026 07:52 Lima)
+
+- **Novak Djokovic escaped the heat and doused Dutchman ‌Botic van de Zandschulp at the Australian Open on Saturday**: [Link](https://www.skysports.com/tennis/news/31870/13498267/australian-open-novak-djokovic-records-milestone-400-wins-at-grand-slams-with-third-round-victory-over-botic-van-de-zandschulp-in-melbourne)
+- **Djokovic 'hanging in there' after landmark 400th Slam win**: [Link](https://sports.yahoo.com/articles/djokovic-wins-record-400th-slam-111525395.html)
+- **Novak Djokovic records landmark win as Stan Wawrinka bids farewell to Melbourne**: [Link](https://www.heraldscotland.com/sport/25793629.novak-djokovic-records-record-win-stan-wawrinka-bows/)
+
+
 ### stan wawrinka (N/A, 24/01/2026 03:33 Lima)
 
 - **40yo Wawrinka's opponent can 'barely imagine' playing tennis at same age**: [Link](https://www.abc.net.au/news/2026-01-23/australian-open-stan-wawrinka-taylor-fritz-third-round/106261080)
@@ -980,54 +1029,5 @@
 - **¿Qué pasa con la salud de Anuel?: lo que se sabe**: [Link](https://www.univision.com/famosos/anuel-salud-lo-que-se-sabe)
 - **¿Qué le pasó? Anuel AA genera preocupación en sus fans por su apariencia física**: [Link](https://www.laopinion.co/tendencias/que-le-paso-anuel-aa-genera-preocupacion-en-sus-fans-por-su-apariencia-fisica)
 - **Preocupa el cambio físico de Anuel AA tras foto reciente, ¿qué le pasó?**: [Link](https://www.vanguardia.com/entretenimiento/tendencias/2026/01/18/preocupa-el-cambio-fisico-de-anuel-aa-tras-foto-reciente-que-le-paso/)
-
-
-### championship (N/A, 20/01/2026 15:44 Lima)
-
-- **The south lost another Civil War when it comes to college football**: [Link](https://sports.yahoo.com/articles/south-lost-another-civil-war-183803667.html)
-- **Paul Finebaum says SEC fall off is a billionaire problem**: [Link](https://clutchpoints.com/ncaa-football/ncaa-football-news-paul-finebaum-sec-fall-off-billionaire-problem)
-- **SEC Now Riding Longest National Championship Drought in Decades**: [Link](https://www.si.com/college-football/sec-longest-championship-drought)
-
-
-### monaco fc (N/A, 20/01/2026 15:44 Lima)
-
-- **Preview: Real Madrid vs Monaco - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/real-madrid/champions-league/preview/real-madrid-vs-monaco-prediction-team-news-lineups_590119.html)
-- **Not Mbappe or Tchouameni - Three players you may not remember played for Real Madrid and AS Monaco**: [Link](https://madriduniversal.com/not-mbappe-or-tchouameni-three-players-you-may-not-remember-played-for-real-madrid-and-as-monaco/)
-- **Vinicius enjoys fresh trust and key role under Arbeloa - reports**: [Link](https://tribuna.com/en/news/2026-01-20-vinicius-enjoys-fresh-trust-and-key-role-under-arbeloa-reports/)
-
-
-### manchester city hoy (N/A, 20/01/2026 15:44 Lima)
-
-- **Bodo/Glimt tuvo un partido celestial y logró una histórica goleada sobre Manchester City por la Champions**: [Link](https://www.espn.com.pe/futbol/champions-league/nota/_/id/16201887/bodo-glimt-vs-manchester-city-champions-equipo-fecha-hora-y-tv-en-vivo)
-- **¡Lo sufre Guardiola! Manchester City cayó 3-1 ante Bodø/Glimt en Noruega**: [Link](https://caretas.pe/deportes/manchester-city-perdio-bodo-glimt-champions/)
-- **Champions League: Por la fecha 7 se enfrentarán FK Bodo/Glimt y Manchester City**: [Link](https://rpp.pe/futbol/ligas-internacionales/champions-league-por-la-fecha-7-se-enfrentaran-fk-bodo-glimt-y-manchester-city-noticia-1672132)
-
-
-### josé jerí (N/A, 20/01/2026 11:41 Lima)
-
-- **Investigan a presidente de Perú por tráfico de influencias**: [Link](https://www.dw.com/es/investigan-a-presidente-de-per%C3%BA-por-tr%C3%A1fico-de-influencias/a-75572656)
-- **“No podemos permitir que el cargo y la investidura presidencial sigan siendo pisoteados”: Edward Málaga pide la censura de José Jerí**: [Link](https://rpp.pe/politica/congreso/no-podemos-permitir-que-el-cargo-y-la-investidura-presidencial-sigan-siendo-pisoteados-edward-malaga-pide-la-censura-de-jose-jeri-noticia-1672255)
-- **Caramelos chinos | editorial Perú21**: [Link](https://peru21.pe/opinion/caramelos-chinos-editorial-peru21/)
-
-
-### al shabab (N/A, 20/01/2026 11:41 Lima)
-
-- **El polémico gesto de Cristiano Ronaldo que se burla de sus rivales tras la victoria del Al Nassr**: [Link](https://bolavip.com/pe/futbol-internacional/el-polemico-gesto-de-cristiano-ronaldo-que-se-burla-de-sus-rivales-tras-la-victoria-del-al-nassr)
-- **Al Nassr vs. Al Shabab (3-2): video, resumen y goles con Cristiano Ronaldo en la Liga de Arabia**: [Link](https://depor.com/futbol-internacional/resto-del-mundo/al-nassr-vs-al-shabab-en-vivo-hoy-cristiano-ronaldo-via-futbol-libre-tv-en-directo-fox-deportes-fox-sports-movistar-plus-online-ver-partido-gratis-por-internet-liga-pro-saudi-video-noticia/)
-- **Al Nassr volvió al triunfo en Arabia Saudita**: [Link](https://ovacion.pe/noticias/futbol-internacional/al-nassr-volvio-al-triunfo-arabia-saudita)
-
-
-### ucl (N/A, 20/01/2026 11:41 Lima)
-
-- **Preview: Real Madrid vs Monaco - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/real-madrid/champions-league/preview/real-madrid-vs-monaco-prediction-team-news-lineups_590119.html)
-- **Vinicius enjoys fresh trust and key role under Arbeloa - reports**: [Link](https://tribuna.com/en/news/2026-01-20-vinicius-enjoys-fresh-trust-and-key-role-under-arbeloa-reports/)
-- **Monaco’s Sébastien Pocognoli says he ‘accepts the pressure’ ahead of Real Madrid tie**: [Link](https://www.getfootballnewsfrance.com/2026/monacos-sebastien-pocognoli-says-he-accepts-the-pressure-ahead-of-real-madrid-tie/)
-
-
-### matrícula digital lima metropolitana (N/A, 20/01/2026 11:41 Lima)
-
-- **Colapsa página de Matrícula Digital 2026: padres no pueden registrar a sus hijos en el primer día de inscripciones**: [Link](https://www.infobae.com/peru/2026/01/19/colapsa-pagina-de-matricula-digital-2026-padres-no-pueden-registrar-a-sus-hijos-en-el-primer-dia-de-inscripciones/)
-- **Matrícula digital 2026 arranca en Lima Metropolitana y en colegios focalizados del país**: [Link](https://www.tvperu.gob.pe/noticias/nacionales/matricula-digital-2026-arranca-en-lima-metropolitana-y-en-colegios-focalizados-del-pais)
-- **Hoy lunes 19 inicia la matrícula digital: conoce cómo hacer el trámite rápido y sencillo [video]**: [Link](https://elperuano.pe/noticia/287456-hoy-lunes-19-inicia-la-matricula-digital-conoce-como-hacer-el-tramite-rapido-y-sencillo-video)
 
 
