@@ -1,3 +1,45 @@
+### tormenta invernal estados unidos (N/A, 23/01/2026 23:38 Lima)
+
+- **Nueva York declara el estado de emergencia por megatormenta**: [Link](https://www.dw.com/es/nueva-york-declara-el-estado-de-emergencia-por-megatormenta/a-75634408)
+- **Mapa de alertas por tormentas invernales en EE.UU.: cuándo y qué estados amenaza por nevadas y hielo**: [Link](https://cnnespanol.cnn.com/2026/01/23/eeuu/mapa-alertas-tormenta-invernal-cuando-estados-trax)
+- **EE.UU. en alerta por feroz tormenta de nieve**: [Link](https://especial.larepublica.pe/la-republica-sostenible/2026/01/23/eeuu-en-alerta-por-feroz-tormenta-de-nieve-1364843)
+
+
+### lucia mendez (N/A, 23/01/2026 23:38 Lima)
+
+- **Lucía Méndez protagoniza Paloma, su primer drama en formato vertical distribuido por Caracol TV**: [Link](https://www.prensario.net/Lucia-Mendez-protagoniza-emPalomaem-su-primer-drama-en-formato-vertical-distribuido-por-Caracol-TV-51767.note.aspx)
+- **Lucía Méndez se estrena en los dramas verticales con "Paloma"**: [Link](https://www.multimediostv.com/programas/vivalavi/mejores-momentos/lucia-mendez-estrena-dramas-verticales-paloma.html)
+- **Paloma: Lucía Méndez lidera la primera gran serie vertical**: [Link](https://occidente.co/cine-tv/lucia-mendez-protagoniza-paloma-primera-telenovela-vertical-de-una-gran-estrella-internacional/)
+
+
+### sinner vs (N/A, 23/01/2026 23:38 Lima)
+
+- **Keys revels in Melbourne heat as Djokovic steps up history bid**: [Link](https://www.france24.com/en/live-news/20260124-keys-revels-in-melbourne-heat-as-djokovic-steps-up-history-bid)
+- **Sinner's title defence in jeopardy against Spizzirri; Roof closed due to extreme heat**: [Link](https://www.atptour.com/en/news/sinner-spizzirri-australian-open-2026-r3)
+- **Thrilling Action and Surprising Wins at the Australian Open**: [Link](https://www.devdiscourse.com/article/technology/3780977-thrilling-action-and-surprising-wins-at-the-australian-open)
+
+
+### pacers - thunder (N/A, 23/01/2026 23:38 Lima)
+
+- **When the Pacers Met the Thunder: A Clash of Two Basketball Philosophies**: [Link](https://vocal.media/unbalanced/when-the-pacers-met-the-thunder-a-clash-of-two-basketball-philosophies)
+- **Thunder's Shai Gilgeous-Alexander: Drops 47 points in loss**: [Link](https://www.cbssports.com/fantasy/basketball/news/thunders-shai-gilgeous-alexander-drops-47-points-in-loss/)
+- **Halftime Rewind: Pacers 58, Thunder 53**: [Link](https://www.nba.com/pacers/news/rewind-pacers-thunder-260123)
+
+
+### paramount (N/A, 23/01/2026 23:38 Lima)
+
+- **The battle for Warner Bros is only getting fiercer**: [Link](https://www.economist.com/business/2026/01/22/the-battle-for-warner-bros-is-only-getting-fiercer)
+- **Paramount is betting European regulators won't approve WBD-Netflix. Here's how it could play out**: [Link](https://www.cnbc.com/2026/01/22/paramount-wbd-netflix-european-regulators.html)
+- **What to know about Netflix’s landmark acquisition of Warner Bros.**: [Link](https://finance.yahoo.com/news/know-netflix-landmark-acquisition-warner-203127005.html)
+
+
+### sinner (N/A, 23/01/2026 23:38 Lima)
+
+- **Will an experience with Federer help Spizzirri against Sinner at Australian Open?**: [Link](https://www.atptour.com/en/news/spizzirri-australian-open-2026-feature)
+- **What to know about Eliot Spizzirri, U.S. tennis player who stunned Jannik Sinner in Australian Open first set**: [Link](https://www.sportingnews.com/us/tennis/news/what-know-about-eliot-spizzirri-us-tennis-player-stunned-jannik-sinner-australian-open-first-set/44d138760777225e11a74460)
+- **ATP Australian Open Best Bets Including Sinner vs Spizzirri**: [Link](https://lastwordonsports.com/tennis/2026/01/23/atp-australian-open-best-bets-including-sinner-vs-spizzirri/)
+
+
 ### betano (N/A, 23/01/2026 21:04 Lima)
 
 - **Play Jango Casino Sign Up Bonus January 2026: 100% Welcome Bonus & 77 Free Spins**: [Link](https://bookies.com/uk/news/play-jango-casino-sign-up-bonus-100-welcome-bonus-77-free-spins-23-january-2026)
@@ -987,45 +1029,5 @@
 - **¡No lo dejen patear! Golazo de Jairo Concha para el 2-0 de Universitario vs. Melgar**: [Link](https://depor.com/futbol-peruano/descentralizado/gol-jairo-concha-universitario-vs-melgar-hoy-golazo-y-2-0-amistoso-video-noticia/)
 - **Transmisión Universitario vs Melgar EN VIVO HOY: ¿dónde ver el partido de la 'U' de pretemporada?**: [Link](https://larepublica.pe/futbol-peruano/2026/01/19/universitario-vs-melgar-en-vivo-partido-de-la-u-hoy-via-youtube-1808667)
 - **El primero del año: Matías Di Benedetto anotó el 1-0 de la 'U' en el amistoso ante Melgar (VIDEO)**: [Link](https://rpp.pe/futbol/descentralizado/ver-gol-universitario-vs-melgar-di-benedetto-anoto-el-1-0-de-la-u-en-amistoso-de-pretemporada-2026-video-noticia-1672310)
-
-
-### sedapal corte de agua (N/A, 20/01/2026 11:41 Lima)
-
-- **Estos distritos de Lima tendrán corte de agua el 20 y 21 de enero: zonas y horarios, según Sedapal**: [Link](https://www.infobae.com/peru/2026/01/19/cuatro-distritos-de-lima-tendran-corte-de-agua-este-20-y-21-de-enero-zonas-y-horarios-segun-sedapal/)
-- **Corte de agua hoy, 20 de enero: horarios y distritos afectados por Sedapal**: [Link](https://latinanoticias.pe/te-ayudo/corte-de-agua-hoy-20-de-enero-horarios-y-distritos-afectados-por-sedapal_20260120/)
-- **Corte de agua en Lima hoy 20 de enero: Distritos y horarios afectados**: [Link](https://rpp.pe/lima/obras/corte-de-agua-en-lima-hoy-20-de-enero-distritos-y-horarios-afectados-noticia-1672293)
-
-
-### cronograma de pagos (N/A, 20/01/2026 08:02 Lima)
-
-- **Aumento confirmado para jubilados en febrero: los nuevos haberes tras la inflación de diciembre**: [Link](https://elnacionaldematanza.com.ar/2026/01/14/aumento-confirmado-para-jubilados-en-febrero-los-nuevos-haberes-tras-la-inflacion-de-diciembre/)
-
-
-### apple iphone 18 pro max (N/A, 20/01/2026 08:02 Lima)
-
-- **Jeff Pu shares expected tech specs for the iPhone Fold**: [Link](https://9to5mac.com/2026/01/15/jeff-pu-shares-expected-tech-specs-for-the-iphone-fold/)
-- **Samsung to support Apple for its biggest 2026 product launches**: [Link](https://www.sammobile.com/news/samsung-to-support-apple-for-its-biggest-2026-product-launches/)
-- **Apple’s first foldable iPhone could arrive this year: The upcoming iPhone could open into mini tablet, and ...**: [Link](https://www.bhaskarenglish.in/tech-science/news/apple-foldable-iphone-mini-tablet-touch-id-2026-136985478.html)
-
-
-### champions hoy (N/A, 20/01/2026 08:02 Lima)
-
-- **Partidos de hoy, martes 20 de enero del 2026: horarios y canales TV para ver EN VIVO Champions y Amistosos**: [Link](https://rpp.pe/futbol/futbol-mundial/partidos-de-hoy-peru-martes-20-de-enero-del-2026-horarios-y-canales-tv-ver-futbol-en-vivo-noticia-1672207)
-- **Manchester City, Real Madrid, Inter y PSG abrirán la séptima fecha de Champions League: la agenda completa**: [Link](https://www.infobae.com/deportes/2026/01/20/manchester-city-real-madrid-inter-y-psg-abriran-la-septima-fecha-de-champions-league-la-agenda-completa/)
-- **Partidos de hoy, martes 20 de enero, en la Champions League: a qué hora son, canal TV y quién juega**: [Link](https://as.com/futbol/champions/partidos-de-hoy-martes-20-de-enero-en-la-champions-league-a-que-hora-son-canal-tv-y-quien-juega-f202601-n/)
-
-
-### jannik sinner (N/A, 20/01/2026 08:02 Lima)
-
-- **Jannik Sinner - James Duckworth all'Australian Open 2026: programma, orario e dove vedere la partita · Tennis ATP**: [Link](https://www.olympics.com/it/notizie/tennis-sinner-duckworth-australian-open-2026-quando-gioca-programma-dove-vedere)
-- **Tutte le notizie sul tennis in Diretta**: [Link](https://www.diretta.it/news/tennis-tracker-darderi-sonego-e-musetti-vincono-nella-notte-sinner-sfida-gaston-6-2-4-0/rqxLVmbC/)
-- **Sinner, il completo serale convince a metà: "Lo stilista tifa Alcaraz"**: [Link](https://www.virgilio.it/italia/imperia/notizielocali/sinner_il_completo_serale_convince_a_met_lo_stilista_tifa_alcaraz_-76323694.html)
-
-
-### christian church (N/A, 20/01/2026 03:40 Lima)
-
-- **Kaduna state kidnap: More than 160 churchgoers kidnapped in twin Nigeria attacks, clergy say**: [Link](https://www.bbc.com/news/articles/c4grw9vg7y4o)
-- **Gunmen abduct over 150 worshippers from 3 churches in Nigeria**: [Link](https://abcnews.go.com/International/wireStory/gunmen-abduct-150-worshippers-3-churches-nigeria-129351483)
-- **Gunmen abduct dozens of worshippers from multiple Nigerian churches using sophisticated weapons**: [Link](https://www.foxnews.com/world/gunmen-abduct-dozens-worshippers-multiple-nigerian-churches-using-sophisticated-weapons)
 
 
