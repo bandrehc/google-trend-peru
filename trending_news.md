@@ -1,3 +1,71 @@
+### river vs (N/A, 24/01/2026 15:27 Lima)
+
+- **Qué canal pasa Barracas vs River hoy: dónde ver el partido gratis y en vivo de la Liga Profesional**: [Link](https://www.365scores.com/es/news/barracas-vs-river-donde-ver-gratis-vivo/)
+- **ESPN EN VIVO, River vs. Barracas en directo: ver gratis TNT Sports y Disney Plus por internet**: [Link](https://depor.com/futbol-internacional/argentina/espn-en-vivo-river-vs-barracas-hoy-gratis-pelota-libre-tv-tnt-sports-canales-de-tv-online-por-torneo-apertura-2026-video-noticia/)
+- **La figura de River que quedó afuera del banco de suplentes para visitar a Barracas Central**: [Link](https://www.tycsports.com/river-plate/kevin-castano-ausente-river-barracas-central-id709515.html)
+
+
+### river (N/A, 24/01/2026 15:27 Lima)
+
+- **Sigatoka Town Council partners with Trash Boom Pacific to protect Sigatoka River**: [Link](https://www.fijitimes.com.fj/sigatoka-town-council-partners-with-trash-boom-pacific-to-protect-sigatoka-river/)
+- **Sturgeon River Paddlesports guides a winter trip down the Sturgeon River in Wolverine, Michigan.**: [Link](https://www.mlive.com/galleries/BWTXZ7VW3VDGNAYINVXDBODR7I/)
+- **You can go winter rafting in Michigan on the fastest-flowing river in the Lower Peninsula**: [Link](https://www.mlive.com/travel/2026/01/you-can-go-winter-rafting-in-michigan-on-the-fastest-flowing-river-in-the-lower-peninsula.html)
+
+
+### lecce vs lazio (N/A, 24/01/2026 15:27 Lima)
+
+- **Lecce vs. Lazio: Both teams are behind in their objectives and are looking to restart. Teams and TV channels**: [Link](https://sport.quotidiano.net/en/calcio/lecce/lecce-lazio-entrambe-indietro-per-i-loro-obiettivi-cercano-ripartenza-formazioni-e-tv-6f08b2b0)
+- **Lecce and Lazio Draw 0-0 in 2025 Serie A Match**: [Link](https://www.filmogaz.com/114869)
+- **Serie A: Lecce vs. Lazio today: schedule, probable lineups, and where to watch.**: [Link](https://lamilano.it/en/other-news/Serie-A-today--Lecce-vs.-Lazio--schedule--probable-lineups--and-where-to-watch-it./)
+
+
+### villareal vs (N/A, 24/01/2026 15:27 Lima)
+
+- **Villarreal vs Real Madrid: Spanish La Liga stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cp8753j20xdt)
+- **LIVE: Villarreal vs Real Madrid – La Liga**: [Link](https://www.aljazeera.com/sports/liveblog/2026/1/24/live-villarreal-vs-real-madrid-la-liga)
+- **Villarreal vs. Real Madrid: Preview, Predictions and Lineups**: [Link](https://www.si.com/soccer/villarreal-vs-real-madrid-preview-predictions-lineups-1-24-26)
+
+
+### monaco fc (N/A, 24/01/2026 15:27 Lima)
+
+- **Alvaro Arbeloa makes his feelings clear on Vinicius Jr after Xabi Alonso tension**: [Link](https://www.liverpool.com/liverpool-fc-news/features/alvaro-arbeloa-vinicius-xabi-alonso-33295902)
+- **Real Madrid Manager Addresses Vinicius Jr.'s Future Amid Saudi Links: 'It’s Not Up To Me'**: [Link](https://www.foxsports.com/stories/soccer/alvaro-arbeloa-admits-hes-powerless-in-real-madrids-contract-talks-with-vinicius-jr-as-saudi-links-emerge-again)
+- **Real's Arbeloa hopes Monaco match to be turning point in the season**: [Link](https://www.msn.com/en-us/sports/soccer/real-s-arbeloa-hopes-monaco-match-to-be-turning-point-in-the-season/vi-AA1UP7fZ)
+
+
+### psv vs (N/A, 24/01/2026 15:27 Lima)
+
+Sin noticias relacionadas disponibles.
+
+
+### lecce vs (N/A, 24/01/2026 15:27 Lima)
+
+- **Serie A: Lecce espera frenar su racha negativa y vencer a Lazio**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-lecce-espera-frenar-su-racha-negativa-y-vencer-a-lazio-noticia-1672752)
+- **Valencia vs. Espanyol (24 de Ene., 2026) Resultados en Vivo**: [Link](https://www.espn.com.pe/futbol/partido/_/juegoId/748352)
+- **Serie A: Cero a cero terminó el partido entre Cremonese y Hellas Verona**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-hellas-verona-busca-dejar-el-fondo-de-la-tabla-ante-cremonese-noticia-1672039)
+
+
+### fpv (N/A, 24/01/2026 15:27 Lima)
+
+- **Anduril Awarded $23.9 Million Contract for U.S. Marine Corps Organic Precision Fires-Light Program**: [Link](https://www.anduril.com/news/anduril-awarded-usd23-9-million-contract-for-u-s-marine-corps-organic-precision-fires-light-program)
+- **Inside Anduril’s Bolt-M Kamikaze Drone Program**: [Link](https://vocal.media/theSwamp/inside-anduril-s-bolt-m-kamikaze-drone-program)
+- **Inside Anduril’s Bolt-M Kamikaze Drone Program**: [Link](https://www.twz.com/uncategorized/inside-andurils-bolt-m-kamikaze-drone-program)
+
+
+### marsella - lens (N/A, 24/01/2026 15:27 Lima)
+
+- **Liga de Francia: Lens marcha como líder y busca llevarse los 3 puntos para mantenerse en la cima**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-de-francia-lens-marcha-como-lider-y-busca-llevarse-los-3-puntos-para-mantenerse-en-la-cima-noticia-1672755)
+- **Lens marcha como líder y busca llevarse los 3 puntos para mantenerse en la cima**: [Link](https://zona.palmsbet.pe/deportes/futbol/olympique-de-marsella-vs-lens-previa-horario-y-como-llegan-para-la-fecha-19-de-la-ligue-1/)
+- **Liverpool quedó cerca de meterse a octavos de final de la Champions League**: [Link](https://ovacion.pe/noticias/champions-league/liverpool-quedo-cerca-meterse-octavos-final-champions-league)
+
+
+### lisboa vs (N/A, 24/01/2026 15:27 Lima)
+
+- **Preview: Arouca vs Sporting Lisbon - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/arouca/preview/arouca-vs-sporting-lisbon-prediction-team-news-lineups_590454.html)
+- **Sporting CP vs. FC Arouca Predictions & Tips for January 24, 2026**: [Link](https://www.filmogaz.com/114868)
+- **Arouca vs Sporting Lisbon - prediction, team news, lineups...**: [Link](https://www.rugby-addict.com/en-ie/article/home/arouca-vs-sporting-lisbon-prediction-team-news-lineups/6972acdccf16a79dce03a0b4)
+
+
 ### karagümrük - galatasaray (N/A, 24/01/2026 11:31 Lima)
 
 - **CANLI | Süper Lig’de Fatih Karagümrük – Galatasaray maçı! Ne zaman, saat kaçta, hangi kanalda?**: [Link](https://www.sabah.com.tr/spor/futbol/2026/01/24/canli-super-ligde-fatih-karagumruk-galatasaray-maci-ne-zaman-saat-kacta-hangi-kanalda)
@@ -960,73 +1028,5 @@
 - **Alcaraz - Hanfmann, en directo: segunda ronda del Open de Australia hoy en vivo online**: [Link](https://as.com/tenis/open_australia/alcaraz-hanfmann-en-directo-segunda-ronda-del-open-de-australia-hoy-en-vivo-online-f202601-d/)
 - **Carlos Alcaraz - Yannick Hanfmann, en directo | segunda ronda del Open de Australia**: [Link](https://www.marca.com/tenis/open-australia/carlos-alcaraz-yannick-hanfmann/2026/01/21/04_0401_20260121_65-directo.html)
 - **Alcaraz quiere acelerar camino a R3 en Melbourne**: [Link](https://www.atptour.com/es/news/abierto-de-australia-2026-previa-miercoles-alcaraz-r2-jornada)
-
-
-### raptors - warriors (N/A, 20/01/2026 23:49 Lima)
-
-- **Warriors vs Raptors: Golden State looks to respond through adversity**: [Link](https://empiresportsmedia.com/warriors/warriors-vs-raptors-golden-state-looks-to-respond-through-adversity/)
-- **Golden State plays Toronto, seeks 5th straight win**: [Link](https://abcnews.go.com/Sports/wireStory/golden-state-plays-toronto-seeks-5th-straight-win-129372256)
-- **The Raptors risk wasting season with struggles against zone defences**: [Link](https://sports.yahoo.com/articles/raptors-risk-wasting-season-struggles-141100566.html)
-
-
-### lakers - nuggets (N/A, 20/01/2026 23:49 Lima)
-
-- **Lakers vs Nuggets Picks & Odds Today: Back LA Against Shorthanded Nuggets**: [Link](https://www.oddsshark.com/nba/lakers-nuggets-picks-odds-january-20-2026)
-- **Where to watch Lakers vs. Nuggets free stream today**: [Link](https://www.masslive.com/tv/2026/01/where-to-watch-lakers-vs-nuggets-free-stream-today.html)
-- **Underdog Promo Code GOALBONUS: Get $75 in Fantasy Bonus Entries for Lakers vs Nuggets, UCL & NHL**: [Link](https://www.goal.com/en-us/betting/underdog-promo-code-goalbonus-get-75-fantasy-bonus-entries-lakers-vs-nuggets-ucl-nhl-1-20/bltf44420640e5948b0)
-
-
-### rachel mcadams (N/A, 20/01/2026 23:49 Lima)
-
-- **Domhnall Gleeson explains why costar Rachel McAdams doesn't deserve Hollywood Walk of Fame star**: [Link](https://ew.com/domhnall-gleeson-on-why-costar-rachel-mcadams-doesnt-deserve-walk-of-fame-star-11889264)
-- **Rachel McAdams on Her Screen Journey and Hollywood Walk of Fame Honor**: [Link](https://variety.com/2026/film/focus/rachel-mcadams-hollywood-walk-fame-1236634936/)
-- **Rachel McAdams Calls Longtime Partner Jamie Linden 'My North Star' in Emotional Walk of Fame Speech**: [Link](https://people.com/rachel-mcadams-calls-partner-jamie-linden-my-north-star-11888528)
-
-
-### aryna sabalenka (N/A, 20/01/2026 21:11 Lima)
-
-- **Australian Open Chaos: Calls to Ban Aryna Sabalenka Amid Parking Woes**: [Link](https://www.filmogaz.com/108957)
-- **Meet Aryna Sabalenka's Brazilian businessman boyfriend Georgios Frangulis whom she's ready to marry**: [Link](https://www.hellomagazine.com/celebrities/879100/meet-aryna-sabalenka-brazilian-businessman-boyfriend-georgios-frangulis-whom-she-ready-to-marry/)
-- **Aryna Sabalenka Aims for Third Australian Open Title Amidst Social Media Fame**: [Link](https://news.ssbcrack.com/aryna-sabalenka-aims-for-third-australian-open-title-amidst-social-media-fame/)
-
-
-### tormenta geomagnética (N/A, 20/01/2026 21:11 Lima)
-
-- **El Sol libera la mayor tormenta de radiación "en más de 20 años", según pronosticadores**: [Link](https://cnnespanol.cnn.com/2026/01/19/ciencia/tormenta-radiacion-solar-auroras-trax)
-- **Estados Unidos extiende alerta por tormenta solar histórica hasta el miércoles, ¿cuáles son sus efectos?**: [Link](https://www.univision.com/noticias/estados-unidos/estados-unidos-extiende-alerta-por-tormenta-solar-historica-hasta-el-miercoles-cuales-son-sus-efectos)
-- **“La más grande en 20 años”: pronostican tormenta geomagnética G4 tras una severa tormenta de radiación solar**: [Link](https://es.wired.com/articulos/la-mas-grande-en-20-anos-pronostican-tormenta-geomagnetica-g4-tras-una-severa-tormenta-de-radiacion-solar)
-
-
-### google (N/A, 20/01/2026 21:11 Lima)
-
-- **Google Gemini Prompt Injection Flaw Exposed Private Calendar Data via Malicious Invites**: [Link](https://thehackernews.com/2026/01/google-gemini-prompt-injection-flaw.html)
-- **Cybersecurity News: Gemini prompt injection flaw exposes calendar info, hacker admits to Supreme Court data leak, researchers uncover PDFSIDER malware**: [Link](https://cisoseries.com/cybersecurity-news-gemini-prompt-injection-flaw-exposes-calendar-info-hacker-admits-to-supreme-court-data-leak-researchers-uncover-pdfsider-malware/)
-- **Gemini AI assistant tricked into leaking Google Calendar data**: [Link](https://www.bleepingcomputer.com/news/security/gemini-ai-assistant-tricked-into-leaking-google-calendar-data/)
-
-
-### huachipato - u. católica (N/A, 20/01/2026 21:11 Lima)
-
-- **U. Católica vs. Huachipato (4-2): resumen y goles del partido por la Supercopa de Chile 2026 | VIDEO**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/u-catolica-de-chile-vs-huachipato-en-vivo-gratis-hoy-via-tnt-sports-hbo-max-horarios-canales-tv-y-donde-ver-partido-por-semifinal-supercopa-de-chile-video-noticia/)
-
-
-### hola (N/A, 20/01/2026 21:11 Lima)
-
-- **Camila Sodi disfruta de un viaje sorpresa a París**: [Link](https://www.hola.com/us-es/celebrities/20260121879107/camila-sodi-viaje-paris-madrid-trabajo/)
-- **TMZ revela que Karol G y Feid habrían puesto fin a su relación**: [Link](https://caretas.pe/entretenimiento/tmz-revela-que-karol-g-y-feid-habrian-puesto-fin-a-su-relacion/)
-- **Karol G habría anunciado su ruptura con Feid con esta canción que hoy cobra un nuevo significado**: [Link](https://www.eltiempo.com/cultura/gente/karol-g-habria-anunciado-su-ruptura-con-feid-con-esta-cancion-que-hoy-cobra-un-nuevo-significado-3525591)
-
-
-### novorizontino - palmeiras (N/A, 20/01/2026 21:11 Lima)
-
-- **#FicaAbel e vergonha: redes se divertem com goleada sofrida pelo Palmeiras**: [Link](https://onefootball.com/en/news/ficaabel-e-vergonha-redes-se-divertem-com-goleada-sofrida-pelo-palmeiras-42270118)
-- **Palmeiras toma quatro do Novorizontino e sofre maior derrota da era Abel**: [Link](https://www.gazetaesportiva.com/times/palmeiras/palmeiras-toma-quatro-do-novorizontino-e-sofre-a-pior-derrota-da-era-abel/?amp)
-- **Torcedores reagem a hat-trick de atacante contra o Palmeiras: 'Resenha boa'**: [Link](https://www.lance.com.br/fora-de-campo/torcedores-reagem-a-hat-trick-de-atacante-contra-o-palmeiras-resenha-boa.html)
-
-
-### slavia praga (N/A, 20/01/2026 21:11 Lima)
-
-- **¿Qué canal transmite FC Barcelona vs. Slavia Praga EN VIVO hoy 21 de enero por Champions League 2026?**: [Link](https://gestion.pe/mix/sports/que-canal-transmite-fc-barcelona-vs-slavia-praga-en-vivo-hoy-21-de-enero-por-champions-league-2026-canales-tv-nnda-nnrt-noticia/)
-- **Champions League: Slavia Praga se enfrentará ante Barcelona por la fecha 7**: [Link](https://rpp.pe/futbol/ligas-internacionales/champions-league-slavia-praga-se-enfrentara-ante-barcelona-por-la-fecha-7-noticia-1672305)
-- **Barcelona - Slavia Praga: día, hora y canal de TV para ver la penúltima fecha de la Champions League**: [Link](https://larepublica.pe/deportes/2026/01/19/barcelona-slavia-praga-fecha-hora-y-canal-de-tv-para-ver-la-penultima-fecha-de-la-champions-league-1833158)
 
 
