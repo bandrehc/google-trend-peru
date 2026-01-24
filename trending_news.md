@@ -1,3 +1,72 @@
+### karagümrük - galatasaray (N/A, 24/01/2026 11:31 Lima)
+
+- **CANLI | Süper Lig’de Fatih Karagümrük – Galatasaray maçı! Ne zaman, saat kaçta, hangi kanalda?**: [Link](https://www.sabah.com.tr/spor/futbol/2026/01/24/canli-super-ligde-fatih-karagumruk-galatasaray-maci-ne-zaman-saat-kacta-hangi-kanalda)
+- **Okan Buruk'tan ilk 11'de sürpriz! Yıldız isim yedeklerde**: [Link](https://www.sondakika.com/spor/haber-okan-buruk-tan-ilk-11-de-surpriz-yildiz-isim-19499727/)
+- **CANLI YAYIN | Fatih Karagümrük Galatasaray Maçı**: [Link](https://haberglobal.com/kesfet/canli-yayin-fatih-karagumruk-galatasaray-maci-bein-sports-canli-izle-503962)
+
+
+### bayer (N/A, 24/01/2026 11:31 Lima)
+
+- **Meinung: Pharmaaktien, Hirmer, Klaus Hommels, Heraeus, Bosch, Stanglwirt – das war Freitag, 23.01.2026**: [Link](https://www.manager-magazin.de/ueber-uns/pharmaaktien-hirmer-klaus-hommels-heraeus-bosch-stanglwirt-das-war-freitag-23-01-2026-a-de1e293d-ba73-4611-bd1c-3de988bd988c)
+- **Pharma- und Biotech-Aktien 2026: Bayer und BioNTech geben Gas, Bioxyne vor Durchbruch?**: [Link](https://www.finanznachrichten.de/nachrichten-2026-01/67516273-pharma-und-biotech-aktien-2026-bayer-und-biontech-geben-gas-bioxyne-vor-durchbruch-176.htm)
+- **Pharma-Aktien am Wendepunkt: Bringt 2026 eine Trendwende?**: [Link](https://deutsche-wirtschafts-nachrichten.de/718631)
+
+
+### marc guéhi (N/A, 24/01/2026 11:31 Lima)
+
+- **Reinforcements are on the way for Manchester City but they aren’t back today**: [Link](https://esteemedkompany.com/2026/01/24/reinforcements-are-on-the-way-for-manchester-city-but-they-arent-back-today/)
+- **Playing Champions League would be beyond a dream – Guéhi**: [Link](https://www.mancity.com/citytv/mens/marc-guehi-man-city-signing-interview-63904431)
+- **Guehi in line to make Man City debut against Wolves**: [Link](https://www.beinsports.com/en-us/soccer/premier-league/articles/guehi-in-line-to-make-man-city-debut-against-wolves-2026-01-23)
+
+
+### dni (N/A, 24/01/2026 11:31 Lima)
+
+- **Przedsiębiorcy mają możliwość udziału w szkoleniu z systemu KSeF**: [Link](https://doxa.fm/aktualnosci/region/przedsiebiorcy-maja-mozliwosc-udzialu-w-szkoleniu-z-systemu-ksef/)
+- **Środy z KSeF – KSeF w Pigułce**: [Link](https://samorzad.gov.pl/web/gmina-pokrzywnica/srody-z-ksef--ksef-w-pigulce)
+- **Konfederacja w akcji "Stop KSeF" !**: [Link](https://e-legnickie.pl/gospodarka-i-inwestycje/159-region/53321-konfederacja-w-akcji-stop-ksef)
+
+
+### tottenham (N/A, 24/01/2026 11:31 Lima)
+
+- **📈 Man City star hits historic PL marker with first-half opener vs Wolves**: [Link](https://sports.yahoo.com/articles/man-city-star-hits-historic-152700059.html)
+- **Omar Marmoush scores his first goal of the current Premier League season**: [Link](https://dailysports.net/news/omar-marmoush-scores-his-first-goal-of-the-current-premier-league-season/)
+- **Manchester City x Wolverhampton - Highlights, Summary and Match Report**: [Link](https://www.playmakerstats.com/news/manchester-city-x-wolverhampton-highlights-summary-and-match-report/1035343)
+
+
+### ajax vs (N/A, 24/01/2026 11:31 Lima)
+
+- **Ajax vs Volendam - prediction, team news, lineups...**: [Link](https://www.rugby-addict.com/en-ie/article/home/ajax-vs-volendam-prediction-team-news-lineups/697226d9baa58fc437068ea3)
+- **AFC Ajax Amsterdam vs Volendam Prediction and Betting Tips | January 24th 2026**: [Link](https://www.sportskeeda.com/football/afc-ajax-amsterdam-vs-volendam-prediction-betting-tips-january-24th-2026)
+
+
+### ufc hoy (N/A, 24/01/2026 11:31 Lima)
+
+- **A qué hora empieza UFC 324: horarios y canales para ver pelea de Gaethje vs. Pimblett**: [Link](https://elcomercio.pe/deporte-total/polideportivo/a-que-hora-empieza-ufc-324-hoy-horarios-y-canales-para-ver-pelea-de-gaethje-vs-pimblett-noticia/)
+- **UFC 324: ¿A qué hora inicia, cartelera y dónde ver la pelea Gaethje vs Pimblett por el título interino de peso ligero?**: [Link](https://rpp.pe/lucha/ufc/ufc-324-gaethje-vs-pimblett-en-vivo-fecha-horario-cartelera-y-donde-ver-por-tv-en-usa-y-latam-por-titulo-via-paramount-plus-noticia-1672659)
+- **Justin Gaethje ‘paseará al perro’ con Paddy Pimblett por la falta de respeto de Dustin Poirier**: [Link](https://www.elpueblo.pe/deportes/justin-gaethje-paseara-al-perro-con-paddy-pimblett-por-la-falta-de-respeto-de-dustin-poirier/225245/)
+
+
+### ajax - volendam (N/A, 24/01/2026 11:31 Lima)
+
+- **Live Eredivisie | Ajax leidt dankzij twee goals Baas tegen FC Volendam**: [Link](https://www.nu.nl/voetbal/6383717/live-eredivisie-ajax-leidt-dankzij-twee-goals-baas-tegen-fc-volendam.html)
+- **Opstelling bekend: Bouwman behoudt basisplek ondanks foutjes**: [Link](https://www.ajax1.nl/opstelling-bekend-bouwman-behoudt-basisplek-ondanks-foutjes/)
+- **Opstelling Ajax: Gloukh begint op de bank, wel basisplaats Bounida**: [Link](https://www.vi.nl/nieuws/opstelling-ajax-gloukh-begint-op-de-bank-wel-basisplaats-bounida)
+
+
+### mainz vs (N/A, 24/01/2026 11:31 Lima)
+
+- **Ausgleich für den FSV Mainz 05! Das Spiel des VfL Wolfsburg im AZ/WAZ-Liveticker**: [Link](https://www.waz-online.de/sport/regional/ausgleich-fuer-den-fsv-mainz-05-das-spiel-des-vfl-wolfsburg-im-az-waz-liveticker-AXCPKY7RZNGXJHVIIMMWYYW2K4.html)
+- **Ohne Arnold, nicht ohne Ambitionen: VfL Wolfsburg in Mainz gefordert**: [Link](https://www.wolfs-blog.de/ohne-arnold-nicht-ohne-ambitionen-vfl-wolfsburg-in-mainz-gefordert/)
+- **"Dann helfen dir Resultate"**: [Link](https://www.mainz05.de/news/vorbericht-vfl-wolfsburg-rueckrunde-2526-fischer-dann-helfen-dir-resultate)
+
+
+### bayern (N/A, 24/01/2026 11:31 Lima)
+
+- **Liveticker | Bayern München - FC Augsburg : | 19. Spieltag | Bundesliga 2025/26**: [Link](https://www.kicker.de/bayern-gegen-augsburg-2026-bundesliga-5050912/ticker)
+- **Halbzeit in München: FCA 0:1 hinten, aber nicht chancenlos**: [Link](https://www.daz-augsburg.de/halbzeit-in-muenchen-fca-01-hinten-aber-nicht-chancenlos/)
+- **FC Bayern: Aufstellung da! Manuel Neuer und Joshua Kimmich auf der Bank**: [Link](https://www.bild.de/sport/fussball/fc-bayern-aufstellung-da-manuel-neuer-und-joshua-kimmich-auf-der-bank-6974c293cce444431011daea)
+
+
 ### valladolid - albacete (N/A, 24/01/2026 07:52 Lima)
 
 - **Triunfo para la afición**: [Link](https://www.diariodevalladolid.es/deportes/real-valladolid/260123/278958/triunfo-aficion.html)
@@ -959,75 +1028,5 @@
 - **¿Qué canal transmite FC Barcelona vs. Slavia Praga EN VIVO hoy 21 de enero por Champions League 2026?**: [Link](https://gestion.pe/mix/sports/que-canal-transmite-fc-barcelona-vs-slavia-praga-en-vivo-hoy-21-de-enero-por-champions-league-2026-canales-tv-nnda-nnrt-noticia/)
 - **Champions League: Slavia Praga se enfrentará ante Barcelona por la fecha 7**: [Link](https://rpp.pe/futbol/ligas-internacionales/champions-league-slavia-praga-se-enfrentara-ante-barcelona-por-la-fecha-7-noticia-1672305)
 - **Barcelona - Slavia Praga: día, hora y canal de TV para ver la penúltima fecha de la Champions League**: [Link](https://larepublica.pe/deportes/2026/01/19/barcelona-slavia-praga-fecha-hora-y-canal-de-tv-para-ver-la-penultima-fecha-de-la-champions-league-1833158)
-
-
-### bayern de múnich (N/A, 20/01/2026 21:11 Lima)
-
-- **Pronóstico Bayern Union Saint-Gilloise - Champions League 21/01/26**: [Link](https://www.sportytrader.com/es/pronosticos/bayern-union-saint-gilloise-320240/)
-- **Superar su mejor registro goleador, meta de Luis Díaz en regreso a Champions**: [Link](https://espndeportes.espn.com/futbol/champions-league/nota/_/id/16204860/bayern-vs-union-saint-gilloise-regresa-luis-diaz-fase-liga)
-- **Bayern Munich: Pavlovic resalta el ataque que comandan Díaz y Kane**: [Link](https://www.espn.com.ar/futbol/champions-league/nota/_/id/16205703/bayern-munich-pavlovic-resalta-el-ataque-que-comandan-diaz-y-kane)
-
-
-### atalanta bergamasca calcio (N/A, 20/01/2026 21:11 Lima)
-
-- **Atalanta-Inter-Juve-Napoli, quanti punti vi servono in Champions? Tutto in 10 domande e risposte**: [Link](https://www.gazzetta.it/Calcio/Champions-League/20-01-2026/champions-la-corsa-qualificazione-di-atalanta-inter-juve-e-napoli-i-punti-che-mancano.shtml)
-- **RaiNews**: [Link](https://www.facebook.com/RaiNews/photos/d41d8cd9/1367106568789193/)
-- **Notte di coppa e di campioni! Riparte l'avventura delle italiane in Europa**: [Link](https://www.sprintesport.it/nazionali/2026/01/20/news/notte-di-coppa-e-di-campioni-riparte-l-avventura-delle-italiane-in-europa-747620/)
-
-
-### liverpool football club (N/A, 20/01/2026 21:11 Lima)
-
-- **Mohamed Salah returns to Liverpool squad for Marseille clash**: [Link](https://www.espn.com/soccer/story/_/id/47670966/mohamed-salah-returns-liverpool-squad-marseille-clash)
-- **Liverpool: Dominik Szoboszlai on Mo Salah & 'disrespectful' jibe**: [Link](https://www.bbc.com/sport/football/articles/cje1k8807e0o)
-- **Salah set for Liverpool recall as Slot insists he has no issues with forward**: [Link](https://www.theguardian.com/football/2026/jan/20/dominik-szoboszlai-denies-error-against-barnsley-was-a-result-of-disrespect)
-
-
-### borussia dortmund (N/A, 20/01/2026 15:44 Lima)
-
-- **Champions League: Holt der BVB heute Xavi zurück auf die Trainerbank?**: [Link](https://sportbild.bild.de/fussball/internationaler-fussball/champions-league-holt-der-bvb-heute-xavi-zurueck-auf-die-trainerbank-696faa6d568b91954b0e925a)
-- **Den eigenen Nachfolger geholt? CL-Coach versinkt mit Topklub im Chaos**: [Link](https://onefootball.com/es/noticias/den-eigenen-nachfolger-geholt-cl-coach-versinkt-mit-topklub-im-chaos-42265910)
-- **Niko Kovač reagiert nicht auf die Krise bei Tottenham: "Wir müssen das ignorieren"**: [Link](https://tribuna.com/de/news/2026-01-20-niko-kovac-reagiert-nicht-auf-die-krise-bei-tottenham-wir-mussen-das-ignorieren/)
-
-
-### ajax (N/A, 20/01/2026 15:44 Lima)
-
-- **LIVE Champions League | Ajax begint na minuut stilte voor slachtoffers treinramp aan belangrijk duel in Spanje**: [Link](https://www.ad.nl/voetbal/live-champions-league-ajax-begint-na-minuut-stilte-voor-slachtoffers-treinramp-aan-belangrijk-duel-in-spanje~ad6277ce/)
-- **Fred Grim onthult waarom hij Sean Steur na 5 basisplekken op rij ineens op de bank zet bij Ajax**: [Link](https://www.voetbalzone.nl/nieuws/fred-grim-onthult-waarom-hij-sean-steur-na-5-basisplekken-op-rij-ineens-op-de-bank-zet-bij-ajax/bltbe1dae272962f18e)
-- **Ajax met Bouwman en Mokio tegen Villarreal • NEC door naar kwartfinales beker**: [Link](https://nos.nl/liveblog/2599001-ajax-met-bouwman-en-mokio-tegen-villarreal-nec-door-naar-kwartfinales-beker)
-
-
-### villareal vs (N/A, 20/01/2026 15:44 Lima)
-
-- **Preview: Villarreal vs Ajax - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/villarreal/champions-league/preview/villarreal-vs-ajax-prediction-team-news-lineups_590137.html)
-- **Villarreal vs. Ajax: Champions League betting odds, prediction, pick**: [Link](https://www.usatoday.com/story/sports/soccer/ucl/2026/01/20/villarreal-vs-ajax-champions-league-betting-odds-prediction-pick/88258183007/)
-- **Marcelino: “Playing in the Champions League is a privilege and we only think about winning”**: [Link](https://villarrealcf.es/en/marcelino-playing-in-the-champions-league-is-a-privilege-and-we-only-think-about-winning/)
-
-
-### disney (N/A, 20/01/2026 15:44 Lima)
-
-- **Disney Reverses Exclusion of Shareholder Proposal to Review Controversial Disability Access Pass Changes**: [Link](https://www.disneytouristblog.com/disney-reverses-exclusion-of-shareholder-proposal-to-review-controversial-disability-access-pass-changes/)
-- **NEW: Disney World Pulls the Plug on Controversial DAS Program After Investigations Pile Up**: [Link](https://insidethemagic.net/2026/01/disney-disability-access-service-changes-emd1/comments/)
-- **NEWS: Disney Shareholders Set To Vote on Changes to Disability Access Service**: [Link](https://allears.net/2026/01/20/disney-shareholders-set-to-vote-on-changes-to-disability-access-service/)
-
-
-### olympiacos vs (N/A, 20/01/2026 15:44 Lima)
-
-- **Champions League: Olympiacos y Bayer Leverkusen se miden por la fecha 7**: [Link](https://rpp.pe/futbol/ligas-internacionales/champions-league-olympiacos-y-bayer-leverkusen-se-miden-por-la-fecha-7-noticia-1672153)
-- **Best bets: Champions League and Championship tips for 20 January 2026**: [Link](https://www.sportinglife.com/football/news/best-bets-champions-league-and-championship-tips-for-20-january-2026/229873)
-- **Hjulmand knows struggling Leverkusen must do more against Olympiacos**: [Link](https://www.beinsports.com/en-us/soccer/uefa-champions-league/articles/hjulmand-knows-struggling-leverkusen-must-do-more-against-olympiacos-2026-01-19)
-
-
-### wrexham - leicester city (N/A, 20/01/2026 15:44 Lima)
-
-- **Leicester City team news v Wrexham as two changes see Caleb Okoli start at right-back**: [Link](https://www.leicestermercury.co.uk/sport/football/football-news/leicester-city-team-news-v-10767425)
-- **The Championship Preview: Hollywood Meets the Foxes**: [Link](https://www.365scores.com/news/the-championship-preview-hollywood-meets-the-foxes)
-- **SlipsTips’ Tips: Foxes duo fancied in Bet Builder double**: [Link](https://mrfixitstips.co.uk/slipstips-tips-foxes-duo-fancied-in-bet-builder-double/)
-
-
-### anuel (N/A, 20/01/2026 15:44 Lima)
-
-- **¿Qué pasa con la salud de Anuel?: lo que se sabe**: [Link](https://www.univision.com/famosos/anuel-salud-lo-que-se-sabe)
-- **¿Qué le pasó? Anuel AA genera preocupación en sus fans por su apariencia física**: [Link](https://www.laopinion.co/tendencias/que-le-paso-anuel-aa-genera-preocupacion-en-sus-fans-por-su-apariencia-fisica)
-- **Preocupa el cambio físico de Anuel AA tras foto reciente, ¿qué le pasó?**: [Link](https://www.vanguardia.com/entretenimiento/tendencias/2026/01/18/preocupa-el-cambio-fisico-de-anuel-aa-tras-foto-reciente-que-le-paso/)
 
 
