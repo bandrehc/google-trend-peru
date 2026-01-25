@@ -1,3 +1,73 @@
+### alcaraz (N/A, 24/01/2026 23:54 Lima)
+
+- **Alcaraz - Paul, en directo: octavos de final del Open de Australia hoy en vivo online**: [Link](https://as.com/tenis/open_australia/alcaraz-paul-en-directo-octavos-de-final-del-open-de-australia-hoy-en-vivo-online-f202601-d/)
+- **El tenis tiene un problema de salud con los aficionados: se interrumpe 10 minutos el 'tie break' de Alcaraz**: [Link](https://www.marca.com/tenis/open-australia/2026/01/25/tenis-problema-salud-aficionados-interrumpe-10-minutos-tie-break-alcaraz.html)
+- **Australian Open 2026: así quedaron los cuadros de octavos de final**: [Link](https://espndeportes.espn.com/tenis/nota/_/id/16221623/australian-open-2026-asi-quedo-el-cuadro-de-los-octavos-de-final-masculino-y-femenino)
+
+
+### derrick lewis (N/A, 24/01/2026 23:54 Lima)
+
+- **Updated Heavyweight Rankings After UFC 324: Where Does Cortes-Acosta Land After Big Win?**: [Link](https://sportsnaut.com/ufc/ufc-heavyweight-rankings-update-after-ufc-324)
+- **UFC 324 live blog: Waldo Cortes-Acosta vs. Derrick Lewis**: [Link](https://www.mmafighting.com/ufc/467669/ufc-324-live-blog-waldo-cortes-acosta-vs-derrick-lewis)
+- **Derrick Lewis Features on Historic UFC 324 Card Amid Paramount+ Debut**: [Link](https://azat.tv/en/derrick-lewis-ufc-324-paramount-plus-debut/)
+
+
+### tommy paul (N/A, 24/01/2026 23:54 Lima)
+
+- **Australian Open 2026: Alcaraz takes on Paul in fourth round; Sabalenka defeats brave Mboko**: [Link](https://www.theguardian.com/sport/live/2026/jan/25/australian-open-2026-sabalenka-alcaraz-in-action-live)
+- **Australian Open Betting Odds and Match Previews for January 24, 2026, Men's Singles**: [Link](https://sportsbookwire.usatoday.com/story/sports/sports-betting/2026/01/24/australian-open-betting-odds-favorites-match-previews-1-23-2026-mens/88332144007/)
+- **Carlos Alcaraz match halted at Australian Open for medical emergency**: [Link](https://www.express.co.uk/sport/tennis/2162209/Carlos-Alcaraz-Tommy-Paul-Australian-Open-medical-emergency)
+
+
+### sean o'malley (N/A, 24/01/2026 23:54 Lima)
+
+- **Sean O'Malley Says Paramount Didn't Force Apology Over Song Yadong Covid Jab**: [Link](https://www.tmz.com/2026/01/23/sean-omalley-sorry-covid-mask-song-yadong-ufc-paramount/)
+- **Boxing News: Prelim Results From UFC 324 » January 24, 2026**: [Link](https://fightnews.com/prelim-results-from-ufc-324/181103)
+- **UFC 324: Sean O'Malley vs. Song Yadong odds, picks and predictions**: [Link](https://sportsbookwire.usatoday.com/story/sports/ufc/2026/01/24/omalley-vs-song-odds-picks-and-predictions/88334759007/)
+
+
+### iva jovic (N/A, 24/01/2026 23:54 Lima)
+
+- **Australian Open 2026 day eight: Yulia Putintseva launches racquet in nightmare performance; 'Shaky start' hits Carlos Alcaraz**: [Link](https://www.nine.com.au/sport/tennis/australian-open-2026-live-results-day-eight-aryna-sabalenka-carlos-alcaraz-alex-de-minaur-20260125-p5nws0.html)
+- **Jovic blitzes Putintseva in 53 minutes to reach first Grand Slam quarterfinal in Melbourne**: [Link](https://www.wtatennis.com/news/4439163/jovic-blitzes-putintseva-in-53-minutes-to-reach-first-grand-slam-quarterfinal-in-melbourne)
+- **US teen steamrolls to Open showdown with Sabalenka**: [Link](https://www.northweststar.com.au/story/9160212/us-teen-steamrolls-to-open-showdown-with-sabalenka/)
+
+
+### rose namajunas (N/A, 24/01/2026 23:54 Lima)
+
+- **UFC 324 results: Natalia Silva edges Rose Namajunas to set up Valentina Shevchenko title clash**: [Link](https://sports.yahoo.com/mma/breaking-news/article/ufc-324-results-natalia-silva-edges-out-rose-namajunas-to-set-up-valentina-shevchenko-title-clash-033552913.html)
+- **"No Chance Thug Rose Lost That Fight" - Fans And Fighters React As Natalia Silva Gets Controversial Decision Win Over Rose Namajunas In Title Eliminator At UFC 324**: [Link](https://www.mmanews.com/article/no-chance-thug-rose-lost-that-fight-fans-and-fighters-react-as-natalia-silva-gets-controversial-decision-win-over-rose-namajunas-in-title-eliminator-at-ufc-324)
+- **Rose Namajunas: Facing Valentina Shevchenko for UFC flyweight title ‘would be a culmination of my entire career’**: [Link](https://www.mmafighting.com/ufc/467252/rose-namajunas-facing-valentina-shevchenko-for-ufc-flyweight-title-would-be-a-culmination-of-my-entire-career)
+
+
+### virus gatos (N/A, 24/01/2026 23:54 Lima)
+
+- **Alerta por virus mortal que afecta a los gatos: veterinaria detalla síntomas, contagio y cómo proteger a tu mascota**: [Link](https://www.infobae.com/peru/2026/01/24/alerta-por-virus-mortal-que-afecta-a-los-gatos-veterinaria-detalla-sintomas-contagio-y-como-proteger-a-tu-mascota/)
+- **Alertan sobre repunte de casos de Panleucopenia Felina en Latinoamérica**: [Link](https://televen.com/elnoticiero/actualidad/alertan-sobre-repunte-de-casos-de-panleucopenia-felina-en-latinoamerica/)
+- **Alerta en México: El virus mortal que amenaza a tu gato hoy**: [Link](https://www.informador.mx/mexico/alerta-en-mexico-el-virus-mortal-que-amenaza-a-tu-gato-hoy-20260119-0093.html)
+
+
+### u va (N/A, 24/01/2026 23:54 Lima)
+
+- **Lucas: On The Move**: [Link](https://goheels.com/news/2026/1/24/mens-basketball-lucas-on-the-move)
+- **AJ: Passionate Words, Gritty Fight, and a Win**: [Link](https://247sports.com/college/north-carolina/article/north-carolina-unc-tar-heels-basketball-coach-hubert-davis-uva-virginia-cavaliers-wahoos-hoos-85-80-jpj-charlottesville-272232899/)
+- **No. 14 Virginia falls flat in second half, loses at home to No. 22 North Carolina**: [Link](https://www.cavalierdaily.com/article/2026/01/no-14-virginia-falls-flat-in-second-half-loses-at-home-to-no-22-north-carolina)
+
+
+### jean silva (N/A, 24/01/2026 23:54 Lima)
+
+- **Arnold Allen Discusses His 'voodoo Magic' He Used During Ceremonial Weigh-ins**: [Link](https://www.lowkickmma.com/arnold-allen-voodoo-magic-jean-silva/)
+- **Jean Silva Post-Fight Interview | UFC 324**: [Link](https://www.ufc.com/video/153861)
+- **UFC 324 Predictions, Picks, Projections, Best Bets for Saturday, January 24**: [Link](https://www.actionnetwork.com/mma/ufc-324-predictions-picks-projections-best-bets-for-saturday-january-24)
+
+
+### javier rabanal (N/A, 24/01/2026 23:54 Lima)
+
+- **Errores y aciertos de Universitario en pretemporada: la palabra de Javier Rabanal**: [Link](https://depor.com/futbol-peruano/descentralizado/javier-rabanal-universitario-errores-aciertos-y-balance-de-pretemporada-con-partidos-amistosos-ante-melgar-y-sport-boys-liga-1-noticia/)
+- **Noche Crema 2026: Javier Rabanal expresó que le llamó la atención los "jugadores con jerarquía" de Universitario**: [Link](https://www.tvperu.gob.pe/noticias/deportes/noche-crema-2026-javier-rabanal-expreso-que-le-llamo-la-atencion-los-jugadores-con-jerarquia-de-universitario)
+- **Aldo Corzo, capitán de Universitario, da firme comentario sobre el DT Javier Rabanal: "Estamos..."**: [Link](https://libero.pe/futbol-peruano/universitario/2026/01/22/aldo-corzo-capitan-de-universitario-da-firme-comentario-dt-javier-rabanal-estamos-1697014)
+
+
 ### sabalenka (N/A, 24/01/2026 21:25 Lima)
 
 - **Aryna Sabalenka vs. Victoria Mboko: Predictions, Where to Watch**: [Link](https://globelynews.com/sports/aryna-sabalenka-vs-victoria-mboko-predictions-where-to-watch/)
@@ -958,75 +1028,5 @@ Sin noticias relacionadas disponibles.
 - **Cuándo juegan Chelsea vs. Pafos por la Champions League: equipo, fecha, hora y TV en vivo**: [Link](https://www.espn.com.pe/futbol/champions-league/nota/_/id/16202344/chelsea-vs-pafos-fase-liga-fecha-7-champions-league-equipo-fecha-hora-y-tv-en-vivo)
 - **Chelsea vs Pafos FC Pronóstico: Previa y Análisis del Partido | Champions League 21-01-2026**: [Link](https://betmines.com/es/analisis-partido/chelsea-vs-pafos-fc-pronostico-previa-y-analisis-champions-league-21-01-2026)
 - **Champions League: Se enfrentan Chelsea y Pafos por la fecha 7**: [Link](https://rpp.pe/futbol/ligas-internacionales/champions-league-se-enfrentan-chelsea-y-pafos-por-la-fecha-7-noticia-1672304)
-
-
-### dolar peru (N/A, 21/01/2026 15:37 Lima)
-
-- **Precio del dólar con baja: Así abrió el tipo de cambio en Perú hoy 21 de enero**: [Link](https://www.infobae.com/peru/2026/01/21/dolar-cotizacion-de-apertura-hoy-21-de-enero-en-peru/)
-- **¿Cuál es la cotización del dólar hoy miércoles 21 de enero del 2026?**: [Link](https://andina.pe/agencia/noticia-cual-es-cotizacion-del-dolar-hoy-miercoles-21-enero-del-2026-1060118.aspx)
-- **Pago de impuestos presionaría a la baja el tipo de cambio esta semana | Dólar | BCRP | ECONOMIA**: [Link](https://elcomercio.pe/economia/pago-de-impuestos-presionaria-a-la-baja-el-tipo-de-cambio-esta-semana-dolar-bcrp-noticia/)
-
-
-### juventus vs benfica (N/A, 21/01/2026 15:37 Lima)
-
-- **Preview: Juventus vs. Benfica - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/juventus/champions-league/preview/juventus-vs-benfica-prediction-team-news-lineups_590224.html)
-- **Jose Mourinho aims dig at coaches 'who have done nothing' taking charge of biggest clubs**: [Link](https://www.tntsports.co.uk/football/champions-league/2025-2026/jose-mourinho-aims-dig-coaches-who-have-done-nothing-taking-charge-biggest-clubs_vid60048343/video.shtml)
-- **The stadium where the Special One struggles**: [Link](https://www.besoccer.com/new/the-stadium-where-the-special-one-struggles-1390655)
-
-
-### cristiano ronaldo (N/A, 21/01/2026 15:37 Lima)
-
-- **Eternal icons? Cristiano Ronaldo chases all-time record for longest goalscoring streak**: [Link](https://www.transfermarkt.com/eternal-icons-cristiano-ronaldo-chases-all-time-record-for-longest-goalscoring-streak/view/news/473572)
-- **Al-Nassr Defeats Damac with a Double and Reclaims Second Place in the League**: [Link](https://www.ysscores.com/en/news/13895382/Al-Nassr-Defeats-Damac-with-a-Double-and-Reclaims-Second-Place-in-the-League)
-- **Ronaldo edges Messi in 1,000-goal race, breaks historic record**: [Link](https://onefootball.com/en/news/ronaldo-edges-messi-in-1000-goal-race-breaks-historic-record-42275350)
-
-
-### damac - al-nassr (N/A, 21/01/2026 12:01 Lima)
-
-- **Al Nassr vs Damac: cuándo es el partido, horarios y canales que transmiten la Saudí Pro League 2026**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/al-nassr-vs-damac-en-vivo-gratis-hoy-con-cristiano-ronaldo-via-fox-sports-horarios-canales-tv-y-donde-ver-partido-por-saudi-pro-league-2026-video-noticia/)
-- **Damac vs. Al Nassr EN VIVO y GRATIS con Cristiano Ronaldo por la Saudi Pro League 2025-26: previa del partido**: [Link](https://bolavip.com/pe/futbol-internacional/damac-vs-al-nassr-en-vivo-y-gratis-con-cristiano-ronaldo-saudi-pro-league-2025-26-hora-donde-ver-alineaciones-minuto-a-minuto-resultado-goles-resumen)
-- **Damac vs Al-Nassr LIVE Score Updates in Saudi Pro League Match**: [Link](https://www.vavel.com/en-us/soccer/2026/01/21/1247950-damac-vs-al-nassr-live-score-saudi-pro-league.html)
-
-
-### galatasaray vs atletico madrid (N/A, 21/01/2026 12:01 Lima)
-
-- **Pronósticos Galatasaray vs Atlético de Madrid: los colchoneros llegan como claros favoritos**: [Link](https://depor.com/apuestas-deportivas/galatasaray-vs-atletico-de-madrid-pronosticos-apuestas-cuotas-21-01-2026/)
-- **Champions League: Galatasaray se enfrenta ante la visita Atlético de Madrid por la fecha 7**: [Link](https://rpp.pe/futbol/ligas-internacionales/champions-league-galatasaray-se-enfrenta-ante-la-visita-atletico-de-madrid-por-la-fecha-7-noticia-1672279)
-- **Galatasaray vs Atlético de Madrid: ¡Juega en la Champions League y gana hasta S/. 600,000 con Meridianbet!**: [Link](https://ovacion.pe/noticias/nota-promocional/galatasaray-vs-atletico-madrid-juega-champions-league-gana-hasta-s-600000)
-
-
-### qarabag vs (N/A, 21/01/2026 12:01 Lima)
-
-- **Champions League: Qarabag recibirá a Eintracht Frankfurt por la fecha 7**: [Link](https://rpp.pe/futbol/ligas-internacionales/champions-league-qarabag-recibira-a-eintracht-frankfurt-por-la-fecha-7-noticia-1672280)
-- **Confirmed lineups: Qarabağ FK vs. Eintracht Frankfurt**: [Link](https://bulinews.com/confirmed-lineups-qarabag-eintracht-frankfurt)
-- **Afran Ismayilov: "It has always been difficult for us to play against German teams"**: [Link](https://offsideplus.az/en/category/champions-league/30660/afran-ismayilov-it-has-always-been-difficult-for-us-to-play-against-german-teams)
-
-
-### yahoo finance (N/A, 21/01/2026 12:01 Lima)
-
-- **Carney Speech on U.S. ‘Rupture’ and Canada’s Survival Draws Standing Ovation at Davos**: [Link](https://www.nytimes.com/2026/01/20/world/canada/carney-speech-davos-trump.html)
-- **Analysis: How Canada is positioning itself on Greenland knowing it could be next**: [Link](https://www.cnn.com/2026/01/20/americas/canada-greenland-trump-analysis-latam-intl)
-- **Carney says the old world order 'is not coming back' in Davos speech**: [Link](https://www.bbc.com/news/articles/cly3d28p4p8o)
-
-
-### davos (N/A, 21/01/2026 12:01 Lima)
-
-- **Trump in Davos - Showdown beim Weltwirtschaftsforum**: [Link](https://www.deutschlandfunk.de/trump-davos-groenland-ukraine-krieg-100.html)
-- **Vom „Doomsday Plane“ bis zur Trump-757 – so sieht die US-Präsidentenflotte aus**: [Link](https://www.fr.de/politik/vom-doomsday-plane-bis-zur-trump-757-so-sieht-die-us-praesidentenflotte-aus-94132759.html)
-- **Trump in Davos: Für das WEF reist Trump erstmals seit Oktober wieder ins Ausland | blue News**: [Link](https://www.bluewin.ch/de/news/international/fuer-das-wef-reist-trump-erstmals-seit-oktober-wieder-ins-ausland-3060411.html)
-
-
-### qarabag (N/A, 21/01/2026 12:01 Lima)
-
-- **Confirmed lineups: Qarabağ FK vs. Eintracht Frankfurt**: [Link](https://bulinews.com/confirmed-lineups-qarabag-eintracht-frankfurt)
-- **Afran Ismayilov: "It has always been difficult for us to play against German teams"**: [Link](https://offsideplus.az/en/category/champions-league/30660/afran-ismayilov-it-has-always-been-difficult-for-us-to-play-against-german-teams)
-- **"This is the most important game of my career" - VIDEO**: [Link](https://medianews.az/en/bu-karyeramin-en-vacib-oyunudur-video)
-
-
-### lakers (N/A, 21/01/2026 12:01 Lima)
-
-- **How Buss family infighting drove the $10B sale of the Lakers**: [Link](https://www.espn.com/nba/story/_/id/47594947/inside-jeanie-jerry-buss-family-infighting-drove-10b-sale-los-angeles-lakers-mark-walter)
-- **Now, the Lakers move forward under new …**: [Link](https://sports.yahoo.com/articles/now-lakers-move-forward-under-144655351.html)
-- **Jeanie Buss Cited Financial Competition As Reason For Sale Of Lakers**: [Link](https://basketball.realgm.com/wiretap/283535/Jeanie-Buss-Cited-Financial-Competition-As-Reason-For-Sale-Of-Lakers)
 
 
