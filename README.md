@@ -1,3 +1,66 @@
+### barcelona vs real oviedo (N/A, 25/01/2026 07:54 Lima)
+
+- **Barcelona vs Real Oviedo: alineaciones probables, J21 de LaLiga**: [Link](https://www.espn.com.ar/futbol/espana/nota/_/id/16223713/barcelona-vs-real-oviedo-laliga-2026-alineaciones)
+- **Regreso a casa con presión**: [Link](https://as.com/futbol/primera/regreso-a-casa-con-presion-f202601-n/)
+- **Dónde ver Barcelona vs. Real Oviedo EN VIVO: canales de DIRECTV y Movistar LaLiga**: [Link](https://depor.com/futbol-internacional/espana/donde-ver-barcelona-vs-real-oviedo-en-vivo-canales-de-directv-futbol-libre-tv-dsports-movistar-laliga-espn-deportes-video-noticia/)
+
+
+### atlético madrid - r.c.d. mallorca (N/A, 25/01/2026 07:54 Lima)
+
+- **Muriqi busca oro en la fortaleza del Atleti**: [Link](https://as.com/futbol/primera/muriqi-busca-oro-en-la-fortaleza-del-atleti-f202601-n/)
+- **LaLiga EA Sports: Por la fecha 21 se enfrentarán Atlético de Madrid y Mallorca**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-por-la-fecha-21-se-enfrentaran-atletico-de-madrid-y-mallorca-noticia-1672858)
+- **Atlético de Madrid-Mallorca: Alineaciones probables, estadísticas y cómo ver por TV y online (14:00)**: [Link](https://espanol.eurosport.com/futbol/la-liga/2025-2026/atletico-madrid-mallorca-alineaciones-probables-previa-estadisticas-horario-como-donde-ver-television-online-streaming-hoy_sto23262692/story.shtml)
+
+
+### australian open (N/A, 25/01/2026 07:54 Lima)
+
+- **Mensik withdraws from Australian Open, Djokovic into QFs**: [Link](https://www.atptour.com/en/news/mensik-australian-open-2026-withdrawal)
+- **Djokovic's Open hopes boosted as opponent withdraws**: [Link](https://aapnews.aap.com.au/news/djokovic-s-open-hopes-boosted-as-opponent-withdraws)
+- **Tennis Star Pulls Out of Australian Open Hours Before Novak Djokovic Clash**: [Link](https://www.sportbible.com/tennis/australian-open-withdrawal-novak-djokovic-198777-20260125)
+
+
+### sassuolo - cremonese (N/A, 25/01/2026 07:54 Lima)
+
+- **LIVE Sassuolo-Cremonese 1-0: Fadera in gol al terzo minuto**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Sassuolo/25-01-2026/sassuolo-cremonese-live-risultato-e-gol-in-diretta-serie-a.shtml)
+- **È l’ora di vincere**: [Link](https://www.pressreader.com/italy/la-gazzetta-dello-sport-mil/20260125/282548729684507)
+- **Sassuolo, le ultime sull’attacco. Da Berardi a Pinamonti e Thorstvedt: la probabile formazione**: [Link](https://www.sosfanta.com/squadra/sassuolo/sassuolo-le-ultime-sullattacco-da-berardi-a-pinamonti-e-thorstvedt-la-probabile-formazione/)
+
+
+### brentford vs (N/A, 25/01/2026 07:54 Lima)
+
+- **Nottingham Forest predicted XI as Sean Dyche faces key decisions amid injury doubts and new signing**: [Link](https://www.nottinghampost.com/sport/football/football-news/nottingham-forest-predicted-team-brentford-10774543)
+- **Keith Andrews impressed by how far Brentford have come**: [Link](https://www.rte.ie/sport/soccer/2026/0123/1554661-andrews-impressed-by-how-far-brentford-have-come/)
+- **Use BetMGM promo code ‘B10G40’ & score £40 in free bets for Brentford vs Forest**: [Link](https://talksport.com/betting/3927487/brentford-vs-nottingham-forest-betmgm-free-bets/)
+
+
+### open australia (N/A, 25/01/2026 07:54 Lima)
+
+- **Coco Gauff on New Generation: 'I Don't Feel an Age Barrier, We Hang Out Together'**: [Link](https://en.tennistemple.com/actu/coco-gauff-on-new-generation-i-dont-feel/y2n1)
+- **Gauff vs. Muchova 2026 livestream: Watch Australian Open for free**: [Link](https://mashable.com/article/gauff-muchova-australian-open-2026-live-stream-for-free)
+- **Coco Gauff Gets Honest on American Tennis’ Depth Amid Her, Iva Jović, Amanda Anisimova, and Others’ Australian Open Runs**: [Link](https://www.profootballnetwork.com/tennis/coco-gauff-australian-open-quarterfinals-american-depth/)
+
+
+### dragon ball super galactic patrol anime (N/A, 25/01/2026 07:54 Lima)
+
+- **Ubisoft and Atari are preparing a юбилейное переиздание of the first Rayman - the project has received an age rating in Australia**: [Link](https://ixbt.games/en/news/2026/01/25/ubisoft-i-atari-gotoviat-iubileinoe-pereizdanie-pervoi-rayman-proekt-polucil-vozrastnoi-reiting-v-avstralii.html)
+- **NEEDY GIRL OVERDOSE adaptation creators released a theatrical version trailer and showed Ame-chan**: [Link](https://ixbt.games/en/news/2026/01/25/sozdateli-ekranizacii-needy-girl-overdose-vypustili-treiler-teatralnoi-versii-i-pokazali-ame-can.html)
+- **A New Era of Dragon Ball: Bandai Namco Unveils Age 1000 and a Massive Expansion for the Fighting Game Sparking! Zero**: [Link](https://ixbt.games/en/news/2026/01/25/novaia-era-dragon-ball-bandai-namco-predstavila-igru-age-1000-i-masstabnoe-dopolnenie-dlia-faitinga-sparking-zero.html)
+
+
+### panleucopenia felina (N/A, 25/01/2026 07:54 Lima)
+
+- **Alerta por virus mortal que afecta a los gatos: veterinaria detalla síntomas, contagio y cómo proteger a tu mascota**: [Link](https://www.infobae.com/peru/2026/01/24/alerta-por-virus-mortal-que-afecta-a-los-gatos-veterinaria-detalla-sintomas-contagio-y-como-proteger-a-tu-mascota/)
+- **Alertan sobre repunte de casos de Panleucopenia Felina en Latinoamérica**: [Link](https://televen.com/elnoticiero/actualidad/alertan-sobre-repunte-de-casos-de-panleucopenia-felina-en-latinoamerica/)
+- **Alerta en México: El virus mortal que amenaza a tu gato hoy**: [Link](https://www.informador.mx/mexico/alerta-en-mexico-el-virus-mortal-que-amenaza-a-tu-gato-hoy-20260119-0093.html)
+
+
+### cometa 3i atlas (N/A, 25/01/2026 07:54 Lima)
+
+- **Novas descobertas surpreendentes do cometa 3I/ATLAS são reveladas**: [Link](https://www.cnnbrasil.com.br/ciencia/novas-descobertas-surpreendentes-do-cometa-3i-atlas-sao-reveladas/)
+- **Defesa planetária da NASA é acionada por cometa interestelar que emite estranhos sinais de rádio**: [Link](https://www.mixvale.com.br/2026/01/24/defesa-planetaria-da-nasa-e-acionada-por-cometa-interestelar-que-emite-estranhos-sinais-de-radio/)
+- **Trânsito de Ganimedes e 3I/ATLAS nas imagens Astronômicas da Semana**: [Link](https://olhardigital.com.br/2026/01/19/ciencia-e-espaco/transito-de-ganimedes-e-3i-atlas-nas-imagens-astronomicas-da-semana/)
+
+
 ### sedapal anuncia cortes programados de agua en distritos de lima (N/A, 25/01/2026 03:34 Lima)
 
 - **Estos distritos de Lima tendrán corte de agua de Sedapal este 23 y 24 de enero por hasta 12 horas**: [Link](https://www.infobae.com/peru/2026/01/22/estos-distritos-de-lima-tendran-corte-de-agua-de-sedapal-este-23-y-24-de-enero-por-hasta-12-horas/)
@@ -965,68 +1028,5 @@ Sin noticias relacionadas disponibles.
 - **Alianza Lima está a la expectativa: Boca Juniors y el plan para cerrar el fichaje de Kevin Serna**: [Link](https://depor.com/futbol-peruano/descentralizado/alianza-lima-kevin-serna-boca-juniors-y-el-plan-para-ficharlo-cuanto-dinero-recibirian-los-blanquiazules-liga-1-noticia/)
 - **Serna dejaría Fluminense para ir a un gigante de Sudamérica**: [Link](https://www.americatv.com.pe/deportes/futbol-mundial/serna-dejaria-fluminense-fichar-gigante-sudamerica-n452398)
 - **Prensa de Argentina reaccionó ante interés de Boca Juniors en futbolista peruano**: [Link](https://libero.pe/futbol-internacional/2026/01/21/prensa-de-argentina-reacciono-interes-de-boca-juniors-en-futbolista-peruano-918624)
-
-
-### santa fe - junior (N/A, 21/01/2026 21:14 Lima)
-
-- **Después de cinco años, Santa Fe puede volver a festejar título en El Campín**: [Link](https://www.espn.com.ar/futbol/colombia/nota/_/id/16210192/despues-de-cinco-anos-santa-fe-puede-volver-a-festejar-titulo-en-el-campin-superliga)
-- **Superliga BetPlay: Rodallega marca un golazo en el Santa Fe vs. Junior**: [Link](https://espndeportes.espn.com/futbol/colombia/nota/_/id/16212352/superliga-betplay-rodallega-golazo-santa-fe-vs-junior)
-- **Santa Fe-Junior EN VIVO ONLINE: resultado EN DIRECTO**: [Link](https://elcomercio.pe/deporte-total/colombia/santa-fe-vs-junior-en-vivo-gratis-hoy-via-rcn-fanatiz-horarios-canales-tv-y-donde-ver-partido-de-vuelta-por-la-final-de-superliga-colombia-video-noticia/)
-
-
-### flamengo - vasco da gama (N/A, 21/01/2026 21:14 Lima)
-
-- **Bastidores: decisão de Bap por retorno do time principal do Flamengo dividiu opiniões e gerou incômodo**: [Link](https://ge.globo.com/futebol/times/flamengo/noticia/2026/01/21/bastidores-decisao-de-bap-por-retorno-do-time-principal-do-flamengo-dividiu-opinioes-e-gerou-incomodo.ghtml)
-- **Clássico dos Milhões começa com 8 minutos de atraso por conta do grande volume de fumaça das arquibancadas**: [Link](https://br.bolavip.com/vasco/classico-dos-milhoes-comeca-com-8-minutos-de-atraso-por-conta-do-grande-volume-de-fumaca-das-arquibancadas)
-- **Perto de ser vendido, Rayan está fora do clássico entre Vasco e Flamengo**: [Link](https://www.cnnbrasil.com.br/esportes/futebol/vasco-da-gama/perto-de-ser-vendido-rayan-esta-fora-do-classico-entre-vasco-e-flamengo/)
-
-
-### guarany de bagé - grêmio (N/A, 21/01/2026 21:14 Lima)
-
-- **Jogos do Grêmio hoje (21): Tricolor entra em campo pelo Gauchão e decide vaga na final da Copinha**: [Link](https://gremioplay.com.br/jogos-do-gremio-hoje-21-gauchao-copinha/)
-- **Guarany de Bagé x Grêmio pelo Campeonato Gaúcho: onde assistir ao vivo, horário e escalação**: [Link](https://www.estadao.com.br/esportes/futebol/guarany-de-bage-x-gremio-campeonato-gaucho-onde-assistir-ao-vivo-horario-escalacao-npres/)
-- **O último vestibular antes do primeiro grande compromisso do ano**: [Link](https://realnews.com.br/o-ultimo-vestibular-antes-do-primeiro-grande-compromisso-do-ano/)
-
-
-### peñarol - colo-colo (N/A, 21/01/2026 21:14 Lima)
-
-- **¡En vivo! Colo Colo enfrenta a Peñarol en Uruguay en un nuevo duelo amistoso**: [Link](https://www.emol.com/noticias/Deportes/2026/01/21/1189280/colocolo-penarol-amistoso-relato-envivo.html)
-- **Peñarol - Colo Colo en vivo: partido amistoso Serie Río de La Plata, en directo**: [Link](https://chile.as.com/futbol/penarol-colo-colo-en-vivo-partido-amistoso-serie-rio-de-la-plata-en-directo-f202601-d/)
-- **Peñarol vs. Colo Colo EN VIVO: minuto a minuto por Serie Río de la Plata 2026**: [Link](https://libero.pe/futbol-internacional/2026/01/20/penarol-vs-colo-colo-en-vivo-gratis-partido-de-serie-rio-de-plata-via-espn-disney-plus-lbev-1064080)
-
-
-### negociación colectiva (N/A, 21/01/2026 21:14 Lima)
-
-- **CAS: alza de sueldo, CTS y bonos para trabajadores, la propuesta en negociación colectiva**: [Link](https://gestion.pe/economia/cas-alza-de-sueldo-cts-y-bonos-para-trabajadores-la-propuesta-en-negociacion-colectiva-noticia/)
-- **Trabajadores del sector público piden aumento de sueldo de S/700, aguinaldo completo y bono único desde S/600: los detalles**: [Link](https://larepublica.pe/economia/2026/01/18/negociacion-colectiva-trabajadores-estatales-piden-aumento-salarial-de-s700-aguinaldo-completo-y-bono-desde-s600-hnews-1300464)
-- **Aumento de S/700 al sector público 2026: Consulta aquí si eres beneficiario**: [Link](https://lahora.pe/economia/aumento-de-s-700-al-sector-publico-2026-consulta-aqui-si-eres-beneficiario/)
-
-
-### bayer (N/A, 21/01/2026 15:37 Lima)
-
-- **Nach dem Glyphosat-Boost: Glyphosat-Knoten geplatzt? Was die Bayer-Aktie jetzt antreibt - 21.01.2026**: [Link](https://www.wallstreet-online.de/nachricht/20398303-glyphosat-boost-glyphosat-knoten-geplatzt-bayer-aktie-antreibt)
-- **Dax zittert vor Schicksalstag: Bayer - Aktuelle Kursrallye nur der Anfang?**: [Link](https://www.boersennews.de/nachrichten/artikel/boersennews/dax-zittert-vor-schicksalstag-bayer-aktuelle-kursrallye-nur-der-anfang/5015202/)
-- **Barclays hebt Ziel für Bayer auf 50 Euro - 'Overweight' - boerse.de**: [Link](https://www.boerse.de/nachrichten/Barclays-hebt-Ziel-fuer-Bayer-auf-50-Euro-Overweight/38099122)
-
-
-### bayern de múnich (N/A, 21/01/2026 15:37 Lima)
-
-- **Bayern - Union Saint-Gilloise, en directo: Champions League, hoy en vivo**: [Link](https://as.com/futbol/champions/bayern-union-saint-gilloise-en-directo-champions-league-hoy-en-vivo-f202601-d/)
-- **Bayern Munich: Pavlovic resalta el ataque que comandan Díaz y Kane**: [Link](https://www.espn.com.ar/futbol/champions-league/nota/_/id/16205703/bayern-munich-pavlovic-resalta-el-ataque-que-comandan-diaz-y-kane)
-- **Con Luis Díaz, Bayern va por el cupo a los octavos ante Union Saint-Gilloise**: [Link](https://espndeportes.espn.com/futbol/champions-league/nota/_/id/16209080/con-luis-diaz-bayern-va-por-cupo-octavos-champions-league-union-saint-gilloise)
-
-
-### joao grimaldo (N/A, 21/01/2026 15:37 Lima)
-
-- **“Es un gran chico, estaba en muy buena forma y demostró su calidad”: extécnico de Grimaldo lo elogia y opina sobre su llegada al Sparta Praga**: [Link](https://elcomercio.pe/deporte-total/seleccion/seleccion-peruana-hoy-es-un-gran-chico-estaba-en-muy-buena-forma-y-demostro-su-calidad-adrian-gula-extecnico-de-joao-grimaldo-lo-elogia-y-opina-sobre-su-llegada-al-sparta-praga-tlcnota-noticia/)
-- **Grata impresión: el debut de Joao Grimaldo en Sparta Praga y elogios a su juego**: [Link](https://depor.com/futbol-peruano/peruanos-en-el-mundo/joao-grimaldo-recibio-elogios-en-sparta-praga-debut-en-amistoso-ante-malmo-y-buenas-impresiones-noticia/)
-- **Periodista checo dio rotundo calificativo a Manco tras hablar de Joao Grimaldo: "Un..."**: [Link](https://libero.pe/futbol-internacional/2026/01/14/periodista-checo-dio-rotundo-calificativo-manco-hablar-de-joao-grimaldo-1192884)
-
-
-### roony bardghji (N/A, 21/01/2026 15:37 Lima)
-
-- **Preview: Slavia Prague vs Barcelona - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/barcelona/champions-league/preview/slavia-prague-vs-barcelona-prediction-team-news-lineups_590198.html)
-- **UEFA Champions League: What time and which channel to watch?**: [Link](https://foot-africa.com/en/news/uefa-champions-league-what-time-and-which-channel-to-watch-1052252/)
-- **Lewandowski ende pa gol në Ligën e Kampionëve, sonte synon t’i japë fund kësaj ecurie**: [Link](https://reporteri.net/en/sport/Lewandowski-still-without-a-goal-in-the-Champions-League-tonight-aims-to-end-this-run/)
 
 
