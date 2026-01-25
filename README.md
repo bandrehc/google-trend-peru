@@ -1,3 +1,24 @@
+### sedapal anuncia cortes programados de agua en distritos de lima (N/A, 25/01/2026 03:34 Lima)
+
+- **Estos distritos de Lima tendrán corte de agua de Sedapal este 23 y 24 de enero por hasta 12 horas**: [Link](https://www.infobae.com/peru/2026/01/22/estos-distritos-de-lima-tendran-corte-de-agua-de-sedapal-este-23-y-24-de-enero-por-hasta-12-horas/)
+- **¡A juntar AGUA desde YA! Anuncian corte de agua el 25 y 26 de enero: ¿Tu distrito se verá afectado?**: [Link](https://www.exitosanoticias.pe/actualidad/a-juntar-agua-ya-anuncian-corte-agua-25-26-enero-tu-distrito-vera-afectado-n167307)
+- **🔴🔵¡A juntar AGUA desde YA! 🚱 Anuncian corte del servicio programado para este miércoles 21 de enero: Revisa AQUÍ si tu distrito se verá afectado, según el reporte de Sedapal.**: [Link](https://www.facebook.com/Exitosanoticias/posts/a-juntar-agua-desde-ya-anuncian-corte-del-servicio-programado-para-este-mi%C3%A9rcole/1328228396006882/)
+
+
+### ilia topuria (N/A, 25/01/2026 03:34 Lima)
+
+- **Paddy Pimblett vs Justin Gaethje: UFC 324 - Pimblett says Ilia Topuria could be stripped of title**: [Link](https://www.bbc.com/sport/mixed-martial-arts/articles/c79rl9170p5o)
+- **Paddy Pimblett Says No to a White House Fight—Here’s Why**: [Link](https://www.yardbarker.com/mma/articles/paddy_pimblett_says_no_to_a_white_house_fightheres_why/s1_17615_43372546)
+- **Renato Moicano explains why ‘it’s impossible’ for Paddy Pimblett to beat Ilia Topuria**: [Link](https://sports.yahoo.com/articles/renato-moicano-explains-why-impossible-180000677.html)
+
+
+### carlos alcaraz (N/A, 25/01/2026 03:34 Lima)
+
+- **Alcaraz mejora su versión australiana y toca su techo sin ceder un set**: [Link](https://www.marca.com/tenis/open-australia/2026/01/25/alcaraz-mejora-version-australiana-toca-techo-ceder-set.html)
+- **El partido de Alcaraz y Paul fue interrumpido en un momento clave del Australian Open 2026: las razones**: [Link](https://www.espn.com.ar/tenis/nota/_/id/16224521/el-partido-de-carlos-alcaraz-y-tommy-paul-fue-interrumpido-en-un-momento-clave-del-australian-open-2026-las-razones-grand-slam)
+- **Alcaraz - Paul: horario, TV, dónde y cómo ver su partido de octavos en el Open de Australia**: [Link](https://as.com/tenis/open_australia/alcaraz-paul-horario-tv-donde-y-como-ver-su-partido-de-octavos-en-el-open-de-australia-f202601-n/)
+
+
 ### alcaraz (N/A, 24/01/2026 23:54 Lima)
 
 - **Alcaraz - Paul, en directo: octavos de final del Open de Australia hoy en vivo online**: [Link](https://as.com/tenis/open_australia/alcaraz-paul-en-directo-octavos-de-final-del-open-de-australia-hoy-en-vivo-online-f202601-d/)
@@ -1007,26 +1028,5 @@ Sin noticias relacionadas disponibles.
 - **Preview: Slavia Prague vs Barcelona - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/barcelona/champions-league/preview/slavia-prague-vs-barcelona-prediction-team-news-lineups_590198.html)
 - **UEFA Champions League: What time and which channel to watch?**: [Link](https://foot-africa.com/en/news/uefa-champions-league-what-time-and-which-channel-to-watch-1052252/)
 - **Lewandowski ende pa gol në Ligën e Kampionëve, sonte synon t’i japë fund kësaj ecurie**: [Link](https://reporteri.net/en/sport/Lewandowski-still-without-a-goal-in-the-Champions-League-tonight-aims-to-end-this-run/)
-
-
-### slavia praha vs barcelona (N/A, 21/01/2026 15:37 Lima)
-
-- **Největší hvězda chybí. Přesto Barcelona do Prahy přivezla světovou extratřídu**: [Link](https://www.sport.cz/clanek/fotbal-liga-mistru-st-do-12-nejvetsi-hvezda-chybi-presto-barcelona-do-prahy-privezla-svetovou-extratridu-5379021)
-- **ŽIVĚ: Slavia Praha - Barcelona 1:0. Sešívaní zaskočili favorita rychlým gólem, trefil se Kušej**: [Link](https://www.irozhlas.cz/sport/fotbal/sk-slavia-praha-fc-barcelona-online-primy-prenos-liga-mistru_2601212005_mim)
-- **Český fanklub Barcelony nesmí mít na zápase choreo. Pocta „barcelonskému dědečkovi“ neprošla**: [Link](https://tv.idnes.cz/sport/fanklub-barcelona-fotbal-sport-choreografie-zakaz.V260121_125710_idnestv_pech)
-
-
-### marsella vs (N/A, 21/01/2026 15:37 Lima)
-
-- **Champions League: Olympique de Marsella y Liverpool se encuentran en la fecha 7**: [Link](https://rpp.pe/futbol/ligas-internacionales/champions-league-olympique-de-marsella-y-liverpool-se-encuentran-en-la-fecha-7-noticia-1672302)
-- **VER GRATIS - Liverpool vs Marsella EN VIVO por ESPN: alineaciones del partido y canal que transmite**: [Link](https://elcomercio.pe/deporte-total/champions-league/liverpool-vs-marsella-en-vivo-gratis-hoy-via-espn-disney-plus-max-movistar-plus-horarios-canales-tv-y-donde-ver-partido-por-champions-league-video-noticia/)
-- **Olympique Marsella vs Liverpool: ¡Incrementa tus ganancias hasta 200% con la Champions League en Meridianbet!**: [Link](https://ovacion.pe/noticias/nota-promocional/olympique-marsella-vs-liverpool-incrementa-tus-ganancias-hasta-200)
-
-
-### pafos fc (N/A, 21/01/2026 15:37 Lima)
-
-- **Cuándo juegan Chelsea vs. Pafos por la Champions League: equipo, fecha, hora y TV en vivo**: [Link](https://www.espn.com.pe/futbol/champions-league/nota/_/id/16202344/chelsea-vs-pafos-fase-liga-fecha-7-champions-league-equipo-fecha-hora-y-tv-en-vivo)
-- **Chelsea vs Pafos FC Pronóstico: Previa y Análisis del Partido | Champions League 21-01-2026**: [Link](https://betmines.com/es/analisis-partido/chelsea-vs-pafos-fc-pronostico-previa-y-analisis-champions-league-21-01-2026)
-- **Champions League: Se enfrentan Chelsea y Pafos por la fecha 7**: [Link](https://rpp.pe/futbol/ligas-internacionales/champions-league-se-enfrentan-chelsea-y-pafos-por-la-fecha-7-noticia-1672304)
 
 
