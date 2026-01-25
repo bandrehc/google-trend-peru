@@ -1,3 +1,73 @@
+### deportivo - racing de santander (N/A, 25/01/2026 15:30 Lima)
+
+- **Deportivo - Racing, en directo: LaLiga Hypermotion hoy en vivo**: [Link](https://as.com/futbol/segunda/deportivo-racing-en-directo-laliga-hypermotion-hoy-en-vivo-f202601-d/)
+- **Uno por uno del rival | Talento con números para volar a Primera**: [Link](https://dxtcampeon.elidealgallego.com/deportivo/rivales/2026-01-25/uno-por-uno-del-rival-talento-con-numeros-para-volar-a-primera-832419.html)
+- **Ultras del Racing de Santander, escoltados por la Policía en las calles de A Coruña**: [Link](https://www.laopinioncoruna.es/videos/deportivo/2026/01/25/ultras-racing-santander-escoltados-policia-126063676.html)
+
+
+### lille (N/A, 25/01/2026 15:30 Lima)
+
+- **Emanuel Emegha Excluded from Lille Squad**: [Link](https://www.filmogaz.com/116586)
+- **Lille predicted XI v Strasbourg: Hamza Igamane out, Hakon Arnar Haraldsson suspended**: [Link](https://ca.sports.yahoo.com/news/lille-predicted-xi-v-strasbourg-111500492.html)
+- **Preview: Lille vs Strasbourg - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/lille/preview/lille-vs-strasbourg-prediction-team-news-lineups_590465.html)
+
+
+### alavés - real betis (N/A, 25/01/2026 15:30 Lima)
+
+- **Alavés - Betis, en directo: LaLiga EA Sports, en vivo hoy**: [Link](https://as.com/futbol/primera/alaves-betis-en-directo-laliga-ea-sports-en-vivo-hoy-f202601-d/)
+- **Coudet "Estoy tranquilo dentro de que no es el escenario ideal"**: [Link](https://www.espn.com.ar/futbol/espana/nota/_/id/16218462/eduardo-coudet-tranquilo-alaves-no-es-escenario-ideal)
+- **Apuestas y Pronóstico del Alavés vs Real Betis 25/01/26**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2026/enero/pronostico-alaves-vs-real-betis-25-01-26)
+
+
+### roma - milan (N/A, 25/01/2026 15:30 Lima)
+
+- **Roma-Milan: Formazioni ufficiali e Cronaca in diretta**: [Link](https://sport.virgilio.it/dirette/live/serie-a/25-1-2026/roma-milan/2558725/)
+- **Cafù difende Leao e torna sull'addio di Theo: "Il rammarico c'è, chissà cos'avrebbe fatto con Allegri"**: [Link](https://tribuna.com/it/news/2026-01-25-cafu-difende-leao-e-torna-sulladdio-di-theo-il-rammarico-ce-chissa-cosavrebbe-fatto-con-a/)
+- **Soulé: “Partita fondamentale per la classifica. Malen ha già dimostrato il suo valore”**: [Link](https://www.forzaroma.info/news-as-roma/soule-partita-fondamentale-per-la-classifica-malen-ha-gia-dimostrato-il-suo-valore/)
+
+
+### santos vs (N/A, 25/01/2026 15:30 Lima)
+
+- **📹 Yuri Alberto and Gabigol score as Corinthians and Santos draw the derby**: [Link](https://sports.yahoo.com/articles/yuri-alberto-gabigol-score-corinthians-002900517.html)
+- **Lucas Canetto Bellote stood down for Paulistão round five after Corinthians 1-1 draw controversy**: [Link](https://onefootball.com/fr/news/lucas-canetto-bellote-stood-down-for-paulistao-round-five-after-corinthians-1-1-draw-controversy-42290023)
+- **Belo Clube vs Corinthians: partidazo en vivo por el Campeonato Paulista**: [Link](https://www.futbolperuano.com/en-vivo/campeonato-paulista-2026-belo-clube-vs-corinthians-en-vivo-561136)
+
+
+### temperatura lima (N/A, 25/01/2026 15:30 Lima)
+
+- **Ola de calor en Lima: Senamhi pronostica a cuántos grados llegaremos hoy, domingo 25 de enero**: [Link](https://www.infobae.com/peru/2026/01/25/clima-en-lima-cual-sera-la-temperatura-maxima-y-minima-este-25-de-enero/)
+- **Temperaturas llegarían hasta 37 °C en la costa, advierte el Senamhi**: [Link](https://caretas.pe/nacional/temperaturas-llegarian-hasta-37-c-en-la-costa-advierte-el-senamhi/)
+- **Lima registró el día más caluroso del verano 2026: así seguirá la temperatura en los próximos días**: [Link](https://larepublica.pe/sociedad/2026/01/24/lima-registro-el-dia-mas-caluroso-del-verano-2026-asi-seguira-la-temperatura-en-los-proximos-dias-884088)
+
+
+### boca juniors vs (N/A, 25/01/2026 15:30 Lima)
+
+- **Boca Juniors debutará en el Torneo Apertura ante Deportivo Riestra: hora, TV y probables formaciones**: [Link](https://www.infobae.com/deportes/2026/01/25/boca-juniors-debutara-en-el-torneo-apertura-ante-deportivo-riestra-hora-tv-y-probables-formaciones/)
+- **Partido - Boca Juniors vs Riestra gratis: canales de transmisión y cómo ver online**: [Link](https://elcomercio.pe/deporte-total/argentina/boca-juniors-vs-riestra-en-vivo-hoy-gratis-por-liga-argentina-a-que-hora-juegan-canal-que-pasa-y-donde-ver-via-tnt-sports-max-espn-disney-plus-video-noticia/)
+- **Dónde ver Boca vs. Riestra EN VIVO: canales para ver ESPN, TNT Sports y Disney Plus**: [Link](https://depor.com/futbol-internacional/argentina/donde-ver-boca-vs-riestra-en-vivo-gratis-canales-de-espn-tnt-sports-pelota-libre-tv-disney-plus-argentina-video-noticia/)
+
+
+### bolivia - méxico (N/A, 25/01/2026 15:30 Lima)
+
+- **Bolivia vs México EN VIVO: ¿a qué hora juegan y dónde ver el amistoso internacional en Santa Cruz?**: [Link](https://rpp.pe/futbol/futbol-mundial/bolivia-vs-mexico-en-vivo-a-que-hora-juegan-y-como-ver-amistoso-fifa-via-unitel-y-azteca-tv-gratis-partidos-de-hoy-noticia-1672923)
+- **México vs Bolivia: el 'Blue Lock' de la 'Hormiga' González**: [Link](https://www.espn.com.ar/futbol/mundial/nota/_/id/16225740/bolivia-vs-mexico-hormiga-gonzalez-amistoso-fecha-fifa)
+- **Bolivia vs México: Resultado EN VIVO, minuto a minuto y goles del amistoso**: [Link](https://www.365scores.com/es/news/bolivia-vs-mexico-resultado-vivo-goles/)
+
+
+### lille vs (N/A, 25/01/2026 15:30 Lima)
+
+- **Soriba Diaoune titulaire ? Les compositions probables pour LOSC- RC Strasbourg**: [Link](https://lepetitlillois.com/2026/01/25/soriba-diaoune-titulaire-les-compositions-probables-pour-losc-rc-strasbourg/)
+- **Emanuel Emegha n’est pas dans le groupe à Lille**: [Link](https://www.alsasports.fr/football/rc-strasbourg/emanuel-emegha-nest-pas-dans-le-groupe-a-lille/78652/)
+- **Les stats avant LOSC-Racing (J19)**: [Link](https://www.rcstrasbourgalsace.fr/les-stats-avant-losc-racing-j19/)
+
+
+### sport boys (N/A, 25/01/2026 15:30 Lima)
+
+- **Sport Boys vs. Everton: Sepa dónde ver hoy el partido amistoso del conjunto Rosado**: [Link](https://andina.pe/agencia/noticia-sport-boys-vs-everton-sepa-donde-ver-hoy-partido-amistoso-del-conjunto-rosado-1060607.aspx)
+- **Sport Boys presentó a sus convocados para Trofeo Lizárraga**: [Link](https://ovacion.pe/noticias/sport-boys/sport-boys-presento-sus-convocados-trofeo-lizarraga)
+- **Sport Boys vs Everton Viña del Mar EN VIVO por Trofeo Lizárraga 2026: hora y dónde ver el partido**: [Link](https://larepublica.pe/deportes/2026/01/24/sport-boys-vs-everton-en-vivo-trofeo-lizarraga-2026-hoy-329064)
+
+
 ### juventus - napoli (N/A, 25/01/2026 11:32 Lima)
 
 - **Juve-Napoli, le ufficiali: confermato David. Gioca Meret, Giovane in panchina**: [Link](https://www.eurosport.it/calcio/serie-a/2025-2026/juventus-napoli-le-formazioni-ufficiali-spalletti-conferma-david.-meret-al-posto-di-milinkovic-savic-vergara-titolare.-giovane-in-panchina_sto23263039/story.shtml)
@@ -958,75 +1028,5 @@ Sin noticias relacionadas disponibles.
 - **Emma Stone Just Broke Oscar Nominations Records With Her ‘Bugonia’ Nods**: [Link](https://www.hollywoodreporter.com/movies/movie-news/emma-stone-oscar-nominations-records-1236480529/)
 - **How to Watch Emma Stone’s Oscar-Worthy Performance in ‘Bugonia’**: [Link](https://www.yahoo.com/entertainment/movies/articles/watch-emma-stone-oscar-worthy-143326981.html)
 - **Emma Stone scores 6th Oscar nomination for 'Bugonia.' Could she win?**: [Link](https://www.azcentral.com/story/entertainment/movies/billgoodykoontz/2026/01/22/emma-stone-oscar-nomination-bugonia/88294655007/)
-
-
-### scotiabank (N/A, 22/01/2026 11:41 Lima)
-
-- **Exxon Mobil (XOM) Price Target Raised by $9 at JPMorgan**: [Link](https://finance.yahoo.com/news/exxon-mobil-xom-price-target-035026569.html)
-- **Exxon Mobil (XOM) Named Among 11 Best Energy Stocks for Dividends in 2026, Price Target Raised to $133**: [Link](https://intellectia.ai/news/stock/exxon-mobil-xom-named-among-11-best-energy-stocks-for-dividends-in-2026-price-target-raised-to-133)
-- **EOG Resources price target lowered to $133 from $136 at Barclays**: [Link](https://www.tipranks.com/news/the-fly/eog-resources-price-target-lowered-to-133-from-136-at-barclays-thefly)
-
-
-### reniec (N/A, 22/01/2026 11:41 Lima)
-
-- **RENIEC amplía horarios tras caída de su sistema por dos días consecutivos**: [Link](https://caretas.pe/nacional/reniec-amplia-horarios-tras-caida-de-su-sistema-por-dos-dias-consecutivos/)
-- **Ciudadanos madrugan y hacen largas colas para realizar trámites en la Reniec**: [Link](https://www.atv.pe/noticia/ciudadanos-madrugan-y-hacen-largas-colas-para-realizar-tramites-en-la-reniec/)
-- **¿Aún no te entregan tu DNI? Consulta AQUÍ el estado de tu trámite**: [Link](https://elcomercio.pe/respuestas/tramites/aun-no-te-entregan-tu-dni-consulta-aqui-el-estado-de-tu-tramite-tdpe-noticia/)
-
-
-### bono por escolaridad (N/A, 22/01/2026 11:41 Lima)
-
-- **Cronograma de sueldo y bono de escolaridad para el sector público: Las fechas del pago**: [Link](https://www.infobae.com/peru/2026/01/20/cronograma-de-sueldo-y-bono-de-escolaridad-del-sector-publico-pago-inicia-manana-21-de-enero/)
-- **Disposiciones reglamentarias para el otorgamiento de la bonificación por escolaridad 2026 [Decreto Supremo 002-2026-EF]**: [Link](https://lpderecho.pe/disposiciones-reglamentarias-para-otorgamiento-de-la-bonificacion-por-escolaridad-2026-decreto-supremo-002-2026-ef/)
-- **Bono de escolaridad 2026 de S/ 400: ¿Quiénes lo cobran, cuáles son los requisitos y cuándo se paga?**: [Link](https://peru21.pe/economia/bono-escolaridad-2026-requisitos-y-fechas-de-pago-de-los-s-400/)
-
-
-### zambrano (N/A, 22/01/2026 11:41 Lima)
-
-- **Carlos Zambrano, Miguel Trauco y Sergio Peña denunciados por presunto abuso sexual: joven argentina acusa a jugadores de Alianza Lima**: [Link](https://trome.com/deportes/futbol-peruano/carlos-zambrano-segio-pena-y-miguel-trauco-son-acusados-de-abuso-sexual-en-uruguay-por-joven-argentina-video-alianza-lima-noticia/)
-- **Denuncian a futbolistas Carlos Zambrano, Miguel Trauco y Sergio Peña por presunto abuso sexual, según reporta medio argentino**: [Link](https://rpp.pe/lima/actualidad/denuncian-a-futbolistas-carlos-zambrano-miguel-trauco-y-sergio-pena-por-presunto-abuso-sexual-segun-reporta-medio-argentino-noticia-1672615)
-- **Tres jugadores de Alianza Lima denunciados por abuso sexual, según medio argentino**: [Link](https://elcomercio.pe/deporte-total/tres-jugadores-de-alianza-lima-denunciados-por-abuso-sexual-segun-medio-argentino-noticia/)
-
-
-### sinners (N/A, 22/01/2026 11:41 Lima)
-
-- **Oscar nominations announced live from Los Angeles**: [Link](https://www.bbc.com/news/live/cnvggypzp10t)
-- **2026 Oscar nominations: The complete list of nominees**: [Link](https://www.latimes.com/entertainment-arts/awards/story/2026-01-22/oscar-nominations-2026-list-nominees)
-- **Oscars: ‘Sinners,’ ‘One Battle After Another’ and Warner Bros. Poised to Make History and Break Records**: [Link](https://variety.com/2026/film/awards/final-academy-awards-predictions-2026-1236631556/)
-
-
-### maps (N/A, 22/01/2026 11:41 Lima)
-
-- **Winter Storm Forecast: What to Expect as Snow and Ice Move Across the U.S. This Weekend**: [Link](https://www.nytimes.com/2026/01/22/weather/winter-storm-forecast-snow-ice.html)
-- **Major Storm Threatens Northeast With Heavy Snow, Mix**: [Link](https://weather.com/storms/winter/video/northeast-winter-storm-fern-heavy-snow-wintry-mix-weekend)
-- **Maps show where winter storm threatens to bring heavy snow, brutal cold this weekend**: [Link](https://www.cbsnews.com/news/maps-winter-storm-snow-cold-weekend/)
-
-
-### nominados al oscar 2026 (N/A, 22/01/2026 11:41 Lima)
-
-- **Nominaciones de los premios Oscar 2026: lista completa de categorías**: [Link](https://cnnespanol.cnn.com/2026/01/22/entretenimiento/premios-oscar-2026-nominados-orix)
-- **Premios Oscar 2026: lista completa de nominados de la gala más prestigiosa del cine**: [Link](https://www.infobae.com/entretenimiento/2026/01/22/premios-oscar-2026-lista-completa-de-nominados-de-la-gala-mas-prestigiosa-del-cine/)
-- **En directo | La Academia de Cine de Hollywood anuncia los nominados para los Oscar de 2026**: [Link](https://elpais.com/cultura/premios-oscar/2026-01-22/la-academia-de-cine-de-hollywood-anuncia-los-nominados-para-los-oscar-de-2026.html)
-
-
-### sunat (N/A, 22/01/2026 11:41 Lima)
-
-- **SUNAT: evita multas participando en el curso virtual obligatorio para microempresas**: [Link](https://actualidadempresarial.pe/noticia/sunat-evita-multas-participando-en-el-curso-virtual-obligatorio-para-microempresas/4e0799f4-7d86-4b23-a5d4-f7ae46f879b4/1)
-- **Si eres microempresario y no pagas impuestos, así será el curso del Congreso para evitar sanciones de SUNAT (y sin cambiar de razón social)**: [Link](https://www.infobae.com/peru/2026/01/22/si-eres-microempresario-y-no-pagas-impuestos-asi-sera-el-curso-del-congreso-para-evitar-sanciones-de-sunat-y-sin-cambiar-de-razon-social/)
-- **Primera infracción tributaria: SUNAT aplicará capacitación en lugar de multa o cierre. Infórmate**: [Link](https://www.elperuano.pe/noticia/287682-primera-infraccion-tributaria-sunat-aplicara-capacitacion-en-lugar-de-multa-o-cierre-informate)
-
-
-### sorteo la tinka resultados (N/A, 22/01/2026 08:02 Lima)
-
-- **Resultados de La Tinka del 21 de enero: conoce quiénes fueron los afortunados ganadores**: [Link](https://elcomercio.pe/videos/entretenimiento/resultados-de-la-tinka-del-21-de-enero-conoce-quienes-fueron-los-afortunados-ganadores-nnav-amtv-video-noticia/)
-- **Resultados de La Tinka HOY, miércoles 21 de enero: ver pozo millonario y jugada ganadora**: [Link](https://libero.pe/ocio/2026/01/21/resultados-de-tinka-hoy-miercoles-21-de-enero-pozo-millonario-jugada-ganadora-intralot-624280)
-- **Resultados de La Tinka del miércoles 14 de enero: sorteo y números de la jugada ganadora del pozo millonario**: [Link](https://depor.com/peru/la-tinka-en-vivo-hoy-miercoles-14-de-enero-2026-ver-resultados-numeros-ganadores-del-ultimo-sorteo-quien-gano-pozo-millonario-intralot-boliyapa-loterias-de-peru-noticia/)
-
-
-### cambio de dolar (N/A, 22/01/2026 08:02 Lima)
-
-- **Precio del dólar volvió a caer: Así se cotiza el tipo de cambio hoy 22 de enero en Perú**: [Link](https://www.infobae.com/peru/2026/01/21/dolar-cotizacion-de-apertura-hoy-21-de-enero-en-peru/)
-- **¿Cuál es la cotización del dólar hoy miércoles 21 de enero del 2026?**: [Link](https://andina.pe/agencia/noticia-cual-es-cotizacion-del-dolar-hoy-miercoles-21-enero-del-2026-1060118.aspx)
-- **El dólar cierra en S/ 3.357 y mantiene tendencia a la baja: ¿La coyuntura influirá en su valor los próximos días? [INFORME]**: [Link](https://rpp.pe/economia/economia/precio-del-dolar-cierra-en-3357-soles-y-se-mantiene-tendencia-a-baja-como-puede-afectar-coyuntura-politica-a-tipo-de-cambio-jose-jeri-noticia-1672534)
 
 
