@@ -1,3 +1,73 @@
+### sabalenka (N/A, 24/01/2026 21:25 Lima)
+
+- **Aryna Sabalenka vs. Victoria Mboko: Predictions, Where to Watch**: [Link](https://globelynews.com/sports/aryna-sabalenka-vs-victoria-mboko-predictions-where-to-watch/)
+- **Rising Tennis Star Mboko Credits Family and Role Models for Her Competitive Spirit**: [Link](https://news.ssbcrack.com/rising-tennis-star-mboko-credits-family-and-role-models-for-her-competitive-spirit/)
+- **Clara Tauson misses Sabalenka showdown after crashing out against Canadian youngster**: [Link](https://www.flashscore.com/news/tennis-australian-open-wta-singles-clara-tauson-misses-sabalenka-showdown-after-crashing-out-against-canadian-youngster/Y1xN3L1U/)
+
+
+### ateba gautier (N/A, 24/01/2026 21:25 Lima)
+
+- **UFC 324 – Nouvelle victoire du mini Francis Ngannou**: [Link](https://lasueur.com/ufc-324-nouvelle-victoire-mini-francis-ngannou-25-01-2026)
+- **Ateba Gautier répond aux comparaisons avec Francis Ngannou : « Je ne suis pas la miniature de qui que ce soit… »**: [Link](https://www.actumma.com/ateba-gautier-repond-aux-comparaisons-avec-francis-ngannou-je-ne-suis-pas-la-miniature-de-qui-que-ce-soit/170945/)
+- **MMA. Puissance, ambition, Ngannou… Qui est Ateba Gautier, la nouvelle attraction camerounaise de l’UFC ?**: [Link](https://www.msn.com/fr-fr/actualite/other/mma-puissance-ambition-ngannou-qui-est-ateba-gautier-la-nouvelle-attraction-camerounaise-de-l-ufc/ar-AA1URKn5)
+
+
+### lakers - mavericks (N/A, 24/01/2026 21:25 Lima)
+
+- **Mavericks Notes: Doncic, Flagg, Davis, Irving, Weather**: [Link](https://www.hoopsrumors.com/2026/01/mavericks-notes-doncic-flagg-davis-irving-weather.html)
+- **Lakers at Mavs Preview: Luka's First Game This Season in Dallas**: [Link](https://thesportingtribune.com/team/lakers/feed/article/lakers-at-mavs-preview-lukas-first-game-this-season-in-dallas)
+- **NBA Best Bets: Lakers vs. Mavericks Prop Bets for Saturday 1/24/26**: [Link](https://dknetwork.draftkings.com/2026/01/24/nba-best-bets-lakers-vs-mavericks-prop-bets-for-saturday-1-24-26/)
+
+
+### umar nurmagomedov (N/A, 24/01/2026 21:25 Lima)
+
+- **Umar Nurmagomedov on being part of UFC 324 prelims: 'I don't care'**: [Link](https://mmajunkie.usatoday.com/story/sports/ufc/2026/01/23/ufc-324-umar-nurmagomedov-prelims-placement-reaction/88297474007/)
+- **Deiveson Figueiredo Is Belng Sacrificed At UFC 324, Says Former UFC Champion**: [Link](https://www.lowkickmma.com/deiveson-figueiredo-sacrifice-ufc-324/)
+- **Figueiredo Called ‘Sacrificial Lamb’ by Sterling for UFC 324 Fight**: [Link](https://bvmsports.com/2026/01/24/figueiredo-called-sacrificial-lamb-by-sterling-for-ufc-324-fight/)
+
+
+### sekou gassama universitario (N/A, 24/01/2026 21:25 Lima)
+
+- **Gassama habló por primera vez como jale de Universitario**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/gassama-dio-sus-primeras-palabras-como-refuerzo-universitario-n452440)
+- **“Vengo con muchas ganas y confianza en que recuperaré el ritmo que necesito”: Sekou Gassama y sus primeras palabras como refuerzo de la ‘U’**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/sekou-gassama-y-sus-primeras-palabras-como-refuerzo-de-universitario-vengo-con-muchas-ganas-y-confianza-en-que-recuperare-el-ritmo-que-necesito-noticia/)
+- **La sorpresiva respuesta del hincha de Universitario tras ver a Sekou Gassama en su primera práctica**: [Link](https://bolavip.com/pe/universitario/la-sorpresiva-respuesta-del-hincha-de-universitario-tras-ver-a-sekou-gassama-en-su-primera-practica)
+
+
+### boyacá chicó - américa (N/A, 24/01/2026 21:25 Lima)
+
+- **Chicó vs América: posibles alineaciones, fecha 2 de Liga BetPlay**: [Link](https://www.espn.com.ar/futbol/colombia/nota/_/id/16219693/chico-vs-america-de-cali-alineaciones-fecha-2-liga-betplay)
+- **Transmisión EN VIVO del Boyacá Chicó vs América de Cali hoy: cómo mirar la Liga por TV o streaming**: [Link](https://www.365scores.com/es/news/transmision-en-vivo-chico-vs-america/)
+- **Pronóstico Boyacá Chicó América de Cali - Primera A Colombia 24/01/26**: [Link](https://www.sportytrader.com/es/pronosticos/boyaca-chico-america-de-cali-320413/)
+
+
+### dragon ball super (N/A, 24/01/2026 21:25 Lima)
+
+- **Dragon Ball Announces New Anime**: [Link](https://comicbook.com/anime/news/dragon-ball-announces-new-anime/)
+- **Dragon Ball Super The Galactic Patrol New Anime Officially Announced, Sequel to Tournament of Power**: [Link](https://animecorner.me/dragon-ball-super-the-galactic-patrol-new-anime-officially-announced-sequel-to-tournament-of-power/)
+- **Dragon Ball Super Unveils New Anime: Galactic Patrol, Post-Tournament Sequel**: [Link](https://www.filmogaz.com/115408)
+
+
+### dragon ball (N/A, 24/01/2026 21:25 Lima)
+
+- **“Dragon Ball Genkidamatsuri”: fecha, hora y dónde ver el evento en el que se conocerá el futuro de la saga**: [Link](https://elcomercio.pe/respuestas/farandula/dragon-ball-genkidamatsuri-fecha-hora-y-donde-ver-el-evento-en-el-que-se-conocera-el-futuro-de-la-saga-tdpe-noticia/)
+- **El nuevo juego de Dragon Ball está a punto de ser presentado, en un evento donde también se dará a conocer el futuro de la franquicia**: [Link](https://www.hobbyconsolas.com/videojuegos/nuevo-juego-dragon-ball-esta-punto-ser-presentado-un-evento-donde-tambien-se-dara-conocer-futuro-franquicia_6925247_0.html)
+- **Confirman regreso del anime Dragon Ball Super: The Galactic Patrol: adaptaran el arco de Moro**: [Link](https://www.diariodemorelos.com/noticias/confirman-regreso-del-anime-dragon-ball-super-galactic-patrol-adaptaran-el-arco-de-moro)
+
+
+### aryna sabalenka (N/A, 24/01/2026 21:25 Lima)
+
+- **Australian Open LIVE: Andreeva in late action after Zverev and De Minaur progress**: [Link](https://www.flashscore.com/news/tennis-australian-open-atp-singles-australian-open-live-andreeva-in-late-action-after-zverev-and-de-minaur-progress/2PvHTa5m/)
+- **Alcaraz, Sabalenka Target Quarter-Finals at Australian Open**: [Link](https://www.deccanchronicle.com/sports/tennis/alcaraz-sabalenka-target-quarter-finals-at-australian-open-1932593)
+- **Australian Open 2026: De Minaur, Zverev, Tiafoe and Andreeva win, Raducanu out – as it happened**: [Link](https://www.theguardian.com/sport/live/2026/jan/21/australian-open-2026-de-minaur-andreeva-tiafoe-in-action-on-day-four-live?filterKeyEvents=false&page=with%3Ablock-6970b2588f08130e62888fce)
+
+
+### rosario central (N/A, 24/01/2026 21:25 Lima)
+
+- **De penal, Di María abrió el partido entre Rosario Central y Belgrano**: [Link](https://www.espn.com.ar/futbol/argentina/nota/_/id/16224117/video-gol-de-angel-di-maria-de-penal-rosario-central-vs-belgrano-polemica)
+- **Rosario Central vs Belgrano: Resultado EN VIVO, minuto a minuto y goles de la Liga Profesional**: [Link](https://www.365scores.com/es/news/rosario-central-vs-belgrano-resultado/)
+- **En su debut en el Apertura, Central empata sin goles con Belgrano en el Gigante**: [Link](https://www.conclusion.com.ar/deportes/en-su-debut-en-el-apertura-central-empata-sin-goles-con-belgrano-en-el-gigante/01/2026/)
+
+
 ### river vs (N/A, 24/01/2026 15:27 Lima)
 
 - **Qué canal pasa Barracas vs River hoy: dónde ver el partido gratis y en vivo de la Liga Profesional**: [Link](https://www.365scores.com/es/news/barracas-vs-river-donde-ver-gratis-vivo/)
@@ -958,75 +1028,5 @@ Sin noticias relacionadas disponibles.
 - **How Buss family infighting drove the $10B sale of the Lakers**: [Link](https://www.espn.com/nba/story/_/id/47594947/inside-jeanie-jerry-buss-family-infighting-drove-10b-sale-los-angeles-lakers-mark-walter)
 - **Now, the Lakers move forward under new …**: [Link](https://sports.yahoo.com/articles/now-lakers-move-forward-under-144655351.html)
 - **Jeanie Buss Cited Financial Competition As Reason For Sale Of Lakers**: [Link](https://basketball.realgm.com/wiretap/283535/Jeanie-Buss-Cited-Financial-Competition-As-Reason-For-Sale-Of-Lakers)
-
-
-### tormenta geomagnética peru (N/A, 21/01/2026 08:01 Lima)
-
-- **Una tormenta geomagnética, la más intensa en más de 20 años, impacta el Perú: qué es el fenómeno y cómo puede afectar al país**: [Link](https://www.infobae.com/peru/2026/01/20/una-tormenta-geomagnetica-la-mas-intensa-en-mas-de-20-anos-impacta-el-peru-que-es-el-fenomeno-y-como-puede-afectar-al-pais/)
-- **El Sol libera la mayor tormenta de radiación "en más de 20 años", según pronosticadores**: [Link](https://cnnespanol.cnn.com/2026/01/19/ciencia/tormenta-radiacion-solar-auroras-trax)
-- **IGP informa que una tormenta geomagnética se encuentra en curso en el Perú**: [Link](https://elperuano.pe/noticia/287556-igp-informa-que-una-tormenta-geomagnetica-se-encuentra-en-curso-en-el-peru)
-
-
-### radio exitosa en vivo (N/A, 21/01/2026 08:01 Lima)
-
-- **Caso incendio en galería Nicolini: detienen a mujer condenada por esclavitud laboral**: [Link](https://lpderecho.pe/primera-condena-obtenida-delito-esclavitud-laboral-peru-caso-incendio-contenedor-galeria-nicolini/)
-- **Capturan a Vilma Zeña Santamaría en San Martín de Porres, condenada por explotación laboral y esclavitud por el caso Galería Nicolini**: [Link](https://larepublica.pe/sociedad/2026/01/20/capturan-a-vilma-zena-santamaria-condenada-por-explotacion-laboral-y-esclavitud-por-el-caso-galeria-nicolini-1627600)
-- **Detienen a mujer condenada por muerte de dos jóvenes dentro de un contenedor durante incendio en Galería Nicolini**: [Link](https://rpp.pe/lima/actualidad/caso-nicolini-detienen-a-mujer-condenada-por-muerte-de-dos-jovenes-en-contenedor-de-galeria-noticia-1672333)
-
-
-### banco de la nacion (N/A, 21/01/2026 08:01 Lima)
-
-- **Cronograma de sueldo y bono de escolaridad del sector público: Pago inicia hoy 21 de enero**: [Link](https://www.infobae.com/peru/2026/01/20/cronograma-de-sueldo-y-bono-de-escolaridad-del-sector-publico-pago-inicia-manana-21-de-enero/)
-- **Bono por escolaridad 2026: ¿Cuándo se cobra y a qué trabajadores corresponde?**: [Link](https://andina.pe/agencia/noticia-bono-escolaridad-2026-cuando-se-cobra-y-a-trabajadores-corresponde-1059358.aspx)
-- **Bono Escolaridad, pagos enero 2026: ¿Cuándo se deposita y quiénes lo reciben?**: [Link](https://elcomercio.pe/respuestas/tramites/bono-escolaridad-de-400-soles-para-trabajadores-publicos-y-pensionistas-verifica-si-te-toca-cobrar-en-enero-2026-tdpe-noticia/)
-
-
-### alcaraz (N/A, 21/01/2026 08:01 Lima)
-
-- **Alcaraz cambia de modelo para lograr billete a la tercera ronda**: [Link](https://www.marca.com/tenis/open-australia/2026/01/21/alcaraz-cambia-modelo-lograr-billete-tercera-ronda.html)
-- **A cinco pasos del cielo, Alcaraz aprueba el reto del sol en Melbourne**: [Link](https://www.atptour.com/es/news/abierto-australia-2026-alcaraz-hanfmann-r2)
-- **Resumen, resultado y ganador del Alcaraz - Hanfmann: segunda ronda del Open de Australia hoy en vivo online**: [Link](https://as.com/tenis/open_australia/alcaraz-hanfmann-en-directo-segunda-ronda-del-open-de-australia-hoy-en-vivo-online-f202601-d/)
-
-
-### nuggets - lakers (N/A, 21/01/2026 03:39 Lima)
-
-- **Lakers vs Nuggets Picks & Odds Today: Back LA Against Shorthanded Nuggets**: [Link](https://www.oddsshark.com/nba/lakers-nuggets-picks-odds-january-20-2026)
-- **Nuggets lose to Lakers at home**: [Link](https://www.nba.com/nuggets/news/nuggets-lose-to-lakers-at-home)
-- **Player Grades: Lakers vs. Nuggets**: [Link](https://www.silverscreenandroll.com/lakers-analysis/105773/player-grades-lakers-nuggets-stats-box-score-recap-lebron-james-luka-doncic)
-
-
-### palmeiras (N/A, 21/01/2026 03:39 Lima)
-
-- **Palmeiras sofre pior derrota da era Abel Ferreira em goleada para o Novorizontino**: [Link](https://ge.globo.com/futebol/times/palmeiras/noticia/2026/01/20/palmeiras-sofre-pior-derrota-da-era-abel-ferreira-em-goleada-para-o-novorizontino.ghtml)
-- **Destaque do Novorizontino celebra goleada contra o Palmeiras: 'Fizemos história'**: [Link](https://www.lance.com.br/futebol-nacional/destaque-do-novorizontino-celebra-goleada-contra-o-palmeiras-fizemos-historia.html)
-- **Abatido, Palmeiras vive alta tensão antes de clássico e jogo com Atlético**: [Link](https://www.itatiaia.com.br/esportes/futebol/futebol-nacional/futebol-paulista/palmeiras/abatido-palmeiras-vive-alta-tensao-antes-de-classico-e-jogo-com-atletico)
-
-
-### yannick hanfmann (N/A, 20/01/2026 23:49 Lima)
-
-- **Australian Open 2026: Alcaraz in action after Sabalenka eases through – live**: [Link](https://www.theguardian.com/sport/live/2026/jan/21/aryna-sabalenka-carlos-alcaraz-australian-open-tennis-second-round-live)
-- **Carlos Alcaraz vs. Yannick Hanfmann Prediction, Odds for Australian Open Round 2**: [Link](https://www.si.com/betting/carlos-alcaraz-vs-yannick-hanfmann-prediction-odds-for-australian-open-round-2)
-- **Australian Open Picks & Best Bets for Tuesday, Jan. 20**: [Link](https://www.sportsbettingdime.com/news/tennis/australian-open-picks-best-bets-tuesday-jan-20/)
-
-
-### ifarhu (N/A, 20/01/2026 23:49 Lima)
-
-- **Minsa se reúne con Ifarhu para dar solución a pagos pendientes de becas a universitarios**: [Link](https://www.ecotvpanama.com/nacionales/minsa-se-reune-ifarhu-dar-solucion-pagos-pendientes-becas-universitarios-n6067327)
-- **Estudiantes de Medicina exigen pago de becas atrasadas y apoyo en IFARU ya**: [Link](https://www.critica.com.pa/nacional/estudiantes-de-medicina-exigen-pago-de-becas-atrasadas-y-apoyo-en-ifaru-ya-503153)
-- **Minsa coordina con Ifarhu soluciones para estudiantes de medicina becados - Nacionales | Tvn Panamá**: [Link](https://www.tvn-2.com/nacionales/minsa-coordina-ifarhu-soluciones-estudiantes_1_2223686.html)
-
-
-### igp tormenta geomagnética (N/A, 20/01/2026 23:49 Lima)
-
-- **El Sol libera la mayor tormenta de radiación "en más de 20 años", según pronosticadores**: [Link](https://cnnespanol.cnn.com/2026/01/19/ciencia/tormenta-radiacion-solar-auroras-trax)
-- **IGP informa que una tormenta geomagnética se encuentra en curso en el Perú**: [Link](https://elperuano.pe/noticia/287556-igp-informa-que-una-tormenta-geomagnetica-se-encuentra-en-curso-en-el-peru)
-- **Tormenta solar impacta la Tierra: qué significa este fenómeno y cuáles podrían ser sus efectos**: [Link](https://elcomercio.pe/mag/respuestas/ciencias/tormenta-solar-impacta-la-tierra-que-significa-este-fenomeno-y-cuales-podrian-ser-sus-efectos-nnda-nnni-noticia/)
-
-
-### carlos alcaraz (N/A, 20/01/2026 23:49 Lima)
-
-- **Alcaraz - Hanfmann, en directo: segunda ronda del Open de Australia hoy en vivo online**: [Link](https://as.com/tenis/open_australia/alcaraz-hanfmann-en-directo-segunda-ronda-del-open-de-australia-hoy-en-vivo-online-f202601-d/)
-- **Carlos Alcaraz - Yannick Hanfmann, en directo | segunda ronda del Open de Australia**: [Link](https://www.marca.com/tenis/open-australia/carlos-alcaraz-yannick-hanfmann/2026/01/21/04_0401_20260121_65-directo.html)
-- **Alcaraz quiere acelerar camino a R3 en Melbourne**: [Link](https://www.atptour.com/es/news/abierto-de-australia-2026-previa-miercoles-alcaraz-r2-jornada)
 
 
