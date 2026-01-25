@@ -1,3 +1,73 @@
+### juventus - napoli (N/A, 25/01/2026 11:32 Lima)
+
+- **Juve-Napoli, le ufficiali: confermato David. Gioca Meret, Giovane in panchina**: [Link](https://www.eurosport.it/calcio/serie-a/2025-2026/juventus-napoli-le-formazioni-ufficiali-spalletti-conferma-david.-meret-al-posto-di-milinkovic-savic-vergara-titolare.-giovane-in-panchina_sto23263039/story.shtml)
+- **Juve-Napoli: Sky, Dazn o NOW? Dove vederla in tv e in streaming**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Juventus/25-01-2026/juve-napoli-sky-dazn-now-ecco-vederla-tv-streaming_amp.shtml)
+- **Serie A | Le formazioni ufficiali di Juventus-Napoli**: [Link](https://www.juventus.com/it/news/articoli/serie-a-2025-2026-juventus-napoli-formazioni-ufficiali)
+
+
+### feyenoord vs (N/A, 25/01/2026 11:32 Lima)
+
+- **Europa League: Tranquila victoria de Feyenoord por 3 a 0 frente a Sturm Graz**: [Link](https://rpp.pe/futbol/ligas-internacionales/europa-league-sturm-graz-se-enfrentara-a-feyenoord-por-la-fecha-7-noticia-1672433)
+- **Preview: Feyenoord vs Heracles - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/feyenoord/preview/feyenoord-vs-heracles-prediction-team-news-lineups_590553.html)
+- **Feyenoord vs Heracles - prediction, team news, lineups...**: [Link](https://www.rugby-addict.com/en-ie/article/home/feyenoord-vs-heracles-prediction-team-news-lineups/6973f01e122f5708ac023275)
+
+
+### feyenoord - heracles (N/A, 25/01/2026 11:32 Lima)
+
+- **LIVE eredivisie | Ueda denkt score voor Feyenoord te openen, maar handsbal zet streep door zijn goal**: [Link](https://www.gelderlander.nl/voetbal/live-eredivisie-ueda-denkt-score-voor-feyenoord-te-openen-maar-handsbal-zet-streep-door-zijn-goal~a8fab2d6/)
+- **LIVE | Heracles schiet raak vanaf elf meter en staat gelijk in De Kuip**: [Link](https://www.destentor.nl/almelo/live-heracles-schiet-raak-vanaf-elf-meter-en-staat-gelijk-in-de-kuip~ac8b053c/)
+- **Heracles in aangepaste formatie van start tegen Feyenoord**: [Link](https://www.tubantia.nl/heracles/heracles-in-aangepaste-formatie-van-start-tegen-feyenoord~ac8b053c/)
+
+
+### arsenal - manchester united (N/A, 25/01/2026 11:32 Lima)
+
+- **Arsenal vs Manchester United Confirmed Lineups for January 25 at the Emirates**: [Link](https://lastwordonsports.com/football/2026/01/25/arsenal-vs-manchester-united-confirmed-lineups-january/)
+- **Arsenal Host Manchester United in High-Stakes Premier League Showdown**: [Link](https://www.dawan.africa/news/arsenal-host-manchester-united-in-high-stakes-premier-league-showdown)
+- **'Looking at that weekend overall, we gained a point on the teams around us': Odegaard on positives in Forest draw**: [Link](https://tribuna.com/en/news/2026-01-25-looking-at-that-weekend-overall-we-gained-a-point-on-the-teams-around-us-odegaard-on-posi/)
+
+
+### metz - lyon (N/A, 25/01/2026 11:32 Lima)
+
+- **L'OL sans Pavel Sulc mais avec Khalis Merah pour affronter Metz**: [Link](https://www.lequipe.fr/Football/Actualites/L-ol-sans-pavel-sulc-mais-avec-khalis-merah-pour-affronter-metz/1636444)
+- **DIRECT. Ligue 1: suivez le multiplex de la 19e journée en live**: [Link](https://rmcsport.bfmtv.com/football/ligue-1/direct-ligue-1-suivez-le-multiplex-de-la-19e-journee-en-live_LS-202601250255.html)
+- **OL : faire le trou derrière et garder le contact du podium**: [Link](https://www.olympique-et-lyonnais.com/ol-faire-le-trou-derriere-et-garder-le-contact-du-podium,389306.html)
+
+
+### hearts - celtic f. c. (N/A, 25/01/2026 11:32 Lima)
+
+- **Sunday's Scottish Premiership - Hearts v Celtic & Rangers v Dundee - radio & text**: [Link](https://www.bbc.com/sport/football/live/cx2xg1kp177t)
+- **Team’s Up – Araujo returns and there’s a debut for Cvancara**: [Link](https://thecelticstar.com/teams-up-araujo-returns-and-theres-a-debut-for-cvancara/)
+- **67 Hail Hail fans have their say on if Reo Hatate should start for Celtic against Hearts**: [Link](https://www.67hailhail.com/match/67-hail-hail-fans-have-their-say-on-if-reo-hatate-should-start-for-celtic-against-hearts/)
+
+
+### juan foyth (N/A, 25/01/2026 11:32 Lima)
+
+- **Foyth sufre rotura del tendón de Aquiles**: [Link](https://www.marca.com/futbol/villarreal/2026/01/25/foyth-sufre-rotura-tendon-aquiles.html)
+- **Villarreal confirmó que Juan Foyth se rompió el tendón de Aquiles ante Real Madrid**: [Link](https://www.espn.com.ar/futbol/espana/nota/_/id/16222998/juan-foyth-lesion-parte-medico-se-rompio-tendon-aquiles-villarreal-vs-real-madrid)
+- **Grave contratiempo para el Villarreal ante el Madrid a las primeras de cambio**: [Link](https://www.mundodeportivo.com/futbol/villarreal/20260124/1002607871/serio-contratiempo-villarreal-madrid-primeras-cambio.html)
+
+
+### melgar vs (N/A, 25/01/2026 11:32 Lima)
+
+- **Melgar vs Macará EN VIVO: ¿Dónde ver la Tarde Rojinegra 2026 y a qué hora inicia?**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/melgar-vs-macara-en-vivo-hora-senal-online-y-donde-ver-la-tarde-rojinegra-2026-transmision-video-movistar-tdpe-noticia/)
+- **FBC Melgar listo para presentarse ante su hinchada en la tarde rojinegra**: [Link](https://diariocorreo.pe/deportes/fbc-melgar-listo-para-presentarse-ante-su-hinchada-en-la-tarde-rojinegra-noticia/)
+- **Oficial: Movistar Deportes será el canal que transmitirá partido de club de la Liga 1 2026**: [Link](https://libero.pe/futbol-peruano/liga-1/2026/01/23/oficial-movistar-deportes-sera-canal-transmitira-partido-de-melgar-club-de-liga-1-2026-869676)
+
+
+### juventus vs napoli (N/A, 25/01/2026 11:32 Lima)
+
+- **Milinkovic-Savic has new injury worry for Napoli against Juventus**: [Link](https://football-italia.net/milinkovic-savic-new-injury-worry-for-napoli/)
+- **Serie A Predictions - Week 22**: [Link](https://www.livescore.com/en/news/football/serie-a/predictions/serie-a-predictions-week-22/)
+- **No press conference, no answers: why did Conte and Spalletti stay silent?**: [Link](https://foot-africa.com/en/news/no-press-conference-no-answers-why-did-conte-and-spalletti-stay-silent-1057133/)
+
+
+### rectificación retiro afp (N/A, 25/01/2026 11:32 Lima)
+
+- **Rectificación del retiro de AFP: Así das seguimiento a la segunda solicitud**: [Link](https://www.infobae.com/peru/2026/01/21/rectificacion-del-retiro-de-afp-asi-se-da-seguimiento-a-la-segunda-solicitud/)
+- **Retiro de AFP 2026: afiliados aún pueden registrar su solicitud si este ÚNICO requisito se cumple**: [Link](https://libero.pe/tiempoextra/2026/01/24/retiro-de-afp-2026-afiliados-aun-pueden-registrar-su-solicitud-unico-requisito-se-cumple-1617816)
+- **Retiro de AFP: aún puede registrar su solicitud si fue rechazada por este motivo**: [Link](https://www.expreso.com.pe/economia/retiro-de-afp-aun-puede-registrar-su-solicitud-si-fue-rechazada-por-este-motivo-integra-profuturo-superintendencia-de-banca-y-seguros-noticia/1258098/)
+
+
 ### barcelona vs real oviedo (N/A, 25/01/2026 07:54 Lima)
 
 - **Barcelona vs Real Oviedo: alineaciones probables, J21 de LaLiga**: [Link](https://www.espn.com.ar/futbol/espana/nota/_/id/16223713/barcelona-vs-real-oviedo-laliga-2026-alineaciones)
@@ -958,75 +1028,5 @@ Sin noticias relacionadas disponibles.
 - **Precio del dólar volvió a caer: Así se cotiza el tipo de cambio hoy 22 de enero en Perú**: [Link](https://www.infobae.com/peru/2026/01/21/dolar-cotizacion-de-apertura-hoy-21-de-enero-en-peru/)
 - **¿Cuál es la cotización del dólar hoy miércoles 21 de enero del 2026?**: [Link](https://andina.pe/agencia/noticia-cual-es-cotizacion-del-dolar-hoy-miercoles-21-enero-del-2026-1060118.aspx)
 - **El dólar cierra en S/ 3.357 y mantiene tendencia a la baja: ¿La coyuntura influirá en su valor los próximos días? [INFORME]**: [Link](https://rpp.pe/economia/economia/precio-del-dolar-cierra-en-3357-soles-y-se-mantiene-tendencia-a-baja-como-puede-afectar-coyuntura-politica-a-tipo-de-cambio-jose-jeri-noticia-1672534)
-
-
-### trome (N/A, 22/01/2026 08:02 Lima)
-
-- **Pisa pelota | El ‘Buque’ no se metió la mano al bolsillo y solo fichó puro pelotero de taco bajo | OPINION**: [Link](https://trome.com/opinion/el-bombardero/pisa-pelota-el-buque-no-se-metio-la-mano-al-bolsillo-y-solo-ficho-puro-pelotero-de-taco-bajo-noticia/)
-- **Samahara se ríe cuando le dicen que busque a su madre Melissa: “No la conocen… Ni pregunta por mis hijos”**: [Link](https://trome.com/espectaculos/tv/samahara-lobaton-como-se-rie-tras-llanto-de-su-madre-melissa-klug-revelan-chats-ja-ja-no-la-conocenni-pregunta-por-mis-hijos-video-farandula-noticia/)
-- **Difunden chats en los que Samahara Lobatón se refiere a su madre, Melissa Klug, sobre caso contra Bryan Torres: "Está haciendo su show"**: [Link](https://larepublica.pe/espectaculos/2026/01/21/difunden-chats-en-los-que-samahara-lobaton-se-refiere-a-su-madre-melissa-klug-sobre-caso-contra-bryan-torres-esta-haciendo-su-show-1345659)
-
-
-### australian open 2026 (N/A, 22/01/2026 08:02 Lima)
-
-- **Tennis-Osaka tones down outfit and beats Cirstea to reach Australian Open third round**: [Link](https://wkzo.com/2026/01/22/tennis-osaka-tones-down-outfit-and-beats-cirstea-to-reach-australian-open-third-round/)
-- **2026 Australian Open: Osaka [17th] vs. Cirstea [41st] Prediction, Odds and Match Preview**: [Link](https://sportsbookwire.usatoday.com/story/sports/sports-betting/2026/01/20/naomi-osaka-vs-sorana-cirstea-australian-open-tennis-odds-lines-betting-1-22-2026/88273819007/)
-- **Error-strewn Osaka edges past 'mad' Cirstea in fiery Australian Open clash**: [Link](https://www.flashscore.com/news/tennis-australian-open-wta-singles-error-strewn-osaka-edges-past-mad-cirstea-in-fiery-australian-open-clash/Uend5XAF/)
-
-
-### nike (N/A, 22/01/2026 03:39 Lima)
-
-- **NIKE, Inc. Announces New Geography Leadership Appointments**: [Link](https://www.businesswire.com/news/home/20260120575539/en/NIKE-Inc.-Announces-New-Geography-Leadership-Appointments)
-- **Nike Shifts Top Leadership in China, EMEA as Turnaround Efforts Continue**: [Link](https://wwd.com/footwear-news/shoe-industry-news/nike-vice-president-general-manager-emea-china-apla-1238465711/)
-- **Nike reshuffles regional leadership as it looks to strengthen key markets**: [Link](https://www.reuters.com/business/nike-reshuffles-regional-leadership-it-looks-strengthen-key-markets-2026-01-20/)
-
-
-### djokovic (N/A, 22/01/2026 03:39 Lima)
-
-- **Australian Open LIVE: Djokovic moves on with Anisimova in overnight action in Melbourne**: [Link](https://www.flashscore.com/news/tennis-australian-open-atp-singles-australian-open-live-djokovic-moves-on-with-anisimova-in-overnight-action-in-melbourne/hn7Br7Wb/)
-- **Lorenzo Musetti, Ben Shelton head to 3rd round in Melbourne**: [Link](https://www.yardbarker.com/tennis/articles/lorenzo_musetti_ben_shelton_head_to_3rd_round_in_melbourne/s1_17058_43365515)
-- **2026 Australian Open: Novak Djokovic powers into the third round with clinical play in Melbourne**: [Link](https://www.olympics.com/en/news/2026-australian-open-novak-djokovic-powers-into-the-third-round-with-clinical-play-in-melbourne)
-
-
-### sao paulo fc (N/A, 22/01/2026 03:39 Lima)
-
-- **São Paulo anunciará mais demissões em breve**: [Link](https://onefootball.com/de/news/sao-paulo-anunciara-mais-demissoes-em-breve-42276561)
-- **Diretor social do São Paulo, Dedé também deixa seu cargo**: [Link](https://tmc.com.br/esporte/dede-deixa-diretoria-social-saopaulo/)
-- **– Casares renunciou. E agora?**: [Link](https://professorrafaelporcari.com/2026/01/21/casares-renunciou-e-agora/)
-
-
-### rectificación retiro afp integra (N/A, 21/01/2026 21:14 Lima)
-
-- **Rectificacion del retiro de AFP: Así se da seguimiento a la segunda solicitud**: [Link](https://www.infobae.com/peru/2026/01/21/rectificacion-del-retiro-de-afp-asi-se-da-seguimiento-a-la-segunda-solicitud/)
-- **¿Cómo saber si mi solicitud para el retiro de AFP en 2026 fue rechazada? Estos son los pasos para verificar**: [Link](https://libero.pe/tiempoextra/2026/01/20/como-saber-mi-solicitud-retiro-de-afp-en-2026-fue-rechazada-son-pasos-verificar-726140)
-- **Vence plazo para retirar hasta S/22.000 del fondo AFP: podrás recibir tu dinero de Integra, Profuturo, Habitat o Prima a partir de esta fecha**: [Link](https://larepublica.pe/economia/2026/01/19/vence-plazo-para-retirar-hasta-s22000-del-fondo-afp-podras-recibir-tu-dinero-de-integra-profuturo-habitat-o-prima-a-partir-de-esta-fecha-atmp-1800592)
-
-
-### argentinos jrs. - midland (N/A, 21/01/2026 21:14 Lima)
-
-- **Con Enzo Pérez de titular, Argentinos iguala ante Midland en su debut por la Copa Argentina**: [Link](https://www.infobae.com/deportes/2026/01/22/con-enzo-perez-de-titular-argentinos-juniors-iguala-con-midland-en-su-debut-por-la-copa-argentina/)
-- **Juega el "Pupi" por Copa Argentina**: [Link](https://www.diariolamanana.com.ar/nota-juega-el-pupi-por-copa-argentina-153906)
-- **El turno del subcampeón: Argentinos Juniors debutará contra Ferrocarril Midland**: [Link](http://enelarea.com.ar/post/el-turno-del-subcampeon-argentinos-juniors-debutara-contra-ferrocarril-midland)
-
-
-### carioca serie a (N/A, 21/01/2026 21:14 Lima)
-
-- **Botafogo hizo respetar la casa en el Campeonato Carioca**: [Link](https://ovacion.pe/noticias/futbol-internacional/botafogo-hizo-respetar-casa-campeonato-carioca)
-- **ATUAÇÕES FN: Montoro é o melhor e Santi entra bem em Botafogo 1 x 0 Volta Redonda**: [Link](https://www.fogaonet.com/noticias-do-botafogo/atuacoes-fn-montoro-e-o-melhor-e-santi-entra-bem-em-botafogo-1-x-0-volta-redonda/)
-- **Botafogo 1 X 0 Volta Redonda - 3 Rodada - Campeonato Carioca 2026**: [Link](https://www.uol.com.br/esporte/videos/gols/2026/01/21/botafogo-1-x-0-volta-redonda---3-rodada---campeonato-carioca-2026.htm)
-
-
-### américa-mg - atlético mineiro (N/A, 21/01/2026 21:14 Lima)
-
-- **Sampaoli abre o jogo sobre rodagem de elenco no Atlético**: [Link](https://noataque.com.br/futebol/campeonato-mineiro/time/atletico-mg/noticia/2026/01/21/time-titular-sampaoli-abre-plano-do-atletico-para-classico-contra-o-cruzeiro/)
-- **📋 América e Atlético ESCALADOS para o 1º clássico do Mineiro**: [Link](https://onefootball.com/pt-br/noticias/america-e-atletico-escalados-para-o-1-classico-do-mineiro-42276798)
-- **Aos 14 min do 1º tempo - gol de dentro da área de Gabriel Barros do América-MG contra o Atlético-MG**: [Link](https://ge.globo.com/futebol/video/aos-14-min-do-1o-tempo-gol-de-dentro-da-area-de-gabriel-barros-do-america-mg-contra-o-atletico-mg-14275755.ghtml)
-
-
-### kevin serna (N/A, 21/01/2026 21:14 Lima)
-
-- **Alianza Lima está a la expectativa: Boca Juniors y el plan para cerrar el fichaje de Kevin Serna**: [Link](https://depor.com/futbol-peruano/descentralizado/alianza-lima-kevin-serna-boca-juniors-y-el-plan-para-ficharlo-cuanto-dinero-recibirian-los-blanquiazules-liga-1-noticia/)
-- **Serna dejaría Fluminense para ir a un gigante de Sudamérica**: [Link](https://www.americatv.com.pe/deportes/futbol-mundial/serna-dejaria-fluminense-fichar-gigante-sudamerica-n452398)
-- **Prensa de Argentina reaccionó ante interés de Boca Juniors en futbolista peruano**: [Link](https://libero.pe/futbol-internacional/2026/01/21/prensa-de-argentina-reacciono-interes-de-boca-juniors-en-futbolista-peruano-918624)
 
 
