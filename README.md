@@ -1,3 +1,45 @@
+### nipah (N/A, 26/01/2026 11:40 Lima)
+
+- **Airports launch COVID-style health checks after outbreak of deadly virus**: [Link](https://www.foxnews.com/travel/airports-launch-covid-style-health-checks-outbreak-deadly-virus)
+- **Airports across Asia reintroduce Covid-style health checks after outbreak of deadly Nipah virus in India**: [Link](https://www.the-independent.com/asia/nipah-virus-outbreak-india-covid-screening-travel-warnings-b2907456.html)
+- **Taiwan to list Nipah virus as Category 5 disease after India outbreak**: [Link](https://focustaiwan.tw/society/202601250006)
+
+
+### local de votacion 2026 (N/A, 26/01/2026 11:40 Lima)
+
+- **Elecciones 2026: ONPE inicia envío de correos con local de votación asignado**: [Link](https://andina.pe/agencia/noticia-elecciones-2026-onpe-inicia-envio-correos-local-votacion-asignado-1060632.aspx)
+- **Elecciones 2026: Conoce AQUÍ cómo verificar tu local de votación asignado vía ONPE**: [Link](https://www.exitosanoticias.pe/actualidad/elecciones-2026-conoce-aqui-como-verificar-tu-local-votacion-asignado-via-onpe-n167400)
+- **ONPE notifica locales de votación mediante correo electrónico**: [Link](https://www.cronicaviva.com.pe/onpe-notifica-locales-de-votacion-mediante-correo-electronico/)
+
+
+### dni (N/A, 26/01/2026 11:40 Lima)
+
+- **Tradycyjna karczma i ludowe stroje. Tak bawili się maturzyści w Górowie Iławeckim**: [Link](https://radioolsztyn.pl/tradycyjna-karczma-i-ludowe-stroje-tak-bawili-sie-maturzysci-w-gorowie-ilaweckim/01853172)
+- **Studniówka 2026 Zespołu Szkół w Skępem. Zatańczono poloneza dokładnie 100 dni przed maturą. Zdjęcia**: [Link](https://lipno.naszemiasto.pl/studniowka-2026-zespolu-szkol-w-skepem-zatanczono-poloneza-dokladnie-100-dni-przed-matura-zdjecia/ar/c5p2-28669447)
+- **Studniówka w Zespole Szkół Ponadpodstawowych w Ziębicach [foto]**: [Link](https://zabkowice.express-miejski.pl/galeria/21318,studniowka-w-zespole-szkol-ponadpodstawowych-w-ziebicach-foto)
+
+
+### año 2026 (N/A, 26/01/2026 11:40 Lima)
+
+- **Elecciones 2026: JNE presentará lista final de candidatos el 14 de marzo**: [Link](https://andina.pe/agencia/noticia-elecciones-2026-jne-presentara-lista-final-candidatos-14-marzo-1060567.aspx)
+- **Elecciones 2026: 36 fórmulas presidenciales fueron inscritas por el JEE tras superar periodo de tachas**: [Link](https://www.exitosanoticias.pe/politica/elecciones-2026-36-formulas-presidenciales-fueron-inscritas-jee-tras-superar-periodo-tachas-n167355)
+- **Elecciones 2026: estas son las 36 fórmulas que competirán en las urnas el 12 de abril**: [Link](https://elperuano.pe/noticia/287913-elecciones-2026-estas-son-las-36-formulas-que-competiran-en-las-urnas-el-12-de-abril)
+
+
+### tinka 25 de enero 2026 (N/A, 26/01/2026 11:40 Lima)
+
+- **¡Reventó La Tinka! Sorteo del domingo 25 de enero entregó más de S/ 19 millones**: [Link](https://www.infobae.com/peru/2026/01/26/resultados-de-la-tinka-de-este-25-de-enero-todos-los-numeros-ganadores-del-ultimo-sorteo/)
+- **Reventó La Tinka: números ganadores y resultados del Pozo Millonario del domingo 25 de enero**: [Link](https://depor.com/peru/la-tinka-hoy-en-vivo-ver-resultados-del-ultimo-sorteo-domingo-25-de-enero-a-que-hora-se-juegan-donde-ver-numeros-jugada-ganadora-del-pozo-millonario-de-s19505138-intralot-resultado-si-o-si-boliyapa-peru-noticia/)
+- **Hay un nuevo millonario en el Perú: Afortunado se llevó 19 millones y medio de soles de la Tinka**: [Link](https://trome.com/actualidad/revento-la-tinka-afortunado-se-llevo-19-millones-y-medio-de-soles-en-cajamarca-noticia/)
+
+
+### el comercio (N/A, 26/01/2026 11:40 Lima)
+
+- **José Jerí pierde respaldo ciudadano: su aprobación cae a 33%, según el IEP**: [Link](https://larepublica.pe/politica/2026/01/26/jose-jeri-pierde-respaldo-ciudadano-aprobacion-cae-a-33-segun-iep-hnews-1307688)
+- **Aprobación de José Jerí cae diez puntos tras crisis por reuniones con empresario chino, revela encuesta de Datum**: [Link](https://elcomercio.pe/politica/gobierno/encuesta-datum-internacional-aprobacion-de-jeri-cae-al-41-y-queda-por-debajo-de-su-desaprobacion-por-primera-vez-tlc-nota-noticia/)
+- **Aprobación de José Jerí cae 10 puntos tras escándalo por reuniones con empresarios chinos**: [Link](https://www.americatv.com.pe/noticias/actualidad/aprobacion-jose-jeri-cae-10-puntos-escandalo-reuniones-empresarios-chinos-n515172)
+
+
 ### metropolitano (N/A, 26/01/2026 08:00 Lima)
 
 - **Bus del Metropolitano choca contra puente en estación México: accidente deja varios heridos**: [Link](https://www.infobae.com/peru/2026/01/26/bus-del-metropolitano-choca-contra-puente-en-estacion-mexico-y-deja-varios-heridos/)
@@ -990,47 +1032,5 @@ Sin noticias relacionadas disponibles.
 - **Tres sismos de ligera magnitud se registran en Áncash, Ayacucho y Piura**: [Link](https://caretas.pe/nacional/tres-sismos-de-ligera-magnitud-se-registran-en-ancash-ayacucho-y-piura/)
 - **Temblor hoy en Perú, miércoles 21 de enero: sismo de magnitud 3.7 se registró en Piura**: [Link](https://andina.pe/agencia/noticia-temblor-hoy-peru-miercoles-21-enero-sismo-magnitud-37-se-registro-piura-1060094.aspx)
 - **🔴🔵¡Atención! ⚠️ Temblor remeció HOY Perú: AQUÍ epicentro y magnitud del ÚLTIMO SISMO sentido este miércoles 🤯👇**: [Link](https://www.facebook.com/story.php?story_fbid=1328976995932022&id=100064592023543)
-
-
-### medvedev (N/A, 23/01/2026 03:37 Lima)
-
-- **'Not again' - Medvedev battles back from brink**: [Link](https://www.bbc.co.uk/sport/tennis/articles/cwy88kj95xpo)
-- **Australian Open Tennis**: [Link](https://www.wvnews.com/sports/pro/australian-open-tennis/image_755e6550-7845-5379-bfca-b81a6bc27905.html)
-- **Medvedev expects ‘long, brutal’ rematch with Tien after 3am finish**: [Link](https://www.theage.com.au/sport/tennis/medvedev-expects-long-brutal-rematch-with-tien-after-3am-finish-20260123-p5nwlh.html)
-
-
-### alcaraz (N/A, 22/01/2026 23:49 Lima)
-
-- **Carlos Alcaraz - Corentin Moutet en directo I Tercera ronda del Open de Australia en vivo**: [Link](https://www.marca.com/tenis/open-australia/carlos-alcaraz-corentin-moutet/2026/01/23/04_0401_20260123_97-directo.html)
-- **En el Australian Open 2026, Carlos Alcaraz va por un hito inédito que superaría a todo el Big 3**: [Link](https://www.espn.com.ar/tenis/nota/_/id/16215370/carlos-alcaraz-hito-partidos-grand-slam-australian-open-2026-big-3-borg-nadal-efectividad-federer-djokovic)
-- **Alcaraz pone toda la carne en el asador: Entrena sin descanso y lima los detalles con Samu López**: [Link](https://espanol.eurosport.com/tenis/open-australia/2026/alcaraz-entrena-sin-descanso-preparacion-partido-tercera-ronda-moutet-indicaciones-samu-lopez_vid60048503/video.shtml)
-
-
-### lakers - clippers (N/A, 22/01/2026 23:49 Lima)
-
-- **Lakers vs. Clippers Picks & Odds: January 22, 2026**: [Link](https://www.oddsshark.com/nba/lakers-clippers-picks-odds-january-22-2026)
-- **TST Best Bets- January 22, 2026**: [Link](https://www.thesportingtribune.com/2026/01/22/tst-best-bets--jan22-2026)
-- **Lakers-Clippers free livestream: How to watch NBA game tonight, TV, time**: [Link](https://www.al.com/tv/2026/01/lakers-clippers-free-livestream-how-to-watch-nba-game-tonight-tv-time.html)
-
-
-### kick (N/A, 22/01/2026 23:49 Lima)
-
-- **France says it has 'no desire' to boycott World Cup amid US-Greenland deal 'framework'**: [Link](https://www.foxnews.com/sports/france-says-has-no-desire-boycott-world-cup-amid-us-greenland-deal-framework)
-- **Europe Could Kick Trump Where It Hurts: The World Cup**: [Link](https://www.politico.com/news/magazine/2026/01/21/the-12-people-who-hold-trumps-world-cup-in-their-hands-00739998)
-- **'No desire' for World Cup boycott over Greenland**: [Link](https://www.bbc.com/sport/football/articles/cly3dedz10go)
-
-
-### warriors - mavericks (N/A, 22/01/2026 23:49 Lima)
-
-- **Raptors Notes: Quickley, Barrett, Murray-Boyles, Poeltl**: [Link](https://www.hoopsrumors.com/2026/01/raptors-notes-quickley-barrett-murray-boyles-poeltl.html)
-- **Kurtenbach: Empty calories, thunderous dunks — the Warriors, Kuminga embrace the art of losing**: [Link](https://www.mercurynews.com/2026/01/21/kurtenbach-empty-calories-thunderous-dunks-the-warriors-kuminga-embrace-the-art-of-losing/)
-- **Preview: Kuminga is back**: [Link](https://dubnationhq.com/p/preview-kuminga-is-back)
-
-
-### zamir villaverde (N/A, 22/01/2026 23:49 Lima)
-
-- **La cena en un restaurante chino disparó una crisis política para el presidente de Perú. ¿Cuál será su futuro?**: [Link](https://cnnespanol.cnn.com/2026/01/22/latinoamerica/peru-crisis-presidente-jose-jeri-futuro-orix)
-- **Comisión de Fiscalización interrogó a mandatario José Jerí por sus reuniones con empresario chino**: [Link](https://comunicaciones.congreso.gob.pe/noticias/comision-de-fiscalizacion-interrogo-a-mandatario-jose-jeri-por-sus-reuniones-con-empresario-chino/)
-- **La llamada desesperada a Alberto Otárola: José Jerí lo contactó para pedirle ayuda en medio del escándalo del “Chifagate”**: [Link](https://www.infobae.com/peru/2026/01/22/la-llamada-desesperada-a-alberto-otarola-jose-jeri-lo-contacto-para-pedirle-ayuda-en-medio-del-escandalo-del-chifagate/)
 
 
