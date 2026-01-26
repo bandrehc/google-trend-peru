@@ -1,3 +1,73 @@
+### porto vs (N/A, 26/01/2026 15:33 Lima)
+
+- **Porto host Gil Vicente needing a win to keep their lead at the top**: [Link](https://onefootball.com/de/news/porto-host-gil-vicente-needing-a-win-to-keep-their-lead-at-the-top-42304039)
+- **César Peixoto: “We’re Not Visiting Dragão to Play Beautifully and Lose”**: [Link](https://www.filmogaz.com/118363)
+- **Preview: Porto vs Gil Vicente - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/porto/preview/porto-vs-gil-vicente-prediction-team-news-lineups_590606.html)
+
+
+### verona vs (N/A, 26/01/2026 15:33 Lima)
+
+- **Serie A: Por la fecha 22 se enfrentarán Hellas Verona y Udinese**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-por-la-fecha-22-se-enfrentaran-hellas-verona-y-udinese-noticia-1672975)
+- **Pronósticos Verona vs. Udinese - ¿La resurrección del Hellas?**: [Link](https://gainblers.com/pe/pronosticos/futbol/italia/serie-a/pronostico-verona-udinese-26-01-2026/)
+- **Serie A Enilive 2025/26 | #VeronaUdinese: Gates Open at 6.45 PM**: [Link](https://www.hellasverona.it/en/news/serie-a-enilive-2025-26-veronaudinese-gates-open-at-6-45-pm)
+
+
+### porto - gil vicente (N/A, 26/01/2026 15:33 Lima)
+
+- **César Peixoto: “Não vamos ao Dragão para jogar bonito e perder por três ou quatro”**: [Link](https://onefootball.com/de/news/cesar-peixoto-nao-vamos-ao-dragao-para-jogar-bonito-e-perder-por-tres-ou-quatro-42299777)
+- **Porto x Gil Vicente no Campeonato Português: onde assistir ao vivo, horário e escalação**: [Link](https://www.estadao.com.br/esportes/futebol/porto-x-gil-vicente-no-campeonato-portugues-onde-assistir-ao-vivo-horario-e-escalacao-npres/)
+- **Froholdt pronto para ir à luta**: [Link](https://www.pressreader.com/portugal/o-jogo/20260126/281754160736275)
+
+
+### pacers - hawks (N/A, 26/01/2026 15:33 Lima)
+
+- **NBA Games Today: Is There a Basketball Game on TV Tonight? Complete Monday Schedule**: [Link](https://www.profootballnetwork.com/nba/nba-games-today-complete-monday-schedule-26-january/)
+- **How to watch Pacers vs. Hawks: TV channel and streaming options for January 26**: [Link](https://www.nytimes.com/athletic/6999082/2026/01/26/how-to-watch-pacers-vs-hawks-tv-channel-and-streaming-options-for-january-26/)
+- **Sixers to face off against Charlotte Hornets in matinee thanks to snow**: [Link](https://www.libertyballers.com/76ers-game-previews/84880/sixers-escape-snow-to-face-off-against-charlotte-hornets)
+
+
+### girona (N/A, 26/01/2026 15:33 Lima)
+
+- **LaLiga EA Sports: Getafe quiere vencer y quitarle la racha positiva a Girona**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-getafe-quiere-vencer-y-quitarle-la-racha-positiva-a-girona-noticia-1672978)
+- **Pronósticos Girona vs. Getafe: Un partido para sacar la cabeza del fondo**: [Link](https://gainblers.com/pe/pronosticos/futbol/espana/liga-primera-division/pronostico-girona-getafe-26-01-2026/)
+- **Lo que debes saber del Girona-Getafe de LaLiga**: [Link](https://www.flashscore.pe/noticias/futbol-laliga-ea-sports-previa-girona-getafe-j21/I1ETKcQp/)
+
+
+### girona - getafe (N/A, 26/01/2026 15:33 Lima)
+
+- **Preview: Girona vs Getafe - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/girona/preview/girona-vs-getafe-prediction-team-news-lineups_590586.html)
+- **Girona’s head coach Michel reveals how many points need to secure by season’s end**: [Link](https://tribuna.com/en/news/2026-01-26-gironas-head-coach-michel-reveals-how-many-points-need-to-secure-by-seasons-end/)
+- **Montilivi wants to extend Girona's winning streak**: [Link](https://sports.yahoo.com/articles/montilivi-wants-extend-gironas-winning-120500860.html)
+
+
+### everton - leeds (N/A, 26/01/2026 15:33 Lima)
+
+- **Everton v Leeds United: Premier League – live**: [Link](https://www.theguardian.com/football/live/2026/jan/26/everton-v-leeds-united-premier-league-live)
+- **bet365 bonus code UK: Use MYBETCODE for Premier League free bets**: [Link](https://mybettingsites.co.uk/news/bet365-bonus-code-uk-use-mybetcode-for-premier-league-free-bets-january-26/)
+- **Andy Burnham makes brilliant Dominic Calvert-Lewin prediction ahead of Leeds United vs Everton**: [Link](https://www.yorkshireeveningpost.co.uk/sport/football/leeds-united/leeds-united-andy-burnham-dominic-calvert-lewin-everton-5490958)
+
+
+### laura huarcayo (N/A, 26/01/2026 15:33 Lima)
+
+- **¿Niño Alfredito como conductor de MQM?**: [Link](https://www.americatv.com.pe/mande-quien-mande/nino-alfredito-nuevo-conductor-mande-quien-mande-noticia-162571)
+- **Laura Huarcayo: Su regreso a la TV, disfruta su soltería, su tipo de hombre, la infidelidad y más**: [Link](https://trome.com/espectaculos/tv/laura-huarcayo-su-regreso-a-la-tv-disfruta-su-solteria-su-tipo-de-hombre-la-infidelidad-y-mas-mande-quien-mande-entrevista-video-farandula-noticia/)
+- **Erick Elera se suma a la conducción del programa 'MQM' junto a Laura Huarcayo y 'La Carlota'**: [Link](https://rpp.pe/famosos/farandula/erick-elera-se-une-a-conduccion-de-programa-mande-quien-mande-con-laura-huarcayo-y-carlos-vilchez-la-carlota-noticia-1672518)
+
+
+### pgl wallachia season 7 (N/A, 26/01/2026 15:33 Lima)
+
+- **PGL Wallachia Season 7 invites revealed**: [Link](https://esportsinsider.com/2026/01/pgl-wallachia-season-7-invited-teams)
+- **PGL announce invited teams for PGL Wallachia Season 7**: [Link](https://esports-news.co.uk/2026/01/26/pgl-announce-invited-teams-for-pgl-wallachia-season-7/)
+- **PGL Wallachia Season 7 closed qualifier invites revealed**: [Link](https://esportsinsider.com/2026/01/pgl-wallachia-season-7-closed-qualifier-invites)
+
+
+### hellas verona - udinese (N/A, 26/01/2026 15:33 Lima)
+
+- **Serie A Enilive 2025/26 | #VeronaUdinese: Gates Open at 6.45 PM**: [Link](https://www.hellasverona.it/en/news/serie-a-enilive-2025-26-veronaudinese-gates-open-at-6-45-pm)
+- **Serie A: Verona vs. Udinese – Confirmed line-ups and updates**: [Link](https://football-italia.net/serie-a-verona-vs-udinese-confirmed-line-ups/)
+- **Verona v Udinese: Orban and Atta start, Montipò out ✅**: [Link](https://onefootball.com/en/news/verona-v-udinese-orban-and-atta-start-montipo-out-42306626)
+
+
 ### nipah (N/A, 26/01/2026 11:40 Lima)
 
 - **Airports launch COVID-style health checks after outbreak of deadly virus**: [Link](https://www.foxnews.com/travel/airports-launch-covid-style-health-checks-outbreak-deadly-virus)
@@ -962,75 +1032,5 @@ Sin noticias relacionadas disponibles.
 - **Inter, Chivu: "A Luis Henrique si può rimproverare una sola cosa. Spero mi passi questo mal di schiena..."**: [Link](https://www.calciomercato.com/liste/inter-chivu-a-luis-henrique-si-puo-rimproverare-una-sola-cosa-spero-mi-passi-questo-mal-di-schiena/blt45696a95ba7ecf68)
 - **Calcio Live News: in campo per l'anticipo di A Inter e Pisa (2-2), pareggia Lautaro**: [Link](https://www.diretta.it/news/calcio-live-news-in-campo-per-l-anticipo-di-a-inter-e-pisa-2-2-pareggia-lautaro/YstkshW9/)
 - **Errore di Sommer, gol di Moreo (due volte): Pisa in vantaggio a San Siro**: [Link](https://gianlucadimarzio.com/inter-pisa-moreo-sommer-gol-serie-a-news-23-gennaio-2026/)
-
-
-### tormenta invernal en estados unidos (N/A, 23/01/2026 11:37 Lima)
-
-- **Por qué es tan peligrosa la gigantesca tormenta de nieve y hielo que amenaza a gran parte de EE.UU. este fin de semana**: [Link](https://www.bbc.com/mundo/articles/c620006pdp5o)
-- **Nueva York declara el estado de emergencia ante fuerte tormenta de nieve y frío extremo**: [Link](https://www.infobae.com/estados-unidos/2026/01/23/nueva-york-declara-el-estado-de-emergencia-ante-fuerte-tormenta-de-nieve-y-frio-extremo/)
-- **EE.UU. se prepara para una de las peores tormentas invernales en años**: [Link](https://cnnespanol.cnn.com/2026/01/22/eeuu/video/eeuu-clima-tormenta-invernal-extrema-ush-dusa-tv)
-
-
-### pablo sánchez (N/A, 23/01/2026 11:37 Lima)
-
-- **JNJ decide no ratificar en el cargo de fiscal supremo a Pablo Sanchez**: [Link](https://lpderecho.pe/jnj-no-ratificar-cargo-fiscal-supremo-pablo-sanchez/)
-- **Pablo Sánchez ya no es fiscal supremo: favor a Gustavo Gorriti le costó caro**: [Link](https://www.expreso.com.pe/judicial/pablo-sanchez-ya-no-es-fiscal-supremo-favor-a-gustavo-gorriti-le-costo-caro-idl-jnj-noticia/1257661/)
-- **JNJ no ratifica a Pablo Sánchez como fiscal supremo**: [Link](https://caretas.pe/home_web/home_principal_secundario/jnj-no-ratifica-a-pablo-sanchez-como-fiscal-supremo/)
-
-
-### ticketmaster mexico (N/A, 23/01/2026 11:37 Lima)
-
-- **BTS preventa Ticketmaster: fan graba su compra de entradas en vivo con la Army Membership y muestra lo que pasará en Perú**: [Link](https://www.infobae.com/peru/2026/01/22/bts-preventa-ticketmaster-fan-graba-su-compra-de-entradas-en-vivo-con-la-army-membership-y-muestra-lo-que-pasara-en-peru/)
-- **Cómo comprar entradas para los conciertos de BTS: así funciona la preventa y precios**: [Link](https://www.europafm.com/noticias/musica/como-comprar-entradas-bts-preventa-como-funciona-army-membership-precios_20260123696e1825f21351044da1b7df.html)
-- **Precios OFICIALES para conciertos de BTS en México: ¿Cuánto cuesta un boleto en el Estadio GNP?**: [Link](https://www.elfinanciero.com.mx/entretenimiento/2026/01/22/precios-oficiales-para-conciertos-de-bts-en-mexico-cuanto-cuesta-un-boleto-en-el-estadio-gnp/)
-
-
-### milo j (N/A, 23/01/2026 11:37 Lima)
-
-- **Milo J en Lima 2026: lugar, precios, preventa de entradas,**: [Link](https://www.americatv.com.pe/noticias/espectaculos/milo-j-lima-2026-fecha-lugar-y-todo-sobre-esperado-show-n515027)
-- **Foro Económico Mundial evalúa mudarse de Davos tras 60 años https://mile.io/4taVr83**: [Link](https://www.facebook.com/MilenioDiario/photos/foro-econ%C3%B3mico-mundial-eval%C3%BAa-mudarse-de-davos-tras-60-a%C3%B1oshttpsmileio4tavr83/1366362705521197/)
-- **¿Quién es Milo J? El rapero argentino dará concierto en el Palacio de los Deportes**: [Link](https://www.sdpnoticias.com/espectaculos/musica/quien-es-milo-j-el-rapero-argentino-dara-concierto-en-el-palacio-de-los-deportes/)
-
-
-### tormenta geomagnética perú (N/A, 23/01/2026 11:37 Lima)
-
-- **La mayor tormenta solar en más de dos décadas vuelve a poner en alerta a la Tierra**: [Link](https://www.infobae.com/america/ciencia-america/2026/01/20/la-mayor-tormenta-solar-en-mas-de-dos-decadas-vuelve-a-poner-en-alerta-a-la-tierra/)
-- **El Sol libera la mayor tormenta de radiación "en más de 20 años", según pronosticadores**: [Link](https://cnnespanol.cnn.com/2026/01/19/ciencia/tormenta-radiacion-solar-auroras-trax)
-- **Tormenta geomagnética ya concluyó y no dejó impactos en el Perú**: [Link](https://andina.pe/agencia/noticia-tormenta-geomagnetica-ya-concluyo-y-no-dejo-impactos-el-peru-1060027.aspx)
-
-
-### año 2026 (N/A, 23/01/2026 07:59 Lima)
-
-- **Gobierno del Perú oficializa el nombre del año 2026: ¿Cómo se llama?**: [Link](https://www.infobae.com/peru/2026/01/23/gobierno-del-peru-oficializa-el-nombre-oficial-del-ano-2026-como-se-llama/)
-- **Gobierno declaró el 2026 como el ‘Año de la Esperanza y el Fortalecimiento de la Democracia’**: [Link](https://rpp.pe/politica/gobierno/gobierno-declaro-el-2026-como-el-ano-de-la-esperanza-y-el-fortalecimiento-de-la-democracia-noticia-1672718)
-- **Declaran el 2026 como el Año de la esperanza y el fortalecimiento de la democracia**: [Link](https://andina.pe/agencia/noticia-declaran-2026-como-ano-de-esperanza-y-fortalecimiento-de-democracia-1060390.aspx)
-
-
-### delia espinoza jnj (N/A, 23/01/2026 07:59 Lima)
-
-- **Delia Espinoza en manos de la JNJ: ¿Por qué hechos se propone destituirla como fiscal suprema titular?**: [Link](https://elcomercio.pe/politica/delia-espinoza-jnj-por-que-hechos-informe-destituirla-como-fiscal-suprema-junta-nacional-de-justicia-fiscalia-de-la-nacion-noticia/)
-- **Delia Espinoza y Gino Ríos protagonizan tenso intercambio: “Usted no debería estar sentado allí”**: [Link](https://www.infobae.com/peru/2026/01/22/delia-espinoza-y-gino-rios-protagonizan-tenso-intercambio-usted-no-deberia-estar-sentado-alli/)
-- **Delia Espinoza cuestiona informe y denuncia irregularidades ante la JNJ**: [Link](https://caretas.pe/politica/delia-espinoza-cuestiona-informe-y-denuncia-irregularidades-ante-la-jnj/)
-
-
-### temblor peru (N/A, 23/01/2026 07:59 Lima)
-
-- **Tres sismos de ligera magnitud se registran en Áncash, Ayacucho y Piura**: [Link](https://caretas.pe/nacional/tres-sismos-de-ligera-magnitud-se-registran-en-ancash-ayacucho-y-piura/)
-- **Temblor HOY, 22 de enero: epicentro, hora y magnitud de últimos sismos en Perú**: [Link](https://elcomercio.pe/peru/temblor-hoy-epicentro-hora-y-magnitud-de-ultimos-sismos-en-peru-segun-igp-tdpe-noticia/)
-- **Temblor en Arequipa: sismo de magnitud 4,0 remeció Atico, según IGP**: [Link](https://larepublica.pe/sociedad/2026/01/23/temblor-en-arequipa-sismo-de-magnitud-40-remecio-atico-segun-igp-1572119)
-
-
-### mavericks - warriors (N/A, 23/01/2026 03:37 Lima)
-
-- **Injury-Riddled Mavericks And Warriors Clash In Dallas Showdown**: [Link](https://evrimagaci.org/gpt/injuryriddled-mavericks-and-warriors-clash-in-dallas-showdown-525035)
-- **HLs: Marshall scores season-high 30 vs. Warriors**: [Link](https://www.nbcsports.com/watch/nba/nba-highlights-2025-26-naji-marshall-scores-30-for-dallas-mavericks-in-win)
-- **Steph Curry erupts for 38 points, but Warriors fade late to lose in Dallas**: [Link](https://www.msn.com/en-us/sports/nba/steph-curry-erupts-for-38-points-but-warriors-fade-late-to-lose-in-dallas/ar-AA1UMRJv)
-
-
-### temblor (N/A, 23/01/2026 03:37 Lima)
-
-- **Tres sismos de ligera magnitud se registran en Áncash, Ayacucho y Piura**: [Link](https://caretas.pe/nacional/tres-sismos-de-ligera-magnitud-se-registran-en-ancash-ayacucho-y-piura/)
-- **Temblor hoy en Perú, miércoles 21 de enero: sismo de magnitud 3.7 se registró en Piura**: [Link](https://andina.pe/agencia/noticia-temblor-hoy-peru-miercoles-21-enero-sismo-magnitud-37-se-registro-piura-1060094.aspx)
-- **🔴🔵¡Atención! ⚠️ Temblor remeció HOY Perú: AQUÍ epicentro y magnitud del ÚLTIMO SISMO sentido este miércoles 🤯👇**: [Link](https://www.facebook.com/story.php?story_fbid=1328976995932022&id=100064592023543)
 
 
