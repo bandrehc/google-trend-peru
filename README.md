@@ -1,3 +1,10 @@
+### lorenzo musetti (N/A, 26/01/2026 03:40 Lima)
+
+- **Musetti completes major QF set, earns Djokovic clash at Australian Open**: [Link](https://www.atptour.com/en/news/fritz-musetti-australian-open-2026-monday)
+- **Australian Open 2026: Luciano Darderi v Jannik Sinner, Maddison Inglis v Iga Swiatek – live**: [Link](https://www.theguardian.com/sport/live/2026/jan/26/australian-open-2026-darderi-sinner-inglis-swiatek-shelton-ruud-live)
+- **Lorenzo Musetti Vs Taylor Fritz Highlights, AO 2026: Italian Beats American In Straight Sets, Books QF Spot**: [Link](https://www.outlookindia.com/sports/tennis/lorenzo-musetti-vs-taylor-fritz-live-score-australian-open-2026-fourth-round-mens-singles-update-grand-slam-highlights)
+
+
 ### thunder - raptors (N/A, 25/01/2026 23:58 Lima)
 
 - **Raptors Edge Thunder In Gritty NBA Showdown At Paycom Center**: [Link](https://evrimagaci.org/gpt/raptors-edge-thunder-in-gritty-nba-showdown-at-paycom-center-525492)
@@ -1023,12 +1030,5 @@ Sin noticias relacionadas disponibles.
 - **Harry Styles Shares New Song "Aperture": Listen**: [Link](https://stereogum.com/2486352/harry-styles-aperture/music)
 - **Harry Styles ends hiatus with the new album Kiss All The Time. Disco, Occasionally. A return fans have waited years for**: [Link](https://panthernow.com/2026/01/22/harry-styles-ends-hiatus-with-the-new-album-kiss-all-the-time-disco-occasionally-a-return-fans-have-waited-years-for/)
 - **Harry Styles to appear on John Mayer’s SiriusXM show tomorrow**: [Link](https://tribune.com.pk/story/2588544/harry-styles-to-appear-on-john-mayers-siriusxm-show-tomorrow)
-
-
-### cruzeiro - esporte clube democrata (N/A, 22/01/2026 21:08 Lima)
-
-- **Cruzeiro x Atlético: Gerson admite estar pronto para o clássico e não 'escolhe' posição no time**: [Link](https://rede98.com.br/esportes/cruzeiro/cruzeiro-x-atletico-gerson-admite-estar-pronto-para-o-classico-e-nao-escolhe-posicao-no-time/)
-- **Tite fala sobre derrota e comenta sobre o clássico domingo (25)**: [Link](https://www.terra.com.br/esportes/cruzeiro/tite-fala-sobre-derrota-e-comenta-sobre-o-classico-domingo-25,059025ca4e505c6ae3d6a33d4f4240b72lg2ow6h.html)
-- **Edu Panzi | Cruzeiro usa o Campeonato Mineiro como deve usar**: [Link](https://www.itatiaia.com.br/esportes/comentaristas/edu-panzi/edu-panzi-cruzeiro-usa-o-campeonato-mineiro-como-deve-usar)
 
 
