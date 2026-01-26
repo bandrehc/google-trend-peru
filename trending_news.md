@@ -1,3 +1,44 @@
+### thunder - raptors (N/A, 25/01/2026 23:58 Lima)
+
+- **Raptors Edge Thunder In Gritty NBA Showdown At Paycom Center**: [Link](https://evrimagaci.org/gpt/raptors-edge-thunder-in-gritty-nba-showdown-at-paycom-center-525492)
+- **Scottie Barnes for Defensive Player of the Year? This block strengthens his case**: [Link](https://www.nytimes.com/athletic/6998302/2026/01/25/scottie-barnes-raptors-defensive-play-chet-holmgren-dpoy-contender/)
+- **Scottie Barnes denies Chet Holmgren with crucial 4th quarter block**: [Link](https://sports.yahoo.com/articles/scottie-barnes-denies-chet-holmgren-031134464.html)
+
+
+### taylor fritz (N/A, 25/01/2026 23:58 Lima)
+
+- **Australian Open Day 9 order of play: Swiatek in action; Pegula meets Keys**: [Link](https://www.wtatennis.com/news/4439269/australian-open-day-9-order-of-play)
+- **Lorenzo Musetti vs. Taylor Fritz: Predictions, How to Watch for Free**: [Link](https://globelynews.com/sports/lorenzo-musetti-vs-taylor-fritz-predictions-how-to-watch-for-free/)
+- **Australian Open Tennis**: [Link](https://www.wvnews.com/sports/pro/australian-open-tennis/image_8b2999d7-61c6-5dbd-99d8-0a184fcdcab6.html)
+
+
+### rafael lópez aliaga (N/A, 25/01/2026 23:58 Lima)
+
+- **Rafael López Aliaga advierte que cambiará la capital de Perú si gana las Elecciones: “De Lima a Junín”**: [Link](https://www.infobae.com/peru/2026/01/23/rafael-lopez-aliaga-advierte-que-cambiara-la-capital-de-peru-si-gana-las-elecciones-de-lima-a-junin/)
+- **Rafael López Aliaga, candidato presidencial de Renovación Popular, anunció que, de llegar al Gobierno, cambiará la capital del Perú de Lima a Junín. En un mitin en Huancayo aseguró que la medida está en su plan de gobierno: “La capital del Perú pasa d**: [Link](https://www.facebook.com/ElBuho.pe/posts/rafael-l%C3%B3pez-aliaga-candidato-presidencial-de-renovaci%C3%B3n-popular-anunci%C3%B3-que-de-/1550058546655702/)
+- **López Aliaga plantea trasladar la capital del Perú a Junín si gana las elecciones**: [Link](https://caretas.pe/politica/lopez-aliaga-plantea-trasladar-la-capital-del-peru-a-junin-si-gana-las-elecciones/)
+
+
+### zaca tv (N/A, 25/01/2026 23:58 Lima)
+
+- **Salandela, Miranda Capurro y Michelle Onetto dejan Zaca TV: así nació “Somos lo que Somos”, el fenómeno que se tomará una pausa del streaming**: [Link](https://elcomercio.pe/somos/tendencias/salandela-miranda-capurro-y-michelle-onetto-dejan-zaca-tv-asi-nacio-somos-lo-que-somos-el-fenomeno-que-cambio-el-streaming-en-pocos-meses-noticia/)
+- **Salandela, Miranda Capurro y Michelle Onetto le dicen ‘adiós’ a Zaca TV: ¿Qué pasará con el proyecto?**: [Link](https://trome.com/espectaculos/tv/zaca-tv-salandela-miranda-capurro-y-michelle-onetto-dejan-canal-de-streaming-de-giacomo-benavides-foto-farandula-noticia/)
+- **Salandela, Michelle Onetto y Miranda Capurro no seguirán en 'Somos lo que somos' de Zaca TV : "Ha sido una decisión difícil"**: [Link](https://larepublica.pe/streamers/2026/01/25/salandela-michelle-onetto-y-miranda-capurro-no-seguiran-en-somos-lo-que-somos-de-zaca-tv-ha-sido-una-decision-dificil-evat-2175600)
+
+
+### kira alcarraz (N/A, 25/01/2026 23:58 Lima)
+
+- **Congresista Kira Alcarraz protagoniza otro incidente: se resiste a intervención y hace gestos obscenos a policías**: [Link](https://elcomercio.pe/politica/congreso/congresista-kira-alcarraz-protagoniza-otro-incidente-se-resiste-a-intervencion-y-hace-gestos-obscenos-a-policias-san-borja-pnp-ultimas-noticia/)
+- **Congresista Kira Alcarraz vuelve a ser intervenida por la PNP y su conductor queda detenido tras dosaje etílico positivo**: [Link](https://www.infobae.com/peru/2026/01/26/kira-alcarraz-vuelve-a-ser-intervenida-por-la-pnp-y-su-conductor-queda-detenido-tras-dosaje-etilico-positivo/)
+
+
+### concierto hoy lima (N/A, 25/01/2026 23:58 Lima)
+
+- **My Chemical Romance en Lima: posible setlist, horarios, accesos y todo sobre su concierto en el Estadio Nacional**: [Link](https://rpp.pe/musica/conciertos/my-chemical-romance-en-lima-2026-setlist-de-canciones-horarios-accesos-y-lo-que-se-sabe-del-historico-concierto-en-estadio-nacional-noticia-1672795)
+- **Fans de My Chemical Romance ya hacen filas fuera del Estadio Nacional a pocos días del concierto**: [Link](https://trome.com/actualidad/my-chemical-romance-fans-de-la-banda-ya-hacen-filas-fuera-del-estadio-nacional-a-pocos-dias-del-concierto-video-fotos-noticia/)
+- **Gana entradas dobles para ver a The Hives y My Chemical Romance**: [Link](https://www.oxigeno.com.pe/concursos/gana-entradas-dobles-para-ver-a-the-hives-y-my-chemical-romance-noticia-1672486)
+
+
 ### once caldas - santa fe (N/A, 25/01/2026 21:24 Lima)
 
 - **Pronóstico Once Caldas Santa Fe - Primera A Colombia 25/01/26**: [Link](https://www.sportytrader.com/es/pronosticos/once-caldas-santa-fe-321613/)
@@ -989,45 +1030,5 @@ Sin noticias relacionadas disponibles.
 - **Cruzeiro x Atlético: Gerson admite estar pronto para o clássico e não 'escolhe' posição no time**: [Link](https://rede98.com.br/esportes/cruzeiro/cruzeiro-x-atletico-gerson-admite-estar-pronto-para-o-classico-e-nao-escolhe-posicao-no-time/)
 - **Tite fala sobre derrota e comenta sobre o clássico domingo (25)**: [Link](https://www.terra.com.br/esportes/cruzeiro/tite-fala-sobre-derrota-e-comenta-sobre-o-classico-domingo-25,059025ca4e505c6ae3d6a33d4f4240b72lg2ow6h.html)
 - **Edu Panzi | Cruzeiro usa o Campeonato Mineiro como deve usar**: [Link](https://www.itatiaia.com.br/esportes/comentaristas/edu-panzi/edu-panzi-cruzeiro-usa-o-campeonato-mineiro-como-deve-usar)
-
-
-### santos vs corinthians (N/A, 22/01/2026 21:08 Lima)
-
-- **Santos vs Corinthians: partidazo en vivo por el Campeonato Paulista**: [Link](https://www.futbolperuano.com/en-vivo/santos-vs-corinthians-en-vivo-por-el-campeonato-paulista-2026-560795)
-
-
-### silent hill (N/A, 22/01/2026 21:08 Lima)
-
-- **Return to Silent Hill review – video game horror series births another middling movie | Horror films**: [Link](https://www.theguardian.com/film/2026/jan/21/return-to-silent-hill-movie-review)
-- **Akira Yamaoka on Remaking Silent Hill 2's Soundtrack (Again) for Return to Silent Hill**: [Link](https://www.ign.com/articles/akira-yamaoka-on-remaking-silent-hill-2s-soundtrack-again-for-return-to-silent-hill)
-- **Can GameStop’s Silent Hill Tie-In Reveal the Real Potential of Its Experiential Strategy (GME)?**: [Link](https://finance.yahoo.com/news/gamestop-silent-hill-tie-reveal-221017042.html)
-
-
-### delia espinoza (N/A, 22/01/2026 21:08 Lima)
-
-- **Delia Espinoza protagoniza tenso cruce con la JNJ en audiencia por su posible destitución**: [Link](https://canaln.pe/actualidad/delia-espinoza-protagoniza-tenso-cruce-jnj-audiencia-su-posible-destitucion-n489787)
-- **JNJ evalúa destitución de Delia Espinoza como fiscal suprema**: [Link](https://peru21.pe/politica/jnj-evalua-destitucion-de-delia-espinoza-como-fiscal-suprema/)
-- **Delia Espinoza y Gino Ríos protagonizan tenso intercambio: “Usted no debería estar sentado allí”**: [Link](https://www.infobae.com/peru/2026/01/22/delia-espinoza-y-gino-rios-protagonizan-tenso-intercambio-usted-no-deberia-estar-sentado-alli/)
-
-
-### santos vs (N/A, 22/01/2026 21:08 Lima)
-
-- **Santos Vs Corinthians Live Streaming, Campeonato Paulista 2026: Classico Alvinegro Preview, Head-To-Head, And More**: [Link](https://www.outlookindia.com/sports/football/santos-vs-corinthians-live-streaming-campeonato-paulista-2026-classico-alvinegro-preview-head-to-head)
-- **Santos Stages Second-Half Comeback to Draw Classic Match with Corinthians**: [Link](https://www.filmogaz.com/112018)
-- **santos vs corinthians**: [Link](https://www.latestly.com/google-trends/23012026/santos-vs-corinthians/)
-
-
-### roma vs (N/A, 22/01/2026 15:34 Lima)
-
-- **‘The one that takes all our attention’ – Gasperini admits to overlooking Europe for Milan clash**: [Link](https://sempremilan.com/gasperini-admits-overlooking-europe-milan)
-- **Why new Roma signings Malen and Vaz will not play against Stuttgart in Europa League**: [Link](https://football-italia.net/why-malen-vaz-cant-play-in-roma-stuttgart/)
-- **Evan Ferguson in line to return tomorrow as boss hails recent form and insists he remains a Roma player**: [Link](https://www.independent.ie/sport/soccer/evan-ferguson-in-line-to-return-tomorrow-as-boss-hails-recent-form-and-insists-he-remains-a-roma-player/a795049073.html)
-
-
-### roma (N/A, 22/01/2026 15:34 Lima)
-
-- **Una mostra racconta la "Roma del Terzo Millennio"**: [Link](https://www.italpress.com/una-mostra-racconta-la-roma-del-terzo-millennio/)
-- **Roma oltre il passato: allo Spazio WeGil arriva "Roma Terzo Millennio"**: [Link](https://www.romaweekend.it/articoli/roma-terzo-millennio/)
-- **Roma può essere una città contemporanea?**: [Link](https://www.domusweb.it/it/arte/2026/01/20/roma-citta-contemporanea-mostre-maxxi-macro.html)
 
 
