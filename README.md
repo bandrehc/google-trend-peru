@@ -1,3 +1,72 @@
+### once caldas - santa fe (N/A, 25/01/2026 21:24 Lima)
+
+- **Pronóstico Once Caldas Santa Fe - Primera A Colombia 25/01/26**: [Link](https://www.sportytrader.com/es/pronosticos/once-caldas-santa-fe-321613/)
+- **Once Caldas vs Santa Fe hoy: Resultado EN VIVO, minuto a minuto y goles de la Liga BetPlay**: [Link](https://www.365scores.com/es/news/once-caldas-vs-santa-fe-resultado-vivo/)
+- **Dayro vs Rodallega, un duelo de presente que suma muchos goles**: [Link](https://www.futbolred.com/futbol-colombiano/liga-betplay/dayro-moreno-y-hugo-rodallega-dos-goleadores-que-confirman-buen-presente-y-realidad-261247)
+
+
+### argentinos juniors vs (N/A, 25/01/2026 21:24 Lima)
+
+- **Cuándo juegan Argentinos Juniors vs. Sarmiento por la primera fecha del Torneo Apertura: equipo, fecha, hora y TV en vivo**: [Link](https://espndeportes.espn.com/futbol/argentina/nota/_/id/16216490/argentinos-juniors-vs-sarmiento-fecha-1-torneo-apertura-2026-equipo-fecha-hora-y-tv-en-vivo)
+- **Argentinos vs Sarmiento: Resultado EN VIVO, minuto a minuto y goles de la Liga Profesional**: [Link](https://www.365scores.com/es/news/argentinos-vs-sarmiento-resultado-vivo/)
+- **Se cierra la fecha en La Paternal y Victoria**: [Link](https://www.eldia.com/nota/2026-1-25-2-18-33-se-cierra-la-fecha-en-la-paternal-y-victoria-deportes)
+
+
+### corinthians (N/A, 25/01/2026 21:24 Lima)
+
+- **📋 Corinthians ESCALADO para novo desafio no Paulistão**: [Link](https://onefootball.com/en/news/corinthians-escalado-para-novo-desafio-no-paulistao-42301785)
+- **Yuri Alberto sai do banco, marca no fim e evita vexame do Corinthians para o Velo Clube fora de casa**: [Link](https://www.estadao.com.br/esportes/futebol/velo-clube-x-corinthians-paulistao-5-rodada-analise/)
+- **Comentário de Victor Hugo em 'Jogo do Corinthians ao vivo'**: [Link](https://www.meutimao.com.br/comentario/16509133/meu_deus_o_dorival_empatando_o_jogo_com_velo)
+
+
+### pedro aquino (N/A, 25/01/2026 21:24 Lima)
+
+- **Sergio Peña, Carlos Zambrano y Miguel Trauco se pronunciaron tras denuncia**: [Link](https://www.espn.com.pe/futbol/peru/nota/_/id/16219546/alianza-lima-sergio-pena-carlos-zambrano-y-miguel-trauco-se-pronunciaron-tras-denuncia)
+- **Pablo Guede sobre Zambrano, Trauco y Peña: “No tengo ganas de seguir revolviendo cosas que me hacen mal”**: [Link](https://depor.com/futbol-peruano/descentralizado/alianza-lima-pablo-guede-hablo-de-jugadores-denunciados-por-abuso-sexual-carlos-zambrano-miguel-trauco-y-sergio-pena-liga-1-2026-noticia/)
+- **DíaD: ¡Participa con la pregunta!**: [Link](https://www.atv.pe/noticia/diad-participa-con-la-pregunta/)
+
+
+### gremio vs (N/A, 25/01/2026 21:24 Lima)
+
+- **(VIDEO) Noriega jugó los 90 minutos el Clásico frente a Inter**: [Link](https://ovacion.pe/noticias/peruanos-mundo/video-noriega-jugo-90-minutos-clasico-frente-inter)
+- **Internacional vs Gremio: partidazo en vivo por el Campeonato Gaúcho**: [Link](https://www.futbolperuano.com/en-vivo/campeonato-gaucho-2026-internacional-vs-gremio-en-vivo-561140)
+
+
+### silent hill (N/A, 25/01/2026 21:24 Lima)
+
+- **Return to Silent Hill: Video game sequel is more of the same**: [Link](https://www.rogerebert.com/reviews/return-to-silent-hill-video-game-movie-review-2026)
+- **‘Return to Silent Hill’ Review: A Macabre Spectacle**: [Link](https://www.nytimes.com/2026/01/22/movies/return-to-silent-hill-review.html)
+- **You Know Video Game Adaptations Are Cooked When ‘Silent Hill’ (2006) Has Aged This Well**: [Link](https://www.indiewire.com/features/best-of/silent-hill-2006-christophe-gans-reboot-20th-anniversary-1235174762/)
+
+
+### warriors - timberwolves (N/A, 25/01/2026 21:24 Lima)
+
+- **Warriors vs. Timberwolves: Prediction, How to Watch (1/25/26)**: [Link](https://globelynews.com/sports/warriors-vs-timberwolves-prediction-how-to-watch-1-25-26/)
+- **What are Steph and Ant plotting?**: [Link](https://bvmsports.com/2026/01/25/what-are-steph-and-ant-plotting-%F0%9F%98%85-nbc-sports-bay-area/)
+- **Steph Curry is available today in Minnesota.**: [Link](https://www.hoopshype.com/story/sports/nba/rumors/2026/01/25/steph-curry-is-available-today-in-minnesota/88353594007/)
+
+
+### internacional - grêmio (N/A, 25/01/2026 21:24 Lima)
+
+- **Internacional vence o Grêmio pelo Gauchão em clássico de seis gols**: [Link](https://www.cnnbrasil.com.br/esportes/futebol/campeonato-gaucho/internacional-vence-o-gremio-pelo-gauchao-em-classico-de-seis-gols/)
+- **O trator colorado atropelou o Grêmio**: [Link](https://gauchazh.clicrbs.com.br/colunistas/pedro-ernesto-denardin/noticia/2026/01/o-trator-colorado-atropelou-o-gremio-cmkui5ggh02re013g7bg4hhnr.html)
+- **Inter vence Gre-Nal de virada e Juventude goleia na sequência da 5ª rodada do Gauchão Superbet 2026**: [Link](https://www.fgf.com.br/noticia/Inter-vence-gre-nal-de-virada-e-juventude-goleia-na-sequencia-da-5-rodada-do-gauchao-superbet-2026)
+
+
+### millonarios - junior (N/A, 25/01/2026 21:24 Lima)
+
+- **Liga Betplay: Millonarios cayó en El Campín ante el campeón Junior**: [Link](https://www.espn.com.ar/futbol/colombia/nota/_/id/16218083/liga-betplay-millonarios-cayo-en-el-campin-ante-el-campeon-junior)
+- **Regresaron los suplicios**: [Link](https://onefootball.com/es/noticias/regresaron-los-suplicios-42302348)
+- **¡Hasta ahí le llegó la confianza a Hernán Torres! De Amores nuevamente lesionado**: [Link](https://www.elfutbolero.com.co/primeraa/hasta-ahi-le-llego-la-confianza-a-hernan-torres-de-amores-nuevamente-lesionado-20260125-73371.html)
+
+
+### u. católica - coquimbo unido (N/A, 25/01/2026 21:24 Lima)
+
+- **Diego Sánchez atajó sin guantes en la tanda, fue figura y Coquimbo se coronó Supercampeón**: [Link](https://espndeportes.espn.com/futbol/chile/nota/_/id/16228958/diego-sanchez-atajo-sin-guantes-penales-vs-universidad-catolica-coquimbo-supercopa)
+- **Coquimbo Unido y la UC definen al campeón de la Supercopa**: [Link](https://www.espn.com.ar/futbol/chile/nota/_/id/16225749/coquimbo-unido-vs-universidad-catolica-supercopa-equipo-fecha-hora-y-tv-en-vivo)
+- **Coquimbo vs U Católica: penales EN VIVO en la Supercopa de Chile**: [Link](https://www.365scores.com/es/news/coquimbo-vs-u-catolica-penales-supercopa/)
+
+
 ### deportivo - racing de santander (N/A, 25/01/2026 15:30 Lima)
 
 - **Deportivo - Racing, en directo: LaLiga Hypermotion hoy en vivo**: [Link](https://as.com/futbol/segunda/deportivo-racing-en-directo-laliga-hypermotion-hoy-en-vivo-f202601-d/)
@@ -960,73 +1029,5 @@ Sin noticias relacionadas disponibles.
 - **Una mostra racconta la "Roma del Terzo Millennio"**: [Link](https://www.italpress.com/una-mostra-racconta-la-roma-del-terzo-millennio/)
 - **Roma oltre il passato: allo Spazio WeGil arriva "Roma Terzo Millennio"**: [Link](https://www.romaweekend.it/articoli/roma-terzo-millennio/)
 - **Roma può essere una città contemporanea?**: [Link](https://www.domusweb.it/it/arte/2026/01/20/roma-citta-contemporanea-mostre-maxxi-macro.html)
-
-
-### rangers vs (N/A, 22/01/2026 15:34 Lima)
-
-- **Football Bet of the Day: Seventh time lucky for Rangers in Europe on Thursday?**: [Link](https://mrfixitstips.co.uk/football-bet-of-the-day-seventh-time-lucky-for-rangers-in-europe-on-thursday/)
-- **I was first Scot to play in Bulgaria, here's what to expect from Ludogorets**: [Link](https://www.thescottishsun.co.uk/sport/15828713/scottish-player-bulgaria-rangers-europa-ludogorets/)
-- **'We have to give the fans something to be proud of'**: [Link](https://www.bbc.com/sport/articles/cp82z8dp9qno)
-
-
-### dinamo zagreb (N/A, 22/01/2026 15:34 Lima)
-
-- **Inter Milan beat Barcelona to the signature of 18-year-old Croatian defensive gem – Report**: [Link](https://semprebarca.com/inter-milan-beat-barcelona-to-the-signature-of-18-year-old-croatian-defensive-gem-report/)
-- **Barcelona set to miss out on 18-year-old target as Inter Milan make move**: [Link](https://barcauniversal.com/barcelona-set-to-miss-out-on-18-year-old-target-as-inter-milan-make-move/)
-- **Barcelona losing ground on Milan giants in Jakirovic battle**: [Link](https://www.tribalfootball.com/article/soccer-laliga-barcelona-losing-ground-on-milan-giants-in-jakirovic-battle-549c674e-a326-4610-8a31-9cec6de950e3)
-
-
-### celta de vigo (N/A, 22/01/2026 15:34 Lima)
-
-- **Celta - Lille, en directo: Europa League, en vivo hoy**: [Link](https://as.com/futbol/uefa/celta-lille-en-directo-europa-league-en-vivo-hoy-f202601-d/)
-- **Celta de Vigo - Lille en directo: ¡Expulsado Sotelo! | Europa League hoy en vivo**: [Link](https://www.marca.com/futbol/europa-league/celta-lille/2026/01/22/01_0104_20260122_176_429-directo.html)
-- **Apuestas y Pronóstico del Celta Vigo vs Lille 22/01/26**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/2026/enero/pronostico-celta-vigo-vs-lille-22-01-26)
-
-
-### niza vs (N/A, 22/01/2026 15:34 Lima)
-
-- **Europa League: Se enfrentan Nice y Go Ahead Eagles por la fecha 7**: [Link](https://rpp.pe/futbol/ligas-internacionales/europa-league-se-enfrentan-nice-y-go-ahead-eagles-por-la-fecha-7-noticia-1672472)
-
-
-### superintendencia del mercado de valores (N/A, 22/01/2026 15:34 Lima)
-
-- **Bolsa de Valores de Lima: SMV cobrará contribución por invertir, ¿a qué productos afectará? | TU-DINERO**: [Link](https://gestion.pe/tu-dinero/bolsa-de-valores-de-lima-smv-cobrara-contribucion-por-invertir-a-que-productos-afectara-noticia/)
-- **📲 El crecimiento urbano impulsa la adopción de ciudades inteligentes en Perú para mejorar eficiencia, sostenibilidad y calidad de vida.**: [Link](https://www.facebook.com/story.php?story_fbid=1313536064137335&id=100064428623066)
-- **SMV reduce tasas bursátiles y amplía beneficios hasta 2026: revisa cómo impacta en tus inversiones**: [Link](https://www.elperuano.pe/noticia/287640-smv-reduce-tasas-bursatiles-y-amplia-beneficios-hasta-2026-revisa-como-impacta-en-tus-inversiones)
-
-
-### laura pausini (N/A, 22/01/2026 15:34 Lima)
-
-- **Laura Pausini: una vita per costruire una carriera internazionale, "Due vite" per una cover che diventa un processo**: [Link](https://www.allmusicitalia.it/approfondimenti-musica-italiana/w-la-mamma/cover-due-vite-laura-pausini-italia.html)
-- **Quando la cover diventa polemica: Laura Pausini di nuovo al centro delle critiche**: [Link](https://www.banquo.it/musica/2026/01/22/quando-la-cover-diventa-polemica-laura-pausini-di-nuovo-al-centro-delle-critiche)
-- **La Pennicanza, Fiorello apre la settimana con una puntata esplosiva: difesa a spada tratta di Laura Pausini sul caso Mengoni**: [Link](https://corrieredellumbria.it/news/cultura--spettacoli-e-tv/420825/la-pennicanza-fiorello-apre-la-settimana-con-una-puntata-esplosiva-difesa-a-spada-tratta-di-laura-pausini-sul-caso-mengoni.html)
-
-
-### braga - nottingham forest (N/A, 22/01/2026 15:34 Lima)
-
-- **Braga v Nottingham Forest, Rangers v Ludogorets, and more: Europa League – live**: [Link](https://www.theguardian.com/football/live/2026/jan/22/braga-v-nottingham-forest-rangers-v-ludogorets-and-more-europa-league-live)
-- **Best bets: Europa League tips for 22 January 2026**: [Link](https://www.sportinglife.com/football/news/best-bets-europa-league-tips-for-22-january-2026/229911)
-- **Igor Jesus a doubt for Nottingham Forest European tie – who could start up front?**: [Link](https://www.nytimes.com/athletic/6990918/2026/01/22/igor-jesus-injury-forest-braga/)
-
-
-### inter miami (N/A, 22/01/2026 15:34 Lima)
-
-- **Cuándo juegan Alianza Lima vs. Inter Miami por la Noche Blanquiazul: equipo, fecha, hora y TV en vivo**: [Link](https://www.espn.com.pe/futbol/nota/_/id/16202378/alianza-lima-vs-inter-miami-amistoso-noche-blanquiazul-equipo-fecha-hora-y-tv-en-vivo)
-- **Baja confirmada en Inter Miami para enfrentar a Alianza Lima**: [Link](https://www.americatv.com.pe/deportes/futbol-mundial/baja-confirmada-inter-miami-enfrentar-alianza-lima-n452403)
-- **Javier Mascherano opinó sobre Alianza Lima y definió a Pablo Guede**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/javier-mascherano-opino-de-alianza-lima-y-definio-a-pablo-guede-ultimas-noticia/)
-
-
-### uefa europa league (N/A, 22/01/2026 11:41 Lima)
-
-- **Lazetic ahead of Freiburg**: [Link](https://www.maccabi-tlv.co.il/en/2026/01/lazetic-ahead-of-freiburg/)
-- **Freiburg vs Maccabi Tel Aviv LIVE Score Updates in UEFA Europa League Match**: [Link](https://www.vavel.com/en-us/soccer/2026/01/22/1248010-freiburg-vs-maccabi-tel-aviv-live-score-europa-league.html)
-- **Freiburg vs. Maccabi Tel Aviv Europa League preview: Team news and predicted lineups**: [Link](https://onefootball.com/de/news/freiburg-vs-maccabi-tel-aviv-europa-league-preview-team-news-and-predicted-lineups-42274461)
-
-
-### bugonia (N/A, 22/01/2026 11:41 Lima)
-
-- **Emma Stone Just Broke Oscar Nominations Records With Her ‘Bugonia’ Nods**: [Link](https://www.hollywoodreporter.com/movies/movie-news/emma-stone-oscar-nominations-records-1236480529/)
-- **How to Watch Emma Stone’s Oscar-Worthy Performance in ‘Bugonia’**: [Link](https://www.yahoo.com/entertainment/movies/articles/watch-emma-stone-oscar-worthy-143326981.html)
-- **Emma Stone scores 6th Oscar nomination for 'Bugonia.' Could she win?**: [Link](https://www.azcentral.com/story/entertainment/movies/billgoodykoontz/2026/01/22/emma-stone-oscar-nomination-bugonia/88294655007/)
 
 
