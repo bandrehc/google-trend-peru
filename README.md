@@ -1,3 +1,59 @@
+### metropolitano (N/A, 26/01/2026 08:00 Lima)
+
+- **Bus del Metropolitano choca contra puente en estación México: accidente deja varios heridos**: [Link](https://www.infobae.com/peru/2026/01/26/bus-del-metropolitano-choca-contra-puente-en-estacion-mexico-y-deja-varios-heridos/)
+- **Bus del Metropolitano se estrelló contra base de puente en la Estación México**: [Link](https://canaln.pe/actualidad/bus-metropolitano-se-estrello-contra-base-puente-estacion-mexico-n489854)
+- **Bus del Metropolitano choca contra puente en La Victoria y genera intenso tráfico en la Vía Expresa**: [Link](https://larepublica.pe/sociedad/2026/01/26/bus-del-metropolitano-choca-contra-puente-en-la-victoria-y-genera-intenso-trafico-en-la-via-expresa-1981096)
+
+
+### australian open (N/A, 26/01/2026 08:00 Lima)
+
+- **Sinner races through in Melbourne as Djokovic looms into view**: [Link](https://www.rfi.fr/en/sports/20260126-sinner-races-through-in-melbourne-as-djokovic-looms-into-view)
+- **Jannik Sinner’s Opponent Loses Control in Ugly Australian Open Meltdown**: [Link](https://sports.yahoo.com/articles/jannik-sinner-opponent-loses-control-101119913.html)
+- **Tennis, ATP – Australian Open 2026: Sinner sees off Darderi**: [Link](https://www.tennismajors.com/australian-open-news/the-aura-of-infallibility-sinner-outlasts-darderi-in-all-italian-masterclass-842743.html)
+
+
+### precio dolar (N/A, 26/01/2026 08:00 Lima)
+
+- **Precio del dólar en Perú hoy, sábado 24 de enero: cuál es la cotización del día**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-a-cuanto-esta-el-dolar-y-tipo-de-cambio-este-sabado-24-de-enero-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
+- **Así se depreció el valor del dólar: Estos fueron los factores, según el BCRP**: [Link](https://www.infobae.com/peru/2026/01/24/asi-se-deprecio-el-valor-del-dolar-estos-fueron-los-factores-segun-el-bcrp/)
+- **Dólar, cotización HOY en Perú: ¿cuál es el tipo de cambio este lunes 26 de enero de 2026?**: [Link](https://www.expreso.com.pe/economia/dolar-cotizacion-hoy-en-peru-cual-es-el-tipo-de-cambio-este-lunes-26-de-enero-de-2026-sunat-mef-bcrp-ultima-hora-ultimo-minuto-precio-soles-divisa-noticia/1258514/)
+
+
+### ben shelton (N/A, 26/01/2026 08:00 Lima)
+
+- **Australian Open 2026: Maddison Inglis loses to World No.2 Iga Swiatek in fourth round**: [Link](https://sportnation.nz/article/australian-open-2026-maddison-inglis-loses-to-world-no-2-iga-swiatek-fourth-round)
+- **Australian Open: Shelton Rallies Past Ruud in Four Sets to Reach Quarters, Sets Sinner Clash**: [Link](https://en.tennistemple.com/actu/australian-open-shelton-rallies-past-ruu/Zu3f)
+- **Rampant Swiatek meets old foe Rybakina in Australian Open quarters**: [Link](https://www.rfi.fr/en/sports/20260126-rampant-swiatek-ends-inglis-fairytale-at-australian-open)
+
+
+### sorteo la tinka hoy (N/A, 26/01/2026 08:00 Lima)
+
+- **¡Reventó La Tinka! Sorteo del domingo 25 de enero entregó más de S/ 19 millones**: [Link](https://www.infobae.com/peru/2026/01/26/resultados-de-la-tinka-de-este-25-de-enero-todos-los-numeros-ganadores-del-ultimo-sorteo/)
+- **Reventó La Tinka: números ganadores y resultados del Pozo Millonario del domingo 25 de enero**: [Link](https://depor.com/peru/la-tinka-hoy-en-vivo-ver-resultados-del-ultimo-sorteo-domingo-25-de-enero-a-que-hora-se-juegan-donde-ver-numeros-jugada-ganadora-del-pozo-millonario-de-s19505138-intralot-resultado-si-o-si-boliyapa-peru-noticia/)
+- **Hay un nuevo millonario en el Perú: Afortunado se llevó 19 millones y medio de soles de la Tinka**: [Link](https://trome.com/actualidad/revento-la-tinka-afortunado-se-llevo-19-millones-y-medio-de-soles-en-cajamarca-noticia/)
+
+
+### videos (N/A, 26/01/2026 08:00 Lima)
+
+- **Republican senators join calls for fuller investigation into Minneapolis killing**: [Link](https://www.bbc.com/news/live/c3ve67195gyt)
+- **Donald Trump says his administration is reviewing Alex Pretti shooting**: [Link](https://www.theguardian.com/us-news/2026/jan/26/donald-trump-administration-reviewing-alex-pretti-shooting)
+- **Video, witnesses shed new light on moments before agents fatally shot Alex Pretti**: [Link](https://www.cnn.com/2026/01/25/us/alex-pretti-shooting-minneapolis-videos-witnesses-invs)
+
+
+### jannik sinner (N/A, 26/01/2026 08:00 Lima)
+
+- **Sinner, il recupero super agli Australian Open: il medico svela il segreto di Jannik**: [Link](https://www.adnkronos.com/sport/australian-open-medico-fisiatra-sinner-ai-quarti-grazie-a-un-recupero-rapido-vi-spiego-i-segreti_1e9eThXmsfTOBxz05jxAUO)
+- **Darderi: "Jannik ingiocabile per due set, vado via tranquillo"**: [Link](https://www.supertennis.tv/News/Slam/luciano-darderi-dichiarazioni-australian-open-ottavi-sinner)
+- **Tutto il tennis in Diretta**: [Link](https://www.diretta.it/news/tennis-australian-open-wta-singolare-tennis-tracker-in-campo-sinner-darderi-6-1-6-3-1-0-musetti-vince-e-passa-ai-quarti/Uur39aU7/)
+
+
+### grok (N/A, 26/01/2026 08:00 Lima)
+
+- **Elon Musk’s X Faces European Inquiry Over Sexualized A.I. Images**: [Link](https://www.nytimes.com/2026/01/26/business/european-union-x-grok-ai-images-musk.html)
+- **EU launches inquiry into X over sexually explicit images made by Grok AI**: [Link](https://www.theguardian.com/technology/2026/jan/26/eu-launches-inquiry-into-x-over-sexually-explicit-images-made-by-grok-ai)
+- **EU investigates Elon Musk's X over Grok AI sexual deepfakes**: [Link](https://www.bbc.com/news/articles/clye99wg0y8o)
+
+
 ### lorenzo musetti (N/A, 26/01/2026 03:40 Lima)
 
 - **Musetti completes major QF set, earns Djokovic clash at Australian Open**: [Link](https://www.atptour.com/en/news/fritz-musetti-australian-open-2026-monday)
@@ -976,59 +1032,5 @@ Sin noticias relacionadas disponibles.
 - **La cena en un restaurante chino disparó una crisis política para el presidente de Perú. ¿Cuál será su futuro?**: [Link](https://cnnespanol.cnn.com/2026/01/22/latinoamerica/peru-crisis-presidente-jose-jeri-futuro-orix)
 - **Comisión de Fiscalización interrogó a mandatario José Jerí por sus reuniones con empresario chino**: [Link](https://comunicaciones.congreso.gob.pe/noticias/comision-de-fiscalizacion-interrogo-a-mandatario-jose-jeri-por-sus-reuniones-con-empresario-chino/)
 - **La llamada desesperada a Alberto Otárola: José Jerí lo contactó para pedirle ayuda en medio del escándalo del “Chifagate”**: [Link](https://www.infobae.com/peru/2026/01/22/la-llamada-desesperada-a-alberto-otarola-jose-jeri-lo-contacto-para-pedirle-ayuda-en-medio-del-escandalo-del-chifagate/)
-
-
-### potapova (N/A, 22/01/2026 23:49 Lima)
-
-- **Top-ranked Sabalenka and Alcaraz advance on an opening day of records at the Australian Open**: [Link](https://apnews.com/article/australian-open-venus-williams-sabalenka-alcaraz-5ea2949fb303efe36c650ff48823d250)
-- **Emotional Aryna Sabalenka digs deep to reach last 16 at Australian Open**: [Link](https://www.japantimes.co.jp/sports/2026/01/23/tennis/sabalenka-advances-australian-openb/)
-- **Arina Sabalenka vs Anastasia Potapova: another convincing victory for Arina**: [Link](https://www.telecomasia.net/sports-betting/tips/tennis/arina-sabalenka-vs-anastasia-potapova-prediction-for-the-match-on-january-23-2026/)
-
-
-### velez vs (N/A, 22/01/2026 23:49 Lima)
-
-- **Vélez sufrió pero rescató un agónico triunfo ante Instituto gracias a los pibes**: [Link](https://www.tycsports.com/liga-profesional-de-futbol/argentina-torneo-apertura-2026-instituto-vs-velez-fecha-1-id708843.html)
-- **Montero arrancó el 2026 como titular y figura en triunfo de Vélez vs. Instituto**: [Link](https://espndeportes.espn.com/futbol/argentina/nota/_/id/16216552/montero-arranco-el-2026-como-titular-y-figura-en-triunfo-de-velez-vs-instituto)
-- **Tobías Andrada le dio el triunfo a Vélez sobre la hora**: [Link](https://www.espn.com.ar/futbol/argentina/nota/_/id/16216433/video-tobias-andrada-le-dio-el-triunfo-a-velez-sobre-la-hora)
-
-
-### sirena ortiz (N/A, 22/01/2026 23:49 Lima)
-
-- **Gabriel Meneses y Sirena Ortiz se besaron**: [Link](https://www.americatv.com.pe/esto-es-guerra/gabriel-meneses-y-sirena-ortiz-protagonizaron-tierno-beso-noticia-162541)
-
-
-### noche crema (N/A, 22/01/2026 21:08 Lima)
-
-- **Universitario vs U. de Chile: día, hora y canal TV del amistoso por la Noche Crema 2026**: [Link](https://www.infobae.com/peru/deportes/2026/01/21/universitario-vs-u-de-chile-dia-hora-y-canal-tv-del-amistoso-por-la-noche-crema-2026/)
-- **Con show internacional: Universitario confirmó el cronograma de la Noche Crema en el Monumental**: [Link](https://depor.com/futbol-peruano/descentralizado/universitario-confirmo-el-cronograma-de-la-noche-crema-vs-universidad-de-chile-en-el-monumental-noticia/)
-- **Plan de actividades del primer equipo de Universitario de Deportes**: [Link](https://universitario.pe/noticias/pretemporada/plan-de-actividades-del-primer-equipo-de-universitario-de-deportes-6)
-
-
-### fluminense (N/A, 22/01/2026 21:08 Lima)
-
-- **Em negociação com outros clubes, Lelê e Keno desfalcam o Fluminense contra o Nova Iguaçu no Carioca**: [Link](https://oglobo.globo.com/esportes/futebol/fluminense/noticia/2026/01/22/em-negociacao-com-outros-clubes-lele-e-keno-desfalcam-o-fluminense-contra-o-nova-iguacu-no-carioca.ghtml)
-- **📋 Elenco principal: Flu está escalado para tentar se recuperar no Cariocão**: [Link](https://onefootball.com/pt-br/noticias/elenco-principal-flu-esta-escalado-para-tentar-se-recuperar-no-cariocao-42283669)
-- **Esporte 93 – edição 22 de janeiro**: [Link](https://radio93.com.br/noticias/esporte/esporte-93-edicao-22-de-janeiro-3/)
-
-
-### panamá - méxico (N/A, 22/01/2026 21:08 Lima)
-
-- **Panamá vs México: Lo que debes saber y las alineaciones**: [Link](https://www.espn.com.ar/futbol/selecciones/nota/_/id/16205468/panama-vs-mexico-alineaciones-partido-amistoso-2026-fechas-horarios)
-- **TUDN EN VIVO, México vs. Panamá EN VIVO: mira gratis TV Azteca y Canal 5 (Televisa)**: [Link](https://depor.com/mexico/seleccion-mexicana/tudn-en-vivo-mexico-vs-panama-en-directo-donde-ver-tv-azteca-7-futbol-libre-tv-canal-5-rpc-tvmax-por-amistoso-video-noticia/)
-- **Amistoso internacional: Panamá se enfrentará ante México en un amistoso**: [Link](https://rpp.pe/futbol/ligas-internacionales/amistoso-internacional-panama-se-enfrentara-ante-mexico-en-un-amistoso-noticia-1672521)
-
-
-### banfield vs (N/A, 22/01/2026 21:08 Lima)
-
-- **Mauro Méndez anotó el primer gol del Torneo Apertura**: [Link](https://www.espn.com.ar/futbol/argentina/nota/_/id/16215810/video-banfield-vs-huracan-mauro-mendez-primer-gol-torneo-apertura)
-- **Banfield y Huracán le dan continuidad a la primera fecha del Torneo Apertura**: [Link](https://www.infobae.com/deportes/2026/01/22/el-torneo-apertura-2026-arrancara-con-cinco-partidos-la-agenda-completa-del-jueves/)
-- **Qué canal pasa Banfield vs Huracán hoy: dónde ver el partido gratis y en vivo de la Liga Profesional**: [Link](https://www.365scores.com/es/news/banfield-vs-huracan-donde-ver-gratis/)
-
-
-### aperture harry styles (N/A, 22/01/2026 21:08 Lima)
-
-- **Harry Styles Shares New Song "Aperture": Listen**: [Link](https://stereogum.com/2486352/harry-styles-aperture/music)
-- **Harry Styles ends hiatus with the new album Kiss All The Time. Disco, Occasionally. A return fans have waited years for**: [Link](https://panthernow.com/2026/01/22/harry-styles-ends-hiatus-with-the-new-album-kiss-all-the-time-disco-occasionally-a-return-fans-have-waited-years-for/)
-- **Harry Styles to appear on John Mayer’s SiriusXM show tomorrow**: [Link](https://tribune.com.pk/story/2588544/harry-styles-to-appear-on-john-mayers-siriusxm-show-tomorrow)
 
 
