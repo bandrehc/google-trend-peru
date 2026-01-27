@@ -1,3 +1,10 @@
+### bulls - lakers (N/A, 27/01/2026 03:39 Lima)
+
+- **BULLS POSTGAME: Coby White and Bulls OUTCLASSED by Luka Doncic, Lakers | CHGO Bulls Podcast**: [Link](https://bvmsports.com/2026/01/26/bulls-postgame-coby-white-and-bulls-outclassed-by-luka-doncic-lakers-chgo-bulls-podcast/)
+- **"You have to be willing to live with the stuff that he …**: [Link](https://www.hoopshype.com/story/sports/nba/rumors/2026/01/26/you-have-to-be-willing-to-live-with-the-stuff-that-he/88373078007/)
+- **Nikola Vucevic News: Double-doubles in defeat**: [Link](https://www.rotowire.com/basketball/headlines/nikola-vucevic-news-double-doubles-in-defeat-515900)
+
+
 ### zverev (N/A, 26/01/2026 23:51 Lima)
 
 - **Zverev on facing Tien: 'I didn't expect him to beat Medvedev that easily'**: [Link](https://en.tennistemple.com/actu/zverev-on-facing-tien-i-didnt-expect-him/ilG8)
@@ -1027,12 +1034,5 @@ Sin noticias relacionadas disponibles.
 - **Alex Honnold’s Free Solo on Taipei 101: ‘Skyscraper Live’ Producers on Safety Precautions and How Netflix Would Handle a Worst-Case Scenario**: [Link](https://variety.com/2026/tv/news/alex-honnold-skyscraper-netflix-what-if-he-falls-1236638942/)
 - **The Hardest Part of Alex Honnold’s Live Taipei 101 Climb Isn’t What You’d Think**: [Link](https://www.netflix.com/tudum/articles/alex-honnold-hardest-part-taipei-101-climb)
 - **Meet Sanni McCandless, the climber married to Alex Honnold**: [Link](https://sports.yahoo.com/articles/meet-sanni-mccandless-climber-married-173927608.html)
-
-
-### ufc (N/A, 23/01/2026 21:04 Lima)
-
-- **UFC 324: Weigh-in Results — Weight Miss, Hospitalization, and Fight Cancellation**: [Link](https://sportaran.com/en/post/ufc-324-itogi-i-rezultaty-vzveshivaniya-sryv-vesa-gospitalizaciya-i-otmena-boya/)
-- **Gaethje Believes He Will Retire from MMA by 2027**: [Link](https://www.telecomasia.net/news/mma/gaethje-believes-he-will-retire-from-mma-by-2027/)
-- **‘I’m a little bit under the skin’: Paddy Pimblett says Justin Gaethje is ‘jittery’ ahead of UFC 324**: [Link](https://www.mmafighting.com/ufc/467572/im-a-little-bit-under-the-skin-paddy-pimblett-says-justin-gaethje-is-jittery-ahead-of-ufc-324)
 
 
