@@ -1,3 +1,45 @@
+### sorteo la tinka hoy (N/A, 27/01/2026 08:03 Lima)
+
+- **Resultados de La Tinka del domingo 25 de enero**: [Link](https://www.americatv.com.pe/americlub/tinka-revento-pozo-millonario-domingo-25-enero-noticia-162563)
+- **Ganador de La Tinka del 25 de enero: la jugada que le hizo llevarse más de 19 millones de soles**: [Link](https://larepublica.pe/sociedad/2026/01/25/ganador-de-la-tinka-del-25-de-enero-la-jugada-que-le-hizo-llevarse-mas-de-19-millones-de-soles-mdga-1128075)
+- **Reventó La Tinka: números ganadores y resultados del Pozo Millonario del domingo 25 de enero**: [Link](https://depor.com/peru/la-tinka-hoy-en-vivo-ver-resultados-del-ultimo-sorteo-domingo-25-de-enero-a-que-hora-se-juegan-donde-ver-numeros-jugada-ganadora-del-pozo-millonario-de-s19505138-intralot-resultado-si-o-si-boliyapa-peru-noticia/)
+
+
+### australian open (N/A, 27/01/2026 08:03 Lima)
+
+- **Djokovic Advances Unexpectedly as Rival Implodes in Demon’s Slow Demolition**: [Link](https://www.filmogaz.com/119286)
+- **The spectacular sportsmanship gesture Alcaraz had with De Miñaur**: [Link](https://www.puntodebreak.com/en/2026/01/27/the-spectacular-sportsmanship-gesture-alcaraz-had-with-minaur)
+- **Australian Open LIVE: Updates from the first quarter-finals**: [Link](https://www.flashscore.com/news/tennis-australian-open-atp-singles-australian-open-live-gauff-dumped-out-alcaraz-takes-first-set-against-de-minaur/pWWYbK7l/)
+
+
+### carlos alcaraz (N/A, 27/01/2026 08:03 Lima)
+
+- **Resumen y resultado del Alcaraz - De Miñaur de cuartos de final del Open de Australia**: [Link](https://as.com/tenis/open_australia/alcaraz-de-minaur-en-directo-cuartos-de-final-del-open-de-australia-hoy-en-vivo-f202601-d/)
+- **Alcaraz rompe el muro de las semifinales en Australia**: [Link](https://www.atptour.com/es/news/abierto-australia-2026-cf-alcaraz-de-minaur)
+- **Así está el cuadro de las semifinales del Open de Australia: el camino de Alcaraz hasta la final**: [Link](https://www.marca.com/tenis/open-australia/2026/01/27/asi-cuadro-semifinales-open-australia-camino-alcaraz-final.html)
+
+
+### coco gauff (N/A, 27/01/2026 08:03 Lima)
+
+- **Australian Open Betting Tips: Top Tennis Matches for January 27**: [Link](https://www.filmogaz.com/119202)
+- **Svitolina hopes Gauff upset brings 'a little light' to Ukraine**: [Link](https://www.rfi.fr/en/sports/20260127-svitolina-stuns-gauff-in-59-minutes-to-sail-into-australian-open-semis)
+- **Tim Henman slams ‘shocking’ Coco Gauff performance as she crashes out of the Australian Open**: [Link](https://tennishead.net/tim-henman-slams-shocking-coco-gauff-performance-as-she-crashes-out-of-the-australian-open/)
+
+
+### sonia oquendo (N/A, 27/01/2026 08:03 Lima)
+
+- **Sonia Oquendo reveló que fue una pesadilla trabajar en la obra ‘Los Monógolos de la Vagina’: “Sufrí maltrato y depresión”**: [Link](https://www.infobae.com/peru/2026/01/27/sonia-oquendo-revelo-que-fue-una-pesadilla-trabajar-en-la-obra-los-monogolos-de-la-vagina-sufri-maltrato-y-depresion/)
+- **Connie Chaparro defiende a su esposo Sergio Galliani por acusaciones de maltrato: “Eso se llama difamar”**: [Link](https://larepublica.pe/espectaculos/2026/01/27/connie-chaparro-defiende-a-sergio-galliani-tras-polemica-por-acusaciones-de-maltrato-eso-se-llama-difamar-mdga-2238003)
+- **Sonia Oquendo denunció que habría sido maltratada por Sergio Galliani en su última obra: "Sentía que estaba en una cárcel"**: [Link](https://willax.pe/entretenimiento/sonia-oquendo-denuncia-maltrato-sergio-galliani-obra-teatro-willax)
+
+
+### alexander zverev (N/A, 27/01/2026 08:03 Lima)
+
+- **Zverev plays 'two games at once' as diabetes clock ticks under Australian Open run**: [Link](https://www.reuters.com/sports/tennis/zverev-plays-two-games-once-diabetes-clock-ticks-under-australian-open-run-2026-01-26/)
+- **Tennis-Zverev crushes Cerundolo to reach Australian Open quarter-finals**: [Link](https://whtc.com/2026/01/25/tennis-zverev-crushes-cerundolo-to-reach-australian-open-quarter-finals/)
+- **Alexander Zverev shares his honest opinion about on-court coaching at the Australian Open**: [Link](https://tennishead.net/alexander-zverev-shares-his-honest-opinion-about-on-court-coaching-at-the-australian-open/)
+
+
 ### bulls - lakers (N/A, 27/01/2026 03:39 Lima)
 
 - **BULLS POSTGAME: Coby White and Bulls OUTCLASSED by Luka Doncic, Lakers | CHGO Bulls Podcast**: [Link](https://bvmsports.com/2026/01/26/bulls-postgame-coby-white-and-bulls-outclassed-by-luka-doncic-lakers-chgo-bulls-podcast/)
@@ -992,47 +1034,5 @@ Sin noticias relacionadas disponibles.
 - **The battle for Warner Bros is only getting fiercer**: [Link](https://www.economist.com/business/2026/01/22/the-battle-for-warner-bros-is-only-getting-fiercer)
 - **Paramount is betting European regulators won't approve WBD-Netflix. Here's how it could play out**: [Link](https://www.cnbc.com/2026/01/22/paramount-wbd-netflix-european-regulators.html)
 - **What to know about Netflix’s landmark acquisition of Warner Bros.**: [Link](https://finance.yahoo.com/news/know-netflix-landmark-acquisition-warner-203127005.html)
-
-
-### sinner (N/A, 23/01/2026 23:38 Lima)
-
-- **Will an experience with Federer help Spizzirri against Sinner at Australian Open?**: [Link](https://www.atptour.com/en/news/spizzirri-australian-open-2026-feature)
-- **What to know about Eliot Spizzirri, U.S. tennis player who stunned Jannik Sinner in Australian Open first set**: [Link](https://www.sportingnews.com/us/tennis/news/what-know-about-eliot-spizzirri-us-tennis-player-stunned-jannik-sinner-australian-open-first-set/44d138760777225e11a74460)
-- **ATP Australian Open Best Bets Including Sinner vs Spizzirri**: [Link](https://lastwordonsports.com/tennis/2026/01/23/atp-australian-open-best-bets-including-sinner-vs-spizzirri/)
-
-
-### betano (N/A, 23/01/2026 21:04 Lima)
-
-- **Play Jango Casino Sign Up Bonus January 2026: 100% Welcome Bonus & 77 Free Spins**: [Link](https://bookies.com/uk/news/play-jango-casino-sign-up-bonus-100-welcome-bonus-77-free-spins-23-january-2026)
-- **Betrino Casino Promo Code January 2026 - 100% Welcome Bonus Up To £50 & 20 Free Spins**: [Link](https://bookies.com/uk/news/betrino-casino-welcome-bonus-promo-code-23-january-2026)
-- **The Best Betano Sister Sites in the UK**: [Link](https://www.racingpost.com/online-casino/articles/betano-sister-sites/)
-
-
-### jannik sinner (N/A, 23/01/2026 21:04 Lima)
-
-- **Sinner, non solo il record dei 18 ace: così il servizio è diventato un'arma letale**: [Link](https://www.gazzetta.it/Tennis/atp/slam/australian-open/23-01-2026/sinner-come-il-servizio-e-diventato-un-arma-letale.shtml)
-- **Sinner-Spizzirri, terzo turno degli Australian Open in diretta: Jannik cerca il pass per gli ottavi**: [Link](https://www.corriere.it/sport/tennis/diretta-live/26_gennaio_24/sinner-spizzirri-australian-open-diretta-risultato.shtml)
-- **Eliot Spizzirri, chi è l'avversario di Sinner agli Australian Open**: [Link](https://www.adnkronos.com/sport/eliot-spizzirri-chi-e-avversario-sinner-australian-open-2026-oggi_263GxCNpnxmUyCbQloTE7S)
-
-
-### junin (N/A, 23/01/2026 21:04 Lima)
-
-- **Clima en Junín hoy: cuál es el pronóstico del tiempo para el 23 de enero de 2026**: [Link](https://www.lanacion.com.ar/clima/buenos-aires/junin/clima-en-junin-hoy-cual-es-el-pronostico-del-tiempo-para-el-23-de-enero-de-2026-nid22012026/)
-- **Clima en Pergamino hoy: cuál es el pronóstico del tiempo para el 18 de enero de 2026**: [Link](https://www.lanacion.com.ar/clima/buenos-aires/pergamino/clima-en-pergamino-hoy-cual-es-el-pronostico-del-tiempo-para-el-18-de-enero-de-2026-nid17012026/)
-- **Clima hoy en Pergamino, Buenos Aires: el pronóstico del tiempo para este viernes 23 enero de 2026**: [Link](https://www.clarin.com/informacion-general/clima-hoy-pergamino-buenos-aires-pronostico-tiempo-viernes-23-enero-2026_0_01anzOM3px.html)
-
-
-### tolima - alianza (N/A, 23/01/2026 21:04 Lima)
-
-- **Pronóstico Deportes Tolima Alianza FC Valledupar - Primera A Colombia 23/01/26**: [Link](https://www.sportytrader.com/es/pronosticos/deportes-tolima-alianza-fc-valledupar-320528/)
-- **Más de 350 policías garantizarán la seguridad en el juego de hoy entre Tolima Vs Alianza Petrolera**: [Link](https://ondasdeibague.com/noticias/principales/60-noticia-del-dia/65644-mas-de-350-policias-garantizaran-la-seguridad-en-el-juego-de-hoy-entre-tolima-vs-alianza-petrolera)
-- **Posibles alineaciones de Deportes Tolima vs Alianza por la Liga BetPlay Dimayor 2026-I**: [Link](https://www.clarosports.com/colombia/liga-bet-play/posibles-alineaciones-de-deportes-tolima-vs-alianza-por-la-liga-betplay-dimayor-2026-i/)
-
-
-### alex honnold (N/A, 23/01/2026 21:04 Lima)
-
-- **Alex Honnold’s Free Solo on Taipei 101: ‘Skyscraper Live’ Producers on Safety Precautions and How Netflix Would Handle a Worst-Case Scenario**: [Link](https://variety.com/2026/tv/news/alex-honnold-skyscraper-netflix-what-if-he-falls-1236638942/)
-- **The Hardest Part of Alex Honnold’s Live Taipei 101 Climb Isn’t What You’d Think**: [Link](https://www.netflix.com/tudum/articles/alex-honnold-hardest-part-taipei-101-climb)
-- **Meet Sanni McCandless, the climber married to Alex Honnold**: [Link](https://sports.yahoo.com/articles/meet-sanni-mccandless-climber-married-173927608.html)
 
 
