@@ -1,3 +1,73 @@
+### sabalenka (N/A, 26/01/2026 21:21 Lima)
+
+- **Live: Aus Open to enact 'extreme heat' rules as Sabalenka kicks off quarters**: [Link](https://www.abc.net.au/news/2026-01-27/australian-open-2026-live-alex-de-minaur-alcaraz-sabalenka-gauff/106272422)
+- **HIGHLIGHTS-Tennis-Australian Open day 10**: [Link](https://www.straitstimes.com/sport/tennis/highlights-tennis-australian-open-day-10)
+- **Tests for Gauff & Zverev in Australian Open quarter-finals as Alcaraz faces last home hope**: [Link](https://www.flashscore.com/news/tennis-australian-open-atp-singles-tests-for-gauff-zverev-in-australian-open-quarter-finals-as-alcaraz-faces-last-home-hope/f9EtblGO/)
+
+
+### lakers - bulls (N/A, 26/01/2026 21:21 Lima)
+
+- **Jake LaRavia will play for the Lakers tonight in …**: [Link](https://www.hoopshype.com/story/sports/nba/rumors/2026/01/26/jake-laravia-will-play-for-the-lakers-tonight-in/88365032007/)
+- **3 Keys: Chicago Bulls Hoping to Build on NBA's Longest Active Win Streak vs. Lakers**: [Link](https://www.si.com/nba/bulls/onsi/news/3-keys-chicago-bulls-hoping-to-build-on-nba-s-longest-active-lakers)
+- **Jake LaRavia (quad) questionable Monday**: [Link](https://www.fantasypros.com/nba/news/567464/jake-laravia-quad-questionable-monday.php)
+
+
+### rosangela espinoza (N/A, 26/01/2026 21:21 Lima)
+
+- **Rosángela Espinoza y su reacción al ver a José Jerí**: [Link](https://www.americatv.com.pe/mas-espectaculos/rosangela-se-emociono-al-ver-jose-jeri-palacio-mi-casa-noticia-162561)
+- **Rosángela Espinoza se emociona al reconocer al presidente José Jerí durante sesión de fotos en el Centro de Lima**: [Link](https://www.infobae.com/peru/2026/01/25/rosangela-espinoza-se-emociona-al-reconocer-al-presidente-jose-jeri-durante-sesion-de-fotos-en-el-centro-de-lima/)
+- **Rosángela Espinoza FASCINADA tras tener encuentro INESPERADO con José Jerí: "Las coincidencias"**: [Link](https://www.exitosanoticias.pe/espectaculos/rosangela-espinoza-fascinada-tras-tener-encuentro-inesperado-jose-jeri-las-coincidencias-n167334)
+
+
+### iva jovic (N/A, 26/01/2026 21:21 Lima)
+
+- **America's new teen tennis sensation Iva Jovic, 18, wades into Trump debate with 'peace' plea to her home country**: [Link](https://www.dailymail.co.uk/sport/tennis/article-15496455/iva-jovic-tennis-trump-debate-peace.html)
+- **Where to watch Aryna Sabalenka vs. Iva Jovic today: Australian Open free stream**: [Link](https://www.syracuse.com/tv/2026/01/where-to-watch-aryna-sabalenka-vs-iva-jovic-today-australian-open-free-stream.html)
+- **Amanda Anisimova shares what she's already noticed about Iva Jovic's tennis after seeing her in Melbourne**: [Link](https://tennishead.net/amanda-anisimova-shares-what-shes-already-noticed-about-iva-jovics-tennis-after-seeing-her-in-melbourne/)
+
+
+### elecciones (N/A, 26/01/2026 21:21 Lima)
+
+- **Miembro de mesa 2026: la multa que pagarás si no te presentas el 12 de abril**: [Link](https://rpp.pe/politica/elecciones/miembro-de-mesa-2026-la-multa-que-pagaras-si-no-te-presentas-el-12-de-abril-noticia-1672791)
+- **Elecciones 2026: Estas son las fechas claves para conocer si eres miembro de mesa y tu local de votación**: [Link](https://www.infobae.com/peru/2026/01/24/elecciones-2026-estas-son-las-fechas-claves-para-conocer-si-eres-miembro-de-mesa-y-tu-local-de-votacion/)
+- **Elecciones 2026: sorteo público de miembros de mesa será este 29 de enero**: [Link](https://elperuano.pe/noticia/287929-elecciones-2026-sorteo-publico-de-miembros-de-mesa-sera-este-29-de-enero)
+
+
+### hawks - pacers (N/A, 26/01/2026 21:21 Lima)
+
+- **Dyson goes off as epic play stuns; Aussie’s surging club makes another statement — NBA Wrap**: [Link](https://www.foxsports.com.au/basketball/nba/nba-2026-dyson-daniels-johnny-furphy-josh-green-indiana-pacers-v-atlanta-hawks-philadelphia-76ers-v-charlotte-hornets-scores-results-highlights-latest-news/news-story/0c9d81b658cc994480c2244fa1b579c2)
+- **Hawks' CJ McCollum: Strikes for team-high 23 in win**: [Link](https://www.cbssports.com/fantasy/basketball/news/hawks-cj-mccollum-strikes-for-team-high-23-in-win/)
+- **NBA Games Today: Is There a Basketball Game on TV Tonight? Complete Monday Schedule**: [Link](https://www.profootballnetwork.com/nba/nba-games-today-complete-monday-schedule-26-january/)
+
+
+### copa america futsal 2026 (N/A, 26/01/2026 21:21 Lima)
+
+- **Perú goleó a Ecuador en la CONMEBOL Copa América Futsal 2026™**: [Link](https://copaamerica.com/es/novedades/cronica-peru-ecuador-copa-america-futsal-2026)
+- **Selección peruana de futsal juega esta tarde ante Ecuador por la Copa América**: [Link](https://ovacion.pe/noticias/seleccion-peruana/seleccion-peruana-futsal-juega-esta-tarde-ante-ecuador-copa-america)
+- **Perú vs Ecuador EN VIVO, 26 de enero: hora y canal Copa América de Futsal**: [Link](https://www.deportesrcn.com/otros-deportes/peru-vs-ecuador-en-vivo-26-de-enero-hora-y-canal-copa-america-de-futsal-144727)
+
+
+### 76ers - hornets (N/A, 26/01/2026 21:21 Lima)
+
+- **76ers vs. Hornets odds, prediction, spread, time: 2026 NBA picks for Monday, January 26 from proven model**: [Link](https://www.cbssports.com/nba/news/76ers-hornets-odds-prediction-spread-line-time-2026-nba-picks-monday-january-26/)
+- **76ers Hornets Basketball**: [Link](https://lufkindailynews.com/anpa/sports/76ers-hornets-basketball/image_205c017c-b7be-51b4-8459-b431a31022a0.html)
+- **Philadelphia 76ers vs Charlotte Hornets injury report: Who's playing, injured and questionable players, h**: [Link](https://timesofindia.indiatimes.com/sports/nba/top-stories/philadelphia-76ers-vs-charlotte-hornets-injury-report-whos-playing-injured-and-questionable-players-head-to-head-records-team-stats-and-more-january-26-2026/articleshow/127567496.cms)
+
+
+### marc-andré ter stegen (N/A, 26/01/2026 21:21 Lima)
+
+- **Agreement with Girona for the loan of Marc ter Stegen**: [Link](https://www.fcbarcelona.com/en/news/4437263/agreement-with-girona-for-the-loan-of-marc-ter-stegen)
+- **The real reason Barcelona allowed their captain to leave on loan easily – report**: [Link](https://barcauniversal.com/the-real-reason-barcelona-allowed-their-captain-to-leave-on-loan-easily-report/)
+- **Eric Garcia Joins Barcelona's Leadership Group**: [Link](https://www.ysscores.com/en/news/13898778/Eric-Garcia-Joins-Barcelona's-Leadership-Group)
+
+
+### norwich vs (N/A, 26/01/2026 21:21 Lima)
+
+- **Norwich City 2-1 Coventry City: Ali Ahmed completes second-half comeback for hosts**: [Link](https://www.bbc.com/sport/football/live/cjw110v8qp5t)
+- **Norwich City 2-1 Coventry (Jan 26, 2026) Game Analysis**: [Link](https://www.espn.com/soccer/report/_/gameId/744936)
+- **Philippe Clement wants more from Norwich City after Coventry City win**: [Link](https://www.bbc.co.uk/sport/football/articles/cn7j8760pvpo)
+
+
 ### porto vs (N/A, 26/01/2026 15:33 Lima)
 
 - **Porto host Gil Vicente needing a win to keep their lead at the top**: [Link](https://onefootball.com/de/news/porto-host-gil-vicente-needing-a-win-to-keep-their-lead-at-the-top-42304039)
@@ -964,73 +1034,5 @@ Sin noticias relacionadas disponibles.
 - **Boston River eliminó a Peñarol y jugará la final de la Copa de la Liga AUF**: [Link](https://www.espn.com.ar/futbol/uruguay/nota/_/id/16217169/penarol-vs-boston-river-semifinal-copa-liga-auf-equipo-fecha-hora-tv-en-vivo)
 - **Cuándo juegan Peñarol vs. Boston River por la Copa de la Liga AUF: equipo, fecha, hora y TV en vivo**: [Link](https://espndeportes.espn.com/futbol/uruguay/nota/_/id/16217169/penarol-vs-boston-river-semifinal-copa-liga-auf-equipo-fecha-hora-tv-en-vivo)
 - **Peñarol vs Boston River hoy: Resultado EN VIVO, minuto a minuto y goles de la Copa de la Liga**: [Link](https://www.365scores.com/es/news/penarol-vs-boston-river-resultado-vivo/)
-
-
-### hamburgo vs (N/A, 23/01/2026 15:32 Lima)
-
-- **Dónde ver St Pauli vs Hamburgo en vivo, canal de televisión y hora de inicio del derbi de la Bundesliga**: [Link](https://www.ucvradio.pe/mas-actualidad/donde-ver-st-pauli-vs-hamburgo-en-vivo-canal-de-television-y-hora-de-inicio-del-derbi-de-la-bundesliga/110786/)
-
-
-### inter vs (N/A, 23/01/2026 15:32 Lima)
-
-- **Cuándo juegan Inter vs. Pisa por la Serie A 2025/26: equipo, fecha, hora y TV en vivo**: [Link](https://www.espn.com.pe/futbol/italia/nota/_/id/16209507/inter-vs-pisa-fecha-22-serie-a-equipo-fecha-hora-y-tv-en-vivo)
-- **Alineación oficial – Inter de Milán vs Pisa: Francisco Pio Esposito y Petar Sucic comienzan**: [Link](https://www.elpueblo.pe/deportes/alineacion-oficial-inter-de-milan-vs-pisa-francisco-pio-esposito-y-petar-sucic-comienzan/225385/)
-- **Serie A: Inter marcha como líder y busca llevarse los 3 puntos para mantenerse en la cima**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-inter-marcha-como-lider-y-busca-llevarse-los-3-puntos-para-mantenerse-en-la-cima-noticia-1672604)
-
-
-### inter (N/A, 23/01/2026 15:32 Lima)
-
-- **Noche Blanquiazul 2026: la drástica decisión de la productora tras hechos recientes en Alianza Lima**: [Link](https://rpp.pe/futbol/descentralizado/alianza-lima-productora-de-noche-blanquiazul-anuncio-drastica-decision-tras-hechos-recientes-inter-miami-noticia-1672681)
-- **¡Comunicado oficial! El repentino cambio para el Alianza Lima vs. Inter Miami por la Noche Blanquiazul 2026**: [Link](https://depor.com/futbol-peruano/descentralizado/alianza-lima-vs-inter-miami-productora-anuncia-cambio-de-horario-para-la-noche-blanquiazul-2026-con-lionel-messi-noticia/)
-- **“El partido se juega”, la posición de la productora, cómo altera la llegada de Messi y los cambios en Matute para ir a la Noche Blanquiazul ante Inter Miami**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/alianza-lima-el-partido-se-juega-la-posicion-de-la-productora-como-altera-la-llegada-de-lionel-messi-y-los-cambios-en-matute-para-ir-a-la-noche-blanquiazul-ante-inter-miami-carlos-zambrano-sergio-pena-miguel-trauco-tlcnota-noticia/)
-
-
-### johanna san miguel (N/A, 23/01/2026 15:32 Lima)
-
-- **¿Mathías Brivio vuelve a EEG? Johanna se emocionó**: [Link](https://www.americatv.com.pe/mas-espectaculos/mathias-brivio-vuelve-eeg-johanna-san-miguel-se-emociono-noticia-162456)
-- **‘Esto es Guerra’ vuelve a América TV sin Renzo Schuller ni Peter Fajardo: Fecha de estreno y todo lo que se sabe**: [Link](https://www.infobae.com/peru/2026/01/20/esto-es-guerra-vuelve-a-america-tv-sin-renzo-schuller-ni-peter-fajardo-fecha-de-estreno-y-mas-detalles/)
-- **“Hay una jugada”: Johanna San Miguel sobre la renuncia de Renzo Schuller a ‘Esto es guerra’**: [Link](https://elcomercio.pe/tvmas/farandula/johanna-san-miguel-sobre-la-renuncia-de-renzo-schuller-a-esto-es-guerra-hay-una-jugada-ultimas-noticia/)
-
-
-### psg vs (N/A, 23/01/2026 15:32 Lima)
-
-- **PSG: Ibrahim Mbaye starts against Auxerre**: [Link](https://foot-africa.com/en/news/psg-ibrahim-mbaye-starts-against-auxerre-1055696/)
-- **🚨 Kvara, Ramos, Barcola... PSG’s starting XI to face Auxerre**: [Link](https://sports.yahoo.com/articles/kvara-ramos-barcola-psg-starting-181000485.html)
-- **PSG XI vs Auxerre unveiled**: [Link](https://tribuna.com/en/news/2026-01-23-psg-xi-vs-auxerre-unveiled/)
-
-
-### gonzalo bueno (N/A, 23/01/2026 15:32 Lima)
-
-- **Avanza firme: Gonzalo Bueno venció a Guido Justo y está en cuartos de final del Challenger de Itajaí (VIDEO)**: [Link](https://rpp.pe/tenis/mas-tenis/gonzalo-bueno-vs-guido-justo-en-vivo-a-que-hora-juegan-y-donde-ver-octavos-de-final-challenger-itajai-2026-via-atp-tour-link-gratis-partidos-de-hoy-noticia-1672541)
-- **Gonzalo Bueno volvió al triunfo y avanzó con autoridad en el Challenger de Itajaí**: [Link](https://ovacion.pe/noticias/tenis/gonzalo-bueno-volvio-al-triunfo-avanzo-autoridad-challenger-itajai)
-- **Suertes distintas tuvieron tenistas peruanos Gonzalo Bueno y «Juanpi» Varillas en Challenger de Bras**: [Link](https://www.apnoticias.pe/peru/diario-uno/suertes-distintas-tuvieron-tenistas-peruanos-gonzalo-bueno-y-juanpi-varillas-en-challenger-de-brasil-1485257)
-
-
-### levante - elche c. f. (N/A, 23/01/2026 15:32 Lima)
-
-- **Apuestas y Pronóstico del Levante vs Elche 23/01/26**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2026/enero/pronostico-levante-vs-elche-23-01-26)
-- **LaLiga EA Sports: Levante y Elche se encuentran en la fecha 21**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-levante-y-elche-se-encuentran-en-la-fecha-21-noticia-1672608)
-- **¿No quería a Lucas Cepeda? La frase del DT de Elche que dejó a todos mudos: “Pretendíamos hacer menos cosas…”**: [Link](https://bolavip.com/cl/internacional/no-queria-a-lucas-cepeda-la-frase-del-dt-de-elche-que-dejo-a-todos-mudos-pretendiamos-hacer-menos-cosas)
-
-
-### inter vs pisa (N/A, 23/01/2026 15:32 Lima)
-
-- **Friday’s football tips: Back most goals to come after the break as Inter face stubborn Pisa**: [Link](https://mrfixitstips.co.uk/fridays-football-tips-back-most-goals-to-come-after-the-break-as-inter-face-stubborn-pisa/)
-- **Impressive Record For Argentina Megastar Against Serie A Minnows As Inter Milan Host Pisa At San Siro**: [Link](https://sempreinter.com/2026/01/23/inter-milan-pisa-lautaro-top-form-small-clubs/)
-- **Italy Soccer Serie A**: [Link](https://lufkindailynews.com/anpa/sports/italy-soccer-serie-a/image_d98ca434-e587-56df-83f1-e23660a45372.html)
-
-
-### laura huarcayo (N/A, 23/01/2026 15:32 Lima)
-
-- **Detalles del reencuentro de Laura Huarcayo y La Carlota**: [Link](https://www.americatv.com.pe/noticias/espectaculos/detras-camaras-reencuentro-laura-huarcayo-y-carlota-n515068)
-- **Salió de la congeladora: Laura Huarcayo fue presentada como conductora de 'Mande quien mande'**: [Link](https://peru21.pe/espectaculos/salio-de-la-congeladora-laura-huarcayo-fue-presentada-como-conductora-de-mande-quien-mande/)
-- **Laura Huarcayo regresa a la televisión y Erick Elera se suma como nuevo conductor de “MQM”**: [Link](https://diariocorreo.pe/espectaculos/laura-huarcayo-regresa-a-la-television-y-erick-elera-se-suma-como-nuevo-conductor-de-mande-quien-mande-noticia/)
-
-
-### inter - pisa (N/A, 23/01/2026 15:32 Lima)
-
-- **Inter, Chivu: "A Luis Henrique si può rimproverare una sola cosa. Spero mi passi questo mal di schiena..."**: [Link](https://www.calciomercato.com/liste/inter-chivu-a-luis-henrique-si-puo-rimproverare-una-sola-cosa-spero-mi-passi-questo-mal-di-schiena/blt45696a95ba7ecf68)
-- **Calcio Live News: in campo per l'anticipo di A Inter e Pisa (2-2), pareggia Lautaro**: [Link](https://www.diretta.it/news/calcio-live-news-in-campo-per-l-anticipo-di-a-inter-e-pisa-2-2-pareggia-lautaro/YstkshW9/)
-- **Errore di Sommer, gol di Moreo (due volte): Pisa in vantaggio a San Siro**: [Link](https://gianlucadimarzio.com/inter-pisa-moreo-sommer-gol-serie-a-news-23-gennaio-2026/)
 
 
