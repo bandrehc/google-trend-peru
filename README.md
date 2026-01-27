@@ -1,3 +1,31 @@
+### zverev (N/A, 26/01/2026 23:51 Lima)
+
+- **Zverev on facing Tien: 'I didn't expect him to beat Medvedev that easily'**: [Link](https://en.tennistemple.com/actu/zverev-on-facing-tien-i-didnt-expect-him/ilG8)
+- **Live : Australian Open Tennis : Learner Tien vs Alexander Zverev updates**: [Link](https://www.cochraneeagle.ca/classifieds/homes-rentals-and-real-estate/cochrane-open-houses/2087996)
+- **WATCH Zverev vs Tien LIVE STREA.Ms ON Australian Open 26th. JAN. 2026**: [Link](https://www.westernwheel.ca/classifieds/announcements-and-events/anniversaries/2087965)
+
+
+### warriors - timberwolves (N/A, 26/01/2026 23:51 Lima)
+
+- **Stephen Curry, Draymond Green out vs. Timberwolves**: [Link](https://www.nba.com/news/stephen-curry-draymond-green-to-miss-warriors-timberwolves-game-at-minnesota)
+- **A week that clarified the Warriors’ problems — and the fix**: [Link](https://bluemanhoop.com/warriors-have-crystal-clear-fix-address-their-major-problems)
+- **Where to watch Warriors vs. Timberwolves live stream today**: [Link](https://www.masslive.com/tv/2026/01/where-to-watch-warriors-vs-timberwolves-live-stream-today.html)
+
+
+### learner tien (N/A, 26/01/2026 23:51 Lima)
+
+- **Australian Open live: Kyrgios seen at nightclub before latest match, 45C temperature suspends play**: [Link](https://www.espn.com/tennis/story/_/id/47730773/australian-open-2026-live-updates-match-schedule-results-heat-weather-suspension-sabalenka-alcaraz-de-minaur-gauff)
+- **Daily Download: Your rapid recap of Day 8 at AO 2026**: [Link](https://ausopen.com/articles/news/daily-download-your-rapid-recap-day-8-ao-2026)
+- **Australian Open 2026 quarter-finals: Zverev v Tien, Sabalenka through to semis– live**: [Link](https://www.theguardian.com/sport/live/2026/jan/27/australian-open-2026-quarter-finals-zverev-tien-live-updates-tennis)
+
+
+### alexis ortega (N/A, 26/01/2026 23:51 Lima)
+
+- **Muere a los 38 Alexis Ortega, voz en español del Spider-Man de Tom Holland en el UCM**: [Link](https://www.infobae.com/mexico/2026/01/27/muere-a-los-38-alexis-ortega-voz-en-espanol-del-spider-man-de-tom-holland-en-el-ucm/)
+- **Muere Alexis Ortega, actor de doblaje de varias películas de SpiderMan**: [Link](https://www.mediotiempo.com/espectaculos/muere-alexis-ortega-actor-doblaje-peliculas-spiderman)
+- **Fallece Alexis Ortega: Analizando el legado de Spider-Man y Tadashi**: [Link](https://caribepeninsular.mx/fallece-alexis-ortega-analizando-el-legado-de-spider-man-y-tadashi/)
+
+
 ### sabalenka (N/A, 26/01/2026 21:21 Lima)
 
 - **Live: Aus Open to enact 'extreme heat' rules as Sabalenka kicks off quarters**: [Link](https://www.abc.net.au/news/2026-01-27/australian-open-2026-live-alex-de-minaur-alcaraz-sabalenka-gauff/106272422)
@@ -1006,33 +1034,5 @@ Sin noticias relacionadas disponibles.
 - **UFC 324: Weigh-in Results — Weight Miss, Hospitalization, and Fight Cancellation**: [Link](https://sportaran.com/en/post/ufc-324-itogi-i-rezultaty-vzveshivaniya-sryv-vesa-gospitalizaciya-i-otmena-boya/)
 - **Gaethje Believes He Will Retire from MMA by 2027**: [Link](https://www.telecomasia.net/news/mma/gaethje-believes-he-will-retire-from-mma-by-2027/)
 - **‘I’m a little bit under the skin’: Paddy Pimblett says Justin Gaethje is ‘jittery’ ahead of UFC 324**: [Link](https://www.mmafighting.com/ufc/467572/im-a-little-bit-under-the-skin-paddy-pimblett-says-justin-gaethje-is-jittery-ahead-of-ufc-324)
-
-
-### atlantic city (N/A, 23/01/2026 21:04 Lima)
-
-- **USPS changes postmark definition, urges voters to mail ballots early**: [Link](https://spectrumlocalnews.com/us/snplus/news/2026/01/23/usps-postmark-ballot-change)
-- **New US Postal Service rules could have implications for tax filers**: [Link](https://www.pwc.com/us/en/services/tax/library/us-postal-service-rules-could-have-implications-for-tax-filers.html)
-- **Ocean City Council hires attorney for Wonderland issue, keeping the administration out**: [Link](https://pressofatlanticcity.com/news/local/government-politics/article_d5f61ed4-d082-45ad-b512-29f71b167eaf.html)
-
-
-### talleres vs (N/A, 23/01/2026 21:04 Lima)
-
-- **Cuándo juegan Talleres vs. Newell's por el Torneo Apertura: equipo, fecha, hora y TV en vivo**: [Link](https://www.espn.com.ar/futbol/argentina/nota/_/id/16208299/talleres-vs-newells-por-el-torneo-apertura-equipo-fecha-hora-y-tv-en-vivo)
-- **Talleres vs Newells: Resultado EN VIVO, minuto a minuto y goles de la Liga Profesional**: [Link](https://www.365scores.com/es/news/talleres-vs-newells-resultdo-vivo-goles/)
-- **La razón por la que el Colo Ramírez no está en la lista de concentrados de Newell's para jugar con Talleres**: [Link](https://www.lacapital.com.ar/ovacion/la-razon-la-que-el-colo-ramirez-no-esta-la-lista-concentrados-newells-jugar-talleres-n10241422.html)
-
-
-### independiente vs (N/A, 23/01/2026 21:04 Lima)
-
-- **¡Un suspiro! Estudiantes llegó al empate a los 12 segundos ante Independiente**: [Link](https://espndeportes.espn.com/futbol/argentina/nota/_/id/16219962/video-gol-fabricio-perez-independiente-vs-estudiantes-por-el-torneo-apertura-2026)
-- **¡Desde el lateral! Independiente ejecutó una jugada preparada para el gol de Cabral vs. Estudiantes**: [Link](https://www.espn.com.ar/futbol/argentina/nota/_/id/16219892/video-gol-luciano-cabral-lateral-independiente-vs-estudiantes-por-el-torneo-apertura-2026)
-- **Independiente empata con el campeón Estudiantes en el inicio del Torneo Apertura: Santiago Montiel fue expulsado**: [Link](https://www.infobae.com/deportes/2026/01/23/en-avellaneda-independiente-arrancara-el-torneo-apertura-contra-el-campeon-estudiantes-de-la-plata-hora-tv-y-formaciones/)
-
-
-### peñarol (N/A, 23/01/2026 21:04 Lima)
-
-- **Boston River eliminó a Peñarol y jugará la final de la Copa de la Liga AUF**: [Link](https://www.espn.com.ar/futbol/uruguay/nota/_/id/16217169/penarol-vs-boston-river-semifinal-copa-liga-auf-equipo-fecha-hora-tv-en-vivo)
-- **Cuándo juegan Peñarol vs. Boston River por la Copa de la Liga AUF: equipo, fecha, hora y TV en vivo**: [Link](https://espndeportes.espn.com/futbol/uruguay/nota/_/id/16217169/penarol-vs-boston-river-semifinal-copa-liga-auf-equipo-fecha-hora-tv-en-vivo)
-- **Peñarol vs Boston River hoy: Resultado EN VIVO, minuto a minuto y goles de la Copa de la Liga**: [Link](https://www.365scores.com/es/news/penarol-vs-boston-river-resultado-vivo/)
 
 
