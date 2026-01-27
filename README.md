@@ -1,3 +1,10 @@
+### flavia lopez (N/A, 27/01/2026 11:36 Lima)
+
+- **EEG: Desafío 14: Conoce a los competidores de la temporada**: [Link](https://www.americatv.com.pe/videos/esto-es-guerra/eeg-desafio-14-ellos-son-competidores-nueva-temporada-noticia-162586)
+- **‘Esto es Guerra 2026′: Flavia López, Emilio Jaime y más entre los 14 competidores presentados**: [Link](https://trome.com/espectaculos/tv/esto-es-guerra-2026-flavia-lopez-emilio-jaime-y-mas-entre-los-14-competidores-presentados-foto-farandula-noticia/)
+- **Katia Palma vuelve a 'Esto es Guerra' 2026 para conducir junto a Mathías Brivio la nueva temporada**: [Link](https://larepublica.pe/espectaculos/2026/01/26/katia-palma-vuelve-a-esto-es-guerra-2026-para-conducir-junto-a-mathias-brivio-la-nueva-temporada-620802)
+
+
 ### sorteo la tinka hoy (N/A, 27/01/2026 08:03 Lima)
 
 - **Resultados de La Tinka del domingo 25 de enero**: [Link](https://www.americatv.com.pe/americlub/tinka-revento-pozo-millonario-domingo-25-enero-noticia-162563)
@@ -1027,12 +1034,5 @@ Sin noticias relacionadas disponibles.
 - **When the Pacers Met the Thunder: A Clash of Two Basketball Philosophies**: [Link](https://vocal.media/unbalanced/when-the-pacers-met-the-thunder-a-clash-of-two-basketball-philosophies)
 - **Thunder's Shai Gilgeous-Alexander: Drops 47 points in loss**: [Link](https://www.cbssports.com/fantasy/basketball/news/thunders-shai-gilgeous-alexander-drops-47-points-in-loss/)
 - **Halftime Rewind: Pacers 58, Thunder 53**: [Link](https://www.nba.com/pacers/news/rewind-pacers-thunder-260123)
-
-
-### paramount (N/A, 23/01/2026 23:38 Lima)
-
-- **The battle for Warner Bros is only getting fiercer**: [Link](https://www.economist.com/business/2026/01/22/the-battle-for-warner-bros-is-only-getting-fiercer)
-- **Paramount is betting European regulators won't approve WBD-Netflix. Here's how it could play out**: [Link](https://www.cnbc.com/2026/01/22/paramount-wbd-netflix-european-regulators.html)
-- **What to know about Netflix’s landmark acquisition of Warner Bros.**: [Link](https://finance.yahoo.com/news/know-netflix-landmark-acquisition-warner-203127005.html)
 
 
