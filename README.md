@@ -1,3 +1,73 @@
+### fiorentina (N/A, 27/01/2026 15:29 Lima)
+
+- **Tutto il calcio in Diretta**: [Link](https://www.diretta.it/news/calcio-live-news-in-campo-fiorentina-como-1-1-gol-di-sergi-roberto/O23xObq1/)
+- **Ludi: “Il nostro obiettivo è chiaro, alzare l’asticella ogni giorno”. Su Nico Paz…**: [Link](https://www.alfredopedulla.com/ludi-il-nostro-obiettivo-e-chiaro-alzare-lasticella-ogni-giorno-su-nico-paz/)
+- **Coppa Italia: 7' | Gol di Piccoli (Fiorentina-Como 1-0) Video**: [Link](https://mediasetinfinity.mediaset.it/video/coppaitalia20252026/7--gol-di-piccoli-fiorentina-como-1-0_F313474302032C02)
+
+
+### hoffenheim vs (N/A, 27/01/2026 15:29 Lima)
+
+- **Werder’s Winless Streak and 4 Essential Facts Before Hoffenheim Match**: [Link](https://www.filmogaz.com/119930)
+- **Great football, poor support: Bundesliga fans hit new low in Bremen**: [Link](https://onefootball.com/en/news/great-football-poor-support-bundesliga-fans-hit-new-low-in-bremen-42311667)
+- **Werder Bremen vs. Hoffenheim: Betting odds, prediction, pick**: [Link](https://www.usatoday.com/story/sports/soccer/2026/01/27/werder-bremen-vs-hoffenheim-betting-odds-prediction-pick/88371214007/)
+
+
+### leipzig (N/A, 27/01/2026 15:29 Lima)
+
+- **Reims' Abwehrtalent Kone im Visier Leipzigs**: [Link](https://www.kicker.de/reims-abwehrtalent-kone-im-visier-leipzigs-4000000071849/transfermeldung)
+- **Bericht: Leipzig schnappt Leverkusen den Wunschspieler weg**: [Link](https://www.90min.de/rb-leipzig-schnappt-leverkusen-den-wunschspieler-weg)
+- **RB Leipzig steht kurz vor Transfer von Abdoul Kone von Stade Reims**: [Link](https://sport.sky.de/fussball/artikel/einigung-erzielt-rb-leipzig-steht-kurz-vor-transfer-von-abdoul-kone-von-stade-reims/13499570/34089)
+
+
+### fiorentina - como (N/A, 27/01/2026 15:29 Lima)
+
+- **Cuándo juegan Fiorentina vs. Como por la Copa Italia: equipo, fecha, hora y TV en vivo**: [Link](https://www.espn.com.ar/futbol/italia/nota/_/id/16233010/fiorentina-vs-como-por-la-copa-italia-equipo-fecha-hora-y-tv-en-vivo)
+- **Fiorentina vs. Como hoy, por los cuartos de final de la Copa Italia: todo lo que tenés que saber**: [Link](https://www.directvsports.com/futbol/fiorentina-vs.-como-hoy-por-los-cuartos-de-final-de-la-copa-italia-todo-lo-que-tenes-que-saber-20260127-0006.html)
+- **Fiorentina – Como Pronóstico y Apuestas | Copa Italia 27/01/2026**: [Link](https://www.apuestas-deportivas.es/pronostico/fiorentina-vs-como-pronostico-copa-italia-27-01-2026/)
+
+
+### miembro de mesa 2026 (N/A, 27/01/2026 15:29 Lima)
+
+- **Elecciones 2026: Estas son las fechas claves para conocer si eres miembro de mesa y tu local de votación**: [Link](https://www.infobae.com/peru/2026/01/24/elecciones-2026-estas-son-las-fechas-claves-para-conocer-si-eres-miembro-de-mesa-y-tu-local-de-votacion/)
+- **Este 29 de enero, la ONPE realizará el sorteo público de miembros de mesa para las elecciones generales 2026**: [Link](https://canaln.pe/actualidad/onpe-sorteara-este-29-enero-miembros-mesa-elecciones-2026-n489516)
+- **Elecciones 2026: ¿en qué casos puedo excusarme de ser miembro de mesa?**: [Link](https://rpp.pe/politica/elecciones/elecciones-2026-en-que-casos-puedo-excusarme-de-ser-miembro-de-mesa-noticia-1673065)
+
+
+### lugar de votación onpe 2026 (N/A, 27/01/2026 15:29 Lima)
+
+- **Elige tu local de votación: ONPE inicia envío de correos con el local de votación asignado**: [Link](https://rpp.pe/politica/elecciones/elige-tu-local-de-votacion-onpe-inicia-envio-de-correos-con-el-local-de-votacion-asignado-noticia-1673077)
+- **Elecciones 2026: ONPE ya está enviando correos con local de votación asignado**: [Link](https://andina.pe/agencia/noticia-elecciones-2026-onpe-ya-esta-enviando-correos-local-votacion-asignado-1060632.aspx)
+- **ONPE notifica locales de votación mediante correo electrónico**: [Link](https://www.cronicaviva.com.pe/onpe-notifica-locales-de-votacion-mediante-correo-electronico/)
+
+
+### laura huarcayo (N/A, 27/01/2026 15:29 Lima)
+
+- **Laura Huarcayo en shock por ¿nuevo conductor de MQM?**: [Link](https://www.americatv.com.pe/mande-quien-mande/nino-alfredito-nuevo-conductor-mande-quien-mande-noticia-162571)
+- **Laura Huarcayo: Su regreso a la TV, disfruta su soltería, su tipo de hombre, la infidelidad y más**: [Link](https://trome.com/espectaculos/tv/laura-huarcayo-su-regreso-a-la-tv-disfruta-su-solteria-su-tipo-de-hombre-la-infidelidad-y-mas-mande-quien-mande-entrevista-video-farandula-noticia/)
+- **Erick Elera se suma a la conducción del programa 'MQM' junto a Laura Huarcayo y 'La Carlota'**: [Link](https://rpp.pe/famosos/farandula/erick-elera-se-une-a-conduccion-de-programa-mande-quien-mande-con-laura-huarcayo-y-carlos-vilchez-la-carlota-noticia-1672518)
+
+
+### st. pauli - rb leipzig (N/A, 27/01/2026 15:29 Lima)
+
+- **Bundesliga im Liveticker: Zwei Nachholspiele – St. Pauli früh im Pfostenglück, Werder gegen Hoffenheim**: [Link](https://www.welt.de/sport/fussball/bundesliga/article6978d0a9fe9fcdf90e7cb57b/bundesliga-im-liveticker-zwei-nachholspiele-st-pauli-frueh-im-pfostenglueck-werder-gegen-hoffenheim.html)
+- **Hallo Leipzig: So startet Dienstag, der 27. Januar 2026**: [Link](https://www.l-iz.de/der-tag/2026/01/hallo-leipzig-so-startet-dienstag-der-27-januar-2026-645428)
+- **Nach „Kopfschmerz“-Derby: Mit Mut und höchster Intensität gegen Leipzig**: [Link](https://www.fcstpauli.com/news/vorbericht-nachholspiel-leipzig-2526)
+
+
+### werder bremen - hoffenheim (N/A, 27/01/2026 15:29 Lima)
+
+- **Liveticker | Werder Bremen - TSG Hoffenheim 0:1 | 16. Spieltag | Bundesliga 2025/26**: [Link](https://www.kicker.at/bremen-gegen-hoffenheim-2026-bundesliga-5050889/ticker)
+- **Fußball hui, Support pfui: Buli-Fans sorgen für Negativwert in Bremen**: [Link](https://onefootball.com/de/news/fussball-hui-support-pfui-buli-fans-sorgen-fuer-negativwert-in-bremen-42311662)
+- **Gegen Hoffenheim: Vier Veränderungen in der Startelf**: [Link](https://www.werder.de/news/maenner/2025-2026/aufstellung-hoffenheim-27012026)
+
+
+### temperatura lima (N/A, 27/01/2026 15:29 Lima)
+
+- **Lima registró la temperatura más alta del verano 2026: llegó a 32.6°C**: [Link](https://andina.pe/agencia/noticia-lima-registro-temperatura-mas-alta-del-verano-2026-llego-a-326%C2%B0c-1060887.aspx)
+- **El verano golpea fuerte: ola de calor y alta radiación UV continuarán en Lima y toda la costa hasta el 28 de enero**: [Link](https://rpp.pe/lima/actualidad/senamhi-ola-de-calor-y-alta-radiacion-uv-continuaran-en-lima-y-gran-parte-de-la-costa-hasta-el-28-de-enero-noticia-1673164)
+- **¡Ay, qué calor! Carabayllo, SJL, Santa Anita y La Molina tendrán temperaturas de hasta 32 grados**: [Link](https://elperuano.pe/noticia/287985-ay-que-calor-carabayllo-sjl-santa-anita-y-la-molina-tendran-temperaturas-de-hasta-32-grados)
+
+
 ### flavia lopez (N/A, 27/01/2026 11:36 Lima)
 
 - **EEG: Desafío 14: Conoce a los competidores de la temporada**: [Link](https://www.americatv.com.pe/videos/esto-es-guerra/eeg-desafio-14-ellos-son-competidores-nueva-temporada-noticia-162586)
@@ -964,75 +1034,5 @@ Sin noticias relacionadas disponibles.
 - **Novak Djokovic in near-disqualification drama as star quits Aus Open and career ends after 22 years**: [Link](https://au.news.yahoo.com/novak-djokovic-in-near-disqualification-drama-as-star-quits-aus-open-and-career-ends-after-22-years-104409607.html)
 - **Superfan banned from AO, Sinner ‘can’t walk’**: [Link](https://www.cairnspost.com.au/sport/tennis/australian-open-day-7-live/live-coverage/43fdfdc011b43bb78965c913641d09d9?expand_comments=true)
 - **Djokovic dodges default with wild swing during Open win**: [Link](https://www.canberratimes.com.au/story/9160042/djokovic-dodges-default-with-wild-swing-during-open-win/)
-
-
-### win (N/A, 24/01/2026 07:52 Lima)
-
-- **Tennis star mocks jeering crowd with provocative dance after Australian Open victory**: [Link](https://www.foxnews.com/sports/tennis-star-mocks-jeering-crowd-provocative-dance-after-australian-open-victory)
-- **Australian Open 2026: Yulia Putintseva drowns out 'disrespectful' crowd with rabbit song**: [Link](https://www.bbc.com/sport/tennis/articles/cn0yy72gky8o)
-- **Songs about rabbits help Yulia Putintseva dance through tense Australian Open third round**: [Link](https://www.tennis.com/news/articles/songs-about-rabbits-help-yulia-putintseva-dance-through-tense-australian-open-third-round)
-
-
-### naomi osaka (N/A, 24/01/2026 07:52 Lima)
-
-- **‘My body has changed’: Naomi Osaka pulls out of Australian Open with injury**: [Link](https://www.theguardian.com/sport/2026/jan/24/naomi-osaka-pulls-out-australian-open-injury-tennis)
-- **Australian Open: Djokovic in control, injured Osaka pulls out - listen & follow**: [Link](https://www.bbc.com/sport/tennis/live/ce8gr70jy12t?page=4)
-- **Australian Open 2026: Naomi Osaka pulls out with abdominal injury**: [Link](https://www.olympics.com/en/news/australian-open-2026-naomi-osaka-pulls-out-with-abdominal-injury)
-
-
-### novak djokovic (N/A, 24/01/2026 07:52 Lima)
-
-- **Novak Djokovic escaped the heat and doused Dutchman ‌Botic van de Zandschulp at the Australian Open on Saturday**: [Link](https://www.skysports.com/tennis/news/31870/13498267/australian-open-novak-djokovic-records-milestone-400-wins-at-grand-slams-with-third-round-victory-over-botic-van-de-zandschulp-in-melbourne)
-- **Djokovic 'hanging in there' after landmark 400th Slam win**: [Link](https://sports.yahoo.com/articles/djokovic-wins-record-400th-slam-111525395.html)
-- **Novak Djokovic records landmark win as Stan Wawrinka bids farewell to Melbourne**: [Link](https://www.heraldscotland.com/sport/25793629.novak-djokovic-records-record-win-stan-wawrinka-bows/)
-
-
-### stan wawrinka (N/A, 24/01/2026 03:33 Lima)
-
-- **40yo Wawrinka's opponent can 'barely imagine' playing tennis at same age**: [Link](https://www.abc.net.au/news/2026-01-23/australian-open-stan-wawrinka-taylor-fritz-third-round/106261080)
-- **Wawrinka’s Rival Amazed by His Endurance in Tennis at 40**: [Link](https://www.filmogaz.com/113443)
-- **ATP Australian Open Best Bets Including Fritz vs Wawrinka**: [Link](https://lastwordonsports.com/tennis/2026/01/23/atp-australian-open-best-bets-including-fritz-vs-wawrinka/)
-
-
-### ben shelton (N/A, 24/01/2026 03:33 Lima)
-
-- **Ben Shelton vs. Valentin Vacherot: Prediction, How to Watch**: [Link](https://globelynews.com/sports/ben-shelton-vs-valentin-vacherot-prediction-how-to-watch/)
-- **Australian Open Tennis**: [Link](https://lufkindailynews.com/anpa/sports/australian-open-tennis/image_4951160a-b5a8-5c02-8a59-0b395a1e1a29.html)
-- **Australian Open Predictions Today: Tennis Picks & Best Bets for Day 7**: [Link](https://www.pickswise.com/news/australian-open-predictions-today-tennis-picks-best-bets-for-day-7/)
-
-
-### nuggets - bucks (N/A, 24/01/2026 03:33 Lima)
-
-- **Nuggets Seek Sixth Straight Road Win As Bucks Face Pressure At Home**: [Link](https://evrimagaci.org/gpt/nuggets-seek-sixth-straight-road-win-as-bucks-face-pressure-at-home-525216)
-- **Nuggets' Julian Strawther: Paces Denver in win**: [Link](https://www.cbssports.com/fantasy/basketball/news/nuggets-julian-strawther-paces-denver-in-win/)
-- **Game Recap: Nuggets 102, Bucks 100**: [Link](https://www.nba.com/watch/video/game-recap-nuggets-102-bucks-100)
-
-
-### tormenta invernal estados unidos (N/A, 23/01/2026 23:38 Lima)
-
-- **Nueva York declara el estado de emergencia por megatormenta**: [Link](https://www.dw.com/es/nueva-york-declara-el-estado-de-emergencia-por-megatormenta/a-75634408)
-- **Mapa de alertas por tormentas invernales en EE.UU.: cuándo y qué estados amenaza por nevadas y hielo**: [Link](https://cnnespanol.cnn.com/2026/01/23/eeuu/mapa-alertas-tormenta-invernal-cuando-estados-trax)
-- **EE.UU. en alerta por feroz tormenta de nieve**: [Link](https://especial.larepublica.pe/la-republica-sostenible/2026/01/23/eeuu-en-alerta-por-feroz-tormenta-de-nieve-1364843)
-
-
-### lucia mendez (N/A, 23/01/2026 23:38 Lima)
-
-- **Lucía Méndez protagoniza Paloma, su primer drama en formato vertical distribuido por Caracol TV**: [Link](https://www.prensario.net/Lucia-Mendez-protagoniza-emPalomaem-su-primer-drama-en-formato-vertical-distribuido-por-Caracol-TV-51767.note.aspx)
-- **Lucía Méndez se estrena en los dramas verticales con "Paloma"**: [Link](https://www.multimediostv.com/programas/vivalavi/mejores-momentos/lucia-mendez-estrena-dramas-verticales-paloma.html)
-- **Paloma: Lucía Méndez lidera la primera gran serie vertical**: [Link](https://occidente.co/cine-tv/lucia-mendez-protagoniza-paloma-primera-telenovela-vertical-de-una-gran-estrella-internacional/)
-
-
-### sinner vs (N/A, 23/01/2026 23:38 Lima)
-
-- **Keys revels in Melbourne heat as Djokovic steps up history bid**: [Link](https://www.france24.com/en/live-news/20260124-keys-revels-in-melbourne-heat-as-djokovic-steps-up-history-bid)
-- **Sinner's title defence in jeopardy against Spizzirri; Roof closed due to extreme heat**: [Link](https://www.atptour.com/en/news/sinner-spizzirri-australian-open-2026-r3)
-- **Thrilling Action and Surprising Wins at the Australian Open**: [Link](https://www.devdiscourse.com/article/technology/3780977-thrilling-action-and-surprising-wins-at-the-australian-open)
-
-
-### pacers - thunder (N/A, 23/01/2026 23:38 Lima)
-
-- **When the Pacers Met the Thunder: A Clash of Two Basketball Philosophies**: [Link](https://vocal.media/unbalanced/when-the-pacers-met-the-thunder-a-clash-of-two-basketball-philosophies)
-- **Thunder's Shai Gilgeous-Alexander: Drops 47 points in loss**: [Link](https://www.cbssports.com/fantasy/basketball/news/thunders-shai-gilgeous-alexander-drops-47-points-in-loss/)
-- **Halftime Rewind: Pacers 58, Thunder 53**: [Link](https://www.nba.com/pacers/news/rewind-pacers-thunder-260123)
 
 
