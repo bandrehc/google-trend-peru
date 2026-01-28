@@ -1,3 +1,17 @@
+### novak djokovic (N/A, 28/01/2026 03:40 Lima)
+
+- **Australian Open 2026: Novak Djokovic scrapes into semi-finals as Lorenzo Musetti retires injured when two sets up**: [Link](https://www.bbc.com/sport/tennis/articles/c2k922e290jo)
+- **Djokovic's Dramatic Grand Slam Pursuit**: [Link](https://www.devdiscourse.com/article/headlines/3784040-djokovics-dramatic-grand-slam-pursuit)
+- **Djokovic gets lucky to join Pegula, Rybakina in Melbourne semi-finals**: [Link](https://sports.yahoo.com/articles/djokovic-gets-lucky-join-pegula-081744112.html)
+
+
+### connie chaparro (N/A, 28/01/2026 03:40 Lima)
+
+- **Sergio Galliani niega maltrato a actrices de ‘Monólogos de la Vagina’: “Siempre he exigido sacar lo mejor de mis actores”**: [Link](https://www.infobae.com/peru/2026/01/27/sergio-galliani-niega-maltrato-a-actrices-de-monologos-de-la-vagina-siempre-he-exigido-sacar-lo-mejor-de-mis-actores/)
+- **Rodrigo González asegura que Camucha Negrete habría recibido malos tratos de Sergio Galliani en obra teatral**: [Link](https://peru21.pe/espectaculos/rodrigo-gonzalez-asegura-que-camucha-habria-sufrido-malos-tratos-en-obra-teatral-dirigida-por-sergio-galliani/)
+- **Connie Chaparro defiende a su esposo Sergio Galliani por acusaciones de maltrato: “Eso se llama difamar”**: [Link](https://larepublica.pe/espectaculos/2026/01/27/connie-chaparro-defiende-a-sergio-galliani-tras-polemica-por-acusaciones-de-maltrato-eso-se-llama-difamar-mdga-2238003)
+
+
 ### djokovic vs (N/A, 27/01/2026 23:49 Lima)
 
 - **Who Is Lorenzo Musetti’s Girlfriend Veronica Confalonieri? Do They Have Kids?**: [Link](https://www.essentiallysports.com/tennis-news-who-is-lorenzo-musettis-girlfriend-veronica-confalonieri-do-they-have-kids/)
@@ -1019,17 +1033,5 @@
 - **Villarreal vs Real Madrid: Spanish La Liga stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cp8753j20xdt)
 - **LIVE: Villarreal vs Real Madrid – La Liga**: [Link](https://www.aljazeera.com/sports/liveblog/2026/1/24/live-villarreal-vs-real-madrid-la-liga)
 - **Villarreal vs. Real Madrid: Preview, Predictions and Lineups**: [Link](https://www.si.com/soccer/villarreal-vs-real-madrid-preview-predictions-lineups-1-24-26)
-
-
-### monaco fc (N/A, 24/01/2026 15:27 Lima)
-
-- **Alvaro Arbeloa makes his feelings clear on Vinicius Jr after Xabi Alonso tension**: [Link](https://www.liverpool.com/liverpool-fc-news/features/alvaro-arbeloa-vinicius-xabi-alonso-33295902)
-- **Real Madrid Manager Addresses Vinicius Jr.'s Future Amid Saudi Links: 'It’s Not Up To Me'**: [Link](https://www.foxsports.com/stories/soccer/alvaro-arbeloa-admits-hes-powerless-in-real-madrids-contract-talks-with-vinicius-jr-as-saudi-links-emerge-again)
-- **Real's Arbeloa hopes Monaco match to be turning point in the season**: [Link](https://www.msn.com/en-us/sports/soccer/real-s-arbeloa-hopes-monaco-match-to-be-turning-point-in-the-season/vi-AA1UP7fZ)
-
-
-### psv vs (N/A, 24/01/2026 15:27 Lima)
-
-Sin noticias relacionadas disponibles.
 
 
