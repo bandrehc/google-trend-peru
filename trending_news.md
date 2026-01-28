@@ -1,3 +1,37 @@
+### barcelona vs copenhagen (N/A, 28/01/2026 11:46 Lima)
+
+- **Reason why Joao Cancelo cannot play for Barcelona in Champions League clash vs Copenhagen**: [Link](https://barcauniversal.com/reason-why-joao-cancelo-cannot-play-for-barcelona-in-champions-league-clash-vs-copenhagen/)
+- **UEFA Champions League / FC Barcelona - Copenhagen: head-to-head history**: [Link](https://foot-africa.com/en/news/uefa-champions-league-fc-barcelona-copenhagen-head-to-head-history-1061573/)
+- **Why aren’t Frenkie de Jong and Pedri playing for Barcelona vs. Copenhagen in the UEFA Champions League clash?**: [Link](https://worldsoccertalk.com/news/why-arent-frenkie-de-jong-and-pedri-playing-for-barcelona-vs-copenhagen-in-the-uefa-champions-league-clash/)
+
+
+### partidos de champions (N/A, 28/01/2026 11:46 Lima)
+
+- **Así quedará la Champions según la IA**: [Link](https://as.com/futbol/champions/asi-quedara-la-champions-segun-la-ia-f202601-n/)
+- **¿Qué se define en la última fecha de la Champions League? Clasificados, eliminados y los que se juegan la clasificación**: [Link](https://cnnespanol.cnn.com/2026/01/27/deportes/champions-league-jornada-8-clasificados-eliminados-orix)
+- **Maldini desvela los equipos que cree que van a meterse en el Top-8 de la Champions League y deja alguna sorpresa...**: [Link](https://www.mundodeportivo.com/futbol/champions-league/20260128/1002609962/maldini-desvela-equipos-cree-meterse-top-8-deja-sorpresa.html)
+
+
+### khaby lame (N/A, 28/01/2026 11:46 Lima)
+
+- **Estrella de TikTok Khaby Lame vende su empresa principal en un acuerdo valorado en 975 millones de dólares**: [Link](https://forbes.pe/negocios/2026-01-27/estrella-de-tiktok-khaby-lame-vende-su-empresa-principal-en-un-acuerdo-valorado-en-975-millones-de-dolares/)
+- **Tiktoker con más seguidores del mundo vende su imagen por 975 millones de dólares**: [Link](https://www.atv.pe/noticia/tiktoker-con-mas-seguidores-del-mundo-vende-su-imagen-por-975-millones-de-dolares/)
+
+
+### suheyn cipriani (N/A, 28/01/2026 11:46 Lima)
+
+- **Suheyn Cipriani hace aclaración sobre relación con Macarius: “No soy su saliente, soy su mujer”**: [Link](https://trome.com/espectaculos/tv/suheyn-cipriani-hace-aclaracion-sobre-relacion-con-macarius-no-soy-su-saliente-soy-su-mujer-noticia/)
+- **Suheyn Cipriani EXPLOTA contra 'haters' por su romance con Macarius: "¿Qué les molesta realmente?"**: [Link](https://www.atv.pe/noticia/suheyn-cipriani-explota-contra-haters-por-su-romance-con-macarius-que-les-molesta-realmente/)
+- **Suheyn Cipriani cuenta cómo inició su historia de amor con streamer Macarius: ''Le quería hacer bromas y no me contestaba''**: [Link](https://larepublica.pe/streamers/2026/01/26/suheyn-cipriani-cuenta-como-inicio-su-historia-de-amor-con-streamer-macarius-le-queria-hacer-bromas-y-no-me-contestaba-atmp-545922)
+
+
+### australian open (N/A, 28/01/2026 11:46 Lima)
+
+- **Australian Open 2026: Iga Swiatek and Jessica Pegula criticise cameras in players' areas at Melbourne Park**: [Link](https://www.bbc.com/sport/tennis/articles/cx2p1172n5lo)
+- **Coco Gauff smashes racket in frustration after 59-minute collapse in Australian Open quarterfinal**: [Link](https://www.cnn.com/2026/01/27/sport/tennis-australian-open-coco-gauff-racket-smash)
+- **Djokovic and his most ferocious protest: "The only thing missing is for them to put cameras in the showers"**: [Link](https://www.puntodebreak.com/en/2026/01/28/djokovic-and-his-most-ferocious-protest-the-only-thing-missing-is-for-them-to-put-cameras-in-the)
+
+
 ### ao open (N/A, 28/01/2026 08:03 Lima)
 
 - **Get the rules lowdown at Australian Open 2026**: [Link](https://ausopen.com/articles/news/get-rules-lowdown-australian-open-2026)
@@ -998,40 +1032,5 @@
 - **Chicó vs América: posibles alineaciones, fecha 2 de Liga BetPlay**: [Link](https://www.espn.com.ar/futbol/colombia/nota/_/id/16219693/chico-vs-america-de-cali-alineaciones-fecha-2-liga-betplay)
 - **Transmisión EN VIVO del Boyacá Chicó vs América de Cali hoy: cómo mirar la Liga por TV o streaming**: [Link](https://www.365scores.com/es/news/transmision-en-vivo-chico-vs-america/)
 - **Pronóstico Boyacá Chicó América de Cali - Primera A Colombia 24/01/26**: [Link](https://www.sportytrader.com/es/pronosticos/boyaca-chico-america-de-cali-320413/)
-
-
-### dragon ball super (N/A, 24/01/2026 21:25 Lima)
-
-- **Dragon Ball Announces New Anime**: [Link](https://comicbook.com/anime/news/dragon-ball-announces-new-anime/)
-- **Dragon Ball Super The Galactic Patrol New Anime Officially Announced, Sequel to Tournament of Power**: [Link](https://animecorner.me/dragon-ball-super-the-galactic-patrol-new-anime-officially-announced-sequel-to-tournament-of-power/)
-- **Dragon Ball Super Unveils New Anime: Galactic Patrol, Post-Tournament Sequel**: [Link](https://www.filmogaz.com/115408)
-
-
-### dragon ball (N/A, 24/01/2026 21:25 Lima)
-
-- **“Dragon Ball Genkidamatsuri”: fecha, hora y dónde ver el evento en el que se conocerá el futuro de la saga**: [Link](https://elcomercio.pe/respuestas/farandula/dragon-ball-genkidamatsuri-fecha-hora-y-donde-ver-el-evento-en-el-que-se-conocera-el-futuro-de-la-saga-tdpe-noticia/)
-- **El nuevo juego de Dragon Ball está a punto de ser presentado, en un evento donde también se dará a conocer el futuro de la franquicia**: [Link](https://www.hobbyconsolas.com/videojuegos/nuevo-juego-dragon-ball-esta-punto-ser-presentado-un-evento-donde-tambien-se-dara-conocer-futuro-franquicia_6925247_0.html)
-- **Confirman regreso del anime Dragon Ball Super: The Galactic Patrol: adaptaran el arco de Moro**: [Link](https://www.diariodemorelos.com/noticias/confirman-regreso-del-anime-dragon-ball-super-galactic-patrol-adaptaran-el-arco-de-moro)
-
-
-### aryna sabalenka (N/A, 24/01/2026 21:25 Lima)
-
-- **Australian Open LIVE: Andreeva in late action after Zverev and De Minaur progress**: [Link](https://www.flashscore.com/news/tennis-australian-open-atp-singles-australian-open-live-andreeva-in-late-action-after-zverev-and-de-minaur-progress/2PvHTa5m/)
-- **Alcaraz, Sabalenka Target Quarter-Finals at Australian Open**: [Link](https://www.deccanchronicle.com/sports/tennis/alcaraz-sabalenka-target-quarter-finals-at-australian-open-1932593)
-- **Australian Open 2026: De Minaur, Zverev, Tiafoe and Andreeva win, Raducanu out – as it happened**: [Link](https://www.theguardian.com/sport/live/2026/jan/21/australian-open-2026-de-minaur-andreeva-tiafoe-in-action-on-day-four-live?filterKeyEvents=false&page=with%3Ablock-6970b2588f08130e62888fce)
-
-
-### rosario central (N/A, 24/01/2026 21:25 Lima)
-
-- **De penal, Di María abrió el partido entre Rosario Central y Belgrano**: [Link](https://www.espn.com.ar/futbol/argentina/nota/_/id/16224117/video-gol-de-angel-di-maria-de-penal-rosario-central-vs-belgrano-polemica)
-- **Rosario Central vs Belgrano: Resultado EN VIVO, minuto a minuto y goles de la Liga Profesional**: [Link](https://www.365scores.com/es/news/rosario-central-vs-belgrano-resultado/)
-- **En su debut en el Apertura, Central empata sin goles con Belgrano en el Gigante**: [Link](https://www.conclusion.com.ar/deportes/en-su-debut-en-el-apertura-central-empata-sin-goles-con-belgrano-en-el-gigante/01/2026/)
-
-
-### river vs (N/A, 24/01/2026 15:27 Lima)
-
-- **Qué canal pasa Barracas vs River hoy: dónde ver el partido gratis y en vivo de la Liga Profesional**: [Link](https://www.365scores.com/es/news/barracas-vs-river-donde-ver-gratis-vivo/)
-- **ESPN EN VIVO, River vs. Barracas en directo: ver gratis TNT Sports y Disney Plus por internet**: [Link](https://depor.com/futbol-internacional/argentina/espn-en-vivo-river-vs-barracas-hoy-gratis-pelota-libre-tv-tnt-sports-canales-de-tv-online-por-torneo-apertura-2026-video-noticia/)
-- **La figura de River que quedó afuera del banco de suplentes para visitar a Barracas Central**: [Link](https://www.tycsports.com/river-plate/kevin-castano-ausente-river-barracas-central-id709515.html)
 
 
