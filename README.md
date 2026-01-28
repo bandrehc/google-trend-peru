@@ -1,3 +1,59 @@
+### djokovic vs (N/A, 27/01/2026 23:49 Lima)
+
+- **Who Is Lorenzo Musetti’s Girlfriend Veronica Confalonieri? Do They Have Kids?**: [Link](https://www.essentiallysports.com/tennis-news-who-is-lorenzo-musettis-girlfriend-veronica-confalonieri-do-they-have-kids/)
+- **Musetti vs. Djokovic 2026 livestream: Watch Australian Open for free**: [Link](https://mashable.com/article/musetti-djokovic-australian-open-2026-live-stream-for-free)
+- **Jannik Sinner discusses Lorenzo Musetti's chances of beating Novak Djokovic at the Australian Open**: [Link](https://tennishead.net/jannik-sinner-discusses-lorenzo-musettis-chances-of-beating-novak-djokovic-at-the-australian-open/)
+
+
+### kick (N/A, 27/01/2026 23:49 Lima)
+
+- **The Ultimate Guide to Becoming a Kick Partner**: [Link](https://siege.gg/news/the-ultimate-guide-to-becoming-a-kick-partner)
+- **Stock market today: S&P 500 hits fresh record with Fed decision, Big Tech earnings bonanza on deck**: [Link](https://finance.yahoo.com/news/live/stock-market-today-sp-500-hits-fresh-record-with-fed-decision-big-tech-earnings-bonanza-on-deck-210311432.html)
+- **Tech Futures Rise After S&P 500 Hits Highs, Leaders Shine**: [Link](https://www.investors.com/market-trend/stock-market-today/dow-jones-futures-tesla-meta-microsoft-fed-chief-powell/)
+
+
+### djokovic (N/A, 27/01/2026 23:49 Lima)
+
+- **¿Problemas en el Australian Open 2026? Novak Djokovic y Lorenzo Musetti no contarán con sus entrenadores en el box**: [Link](https://www.espn.com.pe/tenis/nota/_/id/16235982/problemas-en-el-australian-open-2026-novak-djokovic-y-lorenzo-musetti-no-contaran-con-sus-entrenadores-en-el-box)
+- **Lorenzo Musetti derrota a Taylor Fritz en el Abierto de Australia**: [Link](https://www.ucvradio.pe/deporte/lorenzo-musetti-derrota-a-taylor-fritz-en-el-abierto-de-australia/113314/)
+- **Hora de inicio de Novak Djokovic vs Lorenzo Musetti y cómo ver los cuartos de final del Abierto de Australia**: [Link](https://www.elpueblo.pe/deportes/hora-de-inicio-de-novak-djokovic-vs-lorenzo-musetti-y-como-ver-los-cuartos-de-final-del-abierto-de-australia/230985/)
+
+
+### amanda anisimova (N/A, 27/01/2026 23:49 Lima)
+
+- **Australian Open quarterfinals: Anisimova or Pegula? Swiatek or Rybakina?**: [Link](https://www.wtatennis.com/news/4440187/australian-open-quarterfinals-anisimova-or-pegula-swiatek-or-rybakina)
+- **Amanda Anisimova Defeats Wang Xinyu, Narrowly Escapes Amanda Anisimova**: [Link](https://defector.com/amanda-anisimova-defeats-wang-xinyu-narrowly-escapes-amanda-anisimova)
+- **Jessica Pegula's Historic Semi-Finals Leap at Australian Open**: [Link](https://www.devdiscourse.com/article/sports-games/3783914-jessica-pegulas-historic-semi-finals-leap-at-australian-open)
+
+
+### newells (N/A, 27/01/2026 23:49 Lima)
+
+- **Cuándo juegan Newell's vs. Independiente por el Torneo Apertura: equipo, fecha, hora y TV en vivo**: [Link](https://www.espn.com.ar/futbol/argentina/nota/_/id/16231337/utils)
+- **Qué canal pasa Newells vs Independiente hoy: dónde ver el partido gratis y en vivo de la Liga Profesional**: [Link](https://www.365scores.com/es/news/newells-vs-independiente-donde-ver-vivo/)
+- **Sobre el final, Michael Hoyos marcó el gol del empate entre Newell`s y Independiente**: [Link](https://www.directvsports.com/futbol/sobre-el-final-michael-hoyos-marco-el-gol-del-empate-entre-newells-y-independiente-20260124-0001.html)
+
+
+### onp pensiones (N/A, 27/01/2026 23:49 Lima)
+
+- **Cronograma del Banco de la Nación en febrero 2026: Fechas de pago de sueldos y pensiones**: [Link](https://www.infobae.com/peru/2026/01/27/cronograma-del-banco-de-la-nacion-en-febrero-2026-fechas-de-pago-de-sueldos-y-pensiones/)
+- **¿Eres pensionista SNP? El incremento se cobra desde el 6 de febrero. Infórmate**: [Link](https://www.elperuano.pe/noticia/287918-eres-pensionista-snp-el-incremento-se-cobra-desde-el-6-de-febrero-informate)
+- **Aumento a pensionistas ONP 2026: conoce aquí el cronograma de pagos de febrero**: [Link](https://andina.pe/agencia/noticia-aumento-a-pensionistas-onp-2026-conoce-aqui-cronograma-pagos-febrero-1057452.aspx)
+
+
+### pgl wallachia season 7 (N/A, 27/01/2026 23:49 Lima)
+
+- **NAVI invited to PGL Wallachia Season 7**: [Link](https://navi.gg/en/publications/d2-navi-invited-to-pgl-wallachia-s7)
+- **PGL Wallachia Season 7 invites revealed**: [Link](https://esportsinsider.com/2026/01/pgl-wallachia-season-7-invited-teams)
+- **NAVI Invited to PGL Wallachia S7, New Mobile Esports Record, Another GTA 6 Delay — News Digest for January 26**: [Link](https://players.com.ua/en/news/navi-invited-to-pgl-wallachia-s7-new-mobile-esports-record-another-gta-6-delay-news-digest-for-january-26/)
+
+
+### rybakina (N/A, 27/01/2026 23:49 Lima)
+
+- **Rybakina pulls away to defeat Swiatek in Australian Open quarterfinals**: [Link](https://www.wtatennis.com/news/4440479/rybakina-pulls-away-to-defeat-swiatek-in-australian-open-quarterfinals)
+- **Novak Djokovic Has Jannik Sinner Carrot As Motivation At Australian Open**: [Link](https://sports.ndtv.com/australian-open-2026/novak-djokovic-has-jannik-sinner-carrot-as-motivation-at-australian-open-10896419)
+- **Iga Świątek and Elena Rybakina’s Australian Open match and the importance of serve**: [Link](https://www.nytimes.com/athletic/7003185/2026/01/27/tennis-australian-open-iga-swiatek-elena-rybakina-result-analysis/)
+
+
 ### medellín - tolima (N/A, 27/01/2026 21:10 Lima)
 
 - **Medellín vs Tolima: posibles alineaciones, fecha 3 de Liga BetPlay**: [Link](https://www.espn.com.ar/futbol/colombia/nota/_/id/16232635/medellin-vs-tolima-alineaciones-fecha-3-liga-betplay)
@@ -975,61 +1031,5 @@
 ### psv vs (N/A, 24/01/2026 15:27 Lima)
 
 Sin noticias relacionadas disponibles.
-
-
-### lecce vs (N/A, 24/01/2026 15:27 Lima)
-
-- **Serie A: Lecce espera frenar su racha negativa y vencer a Lazio**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-lecce-espera-frenar-su-racha-negativa-y-vencer-a-lazio-noticia-1672752)
-- **Valencia vs. Espanyol (24 de Ene., 2026) Resultados en Vivo**: [Link](https://www.espn.com.pe/futbol/partido/_/juegoId/748352)
-- **Serie A: Cero a cero terminó el partido entre Cremonese y Hellas Verona**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-hellas-verona-busca-dejar-el-fondo-de-la-tabla-ante-cremonese-noticia-1672039)
-
-
-### fpv (N/A, 24/01/2026 15:27 Lima)
-
-- **Anduril Awarded $23.9 Million Contract for U.S. Marine Corps Organic Precision Fires-Light Program**: [Link](https://www.anduril.com/news/anduril-awarded-usd23-9-million-contract-for-u-s-marine-corps-organic-precision-fires-light-program)
-- **Inside Anduril’s Bolt-M Kamikaze Drone Program**: [Link](https://vocal.media/theSwamp/inside-anduril-s-bolt-m-kamikaze-drone-program)
-- **Inside Anduril’s Bolt-M Kamikaze Drone Program**: [Link](https://www.twz.com/uncategorized/inside-andurils-bolt-m-kamikaze-drone-program)
-
-
-### marsella - lens (N/A, 24/01/2026 15:27 Lima)
-
-- **Liga de Francia: Lens marcha como líder y busca llevarse los 3 puntos para mantenerse en la cima**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-de-francia-lens-marcha-como-lider-y-busca-llevarse-los-3-puntos-para-mantenerse-en-la-cima-noticia-1672755)
-- **Lens marcha como líder y busca llevarse los 3 puntos para mantenerse en la cima**: [Link](https://zona.palmsbet.pe/deportes/futbol/olympique-de-marsella-vs-lens-previa-horario-y-como-llegan-para-la-fecha-19-de-la-ligue-1/)
-- **Liverpool quedó cerca de meterse a octavos de final de la Champions League**: [Link](https://ovacion.pe/noticias/champions-league/liverpool-quedo-cerca-meterse-octavos-final-champions-league)
-
-
-### lisboa vs (N/A, 24/01/2026 15:27 Lima)
-
-- **Preview: Arouca vs Sporting Lisbon - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/arouca/preview/arouca-vs-sporting-lisbon-prediction-team-news-lineups_590454.html)
-- **Sporting CP vs. FC Arouca Predictions & Tips for January 24, 2026**: [Link](https://www.filmogaz.com/114868)
-- **Arouca vs Sporting Lisbon - prediction, team news, lineups...**: [Link](https://www.rugby-addict.com/en-ie/article/home/arouca-vs-sporting-lisbon-prediction-team-news-lineups/6972acdccf16a79dce03a0b4)
-
-
-### karagümrük - galatasaray (N/A, 24/01/2026 11:31 Lima)
-
-- **CANLI | Süper Lig’de Fatih Karagümrük – Galatasaray maçı! Ne zaman, saat kaçta, hangi kanalda?**: [Link](https://www.sabah.com.tr/spor/futbol/2026/01/24/canli-super-ligde-fatih-karagumruk-galatasaray-maci-ne-zaman-saat-kacta-hangi-kanalda)
-- **Okan Buruk'tan ilk 11'de sürpriz! Yıldız isim yedeklerde**: [Link](https://www.sondakika.com/spor/haber-okan-buruk-tan-ilk-11-de-surpriz-yildiz-isim-19499727/)
-- **CANLI YAYIN | Fatih Karagümrük Galatasaray Maçı**: [Link](https://haberglobal.com/kesfet/canli-yayin-fatih-karagumruk-galatasaray-maci-bein-sports-canli-izle-503962)
-
-
-### bayer (N/A, 24/01/2026 11:31 Lima)
-
-- **Meinung: Pharmaaktien, Hirmer, Klaus Hommels, Heraeus, Bosch, Stanglwirt – das war Freitag, 23.01.2026**: [Link](https://www.manager-magazin.de/ueber-uns/pharmaaktien-hirmer-klaus-hommels-heraeus-bosch-stanglwirt-das-war-freitag-23-01-2026-a-de1e293d-ba73-4611-bd1c-3de988bd988c)
-- **Pharma- und Biotech-Aktien 2026: Bayer und BioNTech geben Gas, Bioxyne vor Durchbruch?**: [Link](https://www.finanznachrichten.de/nachrichten-2026-01/67516273-pharma-und-biotech-aktien-2026-bayer-und-biontech-geben-gas-bioxyne-vor-durchbruch-176.htm)
-- **Pharma-Aktien am Wendepunkt: Bringt 2026 eine Trendwende?**: [Link](https://deutsche-wirtschafts-nachrichten.de/718631)
-
-
-### marc guéhi (N/A, 24/01/2026 11:31 Lima)
-
-- **Reinforcements are on the way for Manchester City but they aren’t back today**: [Link](https://esteemedkompany.com/2026/01/24/reinforcements-are-on-the-way-for-manchester-city-but-they-arent-back-today/)
-- **Playing Champions League would be beyond a dream – Guéhi**: [Link](https://www.mancity.com/citytv/mens/marc-guehi-man-city-signing-interview-63904431)
-- **Guehi in line to make Man City debut against Wolves**: [Link](https://www.beinsports.com/en-us/soccer/premier-league/articles/guehi-in-line-to-make-man-city-debut-against-wolves-2026-01-23)
-
-
-### dni (N/A, 24/01/2026 11:31 Lima)
-
-- **Przedsiębiorcy mają możliwość udziału w szkoleniu z systemu KSeF**: [Link](https://doxa.fm/aktualnosci/region/przedsiebiorcy-maja-mozliwosc-udzialu-w-szkoleniu-z-systemu-ksef/)
-- **Środy z KSeF – KSeF w Pigułce**: [Link](https://samorzad.gov.pl/web/gmina-pokrzywnica/srody-z-ksef--ksef-w-pigulce)
-- **Konfederacja w akcji "Stop KSeF" !**: [Link](https://e-legnickie.pl/gospodarka-i-inwestycje/159-region/53321-konfederacja-w-akcji-stop-ksef)
 
 
