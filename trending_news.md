@@ -1,3 +1,69 @@
+### medellín - tolima (N/A, 27/01/2026 21:10 Lima)
+
+- **Medellín vs Tolima: posibles alineaciones, fecha 3 de Liga BetPlay**: [Link](https://www.espn.com.ar/futbol/colombia/nota/_/id/16232635/medellin-vs-tolima-alineaciones-fecha-3-liga-betplay)
+- **Pronóstico Independiente Medellín Deportes Tolima - Primera A Colombia 27/01/26**: [Link](https://www.sportytrader.com/es/pronosticos/independiente-medellin-deportes-tolima-322124/)
+- **Términos y Condiciones Boletería DIM vs Tolima / Liga 2026-1 / Fecha 3**: [Link](https://dimoficial.com/terminos-y-condiciones-boleteria-dim-vs-tolima-liga-2026-1-fecha-3/)
+
+
+### iga świątek (N/A, 27/01/2026 21:10 Lima)
+
+- **Poszło w świat. Oto jak słynna Niemka powiedziała o Świątek**: [Link](https://sportowefakty.wp.pl/tenis/1231560/poszlo-w-swiat-oto-jak-slynna-niemka-powiedziala-o-swiatek)
+- **Kerber wprost nazwała to, co dzieje się ze Świątek. 'Musi to zablokować' Tenis**: [Link](https://www.sport.pl/tenis/7,64987,32559951,kerber-wprost-nazwala-to-co-dzieje-sie-ze-swiatek-musi-to.html)
+- **Dwa sety z Rybakiną, a potem zaczął się dramat dla Świątek. Nie mogła dokończyć tamtego starcia**: [Link](https://sport.interia.pl/iga-swiatek/news-dwa-sety-z-rybakina-a-potem-zaczal-sie-dramat-dla-swiatek-ni,nId,22543980)
+
+
+### karen dejo (N/A, 27/01/2026 21:10 Lima)
+
+- **Karen Dejo y Melissa Loza regresan a EEG y marcan tendencia con bikinis de crochet y accesorios maxi**: [Link](https://wapa.pe/moda-y-belleza/2026/01/27/karen-dejo-melissa-loza-regresan-eeg-2026-marcan-tendencia-looks-playeros-bikinis-crochet-accesorios-maxi-576072)
+
+
+### fortaleza vs llaneros (N/A, 27/01/2026 21:10 Lima)
+
+- **Fortaleza CEIF vs Llaneros Stats & Insights**: [Link](https://www.betshoot.com/football/19645611-Fortaleza-CEIF-vs-Llaneros-prediction/)
+
+
+### san lorenzo vs (N/A, 27/01/2026 21:10 Lima)
+
+- **Cuándo juegan Gimnasia de Mendoza vs. San Lorenzo por el Torneo Apertura: equipo, fecha, hora y TV en vivo**: [Link](https://espndeportes.espn.com/futbol/argentina/nota/_/id/16230833/gimnasia-de-mendoza-vs-san-lorenzo-torneo-apertura-equipo-fecha-hora-tv-en-vivo)
+- **EN VIVO: Termina el primer tiempo con empate en 0 entre San Lorenzo y Gimnasia (Mendoza)**: [Link](https://www.directvsports.com/futbol/en-vivo-termina-el-primer-tiempo-con-empate-en-0-entre-san-lorenzo-y-gimnasia-mendoza-20260124-0003.html)
+- **Cuello, nuevamente crucial para San Lorenzo: asistencia y figura en la victoria en Mendoza**: [Link](https://www.tycsports.com/san-lorenzo/cuello-nuevamente-crucial-para-san-lorenzo-asistencia-y-figura-en-la-victoria-en-mendoza-id710067.html)
+
+
+### sportivo san lorenzo - cerro (N/A, 27/01/2026 21:10 Lima)
+
+- **Cerro Porteño vs. Sportivo San Lorenzo EN VIVO por TiGO Sports: Hora y canal de TV**: [Link](https://libero.pe/futbol-internacional/2026/01/26/cerro-porteno-vs-sportivo-san-lorenzo-en-vivo-gratis-torneo-apertura-del-futbol-paraguayo-via-tigo-sport-video-vilb-1770392)
+- **El Ciclón tuvo “Santo” aparte y selló triunfazo**: [Link](https://www.cronica.com.py/2026/01/27/el-ciclon-tuvo-santo-aparte-y-sello-triunfazo/)
+- **La cita se traslada a Capiatá**: [Link](https://www.lanacion.com.py/futboledicion-impresa/2026/01/27/la-cita-se-traslada-a-capiata/)
+
+
+### partidos hoy (N/A, 27/01/2026 21:10 Lima)
+
+- **Partidos de hoy EN VIVO, martes 27 de enero: Programación, horarios y dónde ver**: [Link](https://libero.pe/futbol-internacional/2026/01/26/partidos-de-hoy-en-vivo-martes-27-de-enero-2090166)
+- **Partidos de hoy, 27 de enero: Horario y canal EN VIVO**: [Link](https://www.americatv.com.pe/deportes/futbol-mundial/partidos-hoy-27-enero-horarios-y-transmisiones-n452476)
+- **Partidos de hoy - martes 27 de enero del 2026: horarios, canales TV y cómo ver fútbol EN VIVO**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/partidos-de-hoy-martes-27-de-enero-del-2026-resultados-horarios-canales-tv-y-donde-ver-futbol-en-vivo-noticia/)
+
+
+### huracan vs (N/A, 27/01/2026 21:10 Lima)
+
+- **Torneo Apertura: Independiente Rivadavia dio el golpe y le ganó a Huracán en el Ducó**: [Link](https://espndeportes.espn.com/futbol/argentina/nota/_/id/16236867/independiente-rivadavia-dio-el-golpe-y-le-gano-a-huracan-en-el-duco)
+- **La LEPRA APLASTÓ a HURACÁN: jugó mejor y lo dio vuelta con SARTORI y STUDER**: [Link](https://www.mendozapost.com/deportes/huracan-independiente-rivadavia-resultado-fecha-2-liga-profesional/)
+- **De la mano de Studer y Sartori, Independiente Rivadavia remontó a Huracán y suma puntaje ideal**: [Link](https://ciudadano.news/deportes/independiente-rivadavia-remonto-huracan-lider-zona-b-n115131)
+
+
+### dolar peru (N/A, 27/01/2026 21:10 Lima)
+
+- **Precio del dólar hoy: cierre del tipo de cambio del martes 27 de enero de 2026**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-peru-2026-a-cuanto-esta-el-dolar-este-martes-27-de-enero-y-tipo-de-cambio-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
+- **¿Cuál es la cotización del dólar hoy martes 27 de enero del 2026?**: [Link](https://andina.pe/agencia/noticia-cual-es-cotizacion-del-dolar-hoy-martes-27-enero-del-2026-1060832.aspx)
+- **El dólar extiende su descenso y el BCR intensifica su intervención para frenar volatilidad**: [Link](https://peru21.pe/economia/el-dolar-extiende-su-descenso-y-el-bcr-intensifica-su-intervencion-para-frenar-volatilidad/)
+
+
+### cúcuta - bucaramanga (N/A, 27/01/2026 21:10 Lima)
+
+- **Liga Betplay: empate vibrante en el Clásico del Oriente entre Cúcuta y Bucaramanga**: [Link](https://www.espn.com.ar/futbol/colombia/nota/_/id/16230502/liga-betplay-empate-vibrante-en-el-clasico-del-oriente-entre-cucuta-y-bucaramanga)
+- **Vuelve el Clásico del Oriente: historia, rivalidad y el recuerdo del último Cúcuta vs. Bucaramanga**: [Link](https://espndeportes.espn.com/futbol/colombia/nota/_/id/16232806/vuelve-el-clasico-del-oriente-historia-rivalidad-y-el-ultimo-cucuta-vs-bucaramanga)
+- **Qué canal pasa Cúcuta vs Bucaramanga hoy: dónde ver el partido gratis y en vivo de la Liga BetPlay**: [Link](https://www.365scores.com/es/news/canal-tv-cucuta-vs-bucaramanga-gratis/)
+
+
 ### fiorentina (N/A, 27/01/2026 15:29 Lima)
 
 - **Tutto il calcio in Diretta**: [Link](https://www.diretta.it/news/calcio-live-news-in-campo-fiorentina-como-1-1-gol-di-sergi-roberto/O23xObq1/)
@@ -965,74 +1031,5 @@ Sin noticias relacionadas disponibles.
 - **Przedsiębiorcy mają możliwość udziału w szkoleniu z systemu KSeF**: [Link](https://doxa.fm/aktualnosci/region/przedsiebiorcy-maja-mozliwosc-udzialu-w-szkoleniu-z-systemu-ksef/)
 - **Środy z KSeF – KSeF w Pigułce**: [Link](https://samorzad.gov.pl/web/gmina-pokrzywnica/srody-z-ksef--ksef-w-pigulce)
 - **Konfederacja w akcji "Stop KSeF" !**: [Link](https://e-legnickie.pl/gospodarka-i-inwestycje/159-region/53321-konfederacja-w-akcji-stop-ksef)
-
-
-### tottenham (N/A, 24/01/2026 11:31 Lima)
-
-- **📈 Man City star hits historic PL marker with first-half opener vs Wolves**: [Link](https://sports.yahoo.com/articles/man-city-star-hits-historic-152700059.html)
-- **Omar Marmoush scores his first goal of the current Premier League season**: [Link](https://dailysports.net/news/omar-marmoush-scores-his-first-goal-of-the-current-premier-league-season/)
-- **Manchester City x Wolverhampton - Highlights, Summary and Match Report**: [Link](https://www.playmakerstats.com/news/manchester-city-x-wolverhampton-highlights-summary-and-match-report/1035343)
-
-
-### ajax vs (N/A, 24/01/2026 11:31 Lima)
-
-- **Ajax vs Volendam - prediction, team news, lineups...**: [Link](https://www.rugby-addict.com/en-ie/article/home/ajax-vs-volendam-prediction-team-news-lineups/697226d9baa58fc437068ea3)
-- **AFC Ajax Amsterdam vs Volendam Prediction and Betting Tips | January 24th 2026**: [Link](https://www.sportskeeda.com/football/afc-ajax-amsterdam-vs-volendam-prediction-betting-tips-january-24th-2026)
-
-
-### ufc hoy (N/A, 24/01/2026 11:31 Lima)
-
-- **A qué hora empieza UFC 324: horarios y canales para ver pelea de Gaethje vs. Pimblett**: [Link](https://elcomercio.pe/deporte-total/polideportivo/a-que-hora-empieza-ufc-324-hoy-horarios-y-canales-para-ver-pelea-de-gaethje-vs-pimblett-noticia/)
-- **UFC 324: ¿A qué hora inicia, cartelera y dónde ver la pelea Gaethje vs Pimblett por el título interino de peso ligero?**: [Link](https://rpp.pe/lucha/ufc/ufc-324-gaethje-vs-pimblett-en-vivo-fecha-horario-cartelera-y-donde-ver-por-tv-en-usa-y-latam-por-titulo-via-paramount-plus-noticia-1672659)
-- **Justin Gaethje ‘paseará al perro’ con Paddy Pimblett por la falta de respeto de Dustin Poirier**: [Link](https://www.elpueblo.pe/deportes/justin-gaethje-paseara-al-perro-con-paddy-pimblett-por-la-falta-de-respeto-de-dustin-poirier/225245/)
-
-
-### ajax - volendam (N/A, 24/01/2026 11:31 Lima)
-
-- **Live Eredivisie | Ajax leidt dankzij twee goals Baas tegen FC Volendam**: [Link](https://www.nu.nl/voetbal/6383717/live-eredivisie-ajax-leidt-dankzij-twee-goals-baas-tegen-fc-volendam.html)
-- **Opstelling bekend: Bouwman behoudt basisplek ondanks foutjes**: [Link](https://www.ajax1.nl/opstelling-bekend-bouwman-behoudt-basisplek-ondanks-foutjes/)
-- **Opstelling Ajax: Gloukh begint op de bank, wel basisplaats Bounida**: [Link](https://www.vi.nl/nieuws/opstelling-ajax-gloukh-begint-op-de-bank-wel-basisplaats-bounida)
-
-
-### mainz vs (N/A, 24/01/2026 11:31 Lima)
-
-- **Ausgleich für den FSV Mainz 05! Das Spiel des VfL Wolfsburg im AZ/WAZ-Liveticker**: [Link](https://www.waz-online.de/sport/regional/ausgleich-fuer-den-fsv-mainz-05-das-spiel-des-vfl-wolfsburg-im-az-waz-liveticker-AXCPKY7RZNGXJHVIIMMWYYW2K4.html)
-- **Ohne Arnold, nicht ohne Ambitionen: VfL Wolfsburg in Mainz gefordert**: [Link](https://www.wolfs-blog.de/ohne-arnold-nicht-ohne-ambitionen-vfl-wolfsburg-in-mainz-gefordert/)
-- **"Dann helfen dir Resultate"**: [Link](https://www.mainz05.de/news/vorbericht-vfl-wolfsburg-rueckrunde-2526-fischer-dann-helfen-dir-resultate)
-
-
-### bayern (N/A, 24/01/2026 11:31 Lima)
-
-- **Liveticker | Bayern München - FC Augsburg : | 19. Spieltag | Bundesliga 2025/26**: [Link](https://www.kicker.de/bayern-gegen-augsburg-2026-bundesliga-5050912/ticker)
-- **Halbzeit in München: FCA 0:1 hinten, aber nicht chancenlos**: [Link](https://www.daz-augsburg.de/halbzeit-in-muenchen-fca-01-hinten-aber-nicht-chancenlos/)
-- **FC Bayern: Aufstellung da! Manuel Neuer und Joshua Kimmich auf der Bank**: [Link](https://www.bild.de/sport/fussball/fc-bayern-aufstellung-da-manuel-neuer-und-joshua-kimmich-auf-der-bank-6974c293cce444431011daea)
-
-
-### valladolid - albacete (N/A, 24/01/2026 07:52 Lima)
-
-- **Triunfo para la afición**: [Link](https://www.diariodevalladolid.es/deportes/real-valladolid/260123/278958/triunfo-aficion.html)
-- **Real Valladolid - Albacete: a qué hora es, canal y dónde ver hoy en TV el partido de Segunda división**: [Link](https://www.marca.com/futbol/segunda-division/2026/01/22/real-valladolid-albacete-a-que-hora-es-canal-y-donde-ver-hoy-en-tv-el-partido-de-segunda-division.html)
-- **Los héroes de la Copa ponen a prueba la mejora de los de Tevenet**: [Link](https://as.com/futbol/segunda/los-heroes-de-la-copa-ponen-a-prueba-la-mejora-de-los-de-tevenet-f202601-n/)
-
-
-### rayo vallecano - osasuna (N/A, 24/01/2026 07:52 Lima)
-
-- **Rayo Vallecano - Osasuna, en directo: LaLiga EA Sports, en vivo hoy**: [Link](https://as.com/futbol/primera/rayo-vallecano-osasuna-en-directo-laliga-ea-sports-en-vivo-hoy-f202601-d/)
-- **Sigue en directo Tiempo de Juego este sábado desde las 13:00h con la jornada 21ª de Primera**: [Link](https://www.cope.es/programas/tiempo-de-juego/noticias/sigue-directo-juego-sabado-13-00h-jornada-21a-primera-20260124_3293571.html)
-- **Rayo - Osasuna en directo | LaLiga EA Sports en vivo**: [Link](https://www.marca.com/futbol/laliga-ea-sports/rayo-osasuna/2026/01/24/01_0101_20260124_184_450-directo.html)
-
-
-### west ham - sunderland afc (N/A, 24/01/2026 07:52 Lima)
-
-- **Preview: West Ham United vs Sunderland - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/west-ham-united/relegation-battle/preview/west-ham-vs-sunderland-prediction-team-news-lineups_590379.html)
-- **Starting XI: Xhaka Out? Diarra And Talbi Back? Is This Sunderland’s Team To Take On West Ham?**: [Link](https://rokerreport.sbnation.com/match-previews/123143/starting-xi-xhaka-out-diarra-and-talbi-back-is-this-sunderlands-team-to-take-on-west-ham)
-- **Scarles | I hope we're picking up positive momentum**: [Link](https://www.whufc.com/en/news/scarles-or-i-hope-were-picking-up-positive-momentum)
-
-
-### australian open 2026 (N/A, 24/01/2026 07:52 Lima)
-
-- **Novak Djokovic in near-disqualification drama as star quits Aus Open and career ends after 22 years**: [Link](https://au.news.yahoo.com/novak-djokovic-in-near-disqualification-drama-as-star-quits-aus-open-and-career-ends-after-22-years-104409607.html)
-- **Superfan banned from AO, Sinner ‘can’t walk’**: [Link](https://www.cairnspost.com.au/sport/tennis/australian-open-day-7-live/live-coverage/43fdfdc011b43bb78965c913641d09d9?expand_comments=true)
-- **Djokovic dodges default with wild swing during Open win**: [Link](https://www.canberratimes.com.au/story/9160042/djokovic-dodges-default-with-wild-swing-during-open-win/)
 
 
