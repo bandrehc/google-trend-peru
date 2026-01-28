@@ -1,3 +1,73 @@
+### madrid vs (N/A, 28/01/2026 15:38 Lima)
+
+- **Alineación posible del Real Madrid hoy contra el Benfica en Champions League**: [Link](https://as.com/futbol/champions/posible-alineacion-del-real-madrid-contra-el-benfica-en-champions-f202601-n/)
+- **⚪ A qué hora juega y en qué canal ver ahora Real Madrid vs. Benfica EN VIVO hoy por Champions League 2026**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/a-que-hora-juega-y-que-canal-transmite-real-madrid-vs-benfica-en-vivo-hoy-28-de-enero-por-champions-league-2026-canales-tv-nnda-nnrt-noticia/)
+- **Convocatoria del Real Madrid contra el Benfica**: [Link](https://www.realmadrid.com/es-ES/noticias/futbol/primer-equipo/convocatorias/convocatoria-del-real-madrid-contra-el-benfica-27-01-2026)
+
+
+### leverkusen vs (N/A, 28/01/2026 15:38 Lima)
+
+- **Was macht der Torhüter da? Tillman presst Bayer zur Führung | Match-Clip Champions League | Video**: [Link](https://www.kicker.de/was-macht-der-torhueter-da-tillman-presst-bayer-zur-fuehrung-1188474/video)
+- **Kurzpässe vor #B04VIL: Endspiel um Play-off-Einzug – Schwarz-Rot auch im Gästeblock**: [Link](https://www.bayer04.de/de-de/news/champions-league/kurzpaesse-vor-b04vil-endspiel-um-play-off-einzug-schwarz-rot-auch-im-gaesteblock)
+- **Mit "Hurra-Fußball" zum Erfolg? Bayers Woche der Wahrheit**: [Link](https://neunzigplus.de/champions-league/mit-hurra-fussball-zum-erfolg-bayers-woche-der-wahrheit/)
+
+
+### dortmund vs (N/A, 28/01/2026 15:38 Lima)
+
+- **"Wahnsinn, Kehl, für den breiten Kader, du gehörst sowas von entlassen": BVB-Fans entsetzt über mager besetzte Auswechselbank gegen Inter**: [Link](https://tribuna.com/de/blogs/wahnsinn-kehl-fur-den-breiten-kader-du-gehorst-sowas-von-ent/)
+- **Fußball heute live: Dortmund – Inter Mailand Übertragung im TV & Stream**: [Link](https://www.tipico.de/wett-tipps/sportwetten-news/fussball-heute-live-dortmund-inter-mailand-uebertragung-im-tv-stream)
+- **Nach Sabitzer-Ausfall: Nächster Verletzungsschock für BVB**: [Link](https://www.laola1.at/de/red/fussball/champions-league/news/nach-sabitzer-ausfall--naechster-verletzungsschock-fuer-bvb/)
+
+
+### bayer vs (N/A, 28/01/2026 15:38 Lima)
+
+- **Preview: Bayer Leverkusen vs Villarreal - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/bayer-leverkusen/champions-league/preview/b-leverkusen-vs-villarreal-prediction-team-news-lineups_590723.html)
+- **Bayer Leverkusen vs. Villarreal prediction, pick for Wednesday 1/28/26**: [Link](https://dknetwork.draftkings.com/2026/01/27/bayer-leverkusen-vs-villarreal-prediction-pick-for-wednesday-1-28-26/)
+- **Confirmed Lineups: Bayer 04 Leverkusen vs. Villarreal CF**: [Link](https://bulinews.com/confirmed-lineups-bayer-04-leverkusen-villarreal)
+
+
+### manchester city vs. galatasaray (N/A, 28/01/2026 15:38 Lima)
+
+- **Cuándo juegan Manchester City vs. Galatasaray por Champions: equipo, fecha, hora y TV en vivo**: [Link](https://www.espn.com.pe/futbol/champions-league/nota/_/id/16235192/manchester-city-vs-galatasaray-champions-equipo-fecha-hora-y-tv-en-vivo)
+- **Comienzan Haaland, Doku y Ake | 4-2-3-1 Alineación prevista Manchester City vs Galatasaray**: [Link](https://www.elpueblo.pe/deportes/comienzan-haaland-doku-y-ake-4-2-3-1-alineacion-prevista-manchester-city-vs-galatasaray/229959/)
+- **Pronóstico Manchester City - Galatasaray. Champions League | 28/01/2026**: [Link](https://gainblers.com/pe/pronosticos/futbol/europa/champions-league/pronostico-manchester-city-galatasaray-28-01-2026/)
+
+
+### psv vs (N/A, 28/01/2026 15:38 Lima)
+
+- **¿A qué hora juega y qué canal transmite a Luis Díaz en Bayern Múnich vs. PSV EN VIVO hoy 28 de enero por Champions League 2026?**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/a-que-hora-juega-y-que-canal-transmite-a-luis-diaz-en-bayern-munich-vs-psv-en-vivo-hoy-28-de-enero-por-champions-league-2026-nnda-nnrt-noticia-2/)
+- **Champions League: Se enfrentan PSV y Bayern Múnich por la fecha 8**: [Link](https://rpp.pe/futbol/ligas-internacionales/champions-league-se-enfrentan-psv-y-bayern-munich-por-la-fecha-8-noticia-1673213)
+- **PSV vs Bayern Múnich en vivo por la Champions League**: [Link](https://www.futbolperuano.com/en-vivo/champions-league-psv-eindhoven-vs-bayern-munich-561494)
+
+
+### champion (N/A, 28/01/2026 15:38 Lima)
+
+- **Patrick Reed: I would consider quitting LIV for PGA Tour return**: [Link](https://www.telegraph.co.uk/golf/2026/01/19/patrick-reed-consider-quitting-liv-for-pga-tour-return/)
+- **Reed's PGA decision shows LIV's competitive model is flawed: McGinley**: [Link](https://www.golfchannel.com/watch/pga-tour/patrick-reed-is-good-for-pga-competition-mcginley)
+- **Report: Former LIV Golfers Apply For PGA Tour Reinstatement After Patrick Reed Confirmation**: [Link](https://www.golfmonthly.com/news/former-liv-golfers-apply-for-pga-tour-reinstatement)
+
+
+### psg (N/A, 28/01/2026 15:38 Lima)
+
+- **PSG : Achraf Hakimi, vite revenir au terrain pour tourner la page**: [Link](https://www.leparisien.fr/sports/football/ligue-1/psg-achraf-hakimi-vite-revenir-au-terrain-pour-tourner-la-page-25-01-2026-DO7AAE3P2JDCPMLXXN4BY6SFTY.php)
+- **Combien de penaltys Ousmane Dembélé a raté cette saison ? Réponse**: [Link](https://tribuna.com/fr/news/2026-01-28-combien-de-penaltys-ousmane-dembele-a-rate-cette-saison-reponse/)
+- **Ligue des Champions UEFA / PSG - Newcastle : historique des confrontations**: [Link](https://foot-africa.com/actualites/ligue-des-champions-uefa-psg-newcastle-historique-des-confrontations-1061621/)
+
+
+### arsenal football club (N/A, 28/01/2026 15:38 Lima)
+
+- **Club Statement: Raheem Sterling | News | Official Site**: [Link](https://www.chelseafc.com/en/news/article/club-statement-raheem-sterling)
+- **One of Mikel Arteta's most questionable Arsenal transfers just hit free agency**: [Link](https://paininthearsenal.com/mikel-arteta-most-questionable-arsenal-transfers-hit-free-agency)
+- **Raheem Sterling leaves Chelsea by mutual consent**: [Link](https://www.bbc.com/sport/football/articles/cm2yp21zjzqo)
+
+
+### atletico de madrid vs (N/A, 28/01/2026 15:38 Lima)
+
+- **Atlético de Madrid - Bodø/Glimt, en directo | Champions League hoy en vivo**: [Link](https://www.marca.com/futbol/champions-league/atletico-bodglimt/2026/01/28/01_0103_20260128_175_2744-directo.html)
+- **El Atlético es un Top-8**: [Link](https://as.com/opinion/el-atletico-es-un-top-8-f202601-n/)
+- **Griezmann, única ausencia del Atlético en un entrenamiento pasado por agua antes del Bodo**: [Link](https://espanol.eurosport.com/futbol/champions-league/2025-2026/entrenamiento-previo-atletico-de-madrid-bodo-lluvia-ausencia-griezmann_vid60050511/video.shtml)
+
+
 ### barcelona vs copenhagen (N/A, 28/01/2026 11:46 Lima)
 
 - **Reason why Joao Cancelo cannot play for Barcelona in Champions League clash vs Copenhagen**: [Link](https://barcauniversal.com/reason-why-joao-cancelo-cannot-play-for-barcelona-in-champions-league-clash-vs-copenhagen/)
@@ -962,75 +1032,5 @@
 - **UFC 324 results: Natalia Silva edges Rose Namajunas to set up Valentina Shevchenko title clash**: [Link](https://sports.yahoo.com/mma/breaking-news/article/ufc-324-results-natalia-silva-edges-out-rose-namajunas-to-set-up-valentina-shevchenko-title-clash-033552913.html)
 - **"No Chance Thug Rose Lost That Fight" - Fans And Fighters React As Natalia Silva Gets Controversial Decision Win Over Rose Namajunas In Title Eliminator At UFC 324**: [Link](https://www.mmanews.com/article/no-chance-thug-rose-lost-that-fight-fans-and-fighters-react-as-natalia-silva-gets-controversial-decision-win-over-rose-namajunas-in-title-eliminator-at-ufc-324)
 - **Rose Namajunas: Facing Valentina Shevchenko for UFC flyweight title ‘would be a culmination of my entire career’**: [Link](https://www.mmafighting.com/ufc/467252/rose-namajunas-facing-valentina-shevchenko-for-ufc-flyweight-title-would-be-a-culmination-of-my-entire-career)
-
-
-### virus gatos (N/A, 24/01/2026 23:54 Lima)
-
-- **Alerta por virus mortal que afecta a los gatos: veterinaria detalla síntomas, contagio y cómo proteger a tu mascota**: [Link](https://www.infobae.com/peru/2026/01/24/alerta-por-virus-mortal-que-afecta-a-los-gatos-veterinaria-detalla-sintomas-contagio-y-como-proteger-a-tu-mascota/)
-- **Alertan sobre repunte de casos de Panleucopenia Felina en Latinoamérica**: [Link](https://televen.com/elnoticiero/actualidad/alertan-sobre-repunte-de-casos-de-panleucopenia-felina-en-latinoamerica/)
-- **Alerta en México: El virus mortal que amenaza a tu gato hoy**: [Link](https://www.informador.mx/mexico/alerta-en-mexico-el-virus-mortal-que-amenaza-a-tu-gato-hoy-20260119-0093.html)
-
-
-### u va (N/A, 24/01/2026 23:54 Lima)
-
-- **Lucas: On The Move**: [Link](https://goheels.com/news/2026/1/24/mens-basketball-lucas-on-the-move)
-- **AJ: Passionate Words, Gritty Fight, and a Win**: [Link](https://247sports.com/college/north-carolina/article/north-carolina-unc-tar-heels-basketball-coach-hubert-davis-uva-virginia-cavaliers-wahoos-hoos-85-80-jpj-charlottesville-272232899/)
-- **No. 14 Virginia falls flat in second half, loses at home to No. 22 North Carolina**: [Link](https://www.cavalierdaily.com/article/2026/01/no-14-virginia-falls-flat-in-second-half-loses-at-home-to-no-22-north-carolina)
-
-
-### jean silva (N/A, 24/01/2026 23:54 Lima)
-
-- **Arnold Allen Discusses His 'voodoo Magic' He Used During Ceremonial Weigh-ins**: [Link](https://www.lowkickmma.com/arnold-allen-voodoo-magic-jean-silva/)
-- **Jean Silva Post-Fight Interview | UFC 324**: [Link](https://www.ufc.com/video/153861)
-- **UFC 324 Predictions, Picks, Projections, Best Bets for Saturday, January 24**: [Link](https://www.actionnetwork.com/mma/ufc-324-predictions-picks-projections-best-bets-for-saturday-january-24)
-
-
-### javier rabanal (N/A, 24/01/2026 23:54 Lima)
-
-- **Errores y aciertos de Universitario en pretemporada: la palabra de Javier Rabanal**: [Link](https://depor.com/futbol-peruano/descentralizado/javier-rabanal-universitario-errores-aciertos-y-balance-de-pretemporada-con-partidos-amistosos-ante-melgar-y-sport-boys-liga-1-noticia/)
-- **Noche Crema 2026: Javier Rabanal expresó que le llamó la atención los "jugadores con jerarquía" de Universitario**: [Link](https://www.tvperu.gob.pe/noticias/deportes/noche-crema-2026-javier-rabanal-expreso-que-le-llamo-la-atencion-los-jugadores-con-jerarquia-de-universitario)
-- **Aldo Corzo, capitán de Universitario, da firme comentario sobre el DT Javier Rabanal: "Estamos..."**: [Link](https://libero.pe/futbol-peruano/universitario/2026/01/22/aldo-corzo-capitan-de-universitario-da-firme-comentario-dt-javier-rabanal-estamos-1697014)
-
-
-### sabalenka (N/A, 24/01/2026 21:25 Lima)
-
-- **Aryna Sabalenka vs. Victoria Mboko: Predictions, Where to Watch**: [Link](https://globelynews.com/sports/aryna-sabalenka-vs-victoria-mboko-predictions-where-to-watch/)
-- **Rising Tennis Star Mboko Credits Family and Role Models for Her Competitive Spirit**: [Link](https://news.ssbcrack.com/rising-tennis-star-mboko-credits-family-and-role-models-for-her-competitive-spirit/)
-- **Clara Tauson misses Sabalenka showdown after crashing out against Canadian youngster**: [Link](https://www.flashscore.com/news/tennis-australian-open-wta-singles-clara-tauson-misses-sabalenka-showdown-after-crashing-out-against-canadian-youngster/Y1xN3L1U/)
-
-
-### ateba gautier (N/A, 24/01/2026 21:25 Lima)
-
-- **UFC 324 – Nouvelle victoire du mini Francis Ngannou**: [Link](https://lasueur.com/ufc-324-nouvelle-victoire-mini-francis-ngannou-25-01-2026)
-- **Ateba Gautier répond aux comparaisons avec Francis Ngannou : « Je ne suis pas la miniature de qui que ce soit… »**: [Link](https://www.actumma.com/ateba-gautier-repond-aux-comparaisons-avec-francis-ngannou-je-ne-suis-pas-la-miniature-de-qui-que-ce-soit/170945/)
-- **MMA. Puissance, ambition, Ngannou… Qui est Ateba Gautier, la nouvelle attraction camerounaise de l’UFC ?**: [Link](https://www.msn.com/fr-fr/actualite/other/mma-puissance-ambition-ngannou-qui-est-ateba-gautier-la-nouvelle-attraction-camerounaise-de-l-ufc/ar-AA1URKn5)
-
-
-### lakers - mavericks (N/A, 24/01/2026 21:25 Lima)
-
-- **Mavericks Notes: Doncic, Flagg, Davis, Irving, Weather**: [Link](https://www.hoopsrumors.com/2026/01/mavericks-notes-doncic-flagg-davis-irving-weather.html)
-- **Lakers at Mavs Preview: Luka's First Game This Season in Dallas**: [Link](https://thesportingtribune.com/team/lakers/feed/article/lakers-at-mavs-preview-lukas-first-game-this-season-in-dallas)
-- **NBA Best Bets: Lakers vs. Mavericks Prop Bets for Saturday 1/24/26**: [Link](https://dknetwork.draftkings.com/2026/01/24/nba-best-bets-lakers-vs-mavericks-prop-bets-for-saturday-1-24-26/)
-
-
-### umar nurmagomedov (N/A, 24/01/2026 21:25 Lima)
-
-- **Umar Nurmagomedov on being part of UFC 324 prelims: 'I don't care'**: [Link](https://mmajunkie.usatoday.com/story/sports/ufc/2026/01/23/ufc-324-umar-nurmagomedov-prelims-placement-reaction/88297474007/)
-- **Deiveson Figueiredo Is Belng Sacrificed At UFC 324, Says Former UFC Champion**: [Link](https://www.lowkickmma.com/deiveson-figueiredo-sacrifice-ufc-324/)
-- **Figueiredo Called ‘Sacrificial Lamb’ by Sterling for UFC 324 Fight**: [Link](https://bvmsports.com/2026/01/24/figueiredo-called-sacrificial-lamb-by-sterling-for-ufc-324-fight/)
-
-
-### sekou gassama universitario (N/A, 24/01/2026 21:25 Lima)
-
-- **Gassama habló por primera vez como jale de Universitario**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/gassama-dio-sus-primeras-palabras-como-refuerzo-universitario-n452440)
-- **“Vengo con muchas ganas y confianza en que recuperaré el ritmo que necesito”: Sekou Gassama y sus primeras palabras como refuerzo de la ‘U’**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/sekou-gassama-y-sus-primeras-palabras-como-refuerzo-de-universitario-vengo-con-muchas-ganas-y-confianza-en-que-recuperare-el-ritmo-que-necesito-noticia/)
-- **La sorpresiva respuesta del hincha de Universitario tras ver a Sekou Gassama en su primera práctica**: [Link](https://bolavip.com/pe/universitario/la-sorpresiva-respuesta-del-hincha-de-universitario-tras-ver-a-sekou-gassama-en-su-primera-practica)
-
-
-### boyacá chicó - américa (N/A, 24/01/2026 21:25 Lima)
-
-- **Chicó vs América: posibles alineaciones, fecha 2 de Liga BetPlay**: [Link](https://www.espn.com.ar/futbol/colombia/nota/_/id/16219693/chico-vs-america-de-cali-alineaciones-fecha-2-liga-betplay)
-- **Transmisión EN VIVO del Boyacá Chicó vs América de Cali hoy: cómo mirar la Liga por TV o streaming**: [Link](https://www.365scores.com/es/news/transmision-en-vivo-chico-vs-america/)
-- **Pronóstico Boyacá Chicó América de Cali - Primera A Colombia 24/01/26**: [Link](https://www.sportytrader.com/es/pronosticos/boyaca-chico-america-de-cali-320413/)
 
 
