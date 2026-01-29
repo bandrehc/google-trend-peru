@@ -1,3 +1,31 @@
+### oro (N/A, 29/01/2026 00:08 Lima)
+
+- **¿Por qué el oro superó la marca de los US$5,300 la onza?**: [Link](https://peru21.pe/economia/por-que-el-oro-supero-la-marca-de-los-us5300-la-onza/)
+- **El oro y la plata en máximos históricos**: [Link](https://lpderecho.pe/oro-plata-maximos-historicos/)
+- **Oro rompe nuevo récord y supera los US$ 5.500 | Wall Street | Metales preciososos | ECONOMIA**: [Link](https://elcomercio.pe/economia/mercados/oro-rompe-nuevo-record-y-supera-los-us-5500-wall-street-metales-preciososos-noticia/)
+
+
+### bridgerton (N/A, 29/01/2026 00:08 Lima)
+
+- **Bridgerton Season 4 Premiere: Watch the First 5 Minutes of Part 1 Early**: [Link](https://www.netflix.com/tudum/articles/bridgerton-season-4-episode-1-preview)
+- **What To Know About Yerin Ha, The Aussie Star About To Shake Up Bridgerton's Petticoats**: [Link](https://www.pedestrian.tv/entertainment/who-is-bridgertons-sophie-baek-yerin-ha/)
+- **This Is the Most Iconic Song Arrangement in the 'Bridgerton' Soundtrack**: [Link](https://collider.com/most-iconic-bridgerton-song-dancing-on-my-own-robyn/)
+
+
+### warriors - jazz (N/A, 29/01/2026 00:08 Lima)
+
+- **Is Stephen Curry Playing Tonight vs Jazz? Latest Injury Report on Warriors Star (Jan 28)**: [Link](https://sports.yahoo.com/articles/stephen-curry-playing-tonight-vs-180004575.html)
+- **Warriors vs Jazz Prediction, Picks & Odds for Tonight’s NBA Game**: [Link](https://www.covers.com/nba/warriors-vs-jazz-prediction-picks-best-bets-sgp-wednesday-1-28-2026)
+- **How to watch Warriors vs. Jazz: TV channel and streaming options for January 28**: [Link](https://www.nytimes.com/athletic/7004884/2026/01/28/how-to-watch-warriors-vs-jazz-tv-channel-and-streaming-options-for-january-28/)
+
+
+### cavaliers - lakers (N/A, 29/01/2026 00:08 Lima)
+
+- **Lakers vs Cavaliers Picks & Odds Today: Los Angeles To Take Advantage Of Injuries**: [Link](https://www.oddsshark.com/nba/lakers-cavaliers-picks-odds-january-28-2026)
+- **Donovan Mitchell speaks on the potential of LeBron's final game in Cleveland**: [Link](https://sports.yahoo.com/articles/donovan-mitchell-speaks-potential-lebrons-001801623.html)
+- **BetMGM Bonus Code FOXSPORTS Provides $1500 First Bet Cover on NBA and NHL Action**: [Link](https://www.foxsports.com/stories/betting/betmgm-bonus-code-foxsports-will-provide-1500-first-bet-cover-your-nba-nhl-action)
+
+
 ### sirena ortiz (N/A, 28/01/2026 21:33 Lima)
 
 - **Gabriel Meneses reveló quién lo traicionó con video besando a Sirena Ortiz**: [Link](https://www.americatv.com.pe/noticias/espectaculos/gabriel-meneses-revelo-quien-lo-traiciono-video-besando-sirena-ortiz-n515244)
@@ -1003,33 +1031,5 @@
 - **LIVE Sassuolo-Cremonese 1-0: Fadera in gol al terzo minuto**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Sassuolo/25-01-2026/sassuolo-cremonese-live-risultato-e-gol-in-diretta-serie-a.shtml)
 - **È l’ora di vincere**: [Link](https://www.pressreader.com/italy/la-gazzetta-dello-sport-mil/20260125/282548729684507)
 - **Sassuolo, le ultime sull’attacco. Da Berardi a Pinamonti e Thorstvedt: la probabile formazione**: [Link](https://www.sosfanta.com/squadra/sassuolo/sassuolo-le-ultime-sullattacco-da-berardi-a-pinamonti-e-thorstvedt-la-probabile-formazione/)
-
-
-### brentford vs (N/A, 25/01/2026 07:54 Lima)
-
-- **Nottingham Forest predicted XI as Sean Dyche faces key decisions amid injury doubts and new signing**: [Link](https://www.nottinghampost.com/sport/football/football-news/nottingham-forest-predicted-team-brentford-10774543)
-- **Keith Andrews impressed by how far Brentford have come**: [Link](https://www.rte.ie/sport/soccer/2026/0123/1554661-andrews-impressed-by-how-far-brentford-have-come/)
-- **Use BetMGM promo code ‘B10G40’ & score £40 in free bets for Brentford vs Forest**: [Link](https://talksport.com/betting/3927487/brentford-vs-nottingham-forest-betmgm-free-bets/)
-
-
-### open australia (N/A, 25/01/2026 07:54 Lima)
-
-- **Coco Gauff on New Generation: 'I Don't Feel an Age Barrier, We Hang Out Together'**: [Link](https://en.tennistemple.com/actu/coco-gauff-on-new-generation-i-dont-feel/y2n1)
-- **Gauff vs. Muchova 2026 livestream: Watch Australian Open for free**: [Link](https://mashable.com/article/gauff-muchova-australian-open-2026-live-stream-for-free)
-- **Coco Gauff Gets Honest on American Tennis’ Depth Amid Her, Iva Jović, Amanda Anisimova, and Others’ Australian Open Runs**: [Link](https://www.profootballnetwork.com/tennis/coco-gauff-australian-open-quarterfinals-american-depth/)
-
-
-### dragon ball super galactic patrol anime (N/A, 25/01/2026 07:54 Lima)
-
-- **Ubisoft and Atari are preparing a юбилейное переиздание of the first Rayman - the project has received an age rating in Australia**: [Link](https://ixbt.games/en/news/2026/01/25/ubisoft-i-atari-gotoviat-iubileinoe-pereizdanie-pervoi-rayman-proekt-polucil-vozrastnoi-reiting-v-avstralii.html)
-- **NEEDY GIRL OVERDOSE adaptation creators released a theatrical version trailer and showed Ame-chan**: [Link](https://ixbt.games/en/news/2026/01/25/sozdateli-ekranizacii-needy-girl-overdose-vypustili-treiler-teatralnoi-versii-i-pokazali-ame-can.html)
-- **A New Era of Dragon Ball: Bandai Namco Unveils Age 1000 and a Massive Expansion for the Fighting Game Sparking! Zero**: [Link](https://ixbt.games/en/news/2026/01/25/novaia-era-dragon-ball-bandai-namco-predstavila-igru-age-1000-i-masstabnoe-dopolnenie-dlia-faitinga-sparking-zero.html)
-
-
-### panleucopenia felina (N/A, 25/01/2026 07:54 Lima)
-
-- **Alerta por virus mortal que afecta a los gatos: veterinaria detalla síntomas, contagio y cómo proteger a tu mascota**: [Link](https://www.infobae.com/peru/2026/01/24/alerta-por-virus-mortal-que-afecta-a-los-gatos-veterinaria-detalla-sintomas-contagio-y-como-proteger-a-tu-mascota/)
-- **Alertan sobre repunte de casos de Panleucopenia Felina en Latinoamérica**: [Link](https://televen.com/elnoticiero/actualidad/alertan-sobre-repunte-de-casos-de-panleucopenia-felina-en-latinoamerica/)
-- **Alerta en México: El virus mortal que amenaza a tu gato hoy**: [Link](https://www.informador.mx/mexico/alerta-en-mexico-el-virus-mortal-que-amenaza-a-tu-gato-hoy-20260119-0093.html)
 
 
