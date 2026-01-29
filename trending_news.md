@@ -1,3 +1,45 @@
+### rybakina (N/A, 29/01/2026 08:10 Lima)
+
+- **Rybakina One Step Away from Australian Open Final: When and Where to Watch**: [Link](https://qrnews.kz/en/news/rybakina-one-step-away-from-australian-open-final-when-and-where-to-watch-ulg1R)
+- **Rybakina survives rally from slow-starting Pegula to set up Sabalenka rematch**: [Link](https://www.theguardian.com/sport/2026/jan/29/elena-rybakina-jessica-pegula-semi-final-sabalenka-rematch-australian-open-tennis)
+- **Rybakina Battles Into Australian Open Final Against Sabalenka**: [Link](https://www.barrons.com/news/rybakina-battles-into-australian-open-final-against-sabalenka-4c640c57)
+
+
+### australian open (N/A, 29/01/2026 08:10 Lima)
+
+- **Sinner brushes past Shelton, sets Djokovic Australian Open SF**: [Link](https://www.atptour.com/en/news/sinner-shelton-australian-open-2026-wednesday)
+- **No white flag from Djokovic against Sinner as Alcaraz faces Zverev threat**: [Link](https://www.france24.com/en/live-news/20260129-no-white-flag-from-djokovic-against-sinner-as-alcaraz-faces-zverev-threat)
+- **Ben Shelton: So Close to Elite**: [Link](https://lastwordonsports.com/tennis/2026/01/28/ben-shelton-so-close-to-elite/)
+
+
+### radio exitosa en vivo (N/A, 29/01/2026 08:10 Lima)
+
+- **El duro testimonio de la joven que denunció a Trauco, Zambrano y Peña**: [Link](https://peru21.pe/policiales/el-duro-testimonio-de-la-joven-que-denuncio-trauco-zambrano-y-pena/)
+- **Pedro Aquino rompe su silencio tras verse involucrado en escándalo sexual en Alianza Lima: “Más unidos que nunca”**: [Link](https://www.infobae.com/peru/deportes/2026/01/29/pedro-aquino-rompe-su-silencio-tras-verse-involucrado-en-escandalo-sexual-en-alianza-lima-mas-unidos-que-nunca/)
+- **“Alianza busca un pretexto para despedir a Trauco basado en el dicho de un tercero”: Baldovino, asesor legal de la Safap, y el dilema legal que se avecina entre jugador y club**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/alianza-lima-busca-un-pretexto-para-despedir-a-miguel-trauco-basado-en-el-dicho-de-un-tercero-jhonny-baldovino-asesor-legal-de-la-safap-y-el-dilema-legal-que-se-avecina-entre-jugador-y-club-tlcnota-noticia/)
+
+
+### la tinka resultados (N/A, 29/01/2026 08:10 Lima)
+
+- **La Tinka: resultados del sorteo del 28 de enero y cuánto se llevó el ganador**: [Link](https://www.infobae.com/peru/2026/01/29/resultados-de-la-tinka-este-28-de-enero-de-2026/)
+- **Resultados de La Tinka: números y aciertos del miércoles 28 de enero**: [Link](https://elcomercio.pe/respuestas/loterias/resultados-de-la-tinka-hoy-miercoles-28-de-enero-2026-en-vivo-ultimo-sorteo-numeros-y-jugada-ganadora-tinkanet-pozo-millonario-resultado-si-o-si-boliyapa-intralot-lbposting-noticia/)
+- **¡Reventó La Tinka! Revisa los resultados y jugada ganadora del pozo millonario de más de 19 millones de soles**: [Link](https://libero.pe/ocio/2026/01/25/tinka-hoy-25-de-enero-en-vivo-resultados-del-ultimo-sorteo-pozo-millonario-intralot-2029128)
+
+
+### aryna sabalenka (N/A, 29/01/2026 08:10 Lima)
+
+- **Back again! Sabalenka bests Svitolina to reach fourth straight Australian Open final**: [Link](https://www.wtatennis.com/news/4441201/back-again-aryna-sabalenka-bests-elina-svitolina-to-reach-her-fourth-straight-australian-open-final)
+- **A tigress roams free in Melbourne**: [Link](https://www.puntodebreak.com/en/2026/01/29/tigress-roams-free-in-melbourne)
+- **Aryna Sabalenka forces TNT Sports into apology as Australian Open star hits out again**: [Link](https://www.express.co.uk/sport/tennis/2164215/aryna-sabalenka-tnt-sports-apology-australian-open)
+
+
+### ver si soy miembro de mesa 2026 (N/A, 29/01/2026 08:10 Lima)
+
+- **Elecciones 2026: Mañana jueves 29 se conocerán a los primeros miembros de mesa**: [Link](https://www.infobae.com/peru/2026/01/28/elecciones-2026-manana-jueves-29-de-enero-se-conoceran-a-los-primeros-miembros-de-mesa/)
+- **Elecciones 2026: estos son todos los impedimentos para ser miembro de mesa**: [Link](https://rpp.pe/politica/elecciones/elecciones-2026-estos-son-los-impedimentos-para-ser-miembro-de-mesa-noticia-1673051)
+- **ONPE sortea miembros de mesa para elecciones 2026**: [Link](https://caretas.pe/nacional/onpe-sortea-miembros-de-mesa-para-elecciones-2026/)
+
+
 ### bridgerton temporada 4 (N/A, 29/01/2026 03:49 Lima)
 
 - **“Los Bridgerton”, temporada 4: resumen de la historia y cuándo se estrenan las dos partes de los episodios**: [Link](https://cnnespanol.cnn.com/2026/01/28/entretenimiento/bridgerton-temporada-4-resumen-estreno-orix)
@@ -989,47 +1031,5 @@
 - **Foyth sufre rotura del tendón de Aquiles**: [Link](https://www.marca.com/futbol/villarreal/2026/01/25/foyth-sufre-rotura-tendon-aquiles.html)
 - **Villarreal confirmó que Juan Foyth se rompió el tendón de Aquiles ante Real Madrid**: [Link](https://www.espn.com.ar/futbol/espana/nota/_/id/16222998/juan-foyth-lesion-parte-medico-se-rompio-tendon-aquiles-villarreal-vs-real-madrid)
 - **Grave contratiempo para el Villarreal ante el Madrid a las primeras de cambio**: [Link](https://www.mundodeportivo.com/futbol/villarreal/20260124/1002607871/serio-contratiempo-villarreal-madrid-primeras-cambio.html)
-
-
-### melgar vs (N/A, 25/01/2026 11:32 Lima)
-
-- **Melgar vs Macará EN VIVO: ¿Dónde ver la Tarde Rojinegra 2026 y a qué hora inicia?**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/melgar-vs-macara-en-vivo-hora-senal-online-y-donde-ver-la-tarde-rojinegra-2026-transmision-video-movistar-tdpe-noticia/)
-- **FBC Melgar listo para presentarse ante su hinchada en la tarde rojinegra**: [Link](https://diariocorreo.pe/deportes/fbc-melgar-listo-para-presentarse-ante-su-hinchada-en-la-tarde-rojinegra-noticia/)
-- **Oficial: Movistar Deportes será el canal que transmitirá partido de club de la Liga 1 2026**: [Link](https://libero.pe/futbol-peruano/liga-1/2026/01/23/oficial-movistar-deportes-sera-canal-transmitira-partido-de-melgar-club-de-liga-1-2026-869676)
-
-
-### juventus vs napoli (N/A, 25/01/2026 11:32 Lima)
-
-- **Milinkovic-Savic has new injury worry for Napoli against Juventus**: [Link](https://football-italia.net/milinkovic-savic-new-injury-worry-for-napoli/)
-- **Serie A Predictions - Week 22**: [Link](https://www.livescore.com/en/news/football/serie-a/predictions/serie-a-predictions-week-22/)
-- **No press conference, no answers: why did Conte and Spalletti stay silent?**: [Link](https://foot-africa.com/en/news/no-press-conference-no-answers-why-did-conte-and-spalletti-stay-silent-1057133/)
-
-
-### rectificación retiro afp (N/A, 25/01/2026 11:32 Lima)
-
-- **Rectificación del retiro de AFP: Así das seguimiento a la segunda solicitud**: [Link](https://www.infobae.com/peru/2026/01/21/rectificacion-del-retiro-de-afp-asi-se-da-seguimiento-a-la-segunda-solicitud/)
-- **Retiro de AFP 2026: afiliados aún pueden registrar su solicitud si este ÚNICO requisito se cumple**: [Link](https://libero.pe/tiempoextra/2026/01/24/retiro-de-afp-2026-afiliados-aun-pueden-registrar-su-solicitud-unico-requisito-se-cumple-1617816)
-- **Retiro de AFP: aún puede registrar su solicitud si fue rechazada por este motivo**: [Link](https://www.expreso.com.pe/economia/retiro-de-afp-aun-puede-registrar-su-solicitud-si-fue-rechazada-por-este-motivo-integra-profuturo-superintendencia-de-banca-y-seguros-noticia/1258098/)
-
-
-### barcelona vs real oviedo (N/A, 25/01/2026 07:54 Lima)
-
-- **Barcelona vs Real Oviedo: alineaciones probables, J21 de LaLiga**: [Link](https://www.espn.com.ar/futbol/espana/nota/_/id/16223713/barcelona-vs-real-oviedo-laliga-2026-alineaciones)
-- **Regreso a casa con presión**: [Link](https://as.com/futbol/primera/regreso-a-casa-con-presion-f202601-n/)
-- **Dónde ver Barcelona vs. Real Oviedo EN VIVO: canales de DIRECTV y Movistar LaLiga**: [Link](https://depor.com/futbol-internacional/espana/donde-ver-barcelona-vs-real-oviedo-en-vivo-canales-de-directv-futbol-libre-tv-dsports-movistar-laliga-espn-deportes-video-noticia/)
-
-
-### atlético madrid - r.c.d. mallorca (N/A, 25/01/2026 07:54 Lima)
-
-- **Muriqi busca oro en la fortaleza del Atleti**: [Link](https://as.com/futbol/primera/muriqi-busca-oro-en-la-fortaleza-del-atleti-f202601-n/)
-- **LaLiga EA Sports: Por la fecha 21 se enfrentarán Atlético de Madrid y Mallorca**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-por-la-fecha-21-se-enfrentaran-atletico-de-madrid-y-mallorca-noticia-1672858)
-- **Atlético de Madrid-Mallorca: Alineaciones probables, estadísticas y cómo ver por TV y online (14:00)**: [Link](https://espanol.eurosport.com/futbol/la-liga/2025-2026/atletico-madrid-mallorca-alineaciones-probables-previa-estadisticas-horario-como-donde-ver-television-online-streaming-hoy_sto23262692/story.shtml)
-
-
-### australian open (N/A, 25/01/2026 07:54 Lima)
-
-- **Mensik withdraws from Australian Open, Djokovic into QFs**: [Link](https://www.atptour.com/en/news/mensik-australian-open-2026-withdrawal)
-- **Djokovic's Open hopes boosted as opponent withdraws**: [Link](https://aapnews.aap.com.au/news/djokovic-s-open-hopes-boosted-as-opponent-withdraws)
-- **Tennis Star Pulls Out of Australian Open Hours Before Novak Djokovic Clash**: [Link](https://www.sportbible.com/tennis/australian-open-withdrawal-novak-djokovic-198777-20260125)
 
 
