@@ -1,3 +1,72 @@
+### sirena ortiz (N/A, 28/01/2026 21:33 Lima)
+
+- **Gabriel Meneses reveló quién lo traicionó con video besando a Sirena Ortiz**: [Link](https://www.americatv.com.pe/noticias/espectaculos/gabriel-meneses-revelo-quien-lo-traiciono-video-besando-sirena-ortiz-n515244)
+- **Gabriel Meneses de 'EEG' confiesa en exclusiva la verdad sobre su beso con Sirena Ortiz: "Solo quiero que ella sea feliz"**: [Link](https://larepublica.pe/espectaculos/2026/01/27/gabriel-meneses-de-eeg-confiesa-en-exclusiva-la-verdad-sobre-su-beso-con-sirena-ortiz-solo-quiero-que-ella-sea-feliz-ntpe-284418)
+- **Gabriel Meneses denuncia traición de persona cercana tras filtración de video junto a Sirena Ortiz**: [Link](https://elcomercio.pe/tvmas/famosos/gabriel-meneses-denuncia-traicion-de-persona-cercana-tras-filtracion-de-video-junto-a-sirena-ortiz-ultimas-noticia/)
+
+
+### nicki minaj (N/A, 28/01/2026 21:33 Lima)
+
+- **Nicki Minaj says she’s probably Trump’s ‘No. 1 fan’**: [Link](https://thehill.com/blogs/in-the-know/5710758-nicki-minaj-trump-accounts/)
+- **Rap artist Nicki Minaj pledges support for Trump accounts**: [Link](https://www.cnbc.com/2026/01/28/trump-accounts-nicki-minaj.html)
+- **Rejected by rap, Nicki Minaj becomes Trump's 'No. 1 fan'**: [Link](https://www.usatoday.com/story/news/politics/2026/01/28/nicki-minaj-donald-trump/88397521007/)
+
+
+### mano menezes (N/A, 28/01/2026 21:33 Lima)
+
+- **Cuenta regresiva para conocer al DT de la Selección Peruana: dirigió a Brasil y ahora toma la delantera**: [Link](https://depor.com/futbol-peruano/seleccion-peruana/seleccion-peruana-mano-menezes-el-posible-elegido-de-jean-ferrari-y-que-pasa-con-gustavo-alvarez-fpf-noticia/)
+- **¿Y dónde está el nuevo DT de la Selección Peruana, Jean Ferrari?**: [Link](https://peru21.pe/opinion/y-donde-esta-el-nuevo-dt-de-la-seleccion-peruana-jean-ferrari/)
+- **Se reveló la nueva fecha de presentación del DT de Perú: FPF lanzará novedoso canal streaming para transmitir partidos de la selección**: [Link](https://www.infobae.com/peru/deportes/2026/01/27/se-revelo-la-nueva-fecha-de-presentacion-del-dt-de-peru-fpf-lanzara-novedoso-canal-streaming-para-transmitir-partidos-de-la-seleccion/)
+
+
+### karen dejo (N/A, 28/01/2026 21:33 Lima)
+
+- **Karen Dejo se hizo descarte de cáncer por bulto en cuello**: [Link](https://www.americatv.com.pe/noticias/espectaculos/karen-dejo-paso-gran-susto-descubrir-bulto-cuello-n515261)
+- **Karen Dejo revela susto por bulto en el cuello: “Me dio miedo” | Cancer | farandula | video | VIDEOS**: [Link](https://elcomercio.pe/videos/entretenimiento/karen-dejo-revela-susto-por-bulto-en-el-cuello-me-dio-miedo-cancer-nnav-amtv-farandula-video-noticia/)
+- **Karen Dejo revela su lucha tras descarte de cáncer: ¿Qué pasó con su salud? | farandula | video | VIDEOS**: [Link](https://trome.com/videos/espectaculos/karen-dejo-revela-su-lucha-tras-descarte-de-cancer-que-paso-con-su-salud-nnav-amtv-farandula-video-noticia/)
+
+
+### pasto - millonarios (N/A, 28/01/2026 21:33 Lima)
+
+- **Transmisión EN VIVO del Pasto vs Millonarios hoy: cómo mirar el partido por TV o streaming**: [Link](https://www.365scores.com/es/news/transmision-en-vivo-pasto-vs-millonarios/)
+- **Pronóstico Deportivo Pasto Millonarios - Primera A Colombia 28/01/26**: [Link](https://www.sportytrader.com/es/pronosticos/deportivo-pasto-millonarios-322316/)
+- **El delantero vuelve a una convocatoria para un partido oficial luego de 221 días, cuando jugó el partido de la fecha 6 de los cuadrangulares semifinales de la Liga BetPlay I-2025 ante Santa Fe**: [Link](https://www.facebook.com/infobaecolombia/photos/el-delantero-vuelve-a-una-convocatoria-para-un-partido-oficial-luego-de-221-d%C3%ADas/1336564321819660/)
+
+
+### lakers - cavaliers (N/A, 28/01/2026 21:33 Lima)
+
+- **Lakers vs Cavaliers Picks & Odds Today: Los Angeles To Take Advantage Of Injuries**: [Link](https://www.oddsshark.com/nba/lakers-cavaliers-picks-odds-january-28-2026)
+- **Watch LeBron James, Bronny get a personalized welcome back to Cleveland**: [Link](https://sports.yahoo.com/articles/watch-lebron-james-bronny-personalized-224354289.html)
+- **BetMGM Bonus Code FOXSPORTS Provides $1500 First Bet Cover on NBA and NHL Action**: [Link](https://www.foxsports.com/stories/betting/betmgm-bonus-code-foxsports-will-provide-1500-first-bet-cover-your-nba-nhl-action)
+
+
+### boca vs estudiantes (N/A, 28/01/2026 21:33 Lima)
+
+- **Estudiantes vs. Boca, por el Torneo Apertura: seguilo EN VIVO**: [Link](https://www.tycsports.com/liga-profesional-de-futbol/estudiantes-boca-torneo-apertura-en-vivo-id709857.html)
+- **Estudiantes golpeó primero con un gol de Núñez y se puso en ventaja ante Boca**: [Link](https://espndeportes.espn.com/futbol/argentina/nota/_/id/16242250/video-gol-santiago-nunez-estudiantes-la-plata-vs-boca-torneo-apertura)
+- **Estudiantes vs Boca: Resultado EN VIVO, minuto a minuto y goles de la Liga Profesional**: [Link](https://www.365scores.com/es/news/estudiantes-vs-boca-resultado-vivo-goles/)
+
+
+### el monstruo peru (N/A, 28/01/2026 21:33 Lima)
+
+- **‘El Monstruo’ llegó a Lima: Líder de ‘Los Injertos del Cono Norte’ arribó a la capital tras ser extraditado de Paraguay**: [Link](https://rpp.pe/lima/actualidad/erick-moreno-el-monstruo-llego-a-lima-lider-de-los-injertos-arribo-procedente-de-arequipa-e-ira-a-la-dircote-noticia-1673464)
+- **Ministro de Justicia: “No existen fronteras que protejan a quienes atentan contra la paz"**: [Link](https://andina.pe/agencia/noticia-ministro-justicia-no-existen-fronteras-protejan-a-quienes-atentan-contra-paz-1061071.aspx)
+- **Erick Moreno, alias el 'Monstruo', llegó extraditado a Lima desde Paraguay**: [Link](https://canaln.pe/actualidad/erick-moreno-alias-monstruo-llego-lima-extraditado-paraguay-n489901)
+
+
+### santa fe - deportivo pereira (N/A, 28/01/2026 21:33 Lima)
+
+- **Santa Fe vs Deportivo Pereira Stats & Insights**: [Link](https://www.betshoot.com/football/19645608-Santa-Fe-vs-Deportivo-Pereira-prediction/)
+- **Santa Fe vs Deportivo Pereira Prediction: Match Preview and Analysis | Liga BetPlay 28-01-2026**: [Link](https://betmines.com/match-preview/santa-fe-vs-deportivo-pereira-prediction-match-preview-and-analysis-liga-betplay-28-01-2026)
+
+
+### corinthians vs (N/A, 28/01/2026 21:33 Lima)
+
+- **Ao vivo: Corinthians x Bahia | Rodada 1 | Campeonato Brasileiro**: [Link](https://ge.globo.com/sp/futebol/brasileirao-serie-a/jogo/28-01-2026/corinthians-bahia.ghtml)
+- **Comentário de Fernando em 'Jogo do Corinthians ao vivo'**: [Link](https://www.meutimao.com.br/comentario/16520851/tirou_o_garro_matou_o_time)
+- **Comentário de Paulo em 'Jogo do Corinthians ao vivo'**: [Link](https://www.meutimao.com.br/comentario/16516746/bora_ser_campeas_mundialaqui_e_corinthians)
+
+
 ### madrid vs (N/A, 28/01/2026 15:38 Lima)
 
 - **Alineación posible del Real Madrid hoy contra el Benfica en Champions League**: [Link](https://as.com/futbol/champions/posible-alineacion-del-real-madrid-contra-el-benfica-en-champions-f202601-n/)
@@ -962,75 +1031,5 @@
 - **Alerta por virus mortal que afecta a los gatos: veterinaria detalla síntomas, contagio y cómo proteger a tu mascota**: [Link](https://www.infobae.com/peru/2026/01/24/alerta-por-virus-mortal-que-afecta-a-los-gatos-veterinaria-detalla-sintomas-contagio-y-como-proteger-a-tu-mascota/)
 - **Alertan sobre repunte de casos de Panleucopenia Felina en Latinoamérica**: [Link](https://televen.com/elnoticiero/actualidad/alertan-sobre-repunte-de-casos-de-panleucopenia-felina-en-latinoamerica/)
 - **Alerta en México: El virus mortal que amenaza a tu gato hoy**: [Link](https://www.informador.mx/mexico/alerta-en-mexico-el-virus-mortal-que-amenaza-a-tu-gato-hoy-20260119-0093.html)
-
-
-### cometa 3i atlas (N/A, 25/01/2026 07:54 Lima)
-
-- **Novas descobertas surpreendentes do cometa 3I/ATLAS são reveladas**: [Link](https://www.cnnbrasil.com.br/ciencia/novas-descobertas-surpreendentes-do-cometa-3i-atlas-sao-reveladas/)
-- **Defesa planetária da NASA é acionada por cometa interestelar que emite estranhos sinais de rádio**: [Link](https://www.mixvale.com.br/2026/01/24/defesa-planetaria-da-nasa-e-acionada-por-cometa-interestelar-que-emite-estranhos-sinais-de-radio/)
-- **Trânsito de Ganimedes e 3I/ATLAS nas imagens Astronômicas da Semana**: [Link](https://olhardigital.com.br/2026/01/19/ciencia-e-espaco/transito-de-ganimedes-e-3i-atlas-nas-imagens-astronomicas-da-semana/)
-
-
-### sedapal anuncia cortes programados de agua en distritos de lima (N/A, 25/01/2026 03:34 Lima)
-
-- **Estos distritos de Lima tendrán corte de agua de Sedapal este 23 y 24 de enero por hasta 12 horas**: [Link](https://www.infobae.com/peru/2026/01/22/estos-distritos-de-lima-tendran-corte-de-agua-de-sedapal-este-23-y-24-de-enero-por-hasta-12-horas/)
-- **¡A juntar AGUA desde YA! Anuncian corte de agua el 25 y 26 de enero: ¿Tu distrito se verá afectado?**: [Link](https://www.exitosanoticias.pe/actualidad/a-juntar-agua-ya-anuncian-corte-agua-25-26-enero-tu-distrito-vera-afectado-n167307)
-- **🔴🔵¡A juntar AGUA desde YA! 🚱 Anuncian corte del servicio programado para este miércoles 21 de enero: Revisa AQUÍ si tu distrito se verá afectado, según el reporte de Sedapal.**: [Link](https://www.facebook.com/Exitosanoticias/posts/a-juntar-agua-desde-ya-anuncian-corte-del-servicio-programado-para-este-mi%C3%A9rcole/1328228396006882/)
-
-
-### ilia topuria (N/A, 25/01/2026 03:34 Lima)
-
-- **Paddy Pimblett vs Justin Gaethje: UFC 324 - Pimblett says Ilia Topuria could be stripped of title**: [Link](https://www.bbc.com/sport/mixed-martial-arts/articles/c79rl9170p5o)
-- **Paddy Pimblett Says No to a White House Fight—Here’s Why**: [Link](https://www.yardbarker.com/mma/articles/paddy_pimblett_says_no_to_a_white_house_fightheres_why/s1_17615_43372546)
-- **Renato Moicano explains why ‘it’s impossible’ for Paddy Pimblett to beat Ilia Topuria**: [Link](https://sports.yahoo.com/articles/renato-moicano-explains-why-impossible-180000677.html)
-
-
-### carlos alcaraz (N/A, 25/01/2026 03:34 Lima)
-
-- **Alcaraz mejora su versión australiana y toca su techo sin ceder un set**: [Link](https://www.marca.com/tenis/open-australia/2026/01/25/alcaraz-mejora-version-australiana-toca-techo-ceder-set.html)
-- **El partido de Alcaraz y Paul fue interrumpido en un momento clave del Australian Open 2026: las razones**: [Link](https://www.espn.com.ar/tenis/nota/_/id/16224521/el-partido-de-carlos-alcaraz-y-tommy-paul-fue-interrumpido-en-un-momento-clave-del-australian-open-2026-las-razones-grand-slam)
-- **Alcaraz - Paul: horario, TV, dónde y cómo ver su partido de octavos en el Open de Australia**: [Link](https://as.com/tenis/open_australia/alcaraz-paul-horario-tv-donde-y-como-ver-su-partido-de-octavos-en-el-open-de-australia-f202601-n/)
-
-
-### alcaraz (N/A, 24/01/2026 23:54 Lima)
-
-- **Alcaraz - Paul, en directo: octavos de final del Open de Australia hoy en vivo online**: [Link](https://as.com/tenis/open_australia/alcaraz-paul-en-directo-octavos-de-final-del-open-de-australia-hoy-en-vivo-online-f202601-d/)
-- **El tenis tiene un problema de salud con los aficionados: se interrumpe 10 minutos el 'tie break' de Alcaraz**: [Link](https://www.marca.com/tenis/open-australia/2026/01/25/tenis-problema-salud-aficionados-interrumpe-10-minutos-tie-break-alcaraz.html)
-- **Australian Open 2026: así quedaron los cuadros de octavos de final**: [Link](https://espndeportes.espn.com/tenis/nota/_/id/16221623/australian-open-2026-asi-quedo-el-cuadro-de-los-octavos-de-final-masculino-y-femenino)
-
-
-### derrick lewis (N/A, 24/01/2026 23:54 Lima)
-
-- **Updated Heavyweight Rankings After UFC 324: Where Does Cortes-Acosta Land After Big Win?**: [Link](https://sportsnaut.com/ufc/ufc-heavyweight-rankings-update-after-ufc-324)
-- **UFC 324 live blog: Waldo Cortes-Acosta vs. Derrick Lewis**: [Link](https://www.mmafighting.com/ufc/467669/ufc-324-live-blog-waldo-cortes-acosta-vs-derrick-lewis)
-- **Derrick Lewis Features on Historic UFC 324 Card Amid Paramount+ Debut**: [Link](https://azat.tv/en/derrick-lewis-ufc-324-paramount-plus-debut/)
-
-
-### tommy paul (N/A, 24/01/2026 23:54 Lima)
-
-- **Australian Open 2026: Alcaraz takes on Paul in fourth round; Sabalenka defeats brave Mboko**: [Link](https://www.theguardian.com/sport/live/2026/jan/25/australian-open-2026-sabalenka-alcaraz-in-action-live)
-- **Australian Open Betting Odds and Match Previews for January 24, 2026, Men's Singles**: [Link](https://sportsbookwire.usatoday.com/story/sports/sports-betting/2026/01/24/australian-open-betting-odds-favorites-match-previews-1-23-2026-mens/88332144007/)
-- **Carlos Alcaraz match halted at Australian Open for medical emergency**: [Link](https://www.express.co.uk/sport/tennis/2162209/Carlos-Alcaraz-Tommy-Paul-Australian-Open-medical-emergency)
-
-
-### sean o'malley (N/A, 24/01/2026 23:54 Lima)
-
-- **Sean O'Malley Says Paramount Didn't Force Apology Over Song Yadong Covid Jab**: [Link](https://www.tmz.com/2026/01/23/sean-omalley-sorry-covid-mask-song-yadong-ufc-paramount/)
-- **Boxing News: Prelim Results From UFC 324 » January 24, 2026**: [Link](https://fightnews.com/prelim-results-from-ufc-324/181103)
-- **UFC 324: Sean O'Malley vs. Song Yadong odds, picks and predictions**: [Link](https://sportsbookwire.usatoday.com/story/sports/ufc/2026/01/24/omalley-vs-song-odds-picks-and-predictions/88334759007/)
-
-
-### iva jovic (N/A, 24/01/2026 23:54 Lima)
-
-- **Australian Open 2026 day eight: Yulia Putintseva launches racquet in nightmare performance; 'Shaky start' hits Carlos Alcaraz**: [Link](https://www.nine.com.au/sport/tennis/australian-open-2026-live-results-day-eight-aryna-sabalenka-carlos-alcaraz-alex-de-minaur-20260125-p5nws0.html)
-- **Jovic blitzes Putintseva in 53 minutes to reach first Grand Slam quarterfinal in Melbourne**: [Link](https://www.wtatennis.com/news/4439163/jovic-blitzes-putintseva-in-53-minutes-to-reach-first-grand-slam-quarterfinal-in-melbourne)
-- **US teen steamrolls to Open showdown with Sabalenka**: [Link](https://www.northweststar.com.au/story/9160212/us-teen-steamrolls-to-open-showdown-with-sabalenka/)
-
-
-### rose namajunas (N/A, 24/01/2026 23:54 Lima)
-
-- **UFC 324 results: Natalia Silva edges Rose Namajunas to set up Valentina Shevchenko title clash**: [Link](https://sports.yahoo.com/mma/breaking-news/article/ufc-324-results-natalia-silva-edges-out-rose-namajunas-to-set-up-valentina-shevchenko-title-clash-033552913.html)
-- **"No Chance Thug Rose Lost That Fight" - Fans And Fighters React As Natalia Silva Gets Controversial Decision Win Over Rose Namajunas In Title Eliminator At UFC 324**: [Link](https://www.mmanews.com/article/no-chance-thug-rose-lost-that-fight-fans-and-fighters-react-as-natalia-silva-gets-controversial-decision-win-over-rose-namajunas-in-title-eliminator-at-ufc-324)
-- **Rose Namajunas: Facing Valentina Shevchenko for UFC flyweight title ‘would be a culmination of my entire career’**: [Link](https://www.mmafighting.com/ufc/467252/rose-namajunas-facing-valentina-shevchenko-for-ufc-flyweight-title-would-be-a-culmination-of-my-entire-career)
 
 
