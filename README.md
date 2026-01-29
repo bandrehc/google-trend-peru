@@ -1,3 +1,73 @@
+### lyon vs (N/A, 29/01/2026 15:37 Lima)
+
+- **OL : le pari insensé de Paulo Fonseca face au PAOK**: [Link](https://www.football365.fr/ol-le-pari-insense-de-paulo-fonseca-face-au-paok-10276753.html)
+- **Un vibrant hommage rendu par le public lyonnais aux supporters du PAOK : « La douleur n'a pas de couleur, reposez en paix »**: [Link](https://www.lequipe.fr/Football/Actualites/Un-vibrant-hommage-rendu-par-le-public-lyonnais-aux-supporters-du-paok-la-douleur-n-a-pas-de-couleur-reposez-en-paix/1637677)
+- **Le forfait de Corentin Tolisso annoncé pour OL – LOSC**: [Link](https://lepetitlillois.com/2026/01/29/le-forfait-de-corentin-tolisso-annonce-pour-ol-losc/)
+
+
+### porto (N/A, 29/01/2026 15:37 Lima)
+
+- **Seba Pérez ainda em dúvida para o FC Porto**: [Link](https://sapo.pt/artigo/seba-perez-ainda-em-duvida-para-o-fc-porto-697bc1669768a12c85da2592)
+- **Seba Pérez ainda em dúvida para o FC Porto**: [Link](https://www.record.pt/futebol/futebol-nacional/liga-betclic/casa-pia/detalhe/seba-perez-ainda-em-duvida-para-o-fc-porto)
+- **T10, Ep. 35 | Dragão tem novo avançado**: [Link](https://www.zerozero.pt/noticias/t10-ep-35-dragao-tem-novo-avancado/1039750)
+
+
+### lyon (N/A, 29/01/2026 15:37 Lima)
+
+- **Sondages municipales à Lyon : Grégory Doucet ne décolle toujours pas, Jean-Michel Aulas intouchable**: [Link](https://www.lyonmag.com/article/149747/sondages-municipales-a-lyon-gregory-doucet-ne-decolle-toujours-pas-jean-michel-aulas-intouchable)
+- **"Jouer le match jusqu'à la fin": Jean-Michel Aulas confie ne pas se fier entièrement aux sondages**: [Link](https://www.bfmtv.com/lyon/replay-emissions/lyon-politiques/video-jouer-le-match-jusqu-a-la-fin-jean-michel-aulas-confie-ne-pas-se-fier-entierement-aux-sondages_VN-202601290871.html)
+- **Parcs, baignade, rive droite... Le plan de Doucet et Bernard pour mieux Vivre à Lyon**: [Link](https://www.lyoncapitale.fr/politique/parcs-baignade-rive-droite-le-plan-de-doucet-et-bernard-pour-mieux-vivre-a-lyon)
+
+
+### endrick (N/A, 29/01/2026 15:37 Lima)
+
+- **Chelsea Have Set Their Sights On This Real Madrid Forward: Should Rosenior Get Him On Board?**: [Link](https://sports.yahoo.com/articles/chelsea-set-sights-real-madrid-222500099.html)
+- **Chelsea plotting €80 million offer for Real Madrid player**: [Link](https://theprideoflondon.com/chelsea-plotting-80-million-offer-real-madrid-player)
+- **Chelsea plot €80m heist for hat-trick hero who could be a future star**: [Link](https://www.yardbarker.com/soccer/articles/chelsea_plot_80m_heist_for_hat_trick_hero_who_could_be_a_future_star/s1_15953_43389370)
+
+
+### paok vs (N/A, 29/01/2026 15:37 Lima)
+
+- **Lyon vs. PAOK - Boxscore - Live Score - January 29, 2026**: [Link](https://www.foxsports.com/soccer/europa-league-lyon-vs-paok-jan-29-2026-game-boxscore-658234?tab=boxscore)
+- **Lyon predicted XI v PAOK: Rémi Himbert to startr in Endrick’s absence**: [Link](https://www.getfootballnewsfrance.com/2026/lyon-predicted-xi-v-paok-remi-himbert-to-startr-in-endricks-absence/)
+- **Lyon vs PAOK LIVE Score Updates: match begins (0-0)**: [Link](https://www.vavel.com/en-us/soccer/2026/01/29/1248971-lyon-vs-paok-live-score-europa-league.html)
+
+
+### porto vs (N/A, 29/01/2026 15:37 Lima)
+
+- **In-form Porto will test Rangers' improvement**: [Link](https://www.bbc.com/sport/football/articles/c8d02mm0qqqo)
+- **Porto’s chances of direct qualification for the Europa League last 16**: [Link](https://onefootball.com/en/news/portos-chances-of-direct-qualification-for-the-europa-league-last-16-42323671)
+- **Team News: Rohl Names His Side For Porto**: [Link](https://www.rangers.co.uk/article/team-news-rohl-names-his-side-for-porto/26FgFcTJvYU4d2qpHV6ylN)
+
+
+### celtic f. c. - utrecht (N/A, 29/01/2026 15:37 Lima)
+
+- **Celtic starting XI to face FC Utrecht at Paradise**: [Link](https://www.celticfc.com/news/2026/january/29/celtic-starting-xi-to-face-fc-utrecht-at-paradise/)
+- **CONFIRMED: NYGREN IN, IHEANACHO ON BENCH**: [Link](https://www.celticquicknews.co.uk/confirmed-nygren-in-iheanacho-on-bench/)
+- **How to get last-minute Celtic vs Utrecht tickets: Europa League tickets, January 29 fixture, predictions & more**: [Link](https://www.goal.com/en/news/celtic-utrecht-tickets/blt9338776eaaf2fcf4)
+
+
+### europa league posiciones (N/A, 29/01/2026 15:37 Lima)
+
+- **Clasificación de la UEFA Europa League, en directo: así están el top-8 y playoff, eliminados y resultados en tiempo real**: [Link](https://as.com/futbol/uefa/clasificacion-de-la-uefa-europa-league-en-directo-asi-estan-el-top-8-y-playoff-eliminados-y-resultados-en-tiempo-real-f202601-d/)
+- **UEFA Europa League 2025-2026: los clasificados a octavos de final y a playoffs de 16avos.**: [Link](https://www.espn.com.ar/futbol/uefa-europa-league/nota/_/id/16243829/europa-league-clasificados-octavos-y-a-playoffs-de-16avos)
+- **Partidos de hoy jueves, por Europa League: cruces, horarios y cómo verlos en vivo**: [Link](https://www.tycsports.com/europa-league/partidos-de-hoy-jueves-por-europa-league-cruces-horarios-y-tv-id709918.html)
+
+
+### fcsb - fenerbahçe (N/A, 29/01/2026 15:37 Lima)
+
+- **Fenerbahçe'de En-Nesyri FCSB maçında sahada: Yaklaşık 2 ay sonra 11'de**: [Link](https://www.yenicaggazetesi.com/fenerbahcede-en-nesyri-fcsb-macinda-sahada-yaklasik-2-ay-sonra-11de-996639h.htm)
+- **Avrupa’da kritik gece: İlk 11’ler açıklandı**: [Link](https://mansethaber.com/avrupada-kritik-gece-ilk-11ler-aciklandi)
+- **BUGÜNKÜ MAÇ PROGRAMI VE SAATLERİ 29 OCAK 2026 || Bu akşam maç var mı? Bugün futbolda hangi maçlar var, kimin maçı var, saat kaçta? Fenerbahçe’nin maçı bugün mü?**: [Link](https://www.hurriyet.com.tr/sporarena/galeri-mac-programi-29-ocak-2026-bugun-futbolda-hangi-maclar-var-kimin-maci-var-saat-kacta-fenerbahcenin-maci-bugun-mu-43095553)
+
+
+### laura huarcayo (N/A, 29/01/2026 15:37 Lima)
+
+- **Laura Huarcayo protagonizó incómodo error en TV al llamar Pamela Franco a Pamela López**: [Link](https://www.moda.com.pe/noticias/espectaculos/laura-huarcayo-protagonizo-incomodo-error-en-tv-al-llamar-pamela-franco-a-pamela-lopez-video/)
+- **Laura Huarcayo se equivoca en vivo y CONFUNDE a Pamela López con Pamela Franco**: [Link](https://wapa.pe/espectaculos-y-tv/farandula/2026/01/29/laura-huarcayo-se-equivoca-en-vivo-confunde-pamela-lopez-pamela-franco-1516990)
+- **Laura Huarcayo sobre su regreso a la televisión: “No esperaba tanto cariño”**: [Link](https://diariocorreo.pe/espectaculos/laura-huarcayo-sobre-su-regreso-a-la-television-no-esperaba-tanto-carino-noticia/)
+
+
 ### juan pablo varillas (N/A, 29/01/2026 11:51 Lima)
 
 - **Juan Pablo Varillas vs Daniel Vallejo EN VIVO: ¿a qué hora juegan y dónde ver los octavos de final del Challenger de Concepción?**: [Link](https://rpp.pe/tenis/mas-tenis/juan-pablo-varillas-vs-daniel-vallejo-en-vivo-a-que-hora-juegan-y-donde-ver-octavos-de-final-challenger-concepcion-2026-via-atp-tour-link-gratis-partidos-de-hoy-noticia-1673480)
@@ -959,75 +1029,5 @@ Sin noticias relacionadas disponibles.
 - **Liga Betplay: Millonarios cayó en El Campín ante el campeón Junior**: [Link](https://www.espn.com.ar/futbol/colombia/nota/_/id/16218083/liga-betplay-millonarios-cayo-en-el-campin-ante-el-campeon-junior)
 - **Regresaron los suplicios**: [Link](https://onefootball.com/es/noticias/regresaron-los-suplicios-42302348)
 - **¡Hasta ahí le llegó la confianza a Hernán Torres! De Amores nuevamente lesionado**: [Link](https://www.elfutbolero.com.co/primeraa/hasta-ahi-le-llego-la-confianza-a-hernan-torres-de-amores-nuevamente-lesionado-20260125-73371.html)
-
-
-### u. católica - coquimbo unido (N/A, 25/01/2026 21:24 Lima)
-
-- **Diego Sánchez atajó sin guantes en la tanda, fue figura y Coquimbo se coronó Supercampeón**: [Link](https://espndeportes.espn.com/futbol/chile/nota/_/id/16228958/diego-sanchez-atajo-sin-guantes-penales-vs-universidad-catolica-coquimbo-supercopa)
-- **Coquimbo Unido y la UC definen al campeón de la Supercopa**: [Link](https://www.espn.com.ar/futbol/chile/nota/_/id/16225749/coquimbo-unido-vs-universidad-catolica-supercopa-equipo-fecha-hora-y-tv-en-vivo)
-- **Coquimbo vs U Católica: penales EN VIVO en la Supercopa de Chile**: [Link](https://www.365scores.com/es/news/coquimbo-vs-u-catolica-penales-supercopa/)
-
-
-### deportivo - racing de santander (N/A, 25/01/2026 15:30 Lima)
-
-- **Deportivo - Racing, en directo: LaLiga Hypermotion hoy en vivo**: [Link](https://as.com/futbol/segunda/deportivo-racing-en-directo-laliga-hypermotion-hoy-en-vivo-f202601-d/)
-- **Uno por uno del rival | Talento con números para volar a Primera**: [Link](https://dxtcampeon.elidealgallego.com/deportivo/rivales/2026-01-25/uno-por-uno-del-rival-talento-con-numeros-para-volar-a-primera-832419.html)
-- **Ultras del Racing de Santander, escoltados por la Policía en las calles de A Coruña**: [Link](https://www.laopinioncoruna.es/videos/deportivo/2026/01/25/ultras-racing-santander-escoltados-policia-126063676.html)
-
-
-### lille (N/A, 25/01/2026 15:30 Lima)
-
-- **Emanuel Emegha Excluded from Lille Squad**: [Link](https://www.filmogaz.com/116586)
-- **Lille predicted XI v Strasbourg: Hamza Igamane out, Hakon Arnar Haraldsson suspended**: [Link](https://ca.sports.yahoo.com/news/lille-predicted-xi-v-strasbourg-111500492.html)
-- **Preview: Lille vs Strasbourg - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/lille/preview/lille-vs-strasbourg-prediction-team-news-lineups_590465.html)
-
-
-### alavés - real betis (N/A, 25/01/2026 15:30 Lima)
-
-- **Alavés - Betis, en directo: LaLiga EA Sports, en vivo hoy**: [Link](https://as.com/futbol/primera/alaves-betis-en-directo-laliga-ea-sports-en-vivo-hoy-f202601-d/)
-- **Coudet "Estoy tranquilo dentro de que no es el escenario ideal"**: [Link](https://www.espn.com.ar/futbol/espana/nota/_/id/16218462/eduardo-coudet-tranquilo-alaves-no-es-escenario-ideal)
-- **Apuestas y Pronóstico del Alavés vs Real Betis 25/01/26**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2026/enero/pronostico-alaves-vs-real-betis-25-01-26)
-
-
-### roma - milan (N/A, 25/01/2026 15:30 Lima)
-
-- **Roma-Milan: Formazioni ufficiali e Cronaca in diretta**: [Link](https://sport.virgilio.it/dirette/live/serie-a/25-1-2026/roma-milan/2558725/)
-- **Cafù difende Leao e torna sull'addio di Theo: "Il rammarico c'è, chissà cos'avrebbe fatto con Allegri"**: [Link](https://tribuna.com/it/news/2026-01-25-cafu-difende-leao-e-torna-sulladdio-di-theo-il-rammarico-ce-chissa-cosavrebbe-fatto-con-a/)
-- **Soulé: “Partita fondamentale per la classifica. Malen ha già dimostrato il suo valore”**: [Link](https://www.forzaroma.info/news-as-roma/soule-partita-fondamentale-per-la-classifica-malen-ha-gia-dimostrato-il-suo-valore/)
-
-
-### santos vs (N/A, 25/01/2026 15:30 Lima)
-
-- **📹 Yuri Alberto and Gabigol score as Corinthians and Santos draw the derby**: [Link](https://sports.yahoo.com/articles/yuri-alberto-gabigol-score-corinthians-002900517.html)
-- **Lucas Canetto Bellote stood down for Paulistão round five after Corinthians 1-1 draw controversy**: [Link](https://onefootball.com/fr/news/lucas-canetto-bellote-stood-down-for-paulistao-round-five-after-corinthians-1-1-draw-controversy-42290023)
-- **Belo Clube vs Corinthians: partidazo en vivo por el Campeonato Paulista**: [Link](https://www.futbolperuano.com/en-vivo/campeonato-paulista-2026-belo-clube-vs-corinthians-en-vivo-561136)
-
-
-### temperatura lima (N/A, 25/01/2026 15:30 Lima)
-
-- **Ola de calor en Lima: Senamhi pronostica a cuántos grados llegaremos hoy, domingo 25 de enero**: [Link](https://www.infobae.com/peru/2026/01/25/clima-en-lima-cual-sera-la-temperatura-maxima-y-minima-este-25-de-enero/)
-- **Temperaturas llegarían hasta 37 °C en la costa, advierte el Senamhi**: [Link](https://caretas.pe/nacional/temperaturas-llegarian-hasta-37-c-en-la-costa-advierte-el-senamhi/)
-- **Lima registró el día más caluroso del verano 2026: así seguirá la temperatura en los próximos días**: [Link](https://larepublica.pe/sociedad/2026/01/24/lima-registro-el-dia-mas-caluroso-del-verano-2026-asi-seguira-la-temperatura-en-los-proximos-dias-884088)
-
-
-### boca juniors vs (N/A, 25/01/2026 15:30 Lima)
-
-- **Boca Juniors debutará en el Torneo Apertura ante Deportivo Riestra: hora, TV y probables formaciones**: [Link](https://www.infobae.com/deportes/2026/01/25/boca-juniors-debutara-en-el-torneo-apertura-ante-deportivo-riestra-hora-tv-y-probables-formaciones/)
-- **Partido - Boca Juniors vs Riestra gratis: canales de transmisión y cómo ver online**: [Link](https://elcomercio.pe/deporte-total/argentina/boca-juniors-vs-riestra-en-vivo-hoy-gratis-por-liga-argentina-a-que-hora-juegan-canal-que-pasa-y-donde-ver-via-tnt-sports-max-espn-disney-plus-video-noticia/)
-- **Dónde ver Boca vs. Riestra EN VIVO: canales para ver ESPN, TNT Sports y Disney Plus**: [Link](https://depor.com/futbol-internacional/argentina/donde-ver-boca-vs-riestra-en-vivo-gratis-canales-de-espn-tnt-sports-pelota-libre-tv-disney-plus-argentina-video-noticia/)
-
-
-### bolivia - méxico (N/A, 25/01/2026 15:30 Lima)
-
-- **Bolivia vs México EN VIVO: ¿a qué hora juegan y dónde ver el amistoso internacional en Santa Cruz?**: [Link](https://rpp.pe/futbol/futbol-mundial/bolivia-vs-mexico-en-vivo-a-que-hora-juegan-y-como-ver-amistoso-fifa-via-unitel-y-azteca-tv-gratis-partidos-de-hoy-noticia-1672923)
-- **México vs Bolivia: el 'Blue Lock' de la 'Hormiga' González**: [Link](https://www.espn.com.ar/futbol/mundial/nota/_/id/16225740/bolivia-vs-mexico-hormiga-gonzalez-amistoso-fecha-fifa)
-- **Bolivia vs México: Resultado EN VIVO, minuto a minuto y goles del amistoso**: [Link](https://www.365scores.com/es/news/bolivia-vs-mexico-resultado-vivo-goles/)
-
-
-### lille vs (N/A, 25/01/2026 15:30 Lima)
-
-- **Soriba Diaoune titulaire ? Les compositions probables pour LOSC- RC Strasbourg**: [Link](https://lepetitlillois.com/2026/01/25/soriba-diaoune-titulaire-les-compositions-probables-pour-losc-rc-strasbourg/)
-- **Emanuel Emegha n’est pas dans le groupe à Lille**: [Link](https://www.alsasports.fr/football/rc-strasbourg/emanuel-emegha-nest-pas-dans-le-groupe-a-lille/78652/)
-- **Les stats avant LOSC-Racing (J19)**: [Link](https://www.rcstrasbourgalsace.fr/les-stats-avant-losc-racing-j19/)
 
 
