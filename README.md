@@ -1,3 +1,10 @@
+### bridgerton temporada 4 (N/A, 29/01/2026 03:49 Lima)
+
+- **“Los Bridgerton”, temporada 4: resumen de la historia y cuándo se estrenan las dos partes de los episodios**: [Link](https://cnnespanol.cnn.com/2026/01/28/entretenimiento/bridgerton-temporada-4-resumen-estreno-orix)
+- **La finca del duque de Hastings, la tienda de Madame Delacroix y otros lugares en Inglaterra donde revivir ‘Los Bridgerton’**: [Link](https://elpais.com/elviajero/2026-01-28/la-finca-del-duque-de-hastings-la-tienda-de-madame-delacroix-y-otros-lugares-en-inglaterra-donde-revivir-los-bridgerton.html)
+- **Romance, lujo y diversidad: por qué fascina "Los Bridgerton"**: [Link](https://www.dw.com/es/romance-lujo-y-diversidad-por-qu%C3%A9-fascina-la-serie-los-bridgerton/a-75704618)
+
+
 ### oro (N/A, 29/01/2026 00:08 Lima)
 
 - **¿Por qué el oro superó la marca de los US$5,300 la onza?**: [Link](https://peru21.pe/economia/por-que-el-oro-supero-la-marca-de-los-us5300-la-onza/)
@@ -1024,12 +1031,5 @@
 - **Mensik withdraws from Australian Open, Djokovic into QFs**: [Link](https://www.atptour.com/en/news/mensik-australian-open-2026-withdrawal)
 - **Djokovic's Open hopes boosted as opponent withdraws**: [Link](https://aapnews.aap.com.au/news/djokovic-s-open-hopes-boosted-as-opponent-withdraws)
 - **Tennis Star Pulls Out of Australian Open Hours Before Novak Djokovic Clash**: [Link](https://www.sportbible.com/tennis/australian-open-withdrawal-novak-djokovic-198777-20260125)
-
-
-### sassuolo - cremonese (N/A, 25/01/2026 07:54 Lima)
-
-- **LIVE Sassuolo-Cremonese 1-0: Fadera in gol al terzo minuto**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Sassuolo/25-01-2026/sassuolo-cremonese-live-risultato-e-gol-in-diretta-serie-a.shtml)
-- **È l’ora di vincere**: [Link](https://www.pressreader.com/italy/la-gazzetta-dello-sport-mil/20260125/282548729684507)
-- **Sassuolo, le ultime sull’attacco. Da Berardi a Pinamonti e Thorstvedt: la probabile formazione**: [Link](https://www.sosfanta.com/squadra/sassuolo/sassuolo-le-ultime-sullattacco-da-berardi-a-pinamonti-e-thorstvedt-la-probabile-formazione/)
 
 
