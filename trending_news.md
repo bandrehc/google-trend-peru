@@ -1,3 +1,57 @@
+### juan pablo varillas (N/A, 29/01/2026 11:51 Lima)
+
+- **Juan Pablo Varillas vs Daniel Vallejo EN VIVO: ¿a qué hora juegan y dónde ver los octavos de final del Challenger de Concepción?**: [Link](https://rpp.pe/tenis/mas-tenis/juan-pablo-varillas-vs-daniel-vallejo-en-vivo-a-que-hora-juegan-y-donde-ver-octavos-de-final-challenger-concepcion-2026-via-atp-tour-link-gratis-partidos-de-hoy-noticia-1673480)
+- **Juan Pablo Varillas avanzó a octavos de final del Concepción Challenger**: [Link](https://ovacion.pe/noticias/tenis/juan-pablo-varillas-avanzo-octavos-final-del-concepcion-challenger)
+- **Juan Pablo Varillas debuta sin fisuras en el Challenger de Concepción y se alista para la Copa Davis con Perú**: [Link](https://www.infobae.com/peru/deportes/2026/01/28/juan-pablo-varillas-debuta-sin-fisuras-en-el-challenger-de-concepcion-y-se-alista-para-la-copa-davis-con-peru/)
+
+
+### al-fateh - al ittihad (N/A, 29/01/2026 11:51 Lima)
+
+- **Al Fateh Vs Al-Ittihad LIVE Score, Saudi Pro League: Mid-Table Battle Coming Up In Hofuf**: [Link](https://www.outlookindia.com/sports/football/al-fateh-vs-al-ittihad-live-score-saudi-pro-league-2025-26-matchday-19-updates)
+- **Conceição Reveals Al-Ittihad's Offensive Strategy Against Al-Fateh After Benzema's Absence**: [Link](https://www.ysscores.com/en/news/13900528/Concei%C3%A7%C3%A3o-Reveals-Al-Ittihad's-Offensive-Strategy-Against-Al-Fateh-After-Benzema's-Absence)
+- **Channels Broadcasting Al-Fateh vs. Al-Ittihad in 2025-2026 Saudi Roshn League**: [Link](https://www.filmogaz.com/121883)
+
+
+### athina onassis (N/A, 29/01/2026 11:51 Lima)
+
+- **Athina Onassis Steps Back Into the Paris Spotlight**: [Link](https://www.tovima.com/celebrities/athina-onassis-steps-back-into-the-paris-spotlight/)
+- **Athina Onassis makes rare public appearance at Paris Haute Couture week**: [Link](https://en.protothema.gr/2026/01/28/athina-onassis-makes-rare-public-appearance-at-paris-haute-couture-week/)
+- **Athina Onassis Makes Rare Public Appearance at Paris Haute Couture Week**: [Link](https://greekreporter.com/2026/01/28/athina-onassis-makes-rare-public-appearance-paris/)
+
+
+### playstation plus (N/A, 29/01/2026 11:51 Lima)
+
+- **PS Plus Essential Games for February 2026 Announced**: [Link](https://www.pushsquare.com/news/2026/01/ps-plus-essential-games-for-february-2026-announced)
+- **PlayStation Plus Monthly Games for February 2026 Offer Ace Combat 7, Subnautica and More**: [Link](https://www.gamerbraves.com/playstation-plus-monthly-games-for-february-2026-offer-ace-combat-7-subnautica-and-more/)
+- **From Frozen Seas to Fighter Jets: February’s PS Plus Games Revealed**: [Link](https://www.star1027.com.au/trending/gaming/new-month-new-obsession-why-februarys-ps-plus-lineup-is-the-ultimate-time-waster/)
+
+
+### movistar (N/A, 29/01/2026 11:51 Lima)
+
+- **Movistar anunció que transmitirá los partidos de Liga 1 2026: L1 Max tendrá dos canales en su parrilla, sin costo adicional**: [Link](https://www.infobae.com/peru/deportes/2026/01/29/movistar-anuncio-que-transmitira-los-partidos-de-liga-1-2026-l1-max-tendra-dos-canales-en-su-parrilla-sin-costo-adicional/)
+- **El tetracampeonato, el objetivo y la obsesión de Universitario de Deportes de cara a la Liga 1 2026**: [Link](https://www.espn.com.ar/futbol/peru/nota/_/id/16240368/universitario-objetivos-de-la-liga-1-de-peru-2026-tetracampeonato)
+- **Movistar anunció el regreso del fútbol peruano a su parrilla de canales: ¿Cuánto más tendrás que pagar?**: [Link](https://depor.com/futbol-peruano/descentralizado/movistar-hizo-oficial-la-integracion-de-l1-max-en-su-parrilla-de-canales-desde-cuando-se-podra-ver-y-cual-sera-el-nuevo-precio-liga-1-2026-video-noticia/)
+
+
+### local de votacion 2026 (N/A, 29/01/2026 11:51 Lima)
+
+- **Elecciones 2026: ONPE ya está enviando correos con local de votación asignado**: [Link](https://andina.pe/agencia/noticia-elecciones-2026-onpe-ya-esta-enviando-correos-local-votacion-asignado-1060632.aspx)
+- **Elecciones 2026: Conoce AQUÍ cómo verificar tu local de votación asignado vía ONPE**: [Link](https://www.exitosanoticias.pe/actualidad/elecciones-2026-conoce-aqui-como-verificar-tu-local-votacion-asignado-via-onpe-n167400)
+- **ONPE notifica locales de votación mediante correo electrónico**: [Link](https://www.cronicaviva.com.pe/onpe-notifica-locales-de-votacion-mediante-correo-electronico/)
+
+
+### rawayana (N/A, 29/01/2026 11:51 Lima)
+
+- **Rawayana trae su Tour “¿Dónde es el after?” a Costa 21**: [Link](https://caretas.pe/entretenimiento/rawayana-lima-2026-donde-es-el-after/)
+- **Rawayana, la banda venezolana ícono del reggae, llega a Lima con su tour ‘¿Dónde es el after?’: lugar, fecha y entradas**: [Link](https://larepublica.pe/entretenimiento/2026/01/28/rawayana-la-banda-venezolana-icono-del-reggae-llega-a-lima-con-su-tour-donde-es-el-after-lugar-fecha-y-entradas-1411200)
+- **Venezuela: Rawayana vuelve a Lima con el tour '¿Dónde es el after?'**: [Link](https://peru21.pe/cultura/venezuela-rawayana-vuelve-lima-con-el-tour-donde-es-el-after/)
+
+
+### exitosa en vivo (N/A, 29/01/2026 11:51 Lima)
+
+Sin noticias relacionadas disponibles.
+
+
 ### rybakina (N/A, 29/01/2026 08:10 Lima)
 
 - **Rybakina One Step Away from Australian Open Final: When and Where to Watch**: [Link](https://qrnews.kz/en/news/rybakina-one-step-away-from-australian-open-final-when-and-where-to-watch-ulg1R)
@@ -975,61 +1029,5 @@
 - **Soriba Diaoune titulaire ? Les compositions probables pour LOSC- RC Strasbourg**: [Link](https://lepetitlillois.com/2026/01/25/soriba-diaoune-titulaire-les-compositions-probables-pour-losc-rc-strasbourg/)
 - **Emanuel Emegha n’est pas dans le groupe à Lille**: [Link](https://www.alsasports.fr/football/rc-strasbourg/emanuel-emegha-nest-pas-dans-le-groupe-a-lille/78652/)
 - **Les stats avant LOSC-Racing (J19)**: [Link](https://www.rcstrasbourgalsace.fr/les-stats-avant-losc-racing-j19/)
-
-
-### sport boys (N/A, 25/01/2026 15:30 Lima)
-
-- **Sport Boys vs. Everton: Sepa dónde ver hoy el partido amistoso del conjunto Rosado**: [Link](https://andina.pe/agencia/noticia-sport-boys-vs-everton-sepa-donde-ver-hoy-partido-amistoso-del-conjunto-rosado-1060607.aspx)
-- **Sport Boys presentó a sus convocados para Trofeo Lizárraga**: [Link](https://ovacion.pe/noticias/sport-boys/sport-boys-presento-sus-convocados-trofeo-lizarraga)
-- **Sport Boys vs Everton Viña del Mar EN VIVO por Trofeo Lizárraga 2026: hora y dónde ver el partido**: [Link](https://larepublica.pe/deportes/2026/01/24/sport-boys-vs-everton-en-vivo-trofeo-lizarraga-2026-hoy-329064)
-
-
-### juventus - napoli (N/A, 25/01/2026 11:32 Lima)
-
-- **Juve-Napoli, le ufficiali: confermato David. Gioca Meret, Giovane in panchina**: [Link](https://www.eurosport.it/calcio/serie-a/2025-2026/juventus-napoli-le-formazioni-ufficiali-spalletti-conferma-david.-meret-al-posto-di-milinkovic-savic-vergara-titolare.-giovane-in-panchina_sto23263039/story.shtml)
-- **Juve-Napoli: Sky, Dazn o NOW? Dove vederla in tv e in streaming**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Juventus/25-01-2026/juve-napoli-sky-dazn-now-ecco-vederla-tv-streaming_amp.shtml)
-- **Serie A | Le formazioni ufficiali di Juventus-Napoli**: [Link](https://www.juventus.com/it/news/articoli/serie-a-2025-2026-juventus-napoli-formazioni-ufficiali)
-
-
-### feyenoord vs (N/A, 25/01/2026 11:32 Lima)
-
-- **Europa League: Tranquila victoria de Feyenoord por 3 a 0 frente a Sturm Graz**: [Link](https://rpp.pe/futbol/ligas-internacionales/europa-league-sturm-graz-se-enfrentara-a-feyenoord-por-la-fecha-7-noticia-1672433)
-- **Preview: Feyenoord vs Heracles - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/feyenoord/preview/feyenoord-vs-heracles-prediction-team-news-lineups_590553.html)
-- **Feyenoord vs Heracles - prediction, team news, lineups...**: [Link](https://www.rugby-addict.com/en-ie/article/home/feyenoord-vs-heracles-prediction-team-news-lineups/6973f01e122f5708ac023275)
-
-
-### feyenoord - heracles (N/A, 25/01/2026 11:32 Lima)
-
-- **LIVE eredivisie | Ueda denkt score voor Feyenoord te openen, maar handsbal zet streep door zijn goal**: [Link](https://www.gelderlander.nl/voetbal/live-eredivisie-ueda-denkt-score-voor-feyenoord-te-openen-maar-handsbal-zet-streep-door-zijn-goal~a8fab2d6/)
-- **LIVE | Heracles schiet raak vanaf elf meter en staat gelijk in De Kuip**: [Link](https://www.destentor.nl/almelo/live-heracles-schiet-raak-vanaf-elf-meter-en-staat-gelijk-in-de-kuip~ac8b053c/)
-- **Heracles in aangepaste formatie van start tegen Feyenoord**: [Link](https://www.tubantia.nl/heracles/heracles-in-aangepaste-formatie-van-start-tegen-feyenoord~ac8b053c/)
-
-
-### arsenal - manchester united (N/A, 25/01/2026 11:32 Lima)
-
-- **Arsenal vs Manchester United Confirmed Lineups for January 25 at the Emirates**: [Link](https://lastwordonsports.com/football/2026/01/25/arsenal-vs-manchester-united-confirmed-lineups-january/)
-- **Arsenal Host Manchester United in High-Stakes Premier League Showdown**: [Link](https://www.dawan.africa/news/arsenal-host-manchester-united-in-high-stakes-premier-league-showdown)
-- **'Looking at that weekend overall, we gained a point on the teams around us': Odegaard on positives in Forest draw**: [Link](https://tribuna.com/en/news/2026-01-25-looking-at-that-weekend-overall-we-gained-a-point-on-the-teams-around-us-odegaard-on-posi/)
-
-
-### metz - lyon (N/A, 25/01/2026 11:32 Lima)
-
-- **L'OL sans Pavel Sulc mais avec Khalis Merah pour affronter Metz**: [Link](https://www.lequipe.fr/Football/Actualites/L-ol-sans-pavel-sulc-mais-avec-khalis-merah-pour-affronter-metz/1636444)
-- **DIRECT. Ligue 1: suivez le multiplex de la 19e journée en live**: [Link](https://rmcsport.bfmtv.com/football/ligue-1/direct-ligue-1-suivez-le-multiplex-de-la-19e-journee-en-live_LS-202601250255.html)
-- **OL : faire le trou derrière et garder le contact du podium**: [Link](https://www.olympique-et-lyonnais.com/ol-faire-le-trou-derriere-et-garder-le-contact-du-podium,389306.html)
-
-
-### hearts - celtic f. c. (N/A, 25/01/2026 11:32 Lima)
-
-- **Sunday's Scottish Premiership - Hearts v Celtic & Rangers v Dundee - radio & text**: [Link](https://www.bbc.com/sport/football/live/cx2xg1kp177t)
-- **Team’s Up – Araujo returns and there’s a debut for Cvancara**: [Link](https://thecelticstar.com/teams-up-araujo-returns-and-theres-a-debut-for-cvancara/)
-- **67 Hail Hail fans have their say on if Reo Hatate should start for Celtic against Hearts**: [Link](https://www.67hailhail.com/match/67-hail-hail-fans-have-their-say-on-if-reo-hatate-should-start-for-celtic-against-hearts/)
-
-
-### juan foyth (N/A, 25/01/2026 11:32 Lima)
-
-- **Foyth sufre rotura del tendón de Aquiles**: [Link](https://www.marca.com/futbol/villarreal/2026/01/25/foyth-sufre-rotura-tendon-aquiles.html)
-- **Villarreal confirmó que Juan Foyth se rompió el tendón de Aquiles ante Real Madrid**: [Link](https://www.espn.com.ar/futbol/espana/nota/_/id/16222998/juan-foyth-lesion-parte-medico-se-rompio-tendon-aquiles-villarreal-vs-real-madrid)
-- **Grave contratiempo para el Villarreal ante el Madrid a las primeras de cambio**: [Link](https://www.mundodeportivo.com/futbol/villarreal/20260124/1002607871/serio-contratiempo-villarreal-madrid-primeras-cambio.html)
 
 
