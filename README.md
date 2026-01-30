@@ -1,3 +1,38 @@
+### australia open (N/A, 30/01/2026 03:49 Lima)
+
+- **Tennis world loses it over Aussie duo after matching 62yo feat and winning $900K**: [Link](https://au.news.yahoo.com/tennis-world-loses-it-as-aussies-match-62-year-old-margaret-court-feat-and-win-900000-041736248.html)
+- **Aussie Mixed Doubles Team Nears End of 37-Year Title Drought**: [Link](https://www.filmogaz.com/124343)
+- **Australian Open: Defending Champs Gadecki/Peers Rally Past Mladenovic/Guinard in Super Tie-Break Thriller**: [Link](https://en.tennistemple.com/actu/australian-open-defending-champs-gadecki/SRd8)
+
+
+### thunder - timberwolves (N/A, 30/01/2026 03:49 Lima)
+
+- **Takeaways: Timberwolves thump NBA-best Thunder 123-111 for third victory in a row**: [Link](https://www.startribune.com/takeaways-timberwolves-thump-nba-best-thunder-123-111-for-third-victory-in-a-row/601549925)
+- **Anthony Edwards News: Turns in strong overall showing**: [Link](https://www.rotowire.com/basketball/headlines/anthony-edwards-news-turns-in-strong-overall-showing-516442)
+- **Thunder vs. Timberwolves prediction: NBA odds, picks, best bet for Thursday**: [Link](https://www.aol.com/articles/thunder-vs-timberwolves-prediction-nba-223000423.html)
+
+
+### inpe (N/A, 30/01/2026 03:49 Lima)
+
+- **Fernando Rospigliosi sobre el caso ‘El Mostruo’: “Eso demuestra que la Policía está haciendo su trabajo”**: [Link](https://comunicaciones.congreso.gob.pe/noticias/fernando-rospigliosi-sobre-el-caso-el-mostruo-eso-demuestra-que-la-policia-esta-haciendo-su-trabajo/)
+- **El “Monstruo” rapado y de blanco: ¿Bukelismo a la chalaca?**: [Link](https://caretas.pe/politica/el-monstruo-rapado-y-de-blanco-bukelismo-a-la-chalaca/)
+- **"Cristo vive", grita Erick Moreno Hernández a la prensa durante su traslado**: [Link](https://www.atv.pe/noticia/cristo-vive-grita-erick-moreno-hernandez-a-la-prensa-durante-su-traslado/)
+
+
+### alcaraz vs zverev (N/A, 30/01/2026 03:49 Lima)
+
+- **‘F***ing bulls**t’: Zverev BLOWS up at umpire after No.1’s dramatic moment rocks AO**: [Link](https://www.foxsports.com.au/tennis/australian-open-2026-alexander-zverev-rages-after-carlos-alcaraz-injury-medical-time-out-mens-singles-semi-final-reactions-latest-news/news-story/3ace4bd520dbb834e7e142ac1c6574dd)
+- **TNT Sports forced to apologise after X-rated Alexander Zverev outburst vs Carlos Alcaraz**: [Link](https://www.express.co.uk/sport/tennis/2164478/Carlos-Alcaraz-Alexander-Zverev-tennis)
+- **Cramps hinder Alcaraz’s Australian dream**: [Link](https://www.claytenis.com/features/cramps-hinder-alcarazs-australian-dream/)
+
+
+### reniec (N/A, 30/01/2026 03:49 Lima)
+
+- **Miraflores y Reniec extienden a todo febrero campaña gratuita de DNI electrónico**: [Link](https://www.miraflores.gob.pe/miraflores-y-reniec-extienden-a-todo-febrero-campana-gratuita-de-dni-electronico/)
+- **Reniec lanza campaña nacional para tramitar el DNI gratis: revisa quiénes pueden acceder y los puntos de atención en todo el Perú**: [Link](https://www.infobae.com/peru/2026/01/27/reniec-lanza-campana-nacional-para-tramitar-el-dni-gratis-revisa-quienes-pueden-acceder-y-los-puntos-de-atencion-en-todo-el-peru/)
+- **¿Eres beneficiario para el DNI electrónico gratis en 2026? revisa si figuras en la lista y cómo obtener el documento**: [Link](https://gestion.pe/mix/respuestas/eres-beneficiario-para-el-dni-electronico-gratis-en-2026-revisa-si-figuras-en-la-lista-y-como-obtener-el-documento-nnda-nnrt-noticia/)
+
+
 ### alcaraz (N/A, 30/01/2026 00:11 Lima)
 
 - **Carlos Alcaraz - Alexander Zverev, en directo | semifinal del Open de Australia en vivo**: [Link](https://www.marca.com/tenis/open-australia/carlos-alcaraz-alexander-zverev/2026/01/30/04_0401_20260130_125-directo.html)
@@ -994,40 +1029,5 @@ Sin noticias relacionadas disponibles.
 - **Bus del Metropolitano choca contra puente en estación México: accidente deja varios heridos**: [Link](https://www.infobae.com/peru/2026/01/26/bus-del-metropolitano-choca-contra-puente-en-estacion-mexico-y-deja-varios-heridos/)
 - **Bus del Metropolitano se estrelló contra base de puente en la Estación México**: [Link](https://canaln.pe/actualidad/bus-metropolitano-se-estrello-contra-base-puente-estacion-mexico-n489854)
 - **Bus del Metropolitano choca contra puente en La Victoria y genera intenso tráfico en la Vía Expresa**: [Link](https://larepublica.pe/sociedad/2026/01/26/bus-del-metropolitano-choca-contra-puente-en-la-victoria-y-genera-intenso-trafico-en-la-via-expresa-1981096)
-
-
-### australian open (N/A, 26/01/2026 08:00 Lima)
-
-- **Sinner races through in Melbourne as Djokovic looms into view**: [Link](https://www.rfi.fr/en/sports/20260126-sinner-races-through-in-melbourne-as-djokovic-looms-into-view)
-- **Jannik Sinner’s Opponent Loses Control in Ugly Australian Open Meltdown**: [Link](https://sports.yahoo.com/articles/jannik-sinner-opponent-loses-control-101119913.html)
-- **Tennis, ATP – Australian Open 2026: Sinner sees off Darderi**: [Link](https://www.tennismajors.com/australian-open-news/the-aura-of-infallibility-sinner-outlasts-darderi-in-all-italian-masterclass-842743.html)
-
-
-### precio dolar (N/A, 26/01/2026 08:00 Lima)
-
-- **Precio del dólar en Perú hoy, sábado 24 de enero: cuál es la cotización del día**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-a-cuanto-esta-el-dolar-y-tipo-de-cambio-este-sabado-24-de-enero-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
-- **Así se depreció el valor del dólar: Estos fueron los factores, según el BCRP**: [Link](https://www.infobae.com/peru/2026/01/24/asi-se-deprecio-el-valor-del-dolar-estos-fueron-los-factores-segun-el-bcrp/)
-- **Dólar, cotización HOY en Perú: ¿cuál es el tipo de cambio este lunes 26 de enero de 2026?**: [Link](https://www.expreso.com.pe/economia/dolar-cotizacion-hoy-en-peru-cual-es-el-tipo-de-cambio-este-lunes-26-de-enero-de-2026-sunat-mef-bcrp-ultima-hora-ultimo-minuto-precio-soles-divisa-noticia/1258514/)
-
-
-### ben shelton (N/A, 26/01/2026 08:00 Lima)
-
-- **Australian Open 2026: Maddison Inglis loses to World No.2 Iga Swiatek in fourth round**: [Link](https://sportnation.nz/article/australian-open-2026-maddison-inglis-loses-to-world-no-2-iga-swiatek-fourth-round)
-- **Australian Open: Shelton Rallies Past Ruud in Four Sets to Reach Quarters, Sets Sinner Clash**: [Link](https://en.tennistemple.com/actu/australian-open-shelton-rallies-past-ruu/Zu3f)
-- **Rampant Swiatek meets old foe Rybakina in Australian Open quarters**: [Link](https://www.rfi.fr/en/sports/20260126-rampant-swiatek-ends-inglis-fairytale-at-australian-open)
-
-
-### sorteo la tinka hoy (N/A, 26/01/2026 08:00 Lima)
-
-- **¡Reventó La Tinka! Sorteo del domingo 25 de enero entregó más de S/ 19 millones**: [Link](https://www.infobae.com/peru/2026/01/26/resultados-de-la-tinka-de-este-25-de-enero-todos-los-numeros-ganadores-del-ultimo-sorteo/)
-- **Reventó La Tinka: números ganadores y resultados del Pozo Millonario del domingo 25 de enero**: [Link](https://depor.com/peru/la-tinka-hoy-en-vivo-ver-resultados-del-ultimo-sorteo-domingo-25-de-enero-a-que-hora-se-juegan-donde-ver-numeros-jugada-ganadora-del-pozo-millonario-de-s19505138-intralot-resultado-si-o-si-boliyapa-peru-noticia/)
-- **Hay un nuevo millonario en el Perú: Afortunado se llevó 19 millones y medio de soles de la Tinka**: [Link](https://trome.com/actualidad/revento-la-tinka-afortunado-se-llevo-19-millones-y-medio-de-soles-en-cajamarca-noticia/)
-
-
-### videos (N/A, 26/01/2026 08:00 Lima)
-
-- **Republican senators join calls for fuller investigation into Minneapolis killing**: [Link](https://www.bbc.com/news/live/c3ve67195gyt)
-- **Donald Trump says his administration is reviewing Alex Pretti shooting**: [Link](https://www.theguardian.com/us-news/2026/jan/26/donald-trump-administration-reviewing-alex-pretti-shooting)
-- **Video, witnesses shed new light on moments before agents fatally shot Alex Pretti**: [Link](https://www.cnn.com/2026/01/25/us/alex-pretti-shooting-minneapolis-videos-witnesses-invs)
 
 
