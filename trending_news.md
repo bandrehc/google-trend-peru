@@ -1,3 +1,59 @@
+### explosión volcán sabancaya (N/A, 30/01/2026 08:08 Lima)
+
+- **Arequipa: condiciones climatológicas evitan mayor dispersión de ceniza de volcán Sabancaya**: [Link](https://andina.pe/agencia/noticia-arequipa-condiciones-climatologicas-evitan-mayor-dispersion-ceniza-volcan-sabancaya-1061273.aspx)
+- **Volcán Sabancaya registró explosión de cenizas que alcanzó 3.400 metro de altura y genera alerta naranja en Arequipa, según IGP**: [Link](https://larepublica.pe/sociedad/2026/01/29/volcan-sabancaya-registro-explosion-de-cenizas-que-alcanzo-3400-metro-de-altura-y-genera-alerta-naranja-en-arequipa-segun-igp-1105306)
+- **Alerta en Arequipa: Volcán Sabancaya vuelve a expulsar cenizas y pone en riesgo a poblaciones**: [Link](https://diariocorreo.pe/edicion/arequipa/alerta-en-arequipa-sabancaya-expulsa-cenizas-y-pone-en-riesgo-a-poblaciones-noticia/)
+
+
+### play off champions league (N/A, 30/01/2026 08:08 Lima)
+
+- **Champions League draw: Newcastle to face Qarabag; Real to face Mourinho's Benfica**: [Link](https://www.bbc.com/sport/football/live/cdjnk8re7e7t)
+- **The Daily Zona Mista: Friday, Jan. 30**: [Link](https://sports.yahoo.com/articles/daily-zona-mista-friday-jan-105500597.html)
+- **UEFA Champions League: The playoff matchups are set! (Official)**: [Link](https://foot-africa.com/en/news/uefa-champions-league-the-playoff-matchups-are-set-official-1064822/)
+
+
+### uefa (N/A, 30/01/2026 08:08 Lima)
+
+- **UEFA Avrupa Ligi'nde kuralar çekildi! Fenerbahçe'nin Play-Off rakibi belli oldu**: [Link](https://www.hurriyet.com.tr/sporarena/live-uefa-avrupa-liginde-kuralar-cekildi-fenerbahcenin-play-off-rakibi-belli-oldu-43096237)
+- **İsmail Yüksek: 'Bu oyun bize yakışmadı'**: [Link](https://www.msn.com/tr-tr/spor/other/%C4%B0smail-y%C3%BCksek-bu-oyun-bize-yak%C4%B1%C5%9Fmad%C4%B1/ar-AA1Vhrzj?cvid=697ca138c6fa47b681dac2fe7670ea06&ocid=winp2fp)
+- **Fenerbahçe taraftarı yıldız isim için ''O olmasaydı maç farka giderdi'' diyor**: [Link](https://www.sondakika.com/amp/haber-fenerbahce-taraftari-yildiz-isim-icin-o-19517619/)
+
+
+### novak djokovic (N/A, 30/01/2026 08:08 Lima)
+
+- **Australian Open 2026 semi-finals LIVE: Jannik Sinner vs Novak Djokovic - scores, radio & updates**: [Link](https://www.bbc.com/sport/tennis/live/c3dnjg02mn8t)
+- **Sinner leads rival Djokovic as Alcaraz awaits in Australian Open final**: [Link](https://www.msn.com/en-gb/sport/tennis/djokovic-challenges-sinner-as-alcaraz-awaits-in-australian-open-final/ar-AA1VjFeS)
+- **Sinner Shines Against Djokovic in Australian Open 2026 Semifinal, Albanese Attends**: [Link](https://www.filmogaz.com/124822)
+
+
+### jannik sinner (N/A, 30/01/2026 08:08 Lima)
+
+- **LIVE Sinner-Djokovic 6-3 1-2: senza break nel secondo set**: [Link](https://www.gazzetta.it/Tennis/atp/slam/australian-open/30-01-2026/sinner-djokovic-live-semifinale-australian-open-diretta.shtml)
+- **Sinner rimette la testa avanti; Jannik in vantaggio 2 set a 1 nella semifinale con Djokovic**: [Link](https://tennismagazineitalia.it/news/sinner-rimette-la-testa-avanti-jannik-in-vantaggio-2-set-a-1-nella-semifinale-con-djokovic/)
+- **Sinner a caccia della terza finale in Australia: sulla sua strada c’è il Djoker**: [Link](https://www.altoadige.it/sport/sinner-a-caccia-della-terza-finale-in-australia-sulla-sua-strada-c-%C3%A8-il-djoker-1.4280390)
+
+
+### video de la cantante de explosión de iquitos (N/A, 30/01/2026 08:08 Lima)
+
+- **Caso de difusión de video íntimo es un delito criminal**: [Link](https://diariolaregion.com/caso-de-difusion-de-video-intimo-es-un-delito-criminal/)
+- **¿Quién es Marilya Gonzales, la figura principal de la orquesta Explosión de Iquitos?**: [Link](https://www.infobae.com/peru/2026/01/29/quien-es-marilya-gonzales-la-cantante-de-explosion-de-iquitos-que-se-volvio-tendencia-por-un-supuesto-video-intimo/)
+- **Marilya Gonzales video viral de la cantante de Explosión de Iquitos en Telegram y Twitter**: [Link](https://www.televicentro.com/marilya-gonzales-video-viral-de-la-cantante-de-explosion-de-iquitos-en-telegram-y-twitter-2026-01-29)
+
+
+### australian open 2026 (N/A, 30/01/2026 08:08 Lima)
+
+- **Australian Open prize money breakdown: How much will the winners make from 2026 purse?**: [Link](https://sports.yahoo.com/articles/australian-open-prize-money-breakdown-060001167.html)
+- **2026 Australian Open prize money payouts for every winner**: [Link](https://ftw.usatoday.com/story/sports/tennis/2026/01/30/australian-open-2026-payouts-prize-money-women-men/88416902007/)
+- **Australian Open Prize Money Boosts Champions and Semi-Finalists Significantly**: [Link](https://news.ssbcrack.com/australian-open-prize-money-boosts-champions-and-semi-finalists-significantly/)
+
+
+### sorteo champions (N/A, 30/01/2026 08:08 Lima)
+
+- **Sorteo de playoffs de la Champions League 2025/2026: equipos, emparejamientos, formato, hora y cómo ver por TV e internet**: [Link](https://cnnespanol.cnn.com/2026/01/29/deportes/sorteo-playoffs-champions-league-2025-2026-orix)
+- **Benfica-Real Madrid en el playoff de la Champions**: [Link](https://www.realmadrid.com/es-ES/noticias/futbol/primer-equipo/actualidad/bod-glimt-o-benfica-real-madrid-en-el-playoff-de-la-champions-30-01-2026)
+- **Así te hemos contado el sorteo de la ronda de dieciseisavos de la Champions League**: [Link](https://elpais.com/deportes/futbol/2026-01-30/sorteo-de-la-champions-league-equipos-partidos-y-cruces-de-los-dieciseisavos-de-final.html)
+
+
 ### australia open (N/A, 30/01/2026 03:49 Lima)
 
 - **Tennis world loses it over Aussie duo after matching 62yo feat and winning $900K**: [Link](https://au.news.yahoo.com/tennis-world-loses-it-as-aussies-match-62-year-old-margaret-court-feat-and-win-900000-041736248.html)
@@ -973,61 +1029,5 @@ Sin noticias relacionadas disponibles.
 - **PGL Wallachia Season 7 invites revealed**: [Link](https://esportsinsider.com/2026/01/pgl-wallachia-season-7-invited-teams)
 - **PGL announce invited teams for PGL Wallachia Season 7**: [Link](https://esports-news.co.uk/2026/01/26/pgl-announce-invited-teams-for-pgl-wallachia-season-7/)
 - **PGL Wallachia Season 7 closed qualifier invites revealed**: [Link](https://esportsinsider.com/2026/01/pgl-wallachia-season-7-closed-qualifier-invites)
-
-
-### hellas verona - udinese (N/A, 26/01/2026 15:33 Lima)
-
-- **Serie A Enilive 2025/26 | #VeronaUdinese: Gates Open at 6.45 PM**: [Link](https://www.hellasverona.it/en/news/serie-a-enilive-2025-26-veronaudinese-gates-open-at-6-45-pm)
-- **Serie A: Verona vs. Udinese – Confirmed line-ups and updates**: [Link](https://football-italia.net/serie-a-verona-vs-udinese-confirmed-line-ups/)
-- **Verona v Udinese: Orban and Atta start, Montipò out ✅**: [Link](https://onefootball.com/en/news/verona-v-udinese-orban-and-atta-start-montipo-out-42306626)
-
-
-### nipah (N/A, 26/01/2026 11:40 Lima)
-
-- **Airports launch COVID-style health checks after outbreak of deadly virus**: [Link](https://www.foxnews.com/travel/airports-launch-covid-style-health-checks-outbreak-deadly-virus)
-- **Airports across Asia reintroduce Covid-style health checks after outbreak of deadly Nipah virus in India**: [Link](https://www.the-independent.com/asia/nipah-virus-outbreak-india-covid-screening-travel-warnings-b2907456.html)
-- **Taiwan to list Nipah virus as Category 5 disease after India outbreak**: [Link](https://focustaiwan.tw/society/202601250006)
-
-
-### local de votacion 2026 (N/A, 26/01/2026 11:40 Lima)
-
-- **Elecciones 2026: ONPE inicia envío de correos con local de votación asignado**: [Link](https://andina.pe/agencia/noticia-elecciones-2026-onpe-inicia-envio-correos-local-votacion-asignado-1060632.aspx)
-- **Elecciones 2026: Conoce AQUÍ cómo verificar tu local de votación asignado vía ONPE**: [Link](https://www.exitosanoticias.pe/actualidad/elecciones-2026-conoce-aqui-como-verificar-tu-local-votacion-asignado-via-onpe-n167400)
-- **ONPE notifica locales de votación mediante correo electrónico**: [Link](https://www.cronicaviva.com.pe/onpe-notifica-locales-de-votacion-mediante-correo-electronico/)
-
-
-### dni (N/A, 26/01/2026 11:40 Lima)
-
-- **Tradycyjna karczma i ludowe stroje. Tak bawili się maturzyści w Górowie Iławeckim**: [Link](https://radioolsztyn.pl/tradycyjna-karczma-i-ludowe-stroje-tak-bawili-sie-maturzysci-w-gorowie-ilaweckim/01853172)
-- **Studniówka 2026 Zespołu Szkół w Skępem. Zatańczono poloneza dokładnie 100 dni przed maturą. Zdjęcia**: [Link](https://lipno.naszemiasto.pl/studniowka-2026-zespolu-szkol-w-skepem-zatanczono-poloneza-dokladnie-100-dni-przed-matura-zdjecia/ar/c5p2-28669447)
-- **Studniówka w Zespole Szkół Ponadpodstawowych w Ziębicach [foto]**: [Link](https://zabkowice.express-miejski.pl/galeria/21318,studniowka-w-zespole-szkol-ponadpodstawowych-w-ziebicach-foto)
-
-
-### año 2026 (N/A, 26/01/2026 11:40 Lima)
-
-- **Elecciones 2026: JNE presentará lista final de candidatos el 14 de marzo**: [Link](https://andina.pe/agencia/noticia-elecciones-2026-jne-presentara-lista-final-candidatos-14-marzo-1060567.aspx)
-- **Elecciones 2026: 36 fórmulas presidenciales fueron inscritas por el JEE tras superar periodo de tachas**: [Link](https://www.exitosanoticias.pe/politica/elecciones-2026-36-formulas-presidenciales-fueron-inscritas-jee-tras-superar-periodo-tachas-n167355)
-- **Elecciones 2026: estas son las 36 fórmulas que competirán en las urnas el 12 de abril**: [Link](https://elperuano.pe/noticia/287913-elecciones-2026-estas-son-las-36-formulas-que-competiran-en-las-urnas-el-12-de-abril)
-
-
-### tinka 25 de enero 2026 (N/A, 26/01/2026 11:40 Lima)
-
-- **¡Reventó La Tinka! Sorteo del domingo 25 de enero entregó más de S/ 19 millones**: [Link](https://www.infobae.com/peru/2026/01/26/resultados-de-la-tinka-de-este-25-de-enero-todos-los-numeros-ganadores-del-ultimo-sorteo/)
-- **Reventó La Tinka: números ganadores y resultados del Pozo Millonario del domingo 25 de enero**: [Link](https://depor.com/peru/la-tinka-hoy-en-vivo-ver-resultados-del-ultimo-sorteo-domingo-25-de-enero-a-que-hora-se-juegan-donde-ver-numeros-jugada-ganadora-del-pozo-millonario-de-s19505138-intralot-resultado-si-o-si-boliyapa-peru-noticia/)
-- **Hay un nuevo millonario en el Perú: Afortunado se llevó 19 millones y medio de soles de la Tinka**: [Link](https://trome.com/actualidad/revento-la-tinka-afortunado-se-llevo-19-millones-y-medio-de-soles-en-cajamarca-noticia/)
-
-
-### el comercio (N/A, 26/01/2026 11:40 Lima)
-
-- **José Jerí pierde respaldo ciudadano: su aprobación cae a 33%, según el IEP**: [Link](https://larepublica.pe/politica/2026/01/26/jose-jeri-pierde-respaldo-ciudadano-aprobacion-cae-a-33-segun-iep-hnews-1307688)
-- **Aprobación de José Jerí cae diez puntos tras crisis por reuniones con empresario chino, revela encuesta de Datum**: [Link](https://elcomercio.pe/politica/gobierno/encuesta-datum-internacional-aprobacion-de-jeri-cae-al-41-y-queda-por-debajo-de-su-desaprobacion-por-primera-vez-tlc-nota-noticia/)
-- **Aprobación de José Jerí cae 10 puntos tras escándalo por reuniones con empresarios chinos**: [Link](https://www.americatv.com.pe/noticias/actualidad/aprobacion-jose-jeri-cae-10-puntos-escandalo-reuniones-empresarios-chinos-n515172)
-
-
-### metropolitano (N/A, 26/01/2026 08:00 Lima)
-
-- **Bus del Metropolitano choca contra puente en estación México: accidente deja varios heridos**: [Link](https://www.infobae.com/peru/2026/01/26/bus-del-metropolitano-choca-contra-puente-en-estacion-mexico-y-deja-varios-heridos/)
-- **Bus del Metropolitano se estrelló contra base de puente en la Estación México**: [Link](https://canaln.pe/actualidad/bus-metropolitano-se-estrello-contra-base-puente-estacion-mexico-n489854)
-- **Bus del Metropolitano choca contra puente en La Victoria y genera intenso tráfico en la Vía Expresa**: [Link](https://larepublica.pe/sociedad/2026/01/26/bus-del-metropolitano-choca-contra-puente-en-la-victoria-y-genera-intenso-trafico-en-la-via-expresa-1981096)
 
 
