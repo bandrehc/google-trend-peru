@@ -1,3 +1,71 @@
+### clima lima (N/A, 29/01/2026 21:33 Lima)
+
+- **¡Lima es un horno! La capital soportó el día más caluroso del verano según Senamhi**: [Link](https://peru21.pe/lima/la-capital-soporto-el-dia-mas-caluroso-del-verano-segun-senamhi/)
+- **SENAMHI: Pronóstico del clima hoy jueves 29 de enero 2026**: [Link](https://rpp.pe/peru/actualidad/senamhi-pronostico-del-clima-hoy-jueves-29-de-enero-2026-noticia-1673509)
+- **Lima registró la temperatura más alta del verano 2026: llegó a 32.6°C**: [Link](https://andina.pe/agencia/noticia-lima-registro-temperatura-mas-alta-del-verano-2026-llego-a-326%C2%B0c-1060887.aspx)
+
+
+### open (N/A, 29/01/2026 21:33 Lima)
+
+- **Australian Open live: Alcaraz-Zverev, Sinner-Djokovic in semis; Raducanu splits with eighth coach in five years**: [Link](https://www.espn.com/tennis/story/_/id/47771423/australian-open-2026-live-updates-match-schedule-results-men-semifinals-alcaraz-zverev-sinner-djokovic)
+- **Tennis expert reveals Australian Open men's semifinal picks, bets, predictions**: [Link](https://www.cbssports.com/tennis/news/2026-australian-open-mens-semifinal-picks-best-bets-odds-sinner-alcaraz-zverev-over-35-5/)
+- **Carlos Alcaraz vs. Alexander Zverev: Australian Open semifinal preview and pick**: [Link](https://www.tennis.com/news/articles/carlos-alcaraz-alexander-zverev-australian-open-semifinal-preview-pick)
+
+
+### argentinos juniors vs (N/A, 29/01/2026 21:33 Lima)
+
+- **Cuándo juegan Estudiantes RC vs Argentinos Juniors por el Torneo Apertura 2026: equipo, fecha, hora y TV en vivo**: [Link](https://espndeportes.espn.com/futbol/argentina/nota/_/id/16237230/estudiantes-rc-vs-argentinos-juniors-por-el-torneo-apertura-2026-equipo-fecha-hora-y-tv-en-vivo)
+- **En fotos: la ilusión de hinchas del León del Imperio en la vuelta a Primera**: [Link](https://www.cadena3.com/noticia/futbol/en-fotos-la-ilusion-de-hinchas-del-leon-del-imperio-en-la-vuelta-a-primera_514065)
+- **Sarmiento - Banfield en directo - Primera A: Resultados y resúmenes de Fútbol - 30/01/2026**: [Link](https://www.eurosport.es/futbol/primera-a/2026/live-sarmiento-banfield_mtc1656494/live.shtml)
+
+
+### sarmiento vs banfield (N/A, 29/01/2026 21:33 Lima)
+
+- **Polémica en Junín: penal y roja para Banfield, con cambio de tarjeta y pese al llamado del VAR, y gol de Sarmiento**: [Link](https://www.espn.com.ar/futbol/argentina/nota/_/id/16246409/video-polemica-junin-penal-roja-banfield-gol-sarmiento)
+- **Sarmiento busca revancha ante Banfield en un duelo clave por los promedios**: [Link](https://www.lt10.com.ar/noticia/488046--sarmiento-busca-revancha-ante-banfield-en-un-duelo-clave-por-los-promedios&seccion=futbol)
+- **Sarmiento vs Banfield, por el Torneo Apertura EN VIVO: minuto en minuto, en directo**: [Link](https://www.clarin.com/deportes/sarmiento-vs-banfield-torneo-apertura-vivo-hora-probables-formaciones-ver-directo_0_bBLQIhqZv1.html)
+
+
+### movistar tv (N/A, 29/01/2026 21:33 Lima)
+
+- **¡Confirmado! Movistar anuncia que transmitirá los partidos de la Liga 1: conozca los detalles**: [Link](https://elcomercio.pe/economia/partidos-de-la-liga-1-se-trasmitiran-en-movistar-tv-este-2026-ultimas-noticia/)
+- **Programación televisiva de la fecha 1 del Torneo Apertura de la Liga 1 2026: así se transmitirán todos los partidos por L1 Max**: [Link](https://www.infobae.com/peru/deportes/2026/01/28/programacion-televisiva-de-la-fecha-1-del-torneo-apertura-de-la-liga-1-2026-asi-se-transmitiran-todos-los-partidos-por-l1-max/)
+- **Vuelve la Liga 1 y L1MAX inicia una temporada recargada con todos los partidos y más contenidos originales**: [Link](https://depor.com/futbol-peruano/descentralizado/vuelve-la-liga-1-y-l1max-inicia-una-temporada-recargada-con-todos-los-partidos-y-mas-contenidos-originales-noticia/)
+
+
+### américa - once caldas (N/A, 29/01/2026 21:33 Lima)
+
+- **Pronóstico América de Cali Once Caldas - Primera A Colombia 29/01/26**: [Link](https://www.sportytrader.com/es/pronosticos/america-de-cali-once-caldas-322802/)
+- **Qué canal pasa América de Cali vs Once Caldas hoy: dónde ver el partido gratis y en vivo de la Liga BetPlay**: [Link](https://www.365scores.com/es/news/canal-tv-america-vs-once-caldas-gratis/)
+- **América le igualó a Once Caldas por golazo de Mateo Castillo**: [Link](https://www.winsports.co/futbol-colombiano/noticias/america-le-igualo-a-once-caldas-por-golazo-de-mateo-castillo-405073)
+
+
+### temblor arequipa (N/A, 29/01/2026 21:33 Lima)
+
+- **Temblor en Perú hoy, jueves 29 de enero: sismos recientes reportados por el IGP**: [Link](https://elcomercio.pe/respuestas/temblor-en-peru-hoy-ultimo-sismo-de-enero-en-vivo-cual-fue-el-epicentro-y-magnitud-segun-ultimos-reportes-del-igp-instituto-geofisico-del-peru-lima-callao-lbposting-noticia/)
+- **Un sismo de magnitud 4.9 remeció la región Ica esta madrugada**: [Link](https://rpp.pe/peru/ica/ica-sismo-de-magnitud-49-remecio-la-region-esta-madrugada-noticia-1673511)
+- **Temblor en Ica: sismo de magnitud 4,9 remeció Nasca, según IGP**: [Link](https://larepublica.pe/sociedad/2026/01/29/temblor-en-ica-sismo-de-magnitud-49-remecio-nasca-segun-igp-mdga-1956775)
+
+
+### liga 1 (N/A, 29/01/2026 21:33 Lima)
+
+- **A qué hora juega Alianza Lima vs Sport Huancayo: partido por fecha 1 del Torneo Apertura de la Liga 1 2026**: [Link](https://www.infobae.com/peru/deportes/2026/01/29/a-que-hora-juega-alianza-lima-vs-sport-huancayo-partido-fecha-1-torneo-apertura-liga-1-2026-horario/)
+- **Mosquera y lo que le dijo a sus jugadores para vencer a Alianza**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/mosquera-y-lo-que-le-dijo-sus-jugadores-vencer-alianza-n452504)
+- **Jairo Vélez estableció prioridades en Alianza Lima: “Enfocado en lo que realmente importa”**: [Link](https://depor.com/futbol-peruano/descentralizado/jairo-velez-alianza-lima-el-volante-establecio-prioridades-en-el-club-enfocado-en-lo-que-importa-liga-1-noticia/)
+
+
+### mirassol vs (N/A, 29/01/2026 21:33 Lima)
+
+Sin noticias relacionadas disponibles.
+
+
+### botafogo vs (N/A, 29/01/2026 21:33 Lima)
+
+- **Botafogo vs Cruzeiro Pronóstico: Previa y Análisis del Partido | Serie A 30-01-2026**: [Link](https://betmines.com/es/analisis-partido/botafogo-vs-cruzeiro-pronostico-previa-y-analisis-serie-a-30-01-2026)
+- **Botafogo vs Cruzeiro: previa, horario y cómo llegan para la fecha 1 del Brasileirao**: [Link](https://zona.palmsbet.pe/deportes/futbol/botafogo-vs-cruzeiro-previa-horario-y-como-llegan-para-la-fecha-1-del-brasileirao/)
+- **Botafogo - RJ vs Cruzeiro pronostico y comparación de cuotas 30.01.2026**: [Link](https://www.livetipsportal.com/es/pronosticos-apuestas-deportivas/botafogo-rj-vs-cruzeiro-serie-a-11809294/)
+
+
 ### lyon vs (N/A, 29/01/2026 15:37 Lima)
 
 - **OL : le pari insensé de Paulo Fonseca face au PAOK**: [Link](https://www.football365.fr/ol-le-pari-insense-de-paulo-fonseca-face-au-paok-10276753.html)
@@ -960,74 +1028,5 @@ Sin noticias relacionadas disponibles.
 
 - **Congresista Kira Alcarraz protagoniza otro incidente: se resiste a intervención y hace gestos obscenos a policías**: [Link](https://elcomercio.pe/politica/congreso/congresista-kira-alcarraz-protagoniza-otro-incidente-se-resiste-a-intervencion-y-hace-gestos-obscenos-a-policias-san-borja-pnp-ultimas-noticia/)
 - **Congresista Kira Alcarraz vuelve a ser intervenida por la PNP y su conductor queda detenido tras dosaje etílico positivo**: [Link](https://www.infobae.com/peru/2026/01/26/kira-alcarraz-vuelve-a-ser-intervenida-por-la-pnp-y-su-conductor-queda-detenido-tras-dosaje-etilico-positivo/)
-
-
-### concierto hoy lima (N/A, 25/01/2026 23:58 Lima)
-
-- **My Chemical Romance en Lima: posible setlist, horarios, accesos y todo sobre su concierto en el Estadio Nacional**: [Link](https://rpp.pe/musica/conciertos/my-chemical-romance-en-lima-2026-setlist-de-canciones-horarios-accesos-y-lo-que-se-sabe-del-historico-concierto-en-estadio-nacional-noticia-1672795)
-- **Fans de My Chemical Romance ya hacen filas fuera del Estadio Nacional a pocos días del concierto**: [Link](https://trome.com/actualidad/my-chemical-romance-fans-de-la-banda-ya-hacen-filas-fuera-del-estadio-nacional-a-pocos-dias-del-concierto-video-fotos-noticia/)
-- **Gana entradas dobles para ver a The Hives y My Chemical Romance**: [Link](https://www.oxigeno.com.pe/concursos/gana-entradas-dobles-para-ver-a-the-hives-y-my-chemical-romance-noticia-1672486)
-
-
-### once caldas - santa fe (N/A, 25/01/2026 21:24 Lima)
-
-- **Pronóstico Once Caldas Santa Fe - Primera A Colombia 25/01/26**: [Link](https://www.sportytrader.com/es/pronosticos/once-caldas-santa-fe-321613/)
-- **Once Caldas vs Santa Fe hoy: Resultado EN VIVO, minuto a minuto y goles de la Liga BetPlay**: [Link](https://www.365scores.com/es/news/once-caldas-vs-santa-fe-resultado-vivo/)
-- **Dayro vs Rodallega, un duelo de presente que suma muchos goles**: [Link](https://www.futbolred.com/futbol-colombiano/liga-betplay/dayro-moreno-y-hugo-rodallega-dos-goleadores-que-confirman-buen-presente-y-realidad-261247)
-
-
-### argentinos juniors vs (N/A, 25/01/2026 21:24 Lima)
-
-- **Cuándo juegan Argentinos Juniors vs. Sarmiento por la primera fecha del Torneo Apertura: equipo, fecha, hora y TV en vivo**: [Link](https://espndeportes.espn.com/futbol/argentina/nota/_/id/16216490/argentinos-juniors-vs-sarmiento-fecha-1-torneo-apertura-2026-equipo-fecha-hora-y-tv-en-vivo)
-- **Argentinos vs Sarmiento: Resultado EN VIVO, minuto a minuto y goles de la Liga Profesional**: [Link](https://www.365scores.com/es/news/argentinos-vs-sarmiento-resultado-vivo/)
-- **Se cierra la fecha en La Paternal y Victoria**: [Link](https://www.eldia.com/nota/2026-1-25-2-18-33-se-cierra-la-fecha-en-la-paternal-y-victoria-deportes)
-
-
-### corinthians (N/A, 25/01/2026 21:24 Lima)
-
-- **📋 Corinthians ESCALADO para novo desafio no Paulistão**: [Link](https://onefootball.com/en/news/corinthians-escalado-para-novo-desafio-no-paulistao-42301785)
-- **Yuri Alberto sai do banco, marca no fim e evita vexame do Corinthians para o Velo Clube fora de casa**: [Link](https://www.estadao.com.br/esportes/futebol/velo-clube-x-corinthians-paulistao-5-rodada-analise/)
-- **Comentário de Victor Hugo em 'Jogo do Corinthians ao vivo'**: [Link](https://www.meutimao.com.br/comentario/16509133/meu_deus_o_dorival_empatando_o_jogo_com_velo)
-
-
-### pedro aquino (N/A, 25/01/2026 21:24 Lima)
-
-- **Sergio Peña, Carlos Zambrano y Miguel Trauco se pronunciaron tras denuncia**: [Link](https://www.espn.com.pe/futbol/peru/nota/_/id/16219546/alianza-lima-sergio-pena-carlos-zambrano-y-miguel-trauco-se-pronunciaron-tras-denuncia)
-- **Pablo Guede sobre Zambrano, Trauco y Peña: “No tengo ganas de seguir revolviendo cosas que me hacen mal”**: [Link](https://depor.com/futbol-peruano/descentralizado/alianza-lima-pablo-guede-hablo-de-jugadores-denunciados-por-abuso-sexual-carlos-zambrano-miguel-trauco-y-sergio-pena-liga-1-2026-noticia/)
-- **DíaD: ¡Participa con la pregunta!**: [Link](https://www.atv.pe/noticia/diad-participa-con-la-pregunta/)
-
-
-### gremio vs (N/A, 25/01/2026 21:24 Lima)
-
-- **(VIDEO) Noriega jugó los 90 minutos el Clásico frente a Inter**: [Link](https://ovacion.pe/noticias/peruanos-mundo/video-noriega-jugo-90-minutos-clasico-frente-inter)
-- **Internacional vs Gremio: partidazo en vivo por el Campeonato Gaúcho**: [Link](https://www.futbolperuano.com/en-vivo/campeonato-gaucho-2026-internacional-vs-gremio-en-vivo-561140)
-
-
-### silent hill (N/A, 25/01/2026 21:24 Lima)
-
-- **Return to Silent Hill: Video game sequel is more of the same**: [Link](https://www.rogerebert.com/reviews/return-to-silent-hill-video-game-movie-review-2026)
-- **‘Return to Silent Hill’ Review: A Macabre Spectacle**: [Link](https://www.nytimes.com/2026/01/22/movies/return-to-silent-hill-review.html)
-- **You Know Video Game Adaptations Are Cooked When ‘Silent Hill’ (2006) Has Aged This Well**: [Link](https://www.indiewire.com/features/best-of/silent-hill-2006-christophe-gans-reboot-20th-anniversary-1235174762/)
-
-
-### warriors - timberwolves (N/A, 25/01/2026 21:24 Lima)
-
-- **Warriors vs. Timberwolves: Prediction, How to Watch (1/25/26)**: [Link](https://globelynews.com/sports/warriors-vs-timberwolves-prediction-how-to-watch-1-25-26/)
-- **What are Steph and Ant plotting?**: [Link](https://bvmsports.com/2026/01/25/what-are-steph-and-ant-plotting-%F0%9F%98%85-nbc-sports-bay-area/)
-- **Steph Curry is available today in Minnesota.**: [Link](https://www.hoopshype.com/story/sports/nba/rumors/2026/01/25/steph-curry-is-available-today-in-minnesota/88353594007/)
-
-
-### internacional - grêmio (N/A, 25/01/2026 21:24 Lima)
-
-- **Internacional vence o Grêmio pelo Gauchão em clássico de seis gols**: [Link](https://www.cnnbrasil.com.br/esportes/futebol/campeonato-gaucho/internacional-vence-o-gremio-pelo-gauchao-em-classico-de-seis-gols/)
-- **O trator colorado atropelou o Grêmio**: [Link](https://gauchazh.clicrbs.com.br/colunistas/pedro-ernesto-denardin/noticia/2026/01/o-trator-colorado-atropelou-o-gremio-cmkui5ggh02re013g7bg4hhnr.html)
-- **Inter vence Gre-Nal de virada e Juventude goleia na sequência da 5ª rodada do Gauchão Superbet 2026**: [Link](https://www.fgf.com.br/noticia/Inter-vence-gre-nal-de-virada-e-juventude-goleia-na-sequencia-da-5-rodada-do-gauchao-superbet-2026)
-
-
-### millonarios - junior (N/A, 25/01/2026 21:24 Lima)
-
-- **Liga Betplay: Millonarios cayó en El Campín ante el campeón Junior**: [Link](https://www.espn.com.ar/futbol/colombia/nota/_/id/16218083/liga-betplay-millonarios-cayo-en-el-campin-ante-el-campeon-junior)
-- **Regresaron los suplicios**: [Link](https://onefootball.com/es/noticias/regresaron-los-suplicios-42302348)
-- **¡Hasta ahí le llegó la confianza a Hernán Torres! De Amores nuevamente lesionado**: [Link](https://www.elfutbolero.com.co/primeraa/hasta-ahi-le-llego-la-confianza-a-hernan-torres-de-amores-nuevamente-lesionado-20260125-73371.html)
 
 
