@@ -1,3 +1,45 @@
+### sport huancayo - alianza lima (N/A, 30/01/2026 11:47 Lima)
+
+- **Pablo Guede sale con sus mejores armas: la alineación de Alianza Lima vs. Sport Huancayo**: [Link](https://depor.com/futbol-peruano/descentralizado/alineacion-alianza-lima-vs-sport-huancayo-en-vivo-formacion-y-titulares-de-pablo-guede-con-paolo-guerrero-liga-1-2026-fotos-noticia/)
+- **"Huancayo blanquiazul": así fue el banderazo de los hinchas de Alianza Lima previo al inicio del Torneo Apertura**: [Link](https://rpp.pe/futbol/descentralizado/alianza-lima-asi-fue-el-banderazo-de-hinchas-blanquiazules-previo-a-enfrentar-a-sport-huancayo-noticia-1673662)
+- **Sport Huancayo vs Alianza Lima: Posible alineación de Guede**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/posible-once-alianza-lima-debut-ante-sport-huancayo-n452511)
+
+
+### colonia vs (N/A, 30/01/2026 11:47 Lima)
+
+- **Colonia vs Wolfsburgo por la fecha 20 de Bundesliga de Alemania EN VIVO. Seguilo minuto a minuto por la web de TN.**: [Link](https://tn.com.ar/deportes/futbol/2026/01/30/colonia-vs-wolfsburgo-en-vivo-por-la-fecha-20-de-la-bundesliga-de-alemania-hora-donde-ver-y-formaciones/)
+- **Colônia vs Wolfsburg Pronóstico- Apuestas y Cuotas – 30/1/2026**: [Link](https://theplayoffs.news/cl/colonia-vs-wolfsburg-apuestas-pronosticos-cuotas-30-1-2026/)
+- **Köln – Wolfsburg: horario y dónde ver hoy por TV el partido de fútbol de la Bundesliga**: [Link](https://www.lavanguardia.com/deportes/futbol/20260130/17276/horario-partido-ca-koln-wolfsburg-ctx.html)
+
+
+### harris dickinson (N/A, 30/01/2026 11:47 Lima)
+
+- **‘The Beatles’ First Look: Paul Mescal Is Paul McCartney, Barry Keoghan Is Ringo Starr and More in Four-Movie Event**: [Link](https://variety.com/2026/film/news/beatles-movies-photos-paul-mescal-paul-mccartney-1236644754/)
+- **First The Beatles biopic stills revealed on postcards**: [Link](https://kz.kursiv.media/en/2026-01-30/engk-nknk-first-the-beatles-biopic-stills-revealed-on-postcards/)
+- **Sam Mendes’ ‘The Beatles – A Four-Film Cinematic Event’: First look at cast in costume**: [Link](https://www.imdb.com/news/ni65683798/?ref_=nmnw_art_perm)
+
+
+### djokovic vs (N/A, 30/01/2026 11:47 Lima)
+
+- **Carlos Alcaraz, el más joven en alcanzar la final en los cuatro Grand Slam**: [Link](https://www.espn.com.pe/tenis/nota/_/id/16247215/carlos-alcaraz-el-mas-joven-en-alcanzar-la-final-en-los-cuatro-grand-slam-alexander-zverev-australian-open)
+- **Djokovic & Alcaraz win five-set epics to reach Australian Open final**: [Link](https://www.bbc.com/sport/tennis/articles/clyn9l0zvnpo)
+- **Sinner on painful Djokovic defeat: 'It hurts, for sure'**: [Link](https://www.atptour.com/en/news/sinner-australian-open-2026-reaction-friday)
+
+
+### gerente general tottus peru (N/A, 30/01/2026 11:47 Lima)
+
+- **Tottus Perú redefine su liderazgo y nombra a Denise Labarthe como gerente general**: [Link](https://www.expreso.com.pe/economia/tottus-peru-redefine-su-liderazgo-y-nombra-a-denise-labarthe-como-gerente-general-comercio-electronico-retail-expansion-noticia/1259792/)
+- **Tottus cambia de mando en Perú con una nueva gerente general**: [Link](https://www.justretail.news/latam/noticias/tottus-cambia-de-mando-en-peru-con-una-nueva-gerente-general/)
+- **Denise Labarthe es nombrada nueva gerente general de Tottus Perú**: [Link](https://lacamara.pe/denise-labarthe-es-nueva-gerente-general-de-tottus-ccl-asociados-camara-de-comercio-de-lima/?print=print)
+
+
+### cuanto es la multa por no votar (N/A, 30/01/2026 11:47 Lima)
+
+- **¿Cuánto es la multa que debo pagaré si no cumplo como miembro de mesa?**: [Link](https://gestion.pe/mix/respuestas/cuanto-es-la-multa-que-debo-pagar-si-no-cumplo-como-miembro-de-mesa-nnda-nnrt-noticia/)
+- **Multas en las Elecciones 2026: Todas las sanciones económicas que el JNE impondrá**: [Link](https://www.infobae.com/peru/2026/01/30/multas-en-las-elecciones-2026-todas-las-sanciones-economicas-que-el-jne-impondra/)
+- **Elecciones 2026: JNE explica diferencias entre encuestas electorales y sondeos de opinión**: [Link](https://andina.pe/agencia/noticia-elecciones-2026-jne-explica-diferencias-entre-encuestas-electorales-y-sondeos-opinion-1060636.aspx)
+
+
 ### explosión volcán sabancaya (N/A, 30/01/2026 08:08 Lima)
 
 - **Arequipa: condiciones climatológicas evitan mayor dispersión de ceniza de volcán Sabancaya**: [Link](https://andina.pe/agencia/noticia-arequipa-condiciones-climatologicas-evitan-mayor-dispersion-ceniza-volcan-sabancaya-1061273.aspx)
@@ -987,47 +1029,5 @@ Sin noticias relacionadas disponibles.
 - **César Peixoto: “Não vamos ao Dragão para jogar bonito e perder por três ou quatro”**: [Link](https://onefootball.com/de/news/cesar-peixoto-nao-vamos-ao-dragao-para-jogar-bonito-e-perder-por-tres-ou-quatro-42299777)
 - **Porto x Gil Vicente no Campeonato Português: onde assistir ao vivo, horário e escalação**: [Link](https://www.estadao.com.br/esportes/futebol/porto-x-gil-vicente-no-campeonato-portugues-onde-assistir-ao-vivo-horario-e-escalacao-npres/)
 - **Froholdt pronto para ir à luta**: [Link](https://www.pressreader.com/portugal/o-jogo/20260126/281754160736275)
-
-
-### pacers - hawks (N/A, 26/01/2026 15:33 Lima)
-
-- **NBA Games Today: Is There a Basketball Game on TV Tonight? Complete Monday Schedule**: [Link](https://www.profootballnetwork.com/nba/nba-games-today-complete-monday-schedule-26-january/)
-- **How to watch Pacers vs. Hawks: TV channel and streaming options for January 26**: [Link](https://www.nytimes.com/athletic/6999082/2026/01/26/how-to-watch-pacers-vs-hawks-tv-channel-and-streaming-options-for-january-26/)
-- **Sixers to face off against Charlotte Hornets in matinee thanks to snow**: [Link](https://www.libertyballers.com/76ers-game-previews/84880/sixers-escape-snow-to-face-off-against-charlotte-hornets)
-
-
-### girona (N/A, 26/01/2026 15:33 Lima)
-
-- **LaLiga EA Sports: Getafe quiere vencer y quitarle la racha positiva a Girona**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-getafe-quiere-vencer-y-quitarle-la-racha-positiva-a-girona-noticia-1672978)
-- **Pronósticos Girona vs. Getafe: Un partido para sacar la cabeza del fondo**: [Link](https://gainblers.com/pe/pronosticos/futbol/espana/liga-primera-division/pronostico-girona-getafe-26-01-2026/)
-- **Lo que debes saber del Girona-Getafe de LaLiga**: [Link](https://www.flashscore.pe/noticias/futbol-laliga-ea-sports-previa-girona-getafe-j21/I1ETKcQp/)
-
-
-### girona - getafe (N/A, 26/01/2026 15:33 Lima)
-
-- **Preview: Girona vs Getafe - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/girona/preview/girona-vs-getafe-prediction-team-news-lineups_590586.html)
-- **Girona’s head coach Michel reveals how many points need to secure by season’s end**: [Link](https://tribuna.com/en/news/2026-01-26-gironas-head-coach-michel-reveals-how-many-points-need-to-secure-by-seasons-end/)
-- **Montilivi wants to extend Girona's winning streak**: [Link](https://sports.yahoo.com/articles/montilivi-wants-extend-gironas-winning-120500860.html)
-
-
-### everton - leeds (N/A, 26/01/2026 15:33 Lima)
-
-- **Everton v Leeds United: Premier League – live**: [Link](https://www.theguardian.com/football/live/2026/jan/26/everton-v-leeds-united-premier-league-live)
-- **bet365 bonus code UK: Use MYBETCODE for Premier League free bets**: [Link](https://mybettingsites.co.uk/news/bet365-bonus-code-uk-use-mybetcode-for-premier-league-free-bets-january-26/)
-- **Andy Burnham makes brilliant Dominic Calvert-Lewin prediction ahead of Leeds United vs Everton**: [Link](https://www.yorkshireeveningpost.co.uk/sport/football/leeds-united/leeds-united-andy-burnham-dominic-calvert-lewin-everton-5490958)
-
-
-### laura huarcayo (N/A, 26/01/2026 15:33 Lima)
-
-- **¿Niño Alfredito como conductor de MQM?**: [Link](https://www.americatv.com.pe/mande-quien-mande/nino-alfredito-nuevo-conductor-mande-quien-mande-noticia-162571)
-- **Laura Huarcayo: Su regreso a la TV, disfruta su soltería, su tipo de hombre, la infidelidad y más**: [Link](https://trome.com/espectaculos/tv/laura-huarcayo-su-regreso-a-la-tv-disfruta-su-solteria-su-tipo-de-hombre-la-infidelidad-y-mas-mande-quien-mande-entrevista-video-farandula-noticia/)
-- **Erick Elera se suma a la conducción del programa 'MQM' junto a Laura Huarcayo y 'La Carlota'**: [Link](https://rpp.pe/famosos/farandula/erick-elera-se-une-a-conduccion-de-programa-mande-quien-mande-con-laura-huarcayo-y-carlos-vilchez-la-carlota-noticia-1672518)
-
-
-### pgl wallachia season 7 (N/A, 26/01/2026 15:33 Lima)
-
-- **PGL Wallachia Season 7 invites revealed**: [Link](https://esportsinsider.com/2026/01/pgl-wallachia-season-7-invited-teams)
-- **PGL announce invited teams for PGL Wallachia Season 7**: [Link](https://esports-news.co.uk/2026/01/26/pgl-announce-invited-teams-for-pgl-wallachia-season-7/)
-- **PGL Wallachia Season 7 closed qualifier invites revealed**: [Link](https://esportsinsider.com/2026/01/pgl-wallachia-season-7-closed-qualifier-invites)
 
 
