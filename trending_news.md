@@ -1,3 +1,73 @@
+### utc cajamarca - atlético grau (N/A, 30/01/2026 15:36 Lima)
+
+- **VER, UTC vs Atlético Grau EN VIVO por la fecha 1 del Torneo Apertura 2026**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/utc-vs-atletico-grau-en-vivo-hora-canal-tv-y-donde-ver-la-fecha-1-del-torneo-apertura-2026-liga-1-video-transmision-l1-max-l1-play-tdpe-noticia/)
+- **Liga 1: Grau visita a UTC por la fecha 1**: [Link](https://rpp.pe/futbol/descentralizado/liga-1-grau-visita-a-utc-por-la-fecha-1-noticia-1673558)
+- **🔴 #ENVIVO | UTC empata 0-0 con Atlético Grau en Cajamarca**: [Link](https://ovacion.pe/noticias/liga1-2026/envivo-utc-empata-0-0-atletico-grau-cajamarca)
+
+
+### lazio vs (N/A, 30/01/2026 15:36 Lima)
+
+- **Serie A Matchday 23 Live Blog – Lazio vs Genoa**: [Link](https://ca.sports.yahoo.com/news/serie-matchday-23-live-blog-193500317.html)
+- **Sarri to Make Three Changes to Lazio Starting Lineup Against Genoa**: [Link](https://thelaziali.com/2026/01/30/sarri-to-make-three-changes-to-lazio-starting-lineup-against-genoa/)
+- **Iron defence meets leaky backline as Lazio host Genoa**: [Link](https://www.besoccer.com/new/iron-defence-meets-leaky-backline-as-lazio-host-genoa-1392146)
+
+
+### wolfsburg (N/A, 30/01/2026 15:36 Lima)
+
+- **Liveticker | 1. FC Köln - VfL Wolfsburg : | 20. Spieltag | Bundesliga 2025/26**: [Link](https://www.kicker.de/koeln-gegen-wolfsburg-2026-bundesliga-5050928/ticker)
+- **1. FC Köln Führung Archive**: [Link](https://come-on-fc.com/tag/1-fc-koeln-fuehrung/)
+- **Wolfsburg schmeißt Amoura aus dem Kader**: [Link](https://www.fussballtransfers.com/a4590615906263532671-wolfsburg-schmeisst-amoura-aus-dem-kader)
+
+
+### nac - twente (N/A, 30/01/2026 15:36 Lima)
+
+- **VI Live: spanning om te snijden in Breda, ADO wéér op achterstand**: [Link](https://www.vi.nl/nieuws/vi-live-spanning-om-te-snijden-in-breda-ado-w-r-op-achterstand)
+- **Van den Brom verklaart verrassende basisplek Verschueren: "Kan het laatste zetje zijn"**: [Link](https://www.twenteinsite.nl/fc-twente-nieuws/van-den-brom-verklaart-verrassende-basisplek-verschueren-kan-het-laatste-zetje-zijn)
+- **Unnerstall terug op doel bij Twente voor 'avondje NAC' • Bosz: 'Gaan titel aanvallen'**: [Link](https://nos.nl/liveblog/2600263-unnerstall-terug-op-doel-bij-twente-voor-avondje-nac-bosz-gaan-titel-aanvallen)
+
+
+### lazio - genoa (N/A, 30/01/2026 15:36 Lima)
+
+- **LIVE Lazio-Genoa 0-0 Serie A 2025/2026: Fischio d’inizio Lazio Genoa**: [Link](https://sport.virgilio.it/dirette/live/serie-a/30-1-2026/lazio-genoa/2558732/)
+- **🗣️ Colombo: “La vittoria con il Bologna ha mostrato le qualità del Genoa”**: [Link](https://onefootball.com/id/berita/colombo-la-vittoria-con-il-bologna-ha-mostrato-le-qualita-del-genoa-42332264)
+- **Tutto il calcio in Diretta**: [Link](https://www.diretta.it/news/calcio-live-news-le-ufficiali-di-lazio-genoa-le-avversarie-delle-italiane-in-champions-e-europa-league/4hRDOYR1/)
+
+
+### lens - le havre (N/A, 30/01/2026 15:36 Lima)
+
+- **Pronostic Lens - Le Havre, Ligue 1**: [Link](https://www.sportytrader.com/pronostics/lens-le-havre-322738/)
+- **PRONOS PARIS RMC Le pari football de Lionel Charbonnier du 30 janvier - Ligue 1**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-football-de-lionel-charbonnier-du-30-janvier-ligue-1_AN-202601300670.html)
+- **RC Lens – HAC : les Lensois peuvent-ils immédiatement repartir de l’avant ?**: [Link](https://le11hdf.fr/rc-lens-hac-repartir-de-lavant/)
+
+
+### espanyol vs (N/A, 30/01/2026 15:36 Lima)
+
+- **Preview: Espanyol vs Alaves - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/espanyol/preview/espanyol-vs-alaves-prediction-team-news-lineups_590820.html)
+- **Call-up List Announced**: [Link](https://www.filmogaz.com/125480)
+- **González: "Keeping a clean sheet is half the battle"**: [Link](https://www.rcdespanyol.com/en/new/gonzalez-keeping-a-clean-sheet-is-half-the-battle/19756)
+
+
+### mi pobre angelito (N/A, 30/01/2026 15:36 Lima)
+
+- **Muere a los 71 años la actriz Catherine O’Hara, estrella de "Mi pobre angelito"**: [Link](https://cnnespanol.cnn.com/2026/01/30/entretenimiento/catherine-ohara-muere-mi-pobre-angelito-trax)
+- **Muere la actriz Catherine O’Hara, la madre de Kevin en ‘Solo en casa’, a los 71 años**: [Link](https://elpais.com/cultura/2026-01-30/muere-la-actriz-catherine-ohara-la-madre-de-kevin-en-solo-en-casa-a-los-71-anos.html)
+- **Murió Catherine O’Hara, estrella de ‘Beetlejuice’ y ‘Mi pobre angelito’**: [Link](https://www.infobae.com/entretenimiento/2026/01/30/murio-catherine-ohara-estrella-de-beetlejuice-y-mi-pobre-angelito/)
+
+
+### copa libertadores (N/A, 30/01/2026 15:36 Lima)
+
+- **Falleció Alfredo Davicce, histórico presidente de River**: [Link](https://espndeportes.espn.com/futbol/argentina/nota/_/id/16249348/fallecio-alfredo-davicce-historico-presidente-de-river)
+- **Dolor en River por la muerte de uno de sus presidentes más exitosos**: [Link](https://www.mendozapost.com/deportes/dolor-river-muerte-uno-de-sus-presidentes-mas-exitosos/)
+- **Murió Alfredo Davicce, el presidente con el que River ganó su segunda Copa Libertadores**: [Link](https://tn.com.ar/deportes/futbol/2026/01/30/luto-en-river-murio-alfredo-davicce-expresidente-del-club-que-consiguio-la-copa-libertadores/)
+
+
+### rcd espanyol - alavés (N/A, 30/01/2026 15:36 Lima)
+
+- **LaLiga EA Sports: Espanyol y Alavés se miden por la fecha 22**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-espanyol-y-alaves-se-miden-por-la-fecha-22-noticia-1673556)
+- **Todo lo que debes saber sobre el fútbol en directo para el 30/01/26**: [Link](https://www.flashscore.pe/noticias/futbol-champions-league-futbol-en-directo-l-onces-confirmados-en-el-espanyol-alaves/8CbN9uyG/)
+- **Lo que debes saber del Espanyol-Alavés de LaLiga**: [Link](https://www.flashscore.pe/noticias/futbol-laliga-ea-sports-previa-espanyol-alaves-j22/d0kuf6As/)
+
+
 ### sport huancayo - alianza lima (N/A, 30/01/2026 11:47 Lima)
 
 - **Pablo Guede sale con sus mejores armas: la alineación de Alianza Lima vs. Sport Huancayo**: [Link](https://depor.com/futbol-peruano/descentralizado/alineacion-alianza-lima-vs-sport-huancayo-en-vivo-formacion-y-titulares-de-pablo-guede-con-paolo-guerrero-liga-1-2026-fotos-noticia/)
@@ -959,75 +1029,5 @@ Sin noticias relacionadas disponibles.
 - **Rosángela Espinoza y su reacción al ver a José Jerí**: [Link](https://www.americatv.com.pe/mas-espectaculos/rosangela-se-emociono-al-ver-jose-jeri-palacio-mi-casa-noticia-162561)
 - **Rosángela Espinoza se emociona al reconocer al presidente José Jerí durante sesión de fotos en el Centro de Lima**: [Link](https://www.infobae.com/peru/2026/01/25/rosangela-espinoza-se-emociona-al-reconocer-al-presidente-jose-jeri-durante-sesion-de-fotos-en-el-centro-de-lima/)
 - **Rosángela Espinoza FASCINADA tras tener encuentro INESPERADO con José Jerí: "Las coincidencias"**: [Link](https://www.exitosanoticias.pe/espectaculos/rosangela-espinoza-fascinada-tras-tener-encuentro-inesperado-jose-jeri-las-coincidencias-n167334)
-
-
-### iva jovic (N/A, 26/01/2026 21:21 Lima)
-
-- **America's new teen tennis sensation Iva Jovic, 18, wades into Trump debate with 'peace' plea to her home country**: [Link](https://www.dailymail.co.uk/sport/tennis/article-15496455/iva-jovic-tennis-trump-debate-peace.html)
-- **Where to watch Aryna Sabalenka vs. Iva Jovic today: Australian Open free stream**: [Link](https://www.syracuse.com/tv/2026/01/where-to-watch-aryna-sabalenka-vs-iva-jovic-today-australian-open-free-stream.html)
-- **Amanda Anisimova shares what she's already noticed about Iva Jovic's tennis after seeing her in Melbourne**: [Link](https://tennishead.net/amanda-anisimova-shares-what-shes-already-noticed-about-iva-jovics-tennis-after-seeing-her-in-melbourne/)
-
-
-### elecciones (N/A, 26/01/2026 21:21 Lima)
-
-- **Miembro de mesa 2026: la multa que pagarás si no te presentas el 12 de abril**: [Link](https://rpp.pe/politica/elecciones/miembro-de-mesa-2026-la-multa-que-pagaras-si-no-te-presentas-el-12-de-abril-noticia-1672791)
-- **Elecciones 2026: Estas son las fechas claves para conocer si eres miembro de mesa y tu local de votación**: [Link](https://www.infobae.com/peru/2026/01/24/elecciones-2026-estas-son-las-fechas-claves-para-conocer-si-eres-miembro-de-mesa-y-tu-local-de-votacion/)
-- **Elecciones 2026: sorteo público de miembros de mesa será este 29 de enero**: [Link](https://elperuano.pe/noticia/287929-elecciones-2026-sorteo-publico-de-miembros-de-mesa-sera-este-29-de-enero)
-
-
-### hawks - pacers (N/A, 26/01/2026 21:21 Lima)
-
-- **Dyson goes off as epic play stuns; Aussie’s surging club makes another statement — NBA Wrap**: [Link](https://www.foxsports.com.au/basketball/nba/nba-2026-dyson-daniels-johnny-furphy-josh-green-indiana-pacers-v-atlanta-hawks-philadelphia-76ers-v-charlotte-hornets-scores-results-highlights-latest-news/news-story/0c9d81b658cc994480c2244fa1b579c2)
-- **Hawks' CJ McCollum: Strikes for team-high 23 in win**: [Link](https://www.cbssports.com/fantasy/basketball/news/hawks-cj-mccollum-strikes-for-team-high-23-in-win/)
-- **NBA Games Today: Is There a Basketball Game on TV Tonight? Complete Monday Schedule**: [Link](https://www.profootballnetwork.com/nba/nba-games-today-complete-monday-schedule-26-january/)
-
-
-### copa america futsal 2026 (N/A, 26/01/2026 21:21 Lima)
-
-- **Perú goleó a Ecuador en la CONMEBOL Copa América Futsal 2026™**: [Link](https://copaamerica.com/es/novedades/cronica-peru-ecuador-copa-america-futsal-2026)
-- **Selección peruana de futsal juega esta tarde ante Ecuador por la Copa América**: [Link](https://ovacion.pe/noticias/seleccion-peruana/seleccion-peruana-futsal-juega-esta-tarde-ante-ecuador-copa-america)
-- **Perú vs Ecuador EN VIVO, 26 de enero: hora y canal Copa América de Futsal**: [Link](https://www.deportesrcn.com/otros-deportes/peru-vs-ecuador-en-vivo-26-de-enero-hora-y-canal-copa-america-de-futsal-144727)
-
-
-### 76ers - hornets (N/A, 26/01/2026 21:21 Lima)
-
-- **76ers vs. Hornets odds, prediction, spread, time: 2026 NBA picks for Monday, January 26 from proven model**: [Link](https://www.cbssports.com/nba/news/76ers-hornets-odds-prediction-spread-line-time-2026-nba-picks-monday-january-26/)
-- **76ers Hornets Basketball**: [Link](https://lufkindailynews.com/anpa/sports/76ers-hornets-basketball/image_205c017c-b7be-51b4-8459-b431a31022a0.html)
-- **Philadelphia 76ers vs Charlotte Hornets injury report: Who's playing, injured and questionable players, h**: [Link](https://timesofindia.indiatimes.com/sports/nba/top-stories/philadelphia-76ers-vs-charlotte-hornets-injury-report-whos-playing-injured-and-questionable-players-head-to-head-records-team-stats-and-more-january-26-2026/articleshow/127567496.cms)
-
-
-### marc-andré ter stegen (N/A, 26/01/2026 21:21 Lima)
-
-- **Agreement with Girona for the loan of Marc ter Stegen**: [Link](https://www.fcbarcelona.com/en/news/4437263/agreement-with-girona-for-the-loan-of-marc-ter-stegen)
-- **The real reason Barcelona allowed their captain to leave on loan easily – report**: [Link](https://barcauniversal.com/the-real-reason-barcelona-allowed-their-captain-to-leave-on-loan-easily-report/)
-- **Eric Garcia Joins Barcelona's Leadership Group**: [Link](https://www.ysscores.com/en/news/13898778/Eric-Garcia-Joins-Barcelona's-Leadership-Group)
-
-
-### norwich vs (N/A, 26/01/2026 21:21 Lima)
-
-- **Norwich City 2-1 Coventry City: Ali Ahmed completes second-half comeback for hosts**: [Link](https://www.bbc.com/sport/football/live/cjw110v8qp5t)
-- **Norwich City 2-1 Coventry (Jan 26, 2026) Game Analysis**: [Link](https://www.espn.com/soccer/report/_/gameId/744936)
-- **Philippe Clement wants more from Norwich City after Coventry City win**: [Link](https://www.bbc.co.uk/sport/football/articles/cn7j8760pvpo)
-
-
-### porto vs (N/A, 26/01/2026 15:33 Lima)
-
-- **Porto host Gil Vicente needing a win to keep their lead at the top**: [Link](https://onefootball.com/de/news/porto-host-gil-vicente-needing-a-win-to-keep-their-lead-at-the-top-42304039)
-- **César Peixoto: “We’re Not Visiting Dragão to Play Beautifully and Lose”**: [Link](https://www.filmogaz.com/118363)
-- **Preview: Porto vs Gil Vicente - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/porto/preview/porto-vs-gil-vicente-prediction-team-news-lineups_590606.html)
-
-
-### verona vs (N/A, 26/01/2026 15:33 Lima)
-
-- **Serie A: Por la fecha 22 se enfrentarán Hellas Verona y Udinese**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-por-la-fecha-22-se-enfrentaran-hellas-verona-y-udinese-noticia-1672975)
-- **Pronósticos Verona vs. Udinese - ¿La resurrección del Hellas?**: [Link](https://gainblers.com/pe/pronosticos/futbol/italia/serie-a/pronostico-verona-udinese-26-01-2026/)
-- **Serie A Enilive 2025/26 | #VeronaUdinese: Gates Open at 6.45 PM**: [Link](https://www.hellasverona.it/en/news/serie-a-enilive-2025-26-veronaudinese-gates-open-at-6-45-pm)
-
-
-### porto - gil vicente (N/A, 26/01/2026 15:33 Lima)
-
-- **César Peixoto: “Não vamos ao Dragão para jogar bonito e perder por três ou quatro”**: [Link](https://onefootball.com/de/news/cesar-peixoto-nao-vamos-ao-dragao-para-jogar-bonito-e-perder-por-tres-ou-quatro-42299777)
-- **Porto x Gil Vicente no Campeonato Português: onde assistir ao vivo, horário e escalação**: [Link](https://www.estadao.com.br/esportes/futebol/porto-x-gil-vicente-no-campeonato-portugues-onde-assistir-ao-vivo-horario-e-escalacao-npres/)
-- **Froholdt pronto para ir à luta**: [Link](https://www.pressreader.com/portugal/o-jogo/20260126/281754160736275)
 
 
