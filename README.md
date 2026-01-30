@@ -1,3 +1,59 @@
+### alcaraz (N/A, 30/01/2026 00:11 Lima)
+
+- **Carlos Alcaraz - Alexander Zverev, en directo | semifinal del Open de Australia en vivo**: [Link](https://www.marca.com/tenis/open-australia/carlos-alcaraz-alexander-zverev/2026/01/30/04_0401_20260130_125-directo.html)
+- **Alcaraz - Zverev en directo: semifinales del Open de Australia, en vivo hoy**: [Link](https://as.com/tenis/alcaraz-zverev-en-directo-semifinales-del-open-de-australia-en-vivo-hoy-f202601-d/)
+- **La advertencia de Alcaraz a Zverev en el Australian Open 2026: "Va a tener que sudar mucho si quiere ganarme"**: [Link](https://www.espn.com.ar/tenis/nota/_/id/16240930/la-advertencia-de-alcaraz-a-zverev-en-el-australian-open-2026-va-a-tener-que-sudar-mucho-si-quiere-ganarme)
+
+
+### fecha de elecciones presidenciales 2026 (N/A, 30/01/2026 00:11 Lima)
+
+- **JNE tomaría como base debate de Costa Rica**: [Link](https://diariocorreo.pe/politica/jne-tomaria-como-base-debate-presidencial-de-costa-rica-peru-elecciones-generales-2026-noticia/)
+- **🔴🔵 El presidente del Jurado Nacional de Elecciones (JNE), Roberto Burneo, estimó que el debate presidencial se realizará entre el 23 y 30 de marzo. "Va a ser antes de Semana Santa", precisó. 🌐Más información en: https://www.exitosanoticias.pe**: [Link](https://www.facebook.com/Exitosanoticias/posts/-el-presidente-del-jurado-nacional-de-elecciones-jne-roberto-burneo-estim%C3%B3-que-e/1333856765444045/)
+- **Con aporte de organismos internacionales JNE fortalece metodología de debates presidenciales**: [Link](https://elperuano.pe/noticia/288074-con-aporte-de-organismos-internacionales-jne-fortalece-metodologia-de-debates-presidenciales)
+
+
+### votaciones (N/A, 30/01/2026 00:11 Lima)
+
+- **Cómo consultar si fue elegido jurado de votación para las elecciones del 8 de marzo**: [Link](https://elpais.com/america-colombia/2026-01-27/como-consultar-si-fue-elegido-jurado-de-votacion-para-las-elecciones-del-8-de-marzo.html)
+- **860 mil jurados atenderán 126.000 mesas de votación**: [Link](https://www.diariodelcesar.com/archivos/333557/tarifas-de-gas-podrian-subir-este-ano-entre-25-y-el-32/)
+- **Esta figura, poco conocida para muchos ciudadanos, cumple un papel clave para que las mesas de votación puedan abrir a tiempo y el proceso electoral no se vea afectado por ausencias de último momento**: [Link](https://www.facebook.com/infobaecolombia/posts/esta-figura-poco-conocida-para-muchos-ciudadanos-cumple-un-papel-clave-para-que-/1337502065059219/)
+
+
+### lugar de votacion elecciones 2026 (N/A, 30/01/2026 00:11 Lima)
+
+- **Ese mito de los Pex más racionales y patriotas… Aldo Mariátegui**: [Link](https://peru21.pe/opinion/ese-mito-de-los-pex-mas-racionales-y-patriotas-aldo-mariategui/)
+- **Cancillería habilita plataforma digital para el voto en el exterior en las Elecciones 2026**: [Link](https://caretas.pe/nacional/cancilleria-habilita-plataforma-digital-para-el-voto-en-el-exterior-en-las-elecciones-2026/)
+- **Elecciones 2026: A inicios de febrero se conocerán los locales de votación para peruanos en el extranjero, anunció la Cancillería**: [Link](https://rpp.pe/peru/actualidad/elecciones-2026-a-inicios-de-febrero-se-conoceran-los-locales-de-votacion-para-peruanos-en-el-extranjero-anuncio-la-cancilleria-noticia-1673457)
+
+
+### dni (N/A, 30/01/2026 00:11 Lima)
+
+- **Początek 29.01. Za 1 grosz w Lidlu. Tylko 2 opak. na paragon**: [Link](https://biznes.o2.pl/biznes/poczatek-29-01-za-1-grosz-w-lidlu-tylko-2-opak-na-paragon-7248565041547584a)
+- **Gadżety do kuchni za grosze w Lidlu. Ostatnia taka promocja w styczniu**: [Link](https://www.komputerswiat.pl/dom/agd/lidl-z-mocna-promocja-pod-koniec-stycznia-air-fryer-od-znanego-producenta/r6pw8vg)
+- **Nowa gazetka Lidla. 50 proc. taniej przez 2 dni na ten hit**: [Link](https://odzywianie.wprost.pl/produkty/12236649/nowa-gazetka-lidla-50-proc-taniej-przez-2-dni-na-ten-hit.html)
+
+
+### candidatos presidenciales 2026 (N/A, 30/01/2026 00:11 Lima)
+
+- **Elecciones 2026: conozca las 36 planchas presidenciales inscritas para comicios del 12 abril**: [Link](https://gestion.pe/peru/politica/elecciones-2026-conozca-las-36-planchas-presidenciales-inscritas-para-comicios-del-12-abril-noticia/)
+- **Los próximos hitos electorales**: [Link](https://elperuano.pe/noticia/288131-los-proximos-hitos-electorales)
+- **EP235 | INFORMES | Elecciones 2026: 36 candidatos presidenciales quedaron inscritos para competir**: [Link](https://rpp.pe/audio/podcast/elpoderentusmanos/ep235-informes-elecciones-2026-36-candidatos-presidenciales-quedaron-inscritos-para-competir-23436)
+
+
+### onp (N/A, 30/01/2026 00:11 Lima)
+
+- **Aumento a pensionistas ONP 2026: conoce aquí el cronograma de pagos de febrero**: [Link](https://andina.pe/agencia/noticia-aumento-a-pensionistas-onp-2026-conoce-aqui-cronograma-pagos-febrero-1057452.aspx)
+- **Aumentan pensiones de la ONP en 2026: conoce el cronograma de pagos de febrero**: [Link](https://peru21.pe/economia/aumentan-pensiones-de-la-onp-en-2026-cronograma-de-pagos-de-febrero/)
+- **Pago de pensión ONP vendrá con aumento desde febrero e incluirá monto pendiente de enero**: [Link](https://www.infobae.com/peru/2026/01/29/pago-de-pension-onp-vendra-con-aumento-desde-febrero-e-incluira-monto-pendiente-de-enero/)
+
+
+### lugar de votación (N/A, 30/01/2026 00:11 Lima)
+
+- **ONPE inició envío de correos con tu local de votación asignado para las Elecciones 2026**: [Link](https://www.infobae.com/peru/2026/01/25/onpe-inicio-envio-de-correos-con-tu-local-de-votacion-asignado-para-las-elecciones-2026/)
+- **Elecciones Generales 2026: así puedes verificar tu local de votación asignado por la ONPE**: [Link](https://larepublica.pe/politica/2026/01/26/elecciones-2026-asi-puedes-verificar-tu-local-de-votacion-asignado-por-la-onpe-hnews-422838)
+- **Elecciones 2026: Ciudadanos ya reciben correos con local de votación asignado**: [Link](https://diariocorreo.pe/politica/elecciones-2026-electores-ya-reciben-correos-con-local-de-votacion-asignado-noticia/)
+
+
 ### clima lima (N/A, 29/01/2026 21:33 Lima)
 
 - **¡Lima es un horno! La capital soportó el día más caluroso del verano según Senamhi**: [Link](https://peru21.pe/lima/la-capital-soporto-el-dia-mas-caluroso-del-verano-segun-senamhi/)
@@ -973,60 +1029,5 @@ Sin noticias relacionadas disponibles.
 - **Republican senators join calls for fuller investigation into Minneapolis killing**: [Link](https://www.bbc.com/news/live/c3ve67195gyt)
 - **Donald Trump says his administration is reviewing Alex Pretti shooting**: [Link](https://www.theguardian.com/us-news/2026/jan/26/donald-trump-administration-reviewing-alex-pretti-shooting)
 - **Video, witnesses shed new light on moments before agents fatally shot Alex Pretti**: [Link](https://www.cnn.com/2026/01/25/us/alex-pretti-shooting-minneapolis-videos-witnesses-invs)
-
-
-### jannik sinner (N/A, 26/01/2026 08:00 Lima)
-
-- **Sinner, il recupero super agli Australian Open: il medico svela il segreto di Jannik**: [Link](https://www.adnkronos.com/sport/australian-open-medico-fisiatra-sinner-ai-quarti-grazie-a-un-recupero-rapido-vi-spiego-i-segreti_1e9eThXmsfTOBxz05jxAUO)
-- **Darderi: "Jannik ingiocabile per due set, vado via tranquillo"**: [Link](https://www.supertennis.tv/News/Slam/luciano-darderi-dichiarazioni-australian-open-ottavi-sinner)
-- **Tutto il tennis in Diretta**: [Link](https://www.diretta.it/news/tennis-australian-open-wta-singolare-tennis-tracker-in-campo-sinner-darderi-6-1-6-3-1-0-musetti-vince-e-passa-ai-quarti/Uur39aU7/)
-
-
-### grok (N/A, 26/01/2026 08:00 Lima)
-
-- **Elon Musk’s X Faces European Inquiry Over Sexualized A.I. Images**: [Link](https://www.nytimes.com/2026/01/26/business/european-union-x-grok-ai-images-musk.html)
-- **EU launches inquiry into X over sexually explicit images made by Grok AI**: [Link](https://www.theguardian.com/technology/2026/jan/26/eu-launches-inquiry-into-x-over-sexually-explicit-images-made-by-grok-ai)
-- **EU investigates Elon Musk's X over Grok AI sexual deepfakes**: [Link](https://www.bbc.com/news/articles/clye99wg0y8o)
-
-
-### lorenzo musetti (N/A, 26/01/2026 03:40 Lima)
-
-- **Musetti completes major QF set, earns Djokovic clash at Australian Open**: [Link](https://www.atptour.com/en/news/fritz-musetti-australian-open-2026-monday)
-- **Australian Open 2026: Luciano Darderi v Jannik Sinner, Maddison Inglis v Iga Swiatek – live**: [Link](https://www.theguardian.com/sport/live/2026/jan/26/australian-open-2026-darderi-sinner-inglis-swiatek-shelton-ruud-live)
-- **Lorenzo Musetti Vs Taylor Fritz Highlights, AO 2026: Italian Beats American In Straight Sets, Books QF Spot**: [Link](https://www.outlookindia.com/sports/tennis/lorenzo-musetti-vs-taylor-fritz-live-score-australian-open-2026-fourth-round-mens-singles-update-grand-slam-highlights)
-
-
-### thunder - raptors (N/A, 25/01/2026 23:58 Lima)
-
-- **Raptors Edge Thunder In Gritty NBA Showdown At Paycom Center**: [Link](https://evrimagaci.org/gpt/raptors-edge-thunder-in-gritty-nba-showdown-at-paycom-center-525492)
-- **Scottie Barnes for Defensive Player of the Year? This block strengthens his case**: [Link](https://www.nytimes.com/athletic/6998302/2026/01/25/scottie-barnes-raptors-defensive-play-chet-holmgren-dpoy-contender/)
-- **Scottie Barnes denies Chet Holmgren with crucial 4th quarter block**: [Link](https://sports.yahoo.com/articles/scottie-barnes-denies-chet-holmgren-031134464.html)
-
-
-### taylor fritz (N/A, 25/01/2026 23:58 Lima)
-
-- **Australian Open Day 9 order of play: Swiatek in action; Pegula meets Keys**: [Link](https://www.wtatennis.com/news/4439269/australian-open-day-9-order-of-play)
-- **Lorenzo Musetti vs. Taylor Fritz: Predictions, How to Watch for Free**: [Link](https://globelynews.com/sports/lorenzo-musetti-vs-taylor-fritz-predictions-how-to-watch-for-free/)
-- **Australian Open Tennis**: [Link](https://www.wvnews.com/sports/pro/australian-open-tennis/image_8b2999d7-61c6-5dbd-99d8-0a184fcdcab6.html)
-
-
-### rafael lópez aliaga (N/A, 25/01/2026 23:58 Lima)
-
-- **Rafael López Aliaga advierte que cambiará la capital de Perú si gana las Elecciones: “De Lima a Junín”**: [Link](https://www.infobae.com/peru/2026/01/23/rafael-lopez-aliaga-advierte-que-cambiara-la-capital-de-peru-si-gana-las-elecciones-de-lima-a-junin/)
-- **Rafael López Aliaga, candidato presidencial de Renovación Popular, anunció que, de llegar al Gobierno, cambiará la capital del Perú de Lima a Junín. En un mitin en Huancayo aseguró que la medida está en su plan de gobierno: “La capital del Perú pasa d**: [Link](https://www.facebook.com/ElBuho.pe/posts/rafael-l%C3%B3pez-aliaga-candidato-presidencial-de-renovaci%C3%B3n-popular-anunci%C3%B3-que-de-/1550058546655702/)
-- **López Aliaga plantea trasladar la capital del Perú a Junín si gana las elecciones**: [Link](https://caretas.pe/politica/lopez-aliaga-plantea-trasladar-la-capital-del-peru-a-junin-si-gana-las-elecciones/)
-
-
-### zaca tv (N/A, 25/01/2026 23:58 Lima)
-
-- **Salandela, Miranda Capurro y Michelle Onetto dejan Zaca TV: así nació “Somos lo que Somos”, el fenómeno que se tomará una pausa del streaming**: [Link](https://elcomercio.pe/somos/tendencias/salandela-miranda-capurro-y-michelle-onetto-dejan-zaca-tv-asi-nacio-somos-lo-que-somos-el-fenomeno-que-cambio-el-streaming-en-pocos-meses-noticia/)
-- **Salandela, Miranda Capurro y Michelle Onetto le dicen ‘adiós’ a Zaca TV: ¿Qué pasará con el proyecto?**: [Link](https://trome.com/espectaculos/tv/zaca-tv-salandela-miranda-capurro-y-michelle-onetto-dejan-canal-de-streaming-de-giacomo-benavides-foto-farandula-noticia/)
-- **Salandela, Michelle Onetto y Miranda Capurro no seguirán en 'Somos lo que somos' de Zaca TV : "Ha sido una decisión difícil"**: [Link](https://larepublica.pe/streamers/2026/01/25/salandela-michelle-onetto-y-miranda-capurro-no-seguiran-en-somos-lo-que-somos-de-zaca-tv-ha-sido-una-decision-dificil-evat-2175600)
-
-
-### kira alcarraz (N/A, 25/01/2026 23:58 Lima)
-
-- **Congresista Kira Alcarraz protagoniza otro incidente: se resiste a intervención y hace gestos obscenos a policías**: [Link](https://elcomercio.pe/politica/congreso/congresista-kira-alcarraz-protagoniza-otro-incidente-se-resiste-a-intervencion-y-hace-gestos-obscenos-a-policias-san-borja-pnp-ultimas-noticia/)
-- **Congresista Kira Alcarraz vuelve a ser intervenida por la PNP y su conductor queda detenido tras dosaje etílico positivo**: [Link](https://www.infobae.com/peru/2026/01/26/kira-alcarraz-vuelve-a-ser-intervenida-por-la-pnp-y-su-conductor-queda-detenido-tras-dosaje-etilico-positivo/)
 
 
