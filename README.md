@@ -1,3 +1,52 @@
+### pistons - warriors (N/A, 31/01/2026 00:04 Lima)
+
+- **Detroit Pistons vs Golden State Warriors Odds - Friday January 30 2026**: [Link](https://www.oddsshark.com/nba/detroit-golden-state-odds-january-30-2026-2460309)
+- **NBA Best Bets: Pistons vs. Warriors Prop Bets for Friday 1/30/26**: [Link](https://dknetwork.draftkings.com/2026/01/30/nba-best-bets-pistons-vs-warriors-prop-bets-for-friday-1-30-26/)
+- **Final Injury Report for Pistons-Warriors: Will Cade Cunningham, Jonathan Kuminga Play?**: [Link](https://athlonsports.com/nba/golden-state-warriors/final-injury-report-for-pistons-warriors-will-cade-cunningham-jonathan-kuminga-play)
+
+
+### royal rumble 2026 hora peru (N/A, 31/01/2026 00:04 Lima)
+
+- **Royal Rumble 2026: conoce la cartelera confirmada, horarios y dónde ver la Batalla Real en vivo**: [Link](https://rpp.pe/lucha/wwe/wwe-royal-rumble-2026-en-vivo-fecha-horario-cartelera-y-donde-ver-batalla-real-gratis-via-netflix-resultados-de-hoy-noticia-1673611)
+- **WWE Royal Rumble 2026: ¿a qué hora y dónde ver el primer evento PPV del año desde Arabia Saudita?**: [Link](https://larepublica.pe/deportes/2026/01/30/wwe-royal-rumble-2026-horarios-y-canales-del-evento-ppv-de-lucha-libre-cartelera-completa-1201350)
+- **WWE Royal Rumble 2026: cuándo es, a qué hora y en qué canal ver la Batalla Real**: [Link](https://elcomercio.pe/deporte-total/polideportivo/wwe-royal-rumble-2026-en-vivo-gratis-hoy-via-netflix-espn-horarios-canales-tv-y-donde-ver-la-batalla-real-video-noticia/)
+
+
+### pumas - santos (N/A, 31/01/2026 00:04 Lima)
+
+- **Liga MX: Pumas UNAM se enfrentará ante Santos Laguna por la fecha 4**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-pumas-unam-se-enfrentara-ante-santos-laguna-por-la-fecha-4-noticia-1673635)
+- **Pumas vs. Santos Laguna Pronósticos - El aspirante ante la decepción ¿Quién ganará este partido de la Liga MX?**: [Link](https://gainblers.com/pe/pronosticos/futbol/mexico/liga-mx/pronostico-pumas-santos-laguna-31-01-2026/)
+- **¿Uriel Antuna es la solución que Pumas necesita?**: [Link](https://www.espn.com.pe/futbol/mexico/nota/_/id/16246483/pumas-uriel-antuna-refuerzo-solucion-delanteros-goles-liga-mx)
+
+
+### vix (N/A, 31/01/2026 00:04 Lima)
+
+- **Cherry Bomb: VIX Heat Check; Why Feb Looks Underpriced vs. March**: [Link](https://www.tastylive.com/news-insights/cherry-bomb-vix-feb-looks-underpriced-march)
+- **‘El Mochaorejas’ Becomes ViX’s Most-Watched Series And Debuts In Spain**: [Link](https://www.forbes.com/sites/veronicavillafane/2026/01/30/el-mochaorejas-becomes-vixs-most-watched-series-and-debuts-in-spain/)
+- **Vix To Livestream Kanye West’s Concerts In Mexico**: [Link](https://deadline.com/2026/01/vix-livestream-kanye-wes-concerts-mexico-1236699016/)
+
+
+### juárez - cruz azul (N/A, 31/01/2026 00:04 Lima)
+
+- **FC Juárez vs Cruz Azul: posibles alineaciones, Jornada 4**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/16249446/fc-juarez-vs-cruz-azul-alineaciones-jornada-4-clausura-2026)
+- **Transmisión EN VIVO del Juárez vs Cruz Azul hoy: cómo mirar el partido por TV o streaming**: [Link](https://www.365scores.com/es/news/juarez-vs-cruz-azul-transmision-vivo-tv/)
+- **EN VIVO: Cruz Azul se lleva la victoria parcial 3-1 sobre FC Juárez al finalizar el primer tiempo**: [Link](https://www.t13.cl/noticia/deportes13/en-vivo-cruz-azul-se-lleva-la-victoria-parcial-3-1-sobre-fc-juarez-al-finalizar-el-primer-tiempo-31)
+
+
+### alejandra baigorria (N/A, 31/01/2026 00:04 Lima)
+
+- **¡A solo un sol! Alejandra Baigorria paraliza las redes con histórico remate de su marca: ¿Cómo y dónde comprar?**: [Link](https://www.atv.pe/noticia/a-solo-un-sol-alejandra-baigorria-paraliza-las-redes-con-historico-remate-de-su-marca-como-y-donde-comprar/)
+- **Alejandra Baigorria remata ropa de su marca: prendas de temporada y nueva colección a solo S/1**: [Link](https://wapa.pe/moda-y-belleza/2026/01/30/alejandra-baigorria-remata-ropa-su-marca-prendas-temporada-nueva-coleccion-solo-s1-346650)
+- **Said Palao encendió las redes con sensual publicación**: [Link](https://www.americatv.com.pe/noticias/espectaculos/said-palao-encendio-redes-sensual-publicacion-semidesnudo-n515345)
+
+
+### wizards - lakers (N/A, 31/01/2026 00:04 Lima)
+
+- **Luka Doncic has a triple-double (26 points, 11 assists, 10 rebounds) before halftime**: [Link](https://apnews.com/article/los-angeles-lakers-luka-doncic-tripledouble-9a0c3278b8414d337b1712857ad63e51)
+- **NBL Next 'Sarr' witness to Doncic's greatness**: [Link](https://www.basketball.com.au/news/luka-doncic-fastest-30-point-triple-double-nba-history-lakers-wizards-2026)
+- **Lakers 142-111 Wizards (31 Jan, 2026) Game Recap**: [Link](https://www.espn.in/nba/recap/_/gameId/401810543)
+
+
 ### kick (N/A, 30/01/2026 21:28 Lima)
 
 - **Clavicular reveals how Kick’s creator incentive program powered his massive January payout**: [Link](https://timesofindia.indiatimes.com/world/us-streamers/clavicular-reveals-how-kicks-creator-incentive-program-powered-his-massive-january-payout/articleshow/127790413.cms)
@@ -980,54 +1029,5 @@ Sin noticias relacionadas disponibles.
 - **Bundesliga im Liveticker: Zwei Nachholspiele – St. Pauli früh im Pfostenglück, Werder gegen Hoffenheim**: [Link](https://www.welt.de/sport/fussball/bundesliga/article6978d0a9fe9fcdf90e7cb57b/bundesliga-im-liveticker-zwei-nachholspiele-st-pauli-frueh-im-pfostenglueck-werder-gegen-hoffenheim.html)
 - **Hallo Leipzig: So startet Dienstag, der 27. Januar 2026**: [Link](https://www.l-iz.de/der-tag/2026/01/hallo-leipzig-so-startet-dienstag-der-27-januar-2026-645428)
 - **Nach „Kopfschmerz“-Derby: Mit Mut und höchster Intensität gegen Leipzig**: [Link](https://www.fcstpauli.com/news/vorbericht-nachholspiel-leipzig-2526)
-
-
-### werder bremen - hoffenheim (N/A, 27/01/2026 15:29 Lima)
-
-- **Liveticker | Werder Bremen - TSG Hoffenheim 0:1 | 16. Spieltag | Bundesliga 2025/26**: [Link](https://www.kicker.at/bremen-gegen-hoffenheim-2026-bundesliga-5050889/ticker)
-- **Fußball hui, Support pfui: Buli-Fans sorgen für Negativwert in Bremen**: [Link](https://onefootball.com/de/news/fussball-hui-support-pfui-buli-fans-sorgen-fuer-negativwert-in-bremen-42311662)
-- **Gegen Hoffenheim: Vier Veränderungen in der Startelf**: [Link](https://www.werder.de/news/maenner/2025-2026/aufstellung-hoffenheim-27012026)
-
-
-### temperatura lima (N/A, 27/01/2026 15:29 Lima)
-
-- **Lima registró la temperatura más alta del verano 2026: llegó a 32.6°C**: [Link](https://andina.pe/agencia/noticia-lima-registro-temperatura-mas-alta-del-verano-2026-llego-a-326%C2%B0c-1060887.aspx)
-- **El verano golpea fuerte: ola de calor y alta radiación UV continuarán en Lima y toda la costa hasta el 28 de enero**: [Link](https://rpp.pe/lima/actualidad/senamhi-ola-de-calor-y-alta-radiacion-uv-continuaran-en-lima-y-gran-parte-de-la-costa-hasta-el-28-de-enero-noticia-1673164)
-- **¡Ay, qué calor! Carabayllo, SJL, Santa Anita y La Molina tendrán temperaturas de hasta 32 grados**: [Link](https://elperuano.pe/noticia/287985-ay-que-calor-carabayllo-sjl-santa-anita-y-la-molina-tendran-temperaturas-de-hasta-32-grados)
-
-
-### flavia lopez (N/A, 27/01/2026 11:36 Lima)
-
-- **EEG: Desafío 14: Conoce a los competidores de la temporada**: [Link](https://www.americatv.com.pe/videos/esto-es-guerra/eeg-desafio-14-ellos-son-competidores-nueva-temporada-noticia-162586)
-- **‘Esto es Guerra 2026′: Flavia López, Emilio Jaime y más entre los 14 competidores presentados**: [Link](https://trome.com/espectaculos/tv/esto-es-guerra-2026-flavia-lopez-emilio-jaime-y-mas-entre-los-14-competidores-presentados-foto-farandula-noticia/)
-- **Katia Palma vuelve a 'Esto es Guerra' 2026 para conducir junto a Mathías Brivio la nueva temporada**: [Link](https://larepublica.pe/espectaculos/2026/01/26/katia-palma-vuelve-a-esto-es-guerra-2026-para-conducir-junto-a-mathias-brivio-la-nueva-temporada-620802)
-
-
-### sorteo la tinka hoy (N/A, 27/01/2026 08:03 Lima)
-
-- **Resultados de La Tinka del domingo 25 de enero**: [Link](https://www.americatv.com.pe/americlub/tinka-revento-pozo-millonario-domingo-25-enero-noticia-162563)
-- **Ganador de La Tinka del 25 de enero: la jugada que le hizo llevarse más de 19 millones de soles**: [Link](https://larepublica.pe/sociedad/2026/01/25/ganador-de-la-tinka-del-25-de-enero-la-jugada-que-le-hizo-llevarse-mas-de-19-millones-de-soles-mdga-1128075)
-- **Reventó La Tinka: números ganadores y resultados del Pozo Millonario del domingo 25 de enero**: [Link](https://depor.com/peru/la-tinka-hoy-en-vivo-ver-resultados-del-ultimo-sorteo-domingo-25-de-enero-a-que-hora-se-juegan-donde-ver-numeros-jugada-ganadora-del-pozo-millonario-de-s19505138-intralot-resultado-si-o-si-boliyapa-peru-noticia/)
-
-
-### australian open (N/A, 27/01/2026 08:03 Lima)
-
-- **Djokovic Advances Unexpectedly as Rival Implodes in Demon’s Slow Demolition**: [Link](https://www.filmogaz.com/119286)
-- **The spectacular sportsmanship gesture Alcaraz had with De Miñaur**: [Link](https://www.puntodebreak.com/en/2026/01/27/the-spectacular-sportsmanship-gesture-alcaraz-had-with-minaur)
-- **Australian Open LIVE: Updates from the first quarter-finals**: [Link](https://www.flashscore.com/news/tennis-australian-open-atp-singles-australian-open-live-gauff-dumped-out-alcaraz-takes-first-set-against-de-minaur/pWWYbK7l/)
-
-
-### carlos alcaraz (N/A, 27/01/2026 08:03 Lima)
-
-- **Resumen y resultado del Alcaraz - De Miñaur de cuartos de final del Open de Australia**: [Link](https://as.com/tenis/open_australia/alcaraz-de-minaur-en-directo-cuartos-de-final-del-open-de-australia-hoy-en-vivo-f202601-d/)
-- **Alcaraz rompe el muro de las semifinales en Australia**: [Link](https://www.atptour.com/es/news/abierto-australia-2026-cf-alcaraz-de-minaur)
-- **Así está el cuadro de las semifinales del Open de Australia: el camino de Alcaraz hasta la final**: [Link](https://www.marca.com/tenis/open-australia/2026/01/27/asi-cuadro-semifinales-open-australia-camino-alcaraz-final.html)
-
-
-### coco gauff (N/A, 27/01/2026 08:03 Lima)
-
-- **Australian Open Betting Tips: Top Tennis Matches for January 27**: [Link](https://www.filmogaz.com/119202)
-- **Svitolina hopes Gauff upset brings 'a little light' to Ukraine**: [Link](https://www.rfi.fr/en/sports/20260127-svitolina-stuns-gauff-in-59-minutes-to-sail-into-australian-open-semis)
-- **Tim Henman slams ‘shocking’ Coco Gauff performance as she crashes out of the Australian Open**: [Link](https://tennishead.net/tim-henman-slams-shocking-coco-gauff-performance-as-she-crashes-out-of-the-australian-open/)
 
 
