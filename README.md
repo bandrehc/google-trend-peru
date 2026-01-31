@@ -1,3 +1,10 @@
+### pumas vs (N/A, 31/01/2026 03:36 Lima)
+
+- **Liga MX: Pumas UNAM se enfrentará ante Santos Laguna por la fecha 4**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-pumas-unam-se-enfrentara-ante-santos-laguna-por-la-fecha-4-noticia-1673635)
+- **Pumas vs. Santos Laguna Pronósticos - El aspirante ante la decepción ¿Quién ganará este partido de la Liga MX?**: [Link](https://gainblers.com/pe/pronosticos/futbol/mexico/liga-mx/pronostico-pumas-santos-laguna-31-01-2026/)
+- **¿Uriel Antuna es la solución que Pumas necesita?**: [Link](https://www.espn.com.pe/futbol/mexico/nota/_/id/16246483/pumas-uriel-antuna-refuerzo-solucion-delanteros-goles-liga-mx)
+
+
 ### pistons - warriors (N/A, 31/01/2026 00:04 Lima)
 
 - **Detroit Pistons vs Golden State Warriors Odds - Friday January 30 2026**: [Link](https://www.oddsshark.com/nba/detroit-golden-state-odds-january-30-2026-2460309)
@@ -1022,12 +1029,5 @@ Sin noticias relacionadas disponibles.
 - **Laura Huarcayo en shock por ¿nuevo conductor de MQM?**: [Link](https://www.americatv.com.pe/mande-quien-mande/nino-alfredito-nuevo-conductor-mande-quien-mande-noticia-162571)
 - **Laura Huarcayo: Su regreso a la TV, disfruta su soltería, su tipo de hombre, la infidelidad y más**: [Link](https://trome.com/espectaculos/tv/laura-huarcayo-su-regreso-a-la-tv-disfruta-su-solteria-su-tipo-de-hombre-la-infidelidad-y-mas-mande-quien-mande-entrevista-video-farandula-noticia/)
 - **Erick Elera se suma a la conducción del programa 'MQM' junto a Laura Huarcayo y 'La Carlota'**: [Link](https://rpp.pe/famosos/farandula/erick-elera-se-une-a-conduccion-de-programa-mande-quien-mande-con-laura-huarcayo-y-carlos-vilchez-la-carlota-noticia-1672518)
-
-
-### st. pauli - rb leipzig (N/A, 27/01/2026 15:29 Lima)
-
-- **Bundesliga im Liveticker: Zwei Nachholspiele – St. Pauli früh im Pfostenglück, Werder gegen Hoffenheim**: [Link](https://www.welt.de/sport/fussball/bundesliga/article6978d0a9fe9fcdf90e7cb57b/bundesliga-im-liveticker-zwei-nachholspiele-st-pauli-frueh-im-pfostenglueck-werder-gegen-hoffenheim.html)
-- **Hallo Leipzig: So startet Dienstag, der 27. Januar 2026**: [Link](https://www.l-iz.de/der-tag/2026/01/hallo-leipzig-so-startet-dienstag-der-27-januar-2026-645428)
-- **Nach „Kopfschmerz“-Derby: Mit Mut und höchster Intensität gegen Leipzig**: [Link](https://www.fcstpauli.com/news/vorbericht-nachholspiel-leipzig-2526)
 
 
