@@ -1,3 +1,66 @@
+### cuándo juega el barcelona (N/A, 31/01/2026 07:59 Lima)
+
+- **El posible once del Barça ante el Elche apunta a dos regresos**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20260131/1002611825/posible-once-barca-elche-apunta-dos-regresos.html)
+- **De Jong regresa a un Barcelona con tres lesionados ante Elche**: [Link](https://www.espn.com.ar/futbol/espana/nota/_/id/16247894/barcelona-de-jong-regresa-tres-lesionados-elche)
+- **SKY Sports EN VIVO por Internet — dónde ver partido FC Barcelona vs. Elche CF en Fútbol TV y SKY Plus Online en México**: [Link](https://gestion.pe/mix/sports/sky-sports-en-vivo-por-internet-donde-ver-partido-fc-barcelona-vs-elche-cf-en-futbol-tv-y-sky-plus-online-en-mexico-nnda-nnrt-noticia/)
+
+
+### real oviedo - girona (N/A, 31/01/2026 07:59 Lima)
+
+- **Apuestas y Pronóstico del Oviedo vs Girona 31/01/26**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2026/enero/pronostico-oviedo-vs-girona-31-01-26)
+- **Fútbol en directo l Oviedo y Girona abren el sábado**: [Link](https://www.flashscore.pe/noticias/futbol-champions-league-futbol-en-directo-l-oviedo-y-girona-abren-el-sabado/8CbN9uyG/)
+- **Ter Stegen prueba al peor ataque de Primera**: [Link](https://as.com/futbol/primera/ter-stegen-prueba-al-peor-ataque-de-primera-f202601-n/)
+
+
+### video de la cantante de explosion (N/A, 31/01/2026 07:59 Lima)
+
+- **Marilya Gonzales y el video viral de la cantante de Explosión de Iquitos**: [Link](https://www.razon.com.mx/entretenimiento/2026/01/28/marilya-gonzales-y-su-video-viral/)
+- **Caso de difusión de video íntimo es un delito criminal**: [Link](https://diariolaregion.com/caso-de-difusion-de-video-intimo-es-un-delito-criminal/)
+- **Marilya Gonzales sufre por filtración de supuesto video íntimo con expareja**: [Link](https://www.expreso.com.pe/entretenimiento/marilya-gonzales-sufre-por-filtracion-de-supuesto-video-intimo-con-expareja-gisela-valcarcel-telegram-noticia/1259900/)
+
+
+### sydney - ws wanderers (N/A, 31/01/2026 07:59 Lima)
+
+- **Sydney – Western Sydney Wanderers FC: match prediction and bet on the A-League game, January 31, 2026**: [Link](https://tribuna.com/en/news/2026-01-26-sydney-western-sydney-wanderers-fc-match-prediction-and-bet-on-the-aleague-game-january-3/)
+- **Sydney’s Rubi Sullivan looks to bring home a crucial Derby win: “We’re really going to be putting 100% in.”**: [Link](https://impetusfootball.org/2026/01/30/sydneys-rubi-sullivan-looks-to-bring-home-a-crucial-derby-win-were-really-going-to-be-putting-100-in/)
+- **Star returns with vow to ‘improve’ teammates**: [Link](https://au.news.yahoo.com/star-returns-vow-improve-teammates-235151479.html)
+
+
+### australian open (N/A, 31/01/2026 07:59 Lima)
+
+- **Australian Open 2026: Novak Djokovic steals show in Melbourne after Carlos Alcaraz denies bending rules**: [Link](https://www.bbc.com/sport/tennis/articles/c2d7yd6l0k1o)
+- **Djokovic defeats Sinner in five-set classic, returns to Australian Open final**: [Link](https://www.atptour.com/en/news/sinner-djokovic-australian-open-2026-friday)
+- **Djokovic's defiance of age resonates with Chinese fans as symbol of long-term dedication**: [Link](https://www.globaltimes.cn/page/202601/1354578.shtml)
+
+
+### tenis hoy (N/A, 31/01/2026 07:59 Lima)
+
+- **Le pasan una videollamada a Djokovic en plena entrevista tras eliminar a Sinner y es otra leyendaza del tenis:**: [Link](https://as.com/tenis/videos/le-pasan-una-videollamada-a-djokovic-en-plena-entrevista-tras-eliminar-a-sinner-y-es-otra-leyendaza-del-tenis-momentazo-f202601-v/)
+- **La final del Open de Australia se juega en Movistar Plus+: Alcaraz se bate ante Djokovic para ganar el trofeo por primera vez**: [Link](https://elpais.com/escaparate/estilo-de-vida/2026-01-31/alcaraz-final-open-australia-movistar-plus.html)
+- **Así está el historial de Novak Djokovic y Carlos Alcaraz antes de la final del Australian Open 2026**: [Link](https://www.espn.com.ar/tenis/nota/_/id/16250431/novak-djokovic-carlos-alcaraz-historial-general-atp-tenis-resultados)
+
+
+### aryna sabalenka (N/A, 31/01/2026 07:59 Lima)
+
+- **Aryna Sabalenka breaks silence after heartbreaking Australian Open final collapse**: [Link](https://www.express.co.uk/sport/tennis/2165004/aryna-sabalenka-australian-open-elena-rybakina)
+- **Sabalenka And Rybakina Set For Epic Australian Open Final Showdown**: [Link](https://evrimagaci.org/gpt/sabalenka-and-rybakina-set-for-epic-australian-open-final-showdown-526218)
+- **Who Is Tom Sweeney? Meet Chair Umpire for Aryna Sabalenka vs Elena Rybakina at Australian Open 2026 Women’s Final**: [Link](https://www.essentiallysports.com/tennis-news-who-is-tom-sweeney-meet-chair-umpire-for-aryna-sabalenka-vs-elena-rybakina-at-australian-open-two-zero-two-six-women-s-final/)
+
+
+### kevin warsh fed (N/A, 31/01/2026 07:59 Lima)
+
+- **Trump nominates Kevin Warsh as new Federal Reserve chair**: [Link](https://www.bbc.com/news/live/ckgx1yldxg4t)
+- **Stock Market News, Jan. 30, 2026: Silver Plunges, Nasdaq Falls Following Trump Fed Pick**: [Link](https://www.wsj.com/livecoverage/stock-market-today-dow-sp-500-nasdaq-01-30-2026)
+- **What to know about Trump’s Fed chair nominee, in one resume**: [Link](https://www.cnn.com/2026/01/30/economy/fed-chair-nominee-kevin-warsh-resume-vis)
+
+
+### warriors - pistons (N/A, 31/01/2026 07:59 Lima)
+
+- **Warriors Face Pistons In High-Stakes NBA Showdown Tonight**: [Link](https://evrimagaci.org/gpt/warriors-face-pistons-in-highstakes-nba-showdown-tonight-526175)
+- **Steve Kerr on Cade Cunningham: He reminds me of Luka Doncic and James Harden**: [Link](https://uk.sports.yahoo.com/news/steve-kerr-cade-cunningham-reminds-022158832.html)
+- **What we learned as Warriors can't overcome Steph Curry's exit in loss to Pistons**: [Link](https://www.nbcsportsbayarea.com/nba/golden-state-warriors/steph-curry-injury-draymond-green-pistons/1911567/)
+
+
 ### pumas vs (N/A, 31/01/2026 03:36 Lima)
 
 - **Liga MX: Pumas UNAM se enfrentará ante Santos Laguna por la fecha 4**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-pumas-unam-se-enfrentara-ante-santos-laguna-por-la-fecha-4-noticia-1673635)
@@ -966,68 +1029,5 @@ Sin noticias relacionadas disponibles.
 - **Torneo Apertura: Independiente Rivadavia dio el golpe y le ganó a Huracán en el Ducó**: [Link](https://espndeportes.espn.com/futbol/argentina/nota/_/id/16236867/independiente-rivadavia-dio-el-golpe-y-le-gano-a-huracan-en-el-duco)
 - **La LEPRA APLASTÓ a HURACÁN: jugó mejor y lo dio vuelta con SARTORI y STUDER**: [Link](https://www.mendozapost.com/deportes/huracan-independiente-rivadavia-resultado-fecha-2-liga-profesional/)
 - **De la mano de Studer y Sartori, Independiente Rivadavia remontó a Huracán y suma puntaje ideal**: [Link](https://ciudadano.news/deportes/independiente-rivadavia-remonto-huracan-lider-zona-b-n115131)
-
-
-### dolar peru (N/A, 27/01/2026 21:10 Lima)
-
-- **Precio del dólar hoy: cierre del tipo de cambio del martes 27 de enero de 2026**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-peru-2026-a-cuanto-esta-el-dolar-este-martes-27-de-enero-y-tipo-de-cambio-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
-- **¿Cuál es la cotización del dólar hoy martes 27 de enero del 2026?**: [Link](https://andina.pe/agencia/noticia-cual-es-cotizacion-del-dolar-hoy-martes-27-enero-del-2026-1060832.aspx)
-- **El dólar extiende su descenso y el BCR intensifica su intervención para frenar volatilidad**: [Link](https://peru21.pe/economia/el-dolar-extiende-su-descenso-y-el-bcr-intensifica-su-intervencion-para-frenar-volatilidad/)
-
-
-### cúcuta - bucaramanga (N/A, 27/01/2026 21:10 Lima)
-
-- **Liga Betplay: empate vibrante en el Clásico del Oriente entre Cúcuta y Bucaramanga**: [Link](https://www.espn.com.ar/futbol/colombia/nota/_/id/16230502/liga-betplay-empate-vibrante-en-el-clasico-del-oriente-entre-cucuta-y-bucaramanga)
-- **Vuelve el Clásico del Oriente: historia, rivalidad y el recuerdo del último Cúcuta vs. Bucaramanga**: [Link](https://espndeportes.espn.com/futbol/colombia/nota/_/id/16232806/vuelve-el-clasico-del-oriente-historia-rivalidad-y-el-ultimo-cucuta-vs-bucaramanga)
-- **Qué canal pasa Cúcuta vs Bucaramanga hoy: dónde ver el partido gratis y en vivo de la Liga BetPlay**: [Link](https://www.365scores.com/es/news/canal-tv-cucuta-vs-bucaramanga-gratis/)
-
-
-### fiorentina (N/A, 27/01/2026 15:29 Lima)
-
-- **Tutto il calcio in Diretta**: [Link](https://www.diretta.it/news/calcio-live-news-in-campo-fiorentina-como-1-1-gol-di-sergi-roberto/O23xObq1/)
-- **Ludi: “Il nostro obiettivo è chiaro, alzare l’asticella ogni giorno”. Su Nico Paz…**: [Link](https://www.alfredopedulla.com/ludi-il-nostro-obiettivo-e-chiaro-alzare-lasticella-ogni-giorno-su-nico-paz/)
-- **Coppa Italia: 7' | Gol di Piccoli (Fiorentina-Como 1-0) Video**: [Link](https://mediasetinfinity.mediaset.it/video/coppaitalia20252026/7--gol-di-piccoli-fiorentina-como-1-0_F313474302032C02)
-
-
-### hoffenheim vs (N/A, 27/01/2026 15:29 Lima)
-
-- **Werder’s Winless Streak and 4 Essential Facts Before Hoffenheim Match**: [Link](https://www.filmogaz.com/119930)
-- **Great football, poor support: Bundesliga fans hit new low in Bremen**: [Link](https://onefootball.com/en/news/great-football-poor-support-bundesliga-fans-hit-new-low-in-bremen-42311667)
-- **Werder Bremen vs. Hoffenheim: Betting odds, prediction, pick**: [Link](https://www.usatoday.com/story/sports/soccer/2026/01/27/werder-bremen-vs-hoffenheim-betting-odds-prediction-pick/88371214007/)
-
-
-### leipzig (N/A, 27/01/2026 15:29 Lima)
-
-- **Reims' Abwehrtalent Kone im Visier Leipzigs**: [Link](https://www.kicker.de/reims-abwehrtalent-kone-im-visier-leipzigs-4000000071849/transfermeldung)
-- **Bericht: Leipzig schnappt Leverkusen den Wunschspieler weg**: [Link](https://www.90min.de/rb-leipzig-schnappt-leverkusen-den-wunschspieler-weg)
-- **RB Leipzig steht kurz vor Transfer von Abdoul Kone von Stade Reims**: [Link](https://sport.sky.de/fussball/artikel/einigung-erzielt-rb-leipzig-steht-kurz-vor-transfer-von-abdoul-kone-von-stade-reims/13499570/34089)
-
-
-### fiorentina - como (N/A, 27/01/2026 15:29 Lima)
-
-- **Cuándo juegan Fiorentina vs. Como por la Copa Italia: equipo, fecha, hora y TV en vivo**: [Link](https://www.espn.com.ar/futbol/italia/nota/_/id/16233010/fiorentina-vs-como-por-la-copa-italia-equipo-fecha-hora-y-tv-en-vivo)
-- **Fiorentina vs. Como hoy, por los cuartos de final de la Copa Italia: todo lo que tenés que saber**: [Link](https://www.directvsports.com/futbol/fiorentina-vs.-como-hoy-por-los-cuartos-de-final-de-la-copa-italia-todo-lo-que-tenes-que-saber-20260127-0006.html)
-- **Fiorentina – Como Pronóstico y Apuestas | Copa Italia 27/01/2026**: [Link](https://www.apuestas-deportivas.es/pronostico/fiorentina-vs-como-pronostico-copa-italia-27-01-2026/)
-
-
-### miembro de mesa 2026 (N/A, 27/01/2026 15:29 Lima)
-
-- **Elecciones 2026: Estas son las fechas claves para conocer si eres miembro de mesa y tu local de votación**: [Link](https://www.infobae.com/peru/2026/01/24/elecciones-2026-estas-son-las-fechas-claves-para-conocer-si-eres-miembro-de-mesa-y-tu-local-de-votacion/)
-- **Este 29 de enero, la ONPE realizará el sorteo público de miembros de mesa para las elecciones generales 2026**: [Link](https://canaln.pe/actualidad/onpe-sorteara-este-29-enero-miembros-mesa-elecciones-2026-n489516)
-- **Elecciones 2026: ¿en qué casos puedo excusarme de ser miembro de mesa?**: [Link](https://rpp.pe/politica/elecciones/elecciones-2026-en-que-casos-puedo-excusarme-de-ser-miembro-de-mesa-noticia-1673065)
-
-
-### lugar de votación onpe 2026 (N/A, 27/01/2026 15:29 Lima)
-
-- **Elige tu local de votación: ONPE inicia envío de correos con el local de votación asignado**: [Link](https://rpp.pe/politica/elecciones/elige-tu-local-de-votacion-onpe-inicia-envio-de-correos-con-el-local-de-votacion-asignado-noticia-1673077)
-- **Elecciones 2026: ONPE ya está enviando correos con local de votación asignado**: [Link](https://andina.pe/agencia/noticia-elecciones-2026-onpe-ya-esta-enviando-correos-local-votacion-asignado-1060632.aspx)
-- **ONPE notifica locales de votación mediante correo electrónico**: [Link](https://www.cronicaviva.com.pe/onpe-notifica-locales-de-votacion-mediante-correo-electronico/)
-
-
-### laura huarcayo (N/A, 27/01/2026 15:29 Lima)
-
-- **Laura Huarcayo en shock por ¿nuevo conductor de MQM?**: [Link](https://www.americatv.com.pe/mande-quien-mande/nino-alfredito-nuevo-conductor-mande-quien-mande-noticia-162571)
-- **Laura Huarcayo: Su regreso a la TV, disfruta su soltería, su tipo de hombre, la infidelidad y más**: [Link](https://trome.com/espectaculos/tv/laura-huarcayo-su-regreso-a-la-tv-disfruta-su-solteria-su-tipo-de-hombre-la-infidelidad-y-mas-mande-quien-mande-entrevista-video-farandula-noticia/)
-- **Erick Elera se suma a la conducción del programa 'MQM' junto a Laura Huarcayo y 'La Carlota'**: [Link](https://rpp.pe/famosos/farandula/erick-elera-se-une-a-conduccion-de-programa-mande-quien-mande-con-laura-huarcayo-y-carlos-vilchez-la-carlota-noticia-1672518)
 
 
