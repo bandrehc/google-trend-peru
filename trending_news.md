@@ -1,3 +1,73 @@
+### kick (N/A, 30/01/2026 21:28 Lima)
+
+- **Clavicular reveals how Kick’s creator incentive program powered his massive January payout**: [Link](https://timesofindia.indiatimes.com/world/us-streamers/clavicular-reveals-how-kicks-creator-incentive-program-powered-his-massive-january-payout/articleshow/127790413.cms)
+- **Here's how much Clavicular really earns through the Kick KCIP**: [Link](https://win.gg/how-much-clavicular-earns-kick-kcip/)
+- **Back-to-back champs kick off season with VIP fan experiences**: [Link](https://sports.yahoo.com/articles/back-back-champs-kick-off-212750533.html)
+
+
+### oro (N/A, 30/01/2026 21:28 Lima)
+
+- **Oro y plata sufren mayor desplome en años tras rebote del dólar por nominación de Warsh en la Fed**: [Link](https://gestion.pe/mundo/internacional/oro-y-plata-sufren-mayor-desplome-en-anos-tras-rebote-del-dolar-por-nominacion-de-warsh-noticia/)
+- **Gold tops $5,600 per ounce as Bitcoin crashes to $84,000**: [Link](https://www.cryptopolitan.com/gold-tops-5600-per-ounce/)
+- **¿Por qué el oro superó la marca de los US$5,300 la onza?**: [Link](https://peru21.pe/economia/por-que-el-oro-supero-la-marca-de-los-us5300-la-onza/)
+
+
+### puebla - toluca (N/A, 30/01/2026 21:28 Lima)
+
+- **Liga MX: Horarios y cómo ver Jornada 4 del Clausura 2026**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/16235545/liga-mx-jornada-4-horarios-canales-torneo-clausura-2026)
+- **Liga MX: Comienza el juego por la Fecha 4 con partido entre Puebla y Toluca FC**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-comienza-el-juego-por-la-fecha-4-con-partido-entre-puebla-y-toluca-fc-noticia-1673607)
+- **Las alineaciones confirmadas de Puebla vs. Toluca por la Jornada 4 del Clausura 2026 de la Liga MX**: [Link](https://bolavip.com/mx/ligamx/las-alineaciones-de-puebla-vs-toluca-por-la-jornada-4-del-clausura-2026-de-la-liga-mx)
+
+
+### lakers - wizards (N/A, 30/01/2026 21:28 Lima)
+
+- **Luka Doncic's triple-double against the Wizards might be more impressive than his 70-point game**: [Link](https://www.sportingnews.com/uk/nba/los-angeles-lakers/news/luka-doncic-triple-double-wizards-impressive-70-point-game/786d9e9253df229104392f2b)
+- **Lakers easily beat Wizards on the road**: [Link](https://www.silverscreenandroll.com/lakers-scores-results/106810/lakers-vs-wizards-recap-box-score-stats-final-lebron-james-luka-doncic)
+- **NBA Announces Luka Doncic Milestone During Lakers Game**: [Link](https://athlonsports.com/nba/los-angeles-lakers/nba-announces-luka-doncic-milestone-lakers-wizards)
+
+
+### melgar vs cienciano (N/A, 30/01/2026 21:28 Lima)
+
+- **Melgar vs Cienciano en vivo: hora, canal tv y dónde ver el Torneo Apertura 2026**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/melgar-vs-cienciano-en-vivo-hora-canal-tv-y-donde-ver-el-torneo-apertura-2026-liga-1-transmision-l1max-l1play-tdpe-noticia/)
+- **Liga 1: Melgar y Cienciano se enfrentan en el clásico del sur**: [Link](https://rpp.pe/futbol/descentralizado/liga-1-melgar-y-cienciano-se-enfrentan-en-el-clasico-del-sur-noticia-1673787)
+- **Clásico del Sur 142: FBC Melgar manda en la historia y recibe a Cienciano**: [Link](https://diariocorreo.pe/deportes/clasico-del-sur-142-fbc-melgar-manda-en-la-historia-y-recibe-a-cienciano-noticia/)
+
+
+### universidad de chile (N/A, 30/01/2026 21:28 Lima)
+
+- **El U. de Chile-Audax, interrumpido por incidentes en el Estadio Nacional**: [Link](https://www.espn.com.ar/futbol/chile/nota/_/id/16250662/incidentes-universidad-de-chile-vs-audax-estadio-nacional)
+- **Meneghini marca distancia por amenaza de la barra de la Universidad de Chile**: [Link](https://espndeportes.espn.com/futbol/chile/nota/_/id/16244786/meneghini-dt-marca-distancia-amenaza-barra-universidad-de-chile-fuitbol)
+- **Video: Felipe Salomoni fue expulsado en el duelo de la U contra Audax por un codazo**: [Link](https://www.emol.com/noticias/Deportes/2026/01/30/1190182/felipe-salomoni-expulsado-udechile-audax.html)
+
+
+### moltbook (N/A, 30/01/2026 21:28 Lima)
+
+- **AI agents now have their own Reddit-style social network, and it’s getting weird fast**: [Link](https://arstechnica.com/information-technology/2026/01/ai-agents-now-have-their-own-reddit-style-social-network-and-its-getting-weird-fast/)
+- **OpenClaw’s AI assistants are now building their own social network**: [Link](https://techcrunch.com/2026/01/30/openclaws-ai-assistants-are-now-building-their-own-social-network/)
+- **Moltbook is a human-free Reddit clone where AI agents discuss cybersecurity and philosophy**: [Link](https://the-decoder.com/moltbook-is-a-human-free-reddit-clone-where-ai-agents-discuss-cybersecurity-and-philosophy/)
+
+
+### xiaomi redmi note 15 pro 5g (N/A, 30/01/2026 21:28 Lima)
+
+- **Batería que dura hasta 2 días, resistencia y fotografía avanzada con IA: las características de la nueva serie Redmi Note 15 de Xiaomi**: [Link](https://elcomercio.pe/mag/data/bateria-que-dura-hasta-2-dias-resistencia-y-fotografia-avanzada-con-ia-las-caracteristicas-de-la-nueva-serie-redmi-note-15-nnda-nnni-noticia/)
+- **Xiaomi presentó su nueva serie REDMI Note 15**: [Link](https://www.expreso.com.pe/tecnologia/xiaomi-presento-su-nueva-serie-redmi-note-15-ia-noticia/1260024/)
+- **Zusette Escudero**: [Link](https://enlinea.pe/author/zusette-escudero/)
+
+
+### volcán sabancaya (N/A, 30/01/2026 21:28 Lima)
+
+- **Arequipa: condiciones climatológicas evitan mayor dispersión de ceniza de volcán Sabancaya**: [Link](https://andina.pe/agencia/noticia-arequipa-condiciones-climatologicas-evitan-mayor-dispersion-ceniza-volcan-sabancaya-1061273.aspx)
+- **Alerta en Arequipa: Volcán Sabancaya vuelve a expulsar cenizas y pone en riesgo a poblaciones**: [Link](https://diariocorreo.pe/edicion/arequipa/alerta-en-arequipa-sabancaya-expulsa-cenizas-y-pone-en-riesgo-a-poblaciones-noticia/)
+- **Continúa la alerta en el volcán Sabancaya tras nuevas explosiones**: [Link](https://diarioelpueblo.com.pe/2026/01/27/continua-la-alerta-en-el-volcan-sabancaya-tras-nuevas-explosiones/)
+
+
+### ciro castillo (N/A, 30/01/2026 21:28 Lima)
+
+- **Poder Judicial libera a Ciro Castillo y retoma su cargo en el GORE**: [Link](https://caretas.pe/politica/poder-judicial-libera-a-ciro-castillo-gobernador-del-callao-y-retoma-su-cargo/)
+- **PJ cambia prisión por comparecencia a Ciro Castillo Rojo**: [Link](https://www.americatv.com.pe/noticias/actualidad/ciro-castillo-pj-cambia-prision-preventiva-comparecencia-n515347)
+- **Poder Judicial anuló orden de prisión preventiva contra Ciro Castillo y podría volver al Gobierno Regional del Callao**: [Link](https://trome.com/actualidad/politica/ciro-castillo-poder-judicial-revoco-su-orden-de-prision-preventiva-noticia/)
+
+
 ### utc cajamarca - atlético grau (N/A, 30/01/2026 15:36 Lima)
 
 - **VER, UTC vs Atlético Grau EN VIVO por la fecha 1 del Torneo Apertura 2026**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/utc-vs-atletico-grau-en-vivo-hora-canal-tv-y-donde-ver-la-fecha-1-del-torneo-apertura-2026-liga-1-video-transmision-l1-max-l1-play-tdpe-noticia/)
@@ -959,75 +1029,5 @@ Sin noticias relacionadas disponibles.
 - **Australian Open Betting Tips: Top Tennis Matches for January 27**: [Link](https://www.filmogaz.com/119202)
 - **Svitolina hopes Gauff upset brings 'a little light' to Ukraine**: [Link](https://www.rfi.fr/en/sports/20260127-svitolina-stuns-gauff-in-59-minutes-to-sail-into-australian-open-semis)
 - **Tim Henman slams ‘shocking’ Coco Gauff performance as she crashes out of the Australian Open**: [Link](https://tennishead.net/tim-henman-slams-shocking-coco-gauff-performance-as-she-crashes-out-of-the-australian-open/)
-
-
-### sonia oquendo (N/A, 27/01/2026 08:03 Lima)
-
-- **Sonia Oquendo reveló que fue una pesadilla trabajar en la obra ‘Los Monógolos de la Vagina’: “Sufrí maltrato y depresión”**: [Link](https://www.infobae.com/peru/2026/01/27/sonia-oquendo-revelo-que-fue-una-pesadilla-trabajar-en-la-obra-los-monogolos-de-la-vagina-sufri-maltrato-y-depresion/)
-- **Connie Chaparro defiende a su esposo Sergio Galliani por acusaciones de maltrato: “Eso se llama difamar”**: [Link](https://larepublica.pe/espectaculos/2026/01/27/connie-chaparro-defiende-a-sergio-galliani-tras-polemica-por-acusaciones-de-maltrato-eso-se-llama-difamar-mdga-2238003)
-- **Sonia Oquendo denunció que habría sido maltratada por Sergio Galliani en su última obra: "Sentía que estaba en una cárcel"**: [Link](https://willax.pe/entretenimiento/sonia-oquendo-denuncia-maltrato-sergio-galliani-obra-teatro-willax)
-
-
-### alexander zverev (N/A, 27/01/2026 08:03 Lima)
-
-- **Zverev plays 'two games at once' as diabetes clock ticks under Australian Open run**: [Link](https://www.reuters.com/sports/tennis/zverev-plays-two-games-once-diabetes-clock-ticks-under-australian-open-run-2026-01-26/)
-- **Tennis-Zverev crushes Cerundolo to reach Australian Open quarter-finals**: [Link](https://whtc.com/2026/01/25/tennis-zverev-crushes-cerundolo-to-reach-australian-open-quarter-finals/)
-- **Alexander Zverev shares his honest opinion about on-court coaching at the Australian Open**: [Link](https://tennishead.net/alexander-zverev-shares-his-honest-opinion-about-on-court-coaching-at-the-australian-open/)
-
-
-### bulls - lakers (N/A, 27/01/2026 03:39 Lima)
-
-- **BULLS POSTGAME: Coby White and Bulls OUTCLASSED by Luka Doncic, Lakers | CHGO Bulls Podcast**: [Link](https://bvmsports.com/2026/01/26/bulls-postgame-coby-white-and-bulls-outclassed-by-luka-doncic-lakers-chgo-bulls-podcast/)
-- **"You have to be willing to live with the stuff that he …**: [Link](https://www.hoopshype.com/story/sports/nba/rumors/2026/01/26/you-have-to-be-willing-to-live-with-the-stuff-that-he/88373078007/)
-- **Nikola Vucevic News: Double-doubles in defeat**: [Link](https://www.rotowire.com/basketball/headlines/nikola-vucevic-news-double-doubles-in-defeat-515900)
-
-
-### zverev (N/A, 26/01/2026 23:51 Lima)
-
-- **Zverev on facing Tien: 'I didn't expect him to beat Medvedev that easily'**: [Link](https://en.tennistemple.com/actu/zverev-on-facing-tien-i-didnt-expect-him/ilG8)
-- **Live : Australian Open Tennis : Learner Tien vs Alexander Zverev updates**: [Link](https://www.cochraneeagle.ca/classifieds/homes-rentals-and-real-estate/cochrane-open-houses/2087996)
-- **WATCH Zverev vs Tien LIVE STREA.Ms ON Australian Open 26th. JAN. 2026**: [Link](https://www.westernwheel.ca/classifieds/announcements-and-events/anniversaries/2087965)
-
-
-### warriors - timberwolves (N/A, 26/01/2026 23:51 Lima)
-
-- **Stephen Curry, Draymond Green out vs. Timberwolves**: [Link](https://www.nba.com/news/stephen-curry-draymond-green-to-miss-warriors-timberwolves-game-at-minnesota)
-- **A week that clarified the Warriors’ problems — and the fix**: [Link](https://bluemanhoop.com/warriors-have-crystal-clear-fix-address-their-major-problems)
-- **Where to watch Warriors vs. Timberwolves live stream today**: [Link](https://www.masslive.com/tv/2026/01/where-to-watch-warriors-vs-timberwolves-live-stream-today.html)
-
-
-### learner tien (N/A, 26/01/2026 23:51 Lima)
-
-- **Australian Open live: Kyrgios seen at nightclub before latest match, 45C temperature suspends play**: [Link](https://www.espn.com/tennis/story/_/id/47730773/australian-open-2026-live-updates-match-schedule-results-heat-weather-suspension-sabalenka-alcaraz-de-minaur-gauff)
-- **Daily Download: Your rapid recap of Day 8 at AO 2026**: [Link](https://ausopen.com/articles/news/daily-download-your-rapid-recap-day-8-ao-2026)
-- **Australian Open 2026 quarter-finals: Zverev v Tien, Sabalenka through to semis– live**: [Link](https://www.theguardian.com/sport/live/2026/jan/27/australian-open-2026-quarter-finals-zverev-tien-live-updates-tennis)
-
-
-### alexis ortega (N/A, 26/01/2026 23:51 Lima)
-
-- **Muere a los 38 Alexis Ortega, voz en español del Spider-Man de Tom Holland en el UCM**: [Link](https://www.infobae.com/mexico/2026/01/27/muere-a-los-38-alexis-ortega-voz-en-espanol-del-spider-man-de-tom-holland-en-el-ucm/)
-- **Muere Alexis Ortega, actor de doblaje de varias películas de SpiderMan**: [Link](https://www.mediotiempo.com/espectaculos/muere-alexis-ortega-actor-doblaje-peliculas-spiderman)
-- **Fallece Alexis Ortega: Analizando el legado de Spider-Man y Tadashi**: [Link](https://caribepeninsular.mx/fallece-alexis-ortega-analizando-el-legado-de-spider-man-y-tadashi/)
-
-
-### sabalenka (N/A, 26/01/2026 21:21 Lima)
-
-- **Live: Aus Open to enact 'extreme heat' rules as Sabalenka kicks off quarters**: [Link](https://www.abc.net.au/news/2026-01-27/australian-open-2026-live-alex-de-minaur-alcaraz-sabalenka-gauff/106272422)
-- **HIGHLIGHTS-Tennis-Australian Open day 10**: [Link](https://www.straitstimes.com/sport/tennis/highlights-tennis-australian-open-day-10)
-- **Tests for Gauff & Zverev in Australian Open quarter-finals as Alcaraz faces last home hope**: [Link](https://www.flashscore.com/news/tennis-australian-open-atp-singles-tests-for-gauff-zverev-in-australian-open-quarter-finals-as-alcaraz-faces-last-home-hope/f9EtblGO/)
-
-
-### lakers - bulls (N/A, 26/01/2026 21:21 Lima)
-
-- **Jake LaRavia will play for the Lakers tonight in …**: [Link](https://www.hoopshype.com/story/sports/nba/rumors/2026/01/26/jake-laravia-will-play-for-the-lakers-tonight-in/88365032007/)
-- **3 Keys: Chicago Bulls Hoping to Build on NBA's Longest Active Win Streak vs. Lakers**: [Link](https://www.si.com/nba/bulls/onsi/news/3-keys-chicago-bulls-hoping-to-build-on-nba-s-longest-active-lakers)
-- **Jake LaRavia (quad) questionable Monday**: [Link](https://www.fantasypros.com/nba/news/567464/jake-laravia-quad-questionable-monday.php)
-
-
-### rosangela espinoza (N/A, 26/01/2026 21:21 Lima)
-
-- **Rosángela Espinoza y su reacción al ver a José Jerí**: [Link](https://www.americatv.com.pe/mas-espectaculos/rosangela-se-emociono-al-ver-jose-jeri-palacio-mi-casa-noticia-162561)
-- **Rosángela Espinoza se emociona al reconocer al presidente José Jerí durante sesión de fotos en el Centro de Lima**: [Link](https://www.infobae.com/peru/2026/01/25/rosangela-espinoza-se-emociona-al-reconocer-al-presidente-jose-jeri-durante-sesion-de-fotos-en-el-centro-de-lima/)
-- **Rosángela Espinoza FASCINADA tras tener encuentro INESPERADO con José Jerí: "Las coincidencias"**: [Link](https://www.exitosanoticias.pe/espectaculos/rosangela-espinoza-fascinada-tras-tener-encuentro-inesperado-jose-jeri-las-coincidencias-n167334)
 
 
