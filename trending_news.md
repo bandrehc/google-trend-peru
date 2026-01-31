@@ -1,3 +1,73 @@
+### lamine yamal (N/A, 31/01/2026 15:32 Lima)
+
+- **Champions League: Ranking de los 36 equipos y el once ideal**: [Link](https://www.espn.com.pe/futbol/champions-league/nota/_/id/16245226/champions-league-real-madrid-barcelona-ranking-once-ideal-fase-liga)
+- **Un jugador de LaLiga, en el once ideal de la jornada de Champions**: [Link](https://www.flashscore.pe/noticias/futbol-champions-league-once-ideal-jornada-8-lamine-yamal/IsvClzxe/)
+- **Barcelona squad named for Elche**: [Link](https://www.barcablaugranes.com/barcelona-la-liga/111470/elche-barcelona-la-liga-team-news-squad-list)
+
+
+### peru vs brasil futsal (N/A, 31/01/2026 15:32 Lima)
+
+- **Perú logró una histórica clasificación a semifinales**: [Link](https://copaamerica.com/es/novedades/cronica-uruguay-peru-copa-america-futsal-2026)
+- **Selección Peruana de Futsal en semifinales**: [Link](https://caretas.pe/deportes/seleccion-peruana-de-futsal-en-semifinales/)
+- **¡HISTÓRICO! Selección Peruana clasificó a la semifinal de la Copa América de Futsal**: [Link](https://peru21.pe/deportes/historico-seleccion-peruana-clasifico-semifinal-copa-america-de-futsal/)
+
+
+### iñaki peña (N/A, 31/01/2026 15:32 Lima)
+
+- **La diferencia trascendental entre las cesiones de Iñaki Peña y Ter Stegen**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20260131/1002611874/diferencia-trascendental-cesiones-inaki-pena-ter-stegen.html)
+- **Héctor Fort, un regreso en ‘stand by’**: [Link](https://as.com/futbol/hector-fort-un-regreso-en-stand-by-f202601-n/)
+- **Iñaki Peña, junto al resto de compañeros, durante el entrenamiento previo al Elche-Barça.**: [Link](https://www.informacion.es/videos/elchecf/2026/01/30/inaki-pena-resto-companeros-durante-126270994.html)
+
+
+### caxias - internacional (N/A, 31/01/2026 15:32 Lima)
+
+- **Após derrota na estreia do Brasileiro, Inter busca reação contra o Caxias pelo Gaúcho**: [Link](https://www.terra.com.br/esportes/internacional/apos-derrota-na-estreia-do-brasileiro-inter-busca-reacao-contra-o-caxias-pelo-gaucho,00cdbab6ecdd15d202d93f511f3fe9d099hgxplp.html)
+- **Fernando Marchiori dá ‘dica’ a Paulo Pezzolano e admite procura no mercado antes de Caxias x Internacional**: [Link](https://www.mixvale.com.br/2026/01/31/fernando-marchiori-da-dica-a-paulo-pezzolano-e-admite-procura-no-mercado-antes-de-caxias-x-internacional/)
+- **Caxias x Internacional no Campeonato Gaúcho: onde assistir ao vivo, horário e escalação**: [Link](https://www.estadao.com.br/esportes/futebol/caxias-x-internacional-no-campeonato-gaucho-onde-assistir-ao-vivo-horario-e-escalacao/)
+
+
+### monaco vs (N/A, 31/01/2026 15:32 Lima)
+
+- **Liga de Francia: Stade Rennes visita a Mónaco por la fecha 20**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-de-francia-stade-rennes-visita-a-monaco-por-la-fecha-20-noticia-1673736)
+- **Mónaco vs Stade Rennes: previa, horario y cómo llegan para la fecha 20 de la Ligue 1**: [Link](https://zona.palmsbet.pe/deportes/futbol/monaco-vs-stade-rennes-previa-horario-y-como-llegan-para-la-fecha-20-de-la-ligue-1/)
+- **Monaco predicted XI v Rennes: Denis Zakaria drops into defence**: [Link](https://sports.yahoo.com/articles/monaco-predicted-xi-v-rennes-093500354.html)
+
+
+### juan pablo ii college - fc cajamarca (N/A, 31/01/2026 15:32 Lima)
+
+- **Juan Pablo II vs FC Cajamarca: A qué hora juegan y cómo seguir el Torneo Apertura 2026**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/juan-pablo-ii-vs-fc-cajamarca-en-vivo-horario-y-donde-ver-el-torneo-apertura-2026-liga-1-l1play-l1max-video-transmision-tdpe-noticia/)
+- **Juan Pablo II puso a la venta boletos para duelo ante FC Cajamarca**: [Link](https://ovacion.pe/noticias/juan-pablo-ii-college/juan-pablo-ii-puso-venta-boletos-duelo-ante-fc-cajamarca)
+- **Juan Pablo II vs. FC Cajamarca: Pronóstico y cuando juegan por la Fecha 1 del Torneo Apertura de la Liga 1**: [Link](https://www.futbolperuano.com/liga-1/noticias/juan-pablo-ii-vs-fc-cajamarca-en-vivo-online-por-la-fecha-1-del-torneo-apertura-de-la-liga-1-561868)
+
+
+### angel montoya rio cauca (N/A, 31/01/2026 15:32 Lima)
+
+- **Influencer Ángel Montoya fue hallado sin vida tras desaparecer durante un reto viral en el río Cauca**: [Link](https://larepublica.pe/espectaculos/2026/01/31/influencer-angel-montoya-fue-hallado-sin-vida-tras-desaparecer-durante-un-reto-viral-en-el-rio-cauca-594146)
+- **VIDEO: Joven se tira a un río desde un puente para cumplir un reto y lo encuentran sin vida**: [Link](https://emisorasunidas.com/viral/2026/01/30/joven-se-tira-a-rio-y-lo-encuentran-sin-vida/)
+- **Colombia: hallan sin vida a hombre tras video vinculado a un supuesto reto en redes**: [Link](https://www.eltelegrafo.com.ec/noticias/tendencias/213/colombia-hallan-sin-vida-hombre-video-reto-redes)
+
+
+### pouso alegre futebol clube - atlético mineiro (N/A, 31/01/2026 15:32 Lima)
+
+- **📋 Sampaoli muda quase o time todo para jogo pelo Campeonato Mineiro**: [Link](https://onefootball.com/pt-br/noticias/sampaoli-muda-quase-o-time-todo-para-jogo-pelo-campeonato-mineiro-42336870)
+- **Família de São Sebastião da Bela Vista viaja a Pouso Alegre para ver o Atlético pela primeira vez**: [Link](https://www.otempo.com.br/sports/atletico/2026/1/31/familia-de-sao-sebastiao-da-bela-vista-viaja-a-pouso-alegre-para-ver-o-atletico-pela-primeira-vez)
+- **Avião do Atlético-MG não consegue pousar no interior de Minas e vai para Campinas**: [Link](https://www.gazetaesportiva.com/futebol/aviao-do-atletico-mg-nao-consegue-pousar-no-interior-de-minas-e-vai-para-campinas/)
+
+
+### cagliari vs (N/A, 31/01/2026 15:32 Lima)
+
+- **Levante vs. Atlético (31 de Ene., 2026) Resultados en Vivo**: [Link](https://www.espn.com.pe/futbol/partido/_/juegoId/748357)
+- **✅ Cagliari vs Verona line-ups: Kilicsoy, Esposito, Orban choices**: [Link](https://sports.yahoo.com/articles/cagliari-vs-verona-line-ups-185600133.html)
+- **Cagliari vs Hellas Verona Prediction, 1/31/2026 Soccer Pick, Tips and Odds**: [Link](https://www.docsports.com/free-picks/soccer/2026/cagliari-vs-hellas-verona-prediction-1-31-2026-soccer-pick-tips-and-odds.html)
+
+
+### barcelona vs. copenhague (N/A, 31/01/2026 15:32 Lima)
+
+- **Flick: “La Premier es la primera liga...”**: [Link](https://as.com/futbol/champions/flick-la-premier-es-la-primera-liga-f202601-n/)
+- **Lamine Yamal: asistencia y gol para Barcelona en 12 minutos**: [Link](https://www.espn.com.ar/futbol/champions-league/nota/_/id/16240730/barcelona-vs-copenhague-fase-liga-fecha-8-champions-league-equipo-fecha-hora-tv-en-vivo)
+- **¡Fiesta blaugrana! Barcelona golea 4‑1 al Copenhague y avanza directo a octavos de Champions**: [Link](https://caretas.pe/deportes/barcelona-golea-copenhague-champions-2026/)
+
+
 ### napoli - fiorentina (N/A, 31/01/2026 11:36 Lima)
 
 - **A Dazn: «L'umore oggi dev'essere alto, tutto è ancora possibile. Non abbiamo tempo di abbatterci, ci sono partite da giocare»**: [Link](https://www.facebook.com/story.php?story_fbid=1418621083609876&id=100063859936263)
@@ -964,75 +1034,5 @@ Sin noticias relacionadas disponibles.
 - **Get the rules lowdown at Australian Open 2026**: [Link](https://ausopen.com/articles/news/get-rules-lowdown-australian-open-2026)
 - **Australian Open 2026 recap: Jannik Sinner beats Ben Shelton to reach semi-finals**: [Link](https://www.bbc.com/sport/tennis/live/c0l7d3kdl52t)
 - **Sinner hails 'inspiration' Djokovic ahead of Australian Open blockbuster**: [Link](https://www.france24.com/en/live-news/20260128-sinner-sets-up-australian-open-semi-final-against-djokovic)
-
-
-### jannik sinner (N/A, 28/01/2026 08:03 Lima)
-
-- **Sinner inarrestabile! Spazza via Shelton e vola in semifinale contro Djokovic**: [Link](https://www.gazzetta.it/Tennis/atp/slam/australian-open/28-01-2026/sinner-shelton-live-agli-australian-open.shtml)
-- **Australian Open 2026, il diario della giornata: 28 gennaio**: [Link](https://www.lottomatica.sport/news/australian-open/australian-open-2026-il-diario-della-giornata-28-gennaio/)
-- **Jannik Sinner - Novak Djokovic all'Australian Open 2026: programma, orario e dove vedere la semifinale · Tennis ATP**: [Link](https://www.olympics.com/it/notizie/tennis-sinner-djokovic-australian-open-2026-quando-gioca-programma-dove-vedere-semifinale)
-
-
-### sinner (N/A, 28/01/2026 08:03 Lima)
-
-- **Australian Open 2026 recap: Jannik Sinner beats Ben Shelton to reach semi-finals**: [Link](https://www.bbc.com/sport/tennis/live/c0l7d3kdl52t)
-- **Sinner hails 'inspiration' Djokovic ahead of Australian Open blockbuster**: [Link](https://www.france24.com/en/live-news/20260128-sinner-sets-up-australian-open-semi-final-against-djokovic)
-- **Jannik Sinner gives update on his fitness ahead of match vs Novak Djokovic**: [Link](https://tennishead.net/jannik-sinner-gives-update-on-his-fitness-ahead-of-match-vs-novak-djokovic/)
-
-
-### novak djokovic (N/A, 28/01/2026 03:40 Lima)
-
-- **Australian Open 2026: Novak Djokovic scrapes into semi-finals as Lorenzo Musetti retires injured when two sets up**: [Link](https://www.bbc.com/sport/tennis/articles/c2k922e290jo)
-- **Djokovic's Dramatic Grand Slam Pursuit**: [Link](https://www.devdiscourse.com/article/headlines/3784040-djokovics-dramatic-grand-slam-pursuit)
-- **Djokovic gets lucky to join Pegula, Rybakina in Melbourne semi-finals**: [Link](https://sports.yahoo.com/articles/djokovic-gets-lucky-join-pegula-081744112.html)
-
-
-### connie chaparro (N/A, 28/01/2026 03:40 Lima)
-
-- **Sergio Galliani niega maltrato a actrices de ‘Monólogos de la Vagina’: “Siempre he exigido sacar lo mejor de mis actores”**: [Link](https://www.infobae.com/peru/2026/01/27/sergio-galliani-niega-maltrato-a-actrices-de-monologos-de-la-vagina-siempre-he-exigido-sacar-lo-mejor-de-mis-actores/)
-- **Rodrigo González asegura que Camucha Negrete habría recibido malos tratos de Sergio Galliani en obra teatral**: [Link](https://peru21.pe/espectaculos/rodrigo-gonzalez-asegura-que-camucha-habria-sufrido-malos-tratos-en-obra-teatral-dirigida-por-sergio-galliani/)
-- **Connie Chaparro defiende a su esposo Sergio Galliani por acusaciones de maltrato: “Eso se llama difamar”**: [Link](https://larepublica.pe/espectaculos/2026/01/27/connie-chaparro-defiende-a-sergio-galliani-tras-polemica-por-acusaciones-de-maltrato-eso-se-llama-difamar-mdga-2238003)
-
-
-### djokovic vs (N/A, 27/01/2026 23:49 Lima)
-
-- **Who Is Lorenzo Musetti’s Girlfriend Veronica Confalonieri? Do They Have Kids?**: [Link](https://www.essentiallysports.com/tennis-news-who-is-lorenzo-musettis-girlfriend-veronica-confalonieri-do-they-have-kids/)
-- **Musetti vs. Djokovic 2026 livestream: Watch Australian Open for free**: [Link](https://mashable.com/article/musetti-djokovic-australian-open-2026-live-stream-for-free)
-- **Jannik Sinner discusses Lorenzo Musetti's chances of beating Novak Djokovic at the Australian Open**: [Link](https://tennishead.net/jannik-sinner-discusses-lorenzo-musettis-chances-of-beating-novak-djokovic-at-the-australian-open/)
-
-
-### kick (N/A, 27/01/2026 23:49 Lima)
-
-- **The Ultimate Guide to Becoming a Kick Partner**: [Link](https://siege.gg/news/the-ultimate-guide-to-becoming-a-kick-partner)
-- **Stock market today: S&P 500 hits fresh record with Fed decision, Big Tech earnings bonanza on deck**: [Link](https://finance.yahoo.com/news/live/stock-market-today-sp-500-hits-fresh-record-with-fed-decision-big-tech-earnings-bonanza-on-deck-210311432.html)
-- **Tech Futures Rise After S&P 500 Hits Highs, Leaders Shine**: [Link](https://www.investors.com/market-trend/stock-market-today/dow-jones-futures-tesla-meta-microsoft-fed-chief-powell/)
-
-
-### djokovic (N/A, 27/01/2026 23:49 Lima)
-
-- **¿Problemas en el Australian Open 2026? Novak Djokovic y Lorenzo Musetti no contarán con sus entrenadores en el box**: [Link](https://www.espn.com.pe/tenis/nota/_/id/16235982/problemas-en-el-australian-open-2026-novak-djokovic-y-lorenzo-musetti-no-contaran-con-sus-entrenadores-en-el-box)
-- **Lorenzo Musetti derrota a Taylor Fritz en el Abierto de Australia**: [Link](https://www.ucvradio.pe/deporte/lorenzo-musetti-derrota-a-taylor-fritz-en-el-abierto-de-australia/113314/)
-- **Hora de inicio de Novak Djokovic vs Lorenzo Musetti y cómo ver los cuartos de final del Abierto de Australia**: [Link](https://www.elpueblo.pe/deportes/hora-de-inicio-de-novak-djokovic-vs-lorenzo-musetti-y-como-ver-los-cuartos-de-final-del-abierto-de-australia/230985/)
-
-
-### amanda anisimova (N/A, 27/01/2026 23:49 Lima)
-
-- **Australian Open quarterfinals: Anisimova or Pegula? Swiatek or Rybakina?**: [Link](https://www.wtatennis.com/news/4440187/australian-open-quarterfinals-anisimova-or-pegula-swiatek-or-rybakina)
-- **Amanda Anisimova Defeats Wang Xinyu, Narrowly Escapes Amanda Anisimova**: [Link](https://defector.com/amanda-anisimova-defeats-wang-xinyu-narrowly-escapes-amanda-anisimova)
-- **Jessica Pegula's Historic Semi-Finals Leap at Australian Open**: [Link](https://www.devdiscourse.com/article/sports-games/3783914-jessica-pegulas-historic-semi-finals-leap-at-australian-open)
-
-
-### newells (N/A, 27/01/2026 23:49 Lima)
-
-- **Cuándo juegan Newell's vs. Independiente por el Torneo Apertura: equipo, fecha, hora y TV en vivo**: [Link](https://www.espn.com.ar/futbol/argentina/nota/_/id/16231337/utils)
-- **Qué canal pasa Newells vs Independiente hoy: dónde ver el partido gratis y en vivo de la Liga Profesional**: [Link](https://www.365scores.com/es/news/newells-vs-independiente-donde-ver-vivo/)
-- **Sobre el final, Michael Hoyos marcó el gol del empate entre Newell`s y Independiente**: [Link](https://www.directvsports.com/futbol/sobre-el-final-michael-hoyos-marco-el-gol-del-empate-entre-newells-y-independiente-20260124-0001.html)
-
-
-### onp pensiones (N/A, 27/01/2026 23:49 Lima)
-
-- **Cronograma del Banco de la Nación en febrero 2026: Fechas de pago de sueldos y pensiones**: [Link](https://www.infobae.com/peru/2026/01/27/cronograma-del-banco-de-la-nacion-en-febrero-2026-fechas-de-pago-de-sueldos-y-pensiones/)
-- **¿Eres pensionista SNP? El incremento se cobra desde el 6 de febrero. Infórmate**: [Link](https://www.elperuano.pe/noticia/287918-eres-pensionista-snp-el-incremento-se-cobra-desde-el-6-de-febrero-informate)
-- **Aumento a pensionistas ONP 2026: conoce aquí el cronograma de pagos de febrero**: [Link](https://andina.pe/agencia/noticia-aumento-a-pensionistas-onp-2026-conoce-aqui-cronograma-pagos-febrero-1057452.aspx)
 
 
