@@ -1,3 +1,73 @@
+### benfica vs (N/A, 01/02/2026 15:33 Lima)
+
+- **Una revancha, un clásico local, largos viajes y choques parejos: los playoffs de la UEFA Champions League**: [Link](https://www.espn.com.pe/futbol/champions-league/nota/_/id/16247791/revancha-clasico-local-viajes-choques-parejos-playoffs-uefa-champions-league)
+- **Real Madrid tendrá revancha ante Mourinho: así quedaron conformados los playoffs de octavos en Champions League 2026**: [Link](https://rpp.pe/futbol/champions-league/sorteo-champions-league-2026-playoffs-en-vivo-a-que-hora-inicia-bombos-y-donde-ver-definicion-del-repechaje-a-octavos-torneo-uefa-noticia-1673551)
+- **¿Cuándo es el sorteo del Playoff y los octavos de final de la UEFA Champions League 2025-26?**: [Link](https://bolavip.com/pe/champions-league/cuando-es-el-sorteo-del-playoff-y-los-octavos-de-final-de-la-uefa-champions-league-2025-26)
+
+
+### psg (N/A, 01/02/2026 15:33 Lima)
+
+- **Strasbourg - PSG : les compositions probables**: [Link](https://www.footmercato.net/a216547045805971006-strasbourg-psg-les-compositions-probables)
+- **DIRECT. Dix minutes sens dessus dessous à la Meinau : le Racing égalise contre le PSG**: [Link](https://www.flashscore.fr/actualites/football-ligue-1-direct-dix-minutes-sens-dessus-dessous-a-la-meinau-le-racing-egalise-contre-le-psg/W0he3Hif/)
+- **Strasbourg / PSG - Le groupe parisien avec Dro Fernandez**: [Link](https://canal-supporters.com/strasbourg-psg-le-groupe-parisien-avec-dro-fernandez/)
+
+
+### psg vs (N/A, 01/02/2026 15:33 Lima)
+
+- **LIVE! Strasbourg vs PSG in Ligue 1 on beIN SPORTS**: [Link](https://www.beinsports.com/en-us/soccer/ligue-1/articles/live-strasbourg-vs-psg-in-ligue-1-on-bein-sports-2026-02-01)
+- **Luis Enrique Welcomes Ligue 1 Challenge From Lens**: [Link](https://www.barrons.com/news/luis-enrique-welcomes-ligue-1-challenge-from-lens-ef2e2576)
+- **Football Tracker: PSG facing in-form Strasbourg, Juventus away to Parma**: [Link](https://www.flashscore.com/news/football-tracker-psg-facing-in-form-strasbourg-juventus-away-to-parma/ADlVXIrA/)
+
+
+### juventus vs (N/A, 01/02/2026 15:33 Lima)
+
+- **Preview: Parma vs Juventus - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/parma/preview/parma-vs-juventus-prediction-team-news-lineups_591046.html)
+- **Spalletti: Juventus ‘need more rest’, ‘I expect a reaction’ after 0-0 Monaco draw**: [Link](https://football-italia.net/spalletti-juventus-need-more-rest/)
+- **Official Juventus lineup vs Parma: Yildiz & David are back**: [Link](https://onefootball.com/fr/news/official-juventus-lineup-vs-parma-yildiz-david-are-back-42341541)
+
+
+### premios grammy (N/A, 01/02/2026 15:33 Lima)
+
+- **Bad Bunny y Kendrick Lamar, listos para hacer historia en los Grammy 2026: ¿qué récords pueden romper?**: [Link](https://rpp.pe/famosos/celebridades/grammy-2026-que-records-pueden-romper-bad-bunny-y-kendrick-lamar-noticia-1673945)
+- **Premios Grammy 2026: ¿Quiénes son los nominados a las principales categorías?**: [Link](https://elcomercio.pe/luces/musica/premios-grammy-2026-quienes-son-los-nominados-a-las-principales-categorias-ultimas-noticia/)
+- **Bruno Mars, último artista confirmado para presentarse en los Grammy 2026**: [Link](https://forbes.pe/forbes-life/2026-01-30/bruno-mars-ultimo-artista-confirmado-para-presentarse-en-los-grammy-2026/)
+
+
+### hernán barcos (N/A, 01/02/2026 15:33 Lima)
+
+- **Christian Cueva y Hernán Barcos anotaron en partidazo entre Juan Pablo y FC Cajamarca**: [Link](https://www.espn.com.pe/futbol/peru/nota/_/id/16254646/christian-cueva-y-hernan-barcos-anotaron-en-partidazo-entre-juan-pablo-y-fc-cajamarca)
+- **¡Un partidazo! Con goles de Barcos y Cueva, FC Cajamarca empató 3-3 con Juan Pablo II en Chongoyape (VIDEO)**: [Link](https://rpp.pe/futbol/descentralizado/juan-pablo-ii-vs-fc-cajamarca-en-vivo-a-que-hora-juegan-hernan-barcos-y-donde-ver-fecha-1-torneo-apertura-2026-via-l1max-partidos-de-hoy-noticia-1673763)
+- **¡El primer grito del ‘Pirata’! Gol de Hernán Barcos para el 1-0 de FC Cajamarca vs. Juan Pablo II**: [Link](https://depor.com/futbol-peruano/descentralizado/gol-hernan-barcos-fc-cajamarca-vs-juan-pablo-ii-golazo-y-1-0-liga1-2026-video-noticia/)
+
+
+### tondela - benfica (N/A, 01/02/2026 15:33 Lima)
+
+- **VÍDEO: Prestianni viaja com a comitiva do Benfica até Tondela**: [Link](https://maisfutebol.iol.pt/benfica/liga/video-prestianni-viaja-com-a-comitiva-do-benfica-ate-tondela)
+- **Cristiano Bacci: «Não é por ser o Benfica que nos vamos fechar atrás»**: [Link](https://sapo.pt/artigo/cristiano-bacci-nao-e-por-ser-o-benfica-que-nos-vamos-fechar-atras-697e2161343ccb6fa396013f)
+- **Benfica entra em Tondela sob o calor dos adeptos: Trubin destaca-se com elogios**: [Link](https://www.distritonline.pt/2610-benfica-entra-em-tondela-sob-o-calor-dos-adeptos-trubin-destaca-se-com-elogios/)
+
+
+### alianza atlético - cusco (N/A, 01/02/2026 15:33 Lima)
+
+- **¿A que hora juegan Alianza Atlético vs Cusco FC? Mira por este canal el partido por la fecha 1 de la Liga 1 2026**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/alianza-atletico-vs-cusco-fc-en-vivo-hora-canal-tv-y-donde-ver-la-fecha-1-del-torneo-apertura-2026-transmision-l1max-l1play-tdpe-noticia/)
+- **🔴#ENVIVO | Alianza Atlético y Cusco FC igualan sin goles en Sullana**: [Link](https://ovacion.pe/noticias/liga1-2026/envivo-alianza-atletico-cusco-fc-igualan-sin-goles-sullana)
+- **Liga 1: Alianza Atlético recibirá a Cusco FC por la fecha 1**: [Link](https://rpp.pe/futbol/descentralizado/liga-1-alianza-atletico-recibira-a-cusco-fc-por-la-fecha-1-noticia-1673893)
+
+
+### sporting lisboa vs. nacional (N/A, 01/02/2026 15:33 Lima)
+
+- **Luis Suárez, entre los máximos artilleros de las ligas europeas**: [Link](https://colombia.as.com/futbol/colombianos-por-el-mundo/luis-suarez-entre-los-maximos-artilleros-de-las-ligas-europeas-f202601-n/)
+- **Sporting se aferra a la racha de Suárez en el cierre de fase liga de Champions**: [Link](https://www.espn.com.mx/futbol/champions-league/nota/_/id/16234484/sporting-aferra-racha-luis-suarez-cierre-fase-liga-champions)
+- **Luis Suárez: así fue el golazo vs Nacional por la Primera Liga**: [Link](https://www.365scores.com/es/news/asi-fue-el-golazo-de-luis-suarez-hoy/)
+
+
+### athletic - real sociedad (N/A, 01/02/2026 15:33 Lima)
+
+- **El efecto Matarazzo frente al momento más delicado de Valverde**: [Link](https://elpais.com/deportes/futbol/2026-02-01/el-efecto-matarazzo-frente-al-momento-mas-delicado-de-valverde.html)
+- **Apuestas y Pronóstico del Athletic Club vs Real Sociedad 01/02/26**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2026/febrero/pronostico-athletic-club-vs-real-sociedad-01-02-26)
+- **LaLiga EA Sports: Athletic Bilbao recibe a Real Sociedad por el derbi vasco**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-athletic-bilbao-recibe-a-real-sociedad-por-el-derbi-vasco-noticia-1673891)
+
+
 ### manchester city vs. galatasaray (N/A, 01/02/2026 11:36 Lima)
 
 - **Galatasaray'a kötü haber! O isim de gitti**: [Link](https://www.babaocagi.com.tr/galatasaraya-kotu-haber-o-isim-de-gitti)
@@ -967,75 +1037,5 @@ Sin noticias relacionadas disponibles.
 - **Lyon vs. PAOK - Boxscore - Live Score - January 29, 2026**: [Link](https://www.foxsports.com/soccer/europa-league-lyon-vs-paok-jan-29-2026-game-boxscore-658234?tab=boxscore)
 - **Lyon predicted XI v PAOK: Rémi Himbert to startr in Endrick’s absence**: [Link](https://www.getfootballnewsfrance.com/2026/lyon-predicted-xi-v-paok-remi-himbert-to-startr-in-endricks-absence/)
 - **Lyon vs PAOK LIVE Score Updates: match begins (0-0)**: [Link](https://www.vavel.com/en-us/soccer/2026/01/29/1248971-lyon-vs-paok-live-score-europa-league.html)
-
-
-### porto vs (N/A, 29/01/2026 15:37 Lima)
-
-- **In-form Porto will test Rangers' improvement**: [Link](https://www.bbc.com/sport/football/articles/c8d02mm0qqqo)
-- **Porto’s chances of direct qualification for the Europa League last 16**: [Link](https://onefootball.com/en/news/portos-chances-of-direct-qualification-for-the-europa-league-last-16-42323671)
-- **Team News: Rohl Names His Side For Porto**: [Link](https://www.rangers.co.uk/article/team-news-rohl-names-his-side-for-porto/26FgFcTJvYU4d2qpHV6ylN)
-
-
-### celtic f. c. - utrecht (N/A, 29/01/2026 15:37 Lima)
-
-- **Celtic starting XI to face FC Utrecht at Paradise**: [Link](https://www.celticfc.com/news/2026/january/29/celtic-starting-xi-to-face-fc-utrecht-at-paradise/)
-- **CONFIRMED: NYGREN IN, IHEANACHO ON BENCH**: [Link](https://www.celticquicknews.co.uk/confirmed-nygren-in-iheanacho-on-bench/)
-- **How to get last-minute Celtic vs Utrecht tickets: Europa League tickets, January 29 fixture, predictions & more**: [Link](https://www.goal.com/en/news/celtic-utrecht-tickets/blt9338776eaaf2fcf4)
-
-
-### europa league posiciones (N/A, 29/01/2026 15:37 Lima)
-
-- **Clasificación de la UEFA Europa League, en directo: así están el top-8 y playoff, eliminados y resultados en tiempo real**: [Link](https://as.com/futbol/uefa/clasificacion-de-la-uefa-europa-league-en-directo-asi-estan-el-top-8-y-playoff-eliminados-y-resultados-en-tiempo-real-f202601-d/)
-- **UEFA Europa League 2025-2026: los clasificados a octavos de final y a playoffs de 16avos.**: [Link](https://www.espn.com.ar/futbol/uefa-europa-league/nota/_/id/16243829/europa-league-clasificados-octavos-y-a-playoffs-de-16avos)
-- **Partidos de hoy jueves, por Europa League: cruces, horarios y cómo verlos en vivo**: [Link](https://www.tycsports.com/europa-league/partidos-de-hoy-jueves-por-europa-league-cruces-horarios-y-tv-id709918.html)
-
-
-### fcsb - fenerbahçe (N/A, 29/01/2026 15:37 Lima)
-
-- **Fenerbahçe'de En-Nesyri FCSB maçında sahada: Yaklaşık 2 ay sonra 11'de**: [Link](https://www.yenicaggazetesi.com/fenerbahcede-en-nesyri-fcsb-macinda-sahada-yaklasik-2-ay-sonra-11de-996639h.htm)
-- **Avrupa’da kritik gece: İlk 11’ler açıklandı**: [Link](https://mansethaber.com/avrupada-kritik-gece-ilk-11ler-aciklandi)
-- **BUGÜNKÜ MAÇ PROGRAMI VE SAATLERİ 29 OCAK 2026 || Bu akşam maç var mı? Bugün futbolda hangi maçlar var, kimin maçı var, saat kaçta? Fenerbahçe’nin maçı bugün mü?**: [Link](https://www.hurriyet.com.tr/sporarena/galeri-mac-programi-29-ocak-2026-bugun-futbolda-hangi-maclar-var-kimin-maci-var-saat-kacta-fenerbahcenin-maci-bugun-mu-43095553)
-
-
-### laura huarcayo (N/A, 29/01/2026 15:37 Lima)
-
-- **Laura Huarcayo protagonizó incómodo error en TV al llamar Pamela Franco a Pamela López**: [Link](https://www.moda.com.pe/noticias/espectaculos/laura-huarcayo-protagonizo-incomodo-error-en-tv-al-llamar-pamela-franco-a-pamela-lopez-video/)
-- **Laura Huarcayo se equivoca en vivo y CONFUNDE a Pamela López con Pamela Franco**: [Link](https://wapa.pe/espectaculos-y-tv/farandula/2026/01/29/laura-huarcayo-se-equivoca-en-vivo-confunde-pamela-lopez-pamela-franco-1516990)
-- **Laura Huarcayo sobre su regreso a la televisión: “No esperaba tanto cariño”**: [Link](https://diariocorreo.pe/espectaculos/laura-huarcayo-sobre-su-regreso-a-la-television-no-esperaba-tanto-carino-noticia/)
-
-
-### juan pablo varillas (N/A, 29/01/2026 11:51 Lima)
-
-- **Juan Pablo Varillas vs Daniel Vallejo EN VIVO: ¿a qué hora juegan y dónde ver los octavos de final del Challenger de Concepción?**: [Link](https://rpp.pe/tenis/mas-tenis/juan-pablo-varillas-vs-daniel-vallejo-en-vivo-a-que-hora-juegan-y-donde-ver-octavos-de-final-challenger-concepcion-2026-via-atp-tour-link-gratis-partidos-de-hoy-noticia-1673480)
-- **Juan Pablo Varillas avanzó a octavos de final del Concepción Challenger**: [Link](https://ovacion.pe/noticias/tenis/juan-pablo-varillas-avanzo-octavos-final-del-concepcion-challenger)
-- **Juan Pablo Varillas debuta sin fisuras en el Challenger de Concepción y se alista para la Copa Davis con Perú**: [Link](https://www.infobae.com/peru/deportes/2026/01/28/juan-pablo-varillas-debuta-sin-fisuras-en-el-challenger-de-concepcion-y-se-alista-para-la-copa-davis-con-peru/)
-
-
-### al-fateh - al ittihad (N/A, 29/01/2026 11:51 Lima)
-
-- **Al Fateh Vs Al-Ittihad LIVE Score, Saudi Pro League: Mid-Table Battle Coming Up In Hofuf**: [Link](https://www.outlookindia.com/sports/football/al-fateh-vs-al-ittihad-live-score-saudi-pro-league-2025-26-matchday-19-updates)
-- **Conceição Reveals Al-Ittihad's Offensive Strategy Against Al-Fateh After Benzema's Absence**: [Link](https://www.ysscores.com/en/news/13900528/Concei%C3%A7%C3%A3o-Reveals-Al-Ittihad's-Offensive-Strategy-Against-Al-Fateh-After-Benzema's-Absence)
-- **Channels Broadcasting Al-Fateh vs. Al-Ittihad in 2025-2026 Saudi Roshn League**: [Link](https://www.filmogaz.com/121883)
-
-
-### athina onassis (N/A, 29/01/2026 11:51 Lima)
-
-- **Athina Onassis Steps Back Into the Paris Spotlight**: [Link](https://www.tovima.com/celebrities/athina-onassis-steps-back-into-the-paris-spotlight/)
-- **Athina Onassis makes rare public appearance at Paris Haute Couture week**: [Link](https://en.protothema.gr/2026/01/28/athina-onassis-makes-rare-public-appearance-at-paris-haute-couture-week/)
-- **Athina Onassis Makes Rare Public Appearance at Paris Haute Couture Week**: [Link](https://greekreporter.com/2026/01/28/athina-onassis-makes-rare-public-appearance-paris/)
-
-
-### playstation plus (N/A, 29/01/2026 11:51 Lima)
-
-- **PS Plus Essential Games for February 2026 Announced**: [Link](https://www.pushsquare.com/news/2026/01/ps-plus-essential-games-for-february-2026-announced)
-- **PlayStation Plus Monthly Games for February 2026 Offer Ace Combat 7, Subnautica and More**: [Link](https://www.gamerbraves.com/playstation-plus-monthly-games-for-february-2026-offer-ace-combat-7-subnautica-and-more/)
-- **From Frozen Seas to Fighter Jets: February’s PS Plus Games Revealed**: [Link](https://www.star1027.com.au/trending/gaming/new-month-new-obsession-why-februarys-ps-plus-lineup-is-the-ultimate-time-waster/)
-
-
-### movistar (N/A, 29/01/2026 11:51 Lima)
-
-- **Movistar anunció que transmitirá los partidos de Liga 1 2026: L1 Max tendrá dos canales en su parrilla, sin costo adicional**: [Link](https://www.infobae.com/peru/deportes/2026/01/29/movistar-anuncio-que-transmitira-los-partidos-de-liga-1-2026-l1-max-tendra-dos-canales-en-su-parrilla-sin-costo-adicional/)
-- **El tetracampeonato, el objetivo y la obsesión de Universitario de Deportes de cara a la Liga 1 2026**: [Link](https://www.espn.com.ar/futbol/peru/nota/_/id/16240368/universitario-objetivos-de-la-liga-1-de-peru-2026-tetracampeonato)
-- **Movistar anunció el regreso del fútbol peruano a su parrilla de canales: ¿Cuánto más tendrás que pagar?**: [Link](https://depor.com/futbol-peruano/descentralizado/movistar-hizo-oficial-la-integracion-de-l1-max-en-su-parrilla-de-canales-desde-cuando-se-podra-ver-y-cual-sera-el-nuevo-precio-liga-1-2026-video-noticia/)
 
 
