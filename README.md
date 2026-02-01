@@ -1,3 +1,58 @@
+### psv - feyenoord (N/A, 01/02/2026 08:02 Lima)
+
+- **Keuze Van Persie bezorgt Feyenoord-fans stress: 'Wat een enorm groot risico'**: [Link](https://www.voetbalprimeur.nl/nieuws/1737676/feyenoord-fans-niet-gerust-op-basisplaats-st-juste-bij-psv.html)
+- **Berghuis terug in selectie Ajax voor duel Excelsior • 14.30 uur: topper PSV-Feyenoord**: [Link](https://nos.nl/liveblog/2600496-berghuis-terug-in-selectie-ajax-voor-duel-excelsior-14-30-uur-topper-psv-feyenoord)
+- **HISTORIE | Juichen bij de cornervlag**: [Link](https://www.fr-fans.nl/nieuws/76024/historie-juichen-bij-de-cornervlag)
+
+
+### real madrid - rayo vallecano (N/A, 01/02/2026 08:02 Lima)
+
+- **Real Madrid - Rayo Vallecano, en directo: LaLiga EA Sports hoy, en vivo**: [Link](https://as.com/futbol/primera/real-madrid-rayo-vallecano-en-directo-laliga-ea-sports-hoy-en-vivo-f202602-d/)
+- **Real Madrid - Rayo Vallecano en directo | Pitos en el Bernabéu a sus jugadores al salir a calentar**: [Link](https://elpais.com/deportes/futbol/2026-02-01/real-madrid-rayo-vallecano-en-directo-el-partido-de-la-liga-en-vivo.html)
+- **SKY Sports EN VIVO — dónde ver partido Real Madrid vs. Rayo Vallecano por TV y Online en México**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/sky-sports-en-vivo-gratis-como-ver-partido-real-madrid-vs-rayo-vallecano-por-futbol-tv-y-sky-plus-online-en-mexico-nnda-nnrt-noticia/)
+
+
+### ajax vs (N/A, 01/02/2026 08:02 Lima)
+
+- **SBV Excelsior vs. Ajax Amsterdam: Predictions & Tips for February 1, 2026**: [Link](https://www.filmogaz.com/127996)
+- **Excelsior vs Ajax - prediction, team news, lineups...**: [Link](https://www.rugby-addict.com/en-ie/article/home/excelsior-vs-ajax-prediction-team-news-lineups/697cafd0a9d439404c045e53)
+
+
+### torino vs (N/A, 01/02/2026 08:02 Lima)
+
+- **Serie A: Torino buscará vencer su racha negativa ante Lecce**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-torino-buscara-vencer-su-racha-negativa-ante-lecce-noticia-1673853)
+- **Preview: Torino vs Lecce - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/torino/preview/torino-vs-lecce-prediction-team-news-lineups_590998.html)
+- **Torino vs Lecce Prediction, 2/1/2026 Soccer Pick, Tips and Odds**: [Link](https://www.docsports.com/free-picks/soccer/2026/torino-vs-lecce-prediction-2-1-2026-soccer-pick-tips-and-odds.html)
+
+
+### torino - lecce (N/A, 01/02/2026 08:02 Lima)
+
+- **LIVE Torino-Lecce 1-0: giallo per Tiago Gabriel, fallo su Zapata**: [Link](https://www.gazzetta.it/Calcio/Serie-A/01-02-2026/torino-lecce-live-risultato-gol-diretta-serie-a.shtml)
+- **Calcio Live News: a breve in campoTorino-Lecce, esonerato Gilardino**: [Link](https://www.diretta.it/news/calcio-live-news-a-breve-in-campotorino-lecce-esonerato-gilardino/4hRDOYR1/)
+- **Torino-Lecce, le formazioni ufficiali**: [Link](https://www.torinofc.it/news/01/02/2026/torino-lecce-le-formazioni-ufficiali_41004)
+
+
+### excelsior - ajax (N/A, 01/02/2026 08:02 Lima)
+
+- **Live Eredivisie | Ajax geeft 0-2-voorsprong weg, straks PSV-Feyenoord**: [Link](https://www.nu.nl/voetbal/6384518/live-eredivisie-ajax-geeft-0-2-voorsprong-weg-straks-psv-feyenoord.html)
+- **Grim vertelt over inzetbaarheid Berghuis en Tomiyasu, trio is ziek**: [Link](https://www.vi.nl/nieuws/grim-vertelt-over-inzetbaarheid-berghuis-en-tomiyasu-trio-is-ziek)
+- **GOAL: Bounida vindt Dolberg, die knap aflegt voor Godts**: [Link](https://www.voetbalprimeur.be/videos/1737678/goal-mika-godts-scoort-op-assist-avn-kasper-dolberg-bij-ajax.html)
+
+
+### carlos alcaraz (N/A, 01/02/2026 08:02 Lima)
+
+- **Resumen y resultado del Alcaraz - Djokovic: Alcaraz hace historia de nuevo**: [Link](https://as.com/tenis/alcaraz-djokovic-en-directo-final-del-open-de-australia-ultima-hora-en-vivo-f202602-d/)
+- **Alcaraz - Djokovic, en directo: sigue la final del Open de Australia en vivo**: [Link](https://www.infobae.com/espana/deportes/2026/02/01/alcaraz-djokovic-en-directo-sigue-la-final-del-open-de-australia-en-vivo/)
+- **Alcaraz - Djokovic, en directo | El serbio, al español: “Lo que has logrado es histórico y legendario, felicidades”**: [Link](https://elpais.com/deportes/tenis/2026-02-01/carlos-alcaraz-novak-djokovic-en-directo-la-final-del-open-de-australia-en-vivo.html)
+
+
+### novak djokovic (N/A, 01/02/2026 08:02 Lima)
+
+- **Carlos Alcaraz beats Novak Djokovic in Australian Open final**: [Link](https://www.espn.com/tennis/story/_/id/47795603/carlos-alcaraz-beats-novak-djokovic-australian-open-final)
+- **Australian Open final: Carlos Alcaraz beats Novak Djokovic to notch career grand slam**: [Link](https://www.cbssports.com/tennis/news/australian-open-final-carlos-alcaraz-beats-novak-djokovic-to-notch-career-grand-slam/)
+- **Carlos Alcaraz completes the Career Grand Slam**: [Link](https://www.atptour.com/en/news/alcaraz-australian-open-2026-career-grand-slam)
+
+
 ### o (N/A, 01/02/2026 03:39 Lima)
 
 - **Catherine O'Hara revealed she had rare genetic condition years ago**: [Link](https://www.usatoday.com/story/entertainment/celebrities/2026/01/30/catherine-ohara-situs-inversus-dextrocardia/88440931007/)
@@ -980,61 +1035,5 @@ Sin noticias relacionadas disponibles.
 - **“Los Bridgerton”, temporada 4: resumen de la historia y cuándo se estrenan las dos partes de los episodios**: [Link](https://cnnespanol.cnn.com/2026/01/28/entretenimiento/bridgerton-temporada-4-resumen-estreno-orix)
 - **La finca del duque de Hastings, la tienda de Madame Delacroix y otros lugares en Inglaterra donde revivir ‘Los Bridgerton’**: [Link](https://elpais.com/elviajero/2026-01-28/la-finca-del-duque-de-hastings-la-tienda-de-madame-delacroix-y-otros-lugares-en-inglaterra-donde-revivir-los-bridgerton.html)
 - **Romance, lujo y diversidad: por qué fascina "Los Bridgerton"**: [Link](https://www.dw.com/es/romance-lujo-y-diversidad-por-qu%C3%A9-fascina-la-serie-los-bridgerton/a-75704618)
-
-
-### oro (N/A, 29/01/2026 00:08 Lima)
-
-- **¿Por qué el oro superó la marca de los US$5,300 la onza?**: [Link](https://peru21.pe/economia/por-que-el-oro-supero-la-marca-de-los-us5300-la-onza/)
-- **El oro y la plata en máximos históricos**: [Link](https://lpderecho.pe/oro-plata-maximos-historicos/)
-- **Oro rompe nuevo récord y supera los US$ 5.500 | Wall Street | Metales preciososos | ECONOMIA**: [Link](https://elcomercio.pe/economia/mercados/oro-rompe-nuevo-record-y-supera-los-us-5500-wall-street-metales-preciososos-noticia/)
-
-
-### bridgerton (N/A, 29/01/2026 00:08 Lima)
-
-- **Bridgerton Season 4 Premiere: Watch the First 5 Minutes of Part 1 Early**: [Link](https://www.netflix.com/tudum/articles/bridgerton-season-4-episode-1-preview)
-- **What To Know About Yerin Ha, The Aussie Star About To Shake Up Bridgerton's Petticoats**: [Link](https://www.pedestrian.tv/entertainment/who-is-bridgertons-sophie-baek-yerin-ha/)
-- **This Is the Most Iconic Song Arrangement in the 'Bridgerton' Soundtrack**: [Link](https://collider.com/most-iconic-bridgerton-song-dancing-on-my-own-robyn/)
-
-
-### warriors - jazz (N/A, 29/01/2026 00:08 Lima)
-
-- **Is Stephen Curry Playing Tonight vs Jazz? Latest Injury Report on Warriors Star (Jan 28)**: [Link](https://sports.yahoo.com/articles/stephen-curry-playing-tonight-vs-180004575.html)
-- **Warriors vs Jazz Prediction, Picks & Odds for Tonight’s NBA Game**: [Link](https://www.covers.com/nba/warriors-vs-jazz-prediction-picks-best-bets-sgp-wednesday-1-28-2026)
-- **How to watch Warriors vs. Jazz: TV channel and streaming options for January 28**: [Link](https://www.nytimes.com/athletic/7004884/2026/01/28/how-to-watch-warriors-vs-jazz-tv-channel-and-streaming-options-for-january-28/)
-
-
-### cavaliers - lakers (N/A, 29/01/2026 00:08 Lima)
-
-- **Lakers vs Cavaliers Picks & Odds Today: Los Angeles To Take Advantage Of Injuries**: [Link](https://www.oddsshark.com/nba/lakers-cavaliers-picks-odds-january-28-2026)
-- **Donovan Mitchell speaks on the potential of LeBron's final game in Cleveland**: [Link](https://sports.yahoo.com/articles/donovan-mitchell-speaks-potential-lebrons-001801623.html)
-- **BetMGM Bonus Code FOXSPORTS Provides $1500 First Bet Cover on NBA and NHL Action**: [Link](https://www.foxsports.com/stories/betting/betmgm-bonus-code-foxsports-will-provide-1500-first-bet-cover-your-nba-nhl-action)
-
-
-### sirena ortiz (N/A, 28/01/2026 21:33 Lima)
-
-- **Gabriel Meneses reveló quién lo traicionó con video besando a Sirena Ortiz**: [Link](https://www.americatv.com.pe/noticias/espectaculos/gabriel-meneses-revelo-quien-lo-traiciono-video-besando-sirena-ortiz-n515244)
-- **Gabriel Meneses de 'EEG' confiesa en exclusiva la verdad sobre su beso con Sirena Ortiz: "Solo quiero que ella sea feliz"**: [Link](https://larepublica.pe/espectaculos/2026/01/27/gabriel-meneses-de-eeg-confiesa-en-exclusiva-la-verdad-sobre-su-beso-con-sirena-ortiz-solo-quiero-que-ella-sea-feliz-ntpe-284418)
-- **Gabriel Meneses denuncia traición de persona cercana tras filtración de video junto a Sirena Ortiz**: [Link](https://elcomercio.pe/tvmas/famosos/gabriel-meneses-denuncia-traicion-de-persona-cercana-tras-filtracion-de-video-junto-a-sirena-ortiz-ultimas-noticia/)
-
-
-### nicki minaj (N/A, 28/01/2026 21:33 Lima)
-
-- **Nicki Minaj says she’s probably Trump’s ‘No. 1 fan’**: [Link](https://thehill.com/blogs/in-the-know/5710758-nicki-minaj-trump-accounts/)
-- **Rap artist Nicki Minaj pledges support for Trump accounts**: [Link](https://www.cnbc.com/2026/01/28/trump-accounts-nicki-minaj.html)
-- **Rejected by rap, Nicki Minaj becomes Trump's 'No. 1 fan'**: [Link](https://www.usatoday.com/story/news/politics/2026/01/28/nicki-minaj-donald-trump/88397521007/)
-
-
-### mano menezes (N/A, 28/01/2026 21:33 Lima)
-
-- **Cuenta regresiva para conocer al DT de la Selección Peruana: dirigió a Brasil y ahora toma la delantera**: [Link](https://depor.com/futbol-peruano/seleccion-peruana/seleccion-peruana-mano-menezes-el-posible-elegido-de-jean-ferrari-y-que-pasa-con-gustavo-alvarez-fpf-noticia/)
-- **¿Y dónde está el nuevo DT de la Selección Peruana, Jean Ferrari?**: [Link](https://peru21.pe/opinion/y-donde-esta-el-nuevo-dt-de-la-seleccion-peruana-jean-ferrari/)
-- **Se reveló la nueva fecha de presentación del DT de Perú: FPF lanzará novedoso canal streaming para transmitir partidos de la selección**: [Link](https://www.infobae.com/peru/deportes/2026/01/27/se-revelo-la-nueva-fecha-de-presentacion-del-dt-de-peru-fpf-lanzara-novedoso-canal-streaming-para-transmitir-partidos-de-la-seleccion/)
-
-
-### karen dejo (N/A, 28/01/2026 21:33 Lima)
-
-- **Karen Dejo se hizo descarte de cáncer por bulto en cuello**: [Link](https://www.americatv.com.pe/noticias/espectaculos/karen-dejo-paso-gran-susto-descubrir-bulto-cuello-n515261)
-- **Karen Dejo revela susto por bulto en el cuello: “Me dio miedo” | Cancer | farandula | video | VIDEOS**: [Link](https://elcomercio.pe/videos/entretenimiento/karen-dejo-revela-susto-por-bulto-en-el-cuello-me-dio-miedo-cancer-nnav-amtv-farandula-video-noticia/)
-- **Karen Dejo revela su lucha tras descarte de cáncer: ¿Qué pasó con su salud? | farandula | video | VIDEOS**: [Link](https://trome.com/videos/espectaculos/karen-dejo-revela-su-lucha-tras-descarte-de-cancer-que-paso-con-su-salud-nnav-amtv-farandula-video-noticia/)
 
 
