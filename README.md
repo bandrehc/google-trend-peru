@@ -1,3 +1,73 @@
+### ufc hoy (N/A, 31/01/2026 21:54 Lima)
+
+- **📱 Canales TV para ver la pelea del UFC 325: Volkanovski vs. Lopes 2 EN VIVO AHORA por el título peso pluma**: [Link](https://gestion.pe/mix/sports/a-que-hora-inicia-y-en-que-canal-transmiten-el-ufc-325-volkanovski-vs-lopes-en-vivo-por-la-pelea-estelar-en-usa-mexico-y-espana-horarios-en-el-mundo-nnda-nnrt-noticia/)
+- **UFC 325 en vivo: ¿A qué hora inicia, cartelera y dónde ver el Volkanovski vs Lopes 2 por el título de peso pluma?**: [Link](https://rpp.pe/lucha/ufc/ufc-325-volkanovski-vs-lopes-2-en-vivo-fecha-horario-cartelera-y-donde-ver-en-usa-sudamerica-y-espana-por-titulo-via-paramount-plus-online-noticia-1673823)
+- **Video de pesaje de UFC 325: Volkanovski vs. López 2**: [Link](https://www.elpueblo.pe/deportes/video-de-pesaje-de-ufc-325-volkanovski-vs-lopez-2/235839/)
+
+
+### tallison teixeira (N/A, 31/01/2026 21:54 Lima)
+
+- **Tai Tuivasa vs. Tallison Teixeira prediction, time for UFC 325**: [Link](https://mmajunkie.usatoday.com/story/sports/ufc/2026/01/31/tai-tuivasa-vs-tallison-teixeira-ufc-325-prediction-expert-pick/88442812007/)
+- **‘Who is this guy?’: Cult hero’s wild 30kg drop and why he’s eyeing chaos in ‘s***’ division**: [Link](https://www.foxsports.com.au/ufc/ufc-325-tai-tuivasa-weight-loss-ahead-of-tallison-teixeira-sydney-fight-return-of-the-shoey-preview-latest-news/news-story/1f1374f2336711893089b15affacacda)
+- **Teixeira vs Tuivasa best bet: Under 1.5 rounds at UFC 325**: [Link](https://www.mmamania.com/ufc-325-results-volkanovski-lopes-2/418426/heres-mmamania-coms-ufc-325-betting-odds-weekend-lock-whats-yours)
+
+
+### paramount plus (N/A, 31/01/2026 21:54 Lima)
+
+- **3 new to Paramount+ movies you need to stream this weekend (Jan. 30-Feb. 1)**: [Link](https://www.tomsguide.com/entertainment/paramount-plus/3-new-to-paramount-movies-you-need-to-stream-this-weekend-jan-30-feb-1-2026)
+- **New on Paramount+ in February 2026: All the new shows and movies to watch**: [Link](https://www.tomsguide.com/entertainment/paramount-plus/new-on-paramount-in-february-2026-all-the-new-shows-and-movies-to-watch)
+- **Paramount+: best new shows & films streaming February 2026**: [Link](https://www.screenhub.com.au/news/what-to-watch/paramount-best-new-shows-films-streaming-february-2026-2691822/)
+
+
+### laura huarcayo (N/A, 31/01/2026 21:54 Lima)
+
+- **Pamela López pasa momento incómodo delante de su hija al ser confundida con Pamela Franco**: [Link](https://www.atv.pe/noticia/pamela-lopez-pasa-momento-incomodo-delante-de-su-hija-al-ser-confundida-con-pamela-franco/)
+- **Laura Huarcayo comete error en vivo durante 'MQM' y confunde a Pamela López con Pamela Franco**: [Link](https://larepublica.pe/espectaculos/2026/01/29/laura-huarcayo-comete-error-en-vivo-durante-mqm-y-confunde-a-pamela-lopez-con-pamela-franco-atmp-621238)
+- **Laura Huarcayo protagonizó incómodo error en TV al llamar Pamela Franco a Pamela López**: [Link](https://www.moda.com.pe/noticias/espectaculos/laura-huarcayo-protagonizo-incomodo-error-en-tv-al-llamar-pamela-franco-a-pamela-lopez-video/)
+
+
+### quillan salkilld (N/A, 31/01/2026 21:54 Lima)
+
+- **UFC 325 : Un talent à surveiller de près !**: [Link](https://www.lesnews.ca/sports/mma/ufc-325-un-talent-a-surveiller-de-pres/)
+- **UFC 325 : Nouvelle victoire éclair pour le phénomène Quillan Salkilld**: [Link](https://lasueur.com/ufc-325-nouvelle-victoire-eclair-phenomene-quillan-salkilld-1-2-2026)
+- **Teixeira contre Tuivasa : Pariez sur moins de 1,5 rounds à l’UFC 325 !**: [Link](https://www.lesnews.ca/sports/mma/teixeira-contre-tuivasa-pariez-sur-moins-de-15-rounds-a-lufc-325/)
+
+
+### billie eilish (N/A, 31/01/2026 21:54 Lima)
+
+- **Billie Eilish Concert Doc Release Pushed to May; James Cameron Says ‘We’re Dialing in Cool, New 3D Tech’**: [Link](https://variety.com/2026/film/news/billie-eilish-james-cameron-concert-doc-release-may-1236641205/)
+- **James Cameron's Next Movie Officially Delayed As Avatar 3 Continues $1.3B Box Office Run**: [Link](https://screenrant.com/james-cameron-billie-eilish-hit-me-hard-soft-documentary-release-delay/)
+- **Billie Eilish Concert Film ‘Hit Me Hard And Soft: The Tour (Live in 3D)’ Shifts To May Release**: [Link](https://deadline.com/2026/01/billie-eilish-concert-film-release-date-shift-1236697088/)
+
+
+### ufc (N/A, 31/01/2026 21:54 Lima)
+
+- **Live Now! UFC 325 ‘Volkanovski vs. Lopes 2’ Play-by-Play, Results & Round Scoring**: [Link](https://www.sherdog.com/news/news/UFC-325-Volkanovski-vs-Lopes-2-PlaybyPlay-Results-Round-Scoring-199946)
+- **BetMGM bonus code CBSSPORTS: Get $150 in bonus bets for Mavericks-Rockets, UConn-Creighton, UFC 325 tonight**: [Link](https://www.cbssports.com/nba/news/betmgm-bonus-code-cbssports-get-150-bonus-bets-mavericks-rockets-uconn-creighton-ufc-325-tonight/)
+- **Alexander Volkanovski admitted he will retire at UFC 325 if one thing happens**: [Link](https://bloodyelbow.com/2026/01/31/alexander-volkanovski-admitted-he-will-retire-at-ufc-325-if-one-thing-happens/)
+
+
+### liga mx (N/A, 31/01/2026 21:54 Lima)
+
+- **Jardine explica las salidas de Fidalgo, Saint-Maximin y Aguirre**: [Link](https://espndeportes.espn.com/futbol/mexico/nota/_/id/16255319/america-andre-jardine-bajas-plantel-fidalgo-saint-maximin-aguirre)
+- **El Betis se adelanta en el fichaje de Álvaro Fidalgo hasta 2030, fuentes**: [Link](https://www.espn.com.ar/futbol/nota/_/id/16254909/betis-firma-alvaro-fidalgo-hasta-2030)
+- **ÚLTIMA HORA: El futuro de Álvaro Fidalgo en Selección Mexicana es REVELADO**: [Link](https://www.tvazteca.com/aztecadeportes/ultima-hora-futuro-alvaro-fidalgo-seleccion-mexicana-es-revelado/)
+
+
+### aviones caza perú (N/A, 31/01/2026 21:54 Lima)
+
+- **La Fuerza Aérea del Perú va por el F-16V Block 70**: [Link](https://www.pucara.org/post/la-fuerza-a%C3%A9rea-del-per%C3%BA-va-por-el-f-16v-block-70)
+- **Perú opta por los F-16 Block 70: alianza estratégica con Estados Unidos a punto de cerrarse**: [Link](https://www.expreso.com.pe/en-portada/peru-opta-por-los-f-16-block-70-alianza-estrategica-con-estados-unidos-a-punto-de-cerrarse-otan-noticia/1260173/)
+- **F-16 Block 70: Lockheed Martin responde sobre su propuesta para el Perú**: [Link](https://peru21.pe/investigacion/f-16-block-70-lockheed-martin-responde-sobre-propuesta-para-fap-peru/)
+
+
+### djokovic vs alcaraz (N/A, 31/01/2026 21:54 Lima)
+
+- **La grandiosidad de Djokovic descabalga a Sinner del Open de Australia**: [Link](https://elpais.com/deportes/tenis/2026-01-30/la-grandiosidad-de-djokovic-descabalga-a-sinner.html)
+- **Novak Djokovic vs. Carlos Alcaraz: horario y cómo ver en vivo la final del Australian Open 2026**: [Link](https://www.espn.com.ar/tenis/nota/_/id/16248597/novak-djokovic-vs-carlos-alcaraz-horario-y-como-ver-en-vivo-la-final-del-australian-open-2026)
+- **Le pasan una videollamada a Djokovic en plena entrevista tras eliminar a Sinner y es otra leyendaza del tenis:**: [Link](https://as.com/tenis/videos/le-pasan-una-videollamada-a-djokovic-en-plena-entrevista-tras-eliminar-a-sinner-y-es-otra-leyendaza-del-tenis-momentazo-f202601-v/)
+
+
 ### lamine yamal (N/A, 31/01/2026 15:32 Lima)
 
 - **Champions League: Ranking de los 36 equipos y el once ideal**: [Link](https://www.espn.com.pe/futbol/champions-league/nota/_/id/16245226/champions-league-real-madrid-barcelona-ranking-once-ideal-fase-liga)
@@ -965,74 +1035,5 @@ Sin noticias relacionadas disponibles.
 - **¿A qué hora juega y qué canal transmite a Luis Díaz en Bayern Múnich vs. PSV EN VIVO hoy 28 de enero por Champions League 2026?**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/a-que-hora-juega-y-que-canal-transmite-a-luis-diaz-en-bayern-munich-vs-psv-en-vivo-hoy-28-de-enero-por-champions-league-2026-nnda-nnrt-noticia-2/)
 - **Champions League: Se enfrentan PSV y Bayern Múnich por la fecha 8**: [Link](https://rpp.pe/futbol/ligas-internacionales/champions-league-se-enfrentan-psv-y-bayern-munich-por-la-fecha-8-noticia-1673213)
 - **PSV vs Bayern Múnich en vivo por la Champions League**: [Link](https://www.futbolperuano.com/en-vivo/champions-league-psv-eindhoven-vs-bayern-munich-561494)
-
-
-### champion (N/A, 28/01/2026 15:38 Lima)
-
-- **Patrick Reed: I would consider quitting LIV for PGA Tour return**: [Link](https://www.telegraph.co.uk/golf/2026/01/19/patrick-reed-consider-quitting-liv-for-pga-tour-return/)
-- **Reed's PGA decision shows LIV's competitive model is flawed: McGinley**: [Link](https://www.golfchannel.com/watch/pga-tour/patrick-reed-is-good-for-pga-competition-mcginley)
-- **Report: Former LIV Golfers Apply For PGA Tour Reinstatement After Patrick Reed Confirmation**: [Link](https://www.golfmonthly.com/news/former-liv-golfers-apply-for-pga-tour-reinstatement)
-
-
-### psg (N/A, 28/01/2026 15:38 Lima)
-
-- **PSG : Achraf Hakimi, vite revenir au terrain pour tourner la page**: [Link](https://www.leparisien.fr/sports/football/ligue-1/psg-achraf-hakimi-vite-revenir-au-terrain-pour-tourner-la-page-25-01-2026-DO7AAE3P2JDCPMLXXN4BY6SFTY.php)
-- **Combien de penaltys Ousmane Dembélé a raté cette saison ? Réponse**: [Link](https://tribuna.com/fr/news/2026-01-28-combien-de-penaltys-ousmane-dembele-a-rate-cette-saison-reponse/)
-- **Ligue des Champions UEFA / PSG - Newcastle : historique des confrontations**: [Link](https://foot-africa.com/actualites/ligue-des-champions-uefa-psg-newcastle-historique-des-confrontations-1061621/)
-
-
-### arsenal football club (N/A, 28/01/2026 15:38 Lima)
-
-- **Club Statement: Raheem Sterling | News | Official Site**: [Link](https://www.chelseafc.com/en/news/article/club-statement-raheem-sterling)
-- **One of Mikel Arteta's most questionable Arsenal transfers just hit free agency**: [Link](https://paininthearsenal.com/mikel-arteta-most-questionable-arsenal-transfers-hit-free-agency)
-- **Raheem Sterling leaves Chelsea by mutual consent**: [Link](https://www.bbc.com/sport/football/articles/cm2yp21zjzqo)
-
-
-### atletico de madrid vs (N/A, 28/01/2026 15:38 Lima)
-
-- **Atlético de Madrid - Bodø/Glimt, en directo | Champions League hoy en vivo**: [Link](https://www.marca.com/futbol/champions-league/atletico-bodglimt/2026/01/28/01_0103_20260128_175_2744-directo.html)
-- **El Atlético es un Top-8**: [Link](https://as.com/opinion/el-atletico-es-un-top-8-f202601-n/)
-- **Griezmann, única ausencia del Atlético en un entrenamiento pasado por agua antes del Bodo**: [Link](https://espanol.eurosport.com/futbol/champions-league/2025-2026/entrenamiento-previo-atletico-de-madrid-bodo-lluvia-ausencia-griezmann_vid60050511/video.shtml)
-
-
-### barcelona vs copenhagen (N/A, 28/01/2026 11:46 Lima)
-
-- **Reason why Joao Cancelo cannot play for Barcelona in Champions League clash vs Copenhagen**: [Link](https://barcauniversal.com/reason-why-joao-cancelo-cannot-play-for-barcelona-in-champions-league-clash-vs-copenhagen/)
-- **UEFA Champions League / FC Barcelona - Copenhagen: head-to-head history**: [Link](https://foot-africa.com/en/news/uefa-champions-league-fc-barcelona-copenhagen-head-to-head-history-1061573/)
-- **Why aren’t Frenkie de Jong and Pedri playing for Barcelona vs. Copenhagen in the UEFA Champions League clash?**: [Link](https://worldsoccertalk.com/news/why-arent-frenkie-de-jong-and-pedri-playing-for-barcelona-vs-copenhagen-in-the-uefa-champions-league-clash/)
-
-
-### partidos de champions (N/A, 28/01/2026 11:46 Lima)
-
-- **Así quedará la Champions según la IA**: [Link](https://as.com/futbol/champions/asi-quedara-la-champions-segun-la-ia-f202601-n/)
-- **¿Qué se define en la última fecha de la Champions League? Clasificados, eliminados y los que se juegan la clasificación**: [Link](https://cnnespanol.cnn.com/2026/01/27/deportes/champions-league-jornada-8-clasificados-eliminados-orix)
-- **Maldini desvela los equipos que cree que van a meterse en el Top-8 de la Champions League y deja alguna sorpresa...**: [Link](https://www.mundodeportivo.com/futbol/champions-league/20260128/1002609962/maldini-desvela-equipos-cree-meterse-top-8-deja-sorpresa.html)
-
-
-### khaby lame (N/A, 28/01/2026 11:46 Lima)
-
-- **Estrella de TikTok Khaby Lame vende su empresa principal en un acuerdo valorado en 975 millones de dólares**: [Link](https://forbes.pe/negocios/2026-01-27/estrella-de-tiktok-khaby-lame-vende-su-empresa-principal-en-un-acuerdo-valorado-en-975-millones-de-dolares/)
-- **Tiktoker con más seguidores del mundo vende su imagen por 975 millones de dólares**: [Link](https://www.atv.pe/noticia/tiktoker-con-mas-seguidores-del-mundo-vende-su-imagen-por-975-millones-de-dolares/)
-
-
-### suheyn cipriani (N/A, 28/01/2026 11:46 Lima)
-
-- **Suheyn Cipriani hace aclaración sobre relación con Macarius: “No soy su saliente, soy su mujer”**: [Link](https://trome.com/espectaculos/tv/suheyn-cipriani-hace-aclaracion-sobre-relacion-con-macarius-no-soy-su-saliente-soy-su-mujer-noticia/)
-- **Suheyn Cipriani EXPLOTA contra 'haters' por su romance con Macarius: "¿Qué les molesta realmente?"**: [Link](https://www.atv.pe/noticia/suheyn-cipriani-explota-contra-haters-por-su-romance-con-macarius-que-les-molesta-realmente/)
-- **Suheyn Cipriani cuenta cómo inició su historia de amor con streamer Macarius: ''Le quería hacer bromas y no me contestaba''**: [Link](https://larepublica.pe/streamers/2026/01/26/suheyn-cipriani-cuenta-como-inicio-su-historia-de-amor-con-streamer-macarius-le-queria-hacer-bromas-y-no-me-contestaba-atmp-545922)
-
-
-### australian open (N/A, 28/01/2026 11:46 Lima)
-
-- **Australian Open 2026: Iga Swiatek and Jessica Pegula criticise cameras in players' areas at Melbourne Park**: [Link](https://www.bbc.com/sport/tennis/articles/cx2p1172n5lo)
-- **Coco Gauff smashes racket in frustration after 59-minute collapse in Australian Open quarterfinal**: [Link](https://www.cnn.com/2026/01/27/sport/tennis-australian-open-coco-gauff-racket-smash)
-- **Djokovic and his most ferocious protest: "The only thing missing is for them to put cameras in the showers"**: [Link](https://www.puntodebreak.com/en/2026/01/28/djokovic-and-his-most-ferocious-protest-the-only-thing-missing-is-for-them-to-put-cameras-in-the)
-
-
-### ao open (N/A, 28/01/2026 08:03 Lima)
-
-- **Get the rules lowdown at Australian Open 2026**: [Link](https://ausopen.com/articles/news/get-rules-lowdown-australian-open-2026)
-- **Australian Open 2026 recap: Jannik Sinner beats Ben Shelton to reach semi-finals**: [Link](https://www.bbc.com/sport/tennis/live/c0l7d3kdl52t)
-- **Sinner hails 'inspiration' Djokovic ahead of Australian Open blockbuster**: [Link](https://www.france24.com/en/live-news/20260128-sinner-sets-up-australian-open-semi-final-against-djokovic)
 
 
