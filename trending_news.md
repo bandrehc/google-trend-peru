@@ -1,3 +1,38 @@
+### o (N/A, 01/02/2026 03:39 Lima)
+
+- **Catherine O'Hara revealed she had rare genetic condition years ago**: [Link](https://www.usatoday.com/story/entertainment/celebrities/2026/01/30/catherine-ohara-situs-inversus-dextrocardia/88440931007/)
+- **‘Saturday Night Live’ Pays Tribute To Catherine O’Hara**: [Link](https://deadline.com/2026/01/saturday-night-live-catherine-ohara-tribute-card-snl-1236704290/)
+- **Catherine O'Hara Hospitalized in "Serious Condition" at 5 a.m. Before Death**: [Link](https://www.eonline.com/news/1428000/catherine-ohara-hospitalized-for-serious-condition-before-death)
+
+
+### kick (N/A, 01/02/2026 03:39 Lima)
+
+- **Tottenham Hotspur v Manchester City: Key stats and talking points**: [Link](https://www.bbc.com/articles/c87rnx8r8y0o)
+- **Man City must be wary of Spurs' one secret weapon on Sunday**: [Link](https://www.flashscore.com/news/soccer-premier-league-spurs-one-weapon-could-be-the-only-thing-to-save-them-from-man-city-mauling/MRU4bzxo/)
+- **Combined Tottenham and Man City XI, teenager is one of just four Spurs stars who make it**: [Link](https://www.spurs-web.com/tottenham-hotspur-fan-articles/combined-tottenham-and-man-city-xi-teenager-is-one-of-just-four-spurs-stars-who-make-it/)
+
+
+### harry styles (N/A, 01/02/2026 03:39 Lima)
+
+- **Harry Styles Fans in Uproar Over “Gross” Tour Ticket Costs: “A Shock to the System”**: [Link](https://www.hollywoodreporter.com/music/music-news/harry-styles-fans-uproar-tour-ticket-costs-together-prices-1236486023/)
+- **Harry Styles world tour only hits seven cities: How tours are changing**: [Link](https://www.bbc.com/news/articles/czx3q0qw0npo)
+- **Together Together or Apart Apart?**: [Link](https://www.london-now.co.uk/young-reporter/35407/)
+
+
+### ufc 326 (N/A, 01/02/2026 03:39 Lima)
+
+- **UFC 326 bout may be saved as 15-2 star with three straight Fight of the Nights agrees to step in**: [Link](https://bloodyelbow.com/2026/01/31/ufc-326-bout-may-be-saved-as-15-2-star-with-three-straight-fight-of-the-nights-agrees-to-step-in/)
+- **‘It just sucks’: Brian Ortega reveals he’s out of his rematch against Renato Moicano at UFC 326**: [Link](https://sports.yahoo.com/articles/just-sucks-brian-ortega-reveals-172042403.html)
+- **Two Former UFC Title Challengers pull out of UFC 326 Card**: [Link](https://www.yardbarker.com/mma/articles/two_former_ufc_title_challengers_pull_out_of_ufc_326_card/s1_17664_43408149)
+
+
+### final australian open 2026 (N/A, 01/02/2026 03:39 Lima)
+
+- **La reina de Melbourne: Elena Rybakina derrotó a Aryna Sabalenka y se proclamó campeona del Australian Open**: [Link](https://rpp.pe/tenis/grand-slam/australian-open-elena-rybakina-derroto-a-aryna-sabalenka-y-se-proclamo-campeona-del-torneo-noticia-1673873)
+- **Aryna Sabalenka se reagrupa y avanza a tercera ronda en Australia**: [Link](https://www.elpueblo.pe/deportes/aryna-sabalenka-se-reagrupa-y-avanza-a-tercera-ronda-en-australia/222789/)
+- **Aryna Sabalenka y Elena Rybakina jugarán la final del Abierto de Australia**: [Link](https://andina.pe/agencia/noticia-aryna-sabalenka-y-elena-rybakina-jugaran-final-del-abierto-australia-1061131.aspx)
+
+
 ### kevin warsh (N/A, 01/02/2026 00:23 Lima)
 
 - **Kevin Warsh, the Fed chair nominee shaped by the 2008 financial crisis**: [Link](https://www.ft.com/content/2030acc1-4026-4ad1-81bc-12754389f71d)
@@ -1001,39 +1036,5 @@ Sin noticias relacionadas disponibles.
 - **Karen Dejo se hizo descarte de cáncer por bulto en cuello**: [Link](https://www.americatv.com.pe/noticias/espectaculos/karen-dejo-paso-gran-susto-descubrir-bulto-cuello-n515261)
 - **Karen Dejo revela susto por bulto en el cuello: “Me dio miedo” | Cancer | farandula | video | VIDEOS**: [Link](https://elcomercio.pe/videos/entretenimiento/karen-dejo-revela-susto-por-bulto-en-el-cuello-me-dio-miedo-cancer-nnav-amtv-farandula-video-noticia/)
 - **Karen Dejo revela su lucha tras descarte de cáncer: ¿Qué pasó con su salud? | farandula | video | VIDEOS**: [Link](https://trome.com/videos/espectaculos/karen-dejo-revela-su-lucha-tras-descarte-de-cancer-que-paso-con-su-salud-nnav-amtv-farandula-video-noticia/)
-
-
-### pasto - millonarios (N/A, 28/01/2026 21:33 Lima)
-
-- **Transmisión EN VIVO del Pasto vs Millonarios hoy: cómo mirar el partido por TV o streaming**: [Link](https://www.365scores.com/es/news/transmision-en-vivo-pasto-vs-millonarios/)
-- **Pronóstico Deportivo Pasto Millonarios - Primera A Colombia 28/01/26**: [Link](https://www.sportytrader.com/es/pronosticos/deportivo-pasto-millonarios-322316/)
-- **El delantero vuelve a una convocatoria para un partido oficial luego de 221 días, cuando jugó el partido de la fecha 6 de los cuadrangulares semifinales de la Liga BetPlay I-2025 ante Santa Fe**: [Link](https://www.facebook.com/infobaecolombia/photos/el-delantero-vuelve-a-una-convocatoria-para-un-partido-oficial-luego-de-221-d%C3%ADas/1336564321819660/)
-
-
-### lakers - cavaliers (N/A, 28/01/2026 21:33 Lima)
-
-- **Lakers vs Cavaliers Picks & Odds Today: Los Angeles To Take Advantage Of Injuries**: [Link](https://www.oddsshark.com/nba/lakers-cavaliers-picks-odds-january-28-2026)
-- **Watch LeBron James, Bronny get a personalized welcome back to Cleveland**: [Link](https://sports.yahoo.com/articles/watch-lebron-james-bronny-personalized-224354289.html)
-- **BetMGM Bonus Code FOXSPORTS Provides $1500 First Bet Cover on NBA and NHL Action**: [Link](https://www.foxsports.com/stories/betting/betmgm-bonus-code-foxsports-will-provide-1500-first-bet-cover-your-nba-nhl-action)
-
-
-### boca vs estudiantes (N/A, 28/01/2026 21:33 Lima)
-
-- **Estudiantes vs. Boca, por el Torneo Apertura: seguilo EN VIVO**: [Link](https://www.tycsports.com/liga-profesional-de-futbol/estudiantes-boca-torneo-apertura-en-vivo-id709857.html)
-- **Estudiantes golpeó primero con un gol de Núñez y se puso en ventaja ante Boca**: [Link](https://espndeportes.espn.com/futbol/argentina/nota/_/id/16242250/video-gol-santiago-nunez-estudiantes-la-plata-vs-boca-torneo-apertura)
-- **Estudiantes vs Boca: Resultado EN VIVO, minuto a minuto y goles de la Liga Profesional**: [Link](https://www.365scores.com/es/news/estudiantes-vs-boca-resultado-vivo-goles/)
-
-
-### el monstruo peru (N/A, 28/01/2026 21:33 Lima)
-
-- **‘El Monstruo’ llegó a Lima: Líder de ‘Los Injertos del Cono Norte’ arribó a la capital tras ser extraditado de Paraguay**: [Link](https://rpp.pe/lima/actualidad/erick-moreno-el-monstruo-llego-a-lima-lider-de-los-injertos-arribo-procedente-de-arequipa-e-ira-a-la-dircote-noticia-1673464)
-- **Ministro de Justicia: “No existen fronteras que protejan a quienes atentan contra la paz"**: [Link](https://andina.pe/agencia/noticia-ministro-justicia-no-existen-fronteras-protejan-a-quienes-atentan-contra-paz-1061071.aspx)
-- **Erick Moreno, alias el 'Monstruo', llegó extraditado a Lima desde Paraguay**: [Link](https://canaln.pe/actualidad/erick-moreno-alias-monstruo-llego-lima-extraditado-paraguay-n489901)
-
-
-### santa fe - deportivo pereira (N/A, 28/01/2026 21:33 Lima)
-
-- **Santa Fe vs Deportivo Pereira Stats & Insights**: [Link](https://www.betshoot.com/football/19645608-Santa-Fe-vs-Deportivo-Pereira-prediction/)
-- **Santa Fe vs Deportivo Pereira Prediction: Match Preview and Analysis | Liga BetPlay 28-01-2026**: [Link](https://betmines.com/match-preview/santa-fe-vs-deportivo-pereira-prediction-match-preview-and-analysis-liga-betplay-28-01-2026)
 
 
