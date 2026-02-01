@@ -1,3 +1,73 @@
+### manchester city vs. galatasaray (N/A, 01/02/2026 11:36 Lima)
+
+- **Galatasaray'a kötü haber! O isim de gitti**: [Link](https://www.babaocagi.com.tr/galatasaraya-kotu-haber-o-isim-de-gitti)
+- **Şampiyonlar Ligi kura çekimi ne zaman, saat kaçta? Play-off eşleşmeleri için geri sayım**: [Link](https://www.sabah.com.tr/trend/galeri/yasam/sampiyonlar-ligi-kura-cekimi-ne-zaman-saat-kacta-play-off-eslesmeleri-icin-geri-sayim)
+- **Pep Guardiola'dan Sane ve İlkay açıklaması**: [Link](https://www.msn.com/tr-tr/spor/other/pep-guardiola-dan-sane-ve-%C4%B0lkay-a%C3%A7%C4%B1klamas%C4%B1/ar-AA1VeyDU)
+
+
+### cremonese - inter (N/A, 01/02/2026 11:36 Lima)
+
+- **Serie A, oggi Cremonese-Inter - Diretta**: [Link](https://www.adnkronos.com/sport/diretta-cremonese-inter-oggi-serie-a-risultato-live_wIHuKsvd3pHoLSh05mKrE)
+- **Il primo Cremo-Inter dell'Inter Club Bastoni: "Vinciamo noi ma..."**: [Link](https://www.oglioponews.it/2026/02/01/il-primo-cremo-inter-dellinter-club-bastoni-vinciamo-noi-ma/)
+- **Cremo-Inter, tutto pronto per il big match: tra i cremonesi non manca la fiducia**: [Link](https://www.cremonaoggi.it/2026/02/01/cremo-inter-tutto-pronto-per-il-big-match-tra-i-cremonesi-non-manca-la-fiducia/)
+
+
+### galatasaray - kayserispor (N/A, 01/02/2026 11:36 Lima)
+
+- **CANLI | Galatasaray – Kayserispor Maçı Bein Sports 1 Canlı İzle | Lider, sahasında**: [Link](https://www.cnnturk.com/spor/futbol/live-galatasaray-kayserispor-maci-bein-sports-1-sifresiz-izle-galatasaray-kayserispor-maci-bein-sports-1-canli-izle-galatasaray-2391206)
+- **Galatasaray'ın yeni transferi Noa Lang, Kayserispor maçında ilk 11'de**: [Link](https://www.yenicaggazetesi.com/galatasarayin-yeni-transferi-noa-lang-kayserispor-macinda-ilk-11de-997389h.htm)
+- **Kayserispor'da Galatasaray maçında sürpriz karar! Djalovic ilk kez 11'de şans verdi**: [Link](https://www.kayserianadoluhaber.com.tr/kayserispor-da-galatasaray-macinda-surpriz-karar-djalovic-ilk-kez-11-de-sans-verdi/176683/)
+
+
+### stuttgart vs (N/A, 01/02/2026 11:36 Lima)
+
+- **Hoeneß-Elf springt auf Platz vier: Last-Minute-Jubel beim VfB Stuttgart**: [Link](https://www.bild.de/sport/fussball/hoeness-elf-springt-auf-platz-vier-last-minute-jubel-beim-vfb-stuttgart-697f5de939137bad122e9932)
+- **Fußball-Bundesliga: Live-Ergebnisse & Tabelle heute | Sonntag (01.02.2026)**: [Link](https://www.tipico.de/wett-tipps/sportwetten-news/fussball-bundesliga-live-ergebnisse-tabelle-heute-sonntag-01-02-2026)
+- **Demirovic erlöst VfB gegen Ex-Klub Freiburg mit Traumtor**: [Link](https://www.swr.de/sport/fussball/vfb-stuttgart-sc-freiburg-bundesliga-spielbericht-100.html)
+
+
+### celtic f. c. - falkirk (N/A, 01/02/2026 11:36 Lima)
+
+- **Team’s Up – Three Celtic changes, Cvancara’s Paradise debut**: [Link](https://thecelticstar.com/teams-up-three-celtic-changes-cvancaras-paradise-debut/)
+- **Martin O'Neill has the chance to do something he has never done before as Celtic manager vs Falkirk**: [Link](https://www.67hailhail.com/match/martin-oneill-has-the-chance-to-do-something-he-has-never-done-before-as-celtic-manager-vs-falkirk/)
+- **Celtic assistant Shaun Maloney wary of 'really good attacking team' Falkirk**: [Link](https://news.stv.tv/sport/celtic-assistant-shaun-maloney-wary-of-really-good-attacking-team-falkirk)
+
+
+### tottenham - manchester city (N/A, 01/02/2026 11:36 Lima)
+
+- **Can Spurs Do the Double on Manchester City in Today’s Premier League Clash?**: [Link](https://www.dawan.africa/news/can-spurs-do-the-double-on-manchester-city-in-todays-premier-league-clash)
+- **Tottenham vs Manchester City predictions: Spurs’ dire form to continue**: [Link](https://www.goal.com/en-ca/betting/tips/tottenham-vs-manchester-city-predictions-02-01-26/A%3Ablt5a413d6318871daa)
+- **Could Pep Guardiola tweak his midfield to take on Tottenham today?**: [Link](https://esteemedkompany.com/2026/02/01/could-pep-guardiola-tweak-his-midfield-to-take-on-tottenham-today/)
+
+
+### dortmund - heidenheim (N/A, 01/02/2026 11:36 Lima)
+
+- **Neuer BVB-Ausfall, Süle zurück, Klarheit bei Anton und Sabitzer: Kader gegen Heidenheim**: [Link](https://www.ruhrnachrichten.de/bvb/bvb-kader-gegen-heidenheim-neuer-ausfall-suele-zurueck-klarheit-bei-anton-w1146273-2001957142/)
+- **Bundesliga - Borussia Dortmund vs. 1. FC Heidenheim heute live im Ticker: BVB will an FCB ran rücken - Liveticker**: [Link](https://www.eurosport.de/fussball/bundesliga/2025-2026/live-borussia-dortmund-1.-fc-heidenheim_mtc1609147/live-commentary.shtml)
+- **Vor Heimspiel gegen Heidenheim: (K)ein Grund zur Vorfreude?!**: [Link](https://www.schwatzgelb.de/artikel/2026/warmlaufen/kein-grund-zur-vorfreude)
+
+
+### deportivo garcilaso (N/A, 01/02/2026 11:36 Lima)
+
+- **Sporting Cristal sufrirá dos bajas para su debut en el Apertura**: [Link](https://www.espn.com.pe/futbol/peru/nota/_/id/16245305/sporting-cristal-sufrira-dos-bajas-para-su-debut-en-el-apertura)
+- **Sporting Cristal vs. Deportivo Garcilaso EN VIVO: minuto a minuto gratis vía Liga 1 MAX por Movistar TV**: [Link](https://depor.com/futbol-peruano/descentralizado/sporting-cristal-vs-deportivo-garcilaso-en-vivo-minuto-a-minuto-gratis-liga-1-max-movistar-tv-futbol-libre-tv-directv-l1-play-zapping-canales-de-transmision-torneo-apertura-2026-noticia/)
+- **Alineaciones de Sporting Cristal vs Garcilaso: el imponente once de Autuori para debut en Liga 1**: [Link](https://libero.pe/futbol-peruano/sporting-cristal/2026/01/31/alineaciones-de-sporting-cristal-vs-deportivo-garcilaso-formacion-del-partido-torneo-apertura-liga-1-2026-740993)
+
+
+### crystal palace vs (N/A, 01/02/2026 11:36 Lima)
+
+- **Premier League: Nottingham Forest y Crystal Palace se miden por la fecha 24**: [Link](https://rpp.pe/futbol/ligas-internacionales/premier-league-nottingham-forest-y-crystal-palace-se-miden-por-la-fecha-24-noticia-1673857)
+- **'Great save' joke fans as Neco Williams SENT OFF for 'brainfart' handball on the line to gift Palace equaliser vs Forest**: [Link](https://www.thesun.co.uk/sport/38086596/neco-williams-red-card-handball-crystal-palace-nottingham-forest/)
+- **Huge twist as key Leeds United rivals blow big chance with additional setback for fresh Whites boost**: [Link](https://www.yorkshireeveningpost.co.uk/sport/football/leeds-united/leeds-united-nottingham-forest-morgan-gibbs-white-crystal-palace-5498174)
+
+
+### la liga (N/A, 01/02/2026 11:36 Lima)
+
+- **Real Madrid Aim to Strengthen Title Push Against Struggling Rayo Vallecano**: [Link](https://dawan.africa/news/real-madrid-aim-to-strengthen-title-push-against-struggling-rayo-vallecano)
+- **Real Madrid fans boo and whistle at players once again before Rayo Vallecano clash**: [Link](https://madriduniversal.com/real-madrid-fans-boo-and-whistle-at-players-once-again-before-rayo-vallecano-clash/)
+- **Valverde: "Winning brings happiness and changes the energy"**: [Link](https://www.realmadrid.com/en-US/news/football/first-team/press-conference/declaraciones-jugador-01-02-2026)
+
+
 ### psv - feyenoord (N/A, 01/02/2026 08:02 Lima)
 
 - **Keuze Van Persie bezorgt Feyenoord-fans stress: 'Wat een enorm groot risico'**: [Link](https://www.voetbalprimeur.nl/nieuws/1737676/feyenoord-fans-niet-gerust-op-basisplaats-st-juste-bij-psv.html)
@@ -967,73 +1037,5 @@ Sin noticias relacionadas disponibles.
 - **Movistar anunció que transmitirá los partidos de Liga 1 2026: L1 Max tendrá dos canales en su parrilla, sin costo adicional**: [Link](https://www.infobae.com/peru/deportes/2026/01/29/movistar-anuncio-que-transmitira-los-partidos-de-liga-1-2026-l1-max-tendra-dos-canales-en-su-parrilla-sin-costo-adicional/)
 - **El tetracampeonato, el objetivo y la obsesión de Universitario de Deportes de cara a la Liga 1 2026**: [Link](https://www.espn.com.ar/futbol/peru/nota/_/id/16240368/universitario-objetivos-de-la-liga-1-de-peru-2026-tetracampeonato)
 - **Movistar anunció el regreso del fútbol peruano a su parrilla de canales: ¿Cuánto más tendrás que pagar?**: [Link](https://depor.com/futbol-peruano/descentralizado/movistar-hizo-oficial-la-integracion-de-l1-max-en-su-parrilla-de-canales-desde-cuando-se-podra-ver-y-cual-sera-el-nuevo-precio-liga-1-2026-video-noticia/)
-
-
-### local de votacion 2026 (N/A, 29/01/2026 11:51 Lima)
-
-- **Elecciones 2026: ONPE ya está enviando correos con local de votación asignado**: [Link](https://andina.pe/agencia/noticia-elecciones-2026-onpe-ya-esta-enviando-correos-local-votacion-asignado-1060632.aspx)
-- **Elecciones 2026: Conoce AQUÍ cómo verificar tu local de votación asignado vía ONPE**: [Link](https://www.exitosanoticias.pe/actualidad/elecciones-2026-conoce-aqui-como-verificar-tu-local-votacion-asignado-via-onpe-n167400)
-- **ONPE notifica locales de votación mediante correo electrónico**: [Link](https://www.cronicaviva.com.pe/onpe-notifica-locales-de-votacion-mediante-correo-electronico/)
-
-
-### rawayana (N/A, 29/01/2026 11:51 Lima)
-
-- **Rawayana trae su Tour “¿Dónde es el after?” a Costa 21**: [Link](https://caretas.pe/entretenimiento/rawayana-lima-2026-donde-es-el-after/)
-- **Rawayana, la banda venezolana ícono del reggae, llega a Lima con su tour ‘¿Dónde es el after?’: lugar, fecha y entradas**: [Link](https://larepublica.pe/entretenimiento/2026/01/28/rawayana-la-banda-venezolana-icono-del-reggae-llega-a-lima-con-su-tour-donde-es-el-after-lugar-fecha-y-entradas-1411200)
-- **Venezuela: Rawayana vuelve a Lima con el tour '¿Dónde es el after?'**: [Link](https://peru21.pe/cultura/venezuela-rawayana-vuelve-lima-con-el-tour-donde-es-el-after/)
-
-
-### exitosa en vivo (N/A, 29/01/2026 11:51 Lima)
-
-Sin noticias relacionadas disponibles.
-
-
-### rybakina (N/A, 29/01/2026 08:10 Lima)
-
-- **Rybakina One Step Away from Australian Open Final: When and Where to Watch**: [Link](https://qrnews.kz/en/news/rybakina-one-step-away-from-australian-open-final-when-and-where-to-watch-ulg1R)
-- **Rybakina survives rally from slow-starting Pegula to set up Sabalenka rematch**: [Link](https://www.theguardian.com/sport/2026/jan/29/elena-rybakina-jessica-pegula-semi-final-sabalenka-rematch-australian-open-tennis)
-- **Rybakina Battles Into Australian Open Final Against Sabalenka**: [Link](https://www.barrons.com/news/rybakina-battles-into-australian-open-final-against-sabalenka-4c640c57)
-
-
-### australian open (N/A, 29/01/2026 08:10 Lima)
-
-- **Sinner brushes past Shelton, sets Djokovic Australian Open SF**: [Link](https://www.atptour.com/en/news/sinner-shelton-australian-open-2026-wednesday)
-- **No white flag from Djokovic against Sinner as Alcaraz faces Zverev threat**: [Link](https://www.france24.com/en/live-news/20260129-no-white-flag-from-djokovic-against-sinner-as-alcaraz-faces-zverev-threat)
-- **Ben Shelton: So Close to Elite**: [Link](https://lastwordonsports.com/tennis/2026/01/28/ben-shelton-so-close-to-elite/)
-
-
-### radio exitosa en vivo (N/A, 29/01/2026 08:10 Lima)
-
-- **El duro testimonio de la joven que denunció a Trauco, Zambrano y Peña**: [Link](https://peru21.pe/policiales/el-duro-testimonio-de-la-joven-que-denuncio-trauco-zambrano-y-pena/)
-- **Pedro Aquino rompe su silencio tras verse involucrado en escándalo sexual en Alianza Lima: “Más unidos que nunca”**: [Link](https://www.infobae.com/peru/deportes/2026/01/29/pedro-aquino-rompe-su-silencio-tras-verse-involucrado-en-escandalo-sexual-en-alianza-lima-mas-unidos-que-nunca/)
-- **“Alianza busca un pretexto para despedir a Trauco basado en el dicho de un tercero”: Baldovino, asesor legal de la Safap, y el dilema legal que se avecina entre jugador y club**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/alianza-lima-busca-un-pretexto-para-despedir-a-miguel-trauco-basado-en-el-dicho-de-un-tercero-jhonny-baldovino-asesor-legal-de-la-safap-y-el-dilema-legal-que-se-avecina-entre-jugador-y-club-tlcnota-noticia/)
-
-
-### la tinka resultados (N/A, 29/01/2026 08:10 Lima)
-
-- **La Tinka: resultados del sorteo del 28 de enero y cuánto se llevó el ganador**: [Link](https://www.infobae.com/peru/2026/01/29/resultados-de-la-tinka-este-28-de-enero-de-2026/)
-- **Resultados de La Tinka: números y aciertos del miércoles 28 de enero**: [Link](https://elcomercio.pe/respuestas/loterias/resultados-de-la-tinka-hoy-miercoles-28-de-enero-2026-en-vivo-ultimo-sorteo-numeros-y-jugada-ganadora-tinkanet-pozo-millonario-resultado-si-o-si-boliyapa-intralot-lbposting-noticia/)
-- **¡Reventó La Tinka! Revisa los resultados y jugada ganadora del pozo millonario de más de 19 millones de soles**: [Link](https://libero.pe/ocio/2026/01/25/tinka-hoy-25-de-enero-en-vivo-resultados-del-ultimo-sorteo-pozo-millonario-intralot-2029128)
-
-
-### aryna sabalenka (N/A, 29/01/2026 08:10 Lima)
-
-- **Back again! Sabalenka bests Svitolina to reach fourth straight Australian Open final**: [Link](https://www.wtatennis.com/news/4441201/back-again-aryna-sabalenka-bests-elina-svitolina-to-reach-her-fourth-straight-australian-open-final)
-- **A tigress roams free in Melbourne**: [Link](https://www.puntodebreak.com/en/2026/01/29/tigress-roams-free-in-melbourne)
-- **Aryna Sabalenka forces TNT Sports into apology as Australian Open star hits out again**: [Link](https://www.express.co.uk/sport/tennis/2164215/aryna-sabalenka-tnt-sports-apology-australian-open)
-
-
-### ver si soy miembro de mesa 2026 (N/A, 29/01/2026 08:10 Lima)
-
-- **Elecciones 2026: Mañana jueves 29 se conocerán a los primeros miembros de mesa**: [Link](https://www.infobae.com/peru/2026/01/28/elecciones-2026-manana-jueves-29-de-enero-se-conoceran-a-los-primeros-miembros-de-mesa/)
-- **Elecciones 2026: estos son todos los impedimentos para ser miembro de mesa**: [Link](https://rpp.pe/politica/elecciones/elecciones-2026-estos-son-los-impedimentos-para-ser-miembro-de-mesa-noticia-1673051)
-- **ONPE sortea miembros de mesa para elecciones 2026**: [Link](https://caretas.pe/nacional/onpe-sortea-miembros-de-mesa-para-elecciones-2026/)
-
-
-### bridgerton temporada 4 (N/A, 29/01/2026 03:49 Lima)
-
-- **“Los Bridgerton”, temporada 4: resumen de la historia y cuándo se estrenan las dos partes de los episodios**: [Link](https://cnnespanol.cnn.com/2026/01/28/entretenimiento/bridgerton-temporada-4-resumen-estreno-orix)
-- **La finca del duque de Hastings, la tienda de Madame Delacroix y otros lugares en Inglaterra donde revivir ‘Los Bridgerton’**: [Link](https://elpais.com/elviajero/2026-01-28/la-finca-del-duque-de-hastings-la-tienda-de-madame-delacroix-y-otros-lugares-en-inglaterra-donde-revivir-los-bridgerton.html)
-- **Romance, lujo y diversidad: por qué fascina "Los Bridgerton"**: [Link](https://www.dw.com/es/romance-lujo-y-diversidad-por-qu%C3%A9-fascina-la-serie-los-bridgerton/a-75704618)
 
 
