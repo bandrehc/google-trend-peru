@@ -1,3 +1,52 @@
+### kevin warsh (N/A, 01/02/2026 00:23 Lima)
+
+- **Kevin Warsh, the Fed chair nominee shaped by the 2008 financial crisis**: [Link](https://www.ft.com/content/2030acc1-4026-4ad1-81bc-12754389f71d)
+- **Trump nominates Kevin Warsh as new Federal Reserve chair**: [Link](https://www.bbc.com/news/live/ckgx1yldxg4t)
+- **A Hawkish Kevin Warsh at the Fed Could Haunt Bessent**: [Link](https://www.nytimes.com/2026/01/31/business/scott-bessent-kevin-warsh-trump.html)
+
+
+### gerardo taracena (N/A, 01/02/2026 00:23 Lima)
+
+- **Muere querido actor de telenovelas a los 55 años: devastados, dan a conocer su fallecimiento**: [Link](https://www.lasestrellas.tv/famosos/muere-querido-actor-de-telenovelas-a-los-55-anos-devastados-dan-a-conocer-su-fallecimiento)
+- **Gerardo Taracena, el hombre que aprendió maya, corrió hasta el límite y dejó huella en el cine mexicano**: [Link](https://www.eluniversal.com.mx/espectaculos/gerardo-taracena-el-hombre-que-aprendio-maya-corrio-hasta-el-limite-y-dejo-huella-en-el-cine-mexicano/)
+- **🕊️Fallece Gerardo Taracena a los 55 años, ícono mexicano del cine, la televisión y la danza. Recordado por su papel en Apocalypto y Narcos: México, su partida deja un vacío profundo en la industria del espectáculo nacional. Su carrera comenzó en la dan**: [Link](https://www.facebook.com/MilenioDiario/posts/%EF%B8%8Ffallece-gerardo-taracena-a-los-55-a%C3%B1os-%C3%ADcono-mexicano-del-cine-la-televisi%C3%B3n-y-/1375117194645748/)
+
+
+### paramount (N/A, 01/02/2026 00:23 Lima)
+
+- **3 new to Paramount+ movies you need to stream this weekend (Jan. 30-Feb. 1)**: [Link](https://www.tomsguide.com/entertainment/paramount-plus/3-new-to-paramount-movies-you-need-to-stream-this-weekend-jan-30-feb-1-2026)
+- **One Killed in Multi-Vehicle Crash in Paramount**: [Link](https://mynewsla.com/life/2026/01/31/one-killed-in-multi-vehicle-crash-in-paramount-4/)
+- **Fatal Crash in Paramount**: [Link](https://mynewsla.com/crime/2026/01/31/one-killed-in-multi-vehicle-crash-in-paramount/)
+
+
+### benoît saint denis (N/A, 01/02/2026 00:23 Lima)
+
+- **Aaron Tau brise le silence après le pesage polémique de la finale Road to UFC**: [Link](https://www.mmadeferlante.com/aaron-tau-brise-le-silence-apres-le-pesage-polemique-de-la-finale-road-to-ufc/)
+- **UFC Sidney 2026 en direct streaming**: [Link](https://sportune.20minutes.fr/ufc-sidney-2026-en-direct-streaming)
+- **« Cela ne peut être qu’avantageux pour Benoît » : drôle d’horaire pour Saint Denis à Sydney, avec des combats dès 9h du matin**: [Link](https://www.leparisien.fr/sports/mma/cela-ne-peut-etre-quavantageux-pour-benoit-drole-dhoraire-pour-saint-denis-a-sydney-avec-des-combats-des-9h-du-matin-31-01-2026-UBI6VM2BUFA4NFHB73CZHLYOJE.php)
+
+
+### adele (N/A, 01/02/2026 00:23 Lima)
+
+- **Candlelight: A Tribute to Adele**: [Link](https://thesouthend.wayne.edu/local-events?_evDiscoveryPath=/event%2F124945v-candlelight-a-tribute-to-adele)
+- **Quote of the Day by Oprah Winfrey: 'The more you praise and celebrate…'—Here are some inspiring quotes by**: [Link](https://m.economictimes.com/news/international/us/quote-of-the-day-by-oprah-winfrey-the-more-you-praise-and-celebratehere-are-some-inspiring-quotes-by-the-incredible-philanthropist-on-her-birthday/articleshow/127773001.cms)
+- **Oprah Winfrey Celebrates Her 72nd Birthday With an Unexpected 72-Minute Activity**: [Link](https://www.instyle.com/oprah-celebrates-72nd-birthday-72-minute-workout-11896604)
+
+
+### ufc en vivo (N/A, 01/02/2026 00:23 Lima)
+
+- **UFC 325: Resultados Pesaje Oficial**: [Link](https://www.ufcespanol.com/news/ufc-325-resultados-pesaje-oficial)
+- **UFC 325 con la revancha Volkanovski vs. Diego Lopes como plato fuerte: cartelera, previa, hora y cómo ver por TV e internet**: [Link](https://cnnespanol.cnn.com/2026/01/30/deportes/ufc-325-volkanovski-lopes-cartelera-hora-orix)
+- **📱 Canales TV para mirar la pelea del UFC 325: Volkanovski — Lopes 2 EN VIVO EN DIRECTO por el título peso pluma**: [Link](https://gestion.pe/mix/sports/a-que-hora-inicia-y-en-que-canal-transmiten-el-ufc-325-volkanovski-vs-lopes-en-vivo-por-la-pelea-estelar-en-usa-mexico-y-espana-horarios-en-el-mundo-nnda-nnrt-noticia/)
+
+
+### rafael fiziev (N/A, 01/02/2026 00:23 Lima)
+
+- **Mauricio Ruffy dedicates UFC 325 KO over Rafael Fiziev to late brother who died by suicide**: [Link](https://bloodyelbow.com/2026/01/31/mauricio-ruffy-dedicates-ufc-325-ko-over-rafael-fiziev-to-late-brother-who-died-by-suicide/)
+- **"Let me put on a show" - Mauricio Ruffy targets Conor McGregor and Paddy Pimblett after impressive Rafael Fiziev TKO win**: [Link](https://www.sportskeeda.com/mma/news-let-put-show-mauricio-ruffy-targets-conor-mcgregor-paddy-pimblett-impressive-rafael-fiziev-tko-win)
+- **Mauricio Ruffy stops Rafael Fiziev at UFC 325**: [Link](https://www.mmaweekly.com/news/mauricio-ruffy-stops-rafael-fiziev-at-ufc-325)
+
+
 ### ufc hoy (N/A, 31/01/2026 21:54 Lima)
 
 - **📱 Canales TV para ver la pelea del UFC 325: Volkanovski vs. Lopes 2 EN VIVO AHORA por el título peso pluma**: [Link](https://gestion.pe/mix/sports/a-que-hora-inicia-y-en-que-canal-transmiten-el-ufc-325-volkanovski-vs-lopes-en-vivo-por-la-pelea-estelar-en-usa-mexico-y-espana-horarios-en-el-mundo-nnda-nnrt-noticia/)
@@ -986,54 +1035,5 @@ Sin noticias relacionadas disponibles.
 
 - **Santa Fe vs Deportivo Pereira Stats & Insights**: [Link](https://www.betshoot.com/football/19645608-Santa-Fe-vs-Deportivo-Pereira-prediction/)
 - **Santa Fe vs Deportivo Pereira Prediction: Match Preview and Analysis | Liga BetPlay 28-01-2026**: [Link](https://betmines.com/match-preview/santa-fe-vs-deportivo-pereira-prediction-match-preview-and-analysis-liga-betplay-28-01-2026)
-
-
-### corinthians vs (N/A, 28/01/2026 21:33 Lima)
-
-- **Ao vivo: Corinthians x Bahia | Rodada 1 | Campeonato Brasileiro**: [Link](https://ge.globo.com/sp/futebol/brasileirao-serie-a/jogo/28-01-2026/corinthians-bahia.ghtml)
-- **Comentário de Fernando em 'Jogo do Corinthians ao vivo'**: [Link](https://www.meutimao.com.br/comentario/16520851/tirou_o_garro_matou_o_time)
-- **Comentário de Paulo em 'Jogo do Corinthians ao vivo'**: [Link](https://www.meutimao.com.br/comentario/16516746/bora_ser_campeas_mundialaqui_e_corinthians)
-
-
-### madrid vs (N/A, 28/01/2026 15:38 Lima)
-
-- **Alineación posible del Real Madrid hoy contra el Benfica en Champions League**: [Link](https://as.com/futbol/champions/posible-alineacion-del-real-madrid-contra-el-benfica-en-champions-f202601-n/)
-- **⚪ A qué hora juega y en qué canal ver ahora Real Madrid vs. Benfica EN VIVO hoy por Champions League 2026**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/a-que-hora-juega-y-que-canal-transmite-real-madrid-vs-benfica-en-vivo-hoy-28-de-enero-por-champions-league-2026-canales-tv-nnda-nnrt-noticia/)
-- **Convocatoria del Real Madrid contra el Benfica**: [Link](https://www.realmadrid.com/es-ES/noticias/futbol/primer-equipo/convocatorias/convocatoria-del-real-madrid-contra-el-benfica-27-01-2026)
-
-
-### leverkusen vs (N/A, 28/01/2026 15:38 Lima)
-
-- **Was macht der Torhüter da? Tillman presst Bayer zur Führung | Match-Clip Champions League | Video**: [Link](https://www.kicker.de/was-macht-der-torhueter-da-tillman-presst-bayer-zur-fuehrung-1188474/video)
-- **Kurzpässe vor #B04VIL: Endspiel um Play-off-Einzug – Schwarz-Rot auch im Gästeblock**: [Link](https://www.bayer04.de/de-de/news/champions-league/kurzpaesse-vor-b04vil-endspiel-um-play-off-einzug-schwarz-rot-auch-im-gaesteblock)
-- **Mit "Hurra-Fußball" zum Erfolg? Bayers Woche der Wahrheit**: [Link](https://neunzigplus.de/champions-league/mit-hurra-fussball-zum-erfolg-bayers-woche-der-wahrheit/)
-
-
-### dortmund vs (N/A, 28/01/2026 15:38 Lima)
-
-- **"Wahnsinn, Kehl, für den breiten Kader, du gehörst sowas von entlassen": BVB-Fans entsetzt über mager besetzte Auswechselbank gegen Inter**: [Link](https://tribuna.com/de/blogs/wahnsinn-kehl-fur-den-breiten-kader-du-gehorst-sowas-von-ent/)
-- **Fußball heute live: Dortmund – Inter Mailand Übertragung im TV & Stream**: [Link](https://www.tipico.de/wett-tipps/sportwetten-news/fussball-heute-live-dortmund-inter-mailand-uebertragung-im-tv-stream)
-- **Nach Sabitzer-Ausfall: Nächster Verletzungsschock für BVB**: [Link](https://www.laola1.at/de/red/fussball/champions-league/news/nach-sabitzer-ausfall--naechster-verletzungsschock-fuer-bvb/)
-
-
-### bayer vs (N/A, 28/01/2026 15:38 Lima)
-
-- **Preview: Bayer Leverkusen vs Villarreal - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/bayer-leverkusen/champions-league/preview/b-leverkusen-vs-villarreal-prediction-team-news-lineups_590723.html)
-- **Bayer Leverkusen vs. Villarreal prediction, pick for Wednesday 1/28/26**: [Link](https://dknetwork.draftkings.com/2026/01/27/bayer-leverkusen-vs-villarreal-prediction-pick-for-wednesday-1-28-26/)
-- **Confirmed Lineups: Bayer 04 Leverkusen vs. Villarreal CF**: [Link](https://bulinews.com/confirmed-lineups-bayer-04-leverkusen-villarreal)
-
-
-### manchester city vs. galatasaray (N/A, 28/01/2026 15:38 Lima)
-
-- **Cuándo juegan Manchester City vs. Galatasaray por Champions: equipo, fecha, hora y TV en vivo**: [Link](https://www.espn.com.pe/futbol/champions-league/nota/_/id/16235192/manchester-city-vs-galatasaray-champions-equipo-fecha-hora-y-tv-en-vivo)
-- **Comienzan Haaland, Doku y Ake | 4-2-3-1 Alineación prevista Manchester City vs Galatasaray**: [Link](https://www.elpueblo.pe/deportes/comienzan-haaland-doku-y-ake-4-2-3-1-alineacion-prevista-manchester-city-vs-galatasaray/229959/)
-- **Pronóstico Manchester City - Galatasaray. Champions League | 28/01/2026**: [Link](https://gainblers.com/pe/pronosticos/futbol/europa/champions-league/pronostico-manchester-city-galatasaray-28-01-2026/)
-
-
-### psv vs (N/A, 28/01/2026 15:38 Lima)
-
-- **¿A qué hora juega y qué canal transmite a Luis Díaz en Bayern Múnich vs. PSV EN VIVO hoy 28 de enero por Champions League 2026?**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/a-que-hora-juega-y-que-canal-transmite-a-luis-diaz-en-bayern-munich-vs-psv-en-vivo-hoy-28-de-enero-por-champions-league-2026-nnda-nnrt-noticia-2/)
-- **Champions League: Se enfrentan PSV y Bayern Múnich por la fecha 8**: [Link](https://rpp.pe/futbol/ligas-internacionales/champions-league-se-enfrentan-psv-y-bayern-munich-por-la-fecha-8-noticia-1673213)
-- **PSV vs Bayern Múnich en vivo por la Champions League**: [Link](https://www.futbolperuano.com/en-vivo/champions-league-psv-eindhoven-vs-bayern-munich-561494)
 
 
