@@ -1,3 +1,69 @@
+### ice (N/A, 01/02/2026 21:43 Lima)
+
+- **Lady Gaga actuará en los Grammy 2026 tras su discurso anti-ICE**: [Link](https://www.elpueblo.pe/entretenimiento/lady-gaga-actuara-en-los-grammy-2026-tras-su-discurso-anti-ice/236669/)
+
+
+### super bowl (N/A, 01/02/2026 21:43 Lima)
+
+- **Super Bowl 60: 10 details about the Patriots’ week in Santa Clara - The Athletic**: [Link](https://www.nytimes.com/athletic/7010088/2026/02/01/patriots-uniforms-super-bowl-60-santa-clara/)
+- **Fans fired up as Pats look to bring home 7th Super Bowl title**: [Link](https://whdh.com/news/fans-fired-up-as-pats-look-to-bring-home-7th-super-bowl-title/)
+- **Drake Maye, Mike Vrabel address Gillette Stadium crowd at Super Bowl rally**: [Link](https://www.cbsnews.com/boston/video/drake-maye-mike-vrabel-address-gillette-stadium-crowd-at-super-bowl-rally/)
+
+
+### jacob elordi (N/A, 01/02/2026 21:43 Lima)
+
+- **Margot Robbie Reacts to Rumors Jacob Elordi Is the Next James Bond**: [Link](https://www.eonline.com/news/1427896/margot-robbie-on-jacob-elordi-james-bond-rumors)
+- **Will Jacob Elordi Be the Next James Bond? The Rumor Gains Momentum**: [Link](https://3dvf.com/en/will-jacob-elordi-be-the-next-james-bond-the-rumor-gains-momentum/)
+- **Who Will Be the Next James Bond?**: [Link](https://next.io/prediction-markets/trending/who-will-be-the-next-james-bond/)
+
+
+### celtics - bucks (N/A, 01/02/2026 21:43 Lima)
+
+- **Celtics blow out Bucks during inaugural NBA Pioneers Classic honoring league's first Black players**: [Link](https://sports.yahoo.com/nba/article/celtics-blow-out-bucks-during-inaugural-nba-pioneers-classic-honoring-leagues-first-black-players-001909819.html)
+- **Anfernee Simons is the Celtics ‘Name to Know’ Player of the Game in Sunday’s win over Bucks**: [Link](https://www.masslive.com/celtics/2026/02/anfernee-simons-is-the-celtics-name-to-know-player-of-the-game-in-sundays-win-over-bucks.html)
+- **Jaylen Brown returns to drop 30 in Celtics' rout of Bucks**: [Link](https://www.reuters.com/sports/basketball/jaylen-brown-returns-drop-30-celtics-rout-bucks--flm-2026-02-01/)
+
+
+### alex warren (N/A, 01/02/2026 21:43 Lima)
+
+Sin noticias relacionadas disponibles.
+
+
+### olivia dean (N/A, 01/02/2026 21:43 Lima)
+
+- **Grammy Awards live updates: Olivia Dean, Kendrick Lamar, Bad Bunny among winners**: [Link](https://apnews.com/live/grammys-2026-updates)
+- **See Every Grammy Award Winner for Best New Artist, From the 1960s to Today**: [Link](https://people.com/see-grammys-best-new-artist-winners-through-years-11896689)
+- **It's So Easy to Fall In Love With Olivia Dean's Chanel Dress at the 2026 Grammys**: [Link](https://www.marieclaire.com/fashion/celebrity-style/olivia-dean-chanel-dress-grammys-red-carpet-2026/)
+
+
+### sombr (N/A, 01/02/2026 21:43 Lima)
+
+- **Sombr Performed “12 to 12” at the 2026 Grammys**: [Link](https://www.cosmopolitan.com/entertainment/music/a70157289/sombr-2026-grammys-performance/)
+- **Sombr’s “Back To Friends” Officially Reaches #1 On Pop Radio Chart**: [Link](https://headlineplanet.com/home/2026/02/01/sombrs-back-to-friends-officially-reaches-1-on-pop-radio-chart/)
+- **Sombr tops 'Billboard' Pop Airplay chart, playfully threatens Alex Warren**: [Link](https://www.willmarradio.com/q102/music_news/sombr-tops-billboard-pop-airplay-chart-playfully-threatens-alex-warren/article_fce15ad6-b0f2-5efa-b531-ad50bf957ac4.html)
+
+
+### chappell roan (N/A, 01/02/2026 21:43 Lima)
+
+- **Chappell Roan Takes Naked Dressing to Another Level in Sheer Gown Hanging from Nipple Rings at 2026 Grammys**: [Link](https://people.com/grammys-2026-chappell-roan-naked-dress-photos-11894476)
+- **Chappell Roan’s Naked Dress at Grammys Shocks Social Media**: [Link](https://www.hollywoodreporter.com/lifestyle/style/chappell-roan-naked-dress-grammys-2026-1236491980/)
+- **Chappell Roan Goes Topless in Shocking Grammys 2026 Red Carpet Moment**: [Link](https://www.eonline.com/news/1427787/grammys-2026-chappell-roan-topless-on-red-carpet)
+
+
+### lola young (N/A, 01/02/2026 21:43 Lima)
+
+- **Watch Lola Young Perform “Messy” at the 2026 Grammys**: [Link](https://pitchfork.com/news/watch-lola-youngs-perform-tk-at-the-2026-grammys/)
+- **Lola Young’s Raw ‘Messy’ Performance Is a Standout at the 2026 Grammys**: [Link](https://www.elle.com/culture/music/a70209644/lola-young-performance-2026-grammys/)
+- **Lola Young Looks Comfortable and Cool in a Vivienne Westwood Jumpsuit at the 2026 Grammys**: [Link](https://www.harpersbazaar.com/celebrity/latest/a70210101/lola-young-2026-grammys-red-carpet-photos/)
+
+
+### copa libertadores (N/A, 01/02/2026 21:43 Lima)
+
+- **Cuándo juegan 2 de Mayo vs. Alianza Lima por la Fase 1 de la CONMEBOL Libertadores 2026: equipos, fecha, hora y TV en vivo**: [Link](https://www.espn.com.ar/futbol/copa-libertadores/nota/_/id/16259248/alianza-lima-vs-2-de-mayo-fase-1-copa-libertadores-equipos-fecha-hora-y-tv-en-vivo)
+- **¡Atención, Alianza Lima! 2 de Mayo fue goleado 5-1 previo a partido por Fase 1 de Copa Libertadores**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/atencion-alianza-lima-2-de-mayo-fue-goleado-5-1-previo-a-partido-por-fase-1-de-copa-libertadores-noticia/)
+- **Copa Libertadores sorprende y deja fuerte mensaje sobre Alianza Lima: "Un equipo con..."**: [Link](https://libero.pe/futbol-peruano/alianza-lima/2026/02/01/copa-libertadores-sorprende-deja-fuerte-mensaje-alianza-lima-equipo-79016)
+
+
 ### benfica vs (N/A, 01/02/2026 15:33 Lima)
 
 - **Una revancha, un clásico local, largos viajes y choques parejos: los playoffs de la UEFA Champions League**: [Link](https://www.espn.com.pe/futbol/champions-league/nota/_/id/16247791/revancha-clasico-local-viajes-choques-parejos-playoffs-uefa-champions-league)
@@ -969,73 +1035,5 @@ defender for his squad**: [Link](https://www.vavel.com/en/football/2026/01/31/ar
 - **¡Confirmado! Movistar anuncia que transmitirá los partidos de la Liga 1: conozca los detalles**: [Link](https://elcomercio.pe/economia/partidos-de-la-liga-1-se-trasmitiran-en-movistar-tv-este-2026-ultimas-noticia/)
 - **Programación televisiva de la fecha 1 del Torneo Apertura de la Liga 1 2026: así se transmitirán todos los partidos por L1 Max**: [Link](https://www.infobae.com/peru/deportes/2026/01/28/programacion-televisiva-de-la-fecha-1-del-torneo-apertura-de-la-liga-1-2026-asi-se-transmitiran-todos-los-partidos-por-l1-max/)
 - **Vuelve la Liga 1 y L1MAX inicia una temporada recargada con todos los partidos y más contenidos originales**: [Link](https://depor.com/futbol-peruano/descentralizado/vuelve-la-liga-1-y-l1max-inicia-una-temporada-recargada-con-todos-los-partidos-y-mas-contenidos-originales-noticia/)
-
-
-### américa - once caldas (N/A, 29/01/2026 21:33 Lima)
-
-- **Pronóstico América de Cali Once Caldas - Primera A Colombia 29/01/26**: [Link](https://www.sportytrader.com/es/pronosticos/america-de-cali-once-caldas-322802/)
-- **Qué canal pasa América de Cali vs Once Caldas hoy: dónde ver el partido gratis y en vivo de la Liga BetPlay**: [Link](https://www.365scores.com/es/news/canal-tv-america-vs-once-caldas-gratis/)
-- **América le igualó a Once Caldas por golazo de Mateo Castillo**: [Link](https://www.winsports.co/futbol-colombiano/noticias/america-le-igualo-a-once-caldas-por-golazo-de-mateo-castillo-405073)
-
-
-### temblor arequipa (N/A, 29/01/2026 21:33 Lima)
-
-- **Temblor en Perú hoy, jueves 29 de enero: sismos recientes reportados por el IGP**: [Link](https://elcomercio.pe/respuestas/temblor-en-peru-hoy-ultimo-sismo-de-enero-en-vivo-cual-fue-el-epicentro-y-magnitud-segun-ultimos-reportes-del-igp-instituto-geofisico-del-peru-lima-callao-lbposting-noticia/)
-- **Un sismo de magnitud 4.9 remeció la región Ica esta madrugada**: [Link](https://rpp.pe/peru/ica/ica-sismo-de-magnitud-49-remecio-la-region-esta-madrugada-noticia-1673511)
-- **Temblor en Ica: sismo de magnitud 4,9 remeció Nasca, según IGP**: [Link](https://larepublica.pe/sociedad/2026/01/29/temblor-en-ica-sismo-de-magnitud-49-remecio-nasca-segun-igp-mdga-1956775)
-
-
-### liga 1 (N/A, 29/01/2026 21:33 Lima)
-
-- **A qué hora juega Alianza Lima vs Sport Huancayo: partido por fecha 1 del Torneo Apertura de la Liga 1 2026**: [Link](https://www.infobae.com/peru/deportes/2026/01/29/a-que-hora-juega-alianza-lima-vs-sport-huancayo-partido-fecha-1-torneo-apertura-liga-1-2026-horario/)
-- **Mosquera y lo que le dijo a sus jugadores para vencer a Alianza**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/mosquera-y-lo-que-le-dijo-sus-jugadores-vencer-alianza-n452504)
-- **Jairo Vélez estableció prioridades en Alianza Lima: “Enfocado en lo que realmente importa”**: [Link](https://depor.com/futbol-peruano/descentralizado/jairo-velez-alianza-lima-el-volante-establecio-prioridades-en-el-club-enfocado-en-lo-que-importa-liga-1-noticia/)
-
-
-### mirassol vs (N/A, 29/01/2026 21:33 Lima)
-
-Sin noticias relacionadas disponibles.
-
-
-### botafogo vs (N/A, 29/01/2026 21:33 Lima)
-
-- **Botafogo vs Cruzeiro Pronóstico: Previa y Análisis del Partido | Serie A 30-01-2026**: [Link](https://betmines.com/es/analisis-partido/botafogo-vs-cruzeiro-pronostico-previa-y-analisis-serie-a-30-01-2026)
-- **Botafogo vs Cruzeiro: previa, horario y cómo llegan para la fecha 1 del Brasileirao**: [Link](https://zona.palmsbet.pe/deportes/futbol/botafogo-vs-cruzeiro-previa-horario-y-como-llegan-para-la-fecha-1-del-brasileirao/)
-- **Botafogo - RJ vs Cruzeiro pronostico y comparación de cuotas 30.01.2026**: [Link](https://www.livetipsportal.com/es/pronosticos-apuestas-deportivas/botafogo-rj-vs-cruzeiro-serie-a-11809294/)
-
-
-### lyon vs (N/A, 29/01/2026 15:37 Lima)
-
-- **OL : le pari insensé de Paulo Fonseca face au PAOK**: [Link](https://www.football365.fr/ol-le-pari-insense-de-paulo-fonseca-face-au-paok-10276753.html)
-- **Un vibrant hommage rendu par le public lyonnais aux supporters du PAOK : « La douleur n'a pas de couleur, reposez en paix »**: [Link](https://www.lequipe.fr/Football/Actualites/Un-vibrant-hommage-rendu-par-le-public-lyonnais-aux-supporters-du-paok-la-douleur-n-a-pas-de-couleur-reposez-en-paix/1637677)
-- **Le forfait de Corentin Tolisso annoncé pour OL – LOSC**: [Link](https://lepetitlillois.com/2026/01/29/le-forfait-de-corentin-tolisso-annonce-pour-ol-losc/)
-
-
-### porto (N/A, 29/01/2026 15:37 Lima)
-
-- **Seba Pérez ainda em dúvida para o FC Porto**: [Link](https://sapo.pt/artigo/seba-perez-ainda-em-duvida-para-o-fc-porto-697bc1669768a12c85da2592)
-- **Seba Pérez ainda em dúvida para o FC Porto**: [Link](https://www.record.pt/futebol/futebol-nacional/liga-betclic/casa-pia/detalhe/seba-perez-ainda-em-duvida-para-o-fc-porto)
-- **T10, Ep. 35 | Dragão tem novo avançado**: [Link](https://www.zerozero.pt/noticias/t10-ep-35-dragao-tem-novo-avancado/1039750)
-
-
-### lyon (N/A, 29/01/2026 15:37 Lima)
-
-- **Sondages municipales à Lyon : Grégory Doucet ne décolle toujours pas, Jean-Michel Aulas intouchable**: [Link](https://www.lyonmag.com/article/149747/sondages-municipales-a-lyon-gregory-doucet-ne-decolle-toujours-pas-jean-michel-aulas-intouchable)
-- **"Jouer le match jusqu'à la fin": Jean-Michel Aulas confie ne pas se fier entièrement aux sondages**: [Link](https://www.bfmtv.com/lyon/replay-emissions/lyon-politiques/video-jouer-le-match-jusqu-a-la-fin-jean-michel-aulas-confie-ne-pas-se-fier-entierement-aux-sondages_VN-202601290871.html)
-- **Parcs, baignade, rive droite... Le plan de Doucet et Bernard pour mieux Vivre à Lyon**: [Link](https://www.lyoncapitale.fr/politique/parcs-baignade-rive-droite-le-plan-de-doucet-et-bernard-pour-mieux-vivre-a-lyon)
-
-
-### endrick (N/A, 29/01/2026 15:37 Lima)
-
-- **Chelsea Have Set Their Sights On This Real Madrid Forward: Should Rosenior Get Him On Board?**: [Link](https://sports.yahoo.com/articles/chelsea-set-sights-real-madrid-222500099.html)
-- **Chelsea plotting €80 million offer for Real Madrid player**: [Link](https://theprideoflondon.com/chelsea-plotting-80-million-offer-real-madrid-player)
-- **Chelsea plot €80m heist for hat-trick hero who could be a future star**: [Link](https://www.yardbarker.com/soccer/articles/chelsea_plot_80m_heist_for_hat_trick_hero_who_could_be_a_future_star/s1_15953_43389370)
-
-
-### paok vs (N/A, 29/01/2026 15:37 Lima)
-
-- **Lyon vs. PAOK - Boxscore - Live Score - January 29, 2026**: [Link](https://www.foxsports.com/soccer/europa-league-lyon-vs-paok-jan-29-2026-game-boxscore-658234?tab=boxscore)
-- **Lyon predicted XI v PAOK: Rémi Himbert to startr in Endrick’s absence**: [Link](https://www.getfootballnewsfrance.com/2026/lyon-predicted-xi-v-paok-remi-himbert-to-startr-in-endricks-absence/)
-- **Lyon vs PAOK LIVE Score Updates: match begins (0-0)**: [Link](https://www.vavel.com/en-us/soccer/2026/01/29/1248971-lyon-vs-paok-live-score-europa-league.html)
 
 
