@@ -1,3 +1,10 @@
+### cuando es el super bowl 2026 (N/A, 02/02/2026 03:52 Lima)
+
+- **¿Cómo y dónde ver a Bad Bunny en el Show de Medio Tiempo del Super Bowl 2026? | tdpe | RESPUESTAS**: [Link](https://elcomercio.pe/respuestas/mexico/como-y-donde-ver-a-bad-bunny-en-el-show-de-medio-tiempo-del-super-bowl-2026-tdpe-noticia/)
+- **Los fans de Cardi B le piden que se una a Bad Bunny en el Super Bowl después de su actuación en SNL**: [Link](https://www.es.themirror.com/entretenimiento/cardi-snl-super-bowl-espectaculo-1655845)
+- **Medio tiempo del Super Bowl 2026 con Bad Bunny: Horario, duración, dónde ver**: [Link](https://www.sopitas.com/musica/medio-tiempo-del-super-bowl-2026-con-bad-bunny-horario-duracion-setlist-invitados/)
+
+
 ### bad bunny grammy (N/A, 02/02/2026 00:26 Lima)
 
 - **Bad Bunny gana Mejor Álbum de Música Urbana en los Grammy**: [Link](https://caretas.pe/ellosellas/bad-bunny-debi-tirar-mas-fotos-mejor-album-musica-urbana-grammy-2026/)
@@ -1028,12 +1035,5 @@ defender for his squad**: [Link](https://www.vavel.com/en/football/2026/01/31/ar
 - **JNE tomaría como base debate de Costa Rica**: [Link](https://diariocorreo.pe/politica/jne-tomaria-como-base-debate-presidencial-de-costa-rica-peru-elecciones-generales-2026-noticia/)
 - **🔴🔵 El presidente del Jurado Nacional de Elecciones (JNE), Roberto Burneo, estimó que el debate presidencial se realizará entre el 23 y 30 de marzo. "Va a ser antes de Semana Santa", precisó. 🌐Más información en: https://www.exitosanoticias.pe**: [Link](https://www.facebook.com/Exitosanoticias/posts/-el-presidente-del-jurado-nacional-de-elecciones-jne-roberto-burneo-estim%C3%B3-que-e/1333856765444045/)
 - **Con aporte de organismos internacionales JNE fortalece metodología de debates presidenciales**: [Link](https://elperuano.pe/noticia/288074-con-aporte-de-organismos-internacionales-jne-fortalece-metodologia-de-debates-presidenciales)
-
-
-### votaciones (N/A, 30/01/2026 00:11 Lima)
-
-- **Cómo consultar si fue elegido jurado de votación para las elecciones del 8 de marzo**: [Link](https://elpais.com/america-colombia/2026-01-27/como-consultar-si-fue-elegido-jurado-de-votacion-para-las-elecciones-del-8-de-marzo.html)
-- **860 mil jurados atenderán 126.000 mesas de votación**: [Link](https://www.diariodelcesar.com/archivos/333557/tarifas-de-gas-podrian-subir-este-ano-entre-25-y-el-32/)
-- **Esta figura, poco conocida para muchos ciudadanos, cumple un papel clave para que las mesas de votación puedan abrir a tiempo y el proceso electoral no se vea afectado por ausencias de último momento**: [Link](https://www.facebook.com/infobaecolombia/posts/esta-figura-poco-conocida-para-muchos-ciudadanos-cumple-un-papel-clave-para-que-/1337502065059219/)
 
 
