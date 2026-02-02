@@ -1,3 +1,73 @@
+### kocaelispor - fenerbahçe (N/A, 02/02/2026 11:49 Lima)
+
+- **Fenerbahçe'de Edson Alvarez 10 maç sonra ilk 11'de başlıyor**: [Link](https://www.yenicaggazetesi.com/fenerbahcede-edson-alvarez-10-mac-sonra-ilk-11de-basliyor-997677h.htm)
+- **Kocaelispor Fenerbahçe maçında sıcak gelişme...**: [Link](https://www.ulketv.com/kocaelispor-fenerbahce-macinda-sicak-gelisme)
+- **Fenerbahçe, Kocaeli'de Taraftara Sarı Bere Dağıttı**: [Link](https://www.sondakika.com/haber/haber-fenerbahce-kocaeli-de-taraftara-sari-bere-dagitti-19529783/)
+
+
+### fc koln (N/A, 02/02/2026 11:49 Lima)
+
+- **Report: Bayern Munich’s Felipe Chávez headed to FC Köln**: [Link](https://sports.yahoo.com/articles/report-bayern-munich-felipe-ch-153512662.html)
+- **Deal on deadline day! Bayern release next player**: [Link](https://fcbinside.com/2026/02/02/deal-on-deadline-day-bayern-release-next-player/)
+- **Köln set to sign Bayern youngster**: [Link](https://bulinews.com/koln-set-sign-bayern-youngster)
+
+
+### primera división de arabia saudita (N/A, 02/02/2026 11:49 Lima)
+
+- **Cristiano mantiene el órdago y se niega a jugar**: [Link](https://as.com/futbol/internacional/ordago-de-cristiano-no-juega-con-al-nassr-f202602-n/)
+- **Impensado escándalo con Cristiano Ronaldo en Arabia Saudita: el motivo por el que decidió negarse a jugar**: [Link](https://www.infobae.com/deportes/2026/02/02/impensado-escandalo-con-cristiano-ronaldo-en-arabia-saudita-el-motivo-por-el-que-decidio-negarse-a-jugar/)
+- **Los motivos que se esconden detrás de las 'rebeliones' de Cristiano y Benzema en Arabia**: [Link](https://www.marca.com/futbol/2026/02/02/motivos-esconden-detras-rebeliones-cristiano-benzema-arabia.html)
+
+
+### al nassr vs (N/A, 02/02/2026 11:49 Lima)
+
+- **Al Nassr vs Al Riyadh EN VIVO por la Liga Profesional Saudí: comienza el partido**: [Link](https://larepublica.pe/deportes/2026/02/01/al-nassr-vs-al-riyadh-en-vivo-liga-profesional-saudi-2026-con-cristiano-ronaldo-78960)
+- **Con gol de ‘CR7’: Al Nassr venció 3-0 a Al Kholood por la Saudí Pro League | RESUMEN Y GOLES**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/al-nassr-vs-al-kholood-en-vivo-gratis-hoy-con-cristiano-ronaldo-horarios-canales-tv-y-donde-ver-partido-por-saudi-pro-league-video-noticia/)
+- **Al Nassr vs Al Riyadh EN VIVO por la Liga Profesional Saudí: TRANSMISIÓN del partido**: [Link](https://libero.pe/futbol-internacional/2026/02/02/nassr-vs-riyadh-en-vivo-gratis-cristiano-ronaldo-liga-profesional-saudi-via-thmanyah-video-90454)
+
+
+### felipe chavez (N/A, 02/02/2026 11:49 Lima)
+
+- **Felipe Chávez: El volante peruano será cedido por el Bayern Múnich a otro club de la Bundesliga**: [Link](https://www.atv.pe/noticia/felipe-chavez-el-volante-peruano-sera-cedido-por-el-bayern-munich-a-otro-club-de-la-bundesliga/)
+- **Cambio de camiseta: Felipe Chávez dejará Bayern Múnich para convertirse en jugador de Colonia**: [Link](https://rpp.pe/futbol/peruanos-en-el-mundo/felipe-chavez-dejara-bayern-munich-para-convertirse-en-jugador-de-colonia-bundesliga-noticia-1674071)
+- **Bayern Múnich cede a préstamo a Felipe Chávez al FC Colonia de Alemania**: [Link](https://andina.pe/agencia/noticia-bayern-munich-cede-a-prestamo-a-felipe-chavez-al-fc-colonia-alemania-1061571.aspx)
+
+
+### ciro castillo (N/A, 02/02/2026 11:49 Lima)
+
+- **ANGR respalda decisión judicial en caso Ciro Castillo**: [Link](https://caretas.pe/politica/angr-respalda-decision-judicial-en-caso-ciro-castillo/)
+- **El Castillo del terror en la región Callao**: [Link](https://diariouno.pe/2026/02/02/el-castillo-del-terror-en-la-region-callao/)
+- **¿Fin de la era Ciro Castillo Rojo? Consejo Regional definirá la crisis en el Callao por corrupción**: [Link](https://www.atv.pe/noticia/fin-de-la-era-ciro-castillo-rojo-consejo-regional-definira-la-crisis-en-el-callao-por-corrupcion/)
+
+
+### lima (N/A, 02/02/2026 11:49 Lima)
+
+- **Sedapal anuncia nuevo CORTE DE AGUA para hoy 2 de febrero: Estos son los distritos afectados**: [Link](https://www.exitosanoticias.pe/actualidad/sedapal-anuncia-nuevo-corte-agua-hoy-2-febrero-estos-son-distritos-afectados-n167868)
+- **Corte de agua para este 2 de febrero en Lima Metropolitana por más de 9 horas: conoce las zonas afectadas**: [Link](https://www.infobae.com/peru/2026/01/31/corte-de-agua-para-este-2-de-febrero-en-lima-metropolitana-por-mas-de-9-horas-conoce-las-zonas-afectadas/)
+- **Corte de agua en Lima hoy 01 de febrero: Distritos y horarios afectados**: [Link](https://rpp.pe/lima/obras/corte-de-agua-en-lima-hoy-01-de-febrero-distritos-y-horarios-afectados-noticia-1673954)
+
+
+### al riyadh - al-nassr (N/A, 02/02/2026 11:49 Lima)
+
+- **Cristiano Ronaldo: ‘Betrayed’ Man Utd legend ‘could leave’ and return to Europe on deadline day**: [Link](https://www.football365.com/news/cristiano-ronaldo-betrayed-man-utd-legend-leave-saudi-arabia-european-return-deadline-day)
+- **Cristiano Ronaldo's protest reportedly halts Benzema and other Saudi transfers**: [Link](https://tribuna.com/en/news/2026-02-02-cristiano-ronaldos-protest-halts-benzema-and-other-saudi-transfers/)
+- **Ronaldo sits out for Al-Nassr amid tension with PIF ownership**: [Link](https://www.cbssports.com/soccer/news/cristiano-ronaldo-frustrations-with-saudis-pif-ownership-lead-to-star-striker-missing-al-nassr-lineup/)
+
+
+### precio oro (N/A, 02/02/2026 11:49 Lima)
+
+- **Por qué el oro y la plata baten récords tras el mensaje de Powell sobre la Reserva Federal**: [Link](https://es.euronews.com/business/2026/01/29/el-oro-supera-los-5500-dolares-la-plata-sube-powell-resta-importancia-al-repunte-de-los-me)
+- **La nominación a la Fed pincha la fiebre del oro, que cae hasta un 20% en dos jornadas**: [Link](https://cincodias.elpais.com/mercados-financieros/2026-02-02/el-oro-y-la-plata-se-desfondan-y-se-alejan-de-los-maximos-historicos.html)
+- **Oro y plata amplían pérdidas tras un desplome histórico de los metales | MUNDO**: [Link](https://gestion.pe/mundo/internacional/oro-y-plata-amplian-perdidas-tras-un-desplome-historico-de-los-metales-noticia/)
+
+
+### liga peruana de vóley alianza lima (N/A, 02/02/2026 11:49 Lima)
+
+- **Alianza Lima 3-2 San Martín: resumen del triunfazo ‘blanquiazul’ por la fecha 4 de la Liga Peruana de Vóley 2025/26**: [Link](https://www.infobae.com/peru/deportes/2026/02/01/alianza-lima-vs-san-martin-en-vivo-hoy-latina-tv-fecha-4-fase-2-liga-peruana-de-voley-2025-2026-resumen-resultado/)
+- **Tabla de la Liga Peruana de Vóley 2026: partidos de hoy por la fecha 4 de la segunda etapa y resultados**: [Link](https://larepublica.pe/deportes/2026/01/30/tabla-de-la-liga-peruana-de-voley-2026-posiciones-y-partidos-de-hoy-por-la-fecha-4-de-la-segunda-etapa-1924500)
+- **Con la 'U' como líder, conoce resultados y cómo quedó la tabla tras la 4ta. fecha de la Liga Peruana de Vóley**: [Link](https://ovacion.pe/noticias/voley-apuesta-total/u-lider-conoce-resultados-quedo-tabla-tras-4ta-fecha-liga-peruana)
+
+
 ### nuggets - thunder (N/A, 02/02/2026 08:13 Lima)
 
 - **Nikola Jokic and Jamal Murray are good to go tonight …**: [Link](https://sports.yahoo.com/articles/nikola-jokic-jamal-murray-good-024655842.html)
@@ -965,75 +1035,5 @@ defender for his squad**: [Link](https://www.vavel.com/en/football/2026/01/31/ar
 - **Tottus Perú redefine su liderazgo y nombra a Denise Labarthe como gerente general**: [Link](https://www.expreso.com.pe/economia/tottus-peru-redefine-su-liderazgo-y-nombra-a-denise-labarthe-como-gerente-general-comercio-electronico-retail-expansion-noticia/1259792/)
 - **Tottus cambia de mando en Perú con una nueva gerente general**: [Link](https://www.justretail.news/latam/noticias/tottus-cambia-de-mando-en-peru-con-una-nueva-gerente-general/)
 - **Denise Labarthe es nombrada nueva gerente general de Tottus Perú**: [Link](https://lacamara.pe/denise-labarthe-es-nueva-gerente-general-de-tottus-ccl-asociados-camara-de-comercio-de-lima/?print=print)
-
-
-### cuanto es la multa por no votar (N/A, 30/01/2026 11:47 Lima)
-
-- **¿Cuánto es la multa que debo pagaré si no cumplo como miembro de mesa?**: [Link](https://gestion.pe/mix/respuestas/cuanto-es-la-multa-que-debo-pagar-si-no-cumplo-como-miembro-de-mesa-nnda-nnrt-noticia/)
-- **Multas en las Elecciones 2026: Todas las sanciones económicas que el JNE impondrá**: [Link](https://www.infobae.com/peru/2026/01/30/multas-en-las-elecciones-2026-todas-las-sanciones-economicas-que-el-jne-impondra/)
-- **Elecciones 2026: JNE explica diferencias entre encuestas electorales y sondeos de opinión**: [Link](https://andina.pe/agencia/noticia-elecciones-2026-jne-explica-diferencias-entre-encuestas-electorales-y-sondeos-opinion-1060636.aspx)
-
-
-### explosión volcán sabancaya (N/A, 30/01/2026 08:08 Lima)
-
-- **Arequipa: condiciones climatológicas evitan mayor dispersión de ceniza de volcán Sabancaya**: [Link](https://andina.pe/agencia/noticia-arequipa-condiciones-climatologicas-evitan-mayor-dispersion-ceniza-volcan-sabancaya-1061273.aspx)
-- **Volcán Sabancaya registró explosión de cenizas que alcanzó 3.400 metro de altura y genera alerta naranja en Arequipa, según IGP**: [Link](https://larepublica.pe/sociedad/2026/01/29/volcan-sabancaya-registro-explosion-de-cenizas-que-alcanzo-3400-metro-de-altura-y-genera-alerta-naranja-en-arequipa-segun-igp-1105306)
-- **Alerta en Arequipa: Volcán Sabancaya vuelve a expulsar cenizas y pone en riesgo a poblaciones**: [Link](https://diariocorreo.pe/edicion/arequipa/alerta-en-arequipa-sabancaya-expulsa-cenizas-y-pone-en-riesgo-a-poblaciones-noticia/)
-
-
-### play off champions league (N/A, 30/01/2026 08:08 Lima)
-
-- **Champions League draw: Newcastle to face Qarabag; Real to face Mourinho's Benfica**: [Link](https://www.bbc.com/sport/football/live/cdjnk8re7e7t)
-- **The Daily Zona Mista: Friday, Jan. 30**: [Link](https://sports.yahoo.com/articles/daily-zona-mista-friday-jan-105500597.html)
-- **UEFA Champions League: The playoff matchups are set! (Official)**: [Link](https://foot-africa.com/en/news/uefa-champions-league-the-playoff-matchups-are-set-official-1064822/)
-
-
-### uefa (N/A, 30/01/2026 08:08 Lima)
-
-- **UEFA Avrupa Ligi'nde kuralar çekildi! Fenerbahçe'nin Play-Off rakibi belli oldu**: [Link](https://www.hurriyet.com.tr/sporarena/live-uefa-avrupa-liginde-kuralar-cekildi-fenerbahcenin-play-off-rakibi-belli-oldu-43096237)
-- **İsmail Yüksek: 'Bu oyun bize yakışmadı'**: [Link](https://www.msn.com/tr-tr/spor/other/%C4%B0smail-y%C3%BCksek-bu-oyun-bize-yak%C4%B1%C5%9Fmad%C4%B1/ar-AA1Vhrzj?cvid=697ca138c6fa47b681dac2fe7670ea06&ocid=winp2fp)
-- **Fenerbahçe taraftarı yıldız isim için ''O olmasaydı maç farka giderdi'' diyor**: [Link](https://www.sondakika.com/amp/haber-fenerbahce-taraftari-yildiz-isim-icin-o-19517619/)
-
-
-### novak djokovic (N/A, 30/01/2026 08:08 Lima)
-
-- **Australian Open 2026 semi-finals LIVE: Jannik Sinner vs Novak Djokovic - scores, radio & updates**: [Link](https://www.bbc.com/sport/tennis/live/c3dnjg02mn8t)
-- **Sinner leads rival Djokovic as Alcaraz awaits in Australian Open final**: [Link](https://www.msn.com/en-gb/sport/tennis/djokovic-challenges-sinner-as-alcaraz-awaits-in-australian-open-final/ar-AA1VjFeS)
-- **Sinner Shines Against Djokovic in Australian Open 2026 Semifinal, Albanese Attends**: [Link](https://www.filmogaz.com/124822)
-
-
-### jannik sinner (N/A, 30/01/2026 08:08 Lima)
-
-- **LIVE Sinner-Djokovic 6-3 1-2: senza break nel secondo set**: [Link](https://www.gazzetta.it/Tennis/atp/slam/australian-open/30-01-2026/sinner-djokovic-live-semifinale-australian-open-diretta.shtml)
-- **Sinner rimette la testa avanti; Jannik in vantaggio 2 set a 1 nella semifinale con Djokovic**: [Link](https://tennismagazineitalia.it/news/sinner-rimette-la-testa-avanti-jannik-in-vantaggio-2-set-a-1-nella-semifinale-con-djokovic/)
-- **Sinner a caccia della terza finale in Australia: sulla sua strada c’è il Djoker**: [Link](https://www.altoadige.it/sport/sinner-a-caccia-della-terza-finale-in-australia-sulla-sua-strada-c-%C3%A8-il-djoker-1.4280390)
-
-
-### video de la cantante de explosión de iquitos (N/A, 30/01/2026 08:08 Lima)
-
-- **Caso de difusión de video íntimo es un delito criminal**: [Link](https://diariolaregion.com/caso-de-difusion-de-video-intimo-es-un-delito-criminal/)
-- **¿Quién es Marilya Gonzales, la figura principal de la orquesta Explosión de Iquitos?**: [Link](https://www.infobae.com/peru/2026/01/29/quien-es-marilya-gonzales-la-cantante-de-explosion-de-iquitos-que-se-volvio-tendencia-por-un-supuesto-video-intimo/)
-- **Marilya Gonzales video viral de la cantante de Explosión de Iquitos en Telegram y Twitter**: [Link](https://www.televicentro.com/marilya-gonzales-video-viral-de-la-cantante-de-explosion-de-iquitos-en-telegram-y-twitter-2026-01-29)
-
-
-### australian open 2026 (N/A, 30/01/2026 08:08 Lima)
-
-- **Australian Open prize money breakdown: How much will the winners make from 2026 purse?**: [Link](https://sports.yahoo.com/articles/australian-open-prize-money-breakdown-060001167.html)
-- **2026 Australian Open prize money payouts for every winner**: [Link](https://ftw.usatoday.com/story/sports/tennis/2026/01/30/australian-open-2026-payouts-prize-money-women-men/88416902007/)
-- **Australian Open Prize Money Boosts Champions and Semi-Finalists Significantly**: [Link](https://news.ssbcrack.com/australian-open-prize-money-boosts-champions-and-semi-finalists-significantly/)
-
-
-### sorteo champions (N/A, 30/01/2026 08:08 Lima)
-
-- **Sorteo de playoffs de la Champions League 2025/2026: equipos, emparejamientos, formato, hora y cómo ver por TV e internet**: [Link](https://cnnespanol.cnn.com/2026/01/29/deportes/sorteo-playoffs-champions-league-2025-2026-orix)
-- **Benfica-Real Madrid en el playoff de la Champions**: [Link](https://www.realmadrid.com/es-ES/noticias/futbol/primer-equipo/actualidad/bod-glimt-o-benfica-real-madrid-en-el-playoff-de-la-champions-30-01-2026)
-- **Así te hemos contado el sorteo de la ronda de dieciseisavos de la Champions League**: [Link](https://elpais.com/deportes/futbol/2026-01-30/sorteo-de-la-champions-league-equipos-partidos-y-cruces-de-los-dieciseisavos-de-final.html)
-
-
-### australia open (N/A, 30/01/2026 03:49 Lima)
-
-- **Tennis world loses it over Aussie duo after matching 62yo feat and winning $900K**: [Link](https://au.news.yahoo.com/tennis-world-loses-it-as-aussies-match-62-year-old-margaret-court-feat-and-win-900000-041736248.html)
-- **Aussie Mixed Doubles Team Nears End of 37-Year Title Drought**: [Link](https://www.filmogaz.com/124343)
-- **Australian Open: Defending Champs Gadecki/Peers Rally Past Mladenovic/Guinard in Super Tie-Break Thriller**: [Link](https://en.tennistemple.com/actu/australian-open-defending-champs-gadecki/SRd8)
 
 
