@@ -1,3 +1,73 @@
+### bad bunny grammy (N/A, 02/02/2026 00:26 Lima)
+
+- **Bad Bunny gana Mejor Álbum de Música Urbana en los Grammy**: [Link](https://caretas.pe/ellosellas/bad-bunny-debi-tirar-mas-fotos-mejor-album-musica-urbana-grammy-2026/)
+- **Bad Bunny arremete contra el ICE en los Grammy 2026: "No somos salvajes, somos humanos"**: [Link](https://rpp.pe/musica/internacional/grammy-2026-bad-bunny-arremete-contra-el-ice-durante-discurso-noticia-1674020)
+- **Bad Bunny listo para hacer historia en los Grammys y en el Super Bowl de EE.UU.**: [Link](https://peru21.pe/celebridades/bad-bunny-listo-para-hacer-historia-en-los-grammys-y-en-el-super-bowl-de-eeuu/)
+
+
+### cher (N/A, 02/02/2026 00:26 Lima)
+
+- **Kendrick Lamar Becomes Most Awarded Rapper in Grammy History**: [Link](https://uz.kursiv.media/en/2026-02-02/kendrick-lamar-becomes-most-awarded-rapper-in-grammy-history/)
+- **SZA Makes a Last-Minute Appearance at the Grammys in a Plunging Floral Dress**: [Link](https://www.harpersbazaar.com/celebrity/latest/a70209352/sza-2026-grammys-outfit-photos/)
+- **Moment Cher accidentally announces name of dead artist for Record of the Year instead of winner**: [Link](https://www.unilad.com/music/news/cher-grammys-mistake-record-of-the-year-kendrick-lamar-750788-20260202)
+
+
+### tabaco marino (N/A, 02/02/2026 00:26 Lima)
+
+- **🔴🔵 El Poder Judicial dictó nueve meses de prisión preventiva en contra de dos sujetos imputados por la explosión de dinamita a exteriores de la discoteca Luxor en Trujillo.**: [Link](https://www.facebook.com/Exitosanoticias/posts/-el-poder-judicial-dict%C3%B3-nueve-meses-de-prisi%C3%B3n-preventiva-en-contra-de-dos-suje/1334889982007390/)
+- **Caen “Jeffrey” y “Chorry”: implicados en atentado a discoteca de Trujillo y confiesan otros cinco ataques previos**: [Link](https://www.infobae.com/peru/2026/01/29/caen-jeffrey-y-chorry-implicados-en-atentado-a-discoteca-de-trujillo-y-confiesan-otros-cinco-ataques-previos/)
+- **Explosivos por control remoto: la nueva amenaza que sacude Trujillo | PASÓ EN EL PERÚ (VIDEO)**: [Link](https://elbuho.pe/2026/01/explosivos-por-control-remoto-la-nueva-amenaza-que-sacude-trujillo-paso-en-el-peru-video/)
+
+
+### el caballero de los siete reinos capitulo 3 (N/A, 02/02/2026 00:26 Lima)
+
+- **“A Knight of the Seven Kingdoms” Capítulo 3: Hora de estreno confirmado en HBO Max**: [Link](https://elcomercio.pe/respuestas/farandula/a-knight-of-the-seven-kingdoms-capitulo-3-hora-de-estreno-confirmado-hbo-max-game-of-thrones-tdpe-noticia/)
+- **Es oficial: la nueva serie de 'Juego de tronos' aspira a durar décadas y el creador de la serie revela su épico plan en HBO Max**: [Link](https://vandal.elespanol.com/random/la-nueva-serie-de-juego-de-tronos-aspira-a-durar-decadas-la-creadora-de-la-serie-revela-su-ambicioso-y-epico-plan-en-hbo-max/39701.html)
+- **Los 5 personajes esenciales de ‘El caballero de los Siete Reinos’**: [Link](https://hipertextual.com/cine-television/los-5-personajes-esenciales-de-el-caballero-de-los-siete-reinos/)
+
+
+### ozzy osbourne (N/A, 02/02/2026 00:26 Lima)
+
+- **Sharon, Kelly and Jack Osbourne reflect on Ozzy Osbourne's legacy at the Grammys**: [Link](https://abcnews.go.com/GMA/Culture/sharon-kelly-jack-osbourne-reflect-ozzy-osbournes-legacy/story?id=129767625)
+- **Grammys 2026: Grammys celebrate Ozzy Osbourne with musical tribute**: [Link](https://www.yahoo.com/entertainment/music/articles/grammys-2026-grammys-celebrate-ozzy-044500896.html)
+- **Kelly Osbourne Admits She's "Not Doing So Great" at Grammys 2026**: [Link](https://www.eonline.com/news/1426849/grammys-2026-kelly-osbourne-not-doing-great-after-ozzy-osbourne-death)
+
+
+### roberto chiabra (N/A, 02/02/2026 00:26 Lima)
+
+- **Elecciones 2026: Roberto Chiabra plantea estados de emergencia focalizados y allanamientos**: [Link](https://andina.pe/agencia/noticia-elecciones-2026-roberto-chiabra-plantea-estados-emergencia-focalizados-y-allanamientos-1061536.aspx)
+- **Roberto Chiabra: "Pena de muerte es una medida populista que no se va a cumplir"**: [Link](https://larepublica.pe/politica/2026/01/29/roberto-chiabra-pena-de-muerte-es-una-medida-populista-que-no-se-va-a-cumplir-hnews-1174123)
+- **Chiabra descarta la pena de muerte en Perú y advierte sobre discursos inviables en seguridad ciudadana**: [Link](https://larazon.pe/chiabra-descarta-la-pena-de-muerte-en-peru-y-advierte-sobre-discursos-inviables-en-seguridad-ciudadana/)
+
+
+### thunder - nuggets (N/A, 02/02/2026 00:26 Lima)
+
+- **Nuggets host Thunder on Sunday**: [Link](https://www.nba.com/nuggets/news/nuggets-host-thunder-on-sunday)
+- **Nikola Jokic and Jamal Murray are good to go tonight …**: [Link](https://www.hoopshype.com/story/sports/nba/rumors/2026/02/01/nikola-jokic-and-jamal-murray-are-good-to-go-tonight/88469158007/)
+- **theScore Bet bonus code NPNEWS: Bet $10, get $100 in bonus bets for Thunder vs. Nuggets**: [Link](https://nypost.com/2026/02/01/betting/thescore-bet-bonus-code-npnews-bet-10-get-100-in-bonus-bets-for-thunder-vs-nuggets/)
+
+
+### pharrell williams (N/A, 02/02/2026 00:26 Lima)
+
+- **Clipse Win Best Rap Performance for “Chains & Whips” at 2026 Grammys**: [Link](https://pitchfork.com/news/clipse-win-best-rap-performance-for-chains-and-whips-at-2026-grammys/)
+- **Clipse, Pharrell Williams Make It Snow During Heavenly Grammys Performance**: [Link](https://www.rollingstone.com/music/music-news/clipse-pharrell-williams-2026-grammys-performance-1235508163/)
+- **Watch Clipse's Powerful "The Birds Don't Sing" Performance and Learn the Song's Meaning**: [Link](https://www.nbc.com/nbc-insider/watch-clipse-perform-the-birds-dont-sing-what-is-song-about)
+
+
+### tyler the creator (N/A, 02/02/2026 00:26 Lima)
+
+- **Tyler, The Creator Meshes ‘Chromakopia’ & ‘Don’t Tap the Glass’ for Explosive Grammys Performance With Regina King**: [Link](https://www.yahoo.com/entertainment/music/articles/tyler-creator-meshes-chromakopia-don-042556513.html)
+- **Tyler, The Creator Hits Person With Car During Grammys Performance With Regina King Cameo**: [Link](https://www.hollywoodreporter.com/music/music-news/tyler-the-creator-hits-person-car-2026-grammys-performance-1236492179/)
+- **Watch Tyler, the Creator Perform at 2026 Grammys**: [Link](https://pitchfork.com/news/watch-tyler-the-creator-perform-at-2026-grammys/)
+
+
+### keiko fujimori (N/A, 02/02/2026 00:26 Lima)
+
+- **Keiko Fujimori: ¿quiénes integran su círculo confianza en su cuarta elección presidencial? | tlc nota | POLITICA**: [Link](https://elcomercio.pe/politica/keiko-fujimori-quienes-integran-su-circulo-confianza-en-su-cuarta-eleccion-presidencial-tlc-nota-noticia/)
+- **Candidatos presidenciales Keiko Fujimori, Rafael López Aliaga y Enrique Valderrama plantean ponerle fin al colapso de Petroperú**: [Link](https://www.expreso.com.pe/politica/candidatos-presidenciales-keiko-fujimori-rafael-lopez-aliaga-y-enrique-valderrama-plantean-ponerle-fin-al-colapso-de-petroperu-fuerza-popular-renovacion-popular-apra-noticia/1260161/)
+- **🔴🔵#InformamosYOpinamos 🗯🗯 | La candidata presidencial por Fuerza Popular, Keiko Fujimori, propuso una alianza entre el sector público y privado para que se logre una reforma en la administración de Petroperú. "Las planillas de oro también serán revisa**: [Link](https://www.facebook.com/story.php?story_fbid=1337570831739305&id=100064592023543)
+
+
 ### ice (N/A, 01/02/2026 21:43 Lima)
 
 - **Lady Gaga actuará en los Grammy 2026 tras su discurso anti-ICE**: [Link](https://www.elpueblo.pe/entretenimiento/lady-gaga-actuara-en-los-grammy-2026-tras-su-discurso-anti-ice/236669/)
@@ -965,75 +1035,5 @@ defender for his squad**: [Link](https://www.vavel.com/en/football/2026/01/31/ar
 - **Cómo consultar si fue elegido jurado de votación para las elecciones del 8 de marzo**: [Link](https://elpais.com/america-colombia/2026-01-27/como-consultar-si-fue-elegido-jurado-de-votacion-para-las-elecciones-del-8-de-marzo.html)
 - **860 mil jurados atenderán 126.000 mesas de votación**: [Link](https://www.diariodelcesar.com/archivos/333557/tarifas-de-gas-podrian-subir-este-ano-entre-25-y-el-32/)
 - **Esta figura, poco conocida para muchos ciudadanos, cumple un papel clave para que las mesas de votación puedan abrir a tiempo y el proceso electoral no se vea afectado por ausencias de último momento**: [Link](https://www.facebook.com/infobaecolombia/posts/esta-figura-poco-conocida-para-muchos-ciudadanos-cumple-un-papel-clave-para-que-/1337502065059219/)
-
-
-### lugar de votacion elecciones 2026 (N/A, 30/01/2026 00:11 Lima)
-
-- **Ese mito de los Pex más racionales y patriotas… Aldo Mariátegui**: [Link](https://peru21.pe/opinion/ese-mito-de-los-pex-mas-racionales-y-patriotas-aldo-mariategui/)
-- **Cancillería habilita plataforma digital para el voto en el exterior en las Elecciones 2026**: [Link](https://caretas.pe/nacional/cancilleria-habilita-plataforma-digital-para-el-voto-en-el-exterior-en-las-elecciones-2026/)
-- **Elecciones 2026: A inicios de febrero se conocerán los locales de votación para peruanos en el extranjero, anunció la Cancillería**: [Link](https://rpp.pe/peru/actualidad/elecciones-2026-a-inicios-de-febrero-se-conoceran-los-locales-de-votacion-para-peruanos-en-el-extranjero-anuncio-la-cancilleria-noticia-1673457)
-
-
-### dni (N/A, 30/01/2026 00:11 Lima)
-
-- **Początek 29.01. Za 1 grosz w Lidlu. Tylko 2 opak. na paragon**: [Link](https://biznes.o2.pl/biznes/poczatek-29-01-za-1-grosz-w-lidlu-tylko-2-opak-na-paragon-7248565041547584a)
-- **Gadżety do kuchni za grosze w Lidlu. Ostatnia taka promocja w styczniu**: [Link](https://www.komputerswiat.pl/dom/agd/lidl-z-mocna-promocja-pod-koniec-stycznia-air-fryer-od-znanego-producenta/r6pw8vg)
-- **Nowa gazetka Lidla. 50 proc. taniej przez 2 dni na ten hit**: [Link](https://odzywianie.wprost.pl/produkty/12236649/nowa-gazetka-lidla-50-proc-taniej-przez-2-dni-na-ten-hit.html)
-
-
-### candidatos presidenciales 2026 (N/A, 30/01/2026 00:11 Lima)
-
-- **Elecciones 2026: conozca las 36 planchas presidenciales inscritas para comicios del 12 abril**: [Link](https://gestion.pe/peru/politica/elecciones-2026-conozca-las-36-planchas-presidenciales-inscritas-para-comicios-del-12-abril-noticia/)
-- **Los próximos hitos electorales**: [Link](https://elperuano.pe/noticia/288131-los-proximos-hitos-electorales)
-- **EP235 | INFORMES | Elecciones 2026: 36 candidatos presidenciales quedaron inscritos para competir**: [Link](https://rpp.pe/audio/podcast/elpoderentusmanos/ep235-informes-elecciones-2026-36-candidatos-presidenciales-quedaron-inscritos-para-competir-23436)
-
-
-### onp (N/A, 30/01/2026 00:11 Lima)
-
-- **Aumento a pensionistas ONP 2026: conoce aquí el cronograma de pagos de febrero**: [Link](https://andina.pe/agencia/noticia-aumento-a-pensionistas-onp-2026-conoce-aqui-cronograma-pagos-febrero-1057452.aspx)
-- **Aumentan pensiones de la ONP en 2026: conoce el cronograma de pagos de febrero**: [Link](https://peru21.pe/economia/aumentan-pensiones-de-la-onp-en-2026-cronograma-de-pagos-de-febrero/)
-- **Pago de pensión ONP vendrá con aumento desde febrero e incluirá monto pendiente de enero**: [Link](https://www.infobae.com/peru/2026/01/29/pago-de-pension-onp-vendra-con-aumento-desde-febrero-e-incluira-monto-pendiente-de-enero/)
-
-
-### lugar de votación (N/A, 30/01/2026 00:11 Lima)
-
-- **ONPE inició envío de correos con tu local de votación asignado para las Elecciones 2026**: [Link](https://www.infobae.com/peru/2026/01/25/onpe-inicio-envio-de-correos-con-tu-local-de-votacion-asignado-para-las-elecciones-2026/)
-- **Elecciones Generales 2026: así puedes verificar tu local de votación asignado por la ONPE**: [Link](https://larepublica.pe/politica/2026/01/26/elecciones-2026-asi-puedes-verificar-tu-local-de-votacion-asignado-por-la-onpe-hnews-422838)
-- **Elecciones 2026: Ciudadanos ya reciben correos con local de votación asignado**: [Link](https://diariocorreo.pe/politica/elecciones-2026-electores-ya-reciben-correos-con-local-de-votacion-asignado-noticia/)
-
-
-### clima lima (N/A, 29/01/2026 21:33 Lima)
-
-- **¡Lima es un horno! La capital soportó el día más caluroso del verano según Senamhi**: [Link](https://peru21.pe/lima/la-capital-soporto-el-dia-mas-caluroso-del-verano-segun-senamhi/)
-- **SENAMHI: Pronóstico del clima hoy jueves 29 de enero 2026**: [Link](https://rpp.pe/peru/actualidad/senamhi-pronostico-del-clima-hoy-jueves-29-de-enero-2026-noticia-1673509)
-- **Lima registró la temperatura más alta del verano 2026: llegó a 32.6°C**: [Link](https://andina.pe/agencia/noticia-lima-registro-temperatura-mas-alta-del-verano-2026-llego-a-326%C2%B0c-1060887.aspx)
-
-
-### open (N/A, 29/01/2026 21:33 Lima)
-
-- **Australian Open live: Alcaraz-Zverev, Sinner-Djokovic in semis; Raducanu splits with eighth coach in five years**: [Link](https://www.espn.com/tennis/story/_/id/47771423/australian-open-2026-live-updates-match-schedule-results-men-semifinals-alcaraz-zverev-sinner-djokovic)
-- **Tennis expert reveals Australian Open men's semifinal picks, bets, predictions**: [Link](https://www.cbssports.com/tennis/news/2026-australian-open-mens-semifinal-picks-best-bets-odds-sinner-alcaraz-zverev-over-35-5/)
-- **Carlos Alcaraz vs. Alexander Zverev: Australian Open semifinal preview and pick**: [Link](https://www.tennis.com/news/articles/carlos-alcaraz-alexander-zverev-australian-open-semifinal-preview-pick)
-
-
-### argentinos juniors vs (N/A, 29/01/2026 21:33 Lima)
-
-- **Cuándo juegan Estudiantes RC vs Argentinos Juniors por el Torneo Apertura 2026: equipo, fecha, hora y TV en vivo**: [Link](https://espndeportes.espn.com/futbol/argentina/nota/_/id/16237230/estudiantes-rc-vs-argentinos-juniors-por-el-torneo-apertura-2026-equipo-fecha-hora-y-tv-en-vivo)
-- **En fotos: la ilusión de hinchas del León del Imperio en la vuelta a Primera**: [Link](https://www.cadena3.com/noticia/futbol/en-fotos-la-ilusion-de-hinchas-del-leon-del-imperio-en-la-vuelta-a-primera_514065)
-- **Sarmiento - Banfield en directo - Primera A: Resultados y resúmenes de Fútbol - 30/01/2026**: [Link](https://www.eurosport.es/futbol/primera-a/2026/live-sarmiento-banfield_mtc1656494/live.shtml)
-
-
-### sarmiento vs banfield (N/A, 29/01/2026 21:33 Lima)
-
-- **Polémica en Junín: penal y roja para Banfield, con cambio de tarjeta y pese al llamado del VAR, y gol de Sarmiento**: [Link](https://www.espn.com.ar/futbol/argentina/nota/_/id/16246409/video-polemica-junin-penal-roja-banfield-gol-sarmiento)
-- **Sarmiento busca revancha ante Banfield en un duelo clave por los promedios**: [Link](https://www.lt10.com.ar/noticia/488046--sarmiento-busca-revancha-ante-banfield-en-un-duelo-clave-por-los-promedios&seccion=futbol)
-- **Sarmiento vs Banfield, por el Torneo Apertura EN VIVO: minuto en minuto, en directo**: [Link](https://www.clarin.com/deportes/sarmiento-vs-banfield-torneo-apertura-vivo-hora-probables-formaciones-ver-directo_0_bBLQIhqZv1.html)
-
-
-### movistar tv (N/A, 29/01/2026 21:33 Lima)
-
-- **¡Confirmado! Movistar anuncia que transmitirá los partidos de la Liga 1: conozca los detalles**: [Link](https://elcomercio.pe/economia/partidos-de-la-liga-1-se-trasmitiran-en-movistar-tv-este-2026-ultimas-noticia/)
-- **Programación televisiva de la fecha 1 del Torneo Apertura de la Liga 1 2026: así se transmitirán todos los partidos por L1 Max**: [Link](https://www.infobae.com/peru/deportes/2026/01/28/programacion-televisiva-de-la-fecha-1-del-torneo-apertura-de-la-liga-1-2026-asi-se-transmitiran-todos-los-partidos-por-l1-max/)
-- **Vuelve la Liga 1 y L1MAX inicia una temporada recargada con todos los partidos y más contenidos originales**: [Link](https://depor.com/futbol-peruano/descentralizado/vuelve-la-liga-1-y-l1max-inicia-una-temporada-recargada-con-todos-los-partidos-y-mas-contenidos-originales-noticia/)
 
 
