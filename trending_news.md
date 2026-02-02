@@ -1,3 +1,45 @@
+### nuggets - thunder (N/A, 02/02/2026 08:13 Lima)
+
+- **Nikola Jokic and Jamal Murray are good to go tonight …**: [Link](https://sports.yahoo.com/articles/nikola-jokic-jamal-murray-good-024655842.html)
+- **Game Thread: Denver Nuggets vs Oklahoma City Thunder. February 1st, 2026.**: [Link](https://bvmsports.com/2026/02/01/game-thread-denver-nuggets-vs-oklahoma-city-thunder-february-1st-2026/)
+- **Highlights From Shai Gilgeous-Alexander 34-Point Game**: [Link](https://www.nba.com/watch/video/highlights-from-shai-gilgeous-alexander-34-point-game-2)
+
+
+### weather (N/A, 02/02/2026 08:13 Lima)
+
+- **First Alert: Warmer Days Ahead—Rain Chances Return Tuesday Night**: [Link](https://www.wsfa.com/2026/02/02/first-alert-warmer-days-aheadrain-chances-return-tuesday-night/)
+- **Cold snap finally ending ahead of midweek rain chances**: [Link](https://www.wtvy.com/2026/02/02/cold-snap-finally-ending-ahead-midweek-rain-chances/)
+- **Alabama’s February winter weather outlook: Is a warmup coming or are we in for snow?**: [Link](https://www.al.com/weather/2026/02/alabamas-february-winter-weather-outlook-is-a-warmup-coming-or-are-we-in-for-snow.html)
+
+
+### precio del oro (N/A, 02/02/2026 08:13 Lima)
+
+- **La producción de oro se estanca pese a la arrolladora demanda de los inversores**: [Link](https://elpais.com/economia/2026-02-02/la-produccion-de-oro-se-estanca-pese-a-la-arrolladora-demanda-de-los-inversores.html)
+- **Wall Street reacciona al nuevo rumbo de Fed: sube el dólar y cae el oro**: [Link](https://www.expreso.com.pe/economia/wall-street-reacciona-al-nuevo-rumbo-de-fed-sube-el-dolar-y-cae-el-oro-reserva-federal-de-estados-unidos-noticia/1260395/)
+- **¿Por qué ha caído en picado el precio del oro y la plata?**: [Link](https://www.msn.com/es-pe/noticias/other/por-qu%C3%A9-ha-ca%C3%ADdo-en-picado-el-precio-del-oro-y-la-plata/ar-AA1VqGDC)
+
+
+### precio dolar (N/A, 02/02/2026 08:13 Lima)
+
+- **Precio del dólar en Perú hoy, sábado 31 de enero: compra y venta del día**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-a-cuanto-esta-el-dolar-y-tipo-de-cambio-este-sabado-31-de-enero-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
+- **Sol perdió contra dólar en última sesión de enero**: [Link](https://peru21.pe/economia/sol-perdio-contra-dolar-en-ultima-sesion-de-enero/)
+- **Dólar, cotización HOY en Perú: ¿cuál es el tipo de cambio este lunes 2 de febrero de 2026?**: [Link](https://www.expreso.com.pe/economia/dolar-cotizacion-hoy-en-peru-cual-es-el-tipo-de-cambio-este-lunes-2-de-febrero-de-2026-sunat-mef-bcrp-ultima-hora-ultimo-minuto-precio-soles-divisa-noticia/1260622/)
+
+
+### luther vandross (N/A, 02/02/2026 08:13 Lima)
+
+- **Grammys 2026: Luther Vandross, Kendrick Lamar, Cher, explained**: [Link](https://mashable.com/article/grammys-cher-luther-vandross-kendrick-lamar)
+- **Cher wears a deconstructed naked dress to accept her Lifetime Achievement Award**: [Link](https://www.harpersbazaar.com/uk/fashion/a70219073/cher-2026-grammys-lifetime-achievement-award-outfit-photos/)
+- **Moment Cher accidentally announces name of dead artist for Record of the Year instead of winner**: [Link](https://www.unilad.com/music/news/cher-grammys-mistake-record-of-the-year-kendrick-lamar-750788-20260202)
+
+
+### que es ice (N/A, 02/02/2026 08:13 Lima)
+
+- **Protestas contra ICE se extendieron por EE.UU. mientras las batallas judiciales se saldaron con victorias y derrotas para Trump**: [Link](https://cnnespanol.cnn.com/2026/02/01/eeuu/protestas-ice-ee-uu-victorias-derrotas-trump-trax)
+- **Antes y después de Minneapolis**: [Link](https://elpais.com/opinion/2026-02-01/antes-y-despues-de-minneapolis.html)
+- **Por qué Trump eligió Minesota para su mayor despliegue de agentes migratorios en EE.UU.**: [Link](https://www.bbc.com/mundo/articles/c4g34q7jqd0o)
+
+
 ### cuando es el super bowl 2026 (N/A, 02/02/2026 03:52 Lima)
 
 - **¿Cómo y dónde ver a Bad Bunny en el Show de Medio Tiempo del Super Bowl 2026? | tdpe | RESPUESTAS**: [Link](https://elcomercio.pe/respuestas/mexico/como-y-donde-ver-a-bad-bunny-en-el-show-de-medio-tiempo-del-super-bowl-2026-tdpe-noticia/)
@@ -993,47 +1035,5 @@ defender for his squad**: [Link](https://www.vavel.com/en/football/2026/01/31/ar
 - **Tennis world loses it over Aussie duo after matching 62yo feat and winning $900K**: [Link](https://au.news.yahoo.com/tennis-world-loses-it-as-aussies-match-62-year-old-margaret-court-feat-and-win-900000-041736248.html)
 - **Aussie Mixed Doubles Team Nears End of 37-Year Title Drought**: [Link](https://www.filmogaz.com/124343)
 - **Australian Open: Defending Champs Gadecki/Peers Rally Past Mladenovic/Guinard in Super Tie-Break Thriller**: [Link](https://en.tennistemple.com/actu/australian-open-defending-champs-gadecki/SRd8)
-
-
-### thunder - timberwolves (N/A, 30/01/2026 03:49 Lima)
-
-- **Takeaways: Timberwolves thump NBA-best Thunder 123-111 for third victory in a row**: [Link](https://www.startribune.com/takeaways-timberwolves-thump-nba-best-thunder-123-111-for-third-victory-in-a-row/601549925)
-- **Anthony Edwards News: Turns in strong overall showing**: [Link](https://www.rotowire.com/basketball/headlines/anthony-edwards-news-turns-in-strong-overall-showing-516442)
-- **Thunder vs. Timberwolves prediction: NBA odds, picks, best bet for Thursday**: [Link](https://www.aol.com/articles/thunder-vs-timberwolves-prediction-nba-223000423.html)
-
-
-### inpe (N/A, 30/01/2026 03:49 Lima)
-
-- **Fernando Rospigliosi sobre el caso ‘El Mostruo’: “Eso demuestra que la Policía está haciendo su trabajo”**: [Link](https://comunicaciones.congreso.gob.pe/noticias/fernando-rospigliosi-sobre-el-caso-el-mostruo-eso-demuestra-que-la-policia-esta-haciendo-su-trabajo/)
-- **El “Monstruo” rapado y de blanco: ¿Bukelismo a la chalaca?**: [Link](https://caretas.pe/politica/el-monstruo-rapado-y-de-blanco-bukelismo-a-la-chalaca/)
-- **"Cristo vive", grita Erick Moreno Hernández a la prensa durante su traslado**: [Link](https://www.atv.pe/noticia/cristo-vive-grita-erick-moreno-hernandez-a-la-prensa-durante-su-traslado/)
-
-
-### alcaraz vs zverev (N/A, 30/01/2026 03:49 Lima)
-
-- **‘F***ing bulls**t’: Zverev BLOWS up at umpire after No.1’s dramatic moment rocks AO**: [Link](https://www.foxsports.com.au/tennis/australian-open-2026-alexander-zverev-rages-after-carlos-alcaraz-injury-medical-time-out-mens-singles-semi-final-reactions-latest-news/news-story/3ace4bd520dbb834e7e142ac1c6574dd)
-- **TNT Sports forced to apologise after X-rated Alexander Zverev outburst vs Carlos Alcaraz**: [Link](https://www.express.co.uk/sport/tennis/2164478/Carlos-Alcaraz-Alexander-Zverev-tennis)
-- **Cramps hinder Alcaraz’s Australian dream**: [Link](https://www.claytenis.com/features/cramps-hinder-alcarazs-australian-dream/)
-
-
-### reniec (N/A, 30/01/2026 03:49 Lima)
-
-- **Miraflores y Reniec extienden a todo febrero campaña gratuita de DNI electrónico**: [Link](https://www.miraflores.gob.pe/miraflores-y-reniec-extienden-a-todo-febrero-campana-gratuita-de-dni-electronico/)
-- **Reniec lanza campaña nacional para tramitar el DNI gratis: revisa quiénes pueden acceder y los puntos de atención en todo el Perú**: [Link](https://www.infobae.com/peru/2026/01/27/reniec-lanza-campana-nacional-para-tramitar-el-dni-gratis-revisa-quienes-pueden-acceder-y-los-puntos-de-atencion-en-todo-el-peru/)
-- **¿Eres beneficiario para el DNI electrónico gratis en 2026? revisa si figuras en la lista y cómo obtener el documento**: [Link](https://gestion.pe/mix/respuestas/eres-beneficiario-para-el-dni-electronico-gratis-en-2026-revisa-si-figuras-en-la-lista-y-como-obtener-el-documento-nnda-nnrt-noticia/)
-
-
-### alcaraz (N/A, 30/01/2026 00:11 Lima)
-
-- **Carlos Alcaraz - Alexander Zverev, en directo | semifinal del Open de Australia en vivo**: [Link](https://www.marca.com/tenis/open-australia/carlos-alcaraz-alexander-zverev/2026/01/30/04_0401_20260130_125-directo.html)
-- **Alcaraz - Zverev en directo: semifinales del Open de Australia, en vivo hoy**: [Link](https://as.com/tenis/alcaraz-zverev-en-directo-semifinales-del-open-de-australia-en-vivo-hoy-f202601-d/)
-- **La advertencia de Alcaraz a Zverev en el Australian Open 2026: "Va a tener que sudar mucho si quiere ganarme"**: [Link](https://www.espn.com.ar/tenis/nota/_/id/16240930/la-advertencia-de-alcaraz-a-zverev-en-el-australian-open-2026-va-a-tener-que-sudar-mucho-si-quiere-ganarme)
-
-
-### fecha de elecciones presidenciales 2026 (N/A, 30/01/2026 00:11 Lima)
-
-- **JNE tomaría como base debate de Costa Rica**: [Link](https://diariocorreo.pe/politica/jne-tomaria-como-base-debate-presidencial-de-costa-rica-peru-elecciones-generales-2026-noticia/)
-- **🔴🔵 El presidente del Jurado Nacional de Elecciones (JNE), Roberto Burneo, estimó que el debate presidencial se realizará entre el 23 y 30 de marzo. "Va a ser antes de Semana Santa", precisó. 🌐Más información en: https://www.exitosanoticias.pe**: [Link](https://www.facebook.com/Exitosanoticias/posts/-el-presidente-del-jurado-nacional-de-elecciones-jne-roberto-burneo-estim%C3%B3-que-e/1333856765444045/)
-- **Con aporte de organismos internacionales JNE fortalece metodología de debates presidenciales**: [Link](https://elperuano.pe/noticia/288074-con-aporte-de-organismos-internacionales-jne-fortalece-metodologia-de-debates-presidenciales)
 
 
