@@ -1,3 +1,10 @@
+### timberwolves - grizzlies (N/A, 03/02/2026 08:14 Lima)
+
+- **Anthony Edwards, Julius Randle lead Timberwolves to a 131-114 victory over the Grizzlies**: [Link](https://apnews.com/article/timberwolves-grizzlies-score-4f8b3cfe805a8ddb37d38cca408c86fa)
+- **Memphis finished strong and closed out a 137-128 win …**: [Link](https://www.hoopshype.com/story/sports/nba/rumors/2026/02/02/memphis-finished-strong-and-closed-out-a-137-128-win/88485082007/)
+- **Underdog promo code NYPOST: Play $5, get $75 in fantasy bonus entries for Timberwolves vs. Grizzlies**: [Link](https://nypost.com/2026/02/02/betting/underdog-promo-code-nypost-play-5-get-75-in-fantasy-bonus-entries-for-timberwolves-vs-grizzlies/)
+
+
 ### sorteo la tinka resultados (N/A, 03/02/2026 03:47 Lima)
 
 - **Tinka del 1 de febrero de 2026: revisa aquí los números ganadores**: [Link](https://www.infobae.com/peru/2026/02/02/resultados-de-la-tinka-numeros-ganadores-del-domingo-1-de-febrero-de-2026/)
@@ -1028,12 +1035,5 @@ defender for his squad**: [Link](https://www.vavel.com/en/football/2026/01/31/ar
 - **Oro y plata sufren mayor desplome en años tras rebote del dólar por nominación de Warsh en la Fed**: [Link](https://gestion.pe/mundo/internacional/oro-y-plata-sufren-mayor-desplome-en-anos-tras-rebote-del-dolar-por-nominacion-de-warsh-noticia/)
 - **Gold tops $5,600 per ounce as Bitcoin crashes to $84,000**: [Link](https://www.cryptopolitan.com/gold-tops-5600-per-ounce/)
 - **¿Por qué el oro superó la marca de los US$5,300 la onza?**: [Link](https://peru21.pe/economia/por-que-el-oro-supero-la-marca-de-los-us5300-la-onza/)
-
-
-### puebla - toluca (N/A, 30/01/2026 21:28 Lima)
-
-- **Liga MX: Horarios y cómo ver Jornada 4 del Clausura 2026**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/16235545/liga-mx-jornada-4-horarios-canales-torneo-clausura-2026)
-- **Liga MX: Comienza el juego por la Fecha 4 con partido entre Puebla y Toluca FC**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-comienza-el-juego-por-la-fecha-4-con-partido-entre-puebla-y-toluca-fc-noticia-1673607)
-- **Las alineaciones confirmadas de Puebla vs. Toluca por la Jornada 4 del Clausura 2026 de la Liga MX**: [Link](https://bolavip.com/mx/ligamx/las-alineaciones-de-puebla-vs-toluca-por-la-jornada-4-del-clausura-2026-de-la-liga-mx)
 
 
