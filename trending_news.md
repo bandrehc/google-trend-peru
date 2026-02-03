@@ -1,3 +1,52 @@
+### 2 de mayo (N/A, 03/02/2026 00:16 Lima)
+
+- **Alianza Lima vs 2 de Mayo EN VIVO: ¿a qué hora juegan y dónde ver la fase 1 de la Copa Libertadores?**: [Link](https://rpp.pe/futbol/copa-libertadores/alianza-lima-vs-2-de-mayo-en-vivo-a-que-hora-juegan-en-paraguay-y-como-ver-ida-fase-1-copa-libertadores-2026-via-espn-partidos-de-hoy-noticia-1674068)
+- **Alianza pone a la venta las entradas para el duelo ante 2 de Mayo por la Fase 1 de la Libertadores**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/alianza-lima-pone-a-la-venta-las-entradas-para-el-duelo-ante-sport-2-de-mayo-por-la-fase-1-de-la-libertadores-ultimas-noticia/)
+- **Presidente de 2 de mayo engrandece la inversión de Alianza Lima y la compara con la de su equipo: "Mi presupuesto es de 80 mil dólares"**: [Link](https://larepublica.pe/deportes/2026/02/02/presidente-de-2-de-mayo-engrandece-la-inversion-de-alianza-lima-y-la-compara-con-la-de-su-equipo-mi-presupuesto-es-de-80-mil-dolares-126970)
+
+
+### cotizacion del dolar hoy (N/A, 03/02/2026 00:16 Lima)
+
+- **Sol perdió contra dólar en última sesión de enero**: [Link](https://peru21.pe/economia/sol-perdio-contra-dolar-en-ultima-sesion-de-enero/)
+- **Precio del dólar en Perú hoy, sábado 31 de enero: compra y venta del día**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-a-cuanto-esta-el-dolar-y-tipo-de-cambio-este-sabado-31-de-enero-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
+- **El dólar inicia febrero con leve retroceso en el mercado cambiario**: [Link](https://caretas.pe/economia/el-dolar-inicia-febrero-con-leve-retroceso-en-el-mercado-cambiario/)
+
+
+### epstein files (N/A, 03/02/2026 00:16 Lima)
+
+- **The Government Published Dozens of Nude Photos in the Epstein Files**: [Link](https://www.nytimes.com/2026/02/01/us/nude-photos-epstein-files.html)
+- **Department of Justice Publishes 3.5 Million Responsive Pages in Compliance with the Epstein Files Transparency Act**: [Link](https://www.justice.gov/opa/video/department-justice-publishes-35-million-responsive-pages-compliance-epstein-files)
+- **Partial government shutdown to continue until at least Tuesday - live updates | CNN Politics**: [Link](https://www.cnn.com/politics/live-news/trump-administration-news-02-02-26)
+
+
+### sunat (N/A, 03/02/2026 00:16 Lima)
+
+- **Puerto de Chancay mueve carga china con destino a Chile y Colombia, perfilándose como hub portuario**: [Link](https://rpp.pe/economia/economia/puerto-de-chancay-mueve-carga-china-con-destino-a-chile-y-colombia-perfilandose-como-hub-portuario-noticia-1674095)
+- **Puerto de Chancay impulsa comercio exterior peruano**: [Link](https://americaretail-malls.com/paises/peru/puerto-de-chancay-impulsa-comercio-exterior-peruano/)
+- **Sunat recaudó más de S/ 1,037 millones en el puerto de Chancay durante 2025**: [Link](https://energiminas.com/2026/02/02/sunat-recaudo-mas-de-s-1037-millones-en-el-puerto-de-chancay-durante-2025/)
+
+
+### 76ers - clippers (N/A, 03/02/2026 00:16 Lima)
+
+- **76ers vs. Clippers Picks & Odds: February 2, 2026**: [Link](https://www.oddsshark.com/nba/76ers-clippers-picks-odds-february-2-2026)
+- **Watch Clippers vs Sixers NBA game streaming live tonight; Channel, time, odds**: [Link](https://www.oregonlive.com/tv/2026/02/watch-clippers-vs-sixers-nba-game-streaming-live-tonight-channel-time-odds.html)
+- **Is Joel Embiid playing tonight vs the Los Angeles Clippers? Latest update on the Philadelphia 76ers star'**: [Link](https://timesofindia.indiatimes.com/sports/nba/top-stories/is-joel-embiid-playing-tonight-vs-the-los-angeles-clippers-latest-update-on-the-philadelphia-76ers-stars-injury-report-february-2-2026/articleshow/127873379.cms)
+
+
+### grizzlies - timberwolves (N/A, 03/02/2026 00:16 Lima)
+
+- **Memphis finished strong and closed out a 137-128 win …**: [Link](https://uk.sports.yahoo.com/news/memphis-finished-strong-closed-137-033857469.html)
+- **Wolves Pics: Wolves Fall To Grizzlies, 137‑128 | 02.02.26**: [Link](https://www.nba.com/timberwolves/photos/wolves-pics-wolves-fall-to-grizzlies-137-128-02-02-26)
+- **Underdog promo code NYPOST: Play $5, get $75 in fantasy bonus entries for Timberwolves vs. Grizzlies**: [Link](https://nypost.com/2026/02/02/betting/underdog-promo-code-nypost-play-5-get-75-in-fantasy-bonus-entries-for-timberwolves-vs-grizzlies/)
+
+
+### argentinos juniors vs (N/A, 03/02/2026 00:16 Lima)
+
+- **Argentinos empató con Belgrano y goleó Unión: todos los partidos del lunes del Torneo Apertura**: [Link](https://www.infobae.com/deportes/2026/02/02/gimnasia-y-aldosivi-abren-la-jornada-del-lunes-por-la-fecha-3-del-torneo-apertura-hora-tv-y-posibles-formaciones/)
+- **Sin el Chino, juega el Mudo**: [Link](https://www.eldiariocba.com.ar/el-equipo/futbol/2026/2/2/sin-el-chino-juega-el-mudo-143049.html)
+- **Igualdad en casa**: [Link](https://argentinosjuniors.com.ar/noticias/futbol/igualdad-en-casa/)
+
+
 ### pedro gallese (N/A, 02/02/2026 21:39 Lima)
 
 - **Deportivo Cali informó fallecimiento de la madre de Gallese**: [Link](https://www.americatv.com.pe/deportes/futbol-mundial/deportivo-cali-informo-fallecimiento-madre-pedro-gallese-n452561?ref=portal-amtv)
@@ -986,54 +1035,5 @@ defender for his squad**: [Link](https://www.vavel.com/en/football/2026/01/31/ar
 - **Batería que dura hasta 2 días, resistencia y fotografía avanzada con IA: las características de la nueva serie Redmi Note 15 de Xiaomi**: [Link](https://elcomercio.pe/mag/data/bateria-que-dura-hasta-2-dias-resistencia-y-fotografia-avanzada-con-ia-las-caracteristicas-de-la-nueva-serie-redmi-note-15-nnda-nnni-noticia/)
 - **Xiaomi presentó su nueva serie REDMI Note 15**: [Link](https://www.expreso.com.pe/tecnologia/xiaomi-presento-su-nueva-serie-redmi-note-15-ia-noticia/1260024/)
 - **Zusette Escudero**: [Link](https://enlinea.pe/author/zusette-escudero/)
-
-
-### volcán sabancaya (N/A, 30/01/2026 21:28 Lima)
-
-- **Arequipa: condiciones climatológicas evitan mayor dispersión de ceniza de volcán Sabancaya**: [Link](https://andina.pe/agencia/noticia-arequipa-condiciones-climatologicas-evitan-mayor-dispersion-ceniza-volcan-sabancaya-1061273.aspx)
-- **Alerta en Arequipa: Volcán Sabancaya vuelve a expulsar cenizas y pone en riesgo a poblaciones**: [Link](https://diariocorreo.pe/edicion/arequipa/alerta-en-arequipa-sabancaya-expulsa-cenizas-y-pone-en-riesgo-a-poblaciones-noticia/)
-- **Continúa la alerta en el volcán Sabancaya tras nuevas explosiones**: [Link](https://diarioelpueblo.com.pe/2026/01/27/continua-la-alerta-en-el-volcan-sabancaya-tras-nuevas-explosiones/)
-
-
-### ciro castillo (N/A, 30/01/2026 21:28 Lima)
-
-- **Poder Judicial libera a Ciro Castillo y retoma su cargo en el GORE**: [Link](https://caretas.pe/politica/poder-judicial-libera-a-ciro-castillo-gobernador-del-callao-y-retoma-su-cargo/)
-- **PJ cambia prisión por comparecencia a Ciro Castillo Rojo**: [Link](https://www.americatv.com.pe/noticias/actualidad/ciro-castillo-pj-cambia-prision-preventiva-comparecencia-n515347)
-- **Poder Judicial anuló orden de prisión preventiva contra Ciro Castillo y podría volver al Gobierno Regional del Callao**: [Link](https://trome.com/actualidad/politica/ciro-castillo-poder-judicial-revoco-su-orden-de-prision-preventiva-noticia/)
-
-
-### utc cajamarca - atlético grau (N/A, 30/01/2026 15:36 Lima)
-
-- **VER, UTC vs Atlético Grau EN VIVO por la fecha 1 del Torneo Apertura 2026**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/utc-vs-atletico-grau-en-vivo-hora-canal-tv-y-donde-ver-la-fecha-1-del-torneo-apertura-2026-liga-1-video-transmision-l1-max-l1-play-tdpe-noticia/)
-- **Liga 1: Grau visita a UTC por la fecha 1**: [Link](https://rpp.pe/futbol/descentralizado/liga-1-grau-visita-a-utc-por-la-fecha-1-noticia-1673558)
-- **🔴 #ENVIVO | UTC empata 0-0 con Atlético Grau en Cajamarca**: [Link](https://ovacion.pe/noticias/liga1-2026/envivo-utc-empata-0-0-atletico-grau-cajamarca)
-
-
-### lazio vs (N/A, 30/01/2026 15:36 Lima)
-
-- **Serie A Matchday 23 Live Blog – Lazio vs Genoa**: [Link](https://ca.sports.yahoo.com/news/serie-matchday-23-live-blog-193500317.html)
-- **Sarri to Make Three Changes to Lazio Starting Lineup Against Genoa**: [Link](https://thelaziali.com/2026/01/30/sarri-to-make-three-changes-to-lazio-starting-lineup-against-genoa/)
-- **Iron defence meets leaky backline as Lazio host Genoa**: [Link](https://www.besoccer.com/new/iron-defence-meets-leaky-backline-as-lazio-host-genoa-1392146)
-
-
-### wolfsburg (N/A, 30/01/2026 15:36 Lima)
-
-- **Liveticker | 1. FC Köln - VfL Wolfsburg : | 20. Spieltag | Bundesliga 2025/26**: [Link](https://www.kicker.de/koeln-gegen-wolfsburg-2026-bundesliga-5050928/ticker)
-- **1. FC Köln Führung Archive**: [Link](https://come-on-fc.com/tag/1-fc-koeln-fuehrung/)
-- **Wolfsburg schmeißt Amoura aus dem Kader**: [Link](https://www.fussballtransfers.com/a4590615906263532671-wolfsburg-schmeisst-amoura-aus-dem-kader)
-
-
-### nac - twente (N/A, 30/01/2026 15:36 Lima)
-
-- **VI Live: spanning om te snijden in Breda, ADO wéér op achterstand**: [Link](https://www.vi.nl/nieuws/vi-live-spanning-om-te-snijden-in-breda-ado-w-r-op-achterstand)
-- **Van den Brom verklaart verrassende basisplek Verschueren: "Kan het laatste zetje zijn"**: [Link](https://www.twenteinsite.nl/fc-twente-nieuws/van-den-brom-verklaart-verrassende-basisplek-verschueren-kan-het-laatste-zetje-zijn)
-- **Unnerstall terug op doel bij Twente voor 'avondje NAC' • Bosz: 'Gaan titel aanvallen'**: [Link](https://nos.nl/liveblog/2600263-unnerstall-terug-op-doel-bij-twente-voor-avondje-nac-bosz-gaan-titel-aanvallen)
-
-
-### lazio - genoa (N/A, 30/01/2026 15:36 Lima)
-
-- **LIVE Lazio-Genoa 0-0 Serie A 2025/2026: Fischio d’inizio Lazio Genoa**: [Link](https://sport.virgilio.it/dirette/live/serie-a/30-1-2026/lazio-genoa/2558732/)
-- **🗣️ Colombo: “La vittoria con il Bologna ha mostrato le qualità del Genoa”**: [Link](https://onefootball.com/id/berita/colombo-la-vittoria-con-il-bologna-ha-mostrato-le-qualita-del-genoa-42332264)
-- **Tutto il calcio in Diretta**: [Link](https://www.diretta.it/news/calcio-live-news-le-ufficiali-di-lazio-genoa-le-avversarie-delle-italiane-in-champions-e-europa-league/4hRDOYR1/)
 
 
