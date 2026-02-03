@@ -1,3 +1,38 @@
+### sorteo la tinka resultados (N/A, 03/02/2026 03:47 Lima)
+
+- **Tinka del 1 de febrero de 2026: revisa aquí los números ganadores**: [Link](https://www.infobae.com/peru/2026/02/02/resultados-de-la-tinka-numeros-ganadores-del-domingo-1-de-febrero-de-2026/)
+- **Caos y poder: “En el barro” estrena su segunda temporada este 13 de febrero en Netflix**: [Link](https://elcomercio.pe/videos/trailers/caos-y-poder-en-el-barro-estrena-su-segunda-temporada-este-13-de-febrero-en-netflix-nnav-estrenos-netflix-video-noticia/)
+- **Resultados de La Tinka del domingo 01 de febrero**: [Link](https://www.americatv.com.pe/americlub/tinka-resultados-sorteo-jugado-domingo-01-febrero-noticia-162691)
+
+
+### precio oro (N/A, 03/02/2026 03:47 Lima)
+
+- **¿Por qué ha caído en picado el precio del oro y la plata?**: [Link](https://es.finance.yahoo.com/noticias/ca%C3%ADdo-picado-precio-oro-plata-125211559.html)
+- **Guía sobre el auge y desplome del oro y la plata**: [Link](https://peru21.pe/economia/guia-sobre-el-auge-y-desplome-del-oro-y-la-plata/)
+- **Ganancias de un año desaparecen: plata y oro amplían pérdidas tras desplome histórico de metales**: [Link](https://gestion.pe/mundo/internacional/oro-y-plata-amplian-perdidas-tras-un-desplome-historico-de-los-metales-noticia/)
+
+
+### lds church (N/A, 03/02/2026 03:47 Lima)
+
+- **Utah Rumor: Is The LDS Church Looking At A Drastic Change?**: [Link](https://catcountryutah.com/utah-rumor-is-the-lds-church-looking-at-a-drastic-change/)
+- **Elder and Sister Kearon Invite Young Adults to Put Faith in the Foreground of Their Lives**: [Link](https://newsroom.churchofjesuschrist.org/article/elder-and-sister-kearon-invite-young-adults-to-put-faith-in-the-foreground-of-their-lives)
+- **Elder Kearon’s plea to young adults: Learn to ‘sing the song of redeeming love’**: [Link](https://www.deseret.com/faith/2026/02/02/elder-patrick-kearon-young-adult-devotional-church-of-jesus-christ/)
+
+
+### bet 365 (N/A, 03/02/2026 03:47 Lima)
+
+- **UFC: Volkanovski vuelve a derrotar a Diego Lopes y retiene el título de peso pluma**: [Link](https://trome.com/deportes/ufc/ufc-325-alexander-volkanovski-vs-diego-lopes-en-vivo-via-paramount-ver-online-straming-en-directo-desde-sidney-video-resumen-resultados-hightlights-noticia/)
+- **¿Quién ganó la pelea UFC 325: Alexander Volkanovski vs. Diego Lopes por la estelar? Resultados de la cartelera**: [Link](https://gestion.pe/mix/sports/quien-gano-la-pelea-ufc-325-alexander-volkanovski-vs-diego-lopes-en-vivo-hoy-por-la-estelar-resultados-de-la-cartelera-en-directo-noticia/)
+- **UFC 325 en vivo: ¿A qué hora inicia, cartelera y dónde ver el Volkanovski vs Lopes 2 por el título de peso pluma?**: [Link](https://rpp.pe/lucha/ufc/ufc-325-volkanovski-vs-lopes-2-en-vivo-fecha-horario-cartelera-y-donde-ver-en-usa-sudamerica-y-espana-por-titulo-via-paramount-plus-online-noticia-1673823)
+
+
+### hernando de soto (N/A, 03/02/2026 03:47 Lima)
+
+- **5 revelaciones de los millones de archivos Epstein que acaban de salir a la luz**: [Link](https://www.bbc.com/mundo/articles/c20gd8xq592o)
+- **¿Qué revelan 3 millones de nuevos documentos sobre los vínculos de Trump con Jeffrey Epstein?**: [Link](https://cnnespanol.cnn.com/2026/01/31/eeuu/nuevos-documentos-vinculos-trump-epstein-trax)
+- **Justicia EE.UU. da por concluida revisión del caso Epstein**: [Link](https://www.dw.com/es/departamento-de-justicia-eeuu-da-por-concluida-revisi%C3%B3n-del-caso-epstein/a-75755450)
+
+
 ### 2 de mayo (N/A, 03/02/2026 00:16 Lima)
 
 - **Alianza Lima vs 2 de Mayo EN VIVO: ¿a qué hora juegan y dónde ver la fase 1 de la Copa Libertadores?**: [Link](https://rpp.pe/futbol/copa-libertadores/alianza-lima-vs-2-de-mayo-en-vivo-a-que-hora-juegan-en-paraguay-y-como-ver-ida-fase-1-copa-libertadores-2026-via-espn-partidos-de-hoy-noticia-1674068)
@@ -1000,40 +1035,5 @@ defender for his squad**: [Link](https://www.vavel.com/en/football/2026/01/31/ar
 - **Liga MX: Horarios y cómo ver Jornada 4 del Clausura 2026**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/16235545/liga-mx-jornada-4-horarios-canales-torneo-clausura-2026)
 - **Liga MX: Comienza el juego por la Fecha 4 con partido entre Puebla y Toluca FC**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-comienza-el-juego-por-la-fecha-4-con-partido-entre-puebla-y-toluca-fc-noticia-1673607)
 - **Las alineaciones confirmadas de Puebla vs. Toluca por la Jornada 4 del Clausura 2026 de la Liga MX**: [Link](https://bolavip.com/mx/ligamx/las-alineaciones-de-puebla-vs-toluca-por-la-jornada-4-del-clausura-2026-de-la-liga-mx)
-
-
-### lakers - wizards (N/A, 30/01/2026 21:28 Lima)
-
-- **Luka Doncic's triple-double against the Wizards might be more impressive than his 70-point game**: [Link](https://www.sportingnews.com/uk/nba/los-angeles-lakers/news/luka-doncic-triple-double-wizards-impressive-70-point-game/786d9e9253df229104392f2b)
-- **Lakers easily beat Wizards on the road**: [Link](https://www.silverscreenandroll.com/lakers-scores-results/106810/lakers-vs-wizards-recap-box-score-stats-final-lebron-james-luka-doncic)
-- **NBA Announces Luka Doncic Milestone During Lakers Game**: [Link](https://athlonsports.com/nba/los-angeles-lakers/nba-announces-luka-doncic-milestone-lakers-wizards)
-
-
-### melgar vs cienciano (N/A, 30/01/2026 21:28 Lima)
-
-- **Melgar vs Cienciano en vivo: hora, canal tv y dónde ver el Torneo Apertura 2026**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/melgar-vs-cienciano-en-vivo-hora-canal-tv-y-donde-ver-el-torneo-apertura-2026-liga-1-transmision-l1max-l1play-tdpe-noticia/)
-- **Liga 1: Melgar y Cienciano se enfrentan en el clásico del sur**: [Link](https://rpp.pe/futbol/descentralizado/liga-1-melgar-y-cienciano-se-enfrentan-en-el-clasico-del-sur-noticia-1673787)
-- **Clásico del Sur 142: FBC Melgar manda en la historia y recibe a Cienciano**: [Link](https://diariocorreo.pe/deportes/clasico-del-sur-142-fbc-melgar-manda-en-la-historia-y-recibe-a-cienciano-noticia/)
-
-
-### universidad de chile (N/A, 30/01/2026 21:28 Lima)
-
-- **El U. de Chile-Audax, interrumpido por incidentes en el Estadio Nacional**: [Link](https://www.espn.com.ar/futbol/chile/nota/_/id/16250662/incidentes-universidad-de-chile-vs-audax-estadio-nacional)
-- **Meneghini marca distancia por amenaza de la barra de la Universidad de Chile**: [Link](https://espndeportes.espn.com/futbol/chile/nota/_/id/16244786/meneghini-dt-marca-distancia-amenaza-barra-universidad-de-chile-fuitbol)
-- **Video: Felipe Salomoni fue expulsado en el duelo de la U contra Audax por un codazo**: [Link](https://www.emol.com/noticias/Deportes/2026/01/30/1190182/felipe-salomoni-expulsado-udechile-audax.html)
-
-
-### moltbook (N/A, 30/01/2026 21:28 Lima)
-
-- **AI agents now have their own Reddit-style social network, and it’s getting weird fast**: [Link](https://arstechnica.com/information-technology/2026/01/ai-agents-now-have-their-own-reddit-style-social-network-and-its-getting-weird-fast/)
-- **OpenClaw’s AI assistants are now building their own social network**: [Link](https://techcrunch.com/2026/01/30/openclaws-ai-assistants-are-now-building-their-own-social-network/)
-- **Moltbook is a human-free Reddit clone where AI agents discuss cybersecurity and philosophy**: [Link](https://the-decoder.com/moltbook-is-a-human-free-reddit-clone-where-ai-agents-discuss-cybersecurity-and-philosophy/)
-
-
-### xiaomi redmi note 15 pro 5g (N/A, 30/01/2026 21:28 Lima)
-
-- **Batería que dura hasta 2 días, resistencia y fotografía avanzada con IA: las características de la nueva serie Redmi Note 15 de Xiaomi**: [Link](https://elcomercio.pe/mag/data/bateria-que-dura-hasta-2-dias-resistencia-y-fotografia-avanzada-con-ia-las-caracteristicas-de-la-nueva-serie-redmi-note-15-nnda-nnni-noticia/)
-- **Xiaomi presentó su nueva serie REDMI Note 15**: [Link](https://www.expreso.com.pe/tecnologia/xiaomi-presento-su-nueva-serie-redmi-note-15-ia-noticia/1260024/)
-- **Zusette Escudero**: [Link](https://enlinea.pe/author/zusette-escudero/)
 
 
