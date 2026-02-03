@@ -1,3 +1,73 @@
+### pedro gallese (N/A, 02/02/2026 21:39 Lima)
+
+- **Deportivo Cali informó fallecimiento de la madre de Gallese**: [Link](https://www.americatv.com.pe/deportes/futbol-mundial/deportivo-cali-informo-fallecimiento-madre-pedro-gallese-n452561?ref=portal-amtv)
+- **¡Fuerza, Pulpo! Fallece la mamá de Pedro Gallese**: [Link](https://www.atv.pe/noticia/fuerza-pulpo-fallece-la-mama-de-pedro-gallese/)
+- **Falleció mamá de Pedro Gallese: Deportivo Cali expresó sus condolencias al portero de la selección peruana**: [Link](https://larepublica.pe/deportes/2026/02/02/muere-mama-de-pedro-gallese-deportivo-cali-expreso-sus-condolencias-al-portero-de-la-seleccion-peruana-37020)
+
+
+### caida del oro hoy (N/A, 02/02/2026 21:39 Lima)
+
+- **¿Por qué ha caído en picado el precio del oro y la plata?**: [Link](https://es.finance.yahoo.com/noticias/ca%C3%ADdo-picado-precio-oro-plata-125211559.html)
+- **Guía sobre el auge y desplome del oro y la plata**: [Link](https://peru21.pe/economia/guia-sobre-el-auge-y-desplome-del-oro-y-la-plata/)
+- **Ganancias de un año desaparecen: plata y oro amplían pérdidas tras desplome histórico de metales**: [Link](https://gestion.pe/mundo/internacional/oro-y-plata-amplian-perdidas-tras-un-desplome-historico-de-los-metales-noticia/)
+
+
+### argentinos juniors vs belgrano (N/A, 02/02/2026 21:39 Lima)
+
+- **Cuándo juegan Argentinos Juniors vs. Belgrano por la fecha 3 del Torneo Apertura 2026: equipo, fecha, hora y TV en vivo**: [Link](https://espndeportes.espn.com/futbol/argentina/nota/_/id/16250879/argentinos-vs-belgrano-fecha-3-torneo-apertura-2026-equipo-fecha-hora-y-tv-en-vivo)
+- **El “Pirata" y el “Bicho” siguen sin sacarse ventaja en La Paternal**: [Link](https://www.cba24n.com.ar/deportes/futbol/belgrano/el--pirata--y-el--bicho--siguen-sin-sacarse-ventaja-en-la-paternal_a698072392128774661ba149d)
+- **Sin el Chino, juega el Mudo**: [Link](https://www.eldiariocba.com.ar/el-equipo/futbol/2026/2/2/sin-el-chino-juega-el-mudo-143049.html)
+
+
+### cerro - sportivo luqueño (N/A, 02/02/2026 21:39 Lima)
+
+- **¿Qué canal pasa Cerro Porteño vs Sportivo Luqueño hoy: dónde ver Gratis y EN VIVO la Copa de Primera?**: [Link](https://www.365scores.com/es/news/cerro-porteno-vs-sportivo-luqueno-tv/)
+- **¿A qué hora juega Cerro Porteño vs Sportivo Luqueño EN VIVO HOY por el Torneo Apertura de Paraguay?**: [Link](https://larepublica.pe/deportes/2026/02/01/cerro-porteno-vs-sportivo-luqueno-en-vivo-torneo-apertura-de-paraguay-via-tigo-sports-84374)
+- **El Ciclón cocinó “Chanchito” a fuego lento**: [Link](https://www.cronica.com.py/2026/02/02/el-ciclon-cocino-chanchito-a-fuego-lento/)
+
+
+### internacional de bogotá - tolima (N/A, 02/02/2026 21:39 Lima)
+
+- **Pronóstico Internacional De Bogota Deportes Tolima - Primera A Colombia 02/02/26**: [Link](https://www.sportytrader.com/es/pronosticos/internacional-de-bogota-deportes-tolima-323691/)
+- **Inter no pasó del cero está noche en Techo**: [Link](https://www.vavel.com/colombia/futbol-colombiano/2026/02/03/la-equidad/1249603-inter-no-paso-del-cero-esta-noche-en-techo.html)
+- **Tolima se acostumbra a jugar con 10 y empata en Bogotá**: [Link](https://www.clarosports.com/colombia/liga-bet-play/inter-de-bogota-vs-deportes-tolima-en-vivo-la-liga-betplay-2026-i-resultado-y-goles-de-la-jornada-4/)
+
+
+### delta (N/A, 02/02/2026 21:39 Lima)
+
+- **Delta grows Airbus widebody fleet with new order**: [Link](https://news.delta.com/delta-grows-airbus-widebody-fleet-new-order)
+- **Rolls-Royce lands huge aero engine order from major US airline**: [Link](https://www.marketingderby.co.uk/news/rolls-royce-lands-huge-aero-engine-order-from-major-us-airline/)
+- **Delta Air Lines Expands Fleet with Thirty-One New Airbus Aircraft to Enhance International Travel**: [Link](https://www.travelandtourworld.com/news/article/delta-air-lines-expands-fleet-with-thirty-one-new-airbus-aircraft-to-enhance-international-travel/)
+
+
+### racing vs (N/A, 02/02/2026 21:39 Lima)
+
+- **Y va el tercero: tremendo golazo del Pity Martínez en su debut en Tigre**: [Link](https://www.espn.com.pe/futbol/argentina/nota/_/id/16264128/video-gol-de-gonzalo-pity-martinez-debut-tigre-vs-racing)
+- **Racing perdió ante Tigre y sufrió su tercera derrota consecutiva**: [Link](https://ovacion.pe/noticias/futbol-internacional/racing-perdio-ante-tigre-sufrio-su-tercera-derrota-consecutiva)
+- **Cuándo juegan Tigre vs. Racing por la fecha 3 del Torneo Apertura 2026: equipo, fecha, hora y TV en vivo**: [Link](https://www.espn.com.pe/futbol/argentina/nota/_/id/16250417/tigre-vs-racing-fecha-3-torneo-apertura-2026-equipo-fecha-hora-y-tv-en-vivo)
+
+
+### madureira - vasco da gama (N/A, 02/02/2026 21:39 Lima)
+
+- **Fim da 5ª rodada do Campeonato Carioca; veja resultados e classificação**: [Link](https://theplayoffs.news/noticias/botafogo/fim-da-5a-rodada-do-campeonato-carioca/)
+- **📹 Que fase! Puma perde pênalti no Vasco e Brenner vacila no rebote; veja**: [Link](https://onefootball.com/pt-br/noticias/que-fase-puma-perde-penalti-no-vasco-e-brenner-vacila-no-rebote-veja-42349287)
+- **Diniz é vaiado e chamado de "burro" por torcedores após empate do Vasco**: [Link](https://ge.globo.com/futebol/times/vasco/noticia/2026/02/02/diniz-e-vaiado-e-chamado-de-burro-por-torcedores-apos-empate-do-vasco.ghtml)
+
+
+### defensa y justicia vs (N/A, 02/02/2026 21:39 Lima)
+
+- **Benedetti rompió el punto de penal, Botta falló su remate y se salvó Estudiantes**: [Link](https://www.espn.com.ar/futbol/argentina/nota/_/id/16264081/video-benedetti-rompio-el-punto-de-pena-botta-fallo-su-remate-y-se-salvo-estudiantes-vs-defensa-y-justicia)
+- **Cuándo juegan Defensa y Justicia vs. Estudiantes de La Plata: equipos, fecha, hora y TV en vivo**: [Link](https://espndeportes.espn.com/futbol/argentina/nota/_/id/16262793/defensa-y-justicia-vs-estudiantes-la-plata-torneo-apertura-equipo-fecha-hora-tv-en-vivo)
+- **Eduardo Domínguez y el empate de Estudiantes: "No puede volver a ocurrir"**: [Link](https://www.elgrafico.com.ar/articulo/primera-division/97326/eduardo-dominguez-y-el-empate-de-estudiantes-no-puede-volver-a-ocurrir)
+
+
+### racing (N/A, 02/02/2026 21:39 Lima)
+
+- **1/ST POST: Why Play Today? Monday, February 2, 2026**: [Link](https://www.xpressbet.com/component/content/article/21131-1-st-post-why-play-today-monday-february-2-2026)
+- **Monday’s Best Bets and Quick Picks: Turf Paradise exactas**: [Link](https://www.twinspires.com/edge/racing/wagering/monday-s-best-bets-and-quick-picks-turf-paradise-exactas/)
+- **Horse Racing Picks Today at Turf Paradise for Tuesday, February 3**: [Link](https://vsin.com/horse-racing/horse-racing-picks-today-at-turf-paradise-for-tuesday-february-3/)
+
+
 ### kocaelispor - fenerbahçe (N/A, 02/02/2026 11:49 Lima)
 
 - **Fenerbahçe'de Edson Alvarez 10 maç sonra ilk 11'de başlıyor**: [Link](https://www.yenicaggazetesi.com/fenerbahcede-edson-alvarez-10-mac-sonra-ilk-11de-basliyor-997677h.htm)
@@ -965,75 +1035,5 @@ defender for his squad**: [Link](https://www.vavel.com/en/football/2026/01/31/ar
 - **LIVE Lazio-Genoa 0-0 Serie A 2025/2026: Fischio d’inizio Lazio Genoa**: [Link](https://sport.virgilio.it/dirette/live/serie-a/30-1-2026/lazio-genoa/2558732/)
 - **🗣️ Colombo: “La vittoria con il Bologna ha mostrato le qualità del Genoa”**: [Link](https://onefootball.com/id/berita/colombo-la-vittoria-con-il-bologna-ha-mostrato-le-qualita-del-genoa-42332264)
 - **Tutto il calcio in Diretta**: [Link](https://www.diretta.it/news/calcio-live-news-le-ufficiali-di-lazio-genoa-le-avversarie-delle-italiane-in-champions-e-europa-league/4hRDOYR1/)
-
-
-### lens - le havre (N/A, 30/01/2026 15:36 Lima)
-
-- **Pronostic Lens - Le Havre, Ligue 1**: [Link](https://www.sportytrader.com/pronostics/lens-le-havre-322738/)
-- **PRONOS PARIS RMC Le pari football de Lionel Charbonnier du 30 janvier - Ligue 1**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-football-de-lionel-charbonnier-du-30-janvier-ligue-1_AN-202601300670.html)
-- **RC Lens – HAC : les Lensois peuvent-ils immédiatement repartir de l’avant ?**: [Link](https://le11hdf.fr/rc-lens-hac-repartir-de-lavant/)
-
-
-### espanyol vs (N/A, 30/01/2026 15:36 Lima)
-
-- **Preview: Espanyol vs Alaves - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/espanyol/preview/espanyol-vs-alaves-prediction-team-news-lineups_590820.html)
-- **Call-up List Announced**: [Link](https://www.filmogaz.com/125480)
-- **González: "Keeping a clean sheet is half the battle"**: [Link](https://www.rcdespanyol.com/en/new/gonzalez-keeping-a-clean-sheet-is-half-the-battle/19756)
-
-
-### mi pobre angelito (N/A, 30/01/2026 15:36 Lima)
-
-- **Muere a los 71 años la actriz Catherine O’Hara, estrella de "Mi pobre angelito"**: [Link](https://cnnespanol.cnn.com/2026/01/30/entretenimiento/catherine-ohara-muere-mi-pobre-angelito-trax)
-- **Muere la actriz Catherine O’Hara, la madre de Kevin en ‘Solo en casa’, a los 71 años**: [Link](https://elpais.com/cultura/2026-01-30/muere-la-actriz-catherine-ohara-la-madre-de-kevin-en-solo-en-casa-a-los-71-anos.html)
-- **Murió Catherine O’Hara, estrella de ‘Beetlejuice’ y ‘Mi pobre angelito’**: [Link](https://www.infobae.com/entretenimiento/2026/01/30/murio-catherine-ohara-estrella-de-beetlejuice-y-mi-pobre-angelito/)
-
-
-### copa libertadores (N/A, 30/01/2026 15:36 Lima)
-
-- **Falleció Alfredo Davicce, histórico presidente de River**: [Link](https://espndeportes.espn.com/futbol/argentina/nota/_/id/16249348/fallecio-alfredo-davicce-historico-presidente-de-river)
-- **Dolor en River por la muerte de uno de sus presidentes más exitosos**: [Link](https://www.mendozapost.com/deportes/dolor-river-muerte-uno-de-sus-presidentes-mas-exitosos/)
-- **Murió Alfredo Davicce, el presidente con el que River ganó su segunda Copa Libertadores**: [Link](https://tn.com.ar/deportes/futbol/2026/01/30/luto-en-river-murio-alfredo-davicce-expresidente-del-club-que-consiguio-la-copa-libertadores/)
-
-
-### rcd espanyol - alavés (N/A, 30/01/2026 15:36 Lima)
-
-- **LaLiga EA Sports: Espanyol y Alavés se miden por la fecha 22**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-espanyol-y-alaves-se-miden-por-la-fecha-22-noticia-1673556)
-- **Todo lo que debes saber sobre el fútbol en directo para el 30/01/26**: [Link](https://www.flashscore.pe/noticias/futbol-champions-league-futbol-en-directo-l-onces-confirmados-en-el-espanyol-alaves/8CbN9uyG/)
-- **Lo que debes saber del Espanyol-Alavés de LaLiga**: [Link](https://www.flashscore.pe/noticias/futbol-laliga-ea-sports-previa-espanyol-alaves-j22/d0kuf6As/)
-
-
-### sport huancayo - alianza lima (N/A, 30/01/2026 11:47 Lima)
-
-- **Pablo Guede sale con sus mejores armas: la alineación de Alianza Lima vs. Sport Huancayo**: [Link](https://depor.com/futbol-peruano/descentralizado/alineacion-alianza-lima-vs-sport-huancayo-en-vivo-formacion-y-titulares-de-pablo-guede-con-paolo-guerrero-liga-1-2026-fotos-noticia/)
-- **"Huancayo blanquiazul": así fue el banderazo de los hinchas de Alianza Lima previo al inicio del Torneo Apertura**: [Link](https://rpp.pe/futbol/descentralizado/alianza-lima-asi-fue-el-banderazo-de-hinchas-blanquiazules-previo-a-enfrentar-a-sport-huancayo-noticia-1673662)
-- **Sport Huancayo vs Alianza Lima: Posible alineación de Guede**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/posible-once-alianza-lima-debut-ante-sport-huancayo-n452511)
-
-
-### colonia vs (N/A, 30/01/2026 11:47 Lima)
-
-- **Colonia vs Wolfsburgo por la fecha 20 de Bundesliga de Alemania EN VIVO. Seguilo minuto a minuto por la web de TN.**: [Link](https://tn.com.ar/deportes/futbol/2026/01/30/colonia-vs-wolfsburgo-en-vivo-por-la-fecha-20-de-la-bundesliga-de-alemania-hora-donde-ver-y-formaciones/)
-- **Colônia vs Wolfsburg Pronóstico- Apuestas y Cuotas – 30/1/2026**: [Link](https://theplayoffs.news/cl/colonia-vs-wolfsburg-apuestas-pronosticos-cuotas-30-1-2026/)
-- **Köln – Wolfsburg: horario y dónde ver hoy por TV el partido de fútbol de la Bundesliga**: [Link](https://www.lavanguardia.com/deportes/futbol/20260130/17276/horario-partido-ca-koln-wolfsburg-ctx.html)
-
-
-### harris dickinson (N/A, 30/01/2026 11:47 Lima)
-
-- **‘The Beatles’ First Look: Paul Mescal Is Paul McCartney, Barry Keoghan Is Ringo Starr and More in Four-Movie Event**: [Link](https://variety.com/2026/film/news/beatles-movies-photos-paul-mescal-paul-mccartney-1236644754/)
-- **First The Beatles biopic stills revealed on postcards**: [Link](https://kz.kursiv.media/en/2026-01-30/engk-nknk-first-the-beatles-biopic-stills-revealed-on-postcards/)
-- **Sam Mendes’ ‘The Beatles – A Four-Film Cinematic Event’: First look at cast in costume**: [Link](https://www.imdb.com/news/ni65683798/?ref_=nmnw_art_perm)
-
-
-### djokovic vs (N/A, 30/01/2026 11:47 Lima)
-
-- **Carlos Alcaraz, el más joven en alcanzar la final en los cuatro Grand Slam**: [Link](https://www.espn.com.pe/tenis/nota/_/id/16247215/carlos-alcaraz-el-mas-joven-en-alcanzar-la-final-en-los-cuatro-grand-slam-alexander-zverev-australian-open)
-- **Djokovic & Alcaraz win five-set epics to reach Australian Open final**: [Link](https://www.bbc.com/sport/tennis/articles/clyn9l0zvnpo)
-- **Sinner on painful Djokovic defeat: 'It hurts, for sure'**: [Link](https://www.atptour.com/en/news/sinner-australian-open-2026-reaction-friday)
-
-
-### gerente general tottus peru (N/A, 30/01/2026 11:47 Lima)
-
-- **Tottus Perú redefine su liderazgo y nombra a Denise Labarthe como gerente general**: [Link](https://www.expreso.com.pe/economia/tottus-peru-redefine-su-liderazgo-y-nombra-a-denise-labarthe-como-gerente-general-comercio-electronico-retail-expansion-noticia/1259792/)
-- **Tottus cambia de mando en Perú con una nueva gerente general**: [Link](https://www.justretail.news/latam/noticias/tottus-cambia-de-mando-en-peru-con-una-nueva-gerente-general/)
-- **Denise Labarthe es nombrada nueva gerente general de Tottus Perú**: [Link](https://lacamara.pe/denise-labarthe-es-nueva-gerente-general-de-tottus-ccl-asociados-camara-de-comercio-de-lima/?print=print)
 
 
