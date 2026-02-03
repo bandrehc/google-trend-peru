@@ -1,3 +1,72 @@
+### tarjeta roja (N/A, 03/02/2026 15:47 Lima)
+
+- **Giorgian De Arrascaeta y Filipe Luís comentaron la insólita expulsión de Jorge Carrascal en Flamengo**: [Link](https://www.espn.com.ar/futbol/brasil/nota/_/id/16265276/giorgian-de-arrascaeta-filipe-luis-comentaron-insolita-expulsion-jorge-carrascal-flamengo-corinthians)
+- **André Carrillo suma un nuevo título a sus vitrinas: se proclamó campeón de la Supercopa de Brasil con Corinthians**: [Link](https://www.infobae.com/peru/deportes/2026/02/01/andre-carrillo-suma-un-nuevo-titulo-a-sus-vitrinas-se-proclamo-campeon-de-la-supercopa-de-brasil-con-corinthians/)
+- **¿Indirecta a Flamengo? El curioso comentario de André Carrillo tras ganar la Supercopa de Brasil**: [Link](https://depor.com/futbol-peruano/peruanos-en-el-mundo/andre-carrillo-y-su-curioso-comentario-tras-titulo-de-la-supercopa-de-brasil-con-corinthians-noticia/)
+
+
+### arsenal (N/A, 03/02/2026 15:47 Lima)
+
+- **Bukayo Saka plotting Arsenal return in time for North London derby but ruled out of Carabao Cup semi-final**: [Link](https://www.thesun.co.uk/sport/38108540/bukayo-saka-arsenal-return-north-london-derby/)
+- **Arteta provides injury update on Saka and Merino | Press conference | News**: [Link](https://www.arsenal.com/news/arteta-provides-injury-update-saka-and-merino)
+- **Martin Odegaard and Bukayo Saka injury update after missing Arsenal vs Chelsea**: [Link](https://metro.co.uk/2026/02/03/martin-odegaard-bukayo-saka-injury-update-missing-arsenal-vs-chelsea-26692010/)
+
+
+### milan vs (N/A, 03/02/2026 15:47 Lima)
+
+- **Inter Milan Vs Torino – Cristian Chivu Preparing Huge Starting XI Overhaul After Cremonese Win**: [Link](https://sempreinter.com/2026/02/03/inter-milan-torino-chivu-make-numerous-starting-xi-changes/)
+- **Official – Matteo Marchetti To Referee Inter Milan Vs Torino Coppa Italia Quarter-Final Tie**: [Link](https://ca.sports.yahoo.com/news/official-matteo-marchetti-referee-inter-174000824.html)
+- **Preview: Inter Milan vs Torino - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/inter-milan/coppa-italia/preview/inter-milan-vs-torino-prediction-team-news-lineups_591245.html)
+
+
+### joão cancelo (N/A, 03/02/2026 15:47 Lima)
+
+- **Flick bet on him, but his future at Barça is hanging in the air again: he doesn't fit on the team**: [Link](https://e-noticies.cat/en/soccer/flick-bet-on-his-future-barca-is-once-again-hanging-in-the-air-he-doesnt-fit-into-the-team)
+- **João Cancelo makes his comeback to FC Barcelona**: [Link](https://frenchfootballweekly.com/2026/02/03/joao-cancelo-makes-his-comeback-to-fc-barcelona/)
+
+
+### marsella (N/A, 03/02/2026 15:47 Lima)
+
+- **Michael Amir Murillo, descartado para la Copa de Francia con el Olympique de Marsella**: [Link](https://www.rpctv.com/futbol-internacional/futbol/michael-amir-murillo-descartado-la-copa-francia-el-olympique-marsella-n6068691)
+- **Dos ex del Atleti se pelean en su actual equipo**: [Link](https://www.flashscore.es/noticias/futbol-copa-de-francia-kondogbia-y-vermeeren-dos-ex-del-atletico-de-madrid-incendian-marsella/pYDpQeMs/)
+- **Besiktas inició negociaciones para fichar al panameño Michael Murillo**: [Link](https://elsiglo.com.pa/deportes/futbol/besiktas-inicio-negociaciones-para-fichar-al-panameno-michael-murillo-EM19626929)
+
+
+### milan (N/A, 03/02/2026 15:47 Lima)
+
+- **This is How Hard It Will Be to Get Around Italy’s Winter Olympics**: [Link](https://www.nytimes.com/2026/02/03/world/europe/italy-winter-olympics-logistical-nightmare.html)
+- **IOC President Coventry looks to Milan-Cortina 2026 Games amid 'bumpy' journey**: [Link](http://en.people.cn/n3/2026/0203/c90000-20422187.html)
+- **Italy's spread-out Olympics face transport challenge**: [Link](https://www.hurriyetdailynews.com/italys-spread-out-olympics-face-transport-challenge-218542)
+
+
+### america (N/A, 03/02/2026 15:47 Lima)
+
+- **Xiomy Kanashiro ingresó a América Hoy con nueva faceta**: [Link](https://www.americatv.com.pe/america-hoy/xiomy-kanashiro-ingreso-america-hoy-renovada-faceta-noticia-162728)
+- **Xiomy Kanashiro es presentada como la nueva colaboradora de ‘América hoy’: “Es mi nueva casa y aquí me quedo”**: [Link](https://trome.com/espectaculos/tv/xiomy-kanashiro-es-presentada-como-la-nueva-colaboradora-de-america-hoy-video-farandula-noticia/)
+- **Xiomy Kanashiro es presentada como la nueva conductora de ‘América Hoy’: “Aquí me quedo”**: [Link](https://www.infobae.com/peru/2026/02/03/xiomy-kanashiro-es-presentada-como-la-nueva-conductora-de-america-hoy/)
+
+
+### fa cup (N/A, 03/02/2026 15:47 Lima)
+
+- **Women's FA Cup: Analysis of proposals to revamp competition**: [Link](https://www.bbc.com/sport/football/articles/c5y2negj0j2o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D)
+- **Women’s FA Cup to have seeded teams and no draw after last 32 under radical proposals**: [Link](https://www.theguardian.com/football/2026/feb/03/womens-fa-cup-seeded-teams-no-draw-after-last-32-proposals)
+- **FA set for battle with clubs over controversial Women’s FA Cup revamp**: [Link](https://www.thetimes.com/sport/football/womens-football/article/fa-set-for-battle-with-clubs-over-controversial-womens-fa-cup-revamp-qb0gg56zh)
+
+
+### america tv (N/A, 03/02/2026 15:47 Lima)
+
+- **así inició la temporada 2026 de América Hoy**: [Link](https://www.americatv.com.pe/america-hoy/america-hoy-asi-inicio-nueva-temporada-magazine-noticia-162683)
+- **Melissa Paredes regresó a‘América HOY’ EN VIVO: sigue el estreno del programa**: [Link](https://elcomercio.pe/respuestas/farandula/america-hoy-estreno-en-vivo-via-america-tv-horario-conductores-y-mas-de-la-nueva-temporada-video-tdpe-noticia/)
+- **¡Reemplazo de Ethel Pozo! ‘América hoy’ vuelve a la TV y este lunes se conocerá a la nueva conductora: “Todos la querían”**: [Link](https://larepublica.pe/espectaculos/2026/02/02/reemplazo-de-ethel-pozo-america-hoy-vuelve-a-la-tv-y-este-lunes-se-conocera-a-la-nueva-conductora-todos-la-querian-127408)
+
+
+### bayer leverkusen vs (N/A, 03/02/2026 15:47 Lima)
+
+- **👴 Experience leads Werkself, oldest line-up in years for semi-final**: [Link](https://ca.sports.yahoo.com/news/experience-leads-werkself-oldest-line-202200243.html)
+- **Where to watch Tottenham vs. Man City live s'tream, TV channel, start time for Premier League match**: [Link](https://www.westernwheel.ca/classifieds/announcements-and-events/anniversaries/2092883)
+- **DFB Pokal Last 8 Preview | Bayer Leverkusen vs St. Pauli & Holstein Kiel vs VfB Stuttgart**: [Link](https://onefootball.com/de/news/dfb-pokal-last-8-preview-bayer-leverkusen-vs-st-pauli-holstein-kiel-vs-vfb-stuttgart-42352244)
+
+
 ### ollanta humala (N/A, 03/02/2026 12:00 Lima)
 
 - **Fiscalía inicia diligencias contra jueces tras denuncia de Ollanta Humala**: [Link](https://canaln.pe/actualidad/fiscalia-abre-diligencias-jueces-denuncia-ollanta-humala-n490015)
@@ -965,75 +1034,5 @@ defender for his squad**: [Link](https://www.vavel.com/en/football/2026/01/31/ar
 - **Sydney – Western Sydney Wanderers FC: match prediction and bet on the A-League game, January 31, 2026**: [Link](https://tribuna.com/en/news/2026-01-26-sydney-western-sydney-wanderers-fc-match-prediction-and-bet-on-the-aleague-game-january-3/)
 - **Sydney’s Rubi Sullivan looks to bring home a crucial Derby win: “We’re really going to be putting 100% in.”**: [Link](https://impetusfootball.org/2026/01/30/sydneys-rubi-sullivan-looks-to-bring-home-a-crucial-derby-win-were-really-going-to-be-putting-100-in/)
 - **Star returns with vow to ‘improve’ teammates**: [Link](https://au.news.yahoo.com/star-returns-vow-improve-teammates-235151479.html)
-
-
-### australian open (N/A, 31/01/2026 07:59 Lima)
-
-- **Australian Open 2026: Novak Djokovic steals show in Melbourne after Carlos Alcaraz denies bending rules**: [Link](https://www.bbc.com/sport/tennis/articles/c2d7yd6l0k1o)
-- **Djokovic defeats Sinner in five-set classic, returns to Australian Open final**: [Link](https://www.atptour.com/en/news/sinner-djokovic-australian-open-2026-friday)
-- **Djokovic's defiance of age resonates with Chinese fans as symbol of long-term dedication**: [Link](https://www.globaltimes.cn/page/202601/1354578.shtml)
-
-
-### tenis hoy (N/A, 31/01/2026 07:59 Lima)
-
-- **Le pasan una videollamada a Djokovic en plena entrevista tras eliminar a Sinner y es otra leyendaza del tenis:**: [Link](https://as.com/tenis/videos/le-pasan-una-videollamada-a-djokovic-en-plena-entrevista-tras-eliminar-a-sinner-y-es-otra-leyendaza-del-tenis-momentazo-f202601-v/)
-- **La final del Open de Australia se juega en Movistar Plus+: Alcaraz se bate ante Djokovic para ganar el trofeo por primera vez**: [Link](https://elpais.com/escaparate/estilo-de-vida/2026-01-31/alcaraz-final-open-australia-movistar-plus.html)
-- **Así está el historial de Novak Djokovic y Carlos Alcaraz antes de la final del Australian Open 2026**: [Link](https://www.espn.com.ar/tenis/nota/_/id/16250431/novak-djokovic-carlos-alcaraz-historial-general-atp-tenis-resultados)
-
-
-### aryna sabalenka (N/A, 31/01/2026 07:59 Lima)
-
-- **Aryna Sabalenka breaks silence after heartbreaking Australian Open final collapse**: [Link](https://www.express.co.uk/sport/tennis/2165004/aryna-sabalenka-australian-open-elena-rybakina)
-- **Sabalenka And Rybakina Set For Epic Australian Open Final Showdown**: [Link](https://evrimagaci.org/gpt/sabalenka-and-rybakina-set-for-epic-australian-open-final-showdown-526218)
-- **Who Is Tom Sweeney? Meet Chair Umpire for Aryna Sabalenka vs Elena Rybakina at Australian Open 2026 Women’s Final**: [Link](https://www.essentiallysports.com/tennis-news-who-is-tom-sweeney-meet-chair-umpire-for-aryna-sabalenka-vs-elena-rybakina-at-australian-open-two-zero-two-six-women-s-final/)
-
-
-### kevin warsh fed (N/A, 31/01/2026 07:59 Lima)
-
-- **Trump nominates Kevin Warsh as new Federal Reserve chair**: [Link](https://www.bbc.com/news/live/ckgx1yldxg4t)
-- **Stock Market News, Jan. 30, 2026: Silver Plunges, Nasdaq Falls Following Trump Fed Pick**: [Link](https://www.wsj.com/livecoverage/stock-market-today-dow-sp-500-nasdaq-01-30-2026)
-- **What to know about Trump’s Fed chair nominee, in one resume**: [Link](https://www.cnn.com/2026/01/30/economy/fed-chair-nominee-kevin-warsh-resume-vis)
-
-
-### warriors - pistons (N/A, 31/01/2026 07:59 Lima)
-
-- **Warriors Face Pistons In High-Stakes NBA Showdown Tonight**: [Link](https://evrimagaci.org/gpt/warriors-face-pistons-in-highstakes-nba-showdown-tonight-526175)
-- **Steve Kerr on Cade Cunningham: He reminds me of Luka Doncic and James Harden**: [Link](https://uk.sports.yahoo.com/news/steve-kerr-cade-cunningham-reminds-022158832.html)
-- **What we learned as Warriors can't overcome Steph Curry's exit in loss to Pistons**: [Link](https://www.nbcsportsbayarea.com/nba/golden-state-warriors/steph-curry-injury-draymond-green-pistons/1911567/)
-
-
-### pumas vs (N/A, 31/01/2026 03:36 Lima)
-
-- **Liga MX: Pumas UNAM se enfrentará ante Santos Laguna por la fecha 4**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-pumas-unam-se-enfrentara-ante-santos-laguna-por-la-fecha-4-noticia-1673635)
-- **Pumas vs. Santos Laguna Pronósticos - El aspirante ante la decepción ¿Quién ganará este partido de la Liga MX?**: [Link](https://gainblers.com/pe/pronosticos/futbol/mexico/liga-mx/pronostico-pumas-santos-laguna-31-01-2026/)
-- **¿Uriel Antuna es la solución que Pumas necesita?**: [Link](https://www.espn.com.pe/futbol/mexico/nota/_/id/16246483/pumas-uriel-antuna-refuerzo-solucion-delanteros-goles-liga-mx)
-
-
-### pistons - warriors (N/A, 31/01/2026 00:04 Lima)
-
-- **Detroit Pistons vs Golden State Warriors Odds - Friday January 30 2026**: [Link](https://www.oddsshark.com/nba/detroit-golden-state-odds-january-30-2026-2460309)
-- **NBA Best Bets: Pistons vs. Warriors Prop Bets for Friday 1/30/26**: [Link](https://dknetwork.draftkings.com/2026/01/30/nba-best-bets-pistons-vs-warriors-prop-bets-for-friday-1-30-26/)
-- **Final Injury Report for Pistons-Warriors: Will Cade Cunningham, Jonathan Kuminga Play?**: [Link](https://athlonsports.com/nba/golden-state-warriors/final-injury-report-for-pistons-warriors-will-cade-cunningham-jonathan-kuminga-play)
-
-
-### royal rumble 2026 hora peru (N/A, 31/01/2026 00:04 Lima)
-
-- **Royal Rumble 2026: conoce la cartelera confirmada, horarios y dónde ver la Batalla Real en vivo**: [Link](https://rpp.pe/lucha/wwe/wwe-royal-rumble-2026-en-vivo-fecha-horario-cartelera-y-donde-ver-batalla-real-gratis-via-netflix-resultados-de-hoy-noticia-1673611)
-- **WWE Royal Rumble 2026: ¿a qué hora y dónde ver el primer evento PPV del año desde Arabia Saudita?**: [Link](https://larepublica.pe/deportes/2026/01/30/wwe-royal-rumble-2026-horarios-y-canales-del-evento-ppv-de-lucha-libre-cartelera-completa-1201350)
-- **WWE Royal Rumble 2026: cuándo es, a qué hora y en qué canal ver la Batalla Real**: [Link](https://elcomercio.pe/deporte-total/polideportivo/wwe-royal-rumble-2026-en-vivo-gratis-hoy-via-netflix-espn-horarios-canales-tv-y-donde-ver-la-batalla-real-video-noticia/)
-
-
-### pumas - santos (N/A, 31/01/2026 00:04 Lima)
-
-- **Liga MX: Pumas UNAM se enfrentará ante Santos Laguna por la fecha 4**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-pumas-unam-se-enfrentara-ante-santos-laguna-por-la-fecha-4-noticia-1673635)
-- **Pumas vs. Santos Laguna Pronósticos - El aspirante ante la decepción ¿Quién ganará este partido de la Liga MX?**: [Link](https://gainblers.com/pe/pronosticos/futbol/mexico/liga-mx/pronostico-pumas-santos-laguna-31-01-2026/)
-- **¿Uriel Antuna es la solución que Pumas necesita?**: [Link](https://www.espn.com.pe/futbol/mexico/nota/_/id/16246483/pumas-uriel-antuna-refuerzo-solucion-delanteros-goles-liga-mx)
-
-
-### vix (N/A, 31/01/2026 00:04 Lima)
-
-- **Cherry Bomb: VIX Heat Check; Why Feb Looks Underpriced vs. March**: [Link](https://www.tastylive.com/news-insights/cherry-bomb-vix-feb-looks-underpriced-march)
-- **‘El Mochaorejas’ Becomes ViX’s Most-Watched Series And Debuts In Spain**: [Link](https://www.forbes.com/sites/veronicavillafane/2026/01/30/el-mochaorejas-becomes-vixs-most-watched-series-and-debuts-in-spain/)
-- **Vix To Livestream Kanye West’s Concerts In Mexico**: [Link](https://deadline.com/2026/01/vix-livestream-kanye-wes-concerts-mexico-1236699016/)
 
 
