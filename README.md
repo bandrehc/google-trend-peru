@@ -1,3 +1,38 @@
+### ollanta humala (N/A, 03/02/2026 12:00 Lima)
+
+- **Fiscalía inicia diligencias contra jueces tras denuncia de Ollanta Humala**: [Link](https://canaln.pe/actualidad/fiscalia-abre-diligencias-jueces-denuncia-ollanta-humala-n490015)
+- **Jueces del caso Humala-Heredia bajo investigación fiscal tras denuncia del expresidente**: [Link](https://caretas.pe/politica/jueces-del-caso-humala-heredia-bajo-investigacion-fiscal-tras-denuncia-del-expresidente/)
+- **Abogado de Ollanta Humala cuestiona plazos judiciales tras presentar nueva solicitud para liberación del expresidente**: [Link](https://rpp.pe/politica/judiciales/abogado-de-ollanta-humala-cuestiona-plazos-judiciales-tras-presentar-nueva-solicitud-para-liberacion-del-expresidente-noticia-1674093)
+
+
+### rafael guzman (N/A, 03/02/2026 12:00 Lima)
+
+- **Universitario de exportación: Rafael Guzmán tiene todo cerrado para jugar en Europa**: [Link](https://depor.com/futbol-peruano/peruanos-en-el-mundo/universitario-rafael-guzman-al-real-betis-jugara-en-juvenil-a-informan-desde-espana-para-terminar-su-formacion-en-europa-liga-1-fichajes-noticia/)
+- **Rafael Guzmán, ‘joya’ de Universitario, a un paso de ser nuevo jugar del Real Betis de España: defensor jugará en el Juvenil A**: [Link](https://larepublica.pe/futbol-peruano/2026/02/03/rafael-guzman-joya-de-universitario-a-un-paso-de-ser-nuevo-jugar-del-real-betis-de-espana-defensor-jugaria-en-el-juvenil-a-63075)
+- **Real Betis fichó a figura de Universitario que obtuvo el tricampeonato: "Está inscrito"**: [Link](https://libero.pe/futbol-peruano/universitario/2026/02/03/real-betis-ficho-figura-de-universitario-obtuvo-tricampeonato-inscrito-35058)
+
+
+### sat (N/A, 03/02/2026 12:00 Lima)
+
+- **College Board Bans Smart Glasses During SAT**: [Link](https://www.insidehighered.com/news/students/academics/2026/02/02/college-board-prohibits-wearing-smart-glasses-during-sat)
+- **IPS FILM ROOM: Darrion Williams Exits Wake Early... What Happened?**: [Link](https://insidepacksports.com/s/17945/ips-film-room-darrion-williams-exits-wake-early-what-happened)
+- **Why Darrion Williams Sat Late Despite Scoring 20**: [Link](https://www.si.com/college/ncstate/why-darrion-williams-sat-late-despite-scoring-20)
+
+
+### kitco (N/A, 03/02/2026 12:00 Lima)
+
+- **Gold and silver rebound, pulling global mining stocks and precious metal ETFs higher**: [Link](https://www.cnbc.com/2026/02/03/gold-and-silver-rebound-after-historic-wipeout-as-analysts-say-thematic-drivers-stay-intact-.html)
+- **It’s been a weird few days on Wall Street**: [Link](https://www.cnn.com/2026/02/02/investing/gold-silver-bitcoin-us-stock-market)
+- **A single Trump announcement sparks billions in losses across gold and silver**: [Link](https://www.foxnews.com/politics/single-trump-announcement-sparks-billions-losses-across-gold-silver)
+
+
+### selena gomez (N/A, 03/02/2026 12:00 Lima)
+
+- **Selena Gomez Opts for Sheer Tights Instead of Pants at Event Marking Major Rare Beauty Milestone**: [Link](https://www.instyle.com/selena-gomez-rare-beauty-ulta-launch-black-ensemble-11896972)
+- **Selena Gomez ditched the bra and declared she's feeling 'a little sexy'**: [Link](https://www.dailystar.co.uk/showbiz/selena-gomez-says-shes-feeling-36664043)
+- **Selena Gomez Hilariously Poses in Face Mask and Bunny Ears in Fun Photo Carousel: 'Lately'**: [Link](https://people.com/selena-gomez-face-mask-bunny-ears-11898149)
+
+
 ### timberwolves - grizzlies (N/A, 03/02/2026 08:14 Lima)
 
 - **Anthony Edwards, Julius Randle lead Timberwolves to a 131-114 victory over the Grizzlies**: [Link](https://apnews.com/article/timberwolves-grizzlies-score-4f8b3cfe805a8ddb37d38cca408c86fa)
@@ -1000,40 +1035,5 @@ defender for his squad**: [Link](https://www.vavel.com/en/football/2026/01/31/ar
 - **Cherry Bomb: VIX Heat Check; Why Feb Looks Underpriced vs. March**: [Link](https://www.tastylive.com/news-insights/cherry-bomb-vix-feb-looks-underpriced-march)
 - **‘El Mochaorejas’ Becomes ViX’s Most-Watched Series And Debuts In Spain**: [Link](https://www.forbes.com/sites/veronicavillafane/2026/01/30/el-mochaorejas-becomes-vixs-most-watched-series-and-debuts-in-spain/)
 - **Vix To Livestream Kanye West’s Concerts In Mexico**: [Link](https://deadline.com/2026/01/vix-livestream-kanye-wes-concerts-mexico-1236699016/)
-
-
-### juárez - cruz azul (N/A, 31/01/2026 00:04 Lima)
-
-- **FC Juárez vs Cruz Azul: posibles alineaciones, Jornada 4**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/16249446/fc-juarez-vs-cruz-azul-alineaciones-jornada-4-clausura-2026)
-- **Transmisión EN VIVO del Juárez vs Cruz Azul hoy: cómo mirar el partido por TV o streaming**: [Link](https://www.365scores.com/es/news/juarez-vs-cruz-azul-transmision-vivo-tv/)
-- **EN VIVO: Cruz Azul se lleva la victoria parcial 3-1 sobre FC Juárez al finalizar el primer tiempo**: [Link](https://www.t13.cl/noticia/deportes13/en-vivo-cruz-azul-se-lleva-la-victoria-parcial-3-1-sobre-fc-juarez-al-finalizar-el-primer-tiempo-31)
-
-
-### alejandra baigorria (N/A, 31/01/2026 00:04 Lima)
-
-- **¡A solo un sol! Alejandra Baigorria paraliza las redes con histórico remate de su marca: ¿Cómo y dónde comprar?**: [Link](https://www.atv.pe/noticia/a-solo-un-sol-alejandra-baigorria-paraliza-las-redes-con-historico-remate-de-su-marca-como-y-donde-comprar/)
-- **Alejandra Baigorria remata ropa de su marca: prendas de temporada y nueva colección a solo S/1**: [Link](https://wapa.pe/moda-y-belleza/2026/01/30/alejandra-baigorria-remata-ropa-su-marca-prendas-temporada-nueva-coleccion-solo-s1-346650)
-- **Said Palao encendió las redes con sensual publicación**: [Link](https://www.americatv.com.pe/noticias/espectaculos/said-palao-encendio-redes-sensual-publicacion-semidesnudo-n515345)
-
-
-### wizards - lakers (N/A, 31/01/2026 00:04 Lima)
-
-- **Luka Doncic has a triple-double (26 points, 11 assists, 10 rebounds) before halftime**: [Link](https://apnews.com/article/los-angeles-lakers-luka-doncic-tripledouble-9a0c3278b8414d337b1712857ad63e51)
-- **NBL Next 'Sarr' witness to Doncic's greatness**: [Link](https://www.basketball.com.au/news/luka-doncic-fastest-30-point-triple-double-nba-history-lakers-wizards-2026)
-- **Lakers 142-111 Wizards (31 Jan, 2026) Game Recap**: [Link](https://www.espn.in/nba/recap/_/gameId/401810543)
-
-
-### kick (N/A, 30/01/2026 21:28 Lima)
-
-- **Clavicular reveals how Kick’s creator incentive program powered his massive January payout**: [Link](https://timesofindia.indiatimes.com/world/us-streamers/clavicular-reveals-how-kicks-creator-incentive-program-powered-his-massive-january-payout/articleshow/127790413.cms)
-- **Here's how much Clavicular really earns through the Kick KCIP**: [Link](https://win.gg/how-much-clavicular-earns-kick-kcip/)
-- **Back-to-back champs kick off season with VIP fan experiences**: [Link](https://sports.yahoo.com/articles/back-back-champs-kick-off-212750533.html)
-
-
-### oro (N/A, 30/01/2026 21:28 Lima)
-
-- **Oro y plata sufren mayor desplome en años tras rebote del dólar por nominación de Warsh en la Fed**: [Link](https://gestion.pe/mundo/internacional/oro-y-plata-sufren-mayor-desplome-en-anos-tras-rebote-del-dolar-por-nominacion-de-warsh-noticia/)
-- **Gold tops $5,600 per ounce as Bitcoin crashes to $84,000**: [Link](https://www.cryptopolitan.com/gold-tops-5600-per-ounce/)
-- **¿Por qué el oro superó la marca de los US$5,300 la onza?**: [Link](https://peru21.pe/economia/por-que-el-oro-supero-la-marca-de-los-us5300-la-onza/)
 
 
