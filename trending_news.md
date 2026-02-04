@@ -1,3 +1,73 @@
+### gta vi (N/A, 03/02/2026 21:34 Lima)
+
+- **GTA 6 Marketing Will Kick Off This Summer, as Take-Two Confidently Reaffirms November Release Date**: [Link](https://www.ign.com/articles/gta-6-marketing-will-kick-off-this-summer-as-take-two-confidently-reaffirms-november-release-date)
+- **Grand Theft Auto 6 may not have a physical version on day one to avoid leaks, report claims**: [Link](https://www.videogameschronicle.com/news/grand-theft-auto-6-may-not-have-a-physical-version-on-day-one-to-avoid-leaks-report-claims/)
+- **Take-Two raises its net bookings outlook, reaffirms November release for “Grand Theft Auto 6”**: [Link](https://sherwood.news/markets/take-two-raises-its-net-bookings-outlook-reaffirms-november-release-for/)
+
+
+### copa de campeones concacaf (N/A, 03/02/2026 21:34 Lima)
+
+- **Comienza la Concacaf Champions Cup 2026, uno de los dos únicos torneos que Messi nunca ganó**: [Link](https://cnnespanol.cnn.com/2026/02/03/deportes/concacaf-champions-cup-2026-formato-cruces-orix)
+- **Comienza la Concacaf Champions Cup, uno de los pocos títulos que Messi todavía persigue**: [Link](https://www.espn.com.ar/futbol/norte-centro-america/nota/_/id/16265866/comienza-concacaf-champions-cup-uno-de-los-pocos-titulos-que-lionel-messi-persigue-inter-miami)
+- **Partidos de HOY martes 3 de febrero en la Primera Ronda de la Concachampions 2026**: [Link](https://www.tvazteca.com/aztecadeportes/partidos-hoy-martes-febrero-primera-ronda-concachampions-2026/)
+
+
+### olimpia - américa (N/A, 03/02/2026 21:34 Lima)
+
+- **📺 Canales TV para ver CD Olimpia vs. Club América EN VIVO GRATIS por la Concachampions**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/a-que-hora-juega-y-que-canal-transmite-cd-olimpia-vs-club-america-en-vivo-hoy-3-de-febrero-por-la-copa-de-campeones-de-concacaf-2026-nnda-nnrt-noticia/)
+- **¿Cómo descargar FOX One para ver partidos de Concachampions 2026?**: [Link](https://www.mediotiempo.com/actualidad/streaming/concachampions-2026-como-descargar-fox-one-para-ver-los-partidos-hoy)
+- **¡Espectacular! Así fue la llegada de la barra del América al Estadio Nacional Chelato Uclés**: [Link](https://www.diez.hn/videos/espectacular-asi-fue-la-llegada-de-la-barra-del-america-al-estadio-nacional-chelato-ucles-AM29169977)
+
+
+### independiente rivadavia - sarmiento (N/A, 03/02/2026 21:34 Lima)
+
+- **Independiente Rivadavia venció a Sarmiento y es líder del Grupo B del Apertura, con puntaje ideal**: [Link](https://www.espn.com.ar/futbol/argentina/nota/_/id/16267873/independiente-rivadavia-vs-sarmiento-junin-tercera-fecha-mendoza-torneo-apertura)
+- **EN VIVO: Independiente Riv. (M) empata 0-0 con Sarmiento por el partido de la fecha 3 del Apertura**: [Link](https://www.directvsports.com/futbol/en-vivo-independiente-riv.-m-empata-0-0-con-sarmiento-por-el-partido-de-la-fecha-3-del-apertura-20260131-0006.html)
+- **La agenda deportiva del martes llega con un partidazo de la Lepra en Mendoza**: [Link](https://mendozatoday.com.ar/2026/02/03/la-agenda-deportiva-del-martes-llega-con-un-partidazo-de-la-lepra-en-mendoza/)
+
+
+### redmi note 15 pro (N/A, 03/02/2026 21:34 Lima)
+
+- **Why Camera Hardware Is Back at the Centre of Smartphone Photography - GSMArena.com news**: [Link](https://www.gsmarena.com/why_camera_hardware_is_back_at_the_centre_of_smartphone_photography-news-71344.php)
+- **Xiaomi Redmi Note 15 Pro+ 5G with a 6500 mAh battery: again top for your money?**: [Link](https://mezha.ua/en/reviews/oglyad-xiaomi-redmi-note-15-pro-5g-z-akumulyatorom-na-6500-ma-god-znovu-top-za-svoji-groshi-308168/)
+- **Chinese tech brand Xiaomi launch smartphone line in Kenya**: [Link](https://global.chinadaily.com.cn/a/202601/31/WS697dd6a2a310d6866eb36c6a.html)
+
+
+### estaciones del tren (N/A, 03/02/2026 21:34 Lima)
+
+- **Qué pasará con la ampliación de la Línea 12 del Metro CDMX tras la inauguración del Tren Interurbano hasta Observatorio**: [Link](https://www.infobae.com/mexico/2026/02/03/que-pasara-con-la-ampliacion-de-la-linea-12-del-metro-cdmx-tras-la-inauguracion-del-tren-interurbano-hasta-observatorio/)
+- **Quedan obras pendientes para el Cetram**: [Link](https://es-us.noticias.yahoo.com/quedan-obras-pendientes-cetram-060000173.html)
+- **TREN INTERURBANO CON SOBRECOSTO DE MÁS DE 250% DENUNCIA GPPAN**: [Link](https://lineapolitica.com/tren-interurbano-con-sobrecosto-de-mas-de-250-denuncia-gppan/)
+
+
+### lakers - nets (N/A, 03/02/2026 21:34 Lima)
+
+- **Lakers vs. Nets Preview: Last stop of the roadtrip**: [Link](https://www.silverscreenandroll.com/lakers-game-previews/107010/lakers-vs-nets-discussion-injury-report-how-to-watch-tv-stream-start-time-luka-doncic-lebron-james)
+- **Los Angeles Lakers vs Brooklyn Nets Feb 3, 2026 Game Summary**: [Link](https://www.nba.com/how-to-watch-game-redirect/0022500719?partnerRef=Lakers&platform=web&surface=gameblock)
+- **Kalshi promo code NYPMAX: Trade $10, get $10! for Lakers vs. Nets**: [Link](https://nypost.com/2026/02/03/betting/kalshi-promo-code-nypmax-trade-10-get-10-for-lakers-vs-nets/)
+
+
+### atlantic city (N/A, 03/02/2026 21:34 Lima)
+
+- **Tropicana Atlantic City opens newly renovated Solana hotel tower**: [Link](https://cdcgaming.com/brief/tropicana-atlantic-city-opens-newly-renovated-solana-hotel-tower/)
+- **Experience The Blend Of Classic Charm And Modern Design At Tropicana's New Solana Tower**: [Link](https://wobm.com/solana-tower-atlantic-city/)
+- **Tropicana Atlantic City Solana Tower renovations**: [Link](https://pressofatlanticcity.com/news/video_f29f82da-7d2d-5fc7-afa3-c8fd75049a0d.html)
+
+
+### donald trump (N/A, 03/02/2026 21:34 Lima)
+
+- **Trump calls on Republicans to ‘nationalize’ future elections**: [Link](https://www.cnn.com/2026/02/03/politics/trump-calls-on-republicans-to-nationalize-future-elections)
+- **Thune rejects Trump’s call for GOP to take over and ‘nationalize’ elections**: [Link](https://thehill.com/homenews/senate/5720386-thune-trump-federal-elections/)
+- **Trump: If states can't run elections 'honestly,' then 'somebody else should take over'**: [Link](https://www.cnbc.com/2026/02/03/trump-election-government-states.html)
+
+
+### instituto - lanús (N/A, 03/02/2026 21:34 Lima)
+
+- **Cuándo juegan Instituto vs. Lanús por el Torneo Apertura: equipo, fecha, hora y TV en vivo**: [Link](https://espndeportes.espn.com/futbol/argentina/nota/_/id/16265493/instituto-vs-lanus-torneo-apertura-equipo-fecha-3-hora-tv-en-vivo)
+- **Video: el gol del hijo de Gallardo para el empate de Instituto ante Lanús**: [Link](https://www.ole.com.ar/instituto/matias-gallardo-gol-instituto-lanus-marcelo-gallardo_0_ehNNnbGycg.html)
+- **Instituto vs Lanús: Resultado EN VIVO, minuto a minuto y goles de la Liga Profesional**: [Link](https://www.365scores.com/es/news/instituto-vs-lanus-resultado-vivo-goles/)
+
+
 ### tarjeta roja (N/A, 03/02/2026 15:47 Lima)
 
 - **Giorgian De Arrascaeta y Filipe Luís comentaron la insólita expulsión de Jorge Carrascal en Flamengo**: [Link](https://www.espn.com.ar/futbol/brasil/nota/_/id/16265276/giorgian-de-arrascaeta-filipe-luis-comentaron-insolita-expulsion-jorge-carrascal-flamengo-corinthians)
@@ -964,75 +1034,5 @@ defender for his squad**: [Link](https://www.vavel.com/en/football/2026/01/31/ar
 - **Premier League: Build-up as Arsenal's Saka injured in warm-up and replaced by Madueke**: [Link](https://www.bbc.com/sport/football/live/cj9r1dnk09zt)
 - **Team news: Havertz starts, Saka injured in warm up**: [Link](https://www.arsenal.com/news/team-news-havertz-starts-saka-injured-warm)
 - **'He’s got an issue in his foot': Arteta explains Merino absence and Havertz inclusion in Arsenal lineup**: [Link](https://tribuna.com/en/news/2026-01-31-hes-got-an-issue-in-his-foot-arteta-explains-merino-absence-and-havertz-inclusion-in-arse/)
-
-
-### leipzig (N/A, 31/01/2026 11:36 Lima)
-
-- **Bunte Projektionen machen das Rathaus Rostock am 29. Januar zur Bühne für internationale Solidarität**: [Link](https://rathaus.rostock.de/de/rathaus/aktuelles_medien/bunte_projektionen_machen_das_rathaus_rostock_am_29_januar_zur_buehne_fuer_internationale_solidaritaet/372781)
-- **Bunte Projektionen machen das Rathaus Leipzig zur Bühne für internationale Solidarität**: [Link](https://www.l-iz.de/melder/wortmelder/2026/01/bunte-projektionen-machen-das-rathaus-leipzig-zur-buehne-fuer-internationale-solidaritaet-646056)
-- **Darum wird das Rathaus in Schwerin am Freitagabend mit Bildern und Fotos beleuchtet und warum es sich lohnt vorbeizuschauen**: [Link](https://schwerin.news/2026/01/29/darum-wird-das-rathaus-in-schwerin-am-freitagabend-mit-bildern-und-fotos-beleuchtet-und-warum-es-sich-lohnt-vorbeizuschauen/)
-
-
-### albacete - real zaragoza (N/A, 31/01/2026 11:36 Lima)
-
-- **Albacete - Real Zaragoza: horario, dónde ver en TV y canal del partido de LaLiga Hypermotion**: [Link](https://www.marca.com/futbol/segunda-division/2026/01/31/albacete-real-zaragoza-horario-donde-ver-tv-canal-partido-laliga-hypermotion.html)
-- **A la tercera va la victoria**: [Link](https://www.cartv.es/aragondeporte/nuestro-deporte/a-la-tercera-va-la-victoria)
-- **Partido clave en el Belmonte ante el Real Zaragoza**: [Link](https://www.albacetebalompie.es/noticias/el-alba-transmite-buenas-vibraciones-y-quiere-seguir-haciendo-vibrar-a-los-suyos)
-
-
-### paris fc - marsella (N/A, 31/01/2026 11:36 Lima)
-
-- **Liga de Francia: Olympique de Marsella se enfrentará a Paris FC por la fecha 20**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-de-francia-olympique-de-marsella-se-enfrentara-a-paris-fc-por-la-fecha-20-noticia-1673699)
-- **Pronóstico Paris - Marseille. Ligue 1 | 31/01/2026**: [Link](https://gainblers.com/pe/pronosticos/futbol/francia/ligue-1/pronostico-paris-marseille-31-01-2026/)
-- **Paris FC vs Olympique de Marsella: previa, horario y cómo llegan para la fecha 20 de la Ligue 1**: [Link](https://zona.palmsbet.pe/deportes/futbol/paris-fc-vs-olympique-de-marsella-previa-horario-y-como-llegan-para-la-fecha-20-de-la-ligue-1/)
-
-
-### hoffenheim vs (N/A, 31/01/2026 11:36 Lima)
-
-- **Preview: Hoffenheim vs Union Berlin - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/hoffenheim/preview/hoffenheim-vs-union-berlin-prediction-team-news-lineups_590980.html)
-- **Ilzer: “We're preparing for a tough game”**: [Link](https://www.tsg-hoffenheim.de/en/news/overview/2026/01/pk-union-berlin)
-- **Union Looking for Revenge Against Hoffenheim.**: [Link](https://www.fc-union-berlin.de/en/news/union-looking-for-revenge-against-hoffenheim-SmIvm9)
-
-
-### leipzig vs (N/A, 31/01/2026 11:36 Lima)
-
-- **Leipzig patzt schwer – Krimi im Krisenduell**: [Link](https://www.t-online.de/sport/fussball/bundesliga/id_101109120/bundesliga-leipzig-patzt-schwer-gegen-mainz-krimi-im-krisenduell.html)
-- **Verkehrsinfos zum Heimspiel von RB Leipzig gegen 1. FSV Mainz 05 am 31. Januar 2026**: [Link](https://www.leipzig.de/newsarchiv/news/verkehrseinschraenkungen-rund-um-bundesliga-heimspiel-von-rb-leipzig-1)
-- **Kreative Lösung: So ersetzt RB Spielmacher Baumgartner**: [Link](https://rblive.de/news/rb-aufstellung-gegen-mainz-05-so-ersetzt-leipzig-spielmacher-baumgartner-4191309)
-
-
-### deportes limache - colo-colo (N/A, 31/01/2026 11:36 Lima)
-
-- **Fernando Ortiz: "Limache es un rival que a Colo Colo le juega de una manera siempre diferente"**: [Link](https://www.espn.com.ar/futbol/chile/nota/_/id/16249009/limache-vs-colo-colo-primera-fecha-liga-de-primera-2026-fernando-ortiz)
-- **Colo Colo - Deportes Limache en vivo: Campeonato Nacional 2026, partido en directo**: [Link](https://chile.as.com/futbol/colo-colo-deportes-limache-en-vivo-campeonato-nacional-2026-partido-en-directo-f202601-d/)
-- **Cuándo juegan Limache vs. Colo Colo por la Liga de Primera 2026: equipo, fecha y hora**: [Link](https://espndeportes.espn.com/futbol/chile/nota/_/id/16246544/limache-vs-colo-colo-primera-fecha-liga-de-primera-2026-equipo-fecha-hora)
-
-
-### cuándo juega el barcelona (N/A, 31/01/2026 07:59 Lima)
-
-- **El posible once del Barça ante el Elche apunta a dos regresos**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20260131/1002611825/posible-once-barca-elche-apunta-dos-regresos.html)
-- **De Jong regresa a un Barcelona con tres lesionados ante Elche**: [Link](https://www.espn.com.ar/futbol/espana/nota/_/id/16247894/barcelona-de-jong-regresa-tres-lesionados-elche)
-- **SKY Sports EN VIVO por Internet — dónde ver partido FC Barcelona vs. Elche CF en Fútbol TV y SKY Plus Online en México**: [Link](https://gestion.pe/mix/sports/sky-sports-en-vivo-por-internet-donde-ver-partido-fc-barcelona-vs-elche-cf-en-futbol-tv-y-sky-plus-online-en-mexico-nnda-nnrt-noticia/)
-
-
-### real oviedo - girona (N/A, 31/01/2026 07:59 Lima)
-
-- **Apuestas y Pronóstico del Oviedo vs Girona 31/01/26**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2026/enero/pronostico-oviedo-vs-girona-31-01-26)
-- **Fútbol en directo l Oviedo y Girona abren el sábado**: [Link](https://www.flashscore.pe/noticias/futbol-champions-league-futbol-en-directo-l-oviedo-y-girona-abren-el-sabado/8CbN9uyG/)
-- **Ter Stegen prueba al peor ataque de Primera**: [Link](https://as.com/futbol/primera/ter-stegen-prueba-al-peor-ataque-de-primera-f202601-n/)
-
-
-### video de la cantante de explosion (N/A, 31/01/2026 07:59 Lima)
-
-- **Marilya Gonzales y el video viral de la cantante de Explosión de Iquitos**: [Link](https://www.razon.com.mx/entretenimiento/2026/01/28/marilya-gonzales-y-su-video-viral/)
-- **Caso de difusión de video íntimo es un delito criminal**: [Link](https://diariolaregion.com/caso-de-difusion-de-video-intimo-es-un-delito-criminal/)
-- **Marilya Gonzales sufre por filtración de supuesto video íntimo con expareja**: [Link](https://www.expreso.com.pe/entretenimiento/marilya-gonzales-sufre-por-filtracion-de-supuesto-video-intimo-con-expareja-gisela-valcarcel-telegram-noticia/1259900/)
-
-
-### sydney - ws wanderers (N/A, 31/01/2026 07:59 Lima)
-
-- **Sydney – Western Sydney Wanderers FC: match prediction and bet on the A-League game, January 31, 2026**: [Link](https://tribuna.com/en/news/2026-01-26-sydney-western-sydney-wanderers-fc-match-prediction-and-bet-on-the-aleague-game-january-3/)
-- **Sydney’s Rubi Sullivan looks to bring home a crucial Derby win: “We’re really going to be putting 100% in.”**: [Link](https://impetusfootball.org/2026/01/30/sydneys-rubi-sullivan-looks-to-bring-home-a-crucial-derby-win-were-really-going-to-be-putting-100-in/)
-- **Star returns with vow to ‘improve’ teammates**: [Link](https://au.news.yahoo.com/star-returns-vow-improve-teammates-235151479.html)
 
 
