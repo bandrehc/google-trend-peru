@@ -1,3 +1,10 @@
+### epstein files (N/A, 04/02/2026 03:51 Lima)
+
+- **The Government Published Dozens of Nude Photos in the Epstein Files**: [Link](https://www.nytimes.com/2026/02/01/us/nude-photos-epstein-files.html)
+- **Department of Justice Publishes 3.5 Million Responsive Pages in Compliance with the Epstein Files Transparency Act**: [Link](https://www.justice.gov/opa/video/department-justice-publishes-35-million-responsive-pages-compliance-epstein-files)
+- **Thousands of Epstein documents taken down after victims identified**: [Link](https://www.bbc.com/news/articles/cn0k65pnxjxo)
+
+
 ### san diego fc (N/A, 04/02/2026 00:11 Lima)
 
 - **San Diego FC embrace Concacaf Champions Cup debut**: [Link](https://www.mlssoccer.com/news/san-diego-fc-embrace-challenge-of-concacaf-champions-cup-debut)
@@ -1026,12 +1033,5 @@ Sin noticias relacionadas disponibles.
 - **La diferencia trascendental entre las cesiones de Iñaki Peña y Ter Stegen**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20260131/1002611874/diferencia-trascendental-cesiones-inaki-pena-ter-stegen.html)
 - **Héctor Fort, un regreso en ‘stand by’**: [Link](https://as.com/futbol/hector-fort-un-regreso-en-stand-by-f202601-n/)
 - **Iñaki Peña, junto al resto de compañeros, durante el entrenamiento previo al Elche-Barça.**: [Link](https://www.informacion.es/videos/elchecf/2026/01/30/inaki-pena-resto-companeros-durante-126270994.html)
-
-
-### caxias - internacional (N/A, 31/01/2026 15:32 Lima)
-
-- **Após derrota na estreia do Brasileiro, Inter busca reação contra o Caxias pelo Gaúcho**: [Link](https://www.terra.com.br/esportes/internacional/apos-derrota-na-estreia-do-brasileiro-inter-busca-reacao-contra-o-caxias-pelo-gaucho,00cdbab6ecdd15d202d93f511f3fe9d099hgxplp.html)
-- **Fernando Marchiori dá ‘dica’ a Paulo Pezzolano e admite procura no mercado antes de Caxias x Internacional**: [Link](https://www.mixvale.com.br/2026/01/31/fernando-marchiori-da-dica-a-paulo-pezzolano-e-admite-procura-no-mercado-antes-de-caxias-x-internacional/)
-- **Caxias x Internacional no Campeonato Gaúcho: onde assistir ao vivo, horário e escalação**: [Link](https://www.estadao.com.br/esportes/futebol/caxias-x-internacional-no-campeonato-gaucho-onde-assistir-ao-vivo-horario-e-escalacao/)
 
 
