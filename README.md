@@ -1,3 +1,72 @@
+### inter (N/A, 04/02/2026 15:41 Lima)
+
+- **Inter Milan Vs Torino – Cristian Chivu Preparing Huge Starting XI Overhaul After Cremonese Win**: [Link](https://sempreinter.com/2026/02/03/inter-milan-torino-chivu-make-numerous-starting-xi-changes/)
+- **Inter Torino Coppa Italia clash moved to Monza**: [Link](https://www.footitalia.com/news/inter-torino-coppa-italia-monza-chivu/)
+- **Marotta: ‘Inter approve of rotation, Milan have an advantage for Scudetto’**: [Link](https://onefootball.com/pt-br/noticias/marotta-inter-approve-of-rotation-milan-have-an-advantage-for-scudetto-42358931)
+
+
+### rangers - kilmarnock (N/A, 04/02/2026 15:41 Lima)
+
+- **Rangers vs Kilmarnock: Scottish Premiership radio commentary, text updates & match report**: [Link](https://www.bbc.com/sport/football/live/cp9je0z4ykgt)
+- **Rangers vs Kilmarnock LIVE! Scottish Premiership match updates, score, stream and highlights**: [Link](https://www.skysports.com/football/live-blog/11781/13503334/rangers-vs-kilmarnock-live-scottish-premiership-match-updates-score-stream-and-highlights)
+- **Rohl Praises Continuous Support From The Stands**: [Link](https://www.rangers.co.uk/article/rohl-praises-continuous-support-from-the-stands/4cpaECwMnZvv9NitzmSrMT)
+
+
+### copa francia (N/A, 04/02/2026 15:41 Lima)
+
+- **Olympique de Marsella goleó a Stade Rennais y pasó a cuartos en la Copa de Francia**: [Link](https://www.espn.com.ar/futbol/francia/nota/_/id/16267196/olympique-de-marsella-vs-stade-rennais-octavos-de-final-cuartos-copa-de-francia)
+- **Greenwood suma y sigue**: [Link](https://as.com/futbol/internacional/greenwood-suma-y-sigue-f202602-n/)
+- **Así se juega una nueva jornada en la Copa de Francia: todo lo que tenés que saber**: [Link](https://www.directvsports.com/futbol/asi-se-juega-una-nueva-jornada-en-la-copa-de-francia-todo-lo-que-tenes-que-saber-20260204-0022.html)
+
+
+### copa alemana (N/A, 04/02/2026 15:41 Lima)
+
+- **Bayer Leverkusen goleó al St. Pauli y es semifinalista de la Copa de Alemania**: [Link](https://www.espn.com.ar/futbol/alemania/nota/_/id/16261706/bayer-leverkusen-vs-st-pauli-copa-de-alemania-cuartos-de-final-equipo-fecha-hora-tv-en-vivo)
+- **Cuándo juegan Bayer Leverkusen vs. St. Pauli por la Copa de Alemania: equipo, fecha, hora y TV en vivo**: [Link](https://espndeportes.espn.com/futbol/alemania/nota/_/id/16261706/bayer-leverkusen-vs-st-pauli-copa-de-alemania-cuartos-de-final-equipo-fecha-hora-tv-en-vivo)
+- **👴 Pura experiencia para semifinales: la Werkself, más veterana en años**: [Link](https://onefootball.com/en/news/pura-experiencia-para-semifinales-la-werkself-mas-veterana-en-anos-42353847)
+
+
+### aberdeen - celtic f. c. (N/A, 04/02/2026 15:41 Lima)
+
+- **Peter Leven faces squad nightmare as Aberdeen forced to ring changes for Celtic clash**: [Link](https://www.67hailhail.com/match/peter-leven-faces-squad-nightmare-as-aberdeen-forced-to-ring-changes-for-celtic-clash/)
+- **Dundee boss Steven Pressley defends Dens Park pitch by claiming it's BEST in Premiership despite call off due to rain**: [Link](https://www.thescottishsun.co.uk/sport/15885185/dundee-steven-pressley-dens-park-pitch-postponed/)
+- **Dundee vs Motherwell Postponed | 04/02/26**: [Link](https://dundeefc.co.uk/news/dundee-vs-motherwell-postponed-04-02-26/)
+
+
+### toulouse vs (N/A, 04/02/2026 15:41 Lima)
+
+- **Toulouse-Amiens en direct**: [Link](https://www.sports.fr/football/coupe-de-france/toulouse-amiens-en-direct-988073.html)
+- **FOOTBALL (Coupe de France) : Omar Daf veut « sortir un grand match à Toulouse »**: [Link](https://gazettesports.fr/2026/02/03/football-coupe-de-france-omar-daf-veut-sortir-un-grand-match-a-toulouse/)
+- **ENTRETIEN. TFC-Amiens : "Je sens une responsabilité…" Julian Vignolo veut "respecter l’histoire argentine" de Toulouse**: [Link](https://www.ladepeche.fr/2026/02/04/entretien-tfc-amiens-je-sens-une-responsabilite-julian-vignolo-veut-respecter-lhistoire-argentine-de-toulouse-13205267.php)
+
+
+### lorient vs (N/A, 04/02/2026 15:41 Lima)
+
+- **Paris FC Faces Lorient with Full Squad of New Signings**: [Link](https://www.el-balad.com/6842894)
+- **Lorient’s Goalkeeper Kamara: Unveiling the Mystery Behind His ‘Gift’ Before Paris FC Clash**: [Link](https://www.filmogaz.com/133498)
+
+
+### psv - heerenveen (N/A, 04/02/2026 15:41 Lima)
+
+- **Live KNVB-beker | PSV in sterkste opstelling begonnen tegen sc Heerenveen**: [Link](https://www.nu.nl/sport/6384900/live-knvb-beker-psv-in-sterkste-opstelling-begonnen-tegen-sc-heerenveen.html)
+- **LIVE | SC Heerenveen halverwege de eerste helft op achterstand in Eindhoven: 1-0**: [Link](https://lc.nl/sport/sc-heerenveen/live-sc-heerenveen-halverwege-de-eerste-helft-op-achterstand-in-eindhoven-1-0-48429757.html)
+- **Opstelling PSV: Man op de bank, Gasiorowski in basis en Boadu bij selectie**: [Link](https://www.vi.nl/nieuws/opstelling-psv-man-op-de-bank-gasiorowski-in-basis-en-boadu-bij-selectie)
+
+
+### lyon (N/A, 04/02/2026 15:41 Lima)
+
+- **Shopping : quoi de neuf à Lyon ?**: [Link](https://www.lyoncapitale.fr/conso/shopping-quoi-de-neuf-a-lyon-13)
+- **Bonsoir Lyon du mercredi 4 février 2026**: [Link](https://www.bfmtv.com/lyon/replay-emissions/bonsoir-lyon/video-bonsoir-lyon-du-mercredi-4-fevrier-2026_VN-202602040800.html)
+- **Toute l’actualité de ce mardi 3 février 2026 à Lyon**: [Link](https://www.lyondemain.fr/actualite-de-ce-mardi-3-fevrier-info-lyon-bd-jean-michel-aulas/)
+
+
+### lyon fc (N/A, 04/02/2026 15:41 Lima)
+
+- **Suivez OL Lyonnes - OM en direct**: [Link](https://www.olympique-et-lyonnais.com/suivez-ol-lyonnes-om-en-direct,390050.html)
+- **Le PFC et l'OLL au rendez-vous, la sensation Dijon**: [Link](https://www.fff.fr/article/16209-le-pfc-et-l-oll-au-rendez-vous-la-sensation-dijon.html)
+- **Football. Coupe de la Ligue : OL Lyonnes à deux victoires de s’envoler pour Abidjan**: [Link](https://www.leprogres.fr/sport/2026/02/03/coupe-de-la-ligue-ol-lyonnes-a-deux-victoires-de-s-envoler-pour-abidjan)
+
+
 ### premios luces (N/A, 04/02/2026 11:57 Lima)
 
 - **Premios Luces 2026: conoce a los nominados, lista completa**: [Link](https://elcomercio.pe/luces/musica/premios-luces-2026-conoce-a-los-nominados-lista-completa-noticia/)
@@ -963,75 +1032,5 @@ Sin noticias relacionadas disponibles.
 - **Aaron Tau brise le silence après le pesage polémique de la finale Road to UFC**: [Link](https://www.mmadeferlante.com/aaron-tau-brise-le-silence-apres-le-pesage-polemique-de-la-finale-road-to-ufc/)
 - **UFC Sidney 2026 en direct streaming**: [Link](https://sportune.20minutes.fr/ufc-sidney-2026-en-direct-streaming)
 - **« Cela ne peut être qu’avantageux pour Benoît » : drôle d’horaire pour Saint Denis à Sydney, avec des combats dès 9h du matin**: [Link](https://www.leparisien.fr/sports/mma/cela-ne-peut-etre-quavantageux-pour-benoit-drole-dhoraire-pour-saint-denis-a-sydney-avec-des-combats-des-9h-du-matin-31-01-2026-UBI6VM2BUFA4NFHB73CZHLYOJE.php)
-
-
-### adele (N/A, 01/02/2026 00:23 Lima)
-
-- **Candlelight: A Tribute to Adele**: [Link](https://thesouthend.wayne.edu/local-events?_evDiscoveryPath=/event%2F124945v-candlelight-a-tribute-to-adele)
-- **Quote of the Day by Oprah Winfrey: 'The more you praise and celebrate…'—Here are some inspiring quotes by**: [Link](https://m.economictimes.com/news/international/us/quote-of-the-day-by-oprah-winfrey-the-more-you-praise-and-celebratehere-are-some-inspiring-quotes-by-the-incredible-philanthropist-on-her-birthday/articleshow/127773001.cms)
-- **Oprah Winfrey Celebrates Her 72nd Birthday With an Unexpected 72-Minute Activity**: [Link](https://www.instyle.com/oprah-celebrates-72nd-birthday-72-minute-workout-11896604)
-
-
-### ufc en vivo (N/A, 01/02/2026 00:23 Lima)
-
-- **UFC 325: Resultados Pesaje Oficial**: [Link](https://www.ufcespanol.com/news/ufc-325-resultados-pesaje-oficial)
-- **UFC 325 con la revancha Volkanovski vs. Diego Lopes como plato fuerte: cartelera, previa, hora y cómo ver por TV e internet**: [Link](https://cnnespanol.cnn.com/2026/01/30/deportes/ufc-325-volkanovski-lopes-cartelera-hora-orix)
-- **📱 Canales TV para mirar la pelea del UFC 325: Volkanovski — Lopes 2 EN VIVO EN DIRECTO por el título peso pluma**: [Link](https://gestion.pe/mix/sports/a-que-hora-inicia-y-en-que-canal-transmiten-el-ufc-325-volkanovski-vs-lopes-en-vivo-por-la-pelea-estelar-en-usa-mexico-y-espana-horarios-en-el-mundo-nnda-nnrt-noticia/)
-
-
-### rafael fiziev (N/A, 01/02/2026 00:23 Lima)
-
-- **Mauricio Ruffy dedicates UFC 325 KO over Rafael Fiziev to late brother who died by suicide**: [Link](https://bloodyelbow.com/2026/01/31/mauricio-ruffy-dedicates-ufc-325-ko-over-rafael-fiziev-to-late-brother-who-died-by-suicide/)
-- **"Let me put on a show" - Mauricio Ruffy targets Conor McGregor and Paddy Pimblett after impressive Rafael Fiziev TKO win**: [Link](https://www.sportskeeda.com/mma/news-let-put-show-mauricio-ruffy-targets-conor-mcgregor-paddy-pimblett-impressive-rafael-fiziev-tko-win)
-- **Mauricio Ruffy stops Rafael Fiziev at UFC 325**: [Link](https://www.mmaweekly.com/news/mauricio-ruffy-stops-rafael-fiziev-at-ufc-325)
-
-
-### ufc hoy (N/A, 31/01/2026 21:54 Lima)
-
-- **📱 Canales TV para ver la pelea del UFC 325: Volkanovski vs. Lopes 2 EN VIVO AHORA por el título peso pluma**: [Link](https://gestion.pe/mix/sports/a-que-hora-inicia-y-en-que-canal-transmiten-el-ufc-325-volkanovski-vs-lopes-en-vivo-por-la-pelea-estelar-en-usa-mexico-y-espana-horarios-en-el-mundo-nnda-nnrt-noticia/)
-- **UFC 325 en vivo: ¿A qué hora inicia, cartelera y dónde ver el Volkanovski vs Lopes 2 por el título de peso pluma?**: [Link](https://rpp.pe/lucha/ufc/ufc-325-volkanovski-vs-lopes-2-en-vivo-fecha-horario-cartelera-y-donde-ver-en-usa-sudamerica-y-espana-por-titulo-via-paramount-plus-online-noticia-1673823)
-- **Video de pesaje de UFC 325: Volkanovski vs. López 2**: [Link](https://www.elpueblo.pe/deportes/video-de-pesaje-de-ufc-325-volkanovski-vs-lopez-2/235839/)
-
-
-### tallison teixeira (N/A, 31/01/2026 21:54 Lima)
-
-- **Tai Tuivasa vs. Tallison Teixeira prediction, time for UFC 325**: [Link](https://mmajunkie.usatoday.com/story/sports/ufc/2026/01/31/tai-tuivasa-vs-tallison-teixeira-ufc-325-prediction-expert-pick/88442812007/)
-- **‘Who is this guy?’: Cult hero’s wild 30kg drop and why he’s eyeing chaos in ‘s***’ division**: [Link](https://www.foxsports.com.au/ufc/ufc-325-tai-tuivasa-weight-loss-ahead-of-tallison-teixeira-sydney-fight-return-of-the-shoey-preview-latest-news/news-story/1f1374f2336711893089b15affacacda)
-- **Teixeira vs Tuivasa best bet: Under 1.5 rounds at UFC 325**: [Link](https://www.mmamania.com/ufc-325-results-volkanovski-lopes-2/418426/heres-mmamania-coms-ufc-325-betting-odds-weekend-lock-whats-yours)
-
-
-### paramount plus (N/A, 31/01/2026 21:54 Lima)
-
-- **3 new to Paramount+ movies you need to stream this weekend (Jan. 30-Feb. 1)**: [Link](https://www.tomsguide.com/entertainment/paramount-plus/3-new-to-paramount-movies-you-need-to-stream-this-weekend-jan-30-feb-1-2026)
-- **New on Paramount+ in February 2026: All the new shows and movies to watch**: [Link](https://www.tomsguide.com/entertainment/paramount-plus/new-on-paramount-in-february-2026-all-the-new-shows-and-movies-to-watch)
-- **Paramount+: best new shows & films streaming February 2026**: [Link](https://www.screenhub.com.au/news/what-to-watch/paramount-best-new-shows-films-streaming-february-2026-2691822/)
-
-
-### laura huarcayo (N/A, 31/01/2026 21:54 Lima)
-
-- **Pamela López pasa momento incómodo delante de su hija al ser confundida con Pamela Franco**: [Link](https://www.atv.pe/noticia/pamela-lopez-pasa-momento-incomodo-delante-de-su-hija-al-ser-confundida-con-pamela-franco/)
-- **Laura Huarcayo comete error en vivo durante 'MQM' y confunde a Pamela López con Pamela Franco**: [Link](https://larepublica.pe/espectaculos/2026/01/29/laura-huarcayo-comete-error-en-vivo-durante-mqm-y-confunde-a-pamela-lopez-con-pamela-franco-atmp-621238)
-- **Laura Huarcayo protagonizó incómodo error en TV al llamar Pamela Franco a Pamela López**: [Link](https://www.moda.com.pe/noticias/espectaculos/laura-huarcayo-protagonizo-incomodo-error-en-tv-al-llamar-pamela-franco-a-pamela-lopez-video/)
-
-
-### quillan salkilld (N/A, 31/01/2026 21:54 Lima)
-
-- **UFC 325 : Un talent à surveiller de près !**: [Link](https://www.lesnews.ca/sports/mma/ufc-325-un-talent-a-surveiller-de-pres/)
-- **UFC 325 : Nouvelle victoire éclair pour le phénomène Quillan Salkilld**: [Link](https://lasueur.com/ufc-325-nouvelle-victoire-eclair-phenomene-quillan-salkilld-1-2-2026)
-- **Teixeira contre Tuivasa : Pariez sur moins de 1,5 rounds à l’UFC 325 !**: [Link](https://www.lesnews.ca/sports/mma/teixeira-contre-tuivasa-pariez-sur-moins-de-15-rounds-a-lufc-325/)
-
-
-### billie eilish (N/A, 31/01/2026 21:54 Lima)
-
-- **Billie Eilish Concert Doc Release Pushed to May; James Cameron Says ‘We’re Dialing in Cool, New 3D Tech’**: [Link](https://variety.com/2026/film/news/billie-eilish-james-cameron-concert-doc-release-may-1236641205/)
-- **James Cameron's Next Movie Officially Delayed As Avatar 3 Continues $1.3B Box Office Run**: [Link](https://screenrant.com/james-cameron-billie-eilish-hit-me-hard-soft-documentary-release-delay/)
-- **Billie Eilish Concert Film ‘Hit Me Hard And Soft: The Tour (Live in 3D)’ Shifts To May Release**: [Link](https://deadline.com/2026/01/billie-eilish-concert-film-release-date-shift-1236697088/)
-
-
-### ufc (N/A, 31/01/2026 21:54 Lima)
-
-- **Live Now! UFC 325 ‘Volkanovski vs. Lopes 2’ Play-by-Play, Results & Round Scoring**: [Link](https://www.sherdog.com/news/news/UFC-325-Volkanovski-vs-Lopes-2-PlaybyPlay-Results-Round-Scoring-199946)
-- **BetMGM bonus code CBSSPORTS: Get $150 in bonus bets for Mavericks-Rockets, UConn-Creighton, UFC 325 tonight**: [Link](https://www.cbssports.com/nba/news/betmgm-bonus-code-cbssports-get-150-bonus-bets-mavericks-rockets-uconn-creighton-ufc-325-tonight/)
-- **Alexander Volkanovski admitted he will retire at UFC 325 if one thing happens**: [Link](https://bloodyelbow.com/2026/01/31/alexander-volkanovski-admitted-he-will-retire-at-ufc-325-if-one-thing-happens/)
 
 
