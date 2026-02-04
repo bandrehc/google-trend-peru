@@ -1,3 +1,10 @@
+### asteroide (N/A, 04/02/2026 08:12 Lima)
+
+- **Un asteroide dejó de ser una amenaza para la Tierra. El nuevo problema es lo que podría hacerle a la Luna: una posible colisión podría lanzar miles de fragmentos lunares hacia nuestro planeta**: [Link](https://es.gizmodo.com/asteroide-dejo-de-ser-una-amenaza-para-la-tierra-el-nuevo-problema-es-lo-que-podria-hacerle-a-la-luna-una-posible-colision-podria-lanzar-miles-de-fragmentos-lunares-hacia-nuestro-planeta-2000217295)
+- **Los astrónomos alertan del mayor impacto jamás observado en la Luna**: [Link](https://www.eltiempo.es/noticias/impacto-lunar-asteroide)
+- **¿Peligro en el espacio? La NASA aclara si el asteroide 2024 YR4 impactará la Luna**: [Link](https://abcnoticias.mx/global/2026/2/3/peligro-en-el-espacio-la-nasa-aclara-si-el-asteroide-2024-yr4-impactara-la-luna-272640.html)
+
+
 ### epstein files (N/A, 04/02/2026 03:51 Lima)
 
 - **The Government Published Dozens of Nude Photos in the Epstein Files**: [Link](https://www.nytimes.com/2026/02/01/us/nude-photos-epstein-files.html)
@@ -1026,12 +1033,5 @@ Sin noticias relacionadas disponibles.
 - **Perú logró una histórica clasificación a semifinales**: [Link](https://copaamerica.com/es/novedades/cronica-uruguay-peru-copa-america-futsal-2026)
 - **Selección Peruana de Futsal en semifinales**: [Link](https://caretas.pe/deportes/seleccion-peruana-de-futsal-en-semifinales/)
 - **¡HISTÓRICO! Selección Peruana clasificó a la semifinal de la Copa América de Futsal**: [Link](https://peru21.pe/deportes/historico-seleccion-peruana-clasifico-semifinal-copa-america-de-futsal/)
-
-
-### iñaki peña (N/A, 31/01/2026 15:32 Lima)
-
-- **La diferencia trascendental entre las cesiones de Iñaki Peña y Ter Stegen**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20260131/1002611874/diferencia-trascendental-cesiones-inaki-pena-ter-stegen.html)
-- **Héctor Fort, un regreso en ‘stand by’**: [Link](https://as.com/futbol/hector-fort-un-regreso-en-stand-by-f202601-n/)
-- **Iñaki Peña, junto al resto de compañeros, durante el entrenamiento previo al Elche-Barça.**: [Link](https://www.informacion.es/videos/elchecf/2026/01/30/inaki-pena-resto-companeros-durante-126270994.html)
 
 
