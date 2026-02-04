@@ -1,3 +1,73 @@
+### san diego fc (N/A, 04/02/2026 00:11 Lima)
+
+- **San Diego FC embrace Concacaf Champions Cup debut**: [Link](https://www.mlssoccer.com/news/san-diego-fc-embrace-challenge-of-concacaf-champions-cup-debut)
+- **The Unfinished Business: Pumas and the Longest Drought Among the Giants in Concacaf**: [Link](https://www.soyfutbol.com/en/news/the-unfinished-business-pumas-and-the-longest-drought-among-the-giants-in-concacaf-20260203-0061.html)
+- **SDFC to build on inaugural year success in fast-approaching second season**: [Link](https://thedailyaztec.com/125901/sports/flow-state-sdfc-looking-to-build-on-their-inaugural-year-success-in-a-fast-approaching-second-season/)
+
+
+### precio dolar peru (N/A, 04/02/2026 00:11 Lima)
+
+- **Dólar inicia la jornada a la baja: ¿en cuánto se cotiza el billete verde?**: [Link](https://peru21.pe/economia/dolar-inicia-jornada-la-baja-en-cuanto-se-cotiza-el-billete-verde/)
+- **Precio del dólar en Perú: a cuánto cerró el tipo de cambio el martes 3 de febrero**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-a-cuanto-esta-el-dolar-y-tipo-de-cambio-este-martes-3-de-febrero-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
+- **El dólar rompe su tendencia a la baja en Perú e inicia febrero en S/ 3,37: ¿Qué hay detrás de este repunte?**: [Link](https://rpp.pe/economia/economia/el-dolar-rompe-su-tendencia-a-la-baja-en-peru-que-hay-detras-del-salto-noticia-1674256)
+
+
+### nataniel sánchez (N/A, 04/02/2026 00:11 Lima)
+
+- **¿Nataniel Sánchez no volverá a AFHS?**: [Link](https://www.americatv.com.pe/mande-quien-mande/nataniel-sanchez-descarto-volver-afhs-noticia-162743)
+- **Con un emotivo abrazo, Erick Elera y Nataniel Sánchez recuerdan sus personajes en 'Al fondo hay sitio'**: [Link](https://rpp.pe/famosos/farandula/erick-elera-y-nataniel-sanchez-tienen-emotivo-reencuentro-al-recordar-sus-personajes-en-al-fondo-hay-sitio-noticia-1674312)
+- **Saskia Bernaola se sincera sobre el reto de dirigir una película por primera vez: “Yo soy una payasa y me gusta hacer reír”**: [Link](https://larepublica.pe/cine-series/2026/02/03/saskia-bernaola-se-sincera-sobre-el-reto-de-dirigir-una-pelicula-por-primera-vez-yo-soy-una-payasa-y-me-gusta-hacer-reir-190179)
+
+
+### san diego fc - pumas (N/A, 04/02/2026 00:11 Lima)
+
+- **Transmisión EN VIVO del San Diego vs Pumas hoy: cómo mirar el partido por TV o streaming**: [Link](https://www.365scores.com/es/news/san-diego-vs-pumas-como-ver-transmision/)
+- **Godoy y Carrasquilla ponen a prueba el sello panameño de MLS en la Concacaf**: [Link](https://es.mlssoccer.com/noticias/anibal-godoy-y-adalberto-coco-carrasquilla-ponen-a-prueba-el-sello-panameno-de-mls-en-la-copa-de-campeones-de-concacaf-2026)
+- **Keylor Navas vuelve a la Copa de Campeones de Concacaf: Inicia el juego con San Diego asustando al tico**: [Link](https://www.nacion.com/puro-deporte/futbol/keylor-navas-vuelve-a-la-copa-de-campeones-de/JAZJXEJWJ5FIBLQUI2OBTCJGBM/story/)
+
+
+### se cayó chatgpt (N/A, 04/02/2026 00:11 Lima)
+
+- **Caída de ChatGPT y API de OpenAI afecta a usuarios a nivel global**: [Link](https://andina.pe/agencia/noticia-caida-chatgpt-y-api-openai-afecta-a-usuarios-a-nivel-global-1061764.aspx)
+- **Chat GPT cae hoy 3 de Febrero 2026: Esto sabemos hasta el momento**: [Link](https://www.informabtl.com/chat-gpt-cae-hoy-3-de-febrero-2026-esto-sabemos-hasta-el-momento/)
+- **¿ChatGPT caído? Cuatro alternativas de inteligencia artificial para escribir textos y resolver dudas**: [Link](https://www.nacion.com/tecnologia/chatgpt-caido-cuatro-alternativas-de-inteligencia/2B5BBGRXYFEHXNKVCOKJNC6LN4/story/)
+
+
+### kate hudson (N/A, 04/02/2026 00:11 Lima)
+
+- **Kate Hudson Poses in a Sunny Yellow String Bikini for a Cheeky Winter Swim in France**: [Link](https://www.instyle.com/kate-hudson-yellow-string-bikini-swimming-pool-france-11897525)
+- **At 46, Kate Hudson shares her Parisian looks and her winter bath in France**: [Link](https://www.msn.com/en-ie/lifestyle/style/at-46-kate-hudson-shares-her-parisian-looks-and-her-winter-bath-in-france/ar-AA1VzRN2)
+- **Kate Hudson Poses in a Sunny Yellow String Bikini for a Cheeky Winter Swim in France**: [Link](https://www.aol.com/articles/kate-hudson-poses-sunny-yellow-183237792.html)
+
+
+### petro donald trump (N/A, 04/02/2026 00:11 Lima)
+
+- **Colombian President Gustavo Petro Meets with Trump at the White House**: [Link](https://www.nytimes.com/2026/02/03/us/politics/colombia-petro-trump-meeting.html)
+- **Trump-Petro updates: US, Colombia leaders meet at White House amid tensions**: [Link](https://www.aljazeera.com/news/liveblog/2026/2/3/live-trump-petro-to-meet-at-the-white-house-after-months-of-tensions)
+- **Trump and Petro trade insults for restraint amid continued detente**: [Link](https://www.politico.com/news/2026/02/03/trump-extends-a-fragile-truce-with-colombias-petro-00763723)
+
+
+### 76ers - warriors (N/A, 04/02/2026 00:11 Lima)
+
+- **76ers vs Warriors Odds & Picks Tonight: Fade the Points With Stars Sidelined**: [Link](https://www.oddsshark.com/nba/sixers-warriors-picks-odds-february-3-2026)
+- **Joel Embiid is OUT for tonight's game against the …**: [Link](https://sports.yahoo.com/articles/joel-embiid-tonights-game-against-212455591.html)
+- **Warriros vs 76ers LIVE Score Updates: Thrilling NBA night (71-84)**: [Link](https://www.vavel.com/en-us/nba/2026/02/04/1249613-warriros-vs-76ers-live-score-nba.html)
+
+
+### cronograma pago onp (N/A, 04/02/2026 00:11 Lima)
+
+- **Confirmado: ONP habilita pago y reajuste de pensiones en febrero, revisa tu cronograma**: [Link](https://elperuano.pe/noticia/288388-confirmado-onp-habilita-pago-y-reajuste-de-pensiones-en-febrero-revisa-tu-cronograma)
+- **Reajustan pensiones del régimen 20530 [Decreto Supremo 009-2026-EF]**: [Link](https://lpderecho.pe/reajustan-pensiones-regimen-decreto-ley-20530-decreto-supremo-009-2026-ef/)
+- **Buenas noticias para pensionistas: ONP pagará aumento de S/30 en febrero y beneficiará a mayores de 65 años**: [Link](https://larepublica.pe/economia/2026/02/01/buenas-noticias-para-pensionistas-onp-pagara-aumento-de-s30-en-febrero-y-beneficiara-a-mayores-de-65-anos-atmp-67022)
+
+
+### elon musk (N/A, 04/02/2026 00:11 Lima)
+
+- **Elon Musk’s mega-merger makes little business sense**: [Link](https://www.economist.com/business/2026/02/03/elon-musks-mega-merger-makes-little-business-sense)
+- **'Muskonomy' shakeup: SpaceX valuation approaches Tesla's after merger with xAI**: [Link](https://www.cnbc.com/2026/02/03/muskonomy-shakeup-spacex-valuation-after-xai-merger-nears-tesla.html)
+- **Elon Musk Just Became The First Person Ever Worth $800 Billion After SpaceX Acquired xAI**: [Link](https://www.forbes.com/sites/mattdurot/2026/02/03/elon-musk-just-became-the-first-person-ever-worth-800-billion-after-spacex-acquired-xai/)
+
+
 ### gta vi (N/A, 03/02/2026 21:34 Lima)
 
 - **GTA 6 Marketing Will Kick Off This Summer, as Take-Two Confidently Reaffirms November Release Date**: [Link](https://www.ign.com/articles/gta-6-marketing-will-kick-off-this-summer-as-take-two-confidently-reaffirms-november-release-date)
@@ -963,76 +1033,5 @@ Sin noticias relacionadas disponibles.
 - **Após derrota na estreia do Brasileiro, Inter busca reação contra o Caxias pelo Gaúcho**: [Link](https://www.terra.com.br/esportes/internacional/apos-derrota-na-estreia-do-brasileiro-inter-busca-reacao-contra-o-caxias-pelo-gaucho,00cdbab6ecdd15d202d93f511f3fe9d099hgxplp.html)
 - **Fernando Marchiori dá ‘dica’ a Paulo Pezzolano e admite procura no mercado antes de Caxias x Internacional**: [Link](https://www.mixvale.com.br/2026/01/31/fernando-marchiori-da-dica-a-paulo-pezzolano-e-admite-procura-no-mercado-antes-de-caxias-x-internacional/)
 - **Caxias x Internacional no Campeonato Gaúcho: onde assistir ao vivo, horário e escalação**: [Link](https://www.estadao.com.br/esportes/futebol/caxias-x-internacional-no-campeonato-gaucho-onde-assistir-ao-vivo-horario-e-escalacao/)
-
-
-### monaco vs (N/A, 31/01/2026 15:32 Lima)
-
-- **Liga de Francia: Stade Rennes visita a Mónaco por la fecha 20**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-de-francia-stade-rennes-visita-a-monaco-por-la-fecha-20-noticia-1673736)
-- **Mónaco vs Stade Rennes: previa, horario y cómo llegan para la fecha 20 de la Ligue 1**: [Link](https://zona.palmsbet.pe/deportes/futbol/monaco-vs-stade-rennes-previa-horario-y-como-llegan-para-la-fecha-20-de-la-ligue-1/)
-- **Monaco predicted XI v Rennes: Denis Zakaria drops into defence**: [Link](https://sports.yahoo.com/articles/monaco-predicted-xi-v-rennes-093500354.html)
-
-
-### juan pablo ii college - fc cajamarca (N/A, 31/01/2026 15:32 Lima)
-
-- **Juan Pablo II vs FC Cajamarca: A qué hora juegan y cómo seguir el Torneo Apertura 2026**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/juan-pablo-ii-vs-fc-cajamarca-en-vivo-horario-y-donde-ver-el-torneo-apertura-2026-liga-1-l1play-l1max-video-transmision-tdpe-noticia/)
-- **Juan Pablo II puso a la venta boletos para duelo ante FC Cajamarca**: [Link](https://ovacion.pe/noticias/juan-pablo-ii-college/juan-pablo-ii-puso-venta-boletos-duelo-ante-fc-cajamarca)
-- **Juan Pablo II vs. FC Cajamarca: Pronóstico y cuando juegan por la Fecha 1 del Torneo Apertura de la Liga 1**: [Link](https://www.futbolperuano.com/liga-1/noticias/juan-pablo-ii-vs-fc-cajamarca-en-vivo-online-por-la-fecha-1-del-torneo-apertura-de-la-liga-1-561868)
-
-
-### angel montoya rio cauca (N/A, 31/01/2026 15:32 Lima)
-
-- **Influencer Ángel Montoya fue hallado sin vida tras desaparecer durante un reto viral en el río Cauca**: [Link](https://larepublica.pe/espectaculos/2026/01/31/influencer-angel-montoya-fue-hallado-sin-vida-tras-desaparecer-durante-un-reto-viral-en-el-rio-cauca-594146)
-- **VIDEO: Joven se tira a un río desde un puente para cumplir un reto y lo encuentran sin vida**: [Link](https://emisorasunidas.com/viral/2026/01/30/joven-se-tira-a-rio-y-lo-encuentran-sin-vida/)
-- **Colombia: hallan sin vida a hombre tras video vinculado a un supuesto reto en redes**: [Link](https://www.eltelegrafo.com.ec/noticias/tendencias/213/colombia-hallan-sin-vida-hombre-video-reto-redes)
-
-
-### pouso alegre futebol clube - atlético mineiro (N/A, 31/01/2026 15:32 Lima)
-
-- **📋 Sampaoli muda quase o time todo para jogo pelo Campeonato Mineiro**: [Link](https://onefootball.com/pt-br/noticias/sampaoli-muda-quase-o-time-todo-para-jogo-pelo-campeonato-mineiro-42336870)
-- **Família de São Sebastião da Bela Vista viaja a Pouso Alegre para ver o Atlético pela primeira vez**: [Link](https://www.otempo.com.br/sports/atletico/2026/1/31/familia-de-sao-sebastiao-da-bela-vista-viaja-a-pouso-alegre-para-ver-o-atletico-pela-primeira-vez)
-- **Avião do Atlético-MG não consegue pousar no interior de Minas e vai para Campinas**: [Link](https://www.gazetaesportiva.com/futebol/aviao-do-atletico-mg-nao-consegue-pousar-no-interior-de-minas-e-vai-para-campinas/)
-
-
-### cagliari vs (N/A, 31/01/2026 15:32 Lima)
-
-- **Levante vs. Atlético (31 de Ene., 2026) Resultados en Vivo**: [Link](https://www.espn.com.pe/futbol/partido/_/juegoId/748357)
-- **✅ Cagliari vs Verona line-ups: Kilicsoy, Esposito, Orban choices**: [Link](https://sports.yahoo.com/articles/cagliari-vs-verona-line-ups-185600133.html)
-- **Cagliari vs Hellas Verona Prediction, 1/31/2026 Soccer Pick, Tips and Odds**: [Link](https://www.docsports.com/free-picks/soccer/2026/cagliari-vs-hellas-verona-prediction-1-31-2026-soccer-pick-tips-and-odds.html)
-
-
-### barcelona vs. copenhague (N/A, 31/01/2026 15:32 Lima)
-
-- **Flick: “La Premier es la primera liga...”**: [Link](https://as.com/futbol/champions/flick-la-premier-es-la-primera-liga-f202601-n/)
-- **Lamine Yamal: asistencia y gol para Barcelona en 12 minutos**: [Link](https://www.espn.com.ar/futbol/champions-league/nota/_/id/16240730/barcelona-vs-copenhague-fase-liga-fecha-8-champions-league-equipo-fecha-hora-tv-en-vivo)
-- **¡Fiesta blaugrana! Barcelona golea 4‑1 al Copenhague y avanza directo a octavos de Champions**: [Link](https://caretas.pe/deportes/barcelona-golea-copenhague-champions-2026/)
-
-
-### napoli - fiorentina (N/A, 31/01/2026 11:36 Lima)
-
-- **A Dazn: «L'umore oggi dev'essere alto, tutto è ancora possibile. Non abbiamo tempo di abbatterci, ci sono partite da giocare»**: [Link](https://www.facebook.com/story.php?story_fbid=1418621083609876&id=100063859936263)
-- **Diretta Napoli-Fiorentina oggi, Serie A. Risultato live**: [Link](https://www.adnkronos.com/sport/diretta-napoli-fiorentina-oggi-serie-a-risultato-live_1nUqBl1N0CjbExVqhdROD8)
-- **Volpecina: "Anche l’anno scorso abbiamo avuto tanti infortuni muscolari, possiamo recuperare l'Inter"**: [Link](https://www.calcionapoli24.it/le_interviste/volpecina-anche-lanno-scorso-abbiamo-avuto-tanti-infortuni-muscolari-possiamo-recuperare-l-inter-n677224.html)
-
-
-### paris fc (N/A, 31/01/2026 11:36 Lima)
-
-- **Paris FC to sign Ciro Immobile from Bologna**: [Link](https://sports.yahoo.com/articles/paris-fc-sign-ciro-immobile-095500169.html)
-- **Paris set to welcome Ciro Immobile**: [Link](https://foot-africa.com/en/news/paris-set-to-welcome-ciro-immobile-1066100/)
-- **Immobile could swap Bologna for Paris**: [Link](https://terrikon.com/en/posts/555062)
-
-
-### arsenal vs (N/A, 31/01/2026 11:36 Lima)
-
-- **Every word from Arteta's pre-Leeds United presser | Press conference | News**: [Link](https://www.arsenal.com/news/every-word-artetas-pre-leeds-united-presser-0)
-- **Leeds Face Tough Test at Elland Road as Arsenal Visit**: [Link](https://www.dawan.africa/news/leeds-face-tough-test-at-elland-road-as-arsenal-visit)
-- **Mikel Arteta acknowledges the value of an ‘instrumental’
-defender for his squad**: [Link](https://www.vavel.com/en/football/2026/01/31/arsenal/1249291-mikel-arteta-acknowledges-the-value-of-an-instrumentaldefender-for-his-squada-returning-defender-could-change-the-dynamics-of-arsenalin-more-ways-than-one.html)
-
-
-### arsenal (N/A, 31/01/2026 11:36 Lima)
-
-- **Premier League: Build-up as Arsenal's Saka injured in warm-up and replaced by Madueke**: [Link](https://www.bbc.com/sport/football/live/cj9r1dnk09zt)
-- **Team news: Havertz starts, Saka injured in warm up**: [Link](https://www.arsenal.com/news/team-news-havertz-starts-saka-injured-warm)
-- **'He’s got an issue in his foot': Arteta explains Merino absence and Havertz inclusion in Arsenal lineup**: [Link](https://tribuna.com/en/news/2026-01-31-hes-got-an-issue-in-his-foot-arteta-explains-merino-absence-and-havertz-inclusion-in-arse/)
 
 
