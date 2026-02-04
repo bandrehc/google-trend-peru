@@ -1,3 +1,38 @@
+### premios luces (N/A, 04/02/2026 11:57 Lima)
+
+- **Premios Luces 2026: conoce a los nominados, lista completa**: [Link](https://elcomercio.pe/luces/musica/premios-luces-2026-conoce-a-los-nominados-lista-completa-noticia/)
+- **Premios Luces 2026: Así se eligen a los nominados**: [Link](https://elcomercio.pe/luces/premios-luces-2026-asi-se-eligen-a-los-nominados-noticia/)
+- **Premios Luces 2026, Perú en el podio de futsal, y persiste la explotación laboral**: [Link](https://elcomercio.pe/opinion/columnistas/premios-luces-2026-peru-en-el-podio-de-futsal-y-persiste-la-explotacion-laboral-noticia/)
+
+
+### tren metro de lima (N/A, 04/02/2026 11:57 Lima)
+
+- **Metro de Lima: Linea Uno anuncia que el servicio se restableció luego de tres horas [VIDEO]**: [Link](https://rpp.pe/lima/actualidad/metro-de-lima-servicio-se-encuentra-interrumpido-desde-la-estacion-la-cultura-hasta-caja-de-agua-noticia-1674310)
+- **Línea 1 del Metro de Lima presenta retrasos por fallas técnicas: concesionaria emite comunicado**: [Link](https://gestion.pe/peru/linea-1-del-metro-de-lima-presenta-retrasos-por-fallas-tecnicas-concesionaria-emite-comunicado-noticia/)
+- **Línea 1 Metro de Lima pasajeros caminan por vías por avería**: [Link](https://www.americatv.com.pe/noticias/actualidad/linea-1-metro-lima-pasajeros-caminan-vias-averia-n515483)
+
+
+### cayó chatgpt (N/A, 04/02/2026 11:57 Lima)
+
+- **Caída de ChatGPT y API de OpenAI afecta a usuarios a nivel global**: [Link](https://andina.pe/agencia/noticia-caida-chatgpt-y-api-openai-afecta-a-usuarios-a-nivel-global-1061764.aspx)
+- **Chat GPT cae hoy 3 de Febrero 2026: Esto sabemos hasta el momento**: [Link](https://www.informabtl.com/chat-gpt-cae-hoy-3-de-febrero-2026-esto-sabemos-hasta-el-momento/)
+- **¡Se cayó Chat GPT!: usuarios reportan fallas de la IA este 3 de febrero**: [Link](https://www.cronica.com.mx/tendencias/2026/02/03/se-cayo-chat-gpt-usuarios-reportan-fallas-de-la-ia-este-3-de-febrero/)
+
+
+### dia mundial contra el cancer (N/A, 04/02/2026 11:57 Lima)
+
+- **Hoy es el Día Mundial contra el Cáncer: factores de riesgo, consejos y por qué se conmemora el 4 de febrero**: [Link](https://elcomercio.pe/respuestas/efemerides/dia-mundial-contra-el-cancer-por-que-se-conmemora-cada-4-de-febrero-historia-tdpe-noticia/)
+- **El Peritoneal Cancer Institute estima 7.000 nuevos casos anuales de este tumor en España**: [Link](https://www.infobae.com/america/agencias/2026/02/04/el-peritoneal-cancer-institute-estima-7000-nuevos-casos-anuales-de-este-tumor-en-espana/)
+- **Un día para recordar la necesidad de un esfuerzo conjunto de toda la sociedad**: [Link](https://www.corresponsables.com/opinion/un-dia-para-recordar-la-necesidad-de-un-esfuerzo-conjunto-de-toda-la-sociedad/)
+
+
+### warriors (N/A, 04/02/2026 11:57 Lima)
+
+- **I don't know that it ends at 13 and a half, but if it …**: [Link](https://www.hoopshype.com/story/sports/nba/rumors/2026/02/04/i-dont-know-that-it-ends-at-13-and-a-half-but-if-it/88506279007/)
+- **League sources say that Milwaukee has shown a …**: [Link](https://uk.sports.yahoo.com/news/league-sources-milwaukee-shown-031657138.html)
+- **Latest Report Puts Warriors on Brink of Losing Giannis Sweepstakes**: [Link](https://www.avanca.com/bbebaaushop/nba/warriors/onsi/news/latest-report-puts-warriors-on-brink-of-losing-giannis-sweepstakes-01kgk6m9hmc8)
+
+
 ### asteroide (N/A, 04/02/2026 08:12 Lima)
 
 - **Un asteroide dejó de ser una amenaza para la Tierra. El nuevo problema es lo que podría hacerle a la Luna: una posible colisión podría lanzar miles de fragmentos lunares hacia nuestro planeta**: [Link](https://es.gizmodo.com/asteroide-dejo-de-ser-una-amenaza-para-la-tierra-el-nuevo-problema-es-lo-que-podria-hacerle-a-la-luna-una-posible-colision-podria-lanzar-miles-de-fragmentos-lunares-hacia-nuestro-planeta-2000217295)
@@ -998,40 +1033,5 @@ Sin noticias relacionadas disponibles.
 - **Live Now! UFC 325 ‘Volkanovski vs. Lopes 2’ Play-by-Play, Results & Round Scoring**: [Link](https://www.sherdog.com/news/news/UFC-325-Volkanovski-vs-Lopes-2-PlaybyPlay-Results-Round-Scoring-199946)
 - **BetMGM bonus code CBSSPORTS: Get $150 in bonus bets for Mavericks-Rockets, UConn-Creighton, UFC 325 tonight**: [Link](https://www.cbssports.com/nba/news/betmgm-bonus-code-cbssports-get-150-bonus-bets-mavericks-rockets-uconn-creighton-ufc-325-tonight/)
 - **Alexander Volkanovski admitted he will retire at UFC 325 if one thing happens**: [Link](https://bloodyelbow.com/2026/01/31/alexander-volkanovski-admitted-he-will-retire-at-ufc-325-if-one-thing-happens/)
-
-
-### liga mx (N/A, 31/01/2026 21:54 Lima)
-
-- **Jardine explica las salidas de Fidalgo, Saint-Maximin y Aguirre**: [Link](https://espndeportes.espn.com/futbol/mexico/nota/_/id/16255319/america-andre-jardine-bajas-plantel-fidalgo-saint-maximin-aguirre)
-- **El Betis se adelanta en el fichaje de Álvaro Fidalgo hasta 2030, fuentes**: [Link](https://www.espn.com.ar/futbol/nota/_/id/16254909/betis-firma-alvaro-fidalgo-hasta-2030)
-- **ÚLTIMA HORA: El futuro de Álvaro Fidalgo en Selección Mexicana es REVELADO**: [Link](https://www.tvazteca.com/aztecadeportes/ultima-hora-futuro-alvaro-fidalgo-seleccion-mexicana-es-revelado/)
-
-
-### aviones caza perú (N/A, 31/01/2026 21:54 Lima)
-
-- **La Fuerza Aérea del Perú va por el F-16V Block 70**: [Link](https://www.pucara.org/post/la-fuerza-a%C3%A9rea-del-per%C3%BA-va-por-el-f-16v-block-70)
-- **Perú opta por los F-16 Block 70: alianza estratégica con Estados Unidos a punto de cerrarse**: [Link](https://www.expreso.com.pe/en-portada/peru-opta-por-los-f-16-block-70-alianza-estrategica-con-estados-unidos-a-punto-de-cerrarse-otan-noticia/1260173/)
-- **F-16 Block 70: Lockheed Martin responde sobre su propuesta para el Perú**: [Link](https://peru21.pe/investigacion/f-16-block-70-lockheed-martin-responde-sobre-propuesta-para-fap-peru/)
-
-
-### djokovic vs alcaraz (N/A, 31/01/2026 21:54 Lima)
-
-- **La grandiosidad de Djokovic descabalga a Sinner del Open de Australia**: [Link](https://elpais.com/deportes/tenis/2026-01-30/la-grandiosidad-de-djokovic-descabalga-a-sinner.html)
-- **Novak Djokovic vs. Carlos Alcaraz: horario y cómo ver en vivo la final del Australian Open 2026**: [Link](https://www.espn.com.ar/tenis/nota/_/id/16248597/novak-djokovic-vs-carlos-alcaraz-horario-y-como-ver-en-vivo-la-final-del-australian-open-2026)
-- **Le pasan una videollamada a Djokovic en plena entrevista tras eliminar a Sinner y es otra leyendaza del tenis:**: [Link](https://as.com/tenis/videos/le-pasan-una-videollamada-a-djokovic-en-plena-entrevista-tras-eliminar-a-sinner-y-es-otra-leyendaza-del-tenis-momentazo-f202601-v/)
-
-
-### lamine yamal (N/A, 31/01/2026 15:32 Lima)
-
-- **Champions League: Ranking de los 36 equipos y el once ideal**: [Link](https://www.espn.com.pe/futbol/champions-league/nota/_/id/16245226/champions-league-real-madrid-barcelona-ranking-once-ideal-fase-liga)
-- **Un jugador de LaLiga, en el once ideal de la jornada de Champions**: [Link](https://www.flashscore.pe/noticias/futbol-champions-league-once-ideal-jornada-8-lamine-yamal/IsvClzxe/)
-- **Barcelona squad named for Elche**: [Link](https://www.barcablaugranes.com/barcelona-la-liga/111470/elche-barcelona-la-liga-team-news-squad-list)
-
-
-### peru vs brasil futsal (N/A, 31/01/2026 15:32 Lima)
-
-- **Perú logró una histórica clasificación a semifinales**: [Link](https://copaamerica.com/es/novedades/cronica-uruguay-peru-copa-america-futsal-2026)
-- **Selección Peruana de Futsal en semifinales**: [Link](https://caretas.pe/deportes/seleccion-peruana-de-futsal-en-semifinales/)
-- **¡HISTÓRICO! Selección Peruana clasificó a la semifinal de la Copa América de Futsal**: [Link](https://peru21.pe/deportes/historico-seleccion-peruana-clasifico-semifinal-copa-america-de-futsal/)
 
 
