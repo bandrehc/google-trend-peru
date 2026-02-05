@@ -1,3 +1,31 @@
+### resultados de la tinka hoy (N/A, 05/02/2026 11:57 Lima)
+
+- **La Tinka: conoce los ganadores del sorteo del miércoles 4 de febrero de 2026**: [Link](https://www.infobae.com/peru/2026/02/05/resultados-de-la-tinka-ganadores-del-4-de-febrero-de-2026/)
+- **La Tinka: revisa AQUÍ los resultados del miércoles 4 de febrero de 2026**: [Link](https://www.expreso.com.pe/variedades/la-tinka-revisa-aqui-los-resultados-del-miercoles-4-de-febrero-de-2026-sorteo-loteria-pozo-millonario-aciertos-peru-noticia/1261461/)
+- **La Tinka: resultados, números y premios ganados el domingo 1 de febrero de 2026**: [Link](https://elcomercio.pe/respuestas/loterias/la-tinka-hoy-domingo-1-de-febrero-en-vivo-resultados-del-ultimo-sorteo-numeros-y-jugada-ganadora-tinkanet-pozo-millonario-loteria-si-o-si-boliyapa-intralot-lbposting-noticia/)
+
+
+### milo j estadio nacional (N/A, 05/02/2026 11:57 Lima)
+
+- **Milo J en Lima: Concierto en el Estadio Nacional en abril**: [Link](https://peru21.pe/cultura/milo-j-en-lima-concierto-en-el-estadio-nacional-en-abril/)
+- **Milo J en Lima 2026: precios, fecha y cuándo es la preventa de entradas en Teleticket para el concierto en el Estadio Nacional de Perú**: [Link](https://larepublica.pe/entretenimiento/2026/02/05/milo-j-en-lima-2026-precios-fecha-y-cuando-es-la-preventa-de-entradas-en-teleticket-para-el-concierto-en-el-estadio-nacional-de-peru-49212)
+- **Milo J muda su concierto en Perú al Estadio Nacional frente a la gran acogida de sus fans**: [Link](https://elcomercio.pe/luces/musica/milo-j-muda-su-concierto-en-peru-al-estadio-nacional-frente-a-la-gran-acogida-de-sus-fans-celebs-ultimas-noticia/)
+
+
+### kocaelispor - beşiktaş (N/A, 05/02/2026 11:57 Lima)
+
+- **CANLI | Kocaelispor - Beşiktaş maçı Canlı Anlatım - Kocaeli - BJK maçı kadrosu, skoru ve istatistikleri**: [Link](https://www.fanatik.com.tr/besiktas/live-kocaelispor-besiktas-maci-canli-anlatim-kocaeli-bjk-maci-kadrosu-skoru-ve-istatistikleri-2611046)
+- **Beşiktaş'ta Yasin Özcan ve Olaitan kadroda! - Futbol Haberleri**: [Link](https://www.haberturk.com/besiktas-ta-yasin-ozcan-ve-olaitan-kadroda-3859486-spor)
+- **Sergen Yalçın: "Umarım işler bizim için iyi olur"**: [Link](https://www.ntvspor.net/futbol/sergen-yalcin-umarim-isler-bizim-icin-iyi-olur-417352)
+
+
+### dolares a soles (N/A, 05/02/2026 11:57 Lima)
+
+- **Precio del dólar en Perú HOY, jueves 5 de febrero: ¿cuál es la cotización del tipo de cambio?**: [Link](https://larepublica.pe/economia/precio-del-dolar/2026/02/05/precio-del-dolar-en-peru-hoy-jueves-5-de-febrero-cual-es-la-cotizacion-del-tipo-de-cambio-dolares-a-soles-ocona-dolar-bloomberg-atmp-227984)
+- **Dólar inicia la jornada a la baja: ¿en cuánto se cotiza el billete verde?**: [Link](https://peru21.pe/economia/dolar-inicia-jornada-la-baja-en-cuanto-se-cotiza-el-billete-verde/)
+- **¿Cuál es la cotización del dólar hoy jueves 5 de febrero del 2026?**: [Link](https://andina.pe/agencia/noticia-cual-es-cotizacion-del-dolar-hoy-jueves-5-febrero-del-2026-1061969.aspx)
+
+
 ### spurs - thunder (N/A, 05/02/2026 08:14 Lima)
 
 - **San Antonio vs Oklahoma City Thunder, Final Score: Spurs outlast the Thunder bench crew 116-106**: [Link](https://www.poundingtherock.com/game-recaps/94309/san-antonio-vs-oklahoma-city-thunder-final-score-spurs-outlast-the-thunder-bench-crew-116-106)
@@ -1004,33 +1032,5 @@ Sin noticias relacionadas disponibles.
 - **CANLI | Galatasaray – Kayserispor Maçı Bein Sports 1 Canlı İzle | Lider, sahasında**: [Link](https://www.cnnturk.com/spor/futbol/live-galatasaray-kayserispor-maci-bein-sports-1-sifresiz-izle-galatasaray-kayserispor-maci-bein-sports-1-canli-izle-galatasaray-2391206)
 - **Galatasaray'ın yeni transferi Noa Lang, Kayserispor maçında ilk 11'de**: [Link](https://www.yenicaggazetesi.com/galatasarayin-yeni-transferi-noa-lang-kayserispor-macinda-ilk-11de-997389h.htm)
 - **Kayserispor'da Galatasaray maçında sürpriz karar! Djalovic ilk kez 11'de şans verdi**: [Link](https://www.kayserianadoluhaber.com.tr/kayserispor-da-galatasaray-macinda-surpriz-karar-djalovic-ilk-kez-11-de-sans-verdi/176683/)
-
-
-### stuttgart vs (N/A, 01/02/2026 11:36 Lima)
-
-- **Hoeneß-Elf springt auf Platz vier: Last-Minute-Jubel beim VfB Stuttgart**: [Link](https://www.bild.de/sport/fussball/hoeness-elf-springt-auf-platz-vier-last-minute-jubel-beim-vfb-stuttgart-697f5de939137bad122e9932)
-- **Fußball-Bundesliga: Live-Ergebnisse & Tabelle heute | Sonntag (01.02.2026)**: [Link](https://www.tipico.de/wett-tipps/sportwetten-news/fussball-bundesliga-live-ergebnisse-tabelle-heute-sonntag-01-02-2026)
-- **Demirovic erlöst VfB gegen Ex-Klub Freiburg mit Traumtor**: [Link](https://www.swr.de/sport/fussball/vfb-stuttgart-sc-freiburg-bundesliga-spielbericht-100.html)
-
-
-### celtic f. c. - falkirk (N/A, 01/02/2026 11:36 Lima)
-
-- **Team’s Up – Three Celtic changes, Cvancara’s Paradise debut**: [Link](https://thecelticstar.com/teams-up-three-celtic-changes-cvancaras-paradise-debut/)
-- **Martin O'Neill has the chance to do something he has never done before as Celtic manager vs Falkirk**: [Link](https://www.67hailhail.com/match/martin-oneill-has-the-chance-to-do-something-he-has-never-done-before-as-celtic-manager-vs-falkirk/)
-- **Celtic assistant Shaun Maloney wary of 'really good attacking team' Falkirk**: [Link](https://news.stv.tv/sport/celtic-assistant-shaun-maloney-wary-of-really-good-attacking-team-falkirk)
-
-
-### tottenham - manchester city (N/A, 01/02/2026 11:36 Lima)
-
-- **Can Spurs Do the Double on Manchester City in Today’s Premier League Clash?**: [Link](https://www.dawan.africa/news/can-spurs-do-the-double-on-manchester-city-in-todays-premier-league-clash)
-- **Tottenham vs Manchester City predictions: Spurs’ dire form to continue**: [Link](https://www.goal.com/en-ca/betting/tips/tottenham-vs-manchester-city-predictions-02-01-26/A%3Ablt5a413d6318871daa)
-- **Could Pep Guardiola tweak his midfield to take on Tottenham today?**: [Link](https://esteemedkompany.com/2026/02/01/could-pep-guardiola-tweak-his-midfield-to-take-on-tottenham-today/)
-
-
-### dortmund - heidenheim (N/A, 01/02/2026 11:36 Lima)
-
-- **Neuer BVB-Ausfall, Süle zurück, Klarheit bei Anton und Sabitzer: Kader gegen Heidenheim**: [Link](https://www.ruhrnachrichten.de/bvb/bvb-kader-gegen-heidenheim-neuer-ausfall-suele-zurueck-klarheit-bei-anton-w1146273-2001957142/)
-- **Bundesliga - Borussia Dortmund vs. 1. FC Heidenheim heute live im Ticker: BVB will an FCB ran rücken - Liveticker**: [Link](https://www.eurosport.de/fussball/bundesliga/2025-2026/live-borussia-dortmund-1.-fc-heidenheim_mtc1609147/live-commentary.shtml)
-- **Vor Heimspiel gegen Heidenheim: (K)ein Grund zur Vorfreude?!**: [Link](https://www.schwatzgelb.de/artikel/2026/warmlaufen/kein-grund-zur-vorfreude)
 
 
