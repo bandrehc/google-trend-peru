@@ -1,3 +1,44 @@
+### thunder - spurs (N/A, 05/02/2026 00:19 Lima)
+
+- **Thunder vs Spurs Picks & Odds Today: San Antonio Seeks Fourth Win Against Champs**: [Link](https://www.oddsshark.com/nba/thunder-spurs-picks-odds-february-4-2026)
+- **Caesars Sportsbook Promo Code 'COVERS250BM' Awards Up To A $250 Bet Match For Thunder-Spurs**: [Link](https://www.covers.com/daily-promos/caesars-sportsbook-promo-code-nba-thunder-spurs-02-04-2026)
+- **Thunder-Spurs free livestream: How to watch NBA game tonight, TV, time**: [Link](https://www.al.com/tv/2026/02/thunder-spurs-free-livestream-how-to-watch-nba-game-tonight-tv-time.html)
+
+
+### carlos alcantara (N/A, 05/02/2026 00:19 Lima)
+
+- **Carlos Alcántara sorprende con impactante foto por el Día Mundial contra el Cáncer y promueve el autocuidado: "Vamos muchachos a hacernos la prueba"**: [Link](https://larepublica.pe/espectaculos/2026/02/04/carlos-alcantara-sorprende-con-impactante-foto-por-el-dia-mundial-contra-el-cancer-y-promueve-el-autocuidado-vamos-muchachos-a-hacernos-la-prueba-204948)
+- **Carlos Alcántara se desnuda por el Día Mundial contra el Cáncer: “Vamos muchachos a hacernos la prueba”**: [Link](https://www.infobae.com/peru/2026/02/04/carlos-alcantara-se-desnuda-por-el-dia-mundial-contra-el-cancer-vamos-muchachos-a-hacernos-la-prueba/)
+
+
+### miguel del castillo (N/A, 05/02/2026 00:19 Lima)
+
+- **Primero La Gente acusa a su fundador Miguel del Castillo de irregularidades en el uso de la franja electoral**: [Link](https://rpp.pe/politica/elecciones/primero-la-gente-acusa-a-su-fundador-miguel-del-castillo-de-irregularidades-en-el-uso-de-la-franja-electoral-noticia-1674429)
+- **Acusan mal uso de la franja electoral**: [Link](https://peru21.pe/politica/acusan-mal-uso-de-la-franja-electoral/)
+- **Denuncian que Miguel del Castillo destinó más de S/400 000 del presupuesto de la franja electoral a su «excanal**: [Link](https://lpderecho.pe/denuncian-miguel-del-castillo-destino-mas-400-000-presupuesto-franja-electoral-a-excanal/)
+
+
+### cr7 (N/A, 05/02/2026 00:19 Lima)
+
+- **Cristiano Ronaldo, un ícono de los 2000s con aretes, camisas ceñidas y bolsos Gucci: así era ‘CR7’ mucho antes de Georgina**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/cristiano-ronaldo-un-icono-de-los-2000s-con-aretes-camisas-cenidas-y-bolsos-gucci-asi-era-cr7-mucho-antes-de-georgina-rodriguez-noticia/)
+- **Cristiano Ronaldo 'talks' over Man Utd return emphatically dismissed as INEOS take strong stand - Sources**: [Link](https://www.teamtalk.com/manchester-united/cristiano-ronaldo-man-utd-third-spell-categorically-denied-sources)
+- **Football gossip: Ronaldo, Romero, Anderson, Casemiro, Tonali, Neves, Roefs, Nketiah**: [Link](https://www.bbc.com/sport/football/articles/cpwn48xdxldo)
+
+
+### vancouver football club - cruz azul (N/A, 05/02/2026 00:19 Lima)
+
+- **Cruz Azul y su 'mutación' desde que ganó la Concacaf Champions Cup**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/16263429/vancouver-vs-cruz-azul-concacaf-champions-cup-mutacion-plantilla)
+- **Qué canal pasa Vancouver vs Cruz Azul hoy: dónde ver GRATIS y EN VIVO la Champions Cup**: [Link](https://www.365scores.com/es/news/vancouver-vs-cruz-azul-donde-ver-gratis/)
+- **Concacaf Champions Cup 2026: posibles alineaciones de Cruz Azul**: [Link](https://espndeportes.espn.com/futbol/norte-centro-america/nota/_/id/16267525/concacaf-champions-cup-2026-vancouver-vs-cruz-azul-alineaciones)
+
+
+### alex turner (N/A, 05/02/2026 00:19 Lima)
+
+- **Yo Soy castings 2026: ¡Pasó de ser solo un fan que toca guitarra en su casa, al escenario!**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-castings-2026-paso-de-ser-solo-un-fan-que-toca-guitarra-en-su-casa-al-escenario_20260127/)
+- **Yo Soy castings 2026: ¡Arturo vuelve por su revancha y enciende la batalla de Alex Turner!**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-castings-2026-arturo-vuelve-por-su-revancha-y-enciende-la-batalla-de-alex-turner_20260204/)
+- **Yo Soy castings 2026: ¡Oliver pausó su carrera para cuidar la voz y deslumbró como Alex Turner!**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-castings-2026-oliver-pauso-su-carrera-para-cuidar-la-voz-y-deslumbro-como-alex-turner_20260203/)
+
+
 ### dua lipa (N/A, 04/02/2026 21:35 Lima)
 
 - **Dua Lipa Peeks Out of Chic Fur Coat for Service95 Milestone**: [Link](https://www.yahoo.com/entertainment/celebrity/articles/dua-lipa-peeks-chic-fur-150000894.html)
@@ -991,46 +1032,5 @@ Sin noticias relacionadas disponibles.
 - **Keuze Van Persie bezorgt Feyenoord-fans stress: 'Wat een enorm groot risico'**: [Link](https://www.voetbalprimeur.nl/nieuws/1737676/feyenoord-fans-niet-gerust-op-basisplaats-st-juste-bij-psv.html)
 - **Berghuis terug in selectie Ajax voor duel Excelsior • 14.30 uur: topper PSV-Feyenoord**: [Link](https://nos.nl/liveblog/2600496-berghuis-terug-in-selectie-ajax-voor-duel-excelsior-14-30-uur-topper-psv-feyenoord)
 - **HISTORIE | Juichen bij de cornervlag**: [Link](https://www.fr-fans.nl/nieuws/76024/historie-juichen-bij-de-cornervlag)
-
-
-### real madrid - rayo vallecano (N/A, 01/02/2026 08:02 Lima)
-
-- **Real Madrid - Rayo Vallecano, en directo: LaLiga EA Sports hoy, en vivo**: [Link](https://as.com/futbol/primera/real-madrid-rayo-vallecano-en-directo-laliga-ea-sports-hoy-en-vivo-f202602-d/)
-- **Real Madrid - Rayo Vallecano en directo | Pitos en el Bernabéu a sus jugadores al salir a calentar**: [Link](https://elpais.com/deportes/futbol/2026-02-01/real-madrid-rayo-vallecano-en-directo-el-partido-de-la-liga-en-vivo.html)
-- **SKY Sports EN VIVO — dónde ver partido Real Madrid vs. Rayo Vallecano por TV y Online en México**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/sky-sports-en-vivo-gratis-como-ver-partido-real-madrid-vs-rayo-vallecano-por-futbol-tv-y-sky-plus-online-en-mexico-nnda-nnrt-noticia/)
-
-
-### ajax vs (N/A, 01/02/2026 08:02 Lima)
-
-- **SBV Excelsior vs. Ajax Amsterdam: Predictions & Tips for February 1, 2026**: [Link](https://www.filmogaz.com/127996)
-- **Excelsior vs Ajax - prediction, team news, lineups...**: [Link](https://www.rugby-addict.com/en-ie/article/home/excelsior-vs-ajax-prediction-team-news-lineups/697cafd0a9d439404c045e53)
-
-
-### torino vs (N/A, 01/02/2026 08:02 Lima)
-
-- **Serie A: Torino buscará vencer su racha negativa ante Lecce**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-torino-buscara-vencer-su-racha-negativa-ante-lecce-noticia-1673853)
-- **Preview: Torino vs Lecce - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/torino/preview/torino-vs-lecce-prediction-team-news-lineups_590998.html)
-- **Torino vs Lecce Prediction, 2/1/2026 Soccer Pick, Tips and Odds**: [Link](https://www.docsports.com/free-picks/soccer/2026/torino-vs-lecce-prediction-2-1-2026-soccer-pick-tips-and-odds.html)
-
-
-### torino - lecce (N/A, 01/02/2026 08:02 Lima)
-
-- **LIVE Torino-Lecce 1-0: giallo per Tiago Gabriel, fallo su Zapata**: [Link](https://www.gazzetta.it/Calcio/Serie-A/01-02-2026/torino-lecce-live-risultato-gol-diretta-serie-a.shtml)
-- **Calcio Live News: a breve in campoTorino-Lecce, esonerato Gilardino**: [Link](https://www.diretta.it/news/calcio-live-news-a-breve-in-campotorino-lecce-esonerato-gilardino/4hRDOYR1/)
-- **Torino-Lecce, le formazioni ufficiali**: [Link](https://www.torinofc.it/news/01/02/2026/torino-lecce-le-formazioni-ufficiali_41004)
-
-
-### excelsior - ajax (N/A, 01/02/2026 08:02 Lima)
-
-- **Live Eredivisie | Ajax geeft 0-2-voorsprong weg, straks PSV-Feyenoord**: [Link](https://www.nu.nl/voetbal/6384518/live-eredivisie-ajax-geeft-0-2-voorsprong-weg-straks-psv-feyenoord.html)
-- **Grim vertelt over inzetbaarheid Berghuis en Tomiyasu, trio is ziek**: [Link](https://www.vi.nl/nieuws/grim-vertelt-over-inzetbaarheid-berghuis-en-tomiyasu-trio-is-ziek)
-- **GOAL: Bounida vindt Dolberg, die knap aflegt voor Godts**: [Link](https://www.voetbalprimeur.be/videos/1737678/goal-mika-godts-scoort-op-assist-avn-kasper-dolberg-bij-ajax.html)
-
-
-### carlos alcaraz (N/A, 01/02/2026 08:02 Lima)
-
-- **Resumen y resultado del Alcaraz - Djokovic: Alcaraz hace historia de nuevo**: [Link](https://as.com/tenis/alcaraz-djokovic-en-directo-final-del-open-de-australia-ultima-hora-en-vivo-f202602-d/)
-- **Alcaraz - Djokovic, en directo: sigue la final del Open de Australia en vivo**: [Link](https://www.infobae.com/espana/deportes/2026/02/01/alcaraz-djokovic-en-directo-sigue-la-final-del-open-de-australia-en-vivo/)
-- **Alcaraz - Djokovic, en directo | El serbio, al español: “Lo que has logrado es histórico y legendario, felicidades”**: [Link](https://elpais.com/deportes/tenis/2026-02-01/carlos-alcaraz-novak-djokovic-en-directo-la-final-del-open-de-australia-en-vivo.html)
 
 
