@@ -1,3 +1,72 @@
+### atletico madrid (N/A, 05/02/2026 15:39 Lima)
+
+- **Atletico Madrid Eye Copa del Rey Semi-Final Spot Against Betis**: [Link](https://www.dawan.africa/news/atletico-madrid-eye-copa-del-rey-semi-final-spot-against-betis)
+- **Copa del Rey: Date, time, broadcast channels and lineups for Real Betis vs Atlético Madrid**: [Link](https://onefootball.com/en/news/copa-del-rey-date-time-broadcast-channels-and-lineups-for-real-betis-vs-atletico-madrid-42361762)
+- **Real Betis vs. Atletico Madrid: Betting odds, prediction, pick**: [Link](https://www.usatoday.com/story/sports/soccer/2026/02/05/real-betis-vs-atletico-madrid-betting-odds-prediction-pick/88519303007/)
+
+
+### juventus vs (N/A, 05/02/2026 15:39 Lima)
+
+- **Cuándo juegan Atalanta vs. Juventus por la Copa Italia: equipo, fecha, hora y TV en vivo**: [Link](https://www.espn.com.ar/futbol/italia/nota/_/id/16265848/atalanta-vs-juventus-copa-italia-cuartos-de-final-equipo-fecha-hora-y-tv-en-vivo)
+- **Atalanta, contra la Juve para escribir (otra vez) la historia: de Gallo a Lazzari hasta el 3-0 de 2019**: [Link](https://www.todomercadoweb.es/serie-a/atalanta-contra-la-juve-para-escribir-otra-vez-la-historia-de-gallo-a-lazzari-hasta-el-3-0-de-2019-538806)
+- **La Copa aleja del 11 a uno de los mejores porteros del momento**: [Link](https://www.flashscore.es/noticias/futbol-serie-a-la-tradicion-de-la-copa-aparta-a-carnesecchi-de-la-porteria-de-la-atalanta/dU2Qvhxo/)
+
+
+### lookman (N/A, 05/02/2026 15:39 Lima)
+
+- **L' Ital -Atletico visto da Madrid: "Poco tempo a Raspadori e Lookman non era la prima scelta"**: [Link](https://www.tuttomercatoweb.com/serie-a/l-i-ital-i-atletico-visto-da-madrid-poco-tempo-a-raspadori-e-lookman-non-era-la-prima-scelta-2199301)
+- **Atletico Madrid, Lookman si presenta: “Sono orgoglioso, voglio fare la differenza”**: [Link](https://www.calcionapoli1926.it/interviste/lookman-atletico-atalanta-liga-mercato/)
+- **Lookman e il freddo saluto all'Atalanta, parla Palladino: "Quando è andato, noi non c'eravamo"**: [Link](https://tribuna.com/it/news/2026-02-04-lookman-e-il-freddo-saluto-allatalanta-parla-palladino-quando-e-andato-noi-non-ceravamo/)
+
+
+### ademola lookman (N/A, 05/02/2026 15:39 Lima)
+
+- **Ademola Lookman: Sunday Oliseh hails Atletico Madrid move**: [Link](https://www.panafricafootball.com/post/ademola-lookman-oliseh-atletico/)
+- **'We look forward with the strong players we have' – Atalanta boss unfazed by Lookman exit**: [Link](https://www.pulsesports.ng/super-eagles/story/we-look-forward-with-the-strong-players-we-have-atalanta-boss-unfazed-by-lookman-exit-2026020507161900952)
+- **Atletico Madrid: Ademola Lookman explains his decision to sign for the Madrid club**: [Link](https://sports.yahoo.com/articles/atletico-madrid-ademola-lookman-explains-095500522.html)
+
+
+### monaco (N/A, 05/02/2026 15:39 Lima)
+
+- **Pour Monaco, le chemin de l'Europe passe par la Coupe de France**: [Link](https://www.lequipe.fr/Football/Actualites/La-coupe-de-france-le-nouveau-chemin-vers-l-europe-de-monaco/1639403)
+- **RCSA-ASM : les compos probables**: [Link](https://onefootball.com/fr/news/rcsa-asm-les-compos-probables-42360698)
+- **Où regarder le 8e de Coupe de France face à Strasbourg à la télé' ?**: [Link](https://www.asmonaco.com/ou-regarder-le-8e-de-coupe-de-france-strasbourg-monaco-a-la-television/)
+
+
+### anderlecht (N/A, 05/02/2026 15:39 Lima)
+
+- **Hardcore fans refuse to welcome players for cup match (05 Feb 26)**: [Link](https://www.anderlecht-online.be/en/article/249003)
+- **"The next step towards stability? Winning tomorrow"**: [Link](https://www.rsca.be/en/news/pcbeforeandant)
+- **Football Bet of the Day: New boss Still backed to start slow in Belgium**: [Link](https://insights.betfred.com/football/football-bet-of-the-day/daily-football-bet-050226/)
+
+
+### monaco fc (N/A, 05/02/2026 15:39 Lima)
+
+- **PSG: Luis Campos breaks his silence on Mbappé**: [Link](https://ca.sports.yahoo.com/news/psg-luis-campos-breaks-silence-151000930.html)
+- **Luis Campos opens up on discovering Kylian Mbappe at Monaco**: [Link](https://tribuna.com/en/news/2026-02-05-luis-campos-opens-up-on-discovering-kylian-mbappe-at-monaco/)
+- **strasbourg vs monaco - Google Trends**: [Link](https://www.latestly.com/google-trends/06022026/strasbourg-vs-monaco/)
+
+
+### anderlecht vs (N/A, 05/02/2026 15:39 Lima)
+
+- **Tickets for the semi-final against Antwerp**: [Link](https://www.rsca.be/en/news/tickets-semi-final-against-antwerp)
+- **Belgian Cup: Anderlecht vs Antwerp Prognose, Team News, Preview – 5/2/2026**: [Link](https://dailystar.com.lb/belgian-cup-anderlecht-vs-antwerp-prognose-preview-5-2-2026/)
+
+
+### real betis vs. valencia c. f. (N/A, 05/02/2026 15:39 Lima)
+
+- **Pronóstico Real Betis Valencia - LaLiga 01/02/26**: [Link](https://www.sportytrader.com/es/pronosticos/real-betis-valencia-323499/)
+- **Resumen y goles del Eibar vs. Sporting de LaLiga Hypermotion**: [Link](https://as.com/futbol/videos/resumen-y-goles-del-eibar-vs-sporting-de-laliga-hypermotion-f202602-v/)
+- **Betis en duro encuentro ante Valencia con la misión de mantenerse en puestos europeos**: [Link](https://www.espn.com.mx/futbol/espana/nota/_/id/16257807/betis-vs-valencia-equipo-fecha-hora-tv-en-vivo)
+
+
+### parma vs. juventus (N/A, 05/02/2026 15:39 Lima)
+
+- **Only one Juventus regular starter could be rested in Parma**: [Link](https://www.juvefc.com/spalletti-bremer-parma-juventus-gatti/)
+- **Inter consolidate their lead in Cremona and Juve make it four in Parma: now it's the turn of Milan and Roma, who face two tricky away games.**: [Link](https://www.firstonline.info/en/inter-consolida-il-primato-a-cremona-e-la-juve-fa-poker-a-parma-ora-tocca-a-milan-e-roma-attese-da-due-insidiose-trasferte/)
+- **The Old Lady Speaks Podcast, Episode 323: Good vibes continue to roll in Juve’s win over Parma**: [Link](https://www.blackwhitereadallover.com/the-old-lady-speaks-juventus-podcast/36140/episode-323-juventus-2026-serie-a-champions-league-lucinao-spalletti-winter-transfer-window)
+
+
 ### resultados de la tinka hoy (N/A, 05/02/2026 11:57 Lima)
 
 - **La Tinka: conoce los ganadores del sorteo del miércoles 4 de febrero de 2026**: [Link](https://www.infobae.com/peru/2026/02/05/resultados-de-la-tinka-ganadores-del-4-de-febrero-de-2026/)
@@ -962,75 +1031,5 @@ Sin noticias relacionadas disponibles.
 - **LIVE! Strasbourg vs PSG in Ligue 1 on beIN SPORTS**: [Link](https://www.beinsports.com/en-us/soccer/ligue-1/articles/live-strasbourg-vs-psg-in-ligue-1-on-bein-sports-2026-02-01)
 - **Luis Enrique Welcomes Ligue 1 Challenge From Lens**: [Link](https://www.barrons.com/news/luis-enrique-welcomes-ligue-1-challenge-from-lens-ef2e2576)
 - **Football Tracker: PSG facing in-form Strasbourg, Juventus away to Parma**: [Link](https://www.flashscore.com/news/football-tracker-psg-facing-in-form-strasbourg-juventus-away-to-parma/ADlVXIrA/)
-
-
-### juventus vs (N/A, 01/02/2026 15:33 Lima)
-
-- **Preview: Parma vs Juventus - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/parma/preview/parma-vs-juventus-prediction-team-news-lineups_591046.html)
-- **Spalletti: Juventus ‘need more rest’, ‘I expect a reaction’ after 0-0 Monaco draw**: [Link](https://football-italia.net/spalletti-juventus-need-more-rest/)
-- **Official Juventus lineup vs Parma: Yildiz & David are back**: [Link](https://onefootball.com/fr/news/official-juventus-lineup-vs-parma-yildiz-david-are-back-42341541)
-
-
-### premios grammy (N/A, 01/02/2026 15:33 Lima)
-
-- **Bad Bunny y Kendrick Lamar, listos para hacer historia en los Grammy 2026: ¿qué récords pueden romper?**: [Link](https://rpp.pe/famosos/celebridades/grammy-2026-que-records-pueden-romper-bad-bunny-y-kendrick-lamar-noticia-1673945)
-- **Premios Grammy 2026: ¿Quiénes son los nominados a las principales categorías?**: [Link](https://elcomercio.pe/luces/musica/premios-grammy-2026-quienes-son-los-nominados-a-las-principales-categorias-ultimas-noticia/)
-- **Bruno Mars, último artista confirmado para presentarse en los Grammy 2026**: [Link](https://forbes.pe/forbes-life/2026-01-30/bruno-mars-ultimo-artista-confirmado-para-presentarse-en-los-grammy-2026/)
-
-
-### hernán barcos (N/A, 01/02/2026 15:33 Lima)
-
-- **Christian Cueva y Hernán Barcos anotaron en partidazo entre Juan Pablo y FC Cajamarca**: [Link](https://www.espn.com.pe/futbol/peru/nota/_/id/16254646/christian-cueva-y-hernan-barcos-anotaron-en-partidazo-entre-juan-pablo-y-fc-cajamarca)
-- **¡Un partidazo! Con goles de Barcos y Cueva, FC Cajamarca empató 3-3 con Juan Pablo II en Chongoyape (VIDEO)**: [Link](https://rpp.pe/futbol/descentralizado/juan-pablo-ii-vs-fc-cajamarca-en-vivo-a-que-hora-juegan-hernan-barcos-y-donde-ver-fecha-1-torneo-apertura-2026-via-l1max-partidos-de-hoy-noticia-1673763)
-- **¡El primer grito del ‘Pirata’! Gol de Hernán Barcos para el 1-0 de FC Cajamarca vs. Juan Pablo II**: [Link](https://depor.com/futbol-peruano/descentralizado/gol-hernan-barcos-fc-cajamarca-vs-juan-pablo-ii-golazo-y-1-0-liga1-2026-video-noticia/)
-
-
-### tondela - benfica (N/A, 01/02/2026 15:33 Lima)
-
-- **VÍDEO: Prestianni viaja com a comitiva do Benfica até Tondela**: [Link](https://maisfutebol.iol.pt/benfica/liga/video-prestianni-viaja-com-a-comitiva-do-benfica-ate-tondela)
-- **Cristiano Bacci: «Não é por ser o Benfica que nos vamos fechar atrás»**: [Link](https://sapo.pt/artigo/cristiano-bacci-nao-e-por-ser-o-benfica-que-nos-vamos-fechar-atras-697e2161343ccb6fa396013f)
-- **Benfica entra em Tondela sob o calor dos adeptos: Trubin destaca-se com elogios**: [Link](https://www.distritonline.pt/2610-benfica-entra-em-tondela-sob-o-calor-dos-adeptos-trubin-destaca-se-com-elogios/)
-
-
-### alianza atlético - cusco (N/A, 01/02/2026 15:33 Lima)
-
-- **¿A que hora juegan Alianza Atlético vs Cusco FC? Mira por este canal el partido por la fecha 1 de la Liga 1 2026**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/alianza-atletico-vs-cusco-fc-en-vivo-hora-canal-tv-y-donde-ver-la-fecha-1-del-torneo-apertura-2026-transmision-l1max-l1play-tdpe-noticia/)
-- **🔴#ENVIVO | Alianza Atlético y Cusco FC igualan sin goles en Sullana**: [Link](https://ovacion.pe/noticias/liga1-2026/envivo-alianza-atletico-cusco-fc-igualan-sin-goles-sullana)
-- **Liga 1: Alianza Atlético recibirá a Cusco FC por la fecha 1**: [Link](https://rpp.pe/futbol/descentralizado/liga-1-alianza-atletico-recibira-a-cusco-fc-por-la-fecha-1-noticia-1673893)
-
-
-### sporting lisboa vs. nacional (N/A, 01/02/2026 15:33 Lima)
-
-- **Luis Suárez, entre los máximos artilleros de las ligas europeas**: [Link](https://colombia.as.com/futbol/colombianos-por-el-mundo/luis-suarez-entre-los-maximos-artilleros-de-las-ligas-europeas-f202601-n/)
-- **Sporting se aferra a la racha de Suárez en el cierre de fase liga de Champions**: [Link](https://www.espn.com.mx/futbol/champions-league/nota/_/id/16234484/sporting-aferra-racha-luis-suarez-cierre-fase-liga-champions)
-- **Luis Suárez: así fue el golazo vs Nacional por la Primera Liga**: [Link](https://www.365scores.com/es/news/asi-fue-el-golazo-de-luis-suarez-hoy/)
-
-
-### athletic - real sociedad (N/A, 01/02/2026 15:33 Lima)
-
-- **El efecto Matarazzo frente al momento más delicado de Valverde**: [Link](https://elpais.com/deportes/futbol/2026-02-01/el-efecto-matarazzo-frente-al-momento-mas-delicado-de-valverde.html)
-- **Apuestas y Pronóstico del Athletic Club vs Real Sociedad 01/02/26**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2026/febrero/pronostico-athletic-club-vs-real-sociedad-01-02-26)
-- **LaLiga EA Sports: Athletic Bilbao recibe a Real Sociedad por el derbi vasco**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-athletic-bilbao-recibe-a-real-sociedad-por-el-derbi-vasco-noticia-1673891)
-
-
-### manchester city vs. galatasaray (N/A, 01/02/2026 11:36 Lima)
-
-- **Galatasaray'a kötü haber! O isim de gitti**: [Link](https://www.babaocagi.com.tr/galatasaraya-kotu-haber-o-isim-de-gitti)
-- **Şampiyonlar Ligi kura çekimi ne zaman, saat kaçta? Play-off eşleşmeleri için geri sayım**: [Link](https://www.sabah.com.tr/trend/galeri/yasam/sampiyonlar-ligi-kura-cekimi-ne-zaman-saat-kacta-play-off-eslesmeleri-icin-geri-sayim)
-- **Pep Guardiola'dan Sane ve İlkay açıklaması**: [Link](https://www.msn.com/tr-tr/spor/other/pep-guardiola-dan-sane-ve-%C4%B0lkay-a%C3%A7%C4%B1klamas%C4%B1/ar-AA1VeyDU)
-
-
-### cremonese - inter (N/A, 01/02/2026 11:36 Lima)
-
-- **Serie A, oggi Cremonese-Inter - Diretta**: [Link](https://www.adnkronos.com/sport/diretta-cremonese-inter-oggi-serie-a-risultato-live_wIHuKsvd3pHoLSh05mKrE)
-- **Il primo Cremo-Inter dell'Inter Club Bastoni: "Vinciamo noi ma..."**: [Link](https://www.oglioponews.it/2026/02/01/il-primo-cremo-inter-dellinter-club-bastoni-vinciamo-noi-ma/)
-- **Cremo-Inter, tutto pronto per il big match: tra i cremonesi non manca la fiducia**: [Link](https://www.cremonaoggi.it/2026/02/01/cremo-inter-tutto-pronto-per-il-big-match-tra-i-cremonesi-non-manca-la-fiducia/)
-
-
-### galatasaray - kayserispor (N/A, 01/02/2026 11:36 Lima)
-
-- **CANLI | Galatasaray – Kayserispor Maçı Bein Sports 1 Canlı İzle | Lider, sahasında**: [Link](https://www.cnnturk.com/spor/futbol/live-galatasaray-kayserispor-maci-bein-sports-1-sifresiz-izle-galatasaray-kayserispor-maci-bein-sports-1-canli-izle-galatasaray-2391206)
-- **Galatasaray'ın yeni transferi Noa Lang, Kayserispor maçında ilk 11'de**: [Link](https://www.yenicaggazetesi.com/galatasarayin-yeni-transferi-noa-lang-kayserispor-macinda-ilk-11de-997389h.htm)
-- **Kayserispor'da Galatasaray maçında sürpriz karar! Djalovic ilk kez 11'de şans verdi**: [Link](https://www.kayserianadoluhaber.com.tr/kayserispor-da-galatasaray-macinda-surpriz-karar-djalovic-ilk-kez-11-de-sans-verdi/176683/)
 
 
