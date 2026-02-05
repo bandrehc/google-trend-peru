@@ -1,3 +1,73 @@
+### dua lipa (N/A, 04/02/2026 21:35 Lima)
+
+- **Dua Lipa Peeks Out of Chic Fur Coat for Service95 Milestone**: [Link](https://www.yahoo.com/entertainment/celebrity/articles/dua-lipa-peeks-chic-fur-150000894.html)
+- **Dua Lipa Celebrates Major Service95 Milestone in Luxe Fur Look**: [Link](https://lifestyle.si.com/fashion-beauty/dua-lipa-celebrates-major-service95-milestone)
+- **Why Dua Lipa and Callum Turner Skipped the 2026 Grammys**: [Link](https://www.yahoo.com/entertainment/music/articles/why-dua-lipa-callum-turner-020000300.html)
+
+
+### gabriel costa (N/A, 04/02/2026 21:35 Lima)
+
+- **Gabriel Costa, ex Universitario, fichará por conocido equipo de la Liga 2: "Llegó a un acuerdo"**: [Link](https://libero.pe/futbol-peruano/universitario/2026/02/02/gabriel-costa-ex-universitario-fichara-conocido-equipo-de-liga-2-llego-acuerdo-105122)
+- **Ex Alianza Lima, Universitario y Sporting Cristal refuerza a bicampeón del fútbol peruano**: [Link](https://bolavip.com/pe/futbol-peruano/ex-alianza-lima-universitario-y-sporting-cristal-refuerza-a-bicampeon-del-futbol-peruano)
+- **Tocó fondo: el calvario que vive Gabriel Costa tras dejar Colo Colo**: [Link](https://redgol.cl/mercado-de-fichajes/toco-fondo-el-calvario-que-vive-gabriel-costa-tras-dejar-colo-colo)
+
+
+### instagram (N/A, 04/02/2026 21:35 Lima)
+
+- **Instagram down for more than 10,000 US users**: [Link](https://www.reuters.com/technology/instagram-down-more-than-10000-us-users-2026-02-05/)
+- **Instagram down: Thousands of users complain about issues with Meta platform; how to fix 'sorry something went wrong' | Hindustan Times**: [Link](https://www.hindustantimes.com/world-news/us-news/instagram-down-thousands-of-users-complain-about-issues-with-meta-platform-how-to-fix-sorry-something-went-wrong-101770254235109.html)
+- **Instagram down right now? Downdetector shows thousands reporting website issues**: [Link](https://m.economictimes.com/us/news/instagram-down-right-now-downdetector-shows-thousands-reporting-website-issues/articleshow/127921826.cms)
+
+
+### erick noriega (N/A, 04/02/2026 21:35 Lima)
+
+- **Hinchas de Gremio piden nueva posición para Erick Noriega en el equipo: "Debe jugar en..."**: [Link](https://libero.pe/futbol-internacional/2026/02/02/hinchas-de-gremio-piden-nueva-posicion-erick-noriega-en-equipo-debe-jugar-en-157440)
+- **Grêmio vs Botafogo Pronóstico: Previa y Análisis del Partido | Serie A 05-02-2026**: [Link](https://betmines.com/es/analisis-partido/gremio-vs-botafogo-pronostico-previa-y-analisis-serie-a-05-02-2026)
+- **Gremio vs Botafogo: partidazo en vivo por el Brasileirao**: [Link](https://www.futbolperuano.com/en-vivo/brasileirao-gremio-vs-botafogo-en-vivo-por-la-serie-a-de-brasil-562388)
+
+
+### xelajú mc - monterrey (N/A, 04/02/2026 21:35 Lima)
+
+- **Así han sido las visitas de Rayados de Monterrey en Guatemala**: [Link](https://www.espn.com.ar/futbol/guatemala/nota/_/id/16271285/visitas-rayados-monterrey-guatemala)
+- **Roberto Hernández tomará la iniciativa ante Rayados: "La propuesta debe ser ofensiva"**: [Link](https://espndeportes.espn.com/futbol/guatemala/nota/_/id/16268720/roberto-hernandez-tomara-iniciativa-rayaados-propuesta-ofensiva)
+- **¿A qué horas juega y en qué canales televisan juego Xelajú MC vs. Rayados de Monterrey EN VIVO hoy 4 de febrero por la Copa de Campeones de Concacaf 2026?**: [Link](https://elcomercio.pe/mag/usa/local-us/a-que-hora-juega-y-que-canal-transmite-xelaju-mc-vs-rayados-de-monterrey-en-vivo-hoy-4-de-febrero-por-la-copa-de-campeones-de-concacaf-2026-nnda-nnrt-noticia/)
+
+
+### mirassol vs (N/A, 04/02/2026 21:35 Lima)
+
+- **Mirassol vs Novorizontino: partidazo en vivo por el Campeonato Paulista**: [Link](https://www.futbolperuano.com/en-vivo/campeonato-paulista-2026-mirassol-vs-novorizontino-en-vivo-562070)
+- **Remo sumó su primer punto en el Brasileirao tras igualar 2-2 ante Mirassol**: [Link](https://ovacion.pe/noticias/futbol-internacional/remo-sumo-su-primer-punto-brasileirao-tras-igualar-2-2-ante-mirassol)
+- **Remo vs Mirassol: previa, horario y cómo llegan para la fecha 2 del Brasileirao**: [Link](https://zona.palmsbet.pe/deportes/futbol/remo-vs-mirassol-previa-horario-y-como-llegan-para-la-fecha-2-del-brasileirao/)
+
+
+### pavez (N/A, 04/02/2026 21:35 Lima)
+
+- **Alianza Lima retira los dorsales de Zambrano, Trauco y Peña para la Copa Libertadores**: [Link](https://www.atv.pe/noticia/alianza-lima-retira-los-dorsales-de-zambrano-trauco-y-pena-para-la-copa-libertadores/)
+- **Esteban Pavez llevará el dorsal ‘5’ de Carlos Zambrano en Copa Libertadores: ¿Y quién tendrá la ’10′ de Alianza Lima en 2026?**: [Link](https://www.infobae.com/peru/deportes/2026/02/02/esteban-pavez-llevara-el-dorsal-5-de-carlos-zambrano-en-copa-libertadores-y-quien-tendra-la-10-de-alianza-lima-en-2026/)
+- **Alianza reveló quiénes usarán dorsales de Trauco y Zambrano**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/alianza-revelo-quienes-usaran-dorsales-trauco-y-zambrano-n452558)
+
+
+### telefe (N/A, 04/02/2026 21:35 Lima)
+
+- **Rating del martes: Francella vs. Iván de Pineda, cómo fue el duelo de las 21, en un día de cifras bajas**: [Link](https://www.clarin.com/espectaculos/rating-martes-francella-vs-ivan-pineda-duelo-21-dia-cifras-bajas_0_DzsFJg1txY.html)
+- **El inesperado logro de Telefe gracias a "MasterChef Celebrity"**: [Link](https://www.minutoneuquen.com/entretenimiento/2026/2/2/el-inesperado-logro-de-telefe-gracias-masterchef-celebrity-404234.html)
+- **Martes de subas y bajas**: [Link](https://television.com.ar/noticias/ratings/martes-de-subas-y-bajas-8/)
+
+
+### fútbol (N/A, 04/02/2026 21:35 Lima)
+
+- **Partidos de hoy, miércoles 4 de febrero de 2026: programación, canales TV y resultados en vivo**: [Link](https://www.infobae.com/peru/deportes/2026/02/04/partidos-de-hoy-miercoles-4-de-febrero-de-2026-programacion-canales-tv-y-resultados-en-vivo/)
+- **Partidos de hoy, miércoles 4 de febrero del 2026: horarios y canales TV para ver EN VIVO la Copa Libertadores y Copa del Rey**: [Link](https://rpp.pe/futbol/futbol-mundial/partidos-de-hoy-copa-libertadores-y-copa-del-rey-en-vivo-peru-miercoles-4-de-febrero-del-2026-horarios-y-canales-tv-ver-futbol-en-vivo-noticia-1674231)
+- **Partidos de hoy, 04 de febrero: Horario y canal EN VIVO**: [Link](https://www.americatv.com.pe/deportes/futbol-mundial/partidos-hoy-04-febrero-horarios-y-transmisiones-n452580)
+
+
+### alianza lima (N/A, 04/02/2026 21:35 Lima)
+
+- **Alianza Lima vs. 2 de Mayo (0-1): resumen, minuto a minuto y goles de la Copa Libertadores**: [Link](https://depor.com/futbol-peruano/copa-libertadores/alianza-lima-vs-2-de-mayo-en-vivo-minuto-a-minuto-gratis-espn-telefe-futbol-libre-tv-disney-plus-fox-sports-en-directo-canales-de-transmision-copa-libertadores-2026-noticia/)
+- **Alianza Lima perdonó y lo pagó caro: perdió 1-0 ante 2 de Mayo por la fase previa de Copa Libertadores**: [Link](https://larepublica.pe/deportes/2026/02/04/alianza-lima-vs-2-de-mayo-en-vivo-copa-libertadores-2026-via-espn-99186)
+- **Cambio inesperado en once de Guede para partido de Libertadores**: [Link](https://www.americatv.com.pe/deportes/futbol-mundial/cambio-inesperado-once-guede-partido-libertadores-n452586)
+
+
 ### inter (N/A, 04/02/2026 15:41 Lima)
 
 - **Inter Milan Vs Torino – Cristian Chivu Preparing Huge Starting XI Overhaul After Cremonese Win**: [Link](https://sempreinter.com/2026/02/03/inter-milan-torino-chivu-make-numerous-starting-xi-changes/)
@@ -962,75 +1032,5 @@ Sin noticias relacionadas disponibles.
 - **Resumen y resultado del Alcaraz - Djokovic: Alcaraz hace historia de nuevo**: [Link](https://as.com/tenis/alcaraz-djokovic-en-directo-final-del-open-de-australia-ultima-hora-en-vivo-f202602-d/)
 - **Alcaraz - Djokovic, en directo: sigue la final del Open de Australia en vivo**: [Link](https://www.infobae.com/espana/deportes/2026/02/01/alcaraz-djokovic-en-directo-sigue-la-final-del-open-de-australia-en-vivo/)
 - **Alcaraz - Djokovic, en directo | El serbio, al español: “Lo que has logrado es histórico y legendario, felicidades”**: [Link](https://elpais.com/deportes/tenis/2026-02-01/carlos-alcaraz-novak-djokovic-en-directo-la-final-del-open-de-australia-en-vivo.html)
-
-
-### novak djokovic (N/A, 01/02/2026 08:02 Lima)
-
-- **Carlos Alcaraz beats Novak Djokovic in Australian Open final**: [Link](https://www.espn.com/tennis/story/_/id/47795603/carlos-alcaraz-beats-novak-djokovic-australian-open-final)
-- **Australian Open final: Carlos Alcaraz beats Novak Djokovic to notch career grand slam**: [Link](https://www.cbssports.com/tennis/news/australian-open-final-carlos-alcaraz-beats-novak-djokovic-to-notch-career-grand-slam/)
-- **Carlos Alcaraz completes the Career Grand Slam**: [Link](https://www.atptour.com/en/news/alcaraz-australian-open-2026-career-grand-slam)
-
-
-### o (N/A, 01/02/2026 03:39 Lima)
-
-- **Catherine O'Hara revealed she had rare genetic condition years ago**: [Link](https://www.usatoday.com/story/entertainment/celebrities/2026/01/30/catherine-ohara-situs-inversus-dextrocardia/88440931007/)
-- **‘Saturday Night Live’ Pays Tribute To Catherine O’Hara**: [Link](https://deadline.com/2026/01/saturday-night-live-catherine-ohara-tribute-card-snl-1236704290/)
-- **Catherine O'Hara Hospitalized in "Serious Condition" at 5 a.m. Before Death**: [Link](https://www.eonline.com/news/1428000/catherine-ohara-hospitalized-for-serious-condition-before-death)
-
-
-### kick (N/A, 01/02/2026 03:39 Lima)
-
-- **Tottenham Hotspur v Manchester City: Key stats and talking points**: [Link](https://www.bbc.com/articles/c87rnx8r8y0o)
-- **Man City must be wary of Spurs' one secret weapon on Sunday**: [Link](https://www.flashscore.com/news/soccer-premier-league-spurs-one-weapon-could-be-the-only-thing-to-save-them-from-man-city-mauling/MRU4bzxo/)
-- **Combined Tottenham and Man City XI, teenager is one of just four Spurs stars who make it**: [Link](https://www.spurs-web.com/tottenham-hotspur-fan-articles/combined-tottenham-and-man-city-xi-teenager-is-one-of-just-four-spurs-stars-who-make-it/)
-
-
-### harry styles (N/A, 01/02/2026 03:39 Lima)
-
-- **Harry Styles Fans in Uproar Over “Gross” Tour Ticket Costs: “A Shock to the System”**: [Link](https://www.hollywoodreporter.com/music/music-news/harry-styles-fans-uproar-tour-ticket-costs-together-prices-1236486023/)
-- **Harry Styles world tour only hits seven cities: How tours are changing**: [Link](https://www.bbc.com/news/articles/czx3q0qw0npo)
-- **Together Together or Apart Apart?**: [Link](https://www.london-now.co.uk/young-reporter/35407/)
-
-
-### ufc 326 (N/A, 01/02/2026 03:39 Lima)
-
-- **UFC 326 bout may be saved as 15-2 star with three straight Fight of the Nights agrees to step in**: [Link](https://bloodyelbow.com/2026/01/31/ufc-326-bout-may-be-saved-as-15-2-star-with-three-straight-fight-of-the-nights-agrees-to-step-in/)
-- **‘It just sucks’: Brian Ortega reveals he’s out of his rematch against Renato Moicano at UFC 326**: [Link](https://sports.yahoo.com/articles/just-sucks-brian-ortega-reveals-172042403.html)
-- **Two Former UFC Title Challengers pull out of UFC 326 Card**: [Link](https://www.yardbarker.com/mma/articles/two_former_ufc_title_challengers_pull_out_of_ufc_326_card/s1_17664_43408149)
-
-
-### final australian open 2026 (N/A, 01/02/2026 03:39 Lima)
-
-- **La reina de Melbourne: Elena Rybakina derrotó a Aryna Sabalenka y se proclamó campeona del Australian Open**: [Link](https://rpp.pe/tenis/grand-slam/australian-open-elena-rybakina-derroto-a-aryna-sabalenka-y-se-proclamo-campeona-del-torneo-noticia-1673873)
-- **Aryna Sabalenka se reagrupa y avanza a tercera ronda en Australia**: [Link](https://www.elpueblo.pe/deportes/aryna-sabalenka-se-reagrupa-y-avanza-a-tercera-ronda-en-australia/222789/)
-- **Aryna Sabalenka y Elena Rybakina jugarán la final del Abierto de Australia**: [Link](https://andina.pe/agencia/noticia-aryna-sabalenka-y-elena-rybakina-jugaran-final-del-abierto-australia-1061131.aspx)
-
-
-### kevin warsh (N/A, 01/02/2026 00:23 Lima)
-
-- **Kevin Warsh, the Fed chair nominee shaped by the 2008 financial crisis**: [Link](https://www.ft.com/content/2030acc1-4026-4ad1-81bc-12754389f71d)
-- **Trump nominates Kevin Warsh as new Federal Reserve chair**: [Link](https://www.bbc.com/news/live/ckgx1yldxg4t)
-- **A Hawkish Kevin Warsh at the Fed Could Haunt Bessent**: [Link](https://www.nytimes.com/2026/01/31/business/scott-bessent-kevin-warsh-trump.html)
-
-
-### gerardo taracena (N/A, 01/02/2026 00:23 Lima)
-
-- **Muere querido actor de telenovelas a los 55 años: devastados, dan a conocer su fallecimiento**: [Link](https://www.lasestrellas.tv/famosos/muere-querido-actor-de-telenovelas-a-los-55-anos-devastados-dan-a-conocer-su-fallecimiento)
-- **Gerardo Taracena, el hombre que aprendió maya, corrió hasta el límite y dejó huella en el cine mexicano**: [Link](https://www.eluniversal.com.mx/espectaculos/gerardo-taracena-el-hombre-que-aprendio-maya-corrio-hasta-el-limite-y-dejo-huella-en-el-cine-mexicano/)
-- **🕊️Fallece Gerardo Taracena a los 55 años, ícono mexicano del cine, la televisión y la danza. Recordado por su papel en Apocalypto y Narcos: México, su partida deja un vacío profundo en la industria del espectáculo nacional. Su carrera comenzó en la dan**: [Link](https://www.facebook.com/MilenioDiario/posts/%EF%B8%8Ffallece-gerardo-taracena-a-los-55-a%C3%B1os-%C3%ADcono-mexicano-del-cine-la-televisi%C3%B3n-y-/1375117194645748/)
-
-
-### paramount (N/A, 01/02/2026 00:23 Lima)
-
-- **3 new to Paramount+ movies you need to stream this weekend (Jan. 30-Feb. 1)**: [Link](https://www.tomsguide.com/entertainment/paramount-plus/3-new-to-paramount-movies-you-need-to-stream-this-weekend-jan-30-feb-1-2026)
-- **One Killed in Multi-Vehicle Crash in Paramount**: [Link](https://mynewsla.com/life/2026/01/31/one-killed-in-multi-vehicle-crash-in-paramount-4/)
-- **Fatal Crash in Paramount**: [Link](https://mynewsla.com/crime/2026/01/31/one-killed-in-multi-vehicle-crash-in-paramount/)
-
-
-### benoît saint denis (N/A, 01/02/2026 00:23 Lima)
-
-- **Aaron Tau brise le silence après le pesage polémique de la finale Road to UFC**: [Link](https://www.mmadeferlante.com/aaron-tau-brise-le-silence-apres-le-pesage-polemique-de-la-finale-road-to-ufc/)
-- **UFC Sidney 2026 en direct streaming**: [Link](https://sportune.20minutes.fr/ufc-sidney-2026-en-direct-streaming)
-- **« Cela ne peut être qu’avantageux pour Benoît » : drôle d’horaire pour Saint Denis à Sydney, avec des combats dès 9h du matin**: [Link](https://www.leparisien.fr/sports/mma/cela-ne-peut-etre-quavantageux-pour-benoit-drole-dhoraire-pour-saint-denis-a-sydney-avec-des-combats-des-9h-du-matin-31-01-2026-UBI6VM2BUFA4NFHB73CZHLYOJE.php)
 
 
