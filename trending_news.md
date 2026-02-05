@@ -1,3 +1,24 @@
+### spurs - thunder (N/A, 05/02/2026 08:14 Lima)
+
+- **San Antonio vs Oklahoma City Thunder, Final Score: Spurs outlast the Thunder bench crew 116-106**: [Link](https://www.poundingtherock.com/game-recaps/94309/san-antonio-vs-oklahoma-city-thunder-final-score-spurs-outlast-the-thunder-bench-crew-116-106)
+- **Keldon Johnson Drops 25 PTS Off the Bench in Win vs. OKC**: [Link](https://bvmsports.com/2026/02/05/keldon-johnson-drops-25-pts-off-the-bench-in-win-vs-okc/)
+- **Photos: Spurs vs. Oklahoma Thunder | 2/4/26**: [Link](https://www.nba.com/spurs/photos/photos-spurs-vs-oklahoma-thunder-2-4-26)
+
+
+### atalanta vs juventus (N/A, 05/02/2026 08:14 Lima)
+
+- **Palladino: ‘Lookman asked to leave, Atalanta ready for strong Juventus’**: [Link](https://football-italia.net/palladino-lookman-ask-leave-atalanta-juventus/)
+- **Coppa Italia 2025-2026: Italia 1 Broadcasts First Quarterfinals**: [Link](https://www.filmogaz.com/133560)
+- **Preview: Atalanta vs Juventus**: [Link](https://www.juventus.com/en/news/articles/preview-atalanta-vs-juventus-italian-cup-05-02-26)
+
+
+### premios luces nominados (N/A, 05/02/2026 08:14 Lima)
+
+- **Premios Luces 2026: esta es la lista completa de nominados**: [Link](https://elcomercio.pe/luces/musica/premios-luces-2026-conoce-a-los-nominados-lista-completa-noticia/)
+- **Programas de TVPerú son nominados a Premios Luces 2026**: [Link](https://www.tvperu.gob.pe/noticias/cultural/programas-de-tvperu-son-nominados-a-premios-luces-2026)
+- **ContraCorriente y Willax Deportes son nominados a los Premios Luces 2026**: [Link](https://willax.pe/entretenimiento/contracorriente-willax-deportes-nominados-premios-luces-2026-willax)
+
+
 ### bet 365 (N/A, 05/02/2026 03:53 Lima)
 
 - **bet365 bonus code ALBET365: Claim $200 in bonuses for Seahawks vs. Patriots in Super Bowl 60**: [Link](https://www.al.com/betting/2026/02/bet365-bonus-code-albet365-claim-200-in-bonuses-for-seahawks-vs-patriots-in-super-bowl-60.html)
@@ -1011,26 +1032,5 @@ Sin noticias relacionadas disponibles.
 - **Neuer BVB-Ausfall, Süle zurück, Klarheit bei Anton und Sabitzer: Kader gegen Heidenheim**: [Link](https://www.ruhrnachrichten.de/bvb/bvb-kader-gegen-heidenheim-neuer-ausfall-suele-zurueck-klarheit-bei-anton-w1146273-2001957142/)
 - **Bundesliga - Borussia Dortmund vs. 1. FC Heidenheim heute live im Ticker: BVB will an FCB ran rücken - Liveticker**: [Link](https://www.eurosport.de/fussball/bundesliga/2025-2026/live-borussia-dortmund-1.-fc-heidenheim_mtc1609147/live-commentary.shtml)
 - **Vor Heimspiel gegen Heidenheim: (K)ein Grund zur Vorfreude?!**: [Link](https://www.schwatzgelb.de/artikel/2026/warmlaufen/kein-grund-zur-vorfreude)
-
-
-### deportivo garcilaso (N/A, 01/02/2026 11:36 Lima)
-
-- **Sporting Cristal sufrirá dos bajas para su debut en el Apertura**: [Link](https://www.espn.com.pe/futbol/peru/nota/_/id/16245305/sporting-cristal-sufrira-dos-bajas-para-su-debut-en-el-apertura)
-- **Sporting Cristal vs. Deportivo Garcilaso EN VIVO: minuto a minuto gratis vía Liga 1 MAX por Movistar TV**: [Link](https://depor.com/futbol-peruano/descentralizado/sporting-cristal-vs-deportivo-garcilaso-en-vivo-minuto-a-minuto-gratis-liga-1-max-movistar-tv-futbol-libre-tv-directv-l1-play-zapping-canales-de-transmision-torneo-apertura-2026-noticia/)
-- **Alineaciones de Sporting Cristal vs Garcilaso: el imponente once de Autuori para debut en Liga 1**: [Link](https://libero.pe/futbol-peruano/sporting-cristal/2026/01/31/alineaciones-de-sporting-cristal-vs-deportivo-garcilaso-formacion-del-partido-torneo-apertura-liga-1-2026-740993)
-
-
-### crystal palace vs (N/A, 01/02/2026 11:36 Lima)
-
-- **Premier League: Nottingham Forest y Crystal Palace se miden por la fecha 24**: [Link](https://rpp.pe/futbol/ligas-internacionales/premier-league-nottingham-forest-y-crystal-palace-se-miden-por-la-fecha-24-noticia-1673857)
-- **'Great save' joke fans as Neco Williams SENT OFF for 'brainfart' handball on the line to gift Palace equaliser vs Forest**: [Link](https://www.thesun.co.uk/sport/38086596/neco-williams-red-card-handball-crystal-palace-nottingham-forest/)
-- **Huge twist as key Leeds United rivals blow big chance with additional setback for fresh Whites boost**: [Link](https://www.yorkshireeveningpost.co.uk/sport/football/leeds-united/leeds-united-nottingham-forest-morgan-gibbs-white-crystal-palace-5498174)
-
-
-### la liga (N/A, 01/02/2026 11:36 Lima)
-
-- **Real Madrid Aim to Strengthen Title Push Against Struggling Rayo Vallecano**: [Link](https://dawan.africa/news/real-madrid-aim-to-strengthen-title-push-against-struggling-rayo-vallecano)
-- **Real Madrid fans boo and whistle at players once again before Rayo Vallecano clash**: [Link](https://madriduniversal.com/real-madrid-fans-boo-and-whistle-at-players-once-again-before-rayo-vallecano-clash/)
-- **Valverde: "Winning brings happiness and changes the energy"**: [Link](https://www.realmadrid.com/en-US/news/football/first-team/press-conference/declaraciones-jugador-01-02-2026)
 
 
