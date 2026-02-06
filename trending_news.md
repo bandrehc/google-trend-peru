@@ -1,3 +1,24 @@
+### sorteo copa del rey (N/A, 06/02/2026 08:12 Lima)
+
+- **Sorteo de Copa del Rey, en directo: partidos, cruces y emparejamientos de semifinales hoy en vivo**: [Link](https://as.com/futbol/copa_del_rey/sorteo-de-copa-del-rey-en-directo-partidos-cruces-y-emparejamientos-de-semifinales-hoy-en-vivo-f202602-d/)
+- **Definidos los cuatro semifinalistas de la Copa del Rey Mapfre: este viernes, el sorteo**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20260205/1002615508/definidos-cuatro-semifinalistas-copa-rey-mapfre-viernes-sorteo.html)
+- **Un sorteo de campeones**: [Link](https://www.marca.com/futbol/copa-rey/2026/02/05/sorteo-campeones.html)
+
+
+### suns - warriors (N/A, 06/02/2026 08:12 Lima)
+
+- **Warriors Rally Late To Stun Suns In Phoenix Thriller**: [Link](https://evrimagaci.org/gpt/warriors-rally-late-to-stun-suns-in-phoenix-thriller-527217)
+- **Game 52 wrap: Shorthanded Dubs come back to stun Suns; No Steph, No Porzingis(!?), Still Always Close Enough To Hurt™**: [Link](https://dubnationhq.com/p/game-52-wrap-no-spoiler-title)
+- **Warriors' fan favorite bids potential farewell after reaching contract limit**: [Link](https://sports.yahoo.com/articles/warriors-fan-favorite-bids-potential-122204941.html)
+
+
+### lakers - 76ers (N/A, 06/02/2026 08:12 Lima)
+
+- **Luka Doncic to have an MRI after leaving Lakers' game against 76ers with left hamstring injury**: [Link](https://apnews.com/article/lakers-luka-doncic-injured-775c25d44654391104565be405268e25)
+- **JJ Redick reveals what Luke Kennard brings to the team**: [Link](https://basketnews.com/news-240674-jj-redick-reveals-what-luke-kennard-brings-to-the-team.html)
+- **Austin Reaves returns to All-Star form in comeback win over Sixers**: [Link](https://sports.yahoo.com/articles/austin-reaves-returns-star-form-053810278.html)
+
+
 ### pablo guede (N/A, 06/02/2026 03:52 Lima)
 
 - **Paolo Guerrero y el consejo a Federico Girotti: “Tiene olfato de gol, pero no llega su oportunidad”**: [Link](https://depor.com/futbol-peruano/copa-libertadores/alianza-lima-paolo-guerrero-hablo-tras-derrota-en-copa-libertadores-frente-a-2-de-mayo-y-envio-consejo-a-federico-girotti-video-noticia/)
@@ -1011,26 +1032,5 @@ Sin noticias relacionadas disponibles.
 - **Kendrick Lamar Becomes Most Awarded Rapper in Grammy History**: [Link](https://uz.kursiv.media/en/2026-02-02/kendrick-lamar-becomes-most-awarded-rapper-in-grammy-history/)
 - **SZA Makes a Last-Minute Appearance at the Grammys in a Plunging Floral Dress**: [Link](https://www.harpersbazaar.com/celebrity/latest/a70209352/sza-2026-grammys-outfit-photos/)
 - **Moment Cher accidentally announces name of dead artist for Record of the Year instead of winner**: [Link](https://www.unilad.com/music/news/cher-grammys-mistake-record-of-the-year-kendrick-lamar-750788-20260202)
-
-
-### tabaco marino (N/A, 02/02/2026 00:26 Lima)
-
-- **🔴🔵 El Poder Judicial dictó nueve meses de prisión preventiva en contra de dos sujetos imputados por la explosión de dinamita a exteriores de la discoteca Luxor en Trujillo.**: [Link](https://www.facebook.com/Exitosanoticias/posts/-el-poder-judicial-dict%C3%B3-nueve-meses-de-prisi%C3%B3n-preventiva-en-contra-de-dos-suje/1334889982007390/)
-- **Caen “Jeffrey” y “Chorry”: implicados en atentado a discoteca de Trujillo y confiesan otros cinco ataques previos**: [Link](https://www.infobae.com/peru/2026/01/29/caen-jeffrey-y-chorry-implicados-en-atentado-a-discoteca-de-trujillo-y-confiesan-otros-cinco-ataques-previos/)
-- **Explosivos por control remoto: la nueva amenaza que sacude Trujillo | PASÓ EN EL PERÚ (VIDEO)**: [Link](https://elbuho.pe/2026/01/explosivos-por-control-remoto-la-nueva-amenaza-que-sacude-trujillo-paso-en-el-peru-video/)
-
-
-### el caballero de los siete reinos capitulo 3 (N/A, 02/02/2026 00:26 Lima)
-
-- **“A Knight of the Seven Kingdoms” Capítulo 3: Hora de estreno confirmado en HBO Max**: [Link](https://elcomercio.pe/respuestas/farandula/a-knight-of-the-seven-kingdoms-capitulo-3-hora-de-estreno-confirmado-hbo-max-game-of-thrones-tdpe-noticia/)
-- **Es oficial: la nueva serie de 'Juego de tronos' aspira a durar décadas y el creador de la serie revela su épico plan en HBO Max**: [Link](https://vandal.elespanol.com/random/la-nueva-serie-de-juego-de-tronos-aspira-a-durar-decadas-la-creadora-de-la-serie-revela-su-ambicioso-y-epico-plan-en-hbo-max/39701.html)
-- **Los 5 personajes esenciales de ‘El caballero de los Siete Reinos’**: [Link](https://hipertextual.com/cine-television/los-5-personajes-esenciales-de-el-caballero-de-los-siete-reinos/)
-
-
-### ozzy osbourne (N/A, 02/02/2026 00:26 Lima)
-
-- **Sharon, Kelly and Jack Osbourne reflect on Ozzy Osbourne's legacy at the Grammys**: [Link](https://abcnews.go.com/GMA/Culture/sharon-kelly-jack-osbourne-reflect-ozzy-osbournes-legacy/story?id=129767625)
-- **Grammys 2026: Grammys celebrate Ozzy Osbourne with musical tribute**: [Link](https://www.yahoo.com/entertainment/music/articles/grammys-2026-grammys-celebrate-ozzy-044500896.html)
-- **Kelly Osbourne Admits She's "Not Doing So Great" at Grammys 2026**: [Link](https://www.eonline.com/news/1426849/grammys-2026-kelly-osbourne-not-doing-great-after-ozzy-osbourne-death)
 
 
