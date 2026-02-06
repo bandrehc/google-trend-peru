@@ -1,3 +1,45 @@
+### lakers vs (N/A, 06/02/2026 00:17 Lima)
+
+- **76ers vs Lakers Odds & Picks Tonight: OVER is the Play**: [Link](https://www.oddsshark.com/nba/sixers-lakers-picks-odds-february-5-2026)
+- **Sixers look to push win streak to 6 games vs. Los Angeles Lakers**: [Link](https://www.libertyballers.com/76ers-game-previews/85757/sixers-look-to-push-win-streak-to-6-games-vs-los-angeles-lakers)
+- **First Game Back After Long Road Trip Is Typically A Great Fade Spot**: [Link](https://www.outkick.com/betting/first-game-back-after-long-road-trip-typically-great-fade-spot)
+
+
+### lady gaga (N/A, 06/02/2026 00:17 Lima)
+
+- **Lady Gaga Almost Canceled Her Grammys Performance**: [Link](https://www.rollingstone.com/music/music-features/lady-gaga-almost-canceled-grammys-performance-1235510279/)
+- **Lady Gaga Soars on 2026 Grammys Red Carpet in Dramatic Feathered Gown and Bleach Blonde Glam**: [Link](https://people.com/grammys-2026-lady-gaga-dramatic-feathered-gown-photos-11895630)
+- **Lady Gaga Transforms Herself Into a Bird at Grammys 2026 in a Dramatic Feather LBD**: [Link](https://www.instyle.com/lady-gaga-grammys-2026-bird-feather-lbd-11888766)
+
+
+### alejandro aguinaga (N/A, 06/02/2026 00:17 Lima)
+
+- **JNE ratifica que Alejandro Aguinaga infringió la neutralidad electoral durante semana de representación**: [Link](https://canaln.pe/actualidad/jne-confirma-infraccion-neutralidad-electoral-alejandro-aguinaga-n490089)
+- **Elecciones 2026: Confirman que congresista de Fuerza Popular infringió neutralidad**: [Link](https://peru21.pe/politica/elecciones-2026-confirman-que-congresista-fuerza-popular-infringio-neutralidad/)
+- **Elecciones 2026: JNE sanciona a congresista Alejandro Aguinaga por vulnerar neutralidad electoral**: [Link](https://www.exitosanoticias.pe/politica/elecciones-2026-jne-sanciona-congresista-alejandro-aguinaga-vulnerar-neutralidad-electoral-n168146)
+
+
+### 76ers - lakers (N/A, 06/02/2026 00:17 Lima)
+
+- **Cavs’ unusual raised court draws new scrutiny after Luka Dončić injury - The Athletic**: [Link](https://www.nytimes.com/athletic/7005642/2026/01/28/luka-doncic-injury-lakers-cavaliers-nba/)
+- **Cavaliers, NBA to discuss changes to unusual raised court after Luka Dončić’s injury - The Athletic**: [Link](https://www.nytimes.com/athletic/7008562/2026/01/29/cavaliers-court-changes-nba-luka-doncic-injury-lakers/)
+- **Luka Doncic went back to the locker room during the second quarter against the 76ers**: [Link](https://nypost.com/2026/02/05/sports/luka-doncic-hurt-in-76ers-vs-lakers/)
+
+
+### warriors - suns (N/A, 06/02/2026 00:17 Lima)
+
+- **Warriors vs. Suns injury report: Steph Curry and Devin Booker are out**: [Link](https://www.goldenstateofmind.com/warriors-injury-report/108248/warriors-suns-injury-report-steph-curry-devin-booker)
+- **NBA picks: Dillon Brooks featured in Warriors vs. Suns same-game parlay for Thursday, Feb. 5**: [Link](https://www.cbssports.com/nba/news/nba-picks-dillon-brooks-featured-in-warriors-vs-suns-same-game-parlay-for-thursday-feb-5/)
+- **Hot-shooting Suns return home to face in-flux Warriors**: [Link](https://fieldlevelmedia.com/nba/hot-shooting-suns-return-home-to-face-in-flux-warriors/)
+
+
+### heated rivalry (N/A, 06/02/2026 00:17 Lima)
+
+- **The hit TV show that no one saw coming**: [Link](https://www.economist.com/culture/2026/02/05/the-hit-tv-show-that-no-one-saw-coming)
+- **Why Did ‘Heated Rivalry’ Strike Such A Chord? Top TV And Streaming Execs Have Some Ideas**: [Link](https://deadline.com/2026/02/why-did-heated-rivalry-strikes-a-chord-tv-streaming-1236710553/)
+- **Heated? Yes. Rivalry? No.**: [Link](https://www.nytimes.com/2026/02/06/style/brock-mcgillis-matthew-ward-hockey-player-wedding.html)
+
+
 ### alianza lima vs copa libertadores (N/A, 05/02/2026 21:36 Lima)
 
 - **Lo que debe mejorar Alianza Lima para la vuelta vs. 2 de Mayo**: [Link](https://www.espn.com.pe/futbol/copa-libertadores/nota/_/id/16271385/lo-que-debe-mejorar-alianza-lima-para-la-vuelta-vs-2-de-mayo-guede)
@@ -990,45 +1032,5 @@ Sin noticias relacionadas disponibles.
 - **Nuggets host Thunder on Sunday**: [Link](https://www.nba.com/nuggets/news/nuggets-host-thunder-on-sunday)
 - **Nikola Jokic and Jamal Murray are good to go tonight …**: [Link](https://www.hoopshype.com/story/sports/nba/rumors/2026/02/01/nikola-jokic-and-jamal-murray-are-good-to-go-tonight/88469158007/)
 - **theScore Bet bonus code NPNEWS: Bet $10, get $100 in bonus bets for Thunder vs. Nuggets**: [Link](https://nypost.com/2026/02/01/betting/thescore-bet-bonus-code-npnews-bet-10-get-100-in-bonus-bets-for-thunder-vs-nuggets/)
-
-
-### pharrell williams (N/A, 02/02/2026 00:26 Lima)
-
-- **Clipse Win Best Rap Performance for “Chains & Whips” at 2026 Grammys**: [Link](https://pitchfork.com/news/clipse-win-best-rap-performance-for-chains-and-whips-at-2026-grammys/)
-- **Clipse, Pharrell Williams Make It Snow During Heavenly Grammys Performance**: [Link](https://www.rollingstone.com/music/music-news/clipse-pharrell-williams-2026-grammys-performance-1235508163/)
-- **Watch Clipse's Powerful "The Birds Don't Sing" Performance and Learn the Song's Meaning**: [Link](https://www.nbc.com/nbc-insider/watch-clipse-perform-the-birds-dont-sing-what-is-song-about)
-
-
-### tyler the creator (N/A, 02/02/2026 00:26 Lima)
-
-- **Tyler, The Creator Meshes ‘Chromakopia’ & ‘Don’t Tap the Glass’ for Explosive Grammys Performance With Regina King**: [Link](https://www.yahoo.com/entertainment/music/articles/tyler-creator-meshes-chromakopia-don-042556513.html)
-- **Tyler, The Creator Hits Person With Car During Grammys Performance With Regina King Cameo**: [Link](https://www.hollywoodreporter.com/music/music-news/tyler-the-creator-hits-person-car-2026-grammys-performance-1236492179/)
-- **Watch Tyler, the Creator Perform at 2026 Grammys**: [Link](https://pitchfork.com/news/watch-tyler-the-creator-perform-at-2026-grammys/)
-
-
-### keiko fujimori (N/A, 02/02/2026 00:26 Lima)
-
-- **Keiko Fujimori: ¿quiénes integran su círculo confianza en su cuarta elección presidencial? | tlc nota | POLITICA**: [Link](https://elcomercio.pe/politica/keiko-fujimori-quienes-integran-su-circulo-confianza-en-su-cuarta-eleccion-presidencial-tlc-nota-noticia/)
-- **Candidatos presidenciales Keiko Fujimori, Rafael López Aliaga y Enrique Valderrama plantean ponerle fin al colapso de Petroperú**: [Link](https://www.expreso.com.pe/politica/candidatos-presidenciales-keiko-fujimori-rafael-lopez-aliaga-y-enrique-valderrama-plantean-ponerle-fin-al-colapso-de-petroperu-fuerza-popular-renovacion-popular-apra-noticia/1260161/)
-- **🔴🔵#InformamosYOpinamos 🗯🗯 | La candidata presidencial por Fuerza Popular, Keiko Fujimori, propuso una alianza entre el sector público y privado para que se logre una reforma en la administración de Petroperú. "Las planillas de oro también serán revisa**: [Link](https://www.facebook.com/story.php?story_fbid=1337570831739305&id=100064592023543)
-
-
-### ice (N/A, 01/02/2026 21:43 Lima)
-
-- **Lady Gaga actuará en los Grammy 2026 tras su discurso anti-ICE**: [Link](https://www.elpueblo.pe/entretenimiento/lady-gaga-actuara-en-los-grammy-2026-tras-su-discurso-anti-ice/236669/)
-
-
-### super bowl (N/A, 01/02/2026 21:43 Lima)
-
-- **Super Bowl 60: 10 details about the Patriots’ week in Santa Clara - The Athletic**: [Link](https://www.nytimes.com/athletic/7010088/2026/02/01/patriots-uniforms-super-bowl-60-santa-clara/)
-- **Fans fired up as Pats look to bring home 7th Super Bowl title**: [Link](https://whdh.com/news/fans-fired-up-as-pats-look-to-bring-home-7th-super-bowl-title/)
-- **Drake Maye, Mike Vrabel address Gillette Stadium crowd at Super Bowl rally**: [Link](https://www.cbsnews.com/boston/video/drake-maye-mike-vrabel-address-gillette-stadium-crowd-at-super-bowl-rally/)
-
-
-### jacob elordi (N/A, 01/02/2026 21:43 Lima)
-
-- **Margot Robbie Reacts to Rumors Jacob Elordi Is the Next James Bond**: [Link](https://www.eonline.com/news/1427896/margot-robbie-on-jacob-elordi-james-bond-rumors)
-- **Will Jacob Elordi Be the Next James Bond? The Rumor Gains Momentum**: [Link](https://3dvf.com/en/will-jacob-elordi-be-the-next-james-bond-the-rumor-gains-momentum/)
-- **Who Will Be the Next James Bond?**: [Link](https://next.io/prediction-markets/trending/who-will-be-the-next-james-bond/)
 
 
