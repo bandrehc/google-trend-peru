@@ -1,3 +1,73 @@
+### al-nassr - al ittihad (N/A, 06/02/2026 11:54 Lima)
+
+- **Al Nassr vs Al Ittihad: what time and on which TV channel to watch the match live? (6/2/2026)**: [Link](https://foot-africa.com/en/news/al-nassr-vs-al-ittihad-what-time-and-on-which-tv-channel-to-watch-the-match-live-622026-1073678/)
+- **A Strong Boost for Al-Nassr's Attack with the Return of the Team Star Before the Al-Ittihad Match**: [Link](https://www.ysscores.com/en/news/13905795/A-Strong-Boost-for-Al-Nassr's-Attack-with-the-Return-of-the-Team-Star-Before-the-Al-Ittihad-Match)
+- **Will Cristiano Ronaldo play? Projected lineups for Al-Nassr vs. Al-Ittihad in the Saudi Pro League**: [Link](https://worldsoccertalk.com/news/is-cristiano-ronaldo-playing-projected-lineups-for-al-nassr-vs-al-ittihad-in-the-saudi-pro-league/)
+
+
+### sakaryaspor (N/A, 06/02/2026 11:54 Lima)
+
+- **Sakaryaspor, 2 futbolcuyu transfer etti, 2 oyuncuyla da yollarını ayırdı**: [Link](https://www.fanatik.com.tr/futbol/sakaryaspor-2-futbolcuyu-transfer-etti-2-oyuncuyla-da-yollarini-ayirdi-2611271)
+- **Yabancı Mesaisi DEVAM EDİYOR**: [Link](https://sakaryayenigun.com.tr/haber/27376014/yabanci-mesaisi-devam-ediyor)
+- **Sakaryaspor, Owusu Kwabena için devrede**: [Link](https://medyabar.com/foto/27370290/sakaryaspor-owusu-kwabena-icin-devrede?4)
+
+
+### milo j (N/A, 06/02/2026 11:54 Lima)
+
+- **Milo J, el fenómeno argentino ahora dará su show en el Estadio Nacional**: [Link](https://peru21.pe/cultura/milo-j-en-lima-concierto-en-el-estadio-nacional-en-abril/)
+- **Milo J en Lima 2026: lugar, precios, preventa de entradas,**: [Link](https://www.americatv.com.pe/noticias/espectaculos/milo-j-lima-2026-estadio-nacional-entradas-n515027)
+- **Milo J en el Estadio Nacional: fecha, precios de entradas y nuevas zonas para su concierto**: [Link](https://rpp.pe/musica/nacional/milo-j-en-lima-2026-precios-de-entradas-y-nuevas-zonas-tras-confirmarse-concierto-en-estadio-nacional-noticia-1674548)
+
+
+### teleticket (N/A, 06/02/2026 11:54 Lima)
+
+- **Romeo Santos y Prince Royce llegan juntos a Lima: fecha, lugar y más detalles sobre su concierto**: [Link](https://www.infobae.com/peru/2026/02/04/romeo-santos-regresa-a-lima-con-prince-royce-fecha-lugar-y-mas-detalles/)
+- **Romeo Santos y Prince Royce vuelven a Lima: fecha, lugar, entradas y todo lo que debes saber**: [Link](https://elcomercio.pe/respuestas/farandula/romeo-santos-y-prince-royce-vuelven-a-lima-fecha-lugar-entradas-y-todo-lo-que-debes-saber-tdpe-noticia/)
+- **Concierto de Romeo Santos y Prince Royce en Perú 2026: fecha de preventa vía Teleticket, precios y zonas**: [Link](https://libero.pe/ocio/famosos/2026/02/06/concierto-de-romeo-santos-prince-royce-en-peru-2026-fecha-de-preventa-via-teleticket-precios-zonas-estadio-nacional-269610)
+
+
+### radar aeropuerto jorge chávez (N/A, 06/02/2026 11:54 Lima)
+
+- **Vuelos retrasados en el Jorge Chávez por fallas en el sistema de radar: Corpac restablece control de tránsito aéreo**: [Link](https://www.infobae.com/peru/2026/02/06/vuelos-retrasados-en-el-aeropuerto-jorge-chavez-reportan-fallos-en-el-sistema-de-radar/)
+- **Reportan problemas en radar del aeropuerto internacional Jorge Chávez**: [Link](https://andina.pe/agencia/noticia-reportan-problemas-radar-del-aeropuerto-internacional-jorge-chavez-1062057.aspx)
+- **Corpac restablece el control del tránsito aéreo en el Jorge Chávez tras contingencias técnicas**: [Link](https://www.atv.pe/noticia/corpac-restablece-el-control-del-transito-aereo-en-el-jorge-chavez-tras-contingencias-tecnicas/)
+
+
+### shirley arica internada (N/A, 06/02/2026 11:54 Lima)
+
+- **Shirley Arica preocupa al ser INTERNADA en clínica: "Dios me mando esta prueba para darme cuenta de mis descuidos"**: [Link](https://www.atv.pe/noticia/shirley-arica-preocupa-al-ser-internada-en-clinica-dios-me-mando-esta-prueba-para-darme-cuenta-de-mis-descuidos/)
+- **Shirley Arica hospitalizada hace casi una semana: “No tengo fecha de salida y es frustrante”**: [Link](https://trome.com/espectaculos/tv/shirley-arica-esta-hospitalizada-hace-casi-una-semana-no-tengo-fecha-de-salida-y-es-frustrante-foto-farandula-noticia/)
+- **"No tengo fecha de salida": Shirley Arica permanece internada y admite que descuidó su salud**: [Link](https://rpp.pe/famosos/farandula/shirley-arica-permanece-hospitalizada-y-admite-que-descuido-su-salud-fotos-noticia-1674685)
+
+
+### al-ettifaq - damac (N/A, 06/02/2026 11:54 Lima)
+
+- **Preview: Al Ettifaq vs Damac Prediction, lineups, betting tips & odds | Saudi Pro League 2025-26**: [Link](https://khelnow.com/football/world-football-al-ettifaq-vs-damac-preview-202602)
+- **al-ettifaq vs damac**: [Link](https://www.latestly.com/google-trends/06022026/al-ettifaq-vs-damac/)
+- **Al Ettifaq vs Damac FC: Predictions and Tips for February 6, 2026**: [Link](https://www.el-balad.com/6844594)
+
+
+### dia del pisco sour (N/A, 06/02/2026 11:54 Lima)
+
+- **Hay potencial para exportar más pisco, la bebida bandera del Perú, al mercado asiático**: [Link](https://andina.pe/agencia/noticia-hay-potencial-para-exportar-mas-pisco-bebida-bandera-del-peru-al-mercado-asiatico-1062053.aspx)
+- **Día del Pisco Sour en Tacna**: [Link](https://www.ytuqueplanes.com/festividades/tacna/dia-del-pisco-sour-en-tacna)
+- **Indecopi refuerza defensa del pisco peruano**: [Link](https://caretas.pe/nacional/indecopi-refuerza-defensa-del-pisco-peruano/)
+
+
+### copa davis (N/A, 06/02/2026 11:54 Lima)
+
+- **Copa Davis: así quedó definido el orden de juego de la serie entre Argentina y Corea del Sur**: [Link](https://www.espn.com.ar/tenis/nota/_/id/16277483/copa-davis-asi-quedo-definido-el-orden-de-juego-de-la-serie-entre-argentina-y-corea-del-sur-qualifiers-2026-primera-ronda)
+- **Corea del Sur v Argentina: Tirante desafía a Chung en la apertura**: [Link](https://www.daviscup.com/es/noticias/tirante-desafia-a-chung-en-la-apertura)
+- **Guido Andreozzi y la emoción del llamado a la Copa Davis: “Trato de disfrutar cada momento”**: [Link](https://www.infobae.com/deportes/2026/02/05/guido-andreozzi-y-la-emocion-del-llamado-a-la-copa-davis-trato-de-disfrutar-cada-momento/)
+
+
+### criptomonedas (N/A, 06/02/2026 11:54 Lima)
+
+- **No, pero en serio: ¿qué está pasando con el bitcoin?**: [Link](https://cnnespanol.cnn.com/2026/02/05/economia/que-esta-pasando-bitcoin-trax)
+- **Bitcoin cae a mitad de precio y Velarde alerta que puede bajar a 0, ¿hora de comprar o vender?**: [Link](https://gestion.pe/tu-dinero/bitcoin-cae-a-mitad-de-precio-y-julio-velarde-presidente-del-bcrp-alerta-que-puede-bajar-a-0-hora-de-comprar-o-vender-noticia/)
+- **El bitcóin pierde los 70.000 dólares tras caer casi un 12 % en tres días Por EFE**: [Link](https://es.investing.com/news/forex-news/el-bitcoin-pierde-los-70000-dolares-tras-caer-casi-un-12--en-tres-dias-3501978)
+
+
 ### sorteo copa del rey (N/A, 06/02/2026 08:12 Lima)
 
 - **Sorteo de Copa del Rey, en directo: partidos, cruces y emparejamientos de semifinales hoy en vivo**: [Link](https://as.com/futbol/copa_del_rey/sorteo-de-copa-del-rey-en-directo-partidos-cruces-y-emparejamientos-de-semifinales-hoy-en-vivo-f202602-d/)
@@ -962,75 +1032,5 @@ Sin noticias relacionadas disponibles.
 - **Por qué el oro y la plata baten récords tras el mensaje de Powell sobre la Reserva Federal**: [Link](https://es.euronews.com/business/2026/01/29/el-oro-supera-los-5500-dolares-la-plata-sube-powell-resta-importancia-al-repunte-de-los-me)
 - **La nominación a la Fed pincha la fiebre del oro, que cae hasta un 20% en dos jornadas**: [Link](https://cincodias.elpais.com/mercados-financieros/2026-02-02/el-oro-y-la-plata-se-desfondan-y-se-alejan-de-los-maximos-historicos.html)
 - **Oro y plata amplían pérdidas tras un desplome histórico de los metales | MUNDO**: [Link](https://gestion.pe/mundo/internacional/oro-y-plata-amplian-perdidas-tras-un-desplome-historico-de-los-metales-noticia/)
-
-
-### liga peruana de vóley alianza lima (N/A, 02/02/2026 11:49 Lima)
-
-- **Alianza Lima 3-2 San Martín: resumen del triunfazo ‘blanquiazul’ por la fecha 4 de la Liga Peruana de Vóley 2025/26**: [Link](https://www.infobae.com/peru/deportes/2026/02/01/alianza-lima-vs-san-martin-en-vivo-hoy-latina-tv-fecha-4-fase-2-liga-peruana-de-voley-2025-2026-resumen-resultado/)
-- **Tabla de la Liga Peruana de Vóley 2026: partidos de hoy por la fecha 4 de la segunda etapa y resultados**: [Link](https://larepublica.pe/deportes/2026/01/30/tabla-de-la-liga-peruana-de-voley-2026-posiciones-y-partidos-de-hoy-por-la-fecha-4-de-la-segunda-etapa-1924500)
-- **Con la 'U' como líder, conoce resultados y cómo quedó la tabla tras la 4ta. fecha de la Liga Peruana de Vóley**: [Link](https://ovacion.pe/noticias/voley-apuesta-total/u-lider-conoce-resultados-quedo-tabla-tras-4ta-fecha-liga-peruana)
-
-
-### nuggets - thunder (N/A, 02/02/2026 08:13 Lima)
-
-- **Nikola Jokic and Jamal Murray are good to go tonight …**: [Link](https://sports.yahoo.com/articles/nikola-jokic-jamal-murray-good-024655842.html)
-- **Game Thread: Denver Nuggets vs Oklahoma City Thunder. February 1st, 2026.**: [Link](https://bvmsports.com/2026/02/01/game-thread-denver-nuggets-vs-oklahoma-city-thunder-february-1st-2026/)
-- **Highlights From Shai Gilgeous-Alexander 34-Point Game**: [Link](https://www.nba.com/watch/video/highlights-from-shai-gilgeous-alexander-34-point-game-2)
-
-
-### weather (N/A, 02/02/2026 08:13 Lima)
-
-- **First Alert: Warmer Days Ahead—Rain Chances Return Tuesday Night**: [Link](https://www.wsfa.com/2026/02/02/first-alert-warmer-days-aheadrain-chances-return-tuesday-night/)
-- **Cold snap finally ending ahead of midweek rain chances**: [Link](https://www.wtvy.com/2026/02/02/cold-snap-finally-ending-ahead-midweek-rain-chances/)
-- **Alabama’s February winter weather outlook: Is a warmup coming or are we in for snow?**: [Link](https://www.al.com/weather/2026/02/alabamas-february-winter-weather-outlook-is-a-warmup-coming-or-are-we-in-for-snow.html)
-
-
-### precio del oro (N/A, 02/02/2026 08:13 Lima)
-
-- **La producción de oro se estanca pese a la arrolladora demanda de los inversores**: [Link](https://elpais.com/economia/2026-02-02/la-produccion-de-oro-se-estanca-pese-a-la-arrolladora-demanda-de-los-inversores.html)
-- **Wall Street reacciona al nuevo rumbo de Fed: sube el dólar y cae el oro**: [Link](https://www.expreso.com.pe/economia/wall-street-reacciona-al-nuevo-rumbo-de-fed-sube-el-dolar-y-cae-el-oro-reserva-federal-de-estados-unidos-noticia/1260395/)
-- **¿Por qué ha caído en picado el precio del oro y la plata?**: [Link](https://www.msn.com/es-pe/noticias/other/por-qu%C3%A9-ha-ca%C3%ADdo-en-picado-el-precio-del-oro-y-la-plata/ar-AA1VqGDC)
-
-
-### precio dolar (N/A, 02/02/2026 08:13 Lima)
-
-- **Precio del dólar en Perú hoy, sábado 31 de enero: compra y venta del día**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-a-cuanto-esta-el-dolar-y-tipo-de-cambio-este-sabado-31-de-enero-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
-- **Sol perdió contra dólar en última sesión de enero**: [Link](https://peru21.pe/economia/sol-perdio-contra-dolar-en-ultima-sesion-de-enero/)
-- **Dólar, cotización HOY en Perú: ¿cuál es el tipo de cambio este lunes 2 de febrero de 2026?**: [Link](https://www.expreso.com.pe/economia/dolar-cotizacion-hoy-en-peru-cual-es-el-tipo-de-cambio-este-lunes-2-de-febrero-de-2026-sunat-mef-bcrp-ultima-hora-ultimo-minuto-precio-soles-divisa-noticia/1260622/)
-
-
-### luther vandross (N/A, 02/02/2026 08:13 Lima)
-
-- **Grammys 2026: Luther Vandross, Kendrick Lamar, Cher, explained**: [Link](https://mashable.com/article/grammys-cher-luther-vandross-kendrick-lamar)
-- **Cher wears a deconstructed naked dress to accept her Lifetime Achievement Award**: [Link](https://www.harpersbazaar.com/uk/fashion/a70219073/cher-2026-grammys-lifetime-achievement-award-outfit-photos/)
-- **Moment Cher accidentally announces name of dead artist for Record of the Year instead of winner**: [Link](https://www.unilad.com/music/news/cher-grammys-mistake-record-of-the-year-kendrick-lamar-750788-20260202)
-
-
-### que es ice (N/A, 02/02/2026 08:13 Lima)
-
-- **Protestas contra ICE se extendieron por EE.UU. mientras las batallas judiciales se saldaron con victorias y derrotas para Trump**: [Link](https://cnnespanol.cnn.com/2026/02/01/eeuu/protestas-ice-ee-uu-victorias-derrotas-trump-trax)
-- **Antes y después de Minneapolis**: [Link](https://elpais.com/opinion/2026-02-01/antes-y-despues-de-minneapolis.html)
-- **Por qué Trump eligió Minesota para su mayor despliegue de agentes migratorios en EE.UU.**: [Link](https://www.bbc.com/mundo/articles/c4g34q7jqd0o)
-
-
-### cuando es el super bowl 2026 (N/A, 02/02/2026 03:52 Lima)
-
-- **¿Cómo y dónde ver a Bad Bunny en el Show de Medio Tiempo del Super Bowl 2026? | tdpe | RESPUESTAS**: [Link](https://elcomercio.pe/respuestas/mexico/como-y-donde-ver-a-bad-bunny-en-el-show-de-medio-tiempo-del-super-bowl-2026-tdpe-noticia/)
-- **Los fans de Cardi B le piden que se una a Bad Bunny en el Super Bowl después de su actuación en SNL**: [Link](https://www.es.themirror.com/entretenimiento/cardi-snl-super-bowl-espectaculo-1655845)
-- **Medio tiempo del Super Bowl 2026 con Bad Bunny: Horario, duración, dónde ver**: [Link](https://www.sopitas.com/musica/medio-tiempo-del-super-bowl-2026-con-bad-bunny-horario-duracion-setlist-invitados/)
-
-
-### bad bunny grammy (N/A, 02/02/2026 00:26 Lima)
-
-- **Bad Bunny gana Mejor Álbum de Música Urbana en los Grammy**: [Link](https://caretas.pe/ellosellas/bad-bunny-debi-tirar-mas-fotos-mejor-album-musica-urbana-grammy-2026/)
-- **Bad Bunny arremete contra el ICE en los Grammy 2026: "No somos salvajes, somos humanos"**: [Link](https://rpp.pe/musica/internacional/grammy-2026-bad-bunny-arremete-contra-el-ice-durante-discurso-noticia-1674020)
-- **Bad Bunny listo para hacer historia en los Grammys y en el Super Bowl de EE.UU.**: [Link](https://peru21.pe/celebridades/bad-bunny-listo-para-hacer-historia-en-los-grammys-y-en-el-super-bowl-de-eeuu/)
-
-
-### cher (N/A, 02/02/2026 00:26 Lima)
-
-- **Kendrick Lamar Becomes Most Awarded Rapper in Grammy History**: [Link](https://uz.kursiv.media/en/2026-02-02/kendrick-lamar-becomes-most-awarded-rapper-in-grammy-history/)
-- **SZA Makes a Last-Minute Appearance at the Grammys in a Plunging Floral Dress**: [Link](https://www.harpersbazaar.com/celebrity/latest/a70209352/sza-2026-grammys-outfit-photos/)
-- **Moment Cher accidentally announces name of dead artist for Record of the Year instead of winner**: [Link](https://www.unilad.com/music/news/cher-grammys-mistake-record-of-the-year-kendrick-lamar-750788-20260202)
 
 
