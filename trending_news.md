@@ -1,3 +1,70 @@
+### hellas verona vs (N/A, 06/02/2026 15:39 Lima)
+
+- **Serie A: Hellas Verona busca dejar el fondo de la tabla ante Pisa**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-hellas-verona-busca-dejar-el-fondo-de-la-tabla-ante-pisa-noticia-1674528)
+
+
+### leganés - granada (N/A, 06/02/2026 15:39 Lima)
+
+- **Apuestas y Pronóstico del Leganés vs Granada 06/02/26**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/2026/febrero/pronostico-leganes-vs-granada-06-02-26)
+- **Leonardo condiciona un partido turbulento en Butarque**: [Link](https://as.com/futbol/segunda/leonardo-condiciona-un-partido-turbulento-en-butarque-f202602-n/)
+- **A por la tercera consecutiva en casa en un duelo directo**: [Link](https://www.cdleganes.com/a-por-la-tercera-consecutiva-en-casa-en-un-duelo-directo)
+
+
+### moquegua (N/A, 06/02/2026 15:39 Lima)
+
+- **ANGR exige reunión urgente con la PCM por crisis en Moquegua**: [Link](https://caretas.pe/politica/angr-exige-reunion-urgente-con-la-pcm-por-crisis-en-moquegua/)
+- **Autoridades de Moquegua participarán en segunda sesión de la Mesa de Diálogo por el río Coralaque**: [Link](https://prensaregional.pe/autoridades-de-moquegua-participaran-en-segunda-sesion-de-la-mesa-de-dialogo-por-el-rio-coralaque/)
+- **MINEM entregó expedientes técnicos para la mitigación ambiental de la cuenca del río Coralaque en Moquegua**: [Link](https://mineriaenergia.com/minem-entrego-expedientes-tecnicos-para-la-mitigacion-ambiental-de-la-cuenca-del-rio-coralaque-en-moquegua/)
+
+
+### lille (N/A, 06/02/2026 15:39 Lima)
+
+- **Lille predicted XI v Metz: New signings Gaëtan Perrin and Noah Edjouma benched**: [Link](https://sports.yahoo.com/articles/lille-predicted-xi-v-metz-101500824.html)
+- **Where to Watch FC Metz vs. Lille OSC: TV Channel, Start Time and Live Stream**: [Link](https://www.bleachernation.com/how-to-watch/2026/02/05/where-to-watch-fc-metz-vs-lille-osc-tv-channel-start-time-and-live-stream/)
+- **Metz Battles Lille OSC in Intense Matchup**: [Link](https://www.el-balad.com/6844824)
+
+
+### verona vs (N/A, 06/02/2026 15:39 Lima)
+
+- **Sammarco: "All the players have shown maximum availability; we need to help them perform at their best"**: [Link](https://www.hellasverona.it/en/news/sammarco-all-the-players-have-shown-maximum-availability-we-need-to-help-them-perform-at-their-best)
+- **Serie A | Verona vs Pisa | Official Lineups & Live Updates**: [Link](https://football-italia.net/serie-a-verona-vs-pisa-official-lineups-live-updates/)
+- **Serie A Goals Prediction: Bet 3 in MFT £10-£1000 Challenge**: [Link](https://www.filmogaz.com/136931)
+
+
+### moquegua vs (N/A, 06/02/2026 15:39 Lima)
+
+- **Liga 1: Por la fecha 2, Deportivo Moquegua recibirá a UTC**: [Link](https://rpp.pe/futbol/descentralizado/liga-1-por-la-fecha-2-deportivo-moquegua-recibira-a-utc-noticia-1674533)
+- **🔴#ENVIVO Conoce las alineaciones de Deportivo Moquegua y UTC**: [Link](https://ovacion.pe/noticias/liga1-2026/envivo-conoce-las-alineaciones-deportivo-moquegua-utc)
+- **CD Moquegua vs UTC Cajamarca EN VIVO por la fecha 2 de la Liga 1 2026**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/cd-moquegua-vs-utc-cajamarca-en-vivo-hora-y-donde-ver-el-partido-por-la-fecha-2-de-la-liga-1-2026-torneo-apertura-tdpe-noticia/)
+
+
+### metz vs (N/A, 06/02/2026 15:39 Lima)
+
+- **Liga de Francia: Metz se concentra para salir del último lugar ante Lille**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-de-francia-metz-se-concentra-para-salir-del-ultimo-lugar-ante-lille-noticia-1674529)
+- **Metz vs Lille: previa, horario y cómo llegan para la fecha 21 de la Ligue 1**: [Link](https://zona.palmsbet.pe/deportes/futbol/metz-vs-lille-previa-horario-y-como-llegan-para-la-fecha-21-de-la-ligue-1/)
+
+
+### primera división de arabia saudita (N/A, 06/02/2026 15:39 Lima)
+
+- **Cristiano sigue de huelga en Al Nassr y no juega ante Al Ittihad**: [Link](https://espndeportes.espn.com/futbol/clubes/nota/_/id/16277961/cristiano-rolando-al-nassr-huelga-al-ittihad)
+- **La liga saudí advierte a Cristiano por su huelga: "Nadie, por importante que sea, toma decisiones más allá de su propio club"**: [Link](https://www.marca.com/futbol/liga-arabia-saudi/2026/02/05/liga-saudi-advierte-cristiano-huelga-nadie-importante-sea-toma-decisiones-alla-propio-club.html)
+- **La fuerte decisión que tomó Cristiano Ronaldo en medio del escándalo que protagoniza en Arabia Saudita**: [Link](https://www.infobae.com/deportes/2026/02/05/la-fuerte-decision-que-tomo-cristiano-ronaldo-en-medio-del-escandalo-que-protagoniza-en-arabia-saudita/)
+
+
+### celta de vigo - osasuna (N/A, 06/02/2026 15:39 Lima)
+
+- **LaLiga EA Sports: Celta y Osasuna se miden por la fecha 23**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-celta-y-osasuna-se-miden-por-la-fecha-23-noticia-1674532)
+- **Fútbol en directo: Celta-Osasuna para abrir la jornada; el Atleti, rival del Barça en Copa**: [Link](https://www.flashscore.pe/noticias/futbol-en-directo-laliga-jornada-23-partidos-ultima-hora/pxtTq1VH/)
+- **Lo que debes saber del Celta-Osasuna de LaLiga**: [Link](https://www.flashscore.pe/noticias/futbol-laliga-ea-sports-previa-celta-osasuna-j23/6Lyz53Dt/)
+
+
+### metz - losc (N/A, 06/02/2026 15:39 Lima)
+
+- **Metz-LOSC : informations déplacement**: [Link](https://www.losc.fr/actualites/2026-02-06/metz-losc-informations-deplacement)
+- **PRONOS PARIS RMC Le pari foot de Lionel Charbonnier du 6 février – Ligue 1**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-foot-de-lionel-charbonnier-du-6-fevrier-ligue-1_AN-202602060671.html)
+- **Dernier de Ligue 1 en 2026, Lille a un mois pour se relancer**: [Link](https://www.flashscore.fr/actualites/dernier-de-ligue-1-en-2026-lille-a-un-mois-pour-se-relancer/t411taR9/)
+
+
 ### al-nassr - al ittihad (N/A, 06/02/2026 11:54 Lima)
 
 - **Al Nassr vs Al Ittihad: what time and on which TV channel to watch the match live? (6/2/2026)**: [Link](https://foot-africa.com/en/news/al-nassr-vs-al-ittihad-what-time-and-on-which-tv-channel-to-watch-the-match-live-622026-1073678/)
@@ -962,75 +1029,5 @@ Sin noticias relacionadas disponibles.
 - **Benedetti rompió el punto de penal, Botta falló su remate y se salvó Estudiantes**: [Link](https://www.espn.com.ar/futbol/argentina/nota/_/id/16264081/video-benedetti-rompio-el-punto-de-pena-botta-fallo-su-remate-y-se-salvo-estudiantes-vs-defensa-y-justicia)
 - **Cuándo juegan Defensa y Justicia vs. Estudiantes de La Plata: equipos, fecha, hora y TV en vivo**: [Link](https://espndeportes.espn.com/futbol/argentina/nota/_/id/16262793/defensa-y-justicia-vs-estudiantes-la-plata-torneo-apertura-equipo-fecha-hora-tv-en-vivo)
 - **Eduardo Domínguez y el empate de Estudiantes: "No puede volver a ocurrir"**: [Link](https://www.elgrafico.com.ar/articulo/primera-division/97326/eduardo-dominguez-y-el-empate-de-estudiantes-no-puede-volver-a-ocurrir)
-
-
-### racing (N/A, 02/02/2026 21:39 Lima)
-
-- **1/ST POST: Why Play Today? Monday, February 2, 2026**: [Link](https://www.xpressbet.com/component/content/article/21131-1-st-post-why-play-today-monday-february-2-2026)
-- **Monday’s Best Bets and Quick Picks: Turf Paradise exactas**: [Link](https://www.twinspires.com/edge/racing/wagering/monday-s-best-bets-and-quick-picks-turf-paradise-exactas/)
-- **Horse Racing Picks Today at Turf Paradise for Tuesday, February 3**: [Link](https://vsin.com/horse-racing/horse-racing-picks-today-at-turf-paradise-for-tuesday-february-3/)
-
-
-### kocaelispor - fenerbahçe (N/A, 02/02/2026 11:49 Lima)
-
-- **Fenerbahçe'de Edson Alvarez 10 maç sonra ilk 11'de başlıyor**: [Link](https://www.yenicaggazetesi.com/fenerbahcede-edson-alvarez-10-mac-sonra-ilk-11de-basliyor-997677h.htm)
-- **Kocaelispor Fenerbahçe maçında sıcak gelişme...**: [Link](https://www.ulketv.com/kocaelispor-fenerbahce-macinda-sicak-gelisme)
-- **Fenerbahçe, Kocaeli'de Taraftara Sarı Bere Dağıttı**: [Link](https://www.sondakika.com/haber/haber-fenerbahce-kocaeli-de-taraftara-sari-bere-dagitti-19529783/)
-
-
-### fc koln (N/A, 02/02/2026 11:49 Lima)
-
-- **Report: Bayern Munich’s Felipe Chávez headed to FC Köln**: [Link](https://sports.yahoo.com/articles/report-bayern-munich-felipe-ch-153512662.html)
-- **Deal on deadline day! Bayern release next player**: [Link](https://fcbinside.com/2026/02/02/deal-on-deadline-day-bayern-release-next-player/)
-- **Köln set to sign Bayern youngster**: [Link](https://bulinews.com/koln-set-sign-bayern-youngster)
-
-
-### primera división de arabia saudita (N/A, 02/02/2026 11:49 Lima)
-
-- **Cristiano mantiene el órdago y se niega a jugar**: [Link](https://as.com/futbol/internacional/ordago-de-cristiano-no-juega-con-al-nassr-f202602-n/)
-- **Impensado escándalo con Cristiano Ronaldo en Arabia Saudita: el motivo por el que decidió negarse a jugar**: [Link](https://www.infobae.com/deportes/2026/02/02/impensado-escandalo-con-cristiano-ronaldo-en-arabia-saudita-el-motivo-por-el-que-decidio-negarse-a-jugar/)
-- **Los motivos que se esconden detrás de las 'rebeliones' de Cristiano y Benzema en Arabia**: [Link](https://www.marca.com/futbol/2026/02/02/motivos-esconden-detras-rebeliones-cristiano-benzema-arabia.html)
-
-
-### al nassr vs (N/A, 02/02/2026 11:49 Lima)
-
-- **Al Nassr vs Al Riyadh EN VIVO por la Liga Profesional Saudí: comienza el partido**: [Link](https://larepublica.pe/deportes/2026/02/01/al-nassr-vs-al-riyadh-en-vivo-liga-profesional-saudi-2026-con-cristiano-ronaldo-78960)
-- **Con gol de ‘CR7’: Al Nassr venció 3-0 a Al Kholood por la Saudí Pro League | RESUMEN Y GOLES**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/al-nassr-vs-al-kholood-en-vivo-gratis-hoy-con-cristiano-ronaldo-horarios-canales-tv-y-donde-ver-partido-por-saudi-pro-league-video-noticia/)
-- **Al Nassr vs Al Riyadh EN VIVO por la Liga Profesional Saudí: TRANSMISIÓN del partido**: [Link](https://libero.pe/futbol-internacional/2026/02/02/nassr-vs-riyadh-en-vivo-gratis-cristiano-ronaldo-liga-profesional-saudi-via-thmanyah-video-90454)
-
-
-### felipe chavez (N/A, 02/02/2026 11:49 Lima)
-
-- **Felipe Chávez: El volante peruano será cedido por el Bayern Múnich a otro club de la Bundesliga**: [Link](https://www.atv.pe/noticia/felipe-chavez-el-volante-peruano-sera-cedido-por-el-bayern-munich-a-otro-club-de-la-bundesliga/)
-- **Cambio de camiseta: Felipe Chávez dejará Bayern Múnich para convertirse en jugador de Colonia**: [Link](https://rpp.pe/futbol/peruanos-en-el-mundo/felipe-chavez-dejara-bayern-munich-para-convertirse-en-jugador-de-colonia-bundesliga-noticia-1674071)
-- **Bayern Múnich cede a préstamo a Felipe Chávez al FC Colonia de Alemania**: [Link](https://andina.pe/agencia/noticia-bayern-munich-cede-a-prestamo-a-felipe-chavez-al-fc-colonia-alemania-1061571.aspx)
-
-
-### ciro castillo (N/A, 02/02/2026 11:49 Lima)
-
-- **ANGR respalda decisión judicial en caso Ciro Castillo**: [Link](https://caretas.pe/politica/angr-respalda-decision-judicial-en-caso-ciro-castillo/)
-- **El Castillo del terror en la región Callao**: [Link](https://diariouno.pe/2026/02/02/el-castillo-del-terror-en-la-region-callao/)
-- **¿Fin de la era Ciro Castillo Rojo? Consejo Regional definirá la crisis en el Callao por corrupción**: [Link](https://www.atv.pe/noticia/fin-de-la-era-ciro-castillo-rojo-consejo-regional-definira-la-crisis-en-el-callao-por-corrupcion/)
-
-
-### lima (N/A, 02/02/2026 11:49 Lima)
-
-- **Sedapal anuncia nuevo CORTE DE AGUA para hoy 2 de febrero: Estos son los distritos afectados**: [Link](https://www.exitosanoticias.pe/actualidad/sedapal-anuncia-nuevo-corte-agua-hoy-2-febrero-estos-son-distritos-afectados-n167868)
-- **Corte de agua para este 2 de febrero en Lima Metropolitana por más de 9 horas: conoce las zonas afectadas**: [Link](https://www.infobae.com/peru/2026/01/31/corte-de-agua-para-este-2-de-febrero-en-lima-metropolitana-por-mas-de-9-horas-conoce-las-zonas-afectadas/)
-- **Corte de agua en Lima hoy 01 de febrero: Distritos y horarios afectados**: [Link](https://rpp.pe/lima/obras/corte-de-agua-en-lima-hoy-01-de-febrero-distritos-y-horarios-afectados-noticia-1673954)
-
-
-### al riyadh - al-nassr (N/A, 02/02/2026 11:49 Lima)
-
-- **Cristiano Ronaldo: ‘Betrayed’ Man Utd legend ‘could leave’ and return to Europe on deadline day**: [Link](https://www.football365.com/news/cristiano-ronaldo-betrayed-man-utd-legend-leave-saudi-arabia-european-return-deadline-day)
-- **Cristiano Ronaldo's protest reportedly halts Benzema and other Saudi transfers**: [Link](https://tribuna.com/en/news/2026-02-02-cristiano-ronaldos-protest-halts-benzema-and-other-saudi-transfers/)
-- **Ronaldo sits out for Al-Nassr amid tension with PIF ownership**: [Link](https://www.cbssports.com/soccer/news/cristiano-ronaldo-frustrations-with-saudis-pif-ownership-lead-to-star-striker-missing-al-nassr-lineup/)
-
-
-### precio oro (N/A, 02/02/2026 11:49 Lima)
-
-- **Por qué el oro y la plata baten récords tras el mensaje de Powell sobre la Reserva Federal**: [Link](https://es.euronews.com/business/2026/01/29/el-oro-supera-los-5500-dolares-la-plata-sube-powell-resta-importancia-al-repunte-de-los-me)
-- **La nominación a la Fed pincha la fiebre del oro, que cae hasta un 20% en dos jornadas**: [Link](https://cincodias.elpais.com/mercados-financieros/2026-02-02/el-oro-y-la-plata-se-desfondan-y-se-alejan-de-los-maximos-historicos.html)
-- **Oro y plata amplían pérdidas tras un desplome histórico de los metales | MUNDO**: [Link](https://gestion.pe/mundo/internacional/oro-y-plata-amplian-perdidas-tras-un-desplome-historico-de-los-metales-noticia/)
 
 
