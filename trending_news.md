@@ -1,3 +1,17 @@
+### pablo guede (N/A, 06/02/2026 03:52 Lima)
+
+- **Paolo Guerrero y el consejo a Federico Girotti: “Tiene olfato de gol, pero no llega su oportunidad”**: [Link](https://depor.com/futbol-peruano/copa-libertadores/alianza-lima-paolo-guerrero-hablo-tras-derrota-en-copa-libertadores-frente-a-2-de-mayo-y-envio-consejo-a-federico-girotti-video-noticia/)
+- **Pablo Guede recriminó a Renzo Garcés por darle la cinta de capitán a Paolo Guerrero en pleno partido de Alianza Lima: "¡Dale, boludo!"**: [Link](https://larepublica.pe/deportes/2026/02/04/pablo-guede-recrimino-a-renzo-garces-por-darle-la-cinta-de-capitan-a-paolo-guerrero-en-pleno-partido-de-alianza-lima-ante-2-de-mayo-por-copa-libertadores-dale-boludo-346120)
+- **Fernando Cabada dio contundente comentario sobre Alianza Lima y resolvió la situación de Pablo Guede**: [Link](https://bolavip.com/pe/alianza-lima/fernando-cabada-dio-contundente-comentario-sobre-alianza-lima-y-resolvio-la-situacion-de-pablo-guede)
+
+
+### perú vs bolivia (N/A, 06/02/2026 03:52 Lima)
+
+- **Bolivia vs Perú: Resultado EN VIVO, minuto a minuto y goles del Sudamericano Sub 20 Femenino**: [Link](https://www.365scores.com/es/news/bolivia-vs-peru-resultado-en-vivo-minuto/)
+- **La selección peruana femenina venció 2-0 a Bolivia en su debut en el Sudamericano Sub 20**: [Link](https://elcomercio.pe/deporte-total/seleccion/la-seleccion-peruana-femenina-vencio-2-0-a-bolivia-en-su-debut-en-el-sudamericano-sub-20-noticia/)
+- **Tabla del Sudamericano Femenino Sub 20 2026: resultados y posiciones en la fase de grupos del torneo**: [Link](https://rpp.pe/futbol/seleccion-peruana/tabla-posiciones-sudamericano-femenino-sub-20-2026-en-vivo-resultados-de-hoy-directo-fase-de-grupos-con-peru-del-torneo-conmebol-noticia-1674547)
+
+
 ### lakers vs (N/A, 06/02/2026 00:17 Lima)
 
 - **76ers vs Lakers Odds & Picks Tonight: OVER is the Play**: [Link](https://www.oddsshark.com/nba/sixers-lakers-picks-odds-february-5-2026)
@@ -1018,19 +1032,5 @@ Sin noticias relacionadas disponibles.
 - **Sharon, Kelly and Jack Osbourne reflect on Ozzy Osbourne's legacy at the Grammys**: [Link](https://abcnews.go.com/GMA/Culture/sharon-kelly-jack-osbourne-reflect-ozzy-osbournes-legacy/story?id=129767625)
 - **Grammys 2026: Grammys celebrate Ozzy Osbourne with musical tribute**: [Link](https://www.yahoo.com/entertainment/music/articles/grammys-2026-grammys-celebrate-ozzy-044500896.html)
 - **Kelly Osbourne Admits She's "Not Doing So Great" at Grammys 2026**: [Link](https://www.eonline.com/news/1426849/grammys-2026-kelly-osbourne-not-doing-great-after-ozzy-osbourne-death)
-
-
-### roberto chiabra (N/A, 02/02/2026 00:26 Lima)
-
-- **Elecciones 2026: Roberto Chiabra plantea estados de emergencia focalizados y allanamientos**: [Link](https://andina.pe/agencia/noticia-elecciones-2026-roberto-chiabra-plantea-estados-emergencia-focalizados-y-allanamientos-1061536.aspx)
-- **Roberto Chiabra: "Pena de muerte es una medida populista que no se va a cumplir"**: [Link](https://larepublica.pe/politica/2026/01/29/roberto-chiabra-pena-de-muerte-es-una-medida-populista-que-no-se-va-a-cumplir-hnews-1174123)
-- **Chiabra descarta la pena de muerte en Perú y advierte sobre discursos inviables en seguridad ciudadana**: [Link](https://larazon.pe/chiabra-descarta-la-pena-de-muerte-en-peru-y-advierte-sobre-discursos-inviables-en-seguridad-ciudadana/)
-
-
-### thunder - nuggets (N/A, 02/02/2026 00:26 Lima)
-
-- **Nuggets host Thunder on Sunday**: [Link](https://www.nba.com/nuggets/news/nuggets-host-thunder-on-sunday)
-- **Nikola Jokic and Jamal Murray are good to go tonight …**: [Link](https://www.hoopshype.com/story/sports/nba/rumors/2026/02/01/nikola-jokic-and-jamal-murray-are-good-to-go-tonight/88469158007/)
-- **theScore Bet bonus code NPNEWS: Bet $10, get $100 in bonus bets for Thunder vs. Nuggets**: [Link](https://nypost.com/2026/02/01/betting/thescore-bet-bonus-code-npnews-bet-10-get-100-in-bonus-bets-for-thunder-vs-nuggets/)
 
 
