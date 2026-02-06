@@ -1,3 +1,70 @@
+### alianza lima vs copa libertadores (N/A, 05/02/2026 21:36 Lima)
+
+- **Lo que debe mejorar Alianza Lima para la vuelta vs. 2 de Mayo**: [Link](https://www.espn.com.pe/futbol/copa-libertadores/nota/_/id/16271385/lo-que-debe-mejorar-alianza-lima-para-la-vuelta-vs-2-de-mayo-guede)
+- **DT de 2 de Mayo minimiza la camiseta de Alianza Lima tras el triunfo: “El presupuesto no juega”**: [Link](https://depor.com/futbol-peruano/copa-libertadores/2-de-mayo-vs-alianza-lima-eduardo-ledesma-entrenador-paraguayo-hablo-sobre-el-triunfo-de-su-equipo-pese-a-la-diferencia-de-presupuesto-copa-libertadores-noticia/)
+- **Copa Libertadores: Alianza Lima cae ante el debutante 2 de Mayo en Paraguay**: [Link](https://andina.pe/agencia/noticia-copa-libertadores-alianza-lima-cae-ante-debutante-2-mayo-paraguay-1061939.aspx)
+
+
+### dolares a soles (N/A, 05/02/2026 21:36 Lima)
+
+- **Precio del dólar en Perú del jueves 5 de febrero: a cuánto cerró el tipo de cambio**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-2026-cuanto-esta-el-dolar-este-jueves-5-de-febrero-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
+- **Dólar inicia la jornada a la baja: ¿en cuánto se cotiza el billete verde?**: [Link](https://peru21.pe/economia/dolar-inicia-jornada-la-baja-en-cuanto-se-cotiza-el-billete-verde/)
+- **Tipo de cambio hoy en Perú: ¿En cuánto cerró el dólar este jueves 5 de febrero?**: [Link](https://gestion.pe/economia/mercados/tipo-de-cambio-dolar-hoy-en-peru-cuanto-esta-el-precio-del-dolar-este-jueves-5-de-febrero-dolares-a-soles-compra-y-venta-bcrp-noticia/)
+
+
+### aeropuerto jorge chavez (N/A, 05/02/2026 21:36 Lima)
+
+- **Aeropuerto Jorge Chávez: falla en el sistema de radar obliga a retrasar vuelos**: [Link](https://elcomercio.pe/lima/sucesos/aeropuerto-jorge-chavez-varios-vuelos-paralizados-por-fallas-en-el-sistema-de-radar-corpac-vuelos-nacionales-ultimas-noticia/)
+- **Aeropuerto Jorge Chávez: reportan poblemas en el sistema de radar y retraso de vuelos**: [Link](https://gestion.pe/peru/aeropuerto-jorge-chavez-reportan-poblemas-en-el-sistema-de-radar-y-retraso-de-vuelos-noticia/)
+- **Corpac restablece el control del tránsito aéreo en el Jorge Chávez tras fallas técnicas**: [Link](https://andina.pe/agencia/noticia-corpac-restablece-control-del-transito-aereo-el-jorge-chavez-tras-fallas-tecnicas-1062067.aspx)
+
+
+### alianza lima femenino (N/A, 05/02/2026 21:36 Lima)
+
+- **Alianza Lima vs Liga de Quito EN VIVO: sigue aquí la Noche Blanquiazul Femenina 2026**: [Link](https://libero.pe/futbol-peruano/alianza-lima/2026/02/05/alianza-lima-vs-liga-de-quito-en-vivo-gratis-noche-blanquiazul-femenina-hora-donde-ver-via-liga-1-max-video-vilb-423140)
+- **Sisy Quiroz: "Año a año iremos mejorando el nivel de nuestras jugadoras extranjeras"**: [Link](https://ovacion.pe/noticias/alianza-lima/sisy-quiroz-ano-ano-iremos-mejorando-nivel-nuestras-jugadoras-extranjeras)
+- **Alianza Lima vs LDU EN VIVO por la Noche Blanquiazul Femenina 2026: blanquiazules vencen 2-0 a ecuatorianas**: [Link](https://larepublica.pe/deportes/2026/02/04/alianza-lima-vs-ldu-quito-en-vivo-noche-blanquiazul-femenina-2026-via-l1-max-376348)
+
+
+### barracas central (N/A, 05/02/2026 21:36 Lima)
+
+- **Ni Magis TV ni Pelota Libre: cómo ver Barracas Central vs Temperley EN VIVO por Internet**: [Link](https://noticiasargentinas.com/deportes/ni-magis-tv-ni-pelota-libre--como-ver-barracas-central-vs-temperley-en-vivo-por-internet_a69840373cbf033dd9986063e)
+- **El ex River que debutará como entrenador en la Copa Argentina**: [Link](https://www.elgrafico.com.ar/articulo/copa-argentina/97420/el-ex-river-que-debutara-como-entrenador-en-la-copa-argentina)
+- **El Guapo se enfrentara al Gasolero**: [Link](https://www.vavel.com/ar/futbol-argentino/2026/02/04/1249745.html)
+
+
+### vasco de gama vs (N/A, 05/02/2026 21:36 Lima)
+
+Sin noticias relacionadas disponibles.
+
+
+### cruzeiro - coritiba (N/A, 05/02/2026 21:36 Lima)
+
+- **De virada, Coritiba derrota o Cruzeiro no Mineirão**: [Link](https://rede98.com.br/esportes/de-virada-coritiba-derrota-o-cruzeiro-no-mineirao/)
+- **Aos 45 min do 1º tempo - gol de dentro da área de Lavega do Coritiba contra o Cruzeiro**: [Link](https://ge.globo.com/futebol/video/aos-45-min-do-1o-tempo-gol-de-dentro-da-area-de-lavega-do-coritiba-contra-o-cruzeiro-14321683.ghtml)
+- **Arroyo ou Wanderson? Totonho revela sua preferência no time titular**: [Link](https://www.otempo.com.br/canal-o-tempo/programas/barba-cabelo-e-bigode/2026/2/5/arroyo-ou-wanderson-totonho-revela-sua-preferencia-no-time-titular)
+
+
+### juventud - u. católica (N/A, 05/02/2026 21:36 Lima)
+
+- **Copa Libertadores: Juventud se enfrentará ante U. Católica (E) por la llave 2**: [Link](https://rpp.pe/futbol/ligas-internacionales/copa-libertadores-juventud-se-enfrentara-ante-u-catolica-e-por-la-llave-2-noticia-1674426)
+- **Universidad Católica y su primer examen en Copa Libertadores ante Juventud: este es el valor de mercado de ambos equipos**: [Link](https://www.eluniverso.com/deportes/futbol/universidad-catolica-y-su-primer-examen-en-copa-libertadores-ante-juventud-este-es-el-valor-de-mercado-de-ambos-equipos-nota/)
+- **Ni Magis TV ni Pelota Libre: cómo ver Juventud de Las Piedras vs Universidad Católica (E) EN VIVO por Internet**: [Link](https://noticiasargentinas.com/deportes/ni-magis-tv-ni-pelota-libre--como-ver-juventud-de-las-piedras-vs-universidad-catolica--e--en-vivo-por-internet_a698400f7cbf033dd9985ea17)
+
+
+### corinthians vs (N/A, 05/02/2026 21:36 Lima)
+
+- **Corinthians vs Capivariano: partidazo en vivo por el Campeonato Paulista**: [Link](https://www.futbolperuano.com/en-vivo/campeonato-paulista-2026-corinthians-vs-capivariano-en-vivo-562604)
+- **Corinthians vs Palmeiras: pronósticos, cuotas y datos para apostar**: [Link](https://www.apwin.com/es/pronosticos/corinthians-vs-palmeiras-pronostico-paulista-a1-09-02-2026/)
+
+
+### entradas bts perú (N/A, 05/02/2026 21:36 Lima)
+
+- **Estos son los precios de las entradas para ver a BTS en Perú y Colombia**: [Link](https://www.eluniverso.com/entretenimiento/musica/estos-son-los-precios-de-las-entradas-para-ver-a-bts-en-peru-y-colombia-nota/)
+- **Este famoso streamer cometió el terrible error de meterse con las ARMY: tuvo que sobrevivir a una oleada...**: [Link](https://www.3djuegos.lat/android/este-famoso-streamer-cometio-terrible-error-meterse-army-tuvo-que-sobrevivir-a-oleada-fanaticas-directo)
+- **"¿Todo esto es por vos?": un reconocido influencer causó revuelo en el Barrio Chino y tuvo que ser escoltado por la policía**: [Link](https://www.clarin.com/fama/vos-reconocido-influencer-causo-revuelo-barrio-chino-escoltado-policia_0_XbHVZ6dZLV.html)
+
+
 ### atletico madrid (N/A, 05/02/2026 15:39 Lima)
 
 - **Atletico Madrid Eye Copa del Rey Semi-Final Spot Against Betis**: [Link](https://www.dawan.africa/news/atletico-madrid-eye-copa-del-rey-semi-final-spot-against-betis)
@@ -963,73 +1030,5 @@
 - **Margot Robbie Reacts to Rumors Jacob Elordi Is the Next James Bond**: [Link](https://www.eonline.com/news/1427896/margot-robbie-on-jacob-elordi-james-bond-rumors)
 - **Will Jacob Elordi Be the Next James Bond? The Rumor Gains Momentum**: [Link](https://3dvf.com/en/will-jacob-elordi-be-the-next-james-bond-the-rumor-gains-momentum/)
 - **Who Will Be the Next James Bond?**: [Link](https://next.io/prediction-markets/trending/who-will-be-the-next-james-bond/)
-
-
-### celtics - bucks (N/A, 01/02/2026 21:43 Lima)
-
-- **Celtics blow out Bucks during inaugural NBA Pioneers Classic honoring league's first Black players**: [Link](https://sports.yahoo.com/nba/article/celtics-blow-out-bucks-during-inaugural-nba-pioneers-classic-honoring-leagues-first-black-players-001909819.html)
-- **Anfernee Simons is the Celtics ‘Name to Know’ Player of the Game in Sunday’s win over Bucks**: [Link](https://www.masslive.com/celtics/2026/02/anfernee-simons-is-the-celtics-name-to-know-player-of-the-game-in-sundays-win-over-bucks.html)
-- **Jaylen Brown returns to drop 30 in Celtics' rout of Bucks**: [Link](https://www.reuters.com/sports/basketball/jaylen-brown-returns-drop-30-celtics-rout-bucks--flm-2026-02-01/)
-
-
-### alex warren (N/A, 01/02/2026 21:43 Lima)
-
-Sin noticias relacionadas disponibles.
-
-
-### olivia dean (N/A, 01/02/2026 21:43 Lima)
-
-- **Grammy Awards live updates: Olivia Dean, Kendrick Lamar, Bad Bunny among winners**: [Link](https://apnews.com/live/grammys-2026-updates)
-- **See Every Grammy Award Winner for Best New Artist, From the 1960s to Today**: [Link](https://people.com/see-grammys-best-new-artist-winners-through-years-11896689)
-- **It's So Easy to Fall In Love With Olivia Dean's Chanel Dress at the 2026 Grammys**: [Link](https://www.marieclaire.com/fashion/celebrity-style/olivia-dean-chanel-dress-grammys-red-carpet-2026/)
-
-
-### sombr (N/A, 01/02/2026 21:43 Lima)
-
-- **Sombr Performed “12 to 12” at the 2026 Grammys**: [Link](https://www.cosmopolitan.com/entertainment/music/a70157289/sombr-2026-grammys-performance/)
-- **Sombr’s “Back To Friends” Officially Reaches #1 On Pop Radio Chart**: [Link](https://headlineplanet.com/home/2026/02/01/sombrs-back-to-friends-officially-reaches-1-on-pop-radio-chart/)
-- **Sombr tops 'Billboard' Pop Airplay chart, playfully threatens Alex Warren**: [Link](https://www.willmarradio.com/q102/music_news/sombr-tops-billboard-pop-airplay-chart-playfully-threatens-alex-warren/article_fce15ad6-b0f2-5efa-b531-ad50bf957ac4.html)
-
-
-### chappell roan (N/A, 01/02/2026 21:43 Lima)
-
-- **Chappell Roan Takes Naked Dressing to Another Level in Sheer Gown Hanging from Nipple Rings at 2026 Grammys**: [Link](https://people.com/grammys-2026-chappell-roan-naked-dress-photos-11894476)
-- **Chappell Roan’s Naked Dress at Grammys Shocks Social Media**: [Link](https://www.hollywoodreporter.com/lifestyle/style/chappell-roan-naked-dress-grammys-2026-1236491980/)
-- **Chappell Roan Goes Topless in Shocking Grammys 2026 Red Carpet Moment**: [Link](https://www.eonline.com/news/1427787/grammys-2026-chappell-roan-topless-on-red-carpet)
-
-
-### lola young (N/A, 01/02/2026 21:43 Lima)
-
-- **Watch Lola Young Perform “Messy” at the 2026 Grammys**: [Link](https://pitchfork.com/news/watch-lola-youngs-perform-tk-at-the-2026-grammys/)
-- **Lola Young’s Raw ‘Messy’ Performance Is a Standout at the 2026 Grammys**: [Link](https://www.elle.com/culture/music/a70209644/lola-young-performance-2026-grammys/)
-- **Lola Young Looks Comfortable and Cool in a Vivienne Westwood Jumpsuit at the 2026 Grammys**: [Link](https://www.harpersbazaar.com/celebrity/latest/a70210101/lola-young-2026-grammys-red-carpet-photos/)
-
-
-### copa libertadores (N/A, 01/02/2026 21:43 Lima)
-
-- **Cuándo juegan 2 de Mayo vs. Alianza Lima por la Fase 1 de la CONMEBOL Libertadores 2026: equipos, fecha, hora y TV en vivo**: [Link](https://www.espn.com.ar/futbol/copa-libertadores/nota/_/id/16259248/alianza-lima-vs-2-de-mayo-fase-1-copa-libertadores-equipos-fecha-hora-y-tv-en-vivo)
-- **¡Atención, Alianza Lima! 2 de Mayo fue goleado 5-1 previo a partido por Fase 1 de Copa Libertadores**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/atencion-alianza-lima-2-de-mayo-fue-goleado-5-1-previo-a-partido-por-fase-1-de-copa-libertadores-noticia/)
-- **Copa Libertadores sorprende y deja fuerte mensaje sobre Alianza Lima: "Un equipo con..."**: [Link](https://libero.pe/futbol-peruano/alianza-lima/2026/02/01/copa-libertadores-sorprende-deja-fuerte-mensaje-alianza-lima-equipo-79016)
-
-
-### benfica vs (N/A, 01/02/2026 15:33 Lima)
-
-- **Una revancha, un clásico local, largos viajes y choques parejos: los playoffs de la UEFA Champions League**: [Link](https://www.espn.com.pe/futbol/champions-league/nota/_/id/16247791/revancha-clasico-local-viajes-choques-parejos-playoffs-uefa-champions-league)
-- **Real Madrid tendrá revancha ante Mourinho: así quedaron conformados los playoffs de octavos en Champions League 2026**: [Link](https://rpp.pe/futbol/champions-league/sorteo-champions-league-2026-playoffs-en-vivo-a-que-hora-inicia-bombos-y-donde-ver-definicion-del-repechaje-a-octavos-torneo-uefa-noticia-1673551)
-- **¿Cuándo es el sorteo del Playoff y los octavos de final de la UEFA Champions League 2025-26?**: [Link](https://bolavip.com/pe/champions-league/cuando-es-el-sorteo-del-playoff-y-los-octavos-de-final-de-la-uefa-champions-league-2025-26)
-
-
-### psg (N/A, 01/02/2026 15:33 Lima)
-
-- **Strasbourg - PSG : les compositions probables**: [Link](https://www.footmercato.net/a216547045805971006-strasbourg-psg-les-compositions-probables)
-- **DIRECT. Dix minutes sens dessus dessous à la Meinau : le Racing égalise contre le PSG**: [Link](https://www.flashscore.fr/actualites/football-ligue-1-direct-dix-minutes-sens-dessus-dessous-a-la-meinau-le-racing-egalise-contre-le-psg/W0he3Hif/)
-- **Strasbourg / PSG - Le groupe parisien avec Dro Fernandez**: [Link](https://canal-supporters.com/strasbourg-psg-le-groupe-parisien-avec-dro-fernandez/)
-
-
-### psg vs (N/A, 01/02/2026 15:33 Lima)
-
-- **LIVE! Strasbourg vs PSG in Ligue 1 on beIN SPORTS**: [Link](https://www.beinsports.com/en-us/soccer/ligue-1/articles/live-strasbourg-vs-psg-in-ligue-1-on-bein-sports-2026-02-01)
-- **Luis Enrique Welcomes Ligue 1 Challenge From Lens**: [Link](https://www.barrons.com/news/luis-enrique-welcomes-ligue-1-challenge-from-lens-ef2e2576)
-- **Football Tracker: PSG facing in-form Strasbourg, Juventus away to Parma**: [Link](https://www.flashscore.com/news/football-tracker-psg-facing-in-form-strasbourg-juventus-away-to-parma/ADlVXIrA/)
 
 
