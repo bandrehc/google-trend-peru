@@ -1,3 +1,73 @@
+### genoa - napoli (N/A, 07/02/2026 11:37 Lima)
+
+- **Saturday's Serie A predictions including Genoa vs. Napoli**: [Link](https://www.sportsmole.co.uk/football/napoli/race-for-the-serie-a-title/feature/will-napoli-claim-vital-win-over-genoa-saturdays-serie-a-predictions-and-previews_591571.html)
+- **Genoa v Napoli preview**: [Link](https://sscnapoli.it/en/match-preview-focus-di-genoa-napoli/)
+- **De Rossi: Conte the 'worst coach' to face if Genoa are expecting a favour**: [Link](https://www.beinsports.com/en-us/soccer/serie-a/articles/de-rossi-conte-the-worst-coach-to-face-if-genoa-are-expecting-a-favour-2026-02-06)
+
+
+### lens vs (N/A, 07/02/2026 11:37 Lima)
+
+- **Liga de Francia: Lens quiere el liderato del torneo frente a Stade Rennes**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-de-francia-lens-quiere-el-liderato-del-torneo-frente-a-stade-rennes-noticia-1674672)
+- **Lens predicted XI v Rennes: Allan Saint-Maximin benched, Samson Baidoo returns**: [Link](https://sports.yahoo.com/articles/lens-predicted-xi-v-rennes-105000476.html)
+- **Where to Watch RC Lens vs. Stade Rennes: TV Channel, Start Time and Live Stream**: [Link](https://www.bleachernation.com/how-to-watch/2026/02/06/where-to-watch-rc-lens-vs-stade-rennes-tv-channel-start-time-and-live-stream-2/)
+
+
+### barcelona vs atlético madrid (N/A, 07/02/2026 11:37 Lima)
+
+- **¿A qué hora es el sorteo de semifinales de la Copa del Rey? Canal TV, horario, cómo y dónde ver online**: [Link](https://as.com/futbol/copa_del_rey/a-que-hora-es-el-sorteo-de-semifinales-de-la-copa-del-rey-canal-tv-horario-como-y-donde-ver-online-f202602-n/)
+- **Copa del Rey: Barcelona y Atlético se vuelven a cruzar en semis**: [Link](https://www.espn.com.ar/futbol/espana/nota/_/id/16277868/copa-del-rey-barcelona-atletico-semis)
+- **Barcelona vs Atlético Madrid: fecha, hora y canal TV del partido por semifinal de Copa del Rey**: [Link](https://elcomercio.pe/deporte-total/espana/barcelona-vs-atletico-madrid-fecha-hora-y-canal-tv-del-partido-por-semifinal-de-copa-del-rey-noticia/)
+
+
+### lens - rennes (N/A, 07/02/2026 11:37 Lima)
+
+- **Comment regarder RC Lens - Rennes ? Date, heure, streaming et comment regarder la Ligue 1 McDonald’s sur Ligue 1+, disponible sur DAZN​**: [Link](https://www.dazn.com/fr-FR/news/football/comment-regarder-rc-lens-rennes-date-heure-streaming-et-comment-regarder-la-ligue-1-mcdonalds-sur-ligue-1-disponible-sur-dazn/atamivhnnqkv1v9u614kolz90)
+- **Stade Rennais. En trois matches, retour à la case départ ? . Sport**: [Link](https://laval.maville.com/sport/detail_-stade-rennais.-en-trois-matches-retour-a-la-case-depart-_-7180457_actu.Htm)
+- **La composition du Racing Club de Lens pour la réception du Stade Rennais**: [Link](https://madeinlensois.ouest-france.fr/infos/article-rc-lens-la-composition-du-racing-club-de-lens-pour-la-reception-du-stade-rennais-511982.html)
+
+
+### pablo torre (N/A, 07/02/2026 11:37 Lima)
+
+- **Pablo Torre once again visits Dallas Cowboys fan Charles Flores, who is on death row.**: [Link](https://www.dmagazine.com/micropost/pablo-torre-once-again-v-dallas-cowboys-fan-charles-flores-who-is-on-death-row/)
+- **"I'm Innocent. I Can Prove It."**: [Link](https://www.pablo.show/p/im-innocent-i-can-prove-it)
+- **Super Bowl on Death Row: New “Pablo Torre Finds Out” Podcast Featuring Charles Flores, Dallas Cowboys Superfan who is Innocent on Texas’s Death Row**: [Link](https://podnews.net/press-release/charles-flores-pablo-torre)
+
+
+### aitana (N/A, 07/02/2026 11:37 Lima)
+
+- **Cami Homs compartió el álbum de fotos de la primera semana de su hija Aitana: “Nos tiene muertos de amor”**: [Link](https://www.infobae.com/teleshow/2026/02/06/cami-homs-compartio-el-album-de-fotos-de-la-primera-semana-de-su-hija-aitana-nos-tiene-muertos-de-amor/)
+- **La primera foto de Cami Homs después del nacimiento de Aitana, su hija con José Sosa: "Feliz"**: [Link](https://www.clarin.com/fama/primera-foto-cami-homs-despues-nacimiento-aitana-hija-jose-sosa-feliz_0_43wAJ7sxX7.html)
+- **Camila Homs reveló cómo está, a una semana de haber dado a su hija Aitana: “De a poquito”**: [Link](https://www.eltrecetv.com.ar/noticias/2026/02/06/camila-homs-revelo-como-esta-a-una-semana-de-haber-dado-a-su-hija-aitana-de-a-poquito/)
+
+
+### arsenal (N/A, 07/02/2026 11:37 Lima)
+
+- **Ex-Gunner agrees deal after surprise Arsenal return comments**: [Link](https://dailycannon.com/2026/02/arsenal-oxlade-chamberlain-celtic-medical/)
+- **The fear behind Kris Boyd’s Oxlade-Chamberlain comments**: [Link](https://thecelticstar.com/the-fear-behind-kris-boyds-oxlade-chamberlain-comments/)
+- **Celtic Transfer Collapses After Agreement 'Practically Finalised'**: [Link](https://www.givemesport.com/celtic-transfer-collapses-oxlade-chamberlain-bakayoko/)
+
+
+### peru cazas (N/A, 07/02/2026 11:37 Lima)
+
+- **El gobierno de Perú afirma que la compra de aviones de combate será “en función al liderazgo de Estados Unidos”**: [Link](https://www.pucara.org/post/el-gobierno-de-per%C3%BA-afirma-que-la-compra-de-aviones-de-combate-ser%C3%A1-en-funci%C3%B3n-al-liderazgo-de-esta)
+- **Aviones caza F-16 de EE.UU. cada vez más cerca de la Fuerza Aérea Peruana**: [Link](https://peru21.pe/politica/eeuu-peru-aviones-caza-f-16-cada-vez-mas-cerca-de-la-fap/)
+- **Compra de aviones de combate para la FAP en etapa final, dice Gobierno | PERU**: [Link](https://gestion.pe/peru/compra-de-aviones-de-combate-para-la-fap-en-etapa-final-dice-gobierno-noticia/)
+
+
+### super bowl (N/A, 07/02/2026 11:37 Lima)
+
+- **Super Bowl picks, odds, score predictions for Seahawks vs. Patriots**: [Link](https://www.nfl.com/news/super-bowl-lx-picks-odds-score-predictions-for-seahawks-vs-patriots)
+- **A Concordian’s Guide To The Super Bowl |**: [Link](https://theconcordian.com/2026/02/a-concordians-guide-to-the-super-bowl/)
+- **I asked ChatGPT, Gemini and Perplexity to predict the Super Bowl 2026 winner — here’s who they picked**: [Link](https://www.tomsguide.com/ai/i-asked-chatgpt-gemini-and-perplexity-to-predict-the-super-bowl-2026-winner-heres-who-they-picked)
+
+
+### mainz 05 - augsburgo (N/A, 07/02/2026 11:37 Lima)
+
+- **Amiri trifft doppelt vom Punkt: Augsburg verliert in Mainz**: [Link](https://www.br.de/nachrichten/sport/bundesliga-fc-augsburg-verliert-beim-fsv-mainz-05-nadiem-amiri-trifft-doppelt-vom-punkt,VAYDTwQ)
+- **VAR-Irrsinn in der Bundesliga: Kommentator tobt nach Witz-Elfer: „Wahnsinn“**: [Link](https://www.express.de/sport/fussball/var-irrsinn-in-der-bundesliga-kommentator-tobt-nach-witz-elfer-1214507)
+- **Mainz will Punk­te am Fastnacht-​Spieltag - FCK bei den Li­li­en**: [Link](https://www.rheinpfalz.de/rheinland-pfalz_artikel,-mainz-will-punkte-am-fastnacht-spieltag-fck-bei-den-lilien-_arid,5858585.html)
+
+
 ### newcastle vs (N/A, 07/02/2026 08:01 Lima)
 
 - **Out of the League Cup and stuck in mid-table - What's gone wrong at Newcastle this season?**: [Link](https://www.transfermarkt.com/out-of-the-league-cup-and-stuck-in-mid-table-whats-gone-wrong-at-newcastle-this-season-/view/news/475048)
@@ -956,74 +1026,5 @@ Sin noticias relacionadas disponibles.
 - **Giorgian De Arrascaeta y Filipe Luís comentaron la insólita expulsión de Jorge Carrascal en Flamengo**: [Link](https://www.espn.com.ar/futbol/brasil/nota/_/id/16265276/giorgian-de-arrascaeta-filipe-luis-comentaron-insolita-expulsion-jorge-carrascal-flamengo-corinthians)
 - **André Carrillo suma un nuevo título a sus vitrinas: se proclamó campeón de la Supercopa de Brasil con Corinthians**: [Link](https://www.infobae.com/peru/deportes/2026/02/01/andre-carrillo-suma-un-nuevo-titulo-a-sus-vitrinas-se-proclamo-campeon-de-la-supercopa-de-brasil-con-corinthians/)
 - **¿Indirecta a Flamengo? El curioso comentario de André Carrillo tras ganar la Supercopa de Brasil**: [Link](https://depor.com/futbol-peruano/peruanos-en-el-mundo/andre-carrillo-y-su-curioso-comentario-tras-titulo-de-la-supercopa-de-brasil-con-corinthians-noticia/)
-
-
-### arsenal (N/A, 03/02/2026 15:47 Lima)
-
-- **Bukayo Saka plotting Arsenal return in time for North London derby but ruled out of Carabao Cup semi-final**: [Link](https://www.thesun.co.uk/sport/38108540/bukayo-saka-arsenal-return-north-london-derby/)
-- **Arteta provides injury update on Saka and Merino | Press conference | News**: [Link](https://www.arsenal.com/news/arteta-provides-injury-update-saka-and-merino)
-- **Martin Odegaard and Bukayo Saka injury update after missing Arsenal vs Chelsea**: [Link](https://metro.co.uk/2026/02/03/martin-odegaard-bukayo-saka-injury-update-missing-arsenal-vs-chelsea-26692010/)
-
-
-### milan vs (N/A, 03/02/2026 15:47 Lima)
-
-- **Inter Milan Vs Torino – Cristian Chivu Preparing Huge Starting XI Overhaul After Cremonese Win**: [Link](https://sempreinter.com/2026/02/03/inter-milan-torino-chivu-make-numerous-starting-xi-changes/)
-- **Official – Matteo Marchetti To Referee Inter Milan Vs Torino Coppa Italia Quarter-Final Tie**: [Link](https://ca.sports.yahoo.com/news/official-matteo-marchetti-referee-inter-174000824.html)
-- **Preview: Inter Milan vs Torino - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/inter-milan/coppa-italia/preview/inter-milan-vs-torino-prediction-team-news-lineups_591245.html)
-
-
-### joão cancelo (N/A, 03/02/2026 15:47 Lima)
-
-- **Flick bet on him, but his future at Barça is hanging in the air again: he doesn't fit on the team**: [Link](https://e-noticies.cat/en/soccer/flick-bet-on-his-future-barca-is-once-again-hanging-in-the-air-he-doesnt-fit-into-the-team)
-- **João Cancelo makes his comeback to FC Barcelona**: [Link](https://frenchfootballweekly.com/2026/02/03/joao-cancelo-makes-his-comeback-to-fc-barcelona/)
-
-
-### marsella (N/A, 03/02/2026 15:47 Lima)
-
-- **Michael Amir Murillo, descartado para la Copa de Francia con el Olympique de Marsella**: [Link](https://www.rpctv.com/futbol-internacional/futbol/michael-amir-murillo-descartado-la-copa-francia-el-olympique-marsella-n6068691)
-- **Dos ex del Atleti se pelean en su actual equipo**: [Link](https://www.flashscore.es/noticias/futbol-copa-de-francia-kondogbia-y-vermeeren-dos-ex-del-atletico-de-madrid-incendian-marsella/pYDpQeMs/)
-- **Besiktas inició negociaciones para fichar al panameño Michael Murillo**: [Link](https://elsiglo.com.pa/deportes/futbol/besiktas-inicio-negociaciones-para-fichar-al-panameno-michael-murillo-EM19626929)
-
-
-### milan (N/A, 03/02/2026 15:47 Lima)
-
-- **This is How Hard It Will Be to Get Around Italy’s Winter Olympics**: [Link](https://www.nytimes.com/2026/02/03/world/europe/italy-winter-olympics-logistical-nightmare.html)
-- **IOC President Coventry looks to Milan-Cortina 2026 Games amid 'bumpy' journey**: [Link](http://en.people.cn/n3/2026/0203/c90000-20422187.html)
-- **Italy's spread-out Olympics face transport challenge**: [Link](https://www.hurriyetdailynews.com/italys-spread-out-olympics-face-transport-challenge-218542)
-
-
-### america (N/A, 03/02/2026 15:47 Lima)
-
-- **Xiomy Kanashiro ingresó a América Hoy con nueva faceta**: [Link](https://www.americatv.com.pe/america-hoy/xiomy-kanashiro-ingreso-america-hoy-renovada-faceta-noticia-162728)
-- **Xiomy Kanashiro es presentada como la nueva colaboradora de ‘América hoy’: “Es mi nueva casa y aquí me quedo”**: [Link](https://trome.com/espectaculos/tv/xiomy-kanashiro-es-presentada-como-la-nueva-colaboradora-de-america-hoy-video-farandula-noticia/)
-- **Xiomy Kanashiro es presentada como la nueva conductora de ‘América Hoy’: “Aquí me quedo”**: [Link](https://www.infobae.com/peru/2026/02/03/xiomy-kanashiro-es-presentada-como-la-nueva-conductora-de-america-hoy/)
-
-
-### fa cup (N/A, 03/02/2026 15:47 Lima)
-
-- **Women's FA Cup: Analysis of proposals to revamp competition**: [Link](https://www.bbc.com/sport/football/articles/c5y2negj0j2o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D)
-- **Women’s FA Cup to have seeded teams and no draw after last 32 under radical proposals**: [Link](https://www.theguardian.com/football/2026/feb/03/womens-fa-cup-seeded-teams-no-draw-after-last-32-proposals)
-- **FA set for battle with clubs over controversial Women’s FA Cup revamp**: [Link](https://www.thetimes.com/sport/football/womens-football/article/fa-set-for-battle-with-clubs-over-controversial-womens-fa-cup-revamp-qb0gg56zh)
-
-
-### america tv (N/A, 03/02/2026 15:47 Lima)
-
-- **así inició la temporada 2026 de América Hoy**: [Link](https://www.americatv.com.pe/america-hoy/america-hoy-asi-inicio-nueva-temporada-magazine-noticia-162683)
-- **Melissa Paredes regresó a‘América HOY’ EN VIVO: sigue el estreno del programa**: [Link](https://elcomercio.pe/respuestas/farandula/america-hoy-estreno-en-vivo-via-america-tv-horario-conductores-y-mas-de-la-nueva-temporada-video-tdpe-noticia/)
-- **¡Reemplazo de Ethel Pozo! ‘América hoy’ vuelve a la TV y este lunes se conocerá a la nueva conductora: “Todos la querían”**: [Link](https://larepublica.pe/espectaculos/2026/02/02/reemplazo-de-ethel-pozo-america-hoy-vuelve-a-la-tv-y-este-lunes-se-conocera-a-la-nueva-conductora-todos-la-querian-127408)
-
-
-### bayer leverkusen vs (N/A, 03/02/2026 15:47 Lima)
-
-- **👴 Experience leads Werkself, oldest line-up in years for semi-final**: [Link](https://ca.sports.yahoo.com/news/experience-leads-werkself-oldest-line-202200243.html)
-- **Where to watch Tottenham vs. Man City live s'tream, TV channel, start time for Premier League match**: [Link](https://www.westernwheel.ca/classifieds/announcements-and-events/anniversaries/2092883)
-- **DFB Pokal Last 8 Preview | Bayer Leverkusen vs St. Pauli & Holstein Kiel vs VfB Stuttgart**: [Link](https://onefootball.com/de/news/dfb-pokal-last-8-preview-bayer-leverkusen-vs-st-pauli-holstein-kiel-vs-vfb-stuttgart-42352244)
-
-
-### ollanta humala (N/A, 03/02/2026 12:00 Lima)
-
-- **Fiscalía inicia diligencias contra jueces tras denuncia de Ollanta Humala**: [Link](https://canaln.pe/actualidad/fiscalia-abre-diligencias-jueces-denuncia-ollanta-humala-n490015)
-- **Jueces del caso Humala-Heredia bajo investigación fiscal tras denuncia del expresidente**: [Link](https://caretas.pe/politica/jueces-del-caso-humala-heredia-bajo-investigacion-fiscal-tras-denuncia-del-expresidente/)
-- **Abogado de Ollanta Humala cuestiona plazos judiciales tras presentar nueva solicitud para liberación del expresidente**: [Link](https://rpp.pe/politica/judiciales/abogado-de-ollanta-humala-cuestiona-plazos-judiciales-tras-presentar-nueva-solicitud-para-liberacion-del-expresidente-noticia-1674093)
 
 
