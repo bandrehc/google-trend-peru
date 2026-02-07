@@ -1,3 +1,38 @@
+### newcastle vs (N/A, 07/02/2026 08:01 Lima)
+
+- **Out of the League Cup and stuck in mid-table - What's gone wrong at Newcastle this season?**: [Link](https://www.transfermarkt.com/out-of-the-league-cup-and-stuck-in-mid-table-whats-gone-wrong-at-newcastle-this-season-/view/news/475048)
+- **Brentford (H) – Pre-match thoughts, team news, possible XI and prediction**: [Link](https://www.nufcblog.co.uk/2026/02/06/brentford-h-pre-match-thoughts-team-news-possible-xi-and-prediction/)
+- **Premier League LIVE: News conferences and team news before the weekend**: [Link](https://www.bbc.com/sport/football/live/ckgxk1lz0l2t)
+
+
+### rayo vallecano - real oviedo (N/A, 07/02/2026 08:01 Lima)
+
+- **Rayo Vallecano vs. Real Oviedo: horario, dónde ver, pronósticos y clasificación**: [Link](https://apuestas.betfair.es/futbol/futbol-espanol/laliga/rayo-vallecano-vs-real-oviedo-horario-donde-ver-pronosticos-y-clasificacion-050226-1245.html)
+- **Fútbol en directo | Suspendido el Rayo-Oviedo; luego, Barcelona-Mallorca**: [Link](https://www.flashscore.pe/noticias/futbol-en-directo-laliga-jornada-23-partidos-ultima-hora/pxtTq1VH/)
+- **El Rayo pone a la venta las entradas para el duelo ante el Real Oviedo en Vallecas**: [Link](https://pasionporelrayo.com/el-rayo-pone-a-la-venta-las-entradas-para-el-duelo-ante-el-real-oviedo-en-vallecas/)
+
+
+### manchester united (N/A, 07/02/2026 08:01 Lima)
+
+- **EPL: Shearer predicts Man Utd vs Tottenham, Liverpool vs Man City, Arsenal games**: [Link](https://dailypost.ng/2026/02/06/epl-shearer-predicts-man-utd-vs-tottenham-liverpool-vs-man-city-arsenal-games/)
+- **'He will come on': Carrick explains Sesko exclusion from lineup – confirms substitute appearance**: [Link](https://tribuna.com/en/news/2026-02-07-he-will-come-on-carrick-explains-sesko-exclusion-from-lineup-confirms-substitute-appearan/)
+- **Alan Shearer Sends £66m Man United Signing "Confidence" Message As He Makes Comparison To Newcastle Star**: [Link](https://manunews.com/blog/man-united-news-alan-shearer-benjamin-sesko-message/)
+
+
+### tottenham vs. manchester city (N/A, 07/02/2026 08:01 Lima)
+
+- **Chelsea predicted XI vs Wolves as tough Garnacho, Palmer and James decisions made**: [Link](https://www.football.london/chelsea-fc/news/chelsea-predicted-xi-vs-wolves-33378444)
+- **“The biggest thing…” – Rosenior demanding the same thing from Chelsea that fans are right now**: [Link](https://chelsea.news/2026/02/chelsea-demanding-rosenior-biggest-thing/)
+- **Why Chelsea need double Man City & Spurs favour as Liam Rosenior's dream scenario outlined**: [Link](https://onefootball.com/en/news/why-chelsea-need-double-man-city-spurs-favour-as-liam-roseniors-dream-scenario-outlined-42372618)
+
+
+### manchester united - tottenham (N/A, 07/02/2026 08:01 Lima)
+
+- **Tottenham confirmed team vs Man United - Van de Ven, Odobert and Sarr start as Frank makes changes**: [Link](https://www.football.london/tottenham-hotspur-fc/fixtures-results/tottenham-confirmed-team-vs-man-33381730)
+- **United Host Spurs as Red Devils Seek Early Revival**: [Link](https://www.dawan.africa/news/united-host-spurs-as-red-devils-seek-early-revival)
+- **Football Tracker: Manchester United hosting Spurs, Dortmund visiting Wolfsburg later**: [Link](https://www.flashscore.com/news/football-tracker-live-scores-results-updates/GdYm31MP/)
+
+
 ### barcelona vs mallorca (N/A, 07/02/2026 03:38 Lima)
 
 - **Barcelona vs Mallorca: posibles alineaciones de la Jornada 23**: [Link](https://www.espn.com.ar/futbol/espana/nota/_/id/16281033/barcelona-vs-mallorca-alineaciones-jornada-23-laliga-2026)
@@ -990,40 +1025,5 @@ Sin noticias relacionadas disponibles.
 - **Fiscalía inicia diligencias contra jueces tras denuncia de Ollanta Humala**: [Link](https://canaln.pe/actualidad/fiscalia-abre-diligencias-jueces-denuncia-ollanta-humala-n490015)
 - **Jueces del caso Humala-Heredia bajo investigación fiscal tras denuncia del expresidente**: [Link](https://caretas.pe/politica/jueces-del-caso-humala-heredia-bajo-investigacion-fiscal-tras-denuncia-del-expresidente/)
 - **Abogado de Ollanta Humala cuestiona plazos judiciales tras presentar nueva solicitud para liberación del expresidente**: [Link](https://rpp.pe/politica/judiciales/abogado-de-ollanta-humala-cuestiona-plazos-judiciales-tras-presentar-nueva-solicitud-para-liberacion-del-expresidente-noticia-1674093)
-
-
-### rafael guzman (N/A, 03/02/2026 12:00 Lima)
-
-- **Universitario de exportación: Rafael Guzmán tiene todo cerrado para jugar en Europa**: [Link](https://depor.com/futbol-peruano/peruanos-en-el-mundo/universitario-rafael-guzman-al-real-betis-jugara-en-juvenil-a-informan-desde-espana-para-terminar-su-formacion-en-europa-liga-1-fichajes-noticia/)
-- **Rafael Guzmán, ‘joya’ de Universitario, a un paso de ser nuevo jugar del Real Betis de España: defensor jugará en el Juvenil A**: [Link](https://larepublica.pe/futbol-peruano/2026/02/03/rafael-guzman-joya-de-universitario-a-un-paso-de-ser-nuevo-jugar-del-real-betis-de-espana-defensor-jugaria-en-el-juvenil-a-63075)
-- **Real Betis fichó a figura de Universitario que obtuvo el tricampeonato: "Está inscrito"**: [Link](https://libero.pe/futbol-peruano/universitario/2026/02/03/real-betis-ficho-figura-de-universitario-obtuvo-tricampeonato-inscrito-35058)
-
-
-### sat (N/A, 03/02/2026 12:00 Lima)
-
-- **College Board Bans Smart Glasses During SAT**: [Link](https://www.insidehighered.com/news/students/academics/2026/02/02/college-board-prohibits-wearing-smart-glasses-during-sat)
-- **IPS FILM ROOM: Darrion Williams Exits Wake Early... What Happened?**: [Link](https://insidepacksports.com/s/17945/ips-film-room-darrion-williams-exits-wake-early-what-happened)
-- **Why Darrion Williams Sat Late Despite Scoring 20**: [Link](https://www.si.com/college/ncstate/why-darrion-williams-sat-late-despite-scoring-20)
-
-
-### kitco (N/A, 03/02/2026 12:00 Lima)
-
-- **Gold and silver rebound, pulling global mining stocks and precious metal ETFs higher**: [Link](https://www.cnbc.com/2026/02/03/gold-and-silver-rebound-after-historic-wipeout-as-analysts-say-thematic-drivers-stay-intact-.html)
-- **It’s been a weird few days on Wall Street**: [Link](https://www.cnn.com/2026/02/02/investing/gold-silver-bitcoin-us-stock-market)
-- **A single Trump announcement sparks billions in losses across gold and silver**: [Link](https://www.foxnews.com/politics/single-trump-announcement-sparks-billions-losses-across-gold-silver)
-
-
-### selena gomez (N/A, 03/02/2026 12:00 Lima)
-
-- **Selena Gomez Opts for Sheer Tights Instead of Pants at Event Marking Major Rare Beauty Milestone**: [Link](https://www.instyle.com/selena-gomez-rare-beauty-ulta-launch-black-ensemble-11896972)
-- **Selena Gomez ditched the bra and declared she's feeling 'a little sexy'**: [Link](https://www.dailystar.co.uk/showbiz/selena-gomez-says-shes-feeling-36664043)
-- **Selena Gomez Hilariously Poses in Face Mask and Bunny Ears in Fun Photo Carousel: 'Lately'**: [Link](https://people.com/selena-gomez-face-mask-bunny-ears-11898149)
-
-
-### timberwolves - grizzlies (N/A, 03/02/2026 08:14 Lima)
-
-- **Anthony Edwards, Julius Randle lead Timberwolves to a 131-114 victory over the Grizzlies**: [Link](https://apnews.com/article/timberwolves-grizzlies-score-4f8b3cfe805a8ddb37d38cca408c86fa)
-- **Memphis finished strong and closed out a 137-128 win …**: [Link](https://www.hoopshype.com/story/sports/nba/rumors/2026/02/02/memphis-finished-strong-and-closed-out-a-137-128-win/88485082007/)
-- **Underdog promo code NYPOST: Play $5, get $75 in fantasy bonus entries for Timberwolves vs. Grizzlies**: [Link](https://nypost.com/2026/02/02/betting/underdog-promo-code-nypost-play-5-get-75-in-fantasy-bonus-entries-for-timberwolves-vs-grizzlies/)
 
 
