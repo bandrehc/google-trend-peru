@@ -1,3 +1,17 @@
+### barcelona vs mallorca (N/A, 07/02/2026 03:38 Lima)
+
+- **Barcelona vs Mallorca: posibles alineaciones de la Jornada 23**: [Link](https://www.espn.com.ar/futbol/espana/nota/_/id/16281033/barcelona-vs-mallorca-alineaciones-jornada-23-laliga-2026)
+- **Flick, con un once muy reconocible ante el Mallorca**: [Link](https://www.sport.es/es/noticias/barca/flick-once-reconocible-mallorca-126532592)
+- **Apuestas y Pronóstico del Barcelona vs Mallorca 07/02/26**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2026/febrero/pronostico-barcelona-vs-mallorca-07-02-26)
+
+
+### auckland football club - sydney (N/A, 07/02/2026 03:38 Lima)
+
+- **Auckland FC Call on Jimmy Hilton to Solve Goalkeeping Gaps**: [Link](https://aucklandfc.co.nz/news/auckland-fc-call-on-jimmy-hilton-to-solve-goalkeeping-gaps/)
+- **Auckland FC faces keeper crisis with All Whites star to miss World Cup**: [Link](https://www.nzherald.co.nz/sport/football/auckland-fc/auckland-fc-to-consider-goalkeeper-options-with-all-whites-star-oli-sail-ruled-out-of-world-cup/QDIWWDGL25DVHLUFG4JI2PHR3M/)
+- **Auckland FC expand search to end goalkeeper shortage**: [Link](https://www.rnz.co.nz/news/sport/586061/auckland-fc-expand-search-to-end-goalkeeper-shortage)
+
+
 ### mazatlán - guadalajara (N/A, 07/02/2026 00:07 Lima)
 
 - **Pronóstico Mazatlan FC Chivas - Liga MX 06/02/26**: [Link](https://www.sportytrader.com/es/pronosticos/monarcas-morelia-chivas-324691/)
@@ -1011,19 +1025,5 @@ Sin noticias relacionadas disponibles.
 - **Anthony Edwards, Julius Randle lead Timberwolves to a 131-114 victory over the Grizzlies**: [Link](https://apnews.com/article/timberwolves-grizzlies-score-4f8b3cfe805a8ddb37d38cca408c86fa)
 - **Memphis finished strong and closed out a 137-128 win …**: [Link](https://www.hoopshype.com/story/sports/nba/rumors/2026/02/02/memphis-finished-strong-and-closed-out-a-137-128-win/88485082007/)
 - **Underdog promo code NYPOST: Play $5, get $75 in fantasy bonus entries for Timberwolves vs. Grizzlies**: [Link](https://nypost.com/2026/02/02/betting/underdog-promo-code-nypost-play-5-get-75-in-fantasy-bonus-entries-for-timberwolves-vs-grizzlies/)
-
-
-### sorteo la tinka resultados (N/A, 03/02/2026 03:47 Lima)
-
-- **Tinka del 1 de febrero de 2026: revisa aquí los números ganadores**: [Link](https://www.infobae.com/peru/2026/02/02/resultados-de-la-tinka-numeros-ganadores-del-domingo-1-de-febrero-de-2026/)
-- **Caos y poder: “En el barro” estrena su segunda temporada este 13 de febrero en Netflix**: [Link](https://elcomercio.pe/videos/trailers/caos-y-poder-en-el-barro-estrena-su-segunda-temporada-este-13-de-febrero-en-netflix-nnav-estrenos-netflix-video-noticia/)
-- **Resultados de La Tinka del domingo 01 de febrero**: [Link](https://www.americatv.com.pe/americlub/tinka-resultados-sorteo-jugado-domingo-01-febrero-noticia-162691)
-
-
-### precio oro (N/A, 03/02/2026 03:47 Lima)
-
-- **¿Por qué ha caído en picado el precio del oro y la plata?**: [Link](https://es.finance.yahoo.com/noticias/ca%C3%ADdo-picado-precio-oro-plata-125211559.html)
-- **Guía sobre el auge y desplome del oro y la plata**: [Link](https://peru21.pe/economia/guia-sobre-el-auge-y-desplome-del-oro-y-la-plata/)
-- **Ganancias de un año desaparecen: plata y oro amplían pérdidas tras desplome histórico de metales**: [Link](https://gestion.pe/mundo/internacional/oro-y-plata-amplian-perdidas-tras-un-desplome-historico-de-los-metales-noticia/)
 
 
