@@ -1,3 +1,69 @@
+### heat - celtics (N/A, 06/02/2026 21:31 Lima)
+
+- **How to Watch Heat vs Celtics: Live Stream NBA, TV Channel**: [Link](https://www.newsweek.com/how-to-watch-heat-vs-celtics-live-stream-nba-tv-channel-2-11479571)
+- **Heat's Pelle Larsson: Questionable to return Friday**: [Link](https://www.cbssports.com/fantasy/basketball/news/heats-pelle-larsson-questionable-to-return-friday/)
+- **Unfortunate News For Jaylen Brown Ahead Of Game Against Miami Heat**: [Link](https://twsn.net/2026/02/06/unfortunate-news-for-jaylen-brown-ahead-of-game-against-miami-heat/)
+
+
+### necaxa - atl. san luis (N/A, 06/02/2026 21:31 Lima)
+
+- **Pronóstico Necaxa San Luís - Liga MX 06/02/26**: [Link](https://www.sportytrader.com/es/pronosticos/necaxa-san-luis-324648/)
+- **Liga MX: Por la fecha 5, Necaxa recibirá a Atl. de San Luis**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-por-la-fecha-5-necaxa-recibira-a-atl-de-san-luis-noticia-1674581)
+- **⚽ ¡Imperdible! Checa a qué HORA y por DÓNDE VER el Necaxa vs San Luis de la Liga MX ⚡🆚⛪**: [Link](https://www.facebook.com/MilenioDiario/photos/-imperdiblecheca-a-qu%C3%A9-hora-y-por-d%C3%B3nde-ver-el-necaxa-vs-san-luis-de-la-liga-mx-/1380449094112558/)
+
+
+### medellín - internacional de bogotá (N/A, 06/02/2026 21:31 Lima)
+
+- **Pronóstico Independiente Medellín Internacional De Bogota - Primera A Colombia 06/02/26**: [Link](https://www.sportytrader.com/es/pronosticos/independiente-medellin-internacional-de-bogota-324618/)
+- **Cuándo juegan DIM vs Internacional de Bogotá por la fecha 5 de Liga BetPlay: equipo, fecha, hora y TV en vivo**: [Link](https://www.espn.com.co/futbol/colombia/nota/_/id/16274714/medellin-vs-internacional-bogota-fecha-5-liga-betplay-equipo-fecha-hora-y-tv-en-vivo)
+- **EN VIVO: Medellín vs. Inter Bogotá - rueda el balón (0-0)**: [Link](https://www.winsports.co/futbol-colombiano/noticias/en-vivo-medellin-vs-inter-bogota-minuto-a-minuto-y-goles-fecha-5-406972)
+
+
+### tigres - santos (N/A, 06/02/2026 21:31 Lima)
+
+- **Liga MX: Tigres y Santos Laguna se encuentran en la fecha 5**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-tigres-y-santos-laguna-se-encuentran-en-la-fecha-5-noticia-1674580)
+- **¡Gol de Lucas Di Yorio! ERROR EN LA SALIDA | Tigres 0 - 1 Santos | J5 | CL 2026 | TV Azteca Deportes**: [Link](https://www.tvazteca.com/aztecadeportes/gol-lucas-di-yorio-error-en-la-salida-tigres-0-1-santos-j5-cl-2026-tv-azteca/)
+- **Es hora de pegar en casa, Tigres**: [Link](https://www.elnorte.com/es-hora-de-pegar-en-casa-tigres/ar3148093)
+
+
+### central córdoba - unión (N/A, 06/02/2026 21:31 Lima)
+
+Sin noticias relacionadas disponibles.
+
+
+### ticketmaster (N/A, 06/02/2026 21:31 Lima)
+
+- **ENTER BELOW for a chance to win tickets to Noah Kahan at Oracle Park!**: [Link](https://www.audacy.com/radioalice/contests/your-chance-to-win-tickets-to-noah-kahan-at-oracle-park)
+- **Noah Kahan’s tour announcement comes with a major shake-up to Ticketmaster’s presale process — here’s why**: [Link](https://www.nj.com/entertainment/2026/02/noah-kahans-tour-announcement-comes-with-a-major-shake-up-to-ticketmasters-presale-rules-heres-why.html)
+- **Coors Field just announced its 2nd big concert of 2026**: [Link](https://www.denverpost.com/2026/02/02/noah-kahan-coors-field-tour-tickets/)
+
+
+### pasto - bucaramanga (N/A, 06/02/2026 21:31 Lima)
+
+- **Pronóstico Deportivo Pasto Atlético Bucaramanga - Primera A Colombia 06/02/26**: [Link](https://www.sportytrader.com/es/pronosticos/deportivo-pasto-atletico-bucaramanga-324585/)
+- **Fecha 5 en Liga BetPlay 2026-1: árbitros y VAR confirmados**: [Link](https://www.winsports.co/futbol-colombiano/noticias/fecha-5-en-liga-betplay-2026-1-arbitros-y-var-confirmados-406790)
+- **Pasto, Bucaramanga, Medellín e Inter de Bogotá abrirán la quinta fecha de la Liga BetPlay**: [Link](https://www.boyacaradio.com/noticia.php?id=60812)
+
+
+### audax italiano - univ. concepción (N/A, 06/02/2026 21:31 Lima)
+
+Sin noticias relacionadas disponibles.
+
+
+### vladimiro montesinos (N/A, 06/02/2026 21:31 Lima)
+
+- **Vladimiro Montesinos: Suprema anula compurgación de pena y establece que condena vencerá en 2037**: [Link](https://lpderecho.pe/vladimiro-montesinos-suprema-anula-compurgacion-pena-establece-condena-vencera-2037/)
+- **Montesinos seguirá preso hasta 2037 por crímenes de derechos humanos**: [Link](https://caretas.pe/politica/montesinos-seguira-preso-hasta-2037-por-crimenes-de-derechos-humanos/)
+- **Vladimiro Montesinos saldrá de prisión en 2037: PJ ordena que cumpla condena del caso Pativilca**: [Link](https://www.infobae.com/peru/2026/02/06/vladimiro-montesinos-saldra-de-prision-en-2037-pj-ordena-que-cumpla-condena-del-caso-pativilca/)
+
+
+### celta de vigo vs. osasuna (N/A, 06/02/2026 21:31 Lima)
+
+- **Preview: Celta Vigo vs Osasuna - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/celta-vigo/preview/celta-vigo-vs-osasuna-prediction-team-news-lineups_591378.html)
+- **Celta Vigo's European dreams take huge hit with Osasuna defeat**: [Link](https://www.tribalfootball.com/article/soccer-laliga-celta-vigo-s-european-dreams-take-huge-hit-with-osasuna-defeat-2bae5da1-a6d1-4c94-bdfe-c4ce98ae441a)
+- **Celta - Osasuna live**: [Link](https://www.marca.com/en/soccer/laliga-ea-sports/celta-osasuna/2026/02/06/01_0101_20260206_176_450-live.html)
+
+
 ### hellas verona vs (N/A, 06/02/2026 15:39 Lima)
 
 - **Serie A: Hellas Verona busca dejar el fondo de la tabla ante Pisa**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-hellas-verona-busca-dejar-el-fondo-de-la-tabla-ante-pisa-noticia-1674528)
@@ -959,75 +1025,5 @@ Sin noticias relacionadas disponibles.
 - **Memphis finished strong and closed out a 137-128 win …**: [Link](https://uk.sports.yahoo.com/news/memphis-finished-strong-closed-137-033857469.html)
 - **Wolves Pics: Wolves Fall To Grizzlies, 137‑128 | 02.02.26**: [Link](https://www.nba.com/timberwolves/photos/wolves-pics-wolves-fall-to-grizzlies-137-128-02-02-26)
 - **Underdog promo code NYPOST: Play $5, get $75 in fantasy bonus entries for Timberwolves vs. Grizzlies**: [Link](https://nypost.com/2026/02/02/betting/underdog-promo-code-nypost-play-5-get-75-in-fantasy-bonus-entries-for-timberwolves-vs-grizzlies/)
-
-
-### argentinos juniors vs (N/A, 03/02/2026 00:16 Lima)
-
-- **Argentinos empató con Belgrano y goleó Unión: todos los partidos del lunes del Torneo Apertura**: [Link](https://www.infobae.com/deportes/2026/02/02/gimnasia-y-aldosivi-abren-la-jornada-del-lunes-por-la-fecha-3-del-torneo-apertura-hora-tv-y-posibles-formaciones/)
-- **Sin el Chino, juega el Mudo**: [Link](https://www.eldiariocba.com.ar/el-equipo/futbol/2026/2/2/sin-el-chino-juega-el-mudo-143049.html)
-- **Igualdad en casa**: [Link](https://argentinosjuniors.com.ar/noticias/futbol/igualdad-en-casa/)
-
-
-### pedro gallese (N/A, 02/02/2026 21:39 Lima)
-
-- **Deportivo Cali informó fallecimiento de la madre de Gallese**: [Link](https://www.americatv.com.pe/deportes/futbol-mundial/deportivo-cali-informo-fallecimiento-madre-pedro-gallese-n452561?ref=portal-amtv)
-- **¡Fuerza, Pulpo! Fallece la mamá de Pedro Gallese**: [Link](https://www.atv.pe/noticia/fuerza-pulpo-fallece-la-mama-de-pedro-gallese/)
-- **Falleció mamá de Pedro Gallese: Deportivo Cali expresó sus condolencias al portero de la selección peruana**: [Link](https://larepublica.pe/deportes/2026/02/02/muere-mama-de-pedro-gallese-deportivo-cali-expreso-sus-condolencias-al-portero-de-la-seleccion-peruana-37020)
-
-
-### caida del oro hoy (N/A, 02/02/2026 21:39 Lima)
-
-- **¿Por qué ha caído en picado el precio del oro y la plata?**: [Link](https://es.finance.yahoo.com/noticias/ca%C3%ADdo-picado-precio-oro-plata-125211559.html)
-- **Guía sobre el auge y desplome del oro y la plata**: [Link](https://peru21.pe/economia/guia-sobre-el-auge-y-desplome-del-oro-y-la-plata/)
-- **Ganancias de un año desaparecen: plata y oro amplían pérdidas tras desplome histórico de metales**: [Link](https://gestion.pe/mundo/internacional/oro-y-plata-amplian-perdidas-tras-un-desplome-historico-de-los-metales-noticia/)
-
-
-### argentinos juniors vs belgrano (N/A, 02/02/2026 21:39 Lima)
-
-- **Cuándo juegan Argentinos Juniors vs. Belgrano por la fecha 3 del Torneo Apertura 2026: equipo, fecha, hora y TV en vivo**: [Link](https://espndeportes.espn.com/futbol/argentina/nota/_/id/16250879/argentinos-vs-belgrano-fecha-3-torneo-apertura-2026-equipo-fecha-hora-y-tv-en-vivo)
-- **El “Pirata" y el “Bicho” siguen sin sacarse ventaja en La Paternal**: [Link](https://www.cba24n.com.ar/deportes/futbol/belgrano/el--pirata--y-el--bicho--siguen-sin-sacarse-ventaja-en-la-paternal_a698072392128774661ba149d)
-- **Sin el Chino, juega el Mudo**: [Link](https://www.eldiariocba.com.ar/el-equipo/futbol/2026/2/2/sin-el-chino-juega-el-mudo-143049.html)
-
-
-### cerro - sportivo luqueño (N/A, 02/02/2026 21:39 Lima)
-
-- **¿Qué canal pasa Cerro Porteño vs Sportivo Luqueño hoy: dónde ver Gratis y EN VIVO la Copa de Primera?**: [Link](https://www.365scores.com/es/news/cerro-porteno-vs-sportivo-luqueno-tv/)
-- **¿A qué hora juega Cerro Porteño vs Sportivo Luqueño EN VIVO HOY por el Torneo Apertura de Paraguay?**: [Link](https://larepublica.pe/deportes/2026/02/01/cerro-porteno-vs-sportivo-luqueno-en-vivo-torneo-apertura-de-paraguay-via-tigo-sports-84374)
-- **El Ciclón cocinó “Chanchito” a fuego lento**: [Link](https://www.cronica.com.py/2026/02/02/el-ciclon-cocino-chanchito-a-fuego-lento/)
-
-
-### internacional de bogotá - tolima (N/A, 02/02/2026 21:39 Lima)
-
-- **Pronóstico Internacional De Bogota Deportes Tolima - Primera A Colombia 02/02/26**: [Link](https://www.sportytrader.com/es/pronosticos/internacional-de-bogota-deportes-tolima-323691/)
-- **Inter no pasó del cero está noche en Techo**: [Link](https://www.vavel.com/colombia/futbol-colombiano/2026/02/03/la-equidad/1249603-inter-no-paso-del-cero-esta-noche-en-techo.html)
-- **Tolima se acostumbra a jugar con 10 y empata en Bogotá**: [Link](https://www.clarosports.com/colombia/liga-bet-play/inter-de-bogota-vs-deportes-tolima-en-vivo-la-liga-betplay-2026-i-resultado-y-goles-de-la-jornada-4/)
-
-
-### delta (N/A, 02/02/2026 21:39 Lima)
-
-- **Delta grows Airbus widebody fleet with new order**: [Link](https://news.delta.com/delta-grows-airbus-widebody-fleet-new-order)
-- **Rolls-Royce lands huge aero engine order from major US airline**: [Link](https://www.marketingderby.co.uk/news/rolls-royce-lands-huge-aero-engine-order-from-major-us-airline/)
-- **Delta Air Lines Expands Fleet with Thirty-One New Airbus Aircraft to Enhance International Travel**: [Link](https://www.travelandtourworld.com/news/article/delta-air-lines-expands-fleet-with-thirty-one-new-airbus-aircraft-to-enhance-international-travel/)
-
-
-### racing vs (N/A, 02/02/2026 21:39 Lima)
-
-- **Y va el tercero: tremendo golazo del Pity Martínez en su debut en Tigre**: [Link](https://www.espn.com.pe/futbol/argentina/nota/_/id/16264128/video-gol-de-gonzalo-pity-martinez-debut-tigre-vs-racing)
-- **Racing perdió ante Tigre y sufrió su tercera derrota consecutiva**: [Link](https://ovacion.pe/noticias/futbol-internacional/racing-perdio-ante-tigre-sufrio-su-tercera-derrota-consecutiva)
-- **Cuándo juegan Tigre vs. Racing por la fecha 3 del Torneo Apertura 2026: equipo, fecha, hora y TV en vivo**: [Link](https://www.espn.com.pe/futbol/argentina/nota/_/id/16250417/tigre-vs-racing-fecha-3-torneo-apertura-2026-equipo-fecha-hora-y-tv-en-vivo)
-
-
-### madureira - vasco da gama (N/A, 02/02/2026 21:39 Lima)
-
-- **Fim da 5ª rodada do Campeonato Carioca; veja resultados e classificação**: [Link](https://theplayoffs.news/noticias/botafogo/fim-da-5a-rodada-do-campeonato-carioca/)
-- **📹 Que fase! Puma perde pênalti no Vasco e Brenner vacila no rebote; veja**: [Link](https://onefootball.com/pt-br/noticias/que-fase-puma-perde-penalti-no-vasco-e-brenner-vacila-no-rebote-veja-42349287)
-- **Diniz é vaiado e chamado de "burro" por torcedores após empate do Vasco**: [Link](https://ge.globo.com/futebol/times/vasco/noticia/2026/02/02/diniz-e-vaiado-e-chamado-de-burro-por-torcedores-apos-empate-do-vasco.ghtml)
-
-
-### defensa y justicia vs (N/A, 02/02/2026 21:39 Lima)
-
-- **Benedetti rompió el punto de penal, Botta falló su remate y se salvó Estudiantes**: [Link](https://www.espn.com.ar/futbol/argentina/nota/_/id/16264081/video-benedetti-rompio-el-punto-de-pena-botta-fallo-su-remate-y-se-salvo-estudiantes-vs-defensa-y-justicia)
-- **Cuándo juegan Defensa y Justicia vs. Estudiantes de La Plata: equipos, fecha, hora y TV en vivo**: [Link](https://espndeportes.espn.com/futbol/argentina/nota/_/id/16262793/defensa-y-justicia-vs-estudiantes-la-plata-torneo-apertura-equipo-fecha-hora-tv-en-vivo)
-- **Eduardo Domínguez y el empate de Estudiantes: "No puede volver a ocurrir"**: [Link](https://www.elgrafico.com.ar/articulo/primera-division/97326/eduardo-dominguez-y-el-empate-de-estudiantes-no-puede-volver-a-ocurrir)
 
 
