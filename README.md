@@ -1,3 +1,73 @@
+### endrick (N/A, 07/02/2026 15:34 Lima)
+
+- **Real Madrid Star Set For International Recall**: [Link](https://www.si.com/onsi/soccer/real-madrid/international/real-madrid-star-set-for-international-recall)
+- **Lyon's Endrick on Karim Benzema comparison: 'He is light years ahead'**: [Link](https://www.espn.com/soccer/story/_/id/47836187/lyon-endrick-karim-benzema-comparison)
+- **Cacapa: Endrick's Lyon success a lesson for Real Madrid**: [Link](https://www.tribalfootball.com/article/soccer-laliga-cacapa-endrick-s-lyon-success-a-lesson-for-real-madrid-d3a7d704-1b55-4197-9815-fc0b48ea9abd)
+
+
+### aldosivi - rosario central (N/A, 07/02/2026 15:34 Lima)
+
+- **Aldosivi vs Rosario Central: Resultado EN VIVO, minuto a minuto y goles de la Liga Profesional**: [Link](https://www.365scores.com/es/news/aldosivi-vs-rosario-central-resultado/)
+- **Jugar en La Feliz y volver felices a la ciudad**: [Link](https://www.pressreader.com/argentina/rosario-12/20260207/281586657037762)
+- **Un recibimiento con fervor y carisma**: [Link](https://diarioelatlantico.com.ar/2026/02/07/un-recibimiento-con-fervor-y-carisma/)
+
+
+### lyon (N/A, 07/02/2026 15:34 Lima)
+
+- **Lyon : l'image du mois**: [Link](https://www.lyoncapitale.fr/actualite/lyon-l-image-du-mois)
+- **Nantes - OL : Noah Nartey préféré à Khalis Merah**: [Link](https://www.olympique-et-lyonnais.com/nantes-ol-noah-nartey-prefere-a-khalis-merah,390265.html)
+- **Olympique Lyonnais - C'est parti à la Beaujoire ! (0-0)**: [Link](https://www.fcnantes.com/articles/article2809.php?num=48614)
+
+
+### atlético grau - sport huancayo (N/A, 07/02/2026 15:34 Lima)
+
+- **¿A qué hora juegan Atlético Grau vs Sport Huancayo? dónde ver EN VIVO la Liga 1-2026**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/atletico-grau-vs-sport-huancayo-en-vivo-a-que-hora-y-donde-ver-el-partido-por-la-fecha-2-de-la-liga-1-2026-torneo-apertura-tdpe-noticia/)
+- **🔴#ENVIVO| Grau y Huancayo empatan en Sullana**: [Link](https://ovacion.pe/noticias/liga1-2026/envivo-grau-huancayo-empatan-sullana)
+- **Pronóstico: Atlético Grau vs Sport Huancayo por la fecha 2 del Torneo Apertura**: [Link](https://www.futbolperuano.com/liga-1/noticias/atletico-grau-vs-sport-huancayo-en-vivo-por-el-torneo-apertura-562755)
+
+
+### fiorentina vs (N/A, 07/02/2026 15:34 Lima)
+
+- **Serie A: Fiorentina se enfrentará ante Torino por la fecha 24**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-fiorentina-se-enfrentara-ante-torino-por-la-fecha-24-noticia-1674709)
+- **Serie A official line-ups: Fiorentina vs. Torino**: [Link](https://sports.yahoo.com/articles/serie-official-line-ups-fiorentina-185000205.html)
+- **🔴 Fiorentina-Torino 0-0, Torino threaten twice early on**: [Link](https://onefootball.com/en/news/fiorentina-torino-0-0-torino-threaten-twice-early-on-42375055)
+
+
+### nantes - lyon (N/A, 07/02/2026 15:34 Lima)
+
+- **Nantes - OL : Noah Nartey préféré à Khalis Merah**: [Link](https://www.olympique-et-lyonnais.com/nantes-ol-noah-nartey-prefere-a-khalis-merah,390265.html)
+- **Olympique Lyonnais - H-2 avant le coup d'envoi (21h05)**: [Link](https://www.fcnantes.com/articles/article2809.php?num=48608)
+- **Face à l’OL, une partie de la Beaujoire restera silencieuse**: [Link](https://tribunenantaise.fr/actus-fcnantes/face-a-lol-une-partie-de-la-beaujoire-restera-silencieuse/)
+
+
+### melcochita (N/A, 07/02/2026 15:34 Lima)
+
+- **Monserrat rompe su silencio y revela la razón por la cual no trabajó durante los 17 años de relación con ‘Melcochita’**: [Link](https://elcomercio.pe/respuestas/farandula/monserrat-rompe-su-silencio-y-revela-la-razon-por-la-cual-no-trabajo-durante-los-17-anos-de-relacion-con-melcochita-tdpe-noticia/)
+- **Susan Villanueva asegura que si Melcochita FALLECE será culpa de Monserrat: “Investiguen si algo le pasa”**: [Link](https://www.atv.pe/noticia/susan-villanueva-asegura-que-si-melcochita-fallece-sera-culpa-de-monserrat-investiguen-si-algo-le-pasa/)
+- **Deysi Araujo acusó a Monserrat Seminario de maltratar a ‘Melcochita’: “Vi que lo trató bastante mal”**: [Link](https://diariocorreo.pe/espectaculos/deysi-araujo-acuso-a-monserrat-seminario-de-maltratar-a-melcochita-vi-que-lo-trato-bastante-mal-noticia/)
+
+
+### spezia - virtus entella (N/A, 07/02/2026 15:34 Lima)
+
+- **Spezia - Virtus Entella, il derby regionale minuto | DIRETTA TESTUALE**: [Link](https://www.rainews.it/tgr/liguria/articoli/2026/02/spezia-calcio-virtus-entella-serie-b-calcio-giornata-23-stadio-picco-formazioni-ufficiali-tabellino-risultato-d6ef0ecf-7ccc-40c5-9a65-63fa6cc5d70d.html)
+- **Aurelio e Mateju al rientro da titolari, due spezzini tornano al Picco: le probabili di Spezia - Virtus…**: [Link](https://gazzettadellaspezia.com/spezia/item/172368-aurelio-e-mateju-al-rientro-da-titolari-due-spezzini-tornano-al-picco-le-probabili-di-spezia-virtus-entella)
+- **Nel pre-gara vieni a trovarci allo Store di Viale Fieschi: ospite Vanja Vlahovic**: [Link](https://www.speziacalcio.com/en/news/nel-pre-gara-vieni-a-trovarci-allo-store-di-viale-fieschi-ospite-vanja-vlahovic.28041.html)
+
+
+### real sociedad - elche c. f. (N/A, 07/02/2026 15:34 Lima)
+
+- **Apuestas y Pronóstico del Real Sociedad vs Elche 07/02/26**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2026/febrero/pronostico-real-sociedad-vs-elche-07-02-26)
+- **Ya es oficial la alineación de la Real Sociedad: rota medio equipo para recibir al Elche**: [Link](https://www.mundodeportivo.com/futbol/real-sociedad/20260207/1002616538/oficial-alineacion-real-sociedad-rota-medio-equipo-recibir-elche.html)
+- **Real Sociedad – Elche CF: Sarabia busca bajar de la nube a Matarazzo**: [Link](https://onefootball.com/en/news/real-sociedad-elche-cf-sarabia-busca-bajar-de-la-nube-a-matarazzo-42371821)
+
+
+### fiorentina - torino (N/A, 07/02/2026 15:34 Lima)
+
+- **LIVE Al 45' Fiorentina-Torino 0-1: gol di Casadei, Brescianini si mangia il gol nel recupero**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Fiorentina/07-02-2026/fiorentina-torino-live-diretta-serie-a.shtml)
+- **Bucchioni: "Non mi preoccupa l'assenza di Gosens, importante il ritorno di Kean anche se non segna"**: [Link](https://www.labaroviola.com/bucchioni-non-mi-preoccupa-lassenza-di-gosens-importante-il-ritorno-di-kean-anche-se-non-segna/338468/)
+- **Fiorentina-Torino, le formazioni ufficiali**: [Link](https://www.torinofc.it/news/07/02/2026/fiorentina-torino-le-formazioni-ufficiali_41092)
+
+
 ### genoa - napoli (N/A, 07/02/2026 11:37 Lima)
 
 - **Saturday's Serie A predictions including Genoa vs. Napoli**: [Link](https://www.sportsmole.co.uk/football/napoli/race-for-the-serie-a-title/feature/will-napoli-claim-vital-win-over-genoa-saturdays-serie-a-predictions-and-previews_591571.html)
@@ -956,75 +1026,5 @@ Sin noticias relacionadas disponibles.
 - **GTA 6 Marketing Will Kick Off This Summer, as Take-Two Confidently Reaffirms November Release Date**: [Link](https://www.ign.com/articles/gta-6-marketing-will-kick-off-this-summer-as-take-two-confidently-reaffirms-november-release-date)
 - **Grand Theft Auto 6 may not have a physical version on day one to avoid leaks, report claims**: [Link](https://www.videogameschronicle.com/news/grand-theft-auto-6-may-not-have-a-physical-version-on-day-one-to-avoid-leaks-report-claims/)
 - **Take-Two raises its net bookings outlook, reaffirms November release for “Grand Theft Auto 6”**: [Link](https://sherwood.news/markets/take-two-raises-its-net-bookings-outlook-reaffirms-november-release-for/)
-
-
-### copa de campeones concacaf (N/A, 03/02/2026 21:34 Lima)
-
-- **Comienza la Concacaf Champions Cup 2026, uno de los dos únicos torneos que Messi nunca ganó**: [Link](https://cnnespanol.cnn.com/2026/02/03/deportes/concacaf-champions-cup-2026-formato-cruces-orix)
-- **Comienza la Concacaf Champions Cup, uno de los pocos títulos que Messi todavía persigue**: [Link](https://www.espn.com.ar/futbol/norte-centro-america/nota/_/id/16265866/comienza-concacaf-champions-cup-uno-de-los-pocos-titulos-que-lionel-messi-persigue-inter-miami)
-- **Partidos de HOY martes 3 de febrero en la Primera Ronda de la Concachampions 2026**: [Link](https://www.tvazteca.com/aztecadeportes/partidos-hoy-martes-febrero-primera-ronda-concachampions-2026/)
-
-
-### olimpia - américa (N/A, 03/02/2026 21:34 Lima)
-
-- **📺 Canales TV para ver CD Olimpia vs. Club América EN VIVO GRATIS por la Concachampions**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/a-que-hora-juega-y-que-canal-transmite-cd-olimpia-vs-club-america-en-vivo-hoy-3-de-febrero-por-la-copa-de-campeones-de-concacaf-2026-nnda-nnrt-noticia/)
-- **¿Cómo descargar FOX One para ver partidos de Concachampions 2026?**: [Link](https://www.mediotiempo.com/actualidad/streaming/concachampions-2026-como-descargar-fox-one-para-ver-los-partidos-hoy)
-- **¡Espectacular! Así fue la llegada de la barra del América al Estadio Nacional Chelato Uclés**: [Link](https://www.diez.hn/videos/espectacular-asi-fue-la-llegada-de-la-barra-del-america-al-estadio-nacional-chelato-ucles-AM29169977)
-
-
-### independiente rivadavia - sarmiento (N/A, 03/02/2026 21:34 Lima)
-
-- **Independiente Rivadavia venció a Sarmiento y es líder del Grupo B del Apertura, con puntaje ideal**: [Link](https://www.espn.com.ar/futbol/argentina/nota/_/id/16267873/independiente-rivadavia-vs-sarmiento-junin-tercera-fecha-mendoza-torneo-apertura)
-- **EN VIVO: Independiente Riv. (M) empata 0-0 con Sarmiento por el partido de la fecha 3 del Apertura**: [Link](https://www.directvsports.com/futbol/en-vivo-independiente-riv.-m-empata-0-0-con-sarmiento-por-el-partido-de-la-fecha-3-del-apertura-20260131-0006.html)
-- **La agenda deportiva del martes llega con un partidazo de la Lepra en Mendoza**: [Link](https://mendozatoday.com.ar/2026/02/03/la-agenda-deportiva-del-martes-llega-con-un-partidazo-de-la-lepra-en-mendoza/)
-
-
-### redmi note 15 pro (N/A, 03/02/2026 21:34 Lima)
-
-- **Why Camera Hardware Is Back at the Centre of Smartphone Photography - GSMArena.com news**: [Link](https://www.gsmarena.com/why_camera_hardware_is_back_at_the_centre_of_smartphone_photography-news-71344.php)
-- **Xiaomi Redmi Note 15 Pro+ 5G with a 6500 mAh battery: again top for your money?**: [Link](https://mezha.ua/en/reviews/oglyad-xiaomi-redmi-note-15-pro-5g-z-akumulyatorom-na-6500-ma-god-znovu-top-za-svoji-groshi-308168/)
-- **Chinese tech brand Xiaomi launch smartphone line in Kenya**: [Link](https://global.chinadaily.com.cn/a/202601/31/WS697dd6a2a310d6866eb36c6a.html)
-
-
-### estaciones del tren (N/A, 03/02/2026 21:34 Lima)
-
-- **Qué pasará con la ampliación de la Línea 12 del Metro CDMX tras la inauguración del Tren Interurbano hasta Observatorio**: [Link](https://www.infobae.com/mexico/2026/02/03/que-pasara-con-la-ampliacion-de-la-linea-12-del-metro-cdmx-tras-la-inauguracion-del-tren-interurbano-hasta-observatorio/)
-- **Quedan obras pendientes para el Cetram**: [Link](https://es-us.noticias.yahoo.com/quedan-obras-pendientes-cetram-060000173.html)
-- **TREN INTERURBANO CON SOBRECOSTO DE MÁS DE 250% DENUNCIA GPPAN**: [Link](https://lineapolitica.com/tren-interurbano-con-sobrecosto-de-mas-de-250-denuncia-gppan/)
-
-
-### lakers - nets (N/A, 03/02/2026 21:34 Lima)
-
-- **Lakers vs. Nets Preview: Last stop of the roadtrip**: [Link](https://www.silverscreenandroll.com/lakers-game-previews/107010/lakers-vs-nets-discussion-injury-report-how-to-watch-tv-stream-start-time-luka-doncic-lebron-james)
-- **Los Angeles Lakers vs Brooklyn Nets Feb 3, 2026 Game Summary**: [Link](https://www.nba.com/how-to-watch-game-redirect/0022500719?partnerRef=Lakers&platform=web&surface=gameblock)
-- **Kalshi promo code NYPMAX: Trade $10, get $10! for Lakers vs. Nets**: [Link](https://nypost.com/2026/02/03/betting/kalshi-promo-code-nypmax-trade-10-get-10-for-lakers-vs-nets/)
-
-
-### atlantic city (N/A, 03/02/2026 21:34 Lima)
-
-- **Tropicana Atlantic City opens newly renovated Solana hotel tower**: [Link](https://cdcgaming.com/brief/tropicana-atlantic-city-opens-newly-renovated-solana-hotel-tower/)
-- **Experience The Blend Of Classic Charm And Modern Design At Tropicana's New Solana Tower**: [Link](https://wobm.com/solana-tower-atlantic-city/)
-- **Tropicana Atlantic City Solana Tower renovations**: [Link](https://pressofatlanticcity.com/news/video_f29f82da-7d2d-5fc7-afa3-c8fd75049a0d.html)
-
-
-### donald trump (N/A, 03/02/2026 21:34 Lima)
-
-- **Trump calls on Republicans to ‘nationalize’ future elections**: [Link](https://www.cnn.com/2026/02/03/politics/trump-calls-on-republicans-to-nationalize-future-elections)
-- **Thune rejects Trump’s call for GOP to take over and ‘nationalize’ elections**: [Link](https://thehill.com/homenews/senate/5720386-thune-trump-federal-elections/)
-- **Trump: If states can't run elections 'honestly,' then 'somebody else should take over'**: [Link](https://www.cnbc.com/2026/02/03/trump-election-government-states.html)
-
-
-### instituto - lanús (N/A, 03/02/2026 21:34 Lima)
-
-- **Cuándo juegan Instituto vs. Lanús por el Torneo Apertura: equipo, fecha, hora y TV en vivo**: [Link](https://espndeportes.espn.com/futbol/argentina/nota/_/id/16265493/instituto-vs-lanus-torneo-apertura-equipo-fecha-3-hora-tv-en-vivo)
-- **Video: el gol del hijo de Gallardo para el empate de Instituto ante Lanús**: [Link](https://www.ole.com.ar/instituto/matias-gallardo-gol-instituto-lanus-marcelo-gallardo_0_ehNNnbGycg.html)
-- **Instituto vs Lanús: Resultado EN VIVO, minuto a minuto y goles de la Liga Profesional**: [Link](https://www.365scores.com/es/news/instituto-vs-lanus-resultado-vivo-goles/)
-
-
-### tarjeta roja (N/A, 03/02/2026 15:47 Lima)
-
-- **Giorgian De Arrascaeta y Filipe Luís comentaron la insólita expulsión de Jorge Carrascal en Flamengo**: [Link](https://www.espn.com.ar/futbol/brasil/nota/_/id/16265276/giorgian-de-arrascaeta-filipe-luis-comentaron-insolita-expulsion-jorge-carrascal-flamengo-corinthians)
-- **André Carrillo suma un nuevo título a sus vitrinas: se proclamó campeón de la Supercopa de Brasil con Corinthians**: [Link](https://www.infobae.com/peru/deportes/2026/02/01/andre-carrillo-suma-un-nuevo-titulo-a-sus-vitrinas-se-proclamo-campeon-de-la-supercopa-de-brasil-con-corinthians/)
-- **¿Indirecta a Flamengo? El curioso comentario de André Carrillo tras ganar la Supercopa de Brasil**: [Link](https://depor.com/futbol-peruano/peruanos-en-el-mundo/andre-carrillo-y-su-curioso-comentario-tras-titulo-de-la-supercopa-de-brasil-con-corinthians-noticia/)
 
 
