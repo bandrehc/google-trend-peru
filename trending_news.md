@@ -1,3 +1,66 @@
+### mazatlán - guadalajara (N/A, 07/02/2026 00:07 Lima)
+
+- **Pronóstico Mazatlan FC Chivas - Liga MX 06/02/26**: [Link](https://www.sportytrader.com/es/pronosticos/monarcas-morelia-chivas-324691/)
+- **⚽ ¡Viernes botanero! Te decimos a qué HORA y en DÓNDE VER el Mazatlán vs Chivas de la Liga MX ⚓🆚🐐**: [Link](https://www.facebook.com/MilenioDiario/posts/-viernes-botanerote-decimos-a-qu%C3%A9-hora-y-en-d%C3%B3nde-ver-el-mazatl%C3%A1n-vs-chivas-de-l/1380502967440504/)
+- **¡GOL DE PENAL DE La Hormiga González ! | Mazatlán 0 - 2 Chivas | J5 | CL 2026 | TV Azteca**: [Link](https://www.tvazteca.com/aztecadeportes/gol-penal-la-hormiga-gonzalez-mazatlan-0-2-chivas-j5-cl-2026-tv-azteca/)
+
+
+### kick (N/A, 07/02/2026 00:07 Lima)
+
+- **Perfect North Slopes hosts annual Big Air competition as Olympics kick off**: [Link](https://www.wlwt.com/article/perfect-north-slopes-annual-big-air-competition-olympics/70274717)
+- **Training like a winter Olympian: Technology at Doylestown ski, snowboard training school helps athletes improve skills**: [Link](https://www.wfmz.com/news/area/southeastern-pa/central-bucks-county/training-like-a-winter-olympian-technology-at-doylestown-ski-snowboard-training-school-helps-athletes-improve/article_a9b8ad22-8a40-48d2-9412-9cf780de4cf3.html)
+- **Olympic inspiration on local ski slopes**: [Link](https://www.2822news.com/news/olympic-inspiration-on-local-ski-slopes/)
+
+
+### tijuana - puebla (N/A, 07/02/2026 00:07 Lima)
+
+- **Liga MX: Tijuana se enfrentará ante Puebla por la fecha 5**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-tijuana-se-enfrentara-ante-puebla-por-la-fecha-5-noticia-1674604)
+- **⚽ ¡Ya casi! Checa a qué HORA y CÓMO VER EN VIVO el Tijuana vs Puebla de la Liga MX 🐶🆚🎽**: [Link](https://www.facebook.com/MilenioDiario/posts/-ya-casicheca-a-qu%C3%A9-hora-y-c%C3%B3mo-ver-en-vivo-el-tijuana-vs-puebla-de-la-liga-mx-/1380625467428254/)
+- **Xolos invictos tras cuatro jornadas y en 8vo lugar de la tabla**: [Link](https://ksdy50.com/xolos-invictos-tras-cuatro-jornadas-y-en-8vo-lugar-de-la-tabla/)
+
+
+### williams riveros (N/A, 07/02/2026 00:07 Lima)
+
+- **Universitario fue notificado: Williams Riveros desaprobó examen de nacionalización**: [Link](https://depor.com/futbol-peruano/descentralizado/universitario-williams-riveros-habria-aprobado-examen-de-nacionalizacion-pero-no-fue-notificado-al-club-y-lo-inscribieron-como-extranjero-liga-1-2026-noticia/)
+- **Álvaro Barco aclara el caso Riveros y respalda cupo de extranjeros**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/alvaro-barco-aclara-el-caso-riveros-y-respalda-cupo-de-extranjeros-ultimas-noticia/)
+- **¿Williams Riveros habría aprobado examen de nacionalización?**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/williams-riveros-habria-aprobado-examen-nacionalizacion-n452612)
+
+
+### damiano david (N/A, 07/02/2026 00:07 Lima)
+
+- **Dove Cameron Details ‘Ridiculous’ Way She & Damiano David Started Dating**: [Link](https://www.iheart.com/content/2026-02-05-dove-cameron-details-ridiculous-way-she-damiano-david-started-dating/)
+- **Dove Cameron & Avan Jogia Promise Intense Twists In ‘Pressure Cooker’ Series ’56 Days’**: [Link](https://www.accessonline.com/videos/dove-cameron-avan-jogia-promise-intense-twists-in-pressure-cooker-series-56-days)
+- **Dove Cameron Reveals How She Met Fiance Damiano David: 'It Sounds Like Fan Fiction'**: [Link](https://www.justjared.com/photo-gallery/5276098/dove-cameron-on-how-she-met-damiano-david-04/)
+
+
+### alex turner (N/A, 07/02/2026 00:07 Lima)
+
+- **Yo Soy castings 2026: ¡Pasó de ser solo un fan que toca guitarra en su casa, al escenario!**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-castings-2026-paso-de-ser-solo-un-fan-que-toca-guitarra-en-su-casa-al-escenario_20260127/)
+- **Yo Soy castings 2026: ¡Arturo vuelve por su revancha y enciende la batalla de Alex Turner!**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-castings-2026-arturo-vuelve-por-su-revancha-y-enciende-la-batalla-de-alex-turner_20260204/)
+- **Yo Soy castings 2026: ¡Oliver pausó su carrera para cuidar la voz y deslumbró como Alex Turner!**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-castings-2026-oliver-pauso-su-carrera-para-cuidar-la-voz-y-deslumbro-como-alex-turner_20260203/)
+
+
+### natalia lafourcade (N/A, 07/02/2026 00:07 Lima)
+
+- **Bad Bunny, Gloria Estefan, Ca7riel & Paco Amoroso, y más ganadores latinos del Grammy 2026**: [Link](https://www.billboard.com/espanol/musica/grammy-2026-ganadores-latinos-1236168693/)
+- **🇲🇽🎤 Natalia Lafourcade gana el Grammy a Mejor Álbum Pop Latino por 'Cancionera' La cantante mexicana Natalia Lafourcade se llevó este domingo el Grammy a Mejor Álbum Pop Latino con su décimo proyecto de estudio, 'Cancionera'. La artista se impus**: [Link](https://www.facebook.com/MilenioDiario/photos/-natalia-lafourcade-gana-el-grammy-a-mejor-%C3%A1lbum-pop-latino-por-cancionerala-can/1375862481237886/)
+- **NATALIA LAFOURCADE recibe GRAMMY por su disco "Cancionera"**: [Link](https://www.cmtv.com.ar/noticias/noticia_completa.php?bnid=168&nid=34633&artista=Natalia_LaFourcade&titulo=NATALIA_LAFOURCADE_recibe_GRAMMY_por_su_disco_'Cancionera')
+
+
+### chappell roan (N/A, 07/02/2026 00:07 Lima)
+
+- **The Grammys Take Naked to Another Level**: [Link](https://www.nytimes.com/2026/02/01/style/grammys-chappell-roan-naked-dress.html)
+- **Chappell Roan 'Giggling' Over Reaction to Her Sheer Grammy Dress**: [Link](https://www.billboard.com/music/awards/chappell-roan-grammy-outfit-reaction-1236171289/)
+- **The Secret to Chappell Roan's Nipple Covers Was Gum Wrappers and Power Mesh**: [Link](https://www.allure.com/story/chappell-roan-nipple-prosthetics-grammys-how-to)
+
+
+### carlos alvarez (N/A, 07/02/2026 00:07 Lima)
+
+- **Elecciones 2026: el candidato presidencial Carlos Álvarez anunció que continuará en la contienda electoral**: [Link](https://rpp.pe/politica/elecciones/elecciones-2026-candidato-presidencial-carlos-alvarez-anuncio-que-continuara-en-la-contienda-electoral-noticia-1674808)
+- **País para Todos asegura que Carlos Álvarez no renunciará y evaluará decisión tras informe interno**: [Link](https://canaln.pe/actualidad/carlos-alvarez-no-va-renunciar-dice-pais-todos-n490125)
+- **Carlos Álvarez: La historia de la tensión en País para Todos tras cuestionamientos por el mal uso de la franja electoral**: [Link](https://elcomercio.pe/politica/elecciones/carlos-alvarez-crece-tension-e-incertidumbre-en-partido-tras-advertencia-de-candidato-por-caso-de-franja-electoral-tlcnota-noticia/)
+
+
 ### heat - celtics (N/A, 06/02/2026 21:31 Lima)
 
 - **How to Watch Heat vs Celtics: Live Stream NBA, TV Channel**: [Link](https://www.newsweek.com/how-to-watch-heat-vs-celtics-live-stream-nba-tv-channel-2-11479571)
@@ -962,68 +1025,5 @@ Sin noticias relacionadas disponibles.
 - **¿Por qué ha caído en picado el precio del oro y la plata?**: [Link](https://es.finance.yahoo.com/noticias/ca%C3%ADdo-picado-precio-oro-plata-125211559.html)
 - **Guía sobre el auge y desplome del oro y la plata**: [Link](https://peru21.pe/economia/guia-sobre-el-auge-y-desplome-del-oro-y-la-plata/)
 - **Ganancias de un año desaparecen: plata y oro amplían pérdidas tras desplome histórico de metales**: [Link](https://gestion.pe/mundo/internacional/oro-y-plata-amplian-perdidas-tras-un-desplome-historico-de-los-metales-noticia/)
-
-
-### lds church (N/A, 03/02/2026 03:47 Lima)
-
-- **Utah Rumor: Is The LDS Church Looking At A Drastic Change?**: [Link](https://catcountryutah.com/utah-rumor-is-the-lds-church-looking-at-a-drastic-change/)
-- **Elder and Sister Kearon Invite Young Adults to Put Faith in the Foreground of Their Lives**: [Link](https://newsroom.churchofjesuschrist.org/article/elder-and-sister-kearon-invite-young-adults-to-put-faith-in-the-foreground-of-their-lives)
-- **Elder Kearon’s plea to young adults: Learn to ‘sing the song of redeeming love’**: [Link](https://www.deseret.com/faith/2026/02/02/elder-patrick-kearon-young-adult-devotional-church-of-jesus-christ/)
-
-
-### bet 365 (N/A, 03/02/2026 03:47 Lima)
-
-- **UFC: Volkanovski vuelve a derrotar a Diego Lopes y retiene el título de peso pluma**: [Link](https://trome.com/deportes/ufc/ufc-325-alexander-volkanovski-vs-diego-lopes-en-vivo-via-paramount-ver-online-straming-en-directo-desde-sidney-video-resumen-resultados-hightlights-noticia/)
-- **¿Quién ganó la pelea UFC 325: Alexander Volkanovski vs. Diego Lopes por la estelar? Resultados de la cartelera**: [Link](https://gestion.pe/mix/sports/quien-gano-la-pelea-ufc-325-alexander-volkanovski-vs-diego-lopes-en-vivo-hoy-por-la-estelar-resultados-de-la-cartelera-en-directo-noticia/)
-- **UFC 325 en vivo: ¿A qué hora inicia, cartelera y dónde ver el Volkanovski vs Lopes 2 por el título de peso pluma?**: [Link](https://rpp.pe/lucha/ufc/ufc-325-volkanovski-vs-lopes-2-en-vivo-fecha-horario-cartelera-y-donde-ver-en-usa-sudamerica-y-espana-por-titulo-via-paramount-plus-online-noticia-1673823)
-
-
-### hernando de soto (N/A, 03/02/2026 03:47 Lima)
-
-- **5 revelaciones de los millones de archivos Epstein que acaban de salir a la luz**: [Link](https://www.bbc.com/mundo/articles/c20gd8xq592o)
-- **¿Qué revelan 3 millones de nuevos documentos sobre los vínculos de Trump con Jeffrey Epstein?**: [Link](https://cnnespanol.cnn.com/2026/01/31/eeuu/nuevos-documentos-vinculos-trump-epstein-trax)
-- **Justicia EE.UU. da por concluida revisión del caso Epstein**: [Link](https://www.dw.com/es/departamento-de-justicia-eeuu-da-por-concluida-revisi%C3%B3n-del-caso-epstein/a-75755450)
-
-
-### 2 de mayo (N/A, 03/02/2026 00:16 Lima)
-
-- **Alianza Lima vs 2 de Mayo EN VIVO: ¿a qué hora juegan y dónde ver la fase 1 de la Copa Libertadores?**: [Link](https://rpp.pe/futbol/copa-libertadores/alianza-lima-vs-2-de-mayo-en-vivo-a-que-hora-juegan-en-paraguay-y-como-ver-ida-fase-1-copa-libertadores-2026-via-espn-partidos-de-hoy-noticia-1674068)
-- **Alianza pone a la venta las entradas para el duelo ante 2 de Mayo por la Fase 1 de la Libertadores**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/alianza-lima-pone-a-la-venta-las-entradas-para-el-duelo-ante-sport-2-de-mayo-por-la-fase-1-de-la-libertadores-ultimas-noticia/)
-- **Presidente de 2 de mayo engrandece la inversión de Alianza Lima y la compara con la de su equipo: "Mi presupuesto es de 80 mil dólares"**: [Link](https://larepublica.pe/deportes/2026/02/02/presidente-de-2-de-mayo-engrandece-la-inversion-de-alianza-lima-y-la-compara-con-la-de-su-equipo-mi-presupuesto-es-de-80-mil-dolares-126970)
-
-
-### cotizacion del dolar hoy (N/A, 03/02/2026 00:16 Lima)
-
-- **Sol perdió contra dólar en última sesión de enero**: [Link](https://peru21.pe/economia/sol-perdio-contra-dolar-en-ultima-sesion-de-enero/)
-- **Precio del dólar en Perú hoy, sábado 31 de enero: compra y venta del día**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-a-cuanto-esta-el-dolar-y-tipo-de-cambio-este-sabado-31-de-enero-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
-- **El dólar inicia febrero con leve retroceso en el mercado cambiario**: [Link](https://caretas.pe/economia/el-dolar-inicia-febrero-con-leve-retroceso-en-el-mercado-cambiario/)
-
-
-### epstein files (N/A, 03/02/2026 00:16 Lima)
-
-- **The Government Published Dozens of Nude Photos in the Epstein Files**: [Link](https://www.nytimes.com/2026/02/01/us/nude-photos-epstein-files.html)
-- **Department of Justice Publishes 3.5 Million Responsive Pages in Compliance with the Epstein Files Transparency Act**: [Link](https://www.justice.gov/opa/video/department-justice-publishes-35-million-responsive-pages-compliance-epstein-files)
-- **Partial government shutdown to continue until at least Tuesday - live updates | CNN Politics**: [Link](https://www.cnn.com/politics/live-news/trump-administration-news-02-02-26)
-
-
-### sunat (N/A, 03/02/2026 00:16 Lima)
-
-- **Puerto de Chancay mueve carga china con destino a Chile y Colombia, perfilándose como hub portuario**: [Link](https://rpp.pe/economia/economia/puerto-de-chancay-mueve-carga-china-con-destino-a-chile-y-colombia-perfilandose-como-hub-portuario-noticia-1674095)
-- **Puerto de Chancay impulsa comercio exterior peruano**: [Link](https://americaretail-malls.com/paises/peru/puerto-de-chancay-impulsa-comercio-exterior-peruano/)
-- **Sunat recaudó más de S/ 1,037 millones en el puerto de Chancay durante 2025**: [Link](https://energiminas.com/2026/02/02/sunat-recaudo-mas-de-s-1037-millones-en-el-puerto-de-chancay-durante-2025/)
-
-
-### 76ers - clippers (N/A, 03/02/2026 00:16 Lima)
-
-- **76ers vs. Clippers Picks & Odds: February 2, 2026**: [Link](https://www.oddsshark.com/nba/76ers-clippers-picks-odds-february-2-2026)
-- **Watch Clippers vs Sixers NBA game streaming live tonight; Channel, time, odds**: [Link](https://www.oregonlive.com/tv/2026/02/watch-clippers-vs-sixers-nba-game-streaming-live-tonight-channel-time-odds.html)
-- **Is Joel Embiid playing tonight vs the Los Angeles Clippers? Latest update on the Philadelphia 76ers star'**: [Link](https://timesofindia.indiatimes.com/sports/nba/top-stories/is-joel-embiid-playing-tonight-vs-the-los-angeles-clippers-latest-update-on-the-philadelphia-76ers-stars-injury-report-february-2-2026/articleshow/127873379.cms)
-
-
-### grizzlies - timberwolves (N/A, 03/02/2026 00:16 Lima)
-
-- **Memphis finished strong and closed out a 137-128 win …**: [Link](https://uk.sports.yahoo.com/news/memphis-finished-strong-closed-137-033857469.html)
-- **Wolves Pics: Wolves Fall To Grizzlies, 137‑128 | 02.02.26**: [Link](https://www.nba.com/timberwolves/photos/wolves-pics-wolves-fall-to-grizzlies-137-128-02-02-26)
-- **Underdog promo code NYPOST: Play $5, get $75 in fantasy bonus entries for Timberwolves vs. Grizzlies**: [Link](https://nypost.com/2026/02/02/betting/underdog-promo-code-nypost-play-5-get-75-in-fantasy-bonus-entries-for-timberwolves-vs-grizzlies/)
 
 
