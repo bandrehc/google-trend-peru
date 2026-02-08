@@ -1,3 +1,31 @@
+### spurs - mavericks (N/A, 08/02/2026 00:25 Lima)
+
+- **Wembanyama And Flagg Star As Spurs Host Mavericks In Rivalry Rematch**: [Link](https://evrimagaci.org/gpt/wembanyama-and-flagg-star-as-spurs-host-mavericks-in-rivalry-rematch-527535)
+- **Wemby Outduels Cooper Flagg as Stephon Castle Makes History to Wow NBA Fans in Spurs' Win vs. Mavs**: [Link](https://bleacherreport.com/articles/25391987-wemby-outduels-cooper-flagg-stephon-castle-makes-history-wow-nba-fans-spurs-win-vs-mavs)
+- **Victor Wembanyama, Post‑Game vs Dallas Mavericks | 2/7/26**: [Link](https://www.nba.com/spurs/videos/victor-wembanyama-post-game-vs-dallas-mavericks-2-7-26)
+
+
+### vinicius oliveira (N/A, 08/02/2026 00:25 Lima)
+
+- **Main Card Results | UFC Fight Night: Bautista vs Oliveira**: [Link](https://www.ufc.com/news/ufc-fight-night-bautista-vs-oliveira-results-highlights-main-card-winners-interviews)
+- **LIVE! Watch UFC Vegas 113 Post-Fight Presser Here**: [Link](https://sports.yahoo.com/articles/live-watch-ufc-vegas-113-030500060.html)
+- **UFC Fight Night on Paramount+: Where to watch Mario Bautista vs. Vinicius Oliveira and more things to know**: [Link](https://www.cbssports.com/ufc/news/ufc-fight-night-mario-bautista-vinicius-oliveira-where-to-watch-stream-paramount/)
+
+
+### mario bautista (N/A, 08/02/2026 00:25 Lima)
+
+- **5 Peleadores A Impactar En UFC Vegas 113**: [Link](https://www.ufcespanol.com/news/5-peleadores-impactar-en-ufc-vegas-113)
+- **Mario Bautista y Vinicius Oliveira estrenan el META Apex en la primera Fight Night del 2026 en UFC**: [Link](https://www.mundodeportivo.com/ufc/20260207/1002616032/mario-bautista-vinicius-oliveira-estrenan-meta-apex-primera-fight-night-2026-ufc.html)
+- **👊 ¡Hay tiro! Conoce el HORARIO y la SEÑAL para seguir la batalla de Mario Bautista vs Vinicius Oliveira 🇺🇸🇧🇷**: [Link](https://www.facebook.com/MilenioDiario/posts/-hay-tiroconoce-el-horario-y-la-se%C3%B1al-para-seguir-la-batalla-de-mario-bautista-v/1381453134012154/)
+
+
+### liga (N/A, 08/02/2026 00:25 Lima)
+
+- **Marc Bernal delighted at scoring first Barcelona goal in Mallorca win**: [Link](https://www.football-espana.net/2026/02/08/marc-bernal-first-barcelona-goal)
+- **Yamal stunner helps Barca move four points clear**: [Link](https://www.beinsports.com/en-nz/football/laliga/articles-video/barcelona-3-0-mallorca-yamal-stunner-helps-laliga-leaders-move-four-points-clear-2026-02-07)
+- **Casado: The Victory Wasn't Easy, and Bernal's Joy Was a Touching Moment for Everyone**: [Link](https://www.ysscores.com/en/news/13906460/Casado:-The-Victory-Wasn't-Easy,-and-Bernal's-Joy-Was-a-Touching-Moment-for-Everyone)
+
+
 ### alianza lima vs comerciantes unidos (N/A, 07/02/2026 22:15 Lima)
 
 - **Canales y horarios del Alianza Lima vs. Comerciantes Unidos, por la Liga 1**: [Link](https://depor.com/futbol-peruano/descentralizado/alianza-lima-vs-comerciantes-unidos-en-vivo-fecha-horarios-canales-de-tv-y-donde-ver-transmision-por-liga-1-max-movistar-tv-directv-noticia/)
@@ -998,33 +1026,5 @@ Sin noticias relacionadas disponibles.
 - **Hoy es el Día Mundial contra el Cáncer: factores de riesgo, consejos y por qué se conmemora el 4 de febrero**: [Link](https://elcomercio.pe/respuestas/efemerides/dia-mundial-contra-el-cancer-por-que-se-conmemora-cada-4-de-febrero-historia-tdpe-noticia/)
 - **El Peritoneal Cancer Institute estima 7.000 nuevos casos anuales de este tumor en España**: [Link](https://www.infobae.com/america/agencias/2026/02/04/el-peritoneal-cancer-institute-estima-7000-nuevos-casos-anuales-de-este-tumor-en-espana/)
 - **Un día para recordar la necesidad de un esfuerzo conjunto de toda la sociedad**: [Link](https://www.corresponsables.com/opinion/un-dia-para-recordar-la-necesidad-de-un-esfuerzo-conjunto-de-toda-la-sociedad/)
-
-
-### warriors (N/A, 04/02/2026 11:57 Lima)
-
-- **I don't know that it ends at 13 and a half, but if it …**: [Link](https://www.hoopshype.com/story/sports/nba/rumors/2026/02/04/i-dont-know-that-it-ends-at-13-and-a-half-but-if-it/88506279007/)
-- **League sources say that Milwaukee has shown a …**: [Link](https://uk.sports.yahoo.com/news/league-sources-milwaukee-shown-031657138.html)
-- **Latest Report Puts Warriors on Brink of Losing Giannis Sweepstakes**: [Link](https://www.avanca.com/bbebaaushop/nba/warriors/onsi/news/latest-report-puts-warriors-on-brink-of-losing-giannis-sweepstakes-01kgk6m9hmc8)
-
-
-### asteroide (N/A, 04/02/2026 08:12 Lima)
-
-- **Un asteroide dejó de ser una amenaza para la Tierra. El nuevo problema es lo que podría hacerle a la Luna: una posible colisión podría lanzar miles de fragmentos lunares hacia nuestro planeta**: [Link](https://es.gizmodo.com/asteroide-dejo-de-ser-una-amenaza-para-la-tierra-el-nuevo-problema-es-lo-que-podria-hacerle-a-la-luna-una-posible-colision-podria-lanzar-miles-de-fragmentos-lunares-hacia-nuestro-planeta-2000217295)
-- **Los astrónomos alertan del mayor impacto jamás observado en la Luna**: [Link](https://www.eltiempo.es/noticias/impacto-lunar-asteroide)
-- **¿Peligro en el espacio? La NASA aclara si el asteroide 2024 YR4 impactará la Luna**: [Link](https://abcnoticias.mx/global/2026/2/3/peligro-en-el-espacio-la-nasa-aclara-si-el-asteroide-2024-yr4-impactara-la-luna-272640.html)
-
-
-### epstein files (N/A, 04/02/2026 03:51 Lima)
-
-- **The Government Published Dozens of Nude Photos in the Epstein Files**: [Link](https://www.nytimes.com/2026/02/01/us/nude-photos-epstein-files.html)
-- **Department of Justice Publishes 3.5 Million Responsive Pages in Compliance with the Epstein Files Transparency Act**: [Link](https://www.justice.gov/opa/video/department-justice-publishes-35-million-responsive-pages-compliance-epstein-files)
-- **Thousands of Epstein documents taken down after victims identified**: [Link](https://www.bbc.com/news/articles/cn0k65pnxjxo)
-
-
-### san diego fc (N/A, 04/02/2026 00:11 Lima)
-
-- **San Diego FC embrace Concacaf Champions Cup debut**: [Link](https://www.mlssoccer.com/news/san-diego-fc-embrace-challenge-of-concacaf-champions-cup-debut)
-- **The Unfinished Business: Pumas and the Longest Drought Among the Giants in Concacaf**: [Link](https://www.soyfutbol.com/en/news/the-unfinished-business-pumas-and-the-longest-drought-among-the-giants-in-concacaf-20260203-0061.html)
-- **SDFC to build on inaugural year success in fast-approaching second season**: [Link](https://thedailyaztec.com/125901/sports/flow-state-sdfc-looking-to-build-on-their-inaugural-year-success-in-a-fast-approaching-second-season/)
 
 
