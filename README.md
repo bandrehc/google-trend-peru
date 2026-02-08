@@ -1,3 +1,57 @@
+### alavés - getafe (N/A, 08/02/2026 08:02 Lima)
+
+- **Alavés - Getafe, en directo: LaLiga EA Sports, hoy en vivo**: [Link](https://as.com/futbol/primera/alaves-getafe-en-directo-laliga-ea-sports-hoy-en-vivo-f202602-d/)
+- **Pronóstico Deportivo Alavés Getafe - LaLiga 08/02/26**: [Link](https://www.sportytrader.com/es/pronosticos/deportivo-alaves-getafe-325297/)
+- **Alineaciones Alavés - Getafe: Onces confirmados de Alavés y Getafe en la jornada 23 de LaLiga EA Sports**: [Link](https://www.estadiodeportivo.com/futbol/primera-division/alineaciones-alaves-getafe-alineacion-probable-alaves-getafe-jornada-laliga-sports-20260208-528962.html)
+
+
+### brighton (N/A, 08/02/2026 08:02 Lima)
+
+- **Brighton vs Crystal Palace: Get £30 in free bets when you stake £10 on football with Tote**: [Link](https://www.thesun.co.uk/sport/38116470/brighton-crystal-palace-tote-free-bets-offer-join/)
+- **Albion told to go the distance as they bid to beat Palace**: [Link](https://www.theargus.co.uk/sport/25834328.brightons-fabian-hurzeler-need-focus-clock-ticks/)
+- **Sunday Football Tips: Jimmy The Punt's best bets including 4/1 booking tip from the South Coast**: [Link](https://betting.betfair.com/football/premier-league/sunday-football-tips-jimmy-the-punts-best-bets-including-4-1-booking-tip-from-the-south-coast-060226-1320.html)
+
+
+### bologna vs (N/A, 08/02/2026 08:02 Lima)
+
+- **Serie A: Bologna tiene la necesidad de cortar su racha negativa frente a Parma**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-bologna-tiene-la-necesidad-de-cortar-su-racha-negativa-frente-a-parma-noticia-1674847)
+- **Bologna vs Parma pronostico y comparación de cuotas 08.02.2026**: [Link](https://www.livetipsportal.com/es/pronosticos-apuestas-deportivas/bologna-vs-parma-serie-a-11129295/)
+- **Preview: Bologna vs Parma - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/bologna/preview/bologna-vs-parma-prediction-team-news-lineups_591529.html)
+
+
+### bologna (N/A, 08/02/2026 08:02 Lima)
+
+- **Bologna-Parma, ancora polemica Var: l'arbitro cambia idea e caccia il rosso dopo soli 20' a Pobega**: [Link](https://sport.virgilio.it/bologna-parma-ancora-polemica-var-l-arbitro-cambia-idea-e-caccia-il-rosso-dopo-soli-20-a-pobega-942379)
+- **Serie A: in campo Bologna-Parma 0-0 DIRETTA**: [Link](https://www.ansa.it/sito/notizie/sport/calcio/2026/02/08/serie-a-in-campo-bologna-parma-0-0-diretta_2f91e3ee-946b-45d3-af5d-5d793f78355b.html)
+- **Bologna-Parma, le formazioni ufficiali: Italiano con Dallinga, Cuesta punta su Oristanio**: [Link](https://www.gazzetta.it/calcio/fantanews/08-02-2026/bologna-parma-le-formazioni-ufficiali-tutti-i-titolari.shtml)
+
+
+### utrecht - feyenoord (N/A, 08/02/2026 08:02 Lima)
+
+- **Lange rijen bij Galgenwaard door storing, fans missen begin van de wedstrijd**: [Link](https://www.rtvutrecht.nl/nieuws/4003187/lange-rijen-bij-galgenwaard-door-storing-toegangspoortjes)
+- **HISTORIE | Minteh zet Van de Maarel te kijk**: [Link](https://www.fr-fans.nl/nieuws/76149/historie-minteh-zet-van-de-maarel-te-kijk)
+- **Van Persie kiest voor opmerkelijke vervanger voor Ueda bij Feyenoord**: [Link](https://nos.nl/regio/zh-rijnmond/artikel/724202-van-persie-kiest-voor-opmerkelijke-vervanger-voor-ueda-bij-feyenoord)
+
+
+### canjear códigos free fire (N/A, 08/02/2026 08:02 Lima)
+
+- **Códigos Free Fire gratis para hoy 7 de febrero del 2026: recompensas y canje free (Actualizado)**: [Link](https://enlinea.pe/codigos-free-fire-2026-recompensas-actualizado-febrero/)
+
+
+### liverpool vs manchester city (N/A, 08/02/2026 08:02 Lima)
+
+- **Liverpool v City is no longer the Premier League’s big show: how have the mighty fallen? | Jonathan Wilson**: [Link](https://www.theguardian.com/football/2026/feb/07/manchester-city-liverpool-is-no-longer-the-premier-leagues-big-show-how-have-the-mighty-fallen)
+- **Liverpool vs Man City predictions: Chris Sutton on Premier League game**: [Link](https://www.bbc.com/sport/football/articles/c4g5n8gn89no?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D)
+- **Training: Gearing up for Anfield!**: [Link](https://www.mancity.com/news/mens/manchester-city-training-gallery-february-7-2026-63906090)
+
+
+### san marcos (N/A, 08/02/2026 08:02 Lima)
+
+- **San Marcos y la OEA subrayan el rol de la academia en la integración continental**: [Link](https://www.unmsm.edu.pe/noticias-y-eventos/noticias/noticia-detalle/san-marcos-y-la-oea-subrayan-el-rol-de-la-academia-en-la-integracion-continental)
+- **KZSM Awards celebrate San Marcos music**: [Link](https://www.sanmarcosrecord.com/article/32681,kzsm-awards-celebrate-san-marcos-music)
+- **San Marcos residents speak out on proposed data center**: [Link](https://communityimpact.com/austin/san-marcos-buda-kyle/government/2026/02/05/san-marcos-residents-speak-out-on-proposed-data-center/)
+
+
 ### bet365 nba (N/A, 08/02/2026 03:39 Lima)
 
 - **Use bet365 bonus code CBSBET365 to get $200 bonus bets by targeting Heat-Celtics, Pistons-Knicks, Bucks-Pacers**: [Link](https://www.cbssports.com/nba/news/use-bet365-bonus-code-cbsbet365-get-200-bonus-bets-heat-celtics-pistons-knicks-bucks-pacers/)
@@ -971,60 +1025,5 @@ Sin noticias relacionadas disponibles.
 - **Bayer Leverkusen goleó al St. Pauli y es semifinalista de la Copa de Alemania**: [Link](https://www.espn.com.ar/futbol/alemania/nota/_/id/16261706/bayer-leverkusen-vs-st-pauli-copa-de-alemania-cuartos-de-final-equipo-fecha-hora-tv-en-vivo)
 - **Cuándo juegan Bayer Leverkusen vs. St. Pauli por la Copa de Alemania: equipo, fecha, hora y TV en vivo**: [Link](https://espndeportes.espn.com/futbol/alemania/nota/_/id/16261706/bayer-leverkusen-vs-st-pauli-copa-de-alemania-cuartos-de-final-equipo-fecha-hora-tv-en-vivo)
 - **👴 Pura experiencia para semifinales: la Werkself, más veterana en años**: [Link](https://onefootball.com/en/news/pura-experiencia-para-semifinales-la-werkself-mas-veterana-en-anos-42353847)
-
-
-### aberdeen - celtic f. c. (N/A, 04/02/2026 15:41 Lima)
-
-- **Peter Leven faces squad nightmare as Aberdeen forced to ring changes for Celtic clash**: [Link](https://www.67hailhail.com/match/peter-leven-faces-squad-nightmare-as-aberdeen-forced-to-ring-changes-for-celtic-clash/)
-- **Dundee boss Steven Pressley defends Dens Park pitch by claiming it's BEST in Premiership despite call off due to rain**: [Link](https://www.thescottishsun.co.uk/sport/15885185/dundee-steven-pressley-dens-park-pitch-postponed/)
-- **Dundee vs Motherwell Postponed | 04/02/26**: [Link](https://dundeefc.co.uk/news/dundee-vs-motherwell-postponed-04-02-26/)
-
-
-### toulouse vs (N/A, 04/02/2026 15:41 Lima)
-
-- **Toulouse-Amiens en direct**: [Link](https://www.sports.fr/football/coupe-de-france/toulouse-amiens-en-direct-988073.html)
-- **FOOTBALL (Coupe de France) : Omar Daf veut « sortir un grand match à Toulouse »**: [Link](https://gazettesports.fr/2026/02/03/football-coupe-de-france-omar-daf-veut-sortir-un-grand-match-a-toulouse/)
-- **ENTRETIEN. TFC-Amiens : "Je sens une responsabilité…" Julian Vignolo veut "respecter l’histoire argentine" de Toulouse**: [Link](https://www.ladepeche.fr/2026/02/04/entretien-tfc-amiens-je-sens-une-responsabilite-julian-vignolo-veut-respecter-lhistoire-argentine-de-toulouse-13205267.php)
-
-
-### lorient vs (N/A, 04/02/2026 15:41 Lima)
-
-- **Paris FC Faces Lorient with Full Squad of New Signings**: [Link](https://www.el-balad.com/6842894)
-- **Lorient’s Goalkeeper Kamara: Unveiling the Mystery Behind His ‘Gift’ Before Paris FC Clash**: [Link](https://www.filmogaz.com/133498)
-
-
-### psv - heerenveen (N/A, 04/02/2026 15:41 Lima)
-
-- **Live KNVB-beker | PSV in sterkste opstelling begonnen tegen sc Heerenveen**: [Link](https://www.nu.nl/sport/6384900/live-knvb-beker-psv-in-sterkste-opstelling-begonnen-tegen-sc-heerenveen.html)
-- **LIVE | SC Heerenveen halverwege de eerste helft op achterstand in Eindhoven: 1-0**: [Link](https://lc.nl/sport/sc-heerenveen/live-sc-heerenveen-halverwege-de-eerste-helft-op-achterstand-in-eindhoven-1-0-48429757.html)
-- **Opstelling PSV: Man op de bank, Gasiorowski in basis en Boadu bij selectie**: [Link](https://www.vi.nl/nieuws/opstelling-psv-man-op-de-bank-gasiorowski-in-basis-en-boadu-bij-selectie)
-
-
-### lyon (N/A, 04/02/2026 15:41 Lima)
-
-- **Shopping : quoi de neuf à Lyon ?**: [Link](https://www.lyoncapitale.fr/conso/shopping-quoi-de-neuf-a-lyon-13)
-- **Bonsoir Lyon du mercredi 4 février 2026**: [Link](https://www.bfmtv.com/lyon/replay-emissions/bonsoir-lyon/video-bonsoir-lyon-du-mercredi-4-fevrier-2026_VN-202602040800.html)
-- **Toute l’actualité de ce mardi 3 février 2026 à Lyon**: [Link](https://www.lyondemain.fr/actualite-de-ce-mardi-3-fevrier-info-lyon-bd-jean-michel-aulas/)
-
-
-### lyon fc (N/A, 04/02/2026 15:41 Lima)
-
-- **Suivez OL Lyonnes - OM en direct**: [Link](https://www.olympique-et-lyonnais.com/suivez-ol-lyonnes-om-en-direct,390050.html)
-- **Le PFC et l'OLL au rendez-vous, la sensation Dijon**: [Link](https://www.fff.fr/article/16209-le-pfc-et-l-oll-au-rendez-vous-la-sensation-dijon.html)
-- **Football. Coupe de la Ligue : OL Lyonnes à deux victoires de s’envoler pour Abidjan**: [Link](https://www.leprogres.fr/sport/2026/02/03/coupe-de-la-ligue-ol-lyonnes-a-deux-victoires-de-s-envoler-pour-abidjan)
-
-
-### premios luces (N/A, 04/02/2026 11:57 Lima)
-
-- **Premios Luces 2026: conoce a los nominados, lista completa**: [Link](https://elcomercio.pe/luces/musica/premios-luces-2026-conoce-a-los-nominados-lista-completa-noticia/)
-- **Premios Luces 2026: Así se eligen a los nominados**: [Link](https://elcomercio.pe/luces/premios-luces-2026-asi-se-eligen-a-los-nominados-noticia/)
-- **Premios Luces 2026, Perú en el podio de futsal, y persiste la explotación laboral**: [Link](https://elcomercio.pe/opinion/columnistas/premios-luces-2026-peru-en-el-podio-de-futsal-y-persiste-la-explotacion-laboral-noticia/)
-
-
-### tren metro de lima (N/A, 04/02/2026 11:57 Lima)
-
-- **Metro de Lima: Linea Uno anuncia que el servicio se restableció luego de tres horas [VIDEO]**: [Link](https://rpp.pe/lima/actualidad/metro-de-lima-servicio-se-encuentra-interrumpido-desde-la-estacion-la-cultura-hasta-caja-de-agua-noticia-1674310)
-- **Línea 1 del Metro de Lima presenta retrasos por fallas técnicas: concesionaria emite comunicado**: [Link](https://gestion.pe/peru/linea-1-del-metro-de-lima-presenta-retrasos-por-fallas-tecnicas-concesionaria-emite-comunicado-noticia/)
-- **Línea 1 Metro de Lima pasajeros caminan por vías por avería**: [Link](https://www.americatv.com.pe/noticias/actualidad/linea-1-metro-lima-pasajeros-caminan-vias-averia-n515483)
 
 
