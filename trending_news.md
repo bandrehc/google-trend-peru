@@ -1,3 +1,17 @@
+### bet365 nba (N/A, 08/02/2026 03:39 Lima)
+
+- **Use bet365 bonus code CBSBET365 to get $200 bonus bets by targeting Heat-Celtics, Pistons-Knicks, Bucks-Pacers**: [Link](https://www.cbssports.com/nba/news/use-bet365-bonus-code-cbsbet365-get-200-bonus-bets-heat-celtics-pistons-knicks-bucks-pacers/)
+- **Bet365 Bonus Code WTOP365: Get $100 Bonus for Any Super Bowl LX Bet**: [Link](https://wtop.com/sports/2026/02/bet365-bonus-code-wtop365-get-100-bonus-for-any-super-bowl-lx-bet/)
+- **bet365 Bonus Code: Bet $5, Get $100 With Exclusive Promo for Big Game**: [Link](https://ftw.usatoday.com/story/sports/2026/02/07/bet365-bonus-code-100-bonus-bets-big-game-sunday/88376192007/)
+
+
+### tabla de posiciones liga 1 (N/A, 08/02/2026 03:39 Lima)
+
+- **Así se jugará la fecha 2 del Apertura de la Liga 1 2026**: [Link](https://www.espn.com.pe/futbol/peru/nota/_/id/16263598/programacion-de-la-fecha-2-del-apertura-liga-1-de-peru)
+- **Tabla de posiciones Liga 1 2026: resultados y partidos de la fecha 2 del Torneo Apertura**: [Link](https://libero.pe/futbol-peruano/liga-1/2026/02/06/tabla-de-posiciones-torneo-apertura-fecha-2-de-liga-1-peru-533544)
+- **Universitario y Alianza Lima buscan afianzar su liderazgo en Torneo Apertura**: [Link](https://andina.pe/agencia/noticia-universitario-y-alianza-lima-buscan-afianzar-su-liderazgo-torneo-apertura-1062126.aspx)
+
+
 ### spurs - mavericks (N/A, 08/02/2026 00:25 Lima)
 
 - **Wembanyama And Flagg Star As Spurs Host Mavericks In Rivalry Rematch**: [Link](https://evrimagaci.org/gpt/wembanyama-and-flagg-star-as-spurs-host-mavericks-in-rivalry-rematch-527535)
@@ -1012,19 +1026,5 @@ Sin noticias relacionadas disponibles.
 - **Metro de Lima: Linea Uno anuncia que el servicio se restableció luego de tres horas [VIDEO]**: [Link](https://rpp.pe/lima/actualidad/metro-de-lima-servicio-se-encuentra-interrumpido-desde-la-estacion-la-cultura-hasta-caja-de-agua-noticia-1674310)
 - **Línea 1 del Metro de Lima presenta retrasos por fallas técnicas: concesionaria emite comunicado**: [Link](https://gestion.pe/peru/linea-1-del-metro-de-lima-presenta-retrasos-por-fallas-tecnicas-concesionaria-emite-comunicado-noticia/)
 - **Línea 1 Metro de Lima pasajeros caminan por vías por avería**: [Link](https://www.americatv.com.pe/noticias/actualidad/linea-1-metro-lima-pasajeros-caminan-vias-averia-n515483)
-
-
-### cayó chatgpt (N/A, 04/02/2026 11:57 Lima)
-
-- **Caída de ChatGPT y API de OpenAI afecta a usuarios a nivel global**: [Link](https://andina.pe/agencia/noticia-caida-chatgpt-y-api-openai-afecta-a-usuarios-a-nivel-global-1061764.aspx)
-- **Chat GPT cae hoy 3 de Febrero 2026: Esto sabemos hasta el momento**: [Link](https://www.informabtl.com/chat-gpt-cae-hoy-3-de-febrero-2026-esto-sabemos-hasta-el-momento/)
-- **¡Se cayó Chat GPT!: usuarios reportan fallas de la IA este 3 de febrero**: [Link](https://www.cronica.com.mx/tendencias/2026/02/03/se-cayo-chat-gpt-usuarios-reportan-fallas-de-la-ia-este-3-de-febrero/)
-
-
-### dia mundial contra el cancer (N/A, 04/02/2026 11:57 Lima)
-
-- **Hoy es el Día Mundial contra el Cáncer: factores de riesgo, consejos y por qué se conmemora el 4 de febrero**: [Link](https://elcomercio.pe/respuestas/efemerides/dia-mundial-contra-el-cancer-por-que-se-conmemora-cada-4-de-febrero-historia-tdpe-noticia/)
-- **El Peritoneal Cancer Institute estima 7.000 nuevos casos anuales de este tumor en España**: [Link](https://www.infobae.com/america/agencias/2026/02/04/el-peritoneal-cancer-institute-estima-7000-nuevos-casos-anuales-de-este-tumor-en-espana/)
-- **Un día para recordar la necesidad de un esfuerzo conjunto de toda la sociedad**: [Link](https://www.corresponsables.com/opinion/un-dia-para-recordar-la-necesidad-de-un-esfuerzo-conjunto-de-toda-la-sociedad/)
 
 
