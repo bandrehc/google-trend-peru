@@ -1,3 +1,73 @@
+### alianza lima vs comerciantes unidos (N/A, 07/02/2026 22:15 Lima)
+
+- **Canales y horarios del Alianza Lima vs. Comerciantes Unidos, por la Liga 1**: [Link](https://depor.com/futbol-peruano/descentralizado/alianza-lima-vs-comerciantes-unidos-en-vivo-fecha-horarios-canales-de-tv-y-donde-ver-transmision-por-liga-1-max-movistar-tv-directv-noticia/)
+- **Alianza Lima vs Comerciantes Unidos EN VIVO: últimas noticias y previa del partido por la Liga 1**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/alianza-lima-vs-comerciantes-unidos-en-vivo-hoy-ver-partido-por-liga-1-torneo-apertura-lbposting-noticia/)
+- **¿Sin Paolo Guerrero? El once de Alianza Lima vs. Comerciantes Unidos que ya genera polémicas**: [Link](https://bolavip.com/pe/alianza-lima/sin-paolo-guerrero-el-once-de-alianza-lima-vs-comerciantes-unidos-que-ya-genera-polemicas)
+
+
+### diego romero (N/A, 07/02/2026 22:15 Lima)
+
+- **Diego Romero y su debut en Liverpool: caño, asistencia, golazo y un festejo particular**: [Link](https://www.espn.com.ar/futbol/uruguay/nota/_/id/16282647/diego-romero-liverpool-video-gol-asistencia-debut-apertura-2026)
+- **¿Quién será el campeón del Torneo Apertura: Nacional, Peñarol u otro? Lo que dijo la Inteligencia Artificial, con candidatos y pronósticos para el certamen**: [Link](https://www.elobservador.com.uy/futbol/quien-sera-el-campeon-del-torneo-apertura-nacional-penarol-u-otro-lo-que-dijo-la-inteligencia-artificial-candidatos-y-pronosticos-el-certamen-n6033629)
+- **EN JUEGO LA FECHA 1 DE LA LIGA AUF: PEÑAROL CONSIGUIÓ EL PRIMER TRIUNFO**: [Link](https://laoraldeportiva.com.uy/2026/02/08/se-fijaron-los-detalles-de-la-fecha-1-de-la-liga-auf/)
+
+
+### américa - monterrey (N/A, 07/02/2026 22:15 Lima)
+
+- **América vs Rayados: ¿cuáles bajas pesarán más?**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/16274419/america-vs-rayados-cuales-bajas-pesaran-mas-clausura-2026)
+- **Qué canal pasa América vs Monterrey hoy: dónde ver GRATIS y EN VIVO el partido de la Liga MX**: [Link](https://www.365scores.com/es/news/america-vs-monterrey-donde-ver-canales/)
+- **▷ ¿A qué hora es y en qué canales juegan América vs. Monterrey EN VIVO hoy por Clausura 2026 de Liga MX en EE.UU.? Canales TV**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/a-que-hora-juega-y-que-canal-transmite-america-vs-monterrey-en-vivo-hoy-por-clausura-2026-de-liga-mx-en-eeuu-canales-tv-nnda-nnrt-noticia/)
+
+
+### partido de hoy (N/A, 07/02/2026 22:15 Lima)
+
+- **Partidos de hoy, sábado 7 de febrero de 2026: programación, canales TV y resultados en vivo**: [Link](https://www.infobae.com/peru/deportes/2026/02/07/partidos-de-hoy-sabado-7-de-febrero-de-2026-programacion-canales-tv-y-resultados-en-vivo/)
+- **Partidos de hoy, sábado 7 de febrero del 2026: a qué hora, quiénes juegan y por qué canales ver fútbol en vivo**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/partidos-de-hoy-sabado-7-de-febrero-del-2026-resultados-programacion-horarios-canales-tv-y-donde-ver-futbol-en-vivo-noticia/)
+- **Partidos de hoy EN VIVO: programación, horario y dónde ver fútbol online este sábado 7 de febrero**: [Link](https://libero.pe/futbol-internacional/2026/02/06/partidos-de-hoy-en-vivo-sabado-7-de-febrero-107898)
+
+
+### sabrina carpenter (N/A, 07/02/2026 22:15 Lima)
+
+- **The Muppet Show review – we all deserve a brief bit of happiness right now**: [Link](https://www.theguardian.com/tv-and-radio/2026/feb/03/the-muppet-show-review-sabrina-carpenter-seth-rogen-disney)
+- **'The Muppet Show' Review: Sabrina Carpenter Hosts Disney+ Special**: [Link](https://www.hollywoodreporter.com/tv/tv-reviews/the-muppet-show-review-sabrina-carpenter-disney-plus-1236493107/)
+- **Review: This Is Your Grandparents’ ‘Muppet Show,’ Fortunately**: [Link](https://www.nytimes.com/2026/02/03/arts/television/review-the-muppet-show.html)
+
+
+### u va (N/A, 07/02/2026 22:15 Lima)
+
+- **Flow Automotive, UVA Partner on game day donation drive for Charlottesville students**: [Link](https://www.29news.com/2026/02/07/flow-automotive-uva-partner-game-day-donation-drive-charlottesville-students/)
+- **Donation drive to support EdZone kicking off**: [Link](https://www.cbs19news.com/news/donation-drive-to-support-edzone-kicking-off/article_d1336120-5b6b-4cd8-986c-c768c518ab26.html)
+- **UVa details first phase of DEI purge in report to DOJ**: [Link](https://richmond.com/news/state-and-regional/article_3fc3baa3-a7ab-5675-9902-b1886f07fcdf.html)
+
+
+### tarjeta roja futbol (N/A, 07/02/2026 22:15 Lima)
+
+- **Endrick, expulsado en un partido gris**: [Link](https://as.com/futbol/internacional/endrick-expulsado-en-un-partido-gris-f202602-n/)
+- **Frenazo al 'efecto Endrick': ¡¡¡expulsado por roja directa!!!**: [Link](https://www.marca.com/futbol/liga-francesa/2026/02/07/frenazo-efecto-endrick-expulsado-roja-directa.html)
+- **Endrick fue expulsado en la victoria de Lyon en la Ligue 1**: [Link](https://espndeportes.espn.com/futbol/francia/nota/_/id/16284464/video-endrick-expulsion-roja-lyon-victoria-vs-nantes-ligue-1)
+
+
+### newell's - defensa y justicia (N/A, 07/02/2026 22:15 Lima)
+
+- **Newell's vs. Def. y Jus. (7 de Feb., 2026) Resultados en Vivo**: [Link](https://www.espn.com.ar/futbol/partido/_/juegoId/762828)
+- **Newells vs Defensa y Justicia: Resultado EN VIVO, minuto a minuto y goles de la Liga Profesional**: [Link](https://www.365scores.com/es/news/newells-vs-defensa-y-justicia-resultado/)
+- **Visita a Rosario por la cuarta: el Halcón se mide ante la Lepra**: [Link](https://www.defensayjusticia.org.ar/visita-a-rosario-por-la-cuarta-el-halcon-se-mide-ante-la-lepra/)
+
+
+### junior - boyacá chicó (N/A, 07/02/2026 22:15 Lima)
+
+- **¿Cuándo fue la última vez de Junior en el Romelio Martínez?**: [Link](https://espndeportes.espn.com/futbol/colombia/nota/_/id/16279544/cuando-fue-la-ultima-vez-de-junior-en-el-romelio-martinez)
+- **Que Jannenson no esté contra Chicó genera incordio en junioristas: "La continuidad le dará un acople más rápido"**: [Link](https://impactonews.co/que-jannenson-no-este-contra-chico-genera-incordio-entre-junioristas-la-continuidad-le-dara-un-mas-rapido-acople/)
+- **Junior de Barranquilla vs Boyacá Chicó: Dónde Ver HOY EN VIVO, Online y Gratis**: [Link](https://futbolete.com/liga-betplay/junior-barranquilla-boyaca-chico-donde-ver-hoy-vivo-online/985338/)
+
+
+### warriors - lakers (N/A, 07/02/2026 22:15 Lima)
+
+- **Lakers vs. Warriors odds, prediction, time: 2026 NBA picks for Saturday, Feb. 7 from proven model**: [Link](https://www.cbssports.com/nba/news/lakers-warriors-odds-prediction-spread-time-2026-nba-picks-saturday-february-7/)
+- **Preview: Hopes and unheralded players**: [Link](https://dubnationhq.com/p/preview-hopes-and-unheralded-players)
+- **BetMGM Bonus Code BROAD1500: Maximize Your $1,500 Super Bowl Betting Bonus**: [Link](https://www.crossingbroad.com/news/sports-gambling/betmgm-bonus-code-broad1500-maximize-your-1500-super-bowl-betting-bonus/)
+
+
 ### endrick (N/A, 07/02/2026 15:34 Lima)
 
 - **Real Madrid Star Set For International Recall**: [Link](https://www.si.com/onsi/soccer/real-madrid/international/real-madrid-star-set-for-international-recall)
@@ -956,75 +1026,5 @@ Sin noticias relacionadas disponibles.
 - **San Diego FC embrace Concacaf Champions Cup debut**: [Link](https://www.mlssoccer.com/news/san-diego-fc-embrace-challenge-of-concacaf-champions-cup-debut)
 - **The Unfinished Business: Pumas and the Longest Drought Among the Giants in Concacaf**: [Link](https://www.soyfutbol.com/en/news/the-unfinished-business-pumas-and-the-longest-drought-among-the-giants-in-concacaf-20260203-0061.html)
 - **SDFC to build on inaugural year success in fast-approaching second season**: [Link](https://thedailyaztec.com/125901/sports/flow-state-sdfc-looking-to-build-on-their-inaugural-year-success-in-a-fast-approaching-second-season/)
-
-
-### precio dolar peru (N/A, 04/02/2026 00:11 Lima)
-
-- **Dólar inicia la jornada a la baja: ¿en cuánto se cotiza el billete verde?**: [Link](https://peru21.pe/economia/dolar-inicia-jornada-la-baja-en-cuanto-se-cotiza-el-billete-verde/)
-- **Precio del dólar en Perú: a cuánto cerró el tipo de cambio el martes 3 de febrero**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-a-cuanto-esta-el-dolar-y-tipo-de-cambio-este-martes-3-de-febrero-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
-- **El dólar rompe su tendencia a la baja en Perú e inicia febrero en S/ 3,37: ¿Qué hay detrás de este repunte?**: [Link](https://rpp.pe/economia/economia/el-dolar-rompe-su-tendencia-a-la-baja-en-peru-que-hay-detras-del-salto-noticia-1674256)
-
-
-### nataniel sánchez (N/A, 04/02/2026 00:11 Lima)
-
-- **¿Nataniel Sánchez no volverá a AFHS?**: [Link](https://www.americatv.com.pe/mande-quien-mande/nataniel-sanchez-descarto-volver-afhs-noticia-162743)
-- **Con un emotivo abrazo, Erick Elera y Nataniel Sánchez recuerdan sus personajes en 'Al fondo hay sitio'**: [Link](https://rpp.pe/famosos/farandula/erick-elera-y-nataniel-sanchez-tienen-emotivo-reencuentro-al-recordar-sus-personajes-en-al-fondo-hay-sitio-noticia-1674312)
-- **Saskia Bernaola se sincera sobre el reto de dirigir una película por primera vez: “Yo soy una payasa y me gusta hacer reír”**: [Link](https://larepublica.pe/cine-series/2026/02/03/saskia-bernaola-se-sincera-sobre-el-reto-de-dirigir-una-pelicula-por-primera-vez-yo-soy-una-payasa-y-me-gusta-hacer-reir-190179)
-
-
-### san diego fc - pumas (N/A, 04/02/2026 00:11 Lima)
-
-- **Transmisión EN VIVO del San Diego vs Pumas hoy: cómo mirar el partido por TV o streaming**: [Link](https://www.365scores.com/es/news/san-diego-vs-pumas-como-ver-transmision/)
-- **Godoy y Carrasquilla ponen a prueba el sello panameño de MLS en la Concacaf**: [Link](https://es.mlssoccer.com/noticias/anibal-godoy-y-adalberto-coco-carrasquilla-ponen-a-prueba-el-sello-panameno-de-mls-en-la-copa-de-campeones-de-concacaf-2026)
-- **Keylor Navas vuelve a la Copa de Campeones de Concacaf: Inicia el juego con San Diego asustando al tico**: [Link](https://www.nacion.com/puro-deporte/futbol/keylor-navas-vuelve-a-la-copa-de-campeones-de/JAZJXEJWJ5FIBLQUI2OBTCJGBM/story/)
-
-
-### se cayó chatgpt (N/A, 04/02/2026 00:11 Lima)
-
-- **Caída de ChatGPT y API de OpenAI afecta a usuarios a nivel global**: [Link](https://andina.pe/agencia/noticia-caida-chatgpt-y-api-openai-afecta-a-usuarios-a-nivel-global-1061764.aspx)
-- **Chat GPT cae hoy 3 de Febrero 2026: Esto sabemos hasta el momento**: [Link](https://www.informabtl.com/chat-gpt-cae-hoy-3-de-febrero-2026-esto-sabemos-hasta-el-momento/)
-- **¿ChatGPT caído? Cuatro alternativas de inteligencia artificial para escribir textos y resolver dudas**: [Link](https://www.nacion.com/tecnologia/chatgpt-caido-cuatro-alternativas-de-inteligencia/2B5BBGRXYFEHXNKVCOKJNC6LN4/story/)
-
-
-### kate hudson (N/A, 04/02/2026 00:11 Lima)
-
-- **Kate Hudson Poses in a Sunny Yellow String Bikini for a Cheeky Winter Swim in France**: [Link](https://www.instyle.com/kate-hudson-yellow-string-bikini-swimming-pool-france-11897525)
-- **At 46, Kate Hudson shares her Parisian looks and her winter bath in France**: [Link](https://www.msn.com/en-ie/lifestyle/style/at-46-kate-hudson-shares-her-parisian-looks-and-her-winter-bath-in-france/ar-AA1VzRN2)
-- **Kate Hudson Poses in a Sunny Yellow String Bikini for a Cheeky Winter Swim in France**: [Link](https://www.aol.com/articles/kate-hudson-poses-sunny-yellow-183237792.html)
-
-
-### petro donald trump (N/A, 04/02/2026 00:11 Lima)
-
-- **Colombian President Gustavo Petro Meets with Trump at the White House**: [Link](https://www.nytimes.com/2026/02/03/us/politics/colombia-petro-trump-meeting.html)
-- **Trump-Petro updates: US, Colombia leaders meet at White House amid tensions**: [Link](https://www.aljazeera.com/news/liveblog/2026/2/3/live-trump-petro-to-meet-at-the-white-house-after-months-of-tensions)
-- **Trump and Petro trade insults for restraint amid continued detente**: [Link](https://www.politico.com/news/2026/02/03/trump-extends-a-fragile-truce-with-colombias-petro-00763723)
-
-
-### 76ers - warriors (N/A, 04/02/2026 00:11 Lima)
-
-- **76ers vs Warriors Odds & Picks Tonight: Fade the Points With Stars Sidelined**: [Link](https://www.oddsshark.com/nba/sixers-warriors-picks-odds-february-3-2026)
-- **Joel Embiid is OUT for tonight's game against the …**: [Link](https://sports.yahoo.com/articles/joel-embiid-tonights-game-against-212455591.html)
-- **Warriros vs 76ers LIVE Score Updates: Thrilling NBA night (71-84)**: [Link](https://www.vavel.com/en-us/nba/2026/02/04/1249613-warriros-vs-76ers-live-score-nba.html)
-
-
-### cronograma pago onp (N/A, 04/02/2026 00:11 Lima)
-
-- **Confirmado: ONP habilita pago y reajuste de pensiones en febrero, revisa tu cronograma**: [Link](https://elperuano.pe/noticia/288388-confirmado-onp-habilita-pago-y-reajuste-de-pensiones-en-febrero-revisa-tu-cronograma)
-- **Reajustan pensiones del régimen 20530 [Decreto Supremo 009-2026-EF]**: [Link](https://lpderecho.pe/reajustan-pensiones-regimen-decreto-ley-20530-decreto-supremo-009-2026-ef/)
-- **Buenas noticias para pensionistas: ONP pagará aumento de S/30 en febrero y beneficiará a mayores de 65 años**: [Link](https://larepublica.pe/economia/2026/02/01/buenas-noticias-para-pensionistas-onp-pagara-aumento-de-s30-en-febrero-y-beneficiara-a-mayores-de-65-anos-atmp-67022)
-
-
-### elon musk (N/A, 04/02/2026 00:11 Lima)
-
-- **Elon Musk’s mega-merger makes little business sense**: [Link](https://www.economist.com/business/2026/02/03/elon-musks-mega-merger-makes-little-business-sense)
-- **'Muskonomy' shakeup: SpaceX valuation approaches Tesla's after merger with xAI**: [Link](https://www.cnbc.com/2026/02/03/muskonomy-shakeup-spacex-valuation-after-xai-merger-nears-tesla.html)
-- **Elon Musk Just Became The First Person Ever Worth $800 Billion After SpaceX Acquired xAI**: [Link](https://www.forbes.com/sites/mattdurot/2026/02/03/elon-musk-just-became-the-first-person-ever-worth-800-billion-after-spacex-acquired-xai/)
-
-
-### gta vi (N/A, 03/02/2026 21:34 Lima)
-
-- **GTA 6 Marketing Will Kick Off This Summer, as Take-Two Confidently Reaffirms November Release Date**: [Link](https://www.ign.com/articles/gta-6-marketing-will-kick-off-this-summer-as-take-two-confidently-reaffirms-november-release-date)
-- **Grand Theft Auto 6 may not have a physical version on day one to avoid leaks, report claims**: [Link](https://www.videogameschronicle.com/news/grand-theft-auto-6-may-not-have-a-physical-version-on-day-one-to-avoid-leaks-report-claims/)
-- **Take-Two raises its net bookings outlook, reaffirms November release for “Grand Theft Auto 6”**: [Link](https://sherwood.news/markets/take-two-raises-its-net-bookings-outlook-reaffirms-november-release-for/)
 
 
