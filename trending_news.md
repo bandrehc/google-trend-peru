@@ -1,3 +1,70 @@
+### psg (N/A, 08/02/2026 15:35 Lima)
+
+- **OM : Medina promet du jeu**: [Link](https://www.maxifoot.fr/om/medina-promet-du-jeu-foot-449944.htm)
+- **[Podcasts] Le PSG reçoit l'Olympique de Marseille ce dimanche, avec Jérôme Alonzo – 08/02**: [Link](https://rmcsport.bfmtv.com/replay-emissions/bartoli-time/le-psg-recoit-l-olympique-de-marseille-ce-dimanche-avec-jerome-alonzo-08-02_EN-202602080338.html)
+- **Geronimo Rulli et Nayef Aguerd absent du onze de Roberto De Zerbi pour une raison bien précise**: [Link](https://madeinmarseillais.ouest-france.fr/infos/article-om-geronimo-rulli-et-nayef-aguerd-absent-du-onze-de-roberto-de-zerbi-pour-une-raison-bien-precise-512121.html)
+
+
+### platense - independiente (N/A, 08/02/2026 15:35 Lima)
+
+- **Independiente iguala con Platense en Vicente López por el Torneo Apertura**: [Link](https://www.infobae.com/deportes/2026/02/08/independiente-buscara-su-primera-victoria-en-el-torneo-apertura-ante-platense-la-agenda-con-los-partidos-del-domingo/)
+- **Adentro la Joya**: [Link](https://onefootball.com/en/news/adentro-la-joya-42376343)
+- **A CALAMAR LAS AGUAS**: [Link](https://www.pressreader.com/argentina/ole/20260208/282114938016509)
+
+
+### cienciano - juan pablo ii college (N/A, 08/02/2026 15:35 Lima)
+
+- **Cienciano vs Juan Pablo II: Hora, canal tv y dónde ver la LIGA 1-2026**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/cienciano-vs-juan-pablo-ii-en-vivo-hora-y-donde-ver-el-torneo-apertura-de-la-liga-1-fecha-2-transmision-liga-1-l1max-l1play-tdpe-noticia/)
+- **Liga 1: Por la fecha 2 se enfrentarán Cienciano y Juan Pablo II**: [Link](https://rpp.pe/futbol/descentralizado/liga-1-por-la-fecha-2-se-enfrentaran-cienciano-y-juan-pablo-ii-noticia-1674893)
+- **🔴#ENVIVO Cienciano recibe a Juan Pablo II en Cusco**: [Link](https://ovacion.pe/noticias/liga1-2026/envivo-cienciano-recibe-juan-pablo-ii-cusco)
+
+
+### juventus vs (N/A, 08/02/2026 15:35 Lima)
+
+- **Cuándo juegan Juventus vs. Lazio por la fecha 24 de la Serie A: equipo, fecha, hora y TV en vivo**: [Link](https://www.espn.com.pe/futbol/italia/nota/_/id/16275978/juventus-vs-lazio-fecha-24-serie-a-equipo-fecha-hora-y-tv-en-vivo)
+- **Juventus vs Lazio: ¡Incrementa tus ganancias hasta 200% con la Serie A en Meridianbet!**: [Link](https://ovacion.pe/noticias/nota-promocional/juventus-vs-lazio-incrementa-tus-ganancias-hasta-200-serie-meridianbet)
+- **Pronóstico Juventus vs. Lazio - Una lucha por las copas**: [Link](https://gainblers.com/pe/pronosticos/futbol/italia/serie-a/pronostico-juventus-lazio-08-02-2026/)
+
+
+### garena free fire códigos (N/A, 08/02/2026 15:35 Lima)
+
+- **Códigos Free Fire gratis para hoy 7 de febrero del 2026: recompensas y canje free (Actualizado)**: [Link](https://enlinea.pe/codigos-free-fire-2026-recompensas-actualizado-febrero/)
+
+
+### olympiacos - panathinaikos (N/A, 08/02/2026 15:35 Lima)
+
+- **How to watch today's Olympiacos vs Panathinaikos Super League game: Live stream, TV channel, and start time**: [Link](https://www.goal.com/en-sa/news/how-to-watch-olympiacos-v-panathinaikos-08022026/blt67cb8b6a5eb210ee)
+- **Olympiacos 0-1 Panathinaikos Live Score, Greek Super League: Sverrir Ingason's Head Gets Saved**: [Link](https://www.outlookindia.com/sports/football/olympiacos-vs-panathinaikos-live-score-greek-super-league-2025-26-matchday-20-updates-highlights)
+- **Olympiacos Vs Panathinaikos Live Streaming, Greek Super League: Preview, Head-To-Head, And More**: [Link](https://www.outlookindia.com/sports/football/olympiacos-vs-panathinaikos-live-streaming-greek-super-league-2025-26-preview-head-to-head)
+
+
+### juventus vs lazio (N/A, 08/02/2026 15:35 Lima)
+
+- **Juventus probable lineup vs Lazio: Koopmeiners ready to step up**: [Link](https://www.juvefc.com/juventus-probable-lineup-vs-lazio-koopmeiners-ready-to-step-up/)
+- **Juventus director Chiellini on Spalletti: ‘No rush, but no doubt either’**: [Link](https://football-italia.net/juventus-director-chiellini-on-spalletti-rush/)
+- **Sarri: ‘Romagnoli important for Lazio, Maldini has huge potential’**: [Link](https://onefootball.com/de/news/sarri-romagnoli-important-for-lazio-maldini-has-huge-potential-42380003)
+
+
+### mayra goñi (N/A, 08/02/2026 15:35 Lima)
+
+- **Mayra Goñi se cruza con su expareja Neutro en evento y la actriz lo evita por completo**: [Link](https://larepublica.pe/espectaculos/2026/02/08/mayra-goni-se-cruza-con-su-expareja-neutro-en-evento-y-la-actriz-lo-evita-por-completo-158976)
+- **Mayra Goñi se cruza con Neutro en evento y lo ignora: actriz evitó mirar y hablarle a su expareja**: [Link](https://trome.com/espectaculos/tv/mayra-goni-se-cruza-con-neutro-en-evento-y-lo-ignora-actriz-no-miro-a-su-expareja-video-farandula-noticia/)
+
+
+### valencia c. f. - real madrid (N/A, 08/02/2026 15:35 Lima)
+
+- **Alineación posible del Real Madrid hoy contra el Valencia en LaLiga EA Sports**: [Link](https://as.com/futbol/primera/posible-alineacion-del-real-madrid-contra-el-valencia-en-laliga-ea-sports-f202602-n/)
+- **Link hoy: Real Madrid vs. Valencia EN VIVO en directo por DIRECTV, DSports y Movistar**: [Link](https://depor.com/futbol-internacional/espana/futbol-libre-tv-en-vivo-real-madrid-vs-valencia-hoy-gratis-transmision-directv-dsports-espn-deportes-movistar-laliga-video-noticia/)
+- **Real Madrid vs. Valencia EN VIVO y EN DIRECTO por DIRECTV Sports: minuto a minuto**: [Link](https://libero.pe/futbol-internacional/liga-espanola/2026/02/07/real-madrid-vs-valencia-en-vivo-en-directo-partido-de-laliga-hoy-via-directv-sports-movistar-plus-lbev-148995)
+
+
+### psg - marsella (N/A, 08/02/2026 15:35 Lima)
+
+- **¡EN VIVO! PSG busca estirar la distancia en lo alto de la Ligue 1 ante Olympique Marsella**: [Link](https://www.espn.com.pe/futbol/francia/nota/_/id/16273735/psg-vs-olympique-marsella-por-la-ligue-1-equipo-fecha-hora-y-tv-en-vivo)
+- **Liga de Francia: Por una nueva edición de "Le Classique", PSG recibe a Olympique de Marsella**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-de-francia-por-una-nueva-edicion-de-le-classique-psg-recibe-a-olympique-de-marsella-noticia-1674886)
+- **Pronóstico PSG vs. Marsella - El clásico francés ¿Quién lo gana?**: [Link](https://gainblers.com/pe/pronosticos/futbol/francia/ligue-1/pronostico-psg-marseille-08-02-2026/)
+
+
 ### blast slam vi (N/A, 08/02/2026 11:37 Lima)
 
 - **Falcons, Yandex advance to quarterfinals at BLAST Slam VI**: [Link](https://fieldlevelmedia.com/esports/falcons-yandex-advance-to-quarterfinals-at-blast-slam-vi/)
@@ -954,74 +1021,5 @@ Sin noticias relacionadas disponibles.
 - **bet365 bonus code ALBET365: Claim $200 in bonuses for Seahawks vs. Patriots in Super Bowl 60**: [Link](https://www.al.com/betting/2026/02/bet365-bonus-code-albet365-claim-200-in-bonuses-for-seahawks-vs-patriots-in-super-bowl-60.html)
 - **bet365 Bonus Code FOX365 Scores $200 in Bonus Bets for the Big Game**: [Link](https://www.foxsports.com/stories/betting/bet365-bonus-code-fox365-scores-200-bonus-bets-big-game)
 - **Bet365 Bonus Code WTOP365: Get $200 Bonus for Knicks-Nuggets, NBA, Big Game**: [Link](https://wtop.com/sports/2026/02/bet365-bonus-code-wtop365-get-200-bonus-for-knicks-nuggets-nba-big-game/)
-
-
-### thunder - spurs (N/A, 05/02/2026 00:19 Lima)
-
-- **Thunder vs Spurs Picks & Odds Today: San Antonio Seeks Fourth Win Against Champs**: [Link](https://www.oddsshark.com/nba/thunder-spurs-picks-odds-february-4-2026)
-- **Caesars Sportsbook Promo Code 'COVERS250BM' Awards Up To A $250 Bet Match For Thunder-Spurs**: [Link](https://www.covers.com/daily-promos/caesars-sportsbook-promo-code-nba-thunder-spurs-02-04-2026)
-- **Thunder-Spurs free livestream: How to watch NBA game tonight, TV, time**: [Link](https://www.al.com/tv/2026/02/thunder-spurs-free-livestream-how-to-watch-nba-game-tonight-tv-time.html)
-
-
-### carlos alcantara (N/A, 05/02/2026 00:19 Lima)
-
-- **Carlos Alcántara sorprende con impactante foto por el Día Mundial contra el Cáncer y promueve el autocuidado: "Vamos muchachos a hacernos la prueba"**: [Link](https://larepublica.pe/espectaculos/2026/02/04/carlos-alcantara-sorprende-con-impactante-foto-por-el-dia-mundial-contra-el-cancer-y-promueve-el-autocuidado-vamos-muchachos-a-hacernos-la-prueba-204948)
-- **Carlos Alcántara se desnuda por el Día Mundial contra el Cáncer: “Vamos muchachos a hacernos la prueba”**: [Link](https://www.infobae.com/peru/2026/02/04/carlos-alcantara-se-desnuda-por-el-dia-mundial-contra-el-cancer-vamos-muchachos-a-hacernos-la-prueba/)
-
-
-### miguel del castillo (N/A, 05/02/2026 00:19 Lima)
-
-- **Primero La Gente acusa a su fundador Miguel del Castillo de irregularidades en el uso de la franja electoral**: [Link](https://rpp.pe/politica/elecciones/primero-la-gente-acusa-a-su-fundador-miguel-del-castillo-de-irregularidades-en-el-uso-de-la-franja-electoral-noticia-1674429)
-- **Acusan mal uso de la franja electoral**: [Link](https://peru21.pe/politica/acusan-mal-uso-de-la-franja-electoral/)
-- **Denuncian que Miguel del Castillo destinó más de S/400 000 del presupuesto de la franja electoral a su «excanal**: [Link](https://lpderecho.pe/denuncian-miguel-del-castillo-destino-mas-400-000-presupuesto-franja-electoral-a-excanal/)
-
-
-### cr7 (N/A, 05/02/2026 00:19 Lima)
-
-- **Cristiano Ronaldo, un ícono de los 2000s con aretes, camisas ceñidas y bolsos Gucci: así era ‘CR7’ mucho antes de Georgina**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/cristiano-ronaldo-un-icono-de-los-2000s-con-aretes-camisas-cenidas-y-bolsos-gucci-asi-era-cr7-mucho-antes-de-georgina-rodriguez-noticia/)
-- **Cristiano Ronaldo 'talks' over Man Utd return emphatically dismissed as INEOS take strong stand - Sources**: [Link](https://www.teamtalk.com/manchester-united/cristiano-ronaldo-man-utd-third-spell-categorically-denied-sources)
-- **Football gossip: Ronaldo, Romero, Anderson, Casemiro, Tonali, Neves, Roefs, Nketiah**: [Link](https://www.bbc.com/sport/football/articles/cpwn48xdxldo)
-
-
-### vancouver football club - cruz azul (N/A, 05/02/2026 00:19 Lima)
-
-- **Cruz Azul y su 'mutación' desde que ganó la Concacaf Champions Cup**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/16263429/vancouver-vs-cruz-azul-concacaf-champions-cup-mutacion-plantilla)
-- **Qué canal pasa Vancouver vs Cruz Azul hoy: dónde ver GRATIS y EN VIVO la Champions Cup**: [Link](https://www.365scores.com/es/news/vancouver-vs-cruz-azul-donde-ver-gratis/)
-- **Concacaf Champions Cup 2026: posibles alineaciones de Cruz Azul**: [Link](https://espndeportes.espn.com/futbol/norte-centro-america/nota/_/id/16267525/concacaf-champions-cup-2026-vancouver-vs-cruz-azul-alineaciones)
-
-
-### alex turner (N/A, 05/02/2026 00:19 Lima)
-
-- **Yo Soy castings 2026: ¡Pasó de ser solo un fan que toca guitarra en su casa, al escenario!**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-castings-2026-paso-de-ser-solo-un-fan-que-toca-guitarra-en-su-casa-al-escenario_20260127/)
-- **Yo Soy castings 2026: ¡Arturo vuelve por su revancha y enciende la batalla de Alex Turner!**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-castings-2026-arturo-vuelve-por-su-revancha-y-enciende-la-batalla-de-alex-turner_20260204/)
-- **Yo Soy castings 2026: ¡Oliver pausó su carrera para cuidar la voz y deslumbró como Alex Turner!**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-castings-2026-oliver-pauso-su-carrera-para-cuidar-la-voz-y-deslumbro-como-alex-turner_20260203/)
-
-
-### dua lipa (N/A, 04/02/2026 21:35 Lima)
-
-- **Dua Lipa Peeks Out of Chic Fur Coat for Service95 Milestone**: [Link](https://www.yahoo.com/entertainment/celebrity/articles/dua-lipa-peeks-chic-fur-150000894.html)
-- **Dua Lipa Celebrates Major Service95 Milestone in Luxe Fur Look**: [Link](https://lifestyle.si.com/fashion-beauty/dua-lipa-celebrates-major-service95-milestone)
-- **Why Dua Lipa and Callum Turner Skipped the 2026 Grammys**: [Link](https://www.yahoo.com/entertainment/music/articles/why-dua-lipa-callum-turner-020000300.html)
-
-
-### gabriel costa (N/A, 04/02/2026 21:35 Lima)
-
-- **Gabriel Costa, ex Universitario, fichará por conocido equipo de la Liga 2: "Llegó a un acuerdo"**: [Link](https://libero.pe/futbol-peruano/universitario/2026/02/02/gabriel-costa-ex-universitario-fichara-conocido-equipo-de-liga-2-llego-acuerdo-105122)
-- **Ex Alianza Lima, Universitario y Sporting Cristal refuerza a bicampeón del fútbol peruano**: [Link](https://bolavip.com/pe/futbol-peruano/ex-alianza-lima-universitario-y-sporting-cristal-refuerza-a-bicampeon-del-futbol-peruano)
-- **Tocó fondo: el calvario que vive Gabriel Costa tras dejar Colo Colo**: [Link](https://redgol.cl/mercado-de-fichajes/toco-fondo-el-calvario-que-vive-gabriel-costa-tras-dejar-colo-colo)
-
-
-### instagram (N/A, 04/02/2026 21:35 Lima)
-
-- **Instagram down for more than 10,000 US users**: [Link](https://www.reuters.com/technology/instagram-down-more-than-10000-us-users-2026-02-05/)
-- **Instagram down: Thousands of users complain about issues with Meta platform; how to fix 'sorry something went wrong' | Hindustan Times**: [Link](https://www.hindustantimes.com/world-news/us-news/instagram-down-thousands-of-users-complain-about-issues-with-meta-platform-how-to-fix-sorry-something-went-wrong-101770254235109.html)
-- **Instagram down right now? Downdetector shows thousands reporting website issues**: [Link](https://m.economictimes.com/us/news/instagram-down-right-now-downdetector-shows-thousands-reporting-website-issues/articleshow/127921826.cms)
-
-
-### erick noriega (N/A, 04/02/2026 21:35 Lima)
-
-- **Hinchas de Gremio piden nueva posición para Erick Noriega en el equipo: "Debe jugar en..."**: [Link](https://libero.pe/futbol-internacional/2026/02/02/hinchas-de-gremio-piden-nueva-posicion-erick-noriega-en-equipo-debe-jugar-en-157440)
-- **Grêmio vs Botafogo Pronóstico: Previa y Análisis del Partido | Serie A 05-02-2026**: [Link](https://betmines.com/es/analisis-partido/gremio-vs-botafogo-pronostico-previa-y-analisis-serie-a-05-02-2026)
-- **Gremio vs Botafogo: partidazo en vivo por el Brasileirao**: [Link](https://www.futbolperuano.com/en-vivo/brasileirao-gremio-vs-botafogo-en-vivo-por-la-serie-a-de-brasil-562388)
 
 
