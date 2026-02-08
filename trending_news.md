@@ -1,3 +1,71 @@
+### blast slam vi (N/A, 08/02/2026 11:37 Lima)
+
+- **Falcons, Yandex advance to quarterfinals at BLAST Slam VI**: [Link](https://fieldlevelmedia.com/esports/falcons-yandex-advance-to-quarterfinals-at-blast-slam-vi/)
+- **HEROIC, GamerLegion stay alive at BLAST Slam VI**: [Link](https://www.bignewsnetwork.com/news/278853949/heroic-gamerlegion-stay-alive-at-blast-slam-vi)
+- **NAVI defeat Xtreme Gaming 1-0 at BLAST Slam VI Group Stage**: [Link](https://egamersworld.com/dota2/news/32392/navi-defeat-xtreme-gaming-and-qualify-for-the-blas-OUK-woKy6)
+
+
+### sassuolo - inter (N/A, 08/02/2026 11:37 Lima)
+
+- **Luis Henrique a InterTV: “Sto bene fisicamente e sento la fiducia di mister e squadra”**: [Link](https://www.fcinter1908.it/news/interviste/sassuolo-inter-luis-henrique-intertv/)
+- **Sassuolo vs. Inter, live from Reggio Emilia**: [Link](https://www.inter.it/en/news/sassuolo-inter-serie-a-2025-2026)
+- **Inter, Chivu: "Oggi serve attenzione. Lautaro è un piacere per chi ama il calcio"**: [Link](https://gianlucadimarzio.com/inter-chivu-intervista-sassuolo-serie-a-news-8-febbraio-2026/)
+
+
+### betssy chávez (N/A, 08/02/2026 11:37 Lima)
+
+- **Poder Judicial admite hábeas corpus que busca salvoconducto para Betssy Chávez**: [Link](https://caretas.pe/politica/poder-judicial-admite-habeas-corpus-que-busca-salvoconducto-para-betssy-chavez/)
+- **Poder Judicial admite a trámite demanda para otorgarle salvoconducto a Betssy Chávez: ¿Son viables los argumentos?**: [Link](https://elcomercio.pe/politica/justicia/poder-judicial-admite-a-tramite-demanda-para-otorgarle-salvoconducto-a-betssy-chavez-son-viables-los-argumentos-noticia/)
+- **Betssy Chávez: Poder Judicial admite a trámite habeas corpus para la entrega inmediata del salvoconducto**: [Link](https://larepublica.pe/politica/2026/02/08/betssy-chavez-poder-judicial-admite-a-tramite-habeas-corpus-para-la-entrega-inmediata-del-salvoconducto-hnews-565136)
+
+
+### psv (N/A, 08/02/2026 11:37 Lima)
+
+- **Praat mee op VP: verrassing in PSV-opstelling, Eindhovenaren zonder doelman Kovar**: [Link](https://www.voetbalprimeur.nl/nieuws/1738687/praat-mee-op-vp-fc-groningen-psv.html)
+- **Geen Kovar of Olij, maar debutant Schiks op doel bij PSV • Land start bij Groningen**: [Link](https://nos.nl/liveblog/2601421-geen-kovar-of-olij-maar-debutant-schiks-op-doel-bij-psv-land-start-bij-groningen)
+- **Live Eredivisie | PSV krijgt vroege tik tegen FC Groningen: inschattingsfout keihard afgetraft**: [Link](https://sportnieuws.nl/voetbal/nieuws/live-eredivisie-psv-krijgt-vroege-tik-tegen-fc-groningen-inschattingsfout-keihard-afgetraft-2026020814170686556/)
+
+
+### psv vs (N/A, 08/02/2026 11:37 Lima)
+
+- **Preview: Groningen vs PSV Eindhoven - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/groningen/preview/groningen-vs-psv-prediction-team-news-lineups_591558.html)
+
+
+### monaco fc (N/A, 08/02/2026 11:37 Lima)
+
+- **Angers vs. Toulouse (8 Feb, 2026) Live Score**: [Link](https://www.espn.in/football/match/_/gameId/746592)
+- **Sturm Graz vs. SV Josko Ried (8 Feb, 2026) Live Score**: [Link](https://www.espn.in/football/match/_/gameId/747436)
+- **FC Groningen vs. PSV (8 Feb, 2026) Live Score**: [Link](https://www.espn.in/football/match/_/gameId/741172)
+
+
+### bayern - hoffenheim (N/A, 08/02/2026 11:37 Lima)
+
+- **Spielvorschau: Bayern München gegen Hoffenheim, 8. Februar, 23:30 Uhr: Die Bayern wollen zu ihrer Siegerform zurückfinden.**: [Link](https://www.vietnam.vn/de/nhan-dinh-tran-dau-bayern-munich-vs-hoffenheim-23h30-ngay-8-2-tim-lai-niem-vui)
+- **"So kurz vor der perfekten Startelf": So reagieren die Fans auf die Bayern-Aufstellung gegen Hoffenheim**: [Link](https://tribuna.com/de/blogs/so-kurz-vor-der-perfekten-startelf-so-reagieren-die-fans-auf/)
+- **Bundesliga-Topspiel im Ticker: Kann das drittplatzierte Hoffenheim Leader Bayern bodigen? | blue News**: [Link](https://www.bluewin.ch/de/sport/bundesliga/koennen-das-drittplatzierte-hoffenheim-leader-bayern-bodigen-3086531.html)
+
+
+### monaco vs (N/A, 08/02/2026 11:37 Lima)
+
+- **Con doblete de Enciso, Racing de Estrasburgo venció a Monaco y avanzó en la Copa de Francia**: [Link](https://www.espn.com.pe/futbol/francia/nota/_/id/16275364/racing-de-estrasburgo-vs-monaco-enciso-panichelli-barco-cuartos-de-final-copa-de-francia)
+- **Strasbourg edge Monaco and into French cup last eight**: [Link](https://www.besoccer.com/new/strasbourg-edge-monaco-and-into-french-cup-last-eight-1393217)
+- **Coupe de France: End of the road for AS Monaco, beaten by Strasbourg**: [Link](https://www.monaco-tribune.com/en/2026/02/coupe-de-france-end-of-the-road-for-as-monaco-beaten-by-strasbourg/)
+
+
+### liverpool - manchester city (N/A, 08/02/2026 11:37 Lima)
+
+- **Preview: Liverpool vs Manchester City - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/liverpool/title-race/preview/liverpool-vs-man-city-prediction-team-news-lineups_591510.html)
+- **Arne Slot: Our obligation is to never believe we are doing enough**: [Link](https://www.liverpoolfc.com/news/arne-slot-our-obligation-never-believe-we-are-doing-enough)
+- **Chat GPT & Grok disagree over Liverpool v Man City prediction as Man Utd & Chelsea lay down gauntlet**: [Link](https://www.empireofthekop.com/2026/02/08/chat-gpt-grok-disagree-over-liverpool-v-man-city-prediction-as-man-utd-chelsea-lay-down-gauntlet/)
+
+
+### sporting cristal - melgar (N/A, 08/02/2026 11:37 Lima)
+
+- **Canales de TV para ver Sporting Cristal vs. Melgar: horarios del partido**: [Link](https://depor.com/futbol-peruano/descentralizado/sporting-cristal-vs-melgar-en-vivo-canales-de-tv-fecha-horarios-y-donde-ver-transmision-gratis-por-liga-1-max-movistar-tv-torneo-apertura-2026-noticia/)
+- **Alineaciones de Sporting Cristal vs Melgar: el once confirmado de Autuori para ganar en el Gallardo**: [Link](https://libero.pe/futbol-peruano/sporting-cristal/2026/02/07/alineaciones-sporting-cristal-vs-melgar-formacion-del-partido-de-liga-1-peru-apertura-439005)
+- **Duelo de Pizarras en el Gallardo**: [Link](https://caretas.pe/deportes/duelo-de-pizarras-en-el-gallardo/)
+
+
 ### alavés - getafe (N/A, 08/02/2026 08:02 Lima)
 
 - **Alavés - Getafe, en directo: LaLiga EA Sports, hoy en vivo**: [Link](https://as.com/futbol/primera/alaves-getafe-en-directo-laliga-ea-sports-hoy-en-vivo-f202602-d/)
@@ -955,75 +1023,5 @@ Sin noticias relacionadas disponibles.
 - **Hinchas de Gremio piden nueva posición para Erick Noriega en el equipo: "Debe jugar en..."**: [Link](https://libero.pe/futbol-internacional/2026/02/02/hinchas-de-gremio-piden-nueva-posicion-erick-noriega-en-equipo-debe-jugar-en-157440)
 - **Grêmio vs Botafogo Pronóstico: Previa y Análisis del Partido | Serie A 05-02-2026**: [Link](https://betmines.com/es/analisis-partido/gremio-vs-botafogo-pronostico-previa-y-analisis-serie-a-05-02-2026)
 - **Gremio vs Botafogo: partidazo en vivo por el Brasileirao**: [Link](https://www.futbolperuano.com/en-vivo/brasileirao-gremio-vs-botafogo-en-vivo-por-la-serie-a-de-brasil-562388)
-
-
-### xelajú mc - monterrey (N/A, 04/02/2026 21:35 Lima)
-
-- **Así han sido las visitas de Rayados de Monterrey en Guatemala**: [Link](https://www.espn.com.ar/futbol/guatemala/nota/_/id/16271285/visitas-rayados-monterrey-guatemala)
-- **Roberto Hernández tomará la iniciativa ante Rayados: "La propuesta debe ser ofensiva"**: [Link](https://espndeportes.espn.com/futbol/guatemala/nota/_/id/16268720/roberto-hernandez-tomara-iniciativa-rayaados-propuesta-ofensiva)
-- **¿A qué horas juega y en qué canales televisan juego Xelajú MC vs. Rayados de Monterrey EN VIVO hoy 4 de febrero por la Copa de Campeones de Concacaf 2026?**: [Link](https://elcomercio.pe/mag/usa/local-us/a-que-hora-juega-y-que-canal-transmite-xelaju-mc-vs-rayados-de-monterrey-en-vivo-hoy-4-de-febrero-por-la-copa-de-campeones-de-concacaf-2026-nnda-nnrt-noticia/)
-
-
-### mirassol vs (N/A, 04/02/2026 21:35 Lima)
-
-- **Mirassol vs Novorizontino: partidazo en vivo por el Campeonato Paulista**: [Link](https://www.futbolperuano.com/en-vivo/campeonato-paulista-2026-mirassol-vs-novorizontino-en-vivo-562070)
-- **Remo sumó su primer punto en el Brasileirao tras igualar 2-2 ante Mirassol**: [Link](https://ovacion.pe/noticias/futbol-internacional/remo-sumo-su-primer-punto-brasileirao-tras-igualar-2-2-ante-mirassol)
-- **Remo vs Mirassol: previa, horario y cómo llegan para la fecha 2 del Brasileirao**: [Link](https://zona.palmsbet.pe/deportes/futbol/remo-vs-mirassol-previa-horario-y-como-llegan-para-la-fecha-2-del-brasileirao/)
-
-
-### pavez (N/A, 04/02/2026 21:35 Lima)
-
-- **Alianza Lima retira los dorsales de Zambrano, Trauco y Peña para la Copa Libertadores**: [Link](https://www.atv.pe/noticia/alianza-lima-retira-los-dorsales-de-zambrano-trauco-y-pena-para-la-copa-libertadores/)
-- **Esteban Pavez llevará el dorsal ‘5’ de Carlos Zambrano en Copa Libertadores: ¿Y quién tendrá la ’10′ de Alianza Lima en 2026?**: [Link](https://www.infobae.com/peru/deportes/2026/02/02/esteban-pavez-llevara-el-dorsal-5-de-carlos-zambrano-en-copa-libertadores-y-quien-tendra-la-10-de-alianza-lima-en-2026/)
-- **Alianza reveló quiénes usarán dorsales de Trauco y Zambrano**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/alianza-revelo-quienes-usaran-dorsales-trauco-y-zambrano-n452558)
-
-
-### telefe (N/A, 04/02/2026 21:35 Lima)
-
-- **Rating del martes: Francella vs. Iván de Pineda, cómo fue el duelo de las 21, en un día de cifras bajas**: [Link](https://www.clarin.com/espectaculos/rating-martes-francella-vs-ivan-pineda-duelo-21-dia-cifras-bajas_0_DzsFJg1txY.html)
-- **El inesperado logro de Telefe gracias a "MasterChef Celebrity"**: [Link](https://www.minutoneuquen.com/entretenimiento/2026/2/2/el-inesperado-logro-de-telefe-gracias-masterchef-celebrity-404234.html)
-- **Martes de subas y bajas**: [Link](https://television.com.ar/noticias/ratings/martes-de-subas-y-bajas-8/)
-
-
-### fútbol (N/A, 04/02/2026 21:35 Lima)
-
-- **Partidos de hoy, miércoles 4 de febrero de 2026: programación, canales TV y resultados en vivo**: [Link](https://www.infobae.com/peru/deportes/2026/02/04/partidos-de-hoy-miercoles-4-de-febrero-de-2026-programacion-canales-tv-y-resultados-en-vivo/)
-- **Partidos de hoy, miércoles 4 de febrero del 2026: horarios y canales TV para ver EN VIVO la Copa Libertadores y Copa del Rey**: [Link](https://rpp.pe/futbol/futbol-mundial/partidos-de-hoy-copa-libertadores-y-copa-del-rey-en-vivo-peru-miercoles-4-de-febrero-del-2026-horarios-y-canales-tv-ver-futbol-en-vivo-noticia-1674231)
-- **Partidos de hoy, 04 de febrero: Horario y canal EN VIVO**: [Link](https://www.americatv.com.pe/deportes/futbol-mundial/partidos-hoy-04-febrero-horarios-y-transmisiones-n452580)
-
-
-### alianza lima (N/A, 04/02/2026 21:35 Lima)
-
-- **Alianza Lima vs. 2 de Mayo (0-1): resumen, minuto a minuto y goles de la Copa Libertadores**: [Link](https://depor.com/futbol-peruano/copa-libertadores/alianza-lima-vs-2-de-mayo-en-vivo-minuto-a-minuto-gratis-espn-telefe-futbol-libre-tv-disney-plus-fox-sports-en-directo-canales-de-transmision-copa-libertadores-2026-noticia/)
-- **Alianza Lima perdonó y lo pagó caro: perdió 1-0 ante 2 de Mayo por la fase previa de Copa Libertadores**: [Link](https://larepublica.pe/deportes/2026/02/04/alianza-lima-vs-2-de-mayo-en-vivo-copa-libertadores-2026-via-espn-99186)
-- **Cambio inesperado en once de Guede para partido de Libertadores**: [Link](https://www.americatv.com.pe/deportes/futbol-mundial/cambio-inesperado-once-guede-partido-libertadores-n452586)
-
-
-### inter (N/A, 04/02/2026 15:41 Lima)
-
-- **Inter Milan Vs Torino – Cristian Chivu Preparing Huge Starting XI Overhaul After Cremonese Win**: [Link](https://sempreinter.com/2026/02/03/inter-milan-torino-chivu-make-numerous-starting-xi-changes/)
-- **Inter Torino Coppa Italia clash moved to Monza**: [Link](https://www.footitalia.com/news/inter-torino-coppa-italia-monza-chivu/)
-- **Marotta: ‘Inter approve of rotation, Milan have an advantage for Scudetto’**: [Link](https://onefootball.com/pt-br/noticias/marotta-inter-approve-of-rotation-milan-have-an-advantage-for-scudetto-42358931)
-
-
-### rangers - kilmarnock (N/A, 04/02/2026 15:41 Lima)
-
-- **Rangers vs Kilmarnock: Scottish Premiership radio commentary, text updates & match report**: [Link](https://www.bbc.com/sport/football/live/cp9je0z4ykgt)
-- **Rangers vs Kilmarnock LIVE! Scottish Premiership match updates, score, stream and highlights**: [Link](https://www.skysports.com/football/live-blog/11781/13503334/rangers-vs-kilmarnock-live-scottish-premiership-match-updates-score-stream-and-highlights)
-- **Rohl Praises Continuous Support From The Stands**: [Link](https://www.rangers.co.uk/article/rohl-praises-continuous-support-from-the-stands/4cpaECwMnZvv9NitzmSrMT)
-
-
-### copa francia (N/A, 04/02/2026 15:41 Lima)
-
-- **Olympique de Marsella goleó a Stade Rennais y pasó a cuartos en la Copa de Francia**: [Link](https://www.espn.com.ar/futbol/francia/nota/_/id/16267196/olympique-de-marsella-vs-stade-rennais-octavos-de-final-cuartos-copa-de-francia)
-- **Greenwood suma y sigue**: [Link](https://as.com/futbol/internacional/greenwood-suma-y-sigue-f202602-n/)
-- **Así se juega una nueva jornada en la Copa de Francia: todo lo que tenés que saber**: [Link](https://www.directvsports.com/futbol/asi-se-juega-una-nueva-jornada-en-la-copa-de-francia-todo-lo-que-tenes-que-saber-20260204-0022.html)
-
-
-### copa alemana (N/A, 04/02/2026 15:41 Lima)
-
-- **Bayer Leverkusen goleó al St. Pauli y es semifinalista de la Copa de Alemania**: [Link](https://www.espn.com.ar/futbol/alemania/nota/_/id/16261706/bayer-leverkusen-vs-st-pauli-copa-de-alemania-cuartos-de-final-equipo-fecha-hora-tv-en-vivo)
-- **Cuándo juegan Bayer Leverkusen vs. St. Pauli por la Copa de Alemania: equipo, fecha, hora y TV en vivo**: [Link](https://espndeportes.espn.com/futbol/alemania/nota/_/id/16261706/bayer-leverkusen-vs-st-pauli-copa-de-alemania-cuartos-de-final-equipo-fecha-hora-tv-en-vivo)
-- **👴 Pura experiencia para semifinales: la Werkself, más veterana en años**: [Link](https://onefootball.com/en/news/pura-experiencia-para-semifinales-la-werkself-mas-veterana-en-anos-42353847)
 
 
