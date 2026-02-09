@@ -1,3 +1,73 @@
+### kendrick lamar (N/A, 08/02/2026 21:44 Lima)
+
+- **Showtime! Interesting facts about the Super Bowl halftime show**: [Link](https://www.nbcbayarea.com/super-bowl/super-bowl-halftime-show-performers-history-bad-bunny/4026320/)
+- **NFL Fans In Agreement On 'Worst' Super Bowl Halftime Show Ever**: [Link](https://www.yahoo.com/entertainment/music/articles/nfl-fans-agreement-worst-super-172205749.html)
+- **Ranking the best Super Bowl halftime shows in history**: [Link](https://www.nbcsports.com/nfl/news/ranking-the-best-super-bowl-halftime-shows-in-history-prince-beyonce-u2-katy-perry-michael-jackson-lady-gaga-madonna-bruce-springsteen)
+
+
+### bruno mars (N/A, 08/02/2026 21:44 Lima)
+
+- **Bruno Mars’s Grammy-Winning Album Reaches A Special Milestone**: [Link](https://www.forbes.com/sites/hughmcintyre/2026/02/01/bruno-marss-grammy-winning-album-reaches-a-special-milestone/)
+- **Inside Bruno Mars' 10-Year Break Between Solo Albums**: [Link](https://www.eonline.com/news/1427797/bruno-mars-10-year-gap-between-albums-explained)
+- **Bruno Mars is Back on Everyone’s Playlist: Tour Buzz, Viral Hits & The Story Behind the Legend**: [Link](https://www.ad-hoc-news.de/boerse/news/ueberblick/bruno-mars-is-back-on-everyone-s-playlist-tour-buzz-viral-hits-and/68565087)
+
+
+### boston river - nacional (N/A, 08/02/2026 21:44 Lima)
+
+- **Cómo le fue a Nacional en sus visitas al estadio Campeones Olímpicos de Florida**: [Link](https://www.espn.com.ar/futbol/uruguay/nota/_/id/16283342/nacional-visitas-estadio-campeones-olimpicos-florida-como-le-fue)
+- **Boston River 1-2 Nacional: el Bolso pegó en los momentos justos y debutó en el Apertura con una victoria**: [Link](https://www.elpais.com.uy/ovacion/futbol/boston-river-vs-nacional-en-vivo-el-tricolor-de-jadson-viera-se-estrena-en-florida-y-sin-el-diente-lopez)
+- **Habló Gómez y Ramírez se quejó de las “dudosas que para algunos lados es más fácil cobrar”**: [Link](https://www.montevideo.com.uy/Deportes/Hablo-Gomez-y-Ramirez-se-quejo-de-las-dudosas-que-para-algunos-lados-es-mas-facil-cobrar--uc952484)
+
+
+### twitter (N/A, 08/02/2026 21:44 Lima)
+
+- **Turning Point's alternative halftime show – How to watch, what to know**: [Link](https://www.usatoday.com/story/entertainment/music/2026/02/08/turning-point-usa-halftime-show-how-where-watch/88578627007/)
+- **Trump Says Bad Bunny's Super Bowl Halftime Show Was 'Absolutely Terrible'**: [Link](https://www.usnews.com/news/top-news/articles/2026-02-08/trump-says-bad-bunnys-super-bowl-halftime-show-was-absolutely-terrible)
+- **Kid Rock backlash erupts as ‘I like ’em underage’ lyric resurfaces before Super Bowl**: [Link](https://www.sfchronicle.com/super-bowl-lx/article/kid-rock-backlash-underage-21341430.php)
+
+
+### mack hollins (N/A, 08/02/2026 21:44 Lima)
+
+- **Super Bowl 2026: Mack Hollins arrives in handcuffs, Hannibal Lecter-style mask for big game**: [Link](https://sports.yahoo.com/nfl/article/super-bowl-2026-mack-hollins-arrives-in-handcuffs-hannibal-lecter-style-mask-for-big-game-221514166.html)
+- **Patriots' Mack Hollins Sports Mike Vrabel's High School Jersey in Photo Ahead of NFL Super Bowl 60**: [Link](https://bleacherreport.com/articles/25392836-patriots-mack-hollins-sports-mike-vrabels-high-school-jersey-photo-ahead-nfl-super-bowl-60)
+- **Mack Hollins arrives barefoot in wild prisoner outfit at the Super Bowl LX**: [Link](https://en.as.com/videos/mack-hollins-arrives-barefoot-in-wild-prisoner-outfit-at-the-super-bowl-lx-f202602-v/)
+
+
+### twitch (N/A, 08/02/2026 21:44 Lima)
+
+- **Mizkif-linked Twitch account receives temporary suspension**: [Link](https://timesofindia.indiatimes.com/world/us-streamers/mizkif-linked-twitch-account-receives-temporary-suspension/articleshow/128083663.cms)
+- **Mizkif-linked Twitch account receives temporary suspension**: [Link](https://www.inkl.com/news/mizkif-linked-twitch-account-receives-temporary-suspension)
+- **Emiru draws criticism after declining to comment on ICE during Twitch stream**: [Link](https://tribune.com.pk/story/2591396/emiru-draws-criticism-after-declining-to-comment-on-ice-during-twitch-stream)
+
+
+### levis stadium (N/A, 08/02/2026 21:44 Lima)
+
+- **Super Bowl LX turns Levi’s Stadium into the center of the sports world again—what’s different this time, and why it matters for the Bay Area**: [Link](https://www.filmogaz.com/140519)
+- **Super Bowl 2026: Santa Clara hosts America's biggest game**: [Link](https://www.dw.com/en/super-bowl-lx-live-santa-clara-hosts-americas-biggest-game-of-the-nfl/live-75863946)
+- **Super Bowl LX: Discussion for Rams fans**: [Link](https://sports.yahoo.com/articles/super-bowl-lx-discussion-rams-230000801.html)
+
+
+### universitario vs atenea (N/A, 08/02/2026 21:44 Lima)
+
+- **Tabla de posiciones de la Liga Peruana de Vóley 2026: así van los equipos en la fecha 5 de la Fase 2**: [Link](https://www.infobae.com/peru/deportes/2026/02/07/tabla-de-posiciones-liga-peruana-de-voley-2025-2026-hoy-fecha-5-fase-2-alianza-lima-universitario-san-martin-regatas-lima/)
+- **La sorpresa de la jornada: Universitario cayó 3-0 ante Atenea por la fase 2 de la Liga Peruana de Vóley 2026**: [Link](https://rpp.pe/voley/mas-voley/universitario-vs-atenea-a-que-hora-juegan-y-como-ver-fecha-5-fase-2-liga-peruana-de-voley-2026-via-latina-voley-en-vivo-noticia-1674871)
+- **Partidos Liga Peruana de Vóley 2026: resultados y tabla de posiciones de la fecha 5**: [Link](https://libero.pe/deportes/voley/2026/02/03/tabla-de-posiciones-liga-peruana-de-voley-programacion-de-partidos-de-segunda-fase-181935)
+
+
+### vélez - boca juniors (N/A, 08/02/2026 21:44 Lima)
+
+- **Vélez vs. Boca, hoy EN VIVO por el Torneo Apertura: ¡ya se juega en el Amalfitani!**: [Link](https://www.ole.com.ar/futbol-primera/velez-vs-boca-partido-torneo-apertura-2026-fecha-4-vivo_0_EtCo3dso9a.html)
+- **Boca vs. Vélez en vivo por Liga Argentina: transmisión del partido de hoy**: [Link](https://elcomercio.pe/deporte-total/argentina/boca-juniors-vs-velez-en-vivo-hoy-gratis-por-liga-argentina-a-que-hora-juegan-canal-que-pasa-y-donde-ver-por-torneo-apertura-via-tnt-sports-video-noticia/)
+- **Vélez vs Boca: Resultado EN VIVO, minuto a minuto y goles de la Liga Profesional**: [Link](https://www.365scores.com/es/news/velez-vs-boca-resultado-en-vivo-goles/)
+
+
+### la kabala (N/A, 08/02/2026 21:44 Lima)
+
+- **Resultados de La Kábala: números ganadores del sorteo del sábado 7 de febrero**: [Link](https://elcomercio.pe/respuestas/loterias/kabala-en-vivo-hoy-sabado-7-de-febrero-de-2026-resultados-sorteo-y-jugada-ganadora-tinka-chau-chamba-intralot-pozo-buenazo-loteria-tinkanet-lbposting-noticia/)
+- **La Kábala: resultados del último sorteo del martes 3 de febrero de 2026**: [Link](https://elcomercio.pe/respuestas/loterias/kabala-en-vivo-resultados-hoy-martes-3-de-febrero-de-2026-ver-numeros-ganadores-y-premios-sorteo-intralot-pozo-buenazo-la-tinka-chau-chamba-intralot-tinkanet-loteria-lbposting-noticia/)
+- **Sorteo de la Kábala en vivo hoy 5 de febrero 2026: resultados oficiales, números y pozo Buenazo**: [Link](https://larepublica.pe/sociedad/2026/02/04/sorteo-kabala-5-de-febrero-2026-resultados-oficiales-numeros-ganadores-y-pozo-buenazo-atmp-332112)
+
+
 ### psg (N/A, 08/02/2026 15:35 Lima)
 
 - **OM : Medina promet du jeu**: [Link](https://www.maxifoot.fr/om/medina-promet-du-jeu-foot-449944.htm)
@@ -951,75 +1021,5 @@ Sin noticias relacionadas disponibles.
 
 - **Tickets for the semi-final against Antwerp**: [Link](https://www.rsca.be/en/news/tickets-semi-final-against-antwerp)
 - **Belgian Cup: Anderlecht vs Antwerp Prognose, Team News, Preview – 5/2/2026**: [Link](https://dailystar.com.lb/belgian-cup-anderlecht-vs-antwerp-prognose-preview-5-2-2026/)
-
-
-### real betis vs. valencia c. f. (N/A, 05/02/2026 15:39 Lima)
-
-- **Pronóstico Real Betis Valencia - LaLiga 01/02/26**: [Link](https://www.sportytrader.com/es/pronosticos/real-betis-valencia-323499/)
-- **Resumen y goles del Eibar vs. Sporting de LaLiga Hypermotion**: [Link](https://as.com/futbol/videos/resumen-y-goles-del-eibar-vs-sporting-de-laliga-hypermotion-f202602-v/)
-- **Betis en duro encuentro ante Valencia con la misión de mantenerse en puestos europeos**: [Link](https://www.espn.com.mx/futbol/espana/nota/_/id/16257807/betis-vs-valencia-equipo-fecha-hora-tv-en-vivo)
-
-
-### parma vs. juventus (N/A, 05/02/2026 15:39 Lima)
-
-- **Only one Juventus regular starter could be rested in Parma**: [Link](https://www.juvefc.com/spalletti-bremer-parma-juventus-gatti/)
-- **Inter consolidate their lead in Cremona and Juve make it four in Parma: now it's the turn of Milan and Roma, who face two tricky away games.**: [Link](https://www.firstonline.info/en/inter-consolida-il-primato-a-cremona-e-la-juve-fa-poker-a-parma-ora-tocca-a-milan-e-roma-attese-da-due-insidiose-trasferte/)
-- **The Old Lady Speaks Podcast, Episode 323: Good vibes continue to roll in Juve’s win over Parma**: [Link](https://www.blackwhitereadallover.com/the-old-lady-speaks-juventus-podcast/36140/episode-323-juventus-2026-serie-a-champions-league-lucinao-spalletti-winter-transfer-window)
-
-
-### resultados de la tinka hoy (N/A, 05/02/2026 11:57 Lima)
-
-- **La Tinka: conoce los ganadores del sorteo del miércoles 4 de febrero de 2026**: [Link](https://www.infobae.com/peru/2026/02/05/resultados-de-la-tinka-ganadores-del-4-de-febrero-de-2026/)
-- **La Tinka: revisa AQUÍ los resultados del miércoles 4 de febrero de 2026**: [Link](https://www.expreso.com.pe/variedades/la-tinka-revisa-aqui-los-resultados-del-miercoles-4-de-febrero-de-2026-sorteo-loteria-pozo-millonario-aciertos-peru-noticia/1261461/)
-- **La Tinka: resultados, números y premios ganados el domingo 1 de febrero de 2026**: [Link](https://elcomercio.pe/respuestas/loterias/la-tinka-hoy-domingo-1-de-febrero-en-vivo-resultados-del-ultimo-sorteo-numeros-y-jugada-ganadora-tinkanet-pozo-millonario-loteria-si-o-si-boliyapa-intralot-lbposting-noticia/)
-
-
-### milo j estadio nacional (N/A, 05/02/2026 11:57 Lima)
-
-- **Milo J en Lima: Concierto en el Estadio Nacional en abril**: [Link](https://peru21.pe/cultura/milo-j-en-lima-concierto-en-el-estadio-nacional-en-abril/)
-- **Milo J en Lima 2026: precios, fecha y cuándo es la preventa de entradas en Teleticket para el concierto en el Estadio Nacional de Perú**: [Link](https://larepublica.pe/entretenimiento/2026/02/05/milo-j-en-lima-2026-precios-fecha-y-cuando-es-la-preventa-de-entradas-en-teleticket-para-el-concierto-en-el-estadio-nacional-de-peru-49212)
-- **Milo J muda su concierto en Perú al Estadio Nacional frente a la gran acogida de sus fans**: [Link](https://elcomercio.pe/luces/musica/milo-j-muda-su-concierto-en-peru-al-estadio-nacional-frente-a-la-gran-acogida-de-sus-fans-celebs-ultimas-noticia/)
-
-
-### kocaelispor - beşiktaş (N/A, 05/02/2026 11:57 Lima)
-
-- **CANLI | Kocaelispor - Beşiktaş maçı Canlı Anlatım - Kocaeli - BJK maçı kadrosu, skoru ve istatistikleri**: [Link](https://www.fanatik.com.tr/besiktas/live-kocaelispor-besiktas-maci-canli-anlatim-kocaeli-bjk-maci-kadrosu-skoru-ve-istatistikleri-2611046)
-- **Beşiktaş'ta Yasin Özcan ve Olaitan kadroda! - Futbol Haberleri**: [Link](https://www.haberturk.com/besiktas-ta-yasin-ozcan-ve-olaitan-kadroda-3859486-spor)
-- **Sergen Yalçın: "Umarım işler bizim için iyi olur"**: [Link](https://www.ntvspor.net/futbol/sergen-yalcin-umarim-isler-bizim-icin-iyi-olur-417352)
-
-
-### dolares a soles (N/A, 05/02/2026 11:57 Lima)
-
-- **Precio del dólar en Perú HOY, jueves 5 de febrero: ¿cuál es la cotización del tipo de cambio?**: [Link](https://larepublica.pe/economia/precio-del-dolar/2026/02/05/precio-del-dolar-en-peru-hoy-jueves-5-de-febrero-cual-es-la-cotizacion-del-tipo-de-cambio-dolares-a-soles-ocona-dolar-bloomberg-atmp-227984)
-- **Dólar inicia la jornada a la baja: ¿en cuánto se cotiza el billete verde?**: [Link](https://peru21.pe/economia/dolar-inicia-jornada-la-baja-en-cuanto-se-cotiza-el-billete-verde/)
-- **¿Cuál es la cotización del dólar hoy jueves 5 de febrero del 2026?**: [Link](https://andina.pe/agencia/noticia-cual-es-cotizacion-del-dolar-hoy-jueves-5-febrero-del-2026-1061969.aspx)
-
-
-### spurs - thunder (N/A, 05/02/2026 08:14 Lima)
-
-- **San Antonio vs Oklahoma City Thunder, Final Score: Spurs outlast the Thunder bench crew 116-106**: [Link](https://www.poundingtherock.com/game-recaps/94309/san-antonio-vs-oklahoma-city-thunder-final-score-spurs-outlast-the-thunder-bench-crew-116-106)
-- **Keldon Johnson Drops 25 PTS Off the Bench in Win vs. OKC**: [Link](https://bvmsports.com/2026/02/05/keldon-johnson-drops-25-pts-off-the-bench-in-win-vs-okc/)
-- **Photos: Spurs vs. Oklahoma Thunder | 2/4/26**: [Link](https://www.nba.com/spurs/photos/photos-spurs-vs-oklahoma-thunder-2-4-26)
-
-
-### atalanta vs juventus (N/A, 05/02/2026 08:14 Lima)
-
-- **Palladino: ‘Lookman asked to leave, Atalanta ready for strong Juventus’**: [Link](https://football-italia.net/palladino-lookman-ask-leave-atalanta-juventus/)
-- **Coppa Italia 2025-2026: Italia 1 Broadcasts First Quarterfinals**: [Link](https://www.filmogaz.com/133560)
-- **Preview: Atalanta vs Juventus**: [Link](https://www.juventus.com/en/news/articles/preview-atalanta-vs-juventus-italian-cup-05-02-26)
-
-
-### premios luces nominados (N/A, 05/02/2026 08:14 Lima)
-
-- **Premios Luces 2026: esta es la lista completa de nominados**: [Link](https://elcomercio.pe/luces/musica/premios-luces-2026-conoce-a-los-nominados-lista-completa-noticia/)
-- **Programas de TVPerú son nominados a Premios Luces 2026**: [Link](https://www.tvperu.gob.pe/noticias/cultural/programas-de-tvperu-son-nominados-a-premios-luces-2026)
-- **ContraCorriente y Willax Deportes son nominados a los Premios Luces 2026**: [Link](https://willax.pe/entretenimiento/contracorriente-willax-deportes-nominados-premios-luces-2026-willax)
-
-
-### bet 365 (N/A, 05/02/2026 03:53 Lima)
-
-- **bet365 bonus code ALBET365: Claim $200 in bonuses for Seahawks vs. Patriots in Super Bowl 60**: [Link](https://www.al.com/betting/2026/02/bet365-bonus-code-albet365-claim-200-in-bonuses-for-seahawks-vs-patriots-in-super-bowl-60.html)
-- **bet365 Bonus Code FOX365 Scores $200 in Bonus Bets for the Big Game**: [Link](https://www.foxsports.com/stories/betting/bet365-bonus-code-fox365-scores-200-bonus-bets-big-game)
-- **Bet365 Bonus Code WTOP365: Get $200 Bonus for Knicks-Nuggets, NBA, Big Game**: [Link](https://wtop.com/sports/2026/02/bet365-bonus-code-wtop365-get-200-bonus-for-knicks-nuggets-nba-big-game/)
 
 
