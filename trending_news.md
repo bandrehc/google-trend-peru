@@ -1,3 +1,38 @@
+### liga peruana de vóley alianza lima (N/A, 09/02/2026 08:21 Lima)
+
+- **Tabla de posiciones de la Liga Peruana de Vóley 2026: así van los equipos tras la fecha 5 de la Fase 2**: [Link](https://www.infobae.com/peru/deportes/2026/02/07/tabla-de-posiciones-liga-peruana-de-voley-2025-2026-hoy-fecha-5-fase-2-alianza-lima-universitario-san-martin-regatas-lima/)
+- **La sorpresa de la jornada: Universitario cayó 3-0 ante Atenea por la fase 2 de la Liga Peruana de Vóley 2026**: [Link](https://rpp.pe/voley/mas-voley/universitario-vs-atenea-a-que-hora-juegan-y-como-ver-fecha-5-fase-2-liga-peruana-de-voley-2026-via-latina-voley-en-vivo-noticia-1674871)
+- **Partidos Liga Peruana de Vóley 2026: resultados y tabla de posiciones de la fecha 5**: [Link](https://libero.pe/deportes/voley/2026/02/03/tabla-de-posiciones-liga-peruana-de-voley-programacion-de-partidos-de-segunda-fase-181935)
+
+
+### guillermo príncipe de gales (N/A, 09/02/2026 08:21 Lima)
+
+- **Una serie de fotos de los archivos Epstein parecen mostrar al expríncipe Andrés en el suelo con una mujer**: [Link](https://cnnespanol.cnn.com/2026/01/31/eeuu/fotos-exprincipe-andres-mujer-epstein-trax)
+- **Los príncipes de Gales dicen estar "profundamente preocupados" por el escándalo Epstein**: [Link](https://rpp.pe/mundo/europa/los-principes-de-gales-dicen-estar-profundamente-preocupados-por-el-escandalo-epstein-noticia-1675058)
+- **El expríncipe Andrés invitó a Epstein y mujer rumana ‘muy mona’ al palacio de Buckingham**: [Link](https://elcomercio.pe/mundo/europa/jeffrey-epstein-el-exprincipe-andres-invito-al-depravado-sexual-y-mujer-rumana-muy-mona-al-palacio-de-buckingham-londres-reino-unido-ultimas-noticia/)
+
+
+### rpp noticias (N/A, 09/02/2026 08:21 Lima)
+
+- **Partidos de hoy, domingo 8 de febrero de 2026: programación, canales TV y resultados en vivo**: [Link](https://www.infobae.com/peru/deportes/2026/02/08/partidos-de-hoy-domingo-8-de-febrero-de-2026-programacion-canales-tv-y-resultados-en-vivo/)
+- **Partidos de hoy, domingo 8 de febrero del 2026: a qué hora juegan y en qué canales ver fútbol EN VIVO**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/partidos-de-hoy-domingo-8-de-febrero-del-2026-resultados-programacion-horarios-canales-tv-y-donde-ver-futbol-en-vivo-noticia/)
+- **Partidos de hoy EN VIVO, domingo 8 de febrero: programación y dónde ver fútbol online**: [Link](https://libero.pe/futbol-internacional/2026/02/07/partidos-de-hoy-en-vivo-domingo-8-de-febrero-171850)
+
+
+### young miko (N/A, 09/02/2026 08:21 Lima)
+
+- **Young Miko: "En la oscuridad también se pueden encontrar cosas lindas**: [Link](https://billboard.ar/entrevistas/young-miko-en-la-oscuridad-tambien-se-pueden-encontrar-cosas-lindas/)
+- **Ni cortas, ni cuadradas, ni nude: las uñas ‘clásicas’ más cool son las de Karol G y Lady Gaga en la Super Bowl 2026**: [Link](https://www.vogue.es/articulos/unas-clasicas-rojas-karolg-lady-gaga-super-bowl-2026)
+- **Sí, las sandalias trepadoras de Karol G (en la Super Bowl) vuelven cada primavera**: [Link](https://www.corrienteshoy.com/mujeres/si-las-sandalias-trepadoras-de-karol-g-en-la-super-bowl-vuelven-cada-primavera.htm)
+
+
+### encuesta presidencial 2026 (N/A, 09/02/2026 08:21 Lima)
+
+- **Datum: Voto blanco y nulo podría alcanzar récord histórico en 2026**: [Link](https://canaln.pe/actualidad/datum-voto-blanco-y-nulo-alcanzarian-record-historico-2026-n490167)
+- **Elecciones 2026: López Aliaga lidera la intención de voto**: [Link](https://www.americatv.com.pe/noticias/actualidad/elecciones-2026-rafael-lopez-aliaga-lidera-intencion-voto-n515625)
+- **En manos de los indecisos**: [Link](https://elcomercio.pe/opinion/editorial/en-manos-de-los-indecisos-los-historicos-niveles-de-indefinicion-politica-que-advierten-las-encuestas-de-intencion-de-voto-deberian-ser-motivo-de-suma-preocupacion-elecciones-generales-del-2026-encuesta-de-el-comercio-datum-internacional-noticia/)
+
+
 ### bet 365 (N/A, 09/02/2026 04:00 Lima)
 
 - **Super Bowl DraftKings Promo Code: Here’s the Last Chance at $300 Bonus**: [Link](https://wtop.com/sports/2026/02/super-bowl-draftkings-promo-code-heres-the-last-chance-at-300-bonus/)
@@ -989,38 +1024,5 @@ Sin noticias relacionadas disponibles.
 - **Precio del dólar en Perú del jueves 5 de febrero: a cuánto cerró el tipo de cambio**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-2026-cuanto-esta-el-dolar-este-jueves-5-de-febrero-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
 - **Dólar inicia la jornada a la baja: ¿en cuánto se cotiza el billete verde?**: [Link](https://peru21.pe/economia/dolar-inicia-jornada-la-baja-en-cuanto-se-cotiza-el-billete-verde/)
 - **Tipo de cambio hoy en Perú: ¿En cuánto cerró el dólar este jueves 5 de febrero?**: [Link](https://gestion.pe/economia/mercados/tipo-de-cambio-dolar-hoy-en-peru-cuanto-esta-el-precio-del-dolar-este-jueves-5-de-febrero-dolares-a-soles-compra-y-venta-bcrp-noticia/)
-
-
-### aeropuerto jorge chavez (N/A, 05/02/2026 21:36 Lima)
-
-- **Aeropuerto Jorge Chávez: falla en el sistema de radar obliga a retrasar vuelos**: [Link](https://elcomercio.pe/lima/sucesos/aeropuerto-jorge-chavez-varios-vuelos-paralizados-por-fallas-en-el-sistema-de-radar-corpac-vuelos-nacionales-ultimas-noticia/)
-- **Aeropuerto Jorge Chávez: reportan poblemas en el sistema de radar y retraso de vuelos**: [Link](https://gestion.pe/peru/aeropuerto-jorge-chavez-reportan-poblemas-en-el-sistema-de-radar-y-retraso-de-vuelos-noticia/)
-- **Corpac restablece el control del tránsito aéreo en el Jorge Chávez tras fallas técnicas**: [Link](https://andina.pe/agencia/noticia-corpac-restablece-control-del-transito-aereo-el-jorge-chavez-tras-fallas-tecnicas-1062067.aspx)
-
-
-### alianza lima femenino (N/A, 05/02/2026 21:36 Lima)
-
-- **Alianza Lima vs Liga de Quito EN VIVO: sigue aquí la Noche Blanquiazul Femenina 2026**: [Link](https://libero.pe/futbol-peruano/alianza-lima/2026/02/05/alianza-lima-vs-liga-de-quito-en-vivo-gratis-noche-blanquiazul-femenina-hora-donde-ver-via-liga-1-max-video-vilb-423140)
-- **Sisy Quiroz: "Año a año iremos mejorando el nivel de nuestras jugadoras extranjeras"**: [Link](https://ovacion.pe/noticias/alianza-lima/sisy-quiroz-ano-ano-iremos-mejorando-nivel-nuestras-jugadoras-extranjeras)
-- **Alianza Lima vs LDU EN VIVO por la Noche Blanquiazul Femenina 2026: blanquiazules vencen 2-0 a ecuatorianas**: [Link](https://larepublica.pe/deportes/2026/02/04/alianza-lima-vs-ldu-quito-en-vivo-noche-blanquiazul-femenina-2026-via-l1-max-376348)
-
-
-### barracas central (N/A, 05/02/2026 21:36 Lima)
-
-- **Ni Magis TV ni Pelota Libre: cómo ver Barracas Central vs Temperley EN VIVO por Internet**: [Link](https://noticiasargentinas.com/deportes/ni-magis-tv-ni-pelota-libre--como-ver-barracas-central-vs-temperley-en-vivo-por-internet_a69840373cbf033dd9986063e)
-- **El ex River que debutará como entrenador en la Copa Argentina**: [Link](https://www.elgrafico.com.ar/articulo/copa-argentina/97420/el-ex-river-que-debutara-como-entrenador-en-la-copa-argentina)
-- **El Guapo se enfrentara al Gasolero**: [Link](https://www.vavel.com/ar/futbol-argentino/2026/02/04/1249745.html)
-
-
-### vasco de gama vs (N/A, 05/02/2026 21:36 Lima)
-
-Sin noticias relacionadas disponibles.
-
-
-### cruzeiro - coritiba (N/A, 05/02/2026 21:36 Lima)
-
-- **De virada, Coritiba derrota o Cruzeiro no Mineirão**: [Link](https://rede98.com.br/esportes/de-virada-coritiba-derrota-o-cruzeiro-no-mineirao/)
-- **Aos 45 min do 1º tempo - gol de dentro da área de Lavega do Coritiba contra o Cruzeiro**: [Link](https://ge.globo.com/futebol/video/aos-45-min-do-1o-tempo-gol-de-dentro-da-area-de-lavega-do-coritiba-contra-o-cruzeiro-14321683.ghtml)
-- **Arroyo ou Wanderson? Totonho revela sua preferência no time titular**: [Link](https://www.otempo.com.br/canal-o-tempo/programas/barba-cabelo-e-bigode/2026/2/5/arroyo-ou-wanderson-totonho-revela-sua-preferencia-no-time-titular)
 
 
