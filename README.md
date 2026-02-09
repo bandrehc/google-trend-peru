@@ -1,3 +1,17 @@
+### bet 365 (N/A, 09/02/2026 04:00 Lima)
+
+- **Super Bowl DraftKings Promo Code: Here’s the Last Chance at $300 Bonus**: [Link](https://wtop.com/sports/2026/02/super-bowl-draftkings-promo-code-heres-the-last-chance-at-300-bonus/)
+- **Use bet365 bonus code CBSBET365 to get $100 bonus bets by targeting Duke-UNC, Michigan State-Illinois tonight**: [Link](https://www.cbssports.com/nba/news/use-bet365-bonus-code-cbsbet365-get-200-bonus-bets-mavericks-celtics-pistons-nuggets/)
+- **BetMGM Bonus Code PLAYLSR: $1,500 Offer for Super Bowl**: [Link](https://www.legalsportsreport.com/253724/betmgm-bonus-code-super-bowl-60-first-bet-bonus-1500/)
+
+
+### juan pablo guanipa (N/A, 09/02/2026 04:00 Lima)
+
+- **Excarcelan a aliados de opositora Machado días antes de amnistía en Venezuela**: [Link](https://andina.pe/agencia/noticia-excarcelan-a-aliados-opositora-machado-dias-antes-amnistia-venezuela-1062353.aspx)
+- **EL MIEDO SE ACABÓ: El grito que estremeció Caracas este domingo**: [Link](https://peru21.pe/mundo/el-miedo-se-acabo-el-grito-que-estremecio-caracas-este-domingo/)
+- **Excarcelan en Venezuela a Juan Pablo Guanipa, dirigente cercano a María Corina Machado**: [Link](https://elcomercio.pe/mundo/venezuela/juan-pablo-guanipa-venezuela-excarcelan-al-dirigente-cercano-a-maria-corina-machado-delcy-rodriguez-nicolas-maduro-ultimas-noticia/)
+
+
 ### diosdado cabello (N/A, 09/02/2026 00:39 Lima)
 
 - **No va a parar el desmontaje chavista: hay que ir por la fecha de un acto electoral**: [Link](https://www.infobae.com/america/opinion/2026/02/05/no-va-a-parar-el-desmontaje-chavista-hay-que-ir-por-la-fecha-de-un-acto-electoral/)
@@ -1008,18 +1022,5 @@ Sin noticias relacionadas disponibles.
 - **De virada, Coritiba derrota o Cruzeiro no Mineirão**: [Link](https://rede98.com.br/esportes/de-virada-coritiba-derrota-o-cruzeiro-no-mineirao/)
 - **Aos 45 min do 1º tempo - gol de dentro da área de Lavega do Coritiba contra o Cruzeiro**: [Link](https://ge.globo.com/futebol/video/aos-45-min-do-1o-tempo-gol-de-dentro-da-area-de-lavega-do-coritiba-contra-o-cruzeiro-14321683.ghtml)
 - **Arroyo ou Wanderson? Totonho revela sua preferência no time titular**: [Link](https://www.otempo.com.br/canal-o-tempo/programas/barba-cabelo-e-bigode/2026/2/5/arroyo-ou-wanderson-totonho-revela-sua-preferencia-no-time-titular)
-
-
-### juventud - u. católica (N/A, 05/02/2026 21:36 Lima)
-
-- **Copa Libertadores: Juventud se enfrentará ante U. Católica (E) por la llave 2**: [Link](https://rpp.pe/futbol/ligas-internacionales/copa-libertadores-juventud-se-enfrentara-ante-u-catolica-e-por-la-llave-2-noticia-1674426)
-- **Universidad Católica y su primer examen en Copa Libertadores ante Juventud: este es el valor de mercado de ambos equipos**: [Link](https://www.eluniverso.com/deportes/futbol/universidad-catolica-y-su-primer-examen-en-copa-libertadores-ante-juventud-este-es-el-valor-de-mercado-de-ambos-equipos-nota/)
-- **Ni Magis TV ni Pelota Libre: cómo ver Juventud de Las Piedras vs Universidad Católica (E) EN VIVO por Internet**: [Link](https://noticiasargentinas.com/deportes/ni-magis-tv-ni-pelota-libre--como-ver-juventud-de-las-piedras-vs-universidad-catolica--e--en-vivo-por-internet_a698400f7cbf033dd9985ea17)
-
-
-### corinthians vs (N/A, 05/02/2026 21:36 Lima)
-
-- **Corinthians vs Capivariano: partidazo en vivo por el Campeonato Paulista**: [Link](https://www.futbolperuano.com/en-vivo/campeonato-paulista-2026-corinthians-vs-capivariano-en-vivo-562604)
-- **Corinthians vs Palmeiras: pronósticos, cuotas y datos para apostar**: [Link](https://www.apwin.com/es/pronosticos/corinthians-vs-palmeiras-pronostico-paulista-a1-09-02-2026/)
 
 
