@@ -1,3 +1,73 @@
+### sorteo la tinka (N/A, 09/02/2026 15:49 Lima)
+
+- **La Tinka del domingo 8 de febrero de 2026: estos son los números ganadores del sorteo**: [Link](https://www.infobae.com/peru/2026/02/09/resultados-ganadores-de-la-tinka-este-domingo-8-de-febrero/)
+- **Resultados de La Tinka del domingo 08 de febrero**: [Link](https://www.americatv.com.pe/americlub/tinka-resultados-sorteo-jugado-domingo-08-febrero-noticia-162846)
+- **Resultados de la Tinka: números ganadores del domingo 8 de febrero**: [Link](https://elcomercio.pe/respuestas/loterias/resultados-tinka-en-vivo-hoy-sorteo-del-domingo-8-de-febrero-de-2026-y-numeros-de-la-jugada-ganadora-tinkanet-pozo-millonario-resultado-si-o-si-boliyapa-intralot-lbposting-noticia/)
+
+
+### racing de santander - mirandés (N/A, 09/02/2026 15:49 Lima)
+
+- **2ª división / 2ª RFEF (G2): Racing – Mirandés / Tudelano – UD Logroñés**: [Link](https://www.pensadordeapuestas.com/2a-division-2a-rfef-g2-racing-mirandes-tudelano-ud-logrones/)
+- **El Mirandés quiere hacerse con los tres puntos en el partido más desigual**: [Link](https://www.elcorreo.com/mirandes/mirandes-quiere-hacerse-tres-puntos-partido-desigual-20260208223640-nt.html)
+- **Racing Santander - Mirandés en directo**: [Link](https://www.elmundo.es/deportes/futbol/laliga-hypermotion/racing-santander-mirandes/2026/02/09/01_0102_20260209_189_5741-directo.html)
+
+
+### fc cajamarca - deportivo garcilaso (N/A, 09/02/2026 15:49 Lima)
+
+- **FC Cajamarca vs. Deportivo Garcilaso EN VIVO vía Liga 1 MAX por Movistar TV: transmisión gratis**: [Link](https://depor.com/futbol-peruano/descentralizado/fc-cajamarca-vs-deportivo-garcilaso-en-vivo-hoy-gratis-liga-1-max-futbol-libre-tv-movistar-tv-directv-con-hernan-barcos-en-directo-transmision-por-internet-video-noticia/)
+- **🔴#ENVIVO | Sigue las incidencias del partido entre FC Cajamarca y Deportivo Garcilaso**: [Link](https://ovacion.pe/noticias/liga1-2026/envivo-sigue-las-incidencias-del-partido-entre-fc-cajamarca-deportivo-garcilaso)
+- **Sigue, FC Cajamarca vs Deportivo Garcilaso EN VIVO por la Liga 1 2026**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/fc-cajamarca-vs-deportivo-garcilaso-en-vivo-hora-y-donde-ver-la-fecha-2-del-torneo-apertura-de-la-liga-1-2026-transmision-l1play-l1max-tdpe-noticia/)
+
+
+### el caballero de los 7 reinos capitulo 5 (N/A, 09/02/2026 15:49 Lima)
+
+- **El caballero de los Siete Reinos ya tiene su nuevo episodio en HBO Max: no tendrás que esperar al lunes**: [Link](https://www.hobbyconsolas.com/hobbycine/caballero-los-siete-reinos-ya-tiene-su-nuevo-episodio-hbo-max-no-tendras-que-esperar-lunes_6930832_0.html)
+- **El Caballero de los Siete Reinos: cuándo se estrena el episodio 5 en México**: [Link](https://www.infobae.com/mexico/2026/02/09/el-caballero-de-los-siete-reinos-cuando-se-estrena-el-episodio-5-en-mexico/)
+- **Ésto es lo que duraría la serie de A Knight of the Seven Kingdoms**: [Link](https://atomix.vg/esto-es-lo-que-duraria-la-serie-de-a-knight-of-the-seven-kingdoms)
+
+
+### roma vs cagliari pronóstico (N/A, 09/02/2026 15:49 Lima)
+
+- **Cuándo juegan Roma vs. Cagliari por la Serie A: equipo, fecha, hora y TV en vivo**: [Link](https://www.espn.com.pe/futbol/italia/nota/_/id/16274343/roma-vs-cagliari-fecha-24-serie-a-futbol-italia-equipo-hora-tv-en-vivo)
+- **Serie A: Roma intentará cortar la racha positiva de Cagliari**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-roma-intentara-cortar-la-racha-positiva-de-cagliari-noticia-1674976)
+- **El partido AS Roma vs Cagliari está en marcha, en vivo por ANTV esta mañana**: [Link](https://www.ucvradio.pe/mas-actualidad/el-partido-as-roma-vs-cagliari-esta-en-marcha-en-vivo-por-antv-esta-manana/126337/)
+
+
+### roma vs (N/A, 09/02/2026 15:49 Lima)
+
+- **Official: Gasperini confirms 21-man Roma squad for Cagliari**: [Link](https://football-italia.net/gasperini-confirms-21-man-roma-squad-cagliari/)
+- **Video: Malen scores delightful first Roma goal at the Olimpico**: [Link](https://sports.yahoo.com/articles/video-malen-scores-delightful-first-203000083.html)
+- **Gasperini undecided between Pellegrini and Zaragoza**: [Link](https://romapress.net/gasperini-undecided-between-pellegrini-and-zaragoza/)
+
+
+### villarreal vs espanyol (N/A, 09/02/2026 15:49 Lima)
+
+- **Villarreal vs. Espanyol: La Liga betting odds, prediction, pick**: [Link](https://www.usatoday.com/story/sports/soccer/2026/02/09/villarreal-vs-espanyol-la-liga-betting-odds-prediction-pick/88584461007/)
+- **Villarreal - Espanyol live**: [Link](https://www.marca.com/en/soccer/laliga-ea-sports/villarreal-espanyol/2026/02/09/01_0101_20260209_449_177-live.html)
+- **Where to Watch Villarreal CF vs. Espanyol: TV Channel, Start Time and Live Stream**: [Link](https://www.bleachernation.com/how-to-watch/2026/02/08/where-to-watch-villarreal-cf-vs-espanyol-tv-channel-start-time-and-live-stream-3/)
+
+
+### villarreal - rcd espanyol (N/A, 09/02/2026 15:49 Lima)
+
+- **Villarreal - Espanyol hoy, en directo: LaLiga EA Sports, última hora en La Cerámica en vivo**: [Link](https://as.com/futbol/primera/villarreal-espanyol-en-directo-ultima-hora-de-laliga-ea-sports-hoy-en-vivo-f202602-d/)
+- **Apuestas y Pronóstico del Villarreal vs Espanyol 09/02/26**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2026/febrero/pronostico-villarreal-vs-espanyol-09-02-26)
+- **LaLiga EA Sports: Espanyol tiene la necesidad de cortar su racha negativa frente a Villarreal**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-espanyol-tiene-la-necesidad-de-cortar-su-racha-negativa-frente-a-villarreal-noticia-1674980)
+
+
+### roma - cagliari (N/A, 09/02/2026 15:49 Lima)
+
+- **LIVE Al 45' Roma-Cagliari 1-0: cucchiaio di Malen per il vantaggio, Ghilardi sfiora il raddoppio**: [Link](https://www.gazzetta.it/Calcio/Serie-A/09-02-2026/roma-cagliari-live-risultato-e-gol-serie-a-in-diretta.shtml)
+- **Roma-Cagliari: le formazioni ufficiali**: [Link](https://www.asroma.com/it/notizie/74842/roma-cagliari-le-formazioni-ufficiali)
+- **Serie A: Roma-Cagliari 1-0 DIRETTA e FOTO**: [Link](https://www.ansa.it/sito/notizie/sport/calcio/2026/02/09/serie-a-roma-cagliari-1-0-diretta-e-foto_5076cf95-4424-4a38-addb-1e861ab345a4.html)
+
+
+### famalicao (N/A, 09/02/2026 15:49 Lima)
+
+- **Famalicão: Corte no abastecimento de água a Joane**: [Link](https://sapo.pt/artigo/famalicao-corte-no-abastecimento-de-agua-a-joane-698a214a857341060ccd2164)
+- **Famalicão: Comunidade de Lagoa celebra o Carnaval nas ruas a 15 de fevereiro**: [Link](https://famaradio.tv/famalicao/02/09/famalicao-comunidade-de-lagoa-celebra-o-carnaval-nas-ruas-a-15-de-fevereiro/)
+- **Famalicão assegura autocarros gratuitos e bilhete especial de comboio para noite de Carnaval**: [Link](https://ovilaverdense.pt/famalicao-assegura-autocarros-gratuitos-e-bilhete-especial-de-comboio-para-noite-de-carnaval/)
+
+
 ### liga peruana de vóley alianza lima (N/A, 09/02/2026 08:21 Lima)
 
 - **Tabla de posiciones de la Liga Peruana de Vóley 2026: así van los equipos tras la fecha 5 de la Fase 2**: [Link](https://www.infobae.com/peru/deportes/2026/02/07/tabla-de-posiciones-liga-peruana-de-voley-2025-2026-hoy-fecha-5-fase-2-alianza-lima-universitario-san-martin-regatas-lima/)
@@ -954,75 +1024,5 @@ Sin noticias relacionadas disponibles.
 - **Luka Doncic to have an MRI after leaving Lakers' game against 76ers with left hamstring injury**: [Link](https://apnews.com/article/lakers-luka-doncic-injured-775c25d44654391104565be405268e25)
 - **JJ Redick reveals what Luke Kennard brings to the team**: [Link](https://basketnews.com/news-240674-jj-redick-reveals-what-luke-kennard-brings-to-the-team.html)
 - **Austin Reaves returns to All-Star form in comeback win over Sixers**: [Link](https://sports.yahoo.com/articles/austin-reaves-returns-star-form-053810278.html)
-
-
-### pablo guede (N/A, 06/02/2026 03:52 Lima)
-
-- **Paolo Guerrero y el consejo a Federico Girotti: “Tiene olfato de gol, pero no llega su oportunidad”**: [Link](https://depor.com/futbol-peruano/copa-libertadores/alianza-lima-paolo-guerrero-hablo-tras-derrota-en-copa-libertadores-frente-a-2-de-mayo-y-envio-consejo-a-federico-girotti-video-noticia/)
-- **Pablo Guede recriminó a Renzo Garcés por darle la cinta de capitán a Paolo Guerrero en pleno partido de Alianza Lima: "¡Dale, boludo!"**: [Link](https://larepublica.pe/deportes/2026/02/04/pablo-guede-recrimino-a-renzo-garces-por-darle-la-cinta-de-capitan-a-paolo-guerrero-en-pleno-partido-de-alianza-lima-ante-2-de-mayo-por-copa-libertadores-dale-boludo-346120)
-- **Fernando Cabada dio contundente comentario sobre Alianza Lima y resolvió la situación de Pablo Guede**: [Link](https://bolavip.com/pe/alianza-lima/fernando-cabada-dio-contundente-comentario-sobre-alianza-lima-y-resolvio-la-situacion-de-pablo-guede)
-
-
-### perú vs bolivia (N/A, 06/02/2026 03:52 Lima)
-
-- **Bolivia vs Perú: Resultado EN VIVO, minuto a minuto y goles del Sudamericano Sub 20 Femenino**: [Link](https://www.365scores.com/es/news/bolivia-vs-peru-resultado-en-vivo-minuto/)
-- **La selección peruana femenina venció 2-0 a Bolivia en su debut en el Sudamericano Sub 20**: [Link](https://elcomercio.pe/deporte-total/seleccion/la-seleccion-peruana-femenina-vencio-2-0-a-bolivia-en-su-debut-en-el-sudamericano-sub-20-noticia/)
-- **Tabla del Sudamericano Femenino Sub 20 2026: resultados y posiciones en la fase de grupos del torneo**: [Link](https://rpp.pe/futbol/seleccion-peruana/tabla-posiciones-sudamericano-femenino-sub-20-2026-en-vivo-resultados-de-hoy-directo-fase-de-grupos-con-peru-del-torneo-conmebol-noticia-1674547)
-
-
-### lakers vs (N/A, 06/02/2026 00:17 Lima)
-
-- **76ers vs Lakers Odds & Picks Tonight: OVER is the Play**: [Link](https://www.oddsshark.com/nba/sixers-lakers-picks-odds-february-5-2026)
-- **Sixers look to push win streak to 6 games vs. Los Angeles Lakers**: [Link](https://www.libertyballers.com/76ers-game-previews/85757/sixers-look-to-push-win-streak-to-6-games-vs-los-angeles-lakers)
-- **First Game Back After Long Road Trip Is Typically A Great Fade Spot**: [Link](https://www.outkick.com/betting/first-game-back-after-long-road-trip-typically-great-fade-spot)
-
-
-### lady gaga (N/A, 06/02/2026 00:17 Lima)
-
-- **Lady Gaga Almost Canceled Her Grammys Performance**: [Link](https://www.rollingstone.com/music/music-features/lady-gaga-almost-canceled-grammys-performance-1235510279/)
-- **Lady Gaga Soars on 2026 Grammys Red Carpet in Dramatic Feathered Gown and Bleach Blonde Glam**: [Link](https://people.com/grammys-2026-lady-gaga-dramatic-feathered-gown-photos-11895630)
-- **Lady Gaga Transforms Herself Into a Bird at Grammys 2026 in a Dramatic Feather LBD**: [Link](https://www.instyle.com/lady-gaga-grammys-2026-bird-feather-lbd-11888766)
-
-
-### alejandro aguinaga (N/A, 06/02/2026 00:17 Lima)
-
-- **JNE ratifica que Alejandro Aguinaga infringió la neutralidad electoral durante semana de representación**: [Link](https://canaln.pe/actualidad/jne-confirma-infraccion-neutralidad-electoral-alejandro-aguinaga-n490089)
-- **Elecciones 2026: Confirman que congresista de Fuerza Popular infringió neutralidad**: [Link](https://peru21.pe/politica/elecciones-2026-confirman-que-congresista-fuerza-popular-infringio-neutralidad/)
-- **Elecciones 2026: JNE sanciona a congresista Alejandro Aguinaga por vulnerar neutralidad electoral**: [Link](https://www.exitosanoticias.pe/politica/elecciones-2026-jne-sanciona-congresista-alejandro-aguinaga-vulnerar-neutralidad-electoral-n168146)
-
-
-### 76ers - lakers (N/A, 06/02/2026 00:17 Lima)
-
-- **Cavs’ unusual raised court draws new scrutiny after Luka Dončić injury - The Athletic**: [Link](https://www.nytimes.com/athletic/7005642/2026/01/28/luka-doncic-injury-lakers-cavaliers-nba/)
-- **Cavaliers, NBA to discuss changes to unusual raised court after Luka Dončić’s injury - The Athletic**: [Link](https://www.nytimes.com/athletic/7008562/2026/01/29/cavaliers-court-changes-nba-luka-doncic-injury-lakers/)
-- **Luka Doncic went back to the locker room during the second quarter against the 76ers**: [Link](https://nypost.com/2026/02/05/sports/luka-doncic-hurt-in-76ers-vs-lakers/)
-
-
-### warriors - suns (N/A, 06/02/2026 00:17 Lima)
-
-- **Warriors vs. Suns injury report: Steph Curry and Devin Booker are out**: [Link](https://www.goldenstateofmind.com/warriors-injury-report/108248/warriors-suns-injury-report-steph-curry-devin-booker)
-- **NBA picks: Dillon Brooks featured in Warriors vs. Suns same-game parlay for Thursday, Feb. 5**: [Link](https://www.cbssports.com/nba/news/nba-picks-dillon-brooks-featured-in-warriors-vs-suns-same-game-parlay-for-thursday-feb-5/)
-- **Hot-shooting Suns return home to face in-flux Warriors**: [Link](https://fieldlevelmedia.com/nba/hot-shooting-suns-return-home-to-face-in-flux-warriors/)
-
-
-### heated rivalry (N/A, 06/02/2026 00:17 Lima)
-
-- **The hit TV show that no one saw coming**: [Link](https://www.economist.com/culture/2026/02/05/the-hit-tv-show-that-no-one-saw-coming)
-- **Why Did ‘Heated Rivalry’ Strike Such A Chord? Top TV And Streaming Execs Have Some Ideas**: [Link](https://deadline.com/2026/02/why-did-heated-rivalry-strikes-a-chord-tv-streaming-1236710553/)
-- **Heated? Yes. Rivalry? No.**: [Link](https://www.nytimes.com/2026/02/06/style/brock-mcgillis-matthew-ward-hockey-player-wedding.html)
-
-
-### alianza lima vs copa libertadores (N/A, 05/02/2026 21:36 Lima)
-
-- **Lo que debe mejorar Alianza Lima para la vuelta vs. 2 de Mayo**: [Link](https://www.espn.com.pe/futbol/copa-libertadores/nota/_/id/16271385/lo-que-debe-mejorar-alianza-lima-para-la-vuelta-vs-2-de-mayo-guede)
-- **DT de 2 de Mayo minimiza la camiseta de Alianza Lima tras el triunfo: “El presupuesto no juega”**: [Link](https://depor.com/futbol-peruano/copa-libertadores/2-de-mayo-vs-alianza-lima-eduardo-ledesma-entrenador-paraguayo-hablo-sobre-el-triunfo-de-su-equipo-pese-a-la-diferencia-de-presupuesto-copa-libertadores-noticia/)
-- **Copa Libertadores: Alianza Lima cae ante el debutante 2 de Mayo en Paraguay**: [Link](https://andina.pe/agencia/noticia-copa-libertadores-alianza-lima-cae-ante-debutante-2-mayo-paraguay-1061939.aspx)
-
-
-### dolares a soles (N/A, 05/02/2026 21:36 Lima)
-
-- **Precio del dólar en Perú del jueves 5 de febrero: a cuánto cerró el tipo de cambio**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-2026-cuanto-esta-el-dolar-este-jueves-5-de-febrero-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
-- **Dólar inicia la jornada a la baja: ¿en cuánto se cotiza el billete verde?**: [Link](https://peru21.pe/economia/dolar-inicia-jornada-la-baja-en-cuanto-se-cotiza-el-billete-verde/)
-- **Tipo de cambio hoy en Perú: ¿En cuánto cerró el dólar este jueves 5 de febrero?**: [Link](https://gestion.pe/economia/mercados/tipo-de-cambio-dolar-hoy-en-peru-cuanto-esta-el-precio-del-dolar-este-jueves-5-de-febrero-dolares-a-soles-compra-y-venta-bcrp-noticia/)
 
 
