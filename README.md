@@ -1,3 +1,65 @@
+### diosdado cabello (N/A, 09/02/2026 00:39 Lima)
+
+- **No va a parar el desmontaje chavista: hay que ir por la fecha de un acto electoral**: [Link](https://www.infobae.com/america/opinion/2026/02/05/no-va-a-parar-el-desmontaje-chavista-hay-que-ir-por-la-fecha-de-un-acto-electoral/)
+- **Inválida nueva elección presidencial sin renuncia**: [Link](https://www.elnacional.com/2026/02/invalida-nueva-eleccion-presidencial-sin-renuncia/)
+
+
+### pato quiñones (N/A, 09/02/2026 00:39 Lima)
+
+- **Super Bowl 2026: 'Pato' Quiñones, el peruano que cargó a Bad Bunny y bailó con él durante el show de la NFL**: [Link](https://rpp.pe/famosos/farandula/super-bowl-2026-patricio-quinones-el-peruano-que-cargo-a-bad-bunny-y-bailo-con-el-durante-el-show-de-la-nfl-noticia-1675043)
+- **Pato Quiñones bailará junto a Bad Bunny en el show de medio tiempo del Super Bowl 2026**: [Link](https://elcomercio.pe/tvmas/farandula/bad-bunny-en-el-super-bowl-pato-quinones-bailara-junto-al-cantante-en-el-show-de-medio-tiempo-del-super-bowl-2026-ultimas-noticia/)
+- **¡Se lució! ‘Pato’ Quiñones bailó junto a Bad Bunny en el Super Bowl 2026 y cumplió su sueño**: [Link](https://trome.com/espectaculos/tv/patricio-quinones-baila-junto-a-bad-bunny-en-el-super-bowl-2026-y-cumple-su-sueno-foto-video-farandula-noticia/)
+
+
+### liam conejo ramos (N/A, 09/02/2026 00:39 Lima)
+
+- **¿Era Liam Ramos? La verdad sobre el niño que apareció en el show de Bad Bunny**: [Link](https://www.tudn.com/nfl/era-liam-ramos-la-verdad-sobre-el-nino-que-aparecio-en-el-show-de-bad-bunny-video)
+- **En un emotivo gesto, el artista urbano, Bad Bunny entregó uno de sus premios Grammy a Liam Ramos, el niño de cinco años que estaba en poder del ICE para ser deportado a su país. Más detalles en la sección #ElPaísHOY #PeriódicoHOY #GuardianesDe**: [Link](https://www.instagram.com/reel/DUhV39YD1Zt/)
+- **Niño detenido por ICE: ¿Es el mismo niño que salió con Bad Bunny en el Super Bowl?**: [Link](https://www.estadiodeportes.mx/deportes/el-nino-que-salio-con-bad-bunny-es-el-que-fue-detenido-por-ice-20260208-0062.html)
+
+
+### rafael lópez aliaga (N/A, 09/02/2026 00:39 Lima)
+
+- **Datum: Rafael López Aliaga lidera preferencias con 11,9%**: [Link](https://canaln.pe/actualidad/datum-rafael-lopez-aliaga-lidera-preferencias-119-n490172)
+- **Encuesta CPI: ¿Qué candidatos lideran la intención de voto para las próximas elecciones presidenciales?**: [Link](https://rpp.pe/politica/elecciones/encuesta-cpi-que-candidatos-lideran-la-intencion-de-voto-en-las-proximas-elecciones-presidenciales-noticia-1674323)
+- **Elecciones 2026: Veinticuatro candidatos tienen menos de 1% de intención de voto**: [Link](https://elcomercio.pe/politica/elecciones/elecciones-2026-encuesta-datum-internacional-febrero-veinticuatro-candidatos-tienen-menos-de-1-de-intencion-de-voto-12-de-abril-tlcnota-noticia/)
+
+
+### sam darnold (N/A, 09/02/2026 00:39 Lima)
+
+- **Super Bowl champion Sam Darnold's deferred destiny**: [Link](https://www.espn.com/nfl/story/_/id/47839325/super-bowl-lx-champion-sam-darnold-seattle-seahawks-quarterback-story-deferred-destiny)
+- **What college did Sam Darnold go to? Where Seahawks QB played college football**: [Link](https://sports.yahoo.com/articles/college-did-sam-darnold-where-235236320.html)
+- **Sam Darnold’s season as a backup with the 49ers helped him reach the Super Bowl**: [Link](https://apnews.com/article/super-bowl-sam-darnold-2140116ffb52d4cba30279ba981ad900)
+
+
+### carlos alvarez (N/A, 09/02/2026 00:39 Lima)
+
+- **"Da la sensación que está pintado": Mesías Guevara cuestiona a Carlos Álvarez por caso de franja electoral en País para Todos**: [Link](https://rpp.pe/politica/elecciones/elecciones-2026-mesias-guevara-cuestiona-a-carlos-alvarez-por-caso-de-franja-electoral-en-pais-para-todos-noticia-1674924)
+- **El especial sin humor, por Héctor Villalobos | OPINION**: [Link](https://elcomercio.pe/opinion/columnistas/el-especial-sin-humor-por-hector-villalobos-noticia/)
+- **Carlos Álvarez sigue en carrera con País Para Todos**: [Link](https://caretas.pe/home_web/home_principal_secundario/carlos-alvarez-sigue-en-carrera-con-pais-para-todos/)
+
+
+### donald trump (N/A, 09/02/2026 00:39 Lima)
+
+- **Bad Bunny's Super Bowl halftime show ignites Trump's fury, divides viewers**: [Link](https://www.foxnews.com/sports/bad-bunnys-super-bowl-halftime-show-ignites-trumps-fury-divides-viewers)
+- **Amanda Serrano says Jake Paul is 'wrong' for calling Bad Bunny a 'fake American' over Super Bowl halftime show**: [Link](https://sports.yahoo.com/boxing/article/amanda-serrano-says-jake-paul-is-wrong-for-calling-bad-bunny-a-fake-american-over-super-bowl-halftime-show-052522672.html)
+- **Trump calls Bad Bunny's Super Bowl halftime show a 'slap in the face to our country'**: [Link](https://abcnews.go.com/US/trump-calls-bad-bunnys-super-bowl-halftime-show/story?id=129980124)
+
+
+### liam ramos (N/A, 09/02/2026 00:39 Lima)
+
+- **U.S. Seeks to Expedite Deportation of 5-Year-Old Liam Conejo Ramos**: [Link](https://www.nytimes.com/2026/02/06/us/us-deportation-liam-conejo-ramos-minnesota.html)
+- **Family of Liam Conejo Ramos has more time to respond to DHS deportation proceedings**: [Link](https://www.mprnews.org/story/2026/02/05/liam-conejo-ramos-dhs-requests-expedited-deportation-proceedings-for-family)
+- **Trump lawyers aim to deport five-year-old boy after judge ordered his release**: [Link](https://www.theguardian.com/us-news/2026/feb/07/liam-conejo-ramos-deportation-trump-administration)
+
+
+### gimnasia y esgrima - instituto (N/A, 09/02/2026 00:39 Lima)
+
+- **Gran triunfo de Gimnasia de Mendoza sobre el final ante Instituto por el Torneo Apertura**: [Link](https://www.espn.com.ar/futbol/argentina/nota/_/id/16291551/gran-triunfo-de-gimnasia-de-mendoza-sobre-el-final-ante-instituto)
+- **Jara sin gol, Luna sin gol: el 1x1 de Insituto en la derrota ante Gimnasia en Mendoza**: [Link](https://www.lavoz.com.ar/deportes/futbol/jara-sin-gol-luna-sin-gol-el-1x1-de-insituto-en-la-derrota-ante-gimnasia-en-mendoza/)
+- **Ariel Broggi destacó el triunfo de Gimnasia y Esgrima: "Había que salir rápido de la nube negra"**: [Link](https://www.diariouno.com.ar/ovacion/futbol/ariel-broggi-destaco-el-triunfo-gimnasia-y-esgrima-habia-que-salir-rapido-la-nube-negra-n1524993)
+
+
 ### kendrick lamar (N/A, 08/02/2026 21:44 Lima)
 
 - **Showtime! Interesting facts about the Super Bowl halftime show**: [Link](https://www.nbcbayarea.com/super-bowl/super-bowl-halftime-show-performers-history-bad-bunny/4026320/)
@@ -959,67 +1021,5 @@ Sin noticias relacionadas disponibles.
 
 - **Corinthians vs Capivariano: partidazo en vivo por el Campeonato Paulista**: [Link](https://www.futbolperuano.com/en-vivo/campeonato-paulista-2026-corinthians-vs-capivariano-en-vivo-562604)
 - **Corinthians vs Palmeiras: pronósticos, cuotas y datos para apostar**: [Link](https://www.apwin.com/es/pronosticos/corinthians-vs-palmeiras-pronostico-paulista-a1-09-02-2026/)
-
-
-### entradas bts perú (N/A, 05/02/2026 21:36 Lima)
-
-- **Estos son los precios de las entradas para ver a BTS en Perú y Colombia**: [Link](https://www.eluniverso.com/entretenimiento/musica/estos-son-los-precios-de-las-entradas-para-ver-a-bts-en-peru-y-colombia-nota/)
-- **Este famoso streamer cometió el terrible error de meterse con las ARMY: tuvo que sobrevivir a una oleada...**: [Link](https://www.3djuegos.lat/android/este-famoso-streamer-cometio-terrible-error-meterse-army-tuvo-que-sobrevivir-a-oleada-fanaticas-directo)
-- **"¿Todo esto es por vos?": un reconocido influencer causó revuelo en el Barrio Chino y tuvo que ser escoltado por la policía**: [Link](https://www.clarin.com/fama/vos-reconocido-influencer-causo-revuelo-barrio-chino-escoltado-policia_0_XbHVZ6dZLV.html)
-
-
-### atletico madrid (N/A, 05/02/2026 15:39 Lima)
-
-- **Atletico Madrid Eye Copa del Rey Semi-Final Spot Against Betis**: [Link](https://www.dawan.africa/news/atletico-madrid-eye-copa-del-rey-semi-final-spot-against-betis)
-- **Copa del Rey: Date, time, broadcast channels and lineups for Real Betis vs Atlético Madrid**: [Link](https://onefootball.com/en/news/copa-del-rey-date-time-broadcast-channels-and-lineups-for-real-betis-vs-atletico-madrid-42361762)
-- **Real Betis vs. Atletico Madrid: Betting odds, prediction, pick**: [Link](https://www.usatoday.com/story/sports/soccer/2026/02/05/real-betis-vs-atletico-madrid-betting-odds-prediction-pick/88519303007/)
-
-
-### juventus vs (N/A, 05/02/2026 15:39 Lima)
-
-- **Cuándo juegan Atalanta vs. Juventus por la Copa Italia: equipo, fecha, hora y TV en vivo**: [Link](https://www.espn.com.ar/futbol/italia/nota/_/id/16265848/atalanta-vs-juventus-copa-italia-cuartos-de-final-equipo-fecha-hora-y-tv-en-vivo)
-- **Atalanta, contra la Juve para escribir (otra vez) la historia: de Gallo a Lazzari hasta el 3-0 de 2019**: [Link](https://www.todomercadoweb.es/serie-a/atalanta-contra-la-juve-para-escribir-otra-vez-la-historia-de-gallo-a-lazzari-hasta-el-3-0-de-2019-538806)
-- **La Copa aleja del 11 a uno de los mejores porteros del momento**: [Link](https://www.flashscore.es/noticias/futbol-serie-a-la-tradicion-de-la-copa-aparta-a-carnesecchi-de-la-porteria-de-la-atalanta/dU2Qvhxo/)
-
-
-### lookman (N/A, 05/02/2026 15:39 Lima)
-
-- **L' Ital -Atletico visto da Madrid: "Poco tempo a Raspadori e Lookman non era la prima scelta"**: [Link](https://www.tuttomercatoweb.com/serie-a/l-i-ital-i-atletico-visto-da-madrid-poco-tempo-a-raspadori-e-lookman-non-era-la-prima-scelta-2199301)
-- **Atletico Madrid, Lookman si presenta: “Sono orgoglioso, voglio fare la differenza”**: [Link](https://www.calcionapoli1926.it/interviste/lookman-atletico-atalanta-liga-mercato/)
-- **Lookman e il freddo saluto all'Atalanta, parla Palladino: "Quando è andato, noi non c'eravamo"**: [Link](https://tribuna.com/it/news/2026-02-04-lookman-e-il-freddo-saluto-allatalanta-parla-palladino-quando-e-andato-noi-non-ceravamo/)
-
-
-### ademola lookman (N/A, 05/02/2026 15:39 Lima)
-
-- **Ademola Lookman: Sunday Oliseh hails Atletico Madrid move**: [Link](https://www.panafricafootball.com/post/ademola-lookman-oliseh-atletico/)
-- **'We look forward with the strong players we have' – Atalanta boss unfazed by Lookman exit**: [Link](https://www.pulsesports.ng/super-eagles/story/we-look-forward-with-the-strong-players-we-have-atalanta-boss-unfazed-by-lookman-exit-2026020507161900952)
-- **Atletico Madrid: Ademola Lookman explains his decision to sign for the Madrid club**: [Link](https://sports.yahoo.com/articles/atletico-madrid-ademola-lookman-explains-095500522.html)
-
-
-### monaco (N/A, 05/02/2026 15:39 Lima)
-
-- **Pour Monaco, le chemin de l'Europe passe par la Coupe de France**: [Link](https://www.lequipe.fr/Football/Actualites/La-coupe-de-france-le-nouveau-chemin-vers-l-europe-de-monaco/1639403)
-- **RCSA-ASM : les compos probables**: [Link](https://onefootball.com/fr/news/rcsa-asm-les-compos-probables-42360698)
-- **Où regarder le 8e de Coupe de France face à Strasbourg à la télé' ?**: [Link](https://www.asmonaco.com/ou-regarder-le-8e-de-coupe-de-france-strasbourg-monaco-a-la-television/)
-
-
-### anderlecht (N/A, 05/02/2026 15:39 Lima)
-
-- **Hardcore fans refuse to welcome players for cup match (05 Feb 26)**: [Link](https://www.anderlecht-online.be/en/article/249003)
-- **"The next step towards stability? Winning tomorrow"**: [Link](https://www.rsca.be/en/news/pcbeforeandant)
-- **Football Bet of the Day: New boss Still backed to start slow in Belgium**: [Link](https://insights.betfred.com/football/football-bet-of-the-day/daily-football-bet-050226/)
-
-
-### monaco fc (N/A, 05/02/2026 15:39 Lima)
-
-- **PSG: Luis Campos breaks his silence on Mbappé**: [Link](https://ca.sports.yahoo.com/news/psg-luis-campos-breaks-silence-151000930.html)
-- **Luis Campos opens up on discovering Kylian Mbappe at Monaco**: [Link](https://tribuna.com/en/news/2026-02-05-luis-campos-opens-up-on-discovering-kylian-mbappe-at-monaco/)
-- **strasbourg vs monaco - Google Trends**: [Link](https://www.latestly.com/google-trends/06022026/strasbourg-vs-monaco/)
-
-
-### anderlecht vs (N/A, 05/02/2026 15:39 Lima)
-
-- **Tickets for the semi-final against Antwerp**: [Link](https://www.rsca.be/en/news/tickets-semi-final-against-antwerp)
-- **Belgian Cup: Anderlecht vs Antwerp Prognose, Team News, Preview – 5/2/2026**: [Link](https://dailystar.com.lb/belgian-cup-anderlecht-vs-antwerp-prognose-preview-5-2-2026/)
 
 
