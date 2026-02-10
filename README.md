@@ -1,3 +1,31 @@
+### dolares a soles (N/A, 10/02/2026 04:02 Lima)
+
+- **Precio del dólar hoy, sábado 7 de febrero: a cuánto cerró el tipo de cambio en Perú**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-2026-a-cuanto-esta-el-dolar-el-sabado-7-de-febrero-y-tipo-de-cambio-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
+- **Tipo de cambio hoy en Perú: ¿En cuánto cerró el dólar este lunes 9 de febrero?**: [Link](https://gestion.pe/economia/mercados/tipo-de-cambio-dolar-hoy-en-peru-cuanto-esta-el-precio-del-dolar-este-lunes-9-de-febrero-dolares-a-soles-compra-y-venta-bcrp-noticia/)
+- **¿Cuál es la cotización del dólar hoy lunes 9 de febrero del 2026?**: [Link](https://andina.pe/agencia/noticia-cual-es-cotizacion-del-dolar-hoy-lunes-9-febrero-del-2026-1062388.aspx)
+
+
+### lakers - thunder (N/A, 10/02/2026 04:02 Lima)
+
+- **Thunder And Lakers Battle In High-Stakes Western Conference Showdown**: [Link](https://evrimagaci.org/gpt/thunder-and-lakers-battle-in-highstakes-western-conference-showdown-528066)
+- **Game Recap: Thunder 119, Lakers 110**: [Link](https://www.nba.com/watch/video/game-recap-thunder-119-lakers-110)
+- **Jalen Williams to return from hamstring injury for Thunder vs Lakers**: [Link](https://www.oklahoman.com/story/sports/nba/thunder/2026/02/08/jalen-williams-injury-update-okc-thunder-star-hamstring-strain-will-play-vs-lakers/88582739007/)
+
+
+### flavia lopez (N/A, 10/02/2026 04:02 Lima)
+
+- **Patricio Parodi y Flavia López se besaron en vivo**: [Link](https://www.americatv.com.pe/esto-es-guerra/patricio-parodi-y-flavia-lopez-se-besaron-apasionadamente-eeg-noticia-162860)
+- **¡No podrán negarlo! ‘Pato’ Parodi y Flavia López son captados besándose en Punta Negra**: [Link](https://www.atv.pe/noticia/no-podran-negarlo-pato-parodi-y-flavia-lopez-son-captados-besandose-en-punta-negra/)
+- **Flavia López y Patricio Parodi son ampayados besándose tras negar relación: Magaly Medina difunde imágenes**: [Link](https://www.infobae.com/peru/2026/02/10/flavia-lopez-y-patricio-parodi-son-ampayados-besandose-tras-negar-relacion-magaly-medina-difunde-imagenes/)
+
+
+### magaly tv en vivo (N/A, 10/02/2026 04:02 Lima)
+
+- **'Magaly TV, la Firme' regresa HOY con EXPLOSIVO caso: "De esposo ejemplar a rey de la noche"**: [Link](https://www.atv.pe/noticia/magaly-tv-la-firme-regresa-hoy-con-explosivo-caso-de-esposo-ejemplar-a-rey-de-la-noche/)
+- **Magaly Medina regresa con fuerte destape y descartan a Christian Domínguez: “Ningún esposo ejemplar y que enamoró con su historia de amor”**: [Link](https://www.infobae.com/peru/2026/02/09/magaly-medina-regresa-con-fuerte-destape-y-descartan-a-christian-dominguez-ningun-esposo-ejemplar-y-que-enamoro-con-su-historia-de-amor/)
+- **¡Vuelve con ampay 'bomba'! Magaly Medina mostrará pruebas contra conocido "esposo ejemplar" que fue captado en plena 'juerga'**: [Link](https://larepublica.pe/espectaculos/2026/02/08/vuelve-con-ampay-bomba-magaly-medina-mostrara-pruebas-contra-conocido-esposo-ejemplar-que-fue-captado-en-juerga-633704)
+
+
 ### nba (N/A, 10/02/2026 00:39 Lima)
 
 - **JB Bickerstaff defends Jalen Duren: 'If a guy throws a punch at you, you have a right to protect yourself'**: [Link](https://uk.sports.yahoo.com/news/jb-bickerstaff-defends-jalen-duren-034658646.html)
@@ -997,32 +1025,5 @@ Sin noticias relacionadas disponibles.
 - **ANGR exige reunión urgente con la PCM por crisis en Moquegua**: [Link](https://caretas.pe/politica/angr-exige-reunion-urgente-con-la-pcm-por-crisis-en-moquegua/)
 - **Autoridades de Moquegua participarán en segunda sesión de la Mesa de Diálogo por el río Coralaque**: [Link](https://prensaregional.pe/autoridades-de-moquegua-participaran-en-segunda-sesion-de-la-mesa-de-dialogo-por-el-rio-coralaque/)
 - **MINEM entregó expedientes técnicos para la mitigación ambiental de la cuenca del río Coralaque en Moquegua**: [Link](https://mineriaenergia.com/minem-entrego-expedientes-tecnicos-para-la-mitigacion-ambiental-de-la-cuenca-del-rio-coralaque-en-moquegua/)
-
-
-### lille (N/A, 06/02/2026 15:39 Lima)
-
-- **Lille predicted XI v Metz: New signings Gaëtan Perrin and Noah Edjouma benched**: [Link](https://sports.yahoo.com/articles/lille-predicted-xi-v-metz-101500824.html)
-- **Where to Watch FC Metz vs. Lille OSC: TV Channel, Start Time and Live Stream**: [Link](https://www.bleachernation.com/how-to-watch/2026/02/05/where-to-watch-fc-metz-vs-lille-osc-tv-channel-start-time-and-live-stream/)
-- **Metz Battles Lille OSC in Intense Matchup**: [Link](https://www.el-balad.com/6844824)
-
-
-### verona vs (N/A, 06/02/2026 15:39 Lima)
-
-- **Sammarco: "All the players have shown maximum availability; we need to help them perform at their best"**: [Link](https://www.hellasverona.it/en/news/sammarco-all-the-players-have-shown-maximum-availability-we-need-to-help-them-perform-at-their-best)
-- **Serie A | Verona vs Pisa | Official Lineups & Live Updates**: [Link](https://football-italia.net/serie-a-verona-vs-pisa-official-lineups-live-updates/)
-- **Serie A Goals Prediction: Bet 3 in MFT £10-£1000 Challenge**: [Link](https://www.filmogaz.com/136931)
-
-
-### moquegua vs (N/A, 06/02/2026 15:39 Lima)
-
-- **Liga 1: Por la fecha 2, Deportivo Moquegua recibirá a UTC**: [Link](https://rpp.pe/futbol/descentralizado/liga-1-por-la-fecha-2-deportivo-moquegua-recibira-a-utc-noticia-1674533)
-- **🔴#ENVIVO Conoce las alineaciones de Deportivo Moquegua y UTC**: [Link](https://ovacion.pe/noticias/liga1-2026/envivo-conoce-las-alineaciones-deportivo-moquegua-utc)
-- **CD Moquegua vs UTC Cajamarca EN VIVO por la fecha 2 de la Liga 1 2026**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/cd-moquegua-vs-utc-cajamarca-en-vivo-hora-y-donde-ver-el-partido-por-la-fecha-2-de-la-liga-1-2026-torneo-apertura-tdpe-noticia/)
-
-
-### metz vs (N/A, 06/02/2026 15:39 Lima)
-
-- **Liga de Francia: Metz se concentra para salir del último lugar ante Lille**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-de-francia-metz-se-concentra-para-salir-del-ultimo-lugar-ante-lille-noticia-1674529)
-- **Metz vs Lille: previa, horario y cómo llegan para la fecha 21 de la Ligue 1**: [Link](https://zona.palmsbet.pe/deportes/futbol/metz-vs-lille-previa-horario-y-como-llegan-para-la-fecha-21-de-la-ligue-1/)
 
 
