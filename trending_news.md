@@ -1,3 +1,39 @@
+### avengers doomsday (N/A, 10/02/2026 12:08 Lima)
+
+- **Avengers: Doomsday's Boring Teaser Trailers Explained By The Russo Brothers**: [Link](https://www.slashfilm.com/2097133/avengers-doomsday-teaser-trailers-explained-russo-brothers/)
+- **Doctor Doom is Iron Man’s evil shadow? The most far-out fan theories about Avengers: Doomsday**: [Link](https://www.theguardian.com/film/2026/feb/06/avengers-doomsday-fan-theories-doctor-doom-robert-downey-jr-iron-man-week-in-geek)
+- **Is the MCU Meeting Its Doom?**: [Link](https://www.cornellsun.com/article/2026/02/is-the-mcu-meeting-its-doom)
+
+
+### cal (N/A, 10/02/2026 12:08 Lima)
+
+- **Carmelo Anthony calls son's benching 'part of journey'**: [Link](https://www.espn.com/mens-college-basketball/story/_/id/47860256/syracuse-autry-benches-anthony-loss-no-18-virginia)
+- **Syracuse coach Adrian Autry had a basketball reason to bench Kiyan Anthony**: [Link](https://www.syracuse.com/orangebasketball/2026/02/syracuse-coach-adrian-autry-had-a-basketball-reason-to-bench-kiyan-anthony.html)
+- **Adrian Autry said the decision to hold Kiyan Anthony out vs. Virginia was a coaching call**: [Link](https://www.foxsports.com/watch-vertical/fmc-r9uht0sq6zs1t7ry)
+
+
+### west ham vs (N/A, 10/02/2026 12:08 Lima)
+
+- **Team news for West Ham v Man Utd**: [Link](https://www.manutd.com/en/news/detail/team-news-for-west-ham-v-man-utd-10-feb)
+- **Michael Carrick: ‘They are every good on transition, very
+dangerous’**: [Link](https://www.vavel.com/en/football/2026/02/10/manchester-united/1250384-michael-carrick-they-are-every-good-on-transition-verydangerousthe-man-united-head-coach-sees-strengths-in-one-of-hisformer-clubs.html)
+- **West Ham United stoke the flames ahead of Man United clash with cheeky throwback video**: [Link](https://tribuna.com/en/blogs/west-ham-united-stoke-the-flames-ahead-of-man-united-clash-w/)
+
+
+### chelsea vs leeds (N/A, 10/02/2026 12:08 Lima)
+
+- **Leeds Team News and Predicted Lineup vs Chelsea for February 10**: [Link](https://lastwordonsports.com/football/2026/02/10/leeds-united-team-news-predicted-lineup-chelsea-february/)
+- **Chelsea star ready for a second game in a week – and hopes Leeds game can be reverse of first fixture**: [Link](https://chelsea.news/2026/02/cole-palmer-second-game-week-fitness-returns/)
+- **Rosenior wary of Calvert-Lewin threat ahead of Leeds test**: [Link](https://www.beinsports.com/en-asia/football/premier-league/articles/rosenior-wary-of-calvert-lewin-threat-ahead-of-leeds-test-2026-02-09)
+
+
+### lakers vs (N/A, 10/02/2026 12:08 Lima)
+
+- **Game Preview: San Antonio Spurs at Los Angeles Lakers**: [Link](https://www.poundingtherock.com/spurs-game-previews/94711/game-preview-san-antonio-spurs-at-los-angeles-lakers)
+- **Castle leads San Antonio against Los Angeles after 40-point performance**: [Link](https://abcnews.go.com/Sports/wireStory/castle-leads-san-antonio-los-angeles-after-40-130016616)
+- **Is LeBron James Playing Tonight? (Injury Update, Betting Impact for Spurs vs. Lakers)**: [Link](https://www.si.com/betting/lebron-james-injury-update-betting-impact-for-spurs-vs-lakers-feb-10)
+
+
 ### teleticket (N/A, 10/02/2026 08:26 Lima)
 
 - **Humbe, el fenómeno de las redes sociales, llega a Lima con su tour 'Dueño del cielo'**: [Link](https://rpp.pe/musica/conciertos/humbe-el-fenomeno-de-las-redes-sociales-llega-a-lima-con-su-tour-dueno-del-cielo-noticia-1675088)
@@ -994,38 +1030,5 @@
 ### central córdoba - unión (N/A, 06/02/2026 21:31 Lima)
 
 Sin noticias relacionadas disponibles.
-
-
-### ticketmaster (N/A, 06/02/2026 21:31 Lima)
-
-- **ENTER BELOW for a chance to win tickets to Noah Kahan at Oracle Park!**: [Link](https://www.audacy.com/radioalice/contests/your-chance-to-win-tickets-to-noah-kahan-at-oracle-park)
-- **Noah Kahan’s tour announcement comes with a major shake-up to Ticketmaster’s presale process — here’s why**: [Link](https://www.nj.com/entertainment/2026/02/noah-kahans-tour-announcement-comes-with-a-major-shake-up-to-ticketmasters-presale-rules-heres-why.html)
-- **Coors Field just announced its 2nd big concert of 2026**: [Link](https://www.denverpost.com/2026/02/02/noah-kahan-coors-field-tour-tickets/)
-
-
-### pasto - bucaramanga (N/A, 06/02/2026 21:31 Lima)
-
-- **Pronóstico Deportivo Pasto Atlético Bucaramanga - Primera A Colombia 06/02/26**: [Link](https://www.sportytrader.com/es/pronosticos/deportivo-pasto-atletico-bucaramanga-324585/)
-- **Fecha 5 en Liga BetPlay 2026-1: árbitros y VAR confirmados**: [Link](https://www.winsports.co/futbol-colombiano/noticias/fecha-5-en-liga-betplay-2026-1-arbitros-y-var-confirmados-406790)
-- **Pasto, Bucaramanga, Medellín e Inter de Bogotá abrirán la quinta fecha de la Liga BetPlay**: [Link](https://www.boyacaradio.com/noticia.php?id=60812)
-
-
-### audax italiano - univ. concepción (N/A, 06/02/2026 21:31 Lima)
-
-Sin noticias relacionadas disponibles.
-
-
-### vladimiro montesinos (N/A, 06/02/2026 21:31 Lima)
-
-- **Vladimiro Montesinos: Suprema anula compurgación de pena y establece que condena vencerá en 2037**: [Link](https://lpderecho.pe/vladimiro-montesinos-suprema-anula-compurgacion-pena-establece-condena-vencera-2037/)
-- **Montesinos seguirá preso hasta 2037 por crímenes de derechos humanos**: [Link](https://caretas.pe/politica/montesinos-seguira-preso-hasta-2037-por-crimenes-de-derechos-humanos/)
-- **Vladimiro Montesinos saldrá de prisión en 2037: PJ ordena que cumpla condena del caso Pativilca**: [Link](https://www.infobae.com/peru/2026/02/06/vladimiro-montesinos-saldra-de-prision-en-2037-pj-ordena-que-cumpla-condena-del-caso-pativilca/)
-
-
-### celta de vigo vs. osasuna (N/A, 06/02/2026 21:31 Lima)
-
-- **Preview: Celta Vigo vs Osasuna - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/celta-vigo/preview/celta-vigo-vs-osasuna-prediction-team-news-lineups_591378.html)
-- **Celta Vigo's European dreams take huge hit with Osasuna defeat**: [Link](https://www.tribalfootball.com/article/soccer-laliga-celta-vigo-s-european-dreams-take-huge-hit-with-osasuna-defeat-2bae5da1-a6d1-4c94-bdfe-c4ce98ae441a)
-- **Celta - Osasuna live**: [Link](https://www.marca.com/en/soccer/laliga-ea-sports/celta-osasuna/2026/02/06/01_0101_20260206_176_450-live.html)
 
 
