@@ -1,3 +1,73 @@
+### atv en vivo (N/A, 09/02/2026 21:52 Lima)
+
+- **¡Indignante! Lloró en el funeral y un mes después cayó por el brutal crimen de su tío**: [Link](https://www.atv.pe/noticia/indignante-lloro-en-el-funeral-y-un-mes-despues-cayo-por-el-brutal-crimen-de-su-tio/)
+- **Capturan a sobrino acusado de matar a su tío tras brutal agresión: Habría afirmado que no recuerda nada**: [Link](https://trome.com/actualidad/policiales/san-luis-capturan-a-sobrino-acusado-de-matar-a-su-tio-tras-brutal-agresion-habria-afirmado-que-no-recuerda-lo-sucedido-video-historia-de-policiales-noticia/)
+- **Sobrino asesina a su tío tras golpiza en San Luis: premeditó presunto asalto en la vía pública**: [Link](https://larepublica.pe/sociedad/2026/02/02/sobrino-asesina-a-su-tio-tras-golpiza-en-san-luis-premedito-presunto-asalto-en-la-via-publica-117594)
+
+
+### magaly tv (N/A, 09/02/2026 21:52 Lima)
+
+- **Magaly Medina regresa con fuerte destape y descartan a Christian Domínguez: “Ningún esposo ejemplar y que enamoró con su historia de amor”**: [Link](https://www.infobae.com/peru/2026/02/09/magaly-medina-regresa-con-fuerte-destape-y-descartan-a-christian-dominguez-ningun-esposo-ejemplar-y-que-enamoro-con-su-historia-de-amor/)
+- **Nombre de jugador de la Selección Peruana empieza a sonar como protagonista de la BOMBA de Magaly Tv, la firme**: [Link](https://www.atv.pe/noticia/nombre-de-jugador-de-la-seleccion-peruana-empieza-a-sonar-como-protagonista-de-la-bomba-de-magaly-tv-la-firme/)
+- **¡BOMBA EN 'CHOLLYWOOD'! Anuncian AMPAY de conocido personaje**: [Link](https://peru21.pe/espectaculos/bomba-en-chollywood-ampay-de-conocido-personaje-en-vivo/)
+
+
+### estudiantes de río cuarto - independiente rivadavia (N/A, 09/02/2026 21:52 Lima)
+
+- **Independiente Rivadavia ya busca la punta de la Zona B contra Estudiantes (RC)**: [Link](https://www.ole.com.ar/futbol-primera/independiente-rivadavia-estudiantes-rio-cuarto-minutoaminuto-vivo_0_1SC1UO6jL4.html)
+- **Los Celestes buscarán su primer triunfo**: [Link](https://www.vavel.com/ar/futbol-argentino/2026/02/09/1250322-los-celestes-buscaran-su-primer-triunfo.html)
+- **Torneo Apertura 2026: Estudiantes (RC) perdió 0 a 1 ante Independiente Riv. (M) por la Fecha 4**: [Link](https://radiomitre.cienradios.com/deportes/estudiantes-rc-perdio-0-a-1-frente-a-independiente-riv-m-en-la-fecha-4-del-torneo-apertura-2026/)
+
+
+### pistons - hornets (N/A, 09/02/2026 21:52 Lima)
+
+- **Live Updates: LaMelo Ball's Hornets take on Cade Cunningham's Pistons to open a 10-game slate**: [Link](https://www.nba.com/news/live-updates-lamelo-balls-hornets-take-on-cade-cunninghams-pistons-to-open-a-10-game-slate)
+- **FTN Best NBA Bets on Novig (2/9)**: [Link](https://ftnfantasy.com/nba/ftn-best-nba-bets-on-novig-2-9)
+- **Bet on Hornets’ Knueppel to show out vs. Pistons**: [Link](https://www.nbcsports.com/watch/nba/bet-on-charlotte-hornets-kon-knueppel-to-show-out-vs-detroit-pistons)
+
+
+### sorteo la tinka resultados (N/A, 09/02/2026 21:52 Lima)
+
+- **La Tinka del domingo 8 de febrero de 2026: estos son los números ganadores del sorteo**: [Link](https://www.infobae.com/peru/2026/02/09/resultados-ganadores-de-la-tinka-este-domingo-8-de-febrero/)
+- **Resultados de La Tinka del domingo 08 de febrero**: [Link](https://www.americatv.com.pe/americlub/tinka-resultados-sorteo-jugado-domingo-08-febrero-noticia-162846)
+- **Resultados de la Tinka: números ganadores del domingo 8 de febrero**: [Link](https://elcomercio.pe/respuestas/loterias/resultados-tinka-en-vivo-hoy-sorteo-del-domingo-8-de-febrero-de-2026-y-numeros-de-la-jugada-ganadora-tinkanet-pozo-millonario-resultado-si-o-si-boliyapa-intralot-lbposting-noticia/)
+
+
+### jutta leerdam (N/A, 09/02/2026 21:52 Lima)
+
+- **Ze doen het weer: Hema haakt op komische wijze in op olympisch goud voor Jutta Leerdam**: [Link](https://www.destentor.nl/binnenland/ze-doen-het-weer-hema-haakt-op-komische-wijze-in-op-olympisch-goud-voor-jutta-leerdam~a583217d/)
+- **Atalanta boekt kleine zege op Cremonese in Serie A**: [Link](https://www.telegraaf.nl/sport/voetbal/atalanta-boekt-kleine-zege-op-cremonese-in-serie-a/130591937.html)
+- **Live Winterspelen: Coach Poltavets trots op pupil: ‘Grootste kwaliteit van Jutta is dat ze onder hoogspanning kan presteren’**: [Link](https://www.volkskrant.nl/sport/live-winterspelen-coach-poltavets-trots-op-pupil-grootste-kwaliteit-van-jutta-is-dat-ze-onder-hoogspanning-kan-presteren~bd0242ab/)
+
+
+### pizza hut (N/A, 09/02/2026 21:52 Lima)
+
+- **Pizza Hut closing hundreds of locations in 2026. Here's why.**: [Link](https://www.usatoday.com/story/money/food/2026/02/04/pizza-hut-closing-locations/88515586007/)
+- **Pizza Hut to close 250 stores**: [Link](https://www.restaurantdive.com/news/pizza-hut-2026-250-closures-yum-strategic-review/811332/)
+- **Florida Pizza Hut restaurants are closing, and 250 nationwide**: [Link](https://www.tcpalm.com/story/news/local/st-lucie-county/2026/02/07/florida-pizza-hut-restaurants-closing-include-port-st-lucie-location-stuart-vero-beach-fort-pierce/88532971007/)
+
+
+### juventude - ec são josé (N/A, 09/02/2026 21:52 Lima)
+
+- **📹 Virou judô? Cenas lamentáveis em estadual têm até 'ippon' no gramado**: [Link](https://onefootball.com/pt-br/noticias/virou-judo-cenas-lamentaveis-em-estadual-tem-ate-ippon-no-gramado-42385981)
+- **Juventude x São José-RS AO VIVO: link para assistir online (09/02)**: [Link](https://www.sportingnews.com/br/futebol/noticias/juventude-x-sao-jose-rs-ao-vivo-link-para-assistir-online/16397f3fc088abc218144f0d)
+- **Juventude aplica virada histórica contra o São José e garante última vaga nas semifinais do Gauchão Superbet 2026**: [Link](https://www.fgf.com.br/noticia/juventude-aplica-virada-historica-contra-o-sao-jose-e-garante-ultima-vaga-nas-semifinais-do-gauchao-superbet-2026)
+
+
+### porto fc (N/A, 09/02/2026 21:52 Lima)
+
+- **Preview: Porto vs. Sporting Lisbon - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/porto/primeira-liga-title-race/preview/porto-vs-sporting-lisbon-prediction-team-news-lineups_591594.html)
+- **Francesco Farioli: “We’re Exactly Where We Want and Deserve to Be”**: [Link](https://www.filmogaz.com/141988)
+- **Fog at the Dragão: what the league rules say**: [Link](https://onefootball.com/en/news/fog-at-the-dragao-what-the-league-rules-say-42384801)
+
+
+### sedapal cortes de agua (N/A, 09/02/2026 21:52 Lima)
+
+- **Sedapal anuncia corte de agua el 10 de febrero: distritos afectados y horarios para este martes**: [Link](https://libero.pe/tiempoextra/2026/02/09/sedapal-anuncia-corte-de-agua-10-de-febrero-distritos-afectados-horarios-martes-882018)
+- **Estos distritos de Lima Metropolitana no tendrán agua hasta por 8 horas este martes 10 de febrero, según Sedapal**: [Link](https://larepublica.pe/sociedad/2026/02/08/estos-distritos-de-lima-metropolitana-no-contaran-con-agua-hasta-por-8-horas-este-martes-10-de-febrero-segun-sedapal-evat-151120)
+- **🔴🔵¡A llenar los baldes desde YA! 🤯🚱Conoce qué distritos se verán afectados con el corte de agua programado para el viernes 6 de febrero, según Sedapal.**: [Link](https://www.facebook.com/Exitosanoticias/posts/a-llenar-los-baldes-desde-ya-conoce-qu%C3%A9-distritos-se-ver%C3%A1n-afectados-con-el-cort/1341591934670528/)
+
+
 ### sorteo la tinka (N/A, 09/02/2026 15:49 Lima)
 
 - **La Tinka del domingo 8 de febrero de 2026: estos son los números ganadores del sorteo**: [Link](https://www.infobae.com/peru/2026/02/09/resultados-ganadores-de-la-tinka-este-domingo-8-de-febrero/)
@@ -954,75 +1024,5 @@ Sin noticias relacionadas disponibles.
 - **Milo J, el fenómeno argentino ahora dará su show en el Estadio Nacional**: [Link](https://peru21.pe/cultura/milo-j-en-lima-concierto-en-el-estadio-nacional-en-abril/)
 - **Milo J en Lima 2026: lugar, precios, preventa de entradas,**: [Link](https://www.americatv.com.pe/noticias/espectaculos/milo-j-lima-2026-estadio-nacional-entradas-n515027)
 - **Milo J en el Estadio Nacional: fecha, precios de entradas y nuevas zonas para su concierto**: [Link](https://rpp.pe/musica/nacional/milo-j-en-lima-2026-precios-de-entradas-y-nuevas-zonas-tras-confirmarse-concierto-en-estadio-nacional-noticia-1674548)
-
-
-### teleticket (N/A, 06/02/2026 11:54 Lima)
-
-- **Romeo Santos y Prince Royce llegan juntos a Lima: fecha, lugar y más detalles sobre su concierto**: [Link](https://www.infobae.com/peru/2026/02/04/romeo-santos-regresa-a-lima-con-prince-royce-fecha-lugar-y-mas-detalles/)
-- **Romeo Santos y Prince Royce vuelven a Lima: fecha, lugar, entradas y todo lo que debes saber**: [Link](https://elcomercio.pe/respuestas/farandula/romeo-santos-y-prince-royce-vuelven-a-lima-fecha-lugar-entradas-y-todo-lo-que-debes-saber-tdpe-noticia/)
-- **Concierto de Romeo Santos y Prince Royce en Perú 2026: fecha de preventa vía Teleticket, precios y zonas**: [Link](https://libero.pe/ocio/famosos/2026/02/06/concierto-de-romeo-santos-prince-royce-en-peru-2026-fecha-de-preventa-via-teleticket-precios-zonas-estadio-nacional-269610)
-
-
-### radar aeropuerto jorge chávez (N/A, 06/02/2026 11:54 Lima)
-
-- **Vuelos retrasados en el Jorge Chávez por fallas en el sistema de radar: Corpac restablece control de tránsito aéreo**: [Link](https://www.infobae.com/peru/2026/02/06/vuelos-retrasados-en-el-aeropuerto-jorge-chavez-reportan-fallos-en-el-sistema-de-radar/)
-- **Reportan problemas en radar del aeropuerto internacional Jorge Chávez**: [Link](https://andina.pe/agencia/noticia-reportan-problemas-radar-del-aeropuerto-internacional-jorge-chavez-1062057.aspx)
-- **Corpac restablece el control del tránsito aéreo en el Jorge Chávez tras contingencias técnicas**: [Link](https://www.atv.pe/noticia/corpac-restablece-el-control-del-transito-aereo-en-el-jorge-chavez-tras-contingencias-tecnicas/)
-
-
-### shirley arica internada (N/A, 06/02/2026 11:54 Lima)
-
-- **Shirley Arica preocupa al ser INTERNADA en clínica: "Dios me mando esta prueba para darme cuenta de mis descuidos"**: [Link](https://www.atv.pe/noticia/shirley-arica-preocupa-al-ser-internada-en-clinica-dios-me-mando-esta-prueba-para-darme-cuenta-de-mis-descuidos/)
-- **Shirley Arica hospitalizada hace casi una semana: “No tengo fecha de salida y es frustrante”**: [Link](https://trome.com/espectaculos/tv/shirley-arica-esta-hospitalizada-hace-casi-una-semana-no-tengo-fecha-de-salida-y-es-frustrante-foto-farandula-noticia/)
-- **"No tengo fecha de salida": Shirley Arica permanece internada y admite que descuidó su salud**: [Link](https://rpp.pe/famosos/farandula/shirley-arica-permanece-hospitalizada-y-admite-que-descuido-su-salud-fotos-noticia-1674685)
-
-
-### al-ettifaq - damac (N/A, 06/02/2026 11:54 Lima)
-
-- **Preview: Al Ettifaq vs Damac Prediction, lineups, betting tips & odds | Saudi Pro League 2025-26**: [Link](https://khelnow.com/football/world-football-al-ettifaq-vs-damac-preview-202602)
-- **al-ettifaq vs damac**: [Link](https://www.latestly.com/google-trends/06022026/al-ettifaq-vs-damac/)
-- **Al Ettifaq vs Damac FC: Predictions and Tips for February 6, 2026**: [Link](https://www.el-balad.com/6844594)
-
-
-### dia del pisco sour (N/A, 06/02/2026 11:54 Lima)
-
-- **Hay potencial para exportar más pisco, la bebida bandera del Perú, al mercado asiático**: [Link](https://andina.pe/agencia/noticia-hay-potencial-para-exportar-mas-pisco-bebida-bandera-del-peru-al-mercado-asiatico-1062053.aspx)
-- **Día del Pisco Sour en Tacna**: [Link](https://www.ytuqueplanes.com/festividades/tacna/dia-del-pisco-sour-en-tacna)
-- **Indecopi refuerza defensa del pisco peruano**: [Link](https://caretas.pe/nacional/indecopi-refuerza-defensa-del-pisco-peruano/)
-
-
-### copa davis (N/A, 06/02/2026 11:54 Lima)
-
-- **Copa Davis: así quedó definido el orden de juego de la serie entre Argentina y Corea del Sur**: [Link](https://www.espn.com.ar/tenis/nota/_/id/16277483/copa-davis-asi-quedo-definido-el-orden-de-juego-de-la-serie-entre-argentina-y-corea-del-sur-qualifiers-2026-primera-ronda)
-- **Corea del Sur v Argentina: Tirante desafía a Chung en la apertura**: [Link](https://www.daviscup.com/es/noticias/tirante-desafia-a-chung-en-la-apertura)
-- **Guido Andreozzi y la emoción del llamado a la Copa Davis: “Trato de disfrutar cada momento”**: [Link](https://www.infobae.com/deportes/2026/02/05/guido-andreozzi-y-la-emocion-del-llamado-a-la-copa-davis-trato-de-disfrutar-cada-momento/)
-
-
-### criptomonedas (N/A, 06/02/2026 11:54 Lima)
-
-- **No, pero en serio: ¿qué está pasando con el bitcoin?**: [Link](https://cnnespanol.cnn.com/2026/02/05/economia/que-esta-pasando-bitcoin-trax)
-- **Bitcoin cae a mitad de precio y Velarde alerta que puede bajar a 0, ¿hora de comprar o vender?**: [Link](https://gestion.pe/tu-dinero/bitcoin-cae-a-mitad-de-precio-y-julio-velarde-presidente-del-bcrp-alerta-que-puede-bajar-a-0-hora-de-comprar-o-vender-noticia/)
-- **El bitcóin pierde los 70.000 dólares tras caer casi un 12 % en tres días Por EFE**: [Link](https://es.investing.com/news/forex-news/el-bitcoin-pierde-los-70000-dolares-tras-caer-casi-un-12--en-tres-dias-3501978)
-
-
-### sorteo copa del rey (N/A, 06/02/2026 08:12 Lima)
-
-- **Sorteo de Copa del Rey, en directo: partidos, cruces y emparejamientos de semifinales hoy en vivo**: [Link](https://as.com/futbol/copa_del_rey/sorteo-de-copa-del-rey-en-directo-partidos-cruces-y-emparejamientos-de-semifinales-hoy-en-vivo-f202602-d/)
-- **Definidos los cuatro semifinalistas de la Copa del Rey Mapfre: este viernes, el sorteo**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20260205/1002615508/definidos-cuatro-semifinalistas-copa-rey-mapfre-viernes-sorteo.html)
-- **Un sorteo de campeones**: [Link](https://www.marca.com/futbol/copa-rey/2026/02/05/sorteo-campeones.html)
-
-
-### suns - warriors (N/A, 06/02/2026 08:12 Lima)
-
-- **Warriors Rally Late To Stun Suns In Phoenix Thriller**: [Link](https://evrimagaci.org/gpt/warriors-rally-late-to-stun-suns-in-phoenix-thriller-527217)
-- **Game 52 wrap: Shorthanded Dubs come back to stun Suns; No Steph, No Porzingis(!?), Still Always Close Enough To Hurt™**: [Link](https://dubnationhq.com/p/game-52-wrap-no-spoiler-title)
-- **Warriors' fan favorite bids potential farewell after reaching contract limit**: [Link](https://sports.yahoo.com/articles/warriors-fan-favorite-bids-potential-122204941.html)
-
-
-### lakers - 76ers (N/A, 06/02/2026 08:12 Lima)
-
-- **Luka Doncic to have an MRI after leaving Lakers' game against 76ers with left hamstring injury**: [Link](https://apnews.com/article/lakers-luka-doncic-injured-775c25d44654391104565be405268e25)
-- **JJ Redick reveals what Luke Kennard brings to the team**: [Link](https://basketnews.com/news-240674-jj-redick-reveals-what-luke-kennard-brings-to-the-team.html)
-- **Austin Reaves returns to All-Star form in comeback win over Sixers**: [Link](https://sports.yahoo.com/articles/austin-reaves-returns-star-form-053810278.html)
 
 
