@@ -1,3 +1,45 @@
+### nba (N/A, 10/02/2026 00:39 Lima)
+
+- **JB Bickerstaff defends Jalen Duren: 'If a guy throws a punch at you, you have a right to protect yourself'**: [Link](https://uk.sports.yahoo.com/news/jb-bickerstaff-defends-jalen-duren-034658646.html)
+- **NBA World Reacts to Star-Studded Fight in Pistons-Hornets Game: ‘Brawl of the Year,’ ‘THEY SCRAPPIN!’**: [Link](https://www.profootballnetwork.com/nba/world-reacts-pistons-hornets-brawl-of-the-year/)
+- **Pistons' Isaiah Stewart could be in for a very long suspension after fight against Hornets**: [Link](https://www.sportingnews.com/uk/nba/detroit-pistons/news/pistons-isaiah-stewart-long-suspension-incident-hornets/29b24d2b9f46e55e0a896bae)
+
+
+### lapadula (N/A, 10/02/2026 00:39 Lima)
+
+- **Magaly Medina tras imágenes de Gianluca Lapadula con otra mujer: "Teníamos otra imagen de él"**: [Link](https://www.atv.pe/noticia/magaly-medina-tras-imagenes-de-gianluca-lapadula-con-otra-mujer-teniamos-otra-imagen-de-el/)
+- **Gianluca Lapadula es captado en bar de Barcelona junto a una mujer que no es su esposa**: [Link](https://elcomercio.pe/tvmas/farandula/gianluca-lapadula-es-captado-en-bar-de-barcelona-junto-a-una-mujer-que-no-es-su-esposa-ultimas-noticia/)
+- **'Magaly TV, la firme': Gianluca Lapadula es ampayado con mujer que no es su esposa en fiesta nocturna**: [Link](https://larepublica.pe/espectaculos/2026/02/09/magaly-tv-la-firme-en-vivo-hoy-a-que-hora-inicia-y-como-ver-el-regreso-de-magaly-a-la-television-peruana-en-atv-este-2026-376768)
+
+
+### ampay magaly (N/A, 10/02/2026 00:39 Lima)
+
+- **'Magaly TV, la Firme' regresa HOY con EXPLOSIVO caso: "De esposo ejemplar a rey de la noche"**: [Link](https://www.atv.pe/noticia/magaly-tv-la-firme-regresa-hoy-con-explosivo-caso-de-esposo-ejemplar-a-rey-de-la-noche/)
+- **Magaly Medina regresa con fuerte destape y descartan a Christian Domínguez: “Ningún esposo ejemplar y que enamoró con su historia de amor”**: [Link](https://www.infobae.com/peru/2026/02/09/magaly-medina-regresa-con-fuerte-destape-y-descartan-a-christian-dominguez-ningun-esposo-ejemplar-y-que-enamoro-con-su-historia-de-amor/)
+- **¡BOMBA EN 'CHOLLYWOOD'! Anuncian AMPAY de conocido personaje**: [Link](https://peru21.pe/espectaculos/bomba-en-chollywood-ampay-de-conocido-personaje-en-vivo/)
+
+
+### grizzlies - warriors (N/A, 10/02/2026 00:39 Lima)
+
+- **Warriors vs Grizzlies LIVE Score Updates: Key match in the standings (85-98)**: [Link](https://www.vavel.com/en-us/nba/2026/02/10/1250276-warirros-vs-grizzlies-live-score-nba.html)
+- **Memphis Grizzlies at Golden State Warriors prediction, pick on Monday 2/9/26**: [Link](https://dknetwork.draftkings.com/2026/02/09/memphis-grizzlies-at-golden-state-warriors-prediction-pick-on-monday-2-9-26/)
+- **The need to avoid unnecessary risks on defense in Golden State**: [Link](https://www.si.com/nba/grizzlies/onsi/news/no-curry-for-warriors-but-grizzlies-still-can-t-overplay-on-defense-01kh1t193kvk)
+
+
+### thunder - lakers (N/A, 10/02/2026 00:39 Lima)
+
+- **Oklahoma City Thunder vs Los Angeles Lakers Odds - Monday February 9 2026**: [Link](https://www.oddsshark.com/nba/oklahoma-city-los-angeles-odds-february-9-2026-2461064)
+- **Why are Luka Doncic and Shai Gilgeous-Alexander not playing today, Feb. 9, in OKC vs Lakers?**: [Link](https://bolavip.com/en/nba/why-are-luka-doncic-and-shai-gilgeous-alexander-not-playing-today-feb-9-in-okc-vs-lakers)
+- **Caesars Sportsbook Promo Code BOOKIES250BM: Claim $250 Bet Match for NBA Hawks vs Timberwolves (Feb. 9)**: [Link](https://bookies.com/news/promo/caesars-sportsbook-promo-code-bookies250bm-claim-250-bet-match-for-nba-hawks-vs-timberwolves-feb-9)
+
+
+### lanus vs talleres (N/A, 10/02/2026 00:39 Lima)
+
+- **Lanús vs Talleres Córdoba Prediction & Tips | 10/02/2026**: [Link](https://www.betshoot.com/football/19636479-Lan%C3%BAs-vs-Talleres-C%C3%B3rdoba-prediction/)
+- **Lanús vs Talleres Córdoba Prediction: Match Preview and Analysis | Liga Profesional de Fútbol 09-02-2026**: [Link](https://betmines.com/match-preview/lanus-vs-talleres-cordoba-prediction-match-preview-and-analysis-liga-profesional-de-futbol-09-02-2026)
+- **Kansas 82-78 Arizona (Feb 9, 2026) Game Recap**: [Link](http://www.espn.com/ncb/recap?gameId=401820818)
+
+
 ### atv en vivo (N/A, 09/02/2026 21:52 Lima)
 
 - **¡Indignante! Lloró en el funeral y un mes después cayó por el brutal crimen de su tío**: [Link](https://www.atv.pe/noticia/indignante-lloro-en-el-funeral-y-un-mes-despues-cayo-por-el-brutal-crimen-de-su-tio/)
@@ -982,47 +1024,5 @@ Sin noticias relacionadas disponibles.
 
 - **Liga de Francia: Metz se concentra para salir del último lugar ante Lille**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-de-francia-metz-se-concentra-para-salir-del-ultimo-lugar-ante-lille-noticia-1674529)
 - **Metz vs Lille: previa, horario y cómo llegan para la fecha 21 de la Ligue 1**: [Link](https://zona.palmsbet.pe/deportes/futbol/metz-vs-lille-previa-horario-y-como-llegan-para-la-fecha-21-de-la-ligue-1/)
-
-
-### primera división de arabia saudita (N/A, 06/02/2026 15:39 Lima)
-
-- **Cristiano sigue de huelga en Al Nassr y no juega ante Al Ittihad**: [Link](https://espndeportes.espn.com/futbol/clubes/nota/_/id/16277961/cristiano-rolando-al-nassr-huelga-al-ittihad)
-- **La liga saudí advierte a Cristiano por su huelga: "Nadie, por importante que sea, toma decisiones más allá de su propio club"**: [Link](https://www.marca.com/futbol/liga-arabia-saudi/2026/02/05/liga-saudi-advierte-cristiano-huelga-nadie-importante-sea-toma-decisiones-alla-propio-club.html)
-- **La fuerte decisión que tomó Cristiano Ronaldo en medio del escándalo que protagoniza en Arabia Saudita**: [Link](https://www.infobae.com/deportes/2026/02/05/la-fuerte-decision-que-tomo-cristiano-ronaldo-en-medio-del-escandalo-que-protagoniza-en-arabia-saudita/)
-
-
-### celta de vigo - osasuna (N/A, 06/02/2026 15:39 Lima)
-
-- **LaLiga EA Sports: Celta y Osasuna se miden por la fecha 23**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-celta-y-osasuna-se-miden-por-la-fecha-23-noticia-1674532)
-- **Fútbol en directo: Celta-Osasuna para abrir la jornada; el Atleti, rival del Barça en Copa**: [Link](https://www.flashscore.pe/noticias/futbol-en-directo-laliga-jornada-23-partidos-ultima-hora/pxtTq1VH/)
-- **Lo que debes saber del Celta-Osasuna de LaLiga**: [Link](https://www.flashscore.pe/noticias/futbol-laliga-ea-sports-previa-celta-osasuna-j23/6Lyz53Dt/)
-
-
-### metz - losc (N/A, 06/02/2026 15:39 Lima)
-
-- **Metz-LOSC : informations déplacement**: [Link](https://www.losc.fr/actualites/2026-02-06/metz-losc-informations-deplacement)
-- **PRONOS PARIS RMC Le pari foot de Lionel Charbonnier du 6 février – Ligue 1**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-foot-de-lionel-charbonnier-du-6-fevrier-ligue-1_AN-202602060671.html)
-- **Dernier de Ligue 1 en 2026, Lille a un mois pour se relancer**: [Link](https://www.flashscore.fr/actualites/dernier-de-ligue-1-en-2026-lille-a-un-mois-pour-se-relancer/t411taR9/)
-
-
-### al-nassr - al ittihad (N/A, 06/02/2026 11:54 Lima)
-
-- **Al Nassr vs Al Ittihad: what time and on which TV channel to watch the match live? (6/2/2026)**: [Link](https://foot-africa.com/en/news/al-nassr-vs-al-ittihad-what-time-and-on-which-tv-channel-to-watch-the-match-live-622026-1073678/)
-- **A Strong Boost for Al-Nassr's Attack with the Return of the Team Star Before the Al-Ittihad Match**: [Link](https://www.ysscores.com/en/news/13905795/A-Strong-Boost-for-Al-Nassr's-Attack-with-the-Return-of-the-Team-Star-Before-the-Al-Ittihad-Match)
-- **Will Cristiano Ronaldo play? Projected lineups for Al-Nassr vs. Al-Ittihad in the Saudi Pro League**: [Link](https://worldsoccertalk.com/news/is-cristiano-ronaldo-playing-projected-lineups-for-al-nassr-vs-al-ittihad-in-the-saudi-pro-league/)
-
-
-### sakaryaspor (N/A, 06/02/2026 11:54 Lima)
-
-- **Sakaryaspor, 2 futbolcuyu transfer etti, 2 oyuncuyla da yollarını ayırdı**: [Link](https://www.fanatik.com.tr/futbol/sakaryaspor-2-futbolcuyu-transfer-etti-2-oyuncuyla-da-yollarini-ayirdi-2611271)
-- **Yabancı Mesaisi DEVAM EDİYOR**: [Link](https://sakaryayenigun.com.tr/haber/27376014/yabanci-mesaisi-devam-ediyor)
-- **Sakaryaspor, Owusu Kwabena için devrede**: [Link](https://medyabar.com/foto/27370290/sakaryaspor-owusu-kwabena-icin-devrede?4)
-
-
-### milo j (N/A, 06/02/2026 11:54 Lima)
-
-- **Milo J, el fenómeno argentino ahora dará su show en el Estadio Nacional**: [Link](https://peru21.pe/cultura/milo-j-en-lima-concierto-en-el-estadio-nacional-en-abril/)
-- **Milo J en Lima 2026: lugar, precios, preventa de entradas,**: [Link](https://www.americatv.com.pe/noticias/espectaculos/milo-j-lima-2026-estadio-nacional-entradas-n515027)
-- **Milo J en el Estadio Nacional: fecha, precios de entradas y nuevas zonas para su concierto**: [Link](https://rpp.pe/musica/nacional/milo-j-en-lima-2026-precios-de-entradas-y-nuevas-zonas-tras-confirmarse-concierto-en-estadio-nacional-noticia-1674548)
 
 
