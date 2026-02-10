@@ -1,3 +1,73 @@
+### napoles vs (N/A, 10/02/2026 15:51 Lima)
+
+- **Nápoles vs AS Roma en vivo en español: horarios, canales y transmisión de la Serie A 2025/26 en Estados Unidos**: [Link](https://www.dazn.com/es-MX/news/f%C3%BAtbol/napoles-vs-as-roma-vivo-espanol-horarios-canales-transmision-serie-a/1sm5ysia7cui1kn3gwmxi9q9c)
+- **Cuándo juegan Napoli vs. Como por los cuartos de final de la Copa Italia 2025-2026: equipo, fecha, hora y TV en vivo**: [Link](https://www.espn.com.ar/futbol/argentina/nota/_/id/16296173/napoli-vs-como-cuartos-copa-italia-2025-2026-equipo-fecha-hora-y-tv-en-vivo)
+- **Apuestas y Pronóstico del Napoli vs Como 10/02/26**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/2026/febrero/pronostico-napoli-vs-como-10-02-26)
+
+
+### napoli vs (N/A, 10/02/2026 15:51 Lima)
+
+- **🔴 Napoli vs Como | Official line-ups: Buongiorno, Politano, Paz, Addai**: [Link](https://ca.sports.yahoo.com/news/napoli-vs-como-official-line-191300984.html)
+- **Manna: ‘Napoli wish we had played with normal number of injuries’**: [Link](https://football-italia.net/manna-napoli-wish-we-played-normal-injuries/)
+- **Preview: Napoli vs Como - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/napoli/coppa-italia/preview/napoli-vs-como-prediction-team-news-lineups_591637.html)
+
+
+### napoli (N/A, 10/02/2026 15:51 Lima)
+
+- **Napoli, Manna: "Il -9 dall'Inter? A me piace fare i conti con tutta la rosa al completo. Il mercato di gennaio è stato complicato "**: [Link](https://www.calciomercato.com/liste/napoli-manna-il-9-dall-inter-a-me-piace-fare-i-conti-con-tutta-la-rosa-al-completo-il-mercato-di-gennaio-e-stato-complicato/blt4ffad83745254232)
+- **Calcio Live News: tutte le notizie di giornata in tempo reale**: [Link](https://www.diretta.it/news/calcio-live-news-in-campo-napoli-como-0-0/zTD9CHID/)
+- **Como, Ludi: "Il futuro di Fabregas? Vi dico che..."**: [Link](https://gianlucadimarzio.com/como-ludi-dichiarazioni-pre-napoli-coppa-italia-news-10-febbraio-2026/)
+
+
+### ignacio buse (N/A, 10/02/2026 15:51 Lima)
+
+- **Ignacio Buse sigue en ascenso al colocarse en el puesto 96 del ranking ATP**: [Link](https://andina.pe/agencia/noticia-ignacio-buse-sigue-ascenso-al-colocarse-el-puesto-96-del-ranking-atp-1062445.aspx)
+- **Buse logra su mejor ránking ATP y encabeza a peruanos en el tenis mundial**: [Link](https://diarioviral.pe/deportes/buse-logra-su-mejor-ranking-atp-y-encabeza-a-peruanos-en-el-tenis-mundial-51639)
+- **Ignacio Buse subió dos puestos en ranking ATP**: [Link](https://ovacion.pe/noticias/tenis/ignacio-buse-subio-dos-puestos-ranking-atp)
+
+
+### liga inglesa (N/A, 10/02/2026 15:51 Lima)
+
+- **Prediciendo la dinámica del sprint final en la Premier League inglesa.**: [Link](https://www.vietnam.vn/es/du-doan-cuc-dien-chang-dua-nuoc-rut-ngoai-hang-anh)
+- **Ganadores y perdedores de GOAL: el Liverpool está fallando en múltiples frentes**: [Link](https://noticias.foxnews.com/sports/winners-and-losers-of-the-weekends-football-ousmane-dembele-back-to-his-ballon-dor-winning-best-arne-slot-running-out-of-time-at-anfield-and-bayern-munich-whirlwind-luis-diaz-making-liverpool-look-lik)
+- **¿Cómo quedaría la clasificación final de la Premier League tras la jornada 25 según la Inteligencia Artificial?**: [Link](https://www.si.com/es-us/futbol/como-quedaria-la-clasificacion-final-de-la-premier-league-tras-la-jornada-25-segun-la-inteligencia-artificial)
+
+
+### leicester city - southampton (N/A, 10/02/2026 15:51 Lima)
+
+- **Saints predicted team to face Leicester as Downes doubt forces midfield change**: [Link](https://www.dailyecho.co.uk/sport/25840254.southampton-fc-predicted-team-play-leicester-championship/)
+- **Tuesday's Football Bet of the Day: EFL expert Dan Childs has a 7-10 bet from the Championship**: [Link](https://www.racingpost.com/sport/football-tips/football-bet-of-the-day-dan-childs-leicester-southampton-aizNL3C84g1F/)
+- **Southampton boss Tonda Eckert discusses preparations for back-to-back matches against Leicester City**: [Link](https://news.ssbcrack.com/southampton-boss-tonda-eckert-discusses-preparations-for-back-to-back-matches-against-leicester-city/)
+
+
+### tottenham (N/A, 10/02/2026 15:51 Lima)
+
+- **Man Utd in their post-d*ckhead era must ignore Scholes over Romero recommendation**: [Link](https://www.football365.com/news/man-utd-paul-scholes-cristian-romero-no-dickheads)
+- **Man United icon wants the club to land £70-80m-rated South American star**: [Link](https://www.caughtoffside.com/2026/02/10/man-united-cristian-romero-transfer/)
+- **Paul Merson says Tottenham have a player who just keeps letting them down**: [Link](https://www.thespurs.news/news/paul-merson-says-tottenham-have-a-player-who-just-keeps-letting-them-down/)
+
+
+### venezia vs (N/A, 10/02/2026 15:51 Lima)
+
+- **LIVE Venezia-Modena 0-2 Serie B 2025/2026: Modena effettua il quinto cambio**: [Link](https://sport.virgilio.it/dirette/live/serie-b/10-2-2026/venezia-modena/2592978/)
+- **SCATTO IN VETTA DOPO 8 VITTORIE STROPPA INSISTE «GUAI FERMARSI»**: [Link](https://www.pressreader.com/italy/la-gazzetta-dello-sport/20260210/282321096450233)
+- **MODENA CALCIO, LA SFIDA AL VENEZIA CAPOLISTA DIVENTA DETERMINANTE PER I GIALLI**: [Link](https://www.tvqui.it/modena-calcio-la-sfida-al-venezia-capolista-diventa-determinante-per-i-gialli/)
+
+
+### west ham - manchester united (N/A, 10/02/2026 15:51 Lima)
+
+- **Team news for West Ham v Man Utd**: [Link](https://www.manutd.com/en/news/detail/team-news-for-west-ham-v-man-utd-10-feb)
+- **Preview: Form teams West Ham and Man United meet in London**: [Link](https://www.fotmob.com/topnews/25850-preview-form-teams-west-ham-man-united-meet-london)
+- **🚨 BREAKING: West Ham and Man Utd confirm lineups for PL clash**: [Link](https://sports.yahoo.com/articles/breaking-west-ham-man-utd-190800615.html)
+
+
+### napoli - como (N/A, 10/02/2026 15:51 Lima)
+
+- **Cuándo juegan Napoli vs. Como por los cuartos de final de la Copa Italia 2025-2026: equipo, fecha, hora y TV en vivo**: [Link](https://www.espn.com.ar/futbol/argentina/nota/_/id/16296173/napoli-vs-como-cuartos-copa-italia-2025-2026-equipo-fecha-hora-y-tv-en-vivo)
+- **Apuestas y Pronóstico del Napoli vs Como 10/02/26**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/2026/febrero/pronostico-napoli-vs-como-10-02-26)
+- **Napoli vs. Como, hoy por Copa Italia: todo lo que tenés que saber**: [Link](https://www.directvsports.com/futbol/napoli-vs.-como-hoy-por-copa-italia-todo-lo-que-tenes-que-saber-20260210-0008.html)
+
+
 ### avengers doomsday (N/A, 10/02/2026 12:08 Lima)
 
 - **Avengers: Doomsday's Boring Teaser Trailers Explained By The Russo Brothers**: [Link](https://www.slashfilm.com/2097133/avengers-doomsday-teaser-trailers-explained-russo-brothers/)
@@ -962,73 +1032,5 @@ dangerous’**: [Link](https://www.vavel.com/en/football/2026/02/10/manchester-u
 - **Universitario fue notificado: Williams Riveros desaprobó examen de nacionalización**: [Link](https://depor.com/futbol-peruano/descentralizado/universitario-williams-riveros-habria-aprobado-examen-de-nacionalizacion-pero-no-fue-notificado-al-club-y-lo-inscribieron-como-extranjero-liga-1-2026-noticia/)
 - **Álvaro Barco aclara el caso Riveros y respalda cupo de extranjeros**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/alvaro-barco-aclara-el-caso-riveros-y-respalda-cupo-de-extranjeros-ultimas-noticia/)
 - **¿Williams Riveros habría aprobado examen de nacionalización?**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/williams-riveros-habria-aprobado-examen-nacionalizacion-n452612)
-
-
-### damiano david (N/A, 07/02/2026 00:07 Lima)
-
-- **Dove Cameron Details ‘Ridiculous’ Way She & Damiano David Started Dating**: [Link](https://www.iheart.com/content/2026-02-05-dove-cameron-details-ridiculous-way-she-damiano-david-started-dating/)
-- **Dove Cameron & Avan Jogia Promise Intense Twists In ‘Pressure Cooker’ Series ’56 Days’**: [Link](https://www.accessonline.com/videos/dove-cameron-avan-jogia-promise-intense-twists-in-pressure-cooker-series-56-days)
-- **Dove Cameron Reveals How She Met Fiance Damiano David: 'It Sounds Like Fan Fiction'**: [Link](https://www.justjared.com/photo-gallery/5276098/dove-cameron-on-how-she-met-damiano-david-04/)
-
-
-### alex turner (N/A, 07/02/2026 00:07 Lima)
-
-- **Yo Soy castings 2026: ¡Pasó de ser solo un fan que toca guitarra en su casa, al escenario!**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-castings-2026-paso-de-ser-solo-un-fan-que-toca-guitarra-en-su-casa-al-escenario_20260127/)
-- **Yo Soy castings 2026: ¡Arturo vuelve por su revancha y enciende la batalla de Alex Turner!**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-castings-2026-arturo-vuelve-por-su-revancha-y-enciende-la-batalla-de-alex-turner_20260204/)
-- **Yo Soy castings 2026: ¡Oliver pausó su carrera para cuidar la voz y deslumbró como Alex Turner!**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-castings-2026-oliver-pauso-su-carrera-para-cuidar-la-voz-y-deslumbro-como-alex-turner_20260203/)
-
-
-### natalia lafourcade (N/A, 07/02/2026 00:07 Lima)
-
-- **Bad Bunny, Gloria Estefan, Ca7riel & Paco Amoroso, y más ganadores latinos del Grammy 2026**: [Link](https://www.billboard.com/espanol/musica/grammy-2026-ganadores-latinos-1236168693/)
-- **🇲🇽🎤 Natalia Lafourcade gana el Grammy a Mejor Álbum Pop Latino por 'Cancionera' La cantante mexicana Natalia Lafourcade se llevó este domingo el Grammy a Mejor Álbum Pop Latino con su décimo proyecto de estudio, 'Cancionera'. La artista se impus**: [Link](https://www.facebook.com/MilenioDiario/photos/-natalia-lafourcade-gana-el-grammy-a-mejor-%C3%A1lbum-pop-latino-por-cancionerala-can/1375862481237886/)
-- **NATALIA LAFOURCADE recibe GRAMMY por su disco "Cancionera"**: [Link](https://www.cmtv.com.ar/noticias/noticia_completa.php?bnid=168&nid=34633&artista=Natalia_LaFourcade&titulo=NATALIA_LAFOURCADE_recibe_GRAMMY_por_su_disco_'Cancionera')
-
-
-### chappell roan (N/A, 07/02/2026 00:07 Lima)
-
-- **The Grammys Take Naked to Another Level**: [Link](https://www.nytimes.com/2026/02/01/style/grammys-chappell-roan-naked-dress.html)
-- **Chappell Roan 'Giggling' Over Reaction to Her Sheer Grammy Dress**: [Link](https://www.billboard.com/music/awards/chappell-roan-grammy-outfit-reaction-1236171289/)
-- **The Secret to Chappell Roan's Nipple Covers Was Gum Wrappers and Power Mesh**: [Link](https://www.allure.com/story/chappell-roan-nipple-prosthetics-grammys-how-to)
-
-
-### carlos alvarez (N/A, 07/02/2026 00:07 Lima)
-
-- **Elecciones 2026: el candidato presidencial Carlos Álvarez anunció que continuará en la contienda electoral**: [Link](https://rpp.pe/politica/elecciones/elecciones-2026-candidato-presidencial-carlos-alvarez-anuncio-que-continuara-en-la-contienda-electoral-noticia-1674808)
-- **País para Todos asegura que Carlos Álvarez no renunciará y evaluará decisión tras informe interno**: [Link](https://canaln.pe/actualidad/carlos-alvarez-no-va-renunciar-dice-pais-todos-n490125)
-- **Carlos Álvarez: La historia de la tensión en País para Todos tras cuestionamientos por el mal uso de la franja electoral**: [Link](https://elcomercio.pe/politica/elecciones/carlos-alvarez-crece-tension-e-incertidumbre-en-partido-tras-advertencia-de-candidato-por-caso-de-franja-electoral-tlcnota-noticia/)
-
-
-### heat - celtics (N/A, 06/02/2026 21:31 Lima)
-
-- **How to Watch Heat vs Celtics: Live Stream NBA, TV Channel**: [Link](https://www.newsweek.com/how-to-watch-heat-vs-celtics-live-stream-nba-tv-channel-2-11479571)
-- **Heat's Pelle Larsson: Questionable to return Friday**: [Link](https://www.cbssports.com/fantasy/basketball/news/heats-pelle-larsson-questionable-to-return-friday/)
-- **Unfortunate News For Jaylen Brown Ahead Of Game Against Miami Heat**: [Link](https://twsn.net/2026/02/06/unfortunate-news-for-jaylen-brown-ahead-of-game-against-miami-heat/)
-
-
-### necaxa - atl. san luis (N/A, 06/02/2026 21:31 Lima)
-
-- **Pronóstico Necaxa San Luís - Liga MX 06/02/26**: [Link](https://www.sportytrader.com/es/pronosticos/necaxa-san-luis-324648/)
-- **Liga MX: Por la fecha 5, Necaxa recibirá a Atl. de San Luis**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-por-la-fecha-5-necaxa-recibira-a-atl-de-san-luis-noticia-1674581)
-- **⚽ ¡Imperdible! Checa a qué HORA y por DÓNDE VER el Necaxa vs San Luis de la Liga MX ⚡🆚⛪**: [Link](https://www.facebook.com/MilenioDiario/photos/-imperdiblecheca-a-qu%C3%A9-hora-y-por-d%C3%B3nde-ver-el-necaxa-vs-san-luis-de-la-liga-mx-/1380449094112558/)
-
-
-### medellín - internacional de bogotá (N/A, 06/02/2026 21:31 Lima)
-
-- **Pronóstico Independiente Medellín Internacional De Bogota - Primera A Colombia 06/02/26**: [Link](https://www.sportytrader.com/es/pronosticos/independiente-medellin-internacional-de-bogota-324618/)
-- **Cuándo juegan DIM vs Internacional de Bogotá por la fecha 5 de Liga BetPlay: equipo, fecha, hora y TV en vivo**: [Link](https://www.espn.com.co/futbol/colombia/nota/_/id/16274714/medellin-vs-internacional-bogota-fecha-5-liga-betplay-equipo-fecha-hora-y-tv-en-vivo)
-- **EN VIVO: Medellín vs. Inter Bogotá - rueda el balón (0-0)**: [Link](https://www.winsports.co/futbol-colombiano/noticias/en-vivo-medellin-vs-inter-bogota-minuto-a-minuto-y-goles-fecha-5-406972)
-
-
-### tigres - santos (N/A, 06/02/2026 21:31 Lima)
-
-- **Liga MX: Tigres y Santos Laguna se encuentran en la fecha 5**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-tigres-y-santos-laguna-se-encuentran-en-la-fecha-5-noticia-1674580)
-- **¡Gol de Lucas Di Yorio! ERROR EN LA SALIDA | Tigres 0 - 1 Santos | J5 | CL 2026 | TV Azteca Deportes**: [Link](https://www.tvazteca.com/aztecadeportes/gol-lucas-di-yorio-error-en-la-salida-tigres-0-1-santos-j5-cl-2026-tv-azteca/)
-- **Es hora de pegar en casa, Tigres**: [Link](https://www.elnorte.com/es-hora-de-pegar-en-casa-tigres/ar3148093)
-
-
-### central córdoba - unión (N/A, 06/02/2026 21:31 Lima)
-
-Sin noticias relacionadas disponibles.
 
 
