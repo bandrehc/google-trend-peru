@@ -1,3 +1,24 @@
+### teleticket (N/A, 10/02/2026 08:26 Lima)
+
+- **Humbe, el fenómeno de las redes sociales, llega a Lima con su tour 'Dueño del cielo'**: [Link](https://rpp.pe/musica/conciertos/humbe-el-fenomeno-de-las-redes-sociales-llega-a-lima-con-su-tour-dueno-del-cielo-noticia-1675088)
+- **Humbe anuncia concierto en Lima como parte de su gira “Dueño de los Cielos”**: [Link](https://peru21.pe/espectaculos/humbe-anuncia-concierto-en-lima-como-parte-de-su-gira-dueno-de-los-cielos/)
+- **Concierto Humbe en Lima 2026: fecha, precios y cómo comprar entradas en Teleticket para 'Dueño de Cielos Tour' en Costa 21**: [Link](https://larepublica.pe/entretenimiento/2026/02/09/concierto-humbe-en-lima-2026-fecha-precios-y-como-comprar-entradas-en-teleticket-para-dueno-de-cielos-tour-en-costa-21-515511)
+
+
+### local de votación (N/A, 10/02/2026 08:26 Lima)
+
+- **ONPE anuncia capacitación para miembros de mesa**: [Link](https://canaln.pe/actualidad/onpe-anuncia-capacitacion-miembros-mesa-n490197)
+- **Elecciones 2026: consulta AQUÍ tu local de votación y si eres miembro de mesa en la web de la ONPE**: [Link](https://elcomercio.pe/respuestas/tramites/elecciones-2026-consulta-aqui-tu-local-de-votacion-y-si-eres-miembro-de-mesa-en-la-web-de-la-onpe-tdpe-noticia/)
+- **Nuevo plan de SERVIR ayudará a mejorar la gestión del personal público: infórmate**: [Link](https://www.elperuano.pe/noticia/288460-nuevo-plan-de-servir-ayudara-a-mejorar-la-gestion-del-personal-publico-informate)
+
+
+### warriors - grizzlies (N/A, 10/02/2026 08:26 Lima)
+
+- **NBA: Golden State Warriors vs. Memphis Grizzlies**: [Link](http://english.news.cn/20260210/15caec4cab3d48deb4a6b147cc456676/c.html)
+- **De'Anthony Melton credits Warriors' ‘physicality' for sparking comeback win**: [Link](https://www.nbcsportsbayarea.com/video/nba/golden-state-warriors/deanthony-melton-interview-video-watch/1915354/)
+- **Warriors Player Ratings: Spencer Leads Team In Scoring As Balanced Effort Leads To 114-113 Win Against Grizzlies**: [Link](https://www.yardbarker.com/nba/articles/warriors_player_ratings_spencer_leads_team_in_scoring_as_balanced_effort_leads_to_114_113_win_against_grizzlies/s1_16751_43451177)
+
+
 ### dolares a soles (N/A, 10/02/2026 04:02 Lima)
 
 - **Precio del dólar hoy, sábado 7 de febrero: a cuánto cerró el tipo de cambio en Perú**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-2026-a-cuanto-esta-el-dolar-el-sabado-7-de-febrero-y-tipo-de-cambio-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
@@ -1006,24 +1027,5 @@ Sin noticias relacionadas disponibles.
 - **Preview: Celta Vigo vs Osasuna - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/celta-vigo/preview/celta-vigo-vs-osasuna-prediction-team-news-lineups_591378.html)
 - **Celta Vigo's European dreams take huge hit with Osasuna defeat**: [Link](https://www.tribalfootball.com/article/soccer-laliga-celta-vigo-s-european-dreams-take-huge-hit-with-osasuna-defeat-2bae5da1-a6d1-4c94-bdfe-c4ce98ae441a)
 - **Celta - Osasuna live**: [Link](https://www.marca.com/en/soccer/laliga-ea-sports/celta-osasuna/2026/02/06/01_0101_20260206_176_450-live.html)
-
-
-### hellas verona vs (N/A, 06/02/2026 15:39 Lima)
-
-- **Serie A: Hellas Verona busca dejar el fondo de la tabla ante Pisa**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-hellas-verona-busca-dejar-el-fondo-de-la-tabla-ante-pisa-noticia-1674528)
-
-
-### leganés - granada (N/A, 06/02/2026 15:39 Lima)
-
-- **Apuestas y Pronóstico del Leganés vs Granada 06/02/26**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/2026/febrero/pronostico-leganes-vs-granada-06-02-26)
-- **Leonardo condiciona un partido turbulento en Butarque**: [Link](https://as.com/futbol/segunda/leonardo-condiciona-un-partido-turbulento-en-butarque-f202602-n/)
-- **A por la tercera consecutiva en casa en un duelo directo**: [Link](https://www.cdleganes.com/a-por-la-tercera-consecutiva-en-casa-en-un-duelo-directo)
-
-
-### moquegua (N/A, 06/02/2026 15:39 Lima)
-
-- **ANGR exige reunión urgente con la PCM por crisis en Moquegua**: [Link](https://caretas.pe/politica/angr-exige-reunion-urgente-con-la-pcm-por-crisis-en-moquegua/)
-- **Autoridades de Moquegua participarán en segunda sesión de la Mesa de Diálogo por el río Coralaque**: [Link](https://prensaregional.pe/autoridades-de-moquegua-participaran-en-segunda-sesion-de-la-mesa-de-dialogo-por-el-rio-coralaque/)
-- **MINEM entregó expedientes técnicos para la mitigación ambiental de la cuenca del río Coralaque en Moquegua**: [Link](https://mineriaenergia.com/minem-entrego-expedientes-tecnicos-para-la-mitigacion-ambiental-de-la-cuenca-del-rio-coralaque-en-moquegua/)
 
 
