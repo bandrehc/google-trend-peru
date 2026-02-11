@@ -1,3 +1,73 @@
+### antoine semenyo (N/A, 11/02/2026 15:45 Lima)
+
+- **Leeds United rival Tottenham & Aston Villa for player hailed “incredible” by Guardiola**: [Link](https://www.caughtoffside.com/2026/02/06/leeds-james-trafford-transfer/)
+- **Arsenal vs Man City Carabao Cup Final tickets have been released early**: [Link](https://www.express.co.uk/sport/football/2168557/carabao-cup-final-tickets-arsenal-manchester-city)
+- **Does Arteta the apprentice now have the upper hand over Pep ahead of final?**: [Link](https://www.thesun.co.uk/sport/38125730/arsenal-man-city-arteta-guardiola-league-cup/)
+
+
+### dawson creek (N/A, 11/02/2026 15:45 Lima)
+
+- **'Dawson's Creek' Star James Van Der Beek Dead at 48**: [Link](https://www.tmz.com/2026/02/11/james-van-der-beek-dead/)
+- **Stars React to James Van Der Beek’s Death**: [Link](https://www.justjared.com/2026/02/11/stars-react-to-james-van-der-beeks-death/)
+- **James Van Der Beek’s life in photos: Remembering the actor before his death at 48**: [Link](https://pagesix.com/2026/02/11/photos/james-van-der-beeks-life-in-photos-remembering-the-actor-before-his-death-at-48/)
+
+
+### celtic (N/A, 11/02/2026 15:45 Lima)
+
+- **Rangers v Celtic Scottish Cup quarter-final date and kick-off time revealed as fans left in dark over ticket allocation**: [Link](https://www.thescottishsun.co.uk/sport/15911553/rangers-celtic-scottish-cup-date-kick-off-time-tickets/)
+- **Julian Aurajo finally said what fans have been whispering about Ibrox allocation**: [Link](https://thecelticbhoys.com/julian-aurajo-finally-said-what-fans-have-been-whispering-about-ibrox-allocation-01kh6jnb8mt0)
+- **Scottish Gas Men's Scottish Cup Quarter-Finals fixture details confirmed**: [Link](https://www.scottishfa.co.uk/news/scottish-gas-mens-scottish-cup-quarter-finals-fixture-details-confirmed/)
+
+
+### milagros jauregui (N/A, 11/02/2026 15:45 Lima)
+
+- **Denuncian penalmente a Milagros Jáuregui por niñas víctimas de violación forzadas a gestar en su refugio**: [Link](https://www.infobae.com/peru/2026/02/10/denuncian-penalmente-a-milagros-jauregui-por-ninas-victimas-de-violacion-forzadas-a-gestar-en-su-refugio/)
+- **Congresista Milagros Jauregui dice que ya no pertenece al directorio de la casa refugio de víctimas de violación**: [Link](https://elcomercio.pe/lima/sucesos/congresista-milagros-jauregui-dice-que-ya-no-pertenece-al-directorio-de-la-casa-refugio-de-victimas-de-violacion-ultimas-noticia/)
+- **Cuando mezclan la religión con la política**: [Link](https://peru21.pe/opinion/cuando-mezclan-la-religion-con-la-politica-richard-arce/)
+
+
+### real sociedad (N/A, 11/02/2026 15:45 Lima)
+
+- **Cuándo juegan Athletic vs. Real Sociedad por la Copa del Rey: equipo, fecha, hora y TV en vivo**: [Link](https://www.espn.com.ar/futbol/espana/nota/_/id/16293397/cuando-juegan-athletic-vs-real-sociedad-por-la-copa-del-rey-equipo-fecha-hora-y-tv-en-vivo)
+- **Obtén una Apuesta Segura del 50% de OlyBet para el partido Athletic vs Real Sociedad hasta el 11 de febrero de 2026**: [Link](https://legalbet.es/bonos/olybet-apuesta-segura-para-el-partido-athletic-bilbao-vs-real-sociedad/)
+- **🔴Athletic y Real Sociedad: Se igualan las fuerzas en la Catedral**: [Link](https://onefootball.com/es/noticias/athletic-y-real-sociedad-se-igualan-las-fuerzas-en-la-catedral-42394603)
+
+
+### celtic f. c. - livingston (N/A, 11/02/2026 15:45 Lima)
+
+- **Celtic starting XI to face Livingston at Paradise**: [Link](https://www.celticfc.com/news/2026/february/11/celtic-starting-xi-to-face-livingston-at-paradise/)
+- **Scottish Premiership Betting Tips for Wednesday 11th February**: [Link](https://news.williamhill.com/football/scottish-premiership-predictions-for-wednesday-11th-february-2026/)
+- **Team’s Up – Saracchi starts for Celtic, Oxlade-Chamberlain poised for debut**: [Link](https://thecelticstar.com/teams-up-saracchi-starts-for-celtic-oxlade-chamberlain-poised-for-debut/)
+
+
+### copa alemana (N/A, 11/02/2026 15:45 Lima)
+
+- **Cuándo juegan Bayern vs Leipzig por los cuartos de final de Copa de Alemania: equipo, fecha, hora y TV en vivo**: [Link](https://espndeportes.espn.com/futbol/alemania/nota/_/id/16292466/bayern-vs-leipzig-cuartos-de-final-copa-alemania-equipo-fecha-hora-y-tv-en-vivo)
+- **Apuestas y Pronóstico del Bayern Munich vs RB Leipzig 11/02/26**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/2026/febrero/pronostico-bayern-munich-vs-rb-leipzig-11-02-26)
+- **Bayern vs. Leipzig EN VIVO: ver gratis ESPN y Disney Plus por internet con Luis Díaz**: [Link](https://depor.com/colombia/colombianos-en-el-mundo/bayern-vs-leipzig-en-vivo-hoy-gratis-espn-futbol-libre-tv-disney-plus-con-luis-diaz-en-directo-por-internet-copa-de-alemania-dfb-pokal-video-noticia/)
+
+
+### premier league (N/A, 11/02/2026 15:45 Lima)
+
+- **The best training snaps ahead of trip to Brentford | Gallery | News**: [Link](https://www.arsenal.com/news/best-training-snaps-ahead-trip-brentford)
+- **Arteta plays down ‘new manager bounce’ & says schedule is ‘natural’**: [Link](https://arseblog.news/2026/02/arteta-plays-down-new-manager-bounce-says-schedule-is-natural/)
+- **Brentford vs Arsenal Betting Tips & Offers: Get £200+ in free bets**: [Link](https://mybettingsites.co.uk/news/brentford-vs-arsenal-betting-tips-amp-offers-get-200-in-free-bets-amp-back-17-2-bet-builder-11-feb/)
+
+
+### city (N/A, 11/02/2026 15:45 Lima)
+
+- **La aplastante racha de Marco Silva, DT del Fulham, ante Guardiola**: [Link](https://www.espn.com.ar/futbol/inglaterra/nota/_/id/16301675/manchester-city-vs-fulham-mala-racha-marco-silva-guardiola-raul-jimenez)
+- **Apuestas y Pronóstico del Manchester City vs Fulham 11/02/26**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/2026/febrero/pronostico-manchester-city-vs-fulham-11-02-26)
+- **Manchester City - Fulham, en directo: Premier League, en vivo hoy**: [Link](https://as.com/futbol/internacional/manchester-city-fulham-en-directo-premier-league-en-vivo-hoy-f202602-d/)
+
+
+### james van der beek (N/A, 11/02/2026 15:45 Lima)
+
+- **Acteur James Van Der Beek, vooral bekend van ‘Dawson’s Creek’, op 48-jarige leeftijd overleden**: [Link](https://www.volkskrant.nl/cultuur-media/acteur-james-van-der-beek-vooral-bekend-van-dawson-s-creek-op-48-jarige-leeftijd-overleden~b8659dcc/)
+- **Amerikaanse acteur James Van Der Beek (48) overleden**: [Link](https://www.haarlemsdagblad.nl/buitenland/amerikaanse-acteur-james-van-der-beek-48-overleden/131250069.html)
+- **Dawson's Creek-acteur James Van Der Beek (48) overleden aan darmkanker**: [Link](https://www.nu.nl/entertainment/6385728/dawsons-creek-acteur-james-van-der-beek-48-overleden-aan-darmkanker.html)
+
+
 ### el salvador (N/A, 11/02/2026 12:09 Lima)
 
 - **De una hora a 15 minutos: El metrocable busca reducir el tráfico en San Salvador**: [Link](https://www.infobae.com/el-salvador/2026/02/11/de-una-hora-a-15-minutos-el-metrocable-busca-reducir-el-trafico-en-san-salvador/)
@@ -960,75 +1030,5 @@ dangerous’**: [Link](https://www.vavel.com/en/football/2026/02/10/manchester-u
 - **Así se jugará la fecha 2 del Apertura de la Liga 1 2026**: [Link](https://www.espn.com.pe/futbol/peru/nota/_/id/16263598/programacion-de-la-fecha-2-del-apertura-liga-1-de-peru)
 - **Tabla de posiciones Liga 1 2026: resultados y partidos de la fecha 2 del Torneo Apertura**: [Link](https://libero.pe/futbol-peruano/liga-1/2026/02/06/tabla-de-posiciones-torneo-apertura-fecha-2-de-liga-1-peru-533544)
 - **Universitario y Alianza Lima buscan afianzar su liderazgo en Torneo Apertura**: [Link](https://andina.pe/agencia/noticia-universitario-y-alianza-lima-buscan-afianzar-su-liderazgo-torneo-apertura-1062126.aspx)
-
-
-### spurs - mavericks (N/A, 08/02/2026 00:25 Lima)
-
-- **Wembanyama And Flagg Star As Spurs Host Mavericks In Rivalry Rematch**: [Link](https://evrimagaci.org/gpt/wembanyama-and-flagg-star-as-spurs-host-mavericks-in-rivalry-rematch-527535)
-- **Wemby Outduels Cooper Flagg as Stephon Castle Makes History to Wow NBA Fans in Spurs' Win vs. Mavs**: [Link](https://bleacherreport.com/articles/25391987-wemby-outduels-cooper-flagg-stephon-castle-makes-history-wow-nba-fans-spurs-win-vs-mavs)
-- **Victor Wembanyama, Post‑Game vs Dallas Mavericks | 2/7/26**: [Link](https://www.nba.com/spurs/videos/victor-wembanyama-post-game-vs-dallas-mavericks-2-7-26)
-
-
-### vinicius oliveira (N/A, 08/02/2026 00:25 Lima)
-
-- **Main Card Results | UFC Fight Night: Bautista vs Oliveira**: [Link](https://www.ufc.com/news/ufc-fight-night-bautista-vs-oliveira-results-highlights-main-card-winners-interviews)
-- **LIVE! Watch UFC Vegas 113 Post-Fight Presser Here**: [Link](https://sports.yahoo.com/articles/live-watch-ufc-vegas-113-030500060.html)
-- **UFC Fight Night on Paramount+: Where to watch Mario Bautista vs. Vinicius Oliveira and more things to know**: [Link](https://www.cbssports.com/ufc/news/ufc-fight-night-mario-bautista-vinicius-oliveira-where-to-watch-stream-paramount/)
-
-
-### mario bautista (N/A, 08/02/2026 00:25 Lima)
-
-- **5 Peleadores A Impactar En UFC Vegas 113**: [Link](https://www.ufcespanol.com/news/5-peleadores-impactar-en-ufc-vegas-113)
-- **Mario Bautista y Vinicius Oliveira estrenan el META Apex en la primera Fight Night del 2026 en UFC**: [Link](https://www.mundodeportivo.com/ufc/20260207/1002616032/mario-bautista-vinicius-oliveira-estrenan-meta-apex-primera-fight-night-2026-ufc.html)
-- **👊 ¡Hay tiro! Conoce el HORARIO y la SEÑAL para seguir la batalla de Mario Bautista vs Vinicius Oliveira 🇺🇸🇧🇷**: [Link](https://www.facebook.com/MilenioDiario/posts/-hay-tiroconoce-el-horario-y-la-se%C3%B1al-para-seguir-la-batalla-de-mario-bautista-v/1381453134012154/)
-
-
-### liga (N/A, 08/02/2026 00:25 Lima)
-
-- **Marc Bernal delighted at scoring first Barcelona goal in Mallorca win**: [Link](https://www.football-espana.net/2026/02/08/marc-bernal-first-barcelona-goal)
-- **Yamal stunner helps Barca move four points clear**: [Link](https://www.beinsports.com/en-nz/football/laliga/articles-video/barcelona-3-0-mallorca-yamal-stunner-helps-laliga-leaders-move-four-points-clear-2026-02-07)
-- **Casado: The Victory Wasn't Easy, and Bernal's Joy Was a Touching Moment for Everyone**: [Link](https://www.ysscores.com/en/news/13906460/Casado:-The-Victory-Wasn't-Easy,-and-Bernal's-Joy-Was-a-Touching-Moment-for-Everyone)
-
-
-### alianza lima vs comerciantes unidos (N/A, 07/02/2026 22:15 Lima)
-
-- **Canales y horarios del Alianza Lima vs. Comerciantes Unidos, por la Liga 1**: [Link](https://depor.com/futbol-peruano/descentralizado/alianza-lima-vs-comerciantes-unidos-en-vivo-fecha-horarios-canales-de-tv-y-donde-ver-transmision-por-liga-1-max-movistar-tv-directv-noticia/)
-- **Alianza Lima vs Comerciantes Unidos EN VIVO: últimas noticias y previa del partido por la Liga 1**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/alianza-lima-vs-comerciantes-unidos-en-vivo-hoy-ver-partido-por-liga-1-torneo-apertura-lbposting-noticia/)
-- **¿Sin Paolo Guerrero? El once de Alianza Lima vs. Comerciantes Unidos que ya genera polémicas**: [Link](https://bolavip.com/pe/alianza-lima/sin-paolo-guerrero-el-once-de-alianza-lima-vs-comerciantes-unidos-que-ya-genera-polemicas)
-
-
-### diego romero (N/A, 07/02/2026 22:15 Lima)
-
-- **Diego Romero y su debut en Liverpool: caño, asistencia, golazo y un festejo particular**: [Link](https://www.espn.com.ar/futbol/uruguay/nota/_/id/16282647/diego-romero-liverpool-video-gol-asistencia-debut-apertura-2026)
-- **¿Quién será el campeón del Torneo Apertura: Nacional, Peñarol u otro? Lo que dijo la Inteligencia Artificial, con candidatos y pronósticos para el certamen**: [Link](https://www.elobservador.com.uy/futbol/quien-sera-el-campeon-del-torneo-apertura-nacional-penarol-u-otro-lo-que-dijo-la-inteligencia-artificial-candidatos-y-pronosticos-el-certamen-n6033629)
-- **EN JUEGO LA FECHA 1 DE LA LIGA AUF: PEÑAROL CONSIGUIÓ EL PRIMER TRIUNFO**: [Link](https://laoraldeportiva.com.uy/2026/02/08/se-fijaron-los-detalles-de-la-fecha-1-de-la-liga-auf/)
-
-
-### américa - monterrey (N/A, 07/02/2026 22:15 Lima)
-
-- **América vs Rayados: ¿cuáles bajas pesarán más?**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/16274419/america-vs-rayados-cuales-bajas-pesaran-mas-clausura-2026)
-- **Qué canal pasa América vs Monterrey hoy: dónde ver GRATIS y EN VIVO el partido de la Liga MX**: [Link](https://www.365scores.com/es/news/america-vs-monterrey-donde-ver-canales/)
-- **▷ ¿A qué hora es y en qué canales juegan América vs. Monterrey EN VIVO hoy por Clausura 2026 de Liga MX en EE.UU.? Canales TV**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/a-que-hora-juega-y-que-canal-transmite-america-vs-monterrey-en-vivo-hoy-por-clausura-2026-de-liga-mx-en-eeuu-canales-tv-nnda-nnrt-noticia/)
-
-
-### partido de hoy (N/A, 07/02/2026 22:15 Lima)
-
-- **Partidos de hoy, sábado 7 de febrero de 2026: programación, canales TV y resultados en vivo**: [Link](https://www.infobae.com/peru/deportes/2026/02/07/partidos-de-hoy-sabado-7-de-febrero-de-2026-programacion-canales-tv-y-resultados-en-vivo/)
-- **Partidos de hoy, sábado 7 de febrero del 2026: a qué hora, quiénes juegan y por qué canales ver fútbol en vivo**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/partidos-de-hoy-sabado-7-de-febrero-del-2026-resultados-programacion-horarios-canales-tv-y-donde-ver-futbol-en-vivo-noticia/)
-- **Partidos de hoy EN VIVO: programación, horario y dónde ver fútbol online este sábado 7 de febrero**: [Link](https://libero.pe/futbol-internacional/2026/02/06/partidos-de-hoy-en-vivo-sabado-7-de-febrero-107898)
-
-
-### sabrina carpenter (N/A, 07/02/2026 22:15 Lima)
-
-- **The Muppet Show review – we all deserve a brief bit of happiness right now**: [Link](https://www.theguardian.com/tv-and-radio/2026/feb/03/the-muppet-show-review-sabrina-carpenter-seth-rogen-disney)
-- **'The Muppet Show' Review: Sabrina Carpenter Hosts Disney+ Special**: [Link](https://www.hollywoodreporter.com/tv/tv-reviews/the-muppet-show-review-sabrina-carpenter-disney-plus-1236493107/)
-- **Review: This Is Your Grandparents’ ‘Muppet Show,’ Fortunately**: [Link](https://www.nytimes.com/2026/02/03/arts/television/review-the-muppet-show.html)
-
-
-### u va (N/A, 07/02/2026 22:15 Lima)
-
-- **Flow Automotive, UVA Partner on game day donation drive for Charlottesville students**: [Link](https://www.29news.com/2026/02/07/flow-automotive-uva-partner-game-day-donation-drive-charlottesville-students/)
-- **Donation drive to support EdZone kicking off**: [Link](https://www.cbs19news.com/news/donation-drive-to-support-edzone-kicking-off/article_d1336120-5b6b-4cd8-986c-c768c518ab26.html)
-- **UVa details first phase of DEI purge in report to DOJ**: [Link](https://richmond.com/news/state-and-regional/article_3fc3baa3-a7ab-5675-9902-b1886f07fcdf.html)
 
 
