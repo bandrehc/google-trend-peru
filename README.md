@@ -1,3 +1,73 @@
+### nancy guthrie (N/A, 11/02/2026 00:38 Lima)
+
+- **Live updates: Nancy Guthrie’s disappearance, person detained for questioning after surveillance video released**: [Link](https://www.cnn.com/us/live-news/nancy-guthrie-savannah-missing-mom-02-10-26)
+- **PCSD confirms one detained in Nancy Guthrie case**: [Link](https://www.kold.com/2026/02/03/we-gotta-find-her-dna-samples-taken-nancy-guthries-home-belong-her-pcsd-says/)
+- **FBI says it’s unaware of Savannah Guthrie talking with her mom’s suspected kidnappers**: [Link](https://apnews.com/article/savannah-guthrie-mom-missing-ransom-deadline-arizona-3977f842fd3d1fd66952d1d763944b9d)
+
+
+### último sismo hoy perú (N/A, 11/02/2026 00:38 Lima)
+
+- **Temblor en el Perú hoy: sismo de magnitud 4.4 en Chimbote no ocasiona daños**: [Link](https://andina.pe/agencia/noticia-temblor-el-peru-hoy-sismo-magnitud-44-chimbote-no-ocasiona-danos-1062633.aspx)
+- **Temblor en Perú, hoy 10 de febrero: magnitud y epicentro del sismo según IGP**: [Link](https://rpp.pe/lima/desastres-naturales/temblor-en-peru-hoy-10-de-febrero-magnitud-y-epicentro-del-sismo-segun-igp-live-3172)
+- **Temblor en Puno: sismo de magnitud 4,6 se sintió en Carabaya, según IGP**: [Link](https://larepublica.pe/sociedad/2026/02/10/temblor-en-puno-sismo-de-magnitud-46-se-sintio-en-carabaya-segun-igp-552550)
+
+
+### latina (N/A, 11/02/2026 00:38 Lima)
+
+- **La pugna entre China y EE. UU. se traslada a América Latina, advierte Mirko Lauer**: [Link](https://larepublica.pe/opinion/2026/02/10/la-pugna-entre-china-y-ee-uu-se-traslada-a-america-latina-advierte-mirko-lauer-hnews-414576)
+- **América Latina entre dos imperios, por Mirko Lauer**: [Link](https://larepublica.pe/opinion/2026/02/10/america-latina-entre-dos-imperios-por-mirko-lauer-hnews-371259)
+- **A Deborah Poole, referente de la antropología en América Latina**: [Link](https://otramirada.pe/deborah-poole-referente-de-la-antropolog%C3%ADa-en-am%C3%A9rica-latina)
+
+
+### billetera digital (N/A, 11/02/2026 00:38 Lima)
+
+- **Yape tendrá nueva competencia: Novedosa billetera digital es autorizada por la SBS**: [Link](https://www.infobae.com/peru/2026/02/10/yape-tendra-nueva-competencia-nueva-billetera-digital-es-autorizada-por-la-sbs/)
+- **Bitel entra en la carrera para competir con Yape y Plin**: [Link](https://gestion.pe/tu-dinero/bitel-entra-en-la-carrera-para-competir-con-yape-y-plin-noticia/)
+- **BiPay obtiene luz verde para operar como emisora de dinero electrónico**: [Link](https://rpp.pe/economia/economia/bipay-billetera-digital-de-bitel-operara-como-emisora-de-dinero-electronico-como-funcionara-noticia-1675253)
+
+
+### yo soy (N/A, 11/02/2026 00:38 Lima)
+
+- **Yo Soy castings 2026: ¡Voces icónicas aseguran su pase a la ronda final!**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-castings-2026-voces-iconicas-aseguran-su-pase-a-la-ronda-final_20260210/)
+- **Yo Soy castings 2026: Finalistas deslumbran en audiciones**: [Link](https://elcongresista.mx/espectaculos/yo-soy-castings-2026-finalistas-audiciones/)
+- **Yo Soy castings 2026: ¡Primera ronda de clasificados a conciertos!**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-castings-2026-primera-ronda-de-clasificados-a-conciertos_20260210/)
+
+
+### spurs - lakers (N/A, 11/02/2026 00:38 Lima)
+
+- **Spurs vs Lakers Odds & Picks Tonight: Contrarian OVER Play**: [Link](https://www.oddsshark.com/nba/spurs-lakers-picks-odds-february-10-2026)
+- **Lakers-Spurs free livestream: How to watch NBA game tonight, TV, time**: [Link](https://www.al.com/tv/2026/02/lakers-spurs-free-livestream-how-to-watch-nba-game-tonight-tv-time.html)
+- **DraftKings Promo Code: Bet $5, Get $200 if Your Spurs vs Lakers, Any Other NBA Bet Wins**: [Link](https://www.foxsports.com/stories/betting/draftkings-promo-code-bet-5-get-200-your-spurs-vs-lakers-any-other-nba-bet-wins)
+
+
+### taylor fritz (N/A, 11/02/2026 00:38 Lima)
+
+- **With behind-the-back hot shot and 'best returning in years', Fritz dazzles in Dallas win**: [Link](https://www.atptour.com/en/news/fritz-giron-shelton-diallo-dallas-2025-tuesday)
+- **Tennis bets: Our best tennis parlay at +481 combined odds [2/10/2026]**: [Link](https://www.dimers.com/news/tennis-bets-our-best-tennis-parlay-at-481-combined-odds-2102026)
+- **Taylor Fritz vs. Marcos Giron: Predictions, Where to Watch**: [Link](https://globelynews.com/sports/taylor-fritz-vs-marcos-giron-predictions-where-to-watch/)
+
+
+### magaly tv en vivo (N/A, 11/02/2026 00:38 Lima)
+
+- **Magaly Medina vuelve con un ampay que promete sacudir la farándula peruana: “de esposo ejemplar a rey de la noche”**: [Link](https://www.infobae.com/peru/2026/02/08/magaly-medina-vuelve-con-un-ampay-que-promete-sacudir-la-farandula-peruana-de-esposo-ejemplar-a-rey-de-la-noche/)
+- **Magaly Medina la destroza en Youtube: "Sin bots pagados"**: [Link](https://www.atv.pe/noticia/magaly-medina-la-destroza-en-youtube-sin-bots-pagados/)
+- **VER Magaly TV La Firme EN VIVO hoy, martes 10 de febrero**: [Link](https://elcomercio.pe/respuestas/farandula/magaly-tv-la-firme-regresa-hoy-en-vivo-con-explosivo-ampay-hora-canal-tv-y-mas-de-la-nueva-temporada-tdpe-noticia/)
+
+
+### sabrina carpenter (N/A, 11/02/2026 00:38 Lima)
+
+- **Sabrina Carpenter Fans Are Convinced She’s Announcing An Australian Tour**: [Link](https://www.marieclaire.com.au/news/celebrity/sabrina-carpenter-australian-tour/)
+- **Sabrina Carpenter fans think she has sneakily announced Dublin concert**: [Link](https://vipmagazine.ie/sabrina-carpenter-fans-think-she-has-sneakily-announced-dublin-concert/)
+- **‘There’s Plenty Worse Out There’: How Sabrina Carpenter Built a Boyfriend Made of Pringles**: [Link](https://www.rollingstone.com/music/music-news/sabrina-carpenter-pringles-interview-1235510860/)
+
+
+### pacers - knicks (N/A, 11/02/2026 00:38 Lima)
+
+- **Game Thread: Knicks vs Pacers, February 10, 2026**: [Link](https://www.postingandtoasting.com/knicks-game-threads/79103/game-thread-knicks-vs-pacers-february-10-2026)
+- **February 11, 2026 NBA games: Odds, tips and betting trends**: [Link](https://sportsbookwire.usatoday.com/story/sports/sports-betting/2026/02/10/nba-odds-tips-betting-trends-2-11-2026/88615687007/)
+- **theScore Bet bonus code NPNEWS: Get a bet reset up to $1,000 for Knicks vs. Pacers**: [Link](https://nypost.com/2026/02/10/betting/thescore-bet-bonus-code-npnews-get-a-bet-reset-up-to-1000-for-knicks-vs-pacers/)
+
+
 ### publicis (N/A, 10/02/2026 21:50 Lima)
 
 - **Publicis hits record profit margin, adds 5800 staff and hikes cash bonuses 8%**: [Link](https://www.campaignlive.co.uk/article/publicis-hits-record-profit-margin-adds-5800-staff-hikes-cash-bonuses-8/1947085)
@@ -962,75 +1032,5 @@ dangerous’**: [Link](https://www.vavel.com/en/football/2026/02/10/manchester-u
 - **Saturday's Serie A predictions including Genoa vs. Napoli**: [Link](https://www.sportsmole.co.uk/football/napoli/race-for-the-serie-a-title/feature/will-napoli-claim-vital-win-over-genoa-saturdays-serie-a-predictions-and-previews_591571.html)
 - **Genoa v Napoli preview**: [Link](https://sscnapoli.it/en/match-preview-focus-di-genoa-napoli/)
 - **De Rossi: Conte the 'worst coach' to face if Genoa are expecting a favour**: [Link](https://www.beinsports.com/en-us/soccer/serie-a/articles/de-rossi-conte-the-worst-coach-to-face-if-genoa-are-expecting-a-favour-2026-02-06)
-
-
-### lens vs (N/A, 07/02/2026 11:37 Lima)
-
-- **Liga de Francia: Lens quiere el liderato del torneo frente a Stade Rennes**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-de-francia-lens-quiere-el-liderato-del-torneo-frente-a-stade-rennes-noticia-1674672)
-- **Lens predicted XI v Rennes: Allan Saint-Maximin benched, Samson Baidoo returns**: [Link](https://sports.yahoo.com/articles/lens-predicted-xi-v-rennes-105000476.html)
-- **Where to Watch RC Lens vs. Stade Rennes: TV Channel, Start Time and Live Stream**: [Link](https://www.bleachernation.com/how-to-watch/2026/02/06/where-to-watch-rc-lens-vs-stade-rennes-tv-channel-start-time-and-live-stream-2/)
-
-
-### barcelona vs atlético madrid (N/A, 07/02/2026 11:37 Lima)
-
-- **¿A qué hora es el sorteo de semifinales de la Copa del Rey? Canal TV, horario, cómo y dónde ver online**: [Link](https://as.com/futbol/copa_del_rey/a-que-hora-es-el-sorteo-de-semifinales-de-la-copa-del-rey-canal-tv-horario-como-y-donde-ver-online-f202602-n/)
-- **Copa del Rey: Barcelona y Atlético se vuelven a cruzar en semis**: [Link](https://www.espn.com.ar/futbol/espana/nota/_/id/16277868/copa-del-rey-barcelona-atletico-semis)
-- **Barcelona vs Atlético Madrid: fecha, hora y canal TV del partido por semifinal de Copa del Rey**: [Link](https://elcomercio.pe/deporte-total/espana/barcelona-vs-atletico-madrid-fecha-hora-y-canal-tv-del-partido-por-semifinal-de-copa-del-rey-noticia/)
-
-
-### lens - rennes (N/A, 07/02/2026 11:37 Lima)
-
-- **Comment regarder RC Lens - Rennes ? Date, heure, streaming et comment regarder la Ligue 1 McDonald’s sur Ligue 1+, disponible sur DAZN​**: [Link](https://www.dazn.com/fr-FR/news/football/comment-regarder-rc-lens-rennes-date-heure-streaming-et-comment-regarder-la-ligue-1-mcdonalds-sur-ligue-1-disponible-sur-dazn/atamivhnnqkv1v9u614kolz90)
-- **Stade Rennais. En trois matches, retour à la case départ ? . Sport**: [Link](https://laval.maville.com/sport/detail_-stade-rennais.-en-trois-matches-retour-a-la-case-depart-_-7180457_actu.Htm)
-- **La composition du Racing Club de Lens pour la réception du Stade Rennais**: [Link](https://madeinlensois.ouest-france.fr/infos/article-rc-lens-la-composition-du-racing-club-de-lens-pour-la-reception-du-stade-rennais-511982.html)
-
-
-### pablo torre (N/A, 07/02/2026 11:37 Lima)
-
-- **Pablo Torre once again visits Dallas Cowboys fan Charles Flores, who is on death row.**: [Link](https://www.dmagazine.com/micropost/pablo-torre-once-again-v-dallas-cowboys-fan-charles-flores-who-is-on-death-row/)
-- **"I'm Innocent. I Can Prove It."**: [Link](https://www.pablo.show/p/im-innocent-i-can-prove-it)
-- **Super Bowl on Death Row: New “Pablo Torre Finds Out” Podcast Featuring Charles Flores, Dallas Cowboys Superfan who is Innocent on Texas’s Death Row**: [Link](https://podnews.net/press-release/charles-flores-pablo-torre)
-
-
-### aitana (N/A, 07/02/2026 11:37 Lima)
-
-- **Cami Homs compartió el álbum de fotos de la primera semana de su hija Aitana: “Nos tiene muertos de amor”**: [Link](https://www.infobae.com/teleshow/2026/02/06/cami-homs-compartio-el-album-de-fotos-de-la-primera-semana-de-su-hija-aitana-nos-tiene-muertos-de-amor/)
-- **La primera foto de Cami Homs después del nacimiento de Aitana, su hija con José Sosa: "Feliz"**: [Link](https://www.clarin.com/fama/primera-foto-cami-homs-despues-nacimiento-aitana-hija-jose-sosa-feliz_0_43wAJ7sxX7.html)
-- **Camila Homs reveló cómo está, a una semana de haber dado a su hija Aitana: “De a poquito”**: [Link](https://www.eltrecetv.com.ar/noticias/2026/02/06/camila-homs-revelo-como-esta-a-una-semana-de-haber-dado-a-su-hija-aitana-de-a-poquito/)
-
-
-### arsenal (N/A, 07/02/2026 11:37 Lima)
-
-- **Ex-Gunner agrees deal after surprise Arsenal return comments**: [Link](https://dailycannon.com/2026/02/arsenal-oxlade-chamberlain-celtic-medical/)
-- **The fear behind Kris Boyd’s Oxlade-Chamberlain comments**: [Link](https://thecelticstar.com/the-fear-behind-kris-boyds-oxlade-chamberlain-comments/)
-- **Celtic Transfer Collapses After Agreement 'Practically Finalised'**: [Link](https://www.givemesport.com/celtic-transfer-collapses-oxlade-chamberlain-bakayoko/)
-
-
-### peru cazas (N/A, 07/02/2026 11:37 Lima)
-
-- **El gobierno de Perú afirma que la compra de aviones de combate será “en función al liderazgo de Estados Unidos”**: [Link](https://www.pucara.org/post/el-gobierno-de-per%C3%BA-afirma-que-la-compra-de-aviones-de-combate-ser%C3%A1-en-funci%C3%B3n-al-liderazgo-de-esta)
-- **Aviones caza F-16 de EE.UU. cada vez más cerca de la Fuerza Aérea Peruana**: [Link](https://peru21.pe/politica/eeuu-peru-aviones-caza-f-16-cada-vez-mas-cerca-de-la-fap/)
-- **Compra de aviones de combate para la FAP en etapa final, dice Gobierno | PERU**: [Link](https://gestion.pe/peru/compra-de-aviones-de-combate-para-la-fap-en-etapa-final-dice-gobierno-noticia/)
-
-
-### super bowl (N/A, 07/02/2026 11:37 Lima)
-
-- **Super Bowl picks, odds, score predictions for Seahawks vs. Patriots**: [Link](https://www.nfl.com/news/super-bowl-lx-picks-odds-score-predictions-for-seahawks-vs-patriots)
-- **A Concordian’s Guide To The Super Bowl |**: [Link](https://theconcordian.com/2026/02/a-concordians-guide-to-the-super-bowl/)
-- **I asked ChatGPT, Gemini and Perplexity to predict the Super Bowl 2026 winner — here’s who they picked**: [Link](https://www.tomsguide.com/ai/i-asked-chatgpt-gemini-and-perplexity-to-predict-the-super-bowl-2026-winner-heres-who-they-picked)
-
-
-### mainz 05 - augsburgo (N/A, 07/02/2026 11:37 Lima)
-
-- **Amiri trifft doppelt vom Punkt: Augsburg verliert in Mainz**: [Link](https://www.br.de/nachrichten/sport/bundesliga-fc-augsburg-verliert-beim-fsv-mainz-05-nadiem-amiri-trifft-doppelt-vom-punkt,VAYDTwQ)
-- **VAR-Irrsinn in der Bundesliga: Kommentator tobt nach Witz-Elfer: „Wahnsinn“**: [Link](https://www.express.de/sport/fussball/var-irrsinn-in-der-bundesliga-kommentator-tobt-nach-witz-elfer-1214507)
-- **Mainz will Punk­te am Fastnacht-​Spieltag - FCK bei den Li­li­en**: [Link](https://www.rheinpfalz.de/rheinland-pfalz_artikel,-mainz-will-punkte-am-fastnacht-spieltag-fck-bei-den-lilien-_arid,5858585.html)
-
-
-### newcastle vs (N/A, 07/02/2026 08:01 Lima)
-
-- **Out of the League Cup and stuck in mid-table - What's gone wrong at Newcastle this season?**: [Link](https://www.transfermarkt.com/out-of-the-league-cup-and-stuck-in-mid-table-whats-gone-wrong-at-newcastle-this-season-/view/news/475048)
-- **Brentford (H) – Pre-match thoughts, team news, possible XI and prediction**: [Link](https://www.nufcblog.co.uk/2026/02/06/brentford-h-pre-match-thoughts-team-news-possible-xi-and-prediction/)
-- **Premier League LIVE: News conferences and team news before the weekend**: [Link](https://www.bbc.com/sport/football/live/ckgxk1lz0l2t)
 
 
