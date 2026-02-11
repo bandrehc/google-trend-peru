@@ -1,3 +1,10 @@
+### tigres - forge fc (N/A, 11/02/2026 03:56 Lima)
+
+- **Tigres UANL venció 4-1 a Forge y clasificó a octavos de final de Copa de Campeones Concacaf | RESUMEN Y GOLES**: [Link](https://elcomercio.pe/deporte-total/mexico/tigres-vs-forge-en-vivo-hoy-gratis-via-fox-one-disney-plus-a-que-hora-juegan-canal-de-transmision-y-donde-ver-por-copa-de-campeones-concacaf-video-noticia/)
+- **Qué canal pasa Tigres vs Forge hoy: dónde ver GRATIS y EN VIVO la Champions Cup**: [Link](https://www.365scores.com/es/news/tigres-vs-forge-donde-ver-gratis-canal/)
+- **4-1: El Tigres de Ángel Correa, a octavos de final por la puerta grande**: [Link](https://www.mundodeportivo.com/futbol/america/20260211/1002618606/4-1-tigres-angel-correa-octavos-final-puerta-grande.html)
+
+
 ### nancy guthrie (N/A, 11/02/2026 00:38 Lima)
 
 - **Live updates: Nancy Guthrie’s disappearance, person detained for questioning after surveillance video released**: [Link](https://www.cnn.com/us/live-news/nancy-guthrie-savannah-missing-mom-02-10-26)
@@ -1025,12 +1032,5 @@ dangerous’**: [Link](https://www.vavel.com/en/football/2026/02/10/manchester-u
 - **LIVE Al 45' Fiorentina-Torino 0-1: gol di Casadei, Brescianini si mangia il gol nel recupero**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Fiorentina/07-02-2026/fiorentina-torino-live-diretta-serie-a.shtml)
 - **Bucchioni: "Non mi preoccupa l'assenza di Gosens, importante il ritorno di Kean anche se non segna"**: [Link](https://www.labaroviola.com/bucchioni-non-mi-preoccupa-lassenza-di-gosens-importante-il-ritorno-di-kean-anche-se-non-segna/338468/)
 - **Fiorentina-Torino, le formazioni ufficiali**: [Link](https://www.torinofc.it/news/07/02/2026/fiorentina-torino-le-formazioni-ufficiali_41092)
-
-
-### genoa - napoli (N/A, 07/02/2026 11:37 Lima)
-
-- **Saturday's Serie A predictions including Genoa vs. Napoli**: [Link](https://www.sportsmole.co.uk/football/napoli/race-for-the-serie-a-title/feature/will-napoli-claim-vital-win-over-genoa-saturdays-serie-a-predictions-and-previews_591571.html)
-- **Genoa v Napoli preview**: [Link](https://sscnapoli.it/en/match-preview-focus-di-genoa-napoli/)
-- **De Rossi: Conte the 'worst coach' to face if Genoa are expecting a favour**: [Link](https://www.beinsports.com/en-us/soccer/serie-a/articles/de-rossi-conte-the-worst-coach-to-face-if-genoa-are-expecting-a-favour-2026-02-06)
 
 
