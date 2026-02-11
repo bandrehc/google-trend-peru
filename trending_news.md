@@ -1,3 +1,57 @@
+### el salvador (N/A, 11/02/2026 12:09 Lima)
+
+- **De una hora a 15 minutos: El metrocable busca reducir el tráfico en San Salvador**: [Link](https://www.infobae.com/el-salvador/2026/02/11/de-una-hora-a-15-minutos-el-metrocable-busca-reducir-el-trafico-en-san-salvador/)
+- **Residentes de la Zacamil, en incertidumbre por construcción del metrocable - La Prensa Gráfica**: [Link](https://www.laprensagrafica.com/elsalvador/residentes-de-la-zacamil-en-incertidumbre-por-construccion-del-metrocable-20260210-0068.html)
+- **El 16 de febrero inician obras del metrocable en Zacamil**: [Link](https://www.elsalvador.com/noticias/nacional/bras-metrocable-zacamil-inician-16-febrero/1261961/2026/)
+
+
+### tobey maguire (N/A, 11/02/2026 12:09 Lima)
+
+- **Tobey Maguire Ignites Buzz Seen with Young Influencer at Super Bowl LX**: [Link](https://www.filmogaz.com/143733)
+- **Who Is Mishka Silva, Tobey Maguire’s Alleged 20-Year-Old Girlfriend?**: [Link](https://hauterrfly.com/entertainment/who-is-mishka-silva-tobey-maguires-alleged-20-year-old-girlfriend/)
+- **Tobey Maguire's Relationship History Explained as Spiderman Actor Spotted With Model 30 Years Younger**: [Link](https://www.ibtimes.co.uk/tobey-maguires-relationship-history-explained-spiderman-actor-spotted-model-30-years-younger-1778148)
+
+
+### zayn (N/A, 11/02/2026 12:09 Lima)
+
+- **Zayn Malik Admits He Was Never 'In Love' With Gigi Hadid But Has 'Respect' For Her**: [Link](https://www.yahoo.com/entertainment/celebrity/articles/zayn-malik-admits-never-love-163002236.html)
+- **Zayn Malik Stands By Quote That He Was Never in Love with Ex Girlfriend Gigi Hadid, But Adds 1 On the Record Clarification**: [Link](https://www.justjared.com/2026/02/11/zayn-malik-stands-by-quote-that-he-was-never-in-love-with-ex-girlfriend-gigi-hadid-but-adds-1-on-the-record-clarification/)
+- **Zayn Malik Says He “Will Always Love” Gigi Hadid After Previously Claiming He’s Never “Been in Love”**: [Link](https://www.cosmopolitan.com/entertainment/celebs/a70312849/zayn-malik-claim-never-in-love-gigi-hadid/)
+
+
+### kurt cobain (N/A, 11/02/2026 12:09 Lima)
+
+- **Kurt Cobain's death 'was a homicide': report**: [Link](https://www.dailymail.co.uk/news/article-15510941/Kurt-Cobains-suicide-homicide.html)
+- **Forensic Probe Rekindles Mystery Around Kurt Cobain**: [Link](https://evrimagaci.org/gpt/forensic-probe-rekindles-mystery-around-kurt-cobain-528226)
+- **Was Kurt Cobain’s Death a Homicide? What We Know About the Late Nirvana Singer**: [Link](https://hollywoodlife.com/feature/was-kurt-cobain-death-a-homicide-5502778/)
+
+
+### test (N/A, 11/02/2026 12:09 Lima)
+
+- **McLaren's Lando Norris tops day 1 of F1 testing in Bahrain**: [Link](https://www.espn.com/f1/story/_/id/47898170/mclaren-lando-norris-tops-day-1-f1-testing-bahrain)
+- **F1 2026 Bahrain pre-season test: Lando Norris edges Max Verstappen on day one**: [Link](https://www.motorsport.com/f1/news/f1-bahrain-2026-pre-season-test-norris-edges-verstappen-on-day-one/10796786/)
+- **Where new F1 cars are already troubling drivers in Bahrain**: [Link](https://www.the-race.com/formula-1/our-initial-trackside-verdict-of-the-2026-f1-cars/)
+
+
+### piero cari (N/A, 11/02/2026 12:09 Lima)
+
+- **Diego Rebagliati hizo revelación sobre Piero Cari en Alianza Lima tras presunta denuncia por agresión física contra su pareja**: [Link](https://www.infobae.com/peru/deportes/2026/02/11/diego-rebagliati-hizo-revelacion-sobre-piero-cari-en-alianza-lima-tras-presunta-denuncia-por-agresion-fisica-contra-su-pareja/)
+- **Alianza Lima: Futbolista fue increpado dentro de Matute por presunta agresión a su enamorada**: [Link](https://www.apnoticias.pe/peru/exitosa-noticias/alianza-lima-futbolista-fue-increpado-dentro-de-matute-por-presunta-agresion-a-su-enamorada-1489542)
+- **VIDEO: Piero Cari fue increpado, en Matute, por presuntamente golpear a su pareja**: [Link](https://peru21.pe/espectaculos/video-piero-cari-fue-increpado-en-matute-por-presuntamente-golpear-su-pareja/)
+
+
+### virgen de lourdes (N/A, 11/02/2026 12:09 Lima)
+
+Sin noticias relacionadas disponibles.
+
+
+### athletic vs. real sociedad (N/A, 11/02/2026 12:09 Lima)
+
+- **Cuándo juegan Athletic vs. Real Sociedad por la Copa del Rey: equipo, fecha, hora y TV en vivo**: [Link](https://www.espn.com.ar/futbol/espana/nota/_/id/16293397/cuando-juegan-athletic-vs-real-sociedad-por-la-copa-del-rey-equipo-fecha-hora-y-tv-en-vivo)
+- **Apuestas y Pronóstico del Athletic Club vs Real Sociedad 11/02/26**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/2026/febrero/pronostico-athletic-club-vs-real-sociedad-11-02-26)
+- **La reflexión de Valverde: "¿Cuándo no hay tensión en el fútbol?"**: [Link](https://www.mundodeportivo.com/futbol/athletic-bilbao/20260211/1002618098/reflexion-valverde-cuando-hay-tension-futbol.html)
+
+
 ### fk arkadag - al-nassr (N/A, 11/02/2026 08:22 Lima)
 
 - **Аркадаг – Аль-Наср прогноз на матч Лиги чемпионов АФК 2 11 февраля 2026 года. Ставка с коэффициентом 2,25**: [Link](https://metaratings.ru/prognozy/futbol/arkadag-al-nasr-prognoz-na-match-elitnoi-ligi-chempionov-afk-11-fevralya-2026-goda/)
@@ -976,61 +1030,5 @@ dangerous’**: [Link](https://www.vavel.com/en/football/2026/02/10/manchester-u
 - **Flow Automotive, UVA Partner on game day donation drive for Charlottesville students**: [Link](https://www.29news.com/2026/02/07/flow-automotive-uva-partner-game-day-donation-drive-charlottesville-students/)
 - **Donation drive to support EdZone kicking off**: [Link](https://www.cbs19news.com/news/donation-drive-to-support-edzone-kicking-off/article_d1336120-5b6b-4cd8-986c-c768c518ab26.html)
 - **UVa details first phase of DEI purge in report to DOJ**: [Link](https://richmond.com/news/state-and-regional/article_3fc3baa3-a7ab-5675-9902-b1886f07fcdf.html)
-
-
-### tarjeta roja futbol (N/A, 07/02/2026 22:15 Lima)
-
-- **Endrick, expulsado en un partido gris**: [Link](https://as.com/futbol/internacional/endrick-expulsado-en-un-partido-gris-f202602-n/)
-- **Frenazo al 'efecto Endrick': ¡¡¡expulsado por roja directa!!!**: [Link](https://www.marca.com/futbol/liga-francesa/2026/02/07/frenazo-efecto-endrick-expulsado-roja-directa.html)
-- **Endrick fue expulsado en la victoria de Lyon en la Ligue 1**: [Link](https://espndeportes.espn.com/futbol/francia/nota/_/id/16284464/video-endrick-expulsion-roja-lyon-victoria-vs-nantes-ligue-1)
-
-
-### newell's - defensa y justicia (N/A, 07/02/2026 22:15 Lima)
-
-- **Newell's vs. Def. y Jus. (7 de Feb., 2026) Resultados en Vivo**: [Link](https://www.espn.com.ar/futbol/partido/_/juegoId/762828)
-- **Newells vs Defensa y Justicia: Resultado EN VIVO, minuto a minuto y goles de la Liga Profesional**: [Link](https://www.365scores.com/es/news/newells-vs-defensa-y-justicia-resultado/)
-- **Visita a Rosario por la cuarta: el Halcón se mide ante la Lepra**: [Link](https://www.defensayjusticia.org.ar/visita-a-rosario-por-la-cuarta-el-halcon-se-mide-ante-la-lepra/)
-
-
-### junior - boyacá chicó (N/A, 07/02/2026 22:15 Lima)
-
-- **¿Cuándo fue la última vez de Junior en el Romelio Martínez?**: [Link](https://espndeportes.espn.com/futbol/colombia/nota/_/id/16279544/cuando-fue-la-ultima-vez-de-junior-en-el-romelio-martinez)
-- **Que Jannenson no esté contra Chicó genera incordio en junioristas: "La continuidad le dará un acople más rápido"**: [Link](https://impactonews.co/que-jannenson-no-este-contra-chico-genera-incordio-entre-junioristas-la-continuidad-le-dara-un-mas-rapido-acople/)
-- **Junior de Barranquilla vs Boyacá Chicó: Dónde Ver HOY EN VIVO, Online y Gratis**: [Link](https://futbolete.com/liga-betplay/junior-barranquilla-boyaca-chico-donde-ver-hoy-vivo-online/985338/)
-
-
-### warriors - lakers (N/A, 07/02/2026 22:15 Lima)
-
-- **Lakers vs. Warriors odds, prediction, time: 2026 NBA picks for Saturday, Feb. 7 from proven model**: [Link](https://www.cbssports.com/nba/news/lakers-warriors-odds-prediction-spread-time-2026-nba-picks-saturday-february-7/)
-- **Preview: Hopes and unheralded players**: [Link](https://dubnationhq.com/p/preview-hopes-and-unheralded-players)
-- **BetMGM Bonus Code BROAD1500: Maximize Your $1,500 Super Bowl Betting Bonus**: [Link](https://www.crossingbroad.com/news/sports-gambling/betmgm-bonus-code-broad1500-maximize-your-1500-super-bowl-betting-bonus/)
-
-
-### endrick (N/A, 07/02/2026 15:34 Lima)
-
-- **Real Madrid Star Set For International Recall**: [Link](https://www.si.com/onsi/soccer/real-madrid/international/real-madrid-star-set-for-international-recall)
-- **Lyon's Endrick on Karim Benzema comparison: 'He is light years ahead'**: [Link](https://www.espn.com/soccer/story/_/id/47836187/lyon-endrick-karim-benzema-comparison)
-- **Cacapa: Endrick's Lyon success a lesson for Real Madrid**: [Link](https://www.tribalfootball.com/article/soccer-laliga-cacapa-endrick-s-lyon-success-a-lesson-for-real-madrid-d3a7d704-1b55-4197-9815-fc0b48ea9abd)
-
-
-### aldosivi - rosario central (N/A, 07/02/2026 15:34 Lima)
-
-- **Aldosivi vs Rosario Central: Resultado EN VIVO, minuto a minuto y goles de la Liga Profesional**: [Link](https://www.365scores.com/es/news/aldosivi-vs-rosario-central-resultado/)
-- **Jugar en La Feliz y volver felices a la ciudad**: [Link](https://www.pressreader.com/argentina/rosario-12/20260207/281586657037762)
-- **Un recibimiento con fervor y carisma**: [Link](https://diarioelatlantico.com.ar/2026/02/07/un-recibimiento-con-fervor-y-carisma/)
-
-
-### lyon (N/A, 07/02/2026 15:34 Lima)
-
-- **Lyon : l'image du mois**: [Link](https://www.lyoncapitale.fr/actualite/lyon-l-image-du-mois)
-- **Nantes - OL : Noah Nartey préféré à Khalis Merah**: [Link](https://www.olympique-et-lyonnais.com/nantes-ol-noah-nartey-prefere-a-khalis-merah,390265.html)
-- **Olympique Lyonnais - C'est parti à la Beaujoire ! (0-0)**: [Link](https://www.fcnantes.com/articles/article2809.php?num=48614)
-
-
-### atlético grau - sport huancayo (N/A, 07/02/2026 15:34 Lima)
-
-- **¿A qué hora juegan Atlético Grau vs Sport Huancayo? dónde ver EN VIVO la Liga 1-2026**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/atletico-grau-vs-sport-huancayo-en-vivo-a-que-hora-y-donde-ver-el-partido-por-la-fecha-2-de-la-liga-1-2026-torneo-apertura-tdpe-noticia/)
-- **🔴#ENVIVO| Grau y Huancayo empatan en Sullana**: [Link](https://ovacion.pe/noticias/liga1-2026/envivo-grau-huancayo-empatan-sullana)
-- **Pronóstico: Atlético Grau vs Sport Huancayo por la fecha 2 del Torneo Apertura**: [Link](https://www.futbolperuano.com/liga-1/noticias/atletico-grau-vs-sport-huancayo-en-vivo-por-el-torneo-apertura-562755)
 
 
