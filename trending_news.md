@@ -1,3 +1,45 @@
+### fk arkadag - al-nassr (N/A, 11/02/2026 08:22 Lima)
+
+- **Аркадаг – Аль-Наср прогноз на матч Лиги чемпионов АФК 2 11 февраля 2026 года. Ставка с коэффициентом 2,25**: [Link](https://metaratings.ru/prognozy/futbol/arkadag-al-nasr-prognoz-na-match-elitnoi-ligi-chempionov-afk-11-fevralya-2026-goda/)
+- **Аркадаг ― Аль-Наср Эр-Рияд: превью**: [Link](https://soccer365.ru/news/25618/)
+- **Прогноз и ставка на точный счёт матча Акадаг – Аль-Наср Эр-Рияд Лиги чемпионов АФК – 11 февраля 2026**: [Link](https://www.euro-football.ru/prognozy/1006123489_prognoz_i_stavka_na_tochnyiy_schet_matcha_akadag__al-nasr_er-riyad_ligi_chempionov_afk__11_fevralya_2026)
+
+
+### peru (N/A, 11/02/2026 08:22 Lima)
+
+- **Un sismo de magnitud 3.5 remeció la región Lima esta madrugada**: [Link](https://rpp.pe/lima/actualidad/lima-sismo-de-magnitud-35-remecio-la-region-esta-madrugada-noticia-1675379)
+- **Temblor en el Perú hoy: sismo de magnitud 4.4 en Chimbote no ocasiona daños**: [Link](https://andina.pe/agencia/noticia-temblor-el-peru-hoy-sismo-magnitud-44-chimbote-no-ocasiona-danos-1062633.aspx)
+- **Temblor hoy, 11 de febrero de 2026, en Lima: epicentro, magnitud y reporte oficial del IGP**: [Link](https://www.expreso.com.pe/actualidad/temblor-hoy-11-de-febrero-de-2026-en-lima-epicentro-magnitud-y-reporte-oficial-del-igp-hace-minutos-instituto-geofisico-del-peru-sismo-indeci-emergencia-noticia/1262969/)
+
+
+### samsung galaxy s26 ultra (N/A, 11/02/2026 08:22 Lima)
+
+- **Samsung desvelará el Galaxy S26 el próximo 25 de febrero**: [Link](https://ahora.com.pe/samsung-desvelara-el-galaxy-s26-el-proximo-25-de-febrero/)
+- **El Samsung S26 Ultra será la decepción del 2026 si se confirman estas dos filtraciones: sin carga magnética y batería insuficiente**: [Link](https://libero.pe/tecnologia/2026/02/07/samsung-s26-ultra-filtraciones-cuando-sale-caracteristicas-precio-en-estados-unidos-bateria-carga-magnetica-camara-pantalla-precio-peru-mexico-276297)
+- **Samsung revela nueva característica del Galaxy S26 Ultra que promete dejar en ridículo al iPhone 17 Pro Max**: [Link](https://libero.pe/tecnologia/2026/02/04/samsung-revela-nueva-caracteristica-del-galaxy-s26-ultra-promete-dejar-en-ridiculo-iphone-17-pro-max-samsung-s26-ultra-112260)
+
+
+### hola (N/A, 11/02/2026 08:22 Lima)
+
+- **Sebastián Rulli revela qué tiene Angelique Boyer de la personalidad de Doménica Montero**: [Link](https://www.hola.com/us-es/celebrities/20260210883199/sebastian-rulli-revela-angelique-boyer-personalidad-domenica-montero/)
+- **Angelique Boyer comparte fotos inéditas de 'Doménica Montero' y Sebastián Rulli reacciona: "Eres y estás espectacular"**: [Link](https://www.lasestrellas.tv/famosos/angelique-boyer-comparte-fotos-ineditas-de-domenica-montero-y-sebastian-rulli-reacciona-eres-y-estas-espectacular)
+- **Para San Valentín, esta “manicura romántica” está causando sensación en las redes sociales.**: [Link](https://www.ma-grande-taille.com/es/beaute/maquillage/la-manicura-romantica-de-san-valentin-esta-causando-sensacion-en-las-redes-sociales-434440)
+
+
+### humbe concierto (N/A, 11/02/2026 08:22 Lima)
+
+- **Humbe, el fenómeno de las redes sociales, llega a Lima con su tour 'Dueño del cielo'**: [Link](https://rpp.pe/musica/conciertos/humbe-el-fenomeno-de-las-redes-sociales-llega-a-lima-con-su-tour-dueno-del-cielo-noticia-1675088)
+- **Humbe en Lima 2026: Fecha, lugar y precios de entradas**: [Link](https://www.americatv.com.pe/noticias/espectaculos/humbe-llega-lima-su-tour-dueno-cielo-costa-21-n515667)
+- **Humbe confirma su regreso a Perú como parte de su gira “Dueño de los cielos tour”**: [Link](https://elcomercio.pe/luces/musica/humbe-confirma-su-regreso-a-peru-como-parte-de-su-gira-dueno-de-los-cielos-tour-celebs-ultimas-noticia/)
+
+
+### lakers - spurs (N/A, 11/02/2026 08:22 Lima)
+
+- **Victor Wembanyama’s historic first half tops Tim Duncan, sparks massive NBA reactions**: [Link](https://www.thenews.com.pk/latest/1391886-victor-wembanyama-s-historic-first-half-tops-tim-duncan-sparks-massive-nba-reactions)
+- **It marked only the fifth instance in the shot clock …**: [Link](https://www.hoopshype.com/story/sports/nba/rumors/2026/02/11/it-marked-only-the-fifth-instance-in-the-shot-clock/88620765007/)
+- **Short-handed Lakers fall to Spurs after Victor Wembanyama scores 40**: [Link](https://nypost.com/2026/02/11/sports/victor-wembanyama-scores-40-points-in-spurs-win-over-lakers/)
+
+
 ### tigres - forge fc (N/A, 11/02/2026 03:56 Lima)
 
 - **Tigres UANL venció 4-1 a Forge y clasificó a octavos de final de Copa de Campeones Concacaf | RESUMEN Y GOLES**: [Link](https://elcomercio.pe/deporte-total/mexico/tigres-vs-forge-en-vivo-hoy-gratis-via-fox-one-disney-plus-a-que-hora-juegan-canal-de-transmision-y-donde-ver-por-copa-de-campeones-concacaf-video-noticia/)
@@ -990,47 +1032,5 @@ dangerous’**: [Link](https://www.vavel.com/en/football/2026/02/10/manchester-u
 - **¿A qué hora juegan Atlético Grau vs Sport Huancayo? dónde ver EN VIVO la Liga 1-2026**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/atletico-grau-vs-sport-huancayo-en-vivo-a-que-hora-y-donde-ver-el-partido-por-la-fecha-2-de-la-liga-1-2026-torneo-apertura-tdpe-noticia/)
 - **🔴#ENVIVO| Grau y Huancayo empatan en Sullana**: [Link](https://ovacion.pe/noticias/liga1-2026/envivo-grau-huancayo-empatan-sullana)
 - **Pronóstico: Atlético Grau vs Sport Huancayo por la fecha 2 del Torneo Apertura**: [Link](https://www.futbolperuano.com/liga-1/noticias/atletico-grau-vs-sport-huancayo-en-vivo-por-el-torneo-apertura-562755)
-
-
-### fiorentina vs (N/A, 07/02/2026 15:34 Lima)
-
-- **Serie A: Fiorentina se enfrentará ante Torino por la fecha 24**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-fiorentina-se-enfrentara-ante-torino-por-la-fecha-24-noticia-1674709)
-- **Serie A official line-ups: Fiorentina vs. Torino**: [Link](https://sports.yahoo.com/articles/serie-official-line-ups-fiorentina-185000205.html)
-- **🔴 Fiorentina-Torino 0-0, Torino threaten twice early on**: [Link](https://onefootball.com/en/news/fiorentina-torino-0-0-torino-threaten-twice-early-on-42375055)
-
-
-### nantes - lyon (N/A, 07/02/2026 15:34 Lima)
-
-- **Nantes - OL : Noah Nartey préféré à Khalis Merah**: [Link](https://www.olympique-et-lyonnais.com/nantes-ol-noah-nartey-prefere-a-khalis-merah,390265.html)
-- **Olympique Lyonnais - H-2 avant le coup d'envoi (21h05)**: [Link](https://www.fcnantes.com/articles/article2809.php?num=48608)
-- **Face à l’OL, une partie de la Beaujoire restera silencieuse**: [Link](https://tribunenantaise.fr/actus-fcnantes/face-a-lol-une-partie-de-la-beaujoire-restera-silencieuse/)
-
-
-### melcochita (N/A, 07/02/2026 15:34 Lima)
-
-- **Monserrat rompe su silencio y revela la razón por la cual no trabajó durante los 17 años de relación con ‘Melcochita’**: [Link](https://elcomercio.pe/respuestas/farandula/monserrat-rompe-su-silencio-y-revela-la-razon-por-la-cual-no-trabajo-durante-los-17-anos-de-relacion-con-melcochita-tdpe-noticia/)
-- **Susan Villanueva asegura que si Melcochita FALLECE será culpa de Monserrat: “Investiguen si algo le pasa”**: [Link](https://www.atv.pe/noticia/susan-villanueva-asegura-que-si-melcochita-fallece-sera-culpa-de-monserrat-investiguen-si-algo-le-pasa/)
-- **Deysi Araujo acusó a Monserrat Seminario de maltratar a ‘Melcochita’: “Vi que lo trató bastante mal”**: [Link](https://diariocorreo.pe/espectaculos/deysi-araujo-acuso-a-monserrat-seminario-de-maltratar-a-melcochita-vi-que-lo-trato-bastante-mal-noticia/)
-
-
-### spezia - virtus entella (N/A, 07/02/2026 15:34 Lima)
-
-- **Spezia - Virtus Entella, il derby regionale minuto | DIRETTA TESTUALE**: [Link](https://www.rainews.it/tgr/liguria/articoli/2026/02/spezia-calcio-virtus-entella-serie-b-calcio-giornata-23-stadio-picco-formazioni-ufficiali-tabellino-risultato-d6ef0ecf-7ccc-40c5-9a65-63fa6cc5d70d.html)
-- **Aurelio e Mateju al rientro da titolari, due spezzini tornano al Picco: le probabili di Spezia - Virtus…**: [Link](https://gazzettadellaspezia.com/spezia/item/172368-aurelio-e-mateju-al-rientro-da-titolari-due-spezzini-tornano-al-picco-le-probabili-di-spezia-virtus-entella)
-- **Nel pre-gara vieni a trovarci allo Store di Viale Fieschi: ospite Vanja Vlahovic**: [Link](https://www.speziacalcio.com/en/news/nel-pre-gara-vieni-a-trovarci-allo-store-di-viale-fieschi-ospite-vanja-vlahovic.28041.html)
-
-
-### real sociedad - elche c. f. (N/A, 07/02/2026 15:34 Lima)
-
-- **Apuestas y Pronóstico del Real Sociedad vs Elche 07/02/26**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2026/febrero/pronostico-real-sociedad-vs-elche-07-02-26)
-- **Ya es oficial la alineación de la Real Sociedad: rota medio equipo para recibir al Elche**: [Link](https://www.mundodeportivo.com/futbol/real-sociedad/20260207/1002616538/oficial-alineacion-real-sociedad-rota-medio-equipo-recibir-elche.html)
-- **Real Sociedad – Elche CF: Sarabia busca bajar de la nube a Matarazzo**: [Link](https://onefootball.com/en/news/real-sociedad-elche-cf-sarabia-busca-bajar-de-la-nube-a-matarazzo-42371821)
-
-
-### fiorentina - torino (N/A, 07/02/2026 15:34 Lima)
-
-- **LIVE Al 45' Fiorentina-Torino 0-1: gol di Casadei, Brescianini si mangia il gol nel recupero**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Fiorentina/07-02-2026/fiorentina-torino-live-diretta-serie-a.shtml)
-- **Bucchioni: "Non mi preoccupa l'assenza di Gosens, importante il ritorno di Kean anche se non segna"**: [Link](https://www.labaroviola.com/bucchioni-non-mi-preoccupa-lassenza-di-gosens-importante-il-ritorno-di-kean-anche-se-non-segna/338468/)
-- **Fiorentina-Torino, le formazioni ufficiali**: [Link](https://www.torinofc.it/news/07/02/2026/fiorentina-torino-le-formazioni-ufficiali_41092)
 
 
