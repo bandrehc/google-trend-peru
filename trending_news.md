@@ -1,3 +1,73 @@
+### publicis (N/A, 10/02/2026 21:50 Lima)
+
+- **Publicis hits record profit margin, adds 5800 staff and hikes cash bonuses 8%**: [Link](https://www.campaignlive.co.uk/article/publicis-hits-record-profit-margin-adds-5800-staff-hikes-cash-bonuses-8/1947085)
+- **Publicis Groupe: Capitalizing On The AI Wave To Grow**: [Link](https://seekingalpha.com/article/4866948-publicis-groupe-stock-q4-capitalizing-on-the-ai-wave-to-grow)
+- **Edelman, Publicis: early PR earnings prompt more questions than answers**: [Link](https://www.prweek.co.uk/article/1947643/edelman-publicis-early-pr-earnings-prompt-questions-answers)
+
+
+### milagros aguayo (N/A, 10/02/2026 21:50 Lima)
+
+- **Denuncian penalmente a Milagros Jáuregui por niñas víctimas de violación forzadas a gestar en su refugio**: [Link](https://www.infobae.com/peru/2026/02/10/denuncian-penalmente-a-milagros-jauregui-por-ninas-victimas-de-violacion-forzadas-a-gestar-en-su-refugio/)
+- **Cuando mezclan la religión con la política**: [Link](https://peru21.pe/opinion/cuando-mezclan-la-religion-con-la-politica-richard-arce/)
+- **Polémica por albergue de congresista para niñas víctimas de violación: la historia detrás y el pedido de colectivos**: [Link](https://elcomercio.pe/lima/sucesos/polemica-por-albergue-de-congresista-para-ninas-victimas-de-violacion-la-historia-detras-y-el-pedido-de-colectivos-noticia/)
+
+
+### damiano david (N/A, 10/02/2026 21:50 Lima)
+
+- **Dove Cameron Opens Up About Wanting to Wear a Wedding Look That Feels 'Inclusive' of Her Queerness**: [Link](https://people.com/dove-cameron-opens-up-about-finding-wedding-look-that-is-inclusive-of-her-queerness-11900121)
+- **Dove Cameron & Avan Jogia Reveal What They Love About Their Fiancés (Exclusive)**: [Link](https://screenrant.com/dove-cameron-avan-jogia-reveal-what-they-love-about-fiances-exclusive/)
+- **Dove Cameron Got Candid About Her Upcoming Wedding Glam**: [Link](https://www.allure.com/story/dove-cameron-wedding-look-interview)
+
+
+### eddie vedder (N/A, 10/02/2026 21:50 Lima)
+
+- **Eddie Vedder Changed Kids' Lives With Pearl Jam. Now, He and His Wife, Jill, Are Trying to Save Them**: [Link](https://www.rollingstone.com/music/music-features/eddie-vedder-jill-pearl-jam-documentary-netflix-1235514215/)
+- **Eddie Vedder documentary, ‘Matter of Time’, about rare genetic skin disorder lands on Netflix**: [Link](https://faroutmagazine.co.uk/eddie-vedder-documentary-matter-of-time-rare-genetic-disorder-netflix/)
+- **Hope’s Still Alive in Eddie Vedder’s ‘Matter of Time’ Concert Film**: [Link](https://thenerdsofcolor.org/2026/02/06/hopes-still-alive-in-eddie-vedders-matter-of-time-concert-film/)
+
+
+### bucaramanga - tolima (N/A, 10/02/2026 21:50 Lima)
+
+- **Pronóstico Atlético Bucaramanga Deportes Tolima - Primera A Colombia 10/02/26**: [Link](https://www.sportytrader.com/es/pronosticos/atletico-bucaramanga-deportes-tolima-326050/)
+- **Qué canal pasa Bucaramanga vs Tolima hoy: dónde ver el partido gratis y en vivo de la Liga BetPlay**: [Link](https://www.365scores.com/es/news/canal-tv-bucaramanga-vs-tolima-gratis/)
+- **Bucaramanga vs Tolima, en vivo la Liga BetPlay 2026-I: ¿Quién gana el partido de hoy?**: [Link](https://www.clarosports.com/colombia/liga-bet-play/bucaramanga-vs-tolima-en-vivo-la-liga-betplay-2026-i-quien-gana-el-partido-de-hoy/)
+
+
+### flamengo vs (N/A, 10/02/2026 21:50 Lima)
+
+- **Vitória - BA vs Clube de Regatas do Flamengo pronostico y comparación de cuotas 11.02.2026**: [Link](https://www.livetipsportal.com/es/pronosticos-apuestas-deportivas/vitoria-ba-vs-cr-flamengo-serie-a-11809378/)
+- **Vitória vs Flamengo: previa, horario y cómo llegan para la fecha 3 del Brasileirao**: [Link](https://zona.palmsbet.pe/deportes/futbol/vitoria-vs-flamengo-previa-horario-y-como-llegan-para-la-fecha-3-del-brasileirao/)
+- **Vitória vs Flamengo: previa, horario y cómo llegan para la fecha 3 del Brasileirao**: [Link](https://zona.palmsbet.pe/deportes/futbol/vitoria-vs-flamengo-previa-horario-y-como-llegan-para-la-fecha-3-del-brasileirao/)
+
+
+### copa libertadores (N/A, 10/02/2026 21:50 Lima)
+
+- **Cuándo juegan Alianza Lima vs. 2 de Mayo por CONMEBOL Libertadores: equipos, fecha, hora y TV en vivo**: [Link](https://www.espn.com.pe/futbol/copa-libertadores/nota/_/id/16291175/alianza-lima-vs-2-de-mayo-fase-1-vuelta-copa-libertadores-equipos-fecha-hora-y-tv-en-vivo)
+- **“La presión de Matute será en contra de ellos”: DT de 2 de Mayo lanzó fuerte advertencia a Alianza Lima**: [Link](https://depor.com/futbol-peruano/copa-libertadores/alianza-lima-vs-2-de-mayo-eduardo-ledesma-lanzo-una-advertencia-sobre-matute-en-su-llegada-a-lima-por-copa-libertadores-video-noticia/)
+- **Alianza busca la remontada en La "Caldera"**: [Link](https://caretas.pe/deportes/alianza-busca-la-remontada-en-la-caldera/)
+
+
+### pumas - san diego fc (N/A, 10/02/2026 21:50 Lima)
+
+- **Pumas sucumbe en San Diego y queda al borde de la eliminación**: [Link](https://www.espn.com.pe/futbol/norte-centro-america/nota/_/id/16268940/san-diego-vs-pumas-concacaf-champions-cup-2026-resultado-ida-goles)
+- **Pumas UNAM vs San Diego en vivo: transmisión del partido por la Copa de Campeones Concacaf**: [Link](https://elcomercio.pe/deporte-total/mexico/pumas-vs-san-diego-en-vivo-hoy-gratis-via-fox-one-disney-plus-a-que-hora-juegan-canal-de-transmision-y-donde-ver-por-copa-de-campeones-concacaf-video-noticia/)
+- **Pumas no resiste y Atlas rescata agónico empate**: [Link](https://www.espn.com.pe/futbol/mexico/nota/_/id/16285828/atlas-vs-pumas-resumen-goles-empate-ultimo-minuto-liga-mx)
+
+
+### the strongest vs. deportivo táchira (N/A, 10/02/2026 21:50 Lima)
+
+- **Táchira vs. Strongest (11 Feb, 2026) Live Score**: [Link](https://www.espn.in/football/match/_/gameId/401842614)
+- **How And Where To Watch: Deportivo Táchira vs The Strongest In The Copa Libertadores On beIN SPORTS**: [Link](https://www.beinsports.com/en-us/soccer/conmebol-libertadores/articles/how-and-where-to-watch-deportivo-t%C3%A1chira-vs-the-strongest-in-the-copa-libertadores-on-bein-sports-2026-02-10)
+- **Deportivo Tachira look to end Venezuela’s Copa Libertadores knockout drought**: [Link](https://www.besoccer.com/new/deportivo-tachira-look-to-end-venezuela-rsquo-s-copa-libertadores-knockout-drought-1392853)
+
+
+### flamengo vs. sampaio corrêa futebol e esporte (N/A, 10/02/2026 21:50 Lima)
+
+- **Atitude de Pulgar com adversário do Flamengo repercute: 'Transformaram'**: [Link](https://www.lance.com.br/fora-de-campo/atitude-de-pulgar-com-adversario-do-flamengo-repercute-transformaram.html)
+- **Flamengo x Sampaio Corrêa: onde assistir, horário e escalação do Campeonato Carioca**: [Link](https://olhardigital.com.br/2026/02/07/internet-e-redes-sociais/flamengo-x-sampaio-correa-onde-assistir-horario-e-escalacao-do-campeonato-carioca/)
+- **Vampeta manda recado aos rivais e enaltece vitória do Flamengo: “Ressuscitaram o gigante”**: [Link](https://colunadofla.com/2026/02/vampeta-manda-recado-aos-rivais-e-enaltece-vitoria-do-flamengo-ressuscitaram-o-gigante/)
+
+
 ### napoles vs (N/A, 10/02/2026 15:51 Lima)
 
 - **Nápoles vs AS Roma en vivo en español: horarios, canales y transmisión de la Serie A 2025/26 en Estados Unidos**: [Link](https://www.dazn.com/es-MX/news/f%C3%BAtbol/napoles-vs-as-roma-vivo-espanol-horarios-canales-transmision-serie-a/1sm5ysia7cui1kn3gwmxi9q9c)
@@ -962,75 +1032,5 @@ dangerous’**: [Link](https://www.vavel.com/en/football/2026/02/10/manchester-u
 - **Out of the League Cup and stuck in mid-table - What's gone wrong at Newcastle this season?**: [Link](https://www.transfermarkt.com/out-of-the-league-cup-and-stuck-in-mid-table-whats-gone-wrong-at-newcastle-this-season-/view/news/475048)
 - **Brentford (H) – Pre-match thoughts, team news, possible XI and prediction**: [Link](https://www.nufcblog.co.uk/2026/02/06/brentford-h-pre-match-thoughts-team-news-possible-xi-and-prediction/)
 - **Premier League LIVE: News conferences and team news before the weekend**: [Link](https://www.bbc.com/sport/football/live/ckgxk1lz0l2t)
-
-
-### rayo vallecano - real oviedo (N/A, 07/02/2026 08:01 Lima)
-
-- **Rayo Vallecano vs. Real Oviedo: horario, dónde ver, pronósticos y clasificación**: [Link](https://apuestas.betfair.es/futbol/futbol-espanol/laliga/rayo-vallecano-vs-real-oviedo-horario-donde-ver-pronosticos-y-clasificacion-050226-1245.html)
-- **Fútbol en directo | Suspendido el Rayo-Oviedo; luego, Barcelona-Mallorca**: [Link](https://www.flashscore.pe/noticias/futbol-en-directo-laliga-jornada-23-partidos-ultima-hora/pxtTq1VH/)
-- **El Rayo pone a la venta las entradas para el duelo ante el Real Oviedo en Vallecas**: [Link](https://pasionporelrayo.com/el-rayo-pone-a-la-venta-las-entradas-para-el-duelo-ante-el-real-oviedo-en-vallecas/)
-
-
-### manchester united (N/A, 07/02/2026 08:01 Lima)
-
-- **EPL: Shearer predicts Man Utd vs Tottenham, Liverpool vs Man City, Arsenal games**: [Link](https://dailypost.ng/2026/02/06/epl-shearer-predicts-man-utd-vs-tottenham-liverpool-vs-man-city-arsenal-games/)
-- **'He will come on': Carrick explains Sesko exclusion from lineup – confirms substitute appearance**: [Link](https://tribuna.com/en/news/2026-02-07-he-will-come-on-carrick-explains-sesko-exclusion-from-lineup-confirms-substitute-appearan/)
-- **Alan Shearer Sends £66m Man United Signing "Confidence" Message As He Makes Comparison To Newcastle Star**: [Link](https://manunews.com/blog/man-united-news-alan-shearer-benjamin-sesko-message/)
-
-
-### tottenham vs. manchester city (N/A, 07/02/2026 08:01 Lima)
-
-- **Chelsea predicted XI vs Wolves as tough Garnacho, Palmer and James decisions made**: [Link](https://www.football.london/chelsea-fc/news/chelsea-predicted-xi-vs-wolves-33378444)
-- **“The biggest thing…” – Rosenior demanding the same thing from Chelsea that fans are right now**: [Link](https://chelsea.news/2026/02/chelsea-demanding-rosenior-biggest-thing/)
-- **Why Chelsea need double Man City & Spurs favour as Liam Rosenior's dream scenario outlined**: [Link](https://onefootball.com/en/news/why-chelsea-need-double-man-city-spurs-favour-as-liam-roseniors-dream-scenario-outlined-42372618)
-
-
-### manchester united - tottenham (N/A, 07/02/2026 08:01 Lima)
-
-- **Tottenham confirmed team vs Man United - Van de Ven, Odobert and Sarr start as Frank makes changes**: [Link](https://www.football.london/tottenham-hotspur-fc/fixtures-results/tottenham-confirmed-team-vs-man-33381730)
-- **United Host Spurs as Red Devils Seek Early Revival**: [Link](https://www.dawan.africa/news/united-host-spurs-as-red-devils-seek-early-revival)
-- **Football Tracker: Manchester United hosting Spurs, Dortmund visiting Wolfsburg later**: [Link](https://www.flashscore.com/news/football-tracker-live-scores-results-updates/GdYm31MP/)
-
-
-### barcelona vs mallorca (N/A, 07/02/2026 03:38 Lima)
-
-- **Barcelona vs Mallorca: posibles alineaciones de la Jornada 23**: [Link](https://www.espn.com.ar/futbol/espana/nota/_/id/16281033/barcelona-vs-mallorca-alineaciones-jornada-23-laliga-2026)
-- **Flick, con un once muy reconocible ante el Mallorca**: [Link](https://www.sport.es/es/noticias/barca/flick-once-reconocible-mallorca-126532592)
-- **Apuestas y Pronóstico del Barcelona vs Mallorca 07/02/26**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2026/febrero/pronostico-barcelona-vs-mallorca-07-02-26)
-
-
-### auckland football club - sydney (N/A, 07/02/2026 03:38 Lima)
-
-- **Auckland FC Call on Jimmy Hilton to Solve Goalkeeping Gaps**: [Link](https://aucklandfc.co.nz/news/auckland-fc-call-on-jimmy-hilton-to-solve-goalkeeping-gaps/)
-- **Auckland FC faces keeper crisis with All Whites star to miss World Cup**: [Link](https://www.nzherald.co.nz/sport/football/auckland-fc/auckland-fc-to-consider-goalkeeper-options-with-all-whites-star-oli-sail-ruled-out-of-world-cup/QDIWWDGL25DVHLUFG4JI2PHR3M/)
-- **Auckland FC expand search to end goalkeeper shortage**: [Link](https://www.rnz.co.nz/news/sport/586061/auckland-fc-expand-search-to-end-goalkeeper-shortage)
-
-
-### mazatlán - guadalajara (N/A, 07/02/2026 00:07 Lima)
-
-- **Pronóstico Mazatlan FC Chivas - Liga MX 06/02/26**: [Link](https://www.sportytrader.com/es/pronosticos/monarcas-morelia-chivas-324691/)
-- **⚽ ¡Viernes botanero! Te decimos a qué HORA y en DÓNDE VER el Mazatlán vs Chivas de la Liga MX ⚓🆚🐐**: [Link](https://www.facebook.com/MilenioDiario/posts/-viernes-botanerote-decimos-a-qu%C3%A9-hora-y-en-d%C3%B3nde-ver-el-mazatl%C3%A1n-vs-chivas-de-l/1380502967440504/)
-- **¡GOL DE PENAL DE La Hormiga González ! | Mazatlán 0 - 2 Chivas | J5 | CL 2026 | TV Azteca**: [Link](https://www.tvazteca.com/aztecadeportes/gol-penal-la-hormiga-gonzalez-mazatlan-0-2-chivas-j5-cl-2026-tv-azteca/)
-
-
-### kick (N/A, 07/02/2026 00:07 Lima)
-
-- **Perfect North Slopes hosts annual Big Air competition as Olympics kick off**: [Link](https://www.wlwt.com/article/perfect-north-slopes-annual-big-air-competition-olympics/70274717)
-- **Training like a winter Olympian: Technology at Doylestown ski, snowboard training school helps athletes improve skills**: [Link](https://www.wfmz.com/news/area/southeastern-pa/central-bucks-county/training-like-a-winter-olympian-technology-at-doylestown-ski-snowboard-training-school-helps-athletes-improve/article_a9b8ad22-8a40-48d2-9412-9cf780de4cf3.html)
-- **Olympic inspiration on local ski slopes**: [Link](https://www.2822news.com/news/olympic-inspiration-on-local-ski-slopes/)
-
-
-### tijuana - puebla (N/A, 07/02/2026 00:07 Lima)
-
-- **Liga MX: Tijuana se enfrentará ante Puebla por la fecha 5**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-tijuana-se-enfrentara-ante-puebla-por-la-fecha-5-noticia-1674604)
-- **⚽ ¡Ya casi! Checa a qué HORA y CÓMO VER EN VIVO el Tijuana vs Puebla de la Liga MX 🐶🆚🎽**: [Link](https://www.facebook.com/MilenioDiario/posts/-ya-casicheca-a-qu%C3%A9-hora-y-c%C3%B3mo-ver-en-vivo-el-tijuana-vs-puebla-de-la-liga-mx-/1380625467428254/)
-- **Xolos invictos tras cuatro jornadas y en 8vo lugar de la tabla**: [Link](https://ksdy50.com/xolos-invictos-tras-cuatro-jornadas-y-en-8vo-lugar-de-la-tabla/)
-
-
-### williams riveros (N/A, 07/02/2026 00:07 Lima)
-
-- **Universitario fue notificado: Williams Riveros desaprobó examen de nacionalización**: [Link](https://depor.com/futbol-peruano/descentralizado/universitario-williams-riveros-habria-aprobado-examen-de-nacionalizacion-pero-no-fue-notificado-al-club-y-lo-inscribieron-como-extranjero-liga-1-2026-noticia/)
-- **Álvaro Barco aclara el caso Riveros y respalda cupo de extranjeros**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/alvaro-barco-aclara-el-caso-riveros-y-respalda-cupo-de-extranjeros-ultimas-noticia/)
-- **¿Williams Riveros habría aprobado examen de nacionalización?**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/williams-riveros-habria-aprobado-examen-nacionalizacion-n452612)
 
 
