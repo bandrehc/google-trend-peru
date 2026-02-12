@@ -1,3 +1,73 @@
+### alianza lima fc (N/A, 11/02/2026 21:46 Lima)
+
+- **Golazo de Hernán Barcos tras eliminar a tres rivales en FC Cajamarca vs Deportivo Garcilaso por Liga 1 2026**: [Link](https://www.infobae.com/peru/deportes/2026/02/09/gol-hernan-barcos-fc-cajamarca-vs-deportivo-garcilaso-liga-1-2026-video-hoy/)
+- **Hernán Barcos, autocrítico en FC Cajamarca tras empate en los descuentos: “Hay que correr un poco más”**: [Link](https://depor.com/futbol-peruano/descentralizado/hernan-barcos-gol-con-fc-cajamarca-autocritica-por-1-1-vs-deportivo-garcilaso-y-analisis-hay-que-correr-un-poco-mas-video-noticia/)
+- **(FOTOS | VIDEO) Garcilaso rescató un punto en su visita al FC Cajamarca**: [Link](https://ovacion.pe/noticias/liga1-2026/fotos-video-garcilaso-rescato-un-punto-su-visita-al-fc-cajamarca)
+
+
+### partidos de hoy (N/A, 11/02/2026 21:46 Lima)
+
+- **Partidos de hoy, miércoles 11 de febrero del 2026: horarios y canales TV para ver EN VIVO la Copa Libertadores y Premier League**: [Link](https://rpp.pe/futbol/futbol-mundial/partidos-de-hoy-miercoles-11-de-febrero-del-2026-revisa-la-programacion-de-la-fecha-noticia-1675252)
+- **Partidos de hoy, 11 de febrero: Horario y canal EN VIVO**: [Link](https://www.americatv.com.pe/deportes/futbol-mundial/partidos-hoy-11-febrero-horarios-y-transmisiones-n452662)
+- **Partidos de hoy, miércoles 11 de febrero de 2026: programación, canales TV y resultados en vivo**: [Link](https://www.infobae.com/peru/deportes/2026/02/11/partidos-de-hoy-miercoles-11-de-febrero-de-2026-programacion-canales-tv-y-resultados-en-vivo/)
+
+
+### peru vs (N/A, 11/02/2026 21:46 Lima)
+
+- **Nueva derrota para Perú: cayó 6-0 ante Brasil en el Sudamericano femenino Sub 20**: [Link](https://libero.pe/futbol-peruano/seleccion-peruana/2026/02/10/peru-vs-brasil-en-vivo-gratis-partido-de-sudamericano-sub-20-femenino-via-directv-sports-video-vilb-761310)
+- **Brasil vs Perú EN VIVO HOY 11 de febrero - Sudamericano U20**: [Link](https://www.deportesrcn.com/futbol/brasil-vs-peru-en-vivo-hoy-11-de-febrero-sudamericano-u20-145737)
+- **Perú vs Brasil: Resultado EN VIVO, minuto a minuto y goles del Sudamericano Sub 20 Femenino**: [Link](https://www.365scores.com/es/news/peru-vs-brasil-resultado-en-vivo-goles/)
+
+
+### américa - olimpia (N/A, 11/02/2026 21:46 Lima)
+
+- **📱 Canales TV para ver Club América vs. Olimpia EN VIVO GRATIS por la Concachampions 2026**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/a-que-hora-juega-y-que-canal-transmite-club-america-vs-cd-olimpia-en-vivo-hoy-por-la-concachampions-2026-en-mexico-honduras-y-eeuu-canales-tv-nnda-nnrt-noticia/)
+- **Jardine acepta que América está en deuda por el Mundial de Clubes**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/16299044/america-andre-jardine-deuda-concacaf-mundial-de-clubes)
+- **Transmisión EN VIVO del América vs Olimpia hoy: cómo mirar el partido por TV o streaming**: [Link](https://www.365scores.com/es/news/como-ver-transmision-america-vs-olimpia/)
+
+
+### alianza lima voley (N/A, 11/02/2026 21:46 Lima)
+
+- **Con el Alianza Lima vs Regatas: revisa la programación de la fecha 6 de la segunda fase de la Liga Peruana de Vóley**: [Link](https://rpp.pe/voley/mas-voley/liga-peruana-de-voley-2025-2026-programacion-fecha-6-fase-2-fixture-fecha-y-horario-de-partidos-segunda-etapa-alianza-lima-san-martin-regatas-universitario-de-deportes-lpv-noticia-1675098)
+- **Alianza Lima vs Regatas Lima 3-1: jugadas y resumen del triunfo blanquiazul en la Liga Peruana de Vóley**: [Link](https://www.infobae.com/peru/deportes/2026/02/11/alianza-lima-vs-regatas-lima-en-vivo-hoy-latina-tv-fecha-6-fase-2-liga-peruana-de-voley-2025-2026-resumen-resultado/)
+- **Liga Peruana de Vóley 2026: Partidos de la fecha 6 y tabla de posiciones de la segunda fase**: [Link](https://libero.pe/deportes/voley/2026/02/09/liga-peruana-de-voley-2026-partidos-programacion-tabla-de-posiciones-fecha-6-de-segunda-fase-452061)
+
+
+### rpp en vivo (N/A, 11/02/2026 21:46 Lima)
+
+- **‘Super Bowl LX Halftime Show’ Lyrics & English Translation: Hear Bad Bunny’s Entire Set!**: [Link](https://www.justjared.com/2026/02/10/super-bowl-lx-halftime-show-lyrics-english-translation-hear-bad-bunnys-entire-set/)
+- **Stephen A. Smith dice que «hubiera estado bien» que Bad Bunny cantara en inglés.**: [Link](https://noticias.foxnews.com/sports/stephen-a-smith-says-would-have-been-nice-bad-bunny-performed-english)
+- **Por qué el momento «God Bless America» de Bad Bunny en la Super Bowl la polémica**: [Link](https://noticias.foxnews.com/culture/why-bad-bunnys-god-bless-america-moment-super-bowl-sparked-controversy)
+
+
+### alineaciones de alianza lima contra club sportivo 2 de mayo (N/A, 11/02/2026 21:46 Lima)
+
+- **Everton vs. Bournemouth (10 de Feb., 2026) Resultados en Vivo**: [Link](https://www.espn.com.ar/futbol/partido/_/juegoId/740852)
+- **Llaneros vs. Pasto (10 de Feb., 2026) Resultados en Vivo**: [Link](https://www.espn.com.ar/futbol/partido/_/juegoId/401850760)
+- **C Palace vs. Burnley (11 de Feb., 2026) Resultados en Vivo**: [Link](https://espndeportes.espn.com/futbol/partido/_/juegoId/740851)
+
+
+### central córdoba - gimnasia jujuy (N/A, 11/02/2026 21:46 Lima)
+
+- **Gimnasia de Jujuy dio el golpe y eliminó a Central Córdoba por penales en la Copa Argentina**: [Link](https://www.espn.com.ar/futbol/argentina/nota/_/id/16304120/gimnasia-jujuy-elimino-central-cordoba-penales-copa-argentina-2026)
+- **EN VIVO: Central Córdoba (SE) logra igualar con Gimnasia (J)**: [Link](https://www.directvsports.com/futbol/en-vivo-central-cordoba-se-logra-igualar-con-gimnasia-j-20260208-0004.html)
+- **Francisco Molina palpitó la Copa Argentina: "Estamos en condiciones de hacer un buen partido"**: [Link](https://www.todojujuy.com/francisco-molina-palpito-la-copa-argentina-estamos-condiciones-hacer-un-buen-partido-n286050)
+
+
+### paolo guerrero (N/A, 11/02/2026 21:46 Lima)
+
+- **Guerrero le da el triunfo a Alianza**: [Link](https://caretas.pe/deportes/guerrero-le-da-el-triunfo-a-alianza/)
+- **Paolo Guerrero sigue con la mecha prendida y anotó en la victoria de Alianza Lima vs. Comerciantes Unidos**: [Link](https://espndeportes.espn.com/futbol/peru/nota/_/id/16290911/alianza-lima-vs-comerciantes-unidos-paolo-guerrero-volvio-anotar)
+- **El “Estamos a un 50% de lo que pretendo” de Guede y por qué no hubo VAR en Matute por unos minutos: Lo que no se vio del sufrido triunfo de un Alianza pensando en 2 de Mayo**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/alianza-lima-el-estamos-a-un-50-de-lo-que-pretendo-de-pablo-guede-y-por-que-no-hubo-var-en-matute-por-unos-minutos-lo-que-no-se-vio-del-sufrido-triunfo-ante-comerciantes-unidos-de-un-alianza-pensando-en-2-de-mayo-liga-1-tlcnota-noticia/)
+
+
+### federico girotti (N/A, 11/02/2026 21:46 Lima)
+
+- **Ex Universitario dio contundente opinión sobre Federico Girotti en Alianza: "Un delantero que no..."**: [Link](https://libero.pe/futbol-peruano/alianza-lima/2026/02/11/federico-girotti-ex-universitario-dio-contundente-opinion-jugador-en-alianza-lima-delantero-video-917653)
+- **Carlos Galván comparó a Girotti con Barcos tras derrota de Alianza Lima: "No puede ni atarle los pasadores"**: [Link](https://willax.pe/deportes/carlos-galvan-critica-federico-girotti-hernan-barcos-willax)
+- **Carlos Galván apuntó contra Federico Girotti por fallar goles con Alianza Lima y lo compara con Hernán Barcos: “No puede ni atarle los pasadores”**: [Link](https://larepublica.pe/deportes/2026/02/05/carlos-galvan-apunto-contra-federico-girotti-por-fallar-goles-con-alianza-lima-y-lo-compara-con-hernan-barcos-no-puede-ni-atarle-los-pasadores-482265)
+
+
 ### antoine semenyo (N/A, 11/02/2026 15:45 Lima)
 
 - **Leeds United rival Tottenham & Aston Villa for player hailed “incredible” by Guardiola**: [Link](https://www.caughtoffside.com/2026/02/06/leeds-james-trafford-transfer/)
@@ -962,73 +1032,5 @@ dangerous’**: [Link](https://www.vavel.com/en/football/2026/02/10/manchester-u
 - **Canales de TV para ver Sporting Cristal vs. Melgar: horarios del partido**: [Link](https://depor.com/futbol-peruano/descentralizado/sporting-cristal-vs-melgar-en-vivo-canales-de-tv-fecha-horarios-y-donde-ver-transmision-gratis-por-liga-1-max-movistar-tv-torneo-apertura-2026-noticia/)
 - **Alineaciones de Sporting Cristal vs Melgar: el once confirmado de Autuori para ganar en el Gallardo**: [Link](https://libero.pe/futbol-peruano/sporting-cristal/2026/02/07/alineaciones-sporting-cristal-vs-melgar-formacion-del-partido-de-liga-1-peru-apertura-439005)
 - **Duelo de Pizarras en el Gallardo**: [Link](https://caretas.pe/deportes/duelo-de-pizarras-en-el-gallardo/)
-
-
-### alavés - getafe (N/A, 08/02/2026 08:02 Lima)
-
-- **Alavés - Getafe, en directo: LaLiga EA Sports, hoy en vivo**: [Link](https://as.com/futbol/primera/alaves-getafe-en-directo-laliga-ea-sports-hoy-en-vivo-f202602-d/)
-- **Pronóstico Deportivo Alavés Getafe - LaLiga 08/02/26**: [Link](https://www.sportytrader.com/es/pronosticos/deportivo-alaves-getafe-325297/)
-- **Alineaciones Alavés - Getafe: Onces confirmados de Alavés y Getafe en la jornada 23 de LaLiga EA Sports**: [Link](https://www.estadiodeportivo.com/futbol/primera-division/alineaciones-alaves-getafe-alineacion-probable-alaves-getafe-jornada-laliga-sports-20260208-528962.html)
-
-
-### brighton (N/A, 08/02/2026 08:02 Lima)
-
-- **Brighton vs Crystal Palace: Get £30 in free bets when you stake £10 on football with Tote**: [Link](https://www.thesun.co.uk/sport/38116470/brighton-crystal-palace-tote-free-bets-offer-join/)
-- **Albion told to go the distance as they bid to beat Palace**: [Link](https://www.theargus.co.uk/sport/25834328.brightons-fabian-hurzeler-need-focus-clock-ticks/)
-- **Sunday Football Tips: Jimmy The Punt's best bets including 4/1 booking tip from the South Coast**: [Link](https://betting.betfair.com/football/premier-league/sunday-football-tips-jimmy-the-punts-best-bets-including-4-1-booking-tip-from-the-south-coast-060226-1320.html)
-
-
-### bologna vs (N/A, 08/02/2026 08:02 Lima)
-
-- **Serie A: Bologna tiene la necesidad de cortar su racha negativa frente a Parma**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-bologna-tiene-la-necesidad-de-cortar-su-racha-negativa-frente-a-parma-noticia-1674847)
-- **Bologna vs Parma pronostico y comparación de cuotas 08.02.2026**: [Link](https://www.livetipsportal.com/es/pronosticos-apuestas-deportivas/bologna-vs-parma-serie-a-11129295/)
-- **Preview: Bologna vs Parma - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/bologna/preview/bologna-vs-parma-prediction-team-news-lineups_591529.html)
-
-
-### bologna (N/A, 08/02/2026 08:02 Lima)
-
-- **Bologna-Parma, ancora polemica Var: l'arbitro cambia idea e caccia il rosso dopo soli 20' a Pobega**: [Link](https://sport.virgilio.it/bologna-parma-ancora-polemica-var-l-arbitro-cambia-idea-e-caccia-il-rosso-dopo-soli-20-a-pobega-942379)
-- **Serie A: in campo Bologna-Parma 0-0 DIRETTA**: [Link](https://www.ansa.it/sito/notizie/sport/calcio/2026/02/08/serie-a-in-campo-bologna-parma-0-0-diretta_2f91e3ee-946b-45d3-af5d-5d793f78355b.html)
-- **Bologna-Parma, le formazioni ufficiali: Italiano con Dallinga, Cuesta punta su Oristanio**: [Link](https://www.gazzetta.it/calcio/fantanews/08-02-2026/bologna-parma-le-formazioni-ufficiali-tutti-i-titolari.shtml)
-
-
-### utrecht - feyenoord (N/A, 08/02/2026 08:02 Lima)
-
-- **Lange rijen bij Galgenwaard door storing, fans missen begin van de wedstrijd**: [Link](https://www.rtvutrecht.nl/nieuws/4003187/lange-rijen-bij-galgenwaard-door-storing-toegangspoortjes)
-- **HISTORIE | Minteh zet Van de Maarel te kijk**: [Link](https://www.fr-fans.nl/nieuws/76149/historie-minteh-zet-van-de-maarel-te-kijk)
-- **Van Persie kiest voor opmerkelijke vervanger voor Ueda bij Feyenoord**: [Link](https://nos.nl/regio/zh-rijnmond/artikel/724202-van-persie-kiest-voor-opmerkelijke-vervanger-voor-ueda-bij-feyenoord)
-
-
-### canjear códigos free fire (N/A, 08/02/2026 08:02 Lima)
-
-- **Códigos Free Fire gratis para hoy 7 de febrero del 2026: recompensas y canje free (Actualizado)**: [Link](https://enlinea.pe/codigos-free-fire-2026-recompensas-actualizado-febrero/)
-
-
-### liverpool vs manchester city (N/A, 08/02/2026 08:02 Lima)
-
-- **Liverpool v City is no longer the Premier League’s big show: how have the mighty fallen? | Jonathan Wilson**: [Link](https://www.theguardian.com/football/2026/feb/07/manchester-city-liverpool-is-no-longer-the-premier-leagues-big-show-how-have-the-mighty-fallen)
-- **Liverpool vs Man City predictions: Chris Sutton on Premier League game**: [Link](https://www.bbc.com/sport/football/articles/c4g5n8gn89no?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D)
-- **Training: Gearing up for Anfield!**: [Link](https://www.mancity.com/news/mens/manchester-city-training-gallery-february-7-2026-63906090)
-
-
-### san marcos (N/A, 08/02/2026 08:02 Lima)
-
-- **San Marcos y la OEA subrayan el rol de la academia en la integración continental**: [Link](https://www.unmsm.edu.pe/noticias-y-eventos/noticias/noticia-detalle/san-marcos-y-la-oea-subrayan-el-rol-de-la-academia-en-la-integracion-continental)
-- **KZSM Awards celebrate San Marcos music**: [Link](https://www.sanmarcosrecord.com/article/32681,kzsm-awards-celebrate-san-marcos-music)
-- **San Marcos residents speak out on proposed data center**: [Link](https://communityimpact.com/austin/san-marcos-buda-kyle/government/2026/02/05/san-marcos-residents-speak-out-on-proposed-data-center/)
-
-
-### bet365 nba (N/A, 08/02/2026 03:39 Lima)
-
-- **Use bet365 bonus code CBSBET365 to get $200 bonus bets by targeting Heat-Celtics, Pistons-Knicks, Bucks-Pacers**: [Link](https://www.cbssports.com/nba/news/use-bet365-bonus-code-cbsbet365-get-200-bonus-bets-heat-celtics-pistons-knicks-bucks-pacers/)
-- **Bet365 Bonus Code WTOP365: Get $100 Bonus for Any Super Bowl LX Bet**: [Link](https://wtop.com/sports/2026/02/bet365-bonus-code-wtop365-get-100-bonus-for-any-super-bowl-lx-bet/)
-- **bet365 Bonus Code: Bet $5, Get $100 With Exclusive Promo for Big Game**: [Link](https://ftw.usatoday.com/story/sports/2026/02/07/bet365-bonus-code-100-bonus-bets-big-game-sunday/88376192007/)
-
-
-### tabla de posiciones liga 1 (N/A, 08/02/2026 03:39 Lima)
-
-- **Así se jugará la fecha 2 del Apertura de la Liga 1 2026**: [Link](https://www.espn.com.pe/futbol/peru/nota/_/id/16263598/programacion-de-la-fecha-2-del-apertura-liga-1-de-peru)
-- **Tabla de posiciones Liga 1 2026: resultados y partidos de la fecha 2 del Torneo Apertura**: [Link](https://libero.pe/futbol-peruano/liga-1/2026/02/06/tabla-de-posiciones-torneo-apertura-fecha-2-de-liga-1-peru-533544)
-- **Universitario y Alianza Lima buscan afianzar su liderazgo en Torneo Apertura**: [Link](https://andina.pe/agencia/noticia-universitario-y-alianza-lima-buscan-afianzar-su-liderazgo-torneo-apertura-1062126.aspx)
 
 
