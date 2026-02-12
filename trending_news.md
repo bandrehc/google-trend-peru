@@ -1,3 +1,70 @@
+### americo (N/A, 12/02/2026 00:26 Lima)
+
+Sin noticias relacionadas disponibles.
+
+
+### pipo gorosito (N/A, 12/02/2026 00:26 Lima)
+
+- **Alianza Lima - Néstor Gorosito enciende la polémica con mensaje en medio de la eliminación en Copa Libertadores**: [Link](https://rpp.pe/futbol/copa-libertadores/alianza-lima-nestor-gorosito-enciende-la-polemica-con-mensaje-en-medio-de-la-eliminacion-en-copa-libertadores-noticia-1675516)
+- **Así fue la reacción de Néstor Gorosito en las redes a la eliminación de Alianza Lima**: [Link](https://bolavip.com/pe/copa-libertadores/asi-fue-la-reaccion-de-nestor-gorosito-en-las-redes-a-la-eliminacion-de-alianza-lima)
+- **Pipo Gorosito impacta con fuerte mensaje tras eliminación de Alianza Lima en la Copa Libertadores**: [Link](https://libero.pe/futbol-peruano/alianza-lima/2026/02/11/nestor-pipo-gorosito-impacta-fuerte-mensaje-eliminacion-de-alianza-lima-en-copa-libertadores-1054526)
+
+
+### julio iglesias (N/A, 12/02/2026 00:26 Lima)
+
+- **Yo Soy castings 2026: ¡Todos pasan! Estos son los 25 participantes que llegan a conciertos**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-castings-2026-todos-pasan-estos-son-los-25-participantes-que-llegan-a-conciertos_20260210/)
+- **Yo Soy 2026: Conocidos los 25 participantes para los conciertos**: [Link](https://elcongresista.mx/espectaculos/yo-soy-2026-participantes-conciertos/)
+- **Yo Soy conciertos 2026: ¡Marciano Cantero llega a los conciertos entre nervios y retos!**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-conciertos-2026-marciano-cantero-llega-a-los-conciertos-entre-nervios-y-retos_20260211/)
+
+
+### steven tyler (N/A, 12/02/2026 00:26 Lima)
+
+- **“The door cracks open and I hear, ‘Who the hell are you? Play that again!‘” Steven Tyler gatecrashed Jared James Nichols’ jam and invited him to hang out with Aerosmith – and he kept coming back**: [Link](https://www.guitarworld.com/artists/guitarists/when-jared-james-nichols-hung-out-with-aerosmith)
+- **Steven Tyler gatecrashed Jared James Nichols’ jam and invited him to hang out with Aerosmith**: [Link](https://www.yahoo.com/entertainment/music/articles/steven-tyler-gatecrashed-jared-james-114655909.html)
+- **Judge Allows California Claims to Proceed in Steven Tyler Abuse Lawsuit, Dismisses Others**: [Link](https://www.lawcommentary.com/articles/judge-allows-california-claims-to-proceed-in-steven-tyler-abuse-lawsuit-dismisses-others)
+
+
+### rocio jurado (N/A, 12/02/2026 00:26 Lima)
+
+- **Yo Soy conciertos 2026: El jurado pide más diva y carácter en la presentación de Rocío Jurado**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-conciertos-2026-el-jurado-pide-mas-diva-y-caracter-en-la-presentacion-de-rocio-jurado_20260211/)
+- **“Ortega Cano miraba a Rocío Jurado sin dejar de pelarle langostinos a su madre”: la boda que rivalizó con la de la infanta**: [Link](https://www.lecturas.com/epoca-dorada/ortega-cano-miraba-a-rocio-jurado-sin-dejar-pelarle-langostinos-a-su-madre-boda-que-rivalizo-infanta_188523)
+
+
+### spurs - warriors (N/A, 12/02/2026 00:26 Lima)
+
+- **It’s time for Basketball: San Antonio Spurs at Golden State Warriors**: [Link](https://www.poundingtherock.com/general/94796/its-time-for-basketball-san-antonio-spurs-at-golden-state-warriors)
+- **Gui Santos and the art of conformance**: [Link](https://dubnationhq.com/p/gui-santos-and-the-art-of-conformance)
+- **How to Watch Spurs vs Warriors: Live Stream NBA, TV Channel**: [Link](https://www.newsweek.com/sports/nba/how-to-watch-spurs-vs-warriors-live-stream-nba-tv-channel-11508071)
+
+
+### kick (N/A, 12/02/2026 00:26 Lima)
+
+- **Seahawks, fans celebrate Super Bowl victory with Championship Ceremony and Parade**: [Link](https://www.king5.com/article/sports/nfl/seahawks/watch-live-seahawks-super-bowl-championship-ceremony-parade/281-ddeb5e4b-25b7-442c-a950-8e6aba103a95)
+- **A Plea From Me to You**: [Link](https://spdblotter.seattle.gov/2026/02/10/a-plea-from-me-to-you/)
+- **Seahawks celebrate Super Bowl LX victory with huge 12s crowd in Seattle!**: [Link](https://komonews.com/news/local/seattle-seahawks-parade-super-bowl-victory-championship-celebration-sodo-belltown-traffic-crowds-street-closures-lumen-field-4th-avenue-cedar-street)
+
+
+### anitta (N/A, 12/02/2026 00:26 Lima)
+
+- **Anitta transforma Pacaembu em megafesta e encerra turnê 'Ensaios 2026' com casa lotada**: [Link](https://www.gazetasp.com.br/entretenimento/anitta-transforma-pacaembu-em-megafesta-e-encerra-turne-ensaios-2026/1172325/)
+- **Anitta traduz os signos em maquiagens cheias de brilho no pré-Carnaval**: [Link](https://capricho.abril.com.br/beleza/anitta-traduz-os-signos-em-maquiagens-cheias-de-brilho-no-pre-carnaval/)
+- **Anitta revela se voltaria a desfilar por uma escola de samba no Carnaval**: [Link](https://www.radiopampa.com.br/anitta-revela-se-voltaria-a-desfilar-por-uma-escola-de-samba-no-carnaval/)
+
+
+### atv en vivo (N/A, 12/02/2026 00:26 Lima)
+
+- **Oficial: Carlos Zambrano dejó de ser jugador de Alianza Lima tras llegar a acuerdo**: [Link](https://depor.com/futbol-peruano/descentralizado/carlos-zambrano-se-va-de-alianza-lima-llegaron-a-acuerdo-en-medio-de-denuncia-por-presunto-abuso-sexual-en-montevideo-liga-1-2026-noticia/)
+- **Revelan AUDIO DE ZAMBRANO sobre denuncia de abuso sexual en su contra**: [Link](https://peru21.pe/policiales/carlos-zambrano-audio-sobre-denuncia-de-abuso-sexual-en-su-contra/)
+- **Eddie Fleischman afirma que Carlos Zambrano intentó continuar en Alianza Lima pese a ser separado del club: ''No tiene consciencia de sus actos''**: [Link](https://larepublica.pe/deportes/2026/02/11/eddie-fleischman-afirma-que-carlos-zambrano-intento-continuar-en-alianza-lima-pese-a-ser-separado-del-club-no-tiene-consciencia-de-sus-actos-atmp-809842)
+
+
+### monterrey - xelajú mc (N/A, 12/02/2026 00:26 Lima)
+
+- **Xelajú MC cae doblegado por Monterrey y se despide de la Concacaf Champions Cup**: [Link](https://espndeportes.espn.com/futbol/guatemala/nota/_/id/16304916/xelaju-cae-doblegado-monterrey-se-despide-concacaf-champions-cup)
+- **¿Qué canal pasa Monterrey vs Club Xelaju hoy: dónde ver y EN VIVO la Concacaf Champions Cup**: [Link](https://www.365scores.com/es/news/monterrey-vs-club-xelaju-hoy-donde-ver/)
+- **🚨Alineaciones listas para el Rayados - Xelajú**: [Link](https://onefootball.com/es/noticias/alineaciones-listas-para-el-rayados-xelaju-42396481)
+
+
 ### alianza lima fc (N/A, 11/02/2026 21:46 Lima)
 
 - **Golazo de Hernán Barcos tras eliminar a tres rivales en FC Cajamarca vs Deportivo Garcilaso por Liga 1 2026**: [Link](https://www.infobae.com/peru/deportes/2026/02/09/gol-hernan-barcos-fc-cajamarca-vs-deportivo-garcilaso-liga-1-2026-video-hoy/)
@@ -964,73 +1031,5 @@ dangerous’**: [Link](https://www.vavel.com/en/football/2026/02/10/manchester-u
 - **¡EN VIVO! PSG busca estirar la distancia en lo alto de la Ligue 1 ante Olympique Marsella**: [Link](https://www.espn.com.pe/futbol/francia/nota/_/id/16273735/psg-vs-olympique-marsella-por-la-ligue-1-equipo-fecha-hora-y-tv-en-vivo)
 - **Liga de Francia: Por una nueva edición de "Le Classique", PSG recibe a Olympique de Marsella**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-de-francia-por-una-nueva-edicion-de-le-classique-psg-recibe-a-olympique-de-marsella-noticia-1674886)
 - **Pronóstico PSG vs. Marsella - El clásico francés ¿Quién lo gana?**: [Link](https://gainblers.com/pe/pronosticos/futbol/francia/ligue-1/pronostico-psg-marseille-08-02-2026/)
-
-
-### blast slam vi (N/A, 08/02/2026 11:37 Lima)
-
-- **Falcons, Yandex advance to quarterfinals at BLAST Slam VI**: [Link](https://fieldlevelmedia.com/esports/falcons-yandex-advance-to-quarterfinals-at-blast-slam-vi/)
-- **HEROIC, GamerLegion stay alive at BLAST Slam VI**: [Link](https://www.bignewsnetwork.com/news/278853949/heroic-gamerlegion-stay-alive-at-blast-slam-vi)
-- **NAVI defeat Xtreme Gaming 1-0 at BLAST Slam VI Group Stage**: [Link](https://egamersworld.com/dota2/news/32392/navi-defeat-xtreme-gaming-and-qualify-for-the-blas-OUK-woKy6)
-
-
-### sassuolo - inter (N/A, 08/02/2026 11:37 Lima)
-
-- **Luis Henrique a InterTV: “Sto bene fisicamente e sento la fiducia di mister e squadra”**: [Link](https://www.fcinter1908.it/news/interviste/sassuolo-inter-luis-henrique-intertv/)
-- **Sassuolo vs. Inter, live from Reggio Emilia**: [Link](https://www.inter.it/en/news/sassuolo-inter-serie-a-2025-2026)
-- **Inter, Chivu: "Oggi serve attenzione. Lautaro è un piacere per chi ama il calcio"**: [Link](https://gianlucadimarzio.com/inter-chivu-intervista-sassuolo-serie-a-news-8-febbraio-2026/)
-
-
-### betssy chávez (N/A, 08/02/2026 11:37 Lima)
-
-- **Poder Judicial admite hábeas corpus que busca salvoconducto para Betssy Chávez**: [Link](https://caretas.pe/politica/poder-judicial-admite-habeas-corpus-que-busca-salvoconducto-para-betssy-chavez/)
-- **Poder Judicial admite a trámite demanda para otorgarle salvoconducto a Betssy Chávez: ¿Son viables los argumentos?**: [Link](https://elcomercio.pe/politica/justicia/poder-judicial-admite-a-tramite-demanda-para-otorgarle-salvoconducto-a-betssy-chavez-son-viables-los-argumentos-noticia/)
-- **Betssy Chávez: Poder Judicial admite a trámite habeas corpus para la entrega inmediata del salvoconducto**: [Link](https://larepublica.pe/politica/2026/02/08/betssy-chavez-poder-judicial-admite-a-tramite-habeas-corpus-para-la-entrega-inmediata-del-salvoconducto-hnews-565136)
-
-
-### psv (N/A, 08/02/2026 11:37 Lima)
-
-- **Praat mee op VP: verrassing in PSV-opstelling, Eindhovenaren zonder doelman Kovar**: [Link](https://www.voetbalprimeur.nl/nieuws/1738687/praat-mee-op-vp-fc-groningen-psv.html)
-- **Geen Kovar of Olij, maar debutant Schiks op doel bij PSV • Land start bij Groningen**: [Link](https://nos.nl/liveblog/2601421-geen-kovar-of-olij-maar-debutant-schiks-op-doel-bij-psv-land-start-bij-groningen)
-- **Live Eredivisie | PSV krijgt vroege tik tegen FC Groningen: inschattingsfout keihard afgetraft**: [Link](https://sportnieuws.nl/voetbal/nieuws/live-eredivisie-psv-krijgt-vroege-tik-tegen-fc-groningen-inschattingsfout-keihard-afgetraft-2026020814170686556/)
-
-
-### psv vs (N/A, 08/02/2026 11:37 Lima)
-
-- **Preview: Groningen vs PSV Eindhoven - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/groningen/preview/groningen-vs-psv-prediction-team-news-lineups_591558.html)
-
-
-### monaco fc (N/A, 08/02/2026 11:37 Lima)
-
-- **Angers vs. Toulouse (8 Feb, 2026) Live Score**: [Link](https://www.espn.in/football/match/_/gameId/746592)
-- **Sturm Graz vs. SV Josko Ried (8 Feb, 2026) Live Score**: [Link](https://www.espn.in/football/match/_/gameId/747436)
-- **FC Groningen vs. PSV (8 Feb, 2026) Live Score**: [Link](https://www.espn.in/football/match/_/gameId/741172)
-
-
-### bayern - hoffenheim (N/A, 08/02/2026 11:37 Lima)
-
-- **Spielvorschau: Bayern München gegen Hoffenheim, 8. Februar, 23:30 Uhr: Die Bayern wollen zu ihrer Siegerform zurückfinden.**: [Link](https://www.vietnam.vn/de/nhan-dinh-tran-dau-bayern-munich-vs-hoffenheim-23h30-ngay-8-2-tim-lai-niem-vui)
-- **"So kurz vor der perfekten Startelf": So reagieren die Fans auf die Bayern-Aufstellung gegen Hoffenheim**: [Link](https://tribuna.com/de/blogs/so-kurz-vor-der-perfekten-startelf-so-reagieren-die-fans-auf/)
-- **Bundesliga-Topspiel im Ticker: Kann das drittplatzierte Hoffenheim Leader Bayern bodigen? | blue News**: [Link](https://www.bluewin.ch/de/sport/bundesliga/koennen-das-drittplatzierte-hoffenheim-leader-bayern-bodigen-3086531.html)
-
-
-### monaco vs (N/A, 08/02/2026 11:37 Lima)
-
-- **Con doblete de Enciso, Racing de Estrasburgo venció a Monaco y avanzó en la Copa de Francia**: [Link](https://www.espn.com.pe/futbol/francia/nota/_/id/16275364/racing-de-estrasburgo-vs-monaco-enciso-panichelli-barco-cuartos-de-final-copa-de-francia)
-- **Strasbourg edge Monaco and into French cup last eight**: [Link](https://www.besoccer.com/new/strasbourg-edge-monaco-and-into-french-cup-last-eight-1393217)
-- **Coupe de France: End of the road for AS Monaco, beaten by Strasbourg**: [Link](https://www.monaco-tribune.com/en/2026/02/coupe-de-france-end-of-the-road-for-as-monaco-beaten-by-strasbourg/)
-
-
-### liverpool - manchester city (N/A, 08/02/2026 11:37 Lima)
-
-- **Preview: Liverpool vs Manchester City - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/liverpool/title-race/preview/liverpool-vs-man-city-prediction-team-news-lineups_591510.html)
-- **Arne Slot: Our obligation is to never believe we are doing enough**: [Link](https://www.liverpoolfc.com/news/arne-slot-our-obligation-never-believe-we-are-doing-enough)
-- **Chat GPT & Grok disagree over Liverpool v Man City prediction as Man Utd & Chelsea lay down gauntlet**: [Link](https://www.empireofthekop.com/2026/02/08/chat-gpt-grok-disagree-over-liverpool-v-man-city-prediction-as-man-utd-chelsea-lay-down-gauntlet/)
-
-
-### sporting cristal - melgar (N/A, 08/02/2026 11:37 Lima)
-
-- **Canales de TV para ver Sporting Cristal vs. Melgar: horarios del partido**: [Link](https://depor.com/futbol-peruano/descentralizado/sporting-cristal-vs-melgar-en-vivo-canales-de-tv-fecha-horarios-y-donde-ver-transmision-gratis-por-liga-1-max-movistar-tv-torneo-apertura-2026-noticia/)
-- **Alineaciones de Sporting Cristal vs Melgar: el once confirmado de Autuori para ganar en el Gallardo**: [Link](https://libero.pe/futbol-peruano/sporting-cristal/2026/02/07/alineaciones-sporting-cristal-vs-melgar-formacion-del-partido-de-liga-1-peru-apertura-439005)
-- **Duelo de Pizarras en el Gallardo**: [Link](https://caretas.pe/deportes/duelo-de-pizarras-en-el-gallardo/)
 
 
