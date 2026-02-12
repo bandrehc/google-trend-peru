@@ -1,3 +1,70 @@
+### dgo (N/A, 12/02/2026 15:40 Lima)
+
+Sin noticias relacionadas disponibles.
+
+
+### futbol en vivo (N/A, 12/02/2026 15:40 Lima)
+
+- **Partidos de HOY, jueves 12 de febrero del 2026: programación, horarios y canales TV para ver fútbol EN VIVO**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/partidos-de-hoy-jueves-12-de-febrero-del-2026-resultados-programacion-horarios-canales-tv-y-donde-ver-futbol-en-vivo-noticia/)
+- **Partidos de hoy, sábado 7 de febrero de 2026: programación, canales TV y resultados en vivo**: [Link](https://www.infobae.com/peru/deportes/2026/02/07/partidos-de-hoy-sabado-7-de-febrero-de-2026-programacion-canales-tv-y-resultados-en-vivo/)
+- **Partidos de hoy EN VIVO: programación, horario y dónde ver fútbol online este viernes 6 de febrero**: [Link](https://libero.pe/futbol-internacional/2026/02/05/partidos-de-hoy-en-vivo-viernes-6-de-febrero-170045)
+
+
+### futbol (N/A, 12/02/2026 15:40 Lima)
+
+- **“No me sentía con confianza de patear”: Paolo, la historia del penal y la posición del vestuario tras el Matutazo paraguayo que eliminó a Alianza**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/alianza-lima-hoy-no-me-sentia-con-confianza-de-patear-paolo-guerrero-la-historia-del-penal-y-la-posicion-del-vestuario-tras-el-matutazo-paraguayo-que-elimino-a-alianza-pablo-guede-tlcnota-noticia/)
+- **Pablo Guede tras eliminación de Alianza Lima: "Creo que no hicimos méritos para quedar afuera"**: [Link](https://rpp.pe/futbol/copa-libertadores/alianza-lima-pablo-guede-tras-eliminacion-en-libertadores-creo-que-no-hicimos-meritos-para-quedar-afuera-noticia-1675532)
+- **Paolo Guerrero se confiesa tras el penal fallado de Eryc Castillo: “No me sentía con confianza”**: [Link](https://depor.com/futbol-peruano/copa-libertadores/paolo-guerrero-alianza-lima-conto-su-verdad-tras-penal-de-eryc-castillo-y-eliminacion-no-me-sentia-con-confianza-video-noticia/)
+
+
+### tarjeta roja futbol (N/A, 12/02/2026 15:40 Lima)
+
+- **¡Alivio para Endrick!**: [Link](https://as.com/futbol/internacional/alivio-para-endrick-f202602-n/)
+- **Endrick respira aliviado**: [Link](https://www.marca.com/futbol/real-madrid/2026/02/12/endrick-respira-aliviado.html)
+- **La Ligue 1 reduce la suspensión a Endrick por su roja con Lyon**: [Link](https://www.espn.com.ar/futbol/francia/nota/_/id/16305111/endrick-ligue-1-reduce-suspension-roja-lyon)
+
+
+### atlético madrid - man utd (N/A, 12/02/2026 15:40 Lima)
+
+- **Seven key quotes from the press conference**: [Link](https://www.manutd.com/en/news/detail/seven-key-quotes-from-atleti-v-man-utd-press-conference-with-marc-skinner-and-anna-sandberg)
+- **EXCLUSIVE: Atletico's Benitez ready for Man Utd in Women's Champions League**: [Link](https://www.flashscore.com/news/soccer-champions-league-women-exclusive-atletico-s-benitez-ready-for-man-utd-in-women-s-champions-league/tfxSUGu3/)
+- **🚨 Atlético and Manchester United line-ups for Champions League last 16**: [Link](https://ca.sports.yahoo.com/news/atl-tico-manchester-united-line-185900808.html)
+
+
+### atlético madrid - barcelona (N/A, 12/02/2026 15:40 Lima)
+
+- **¡En catorce minutos! Atlético Madrid vence 2-0 al FC Barcelona por semifinal de la Copa del Rey | VIDEO**: [Link](https://elcomercio.pe/deporte-total/espana/blooper-de-joan-garcia-hoy-barcelona-vs-atletico-madrid-por-copa-del-rey-autogol-del-barcelona-video-noticia/)
+- **Todo lo que pase en las semifinales de la Copa del Rey, en directo**: [Link](https://www.flashscore.pe/noticias/futbol-copa-del-rey-en-directo-ronda-semifinales/IRJzCigT/)
+- **🕰️ A qué hora ver el FC Barcelona vs. Atlético de Madrid EN VIVO hoy por la Copa del Rey en EE.UU. y México**: [Link](https://gestion.pe/mix/sports/a-que-hora-ver-fc-barcelona-vs-atletico-de-madrid-en-vivo-hoy-12-de-febrero-por-semifinal-de-copa-del-rey-2026-en-eeuu-mexico-y-espana-nnda-nnrt-noticia/)
+
+
+### america (N/A, 12/02/2026 15:40 Lima)
+
+- **América avanza a octavos entre abucheos por empate ante a Olimpia**: [Link](https://www.espn.com.ar/futbol/clubes/nota/_/id/16304668/america-olimpia-concacaf-resultado-empate-abucheos-grito-clasico-chivas)
+- **¿A qué hora juega y qué canal transmite Club América vs. CD Olimpia por la Concachampions 2026 en México, Honduras y EE.UU.?**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/a-que-hora-juega-y-que-canal-transmite-club-america-vs-cd-olimpia-en-vivo-hoy-por-la-concachampions-2026-en-mexico-honduras-y-eeuu-canales-tv-nnda-nnrt-noticia/)
+- **Larcamón afirma que Cruz Azul no debe subestimar a Vancouver para avanzar en Concacaf**: [Link](https://laconexionusa.com/larcamon-afirma-que-cruz-azul-no-debe-subestimar-a-vancouver-para-avanzar-en-concacaf/)
+
+
+### midtjylland (N/A, 12/02/2026 15:40 Lima)
+
+- **FC Midtjylland book narrow win against league leaders AGF in first leg of Cup semi-final**: [Link](https://www.flashscore.com/news/soccer-landspokal-cup-fc-midtjylland-book-narrow-win-against-league-leaders-agf-in-first-leg-of-cup-semi-final/fXrlXmNp/)
+- **Big blow for FC Midtjylland as captain is ruled out for six weeks through injury**: [Link](https://www.flashscore.com/news/soccer-superliga-big-blow-for-fc-midtjylland-as-captain-is-ruled-out-for-six-weeks-through-injury/zDDm1w7E/)
+
+
+### barcelona versus atlético de madrid (N/A, 12/02/2026 15:40 Lima)
+
+- **Martínez Munuera, árbitro para el Atlético-Barça de Copa del Rey**: [Link](https://www.marca.com/futbol/copa-rey/2026/02/11/martinez-munuera-arbitro-atletico-barca-copa-rey.html)
+- **Martínez Munuera arbitrará el Atlético de Madrid-FC Barcelona de semifinales de Copa**: [Link](https://www.infobae.com/espana/agencias/2026/02/11/martinez-munuera-arbitrara-el-atletico-de-madrid-fc-barcelona-de-semifinales-de-copa/)
+- **El CTA recompensa con el VAR del Atleti-Barça de Copa al árbitro que amenazó públicamente al Real Madrid**: [Link](https://okdiario.com/deportes/cta-recompensa-var-del-atleti-barca-copa-arbitro-que-amenazo-publicamente-real-madrid-16225945)
+
+
+### arsenal vs brentford (N/A, 12/02/2026 15:40 Lima)
+
+- **Why William Saliba is not playing for Arsenal against Brentford today**: [Link](https://metro.co.uk/2026/02/12/william-saliba-not-playing-arsenal-brentford-today-26859074/)
+- **Why William Saliba is out for Arsenal vs Brentford as Mikel Arteta handed new blow**: [Link](https://www.mirror.co.uk/sport/football/news/william-saliba-arsenal-illness-brentford-36714518)
+- **'Where is he?' Arsenal fans surprised over ONE player's exclusion from lineup to face Brentford**: [Link](https://tribuna.com/en/blogs/where-is-he-arsenal-fans-surprised-over-one-players-exclusio/)
+
+
 ### iga świątek (N/A, 12/02/2026 12:04 Lima)
 
 - **Na powrót Igi Świątek nie trzeba długo czekać**: [Link](https://sportowefakty.wp.pl/tenis/1234342/na-powrot-igi-swiatek-nie-trzeba-dlugo-czekac)
@@ -964,75 +1031,5 @@ dangerous’**: [Link](https://www.vavel.com/en/football/2026/02/10/manchester-u
 - **Super Bowl champion Sam Darnold's deferred destiny**: [Link](https://www.espn.com/nfl/story/_/id/47839325/super-bowl-lx-champion-sam-darnold-seattle-seahawks-quarterback-story-deferred-destiny)
 - **What college did Sam Darnold go to? Where Seahawks QB played college football**: [Link](https://sports.yahoo.com/articles/college-did-sam-darnold-where-235236320.html)
 - **Sam Darnold’s season as a backup with the 49ers helped him reach the Super Bowl**: [Link](https://apnews.com/article/super-bowl-sam-darnold-2140116ffb52d4cba30279ba981ad900)
-
-
-### carlos alvarez (N/A, 09/02/2026 00:39 Lima)
-
-- **"Da la sensación que está pintado": Mesías Guevara cuestiona a Carlos Álvarez por caso de franja electoral en País para Todos**: [Link](https://rpp.pe/politica/elecciones/elecciones-2026-mesias-guevara-cuestiona-a-carlos-alvarez-por-caso-de-franja-electoral-en-pais-para-todos-noticia-1674924)
-- **El especial sin humor, por Héctor Villalobos | OPINION**: [Link](https://elcomercio.pe/opinion/columnistas/el-especial-sin-humor-por-hector-villalobos-noticia/)
-- **Carlos Álvarez sigue en carrera con País Para Todos**: [Link](https://caretas.pe/home_web/home_principal_secundario/carlos-alvarez-sigue-en-carrera-con-pais-para-todos/)
-
-
-### donald trump (N/A, 09/02/2026 00:39 Lima)
-
-- **Bad Bunny's Super Bowl halftime show ignites Trump's fury, divides viewers**: [Link](https://www.foxnews.com/sports/bad-bunnys-super-bowl-halftime-show-ignites-trumps-fury-divides-viewers)
-- **Amanda Serrano says Jake Paul is 'wrong' for calling Bad Bunny a 'fake American' over Super Bowl halftime show**: [Link](https://sports.yahoo.com/boxing/article/amanda-serrano-says-jake-paul-is-wrong-for-calling-bad-bunny-a-fake-american-over-super-bowl-halftime-show-052522672.html)
-- **Trump calls Bad Bunny's Super Bowl halftime show a 'slap in the face to our country'**: [Link](https://abcnews.go.com/US/trump-calls-bad-bunnys-super-bowl-halftime-show/story?id=129980124)
-
-
-### liam ramos (N/A, 09/02/2026 00:39 Lima)
-
-- **U.S. Seeks to Expedite Deportation of 5-Year-Old Liam Conejo Ramos**: [Link](https://www.nytimes.com/2026/02/06/us/us-deportation-liam-conejo-ramos-minnesota.html)
-- **Family of Liam Conejo Ramos has more time to respond to DHS deportation proceedings**: [Link](https://www.mprnews.org/story/2026/02/05/liam-conejo-ramos-dhs-requests-expedited-deportation-proceedings-for-family)
-- **Trump lawyers aim to deport five-year-old boy after judge ordered his release**: [Link](https://www.theguardian.com/us-news/2026/feb/07/liam-conejo-ramos-deportation-trump-administration)
-
-
-### gimnasia y esgrima - instituto (N/A, 09/02/2026 00:39 Lima)
-
-- **Gran triunfo de Gimnasia de Mendoza sobre el final ante Instituto por el Torneo Apertura**: [Link](https://www.espn.com.ar/futbol/argentina/nota/_/id/16291551/gran-triunfo-de-gimnasia-de-mendoza-sobre-el-final-ante-instituto)
-- **Jara sin gol, Luna sin gol: el 1x1 de Insituto en la derrota ante Gimnasia en Mendoza**: [Link](https://www.lavoz.com.ar/deportes/futbol/jara-sin-gol-luna-sin-gol-el-1x1-de-insituto-en-la-derrota-ante-gimnasia-en-mendoza/)
-- **Ariel Broggi destacó el triunfo de Gimnasia y Esgrima: "Había que salir rápido de la nube negra"**: [Link](https://www.diariouno.com.ar/ovacion/futbol/ariel-broggi-destaco-el-triunfo-gimnasia-y-esgrima-habia-que-salir-rapido-la-nube-negra-n1524993)
-
-
-### kendrick lamar (N/A, 08/02/2026 21:44 Lima)
-
-- **Showtime! Interesting facts about the Super Bowl halftime show**: [Link](https://www.nbcbayarea.com/super-bowl/super-bowl-halftime-show-performers-history-bad-bunny/4026320/)
-- **NFL Fans In Agreement On 'Worst' Super Bowl Halftime Show Ever**: [Link](https://www.yahoo.com/entertainment/music/articles/nfl-fans-agreement-worst-super-172205749.html)
-- **Ranking the best Super Bowl halftime shows in history**: [Link](https://www.nbcsports.com/nfl/news/ranking-the-best-super-bowl-halftime-shows-in-history-prince-beyonce-u2-katy-perry-michael-jackson-lady-gaga-madonna-bruce-springsteen)
-
-
-### bruno mars (N/A, 08/02/2026 21:44 Lima)
-
-- **Bruno Mars’s Grammy-Winning Album Reaches A Special Milestone**: [Link](https://www.forbes.com/sites/hughmcintyre/2026/02/01/bruno-marss-grammy-winning-album-reaches-a-special-milestone/)
-- **Inside Bruno Mars' 10-Year Break Between Solo Albums**: [Link](https://www.eonline.com/news/1427797/bruno-mars-10-year-gap-between-albums-explained)
-- **Bruno Mars is Back on Everyone’s Playlist: Tour Buzz, Viral Hits & The Story Behind the Legend**: [Link](https://www.ad-hoc-news.de/boerse/news/ueberblick/bruno-mars-is-back-on-everyone-s-playlist-tour-buzz-viral-hits-and/68565087)
-
-
-### boston river - nacional (N/A, 08/02/2026 21:44 Lima)
-
-- **Cómo le fue a Nacional en sus visitas al estadio Campeones Olímpicos de Florida**: [Link](https://www.espn.com.ar/futbol/uruguay/nota/_/id/16283342/nacional-visitas-estadio-campeones-olimpicos-florida-como-le-fue)
-- **Boston River 1-2 Nacional: el Bolso pegó en los momentos justos y debutó en el Apertura con una victoria**: [Link](https://www.elpais.com.uy/ovacion/futbol/boston-river-vs-nacional-en-vivo-el-tricolor-de-jadson-viera-se-estrena-en-florida-y-sin-el-diente-lopez)
-- **Habló Gómez y Ramírez se quejó de las “dudosas que para algunos lados es más fácil cobrar”**: [Link](https://www.montevideo.com.uy/Deportes/Hablo-Gomez-y-Ramirez-se-quejo-de-las-dudosas-que-para-algunos-lados-es-mas-facil-cobrar--uc952484)
-
-
-### twitter (N/A, 08/02/2026 21:44 Lima)
-
-- **Turning Point's alternative halftime show – How to watch, what to know**: [Link](https://www.usatoday.com/story/entertainment/music/2026/02/08/turning-point-usa-halftime-show-how-where-watch/88578627007/)
-- **Trump Says Bad Bunny's Super Bowl Halftime Show Was 'Absolutely Terrible'**: [Link](https://www.usnews.com/news/top-news/articles/2026-02-08/trump-says-bad-bunnys-super-bowl-halftime-show-was-absolutely-terrible)
-- **Kid Rock backlash erupts as ‘I like ’em underage’ lyric resurfaces before Super Bowl**: [Link](https://www.sfchronicle.com/super-bowl-lx/article/kid-rock-backlash-underage-21341430.php)
-
-
-### mack hollins (N/A, 08/02/2026 21:44 Lima)
-
-- **Super Bowl 2026: Mack Hollins arrives in handcuffs, Hannibal Lecter-style mask for big game**: [Link](https://sports.yahoo.com/nfl/article/super-bowl-2026-mack-hollins-arrives-in-handcuffs-hannibal-lecter-style-mask-for-big-game-221514166.html)
-- **Patriots' Mack Hollins Sports Mike Vrabel's High School Jersey in Photo Ahead of NFL Super Bowl 60**: [Link](https://bleacherreport.com/articles/25392836-patriots-mack-hollins-sports-mike-vrabels-high-school-jersey-photo-ahead-nfl-super-bowl-60)
-- **Mack Hollins arrives barefoot in wild prisoner outfit at the Super Bowl LX**: [Link](https://en.as.com/videos/mack-hollins-arrives-barefoot-in-wild-prisoner-outfit-at-the-super-bowl-lx-f202602-v/)
-
-
-### twitch (N/A, 08/02/2026 21:44 Lima)
-
-- **Mizkif-linked Twitch account receives temporary suspension**: [Link](https://timesofindia.indiatimes.com/world/us-streamers/mizkif-linked-twitch-account-receives-temporary-suspension/articleshow/128083663.cms)
-- **Mizkif-linked Twitch account receives temporary suspension**: [Link](https://www.inkl.com/news/mizkif-linked-twitch-account-receives-temporary-suspension)
-- **Emiru draws criticism after declining to comment on ICE during Twitch stream**: [Link](https://tribune.com.pk/story/2591396/emiru-draws-criticism-after-declining-to-comment-on-ice-during-twitch-stream)
 
 
