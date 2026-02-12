@@ -1,3 +1,31 @@
+### milagros aguayo (N/A, 12/02/2026 08:21 Lima)
+
+- **La ‘número dos’ del favorito a la Presidencia en Perú, acusada de inducir a menores violadas a ser madres**: [Link](https://elpais.com/america/2026-02-11/la-numero-dos-del-favorito-a-la-presidencia-en-peru-acusada-de-inducir-a-menores-violadas-a-ser-madres.html)
+- **Comisión de Ética pide informe a congresista Milagros Jáuregui por albergue de menores**: [Link](https://gestion.pe/peru/politica/comision-de-etica-pide-informe-a-congresista-milagros-jauregui-por-albergue-de-menores-noticia/)
+- **Denuncian penalmente a Milagros Jáuregui por niñas víctimas de violación forzadas a gestar en su refugio**: [Link](https://www.infobae.com/peru/2026/02/10/denuncian-penalmente-a-milagros-jauregui-por-ninas-victimas-de-violacion-forzadas-a-gestar-en-su-refugio/)
+
+
+### precio del dolar hoy (N/A, 12/02/2026 08:21 Lima)
+
+- **Precio del dólar en Perú: a cuánto cerró el tipo de cambio el martes 10 de febrero**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-a-cuanto-esta-el-dolar-y-tipo-de-cambio-este-martes-10-de-febrero-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
+- **Precio del dólar con baja: Así cerró el tipo de cambio hoy 11 de febrero en Perú**: [Link](https://www.infobae.com/noticias/2026/02/11/peru-cotizacion-de-apertura-del-dolar-hoy-11-de-febrero-de-usd-a-pen/)
+- **¿Cuál es la cotización del dólar hoy miércoles 11 de febrero del 2026?**: [Link](https://andina.pe/agencia/noticia-cual-es-cotizacion-del-dolar-hoy-miercoles-11-febrero-del-2026-1062689.aspx)
+
+
+### fk arkadag (N/A, 12/02/2026 08:21 Lima)
+
+- **Turkmen government “depressed” as Ronaldo fails to appear for football clash in Ashgabat**: [Link](https://www.intellinews.com/turkmen-government-depressed-as-ronaldo-fails-to-appear-for-football-clash-in-ashgabat-425539/)
+- **R16 (1st Leg): FK Arkadag (TKM) 0-1 Al Nassr Club (KSA)**: [Link](https://www.the-afc.com/en/club/afc_champions_league_two.html/news/r16-1st-leg-fk-arkadag-tkm-0-1-al-nassr-club-ksa-1)
+- **Why Cristiano Ronaldo Wasn’t Playing For Al Nassr Despite Ending Strike?**: [Link](https://www.fotmob.com/embed/news/01kh6ejbx4kb/why-cristiano-ronaldo-wasnt-playing-al-nassr-despite-ending-strike)
+
+
+### trome (N/A, 12/02/2026 08:21 Lima)
+
+- **Pisa Pelota | Ese ‘Sargento’ resultó tremendo budín con pasas | OPINION**: [Link](https://trome.com/opinion/el-bombardero/pisa-pelota-ese-sargento-resulto-tremendo-budin-con-pasas-noticia/)
+- **‘Tomate’ Barraza se habría involucrado con la expareja de su primo y exponen cariñosos mensajes: “Necesito verte, mi amor”**: [Link](https://trome.com/espectaculos/tv/carlos-tomate-barraza-se-habria-involucrado-con-la-expareja-de-su-primo-y-exponen-carinosos-mensajes-necesito-verte-mi-amor-andrea-munoz-video-fotos-farandula-noticia/)
+- **Andrea Muñoz pide estar en 'Esto si es amor' tras decepcionarse de 'Tomate' Barraza: "Estoy disponible"**: [Link](https://www.atv.pe/noticia/andrea-munoz-pide-estar-en-esto-si-es-amor-tras-decepcionarse-de-tomate-barraza-estoy-disponible/)
+
+
 ### telegram (N/A, 12/02/2026 03:55 Lima)
 
 - **Russia moves to block WhatsApp in messaging app crackdown**: [Link](https://www.bbc.com/news/articles/clygd10pg5lo)
@@ -1006,31 +1034,5 @@ dangerous’**: [Link](https://www.vavel.com/en/football/2026/02/10/manchester-u
 - **Cienciano vs Juan Pablo II: Hora, canal tv y dónde ver la LIGA 1-2026**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/cienciano-vs-juan-pablo-ii-en-vivo-hora-y-donde-ver-el-torneo-apertura-de-la-liga-1-fecha-2-transmision-liga-1-l1max-l1play-tdpe-noticia/)
 - **Liga 1: Por la fecha 2 se enfrentarán Cienciano y Juan Pablo II**: [Link](https://rpp.pe/futbol/descentralizado/liga-1-por-la-fecha-2-se-enfrentaran-cienciano-y-juan-pablo-ii-noticia-1674893)
 - **🔴#ENVIVO Cienciano recibe a Juan Pablo II en Cusco**: [Link](https://ovacion.pe/noticias/liga1-2026/envivo-cienciano-recibe-juan-pablo-ii-cusco)
-
-
-### juventus vs (N/A, 08/02/2026 15:35 Lima)
-
-- **Cuándo juegan Juventus vs. Lazio por la fecha 24 de la Serie A: equipo, fecha, hora y TV en vivo**: [Link](https://www.espn.com.pe/futbol/italia/nota/_/id/16275978/juventus-vs-lazio-fecha-24-serie-a-equipo-fecha-hora-y-tv-en-vivo)
-- **Juventus vs Lazio: ¡Incrementa tus ganancias hasta 200% con la Serie A en Meridianbet!**: [Link](https://ovacion.pe/noticias/nota-promocional/juventus-vs-lazio-incrementa-tus-ganancias-hasta-200-serie-meridianbet)
-- **Pronóstico Juventus vs. Lazio - Una lucha por las copas**: [Link](https://gainblers.com/pe/pronosticos/futbol/italia/serie-a/pronostico-juventus-lazio-08-02-2026/)
-
-
-### garena free fire códigos (N/A, 08/02/2026 15:35 Lima)
-
-- **Códigos Free Fire gratis para hoy 7 de febrero del 2026: recompensas y canje free (Actualizado)**: [Link](https://enlinea.pe/codigos-free-fire-2026-recompensas-actualizado-febrero/)
-
-
-### olympiacos - panathinaikos (N/A, 08/02/2026 15:35 Lima)
-
-- **How to watch today's Olympiacos vs Panathinaikos Super League game: Live stream, TV channel, and start time**: [Link](https://www.goal.com/en-sa/news/how-to-watch-olympiacos-v-panathinaikos-08022026/blt67cb8b6a5eb210ee)
-- **Olympiacos 0-1 Panathinaikos Live Score, Greek Super League: Sverrir Ingason's Head Gets Saved**: [Link](https://www.outlookindia.com/sports/football/olympiacos-vs-panathinaikos-live-score-greek-super-league-2025-26-matchday-20-updates-highlights)
-- **Olympiacos Vs Panathinaikos Live Streaming, Greek Super League: Preview, Head-To-Head, And More**: [Link](https://www.outlookindia.com/sports/football/olympiacos-vs-panathinaikos-live-streaming-greek-super-league-2025-26-preview-head-to-head)
-
-
-### juventus vs lazio (N/A, 08/02/2026 15:35 Lima)
-
-- **Juventus probable lineup vs Lazio: Koopmeiners ready to step up**: [Link](https://www.juvefc.com/juventus-probable-lineup-vs-lazio-koopmeiners-ready-to-step-up/)
-- **Juventus director Chiellini on Spalletti: ‘No rush, but no doubt either’**: [Link](https://football-italia.net/juventus-director-chiellini-on-spalletti-rush/)
-- **Sarri: ‘Romagnoli important for Lazio, Maldini has huge potential’**: [Link](https://onefootball.com/de/news/sarri-romagnoli-important-for-lazio-maldini-has-huge-potential-42380003)
 
 
