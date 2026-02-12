@@ -1,3 +1,24 @@
+### telegram (N/A, 12/02/2026 03:55 Lima)
+
+- **Russia moves to block WhatsApp in messaging app crackdown**: [Link](https://www.bbc.com/news/articles/clygd10pg5lo)
+- **Russia attempted to ‘fully block’ WhatsApp, Meta-owned company says**: [Link](https://www.theguardian.com/world/2026/feb/12/russia-attempt-block-whatsapp-meta-says)
+- **Russian soldiers rage against Putin’s Telegram ban**: [Link](https://www.telegraph.co.uk/world-news/2026/02/11/russian-soldiers-rage-against-putin-telegram-ban/)
+
+
+### la tinka resultados (N/A, 12/02/2026 03:55 Lima)
+
+- **Sorteo de La Tinka del 11 de febrero: resultados completos y ganadores del Pozo Millonario**: [Link](https://larepublica.pe/sociedad/2026/02/11/sorteo-la-tinka-miercoles-11-de-febrero-premios-jugada-ganadora-y-pozo-acumulado-evat-930190)
+- **Sorteo de La Tinka del domingo 8 de febrero de 2026: estos son los números ganadores de la fecha**: [Link](https://www.infobae.com/peru/2026/02/09/resultados-ganadores-de-la-tinka-este-domingo-8-de-febrero/)
+- **Sorteo de La Tinka: revisa aquí los resultados y jugada del miércoles 11 de febrero**: [Link](https://elcomercio.pe/respuestas/loterias/la-tinka-en-vivo-hoy-miercoles-11-de-febrero-2026-resultados-del-ultimo-sorteo-y-jugada-ganadora-pozo-millonario-loteria-resultado-si-o-si-boliyapa-intralot-lbposting-noticia/)
+
+
+### bipay (N/A, 12/02/2026 03:55 Lima)
+
+- **BiPay obtiene luz verde para operar como emisora de dinero electrónico**: [Link](https://rpp.pe/economia/economia/bipay-billetera-digital-de-bitel-operara-como-emisora-de-dinero-electronico-como-funcionara-noticia-1675253)
+- **Bitel entra en la carrera para competir con Yape y Plin**: [Link](https://gestion.pe/tu-dinero/bitel-entra-en-la-carrera-para-competir-con-yape-y-plin-noticia/)
+- **Yape tendrá más competencia: Nueva billetera digital es autorizada por la SBS**: [Link](https://www.infobae.com/peru/2026/02/10/yape-tendra-nueva-competencia-nueva-billetera-digital-es-autorizada-por-la-sbs/)
+
+
 ### americo (N/A, 12/02/2026 00:26 Lima)
 
 Sin noticias relacionadas disponibles.
@@ -1011,25 +1032,5 @@ dangerous’**: [Link](https://www.vavel.com/en/football/2026/02/10/manchester-u
 - **Juventus probable lineup vs Lazio: Koopmeiners ready to step up**: [Link](https://www.juvefc.com/juventus-probable-lineup-vs-lazio-koopmeiners-ready-to-step-up/)
 - **Juventus director Chiellini on Spalletti: ‘No rush, but no doubt either’**: [Link](https://football-italia.net/juventus-director-chiellini-on-spalletti-rush/)
 - **Sarri: ‘Romagnoli important for Lazio, Maldini has huge potential’**: [Link](https://onefootball.com/de/news/sarri-romagnoli-important-for-lazio-maldini-has-huge-potential-42380003)
-
-
-### mayra goñi (N/A, 08/02/2026 15:35 Lima)
-
-- **Mayra Goñi se cruza con su expareja Neutro en evento y la actriz lo evita por completo**: [Link](https://larepublica.pe/espectaculos/2026/02/08/mayra-goni-se-cruza-con-su-expareja-neutro-en-evento-y-la-actriz-lo-evita-por-completo-158976)
-- **Mayra Goñi se cruza con Neutro en evento y lo ignora: actriz evitó mirar y hablarle a su expareja**: [Link](https://trome.com/espectaculos/tv/mayra-goni-se-cruza-con-neutro-en-evento-y-lo-ignora-actriz-no-miro-a-su-expareja-video-farandula-noticia/)
-
-
-### valencia c. f. - real madrid (N/A, 08/02/2026 15:35 Lima)
-
-- **Alineación posible del Real Madrid hoy contra el Valencia en LaLiga EA Sports**: [Link](https://as.com/futbol/primera/posible-alineacion-del-real-madrid-contra-el-valencia-en-laliga-ea-sports-f202602-n/)
-- **Link hoy: Real Madrid vs. Valencia EN VIVO en directo por DIRECTV, DSports y Movistar**: [Link](https://depor.com/futbol-internacional/espana/futbol-libre-tv-en-vivo-real-madrid-vs-valencia-hoy-gratis-transmision-directv-dsports-espn-deportes-movistar-laliga-video-noticia/)
-- **Real Madrid vs. Valencia EN VIVO y EN DIRECTO por DIRECTV Sports: minuto a minuto**: [Link](https://libero.pe/futbol-internacional/liga-espanola/2026/02/07/real-madrid-vs-valencia-en-vivo-en-directo-partido-de-laliga-hoy-via-directv-sports-movistar-plus-lbev-148995)
-
-
-### psg - marsella (N/A, 08/02/2026 15:35 Lima)
-
-- **¡EN VIVO! PSG busca estirar la distancia en lo alto de la Ligue 1 ante Olympique Marsella**: [Link](https://www.espn.com.pe/futbol/francia/nota/_/id/16273735/psg-vs-olympique-marsella-por-la-ligue-1-equipo-fecha-hora-y-tv-en-vivo)
-- **Liga de Francia: Por una nueva edición de "Le Classique", PSG recibe a Olympique de Marsella**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-de-francia-por-una-nueva-edicion-de-le-classique-psg-recibe-a-olympique-de-marsella-noticia-1674886)
-- **Pronóstico PSG vs. Marsella - El clásico francés ¿Quién lo gana?**: [Link](https://gainblers.com/pe/pronosticos/futbol/francia/ligue-1/pronostico-psg-marseille-08-02-2026/)
 
 
