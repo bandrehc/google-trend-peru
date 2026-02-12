@@ -1,3 +1,52 @@
+### iga świątek (N/A, 12/02/2026 12:04 Lima)
+
+- **Na powrót Igi Świątek nie trzeba długo czekać**: [Link](https://sportowefakty.wp.pl/tenis/1234342/na-powrot-igi-swiatek-nie-trzeba-dlugo-czekac)
+- **Świątek w ćwierćfinale**: [Link](https://gazetaolsztynska.pl/artykul/swiatek-w-cwiercfinale-n2221892)
+- **Świątek powstrzymuje Kasatkinę i awansuje do kolejnej rundy w Dosze gdzie zmierzy się z Sakkari**: [Link](https://biznesistyl.pl/sport/tenis/swiatek-powstrzymuje-kasatkine-i-awansuje-do-kolejnej-rundy-w-dosze-gdzie-zmierzy-sie-z-sakkari.html)
+
+
+### nueva billetera digital (N/A, 12/02/2026 12:04 Lima)
+
+- **Yape tendrá más competencia: Nueva billetera digital es autorizada por la SBS**: [Link](https://www.infobae.com/peru/2026/02/10/yape-tendra-nueva-competencia-nueva-billetera-digital-es-autorizada-por-la-sbs/)
+- **Bitel entra en la carrera para competir con Yape y Plin**: [Link](https://gestion.pe/tu-dinero/bitel-entra-en-la-carrera-para-competir-con-yape-y-plin-noticia/)
+- **BiPay obtiene luz verde para operar como emisora de dinero electrónico**: [Link](https://rpp.pe/economia/economia/bipay-billetera-digital-de-bitel-operara-como-emisora-de-dinero-electronico-como-funcionara-noticia-1675253)
+
+
+### hermanas un amor compartido capítulo 7 (N/A, 12/02/2026 12:04 Lima)
+
+- **Hermanas, un amor compartido: Capítulo Completo 7 - Mi hija vive aquí**: [Link](https://www.lasestrellas.tv/telenovelas/hermanas-un-amor-compartido/hermanas-un-amor-compartido-capitulo-completo-7-mi-hija-vive-aqui-video)
+- **Alonso enfrenta a su padre por una traición**: [Link](https://www.lasestrellas.tv/telenovelas/hermanas-un-amor-compartido/alonso-enfrenta-a-su-padre-por-una-traicion-video)
+- **Alonso descubre que tiene una hija**: [Link](https://www.lasestrellas.tv/telenovelas/hermanas-un-amor-compartido/alonso-descubre-que-tiene-una-hija-video)
+
+
+### brentford vs arsenal (N/A, 12/02/2026 12:04 Lima)
+
+- **Mikel Arteta: 'Brentford are a top side' | Press conference | News**: [Link](https://www.arsenal.com/news/mikel-arteta-brentford-are-top-side)
+- **Keith Andrews relishing Arsenal set-piece battle**: [Link](https://www.brentfordfc.com/en/news/article/first-team-brentford-v-arsenal-keith-andrews-set-pieces-premier-league)
+- **Brentford vs Arsenal Prediction and Best Bets for February 12**: [Link](https://lastwordonsports.com/football/2026/02/12/brentford-vs-arsenal-best-bets-february-12/)
+
+
+### incendio (N/A, 12/02/2026 12:04 Lima)
+
+- **Incendio en Huachipa arrasa almacén y moviliza nueve unidades de bomberos**: [Link](https://canaln.pe/actualidad/incendio-consume-almacen-huachipa-n490282)
+- **Incendio en Huachipa: más de 20 unidades del Cuerpo de Bomberos luchan contra las llamas**: [Link](https://rpp.pe/videos/encendidos/incendio-en-huachipa-mas-de-20-unidades-del-cuerpo-de-bomberos-luchan-contra-las-llamas-noticia-1675591)
+- **Incendio de proporciones consume un almacén en Huachipa**: [Link](https://elcomercio.pe/lima/sucesos/incendio-en-huachipa-siniestro-de-proporciones-consume-un-almacen-ultimas-noticia/)
+
+
+### laura spoya (N/A, 12/02/2026 12:04 Lima)
+
+- **Laura Spoya PIERDE CONTROL de su camioneta y choca contra muro en Surco (VIDEO**: [Link](https://peru21.pe/espectaculos/laura-spoya-pierde-control-de-su-camioneta-y-choca-contra-muro-en-surco/)
+- **Janet opinó especulaciones sobre accidente de Laura Spoya**: [Link](https://www.americatv.com.pe/america-hoy/janet-opino-especulaciones-sobre-accidente-laura-spoya-noticia-162905)
+- **Mario Irivarren revela detalles de la salud de Laura Spoya: “Está fuera de peligro”**: [Link](https://elcomercio.pe/tvmas/farandula/mario-irivarren-revela-detalles-de-la-salud-de-laura-spoya-esta-fuera-de-peligro-ultimas-noticia/)
+
+
+### hora (N/A, 12/02/2026 12:04 Lima)
+
+- **Cambio de horario en New York City 2026: ¿cuándo hay que ajustar el reloj?, ¿se atrasa o se adelanta la hora?**: [Link](https://gestion.pe/mix/usa/cambio-de-horario-en-new-york-city-2026-cuando-hay-que-ajustar-el-reloj-se-atrasa-o-se-adelanta-la-hora-dst-daylight-saving-time-nnda-nnrt-noticia/)
+- **Cambia la hora en California 2026: ¿Tienes que atrasar o adelantar tus relojes, cómo configurarlos y desde qué ciudades?**: [Link](https://elcomercio.pe/mag/usa/local-us/cambia-la-hora-en-california-2026-se-adelanta-o-se-atrasa-el-reloj-como-ajustarlo-y-en-que-ciudades-se-aplica-dst-nnda-nnrt-noticia/)
+- **Horario de verano en EEUU 2026 ¿se adelanta o se atrasa el reloj?**: [Link](https://www.univision.com/noticias/estados-unidos/horario-de-verano-en-eeuu-se-adelanta-o-se-atrasa-el-reloj)
+
+
 ### milagros aguayo (N/A, 12/02/2026 08:21 Lima)
 
 - **La ‘número dos’ del favorito a la Presidencia en Perú, acusada de inducir a menores violadas a ser madres**: [Link](https://elpais.com/america/2026-02-11/la-numero-dos-del-favorito-a-la-presidencia-en-peru-acusada-de-inducir-a-menores-violadas-a-ser-madres.html)
@@ -985,54 +1034,5 @@ dangerous’**: [Link](https://www.vavel.com/en/football/2026/02/10/manchester-u
 - **Mizkif-linked Twitch account receives temporary suspension**: [Link](https://timesofindia.indiatimes.com/world/us-streamers/mizkif-linked-twitch-account-receives-temporary-suspension/articleshow/128083663.cms)
 - **Mizkif-linked Twitch account receives temporary suspension**: [Link](https://www.inkl.com/news/mizkif-linked-twitch-account-receives-temporary-suspension)
 - **Emiru draws criticism after declining to comment on ICE during Twitch stream**: [Link](https://tribune.com.pk/story/2591396/emiru-draws-criticism-after-declining-to-comment-on-ice-during-twitch-stream)
-
-
-### levis stadium (N/A, 08/02/2026 21:44 Lima)
-
-- **Super Bowl LX turns Levi’s Stadium into the center of the sports world again—what’s different this time, and why it matters for the Bay Area**: [Link](https://www.filmogaz.com/140519)
-- **Super Bowl 2026: Santa Clara hosts America's biggest game**: [Link](https://www.dw.com/en/super-bowl-lx-live-santa-clara-hosts-americas-biggest-game-of-the-nfl/live-75863946)
-- **Super Bowl LX: Discussion for Rams fans**: [Link](https://sports.yahoo.com/articles/super-bowl-lx-discussion-rams-230000801.html)
-
-
-### universitario vs atenea (N/A, 08/02/2026 21:44 Lima)
-
-- **Tabla de posiciones de la Liga Peruana de Vóley 2026: así van los equipos en la fecha 5 de la Fase 2**: [Link](https://www.infobae.com/peru/deportes/2026/02/07/tabla-de-posiciones-liga-peruana-de-voley-2025-2026-hoy-fecha-5-fase-2-alianza-lima-universitario-san-martin-regatas-lima/)
-- **La sorpresa de la jornada: Universitario cayó 3-0 ante Atenea por la fase 2 de la Liga Peruana de Vóley 2026**: [Link](https://rpp.pe/voley/mas-voley/universitario-vs-atenea-a-que-hora-juegan-y-como-ver-fecha-5-fase-2-liga-peruana-de-voley-2026-via-latina-voley-en-vivo-noticia-1674871)
-- **Partidos Liga Peruana de Vóley 2026: resultados y tabla de posiciones de la fecha 5**: [Link](https://libero.pe/deportes/voley/2026/02/03/tabla-de-posiciones-liga-peruana-de-voley-programacion-de-partidos-de-segunda-fase-181935)
-
-
-### vélez - boca juniors (N/A, 08/02/2026 21:44 Lima)
-
-- **Vélez vs. Boca, hoy EN VIVO por el Torneo Apertura: ¡ya se juega en el Amalfitani!**: [Link](https://www.ole.com.ar/futbol-primera/velez-vs-boca-partido-torneo-apertura-2026-fecha-4-vivo_0_EtCo3dso9a.html)
-- **Boca vs. Vélez en vivo por Liga Argentina: transmisión del partido de hoy**: [Link](https://elcomercio.pe/deporte-total/argentina/boca-juniors-vs-velez-en-vivo-hoy-gratis-por-liga-argentina-a-que-hora-juegan-canal-que-pasa-y-donde-ver-por-torneo-apertura-via-tnt-sports-video-noticia/)
-- **Vélez vs Boca: Resultado EN VIVO, minuto a minuto y goles de la Liga Profesional**: [Link](https://www.365scores.com/es/news/velez-vs-boca-resultado-en-vivo-goles/)
-
-
-### la kabala (N/A, 08/02/2026 21:44 Lima)
-
-- **Resultados de La Kábala: números ganadores del sorteo del sábado 7 de febrero**: [Link](https://elcomercio.pe/respuestas/loterias/kabala-en-vivo-hoy-sabado-7-de-febrero-de-2026-resultados-sorteo-y-jugada-ganadora-tinka-chau-chamba-intralot-pozo-buenazo-loteria-tinkanet-lbposting-noticia/)
-- **La Kábala: resultados del último sorteo del martes 3 de febrero de 2026**: [Link](https://elcomercio.pe/respuestas/loterias/kabala-en-vivo-resultados-hoy-martes-3-de-febrero-de-2026-ver-numeros-ganadores-y-premios-sorteo-intralot-pozo-buenazo-la-tinka-chau-chamba-intralot-tinkanet-loteria-lbposting-noticia/)
-- **Sorteo de la Kábala en vivo hoy 5 de febrero 2026: resultados oficiales, números y pozo Buenazo**: [Link](https://larepublica.pe/sociedad/2026/02/04/sorteo-kabala-5-de-febrero-2026-resultados-oficiales-numeros-ganadores-y-pozo-buenazo-atmp-332112)
-
-
-### psg (N/A, 08/02/2026 15:35 Lima)
-
-- **OM : Medina promet du jeu**: [Link](https://www.maxifoot.fr/om/medina-promet-du-jeu-foot-449944.htm)
-- **[Podcasts] Le PSG reçoit l'Olympique de Marseille ce dimanche, avec Jérôme Alonzo – 08/02**: [Link](https://rmcsport.bfmtv.com/replay-emissions/bartoli-time/le-psg-recoit-l-olympique-de-marseille-ce-dimanche-avec-jerome-alonzo-08-02_EN-202602080338.html)
-- **Geronimo Rulli et Nayef Aguerd absent du onze de Roberto De Zerbi pour une raison bien précise**: [Link](https://madeinmarseillais.ouest-france.fr/infos/article-om-geronimo-rulli-et-nayef-aguerd-absent-du-onze-de-roberto-de-zerbi-pour-une-raison-bien-precise-512121.html)
-
-
-### platense - independiente (N/A, 08/02/2026 15:35 Lima)
-
-- **Independiente iguala con Platense en Vicente López por el Torneo Apertura**: [Link](https://www.infobae.com/deportes/2026/02/08/independiente-buscara-su-primera-victoria-en-el-torneo-apertura-ante-platense-la-agenda-con-los-partidos-del-domingo/)
-- **Adentro la Joya**: [Link](https://onefootball.com/en/news/adentro-la-joya-42376343)
-- **A CALAMAR LAS AGUAS**: [Link](https://www.pressreader.com/argentina/ole/20260208/282114938016509)
-
-
-### cienciano - juan pablo ii college (N/A, 08/02/2026 15:35 Lima)
-
-- **Cienciano vs Juan Pablo II: Hora, canal tv y dónde ver la LIGA 1-2026**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/cienciano-vs-juan-pablo-ii-en-vivo-hora-y-donde-ver-el-torneo-apertura-de-la-liga-1-fecha-2-transmision-liga-1-l1max-l1play-tdpe-noticia/)
-- **Liga 1: Por la fecha 2 se enfrentarán Cienciano y Juan Pablo II**: [Link](https://rpp.pe/futbol/descentralizado/liga-1-por-la-fecha-2-se-enfrentaran-cienciano-y-juan-pablo-ii-noticia-1674893)
-- **🔴#ENVIVO Cienciano recibe a Juan Pablo II en Cusco**: [Link](https://ovacion.pe/noticias/liga1-2026/envivo-cienciano-recibe-juan-pablo-ii-cusco)
 
 
