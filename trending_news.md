@@ -1,3 +1,73 @@
+### miguel bose (N/A, 12/02/2026 21:46 Lima)
+
+- **“Papito” el disco que consagró el legado de Miguel Bosé y anticipa su regreso a Chile**: [Link](https://www.radioimagina.cl/2026/02/papito-el-disco-que-consagro-el-legado-de-miguel-bose-y-anticipa-su-regreso-a-chile/)
+- **Miguel Bosé trasladará a los hijos a una escuela de élite de Andorra, igual que las Thyssen**: [Link](https://www.segre.com/es/sociedad/260210/miguel-bose-trasladara-a-los-hijos-a-una-escuela-de-elite-de-andorra-igual-que-las-thyssen_1106388.html)
+- **La razón por la que Miguel Bosé se muda a Andorra tiene que ver con sus hijos... y con su ex Nacho Palau**: [Link](https://www.esdiario.com/chismografo/260209/179236/razon-miguel-bose-muda-andorra-ver-hijos-ex-nacho-palau.html)
+
+
+### ben shelton (N/A, 12/02/2026 21:46 Lima)
+
+- **2026 Dallas Open: Paul [24th] vs. Kecmanovic [66th] Prediction, Odds and Match Preview**: [Link](https://sportsbookwire.usatoday.com/story/sports/sports-betting/2026/02/12/tommy-paul-vs-miomir-kecmanovic-dallas-open-tennis-odds-lines-betting-2-12-2026/88638680007/)
+- **Adrian Mannarino vs. Ben Shelton: Predictions, Where to Watch**: [Link](https://globelynews.com/sports/adrian-mannarino-vs-ben-shelton-predictions-where-to-watch/)
+- **Dallas R2 previews and predictions: Shelton vs. Mannarino, Paul vs. Kecmanovic**: [Link](https://tenngrand.com/dallas-r2-previews-and-predictions-shelton-vs-mannarino-paul-vs-kecmanovic/)
+
+
+### eva ramon gallegos (N/A, 12/02/2026 21:46 Lima)
+
+- **El IPN logra eliminar el 100 % del VPH con terapia fotodinámica, avance histórico contra el cáncer cervicouterino**: [Link](https://www.meteored.mx/noticias/actualidad/el-ipn-logra-eliminar-el-100-del-vph-con-terapia-fotodinamica-avance-historico-contra-el-cancer-cervicouterino.html)
+- **Eva Ramón Gallegos: La científica mexicana que desarrolla terapia con láser que elimina por completo el Virus del Papiloma Humano en estudios piloto**: [Link](https://www.elimparcial.com/mexico/2026/02/12/eva-ramon-gallegos-la-cientifica-mexicana-que-desarrolla-terapia-con-laser-que-elimina-por-completo-el-virus-del-papiloma-humano-en-estudios-piloto/)
+- **Científica mexicana Eva Ramón Gallegos lograr eliminar el Virus del Papiloma Humano: ¿Cómo lo hizo y qué es la terapia fotodinámica?**: [Link](https://www.ejecentral.com.mx/nuestro-eje/cientifica-mexicana-eva-ramon-gallegos-lograr-eliminar-el-virus-del-papiloma-humano-como-lo-hizo-y-que-es-la-terapia-fotodinamica)
+
+
+### u vs cienciano (N/A, 12/02/2026 21:46 Lima)
+
+- **¿Qué canales transmiten Universitario vs. Cienciano y a qué hora juegan?**: [Link](https://depor.com/futbol-peruano/descentralizado/universitario-vs-cienciano-en-vivo-fecha-horarios-canales-de-tv-y-donde-ver-transmision-gratis-por-liga-1-max-movistar-tv-directv-noticia/)
+- **La “joya” vuelve al once ante Cienciano**: [Link](https://caretas.pe/deportes/la-joya-vuelve-al-once-ante-cienciano/)
+- **Con Sekou Gassama: altas y bajas de Universitario tras anuncio de convocados para enfrentar a Cienciano**: [Link](https://rpp.pe/futbol/descentralizado/universitario-con-sekou-gassama-la-u-anuncio-a-sus-convocados-para-enfrentar-a-cienciano-noticia-1675650)
+
+
+### primera división (N/A, 12/02/2026 21:46 Lima)
+
+- **LaLiga EA Sports: Elche buscará vencer su racha negativa ante Osasuna**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-elche-buscara-vencer-su-racha-negativa-ante-osasuna-noticia-1675574)
+- **Sarabia: “Este equipo tiene menos puntos que juego”**: [Link](https://www.marca.com/futbol/elche/2026/02/12/sarabia-equipo-puntos-juego.html)
+- **El 'Reyno' del suspense**: [Link](https://es.besoccer.com/noticia/osasuna-goles-tiempo-anadido-minuto-90-elche-laliga-2025-26-1394341)
+
+
+### bucks - thunder (N/A, 12/02/2026 21:46 Lima)
+
+- **Best NBA Player Props Today for February 12: Chet's Mix**: [Link](https://www.covers.com/nba/player-prop-bets-thursday-february-12-2026)
+- **How to watch Bucks vs. Thunder: TV channel and streaming options for February 12 - The Athletic**: [Link](https://www.nytimes.com/athletic/7042761/2026/02/12/bucks-vs-thunder-stream-how-to-watch-feb-12/)
+- **NBA Fantasy: DFS picks & advice for Feb. 12**: [Link](https://www.nba.com/news/nba-fantasy-dfs-picks-advice-for-feb-12-2026)
+
+
+### honor (N/A, 12/02/2026 21:46 Lima)
+
+- **Alfonso Ribeiro Shares Photo of His ‘Last Moment’ with James Van Der Beek: ‘I Really Miss Him Already’**: [Link](https://people.com/alfonso-ribeiro-shares-photo-of-his-last-moment-with-james-van-der-beek-11905759)
+- **Steven Spielberg, Dawson Leery's idol, donates $25K to James Van Der Beek's family after actor's death**: [Link](https://pagesix.com/2026/02/12/celebrity-news/steven-spielberg-dawson-leerys-idol-donates-25k-to-james-van-der-beeks-family-after-actors-death/)
+- **James Van Der Beek’s Death Underscores Early-Onset Colorectal Cancers**: [Link](https://www.nytimes.com/2026/02/12/well/james-vanderbeek-colorectal-cancer.html)
+
+
+### samsung galaxy galaxy s26 ultra (N/A, 12/02/2026 21:46 Lima)
+
+- **Samsung confirma el Galaxy Unpacked este 25 de febrero y anuncia novedades con Galaxy AI**: [Link](https://andina.pe/agencia/noticia-samsung-confirma-galaxy-unpacked-este-25-febrero-y-anuncia-novedades-galaxy-ai-1062710.aspx)
+- **Samsung desvelará el Galaxy S26 el próximo 25 de febrero**: [Link](https://ahora.com.pe/samsung-desvelara-el-galaxy-s26-el-proximo-25-de-febrero/)
+- **Galaxy Unpacked 2026: fecha y hora del mayor evento tecnológico de Samsung**: [Link](https://elcomercio.pe/tecnologia/actualidad/galaxy-unpacked-2026-esta-es-la-fecha-y-hora-del-mayor-evento-tecnologico-de-samsung-inteligencia-artificial-galaxy-s-noticia/)
+
+
+### atlético nacional - fortaleza (N/A, 12/02/2026 21:46 Lima)
+
+- **Transmisión EN VIVO del Atlético Nacional vs Fortaleza hoy: cómo mirar el partido por TV o streaming**: [Link](https://www.365scores.com/es/news/en-vivo-atletico-nacional-vs-fortaleza/)
+- **¡Cardona al Banco! Diego Arias sorprende y dejará en el banco de suplentes a Edwin Cardona en su juego ante Fortaleza**: [Link](https://www.elfutbolero.com.co/primeraa/cardona-al-banco-diego-arias-sorprende-y-dejara-en-el-banco-de-suplentes-a-edwin-cardona-en-su-juego-ante-fortaleza-20260213-73628.html)
+- **En vivo | Alfredo Morelos desperdicia un penalti y Nacional sigue 0-0 con Fortaleza | El Colombiano**: [Link](https://www.elcolombiano.com/deportes/futbol/atletico-nacional-fortaleza-liga-betplay-minuto-a-minuto-en-vivo-resultado-fecha-6-OH33524596)
+
+
+### cruz azul - vancouver football club (N/A, 12/02/2026 21:46 Lima)
+
+- **Cruz Azul vs. Vancouver: dónde y a qué hora ver EN VIVO Vuelta**: [Link](https://www.mediotiempo.com/futbol/concacaf-liga-de-campeones/cruz-azul-vs-vancouver-a-que-hora-y-donde-ver-vuelta-concachampions-2026)
+- **¡Doblete de Luka Romero! Cruz Azul está asegurando boleto a octavos**: [Link](https://www.tudn.com/futbol/concacaf-champions-cup/doblete-de-luka-romero-cruz-azul-pita-en-el-cuauhtemoc-y-asegura-boleto-a-octavos-video)
+- **El Cuauhtémoc revive la Concacaf con Cruz Azul**: [Link](https://cronicapuebla.com/deportes/el-cuauhtemoc-revive-la-concacaf-con-cruz-azul)
+
+
 ### dgo (N/A, 12/02/2026 15:40 Lima)
 
 Sin noticias relacionadas disponibles.
@@ -962,74 +1032,5 @@ dangerous’**: [Link](https://www.vavel.com/en/football/2026/02/10/manchester-u
 - **Una serie de fotos de los archivos Epstein parecen mostrar al expríncipe Andrés en el suelo con una mujer**: [Link](https://cnnespanol.cnn.com/2026/01/31/eeuu/fotos-exprincipe-andres-mujer-epstein-trax)
 - **Los príncipes de Gales dicen estar "profundamente preocupados" por el escándalo Epstein**: [Link](https://rpp.pe/mundo/europa/los-principes-de-gales-dicen-estar-profundamente-preocupados-por-el-escandalo-epstein-noticia-1675058)
 - **El expríncipe Andrés invitó a Epstein y mujer rumana ‘muy mona’ al palacio de Buckingham**: [Link](https://elcomercio.pe/mundo/europa/jeffrey-epstein-el-exprincipe-andres-invito-al-depravado-sexual-y-mujer-rumana-muy-mona-al-palacio-de-buckingham-londres-reino-unido-ultimas-noticia/)
-
-
-### rpp noticias (N/A, 09/02/2026 08:21 Lima)
-
-- **Partidos de hoy, domingo 8 de febrero de 2026: programación, canales TV y resultados en vivo**: [Link](https://www.infobae.com/peru/deportes/2026/02/08/partidos-de-hoy-domingo-8-de-febrero-de-2026-programacion-canales-tv-y-resultados-en-vivo/)
-- **Partidos de hoy, domingo 8 de febrero del 2026: a qué hora juegan y en qué canales ver fútbol EN VIVO**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/partidos-de-hoy-domingo-8-de-febrero-del-2026-resultados-programacion-horarios-canales-tv-y-donde-ver-futbol-en-vivo-noticia/)
-- **Partidos de hoy EN VIVO, domingo 8 de febrero: programación y dónde ver fútbol online**: [Link](https://libero.pe/futbol-internacional/2026/02/07/partidos-de-hoy-en-vivo-domingo-8-de-febrero-171850)
-
-
-### young miko (N/A, 09/02/2026 08:21 Lima)
-
-- **Young Miko: "En la oscuridad también se pueden encontrar cosas lindas**: [Link](https://billboard.ar/entrevistas/young-miko-en-la-oscuridad-tambien-se-pueden-encontrar-cosas-lindas/)
-- **Ni cortas, ni cuadradas, ni nude: las uñas ‘clásicas’ más cool son las de Karol G y Lady Gaga en la Super Bowl 2026**: [Link](https://www.vogue.es/articulos/unas-clasicas-rojas-karolg-lady-gaga-super-bowl-2026)
-- **Sí, las sandalias trepadoras de Karol G (en la Super Bowl) vuelven cada primavera**: [Link](https://www.corrienteshoy.com/mujeres/si-las-sandalias-trepadoras-de-karol-g-en-la-super-bowl-vuelven-cada-primavera.htm)
-
-
-### encuesta presidencial 2026 (N/A, 09/02/2026 08:21 Lima)
-
-- **Datum: Voto blanco y nulo podría alcanzar récord histórico en 2026**: [Link](https://canaln.pe/actualidad/datum-voto-blanco-y-nulo-alcanzarian-record-historico-2026-n490167)
-- **Elecciones 2026: López Aliaga lidera la intención de voto**: [Link](https://www.americatv.com.pe/noticias/actualidad/elecciones-2026-rafael-lopez-aliaga-lidera-intencion-voto-n515625)
-- **En manos de los indecisos**: [Link](https://elcomercio.pe/opinion/editorial/en-manos-de-los-indecisos-los-historicos-niveles-de-indefinicion-politica-que-advierten-las-encuestas-de-intencion-de-voto-deberian-ser-motivo-de-suma-preocupacion-elecciones-generales-del-2026-encuesta-de-el-comercio-datum-internacional-noticia/)
-
-
-### bet 365 (N/A, 09/02/2026 04:00 Lima)
-
-- **Super Bowl DraftKings Promo Code: Here’s the Last Chance at $300 Bonus**: [Link](https://wtop.com/sports/2026/02/super-bowl-draftkings-promo-code-heres-the-last-chance-at-300-bonus/)
-- **Use bet365 bonus code CBSBET365 to get $100 bonus bets by targeting Duke-UNC, Michigan State-Illinois tonight**: [Link](https://www.cbssports.com/nba/news/use-bet365-bonus-code-cbsbet365-get-200-bonus-bets-mavericks-celtics-pistons-nuggets/)
-- **BetMGM Bonus Code PLAYLSR: $1,500 Offer for Super Bowl**: [Link](https://www.legalsportsreport.com/253724/betmgm-bonus-code-super-bowl-60-first-bet-bonus-1500/)
-
-
-### juan pablo guanipa (N/A, 09/02/2026 04:00 Lima)
-
-- **Excarcelan a aliados de opositora Machado días antes de amnistía en Venezuela**: [Link](https://andina.pe/agencia/noticia-excarcelan-a-aliados-opositora-machado-dias-antes-amnistia-venezuela-1062353.aspx)
-- **EL MIEDO SE ACABÓ: El grito que estremeció Caracas este domingo**: [Link](https://peru21.pe/mundo/el-miedo-se-acabo-el-grito-que-estremecio-caracas-este-domingo/)
-- **Excarcelan en Venezuela a Juan Pablo Guanipa, dirigente cercano a María Corina Machado**: [Link](https://elcomercio.pe/mundo/venezuela/juan-pablo-guanipa-venezuela-excarcelan-al-dirigente-cercano-a-maria-corina-machado-delcy-rodriguez-nicolas-maduro-ultimas-noticia/)
-
-
-### diosdado cabello (N/A, 09/02/2026 00:39 Lima)
-
-- **No va a parar el desmontaje chavista: hay que ir por la fecha de un acto electoral**: [Link](https://www.infobae.com/america/opinion/2026/02/05/no-va-a-parar-el-desmontaje-chavista-hay-que-ir-por-la-fecha-de-un-acto-electoral/)
-- **Inválida nueva elección presidencial sin renuncia**: [Link](https://www.elnacional.com/2026/02/invalida-nueva-eleccion-presidencial-sin-renuncia/)
-
-
-### pato quiñones (N/A, 09/02/2026 00:39 Lima)
-
-- **Super Bowl 2026: 'Pato' Quiñones, el peruano que cargó a Bad Bunny y bailó con él durante el show de la NFL**: [Link](https://rpp.pe/famosos/farandula/super-bowl-2026-patricio-quinones-el-peruano-que-cargo-a-bad-bunny-y-bailo-con-el-durante-el-show-de-la-nfl-noticia-1675043)
-- **Pato Quiñones bailará junto a Bad Bunny en el show de medio tiempo del Super Bowl 2026**: [Link](https://elcomercio.pe/tvmas/farandula/bad-bunny-en-el-super-bowl-pato-quinones-bailara-junto-al-cantante-en-el-show-de-medio-tiempo-del-super-bowl-2026-ultimas-noticia/)
-- **¡Se lució! ‘Pato’ Quiñones bailó junto a Bad Bunny en el Super Bowl 2026 y cumplió su sueño**: [Link](https://trome.com/espectaculos/tv/patricio-quinones-baila-junto-a-bad-bunny-en-el-super-bowl-2026-y-cumple-su-sueno-foto-video-farandula-noticia/)
-
-
-### liam conejo ramos (N/A, 09/02/2026 00:39 Lima)
-
-- **¿Era Liam Ramos? La verdad sobre el niño que apareció en el show de Bad Bunny**: [Link](https://www.tudn.com/nfl/era-liam-ramos-la-verdad-sobre-el-nino-que-aparecio-en-el-show-de-bad-bunny-video)
-- **En un emotivo gesto, el artista urbano, Bad Bunny entregó uno de sus premios Grammy a Liam Ramos, el niño de cinco años que estaba en poder del ICE para ser deportado a su país. Más detalles en la sección #ElPaísHOY #PeriódicoHOY #GuardianesDe**: [Link](https://www.instagram.com/reel/DUhV39YD1Zt/)
-- **Niño detenido por ICE: ¿Es el mismo niño que salió con Bad Bunny en el Super Bowl?**: [Link](https://www.estadiodeportes.mx/deportes/el-nino-que-salio-con-bad-bunny-es-el-que-fue-detenido-por-ice-20260208-0062.html)
-
-
-### rafael lópez aliaga (N/A, 09/02/2026 00:39 Lima)
-
-- **Datum: Rafael López Aliaga lidera preferencias con 11,9%**: [Link](https://canaln.pe/actualidad/datum-rafael-lopez-aliaga-lidera-preferencias-119-n490172)
-- **Encuesta CPI: ¿Qué candidatos lideran la intención de voto para las próximas elecciones presidenciales?**: [Link](https://rpp.pe/politica/elecciones/encuesta-cpi-que-candidatos-lideran-la-intencion-de-voto-en-las-proximas-elecciones-presidenciales-noticia-1674323)
-- **Elecciones 2026: Veinticuatro candidatos tienen menos de 1% de intención de voto**: [Link](https://elcomercio.pe/politica/elecciones/elecciones-2026-encuesta-datum-internacional-febrero-veinticuatro-candidatos-tienen-menos-de-1-de-intencion-de-voto-12-de-abril-tlcnota-noticia/)
-
-
-### sam darnold (N/A, 09/02/2026 00:39 Lima)
-
-- **Super Bowl champion Sam Darnold's deferred destiny**: [Link](https://www.espn.com/nfl/story/_/id/47839325/super-bowl-lx-champion-sam-darnold-seattle-seahawks-quarterback-story-deferred-destiny)
-- **What college did Sam Darnold go to? Where Seahawks QB played college football**: [Link](https://sports.yahoo.com/articles/college-did-sam-darnold-where-235236320.html)
-- **Sam Darnold’s season as a backup with the 49ers helped him reach the Super Bowl**: [Link](https://apnews.com/article/super-bowl-sam-darnold-2140116ffb52d4cba30279ba981ad900)
 
 
