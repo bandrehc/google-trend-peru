@@ -1,3 +1,17 @@
+### que se celebra el 13 de febrero (N/A, 13/02/2026 03:52 Lima)
+
+- **Qué se celebra el 13 de febrero en el Perú: hitos de defensa, pensamiento político y cultura**: [Link](https://www.infobae.com/peru/2026/02/13/que-se-celebra-el-13-de-febrero-en-el-peru-hitos-de-defensa-pensamiento-politico-y-cultura/)
+- **¿Galentine’s Day? ¿Con qué se come eso?**: [Link](https://acento.com.do/especiales/galentines-day-con-que-se-come-eso-9619585.html)
+- **SIN VALENTÍN**: [Link](https://www.pressreader.com/mexico/el-imparcial/20260212/282475715278239)
+
+
+### lakers vs (N/A, 13/02/2026 03:52 Lima)
+
+- **Mavericks vs Lakers Picks & Odds Today: Flagg-less Dallas To Stumble In Los Angeles**: [Link](https://www.oddsshark.com/nba/mavericks-lakers-picks-odds-february-12-2026)
+- **Luka Dončić, Deandre Ayton remain out in final contest before All-Star break**: [Link](https://sports.yahoo.com/articles/luka-don-deandre-ayton-remain-211357935.html)
+- **Is LeBron James playing tonight vs the Dallas Mavericks? Latest update on the Los Angeles Lakers star's i**: [Link](https://timesofindia.indiatimes.com/sports/nba/top-stories/is-lebron-james-playing-tonight-vs-the-dallas-mavericks-latest-update-on-the-los-angeles-lakers-stars-injury-report-february-12-2026/articleshow/128281956.cms)
+
+
 ### fa cup (N/A, 13/02/2026 00:23 Lima)
 
 - **Colwyn Bay vs The New Saints - Odds, Live Scores and Detailed Stats**: [Link](https://www.bettingodds.com/football/welsh-premier-league/13-02-2026/colwyn-bay-vs-the-new-saints)
@@ -1018,19 +1032,5 @@ dangerous’**: [Link](https://www.vavel.com/en/football/2026/02/10/manchester-u
 - **El caballero de los Siete Reinos ya tiene su nuevo episodio en HBO Max: no tendrás que esperar al lunes**: [Link](https://www.hobbyconsolas.com/hobbycine/caballero-los-siete-reinos-ya-tiene-su-nuevo-episodio-hbo-max-no-tendras-que-esperar-lunes_6930832_0.html)
 - **El Caballero de los Siete Reinos: cuándo se estrena el episodio 5 en México**: [Link](https://www.infobae.com/mexico/2026/02/09/el-caballero-de-los-siete-reinos-cuando-se-estrena-el-episodio-5-en-mexico/)
 - **Ésto es lo que duraría la serie de A Knight of the Seven Kingdoms**: [Link](https://atomix.vg/esto-es-lo-que-duraria-la-serie-de-a-knight-of-the-seven-kingdoms)
-
-
-### roma vs cagliari pronóstico (N/A, 09/02/2026 15:49 Lima)
-
-- **Cuándo juegan Roma vs. Cagliari por la Serie A: equipo, fecha, hora y TV en vivo**: [Link](https://www.espn.com.pe/futbol/italia/nota/_/id/16274343/roma-vs-cagliari-fecha-24-serie-a-futbol-italia-equipo-hora-tv-en-vivo)
-- **Serie A: Roma intentará cortar la racha positiva de Cagliari**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-roma-intentara-cortar-la-racha-positiva-de-cagliari-noticia-1674976)
-- **El partido AS Roma vs Cagliari está en marcha, en vivo por ANTV esta mañana**: [Link](https://www.ucvradio.pe/mas-actualidad/el-partido-as-roma-vs-cagliari-esta-en-marcha-en-vivo-por-antv-esta-manana/126337/)
-
-
-### roma vs (N/A, 09/02/2026 15:49 Lima)
-
-- **Official: Gasperini confirms 21-man Roma squad for Cagliari**: [Link](https://football-italia.net/gasperini-confirms-21-man-roma-squad-cagliari/)
-- **Video: Malen scores delightful first Roma goal at the Olimpico**: [Link](https://sports.yahoo.com/articles/video-malen-scores-delightful-first-203000083.html)
-- **Gasperini undecided between Pellegrini and Zaragoza**: [Link](https://romapress.net/gasperini-undecided-between-pellegrini-and-zaragoza/)
 
 
