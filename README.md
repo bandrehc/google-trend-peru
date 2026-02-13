@@ -1,3 +1,17 @@
+### lakers - mavericks (N/A, 13/02/2026 08:13 Lima)
+
+- **Dallas Mavericks vs Los Angeles Lakers Feb 12, 2026 Box Scores**: [Link](https://www.nba.com/game/dal-vs-lal-0022500791/box-score)
+- **Mavs president says franchise is entering "remarkable evolution" as new‑arena talks begin**: [Link](https://www.cbsnews.com/texas/news/mavericks-new-arena-caa-partnership-dallas-future-aac/)
+- **Mavericks hiring CAA Sports to help find naming-rights partner for future arena**: [Link](https://www.nytimes.com/athletic/7036141/2026/02/11/dallas-mavericks-arena-caa-sports/)
+
+
+### atv en vivo (N/A, 13/02/2026 08:13 Lima)
+
+- **Magaly Medina cuestiona versión de Laura Spoya tras accidente: “¿Hasta las 3 de la mañana solo tomaste agua?”**: [Link](https://www.infobae.com/peru/2026/02/13/magaly-medina-cuestiona-version-de-laura-spoya-tras-accidente-hasta-las-3-de-la-manana-solo-tomaste-agua/)
+- **Madre de Laura Spoya confirma que su hija está en UCI: "Necesita una operación"**: [Link](https://www.atv.pe/noticia/madre-de-laura-spoya-confirma-que-su-hija-esta-en-uci-necesita-una-operacion/)
+- **Expareja de Laura Spoya revela el estado de salud de la conductora tras choque: "Echen buenas vibras"**: [Link](https://peru21.pe/espectaculos/expareja-de-laura-spoya-revela-el-estado-de-salud-de-la-conductora-tras-choque/)
+
+
 ### que se celebra el 13 de febrero (N/A, 13/02/2026 03:52 Lima)
 
 - **Qué se celebra el 13 de febrero en el Perú: hitos de defensa, pensamiento político y cultura**: [Link](https://www.infobae.com/peru/2026/02/13/que-se-celebra-el-13-de-febrero-en-el-peru-hitos-de-defensa-pensamiento-politico-y-cultura/)
@@ -1018,19 +1032,5 @@ dangerous’**: [Link](https://www.vavel.com/en/football/2026/02/10/manchester-u
 - **2ª división / 2ª RFEF (G2): Racing – Mirandés / Tudelano – UD Logroñés**: [Link](https://www.pensadordeapuestas.com/2a-division-2a-rfef-g2-racing-mirandes-tudelano-ud-logrones/)
 - **El Mirandés quiere hacerse con los tres puntos en el partido más desigual**: [Link](https://www.elcorreo.com/mirandes/mirandes-quiere-hacerse-tres-puntos-partido-desigual-20260208223640-nt.html)
 - **Racing Santander - Mirandés en directo**: [Link](https://www.elmundo.es/deportes/futbol/laliga-hypermotion/racing-santander-mirandes/2026/02/09/01_0102_20260209_189_5741-directo.html)
-
-
-### fc cajamarca - deportivo garcilaso (N/A, 09/02/2026 15:49 Lima)
-
-- **FC Cajamarca vs. Deportivo Garcilaso EN VIVO vía Liga 1 MAX por Movistar TV: transmisión gratis**: [Link](https://depor.com/futbol-peruano/descentralizado/fc-cajamarca-vs-deportivo-garcilaso-en-vivo-hoy-gratis-liga-1-max-futbol-libre-tv-movistar-tv-directv-con-hernan-barcos-en-directo-transmision-por-internet-video-noticia/)
-- **🔴#ENVIVO | Sigue las incidencias del partido entre FC Cajamarca y Deportivo Garcilaso**: [Link](https://ovacion.pe/noticias/liga1-2026/envivo-sigue-las-incidencias-del-partido-entre-fc-cajamarca-deportivo-garcilaso)
-- **Sigue, FC Cajamarca vs Deportivo Garcilaso EN VIVO por la Liga 1 2026**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/fc-cajamarca-vs-deportivo-garcilaso-en-vivo-hora-y-donde-ver-la-fecha-2-del-torneo-apertura-de-la-liga-1-2026-transmision-l1play-l1max-tdpe-noticia/)
-
-
-### el caballero de los 7 reinos capitulo 5 (N/A, 09/02/2026 15:49 Lima)
-
-- **El caballero de los Siete Reinos ya tiene su nuevo episodio en HBO Max: no tendrás que esperar al lunes**: [Link](https://www.hobbyconsolas.com/hobbycine/caballero-los-siete-reinos-ya-tiene-su-nuevo-episodio-hbo-max-no-tendras-que-esperar-lunes_6930832_0.html)
-- **El Caballero de los Siete Reinos: cuándo se estrena el episodio 5 en México**: [Link](https://www.infobae.com/mexico/2026/02/09/el-caballero-de-los-siete-reinos-cuando-se-estrena-el-episodio-5-en-mexico/)
-- **Ésto es lo que duraría la serie de A Knight of the Seven Kingdoms**: [Link](https://atomix.vg/esto-es-lo-que-duraria-la-serie-de-a-knight-of-the-seven-kingdoms)
 
 
