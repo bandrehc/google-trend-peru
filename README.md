@@ -1,3 +1,52 @@
+### isabella ladera (N/A, 13/02/2026 11:55 Lima)
+
+- **Hugo García e Isabella Ladera confirmaron que serán padres**: [Link](https://www.americatv.com.pe/mas-espectaculos/hugo-garcia-isabella-ladera-confirmaron-que-seran-padres-noticia-162921)
+- **Hugo García e Isabella Ladera confirman con una romántica foto que se convertirán en padres**: [Link](https://rpp.pe/famosos/farandula/hugo-garcia-e-isabella-ladera-confirman-con-romantica-foto-que-se-convertiran-en-padres-noticia-1675754)
+- **Hugo García e Isabela Ladera serán padres: la influencer reveló que está embazada con tierna foto**: [Link](https://www.planeta.pe/noticias/espectaculos/hugo-garcia-e-isabela-ladera-seran-padres-la-influencer-revelo-que-esta-embazada-con-tierna-foto/)
+
+
+### galatasaray - eyüpspor (N/A, 13/02/2026 11:55 Lima)
+
+- **Okan Buruk’tan Osimhen ve Icardi sürprizi**: [Link](https://www.babaocagi.com.tr/okan-buruktan-osimhen-ve-icardi-surprizi)
+- **G.Saray-İkas Eyüpspor | İlk 11'ler belli oldu!**: [Link](https://www.fotomac.com.tr/galatasaray/2026/02/13/galatasaray-ikas-eyupspor-maci-ne-zaman-saat-kacta-ve-hangi-kanalda-1770996363)
+- **Süper Lig’de derbi takvimi netleşti!**: [Link](https://www.45haber.com/super-ligde-derbi-takvimi-netlesti)
+
+
+### al hilal - al-ettifaq (N/A, 13/02/2026 11:55 Lima)
+
+- **Saudi Pro League Giants Al-Hilal and Al-Ittifaq Clash for Top Spot**: [Link](https://www.filmogaz.com/147885)
+- **Yassine Bounou makes times recovery ahead of Morocco’s March friendlies**: [Link](https://africasoccer.com/yassine-bounou-makes-times-recovery-ahead-of-moroccos-march-friendlies/)
+- **Al Hilal vs Al Ettifaq Prediction and Betting Tips | February 13th 2026**: [Link](https://www.sportskeeda.com/football/al-hilal-vs-al-ettifaq-prediction-betting-tips-february-13th-2026)
+
+
+### humbe (N/A, 13/02/2026 11:55 Lima)
+
+- **Humbe en Lima: precios y cómo comprar entradas para su concierto en Costa 21**: [Link](https://rpp.pe/musica/conciertos/humbe-en-lima-2026-precios-de-entradas-y-como-comprar-en-preventa-via-teleticket-para-concierto-en-costa-21-noticia-1675424)
+- **Humbe vuelve a Perú con ‘Dueño de los Cielos Tour’: fecha, lugar, precio de entradas y más del evento**: [Link](https://www.infobae.com/peru/2026/02/09/humbe-vuelve-a-peru-con-dueno-de-los-cielos-tour-fecha-lugar-entradas-y-mas-del-evento/)
+- **Concierto Humbe en Lima 2026: fecha, precios y cómo comprar entradas en Teleticket para 'Dueño de Cielos Tour' en Costa 21**: [Link](https://larepublica.pe/entretenimiento/2026/02/09/concierto-humbe-en-lima-2026-fecha-precios-y-como-comprar-entradas-en-teleticket-para-dueno-de-cielos-tour-en-costa-21-515511)
+
+
+### san valentin (N/A, 13/02/2026 11:55 Lima)
+
+- **Estafadores del amor: así manipulan y roban a sus víctimas**: [Link](https://cuidateplus.marca.com/bienestar/2026/02/11/estafadores-amor-asi-manipulan-roban-victimas-184667.html)
+- **Casi 4 de cada 10 correos de San Valentín son estafas: lo que está viendo Bitdefender Antispam Lab en 2026**: [Link](https://www.bitdefender.com/es-es/blog/hotforsecurity/casi-4-de-cada-10-correos-de-san-valentin-son-estafas-lo-que-esta-viendo-bitdefender-antispam-lab-en-2026)
+- **Cuidado en San Valentín: phishing y páginas falsas por doquier**: [Link](https://www.channelpartner.es/seguridad/cuidado-en-san-valentin-el-phishing-y-las-paginas-falsas-estan-al-acecho/)
+
+
+### chatgpt (N/A, 13/02/2026 11:55 Lima)
+
+- **Opinion | OpenAI Is Making the Mistakes Facebook Made. I Quit.**: [Link](https://www.nytimes.com/2026/02/11/opinion/openai-ads-chatgpt.html)
+- **Testing ads in ChatGPT**: [Link](https://openai.com/index/testing-ads-in-chatgpt/)
+- **Top researcher Zoe Hitzig at Sam Altman's company announces: I quit today, as ChatGPT-maker OpenAI is mak**: [Link](https://timesofindia.indiatimes.com/technology/tech-news/top-researcher-zoe-hitzig-at-sam-altmans-company-announces-i-quit-today-as-chatgpt-maker-openai-is-making-/articleshow/128224169.cms)
+
+
+### al-shabab - al-ahli saudi (N/A, 13/02/2026 11:55 Lima)
+
+- **Al-Ahly Defeats Al-Shabab with Five Goals and Rises to Second Place in the League**: [Link](https://www.ysscores.com/en/news/13910406/Al-Ahly-Defeats-Al-Shabab-with-Five-Goals-and-Rises-to-Second-Place-in-the-League)
+- **Preview: Al Shabab vs Al Ahli Prediction, lineups, betting tips & odds | Saudi Pro League 2025-26**: [Link](https://khelnow.com/football/world-football-al-shabab-vs-al-ahli-preview-202602)
+- **Al Shabab Dismiss Guausil in Decisive Move Ahead of Al Ahli Clash**: [Link](https://koorabreak.com/en/255707/)
+
+
 ### lakers - mavericks (N/A, 13/02/2026 08:13 Lima)
 
 - **Dallas Mavericks vs Los Angeles Lakers Feb 12, 2026 Box Scores**: [Link](https://www.nba.com/game/dal-vs-lal-0022500791/box-score)
@@ -983,54 +1032,5 @@ dangerous’**: [Link](https://www.vavel.com/en/football/2026/02/10/manchester-u
 - **La Tinka del domingo 8 de febrero de 2026: estos son los números ganadores del sorteo**: [Link](https://www.infobae.com/peru/2026/02/09/resultados-ganadores-de-la-tinka-este-domingo-8-de-febrero/)
 - **Resultados de La Tinka del domingo 08 de febrero**: [Link](https://www.americatv.com.pe/americlub/tinka-resultados-sorteo-jugado-domingo-08-febrero-noticia-162846)
 - **Resultados de la Tinka: números ganadores del domingo 8 de febrero**: [Link](https://elcomercio.pe/respuestas/loterias/resultados-tinka-en-vivo-hoy-sorteo-del-domingo-8-de-febrero-de-2026-y-numeros-de-la-jugada-ganadora-tinkanet-pozo-millonario-resultado-si-o-si-boliyapa-intralot-lbposting-noticia/)
-
-
-### jutta leerdam (N/A, 09/02/2026 21:52 Lima)
-
-- **Ze doen het weer: Hema haakt op komische wijze in op olympisch goud voor Jutta Leerdam**: [Link](https://www.destentor.nl/binnenland/ze-doen-het-weer-hema-haakt-op-komische-wijze-in-op-olympisch-goud-voor-jutta-leerdam~a583217d/)
-- **Atalanta boekt kleine zege op Cremonese in Serie A**: [Link](https://www.telegraaf.nl/sport/voetbal/atalanta-boekt-kleine-zege-op-cremonese-in-serie-a/130591937.html)
-- **Live Winterspelen: Coach Poltavets trots op pupil: ‘Grootste kwaliteit van Jutta is dat ze onder hoogspanning kan presteren’**: [Link](https://www.volkskrant.nl/sport/live-winterspelen-coach-poltavets-trots-op-pupil-grootste-kwaliteit-van-jutta-is-dat-ze-onder-hoogspanning-kan-presteren~bd0242ab/)
-
-
-### pizza hut (N/A, 09/02/2026 21:52 Lima)
-
-- **Pizza Hut closing hundreds of locations in 2026. Here's why.**: [Link](https://www.usatoday.com/story/money/food/2026/02/04/pizza-hut-closing-locations/88515586007/)
-- **Pizza Hut to close 250 stores**: [Link](https://www.restaurantdive.com/news/pizza-hut-2026-250-closures-yum-strategic-review/811332/)
-- **Florida Pizza Hut restaurants are closing, and 250 nationwide**: [Link](https://www.tcpalm.com/story/news/local/st-lucie-county/2026/02/07/florida-pizza-hut-restaurants-closing-include-port-st-lucie-location-stuart-vero-beach-fort-pierce/88532971007/)
-
-
-### juventude - ec são josé (N/A, 09/02/2026 21:52 Lima)
-
-- **📹 Virou judô? Cenas lamentáveis em estadual têm até 'ippon' no gramado**: [Link](https://onefootball.com/pt-br/noticias/virou-judo-cenas-lamentaveis-em-estadual-tem-ate-ippon-no-gramado-42385981)
-- **Juventude x São José-RS AO VIVO: link para assistir online (09/02)**: [Link](https://www.sportingnews.com/br/futebol/noticias/juventude-x-sao-jose-rs-ao-vivo-link-para-assistir-online/16397f3fc088abc218144f0d)
-- **Juventude aplica virada histórica contra o São José e garante última vaga nas semifinais do Gauchão Superbet 2026**: [Link](https://www.fgf.com.br/noticia/juventude-aplica-virada-historica-contra-o-sao-jose-e-garante-ultima-vaga-nas-semifinais-do-gauchao-superbet-2026)
-
-
-### porto fc (N/A, 09/02/2026 21:52 Lima)
-
-- **Preview: Porto vs. Sporting Lisbon - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/porto/primeira-liga-title-race/preview/porto-vs-sporting-lisbon-prediction-team-news-lineups_591594.html)
-- **Francesco Farioli: “We’re Exactly Where We Want and Deserve to Be”**: [Link](https://www.filmogaz.com/141988)
-- **Fog at the Dragão: what the league rules say**: [Link](https://onefootball.com/en/news/fog-at-the-dragao-what-the-league-rules-say-42384801)
-
-
-### sedapal cortes de agua (N/A, 09/02/2026 21:52 Lima)
-
-- **Sedapal anuncia corte de agua el 10 de febrero: distritos afectados y horarios para este martes**: [Link](https://libero.pe/tiempoextra/2026/02/09/sedapal-anuncia-corte-de-agua-10-de-febrero-distritos-afectados-horarios-martes-882018)
-- **Estos distritos de Lima Metropolitana no tendrán agua hasta por 8 horas este martes 10 de febrero, según Sedapal**: [Link](https://larepublica.pe/sociedad/2026/02/08/estos-distritos-de-lima-metropolitana-no-contaran-con-agua-hasta-por-8-horas-este-martes-10-de-febrero-segun-sedapal-evat-151120)
-- **🔴🔵¡A llenar los baldes desde YA! 🤯🚱Conoce qué distritos se verán afectados con el corte de agua programado para el viernes 6 de febrero, según Sedapal.**: [Link](https://www.facebook.com/Exitosanoticias/posts/a-llenar-los-baldes-desde-ya-conoce-qu%C3%A9-distritos-se-ver%C3%A1n-afectados-con-el-cort/1341591934670528/)
-
-
-### sorteo la tinka (N/A, 09/02/2026 15:49 Lima)
-
-- **La Tinka del domingo 8 de febrero de 2026: estos son los números ganadores del sorteo**: [Link](https://www.infobae.com/peru/2026/02/09/resultados-ganadores-de-la-tinka-este-domingo-8-de-febrero/)
-- **Resultados de La Tinka del domingo 08 de febrero**: [Link](https://www.americatv.com.pe/americlub/tinka-resultados-sorteo-jugado-domingo-08-febrero-noticia-162846)
-- **Resultados de la Tinka: números ganadores del domingo 8 de febrero**: [Link](https://elcomercio.pe/respuestas/loterias/resultados-tinka-en-vivo-hoy-sorteo-del-domingo-8-de-febrero-de-2026-y-numeros-de-la-jugada-ganadora-tinkanet-pozo-millonario-resultado-si-o-si-boliyapa-intralot-lbposting-noticia/)
-
-
-### racing de santander - mirandés (N/A, 09/02/2026 15:49 Lima)
-
-- **2ª división / 2ª RFEF (G2): Racing – Mirandés / Tudelano – UD Logroñés**: [Link](https://www.pensadordeapuestas.com/2a-division-2a-rfef-g2-racing-mirandes-tudelano-ud-logrones/)
-- **El Mirandés quiere hacerse con los tres puntos en el partido más desigual**: [Link](https://www.elcorreo.com/mirandes/mirandes-quiere-hacerse-tres-puntos-partido-desigual-20260208223640-nt.html)
-- **Racing Santander - Mirandés en directo**: [Link](https://www.elmundo.es/deportes/futbol/laliga-hypermotion/racing-santander-mirandes/2026/02/09/01_0102_20260209_189_5741-directo.html)
 
 
