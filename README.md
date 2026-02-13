@@ -1,3 +1,73 @@
+### monaco (N/A, 13/02/2026 15:46 Lima)
+
+- **DIRECT. Monaco-Nantes: suivez le match de la 22e journée de Ligue 1 en live**: [Link](https://rmcsport.bfmtv.com/football/ligue-1/direct-monaco-nantes-suivez-le-match-de-la-22e-journee-de-ligue-1-en-live_LS-202602130815.html)
+- **ASM – FCN : Le groupe monégasque**: [Link](https://asm-supporters.fr/actualites/65220-asm-fcn-le-groupe-monegasque-5)
+- **C'est parti au stade Louis II !**: [Link](https://www.fcnantes.com/articles/article2809.php?num=48638)
+
+
+### ac milan vs (N/A, 13/02/2026 15:46 Lima)
+
+- **Cuando juegan Pisa vs. Milan por Serie A: equipo, fecha, hora y TV**: [Link](https://www.espn.com.pe/futbol/italia/nota/_/id/16303667/pisa-vs-milan-fecha-24-serie-a-equipo-fecha-hora-y-tv-en-vivo)
+- **Pronóstico Pisa vs. Milan - Un duelo de extremos**: [Link](https://gainblers.com/pe/pronosticos/futbol/italia/serie-a/pronostico-pisa-milan-13-02-2026/)
+- **Serie A: Pisa se enfrenta ante la visita Milan por la fecha 25**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-pisa-se-enfrenta-ante-la-visita-milan-por-la-fecha-25-noticia-1675569)
+
+
+### cal (N/A, 13/02/2026 15:46 Lima)
+
+- **Cal Poly Men's Basketball Topples Big West Leader UC Irvine, 79-73**: [Link](https://gopoly.com/news/2026/2/12/mens-basketball-mustangs-topple-big-west-leader-uc-irvine-79-73)
+- **Cal Poly beats U.C. Irvine 79-73. See the photos**: [Link](https://www.sanluisobispo.com/sports/college/cal-poly-sports/article314686587.html)
+- **UC Irvine men drop to 3rd in Big West after loss to Cal Poly**: [Link](https://www.ocregister.com/2026/02/12/uc-irvine-men-drop-to-3rd-in-big-west-after-loss-to-cal-poly/)
+
+
+### milan vs (N/A, 13/02/2026 15:46 Lima)
+
+- **Inter Milan Vs Juventus – Saturday Derby Set For Second-Highest Attendance In Derby d’Italia History**: [Link](https://sempreinter.com/2026/02/12/inter-milan-juventus-second-highest-attendance-expected/)
+- **“Not just to control the game” What Paolo Di Canio expects from Inter Milan v Juventus**: [Link](https://www.juvefc.com/not-just-to-control-the-game-what-paolo-di-canio-expects-from-inter-milan-v-juventus/)
+- **Creativity meets clinical edge in the Derby d'Italia showdown**: [Link](https://www.besoccer.com/new/creativity-vs-clinical-edge-the-derby-ditalia-through-statistics-1394528)
+
+
+### milan (N/A, 13/02/2026 15:46 Lima)
+
+- **Winter Olympics 2026, women’s team curling: United States stun Canada; Sweden moves to 3-0**: [Link](https://www.olympics.com/en/milano-cortina-2026/news/winter-olympics-2026-women-team-curling-united-states-stun-canada)
+- **USA vs. Canada women's curling history: Americans notch first-ever Olympic win over rivals**: [Link](https://www.msn.com/en-us/sports/other/usa-vs-canada-women-s-curling-history-americans-notch-first-ever-olympic-win-over-rivals/ar-AA1Wj3ag)
+- **Watch: U.S. women's curling stuns Canada for first time in Olympic shocker**: [Link](https://www.wesh.com/article/united-states-curling-canada-olympics-milan-cortina/70349081)
+
+
+### monaco vs (N/A, 13/02/2026 15:46 Lima)
+
+- **Nantes predicted XI v Monaco: Tylel Tati, Louis Leroux, and Mostafa Mohamed on the bench**: [Link](https://sports.yahoo.com/articles/nantes-predicted-xi-v-monaco-093000130.html)
+- **Monaco vs Nantes LIVE today: score and goals in Ligue 1**: [Link](https://www.beinsports.com/en-us/soccer/ligue-1/articles/monaco-vs-nantes-live-goals-and-score-updates-on-bein-sports-2026-02-13)
+- **Youssef El Arabi Goal Odds and Props for AS Monaco Clash on Feb 13**: [Link](https://www.filmogaz.com/148147)
+
+
+### elche vs (N/A, 13/02/2026 15:46 Lima)
+
+- **LaLiga EA Sports: Elche buscará vencer su racha negativa ante Osasuna**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-elche-buscara-vencer-su-racha-negativa-ante-osasuna-noticia-1675574)
+- **"Tenemos menos puntos que juego": Eder Sarabia pide "rabia" para que el Elche despierte ante Osasuna**: [Link](https://tribuna.com/es/news/2026-02-13-tenemos-menos-puntos-que-juego-eder-sarabia-pide-rabia-para-que-el-elche-despierte-ante-o/)
+- **El fútbol, con especial foco en LaLiga, contado con todo detalle**: [Link](https://www.flashscore.com.ar/noticias/futbol-laliga-ea-sports-futbol-en-directo-en-juego-el-elche-osasuna/AVF07kue/)
+
+
+### dortmund (N/A, 13/02/2026 15:46 Lima)
+
+- **Karnevalskirmes in Dortmund kommt an ihre Grenzen „Können keine Top-Karussells platzieren“**: [Link](https://www.ruhrnachrichten.de/dortmund/karnevalskirmes-dortmund-2026-attraktionen-grenzen-alter-markt-reinoldikirche-w1153277-2001972135/)
+- **Dortmunder Narren in den Startlöchern**: [Link](https://www.radio912.de/artikel/dortmunder-narren-in-den-startloechern-2571660)
+- **Karneval in Dortmund 2026: 10 Veranstaltungen locken Groß und Klein**: [Link](https://www.ruhr24.de/dortmund/dortmund-karneval-2026-10-feiern-weiberfastnacht-februar-freizeit-kinderkarneval-prunksitzung-94149964.html)
+
+
+### elche vs osasuna (N/A, 13/02/2026 15:46 Lima)
+
+- **Elche vs. Osasuna: La Liga betting odds, prediction, pick**: [Link](https://www.usatoday.com/story/sports/soccer/2026/02/13/elche-vs-osasuna-la-liga-betting-odds-prediction-pick/88649670007/)
+- **Elche seeks to end losing streak against Osasuna in La Liga clash**: [Link](https://news.ssbcrack.com/elche-seeks-to-end-losing-streak-against-osasuna-in-la-liga-clash/)
+- **Preview: Elche vs Osasuna - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/osasuna/preview/elche-vs-osasuna-prediction-team-news-lineups_591818.html)
+
+
+### suheyn cipriani (N/A, 13/02/2026 15:46 Lima)
+
+- **Suheyn Cipriani revela que Macarius TERMINÓ con ella durante el cumpleaños de su hija: "Fue un poco CRUEL"**: [Link](https://www.atv.pe/noticia/suheyn-cipriani-revela-que-macarius-termino-con-ella-durante-el-cumpleanos-de-su-hija-fue-un-poco-cruel/)
+- **Magaly Medina sale en defensa de Suheyn Cipriani y respalda su relación con streamer Macarius: “Ella lo escogió”**: [Link](https://larepublica.pe/espectaculos/2026/02/11/magaly-medina-sale-en-defensa-de-suheyn-cipriani-y-respalda-su-relacion-con-streamer-macarius-ella-lo-escogio-atmp-949927)
+- **Macarius se confiesa: “Me preguntan qué brujería hice para estar con Suheyn”**: [Link](https://trome.com/espectaculos/tv/macarius-se-confiesa-me-preguntan-que-brujeria-hice-para-estar-con-suheyn-cipriani-entrevista-video-farandula-noticia/)
+
+
 ### isabella ladera (N/A, 13/02/2026 11:55 Lima)
 
 - **Hugo García e Isabella Ladera confirmaron que serán padres**: [Link](https://www.americatv.com.pe/mas-espectaculos/hugo-garcia-isabella-ladera-confirmaron-que-seran-padres-noticia-162921)
@@ -962,75 +1032,5 @@ dangerous’**: [Link](https://www.vavel.com/en/football/2026/02/10/manchester-u
 - **JB Bickerstaff defends Jalen Duren: 'If a guy throws a punch at you, you have a right to protect yourself'**: [Link](https://uk.sports.yahoo.com/news/jb-bickerstaff-defends-jalen-duren-034658646.html)
 - **NBA World Reacts to Star-Studded Fight in Pistons-Hornets Game: ‘Brawl of the Year,’ ‘THEY SCRAPPIN!’**: [Link](https://www.profootballnetwork.com/nba/world-reacts-pistons-hornets-brawl-of-the-year/)
 - **Pistons' Isaiah Stewart could be in for a very long suspension after fight against Hornets**: [Link](https://www.sportingnews.com/uk/nba/detroit-pistons/news/pistons-isaiah-stewart-long-suspension-incident-hornets/29b24d2b9f46e55e0a896bae)
-
-
-### lapadula (N/A, 10/02/2026 00:39 Lima)
-
-- **Magaly Medina tras imágenes de Gianluca Lapadula con otra mujer: "Teníamos otra imagen de él"**: [Link](https://www.atv.pe/noticia/magaly-medina-tras-imagenes-de-gianluca-lapadula-con-otra-mujer-teniamos-otra-imagen-de-el/)
-- **Gianluca Lapadula es captado en bar de Barcelona junto a una mujer que no es su esposa**: [Link](https://elcomercio.pe/tvmas/farandula/gianluca-lapadula-es-captado-en-bar-de-barcelona-junto-a-una-mujer-que-no-es-su-esposa-ultimas-noticia/)
-- **'Magaly TV, la firme': Gianluca Lapadula es ampayado con mujer que no es su esposa en fiesta nocturna**: [Link](https://larepublica.pe/espectaculos/2026/02/09/magaly-tv-la-firme-en-vivo-hoy-a-que-hora-inicia-y-como-ver-el-regreso-de-magaly-a-la-television-peruana-en-atv-este-2026-376768)
-
-
-### ampay magaly (N/A, 10/02/2026 00:39 Lima)
-
-- **'Magaly TV, la Firme' regresa HOY con EXPLOSIVO caso: "De esposo ejemplar a rey de la noche"**: [Link](https://www.atv.pe/noticia/magaly-tv-la-firme-regresa-hoy-con-explosivo-caso-de-esposo-ejemplar-a-rey-de-la-noche/)
-- **Magaly Medina regresa con fuerte destape y descartan a Christian Domínguez: “Ningún esposo ejemplar y que enamoró con su historia de amor”**: [Link](https://www.infobae.com/peru/2026/02/09/magaly-medina-regresa-con-fuerte-destape-y-descartan-a-christian-dominguez-ningun-esposo-ejemplar-y-que-enamoro-con-su-historia-de-amor/)
-- **¡BOMBA EN 'CHOLLYWOOD'! Anuncian AMPAY de conocido personaje**: [Link](https://peru21.pe/espectaculos/bomba-en-chollywood-ampay-de-conocido-personaje-en-vivo/)
-
-
-### grizzlies - warriors (N/A, 10/02/2026 00:39 Lima)
-
-- **Warriors vs Grizzlies LIVE Score Updates: Key match in the standings (85-98)**: [Link](https://www.vavel.com/en-us/nba/2026/02/10/1250276-warirros-vs-grizzlies-live-score-nba.html)
-- **Memphis Grizzlies at Golden State Warriors prediction, pick on Monday 2/9/26**: [Link](https://dknetwork.draftkings.com/2026/02/09/memphis-grizzlies-at-golden-state-warriors-prediction-pick-on-monday-2-9-26/)
-- **The need to avoid unnecessary risks on defense in Golden State**: [Link](https://www.si.com/nba/grizzlies/onsi/news/no-curry-for-warriors-but-grizzlies-still-can-t-overplay-on-defense-01kh1t193kvk)
-
-
-### thunder - lakers (N/A, 10/02/2026 00:39 Lima)
-
-- **Oklahoma City Thunder vs Los Angeles Lakers Odds - Monday February 9 2026**: [Link](https://www.oddsshark.com/nba/oklahoma-city-los-angeles-odds-february-9-2026-2461064)
-- **Why are Luka Doncic and Shai Gilgeous-Alexander not playing today, Feb. 9, in OKC vs Lakers?**: [Link](https://bolavip.com/en/nba/why-are-luka-doncic-and-shai-gilgeous-alexander-not-playing-today-feb-9-in-okc-vs-lakers)
-- **Caesars Sportsbook Promo Code BOOKIES250BM: Claim $250 Bet Match for NBA Hawks vs Timberwolves (Feb. 9)**: [Link](https://bookies.com/news/promo/caesars-sportsbook-promo-code-bookies250bm-claim-250-bet-match-for-nba-hawks-vs-timberwolves-feb-9)
-
-
-### lanus vs talleres (N/A, 10/02/2026 00:39 Lima)
-
-- **Lanús vs Talleres Córdoba Prediction & Tips | 10/02/2026**: [Link](https://www.betshoot.com/football/19636479-Lan%C3%BAs-vs-Talleres-C%C3%B3rdoba-prediction/)
-- **Lanús vs Talleres Córdoba Prediction: Match Preview and Analysis | Liga Profesional de Fútbol 09-02-2026**: [Link](https://betmines.com/match-preview/lanus-vs-talleres-cordoba-prediction-match-preview-and-analysis-liga-profesional-de-futbol-09-02-2026)
-- **Kansas 82-78 Arizona (Feb 9, 2026) Game Recap**: [Link](http://www.espn.com/ncb/recap?gameId=401820818)
-
-
-### atv en vivo (N/A, 09/02/2026 21:52 Lima)
-
-- **¡Indignante! Lloró en el funeral y un mes después cayó por el brutal crimen de su tío**: [Link](https://www.atv.pe/noticia/indignante-lloro-en-el-funeral-y-un-mes-despues-cayo-por-el-brutal-crimen-de-su-tio/)
-- **Capturan a sobrino acusado de matar a su tío tras brutal agresión: Habría afirmado que no recuerda nada**: [Link](https://trome.com/actualidad/policiales/san-luis-capturan-a-sobrino-acusado-de-matar-a-su-tio-tras-brutal-agresion-habria-afirmado-que-no-recuerda-lo-sucedido-video-historia-de-policiales-noticia/)
-- **Sobrino asesina a su tío tras golpiza en San Luis: premeditó presunto asalto en la vía pública**: [Link](https://larepublica.pe/sociedad/2026/02/02/sobrino-asesina-a-su-tio-tras-golpiza-en-san-luis-premedito-presunto-asalto-en-la-via-publica-117594)
-
-
-### magaly tv (N/A, 09/02/2026 21:52 Lima)
-
-- **Magaly Medina regresa con fuerte destape y descartan a Christian Domínguez: “Ningún esposo ejemplar y que enamoró con su historia de amor”**: [Link](https://www.infobae.com/peru/2026/02/09/magaly-medina-regresa-con-fuerte-destape-y-descartan-a-christian-dominguez-ningun-esposo-ejemplar-y-que-enamoro-con-su-historia-de-amor/)
-- **Nombre de jugador de la Selección Peruana empieza a sonar como protagonista de la BOMBA de Magaly Tv, la firme**: [Link](https://www.atv.pe/noticia/nombre-de-jugador-de-la-seleccion-peruana-empieza-a-sonar-como-protagonista-de-la-bomba-de-magaly-tv-la-firme/)
-- **¡BOMBA EN 'CHOLLYWOOD'! Anuncian AMPAY de conocido personaje**: [Link](https://peru21.pe/espectaculos/bomba-en-chollywood-ampay-de-conocido-personaje-en-vivo/)
-
-
-### estudiantes de río cuarto - independiente rivadavia (N/A, 09/02/2026 21:52 Lima)
-
-- **Independiente Rivadavia ya busca la punta de la Zona B contra Estudiantes (RC)**: [Link](https://www.ole.com.ar/futbol-primera/independiente-rivadavia-estudiantes-rio-cuarto-minutoaminuto-vivo_0_1SC1UO6jL4.html)
-- **Los Celestes buscarán su primer triunfo**: [Link](https://www.vavel.com/ar/futbol-argentino/2026/02/09/1250322-los-celestes-buscaran-su-primer-triunfo.html)
-- **Torneo Apertura 2026: Estudiantes (RC) perdió 0 a 1 ante Independiente Riv. (M) por la Fecha 4**: [Link](https://radiomitre.cienradios.com/deportes/estudiantes-rc-perdio-0-a-1-frente-a-independiente-riv-m-en-la-fecha-4-del-torneo-apertura-2026/)
-
-
-### pistons - hornets (N/A, 09/02/2026 21:52 Lima)
-
-- **Live Updates: LaMelo Ball's Hornets take on Cade Cunningham's Pistons to open a 10-game slate**: [Link](https://www.nba.com/news/live-updates-lamelo-balls-hornets-take-on-cade-cunninghams-pistons-to-open-a-10-game-slate)
-- **FTN Best NBA Bets on Novig (2/9)**: [Link](https://ftnfantasy.com/nba/ftn-best-nba-bets-on-novig-2-9)
-- **Bet on Hornets’ Knueppel to show out vs. Pistons**: [Link](https://www.nbcsports.com/watch/nba/bet-on-charlotte-hornets-kon-knueppel-to-show-out-vs-detroit-pistons)
-
-
-### sorteo la tinka resultados (N/A, 09/02/2026 21:52 Lima)
-
-- **La Tinka del domingo 8 de febrero de 2026: estos son los números ganadores del sorteo**: [Link](https://www.infobae.com/peru/2026/02/09/resultados-ganadores-de-la-tinka-este-domingo-8-de-febrero/)
-- **Resultados de La Tinka del domingo 08 de febrero**: [Link](https://www.americatv.com.pe/americlub/tinka-resultados-sorteo-jugado-domingo-08-febrero-noticia-162846)
-- **Resultados de la Tinka: números ganadores del domingo 8 de febrero**: [Link](https://elcomercio.pe/respuestas/loterias/resultados-tinka-en-vivo-hoy-sorteo-del-domingo-8-de-febrero-de-2026-y-numeros-de-la-jugada-ganadora-tinkanet-pozo-millonario-resultado-si-o-si-boliyapa-intralot-lbposting-noticia/)
 
 
