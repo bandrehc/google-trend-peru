@@ -1,3 +1,45 @@
+### fa cup (N/A, 13/02/2026 00:23 Lima)
+
+- **Colwyn Bay vs The New Saints - Odds, Live Scores and Detailed Stats**: [Link](https://www.bettingodds.com/football/welsh-premier-league/13-02-2026/colwyn-bay-vs-the-new-saints)
+- **How to watch today's Wrexham vs Ipswich FA Cup game: Live stream, TV channel, and start time**: [Link](https://www.goal.com/en-za/news/how-to-watch-wrexham-ipswich-13022026/blt4958b650ba499db9)
+- **Wrexham star Rathbone hopes it is same again in FA Cup showdown with Ipswich**: [Link](https://www.chesterstandard.co.uk/sport/25847168.wrexham-midfielder-ollie-rathbone-magic-fa-cup/)
+
+
+### michael buble (N/A, 13/02/2026 00:23 Lima)
+
+- **Injured Giants star Ryan Lin remains 'hopeful' to take part in WHL Prospect Games Wednesday at LEC**: [Link](https://theprovince.com/sports/hockey/junior-hockey/injured-giants-star-ryan-lin-remains-hopeful-to-take-part-in-whl-prospect-games-wednesday-at-lec)
+- **Michael Bublé and Drew Scott Introduced as Celebrity Guest Coaches for 2026 WHL Prospects Game**: [Link](https://chl.ca/whl-giants/article/michael-buble-and-drew-scott-introduced-as-celebrity-guest-coaches-for-2026-whl-prospects-game)
+- **Blazers’ Hurlbert named Team West alternate captain for inaugural WHL Prospects Game**: [Link](https://cfjctoday.com/2026/02/05/blazers-hurlbert-named-team-west-alternate-captain-for-inaugural-whl-prospects-game/)
+
+
+### thunder - bucks (N/A, 13/02/2026 00:23 Lima)
+
+- **Cam Thomas Shines As Bucks Battle Thunder In Pre All-Star Showdown**: [Link](https://evrimagaci.org/gpt/cam-thomas-shines-as-bucks-battle-thunder-in-pre-allstar-showdown-528759)
+- **Ousmane Dieng thanks Thunder fans for the love in his return to OKC with Bucks**: [Link](https://www.oklahoman.com/videos/sports/nba/thunder/2026/02/12/ousmane-dieng-thanks-thunder-fans-for-the-love-in-his-return-to-okc-with-bucks/88655441007/)
+- **Nikola Topic makes NBA debut in OKC’s loss to Bucks**: [Link](https://kfor.com/sports/thunder/nikola-topic-makes-nba-debut-in-okcs-loss-to-bucks/)
+
+
+### mavericks - lakers (N/A, 13/02/2026 00:23 Lima)
+
+- **Mavericks vs Lakers Picks & Odds Today: Flagg-less Dallas To Stumble In Los Angeles**: [Link](https://www.oddsshark.com/nba/mavericks-lakers-picks-odds-february-12-2026)
+- **Luka Dončić, Deandre Ayton remain out in final contest before All-Star break**: [Link](https://sports.yahoo.com/articles/luka-don-deandre-ayton-remain-211357935.html)
+- **Is LeBron James playing tonight vs the Dallas Mavericks? Latest update on the Los Angeles Lakers star's i**: [Link](https://timesofindia.indiatimes.com/sports/nba/top-stories/is-lebron-james-playing-tonight-vs-the-dallas-mavericks-latest-update-on-the-los-angeles-lakers-stars-injury-report-february-12-2026/articleshow/128281956.cms)
+
+
+### juventud (N/A, 13/02/2026 00:23 Lima)
+
+- **Movilizaciones estudiantiles marcan el Día de la Juventud en Venezuela**: [Link](https://cnnespanol.cnn.com/2026/02/12/venezuela/video/venezuela-estudiantes-dia-juventud-protestas)
+- **El movimiento estudiantil de Venezuela encabezó la primera marcha en Caracas tras la captura de Maduro: “No tenemos miedo”**: [Link](https://www.infobae.com/venezuela/2026/02/12/el-movimiento-estudiantil-de-venezuela-encabezo-la-primera-marcha-en-caracas-tras-la-captura-de-maduro-no-tenemos-miedo/)
+- **"NO TENEMOS MIEDO": Primera gran marcha tras caída de Maduro congrega a miles en Venezuela**: [Link](https://peru21.pe/mundo/primera-gran-manifestacion-tras-caida-de-maduro-en-venezuela/)
+
+
+### laura pausini (N/A, 13/02/2026 00:23 Lima)
+
+- **Scintille tra Morgan e Laura Pausini: "l'inno italiano trasformato in una canzone Disney"**: [Link](https://lifestyle.everyeye.it/notizie/scintille-morgan-laura-pausini-inno-italiano-trasformato-canzone-disney-858456.html)
+- **“Fratelli d’Italia L’Italia s’è desta…”**: [Link](https://iltorinese.it/2026/02/11/fratelli-ditalia-litalia-se-desta/)
+- **VIDEO | I titoli dell'edizione serale del TgPadova del 9 Febbraio 2026**: [Link](https://tgpadova.telenuovo.it/attualita/2026/02/09/video-i-titoli-delledizione-serale-del-tgpadova-del-9-febbraio-2026)
+
+
 ### miguel bose (N/A, 12/02/2026 21:46 Lima)
 
 - **“Papito” el disco que consagró el legado de Miguel Bosé y anticipa su regreso a Chile**: [Link](https://www.radioimagina.cl/2026/02/papito-el-disco-que-consagro-el-legado-de-miguel-bose-y-anticipa-su-regreso-a-chile/)
@@ -990,47 +1032,5 @@ dangerous’**: [Link](https://www.vavel.com/en/football/2026/02/10/manchester-u
 - **Official: Gasperini confirms 21-man Roma squad for Cagliari**: [Link](https://football-italia.net/gasperini-confirms-21-man-roma-squad-cagliari/)
 - **Video: Malen scores delightful first Roma goal at the Olimpico**: [Link](https://sports.yahoo.com/articles/video-malen-scores-delightful-first-203000083.html)
 - **Gasperini undecided between Pellegrini and Zaragoza**: [Link](https://romapress.net/gasperini-undecided-between-pellegrini-and-zaragoza/)
-
-
-### villarreal vs espanyol (N/A, 09/02/2026 15:49 Lima)
-
-- **Villarreal vs. Espanyol: La Liga betting odds, prediction, pick**: [Link](https://www.usatoday.com/story/sports/soccer/2026/02/09/villarreal-vs-espanyol-la-liga-betting-odds-prediction-pick/88584461007/)
-- **Villarreal - Espanyol live**: [Link](https://www.marca.com/en/soccer/laliga-ea-sports/villarreal-espanyol/2026/02/09/01_0101_20260209_449_177-live.html)
-- **Where to Watch Villarreal CF vs. Espanyol: TV Channel, Start Time and Live Stream**: [Link](https://www.bleachernation.com/how-to-watch/2026/02/08/where-to-watch-villarreal-cf-vs-espanyol-tv-channel-start-time-and-live-stream-3/)
-
-
-### villarreal - rcd espanyol (N/A, 09/02/2026 15:49 Lima)
-
-- **Villarreal - Espanyol hoy, en directo: LaLiga EA Sports, última hora en La Cerámica en vivo**: [Link](https://as.com/futbol/primera/villarreal-espanyol-en-directo-ultima-hora-de-laliga-ea-sports-hoy-en-vivo-f202602-d/)
-- **Apuestas y Pronóstico del Villarreal vs Espanyol 09/02/26**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2026/febrero/pronostico-villarreal-vs-espanyol-09-02-26)
-- **LaLiga EA Sports: Espanyol tiene la necesidad de cortar su racha negativa frente a Villarreal**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-espanyol-tiene-la-necesidad-de-cortar-su-racha-negativa-frente-a-villarreal-noticia-1674980)
-
-
-### roma - cagliari (N/A, 09/02/2026 15:49 Lima)
-
-- **LIVE Al 45' Roma-Cagliari 1-0: cucchiaio di Malen per il vantaggio, Ghilardi sfiora il raddoppio**: [Link](https://www.gazzetta.it/Calcio/Serie-A/09-02-2026/roma-cagliari-live-risultato-e-gol-serie-a-in-diretta.shtml)
-- **Roma-Cagliari: le formazioni ufficiali**: [Link](https://www.asroma.com/it/notizie/74842/roma-cagliari-le-formazioni-ufficiali)
-- **Serie A: Roma-Cagliari 1-0 DIRETTA e FOTO**: [Link](https://www.ansa.it/sito/notizie/sport/calcio/2026/02/09/serie-a-roma-cagliari-1-0-diretta-e-foto_5076cf95-4424-4a38-addb-1e861ab345a4.html)
-
-
-### famalicao (N/A, 09/02/2026 15:49 Lima)
-
-- **Famalicão: Corte no abastecimento de água a Joane**: [Link](https://sapo.pt/artigo/famalicao-corte-no-abastecimento-de-agua-a-joane-698a214a857341060ccd2164)
-- **Famalicão: Comunidade de Lagoa celebra o Carnaval nas ruas a 15 de fevereiro**: [Link](https://famaradio.tv/famalicao/02/09/famalicao-comunidade-de-lagoa-celebra-o-carnaval-nas-ruas-a-15-de-fevereiro/)
-- **Famalicão assegura autocarros gratuitos e bilhete especial de comboio para noite de Carnaval**: [Link](https://ovilaverdense.pt/famalicao-assegura-autocarros-gratuitos-e-bilhete-especial-de-comboio-para-noite-de-carnaval/)
-
-
-### liga peruana de vóley alianza lima (N/A, 09/02/2026 08:21 Lima)
-
-- **Tabla de posiciones de la Liga Peruana de Vóley 2026: así van los equipos tras la fecha 5 de la Fase 2**: [Link](https://www.infobae.com/peru/deportes/2026/02/07/tabla-de-posiciones-liga-peruana-de-voley-2025-2026-hoy-fecha-5-fase-2-alianza-lima-universitario-san-martin-regatas-lima/)
-- **La sorpresa de la jornada: Universitario cayó 3-0 ante Atenea por la fase 2 de la Liga Peruana de Vóley 2026**: [Link](https://rpp.pe/voley/mas-voley/universitario-vs-atenea-a-que-hora-juegan-y-como-ver-fecha-5-fase-2-liga-peruana-de-voley-2026-via-latina-voley-en-vivo-noticia-1674871)
-- **Partidos Liga Peruana de Vóley 2026: resultados y tabla de posiciones de la fecha 5**: [Link](https://libero.pe/deportes/voley/2026/02/03/tabla-de-posiciones-liga-peruana-de-voley-programacion-de-partidos-de-segunda-fase-181935)
-
-
-### guillermo príncipe de gales (N/A, 09/02/2026 08:21 Lima)
-
-- **Una serie de fotos de los archivos Epstein parecen mostrar al expríncipe Andrés en el suelo con una mujer**: [Link](https://cnnespanol.cnn.com/2026/01/31/eeuu/fotos-exprincipe-andres-mujer-epstein-trax)
-- **Los príncipes de Gales dicen estar "profundamente preocupados" por el escándalo Epstein**: [Link](https://rpp.pe/mundo/europa/los-principes-de-gales-dicen-estar-profundamente-preocupados-por-el-escandalo-epstein-noticia-1675058)
-- **El expríncipe Andrés invitó a Epstein y mujer rumana ‘muy mona’ al palacio de Buckingham**: [Link](https://elcomercio.pe/mundo/europa/jeffrey-epstein-el-exprincipe-andres-invito-al-depravado-sexual-y-mujer-rumana-muy-mona-al-palacio-de-buckingham-londres-reino-unido-ultimas-noticia/)
 
 
