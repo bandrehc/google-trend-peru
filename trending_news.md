@@ -1,3 +1,59 @@
+### clima lima (N/A, 14/02/2026 00:11 Lima)
+
+- **SENAMHI: Pronóstico del clima hoy viernes 13 de febrero 2026**: [Link](https://rpp.pe/peru/actualidad/senamhi-pronostico-del-clima-hoy-viernes-13-de-febrero-2026-noticia-1675691)
+- **Pronóstico del clima en Lima hoy 9 de febrero de 2026**: [Link](https://www.debate.com.mx/mundo/pronostico-del-clima-en-lima-hoy-9-de-febrero-de-2026-20260209-0020.html)
+- **Hasta 32 grados y más radiación ultravioleta en Lima Metropolitana: conoce el pronóstico de Senamhi para hoy, 9 de febrero**: [Link](https://larepublica.pe/sociedad/2026/02/09/hasta-32-grados-y-mas-radiacion-ultravioleta-en-lima-metropolitana-conoce-el-pronostico-de-senamhi-para-hoy-9-de-febrero-161901)
+
+
+### censura jose jeri (N/A, 14/02/2026 00:11 Lima)
+
+- **Perú debatirá el martes destitución del presidente interino**: [Link](https://www.dw.com/es/per%C3%BA-debatir%C3%A1-el-martes-destituci%C3%B3n-del-presidente-interino/a-75965755)
+- **SIMINCHISKUNA: CONVOCAN A PLENO EXTRAORDINARIO PARA EL MARTES 17**: [Link](https://comunicaciones.congreso.gob.pe/tv-congreso/siminchiskuna-convocan-a-pleno-extraordinario-para-el-martes-17/)
+- **Congreso convoca a pleno extraordinario este martes 17 para ver moción de censura contra José Jerí**: [Link](https://rpp.pe/politica/gobierno/jose-jeri-convocan-a-pleno-extraordinario-del-congreso-para-debatir-mocion-de-censura-del-presidente-para-este-martes-17-de-febrero-noticia-1675820)
+
+
+### cumbres borrascosas (N/A, 14/02/2026 00:11 Lima)
+
+- **La película “Cumbres Borrascosas” es una adaptación superficial y un homenaje al cine, no a Brontë**: [Link](https://cnnespanol.cnn.com/2026/02/12/entretenimiento/pelicula-cumbres-borrascosas-superficial-critica-trax)
+- **Entre seudónimos y tragedias: 4 datos sobre Emily Brontë y su libro “Cumbres Borrascosas”**: [Link](https://www.nationalgeographicla.com/historia/2026/02/entre-seudonimos-y-tragedias-4-datos-sobre-emily-bronte-y-su-libro-cumbres-borrascosas)
+- **‘Cumbres borrascosas’: vimos la provocadora adaptación con Margot Robbie y Jacob Elordi y esta es nuestra reseña**: [Link](https://rpp.pe/cine/internacional/cumbres-borrascosas-vimos-la-nueva-adaptacion-con-margot-robbie-y-jacob-elordi-y-esta-es-nuestra-resena-noticia-1675616)
+
+
+### eddie vedder (N/A, 14/02/2026 00:11 Lima)
+
+- **Pearl Jam Is ‘Between Eras’ But ‘Excited About the Future,’ Eddie Vedder Says**: [Link](https://www.rollingstone.com/music/music-features/pearl-jam-drummer-future-eddie-vedder-interview-1235514367/)
+- **Pearl Jam’s Eddie Vedder Says the Band Is ‘Woodshedding’ Again After Drummer Matt Cameron’s Exit**: [Link](https://www.vice.com/en/article/pearl-jams-eddie-vedder-says-the-band-is-woodshedding-again-after-drummer-matt-camerons-exit/)
+- **Pearl Jam Determine Future After Departure**: [Link](https://www.alternativenation.net/pearl-jam-determine-future-after-departure/)
+
+
+### keiko fujimori (N/A, 14/02/2026 00:11 Lima)
+
+- **Cuatro candidatos empatados en el tercer lugar: Encuesta de Ipsos a solo dos meses de las Elecciones 2026**: [Link](https://www.infobae.com/peru/2026/02/12/asi-van-las-encuestas-a-solo-dos-meses-de-las-elecciones-2026-cuatro-candidatos-empatados-en-el-tercer-lugar/)
+- **Ipsos: El antivoto golpea a Keiko Fujimori, Mario Vizcarra y Carlos Álvarez**: [Link](https://peru21.pe/politica/ipsos-el-antivoto-golpea-keiko-fujimori-mario-vizcarra-y-carlos-alvarez/)
+- **Elecciones 2026: encuesta de IMASOLU revela una alta indecisión en la población**: [Link](https://rpp.pe/campanas/publirreportaje/elecciones-2026-encuesta-de-imasolu-revela-una-alta-indecision-en-la-poblacion-noticia-1675729)
+
+
+### tabla de posiciones liga 1 (N/A, 14/02/2026 00:11 Lima)
+
+- **Así se jugará la fecha 3 del Apertura de la Liga 1 2026**: [Link](https://www.espn.com.pe/futbol/peru/nota/_/id/16294072/programacion-de-la-fecha-3-del-apertura-liga-1-de-peru)
+- **Tabla de posiciones de Liga 1 2026 EN VIVO: partidos y resultados de la fecha 3 del Torneo Apertura**: [Link](https://depor.com/futbol-peruano/descentralizado/tabla-de-posiciones-de-la-liga-1-peru-2026-en-vivo-hoy-partidos-programacion-y-resultados-fecha-3-torneo-apertura-universitario-vs-cienciano-alianza-lima-vs-alianza-atletico-sporting-cristal-vs-juan-pablo-ii-noticia/)
+- **Partidos y tabla de posiciones del Torneo Apertura EN VIVO: así van los equipos en la fecha 3**: [Link](https://latinanoticias.pe/deportes/partidos-y-tabla-de-posiciones-del-torneo-apertura-en-vivo-asi-van-los-equipos-en-la-fecha-3_20260213/)
+
+
+### toluca - tijuana (N/A, 14/02/2026 00:11 Lima)
+
+- **Liga MX: Por la fecha 6, Toluca FC recibirá a Tijuana**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-por-la-fecha-6-toluca-fc-recibira-a-tijuana-noticia-1675643)
+- **⚽ ¡Ya casi! Checa a qué HORA y por DÓNDE VER el Toluca vs Tijuana de la Liga MX 👹🆚🐶**: [Link](https://www.facebook.com/MilenioDiario/posts/-ya-casicheca-a-qu%C3%A9-hora-y-por-d%C3%B3nde-ver-el-toluca-vs-tijuana-de-la-liga-mx-/1387265013430966/)
+- **Refuerzan operativo de seguridad por partido Toluca vs. Xolos en el Nemesio Diez**: [Link](https://edomexaldia.com/refuerzan-operativo-de-seguridad-por-partido-toluca-vs-xolos-en-el-nemesio-diez/)
+
+
+### gassama (N/A, 14/02/2026 00:11 Lima)
+
+- **La alineación de Universitario vs. Cienciano: oncena confirmada**: [Link](https://depor.com/futbol-peruano/descentralizado/alineacion-universitario-vs-cienciano-en-vivo-hoy-formacion-titular-con-sekou-gassama-en-la-lista-liga-1-2026-fotos-noticia/)
+- **Sekou Gassama y la curiosa costumbre que puede afectar su nivel con Universitario**: [Link](https://libero.pe/futbol-peruano/universitario/2026/02/13/sekou-gassama-curiosa-costumbre-puede-afectar-su-nivel-universitario-131131)
+- **¿Sekou Gassama debutará en el Universitario vs Cienciano? Esto se sabe**: [Link](https://peru21.pe/deportes/universitario-vs-cienciano-esto-se-sabe-del-debut-de-sekou-gassama-liga-1/)
+
+
 ### ben shelton (N/A, 13/02/2026 21:33 Lima)
 
 - **ATP Dallas Day 4 Predictions Including Ben Shelton vs Adrian Mannarino**: [Link](https://lastwordonsports.com/tennis/2026/02/11/atp-dallas-day-4-predictions-shelton-mannarino/)
@@ -974,62 +1030,5 @@ Sin noticias relacionadas disponibles.
 - **Prediciendo la dinámica del sprint final en la Premier League inglesa.**: [Link](https://www.vietnam.vn/es/du-doan-cuc-dien-chang-dua-nuoc-rut-ngoai-hang-anh)
 - **Ganadores y perdedores de GOAL: el Liverpool está fallando en múltiples frentes**: [Link](https://noticias.foxnews.com/sports/winners-and-losers-of-the-weekends-football-ousmane-dembele-back-to-his-ballon-dor-winning-best-arne-slot-running-out-of-time-at-anfield-and-bayern-munich-whirlwind-luis-diaz-making-liverpool-look-lik)
 - **¿Cómo quedaría la clasificación final de la Premier League tras la jornada 25 según la Inteligencia Artificial?**: [Link](https://www.si.com/es-us/futbol/como-quedaria-la-clasificacion-final-de-la-premier-league-tras-la-jornada-25-segun-la-inteligencia-artificial)
-
-
-### leicester city - southampton (N/A, 10/02/2026 15:51 Lima)
-
-- **Saints predicted team to face Leicester as Downes doubt forces midfield change**: [Link](https://www.dailyecho.co.uk/sport/25840254.southampton-fc-predicted-team-play-leicester-championship/)
-- **Tuesday's Football Bet of the Day: EFL expert Dan Childs has a 7-10 bet from the Championship**: [Link](https://www.racingpost.com/sport/football-tips/football-bet-of-the-day-dan-childs-leicester-southampton-aizNL3C84g1F/)
-- **Southampton boss Tonda Eckert discusses preparations for back-to-back matches against Leicester City**: [Link](https://news.ssbcrack.com/southampton-boss-tonda-eckert-discusses-preparations-for-back-to-back-matches-against-leicester-city/)
-
-
-### tottenham (N/A, 10/02/2026 15:51 Lima)
-
-- **Man Utd in their post-d*ckhead era must ignore Scholes over Romero recommendation**: [Link](https://www.football365.com/news/man-utd-paul-scholes-cristian-romero-no-dickheads)
-- **Man United icon wants the club to land £70-80m-rated South American star**: [Link](https://www.caughtoffside.com/2026/02/10/man-united-cristian-romero-transfer/)
-- **Paul Merson says Tottenham have a player who just keeps letting them down**: [Link](https://www.thespurs.news/news/paul-merson-says-tottenham-have-a-player-who-just-keeps-letting-them-down/)
-
-
-### venezia vs (N/A, 10/02/2026 15:51 Lima)
-
-- **LIVE Venezia-Modena 0-2 Serie B 2025/2026: Modena effettua il quinto cambio**: [Link](https://sport.virgilio.it/dirette/live/serie-b/10-2-2026/venezia-modena/2592978/)
-- **SCATTO IN VETTA DOPO 8 VITTORIE STROPPA INSISTE «GUAI FERMARSI»**: [Link](https://www.pressreader.com/italy/la-gazzetta-dello-sport/20260210/282321096450233)
-- **MODENA CALCIO, LA SFIDA AL VENEZIA CAPOLISTA DIVENTA DETERMINANTE PER I GIALLI**: [Link](https://www.tvqui.it/modena-calcio-la-sfida-al-venezia-capolista-diventa-determinante-per-i-gialli/)
-
-
-### west ham - manchester united (N/A, 10/02/2026 15:51 Lima)
-
-- **Team news for West Ham v Man Utd**: [Link](https://www.manutd.com/en/news/detail/team-news-for-west-ham-v-man-utd-10-feb)
-- **Preview: Form teams West Ham and Man United meet in London**: [Link](https://www.fotmob.com/topnews/25850-preview-form-teams-west-ham-man-united-meet-london)
-- **🚨 BREAKING: West Ham and Man Utd confirm lineups for PL clash**: [Link](https://sports.yahoo.com/articles/breaking-west-ham-man-utd-190800615.html)
-
-
-### napoli - como (N/A, 10/02/2026 15:51 Lima)
-
-- **Cuándo juegan Napoli vs. Como por los cuartos de final de la Copa Italia 2025-2026: equipo, fecha, hora y TV en vivo**: [Link](https://www.espn.com.ar/futbol/argentina/nota/_/id/16296173/napoli-vs-como-cuartos-copa-italia-2025-2026-equipo-fecha-hora-y-tv-en-vivo)
-- **Apuestas y Pronóstico del Napoli vs Como 10/02/26**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/2026/febrero/pronostico-napoli-vs-como-10-02-26)
-- **Napoli vs. Como, hoy por Copa Italia: todo lo que tenés que saber**: [Link](https://www.directvsports.com/futbol/napoli-vs.-como-hoy-por-copa-italia-todo-lo-que-tenes-que-saber-20260210-0008.html)
-
-
-### avengers doomsday (N/A, 10/02/2026 12:08 Lima)
-
-- **Avengers: Doomsday's Boring Teaser Trailers Explained By The Russo Brothers**: [Link](https://www.slashfilm.com/2097133/avengers-doomsday-teaser-trailers-explained-russo-brothers/)
-- **Doctor Doom is Iron Man’s evil shadow? The most far-out fan theories about Avengers: Doomsday**: [Link](https://www.theguardian.com/film/2026/feb/06/avengers-doomsday-fan-theories-doctor-doom-robert-downey-jr-iron-man-week-in-geek)
-- **Is the MCU Meeting Its Doom?**: [Link](https://www.cornellsun.com/article/2026/02/is-the-mcu-meeting-its-doom)
-
-
-### cal (N/A, 10/02/2026 12:08 Lima)
-
-- **Carmelo Anthony calls son's benching 'part of journey'**: [Link](https://www.espn.com/mens-college-basketball/story/_/id/47860256/syracuse-autry-benches-anthony-loss-no-18-virginia)
-- **Syracuse coach Adrian Autry had a basketball reason to bench Kiyan Anthony**: [Link](https://www.syracuse.com/orangebasketball/2026/02/syracuse-coach-adrian-autry-had-a-basketball-reason-to-bench-kiyan-anthony.html)
-- **Adrian Autry said the decision to hold Kiyan Anthony out vs. Virginia was a coaching call**: [Link](https://www.foxsports.com/watch-vertical/fmc-r9uht0sq6zs1t7ry)
-
-
-### west ham vs (N/A, 10/02/2026 12:08 Lima)
-
-- **Team news for West Ham v Man Utd**: [Link](https://www.manutd.com/en/news/detail/team-news-for-west-ham-v-man-utd-10-feb)
-- **Michael Carrick: ‘They are every good on transition, very
-dangerous’**: [Link](https://www.vavel.com/en/football/2026/02/10/manchester-united/1250384-michael-carrick-they-are-every-good-on-transition-verydangerousthe-man-united-head-coach-sees-strengths-in-one-of-hisformer-clubs.html)
-- **West Ham United stoke the flames ahead of Man United clash with cheeky throwback video**: [Link](https://tribuna.com/en/blogs/west-ham-united-stoke-the-flames-ahead-of-man-united-clash-w/)
 
 
