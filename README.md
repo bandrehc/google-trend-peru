@@ -1,3 +1,24 @@
+### día de san valentín (N/A, 14/02/2026 03:39 Lima)
+
+- **💐 300 frases cortas del Día del Amor y la Amistad 2026 para dedicar a tu pareja el 14 de febrero en EE.UU. y México**: [Link](https://elcomercio.pe/mag/respuestas/300-frases-cortas-del-dia-del-amor-y-la-amistad-2026-para-enviar-a-tu-pareja-el-14-de-febrero-en-eeuu-y-mexico-via-whatsapp-facebook-e-instagram-tarjetas-feliz-san-valentin-nnda-nnrt-noticia/)
+- **30 tarjetas de amor para dedicar a tu novia este 14 de febrero y desear ¡Feliz Día de San Valentín!**: [Link](https://gestion.pe/mix/respuestas/30-tarjetas-de-amor-para-dedicar-a-tu-novia-este-14-de-febrero-y-desear-feliz-dia-de-san-valentin-nnda-nnrt-noticia/)
+- **10 imágenes para compartir en San Valentín 2026 por WhatsApp**: [Link](https://www.elmundo.es/como/2026/02/14/698f6620e85ece88618b45cb.html)
+
+
+### valentine's day (N/A, 14/02/2026 03:39 Lima)
+
+- **Valentine’s Day sticker shock: Chocolate prices are spiking**: [Link](https://www.cnn.com/2026/02/13/business/chocolate-prices-valentines-day)
+- **Roses are red, violets are blue, if cocoa is cheaper why isn't chocolate, too?**: [Link](https://www.pbs.org/newshour/economy/roses-are-red-violets-are-blue-if-cocoa-is-cheaper-why-isnt-chocolate-too)
+- **Why your Valentine's chocolates are so expensive**: [Link](https://www.axios.com/2026/02/13/trump-tariffs-chocolate-prices-valentines-day)
+
+
+### 14 de febrero (N/A, 14/02/2026 03:39 Lima)
+
+- **Horóscopo de hoy, sábado 14 de febrero de 2026: Predicciones en salud, dinero y amor**: [Link](https://trome.com/horoscopo/horoscopo-de-hoy-sabado-14-de-febrero-de-2026-predicciones-en-salud-dinero-y-amor-noticia/)
+- **Aries, Tauro, Géminis, Cáncer, Leo, Virgo, Libra, Escorpio, Sagitario, Capricornio, Acuario y Piscis: así será este sábado 14 de febrero**: [Link](https://www.vanitatis.elconfidencial.com/horoscopo/2026-02-14/horoscopo-14-de-febrero-sabado-signos-zodiaco-1qrt_4301336/)
+- **Horóscopo para sábado 14 de febrero de Las Estrellas de Walter Mercado. ¡Feliz San Valentín!**: [Link](https://www.elnuevoherald.com/entretenimiento/walter-mercado/article314661427.html)
+
+
 ### clima lima (N/A, 14/02/2026 00:11 Lima)
 
 - **SENAMHI: Pronóstico del clima hoy viernes 13 de febrero 2026**: [Link](https://rpp.pe/peru/actualidad/senamhi-pronostico-del-clima-hoy-viernes-13-de-febrero-2026-noticia-1675691)
@@ -1009,26 +1030,5 @@ Sin noticias relacionadas disponibles.
 - **🔴 Napoli vs Como | Official line-ups: Buongiorno, Politano, Paz, Addai**: [Link](https://ca.sports.yahoo.com/news/napoli-vs-como-official-line-191300984.html)
 - **Manna: ‘Napoli wish we had played with normal number of injuries’**: [Link](https://football-italia.net/manna-napoli-wish-we-played-normal-injuries/)
 - **Preview: Napoli vs Como - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/napoli/coppa-italia/preview/napoli-vs-como-prediction-team-news-lineups_591637.html)
-
-
-### napoli (N/A, 10/02/2026 15:51 Lima)
-
-- **Napoli, Manna: "Il -9 dall'Inter? A me piace fare i conti con tutta la rosa al completo. Il mercato di gennaio è stato complicato "**: [Link](https://www.calciomercato.com/liste/napoli-manna-il-9-dall-inter-a-me-piace-fare-i-conti-con-tutta-la-rosa-al-completo-il-mercato-di-gennaio-e-stato-complicato/blt4ffad83745254232)
-- **Calcio Live News: tutte le notizie di giornata in tempo reale**: [Link](https://www.diretta.it/news/calcio-live-news-in-campo-napoli-como-0-0/zTD9CHID/)
-- **Como, Ludi: "Il futuro di Fabregas? Vi dico che..."**: [Link](https://gianlucadimarzio.com/como-ludi-dichiarazioni-pre-napoli-coppa-italia-news-10-febbraio-2026/)
-
-
-### ignacio buse (N/A, 10/02/2026 15:51 Lima)
-
-- **Ignacio Buse sigue en ascenso al colocarse en el puesto 96 del ranking ATP**: [Link](https://andina.pe/agencia/noticia-ignacio-buse-sigue-ascenso-al-colocarse-el-puesto-96-del-ranking-atp-1062445.aspx)
-- **Buse logra su mejor ránking ATP y encabeza a peruanos en el tenis mundial**: [Link](https://diarioviral.pe/deportes/buse-logra-su-mejor-ranking-atp-y-encabeza-a-peruanos-en-el-tenis-mundial-51639)
-- **Ignacio Buse subió dos puestos en ranking ATP**: [Link](https://ovacion.pe/noticias/tenis/ignacio-buse-subio-dos-puestos-ranking-atp)
-
-
-### liga inglesa (N/A, 10/02/2026 15:51 Lima)
-
-- **Prediciendo la dinámica del sprint final en la Premier League inglesa.**: [Link](https://www.vietnam.vn/es/du-doan-cuc-dien-chang-dua-nuoc-rut-ngoai-hang-anh)
-- **Ganadores y perdedores de GOAL: el Liverpool está fallando en múltiples frentes**: [Link](https://noticias.foxnews.com/sports/winners-and-losers-of-the-weekends-football-ousmane-dembele-back-to-his-ballon-dor-winning-best-arne-slot-running-out-of-time-at-anfield-and-bayern-munich-whirlwind-luis-diaz-making-liverpool-look-lik)
-- **¿Cómo quedaría la clasificación final de la Premier League tras la jornada 25 según la Inteligencia Artificial?**: [Link](https://www.si.com/es-us/futbol/como-quedaria-la-clasificacion-final-de-la-premier-league-tras-la-jornada-25-segun-la-inteligencia-artificial)
 
 
