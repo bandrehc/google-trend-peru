@@ -1,3 +1,73 @@
+### trabzonspor - fenerbahçe (N/A, 14/02/2026 11:37 Lima)
+
+- **Sadettin Saran derbi öncesi Kerem Aktürkoğlu ile özel görüştü**: [Link](https://www.yenicaggazetesi.com/sadettin-saran-derbi-oncesi-kerem-akturkoglu-ile-ozel-gorustu-1001222h.htm)
+- **Süper Lig'de dev maç: Trabzonspor ve Fenerbahçe'nin 11'leri belli oldu**: [Link](https://www.babaocagi.com.tr/super-ligde-dev-mac-trabzonspor-ve-fenerbahcenin-11leri-belli-oldu)
+- **Mert Günok: İyi çıkarsak yolu yarılamış oluruz!**: [Link](https://www.sabah.com.tr/spor/futbol/2026/02/14/mert-gunok-iyi-cikarsak-yolu-yarilamis-oluruz)
+
+
+### lazio - atalanta (N/A, 14/02/2026 11:37 Lima)
+
+- **Lazio-Atalanta, i biancocelesti si preparano ad affrontare la Dea: le probabili formazioni**: [Link](https://onefootball.com/en/news/lazio-atalanta-i-biancocelesti-si-preparano-ad-affrontare-la-dea-le-probabili-formazioni-42409499)
+- **Fantacalcio, le formazioni ufficiali di Lazio-Atalanta: Tavares e Scamacca…**: [Link](https://www.fcinter1908.it/serie-a/fantacalcio-formazioni-ufficiali-lazio-atalanta-tavares-scamacca/)
+- **Chance per Dele-Bashiru, Krstovic ancora dal 1’: le probabili di Lazio-Atalanta**: [Link](https://www.direttafanta.com/chance-per-dele-bashiru-krstovic-ancora-dal-1-le-probabili-di-lazio-atalanta/)
+
+
+### southampton - leicester city (N/A, 14/02/2026 11:37 Lima)
+
+- **Every word Eckert said on defender availability, new contracts and Leicester**: [Link](https://www.dailyecho.co.uk/sport/25851964.every-word-southamptons-eckert-said-ahead-leicester-city-fa-cup/)
+- **Football Daily | Wounded Foxes and an unhelpful FA Cup trip to their Saintly tormentors**: [Link](https://www.theguardian.com/football/2026/feb/13/leicester-southampton-football-daily-newsletter)
+- **Only one Saints player named in EFL Team of the Week after dramatic win at Leicester**: [Link](https://uk.sports.yahoo.com/news/only-one-saints-player-named-171100426.html)
+
+
+### fiorentina (N/A, 14/02/2026 11:37 Lima)
+
+- **La Fiorentina fa il colpo grosso: Como battuto in casa 2-1**: [Link](https://www.repubblica.it/sport/calcio/2026/02/14/news/como_fiorentina_gol-425159293/)
+- **Serie A, le formazioni di sabato 14 febbraio**: [Link](https://www.diretta.it/news/calcio-serie-a-serie-a-le-formazioni-ufficiali-di-lazio-atalanta-sarri-con-maldini-palladino-con-zalewski/jsqXJeMG/)
+- **Serie A, Como-Fiorentina 1-2. Alle 18 Lazio-Atalanta, poi Inter-Juve**: [Link](https://tg24.sky.it/sport/2026/02/14/serie-a-partite-oggi-risultati-gol-highlights-video)
+
+
+### hoffenheim (N/A, 14/02/2026 11:37 Lima)
+
+- **Blitzstart in die zweite Halbzeit: TSG Hoffenheim besiegt den SC Freiburg**: [Link](https://www.swr.de/sport/fussball/tsg-hoffenheim-sc-freiburg-bundesliga-spielbericht-100.html)
+- **Liveticker | TSG Hoffenheim - SC Freiburg 0:0 | 22. Spieltag | Bundesliga 2025/26**: [Link](https://www.kicker.de/hoffenheim-gegen-freiburg-2026-bundesliga-5050946/ticker)
+- **Freiburg ohne schuster und manzambi: voßler vertritt am seitenrand**: [Link](https://tsv-pelkum.de/tiere/freiburg-ohne-schuster-und-manzambi-vosler-vertritt-am-seitenrand)
+
+
+### hamburg - fc union berlin (N/A, 14/02/2026 11:37 Lima)
+
+- **Bundesliga: Union-Coach vor Rückkehr – Darum ist Baumgart überrascht vom neuen HSV**: [Link](https://sportbild.bild.de/fussball/hamburger-sv/bundesliga-union-coach-vor-rueckkehr-darum-ist-baumgart-ueberrascht-vom-neuen-hsv-698d97a30abe5c8b74eccb09)
+- **Liveticker | Hamburger SV - 1. FC Union Berlin : | 22. Spieltag | Bundesliga 2025/26**: [Link](https://www.kicker.de/hsv-gegen-union-2026-bundesliga-5050947/ticker)
+- **HSV gegen Union Berlin: Kostenlose Livestreams mit VPN nutzen**: [Link](https://www.it-boltwise.de/hsv-gegen-union-berlin-kostenlose-livestreams-mit-vpn-nutzen.html)
+
+
+### hoffenheim vs (N/A, 14/02/2026 11:37 Lima)
+
+- **Will SC’s strong run in Sinsheim continue?**: [Link](https://www.scfreiburg.com/en/latest/news/first-team/2025/26/will-scs-strong-run-in-sinsheim-continue/)
+- **Hoffenheim beat Freiburg in clash of overachievers**: [Link](https://onefootball.com/fr/news/hoffenheim-beat-freiburg-in-clash-of-overachievers-42410089)
+- **Cup specialists Freiburg look to stop Hoffenheim's run**: [Link](https://www.tsg-hoffenheim.de/en/news/overview/2026/02/cup-specialists-freiburg-look-to-stop-hoffenheims-winning-streak)
+
+
+### leverkusen vs. st. pauli (N/A, 14/02/2026 11:37 Lima)
+
+- **Adam Dzwigala vs. Bayer Leverkusen – Player props & odds to score a goal on February 14**: [Link](https://prosoccerwire.usatoday.com/story/sports/2026/02/13/adam-dzwigala-soccer-player-props-2-14-2026/88669746007/)
+- **Preview: Bayer Leverkusen vs St Pauli - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/bayer-leverkusen/preview/b-leverkusen-vs-st-pauli-prediction-team-news-lineups_591954.html)
+- **Leverkusen cannot always play 'champagne football', says Hjulmand**: [Link](https://www.beinsports.com/en-us/soccer/bundesliga/articles/leverkusen-cannot-always-play-champagne-football-says-hjulmand-2026-02-13)
+
+
+### getafe - villarreal (N/A, 14/02/2026 11:37 Lima)
+
+- **Getafe - Villarreal, en directo: LaLiga EA Sports, en vivo hoy**: [Link](https://as.com/futbol/primera/getafe-villarreal-en-directo-laliga-ea-sports-en-vivo-hoy-f202602-d/)
+- **Apuestas y Pronóstico del Getafe vs Villarreal 14/02/26**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2026/febrero/pronostico-getafe-vs-villarreal-14-02-26)
+- **EN VIVO: Comenzó el partido entre Getafe y Villarreal: 0-0 en el inicio**: [Link](https://www.t13.cl/noticia/deportes13/en-vivo-comenzo-el-partido-entre-getafe-y-villarreal-0-0-en-el-inicio-14-02-2026)
+
+
+### manchester city - salford (N/A, 14/02/2026 11:37 Lima)
+
+- **Manchester City v Salford, Burnley v Mansfield and more: FA Cup and EFL – live**: [Link](https://www.theguardian.com/football/live/2026/feb/14/manchester-city-v-salford-burnley-v-mansfield-fa-cup-and-efl-football-live)
+- **Salford Boss Vows Grit in David vs Goliath Rematch**: [Link](https://streamlinefeed.co.ke/news/salford-boss-vows-grit-in-david-vs-goliath-rematch)
+- **'We are tired of seeing each other': Pep Guardiola already looking to short break after Salford game**: [Link](https://tribuna.com/en/news/2026-02-14-we-are-tired-of-seeing-each-other-pep-guardiola-already-looking-to-short-break-after-salf/)
+
+
 ### west ham (N/A, 14/02/2026 08:01 Lima)
 
 - **Tottenham confirm arrival of Igor Tudor as interim head coach: football news – live**: [Link](https://www.theguardian.com/football/live/2026/feb/14/fa-cup-news-and-buildup-efl-and-more-football-matchday-live)
@@ -960,75 +1030,5 @@ Sin noticias relacionadas disponibles.
 - **Spurs vs Lakers Odds & Picks Tonight: Contrarian OVER Play**: [Link](https://www.oddsshark.com/nba/spurs-lakers-picks-odds-february-10-2026)
 - **Lakers-Spurs free livestream: How to watch NBA game tonight, TV, time**: [Link](https://www.al.com/tv/2026/02/lakers-spurs-free-livestream-how-to-watch-nba-game-tonight-tv-time.html)
 - **DraftKings Promo Code: Bet $5, Get $200 if Your Spurs vs Lakers, Any Other NBA Bet Wins**: [Link](https://www.foxsports.com/stories/betting/draftkings-promo-code-bet-5-get-200-your-spurs-vs-lakers-any-other-nba-bet-wins)
-
-
-### taylor fritz (N/A, 11/02/2026 00:38 Lima)
-
-- **With behind-the-back hot shot and 'best returning in years', Fritz dazzles in Dallas win**: [Link](https://www.atptour.com/en/news/fritz-giron-shelton-diallo-dallas-2025-tuesday)
-- **Tennis bets: Our best tennis parlay at +481 combined odds [2/10/2026]**: [Link](https://www.dimers.com/news/tennis-bets-our-best-tennis-parlay-at-481-combined-odds-2102026)
-- **Taylor Fritz vs. Marcos Giron: Predictions, Where to Watch**: [Link](https://globelynews.com/sports/taylor-fritz-vs-marcos-giron-predictions-where-to-watch/)
-
-
-### magaly tv en vivo (N/A, 11/02/2026 00:38 Lima)
-
-- **Magaly Medina vuelve con un ampay que promete sacudir la farándula peruana: “de esposo ejemplar a rey de la noche”**: [Link](https://www.infobae.com/peru/2026/02/08/magaly-medina-vuelve-con-un-ampay-que-promete-sacudir-la-farandula-peruana-de-esposo-ejemplar-a-rey-de-la-noche/)
-- **Magaly Medina la destroza en Youtube: "Sin bots pagados"**: [Link](https://www.atv.pe/noticia/magaly-medina-la-destroza-en-youtube-sin-bots-pagados/)
-- **VER Magaly TV La Firme EN VIVO hoy, martes 10 de febrero**: [Link](https://elcomercio.pe/respuestas/farandula/magaly-tv-la-firme-regresa-hoy-en-vivo-con-explosivo-ampay-hora-canal-tv-y-mas-de-la-nueva-temporada-tdpe-noticia/)
-
-
-### sabrina carpenter (N/A, 11/02/2026 00:38 Lima)
-
-- **Sabrina Carpenter Fans Are Convinced She’s Announcing An Australian Tour**: [Link](https://www.marieclaire.com.au/news/celebrity/sabrina-carpenter-australian-tour/)
-- **Sabrina Carpenter fans think she has sneakily announced Dublin concert**: [Link](https://vipmagazine.ie/sabrina-carpenter-fans-think-she-has-sneakily-announced-dublin-concert/)
-- **‘There’s Plenty Worse Out There’: How Sabrina Carpenter Built a Boyfriend Made of Pringles**: [Link](https://www.rollingstone.com/music/music-news/sabrina-carpenter-pringles-interview-1235510860/)
-
-
-### pacers - knicks (N/A, 11/02/2026 00:38 Lima)
-
-- **Game Thread: Knicks vs Pacers, February 10, 2026**: [Link](https://www.postingandtoasting.com/knicks-game-threads/79103/game-thread-knicks-vs-pacers-february-10-2026)
-- **February 11, 2026 NBA games: Odds, tips and betting trends**: [Link](https://sportsbookwire.usatoday.com/story/sports/sports-betting/2026/02/10/nba-odds-tips-betting-trends-2-11-2026/88615687007/)
-- **theScore Bet bonus code NPNEWS: Get a bet reset up to $1,000 for Knicks vs. Pacers**: [Link](https://nypost.com/2026/02/10/betting/thescore-bet-bonus-code-npnews-get-a-bet-reset-up-to-1000-for-knicks-vs-pacers/)
-
-
-### publicis (N/A, 10/02/2026 21:50 Lima)
-
-- **Publicis hits record profit margin, adds 5800 staff and hikes cash bonuses 8%**: [Link](https://www.campaignlive.co.uk/article/publicis-hits-record-profit-margin-adds-5800-staff-hikes-cash-bonuses-8/1947085)
-- **Publicis Groupe: Capitalizing On The AI Wave To Grow**: [Link](https://seekingalpha.com/article/4866948-publicis-groupe-stock-q4-capitalizing-on-the-ai-wave-to-grow)
-- **Edelman, Publicis: early PR earnings prompt more questions than answers**: [Link](https://www.prweek.co.uk/article/1947643/edelman-publicis-early-pr-earnings-prompt-questions-answers)
-
-
-### milagros aguayo (N/A, 10/02/2026 21:50 Lima)
-
-- **Denuncian penalmente a Milagros Jáuregui por niñas víctimas de violación forzadas a gestar en su refugio**: [Link](https://www.infobae.com/peru/2026/02/10/denuncian-penalmente-a-milagros-jauregui-por-ninas-victimas-de-violacion-forzadas-a-gestar-en-su-refugio/)
-- **Cuando mezclan la religión con la política**: [Link](https://peru21.pe/opinion/cuando-mezclan-la-religion-con-la-politica-richard-arce/)
-- **Polémica por albergue de congresista para niñas víctimas de violación: la historia detrás y el pedido de colectivos**: [Link](https://elcomercio.pe/lima/sucesos/polemica-por-albergue-de-congresista-para-ninas-victimas-de-violacion-la-historia-detras-y-el-pedido-de-colectivos-noticia/)
-
-
-### damiano david (N/A, 10/02/2026 21:50 Lima)
-
-- **Dove Cameron Opens Up About Wanting to Wear a Wedding Look That Feels 'Inclusive' of Her Queerness**: [Link](https://people.com/dove-cameron-opens-up-about-finding-wedding-look-that-is-inclusive-of-her-queerness-11900121)
-- **Dove Cameron & Avan Jogia Reveal What They Love About Their Fiancés (Exclusive)**: [Link](https://screenrant.com/dove-cameron-avan-jogia-reveal-what-they-love-about-fiances-exclusive/)
-- **Dove Cameron Got Candid About Her Upcoming Wedding Glam**: [Link](https://www.allure.com/story/dove-cameron-wedding-look-interview)
-
-
-### eddie vedder (N/A, 10/02/2026 21:50 Lima)
-
-- **Eddie Vedder Changed Kids' Lives With Pearl Jam. Now, He and His Wife, Jill, Are Trying to Save Them**: [Link](https://www.rollingstone.com/music/music-features/eddie-vedder-jill-pearl-jam-documentary-netflix-1235514215/)
-- **Eddie Vedder documentary, ‘Matter of Time’, about rare genetic skin disorder lands on Netflix**: [Link](https://faroutmagazine.co.uk/eddie-vedder-documentary-matter-of-time-rare-genetic-disorder-netflix/)
-- **Hope’s Still Alive in Eddie Vedder’s ‘Matter of Time’ Concert Film**: [Link](https://thenerdsofcolor.org/2026/02/06/hopes-still-alive-in-eddie-vedders-matter-of-time-concert-film/)
-
-
-### bucaramanga - tolima (N/A, 10/02/2026 21:50 Lima)
-
-- **Pronóstico Atlético Bucaramanga Deportes Tolima - Primera A Colombia 10/02/26**: [Link](https://www.sportytrader.com/es/pronosticos/atletico-bucaramanga-deportes-tolima-326050/)
-- **Qué canal pasa Bucaramanga vs Tolima hoy: dónde ver el partido gratis y en vivo de la Liga BetPlay**: [Link](https://www.365scores.com/es/news/canal-tv-bucaramanga-vs-tolima-gratis/)
-- **Bucaramanga vs Tolima, en vivo la Liga BetPlay 2026-I: ¿Quién gana el partido de hoy?**: [Link](https://www.clarosports.com/colombia/liga-bet-play/bucaramanga-vs-tolima-en-vivo-la-liga-betplay-2026-i-quien-gana-el-partido-de-hoy/)
-
-
-### flamengo vs (N/A, 10/02/2026 21:50 Lima)
-
-- **Vitória - BA vs Clube de Regatas do Flamengo pronostico y comparación de cuotas 11.02.2026**: [Link](https://www.livetipsportal.com/es/pronosticos-apuestas-deportivas/vitoria-ba-vs-cr-flamengo-serie-a-11809378/)
-- **Vitória vs Flamengo: previa, horario y cómo llegan para la fecha 3 del Brasileirao**: [Link](https://zona.palmsbet.pe/deportes/futbol/vitoria-vs-flamengo-previa-horario-y-como-llegan-para-la-fecha-3-del-brasileirao/)
-- **Vitória vs Flamengo: previa, horario y cómo llegan para la fecha 3 del Brasileirao**: [Link](https://zona.palmsbet.pe/deportes/futbol/vitoria-vs-flamengo-previa-horario-y-como-llegan-para-la-fecha-3-del-brasileirao/)
 
 
