@@ -1,3 +1,72 @@
+### ben shelton (N/A, 13/02/2026 21:33 Lima)
+
+- **ATP Dallas Day 4 Predictions Including Ben Shelton vs Adrian Mannarino**: [Link](https://lastwordonsports.com/tennis/2026/02/11/atp-dallas-day-4-predictions-shelton-mannarino/)
+- **Dallas QF preview and prediction: Shelton vs. Kecmanovic**: [Link](https://tenngrand.com/dallas-tennis-preview-pick-prediction-shelton-vs-kecmanovic/)
+- **Ben Shelton’s Emotional Tribute To Sick Grandmother After Surviving Dallas Open Scare**: [Link](https://collegefootballnetwork.com/tennis/ben-shelton-tribute-grandmother-dallas-open-scare/)
+
+
+### u va (N/A, 13/02/2026 21:33 Lima)
+
+- **UVA Baseball: ‘Hoos open 2026 with 13-7 win over Wagner**: [Link](https://augustafreepress.com/news/uva-baseball-hoos-open-2026-with-13-7-win-over-wagner/)
+- **At season’s dawn, with an influx of newness, Virginia’s goals remain unchanged**: [Link](https://www.cavalierdaily.com/article/2026/02/at-season-s-dawn-with-an-influx-of-newness-virginia-s-goals-remain-unchanged)
+- **Fueled by taco bowls and a winning tradition, the Chris Pollard era begins at UVA**: [Link](https://news.virginia.edu/content/fueled-taco-bowls-and-winning-tradition-chris-pollard-era-begins-uva)
+
+
+### unión - san lorenzo (N/A, 13/02/2026 21:33 Lima)
+
+- **Unión-San Lorenzo y Defensa-Vélez, los dos partidos que cerrarán la acción del viernes en el Torneo Apertura: la agenda completa**: [Link](https://www.infobae.com/deportes/2026/02/13/union-san-lorenzo-y-defensa-velez-los-dos-partidos-que-cerraran-la-accion-del-viernes-en-el-torneo-apertura-la-agenda-completa/)
+- **Qué canal pasa Unión vs San Lorenzo hoy: dónde ver el partido gratis y en vivo de la Liga Profesional**: [Link](https://www.365scores.com/es/news/union-vs-san-lorenzo-donde-ver-gratis/)
+- **Cuándo juegan Unión vs. San Lorenzo por el Torneo Apertura 2026: equipo, fecha, hora y TV en vivo**: [Link](https://www.espn.com.ar/futbol/argentina/nota/_/id/16301885/union-vs-san-lorenzo-torneo-apertura-equipo-quinta-fecha-hora-tv-en-vivo)
+
+
+### defensa y justicia - vélez (N/A, 13/02/2026 21:33 Lima)
+
+- **Qué canal pasa Defensa y Justicia vs Vélez hoy: dónde ver el partido gratis y en vivo de la Liga Profesional**: [Link](https://www.365scores.com/es/news/defensa-y-justicia-vs-velez-donde-ver/)
+- **El Vélez de Guillermo tiene una visita de riesgo a Varela**: [Link](https://diariohoy.net/el-clasico/el-velez-de-guillermo-tiene-una-visita-de-riesgo-a-varela-279951)
+- **Defensa vs Vélez por la fase de grupos de Liga Profesional EN VIVO. Seguilo minuto a minuto por la web de TN.**: [Link](https://tn.com.ar/deportes/futbol/2026/02/13/defensa-vs-velez-en-vivo-por-la-fase-de-grupos-de-la-liga-profesional-hora-donde-ver-y-formaciones/)
+
+
+### liga 1 max en vivo (N/A, 13/02/2026 21:33 Lima)
+
+- **Gustavo Zevallos apuntó contra Agustín Lozano: “Seguro se opuso a reprogramar nuestro partido con Juan Pablo II”**: [Link](https://depor.com/futbol-peruano/descentralizado/gustavo-zevallos-en-sporting-cristal-contra-agustin-lozano-se-opuso-a-reprogramar-nuestro-partido-con-juan-pablo-ii-noticia/)
+- **Alineaciones Sporting Cristal vs Juan Pablo II: el inédito once de Autuori para volver al triunfo**: [Link](https://libero.pe/futbol-peruano/sporting-cristal/2026/02/13/alineaciones-sporting-cristal-vs-juan-pablo-ii-formacion-del-partido-de-liga-1-peru-apertura-148577)
+- **(VIDEO) Zevallos: "Estamos corrigiendo errores para estar a la altura de la competencia"**: [Link](https://ovacion.pe/noticias/sporting-cristal/video-zevallos-estamos-corrigiendo-errores-estar-altura-competencia)
+
+
+### tarjeta roja futbol (N/A, 13/02/2026 21:33 Lima)
+
+- **La Ligue 1 reduce la suspensión a Endrick por su roja con Lyon**: [Link](https://www.espn.com.ar/futbol/francia/nota/_/id/16305111/endrick-ligue-1-reduce-suspension-roja-lyon)
+- **Endrick respira aliviado**: [Link](https://www.marca.com/futbol/real-madrid/2026/02/12/endrick-respira-aliviado.html)
+- **Endrick se quedó helado: vean la roja directa que le sacaron y frótense los ojos después**: [Link](https://as.com/futbol/videos/endrick-se-quedo-helado-vean-la-roja-directa-que-le-han-sacado-y-frotense-los-ojos-despues-f202602-v/)
+
+
+### universitario versus cienciano (N/A, 13/02/2026 21:33 Lima)
+
+- **Universitario - Cienciano: lineups, drama and a sold-out Monumental ahead of big Apertura clash**: [Link](https://www.filmogaz.com/148739)
+- **Universitario vs Cienciano Prediction: Match Preview and Analysis | Primera Division 14-02-2026**: [Link](https://betmines.com/match-preview/universitario-vs-cienciano-prediction-match-preview-and-analysis-primera-division-14-02-2026)
+
+
+### puebla - pumas (N/A, 13/02/2026 21:33 Lima)
+
+- **Liga MX: Puebla y Pumas UNAM se miden por la fecha 6**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-puebla-y-pumas-unam-se-miden-por-la-fecha-6-noticia-1675624)
+- **Navarro destaca preparación y solidez defensiva rumbo a la jornada 6**: [Link](https://puebla321.com/2026/02/13/navarro-destaca-preparacion-y-solidez-defensiva-rumbo-a-la-jornada-6/)
+- **“No hay justificación para lo que ha hecho”: José Manuel Figueroa demanda por daño moral a Imelda Tuñón tras acusación de abuso contra Julián Figueroa https://mile.io/3OG2TrD**: [Link](https://www.facebook.com/MilenioDiario/posts/no-hay-justificaci%C3%B3n-para-lo-que-ha-hecho-jos%C3%A9-manuel-figueroa-demanda-por-da%C3%B1o-/1386963993461068/)
+
+
+### américa - santa fe (N/A, 13/02/2026 21:33 Lima)
+
+- **¿Quién es Jean Fernandes, el nuevo arquero del América de Cali?**: [Link](https://www.espn.com.ar/futbol/colombia/nota/_/id/16308688/quien-es-jean-fernandes-el-nuevo-arquero-del-america-de-cali)
+- **Transmisión EN VIVO del América de Cali vs Santa Fe hoy: cómo mirar la Liga por TV o streaming**: [Link](https://www.365scores.com/es/news/america-vs-santa-fe-transmision-vivo/)
+- **En el duelo de rojos por el cierre de la jornada, se vivirá el denominado clásico de Rojos en la capital del Valle del Cauca**: [Link](https://www.facebook.com/infobaecolombia/photos/en-el-duelo-de-rojos-por-el-cierre-de-la-jornada-se-vivir%C3%A1-el-denominado-cl%C3%A1sico/1351086407034118/)
+
+
+### universitario - cienciano (N/A, 13/02/2026 21:33 Lima)
+
+- **Universitario vs. Cienciano EN VIVO: minuto a minuto gratis por internet vía Liga 1 MAX**: [Link](https://depor.com/futbol-peruano/descentralizado/ver-universitario-vs-cienciano-en-vivo-hoy-minuto-a-minuto-gratis-liga-1-max-futbol-libre-tv-con-transmision-de-movistar-tv-directv-torneo-apertura-2026-noticia/)
+- **Sigue Universitario vs Cienciano EN VIVO: minuto a minuto del partido por Liga 1 | LBPosting | DEPORTE-TOTAL**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/universitario-vs-cienciano-en-vivo-hoy-ver-partido-por-liga-1-lbposting-noticia/)
+- **Con todo en el Monumental: el posible once de Universitario para enfrentar a Cienciano**: [Link](https://rpp.pe/futbol/descentralizado/universitario-vs-cienciano-el-posible-once-crema-en-partido-por-torneo-apertura-en-el-monumental-noticia-1675666)
+
+
 ### monaco (N/A, 13/02/2026 15:46 Lima)
 
 - **DIRECT. Monaco-Nantes: suivez le match de la 22e journée de Ligue 1 en live**: [Link](https://rmcsport.bfmtv.com/football/ligue-1/direct-monaco-nantes-suivez-le-match-de-la-22e-journee-de-ligue-1-en-live_LS-202602130815.html)
@@ -962,75 +1031,5 @@ Sin noticias relacionadas disponibles.
 - **Michael Carrick: ‘They are every good on transition, very
 dangerous’**: [Link](https://www.vavel.com/en/football/2026/02/10/manchester-united/1250384-michael-carrick-they-are-every-good-on-transition-verydangerousthe-man-united-head-coach-sees-strengths-in-one-of-hisformer-clubs.html)
 - **West Ham United stoke the flames ahead of Man United clash with cheeky throwback video**: [Link](https://tribuna.com/en/blogs/west-ham-united-stoke-the-flames-ahead-of-man-united-clash-w/)
-
-
-### chelsea vs leeds (N/A, 10/02/2026 12:08 Lima)
-
-- **Leeds Team News and Predicted Lineup vs Chelsea for February 10**: [Link](https://lastwordonsports.com/football/2026/02/10/leeds-united-team-news-predicted-lineup-chelsea-february/)
-- **Chelsea star ready for a second game in a week – and hopes Leeds game can be reverse of first fixture**: [Link](https://chelsea.news/2026/02/cole-palmer-second-game-week-fitness-returns/)
-- **Rosenior wary of Calvert-Lewin threat ahead of Leeds test**: [Link](https://www.beinsports.com/en-asia/football/premier-league/articles/rosenior-wary-of-calvert-lewin-threat-ahead-of-leeds-test-2026-02-09)
-
-
-### lakers vs (N/A, 10/02/2026 12:08 Lima)
-
-- **Game Preview: San Antonio Spurs at Los Angeles Lakers**: [Link](https://www.poundingtherock.com/spurs-game-previews/94711/game-preview-san-antonio-spurs-at-los-angeles-lakers)
-- **Castle leads San Antonio against Los Angeles after 40-point performance**: [Link](https://abcnews.go.com/Sports/wireStory/castle-leads-san-antonio-los-angeles-after-40-130016616)
-- **Is LeBron James Playing Tonight? (Injury Update, Betting Impact for Spurs vs. Lakers)**: [Link](https://www.si.com/betting/lebron-james-injury-update-betting-impact-for-spurs-vs-lakers-feb-10)
-
-
-### teleticket (N/A, 10/02/2026 08:26 Lima)
-
-- **Humbe, el fenómeno de las redes sociales, llega a Lima con su tour 'Dueño del cielo'**: [Link](https://rpp.pe/musica/conciertos/humbe-el-fenomeno-de-las-redes-sociales-llega-a-lima-con-su-tour-dueno-del-cielo-noticia-1675088)
-- **Humbe anuncia concierto en Lima como parte de su gira “Dueño de los Cielos”**: [Link](https://peru21.pe/espectaculos/humbe-anuncia-concierto-en-lima-como-parte-de-su-gira-dueno-de-los-cielos/)
-- **Concierto Humbe en Lima 2026: fecha, precios y cómo comprar entradas en Teleticket para 'Dueño de Cielos Tour' en Costa 21**: [Link](https://larepublica.pe/entretenimiento/2026/02/09/concierto-humbe-en-lima-2026-fecha-precios-y-como-comprar-entradas-en-teleticket-para-dueno-de-cielos-tour-en-costa-21-515511)
-
-
-### local de votación (N/A, 10/02/2026 08:26 Lima)
-
-- **ONPE anuncia capacitación para miembros de mesa**: [Link](https://canaln.pe/actualidad/onpe-anuncia-capacitacion-miembros-mesa-n490197)
-- **Elecciones 2026: consulta AQUÍ tu local de votación y si eres miembro de mesa en la web de la ONPE**: [Link](https://elcomercio.pe/respuestas/tramites/elecciones-2026-consulta-aqui-tu-local-de-votacion-y-si-eres-miembro-de-mesa-en-la-web-de-la-onpe-tdpe-noticia/)
-- **Nuevo plan de SERVIR ayudará a mejorar la gestión del personal público: infórmate**: [Link](https://www.elperuano.pe/noticia/288460-nuevo-plan-de-servir-ayudara-a-mejorar-la-gestion-del-personal-publico-informate)
-
-
-### warriors - grizzlies (N/A, 10/02/2026 08:26 Lima)
-
-- **NBA: Golden State Warriors vs. Memphis Grizzlies**: [Link](http://english.news.cn/20260210/15caec4cab3d48deb4a6b147cc456676/c.html)
-- **De'Anthony Melton credits Warriors' ‘physicality' for sparking comeback win**: [Link](https://www.nbcsportsbayarea.com/video/nba/golden-state-warriors/deanthony-melton-interview-video-watch/1915354/)
-- **Warriors Player Ratings: Spencer Leads Team In Scoring As Balanced Effort Leads To 114-113 Win Against Grizzlies**: [Link](https://www.yardbarker.com/nba/articles/warriors_player_ratings_spencer_leads_team_in_scoring_as_balanced_effort_leads_to_114_113_win_against_grizzlies/s1_16751_43451177)
-
-
-### dolares a soles (N/A, 10/02/2026 04:02 Lima)
-
-- **Precio del dólar hoy, sábado 7 de febrero: a cuánto cerró el tipo de cambio en Perú**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-2026-a-cuanto-esta-el-dolar-el-sabado-7-de-febrero-y-tipo-de-cambio-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
-- **Tipo de cambio hoy en Perú: ¿En cuánto cerró el dólar este lunes 9 de febrero?**: [Link](https://gestion.pe/economia/mercados/tipo-de-cambio-dolar-hoy-en-peru-cuanto-esta-el-precio-del-dolar-este-lunes-9-de-febrero-dolares-a-soles-compra-y-venta-bcrp-noticia/)
-- **¿Cuál es la cotización del dólar hoy lunes 9 de febrero del 2026?**: [Link](https://andina.pe/agencia/noticia-cual-es-cotizacion-del-dolar-hoy-lunes-9-febrero-del-2026-1062388.aspx)
-
-
-### lakers - thunder (N/A, 10/02/2026 04:02 Lima)
-
-- **Thunder And Lakers Battle In High-Stakes Western Conference Showdown**: [Link](https://evrimagaci.org/gpt/thunder-and-lakers-battle-in-highstakes-western-conference-showdown-528066)
-- **Game Recap: Thunder 119, Lakers 110**: [Link](https://www.nba.com/watch/video/game-recap-thunder-119-lakers-110)
-- **Jalen Williams to return from hamstring injury for Thunder vs Lakers**: [Link](https://www.oklahoman.com/story/sports/nba/thunder/2026/02/08/jalen-williams-injury-update-okc-thunder-star-hamstring-strain-will-play-vs-lakers/88582739007/)
-
-
-### flavia lopez (N/A, 10/02/2026 04:02 Lima)
-
-- **Patricio Parodi y Flavia López se besaron en vivo**: [Link](https://www.americatv.com.pe/esto-es-guerra/patricio-parodi-y-flavia-lopez-se-besaron-apasionadamente-eeg-noticia-162860)
-- **¡No podrán negarlo! ‘Pato’ Parodi y Flavia López son captados besándose en Punta Negra**: [Link](https://www.atv.pe/noticia/no-podran-negarlo-pato-parodi-y-flavia-lopez-son-captados-besandose-en-punta-negra/)
-- **Flavia López y Patricio Parodi son ampayados besándose tras negar relación: Magaly Medina difunde imágenes**: [Link](https://www.infobae.com/peru/2026/02/10/flavia-lopez-y-patricio-parodi-son-ampayados-besandose-tras-negar-relacion-magaly-medina-difunde-imagenes/)
-
-
-### magaly tv en vivo (N/A, 10/02/2026 04:02 Lima)
-
-- **'Magaly TV, la Firme' regresa HOY con EXPLOSIVO caso: "De esposo ejemplar a rey de la noche"**: [Link](https://www.atv.pe/noticia/magaly-tv-la-firme-regresa-hoy-con-explosivo-caso-de-esposo-ejemplar-a-rey-de-la-noche/)
-- **Magaly Medina regresa con fuerte destape y descartan a Christian Domínguez: “Ningún esposo ejemplar y que enamoró con su historia de amor”**: [Link](https://www.infobae.com/peru/2026/02/09/magaly-medina-regresa-con-fuerte-destape-y-descartan-a-christian-dominguez-ningun-esposo-ejemplar-y-que-enamoro-con-su-historia-de-amor/)
-- **¡Vuelve con ampay 'bomba'! Magaly Medina mostrará pruebas contra conocido "esposo ejemplar" que fue captado en plena 'juerga'**: [Link](https://larepublica.pe/espectaculos/2026/02/08/vuelve-con-ampay-bomba-magaly-medina-mostrara-pruebas-contra-conocido-esposo-ejemplar-que-fue-captado-en-juerga-633704)
-
-
-### nba (N/A, 10/02/2026 00:39 Lima)
-
-- **JB Bickerstaff defends Jalen Duren: 'If a guy throws a punch at you, you have a right to protect yourself'**: [Link](https://uk.sports.yahoo.com/news/jb-bickerstaff-defends-jalen-duren-034658646.html)
-- **NBA World Reacts to Star-Studded Fight in Pistons-Hornets Game: ‘Brawl of the Year,’ ‘THEY SCRAPPIN!’**: [Link](https://www.profootballnetwork.com/nba/world-reacts-pistons-hornets-brawl-of-the-year/)
-- **Pistons' Isaiah Stewart could be in for a very long suspension after fight against Hornets**: [Link](https://www.sportingnews.com/uk/nba/detroit-pistons/news/pistons-isaiah-stewart-long-suspension-incident-hornets/29b24d2b9f46e55e0a896bae)
 
 
