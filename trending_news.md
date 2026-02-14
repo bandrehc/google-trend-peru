@@ -1,3 +1,45 @@
+### west ham (N/A, 14/02/2026 08:01 Lima)
+
+- **Tottenham confirm arrival of Igor Tudor as interim head coach: football news – live**: [Link](https://www.theguardian.com/football/live/2026/feb/14/fa-cup-news-and-buildup-efl-and-more-football-matchday-live)
+- **FA Cup LIVE: Build-up, team news, scores and live text updates from the fourth round of the FA Cup**: [Link](https://www.bbc.com/sport/football/live/c2d776j7pzrt)
+- **How to watch Burton Albion vs West Ham – TV channel, live stream, radio coverage**: [Link](https://www.mirror.co.uk/sport/football/news/burton-west-ham-channel-stream-36714222)
+
+
+### real madrid vs real sociedad (N/A, 14/02/2026 08:01 Lima)
+
+- **Real Madrid - Real Sociedad hoy, en directo: previa y última hora de LaLiga EA Sports, en vivo**: [Link](https://as.com/futbol/primera/real-madrid-real-sociedad-hoy-en-directo-previa-y-ultima-hora-de-laliga-ea-sports-en-vivo-f202602-d/)
+- **SKY Sports EN VIVO por Internet — cómo mirar partido Real Madrid vs. Real Sociedad en Fútbol TV y SKY Plus Online en México**: [Link](https://gestion.pe/mix/sports/sky-sports-en-vivo-por-internet-como-mirar-partido-real-madrid-vs-real-sociedad-en-futbol-tv-y-sky-plus-online-en-mexico-nnda-nnrt-noticia/)
+- **Pronósticos Real Madrid vs Real Sociedad: gran cuota por triunfo blanco sin goles en contra**: [Link](https://depor.com/apuestas-deportivas/real-madrid-vs-real-sociedad-pronosticos-apuestas-cuotas-15-02-2026/)
+
+
+### que se celebra hoy (N/A, 14/02/2026 08:01 Lima)
+
+- **¿Qué santo celebramos hoy, 13 de febrero?**: [Link](https://www.eldebate.com/religion/santoral/20260213/santo-celebramos-hoy-13-febrero_383502.html)
+- **San Benigno de Todi: onomásticos que se conmemoran este viernes 13 de febrero**: [Link](https://www.infobae.com/noticias/2026/02/12/santoral-de-hoy-cuales-son-los-onomasticos-que-se-conmemoran-este-viernes-13-de-febrero/)
+- **Santoral del 13 de febrero de 2026: Descubre qué santos se celebran hoy**: [Link](https://www.diariosur.es/sociedad/santoral-13-febrero-2026-que-santos-se-celebran-20260209000000-nt.html)
+
+
+### gloria compra saputo (N/A, 14/02/2026 08:01 Lima)
+
+- **Gloria Foods firma acuerdo para adquirir el 80% de Saputo Argentina por US$ 500 millones**: [Link](https://gestion.pe/economia/empresas/gloria-foods-acuerda-la-compra-del-80-de-saputo-argentina-por-unos-us-500-millones-noticia/)
+- **Santa Fe, en el centro del mayor negocio lácteo del año: el holding peruano Gloria compra el 80% de Saputo por US$ 630 millones**: [Link](https://www.on24.com.ar/negocios/santa-fe-en-el-centro-del-mayor-negocio-lacteo-del-ano-el-holding-peruano-gloria-compra-el-80-de-saputo-por-us-630-millones/)
+- **Una gigante láctea internacional reduce su presencia en el país con una millonaria operación**: [Link](https://tn.com.ar/campo/2026/02/12/una-gigante-lactea-internacional-reduce-su-presencia-en-el-pais-con-una-millonaria-operacion/)
+
+
+### flores (N/A, 14/02/2026 08:01 Lima)
+
+- **San Valentín 2026: peruanos gastan en promedio S/ 170 en rosas y arreglos florales**: [Link](https://andina.pe/agencia/noticia-san-valentin-2026-peruanos-gastan-promedio-s-170-rosas-y-arreglos-florales-1062926.aspx)
+- **San Valentín 2026: ¿Cuáles son los destinos preferidos por parejas para esta fecha?**: [Link](https://gestion.pe/peru/san-valentin-2026-paracas-ica-y-tarapoto-lideran-los-destinos-preferidos-por-parejas-noticia/)
+- **Entre regalos de última hora y citas planeadas: así se vive San Valentín en Perú en 2026**: [Link](https://www.atv.pe/noticia/entre-regalos-de-ultima-hora-y-citas-planeadas-asi-se-vive-san-valentin-en-peru-en-2026/)
+
+
+### happy valentines day (N/A, 14/02/2026 08:01 Lima)
+
+- **Valentine's Day 2026**: [Link](https://doodles.google/doodle/valentines-day-2026/)
+- **Valentine’s Day 2026: 50+ Heartfelt wishes, greetings and messages to share with your partner and soulmate**: [Link](https://m.economictimes.com/news/international/us/valentines-day-2026-50-heartfelt-wishes-greetings-and-messages-to-share-with-your-partner-and-soulmate/articleshow/128268715.cms)
+- **75+ Happy Valentine’s Day Wishes, Messages, Greetings and Quotes for 2026**: [Link](https://timesofindia.indiatimes.com/etimes/trending/75-happy-valentines-day-wishes-messages-greetings-card-pictures-images-insta-story-and-quotes-for-2026/articleshow/128311695.cms)
+
+
 ### día de san valentín (N/A, 14/02/2026 03:39 Lima)
 
 - **💐 300 frases cortas del Día del Amor y la Amistad 2026 para dedicar a tu pareja el 14 de febrero en EE.UU. y México**: [Link](https://elcomercio.pe/mag/respuestas/300-frases-cortas-del-dia-del-amor-y-la-amistad-2026-para-enviar-a-tu-pareja-el-14-de-febrero-en-eeuu-y-mexico-via-whatsapp-facebook-e-instagram-tarjetas-feliz-san-valentin-nnda-nnrt-noticia/)
@@ -988,47 +1030,5 @@ Sin noticias relacionadas disponibles.
 - **Vitória - BA vs Clube de Regatas do Flamengo pronostico y comparación de cuotas 11.02.2026**: [Link](https://www.livetipsportal.com/es/pronosticos-apuestas-deportivas/vitoria-ba-vs-cr-flamengo-serie-a-11809378/)
 - **Vitória vs Flamengo: previa, horario y cómo llegan para la fecha 3 del Brasileirao**: [Link](https://zona.palmsbet.pe/deportes/futbol/vitoria-vs-flamengo-previa-horario-y-como-llegan-para-la-fecha-3-del-brasileirao/)
 - **Vitória vs Flamengo: previa, horario y cómo llegan para la fecha 3 del Brasileirao**: [Link](https://zona.palmsbet.pe/deportes/futbol/vitoria-vs-flamengo-previa-horario-y-como-llegan-para-la-fecha-3-del-brasileirao/)
-
-
-### copa libertadores (N/A, 10/02/2026 21:50 Lima)
-
-- **Cuándo juegan Alianza Lima vs. 2 de Mayo por CONMEBOL Libertadores: equipos, fecha, hora y TV en vivo**: [Link](https://www.espn.com.pe/futbol/copa-libertadores/nota/_/id/16291175/alianza-lima-vs-2-de-mayo-fase-1-vuelta-copa-libertadores-equipos-fecha-hora-y-tv-en-vivo)
-- **“La presión de Matute será en contra de ellos”: DT de 2 de Mayo lanzó fuerte advertencia a Alianza Lima**: [Link](https://depor.com/futbol-peruano/copa-libertadores/alianza-lima-vs-2-de-mayo-eduardo-ledesma-lanzo-una-advertencia-sobre-matute-en-su-llegada-a-lima-por-copa-libertadores-video-noticia/)
-- **Alianza busca la remontada en La "Caldera"**: [Link](https://caretas.pe/deportes/alianza-busca-la-remontada-en-la-caldera/)
-
-
-### pumas - san diego fc (N/A, 10/02/2026 21:50 Lima)
-
-- **Pumas sucumbe en San Diego y queda al borde de la eliminación**: [Link](https://www.espn.com.pe/futbol/norte-centro-america/nota/_/id/16268940/san-diego-vs-pumas-concacaf-champions-cup-2026-resultado-ida-goles)
-- **Pumas UNAM vs San Diego en vivo: transmisión del partido por la Copa de Campeones Concacaf**: [Link](https://elcomercio.pe/deporte-total/mexico/pumas-vs-san-diego-en-vivo-hoy-gratis-via-fox-one-disney-plus-a-que-hora-juegan-canal-de-transmision-y-donde-ver-por-copa-de-campeones-concacaf-video-noticia/)
-- **Pumas no resiste y Atlas rescata agónico empate**: [Link](https://www.espn.com.pe/futbol/mexico/nota/_/id/16285828/atlas-vs-pumas-resumen-goles-empate-ultimo-minuto-liga-mx)
-
-
-### the strongest vs. deportivo táchira (N/A, 10/02/2026 21:50 Lima)
-
-- **Táchira vs. Strongest (11 Feb, 2026) Live Score**: [Link](https://www.espn.in/football/match/_/gameId/401842614)
-- **How And Where To Watch: Deportivo Táchira vs The Strongest In The Copa Libertadores On beIN SPORTS**: [Link](https://www.beinsports.com/en-us/soccer/conmebol-libertadores/articles/how-and-where-to-watch-deportivo-t%C3%A1chira-vs-the-strongest-in-the-copa-libertadores-on-bein-sports-2026-02-10)
-- **Deportivo Tachira look to end Venezuela’s Copa Libertadores knockout drought**: [Link](https://www.besoccer.com/new/deportivo-tachira-look-to-end-venezuela-rsquo-s-copa-libertadores-knockout-drought-1392853)
-
-
-### flamengo vs. sampaio corrêa futebol e esporte (N/A, 10/02/2026 21:50 Lima)
-
-- **Atitude de Pulgar com adversário do Flamengo repercute: 'Transformaram'**: [Link](https://www.lance.com.br/fora-de-campo/atitude-de-pulgar-com-adversario-do-flamengo-repercute-transformaram.html)
-- **Flamengo x Sampaio Corrêa: onde assistir, horário e escalação do Campeonato Carioca**: [Link](https://olhardigital.com.br/2026/02/07/internet-e-redes-sociais/flamengo-x-sampaio-correa-onde-assistir-horario-e-escalacao-do-campeonato-carioca/)
-- **Vampeta manda recado aos rivais e enaltece vitória do Flamengo: “Ressuscitaram o gigante”**: [Link](https://colunadofla.com/2026/02/vampeta-manda-recado-aos-rivais-e-enaltece-vitoria-do-flamengo-ressuscitaram-o-gigante/)
-
-
-### napoles vs (N/A, 10/02/2026 15:51 Lima)
-
-- **Nápoles vs AS Roma en vivo en español: horarios, canales y transmisión de la Serie A 2025/26 en Estados Unidos**: [Link](https://www.dazn.com/es-MX/news/f%C3%BAtbol/napoles-vs-as-roma-vivo-espanol-horarios-canales-transmision-serie-a/1sm5ysia7cui1kn3gwmxi9q9c)
-- **Cuándo juegan Napoli vs. Como por los cuartos de final de la Copa Italia 2025-2026: equipo, fecha, hora y TV en vivo**: [Link](https://www.espn.com.ar/futbol/argentina/nota/_/id/16296173/napoli-vs-como-cuartos-copa-italia-2025-2026-equipo-fecha-hora-y-tv-en-vivo)
-- **Apuestas y Pronóstico del Napoli vs Como 10/02/26**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/2026/febrero/pronostico-napoli-vs-como-10-02-26)
-
-
-### napoli vs (N/A, 10/02/2026 15:51 Lima)
-
-- **🔴 Napoli vs Como | Official line-ups: Buongiorno, Politano, Paz, Addai**: [Link](https://ca.sports.yahoo.com/news/napoli-vs-como-official-line-191300984.html)
-- **Manna: ‘Napoli wish we had played with normal number of injuries’**: [Link](https://football-italia.net/manna-napoli-wish-we-played-normal-injuries/)
-- **Preview: Napoli vs Como - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/napoli/coppa-italia/preview/napoli-vs-como-prediction-team-news-lineups_591637.html)
 
 
