@@ -1,3 +1,72 @@
+### paris fc (N/A, 14/02/2026 15:33 Lima)
+
+- **Official Starting Lineups Announced for OM vs. Strasbourg Match**: [Link](https://www.filmogaz.com/149507)
+- **Leonardo Balerdi, its official**: [Link](https://www.surfcoastnews.com.au/sport/10961/)
+- **Mason Greenwood scores again but Marseille struggles continue**: [Link](https://www.espn.com/soccer/story/_/id/47929598/mason-greenwood-goal-marseille-held-draw-strasbourg)
+
+
+### barcelona - eibar femenino (N/A, 14/02/2026 15:33 Lima)
+
+- **Barcelona - Eibar, en directo: Liga F, hoy en vivo**: [Link](https://as.com/futbol/femenino/barcelona-eibar-en-directo-liga-f-hoy-en-vivo-f202602-n/)
+- **Pajor se reivindica en un nuevo festín culé**: [Link](https://www.lavanguardia.com/deportes/futbol-femenino/20260214/11466625/pajor-reivindica-nuevo-festin-cule.html)
+- **Fiesta culé en el Johan Cruyff**: [Link](https://ligaf.es/noticia/fiesta-cule-en-el-johan-cruyff)
+
+
+### lens vs (N/A, 14/02/2026 15:33 Lima)
+
+- **Lens predicted XI v Paris FC: Arthur Masuaku starts amid growing injury crisis**: [Link](https://sports.yahoo.com/articles/lens-predicted-xi-v-paris-094500726.html)
+- **Where to Watch Paris FC vs. RC Lens: TV Channel, Start Time and Live Stream**: [Link](https://www.bleachernation.com/how-to-watch/2026/02/13/where-to-watch-paris-fc-vs-rc-lens-tv-channel-start-time-and-live-stream/)
+- **Lens with a good chance for first place**: [Link](https://www.koha.net/en/futboll/lensi-me-mundesi-te-mire-per-vendin-e-pare)
+
+
+### real vs (N/A, 14/02/2026 15:33 Lima)
+
+- **Open Thread: 14 February 2026**: [Link](https://www.managingmadrid.com/general/103931/open-thread-14-february-2026)
+- **Real Madrid's starting lineup against Real Sociedad**: [Link](https://www.realmadrid.com/en-US/news/football/first-team/latest-news/once-inicial-del-real-madrid-ante-la-real-sociedad-14-02-2026)
+- **‘They are a difficult rival’: Courtois previews Real Sociedad clash**: [Link](https://tribuna.com/en/news/2026-02-14-they-are-a-difficult-rival-courtois-previews-real-sociedad-clash/)
+
+
+### inter vs (N/A, 14/02/2026 15:33 Lima)
+
+- **Best team in Europe? Indomitable Inter Milan could run riot vs Juventus in Derby d'Italia**: [Link](https://www.transfermarkt.com/best-team-in-europe-indomitable-inter-milan-could-run-riot-vs-juventus-in-derby-ditalia/view/news/475443)
+- **🚨 Calhanoglu, Barella, McKennie... XIs set for Inter v Juve**: [Link](https://onefootball.com/en/news/calhanoglu-barella-mckennie-xis-set-for-inter-v-juve-42410830)
+- **Inter Milan Coach Cristian Chivu Refuses To Get Involved With Contemporaries’ Complaints: ‘Referees Are Not The Problem’**: [Link](https://sempreinter.com/2026/02/14/inter-chivu-coach-referees-serie-a-problem/)
+
+
+### inter de milán (N/A, 14/02/2026 15:33 Lima)
+
+- **Cuándo juegan Inter vs. Juventus por la Serie A: equipo, fecha, hora y TV en vivo**: [Link](https://www.espn.com.pe/futbol/italia/nota/_/id/16298092/inter-vs-juventus-por-la-serie-a-equipo-fecha-hora-y-tv-en-vivo)
+- **Pronóstico Inter vs. Juventus - El clásico italiano ¿Quién lo gana?**: [Link](https://gainblers.com/pe/pronosticos/futbol/italia/serie-a/pronostico-inter-juventus-14-02-2026/)
+- **Inter vs Juventus: ¡Incrementa tus ganancias hasta 200% con la Serie A en Meridianbet!**: [Link](https://ovacion.pe/noticias/nota-promocional/inter-vs-juventus-incrementa-tus-ganancias-hasta-200-serie-meridianbet)
+
+
+### deportivo garcilaso vs (N/A, 14/02/2026 15:33 Lima)
+
+- **¡Escándalo en Cusco! Polémica expulsión a Bauman que perjudicó a ADT frente a Deportivo Garcilaso**: [Link](https://depor.com/futbol-peruano/descentralizado/polemica-liga-1-2026-deportivo-garcilaso-vs-adt-expulsion-a-jonathan-bauman-por-falta-var-video-noticia/)
+- **Mira Deportivo Garcilaso vs ADT EN VIVO y EN DIRECTO por el Torneo Apertura**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/deportivo-garcilaso-vs-adt-en-vivo-dia-hora-y-canal-para-ver-el-torneo-apertura-de-la-liga-1-2026-tdpe-noticia/)
+- **Liga 1: Por la fecha 3 se enfrentarán Deportivo Garcilaso y ADT de Tarma**: [Link](https://rpp.pe/futbol/descentralizado/liga-1-por-la-fecha-3-se-enfrentaran-deportivo-garcilaso-y-adt-de-tarma-noticia-1675720)
+
+
+### lens fc (N/A, 14/02/2026 15:33 Lima)
+
+- **Paris police order suspended, 1,000 Lens fans cleared for Paris FC v Lens**: [Link](https://onefootball.com/en/news/paris-police-order-suspended-1000-lens-fans-cleared-for-paris-fc-v-lens-42407708)
+- **Lens predicted XI v Paris FC: Arthur Masuaku starts amid growing injury crisis**: [Link](https://sports.yahoo.com/articles/lens-predicted-xi-v-paris-094500726.html)
+- **Where to Watch Paris FC vs. RC Lens: TV Channel, Start Time and Live Stream**: [Link](https://www.bleachernation.com/how-to-watch/2026/02/13/where-to-watch-paris-fc-vs-rc-lens-tv-channel-start-time-and-live-stream/)
+
+
+### paris fc - lens (N/A, 14/02/2026 15:33 Lima)
+
+- **Paris FC - Lens : après l'OM, une invasion lensoise en vue à Jean-Bouin ?**: [Link](https://www.onzemondial.com/ligue-1/paris-fc-lens-apres-lom-une-invasion-lensoise-en-vue-a-jean-bouin-980237)
+- **22e journée de Ligue 1 : Suivez le match Paris FC - RC Lens EN DIRECT**: [Link](https://www.eurosport.fr/football/ligue-1/2025-2026/live-paris-fc-rc-lens_mtc1609509/live-commentary.shtml)
+- **Paris FC – Lens : Nidal Celik titulaire d’entrée pour ses premières minutes en pro**: [Link](https://www.lavoixdunord.fr/1674977/article/2026-02-14/paris-fc-lens-nidal-celik-titulaire-d-entree-pour-ses-premieres-minutes-en-pro)
+
+
+### ajax vs (N/A, 14/02/2026 15:33 Lima)
+
+- **How to watch today's Ajax vs Fortuna Sittard Eredivisie game: Live stream, TV channel, and start time**: [Link](https://www.goal.com/en-ca/news/how-to-watch-ajax-v-fortuna-sittard-15022026/bltaced50a876ca7556)
+- **Preview: Ajax vs. Fortuna Sittard - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/ajax/preview/ajax-vs-sittard-prediction-team-news-lineups_591862.html)
+
+
 ### trabzonspor - fenerbahçe (N/A, 14/02/2026 11:37 Lima)
 
 - **Sadettin Saran derbi öncesi Kerem Aktürkoğlu ile özel görüştü**: [Link](https://www.yenicaggazetesi.com/sadettin-saran-derbi-oncesi-kerem-akturkoglu-ile-ozel-gorustu-1001222h.htm)
@@ -960,75 +1029,5 @@ Sin noticias relacionadas disponibles.
 - **Samsung desvelará el Galaxy S26 el próximo 25 de febrero**: [Link](https://ahora.com.pe/samsung-desvelara-el-galaxy-s26-el-proximo-25-de-febrero/)
 - **El Samsung S26 Ultra será la decepción del 2026 si se confirman estas dos filtraciones: sin carga magnética y batería insuficiente**: [Link](https://libero.pe/tecnologia/2026/02/07/samsung-s26-ultra-filtraciones-cuando-sale-caracteristicas-precio-en-estados-unidos-bateria-carga-magnetica-camara-pantalla-precio-peru-mexico-276297)
 - **Samsung revela nueva característica del Galaxy S26 Ultra que promete dejar en ridículo al iPhone 17 Pro Max**: [Link](https://libero.pe/tecnologia/2026/02/04/samsung-revela-nueva-caracteristica-del-galaxy-s26-ultra-promete-dejar-en-ridiculo-iphone-17-pro-max-samsung-s26-ultra-112260)
-
-
-### hola (N/A, 11/02/2026 08:22 Lima)
-
-- **Sebastián Rulli revela qué tiene Angelique Boyer de la personalidad de Doménica Montero**: [Link](https://www.hola.com/us-es/celebrities/20260210883199/sebastian-rulli-revela-angelique-boyer-personalidad-domenica-montero/)
-- **Angelique Boyer comparte fotos inéditas de 'Doménica Montero' y Sebastián Rulli reacciona: "Eres y estás espectacular"**: [Link](https://www.lasestrellas.tv/famosos/angelique-boyer-comparte-fotos-ineditas-de-domenica-montero-y-sebastian-rulli-reacciona-eres-y-estas-espectacular)
-- **Para San Valentín, esta “manicura romántica” está causando sensación en las redes sociales.**: [Link](https://www.ma-grande-taille.com/es/beaute/maquillage/la-manicura-romantica-de-san-valentin-esta-causando-sensacion-en-las-redes-sociales-434440)
-
-
-### humbe concierto (N/A, 11/02/2026 08:22 Lima)
-
-- **Humbe, el fenómeno de las redes sociales, llega a Lima con su tour 'Dueño del cielo'**: [Link](https://rpp.pe/musica/conciertos/humbe-el-fenomeno-de-las-redes-sociales-llega-a-lima-con-su-tour-dueno-del-cielo-noticia-1675088)
-- **Humbe en Lima 2026: Fecha, lugar y precios de entradas**: [Link](https://www.americatv.com.pe/noticias/espectaculos/humbe-llega-lima-su-tour-dueno-cielo-costa-21-n515667)
-- **Humbe confirma su regreso a Perú como parte de su gira “Dueño de los cielos tour”**: [Link](https://elcomercio.pe/luces/musica/humbe-confirma-su-regreso-a-peru-como-parte-de-su-gira-dueno-de-los-cielos-tour-celebs-ultimas-noticia/)
-
-
-### lakers - spurs (N/A, 11/02/2026 08:22 Lima)
-
-- **Victor Wembanyama’s historic first half tops Tim Duncan, sparks massive NBA reactions**: [Link](https://www.thenews.com.pk/latest/1391886-victor-wembanyama-s-historic-first-half-tops-tim-duncan-sparks-massive-nba-reactions)
-- **It marked only the fifth instance in the shot clock …**: [Link](https://www.hoopshype.com/story/sports/nba/rumors/2026/02/11/it-marked-only-the-fifth-instance-in-the-shot-clock/88620765007/)
-- **Short-handed Lakers fall to Spurs after Victor Wembanyama scores 40**: [Link](https://nypost.com/2026/02/11/sports/victor-wembanyama-scores-40-points-in-spurs-win-over-lakers/)
-
-
-### tigres - forge fc (N/A, 11/02/2026 03:56 Lima)
-
-- **Tigres UANL venció 4-1 a Forge y clasificó a octavos de final de Copa de Campeones Concacaf | RESUMEN Y GOLES**: [Link](https://elcomercio.pe/deporte-total/mexico/tigres-vs-forge-en-vivo-hoy-gratis-via-fox-one-disney-plus-a-que-hora-juegan-canal-de-transmision-y-donde-ver-por-copa-de-campeones-concacaf-video-noticia/)
-- **Qué canal pasa Tigres vs Forge hoy: dónde ver GRATIS y EN VIVO la Champions Cup**: [Link](https://www.365scores.com/es/news/tigres-vs-forge-donde-ver-gratis-canal/)
-- **4-1: El Tigres de Ángel Correa, a octavos de final por la puerta grande**: [Link](https://www.mundodeportivo.com/futbol/america/20260211/1002618606/4-1-tigres-angel-correa-octavos-final-puerta-grande.html)
-
-
-### nancy guthrie (N/A, 11/02/2026 00:38 Lima)
-
-- **Live updates: Nancy Guthrie’s disappearance, person detained for questioning after surveillance video released**: [Link](https://www.cnn.com/us/live-news/nancy-guthrie-savannah-missing-mom-02-10-26)
-- **PCSD confirms one detained in Nancy Guthrie case**: [Link](https://www.kold.com/2026/02/03/we-gotta-find-her-dna-samples-taken-nancy-guthries-home-belong-her-pcsd-says/)
-- **FBI says it’s unaware of Savannah Guthrie talking with her mom’s suspected kidnappers**: [Link](https://apnews.com/article/savannah-guthrie-mom-missing-ransom-deadline-arizona-3977f842fd3d1fd66952d1d763944b9d)
-
-
-### último sismo hoy perú (N/A, 11/02/2026 00:38 Lima)
-
-- **Temblor en el Perú hoy: sismo de magnitud 4.4 en Chimbote no ocasiona daños**: [Link](https://andina.pe/agencia/noticia-temblor-el-peru-hoy-sismo-magnitud-44-chimbote-no-ocasiona-danos-1062633.aspx)
-- **Temblor en Perú, hoy 10 de febrero: magnitud y epicentro del sismo según IGP**: [Link](https://rpp.pe/lima/desastres-naturales/temblor-en-peru-hoy-10-de-febrero-magnitud-y-epicentro-del-sismo-segun-igp-live-3172)
-- **Temblor en Puno: sismo de magnitud 4,6 se sintió en Carabaya, según IGP**: [Link](https://larepublica.pe/sociedad/2026/02/10/temblor-en-puno-sismo-de-magnitud-46-se-sintio-en-carabaya-segun-igp-552550)
-
-
-### latina (N/A, 11/02/2026 00:38 Lima)
-
-- **La pugna entre China y EE. UU. se traslada a América Latina, advierte Mirko Lauer**: [Link](https://larepublica.pe/opinion/2026/02/10/la-pugna-entre-china-y-ee-uu-se-traslada-a-america-latina-advierte-mirko-lauer-hnews-414576)
-- **América Latina entre dos imperios, por Mirko Lauer**: [Link](https://larepublica.pe/opinion/2026/02/10/america-latina-entre-dos-imperios-por-mirko-lauer-hnews-371259)
-- **A Deborah Poole, referente de la antropología en América Latina**: [Link](https://otramirada.pe/deborah-poole-referente-de-la-antropolog%C3%ADa-en-am%C3%A9rica-latina)
-
-
-### billetera digital (N/A, 11/02/2026 00:38 Lima)
-
-- **Yape tendrá nueva competencia: Novedosa billetera digital es autorizada por la SBS**: [Link](https://www.infobae.com/peru/2026/02/10/yape-tendra-nueva-competencia-nueva-billetera-digital-es-autorizada-por-la-sbs/)
-- **Bitel entra en la carrera para competir con Yape y Plin**: [Link](https://gestion.pe/tu-dinero/bitel-entra-en-la-carrera-para-competir-con-yape-y-plin-noticia/)
-- **BiPay obtiene luz verde para operar como emisora de dinero electrónico**: [Link](https://rpp.pe/economia/economia/bipay-billetera-digital-de-bitel-operara-como-emisora-de-dinero-electronico-como-funcionara-noticia-1675253)
-
-
-### yo soy (N/A, 11/02/2026 00:38 Lima)
-
-- **Yo Soy castings 2026: ¡Voces icónicas aseguran su pase a la ronda final!**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-castings-2026-voces-iconicas-aseguran-su-pase-a-la-ronda-final_20260210/)
-- **Yo Soy castings 2026: Finalistas deslumbran en audiciones**: [Link](https://elcongresista.mx/espectaculos/yo-soy-castings-2026-finalistas-audiciones/)
-- **Yo Soy castings 2026: ¡Primera ronda de clasificados a conciertos!**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-castings-2026-primera-ronda-de-clasificados-a-conciertos_20260210/)
-
-
-### spurs - lakers (N/A, 11/02/2026 00:38 Lima)
-
-- **Spurs vs Lakers Odds & Picks Tonight: Contrarian OVER Play**: [Link](https://www.oddsshark.com/nba/spurs-lakers-picks-odds-february-10-2026)
-- **Lakers-Spurs free livestream: How to watch NBA game tonight, TV, time**: [Link](https://www.al.com/tv/2026/02/lakers-spurs-free-livestream-how-to-watch-nba-game-tonight-tv-time.html)
-- **DraftKings Promo Code: Bet $5, Get $200 if Your Spurs vs Lakers, Any Other NBA Bet Wins**: [Link](https://www.foxsports.com/stories/betting/draftkings-promo-code-bet-5-get-200-your-spurs-vs-lakers-any-other-nba-bet-wins)
 
 
