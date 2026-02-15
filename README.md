@@ -1,3 +1,66 @@
+### aniversario de alianza lima (N/A, 15/02/2026 00:21 Lima)
+
+- **Alianza Lima: Treinta años sin ídolos**: [Link](https://peru21.pe/opinion/alianza-lima-treinta-anos-sin-idolos/)
+- **Fernando Cabada, administrador de Alianza: “Nuestro objetivo esencial este año es la Liga 1; tenemos en la sangre la obligación de campeonar en nuestro 125 aniversario”**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/fernando-cabada-administrador-de-alianza-lima-nuestro-objetivo-esencial-este-ano-es-la-liga-1-tenemos-en-la-sangre-la-obligacion-de-campeonar-en-nuestro-125-aniversario-tlcnota-noticia/)
+- **Alianza Lima celebró sus 125 años en medio de eliminació copera**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/alianza-lima-celebro-sus-125-anos-medio-eliminacio-copera-n452696)
+
+
+### laura pausini (N/A, 15/02/2026 00:21 Lima)
+
+- **"Il Festival è una storia importante per il Paese”**: [Link](https://www.ecodisavona.it/il-festival-e-una-storia-importante-per-il-paese/)
+- **Sanremo celebra gli 80 anni della Repubblica, sul palco una donna che votò il 2 giugno 1946**: [Link](https://www.famigliacristiana.it/cultura-e-spettacoli/musica/sanremo-2026-quirinale-mattarella-carlo-conti-80-anni-repubblica-avn19k7l)
+- **Sconocchia commenta le parole di Mattarella: «Orgogliosi che la musica popolare contemporanea sia stata riconosciuta come ricchezza culturale del Paese»**: [Link](https://www.lopinionista.it/sconocchia-commenta-le-parole-di-mattarella-orgogliosi-che-la-musica-popolare-contemporanea-sia-stata-riconosciuta-come-ricchezza-culturale-del-nostro-paese-221895.html)
+
+
+### cal (N/A, 15/02/2026 00:21 Lima)
+
+- **Cal Poly defeats UCSB 89-79**: [Link](https://www.cbssports.com/college-basketball/news/cal-poly-defeats-ucsb-89-79/)
+- **Mustangs Overwhelm UC Santa Barbara in 89-79 Victory**: [Link](https://gopoly.com/news/2026/2/14/mens-basketball-mustangs-overwhelm-uc-santa-barbara-in-89-79-victory)
+- **UCSB vs Cal Poly Women’s College Basketball Odds and Prediction – Feb. 14**: [Link](https://www.bleachernation.com/picks/2026/02/13/ucsb-vs-cal-poly-womens-college-basketball-odds-and-prediction-feb-14/)
+
+
+### pasto - internacional de bogotá (N/A, 15/02/2026 00:21 Lima)
+
+- **Deportivo Pasto vs Internacional de Bogotá hoy: Resultado EN VIVO, minuto a minuto y goles del partido**: [Link](https://www.365scores.com/es/news/pasto-vs-inter-bogota-resultado-vivo/)
+- **¡Aplausos! Deportivo Pasto e Internacional de Bogotá demuestran por qué lideran la liga**: [Link](https://www.clarosports.com/colombia/liga-bet-play/deportivo-pasto-vs-internacional-de-bogota-en-vivo-la-liga-betplay-dimayor-2026-i-resultado-y-goles-de-la-jornada-7/)
+- **Cómo quedó la tabla de posiciones de Liga BetPlay I-2026, tras Pasto 1-1 Internacional de Bogotá**: [Link](https://www.noticiascaracol.com/golcaracol/futbol-colombiano/como-quedo-la-tabla-de-posiciones-de-liga-betplay-i-2026-tras-pasto-1-1-internacional-de-bogota-so35)
+
+
+### resultado de alianza lima (N/A, 15/02/2026 00:21 Lima)
+
+- **Pablo Guede y otro resultado que le suma cuestionamientos en Alianza Lima**: [Link](https://espndeportes.espn.com/futbol/peru/nota/_/id/16316426/pablo-guede-y-otro-resultado-que-le-suma-cuestionamientos-en-alianza-lima)
+- **¿Pablo Guede seguirá en Alianza Lima? Franco Navarro Jr. aclaró el panorama tras la eliminación**: [Link](https://depor.com/futbol-peruano/descentralizado/alianza-lima-pablo-guede-se-va-o-no-franco-navarro-jr-hablo-sobre-su-continuidad-y-la-del-dt-argentino-tras-eliminacion-liga-1-2026-video-noticia/)
+- **Encuesta Bolavip: los hinchas de Alianza Lima sentencian el futuro de Pablo Guede**: [Link](https://bolavip.com/pe/alianza-lima/encuesta-bolavip-los-hinchas-de-alianza-lima-sentencian-el-futuro-de-pablo-guede)
+
+
+### guadalajara - américa (N/A, 15/02/2026 00:21 Lima)
+
+- **🟢 Telemundo Deportes Ahora EN VIVO GRATIS |mira el clásico Chivas de Guadalajara vs. América EN DIRECTO**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/telemundo-deportes-ahora-en-vivo-gratis-como-ver-partido-chivas-de-guadalajara-vs-club-america-por-peacock-tv-y-futbol-online-en-eeuu-nnda-nnrt-noticia/)
+- **Raphael Veiga hoy: Por qué no juega el Clásico Nacional entre Chivas vs América**: [Link](https://www.365scores.com/es/news/raphael-veiga-no-juega-clasico-nacional/)
+- **¿En qué canales de TV pasan Chivas vs. América, por el Clásico Nacional?**: [Link](https://depor.com/mexico/liga-mx/chivas-vs-america-en-vivo-canales-de-tv-fecha-horarios-y-como-ver-clasico-nacional-via-prime-video-telemundo-futbol-libre-tv-liga-mx-noticia/)
+
+
+### tabla de posiciones liga 1 (N/A, 15/02/2026 00:21 Lima)
+
+- **Tabla de posiciones de Liga 1 2026 EN VIVO: partidos y resultados de la fecha 3 del Torneo Apertura**: [Link](https://depor.com/futbol-peruano/descentralizado/tabla-de-posiciones-de-la-liga-1-peru-2026-en-vivo-hoy-partidos-programacion-y-resultados-fecha-3-torneo-apertura-universitario-vs-cienciano-alianza-lima-vs-alianza-atletico-sporting-cristal-vs-juan-pablo-ii-noticia/)
+- **Tabla de posiciones de la Liga 1 2026: partidos y resultados de la fecha 3 del Torneo Apertura**: [Link](https://libero.pe/futbol-peruano/liga-1/2026/02/13/tabla-de-posiciones-torneo-apertura-en-fecha-3-de-liga-1-peru-249456)
+- **Programación fecha 03 del Torneo Apertura Liga1 Te Apuesto**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/programacion-fecha-03-torneo-apertura-liga1-te-apuesto-n452693)
+
+
+### belgrano vs (N/A, 15/02/2026 00:21 Lima)
+
+- **¿Dónde ver EN VIVO y ONLINE Independiente Rivadavia vs. Belgrano por el Torneo Apertura 2026?**: [Link](https://onefootball.com/de/news/donde-ver-en-vivo-y-online-independiente-rivadavia-vs-belgrano-por-el-torneo-apertura-2026-42412165)
+- **El uno por uno de la derrota de la Lepra**: [Link](https://www.elsol.com.ar/deportes/el-uno-por-uno-de-la-derrota-de-la-lepra/)
+- **Con gol del Mudo Vázquez, Belgrano le gana a Independiente en Mendoza**: [Link](https://www.cadena3.com/noticia/belgrano/con-gol-del-mudo-vazquez-belgrano-le-gana-a-independiente-en-mendoza_519509)
+
+
+### alianza lima versus (N/A, 15/02/2026 00:21 Lima)
+
+- **Abren investigación a Gonzalo Núñez por supuesto delito de discriminación en agravio de jugador de fútbol**: [Link](https://lpderecho.pe/abren-investigacion-gonzalo-nunez-por-supuesto-delito-discriminacion-agravio-jugador-futbol/)
+- **Alianza Lima condena racismo de Gonzalo Núñez a Eryc Castillo y exige disculpas**: [Link](https://peru21.pe/deportes/alianza-lima-condena-racismo-de-gonzalo-nunez-eryc-castillo-y-exige-disculpas/)
+- **Alianza Lima condena declaraciones racistas contra Eryc Castillo**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/alianza-lima-condena-declaraciones-racistas-contra-eryc-castillo-noticia/)
+
+
 ### vasco da gama (N/A, 14/02/2026 21:47 Lima)
 
 - **Diniz define escalação do Vasco para duelo com Volta Redonda**: [Link](https://www.portaltela.com/esporte/futebol/2026/02/14/diniz-define-escalacao-do-vasco-para-duelo-com-volta-redonda/)
@@ -966,68 +1029,5 @@ Sin noticias relacionadas disponibles.
 - **'Dawson's Creek' Star James Van Der Beek Dead at 48**: [Link](https://www.tmz.com/2026/02/11/james-van-der-beek-dead/)
 - **Stars React to James Van Der Beek’s Death**: [Link](https://www.justjared.com/2026/02/11/stars-react-to-james-van-der-beeks-death/)
 - **James Van Der Beek’s life in photos: Remembering the actor before his death at 48**: [Link](https://pagesix.com/2026/02/11/photos/james-van-der-beeks-life-in-photos-remembering-the-actor-before-his-death-at-48/)
-
-
-### celtic (N/A, 11/02/2026 15:45 Lima)
-
-- **Rangers v Celtic Scottish Cup quarter-final date and kick-off time revealed as fans left in dark over ticket allocation**: [Link](https://www.thescottishsun.co.uk/sport/15911553/rangers-celtic-scottish-cup-date-kick-off-time-tickets/)
-- **Julian Aurajo finally said what fans have been whispering about Ibrox allocation**: [Link](https://thecelticbhoys.com/julian-aurajo-finally-said-what-fans-have-been-whispering-about-ibrox-allocation-01kh6jnb8mt0)
-- **Scottish Gas Men's Scottish Cup Quarter-Finals fixture details confirmed**: [Link](https://www.scottishfa.co.uk/news/scottish-gas-mens-scottish-cup-quarter-finals-fixture-details-confirmed/)
-
-
-### milagros jauregui (N/A, 11/02/2026 15:45 Lima)
-
-- **Denuncian penalmente a Milagros Jáuregui por niñas víctimas de violación forzadas a gestar en su refugio**: [Link](https://www.infobae.com/peru/2026/02/10/denuncian-penalmente-a-milagros-jauregui-por-ninas-victimas-de-violacion-forzadas-a-gestar-en-su-refugio/)
-- **Congresista Milagros Jauregui dice que ya no pertenece al directorio de la casa refugio de víctimas de violación**: [Link](https://elcomercio.pe/lima/sucesos/congresista-milagros-jauregui-dice-que-ya-no-pertenece-al-directorio-de-la-casa-refugio-de-victimas-de-violacion-ultimas-noticia/)
-- **Cuando mezclan la religión con la política**: [Link](https://peru21.pe/opinion/cuando-mezclan-la-religion-con-la-politica-richard-arce/)
-
-
-### real sociedad (N/A, 11/02/2026 15:45 Lima)
-
-- **Cuándo juegan Athletic vs. Real Sociedad por la Copa del Rey: equipo, fecha, hora y TV en vivo**: [Link](https://www.espn.com.ar/futbol/espana/nota/_/id/16293397/cuando-juegan-athletic-vs-real-sociedad-por-la-copa-del-rey-equipo-fecha-hora-y-tv-en-vivo)
-- **Obtén una Apuesta Segura del 50% de OlyBet para el partido Athletic vs Real Sociedad hasta el 11 de febrero de 2026**: [Link](https://legalbet.es/bonos/olybet-apuesta-segura-para-el-partido-athletic-bilbao-vs-real-sociedad/)
-- **🔴Athletic y Real Sociedad: Se igualan las fuerzas en la Catedral**: [Link](https://onefootball.com/es/noticias/athletic-y-real-sociedad-se-igualan-las-fuerzas-en-la-catedral-42394603)
-
-
-### celtic f. c. - livingston (N/A, 11/02/2026 15:45 Lima)
-
-- **Celtic starting XI to face Livingston at Paradise**: [Link](https://www.celticfc.com/news/2026/february/11/celtic-starting-xi-to-face-livingston-at-paradise/)
-- **Scottish Premiership Betting Tips for Wednesday 11th February**: [Link](https://news.williamhill.com/football/scottish-premiership-predictions-for-wednesday-11th-february-2026/)
-- **Team’s Up – Saracchi starts for Celtic, Oxlade-Chamberlain poised for debut**: [Link](https://thecelticstar.com/teams-up-saracchi-starts-for-celtic-oxlade-chamberlain-poised-for-debut/)
-
-
-### copa alemana (N/A, 11/02/2026 15:45 Lima)
-
-- **Cuándo juegan Bayern vs Leipzig por los cuartos de final de Copa de Alemania: equipo, fecha, hora y TV en vivo**: [Link](https://espndeportes.espn.com/futbol/alemania/nota/_/id/16292466/bayern-vs-leipzig-cuartos-de-final-copa-alemania-equipo-fecha-hora-y-tv-en-vivo)
-- **Apuestas y Pronóstico del Bayern Munich vs RB Leipzig 11/02/26**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/2026/febrero/pronostico-bayern-munich-vs-rb-leipzig-11-02-26)
-- **Bayern vs. Leipzig EN VIVO: ver gratis ESPN y Disney Plus por internet con Luis Díaz**: [Link](https://depor.com/colombia/colombianos-en-el-mundo/bayern-vs-leipzig-en-vivo-hoy-gratis-espn-futbol-libre-tv-disney-plus-con-luis-diaz-en-directo-por-internet-copa-de-alemania-dfb-pokal-video-noticia/)
-
-
-### premier league (N/A, 11/02/2026 15:45 Lima)
-
-- **The best training snaps ahead of trip to Brentford | Gallery | News**: [Link](https://www.arsenal.com/news/best-training-snaps-ahead-trip-brentford)
-- **Arteta plays down ‘new manager bounce’ & says schedule is ‘natural’**: [Link](https://arseblog.news/2026/02/arteta-plays-down-new-manager-bounce-says-schedule-is-natural/)
-- **Brentford vs Arsenal Betting Tips & Offers: Get £200+ in free bets**: [Link](https://mybettingsites.co.uk/news/brentford-vs-arsenal-betting-tips-amp-offers-get-200-in-free-bets-amp-back-17-2-bet-builder-11-feb/)
-
-
-### city (N/A, 11/02/2026 15:45 Lima)
-
-- **La aplastante racha de Marco Silva, DT del Fulham, ante Guardiola**: [Link](https://www.espn.com.ar/futbol/inglaterra/nota/_/id/16301675/manchester-city-vs-fulham-mala-racha-marco-silva-guardiola-raul-jimenez)
-- **Apuestas y Pronóstico del Manchester City vs Fulham 11/02/26**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/2026/febrero/pronostico-manchester-city-vs-fulham-11-02-26)
-- **Manchester City - Fulham, en directo: Premier League, en vivo hoy**: [Link](https://as.com/futbol/internacional/manchester-city-fulham-en-directo-premier-league-en-vivo-hoy-f202602-d/)
-
-
-### james van der beek (N/A, 11/02/2026 15:45 Lima)
-
-- **Acteur James Van Der Beek, vooral bekend van ‘Dawson’s Creek’, op 48-jarige leeftijd overleden**: [Link](https://www.volkskrant.nl/cultuur-media/acteur-james-van-der-beek-vooral-bekend-van-dawson-s-creek-op-48-jarige-leeftijd-overleden~b8659dcc/)
-- **Amerikaanse acteur James Van Der Beek (48) overleden**: [Link](https://www.haarlemsdagblad.nl/buitenland/amerikaanse-acteur-james-van-der-beek-48-overleden/131250069.html)
-- **Dawson's Creek-acteur James Van Der Beek (48) overleden aan darmkanker**: [Link](https://www.nu.nl/entertainment/6385728/dawsons-creek-acteur-james-van-der-beek-48-overleden-aan-darmkanker.html)
-
-
-### el salvador (N/A, 11/02/2026 12:09 Lima)
-
-- **De una hora a 15 minutos: El metrocable busca reducir el tráfico en San Salvador**: [Link](https://www.infobae.com/el-salvador/2026/02/11/de-una-hora-a-15-minutos-el-metrocable-busca-reducir-el-trafico-en-san-salvador/)
-- **Residentes de la Zacamil, en incertidumbre por construcción del metrocable - La Prensa Gráfica**: [Link](https://www.laprensagrafica.com/elsalvador/residentes-de-la-zacamil-en-incertidumbre-por-construccion-del-metrocable-20260210-0068.html)
-- **El 16 de febrero inician obras del metrocable en Zacamil**: [Link](https://www.elsalvador.com/noticias/nacional/bras-metrocable-zacamil-inician-16-febrero/1261961/2026/)
 
 
