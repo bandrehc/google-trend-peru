@@ -1,3 +1,17 @@
+### san valentín frases cortas amistad (N/A, 15/02/2026 03:39 Lima)
+
+- **💛 Las mejores 300 frases bonitas del 14 de febrero para enviar en San Valentín y el Día del Amor y la Amistad**: [Link](https://gestion.pe/mix/respuestas/300-frases-creativas-del-14-de-febrero-para-celebrar-san-valentin-2026-con-mensajes-bonitos-sobre-el-amor-y-la-amistad-whatsapp-canva-pinterest-nnda-nnrt-noticia/)
+- **❤️‍🔥 Más de 20 tarjetas del Día del Amor y la Amistad 2026 para enviar a tu novia este 14 de febrero**: [Link](https://elcomercio.pe/mag/respuestas/20-tarjetas-creativas-por-el-dia-del-amor-y-la-amistad-2026-para-compartir-el-14-de-febrero-con-mensajes-romanticos-y-saludos-bonitos-whatsapp-pinterest-nnda-nnrt-noticia/)
+- **¡Toma nota! Los mensajes de San Valentín que harán que tu pareja se enamore de ti otra vez**: [Link](https://www.besame.fm/2026/toma-nota-los-mensajes-de-san-valentin-que-haran-que-tu-pareja-se-enamore-de-ti-otra-vez-236860.html)
+
+
+### alianza (N/A, 15/02/2026 03:39 Lima)
+
+- **Pablo Guede y otro resultado que le suma cuestionamientos en Alianza Lima**: [Link](https://espndeportes.espn.com/futbol/peru/nota/_/id/16316426/pablo-guede-y-otro-resultado-que-le-suma-cuestionamientos-en-alianza-lima)
+- **Franco Navarro y la prioridad de Alianza Lima: "Nos lo pusieron clarito desde que empezó el año: ser campeones en el 2026"**: [Link](https://rpp.pe/futbol/descentralizado/franco-navarro-y-la-prioridad-de-alianza-lima-nos-lo-pusieron-clarito-desde-que-empezo-el-ano-ser-campeones-en-el-2026-noticia-1675732)
+- **Encuesta Bolavip: los hinchas de Alianza Lima sentencian el futuro de Pablo Guede**: [Link](https://bolavip.com/pe/alianza-lima/encuesta-bolavip-los-hinchas-de-alianza-lima-sentencian-el-futuro-de-pablo-guede)
+
+
 ### aniversario de alianza lima (N/A, 15/02/2026 00:21 Lima)
 
 - **Alianza Lima: Treinta años sin ídolos**: [Link](https://peru21.pe/opinion/alianza-lima-treinta-anos-sin-idolos/)
@@ -1015,19 +1029,5 @@ Sin noticias relacionadas disponibles.
 - **Ex Universitario dio contundente opinión sobre Federico Girotti en Alianza: "Un delantero que no..."**: [Link](https://libero.pe/futbol-peruano/alianza-lima/2026/02/11/federico-girotti-ex-universitario-dio-contundente-opinion-jugador-en-alianza-lima-delantero-video-917653)
 - **Carlos Galván comparó a Girotti con Barcos tras derrota de Alianza Lima: "No puede ni atarle los pasadores"**: [Link](https://willax.pe/deportes/carlos-galvan-critica-federico-girotti-hernan-barcos-willax)
 - **Carlos Galván apuntó contra Federico Girotti por fallar goles con Alianza Lima y lo compara con Hernán Barcos: “No puede ni atarle los pasadores”**: [Link](https://larepublica.pe/deportes/2026/02/05/carlos-galvan-apunto-contra-federico-girotti-por-fallar-goles-con-alianza-lima-y-lo-compara-con-hernan-barcos-no-puede-ni-atarle-los-pasadores-482265)
-
-
-### antoine semenyo (N/A, 11/02/2026 15:45 Lima)
-
-- **Leeds United rival Tottenham & Aston Villa for player hailed “incredible” by Guardiola**: [Link](https://www.caughtoffside.com/2026/02/06/leeds-james-trafford-transfer/)
-- **Arsenal vs Man City Carabao Cup Final tickets have been released early**: [Link](https://www.express.co.uk/sport/football/2168557/carabao-cup-final-tickets-arsenal-manchester-city)
-- **Does Arteta the apprentice now have the upper hand over Pep ahead of final?**: [Link](https://www.thesun.co.uk/sport/38125730/arsenal-man-city-arteta-guardiola-league-cup/)
-
-
-### dawson creek (N/A, 11/02/2026 15:45 Lima)
-
-- **'Dawson's Creek' Star James Van Der Beek Dead at 48**: [Link](https://www.tmz.com/2026/02/11/james-van-der-beek-dead/)
-- **Stars React to James Van Der Beek’s Death**: [Link](https://www.justjared.com/2026/02/11/stars-react-to-james-van-der-beeks-death/)
-- **James Van Der Beek’s life in photos: Remembering the actor before his death at 48**: [Link](https://pagesix.com/2026/02/11/photos/james-van-der-beeks-life-in-photos-remembering-the-actor-before-his-death-at-48/)
 
 
