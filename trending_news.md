@@ -1,3 +1,72 @@
+### gimnasia - estudiantes (N/A, 15/02/2026 15:33 Lima)
+
+- **El historial entre Estudiantes y Gimnasia: quién ganó más partidos en el clásico de La Plata**: [Link](https://espndeportes.espn.com/futbol/argentina/nota/_/id/15048128/el-historial-estudiantes-vs-gimnasia-quien-gano-mas-partidos-clasico-la-plata)
+- **LA PLATA HACE LA FELICIDAD**: [Link](https://www.pressreader.com/argentina/ole/20260215/282316801493607)
+- **La fiesta de la ciudad: ¿Cómo será el operativo de seguridad y qué elemento se habilitó por el clima?**: [Link](https://www.laplata1.com/2026-02-15/la-fiesta-de-la-ciudad-como-sera-el-operativo-de-seguridad-y-que-elemento-se-habilito-por-el-clima-122170/)
+
+
+### comerciantes unidos (N/A, 15/02/2026 15:33 Lima)
+
+- **Comerciantes Unidos vs Chankas en vivo: a qué hora y dónde ver el Torneo Apertura**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/comerciantes-unidos-vs-chankas-en-vivo-hora-y-donde-ver-el-torneo-apertura-2026-de-la-liga-1-transmision-resumen-y-goles-l1play-l1max-tdpe-noticia/)
+- **🔴#ENVIVO | Sigue las incidencias del partido entre Comerciantes Unidos y Los Chankas**: [Link](https://ovacion.pe/noticias/liga1-2026/envivo-sigue-las-incidencias-del-partido-entre-comerciantes-unidos-chankas)
+- **Liga 1: Comerciantes Unidos y Los Chankas se encuentran en la fecha 3**: [Link](https://rpp.pe/futbol/descentralizado/liga-1-comerciantes-unidos-y-los-chankas-se-encuentran-en-la-fecha-3-noticia-1675891)
+
+
+### lyon vs (N/A, 15/02/2026 15:33 Lima)
+
+- **La Ligue 1 reduce la suspensión a Endrick por su roja con Lyon**: [Link](https://www.espn.com.pe/futbol/francia/nota/_/id/16305111/endrick-ligue-1-reduce-suspension-roja-lyon)
+- **Endrick se salva de la sanción a pesar de haber sido expulsado**: [Link](https://www.flashscore.pe/noticias/futbol-ligue-1-el-comite-disciplinario-de-la-ligue-1-anula-la-tarjeta-roja-de-endrick/nZVK1bXq/)
+- **Endrick fue expulsado en la victoria de Lyon en la Ligue 1**: [Link](https://www.espn.com.pe/futbol/francia/nota/_/id/16284464/video-endrick-expulsion-roja-lyon-victoria-vs-nantes-ligue-1)
+
+
+### mallorca vs (N/A, 15/02/2026 15:33 Lima)
+
+- **Mallorca empfängt Real Betis zum Heimspiel**: [Link](https://www.inselradio.com/aktuell/news/sport/2026/02/mallorca-empfaengt-betis-zum-heimspiel-in-son-moix)
+- **15.02.2026 – Real Mallorca vs. Real Betis**: [Link](https://www.mallorca-services.es/15-02-2026-real-mallorca-vs-real-betis/)
+
+
+### napoli vs (N/A, 15/02/2026 15:33 Lima)
+
+- **Zaragoza ready to replace Soule in Roma’s XI vs Napoli**: [Link](https://romapress.net/zaragoza-ready-to-replace-soule-in-romas-xi-vs-napoli/)
+- **Six Points and No Mercy: Roma’s Season on Trial in Naples**: [Link](https://www.chiesaditotti.com/roma-matchday-coverage/39714/six-points-and-no-mercy-romas-season-on-trial-in-naples)
+- **Dybala Sidelined Again as Roma Faces Crucial Clash**: [Link](https://www.ilmessaggero.it/en/dybala_sidelined_again_as_roma_faces_crucial_clash-9359987.html)
+
+
+### napoles vs (N/A, 15/02/2026 15:33 Lima)
+
+- **Serie A: Napoli recibe a Roma para disputar el "Derby Del Sole"**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-napoli-recibe-a-roma-para-disputar-el-derby-del-sole-noticia-1675887)
+- **Apuestas y pronósticos Nápoles vs Roma**: [Link](https://www.marca.com/apuestas-deportivas/predicciones/2026/02/14/apuestas-pronosticos-napoles-vs-roma.html)
+- **Napoli vs Roma: ¡Incrementa tus ganancias hasta 200% con la Serie A en Meridianbet!**: [Link](https://ovacion.pe/noticias/nota-promocional/napoli-vs-roma-incrementa-tus-ganancias-hasta-200-serie-meridianbet)
+
+
+### ben shelton (N/A, 15/02/2026 15:33 Lima)
+
+- **Finals previews and predictions: Fritz vs. Shelton, Cerundolo vs. Darderi**: [Link](https://tenngrand.com/tennis-previews-predictions-fritz-vs-shelton-cerundolo-vs-darderi/)
+- **ATP Dallas: Cilic out of final, Fritz better in two tie-breaks**: [Link](https://www.portal.hr/en/novosti/sport-hr/105112-atp-dallas-cilic-bez-finala-fritz-bolji-u-dva-tie-breaka)
+- **Taylor Fritz survives injury scare to enter semis in Dallas Open**: [Link](https://www.sentinelassam.com/sports-news/taylor-fritz-survives-injury-scare-to-enter-semis-in-dallas-open)
+
+
+### r.c.d. mallorca - real betis (N/A, 15/02/2026 15:33 Lima)
+
+- **Apuestas y Pronóstico del Mallorca vs Real Betis 15/02/26**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2026/febrero/pronostico-mallorca-vs-real-betis-15-02-26)
+- **LaLiga EA Sports: Betis se enfrentará a Mallorca por la fecha 24**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-betis-se-enfrentara-a-mallorca-por-la-fecha-24-noticia-1675890)
+- **Arrasate y Pellegrini salen con lo previsto en Son Moix**: [Link](https://www.infobae.com/espana/agencias/2026/02/15/arrasate-y-pellegrini-salen-con-lo-previsto-en-son-moix/)
+
+
+### barcelona vs girona (N/A, 15/02/2026 15:33 Lima)
+
+- **Five things about Girona v Barça**: [Link](https://www.fcbarcelona.com/en/football/first-team/news/4450106/five-things-about-girona-v-barca)
+- **Barcelona XI vs. Girona: Raphinha, Rashford Verdict Reached—Injury News, Predicted Lineup**: [Link](https://www.si.com/soccer/barcelona-xi-vs-girona-injury-news-predicted-lineup-2-16-26)
+- **Girona coach talks Lamine Yamal, Hansi Flick and more ahead of Barcelona clash**: [Link](https://sports.yahoo.com/articles/girona-coach-talks-lamine-yamal-152500035.html)
+
+
+### napoli - roma (N/A, 15/02/2026 15:33 Lima)
+
+- **Napoli-Roma, diretta Serie A: risultato in tempo reale, Conte sfida Gasperini**: [Link](https://www.tuttosport.com/news/calcio/serie-a/2026/02/15-146624288/napoli-roma_diretta_serie_a_risultato_in_tempo_reale_conte_sfida_gasperini)
+- **Parla il papà della bimba di 18 mesi che un 37enne senza fissa dimora ha tentato di rapire in un supermercato 📹 Intervista Alfredo Ranavolo/Tg1**: [Link](https://www.facebook.com/RaiNews/posts/parla-il-pap%C3%A0-della-bimba-di-18-mesi-che-un-37enne-senza-fissa-dimora-ha-tentato/1391362983030218/)
+- **Politano: “Ci rimane la Serie A, mancano 14 partite e possiamo vincerle tutte”**: [Link](https://www.fcinter1908.it/news/interviste/politano-napoli-roma-vincere-tutte-partite/)
+
+
 ### porto vs (N/A, 15/02/2026 11:37 Lima)
 
 - **Porto vs Serra Branca: previa, horario y cómo llegan para la llave 12 de la Copa Brasil**: [Link](https://zona.palmsbet.pe/deportes/futbol/porto-vs-serra-branca-previa-horario-y-como-llegan-para-la-llave-12-de-la-copa-brasil/)
@@ -959,73 +1028,5 @@ Sin noticias relacionadas disponibles.
 - **La ‘número dos’ del favorito a la Presidencia en Perú, acusada de inducir a menores violadas a ser madres**: [Link](https://elpais.com/america/2026-02-11/la-numero-dos-del-favorito-a-la-presidencia-en-peru-acusada-de-inducir-a-menores-violadas-a-ser-madres.html)
 - **Comisión de Ética pide informe a congresista Milagros Jáuregui por albergue de menores**: [Link](https://gestion.pe/peru/politica/comision-de-etica-pide-informe-a-congresista-milagros-jauregui-por-albergue-de-menores-noticia/)
 - **Denuncian penalmente a Milagros Jáuregui por niñas víctimas de violación forzadas a gestar en su refugio**: [Link](https://www.infobae.com/peru/2026/02/10/denuncian-penalmente-a-milagros-jauregui-por-ninas-victimas-de-violacion-forzadas-a-gestar-en-su-refugio/)
-
-
-### precio del dolar hoy (N/A, 12/02/2026 08:21 Lima)
-
-- **Precio del dólar en Perú: a cuánto cerró el tipo de cambio el martes 10 de febrero**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-a-cuanto-esta-el-dolar-y-tipo-de-cambio-este-martes-10-de-febrero-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
-- **Precio del dólar con baja: Así cerró el tipo de cambio hoy 11 de febrero en Perú**: [Link](https://www.infobae.com/noticias/2026/02/11/peru-cotizacion-de-apertura-del-dolar-hoy-11-de-febrero-de-usd-a-pen/)
-- **¿Cuál es la cotización del dólar hoy miércoles 11 de febrero del 2026?**: [Link](https://andina.pe/agencia/noticia-cual-es-cotizacion-del-dolar-hoy-miercoles-11-febrero-del-2026-1062689.aspx)
-
-
-### fk arkadag (N/A, 12/02/2026 08:21 Lima)
-
-- **Turkmen government “depressed” as Ronaldo fails to appear for football clash in Ashgabat**: [Link](https://www.intellinews.com/turkmen-government-depressed-as-ronaldo-fails-to-appear-for-football-clash-in-ashgabat-425539/)
-- **R16 (1st Leg): FK Arkadag (TKM) 0-1 Al Nassr Club (KSA)**: [Link](https://www.the-afc.com/en/club/afc_champions_league_two.html/news/r16-1st-leg-fk-arkadag-tkm-0-1-al-nassr-club-ksa-1)
-- **Why Cristiano Ronaldo Wasn’t Playing For Al Nassr Despite Ending Strike?**: [Link](https://www.fotmob.com/embed/news/01kh6ejbx4kb/why-cristiano-ronaldo-wasnt-playing-al-nassr-despite-ending-strike)
-
-
-### trome (N/A, 12/02/2026 08:21 Lima)
-
-- **Pisa Pelota | Ese ‘Sargento’ resultó tremendo budín con pasas | OPINION**: [Link](https://trome.com/opinion/el-bombardero/pisa-pelota-ese-sargento-resulto-tremendo-budin-con-pasas-noticia/)
-- **‘Tomate’ Barraza se habría involucrado con la expareja de su primo y exponen cariñosos mensajes: “Necesito verte, mi amor”**: [Link](https://trome.com/espectaculos/tv/carlos-tomate-barraza-se-habria-involucrado-con-la-expareja-de-su-primo-y-exponen-carinosos-mensajes-necesito-verte-mi-amor-andrea-munoz-video-fotos-farandula-noticia/)
-- **Andrea Muñoz pide estar en 'Esto si es amor' tras decepcionarse de 'Tomate' Barraza: "Estoy disponible"**: [Link](https://www.atv.pe/noticia/andrea-munoz-pide-estar-en-esto-si-es-amor-tras-decepcionarse-de-tomate-barraza-estoy-disponible/)
-
-
-### telegram (N/A, 12/02/2026 03:55 Lima)
-
-- **Russia moves to block WhatsApp in messaging app crackdown**: [Link](https://www.bbc.com/news/articles/clygd10pg5lo)
-- **Russia attempted to ‘fully block’ WhatsApp, Meta-owned company says**: [Link](https://www.theguardian.com/world/2026/feb/12/russia-attempt-block-whatsapp-meta-says)
-- **Russian soldiers rage against Putin’s Telegram ban**: [Link](https://www.telegraph.co.uk/world-news/2026/02/11/russian-soldiers-rage-against-putin-telegram-ban/)
-
-
-### la tinka resultados (N/A, 12/02/2026 03:55 Lima)
-
-- **Sorteo de La Tinka del 11 de febrero: resultados completos y ganadores del Pozo Millonario**: [Link](https://larepublica.pe/sociedad/2026/02/11/sorteo-la-tinka-miercoles-11-de-febrero-premios-jugada-ganadora-y-pozo-acumulado-evat-930190)
-- **Sorteo de La Tinka del domingo 8 de febrero de 2026: estos son los números ganadores de la fecha**: [Link](https://www.infobae.com/peru/2026/02/09/resultados-ganadores-de-la-tinka-este-domingo-8-de-febrero/)
-- **Sorteo de La Tinka: revisa aquí los resultados y jugada del miércoles 11 de febrero**: [Link](https://elcomercio.pe/respuestas/loterias/la-tinka-en-vivo-hoy-miercoles-11-de-febrero-2026-resultados-del-ultimo-sorteo-y-jugada-ganadora-pozo-millonario-loteria-resultado-si-o-si-boliyapa-intralot-lbposting-noticia/)
-
-
-### bipay (N/A, 12/02/2026 03:55 Lima)
-
-- **BiPay obtiene luz verde para operar como emisora de dinero electrónico**: [Link](https://rpp.pe/economia/economia/bipay-billetera-digital-de-bitel-operara-como-emisora-de-dinero-electronico-como-funcionara-noticia-1675253)
-- **Bitel entra en la carrera para competir con Yape y Plin**: [Link](https://gestion.pe/tu-dinero/bitel-entra-en-la-carrera-para-competir-con-yape-y-plin-noticia/)
-- **Yape tendrá más competencia: Nueva billetera digital es autorizada por la SBS**: [Link](https://www.infobae.com/peru/2026/02/10/yape-tendra-nueva-competencia-nueva-billetera-digital-es-autorizada-por-la-sbs/)
-
-
-### americo (N/A, 12/02/2026 00:26 Lima)
-
-Sin noticias relacionadas disponibles.
-
-
-### pipo gorosito (N/A, 12/02/2026 00:26 Lima)
-
-- **Alianza Lima - Néstor Gorosito enciende la polémica con mensaje en medio de la eliminación en Copa Libertadores**: [Link](https://rpp.pe/futbol/copa-libertadores/alianza-lima-nestor-gorosito-enciende-la-polemica-con-mensaje-en-medio-de-la-eliminacion-en-copa-libertadores-noticia-1675516)
-- **Así fue la reacción de Néstor Gorosito en las redes a la eliminación de Alianza Lima**: [Link](https://bolavip.com/pe/copa-libertadores/asi-fue-la-reaccion-de-nestor-gorosito-en-las-redes-a-la-eliminacion-de-alianza-lima)
-- **Pipo Gorosito impacta con fuerte mensaje tras eliminación de Alianza Lima en la Copa Libertadores**: [Link](https://libero.pe/futbol-peruano/alianza-lima/2026/02/11/nestor-pipo-gorosito-impacta-fuerte-mensaje-eliminacion-de-alianza-lima-en-copa-libertadores-1054526)
-
-
-### julio iglesias (N/A, 12/02/2026 00:26 Lima)
-
-- **Yo Soy castings 2026: ¡Todos pasan! Estos son los 25 participantes que llegan a conciertos**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-castings-2026-todos-pasan-estos-son-los-25-participantes-que-llegan-a-conciertos_20260210/)
-- **Yo Soy 2026: Conocidos los 25 participantes para los conciertos**: [Link](https://elcongresista.mx/espectaculos/yo-soy-2026-participantes-conciertos/)
-- **Yo Soy conciertos 2026: ¡Marciano Cantero llega a los conciertos entre nervios y retos!**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-conciertos-2026-marciano-cantero-llega-a-los-conciertos-entre-nervios-y-retos_20260211/)
-
-
-### steven tyler (N/A, 12/02/2026 00:26 Lima)
-
-- **“The door cracks open and I hear, ‘Who the hell are you? Play that again!‘” Steven Tyler gatecrashed Jared James Nichols’ jam and invited him to hang out with Aerosmith – and he kept coming back**: [Link](https://www.guitarworld.com/artists/guitarists/when-jared-james-nichols-hung-out-with-aerosmith)
-- **Steven Tyler gatecrashed Jared James Nichols’ jam and invited him to hang out with Aerosmith**: [Link](https://www.yahoo.com/entertainment/music/articles/steven-tyler-gatecrashed-jared-james-114655909.html)
-- **Judge Allows California Claims to Proceed in Steven Tyler Abuse Lawsuit, Dismisses Others**: [Link](https://www.lawcommentary.com/articles/judge-allows-california-claims-to-proceed-in-steven-tyler-abuse-lawsuit-dismisses-others)
 
 
