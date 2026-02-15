@@ -1,3 +1,43 @@
+### real oviedo - athletic (N/A, 15/02/2026 08:03 Lima)
+
+- **Apuestas y Pronóstico del Real Oviedo vs Athletic Club 15/02/26**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2026/febrero/pronostico-real-oviedo-vs-athletic-club-15-02-26)
+- **LaLiga EA Sports: Real Oviedo se concentra para salir del último lugar ante Athletic Bilbao**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-real-oviedo-se-concentra-para-salir-del-ultimo-lugar-ante-athletic-bilbao-noticia-1675851)
+- **Valverde sobre Nico Williams: “Así no podemos seguir”**: [Link](https://www.mundodeportivo.com/futbol/athletic-bilbao/20260215/1002621079/valverde-sobre-nico-williams-asi-seguir.html)
+
+
+### birmingham city - leeds (N/A, 15/02/2026 08:03 Lima)
+
+- **FA Cup LIVE: Build-up, team news, scores and live text updates from the fourth round of the FA Cup**: [Link](https://www.bbc.com/sport/football/live/cdree8627net)
+- **Team News: Birmingham City vs Leeds United**: [Link](https://www.leedsunited.com/en/news/team-news-birmingham-city-vs-leeds-united)
+- **Information for supporters travelling to St. Andrew's Stadium**: [Link](https://onefootball.com/de/news/information-for-supporters-travelling-to-st-andrews-stadium-42408118)
+
+
+### feyenoord - go ahead eagles (N/A, 15/02/2026 08:03 Lima)
+
+- **Live Eredivisie | Puntenverlies dreigt voor Feyenoord tegen tiental Go Ahead**: [Link](https://www.nu.nl/voetbal/6386164/live-eredivisie-puntenverlies-dreigt-voor-feyenoord-tegen-tiental-go-ahead.html)
+- **Van Persie over Sauer: "Aankomende periode moeten we kijken hoe dat eruitziet"**: [Link](https://1908.nl/artikelen/van-persie-over-sauer-aankomende-periode-moeten-we-kijken-hoe-dat-eruitziet)
+- **VI Live: cynisch gejuich in De Kuip na mislukte actie invaller Borges**: [Link](https://www.vi.nl/nieuws/vi-live-cynisch-gejuich-in-de-kuip-na-mislukte-actie-invaller-borges)
+
+
+### feyenoord vs (N/A, 15/02/2026 08:03 Lima)
+
+- **Feyenoord Battle Go Ahead Eagles As Second Place Hangs In Balance**: [Link](https://evrimagaci.org/gpt/feyenoord-battle-go-ahead-eagles-as-second-place-hangs-in-balance-529299)
+- **How to watch today's Feyenoord vs Go Ahead Eagles Eredivisie game: Live stream, TV channel, and start time**: [Link](https://www.goal.com/en-ca/news/how-to-watch-feyenoord-go-ahead-eagles-15022026/blt76348bfa48c08dd2)
+- **Preview: Feyenoord vs Go Ahead Eagles - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/feyenoord/preview/feyenoord-vs-go-ahead-eagles-prediction-team-news-lineups_591963.html)
+
+
+### udinese - sassuolo (N/A, 15/02/2026 08:03 Lima)
+
+- **Udinese, ripartire è un must: contro il Sassuolo è l’occasione del riscatto**: [Link](https://www.messaggeroveneto.it/speciali/udinese-calcio/udinese-sassuolo-probabili-formazioni-serie-a-eht5r1t0)
+- **Calcio Live News: tutte le notizie di giornata in tempo reale**: [Link](https://www.diretta.it/news/calcio-live-news-alle-12-30-in-campo-udinese-sassuolo-in-serata-il-big-match-napoli-roma/ADhcZEsm/)
+- **Serie A, le probabili formazioni di oggi 15 febbraio**: [Link](https://kisskiss.it/sport/serie-a-le-probabili-formazioni-di-oggi-15-febbraio/)
+
+
+### clima hoy (N/A, 15/02/2026 08:03 Lima)
+
+Sin noticias relacionadas disponibles.
+
+
 ### san valentín frases cortas amistad (N/A, 15/02/2026 03:39 Lima)
 
 - **💛 Las mejores 300 frases bonitas del 14 de febrero para enviar en San Valentín y el Día del Amor y la Amistad**: [Link](https://gestion.pe/mix/respuestas/300-frases-creativas-del-14-de-febrero-para-celebrar-san-valentin-2026-con-mensajes-bonitos-sobre-el-amor-y-la-amistad-whatsapp-canva-pinterest-nnda-nnrt-noticia/)
@@ -987,47 +1027,5 @@ Sin noticias relacionadas disponibles.
 - **📱 Canales TV para ver Club América vs. Olimpia EN VIVO GRATIS por la Concachampions 2026**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/a-que-hora-juega-y-que-canal-transmite-club-america-vs-cd-olimpia-en-vivo-hoy-por-la-concachampions-2026-en-mexico-honduras-y-eeuu-canales-tv-nnda-nnrt-noticia/)
 - **Jardine acepta que América está en deuda por el Mundial de Clubes**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/16299044/america-andre-jardine-deuda-concacaf-mundial-de-clubes)
 - **Transmisión EN VIVO del América vs Olimpia hoy: cómo mirar el partido por TV o streaming**: [Link](https://www.365scores.com/es/news/como-ver-transmision-america-vs-olimpia/)
-
-
-### alianza lima voley (N/A, 11/02/2026 21:46 Lima)
-
-- **Con el Alianza Lima vs Regatas: revisa la programación de la fecha 6 de la segunda fase de la Liga Peruana de Vóley**: [Link](https://rpp.pe/voley/mas-voley/liga-peruana-de-voley-2025-2026-programacion-fecha-6-fase-2-fixture-fecha-y-horario-de-partidos-segunda-etapa-alianza-lima-san-martin-regatas-universitario-de-deportes-lpv-noticia-1675098)
-- **Alianza Lima vs Regatas Lima 3-1: jugadas y resumen del triunfo blanquiazul en la Liga Peruana de Vóley**: [Link](https://www.infobae.com/peru/deportes/2026/02/11/alianza-lima-vs-regatas-lima-en-vivo-hoy-latina-tv-fecha-6-fase-2-liga-peruana-de-voley-2025-2026-resumen-resultado/)
-- **Liga Peruana de Vóley 2026: Partidos de la fecha 6 y tabla de posiciones de la segunda fase**: [Link](https://libero.pe/deportes/voley/2026/02/09/liga-peruana-de-voley-2026-partidos-programacion-tabla-de-posiciones-fecha-6-de-segunda-fase-452061)
-
-
-### rpp en vivo (N/A, 11/02/2026 21:46 Lima)
-
-- **‘Super Bowl LX Halftime Show’ Lyrics & English Translation: Hear Bad Bunny’s Entire Set!**: [Link](https://www.justjared.com/2026/02/10/super-bowl-lx-halftime-show-lyrics-english-translation-hear-bad-bunnys-entire-set/)
-- **Stephen A. Smith dice que «hubiera estado bien» que Bad Bunny cantara en inglés.**: [Link](https://noticias.foxnews.com/sports/stephen-a-smith-says-would-have-been-nice-bad-bunny-performed-english)
-- **Por qué el momento «God Bless America» de Bad Bunny en la Super Bowl la polémica**: [Link](https://noticias.foxnews.com/culture/why-bad-bunnys-god-bless-america-moment-super-bowl-sparked-controversy)
-
-
-### alineaciones de alianza lima contra club sportivo 2 de mayo (N/A, 11/02/2026 21:46 Lima)
-
-- **Everton vs. Bournemouth (10 de Feb., 2026) Resultados en Vivo**: [Link](https://www.espn.com.ar/futbol/partido/_/juegoId/740852)
-- **Llaneros vs. Pasto (10 de Feb., 2026) Resultados en Vivo**: [Link](https://www.espn.com.ar/futbol/partido/_/juegoId/401850760)
-- **C Palace vs. Burnley (11 de Feb., 2026) Resultados en Vivo**: [Link](https://espndeportes.espn.com/futbol/partido/_/juegoId/740851)
-
-
-### central córdoba - gimnasia jujuy (N/A, 11/02/2026 21:46 Lima)
-
-- **Gimnasia de Jujuy dio el golpe y eliminó a Central Córdoba por penales en la Copa Argentina**: [Link](https://www.espn.com.ar/futbol/argentina/nota/_/id/16304120/gimnasia-jujuy-elimino-central-cordoba-penales-copa-argentina-2026)
-- **EN VIVO: Central Córdoba (SE) logra igualar con Gimnasia (J)**: [Link](https://www.directvsports.com/futbol/en-vivo-central-cordoba-se-logra-igualar-con-gimnasia-j-20260208-0004.html)
-- **Francisco Molina palpitó la Copa Argentina: "Estamos en condiciones de hacer un buen partido"**: [Link](https://www.todojujuy.com/francisco-molina-palpito-la-copa-argentina-estamos-condiciones-hacer-un-buen-partido-n286050)
-
-
-### paolo guerrero (N/A, 11/02/2026 21:46 Lima)
-
-- **Guerrero le da el triunfo a Alianza**: [Link](https://caretas.pe/deportes/guerrero-le-da-el-triunfo-a-alianza/)
-- **Paolo Guerrero sigue con la mecha prendida y anotó en la victoria de Alianza Lima vs. Comerciantes Unidos**: [Link](https://espndeportes.espn.com/futbol/peru/nota/_/id/16290911/alianza-lima-vs-comerciantes-unidos-paolo-guerrero-volvio-anotar)
-- **El “Estamos a un 50% de lo que pretendo” de Guede y por qué no hubo VAR en Matute por unos minutos: Lo que no se vio del sufrido triunfo de un Alianza pensando en 2 de Mayo**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/alianza-lima-el-estamos-a-un-50-de-lo-que-pretendo-de-pablo-guede-y-por-que-no-hubo-var-en-matute-por-unos-minutos-lo-que-no-se-vio-del-sufrido-triunfo-ante-comerciantes-unidos-de-un-alianza-pensando-en-2-de-mayo-liga-1-tlcnota-noticia/)
-
-
-### federico girotti (N/A, 11/02/2026 21:46 Lima)
-
-- **Ex Universitario dio contundente opinión sobre Federico Girotti en Alianza: "Un delantero que no..."**: [Link](https://libero.pe/futbol-peruano/alianza-lima/2026/02/11/federico-girotti-ex-universitario-dio-contundente-opinion-jugador-en-alianza-lima-delantero-video-917653)
-- **Carlos Galván comparó a Girotti con Barcos tras derrota de Alianza Lima: "No puede ni atarle los pasadores"**: [Link](https://willax.pe/deportes/carlos-galvan-critica-federico-girotti-hernan-barcos-willax)
-- **Carlos Galván apuntó contra Federico Girotti por fallar goles con Alianza Lima y lo compara con Hernán Barcos: “No puede ni atarle los pasadores”**: [Link](https://larepublica.pe/deportes/2026/02/05/carlos-galvan-apunto-contra-federico-girotti-por-fallar-goles-con-alianza-lima-y-lo-compara-con-hernan-barcos-no-puede-ni-atarle-los-pasadores-482265)
 
 
