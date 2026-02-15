@@ -1,3 +1,71 @@
+### vasco da gama (N/A, 14/02/2026 21:47 Lima)
+
+- **Diniz define escalação do Vasco para duelo com Volta Redonda**: [Link](https://www.portaltela.com/esporte/futebol/2026/02/14/diniz-define-escalacao-do-vasco-para-duelo-com-volta-redonda/)
+- **Aos 32 min do 1º tempo - chute de fora da área defendido de Nuno Moreira do Vasco contra o Volta Redonda**: [Link](https://ge.globo.com/futebol/video/aos-32-min-do-1o-tempo-chute-de-fora-da-area-defendido-de-nuno-moreira-do-vasco-contra-o-volta-redonda-14348887.ghtml)
+- **Gol Ygor Catatau - Vasco 0 x 1 Volta Redonda - Campeonato Carioca 2026**: [Link](https://www.uol.com.br/esporte/videos/gols/2026/02/14/gol-ygor-catatau---vasco-0-x-1-volta-redonda---campeonato-carioca-2026.htm)
+
+
+### jairo vélez (N/A, 14/02/2026 21:47 Lima)
+
+- **“El sábado tenemos otra final, debemos pasar la página rápido”: Jairo Vélez tras la eliminación de Alianza en la Copa**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/el-sabado-tenemos-otra-final-debemos-pasar-la-pagina-rapido-jairo-velez-tras-la-eliminacion-de-alianza-lima-en-la-copa-libertadores-noticia/)
+- **Jairo Vélez al ser consultado sobre su extraña posición en Alianza Lima vs 2 de Mayo: "Yo tengo que cumplir órdenes del técnico"**: [Link](https://larepublica.pe/deportes/2026/02/12/jairo-velez-al-ser-consultado-sobre-su-extrana-posicion-en-alianza-lima-vs-2-de-mayo-yo-tengo-que-cumplir-ordenes-del-tecnico-215088)
+- **«Debemos hacer respetar la casa»: Jairo Vélez calienta la Copa**: [Link](https://caretas.pe/deportes/debemos-hacer-respetar-la-casa-jairo-velez-calienta-la-copa/)
+
+
+### sullana (N/A, 14/02/2026 21:47 Lima)
+
+- **Elecciones 2026: 5,599 personas con discapacidad votarán en jurisdicción de ODPE Sullana**: [Link](https://andina.pe/agencia/noticia-elecciones-2026-5599-personas-discapacidad-votaran-jurisdiccion-odpe-sullana-1063137.aspx)
+- **Más de 2 mil 500 electores con discapacidad de Piura y Veintiséis de Octubre acudirán a las urnas este 12 de abril**: [Link](https://elregionalpiura.com.pe/index.php/region-piura/150-piura/72419-mas-de-2-mil-500-electores-con-discapacidad-de-piura-y-veintiseis-de-octubre-acudiran-a-las-urnas-este-12-de-abril)
+- **Piura: 5,599 personas con discapacidad sufragarán en las Elecciones Generales 2026**: [Link](https://diariocorreo.pe/edicion/piura/5599-personas-con-discapacidad-sufragaran-en-las-elecciones-generales-2026-noticia/)
+
+
+### nacional (N/A, 14/02/2026 21:47 Lima)
+
+- **Chivas no contará con Luis Romo en el Clásico ante América**: [Link](https://www.espn.com.pe/futbol/mexico/nota/_/id/16299435/chivas-vs-america-clasico-nacional-luis-romo-baja-lesion)
+- **Luis Romo sufrió lesión y es duda para el Clásico ante América**: [Link](https://www.espn.com.pe/futbol/mexico/nota/_/id/16281465/chivas-luis-romo-lesion-clasico-nacional-liga-mx-guadalajara-america)
+- **Chivas vs. America live stream, odds: How to watch Liga MX, TV channel, start time**: [Link](https://www.cbssports.com/soccer/news/chivas-vs-america-preview-liga-mx-live-stream-odds-where-to-watch/)
+
+
+### nacional - racing (N/A, 14/02/2026 21:47 Lima)
+
+- **Cuándo juegan Nacional vs. Racing por el Torneo Apertura: equipo, fecha, hora y TV en vivo**: [Link](https://www.espn.com.pe/futbol/uruguay/nota/_/id/16299528/nacional-vs-racing-torneo-apertura-fecha-2-equipo-fecha-hora-tv-en-vivo)
+
+
+### monterrey - león (N/A, 14/02/2026 21:47 Lima)
+
+- **Liga MX: León se enfrentará a CF Monterrey por la fecha 6**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-leon-se-enfrentara-a-cf-monterrey-por-la-fecha-6-noticia-1675796)
+- **Qué canal pasa Monterrey vs León hoy: dónde ver GRATIS y EN VIVO el partido de la Liga MX**: [Link](https://www.365scores.com/es/news/monterrey-vs-leon-donde-ver-gratis-canal/)
+- **¡Diber Cambindo arma jugada maestra y por centímetros no marca un golazo!**: [Link](https://www.tudn.com/futbol/liga-mx/se-buscan-las-caderas-de-arteaga-y-oliver-jugadon-de-cambindo-pero-su-tiro-se-fue-por-un-lado-video)
+
+
+### alianza atlético vs. cusco (N/A, 14/02/2026 21:47 Lima)
+
+- **Tabla de posiciones de Liga 1 2026 EN VIVO: partidos y resultados de la fecha 3 del Torneo Apertura**: [Link](https://depor.com/futbol-peruano/descentralizado/tabla-de-posiciones-de-la-liga-1-peru-2026-en-vivo-hoy-partidos-programacion-y-resultados-fecha-3-torneo-apertura-universitario-vs-cienciano-alianza-lima-vs-alianza-atletico-sporting-cristal-vs-juan-pablo-ii-noticia/)
+- **Tabla de posiciones de la Liga 1 2026: partidos de la fecha 3 del Torneo Apertura**: [Link](https://libero.pe/futbol-peruano/liga-1/2026/02/13/tabla-de-posiciones-torneo-apertura-en-fecha-3-de-liga-1-peru-249456)
+- **Programación fecha 03 del Torneo Apertura Liga1 Te Apuesto**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/programacion-fecha-03-torneo-apertura-liga1-te-apuesto-n452693)
+
+
+### simona brambilla (N/A, 14/02/2026 21:47 Lima)
+
+- **Il Papa nomina suor Simona Brambilla membro del Dicastero per i Vescovi**: [Link](https://www.vaticannews.va/it/papa/news/2026-02/papa-leone-xiv-suor-brambilla-dicastero-vescovi.html)
+- **Il cardinale Cantoni confermato da papa Leone membro del Dicastero per i Vescovi**: [Link](https://www.espansionetv.it/2026/02/14/il-cardinale-cantoni-confermato-da-papa-leone-membro-del-dicastero-per-i-vescovi/)
+- **Il Papa nomina la 'prefetta' Brambilla al dicastero dei Vescovi**: [Link](https://www.ansa.it/vaticano/notizie/2026/02/14/il-papa-nomina-la-prefetta-brambilla-al-dicastero-dei-vescovi_e045830f-20d3-441b-9167-d9d92a1e9e04.html)
+
+
+### alianza atlético - alianza lima (N/A, 14/02/2026 21:47 Lima)
+
+- **Alianza Lima vs. Alianza Atlético EN VIVO: minuto a minuto por internet gratis vía Liga 1 MAX**: [Link](https://depor.com/futbol-peruano/descentralizado/ver-alianza-lima-vs-alianza-atletico-en-vivo-minuto-a-minuto-gratis-liga-1-max-movistar-tv-futbol-liber-tv-directv-zapping-y-canales-de-transmision-torneo-apertura-2026-lbp-noticia/)
+- **Alianza Lima vs. Alianza Atlético: la novedosa alineación de Guede para ganar en Trujillo**: [Link](https://libero.pe/futbol-peruano/alianza-lima/2026/02/13/alineaciones-alianza-lima-vs-alianza-atletico-formacion-de-partido-de-liga-1-peru-apertura-1250366)
+- **Sin Girotti, el ‘castigado’ en el quinto once distinto de Alianza: la pizarra de Guede para un triunfo urgente ante Sullana**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/alianza-lima-sin-federico-girotti-el-castigado-en-el-quinto-once-distinto-de-alianza-la-pizarra-de-pablo-guede-para-un-triunfo-urgente-ante-sullana-liga-1-tlcnota-noticia/)
+
+
+### primera división de paraguay (N/A, 14/02/2026 21:47 Lima)
+
+- **Cerro Porteño vs. Nacional (P), EN VIVO: dónde ver por TV y ONLINE**: [Link](https://www.tycsports.com/paraguay/futbol-de-paraguay/cerro-porteno-vs-nacional-p-en-vivo-donde-ver-por-tv-y-online-id713242.html)
+- **Nacional tiene una parada “más difícil todavía”**: [Link](https://d10.ultimahora.com/nacional-tiene-una-parada-mas-dificil-todavia)
+- **Cerro Porteño vs. Nacional (P) en vivo: cómo verlo, horario y TV**: [Link](https://www.tycsports.com/paraguay/futbol-de-paraguay/paraguay-torneo-apertura-2026-cerro-porteno-vs-nacional-p-fecha-5-id713105.html)
+
+
 ### paris fc (N/A, 14/02/2026 15:33 Lima)
 
 - **Official Starting Lineups Announced for OM vs. Strasbourg Match**: [Link](https://www.filmogaz.com/149507)
@@ -961,73 +1029,5 @@ Sin noticias relacionadas disponibles.
 - **De una hora a 15 minutos: El metrocable busca reducir el tráfico en San Salvador**: [Link](https://www.infobae.com/el-salvador/2026/02/11/de-una-hora-a-15-minutos-el-metrocable-busca-reducir-el-trafico-en-san-salvador/)
 - **Residentes de la Zacamil, en incertidumbre por construcción del metrocable - La Prensa Gráfica**: [Link](https://www.laprensagrafica.com/elsalvador/residentes-de-la-zacamil-en-incertidumbre-por-construccion-del-metrocable-20260210-0068.html)
 - **El 16 de febrero inician obras del metrocable en Zacamil**: [Link](https://www.elsalvador.com/noticias/nacional/bras-metrocable-zacamil-inician-16-febrero/1261961/2026/)
-
-
-### tobey maguire (N/A, 11/02/2026 12:09 Lima)
-
-- **Tobey Maguire Ignites Buzz Seen with Young Influencer at Super Bowl LX**: [Link](https://www.filmogaz.com/143733)
-- **Who Is Mishka Silva, Tobey Maguire’s Alleged 20-Year-Old Girlfriend?**: [Link](https://hauterrfly.com/entertainment/who-is-mishka-silva-tobey-maguires-alleged-20-year-old-girlfriend/)
-- **Tobey Maguire's Relationship History Explained as Spiderman Actor Spotted With Model 30 Years Younger**: [Link](https://www.ibtimes.co.uk/tobey-maguires-relationship-history-explained-spiderman-actor-spotted-model-30-years-younger-1778148)
-
-
-### zayn (N/A, 11/02/2026 12:09 Lima)
-
-- **Zayn Malik Admits He Was Never 'In Love' With Gigi Hadid But Has 'Respect' For Her**: [Link](https://www.yahoo.com/entertainment/celebrity/articles/zayn-malik-admits-never-love-163002236.html)
-- **Zayn Malik Stands By Quote That He Was Never in Love with Ex Girlfriend Gigi Hadid, But Adds 1 On the Record Clarification**: [Link](https://www.justjared.com/2026/02/11/zayn-malik-stands-by-quote-that-he-was-never-in-love-with-ex-girlfriend-gigi-hadid-but-adds-1-on-the-record-clarification/)
-- **Zayn Malik Says He “Will Always Love” Gigi Hadid After Previously Claiming He’s Never “Been in Love”**: [Link](https://www.cosmopolitan.com/entertainment/celebs/a70312849/zayn-malik-claim-never-in-love-gigi-hadid/)
-
-
-### kurt cobain (N/A, 11/02/2026 12:09 Lima)
-
-- **Kurt Cobain's death 'was a homicide': report**: [Link](https://www.dailymail.co.uk/news/article-15510941/Kurt-Cobains-suicide-homicide.html)
-- **Forensic Probe Rekindles Mystery Around Kurt Cobain**: [Link](https://evrimagaci.org/gpt/forensic-probe-rekindles-mystery-around-kurt-cobain-528226)
-- **Was Kurt Cobain’s Death a Homicide? What We Know About the Late Nirvana Singer**: [Link](https://hollywoodlife.com/feature/was-kurt-cobain-death-a-homicide-5502778/)
-
-
-### test (N/A, 11/02/2026 12:09 Lima)
-
-- **McLaren's Lando Norris tops day 1 of F1 testing in Bahrain**: [Link](https://www.espn.com/f1/story/_/id/47898170/mclaren-lando-norris-tops-day-1-f1-testing-bahrain)
-- **F1 2026 Bahrain pre-season test: Lando Norris edges Max Verstappen on day one**: [Link](https://www.motorsport.com/f1/news/f1-bahrain-2026-pre-season-test-norris-edges-verstappen-on-day-one/10796786/)
-- **Where new F1 cars are already troubling drivers in Bahrain**: [Link](https://www.the-race.com/formula-1/our-initial-trackside-verdict-of-the-2026-f1-cars/)
-
-
-### piero cari (N/A, 11/02/2026 12:09 Lima)
-
-- **Diego Rebagliati hizo revelación sobre Piero Cari en Alianza Lima tras presunta denuncia por agresión física contra su pareja**: [Link](https://www.infobae.com/peru/deportes/2026/02/11/diego-rebagliati-hizo-revelacion-sobre-piero-cari-en-alianza-lima-tras-presunta-denuncia-por-agresion-fisica-contra-su-pareja/)
-- **Alianza Lima: Futbolista fue increpado dentro de Matute por presunta agresión a su enamorada**: [Link](https://www.apnoticias.pe/peru/exitosa-noticias/alianza-lima-futbolista-fue-increpado-dentro-de-matute-por-presunta-agresion-a-su-enamorada-1489542)
-- **VIDEO: Piero Cari fue increpado, en Matute, por presuntamente golpear a su pareja**: [Link](https://peru21.pe/espectaculos/video-piero-cari-fue-increpado-en-matute-por-presuntamente-golpear-su-pareja/)
-
-
-### virgen de lourdes (N/A, 11/02/2026 12:09 Lima)
-
-Sin noticias relacionadas disponibles.
-
-
-### athletic vs. real sociedad (N/A, 11/02/2026 12:09 Lima)
-
-- **Cuándo juegan Athletic vs. Real Sociedad por la Copa del Rey: equipo, fecha, hora y TV en vivo**: [Link](https://www.espn.com.ar/futbol/espana/nota/_/id/16293397/cuando-juegan-athletic-vs-real-sociedad-por-la-copa-del-rey-equipo-fecha-hora-y-tv-en-vivo)
-- **Apuestas y Pronóstico del Athletic Club vs Real Sociedad 11/02/26**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/2026/febrero/pronostico-athletic-club-vs-real-sociedad-11-02-26)
-- **La reflexión de Valverde: "¿Cuándo no hay tensión en el fútbol?"**: [Link](https://www.mundodeportivo.com/futbol/athletic-bilbao/20260211/1002618098/reflexion-valverde-cuando-hay-tension-futbol.html)
-
-
-### fk arkadag - al-nassr (N/A, 11/02/2026 08:22 Lima)
-
-- **Аркадаг – Аль-Наср прогноз на матч Лиги чемпионов АФК 2 11 февраля 2026 года. Ставка с коэффициентом 2,25**: [Link](https://metaratings.ru/prognozy/futbol/arkadag-al-nasr-prognoz-na-match-elitnoi-ligi-chempionov-afk-11-fevralya-2026-goda/)
-- **Аркадаг ― Аль-Наср Эр-Рияд: превью**: [Link](https://soccer365.ru/news/25618/)
-- **Прогноз и ставка на точный счёт матча Акадаг – Аль-Наср Эр-Рияд Лиги чемпионов АФК – 11 февраля 2026**: [Link](https://www.euro-football.ru/prognozy/1006123489_prognoz_i_stavka_na_tochnyiy_schet_matcha_akadag__al-nasr_er-riyad_ligi_chempionov_afk__11_fevralya_2026)
-
-
-### peru (N/A, 11/02/2026 08:22 Lima)
-
-- **Un sismo de magnitud 3.5 remeció la región Lima esta madrugada**: [Link](https://rpp.pe/lima/actualidad/lima-sismo-de-magnitud-35-remecio-la-region-esta-madrugada-noticia-1675379)
-- **Temblor en el Perú hoy: sismo de magnitud 4.4 en Chimbote no ocasiona daños**: [Link](https://andina.pe/agencia/noticia-temblor-el-peru-hoy-sismo-magnitud-44-chimbote-no-ocasiona-danos-1062633.aspx)
-- **Temblor hoy, 11 de febrero de 2026, en Lima: epicentro, magnitud y reporte oficial del IGP**: [Link](https://www.expreso.com.pe/actualidad/temblor-hoy-11-de-febrero-de-2026-en-lima-epicentro-magnitud-y-reporte-oficial-del-igp-hace-minutos-instituto-geofisico-del-peru-sismo-indeci-emergencia-noticia/1262969/)
-
-
-### samsung galaxy s26 ultra (N/A, 11/02/2026 08:22 Lima)
-
-- **Samsung desvelará el Galaxy S26 el próximo 25 de febrero**: [Link](https://ahora.com.pe/samsung-desvelara-el-galaxy-s26-el-proximo-25-de-febrero/)
-- **El Samsung S26 Ultra será la decepción del 2026 si se confirman estas dos filtraciones: sin carga magnética y batería insuficiente**: [Link](https://libero.pe/tecnologia/2026/02/07/samsung-s26-ultra-filtraciones-cuando-sale-caracteristicas-precio-en-estados-unidos-bateria-carga-magnetica-camara-pantalla-precio-peru-mexico-276297)
-- **Samsung revela nueva característica del Galaxy S26 Ultra que promete dejar en ridículo al iPhone 17 Pro Max**: [Link](https://libero.pe/tecnologia/2026/02/04/samsung-revela-nueva-caracteristica-del-galaxy-s26-ultra-promete-dejar-en-ridiculo-iphone-17-pro-max-samsung-s26-ultra-112260)
 
 
