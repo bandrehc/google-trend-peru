@@ -1,3 +1,72 @@
+### porto vs (N/A, 15/02/2026 11:37 Lima)
+
+- **Porto vs Serra Branca: previa, horario y cómo llegan para la llave 12 de la Copa Brasil**: [Link](https://zona.palmsbet.pe/deportes/futbol/porto-vs-serra-branca-previa-horario-y-como-llegan-para-la-llave-12-de-la-copa-brasil/)
+- **Farioli warns of tough Choupana test, urges strong mentality**: [Link](https://onefootball.com/de/news/farioli-warns-of-tough-choupana-test-urges-strong-mentality-42414344)
+- **Preview: Nacional vs Porto - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/nacional/preview/nacional-vs-porto-prediction-team-news-lineups_592027.html)
+
+
+### rb leipzig - wolfsburg (N/A, 15/02/2026 11:37 Lima)
+
+- **RB-Aufstellung gegen Wolfsburg: Werner rotiert – Fünf Neue in der Startelf**: [Link](https://rblive.de/news/rb-aufstellung-gegen-wolfsburg-werner-rotiert-fuenf-neue-in-der-startelf-4199908)
+- **Heimspiel von RB Leipzig: Ordnungsamt warnt Besucher vor drohendem Verkehrs-Chaos**: [Link](https://www.tag24.de/leipzig/heimspiel-von-rb-leipzig-ordnungsamt-warnt-besucher-vor-drohendem-verkehrs-chaos-3469883)
+- **Liveticker**: [Link](https://www.vfl-wolfsburg.de/matchcenter/matchcenter-maenner/bundesliga-spieltag-22-2025/2026/liveticker)
+
+
+### presidente jeri (N/A, 15/02/2026 11:37 Lima)
+
+- **Ernesto Álvarez sobre José Jerí: "Lo principal es que él siga aprendiendo; lo veo ahora mucho más cuajado"**: [Link](https://rpp.pe/politica/gobierno/ernesto-alvarez-sobre-jose-jeri-lo-principal-es-que-el-siga-aprendiendo-lo-veo-ahora-mucho-mas-cuajado-noticia-1675935)
+- **Segundo Montalvo solicita incluir con urgencia la vacancia de José Jerí en el pleno del martes**: [Link](https://canaln.pe/actualidad/congresista-montalvo-pide-priorizar-vacancia-contra-jose-jeri-n490332)
+- **M-17, el día decisivo de la censura**: [Link](https://caretas.pe/home_web/home_principal_secundario/m-17-el-dia-decisivo-de-la-censura/)
+
+
+### parma (N/A, 15/02/2026 11:37 Lima)
+
+- **💥 Gare delle 15: ROSSO a Orban ma è 1-1 in 10vs11 ❗Che volo di Audero 🧤**: [Link](https://onefootball.com/en/news/gare-delle-15-rosso-a-orban-ma-e-1-1-in-10vs11-che-volo-di-audero-42413977)
+- **Calcio, risultati di serie A: Parma, scatto salvezza**: [Link](https://askanews.it/2026/02/15/calcio-risultati-di-serie-a-parma-scatto-salvezza/)
+- **Serie A, scontri salvezza nel pomeriggio: Pellegrino fa impazzire il Tardini al 92', 0-0 a Cremona**: [Link](https://www.diretta.it/news/calcio-serie-a-serie-a-scontri-salvezza-nel-pomeriggio-pellegrino-fa-impazzire-il-tardini-al-92-0-0-a-cremona/rkmvGjK5/)
+
+
+### arsenal - wigan (N/A, 15/02/2026 11:37 Lima)
+
+- **Christian Norgaard sends Arsenal dressing room message and responds to Leandro Trossard claim**: [Link](https://www.football.london/arsenal-fc/news/arsenal-news-christian-norgaard-wigan-33421147)
+- **Mikel Arteta should make Myles Lewis-Skelly position switch amid Arsenal's current injury list**: [Link](https://www.arsenalinsider.com/opinion/mikel-arteta-should-make-myles-lewis-skelly-position-switch-amid-arsenals-current-injury-list/)
+- **Team news: Saliba starts FA Cup clash v Wigan**: [Link](https://www.arsenal.com/news/team-news-saliba-starts-fa-cup-clash-v-wigan)
+
+
+### el niño costero (N/A, 15/02/2026 11:37 Lima)
+
+- **Perú se declara en alerta climática por "El Niño Costero"**: [Link](https://www.dw.com/es/per%C3%BA-se-declara-en-alerta-clim%C3%A1tica-por-el-ni%C3%B1o-costero/a-75975587)
+- **Enfen enciende la alarma: El Niño Costero podría alterar el clima de Perú desde marzo hasta noviembre**: [Link](https://www.infobae.com/peru/2026/02/14/enfen-enciende-la-alarma-el-nino-costero-podria-alterar-el-clima-de-peru-desde-marzo-hasta-noviembre/)
+- **Enfen: El Niño costero se iniciaría en marzo y se prolongaría hasta noviembre**: [Link](https://andina.pe/agencia/noticia-enfen-nino-costero-se-iniciaria-marzo-y-se-prolongaria-hasta-noviembre-1063077.aspx)
+
+
+### nacional - porto (N/A, 15/02/2026 11:37 Lima)
+
+- **Várias mudanças: o onze do FC Porto para a deslocação à Choupana**: [Link](https://www.abola.pt/noticias/varias-mudancas-o-onze-do-fc-porto-para-a-deslocacao-a-choupana-2026021513082233855)
+- **AO VIVO: Witi faz o primeiro remate do Nacional, sem assustar Diogo Costa (25')**: [Link](https://www.flashscore.pt/noticias/futebol-liga-portugal-betclic-ao-vivo-witi-faz-o-primeiro-remate-do-nacional-sem-assustar-diogo-costa-25/pphy0AgR/)
+- **Tiago Margarido: "Esperava Mora e Alan Varela, mas não Pietuszewski"**: [Link](https://www.ojogo.pt/futebol/artigo/tiago-margarido-esperava-mora-e-alan-varela-mas-nao-pietuszewski/18052366)
+
+
+### parma vs (N/A, 15/02/2026 11:37 Lima)
+
+- **Parma vs. Verona (15 de Feb., 2026) Resultados en Vivo**: [Link](https://www.espn.com.pe/futbol/partido/_/juegoId/737029)
+- **Serie A: Hellas Verona busca salir del último lugar ante Parma**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-hellas-verona-busca-salir-del-ultimo-lugar-ante-parma-noticia-1675854)
+
+
+### elecciones cal (N/A, 15/02/2026 11:37 Lima)
+
+- **CAL elegirá este 15 de febrero a su representante ante el Pleno del JNE**: [Link](https://caretas.pe/politica/cal-elegira-este-15-de-febrero-a-su-representante-ante-el-pleno-del-jne/)
+- **Elecciones con discriminación para representar ante el jurado nacional de elecciones**: [Link](https://lpderecho.pe/elecciones-con-discriminacion-para-representar-ante-el-jurado-nacional-de-elecciones/)
+- **Denuncian irregularidades en elecciones en el CAL: "Tenemos que tener más garantías", señala Abanto**: [Link](https://panamericana.pe/eldominical/politica/465382-denuncian-irregularidades-elecciones-cal-garantias-senala-abanto)
+
+
+### rayo vallecano - atlético madrid (N/A, 15/02/2026 11:37 Lima)
+
+- **Rayo Vallecano - Atlético de Madrid hoy, en directo: última hora, LaLiga EA Sports en vivo**: [Link](https://as.com/futbol/primera/rayo-vallecano-atletico-de-madrid-hoy-en-directo-ultima-hora-laliga-ea-sports-en-vivo-f202602-d/)
+- **Apuestas y Pronóstico del Rayo Vallecano vs Atlético Madrid 15/02/26**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2026/febrero/pronostico-rayo-vallecano-vs-atletico-madrid-15-02-26)
+- **Rayo Vallecano-Atlético de Madrid: Alineaciones probables, estadísticas y cómo ver por TV (16:15)**: [Link](https://espanol.eurosport.com/futbol/la-liga/2025-2026/rayo-vallecano-atletico-de-madrid-la-liga-alineaciones-como-ver-tv-online-estadisticas_sto23270818/story.shtml)
+
+
 ### real oviedo - athletic (N/A, 15/02/2026 08:03 Lima)
 
 - **Apuestas y Pronóstico del Real Oviedo vs Athletic Club 15/02/26**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2026/febrero/pronostico-real-oviedo-vs-athletic-club-15-02-26)
@@ -958,74 +1027,5 @@ Sin noticias relacionadas disponibles.
 - **“The door cracks open and I hear, ‘Who the hell are you? Play that again!‘” Steven Tyler gatecrashed Jared James Nichols’ jam and invited him to hang out with Aerosmith – and he kept coming back**: [Link](https://www.guitarworld.com/artists/guitarists/when-jared-james-nichols-hung-out-with-aerosmith)
 - **Steven Tyler gatecrashed Jared James Nichols’ jam and invited him to hang out with Aerosmith**: [Link](https://www.yahoo.com/entertainment/music/articles/steven-tyler-gatecrashed-jared-james-114655909.html)
 - **Judge Allows California Claims to Proceed in Steven Tyler Abuse Lawsuit, Dismisses Others**: [Link](https://www.lawcommentary.com/articles/judge-allows-california-claims-to-proceed-in-steven-tyler-abuse-lawsuit-dismisses-others)
-
-
-### rocio jurado (N/A, 12/02/2026 00:26 Lima)
-
-- **Yo Soy conciertos 2026: El jurado pide más diva y carácter en la presentación de Rocío Jurado**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-conciertos-2026-el-jurado-pide-mas-diva-y-caracter-en-la-presentacion-de-rocio-jurado_20260211/)
-- **“Ortega Cano miraba a Rocío Jurado sin dejar de pelarle langostinos a su madre”: la boda que rivalizó con la de la infanta**: [Link](https://www.lecturas.com/epoca-dorada/ortega-cano-miraba-a-rocio-jurado-sin-dejar-pelarle-langostinos-a-su-madre-boda-que-rivalizo-infanta_188523)
-
-
-### spurs - warriors (N/A, 12/02/2026 00:26 Lima)
-
-- **It’s time for Basketball: San Antonio Spurs at Golden State Warriors**: [Link](https://www.poundingtherock.com/general/94796/its-time-for-basketball-san-antonio-spurs-at-golden-state-warriors)
-- **Gui Santos and the art of conformance**: [Link](https://dubnationhq.com/p/gui-santos-and-the-art-of-conformance)
-- **How to Watch Spurs vs Warriors: Live Stream NBA, TV Channel**: [Link](https://www.newsweek.com/sports/nba/how-to-watch-spurs-vs-warriors-live-stream-nba-tv-channel-11508071)
-
-
-### kick (N/A, 12/02/2026 00:26 Lima)
-
-- **Seahawks, fans celebrate Super Bowl victory with Championship Ceremony and Parade**: [Link](https://www.king5.com/article/sports/nfl/seahawks/watch-live-seahawks-super-bowl-championship-ceremony-parade/281-ddeb5e4b-25b7-442c-a950-8e6aba103a95)
-- **A Plea From Me to You**: [Link](https://spdblotter.seattle.gov/2026/02/10/a-plea-from-me-to-you/)
-- **Seahawks celebrate Super Bowl LX victory with huge 12s crowd in Seattle!**: [Link](https://komonews.com/news/local/seattle-seahawks-parade-super-bowl-victory-championship-celebration-sodo-belltown-traffic-crowds-street-closures-lumen-field-4th-avenue-cedar-street)
-
-
-### anitta (N/A, 12/02/2026 00:26 Lima)
-
-- **Anitta transforma Pacaembu em megafesta e encerra turnê 'Ensaios 2026' com casa lotada**: [Link](https://www.gazetasp.com.br/entretenimento/anitta-transforma-pacaembu-em-megafesta-e-encerra-turne-ensaios-2026/1172325/)
-- **Anitta traduz os signos em maquiagens cheias de brilho no pré-Carnaval**: [Link](https://capricho.abril.com.br/beleza/anitta-traduz-os-signos-em-maquiagens-cheias-de-brilho-no-pre-carnaval/)
-- **Anitta revela se voltaria a desfilar por uma escola de samba no Carnaval**: [Link](https://www.radiopampa.com.br/anitta-revela-se-voltaria-a-desfilar-por-uma-escola-de-samba-no-carnaval/)
-
-
-### atv en vivo (N/A, 12/02/2026 00:26 Lima)
-
-- **Oficial: Carlos Zambrano dejó de ser jugador de Alianza Lima tras llegar a acuerdo**: [Link](https://depor.com/futbol-peruano/descentralizado/carlos-zambrano-se-va-de-alianza-lima-llegaron-a-acuerdo-en-medio-de-denuncia-por-presunto-abuso-sexual-en-montevideo-liga-1-2026-noticia/)
-- **Revelan AUDIO DE ZAMBRANO sobre denuncia de abuso sexual en su contra**: [Link](https://peru21.pe/policiales/carlos-zambrano-audio-sobre-denuncia-de-abuso-sexual-en-su-contra/)
-- **Eddie Fleischman afirma que Carlos Zambrano intentó continuar en Alianza Lima pese a ser separado del club: ''No tiene consciencia de sus actos''**: [Link](https://larepublica.pe/deportes/2026/02/11/eddie-fleischman-afirma-que-carlos-zambrano-intento-continuar-en-alianza-lima-pese-a-ser-separado-del-club-no-tiene-consciencia-de-sus-actos-atmp-809842)
-
-
-### monterrey - xelajú mc (N/A, 12/02/2026 00:26 Lima)
-
-- **Xelajú MC cae doblegado por Monterrey y se despide de la Concacaf Champions Cup**: [Link](https://espndeportes.espn.com/futbol/guatemala/nota/_/id/16304916/xelaju-cae-doblegado-monterrey-se-despide-concacaf-champions-cup)
-- **¿Qué canal pasa Monterrey vs Club Xelaju hoy: dónde ver y EN VIVO la Concacaf Champions Cup**: [Link](https://www.365scores.com/es/news/monterrey-vs-club-xelaju-hoy-donde-ver/)
-- **🚨Alineaciones listas para el Rayados - Xelajú**: [Link](https://onefootball.com/es/noticias/alineaciones-listas-para-el-rayados-xelaju-42396481)
-
-
-### alianza lima fc (N/A, 11/02/2026 21:46 Lima)
-
-- **Golazo de Hernán Barcos tras eliminar a tres rivales en FC Cajamarca vs Deportivo Garcilaso por Liga 1 2026**: [Link](https://www.infobae.com/peru/deportes/2026/02/09/gol-hernan-barcos-fc-cajamarca-vs-deportivo-garcilaso-liga-1-2026-video-hoy/)
-- **Hernán Barcos, autocrítico en FC Cajamarca tras empate en los descuentos: “Hay que correr un poco más”**: [Link](https://depor.com/futbol-peruano/descentralizado/hernan-barcos-gol-con-fc-cajamarca-autocritica-por-1-1-vs-deportivo-garcilaso-y-analisis-hay-que-correr-un-poco-mas-video-noticia/)
-- **(FOTOS | VIDEO) Garcilaso rescató un punto en su visita al FC Cajamarca**: [Link](https://ovacion.pe/noticias/liga1-2026/fotos-video-garcilaso-rescato-un-punto-su-visita-al-fc-cajamarca)
-
-
-### partidos de hoy (N/A, 11/02/2026 21:46 Lima)
-
-- **Partidos de hoy, miércoles 11 de febrero del 2026: horarios y canales TV para ver EN VIVO la Copa Libertadores y Premier League**: [Link](https://rpp.pe/futbol/futbol-mundial/partidos-de-hoy-miercoles-11-de-febrero-del-2026-revisa-la-programacion-de-la-fecha-noticia-1675252)
-- **Partidos de hoy, 11 de febrero: Horario y canal EN VIVO**: [Link](https://www.americatv.com.pe/deportes/futbol-mundial/partidos-hoy-11-febrero-horarios-y-transmisiones-n452662)
-- **Partidos de hoy, miércoles 11 de febrero de 2026: programación, canales TV y resultados en vivo**: [Link](https://www.infobae.com/peru/deportes/2026/02/11/partidos-de-hoy-miercoles-11-de-febrero-de-2026-programacion-canales-tv-y-resultados-en-vivo/)
-
-
-### peru vs (N/A, 11/02/2026 21:46 Lima)
-
-- **Nueva derrota para Perú: cayó 6-0 ante Brasil en el Sudamericano femenino Sub 20**: [Link](https://libero.pe/futbol-peruano/seleccion-peruana/2026/02/10/peru-vs-brasil-en-vivo-gratis-partido-de-sudamericano-sub-20-femenino-via-directv-sports-video-vilb-761310)
-- **Brasil vs Perú EN VIVO HOY 11 de febrero - Sudamericano U20**: [Link](https://www.deportesrcn.com/futbol/brasil-vs-peru-en-vivo-hoy-11-de-febrero-sudamericano-u20-145737)
-- **Perú vs Brasil: Resultado EN VIVO, minuto a minuto y goles del Sudamericano Sub 20 Femenino**: [Link](https://www.365scores.com/es/news/peru-vs-brasil-resultado-en-vivo-goles/)
-
-
-### américa - olimpia (N/A, 11/02/2026 21:46 Lima)
-
-- **📱 Canales TV para ver Club América vs. Olimpia EN VIVO GRATIS por la Concachampions 2026**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/a-que-hora-juega-y-que-canal-transmite-club-america-vs-cd-olimpia-en-vivo-hoy-por-la-concachampions-2026-en-mexico-honduras-y-eeuu-canales-tv-nnda-nnrt-noticia/)
-- **Jardine acepta que América está en deuda por el Mundial de Clubes**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/16299044/america-andre-jardine-deuda-concacaf-mundial-de-clubes)
-- **Transmisión EN VIVO del América vs Olimpia hoy: cómo mirar el partido por TV o streaming**: [Link](https://www.365scores.com/es/news/como-ver-transmision-america-vs-olimpia/)
 
 
