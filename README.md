@@ -1,3 +1,29 @@
+### al-ahli saudi - shabab al-ahli (N/A, 16/02/2026 11:53 Lima)
+
+- **Al-Ahli Saudi's Expected Lineup Against Shabab Al-Ahli**: [Link](https://www.ysscores.com/en/news/13912201/Al-Ahli-Saudi's-Expected-Lineup-Against-Shabab-Al-Ahli)
+- **Al Ahli Saudi FC and Shabab Al Ahli Dubai Clash in Key Matchup**: [Link](https://news.ssbcrack.com/al-ahli-saudi-fc-and-shabab-al-ahli-dubai-clash-in-key-matchup/)
+- **Preview: Al Ahli vs Shabab Al Ahli Prediction, lineups, betting tips & odds | AFC Champions League Elite 2025-26**: [Link](https://khelnow.com/football/world-football-al-ahli-vs-shabab-al-ahli-preview-202602)
+
+
+### twitter (N/A, 16/02/2026 11:53 Lima)
+
+- **X outage takes down social media platform**: [Link](https://www.foxbusiness.com/fox-news-tech/x-outage-takes-down-social-media-platform)
+- **X Goes Down: Social Media Site Not Working for Thousands of Users Worldwide**: [Link](https://variety.com/2026/digital/news/x-twitter-down-outage-not-working-error-reports-1236664568/)
+- **‘Stranger Things’ Star Ties the Knot in Surprise Ceremony**: [Link](https://www.thedailybeast.com/elon-musks-social-media-site-tanks-as-x-goes-down-for-thousands/)
+
+
+### 16 de febrero que se celebra (N/A, 16/02/2026 11:53 Lima)
+
+- **Día de los Amores Imposibles: por qué se celebra este 16 de febrero**: [Link](https://www.clarin.com/internacional/dia-amores-imposibles-celebra-16-febrero_0_YkwGjOmUbC.html)
+- **Día de los Amores Imposibles: la fecha que reivindica los amores truncos y resignifica las historias que no pudieron ser**: [Link](https://www.infobae.com/peru/2026/02/15/dia-de-los-amores-imposibles-la-fecha-que-reivindica-los-amores-truncos-y-resignifica-las-historias-que-no-pudieron-ser/)
+- **El 16 de febrero recuerda a los amores que no pudieron ser**: [Link](https://misionescuatro.com/general/el-16-de-febrero-recuerda-a-los-amores-que-no-pudieron-ser/)
+
+
+### cronograma de pagos (N/A, 16/02/2026 11:53 Lima)
+
+Sin noticias relacionadas disponibles.
+
+
 ### uni (N/A, 16/02/2026 08:16 Lima)
 
 - **Iowa State wrestling defeats UNI at home, wins eight of 10 bouts**: [Link](https://www.desmoinesregister.com/live-story/sports/college/iowa-state/wrestling/2026/02/15/iowa-state-uni-wrestling-score-live-updates-highlights-stats-results/88603390007/)
@@ -1001,33 +1027,5 @@ Sin noticias relacionadas disponibles.
 - **Scintille tra Morgan e Laura Pausini: "l'inno italiano trasformato in una canzone Disney"**: [Link](https://lifestyle.everyeye.it/notizie/scintille-morgan-laura-pausini-inno-italiano-trasformato-canzone-disney-858456.html)
 - **“Fratelli d’Italia L’Italia s’è desta…”**: [Link](https://iltorinese.it/2026/02/11/fratelli-ditalia-litalia-se-desta/)
 - **VIDEO | I titoli dell'edizione serale del TgPadova del 9 Febbraio 2026**: [Link](https://tgpadova.telenuovo.it/attualita/2026/02/09/video-i-titoli-delledizione-serale-del-tgpadova-del-9-febbraio-2026)
-
-
-### miguel bose (N/A, 12/02/2026 21:46 Lima)
-
-- **“Papito” el disco que consagró el legado de Miguel Bosé y anticipa su regreso a Chile**: [Link](https://www.radioimagina.cl/2026/02/papito-el-disco-que-consagro-el-legado-de-miguel-bose-y-anticipa-su-regreso-a-chile/)
-- **Miguel Bosé trasladará a los hijos a una escuela de élite de Andorra, igual que las Thyssen**: [Link](https://www.segre.com/es/sociedad/260210/miguel-bose-trasladara-a-los-hijos-a-una-escuela-de-elite-de-andorra-igual-que-las-thyssen_1106388.html)
-- **La razón por la que Miguel Bosé se muda a Andorra tiene que ver con sus hijos... y con su ex Nacho Palau**: [Link](https://www.esdiario.com/chismografo/260209/179236/razon-miguel-bose-muda-andorra-ver-hijos-ex-nacho-palau.html)
-
-
-### ben shelton (N/A, 12/02/2026 21:46 Lima)
-
-- **2026 Dallas Open: Paul [24th] vs. Kecmanovic [66th] Prediction, Odds and Match Preview**: [Link](https://sportsbookwire.usatoday.com/story/sports/sports-betting/2026/02/12/tommy-paul-vs-miomir-kecmanovic-dallas-open-tennis-odds-lines-betting-2-12-2026/88638680007/)
-- **Adrian Mannarino vs. Ben Shelton: Predictions, Where to Watch**: [Link](https://globelynews.com/sports/adrian-mannarino-vs-ben-shelton-predictions-where-to-watch/)
-- **Dallas R2 previews and predictions: Shelton vs. Mannarino, Paul vs. Kecmanovic**: [Link](https://tenngrand.com/dallas-r2-previews-and-predictions-shelton-vs-mannarino-paul-vs-kecmanovic/)
-
-
-### eva ramon gallegos (N/A, 12/02/2026 21:46 Lima)
-
-- **El IPN logra eliminar el 100 % del VPH con terapia fotodinámica, avance histórico contra el cáncer cervicouterino**: [Link](https://www.meteored.mx/noticias/actualidad/el-ipn-logra-eliminar-el-100-del-vph-con-terapia-fotodinamica-avance-historico-contra-el-cancer-cervicouterino.html)
-- **Eva Ramón Gallegos: La científica mexicana que desarrolla terapia con láser que elimina por completo el Virus del Papiloma Humano en estudios piloto**: [Link](https://www.elimparcial.com/mexico/2026/02/12/eva-ramon-gallegos-la-cientifica-mexicana-que-desarrolla-terapia-con-laser-que-elimina-por-completo-el-virus-del-papiloma-humano-en-estudios-piloto/)
-- **Científica mexicana Eva Ramón Gallegos lograr eliminar el Virus del Papiloma Humano: ¿Cómo lo hizo y qué es la terapia fotodinámica?**: [Link](https://www.ejecentral.com.mx/nuestro-eje/cientifica-mexicana-eva-ramon-gallegos-lograr-eliminar-el-virus-del-papiloma-humano-como-lo-hizo-y-que-es-la-terapia-fotodinamica)
-
-
-### u vs cienciano (N/A, 12/02/2026 21:46 Lima)
-
-- **¿Qué canales transmiten Universitario vs. Cienciano y a qué hora juegan?**: [Link](https://depor.com/futbol-peruano/descentralizado/universitario-vs-cienciano-en-vivo-fecha-horarios-canales-de-tv-y-donde-ver-transmision-gratis-por-liga-1-max-movistar-tv-directv-noticia/)
-- **La “joya” vuelve al once ante Cienciano**: [Link](https://caretas.pe/deportes/la-joya-vuelve-al-once-ante-cienciano/)
-- **Con Sekou Gassama: altas y bajas de Universitario tras anuncio de convocados para enfrentar a Cienciano**: [Link](https://rpp.pe/futbol/descentralizado/universitario-con-sekou-gassama-la-u-anuncio-a-sus-convocados-para-enfrentar-a-cienciano-noticia-1675650)
 
 
