@@ -1,3 +1,38 @@
+### jose jeri (N/A, 16/02/2026 00:38 Lima)
+
+- **Muñante: Cueto deberá decidir si renuncia a su candidatura para ser considerado reemplazo de Jerí ante una eventual censura**: [Link](https://rpp.pe/politica/congreso/munante-no-se-puede-pasar-por-agua-tibia-situacion-de-jeri-y-debera-asumir-la-consecuencia-politica-noticia-1675981)
+- **Muñante propone a Cueto o Maricarmen Alva como reemplazo de Jerí y descarta opciones de la izquierda**: [Link](https://larepublica.pe/politica/2026/02/15/munante-propone-a-cueto-o-maricarmen-alva-como-reemplazo-de-jeri-y-descarta-opciones-de-la-izquierda-hnews-250845)
+- **Muñante dice que Cueto deberá decidir si deja su candidatura al Senado, ante posible reemplazo de Jerí**: [Link](https://gestion.pe/peru/politica/munante-dice-que-cueto-debera-decidir-si-deja-su-candidatura-al-senado-ante-posible-reemplazo-de-jeri-noticia/)
+
+
+### keiko fujimori (N/A, 16/02/2026 00:38 Lima)
+
+- **José Jerí puede ser censurado con menos de 20 votos, pero “no es constitucional”, asegura exoficial del Congreso**: [Link](https://www.infobae.com/peru/2026/02/15/jose-jeri-puede-ser-censurado-con-menos-de-20-votos-pero-no-es-constitucional-asegura-exoficial-del-congreso/)
+- **José Jerí dice que la vacancia es el "procedimiento" que corresponde en su caso en el Congreso**: [Link](https://rpp.pe/politica/gobierno/jose-jeri-dice-que-la-vacancia-es-el-procedimiento-que-corresponde-en-su-caso-en-el-congreso-noticia-1676028)
+- **Exoficial mayor del Congreso: "El procedimiento debido no es el de la censura, sino la vacancia"**: [Link](https://peru21.pe/politica/oficial-mayor-del-congreso-el-procedimiento-debido-es-la-censura-no-la-vacancia/)
+
+
+### stake (N/A, 16/02/2026 00:38 Lima)
+
+- **Opinion | What Trump Is the Best at, Hands Down**: [Link](https://www.nytimes.com/2026/02/11/opinion/trump-crypto-corruption.html)
+- **Sens. Warren, Kim demand CFIUS review of UAE's reported $500 million stake in World Liberty Financial**: [Link](https://www.theblock.co/post/389958/sens-warren-kim-demand-cfius-review-of-uaes-reported-500-million-stake-in-world-liberty-financial-reuters)
+- **Senate Democrats seek CFIUS probe of reported UAE stake in Trump family's crypto company**: [Link](https://www.reuters.com/legal/government/senate-democrats-seek-cfius-probe-reported-uae-stake-trump-familys-crypto-2026-02-13/)
+
+
+### kanye west (N/A, 16/02/2026 00:38 Lima)
+
+- **Bianca Censori Called to Testify as Witness in Kanye West's Legal Battle**: [Link](https://www.tmz.com/2026/02/15/bianca-censori-called-to-testify-as-witness-in-kanye-wests-legal-battle/)
+- **Bianca Censori to Testify in Kanye West’s Legal Battle**: [Link](https://www.filmogaz.com/152432)
+- **Bianca Censori Heads to Spa Ahead of Valentine's Day**: [Link](https://www.tmz.com/2026/02/14/bianca-censori-going-to-spa-in-los-angeles/)
+
+
+### deportivo cali (N/A, 16/02/2026 00:38 Lima)
+
+- **Deportivo Cali frenó el invicto de Nacional en la Liga Betplay 2026-I**: [Link](https://www.espn.com.ar/futbol/colombia/nota/_/id/16310906/deportivo-cali-freno-el-invicto-de-nacional-en-la-liga-betplay-2026-i)
+- **Con un Gallese clave: Deportivo Cali venció 1-0 ante Atlético Nacional por Liga BetPlay | RESUMEN Y GOL**: [Link](https://elcomercio.pe/deporte-total/colombia/cali-vs-atletico-nacional-en-vivo-online-gratis-via-rcn-win-sports-a-que-hora-juegan-canal-que-transmite-y-donde-ver-por-liga-betplay-video-noticia/)
+- **Alberto Gamero 'aguanta' la presión pese a vencer a Nacional: "Algún día me tendré que ir del Cali"**: [Link](https://www.noticiascaracol.com/golcaracol/futbol-colombiano/alberto-gamero-aguanta-la-presion-pese-a-vencer-a-nacional-algun-dia-me-tendre-que-ir-del-cali-rg10)
+
+
 ### fortaleza - boyacá chicó (N/A, 15/02/2026 21:42 Lima)
 
 - **Pronóstico Fortaleza FC Boyacá Chicó - Primera A Colombia 15/02/26**: [Link](https://www.sportytrader.com/es/pronosticos/fortaleza-fc-boyaca-chico-327532/)
@@ -992,39 +1027,5 @@ Sin noticias relacionadas disponibles.
 - **“No me sentía con confianza de patear”: Paolo, la historia del penal y la posición del vestuario tras el Matutazo paraguayo que eliminó a Alianza**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/alianza-lima-hoy-no-me-sentia-con-confianza-de-patear-paolo-guerrero-la-historia-del-penal-y-la-posicion-del-vestuario-tras-el-matutazo-paraguayo-que-elimino-a-alianza-pablo-guede-tlcnota-noticia/)
 - **Pablo Guede tras eliminación de Alianza Lima: "Creo que no hicimos méritos para quedar afuera"**: [Link](https://rpp.pe/futbol/copa-libertadores/alianza-lima-pablo-guede-tras-eliminacion-en-libertadores-creo-que-no-hicimos-meritos-para-quedar-afuera-noticia-1675532)
 - **Paolo Guerrero se confiesa tras el penal fallado de Eryc Castillo: “No me sentía con confianza”**: [Link](https://depor.com/futbol-peruano/copa-libertadores/paolo-guerrero-alianza-lima-conto-su-verdad-tras-penal-de-eryc-castillo-y-eliminacion-no-me-sentia-con-confianza-video-noticia/)
-
-
-### tarjeta roja futbol (N/A, 12/02/2026 15:40 Lima)
-
-- **¡Alivio para Endrick!**: [Link](https://as.com/futbol/internacional/alivio-para-endrick-f202602-n/)
-- **Endrick respira aliviado**: [Link](https://www.marca.com/futbol/real-madrid/2026/02/12/endrick-respira-aliviado.html)
-- **La Ligue 1 reduce la suspensión a Endrick por su roja con Lyon**: [Link](https://www.espn.com.ar/futbol/francia/nota/_/id/16305111/endrick-ligue-1-reduce-suspension-roja-lyon)
-
-
-### atlético madrid - man utd (N/A, 12/02/2026 15:40 Lima)
-
-- **Seven key quotes from the press conference**: [Link](https://www.manutd.com/en/news/detail/seven-key-quotes-from-atleti-v-man-utd-press-conference-with-marc-skinner-and-anna-sandberg)
-- **EXCLUSIVE: Atletico's Benitez ready for Man Utd in Women's Champions League**: [Link](https://www.flashscore.com/news/soccer-champions-league-women-exclusive-atletico-s-benitez-ready-for-man-utd-in-women-s-champions-league/tfxSUGu3/)
-- **🚨 Atlético and Manchester United line-ups for Champions League last 16**: [Link](https://ca.sports.yahoo.com/news/atl-tico-manchester-united-line-185900808.html)
-
-
-### atlético madrid - barcelona (N/A, 12/02/2026 15:40 Lima)
-
-- **¡En catorce minutos! Atlético Madrid vence 2-0 al FC Barcelona por semifinal de la Copa del Rey | VIDEO**: [Link](https://elcomercio.pe/deporte-total/espana/blooper-de-joan-garcia-hoy-barcelona-vs-atletico-madrid-por-copa-del-rey-autogol-del-barcelona-video-noticia/)
-- **Todo lo que pase en las semifinales de la Copa del Rey, en directo**: [Link](https://www.flashscore.pe/noticias/futbol-copa-del-rey-en-directo-ronda-semifinales/IRJzCigT/)
-- **🕰️ A qué hora ver el FC Barcelona vs. Atlético de Madrid EN VIVO hoy por la Copa del Rey en EE.UU. y México**: [Link](https://gestion.pe/mix/sports/a-que-hora-ver-fc-barcelona-vs-atletico-de-madrid-en-vivo-hoy-12-de-febrero-por-semifinal-de-copa-del-rey-2026-en-eeuu-mexico-y-espana-nnda-nnrt-noticia/)
-
-
-### america (N/A, 12/02/2026 15:40 Lima)
-
-- **América avanza a octavos entre abucheos por empate ante a Olimpia**: [Link](https://www.espn.com.ar/futbol/clubes/nota/_/id/16304668/america-olimpia-concacaf-resultado-empate-abucheos-grito-clasico-chivas)
-- **¿A qué hora juega y qué canal transmite Club América vs. CD Olimpia por la Concachampions 2026 en México, Honduras y EE.UU.?**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/a-que-hora-juega-y-que-canal-transmite-club-america-vs-cd-olimpia-en-vivo-hoy-por-la-concachampions-2026-en-mexico-honduras-y-eeuu-canales-tv-nnda-nnrt-noticia/)
-- **Larcamón afirma que Cruz Azul no debe subestimar a Vancouver para avanzar en Concacaf**: [Link](https://laconexionusa.com/larcamon-afirma-que-cruz-azul-no-debe-subestimar-a-vancouver-para-avanzar-en-concacaf/)
-
-
-### midtjylland (N/A, 12/02/2026 15:40 Lima)
-
-- **FC Midtjylland book narrow win against league leaders AGF in first leg of Cup semi-final**: [Link](https://www.flashscore.com/news/soccer-landspokal-cup-fc-midtjylland-book-narrow-win-against-league-leaders-agf-in-first-leg-of-cup-semi-final/fXrlXmNp/)
-- **Big blow for FC Midtjylland as captain is ruled out for six weeks through injury**: [Link](https://www.flashscore.com/news/soccer-superliga-big-blow-for-fc-midtjylland-as-captain-is-ruled-out-for-six-weeks-through-injury/zDDm1w7E/)
 
 
