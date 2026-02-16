@@ -1,3 +1,73 @@
+### coventry vs (N/A, 16/02/2026 15:38 Lima)
+
+- **Coventry v Boro: how momentum has shifted in the Championship title race**: [Link](https://www.theguardian.com/football/who-scored-blog/2026/feb/16/coventry-boro-momentum-shifted-championship-title-race-frank-lampard-kim-hellberg)
+- **LAMPARD EXCLUSIVE: 'I know what it takes to turn the Coventry slide'**: [Link](https://www.dailymail.co.uk/sport/football/article-15561743/FRANK-LAMPARD-turn-Coventry-slide-promotion-Premier-League.html)
+- **Your matchday programme against Middlesbrough is available**: [Link](https://www.ccfc.co.uk/news/2026/february/16/your-matchday-programme-against-middlesbrough-is-available/)
+
+
+### cagliari fc (N/A, 16/02/2026 15:38 Lima)
+
+- **"Me sorprendió": Yerry Mina desmintió lesión de rodilla en Cagliari**: [Link](https://www.espn.com.pe/futbol/italia/nota/_/id/16312146/me-sorprendio-yerry-mina-desmintio-lesion-cronica-rodilla-cagliari)
+- **Un problema crónico de rodilla afecta regularidad de Mina en Cagliari**: [Link](https://www.espn.com.pe/futbol/italia/nota/_/id/16296332/yerry-mina-problema-cronico-rodilla-cagliari)
+- **Serie A: Cagliari vs. Lecce – Confirmed line-ups and updates**: [Link](https://sports.yahoo.com/articles/serie-cagliari-vs-lecce-confirmed-192000476.html)
+
+
+### lecce vs (N/A, 16/02/2026 15:38 Lima)
+
+- **Serie A: Cagliari vs. Lecce – Confirmed line-ups and updates**: [Link](https://sports.yahoo.com/articles/serie-cagliari-vs-lecce-confirmed-192000476.html)
+- **Cagliari vs. Lecce: Serie A betting odds, prediction, pick**: [Link](https://www.usatoday.com/story/sports/soccer/2026/02/16/cagliari-vs-lecce-serie-a-betting-odds-prediction-pick/88697491007/)
+- **Serie A Matchday 25: Predicted Lineups for Cagliari vs Lecce**: [Link](https://www.filmogaz.com/153000)
+
+
+### macclesfield fc (N/A, 16/02/2026 15:38 Lima)
+
+- **How the greatest FA Cup upset ever is just the beginning for Macclesfield FC**: [Link](https://www.cnn.com/2026/02/16/sport/macclesfield-greatest-fa-cup-upset-soccer)
+- **'We will never forget that lad, his position in the changing room will always be there. Before a game we'll put a programme on his seat. He's our 12th man in every game' Macclesfield owner on tragic passing of Ethan McLeod and inspired FA Cup run**: [Link](https://www.fourfourtwo.com/team/we-will-never-forget-that-lad-his-position-in-the-changing-room-will-always-be-there-before-a-game-well-put-a-programme-on-his-seat-hes-our-12th-man-in-every-game-macclesfield-owner-on-tragic-passing-of-ethan-mcleod-and-inspired-fa-cup-run)
+- **Purpose and togetherness: What the soccer world can learn from FA Cup heroes Macclesfield**: [Link](https://ghanasoccernet.com/purpose-and-togetherness-what-the-soccer-world-can-learn-from-fa-cup-heroes-macclesfield)
+
+
+### girona - barcelona (N/A, 16/02/2026 15:38 Lima)
+
+- **Official: Barcelona starting lineup against Girona | La Liga MD 24**: [Link](https://sports.yahoo.com/articles/official-barcelona-starting-lineup-against-185500518.html)
+- **Girona vs. Barcelona: La Liga betting odds, prediction, pick**: [Link](https://www.usatoday.com/story/sports/soccer/2026/02/16/girona-vs-barcelona-la-liga-betting-odds-prediction-pick/88697543007/)
+- **Barcelona XI vs. Girona: Raphinha, Rashford Verdict Reached—Injury News, Predicted Lineup**: [Link](https://www.si.com/soccer/barcelona-xi-vs-girona-injury-news-predicted-lineup-2-16-26)
+
+
+### cagliari - lecce (N/A, 16/02/2026 15:38 Lima)
+
+- **Cagliari-Lecce, le formazioni ufficiali**: [Link](https://gianlucadimarzio.com/cagliari-lecce-formazioni-ufficiali-serie-a-16-febbraio-2026/)
+- **CALCIO Campionato Serie A 25ª giornata – CAGLIARI vs LECCE Le Formazioni Ufficiali**: [Link](https://www.lecceoggi.com/calcio-campionato-serie-a-25a-giornata-cagliari-vs-lecce-le-formazioni-ufficiali/)
+- **LIVE Cagliari-Lecce 0-0: Zappa spara alto un rigore in movimento**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Cagliari/16-02-2026/cagliari-lecce-live-risultato-e-gol-in-diretta-serie-a.shtml)
+
+
+### macclesfield - brentford (N/A, 16/02/2026 15:38 Lima)
+
+- **Saga of the Silkmen: calm before the storm in Macclesfield as Brentford await**: [Link](https://www.theguardian.com/football/2026/feb/16/saga-of-the-silkmen-calm-before-the-storm-in-macclesfield-as-brentford-await)
+- **Debut for new signing? Predicted Brentford XI v Macclesfield**: [Link](https://www.richmondandtwickenhamtimes.co.uk/sport/brentfordfc/25856227.kaye-furo-set-feature-predicted-bees-xi-v-macclesfield/)
+- **Be warned, Brentford. Mighty Macc have another headline to write!**: [Link](https://www.thenationalleague.org.uk/news/2026/february/16/be-warned--brentford--mighty-macc-have-another-headline-to-write-/)
+
+
+### robert duvall (N/A, 16/02/2026 15:38 Lima)
+
+- **Oscar-winning actor Robert Duvall dead at 95**: [Link](https://www.cnn.com/2026/02/16/entertainment/robert-duvall-death)
+- **Where to Watch Robert Duvall’s Top Performances**: [Link](https://www.nytimes.com/2026/02/16/movies/robert-duvall-godfather-apocalypse-now-streaming.html)
+- **Robert Duvall, Apocalypse Now and Godfather star, dies aged 95**: [Link](https://www.theguardian.com/film/2026/feb/16/robert-duvall-dies-apocalypse-now-godfather-mash-to-kill-a-mockingbird)
+
+
+### liga de campeones de la afc (N/A, 16/02/2026 15:38 Lima)
+
+- **Fecha del partido entre Al-Shorta y Nasaf en la Liga de Campeones**: [Link](https://www.ysscores.com/es/news/13907050/Fecha-del-partido-entre-Al-Shorta-y-Nasaf-en-la-Liga-de-Campeones)
+- **Al-Sharjah vs Nasaf: pronósticos, cuotas, y datos para apostar!**: [Link](https://www.apwin.com/es/pronosticos/al-sharjah-vs-nasaf-pronostico-afc-champions-league-16-02-2026/)
+- **Nasaf vs Al Shorta: pronósticos, cuotas y datos para apostar**: [Link](https://www.apwin.com/es/pronosticos/nasaf-vs-al-shorta-pronostico-afc-champions-league-09-02-2026/)
+
+
+### al hilal - al-wahda (N/A, 16/02/2026 15:38 Lima)
+
+- **MD8: Al Hilal SFC (KSA) 2-1 Al Wahda FC (UAE)**: [Link](https://www.the-afc.com/en/club/afc_champions_league_elite.html/news/md8-al-hilal-sfc-ksa-2-1-al-wahda-fc-uae)
+- **Potential Defensive Blow for Al-Hilal Before the AFC Champions League**: [Link](https://www.ysscores.com/en/news/13911759/Potential-Defensive-Blow-for-Al-Hilal-Before-the-AFC-Champions-League)
+- **Al Hilal vs Al-Wahda: Where to watch the match online, live stream, TV channels, and kick-off time**: [Link](https://www.goal.com/en/news/how-to-watch-al-hilal-v-al-wahda-16022026/bltcfd926ec7b3dde3f)
+
+
 ### al-ahli saudi - shabab al-ahli (N/A, 16/02/2026 11:53 Lima)
 
 - **Al-Ahli Saudi's Expected Lineup Against Shabab Al-Ahli**: [Link](https://www.ysscores.com/en/news/13912201/Al-Ahli-Saudi's-Expected-Lineup-Against-Shabab-Al-Ahli)
@@ -957,75 +1027,5 @@ Sin noticias relacionadas disponibles.
 - **Al-Ahly Defeats Al-Shabab with Five Goals and Rises to Second Place in the League**: [Link](https://www.ysscores.com/en/news/13910406/Al-Ahly-Defeats-Al-Shabab-with-Five-Goals-and-Rises-to-Second-Place-in-the-League)
 - **Preview: Al Shabab vs Al Ahli Prediction, lineups, betting tips & odds | Saudi Pro League 2025-26**: [Link](https://khelnow.com/football/world-football-al-shabab-vs-al-ahli-preview-202602)
 - **Al Shabab Dismiss Guausil in Decisive Move Ahead of Al Ahli Clash**: [Link](https://koorabreak.com/en/255707/)
-
-
-### lakers - mavericks (N/A, 13/02/2026 08:13 Lima)
-
-- **Dallas Mavericks vs Los Angeles Lakers Feb 12, 2026 Box Scores**: [Link](https://www.nba.com/game/dal-vs-lal-0022500791/box-score)
-- **Mavs president says franchise is entering "remarkable evolution" as new‑arena talks begin**: [Link](https://www.cbsnews.com/texas/news/mavericks-new-arena-caa-partnership-dallas-future-aac/)
-- **Mavericks hiring CAA Sports to help find naming-rights partner for future arena**: [Link](https://www.nytimes.com/athletic/7036141/2026/02/11/dallas-mavericks-arena-caa-sports/)
-
-
-### atv en vivo (N/A, 13/02/2026 08:13 Lima)
-
-- **Magaly Medina cuestiona versión de Laura Spoya tras accidente: “¿Hasta las 3 de la mañana solo tomaste agua?”**: [Link](https://www.infobae.com/peru/2026/02/13/magaly-medina-cuestiona-version-de-laura-spoya-tras-accidente-hasta-las-3-de-la-manana-solo-tomaste-agua/)
-- **Madre de Laura Spoya confirma que su hija está en UCI: "Necesita una operación"**: [Link](https://www.atv.pe/noticia/madre-de-laura-spoya-confirma-que-su-hija-esta-en-uci-necesita-una-operacion/)
-- **Expareja de Laura Spoya revela el estado de salud de la conductora tras choque: "Echen buenas vibras"**: [Link](https://peru21.pe/espectaculos/expareja-de-laura-spoya-revela-el-estado-de-salud-de-la-conductora-tras-choque/)
-
-
-### que se celebra el 13 de febrero (N/A, 13/02/2026 03:52 Lima)
-
-- **Qué se celebra el 13 de febrero en el Perú: hitos de defensa, pensamiento político y cultura**: [Link](https://www.infobae.com/peru/2026/02/13/que-se-celebra-el-13-de-febrero-en-el-peru-hitos-de-defensa-pensamiento-politico-y-cultura/)
-- **¿Galentine’s Day? ¿Con qué se come eso?**: [Link](https://acento.com.do/especiales/galentines-day-con-que-se-come-eso-9619585.html)
-- **SIN VALENTÍN**: [Link](https://www.pressreader.com/mexico/el-imparcial/20260212/282475715278239)
-
-
-### lakers vs (N/A, 13/02/2026 03:52 Lima)
-
-- **Mavericks vs Lakers Picks & Odds Today: Flagg-less Dallas To Stumble In Los Angeles**: [Link](https://www.oddsshark.com/nba/mavericks-lakers-picks-odds-february-12-2026)
-- **Luka Dončić, Deandre Ayton remain out in final contest before All-Star break**: [Link](https://sports.yahoo.com/articles/luka-don-deandre-ayton-remain-211357935.html)
-- **Is LeBron James playing tonight vs the Dallas Mavericks? Latest update on the Los Angeles Lakers star's i**: [Link](https://timesofindia.indiatimes.com/sports/nba/top-stories/is-lebron-james-playing-tonight-vs-the-dallas-mavericks-latest-update-on-the-los-angeles-lakers-stars-injury-report-february-12-2026/articleshow/128281956.cms)
-
-
-### fa cup (N/A, 13/02/2026 00:23 Lima)
-
-- **Colwyn Bay vs The New Saints - Odds, Live Scores and Detailed Stats**: [Link](https://www.bettingodds.com/football/welsh-premier-league/13-02-2026/colwyn-bay-vs-the-new-saints)
-- **How to watch today's Wrexham vs Ipswich FA Cup game: Live stream, TV channel, and start time**: [Link](https://www.goal.com/en-za/news/how-to-watch-wrexham-ipswich-13022026/blt4958b650ba499db9)
-- **Wrexham star Rathbone hopes it is same again in FA Cup showdown with Ipswich**: [Link](https://www.chesterstandard.co.uk/sport/25847168.wrexham-midfielder-ollie-rathbone-magic-fa-cup/)
-
-
-### michael buble (N/A, 13/02/2026 00:23 Lima)
-
-- **Injured Giants star Ryan Lin remains 'hopeful' to take part in WHL Prospect Games Wednesday at LEC**: [Link](https://theprovince.com/sports/hockey/junior-hockey/injured-giants-star-ryan-lin-remains-hopeful-to-take-part-in-whl-prospect-games-wednesday-at-lec)
-- **Michael Bublé and Drew Scott Introduced as Celebrity Guest Coaches for 2026 WHL Prospects Game**: [Link](https://chl.ca/whl-giants/article/michael-buble-and-drew-scott-introduced-as-celebrity-guest-coaches-for-2026-whl-prospects-game)
-- **Blazers’ Hurlbert named Team West alternate captain for inaugural WHL Prospects Game**: [Link](https://cfjctoday.com/2026/02/05/blazers-hurlbert-named-team-west-alternate-captain-for-inaugural-whl-prospects-game/)
-
-
-### thunder - bucks (N/A, 13/02/2026 00:23 Lima)
-
-- **Cam Thomas Shines As Bucks Battle Thunder In Pre All-Star Showdown**: [Link](https://evrimagaci.org/gpt/cam-thomas-shines-as-bucks-battle-thunder-in-pre-allstar-showdown-528759)
-- **Ousmane Dieng thanks Thunder fans for the love in his return to OKC with Bucks**: [Link](https://www.oklahoman.com/videos/sports/nba/thunder/2026/02/12/ousmane-dieng-thanks-thunder-fans-for-the-love-in-his-return-to-okc-with-bucks/88655441007/)
-- **Nikola Topic makes NBA debut in OKC’s loss to Bucks**: [Link](https://kfor.com/sports/thunder/nikola-topic-makes-nba-debut-in-okcs-loss-to-bucks/)
-
-
-### mavericks - lakers (N/A, 13/02/2026 00:23 Lima)
-
-- **Mavericks vs Lakers Picks & Odds Today: Flagg-less Dallas To Stumble In Los Angeles**: [Link](https://www.oddsshark.com/nba/mavericks-lakers-picks-odds-february-12-2026)
-- **Luka Dončić, Deandre Ayton remain out in final contest before All-Star break**: [Link](https://sports.yahoo.com/articles/luka-don-deandre-ayton-remain-211357935.html)
-- **Is LeBron James playing tonight vs the Dallas Mavericks? Latest update on the Los Angeles Lakers star's i**: [Link](https://timesofindia.indiatimes.com/sports/nba/top-stories/is-lebron-james-playing-tonight-vs-the-dallas-mavericks-latest-update-on-the-los-angeles-lakers-stars-injury-report-february-12-2026/articleshow/128281956.cms)
-
-
-### juventud (N/A, 13/02/2026 00:23 Lima)
-
-- **Movilizaciones estudiantiles marcan el Día de la Juventud en Venezuela**: [Link](https://cnnespanol.cnn.com/2026/02/12/venezuela/video/venezuela-estudiantes-dia-juventud-protestas)
-- **El movimiento estudiantil de Venezuela encabezó la primera marcha en Caracas tras la captura de Maduro: “No tenemos miedo”**: [Link](https://www.infobae.com/venezuela/2026/02/12/el-movimiento-estudiantil-de-venezuela-encabezo-la-primera-marcha-en-caracas-tras-la-captura-de-maduro-no-tenemos-miedo/)
-- **"NO TENEMOS MIEDO": Primera gran marcha tras caída de Maduro congrega a miles en Venezuela**: [Link](https://peru21.pe/mundo/primera-gran-manifestacion-tras-caida-de-maduro-en-venezuela/)
-
-
-### laura pausini (N/A, 13/02/2026 00:23 Lima)
-
-- **Scintille tra Morgan e Laura Pausini: "l'inno italiano trasformato in una canzone Disney"**: [Link](https://lifestyle.everyeye.it/notizie/scintille-morgan-laura-pausini-inno-italiano-trasformato-canzone-disney-858456.html)
-- **“Fratelli d’Italia L’Italia s’è desta…”**: [Link](https://iltorinese.it/2026/02/11/fratelli-ditalia-litalia-se-desta/)
-- **VIDEO | I titoli dell'edizione serale del TgPadova del 9 Febbraio 2026**: [Link](https://tgpadova.telenuovo.it/attualita/2026/02/09/video-i-titoli-delledizione-serale-del-tgpadova-del-9-febbraio-2026)
 
 
