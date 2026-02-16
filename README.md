@@ -1,3 +1,38 @@
+### uni (N/A, 16/02/2026 08:16 Lima)
+
+- **Iowa State wrestling defeats UNI at home, wins eight of 10 bouts**: [Link](https://www.desmoinesregister.com/live-story/sports/college/iowa-state/wrestling/2026/02/15/iowa-state-uni-wrestling-score-live-updates-highlights-stats-results/88603390007/)
+- **No. 4 Cyclones Dominate No. 18 West Virginia 32-7**: [Link](https://cyclones.com/news/2026/2/13/wrestling-no-4-cyclones-dominate-no-18-west-virginia-32-7)
+- **Mountaineers Drop Road Dual to No. 4 Iowa State**: [Link](https://wvusports.com/news/2026/2/13/wrestling-mountaineers-drop-road-dual-to-no-4-iowa-state)
+
+
+### liga peruana de vóley alianza lima (N/A, 16/02/2026 08:16 Lima)
+
+- **Resultados de la Liga Peruana de Vóley en la fecha 7, fase 2: así van los equipos en el torneo**: [Link](https://www.infobae.com/peru/deportes/2026/02/14/resultados-de-la-liga-peruana-de-voley-en-la-fecha-7-fase-2-asi-van-los-equipos-en-el-torneo/)
+- **Retomó la punta: Alianza Lima venció 3-1 a Géminis por la fecha 7 de fase 2 de Liga Peruana de Vóley**: [Link](https://rpp.pe/voley/mas-voley/alianza-lima-vs-geminis-en-vivo-a-que-hora-juegan-y-como-ver-fecha-7-fase-2-liga-peruana-de-voley-2026-via-latina-voley-en-vivo-noticia-1675862)
+- **¡Todo apretado! Conoce resultados y tabla tras la 7ma. fecha de la Liga Peruana de Vóley**: [Link](https://ovacion.pe/noticias/voley-apuesta-total/todo-apretado-conoce-resultados-tabla-tras-7ma-fecha-liga-peruana)
+
+
+### dolar hoy (N/A, 16/02/2026 08:16 Lima)
+
+- **Precio del dólar de hoy, lunes 16 de febrero: cuál es el tipo de cambio del día**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-2026-cuanto-esta-el-dolar-este-lunes-16-de-febrero-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
+- **Dólar, cotización HOY en Perú: ¿cuál es el tipo de cambio este lunes 16 de febrero de 2026?**: [Link](https://www.expreso.com.pe/economia/dolar-cotizacion-hoy-en-peru-cual-es-el-tipo-de-cambio-este-lunes-16-de-febrero-de-2026-sunat-mef-bcrp-ultima-hora-ultimo-minuto-precio-soles-divisa-noticia/1264332/)
+- **¿Cuál es la cotización del dólar hoy jueves 12 de febrero del 2026?**: [Link](https://eltiempo.pe/economia/cual-es-la-cotizacion-del-dolar-hoy-jueves-12-de-febrero-del-2026/)
+
+
+### radio exitosa en vivo (N/A, 16/02/2026 08:16 Lima)
+
+- **Censura a José Jerí: Renovación Popular y Fuerza Popular se enfrentan por moción**: [Link](https://rpp.pe/politica/actualidad/censura-a-jose-jeri-renovacion-popular-y-fuerza-popular-se-enfrentan-por-mocion-noticia-1676029)
+- **Keiko Fujimori reafirma su apoyo a José Jerí y tilda a Rafael López Aliaga de “títere de los caviares”, misógino y sin “madurez emocional”**: [Link](https://www.infobae.com/peru/2026/02/16/keiko-fujimori-molesta-llama-a-rafael-lopez-aliaga-titere-de-los-caviares-misogino-y-sin-madurez-emocional/)
+- **Keiko Fujimori se opone a cambiar a José Jerí en plena recta electoral**: [Link](https://caretas.pe/home_web/home_principal/keiko-fujimori-se-opone-a-cambiar-a-jose-jeri-en-plena-recta-electoral/)
+
+
+### paro de transportistas (N/A, 16/02/2026 08:16 Lima)
+
+- **Empresa 'El Rápido' anuncia paralización de operaciones tras asesinato de conductor**: [Link](https://peru21.pe/lima/empresa-el-rapido-anuncia-paralizacion-de-operaciones-asesinato-de-conductor/)
+- **¿Cuáles son las líneas de buses que no trabajarán por el paro de transporte este 16 de febrero?**: [Link](https://larepublica.pe/sociedad/2026/02/16/paro-de-transportistas-hoy-16-de-febrero-estas-lineas-de-transporte-no-saldran-a-trabajas-por-extorsiones-1054512)
+- **Nuevo ataque a transporte en SMP deja un chofer muerto**: [Link](https://caretas.pe/nacional/nuevo-ataque-a-transporte-en-smp-deja-un-chofer-muerto/)
+
+
 ### josé cueto (N/A, 16/02/2026 03:56 Lima)
 
 - **Muñante: Cueto deberá decidir si renuncia a su candidatura para ser considerado reemplazo de Jerí ante una eventual censura**: [Link](https://rpp.pe/politica/congreso/munante-no-se-puede-pasar-por-agua-tibia-situacion-de-jeri-y-debera-asumir-la-consecuencia-politica-noticia-1675981)
@@ -994,40 +1029,5 @@ Sin noticias relacionadas disponibles.
 - **¿Qué canales transmiten Universitario vs. Cienciano y a qué hora juegan?**: [Link](https://depor.com/futbol-peruano/descentralizado/universitario-vs-cienciano-en-vivo-fecha-horarios-canales-de-tv-y-donde-ver-transmision-gratis-por-liga-1-max-movistar-tv-directv-noticia/)
 - **La “joya” vuelve al once ante Cienciano**: [Link](https://caretas.pe/deportes/la-joya-vuelve-al-once-ante-cienciano/)
 - **Con Sekou Gassama: altas y bajas de Universitario tras anuncio de convocados para enfrentar a Cienciano**: [Link](https://rpp.pe/futbol/descentralizado/universitario-con-sekou-gassama-la-u-anuncio-a-sus-convocados-para-enfrentar-a-cienciano-noticia-1675650)
-
-
-### primera división (N/A, 12/02/2026 21:46 Lima)
-
-- **LaLiga EA Sports: Elche buscará vencer su racha negativa ante Osasuna**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-elche-buscara-vencer-su-racha-negativa-ante-osasuna-noticia-1675574)
-- **Sarabia: “Este equipo tiene menos puntos que juego”**: [Link](https://www.marca.com/futbol/elche/2026/02/12/sarabia-equipo-puntos-juego.html)
-- **El 'Reyno' del suspense**: [Link](https://es.besoccer.com/noticia/osasuna-goles-tiempo-anadido-minuto-90-elche-laliga-2025-26-1394341)
-
-
-### bucks - thunder (N/A, 12/02/2026 21:46 Lima)
-
-- **Best NBA Player Props Today for February 12: Chet's Mix**: [Link](https://www.covers.com/nba/player-prop-bets-thursday-february-12-2026)
-- **How to watch Bucks vs. Thunder: TV channel and streaming options for February 12 - The Athletic**: [Link](https://www.nytimes.com/athletic/7042761/2026/02/12/bucks-vs-thunder-stream-how-to-watch-feb-12/)
-- **NBA Fantasy: DFS picks & advice for Feb. 12**: [Link](https://www.nba.com/news/nba-fantasy-dfs-picks-advice-for-feb-12-2026)
-
-
-### honor (N/A, 12/02/2026 21:46 Lima)
-
-- **Alfonso Ribeiro Shares Photo of His ‘Last Moment’ with James Van Der Beek: ‘I Really Miss Him Already’**: [Link](https://people.com/alfonso-ribeiro-shares-photo-of-his-last-moment-with-james-van-der-beek-11905759)
-- **Steven Spielberg, Dawson Leery's idol, donates $25K to James Van Der Beek's family after actor's death**: [Link](https://pagesix.com/2026/02/12/celebrity-news/steven-spielberg-dawson-leerys-idol-donates-25k-to-james-van-der-beeks-family-after-actors-death/)
-- **James Van Der Beek’s Death Underscores Early-Onset Colorectal Cancers**: [Link](https://www.nytimes.com/2026/02/12/well/james-vanderbeek-colorectal-cancer.html)
-
-
-### samsung galaxy galaxy s26 ultra (N/A, 12/02/2026 21:46 Lima)
-
-- **Samsung confirma el Galaxy Unpacked este 25 de febrero y anuncia novedades con Galaxy AI**: [Link](https://andina.pe/agencia/noticia-samsung-confirma-galaxy-unpacked-este-25-febrero-y-anuncia-novedades-galaxy-ai-1062710.aspx)
-- **Samsung desvelará el Galaxy S26 el próximo 25 de febrero**: [Link](https://ahora.com.pe/samsung-desvelara-el-galaxy-s26-el-proximo-25-de-febrero/)
-- **Galaxy Unpacked 2026: fecha y hora del mayor evento tecnológico de Samsung**: [Link](https://elcomercio.pe/tecnologia/actualidad/galaxy-unpacked-2026-esta-es-la-fecha-y-hora-del-mayor-evento-tecnologico-de-samsung-inteligencia-artificial-galaxy-s-noticia/)
-
-
-### atlético nacional - fortaleza (N/A, 12/02/2026 21:46 Lima)
-
-- **Transmisión EN VIVO del Atlético Nacional vs Fortaleza hoy: cómo mirar el partido por TV o streaming**: [Link](https://www.365scores.com/es/news/en-vivo-atletico-nacional-vs-fortaleza/)
-- **¡Cardona al Banco! Diego Arias sorprende y dejará en el banco de suplentes a Edwin Cardona en su juego ante Fortaleza**: [Link](https://www.elfutbolero.com.co/primeraa/cardona-al-banco-diego-arias-sorprende-y-dejara-en-el-banco-de-suplentes-a-edwin-cardona-en-su-juego-ante-fortaleza-20260213-73628.html)
-- **En vivo | Alfredo Morelos desperdicia un penalti y Nacional sigue 0-0 con Fortaleza | El Colombiano**: [Link](https://www.elcolombiano.com/deportes/futbol/atletico-nacional-fortaleza-liga-betplay-minuto-a-minuto-en-vivo-resultado-fecha-6-OH33524596)
 
 
