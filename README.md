@@ -1,3 +1,31 @@
+### josé cueto (N/A, 16/02/2026 03:56 Lima)
+
+- **Muñante: Cueto deberá decidir si renuncia a su candidatura para ser considerado reemplazo de Jerí ante una eventual censura**: [Link](https://rpp.pe/politica/congreso/munante-no-se-puede-pasar-por-agua-tibia-situacion-de-jeri-y-debera-asumir-la-consecuencia-politica-noticia-1675981)
+- **Muñante dice que Cueto deberá decidir si deja su candidatura al Senado, ante posible reemplazo de Jerí**: [Link](https://gestion.pe/peru/politica/munante-dice-que-cueto-debera-decidir-si-deja-su-candidatura-al-senado-ante-posible-reemplazo-de-jeri-noticia/)
+- **Muñante: “José Cueto podría asumir la Presidencia si renuncia a su candidatura al Senado”**: [Link](https://elcomercio.pe/politica/congreso/alejandro-munante-jose-cueto-podria-asumir-la-presidencia-si-renuncia-a-su-candidatura-al-senado-ultimas-noticia/)
+
+
+### paolo guerrero (N/A, 16/02/2026 03:56 Lima)
+
+- **Eddie Fleischman lanzó dura crítica a la capitanía de Paolo Guerrero en Alianza Lima: “¿Es un líder positivo en el vestuario?”**: [Link](https://larepublica.pe/futbol-peruano/2026/02/15/eddie-fleischman-lanzo-dura-critica-a-la-capitania-de-paolo-guerrero-en-alianza-lima-es-un-lider-positivo-en-el-vestuario-1078935)
+- **«La culpa es mía»: el mea culpa de Guerrero tras la eliminación**: [Link](https://caretas.pe/deportes/la-culpa-es-mia-el-mea-culpa-de-guerrero-tras-la-eliminacion/)
+- **Erick Delgado DURO CONTRA PAOLO GUERRERO: "¿42 años y no tiene confianza?"**: [Link](https://peru21.pe/deportes/erick-delgado-duro-contra-paolo-guerrero-42-anos-y-no-tiene-confianza/)
+
+
+### 16 de febrero (N/A, 16/02/2026 03:56 Lima)
+
+- **Horóscopo de hoy, 16 de febrero: Estas son las predicciones más exactas**: [Link](https://elcomercio.pe/luces/vida-social/horoscopo-de-hoy-16-de-febrero-estas-son-las-predicciones-mas-exactas-noticia/)
+- **➤ Descubre tu HORÓSCOPO DE HOY: qué te deparan los astros este 16 de febrero, según Jhan Sandoval**: [Link](https://larepublica.pe/horoscopo/2026/02/16/descubre-tu-horoscopo-de-hoy-que-te-deparan-los-astros-este-16-de-febrero-segun-jhan-sandoval-evat-1307235)
+- **Horóscopo 16 de febrero: Te sentirás feliz y afortunado**: [Link](https://www.bolivia.com/horoscopo/horoscopo-16-de-febrero-563781)
+
+
+### cagliari vs (N/A, 16/02/2026 03:56 Lima)
+
+- **Preview: Cagliari vs Lecce - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/cagliari/preview/cagliari-vs-lecce-prediction-team-news-lineups_592039.html)
+- **Prediction: Cagliari vs Lecce – Betting Tips, Team News, Key Facts**: [Link](https://www.soccernews.com/prediction-cagliari-vs-lecce-betting-tips-team-news-key-facts/396015/)
+- **Serie A: Lecce visita a Cagliari por la fecha 25**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-lecce-visita-a-cagliari-por-la-fecha-25-noticia-1675973)
+
+
 ### jose jeri (N/A, 16/02/2026 00:38 Lima)
 
 - **Muñante: Cueto deberá decidir si renuncia a su candidatura para ser considerado reemplazo de Jerí ante una eventual censura**: [Link](https://rpp.pe/politica/congreso/munante-no-se-puede-pasar-por-agua-tibia-situacion-de-jeri-y-debera-asumir-la-consecuencia-politica-noticia-1675981)
@@ -1001,31 +1029,5 @@ Sin noticias relacionadas disponibles.
 - **Transmisión EN VIVO del Atlético Nacional vs Fortaleza hoy: cómo mirar el partido por TV o streaming**: [Link](https://www.365scores.com/es/news/en-vivo-atletico-nacional-vs-fortaleza/)
 - **¡Cardona al Banco! Diego Arias sorprende y dejará en el banco de suplentes a Edwin Cardona en su juego ante Fortaleza**: [Link](https://www.elfutbolero.com.co/primeraa/cardona-al-banco-diego-arias-sorprende-y-dejara-en-el-banco-de-suplentes-a-edwin-cardona-en-su-juego-ante-fortaleza-20260213-73628.html)
 - **En vivo | Alfredo Morelos desperdicia un penalti y Nacional sigue 0-0 con Fortaleza | El Colombiano**: [Link](https://www.elcolombiano.com/deportes/futbol/atletico-nacional-fortaleza-liga-betplay-minuto-a-minuto-en-vivo-resultado-fecha-6-OH33524596)
-
-
-### cruz azul - vancouver football club (N/A, 12/02/2026 21:46 Lima)
-
-- **Cruz Azul vs. Vancouver: dónde y a qué hora ver EN VIVO Vuelta**: [Link](https://www.mediotiempo.com/futbol/concacaf-liga-de-campeones/cruz-azul-vs-vancouver-a-que-hora-y-donde-ver-vuelta-concachampions-2026)
-- **¡Doblete de Luka Romero! Cruz Azul está asegurando boleto a octavos**: [Link](https://www.tudn.com/futbol/concacaf-champions-cup/doblete-de-luka-romero-cruz-azul-pita-en-el-cuauhtemoc-y-asegura-boleto-a-octavos-video)
-- **El Cuauhtémoc revive la Concacaf con Cruz Azul**: [Link](https://cronicapuebla.com/deportes/el-cuauhtemoc-revive-la-concacaf-con-cruz-azul)
-
-
-### dgo (N/A, 12/02/2026 15:40 Lima)
-
-Sin noticias relacionadas disponibles.
-
-
-### futbol en vivo (N/A, 12/02/2026 15:40 Lima)
-
-- **Partidos de HOY, jueves 12 de febrero del 2026: programación, horarios y canales TV para ver fútbol EN VIVO**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/partidos-de-hoy-jueves-12-de-febrero-del-2026-resultados-programacion-horarios-canales-tv-y-donde-ver-futbol-en-vivo-noticia/)
-- **Partidos de hoy, sábado 7 de febrero de 2026: programación, canales TV y resultados en vivo**: [Link](https://www.infobae.com/peru/deportes/2026/02/07/partidos-de-hoy-sabado-7-de-febrero-de-2026-programacion-canales-tv-y-resultados-en-vivo/)
-- **Partidos de hoy EN VIVO: programación, horario y dónde ver fútbol online este viernes 6 de febrero**: [Link](https://libero.pe/futbol-internacional/2026/02/05/partidos-de-hoy-en-vivo-viernes-6-de-febrero-170045)
-
-
-### futbol (N/A, 12/02/2026 15:40 Lima)
-
-- **“No me sentía con confianza de patear”: Paolo, la historia del penal y la posición del vestuario tras el Matutazo paraguayo que eliminó a Alianza**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/alianza-lima-hoy-no-me-sentia-con-confianza-de-patear-paolo-guerrero-la-historia-del-penal-y-la-posicion-del-vestuario-tras-el-matutazo-paraguayo-que-elimino-a-alianza-pablo-guede-tlcnota-noticia/)
-- **Pablo Guede tras eliminación de Alianza Lima: "Creo que no hicimos méritos para quedar afuera"**: [Link](https://rpp.pe/futbol/copa-libertadores/alianza-lima-pablo-guede-tras-eliminacion-en-libertadores-creo-que-no-hicimos-meritos-para-quedar-afuera-noticia-1675532)
-- **Paolo Guerrero se confiesa tras el penal fallado de Eryc Castillo: “No me sentía con confianza”**: [Link](https://depor.com/futbol-peruano/copa-libertadores/paolo-guerrero-alianza-lima-conto-su-verdad-tras-penal-de-eryc-castillo-y-eliminacion-no-me-sentia-con-confianza-video-noticia/)
 
 
