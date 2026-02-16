@@ -1,3 +1,71 @@
+### fortaleza - boyacá chicó (N/A, 15/02/2026 21:42 Lima)
+
+- **Pronóstico Fortaleza FC Boyacá Chicó - Primera A Colombia 15/02/26**: [Link](https://www.sportytrader.com/es/pronosticos/fortaleza-fc-boyaca-chico-327532/)
+- **Fortaleza vs Boyacá Chicó en vivo la Liga BetPlay 2026-I: ¿Quién gana el partido de hoy?**: [Link](https://www.clarosports.com/colombia/liga-bet-play/fortaleza-vs-boyaca-chico-en-vivo-la-liga-betplay-2026-i-quien-gana-el-partido-de-hoy/)
+- **Fortaleza cometió insólito blooper y Boyacá Chicó marcó golazo**: [Link](https://www.winsports.co/futbol-colombiano/noticias/fortaleza-cometio-insolito-blooper-y-boyaca-chico-marco-golazo-409036)
+
+
+### instituto - central córdoba (N/A, 15/02/2026 21:42 Lima)
+
+- **¿Qué canal pasa Instituto vs Central Córdoba hoy: dónde ver EN VIVO la Liga Profesional?**: [Link](https://www.365scores.com/es/news/donde-ver-instituto-central-cordoba/)
+- **Luego del golpe en Copa Argentina, el Ferro necesita sumar en Córdoba**: [Link](https://onefootball.com/de/news/luego-del-golpe-en-copa-argentina-el-ferro-necesita-sumar-en-cordoba-42416621)
+- **Vendió empanadas, fue traductor de Bielsa y es nuevo entrenador de Instituto: la historia de Diego Flores**: [Link](https://viapais.com.ar/cordoba/vendio-empanadas-traductor-bielsa-nuevo-entrenador-instituto-historia-diego-flores_0_sQVrmQSB8J.html)
+
+
+### elecciones (N/A, 15/02/2026 21:42 Lima)
+
+- **López Aliaga le ganaría a todos sus rivales en una eventual segunda vuelta**: [Link](https://www.ipsos.com/es-pe/lopez-aliaga-le-ganaria-todos-sus-rivales-en-una-eventual-segunda-vuelta)
+- **Cuatro candidatos empatados en el tercer lugar: Encuesta de Ipsos a solo dos meses de las Elecciones 2026**: [Link](https://www.infobae.com/peru/2026/02/12/asi-van-las-encuestas-a-solo-dos-meses-de-las-elecciones-2026-cuatro-candidatos-empatados-en-el-tercer-lugar/)
+- **Elecciones 2026: Ninguno de los 36 candidatos presidenciales genera confianza**: [Link](https://peru21.pe/politica/elecciones-2026-ninguno-de-los-36-candidatos-presidenciales-genera-confianza/)
+
+
+### alianza vs geminis voley (N/A, 15/02/2026 21:42 Lima)
+
+- **Alianza Lima derrota a Géminis 3 sets a 1 en la fase 2 de la Liga Peruana de Vóley 2026**: [Link](https://www.infobae.com/peru/deportes/2026/02/15/alianza-lima-vs-geminis-en-vivo-hoy-partido-fecha-7-fase-2-liga-peruana-de-voley-2026-resumen-resultado/)
+- **Liga Peruana de Vóley: Alianza Lima venció a Géminis y se mantiene en lo más alto**: [Link](https://andina.pe/agencia/noticia-liga-peruana-voley-alianza-lima-vencio-a-geminis-y-se-mantiene-lo-mas-alto-1063232.aspx)
+- **¡Celebró en su aniversario! Alianza superó a Géminis y trepó a la cima de la LPV**: [Link](https://ovacion.pe/noticias/voley-apuesta-total/celebro-su-aniversario-alianza-supero-geminis-trepo-cima-lpv)
+
+
+### foot ball club melgar (N/A, 15/02/2026 21:42 Lima)
+
+- **Tabla de posiciones Liga 1 2026 EN VIVO: partidos y resultados de la fecha 3 del Torneo Apertura**: [Link](https://depor.com/futbol-peruano/descentralizado/tabla-de-posiciones-de-la-liga-1-peru-2026-en-vivo-hoy-partidos-programacion-y-resultados-fecha-3-torneo-apertura-universitario-vs-cienciano-alianza-lima-vs-alianza-atletico-sporting-cristal-vs-juan-pablo-ii-noticia/)
+- **Apertura: Así se jugaron los partidos de Universitario, Cristal y Alianza Lima**: [Link](https://andina.pe/agencia/noticia-apertura-asi-se-jugaron-los-partidos-universitario-cristal-y-alianza-lima-1063167.aspx)
+- **¡Con FBC Melgar en la cima! Conoce resultados, tabla y todos los detalles de la 3ra. fecha del Apertura**: [Link](https://ovacion.pe/noticias/liga1-2026/fbc-melgar-cima-conoce-resultados-tabla-todos-detalles-3ra-fecha-del-apertura)
+
+
+### andrea vidal (N/A, 15/02/2026 21:42 Lima)
+
+- **Andrea Vidal: dictan detención preliminar a sospechosos vinculados a vehículo que la siguió antes de su asesinato [Exp. 01759-2024-5-1814-JR-PE-01]**: [Link](https://lpderecho.pe/andrea-vidal-dictan-detencion-preliminar-sospechosos-vinculados-vehiculo-siguio-antes-asesinato/)
+- **PNP no consiguió pruebas en asesinato de Andrea Vidal: liberan a dos detenidos**: [Link](https://www.expreso.com.pe/judicial/pnp-no-consiguio-pruebas-en-asesinato-de-andrea-vidal-liberan-a-dos-detenidos-policia-congreso-rodrigo-falcon-cortavarria-noticia/1263916/)
+- **Exclusivo: El último viaje de Andrea Vidal en más imágenes**: [Link](https://www.americatv.com.pe/noticias/actualidad/exclusivo-ultimo-viaje-andrea-vidal-nuevas-imagenes-n515828)
+
+
+### rosario central - barracas central (N/A, 15/02/2026 21:42 Lima)
+
+- **Central y Barracas empatan en Rosario**: [Link](https://www.ole.com.ar/futbol-primera/rosario-central-barracas-torneo-apertura_0_evZxTowBGY.html)
+- **Rosario Central recibirá a Barracas Central y Central Córdoba visitará a Instituto por la fecha 5 del Torneo Apertura**: [Link](https://www.infobae.com/deportes/2026/02/15/rosario-central-recibira-a-barracas-central-y-central-cordoba-visitara-a-instituto-por-la-fecha-5-del-torneo-apertura/)
+- **Central busca ahora encaminar el año en el Gigante tras el respiro que tuvo en la Copa Argentina**: [Link](https://www.lacapital.com.ar/ovacion/central-busca-ahora-encaminar-el-ano-el-gigante-el-respiro-que-tuvo-la-copa-argentina-n10244914.html)
+
+
+### cerro - nacional (N/A, 15/02/2026 21:42 Lima)
+
+- **Cerro Porteño vs Club Nacional: resultado en vivo por el Apertura 2026**: [Link](https://www.365scores.com/es/news/cerro-porteno-vs-club-nacional-resultado/)
+- **La quinta fecha cierra con un cotejo atrayente**: [Link](https://www.adndigital.com.py/la-quinta-fecha-cierra-con-un-cotejo-atrayente/)
+- **Nacional tiene una parada “más difícil todavía”**: [Link](https://d10.ultimahora.com/nacional-tiene-una-parada-mas-dificil-todavia)
+
+
+### central - peñarol (N/A, 15/02/2026 21:42 Lima)
+
+- **Matías Arezo tras la derrota de Peñarol ante Central Español: "No fuimos efectivos"**: [Link](https://www.espn.com.ar/futbol/uruguay/nota/_/id/16320099/matias-arezo-tras-la-derrota-de-penarol-ante-central-espanol-no-fuimos-efectivos)
+- **Diego Aguirre, enojado con la derrota de Peñarol: "Jugamos muy mal y no nos salió nada"**: [Link](https://www.directvsports.com/futbol/diego-aguirre-enojado-con-la-derrota-de-penarol-jugamos-muy-mal-y-no-nos-salio-nada-20260215-0031.html)
+- **Central-Peñarol en el Campus por el Apertura: cómo verlo, horario y alineaciones probables**: [Link](https://www.montevideo.com.uy/Deportes/Central-Penarol-en-el-Campus-por-el-Apertura-como-verlo-horario-y-alineaciones-probables-uc953104)
+
+
+### palmeiras vs guarani (N/A, 15/02/2026 21:42 Lima)
+
+- **📋 Palmeiras line-up revealed for final round of Paulistão group stage**: [Link](https://sports.yahoo.com/articles/palmeiras-line-revealed-final-round-223800492.html)
+
+
 ### gimnasia - estudiantes (N/A, 15/02/2026 15:33 Lima)
 
 - **El historial entre Estudiantes y Gimnasia: quién ganó más partidos en el clásico de La Plata**: [Link](https://espndeportes.espn.com/futbol/argentina/nota/_/id/15048128/el-historial-estudiantes-vs-gimnasia-quien-gano-mas-partidos-clasico-la-plata)
@@ -958,75 +1026,5 @@ Sin noticias relacionadas disponibles.
 
 - **FC Midtjylland book narrow win against league leaders AGF in first leg of Cup semi-final**: [Link](https://www.flashscore.com/news/soccer-landspokal-cup-fc-midtjylland-book-narrow-win-against-league-leaders-agf-in-first-leg-of-cup-semi-final/fXrlXmNp/)
 - **Big blow for FC Midtjylland as captain is ruled out for six weeks through injury**: [Link](https://www.flashscore.com/news/soccer-superliga-big-blow-for-fc-midtjylland-as-captain-is-ruled-out-for-six-weeks-through-injury/zDDm1w7E/)
-
-
-### barcelona versus atlético de madrid (N/A, 12/02/2026 15:40 Lima)
-
-- **Martínez Munuera, árbitro para el Atlético-Barça de Copa del Rey**: [Link](https://www.marca.com/futbol/copa-rey/2026/02/11/martinez-munuera-arbitro-atletico-barca-copa-rey.html)
-- **Martínez Munuera arbitrará el Atlético de Madrid-FC Barcelona de semifinales de Copa**: [Link](https://www.infobae.com/espana/agencias/2026/02/11/martinez-munuera-arbitrara-el-atletico-de-madrid-fc-barcelona-de-semifinales-de-copa/)
-- **El CTA recompensa con el VAR del Atleti-Barça de Copa al árbitro que amenazó públicamente al Real Madrid**: [Link](https://okdiario.com/deportes/cta-recompensa-var-del-atleti-barca-copa-arbitro-que-amenazo-publicamente-real-madrid-16225945)
-
-
-### arsenal vs brentford (N/A, 12/02/2026 15:40 Lima)
-
-- **Why William Saliba is not playing for Arsenal against Brentford today**: [Link](https://metro.co.uk/2026/02/12/william-saliba-not-playing-arsenal-brentford-today-26859074/)
-- **Why William Saliba is out for Arsenal vs Brentford as Mikel Arteta handed new blow**: [Link](https://www.mirror.co.uk/sport/football/news/william-saliba-arsenal-illness-brentford-36714518)
-- **'Where is he?' Arsenal fans surprised over ONE player's exclusion from lineup to face Brentford**: [Link](https://tribuna.com/en/blogs/where-is-he-arsenal-fans-surprised-over-one-players-exclusio/)
-
-
-### iga świątek (N/A, 12/02/2026 12:04 Lima)
-
-- **Na powrót Igi Świątek nie trzeba długo czekać**: [Link](https://sportowefakty.wp.pl/tenis/1234342/na-powrot-igi-swiatek-nie-trzeba-dlugo-czekac)
-- **Świątek w ćwierćfinale**: [Link](https://gazetaolsztynska.pl/artykul/swiatek-w-cwiercfinale-n2221892)
-- **Świątek powstrzymuje Kasatkinę i awansuje do kolejnej rundy w Dosze gdzie zmierzy się z Sakkari**: [Link](https://biznesistyl.pl/sport/tenis/swiatek-powstrzymuje-kasatkine-i-awansuje-do-kolejnej-rundy-w-dosze-gdzie-zmierzy-sie-z-sakkari.html)
-
-
-### nueva billetera digital (N/A, 12/02/2026 12:04 Lima)
-
-- **Yape tendrá más competencia: Nueva billetera digital es autorizada por la SBS**: [Link](https://www.infobae.com/peru/2026/02/10/yape-tendra-nueva-competencia-nueva-billetera-digital-es-autorizada-por-la-sbs/)
-- **Bitel entra en la carrera para competir con Yape y Plin**: [Link](https://gestion.pe/tu-dinero/bitel-entra-en-la-carrera-para-competir-con-yape-y-plin-noticia/)
-- **BiPay obtiene luz verde para operar como emisora de dinero electrónico**: [Link](https://rpp.pe/economia/economia/bipay-billetera-digital-de-bitel-operara-como-emisora-de-dinero-electronico-como-funcionara-noticia-1675253)
-
-
-### hermanas un amor compartido capítulo 7 (N/A, 12/02/2026 12:04 Lima)
-
-- **Hermanas, un amor compartido: Capítulo Completo 7 - Mi hija vive aquí**: [Link](https://www.lasestrellas.tv/telenovelas/hermanas-un-amor-compartido/hermanas-un-amor-compartido-capitulo-completo-7-mi-hija-vive-aqui-video)
-- **Alonso enfrenta a su padre por una traición**: [Link](https://www.lasestrellas.tv/telenovelas/hermanas-un-amor-compartido/alonso-enfrenta-a-su-padre-por-una-traicion-video)
-- **Alonso descubre que tiene una hija**: [Link](https://www.lasestrellas.tv/telenovelas/hermanas-un-amor-compartido/alonso-descubre-que-tiene-una-hija-video)
-
-
-### brentford vs arsenal (N/A, 12/02/2026 12:04 Lima)
-
-- **Mikel Arteta: 'Brentford are a top side' | Press conference | News**: [Link](https://www.arsenal.com/news/mikel-arteta-brentford-are-top-side)
-- **Keith Andrews relishing Arsenal set-piece battle**: [Link](https://www.brentfordfc.com/en/news/article/first-team-brentford-v-arsenal-keith-andrews-set-pieces-premier-league)
-- **Brentford vs Arsenal Prediction and Best Bets for February 12**: [Link](https://lastwordonsports.com/football/2026/02/12/brentford-vs-arsenal-best-bets-february-12/)
-
-
-### incendio (N/A, 12/02/2026 12:04 Lima)
-
-- **Incendio en Huachipa arrasa almacén y moviliza nueve unidades de bomberos**: [Link](https://canaln.pe/actualidad/incendio-consume-almacen-huachipa-n490282)
-- **Incendio en Huachipa: más de 20 unidades del Cuerpo de Bomberos luchan contra las llamas**: [Link](https://rpp.pe/videos/encendidos/incendio-en-huachipa-mas-de-20-unidades-del-cuerpo-de-bomberos-luchan-contra-las-llamas-noticia-1675591)
-- **Incendio de proporciones consume un almacén en Huachipa**: [Link](https://elcomercio.pe/lima/sucesos/incendio-en-huachipa-siniestro-de-proporciones-consume-un-almacen-ultimas-noticia/)
-
-
-### laura spoya (N/A, 12/02/2026 12:04 Lima)
-
-- **Laura Spoya PIERDE CONTROL de su camioneta y choca contra muro en Surco (VIDEO**: [Link](https://peru21.pe/espectaculos/laura-spoya-pierde-control-de-su-camioneta-y-choca-contra-muro-en-surco/)
-- **Janet opinó especulaciones sobre accidente de Laura Spoya**: [Link](https://www.americatv.com.pe/america-hoy/janet-opino-especulaciones-sobre-accidente-laura-spoya-noticia-162905)
-- **Mario Irivarren revela detalles de la salud de Laura Spoya: “Está fuera de peligro”**: [Link](https://elcomercio.pe/tvmas/farandula/mario-irivarren-revela-detalles-de-la-salud-de-laura-spoya-esta-fuera-de-peligro-ultimas-noticia/)
-
-
-### hora (N/A, 12/02/2026 12:04 Lima)
-
-- **Cambio de horario en New York City 2026: ¿cuándo hay que ajustar el reloj?, ¿se atrasa o se adelanta la hora?**: [Link](https://gestion.pe/mix/usa/cambio-de-horario-en-new-york-city-2026-cuando-hay-que-ajustar-el-reloj-se-atrasa-o-se-adelanta-la-hora-dst-daylight-saving-time-nnda-nnrt-noticia/)
-- **Cambia la hora en California 2026: ¿Tienes que atrasar o adelantar tus relojes, cómo configurarlos y desde qué ciudades?**: [Link](https://elcomercio.pe/mag/usa/local-us/cambia-la-hora-en-california-2026-se-adelanta-o-se-atrasa-el-reloj-como-ajustarlo-y-en-que-ciudades-se-aplica-dst-nnda-nnrt-noticia/)
-- **Horario de verano en EEUU 2026 ¿se adelanta o se atrasa el reloj?**: [Link](https://www.univision.com/noticias/estados-unidos/horario-de-verano-en-eeuu-se-adelanta-o-se-atrasa-el-reloj)
-
-
-### milagros aguayo (N/A, 12/02/2026 08:21 Lima)
-
-- **La ‘número dos’ del favorito a la Presidencia en Perú, acusada de inducir a menores violadas a ser madres**: [Link](https://elpais.com/america/2026-02-11/la-numero-dos-del-favorito-a-la-presidencia-en-peru-acusada-de-inducir-a-menores-violadas-a-ser-madres.html)
-- **Comisión de Ética pide informe a congresista Milagros Jáuregui por albergue de menores**: [Link](https://gestion.pe/peru/politica/comision-de-etica-pide-informe-a-congresista-milagros-jauregui-por-albergue-de-menores-noticia/)
-- **Denuncian penalmente a Milagros Jáuregui por niñas víctimas de violación forzadas a gestar en su refugio**: [Link](https://www.infobae.com/peru/2026/02/10/denuncian-penalmente-a-milagros-jauregui-por-ninas-victimas-de-violacion-forzadas-a-gestar-en-su-refugio/)
 
 
