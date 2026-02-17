@@ -1,3 +1,51 @@
+### galatasaray vs juventus pronostico (N/A, 17/02/2026 12:02 Lima)
+
+- **Cuándo juegan Galatasaray vs. Juventus por la UEFA Champions League: equipo, fecha, hora y TV en vivo**: [Link](https://www.espn.com.pe/futbol/champions-league/nota/_/id/16321573/galatasaray-vs-juventus-ida-playoffs-equipo-fecha-hora-y-tv-en-vivo)
+- **Champions League: Juventus se enfrentará a Galatasaray por la llave 2**: [Link](https://rpp.pe/futbol/ligas-internacionales/champions-league-juventus-se-enfrentara-a-galatasaray-por-la-llave-2-noticia-1676046)
+- **Pronóstico Galatasaray vs. Juventus - La ilusión ante la jerarquía ¿Quién tomará ventaja?**: [Link](https://gainblers.com/pe/pronosticos/futbol/europa/champions-league/pronostico-galatasaray-juventus-17-02-2026/)
+
+
+### paulo londra (N/A, 17/02/2026 12:02 Lima)
+
+- **Paulo Londra en Lima 2026: Fecha, lugar, entradas y todo sobre su concierto en el Perú**: [Link](https://trome.com/espectaculos/musica/paulo-londra-en-lima-2026-concierto-en-el-estadio-nacional-fecha-y-entradas-conciertos-en-lima-noticia/)
+- **Paulo Londra en Perú: el artista argentino remecerá el Estadio Nacional por primera vez en agosto**: [Link](https://www.moda.com.pe/noticias/musica/paulo-londra-en-peru-el-artista-argentino-remecera-el-estadio-nacional-por-primera-vez-en-agosto-entradas-teleticket/)
+
+
+### al-sadd - al ittihad (N/A, 17/02/2026 12:02 Lima)
+
+- **ACL Elite: Mancini tells Al Sadd to ‘seize opportunity’ in crunch Al Ittihad clash**: [Link](https://thepeninsulaqatar.com/article/17/02/2026/acl-elite-mancini-tells-al-sadd-to-seize-opportunity-in-crunch-al-ittihad-clash)
+- **al sadd vs al-ittihad: Aouar Strike, Disallowed Firmino Goal and Conceição’s Rotation Resolve**: [Link](https://www.filmogaz.com/154431)
+- **Mancini: No Alternative to Winning Against Al-Ittihad in Asian Elite**: [Link](https://www.ysscores.com/en/news/13912560/Mancini:-No-Alternative-to-Winning-Against-Al-Ittihad-in-Asian-Elite)
+
+
+### congreso de la república (N/A, 17/02/2026 12:02 Lima)
+
+- **Pleno del Congreso sesionará el martes 17 de febrero para debatir mociones de censura contra presidente José Jerí**: [Link](https://comunicaciones.congreso.gob.pe/noticias/pleno-del-congreso-sesionara-el-martes-17-de-febrero-para-debatir-mociones-de-censura-contra-presidente-jose-jeri/)
+- **El salvavidas grosero para Jerí por Richard Arce**: [Link](https://peru21.pe/opinion/el-salvavidas-grosero-para-jeri-por-richard-arce/)
+- **Óscar Urviola: "Si el Congreso insiste en el tema de la censura, en la práctica, ese es un golpe de Estado"**: [Link](https://rpp.pe/politica/gobierno/carlos-urviola-si-el-congreso-insiste-en-el-tema-de-la-censura-en-la-practica-ese-es-un-golpe-de-estado-noticia-1676194)
+
+
+### juan pablo varillas (N/A, 17/02/2026 12:02 Lima)
+
+- **Juan Pablo Varillas vs Álvaro Guillén EN VIVO: ¿a qué hora juegan y dónde ver la primera ronda del Challenger de Tigre?**: [Link](https://rpp.pe/tenis/mas-tenis/juan-pablo-varillas-vs-alvaro-guillen-en-vivo-a-que-hora-juegan-y-donde-ver-primera-ronda-challenger-de-tigre-2026-via-atp-tour-link-gratis-partidos-de-hoy-noticia-1676114)
+- **Comenzó el AAT Challenger Tigre con destacada participación argentina**: [Link](https://www.infobae.com/deportes/2026/02/16/comenzo-el-aat-challenger-tigre-con-destacada-participacion-argentina/)
+- **Los correntinos salen a escena en Tigre**: [Link](https://www.diarioepoca.com/1373818-los-correntinos-salen-a-escena-en-tigre)
+
+
+### galatasaray vs juventus (N/A, 17/02/2026 12:02 Lima)
+
+- **Osimhen denies disagreements with Spalletti: ‘He worked night and day’**: [Link](https://football-italia.net/osimhen-no-disagreement-spalletti-day-night/)
+- **İlkay Gündoğan on 'dream' move to Galatasaray**: [Link](https://www.uefa.com/uefachampionsleague/news/02a2-1ff0da9ef4a8-2241cfc3db1e-1000--ilkay-gundogan-on-dream-move-to-galatasaray/)
+- **How to watch Galatasaray vs Juventus in the USA: Live Stream and TV for 2025/2026 Champions League**: [Link](https://worldsoccertalk.com/watch-on-us-tv/how-to-watch-galatasaray-vs-juventus-in-the-usa-live-stream-and-tv-for-2025-2026-champions-league/)
+
+
+### resultados coar 2026 primera fase (N/A, 17/02/2026 12:02 Lima)
+
+- **Resultados COAR 2026: LINK para ver la lista de postulantes aptos a la primera fase a nivel nacional**: [Link](https://libero.pe/tiempoextra/2026/02/16/resultados-coar-2026-link-ver-lista-de-postulantes-aptos-primera-fase-nivel-nacional-colegios-de-alto-rendimiento-813440)
+- **Admisión COAR 2026: aquí el link oficial para ver resultados de primera fase**: [Link](https://andina.pe/agencia/noticia-admision-coar-2026-aqui-link-oficial-para-ver-resultados-primera-fase-1063396.aspx)
+- **Resultados Fase 1 COAR 2026: link oficial para ver la lista de postulantes que pasan a la siguiente etapa**: [Link](https://www.infobae.com/peru/2026/02/17/resultados-fase-1-coar-2026-link-oficial-para-ver-la-lista-de-postulantes-que-pasan-a-la-siguiente-etapa/)
+
+
 ### resultados coar 2026 (N/A, 17/02/2026 08:16 Lima)
 
 - **Resultados COAR 2026: LINK para ver la lista de postulantes aptos a la primera fase a nivel nacional**: [Link](https://libero.pe/tiempoextra/2026/02/16/resultados-coar-2026-link-ver-lista-de-postulantes-aptos-primera-fase-nivel-nacional-colegios-de-alto-rendimiento-813440)
@@ -975,54 +1023,5 @@ Sin noticias relacionadas disponibles.
 - **La película “Cumbres Borrascosas” es una adaptación superficial y un homenaje al cine, no a Brontë**: [Link](https://cnnespanol.cnn.com/2026/02/12/entretenimiento/pelicula-cumbres-borrascosas-superficial-critica-trax)
 - **Entre seudónimos y tragedias: 4 datos sobre Emily Brontë y su libro “Cumbres Borrascosas”**: [Link](https://www.nationalgeographicla.com/historia/2026/02/entre-seudonimos-y-tragedias-4-datos-sobre-emily-bronte-y-su-libro-cumbres-borrascosas)
 - **‘Cumbres borrascosas’: vimos la provocadora adaptación con Margot Robbie y Jacob Elordi y esta es nuestra reseña**: [Link](https://rpp.pe/cine/internacional/cumbres-borrascosas-vimos-la-nueva-adaptacion-con-margot-robbie-y-jacob-elordi-y-esta-es-nuestra-resena-noticia-1675616)
-
-
-### eddie vedder (N/A, 14/02/2026 00:11 Lima)
-
-- **Pearl Jam Is ‘Between Eras’ But ‘Excited About the Future,’ Eddie Vedder Says**: [Link](https://www.rollingstone.com/music/music-features/pearl-jam-drummer-future-eddie-vedder-interview-1235514367/)
-- **Pearl Jam’s Eddie Vedder Says the Band Is ‘Woodshedding’ Again After Drummer Matt Cameron’s Exit**: [Link](https://www.vice.com/en/article/pearl-jams-eddie-vedder-says-the-band-is-woodshedding-again-after-drummer-matt-camerons-exit/)
-- **Pearl Jam Determine Future After Departure**: [Link](https://www.alternativenation.net/pearl-jam-determine-future-after-departure/)
-
-
-### keiko fujimori (N/A, 14/02/2026 00:11 Lima)
-
-- **Cuatro candidatos empatados en el tercer lugar: Encuesta de Ipsos a solo dos meses de las Elecciones 2026**: [Link](https://www.infobae.com/peru/2026/02/12/asi-van-las-encuestas-a-solo-dos-meses-de-las-elecciones-2026-cuatro-candidatos-empatados-en-el-tercer-lugar/)
-- **Ipsos: El antivoto golpea a Keiko Fujimori, Mario Vizcarra y Carlos Álvarez**: [Link](https://peru21.pe/politica/ipsos-el-antivoto-golpea-keiko-fujimori-mario-vizcarra-y-carlos-alvarez/)
-- **Elecciones 2026: encuesta de IMASOLU revela una alta indecisión en la población**: [Link](https://rpp.pe/campanas/publirreportaje/elecciones-2026-encuesta-de-imasolu-revela-una-alta-indecision-en-la-poblacion-noticia-1675729)
-
-
-### tabla de posiciones liga 1 (N/A, 14/02/2026 00:11 Lima)
-
-- **Así se jugará la fecha 3 del Apertura de la Liga 1 2026**: [Link](https://www.espn.com.pe/futbol/peru/nota/_/id/16294072/programacion-de-la-fecha-3-del-apertura-liga-1-de-peru)
-- **Tabla de posiciones de Liga 1 2026 EN VIVO: partidos y resultados de la fecha 3 del Torneo Apertura**: [Link](https://depor.com/futbol-peruano/descentralizado/tabla-de-posiciones-de-la-liga-1-peru-2026-en-vivo-hoy-partidos-programacion-y-resultados-fecha-3-torneo-apertura-universitario-vs-cienciano-alianza-lima-vs-alianza-atletico-sporting-cristal-vs-juan-pablo-ii-noticia/)
-- **Partidos y tabla de posiciones del Torneo Apertura EN VIVO: así van los equipos en la fecha 3**: [Link](https://latinanoticias.pe/deportes/partidos-y-tabla-de-posiciones-del-torneo-apertura-en-vivo-asi-van-los-equipos-en-la-fecha-3_20260213/)
-
-
-### toluca - tijuana (N/A, 14/02/2026 00:11 Lima)
-
-- **Liga MX: Por la fecha 6, Toluca FC recibirá a Tijuana**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-por-la-fecha-6-toluca-fc-recibira-a-tijuana-noticia-1675643)
-- **⚽ ¡Ya casi! Checa a qué HORA y por DÓNDE VER el Toluca vs Tijuana de la Liga MX 👹🆚🐶**: [Link](https://www.facebook.com/MilenioDiario/posts/-ya-casicheca-a-qu%C3%A9-hora-y-por-d%C3%B3nde-ver-el-toluca-vs-tijuana-de-la-liga-mx-/1387265013430966/)
-- **Refuerzan operativo de seguridad por partido Toluca vs. Xolos en el Nemesio Diez**: [Link](https://edomexaldia.com/refuerzan-operativo-de-seguridad-por-partido-toluca-vs-xolos-en-el-nemesio-diez/)
-
-
-### gassama (N/A, 14/02/2026 00:11 Lima)
-
-- **La alineación de Universitario vs. Cienciano: oncena confirmada**: [Link](https://depor.com/futbol-peruano/descentralizado/alineacion-universitario-vs-cienciano-en-vivo-hoy-formacion-titular-con-sekou-gassama-en-la-lista-liga-1-2026-fotos-noticia/)
-- **Sekou Gassama y la curiosa costumbre que puede afectar su nivel con Universitario**: [Link](https://libero.pe/futbol-peruano/universitario/2026/02/13/sekou-gassama-curiosa-costumbre-puede-afectar-su-nivel-universitario-131131)
-- **¿Sekou Gassama debutará en el Universitario vs Cienciano? Esto se sabe**: [Link](https://peru21.pe/deportes/universitario-vs-cienciano-esto-se-sabe-del-debut-de-sekou-gassama-liga-1/)
-
-
-### ben shelton (N/A, 13/02/2026 21:33 Lima)
-
-- **ATP Dallas Day 4 Predictions Including Ben Shelton vs Adrian Mannarino**: [Link](https://lastwordonsports.com/tennis/2026/02/11/atp-dallas-day-4-predictions-shelton-mannarino/)
-- **Dallas QF preview and prediction: Shelton vs. Kecmanovic**: [Link](https://tenngrand.com/dallas-tennis-preview-pick-prediction-shelton-vs-kecmanovic/)
-- **Ben Shelton’s Emotional Tribute To Sick Grandmother After Surviving Dallas Open Scare**: [Link](https://collegefootballnetwork.com/tennis/ben-shelton-tribute-grandmother-dallas-open-scare/)
-
-
-### u va (N/A, 13/02/2026 21:33 Lima)
-
-- **UVA Baseball: ‘Hoos open 2026 with 13-7 win over Wagner**: [Link](https://augustafreepress.com/news/uva-baseball-hoos-open-2026-with-13-7-win-over-wagner/)
-- **At season’s dawn, with an influx of newness, Virginia’s goals remain unchanged**: [Link](https://www.cavalierdaily.com/article/2026/02/at-season-s-dawn-with-an-influx-of-newness-virginia-s-goals-remain-unchanged)
-- **Fueled by taco bowls and a winning tradition, the Chris Pollard era begins at UVA**: [Link](https://news.virginia.edu/content/fueled-taco-bowls-and-winning-tradition-chris-pollard-era-begins-uva)
 
 
