@@ -1,3 +1,38 @@
+### resultados coar 2026 (N/A, 17/02/2026 08:16 Lima)
+
+- **Resultados COAR 2026: LINK para ver la lista de postulantes aptos a la primera fase a nivel nacional**: [Link](https://libero.pe/tiempoextra/2026/02/16/resultados-coar-2026-link-ver-lista-de-postulantes-aptos-primera-fase-nivel-nacional-colegios-de-alto-rendimiento-813440)
+- **Resultados Fase 1 COAR 2026: LINK para revisar si aprobaste la evaluación del Proceso Único de Admisión**: [Link](https://libero.pe/tiempoextra/2026/02/17/resultados-fase-1-coar-2026-link-revisar-puntajes-del-proceso-unico-de-admision-colegios-de-alto-rendimiento-680784)
+- **Resultados Examen de Admisión Ordinario UNI 2026-I: LINK para consultar puntaje de la prueba del 16 de febrero**: [Link](https://libero.pe/tiempoextra/2026/02/16/examen-de-admision-de-uni-lunes-16-de-febrero-donde-consultar-resultados-es-link-oficial-930795)
+
+
+### jeri (N/A, 17/02/2026 08:16 Lima)
+
+- **Peru Congress to debate motion to remove President Jeri amid scandal**: [Link](https://www.reuters.com/world/americas/peru-congress-debate-motion-remove-president-jeri-amid-scandal-2026-02-13/)
+- **Peru’s Congress Schedules Vote on Motions to Oust President**: [Link](https://www.bloomberg.com/news/articles/2026-02-13/peru-s-congress-schedules-vote-on-motions-to-oust-president)
+- **Peru to debate removal of President Jose Jeri four months into his term**: [Link](https://www.aljazeera.com/news/2026/2/14/peru-to-debate-removal-of-president-jose-jeri-four-months-into-his-term)
+
+
+### eclipse 17 de febrero (N/A, 17/02/2026 08:16 Lima)
+
+- **Eclipse solar anular del martes 17 de febrero: dónde será visible el “anillo de fuego”**: [Link](https://www.infobae.com/america/ciencia-america/2026/02/16/eclipse-solar-anular-del-martes-17-de-febrero-donde-sera-visible-el-anillo-de-fuego/)
+- **Eclipse solar 2026 EN VIVO: el "Anillo de Fuego" de este 17 de febrero, minuto a minuto**: [Link](https://www.clarin.com/internacional/eclipse-solar-2026-vivo-anillo-fuego-17-febrero-minuto-minuto_0_7BhPKMonXI.html)
+- **Un eclipse parcial de sol podrá verse en zonas de Sudamérica**: [Link](https://www.dw.com/es/un-eclipse-parcial-de-sol-podr%C3%A1-verse-en-zonas-de-sudam%C3%A9rica/a-75997473)
+
+
+### paro de transportistas hoy (N/A, 17/02/2026 08:16 Lima)
+
+- **Paro de transportistas EN VIVO, hoy, 16 de febrero: últimas noticias sobre las medidas de los gremios y rutas de buses en Lima Metropolitana**: [Link](https://larepublica.pe/sociedad/2026/02/16/paro-de-transportistas-en-vivo-hoy-16-de-febrero-ultimas-noticias-sobre-las-medidas-de-los-gremios-y-rutas-de-buses-en-lima-metropolitana-302576)
+- **Sicarios graban asesinato de conductor de El Rápido**: [Link](https://www.americatv.com.pe/noticias/actualidad/sicarios-graban-asesinato-conductor-empresa-rapido-n515882)
+- **Empresas de transporte convocarán paro general contra el gobierno ante ola criminal**: [Link](https://gestion.pe/peru/empresas-de-transporte-convocaran-paro-general-contra-el-gobierno-ante-ola-criminal-noticia/)
+
+
+### therian (N/A, 17/02/2026 08:16 Lima)
+
+- **¿Therians en Lima? Qué son y de qué trata el fenómeno que crece en redes sociales y ya es visible en ciudades de Latinoamérica**: [Link](https://www.infobae.com/peru/2026/02/15/therians-en-lima-que-son-y-de-que-trata-el-fenomeno-que-crece-en-redes-y-ya-es-visible-en-varias-ciudades-de-latinoamerica/)
+- **¿Qué son los ‘therian’?: La verdad del fenómeno que se ha vuelto viral y que tiene sus primeros casos en Perú**: [Link](https://www.atv.pe/noticia/que-son-los-therian-la-verdad-del-fenomeno-que-se-ha-vuelto-viral-y-que-tiene-sus-primeros-casos-en-peru/)
+- **¿Qué son los “therians” y por qué este fenómeno causa debate en redes sociales?**: [Link](https://latinanoticias.pe/tendencias/que-son-los-therian-y-por-que-este-fenomeno-causa-debate-en-redes-sociales_20260215/)
+
+
 ### lunar new year (N/A, 17/02/2026 03:54 Lima)
 
 - **A 2026 guide to Lunar New Year as we gallop into the Year of the Horse**: [Link](https://www.cnn.com/travel/chinese-lunar-new-year-2026-guide-intl-hnk)
@@ -989,39 +1024,5 @@ Sin noticias relacionadas disponibles.
 - **UVA Baseball: ‘Hoos open 2026 with 13-7 win over Wagner**: [Link](https://augustafreepress.com/news/uva-baseball-hoos-open-2026-with-13-7-win-over-wagner/)
 - **At season’s dawn, with an influx of newness, Virginia’s goals remain unchanged**: [Link](https://www.cavalierdaily.com/article/2026/02/at-season-s-dawn-with-an-influx-of-newness-virginia-s-goals-remain-unchanged)
 - **Fueled by taco bowls and a winning tradition, the Chris Pollard era begins at UVA**: [Link](https://news.virginia.edu/content/fueled-taco-bowls-and-winning-tradition-chris-pollard-era-begins-uva)
-
-
-### unión - san lorenzo (N/A, 13/02/2026 21:33 Lima)
-
-- **Unión-San Lorenzo y Defensa-Vélez, los dos partidos que cerrarán la acción del viernes en el Torneo Apertura: la agenda completa**: [Link](https://www.infobae.com/deportes/2026/02/13/union-san-lorenzo-y-defensa-velez-los-dos-partidos-que-cerraran-la-accion-del-viernes-en-el-torneo-apertura-la-agenda-completa/)
-- **Qué canal pasa Unión vs San Lorenzo hoy: dónde ver el partido gratis y en vivo de la Liga Profesional**: [Link](https://www.365scores.com/es/news/union-vs-san-lorenzo-donde-ver-gratis/)
-- **Cuándo juegan Unión vs. San Lorenzo por el Torneo Apertura 2026: equipo, fecha, hora y TV en vivo**: [Link](https://www.espn.com.ar/futbol/argentina/nota/_/id/16301885/union-vs-san-lorenzo-torneo-apertura-equipo-quinta-fecha-hora-tv-en-vivo)
-
-
-### defensa y justicia - vélez (N/A, 13/02/2026 21:33 Lima)
-
-- **Qué canal pasa Defensa y Justicia vs Vélez hoy: dónde ver el partido gratis y en vivo de la Liga Profesional**: [Link](https://www.365scores.com/es/news/defensa-y-justicia-vs-velez-donde-ver/)
-- **El Vélez de Guillermo tiene una visita de riesgo a Varela**: [Link](https://diariohoy.net/el-clasico/el-velez-de-guillermo-tiene-una-visita-de-riesgo-a-varela-279951)
-- **Defensa vs Vélez por la fase de grupos de Liga Profesional EN VIVO. Seguilo minuto a minuto por la web de TN.**: [Link](https://tn.com.ar/deportes/futbol/2026/02/13/defensa-vs-velez-en-vivo-por-la-fase-de-grupos-de-la-liga-profesional-hora-donde-ver-y-formaciones/)
-
-
-### liga 1 max en vivo (N/A, 13/02/2026 21:33 Lima)
-
-- **Gustavo Zevallos apuntó contra Agustín Lozano: “Seguro se opuso a reprogramar nuestro partido con Juan Pablo II”**: [Link](https://depor.com/futbol-peruano/descentralizado/gustavo-zevallos-en-sporting-cristal-contra-agustin-lozano-se-opuso-a-reprogramar-nuestro-partido-con-juan-pablo-ii-noticia/)
-- **Alineaciones Sporting Cristal vs Juan Pablo II: el inédito once de Autuori para volver al triunfo**: [Link](https://libero.pe/futbol-peruano/sporting-cristal/2026/02/13/alineaciones-sporting-cristal-vs-juan-pablo-ii-formacion-del-partido-de-liga-1-peru-apertura-148577)
-- **(VIDEO) Zevallos: "Estamos corrigiendo errores para estar a la altura de la competencia"**: [Link](https://ovacion.pe/noticias/sporting-cristal/video-zevallos-estamos-corrigiendo-errores-estar-altura-competencia)
-
-
-### tarjeta roja futbol (N/A, 13/02/2026 21:33 Lima)
-
-- **La Ligue 1 reduce la suspensión a Endrick por su roja con Lyon**: [Link](https://www.espn.com.ar/futbol/francia/nota/_/id/16305111/endrick-ligue-1-reduce-suspension-roja-lyon)
-- **Endrick respira aliviado**: [Link](https://www.marca.com/futbol/real-madrid/2026/02/12/endrick-respira-aliviado.html)
-- **Endrick se quedó helado: vean la roja directa que le sacaron y frótense los ojos después**: [Link](https://as.com/futbol/videos/endrick-se-quedo-helado-vean-la-roja-directa-que-le-han-sacado-y-frotense-los-ojos-despues-f202602-v/)
-
-
-### universitario versus cienciano (N/A, 13/02/2026 21:33 Lima)
-
-- **Universitario - Cienciano: lineups, drama and a sold-out Monumental ahead of big Apertura clash**: [Link](https://www.filmogaz.com/148739)
-- **Universitario vs Cienciano Prediction: Match Preview and Analysis | Primera Division 14-02-2026**: [Link](https://betmines.com/match-preview/universitario-vs-cienciano-prediction-match-preview-and-analysis-primera-division-14-02-2026)
 
 
