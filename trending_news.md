@@ -1,3 +1,73 @@
+### ousmane dembélé (N/A, 17/02/2026 15:44 Lima)
+
+- **Marquinhos and Vitinha stand by Dembele after his controversial outburst - reports**: [Link](https://tribuna.com/en/news/2026-02-17-marquinhos-and-vitinha-stand-by-dembele-after-his-controversial-outburst-reports/)
+- **Joao Neves: No issues in PSG's squad after Dembele criticism**: [Link](https://www.fotmob.com/ro/news/1hfsh3fici5n812bnl9joopyep-joao-neves-no-issues-psgs-squad-after-dembele-criticism)
+- **'Déjà vu' in Paris: a PSG on fire stars in a week of playoffs in Europe**: [Link](https://www.mundoamerica.com/british/2026/02/17/699438f9fc6c83e22b8b457a.html)
+
+
+### espn (N/A, 17/02/2026 15:44 Lima)
+
+- **Alabama basketball rises in ESPN bracketology after four straight wins**: [Link](https://sports.yahoo.com/articles/alabama-basketball-rises-espn-bracketology-192351073.html)
+- **Iowa weekly roundup, odds, stats, upcoming games and more | February 16, 2026**: [Link](https://hawkeyeswire.usatoday.com/story/sports/college/hawkeyes/2026/02/16/iowa-hawkeyes-college-basketball-ranking-weekly-recap-2-16-2026/88708065007/)
+- **Alabama Men’s Basketball Ranked Again in AP Poll for First Time in Two Weeks**: [Link](https://tide1009.com/alabama-ranked-ap-top-25-mbb/)
+
+
+### paris vs (N/A, 17/02/2026 15:44 Lima)
+
+- **Mairie de Paris VS Mairie d’arrondissement : qui fait quoi ?**: [Link](https://www.pariszigzag.fr/paris-au-quotidien/mairie-de-paris-vs-mairie-darrondissement-qui-fait-quoi/)
+- **Le doute Ousmane Dembélé : le Ballon d'Or victime d'une gêne à l'entrainement avant Monaco-PSG**: [Link](https://www.lequipe.fr/Football/Actualites/Le-doute-ousmane-dembele-le-ballon-d-or-victime-d-une-gene-a-l-entrainement-avant-monaco-psg/1652833)
+- **Monaco-PSG : Paris saura-t-il régner en principauté ?**: [Link](https://www.leparisien.fr/sports/football/ligue-des-champions/monaco-psg-paris-saura-t-il-regner-en-principaute-17-02-2026-MSBGQQINTFEDTEMXEIU63PXI3Y.php)
+
+
+### borussia vs (N/A, 17/02/2026 15:44 Lima)
+
+- **BVB gegen Atalanta: Kovac mit überraschender Startelf**: [Link](https://www.fussballtransfers.com/a3584034307683130768-bvb-gegen-atalanta-kovac-ueberrascht-mit-startelf)
+- **Champions League: Stars viel zu spät im Stadion: Auch Herbert Grönemeyer Schuld am BVB-Chaos**: [Link](https://www.bild.de/sport/fussball/champions-league-es-geht-spaeter-los-anpfiff-vom-bvb-spiel-verschoben-6994bb1273621fceec20e525)
+- **BVB wehrt sich gegen Ausschluss bestimmter Fan-Gruppen in Bergamo**: [Link](https://www1.wdr.de/sport/fussball/champions-league/borussia-dortmund-bergamo-fan-ausschluss-protest-100.html)
+
+
+### dina boluarte (N/A, 17/02/2026 15:44 Lima)
+
+- **Las consecuencias de las decisiones | Andrés Romaña**: [Link](https://peru21.pe/opinion/las-consecuencias-de-las-decisiones-andres-romana/)
+- **La polarización política que trajo a Castillo y Jerí**: [Link](https://elcomercio.pe/opinion/columnistas/la-polarizacion-politica-que-trajo-a-pedro-castillo-y-jose-jeri-por-ivan-arenas-noticia/)
+- **QUÉ TIEMPOS AQUELLOS, columna de Iván Slocovich Pardo**: [Link](https://diariocorreo.pe/opinion/que-tiempos-aquellos-columna-de-ivan-slocovich-pardo-noticia/)
+
+
+### psg (N/A, 17/02/2026 15:44 Lima)
+
+- **Le doute Ousmane Dembélé : le Ballon d'Or victime d'une gêne à l'entrainement avant Monaco-PSG**: [Link](https://www.lequipe.fr/Football/Actualites/Le-doute-ousmane-dembele-le-ballon-d-or-victime-d-une-gene-a-l-entrainement-avant-monaco-psg/1652833)
+- **La demande particulière de Paul Pogba aux joueurs du PSG**: [Link](https://www.footmercato.net/a5615777002328324039-la-demande-particuliere-de-paul-pogba-aux-joueurs-du-psg)
+- **Barrage aller Ligue des champions - Les compos : Dembélé d'entrée pour le PSG, Akliouche titulaire avec Monaco**: [Link](https://www.eurosport.fr/football/ligue-des-champions/2025-2026/barrage-aller-ligue-des-champions-les-compos-dembele-dentree-pour-le-psg-akliouche-titulaire-avec-monaco_sto23272300/story.shtml)
+
+
+### tarjeta roja (N/A, 17/02/2026 15:44 Lima)
+
+- **VIDEO | Fue su debut y Jhon Durán casi pierde la cabeza y se gana la tarjeta roja**: [Link](https://bolavip.com/futbol-colombia/video-fue-su-debut-y-jhon-duran-casi-pierde-la-cabeza-y-se-gana-la-tarjeta-roja)
+- **Al-Nassr persigue a Greenwood y decide sobre la cesión de John Duran**: [Link](https://www.ysscores.com/es/news/13908896/Al-Nassr-persigue-a-Greenwood-y-decide-sobre-la-cesi%C3%B3n-de-John-Duran)
+- **El club ruso será su tercer equipo en Europa tras su paso por el Aston Villa y Fenerbahce**: [Link](https://www.facebook.com/infobaecolombia/photos/el-club-ruso-ser%C3%A1-su-tercer-equipo-en-europa-tras-su-paso-por-el-aston-villa-y-f/1348855240590568/)
+
+
+### kyara villanella (N/A, 17/02/2026 15:44 Lima)
+
+- **"Yo les diría que tengan al bebé": La firme postura de Keiko Fujimori sobre el aborto en casos de violación**: [Link](https://caretas.pe/politica/yo-les-diria-que-tengan-al-bebe-la-firme-postura-de-keiko-fujimori-sobre-el-aborto-en-casos-de-violacion/)
+- **Keiko Fujimori en contra de aborto por violación: "Lo he conversado con mis hijas (...) les diría que tengan al bebé"**: [Link](https://larepublica.pe/politica/2026/02/16/keiko-fujimori-en-contra-de-aborto-por-violacion-lo-he-conversado-con-mis-hijas-les-diria-que-tengan-al-bebe-hnews-1381200)
+- **Keiko vs RLA: pelea en la derecha | Keiko a sus hijas: si te violan, ten el bebé**: [Link](https://epicentro.tv/keiko-vs-rla-pelea-en-la-derecha-keiko-a-sus-hijas-si-te-violan-ten-el-bebe/)
+
+
+### dgo (N/A, 17/02/2026 15:44 Lima)
+
+- **En un partidazo, Barcelona perdió el derbi y la cima ante Girona**: [Link](https://www.espn.com.pe/futbol/espana/nota/_/id/16304558/girona-vs-barcelona-la-liga-fecha-24-equipo-fecha-hora-y-tv-en-vivo)
+- **¿A qué hora juega y qué canal transmite Girona vs. FC Barcelona por LaLiga 2026 en México, USA y España?**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/a-que-hora-juega-y-que-canal-transmite-girona-vs-fc-barcelona-en-vivo-hoy-16-de-febrero-por-laliga-2026-en-mexico-usa-y-espana-canales-tv-online-nnda-nnrt-noticia/)
+- **LaLiga EA Sports: Barcelona busca derrotar a Girona para subirse al liderato**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-barcelona-busca-derrotar-a-girona-para-subirse-al-liderato-noticia-1675974)
+
+
+### bristol city - wrexham (N/A, 17/02/2026 15:44 Lima)
+
+- **How to watch today's Bristol City vs Wrexham Championship game: Live stream, TV channel, and start time**: [Link](https://www.goal.com/en/news/how-to-watch-bristol-city-wrexham-17022026/bltb0778f39da4f8879)
+- **Championship LIVE! Scores, match updates and free highlights plus EFL latest from League One and League Two**: [Link](https://www.skysports.com/football/live-blog/11095/13508550/championship-live-scores-match-updates-and-free-highlights-plus-efl-latest-from-league-one-and-league-two)
+- **Phil Parkinson insists FA Cup talk on hold as Wrexham continue play-off push**: [Link](https://www.denbighshirefreepress.co.uk/sport/25858770.wrexhams-trip-bristol-city-edge-admits-parkinson/)
+
+
 ### galatasaray vs juventus pronostico (N/A, 17/02/2026 12:02 Lima)
 
 - **Cuándo juegan Galatasaray vs. Juventus por la UEFA Champions League: equipo, fecha, hora y TV en vivo**: [Link](https://www.espn.com.pe/futbol/champions-league/nota/_/id/16321573/galatasaray-vs-juventus-ida-playoffs-equipo-fecha-hora-y-tv-en-vivo)
@@ -953,75 +1023,5 @@ Sin noticias relacionadas disponibles.
 - **Real Madrid - Real Sociedad hoy, en directo: previa y última hora de LaLiga EA Sports, en vivo**: [Link](https://as.com/futbol/primera/real-madrid-real-sociedad-hoy-en-directo-previa-y-ultima-hora-de-laliga-ea-sports-en-vivo-f202602-d/)
 - **SKY Sports EN VIVO por Internet — cómo mirar partido Real Madrid vs. Real Sociedad en Fútbol TV y SKY Plus Online en México**: [Link](https://gestion.pe/mix/sports/sky-sports-en-vivo-por-internet-como-mirar-partido-real-madrid-vs-real-sociedad-en-futbol-tv-y-sky-plus-online-en-mexico-nnda-nnrt-noticia/)
 - **Pronósticos Real Madrid vs Real Sociedad: gran cuota por triunfo blanco sin goles en contra**: [Link](https://depor.com/apuestas-deportivas/real-madrid-vs-real-sociedad-pronosticos-apuestas-cuotas-15-02-2026/)
-
-
-### que se celebra hoy (N/A, 14/02/2026 08:01 Lima)
-
-- **¿Qué santo celebramos hoy, 13 de febrero?**: [Link](https://www.eldebate.com/religion/santoral/20260213/santo-celebramos-hoy-13-febrero_383502.html)
-- **San Benigno de Todi: onomásticos que se conmemoran este viernes 13 de febrero**: [Link](https://www.infobae.com/noticias/2026/02/12/santoral-de-hoy-cuales-son-los-onomasticos-que-se-conmemoran-este-viernes-13-de-febrero/)
-- **Santoral del 13 de febrero de 2026: Descubre qué santos se celebran hoy**: [Link](https://www.diariosur.es/sociedad/santoral-13-febrero-2026-que-santos-se-celebran-20260209000000-nt.html)
-
-
-### gloria compra saputo (N/A, 14/02/2026 08:01 Lima)
-
-- **Gloria Foods firma acuerdo para adquirir el 80% de Saputo Argentina por US$ 500 millones**: [Link](https://gestion.pe/economia/empresas/gloria-foods-acuerda-la-compra-del-80-de-saputo-argentina-por-unos-us-500-millones-noticia/)
-- **Santa Fe, en el centro del mayor negocio lácteo del año: el holding peruano Gloria compra el 80% de Saputo por US$ 630 millones**: [Link](https://www.on24.com.ar/negocios/santa-fe-en-el-centro-del-mayor-negocio-lacteo-del-ano-el-holding-peruano-gloria-compra-el-80-de-saputo-por-us-630-millones/)
-- **Una gigante láctea internacional reduce su presencia en el país con una millonaria operación**: [Link](https://tn.com.ar/campo/2026/02/12/una-gigante-lactea-internacional-reduce-su-presencia-en-el-pais-con-una-millonaria-operacion/)
-
-
-### flores (N/A, 14/02/2026 08:01 Lima)
-
-- **San Valentín 2026: peruanos gastan en promedio S/ 170 en rosas y arreglos florales**: [Link](https://andina.pe/agencia/noticia-san-valentin-2026-peruanos-gastan-promedio-s-170-rosas-y-arreglos-florales-1062926.aspx)
-- **San Valentín 2026: ¿Cuáles son los destinos preferidos por parejas para esta fecha?**: [Link](https://gestion.pe/peru/san-valentin-2026-paracas-ica-y-tarapoto-lideran-los-destinos-preferidos-por-parejas-noticia/)
-- **Entre regalos de última hora y citas planeadas: así se vive San Valentín en Perú en 2026**: [Link](https://www.atv.pe/noticia/entre-regalos-de-ultima-hora-y-citas-planeadas-asi-se-vive-san-valentin-en-peru-en-2026/)
-
-
-### happy valentines day (N/A, 14/02/2026 08:01 Lima)
-
-- **Valentine's Day 2026**: [Link](https://doodles.google/doodle/valentines-day-2026/)
-- **Valentine’s Day 2026: 50+ Heartfelt wishes, greetings and messages to share with your partner and soulmate**: [Link](https://m.economictimes.com/news/international/us/valentines-day-2026-50-heartfelt-wishes-greetings-and-messages-to-share-with-your-partner-and-soulmate/articleshow/128268715.cms)
-- **75+ Happy Valentine’s Day Wishes, Messages, Greetings and Quotes for 2026**: [Link](https://timesofindia.indiatimes.com/etimes/trending/75-happy-valentines-day-wishes-messages-greetings-card-pictures-images-insta-story-and-quotes-for-2026/articleshow/128311695.cms)
-
-
-### día de san valentín (N/A, 14/02/2026 03:39 Lima)
-
-- **💐 300 frases cortas del Día del Amor y la Amistad 2026 para dedicar a tu pareja el 14 de febrero en EE.UU. y México**: [Link](https://elcomercio.pe/mag/respuestas/300-frases-cortas-del-dia-del-amor-y-la-amistad-2026-para-enviar-a-tu-pareja-el-14-de-febrero-en-eeuu-y-mexico-via-whatsapp-facebook-e-instagram-tarjetas-feliz-san-valentin-nnda-nnrt-noticia/)
-- **30 tarjetas de amor para dedicar a tu novia este 14 de febrero y desear ¡Feliz Día de San Valentín!**: [Link](https://gestion.pe/mix/respuestas/30-tarjetas-de-amor-para-dedicar-a-tu-novia-este-14-de-febrero-y-desear-feliz-dia-de-san-valentin-nnda-nnrt-noticia/)
-- **10 imágenes para compartir en San Valentín 2026 por WhatsApp**: [Link](https://www.elmundo.es/como/2026/02/14/698f6620e85ece88618b45cb.html)
-
-
-### valentine's day (N/A, 14/02/2026 03:39 Lima)
-
-- **Valentine’s Day sticker shock: Chocolate prices are spiking**: [Link](https://www.cnn.com/2026/02/13/business/chocolate-prices-valentines-day)
-- **Roses are red, violets are blue, if cocoa is cheaper why isn't chocolate, too?**: [Link](https://www.pbs.org/newshour/economy/roses-are-red-violets-are-blue-if-cocoa-is-cheaper-why-isnt-chocolate-too)
-- **Why your Valentine's chocolates are so expensive**: [Link](https://www.axios.com/2026/02/13/trump-tariffs-chocolate-prices-valentines-day)
-
-
-### 14 de febrero (N/A, 14/02/2026 03:39 Lima)
-
-- **Horóscopo de hoy, sábado 14 de febrero de 2026: Predicciones en salud, dinero y amor**: [Link](https://trome.com/horoscopo/horoscopo-de-hoy-sabado-14-de-febrero-de-2026-predicciones-en-salud-dinero-y-amor-noticia/)
-- **Aries, Tauro, Géminis, Cáncer, Leo, Virgo, Libra, Escorpio, Sagitario, Capricornio, Acuario y Piscis: así será este sábado 14 de febrero**: [Link](https://www.vanitatis.elconfidencial.com/horoscopo/2026-02-14/horoscopo-14-de-febrero-sabado-signos-zodiaco-1qrt_4301336/)
-- **Horóscopo para sábado 14 de febrero de Las Estrellas de Walter Mercado. ¡Feliz San Valentín!**: [Link](https://www.elnuevoherald.com/entretenimiento/walter-mercado/article314661427.html)
-
-
-### clima lima (N/A, 14/02/2026 00:11 Lima)
-
-- **SENAMHI: Pronóstico del clima hoy viernes 13 de febrero 2026**: [Link](https://rpp.pe/peru/actualidad/senamhi-pronostico-del-clima-hoy-viernes-13-de-febrero-2026-noticia-1675691)
-- **Pronóstico del clima en Lima hoy 9 de febrero de 2026**: [Link](https://www.debate.com.mx/mundo/pronostico-del-clima-en-lima-hoy-9-de-febrero-de-2026-20260209-0020.html)
-- **Hasta 32 grados y más radiación ultravioleta en Lima Metropolitana: conoce el pronóstico de Senamhi para hoy, 9 de febrero**: [Link](https://larepublica.pe/sociedad/2026/02/09/hasta-32-grados-y-mas-radiacion-ultravioleta-en-lima-metropolitana-conoce-el-pronostico-de-senamhi-para-hoy-9-de-febrero-161901)
-
-
-### censura jose jeri (N/A, 14/02/2026 00:11 Lima)
-
-- **Perú debatirá el martes destitución del presidente interino**: [Link](https://www.dw.com/es/per%C3%BA-debatir%C3%A1-el-martes-destituci%C3%B3n-del-presidente-interino/a-75965755)
-- **SIMINCHISKUNA: CONVOCAN A PLENO EXTRAORDINARIO PARA EL MARTES 17**: [Link](https://comunicaciones.congreso.gob.pe/tv-congreso/siminchiskuna-convocan-a-pleno-extraordinario-para-el-martes-17/)
-- **Congreso convoca a pleno extraordinario este martes 17 para ver moción de censura contra José Jerí**: [Link](https://rpp.pe/politica/gobierno/jose-jeri-convocan-a-pleno-extraordinario-del-congreso-para-debatir-mocion-de-censura-del-presidente-para-este-martes-17-de-febrero-noticia-1675820)
-
-
-### cumbres borrascosas (N/A, 14/02/2026 00:11 Lima)
-
-- **La película “Cumbres Borrascosas” es una adaptación superficial y un homenaje al cine, no a Brontë**: [Link](https://cnnespanol.cnn.com/2026/02/12/entretenimiento/pelicula-cumbres-borrascosas-superficial-critica-trax)
-- **Entre seudónimos y tragedias: 4 datos sobre Emily Brontë y su libro “Cumbres Borrascosas”**: [Link](https://www.nationalgeographicla.com/historia/2026/02/entre-seudonimos-y-tragedias-4-datos-sobre-emily-bronte-y-su-libro-cumbres-borrascosas)
-- **‘Cumbres borrascosas’: vimos la provocadora adaptación con Margot Robbie y Jacob Elordi y esta es nuestra reseña**: [Link](https://rpp.pe/cine/internacional/cumbres-borrascosas-vimos-la-nueva-adaptacion-con-margot-robbie-y-jacob-elordi-y-esta-es-nuestra-resena-noticia-1675616)
 
 
