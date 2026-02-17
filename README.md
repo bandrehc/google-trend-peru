@@ -1,3 +1,41 @@
+### suheyn cipriani (N/A, 17/02/2026 00:22 Lima)
+
+- **Suheyn Cipriani llora frente a Magaly Medina por Macarius: "Me ha afectado mucho"**: [Link](https://www.atv.pe/noticia/suheyn-cipriani-llora-frente-a-magaly-medina-por-macarius-me-ha-afectado-mucho/)
+- **Suheyn Cipriani rompe su silencio y cuenta por qué el streamer Macarius puso fin a su romance: "Estar lejos es difícil"**: [Link](https://larepublica.pe/streamers/2026/02/15/suheyn-cipriani-rompe-su-silencio-y-cuenta-por-que-el-streamer-macarius-puso-fin-a-su-romance-estar-lejos-es-dificil-evat-1058490)
+- **La advertencia de Suheyn Cipriani a Macarius antes de terminar su relación | tdpe | RESPUESTAS**: [Link](https://elcomercio.pe/respuestas/youtube/la-advertencia-de-suheyn-cipriani-a-macarius-antes-de-terminar-su-relacion-tdpe-noticia/)
+
+
+### liam gallagher (N/A, 17/02/2026 00:22 Lima)
+
+- **Oasis v Blur rivalry being revived in new play as cast take sides**: [Link](https://www.bbc.com/news/articles/c1d6pkdk1xzo)
+- **The Battle in UK Regional at Birmingham Rep 2026**: [Link](https://www.broadwayworld.com/uk-regional/regional/The-Battle-4358601)
+- **Yo Soy conciertos 2026: ¡Liam Gallagher llegó “a todo o nada” y arrasó en el escenario!**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-conciertos-2026-liam-gallagher-llego-a-todo-o-nada-y-arraso-en-el-escenario_20260216/)
+
+
+### seedance 2.0 (N/A, 17/02/2026 00:22 Lima)
+
+- **Why an A.I. Video of Tom Cruise Battling Brad Pitt Spooked Hollywood**: [Link](https://www.nytimes.com/2026/02/16/movies/tom-cruise-brad-pitt-artificial-intelligence-seedance.html)
+- **ByteDance says it will add safeguards to Seedance 2.0 following Hollywood backlash**: [Link](https://www.cnbc.com/2026/02/16/bytedance-safegaurds-seedance-ai-copyright-disney-mpa-netflix-paramount-sony-universal.html)
+- **Scoop: Disney sends cease and desist letter to ByteDance over Seedance 2.0**: [Link](https://www.axios.com/2026/02/13/disney-bytedance-seedance)
+
+
+### gabriel calvo (N/A, 17/02/2026 00:22 Lima)
+
+- **Gabriel Calvo sorprende al OFICIALIZAR relación con expareja de Gino Assereto: "Mi novia linda"**: [Link](https://www.atv.pe/noticia/gabriel-calvo-sorprende-al-oficializar-relacion-con-expareja-de-gino-assereto-mi-novia-linda/)
+- **Actor Gabriel Calvo impacta al confesar en vivo su romance con influencer ‘Majo con Sabor’: “Mi novia linda”**: [Link](https://larepublica.pe/espectaculos/2026/02/16/actor-gabriel-calvo-impacta-al-confesar-en-vivo-su-romance-con-influencer-majo-con-sabor-mi-novia-linda-1456512)
+- **‘Majo con sabor’ confirma relación con Gabriel Calvo y ¿responde desde cuándo?: “Pasamos San Valentín”**: [Link](https://trome.com/espectaculos/tv/majo-con-sabor-confirma-relacion-con-gabriel-calvo-y-responde-desde-cuando-pasamos-san-valentin-foto-video-farandula-noticia/)
+
+
+### rio open (N/A, 17/02/2026 00:22 Lima)
+
+Sin noticias relacionadas disponibles.
+
+
+### torque - juventud (N/A, 17/02/2026 00:22 Lima)
+
+Sin noticias relacionadas disponibles.
+
+
 ### muere robert duvall (N/A, 16/02/2026 21:39 Lima)
 
 - **Muere Robert Duvall, icónico actor de "El padrino" y Apocalypse Now**: [Link](https://www.bbc.com/mundo/articles/ckglzvjk9d7o)
@@ -985,47 +1023,5 @@ Sin noticias relacionadas disponibles.
 - **DIRECT. Monaco-Nantes: suivez le match de la 22e journée de Ligue 1 en live**: [Link](https://rmcsport.bfmtv.com/football/ligue-1/direct-monaco-nantes-suivez-le-match-de-la-22e-journee-de-ligue-1-en-live_LS-202602130815.html)
 - **ASM – FCN : Le groupe monégasque**: [Link](https://asm-supporters.fr/actualites/65220-asm-fcn-le-groupe-monegasque-5)
 - **C'est parti au stade Louis II !**: [Link](https://www.fcnantes.com/articles/article2809.php?num=48638)
-
-
-### ac milan vs (N/A, 13/02/2026 15:46 Lima)
-
-- **Cuando juegan Pisa vs. Milan por Serie A: equipo, fecha, hora y TV**: [Link](https://www.espn.com.pe/futbol/italia/nota/_/id/16303667/pisa-vs-milan-fecha-24-serie-a-equipo-fecha-hora-y-tv-en-vivo)
-- **Pronóstico Pisa vs. Milan - Un duelo de extremos**: [Link](https://gainblers.com/pe/pronosticos/futbol/italia/serie-a/pronostico-pisa-milan-13-02-2026/)
-- **Serie A: Pisa se enfrenta ante la visita Milan por la fecha 25**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-pisa-se-enfrenta-ante-la-visita-milan-por-la-fecha-25-noticia-1675569)
-
-
-### cal (N/A, 13/02/2026 15:46 Lima)
-
-- **Cal Poly Men's Basketball Topples Big West Leader UC Irvine, 79-73**: [Link](https://gopoly.com/news/2026/2/12/mens-basketball-mustangs-topple-big-west-leader-uc-irvine-79-73)
-- **Cal Poly beats U.C. Irvine 79-73. See the photos**: [Link](https://www.sanluisobispo.com/sports/college/cal-poly-sports/article314686587.html)
-- **UC Irvine men drop to 3rd in Big West after loss to Cal Poly**: [Link](https://www.ocregister.com/2026/02/12/uc-irvine-men-drop-to-3rd-in-big-west-after-loss-to-cal-poly/)
-
-
-### milan vs (N/A, 13/02/2026 15:46 Lima)
-
-- **Inter Milan Vs Juventus – Saturday Derby Set For Second-Highest Attendance In Derby d’Italia History**: [Link](https://sempreinter.com/2026/02/12/inter-milan-juventus-second-highest-attendance-expected/)
-- **“Not just to control the game” What Paolo Di Canio expects from Inter Milan v Juventus**: [Link](https://www.juvefc.com/not-just-to-control-the-game-what-paolo-di-canio-expects-from-inter-milan-v-juventus/)
-- **Creativity meets clinical edge in the Derby d'Italia showdown**: [Link](https://www.besoccer.com/new/creativity-vs-clinical-edge-the-derby-ditalia-through-statistics-1394528)
-
-
-### milan (N/A, 13/02/2026 15:46 Lima)
-
-- **Winter Olympics 2026, women’s team curling: United States stun Canada; Sweden moves to 3-0**: [Link](https://www.olympics.com/en/milano-cortina-2026/news/winter-olympics-2026-women-team-curling-united-states-stun-canada)
-- **USA vs. Canada women's curling history: Americans notch first-ever Olympic win over rivals**: [Link](https://www.msn.com/en-us/sports/other/usa-vs-canada-women-s-curling-history-americans-notch-first-ever-olympic-win-over-rivals/ar-AA1Wj3ag)
-- **Watch: U.S. women's curling stuns Canada for first time in Olympic shocker**: [Link](https://www.wesh.com/article/united-states-curling-canada-olympics-milan-cortina/70349081)
-
-
-### monaco vs (N/A, 13/02/2026 15:46 Lima)
-
-- **Nantes predicted XI v Monaco: Tylel Tati, Louis Leroux, and Mostafa Mohamed on the bench**: [Link](https://sports.yahoo.com/articles/nantes-predicted-xi-v-monaco-093000130.html)
-- **Monaco vs Nantes LIVE today: score and goals in Ligue 1**: [Link](https://www.beinsports.com/en-us/soccer/ligue-1/articles/monaco-vs-nantes-live-goals-and-score-updates-on-bein-sports-2026-02-13)
-- **Youssef El Arabi Goal Odds and Props for AS Monaco Clash on Feb 13**: [Link](https://www.filmogaz.com/148147)
-
-
-### elche vs (N/A, 13/02/2026 15:46 Lima)
-
-- **LaLiga EA Sports: Elche buscará vencer su racha negativa ante Osasuna**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-elche-buscara-vencer-su-racha-negativa-ante-osasuna-noticia-1675574)
-- **"Tenemos menos puntos que juego": Eder Sarabia pide "rabia" para que el Elche despierte ante Osasuna**: [Link](https://tribuna.com/es/news/2026-02-13-tenemos-menos-puntos-que-juego-eder-sarabia-pide-rabia-para-que-el-elche-despierte-ante-o/)
-- **El fútbol, con especial foco en LaLiga, contado con todo detalle**: [Link](https://www.flashscore.com.ar/noticias/futbol-laliga-ea-sports-futbol-en-directo-en-juego-el-elche-osasuna/AVF07kue/)
 
 
