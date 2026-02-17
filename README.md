@@ -1,3 +1,73 @@
+### muere robert duvall (N/A, 16/02/2026 21:39 Lima)
+
+- **Muere Robert Duvall, icónico actor de "El padrino" y Apocalypse Now**: [Link](https://www.bbc.com/mundo/articles/ckglzvjk9d7o)
+- **Desde Adam Sandler hasta Viola Davis, Hollywood llora la muerte de Robert Duvall**: [Link](https://www.infobae.com/entretenimiento/2026/02/16/desde-adam-sandler-hasta-viola-davis-hollywod-llora-la-muerte-de-robert-duvall/)
+- **¿Quién fue Robert Duvall? Su carrera, películas más famosas y premios ganados**: [Link](https://cnnespanol.cnn.com/2026/02/16/entretenimiento/quien-fue-robert-duvall-carrera-peliculas-orix)
+
+
+### partidos futbol hoy (N/A, 16/02/2026 21:39 Lima)
+
+- **Partidos de hoy, lunes 16 de febrero del 2026: horarios y canales TV para ver EN VIVO LaLiga y Sudamericano Femenino**: [Link](https://rpp.pe/futbol/futbol-mundial/partidos-de-hoy-laliga-y-serie-a-lunes-16-de-febrero-del-2026-horarios-y-canales-tv-para-ver-en-vivo-liga1-y-laliga-noticia-1676021)
+- **Partidos de hoy, 16 de febrero: Horario y canal EN VIVO**: [Link](https://www.americatv.com.pe/deportes/futbol-mundial/partidos-hoy-16-febrero-horarios-y-transmisiones-n452717)
+- **Partidos de hoy, lunes 16 de febrero de 2026: horarios, canales de TV y plataformas para ver EN VIVO**: [Link](https://www.expreso.com.pe/deportes/partidos-de-hoy-lunes-16-de-febrero-de-2026-horarios-canales-de-tv-y-plataformas-para-ver-en-vivo-futbol-copa-liga-competicion-programacion-noticia/1264320/)
+
+
+### benfica vs real madrid (N/A, 16/02/2026 21:39 Lima)
+
+- **Álvaro Arbeloa: “This is a new match, we’re not thinking about the last game”**: [Link](https://www.managingmadrid.com/coach/104037/alvaro-arbeloa-this-is-a-new-match-were-not-thinking-about-the-last-game)
+- **Eduardo Camavinga – ‘I can be Real Madrid’s organising midfielder’**: [Link](https://www.football-espana.net/2026/02/16/camavinga-real-madrid-organiser)
+- **Revenge not on Arbeloa's mind as Madrid urged to deliver 'complete' display at Benfica**: [Link](https://www.beinsports.com/en-us/soccer/uefa-champions-league/articles/revenge-not-on-arbeloas-mind-as-madrid-urged-to-deliver-complete-display-at-benfica-2026-02-16)
+
+
+### que es un therian (N/A, 16/02/2026 21:39 Lima)
+
+- **Qué son los ‘therian’ y por qué están marcando tendencia en las redes sociales**: [Link](https://www.infobae.com/tecno/2026/02/15/que-son-los-therian-y-por-que-estan-marcando-tendencia-en-las-redes-sociales/)
+- **Therians y Furrys: cuáles son las diferencias y cómo se identifican**: [Link](https://www.clarin.com/informacion-general/therians-furrys-diferencias-identifican_0_X6O1tbTi0e.html)
+- **Qué son los Therians y por qué está en tendencia la “moda del humano animal”**: [Link](https://elcomercio.pe/respuestas/que/therians-que-son-y-por-que-esta-en-tendencia-la-moda-del-humano-animal-tdpe-noticia/)
+
+
+### mocion de vacancia (N/A, 16/02/2026 21:39 Lima)
+
+- **Fernando Rospigliosi explica agenda y procedimientos a seguir en sesión extraordinaria del Pleno**: [Link](https://comunicaciones.congreso.gob.pe/noticias/fernando-rospigliosi-explica-agenda-y-procedimientos-a-seguir-en-sesion-extraordinaria-del-pleno/)
+- **José Jerí: ¿Cuál es la proyección de votos frente a las mociones de censura y la carta que se jugaría Somos Perú en la sesión?**: [Link](https://elcomercio.pe/politica/entretelones-jose-jeri-la-proyeccion-de-votos-frente-a-las-mociones-de-censura-y-la-carta-que-se-jugaria-somos-peru-en-la-sesion-tlcnota-noticia/)
+- **Bancadas cierran filas para censurar a Jerí, y Fuerza Popular y APP lo blindan**: [Link](https://peru21.pe/politica/bancadas-cierran-filas-para-censurar-jeri-y-fuerza-popular-y-app-lo-blindan/)
+
+
+### horoscopo chino (N/A, 16/02/2026 21:39 Lima)
+
+- **¿Qué es el Año Nuevo chino? Las 7 cosas que debes saber sobre la popular celebración**: [Link](https://cnnespanol.cnn.com/2026/02/16/mundo/ano-nuevo-chino-orix)
+- **Año Nuevo Chino 2026: cuándo empieza y qué significa el Caballo de Fuego**: [Link](https://www.lanacion.com.ar/horoscopo/horoscopo-chino-2026/ano-nuevo-chino-2026-cuando-empieza-y-que-significa-el-caballo-de-fuego-nid16022026/)
+- **Año Nuevo Chino 2026: ¿Cuándo inicia, qué animal es y cuál es su significado en el horóscopo?**: [Link](https://rpp.pe/cultura/mas-cultura/ano-nuevo-chino-2026-cuando-inicia-que-animal-es-y-significado-del-caballo-de-fuego-en-horoscopo-chino-noticia-1676053)
+
+
+### cristal vs 2 de mayo (N/A, 16/02/2026 21:39 Lima)
+
+- **La historia de Sporting Cristal en las fases previas de la CONMEBOL Libertadores**: [Link](https://espndeportes.espn.com/futbol/copa-libertadores/nota/_/id/16322086/la-historia-de-sporting-cristal-en-las-fases-previas-de-la-copa-libertadores)
+- **“Humildad e ilusión”: Miguel Araujo y su análisis a un día del debut por Copa Libertadores**: [Link](https://depor.com/futbol-internacional/copa-libertadores/sporting-cristal-miguel-araujo-y-su-analisis-a-un-dia-del-debut-por-copa-libertadores-ante-2-de-mayo-noticia/)
+- **Sporting Cristal partió a Paraguay por primer golpe en Copa**: [Link](https://www.americatv.com.pe/deportes/futbol-mundial/sporting-cristal-partio-paraguay-primer-golpe-copa-n452722)
+
+
+### igor marcondes (N/A, 16/02/2026 21:39 Lima)
+
+- **Buse vibra com virada no Rio Open e projeta mais um duelo contra brasileiro**: [Link](https://www.tenisnews.com.br/buse-vibra-rio-open-projeta-duelo-brasileiro/)
+- **Relembre vitórias históricas de brasileiros no Rio Open; vídeos**: [Link](https://www.lance.com.br/tenis/relembre-vitorias-historicas-de-brasileiros-no-rio-open-videos.html)
+- **Igor Marcondes vence quali e estreia na chave principal do Rio Open contra tenista peruano**: [Link](https://ge.globo.com/sp/vale-do-paraiba-regiao/noticia/2026/02/16/igor-marcondes-vence-quali-e-estreia-na-chave-principal-do-rio-open-contra-tenista-peruano.ghtml)
+
+
+### ignacio buse (N/A, 16/02/2026 21:39 Lima)
+
+- **Triunfazo en Brasil: Ignacio Buse venció al local Igor Marcondes en su debut en el ATP 500 de Río**: [Link](https://rpp.pe/tenis/mas-tenis/ignacio-buse-vencio-al-local-igor-marcondes-en-atp-500-de-rio-triunfazo-en-brasil-noticia-1676151)
+- **¡Orgullo nacional! Ignacio Buse rompe su récord personal y ya es el número 91 del mundo**: [Link](https://peru21.pe/deportes/ignacio-buse-alcanza-puesto-91-atp-debut-hoy-en-el-atp-500-de-rio-de-janeiro/)
+- **¡Hace historia! Tenista Ignacio Buse alcanza el puesto 91 del ranking ATP**: [Link](https://andina.pe/agencia/noticia-hace-historia-tenista-ignacio-buse-alcanza-puesto-91-del-ranking-atp-1063264.aspx)
+
+
+### resultados uni (N/A, 16/02/2026 21:39 Lima)
+
+- **Examen de admisión UNI 2026-I: link para conocer los puntajes de primera fecha**: [Link](https://andina.pe/agencia/noticia-examen-admision-uni-2026i-link-para-conocer-los-puntajes-primera-fecha-1063293.aspx)
+- **Madre hizo cola desde la madrugada en la puerta de la UNI para que su hijo rinda examen de admisión, pero personal de seguridad la retiró**: [Link](https://larepublica.pe/tendencias/2026/02/16/madre-hizo-cola-desde-la-madrugada-en-la-puerta-de-la-universidad-nacional-de-ingenieria-para-que-su-hijo-rinda-examen-de-admision-pero-personal-de-seguridad-la-retiro-evat-1128256)
+- **Admisión UNI 2026: El cronograma y los pasos para consultar los resultados oficiales**: [Link](https://caretas.pe/politica/admision-uni-2026-el-cronograma-y-los-pasos-para-consultar-los-resultados-oficiales/)
+
+
 ### coventry vs (N/A, 16/02/2026 15:38 Lima)
 
 - **Coventry v Boro: how momentum has shifted in the Championship title race**: [Link](https://www.theguardian.com/football/who-scored-blog/2026/feb/16/coventry-boro-momentum-shifted-championship-title-race-frank-lampard-kim-hellberg)
@@ -957,75 +1027,5 @@ Sin noticias relacionadas disponibles.
 - **LaLiga EA Sports: Elche buscará vencer su racha negativa ante Osasuna**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-elche-buscara-vencer-su-racha-negativa-ante-osasuna-noticia-1675574)
 - **"Tenemos menos puntos que juego": Eder Sarabia pide "rabia" para que el Elche despierte ante Osasuna**: [Link](https://tribuna.com/es/news/2026-02-13-tenemos-menos-puntos-que-juego-eder-sarabia-pide-rabia-para-que-el-elche-despierte-ante-o/)
 - **El fútbol, con especial foco en LaLiga, contado con todo detalle**: [Link](https://www.flashscore.com.ar/noticias/futbol-laliga-ea-sports-futbol-en-directo-en-juego-el-elche-osasuna/AVF07kue/)
-
-
-### dortmund (N/A, 13/02/2026 15:46 Lima)
-
-- **Karnevalskirmes in Dortmund kommt an ihre Grenzen „Können keine Top-Karussells platzieren“**: [Link](https://www.ruhrnachrichten.de/dortmund/karnevalskirmes-dortmund-2026-attraktionen-grenzen-alter-markt-reinoldikirche-w1153277-2001972135/)
-- **Dortmunder Narren in den Startlöchern**: [Link](https://www.radio912.de/artikel/dortmunder-narren-in-den-startloechern-2571660)
-- **Karneval in Dortmund 2026: 10 Veranstaltungen locken Groß und Klein**: [Link](https://www.ruhr24.de/dortmund/dortmund-karneval-2026-10-feiern-weiberfastnacht-februar-freizeit-kinderkarneval-prunksitzung-94149964.html)
-
-
-### elche vs osasuna (N/A, 13/02/2026 15:46 Lima)
-
-- **Elche vs. Osasuna: La Liga betting odds, prediction, pick**: [Link](https://www.usatoday.com/story/sports/soccer/2026/02/13/elche-vs-osasuna-la-liga-betting-odds-prediction-pick/88649670007/)
-- **Elche seeks to end losing streak against Osasuna in La Liga clash**: [Link](https://news.ssbcrack.com/elche-seeks-to-end-losing-streak-against-osasuna-in-la-liga-clash/)
-- **Preview: Elche vs Osasuna - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/osasuna/preview/elche-vs-osasuna-prediction-team-news-lineups_591818.html)
-
-
-### suheyn cipriani (N/A, 13/02/2026 15:46 Lima)
-
-- **Suheyn Cipriani revela que Macarius TERMINÓ con ella durante el cumpleaños de su hija: "Fue un poco CRUEL"**: [Link](https://www.atv.pe/noticia/suheyn-cipriani-revela-que-macarius-termino-con-ella-durante-el-cumpleanos-de-su-hija-fue-un-poco-cruel/)
-- **Magaly Medina sale en defensa de Suheyn Cipriani y respalda su relación con streamer Macarius: “Ella lo escogió”**: [Link](https://larepublica.pe/espectaculos/2026/02/11/magaly-medina-sale-en-defensa-de-suheyn-cipriani-y-respalda-su-relacion-con-streamer-macarius-ella-lo-escogio-atmp-949927)
-- **Macarius se confiesa: “Me preguntan qué brujería hice para estar con Suheyn”**: [Link](https://trome.com/espectaculos/tv/macarius-se-confiesa-me-preguntan-que-brujeria-hice-para-estar-con-suheyn-cipriani-entrevista-video-farandula-noticia/)
-
-
-### isabella ladera (N/A, 13/02/2026 11:55 Lima)
-
-- **Hugo García e Isabella Ladera confirmaron que serán padres**: [Link](https://www.americatv.com.pe/mas-espectaculos/hugo-garcia-isabella-ladera-confirmaron-que-seran-padres-noticia-162921)
-- **Hugo García e Isabella Ladera confirman con una romántica foto que se convertirán en padres**: [Link](https://rpp.pe/famosos/farandula/hugo-garcia-e-isabella-ladera-confirman-con-romantica-foto-que-se-convertiran-en-padres-noticia-1675754)
-- **Hugo García e Isabela Ladera serán padres: la influencer reveló que está embazada con tierna foto**: [Link](https://www.planeta.pe/noticias/espectaculos/hugo-garcia-e-isabela-ladera-seran-padres-la-influencer-revelo-que-esta-embazada-con-tierna-foto/)
-
-
-### galatasaray - eyüpspor (N/A, 13/02/2026 11:55 Lima)
-
-- **Okan Buruk’tan Osimhen ve Icardi sürprizi**: [Link](https://www.babaocagi.com.tr/okan-buruktan-osimhen-ve-icardi-surprizi)
-- **G.Saray-İkas Eyüpspor | İlk 11'ler belli oldu!**: [Link](https://www.fotomac.com.tr/galatasaray/2026/02/13/galatasaray-ikas-eyupspor-maci-ne-zaman-saat-kacta-ve-hangi-kanalda-1770996363)
-- **Süper Lig’de derbi takvimi netleşti!**: [Link](https://www.45haber.com/super-ligde-derbi-takvimi-netlesti)
-
-
-### al hilal - al-ettifaq (N/A, 13/02/2026 11:55 Lima)
-
-- **Saudi Pro League Giants Al-Hilal and Al-Ittifaq Clash for Top Spot**: [Link](https://www.filmogaz.com/147885)
-- **Yassine Bounou makes times recovery ahead of Morocco’s March friendlies**: [Link](https://africasoccer.com/yassine-bounou-makes-times-recovery-ahead-of-moroccos-march-friendlies/)
-- **Al Hilal vs Al Ettifaq Prediction and Betting Tips | February 13th 2026**: [Link](https://www.sportskeeda.com/football/al-hilal-vs-al-ettifaq-prediction-betting-tips-february-13th-2026)
-
-
-### humbe (N/A, 13/02/2026 11:55 Lima)
-
-- **Humbe en Lima: precios y cómo comprar entradas para su concierto en Costa 21**: [Link](https://rpp.pe/musica/conciertos/humbe-en-lima-2026-precios-de-entradas-y-como-comprar-en-preventa-via-teleticket-para-concierto-en-costa-21-noticia-1675424)
-- **Humbe vuelve a Perú con ‘Dueño de los Cielos Tour’: fecha, lugar, precio de entradas y más del evento**: [Link](https://www.infobae.com/peru/2026/02/09/humbe-vuelve-a-peru-con-dueno-de-los-cielos-tour-fecha-lugar-entradas-y-mas-del-evento/)
-- **Concierto Humbe en Lima 2026: fecha, precios y cómo comprar entradas en Teleticket para 'Dueño de Cielos Tour' en Costa 21**: [Link](https://larepublica.pe/entretenimiento/2026/02/09/concierto-humbe-en-lima-2026-fecha-precios-y-como-comprar-entradas-en-teleticket-para-dueno-de-cielos-tour-en-costa-21-515511)
-
-
-### san valentin (N/A, 13/02/2026 11:55 Lima)
-
-- **Estafadores del amor: así manipulan y roban a sus víctimas**: [Link](https://cuidateplus.marca.com/bienestar/2026/02/11/estafadores-amor-asi-manipulan-roban-victimas-184667.html)
-- **Casi 4 de cada 10 correos de San Valentín son estafas: lo que está viendo Bitdefender Antispam Lab en 2026**: [Link](https://www.bitdefender.com/es-es/blog/hotforsecurity/casi-4-de-cada-10-correos-de-san-valentin-son-estafas-lo-que-esta-viendo-bitdefender-antispam-lab-en-2026)
-- **Cuidado en San Valentín: phishing y páginas falsas por doquier**: [Link](https://www.channelpartner.es/seguridad/cuidado-en-san-valentin-el-phishing-y-las-paginas-falsas-estan-al-acecho/)
-
-
-### chatgpt (N/A, 13/02/2026 11:55 Lima)
-
-- **Opinion | OpenAI Is Making the Mistakes Facebook Made. I Quit.**: [Link](https://www.nytimes.com/2026/02/11/opinion/openai-ads-chatgpt.html)
-- **Testing ads in ChatGPT**: [Link](https://openai.com/index/testing-ads-in-chatgpt/)
-- **Top researcher Zoe Hitzig at Sam Altman's company announces: I quit today, as ChatGPT-maker OpenAI is mak**: [Link](https://timesofindia.indiatimes.com/technology/tech-news/top-researcher-zoe-hitzig-at-sam-altmans-company-announces-i-quit-today-as-chatgpt-maker-openai-is-making-/articleshow/128224169.cms)
-
-
-### al-shabab - al-ahli saudi (N/A, 13/02/2026 11:55 Lima)
-
-- **Al-Ahly Defeats Al-Shabab with Five Goals and Rises to Second Place in the League**: [Link](https://www.ysscores.com/en/news/13910406/Al-Ahly-Defeats-Al-Shabab-with-Five-Goals-and-Rises-to-Second-Place-in-the-League)
-- **Preview: Al Shabab vs Al Ahli Prediction, lineups, betting tips & odds | Saudi Pro League 2025-26**: [Link](https://khelnow.com/football/world-football-al-shabab-vs-al-ahli-preview-202602)
-- **Al Shabab Dismiss Guausil in Decisive Move Ahead of Al Ahli Clash**: [Link](https://koorabreak.com/en/255707/)
 
 
