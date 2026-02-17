@@ -1,3 +1,31 @@
+### lunar new year (N/A, 17/02/2026 03:54 Lima)
+
+- **A 2026 guide to Lunar New Year as we gallop into the Year of the Horse**: [Link](https://www.cnn.com/travel/chinese-lunar-new-year-2026-guide-intl-hnk)
+- **Don’t cut your hair and no sweeping – how to boost your luck in the lunar new year**: [Link](https://www.independent.co.uk/life-style/hair-boost-luck-new-lunar-year-chinese-fortune-b2921344.html)
+- **Chinese ‘Year of Fire Horse' to bring luck for Mamdani, challenges for Trump**: [Link](https://www.geo.tv/latest/651304-chinese-year-of-fire-horse-to-bring-luck-for-mamdani-challenges-for-trump-feng-shui-master)
+
+
+### año nuevo lunar (N/A, 17/02/2026 03:54 Lima)
+
+- **¿Qué es el Año Nuevo chino? Las 7 cosas que debes saber sobre la popular celebración**: [Link](https://cnnespanol.cnn.com/2026/02/16/mundo/ano-nuevo-chino-orix)
+- **Año Nuevo Chino 2026: cuándo empieza y qué significa el Caballo de Fuego**: [Link](https://www.lanacion.com.ar/horoscopo/horoscopo-chino-2026/ano-nuevo-chino-2026-cuando-empieza-y-que-significa-el-caballo-de-fuego-nid16022026/)
+- **Año Nuevo Chino 2026: rituales para atraer fortuna y las advertencias en Año del Caballo de Fuego**: [Link](https://rpp.pe/cultura/mas-cultura/ano-nuevo-chino-2026-rituales-para-atraer-fortuna-y-suerte-las-advertencias-en-ano-del-caballo-de-fuego-noticia-1676072)
+
+
+### atv en vivo (N/A, 17/02/2026 03:54 Lima)
+
+- **Clausuran centro donde niña fue maltratada por terapeuta que está como no habido**: [Link](https://www.atv.pe/noticia/clausuran-centro-donde-nina-fue-maltratada-por-terapeuta-que-esta-como-no-habido/)
+- **Clausuran centro terapéutico en Los Olivos: Sujeto que maltrató a niña de seis años está no habido**: [Link](https://trome.com/actualidad/policiales/los-olivos-clausuran-centro-terapeutico-y-sujeto-que-maltrato-a-nina-de-seis-anos-esta-no-habido-video-historia-de-policiales-noticia/)
+- **Terapeuta es captado agrediendo a menor de 6 años en centro infantil**: [Link](https://caretas.pe/nacional/terapeuta-es-captado-golpeando-a-menor-de-6-anos-en-centro-infantil/)
+
+
+### alex turner (N/A, 17/02/2026 03:54 Lima)
+
+- **2000's British Rock Group Named the Most Streamed 'Indie Rock' Garage Band**: [Link](https://www.yahoo.com/entertainment/music/articles/2000s-british-rock-group-named-152529858.html)
+- **Alex Turner’s favourite Arctic Monkeys songs**: [Link](https://faroutmagazine.co.uk/alex-turner-favourite-arctic-monkeys-songs/)
+- **Yo Soy conciertos 2026: ¡Alex Turner desata sensualidad y conquista al jurado!**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-conciertos-2026-alex-turner-desata-sensualidad-y-conquista-al-jurado_20260216/)
+
+
 ### suheyn cipriani (N/A, 17/02/2026 00:22 Lima)
 
 - **Suheyn Cipriani llora frente a Magaly Medina por Macarius: "Me ha afectado mucho"**: [Link](https://www.atv.pe/noticia/suheyn-cipriani-llora-frente-a-magaly-medina-por-macarius-me-ha-afectado-mucho/)
@@ -995,33 +1023,5 @@ Sin noticias relacionadas disponibles.
 
 - **Universitario - Cienciano: lineups, drama and a sold-out Monumental ahead of big Apertura clash**: [Link](https://www.filmogaz.com/148739)
 - **Universitario vs Cienciano Prediction: Match Preview and Analysis | Primera Division 14-02-2026**: [Link](https://betmines.com/match-preview/universitario-vs-cienciano-prediction-match-preview-and-analysis-primera-division-14-02-2026)
-
-
-### puebla - pumas (N/A, 13/02/2026 21:33 Lima)
-
-- **Liga MX: Puebla y Pumas UNAM se miden por la fecha 6**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-puebla-y-pumas-unam-se-miden-por-la-fecha-6-noticia-1675624)
-- **Navarro destaca preparación y solidez defensiva rumbo a la jornada 6**: [Link](https://puebla321.com/2026/02/13/navarro-destaca-preparacion-y-solidez-defensiva-rumbo-a-la-jornada-6/)
-- **“No hay justificación para lo que ha hecho”: José Manuel Figueroa demanda por daño moral a Imelda Tuñón tras acusación de abuso contra Julián Figueroa https://mile.io/3OG2TrD**: [Link](https://www.facebook.com/MilenioDiario/posts/no-hay-justificaci%C3%B3n-para-lo-que-ha-hecho-jos%C3%A9-manuel-figueroa-demanda-por-da%C3%B1o-/1386963993461068/)
-
-
-### américa - santa fe (N/A, 13/02/2026 21:33 Lima)
-
-- **¿Quién es Jean Fernandes, el nuevo arquero del América de Cali?**: [Link](https://www.espn.com.ar/futbol/colombia/nota/_/id/16308688/quien-es-jean-fernandes-el-nuevo-arquero-del-america-de-cali)
-- **Transmisión EN VIVO del América de Cali vs Santa Fe hoy: cómo mirar la Liga por TV o streaming**: [Link](https://www.365scores.com/es/news/america-vs-santa-fe-transmision-vivo/)
-- **En el duelo de rojos por el cierre de la jornada, se vivirá el denominado clásico de Rojos en la capital del Valle del Cauca**: [Link](https://www.facebook.com/infobaecolombia/photos/en-el-duelo-de-rojos-por-el-cierre-de-la-jornada-se-vivir%C3%A1-el-denominado-cl%C3%A1sico/1351086407034118/)
-
-
-### universitario - cienciano (N/A, 13/02/2026 21:33 Lima)
-
-- **Universitario vs. Cienciano EN VIVO: minuto a minuto gratis por internet vía Liga 1 MAX**: [Link](https://depor.com/futbol-peruano/descentralizado/ver-universitario-vs-cienciano-en-vivo-hoy-minuto-a-minuto-gratis-liga-1-max-futbol-libre-tv-con-transmision-de-movistar-tv-directv-torneo-apertura-2026-noticia/)
-- **Sigue Universitario vs Cienciano EN VIVO: minuto a minuto del partido por Liga 1 | LBPosting | DEPORTE-TOTAL**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/universitario-vs-cienciano-en-vivo-hoy-ver-partido-por-liga-1-lbposting-noticia/)
-- **Con todo en el Monumental: el posible once de Universitario para enfrentar a Cienciano**: [Link](https://rpp.pe/futbol/descentralizado/universitario-vs-cienciano-el-posible-once-crema-en-partido-por-torneo-apertura-en-el-monumental-noticia-1675666)
-
-
-### monaco (N/A, 13/02/2026 15:46 Lima)
-
-- **DIRECT. Monaco-Nantes: suivez le match de la 22e journée de Ligue 1 en live**: [Link](https://rmcsport.bfmtv.com/football/ligue-1/direct-monaco-nantes-suivez-le-match-de-la-22e-journee-de-ligue-1-en-live_LS-202602130815.html)
-- **ASM – FCN : Le groupe monégasque**: [Link](https://asm-supporters.fr/actualites/65220-asm-fcn-le-groupe-monegasque-5)
-- **C'est parti au stade Louis II !**: [Link](https://www.fcnantes.com/articles/article2809.php?num=48638)
 
 
