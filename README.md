@@ -1,3 +1,45 @@
+### meet google (N/A, 18/02/2026 08:18 Lima)
+
+- **The flaws in India’s AI plans**: [Link](https://www.economist.com/asia/2026/02/17/the-flaws-in-indias-ai-plans)
+- **Google Plans New Fiber-Optic Routes Between the US and India**: [Link](https://www.bloomberg.com/news/articles/2026-02-18/google-plans-new-fiber-optic-routes-between-the-us-and-india)
+- **Tech billionaires fly in for Delhi AI expo as Modi jostles to lead in south**: [Link](https://www.theguardian.com/technology/2026/feb/18/delhi-ai-expo-modi-jostles-lead-south)
+
+
+### paro de transportistas 18 de febrero (N/A, 18/02/2026 08:18 Lima)
+
+- **Transportistas de carga pesada acatarán paro y no trasladarán productos a Lima este miércoles y jueves**: [Link](https://rpp.pe/peru/junin/transportistas-de-carga-pesada-acataran-paro-y-no-trasladaran-productos-a-lima-este-miercoles-y-jueves-noticia-1676254)
+- **Nueva Carretera Central inicio camino paso para evitar arbitraje: los “baches” del proyecto**: [Link](https://gestion.pe/economia/nueva-carretera-central-inicio-camino-paso-para-evitar-arbitraje-los-baches-del-proyecto-noticia/)
+- **Congreso: presentan mociones de interpelación contra los ministros de Economía y Transportes por la Nueva Carretera Central**: [Link](https://elcomercio.pe/politica/congreso-presentan-mociones-de-interpelacion-contra-los-ministros-de-economia-y-transportes-por-la-nueva-carretera-central-ultimas-noticia/)
+
+
+### club brujas (N/A, 18/02/2026 08:18 Lima)
+
+- **Posible alineación del Atlético hoy ante el Brujas en la Champions League**: [Link](https://as.com/futbol/champions/posible-once-del-atletico-ante-el-brujas-f202602-n/)
+- **La reflexión de Simeone recordando su retirada: "Lo di todo, como me enseñó mi mamá"**: [Link](https://www.marca.com/futbol/atletico/2026/02/17/reflexion-simeone-recordando-retirada-di-me-enseno-mi-mama-video.html)
+- **Pronósticos Brujas vs Atlético de Madrid: los colchoneros llegan como grandes favoritos**: [Link](https://depor.com/apuestas-deportivas/brujas-vs-atletico-pronosticos-apuestas-cuotas-18-02-2026/)
+
+
+### el eclipse solar (N/A, 18/02/2026 08:18 Lima)
+
+- **Un eclipse parcial de sol se podrá ver el martes en algunas zonas de Suramérica**: [Link](https://gestion.pe/mundo/internacional/un-eclipse-parcial-de-sol-se-podra-ver-el-martes-en-algunas-zonas-de-suramerica-noticia/)
+- **Eclipse solar del 17 de febrero de 2026: horarios y dónde será visible**: [Link](https://andina.pe/agencia/noticia-eclipse-solar-del-17-febrero-2026-horarios-y-donde-sera-visible-1063392.aspx)
+- **El eclipse solar de ‘anillo de fuego’ será hoy 17 de febrero, durará unas cuatro horas y media, ¿será visible desde Perú?**: [Link](https://larepublica.pe/ciencia/2026/02/16/el-eclipse-solar-de-anillo-de-fuego-sera-este-martes-durara-unas-cuatro-horas-y-media-sera-visible-desde-peru-511120)
+
+
+### bn (N/A, 18/02/2026 08:18 Lima)
+
+- **India’s Adani Group to Invest $100 Billion in AI Infrastructure**: [Link](https://www.wsj.com/tech/indias-adani-group-to-invest-100-billion-on-ai-infrastructure-7d428962?gaa_at=eafs&gaa_n=AWEtsqdaOFEdI9pafNJ74N_saF1DQn2Q6c_uEssaj1nocaeVT31op5LxrpQS&gaa_ts=6995bfac&gaa_sig=YJsUisERjOc8822z88xbDLLD8vr4X1uGy6MSo2aeGQzTF_qizsuFfCONbh5fT3xlQcPnm37Y4olIS66ManURHQ%3D%3D)
+- **Billionaire Gautam Adani Earmarks $100 Billion To Develop AI Data Centers Across India**: [Link](https://www.forbes.com/sites/yessarrosendar/2026/02/17/billionaire-gautam-adani-earmarks-100-billion-to-develop-ai-data-centers-across-india/)
+- **India to Add 20,000 GPUs as AI Mission 2.0 Expands Compute and Chip Push**: [Link](https://www.eetimes.com/india-to-add-20000-gpus-as-ai-mission-2-0-expands-compute-and-chip-push/)
+
+
+### qarabag vs (N/A, 18/02/2026 08:18 Lima)
+
+- **Preview: Qarabag FK vs. Newcastle United - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/qarabag-fk/champions-league/preview/qarabag-vs-newcastle-prediction-team-news-lineups_592138.html)
+- **Newcastle winger Elanga: We all play for Howe**: [Link](https://www.tribalfootball.com/article/soccer-champions-league-newcastle-winger-elanga-we-all-play-for-howe-20f73d1b-3474-4661-8922-4724294a7e65)
+- **Eddie Howe's team news update: Joelinton returns for Qarabag qualifier**: [Link](https://onefootball.com/de/news/eddie-howes-team-news-update-joelinton-returns-for-qarabag-qualifier-42424936)
+
+
 ### los angeles fc (N/A, 18/02/2026 00:24 Lima)
 
 - **Where To Watch | Real España vs. LAFC - Concacaf Champions Cup**: [Link](https://www.lafc.com/news/where-to-watch-lafc-vs-real-espana-concacaf-champions-cup-february-17)
@@ -978,47 +1020,5 @@ Sin noticias relacionadas disponibles.
 - **Alianza Lima vs. Alianza Atlético EN VIVO: minuto a minuto por internet gratis vía Liga 1 MAX**: [Link](https://depor.com/futbol-peruano/descentralizado/ver-alianza-lima-vs-alianza-atletico-en-vivo-minuto-a-minuto-gratis-liga-1-max-movistar-tv-futbol-liber-tv-directv-zapping-y-canales-de-transmision-torneo-apertura-2026-lbp-noticia/)
 - **Alianza Lima vs. Alianza Atlético: la novedosa alineación de Guede para ganar en Trujillo**: [Link](https://libero.pe/futbol-peruano/alianza-lima/2026/02/13/alineaciones-alianza-lima-vs-alianza-atletico-formacion-de-partido-de-liga-1-peru-apertura-1250366)
 - **Sin Girotti, el ‘castigado’ en el quinto once distinto de Alianza: la pizarra de Guede para un triunfo urgente ante Sullana**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/alianza-lima-sin-federico-girotti-el-castigado-en-el-quinto-once-distinto-de-alianza-la-pizarra-de-pablo-guede-para-un-triunfo-urgente-ante-sullana-liga-1-tlcnota-noticia/)
-
-
-### primera división de paraguay (N/A, 14/02/2026 21:47 Lima)
-
-- **Cerro Porteño vs. Nacional (P), EN VIVO: dónde ver por TV y ONLINE**: [Link](https://www.tycsports.com/paraguay/futbol-de-paraguay/cerro-porteno-vs-nacional-p-en-vivo-donde-ver-por-tv-y-online-id713242.html)
-- **Nacional tiene una parada “más difícil todavía”**: [Link](https://d10.ultimahora.com/nacional-tiene-una-parada-mas-dificil-todavia)
-- **Cerro Porteño vs. Nacional (P) en vivo: cómo verlo, horario y TV**: [Link](https://www.tycsports.com/paraguay/futbol-de-paraguay/paraguay-torneo-apertura-2026-cerro-porteno-vs-nacional-p-fecha-5-id713105.html)
-
-
-### paris fc (N/A, 14/02/2026 15:33 Lima)
-
-- **Official Starting Lineups Announced for OM vs. Strasbourg Match**: [Link](https://www.filmogaz.com/149507)
-- **Leonardo Balerdi, its official**: [Link](https://www.surfcoastnews.com.au/sport/10961/)
-- **Mason Greenwood scores again but Marseille struggles continue**: [Link](https://www.espn.com/soccer/story/_/id/47929598/mason-greenwood-goal-marseille-held-draw-strasbourg)
-
-
-### barcelona - eibar femenino (N/A, 14/02/2026 15:33 Lima)
-
-- **Barcelona - Eibar, en directo: Liga F, hoy en vivo**: [Link](https://as.com/futbol/femenino/barcelona-eibar-en-directo-liga-f-hoy-en-vivo-f202602-n/)
-- **Pajor se reivindica en un nuevo festín culé**: [Link](https://www.lavanguardia.com/deportes/futbol-femenino/20260214/11466625/pajor-reivindica-nuevo-festin-cule.html)
-- **Fiesta culé en el Johan Cruyff**: [Link](https://ligaf.es/noticia/fiesta-cule-en-el-johan-cruyff)
-
-
-### lens vs (N/A, 14/02/2026 15:33 Lima)
-
-- **Lens predicted XI v Paris FC: Arthur Masuaku starts amid growing injury crisis**: [Link](https://sports.yahoo.com/articles/lens-predicted-xi-v-paris-094500726.html)
-- **Where to Watch Paris FC vs. RC Lens: TV Channel, Start Time and Live Stream**: [Link](https://www.bleachernation.com/how-to-watch/2026/02/13/where-to-watch-paris-fc-vs-rc-lens-tv-channel-start-time-and-live-stream/)
-- **Lens with a good chance for first place**: [Link](https://www.koha.net/en/futboll/lensi-me-mundesi-te-mire-per-vendin-e-pare)
-
-
-### real vs (N/A, 14/02/2026 15:33 Lima)
-
-- **Open Thread: 14 February 2026**: [Link](https://www.managingmadrid.com/general/103931/open-thread-14-february-2026)
-- **Real Madrid's starting lineup against Real Sociedad**: [Link](https://www.realmadrid.com/en-US/news/football/first-team/latest-news/once-inicial-del-real-madrid-ante-la-real-sociedad-14-02-2026)
-- **‘They are a difficult rival’: Courtois previews Real Sociedad clash**: [Link](https://tribuna.com/en/news/2026-02-14-they-are-a-difficult-rival-courtois-previews-real-sociedad-clash/)
-
-
-### inter vs (N/A, 14/02/2026 15:33 Lima)
-
-- **Best team in Europe? Indomitable Inter Milan could run riot vs Juventus in Derby d'Italia**: [Link](https://www.transfermarkt.com/best-team-in-europe-indomitable-inter-milan-could-run-riot-vs-juventus-in-derby-ditalia/view/news/475443)
-- **🚨 Calhanoglu, Barella, McKennie... XIs set for Inter v Juve**: [Link](https://onefootball.com/en/news/calhanoglu-barella-mckennie-xis-set-for-inter-v-juve-42410830)
-- **Inter Milan Coach Cristian Chivu Refuses To Get Involved With Contemporaries’ Complaints: ‘Referees Are Not The Problem’**: [Link](https://sempreinter.com/2026/02/14/inter-chivu-coach-referees-serie-a-problem/)
 
 
