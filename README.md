@@ -1,3 +1,50 @@
+### los angeles fc (N/A, 18/02/2026 00:24 Lima)
+
+- **Where To Watch | Real España vs. LAFC - Concacaf Champions Cup**: [Link](https://www.lafc.com/news/where-to-watch-lafc-vs-real-espana-concacaf-champions-cup-february-17)
+- **Real Espana vs Los Angeles FC Prediction and Betting Tips | February 17th 2026**: [Link](https://www.sportskeeda.com/football/real-espana-vs-los-angeles-fc-prediction-betting-tips-february-17th-2026)
+- **Son Heung-min Shines with First Goal and Assist Hat-Trick Against Spain**: [Link](https://www.el-balad.com/6854689)
+
+
+### julio iglesias (N/A, 18/02/2026 00:24 Lima)
+
+- **Julio Iglesias vuelve a reclamar la denuncia falsa y archivada que la Fiscalía se niega a entregarle**: [Link](https://okdiario.com/espana/julio-iglesias-vuelve-reclamar-denuncia-falsa-archivada-que-fiscalia-niega-entregarle-16262275)
+- **Javier Santos, hijo no reconocido de Julio Iglesias: “Mi hermano Enrique me trató con mucho respeto. Me gustaría hablar con él. Le he escrito mucho, pero tiene millones de fans"**: [Link](https://www.lecturas.com/actualidad/javier-santos-hijo-julio-iglesias-mi-hermano-enrique-me-trato-mucho-respeto-me-gustaria-hablar-le-he-escrito-mucho-pero-tiene-millones-fans_188756)
+- **Un detective privado y una portada de Interviú, la “maquinaria de desprestigio” de Julio Iglesias contra la mujer que le reclamó la paternidad de su hijo**: [Link](https://www.eldiario.es/cultura/detective-privado-portada-interviu-maquinaria-desprestigio-julio-iglesias-mujer-le-reclamo-paternidad-hijo_1_12983666.html)
+
+
+### bodø/glimt vs. manchester city (N/A, 18/02/2026 00:24 Lima)
+
+- **Inter midfielders Calhanoglu and Frattesi ruled out of Bodo/Glimt clash**: [Link](https://football-italia.net/calhanoglu-frattesi-ruled-out-bodo-glimt-inter/)
+- **Milan Coach Chivu On Post Juventus Drama: “Enough With Moralism, We Were Wronged Against Napoli & No-One Said Anything”**: [Link](https://sempreinter.com/2026/02/17/inter-milan-boss-chivu-hits-back-critics-enough-moralism-juventus/)
+- **GdS: 4000km and 30° – why Inter’s trip to Norway could influence the title race**: [Link](https://sempremilan.com/why-inter-trip-to-norway-influence-title-race)
+
+
+### steven tyler (N/A, 18/02/2026 00:24 Lima)
+
+- **The only singer Joe Perry loved as much as Steven Tyler: “He’s not interested in ego”**: [Link](https://faroutmagazine.co.uk/singer-joe-perry-loved-as-much-as-steven-tyler/)
+
+
+### real españa - lafc (N/A, 18/02/2026 00:24 Lima)
+
+- **Real España - LAFC en vivo: Concacaf Champions Cup, minuto a minuto del partido de IDA en Honduras**: [Link](https://as.com/us/futbol/real-espana-lafc-en-vivo-concacaf-champions-cup-minuto-a-minuto-del-partido-de-ida-en-honduras-f202602-n/)
+- **Transmisión EN VIVO de Real España vs Los Angeles FC hoy: cómo mirar el partido por TV o streaming**: [Link](https://www.365scores.com/es/news/real-espana-vs-los-angeles-streaming/)
+- **La humildad de Son en San Pedro Sula: factura grande y solo cuatro guardaespaldas**: [Link](https://www.tudn.com/futbol/la-humildad-de-son-en-san-pedro-sula-factura-grande-y-solo-cuatro-guardaespaldas-video)
+
+
+### miercoles de ceniza (N/A, 18/02/2026 00:24 Lima)
+
+- **Miércoles de Ceniza 2026: cuándo es y por qué marca el inicio de la Cuaresma**: [Link](https://gestion.pe/mix/respuestas/miercoles-de-ceniza-2026-cuando-es-y-por-que-marca-el-inicio-de-la-cuaresma-nnda-nnni-noticia/)
+- **Para comenzar la Cuaresma con fe: 10 oraciones del Miércoles de Ceniza 2026 para rezar en familia**: [Link](https://elcomercio.pe/mag/respuestas/para-comenzar-la-cuaresma-con-fe-10-oraciones-del-miercoles-de-ceniza-2026-para-rezar-en-familia-noticia/)
+- **¿Cuándo es el primer domingo de Cuaresma y qué significado tiene en el camino hacia la Pascua?**: [Link](https://www.prensalibre.com/vida/escenario/cuando-es-el-primer-domingo-de-cuaresma-y-que-significado-tiene-en-el-camino-hacia-la-pascua/)
+
+
+### shia labeouf (N/A, 18/02/2026 00:24 Lima)
+
+- **Shia LaBeouf Arrested at Mardi Gras After Fight, Spotted in Ambulance, on Video**: [Link](https://www.tmz.com/2026/02/17/shia-labeouf-in-mardi-gras-fight-paramedics-respond/)
+- **Exclusive | Shia LaBeouf and wife Mia Goth secretly split after rollercoaster romance: sources**: [Link](https://pagesix.com/2026/02/17/celebrity-news/shia-labeouf-and-wife-mia-goth-split-a-year-ago-sources/)
+- **Shia LaBeouf’s Mardi Gras Bar Crawl: “He’s Terrorizing the City”**: [Link](https://www.hollywoodreporter.com/news/general-news/shia-labeouf-mardi-gras-bar-crawl-new-orleans-1236507049/)
+
+
 ### cristal fc (N/A, 17/02/2026 21:42 Lima)
 
 - **Christantus Uche’s Crystal Palace loan is petering out. It has not worked for anyone**: [Link](https://www.nytimes.com/athletic/7050783/2026/02/17/christantus-uche-crystal-palace-loan/)
@@ -973,53 +1020,5 @@ Sin noticias relacionadas disponibles.
 - **Best team in Europe? Indomitable Inter Milan could run riot vs Juventus in Derby d'Italia**: [Link](https://www.transfermarkt.com/best-team-in-europe-indomitable-inter-milan-could-run-riot-vs-juventus-in-derby-ditalia/view/news/475443)
 - **🚨 Calhanoglu, Barella, McKennie... XIs set for Inter v Juve**: [Link](https://onefootball.com/en/news/calhanoglu-barella-mckennie-xis-set-for-inter-v-juve-42410830)
 - **Inter Milan Coach Cristian Chivu Refuses To Get Involved With Contemporaries’ Complaints: ‘Referees Are Not The Problem’**: [Link](https://sempreinter.com/2026/02/14/inter-chivu-coach-referees-serie-a-problem/)
-
-
-### inter de milán (N/A, 14/02/2026 15:33 Lima)
-
-- **Cuándo juegan Inter vs. Juventus por la Serie A: equipo, fecha, hora y TV en vivo**: [Link](https://www.espn.com.pe/futbol/italia/nota/_/id/16298092/inter-vs-juventus-por-la-serie-a-equipo-fecha-hora-y-tv-en-vivo)
-- **Pronóstico Inter vs. Juventus - El clásico italiano ¿Quién lo gana?**: [Link](https://gainblers.com/pe/pronosticos/futbol/italia/serie-a/pronostico-inter-juventus-14-02-2026/)
-- **Inter vs Juventus: ¡Incrementa tus ganancias hasta 200% con la Serie A en Meridianbet!**: [Link](https://ovacion.pe/noticias/nota-promocional/inter-vs-juventus-incrementa-tus-ganancias-hasta-200-serie-meridianbet)
-
-
-### deportivo garcilaso vs (N/A, 14/02/2026 15:33 Lima)
-
-- **¡Escándalo en Cusco! Polémica expulsión a Bauman que perjudicó a ADT frente a Deportivo Garcilaso**: [Link](https://depor.com/futbol-peruano/descentralizado/polemica-liga-1-2026-deportivo-garcilaso-vs-adt-expulsion-a-jonathan-bauman-por-falta-var-video-noticia/)
-- **Mira Deportivo Garcilaso vs ADT EN VIVO y EN DIRECTO por el Torneo Apertura**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/deportivo-garcilaso-vs-adt-en-vivo-dia-hora-y-canal-para-ver-el-torneo-apertura-de-la-liga-1-2026-tdpe-noticia/)
-- **Liga 1: Por la fecha 3 se enfrentarán Deportivo Garcilaso y ADT de Tarma**: [Link](https://rpp.pe/futbol/descentralizado/liga-1-por-la-fecha-3-se-enfrentaran-deportivo-garcilaso-y-adt-de-tarma-noticia-1675720)
-
-
-### lens fc (N/A, 14/02/2026 15:33 Lima)
-
-- **Paris police order suspended, 1,000 Lens fans cleared for Paris FC v Lens**: [Link](https://onefootball.com/en/news/paris-police-order-suspended-1000-lens-fans-cleared-for-paris-fc-v-lens-42407708)
-- **Lens predicted XI v Paris FC: Arthur Masuaku starts amid growing injury crisis**: [Link](https://sports.yahoo.com/articles/lens-predicted-xi-v-paris-094500726.html)
-- **Where to Watch Paris FC vs. RC Lens: TV Channel, Start Time and Live Stream**: [Link](https://www.bleachernation.com/how-to-watch/2026/02/13/where-to-watch-paris-fc-vs-rc-lens-tv-channel-start-time-and-live-stream/)
-
-
-### paris fc - lens (N/A, 14/02/2026 15:33 Lima)
-
-- **Paris FC - Lens : après l'OM, une invasion lensoise en vue à Jean-Bouin ?**: [Link](https://www.onzemondial.com/ligue-1/paris-fc-lens-apres-lom-une-invasion-lensoise-en-vue-a-jean-bouin-980237)
-- **22e journée de Ligue 1 : Suivez le match Paris FC - RC Lens EN DIRECT**: [Link](https://www.eurosport.fr/football/ligue-1/2025-2026/live-paris-fc-rc-lens_mtc1609509/live-commentary.shtml)
-- **Paris FC – Lens : Nidal Celik titulaire d’entrée pour ses premières minutes en pro**: [Link](https://www.lavoixdunord.fr/1674977/article/2026-02-14/paris-fc-lens-nidal-celik-titulaire-d-entree-pour-ses-premieres-minutes-en-pro)
-
-
-### ajax vs (N/A, 14/02/2026 15:33 Lima)
-
-- **How to watch today's Ajax vs Fortuna Sittard Eredivisie game: Live stream, TV channel, and start time**: [Link](https://www.goal.com/en-ca/news/how-to-watch-ajax-v-fortuna-sittard-15022026/bltaced50a876ca7556)
-- **Preview: Ajax vs. Fortuna Sittard - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/ajax/preview/ajax-vs-sittard-prediction-team-news-lineups_591862.html)
-
-
-### trabzonspor - fenerbahçe (N/A, 14/02/2026 11:37 Lima)
-
-- **Sadettin Saran derbi öncesi Kerem Aktürkoğlu ile özel görüştü**: [Link](https://www.yenicaggazetesi.com/sadettin-saran-derbi-oncesi-kerem-akturkoglu-ile-ozel-gorustu-1001222h.htm)
-- **Süper Lig'de dev maç: Trabzonspor ve Fenerbahçe'nin 11'leri belli oldu**: [Link](https://www.babaocagi.com.tr/super-ligde-dev-mac-trabzonspor-ve-fenerbahcenin-11leri-belli-oldu)
-- **Mert Günok: İyi çıkarsak yolu yarılamış oluruz!**: [Link](https://www.sabah.com.tr/spor/futbol/2026/02/14/mert-gunok-iyi-cikarsak-yolu-yarilamis-oluruz)
-
-
-### lazio - atalanta (N/A, 14/02/2026 11:37 Lima)
-
-- **Lazio-Atalanta, i biancocelesti si preparano ad affrontare la Dea: le probabili formazioni**: [Link](https://onefootball.com/en/news/lazio-atalanta-i-biancocelesti-si-preparano-ad-affrontare-la-dea-le-probabili-formazioni-42409499)
-- **Fantacalcio, le formazioni ufficiali di Lazio-Atalanta: Tavares e Scamacca…**: [Link](https://www.fcinter1908.it/serie-a/fantacalcio-formazioni-ufficiali-lazio-atalanta-tavares-scamacca/)
-- **Chance per Dele-Bashiru, Krstovic ancora dal 1’: le probabili di Lazio-Atalanta**: [Link](https://www.direttafanta.com/chance-per-dele-bashiru-krstovic-ancora-dal-1-le-probabili-di-lazio-atalanta/)
 
 
