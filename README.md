@@ -1,3 +1,66 @@
+### qarabağ - newcastle (N/A, 18/02/2026 12:10 Lima)
+
+- **Preview: Qarabag FK vs. Newcastle United - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/qarabag-fk/champions-league/preview/qarabag-vs-newcastle-prediction-team-news-lineups_592138.html)
+- **Confirmed line up: Four changes for Qarabağ clash, Joelinton on bench**: [Link](https://onefootball.com/en/news/confirmed-line-up-four-changes-for-qarabag-clash-joelinton-on-bench-42430066)
+- **Newcastle winger Elanga: We all play for Howe**: [Link](https://www.tribalfootball.com/article/soccer-champions-league-newcastle-winger-elanga-we-all-play-for-howe-20f73d1b-3474-4661-8922-4724294a7e65)
+
+
+### halo (N/A, 18/02/2026 12:10 Lima)
+
+- **Cupra DarkRebel Concept remains aspirational halo vehicle**: [Link](https://www.livemedianews.gr/auto/4856/cupra-darkrebel-concept-remains-aspirational-halo-vehicle/)
+- **If you're after a fuller look, ‘halo lips’ are the answer says Dua Lipa’s make-up artist**: [Link](https://graziadaily.co.uk/beauty-hair/makeup/halo-lips-trend/)
+- **What is the 'halo lip'? Make-up artists explain how to do it**: [Link](https://shopping.yahoo.com/beauty/makeup/articles/halo-lip-artists-explain-164325063.html)
+
+
+### aston villa vs. newcastle (N/A, 18/02/2026 12:10 Lima)
+
+- **Aston Villa star issues 49-word statement after Newcastle United incident**: [Link](https://www.shieldsgazette.com/sport/football/newcastle-united/marco-bizot-aston-villa-newcastle-united-5602583)
+- **Tammy Abraham Relishes Return To Aston Villa; Says: It’s Good To Be Back**: [Link](https://www.sports247.ng/tammy-abraham-relishes-return-to-aston-villa-says-its-good-to-be-back/)
+- **Marco Bizot suspended for Aston Villa v Leeds after FA Cup red card**: [Link](https://onefootball.com/en/news/marco-bizot-suspended-for-aston-villa-v-leeds-after-fa-cup-red-card-42420152)
+
+
+### coco gauff (N/A, 18/02/2026 12:10 Lima)
+
+- **Coco Gauff: ‘I don’t think people should be dying in the streets just for existing’**: [Link](https://www.theguardian.com/sport/2026/feb/16/coco-gauff-tennis-united-states-politics-minnesota)
+- **Tennis star, a ‘proud’ American, speaks out: People are ‘dying in the streets’**: [Link](https://sports.yahoo.com/articles/tennis-star-proud-american-speaks-155830069.html)
+- **Coco Gauff Addresses U.S. Politics and Fatal ICE Shootings**: [Link](https://eurweb.com/coco-gauff-us-politics-fatal-shootings-dubai/)
+
+
+### epic games (N/A, 18/02/2026 12:10 Lima)
+
+- **How Long To Beat Resident Evil Requiem? Resident Evil 9 Game Length & Total Hours, Explained**: [Link](https://insider-gaming.com/resident-evil-requiem-game-length/)
+- **Framestore Pictures' Director Rich Lee Brings Human Touch To Trailer For Resident Evil: Requiem**: [Link](https://www.shootonline.com/shoot_video2/framestore-pictures-director-rich-lee-brings-human-touch-to-trailer-for-resident-evil-requiem/)
+- **Games Inbox: Will Resident Evil Requiem be worth getting?**: [Link](https://metro.co.uk/2026/02/18/games-inbox-will-resident-evil-requiem-worth-getting-26959886/)
+
+
+### brujas vs (N/A, 18/02/2026 12:10 Lima)
+
+- **Brujas vs Atlético de Madrid EN VIVO: ¿a qué hora juegan y dónde ver la ida de los playoffs de la Champions League?**: [Link](https://rpp.pe/futbol/champions-league/brujas-vs-atletico-de-madrid-en-vivo-a-que-hora-juegan-y-donde-ver-la-ida-de-los-playoffs-de-la-champions-league-noticia-1676374)
+- **Diego Simeone: "La contundencia te genera tranquilidad en los partidos"**: [Link](https://ovacion.pe/noticias/futbol-internacional/diego-simeone-contundencia-te-genera-tranquilidad-partidos)
+- **Pronósticos Brujas vs Atlético de Madrid: los colchoneros llegan como grandes favoritos**: [Link](https://depor.com/apuestas-deportivas/brujas-vs-atletico-pronosticos-apuestas-cuotas-18-02-2026/)
+
+
+### corte de luz (N/A, 18/02/2026 12:10 Lima)
+
+- **SIN LUZ el 18 y 19 de febrero: Estos distritos se verán afectados con el corte del servicio eléctrico**: [Link](https://www.exitosanoticias.pe/actualidad/sin-luz-18-19-febrero-estos-distritos-veran-afectados-corte-servicio-electrico-n168999)
+- **Corte de luz en Arequipa y Trujillo superará las nueve horas este 15 de febrero: aquí las zonas afectadas**: [Link](https://www.expreso.com.pe/actualidad/corte-de-luz-en-arequipa-y-trujillo-superara-las-nueve-horas-este-15-de-febrero-estas-son-las-zonas-afectadas-seal-noticia/1264003/)
+- **¿Qué lugares serán afectados por corte masivo de luz en México?**: [Link](https://www.aztecaveracruz.com/tendencia/que-lugares-seran-afectados-por-corte-masivo-luz-en-mexico/)
+
+
+### dreamleague season 28 (N/A, 18/02/2026 12:10 Lima)
+
+- **Parker Benched By PaiN Gaming After Two Matches At DreamLeague Season 28**: [Link](https://www.hotspawn.com/dota2/news/parker-benched-by-pain-gaming-after-two-matches-at-dreamleague-season-28)
+- **DreamLeague Season 28: Day 2**: [Link](https://navi.gg/en/publications/d2-dl-28-2nd-day)
+- **Dream League Season 28 Betting Guide: What You Need to Know Before You Place a Bet**: [Link](https://egamersworld.com/blog/dream-league-season-28-betting-guide-what-you-need-nHSF2q_K6)
+
+
+### yahoo (N/A, 18/02/2026 12:10 Lima)
+
+- **Stocks rise ahead of Fed minutes as Nvidia shares gain: Live updates**: [Link](https://www.cnbc.com/2026/02/17/stock-market-today-live-updates.html)
+- **Nvidia leads the US stock market near its all-time high**: [Link](https://www.wral.com/news/ap/df3d7-nvidia-leads-the-us-stock-market-near-its-all-time-high/)
+- **Stock market today: Dow, S&P 500, Nasdaq futures climb with AI disruption in focus, Fed minutes ahead**: [Link](https://finance.yahoo.com/news/live/stock-market-today-dow-sp-500-nasdaq-futures-climb-with-ai-disruption-in-focus-fed-minutes-ahead-235322972.html)
+
+
 ### meet google (N/A, 18/02/2026 08:18 Lima)
 
 - **The flaws in India’s AI plans**: [Link](https://www.economist.com/asia/2026/02/17/the-flaws-in-indias-ai-plans)
@@ -959,66 +1022,5 @@ Sin noticias relacionadas disponibles.
 - **Abren investigación a Gonzalo Núñez por supuesto delito de discriminación en agravio de jugador de fútbol**: [Link](https://lpderecho.pe/abren-investigacion-gonzalo-nunez-por-supuesto-delito-discriminacion-agravio-jugador-futbol/)
 - **Alianza Lima condena racismo de Gonzalo Núñez a Eryc Castillo y exige disculpas**: [Link](https://peru21.pe/deportes/alianza-lima-condena-racismo-de-gonzalo-nunez-eryc-castillo-y-exige-disculpas/)
 - **Alianza Lima condena declaraciones racistas contra Eryc Castillo**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/alianza-lima-condena-declaraciones-racistas-contra-eryc-castillo-noticia/)
-
-
-### vasco da gama (N/A, 14/02/2026 21:47 Lima)
-
-- **Diniz define escalação do Vasco para duelo com Volta Redonda**: [Link](https://www.portaltela.com/esporte/futebol/2026/02/14/diniz-define-escalacao-do-vasco-para-duelo-com-volta-redonda/)
-- **Aos 32 min do 1º tempo - chute de fora da área defendido de Nuno Moreira do Vasco contra o Volta Redonda**: [Link](https://ge.globo.com/futebol/video/aos-32-min-do-1o-tempo-chute-de-fora-da-area-defendido-de-nuno-moreira-do-vasco-contra-o-volta-redonda-14348887.ghtml)
-- **Gol Ygor Catatau - Vasco 0 x 1 Volta Redonda - Campeonato Carioca 2026**: [Link](https://www.uol.com.br/esporte/videos/gols/2026/02/14/gol-ygor-catatau---vasco-0-x-1-volta-redonda---campeonato-carioca-2026.htm)
-
-
-### jairo vélez (N/A, 14/02/2026 21:47 Lima)
-
-- **“El sábado tenemos otra final, debemos pasar la página rápido”: Jairo Vélez tras la eliminación de Alianza en la Copa**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/el-sabado-tenemos-otra-final-debemos-pasar-la-pagina-rapido-jairo-velez-tras-la-eliminacion-de-alianza-lima-en-la-copa-libertadores-noticia/)
-- **Jairo Vélez al ser consultado sobre su extraña posición en Alianza Lima vs 2 de Mayo: "Yo tengo que cumplir órdenes del técnico"**: [Link](https://larepublica.pe/deportes/2026/02/12/jairo-velez-al-ser-consultado-sobre-su-extrana-posicion-en-alianza-lima-vs-2-de-mayo-yo-tengo-que-cumplir-ordenes-del-tecnico-215088)
-- **«Debemos hacer respetar la casa»: Jairo Vélez calienta la Copa**: [Link](https://caretas.pe/deportes/debemos-hacer-respetar-la-casa-jairo-velez-calienta-la-copa/)
-
-
-### sullana (N/A, 14/02/2026 21:47 Lima)
-
-- **Elecciones 2026: 5,599 personas con discapacidad votarán en jurisdicción de ODPE Sullana**: [Link](https://andina.pe/agencia/noticia-elecciones-2026-5599-personas-discapacidad-votaran-jurisdiccion-odpe-sullana-1063137.aspx)
-- **Más de 2 mil 500 electores con discapacidad de Piura y Veintiséis de Octubre acudirán a las urnas este 12 de abril**: [Link](https://elregionalpiura.com.pe/index.php/region-piura/150-piura/72419-mas-de-2-mil-500-electores-con-discapacidad-de-piura-y-veintiseis-de-octubre-acudiran-a-las-urnas-este-12-de-abril)
-- **Piura: 5,599 personas con discapacidad sufragarán en las Elecciones Generales 2026**: [Link](https://diariocorreo.pe/edicion/piura/5599-personas-con-discapacidad-sufragaran-en-las-elecciones-generales-2026-noticia/)
-
-
-### nacional (N/A, 14/02/2026 21:47 Lima)
-
-- **Chivas no contará con Luis Romo en el Clásico ante América**: [Link](https://www.espn.com.pe/futbol/mexico/nota/_/id/16299435/chivas-vs-america-clasico-nacional-luis-romo-baja-lesion)
-- **Luis Romo sufrió lesión y es duda para el Clásico ante América**: [Link](https://www.espn.com.pe/futbol/mexico/nota/_/id/16281465/chivas-luis-romo-lesion-clasico-nacional-liga-mx-guadalajara-america)
-- **Chivas vs. America live stream, odds: How to watch Liga MX, TV channel, start time**: [Link](https://www.cbssports.com/soccer/news/chivas-vs-america-preview-liga-mx-live-stream-odds-where-to-watch/)
-
-
-### nacional - racing (N/A, 14/02/2026 21:47 Lima)
-
-- **Cuándo juegan Nacional vs. Racing por el Torneo Apertura: equipo, fecha, hora y TV en vivo**: [Link](https://www.espn.com.pe/futbol/uruguay/nota/_/id/16299528/nacional-vs-racing-torneo-apertura-fecha-2-equipo-fecha-hora-tv-en-vivo)
-
-
-### monterrey - león (N/A, 14/02/2026 21:47 Lima)
-
-- **Liga MX: León se enfrentará a CF Monterrey por la fecha 6**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-leon-se-enfrentara-a-cf-monterrey-por-la-fecha-6-noticia-1675796)
-- **Qué canal pasa Monterrey vs León hoy: dónde ver GRATIS y EN VIVO el partido de la Liga MX**: [Link](https://www.365scores.com/es/news/monterrey-vs-leon-donde-ver-gratis-canal/)
-- **¡Diber Cambindo arma jugada maestra y por centímetros no marca un golazo!**: [Link](https://www.tudn.com/futbol/liga-mx/se-buscan-las-caderas-de-arteaga-y-oliver-jugadon-de-cambindo-pero-su-tiro-se-fue-por-un-lado-video)
-
-
-### alianza atlético vs. cusco (N/A, 14/02/2026 21:47 Lima)
-
-- **Tabla de posiciones de Liga 1 2026 EN VIVO: partidos y resultados de la fecha 3 del Torneo Apertura**: [Link](https://depor.com/futbol-peruano/descentralizado/tabla-de-posiciones-de-la-liga-1-peru-2026-en-vivo-hoy-partidos-programacion-y-resultados-fecha-3-torneo-apertura-universitario-vs-cienciano-alianza-lima-vs-alianza-atletico-sporting-cristal-vs-juan-pablo-ii-noticia/)
-- **Tabla de posiciones de la Liga 1 2026: partidos de la fecha 3 del Torneo Apertura**: [Link](https://libero.pe/futbol-peruano/liga-1/2026/02/13/tabla-de-posiciones-torneo-apertura-en-fecha-3-de-liga-1-peru-249456)
-- **Programación fecha 03 del Torneo Apertura Liga1 Te Apuesto**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/programacion-fecha-03-torneo-apertura-liga1-te-apuesto-n452693)
-
-
-### simona brambilla (N/A, 14/02/2026 21:47 Lima)
-
-- **Il Papa nomina suor Simona Brambilla membro del Dicastero per i Vescovi**: [Link](https://www.vaticannews.va/it/papa/news/2026-02/papa-leone-xiv-suor-brambilla-dicastero-vescovi.html)
-- **Il cardinale Cantoni confermato da papa Leone membro del Dicastero per i Vescovi**: [Link](https://www.espansionetv.it/2026/02/14/il-cardinale-cantoni-confermato-da-papa-leone-membro-del-dicastero-per-i-vescovi/)
-- **Il Papa nomina la 'prefetta' Brambilla al dicastero dei Vescovi**: [Link](https://www.ansa.it/vaticano/notizie/2026/02/14/il-papa-nomina-la-prefetta-brambilla-al-dicastero-dei-vescovi_e045830f-20d3-441b-9167-d9d92a1e9e04.html)
-
-
-### alianza atlético - alianza lima (N/A, 14/02/2026 21:47 Lima)
-
-- **Alianza Lima vs. Alianza Atlético EN VIVO: minuto a minuto por internet gratis vía Liga 1 MAX**: [Link](https://depor.com/futbol-peruano/descentralizado/ver-alianza-lima-vs-alianza-atletico-en-vivo-minuto-a-minuto-gratis-liga-1-max-movistar-tv-futbol-liber-tv-directv-zapping-y-canales-de-transmision-torneo-apertura-2026-lbp-noticia/)
-- **Alianza Lima vs. Alianza Atlético: la novedosa alineación de Guede para ganar en Trujillo**: [Link](https://libero.pe/futbol-peruano/alianza-lima/2026/02/13/alineaciones-alianza-lima-vs-alianza-atletico-formacion-de-partido-de-liga-1-peru-apertura-1250366)
-- **Sin Girotti, el ‘castigado’ en el quinto once distinto de Alianza: la pizarra de Guede para un triunfo urgente ante Sullana**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/alianza-lima-sin-federico-girotti-el-castigado-en-el-quinto-once-distinto-de-alianza-la-pizarra-de-pablo-guede-para-un-triunfo-urgente-ante-sullana-liga-1-tlcnota-noticia/)
 
 
