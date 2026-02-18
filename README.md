@@ -1,3 +1,73 @@
+### serie a (N/A, 18/02/2026 15:48 Lima)
+
+- **Maignan la passa a Nico Paz e subisce gol! L'incredibile errore in Milan-Como**: [Link](https://www.corrieredellosport.it/foto/calcio/serie-a/milan/2026/02/18-146702070/maignan_la_passa_a_nico_paz_e_subisce_gol_l_incredibile_errore_in_milan-como)
+- **L'interista Biasin mette pressione: "Le ambizioni scudetto del Milan passano dalla partita col Como"**: [Link](https://tribuna.com/it/news/2026-02-18-linterista-biasin-mette-pressione-le-ambizioni-scudetto-del-milan-passano-dalla-partita-c/)
+- **Tare: “Leao? Il problema fisico esiste ma sta molto meglio. Su Bastoni-Kalulu dico…”**: [Link](https://www.sosfanta.com/news/tare-leao-il-problema-fisico-esiste-ma-sta-molto-meglio-su-bastoni-kalulu-dico/)
+
+
+### wigan - luton (N/A, 18/02/2026 15:48 Lima)
+
+- **Luton Town – A Chance For Partial Redemption**: [Link](https://vitalfootball.co.uk/luton-town-a-chance-for-redemption/)
+- **Hatters Hope for Change as They Face Wigan Despite Tough Away Run**: [Link](https://news.ssbcrack.com/hatters-hope-for-change-as-they-face-wigan-despite-tough-away-run/)
+- **Live EFL on Sky Sports + HD: full details and when it's on**: [Link](https://www.tvguide.co.uk/schedule/b02156b2-be59-5d49-a8ea-31627bb80572/live-efl)
+
+
+### leverkusen (N/A, 18/02/2026 15:48 Lima)
+
+- **Leverkusen zurück im Hexenkessel: "Es kann nur ein Vorteil sein"**: [Link](https://www.kicker.de/leverkusen-zurueck-im-hexenkessel-es-kann-nur-ein-vorteil-sein-1194533/artikel)
+- **Rapport und Rekordprämie: Wie Marinakis Bayer-Gegner Piräus motiviert**: [Link](https://www.kicker.ch/rapport-und-rekordpraemie-wie-marinakis-bayer-gegner-piraeus-motiviert-1194361/artikel)
+- **Hjulmand: "Bereit für ein Top-Spiel"**: [Link](https://www.bundesliga.com/de/bundesliga/videos/watch/hjulmand-bereit-fur-ein-top-spiel-GLxrZOqh)
+
+
+### leverkusen vs (N/A, 18/02/2026 15:48 Lima)
+
+- **Leverkusen zurück im Hexenkessel: "Es kann nur ein Vorteil sein"**: [Link](https://www.kicker.de/leverkusen-zurueck-im-hexenkessel-es-kann-nur-ein-vorteil-sein-1194533/artikel)
+- **Rapport und Rekordprämie: Wie Marinakis Bayer-Gegner Piräus motiviert**: [Link](https://www.kicker.ch/rapport-und-rekordpraemie-wie-marinakis-bayer-gegner-piraeus-motiviert-1194361/artikel)
+- **Hjulmand: "Bereit für ein Top-Spiel"**: [Link](https://www.bundesliga.com/de/bundesliga/videos/watch/hjulmand-bereit-fur-ein-top-spiel-GLxrZOqh)
+
+
+### inter de milan (N/A, 18/02/2026 15:48 Lima)
+
+- **¡EN VIVO! Inter tiene un duro desafío en Noruega ante Bodo/Glimt por playoffs de la Champions League**: [Link](https://www.espn.com.pe/futbol/champions-league/nota/_/id/16310873/bodo-glimt-vs-inter-ida-playoffs-champions-equipo-fecha-hora-y-tv-en-vivo)
+- **Champions League: Inter visita a FK Bodo/Glimt por la llave 7**: [Link](https://rpp.pe/futbol/ligas-internacionales/champions-league-inter-visita-a-fk-bodo-glimt-por-la-llave-7-noticia-1676222)
+- **Pronóstico Bodo/Glimt vs. Inter - Un claro favorito en esta llave de Champions**: [Link](https://gainblers.com/pe/pronosticos/futbol/europa/champions-league/pronostico-bodoglimt-inter-18-02-2026/)
+
+
+### villareal (N/A, 18/02/2026 15:48 Lima)
+
+- **Esta es la historia patria entre el Levante y el Villareal**: [Link](https://www.hsbnoticias.com/esta-es-la-historia-patria-entre-el-levante-y-el-villareal/)
+- **¿Por dónde ver al Villarreal en el futbol español?**: [Link](https://www.hsbnoticias.com/por-donde-ver-al-villarreal-en-el-futbol-espanol/)
+- **Levante - Villarreal, última hora en directo: LaLiga EA Sports hoy, en vivo**: [Link](https://as.com/futbol/primera/levante-villarreal-ultima-hora-en-directo-laliga-ea-sports-hoy-en-vivo-f202602-d/)
+
+
+### milan vs (N/A, 18/02/2026 15:48 Lima)
+
+- **Sky: Loftus-Cheek to miss Como game with physical problem – who will replace him**: [Link](https://sempremilan.com/loftus-cheek-miss-como-who-replace)
+- **Allegri weighs in on diving debate and asks for offside rule change**: [Link](https://football-italia.net/allegri-weighs-in-on-diving-debate/)
+- **Why isn’t Christian Pulisic playing for Milan in the crucial Serie A rescheduled match against Como?**: [Link](https://worldsoccertalk.com/news/why-isnt-christian-pulisic-playing-for-milan-in-the-crucial-serie-a-rescheduled-match-against-como/)
+
+
+### milan (N/A, 18/02/2026 15:48 Lima)
+
+- **Mikaela Shiffrin fails to medal in giant slalom; Erin Jackson also misses speedskating podium**: [Link](https://www.nbcnews.com/sports/olympics/live-blog/2026-winter-olympics-live-updates-mikaela-shiffrin-erin-jackson-rcna256607)
+- **Short Track Speed Skating - Milano Cortina 2026 Winter Olympics: Day 12**: [Link](https://www.reutersconnect.com/item/short-track-speed-skating-milano-cortina-2026-winter-olympics-day-12/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX01UMU5VUlBITzAwMFJNRzdJQw)
+- **Olympic photo highlights from Day 12 of the Milan Cortina Winter Games**: [Link](https://www.fultonneighbor.com/sports/olympics/olympic-photo-highlights-from-day-12-of-the-milan-cortina-winter-games/article_558cefc7-6229-51ae-a19c-8977bcdfc63b.html)
+
+
+### nick woltemade (N/A, 18/02/2026 15:48 Lima)
+
+- **Champions League » Qarabağ FK gegen Newcastle United » Liveticker**: [Link](https://www.weltfussball.com/fussball/uefa-champions-league/ma11584394/qarabag-fk_newcastle-united/liveticker/)
+- **🔥 Was ist die Steigerung von Hattrick? CL-Star liefert gerade die Antwort**: [Link](https://onefootball.com/de/news/was-ist-die-steigerung-von-hattrick-cl-star-liefert-gerade-die-antwort-42430783)
+- **Champions League: Torfestival in der Champions League - Woltemade-Partner historisch**: [Link](https://www.sport1.de/news/fussball/champions-league/2026/02/champions-league-torfestival-in-der-champions-league-woltemade-partner-historisch)
+
+
+### club brujas - atlético madrid (N/A, 18/02/2026 15:48 Lima)
+
+- **Brujas - Atlético, en directo: ida de dieciseisavos de la Champions League hoy, en vivo**: [Link](https://as.com/futbol/champions/brujas-atletico-en-directo-previa-y-ultima-hora-de-la-champions-league-hoy-en-vivo-f202602-d/)
+- **Julián Álvarez marcó de penal para Atlético Madrid vs. Brujas por Champions League**: [Link](https://www.espn.com.ar/futbol/champions-league/nota/_/id/16329588/video-gol-de-julian-alvarez-de-penal-brujas-vs-atletico-de-madrid)
+- **Champions League: Por la llave 6 se enfrentarán Club Brugge y Atlético de Madrid**: [Link](https://rpp.pe/futbol/ligas-internacionales/champions-league-por-la-llave-6-se-enfrentaran-club-brugge-y-atletico-de-madrid-noticia-1676220)
+
+
 ### qarabağ - newcastle (N/A, 18/02/2026 12:10 Lima)
 
 - **Preview: Qarabag FK vs. Newcastle United - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/qarabag-fk/champions-league/preview/qarabag-vs-newcastle-prediction-team-news-lineups_592138.html)
@@ -952,75 +1022,5 @@ Sin noticias relacionadas disponibles.
 - **💛 Las mejores 300 frases bonitas del 14 de febrero para enviar en San Valentín y el Día del Amor y la Amistad**: [Link](https://gestion.pe/mix/respuestas/300-frases-creativas-del-14-de-febrero-para-celebrar-san-valentin-2026-con-mensajes-bonitos-sobre-el-amor-y-la-amistad-whatsapp-canva-pinterest-nnda-nnrt-noticia/)
 - **❤️‍🔥 Más de 20 tarjetas del Día del Amor y la Amistad 2026 para enviar a tu novia este 14 de febrero**: [Link](https://elcomercio.pe/mag/respuestas/20-tarjetas-creativas-por-el-dia-del-amor-y-la-amistad-2026-para-compartir-el-14-de-febrero-con-mensajes-romanticos-y-saludos-bonitos-whatsapp-pinterest-nnda-nnrt-noticia/)
 - **¡Toma nota! Los mensajes de San Valentín que harán que tu pareja se enamore de ti otra vez**: [Link](https://www.besame.fm/2026/toma-nota-los-mensajes-de-san-valentin-que-haran-que-tu-pareja-se-enamore-de-ti-otra-vez-236860.html)
-
-
-### alianza (N/A, 15/02/2026 03:39 Lima)
-
-- **Pablo Guede y otro resultado que le suma cuestionamientos en Alianza Lima**: [Link](https://espndeportes.espn.com/futbol/peru/nota/_/id/16316426/pablo-guede-y-otro-resultado-que-le-suma-cuestionamientos-en-alianza-lima)
-- **Franco Navarro y la prioridad de Alianza Lima: "Nos lo pusieron clarito desde que empezó el año: ser campeones en el 2026"**: [Link](https://rpp.pe/futbol/descentralizado/franco-navarro-y-la-prioridad-de-alianza-lima-nos-lo-pusieron-clarito-desde-que-empezo-el-ano-ser-campeones-en-el-2026-noticia-1675732)
-- **Encuesta Bolavip: los hinchas de Alianza Lima sentencian el futuro de Pablo Guede**: [Link](https://bolavip.com/pe/alianza-lima/encuesta-bolavip-los-hinchas-de-alianza-lima-sentencian-el-futuro-de-pablo-guede)
-
-
-### aniversario de alianza lima (N/A, 15/02/2026 00:21 Lima)
-
-- **Alianza Lima: Treinta años sin ídolos**: [Link](https://peru21.pe/opinion/alianza-lima-treinta-anos-sin-idolos/)
-- **Fernando Cabada, administrador de Alianza: “Nuestro objetivo esencial este año es la Liga 1; tenemos en la sangre la obligación de campeonar en nuestro 125 aniversario”**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/fernando-cabada-administrador-de-alianza-lima-nuestro-objetivo-esencial-este-ano-es-la-liga-1-tenemos-en-la-sangre-la-obligacion-de-campeonar-en-nuestro-125-aniversario-tlcnota-noticia/)
-- **Alianza Lima celebró sus 125 años en medio de eliminació copera**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/alianza-lima-celebro-sus-125-anos-medio-eliminacio-copera-n452696)
-
-
-### laura pausini (N/A, 15/02/2026 00:21 Lima)
-
-- **"Il Festival è una storia importante per il Paese”**: [Link](https://www.ecodisavona.it/il-festival-e-una-storia-importante-per-il-paese/)
-- **Sanremo celebra gli 80 anni della Repubblica, sul palco una donna che votò il 2 giugno 1946**: [Link](https://www.famigliacristiana.it/cultura-e-spettacoli/musica/sanremo-2026-quirinale-mattarella-carlo-conti-80-anni-repubblica-avn19k7l)
-- **Sconocchia commenta le parole di Mattarella: «Orgogliosi che la musica popolare contemporanea sia stata riconosciuta come ricchezza culturale del Paese»**: [Link](https://www.lopinionista.it/sconocchia-commenta-le-parole-di-mattarella-orgogliosi-che-la-musica-popolare-contemporanea-sia-stata-riconosciuta-come-ricchezza-culturale-del-nostro-paese-221895.html)
-
-
-### cal (N/A, 15/02/2026 00:21 Lima)
-
-- **Cal Poly defeats UCSB 89-79**: [Link](https://www.cbssports.com/college-basketball/news/cal-poly-defeats-ucsb-89-79/)
-- **Mustangs Overwhelm UC Santa Barbara in 89-79 Victory**: [Link](https://gopoly.com/news/2026/2/14/mens-basketball-mustangs-overwhelm-uc-santa-barbara-in-89-79-victory)
-- **UCSB vs Cal Poly Women’s College Basketball Odds and Prediction – Feb. 14**: [Link](https://www.bleachernation.com/picks/2026/02/13/ucsb-vs-cal-poly-womens-college-basketball-odds-and-prediction-feb-14/)
-
-
-### pasto - internacional de bogotá (N/A, 15/02/2026 00:21 Lima)
-
-- **Deportivo Pasto vs Internacional de Bogotá hoy: Resultado EN VIVO, minuto a minuto y goles del partido**: [Link](https://www.365scores.com/es/news/pasto-vs-inter-bogota-resultado-vivo/)
-- **¡Aplausos! Deportivo Pasto e Internacional de Bogotá demuestran por qué lideran la liga**: [Link](https://www.clarosports.com/colombia/liga-bet-play/deportivo-pasto-vs-internacional-de-bogota-en-vivo-la-liga-betplay-dimayor-2026-i-resultado-y-goles-de-la-jornada-7/)
-- **Cómo quedó la tabla de posiciones de Liga BetPlay I-2026, tras Pasto 1-1 Internacional de Bogotá**: [Link](https://www.noticiascaracol.com/golcaracol/futbol-colombiano/como-quedo-la-tabla-de-posiciones-de-liga-betplay-i-2026-tras-pasto-1-1-internacional-de-bogota-so35)
-
-
-### resultado de alianza lima (N/A, 15/02/2026 00:21 Lima)
-
-- **Pablo Guede y otro resultado que le suma cuestionamientos en Alianza Lima**: [Link](https://espndeportes.espn.com/futbol/peru/nota/_/id/16316426/pablo-guede-y-otro-resultado-que-le-suma-cuestionamientos-en-alianza-lima)
-- **¿Pablo Guede seguirá en Alianza Lima? Franco Navarro Jr. aclaró el panorama tras la eliminación**: [Link](https://depor.com/futbol-peruano/descentralizado/alianza-lima-pablo-guede-se-va-o-no-franco-navarro-jr-hablo-sobre-su-continuidad-y-la-del-dt-argentino-tras-eliminacion-liga-1-2026-video-noticia/)
-- **Encuesta Bolavip: los hinchas de Alianza Lima sentencian el futuro de Pablo Guede**: [Link](https://bolavip.com/pe/alianza-lima/encuesta-bolavip-los-hinchas-de-alianza-lima-sentencian-el-futuro-de-pablo-guede)
-
-
-### guadalajara - américa (N/A, 15/02/2026 00:21 Lima)
-
-- **🟢 Telemundo Deportes Ahora EN VIVO GRATIS |mira el clásico Chivas de Guadalajara vs. América EN DIRECTO**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/telemundo-deportes-ahora-en-vivo-gratis-como-ver-partido-chivas-de-guadalajara-vs-club-america-por-peacock-tv-y-futbol-online-en-eeuu-nnda-nnrt-noticia/)
-- **Raphael Veiga hoy: Por qué no juega el Clásico Nacional entre Chivas vs América**: [Link](https://www.365scores.com/es/news/raphael-veiga-no-juega-clasico-nacional/)
-- **¿En qué canales de TV pasan Chivas vs. América, por el Clásico Nacional?**: [Link](https://depor.com/mexico/liga-mx/chivas-vs-america-en-vivo-canales-de-tv-fecha-horarios-y-como-ver-clasico-nacional-via-prime-video-telemundo-futbol-libre-tv-liga-mx-noticia/)
-
-
-### tabla de posiciones liga 1 (N/A, 15/02/2026 00:21 Lima)
-
-- **Tabla de posiciones de Liga 1 2026 EN VIVO: partidos y resultados de la fecha 3 del Torneo Apertura**: [Link](https://depor.com/futbol-peruano/descentralizado/tabla-de-posiciones-de-la-liga-1-peru-2026-en-vivo-hoy-partidos-programacion-y-resultados-fecha-3-torneo-apertura-universitario-vs-cienciano-alianza-lima-vs-alianza-atletico-sporting-cristal-vs-juan-pablo-ii-noticia/)
-- **Tabla de posiciones de la Liga 1 2026: partidos y resultados de la fecha 3 del Torneo Apertura**: [Link](https://libero.pe/futbol-peruano/liga-1/2026/02/13/tabla-de-posiciones-torneo-apertura-en-fecha-3-de-liga-1-peru-249456)
-- **Programación fecha 03 del Torneo Apertura Liga1 Te Apuesto**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/programacion-fecha-03-torneo-apertura-liga1-te-apuesto-n452693)
-
-
-### belgrano vs (N/A, 15/02/2026 00:21 Lima)
-
-- **¿Dónde ver EN VIVO y ONLINE Independiente Rivadavia vs. Belgrano por el Torneo Apertura 2026?**: [Link](https://onefootball.com/de/news/donde-ver-en-vivo-y-online-independiente-rivadavia-vs-belgrano-por-el-torneo-apertura-2026-42412165)
-- **El uno por uno de la derrota de la Lepra**: [Link](https://www.elsol.com.ar/deportes/el-uno-por-uno-de-la-derrota-de-la-lepra/)
-- **Con gol del Mudo Vázquez, Belgrano le gana a Independiente en Mendoza**: [Link](https://www.cadena3.com/noticia/belgrano/con-gol-del-mudo-vazquez-belgrano-le-gana-a-independiente-en-mendoza_519509)
-
-
-### alianza lima versus (N/A, 15/02/2026 00:21 Lima)
-
-- **Abren investigación a Gonzalo Núñez por supuesto delito de discriminación en agravio de jugador de fútbol**: [Link](https://lpderecho.pe/abren-investigacion-gonzalo-nunez-por-supuesto-delito-discriminacion-agravio-jugador-futbol/)
-- **Alianza Lima condena racismo de Gonzalo Núñez a Eryc Castillo y exige disculpas**: [Link](https://peru21.pe/deportes/alianza-lima-condena-racismo-de-gonzalo-nunez-eryc-castillo-y-exige-disculpas/)
-- **Alianza Lima condena declaraciones racistas contra Eryc Castillo**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/alianza-lima-condena-declaraciones-racistas-contra-eryc-castillo-noticia/)
 
 
