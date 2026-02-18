@@ -1,3 +1,71 @@
+### cristal fc (N/A, 17/02/2026 21:42 Lima)
+
+- **Christantus Uche’s Crystal Palace loan is petering out. It has not worked for anyone**: [Link](https://www.nytimes.com/athletic/7050783/2026/02/17/christantus-uche-crystal-palace-loan/)
+- **Uche axed from Crystal Palace Europa Conference League squad**: [Link](https://dailypost.ng/2026/02/17/uche-axed-from-crystal-palace-europa-conference-league-squad/)
+- **Palace axe Uche from Conference League squad**: [Link](https://punchng.com/palace-axe-uche-from-conference-league-squad/)
+
+
+### river (N/A, 17/02/2026 21:42 Lima)
+
+- **The Colorado River might get a short-term fix. Is that good enough?**: [Link](https://www.kjzz.org/politics/2026-02-09/the-colorado-river-might-get-a-short-term-fix-is-that-good-enough)
+- **The coming failure of Glen Canyon Dam - High Country News**: [Link](https://www.hcn.org/articles/the-coming-failure-of-glen-canyon-dam/)
+- **‘Just difficult choices’: Interior grabs the reins on the Colorado River**: [Link](https://subscriber.politicopro.com/article/eenews/2026/02/17/just-difficult-choices-interior-grabs-the-reins-on-the-colorado-river-00784247)
+
+
+### leo rosas (N/A, 17/02/2026 21:42 Lima)
+
+- **Fallece conocido exchico reality a los 27 años tras luchar contra la depresión y su madre reacciona: "No puedo creer esto"**: [Link](https://wapa.pe/espectaculos-y-tv/farandula/2026/02/17/leo-rosas-fallece-conocido-exchico-reality-27-anos-luchar-depresion-voz-mexico-555339)
+
+
+### cristal vs universitario (N/A, 17/02/2026 21:42 Lima)
+
+- **¡Duelo de titanes! Sporting Cristal vs Universitario lidera la programación de la Fecha 4 de la Liga 1**: [Link](https://www.atv.pe/noticia/duelo-de-titanes-sporting-cristal-vs-universitario-lidera-la-programacion-de-la-fecha-4-de-la-liga-1/)
+- **Universitario suma tres refuerzos de lujo para enfrentar a Sporting Cristal por el Apertura**: [Link](https://libero.pe/futbol-peruano/universitario/2026/02/17/universitario-suma-tres-refuerzos-de-lujo-enfrentar-sporting-cristal-apertura-652392)
+- **Así se jugará la fecha 4 del Apertura de la Liga 1 2026**: [Link](https://espndeportes.espn.com/futbol/peru/nota/_/id/16324427/programacion-de-la-fecha-4-del-apertura-liga-1-de-peru)
+
+
+### yo (N/A, 17/02/2026 21:42 Lima)
+
+- **La Revuelta - Paula Usero y Clara Galle (17/02/2026) | Ver programa**: [Link](https://www.rtve.es/play/videos/la-revuelta/programa-17-02-2026-paula-usero-clara-galle/16942489/)
+- **El truco infalible de Clara Galle para afrontar la menstruación sin problemas: “Me compro una galleta en la panadería de debajo de mi casa y la congelo”**: [Link](https://www.lavanguardia.com/television/20260218/11469184/truco-infalible-clara-galle-afrontar-menstruacion-problemas-me-compro-galleta-panaderia-debajo-mi-casa-congelo-gvm2.html)
+- **El divertido momento de Clara Galle en 'La Revuelta' con Grison: "¿Tú no te lo comes con pelos?"**: [Link](https://www.20minutos.es/television/divertido-momento-clara-galle-revuelta-con-grison-tu-no-te-comes-con-pelos_6935487_0.html)
+
+
+### youtube no funciona (N/A, 17/02/2026 21:42 Lima)
+
+- **¿YouTube te va mal? Esta vez sí es tu culpa: así se soluciona**: [Link](https://hipertextual.com/tecnologia/youtube-te-va-mal-esta-vez-si-es-tu-culpa-asi-se-soluciona/)
+- **YouTube añade otra barrera para impedir el uso de bloqueadores de anuncios y no hay forma de sortearla por ahora**: [Link](https://andro4all.com/google/youtube-anade-otra-barrera-para-impedir-el-uso-de-bloqueadores-de-anuncios-y-no-hay-forma-de-sortearla-por-ahora)
+- **Por qué YouTube bloquea los comentarios de algunos videos y a quiénes afecta**: [Link](https://la100.cienradios.com/tecnologia/por-que-youtube-bloquea-los-comentarios-de-algunos-videos-y-a-quienes-afecta/)
+
+
+### hola (N/A, 17/02/2026 21:42 Lima)
+
+- **Nadia Ferreira presume su baby bump previo a su gran noche en Premio Lo Nuestro**: [Link](https://www.hola.com/us-es/celebrities/20260217884526/nadia-ferreira-baby-bump-ensayos-premio-lo-nuestro/)
+- **Nadia Ferreira presume de su pancita de embarazada**: [Link](https://meridiano.net/farandula/nadia-ferreira-presume-de-su-pancita-de-embarazada-202621716310)
+- **¿Nadia Ferreira espera mellizos? El detalle que desató la teoría**: [Link](https://www.lanacion.com.py/lnpop/2026/02/13/nadia-ferreira-espera-mellizos-el-detalle-que-desato-la-teoria/)
+
+
+### eclipse solar (N/A, 17/02/2026 21:42 Lima)
+
+- **Un eclipse parcial de sol se podrá ver el martes en algunas zonas de Suramérica**: [Link](https://gestion.pe/mundo/internacional/un-eclipse-parcial-de-sol-se-podra-ver-el-martes-en-algunas-zonas-de-suramerica-noticia/)
+- **Eclipse solar del 17 de febrero de 2026: horarios y dónde será visible**: [Link](https://andina.pe/agencia/noticia-eclipse-solar-del-17-febrero-2026-horarios-y-donde-sera-visible-1063392.aspx)
+- **¿Tiene algún significado que coincidan la Luna Nueva y el eclipse solar del 17 de febrero? | TDPE | RESPUESTAS**: [Link](https://elcomercio.pe/respuestas/que/tiene-algun-significado-que-coincidan-la-luna-nueva-y-el-eclipse-solar-del-17-de-febrero-tdpe-noticia/)
+
+
+### caida de youtube (N/A, 17/02/2026 21:42 Lima)
+
+- **#Viral | ¿Lo notaste? Reportan la caída de #Youtube🚨⚠️⁣ ⁣ Se ha registrado la caída de la plataforma #Youtube por lo que miles de usuarios han resultado afectados.⁣ ⁣ #AztecaYucatán | #AztecaDigital**: [Link](https://www.instagram.com/p/DU4Wqt9mogz/)
+- **YouTube registra una caída masiva que afecta a millones de usuarios en todo el mundo**: [Link](https://andina.pe/agencia/noticia-youtube-registra-una-caida-masiva-afecta-a-millones-usuarios-todo-mundo-1063496.aspx)
+- **Miles de usuarios afirman que el sitio está inactivo porque la página de inicio devuelve un mensaje de error**: [Link](https://bitacora.com.uy/miles-de-usuarios-afirman-que-el-sitio-esta-inactivo-porque-la-pagina-de-inicio-devuelve-un-mensaje-de-error/)
+
+
+### youtube down (N/A, 17/02/2026 21:42 Lima)
+
+- **YouTube down for more than 240,000 users in the US, Downdetector shows**: [Link](https://www.reuters.com/technology/youtube-down-more-than-240000-users-us-downdetector-shows-2026-02-18/)
+- **YouTube down — live updates on major outage affecting both the app and the website**: [Link](https://www.tomsguide.com/news/live/youtube-outage-february-2026)
+- **Is YouTube down? Thousands of users experience issues with platform**: [Link](https://www.king5.com/article/news/nation-world/youtube-outage-thousands-report-issues/507-b71b54d0-204f-4b33-b9a1-d68ca96100b5)
+
+
 ### ousmane dembélé (N/A, 17/02/2026 15:44 Lima)
 
 - **Marquinhos and Vitinha stand by Dembele after his controversial outburst - reports**: [Link](https://tribuna.com/en/news/2026-02-17-marquinhos-and-vitinha-stand-by-dembele-after-his-controversial-outburst-reports/)
@@ -953,75 +1021,5 @@ Sin noticias relacionadas disponibles.
 - **Lazio-Atalanta, i biancocelesti si preparano ad affrontare la Dea: le probabili formazioni**: [Link](https://onefootball.com/en/news/lazio-atalanta-i-biancocelesti-si-preparano-ad-affrontare-la-dea-le-probabili-formazioni-42409499)
 - **Fantacalcio, le formazioni ufficiali di Lazio-Atalanta: Tavares e Scamacca…**: [Link](https://www.fcinter1908.it/serie-a/fantacalcio-formazioni-ufficiali-lazio-atalanta-tavares-scamacca/)
 - **Chance per Dele-Bashiru, Krstovic ancora dal 1’: le probabili di Lazio-Atalanta**: [Link](https://www.direttafanta.com/chance-per-dele-bashiru-krstovic-ancora-dal-1-le-probabili-di-lazio-atalanta/)
-
-
-### southampton - leicester city (N/A, 14/02/2026 11:37 Lima)
-
-- **Every word Eckert said on defender availability, new contracts and Leicester**: [Link](https://www.dailyecho.co.uk/sport/25851964.every-word-southamptons-eckert-said-ahead-leicester-city-fa-cup/)
-- **Football Daily | Wounded Foxes and an unhelpful FA Cup trip to their Saintly tormentors**: [Link](https://www.theguardian.com/football/2026/feb/13/leicester-southampton-football-daily-newsletter)
-- **Only one Saints player named in EFL Team of the Week after dramatic win at Leicester**: [Link](https://uk.sports.yahoo.com/news/only-one-saints-player-named-171100426.html)
-
-
-### fiorentina (N/A, 14/02/2026 11:37 Lima)
-
-- **La Fiorentina fa il colpo grosso: Como battuto in casa 2-1**: [Link](https://www.repubblica.it/sport/calcio/2026/02/14/news/como_fiorentina_gol-425159293/)
-- **Serie A, le formazioni di sabato 14 febbraio**: [Link](https://www.diretta.it/news/calcio-serie-a-serie-a-le-formazioni-ufficiali-di-lazio-atalanta-sarri-con-maldini-palladino-con-zalewski/jsqXJeMG/)
-- **Serie A, Como-Fiorentina 1-2. Alle 18 Lazio-Atalanta, poi Inter-Juve**: [Link](https://tg24.sky.it/sport/2026/02/14/serie-a-partite-oggi-risultati-gol-highlights-video)
-
-
-### hoffenheim (N/A, 14/02/2026 11:37 Lima)
-
-- **Blitzstart in die zweite Halbzeit: TSG Hoffenheim besiegt den SC Freiburg**: [Link](https://www.swr.de/sport/fussball/tsg-hoffenheim-sc-freiburg-bundesliga-spielbericht-100.html)
-- **Liveticker | TSG Hoffenheim - SC Freiburg 0:0 | 22. Spieltag | Bundesliga 2025/26**: [Link](https://www.kicker.de/hoffenheim-gegen-freiburg-2026-bundesliga-5050946/ticker)
-- **Freiburg ohne schuster und manzambi: voßler vertritt am seitenrand**: [Link](https://tsv-pelkum.de/tiere/freiburg-ohne-schuster-und-manzambi-vosler-vertritt-am-seitenrand)
-
-
-### hamburg - fc union berlin (N/A, 14/02/2026 11:37 Lima)
-
-- **Bundesliga: Union-Coach vor Rückkehr – Darum ist Baumgart überrascht vom neuen HSV**: [Link](https://sportbild.bild.de/fussball/hamburger-sv/bundesliga-union-coach-vor-rueckkehr-darum-ist-baumgart-ueberrascht-vom-neuen-hsv-698d97a30abe5c8b74eccb09)
-- **Liveticker | Hamburger SV - 1. FC Union Berlin : | 22. Spieltag | Bundesliga 2025/26**: [Link](https://www.kicker.de/hsv-gegen-union-2026-bundesliga-5050947/ticker)
-- **HSV gegen Union Berlin: Kostenlose Livestreams mit VPN nutzen**: [Link](https://www.it-boltwise.de/hsv-gegen-union-berlin-kostenlose-livestreams-mit-vpn-nutzen.html)
-
-
-### hoffenheim vs (N/A, 14/02/2026 11:37 Lima)
-
-- **Will SC’s strong run in Sinsheim continue?**: [Link](https://www.scfreiburg.com/en/latest/news/first-team/2025/26/will-scs-strong-run-in-sinsheim-continue/)
-- **Hoffenheim beat Freiburg in clash of overachievers**: [Link](https://onefootball.com/fr/news/hoffenheim-beat-freiburg-in-clash-of-overachievers-42410089)
-- **Cup specialists Freiburg look to stop Hoffenheim's run**: [Link](https://www.tsg-hoffenheim.de/en/news/overview/2026/02/cup-specialists-freiburg-look-to-stop-hoffenheims-winning-streak)
-
-
-### leverkusen vs. st. pauli (N/A, 14/02/2026 11:37 Lima)
-
-- **Adam Dzwigala vs. Bayer Leverkusen – Player props & odds to score a goal on February 14**: [Link](https://prosoccerwire.usatoday.com/story/sports/2026/02/13/adam-dzwigala-soccer-player-props-2-14-2026/88669746007/)
-- **Preview: Bayer Leverkusen vs St Pauli - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/bayer-leverkusen/preview/b-leverkusen-vs-st-pauli-prediction-team-news-lineups_591954.html)
-- **Leverkusen cannot always play 'champagne football', says Hjulmand**: [Link](https://www.beinsports.com/en-us/soccer/bundesliga/articles/leverkusen-cannot-always-play-champagne-football-says-hjulmand-2026-02-13)
-
-
-### getafe - villarreal (N/A, 14/02/2026 11:37 Lima)
-
-- **Getafe - Villarreal, en directo: LaLiga EA Sports, en vivo hoy**: [Link](https://as.com/futbol/primera/getafe-villarreal-en-directo-laliga-ea-sports-en-vivo-hoy-f202602-d/)
-- **Apuestas y Pronóstico del Getafe vs Villarreal 14/02/26**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2026/febrero/pronostico-getafe-vs-villarreal-14-02-26)
-- **EN VIVO: Comenzó el partido entre Getafe y Villarreal: 0-0 en el inicio**: [Link](https://www.t13.cl/noticia/deportes13/en-vivo-comenzo-el-partido-entre-getafe-y-villarreal-0-0-en-el-inicio-14-02-2026)
-
-
-### manchester city - salford (N/A, 14/02/2026 11:37 Lima)
-
-- **Manchester City v Salford, Burnley v Mansfield and more: FA Cup and EFL – live**: [Link](https://www.theguardian.com/football/live/2026/feb/14/manchester-city-v-salford-burnley-v-mansfield-fa-cup-and-efl-football-live)
-- **Salford Boss Vows Grit in David vs Goliath Rematch**: [Link](https://streamlinefeed.co.ke/news/salford-boss-vows-grit-in-david-vs-goliath-rematch)
-- **'We are tired of seeing each other': Pep Guardiola already looking to short break after Salford game**: [Link](https://tribuna.com/en/news/2026-02-14-we-are-tired-of-seeing-each-other-pep-guardiola-already-looking-to-short-break-after-salf/)
-
-
-### west ham (N/A, 14/02/2026 08:01 Lima)
-
-- **Tottenham confirm arrival of Igor Tudor as interim head coach: football news – live**: [Link](https://www.theguardian.com/football/live/2026/feb/14/fa-cup-news-and-buildup-efl-and-more-football-matchday-live)
-- **FA Cup LIVE: Build-up, team news, scores and live text updates from the fourth round of the FA Cup**: [Link](https://www.bbc.com/sport/football/live/c2d776j7pzrt)
-- **How to watch Burton Albion vs West Ham – TV channel, live stream, radio coverage**: [Link](https://www.mirror.co.uk/sport/football/news/burton-west-ham-channel-stream-36714222)
-
-
-### real madrid vs real sociedad (N/A, 14/02/2026 08:01 Lima)
-
-- **Real Madrid - Real Sociedad hoy, en directo: previa y última hora de LaLiga EA Sports, en vivo**: [Link](https://as.com/futbol/primera/real-madrid-real-sociedad-hoy-en-directo-previa-y-ultima-hora-de-laliga-ea-sports-en-vivo-f202602-d/)
-- **SKY Sports EN VIVO por Internet — cómo mirar partido Real Madrid vs. Real Sociedad en Fútbol TV y SKY Plus Online en México**: [Link](https://gestion.pe/mix/sports/sky-sports-en-vivo-por-internet-como-mirar-partido-real-madrid-vs-real-sociedad-en-futbol-tv-y-sky-plus-online-en-mexico-nnda-nnrt-noticia/)
-- **Pronósticos Real Madrid vs Real Sociedad: gran cuota por triunfo blanco sin goles en contra**: [Link](https://depor.com/apuestas-deportivas/real-madrid-vs-real-sociedad-pronosticos-apuestas-cuotas-15-02-2026/)
 
 
