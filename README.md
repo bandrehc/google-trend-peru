@@ -1,3 +1,31 @@
+### radio exitosa (N/A, 19/02/2026 08:19 Lima)
+
+- **Papá, ¿por qué somos del Bodo/Glimt?**: [Link](https://as.com/opinion/papa-por-que-somos-del-bodoglimt-f202602-n/)
+- **Bodø/Glimt sorprende y vence 3-1 al Inter en Noruega**: [Link](https://caretas.pe/deportes/bodo-glimt-vencio-inter-3-1-champions-playoffs/)
+- **El Bodo sigue en Hauge**: [Link](https://www.marca.com/futbol/champions-league/cronica/2026/02/18/bodo-sigue-hauge.html)
+
+
+### bn (N/A, 19/02/2026 08:19 Lima)
+
+- **Ebay buys Depop for $1.2bn in effort to lure younger shoppers**: [Link](https://www.theguardian.com/technology/2026/feb/19/ebay-buys-depop-from-etsy)
+- **Etsy sells second-hand fashion app Depop to eBay for $1.2bn**: [Link](https://www.bbc.com/news/articles/cx240kme2k8o)
+- **Etsy Sells Depop, a Secondhand Clothing App Popular With Gen Z, to eBay**: [Link](https://www.nytimes.com/2026/02/18/business/etsy-depop-ebay.html)
+
+
+### ugel puno (N/A, 19/02/2026 08:19 Lima)
+
+- **Contraloría advierte a UGEL Puno deficiencias en 58 colegios públicos cerca a inicio de año escolar 2026**: [Link](https://larepublica.pe/sociedad/2026/02/18/contraloria-advierte-a-ugel-puno-deficiencias-en-58-colegios-publicos-cerca-a-inicio-de-ano-escolar-2026-1366956)
+- **Director regional de Educación cuestiona observaciones de Contraloría por operativos en periodo vacacional**: [Link](https://prensaregional.pe/director-regional-de-educacion-cuestiona-observaciones-de-contraloria-por-operativos-en-periodo-vacacional/)
+- **Puno: coordinan acciones de emergencia para garantizar el inicio seguro del año escolar 2026**: [Link](https://radioondaazul.com/puno-coordinan-acciones-de-emergencia-para-garantizar-el-inicio-seguro-del-ano-escolar-2026/)
+
+
+### gustavo cerati (N/A, 19/02/2026 08:19 Lima)
+
+- **Yo Soy conciertos 2026: ¡Gustavo Cerati se luce con una presentación magnética!**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-conciertos-2026-gustavo-cerati-se-luce-con-una-presentacion-magnetica_20260218/)
+- **El “Cerati Inca” que sorprende en TV de Perú y parece revivir al genial Gustavo | Infocielo**: [Link](https://www.infocielo.com/tendencias/el-cerati-inca-que-sorprende-en-tv-de-peru-y-parece-revivir-al-genial-gustavo)
+- **La voz de Gustavo Cerati revive en el imitador peruano Fernando Sosa**: [Link](https://www.eluniverso.com/entretenimiento/television/la-voz-de-gustavo-cerati-revive-en-el-imitador-peruano-fernando-sosa-nota/)
+
+
 ### temblor hoy (N/A, 19/02/2026 03:53 Lima)
 
 - **IGP Historial y registro de Temblores en Lima Perú: Sismos magnitud y epicentro al cierre**: [Link](https://rpp.pe/lima/desastres-naturales/temblor-en-peru-hoy-16-de-febrero-magnitud-y-epicentro-del-sismo-segun-igp-live-3180)
@@ -994,32 +1022,5 @@ Sin noticias relacionadas disponibles.
 - **El historial entre Estudiantes y Gimnasia: quién ganó más partidos en el clásico de La Plata**: [Link](https://espndeportes.espn.com/futbol/argentina/nota/_/id/15048128/el-historial-estudiantes-vs-gimnasia-quien-gano-mas-partidos-clasico-la-plata)
 - **LA PLATA HACE LA FELICIDAD**: [Link](https://www.pressreader.com/argentina/ole/20260215/282316801493607)
 - **La fiesta de la ciudad: ¿Cómo será el operativo de seguridad y qué elemento se habilitó por el clima?**: [Link](https://www.laplata1.com/2026-02-15/la-fiesta-de-la-ciudad-como-sera-el-operativo-de-seguridad-y-que-elemento-se-habilito-por-el-clima-122170/)
-
-
-### comerciantes unidos (N/A, 15/02/2026 15:33 Lima)
-
-- **Comerciantes Unidos vs Chankas en vivo: a qué hora y dónde ver el Torneo Apertura**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/comerciantes-unidos-vs-chankas-en-vivo-hora-y-donde-ver-el-torneo-apertura-2026-de-la-liga-1-transmision-resumen-y-goles-l1play-l1max-tdpe-noticia/)
-- **🔴#ENVIVO | Sigue las incidencias del partido entre Comerciantes Unidos y Los Chankas**: [Link](https://ovacion.pe/noticias/liga1-2026/envivo-sigue-las-incidencias-del-partido-entre-comerciantes-unidos-chankas)
-- **Liga 1: Comerciantes Unidos y Los Chankas se encuentran en la fecha 3**: [Link](https://rpp.pe/futbol/descentralizado/liga-1-comerciantes-unidos-y-los-chankas-se-encuentran-en-la-fecha-3-noticia-1675891)
-
-
-### lyon vs (N/A, 15/02/2026 15:33 Lima)
-
-- **La Ligue 1 reduce la suspensión a Endrick por su roja con Lyon**: [Link](https://www.espn.com.pe/futbol/francia/nota/_/id/16305111/endrick-ligue-1-reduce-suspension-roja-lyon)
-- **Endrick se salva de la sanción a pesar de haber sido expulsado**: [Link](https://www.flashscore.pe/noticias/futbol-ligue-1-el-comite-disciplinario-de-la-ligue-1-anula-la-tarjeta-roja-de-endrick/nZVK1bXq/)
-- **Endrick fue expulsado en la victoria de Lyon en la Ligue 1**: [Link](https://www.espn.com.pe/futbol/francia/nota/_/id/16284464/video-endrick-expulsion-roja-lyon-victoria-vs-nantes-ligue-1)
-
-
-### mallorca vs (N/A, 15/02/2026 15:33 Lima)
-
-- **Mallorca empfängt Real Betis zum Heimspiel**: [Link](https://www.inselradio.com/aktuell/news/sport/2026/02/mallorca-empfaengt-betis-zum-heimspiel-in-son-moix)
-- **15.02.2026 – Real Mallorca vs. Real Betis**: [Link](https://www.mallorca-services.es/15-02-2026-real-mallorca-vs-real-betis/)
-
-
-### napoli vs (N/A, 15/02/2026 15:33 Lima)
-
-- **Zaragoza ready to replace Soule in Roma’s XI vs Napoli**: [Link](https://romapress.net/zaragoza-ready-to-replace-soule-in-romas-xi-vs-napoli/)
-- **Six Points and No Mercy: Roma’s Season on Trial in Naples**: [Link](https://www.chiesaditotti.com/roma-matchday-coverage/39714/six-points-and-no-mercy-romas-season-on-trial-in-naples)
-- **Dybala Sidelined Again as Roma Faces Crucial Clash**: [Link](https://www.ilmessaggero.it/en/dybala_sidelined_again_as_roma_faces_crucial_clash-9359987.html)
 
 
