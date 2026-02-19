@@ -1,3 +1,73 @@
+### losc vs. estrella roja (N/A, 19/02/2026 15:39 Lima)
+
+- **Europa League: Por la llave 8 se enfrentarán Lille y Estrella Roja**: [Link](https://rpp.pe/futbol/ligas-internacionales/europa-league-por-la-llave-8-se-enfrentaran-lille-y-estrella-roja-noticia-1676390)
+- **Lille – Estrella Roja de Belgrado: horario y dónde ver hoy por TV el partido de fútbol de la Europa League**: [Link](https://www.lavanguardia.com/deportes/futbol/20260219/267578/horario-partido-ca-lille-estrella-roja-de-belgrado-ctx.html)
+- **Lille vs Est. Roja por la llave 8 de UEFA Europa League EN VIVO. Seguilo minuto a minuto por la web de TN.**: [Link](https://tn.com.ar/deportes/futbol/2026/02/19/lille-vs-est-roja-en-vivo-por-la-llave-8-de-la-uefa-europa-league-hora-donde-ver-y-formaciones/)
+
+
+### real madrid - unicaja (N/A, 19/02/2026 15:39 Lima)
+
+- **Dónde ver online y en televisión al Real Madrid de baloncesto hoy de Copa y a qué hora juega contra el Unic...**: [Link](https://www.abc.es/deportes/baloncesto/ver-online-television-real-madrid-hoy-copa-20260219153034-nt.html)
+- **Tyler Kalinoski: «Llegamos a la Copa sin presión y tenemos el nivel para ganar al Real Madrid»**: [Link](https://okdiario.com/diariomadridista/baloncesto/tyler-kalinoski-llegamos-copa-sin-presion-tenemos-nivel-ganar-real-madrid-607212)
+- **Primera oportunidad**: [Link](https://www.laopiniondemalaga.es/opinion/2026/02/19/primera-oportunidad-126999021.html)
+
+
+### man utd - atlético madrid (N/A, 19/02/2026 15:39 Lima)
+
+- **Team news: United Women v Atleti**: [Link](https://www.manutd.com/en/news/detail/team-news-for-man-utd-women-v-atletico-madrid-second-leg-19-feb-2026)
+- **🚨Confirmed XIs: Atlético out to turn it around in Manchester**: [Link](https://sports.yahoo.com/articles/confirmed-xis-atl-tico-turn-185600750.html)
+- **"We have to give absolutely everything" - Marc Skinner emphasises that the second leg fixture against Atlético Madrid is a must-win**: [Link](https://www.vavel.com/en/football/2026/02/18/womens-football/1251259-we-have-to-give-absolutely-everything-marc-skinner-emphasises-that-the-second-leg-fixture-against-atletico-madrid-is-a-must-win.html)
+
+
+### fiorentina (N/A, 19/02/2026 15:39 Lima)
+
+- **Vanoli aspetta l’uomo mercato viola: la Conference può essere il momento della svolta**: [Link](https://onefootball.com/pt-br/noticias/vanoli-aspetta-luomo-mercato-viola-la-conference-puo-essere-il-momento-della-svolta-42433808)
+- **DIRETTA / Jagiellonia-Fiorentina 0-0, segui il live di Firenzetoday**: [Link](https://www.firenzetoday.it/sport/calcio/jagiellonia-fiorentina-diretta-conference-league.html)
+- **CALCIO CONFERENCE LEAGUE- Le Pagelle viola di Firenze Viola Supersport per Jagellonia-Fiorentina**: [Link](https://www.firenzeviolasupersportlive.it/fiorentina/notizie-viola/calcio-conference-league-le-pagelle-viola-di-firenze-viola-supersport-per-jagellonia-fiorentina/)
+
+
+### jannik sinner (N/A, 19/02/2026 15:39 Lima)
+
+- **LIVE Sinner-Mensik: 7-6 per il ceco nel primo parziale. Jannik conduce 1-0 nel secondo set**: [Link](https://www.gazzetta.it/Tennis/ATP/19-02-2026/sinner-mensik-live-a-doha-la-diretta.shtml)
+- **Le tappe bruciate e il trionfo a Miami: chi è Jakub Mensik, il prossimo avversario di Sinner**: [Link](https://www.ubitennis.com/blog/2026/02/19/le-tappe-bruciate-e-il-trionfo-a-miami-chi-e-jakub-mensik-il-prossimo-avversario-di-sinner/)
+- **Live Tomáš Machác - Jannik Sinner - Doha Men's Singles -: Punteggi & Highlights Tennis - 16/02/2026**: [Link](https://www.eurosport.it/tennis/atp-doha/2026/live-tomas-machac-jannik-sinner_mtc20005030/live.shtml)
+
+
+### lille vs (N/A, 19/02/2026 15:39 Lima)
+
+- **Olivier Giroud sanctionné ? La réponse tombe**: [Link](https://www.football.fr/lille/olivier-giroud-sanctionne-la-reponse-tombe-801033.html)
+- **LOSC – Etoile Rouge. Les prédictions d’Opta**: [Link](https://sportune.20minutes.fr/losc-etoile-rouge-les-predictions-dopta-395030)
+- **"La seule crise que je vois, c'est celle des résultats" : Les déclarations de Dejan Stankovic, entraîneur serbe, avant LOSC – Étoile Rouge de Belgrade**: [Link](https://lepetitlillois.com/2026/02/19/la-seule-crise-que-je-vois-cest-celle-des-resultats-les-declarations-de-dejan-stankovic-entraineur-serbe-avant-losc-etoile-rouge-de-belgrade/)
+
+
+### panathinaikos vs (N/A, 19/02/2026 15:39 Lima)
+
+- **Panathinaikos - Viktoria Pilsen prediction & tips 19.02.2026**: [Link](https://www.transfermarkt.co.uk/betting/tips-today/panathinaikos-vs-viktoria-pilsen-prediction-19-02-2026/)
+- **Panathinaikos vs Viktoria Plzen LIVE Score Updates in UEFA Europa League Match**: [Link](https://www.vavel.com/en-us/soccer/2026/02/19/1251279-panathinaikos-vs-viktoria-plzen-live-score-europa-league.html)
+- **Preview: Panathinaikos vs Viktoria Plzen - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/panathinaikos/europa-league/preview/panathinaikos-vs-plzen-prediction-team-news-lineups_592206.html)
+
+
+### kilmarnock vs. celtic f. c. (N/A, 19/02/2026 15:39 Lima)
+
+- **Celtic "machine" now looks as finished as Hatate & Schmeichel at Parkhead**: [Link](https://www.footballfancast.com/celtic-star-maeda-looks-as-finished-as-hatate-schmeichel-at-parkhead/)
+- **Surprise Pundit Jumps to Celtic’s Defence in “No Grounds” Neil McCann Rant**: [Link](https://celtsarehere.com/celtic-fc-neil-mccann-added-time-kilmarnock/)
+- **Never-say-die Celts refuse to lie down**: [Link](https://www.celticfc.com/news/2026/february/15/never-say-die-celts-refuse-to-lie-down/)
+
+
+### fiorentina vs (N/A, 19/02/2026 15:39 Lima)
+
+- **Preview: Jagiellonia Bialystok vs Fiorentina - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/jagiellonia-bialystok/europa-conference-league/preview/jagiellonia-vs-fiorentina-prediction-team-news-lineups_592194.html)
+- **Logistical difficulties and war just around the corner. Hunting and tights. A chilling atmosphere. And tonight it'll be -9°C.**: [Link](https://sport.quotidiano.net/en/calcio/fiorentina/le-difficolta-logistiche-e-la-ef525172)
+- **Squad for Jagiellonia v Fiorentina -**: [Link](https://www.acffiorentina.com/en/news/jagiellonia-fiorentina-i-convocati-180226)
+
+
+### toy story 5 (N/A, 19/02/2026 15:39 Lima)
+
+- **'Toy Story 5' Trailer: Woody, Buzz and Jessie Reunite to Save Toys from Extinction in a High-Tech World**: [Link](https://people.com/woody-buzz-jessie-new-toy-story-5-trailer-11898834)
+- **‘Toy Story 5’ Trailer: Woody and Buzz Reunite to Save Kids From Technology Devices**: [Link](https://variety.com/2026/film/news/toy-story-5-trailer-buzz-woody-1236625360/)
+- **‘Toy Story 5’ Trailer: Buzz Lightyear and a Balding Woody Reunite to Rescue Kids From Electronics**: [Link](https://www.hollywoodreporter.com/movies/movie-news/toy-story-5-trailer-buzz-lightyear-woody-reunite-1236509817/)
+
+
 ### dinamo zagreb (N/A, 19/02/2026 12:01 Lima)
 
 - **Europa League playoff round predictions: Genk too hot to handle on the road**: [Link](https://www.racingpost.com/sport/football-tips/europa-league/europa-league-playoff-round-predictions-genk-too-hot-to-handle-on-the-road-af9lJ2I7Xvqp/)
@@ -954,75 +1024,5 @@ Sin noticias relacionadas disponibles.
 - **Preview: Cagliari vs Lecce - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/cagliari/preview/cagliari-vs-lecce-prediction-team-news-lineups_592039.html)
 - **Prediction: Cagliari vs Lecce – Betting Tips, Team News, Key Facts**: [Link](https://www.soccernews.com/prediction-cagliari-vs-lecce-betting-tips-team-news-key-facts/396015/)
 - **Serie A: Lecce visita a Cagliari por la fecha 25**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-lecce-visita-a-cagliari-por-la-fecha-25-noticia-1675973)
-
-
-### jose jeri (N/A, 16/02/2026 00:38 Lima)
-
-- **Muñante: Cueto deberá decidir si renuncia a su candidatura para ser considerado reemplazo de Jerí ante una eventual censura**: [Link](https://rpp.pe/politica/congreso/munante-no-se-puede-pasar-por-agua-tibia-situacion-de-jeri-y-debera-asumir-la-consecuencia-politica-noticia-1675981)
-- **Muñante propone a Cueto o Maricarmen Alva como reemplazo de Jerí y descarta opciones de la izquierda**: [Link](https://larepublica.pe/politica/2026/02/15/munante-propone-a-cueto-o-maricarmen-alva-como-reemplazo-de-jeri-y-descarta-opciones-de-la-izquierda-hnews-250845)
-- **Muñante dice que Cueto deberá decidir si deja su candidatura al Senado, ante posible reemplazo de Jerí**: [Link](https://gestion.pe/peru/politica/munante-dice-que-cueto-debera-decidir-si-deja-su-candidatura-al-senado-ante-posible-reemplazo-de-jeri-noticia/)
-
-
-### keiko fujimori (N/A, 16/02/2026 00:38 Lima)
-
-- **José Jerí puede ser censurado con menos de 20 votos, pero “no es constitucional”, asegura exoficial del Congreso**: [Link](https://www.infobae.com/peru/2026/02/15/jose-jeri-puede-ser-censurado-con-menos-de-20-votos-pero-no-es-constitucional-asegura-exoficial-del-congreso/)
-- **José Jerí dice que la vacancia es el "procedimiento" que corresponde en su caso en el Congreso**: [Link](https://rpp.pe/politica/gobierno/jose-jeri-dice-que-la-vacancia-es-el-procedimiento-que-corresponde-en-su-caso-en-el-congreso-noticia-1676028)
-- **Exoficial mayor del Congreso: "El procedimiento debido no es el de la censura, sino la vacancia"**: [Link](https://peru21.pe/politica/oficial-mayor-del-congreso-el-procedimiento-debido-es-la-censura-no-la-vacancia/)
-
-
-### stake (N/A, 16/02/2026 00:38 Lima)
-
-- **Opinion | What Trump Is the Best at, Hands Down**: [Link](https://www.nytimes.com/2026/02/11/opinion/trump-crypto-corruption.html)
-- **Sens. Warren, Kim demand CFIUS review of UAE's reported $500 million stake in World Liberty Financial**: [Link](https://www.theblock.co/post/389958/sens-warren-kim-demand-cfius-review-of-uaes-reported-500-million-stake-in-world-liberty-financial-reuters)
-- **Senate Democrats seek CFIUS probe of reported UAE stake in Trump family's crypto company**: [Link](https://www.reuters.com/legal/government/senate-democrats-seek-cfius-probe-reported-uae-stake-trump-familys-crypto-2026-02-13/)
-
-
-### kanye west (N/A, 16/02/2026 00:38 Lima)
-
-- **Bianca Censori Called to Testify as Witness in Kanye West's Legal Battle**: [Link](https://www.tmz.com/2026/02/15/bianca-censori-called-to-testify-as-witness-in-kanye-wests-legal-battle/)
-- **Bianca Censori to Testify in Kanye West’s Legal Battle**: [Link](https://www.filmogaz.com/152432)
-- **Bianca Censori Heads to Spa Ahead of Valentine's Day**: [Link](https://www.tmz.com/2026/02/14/bianca-censori-going-to-spa-in-los-angeles/)
-
-
-### deportivo cali (N/A, 16/02/2026 00:38 Lima)
-
-- **Deportivo Cali frenó el invicto de Nacional en la Liga Betplay 2026-I**: [Link](https://www.espn.com.ar/futbol/colombia/nota/_/id/16310906/deportivo-cali-freno-el-invicto-de-nacional-en-la-liga-betplay-2026-i)
-- **Con un Gallese clave: Deportivo Cali venció 1-0 ante Atlético Nacional por Liga BetPlay | RESUMEN Y GOL**: [Link](https://elcomercio.pe/deporte-total/colombia/cali-vs-atletico-nacional-en-vivo-online-gratis-via-rcn-win-sports-a-que-hora-juegan-canal-que-transmite-y-donde-ver-por-liga-betplay-video-noticia/)
-- **Alberto Gamero 'aguanta' la presión pese a vencer a Nacional: "Algún día me tendré que ir del Cali"**: [Link](https://www.noticiascaracol.com/golcaracol/futbol-colombiano/alberto-gamero-aguanta-la-presion-pese-a-vencer-a-nacional-algun-dia-me-tendre-que-ir-del-cali-rg10)
-
-
-### fortaleza - boyacá chicó (N/A, 15/02/2026 21:42 Lima)
-
-- **Pronóstico Fortaleza FC Boyacá Chicó - Primera A Colombia 15/02/26**: [Link](https://www.sportytrader.com/es/pronosticos/fortaleza-fc-boyaca-chico-327532/)
-- **Fortaleza vs Boyacá Chicó en vivo la Liga BetPlay 2026-I: ¿Quién gana el partido de hoy?**: [Link](https://www.clarosports.com/colombia/liga-bet-play/fortaleza-vs-boyaca-chico-en-vivo-la-liga-betplay-2026-i-quien-gana-el-partido-de-hoy/)
-- **Fortaleza cometió insólito blooper y Boyacá Chicó marcó golazo**: [Link](https://www.winsports.co/futbol-colombiano/noticias/fortaleza-cometio-insolito-blooper-y-boyaca-chico-marco-golazo-409036)
-
-
-### instituto - central córdoba (N/A, 15/02/2026 21:42 Lima)
-
-- **¿Qué canal pasa Instituto vs Central Córdoba hoy: dónde ver EN VIVO la Liga Profesional?**: [Link](https://www.365scores.com/es/news/donde-ver-instituto-central-cordoba/)
-- **Luego del golpe en Copa Argentina, el Ferro necesita sumar en Córdoba**: [Link](https://onefootball.com/de/news/luego-del-golpe-en-copa-argentina-el-ferro-necesita-sumar-en-cordoba-42416621)
-- **Vendió empanadas, fue traductor de Bielsa y es nuevo entrenador de Instituto: la historia de Diego Flores**: [Link](https://viapais.com.ar/cordoba/vendio-empanadas-traductor-bielsa-nuevo-entrenador-instituto-historia-diego-flores_0_sQVrmQSB8J.html)
-
-
-### elecciones (N/A, 15/02/2026 21:42 Lima)
-
-- **López Aliaga le ganaría a todos sus rivales en una eventual segunda vuelta**: [Link](https://www.ipsos.com/es-pe/lopez-aliaga-le-ganaria-todos-sus-rivales-en-una-eventual-segunda-vuelta)
-- **Cuatro candidatos empatados en el tercer lugar: Encuesta de Ipsos a solo dos meses de las Elecciones 2026**: [Link](https://www.infobae.com/peru/2026/02/12/asi-van-las-encuestas-a-solo-dos-meses-de-las-elecciones-2026-cuatro-candidatos-empatados-en-el-tercer-lugar/)
-- **Elecciones 2026: Ninguno de los 36 candidatos presidenciales genera confianza**: [Link](https://peru21.pe/politica/elecciones-2026-ninguno-de-los-36-candidatos-presidenciales-genera-confianza/)
-
-
-### alianza vs geminis voley (N/A, 15/02/2026 21:42 Lima)
-
-- **Alianza Lima derrota a Géminis 3 sets a 1 en la fase 2 de la Liga Peruana de Vóley 2026**: [Link](https://www.infobae.com/peru/deportes/2026/02/15/alianza-lima-vs-geminis-en-vivo-hoy-partido-fecha-7-fase-2-liga-peruana-de-voley-2026-resumen-resultado/)
-- **Liga Peruana de Vóley: Alianza Lima venció a Géminis y se mantiene en lo más alto**: [Link](https://andina.pe/agencia/noticia-liga-peruana-voley-alianza-lima-vencio-a-geminis-y-se-mantiene-lo-mas-alto-1063232.aspx)
-- **¡Celebró en su aniversario! Alianza superó a Géminis y trepó a la cima de la LPV**: [Link](https://ovacion.pe/noticias/voley-apuesta-total/celebro-su-aniversario-alianza-supero-geminis-trepo-cima-lpv)
-
-
-### foot ball club melgar (N/A, 15/02/2026 21:42 Lima)
-
-- **Tabla de posiciones Liga 1 2026 EN VIVO: partidos y resultados de la fecha 3 del Torneo Apertura**: [Link](https://depor.com/futbol-peruano/descentralizado/tabla-de-posiciones-de-la-liga-1-peru-2026-en-vivo-hoy-partidos-programacion-y-resultados-fecha-3-torneo-apertura-universitario-vs-cienciano-alianza-lima-vs-alianza-atletico-sporting-cristal-vs-juan-pablo-ii-noticia/)
-- **Apertura: Así se jugaron los partidos de Universitario, Cristal y Alianza Lima**: [Link](https://andina.pe/agencia/noticia-apertura-asi-se-jugaron-los-partidos-universitario-cristal-y-alianza-lima-1063167.aspx)
-- **¡Con FBC Melgar en la cima! Conoce resultados, tabla y todos los detalles de la 3ra. fecha del Apertura**: [Link](https://ovacion.pe/noticias/liga1-2026/fbc-melgar-cima-conoce-resultados-tabla-todos-detalles-3ra-fecha-del-apertura)
 
 
