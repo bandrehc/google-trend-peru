@@ -1,3 +1,45 @@
+### dinamo zagreb (N/A, 19/02/2026 12:01 Lima)
+
+- **Europa League playoff round predictions: Genk too hot to handle on the road**: [Link](https://www.racingpost.com/sport/football-tips/europa-league/europa-league-playoff-round-predictions-genk-too-hot-to-handle-on-the-road-af9lJ2I7Xvqp/)
+- **Dinamo Zagreb vs Genk LIVE Score Updates in UEFA Europa League Match**: [Link](https://www.vavel.com/en-us/soccer/2026/02/19/1251335-dinamo-zagreb-vs-genk-live-score-europa-league.html)
+- **Preview: Dinamo Zagreb vs. Genk - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/dinamo-zagreb/europa-league/preview/dinamo-zagreb-vs-genk-prediction-team-news-lineups_592180.html)
+
+
+### chatgpt (N/A, 19/02/2026 12:01 Lima)
+
+- **OpenAI, Reliance partner to add AI search to JioHotstar**: [Link](https://techcrunch.com/2026/02/19/openai-reliance-partner-to-add-ai-search-to-jiohotstar/)
+- **OpenAI, JioHotstar Partner to Launch ChatGPT-Powered Content Discovery in India**: [Link](https://variety.com/2026/tv/news/openai-jiohotstar-chatgpt-content-discovery-india-1236667083/)
+- **AI-Driven Entertainment Revolution: JioHotstar and OpenAI's Groundbreaking Partnership**: [Link](https://www.devdiscourse.com/article/technology/3810318-ai-driven-entertainment-revolution-jiohotstar-and-openais-groundbreaking-partnership)
+
+
+### marisel linares (N/A, 19/02/2026 12:01 Lima)
+
+- **Campeona nacional de buceo libre fallece tras ser atropellada en San Isidro: conductor se habría dado a la fuga**: [Link](https://larepublica.pe/sociedad/2026/02/18/campeona-nacional-de-buceo-libre-fallece-tras-ser-atropellada-en-san-isidro-conductor-se-habria-dado-a-la-fuga-907560)
+- **Joven seleccionada peruana de buceo Lizeth Marzano Noguera falleció tras ser atropellada en San Isidro**: [Link](https://rpp.pe/lima/accidentes/lizeth-marzano-noguera-seleccionada-peruana-de-buceo-murio-tras-ser-atropellada-en-san-isidro-noticia-1676528)
+- **Buscan a chofer que atropelló y mató a campeona nacional de buceo en San Isidro**: [Link](https://peru21.pe/lima/buscan-chofer-que-atropello-campeona-nacional-de-buceo-en-san-isidro/)
+
+
+### metropolitano (N/A, 19/02/2026 12:01 Lima)
+
+- **¿Soterrar el Metropolitano en Barranco? La propuesta que busca unir la Av. Bolognesi y reabrir el debate urbano**: [Link](https://cosas.pe/actualidad/365010/soterrar-el-metropolitano-en-barranco-la-propuesta-que-busca-unir-la-av-bolognesi-y-reabrir-el-debate-urbano/)
+- **El proyecto para soterrar el Metropolitano en Barranco y reconectar las zonas divididas del distrito**: [Link](https://elcomercio.pe/lima/transporte/un-carril-soterrado-para-el-metropolitano-en-barranco-la-propuesta-que-busca-recuperar-las-zonas-divididas-del-distrito-metropolitano-barranco-estacion-boulevard-noticia/)
+- **Bus del Metropolitano quedó varado a la altura de estación Dos de Mayo: pasajeros esperan más de 20 minutos**: [Link](https://larepublica.pe/sociedad/2026/02/19/bus-del-metropolitano-quedo-varado-a-la-altura-de-la-estacion-dos-de-mayo-se-reportan-aumento-del-tiempo-de-espera-y-desvios-1804278)
+
+
+### gonzalo bueno (N/A, 19/02/2026 12:01 Lima)
+
+- **Gonzalo Bueno clasificó a cuartos en el Challenger 50 de Tigre**: [Link](https://ovacion.pe/noticias/tenis/gonzalo-bueno-clasifico-cuartos-challenger-50-tigre)
+- **Gonzalo Bueno impone su favoritismo y derrota a Dutra Da Silva en su estreno en el Challenger 50 de Tigre 2026**: [Link](https://www.infobae.com/peru/deportes/2026/02/17/gonzalo-bueno-impone-su-favoritismo-y-derrota-a-dutra-da-silva-en-su-estreno-en-el-challenger-50-de-tigre-2026/)
+- **Bueno y Varillas tuvieron debuts distintos en Argentina**: [Link](https://www.futbolperuano.com/mas-deportes/noticias/gonzalo-bueno-y-juan-pablo-varillas-tuvieron-debuts-opuestos-en-el-challenger-de-tigre-564246)
+
+
+### paok vs (N/A, 19/02/2026 12:01 Lima)
+
+- **And now for… Celta**: [Link](https://www.paokfc.gr/en/news/20260218-kai-tora-celta/)
+- **Europa League: Jorge Sánchez eyes debut with PAOK against Celta de Vigo**: [Link](https://www.soyfutbol.com/en/news/europa-league-jorge-sanchez-eyes-debut-with-paok-against-celta-de-vigo-20260218-0047.html)
+- **PAOK vs Celta Vigo Preview & Prediction | 2025-26 UEFA Europa League | Knockout Playoffs**: [Link](https://www.thestatszone.com/paok-vs-celta-vigo-preview-prediction-2025-26-uefa-europa-league-knockout-playoffs-171281)
+
+
 ### radio exitosa (N/A, 19/02/2026 08:19 Lima)
 
 - **Papá, ¿por qué somos del Bodo/Glimt?**: [Link](https://as.com/opinion/papa-por-que-somos-del-bodoglimt-f202602-n/)
@@ -982,45 +1024,5 @@ Sin noticias relacionadas disponibles.
 - **Tabla de posiciones Liga 1 2026 EN VIVO: partidos y resultados de la fecha 3 del Torneo Apertura**: [Link](https://depor.com/futbol-peruano/descentralizado/tabla-de-posiciones-de-la-liga-1-peru-2026-en-vivo-hoy-partidos-programacion-y-resultados-fecha-3-torneo-apertura-universitario-vs-cienciano-alianza-lima-vs-alianza-atletico-sporting-cristal-vs-juan-pablo-ii-noticia/)
 - **Apertura: Así se jugaron los partidos de Universitario, Cristal y Alianza Lima**: [Link](https://andina.pe/agencia/noticia-apertura-asi-se-jugaron-los-partidos-universitario-cristal-y-alianza-lima-1063167.aspx)
 - **¡Con FBC Melgar en la cima! Conoce resultados, tabla y todos los detalles de la 3ra. fecha del Apertura**: [Link](https://ovacion.pe/noticias/liga1-2026/fbc-melgar-cima-conoce-resultados-tabla-todos-detalles-3ra-fecha-del-apertura)
-
-
-### andrea vidal (N/A, 15/02/2026 21:42 Lima)
-
-- **Andrea Vidal: dictan detención preliminar a sospechosos vinculados a vehículo que la siguió antes de su asesinato [Exp. 01759-2024-5-1814-JR-PE-01]**: [Link](https://lpderecho.pe/andrea-vidal-dictan-detencion-preliminar-sospechosos-vinculados-vehiculo-siguio-antes-asesinato/)
-- **PNP no consiguió pruebas en asesinato de Andrea Vidal: liberan a dos detenidos**: [Link](https://www.expreso.com.pe/judicial/pnp-no-consiguio-pruebas-en-asesinato-de-andrea-vidal-liberan-a-dos-detenidos-policia-congreso-rodrigo-falcon-cortavarria-noticia/1263916/)
-- **Exclusivo: El último viaje de Andrea Vidal en más imágenes**: [Link](https://www.americatv.com.pe/noticias/actualidad/exclusivo-ultimo-viaje-andrea-vidal-nuevas-imagenes-n515828)
-
-
-### rosario central - barracas central (N/A, 15/02/2026 21:42 Lima)
-
-- **Central y Barracas empatan en Rosario**: [Link](https://www.ole.com.ar/futbol-primera/rosario-central-barracas-torneo-apertura_0_evZxTowBGY.html)
-- **Rosario Central recibirá a Barracas Central y Central Córdoba visitará a Instituto por la fecha 5 del Torneo Apertura**: [Link](https://www.infobae.com/deportes/2026/02/15/rosario-central-recibira-a-barracas-central-y-central-cordoba-visitara-a-instituto-por-la-fecha-5-del-torneo-apertura/)
-- **Central busca ahora encaminar el año en el Gigante tras el respiro que tuvo en la Copa Argentina**: [Link](https://www.lacapital.com.ar/ovacion/central-busca-ahora-encaminar-el-ano-el-gigante-el-respiro-que-tuvo-la-copa-argentina-n10244914.html)
-
-
-### cerro - nacional (N/A, 15/02/2026 21:42 Lima)
-
-- **Cerro Porteño vs Club Nacional: resultado en vivo por el Apertura 2026**: [Link](https://www.365scores.com/es/news/cerro-porteno-vs-club-nacional-resultado/)
-- **La quinta fecha cierra con un cotejo atrayente**: [Link](https://www.adndigital.com.py/la-quinta-fecha-cierra-con-un-cotejo-atrayente/)
-- **Nacional tiene una parada “más difícil todavía”**: [Link](https://d10.ultimahora.com/nacional-tiene-una-parada-mas-dificil-todavia)
-
-
-### central - peñarol (N/A, 15/02/2026 21:42 Lima)
-
-- **Matías Arezo tras la derrota de Peñarol ante Central Español: "No fuimos efectivos"**: [Link](https://www.espn.com.ar/futbol/uruguay/nota/_/id/16320099/matias-arezo-tras-la-derrota-de-penarol-ante-central-espanol-no-fuimos-efectivos)
-- **Diego Aguirre, enojado con la derrota de Peñarol: "Jugamos muy mal y no nos salió nada"**: [Link](https://www.directvsports.com/futbol/diego-aguirre-enojado-con-la-derrota-de-penarol-jugamos-muy-mal-y-no-nos-salio-nada-20260215-0031.html)
-- **Central-Peñarol en el Campus por el Apertura: cómo verlo, horario y alineaciones probables**: [Link](https://www.montevideo.com.uy/Deportes/Central-Penarol-en-el-Campus-por-el-Apertura-como-verlo-horario-y-alineaciones-probables-uc953104)
-
-
-### palmeiras vs guarani (N/A, 15/02/2026 21:42 Lima)
-
-- **📋 Palmeiras line-up revealed for final round of Paulistão group stage**: [Link](https://sports.yahoo.com/articles/palmeiras-line-revealed-final-round-223800492.html)
-
-
-### gimnasia - estudiantes (N/A, 15/02/2026 15:33 Lima)
-
-- **El historial entre Estudiantes y Gimnasia: quién ganó más partidos en el clásico de La Plata**: [Link](https://espndeportes.espn.com/futbol/argentina/nota/_/id/15048128/el-historial-estudiantes-vs-gimnasia-quien-gano-mas-partidos-clasico-la-plata)
-- **LA PLATA HACE LA FELICIDAD**: [Link](https://www.pressreader.com/argentina/ole/20260215/282316801493607)
-- **La fiesta de la ciudad: ¿Cómo será el operativo de seguridad y qué elemento se habilitó por el clima?**: [Link](https://www.laplata1.com/2026-02-15/la-fiesta-de-la-ciudad-como-sera-el-operativo-de-seguridad-y-que-elemento-se-habilito-por-el-clima-122170/)
 
 
