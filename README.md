@@ -1,3 +1,71 @@
+### melcochita (N/A, 19/02/2026 00:23 Lima)
+
+- **Melcochita se pronunció tras disculpas de Monserrat**: [Link](https://www.americatv.com.pe/america-hoy/melcochita-se-pronuncio-disculpas-publicas-monserrat-noticia-162970)
+- **Monserrat pide disculpas a 'Melcochita' por WhatsApp y él deja en suspenso su decisión: "Tengo mes y medio para pensar"**: [Link](https://willax.pe/entretenimiento/monserrat-disculpas-melcochita-whatsapp-decision-willax)
+- **¡Perdón público! Monserrat Seminario sorprende a Melcochita con emotiva disculpa en San Valentín: “Te escribo para...”**: [Link](https://elcomercio.pe/respuestas/farandula/perdon-publico-monserrat-seminario-sorprende-a-melcochita-con-emotiva-disculpa-en-san-valentin-te-escribo-para-tdpe-noticia/)
+
+
+### alianza para el progreso (N/A, 19/02/2026 00:23 Lima)
+
+- **José Cueto: “Héctor Acuña nos comunicó que le diéramos la oportunidad de postular a la presidencia”**: [Link](https://elcomercio.pe/politica/congreso/jose-cueto-hector-acuna-nos-comunico-que-le-dieramos-la-oportunidad-de-postular-a-la-presidencia-ultimas-noticia/)
+- **Héctor Acuña entra a la contienda por la presidencia del Congreso**: [Link](https://caretas.pe/politica/hector-acuna-entra-a-la-contienda-por-la-presidencia-del-congreso/)
+- **César Acuña no apoyará candidatura de su hermano a la Mesa Directiva del Congreso**: [Link](https://gestion.pe/peru/politica/cesar-acuna-no-apoyara-candidatura-de-su-hermano-a-la-mesa-directiva-del-congreso-noticia/)
+
+
+### resultados uni (N/A, 19/02/2026 00:23 Lima)
+
+- **Examen de admisión UNI 2026-I: link para conocer los puntajes de segunda fecha [fotos]**: [Link](https://andina.pe/agencia/noticia-examen-admision-uni-2026i-link-para-conocer-los-puntajes-segunda-fecha-fotos-1063293.aspx)
+- **Con solo 14 años, Thiago Viviano es el postulante más joven de la UNI**: [Link](https://peru21.pe/peru/thiago-viviano-el-postulante-de-14-anos-que-busca-una-vacante-en-la-uni/)
+- **Examen de Admisión UNI 2026-1: LINK de resultados y puntajes de la prueba de Matemática del 18 de febrero**: [Link](https://libero.pe/tiempoextra/2026/02/18/examen-de-admision-ordinario-uni-matematica-hoy-18-de-febrero-link-de-resultados-puntajes-universidad-nacional-de-ingenieria-1112429)
+
+
+### matrimonio infantil (N/A, 19/02/2026 00:23 Lima)
+
+- **Sorteo La Tinka: mira aquí los resultados y números ganadores del sorteo del miércoles 18 de febrero**: [Link](https://elcomercio.pe/respuestas/loterias/la-tinka-hoy-miercoles-18-de-febrero-2026-en-vivo-resultados-del-ultimo-sorteo-y-jugada-ganadora-pozo-millonario-loteria-resultado-si-o-si-boliyapa-intralot-lbposting-noticia/)
+- **Sorteo de La Tinka HOY miércoles 18 de febrero de 2026: premios, jugada ganadora y Pozo Millonario**: [Link](https://larepublica.pe/sociedad/2026/02/18/sorteo-de-la-tinka-hoy-miercoles-18-de-febrero-de-2026-premios-jugada-ganadora-y-pozo-millonario-atmp-870213)
+- **Mira los resultados de La Tinka de este domingo 15 de febrero**: [Link](https://diariocorreo.pe/miscelanea/resultados-la-tinka-15-domingo-febrero-loteria-online-como-cobrar-pozo-millonario-jugada-ganadora-sorteo-latinka-premio-si-o-si-apuestas-bolillas-ganadoras-noticia/)
+
+
+### eddie vedder (N/A, 19/02/2026 00:23 Lima)
+
+- **The 10 Greatest Classic Rock Debut Albums Turning 35 This Year**: [Link](https://collider.com/best-classic-rock-debut-albums-1991/)
+- **The band Eddie Vedder called one of the most important rock acts ever**: [Link](https://faroutmagazine.co.uk/the-band-eddie-vedder-called-one-of-the-most-important-rock-acts-ever/)
+- **Pearl Jam Is ‘Between Eras’ But ‘Excited About the Future,’ Eddie Vedder Says**: [Link](https://www.rollingstone.com/music/music-features/pearl-jam-drummer-future-eddie-vedder-interview-1235514367/)
+
+
+### suheyn cipriani (N/A, 19/02/2026 00:23 Lima)
+
+- **Suheyn Cipriani pide que no le tiren "HATE" a Macarius tras ruptura: "Es un gran hombre, yo lo AMO"**: [Link](https://www.atv.pe/noticia/suheyn-cipriani-pide-que-no-le-tiren-hate-a-macarius-tras-ruptura-es-un-gran-hombre-yo-lo-amo/)
+- **Suheyn Cipriani llora y asegura que no le guarda rencor a Macarius: “Nos hemos querido tanto”**: [Link](https://elcomercio.pe/tvmas/farandula/suheyn-cipriani-llora-y-asegura-que-no-le-guarda-rencor-a-macarius-nos-hemos-querido-tanto-ultimas-noticia/)
+- **Suheyn Cipriani revela que streamer Macarius le terminó por mensaje de WhatsApp: "Me levanto y veo un testamento"**: [Link](https://larepublica.pe/streamers/2026/02/17/suheyn-cipriani-revela-que-streamer-macarius-le-termino-por-mensaje-de-whatsapp-me-levanto-y-veo-un-testamento-evat-1128630)
+
+
+### dina boluarte (N/A, 19/02/2026 00:23 Lima)
+
+- **Dina Boluarte: Despacho Presidencial acepta cuatro pedidos de defensa legal y declara improcedente uno sobre presunto enriquecimiento ilícito**: [Link](https://elcomercio.pe/politica/dina-boluarte-despacho-presidencial-acepta-cuatro-pedidos-de-defensa-legal-y-declara-improcedente-uno-sobre-presunto-enriquecimiento-ilicito-noticia/)
+- **LLUVIAS EN AREQUIPA | La magnitud del problema se habría agravado por la ausencia de un sistema de drenaje adecuado en el sector.**: [Link](https://www.facebook.com/ElBuho.pe/posts/lluvias-en-arequipa-la-magnitud-del-problema-se-habr%C3%ADa-agravado-por-la-ausencia-/1574452267549663/)
+- **Declaran improcedente solicitud de defensa legal de Dina Boluarte en investigación por enriquecimiento ilícito**: [Link](https://www.exitosanoticias.pe/politica/declaran-improcedente-solicitud-defensa-legal-dina-boluarte-investigacion-enriquecimiento-ilicito-n169096)
+
+
+### vancouver whitecaps (N/A, 19/02/2026 00:23 Lima)
+
+- **Can Whitecaps carry Canadian hopes in Concacaf Champions Cup?**: [Link](https://www.sportsnet.ca/soccer/article/can-whitecaps-carry-canadian-hopes-in-concacaf-champions-cup/)
+- **PREVIEW: 'Caps begin 2026 campaign, face C.S. Cartaginés in first leg of Concacaf Champions Cup Round One | Watch on OneSoccer, FuboTV, TELUS channel 980**: [Link](https://www.whitecapsfc.com/news/preview-caps-begin-2026-campaign)
+- **Vancouver Whitecaps Seek Redemption in 2026 Season Opener Against C.S. Cartagines**: [Link](https://news.ssbcrack.com/vancouver-whitecaps-seek-redemption-in-2026-season-opener-against-c-s-cartagines/)
+
+
+### cartaginés - whitecaps (N/A, 19/02/2026 00:23 Lima)
+
+- **Thomas Müller aterriza en Costa Rica y calienta la Champions Cup**: [Link](https://www.espn.com.pe/futbol/costa-rica/nota/_/id/16324593/thomas-muller-llega-costa-rica-concacaf-champions-cup)
+- **Can Whitecaps carry Canadian hopes in Concacaf Champions Cup?**: [Link](https://www.sportsnet.ca/soccer/article/can-whitecaps-carry-canadian-hopes-in-concacaf-champions-cup/)
+- **PREVIEW: 'Caps begin 2026 campaign, face C.S. Cartaginés in first leg of Concacaf Champions Cup Round One | Watch on OneSoccer, FuboTV, TELUS channel 980**: [Link](https://www.whitecapsfc.com/news/preview-caps-begin-2026-campaign)
+
+
+### wolfgang grozo (N/A, 19/02/2026 00:23 Lima)
+
+Sin noticias relacionadas disponibles.
+
+
 ### ppk (N/A, 18/02/2026 21:41 Lima)
 
 - **W styczniu do PPK przystąpiło ponad 61 tysięcy osób**: [Link](https://www.analizy.pl/puls-rynku/39344/biuletyn-ppk-luty-2026)
@@ -953,75 +1021,5 @@ Sin noticias relacionadas disponibles.
 - **Finals previews and predictions: Fritz vs. Shelton, Cerundolo vs. Darderi**: [Link](https://tenngrand.com/tennis-previews-predictions-fritz-vs-shelton-cerundolo-vs-darderi/)
 - **ATP Dallas: Cilic out of final, Fritz better in two tie-breaks**: [Link](https://www.portal.hr/en/novosti/sport-hr/105112-atp-dallas-cilic-bez-finala-fritz-bolji-u-dva-tie-breaka)
 - **Taylor Fritz survives injury scare to enter semis in Dallas Open**: [Link](https://www.sentinelassam.com/sports-news/taylor-fritz-survives-injury-scare-to-enter-semis-in-dallas-open)
-
-
-### r.c.d. mallorca - real betis (N/A, 15/02/2026 15:33 Lima)
-
-- **Apuestas y Pronóstico del Mallorca vs Real Betis 15/02/26**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2026/febrero/pronostico-mallorca-vs-real-betis-15-02-26)
-- **LaLiga EA Sports: Betis se enfrentará a Mallorca por la fecha 24**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-betis-se-enfrentara-a-mallorca-por-la-fecha-24-noticia-1675890)
-- **Arrasate y Pellegrini salen con lo previsto en Son Moix**: [Link](https://www.infobae.com/espana/agencias/2026/02/15/arrasate-y-pellegrini-salen-con-lo-previsto-en-son-moix/)
-
-
-### barcelona vs girona (N/A, 15/02/2026 15:33 Lima)
-
-- **Five things about Girona v Barça**: [Link](https://www.fcbarcelona.com/en/football/first-team/news/4450106/five-things-about-girona-v-barca)
-- **Barcelona XI vs. Girona: Raphinha, Rashford Verdict Reached—Injury News, Predicted Lineup**: [Link](https://www.si.com/soccer/barcelona-xi-vs-girona-injury-news-predicted-lineup-2-16-26)
-- **Girona coach talks Lamine Yamal, Hansi Flick and more ahead of Barcelona clash**: [Link](https://sports.yahoo.com/articles/girona-coach-talks-lamine-yamal-152500035.html)
-
-
-### napoli - roma (N/A, 15/02/2026 15:33 Lima)
-
-- **Napoli-Roma, diretta Serie A: risultato in tempo reale, Conte sfida Gasperini**: [Link](https://www.tuttosport.com/news/calcio/serie-a/2026/02/15-146624288/napoli-roma_diretta_serie_a_risultato_in_tempo_reale_conte_sfida_gasperini)
-- **Parla il papà della bimba di 18 mesi che un 37enne senza fissa dimora ha tentato di rapire in un supermercato 📹 Intervista Alfredo Ranavolo/Tg1**: [Link](https://www.facebook.com/RaiNews/posts/parla-il-pap%C3%A0-della-bimba-di-18-mesi-che-un-37enne-senza-fissa-dimora-ha-tentato/1391362983030218/)
-- **Politano: “Ci rimane la Serie A, mancano 14 partite e possiamo vincerle tutte”**: [Link](https://www.fcinter1908.it/news/interviste/politano-napoli-roma-vincere-tutte-partite/)
-
-
-### porto vs (N/A, 15/02/2026 11:37 Lima)
-
-- **Porto vs Serra Branca: previa, horario y cómo llegan para la llave 12 de la Copa Brasil**: [Link](https://zona.palmsbet.pe/deportes/futbol/porto-vs-serra-branca-previa-horario-y-como-llegan-para-la-llave-12-de-la-copa-brasil/)
-- **Farioli warns of tough Choupana test, urges strong mentality**: [Link](https://onefootball.com/de/news/farioli-warns-of-tough-choupana-test-urges-strong-mentality-42414344)
-- **Preview: Nacional vs Porto - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/nacional/preview/nacional-vs-porto-prediction-team-news-lineups_592027.html)
-
-
-### rb leipzig - wolfsburg (N/A, 15/02/2026 11:37 Lima)
-
-- **RB-Aufstellung gegen Wolfsburg: Werner rotiert – Fünf Neue in der Startelf**: [Link](https://rblive.de/news/rb-aufstellung-gegen-wolfsburg-werner-rotiert-fuenf-neue-in-der-startelf-4199908)
-- **Heimspiel von RB Leipzig: Ordnungsamt warnt Besucher vor drohendem Verkehrs-Chaos**: [Link](https://www.tag24.de/leipzig/heimspiel-von-rb-leipzig-ordnungsamt-warnt-besucher-vor-drohendem-verkehrs-chaos-3469883)
-- **Liveticker**: [Link](https://www.vfl-wolfsburg.de/matchcenter/matchcenter-maenner/bundesliga-spieltag-22-2025/2026/liveticker)
-
-
-### presidente jeri (N/A, 15/02/2026 11:37 Lima)
-
-- **Ernesto Álvarez sobre José Jerí: "Lo principal es que él siga aprendiendo; lo veo ahora mucho más cuajado"**: [Link](https://rpp.pe/politica/gobierno/ernesto-alvarez-sobre-jose-jeri-lo-principal-es-que-el-siga-aprendiendo-lo-veo-ahora-mucho-mas-cuajado-noticia-1675935)
-- **Segundo Montalvo solicita incluir con urgencia la vacancia de José Jerí en el pleno del martes**: [Link](https://canaln.pe/actualidad/congresista-montalvo-pide-priorizar-vacancia-contra-jose-jeri-n490332)
-- **M-17, el día decisivo de la censura**: [Link](https://caretas.pe/home_web/home_principal_secundario/m-17-el-dia-decisivo-de-la-censura/)
-
-
-### parma (N/A, 15/02/2026 11:37 Lima)
-
-- **💥 Gare delle 15: ROSSO a Orban ma è 1-1 in 10vs11 ❗Che volo di Audero 🧤**: [Link](https://onefootball.com/en/news/gare-delle-15-rosso-a-orban-ma-e-1-1-in-10vs11-che-volo-di-audero-42413977)
-- **Calcio, risultati di serie A: Parma, scatto salvezza**: [Link](https://askanews.it/2026/02/15/calcio-risultati-di-serie-a-parma-scatto-salvezza/)
-- **Serie A, scontri salvezza nel pomeriggio: Pellegrino fa impazzire il Tardini al 92', 0-0 a Cremona**: [Link](https://www.diretta.it/news/calcio-serie-a-serie-a-scontri-salvezza-nel-pomeriggio-pellegrino-fa-impazzire-il-tardini-al-92-0-0-a-cremona/rkmvGjK5/)
-
-
-### arsenal - wigan (N/A, 15/02/2026 11:37 Lima)
-
-- **Christian Norgaard sends Arsenal dressing room message and responds to Leandro Trossard claim**: [Link](https://www.football.london/arsenal-fc/news/arsenal-news-christian-norgaard-wigan-33421147)
-- **Mikel Arteta should make Myles Lewis-Skelly position switch amid Arsenal's current injury list**: [Link](https://www.arsenalinsider.com/opinion/mikel-arteta-should-make-myles-lewis-skelly-position-switch-amid-arsenals-current-injury-list/)
-- **Team news: Saliba starts FA Cup clash v Wigan**: [Link](https://www.arsenal.com/news/team-news-saliba-starts-fa-cup-clash-v-wigan)
-
-
-### el niño costero (N/A, 15/02/2026 11:37 Lima)
-
-- **Perú se declara en alerta climática por "El Niño Costero"**: [Link](https://www.dw.com/es/per%C3%BA-se-declara-en-alerta-clim%C3%A1tica-por-el-ni%C3%B1o-costero/a-75975587)
-- **Enfen enciende la alarma: El Niño Costero podría alterar el clima de Perú desde marzo hasta noviembre**: [Link](https://www.infobae.com/peru/2026/02/14/enfen-enciende-la-alarma-el-nino-costero-podria-alterar-el-clima-de-peru-desde-marzo-hasta-noviembre/)
-- **Enfen: El Niño costero se iniciaría en marzo y se prolongaría hasta noviembre**: [Link](https://andina.pe/agencia/noticia-enfen-nino-costero-se-iniciaria-marzo-y-se-prolongaria-hasta-noviembre-1063077.aspx)
-
-
-### nacional - porto (N/A, 15/02/2026 11:37 Lima)
-
-- **Várias mudanças: o onze do FC Porto para a deslocação à Choupana**: [Link](https://www.abola.pt/noticias/varias-mudancas-o-onze-do-fc-porto-para-a-deslocacao-a-choupana-2026021513082233855)
-- **AO VIVO: Witi faz o primeiro remate do Nacional, sem assustar Diogo Costa (25')**: [Link](https://www.flashscore.pt/noticias/futebol-liga-portugal-betclic-ao-vivo-witi-faz-o-primeiro-remate-do-nacional-sem-assustar-diogo-costa-25/pphy0AgR/)
-- **Tiago Margarido: "Esperava Mora e Alan Varela, mas não Pietuszewski"**: [Link](https://www.ojogo.pt/futebol/artigo/tiago-margarido-esperava-mora-e-alan-varela-mas-nao-pietuszewski/18052366)
 
 
