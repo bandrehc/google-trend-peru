@@ -1,3 +1,71 @@
+### ppk (N/A, 18/02/2026 21:41 Lima)
+
+- **W styczniu do PPK przystąpiło ponad 61 tysięcy osób**: [Link](https://www.analizy.pl/puls-rynku/39344/biuletyn-ppk-luty-2026)
+- **Nowe emerytury Polaków z rekordem! Już 47 mld zł na kontach emerytalnych**: [Link](https://superbiz.se.pl/wiadomosci/nowe-emerytury-polakow-z-rekordem-juz-47-mld-zl-na-kontach-emerytalnych-aa-13az-TVs7-5925.html)
+- **Oto ile pracujący w Polsce odłożyli w PPK. W ciągu miesiąca wzrost o ponad 2 mld zł**: [Link](https://www.money.pl/gospodarka/oto-ile-pracujacy-w-polsce-odlozyli-w-ppk-w-ciagu-miesiaca-wzrost-o-ponad-2-mld-zl-7255744902998464a.html)
+
+
+### willax en vivo (N/A, 18/02/2026 21:41 Lima)
+
+- **Rafael López Aliaga afirma que el fujimorismo, por “venganza”, pacta para elegir a José Balcázar como nuevo presidente**: [Link](https://www.infobae.com/peru/2026/02/18/rafael-lopez-aliaga-afirma-que-el-fujimorismo-por-venganza-pacta-para-elegir-a-jose-balcazar-como-nuevo-presidente/)
+- **Alianzas políticas en Perú podrían cambiar el poder político**: [Link](https://peru21.pe/opinion/alianzas-politicas-en-peru-podrian-cambiar-el-poder-politico/)
+- **Keiko Fujimori: "Fuerza Popular no está postulando a nadie"**: [Link](https://canaln.pe/actualidad/keiko-fujimori-fuerza-popular-no-esta-postulando-nadie-n490417)
+
+
+### tomás martínez (N/A, 18/02/2026 21:41 Lima)
+
+- **Tomás Martínez no pudo conectar un centro de Benedetto**: [Link](https://www.ole.com.ar/ecuador/tomas-martinez-pudo-conectar-centro-benedetto_3_L0PNA58iOY.html)
+
+
+### sigrid bazán (N/A, 18/02/2026 21:41 Lima)
+
+- **Congresistas del Bloque Democrático se retiran y no votarán en la segunda vuelta para elegir al nuevo presidente**: [Link](https://rpp.pe/politica/congreso/sigrid-bazan-ruth-luque-y-edgar-reymundo-se-retiran-y-no-participaran-de-la-votacion-para-elegir-al-nuevo-presidente-noticia-1676500)
+- **🔴🔵#ExitosaPerú🇵🇪🇵🇪 | El Bloque Democrático anunció que no participarán de la segunda votación, luego del mal resultado que obtuvo su candidato Edgard Reymundo. Él, junto a Ruth Luque y Sigrid Bazán, cuestionaron a los representantes de los partid**: [Link](https://www.facebook.com/Exitosanoticias/posts/exitosaper%C3%BA-el-bloque-democr%C3%A1tico-anunci%C3%B3-que-no-participar%C3%A1n-de-la-segunda-vota/1354502193379502/)
+- **Edgard Reymundo no votó en segunda vuelta de elección en Congreso: “No queremos convalidarla”**: [Link](https://diariocorreo.pe/politica/edgard-reymundo-no-voto-en-segunda-vuelta-de-eleccion-en-congreso-no-queremos-convalidarla-noticia/)
+
+
+### elecciones 2026 (N/A, 18/02/2026 21:41 Lima)
+
+- **CCL pide al nuevo presidente garantizar la continuidad de las líneas económicas estratégicas**: [Link](https://gestion.pe/peru/politica/ccl-pide-al-nuevo-presidente-de-la-republica-garantizar-la-continuidad-de-las-lineas-economicas-estrategicas-noticia/)
+- **CCL advierte que crisis política afecta crecimiento, inversión y MYPE**: [Link](https://canaln.pe/actualidad/ccl-inestabilidad-politica-afecta-crecimiento-economico-n490404)
+- **CCL insta a garantizar continuidad económica en 2026**: [Link](https://elcomercio.pe/economia/ccl-pide-reducir-la-incertidumbre-politica-y-garantizar-continuidad-economica-ante-elecciones-2026-ultimas-noticia/)
+
+
+### edgar reymundo (N/A, 18/02/2026 21:41 Lima)
+
+- **Edgar Reymundo: Mientras fue jefe de Migraciones se comunicaba con exoperador de Montesinos**: [Link](https://peru21.pe/investigacion/edgar-reymundo-se-comunicaba-con-exasesor-de-vladimiro-montesinos/)
+- **Anuncian postulación de congresista Edgard Reymundo para que asuma la presidencia de la República transitoriamente**: [Link](https://lpderecho.pe/bloque-democratico-popular-anuncia-postulacion-congresista-edgard-reymundo-presidenciabloque-democratico-popular-anuncia-postulacion-congresista-edgard-reymundo-presidencia/)
+- **Reymundo Mercado postula a la Presidencia del Congreso**: [Link](https://caretas.pe/politica/reymundo-mercado-postula-a-la-presidencia-del-congreso/)
+
+
+### maria del carmen alva prieto (N/A, 18/02/2026 21:41 Lima)
+
+- **Alva es la mejorcita por Aldo Mariátegui**: [Link](https://peru21.pe/opinion/alva-es-la-mejorcita-por-aldo-mariategui/)
+- **Jaloneos, empujones e insultos: las polémicas de María del Carmen Alva en el Congreso de la República**: [Link](https://www.infobae.com/peru/2026/02/18/jaloneos-empujones-e-insultos-las-polemicas-de-maria-del-carmen-alva-en-el-congreso-de-la-republica/)
+- **Fuerza Popular anunció que respaldará candidatura de María del Carmen Alva a la presidencia de la Mesa Directiva**: [Link](https://rpp.pe/politica/actualidad/fuerza-popular-anuncio-que-respaldara-candidatura-de-maria-del-carmen-alva-a-la-presidencia-de-la-mesa-directiva-noticia-1676477)
+
+
+### balcazar (N/A, 18/02/2026 21:41 Lima)
+
+- **Pleno del Congreso inicia sesión clave para elegir al nuevo presidente del Congreso**: [Link](https://comunicaciones.congreso.gob.pe/noticias/pleno-del-congreso-inicia-sesion-clave-para-elegir-al-nuevo-presidente-del-congreso/)
+- **Alva y Balcázar pasan a segunda vuelta en el Congreso**: [Link](https://canaln.pe/actualidad/alva-y-balcazar-pasan-segunda-vuelta-congreso-n490422)
+- **Congreso define en segunda vuelta Presidencia de la República [transmisión en vivo]**: [Link](https://andina.pe/agencia/noticia-congreso-define-segunda-vuelta-presidencia-de-republica-transmision-vivo-1063632.aspx)
+
+
+### congresista balcazar (N/A, 18/02/2026 21:41 Lima)
+
+- **ICAL protesta por postulación de José Balcázar a la presidencia: exdecano fue expulsado tras imputación de apropiación de fondos y otros**: [Link](https://lpderecho.pe/ical-protesta-postulacion-jose-balcazar-presidencia-exdecano-expulsado-tras-imputacion-apropiacion-fondos-otros/)
+- **José Balcazar, candidato para reemplazar a José Jerí, y la vez que defendió el matrimonio infantil desde los 14 años**: [Link](https://www.infobae.com/peru/2026/02/18/jose-balcazar-posible-reemplazo-de-jose-jeri-y-la-vez-que-defendio-el-matrimonio-infantil-desde-los-14-anos/)
+- **Waldemar Cerrón defiende candidatura de José María Balcázar: Hemos considerado el más idóneo**: [Link](https://canaln.pe/actualidad/waldemar-cerron-sobre-jose-maria-balcazar-hemos-considerado-mas-idoneo-n490405)
+
+
+### junior - américa (N/A, 18/02/2026 21:41 Lima)
+
+- **Cristian Barrios y su noche más especial: el hincha de Junior que ahora enfrenta a su exclub América**: [Link](https://www.espn.com.pe/futbol/colombia/nota/_/id/16327917/cristian-barrios-noche-especial-hincha-junior-enfrenta-exclub-america)
+- **"Felices de pagarle a él": Hoeneß reveló cómo fue negociación de Bayern con Luis Díaz**: [Link](https://www.espn.com.pe/futbol/alemania/nota/_/id/16322880/uli-hoeneB-felices-pagarle-a-el-revelo-negociacion-bayern-munich-luis-diaz)
+- **Luis Díaz enalteció a Bayern Múnich y le dio donde más duele al Liverpool: “Ser feliz es lo más importante ...**: [Link](https://bolavip.com/pe/futbol-europeo/luis-diaz-enaltecio-a-bayern-munich-y-le-dio-donde-mas-duele-al-liverpool-ser-feliz-es-lo-mas-importante-para-un-jugador)
+
+
 ### serie a (N/A, 18/02/2026 15:48 Lima)
 
 - **Maignan la passa a Nico Paz e subisce gol! L'incredibile errore in Milan-Como**: [Link](https://www.corrieredellosport.it/foto/calcio/serie-a/milan/2026/02/18-146702070/maignan_la_passa_a_nico_paz_e_subisce_gol_l_incredibile_errore_in_milan-como)
@@ -955,72 +1023,5 @@ Sin noticias relacionadas disponibles.
 - **Várias mudanças: o onze do FC Porto para a deslocação à Choupana**: [Link](https://www.abola.pt/noticias/varias-mudancas-o-onze-do-fc-porto-para-a-deslocacao-a-choupana-2026021513082233855)
 - **AO VIVO: Witi faz o primeiro remate do Nacional, sem assustar Diogo Costa (25')**: [Link](https://www.flashscore.pt/noticias/futebol-liga-portugal-betclic-ao-vivo-witi-faz-o-primeiro-remate-do-nacional-sem-assustar-diogo-costa-25/pphy0AgR/)
 - **Tiago Margarido: "Esperava Mora e Alan Varela, mas não Pietuszewski"**: [Link](https://www.ojogo.pt/futebol/artigo/tiago-margarido-esperava-mora-e-alan-varela-mas-nao-pietuszewski/18052366)
-
-
-### parma vs (N/A, 15/02/2026 11:37 Lima)
-
-- **Parma vs. Verona (15 de Feb., 2026) Resultados en Vivo**: [Link](https://www.espn.com.pe/futbol/partido/_/juegoId/737029)
-- **Serie A: Hellas Verona busca salir del último lugar ante Parma**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-hellas-verona-busca-salir-del-ultimo-lugar-ante-parma-noticia-1675854)
-
-
-### elecciones cal (N/A, 15/02/2026 11:37 Lima)
-
-- **CAL elegirá este 15 de febrero a su representante ante el Pleno del JNE**: [Link](https://caretas.pe/politica/cal-elegira-este-15-de-febrero-a-su-representante-ante-el-pleno-del-jne/)
-- **Elecciones con discriminación para representar ante el jurado nacional de elecciones**: [Link](https://lpderecho.pe/elecciones-con-discriminacion-para-representar-ante-el-jurado-nacional-de-elecciones/)
-- **Denuncian irregularidades en elecciones en el CAL: "Tenemos que tener más garantías", señala Abanto**: [Link](https://panamericana.pe/eldominical/politica/465382-denuncian-irregularidades-elecciones-cal-garantias-senala-abanto)
-
-
-### rayo vallecano - atlético madrid (N/A, 15/02/2026 11:37 Lima)
-
-- **Rayo Vallecano - Atlético de Madrid hoy, en directo: última hora, LaLiga EA Sports en vivo**: [Link](https://as.com/futbol/primera/rayo-vallecano-atletico-de-madrid-hoy-en-directo-ultima-hora-laliga-ea-sports-en-vivo-f202602-d/)
-- **Apuestas y Pronóstico del Rayo Vallecano vs Atlético Madrid 15/02/26**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2026/febrero/pronostico-rayo-vallecano-vs-atletico-madrid-15-02-26)
-- **Rayo Vallecano-Atlético de Madrid: Alineaciones probables, estadísticas y cómo ver por TV (16:15)**: [Link](https://espanol.eurosport.com/futbol/la-liga/2025-2026/rayo-vallecano-atletico-de-madrid-la-liga-alineaciones-como-ver-tv-online-estadisticas_sto23270818/story.shtml)
-
-
-### real oviedo - athletic (N/A, 15/02/2026 08:03 Lima)
-
-- **Apuestas y Pronóstico del Real Oviedo vs Athletic Club 15/02/26**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2026/febrero/pronostico-real-oviedo-vs-athletic-club-15-02-26)
-- **LaLiga EA Sports: Real Oviedo se concentra para salir del último lugar ante Athletic Bilbao**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-real-oviedo-se-concentra-para-salir-del-ultimo-lugar-ante-athletic-bilbao-noticia-1675851)
-- **Valverde sobre Nico Williams: “Así no podemos seguir”**: [Link](https://www.mundodeportivo.com/futbol/athletic-bilbao/20260215/1002621079/valverde-sobre-nico-williams-asi-seguir.html)
-
-
-### birmingham city - leeds (N/A, 15/02/2026 08:03 Lima)
-
-- **FA Cup LIVE: Build-up, team news, scores and live text updates from the fourth round of the FA Cup**: [Link](https://www.bbc.com/sport/football/live/cdree8627net)
-- **Team News: Birmingham City vs Leeds United**: [Link](https://www.leedsunited.com/en/news/team-news-birmingham-city-vs-leeds-united)
-- **Information for supporters travelling to St. Andrew's Stadium**: [Link](https://onefootball.com/de/news/information-for-supporters-travelling-to-st-andrews-stadium-42408118)
-
-
-### feyenoord - go ahead eagles (N/A, 15/02/2026 08:03 Lima)
-
-- **Live Eredivisie | Puntenverlies dreigt voor Feyenoord tegen tiental Go Ahead**: [Link](https://www.nu.nl/voetbal/6386164/live-eredivisie-puntenverlies-dreigt-voor-feyenoord-tegen-tiental-go-ahead.html)
-- **Van Persie over Sauer: "Aankomende periode moeten we kijken hoe dat eruitziet"**: [Link](https://1908.nl/artikelen/van-persie-over-sauer-aankomende-periode-moeten-we-kijken-hoe-dat-eruitziet)
-- **VI Live: cynisch gejuich in De Kuip na mislukte actie invaller Borges**: [Link](https://www.vi.nl/nieuws/vi-live-cynisch-gejuich-in-de-kuip-na-mislukte-actie-invaller-borges)
-
-
-### feyenoord vs (N/A, 15/02/2026 08:03 Lima)
-
-- **Feyenoord Battle Go Ahead Eagles As Second Place Hangs In Balance**: [Link](https://evrimagaci.org/gpt/feyenoord-battle-go-ahead-eagles-as-second-place-hangs-in-balance-529299)
-- **How to watch today's Feyenoord vs Go Ahead Eagles Eredivisie game: Live stream, TV channel, and start time**: [Link](https://www.goal.com/en-ca/news/how-to-watch-feyenoord-go-ahead-eagles-15022026/blt76348bfa48c08dd2)
-- **Preview: Feyenoord vs Go Ahead Eagles - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/feyenoord/preview/feyenoord-vs-go-ahead-eagles-prediction-team-news-lineups_591963.html)
-
-
-### udinese - sassuolo (N/A, 15/02/2026 08:03 Lima)
-
-- **Udinese, ripartire è un must: contro il Sassuolo è l’occasione del riscatto**: [Link](https://www.messaggeroveneto.it/speciali/udinese-calcio/udinese-sassuolo-probabili-formazioni-serie-a-eht5r1t0)
-- **Calcio Live News: tutte le notizie di giornata in tempo reale**: [Link](https://www.diretta.it/news/calcio-live-news-alle-12-30-in-campo-udinese-sassuolo-in-serata-il-big-match-napoli-roma/ADhcZEsm/)
-- **Serie A, le probabili formazioni di oggi 15 febbraio**: [Link](https://kisskiss.it/sport/serie-a-le-probabili-formazioni-di-oggi-15-febbraio/)
-
-
-### clima hoy (N/A, 15/02/2026 08:03 Lima)
-
-Sin noticias relacionadas disponibles.
-
-
-### san valentín frases cortas amistad (N/A, 15/02/2026 03:39 Lima)
-
-- **💛 Las mejores 300 frases bonitas del 14 de febrero para enviar en San Valentín y el Día del Amor y la Amistad**: [Link](https://gestion.pe/mix/respuestas/300-frases-creativas-del-14-de-febrero-para-celebrar-san-valentin-2026-con-mensajes-bonitos-sobre-el-amor-y-la-amistad-whatsapp-canva-pinterest-nnda-nnrt-noticia/)
-- **❤️‍🔥 Más de 20 tarjetas del Día del Amor y la Amistad 2026 para enviar a tu novia este 14 de febrero**: [Link](https://elcomercio.pe/mag/respuestas/20-tarjetas-creativas-por-el-dia-del-amor-y-la-amistad-2026-para-compartir-el-14-de-febrero-con-mensajes-romanticos-y-saludos-bonitos-whatsapp-pinterest-nnda-nnrt-noticia/)
-- **¡Toma nota! Los mensajes de San Valentín que harán que tu pareja se enamore de ti otra vez**: [Link](https://www.besame.fm/2026/toma-nota-los-mensajes-de-san-valentin-que-haran-que-tu-pareja-se-enamore-de-ti-otra-vez-236860.html)
 
 
