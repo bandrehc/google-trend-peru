@@ -1,3 +1,17 @@
+### temblor hoy (N/A, 19/02/2026 03:53 Lima)
+
+- **IGP Historial y registro de Temblores en Lima Perú: Sismos magnitud y epicentro al cierre**: [Link](https://rpp.pe/lima/desastres-naturales/temblor-en-peru-hoy-16-de-febrero-magnitud-y-epicentro-del-sismo-segun-igp-live-3180)
+- **Temblor hoy en Perú, lunes 16 de febrero: sismo de magnitud 4.1 se registra en Trujillo**: [Link](https://andina.pe/agencia/noticia-temblor-hoy-peru-lunes-16-febrero-sismo-magnitud-41-se-registra-trujillo-1063241.aspx)
+- **Tres sismos remecen el país en menos de 24 horas: Piura, Lima y Arequipa**: [Link](https://caretas.pe/politica/tres-sismos-remecen-el-pais-en-menos-de-24-horas-piura-lima-y-arequipa/)
+
+
+### norma yarrow (N/A, 19/02/2026 03:53 Lima)
+
+- **Norma Yarrow tras elección de Balcázar: “Defenderemos a la población contra esta izquierda corrupta y estos pactos 'fujicerronistas'”**: [Link](https://rpp.pe/politica/congreso/norma-yarrow-tras-eleccion-de-balcazar-defenderemos-a-la-poblacion-contra-esta-izquierda-corrupta-y-estos-pactos-fujicerronistas-noticia-1676514)
+- **🛑 En medio de las mociones de censura contra José Jerí, la congresista Norma Yarrow responsabiliza al fujimorismo de llevar al país a la debacle. 📲 Si quieres estar más informado, visita nuestra web: https://www.expreso.com.pe**: [Link](https://www.facebook.com/diario.expreso/posts/-en-medio-de-las-mociones-de-censura-contra-jos%C3%A9-jer%C3%AD-la-congresista-norma-yarro/1336166595207615/)
+- **🛑 En medio de las mociones de censura contra José Jerí, la congresista Norma Yarrow responsabiliza al fujimorismo de llevar al país a la debacle. 📲 Si quieres estar más informado, visita nuestra web: https://www.expreso.com.pe**: [Link](https://www.instagram.com/reel/DU3kkvEitM0/)
+
+
 ### melcochita (N/A, 19/02/2026 00:23 Lima)
 
 - **Melcochita se pronunció tras disculpas de Monserrat**: [Link](https://www.americatv.com.pe/america-hoy/melcochita-se-pronuncio-disculpas-publicas-monserrat-noticia-162970)
@@ -1007,19 +1021,5 @@ Sin noticias relacionadas disponibles.
 - **Zaragoza ready to replace Soule in Roma’s XI vs Napoli**: [Link](https://romapress.net/zaragoza-ready-to-replace-soule-in-romas-xi-vs-napoli/)
 - **Six Points and No Mercy: Roma’s Season on Trial in Naples**: [Link](https://www.chiesaditotti.com/roma-matchday-coverage/39714/six-points-and-no-mercy-romas-season-on-trial-in-naples)
 - **Dybala Sidelined Again as Roma Faces Crucial Clash**: [Link](https://www.ilmessaggero.it/en/dybala_sidelined_again_as_roma_faces_crucial_clash-9359987.html)
-
-
-### napoles vs (N/A, 15/02/2026 15:33 Lima)
-
-- **Serie A: Napoli recibe a Roma para disputar el "Derby Del Sole"**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-napoli-recibe-a-roma-para-disputar-el-derby-del-sole-noticia-1675887)
-- **Apuestas y pronósticos Nápoles vs Roma**: [Link](https://www.marca.com/apuestas-deportivas/predicciones/2026/02/14/apuestas-pronosticos-napoles-vs-roma.html)
-- **Napoli vs Roma: ¡Incrementa tus ganancias hasta 200% con la Serie A en Meridianbet!**: [Link](https://ovacion.pe/noticias/nota-promocional/napoli-vs-roma-incrementa-tus-ganancias-hasta-200-serie-meridianbet)
-
-
-### ben shelton (N/A, 15/02/2026 15:33 Lima)
-
-- **Finals previews and predictions: Fritz vs. Shelton, Cerundolo vs. Darderi**: [Link](https://tenngrand.com/tennis-previews-predictions-fritz-vs-shelton-cerundolo-vs-darderi/)
-- **ATP Dallas: Cilic out of final, Fritz better in two tie-breaks**: [Link](https://www.portal.hr/en/novosti/sport-hr/105112-atp-dallas-cilic-bez-finala-fritz-bolji-u-dva-tie-breaka)
-- **Taylor Fritz survives injury scare to enter semis in Dallas Open**: [Link](https://www.sentinelassam.com/sports-news/taylor-fritz-survives-injury-scare-to-enter-semis-in-dallas-open)
 
 
