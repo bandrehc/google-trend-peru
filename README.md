@@ -1,3 +1,73 @@
+### berrettini (N/A, 20/02/2026 00:18 Lima)
+
+- **Comments Berrettini Lajovic - Rio de Janeiro 2026**: [Link](https://en.tennistemple.com/match/berrettini-lajovic-rio-de-janeiro-2026/9453890/comments)
+- **Berrettini enjoys Rio Carnival with his grandmother and Ancelotti**: [Link](https://tennistonic.com/tennis-news/962442/berrettini-enjoys-rio-carnival-with-his-grandmother-and-ancelotti/)
+- **Marcelo Tomas Barrios Vera vs. Matteo Berrettini prediction, odds, picks for ATP Rio Open 2026**: [Link](https://www.dimers.com/news/marcelo-barrios-vera-vs-matteo-berrettini-tennis-prediction-atp-rio-open-2026-ac)
+
+
+### liam gallagher (N/A, 20/02/2026 00:18 Lima)
+
+- **‘90s rock band working on first new music in 18 years (report)**: [Link](https://www.syracuse.com/entertainment/2026/02/90s-rock-band-working-on-first-new-music-in-18-years-report.html)
+- **Oasis Betting Odds: 4/6 to Play Etihad in 2027 as New Music Rumours Grow**: [Link](https://www.olbg.com/news/oasis-betting-odds-4-6-play-etihad-2027-new-music-rumours-grow)
+- **Noel Gallagher back in the recording studio after Oasis' plans for new music in 2027 are revealed**: [Link](https://www.thesun.co.uk/tvandshowbiz/38263885/noel-gallagher-recording-studio-oasis-new-music/)
+
+
+### jujutsu kaisen temporada 3 (N/A, 20/02/2026 00:18 Lima)
+
+- **Jujutsu Kaisen Temporada 3 Episodio 8: por qué ha sido retrasado hasta el 26 de febrero**: [Link](https://elcomercio.pe/mag/fama/que-ver/jujutsu-kaisen-temporada-3-episodio-8-por-que-ha-sido-retrasado-hasta-el-26-de-febrero-anime-de-crunchyroll-nnda-nnlt-noticia/)
+- **'Jujutsu Kaisen' temporada 3: fecha de estreno del capítulo 8 y a qué hora verlo en Crunchyroll**: [Link](https://rpp.pe/cultura/anime/jujutsu-kaisen-temporada-3-capitulo-especial-fecha-de-estreno-horario-y-cuando-sale-el-episodio-8-en-crunchyroll-noticia-1676606)
+- **Jujutsu Kaisen 3x08 se retrasa: cuándo y a qué hora llega a Crunchyroll**: [Link](https://geek.reporteindigo.com/noticia/jujutsu-kaisen-episodio-8-estreno-en-crunchyroll-20260218-0014.html)
+
+
+### vladimir cerrón (N/A, 20/02/2026 00:18 Lima)
+
+- **Vladimir Cerrón pide a José Balcázar dar de baja al comandante Óscar Arriola**: [Link](https://peru21.pe/politica/vladimir-cerron-pide-jose-balcazar-dar-de-baja-al-comandante-oscar-arriola/)
+- **El primer día de José María Balcázar en Palacio: la invitación a Vladimir Cerrón, las reuniones y los ministros que no continuarán**: [Link](https://elcomercio.pe/politica/el-primer-dia-de-jose-maria-balcazar-en-palacio-las-reuniones-la-invitacion-a-cerron-y-los-ministros-que-no-continuaran-tlc-nota-noticia/)
+- **General Víctor Revoredo: PNP responde a la Constitución y autoridades legalmente nombradas**: [Link](https://rpp.pe/politica/gobierno/general-victor-revoredo-pnp-responde-a-la-constitucion-y-autoridades-legalmente-nombradas-noticia-1676584)
+
+
+### celtics - warriors (N/A, 20/02/2026 00:18 Lima)
+
+- **Warriors vs. Celtics injury report: Steph Curry out, Kristaps Porziņģis questionable**: [Link](https://www.goldenstateofmind.com/warriors-injury-report/108588/warriors-celtics-injury-report-steph-curry-kristaps-porzingis)
+- **Caesars Sportsbook Promo Code 'COVERS250BM' Gives A $250 Bet Match For A First Bet On Celtics-Warriors**: [Link](https://www.covers.com/daily-promos/caesars-sportsbook-promo-code-nba-celtics-warriors-02-19-2026)
+- **How to watch Boston Celtics game today free**: [Link](https://www.masslive.com/tv/2026/02/how-to-watch-boston-celtics-game-today-free.html-4)
+
+
+### matteo berrettini (N/A, 20/02/2026 00:18 Lima)
+
+- **LIVE RANKINGS. Lajovic betters his rank ahead of facing Berrettini in Rio de Janeiro**: [Link](https://tennistonic.com/tennis-news/962863/live-rankings-lajovic-betters-his-rank-ahead-of-facing-berrettini-in-rio-de-janeiro/)
+- **Matteo Berrettini vs. Dusan Lajovic prediction, odds, picks for ATP Rio Open 2026**: [Link](https://www.dimers.com/news/matteo-berrettini-vs-dusan-lajovic-tennis-prediction-atp-rio-open-2026-ac)
+- **Rio Open 2026 Day 4: Men's singles predictions ft. Matteo Berrettini vs Dusan Lajovic, Tomas Martin Etcheverry vs Vilius Gaubas**: [Link](https://www.sportskeeda.com/tennis/rio-open-2026-day-4-men-s-singles-predictions-ft-matteo-berrettini-vs-dusan-lajovic-tomas-martin-etcheverry-vs-vilius-gaubas)
+
+
+### taylor fritz (N/A, 20/02/2026 00:18 Lima)
+
+- **Schedule and Where to Watch Rafa Jódar Today Live in 2nd Round at Delray Beach**: [Link](https://www.puntodebreak.com/en/2026/02/19/schedule-and-where-to-watch-rafa-jodar-today-live-in-2nd-round-at-delray-beach)
+- **Highlights: Fritz holds off #NextGenATP star Jodar in Delray Beach 2026**: [Link](https://www.atptour.com/en/video/highlights-fritz-holds-off-nextgenatp-star-jodar-in-delray-beach-2026)
+- **Best bets today for all sports: Wednesday's picks include Taylor Fritz vs. Rafael Jodar tennis play [2/18/2026]**: [Link](https://www.dimers.com/news/best-bets-wednesday-02-18-2026-ac)
+
+
+### esclerosis lateral amiotrófica (N/A, 20/02/2026 00:18 Lima)
+
+- **Eric Dane, actor de "Grey’s Anatomy" y "Euphoria", muere a los 53 años**: [Link](https://cnnespanol.cnn.com/2026/02/19/entretenimiento/eric-dane-actor-muere-trax)
+- **Muere el actor estadounidense Eric Dane a los 53 años**: [Link](https://www.dw.com/es/muere-el-actor-estadounidense-eric-dane-a-los-53-a%C3%B1os/a-76052157)
+- **Muere a los 53 años Eric Dane, querido actor de "Grey’s Anatomy" que padecía ELA**: [Link](https://www.biobiochile.cl/noticias/espectaculos-y-tv/celebridades/2026/02/19/muere-a-los-53-anos-eric-dane-querido-actor-de-greys-anatomy-que-padecia-ela.shtml)
+
+
+### los angeles galaxy (N/A, 20/02/2026 00:18 Lima)
+
+- **Joseph Paintsil faces Panama preview ahead of CONCACAF clash**: [Link](https://citisportsonline.com/2026/02/joseph-paintsil-faces-panama-preview-ahead-of-concacaf-clash/)
+- **How to watch Sporting San Miguelito vs LA Galaxy in the USA: Live Stream and TV for 2026 CONCACAF Champions...**: [Link](https://worldsoccertalk.com/watch-on-us-tv/how-to-watch-sporting-san-miguelito-vs-la-galaxy-in-the-usa-live-stream-and-tv-for-2026-concacaf-champions-cup/)
+- **Galaxy open another season without Riqui Puig, but with more depth**: [Link](https://www.latimes.com/sports/soccer/galaxy/story/2026-02-18/galaxy-open-another-season-without-riqui-puig-but-with-more-depth)
+
+
+### laura pausini (N/A, 20/02/2026 00:18 Lima)
+
+- **Laura Pausini co-conduttrice a Sanremo: «La più pazza delle mie avventure professionali, non permetterò a nessuno di rovinarmela»**: [Link](https://www.corriere.it/spettacoli/festival-sanremo/26_febbraio_19/laura-pausini-co-conduttrice-a-sanremo-la-piu-pazza-delle-mie-avventure-professionali-non-permettero-a-nessuno-di-rovinarmela-6d0dfff6-3a10-4a16-b614-44cee8058xlk.shtml)
+- **Pausini, 'non permetterò a nessuno di rovinare questo momento unico'**: [Link](https://www.ansa.it/sito/notizie/cultura/musica/2026/02/19/pausini-non-permettero-a-nessuno-di-rovinare-questo-momento-unico_1372e234-c33d-4159-88a6-642003b4c104.html)
+- **Laura Pausini: "Un rimpianto? Ho scartato Leonardo DiCaprio per un videoclip"**: [Link](https://www.allmusicitalia.it/news/laura-pausini-leonardo-dicaprio-videoclip-rimpianto.html)
+
+
 ### eric dane (N/A, 19/02/2026 21:36 Lima)
 
 - **Eric Dane, Grey’s Anatomy Star, Dies At 53**: [Link](https://screenrant.com/eric-dane-death-obituary/)
@@ -956,75 +1026,5 @@ Sin noticias relacionadas disponibles.
 - **Serie A: Cagliari vs. Lecce – Confirmed line-ups and updates**: [Link](https://sports.yahoo.com/articles/serie-cagliari-vs-lecce-confirmed-192000476.html)
 - **Cagliari vs. Lecce: Serie A betting odds, prediction, pick**: [Link](https://www.usatoday.com/story/sports/soccer/2026/02/16/cagliari-vs-lecce-serie-a-betting-odds-prediction-pick/88697491007/)
 - **Serie A Matchday 25: Predicted Lineups for Cagliari vs Lecce**: [Link](https://www.filmogaz.com/153000)
-
-
-### macclesfield fc (N/A, 16/02/2026 15:38 Lima)
-
-- **How the greatest FA Cup upset ever is just the beginning for Macclesfield FC**: [Link](https://www.cnn.com/2026/02/16/sport/macclesfield-greatest-fa-cup-upset-soccer)
-- **'We will never forget that lad, his position in the changing room will always be there. Before a game we'll put a programme on his seat. He's our 12th man in every game' Macclesfield owner on tragic passing of Ethan McLeod and inspired FA Cup run**: [Link](https://www.fourfourtwo.com/team/we-will-never-forget-that-lad-his-position-in-the-changing-room-will-always-be-there-before-a-game-well-put-a-programme-on-his-seat-hes-our-12th-man-in-every-game-macclesfield-owner-on-tragic-passing-of-ethan-mcleod-and-inspired-fa-cup-run)
-- **Purpose and togetherness: What the soccer world can learn from FA Cup heroes Macclesfield**: [Link](https://ghanasoccernet.com/purpose-and-togetherness-what-the-soccer-world-can-learn-from-fa-cup-heroes-macclesfield)
-
-
-### girona - barcelona (N/A, 16/02/2026 15:38 Lima)
-
-- **Official: Barcelona starting lineup against Girona | La Liga MD 24**: [Link](https://sports.yahoo.com/articles/official-barcelona-starting-lineup-against-185500518.html)
-- **Girona vs. Barcelona: La Liga betting odds, prediction, pick**: [Link](https://www.usatoday.com/story/sports/soccer/2026/02/16/girona-vs-barcelona-la-liga-betting-odds-prediction-pick/88697543007/)
-- **Barcelona XI vs. Girona: Raphinha, Rashford Verdict Reached—Injury News, Predicted Lineup**: [Link](https://www.si.com/soccer/barcelona-xi-vs-girona-injury-news-predicted-lineup-2-16-26)
-
-
-### cagliari - lecce (N/A, 16/02/2026 15:38 Lima)
-
-- **Cagliari-Lecce, le formazioni ufficiali**: [Link](https://gianlucadimarzio.com/cagliari-lecce-formazioni-ufficiali-serie-a-16-febbraio-2026/)
-- **CALCIO Campionato Serie A 25ª giornata – CAGLIARI vs LECCE Le Formazioni Ufficiali**: [Link](https://www.lecceoggi.com/calcio-campionato-serie-a-25a-giornata-cagliari-vs-lecce-le-formazioni-ufficiali/)
-- **LIVE Cagliari-Lecce 0-0: Zappa spara alto un rigore in movimento**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Cagliari/16-02-2026/cagliari-lecce-live-risultato-e-gol-in-diretta-serie-a.shtml)
-
-
-### macclesfield - brentford (N/A, 16/02/2026 15:38 Lima)
-
-- **Saga of the Silkmen: calm before the storm in Macclesfield as Brentford await**: [Link](https://www.theguardian.com/football/2026/feb/16/saga-of-the-silkmen-calm-before-the-storm-in-macclesfield-as-brentford-await)
-- **Debut for new signing? Predicted Brentford XI v Macclesfield**: [Link](https://www.richmondandtwickenhamtimes.co.uk/sport/brentfordfc/25856227.kaye-furo-set-feature-predicted-bees-xi-v-macclesfield/)
-- **Be warned, Brentford. Mighty Macc have another headline to write!**: [Link](https://www.thenationalleague.org.uk/news/2026/february/16/be-warned--brentford--mighty-macc-have-another-headline-to-write-/)
-
-
-### robert duvall (N/A, 16/02/2026 15:38 Lima)
-
-- **Oscar-winning actor Robert Duvall dead at 95**: [Link](https://www.cnn.com/2026/02/16/entertainment/robert-duvall-death)
-- **Where to Watch Robert Duvall’s Top Performances**: [Link](https://www.nytimes.com/2026/02/16/movies/robert-duvall-godfather-apocalypse-now-streaming.html)
-- **Robert Duvall, Apocalypse Now and Godfather star, dies aged 95**: [Link](https://www.theguardian.com/film/2026/feb/16/robert-duvall-dies-apocalypse-now-godfather-mash-to-kill-a-mockingbird)
-
-
-### liga de campeones de la afc (N/A, 16/02/2026 15:38 Lima)
-
-- **Fecha del partido entre Al-Shorta y Nasaf en la Liga de Campeones**: [Link](https://www.ysscores.com/es/news/13907050/Fecha-del-partido-entre-Al-Shorta-y-Nasaf-en-la-Liga-de-Campeones)
-- **Al-Sharjah vs Nasaf: pronósticos, cuotas, y datos para apostar!**: [Link](https://www.apwin.com/es/pronosticos/al-sharjah-vs-nasaf-pronostico-afc-champions-league-16-02-2026/)
-- **Nasaf vs Al Shorta: pronósticos, cuotas y datos para apostar**: [Link](https://www.apwin.com/es/pronosticos/nasaf-vs-al-shorta-pronostico-afc-champions-league-09-02-2026/)
-
-
-### al hilal - al-wahda (N/A, 16/02/2026 15:38 Lima)
-
-- **MD8: Al Hilal SFC (KSA) 2-1 Al Wahda FC (UAE)**: [Link](https://www.the-afc.com/en/club/afc_champions_league_elite.html/news/md8-al-hilal-sfc-ksa-2-1-al-wahda-fc-uae)
-- **Potential Defensive Blow for Al-Hilal Before the AFC Champions League**: [Link](https://www.ysscores.com/en/news/13911759/Potential-Defensive-Blow-for-Al-Hilal-Before-the-AFC-Champions-League)
-- **Al Hilal vs Al-Wahda: Where to watch the match online, live stream, TV channels, and kick-off time**: [Link](https://www.goal.com/en/news/how-to-watch-al-hilal-v-al-wahda-16022026/bltcfd926ec7b3dde3f)
-
-
-### al-ahli saudi - shabab al-ahli (N/A, 16/02/2026 11:53 Lima)
-
-- **Al-Ahli Saudi's Expected Lineup Against Shabab Al-Ahli**: [Link](https://www.ysscores.com/en/news/13912201/Al-Ahli-Saudi's-Expected-Lineup-Against-Shabab-Al-Ahli)
-- **Al Ahli Saudi FC and Shabab Al Ahli Dubai Clash in Key Matchup**: [Link](https://news.ssbcrack.com/al-ahli-saudi-fc-and-shabab-al-ahli-dubai-clash-in-key-matchup/)
-- **Preview: Al Ahli vs Shabab Al Ahli Prediction, lineups, betting tips & odds | AFC Champions League Elite 2025-26**: [Link](https://khelnow.com/football/world-football-al-ahli-vs-shabab-al-ahli-preview-202602)
-
-
-### twitter (N/A, 16/02/2026 11:53 Lima)
-
-- **X outage takes down social media platform**: [Link](https://www.foxbusiness.com/fox-news-tech/x-outage-takes-down-social-media-platform)
-- **X Goes Down: Social Media Site Not Working for Thousands of Users Worldwide**: [Link](https://variety.com/2026/digital/news/x-twitter-down-outage-not-working-error-reports-1236664568/)
-- **‘Stranger Things’ Star Ties the Knot in Surprise Ceremony**: [Link](https://www.thedailybeast.com/elon-musks-social-media-site-tanks-as-x-goes-down-for-thousands/)
-
-
-### 16 de febrero que se celebra (N/A, 16/02/2026 11:53 Lima)
-
-- **Día de los Amores Imposibles: por qué se celebra este 16 de febrero**: [Link](https://www.clarin.com/internacional/dia-amores-imposibles-celebra-16-febrero_0_YkwGjOmUbC.html)
-- **Día de los Amores Imposibles: la fecha que reivindica los amores truncos y resignifica las historias que no pudieron ser**: [Link](https://www.infobae.com/peru/2026/02/15/dia-de-los-amores-imposibles-la-fecha-que-reivindica-los-amores-truncos-y-resignifica-las-historias-que-no-pudieron-ser/)
-- **El 16 de febrero recuerda a los amores que no pudieron ser**: [Link](https://misionescuatro.com/general/el-16-de-febrero-recuerda-a-los-amores-que-no-pudieron-ser/)
 
 
