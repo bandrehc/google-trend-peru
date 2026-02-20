@@ -1,3 +1,73 @@
+### eric dane (N/A, 19/02/2026 21:36 Lima)
+
+- **Eric Dane, Grey’s Anatomy Star, Dies At 53**: [Link](https://screenrant.com/eric-dane-death-obituary/)
+- **Eric Dane, ‘Grey’s Anatomy’ and ‘Euphoria’ Star, Dies at 53**: [Link](https://variety.com/2026/tv/news/eric-dane-dead-mcsteamy-greys-anatomy-euphoria-1236667968/)
+- **All About Eric Dane's 2 Kids, Daughters Billie and Georgia**: [Link](https://people.com/eric-dane-children-what-to-know-11910388)
+
+
+### mark zuckerberg (N/A, 19/02/2026 21:36 Lima)
+
+- **Mark Zuckerberg said he reached out to Apple CEO Tim Cook to discuss 'wellbeing of teens and kids'**: [Link](https://www.cnbc.com/2026/02/18/meta-mark-zuckerberg-social-media-safety-trial.html)
+- **Meta CEO Mark Zuckerberg to face jury in landmark social media addiction trial**: [Link](https://www.npr.org/2026/02/18/nx-s1-5716229/zuckerberg-social-media-addiction-trial)
+- **Zuckerberg defends Meta in landmark social media addiction trial**: [Link](https://www.bbc.com/news/articles/c5y42znjnjvo)
+
+
+### premios lo nuestro 2026 (N/A, 19/02/2026 21:36 Lima)
+
+- **Premio Lo Nuestro 2026 hoy EN VIVO: Arcángel dedica premio a su fallecido hermano**: [Link](https://www.univision.com/shows/premio-lo-nuestro/premio-lo-nuestro-2026-en-vivo-ganadores-nominados-actuaciones)
+- **Ve AQUÍ en vivo los Premio Lo Nuestro 2026**: [Link](https://www.lasestrellas.tv/famosos/ve-aqui-en-vivo-los-premio-lo-nuestro-2026)
+- **Una moda con mucha creatividad y sin reglas dominó la alfombra de Premio Lo Nuestro**: [Link](https://www.infobae.com/america/agencias/2026/02/20/una-moda-con-mucha-creatividad-y-sin-reglas-domino-la-alfombra-de-premio-lo-nuestro/)
+
+
+### vix (N/A, 19/02/2026 21:36 Lima)
+
+- **Keep an Eye on Wall Street's Outperforming 'Fear Gauge'**: [Link](https://www.schaeffersresearch.com/content/analysis/2026/02/19/keep-an-eye-on-wall-streets-outperforming-fear-gauge)
+- **Wall Street's 'fear gauge' is heading for its biggest daily drop in about two weeks as tech stocks bounce back**: [Link](https://www.marketwatch.com/livecoverage/stock-market-today-dow-sp500-nasdaq-higher-tech-turmoil-eases-treasury-yields/card/wall-street-s-fear-gauge-is-heading-for-its-biggest-daily-drop-in-about-two-weeks-as-tech-stocks-bounce-back-QlNaqc5SDor9QrPUZDHe?gaa_at=eafs&gaa_n=AWEtsqekzBAfarO63rx27AidC8Y1tJxxGgfcvJ0Foc5UaYS1C3aMDfVNIZZX&gaa_ts=6997cb94&gaa_sig=DAacjDqNtqU9SVFEfdgVA11R671yp3k7b20rEuyZFIVsturDVMnE_SXt87xDGgW3XVpjbmyWe4d9KZO9Hw2jlg%3D%3D)
+- **The Fear Gauge Awakens: VIX Hits 22.96 as AI ‘SaaSpocalypse’ Triggers Massive Growth-to-Value Rotation**: [Link](https://markets.financialcontent.com/stocks/article/marketminute-2026-2-18-the-fear-gauge-awakens-vix-hits-2296-as-ai-saaspocalypse-triggers-massive-growth-to-value-rotation)
+
+
+### deportivo táchira - tolima (N/A, 19/02/2026 21:36 Lima)
+
+- **Tolima vuelve a Libertadores con su fortaleza visitante como bandera ante Táchira**: [Link](https://www.espn.com.ar/futbol/copa-libertadores/nota/_/id/16331964/tachira-vs-tolima-vuelve-su-fortaleza-como-visitante)
+- **Video: El gol de Florez para abrir el marcador a favor de Tolima vs. Táchira**: [Link](https://espndeportes.espn.com/futbol/copa-libertadores/nota/_/id/16333956/video-el-gol-de-florez-para-abrir-el-marcador-a-favor-de-tolima-vs-tachira)
+- **Copa Libertadores: Se enfrentan Táchira y Tolima por la llave 2**: [Link](https://rpp.pe/futbol/ligas-internacionales/copa-libertadores-se-enfrentan-tachira-y-tolima-por-la-llave-2-noticia-1676447)
+
+
+### ignacio buse (N/A, 19/02/2026 21:36 Lima)
+
+- **Ignacio Buse y los Grand Slam en el horizonte: por qué destaca en la gira sudamericana y que debe pasar para estar en Roland Garros y Wimbledon**: [Link](https://elcomercio.pe/deporte-total/ignacio-buse-y-los-grand-slam-en-el-horizonte-por-que-destaca-en-la-gira-atp-sudamericana-y-que-debe-pasar-para-estar-en-roland-garros-y-wimbledon-tenis-noticia/)
+- **Ignacio Buse vs Joao Fonseca EN VIVO vía Disney+: se enfrentan por los octavos del Río Open 2026**: [Link](https://rpp.pe/tenis/mas-tenis/ignacio-buse-vs-joao-fonseca-en-vivo-a-que-hora-juegan-y-donde-ver-octavos-de-final-rio-open-via-atp-tv-link-gratis-noticia-1676504)
+- **¡Orgullo nacional! Ignacio Buse rompe su récord personal y ya es el número 91 del mundo**: [Link](https://peru21.pe/deportes/ignacio-buse-alcanza-puesto-91-atp-debut-hoy-en-el-atp-500-de-rio-de-janeiro/)
+
+
+### alianza vs boys (N/A, 19/02/2026 21:36 Lima)
+
+- **Gustavo Dulanto en la previa del Alianza Lima vs. Sport Boys: “Siempre que fui a Matute no me recibieron bien”**: [Link](https://depor.com/futbol-peruano/descentralizado/gustavo-dulanto-en-la-previa-del-alianza-lima-vs-sport-boys-siempre-que-fui-a-matute-no-me-recibieron-bien-noticia/)
+- **Pablo Guede hace cambios: retornos en el once de Alianza Lima para enfrentar a Sport Boys**: [Link](https://rpp.pe/futbol/descentralizado/alianza-lima-vs-sport-boys-el-once-probable-de-pablo-guede-en-duelo-clave-torneo-apertura-2026-noticia-1676601)
+- **¿A qué hora juega Alianza Lima vs Sport Boys y dónde ver partido de Liga 1 2026?**: [Link](https://libero.pe/futbol-peruano/liga-1/2026/02/18/hora-juega-alianza-lima-vs-sport-boys-canal-de-transmision-en-vivo-donde-ver-partido-de-liga-1-peru-apertura-887130)
+
+
+### botafogo vs. flamengo (N/A, 19/02/2026 21:36 Lima)
+
+- **Veja o que mudou no Fluminense desde a eliminação na Copa do Brasil para o Vasco**: [Link](https://ge.globo.com/futebol/times/fluminense/noticia/2026/02/19/veja-o-que-mudou-no-fluminense-desde-a-eliminacao-na-copa-do-brasil-para-o-vasco.ghtml)
+- **Bastidores de Fluminense 3 x 1 Bangu está no ar; Assista**: [Link](https://www.netflu.com.br/bastidores-de-fluminense-3-x-1-bangu-esta-no-ar-assista/)
+- **Fluminense segue preparação para enfrentar o Vasco na semifinal do Carioca**: [Link](https://www.gazetaesportiva.com/times/fluminense/fluminense-segue-preparacao-para-enfrentar-o-vasco-na-semifinal-do-carioca/)
+
+
+### lanús - flamengo (N/A, 19/02/2026 21:36 Lima)
+
+- **Lanús x Flamengo AO VIVO: link para assistir online (19/02)**: [Link](https://www.sportingnews.com/br/futebol/noticias/lanus-flamengo-ao-vivo-link-assistir-online-19-02/86fb00201c155a8ffc33f11b)
+- **Quanto ganha o campeão da Recopa Sul-Americana em 2026?**: [Link](https://www.goal.com/br/listas/quanto-ganha-campeao-recopa-sul-americana-2026/bltbc139fc2ff32d719)
+- **Greve geral na Argentina adia partidas de futebol no país; confira**: [Link](https://www.metropoles.com/esportes/greve-geral-na-argentina-adia-partidas-de-futebol-no-pais-confira)
+
+
+### lanus vs (N/A, 19/02/2026 21:36 Lima)
+
+- **Lanús derrotó a Flamengo y acaricia el título de la Recopa Sudamericana 2026**: [Link](https://libero.pe/futbol-internacional/2026/02/18/flamengo-vs-lanus-en-vivo-online-recopa-sudamericana-via-espn-disney-plus-lbev-1792692)
+- **El gol de Rodrigo Castillo que hace soñar a todo Lanús**: [Link](https://www.espn.com.ar/futbol/nota/_/id/16333998/video-gol-rodrigo-castillo-lanus-vs-flamengo-final-recopa-2026)
+- **Lanús sueña en grande: la palabra de Mauricio Pellegrino antes de la Recopa ante Flamengo**: [Link](https://espndeportes.espn.com/futbol/nota/_/id/16324652/lanus-palabra-mauricio-pellegrino-conmebol-recopa-sudamericana-flamengo)
+
+
 ### losc vs. estrella roja (N/A, 19/02/2026 15:39 Lima)
 
 - **Europa League: Por la llave 8 se enfrentarán Lille y Estrella Roja**: [Link](https://rpp.pe/futbol/ligas-internacionales/europa-league-por-la-llave-8-se-enfrentaran-lille-y-estrella-roja-noticia-1676390)
@@ -956,73 +1026,5 @@ Sin noticias relacionadas disponibles.
 - **Día de los Amores Imposibles: por qué se celebra este 16 de febrero**: [Link](https://www.clarin.com/internacional/dia-amores-imposibles-celebra-16-febrero_0_YkwGjOmUbC.html)
 - **Día de los Amores Imposibles: la fecha que reivindica los amores truncos y resignifica las historias que no pudieron ser**: [Link](https://www.infobae.com/peru/2026/02/15/dia-de-los-amores-imposibles-la-fecha-que-reivindica-los-amores-truncos-y-resignifica-las-historias-que-no-pudieron-ser/)
 - **El 16 de febrero recuerda a los amores que no pudieron ser**: [Link](https://misionescuatro.com/general/el-16-de-febrero-recuerda-a-los-amores-que-no-pudieron-ser/)
-
-
-### cronograma de pagos (N/A, 16/02/2026 11:53 Lima)
-
-Sin noticias relacionadas disponibles.
-
-
-### uni (N/A, 16/02/2026 08:16 Lima)
-
-- **Iowa State wrestling defeats UNI at home, wins eight of 10 bouts**: [Link](https://www.desmoinesregister.com/live-story/sports/college/iowa-state/wrestling/2026/02/15/iowa-state-uni-wrestling-score-live-updates-highlights-stats-results/88603390007/)
-- **No. 4 Cyclones Dominate No. 18 West Virginia 32-7**: [Link](https://cyclones.com/news/2026/2/13/wrestling-no-4-cyclones-dominate-no-18-west-virginia-32-7)
-- **Mountaineers Drop Road Dual to No. 4 Iowa State**: [Link](https://wvusports.com/news/2026/2/13/wrestling-mountaineers-drop-road-dual-to-no-4-iowa-state)
-
-
-### liga peruana de vóley alianza lima (N/A, 16/02/2026 08:16 Lima)
-
-- **Resultados de la Liga Peruana de Vóley en la fecha 7, fase 2: así van los equipos en el torneo**: [Link](https://www.infobae.com/peru/deportes/2026/02/14/resultados-de-la-liga-peruana-de-voley-en-la-fecha-7-fase-2-asi-van-los-equipos-en-el-torneo/)
-- **Retomó la punta: Alianza Lima venció 3-1 a Géminis por la fecha 7 de fase 2 de Liga Peruana de Vóley**: [Link](https://rpp.pe/voley/mas-voley/alianza-lima-vs-geminis-en-vivo-a-que-hora-juegan-y-como-ver-fecha-7-fase-2-liga-peruana-de-voley-2026-via-latina-voley-en-vivo-noticia-1675862)
-- **¡Todo apretado! Conoce resultados y tabla tras la 7ma. fecha de la Liga Peruana de Vóley**: [Link](https://ovacion.pe/noticias/voley-apuesta-total/todo-apretado-conoce-resultados-tabla-tras-7ma-fecha-liga-peruana)
-
-
-### dolar hoy (N/A, 16/02/2026 08:16 Lima)
-
-- **Precio del dólar de hoy, lunes 16 de febrero: cuál es el tipo de cambio del día**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-2026-cuanto-esta-el-dolar-este-lunes-16-de-febrero-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
-- **Dólar, cotización HOY en Perú: ¿cuál es el tipo de cambio este lunes 16 de febrero de 2026?**: [Link](https://www.expreso.com.pe/economia/dolar-cotizacion-hoy-en-peru-cual-es-el-tipo-de-cambio-este-lunes-16-de-febrero-de-2026-sunat-mef-bcrp-ultima-hora-ultimo-minuto-precio-soles-divisa-noticia/1264332/)
-- **¿Cuál es la cotización del dólar hoy jueves 12 de febrero del 2026?**: [Link](https://eltiempo.pe/economia/cual-es-la-cotizacion-del-dolar-hoy-jueves-12-de-febrero-del-2026/)
-
-
-### radio exitosa en vivo (N/A, 16/02/2026 08:16 Lima)
-
-- **Censura a José Jerí: Renovación Popular y Fuerza Popular se enfrentan por moción**: [Link](https://rpp.pe/politica/actualidad/censura-a-jose-jeri-renovacion-popular-y-fuerza-popular-se-enfrentan-por-mocion-noticia-1676029)
-- **Keiko Fujimori reafirma su apoyo a José Jerí y tilda a Rafael López Aliaga de “títere de los caviares”, misógino y sin “madurez emocional”**: [Link](https://www.infobae.com/peru/2026/02/16/keiko-fujimori-molesta-llama-a-rafael-lopez-aliaga-titere-de-los-caviares-misogino-y-sin-madurez-emocional/)
-- **Keiko Fujimori se opone a cambiar a José Jerí en plena recta electoral**: [Link](https://caretas.pe/home_web/home_principal/keiko-fujimori-se-opone-a-cambiar-a-jose-jeri-en-plena-recta-electoral/)
-
-
-### paro de transportistas (N/A, 16/02/2026 08:16 Lima)
-
-- **Empresa 'El Rápido' anuncia paralización de operaciones tras asesinato de conductor**: [Link](https://peru21.pe/lima/empresa-el-rapido-anuncia-paralizacion-de-operaciones-asesinato-de-conductor/)
-- **¿Cuáles son las líneas de buses que no trabajarán por el paro de transporte este 16 de febrero?**: [Link](https://larepublica.pe/sociedad/2026/02/16/paro-de-transportistas-hoy-16-de-febrero-estas-lineas-de-transporte-no-saldran-a-trabajas-por-extorsiones-1054512)
-- **Nuevo ataque a transporte en SMP deja un chofer muerto**: [Link](https://caretas.pe/nacional/nuevo-ataque-a-transporte-en-smp-deja-un-chofer-muerto/)
-
-
-### josé cueto (N/A, 16/02/2026 03:56 Lima)
-
-- **Muñante: Cueto deberá decidir si renuncia a su candidatura para ser considerado reemplazo de Jerí ante una eventual censura**: [Link](https://rpp.pe/politica/congreso/munante-no-se-puede-pasar-por-agua-tibia-situacion-de-jeri-y-debera-asumir-la-consecuencia-politica-noticia-1675981)
-- **Muñante dice que Cueto deberá decidir si deja su candidatura al Senado, ante posible reemplazo de Jerí**: [Link](https://gestion.pe/peru/politica/munante-dice-que-cueto-debera-decidir-si-deja-su-candidatura-al-senado-ante-posible-reemplazo-de-jeri-noticia/)
-- **Muñante: “José Cueto podría asumir la Presidencia si renuncia a su candidatura al Senado”**: [Link](https://elcomercio.pe/politica/congreso/alejandro-munante-jose-cueto-podria-asumir-la-presidencia-si-renuncia-a-su-candidatura-al-senado-ultimas-noticia/)
-
-
-### paolo guerrero (N/A, 16/02/2026 03:56 Lima)
-
-- **Eddie Fleischman lanzó dura crítica a la capitanía de Paolo Guerrero en Alianza Lima: “¿Es un líder positivo en el vestuario?”**: [Link](https://larepublica.pe/futbol-peruano/2026/02/15/eddie-fleischman-lanzo-dura-critica-a-la-capitania-de-paolo-guerrero-en-alianza-lima-es-un-lider-positivo-en-el-vestuario-1078935)
-- **«La culpa es mía»: el mea culpa de Guerrero tras la eliminación**: [Link](https://caretas.pe/deportes/la-culpa-es-mia-el-mea-culpa-de-guerrero-tras-la-eliminacion/)
-- **Erick Delgado DURO CONTRA PAOLO GUERRERO: "¿42 años y no tiene confianza?"**: [Link](https://peru21.pe/deportes/erick-delgado-duro-contra-paolo-guerrero-42-anos-y-no-tiene-confianza/)
-
-
-### 16 de febrero (N/A, 16/02/2026 03:56 Lima)
-
-- **Horóscopo de hoy, 16 de febrero: Estas son las predicciones más exactas**: [Link](https://elcomercio.pe/luces/vida-social/horoscopo-de-hoy-16-de-febrero-estas-son-las-predicciones-mas-exactas-noticia/)
-- **➤ Descubre tu HORÓSCOPO DE HOY: qué te deparan los astros este 16 de febrero, según Jhan Sandoval**: [Link](https://larepublica.pe/horoscopo/2026/02/16/descubre-tu-horoscopo-de-hoy-que-te-deparan-los-astros-este-16-de-febrero-segun-jhan-sandoval-evat-1307235)
-- **Horóscopo 16 de febrero: Te sentirás feliz y afortunado**: [Link](https://www.bolivia.com/horoscopo/horoscopo-16-de-febrero-563781)
-
-
-### cagliari vs (N/A, 16/02/2026 03:56 Lima)
-
-- **Preview: Cagliari vs Lecce - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/cagliari/preview/cagliari-vs-lecce-prediction-team-news-lineups_592039.html)
-- **Prediction: Cagliari vs Lecce – Betting Tips, Team News, Key Facts**: [Link](https://www.soccernews.com/prediction-cagliari-vs-lecce-betting-tips-team-news-key-facts/396015/)
-- **Serie A: Lecce visita a Cagliari por la fecha 25**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-lecce-visita-a-cagliari-por-la-fecha-25-noticia-1675973)
 
 
