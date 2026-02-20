@@ -1,3 +1,59 @@
+### nestle helados (N/A, 20/02/2026 11:49 Lima)
+
+- **Nestlé se retira del mercado de helados y reduce su presencia en el de agua embotellada**: [Link](https://elcomercio.pe/economia/negocios/nestle-se-retira-del-mercado-de-helados-y-reduce-su-presencia-en-el-de-agua-embotellada-philipp-navratil-suiza-ultimas-noticia/)
+- **Pablo Isla, a los accionistas de Nestlé: “Afrontamos ahora muchas de las dinámicas a las que me enfrenté en Inditex”**: [Link](https://elpais.com/economia/2026-02-19/pablo-isla-a-los-accionistas-de-nestle-afrontamos-ahora-muchas-de-las-dinamicas-a-las-que-me-enfrente-en-inditex.html)
+- **Nestlé vende su negocio de helados y ajusta su estrategia de marketing en medio de reestructuración global**: [Link](https://www.merca20.com/nestle-vende-negocio-helados-estrategia-marketing-froneri/)
+
+
+### daniel urresti (N/A, 20/02/2026 11:49 Lima)
+
+- **Tribunal Constitucional ordena la libertad de Daniel Urresti**: [Link](https://peru21.pe/politica/tribunal-constitucional-ordena-la-libertad-de-daniel-urresti/)
+- **Caso Urresti: TC anula sentencia por aplicación retroactiva de lesa humanidad**: [Link](https://www.elperuano.pe/noticia/289616-caso-urresti-tc-anula-sentencia-por-aplicacion-retroactiva-de-lesa-humanidad)
+- **Tribunal Constitucional revoca condena de Daniel Urresti por caso Hugo Bustíos y ordena su liberación**: [Link](https://rpp.pe/politica/judiciales/daniel-urresti-tribunal-constitucional-orden-su-liberacion-y-revoca-condena-por-caso-hugo-bustios-noticia-1676768)
+
+
+### google pixel 10a (N/A, 20/02/2026 11:49 Lima)
+
+- **Google’s Pixel 10a Looks Pretty Familiar**: [Link](https://www.wired.com/story/google-pixel-10a/)
+- **Get your first look at the new Pixel 10a.**: [Link](https://blog.google/products-and-platforms/devices/pixel/google-pixel-10a-first-look-video/)
+- **Google Debuts $499 Pixel 10a Just Ahead of the iPhone 17e Reveal**: [Link](https://www.bloomberg.com/news/articles/2026-02-18/google-announces-499-pixel-10a-just-before-expected-iphone-17e-reveal)
+
+
+### gonzalo bueno (N/A, 20/02/2026 11:49 Lima)
+
+- **Gonzalo Bueno clasificó a cuartos en el Challenger 50 de Tigre**: [Link](https://ovacion.pe/noticias/tenis/gonzalo-bueno-clasifico-cuartos-challenger-50-tigre)
+- **Se acabó el sueño: Juan Pablo Varillas cayó 2-1 ante Álvaro Guillén por la primera ronda del Challenger de Tigre**: [Link](https://rpp.pe/tenis/mas-tenis/juan-pablo-varillas-vs-alvaro-guillen-en-vivo-a-que-hora-juegan-y-donde-ver-primera-ronda-challenger-de-tigre-2026-via-atp-tour-link-gratis-partidos-de-hoy-noticia-1676114)
+- **Rivales definidos para Juan Pablo Varillas y Gonzalo Bueno en la primera ronda del Challenger de Tigre en Argentina**: [Link](https://www.infobae.com/peru/2026/02/15/rivales-definidos-para-juan-pablo-varillas-y-gonzalo-bueno-en-la-primera-ronda-del-challenger-de-tigre-en-argentina/)
+
+
+### teleticket paulo londra (N/A, 20/02/2026 11:49 Lima)
+
+- **Paulo Londra anuncia su primer concierto en el Estadio Nacional**: [Link](https://peru21.pe/espectaculos/paulo-londra-anuncia-su-primer-concierto-en-el-estadio-nacional/)
+- **Paulo Londra en Lima 2026: Fecha, lugar, entradas y todo sobre su concierto en el Perú**: [Link](https://trome.com/espectaculos/musica/paulo-londra-en-lima-2026-concierto-en-el-estadio-nacional-fecha-y-entradas-conciertos-en-lima-noticia/)
+- **Paulo Londra vuelve al Perú por primera vez en el Estadio Nacional: fecha, precio de entradas y todo sobre el show**: [Link](https://www.infobae.com/peru/2026/02/17/paulo-londra-vuelve-al-peru-por-primera-vez-en-el-estadio-nacional-fecha-entradas-y-todo-sobre-el-show/)
+
+
+### sutran (N/A, 20/02/2026 11:49 Lima)
+
+- **Huaico destruye única vía y deja aislado a Yauca del Rosario en Ica**: [Link](https://canaln.pe/actualidad/ica-huaico-destruye-via-y-aisla-yauca-rosario-n490469)
+- **Lluvias intensas y huaicos bloquean carreteras y dejan varados a viajeros en Arequipa, Ica y Amazonas**: [Link](https://www.infobae.com/peru/2026/02/19/intensas-lluvias-paralizan-carreteras-clave-en-peru-y-ponen-a-prueba-capacidad-de-respuesta-ante-huaicos-e-inundaciones/)
+- **Mincetur coordinó atención a turistas suizos ante huaico que bloqueó Panamericana Sur**: [Link](https://andina.pe/agencia/noticia-mincetur-coordino-atencion-a-turistas-suizos-ante-huaico-bloqueo-panamericana-sur-1063779.aspx)
+
+
+### dólar hoy perú (N/A, 20/02/2026 11:49 Lima)
+
+- **El sol se aprecia 9.02% frente al dólar en un año**: [Link](https://elperuano.pe/noticia/289590-el-sol-se-aprecia-902-frente-al-dolar-en-un-ano)
+- **Designación de José María Balcázar como presidente empuja el precio del dólar al alza**: [Link](https://www.infobae.com/peru/2026/02/19/dolar-sube-en-peru-luego-de-la-designacion-de-jose-maria-balcazar-como-presidente/)
+- **¿Cuál es la cotización del dólar hoy viernes 20 de febrero del 2026?**: [Link](https://andina.pe/agencia/noticia-cual-es-cotizacion-del-dolar-hoy-viernes-20-febrero-del-2026-1063825.aspx)
+
+
+### eileen gu (N/A, 20/02/2026 11:49 Lima)
+
+- **Eileen Gu, amid Olympic cameras and controversy, is living in a unique reality - The Athletic**: [Link](https://www.nytimes.com/athletic/7049798/2026/02/17/eileen-gu-winter-olympics-freestyle-skiing-china-controversy/)
+- **The Hidden Government Funding of China’s American-Born Olympic Star**: [Link](https://www.wsj.com/sports/olympics/eileen-gu-china-usa-freestyle-skier-7cd0cfcc)
+- **Winter Olympics 2026: How Eileen Gu divides opinion**: [Link](https://www.bbc.com/sport/articles/cvg3p0lzx56o)
+
+
 ### weather (N/A, 20/02/2026 08:11 Lima)
 
 - **Canton weather forecast calls for snow showers this weekend**: [Link](https://www.cantonrep.com/story/news/local/2026/02/20/canton-weather-forecast-for-friday-feb-20-windy/88773993007/)
@@ -970,61 +1026,5 @@ Sin noticias relacionadas disponibles.
 ### torque - juventud (N/A, 17/02/2026 00:22 Lima)
 
 Sin noticias relacionadas disponibles.
-
-
-### muere robert duvall (N/A, 16/02/2026 21:39 Lima)
-
-- **Muere Robert Duvall, icónico actor de "El padrino" y Apocalypse Now**: [Link](https://www.bbc.com/mundo/articles/ckglzvjk9d7o)
-- **Desde Adam Sandler hasta Viola Davis, Hollywood llora la muerte de Robert Duvall**: [Link](https://www.infobae.com/entretenimiento/2026/02/16/desde-adam-sandler-hasta-viola-davis-hollywod-llora-la-muerte-de-robert-duvall/)
-- **¿Quién fue Robert Duvall? Su carrera, películas más famosas y premios ganados**: [Link](https://cnnespanol.cnn.com/2026/02/16/entretenimiento/quien-fue-robert-duvall-carrera-peliculas-orix)
-
-
-### partidos futbol hoy (N/A, 16/02/2026 21:39 Lima)
-
-- **Partidos de hoy, lunes 16 de febrero del 2026: horarios y canales TV para ver EN VIVO LaLiga y Sudamericano Femenino**: [Link](https://rpp.pe/futbol/futbol-mundial/partidos-de-hoy-laliga-y-serie-a-lunes-16-de-febrero-del-2026-horarios-y-canales-tv-para-ver-en-vivo-liga1-y-laliga-noticia-1676021)
-- **Partidos de hoy, 16 de febrero: Horario y canal EN VIVO**: [Link](https://www.americatv.com.pe/deportes/futbol-mundial/partidos-hoy-16-febrero-horarios-y-transmisiones-n452717)
-- **Partidos de hoy, lunes 16 de febrero de 2026: horarios, canales de TV y plataformas para ver EN VIVO**: [Link](https://www.expreso.com.pe/deportes/partidos-de-hoy-lunes-16-de-febrero-de-2026-horarios-canales-de-tv-y-plataformas-para-ver-en-vivo-futbol-copa-liga-competicion-programacion-noticia/1264320/)
-
-
-### benfica vs real madrid (N/A, 16/02/2026 21:39 Lima)
-
-- **Álvaro Arbeloa: “This is a new match, we’re not thinking about the last game”**: [Link](https://www.managingmadrid.com/coach/104037/alvaro-arbeloa-this-is-a-new-match-were-not-thinking-about-the-last-game)
-- **Eduardo Camavinga – ‘I can be Real Madrid’s organising midfielder’**: [Link](https://www.football-espana.net/2026/02/16/camavinga-real-madrid-organiser)
-- **Revenge not on Arbeloa's mind as Madrid urged to deliver 'complete' display at Benfica**: [Link](https://www.beinsports.com/en-us/soccer/uefa-champions-league/articles/revenge-not-on-arbeloas-mind-as-madrid-urged-to-deliver-complete-display-at-benfica-2026-02-16)
-
-
-### que es un therian (N/A, 16/02/2026 21:39 Lima)
-
-- **Qué son los ‘therian’ y por qué están marcando tendencia en las redes sociales**: [Link](https://www.infobae.com/tecno/2026/02/15/que-son-los-therian-y-por-que-estan-marcando-tendencia-en-las-redes-sociales/)
-- **Therians y Furrys: cuáles son las diferencias y cómo se identifican**: [Link](https://www.clarin.com/informacion-general/therians-furrys-diferencias-identifican_0_X6O1tbTi0e.html)
-- **Qué son los Therians y por qué está en tendencia la “moda del humano animal”**: [Link](https://elcomercio.pe/respuestas/que/therians-que-son-y-por-que-esta-en-tendencia-la-moda-del-humano-animal-tdpe-noticia/)
-
-
-### mocion de vacancia (N/A, 16/02/2026 21:39 Lima)
-
-- **Fernando Rospigliosi explica agenda y procedimientos a seguir en sesión extraordinaria del Pleno**: [Link](https://comunicaciones.congreso.gob.pe/noticias/fernando-rospigliosi-explica-agenda-y-procedimientos-a-seguir-en-sesion-extraordinaria-del-pleno/)
-- **José Jerí: ¿Cuál es la proyección de votos frente a las mociones de censura y la carta que se jugaría Somos Perú en la sesión?**: [Link](https://elcomercio.pe/politica/entretelones-jose-jeri-la-proyeccion-de-votos-frente-a-las-mociones-de-censura-y-la-carta-que-se-jugaria-somos-peru-en-la-sesion-tlcnota-noticia/)
-- **Bancadas cierran filas para censurar a Jerí, y Fuerza Popular y APP lo blindan**: [Link](https://peru21.pe/politica/bancadas-cierran-filas-para-censurar-jeri-y-fuerza-popular-y-app-lo-blindan/)
-
-
-### horoscopo chino (N/A, 16/02/2026 21:39 Lima)
-
-- **¿Qué es el Año Nuevo chino? Las 7 cosas que debes saber sobre la popular celebración**: [Link](https://cnnespanol.cnn.com/2026/02/16/mundo/ano-nuevo-chino-orix)
-- **Año Nuevo Chino 2026: cuándo empieza y qué significa el Caballo de Fuego**: [Link](https://www.lanacion.com.ar/horoscopo/horoscopo-chino-2026/ano-nuevo-chino-2026-cuando-empieza-y-que-significa-el-caballo-de-fuego-nid16022026/)
-- **Año Nuevo Chino 2026: ¿Cuándo inicia, qué animal es y cuál es su significado en el horóscopo?**: [Link](https://rpp.pe/cultura/mas-cultura/ano-nuevo-chino-2026-cuando-inicia-que-animal-es-y-significado-del-caballo-de-fuego-en-horoscopo-chino-noticia-1676053)
-
-
-### cristal vs 2 de mayo (N/A, 16/02/2026 21:39 Lima)
-
-- **La historia de Sporting Cristal en las fases previas de la CONMEBOL Libertadores**: [Link](https://espndeportes.espn.com/futbol/copa-libertadores/nota/_/id/16322086/la-historia-de-sporting-cristal-en-las-fases-previas-de-la-copa-libertadores)
-- **“Humildad e ilusión”: Miguel Araujo y su análisis a un día del debut por Copa Libertadores**: [Link](https://depor.com/futbol-internacional/copa-libertadores/sporting-cristal-miguel-araujo-y-su-analisis-a-un-dia-del-debut-por-copa-libertadores-ante-2-de-mayo-noticia/)
-- **Sporting Cristal partió a Paraguay por primer golpe en Copa**: [Link](https://www.americatv.com.pe/deportes/futbol-mundial/sporting-cristal-partio-paraguay-primer-golpe-copa-n452722)
-
-
-### igor marcondes (N/A, 16/02/2026 21:39 Lima)
-
-- **Buse vibra com virada no Rio Open e projeta mais um duelo contra brasileiro**: [Link](https://www.tenisnews.com.br/buse-vibra-rio-open-projeta-duelo-brasileiro/)
-- **Relembre vitórias históricas de brasileiros no Rio Open; vídeos**: [Link](https://www.lance.com.br/tenis/relembre-vitorias-historicas-de-brasileiros-no-rio-open-videos.html)
-- **Igor Marcondes vence quali e estreia na chave principal do Rio Open contra tenista peruano**: [Link](https://ge.globo.com/sp/vale-do-paraiba-regiao/noticia/2026/02/16/igor-marcondes-vence-quali-e-estreia-na-chave-principal-do-rio-open-contra-tenista-peruano.ghtml)
 
 
