@@ -1,3 +1,24 @@
+### weather (N/A, 20/02/2026 08:11 Lima)
+
+- **Canton weather forecast calls for snow showers this weekend**: [Link](https://www.cantonrep.com/story/news/local/2026/02/20/canton-weather-forecast-for-friday-feb-20-windy/88773993007/)
+- **Akron area forecast Wednesday calls for rain and a thunderstorm**: [Link](https://www.beaconjournal.com/story/news/local/2026/02/18/summit-county-weather-forecast-wednesday-feb-18-rain-thunderstorms/88735072007/)
+- **Stark County weather forecast today calls for rain and a thunderstorm**: [Link](https://www.yahoo.com/news/articles/stark-county-weather-forecast-today-122620149.html)
+
+
+### clippers - nuggets (N/A, 20/02/2026 08:11 Lima)
+
+- **Bennedict Mathurin vs the Nuggets: 38 points (matched …**: [Link](https://www.hoopshype.com/story/sports/nba/rumors/2026/02/20/bennedict-mathurin-vs-the-nuggets-38-points-matched/88773329007/)
+- **Jamal Murray missed the game-tying free throw with …**: [Link](https://sports.yahoo.com/articles/jamal-murray-missed-game-tying-072052920.html)
+- **NBA World Reacts to Jamal Murray's Late-Game 'Choke' vs. Clippers: 'Mathurin Got in His Head'**: [Link](https://www.profootballnetwork.com/nba/jamal-murray-missed-free-throw-intuit-dome-wall/)
+
+
+### alianza lima sudamericano de voley (N/A, 20/02/2026 08:11 Lima)
+
+- **Alianza Lima vs San Martín 3-1: resumen del triunfo y clasificación ‘blanquiazul’ a semifinales del Sudamericano de Clubes de Vóley 2026**: [Link](https://www.infobae.com/peru/deportes/2026/02/19/alianza-lima-vs-san-martin-en-vivo-hoy-partido-fecha-2-grupo-a-sudamericano-clubes-de-voley-2026-resumen-resultado/)
+- **Tabla de posiciones del Sudamericano de Clubes de Vóley EN VIVO: así van los equipos en la fase de grupos del torneo**: [Link](https://rpp.pe/voley/mas-voley/tabla-sudamericano-de-clubes-de-voley-2026-en-vivo-resultados-en-directo-y-posiciones-hoy-del-torneo-alianza-lima-regatas-lima-san-martin-noticia-1676454)
+- **Alianza Lima vs. San Martín: Sepa dónde ver hoy el crucial partido de voleibol**: [Link](https://andina.pe/agencia/noticia-alianza-lima-vs-san-martin-sepa-donde-ver-hoy-crucial-partido-voleibol-1063674.aspx)
+
+
 ### nuevo presidente peru (N/A, 20/02/2026 03:50 Lima)
 
 - **Ni derecha ni izquierda: el cálculo político detrás de la elección de José María Balcázar como presidente de Perú**: [Link](https://elpais.com/america/2026-02-20/ni-derecha-ni-izquierda-el-calculo-politico-detras-de-la-eleccion-de-jose-maria-balcazar-como-presidente-de-peru.html)
@@ -1005,26 +1026,5 @@ Sin noticias relacionadas disponibles.
 - **Buse vibra com virada no Rio Open e projeta mais um duelo contra brasileiro**: [Link](https://www.tenisnews.com.br/buse-vibra-rio-open-projeta-duelo-brasileiro/)
 - **Relembre vitórias históricas de brasileiros no Rio Open; vídeos**: [Link](https://www.lance.com.br/tenis/relembre-vitorias-historicas-de-brasileiros-no-rio-open-videos.html)
 - **Igor Marcondes vence quali e estreia na chave principal do Rio Open contra tenista peruano**: [Link](https://ge.globo.com/sp/vale-do-paraiba-regiao/noticia/2026/02/16/igor-marcondes-vence-quali-e-estreia-na-chave-principal-do-rio-open-contra-tenista-peruano.ghtml)
-
-
-### ignacio buse (N/A, 16/02/2026 21:39 Lima)
-
-- **Triunfazo en Brasil: Ignacio Buse venció al local Igor Marcondes en su debut en el ATP 500 de Río**: [Link](https://rpp.pe/tenis/mas-tenis/ignacio-buse-vencio-al-local-igor-marcondes-en-atp-500-de-rio-triunfazo-en-brasil-noticia-1676151)
-- **¡Orgullo nacional! Ignacio Buse rompe su récord personal y ya es el número 91 del mundo**: [Link](https://peru21.pe/deportes/ignacio-buse-alcanza-puesto-91-atp-debut-hoy-en-el-atp-500-de-rio-de-janeiro/)
-- **¡Hace historia! Tenista Ignacio Buse alcanza el puesto 91 del ranking ATP**: [Link](https://andina.pe/agencia/noticia-hace-historia-tenista-ignacio-buse-alcanza-puesto-91-del-ranking-atp-1063264.aspx)
-
-
-### resultados uni (N/A, 16/02/2026 21:39 Lima)
-
-- **Examen de admisión UNI 2026-I: link para conocer los puntajes de primera fecha**: [Link](https://andina.pe/agencia/noticia-examen-admision-uni-2026i-link-para-conocer-los-puntajes-primera-fecha-1063293.aspx)
-- **Madre hizo cola desde la madrugada en la puerta de la UNI para que su hijo rinda examen de admisión, pero personal de seguridad la retiró**: [Link](https://larepublica.pe/tendencias/2026/02/16/madre-hizo-cola-desde-la-madrugada-en-la-puerta-de-la-universidad-nacional-de-ingenieria-para-que-su-hijo-rinda-examen-de-admision-pero-personal-de-seguridad-la-retiro-evat-1128256)
-- **Admisión UNI 2026: El cronograma y los pasos para consultar los resultados oficiales**: [Link](https://caretas.pe/politica/admision-uni-2026-el-cronograma-y-los-pasos-para-consultar-los-resultados-oficiales/)
-
-
-### coventry vs (N/A, 16/02/2026 15:38 Lima)
-
-- **Coventry v Boro: how momentum has shifted in the Championship title race**: [Link](https://www.theguardian.com/football/who-scored-blog/2026/feb/16/coventry-boro-momentum-shifted-championship-title-race-frank-lampard-kim-hellberg)
-- **LAMPARD EXCLUSIVE: 'I know what it takes to turn the Coventry slide'**: [Link](https://www.dailymail.co.uk/sport/football/article-15561743/FRANK-LAMPARD-turn-Coventry-slide-promotion-Premier-League.html)
-- **Your matchday programme against Middlesbrough is available**: [Link](https://www.ccfc.co.uk/news/2026/february/16/your-matchday-programme-against-middlesbrough-is-available/)
 
 
