@@ -1,3 +1,17 @@
+### nuevo presidente peru (N/A, 20/02/2026 03:50 Lima)
+
+- **Ni derecha ni izquierda: el cálculo político detrás de la elección de José María Balcázar como presidente de Perú**: [Link](https://elpais.com/america/2026-02-20/ni-derecha-ni-izquierda-el-calculo-politico-detras-de-la-eleccion-de-jose-maria-balcazar-como-presidente-de-peru.html)
+- **Izquierdista Balcázar elegido presidente interino de Perú**: [Link](https://www.dw.com/es/izquierdista-balc%C3%A1zar-elegido-presidente-interino-de-per%C3%BA/a-76029139)
+- **José María Balcázar se compromete a garantizar transparencia de elecciones, luchar contra la inseguridad y mantener lineamientos económicos**: [Link](https://comunicaciones.congreso.gob.pe/noticias/jose-maria-balcazar-se-compromete-a-garantizar-transparencia-de-elecciones-luchar-contra-la-inseguridad-y-mantener-lineamientos-economicos/)
+
+
+### paulo londra peru (N/A, 20/02/2026 03:50 Lima)
+
+- **Paulo Londra anuncia su primer concierto en el Estadio Nacional**: [Link](https://peru21.pe/espectaculos/paulo-londra-anuncia-su-primer-concierto-en-el-estadio-nacional/)
+- **Paulo Londra en Lima 2026: Fecha, lugar, entradas y todo sobre su concierto en el Perú**: [Link](https://trome.com/espectaculos/musica/paulo-londra-en-lima-2026-concierto-en-el-estadio-nacional-fecha-y-entradas-conciertos-en-lima-noticia/)
+- **Paulo Londra vuelve al Perú por primera vez en el Estadio Nacional: fecha, precio de entradas y todo sobre el show**: [Link](https://www.infobae.com/peru/2026/02/17/paulo-londra-vuelve-al-peru-por-primera-vez-en-el-estadio-nacional-fecha-entradas-y-todo-sobre-el-show/)
+
+
 ### berrettini (N/A, 20/02/2026 00:18 Lima)
 
 - **Comments Berrettini Lajovic - Rio de Janeiro 2026**: [Link](https://en.tennistemple.com/match/berrettini-lajovic-rio-de-janeiro-2026/9453890/comments)
@@ -1012,19 +1026,5 @@ Sin noticias relacionadas disponibles.
 - **Coventry v Boro: how momentum has shifted in the Championship title race**: [Link](https://www.theguardian.com/football/who-scored-blog/2026/feb/16/coventry-boro-momentum-shifted-championship-title-race-frank-lampard-kim-hellberg)
 - **LAMPARD EXCLUSIVE: 'I know what it takes to turn the Coventry slide'**: [Link](https://www.dailymail.co.uk/sport/football/article-15561743/FRANK-LAMPARD-turn-Coventry-slide-promotion-Premier-League.html)
 - **Your matchday programme against Middlesbrough is available**: [Link](https://www.ccfc.co.uk/news/2026/february/16/your-matchday-programme-against-middlesbrough-is-available/)
-
-
-### cagliari fc (N/A, 16/02/2026 15:38 Lima)
-
-- **"Me sorprendió": Yerry Mina desmintió lesión de rodilla en Cagliari**: [Link](https://www.espn.com.pe/futbol/italia/nota/_/id/16312146/me-sorprendio-yerry-mina-desmintio-lesion-cronica-rodilla-cagliari)
-- **Un problema crónico de rodilla afecta regularidad de Mina en Cagliari**: [Link](https://www.espn.com.pe/futbol/italia/nota/_/id/16296332/yerry-mina-problema-cronico-rodilla-cagliari)
-- **Serie A: Cagliari vs. Lecce – Confirmed line-ups and updates**: [Link](https://sports.yahoo.com/articles/serie-cagliari-vs-lecce-confirmed-192000476.html)
-
-
-### lecce vs (N/A, 16/02/2026 15:38 Lima)
-
-- **Serie A: Cagliari vs. Lecce – Confirmed line-ups and updates**: [Link](https://sports.yahoo.com/articles/serie-cagliari-vs-lecce-confirmed-192000476.html)
-- **Cagliari vs. Lecce: Serie A betting odds, prediction, pick**: [Link](https://www.usatoday.com/story/sports/soccer/2026/02/16/cagliari-vs-lecce-serie-a-betting-odds-prediction-pick/88697491007/)
-- **Serie A Matchday 25: Predicted Lineups for Cagliari vs Lecce**: [Link](https://www.filmogaz.com/153000)
 
 
