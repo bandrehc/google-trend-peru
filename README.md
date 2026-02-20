@@ -1,3 +1,72 @@
+### defensa y justicia - belgrano (N/A, 20/02/2026 15:39 Lima)
+
+- **¿Dónde ver EN VIVO y ONLINE Defensa y Justicia vs. Belgrano por el Torneo Apertura 2026?**: [Link](https://www.futbolargentino.com/primera-division/noticias/fecha-6-del-torneo-apertura-donde-ver-en-vivo-y-online-defensa-y-justicia-vs-belgrano-564727)
+- **El Halcón vs el Pirata**: [Link](https://www.vavel.com/ar/futbol-argentino/2026/02/19/defensa-y-justicia/1251348.html)
+- **Duelo de invictos: Belgrano va por la punta ante el Halcón**: [Link](https://www.cba24n.com.ar/deportes/futbol/belgrano/duelo-de-invictos--belgrano-va-por-la-punta-ante-el-halcon_a6998446f212877466111f6f6)
+
+
+### athletic bilbao (N/A, 20/02/2026 15:39 Lima)
+
+- **🚨Confirmed XIs: Athletic and Elche kick off matchday 25**: [Link](https://sports.yahoo.com/articles/confirmed-xis-athletic-elche-kick-184400736.html)
+- **Where to Watch Athletic Bilbao vs. Elche CF: TV Channel, Start Time and Live Stream**: [Link](https://www.bleachernation.com/how-to-watch/2026/02/19/where-to-watch-athletic-bilbao-vs-elche-cf-tv-channel-start-time-and-live-stream/)
+- **Valverde recalls Vivian and Selton for Elche clash at San Mamés**: [Link](https://onefootball.com/en/news/valverde-recalls-vivian-and-selton-for-elche-clash-at-san-mames-42436632)
+
+
+### marsella (N/A, 20/02/2026 15:39 Lima)
+
+- **Liga de Francia: Stade Brestois recibirá a Olympique de Marsella por la fecha 23**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-de-francia-stade-brestois-recibira-a-olympique-de-marsella-por-la-fecha-23-noticia-1676557)
+- **Pronóstico Brest vs. Marseille - Un duelo de realidades opuestas**: [Link](https://gainblers.com/ec/pronosticos/futbol/francia/ligue-1/pronostico-brest-marseille-20-02-2026/)
+- **"No espero un equipo desestabilizado": Eric Roy desconfía del OM**: [Link](https://tribuna.com/es/news/2026-02-19-no-espero-un-equipo-desestabilizado-eric-roy-desconfia-del-om/)
+
+
+### fernando gaibor (N/A, 20/02/2026 15:39 Lima)
+
+- **Fernando Gaibor recurre a la FIFA por incumplimiento en pagos de salarios**: [Link](https://bolavip.com/pe/alianza-lima/fernando-gaibor-recurre-a-la-fifa-por-incumplimiento-en-pagos-de-salarios)
+- **La joya del fútbol chileno tiene nuevo club: fichaje millonario en Argentina**: [Link](https://chile.as.com/futbol/chilenos-por-el-mundo/la-joya-del-futbol-chileno-tiene-nuevo-club-fichaje-millonario-en-argentina-f202602-n/)
+- **Milagro de dos millones**: [Link](https://onefootball.com/es/noticias/milagro-de-dos-millones-42440179)
+
+
+### mensik (N/A, 20/02/2026 15:39 Lima)
+
+- **Mensik stuns Sinner in Doha for biggest win of his career**: [Link](https://www.atptour.com/en/news/sinner-mensik-doha-2026-qf)
+- **Why Jannik Sinner's shock Qatar Open exit is a blow to his world No 1 hopes**: [Link](https://www.tennis365.com/tennis-features/how-jannik-sinner-qatar-open-loss-affects-carlos-alcaraz-world-no-1-chase)
+- **Qatar ExxonMobil Open Betting Odds and Match Previews for February 19, 2026, Men's Singles**: [Link](https://sportsbookwire.usatoday.com/story/sports/sports-betting/2026/02/19/qatar-exxonmobil-open-betting-odds-favorites-match-previews-2-18-2026-mens/88752168007/)
+
+
+### rio rimac (N/A, 20/02/2026 15:39 Lima)
+
+- **Cercado de Lima: policía fue arrastrado por las aguas del río Rímac tras ingresar a rescatar a perrito [VIDEO]**: [Link](https://rpp.pe/lima/actualidad/cercado-de-lima-policia-fue-arrastrado-por-las-aguas-del-rio-rimac-tras-ingresar-a-rescatar-a-perrito-video-noticia-1676786)
+- **Encuentran cuerpo sin vida de rescatista que intentó salvar a perrito en río Rímac**: [Link](https://larepublica.pe/sociedad/2026/02/20/encuentran-cuerpo-sin-vida-de-rescatista-que-intento-salvar-a-perrito-en-rio-rimac-918360)
+- **Policía es arrastrado por el río Rímac cuando intentaba rescatar a un perrito**: [Link](https://andina.pe/agencia/noticia-policia-es-arrastrado-por-rio-rimac-cuando-intentaba-rescatar-a-un-perrito-1063839.aspx)
+
+
+### al qadisiya (N/A, 20/02/2026 15:39 Lima)
+
+- **Al-Qadisiyah will face Al-Akhdoud with their full force in the Roshan League**: [Link](https://news50.sa/en/sports/al-qadsiah-vs-al-okhdood-roshn-league-preparations/)
+- **Al Okhdood vs Al Qadsiah Preview & Prediction**: [Link](https://www.thestatszone.com/al-okhdood-vs-al-qadsiah-preview-prediction-171491)
+- **Preview: Al Okhdood vs Al Qadsiah Prediction, lineups, betting tips & odds | Saudi Pro League 2025-26**: [Link](https://khelnow.com/football/world-football-al-okhdood-vs-al-qadsiah-preview-202602)
+
+
+### mainz 05 - hamburg (N/A, 20/02/2026 15:39 Lima)
+
+- **Bundesliga » 1. FSV Mainz 05 gegen Hamburger SV » Liveticker**: [Link](https://www.weltfussball.at/spielbericht/co12/deutschland-bundesliga/ma11200001/1-fsv-mainz-05_hamburger-sv/liveticker/)
+- **HSV im Stau! Partie in Mainz beginnt 10 Minuten später**: [Link](https://www.bild.de/sport/fussball/hsv-im-stau-partie-in-mainz-beginnt-10-minuten-spaeter-6998aed3153f05936cafe9fd)
+- **Bundesliga live: Dritter Sieg in Folge? HSV muss bei Mainz 05 ran**: [Link](https://www.express.de/sport/fussball/bundesliga-live-alle-spiele-des-23-spieltags-im-ticker-1091029)
+
+
+### sassuolo - hellas verona (N/A, 20/02/2026 15:39 Lima)
+
+- **Sassuolo vs Hellas Verona Prediction and Betting Tips | 20th February 2026**: [Link](https://www.sportskeeda.com/football/sassuolo-vs-hellas-verona-prediction-betting-tips-20th-february-2026)
+- **Build Your Euro Multi-Match Bet with Friday’s 6/1 Football Tips**: [Link](https://www.filmogaz.com/159028)
+- **#SassuoloVerona | Words from coach Paolo Sammarco**: [Link](https://www.hellasverona.it/en/news/sassuoloverona-words-from-coach-paolo-sammarco)
+
+
+### hamburgo vs (N/A, 20/02/2026 15:39 Lima)
+
+- **Pronóstico Mainz 05 vs. Hamburg - Una lucha por la mitad de la tabla**: [Link](https://gainblers.com/pe/pronosticos/futbol/alemania/1bundesliga/pronostico-mainz-05-hamburg-20-02-2026/)
+- **El encuentro de las expulsiones llega a la Bundesliga**: [Link](https://www.flashscore.pe/noticias/futbol-bundesliga-alerta-roja-llega-partido-expulsiones/fa1ZRXvf/)
+
+
 ### nestle helados (N/A, 20/02/2026 11:49 Lima)
 
 - **Nestlé se retira del mercado de helados y reduce su presencia en el de agua embotellada**: [Link](https://elcomercio.pe/economia/negocios/nestle-se-retira-del-mercado-de-helados-y-reduce-su-presencia-en-el-de-agua-embotellada-philipp-navratil-suiza-ultimas-noticia/)
@@ -960,71 +1029,5 @@ Sin noticias relacionadas disponibles.
 - **¿Therians en Lima? Qué son y de qué trata el fenómeno que crece en redes sociales y ya es visible en ciudades de Latinoamérica**: [Link](https://www.infobae.com/peru/2026/02/15/therians-en-lima-que-son-y-de-que-trata-el-fenomeno-que-crece-en-redes-y-ya-es-visible-en-varias-ciudades-de-latinoamerica/)
 - **¿Qué son los ‘therian’?: La verdad del fenómeno que se ha vuelto viral y que tiene sus primeros casos en Perú**: [Link](https://www.atv.pe/noticia/que-son-los-therian-la-verdad-del-fenomeno-que-se-ha-vuelto-viral-y-que-tiene-sus-primeros-casos-en-peru/)
 - **¿Qué son los “therians” y por qué este fenómeno causa debate en redes sociales?**: [Link](https://latinanoticias.pe/tendencias/que-son-los-therian-y-por-que-este-fenomeno-causa-debate-en-redes-sociales_20260215/)
-
-
-### lunar new year (N/A, 17/02/2026 03:54 Lima)
-
-- **A 2026 guide to Lunar New Year as we gallop into the Year of the Horse**: [Link](https://www.cnn.com/travel/chinese-lunar-new-year-2026-guide-intl-hnk)
-- **Don’t cut your hair and no sweeping – how to boost your luck in the lunar new year**: [Link](https://www.independent.co.uk/life-style/hair-boost-luck-new-lunar-year-chinese-fortune-b2921344.html)
-- **Chinese ‘Year of Fire Horse' to bring luck for Mamdani, challenges for Trump**: [Link](https://www.geo.tv/latest/651304-chinese-year-of-fire-horse-to-bring-luck-for-mamdani-challenges-for-trump-feng-shui-master)
-
-
-### año nuevo lunar (N/A, 17/02/2026 03:54 Lima)
-
-- **¿Qué es el Año Nuevo chino? Las 7 cosas que debes saber sobre la popular celebración**: [Link](https://cnnespanol.cnn.com/2026/02/16/mundo/ano-nuevo-chino-orix)
-- **Año Nuevo Chino 2026: cuándo empieza y qué significa el Caballo de Fuego**: [Link](https://www.lanacion.com.ar/horoscopo/horoscopo-chino-2026/ano-nuevo-chino-2026-cuando-empieza-y-que-significa-el-caballo-de-fuego-nid16022026/)
-- **Año Nuevo Chino 2026: rituales para atraer fortuna y las advertencias en Año del Caballo de Fuego**: [Link](https://rpp.pe/cultura/mas-cultura/ano-nuevo-chino-2026-rituales-para-atraer-fortuna-y-suerte-las-advertencias-en-ano-del-caballo-de-fuego-noticia-1676072)
-
-
-### atv en vivo (N/A, 17/02/2026 03:54 Lima)
-
-- **Clausuran centro donde niña fue maltratada por terapeuta que está como no habido**: [Link](https://www.atv.pe/noticia/clausuran-centro-donde-nina-fue-maltratada-por-terapeuta-que-esta-como-no-habido/)
-- **Clausuran centro terapéutico en Los Olivos: Sujeto que maltrató a niña de seis años está no habido**: [Link](https://trome.com/actualidad/policiales/los-olivos-clausuran-centro-terapeutico-y-sujeto-que-maltrato-a-nina-de-seis-anos-esta-no-habido-video-historia-de-policiales-noticia/)
-- **Terapeuta es captado agrediendo a menor de 6 años en centro infantil**: [Link](https://caretas.pe/nacional/terapeuta-es-captado-golpeando-a-menor-de-6-anos-en-centro-infantil/)
-
-
-### alex turner (N/A, 17/02/2026 03:54 Lima)
-
-- **2000's British Rock Group Named the Most Streamed 'Indie Rock' Garage Band**: [Link](https://www.yahoo.com/entertainment/music/articles/2000s-british-rock-group-named-152529858.html)
-- **Alex Turner’s favourite Arctic Monkeys songs**: [Link](https://faroutmagazine.co.uk/alex-turner-favourite-arctic-monkeys-songs/)
-- **Yo Soy conciertos 2026: ¡Alex Turner desata sensualidad y conquista al jurado!**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-conciertos-2026-alex-turner-desata-sensualidad-y-conquista-al-jurado_20260216/)
-
-
-### suheyn cipriani (N/A, 17/02/2026 00:22 Lima)
-
-- **Suheyn Cipriani llora frente a Magaly Medina por Macarius: "Me ha afectado mucho"**: [Link](https://www.atv.pe/noticia/suheyn-cipriani-llora-frente-a-magaly-medina-por-macarius-me-ha-afectado-mucho/)
-- **Suheyn Cipriani rompe su silencio y cuenta por qué el streamer Macarius puso fin a su romance: "Estar lejos es difícil"**: [Link](https://larepublica.pe/streamers/2026/02/15/suheyn-cipriani-rompe-su-silencio-y-cuenta-por-que-el-streamer-macarius-puso-fin-a-su-romance-estar-lejos-es-dificil-evat-1058490)
-- **La advertencia de Suheyn Cipriani a Macarius antes de terminar su relación | tdpe | RESPUESTAS**: [Link](https://elcomercio.pe/respuestas/youtube/la-advertencia-de-suheyn-cipriani-a-macarius-antes-de-terminar-su-relacion-tdpe-noticia/)
-
-
-### liam gallagher (N/A, 17/02/2026 00:22 Lima)
-
-- **Oasis v Blur rivalry being revived in new play as cast take sides**: [Link](https://www.bbc.com/news/articles/c1d6pkdk1xzo)
-- **The Battle in UK Regional at Birmingham Rep 2026**: [Link](https://www.broadwayworld.com/uk-regional/regional/The-Battle-4358601)
-- **Yo Soy conciertos 2026: ¡Liam Gallagher llegó “a todo o nada” y arrasó en el escenario!**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-conciertos-2026-liam-gallagher-llego-a-todo-o-nada-y-arraso-en-el-escenario_20260216/)
-
-
-### seedance 2.0 (N/A, 17/02/2026 00:22 Lima)
-
-- **Why an A.I. Video of Tom Cruise Battling Brad Pitt Spooked Hollywood**: [Link](https://www.nytimes.com/2026/02/16/movies/tom-cruise-brad-pitt-artificial-intelligence-seedance.html)
-- **ByteDance says it will add safeguards to Seedance 2.0 following Hollywood backlash**: [Link](https://www.cnbc.com/2026/02/16/bytedance-safegaurds-seedance-ai-copyright-disney-mpa-netflix-paramount-sony-universal.html)
-- **Scoop: Disney sends cease and desist letter to ByteDance over Seedance 2.0**: [Link](https://www.axios.com/2026/02/13/disney-bytedance-seedance)
-
-
-### gabriel calvo (N/A, 17/02/2026 00:22 Lima)
-
-- **Gabriel Calvo sorprende al OFICIALIZAR relación con expareja de Gino Assereto: "Mi novia linda"**: [Link](https://www.atv.pe/noticia/gabriel-calvo-sorprende-al-oficializar-relacion-con-expareja-de-gino-assereto-mi-novia-linda/)
-- **Actor Gabriel Calvo impacta al confesar en vivo su romance con influencer ‘Majo con Sabor’: “Mi novia linda”**: [Link](https://larepublica.pe/espectaculos/2026/02/16/actor-gabriel-calvo-impacta-al-confesar-en-vivo-su-romance-con-influencer-majo-con-sabor-mi-novia-linda-1456512)
-- **‘Majo con sabor’ confirma relación con Gabriel Calvo y ¿responde desde cuándo?: “Pasamos San Valentín”**: [Link](https://trome.com/espectaculos/tv/majo-con-sabor-confirma-relacion-con-gabriel-calvo-y-responde-desde-cuando-pasamos-san-valentin-foto-video-farandula-noticia/)
-
-
-### rio open (N/A, 17/02/2026 00:22 Lima)
-
-Sin noticias relacionadas disponibles.
-
-
-### torque - juventud (N/A, 17/02/2026 00:22 Lima)
-
-Sin noticias relacionadas disponibles.
 
 
