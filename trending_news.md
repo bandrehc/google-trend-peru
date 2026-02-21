@@ -1,3 +1,45 @@
+### stoke city - leicester city (N/A, 21/02/2026 08:00 Lima)
+
+- **Leicester City team news v Stoke with Abdul Fatawu missing from Gary Rowett's first line-up**: [Link](https://www.leicestermercury.co.uk/sport/football/football-news/leicester-city-team-news-v-10828261)
+- **Potters face-off with Foxes on Saturday lunchtime**: [Link](https://www.stokecityfc.com/news/2026/february/15/potters-face-off-with-foxes-on-saturday-lunchtime/)
+- **Championship: Four games under way including Hull, Leicester and West Brom v Coventry.**: [Link](https://www.bbc.co.uk/sport/football/live/cj3vnn51z38t)
+
+
+### real sociedad - real oviedo (N/A, 21/02/2026 08:00 Lima)
+
+- **Real Sociedad - Oviedo en directo: LaLiga EA Sports hoy, en vivo**: [Link](https://as.com/futbol/primera/real-sociedad-oviedo-en-directo-laliga-ea-sports-hoy-en-vivo-f202602-d/)
+- **El pan y la mantequilla**: [Link](https://www.realsociedad.eus/es/noticias/detalle/el-pan-y-la-mantequilla)
+- **Real Sociedad – Real Oviedo: Europa y el descenso chocan en Anoeta**: [Link](https://onefootball.com/de/news/real-sociedad-real-oviedo-europa-y-el-descenso-chocan-en-anoeta-42443348)
+
+
+### sutran (N/A, 21/02/2026 08:00 Lima)
+
+- **Carreteras bloqueadas por fuertes lluvias en Perú: revisa las vías con tránsito interrumpido y restringido, según Sutran**: [Link](https://larepublica.pe/sociedad/2026/02/18/carreteras-bloqueadas-en-peru-revisa-las-vias-con-transito-interrumpido-y-restringido-por-lluvias-y-fenomenos-naturales-segun-sutran-1177434)
+- **Ica: tránsito restringido en el kilómetro 442 de la Panamericana Sur por caída de huaico**: [Link](https://rpp.pe/peru/ica/ica-transito-restringido-en-el-kilometro-442-de-la-panamericana-sur-por-caida-de-huaico-noticia-1676729)
+- **Arequipa: cientos de vehículos varados tras caída de huaico en Lomas, en Caravelí**: [Link](https://elperuano.pe/noticia/289559-arequipa-cientos-de-vehiculos-varados-tras-caida-de-huaico-en-lomas-en-caraveli)
+
+
+### sydney - brisbane roar (N/A, 21/02/2026 08:00 Lima)
+
+- **Sydney FC vs Brisbane Roar Preview & Prediction**: [Link](https://www.thestatszone.com/sydney-fc-vs-brisbane-roar-preview-prediction-171552)
+- **Roar fall short in Sydney**: [Link](https://brisbaneroar.com.au/news/roar-fall-short-in-sydney/)
+- **'Fiery': Abandoned friendly fuels Sydney-Roar rivalry**: [Link](https://aapnews.aap.com.au/news/fiery-abandoned-friendly-fuels-sydney-roar-rivalry)
+
+
+### ebay (N/A, 21/02/2026 08:00 Lima)
+
+- **eBay Inc. Reports Fourth Quarter and Full Year 2025 Results**: [Link](https://www.ebayinc.com/stories/news/ebay-inc-reports-fourth-quarter-and-full-year-2025-results/)
+- **Why eBay’s Depop Acquisition Matters More Than the Earnings Beat**: [Link](https://www.tradingview.com/news/marketbeat:e648155a6094b:0-why-ebay-s-depop-acquisition-matters-more-than-the-earnings-beat/)
+- **EBay's GMV Growth More Sustainable Than Expected, Morgan Stanley Says**: [Link](https://www.marketscreener.com/news/ebay-s-gmv-growth-more-sustainable-than-expected-morgan-stanley-says-ce7e5ddcdc81f524)
+
+
+### lakers - clippers (N/A, 21/02/2026 08:00 Lima)
+
+- **Luka Doncic and Lakers hold off Clippers as Kawhi Leonard exits late**: [Link](https://www.aol.com/articles/luka-doncic-lakers-hold-off-063206117.html)
+- **Austin Reaves News: Hits for 29 points with first unit**: [Link](https://www.rotowire.com/basketball/headlines/austin-reaves-news-hits-for-29-points-with-first-unit-519691)
+- **Lakers' LeBron James: Good to go Friday**: [Link](https://www.cbssports.com/fantasy/basketball/news/lakers-lebron-james-good-to-go-friday-519646/)
+
+
 ### lluvia (N/A, 21/02/2026 03:38 Lima)
 
 - **Respuesta inmediata ante desbordes**: [Link](https://elperuano.pe/noticia/289570-respuesta-inmediata-ante-desbordes)
@@ -985,47 +1027,5 @@ Sin noticias relacionadas disponibles.
 - **La Revuelta - Paula Usero y Clara Galle (17/02/2026) | Ver programa**: [Link](https://www.rtve.es/play/videos/la-revuelta/programa-17-02-2026-paula-usero-clara-galle/16942489/)
 - **El truco infalible de Clara Galle para afrontar la menstruación sin problemas: “Me compro una galleta en la panadería de debajo de mi casa y la congelo”**: [Link](https://www.lavanguardia.com/television/20260218/11469184/truco-infalible-clara-galle-afrontar-menstruacion-problemas-me-compro-galleta-panaderia-debajo-mi-casa-congelo-gvm2.html)
 - **El divertido momento de Clara Galle en 'La Revuelta' con Grison: "¿Tú no te lo comes con pelos?"**: [Link](https://www.20minutos.es/television/divertido-momento-clara-galle-revuelta-con-grison-tu-no-te-comes-con-pelos_6935487_0.html)
-
-
-### youtube no funciona (N/A, 17/02/2026 21:42 Lima)
-
-- **¿YouTube te va mal? Esta vez sí es tu culpa: así se soluciona**: [Link](https://hipertextual.com/tecnologia/youtube-te-va-mal-esta-vez-si-es-tu-culpa-asi-se-soluciona/)
-- **YouTube añade otra barrera para impedir el uso de bloqueadores de anuncios y no hay forma de sortearla por ahora**: [Link](https://andro4all.com/google/youtube-anade-otra-barrera-para-impedir-el-uso-de-bloqueadores-de-anuncios-y-no-hay-forma-de-sortearla-por-ahora)
-- **Por qué YouTube bloquea los comentarios de algunos videos y a quiénes afecta**: [Link](https://la100.cienradios.com/tecnologia/por-que-youtube-bloquea-los-comentarios-de-algunos-videos-y-a-quienes-afecta/)
-
-
-### hola (N/A, 17/02/2026 21:42 Lima)
-
-- **Nadia Ferreira presume su baby bump previo a su gran noche en Premio Lo Nuestro**: [Link](https://www.hola.com/us-es/celebrities/20260217884526/nadia-ferreira-baby-bump-ensayos-premio-lo-nuestro/)
-- **Nadia Ferreira presume de su pancita de embarazada**: [Link](https://meridiano.net/farandula/nadia-ferreira-presume-de-su-pancita-de-embarazada-202621716310)
-- **¿Nadia Ferreira espera mellizos? El detalle que desató la teoría**: [Link](https://www.lanacion.com.py/lnpop/2026/02/13/nadia-ferreira-espera-mellizos-el-detalle-que-desato-la-teoria/)
-
-
-### eclipse solar (N/A, 17/02/2026 21:42 Lima)
-
-- **Un eclipse parcial de sol se podrá ver el martes en algunas zonas de Suramérica**: [Link](https://gestion.pe/mundo/internacional/un-eclipse-parcial-de-sol-se-podra-ver-el-martes-en-algunas-zonas-de-suramerica-noticia/)
-- **Eclipse solar del 17 de febrero de 2026: horarios y dónde será visible**: [Link](https://andina.pe/agencia/noticia-eclipse-solar-del-17-febrero-2026-horarios-y-donde-sera-visible-1063392.aspx)
-- **¿Tiene algún significado que coincidan la Luna Nueva y el eclipse solar del 17 de febrero? | TDPE | RESPUESTAS**: [Link](https://elcomercio.pe/respuestas/que/tiene-algun-significado-que-coincidan-la-luna-nueva-y-el-eclipse-solar-del-17-de-febrero-tdpe-noticia/)
-
-
-### caida de youtube (N/A, 17/02/2026 21:42 Lima)
-
-- **#Viral | ¿Lo notaste? Reportan la caída de #Youtube🚨⚠️⁣ ⁣ Se ha registrado la caída de la plataforma #Youtube por lo que miles de usuarios han resultado afectados.⁣ ⁣ #AztecaYucatán | #AztecaDigital**: [Link](https://www.instagram.com/p/DU4Wqt9mogz/)
-- **YouTube registra una caída masiva que afecta a millones de usuarios en todo el mundo**: [Link](https://andina.pe/agencia/noticia-youtube-registra-una-caida-masiva-afecta-a-millones-usuarios-todo-mundo-1063496.aspx)
-- **Miles de usuarios afirman que el sitio está inactivo porque la página de inicio devuelve un mensaje de error**: [Link](https://bitacora.com.uy/miles-de-usuarios-afirman-que-el-sitio-esta-inactivo-porque-la-pagina-de-inicio-devuelve-un-mensaje-de-error/)
-
-
-### youtube down (N/A, 17/02/2026 21:42 Lima)
-
-- **YouTube down for more than 240,000 users in the US, Downdetector shows**: [Link](https://www.reuters.com/technology/youtube-down-more-than-240000-users-us-downdetector-shows-2026-02-18/)
-- **YouTube down — live updates on major outage affecting both the app and the website**: [Link](https://www.tomsguide.com/news/live/youtube-outage-february-2026)
-- **Is YouTube down? Thousands of users experience issues with platform**: [Link](https://www.king5.com/article/news/nation-world/youtube-outage-thousands-report-issues/507-b71b54d0-204f-4b33-b9a1-d68ca96100b5)
-
-
-### ousmane dembélé (N/A, 17/02/2026 15:44 Lima)
-
-- **Marquinhos and Vitinha stand by Dembele after his controversial outburst - reports**: [Link](https://tribuna.com/en/news/2026-02-17-marquinhos-and-vitinha-stand-by-dembele-after-his-controversial-outburst-reports/)
-- **Joao Neves: No issues in PSG's squad after Dembele criticism**: [Link](https://www.fotmob.com/ro/news/1hfsh3fici5n812bnl9joopyep-joao-neves-no-issues-psgs-squad-after-dembele-criticism)
-- **'Déjà vu' in Paris: a PSG on fire stars in a week of playoffs in Europe**: [Link](https://www.mundoamerica.com/british/2026/02/17/699438f9fc6c83e22b8b457a.html)
 
 
