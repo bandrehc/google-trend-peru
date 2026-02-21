@@ -1,3 +1,70 @@
+### gimnasia y esgrima - gimnasia (N/A, 20/02/2026 21:30 Lima)
+
+- **El Lobo visita a su homónimo mendocino: ¿el puntapié inicial para la unión de los Gimnasia? | Infocielo**: [Link](https://www.infocielo.com/deportes/el-lobo-visita-a-su-homonimo-mendocino-el-puntapie-inicial-para-la-union-de-los-gimnasia)
+- **En vivo: Gimnasia La Plata visita a su tocayo en Mendoza**: [Link](https://www.elgrafico.com.ar/articulo/primera-division/97951/en-vivo-gimnasia-la-plata-visita-a-su-tocayo-en-mendoza)
+- **Gimnasia vs Gimnasia por la fase de grupos de Liga Profesional EN VIVO. Seguilo minuto a minuto por la web de TN.**: [Link](https://tn.com.ar/deportes/futbol/2026/02/20/gimnasia-vs-gimnasia-en-vivo-por-la-fase-de-grupos-de-la-liga-profesional-hora-donde-ver-y-formaciones/)
+
+
+### alejandro tabilo (N/A, 20/02/2026 21:30 Lima)
+
+- **Tabilo se esforzó al máximo para evitar sorpresas y avanzó a cuartos en el ATP 500 de Río de Janeiro**: [Link](https://www.espn.com.pe/tenis/nota/_/id/16331164/tabilo-se-esforzo-al-maximo-para-evitar-sorpresas-y-avanzo-a-cuartos-en-el-atp-500-de-rio-de-janeiro)
+- **Ignacio Buse vs. Matteo Berrettini EN VIVO: juegan EN DIRECTO en cuartos de final del Río Open**: [Link](https://rpp.pe/tenis/mas-tenis/ignacio-buse-vs-matteo-berrettini-en-vivo-a-que-hora-juegan-y-donde-ver-cuartos-de-final-rio-open-via-atp-tv-link-gratis-noticia-1676689)
+- **Ignacio Buse derrotó 2-1 a Joao Fonseca y clasificó a cuartos de final del ATP 500 de Rio**: [Link](https://depor.com/full-deportes/ignacio-buse-vs-joao-fonseca-en-vivo-hoy-espn-disney-plus-por-octavos-de-final-de-atp-500-de-rio-de-janeiro-2026-en-directo-online-por-internet-gratis-brasil-video-noticia/)
+
+
+### marco huamán (N/A, 20/02/2026 21:30 Lima)
+
+- **Alianza vs. Boys: el árbitro anula el segundo gol de los íntimos anotado por Marco Huamán**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/alianza-vs-boys-gol-anulado-a-marco-huaman-que-habia-ampliado-la-ventaja-para-los-intimos-noticia/)
+- **VAR anuló golazo de Marco Huamán que era el 2-0 de Alianza Lima sobre Boys - VIDEO**: [Link](https://libero.pe/videos/liga-1/2026/02/20/alianza-lima-vs-sport-boys-en-vivo-gol-anulado-de-marco-huaman-en-partido-del-torneo-apertura-liga-1-1967220)
+
+
+### alianza lima versus sport boys (N/A, 20/02/2026 21:30 Lima)
+
+Sin noticias relacionadas disponibles.
+
+
+### ldu (N/A, 20/02/2026 21:30 Lima)
+
+- **Excompañero en LDU sobre Hernán Barcos: "Es una persona maravillosa"**: [Link](https://rpp.pe/futbol/descentralizado/excompanero-en-ldu-sobre-hernan-barcos-es-una-persona-maravillosa-noticia-1676816)
+- **Delantero de Independiente del Valle destacó a Hernán Barcos y aseguró que fue como su padre: "Es gigante lo que representa en mí"**: [Link](https://larepublica.pe/deportes/2026/02/20/delantero-de-independiente-del-valle-destaco-a-hernan-barcos-y-aseguro-que-fue-como-su-padre-es-gigante-lo-que-representa-en-mi-1367720)
+- **Ex compañero de Hernán Barcos reveló cómo es realmente el 'Pirata': "Es una..."**: [Link](https://libero.pe/futbol-peruano/liga-1/2026/02/20/alianza-lima-ex-companero-de-hernan-barcos-revelo-como-es-realmente-pirata-es-350940)
+
+
+### paolo guerrero (N/A, 20/02/2026 21:30 Lima)
+
+- **"Es un técnico intenso": Paolo Guerrero pide paciencia para el proceso de Pablo Guede**: [Link](https://rpp.pe/futbol/descentralizado/alianza-lima-es-un-tecnico-intenso-paolo-guerrero-pide-paciencia-para-el-proceso-de-pablo-guede-noticia-1676775)
+- **“Pablo Guede es un técnico intenso...”: Paolo Guerrero revela cómo es la relación entre ambos y cuál es el compromiso en la previa contra Sport Boys**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/alianza-lima-pablo-guede-es-un-tecnico-intenso-paolo-guerrero-revela-como-es-la-relacion-entre-ambos-y-cual-es-el-compromiso-en-la-previa-contra-sport-boys-tlcnota-noticia/)
+- **Paolo Guerrero impacta con drástico cambio tras ser señalado por hinchas de Alianza Lima**: [Link](https://libero.pe/futbol-peruano/alianza-lima/2026/02/19/paolo-guerrero-impacta-drastico-cambio-ser-senalado-hinchas-de-alianza-lima-foto-977778)
+
+
+### rosario central - talleres (N/A, 20/02/2026 21:30 Lima)
+
+- **Cuándo juegan Rosario Central vs. Talleres por el Torneo Apertura 2026: equipo, fecha, hora y TV en vivo**: [Link](https://espndeportes.espn.com/futbol/argentina/nota/_/id/16328116/rosario-central-vs-talleres-cordoba-torneo-apertura-2026-equipo-fecha-hora-y-tv-en-vivo)
+- **Así viene el Canalla**: [Link](https://www.vavel.com/ar/futbol-argentino/2026/02/20/talleres-de-cordoba/1251416-asi-viene-el-canalla.html)
+- **¿EL COPETTI BIEN ARRIBA?**: [Link](https://www.pressreader.com/argentina/ole/20260220/281835765166673)
+
+
+### tigres - pachuca (N/A, 20/02/2026 21:30 Lima)
+
+- **Liga MX: Se enfrentan Tigres y Pachuca por la fecha 7**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-se-enfrentan-tigres-y-pachuca-por-la-fecha-7-noticia-1676619)
+- **Qué canal pasa Tigres vs Pachuca hoy: dónde ver GRATIS y EN VIVO el partido de la Liga MX**: [Link](https://www.365scores.com/es/news/tigres-vs-pachuca-donde-ver-gratis-vivo/)
+- **Bajo mando de Esteban Solari, Pachuca llega al Uni con cinco juegos sin perder.**: [Link](https://www.oncediario.com/notas/60918-esteban-solari-tigres-pachuca-tuzos-liga-mx-clausura-2026-jornada-7-analisis-de-juego)
+
+
+### instituto - atlético tucumán (N/A, 20/02/2026 21:30 Lima)
+
+- **Instituto lo fue a buscar y tuvo su premio sobre la hora ante Atlético Tucumán**: [Link](https://www.espn.com.ar/futbol/argentina/nota/_/id/16337823/instituto-vs-atletico-tucuman-comentario-torneo-apertura)
+- **Con Cerato salvador, el 2-1 en los últimos minutos y el penal polémico: el 1x1 de la Gloria ante Atlético**: [Link](https://www.lavoz.com.ar/deportes/futbol/con-cerato-salvador-el-2-1-en-los-ultimos-minutos-y-el-penal-polemico-el-1x1-de-la-gloria-ante-atletico/)
+- **Diego Flores tras la victoria: "El equipo que buscó el partido fue Instituto" febrero 2026**: [Link](https://canalshowsport.com.ar/diego-flores-tras-la-victoria-el-equipo-que-busco-el-partido-fue-instituto/)
+
+
+### alianza lima - sport boys (N/A, 20/02/2026 21:30 Lima)
+
+- **Alianza Lima vs. Sport Boys EN VIVO: minuto a minuto por internet gratis vía Liga 1 MAX**: [Link](https://depor.com/futbol-peruano/descentralizado/alianza-lima-vs-sport-boys-en-vivo-minuto-a-minuto-gratis-hoy-liga-1-max-movistar-tv-futbol-libre-tv-directv-zapping-y-canales-de-transmision-online-en-directo-por-torneo-apertura-2026-noticia/)
+- **Pablo Guede se juega el puesto ante Sport Boys**: [Link](https://caretas.pe/deportes/pablo-guede-se-juega-el-puesto-ante-sport-boys/)
+- **Alineaciones Alianza Lima vs Sport Boys HOY: el sorprendente once de Guede para volver al triunfo**: [Link](https://libero.pe/futbol-peruano/alianza-lima/2026/02/19/alineaciones-alianza-lima-vs-sport-boys-formacion-del-partido-de-liga-1-peru-apertura-1612663)
+
+
 ### defensa y justicia - belgrano (N/A, 20/02/2026 15:39 Lima)
 
 - **¿Dónde ver EN VIVO y ONLINE Defensa y Justicia vs. Belgrano por el Torneo Apertura 2026?**: [Link](https://www.futbolargentino.com/primera-division/noticias/fecha-6-del-torneo-apertura-donde-ver-en-vivo-y-online-defensa-y-justicia-vs-belgrano-564727)
@@ -959,75 +1026,5 @@ Sin noticias relacionadas disponibles.
 
 - **Paulo Londra en Lima 2026: Fecha, lugar, entradas y todo sobre su concierto en el Perú**: [Link](https://trome.com/espectaculos/musica/paulo-londra-en-lima-2026-concierto-en-el-estadio-nacional-fecha-y-entradas-conciertos-en-lima-noticia/)
 - **Paulo Londra en Perú: el artista argentino remecerá el Estadio Nacional por primera vez en agosto**: [Link](https://www.moda.com.pe/noticias/musica/paulo-londra-en-peru-el-artista-argentino-remecera-el-estadio-nacional-por-primera-vez-en-agosto-entradas-teleticket/)
-
-
-### al-sadd - al ittihad (N/A, 17/02/2026 12:02 Lima)
-
-- **ACL Elite: Mancini tells Al Sadd to ‘seize opportunity’ in crunch Al Ittihad clash**: [Link](https://thepeninsulaqatar.com/article/17/02/2026/acl-elite-mancini-tells-al-sadd-to-seize-opportunity-in-crunch-al-ittihad-clash)
-- **al sadd vs al-ittihad: Aouar Strike, Disallowed Firmino Goal and Conceição’s Rotation Resolve**: [Link](https://www.filmogaz.com/154431)
-- **Mancini: No Alternative to Winning Against Al-Ittihad in Asian Elite**: [Link](https://www.ysscores.com/en/news/13912560/Mancini:-No-Alternative-to-Winning-Against-Al-Ittihad-in-Asian-Elite)
-
-
-### congreso de la república (N/A, 17/02/2026 12:02 Lima)
-
-- **Pleno del Congreso sesionará el martes 17 de febrero para debatir mociones de censura contra presidente José Jerí**: [Link](https://comunicaciones.congreso.gob.pe/noticias/pleno-del-congreso-sesionara-el-martes-17-de-febrero-para-debatir-mociones-de-censura-contra-presidente-jose-jeri/)
-- **El salvavidas grosero para Jerí por Richard Arce**: [Link](https://peru21.pe/opinion/el-salvavidas-grosero-para-jeri-por-richard-arce/)
-- **Óscar Urviola: "Si el Congreso insiste en el tema de la censura, en la práctica, ese es un golpe de Estado"**: [Link](https://rpp.pe/politica/gobierno/carlos-urviola-si-el-congreso-insiste-en-el-tema-de-la-censura-en-la-practica-ese-es-un-golpe-de-estado-noticia-1676194)
-
-
-### juan pablo varillas (N/A, 17/02/2026 12:02 Lima)
-
-- **Juan Pablo Varillas vs Álvaro Guillén EN VIVO: ¿a qué hora juegan y dónde ver la primera ronda del Challenger de Tigre?**: [Link](https://rpp.pe/tenis/mas-tenis/juan-pablo-varillas-vs-alvaro-guillen-en-vivo-a-que-hora-juegan-y-donde-ver-primera-ronda-challenger-de-tigre-2026-via-atp-tour-link-gratis-partidos-de-hoy-noticia-1676114)
-- **Comenzó el AAT Challenger Tigre con destacada participación argentina**: [Link](https://www.infobae.com/deportes/2026/02/16/comenzo-el-aat-challenger-tigre-con-destacada-participacion-argentina/)
-- **Los correntinos salen a escena en Tigre**: [Link](https://www.diarioepoca.com/1373818-los-correntinos-salen-a-escena-en-tigre)
-
-
-### galatasaray vs juventus (N/A, 17/02/2026 12:02 Lima)
-
-- **Osimhen denies disagreements with Spalletti: ‘He worked night and day’**: [Link](https://football-italia.net/osimhen-no-disagreement-spalletti-day-night/)
-- **İlkay Gündoğan on 'dream' move to Galatasaray**: [Link](https://www.uefa.com/uefachampionsleague/news/02a2-1ff0da9ef4a8-2241cfc3db1e-1000--ilkay-gundogan-on-dream-move-to-galatasaray/)
-- **How to watch Galatasaray vs Juventus in the USA: Live Stream and TV for 2025/2026 Champions League**: [Link](https://worldsoccertalk.com/watch-on-us-tv/how-to-watch-galatasaray-vs-juventus-in-the-usa-live-stream-and-tv-for-2025-2026-champions-league/)
-
-
-### resultados coar 2026 primera fase (N/A, 17/02/2026 12:02 Lima)
-
-- **Resultados COAR 2026: LINK para ver la lista de postulantes aptos a la primera fase a nivel nacional**: [Link](https://libero.pe/tiempoextra/2026/02/16/resultados-coar-2026-link-ver-lista-de-postulantes-aptos-primera-fase-nivel-nacional-colegios-de-alto-rendimiento-813440)
-- **Admisión COAR 2026: aquí el link oficial para ver resultados de primera fase**: [Link](https://andina.pe/agencia/noticia-admision-coar-2026-aqui-link-oficial-para-ver-resultados-primera-fase-1063396.aspx)
-- **Resultados Fase 1 COAR 2026: link oficial para ver la lista de postulantes que pasan a la siguiente etapa**: [Link](https://www.infobae.com/peru/2026/02/17/resultados-fase-1-coar-2026-link-oficial-para-ver-la-lista-de-postulantes-que-pasan-a-la-siguiente-etapa/)
-
-
-### resultados coar 2026 (N/A, 17/02/2026 08:16 Lima)
-
-- **Resultados COAR 2026: LINK para ver la lista de postulantes aptos a la primera fase a nivel nacional**: [Link](https://libero.pe/tiempoextra/2026/02/16/resultados-coar-2026-link-ver-lista-de-postulantes-aptos-primera-fase-nivel-nacional-colegios-de-alto-rendimiento-813440)
-- **Resultados Fase 1 COAR 2026: LINK para revisar si aprobaste la evaluación del Proceso Único de Admisión**: [Link](https://libero.pe/tiempoextra/2026/02/17/resultados-fase-1-coar-2026-link-revisar-puntajes-del-proceso-unico-de-admision-colegios-de-alto-rendimiento-680784)
-- **Resultados Examen de Admisión Ordinario UNI 2026-I: LINK para consultar puntaje de la prueba del 16 de febrero**: [Link](https://libero.pe/tiempoextra/2026/02/16/examen-de-admision-de-uni-lunes-16-de-febrero-donde-consultar-resultados-es-link-oficial-930795)
-
-
-### jeri (N/A, 17/02/2026 08:16 Lima)
-
-- **Peru Congress to debate motion to remove President Jeri amid scandal**: [Link](https://www.reuters.com/world/americas/peru-congress-debate-motion-remove-president-jeri-amid-scandal-2026-02-13/)
-- **Peru’s Congress Schedules Vote on Motions to Oust President**: [Link](https://www.bloomberg.com/news/articles/2026-02-13/peru-s-congress-schedules-vote-on-motions-to-oust-president)
-- **Peru to debate removal of President Jose Jeri four months into his term**: [Link](https://www.aljazeera.com/news/2026/2/14/peru-to-debate-removal-of-president-jose-jeri-four-months-into-his-term)
-
-
-### eclipse 17 de febrero (N/A, 17/02/2026 08:16 Lima)
-
-- **Eclipse solar anular del martes 17 de febrero: dónde será visible el “anillo de fuego”**: [Link](https://www.infobae.com/america/ciencia-america/2026/02/16/eclipse-solar-anular-del-martes-17-de-febrero-donde-sera-visible-el-anillo-de-fuego/)
-- **Eclipse solar 2026 EN VIVO: el "Anillo de Fuego" de este 17 de febrero, minuto a minuto**: [Link](https://www.clarin.com/internacional/eclipse-solar-2026-vivo-anillo-fuego-17-febrero-minuto-minuto_0_7BhPKMonXI.html)
-- **Un eclipse parcial de sol podrá verse en zonas de Sudamérica**: [Link](https://www.dw.com/es/un-eclipse-parcial-de-sol-podr%C3%A1-verse-en-zonas-de-sudam%C3%A9rica/a-75997473)
-
-
-### paro de transportistas hoy (N/A, 17/02/2026 08:16 Lima)
-
-- **Paro de transportistas EN VIVO, hoy, 16 de febrero: últimas noticias sobre las medidas de los gremios y rutas de buses en Lima Metropolitana**: [Link](https://larepublica.pe/sociedad/2026/02/16/paro-de-transportistas-en-vivo-hoy-16-de-febrero-ultimas-noticias-sobre-las-medidas-de-los-gremios-y-rutas-de-buses-en-lima-metropolitana-302576)
-- **Sicarios graban asesinato de conductor de El Rápido**: [Link](https://www.americatv.com.pe/noticias/actualidad/sicarios-graban-asesinato-conductor-empresa-rapido-n515882)
-- **Empresas de transporte convocarán paro general contra el gobierno ante ola criminal**: [Link](https://gestion.pe/peru/empresas-de-transporte-convocaran-paro-general-contra-el-gobierno-ante-ola-criminal-noticia/)
-
-
-### therian (N/A, 17/02/2026 08:16 Lima)
-
-- **¿Therians en Lima? Qué son y de qué trata el fenómeno que crece en redes sociales y ya es visible en ciudades de Latinoamérica**: [Link](https://www.infobae.com/peru/2026/02/15/therians-en-lima-que-son-y-de-que-trata-el-fenomeno-que-crece-en-redes-y-ya-es-visible-en-varias-ciudades-de-latinoamerica/)
-- **¿Qué son los ‘therian’?: La verdad del fenómeno que se ha vuelto viral y que tiene sus primeros casos en Perú**: [Link](https://www.atv.pe/noticia/que-son-los-therian-la-verdad-del-fenomeno-que-se-ha-vuelto-viral-y-que-tiene-sus-primeros-casos-en-peru/)
-- **¿Qué son los “therians” y por qué este fenómeno causa debate en redes sociales?**: [Link](https://latinanoticias.pe/tendencias/que-son-los-therian-y-por-que-este-fenomeno-causa-debate-en-redes-sociales_20260215/)
 
 
