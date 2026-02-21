@@ -1,3 +1,71 @@
+### konyaspor - galatasaray (N/A, 21/02/2026 11:36 Lima)
+
+- **CANLI| Konyaspor - Galatasaray maçı ne zaman, saat kaçta, hangi kanalda? (11'ler belli oldu)**: [Link](https://www.fanatik.com.tr/galatasaray/live-konyaspor-galatasaray-maci-ne-zaman-saat-kacta-hangi-kanalda-11ler-belli-oldu-2613202)
+- **Osimhen Konyaspor maçında neden yok, oynamayacak mı?**: [Link](https://www.fotomac.com.tr/futbol/2026/02/21/osimhen-konyaspor-macinda-yok-mu-oynamayacak-mi)
+- **Torreira’dan Konyaspor maçı öncesi uyarı: 'Hata pahalıya patlar'**: [Link](https://www.yenicaggazetesi.com/torreiradan-konyaspor-maci-oncesi-uyari-hata-pahaliya-patlar-1003143h.htm)
+
+
+### lecce - inter (N/A, 21/02/2026 11:36 Lima)
+
+- **🔴 Lecce-Inter | UFFICIALI: Bonny o Pio? La scelta su Dimarco e Sottil**: [Link](https://onefootball.com/id/berita/lecce-inter-ufficiali-bonny-o-pio-la-scelta-su-dimarco-e-sottil-42445267)
+- **Le formazioni ufficiali di Lecce-Inter**: [Link](https://www.inter.it/it/notizie/formazioni-ufficiali-lecce-inter-serie-a-25-26)
+- **CALCIO CAMPIONATO SERIE A 26ª giornata LECCE vs INTER – Le Formazioni Ufficiali**: [Link](https://www.lecceoggi.com/calcio-campionato-serie-a-26a-giornata-lecce-vs-inter-le-formazioni-ufficiali/)
+
+
+### osasuna vs. real madrid (N/A, 21/02/2026 11:36 Lima)
+
+- **¿A qué hora juega Real Madrid vs Osasuna HOY por LaLiga de España vía DSports?**: [Link](https://larepublica.pe/deportes/2026/02/20/real-madrid-vs-osasuna-en-vivo-hora-y-canal-del-partido-por-la-fecha-25-de-laliga-de-espana-1635040)
+- **◉ A qué hora juegan y por qué canal transmiten Real Madrid vs. Osasuna EN VIVO hoy por LaLiga en EE.UU., México y España**: [Link](https://gestion.pe/mix/sports/a-que-hora-juega-y-que-canal-transmite-real-madrid-vs-osasuna-en-vivo-hoy-por-laliga-2026-en-eeuu-mexico-y-espana-canales-tv-online-nnda-nnrt-noticia/)
+- **Osasuna vs Real Madrid: posibles alineaciones, Jornada 25, LaLiga**: [Link](https://www.espn.com.pe/futbol/espana/nota/_/id/16337254/osasuna-vs-real-madrid-alineaciones-laliga-2026-jornada-25)
+
+
+### wrexham - ipswich (N/A, 21/02/2026 11:36 Lima)
+
+- **MATCHDAY GUIDE | WREXHAM (A)**: [Link](https://www.itfc.co.uk/news/2026/february/20/matchday-guide-wrexham-a-/)
+- **Lili says it will be lessons learned as Wrexham tackle Cardiff in final**: [Link](https://www.rhyljournal.co.uk/sport/25870850.lilis-looking-forward-wrexhams-big-final-cardiff/)
+- **Man in the middle for Wrexham trip has awarded TEN penalties this season**: [Link](https://www.ipswichstar.co.uk/sport/25872732.wrexham-v-ipswich-town-meet-referee-leigh-doughty/)
+
+
+### aston villa vs (N/A, 21/02/2026 11:36 Lima)
+
+- **Jadon Sancho: ‘The job’s not finished’**: [Link](https://www.vavel.com/en/football/2026/02/20/aston-villa/1251468-jadon-sancho-the-jobs-not-finished.html)
+- **Cash, Elliott, Bizot: Aston Villa injury latest for FPL Gameweek 27**: [Link](https://www.fantasyfootballscout.co.uk/2026/02/20/cash-elliott-bizot-aston-villa-injury-latest-for-fpl-gameweek-27/)
+- **"I'm sure" - Jadon Sancho on Leeds United with Whites admission, prediction and Aston Villa plan**: [Link](https://www.yorkshireeveningpost.co.uk/sport/football/leeds-united/leeds-united-aston-villa-jadon-sancho-premier-league-villa-park-5606712)
+
+
+### chelsea (N/A, 21/02/2026 11:36 Lima)
+
+- **Estevao injury news: Chelsea and Brazil star out, set for scan**: [Link](https://sports.yahoo.com/articles/estevao-injury-news-chelsea-brazil-143345761.html)
+- **Why Estevao Willian has been left out of Chelsea squad by Liam Rosenior for clash with Burnley**: [Link](https://www.goal.com/en-sa/lists/why-estevao-willian-out-chelsea-clash-with-burnley/blt2c9b5dd606c55474)
+- **Chelsea hit with huge new injury blow ahead of Arsenal showdown**: [Link](https://www.standard.co.uk/sport/football/chelsea-fc-estevao-injury-b1271930.html)
+
+
+### gonzalo bueno (N/A, 21/02/2026 11:36 Lima)
+
+- **Gonzalo Bueno se mete en semifinales del Challenger 50 de Tigre**: [Link](https://elcomercio.pe/deporte-total/tenis/gonzalo-bueno-se-mete-en-semifinales-del-challenger-50-de-tigre-noticia/)
+- **Bueno, imparable: vence al argentino Collarini y se mete a semis del Challenger de Tigre**: [Link](https://buenapepa.pe/bueno-vence-a-collarini-y-se-mete-a-semis-del-challenger-de-tigre/)
+- **Varillas se despidió del Challenger de Tigre tras caer ante ecuatoriano Guillén**: [Link](https://ovacion.pe/noticias/tenis/varillas-se-despidio-del-challenger-tigre-tras-caer-ante-ecuatoriano-guillen)
+
+
+### dólar hoy perú (N/A, 21/02/2026 11:36 Lima)
+
+- **El sol se aprecia 9.02% frente al dólar en un año**: [Link](https://elperuano.pe/noticia/289590-el-sol-se-aprecia-902-frente-al-dolar-en-un-ano)
+- **Precio del dólar en Perú hoy, sábado 21 de febrero: cuál es la cotización del día**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-2026-cuanto-esta-el-dolar-este-sabado-21-de-febrero-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
+- **Precio del dólar Perú y tipo de cambio hoy 20 de febrero del 2026**: [Link](https://rpp.pe/economia/economia/precio-del-dolar-peru-y-tipo-de-cambio-hoy-20-de-febrero-del-2026-noticia-1676715)
+
+
+### lens - mónaco (N/A, 21/02/2026 11:36 Lima)
+
+- **Liga de Francia: Lens, con la misión de ganar para seguir en la cima**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-de-francia-lens-con-la-mision-de-ganar-para-seguir-en-la-cima-noticia-1676716)
+
+
+### real betis vs (N/A, 21/02/2026 11:36 Lima)
+
+- **Betis - Rayo Vallecano hoy, en directo: LaLiga EA Sports en vivo, última hora en La Cartuja**: [Link](https://as.com/futbol/primera/betis-rayo-vallecano-en-directo-laliga-ea-sports-en-vivo-hoy-f202602-d/)
+- **Betis - Rayo | Amenaza de Rayo en La Cartuja: análisis, previa, pronóstico y predicción**: [Link](https://www.marca.com/futbol/primera-division/2026/02/20/betis-rayo-amenaza-rayo-cartuja-analisis-previa-pronostico-prediccion.html)
+- **Apuestas y Pronóstico del Real Betis vs Rayo Vallecano 21/02/26**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2026/febrero/pronostico-real-betis-vs-rayo-vallecano-21-02-26)
+
+
 ### stoke city - leicester city (N/A, 21/02/2026 08:00 Lima)
 
 - **Leicester City team news v Stoke with Abdul Fatawu missing from Gary Rowett's first line-up**: [Link](https://www.leicestermercury.co.uk/sport/football/football-news/leicester-city-team-news-v-10828261)
@@ -961,71 +1029,5 @@ Sin noticias relacionadas disponibles.
 - **Julio Iglesias vuelve a reclamar la denuncia falsa y archivada que la Fiscalía se niega a entregarle**: [Link](https://okdiario.com/espana/julio-iglesias-vuelve-reclamar-denuncia-falsa-archivada-que-fiscalia-niega-entregarle-16262275)
 - **Javier Santos, hijo no reconocido de Julio Iglesias: “Mi hermano Enrique me trató con mucho respeto. Me gustaría hablar con él. Le he escrito mucho, pero tiene millones de fans"**: [Link](https://www.lecturas.com/actualidad/javier-santos-hijo-julio-iglesias-mi-hermano-enrique-me-trato-mucho-respeto-me-gustaria-hablar-le-he-escrito-mucho-pero-tiene-millones-fans_188756)
 - **Un detective privado y una portada de Interviú, la “maquinaria de desprestigio” de Julio Iglesias contra la mujer que le reclamó la paternidad de su hijo**: [Link](https://www.eldiario.es/cultura/detective-privado-portada-interviu-maquinaria-desprestigio-julio-iglesias-mujer-le-reclamo-paternidad-hijo_1_12983666.html)
-
-
-### bodø/glimt vs. manchester city (N/A, 18/02/2026 00:24 Lima)
-
-- **Inter midfielders Calhanoglu and Frattesi ruled out of Bodo/Glimt clash**: [Link](https://football-italia.net/calhanoglu-frattesi-ruled-out-bodo-glimt-inter/)
-- **Milan Coach Chivu On Post Juventus Drama: “Enough With Moralism, We Were Wronged Against Napoli & No-One Said Anything”**: [Link](https://sempreinter.com/2026/02/17/inter-milan-boss-chivu-hits-back-critics-enough-moralism-juventus/)
-- **GdS: 4000km and 30° – why Inter’s trip to Norway could influence the title race**: [Link](https://sempremilan.com/why-inter-trip-to-norway-influence-title-race)
-
-
-### steven tyler (N/A, 18/02/2026 00:24 Lima)
-
-- **The only singer Joe Perry loved as much as Steven Tyler: “He’s not interested in ego”**: [Link](https://faroutmagazine.co.uk/singer-joe-perry-loved-as-much-as-steven-tyler/)
-
-
-### real españa - lafc (N/A, 18/02/2026 00:24 Lima)
-
-- **Real España - LAFC en vivo: Concacaf Champions Cup, minuto a minuto del partido de IDA en Honduras**: [Link](https://as.com/us/futbol/real-espana-lafc-en-vivo-concacaf-champions-cup-minuto-a-minuto-del-partido-de-ida-en-honduras-f202602-n/)
-- **Transmisión EN VIVO de Real España vs Los Angeles FC hoy: cómo mirar el partido por TV o streaming**: [Link](https://www.365scores.com/es/news/real-espana-vs-los-angeles-streaming/)
-- **La humildad de Son en San Pedro Sula: factura grande y solo cuatro guardaespaldas**: [Link](https://www.tudn.com/futbol/la-humildad-de-son-en-san-pedro-sula-factura-grande-y-solo-cuatro-guardaespaldas-video)
-
-
-### miercoles de ceniza (N/A, 18/02/2026 00:24 Lima)
-
-- **Miércoles de Ceniza 2026: cuándo es y por qué marca el inicio de la Cuaresma**: [Link](https://gestion.pe/mix/respuestas/miercoles-de-ceniza-2026-cuando-es-y-por-que-marca-el-inicio-de-la-cuaresma-nnda-nnni-noticia/)
-- **Para comenzar la Cuaresma con fe: 10 oraciones del Miércoles de Ceniza 2026 para rezar en familia**: [Link](https://elcomercio.pe/mag/respuestas/para-comenzar-la-cuaresma-con-fe-10-oraciones-del-miercoles-de-ceniza-2026-para-rezar-en-familia-noticia/)
-- **¿Cuándo es el primer domingo de Cuaresma y qué significado tiene en el camino hacia la Pascua?**: [Link](https://www.prensalibre.com/vida/escenario/cuando-es-el-primer-domingo-de-cuaresma-y-que-significado-tiene-en-el-camino-hacia-la-pascua/)
-
-
-### shia labeouf (N/A, 18/02/2026 00:24 Lima)
-
-- **Shia LaBeouf Arrested at Mardi Gras After Fight, Spotted in Ambulance, on Video**: [Link](https://www.tmz.com/2026/02/17/shia-labeouf-in-mardi-gras-fight-paramedics-respond/)
-- **Exclusive | Shia LaBeouf and wife Mia Goth secretly split after rollercoaster romance: sources**: [Link](https://pagesix.com/2026/02/17/celebrity-news/shia-labeouf-and-wife-mia-goth-split-a-year-ago-sources/)
-- **Shia LaBeouf’s Mardi Gras Bar Crawl: “He’s Terrorizing the City”**: [Link](https://www.hollywoodreporter.com/news/general-news/shia-labeouf-mardi-gras-bar-crawl-new-orleans-1236507049/)
-
-
-### cristal fc (N/A, 17/02/2026 21:42 Lima)
-
-- **Christantus Uche’s Crystal Palace loan is petering out. It has not worked for anyone**: [Link](https://www.nytimes.com/athletic/7050783/2026/02/17/christantus-uche-crystal-palace-loan/)
-- **Uche axed from Crystal Palace Europa Conference League squad**: [Link](https://dailypost.ng/2026/02/17/uche-axed-from-crystal-palace-europa-conference-league-squad/)
-- **Palace axe Uche from Conference League squad**: [Link](https://punchng.com/palace-axe-uche-from-conference-league-squad/)
-
-
-### river (N/A, 17/02/2026 21:42 Lima)
-
-- **The Colorado River might get a short-term fix. Is that good enough?**: [Link](https://www.kjzz.org/politics/2026-02-09/the-colorado-river-might-get-a-short-term-fix-is-that-good-enough)
-- **The coming failure of Glen Canyon Dam - High Country News**: [Link](https://www.hcn.org/articles/the-coming-failure-of-glen-canyon-dam/)
-- **‘Just difficult choices’: Interior grabs the reins on the Colorado River**: [Link](https://subscriber.politicopro.com/article/eenews/2026/02/17/just-difficult-choices-interior-grabs-the-reins-on-the-colorado-river-00784247)
-
-
-### leo rosas (N/A, 17/02/2026 21:42 Lima)
-
-- **Fallece conocido exchico reality a los 27 años tras luchar contra la depresión y su madre reacciona: "No puedo creer esto"**: [Link](https://wapa.pe/espectaculos-y-tv/farandula/2026/02/17/leo-rosas-fallece-conocido-exchico-reality-27-anos-luchar-depresion-voz-mexico-555339)
-
-
-### cristal vs universitario (N/A, 17/02/2026 21:42 Lima)
-
-- **¡Duelo de titanes! Sporting Cristal vs Universitario lidera la programación de la Fecha 4 de la Liga 1**: [Link](https://www.atv.pe/noticia/duelo-de-titanes-sporting-cristal-vs-universitario-lidera-la-programacion-de-la-fecha-4-de-la-liga-1/)
-- **Universitario suma tres refuerzos de lujo para enfrentar a Sporting Cristal por el Apertura**: [Link](https://libero.pe/futbol-peruano/universitario/2026/02/17/universitario-suma-tres-refuerzos-de-lujo-enfrentar-sporting-cristal-apertura-652392)
-- **Así se jugará la fecha 4 del Apertura de la Liga 1 2026**: [Link](https://espndeportes.espn.com/futbol/peru/nota/_/id/16324427/programacion-de-la-fecha-4-del-apertura-liga-1-de-peru)
-
-
-### yo (N/A, 17/02/2026 21:42 Lima)
-
-- **La Revuelta - Paula Usero y Clara Galle (17/02/2026) | Ver programa**: [Link](https://www.rtve.es/play/videos/la-revuelta/programa-17-02-2026-paula-usero-clara-galle/16942489/)
-- **El truco infalible de Clara Galle para afrontar la menstruación sin problemas: “Me compro una galleta en la panadería de debajo de mi casa y la congelo”**: [Link](https://www.lavanguardia.com/television/20260218/11469184/truco-infalible-clara-galle-afrontar-menstruacion-problemas-me-compro-galleta-panaderia-debajo-mi-casa-congelo-gvm2.html)
-- **El divertido momento de Clara Galle en 'La Revuelta' con Grison: "¿Tú no te lo comes con pelos?"**: [Link](https://www.20minutos.es/television/divertido-momento-clara-galle-revuelta-con-grison-tu-no-te-comes-con-pelos_6935487_0.html)
 
 
