@@ -1,3 +1,31 @@
+### lluvia (N/A, 21/02/2026 03:38 Lima)
+
+- **Respuesta inmediata ante desbordes**: [Link](https://elperuano.pe/noticia/289570-respuesta-inmediata-ante-desbordes)
+- **Lluvias inundan Arequipa, Ica, Lambayeque y más regiones EN VIVO: más de 500 distritos en riesgo**: [Link](https://larepublica.pe/sociedad/2026/02/19/lluvias-en-peru-en-vivo-alertas-del-senamhi-huaicos-desbordes-y-mas-de-la-emergencia-climatica-en-arequipa-ica-y-mas-regiones-970121)
+- **Senamhi advierte incremento de caudales y activación de quebradas en Ica y Arequipa**: [Link](https://elcomercio.pe/lima/sucesos/senamhi-advierte-incremento-de-caudales-y-activacion-de-quebradas-en-ica-y-arequipa-ultimas-noticia/)
+
+
+### carl grillmair (N/A, 21/02/2026 03:38 Lima)
+
+- **Caltech astrophysicist fatally shot on porch of his rural SoCal home, where he studied the stars**: [Link](https://www.latimes.com/california/story/2026-02-19/caltech-astrophysicist-fatally-shot-on-porch-in-antelope-valley)
+- **Suspect charged with murder in fatal shooting of 67-year-old Llano man**: [Link](https://www.yahoo.com/news/articles/suspect-charged-murder-fatal-shooting-013458097.html)
+- **Man charged in fatal shooting of renowned Caltech scientist**: [Link](https://www.newsnationnow.com/us-news/west/man-charged-caltech-scientist-shooting/)
+
+
+### clima lima (N/A, 21/02/2026 03:38 Lima)
+
+- **SENAMHI: Pronóstico del clima hoy viernes 20 de febrero 2026**: [Link](https://rpp.pe/peru/actualidad/senamhi-pronostico-del-clima-hoy-viernes-20-de-febrero-2026-noticia-1676702)
+- **Clima en Perú: conoce el pronóstico del tiempo para mañana en Huaraz**: [Link](https://www.infobae.com/noticias/2026/02/19/clima-en-peru-conoce-el-pronostico-del-tiempo-para-manana-en-huaraz/)
+- **Pronóstico del clima en Lima hoy 16 de febrero de 2026**: [Link](https://www.debate.com.mx/mundo/pronostico-del-clima-en-lima-hoy-16-de-febrero-de-2026-20260216-0010.html)
+
+
+### ranking atp (N/A, 21/02/2026 03:38 Lima)
+
+- **The boy without a backhand is now the youngest in the ATP Rankings**: [Link](https://www.puntodebreak.com/en/2026/02/19/the-boy-without-backhand-is-now-the-youngest-in-the-atp-rankings)
+- **Putting Sinner's Doha defeat in perspective: The numbers behind his consistency**: [Link](https://www.atptour.com/en/news/sinner-doha-2026-thursday-reaction)
+- **Qatar ExxonMobil Open Betting Odds and Match Previews for February 19, 2026, Men's Singles**: [Link](https://sportsbookwire.usatoday.com/story/sports/sports-betting/2026/02/19/qatar-exxonmobil-open-betting-odds-favorites-match-previews-2-18-2026-mens/88752168007/)
+
+
 ### clippers - lakers (N/A, 21/02/2026 00:07 Lima)
 
 - **Clippers vs Lakers Picks & Odds Today: Healthy Bodies Favor Home Side**: [Link](https://www.oddsshark.com/nba/clippers-lakers-picks-odds-february-20-2026)
@@ -999,33 +1027,5 @@ Sin noticias relacionadas disponibles.
 - **Marquinhos and Vitinha stand by Dembele after his controversial outburst - reports**: [Link](https://tribuna.com/en/news/2026-02-17-marquinhos-and-vitinha-stand-by-dembele-after-his-controversial-outburst-reports/)
 - **Joao Neves: No issues in PSG's squad after Dembele criticism**: [Link](https://www.fotmob.com/ro/news/1hfsh3fici5n812bnl9joopyep-joao-neves-no-issues-psgs-squad-after-dembele-criticism)
 - **'Déjà vu' in Paris: a PSG on fire stars in a week of playoffs in Europe**: [Link](https://www.mundoamerica.com/british/2026/02/17/699438f9fc6c83e22b8b457a.html)
-
-
-### espn (N/A, 17/02/2026 15:44 Lima)
-
-- **Alabama basketball rises in ESPN bracketology after four straight wins**: [Link](https://sports.yahoo.com/articles/alabama-basketball-rises-espn-bracketology-192351073.html)
-- **Iowa weekly roundup, odds, stats, upcoming games and more | February 16, 2026**: [Link](https://hawkeyeswire.usatoday.com/story/sports/college/hawkeyes/2026/02/16/iowa-hawkeyes-college-basketball-ranking-weekly-recap-2-16-2026/88708065007/)
-- **Alabama Men’s Basketball Ranked Again in AP Poll for First Time in Two Weeks**: [Link](https://tide1009.com/alabama-ranked-ap-top-25-mbb/)
-
-
-### paris vs (N/A, 17/02/2026 15:44 Lima)
-
-- **Mairie de Paris VS Mairie d’arrondissement : qui fait quoi ?**: [Link](https://www.pariszigzag.fr/paris-au-quotidien/mairie-de-paris-vs-mairie-darrondissement-qui-fait-quoi/)
-- **Le doute Ousmane Dembélé : le Ballon d'Or victime d'une gêne à l'entrainement avant Monaco-PSG**: [Link](https://www.lequipe.fr/Football/Actualites/Le-doute-ousmane-dembele-le-ballon-d-or-victime-d-une-gene-a-l-entrainement-avant-monaco-psg/1652833)
-- **Monaco-PSG : Paris saura-t-il régner en principauté ?**: [Link](https://www.leparisien.fr/sports/football/ligue-des-champions/monaco-psg-paris-saura-t-il-regner-en-principaute-17-02-2026-MSBGQQINTFEDTEMXEIU63PXI3Y.php)
-
-
-### borussia vs (N/A, 17/02/2026 15:44 Lima)
-
-- **BVB gegen Atalanta: Kovac mit überraschender Startelf**: [Link](https://www.fussballtransfers.com/a3584034307683130768-bvb-gegen-atalanta-kovac-ueberrascht-mit-startelf)
-- **Champions League: Stars viel zu spät im Stadion: Auch Herbert Grönemeyer Schuld am BVB-Chaos**: [Link](https://www.bild.de/sport/fussball/champions-league-es-geht-spaeter-los-anpfiff-vom-bvb-spiel-verschoben-6994bb1273621fceec20e525)
-- **BVB wehrt sich gegen Ausschluss bestimmter Fan-Gruppen in Bergamo**: [Link](https://www1.wdr.de/sport/fussball/champions-league/borussia-dortmund-bergamo-fan-ausschluss-protest-100.html)
-
-
-### dina boluarte (N/A, 17/02/2026 15:44 Lima)
-
-- **Las consecuencias de las decisiones | Andrés Romaña**: [Link](https://peru21.pe/opinion/las-consecuencias-de-las-decisiones-andres-romana/)
-- **La polarización política que trajo a Castillo y Jerí**: [Link](https://elcomercio.pe/opinion/columnistas/la-polarizacion-politica-que-trajo-a-pedro-castillo-y-jose-jeri-por-ivan-arenas-noticia/)
-- **QUÉ TIEMPOS AQUELLOS, columna de Iván Slocovich Pardo**: [Link](https://diariocorreo.pe/opinion/que-tiempos-aquellos-columna-de-ivan-slocovich-pardo-noticia/)
 
 
