@@ -1,3 +1,52 @@
+### clippers - lakers (N/A, 21/02/2026 00:07 Lima)
+
+- **Clippers vs Lakers Picks & Odds Today: Healthy Bodies Favor Home Side**: [Link](https://www.oddsshark.com/nba/clippers-lakers-picks-odds-february-20-2026)
+- **Where to watch Clippers vs. Lakers free stream today**: [Link](https://www.masslive.com/tv/2026/02/where-to-watch-clippers-vs-lakers-free-stream-today.html)
+- **LeBron James to be a game-time decision against the Clippers**: [Link](https://sports.yahoo.com/articles/lebron-james-game-time-decision-205948503.html)
+
+
+### puebla - américa (N/A, 21/02/2026 00:07 Lima)
+
+- **🟣 VER TUDN (Canal 5) EN VIVO | Transmisión del Puebla vs. Club América gratis por TV abierta**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/tudn-y-canal-5-en-vivo-gratis-como-ver-partido-puebla-vs-club-america-por-tv-abierta-y-futbol-online-nnda-nnrt-noticia/)
+- **Raphael Veiga se estrena como goleador con América**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/16338405/puebla-vs-america-raphael-veiga-primer-gol-liga-mx-clausura-2026)
+- **Liga MX: Puebla y Club América se miden por la fecha 7**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-puebla-y-club-america-se-miden-por-la-fecha-7-noticia-1676644)
+
+
+### taylor fritz (N/A, 21/02/2026 00:07 Lima)
+
+- **Paul ousts top seed Fritz in Delray Beach, to face 'undoubtedly one of best players in the world'**: [Link](https://www.atptour.com/en/news/delray-beach-2026-friday-report)
+- **Delray Beach tennis picks: Cobolli vs. Korda, Tien vs. Paul**: [Link](https://tenngrand.com/delray-beach-tennis-previews-predictions-cobolli-korda-tien-vs-paul/)
+- **USTA Florida Community Activations Headline the 2026 Delray Beach Open**: [Link](https://www.ustaflorida.com/usta-florida-community-activations-headline-the-2026-delray-beach-open/)
+
+
+### laura pausini (N/A, 21/02/2026 00:07 Lima)
+
+- **Una sezione speciale sul Apple Music celebra il Festival di Sanremo**: [Link](https://www.insidemusic.it/una-sezione-speciale-sul-apple-music-celebra-il-festival-di-sanremo/)
+- **L'avreste mai detto che queste sono le canzoni sanremesi preferite di Laura Pausini e Achille Lauro?**: [Link](https://style.corriere.it/spettacoli/musica/sanremo-2026-laura-pausini-e-achille-lauro-svelano-le-loro-canzoni-preferite-della-storia-della-kermesse/)
+- **1 mese gratis di Apple Music: pronto per lo streaming di Sanremo?**: [Link](https://www.punto-informatico.it/1-mese-gratis-apple-music-streaming-sanremo/)
+
+
+### thiago agustín tirante (N/A, 21/02/2026 00:07 Lima)
+
+- **2026 Rio Open presented by Claro: Cerundolo [19th] vs. Tirante [92nd] Prediction, Odds and Match Preview**: [Link](https://sportsbookwire.usatoday.com/story/sports/sports-betting/2026/02/18/francisco-cerundolo-thiago-agustin-tirante-rio-open-presented-claro-tennis-odds-lines-betting-2026/88734134007/)
+- **Sports News, Transfers, Scores | Watch Live Sport**: [Link](https://www.skysports.com/tennis/watch/7129709739623076112/rio-open-presented-by-claro-2026)
+- **ATP Rio Day 2 Predictions Including Francisco Cerundolo vs Mariano Navone**: [Link](https://lastwordonsports.com/tennis/2026/02/16/atp-rio-day-2-predictions-cerundolo-navone/)
+
+
+### deportivo pereira - pasto (N/A, 21/02/2026 00:07 Lima)
+
+- **Qué canal pasa Pereira vs Pasto hoy: dónde ver el partido gratis y en vivo de la Liga BetPlay**: [Link](https://www.365scores.com/es/news/canal-tv-pereira-vs-pasto-gratis/)
+- **Tabla de posiciones y resultados de fecha 8 en la Liga BetPlay 2026-I**: [Link](https://www.futbolred.com/futbol-colombiano/liga-betplay/tabla-de-posiciones-y-resultados-de-la-fecha-8-de-la-liga-betplay-2026-i-262945)
+- **¡Que el fútbol le sonría esta noche al Deportivo Pereira!**: [Link](https://www.eldiario.com.co/deportes/que-el-futbol-le-sonria-esta-noche-al-deportivo-pereira/)
+
+
+### cristal vs universitario (N/A, 21/02/2026 00:07 Lima)
+
+- **Tabla de posiciones Liga 1 2026 EN VIVO: resultados y partidos de la fecha 4 del Torneo Apertura**: [Link](https://depor.com/futbol-peruano/descentralizado/tabla-de-posiciones-de-liga-1-peru-2026-en-vivo-resultados-y-partidos-de-4-torneo-apertura-sporting-cristal-vs-universitario-alianza-lima-vs-sport-boys-noticia/)
+- **Edwin Ordóñez dirigirá el Cristal contra Universitario**: [Link](https://caretas.pe/deportes/edwin-ordonez-dirigira-el-cristal-contra-universitario/)
+- **Nolberto Solano habló del clásico Cristal vs Universitario**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/tiene-su-favorito-nol-solano-hablo-cristal-vs-universitario-n452779)
+
+
 ### gimnasia y esgrima - gimnasia (N/A, 20/02/2026 21:30 Lima)
 
 - **El Lobo visita a su homónimo mendocino: ¿el puntapié inicial para la unión de los Gimnasia? | Infocielo**: [Link](https://www.infocielo.com/deportes/el-lobo-visita-a-su-homonimo-mendocino-el-puntapie-inicial-para-la-union-de-los-gimnasia)
@@ -978,53 +1027,5 @@ Sin noticias relacionadas disponibles.
 - **Las consecuencias de las decisiones | Andrés Romaña**: [Link](https://peru21.pe/opinion/las-consecuencias-de-las-decisiones-andres-romana/)
 - **La polarización política que trajo a Castillo y Jerí**: [Link](https://elcomercio.pe/opinion/columnistas/la-polarizacion-politica-que-trajo-a-pedro-castillo-y-jose-jeri-por-ivan-arenas-noticia/)
 - **QUÉ TIEMPOS AQUELLOS, columna de Iván Slocovich Pardo**: [Link](https://diariocorreo.pe/opinion/que-tiempos-aquellos-columna-de-ivan-slocovich-pardo-noticia/)
-
-
-### psg (N/A, 17/02/2026 15:44 Lima)
-
-- **Le doute Ousmane Dembélé : le Ballon d'Or victime d'une gêne à l'entrainement avant Monaco-PSG**: [Link](https://www.lequipe.fr/Football/Actualites/Le-doute-ousmane-dembele-le-ballon-d-or-victime-d-une-gene-a-l-entrainement-avant-monaco-psg/1652833)
-- **La demande particulière de Paul Pogba aux joueurs du PSG**: [Link](https://www.footmercato.net/a5615777002328324039-la-demande-particuliere-de-paul-pogba-aux-joueurs-du-psg)
-- **Barrage aller Ligue des champions - Les compos : Dembélé d'entrée pour le PSG, Akliouche titulaire avec Monaco**: [Link](https://www.eurosport.fr/football/ligue-des-champions/2025-2026/barrage-aller-ligue-des-champions-les-compos-dembele-dentree-pour-le-psg-akliouche-titulaire-avec-monaco_sto23272300/story.shtml)
-
-
-### tarjeta roja (N/A, 17/02/2026 15:44 Lima)
-
-- **VIDEO | Fue su debut y Jhon Durán casi pierde la cabeza y se gana la tarjeta roja**: [Link](https://bolavip.com/futbol-colombia/video-fue-su-debut-y-jhon-duran-casi-pierde-la-cabeza-y-se-gana-la-tarjeta-roja)
-- **Al-Nassr persigue a Greenwood y decide sobre la cesión de John Duran**: [Link](https://www.ysscores.com/es/news/13908896/Al-Nassr-persigue-a-Greenwood-y-decide-sobre-la-cesi%C3%B3n-de-John-Duran)
-- **El club ruso será su tercer equipo en Europa tras su paso por el Aston Villa y Fenerbahce**: [Link](https://www.facebook.com/infobaecolombia/photos/el-club-ruso-ser%C3%A1-su-tercer-equipo-en-europa-tras-su-paso-por-el-aston-villa-y-f/1348855240590568/)
-
-
-### kyara villanella (N/A, 17/02/2026 15:44 Lima)
-
-- **"Yo les diría que tengan al bebé": La firme postura de Keiko Fujimori sobre el aborto en casos de violación**: [Link](https://caretas.pe/politica/yo-les-diria-que-tengan-al-bebe-la-firme-postura-de-keiko-fujimori-sobre-el-aborto-en-casos-de-violacion/)
-- **Keiko Fujimori en contra de aborto por violación: "Lo he conversado con mis hijas (...) les diría que tengan al bebé"**: [Link](https://larepublica.pe/politica/2026/02/16/keiko-fujimori-en-contra-de-aborto-por-violacion-lo-he-conversado-con-mis-hijas-les-diria-que-tengan-al-bebe-hnews-1381200)
-- **Keiko vs RLA: pelea en la derecha | Keiko a sus hijas: si te violan, ten el bebé**: [Link](https://epicentro.tv/keiko-vs-rla-pelea-en-la-derecha-keiko-a-sus-hijas-si-te-violan-ten-el-bebe/)
-
-
-### dgo (N/A, 17/02/2026 15:44 Lima)
-
-- **En un partidazo, Barcelona perdió el derbi y la cima ante Girona**: [Link](https://www.espn.com.pe/futbol/espana/nota/_/id/16304558/girona-vs-barcelona-la-liga-fecha-24-equipo-fecha-hora-y-tv-en-vivo)
-- **¿A qué hora juega y qué canal transmite Girona vs. FC Barcelona por LaLiga 2026 en México, USA y España?**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/a-que-hora-juega-y-que-canal-transmite-girona-vs-fc-barcelona-en-vivo-hoy-16-de-febrero-por-laliga-2026-en-mexico-usa-y-espana-canales-tv-online-nnda-nnrt-noticia/)
-- **LaLiga EA Sports: Barcelona busca derrotar a Girona para subirse al liderato**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-barcelona-busca-derrotar-a-girona-para-subirse-al-liderato-noticia-1675974)
-
-
-### bristol city - wrexham (N/A, 17/02/2026 15:44 Lima)
-
-- **How to watch today's Bristol City vs Wrexham Championship game: Live stream, TV channel, and start time**: [Link](https://www.goal.com/en/news/how-to-watch-bristol-city-wrexham-17022026/bltb0778f39da4f8879)
-- **Championship LIVE! Scores, match updates and free highlights plus EFL latest from League One and League Two**: [Link](https://www.skysports.com/football/live-blog/11095/13508550/championship-live-scores-match-updates-and-free-highlights-plus-efl-latest-from-league-one-and-league-two)
-- **Phil Parkinson insists FA Cup talk on hold as Wrexham continue play-off push**: [Link](https://www.denbighshirefreepress.co.uk/sport/25858770.wrexhams-trip-bristol-city-edge-admits-parkinson/)
-
-
-### galatasaray vs juventus pronostico (N/A, 17/02/2026 12:02 Lima)
-
-- **Cuándo juegan Galatasaray vs. Juventus por la UEFA Champions League: equipo, fecha, hora y TV en vivo**: [Link](https://www.espn.com.pe/futbol/champions-league/nota/_/id/16321573/galatasaray-vs-juventus-ida-playoffs-equipo-fecha-hora-y-tv-en-vivo)
-- **Champions League: Juventus se enfrentará a Galatasaray por la llave 2**: [Link](https://rpp.pe/futbol/ligas-internacionales/champions-league-juventus-se-enfrentara-a-galatasaray-por-la-llave-2-noticia-1676046)
-- **Pronóstico Galatasaray vs. Juventus - La ilusión ante la jerarquía ¿Quién tomará ventaja?**: [Link](https://gainblers.com/pe/pronosticos/futbol/europa/champions-league/pronostico-galatasaray-juventus-17-02-2026/)
-
-
-### paulo londra (N/A, 17/02/2026 12:02 Lima)
-
-- **Paulo Londra en Lima 2026: Fecha, lugar, entradas y todo sobre su concierto en el Perú**: [Link](https://trome.com/espectaculos/musica/paulo-londra-en-lima-2026-concierto-en-el-estadio-nacional-fecha-y-entradas-conciertos-en-lima-noticia/)
-- **Paulo Londra en Perú: el artista argentino remecerá el Estadio Nacional por primera vez en agosto**: [Link](https://www.moda.com.pe/noticias/musica/paulo-londra-en-peru-el-artista-argentino-remecera-el-estadio-nacional-por-primera-vez-en-agosto-entradas-teleticket/)
 
 
