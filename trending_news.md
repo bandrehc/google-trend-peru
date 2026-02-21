@@ -1,3 +1,73 @@
+### lazio vs (N/A, 21/02/2026 15:31 Lima)
+
+- **Lazio Vs Verona Prediction: Serie A Showdown**: [Link](https://www.thedetroitbureau.com/today-report/lazio-vs-verona-prediction-serie-a-showdown-1767646481)
+- **✅ Cagliari-Lazio | Official line-ups: Zaccagni, Esposito, Kilicsoy**: [Link](https://ca.sports.yahoo.com/news/cagliari-v-lazio-official-teams-184900800.html)
+- **Can Lazio Continue Their Stellar Record vs Cagliari?**: [Link](https://thelaziali.com/2026/02/21/can-lazio-continue-their-stellar-record-vs-cagliari/)
+
+
+### ajax - nec (N/A, 21/02/2026 15:31 Lima)
+
+- **Live Eredivisie | Doelman Crettaz redt NEC van vroege achterstand tegen Ajax**: [Link](https://www.nu.nl/voetbal/6386940/live-eredivisie-doelman-crettaz-redt-nec-van-vroege-achterstand-tegen-ajax.html)
+- **Grim over 'horrorweek' bij Ajax: 'Hij had onwijs veel pijn, dit heeft impact'**: [Link](https://www.voetbalprimeur.nl/nieuws/1744466/grim-geraakt-door-blessure-jaros-keuze-paes-niet-moeilijk.html)
+- **DTH Vrijdagmiddag Poll**: [Link](https://www.detrouwehonden.nl/2026/dth-vrijdagmiddag-poll-53/)
+
+
+### psg vs metz (N/A, 21/02/2026 15:31 Lima)
+
+- **Saturday's Ligue 1 predictions and previews including PSG vs. Metz and Lens vs. Monaco**: [Link](https://www.sportsmole.co.uk/football/psg/ligue-1-predictions/feature/psg-lens-aiming-for-crucial-wins-saturdays-ligue-1-predictions-and-previews_592416.html)
+- **No rest for Paris St Germain players until title race is won – Luis Enrique**: [Link](https://www.msn.com/en-gb/sport/football/no-rest-for-paris-st-germain-players-until-title-race-is-won-luis-enrique/ar-AA1WLact)
+- **PSG predicted XI v Metz: Ousmane Dembélé out**: [Link](https://sports.yahoo.com/articles/psg-predicted-xi-v-metz-111000084.html)
+
+
+### ajax vs (N/A, 21/02/2026 15:31 Lima)
+
+- **Ajax with Carrizo on course for league showdown against NEC**: [Link](https://english.ajax.nl/articles/ajax-with-carrizo-on-course-for-league-showdown-against-nec/)
+- **How to watch today's Ajax vs NEC Nijmegen Eredivisie game: Live stream, TV channel, and start time**: [Link](https://www.goal.com/en/news/how-to-watch-ajax-v-nec-nijmegen-21022026/blt7de8996a143f3fd5)
+- **Preview: Ajax vs NEC - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/ajax/preview/ajax-vs-nijmegen-prediction-team-news-lineups_592358.html)
+
+
+### foot ball club melgar (N/A, 21/02/2026 15:31 Lima)
+
+- **Bernardo Cuesta: su legado en Melgar, el récord histórico y su agradecimiento a Arequipa por tanto cariño**: [Link](https://depor.com/futbol-peruano/descentralizado/bernardo-cuesta-melgar-su-legado-el-record-de-198-goles-por-que-quiere-seguir-haciendo-historia-y-su-futuro-con-retiro-incluido-liga-1-2026-noticia/)
+- **Cuesta: "Hay 'Bernardocuestimo' para un rato más largo"**: [Link](https://ovacion.pe/noticias/fbc-melgar/cuesta-hay-bernardocuestimo-un-rato-mas-largo)
+- **Sonó para reforzar a Universitario y ahora se convirtió en máximo goleador de campeón peruano**: [Link](https://libero.pe/futbol-peruano/universitario/2026/02/16/sono-reforzar-universitario-ahora-se-convirtio-en-maximo-goleador-de-campeon-peruano-986192)
+
+
+### rescatista rio rimac (N/A, 21/02/2026 15:31 Lima)
+
+- **Drone patrullero M30 de la Municipalidad de Lima se suma a la búsqueda de rescatista desaparecido en el río Rímac**: [Link](https://www.gob.pe/institucion/munilima/noticias/1357156-drone-patrullero-m30-de-la-municipalidad-de-lima-se-suma-a-la-busqueda-de-rescatista-desaparecido-en-el-rio-rimac)
+- **Intensifican búsqueda de policía arrastrado por el río Rímac durante rescate animal**: [Link](https://caretas.pe/nacional/intensifican-busqueda-de-policia-arrastrado-por-el-rio-rimac-durante-rescate-animal/)
+- **Brigadier Mayor CBP Marcos Pajuelo: "No se puede asegurar que prendas encontradas sean del policía"**: [Link](https://www.atv.pe/noticia/brigadier-mayor-cbp-marcos-pajuelo-no-se-puede-asegurar-que-prendas-encontradas-sean-del-policia/)
+
+
+### al nassr (N/A, 21/02/2026 15:31 Lima)
+
+- **Expected Lineup for Al-Nassr Against Al-Hazm in the Roshn League**: [Link](https://www.ysscores.com/en/news/13915185/Expected-Lineup-for-Al-Nassr-Against-Al-Hazm-in-the-Roshn-League)
+- **Video: Cristiano Ronaldo scores for Al Nassr vs Al Hazem during SPL game**: [Link](https://bolavip.com/en/soccer/video-cristiano-ronaldo-scores-for-al-nassr-vs-al-hazem-during-spl-game)
+- **Al Nassr Prepares to Host Al Hazem in Saudi Pro League Clash**: [Link](https://news.ssbcrack.com/al-nassr-prepares-to-host-al-hazem-in-saudi-pro-league-clash/)
+
+
+### mls (N/A, 21/02/2026 15:31 Lima)
+
+- **A letter from Commissioner Don Garber**: [Link](https://www.mlssoccer.com/news/a-letter-from-commissioner-don-garber)
+- **MLS Predictions: Miami, Whitecaps, Union Look for Fast Starts to 2026**: [Link](https://www.si.com/soccer/mls-predictions-miami-whitecaps-union-fast-starts-2026)
+- **Major League Soccer kicks off 2026 season on Apple TV**: [Link](https://www.apple.com/ee/newsroom/2026/02/major-league-soccer-kicks-off-2026-season-on-apple-tv/)
+
+
+### psg - metz (N/A, 21/02/2026 15:31 Lima)
+
+- **PSG : le but express de Désiré Doué pour l’ouverture du score contre Metz**: [Link](https://www.footmercato.net/a122099762779847049-psg-le-but-express-de-desire-doue-pour-louverture-du-score-contre-metz)
+- **Comment regarder Paris Saint-Germain - FC Metz ? Date, heure, streaming et comment regarder la Ligue 1 McDonald’s sur Ligue 1+, disponible sur DAZN​**: [Link](https://www.dazn.com/fr-FR/news/football/comment-regarder-paris-saint-germain-fc-metz-date-heure-streaming-et-comment-regarder-la-ligue-1-mcdonalds-sur-ligue-1-disponible-sur-dazn/evuzfdn560k014r9xrh3mda02)
+- **En direct : PSG-Metz (1-0)**: [Link](https://www.sofoot.com/articles/en-direct-psg-metz)
+
+
+### cagliari - lazio (N/A, 21/02/2026 15:31 Lima)
+
+- **✅ Cagliari-Lazio | UFFICIALI: la scelta su Zaccagni, Esposito e Kilicsoy**: [Link](https://onefootball.com/it/notizie/cagliari-lazio-ufficiali-la-scelta-su-zaccagni-esposito-e-kilicsoy-42446129)
+- **Serie A: Cagliari-Lazio DIRETTA e FOTO**: [Link](https://www.ansa.it/sito/notizie/sport/calcio/2026/02/21/serie-a-cagliari-lazio-diretta-e-foto_26b7a978-fd88-45e7-86b1-569c0f6f600d.html)
+- **I Rossoblù sfidano la Lazio per continuare a risalire in classifica**: [Link](https://www.rainews.it/tgr/sardegna/articoli/2026/02/i-rossoblu-sfidano-la-lazio-per-continuare-a-risalire-in-classifica-ccb246f6-13b6-4326-8e03-18973f220868.html)
+
+
 ### konyaspor - galatasaray (N/A, 21/02/2026 11:36 Lima)
 
 - **CANLI| Konyaspor - Galatasaray maçı ne zaman, saat kaçta, hangi kanalda? (11'ler belli oldu)**: [Link](https://www.fanatik.com.tr/galatasaray/live-konyaspor-galatasaray-maci-ne-zaman-saat-kacta-hangi-kanalda-11ler-belli-oldu-2613202)
@@ -959,75 +1029,5 @@ Sin noticias relacionadas disponibles.
 - **SIN LUZ el 18 y 19 de febrero: Estos distritos se verán afectados con el corte del servicio eléctrico**: [Link](https://www.exitosanoticias.pe/actualidad/sin-luz-18-19-febrero-estos-distritos-veran-afectados-corte-servicio-electrico-n168999)
 - **Corte de luz en Arequipa y Trujillo superará las nueve horas este 15 de febrero: aquí las zonas afectadas**: [Link](https://www.expreso.com.pe/actualidad/corte-de-luz-en-arequipa-y-trujillo-superara-las-nueve-horas-este-15-de-febrero-estas-son-las-zonas-afectadas-seal-noticia/1264003/)
 - **¿Qué lugares serán afectados por corte masivo de luz en México?**: [Link](https://www.aztecaveracruz.com/tendencia/que-lugares-seran-afectados-por-corte-masivo-luz-en-mexico/)
-
-
-### dreamleague season 28 (N/A, 18/02/2026 12:10 Lima)
-
-- **Parker Benched By PaiN Gaming After Two Matches At DreamLeague Season 28**: [Link](https://www.hotspawn.com/dota2/news/parker-benched-by-pain-gaming-after-two-matches-at-dreamleague-season-28)
-- **DreamLeague Season 28: Day 2**: [Link](https://navi.gg/en/publications/d2-dl-28-2nd-day)
-- **Dream League Season 28 Betting Guide: What You Need to Know Before You Place a Bet**: [Link](https://egamersworld.com/blog/dream-league-season-28-betting-guide-what-you-need-nHSF2q_K6)
-
-
-### yahoo (N/A, 18/02/2026 12:10 Lima)
-
-- **Stocks rise ahead of Fed minutes as Nvidia shares gain: Live updates**: [Link](https://www.cnbc.com/2026/02/17/stock-market-today-live-updates.html)
-- **Nvidia leads the US stock market near its all-time high**: [Link](https://www.wral.com/news/ap/df3d7-nvidia-leads-the-us-stock-market-near-its-all-time-high/)
-- **Stock market today: Dow, S&P 500, Nasdaq futures climb with AI disruption in focus, Fed minutes ahead**: [Link](https://finance.yahoo.com/news/live/stock-market-today-dow-sp-500-nasdaq-futures-climb-with-ai-disruption-in-focus-fed-minutes-ahead-235322972.html)
-
-
-### meet google (N/A, 18/02/2026 08:18 Lima)
-
-- **The flaws in India’s AI plans**: [Link](https://www.economist.com/asia/2026/02/17/the-flaws-in-indias-ai-plans)
-- **Google Plans New Fiber-Optic Routes Between the US and India**: [Link](https://www.bloomberg.com/news/articles/2026-02-18/google-plans-new-fiber-optic-routes-between-the-us-and-india)
-- **Tech billionaires fly in for Delhi AI expo as Modi jostles to lead in south**: [Link](https://www.theguardian.com/technology/2026/feb/18/delhi-ai-expo-modi-jostles-lead-south)
-
-
-### paro de transportistas 18 de febrero (N/A, 18/02/2026 08:18 Lima)
-
-- **Transportistas de carga pesada acatarán paro y no trasladarán productos a Lima este miércoles y jueves**: [Link](https://rpp.pe/peru/junin/transportistas-de-carga-pesada-acataran-paro-y-no-trasladaran-productos-a-lima-este-miercoles-y-jueves-noticia-1676254)
-- **Nueva Carretera Central inicio camino paso para evitar arbitraje: los “baches” del proyecto**: [Link](https://gestion.pe/economia/nueva-carretera-central-inicio-camino-paso-para-evitar-arbitraje-los-baches-del-proyecto-noticia/)
-- **Congreso: presentan mociones de interpelación contra los ministros de Economía y Transportes por la Nueva Carretera Central**: [Link](https://elcomercio.pe/politica/congreso-presentan-mociones-de-interpelacion-contra-los-ministros-de-economia-y-transportes-por-la-nueva-carretera-central-ultimas-noticia/)
-
-
-### club brujas (N/A, 18/02/2026 08:18 Lima)
-
-- **Posible alineación del Atlético hoy ante el Brujas en la Champions League**: [Link](https://as.com/futbol/champions/posible-once-del-atletico-ante-el-brujas-f202602-n/)
-- **La reflexión de Simeone recordando su retirada: "Lo di todo, como me enseñó mi mamá"**: [Link](https://www.marca.com/futbol/atletico/2026/02/17/reflexion-simeone-recordando-retirada-di-me-enseno-mi-mama-video.html)
-- **Pronósticos Brujas vs Atlético de Madrid: los colchoneros llegan como grandes favoritos**: [Link](https://depor.com/apuestas-deportivas/brujas-vs-atletico-pronosticos-apuestas-cuotas-18-02-2026/)
-
-
-### el eclipse solar (N/A, 18/02/2026 08:18 Lima)
-
-- **Un eclipse parcial de sol se podrá ver el martes en algunas zonas de Suramérica**: [Link](https://gestion.pe/mundo/internacional/un-eclipse-parcial-de-sol-se-podra-ver-el-martes-en-algunas-zonas-de-suramerica-noticia/)
-- **Eclipse solar del 17 de febrero de 2026: horarios y dónde será visible**: [Link](https://andina.pe/agencia/noticia-eclipse-solar-del-17-febrero-2026-horarios-y-donde-sera-visible-1063392.aspx)
-- **El eclipse solar de ‘anillo de fuego’ será hoy 17 de febrero, durará unas cuatro horas y media, ¿será visible desde Perú?**: [Link](https://larepublica.pe/ciencia/2026/02/16/el-eclipse-solar-de-anillo-de-fuego-sera-este-martes-durara-unas-cuatro-horas-y-media-sera-visible-desde-peru-511120)
-
-
-### bn (N/A, 18/02/2026 08:18 Lima)
-
-- **India’s Adani Group to Invest $100 Billion in AI Infrastructure**: [Link](https://www.wsj.com/tech/indias-adani-group-to-invest-100-billion-on-ai-infrastructure-7d428962?gaa_at=eafs&gaa_n=AWEtsqdaOFEdI9pafNJ74N_saF1DQn2Q6c_uEssaj1nocaeVT31op5LxrpQS&gaa_ts=6995bfac&gaa_sig=YJsUisERjOc8822z88xbDLLD8vr4X1uGy6MSo2aeGQzTF_qizsuFfCONbh5fT3xlQcPnm37Y4olIS66ManURHQ%3D%3D)
-- **Billionaire Gautam Adani Earmarks $100 Billion To Develop AI Data Centers Across India**: [Link](https://www.forbes.com/sites/yessarrosendar/2026/02/17/billionaire-gautam-adani-earmarks-100-billion-to-develop-ai-data-centers-across-india/)
-- **India to Add 20,000 GPUs as AI Mission 2.0 Expands Compute and Chip Push**: [Link](https://www.eetimes.com/india-to-add-20000-gpus-as-ai-mission-2-0-expands-compute-and-chip-push/)
-
-
-### qarabag vs (N/A, 18/02/2026 08:18 Lima)
-
-- **Preview: Qarabag FK vs. Newcastle United - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/qarabag-fk/champions-league/preview/qarabag-vs-newcastle-prediction-team-news-lineups_592138.html)
-- **Newcastle winger Elanga: We all play for Howe**: [Link](https://www.tribalfootball.com/article/soccer-champions-league-newcastle-winger-elanga-we-all-play-for-howe-20f73d1b-3474-4661-8922-4724294a7e65)
-- **Eddie Howe's team news update: Joelinton returns for Qarabag qualifier**: [Link](https://onefootball.com/de/news/eddie-howes-team-news-update-joelinton-returns-for-qarabag-qualifier-42424936)
-
-
-### los angeles fc (N/A, 18/02/2026 00:24 Lima)
-
-- **Where To Watch | Real España vs. LAFC - Concacaf Champions Cup**: [Link](https://www.lafc.com/news/where-to-watch-lafc-vs-real-espana-concacaf-champions-cup-february-17)
-- **Real Espana vs Los Angeles FC Prediction and Betting Tips | February 17th 2026**: [Link](https://www.sportskeeda.com/football/real-espana-vs-los-angeles-fc-prediction-betting-tips-february-17th-2026)
-- **Son Heung-min Shines with First Goal and Assist Hat-Trick Against Spain**: [Link](https://www.el-balad.com/6854689)
-
-
-### julio iglesias (N/A, 18/02/2026 00:24 Lima)
-
-- **Julio Iglesias vuelve a reclamar la denuncia falsa y archivada que la Fiscalía se niega a entregarle**: [Link](https://okdiario.com/espana/julio-iglesias-vuelve-reclamar-denuncia-falsa-archivada-que-fiscalia-niega-entregarle-16262275)
-- **Javier Santos, hijo no reconocido de Julio Iglesias: “Mi hermano Enrique me trató con mucho respeto. Me gustaría hablar con él. Le he escrito mucho, pero tiene millones de fans"**: [Link](https://www.lecturas.com/actualidad/javier-santos-hijo-julio-iglesias-mi-hermano-enrique-me-trato-mucho-respeto-me-gustaria-hablar-le-he-escrito-mucho-pero-tiene-millones-fans_188756)
-- **Un detective privado y una portada de Interviú, la “maquinaria de desprestigio” de Julio Iglesias contra la mujer que le reclamó la paternidad de su hijo**: [Link](https://www.eldiario.es/cultura/detective-privado-portada-interviu-maquinaria-desprestigio-julio-iglesias-mujer-le-reclamo-paternidad-hijo_1_12983666.html)
 
 
