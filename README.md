@@ -1,3 +1,73 @@
+### milan - parma (N/A, 22/02/2026 11:37 Lima)
+
+- **✅ Milan-Parma | UFFICIALI: le scelte su Leao, Pulisic, Strefezza e Modric**: [Link](https://onefootball.com/it/notizie/milan-parma-ufficiali-le-scelte-su-leao-pulisic-strefezza-e-modric-42450759)
+- **AC Milan-Parma, Serie A Enilive 2025/2026: formazioni ufficiali**: [Link](https://www.acmilan.com/it/news/articoli/serie-a/2026-02-22/milan-parma-le-formazioni-ufficiali)
+- **Milan, Allegri: "Col Napoli scontro diretto per la Champions. Squalifica e Fabregas? Rispondo..."**: [Link](https://www.msn.com/it-it/sport/calcio/milan-allegri-col-napoli-scontro-diretto-per-la-champions-squalifica-e-fabregas-rispondo/ar-AA1WNpP9)
+
+
+### tottenham vs. newcastle (N/A, 22/02/2026 11:37 Lima)
+
+- **Explosive Darwin Nunez Prem return ON as sources reveal huge personal sacrifice player is willing to make**: [Link](https://www.teamtalk.com/news/tottenham-newcastle-hold-talks-darwin-nunez-al-hilal-transfer-escape-exclusive)
+- **Football gossip: Nunez, Sulc, Gomez, Senesi, Delap, Bueno, Gordon, Southgate**: [Link](https://www.bbc.com/sport/football/articles/cwy8n4zw3wmo)
+- **Report: Spurs and Newcastle look at former Liverpool attacker for summer**: [Link](https://sports.yahoo.com/articles/report-spurs-newcastle-look-former-095000736.html)
+
+
+### angers - losc (N/A, 22/02/2026 11:37 Lima)
+
+- **Angers - Lille. Vers un report du match de Ligue 1 à cause des inondations ?**: [Link](https://www.ouest-france.fr/sport/football/angers-sco/football-vers-un-report-du-match-match-de-ligue-1-angers-sco-lille-a-cause-des-inondations-9b0cbbfe-0e33-11f1-8e97-58d10b9feb4d)
+- **Amine Sbaï retrouve une place de titulaire, le onze pour le choc entre Angers SCO et Lille dévoilé**: [Link](https://my-angers.info/02/22/amine-sbai-retrouve-une-place-de-titulaire-le-onze-pour-le-choc-entre-angers-sco-et-lille-devoile/178955)
+- **Hockey sur glace. Ligue Magnus : les Ducs ont rendez-vous chez la lanterne rouge . Sport**: [Link](https://angers.maville.com/sport/detail_-hockey-sur-glace.-ligue-magnus-les-ducs-ont-rendez-vous-chez-la-lanterne-rouge-_-7201892_actu.Htm)
+
+
+### tottenham - arsenal (N/A, 22/02/2026 11:37 Lima)
+
+- **Only 13 Spurs players guaranteed available vs Arsenal**: [Link](https://dailycannon.com/2026/02/spurs-players-available-arsenal/)
+- **Arsenal Face Tottenham In High-Stakes North London Derby Showdown**: [Link](https://evrimagaci.org/gpt/arsenal-face-tottenham-in-highstakes-north-london-derby-showdown-530951)
+- **Would-be Arsenal 'bottle jobs' have far more at stake than north London derby bragging rights in showdown with toiling Tottenham**: [Link](https://www.goal.com/en-us/lists/arsenal-bottle-jobs-north-london-derby-toiling-tottenham/bltd99e888059da9b37)
+
+
+### barca (N/A, 22/02/2026 11:37 Lima)
+
+- **Barcelona XI vs. Levante: Tough Calls Made on Pedri, Rashford—Injury News, Predicted Lineup**: [Link](https://www.si.com/soccer/barcelona-xi-vs-levante-tough-calls-made-pedri-rashford-injury-news-predicted-lineup)
+- **Barcelona vs Levante, La Liga: TV & Streaming, Live Thread**: [Link](https://www.barcablaugranes.com/barcelona-la-liga/113306/barcelona-levante-live-stream-lineups-kickoff-time-tv-channel-how-to-watch-la-liga-online)
+- **Official: Barcelona starting lineup to face Levante | Cancelo starts, Cubarsi benched**: [Link](https://sports.yahoo.com/articles/official-barcelona-starting-lineup-face-141000589.html)
+
+
+### celtic f. c. - hibernian (N/A, 22/02/2026 11:37 Lima)
+
+- **What David Gray told his players about Hibernian’s dismal Celtic Park record**: [Link](https://www.67hailhail.com/news/what-david-gray-told-his-players-about-hibernians-dismal-celtic-park-record/)
+- **Football ACCA Tips: Andy Robson's 18/5 Sunday wager**: [Link](https://betting.betfair.com/football/european-football-tips/football-acca-tips-andy-robsons-185-european-sunday-wager-200226-1302.html)
+- **Owen Elding gets David Gray backing as teen keeps Hibs place for Celtic test**: [Link](https://www.hibsobserver.co.uk/news/25876369.owen-elding-keeps-place-hibs-boss-names-team-celtic/)
+
+
+### adt - utc cajamarca (N/A, 22/02/2026 11:37 Lima)
+
+- **Comerciantes Unidos vs. Univ Tecnica de Cajamarca - Boxscore - Live Score - March 07, 2026**: [Link](https://www.foxsports.com/soccer/peruvian-primera-division-comerciantes-unidos-vs-u-de-cajamarca-mar-07-2026-game-boxscore-700115?tab=boxscore)
+- **Comerciantes Unidos vs. Atletico Grau - Live Score - March 01, 2026**: [Link](https://www.foxsports.com/soccer/peruvian-primera-division-comerciantes-unidos-vs-atletico-grau-mar-01-2026-game-boxscore-687476)
+- **Comerciantes Unidos vs. Univ Tecnica de Cajamarca - Live Score - March 07, 2026**: [Link](https://www.foxsports.com/soccer/peruvian-primera-division-comerciantes-unidos-vs-u-de-cajamarca-mar-07-2026-game-boxscore-700115)
+
+
+### el caballero de los siete reinos capitulo 6 (N/A, 22/02/2026 11:37 Lima)
+
+- **'El caballero de los siete reinos': ¿A qué hora se estrena el capítulo final de la precuela de 'Juego de tronos' en HBO Max?**: [Link](https://larepublica.pe/cine-series/2026/02/21/el-caballero-de-los-siete-reinos-a-que-hora-se-estrena-el-capitulo-final-de-la-precuela-de-juego-de-tronos-en-hbo-max-1928556)
+- **“A Knight of the Seven Kingdoms” Capítulo 6: Hora de estreno confirmado en HBO Max**: [Link](https://elcomercio.pe/respuestas/farandula/a-knight-of-the-seven-kingdoms-capitulo-6-hora-de-estreno-confirmado-hbo-max-game-of-thrones-tdpe-noticia/)
+- **HBO Max arrasa en audiencia con A Knight of the Seven Kingdoms y The Pitt**: [Link](https://www.mundiario.com/cineseries/articulo/hbomax/hbo-max-arrasa-audiencia-knight-of-the-seven-kingdoms-the-pitt/20260221041001049095.html)
+
+
+### barcelona - levante (N/A, 22/02/2026 11:37 Lima)
+
+- **Barcelona - Levante hoy, en directo: LaLiga EA Sports en vivo, última hora en el Spotify Camp Nou**: [Link](https://as.com/futbol/primera/barcelona-levante-en-directo-laliga-ea-sports-hoy-en-vivo-f202602-d/)
+- **Flick apuesta por Bernal en el once ante el Levante**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20260222/1004132687/flick-apuesta-bernal-once-levante.html)
+- **Barcelona vs Levante: posibles alineaciones, Jornada 25, LaLiga**: [Link](https://www.espn.com.ar/futbol/espana/nota/_/id/16341973/barcelona-vs-levante-laliga-2026-alineaciones-jornada-25)
+
+
+### wolves vs. arsenal (N/A, 22/02/2026 11:37 Lima)
+
+- **Arteta: 'We want to write our own destiny' | Press conference | News**: [Link](https://www.arsenal.com/news/arteta-we-want-write-our-own-destiny)
+- **FPL GW27 bonus points: See who earned extras in Saturday's matches**: [Link](https://www.premierleague.com/en/news/4593771/fpl-gw27-bonus-points-see-who-earned-extras-in-saturdays-matches)
+- **'Grow a pair' - Gary Lineker questions Arsenal's mentality in Premier League title fight after latest collapse**: [Link](https://www.goal.com/en/lists/grow-pair-gary-lineker-questions-arsenal-mentality-premier-league-title-collapse/bltcb205c210738b1c1)
+
+
 ### getafe - sevilla (N/A, 22/02/2026 08:02 Lima)
 
 - **Cuándo juegan Getafe vs. Sevilla por la LaLiga 2025/26: equipo, fecha y hora**: [Link](https://www.espn.com.pe/futbol/espana/nota/_/id/16324313/cuando-juegan-getafe-vs-sevilla-por-la-laliga-2025-26-equipo-fecha-y-hora)
@@ -963,73 +1033,5 @@ Sin noticias relacionadas disponibles.
 - **Melcochita se pronunció tras disculpas de Monserrat**: [Link](https://www.americatv.com.pe/america-hoy/melcochita-se-pronuncio-disculpas-publicas-monserrat-noticia-162970)
 - **Monserrat pide disculpas a 'Melcochita' por WhatsApp y él deja en suspenso su decisión: "Tengo mes y medio para pensar"**: [Link](https://willax.pe/entretenimiento/monserrat-disculpas-melcochita-whatsapp-decision-willax)
 - **¡Perdón público! Monserrat Seminario sorprende a Melcochita con emotiva disculpa en San Valentín: “Te escribo para...”**: [Link](https://elcomercio.pe/respuestas/farandula/perdon-publico-monserrat-seminario-sorprende-a-melcochita-con-emotiva-disculpa-en-san-valentin-te-escribo-para-tdpe-noticia/)
-
-
-### alianza para el progreso (N/A, 19/02/2026 00:23 Lima)
-
-- **José Cueto: “Héctor Acuña nos comunicó que le diéramos la oportunidad de postular a la presidencia”**: [Link](https://elcomercio.pe/politica/congreso/jose-cueto-hector-acuna-nos-comunico-que-le-dieramos-la-oportunidad-de-postular-a-la-presidencia-ultimas-noticia/)
-- **Héctor Acuña entra a la contienda por la presidencia del Congreso**: [Link](https://caretas.pe/politica/hector-acuna-entra-a-la-contienda-por-la-presidencia-del-congreso/)
-- **César Acuña no apoyará candidatura de su hermano a la Mesa Directiva del Congreso**: [Link](https://gestion.pe/peru/politica/cesar-acuna-no-apoyara-candidatura-de-su-hermano-a-la-mesa-directiva-del-congreso-noticia/)
-
-
-### resultados uni (N/A, 19/02/2026 00:23 Lima)
-
-- **Examen de admisión UNI 2026-I: link para conocer los puntajes de segunda fecha [fotos]**: [Link](https://andina.pe/agencia/noticia-examen-admision-uni-2026i-link-para-conocer-los-puntajes-segunda-fecha-fotos-1063293.aspx)
-- **Con solo 14 años, Thiago Viviano es el postulante más joven de la UNI**: [Link](https://peru21.pe/peru/thiago-viviano-el-postulante-de-14-anos-que-busca-una-vacante-en-la-uni/)
-- **Examen de Admisión UNI 2026-1: LINK de resultados y puntajes de la prueba de Matemática del 18 de febrero**: [Link](https://libero.pe/tiempoextra/2026/02/18/examen-de-admision-ordinario-uni-matematica-hoy-18-de-febrero-link-de-resultados-puntajes-universidad-nacional-de-ingenieria-1112429)
-
-
-### matrimonio infantil (N/A, 19/02/2026 00:23 Lima)
-
-- **Sorteo La Tinka: mira aquí los resultados y números ganadores del sorteo del miércoles 18 de febrero**: [Link](https://elcomercio.pe/respuestas/loterias/la-tinka-hoy-miercoles-18-de-febrero-2026-en-vivo-resultados-del-ultimo-sorteo-y-jugada-ganadora-pozo-millonario-loteria-resultado-si-o-si-boliyapa-intralot-lbposting-noticia/)
-- **Sorteo de La Tinka HOY miércoles 18 de febrero de 2026: premios, jugada ganadora y Pozo Millonario**: [Link](https://larepublica.pe/sociedad/2026/02/18/sorteo-de-la-tinka-hoy-miercoles-18-de-febrero-de-2026-premios-jugada-ganadora-y-pozo-millonario-atmp-870213)
-- **Mira los resultados de La Tinka de este domingo 15 de febrero**: [Link](https://diariocorreo.pe/miscelanea/resultados-la-tinka-15-domingo-febrero-loteria-online-como-cobrar-pozo-millonario-jugada-ganadora-sorteo-latinka-premio-si-o-si-apuestas-bolillas-ganadoras-noticia/)
-
-
-### eddie vedder (N/A, 19/02/2026 00:23 Lima)
-
-- **The 10 Greatest Classic Rock Debut Albums Turning 35 This Year**: [Link](https://collider.com/best-classic-rock-debut-albums-1991/)
-- **The band Eddie Vedder called one of the most important rock acts ever**: [Link](https://faroutmagazine.co.uk/the-band-eddie-vedder-called-one-of-the-most-important-rock-acts-ever/)
-- **Pearl Jam Is ‘Between Eras’ But ‘Excited About the Future,’ Eddie Vedder Says**: [Link](https://www.rollingstone.com/music/music-features/pearl-jam-drummer-future-eddie-vedder-interview-1235514367/)
-
-
-### suheyn cipriani (N/A, 19/02/2026 00:23 Lima)
-
-- **Suheyn Cipriani pide que no le tiren "HATE" a Macarius tras ruptura: "Es un gran hombre, yo lo AMO"**: [Link](https://www.atv.pe/noticia/suheyn-cipriani-pide-que-no-le-tiren-hate-a-macarius-tras-ruptura-es-un-gran-hombre-yo-lo-amo/)
-- **Suheyn Cipriani llora y asegura que no le guarda rencor a Macarius: “Nos hemos querido tanto”**: [Link](https://elcomercio.pe/tvmas/farandula/suheyn-cipriani-llora-y-asegura-que-no-le-guarda-rencor-a-macarius-nos-hemos-querido-tanto-ultimas-noticia/)
-- **Suheyn Cipriani revela que streamer Macarius le terminó por mensaje de WhatsApp: "Me levanto y veo un testamento"**: [Link](https://larepublica.pe/streamers/2026/02/17/suheyn-cipriani-revela-que-streamer-macarius-le-termino-por-mensaje-de-whatsapp-me-levanto-y-veo-un-testamento-evat-1128630)
-
-
-### dina boluarte (N/A, 19/02/2026 00:23 Lima)
-
-- **Dina Boluarte: Despacho Presidencial acepta cuatro pedidos de defensa legal y declara improcedente uno sobre presunto enriquecimiento ilícito**: [Link](https://elcomercio.pe/politica/dina-boluarte-despacho-presidencial-acepta-cuatro-pedidos-de-defensa-legal-y-declara-improcedente-uno-sobre-presunto-enriquecimiento-ilicito-noticia/)
-- **LLUVIAS EN AREQUIPA | La magnitud del problema se habría agravado por la ausencia de un sistema de drenaje adecuado en el sector.**: [Link](https://www.facebook.com/ElBuho.pe/posts/lluvias-en-arequipa-la-magnitud-del-problema-se-habr%C3%ADa-agravado-por-la-ausencia-/1574452267549663/)
-- **Declaran improcedente solicitud de defensa legal de Dina Boluarte en investigación por enriquecimiento ilícito**: [Link](https://www.exitosanoticias.pe/politica/declaran-improcedente-solicitud-defensa-legal-dina-boluarte-investigacion-enriquecimiento-ilicito-n169096)
-
-
-### vancouver whitecaps (N/A, 19/02/2026 00:23 Lima)
-
-- **Can Whitecaps carry Canadian hopes in Concacaf Champions Cup?**: [Link](https://www.sportsnet.ca/soccer/article/can-whitecaps-carry-canadian-hopes-in-concacaf-champions-cup/)
-- **PREVIEW: 'Caps begin 2026 campaign, face C.S. Cartaginés in first leg of Concacaf Champions Cup Round One | Watch on OneSoccer, FuboTV, TELUS channel 980**: [Link](https://www.whitecapsfc.com/news/preview-caps-begin-2026-campaign)
-- **Vancouver Whitecaps Seek Redemption in 2026 Season Opener Against C.S. Cartagines**: [Link](https://news.ssbcrack.com/vancouver-whitecaps-seek-redemption-in-2026-season-opener-against-c-s-cartagines/)
-
-
-### cartaginés - whitecaps (N/A, 19/02/2026 00:23 Lima)
-
-- **Thomas Müller aterriza en Costa Rica y calienta la Champions Cup**: [Link](https://www.espn.com.pe/futbol/costa-rica/nota/_/id/16324593/thomas-muller-llega-costa-rica-concacaf-champions-cup)
-- **Can Whitecaps carry Canadian hopes in Concacaf Champions Cup?**: [Link](https://www.sportsnet.ca/soccer/article/can-whitecaps-carry-canadian-hopes-in-concacaf-champions-cup/)
-- **PREVIEW: 'Caps begin 2026 campaign, face C.S. Cartaginés in first leg of Concacaf Champions Cup Round One | Watch on OneSoccer, FuboTV, TELUS channel 980**: [Link](https://www.whitecapsfc.com/news/preview-caps-begin-2026-campaign)
-
-
-### wolfgang grozo (N/A, 19/02/2026 00:23 Lima)
-
-Sin noticias relacionadas disponibles.
-
-
-### ppk (N/A, 18/02/2026 21:41 Lima)
-
-- **W styczniu do PPK przystąpiło ponad 61 tysięcy osób**: [Link](https://www.analizy.pl/puls-rynku/39344/biuletyn-ppk-luty-2026)
-- **Nowe emerytury Polaków z rekordem! Już 47 mld zł na kontach emerytalnych**: [Link](https://superbiz.se.pl/wiadomosci/nowe-emerytury-polakow-z-rekordem-juz-47-mld-zl-na-kontach-emerytalnych-aa-13az-TVs7-5925.html)
-- **Oto ile pracujący w Polsce odłożyli w PPK. W ciągu miesiąca wzrost o ponad 2 mld zł**: [Link](https://www.money.pl/gospodarka/oto-ile-pracujacy-w-polsce-odlozyli-w-ppk-w-ciagu-miesiaca-wzrost-o-ponad-2-mld-zl-7255744902998464a.html)
 
 
