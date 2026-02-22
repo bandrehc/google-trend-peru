@@ -1,3 +1,73 @@
+### inter miami - lafc (N/A, 21/02/2026 21:42 Lima)
+
+- **LAFC vs Inter Miami: Lineups for 2026 MLS season opener**: [Link](https://bolavip.com/en/soccer/lafc-vs-inter-miami-lineups-for-2026-mls-season-opener)
+- **'I don't really want to' - Heung-min Son snubs Lionel Messi talk ahead of blockbuster MLS opener**: [Link](https://talksport.com/football/4000064/heung-min-son-lionel-messi-snub-lafc-inter-miami/)
+- **How to watch today's Los Angeles FC vs Inter Miami CF Major League Soccer game: Live stream, TV channel, and start time**: [Link](https://www.goal.com/en-us/news/how-to-watch-los-angeles-fc-v-inter-miami-cf-22022026/bltafbf7a38200aaad4)
+
+
+### león - santos (N/A, 21/02/2026 21:42 Lima)
+
+- **Liga MX: Santos Laguna busca retomar el camino y salir del fondo de la tabla**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-santos-laguna-busca-retomar-el-camino-y-salir-del-fondo-de-la-tabla-noticia-1676813)
+- **Qué canal pasa León vs Santos Laguna hoy: dónde ver GRATIS y EN VIVO el partido de la Liga MX**: [Link](https://www.365scores.com/es/news/leon-vs-santos-laguna-donde-ver-gratis/)
+- **¿Por qué no juega Ramiro Sordo en León vs. Santos Laguna por la Jornada 7 del Clausura 2026?**: [Link](https://bolavip.com/mx/ligamx/por-que-no-juega-ramiro-sordo-en-leon-vs-santos-laguna-por-la-jornada-7-del-clausura-2026)
+
+
+### internacional de bogotá - millonarios (N/A, 21/02/2026 21:42 Lima)
+
+- **Pronóstico Internacional De Bogota Millonarios - Primera A Colombia 21/02/26**: [Link](https://www.sportytrader.com/es/pronosticos/internacional-de-bogota-millonarios-328783/)
+- **Un partido inédito se vivirá por las 74 frecuencias de Radio Nacional de Colombia**: [Link](https://www.rtvc.gov.co/noticias/internacional-millonarios-en-vivo-radio-nacional)
+- **Millonarios se devoró el gol debajo del arco de Inter Bogotá**: [Link](https://www.winsports.co/futbol-colombiano/noticias/millonarios-se-devoro-el-gol-debajo-del-arco-de-inter-bogota-410361)
+
+
+### necaxa - toluca (N/A, 21/02/2026 21:42 Lima)
+
+- **Liga MX: Necaxa se enfrentará ante Toluca FC por la fecha 7**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-necaxa-se-enfrentara-ante-toluca-fc-por-la-fecha-7-noticia-1676814)
+- **¿Por qué no juegan Alexis Vega, Nicolás Castro y Helinho en Necaxa vs. Toluca por la Jornada 7 del Clausura...**: [Link](https://bolavip.com/mx/ligamx/por-que-no-juegan-alexis-vega-nicolas-castro-y-helinho-en-necaxa-vs-toluca-por-la-jornada-7-del-clausura-2026)
+- **¡Enfermo atajadón! ¡Manotazo de locos por parte de Luis Manuel García!**: [Link](https://www.tudn.com/futbol/liga-mx/enfermo-atajadon-manotazo-de-locos-por-parte-de-luis-manuel-garcia-video)
+
+
+### rio open 2026 (N/A, 21/02/2026 21:42 Lima)
+
+- **Río Open 2026: Buse ganó otro partidazo, eliminó a Berrettini y se metió por primera vez en semis de un ATP 500**: [Link](https://www.espn.com.pe/tenis/nota/_/id/16337997/rio-open-2026-buse-gano-otro-partidazo-elimino-a-berrettini-y-se-metio-por-primera-vez-en-semifinales-de-un-atp-500)
+- **Ignacio Buse vs. Matteo Berrettini (2-1): video y resumen del partido por cuartos de final del ATP 500 de Río**: [Link](https://depor.com/full-deportes/ignacio-buse-vs-matteo-berrettini-en-vivo-hoy-espn-disney-plus-por-cuartos-de-final-del-atp-500-de-rio-de-janeiro-2026-en-directo-online-por-internet-gratis-video-noticia/)
+- **A horas de enfrentarse en el Rio Open, Joao Fonseca destacó a Ignacio Buse: “Sabemos al nivel que puede jugar”**: [Link](https://bolavip.com/pe/tenis/a-horas-de-enfrentarse-en-el-rio-open-joao-fonseca-destaco-a-ignacio-buse-sabemos-al-nivel-que-puede-jugar)
+
+
+### alianza lima voley (N/A, 21/02/2026 21:42 Lima)
+
+- **Ahora Alianza Lima vs SESI en vivo: se enfrentan por las semifinales de Sudamericano de Clubes de Vóley 2026**: [Link](https://rpp.pe/voley/mas-voley/alianza-lima-vs-sesi-en-vivo-a-que-hora-juegan-y-donde-ver-semifinales-sudamericano-de-clubes-de-voley-2026-via-latina-gratis-noticia-1676832)
+- **Un gesto que no pasó desapercibido: así celebraron Ysabella Sánchez y Clarivett Yllescas el triunfo de Alianza Lima a San Martín**: [Link](https://www.infobae.com/peru/deportes/2026/02/20/un-gesto-que-no-paso-desapercibido-asi-celebraron-ysabella-sanchez-y-clarivett-yllescas-el-triunfo-de-alianza-lima-a-san-martin/)
+- **Sudamericano de Vóley por Latina: Revive AQUÍ el partido entre Universidad San Martín (Perú) vs Banco República (Uruguay)**: [Link](https://www.latina.pe/voley-por-latina/sudamericano-de-voley-por-latina-revive-aqui-el-partido-entre-universidad-san-martin-peru-vs-banco-republica-uruguay_20260220/)
+
+
+### hamnet (N/A, 21/02/2026 21:42 Lima)
+
+- **Oscars bellwether, British awards or both? The identity dilemma facing the Baftas**: [Link](https://www.theguardian.com/film/2026/feb/21/baftas-nominations-british-talent-dilemma)
+- **Who will triumph at the BAFTAs? 'Hamnet' has the home advantage**: [Link](https://www.reuters.com/lifestyle/who-will-triumph-baftas-hamnet-has-home-advantage-2026-02-19/)
+- **BAFTA Winners Predictions: ‘Hamnet,’ ‘One Battle After Another’ and ‘Sinners’ in an Unpredictable Three-Horse Race**: [Link](https://variety.com/2026/film/awards/2026-bafta-awards-winner-predictions-1236665864/)
+
+
+### robbie williams (N/A, 21/02/2026 21:42 Lima)
+
+- **Look, I love Robbie Williams. But no one will stay in his hotels**: [Link](https://www.thetimes.com/travel/inspiration/comment-inspiration/robbie-williams-hotels-libertines-565pw7d0l)
+- **Lambrini Girls at the Garage | Live review**: [Link](https://www.theupcoming.co.uk/2026/02/17/lambrini-girls-at-the-garage-live-review/)
+- **Win Robbie Williams and Myles Smith tickets!**: [Link](https://www.heart.co.uk/win/robbie-williams-myles-smith-tickets/)
+
+
+### sesi bauru (N/A, 21/02/2026 21:42 Lima)
+
+- **Osasco x Sesi-Bauru na final do Sul-Americano de Clubes de Vôlei Feminino 2026: horário e onde assistir**: [Link](https://www.olympics.com/pt/noticias/osasco-sesi-bauru-final-sul-americano-clubes-volei-feminino-2026-horario-assistir)
+- **Sesi-Bauru vence Regatas, do Peru, e garante vaga na semifinal do Sul-Americano**: [Link](https://ge.globo.com/sp/tem-esporte/volei/noticia/2026/02/20/sesi-bauru-vence-regatas-do-peru-e-garante-vaga-na-semifinal-do-sul-americano.ghtml)
+- **Sesi Bauru derrota o Alianza e confirma final brasileira no Sula**: [Link](https://www.terra.com.br/esportes/volei/sesi-bauru-derrota-o-alianza-e-confirma-final-brasileira-no-sula,8e2bc104e91af0500bbba335da889e1f3joanuqi.html)
+
+
+### gabinete balcazar (N/A, 21/02/2026 21:42 Lima)
+
+- **Gabinete de ministros de José Balcázar: ¿cuándo se elegirá al nuevo equipo del jefe de Estado?**: [Link](https://www.infobae.com/peru/2026/02/19/gabinete-de-ministros-de-jose-balcazar-cuando-se-elegira-al-nuevo-equipo-del-jefe-de-estado/)
+- **José María Balcázar sigue sus reuniones con políticos, pero no aún define a su Gabinete Ministerial: los entretelones de su segundo día en Palacio**: [Link](https://elcomercio.pe/politica/gobierno/entretelones-jose-maria-balcazar-sigue-sus-reuniones-con-politicos-pero-no-aun-define-a-su-gabinete-ministerial-los-entretelones-de-su-segundo-dia-en-palacio-noticia/)
+- **Presidente José María Balcázar sostiene que diálogo es herramienta para lograr consensos**: [Link](https://andina.pe/agencia/noticia-presidente-jose-maria-balcazar-sostiene-dialogo-es-herramienta-para-lograr-consensos-1063656.aspx)
+
+
 ### lazio vs (N/A, 21/02/2026 15:31 Lima)
 
 - **Lazio Vs Verona Prediction: Serie A Showdown**: [Link](https://www.thedetroitbureau.com/today-report/lazio-vs-verona-prediction-serie-a-showdown-1767646481)
@@ -959,75 +1029,5 @@ Sin noticias relacionadas disponibles.
 - **Sky: Loftus-Cheek to miss Como game with physical problem – who will replace him**: [Link](https://sempremilan.com/loftus-cheek-miss-como-who-replace)
 - **Allegri weighs in on diving debate and asks for offside rule change**: [Link](https://football-italia.net/allegri-weighs-in-on-diving-debate/)
 - **Why isn’t Christian Pulisic playing for Milan in the crucial Serie A rescheduled match against Como?**: [Link](https://worldsoccertalk.com/news/why-isnt-christian-pulisic-playing-for-milan-in-the-crucial-serie-a-rescheduled-match-against-como/)
-
-
-### milan (N/A, 18/02/2026 15:48 Lima)
-
-- **Mikaela Shiffrin fails to medal in giant slalom; Erin Jackson also misses speedskating podium**: [Link](https://www.nbcnews.com/sports/olympics/live-blog/2026-winter-olympics-live-updates-mikaela-shiffrin-erin-jackson-rcna256607)
-- **Short Track Speed Skating - Milano Cortina 2026 Winter Olympics: Day 12**: [Link](https://www.reutersconnect.com/item/short-track-speed-skating-milano-cortina-2026-winter-olympics-day-12/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX01UMU5VUlBITzAwMFJNRzdJQw)
-- **Olympic photo highlights from Day 12 of the Milan Cortina Winter Games**: [Link](https://www.fultonneighbor.com/sports/olympics/olympic-photo-highlights-from-day-12-of-the-milan-cortina-winter-games/article_558cefc7-6229-51ae-a19c-8977bcdfc63b.html)
-
-
-### nick woltemade (N/A, 18/02/2026 15:48 Lima)
-
-- **Champions League » Qarabağ FK gegen Newcastle United » Liveticker**: [Link](https://www.weltfussball.com/fussball/uefa-champions-league/ma11584394/qarabag-fk_newcastle-united/liveticker/)
-- **🔥 Was ist die Steigerung von Hattrick? CL-Star liefert gerade die Antwort**: [Link](https://onefootball.com/de/news/was-ist-die-steigerung-von-hattrick-cl-star-liefert-gerade-die-antwort-42430783)
-- **Champions League: Torfestival in der Champions League - Woltemade-Partner historisch**: [Link](https://www.sport1.de/news/fussball/champions-league/2026/02/champions-league-torfestival-in-der-champions-league-woltemade-partner-historisch)
-
-
-### club brujas - atlético madrid (N/A, 18/02/2026 15:48 Lima)
-
-- **Brujas - Atlético, en directo: ida de dieciseisavos de la Champions League hoy, en vivo**: [Link](https://as.com/futbol/champions/brujas-atletico-en-directo-previa-y-ultima-hora-de-la-champions-league-hoy-en-vivo-f202602-d/)
-- **Julián Álvarez marcó de penal para Atlético Madrid vs. Brujas por Champions League**: [Link](https://www.espn.com.ar/futbol/champions-league/nota/_/id/16329588/video-gol-de-julian-alvarez-de-penal-brujas-vs-atletico-de-madrid)
-- **Champions League: Por la llave 6 se enfrentarán Club Brugge y Atlético de Madrid**: [Link](https://rpp.pe/futbol/ligas-internacionales/champions-league-por-la-llave-6-se-enfrentaran-club-brugge-y-atletico-de-madrid-noticia-1676220)
-
-
-### qarabağ - newcastle (N/A, 18/02/2026 12:10 Lima)
-
-- **Preview: Qarabag FK vs. Newcastle United - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/qarabag-fk/champions-league/preview/qarabag-vs-newcastle-prediction-team-news-lineups_592138.html)
-- **Confirmed line up: Four changes for Qarabağ clash, Joelinton on bench**: [Link](https://onefootball.com/en/news/confirmed-line-up-four-changes-for-qarabag-clash-joelinton-on-bench-42430066)
-- **Newcastle winger Elanga: We all play for Howe**: [Link](https://www.tribalfootball.com/article/soccer-champions-league-newcastle-winger-elanga-we-all-play-for-howe-20f73d1b-3474-4661-8922-4724294a7e65)
-
-
-### halo (N/A, 18/02/2026 12:10 Lima)
-
-- **Cupra DarkRebel Concept remains aspirational halo vehicle**: [Link](https://www.livemedianews.gr/auto/4856/cupra-darkrebel-concept-remains-aspirational-halo-vehicle/)
-- **If you're after a fuller look, ‘halo lips’ are the answer says Dua Lipa’s make-up artist**: [Link](https://graziadaily.co.uk/beauty-hair/makeup/halo-lips-trend/)
-- **What is the 'halo lip'? Make-up artists explain how to do it**: [Link](https://shopping.yahoo.com/beauty/makeup/articles/halo-lip-artists-explain-164325063.html)
-
-
-### aston villa vs. newcastle (N/A, 18/02/2026 12:10 Lima)
-
-- **Aston Villa star issues 49-word statement after Newcastle United incident**: [Link](https://www.shieldsgazette.com/sport/football/newcastle-united/marco-bizot-aston-villa-newcastle-united-5602583)
-- **Tammy Abraham Relishes Return To Aston Villa; Says: It’s Good To Be Back**: [Link](https://www.sports247.ng/tammy-abraham-relishes-return-to-aston-villa-says-its-good-to-be-back/)
-- **Marco Bizot suspended for Aston Villa v Leeds after FA Cup red card**: [Link](https://onefootball.com/en/news/marco-bizot-suspended-for-aston-villa-v-leeds-after-fa-cup-red-card-42420152)
-
-
-### coco gauff (N/A, 18/02/2026 12:10 Lima)
-
-- **Coco Gauff: ‘I don’t think people should be dying in the streets just for existing’**: [Link](https://www.theguardian.com/sport/2026/feb/16/coco-gauff-tennis-united-states-politics-minnesota)
-- **Tennis star, a ‘proud’ American, speaks out: People are ‘dying in the streets’**: [Link](https://sports.yahoo.com/articles/tennis-star-proud-american-speaks-155830069.html)
-- **Coco Gauff Addresses U.S. Politics and Fatal ICE Shootings**: [Link](https://eurweb.com/coco-gauff-us-politics-fatal-shootings-dubai/)
-
-
-### epic games (N/A, 18/02/2026 12:10 Lima)
-
-- **How Long To Beat Resident Evil Requiem? Resident Evil 9 Game Length & Total Hours, Explained**: [Link](https://insider-gaming.com/resident-evil-requiem-game-length/)
-- **Framestore Pictures' Director Rich Lee Brings Human Touch To Trailer For Resident Evil: Requiem**: [Link](https://www.shootonline.com/shoot_video2/framestore-pictures-director-rich-lee-brings-human-touch-to-trailer-for-resident-evil-requiem/)
-- **Games Inbox: Will Resident Evil Requiem be worth getting?**: [Link](https://metro.co.uk/2026/02/18/games-inbox-will-resident-evil-requiem-worth-getting-26959886/)
-
-
-### brujas vs (N/A, 18/02/2026 12:10 Lima)
-
-- **Brujas vs Atlético de Madrid EN VIVO: ¿a qué hora juegan y dónde ver la ida de los playoffs de la Champions League?**: [Link](https://rpp.pe/futbol/champions-league/brujas-vs-atletico-de-madrid-en-vivo-a-que-hora-juegan-y-donde-ver-la-ida-de-los-playoffs-de-la-champions-league-noticia-1676374)
-- **Diego Simeone: "La contundencia te genera tranquilidad en los partidos"**: [Link](https://ovacion.pe/noticias/futbol-internacional/diego-simeone-contundencia-te-genera-tranquilidad-partidos)
-- **Pronósticos Brujas vs Atlético de Madrid: los colchoneros llegan como grandes favoritos**: [Link](https://depor.com/apuestas-deportivas/brujas-vs-atletico-pronosticos-apuestas-cuotas-18-02-2026/)
-
-
-### corte de luz (N/A, 18/02/2026 12:10 Lima)
-
-- **SIN LUZ el 18 y 19 de febrero: Estos distritos se verán afectados con el corte del servicio eléctrico**: [Link](https://www.exitosanoticias.pe/actualidad/sin-luz-18-19-febrero-estos-distritos-veran-afectados-corte-servicio-electrico-n168999)
-- **Corte de luz en Arequipa y Trujillo superará las nueve horas este 15 de febrero: aquí las zonas afectadas**: [Link](https://www.expreso.com.pe/actualidad/corte-de-luz-en-arequipa-y-trujillo-superara-las-nueve-horas-este-15-de-febrero-estas-son-las-zonas-afectadas-seal-noticia/1264003/)
-- **¿Qué lugares serán afectados por corte masivo de luz en México?**: [Link](https://www.aztecaveracruz.com/tendencia/que-lugares-seran-afectados-por-corte-masivo-luz-en-mexico/)
 
 
