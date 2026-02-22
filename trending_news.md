@@ -1,3 +1,31 @@
+### getafe - sevilla (N/A, 22/02/2026 08:02 Lima)
+
+- **Cuándo juegan Getafe vs. Sevilla por la LaLiga 2025/26: equipo, fecha y hora**: [Link](https://www.espn.com.pe/futbol/espana/nota/_/id/16324313/cuando-juegan-getafe-vs-sevilla-por-la-laliga-2025-26-equipo-fecha-y-hora)
+- **Lo que debes saber del Getafe-Sevilla de LaLiga**: [Link](https://www.flashscore.pe/noticias/futbol-laliga-ea-sports-previa-getafe-sevilla-j25/r7ER85zH/)
+- **LaLiga EA Sports: Por la fecha 25, Getafe recibirá a Sevilla**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-por-la-fecha-25-getafe-recibira-a-sevilla-noticia-1676862)
+
+
+### genoa - torino (N/A, 22/02/2026 08:02 Lima)
+
+- **✅ Genoa v Torino line-ups: Simeone, Colombo, Malino, Baldanzi in**: [Link](https://onefootball.com/en/news/genoa-v-torino-line-ups-simeone-colombo-malino-baldanzi-in-42449484)
+- **Genoa v Torino Match Stats**: [Link](https://andysbetclub.co.uk/football-fixtures/genoa-v-torino/22022026/9f67b70a-9b9a-45cb-919d-c8f361b528a9/stats/team/)
+- **Preview: Genoa vs Torino - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/genoa/preview/genoa-vs-torino-prediction-team-news-lineups_592378.html)
+
+
+### barcelona vs levante (N/A, 22/02/2026 08:02 Lima)
+
+- **Posible alineación del Barcelona ante el Levante hoy en LaLiga**: [Link](https://as.com/futbol/posible-alineacion-del-barcelona-ante-el-levante-hoy-en-laliga-f202602-n/)
+- **Barça - Levante: El cambio de Flick en el once para aprovechar el regalo del Madrid**: [Link](https://www.sport.es/es/noticias/barca/barca-escapar-regalo-madrid-127122240)
+- **Barcelona vs Levante: posibles alineaciones, Jornada 25, LaLiga**: [Link](https://www.espn.com.ar/futbol/espana/nota/_/id/16341973/barcelona-vs-levante-laliga-2026-alineaciones-jornada-25)
+
+
+### liga mx (N/A, 22/02/2026 08:02 Lima)
+
+- **Quiere dirigir en la Liga MX y ya sonó para Tigres en el pasado, ¿tiembla Pizarro?**: [Link](https://www.elfutbolero.com.mx/ligamx/quiere-dirigir-en-la-liga-mx-y-ya-sono-para-tigres-en-el-pasado-tiembla-pizarro-20260222-149865.html)
+- **Esto es todo lo que tienes que saber previo a El Clásico de México**: [Link](https://onefootball.com/es/noticias/esto-es-todo-lo-que-tienes-que-saber-previo-a-el-clasico-de-mexico-42445979)
+- **Antonio Contreras y Ángel Villacampa se volverán a ver las caras en el Chivas-América**: [Link](https://www.oncediario.com/notas/60947-chivas-america-angel-villacampa-antonio-contreras-liga-mx-femenil-clausura-2026-jornada-10-estadio-akron)
+
+
 ### terremoto sismo temblor hoy epicentro (N/A, 22/02/2026 03:39 Lima)
 
 - **Temblor en México EN VIVO hoy, 22 de febrero 2026: hora exacta, magnitud y dónde fue el epicentro del último sismo**: [Link](https://gestion.pe/mix/respuestas/temblor-en-mexico-en-vivo-hoy-22-y-23-de-febrero-2026-hora-exacta-magnitud-y-donde-fue-el-epicentro-del-ultimo-sismo-servicio-sismologico-nacional-nnda-nnrt-noticia/)
@@ -1003,31 +1031,5 @@ Sin noticias relacionadas disponibles.
 - **W styczniu do PPK przystąpiło ponad 61 tysięcy osób**: [Link](https://www.analizy.pl/puls-rynku/39344/biuletyn-ppk-luty-2026)
 - **Nowe emerytury Polaków z rekordem! Już 47 mld zł na kontach emerytalnych**: [Link](https://superbiz.se.pl/wiadomosci/nowe-emerytury-polakow-z-rekordem-juz-47-mld-zl-na-kontach-emerytalnych-aa-13az-TVs7-5925.html)
 - **Oto ile pracujący w Polsce odłożyli w PPK. W ciągu miesiąca wzrost o ponad 2 mld zł**: [Link](https://www.money.pl/gospodarka/oto-ile-pracujacy-w-polsce-odlozyli-w-ppk-w-ciagu-miesiaca-wzrost-o-ponad-2-mld-zl-7255744902998464a.html)
-
-
-### willax en vivo (N/A, 18/02/2026 21:41 Lima)
-
-- **Rafael López Aliaga afirma que el fujimorismo, por “venganza”, pacta para elegir a José Balcázar como nuevo presidente**: [Link](https://www.infobae.com/peru/2026/02/18/rafael-lopez-aliaga-afirma-que-el-fujimorismo-por-venganza-pacta-para-elegir-a-jose-balcazar-como-nuevo-presidente/)
-- **Alianzas políticas en Perú podrían cambiar el poder político**: [Link](https://peru21.pe/opinion/alianzas-politicas-en-peru-podrian-cambiar-el-poder-politico/)
-- **Keiko Fujimori: "Fuerza Popular no está postulando a nadie"**: [Link](https://canaln.pe/actualidad/keiko-fujimori-fuerza-popular-no-esta-postulando-nadie-n490417)
-
-
-### tomás martínez (N/A, 18/02/2026 21:41 Lima)
-
-- **Tomás Martínez no pudo conectar un centro de Benedetto**: [Link](https://www.ole.com.ar/ecuador/tomas-martinez-pudo-conectar-centro-benedetto_3_L0PNA58iOY.html)
-
-
-### sigrid bazán (N/A, 18/02/2026 21:41 Lima)
-
-- **Congresistas del Bloque Democrático se retiran y no votarán en la segunda vuelta para elegir al nuevo presidente**: [Link](https://rpp.pe/politica/congreso/sigrid-bazan-ruth-luque-y-edgar-reymundo-se-retiran-y-no-participaran-de-la-votacion-para-elegir-al-nuevo-presidente-noticia-1676500)
-- **🔴🔵#ExitosaPerú🇵🇪🇵🇪 | El Bloque Democrático anunció que no participarán de la segunda votación, luego del mal resultado que obtuvo su candidato Edgard Reymundo. Él, junto a Ruth Luque y Sigrid Bazán, cuestionaron a los representantes de los partid**: [Link](https://www.facebook.com/Exitosanoticias/posts/exitosaper%C3%BA-el-bloque-democr%C3%A1tico-anunci%C3%B3-que-no-participar%C3%A1n-de-la-segunda-vota/1354502193379502/)
-- **Edgard Reymundo no votó en segunda vuelta de elección en Congreso: “No queremos convalidarla”**: [Link](https://diariocorreo.pe/politica/edgard-reymundo-no-voto-en-segunda-vuelta-de-eleccion-en-congreso-no-queremos-convalidarla-noticia/)
-
-
-### elecciones 2026 (N/A, 18/02/2026 21:41 Lima)
-
-- **CCL pide al nuevo presidente garantizar la continuidad de las líneas económicas estratégicas**: [Link](https://gestion.pe/peru/politica/ccl-pide-al-nuevo-presidente-de-la-republica-garantizar-la-continuidad-de-las-lineas-economicas-estrategicas-noticia/)
-- **CCL advierte que crisis política afecta crecimiento, inversión y MYPE**: [Link](https://canaln.pe/actualidad/ccl-inestabilidad-politica-afecta-crecimiento-economico-n490404)
-- **CCL insta a garantizar continuidad económica en 2026**: [Link](https://elcomercio.pe/economia/ccl-pide-reducir-la-incertidumbre-politica-y-garantizar-continuidad-economica-ante-elecciones-2026-ultimas-noticia/)
 
 
