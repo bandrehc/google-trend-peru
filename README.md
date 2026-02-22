@@ -1,3 +1,72 @@
+### roma (N/A, 22/02/2026 15:34 Lima)
+
+- **Incendio in Prati: distrutti dalle fiamme due auto e 14 tra scooter e moto**: [Link](https://www.romatoday.it/cronaca/incendio-motorini-prati-21-22-febbaio-2026-.html)
+- **Notte di fuoco a Prati, pesante il bilancio dei danni: 14 scooter distrutti, palazzo annerito**: [Link](https://abitarearoma.it/notte-di-fuoco-a-prati-pesante-il-bilancio-dei-danni-14-scooter-distrutti-palazzo-annerito/)
+- **Roma, a fuoco nella notte a Prati 14 scooter, due auto e anche gli alberi sul marciapiede. Come nel 2023. L'ipotesi dolo**: [Link](https://roma.corriere.it/notizie/cronaca/26_febbraio_22/roma-a-fuoco-nella-notte-a-prati-14-scooter-due-auto-e-anche-gli-alberi-sul-marciapiede-come-nel-2023-l-ipotesi-dolo-16bf54fc-6fc1-4393-9f05-c7369eb65xlk.shtml)
+
+
+### nemesio oseguera cervantes (N/A, 22/02/2026 15:34 Lima)
+
+- **‘El Mencho,’ the leader of one of Mexico’s most powerful cartels, dead after military operation**: [Link](https://www.cnn.com/2026/02/22/americas/mexico-kill-drug-mencho-latam-intl)
+- **Mexico Confirms Death of ‘El Mencho,’ Leader of Jalisco New Generation Cartel**: [Link](https://www.nytimes.com/2026/02/22/world/americas/jalisco-new-generation-cartel-leader-killed.html)
+- **Mexican drug lord "El Mencho" killed in military operation, says government source**: [Link](https://www.reuters.com/world/americas/mexican-drug-lord-el-mencho-killed-military-operation-government-source-2026-02-22/)
+
+
+### lyon (N/A, 22/02/2026 15:34 Lima)
+
+- **"Nous refusons toute instrumentalisation" : l'ambassadeur américain convoqué par le Quai d'Orsay après avoir commenté la mort de Quentin Deranque**: [Link](https://www.franceinfo.fr/faits-divers/mort-de-quentin-militant-identitaire-agresse-a-lyon/nous-refusons-toute-instrumentalisation-paris-convoque-l-ambassadeur-americain-apres-que-l-administration-trump-a-declare-suivre-de-pres-l-enquete-sur-la-mort-de-quentin-deranque_7822595.html)
+- **À Lyon, l’organisatrice de la marche pour Quentin Deranque est mariée à un néonazi violent**: [Link](https://www.streetpress.com/sujet/1771517300-lyon-organisatrice-marche-pour-quentin-deranque-mariee-neonazi-violent-eliot-bertin)
+- **Mort de Quentin Deranque : Une vidéo inédite de la rixe précédant le lynchage du militant d'extrême droite**: [Link](https://www.lecanardenchaine.fr/police-justice/53118-une-video-inedite-de-la-rixe-precedant-le-lynchage-du-militant-d-extreme-droite)
+
+
+### roma fc (N/A, 22/02/2026 15:34 Lima)
+
+- **Donyell Malen told Aston Villa decision 'he should be furious at' as stunning Roma stat emerges**: [Link](https://talksport.com/football/4001567/donyell-malen-transfer-roma-stats-aston-villa-furious/)
+- **Roma to activate Malen’s buy option, drop Zirkzee ahead of summer**: [Link](https://romapress.net/roma-to-activate-malens-buy-option-drop-zirkzee-ahead-of-summer/)
+- **New role sparks turnaround: ex-Bundesliga star suddenly on legendary form**: [Link](https://onefootball.com/de/news/new-role-sparks-turnaround-ex-bundesliga-star-suddenly-on-legendary-form-42448803)
+
+
+### feyenoord vs (N/A, 22/02/2026 15:34 Lima)
+
+- **Feyenoord vs. Telstar (22 Feb, 2026) Live Score**: [Link](https://www.espn.co.uk/football/match/_/gameId/741186)
+- **Preview: Feyenoord vs Telstar - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/feyenoord/preview/feyenoord-vs-telstar-prediction-team-news-lineups_592451.html)
+
+
+### lyon vs (N/A, 22/02/2026 15:34 Lima)
+
+- **Preview: Strasbourg vs Lyon - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/strasbourg/preview/strasbourg-vs-lyon-prediction-team-news-lineups_592366.html)
+- **Football Tracker: Lyon visiting Strasbourg in Ligue 1, Roma in action**: [Link](https://www.flashscore.com/news/football-tracker-live-scores-updates-results/OCdLDAHa/)
+- **Endrick turns Lyon’s tide in Ligue 1**: [Link](https://tribune.com.pk/story/2593593/endrick-turns-lyons-tide-in-ligue-1)
+
+
+### atletico grau (N/A, 22/02/2026 15:34 Lima)
+
+- **🔴#ENVIVO Conoce las alineaciones de Atlético Grau y Juan Pablo II**: [Link](https://ovacion.pe/noticias/liga1-2026/envivo-conoce-las-alineaciones-atletico-grau-juan-pablo-ii)
+- **Liga 1: Grau recibirá a Juan Pablo II por la fecha 4**: [Link](https://rpp.pe/futbol/descentralizado/liga-1-grau-recibira-a-juan-pablo-ii-por-la-fecha-4-noticia-1676904)
+- **HOY, Atlético Grau vs Juan Pablo II en vivo: A qué hora juegan y dónde ver la Liga 1**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/atletico-grau-vs-juan-pablo-ii-en-vivo-horario-y-donde-ver-la-liga-1-torneo-apertura-2026-l1max-l1play-tdpe-noticia/)
+
+
+### villarreal - valencia c. f. (N/A, 22/02/2026 15:34 Lima)
+
+- **LaLiga EA Sports: Por una nueva edición de el derbi de la Comunitat, Villarreal recibe a Valencia**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-por-una-nueva-edicion-de-el-derbi-de-la-comunitat-villarreal-recibe-a-valencia-noticia-1676901)
+- **Villarreal - Valencia: Sigue pronósticos, mejores apuestas y cuotas**: [Link](https://www.flashscore.pe/noticias/futbol-laliga-villarreal-valencia-pronosticos-apuestas-cuotas/rLqAPcV8/)
+- **Lo que debes saber del Villarreal-Valencia de LaLiga**: [Link](https://www.flashscore.pe/noticias/futbol-laliga-ea-sports-previa-villarreal-valencia-j25/jNlNnE4M/)
+
+
+### málaga - albacete (N/A, 22/02/2026 15:34 Lima)
+
+- **Partido clave del Albacete Balompié en Málaga**: [Link](https://www.albacetebalompie.es/noticias/el-albacete-balompie-se-reta-a-si-mismo-en-un-gran-escenario)
+- **Juanfran Funes vs Alberto González: duelo entre dos amigos y revisionistas del VAR**: [Link](https://as.com/futbol/segunda/juanfran-funes-vs-alberto-gonzalez-duelo-entre-dos-amigos-y-revisionistas-del-var-f202602-n/)
+- **Dos arietes para asaltar el mejor castillo de Segunda**: [Link](https://es.besoccer.com/noticia/albacete-goles-cabeza-puertas-agus-medina-1395730)
+
+
+### lyon fc (N/A, 22/02/2026 15:34 Lima)
+
+- **OL : inquiétude pour Pavel Šulc, sorti sur blessure à Strasbourg**: [Link](https://www.footmercato.net/a3553587648271818044-ol-inquietude-pour-pavel-sulc-sorti-sur-blessure-a-strasbourg)
+- **OL : Énorme coup dur pour l'OL, Pavel Sulc sort sur blessure !**: [Link](https://madeinfoot.ouest-france.fr/infos/article-ol-enorme-coup-dur-pour-l-ol-pavel-sulc-sort-sur-blessure-513706.html)
+- **Pronostic Strasbourg - Lyon, Ligue 1**: [Link](https://www.sportytrader.com/pronostics/rc-strasbourg-lyon-328986/)
+
+
 ### milan - parma (N/A, 22/02/2026 11:37 Lima)
 
 - **✅ Milan-Parma | UFFICIALI: le scelte su Leao, Pulisic, Strefezza e Modric**: [Link](https://onefootball.com/it/notizie/milan-parma-ufficiali-le-scelte-su-leao-pulisic-strefezza-e-modric-42450759)
@@ -963,75 +1032,5 @@ Sin noticias relacionadas disponibles.
 - **Campeona nacional de buceo libre fallece tras ser atropellada en San Isidro: conductor se habría dado a la fuga**: [Link](https://larepublica.pe/sociedad/2026/02/18/campeona-nacional-de-buceo-libre-fallece-tras-ser-atropellada-en-san-isidro-conductor-se-habria-dado-a-la-fuga-907560)
 - **Joven seleccionada peruana de buceo Lizeth Marzano Noguera falleció tras ser atropellada en San Isidro**: [Link](https://rpp.pe/lima/accidentes/lizeth-marzano-noguera-seleccionada-peruana-de-buceo-murio-tras-ser-atropellada-en-san-isidro-noticia-1676528)
 - **Buscan a chofer que atropelló y mató a campeona nacional de buceo en San Isidro**: [Link](https://peru21.pe/lima/buscan-chofer-que-atropello-campeona-nacional-de-buceo-en-san-isidro/)
-
-
-### metropolitano (N/A, 19/02/2026 12:01 Lima)
-
-- **¿Soterrar el Metropolitano en Barranco? La propuesta que busca unir la Av. Bolognesi y reabrir el debate urbano**: [Link](https://cosas.pe/actualidad/365010/soterrar-el-metropolitano-en-barranco-la-propuesta-que-busca-unir-la-av-bolognesi-y-reabrir-el-debate-urbano/)
-- **El proyecto para soterrar el Metropolitano en Barranco y reconectar las zonas divididas del distrito**: [Link](https://elcomercio.pe/lima/transporte/un-carril-soterrado-para-el-metropolitano-en-barranco-la-propuesta-que-busca-recuperar-las-zonas-divididas-del-distrito-metropolitano-barranco-estacion-boulevard-noticia/)
-- **Bus del Metropolitano quedó varado a la altura de estación Dos de Mayo: pasajeros esperan más de 20 minutos**: [Link](https://larepublica.pe/sociedad/2026/02/19/bus-del-metropolitano-quedo-varado-a-la-altura-de-la-estacion-dos-de-mayo-se-reportan-aumento-del-tiempo-de-espera-y-desvios-1804278)
-
-
-### gonzalo bueno (N/A, 19/02/2026 12:01 Lima)
-
-- **Gonzalo Bueno clasificó a cuartos en el Challenger 50 de Tigre**: [Link](https://ovacion.pe/noticias/tenis/gonzalo-bueno-clasifico-cuartos-challenger-50-tigre)
-- **Gonzalo Bueno impone su favoritismo y derrota a Dutra Da Silva en su estreno en el Challenger 50 de Tigre 2026**: [Link](https://www.infobae.com/peru/deportes/2026/02/17/gonzalo-bueno-impone-su-favoritismo-y-derrota-a-dutra-da-silva-en-su-estreno-en-el-challenger-50-de-tigre-2026/)
-- **Bueno y Varillas tuvieron debuts distintos en Argentina**: [Link](https://www.futbolperuano.com/mas-deportes/noticias/gonzalo-bueno-y-juan-pablo-varillas-tuvieron-debuts-opuestos-en-el-challenger-de-tigre-564246)
-
-
-### paok vs (N/A, 19/02/2026 12:01 Lima)
-
-- **And now for… Celta**: [Link](https://www.paokfc.gr/en/news/20260218-kai-tora-celta/)
-- **Europa League: Jorge Sánchez eyes debut with PAOK against Celta de Vigo**: [Link](https://www.soyfutbol.com/en/news/europa-league-jorge-sanchez-eyes-debut-with-paok-against-celta-de-vigo-20260218-0047.html)
-- **PAOK vs Celta Vigo Preview & Prediction | 2025-26 UEFA Europa League | Knockout Playoffs**: [Link](https://www.thestatszone.com/paok-vs-celta-vigo-preview-prediction-2025-26-uefa-europa-league-knockout-playoffs-171281)
-
-
-### radio exitosa (N/A, 19/02/2026 08:19 Lima)
-
-- **Papá, ¿por qué somos del Bodo/Glimt?**: [Link](https://as.com/opinion/papa-por-que-somos-del-bodoglimt-f202602-n/)
-- **Bodø/Glimt sorprende y vence 3-1 al Inter en Noruega**: [Link](https://caretas.pe/deportes/bodo-glimt-vencio-inter-3-1-champions-playoffs/)
-- **El Bodo sigue en Hauge**: [Link](https://www.marca.com/futbol/champions-league/cronica/2026/02/18/bodo-sigue-hauge.html)
-
-
-### bn (N/A, 19/02/2026 08:19 Lima)
-
-- **Ebay buys Depop for $1.2bn in effort to lure younger shoppers**: [Link](https://www.theguardian.com/technology/2026/feb/19/ebay-buys-depop-from-etsy)
-- **Etsy sells second-hand fashion app Depop to eBay for $1.2bn**: [Link](https://www.bbc.com/news/articles/cx240kme2k8o)
-- **Etsy Sells Depop, a Secondhand Clothing App Popular With Gen Z, to eBay**: [Link](https://www.nytimes.com/2026/02/18/business/etsy-depop-ebay.html)
-
-
-### ugel puno (N/A, 19/02/2026 08:19 Lima)
-
-- **Contraloría advierte a UGEL Puno deficiencias en 58 colegios públicos cerca a inicio de año escolar 2026**: [Link](https://larepublica.pe/sociedad/2026/02/18/contraloria-advierte-a-ugel-puno-deficiencias-en-58-colegios-publicos-cerca-a-inicio-de-ano-escolar-2026-1366956)
-- **Director regional de Educación cuestiona observaciones de Contraloría por operativos en periodo vacacional**: [Link](https://prensaregional.pe/director-regional-de-educacion-cuestiona-observaciones-de-contraloria-por-operativos-en-periodo-vacacional/)
-- **Puno: coordinan acciones de emergencia para garantizar el inicio seguro del año escolar 2026**: [Link](https://radioondaazul.com/puno-coordinan-acciones-de-emergencia-para-garantizar-el-inicio-seguro-del-ano-escolar-2026/)
-
-
-### gustavo cerati (N/A, 19/02/2026 08:19 Lima)
-
-- **Yo Soy conciertos 2026: ¡Gustavo Cerati se luce con una presentación magnética!**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-conciertos-2026-gustavo-cerati-se-luce-con-una-presentacion-magnetica_20260218/)
-- **El “Cerati Inca” que sorprende en TV de Perú y parece revivir al genial Gustavo | Infocielo**: [Link](https://www.infocielo.com/tendencias/el-cerati-inca-que-sorprende-en-tv-de-peru-y-parece-revivir-al-genial-gustavo)
-- **La voz de Gustavo Cerati revive en el imitador peruano Fernando Sosa**: [Link](https://www.eluniverso.com/entretenimiento/television/la-voz-de-gustavo-cerati-revive-en-el-imitador-peruano-fernando-sosa-nota/)
-
-
-### temblor hoy (N/A, 19/02/2026 03:53 Lima)
-
-- **IGP Historial y registro de Temblores en Lima Perú: Sismos magnitud y epicentro al cierre**: [Link](https://rpp.pe/lima/desastres-naturales/temblor-en-peru-hoy-16-de-febrero-magnitud-y-epicentro-del-sismo-segun-igp-live-3180)
-- **Temblor hoy en Perú, lunes 16 de febrero: sismo de magnitud 4.1 se registra en Trujillo**: [Link](https://andina.pe/agencia/noticia-temblor-hoy-peru-lunes-16-febrero-sismo-magnitud-41-se-registra-trujillo-1063241.aspx)
-- **Tres sismos remecen el país en menos de 24 horas: Piura, Lima y Arequipa**: [Link](https://caretas.pe/politica/tres-sismos-remecen-el-pais-en-menos-de-24-horas-piura-lima-y-arequipa/)
-
-
-### norma yarrow (N/A, 19/02/2026 03:53 Lima)
-
-- **Norma Yarrow tras elección de Balcázar: “Defenderemos a la población contra esta izquierda corrupta y estos pactos 'fujicerronistas'”**: [Link](https://rpp.pe/politica/congreso/norma-yarrow-tras-eleccion-de-balcazar-defenderemos-a-la-poblacion-contra-esta-izquierda-corrupta-y-estos-pactos-fujicerronistas-noticia-1676514)
-- **🛑 En medio de las mociones de censura contra José Jerí, la congresista Norma Yarrow responsabiliza al fujimorismo de llevar al país a la debacle. 📲 Si quieres estar más informado, visita nuestra web: https://www.expreso.com.pe**: [Link](https://www.facebook.com/diario.expreso/posts/-en-medio-de-las-mociones-de-censura-contra-jos%C3%A9-jer%C3%AD-la-congresista-norma-yarro/1336166595207615/)
-- **🛑 En medio de las mociones de censura contra José Jerí, la congresista Norma Yarrow responsabiliza al fujimorismo de llevar al país a la debacle. 📲 Si quieres estar más informado, visita nuestra web: https://www.expreso.com.pe**: [Link](https://www.instagram.com/reel/DU3kkvEitM0/)
-
-
-### melcochita (N/A, 19/02/2026 00:23 Lima)
-
-- **Melcochita se pronunció tras disculpas de Monserrat**: [Link](https://www.americatv.com.pe/america-hoy/melcochita-se-pronuncio-disculpas-publicas-monserrat-noticia-162970)
-- **Monserrat pide disculpas a 'Melcochita' por WhatsApp y él deja en suspenso su decisión: "Tengo mes y medio para pensar"**: [Link](https://willax.pe/entretenimiento/monserrat-disculpas-melcochita-whatsapp-decision-willax)
-- **¡Perdón público! Monserrat Seminario sorprende a Melcochita con emotiva disculpa en San Valentín: “Te escribo para...”**: [Link](https://elcomercio.pe/respuestas/farandula/perdon-publico-monserrat-seminario-sorprende-a-melcochita-con-emotiva-disculpa-en-san-valentin-te-escribo-para-tdpe-noticia/)
 
 
