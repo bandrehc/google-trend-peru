@@ -1,3 +1,73 @@
+### sean strickland (N/A, 22/02/2026 00:17 Lima)
+
+- **UFC Houston ‘Strickland vs. Hernandez’ Play-by-Play, Results & Round Scoring**: [Link](https://www.sherdog.com/news/news/UFC-Houston-Strickland-vs-Hernandez-PlaybyPlay-Results-Round-Scoring-200193)
+- **UFC Fight Night 267 main card: Best photos from Houston**: [Link](https://mmajunkie.usatoday.com/picture-gallery/sports/ufc/2026/02/21/ufc-fight-night-267-main-card-best-photos-houston/88805529007/)
+- **Sean Strickland Finishes Hernandez In The 3rd | UFC Houston**: [Link](https://www.ufc.com/video/154555)
+
+
+### ryan garcia (N/A, 22/02/2026 00:17 Lima)
+
+- **Ryan Garcia Fight: Full-length Replay Weigh-In — ryan garcia fight replay**: [Link](https://www.filmogaz.com/160892)
+- **Hitchins Pulls Out Of Duarte Defense With Illness**: [Link](https://fightnews.com/hitchins-pulls-out-of-duarte-defense-with-illness/182697)
+- **Ryan Garcia Gets Pumped Up Backstage Before Weigh-In, On Video**: [Link](https://www.aol.com/articles/ryan-garcia-gets-pumped-backstage-182135307.html)
+
+
+### gustavo cerati (N/A, 22/02/2026 00:17 Lima)
+
+- **“Debes cantar son Soda Stereo”: Gustavo Cerati de ‘Yo Soy’ impacta por su gran parecido vocal e interpretación**: [Link](https://rpp.pe/famosos/farandula/yo-soy-imitador-de-gustavo-cerati-impacta-por-su-gran-parecido-vocal-e-interpretacion-noticia-1676725)
+- **¡Cierra los ojos y es Cerati! Participante de ‘Yo Soy’ deja en shock por su voz**: [Link](https://elcomercio.pe/respuestas/farandula/cierra-los-ojos-y-es-cerati-participante-de-yo-soy-deja-en-shock-por-su-voz-tdpe-noticia/)
+- **El “Cerati Inca” que sorprende en TV de Perú y parece revivir al genial Gustavo | Infocielo**: [Link](https://www.infocielo.com/tendencias/el-cerati-inca-que-sorprende-en-tv-de-peru-y-parece-revivir-al-genial-gustavo)
+
+
+### clima chiclayo (N/A, 22/02/2026 00:17 Lima)
+
+- **Predicción del estado del tiempo en Chiclayo para el domingo 22 de febrero**: [Link](https://www.infobae.com/noticias/2026/02/21/prediccion-del-estado-del-tiempo-en-chiclayo-para-el-domingo-22-de-febrero/)
+- **¿Lluvia en Chiclayo?: el pronóstico del clima del sábado 21 de febrero**: [Link](https://www.infobae.com/noticias/2026/02/20/lluvia-en-chiclayo-el-pronostico-del-clima-del-sabado-21-de-febrero/)
+- **¿Lluvia en Chiclayo?: el pronóstico del clima del miércoles 18 de febrero**: [Link](https://www.infobae.com/noticias/2026/02/17/lluvia-en-chiclayo-el-pronostico-del-clima-del-miercoles-18-de-febrero/)
+
+
+### toy story (N/A, 22/02/2026 00:17 Lima)
+
+- **Could ‘Toy Story 5’ help parents get kids off screens? ‘Sit down together, watch it together, talk about it,’ says expert**: [Link](https://www.cnbc.com/2026/02/20/could-toy-story-5-help-parents-get-kids-off-screens-talk-about-it-says-expert.html)
+- **‘How is he bald? He is made out of rubber’: Kids react to ‘Toy Story 5’ trailer**: [Link](https://www.yahoo.com/entertainment/movies/article/how-is-he-bald-he-is-made-out-of-rubber-kids-react-to-toy-story-5-trailer-194512043.html)
+- **Buzz Lightyear and Woody reunite in trailer for Toy Story 5**: [Link](https://www.bbc.com/news/articles/c98q9g68vyno)
+
+
+### julio iglesias (N/A, 22/02/2026 00:17 Lima)
+
+- **Recuerdos fotográficos: 2009. Julio Iglesias toma sol en San Javier y luego canta en Floresta**: [Link](https://www.lagaceta.com.ar/nota/1125323/opinion/recuerdos-fotograficos-2009-julio-iglesias-toma-sol-san-javier-luego-canta-floresta.html)
+- **La puja por las montañas que fueron de Julio Iglesias está en 400.000 euros, muy lejos de los 9,7 millones de valoración**: [Link](https://lamarina.eldiario.es/2026/02/21/la-puja-por-las-montanas-que-fueron-de-julio-iglesias-esta-en-400-000-euros-muy-lejos-de-los-97-millones-de-valoracion/)
+- **Más tiempo para pujar por la finca alicantina de 1.100 hectáreas que fue del cantante madrileño Julio Iglesias**: [Link](https://www.epe.es/es/madrid/20260221/tiempo-pujar-finca-alicantina-cantante-madrileno-julio-iglesias-127102277)
+
+
+### cruz azul - guadalajara (N/A, 22/02/2026 00:17 Lima)
+
+- **Cruz Azul vs. Chivas: el invicto del Rebaño ante su prueba de fuego**: [Link](https://www.espn.com.pe/futbol/mexico/nota/_/id/16333646/cruz-azul-chivas-clausura-2026-previa-invicto-liga-mx)
+- **¿A qué hora juega Cruz Azul vs. Chivas de Guadalajara y dónde ver la Liga MX?**: [Link](https://libero.pe/futbol-internacional/liga-mx/2026/02/20/hora-juega-cruz-azul-vs-chivas-de-guadalajara-canal-de-transmision-en-vivo-donde-ver-partido-de-liga-mx-clausura-403140)
+- **Liga MX: Chivas se enfrenta ante Cruz Azul con la meta de mantener su invicto y buscar la cima**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-chivas-se-enfrenta-ante-cruz-azul-con-la-meta-de-mantener-su-invicto-y-buscar-la-cima-noticia-1676827)
+
+
+### germán berterame (N/A, 22/02/2026 00:17 Lima)
+
+- **LAFC - Inter Miami, en vivo: MLS 2026, Fecha 1 en el BMO Stadium, minuto a minuto**: [Link](https://as.com/us/futbol/lafc-inter-miami-en-vivo-mls-2026-fecha-1-en-el-bmo-stadium-minuto-a-minuto-f202602-d/)
+- **De Paul se equivocó en la salida y Los Angeles FC marcaron ante Inter Miami**: [Link](https://www.espn.com.ar/futbol/mls/nota/_/id/16343015/rodrigo-de-paul-gol-david-martinez-lafc-vs-inter-miami-mls)
+- **Lionel Messi está disponible y junto al Inter Miami comienzan su camino a una nueva corona en la MLS**: [Link](https://cnnespanol.cnn.com/2026/02/20/deportes/lionel-messi-inter-miami-camino-corona-mls-orix)
+
+
+### laura pausini (N/A, 22/02/2026 00:17 Lima)
+
+- **Piaccia o no, Laura Pausini è l’unica vera popstar italiana di fama mondiale**: [Link](https://www.today.it/vision/musica/laura-pausini-star.html)
+- **Verso il Festival di Sanremo: Conti, Pausini e Bravi davanti alle telecamere di Etv**: [Link](https://www.espansionetv.it/2026/02/21/verso-il-festival-di-sanremo-conti-pausini-e-bravi-davanti-alle-telecamere-di-etv/)
+- **Laura Pausini lancia "Mariposa Tecknicolor" e svela: "Un rimpianto? Ho scartato Leonardo DiCaprio per un videoclip"**: [Link](https://www.allmusicitalia.it/news/laura-pausini-leonardo-dicaprio-videoclip-rimpianto.html)
+
+
+### apple tv (N/A, 22/02/2026 00:17 Lima)
+
+- **Apple TV’s new movie is a hit, and just the start of a big year ahead**: [Link](https://9to5mac.com/2026/02/20/apple-tvs-new-movie-is-a-hit-and-just-the-start-of-a-big-year-ahead/)
+- **A24’s ‘Eternity’ asks an impossible question: First love or last?**: [Link](https://www.browndailyherald.com/article/2026/02/a24s-eternity-asks-an-impossible-question-first-love-or-last)
+- **Eternity (2025 film)**: [Link](https://www.mailplus.co.uk/tv/finder/film/441681/eternity-2025-film)
+
+
 ### inter miami - lafc (N/A, 21/02/2026 21:42 Lima)
 
 - **LAFC vs Inter Miami: Lineups for 2026 MLS season opener**: [Link](https://bolavip.com/en/soccer/lafc-vs-inter-miami-lineups-for-2026-mls-season-opener)
@@ -959,75 +1029,5 @@ Sin noticias relacionadas disponibles.
 - **Alva es la mejorcita por Aldo Mariátegui**: [Link](https://peru21.pe/opinion/alva-es-la-mejorcita-por-aldo-mariategui/)
 - **Jaloneos, empujones e insultos: las polémicas de María del Carmen Alva en el Congreso de la República**: [Link](https://www.infobae.com/peru/2026/02/18/jaloneos-empujones-e-insultos-las-polemicas-de-maria-del-carmen-alva-en-el-congreso-de-la-republica/)
 - **Fuerza Popular anunció que respaldará candidatura de María del Carmen Alva a la presidencia de la Mesa Directiva**: [Link](https://rpp.pe/politica/actualidad/fuerza-popular-anuncio-que-respaldara-candidatura-de-maria-del-carmen-alva-a-la-presidencia-de-la-mesa-directiva-noticia-1676477)
-
-
-### balcazar (N/A, 18/02/2026 21:41 Lima)
-
-- **Pleno del Congreso inicia sesión clave para elegir al nuevo presidente del Congreso**: [Link](https://comunicaciones.congreso.gob.pe/noticias/pleno-del-congreso-inicia-sesion-clave-para-elegir-al-nuevo-presidente-del-congreso/)
-- **Alva y Balcázar pasan a segunda vuelta en el Congreso**: [Link](https://canaln.pe/actualidad/alva-y-balcazar-pasan-segunda-vuelta-congreso-n490422)
-- **Congreso define en segunda vuelta Presidencia de la República [transmisión en vivo]**: [Link](https://andina.pe/agencia/noticia-congreso-define-segunda-vuelta-presidencia-de-republica-transmision-vivo-1063632.aspx)
-
-
-### congresista balcazar (N/A, 18/02/2026 21:41 Lima)
-
-- **ICAL protesta por postulación de José Balcázar a la presidencia: exdecano fue expulsado tras imputación de apropiación de fondos y otros**: [Link](https://lpderecho.pe/ical-protesta-postulacion-jose-balcazar-presidencia-exdecano-expulsado-tras-imputacion-apropiacion-fondos-otros/)
-- **José Balcazar, candidato para reemplazar a José Jerí, y la vez que defendió el matrimonio infantil desde los 14 años**: [Link](https://www.infobae.com/peru/2026/02/18/jose-balcazar-posible-reemplazo-de-jose-jeri-y-la-vez-que-defendio-el-matrimonio-infantil-desde-los-14-anos/)
-- **Waldemar Cerrón defiende candidatura de José María Balcázar: Hemos considerado el más idóneo**: [Link](https://canaln.pe/actualidad/waldemar-cerron-sobre-jose-maria-balcazar-hemos-considerado-mas-idoneo-n490405)
-
-
-### junior - américa (N/A, 18/02/2026 21:41 Lima)
-
-- **Cristian Barrios y su noche más especial: el hincha de Junior que ahora enfrenta a su exclub América**: [Link](https://www.espn.com.pe/futbol/colombia/nota/_/id/16327917/cristian-barrios-noche-especial-hincha-junior-enfrenta-exclub-america)
-- **"Felices de pagarle a él": Hoeneß reveló cómo fue negociación de Bayern con Luis Díaz**: [Link](https://www.espn.com.pe/futbol/alemania/nota/_/id/16322880/uli-hoeneB-felices-pagarle-a-el-revelo-negociacion-bayern-munich-luis-diaz)
-- **Luis Díaz enalteció a Bayern Múnich y le dio donde más duele al Liverpool: “Ser feliz es lo más importante ...**: [Link](https://bolavip.com/pe/futbol-europeo/luis-diaz-enaltecio-a-bayern-munich-y-le-dio-donde-mas-duele-al-liverpool-ser-feliz-es-lo-mas-importante-para-un-jugador)
-
-
-### serie a (N/A, 18/02/2026 15:48 Lima)
-
-- **Maignan la passa a Nico Paz e subisce gol! L'incredibile errore in Milan-Como**: [Link](https://www.corrieredellosport.it/foto/calcio/serie-a/milan/2026/02/18-146702070/maignan_la_passa_a_nico_paz_e_subisce_gol_l_incredibile_errore_in_milan-como)
-- **L'interista Biasin mette pressione: "Le ambizioni scudetto del Milan passano dalla partita col Como"**: [Link](https://tribuna.com/it/news/2026-02-18-linterista-biasin-mette-pressione-le-ambizioni-scudetto-del-milan-passano-dalla-partita-c/)
-- **Tare: “Leao? Il problema fisico esiste ma sta molto meglio. Su Bastoni-Kalulu dico…”**: [Link](https://www.sosfanta.com/news/tare-leao-il-problema-fisico-esiste-ma-sta-molto-meglio-su-bastoni-kalulu-dico/)
-
-
-### wigan - luton (N/A, 18/02/2026 15:48 Lima)
-
-- **Luton Town – A Chance For Partial Redemption**: [Link](https://vitalfootball.co.uk/luton-town-a-chance-for-redemption/)
-- **Hatters Hope for Change as They Face Wigan Despite Tough Away Run**: [Link](https://news.ssbcrack.com/hatters-hope-for-change-as-they-face-wigan-despite-tough-away-run/)
-- **Live EFL on Sky Sports + HD: full details and when it's on**: [Link](https://www.tvguide.co.uk/schedule/b02156b2-be59-5d49-a8ea-31627bb80572/live-efl)
-
-
-### leverkusen (N/A, 18/02/2026 15:48 Lima)
-
-- **Leverkusen zurück im Hexenkessel: "Es kann nur ein Vorteil sein"**: [Link](https://www.kicker.de/leverkusen-zurueck-im-hexenkessel-es-kann-nur-ein-vorteil-sein-1194533/artikel)
-- **Rapport und Rekordprämie: Wie Marinakis Bayer-Gegner Piräus motiviert**: [Link](https://www.kicker.ch/rapport-und-rekordpraemie-wie-marinakis-bayer-gegner-piraeus-motiviert-1194361/artikel)
-- **Hjulmand: "Bereit für ein Top-Spiel"**: [Link](https://www.bundesliga.com/de/bundesliga/videos/watch/hjulmand-bereit-fur-ein-top-spiel-GLxrZOqh)
-
-
-### leverkusen vs (N/A, 18/02/2026 15:48 Lima)
-
-- **Leverkusen zurück im Hexenkessel: "Es kann nur ein Vorteil sein"**: [Link](https://www.kicker.de/leverkusen-zurueck-im-hexenkessel-es-kann-nur-ein-vorteil-sein-1194533/artikel)
-- **Rapport und Rekordprämie: Wie Marinakis Bayer-Gegner Piräus motiviert**: [Link](https://www.kicker.ch/rapport-und-rekordpraemie-wie-marinakis-bayer-gegner-piraeus-motiviert-1194361/artikel)
-- **Hjulmand: "Bereit für ein Top-Spiel"**: [Link](https://www.bundesliga.com/de/bundesliga/videos/watch/hjulmand-bereit-fur-ein-top-spiel-GLxrZOqh)
-
-
-### inter de milan (N/A, 18/02/2026 15:48 Lima)
-
-- **¡EN VIVO! Inter tiene un duro desafío en Noruega ante Bodo/Glimt por playoffs de la Champions League**: [Link](https://www.espn.com.pe/futbol/champions-league/nota/_/id/16310873/bodo-glimt-vs-inter-ida-playoffs-champions-equipo-fecha-hora-y-tv-en-vivo)
-- **Champions League: Inter visita a FK Bodo/Glimt por la llave 7**: [Link](https://rpp.pe/futbol/ligas-internacionales/champions-league-inter-visita-a-fk-bodo-glimt-por-la-llave-7-noticia-1676222)
-- **Pronóstico Bodo/Glimt vs. Inter - Un claro favorito en esta llave de Champions**: [Link](https://gainblers.com/pe/pronosticos/futbol/europa/champions-league/pronostico-bodoglimt-inter-18-02-2026/)
-
-
-### villareal (N/A, 18/02/2026 15:48 Lima)
-
-- **Esta es la historia patria entre el Levante y el Villareal**: [Link](https://www.hsbnoticias.com/esta-es-la-historia-patria-entre-el-levante-y-el-villareal/)
-- **¿Por dónde ver al Villarreal en el futbol español?**: [Link](https://www.hsbnoticias.com/por-donde-ver-al-villarreal-en-el-futbol-espanol/)
-- **Levante - Villarreal, última hora en directo: LaLiga EA Sports hoy, en vivo**: [Link](https://as.com/futbol/primera/levante-villarreal-ultima-hora-en-directo-laliga-ea-sports-hoy-en-vivo-f202602-d/)
-
-
-### milan vs (N/A, 18/02/2026 15:48 Lima)
-
-- **Sky: Loftus-Cheek to miss Como game with physical problem – who will replace him**: [Link](https://sempremilan.com/loftus-cheek-miss-como-who-replace)
-- **Allegri weighs in on diving debate and asks for offside rule change**: [Link](https://football-italia.net/allegri-weighs-in-on-diving-debate/)
-- **Why isn’t Christian Pulisic playing for Milan in the crucial Serie A rescheduled match against Como?**: [Link](https://worldsoccertalk.com/news/why-isnt-christian-pulisic-playing-for-milan-in-the-crucial-serie-a-rescheduled-match-against-como/)
 
 
