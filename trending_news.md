@@ -1,3 +1,17 @@
+### terremoto sismo temblor hoy epicentro (N/A, 22/02/2026 03:39 Lima)
+
+- **Temblor en México EN VIVO hoy, 22 de febrero 2026: hora exacta, magnitud y dónde fue el epicentro del último sismo**: [Link](https://gestion.pe/mix/respuestas/temblor-en-mexico-en-vivo-hoy-22-y-23-de-febrero-2026-hora-exacta-magnitud-y-donde-fue-el-epicentro-del-ultimo-sismo-servicio-sismologico-nacional-nnda-nnrt-noticia/)
+- **Sismo 4.0 en Sayula de Alemán hoy 21 de febrero del 2026**: [Link](https://www.aztecachiapas.com/sismo-4-0-en-sayula-aleman-hoy-21-febrero-del-2026/)
+- **Reportan sismos en México: Oaxaca, Sinaloa y Veracruz**: [Link](https://www.elmanana.com/noticias/nacional/sismo-en-mexico-detalles-sobre-temblores-en-sinaloa/6097207)
+
+
+### tijuana - mazatlán (N/A, 22/02/2026 03:39 Lima)
+
+- **Liga MX: Por la fecha 7 se enfrentarán Tijuana y Mazatlán**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-por-la-fecha-7-se-enfrentaran-tijuana-y-mazatlan-noticia-1676842)
+- **Qué canal pasa Xolos vs Mazatlán hoy: dónde ver GRATIS y EN VIVO el partido de la Liga MX**: [Link](https://www.365scores.com/es/news/xolos-vs-mazatlan-donde-ver-gratis-vivo/)
+- **⚽ ¡No va gratis! Checa a qué HORA y por DÓNDE VER el Tijuana vs Mazatlán de la Liga MX 🐶🆚⚓**: [Link](https://www.facebook.com/MilenioDiario/posts/-no-va-gratis-checa-a-qu%C3%A9-hora-y-por-d%C3%B3nde-ver-el-tijuana-vs-mazatl%C3%A1n-de-la-liga/1394685462688921/)
+
+
 ### sean strickland (N/A, 22/02/2026 00:17 Lima)
 
 - **UFC Houston ‘Strickland vs. Hernandez’ Play-by-Play, Results & Round Scoring**: [Link](https://www.sherdog.com/news/news/UFC-Houston-Strickland-vs-Hernandez-PlaybyPlay-Results-Round-Scoring-200193)
@@ -1015,19 +1029,5 @@ Sin noticias relacionadas disponibles.
 - **CCL pide al nuevo presidente garantizar la continuidad de las líneas económicas estratégicas**: [Link](https://gestion.pe/peru/politica/ccl-pide-al-nuevo-presidente-de-la-republica-garantizar-la-continuidad-de-las-lineas-economicas-estrategicas-noticia/)
 - **CCL advierte que crisis política afecta crecimiento, inversión y MYPE**: [Link](https://canaln.pe/actualidad/ccl-inestabilidad-politica-afecta-crecimiento-economico-n490404)
 - **CCL insta a garantizar continuidad económica en 2026**: [Link](https://elcomercio.pe/economia/ccl-pide-reducir-la-incertidumbre-politica-y-garantizar-continuidad-economica-ante-elecciones-2026-ultimas-noticia/)
-
-
-### edgar reymundo (N/A, 18/02/2026 21:41 Lima)
-
-- **Edgar Reymundo: Mientras fue jefe de Migraciones se comunicaba con exoperador de Montesinos**: [Link](https://peru21.pe/investigacion/edgar-reymundo-se-comunicaba-con-exasesor-de-vladimiro-montesinos/)
-- **Anuncian postulación de congresista Edgard Reymundo para que asuma la presidencia de la República transitoriamente**: [Link](https://lpderecho.pe/bloque-democratico-popular-anuncia-postulacion-congresista-edgard-reymundo-presidenciabloque-democratico-popular-anuncia-postulacion-congresista-edgard-reymundo-presidencia/)
-- **Reymundo Mercado postula a la Presidencia del Congreso**: [Link](https://caretas.pe/politica/reymundo-mercado-postula-a-la-presidencia-del-congreso/)
-
-
-### maria del carmen alva prieto (N/A, 18/02/2026 21:41 Lima)
-
-- **Alva es la mejorcita por Aldo Mariátegui**: [Link](https://peru21.pe/opinion/alva-es-la-mejorcita-por-aldo-mariategui/)
-- **Jaloneos, empujones e insultos: las polémicas de María del Carmen Alva en el Congreso de la República**: [Link](https://www.infobae.com/peru/2026/02/18/jaloneos-empujones-e-insultos-las-polemicas-de-maria-del-carmen-alva-en-el-congreso-de-la-republica/)
-- **Fuerza Popular anunció que respaldará candidatura de María del Carmen Alva a la presidencia de la Mesa Directiva**: [Link](https://rpp.pe/politica/actualidad/fuerza-popular-anuncio-que-respaldara-candidatura-de-maria-del-carmen-alva-a-la-presidencia-de-la-mesa-directiva-noticia-1676477)
 
 
