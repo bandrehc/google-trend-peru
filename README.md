@@ -1,3 +1,73 @@
+### alaves vs girona (N/A, 23/02/2026 15:51 Lima)
+
+- **Míchel demands consistency from the team before visiting Vitoria**: [Link](https://sports.yahoo.com/articles/m-chel-demands-consistency-team-121000133.html)
+- **Alaves vs. Girona: La Liga betting odds, prediction, pick**: [Link](https://www.usatoday.com/story/sports/soccer/2026/02/23/alaves-vs-girona-la-liga-betting-odds-prediction-pick/88818715007/)
+- **Alavés - Girona live**: [Link](https://www.marca.com/en/soccer/laliga-ea-sports/alaves-girona/2026/02/23/01_0101_20260223_173_2893-live.html)
+
+
+### bolonia vs (N/A, 23/02/2026 15:51 Lima)
+
+- **Everton vs. Man Utd (23 de Feb., 2026) Resultados en Vivo**: [Link](https://www.espn.com.pe/futbol/partido/_/juegoId/740856)
+- **Betis 1-1 Rayo (21 de Feb., 2026) Resultado Final**: [Link](https://www.espn.com.pe/futbol/partido/_/juegoId/748386)
+- **Serie A: Se enfrentan Bologna y Udinese por la fecha 26**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-se-enfrentan-bologna-y-udinese-por-la-fecha-26-noticia-1677002)
+
+
+### bologna vs (N/A, 23/02/2026 15:51 Lima)
+
+- **Preview: Bologna vs Udinese - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/bologna/preview/bologna-vs-udinese-prediction-team-news-lineups_592456.html)
+- **Bologna v Udinese preview**: [Link](https://www.udinese.it/Apps/WebObjects/Udinese.woa/wa/viewSection?id=88760&lang=eng)
+- **✅ Bologna-Udinese line-ups: Orsolini starts, Heggem out ❌**: [Link](https://onefootball.com/en/news/bologna-udinese-line-ups-orsolini-starts-heggem-out-42456704)
+
+
+### bologna (N/A, 23/02/2026 15:51 Lima)
+
+- **🔴 Solet si ferma a Bologna: tegola Udinese, STOP muscolare e cambio 🚑**: [Link](https://onefootball.com/fr/news/solet-si-ferma-a-bologna-tegola-udinese-stop-muscolare-e-cambio-42457082)
+- **Cor Bo – Esame di maturità: cancellare la crisi partita dopo il Friuli**: [Link](https://www.tuttobolognaweb.it/news/cor-bo-esame-di-maturita-cancellare-la-crisi-partita-dopo-il-friuli/)
+- **Udinese, Inler: "Cerchiamo continuità. Buksa? Grandi aspettative, gioca perché lo merita"**: [Link](https://www.tuttomercatoweb.com/serie-a/udinese-inler-cerchiamo-continuita-buksa-grandi-aspettative-gioca-perche-lo-merita-2206065)
+
+
+### ppk (N/A, 23/02/2026 15:51 Lima)
+
+- **Oto ile pracujący w Polsce odłożyli w PPK. W ciągu miesiąca wzrost o ponad 2 mld zł**: [Link](https://www.money.pl/gospodarka/oto-ile-pracujacy-w-polsce-odlozyli-w-ppk-w-ciagu-miesiaca-wzrost-o-ponad-2-mld-zl-7255744902998464a.html)
+- **Ile tak naprawdę zarabiasz na PPK? Darmowa aplikacja pozwala to sprawdzić**: [Link](https://www.instalki.pl/news/fintech/ile-tak-naprawde-zarabiasz-na-ppk-darmowa-aplikacja-pozwala-to-sprawdzic/)
+- **Wezwania do zawarcia umowy o zarządzanie PPK tylko elektroniczne**: [Link](https://www.gazetaprawna.pl/praca/artykuly/10644300,wezwania-do-zawarcia-umowy-o-zarzadzanie-ppk-tylko-elektroniczne.html)
+
+
+### al fateh (N/A, 23/02/2026 15:51 Lima)
+
+- **A Strong Moral Boost for Al-Fateh Before the Match Against Al-Okhdood**: [Link](https://www.ysscores.com/en/news/13916511/A-Strong-Moral-Boost-for-Al-Fateh-Before-the-Match-Against-Al-Okhdood)
+- **Gomez Explains Vargas’ Absence Against Al-Akhdoud**: [Link](https://koorabreak.com/en/260172/)
+- **Al Fateh - Damac FC ai prediction 26.02.2026 Saudi Pro League**: [Link](https://www.livetipsportal.com/en/sportsbetting-tips/al-fateh-vs-damac-fc-saudi-pro-league-11536148/)
+
+
+### cd moquegua - deportivo garcilaso (N/A, 23/02/2026 15:51 Lima)
+
+- **CD Moquegua vs. Deportivo Garcilaso EN VIVO: dónde ver Liga 1 MAX vía Movistar TV y DIRECTV**: [Link](https://depor.com/futbol-peruano/descentralizado/cd-moquegua-vs-deportivo-garcilaso-en-vivo-gratis-hoy-donde-ver-liga-1-max-futbol-libre-tv-movistar-tv-directv-zapping-claro-tv-en-directo-por-internet-video-noticia/)
+- **Liga 1: Deportivo Moquegua y Deportivo Garcilaso se miden por la fecha 4**: [Link](https://rpp.pe/futbol/descentralizado/liga-1-deportivo-moquegua-y-deportivo-garcilaso-se-miden-por-la-fecha-4-noticia-1677008)
+- **Universidad Cesar Vallejo Moquegua vs Deportivo Garcilaso | Pronóstico y cuotas 23.02.2026**: [Link](https://www.transfermarkt.es/apuestas/pronosticos-deportivos/universidad-cesar-vallejo-moquegua-vs-deportivo-garcilaso-pronostico-apuestas-23-02-2026/)
+
+
+### al ahli (N/A, 23/02/2026 15:51 Lima)
+
+- **Discover the Factors Leading Al-Ahli to Victory Platforms This Season**: [Link](https://www.ysscores.com/en/news/13916431/Discover-the-Factors-Leading-Al-Ahli-to-Victory-Platforms-This-Season)
+- **Preview: Damac vs Al Shabab Prediction, lineups, betting tips & odds | Saudi Pro League 2025-26**: [Link](https://khelnow.com/football/world-football-damac-vs-al-shabab-preview-202602)
+- **Jaissle Boosted by French Star’s Return Ahead of Damac Clash**: [Link](https://koorabreak.com/en/260122/)
+
+
+### bolonia - udinese (N/A, 23/02/2026 15:51 Lima)
+
+- **Serie A: Se enfrentan Bologna y Udinese por la fecha 26**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-se-enfrentan-bologna-y-udinese-por-la-fecha-26-noticia-1677002)
+- **Bologna vs Udinese Pronóstico: Análisis y Previa del Partido | Serie A 23-02-2026**: [Link](https://betmines.com/es/analisis-partido/bologna-vs-udinese-pronostico-analisis-previa-serie-a-23-02-2026)
+- **Bologna vs Udinese pronostico y comparación de cuotas 23.02.2026**: [Link](https://www.livetipsportal.com/es/pronosticos-apuestas-deportivas/bologna-vs-udinese-serie-a-11129358/)
+
+
+### everton - manchester united (N/A, 23/02/2026 15:51 Lima)
+
+- **Team news for Everton trip**: [Link](https://www.manutd.com/en/news/detail/team-news-for-everton-v-man-utd-on-23-february-2026)
+- **'Great experiences': Michael Carrick explains 'different reasons' why Man Utd must be in Champions League next season**: [Link](https://www.unitedinfocus.com/news/great-experiences-michael-carrick-explains-different-reasons-why-man-utd-must-be-in-champions-league-next-season/)
+- **bet365 bonus code SUN365: £30 bonus for Everton vs Man Utd**: [Link](https://www.thesun.co.uk/betting/38307242/bet365-bonus-code-everton-vs-man-utd-sun365/)
+
+
 ### fiorentina - pisa (N/A, 23/02/2026 12:05 Lima)
 
 - **✅UFFICIALI di Fiorentina-Pisa: scelta su De Gea, Gud, Scuffet e Cuadrado 👀**: [Link](https://onefootball.com/it/notizie/ufficiali-di-fiorentina-pisa-scelta-su-de-gea-gud-scuffet-e-cuadrado-42456081)
@@ -961,75 +1031,5 @@ Sin noticias relacionadas disponibles.
 - **Google’s Pixel 10a Looks Pretty Familiar**: [Link](https://www.wired.com/story/google-pixel-10a/)
 - **Get your first look at the new Pixel 10a.**: [Link](https://blog.google/products-and-platforms/devices/pixel/google-pixel-10a-first-look-video/)
 - **Google Debuts $499 Pixel 10a Just Ahead of the iPhone 17e Reveal**: [Link](https://www.bloomberg.com/news/articles/2026-02-18/google-announces-499-pixel-10a-just-before-expected-iphone-17e-reveal)
-
-
-### gonzalo bueno (N/A, 20/02/2026 11:49 Lima)
-
-- **Gonzalo Bueno clasificó a cuartos en el Challenger 50 de Tigre**: [Link](https://ovacion.pe/noticias/tenis/gonzalo-bueno-clasifico-cuartos-challenger-50-tigre)
-- **Se acabó el sueño: Juan Pablo Varillas cayó 2-1 ante Álvaro Guillén por la primera ronda del Challenger de Tigre**: [Link](https://rpp.pe/tenis/mas-tenis/juan-pablo-varillas-vs-alvaro-guillen-en-vivo-a-que-hora-juegan-y-donde-ver-primera-ronda-challenger-de-tigre-2026-via-atp-tour-link-gratis-partidos-de-hoy-noticia-1676114)
-- **Rivales definidos para Juan Pablo Varillas y Gonzalo Bueno en la primera ronda del Challenger de Tigre en Argentina**: [Link](https://www.infobae.com/peru/2026/02/15/rivales-definidos-para-juan-pablo-varillas-y-gonzalo-bueno-en-la-primera-ronda-del-challenger-de-tigre-en-argentina/)
-
-
-### teleticket paulo londra (N/A, 20/02/2026 11:49 Lima)
-
-- **Paulo Londra anuncia su primer concierto en el Estadio Nacional**: [Link](https://peru21.pe/espectaculos/paulo-londra-anuncia-su-primer-concierto-en-el-estadio-nacional/)
-- **Paulo Londra en Lima 2026: Fecha, lugar, entradas y todo sobre su concierto en el Perú**: [Link](https://trome.com/espectaculos/musica/paulo-londra-en-lima-2026-concierto-en-el-estadio-nacional-fecha-y-entradas-conciertos-en-lima-noticia/)
-- **Paulo Londra vuelve al Perú por primera vez en el Estadio Nacional: fecha, precio de entradas y todo sobre el show**: [Link](https://www.infobae.com/peru/2026/02/17/paulo-londra-vuelve-al-peru-por-primera-vez-en-el-estadio-nacional-fecha-entradas-y-todo-sobre-el-show/)
-
-
-### sutran (N/A, 20/02/2026 11:49 Lima)
-
-- **Huaico destruye única vía y deja aislado a Yauca del Rosario en Ica**: [Link](https://canaln.pe/actualidad/ica-huaico-destruye-via-y-aisla-yauca-rosario-n490469)
-- **Lluvias intensas y huaicos bloquean carreteras y dejan varados a viajeros en Arequipa, Ica y Amazonas**: [Link](https://www.infobae.com/peru/2026/02/19/intensas-lluvias-paralizan-carreteras-clave-en-peru-y-ponen-a-prueba-capacidad-de-respuesta-ante-huaicos-e-inundaciones/)
-- **Mincetur coordinó atención a turistas suizos ante huaico que bloqueó Panamericana Sur**: [Link](https://andina.pe/agencia/noticia-mincetur-coordino-atencion-a-turistas-suizos-ante-huaico-bloqueo-panamericana-sur-1063779.aspx)
-
-
-### dólar hoy perú (N/A, 20/02/2026 11:49 Lima)
-
-- **El sol se aprecia 9.02% frente al dólar en un año**: [Link](https://elperuano.pe/noticia/289590-el-sol-se-aprecia-902-frente-al-dolar-en-un-ano)
-- **Designación de José María Balcázar como presidente empuja el precio del dólar al alza**: [Link](https://www.infobae.com/peru/2026/02/19/dolar-sube-en-peru-luego-de-la-designacion-de-jose-maria-balcazar-como-presidente/)
-- **¿Cuál es la cotización del dólar hoy viernes 20 de febrero del 2026?**: [Link](https://andina.pe/agencia/noticia-cual-es-cotizacion-del-dolar-hoy-viernes-20-febrero-del-2026-1063825.aspx)
-
-
-### eileen gu (N/A, 20/02/2026 11:49 Lima)
-
-- **Eileen Gu, amid Olympic cameras and controversy, is living in a unique reality - The Athletic**: [Link](https://www.nytimes.com/athletic/7049798/2026/02/17/eileen-gu-winter-olympics-freestyle-skiing-china-controversy/)
-- **The Hidden Government Funding of China’s American-Born Olympic Star**: [Link](https://www.wsj.com/sports/olympics/eileen-gu-china-usa-freestyle-skier-7cd0cfcc)
-- **Winter Olympics 2026: How Eileen Gu divides opinion**: [Link](https://www.bbc.com/sport/articles/cvg3p0lzx56o)
-
-
-### weather (N/A, 20/02/2026 08:11 Lima)
-
-- **Canton weather forecast calls for snow showers this weekend**: [Link](https://www.cantonrep.com/story/news/local/2026/02/20/canton-weather-forecast-for-friday-feb-20-windy/88773993007/)
-- **Akron area forecast Wednesday calls for rain and a thunderstorm**: [Link](https://www.beaconjournal.com/story/news/local/2026/02/18/summit-county-weather-forecast-wednesday-feb-18-rain-thunderstorms/88735072007/)
-- **Stark County weather forecast today calls for rain and a thunderstorm**: [Link](https://www.yahoo.com/news/articles/stark-county-weather-forecast-today-122620149.html)
-
-
-### clippers - nuggets (N/A, 20/02/2026 08:11 Lima)
-
-- **Bennedict Mathurin vs the Nuggets: 38 points (matched …**: [Link](https://www.hoopshype.com/story/sports/nba/rumors/2026/02/20/bennedict-mathurin-vs-the-nuggets-38-points-matched/88773329007/)
-- **Jamal Murray missed the game-tying free throw with …**: [Link](https://sports.yahoo.com/articles/jamal-murray-missed-game-tying-072052920.html)
-- **NBA World Reacts to Jamal Murray's Late-Game 'Choke' vs. Clippers: 'Mathurin Got in His Head'**: [Link](https://www.profootballnetwork.com/nba/jamal-murray-missed-free-throw-intuit-dome-wall/)
-
-
-### alianza lima sudamericano de voley (N/A, 20/02/2026 08:11 Lima)
-
-- **Alianza Lima vs San Martín 3-1: resumen del triunfo y clasificación ‘blanquiazul’ a semifinales del Sudamericano de Clubes de Vóley 2026**: [Link](https://www.infobae.com/peru/deportes/2026/02/19/alianza-lima-vs-san-martin-en-vivo-hoy-partido-fecha-2-grupo-a-sudamericano-clubes-de-voley-2026-resumen-resultado/)
-- **Tabla de posiciones del Sudamericano de Clubes de Vóley EN VIVO: así van los equipos en la fase de grupos del torneo**: [Link](https://rpp.pe/voley/mas-voley/tabla-sudamericano-de-clubes-de-voley-2026-en-vivo-resultados-en-directo-y-posiciones-hoy-del-torneo-alianza-lima-regatas-lima-san-martin-noticia-1676454)
-- **Alianza Lima vs. San Martín: Sepa dónde ver hoy el crucial partido de voleibol**: [Link](https://andina.pe/agencia/noticia-alianza-lima-vs-san-martin-sepa-donde-ver-hoy-crucial-partido-voleibol-1063674.aspx)
-
-
-### nuevo presidente peru (N/A, 20/02/2026 03:50 Lima)
-
-- **Ni derecha ni izquierda: el cálculo político detrás de la elección de José María Balcázar como presidente de Perú**: [Link](https://elpais.com/america/2026-02-20/ni-derecha-ni-izquierda-el-calculo-politico-detras-de-la-eleccion-de-jose-maria-balcazar-como-presidente-de-peru.html)
-- **Izquierdista Balcázar elegido presidente interino de Perú**: [Link](https://www.dw.com/es/izquierdista-balc%C3%A1zar-elegido-presidente-interino-de-per%C3%BA/a-76029139)
-- **José María Balcázar se compromete a garantizar transparencia de elecciones, luchar contra la inseguridad y mantener lineamientos económicos**: [Link](https://comunicaciones.congreso.gob.pe/noticias/jose-maria-balcazar-se-compromete-a-garantizar-transparencia-de-elecciones-luchar-contra-la-inseguridad-y-mantener-lineamientos-economicos/)
-
-
-### paulo londra peru (N/A, 20/02/2026 03:50 Lima)
-
-- **Paulo Londra anuncia su primer concierto en el Estadio Nacional**: [Link](https://peru21.pe/espectaculos/paulo-londra-anuncia-su-primer-concierto-en-el-estadio-nacional/)
-- **Paulo Londra en Lima 2026: Fecha, lugar, entradas y todo sobre su concierto en el Perú**: [Link](https://trome.com/espectaculos/musica/paulo-londra-en-lima-2026-concierto-en-el-estadio-nacional-fecha-y-entradas-conciertos-en-lima-noticia/)
-- **Paulo Londra vuelve al Perú por primera vez en el Estadio Nacional: fecha, precio de entradas y todo sobre el show**: [Link](https://www.infobae.com/peru/2026/02/17/paulo-londra-vuelve-al-peru-por-primera-vez-en-el-estadio-nacional-fecha-entradas-y-todo-sobre-el-show/)
 
 
