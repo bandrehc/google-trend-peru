@@ -1,3 +1,58 @@
+### seattle sounders (N/A, 23/02/2026 00:37 Lima)
+
+- **SEAvCOL Starting XI: Cristian Roldan wears the captain's armband, Osaze De Rosario lines up as the No. 9**: [Link](https://www.soundersfc.com/news/seavcol-starting-xi-cristian-roldan-wears-the-captain-s-armband-osaze-de-rosario-lines-up-as-the-no-9)
+- **How to watch today's Seattle Sounders FC vs Colorado Rapids Major League Soccer game: Live stream, TV channel, and start time**: [Link](https://www.goal.com/en-sa/news/how-to-watch-seattle-sounders-fc-v-colorado-rapids-02232026/bltda51590c376c4bf0)
+- **Jordan Morris injured, but Paul Rothrock enters and leads Sounders past Colorado**: [Link](https://www.spokesman.com/stories/2026/feb/22/jordan-morris-injured-but-paul-rothrock-enters-and/)
+
+
+### javier rabanal (N/A, 23/02/2026 00:37 Lima)
+
+- **¡Bronca en el Gallardo! Rabanal, Concha y Fara explotaron contra hinchas de Cristal tras empate**: [Link](https://depor.com/futbol-peruano/descentralizado/universitario-vs-sporting-cristal-javier-rabanal-cain-fara-y-jairo-concha-protagonizaron-una-pelea-con-los-hinchas-en-el-alberto-gallardo-liga-1-video-noticia/)
+- **Javier Rabanal se responsabilizó del empate de Universitario ante Sporting Cristal**: [Link](https://www.espn.com.ar/futbol/peru/nota/_/id/16342659/javier-rabanal-se-responsabilizo-del-empate-de-universitario-ante-sporting-cristal)
+- **Rabanal: "En qué momento nos metimos tan atrás"**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/rabanal-que-momento-se-decidio-que-nos-metieramos-tan-atras-n452794)
+
+
+### rafael lópez aliaga (N/A, 23/02/2026 00:37 Lima)
+
+- **Vladimiro Montesinos asesora la campaña de Keiko Fujimori, afirma Rafael López Aliaga: “A ella no le da tanto el cerebro”**: [Link](https://www.infobae.com/peru/2026/02/23/vladimiro-montesinos-asesora-la-campana-de-keiko-fujimori-afirma-rafael-lopez-aliaga-a-ella-no-le-da-tanto-el-cerebro/)
+- **López Aliaga afirma que Montesinos dirige estrategia política de Keiko Fujimori: “Está en campaña”**: [Link](https://diariocorreo.pe/politica/lopez-aliaga-afirma-que-montesinos-dirige-estrategia-politica-de-keiko-fujimori-esta-en-campana-noticia/)
+- **Rafael López Aliaga afirma que Vladimiro Montesinos asesora a Keiko fujimori**: [Link](https://peru21.pe/politica/rafael-lopez-aliaga-afirma-que-vladimiro-montesinos-asesora-keiko-fujimori/)
+
+
+### encuestas presidenciales 2026 (N/A, 23/02/2026 00:37 Lima)
+
+- **López Aliaga le ganaría a todos sus rivales en una eventual segunda vuelta**: [Link](https://www.ipsos.com/es-pe/lopez-aliaga-le-ganaria-todos-sus-rivales-en-una-eventual-segunda-vuelta)
+- **CPI: así va la intención de voto para las elecciones presidenciales a menos de dos meses de los comicios**: [Link](https://rpp.pe/politica/elecciones/intencion-de-voto-elecciones-presidenciales-peru-2026-encuesta-cpi-revela-liderazgo-de-rafael-lopez-aliaga-y-29-de-indecisos-noticia-1676700)
+- **Entre Cerrón y López Chau**: [Link](https://www.expreso.com.pe/opinion/entre-cerron-y-lopez-chau/)
+
+
+### binacional (N/A, 23/02/2026 00:37 Lima)
+
+- **¿Vuelve Binacional a la Liga 1? Lo que se sabe de este polémico caso a raíz de una publicación que fue desmentida**: [Link](https://www.infobae.com/peru/deportes/2026/02/23/vuelve-binacional-a-la-liga-1-tribunal-constitucional-ordena-a-la-fpf-la-reincorporacion-del-club-al-torneo/)
+- **Campeón nacional descendido administrativamente volverá a la Liga 1 tras dictamen legal**: [Link](https://bolavip.com/pe/liga-1/campeon-nacional-descendido-administrativamente-volvera-a-la-liga-1-tras-dictamen-legal)
+
+
+### gloria estefan (N/A, 23/02/2026 00:37 Lima)
+
+- **Gloria Estefan brilla en la apertura de Viña del Mar 2026 y se lleva gaviotas de plata y oro**: [Link](https://elcomercio.pe/luces/musica/gloria-estefan-brilla-en-la-apertura-de-vina-del-mar-2026-y-se-lleva-gaviotas-de-plata-y-oro-ultimas-noticia/)
+- **Quién es Emily Estefan, la hija de Gloria que está en su show en el Festival de Viña 2026**: [Link](https://www.latercera.com/culto/noticia/quien-es-emily-estefan-la-hija-de-gloria-que-esta-en-su-show-en-el-festival-de-vina-2026/)
+- **La opinión que se repitió por aparición de José Antonio Neme en show de Gloria Estefan en el Festival de Viña**: [Link](https://www.t13.cl/noticia/espectaculos/la-opinion-se-repitio-aparicion-jose-antonio-neme-show-gloria-estefan-festival-22-2-2026)
+
+
+### unión - aldosivi (N/A, 23/02/2026 00:37 Lima)
+
+- **Unión venció a Aldosivi 1 a 0 en el estadio de la Avenida**: [Link](https://www.directvsports.com/futbol/union-vencio-a-aldosivi-1-a-0-en-el-estadio-de-la-avenida-20260219-0021.html)
+- **Unión sufrió pero festejó: triunfo clave ante el Tiburón en el 15 de Abril**: [Link](https://onefootball.com/pt-br/noticias/union-sufrio-pero-festejo-triunfo-clave-ante-el-tiburon-en-el-15-de-abril-42453113)
+- **Galería BICA: Unión-Aldosivi**: [Link](https://www.ellitoral.com/actualidad-tatengue/banco-bica-union-aldosivi-torneo-apertura-fecha-6_5_VGRKKkjiyO.html)
+
+
+### alejandro sanz en lima (N/A, 23/02/2026 00:37 Lima)
+
+- **¡Alejandro Sanz ya está en Perú! Cantante español desata euforia en Lima previo a sus conciertos en el Estadio Nacional**: [Link](https://larepublica.pe/entretenimiento/2026/02/22/alejandro-sanz-ya-esta-en-peru-cantante-espanol-desata-euforia-en-lima-previo-a-sus-conciertos-en-el-estadio-nacional-2026-778052)
+- **Quedan entradas para Alejandro Sanz en Perú: Precios y cómo comprar**: [Link](https://www.sportingnews.com/us-es/tickets/news/quedan-entradas-alejandro-sanz-peru-2026-precios-como-comprar/7b1d2d0de565ec690c4a6746)
+- **Alejandro Sanz en Lima: ¡Consulta aquí el setlist de su gira ‘¿Y ahora qué?’!**: [Link](https://blog.joinnus.com/alejandro-sanz-en-lima-consulta-aqui-el-setlist-de-su-gira-y-ahora-que/)
+
+
 ### peñarol - deportivo maldonado (N/A, 22/02/2026 21:43 Lima)
 
 - **Matías Arezo: "Previo a los clásicos siempre es importante ganar"**: [Link](https://www.espn.com.ar/futbol/uruguay/nota/_/id/16347609/matias-arezo-declaraciones-tras-penarol-deportivo-maldonado-previa-clasico)
@@ -976,61 +1031,5 @@ Sin noticias relacionadas disponibles.
 - **Tolima vuelve a Libertadores con su fortaleza visitante como bandera ante Táchira**: [Link](https://www.espn.com.ar/futbol/copa-libertadores/nota/_/id/16331964/tachira-vs-tolima-vuelve-su-fortaleza-como-visitante)
 - **Video: El gol de Florez para abrir el marcador a favor de Tolima vs. Táchira**: [Link](https://espndeportes.espn.com/futbol/copa-libertadores/nota/_/id/16333956/video-el-gol-de-florez-para-abrir-el-marcador-a-favor-de-tolima-vs-tachira)
 - **Copa Libertadores: Se enfrentan Táchira y Tolima por la llave 2**: [Link](https://rpp.pe/futbol/ligas-internacionales/copa-libertadores-se-enfrentan-tachira-y-tolima-por-la-llave-2-noticia-1676447)
-
-
-### ignacio buse (N/A, 19/02/2026 21:36 Lima)
-
-- **Ignacio Buse y los Grand Slam en el horizonte: por qué destaca en la gira sudamericana y que debe pasar para estar en Roland Garros y Wimbledon**: [Link](https://elcomercio.pe/deporte-total/ignacio-buse-y-los-grand-slam-en-el-horizonte-por-que-destaca-en-la-gira-atp-sudamericana-y-que-debe-pasar-para-estar-en-roland-garros-y-wimbledon-tenis-noticia/)
-- **Ignacio Buse vs Joao Fonseca EN VIVO vía Disney+: se enfrentan por los octavos del Río Open 2026**: [Link](https://rpp.pe/tenis/mas-tenis/ignacio-buse-vs-joao-fonseca-en-vivo-a-que-hora-juegan-y-donde-ver-octavos-de-final-rio-open-via-atp-tv-link-gratis-noticia-1676504)
-- **¡Orgullo nacional! Ignacio Buse rompe su récord personal y ya es el número 91 del mundo**: [Link](https://peru21.pe/deportes/ignacio-buse-alcanza-puesto-91-atp-debut-hoy-en-el-atp-500-de-rio-de-janeiro/)
-
-
-### alianza vs boys (N/A, 19/02/2026 21:36 Lima)
-
-- **Gustavo Dulanto en la previa del Alianza Lima vs. Sport Boys: “Siempre que fui a Matute no me recibieron bien”**: [Link](https://depor.com/futbol-peruano/descentralizado/gustavo-dulanto-en-la-previa-del-alianza-lima-vs-sport-boys-siempre-que-fui-a-matute-no-me-recibieron-bien-noticia/)
-- **Pablo Guede hace cambios: retornos en el once de Alianza Lima para enfrentar a Sport Boys**: [Link](https://rpp.pe/futbol/descentralizado/alianza-lima-vs-sport-boys-el-once-probable-de-pablo-guede-en-duelo-clave-torneo-apertura-2026-noticia-1676601)
-- **¿A qué hora juega Alianza Lima vs Sport Boys y dónde ver partido de Liga 1 2026?**: [Link](https://libero.pe/futbol-peruano/liga-1/2026/02/18/hora-juega-alianza-lima-vs-sport-boys-canal-de-transmision-en-vivo-donde-ver-partido-de-liga-1-peru-apertura-887130)
-
-
-### botafogo vs. flamengo (N/A, 19/02/2026 21:36 Lima)
-
-- **Veja o que mudou no Fluminense desde a eliminação na Copa do Brasil para o Vasco**: [Link](https://ge.globo.com/futebol/times/fluminense/noticia/2026/02/19/veja-o-que-mudou-no-fluminense-desde-a-eliminacao-na-copa-do-brasil-para-o-vasco.ghtml)
-- **Bastidores de Fluminense 3 x 1 Bangu está no ar; Assista**: [Link](https://www.netflu.com.br/bastidores-de-fluminense-3-x-1-bangu-esta-no-ar-assista/)
-- **Fluminense segue preparação para enfrentar o Vasco na semifinal do Carioca**: [Link](https://www.gazetaesportiva.com/times/fluminense/fluminense-segue-preparacao-para-enfrentar-o-vasco-na-semifinal-do-carioca/)
-
-
-### lanús - flamengo (N/A, 19/02/2026 21:36 Lima)
-
-- **Lanús x Flamengo AO VIVO: link para assistir online (19/02)**: [Link](https://www.sportingnews.com/br/futebol/noticias/lanus-flamengo-ao-vivo-link-assistir-online-19-02/86fb00201c155a8ffc33f11b)
-- **Quanto ganha o campeão da Recopa Sul-Americana em 2026?**: [Link](https://www.goal.com/br/listas/quanto-ganha-campeao-recopa-sul-americana-2026/bltbc139fc2ff32d719)
-- **Greve geral na Argentina adia partidas de futebol no país; confira**: [Link](https://www.metropoles.com/esportes/greve-geral-na-argentina-adia-partidas-de-futebol-no-pais-confira)
-
-
-### lanus vs (N/A, 19/02/2026 21:36 Lima)
-
-- **Lanús derrotó a Flamengo y acaricia el título de la Recopa Sudamericana 2026**: [Link](https://libero.pe/futbol-internacional/2026/02/18/flamengo-vs-lanus-en-vivo-online-recopa-sudamericana-via-espn-disney-plus-lbev-1792692)
-- **El gol de Rodrigo Castillo que hace soñar a todo Lanús**: [Link](https://www.espn.com.ar/futbol/nota/_/id/16333998/video-gol-rodrigo-castillo-lanus-vs-flamengo-final-recopa-2026)
-- **Lanús sueña en grande: la palabra de Mauricio Pellegrino antes de la Recopa ante Flamengo**: [Link](https://espndeportes.espn.com/futbol/nota/_/id/16324652/lanus-palabra-mauricio-pellegrino-conmebol-recopa-sudamericana-flamengo)
-
-
-### losc vs. estrella roja (N/A, 19/02/2026 15:39 Lima)
-
-- **Europa League: Por la llave 8 se enfrentarán Lille y Estrella Roja**: [Link](https://rpp.pe/futbol/ligas-internacionales/europa-league-por-la-llave-8-se-enfrentaran-lille-y-estrella-roja-noticia-1676390)
-- **Lille – Estrella Roja de Belgrado: horario y dónde ver hoy por TV el partido de fútbol de la Europa League**: [Link](https://www.lavanguardia.com/deportes/futbol/20260219/267578/horario-partido-ca-lille-estrella-roja-de-belgrado-ctx.html)
-- **Lille vs Est. Roja por la llave 8 de UEFA Europa League EN VIVO. Seguilo minuto a minuto por la web de TN.**: [Link](https://tn.com.ar/deportes/futbol/2026/02/19/lille-vs-est-roja-en-vivo-por-la-llave-8-de-la-uefa-europa-league-hora-donde-ver-y-formaciones/)
-
-
-### real madrid - unicaja (N/A, 19/02/2026 15:39 Lima)
-
-- **Dónde ver online y en televisión al Real Madrid de baloncesto hoy de Copa y a qué hora juega contra el Unic...**: [Link](https://www.abc.es/deportes/baloncesto/ver-online-television-real-madrid-hoy-copa-20260219153034-nt.html)
-- **Tyler Kalinoski: «Llegamos a la Copa sin presión y tenemos el nivel para ganar al Real Madrid»**: [Link](https://okdiario.com/diariomadridista/baloncesto/tyler-kalinoski-llegamos-copa-sin-presion-tenemos-nivel-ganar-real-madrid-607212)
-- **Primera oportunidad**: [Link](https://www.laopiniondemalaga.es/opinion/2026/02/19/primera-oportunidad-126999021.html)
-
-
-### man utd - atlético madrid (N/A, 19/02/2026 15:39 Lima)
-
-- **Team news: United Women v Atleti**: [Link](https://www.manutd.com/en/news/detail/team-news-for-man-utd-women-v-atletico-madrid-second-leg-19-feb-2026)
-- **🚨Confirmed XIs: Atlético out to turn it around in Manchester**: [Link](https://sports.yahoo.com/articles/confirmed-xis-atl-tico-turn-185600750.html)
-- **"We have to give absolutely everything" - Marc Skinner emphasises that the second leg fixture against Atlético Madrid is a must-win**: [Link](https://www.vavel.com/en/football/2026/02/18/womens-football/1251259-we-have-to-give-absolutely-everything-marc-skinner-emphasises-that-the-second-leg-fixture-against-atletico-madrid-is-a-must-win.html)
 
 
