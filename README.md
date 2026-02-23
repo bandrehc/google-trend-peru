@@ -1,3 +1,66 @@
+### fiorentina - pisa (N/A, 23/02/2026 12:05 Lima)
+
+- **✅UFFICIALI di Fiorentina-Pisa: scelta su De Gea, Gud, Scuffet e Cuadrado 👀**: [Link](https://onefootball.com/it/notizie/ufficiali-di-fiorentina-pisa-scelta-su-de-gea-gud-scuffet-e-cuadrado-42456081)
+- **Calcio in tv: le partite di stasera, lunedì 23 febbraio**: [Link](https://www.lastampa.it/sport/2026/02/23/news/calcio_in_tv_le_partite_di_stasera_lunedi_23_febbraio-15519947/)
+- **Il Giglio contro il Pisa vuole tornare a ballare il griddy**: [Link](https://www.violanews.com/esclusive/le-nostre-esclusive/il-giglio-vuole-tornare-a-ballare-il-griddy/)
+
+
+### fenerbahçe - kasımpaşa (N/A, 23/02/2026 12:05 Lima)
+
+- **Fenerbahçe'nin rakibi Kasımpaşa - Fenerbahçe - Spor Haberleri**: [Link](https://www.milliyet.com.tr/skorer/live-fenerbahcenin-rakibi-kasimpasa-7542875)
+- **Emre Belözoğlu'ndan Fenerbahçe maçı sözleri: Daha gergin geçecek**: [Link](https://www.turkiyegazetesi.com.tr/spor/emre-belozoglundan-fenerbahce-maci-sozleri-daha-gergin-gececek-1772881)
+- **Fenerbahçe Kritik 3 Puan İçin Sahaya Çıkıyor!**: [Link](https://www.sabah.com.tr/spor/futbol/2026/02/23/fenerbahce-kritik-3-puan-icin-sahaya-cikiyor)
+
+
+### onpe (N/A, 23/02/2026 12:05 Lima)
+
+- **ONPE verificó el estado de más de 10,000 locales de votación - Noticias - Oficina Nacional de Procesos Electorales**: [Link](https://www.gob.pe/institucion/onpe/noticias/1357282-onpe-verifico-el-estado-de-mas-de-10-000-locales-de-votacion)
+- **Consulta con DNI tu local de votación para las elecciones presidenciales 2026 en Perú, link**: [Link](https://elcomercio.pe/respuestas/tramites/consulta-con-tu-dni-donde-votar-en-las-proximas-elecciones-presidenciales-2026-en-el-peru-tdpe-noticia/)
+- **ODPE Piura realiza coordinaciones de seguridad con FF.AA para Piura y Veintiséis de Octubre**: [Link](https://diariocorreo.pe/edicion/piura/odpe-piura-realiza-coordinaciones-de-seguridad-con-ffaa-para-piura-y-veintiseis-de-octubre-noticia/)
+
+
+### robin williams (N/A, 23/02/2026 12:05 Lima)
+
+- **Robin Williams' Brother Only Appeared in One Movie, but It Was a '90s Classic**: [Link](https://collider.com/robin-williams-brother-mrs-doubtfire/)
+- **12 Years Later, This Robin Williams Comedy Hits Different**: [Link](https://screenrant.com/night-at-the-museum-3-robin-williams-hits-different/)
+- **‘He Had To Be Funny To Survive’: Stellan Skarsgård on Robin Williams**: [Link](https://www.yahoo.com/entertainment/movies/articles/had-funny-survive-stellan-skarsg-075945955.html)
+
+
+### ticketmaster peru (N/A, 23/02/2026 12:05 Lima)
+
+- **Robbie Williams en Lima: Fecha, lugar y venta de entradas**: [Link](https://www.americatv.com.pe/noticias/espectaculos/robbie-williams-llegara-primera-vez-lima-n516068)
+- **Robbie Williams llega por primera vez al Perú con su gira “BritPop” este 24 de setiembre| Galería Fotográfica**: [Link](https://andina.pe/agencia/galeria-robbie-williams-llega-primera-vez-al-peru-su-gira-britpop-este-24-setiembre-28753.aspx)
+- **Robbie Williams confirma su primer concierto en Perú: fecha de preventa de entradas, cuándo y dónde será**: [Link](https://rpp.pe/musica/conciertos/robbie-williams-en-lima-confirman-su-primer-concierto-en-peru-en-el-arena-1-park-cuando-sera-noticia-1677092)
+
+
+### robbie williams (N/A, 23/02/2026 12:05 Lima)
+
+- **Robbie Williams en Lima: Fecha, lugar y venta de entradas**: [Link](https://www.americatv.com.pe/noticias/espectaculos/robbie-williams-llegara-primera-vez-lima-n516068)
+- **Robbie Williams llega por primera vez al Perú con su gira “BritPop” este 24 de setiembre| Galería Fotográfica**: [Link](https://andina.pe/agencia/galeria-robbie-williams-llega-primera-vez-al-peru-su-gira-britpop-este-24-setiembre-28753.aspx)
+- **Robbie Williams confirma su primer concierto en Perú: fecha de preventa de entradas, cuándo y dónde será**: [Link](https://rpp.pe/musica/conciertos/robbie-williams-en-lima-confirman-su-primer-concierto-en-peru-en-el-arena-1-park-cuando-sera-noticia-1677092)
+
+
+### binacional liga 1 (N/A, 23/02/2026 12:05 Lima)
+
+- **¿Vuelve Binacional a la Liga 1? Lo que se sabe de este polémico caso a raíz de una publicación que fue desmentida**: [Link](https://www.infobae.com/peru/deportes/2026/02/23/vuelve-binacional-a-la-liga-1-tribunal-constitucional-ordena-a-la-fpf-la-reincorporacion-del-club-al-torneo/)
+- **Campeón nacional descendido administrativamente volverá a la Liga 1 tras dictamen legal**: [Link](https://bolavip.com/pe/liga-1/campeon-nacional-descendido-administrativamente-volvera-a-la-liga-1-tras-dictamen-legal)
+- **¿Deportivo Binacional vuelve a la Liga 1 a través del Tribunal Constitucional?**: [Link](https://www.futbolperuano.com/liga-1/noticias/deportivo-binacional-vuelve-a-la-liga-1-por-el-tribunal-constitucional-564982)
+
+
+### helicoptero fap (N/A, 23/02/2026 12:05 Lima)
+
+- **MURIERON TODOS LOS OCUPANTES del helicóptero de la FAP que perdió contacto cuando iba a Arequipa**: [Link](https://peru21.pe/peru/desaparece-helicoptero-mi-17-de-la-fap-durante-vuelo-entre-pisco-y-arequipa-con-13-ocupantes/)
+- **Aparece helicóptero de la FAP reportado como desaparecido y todos los ocupantes son hallados muertos**: [Link](https://www.atv.pe/noticia/aparece-helicoptero-de-la-fap-reportado-como-desaparecido-y-todos-los-ocupantes-son-hallados-muertos/)
+- **Buscan a helicóptero FAP perdido en Arequipa**: [Link](https://elperuano.pe/noticia/289751-buscan-a-helicoptero-fap-perdido-en-arequipa)
+
+
+### diario expreso (N/A, 23/02/2026 12:05 Lima)
+
+- **Partidos de hoy, domingo 22 de febrero de 2026: programación, canales TV y resultados en vivo**: [Link](https://www.infobae.com/peru/deportes/2026/02/22/partidos-de-hoy-domingo-22-de-febrero-de-2026-programacion-canales-tv-y-resultados-en-vivo/)
+- **Partidos de hoy, lunes 23 de febrero del 2026 EN VIVO: horarios y canales TV para ver Liga1 y Premier League**: [Link](https://rpp.pe/futbol/futbol-mundial/partidos-de-hoy-liga-1-y-laliga-lunes-23-de-febrero-del-2026-horarios-y-canales-tv-ver-futbol-en-vivo-noticia-1677064)
+- **Partidos de HOY, lunes 23 de febrero del 2026: horarios, canales TV y cómo ver fútbol EN VIVO**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/partidos-de-hoy-lunes-23-de-febrero-del-2026-resultados-programacion-horarios-canales-tv-y-donde-ver-futbol-en-vivo-noticia/)
+
+
 ### sportivo luqueño - guaraní (N/A, 23/02/2026 08:18 Lima)
 
 - **Sportivo Luqueño vs. Guaraní en vivo: seguí el partido minuto a minuto**: [Link](https://www.tycsports.com/paraguay/futbol-de-paraguay/paraguay-torneo-apertura-2026-sportivo-luqueno-vs-guarani-fecha-6-id714268.html)
@@ -968,68 +1031,5 @@ Sin noticias relacionadas disponibles.
 - **Paulo Londra anuncia su primer concierto en el Estadio Nacional**: [Link](https://peru21.pe/espectaculos/paulo-londra-anuncia-su-primer-concierto-en-el-estadio-nacional/)
 - **Paulo Londra en Lima 2026: Fecha, lugar, entradas y todo sobre su concierto en el Perú**: [Link](https://trome.com/espectaculos/musica/paulo-londra-en-lima-2026-concierto-en-el-estadio-nacional-fecha-y-entradas-conciertos-en-lima-noticia/)
 - **Paulo Londra vuelve al Perú por primera vez en el Estadio Nacional: fecha, precio de entradas y todo sobre el show**: [Link](https://www.infobae.com/peru/2026/02/17/paulo-londra-vuelve-al-peru-por-primera-vez-en-el-estadio-nacional-fecha-entradas-y-todo-sobre-el-show/)
-
-
-### berrettini (N/A, 20/02/2026 00:18 Lima)
-
-- **Comments Berrettini Lajovic - Rio de Janeiro 2026**: [Link](https://en.tennistemple.com/match/berrettini-lajovic-rio-de-janeiro-2026/9453890/comments)
-- **Berrettini enjoys Rio Carnival with his grandmother and Ancelotti**: [Link](https://tennistonic.com/tennis-news/962442/berrettini-enjoys-rio-carnival-with-his-grandmother-and-ancelotti/)
-- **Marcelo Tomas Barrios Vera vs. Matteo Berrettini prediction, odds, picks for ATP Rio Open 2026**: [Link](https://www.dimers.com/news/marcelo-barrios-vera-vs-matteo-berrettini-tennis-prediction-atp-rio-open-2026-ac)
-
-
-### liam gallagher (N/A, 20/02/2026 00:18 Lima)
-
-- **‘90s rock band working on first new music in 18 years (report)**: [Link](https://www.syracuse.com/entertainment/2026/02/90s-rock-band-working-on-first-new-music-in-18-years-report.html)
-- **Oasis Betting Odds: 4/6 to Play Etihad in 2027 as New Music Rumours Grow**: [Link](https://www.olbg.com/news/oasis-betting-odds-4-6-play-etihad-2027-new-music-rumours-grow)
-- **Noel Gallagher back in the recording studio after Oasis' plans for new music in 2027 are revealed**: [Link](https://www.thesun.co.uk/tvandshowbiz/38263885/noel-gallagher-recording-studio-oasis-new-music/)
-
-
-### jujutsu kaisen temporada 3 (N/A, 20/02/2026 00:18 Lima)
-
-- **Jujutsu Kaisen Temporada 3 Episodio 8: por qué ha sido retrasado hasta el 26 de febrero**: [Link](https://elcomercio.pe/mag/fama/que-ver/jujutsu-kaisen-temporada-3-episodio-8-por-que-ha-sido-retrasado-hasta-el-26-de-febrero-anime-de-crunchyroll-nnda-nnlt-noticia/)
-- **'Jujutsu Kaisen' temporada 3: fecha de estreno del capítulo 8 y a qué hora verlo en Crunchyroll**: [Link](https://rpp.pe/cultura/anime/jujutsu-kaisen-temporada-3-capitulo-especial-fecha-de-estreno-horario-y-cuando-sale-el-episodio-8-en-crunchyroll-noticia-1676606)
-- **Jujutsu Kaisen 3x08 se retrasa: cuándo y a qué hora llega a Crunchyroll**: [Link](https://geek.reporteindigo.com/noticia/jujutsu-kaisen-episodio-8-estreno-en-crunchyroll-20260218-0014.html)
-
-
-### vladimir cerrón (N/A, 20/02/2026 00:18 Lima)
-
-- **Vladimir Cerrón pide a José Balcázar dar de baja al comandante Óscar Arriola**: [Link](https://peru21.pe/politica/vladimir-cerron-pide-jose-balcazar-dar-de-baja-al-comandante-oscar-arriola/)
-- **El primer día de José María Balcázar en Palacio: la invitación a Vladimir Cerrón, las reuniones y los ministros que no continuarán**: [Link](https://elcomercio.pe/politica/el-primer-dia-de-jose-maria-balcazar-en-palacio-las-reuniones-la-invitacion-a-cerron-y-los-ministros-que-no-continuaran-tlc-nota-noticia/)
-- **General Víctor Revoredo: PNP responde a la Constitución y autoridades legalmente nombradas**: [Link](https://rpp.pe/politica/gobierno/general-victor-revoredo-pnp-responde-a-la-constitucion-y-autoridades-legalmente-nombradas-noticia-1676584)
-
-
-### celtics - warriors (N/A, 20/02/2026 00:18 Lima)
-
-- **Warriors vs. Celtics injury report: Steph Curry out, Kristaps Porziņģis questionable**: [Link](https://www.goldenstateofmind.com/warriors-injury-report/108588/warriors-celtics-injury-report-steph-curry-kristaps-porzingis)
-- **Caesars Sportsbook Promo Code 'COVERS250BM' Gives A $250 Bet Match For A First Bet On Celtics-Warriors**: [Link](https://www.covers.com/daily-promos/caesars-sportsbook-promo-code-nba-celtics-warriors-02-19-2026)
-- **How to watch Boston Celtics game today free**: [Link](https://www.masslive.com/tv/2026/02/how-to-watch-boston-celtics-game-today-free.html-4)
-
-
-### matteo berrettini (N/A, 20/02/2026 00:18 Lima)
-
-- **LIVE RANKINGS. Lajovic betters his rank ahead of facing Berrettini in Rio de Janeiro**: [Link](https://tennistonic.com/tennis-news/962863/live-rankings-lajovic-betters-his-rank-ahead-of-facing-berrettini-in-rio-de-janeiro/)
-- **Matteo Berrettini vs. Dusan Lajovic prediction, odds, picks for ATP Rio Open 2026**: [Link](https://www.dimers.com/news/matteo-berrettini-vs-dusan-lajovic-tennis-prediction-atp-rio-open-2026-ac)
-- **Rio Open 2026 Day 4: Men's singles predictions ft. Matteo Berrettini vs Dusan Lajovic, Tomas Martin Etcheverry vs Vilius Gaubas**: [Link](https://www.sportskeeda.com/tennis/rio-open-2026-day-4-men-s-singles-predictions-ft-matteo-berrettini-vs-dusan-lajovic-tomas-martin-etcheverry-vs-vilius-gaubas)
-
-
-### taylor fritz (N/A, 20/02/2026 00:18 Lima)
-
-- **Schedule and Where to Watch Rafa Jódar Today Live in 2nd Round at Delray Beach**: [Link](https://www.puntodebreak.com/en/2026/02/19/schedule-and-where-to-watch-rafa-jodar-today-live-in-2nd-round-at-delray-beach)
-- **Highlights: Fritz holds off #NextGenATP star Jodar in Delray Beach 2026**: [Link](https://www.atptour.com/en/video/highlights-fritz-holds-off-nextgenatp-star-jodar-in-delray-beach-2026)
-- **Best bets today for all sports: Wednesday's picks include Taylor Fritz vs. Rafael Jodar tennis play [2/18/2026]**: [Link](https://www.dimers.com/news/best-bets-wednesday-02-18-2026-ac)
-
-
-### esclerosis lateral amiotrófica (N/A, 20/02/2026 00:18 Lima)
-
-- **Eric Dane, actor de "Grey’s Anatomy" y "Euphoria", muere a los 53 años**: [Link](https://cnnespanol.cnn.com/2026/02/19/entretenimiento/eric-dane-actor-muere-trax)
-- **Muere el actor estadounidense Eric Dane a los 53 años**: [Link](https://www.dw.com/es/muere-el-actor-estadounidense-eric-dane-a-los-53-a%C3%B1os/a-76052157)
-- **Muere a los 53 años Eric Dane, querido actor de "Grey’s Anatomy" que padecía ELA**: [Link](https://www.biobiochile.cl/noticias/espectaculos-y-tv/celebridades/2026/02/19/muere-a-los-53-anos-eric-dane-querido-actor-de-greys-anatomy-que-padecia-ela.shtml)
-
-
-### los angeles galaxy (N/A, 20/02/2026 00:18 Lima)
-
-- **Joseph Paintsil faces Panama preview ahead of CONCACAF clash**: [Link](https://citisportsonline.com/2026/02/joseph-paintsil-faces-panama-preview-ahead-of-concacaf-clash/)
-- **How to watch Sporting San Miguelito vs LA Galaxy in the USA: Live Stream and TV for 2026 CONCACAF Champions...**: [Link](https://worldsoccertalk.com/watch-on-us-tv/how-to-watch-sporting-san-miguelito-vs-la-galaxy-in-the-usa-live-stream-and-tv-for-2026-concacaf-champions-cup/)
-- **Galaxy open another season without Riqui Puig, but with more depth**: [Link](https://www.latimes.com/sports/soccer/galaxy/story/2026-02-18/galaxy-open-another-season-without-riqui-puig-but-with-more-depth)
 
 
