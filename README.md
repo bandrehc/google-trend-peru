@@ -1,3 +1,73 @@
+### peñarol - deportivo maldonado (N/A, 22/02/2026 21:43 Lima)
+
+- **Matías Arezo: "Previo a los clásicos siempre es importante ganar"**: [Link](https://www.espn.com.ar/futbol/uruguay/nota/_/id/16347609/matias-arezo-declaraciones-tras-penarol-deportivo-maldonado-previa-clasico)
+- **Transmisión EN VIVO de Peñarol vs Deportivo Maldonado hoy: cómo mirar el partido por TV o streaming**: [Link](https://www.365scores.com/es/news/transmision-penarol-maldonado-auf-hoy/)
+- **VIDEO: ¡Lo empata Peñarol! Arezo marcó el primer gol ante Deportivo Maldonado**: [Link](https://www.directvsports.com/futbol/video-lo-empata-penarol-arezo-marco-el-primer-gol-ante-deportivo-maldonado-20260222-0037.html)
+
+
+### américa - jaguares (N/A, 22/02/2026 21:43 Lima)
+
+- **Cuándo juegan América vs Jaguares por Liga BetPlay: equipo, fecha, hora y TV en vivo**: [Link](https://www.espn.com.ar/futbol/colombia/nota/_/id/16344093/america-vs-jaguares-liga-betplay-equipo-fecha-hora-tv-en-vivo)
+- **América hizo impensado anuncio tras perder contra Junior**: [Link](https://www.deportesrcn.com/futbol/america-hizo-impensado-anuncio-tras-perder-contra-junior-146255)
+- **Van por su primer triunfo fuera de casa**: [Link](https://elmeridiano.co/sucre/deportes/van-por-su-primer-triunfo-fuera-de-casa-d1rd25)
+
+
+### viña del mar 2026 (N/A, 22/02/2026 21:43 Lima)
+
+- **Viña 2026: Juanes, Pet Shop Boys, Yandel, más artistas confirmados, horarios y todo sobre el festival**: [Link](https://rpp.pe/musica/internacional/vina-2026-en-vivo-programacion-por-dia-cartelera-de-artistas-humoristas-y-lo-que-se-sabe-del-festival-en-chile-noticia-1676843)
+- **“Si somos americanos”: El orgullo latino se tomó la obertura del Festival de Viña 2026**: [Link](https://www.latercera.com/culto/noticia/si-somos-americanos-el-orgullo-latino-se-tomo-la-obertura-del-festival-de-vina-2026/)
+- **La particular exigencia de Matteo Bocelli para tener en su camarín en el Festival de Viña 2026**: [Link](https://www.t13.cl/noticia/espectaculos/la-particular-exigencia-matteo-bocelli-tener-su-camarin-festival-vina-2026-22-2-2026)
+
+
+### tomás martín etcheverry (N/A, 22/02/2026 21:43 Lima)
+
+- **Tabilo beats Buse & Rio rain, reaches title match**: [Link](https://www.atptour.com/en/news/rio-de-janeiro-2026-sunday)
+- **ATP Rio Final Prediction – Alejandro Tabilo vs Tomas Martin Etcheverry**: [Link](https://lastwordonsports.com/tennis/2026/02/22/atp-rio-final-prediction-tabilo-etcheverry/)
+- **Video : Tomas Martin Etcheverry defeats Alejandro Tabilo at Rio 2026 – Final**: [Link](https://en.tennistemple.com/video/tomas-martin-etcheverry-defeats-alejandr/V7KsE)
+
+
+### que paso en mexico (N/A, 22/02/2026 21:43 Lima)
+
+- **Bloqueo en la Carretera México-Toluca por Desabasto de Agua Potable**: [Link](https://noticiaselpaso.com/manifestantes-bloquean-la-carretera-mexico-toluca-por-desabasto-de-agua-potable/)
+- **Bloquean la México-Toluca por conflicto en Ocoyoacac; vecinos exigen suministro de agua**: [Link](https://planamayor.com.mx/bloquean-la-mexico-toluca-por-conflicto-en-ocoyoacac-vecinos-exigen-suministro-de-agua/)
+- **Rechazan trabajos de rehabilitación hidráulica en Ocoyoacac; escala protesta por el agua**: [Link](https://diariobasta.com/2026/02/20/rechazan-trabajos-de-rehabilitacion-hidraulica-en-ocoyoacac-escala-protesta-por-el-agua/)
+
+
+### celtics - lakers (N/A, 22/02/2026 21:43 Lima)
+
+- **Payton Pritchard Hits Buzzer-Beater to Extend Celtics’ Lead Over Lakers**: [Link](https://news.ssbcrack.com/payton-pritchard-hits-buzzer-beater-to-extend-celtics-lead-over-lakers/)
+- **Lakers hit new low in blowout loss to Celtics**: [Link](https://www.silverscreenandroll.com/lakers-scores-results/108759/lakers-vs-celtics-recap-box-score-stats-final-lebron-james-austin-reaves-luka-doncic)
+- **Final Injury Report for Celtics-Lakers: Will Jayson Tatum, Bronny James Play?**: [Link](https://sports.yahoo.com/articles/final-injury-report-celtics-lakers-193000884.html)
+
+
+### dani lins (N/A, 22/02/2026 21:43 Lima)
+
+- **Dani Lins MVP: veja seleção do Sul-Americano de Clubes Feminino de Vôlei**: [Link](https://noataque.com.br/volei/noticia/2026/02/22/dani-lins-mvp-veja-selecao-do-sul-americano-de-clubes-feminino-de-volei/)
+- **Osasco São Cristóvão Saúde fica com a medalha de prata no Campeonato Sul-americano**: [Link](https://zdl.pressroom.com.br/4623815f88/osasco-sao-cristovao-saude-fica-com-a-medalha-de-prata-no-campeonato-sul-americano.html)
+- **Sesi-Bauru vence Alianza Lima, se garante no Mundial e fará final brasileira no Sul-Americano**: [Link](https://ge.globo.com/sp/tem-esporte/volei/noticia/2026/02/21/sesi-bauru-vence-alianza-lima-se-garante-no-mundial-e-fara-final-brasileira-no-sul-americano.ghtml)
+
+
+### robert aramayo (N/A, 22/02/2026 21:43 Lima)
+
+- **BAFTA Film Awards: ‘One Battle After Another’ Takes Best Film — Full Winners List**: [Link](https://deadline.com/2026/02/2026-bafta-film-awards-winners-1236728271/)
+- **Baftas 2026 red carpet: a kiss for Paul Mescal, Chase Infiniti, Teyana Taylor and bear fashion – in pictures**: [Link](https://www.imdb.com/fr/news/ni65719857/?ref_=nwc_art_perm)
+- **Inside the room at the Alan Cumming-hosted BAFTA Awards, plus a full list of winners**: [Link](https://www.aol.com/articles/inside-room-alan-cumming-hosted-014452795.html)
+
+
+### river (N/A, 22/02/2026 21:43 Lima)
+
+- **Group questions 87,000 pounds of trash found in iconic US river: 'Every candy wrapper, plastic bottle, [and] Red Bull can'**: [Link](https://www.thecooldown.com/outdoors/yellowstone-river-cleanup-montana-2025-results/)
+- **Coast Guard rescues hiker lost for 5 days in Oregon’s Illinois River valley**: [Link](https://www.news.uscg.mil/Press-Releases/Article/4411358/coast-guard-rescues-hiker-lost-for-5-days-in-oregons-illinois-river-valley/)
+- **“He’s Leaving a Trail of Breadcrumbs.” Piecing Together the Disappearance of Gabriel Vaughn.**: [Link](https://www.outsideonline.com/outdoor-adventure/exploration-survival/oregon-gabriel-vaughn/)
+
+
+### independiente del valle (N/A, 22/02/2026 21:43 Lima)
+
+- **(VIDEO) SIN MUCHO DRAMA: IDV venció en el Estadio Banco Guayaquil al Guayaquil City**: [Link](https://onefootball.com/id/berita/video-sin-mucho-drama-idv-vencio-en-el-estadio-banco-guayaquil-al-guayaquil-city-42452844)
+- **Cuándo juega Independiente del Valle vs. Guayaquil City por la Liga Ecuabet: equipo, fecha, hora y TV en vivo**: [Link](https://www.espn.com.pe/futbol/ecuador/nota/_/id/16331093/independiente-del-valle-vs-guayaquil-city-por-la-liga-ecuabet-equipo-fecha-hora-y-tv-en-vivo)
+- **El golazo de Layan Loor para el 2-0 de IDV ante Guayaquil City**: [Link](https://www.ole.com.ar/ecuador/golazo-layan-loor-2-0-idv-guayaquil-city_3_jAFa2XuSel.html)
+
+
 ### roma (N/A, 22/02/2026 15:34 Lima)
 
 - **Incendio in Prati: distrutti dalle fiamme due auto e 14 tra scooter e moto**: [Link](https://www.romatoday.it/cronaca/incendio-motorini-prati-21-22-febbaio-2026-.html)
@@ -962,75 +1032,5 @@ Sin noticias relacionadas disponibles.
 - **Team news: United Women v Atleti**: [Link](https://www.manutd.com/en/news/detail/team-news-for-man-utd-women-v-atletico-madrid-second-leg-19-feb-2026)
 - **🚨Confirmed XIs: Atlético out to turn it around in Manchester**: [Link](https://sports.yahoo.com/articles/confirmed-xis-atl-tico-turn-185600750.html)
 - **"We have to give absolutely everything" - Marc Skinner emphasises that the second leg fixture against Atlético Madrid is a must-win**: [Link](https://www.vavel.com/en/football/2026/02/18/womens-football/1251259-we-have-to-give-absolutely-everything-marc-skinner-emphasises-that-the-second-leg-fixture-against-atletico-madrid-is-a-must-win.html)
-
-
-### fiorentina (N/A, 19/02/2026 15:39 Lima)
-
-- **Vanoli aspetta l’uomo mercato viola: la Conference può essere il momento della svolta**: [Link](https://onefootball.com/pt-br/noticias/vanoli-aspetta-luomo-mercato-viola-la-conference-puo-essere-il-momento-della-svolta-42433808)
-- **DIRETTA / Jagiellonia-Fiorentina 0-0, segui il live di Firenzetoday**: [Link](https://www.firenzetoday.it/sport/calcio/jagiellonia-fiorentina-diretta-conference-league.html)
-- **CALCIO CONFERENCE LEAGUE- Le Pagelle viola di Firenze Viola Supersport per Jagellonia-Fiorentina**: [Link](https://www.firenzeviolasupersportlive.it/fiorentina/notizie-viola/calcio-conference-league-le-pagelle-viola-di-firenze-viola-supersport-per-jagellonia-fiorentina/)
-
-
-### jannik sinner (N/A, 19/02/2026 15:39 Lima)
-
-- **LIVE Sinner-Mensik: 7-6 per il ceco nel primo parziale. Jannik conduce 1-0 nel secondo set**: [Link](https://www.gazzetta.it/Tennis/ATP/19-02-2026/sinner-mensik-live-a-doha-la-diretta.shtml)
-- **Le tappe bruciate e il trionfo a Miami: chi è Jakub Mensik, il prossimo avversario di Sinner**: [Link](https://www.ubitennis.com/blog/2026/02/19/le-tappe-bruciate-e-il-trionfo-a-miami-chi-e-jakub-mensik-il-prossimo-avversario-di-sinner/)
-- **Live Tomáš Machác - Jannik Sinner - Doha Men's Singles -: Punteggi & Highlights Tennis - 16/02/2026**: [Link](https://www.eurosport.it/tennis/atp-doha/2026/live-tomas-machac-jannik-sinner_mtc20005030/live.shtml)
-
-
-### lille vs (N/A, 19/02/2026 15:39 Lima)
-
-- **Olivier Giroud sanctionné ? La réponse tombe**: [Link](https://www.football.fr/lille/olivier-giroud-sanctionne-la-reponse-tombe-801033.html)
-- **LOSC – Etoile Rouge. Les prédictions d’Opta**: [Link](https://sportune.20minutes.fr/losc-etoile-rouge-les-predictions-dopta-395030)
-- **"La seule crise que je vois, c'est celle des résultats" : Les déclarations de Dejan Stankovic, entraîneur serbe, avant LOSC – Étoile Rouge de Belgrade**: [Link](https://lepetitlillois.com/2026/02/19/la-seule-crise-que-je-vois-cest-celle-des-resultats-les-declarations-de-dejan-stankovic-entraineur-serbe-avant-losc-etoile-rouge-de-belgrade/)
-
-
-### panathinaikos vs (N/A, 19/02/2026 15:39 Lima)
-
-- **Panathinaikos - Viktoria Pilsen prediction & tips 19.02.2026**: [Link](https://www.transfermarkt.co.uk/betting/tips-today/panathinaikos-vs-viktoria-pilsen-prediction-19-02-2026/)
-- **Panathinaikos vs Viktoria Plzen LIVE Score Updates in UEFA Europa League Match**: [Link](https://www.vavel.com/en-us/soccer/2026/02/19/1251279-panathinaikos-vs-viktoria-plzen-live-score-europa-league.html)
-- **Preview: Panathinaikos vs Viktoria Plzen - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/panathinaikos/europa-league/preview/panathinaikos-vs-plzen-prediction-team-news-lineups_592206.html)
-
-
-### kilmarnock vs. celtic f. c. (N/A, 19/02/2026 15:39 Lima)
-
-- **Celtic "machine" now looks as finished as Hatate & Schmeichel at Parkhead**: [Link](https://www.footballfancast.com/celtic-star-maeda-looks-as-finished-as-hatate-schmeichel-at-parkhead/)
-- **Surprise Pundit Jumps to Celtic’s Defence in “No Grounds” Neil McCann Rant**: [Link](https://celtsarehere.com/celtic-fc-neil-mccann-added-time-kilmarnock/)
-- **Never-say-die Celts refuse to lie down**: [Link](https://www.celticfc.com/news/2026/february/15/never-say-die-celts-refuse-to-lie-down/)
-
-
-### fiorentina vs (N/A, 19/02/2026 15:39 Lima)
-
-- **Preview: Jagiellonia Bialystok vs Fiorentina - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/jagiellonia-bialystok/europa-conference-league/preview/jagiellonia-vs-fiorentina-prediction-team-news-lineups_592194.html)
-- **Logistical difficulties and war just around the corner. Hunting and tights. A chilling atmosphere. And tonight it'll be -9°C.**: [Link](https://sport.quotidiano.net/en/calcio/fiorentina/le-difficolta-logistiche-e-la-ef525172)
-- **Squad for Jagiellonia v Fiorentina -**: [Link](https://www.acffiorentina.com/en/news/jagiellonia-fiorentina-i-convocati-180226)
-
-
-### toy story 5 (N/A, 19/02/2026 15:39 Lima)
-
-- **'Toy Story 5' Trailer: Woody, Buzz and Jessie Reunite to Save Toys from Extinction in a High-Tech World**: [Link](https://people.com/woody-buzz-jessie-new-toy-story-5-trailer-11898834)
-- **‘Toy Story 5’ Trailer: Woody and Buzz Reunite to Save Kids From Technology Devices**: [Link](https://variety.com/2026/film/news/toy-story-5-trailer-buzz-woody-1236625360/)
-- **‘Toy Story 5’ Trailer: Buzz Lightyear and a Balding Woody Reunite to Rescue Kids From Electronics**: [Link](https://www.hollywoodreporter.com/movies/movie-news/toy-story-5-trailer-buzz-lightyear-woody-reunite-1236509817/)
-
-
-### dinamo zagreb (N/A, 19/02/2026 12:01 Lima)
-
-- **Europa League playoff round predictions: Genk too hot to handle on the road**: [Link](https://www.racingpost.com/sport/football-tips/europa-league/europa-league-playoff-round-predictions-genk-too-hot-to-handle-on-the-road-af9lJ2I7Xvqp/)
-- **Dinamo Zagreb vs Genk LIVE Score Updates in UEFA Europa League Match**: [Link](https://www.vavel.com/en-us/soccer/2026/02/19/1251335-dinamo-zagreb-vs-genk-live-score-europa-league.html)
-- **Preview: Dinamo Zagreb vs. Genk - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/dinamo-zagreb/europa-league/preview/dinamo-zagreb-vs-genk-prediction-team-news-lineups_592180.html)
-
-
-### chatgpt (N/A, 19/02/2026 12:01 Lima)
-
-- **OpenAI, Reliance partner to add AI search to JioHotstar**: [Link](https://techcrunch.com/2026/02/19/openai-reliance-partner-to-add-ai-search-to-jiohotstar/)
-- **OpenAI, JioHotstar Partner to Launch ChatGPT-Powered Content Discovery in India**: [Link](https://variety.com/2026/tv/news/openai-jiohotstar-chatgpt-content-discovery-india-1236667083/)
-- **AI-Driven Entertainment Revolution: JioHotstar and OpenAI's Groundbreaking Partnership**: [Link](https://www.devdiscourse.com/article/technology/3810318-ai-driven-entertainment-revolution-jiohotstar-and-openais-groundbreaking-partnership)
-
-
-### marisel linares (N/A, 19/02/2026 12:01 Lima)
-
-- **Campeona nacional de buceo libre fallece tras ser atropellada en San Isidro: conductor se habría dado a la fuga**: [Link](https://larepublica.pe/sociedad/2026/02/18/campeona-nacional-de-buceo-libre-fallece-tras-ser-atropellada-en-san-isidro-conductor-se-habria-dado-a-la-fuga-907560)
-- **Joven seleccionada peruana de buceo Lizeth Marzano Noguera falleció tras ser atropellada en San Isidro**: [Link](https://rpp.pe/lima/accidentes/lizeth-marzano-noguera-seleccionada-peruana-de-buceo-murio-tras-ser-atropellada-en-san-isidro-noticia-1676528)
-- **Buscan a chofer que atropelló y mató a campeona nacional de buceo en San Isidro**: [Link](https://peru21.pe/lima/buscan-chofer-que-atropello-campeona-nacional-de-buceo-en-san-isidro/)
 
 
