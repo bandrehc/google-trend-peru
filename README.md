@@ -1,3 +1,10 @@
+### 7 reinos (N/A, 23/02/2026 03:57 Lima)
+
+- **¿Por qué Aemon Targaryen no apareció en El Caballero de los 7 Reinos?**: [Link](https://www.milenio.com/espectaculos/television/aemon-targaryen-aparecio-caballero-7-reinos)
+- **“El Caballero de los Siete Reinos”: a qué hora se estrena el episodio final**: [Link](https://www.infobae.com/entretenimiento/2026/02/22/el-caballero-de-los-siete-reinos-a-que-hora-se-estrena-el-episodio-final/)
+- **La serie “A Knight of the Seven Kingdoms”, ¿tendrá temporada 2 en HBO Max?**: [Link](https://elcomercio.pe/mag/fama/que-ver/a-knight-of-the-seven-kingdoms-tendra-temporada-2-en-hbo-max-el-caballero-de-los-siete-reinos-nnda-nnlt-noticia/)
+
+
 ### seattle sounders (N/A, 23/02/2026 00:37 Lima)
 
 - **SEAvCOL Starting XI: Cristian Roldan wears the captain's armband, Osaze De Rosario lines up as the No. 9**: [Link](https://www.soundersfc.com/news/seavcol-starting-xi-cristian-roldan-wears-the-captain-s-armband-osaze-de-rosario-lines-up-as-the-no-9)
@@ -1024,12 +1031,5 @@ Sin noticias relacionadas disponibles.
 - **Keep an Eye on Wall Street's Outperforming 'Fear Gauge'**: [Link](https://www.schaeffersresearch.com/content/analysis/2026/02/19/keep-an-eye-on-wall-streets-outperforming-fear-gauge)
 - **Wall Street's 'fear gauge' is heading for its biggest daily drop in about two weeks as tech stocks bounce back**: [Link](https://www.marketwatch.com/livecoverage/stock-market-today-dow-sp500-nasdaq-higher-tech-turmoil-eases-treasury-yields/card/wall-street-s-fear-gauge-is-heading-for-its-biggest-daily-drop-in-about-two-weeks-as-tech-stocks-bounce-back-QlNaqc5SDor9QrPUZDHe?gaa_at=eafs&gaa_n=AWEtsqekzBAfarO63rx27AidC8Y1tJxxGgfcvJ0Foc5UaYS1C3aMDfVNIZZX&gaa_ts=6997cb94&gaa_sig=DAacjDqNtqU9SVFEfdgVA11R671yp3k7b20rEuyZFIVsturDVMnE_SXt87xDGgW3XVpjbmyWe4d9KZO9Hw2jlg%3D%3D)
 - **The Fear Gauge Awakens: VIX Hits 22.96 as AI ‘SaaSpocalypse’ Triggers Massive Growth-to-Value Rotation**: [Link](https://markets.financialcontent.com/stocks/article/marketminute-2026-2-18-the-fear-gauge-awakens-vix-hits-2296-as-ai-saaspocalypse-triggers-massive-growth-to-value-rotation)
-
-
-### deportivo táchira - tolima (N/A, 19/02/2026 21:36 Lima)
-
-- **Tolima vuelve a Libertadores con su fortaleza visitante como bandera ante Táchira**: [Link](https://www.espn.com.ar/futbol/copa-libertadores/nota/_/id/16331964/tachira-vs-tolima-vuelve-su-fortaleza-como-visitante)
-- **Video: El gol de Florez para abrir el marcador a favor de Tolima vs. Táchira**: [Link](https://espndeportes.espn.com/futbol/copa-libertadores/nota/_/id/16333956/video-el-gol-de-florez-para-abrir-el-marcador-a-favor-de-tolima-vs-tachira)
-- **Copa Libertadores: Se enfrentan Táchira y Tolima por la llave 2**: [Link](https://rpp.pe/futbol/ligas-internacionales/copa-libertadores-se-enfrentan-tachira-y-tolima-por-la-llave-2-noticia-1676447)
 
 
