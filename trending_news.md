@@ -1,3 +1,38 @@
+### sportivo luqueño - guaraní (N/A, 23/02/2026 08:18 Lima)
+
+- **Sportivo Luqueño vs. Guaraní en vivo: seguí el partido minuto a minuto**: [Link](https://www.tycsports.com/paraguay/futbol-de-paraguay/paraguay-torneo-apertura-2026-sportivo-luqueno-vs-guarani-fecha-6-id714268.html)
+- **¡Luqueño amanece con todas las luces prendidas!**: [Link](https://onefootball.com/de/news/luqueno-amanece-con-todas-las-luces-prendidas-42455047)
+- **Apagón en el estadio: no hay denuncia de robo de cables en Capiatá**: [Link](https://www.masencarnacion.com/articulo/apagon-en-el-estadio-no-hay-denuncia-de-robo-de-cables-en-capiata)
+
+
+### samahara lobaton (N/A, 23/02/2026 08:18 Lima)
+
+- **Samahara Lobatón se colocó chip de la libido antes de ver a Youna y luego sorprendieron con un beso en transmisión: "Perfecto"**: [Link](https://willax.pe/entretenimiento/samahara-lobaton-youna-beso-chip-libido-willax)
+- **¿Habrá reconciliación? Samahara Lobatón se besa con su expareja Youna y enciende rumores**: [Link](https://peru21.pe/espectaculos/samahara-lobaton-se-besa-con-su-ex-youna-y-enciende-rumores/)
+- **Samahara Lobatón y Youna se besaron en transmisión en vivo**: [Link](https://www.americatv.com.pe/mas-espectaculos/samahara-lobaton-beso-youna-y-confirmaron-reconciliacion-noticia-163014)
+
+
+### inundaciones en arequipa (N/A, 23/02/2026 08:18 Lima)
+
+- **Arequipa: coordinan empadronamiento para entrega de bonos a damnificados por huaico**: [Link](https://andina.pe/agencia/noticia-arequipa-coordinan-empadronamiento-para-entrega-bonos-a-damnificados-huaico-1064009.aspx)
+- **Emergencia en Arequipa: nuevos desbordes de torrenteras inundan viviendas con lodo y piedras**: [Link](https://rpp.pe/peru/arequipa/lluvias-en-arequipa-2026-desborde-de-torrenteras-e-inundaciones-afectan-viviendas-noticia-1677071)
+- **Confirman bono de S/500 hasta por dos años para familias afectadas por lluvias en Arequipa**: [Link](https://larepublica.pe/sociedad/2026/02/22/confirman-bono-de-s500-hasta-por-dos-anos-para-familias-afectadas-por-lluvias-en-arequipa-859342)
+
+
+### el caballero de los siete reinos estreno (N/A, 23/02/2026 08:18 Lima)
+
+- **¿“El Caballero de los Siete Reinos” tendrá segunda temporada?**: [Link](https://www.infobae.com/entretenimiento/2026/02/23/el-caballero-de-los-siete-reinos-tendra-segunda-temporada/)
+- **“A Knight of the Seven Kingdoms” Capítulo 6: Hora de estreno del último episodio en HBO Max**: [Link](https://elcomercio.pe/respuestas/farandula/a-knight-of-the-seven-kingdoms-capitulo-6-hora-de-estreno-confirmado-hbo-max-game-of-thrones-tdpe-noticia/)
+- **El caballero de los Siete Reinos lanza el tráiler de su episodio final horas antes de su estreno en HBO Max**: [Link](https://www.hobbyconsolas.com/hobbycine/caballero-los-siete-reinos-lanza-trailer-su-episodio-final-horas-antes-su-estreno-hbo-max_6937361_0.html)
+
+
+### planta (N/A, 23/02/2026 08:18 Lima)
+
+- **‘Planta’, un libro-juego didáctico de cartas que combina el aprendizaje con la diversión**: [Link](https://www.bierzodiario.es/?p=183680)
+- **La ULE lanza ‘Planta’, el libro-juego de cartas que enseña fisiología vegetal jugando**: [Link](https://ahoraleon.com/la-ule-lanza-planta-el-libro-juego-de-cartas-que-ensena-fisiologia-vegetal-jugando/)
+- **La Universidad de León lanza un libro-juego para la enseñanza de la fisiología vegetal**: [Link](https://inforadiomontanaleonesa.com/contenido/24646/la-universidad-de-leon-lanza-un-libro-juego-para-la-ensenanza-de-la-fisiologia-v)
+
+
 ### 7 reinos (N/A, 23/02/2026 03:57 Lima)
 
 - **¿Por qué Aemon Targaryen no apareció en El Caballero de los 7 Reinos?**: [Link](https://www.milenio.com/espectaculos/television/aemon-targaryen-aparecio-caballero-7-reinos)
@@ -996,40 +1031,5 @@ Sin noticias relacionadas disponibles.
 - **Joseph Paintsil faces Panama preview ahead of CONCACAF clash**: [Link](https://citisportsonline.com/2026/02/joseph-paintsil-faces-panama-preview-ahead-of-concacaf-clash/)
 - **How to watch Sporting San Miguelito vs LA Galaxy in the USA: Live Stream and TV for 2026 CONCACAF Champions...**: [Link](https://worldsoccertalk.com/watch-on-us-tv/how-to-watch-sporting-san-miguelito-vs-la-galaxy-in-the-usa-live-stream-and-tv-for-2026-concacaf-champions-cup/)
 - **Galaxy open another season without Riqui Puig, but with more depth**: [Link](https://www.latimes.com/sports/soccer/galaxy/story/2026-02-18/galaxy-open-another-season-without-riqui-puig-but-with-more-depth)
-
-
-### laura pausini (N/A, 20/02/2026 00:18 Lima)
-
-- **Laura Pausini co-conduttrice a Sanremo: «La più pazza delle mie avventure professionali, non permetterò a nessuno di rovinarmela»**: [Link](https://www.corriere.it/spettacoli/festival-sanremo/26_febbraio_19/laura-pausini-co-conduttrice-a-sanremo-la-piu-pazza-delle-mie-avventure-professionali-non-permettero-a-nessuno-di-rovinarmela-6d0dfff6-3a10-4a16-b614-44cee8058xlk.shtml)
-- **Pausini, 'non permetterò a nessuno di rovinare questo momento unico'**: [Link](https://www.ansa.it/sito/notizie/cultura/musica/2026/02/19/pausini-non-permettero-a-nessuno-di-rovinare-questo-momento-unico_1372e234-c33d-4159-88a6-642003b4c104.html)
-- **Laura Pausini: "Un rimpianto? Ho scartato Leonardo DiCaprio per un videoclip"**: [Link](https://www.allmusicitalia.it/news/laura-pausini-leonardo-dicaprio-videoclip-rimpianto.html)
-
-
-### eric dane (N/A, 19/02/2026 21:36 Lima)
-
-- **Eric Dane, Grey’s Anatomy Star, Dies At 53**: [Link](https://screenrant.com/eric-dane-death-obituary/)
-- **Eric Dane, ‘Grey’s Anatomy’ and ‘Euphoria’ Star, Dies at 53**: [Link](https://variety.com/2026/tv/news/eric-dane-dead-mcsteamy-greys-anatomy-euphoria-1236667968/)
-- **All About Eric Dane's 2 Kids, Daughters Billie and Georgia**: [Link](https://people.com/eric-dane-children-what-to-know-11910388)
-
-
-### mark zuckerberg (N/A, 19/02/2026 21:36 Lima)
-
-- **Mark Zuckerberg said he reached out to Apple CEO Tim Cook to discuss 'wellbeing of teens and kids'**: [Link](https://www.cnbc.com/2026/02/18/meta-mark-zuckerberg-social-media-safety-trial.html)
-- **Meta CEO Mark Zuckerberg to face jury in landmark social media addiction trial**: [Link](https://www.npr.org/2026/02/18/nx-s1-5716229/zuckerberg-social-media-addiction-trial)
-- **Zuckerberg defends Meta in landmark social media addiction trial**: [Link](https://www.bbc.com/news/articles/c5y42znjnjvo)
-
-
-### premios lo nuestro 2026 (N/A, 19/02/2026 21:36 Lima)
-
-- **Premio Lo Nuestro 2026 hoy EN VIVO: Arcángel dedica premio a su fallecido hermano**: [Link](https://www.univision.com/shows/premio-lo-nuestro/premio-lo-nuestro-2026-en-vivo-ganadores-nominados-actuaciones)
-- **Ve AQUÍ en vivo los Premio Lo Nuestro 2026**: [Link](https://www.lasestrellas.tv/famosos/ve-aqui-en-vivo-los-premio-lo-nuestro-2026)
-- **Una moda con mucha creatividad y sin reglas dominó la alfombra de Premio Lo Nuestro**: [Link](https://www.infobae.com/america/agencias/2026/02/20/una-moda-con-mucha-creatividad-y-sin-reglas-domino-la-alfombra-de-premio-lo-nuestro/)
-
-
-### vix (N/A, 19/02/2026 21:36 Lima)
-
-- **Keep an Eye on Wall Street's Outperforming 'Fear Gauge'**: [Link](https://www.schaeffersresearch.com/content/analysis/2026/02/19/keep-an-eye-on-wall-streets-outperforming-fear-gauge)
-- **Wall Street's 'fear gauge' is heading for its biggest daily drop in about two weeks as tech stocks bounce back**: [Link](https://www.marketwatch.com/livecoverage/stock-market-today-dow-sp500-nasdaq-higher-tech-turmoil-eases-treasury-yields/card/wall-street-s-fear-gauge-is-heading-for-its-biggest-daily-drop-in-about-two-weeks-as-tech-stocks-bounce-back-QlNaqc5SDor9QrPUZDHe?gaa_at=eafs&gaa_n=AWEtsqekzBAfarO63rx27AidC8Y1tJxxGgfcvJ0Foc5UaYS1C3aMDfVNIZZX&gaa_ts=6997cb94&gaa_sig=DAacjDqNtqU9SVFEfdgVA11R671yp3k7b20rEuyZFIVsturDVMnE_SXt87xDGgW3XVpjbmyWe4d9KZO9Hw2jlg%3D%3D)
-- **The Fear Gauge Awakens: VIX Hits 22.96 as AI ‘SaaSpocalypse’ Triggers Massive Growth-to-Value Rotation**: [Link](https://markets.financialcontent.com/stocks/article/marketminute-2026-2-18-the-fear-gauge-awakens-vix-hits-2296-as-ai-saaspocalypse-triggers-massive-growth-to-value-rotation)
 
 
