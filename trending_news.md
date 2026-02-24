@@ -1,3 +1,10 @@
+### coordinador de mesa onpe 2026 (N/A, 24/02/2026 03:56 Lima)
+
+- **ONPE lanza convocatoria 2026 con 23 mil puestos para secundaria completa: pagan S/ 2.000 y así puedes postular**: [Link](https://www.infobae.com/peru/2026/02/24/onpe-lanza-convocatoria-2026-con-23-mil-puestos-para-secundaria-completa-pagan-s-2000-y-asi-puedes-postular/)
+- **ONPE publica lista de 2 769 coordinadores: revisa y presenta tachas de ser el caso**: [Link](https://www.elperuano.pe/noticia/289426-onpe-publica-lista-de-2-769-coordinadores-revisa-y-presenta-tachas-de-ser-el-caso)
+- **Elecciones 2026: ONPE abre 23 mil puestos de coordinador de mesa con sueldo de 2 mil soles**: [Link](https://lalupa.pe/peru/elecciones-2026-onpe-abre-23-mil-puestos-de-coordinador-de-mesa-con-sueldo-de-2-mil-soles-107165)
+
+
 ### stephanie cayo (N/A, 24/02/2026 00:22 Lima)
 
 - **¡Agarrados de las manos! Stephani Cayo acompaña a Alejandro Sanz durante su gira**: [Link](https://www.atv.pe/noticia/agarrados-de-las-manos-stephani-cayo-acompana-a-alejandro-sanz-durante-su-gira/)
@@ -1021,12 +1028,5 @@ Sin noticias relacionadas disponibles.
 - **Instituto lo fue a buscar y tuvo su premio sobre la hora ante Atlético Tucumán**: [Link](https://www.espn.com.ar/futbol/argentina/nota/_/id/16337823/instituto-vs-atletico-tucuman-comentario-torneo-apertura)
 - **Con Cerato salvador, el 2-1 en los últimos minutos y el penal polémico: el 1x1 de la Gloria ante Atlético**: [Link](https://www.lavoz.com.ar/deportes/futbol/con-cerato-salvador-el-2-1-en-los-ultimos-minutos-y-el-penal-polemico-el-1x1-de-la-gloria-ante-atletico/)
 - **Diego Flores tras la victoria: "El equipo que buscó el partido fue Instituto" febrero 2026**: [Link](https://canalshowsport.com.ar/diego-flores-tras-la-victoria-el-equipo-que-busco-el-partido-fue-instituto/)
-
-
-### alianza lima - sport boys (N/A, 20/02/2026 21:30 Lima)
-
-- **Alianza Lima vs. Sport Boys EN VIVO: minuto a minuto por internet gratis vía Liga 1 MAX**: [Link](https://depor.com/futbol-peruano/descentralizado/alianza-lima-vs-sport-boys-en-vivo-minuto-a-minuto-gratis-hoy-liga-1-max-movistar-tv-futbol-libre-tv-directv-zapping-y-canales-de-transmision-online-en-directo-por-torneo-apertura-2026-noticia/)
-- **Pablo Guede se juega el puesto ante Sport Boys**: [Link](https://caretas.pe/deportes/pablo-guede-se-juega-el-puesto-ante-sport-boys/)
-- **Alineaciones Alianza Lima vs Sport Boys HOY: el sorprendente once de Guede para volver al triunfo**: [Link](https://libero.pe/futbol-peruano/alianza-lima/2026/02/19/alineaciones-alianza-lima-vs-sport-boys-formacion-del-partido-de-liga-1-peru-apertura-1612663)
 
 
