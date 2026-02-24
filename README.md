@@ -1,3 +1,73 @@
+### hull city - derby county (N/A, 24/02/2026 15:42 Lima)
+
+- **Hull City's predicted XI to face Derby County as Tigers hit by latest injury blow**: [Link](https://www.hulldailymail.co.uk/sport/football/football-news/hull-citys-predicted-xi-face-10830473)
+- **Hull City vs Derby County LIVE Score Updates in EFL Championship Match**: [Link](https://www.vavel.com/en-us/soccer/2026/02/24/1251915-hull-city-vs-derby-county-live-scoreefl-championship.html)
+- **Derby County: John Eustace says players know they need to improve**: [Link](https://www.bbc.co.uk/sport/football/articles/c15xl0v8jzgo)
+
+
+### wrexham - portsmouth (N/A, 24/02/2026 15:42 Lima)
+
+- **Mousinho: Recovery And Preparation**: [Link](https://www.portsmouthfc.co.uk/news/2026/february/23/mousinho--recovery-and-preparation/)
+- **Football Bet Of The Day: Jamie Griffith has an 11-10 selection from the Championship**: [Link](https://www.racingpost.com/sport/football-tips/football-bet-of-the-day-jamie-griffith-has-an-11-10-selection-from-the-championship-aDRAg3J9rghU/)
+- **Time never stands still in Wrexham AFC's quest for Championship play-offs**: [Link](https://www.leaderlive.co.uk/sport/25882861.another-big-week-wrexham-afcs-quest-play-offs/)
+
+
+### leverkusen vs. olympiacos (N/A, 24/02/2026 15:42 Lima)
+
+- **Bayer Leverkusen vs Olympiakos: UEFA Champions League stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c626v40vl3dt)
+- **Hjulmand and Leverkusen taking Olympiacos clash 'very seriously'**: [Link](https://www.fotmob.com/news/1c0foas1syson1lkee7xp0tlwf-hjulmand-leverkusen-taking-olympiacos-clash-very-seriously)
+- **Olympiakos and Bayer Leverkusen: A Football Rivalry Reignited**: [Link](https://news.ssbcrack.com/olympiakos-and-bayer-leverkusen-a-football-rivalry-reignited/)
+
+
+### real madrid vs. benfica (N/A, 24/02/2026 15:42 Lima)
+
+- **Mbappé Eyeing Historic Feat For Real Madrid**: [Link](https://www.managingmadrid.com/managing-madrid-editorials/104379/mbappe-eyeing-historic-feat-for-real-madrid)
+- **Why Kylian Mbappe is suddenly out of Real Madrid's do-or-die Champions League tie with Benfica**: [Link](https://www.foxsports.com/articles/soccer/why-kylian-mbappe-is-suddenly-out-of-real-madrids-do-or-die-champions-league-tie-with-benfica)
+- **Real Madrid: Mbappé's fitness, Álvaro Arbeloa reassures ahead of Benfica clash**: [Link](https://foot-africa.com/en/news/real-madrid-mbappes-fitness-lvaro-arbeloa-reassures-ahead-of-benfica-clash-1099973/)
+
+
+### champion (N/A, 24/02/2026 15:42 Lima)
+
+- **Lewis Hamilton: Ferrari driver has 'perfect opportunity' in 2026 F1 season, says former team-mate Jenson Button**: [Link](https://www.skysports.com/f1/news/12040/13508302/lewis-hamilton-ferrari-driver-has-perfect-opportunity-in-2026-f1-season-says-former-team-mate-jenson-button)
+- **Lando Norris says Lewis Hamilton 'should have been' eight-time champion**: [Link](https://www.gpblog.com/en/news/lando-norris-says-lewis-hamilton-should-have-been-eight-time-champion)
+- **Alex Albon makes bold Lewis Hamilton prediction for F1 2026 era**: [Link](https://www.planetf1.com/news/lewis-hamilton-f1-2026-title-boost-alex-albon-ferrari)
+
+
+### salford - shrewsbury town (N/A, 24/02/2026 15:42 Lima)
+
+- **Zach Awe Targets Positive Response Against Shrewsbury**: [Link](https://www.salfordcityfc.co.uk/news/2026/february/23/Zach-Awe-Targets-Positive-Response-Against-Shrewsbury/)
+- **Shrewsbury Town squad news: Gavin Cowan names unchanged side as Salop chase fifth straight win**: [Link](https://www.shropshirestar.com/sport/football/shrewsbury-town-fc/2026/02/24/shrewsbury-town-squad-news-gavin-cowan-names-unchanged-side-as-salop-chase-fifth-straight-win/)
+- **Salford v Shrewsbury Match Stats**: [Link](https://andysbetclub.co.uk/football-fixtures/salford-v-shrewsbury/24022026/019c7859-ad2a-7281-8bc6-792bd8c1a3f8/stats/team/)
+
+
+### mirtha legrand (N/A, 24/02/2026 15:42 Lima)
+
+- **Mirtha Legrand festejó a puro lujo su cumpleaños 99**: [Link](https://www.clarin.com/espectaculos/listo-gran-festejo-mirtha-legrand_0_pHVk3O8rqP.html)
+- **Cuáles son los tres hábitos clave que impactan en forma directa en la longevidad, según un gerontólogo**: [Link](https://es-us.noticias.yahoo.com/cu%C3%A1les-h%C3%A1bitos-clave-impactan-forma-153942836.html)
+- **A qué ídolo popular argentino invitó Mirtha a su fiesta de cumpleaños, qué temas le pidió que cante y por qué el artista debió repasar uno: "No me lo acordaba de memoria”**: [Link](https://www.revistagente.com/entretenimiento/celebrities/a-que-idolo-popular-argentino-invito-mirtha-a-su-fiesta-de-cumpleanos-que-temas-le-pidio-que-cante-y-por-que-el-artista-debio-repasar-uno-no-me-lo-acordaba-de-memoria/)
+
+
+### al khaleej - al-kholood club (N/A, 24/02/2026 15:42 Lima)
+
+- **Al Khaleej - Al Kholood prediction & tips 24.02.2026**: [Link](https://www.transfermarkt.com/betting/tips/al-khaleej-vs-al-kholood-prediction-24-02-2026/)
+- **Al Khaleej vs Al Kholood Preview & Prediction**: [Link](https://www.thestatszone.com/al-khaleej-vs-al-kholood-preview-prediction-172271)
+- **Al Kholood vs Al Riyadh Preview & Prediction**: [Link](https://www.thestatszone.com/al-kholood-vs-al-riyadh-preview-prediction-171313)
+
+
+### bayer leverkusen (N/A, 24/02/2026 15:42 Lima)
+
+- **Liveticker | Inter Mailand - FK Bodö/Glimt : | Play-offs | Champions League 2025/26**: [Link](https://www.kicker.at/inter-gegen-bodoeglimt-2026-champions-league-5191290/ticker)
+- **Sky-Kommentator Andreas Brandt mit den Aufstellungen zu Leverkusen-Olympiakos**: [Link](https://www.skysportaustria.at/mediathek/sky-kommentator-andreas-brandt-mit-den-aufstellungen-zu-leverkusen-olympiakos/)
+- **Kurzpässe vor #B04OLY: Fokussiert ins Rückspiel – Kießling und Flekken im Werkself-Radio**: [Link](https://www.bayer04.de/de-de/news/champions-league/kurzpaesse-vor-b04oly-fokussiert-ins-rueckspiel-kiessling-und-flekken-im-werkself-radio)
+
+
+### inter de milán (N/A, 24/02/2026 15:42 Lima)
+
+- **¡EN VIVO! Inter vs. Bodo/Glimt por Champions**: [Link](https://www.espn.com.ar/futbol/champions-league/nota/_/id/16350060/inter-vs-bodo-glimt-por-vuelta-playoffs-champions-equipo-fecha-hora-y-tv-en-vivo)
+- **El profe noruego que vence a Guardiola, Mourinho o Simeone**: [Link](https://as.com/futbol/champions/el-profe-noruego-que-vence-a-guardiola-mourinho-o-simeone-f202602-n/)
+- **Hauge, el 'yeti' de la Champions ultima su 'vendetta' contra el Inter: "El Milan me hizo el hombre que soy hoy"**: [Link](https://www.marca.com/futbol/champions-league/2026/02/24/hauge-yeti-champions-ultima-vendetta-inter-milan-me-hizo-hombre-hoy.html)
+
+
 ### atlético madrid - club brujas (N/A, 24/02/2026 12:10 Lima)
 
 - **Atlético de Madrid - Brujas hoy, en directo: última hora del playoff de la Champions League, en vivo**: [Link](https://as.com/futbol/champions/atletico-brujas-en-directo-ultima-hora-del-playoff-de-la-champions-league-hoy-en-vivo-f202602-d/)
@@ -961,75 +1031,5 @@ Sin noticias relacionadas disponibles.
 - **Luka Doncic and Lakers hold off Clippers as Kawhi Leonard exits late**: [Link](https://www.aol.com/articles/luka-doncic-lakers-hold-off-063206117.html)
 - **Austin Reaves News: Hits for 29 points with first unit**: [Link](https://www.rotowire.com/basketball/headlines/austin-reaves-news-hits-for-29-points-with-first-unit-519691)
 - **Lakers' LeBron James: Good to go Friday**: [Link](https://www.cbssports.com/fantasy/basketball/news/lakers-lebron-james-good-to-go-friday-519646/)
-
-
-### lluvia (N/A, 21/02/2026 03:38 Lima)
-
-- **Respuesta inmediata ante desbordes**: [Link](https://elperuano.pe/noticia/289570-respuesta-inmediata-ante-desbordes)
-- **Lluvias inundan Arequipa, Ica, Lambayeque y más regiones EN VIVO: más de 500 distritos en riesgo**: [Link](https://larepublica.pe/sociedad/2026/02/19/lluvias-en-peru-en-vivo-alertas-del-senamhi-huaicos-desbordes-y-mas-de-la-emergencia-climatica-en-arequipa-ica-y-mas-regiones-970121)
-- **Senamhi advierte incremento de caudales y activación de quebradas en Ica y Arequipa**: [Link](https://elcomercio.pe/lima/sucesos/senamhi-advierte-incremento-de-caudales-y-activacion-de-quebradas-en-ica-y-arequipa-ultimas-noticia/)
-
-
-### carl grillmair (N/A, 21/02/2026 03:38 Lima)
-
-- **Caltech astrophysicist fatally shot on porch of his rural SoCal home, where he studied the stars**: [Link](https://www.latimes.com/california/story/2026-02-19/caltech-astrophysicist-fatally-shot-on-porch-in-antelope-valley)
-- **Suspect charged with murder in fatal shooting of 67-year-old Llano man**: [Link](https://www.yahoo.com/news/articles/suspect-charged-murder-fatal-shooting-013458097.html)
-- **Man charged in fatal shooting of renowned Caltech scientist**: [Link](https://www.newsnationnow.com/us-news/west/man-charged-caltech-scientist-shooting/)
-
-
-### clima lima (N/A, 21/02/2026 03:38 Lima)
-
-- **SENAMHI: Pronóstico del clima hoy viernes 20 de febrero 2026**: [Link](https://rpp.pe/peru/actualidad/senamhi-pronostico-del-clima-hoy-viernes-20-de-febrero-2026-noticia-1676702)
-- **Clima en Perú: conoce el pronóstico del tiempo para mañana en Huaraz**: [Link](https://www.infobae.com/noticias/2026/02/19/clima-en-peru-conoce-el-pronostico-del-tiempo-para-manana-en-huaraz/)
-- **Pronóstico del clima en Lima hoy 16 de febrero de 2026**: [Link](https://www.debate.com.mx/mundo/pronostico-del-clima-en-lima-hoy-16-de-febrero-de-2026-20260216-0010.html)
-
-
-### ranking atp (N/A, 21/02/2026 03:38 Lima)
-
-- **The boy without a backhand is now the youngest in the ATP Rankings**: [Link](https://www.puntodebreak.com/en/2026/02/19/the-boy-without-backhand-is-now-the-youngest-in-the-atp-rankings)
-- **Putting Sinner's Doha defeat in perspective: The numbers behind his consistency**: [Link](https://www.atptour.com/en/news/sinner-doha-2026-thursday-reaction)
-- **Qatar ExxonMobil Open Betting Odds and Match Previews for February 19, 2026, Men's Singles**: [Link](https://sportsbookwire.usatoday.com/story/sports/sports-betting/2026/02/19/qatar-exxonmobil-open-betting-odds-favorites-match-previews-2-18-2026-mens/88752168007/)
-
-
-### clippers - lakers (N/A, 21/02/2026 00:07 Lima)
-
-- **Clippers vs Lakers Picks & Odds Today: Healthy Bodies Favor Home Side**: [Link](https://www.oddsshark.com/nba/clippers-lakers-picks-odds-february-20-2026)
-- **Where to watch Clippers vs. Lakers free stream today**: [Link](https://www.masslive.com/tv/2026/02/where-to-watch-clippers-vs-lakers-free-stream-today.html)
-- **LeBron James to be a game-time decision against the Clippers**: [Link](https://sports.yahoo.com/articles/lebron-james-game-time-decision-205948503.html)
-
-
-### puebla - américa (N/A, 21/02/2026 00:07 Lima)
-
-- **🟣 VER TUDN (Canal 5) EN VIVO | Transmisión del Puebla vs. Club América gratis por TV abierta**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/tudn-y-canal-5-en-vivo-gratis-como-ver-partido-puebla-vs-club-america-por-tv-abierta-y-futbol-online-nnda-nnrt-noticia/)
-- **Raphael Veiga se estrena como goleador con América**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/16338405/puebla-vs-america-raphael-veiga-primer-gol-liga-mx-clausura-2026)
-- **Liga MX: Puebla y Club América se miden por la fecha 7**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-puebla-y-club-america-se-miden-por-la-fecha-7-noticia-1676644)
-
-
-### taylor fritz (N/A, 21/02/2026 00:07 Lima)
-
-- **Paul ousts top seed Fritz in Delray Beach, to face 'undoubtedly one of best players in the world'**: [Link](https://www.atptour.com/en/news/delray-beach-2026-friday-report)
-- **Delray Beach tennis picks: Cobolli vs. Korda, Tien vs. Paul**: [Link](https://tenngrand.com/delray-beach-tennis-previews-predictions-cobolli-korda-tien-vs-paul/)
-- **USTA Florida Community Activations Headline the 2026 Delray Beach Open**: [Link](https://www.ustaflorida.com/usta-florida-community-activations-headline-the-2026-delray-beach-open/)
-
-
-### laura pausini (N/A, 21/02/2026 00:07 Lima)
-
-- **Una sezione speciale sul Apple Music celebra il Festival di Sanremo**: [Link](https://www.insidemusic.it/una-sezione-speciale-sul-apple-music-celebra-il-festival-di-sanremo/)
-- **L'avreste mai detto che queste sono le canzoni sanremesi preferite di Laura Pausini e Achille Lauro?**: [Link](https://style.corriere.it/spettacoli/musica/sanremo-2026-laura-pausini-e-achille-lauro-svelano-le-loro-canzoni-preferite-della-storia-della-kermesse/)
-- **1 mese gratis di Apple Music: pronto per lo streaming di Sanremo?**: [Link](https://www.punto-informatico.it/1-mese-gratis-apple-music-streaming-sanremo/)
-
-
-### thiago agustín tirante (N/A, 21/02/2026 00:07 Lima)
-
-- **2026 Rio Open presented by Claro: Cerundolo [19th] vs. Tirante [92nd] Prediction, Odds and Match Preview**: [Link](https://sportsbookwire.usatoday.com/story/sports/sports-betting/2026/02/18/francisco-cerundolo-thiago-agustin-tirante-rio-open-presented-claro-tennis-odds-lines-betting-2026/88734134007/)
-- **Sports News, Transfers, Scores | Watch Live Sport**: [Link](https://www.skysports.com/tennis/watch/7129709739623076112/rio-open-presented-by-claro-2026)
-- **ATP Rio Day 2 Predictions Including Francisco Cerundolo vs Mariano Navone**: [Link](https://lastwordonsports.com/tennis/2026/02/16/atp-rio-day-2-predictions-cerundolo-navone/)
-
-
-### deportivo pereira - pasto (N/A, 21/02/2026 00:07 Lima)
-
-- **Qué canal pasa Pereira vs Pasto hoy: dónde ver el partido gratis y en vivo de la Liga BetPlay**: [Link](https://www.365scores.com/es/news/canal-tv-pereira-vs-pasto-gratis/)
-- **Tabla de posiciones y resultados de fecha 8 en la Liga BetPlay 2026-I**: [Link](https://www.futbolred.com/futbol-colombiano/liga-betplay/tabla-de-posiciones-y-resultados-de-la-fecha-8-de-la-liga-betplay-2026-i-262945)
-- **¡Que el fútbol le sonría esta noche al Deportivo Pereira!**: [Link](https://www.eldiario.com.co/deportes/que-el-futbol-le-sonria-esta-noche-al-deportivo-pereira/)
 
 
