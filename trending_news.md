@@ -1,3 +1,45 @@
+### atlético madrid - club brujas (N/A, 24/02/2026 12:10 Lima)
+
+- **Atlético de Madrid - Brujas hoy, en directo: última hora del playoff de la Champions League, en vivo**: [Link](https://as.com/futbol/champions/atletico-brujas-en-directo-ultima-hora-del-playoff-de-la-champions-league-hoy-en-vivo-f202602-d/)
+- **Joel Ordóñez y el interés de grandes europeos: "Todo se dará con el tiempo"**: [Link](https://www.espn.com.ar/futbol/champions-league/nota/_/id/16349981/que-dijo-joel-ordonez-sobre-el-interes-de-grandes-europeos)
+- **Diego Simeone: Necesitamos a nuestra gente, que estén cerca del equipo**: [Link](https://cnnespanol.cnn.com/2026/02/23/deportes/video/diego-pablo-simeone-atletico-de-madrid-champions-league-futbol-deportes-tv)
+
+
+### duplicado de dni azul (N/A, 24/02/2026 12:10 Lima)
+
+- **Reniec habilita duplicado de DNI azul a electrónico vía web: tramítalo en 4 pasos**: [Link](https://www.gob.pe/institucion/reniec/noticias/1357302-reniec-habilita-duplicado-de-dni-azul-a-electronico-via-web-tramitalo-en-4-pasos)
+- **DNI electrónico gratis para este grupo de peruanos: descubre si eres uno de los beneficiados**: [Link](https://elcomercio.pe/respuestas/tramites/dni-electronico-gratis-para-este-grupo-de-peruanos-descubre-aqui-si-eres-uno-de-los-beneficiados-tdpe-noticia/)
+- **Campaña de DNI electrónico gratuito en Carabayllo: fecha, lugar y beneficiarios**: [Link](https://caretas.pe/nacional/campana-de-dni-electronico-gratuito-en-carabayllo-fecha-lugar-y-beneficiarios/)
+
+
+### temperatura lima (N/A, 24/02/2026 12:10 Lima)
+
+- **Lima y gran parte de la costa en alerta por incremento de temperaturas “de moderada a extrema intensidad”**: [Link](https://rpp.pe/lima/actualidad/senamhi-lima-y-gran-parte-de-la-costa-en-alerta-por-incremento-de-temperaturas-de-moderada-a-extrema-intensidad-noticia-1677218)
+- **Temperatura en Tacna e Ilo supera los 30°**: [Link](https://radiouno.pe/noticias/266597/temperatura-en-tacna-e-ilo-supera-los-30/)
+- **¡Use sombrero de ala ancha! A 37°C llegará temperatura diurna en costa norte esta semana**: [Link](https://andina.pe/agencia/noticia-use-sombrero-ala-ancha-a-37%C2%B0c-llegara-temperatura-diurna-costa-norte-esta-semana-1064081.aspx)
+
+
+### bancolombia (N/A, 24/02/2026 12:10 Lima)
+
+- **Bancolombia restablece algunos servicios y habilita uso de tarjetas y cajeros tras más de 24 horas de fallas**: [Link](https://www.infobae.com/colombia/2026/02/24/bancolombia-restablece-algunos-servicios-y-habilita-uso-de-tarjetas-y-cajeros-tras-mas-de-24-horas-de-fallas/)
+- **¿Por qué no funciona la App Bancolombia hoy? Razones de la caída este 23 de febrero y qué dice el banco**: [Link](https://www.marca.com/co/2026/02/23/funciona-app-bancolombia-hoy-razones-caida-23-febrero-dice-banco.html)
+- **Marcela Torres Córdoba calificó como “inaceptable” que una entidad permanezca fuera de operación por días y advirtió que la falta de estándares comunes afecta la confianza de los usuarios en el ecosistema de pagos inmediatos**: [Link](https://www.facebook.com/infobaecolombia/posts/marcela-torres-c%C3%B3rdoba-calific%C3%B3-como-inaceptable-que-una-entidad-permanezca-fuer/1360737206069038/)
+
+
+### videos (N/A, 24/02/2026 12:10 Lima)
+
+- **Suspect in Nancy Guthrie case had been to the house before the night of her disappearance, source says**: [Link](https://www.cbsnews.com/news/nancy-guthrie-suspect-had-been-to-house-before/)
+- **Savannah Guthrie offers $1m reward for return of her mother: ‘We still believe in a miracle’**: [Link](https://www.theguardian.com/us-news/2026/feb/24/nancy-guthrie-savannah-reward-information)
+- **One photo of man on Nancy Guthrie's porch may be from an earlier date, before her disappearance**: [Link](https://www.nbcnews.com/news/us-news/nancy-guthrie-disappearance-photos-rcna260368)
+
+
+### maria julissa (N/A, 24/02/2026 12:10 Lima)
+
+- **ATERRADA: Modelo de Only Fans niega vínculos con ‘El Mencho’ y teme por su vida (VIDEO)**: [Link](https://peru21.pe/mundo/aterrada-modelo-de-only-fans-niega-vinculos-con-el-mencho/)
+- **🚨 "La desinformación puede causar mucho daño": Influencer María Julissa rompe el silencio tras ser relacionada con el abatimiento de 'El Mencho'**: [Link](https://www.facebook.com/MilenioDiario/photos/-la-desinformaci%C3%B3n-puede-causar-mucho-da%C3%B1o-influencer-mar%C3%ADa-julissa-rompe-el-sil/1397202839103850/)
+- **Intimidante amenaza a la presunta entregadora de "El Mencho" en México: "Mordiste la mano que te da de tragar"**: [Link](https://www.minutouno.com/mundo/intimidante-amenaza-la-presunta-entregadora-el-mencho-mexico-mordiste-la-mano-que-te-da-tragar-n6248700)
+
+
 ### robert carradine (N/A, 24/02/2026 08:19 Lima)
 
 - **Actor Robert Carradine Dies At Age 71**: [Link](https://deadline.com/2026/02/robert-carradine-dead-age-71-1236734055/)
@@ -989,44 +1031,5 @@ Sin noticias relacionadas disponibles.
 - **Qué canal pasa Pereira vs Pasto hoy: dónde ver el partido gratis y en vivo de la Liga BetPlay**: [Link](https://www.365scores.com/es/news/canal-tv-pereira-vs-pasto-gratis/)
 - **Tabla de posiciones y resultados de fecha 8 en la Liga BetPlay 2026-I**: [Link](https://www.futbolred.com/futbol-colombiano/liga-betplay/tabla-de-posiciones-y-resultados-de-la-fecha-8-de-la-liga-betplay-2026-i-262945)
 - **¡Que el fútbol le sonría esta noche al Deportivo Pereira!**: [Link](https://www.eldiario.com.co/deportes/que-el-futbol-le-sonria-esta-noche-al-deportivo-pereira/)
-
-
-### cristal vs universitario (N/A, 21/02/2026 00:07 Lima)
-
-- **Tabla de posiciones Liga 1 2026 EN VIVO: resultados y partidos de la fecha 4 del Torneo Apertura**: [Link](https://depor.com/futbol-peruano/descentralizado/tabla-de-posiciones-de-liga-1-peru-2026-en-vivo-resultados-y-partidos-de-4-torneo-apertura-sporting-cristal-vs-universitario-alianza-lima-vs-sport-boys-noticia/)
-- **Edwin Ordóñez dirigirá el Cristal contra Universitario**: [Link](https://caretas.pe/deportes/edwin-ordonez-dirigira-el-cristal-contra-universitario/)
-- **Nolberto Solano habló del clásico Cristal vs Universitario**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/tiene-su-favorito-nol-solano-hablo-cristal-vs-universitario-n452779)
-
-
-### gimnasia y esgrima - gimnasia (N/A, 20/02/2026 21:30 Lima)
-
-- **El Lobo visita a su homónimo mendocino: ¿el puntapié inicial para la unión de los Gimnasia? | Infocielo**: [Link](https://www.infocielo.com/deportes/el-lobo-visita-a-su-homonimo-mendocino-el-puntapie-inicial-para-la-union-de-los-gimnasia)
-- **En vivo: Gimnasia La Plata visita a su tocayo en Mendoza**: [Link](https://www.elgrafico.com.ar/articulo/primera-division/97951/en-vivo-gimnasia-la-plata-visita-a-su-tocayo-en-mendoza)
-- **Gimnasia vs Gimnasia por la fase de grupos de Liga Profesional EN VIVO. Seguilo minuto a minuto por la web de TN.**: [Link](https://tn.com.ar/deportes/futbol/2026/02/20/gimnasia-vs-gimnasia-en-vivo-por-la-fase-de-grupos-de-la-liga-profesional-hora-donde-ver-y-formaciones/)
-
-
-### alejandro tabilo (N/A, 20/02/2026 21:30 Lima)
-
-- **Tabilo se esforzó al máximo para evitar sorpresas y avanzó a cuartos en el ATP 500 de Río de Janeiro**: [Link](https://www.espn.com.pe/tenis/nota/_/id/16331164/tabilo-se-esforzo-al-maximo-para-evitar-sorpresas-y-avanzo-a-cuartos-en-el-atp-500-de-rio-de-janeiro)
-- **Ignacio Buse vs. Matteo Berrettini EN VIVO: juegan EN DIRECTO en cuartos de final del Río Open**: [Link](https://rpp.pe/tenis/mas-tenis/ignacio-buse-vs-matteo-berrettini-en-vivo-a-que-hora-juegan-y-donde-ver-cuartos-de-final-rio-open-via-atp-tv-link-gratis-noticia-1676689)
-- **Ignacio Buse derrotó 2-1 a Joao Fonseca y clasificó a cuartos de final del ATP 500 de Rio**: [Link](https://depor.com/full-deportes/ignacio-buse-vs-joao-fonseca-en-vivo-hoy-espn-disney-plus-por-octavos-de-final-de-atp-500-de-rio-de-janeiro-2026-en-directo-online-por-internet-gratis-brasil-video-noticia/)
-
-
-### marco huamán (N/A, 20/02/2026 21:30 Lima)
-
-- **Alianza vs. Boys: el árbitro anula el segundo gol de los íntimos anotado por Marco Huamán**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/alianza-vs-boys-gol-anulado-a-marco-huaman-que-habia-ampliado-la-ventaja-para-los-intimos-noticia/)
-- **VAR anuló golazo de Marco Huamán que era el 2-0 de Alianza Lima sobre Boys - VIDEO**: [Link](https://libero.pe/videos/liga-1/2026/02/20/alianza-lima-vs-sport-boys-en-vivo-gol-anulado-de-marco-huaman-en-partido-del-torneo-apertura-liga-1-1967220)
-
-
-### alianza lima versus sport boys (N/A, 20/02/2026 21:30 Lima)
-
-Sin noticias relacionadas disponibles.
-
-
-### ldu (N/A, 20/02/2026 21:30 Lima)
-
-- **Excompañero en LDU sobre Hernán Barcos: "Es una persona maravillosa"**: [Link](https://rpp.pe/futbol/descentralizado/excompanero-en-ldu-sobre-hernan-barcos-es-una-persona-maravillosa-noticia-1676816)
-- **Delantero de Independiente del Valle destacó a Hernán Barcos y aseguró que fue como su padre: "Es gigante lo que representa en mí"**: [Link](https://larepublica.pe/deportes/2026/02/20/delantero-de-independiente-del-valle-destaco-a-hernan-barcos-y-aseguro-que-fue-como-su-padre-es-gigante-lo-que-representa-en-mi-1367720)
-- **Ex compañero de Hernán Barcos reveló cómo es realmente el 'Pirata': "Es una..."**: [Link](https://libero.pe/futbol-peruano/liga-1/2026/02/20/alianza-lima-ex-companero-de-hernan-barcos-revelo-como-es-realmente-pirata-es-350940)
 
 
