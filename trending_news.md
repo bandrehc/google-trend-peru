@@ -1,3 +1,43 @@
+### stephanie cayo (N/A, 24/02/2026 00:22 Lima)
+
+- **¡Agarrados de las manos! Stephani Cayo acompaña a Alejandro Sanz durante su gira**: [Link](https://www.atv.pe/noticia/agarrados-de-las-manos-stephani-cayo-acompana-a-alejandro-sanz-durante-su-gira/)
+- **Stephanie Cayo tendría una relación sentimental con Alejandro Sanz | VIDEO | Farándula | ESPECTACULOS**: [Link](https://trome.com/espectaculos/tv/stephanie-cayo-tendria-una-relacion-sentimental-con-alejandro-sanz-video-farandula-noticia/)
+
+
+### liam gallagher (N/A, 24/02/2026 00:22 Lima)
+
+- **Yungblud wants to record a Bond theme with Oasis**: [Link](https://uk.news.yahoo.com/yungblud-wants-record-bond-theme-120000945.html)
+- **Liam Gallagher has offered Yungblud a strange role on Oasis' James Bond theme tune**: [Link](https://www.dailystar.co.uk/music/liam-gallagher-offered-yungblud-strange-36762946)
+- **Yungblud wants to join Oasis on a James Bond theme after Noel Gallagher addresses 007 rumours**: [Link](https://www.contactmusic.com/story/467/3480233/yungblud-wants-to-join-oasis-on-a-james-bond-theme-after-noel-gallagher-addresses-007-rumours)
+
+
+### miguel bose (N/A, 24/02/2026 00:22 Lima)
+
+- **MIGUEL BOSÉ EN LIMA: ADQUIERE AQUÍ LAS ÚLTIMAS ENTRADAS**: [Link](https://blog.ticketmaster.pe/concierto/miguel-bose-en-lima-adquiere-aqui-las-ultimas-entradas-3763/)
+- **Miguel Bosé llega a Gran Arena Monticello con “Importante Tour”**: [Link](https://www.ossom.cl/miguel-bose-llega-a-gran-arena-monticello-con-importante-tour/)
+- **CONCURSO IMAGINA: ¡Participa por una experiencia completa para Miguel Bosé Chile 2026! Incluye entradas para concierto en Movistar Arena**: [Link](https://www.radioimagina.cl/2026/02/concurso-imagina-participa-por-una-experiencia-completa-para-miguel-bose-chile-2026-incluye-entradas-para-concierto-en-movistar-arena/)
+
+
+### marisel linares y su pareja (N/A, 24/02/2026 00:22 Lima)
+
+- **Dictan 9 meses de impedimento de salida del país contra Adrián Villar**: [Link](https://peru21.pe/policiales/en-vivo-audiencia-requerimiento-de-impedimento-de-salida-del-pais-adrian-villar/)
+- **Caso Lizeth Marzano | Presentó boleta de restaurante y no pasó dosaje | La estrategia legal del joven que atropelló y mató a campeona nacional | video | ACTUALIDAD**: [Link](https://trome.com/actualidad/policiales/caso-lizeth-marzano-presento-boleta-de-restaurante-y-no-paso-dosaje-la-estrategia-legal-del-joven-que-atropello-y-mato-a-campeona-nacional-video-noticia/)
+- **PNP solicitó detención de Adrián Villar y Marisel Linares tras muerte de Lizeth Marzano, pero no procedió**: [Link](https://www.infobae.com/peru/2026/02/23/pnp-solicito-detencion-de-adrian-villar-y-marisel-linares-tras-muerte-de-lizeth-marzano-pero-fiscalia-no-procedio/)
+
+
+### agua (N/A, 24/02/2026 00:22 Lima)
+
+- **Sedimentos en Aguada Blanca ponen en riesgo el abastecimiento de agua en Arequipa (VIDEO)**: [Link](https://diariocorreo.pe/edicion/arequipa/sedimentos-en-aguada-blanca-ponen-en-riesgo-el-abastecimiento-de-agua-en-arequipa-video-noticia/)
+- **Miraflores respalda pedido de declaratoria de emergencia para Arequipa**: [Link](https://www.gob.pe/institucion/munimiraflores-arequipa/noticias/1357808-miraflores-respalda-pedido-de-declaratoria-de-emergencia-para-arequipa)
+- **La catástrofe inminente**: [Link](https://elcomercio.pe/opinion/editorial/la-llegada-de-el-nino-costero-es-un-hecho-y-las-regiones-parecen-libradas-a-su-suerte-noticia/)
+
+
+### carlos alcantara (N/A, 24/02/2026 00:22 Lima)
+
+- **Carlos Alcántara sorprende al elogiar y expresar su admiración por Shirley Arica: "Fue un pretexto para conocerte"**: [Link](https://larepublica.pe/espectaculos/2026/02/23/carlos-alcantara-sorprende-al-elogiar-y-expresar-su-admiracion-por-shirley-arica-fue-un-pretexto-para-conocerte-1390005)
+- **Carlos Alcántara dejó en shock a Shirley Arica al hacerle sorpresiva confesión**: [Link](https://www.ritmoromantica.pe/noticias/espectaculos/carlos-alcantara-dejo-en-shock-a-shirley-arica-al-hacerle-sorpresiva-confesion-video/)
+
+
 ### mirtha legrand (N/A, 23/02/2026 21:40 Lima)
 
 - **Del brillante look de la Chiqui en la previa a su cumpleaños 99 a sus consejos para mantenerse espléndida**: [Link](https://www.lanacion.com.ar/espectaculos/personajes/la-noche-de-mirtha-del-brillante-look-de-la-chiqui-en-la-previa-a-su-cumpleanos-99-a-sus-consejos-nid22022026/)
@@ -988,47 +1028,5 @@ Sin noticias relacionadas disponibles.
 - **Alianza Lima vs. Sport Boys EN VIVO: minuto a minuto por internet gratis vía Liga 1 MAX**: [Link](https://depor.com/futbol-peruano/descentralizado/alianza-lima-vs-sport-boys-en-vivo-minuto-a-minuto-gratis-hoy-liga-1-max-movistar-tv-futbol-libre-tv-directv-zapping-y-canales-de-transmision-online-en-directo-por-torneo-apertura-2026-noticia/)
 - **Pablo Guede se juega el puesto ante Sport Boys**: [Link](https://caretas.pe/deportes/pablo-guede-se-juega-el-puesto-ante-sport-boys/)
 - **Alineaciones Alianza Lima vs Sport Boys HOY: el sorprendente once de Guede para volver al triunfo**: [Link](https://libero.pe/futbol-peruano/alianza-lima/2026/02/19/alineaciones-alianza-lima-vs-sport-boys-formacion-del-partido-de-liga-1-peru-apertura-1612663)
-
-
-### defensa y justicia - belgrano (N/A, 20/02/2026 15:39 Lima)
-
-- **¿Dónde ver EN VIVO y ONLINE Defensa y Justicia vs. Belgrano por el Torneo Apertura 2026?**: [Link](https://www.futbolargentino.com/primera-division/noticias/fecha-6-del-torneo-apertura-donde-ver-en-vivo-y-online-defensa-y-justicia-vs-belgrano-564727)
-- **El Halcón vs el Pirata**: [Link](https://www.vavel.com/ar/futbol-argentino/2026/02/19/defensa-y-justicia/1251348.html)
-- **Duelo de invictos: Belgrano va por la punta ante el Halcón**: [Link](https://www.cba24n.com.ar/deportes/futbol/belgrano/duelo-de-invictos--belgrano-va-por-la-punta-ante-el-halcon_a6998446f212877466111f6f6)
-
-
-### athletic bilbao (N/A, 20/02/2026 15:39 Lima)
-
-- **🚨Confirmed XIs: Athletic and Elche kick off matchday 25**: [Link](https://sports.yahoo.com/articles/confirmed-xis-athletic-elche-kick-184400736.html)
-- **Where to Watch Athletic Bilbao vs. Elche CF: TV Channel, Start Time and Live Stream**: [Link](https://www.bleachernation.com/how-to-watch/2026/02/19/where-to-watch-athletic-bilbao-vs-elche-cf-tv-channel-start-time-and-live-stream/)
-- **Valverde recalls Vivian and Selton for Elche clash at San Mamés**: [Link](https://onefootball.com/en/news/valverde-recalls-vivian-and-selton-for-elche-clash-at-san-mames-42436632)
-
-
-### marsella (N/A, 20/02/2026 15:39 Lima)
-
-- **Liga de Francia: Stade Brestois recibirá a Olympique de Marsella por la fecha 23**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-de-francia-stade-brestois-recibira-a-olympique-de-marsella-por-la-fecha-23-noticia-1676557)
-- **Pronóstico Brest vs. Marseille - Un duelo de realidades opuestas**: [Link](https://gainblers.com/ec/pronosticos/futbol/francia/ligue-1/pronostico-brest-marseille-20-02-2026/)
-- **"No espero un equipo desestabilizado": Eric Roy desconfía del OM**: [Link](https://tribuna.com/es/news/2026-02-19-no-espero-un-equipo-desestabilizado-eric-roy-desconfia-del-om/)
-
-
-### fernando gaibor (N/A, 20/02/2026 15:39 Lima)
-
-- **Fernando Gaibor recurre a la FIFA por incumplimiento en pagos de salarios**: [Link](https://bolavip.com/pe/alianza-lima/fernando-gaibor-recurre-a-la-fifa-por-incumplimiento-en-pagos-de-salarios)
-- **La joya del fútbol chileno tiene nuevo club: fichaje millonario en Argentina**: [Link](https://chile.as.com/futbol/chilenos-por-el-mundo/la-joya-del-futbol-chileno-tiene-nuevo-club-fichaje-millonario-en-argentina-f202602-n/)
-- **Milagro de dos millones**: [Link](https://onefootball.com/es/noticias/milagro-de-dos-millones-42440179)
-
-
-### mensik (N/A, 20/02/2026 15:39 Lima)
-
-- **Mensik stuns Sinner in Doha for biggest win of his career**: [Link](https://www.atptour.com/en/news/sinner-mensik-doha-2026-qf)
-- **Why Jannik Sinner's shock Qatar Open exit is a blow to his world No 1 hopes**: [Link](https://www.tennis365.com/tennis-features/how-jannik-sinner-qatar-open-loss-affects-carlos-alcaraz-world-no-1-chase)
-- **Qatar ExxonMobil Open Betting Odds and Match Previews for February 19, 2026, Men's Singles**: [Link](https://sportsbookwire.usatoday.com/story/sports/sports-betting/2026/02/19/qatar-exxonmobil-open-betting-odds-favorites-match-previews-2-18-2026-mens/88752168007/)
-
-
-### rio rimac (N/A, 20/02/2026 15:39 Lima)
-
-- **Cercado de Lima: policía fue arrastrado por las aguas del río Rímac tras ingresar a rescatar a perrito [VIDEO]**: [Link](https://rpp.pe/lima/actualidad/cercado-de-lima-policia-fue-arrastrado-por-las-aguas-del-rio-rimac-tras-ingresar-a-rescatar-a-perrito-video-noticia-1676786)
-- **Encuentran cuerpo sin vida de rescatista que intentó salvar a perrito en río Rímac**: [Link](https://larepublica.pe/sociedad/2026/02/20/encuentran-cuerpo-sin-vida-de-rescatista-que-intento-salvar-a-perrito-en-rio-rimac-918360)
-- **Policía es arrastrado por el río Rímac cuando intentaba rescatar a un perrito**: [Link](https://andina.pe/agencia/noticia-policia-es-arrastrado-por-rio-rimac-cuando-intentaba-rescatar-a-un-perrito-1063839.aspx)
 
 
