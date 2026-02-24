@@ -1,3 +1,50 @@
+### mirtha legrand (N/A, 23/02/2026 21:40 Lima)
+
+- **Del brillante look de la Chiqui en la previa a su cumpleaños 99 a sus consejos para mantenerse espléndida**: [Link](https://www.lanacion.com.ar/espectaculos/personajes/la-noche-de-mirtha-del-brillante-look-de-la-chiqui-en-la-previa-a-su-cumpleanos-99-a-sus-consejos-nid22022026/)
+- **Mirtha Legrand ya festeja a puro lujo su cumpleaños 99**: [Link](https://www.clarin.com/espectaculos/listo-gran-festejo-mirtha-legrand_0_pHVk3O8rqP.html)
+- **Mshow del lunes 23 de febrero de 2026**: [Link](https://www.ciudad.com.ar/videos/magazine/2026/02/23/mshow-programa-del-230226-los-99-de-mirtha-celebracion-especial/)
+
+
+### gallardo (N/A, 23/02/2026 21:40 Lima)
+
+- **River: Los posibles candidatos para reemplazar a Marcelo Gallardo**: [Link](https://www.espn.com.ar/futbol/argentina/nota/_/id/16350847/river-plate-candidatos-para-reemplazar-marcelo-gallardo-entrenador)
+- **Ruggeri, en ESPN F90: "A Gallardo lo superó la situación"**: [Link](https://espndeportes.espn.com/futbol/argentina/nota/_/id/16349063/video-polemica-en-river-a-gallardo-lo-supero-la-situacion-dijo-ruggeri-en-espn-f90)
+- **¿Dónde se vio River vs Vélez (0-1) por la Liga Profesional?**: [Link](https://depor.com/futbol-internacional/argentina/donde-ver-river-vs-velez-en-vivo-gratis-canales-de-espn-tnt-sports-pelota-libre-tv-disney-plus-torneo-apertura-2026-video-noticia/)
+
+
+### viña del mar 2026 (N/A, 23/02/2026 21:40 Lima)
+
+- **Viña 2026: Pet Shop Boys y el inédito montaje de 20 toneladas**: [Link](https://www.t13.cl/noticia/espectaculos/el-inedito-motivo-obligara-intervenir-escenario-vina-por-primera-vez-23-2-2026)
+- **“Es como ganar la Copa del Mundo”: El estudio y la preparación que hizo Pet Shop Boys para entender el rito de las Gaviotas en el Festival de Viña**: [Link](https://www.theclinic.cl/2026/02/23/es-como-ganar-la-copa-del-mundo-el-estudio-y-la-preparacion-que-hizo-pet-shop-boys-para-entender-el-rito-de-las-gaviotas-en-el-festival-de-vina/)
+- **Festival de Viña 2026: Este es el setlist que interpretará Pet Shop Boys en la Quinta Vergara**: [Link](https://www.fmdos.cl/noticias/festival-de-vina-2026-este-es-el-setlist-que-interpretara-pet-shop-boys-en-la-quinta-vergara/)
+
+
+### pronostico everton vs manchester united (N/A, 23/02/2026 21:40 Lima)
+
+- **Manchester United le ganó a Everton y está cuarto en la Premier League**: [Link](https://www.espn.com.pe/futbol/inglaterra/nota/_/id/16336944/manchester-united-vs-everton-premier-league-equipo-fecha-hora-y-tv-en-vivo)
+- **Premier League: Manchester United visita a Everton por la fecha 27**: [Link](https://rpp.pe/futbol/ligas-internacionales/premier-league-manchester-united-visita-a-everton-por-la-fecha-27-noticia-1677006)
+- **Puntuación del Everton vs Man United, puntos de conversación, los hombres de Carrick apuntan a impulsar las esperanzas de estar entre los cuatro primeros de la Premier League**: [Link](https://www.ucvradio.pe/mas-actualidad/puntuacion-del-everton-vs-man-united-puntos-de-conversacion-los-hombres-de-carrick-apuntan-a-impulsar-las-esperanzas-de-estar-entre-los-cuatro-primeros-de-la-premier-league/138705/)
+
+
+### bbva (N/A, 23/02/2026 21:40 Lima)
+
+- **BBVA Announces Publication of New Share Buyback Program Details**: [Link](https://www.tipranks.com/news/company-announcements/bbva-announces-publication-of-new-share-buyback-program-details)
+- **Elliott woos shareholders backing Toyota Industries buyout, sources say**: [Link](https://www.tradingview.com/news/reuters.com,2026:newsml_L4N3ZG003:0-elliott-woos-shareholders-backing-toyota-industries-buyout-sources-say/)
+- **Preferential US chip tariffs will not change, Taiwan says**: [Link](https://www.tradingview.com/news/reuters.com,2026:newsml_P8N3V204S:0-preferential-us-chip-tariffs-will-not-change-taiwan-says/)
+
+
+### cadiz vs (N/A, 23/02/2026 21:40 Lima)
+
+Sin noticias relacionadas disponibles.
+
+
+### everton (N/A, 23/02/2026 21:40 Lima)
+
+- **Lisandro Martinez to miss Manchester United’s trip to Everton due to injury - The Athletic**: [Link](https://www.nytimes.com/athletic/7065679/2026/02/23/lisandro-martinez-injury-everton-manchester-united/)
+- **Man Utd XI vs Everton: Starting lineup and confirmed team news**: [Link](https://www.msn.com/en-gb/sport/football/man-utd-xi-vs-everton-starting-lineup-and-confirmed-team-news/ar-AA1WNcB3)
+- **‘Unfortunately…’: Michael Carrick sheds light on Lisandro Martinez’s injury condition after untimely layoff**: [Link](https://sports.yahoo.com/articles/unfortunately-michael-carrick-sheds-light-204500486.html)
+
+
 ### alaves vs girona (N/A, 23/02/2026 15:51 Lima)
 
 - **Míchel demands consistency from the team before visiting Vitoria**: [Link](https://sports.yahoo.com/articles/m-chel-demands-consistency-team-121000133.html)
@@ -983,53 +1030,5 @@ Sin noticias relacionadas disponibles.
 - **Cercado de Lima: policía fue arrastrado por las aguas del río Rímac tras ingresar a rescatar a perrito [VIDEO]**: [Link](https://rpp.pe/lima/actualidad/cercado-de-lima-policia-fue-arrastrado-por-las-aguas-del-rio-rimac-tras-ingresar-a-rescatar-a-perrito-video-noticia-1676786)
 - **Encuentran cuerpo sin vida de rescatista que intentó salvar a perrito en río Rímac**: [Link](https://larepublica.pe/sociedad/2026/02/20/encuentran-cuerpo-sin-vida-de-rescatista-que-intento-salvar-a-perrito-en-rio-rimac-918360)
 - **Policía es arrastrado por el río Rímac cuando intentaba rescatar a un perrito**: [Link](https://andina.pe/agencia/noticia-policia-es-arrastrado-por-rio-rimac-cuando-intentaba-rescatar-a-un-perrito-1063839.aspx)
-
-
-### al qadisiya (N/A, 20/02/2026 15:39 Lima)
-
-- **Al-Qadisiyah will face Al-Akhdoud with their full force in the Roshan League**: [Link](https://news50.sa/en/sports/al-qadsiah-vs-al-okhdood-roshn-league-preparations/)
-- **Al Okhdood vs Al Qadsiah Preview & Prediction**: [Link](https://www.thestatszone.com/al-okhdood-vs-al-qadsiah-preview-prediction-171491)
-- **Preview: Al Okhdood vs Al Qadsiah Prediction, lineups, betting tips & odds | Saudi Pro League 2025-26**: [Link](https://khelnow.com/football/world-football-al-okhdood-vs-al-qadsiah-preview-202602)
-
-
-### mainz 05 - hamburg (N/A, 20/02/2026 15:39 Lima)
-
-- **Bundesliga » 1. FSV Mainz 05 gegen Hamburger SV » Liveticker**: [Link](https://www.weltfussball.at/spielbericht/co12/deutschland-bundesliga/ma11200001/1-fsv-mainz-05_hamburger-sv/liveticker/)
-- **HSV im Stau! Partie in Mainz beginnt 10 Minuten später**: [Link](https://www.bild.de/sport/fussball/hsv-im-stau-partie-in-mainz-beginnt-10-minuten-spaeter-6998aed3153f05936cafe9fd)
-- **Bundesliga live: Dritter Sieg in Folge? HSV muss bei Mainz 05 ran**: [Link](https://www.express.de/sport/fussball/bundesliga-live-alle-spiele-des-23-spieltags-im-ticker-1091029)
-
-
-### sassuolo - hellas verona (N/A, 20/02/2026 15:39 Lima)
-
-- **Sassuolo vs Hellas Verona Prediction and Betting Tips | 20th February 2026**: [Link](https://www.sportskeeda.com/football/sassuolo-vs-hellas-verona-prediction-betting-tips-20th-february-2026)
-- **Build Your Euro Multi-Match Bet with Friday’s 6/1 Football Tips**: [Link](https://www.filmogaz.com/159028)
-- **#SassuoloVerona | Words from coach Paolo Sammarco**: [Link](https://www.hellasverona.it/en/news/sassuoloverona-words-from-coach-paolo-sammarco)
-
-
-### hamburgo vs (N/A, 20/02/2026 15:39 Lima)
-
-- **Pronóstico Mainz 05 vs. Hamburg - Una lucha por la mitad de la tabla**: [Link](https://gainblers.com/pe/pronosticos/futbol/alemania/1bundesliga/pronostico-mainz-05-hamburg-20-02-2026/)
-- **El encuentro de las expulsiones llega a la Bundesliga**: [Link](https://www.flashscore.pe/noticias/futbol-bundesliga-alerta-roja-llega-partido-expulsiones/fa1ZRXvf/)
-
-
-### nestle helados (N/A, 20/02/2026 11:49 Lima)
-
-- **Nestlé se retira del mercado de helados y reduce su presencia en el de agua embotellada**: [Link](https://elcomercio.pe/economia/negocios/nestle-se-retira-del-mercado-de-helados-y-reduce-su-presencia-en-el-de-agua-embotellada-philipp-navratil-suiza-ultimas-noticia/)
-- **Pablo Isla, a los accionistas de Nestlé: “Afrontamos ahora muchas de las dinámicas a las que me enfrenté en Inditex”**: [Link](https://elpais.com/economia/2026-02-19/pablo-isla-a-los-accionistas-de-nestle-afrontamos-ahora-muchas-de-las-dinamicas-a-las-que-me-enfrente-en-inditex.html)
-- **Nestlé vende su negocio de helados y ajusta su estrategia de marketing en medio de reestructuración global**: [Link](https://www.merca20.com/nestle-vende-negocio-helados-estrategia-marketing-froneri/)
-
-
-### daniel urresti (N/A, 20/02/2026 11:49 Lima)
-
-- **Tribunal Constitucional ordena la libertad de Daniel Urresti**: [Link](https://peru21.pe/politica/tribunal-constitucional-ordena-la-libertad-de-daniel-urresti/)
-- **Caso Urresti: TC anula sentencia por aplicación retroactiva de lesa humanidad**: [Link](https://www.elperuano.pe/noticia/289616-caso-urresti-tc-anula-sentencia-por-aplicacion-retroactiva-de-lesa-humanidad)
-- **Tribunal Constitucional revoca condena de Daniel Urresti por caso Hugo Bustíos y ordena su liberación**: [Link](https://rpp.pe/politica/judiciales/daniel-urresti-tribunal-constitucional-orden-su-liberacion-y-revoca-condena-por-caso-hugo-bustios-noticia-1676768)
-
-
-### google pixel 10a (N/A, 20/02/2026 11:49 Lima)
-
-- **Google’s Pixel 10a Looks Pretty Familiar**: [Link](https://www.wired.com/story/google-pixel-10a/)
-- **Get your first look at the new Pixel 10a.**: [Link](https://blog.google/products-and-platforms/devices/pixel/google-pixel-10a-first-look-video/)
-- **Google Debuts $499 Pixel 10a Just Ahead of the iPhone 17e Reveal**: [Link](https://www.bloomberg.com/news/articles/2026-02-18/google-announces-499-pixel-10a-just-before-expected-iphone-17e-reveal)
 
 
