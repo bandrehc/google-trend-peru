@@ -1,3 +1,31 @@
+### robert carradine (N/A, 24/02/2026 08:19 Lima)
+
+- **Actor Robert Carradine Dies At Age 71**: [Link](https://deadline.com/2026/02/robert-carradine-dead-age-71-1236734055/)
+- **‘Lizzie McGuire’ Star Robert Carradine Dies by Suicide – Hilary Duff & More Pay Tribute**: [Link](https://www.yahoo.com/entertainment/tv/articles/lizzie-mcguire-star-robert-carradine-124503855.html)
+- **Robert Carradine, Revenge of the Nerds and Lizzie McGuire actor, dies aged 71**: [Link](https://www.theguardian.com/film/2026/feb/24/robert-carradine-dies-aged-71-death-revenge-of-the-nerds-actor)
+
+
+### diana ospina desaparecida (N/A, 24/02/2026 08:19 Lima)
+
+- **En video: así fue el conmovedor reencuentro de Diana Ospina con su familia tras días de desaparición**: [Link](https://www.infobae.com/colombia/2026/02/24/en-video-asi-fue-el-conmovedor-reencuentro-de-diana-ospina-con-su-familia-tras-dias-de-desaparicion/)
+- **Martes 24 de febrero, las noticias más importantes de Armenia y Quindío**: [Link](https://caracol.com.co/2026/02/24/martes-24-de-febrero-las-noticias-mas-importantes-de-armenia-y-quindio/)
+- **La millonaria suma de dinero que robaron a Diana Ospina tras secuestro y paseo millonario en Bogotá**: [Link](https://www.noticiascaracol.com/colombia/bogota/la-millonaria-suma-de-dinero-que-robaron-a-diana-ospina-tras-secuestro-y-paseo-millonario-en-bogota-rg10)
+
+
+### convocatoria onpe (N/A, 24/02/2026 08:19 Lima)
+
+- **ONPE lanza convocatoria 2026 con 23 mil puestos para secundaria completa: pagan S/ 2.000 y así puedes postular**: [Link](https://www.infobae.com/peru/2026/02/24/onpe-lanza-convocatoria-2026-con-23-mil-puestos-para-secundaria-completa-pagan-s-2000-y-asi-puedes-postular/)
+- **ONPE publica lista de 2 769 coordinadores: revisa y presenta tachas de ser el caso**: [Link](https://www.elperuano.pe/noticia/289426-onpe-publica-lista-de-2-769-coordinadores-revisa-y-presenta-tachas-de-ser-el-caso)
+- **Elecciones 2026: ONPE abre 23 mil puestos de coordinador de mesa con sueldo de 2 mil soles**: [Link](https://lalupa.pe/peru/elecciones-2026-onpe-abre-23-mil-puestos-de-coordinador-de-mesa-con-sueldo-de-2-mil-soles-107165)
+
+
+### sky (N/A, 24/02/2026 08:19 Lima)
+
+- **Shrouded Sky update: The hurricane strikes**: [Link](https://arcraiders.com/news/shrouded-sky-content-update)
+- **Embark Shows Off Arc Raiders Shrouded Sky Update With First Look at Two New Threats...and Beards**: [Link](https://www.ign.com/articles/embark-shows-off-arc-raiders-shrouded-sky-update-with-first-look-at-two-new-threatsand-beards)
+- **Arc Raiders adds a flying flamethrower-using murder drone (and also beards)**: [Link](https://www.polygon.com/arc-raiders-shrouded-sky-update-patch-notes/)
+
+
 ### coordinador de mesa onpe 2026 (N/A, 24/02/2026 03:56 Lima)
 
 - **ONPE lanza convocatoria 2026 con 23 mil puestos para secundaria completa: pagan S/ 2.000 y así puedes postular**: [Link](https://www.infobae.com/peru/2026/02/24/onpe-lanza-convocatoria-2026-con-23-mil-puestos-para-secundaria-completa-pagan-s-2000-y-asi-puedes-postular/)
@@ -1000,33 +1028,5 @@ Sin noticias relacionadas disponibles.
 - **Excompañero en LDU sobre Hernán Barcos: "Es una persona maravillosa"**: [Link](https://rpp.pe/futbol/descentralizado/excompanero-en-ldu-sobre-hernan-barcos-es-una-persona-maravillosa-noticia-1676816)
 - **Delantero de Independiente del Valle destacó a Hernán Barcos y aseguró que fue como su padre: "Es gigante lo que representa en mí"**: [Link](https://larepublica.pe/deportes/2026/02/20/delantero-de-independiente-del-valle-destaco-a-hernan-barcos-y-aseguro-que-fue-como-su-padre-es-gigante-lo-que-representa-en-mi-1367720)
 - **Ex compañero de Hernán Barcos reveló cómo es realmente el 'Pirata': "Es una..."**: [Link](https://libero.pe/futbol-peruano/liga-1/2026/02/20/alianza-lima-ex-companero-de-hernan-barcos-revelo-como-es-realmente-pirata-es-350940)
-
-
-### paolo guerrero (N/A, 20/02/2026 21:30 Lima)
-
-- **"Es un técnico intenso": Paolo Guerrero pide paciencia para el proceso de Pablo Guede**: [Link](https://rpp.pe/futbol/descentralizado/alianza-lima-es-un-tecnico-intenso-paolo-guerrero-pide-paciencia-para-el-proceso-de-pablo-guede-noticia-1676775)
-- **“Pablo Guede es un técnico intenso...”: Paolo Guerrero revela cómo es la relación entre ambos y cuál es el compromiso en la previa contra Sport Boys**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/alianza-lima-pablo-guede-es-un-tecnico-intenso-paolo-guerrero-revela-como-es-la-relacion-entre-ambos-y-cual-es-el-compromiso-en-la-previa-contra-sport-boys-tlcnota-noticia/)
-- **Paolo Guerrero impacta con drástico cambio tras ser señalado por hinchas de Alianza Lima**: [Link](https://libero.pe/futbol-peruano/alianza-lima/2026/02/19/paolo-guerrero-impacta-drastico-cambio-ser-senalado-hinchas-de-alianza-lima-foto-977778)
-
-
-### rosario central - talleres (N/A, 20/02/2026 21:30 Lima)
-
-- **Cuándo juegan Rosario Central vs. Talleres por el Torneo Apertura 2026: equipo, fecha, hora y TV en vivo**: [Link](https://espndeportes.espn.com/futbol/argentina/nota/_/id/16328116/rosario-central-vs-talleres-cordoba-torneo-apertura-2026-equipo-fecha-hora-y-tv-en-vivo)
-- **Así viene el Canalla**: [Link](https://www.vavel.com/ar/futbol-argentino/2026/02/20/talleres-de-cordoba/1251416-asi-viene-el-canalla.html)
-- **¿EL COPETTI BIEN ARRIBA?**: [Link](https://www.pressreader.com/argentina/ole/20260220/281835765166673)
-
-
-### tigres - pachuca (N/A, 20/02/2026 21:30 Lima)
-
-- **Liga MX: Se enfrentan Tigres y Pachuca por la fecha 7**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-se-enfrentan-tigres-y-pachuca-por-la-fecha-7-noticia-1676619)
-- **Qué canal pasa Tigres vs Pachuca hoy: dónde ver GRATIS y EN VIVO el partido de la Liga MX**: [Link](https://www.365scores.com/es/news/tigres-vs-pachuca-donde-ver-gratis-vivo/)
-- **Bajo mando de Esteban Solari, Pachuca llega al Uni con cinco juegos sin perder.**: [Link](https://www.oncediario.com/notas/60918-esteban-solari-tigres-pachuca-tuzos-liga-mx-clausura-2026-jornada-7-analisis-de-juego)
-
-
-### instituto - atlético tucumán (N/A, 20/02/2026 21:30 Lima)
-
-- **Instituto lo fue a buscar y tuvo su premio sobre la hora ante Atlético Tucumán**: [Link](https://www.espn.com.ar/futbol/argentina/nota/_/id/16337823/instituto-vs-atletico-tucuman-comentario-torneo-apertura)
-- **Con Cerato salvador, el 2-1 en los últimos minutos y el penal polémico: el 1x1 de la Gloria ante Atlético**: [Link](https://www.lavoz.com.ar/deportes/futbol/con-cerato-salvador-el-2-1-en-los-ultimos-minutos-y-el-penal-polemico-el-1x1-de-la-gloria-ante-atletico/)
-- **Diego Flores tras la victoria: "El equipo que buscó el partido fue Instituto" febrero 2026**: [Link](https://canalshowsport.com.ar/diego-flores-tras-la-victoria-el-equipo-que-busco-el-partido-fue-instituto/)
 
 
