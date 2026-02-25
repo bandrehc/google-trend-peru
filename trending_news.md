@@ -1,3 +1,73 @@
+### paris vs (N/A, 25/02/2026 15:41 Lima)
+
+- **Jordan Teze : "Faire notre maximum et jouer tous les coups à fond"**: [Link](https://www.asmonaco.com/conference-de-presse-jordan-teze-avant-psg-monaco-barrage-retour-ldc-faire-notre-maximum-et-jouer-tous-les-coups-a-fond/)
+- **"Il faut prendre le match très au sérieux" : Amara Simba envoie un message aux Parisiens avant PSG-Monaco**: [Link](https://tribuna.com/fr/news/2026-02-25-il-faut-prendre-le-match-tres-au-serieux-amara-simba-envoie-un-message-aux-parisiens-avan/)
+- **Barrage Retour de Ligue des Champions : Suivez Paris Saint-Germain - Monaco EN DIRECT**: [Link](https://www.eurosport.fr/football/ligue-des-champions/2025-2026/live-paris-saint-germain-monaco_mtc1601194/live-commentary.shtml)
+
+
+### championship (N/A, 25/02/2026 15:41 Lima)
+
+- **Swindon man loved wife he is accused of killing, court told**: [Link](https://www.bbc.com/news/articles/ckgly01vjmlo)
+- **'I loved and cherished her': Husband denies ‘tsunami’ of abuse that led to wife’s suicide**: [Link](https://www.lbc.co.uk/article/christopher-trybus-tarryn-baird-manslaughter-swindon-court-5HjdTX2_2/)
+- **Man spared jail over illicit library with almost 40,000 indecent images of children**: [Link](https://www.edp24.co.uk/news/25887331.norwich-man-spared-jail-possession-indecent-images/)
+
+
+### real madrid vs (N/A, 25/02/2026 15:41 Lima)
+
+- **Real Madrid-Benfica, en directo: última hora del playoff de la Champions League, hoy en vivo**: [Link](https://as.com/futbol/champions/real-madrid-benfica-en-directo-ultima-hora-del-playoff-de-la-champions-league-hoy-en-vivo-f202602-d/)
+- **Real Madrid vs. Benfica (25 de Feb., 2026) Resultados en Vivo**: [Link](https://espndeportes.espn.com/futbol/partido/_/juegoId/401858769)
+- **¿Dónde ver TV EN DIRECTO, Real Madrid-Benfica ONLINE por Champions League?**: [Link](https://elcomercio.pe/deporte-total/espana/donde-ver-real-madrid-vs-benfica-hoy-en-directo-a-que-hora-juega-y-en-que-canales-tv-transmiten-partido-de-vuelta-por-playoff-de-champions-league-noticia/)
+
+
+### benfica (N/A, 25/02/2026 15:41 Lima)
+
+- **O Santiago Bernabéu vai inaugurar um mosaico diante do Benfica com as mensagens “sem racismo” e “respeito”.**: [Link](https://www.segundabase.com.br/estatisticas/o-santiago-bernabeu-vai-inaugurar-um-mosaico-diante-do-benfica-com-as-mensagens-sem-racismo-e-respeito/138730/)
+- **Torcida do Real mostra faixa após denúncia feita por Vini Jr. 👇🏽**: [Link](https://onefootball.com/en/news/torcida-do-real-mostra-faixa-apos-denuncia-feita-por-vini-jr-42467347)
+- **Veja o onze do Benfica para o jogo com o Real Madrid**: [Link](https://www.cmjornal.pt/desporto/futebol/detalhe/20260225-185202-veja-o-onze-do-benfica-para-o-jogo-com-o-real-madrid)
+
+
+### juventus (N/A, 25/02/2026 15:41 Lima)
+
+- **Spalletti chiama lo Stadium: "Tifosi con noi! Retroscena Yildiz, Bremer di pasta bianconera e Di Gregorio..."**: [Link](https://www.tuttosport.com/news/calcio/serie-a/juventus/2026/02/24-146839509/spalletti_chiama_lo_stadium_tifosi_con_noi_retroscena_yildiz_bremer_di_pasta_bianconera_e_di_gregorio_)
+- **"I supplementari sarebbero già un'impresa", le parole dell'allenatore su Juve-Galatasaray**: [Link](https://tribuna.com/it/news/2026-02-25-i-supplementari-sarebbero-gia-unimpresa-le-parole-dellallenatore-su-juvegalatasaray/)
+- **Chiellini: “Bisogna trasformare la delusione dell’andata in qualcosa di storico”**: [Link](https://www.alfredopedulla.com/chiellini-bisogna-trasformare-la-delusione-dellandata-in-qualcosa-di-storico/)
+
+
+### sport lisboa e benfica (N/A, 25/02/2026 15:41 Lima)
+
+- **Lucas Paquetá sai em defesa de Vinicius Júnior e dispara: “Isto já foi longe demais”**: [Link](https://somosfanaticos.fans/br/futebol-europeu/lucas-paqueta-sai-em-defesa-de-vinicius-junior-e-dispara-isto-ja-foi-longe-demais)
+- **Brasileiros flagram torcedor do Benfica colocando bananas em foto de Vini Jr. em museu do Real**: [Link](https://portalleodias.com/esportes/brasileiros-flagram-torcedor-do-benfica-colocando-bananas-em-foto-de-vini-jr-em-museu-do-real)
+- **Tsohon dan wasan Argentina, Hugo Lamadrid ya bayyana cewa zai dawo daga kwallon kafa ne kawai don karya kafafun Vinicius Júnior.**: [Link](https://www.mixvale.com.br/2026/02/25/tsohon-dan-wasan-argentina-hugo-lamadrid-ya-bayyana-cewa-zai-dawo-daga-kwallon-kafa-ne-kawai-don-karya-kafafun-vinicius-junior-ha/)
+
+
+### futbol (N/A, 25/02/2026 15:41 Lima)
+
+- **Partidos de hoy, 24 de febrero: Horario y canal EN VIVO**: [Link](https://www.americatv.com.pe/deportes/futbol-mundial/partidos-hoy-24-febrero-horarios-y-transmisiones-n452807)
+- **Partidos de hoy EN VIVO, martes 24 de febrero: programación y dónde ver fútbol online**: [Link](https://libero.pe/futbol-internacional/2026/02/23/partidos-de-hoy-en-vivo-martes-24-de-febrero-689287)
+- **Partidos de hoy, martes 24 de febrero: ¿a qué hora y dónde ver fútbol EN VIVO?**: [Link](https://larepublica.pe/deportes/2026/02/24/partidos-de-hoy-horarios-y-canales-de-tv-donde-ver-futbol-en-vivo-y-en-directo-570720)
+
+
+### espn (N/A, 25/02/2026 15:41 Lima)
+
+- **Chiefs QB Patrick Mahomes, Wife Brittany Make TV Announcement**: [Link](https://heavy.com/sports/nfl/kansas-city-chiefs/patrick-mahomes-wife-brittany-tv-announcement/)
+- **Disney+ Are Set to Drop a Three-part NWSL Docuseries**: [Link](https://www.versus.uk.com/articles/disney-are-set-to-drop-a-three-part-nwsl-docuseries/)
+- **Angel City FC Set to be Featured in New ESPN Original Series**: [Link](https://sports.yahoo.com/articles/angel-city-fc-set-featured-224628841.html)
+
+
+### futbol en vivo (N/A, 25/02/2026 15:41 Lima)
+
+- **Champions hoy EN VIVO: partidos, resultados y minuto a minuto**: [Link](https://www.espn.com.ar/futbol/champions-league/nota/_/id/16356577/champions-hoy-en-vivo-partidos-resultados)
+- **Partidos de hoy, miércoles 25 de febrero del 2026: horarios y canales TV para ver Libertadores y Champions League**: [Link](https://rpp.pe/futbol/futbol-mundial/partidos-de-hoy-miercoles-25-de-febrero-del-2026-horarios-y-canales-tv-para-ver-libertadores-y-champions-league-noticia-1677300)
+- **Partidos de hoy EN VIVO, miércoles 25 de febrero: programación, horario y canales de TV**: [Link](https://libero.pe/futbol-internacional/2026/02/24/partidos-de-hoy-miercoles-25-de-febrero-programacion-horarios-donde-ver-337008)
+
+
+### disney (N/A, 25/02/2026 15:41 Lima)
+
+- **The Walt Disney Company to Participate in the Morgan Stanley Technology, Media & Telecom Conference**: [Link](https://www.marketscreener.com/news/the-walt-disney-company-to-participate-in-the-morgan-stanley-technology-media-telecom-conference-ce7e5cd8d889f62d)
+- **Disney CFO Hugh Johnston to Participate in Q&A at Morgan Stanley Technology, Media & Telecom Conference**: [Link](https://www.laughingplace.com/disney-business/hugh-johnston-morgan-stanley-conference-2026/)
+- **Disney CFO to Participate in Morgan Stanley Conference**: [Link](https://intellectia.ai/news/stock/disney-cfo-to-participate-in-morgan-stanley-conference)
+
+
 ### atalanta vs. napoli (N/A, 25/02/2026 12:12 Lima)
 
 - **Biasin: "Il Napoli è incazzato post Bergamo. Ma un'altra big è uscita con le ossa rotte"**: [Link](https://www.msn.com/it-it/sport/calcio/biasin-il-napoli-%C3%A8-incazzato-post-bergamo-ma-un-altra-big-%C3%A8-uscita-con-le-ossa-rotte/ar-AA1X29nF)
@@ -957,75 +1027,5 @@ Sin noticias relacionadas disponibles.
 - **Liga MX: Por la fecha 7 se enfrentarán Tijuana y Mazatlán**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-por-la-fecha-7-se-enfrentaran-tijuana-y-mazatlan-noticia-1676842)
 - **Qué canal pasa Xolos vs Mazatlán hoy: dónde ver GRATIS y EN VIVO el partido de la Liga MX**: [Link](https://www.365scores.com/es/news/xolos-vs-mazatlan-donde-ver-gratis-vivo/)
 - **⚽ ¡No va gratis! Checa a qué HORA y por DÓNDE VER el Tijuana vs Mazatlán de la Liga MX 🐶🆚⚓**: [Link](https://www.facebook.com/MilenioDiario/posts/-no-va-gratis-checa-a-qu%C3%A9-hora-y-por-d%C3%B3nde-ver-el-tijuana-vs-mazatl%C3%A1n-de-la-liga/1394685462688921/)
-
-
-### sean strickland (N/A, 22/02/2026 00:17 Lima)
-
-- **UFC Houston ‘Strickland vs. Hernandez’ Play-by-Play, Results & Round Scoring**: [Link](https://www.sherdog.com/news/news/UFC-Houston-Strickland-vs-Hernandez-PlaybyPlay-Results-Round-Scoring-200193)
-- **UFC Fight Night 267 main card: Best photos from Houston**: [Link](https://mmajunkie.usatoday.com/picture-gallery/sports/ufc/2026/02/21/ufc-fight-night-267-main-card-best-photos-houston/88805529007/)
-- **Sean Strickland Finishes Hernandez In The 3rd | UFC Houston**: [Link](https://www.ufc.com/video/154555)
-
-
-### ryan garcia (N/A, 22/02/2026 00:17 Lima)
-
-- **Ryan Garcia Fight: Full-length Replay Weigh-In — ryan garcia fight replay**: [Link](https://www.filmogaz.com/160892)
-- **Hitchins Pulls Out Of Duarte Defense With Illness**: [Link](https://fightnews.com/hitchins-pulls-out-of-duarte-defense-with-illness/182697)
-- **Ryan Garcia Gets Pumped Up Backstage Before Weigh-In, On Video**: [Link](https://www.aol.com/articles/ryan-garcia-gets-pumped-backstage-182135307.html)
-
-
-### gustavo cerati (N/A, 22/02/2026 00:17 Lima)
-
-- **“Debes cantar son Soda Stereo”: Gustavo Cerati de ‘Yo Soy’ impacta por su gran parecido vocal e interpretación**: [Link](https://rpp.pe/famosos/farandula/yo-soy-imitador-de-gustavo-cerati-impacta-por-su-gran-parecido-vocal-e-interpretacion-noticia-1676725)
-- **¡Cierra los ojos y es Cerati! Participante de ‘Yo Soy’ deja en shock por su voz**: [Link](https://elcomercio.pe/respuestas/farandula/cierra-los-ojos-y-es-cerati-participante-de-yo-soy-deja-en-shock-por-su-voz-tdpe-noticia/)
-- **El “Cerati Inca” que sorprende en TV de Perú y parece revivir al genial Gustavo | Infocielo**: [Link](https://www.infocielo.com/tendencias/el-cerati-inca-que-sorprende-en-tv-de-peru-y-parece-revivir-al-genial-gustavo)
-
-
-### clima chiclayo (N/A, 22/02/2026 00:17 Lima)
-
-- **Predicción del estado del tiempo en Chiclayo para el domingo 22 de febrero**: [Link](https://www.infobae.com/noticias/2026/02/21/prediccion-del-estado-del-tiempo-en-chiclayo-para-el-domingo-22-de-febrero/)
-- **¿Lluvia en Chiclayo?: el pronóstico del clima del sábado 21 de febrero**: [Link](https://www.infobae.com/noticias/2026/02/20/lluvia-en-chiclayo-el-pronostico-del-clima-del-sabado-21-de-febrero/)
-- **¿Lluvia en Chiclayo?: el pronóstico del clima del miércoles 18 de febrero**: [Link](https://www.infobae.com/noticias/2026/02/17/lluvia-en-chiclayo-el-pronostico-del-clima-del-miercoles-18-de-febrero/)
-
-
-### toy story (N/A, 22/02/2026 00:17 Lima)
-
-- **Could ‘Toy Story 5’ help parents get kids off screens? ‘Sit down together, watch it together, talk about it,’ says expert**: [Link](https://www.cnbc.com/2026/02/20/could-toy-story-5-help-parents-get-kids-off-screens-talk-about-it-says-expert.html)
-- **‘How is he bald? He is made out of rubber’: Kids react to ‘Toy Story 5’ trailer**: [Link](https://www.yahoo.com/entertainment/movies/article/how-is-he-bald-he-is-made-out-of-rubber-kids-react-to-toy-story-5-trailer-194512043.html)
-- **Buzz Lightyear and Woody reunite in trailer for Toy Story 5**: [Link](https://www.bbc.com/news/articles/c98q9g68vyno)
-
-
-### julio iglesias (N/A, 22/02/2026 00:17 Lima)
-
-- **Recuerdos fotográficos: 2009. Julio Iglesias toma sol en San Javier y luego canta en Floresta**: [Link](https://www.lagaceta.com.ar/nota/1125323/opinion/recuerdos-fotograficos-2009-julio-iglesias-toma-sol-san-javier-luego-canta-floresta.html)
-- **La puja por las montañas que fueron de Julio Iglesias está en 400.000 euros, muy lejos de los 9,7 millones de valoración**: [Link](https://lamarina.eldiario.es/2026/02/21/la-puja-por-las-montanas-que-fueron-de-julio-iglesias-esta-en-400-000-euros-muy-lejos-de-los-97-millones-de-valoracion/)
-- **Más tiempo para pujar por la finca alicantina de 1.100 hectáreas que fue del cantante madrileño Julio Iglesias**: [Link](https://www.epe.es/es/madrid/20260221/tiempo-pujar-finca-alicantina-cantante-madrileno-julio-iglesias-127102277)
-
-
-### cruz azul - guadalajara (N/A, 22/02/2026 00:17 Lima)
-
-- **Cruz Azul vs. Chivas: el invicto del Rebaño ante su prueba de fuego**: [Link](https://www.espn.com.pe/futbol/mexico/nota/_/id/16333646/cruz-azul-chivas-clausura-2026-previa-invicto-liga-mx)
-- **¿A qué hora juega Cruz Azul vs. Chivas de Guadalajara y dónde ver la Liga MX?**: [Link](https://libero.pe/futbol-internacional/liga-mx/2026/02/20/hora-juega-cruz-azul-vs-chivas-de-guadalajara-canal-de-transmision-en-vivo-donde-ver-partido-de-liga-mx-clausura-403140)
-- **Liga MX: Chivas se enfrenta ante Cruz Azul con la meta de mantener su invicto y buscar la cima**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-chivas-se-enfrenta-ante-cruz-azul-con-la-meta-de-mantener-su-invicto-y-buscar-la-cima-noticia-1676827)
-
-
-### germán berterame (N/A, 22/02/2026 00:17 Lima)
-
-- **LAFC - Inter Miami, en vivo: MLS 2026, Fecha 1 en el BMO Stadium, minuto a minuto**: [Link](https://as.com/us/futbol/lafc-inter-miami-en-vivo-mls-2026-fecha-1-en-el-bmo-stadium-minuto-a-minuto-f202602-d/)
-- **De Paul se equivocó en la salida y Los Angeles FC marcaron ante Inter Miami**: [Link](https://www.espn.com.ar/futbol/mls/nota/_/id/16343015/rodrigo-de-paul-gol-david-martinez-lafc-vs-inter-miami-mls)
-- **Lionel Messi está disponible y junto al Inter Miami comienzan su camino a una nueva corona en la MLS**: [Link](https://cnnespanol.cnn.com/2026/02/20/deportes/lionel-messi-inter-miami-camino-corona-mls-orix)
-
-
-### laura pausini (N/A, 22/02/2026 00:17 Lima)
-
-- **Piaccia o no, Laura Pausini è l’unica vera popstar italiana di fama mondiale**: [Link](https://www.today.it/vision/musica/laura-pausini-star.html)
-- **Verso il Festival di Sanremo: Conti, Pausini e Bravi davanti alle telecamere di Etv**: [Link](https://www.espansionetv.it/2026/02/21/verso-il-festival-di-sanremo-conti-pausini-e-bravi-davanti-alle-telecamere-di-etv/)
-- **Laura Pausini lancia "Mariposa Tecknicolor" e svela: "Un rimpianto? Ho scartato Leonardo DiCaprio per un videoclip"**: [Link](https://www.allmusicitalia.it/news/laura-pausini-leonardo-dicaprio-videoclip-rimpianto.html)
-
-
-### apple tv (N/A, 22/02/2026 00:17 Lima)
-
-- **Apple TV’s new movie is a hit, and just the start of a big year ahead**: [Link](https://9to5mac.com/2026/02/20/apple-tvs-new-movie-is-a-hit-and-just-the-start-of-a-big-year-ahead/)
-- **A24’s ‘Eternity’ asks an impossible question: First love or last?**: [Link](https://www.browndailyherald.com/article/2026/02/a24s-eternity-asks-an-impossible-question-first-love-or-last)
-- **Eternity (2025 film)**: [Link](https://www.mailplus.co.uk/tv/finder/film/441681/eternity-2025-film)
 
 
