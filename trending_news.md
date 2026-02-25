@@ -1,3 +1,71 @@
+### warriors - pelicans (N/A, 24/02/2026 21:41 Lima)
+
+- **Warriors vs Pelicans injury report: Steph Curry, Kristaps Porziņģis out**: [Link](https://www.goldenstateofmind.com/warriors-injury-report/108697/warriors-pelicans-injury-report-steph-curry-kristaps-porzingis-draymond-green)
+- **Al Horford (toe) ruled out Tuesday**: [Link](https://www.fantasypros.com/nba/news/570919/al-horford-toe-ruled-out-tuesday.php)
+- **Photos: Pelicans vs. Warriors | Game Action 2/24/26**: [Link](https://www.nba.com/pelicans/photos/new-orleans-pelicans-vs-golden-state-warriors-photos-game-action-2-24-2026)
+
+
+### magaly tv (N/A, 24/02/2026 21:41 Lima)
+
+- **¿Dónde ver Magaly TV La Firme EN VIVO? hora y en qué canal seguir el programa de Magaly Medina**: [Link](https://elcomercio.pe/respuestas/farandula/donde-ver-magaly-tv-la-firme-en-vivo-hora-y-en-que-canal-seguir-el-programa-de-magaly-medina-youtube-transmision-fb-atv-tdpe-noticia/)
+- **Si Lizeth, la deportista, se encontraba trotando en la calzada, ¿podría hablarse de autoexposición al peligro? Caro Coria analiza el caso**: [Link](https://lpderecho.pe/si-lizeth-la-deportista-se-encontraba-trotando-en-la-calzada-podria-hablarse-de-autoexposicion-al-peligro-caro-coria-analiza-el-caso/)
+- **¡Primicia! Imágenes EXCLUSIVAS revelan que Marisel Linares estuvo con Adrián Villar tras atropellar a Lizeth Marzano**: [Link](https://www.atv.pe/noticia/primicia-imagenes-exclusivas-revelan-que-marisel-linares-estuvo-con-adrian-villar-tras-atropellar-a-lizeth-marzano/)
+
+
+### independiente (N/A, 24/02/2026 21:41 Lima)
+
+- **Cuándo juegan Gimnasia de Mendoza vs. Independiente por el Torneo Apertura: equipo, fecha, hora y TV en vivo**: [Link](https://www.espn.com.ar/futbol/argentina/nota/_/id/16348733/gimnasia-de-mendoza-vs-independiente-torneo-apertura-equipo-fecha-hora-tv-en-vivo)
+- **Dos sorpresas en el fondo**: [Link](https://onefootball.com/en/news/dos-sorpresas-en-el-fondo-42463191)
+- **Video: el golazo de Santiago Rodríguez con el que el Lobo vence al Rojo**: [Link](https://www.mendozapost.com/deportes/video-golazo-santiago-rodriguez-gimnasia-mendoza-independiente/)
+
+
+### alineaciones de sporting cristal contra club sportivo 2 de mayo (N/A, 24/02/2026 21:41 Lima)
+
+- **Inter vs. Bodo/Glimt (24 de Feb., 2026) Resultados en Vivo**: [Link](https://www.espn.com.pe/futbol/partido/_/juegoId/401858766)
+- **Newcastle vs. FK Qarabag (24 de Feb., 2026) Resultados en Vivo**: [Link](https://www.espn.com.pe/futbol/partido/_/juegoId/401858764)
+- **San Lorenzo vs. Instituto (24 de Feb., 2026) Resultados en Vivo**: [Link](https://www.espn.com.ar/futbol/partido/_/juegoId/762868)
+
+
+### santiago gonzález (N/A, 24/02/2026 21:41 Lima)
+
+- **“Novak Djokovic es una inspiración”: Santiago González asegura que el serbio es un ejemplo para seguir activo**: [Link](https://oem.com.mx/esto/tenis/santiago-gonzalez-asegura-se-inspira-en-novak-djokovic-para-seguir-activo-28641001)
+- **Rodrigo Pacheco Méndez vs. Flavio Cobolli HOY: hora y cómo ver EN VIVO el partido del Abierto Mexicano de T...**: [Link](https://bolavip.com/mx/tenis/rodrigo-pacheco-mendez-vs-flavio-cobolli-hoy-hora-y-como-ver-en-vivo-el-partido-del-abierto-mexicano-de-tenis)
+- **Resumen del James Duckworth - Dalibor Svrcina**: [Link](https://www.eurosport.es/tenis/atp-acapulco/2026/live-james-duckworth-dalibor-svrcina_mtc20005604/live.shtml)
+
+
+### cristal fc (N/A, 24/02/2026 21:41 Lima)
+
+- **Manchester United vs. Crystal Palace - Boxscore - Live Score - March 01, 2026**: [Link](https://www.foxsports.com/soccer/premier-league-manchester-utd-vs-crystal-palace-mar-01-2026-game-boxscore-626964?tab=boxscore)
+- **Manchester United vs Crystal Palace Prediction and Tips - 2 March 2026**: [Link](https://www.statsinsider.com.au/news/manchester-united-vs-crystal-palace-prediction-and-tips-2-march-2026)
+- **Crystal Palace 1-0 Wolves: Late Guessand strike gives Palace win over 10-man Wolves**: [Link](https://www.bbc.com/sport/football/live/cp81ldpd65xt)
+
+
+### gimnasia y esgrima - independiente (N/A, 24/02/2026 21:41 Lima)
+
+- **Gimnasia y Esgrima Mendoza vs Independiente Stats & Insights**: [Link](https://www.betshoot.com/football/19636434-Gimnasia-y-Esgrima-Mendoza-vs-Independiente-prediction/)
+
+
+### marisel linares periodista peruana (N/A, 24/02/2026 21:41 Lima)
+
+- **Si Lizeth, la deportista, se encontraba trotando en la calzada, ¿podría hablarse de autoexposición al peligro? Caro Coria analiza el caso**: [Link](https://lpderecho.pe/si-lizeth-la-deportista-se-encontraba-trotando-en-la-calzada-podria-hablarse-de-autoexposicion-al-peligro-caro-coria-analiza-el-caso/)
+- **¡Primicia! Imágenes EXCLUSIVAS revelan que Marisel Linares estuvo con Adrián Villar tras atropellar a Lizeth Marzano**: [Link](https://www.atv.pe/noticia/primicia-imagenes-exclusivas-revelan-que-marisel-linares-estuvo-con-adrian-villar-tras-atropellar-a-lizeth-marzano/)
+- **Adrián Villar busca evadir la cárcel por atropello mortal de deportista Lizeth Marzano (VIDEO)**: [Link](https://peru21.pe/lima/adrian-villar-intenta-evitar-carcel-por-muerte-de-lizeth-marzano/)
+
+
+### disney plus (N/A, 24/02/2026 21:41 Lima)
+
+- **ITV & Disney Expand Content Pact With Hulu Shows ‘The Stolen Girl’ & ‘The Twisted Tale Of Amanda Knox’**: [Link](https://deadline.com/2026/02/itv-disney-hulu-series-stolen-girl-twisted-tale-amanda-knox-1236734261/)
+- **Disney, ITV Extend U.K. Content Partnership With Exclusive Primetime TV Premieres for Hulu Series**: [Link](https://www.hollywoodreporter.com/tv/tv-news/disney-itv-uk-content-partnership-primetime-hulu-series-1236513433/)
+- **Disney+, ITV Extend U.K. Content-Sharing Partnership With Hulu’s Amanda Knox Drama and ‘The Stolen Girl’**: [Link](https://variety.com/2026/tv/global/disney-itv-partnership-amanda-knox-stolen-girl-1236671083/)
+
+
+### belgrano - atlético tucumán (N/A, 24/02/2026 21:41 Lima)
+
+- **Cuándo juegan Belgrano vs. Atlético Tucumán por el Torneo Apertura: equipo, fecha, hora y TV en vivo**: [Link](https://espndeportes.espn.com/futbol/argentina/nota/_/id/16350776/belgrano-vs-atletico-tucuman-por-el-torneo-apertura-equipo-fecha-hora-y-tv-en-vivo)
+- **El Decano visita al Pirata**: [Link](https://www.vavel.com/ar/futbol-argentino/2026/02/24/atletico-tucuman/1251909-el-decano-visita-al-pirata.html)
+- **El reencuentro de Atlético Tucumán con Ricardo Zielinski, el técnico que dejó su sello en el club**: [Link](https://www.tycsports.com/liga-profesional-de-futbol/el-reencuentro-de-atletico-tucuman-con-ricardo-zielinski-el-tecnico-que-dejo-su-sello-en-el-club-id714706.html)
+
+
 ### hull city - derby county (N/A, 24/02/2026 15:42 Lima)
 
 - **Hull City's predicted XI to face Derby County as Tigers hit by latest injury blow**: [Link](https://www.hulldailymail.co.uk/sport/football/football-news/hull-citys-predicted-xi-face-10830473)
@@ -963,73 +1031,5 @@ Sin noticias relacionadas disponibles.
 - **Estevao injury news: Chelsea and Brazil star out, set for scan**: [Link](https://sports.yahoo.com/articles/estevao-injury-news-chelsea-brazil-143345761.html)
 - **Why Estevao Willian has been left out of Chelsea squad by Liam Rosenior for clash with Burnley**: [Link](https://www.goal.com/en-sa/lists/why-estevao-willian-out-chelsea-clash-with-burnley/blt2c9b5dd606c55474)
 - **Chelsea hit with huge new injury blow ahead of Arsenal showdown**: [Link](https://www.standard.co.uk/sport/football/chelsea-fc-estevao-injury-b1271930.html)
-
-
-### gonzalo bueno (N/A, 21/02/2026 11:36 Lima)
-
-- **Gonzalo Bueno se mete en semifinales del Challenger 50 de Tigre**: [Link](https://elcomercio.pe/deporte-total/tenis/gonzalo-bueno-se-mete-en-semifinales-del-challenger-50-de-tigre-noticia/)
-- **Bueno, imparable: vence al argentino Collarini y se mete a semis del Challenger de Tigre**: [Link](https://buenapepa.pe/bueno-vence-a-collarini-y-se-mete-a-semis-del-challenger-de-tigre/)
-- **Varillas se despidió del Challenger de Tigre tras caer ante ecuatoriano Guillén**: [Link](https://ovacion.pe/noticias/tenis/varillas-se-despidio-del-challenger-tigre-tras-caer-ante-ecuatoriano-guillen)
-
-
-### dólar hoy perú (N/A, 21/02/2026 11:36 Lima)
-
-- **El sol se aprecia 9.02% frente al dólar en un año**: [Link](https://elperuano.pe/noticia/289590-el-sol-se-aprecia-902-frente-al-dolar-en-un-ano)
-- **Precio del dólar en Perú hoy, sábado 21 de febrero: cuál es la cotización del día**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-2026-cuanto-esta-el-dolar-este-sabado-21-de-febrero-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
-- **Precio del dólar Perú y tipo de cambio hoy 20 de febrero del 2026**: [Link](https://rpp.pe/economia/economia/precio-del-dolar-peru-y-tipo-de-cambio-hoy-20-de-febrero-del-2026-noticia-1676715)
-
-
-### lens - mónaco (N/A, 21/02/2026 11:36 Lima)
-
-- **Liga de Francia: Lens, con la misión de ganar para seguir en la cima**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-de-francia-lens-con-la-mision-de-ganar-para-seguir-en-la-cima-noticia-1676716)
-
-
-### real betis vs (N/A, 21/02/2026 11:36 Lima)
-
-- **Betis - Rayo Vallecano hoy, en directo: LaLiga EA Sports en vivo, última hora en La Cartuja**: [Link](https://as.com/futbol/primera/betis-rayo-vallecano-en-directo-laliga-ea-sports-en-vivo-hoy-f202602-d/)
-- **Betis - Rayo | Amenaza de Rayo en La Cartuja: análisis, previa, pronóstico y predicción**: [Link](https://www.marca.com/futbol/primera-division/2026/02/20/betis-rayo-amenaza-rayo-cartuja-analisis-previa-pronostico-prediccion.html)
-- **Apuestas y Pronóstico del Real Betis vs Rayo Vallecano 21/02/26**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2026/febrero/pronostico-real-betis-vs-rayo-vallecano-21-02-26)
-
-
-### stoke city - leicester city (N/A, 21/02/2026 08:00 Lima)
-
-- **Leicester City team news v Stoke with Abdul Fatawu missing from Gary Rowett's first line-up**: [Link](https://www.leicestermercury.co.uk/sport/football/football-news/leicester-city-team-news-v-10828261)
-- **Potters face-off with Foxes on Saturday lunchtime**: [Link](https://www.stokecityfc.com/news/2026/february/15/potters-face-off-with-foxes-on-saturday-lunchtime/)
-- **Championship: Four games under way including Hull, Leicester and West Brom v Coventry.**: [Link](https://www.bbc.co.uk/sport/football/live/cj3vnn51z38t)
-
-
-### real sociedad - real oviedo (N/A, 21/02/2026 08:00 Lima)
-
-- **Real Sociedad - Oviedo en directo: LaLiga EA Sports hoy, en vivo**: [Link](https://as.com/futbol/primera/real-sociedad-oviedo-en-directo-laliga-ea-sports-hoy-en-vivo-f202602-d/)
-- **El pan y la mantequilla**: [Link](https://www.realsociedad.eus/es/noticias/detalle/el-pan-y-la-mantequilla)
-- **Real Sociedad – Real Oviedo: Europa y el descenso chocan en Anoeta**: [Link](https://onefootball.com/de/news/real-sociedad-real-oviedo-europa-y-el-descenso-chocan-en-anoeta-42443348)
-
-
-### sutran (N/A, 21/02/2026 08:00 Lima)
-
-- **Carreteras bloqueadas por fuertes lluvias en Perú: revisa las vías con tránsito interrumpido y restringido, según Sutran**: [Link](https://larepublica.pe/sociedad/2026/02/18/carreteras-bloqueadas-en-peru-revisa-las-vias-con-transito-interrumpido-y-restringido-por-lluvias-y-fenomenos-naturales-segun-sutran-1177434)
-- **Ica: tránsito restringido en el kilómetro 442 de la Panamericana Sur por caída de huaico**: [Link](https://rpp.pe/peru/ica/ica-transito-restringido-en-el-kilometro-442-de-la-panamericana-sur-por-caida-de-huaico-noticia-1676729)
-- **Arequipa: cientos de vehículos varados tras caída de huaico en Lomas, en Caravelí**: [Link](https://elperuano.pe/noticia/289559-arequipa-cientos-de-vehiculos-varados-tras-caida-de-huaico-en-lomas-en-caraveli)
-
-
-### sydney - brisbane roar (N/A, 21/02/2026 08:00 Lima)
-
-- **Sydney FC vs Brisbane Roar Preview & Prediction**: [Link](https://www.thestatszone.com/sydney-fc-vs-brisbane-roar-preview-prediction-171552)
-- **Roar fall short in Sydney**: [Link](https://brisbaneroar.com.au/news/roar-fall-short-in-sydney/)
-- **'Fiery': Abandoned friendly fuels Sydney-Roar rivalry**: [Link](https://aapnews.aap.com.au/news/fiery-abandoned-friendly-fuels-sydney-roar-rivalry)
-
-
-### ebay (N/A, 21/02/2026 08:00 Lima)
-
-- **eBay Inc. Reports Fourth Quarter and Full Year 2025 Results**: [Link](https://www.ebayinc.com/stories/news/ebay-inc-reports-fourth-quarter-and-full-year-2025-results/)
-- **Why eBay’s Depop Acquisition Matters More Than the Earnings Beat**: [Link](https://www.tradingview.com/news/marketbeat:e648155a6094b:0-why-ebay-s-depop-acquisition-matters-more-than-the-earnings-beat/)
-- **EBay's GMV Growth More Sustainable Than Expected, Morgan Stanley Says**: [Link](https://www.marketscreener.com/news/ebay-s-gmv-growth-more-sustainable-than-expected-morgan-stanley-says-ce7e5ddcdc81f524)
-
-
-### lakers - clippers (N/A, 21/02/2026 08:00 Lima)
-
-- **Luka Doncic and Lakers hold off Clippers as Kawhi Leonard exits late**: [Link](https://www.aol.com/articles/luka-doncic-lakers-hold-off-063206117.html)
-- **Austin Reaves News: Hits for 29 points with first unit**: [Link](https://www.rotowire.com/basketball/headlines/austin-reaves-news-hits-for-29-points-with-first-unit-519691)
-- **Lakers' LeBron James: Good to go Friday**: [Link](https://www.cbssports.com/fantasy/basketball/news/lakers-lebron-james-good-to-go-friday-519646/)
 
 
