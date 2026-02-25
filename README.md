@@ -1,3 +1,70 @@
+### lakers (N/A, 25/02/2026 00:24 Lima)
+
+- **Dodgers exec Lon Rosen becomes Lakers' president of business ops**: [Link](https://www.espn.com/nba/story/_/id/47980018/long-dodgers-exec-lon-rosen-becomes-lakers-president-business-ops)
+- **“I have a pretty unique seat, because I work with two …**: [Link](https://www.hoopshype.com/story/sports/nba/rumors/2026/02/24/i-have-a-pretty-unique-seat-because-i-work-with-two/88852536007/)
+- **“He’s not going to have day-to-day involvement at all. …**: [Link](https://sports.yahoo.com/articles/not-going-day-day-involvement-021858778.html)
+
+
+### melcochita (N/A, 25/02/2026 00:24 Lima)
+
+- **Melcochita explica por qué Monserrat administraba su dinero: "Los trabajos grandes eran para ella"**: [Link](https://www.atv.pe/noticia/melcochita-explica-por-que-monserrat-administraba-su-dinero-los-trabajos-grandes-eran-para-ella/)
+- **Monserrat habría engañado a Melcochita con un amigo de la familia: Muestran video de la ‘infidelidad’**: [Link](https://trome.com/espectaculos/tv/monserrat-seminario-habria-enganado-a-melcochita-con-un-amigo-de-la-familia-muestran-video-de-la-infidelidad-video-fotos-farandula-noticia/)
+- **Susan Villanueva acusa a Monserrat Seminario de haber sido infiel a Melcochita: "Salía con él, era su amigo"**: [Link](https://larepublica.pe/espectaculos/2026/02/24/susan-villanueva-acusa-a-monserrat-seminario-de-haber-sido-infiel-a-melcochita-salia-con-el-era-su-amigo-872160)
+
+
+### magic - lakers (N/A, 25/02/2026 00:24 Lima)
+
+- **Los Angeles Lakers vs Phoenix Suns Odds - Thursday February 26 2026**: [Link](https://www.oddsshark.com/nba/los-angeles-phoenix-odds-february-26-2026-2479374)
+- **Luka Doncic Injury: Exits to locker room vs. Orlando**: [Link](https://www.rotowire.com/basketball/headlines/luka-doncic-injury-exits-to-locker-room-vs-orlando-520334)
+- **NBA Best Bets: Top Magic vs. Lakers prop bets for Tuesday 2/24/26**: [Link](https://dknetwork.draftkings.com/2026/02/24/nba-best-bets-top-magic-vs-lakers-prop-bets-for-tuesday-2-24-26/)
+
+
+### francesca montenegro influencer (N/A, 25/02/2026 00:24 Lima)
+
+- **Gino Marzano sobre Francesca Montenegro y padre: "Hay dos nuevos personajes, es encubrimiento"**: [Link](https://www.atv.pe/noticia/gino-marzano-sobre-francesca-montenegro-y-padre-hay-dos-nuevos-personajes-es-encubrimiento/)
+
+
+### eddie vedder (N/A, 25/02/2026 00:24 Lima)
+
+- **Yo Soy conciertos 2026: ¡Eddie Veder elevó la noche con una presentación poderosa!**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-conciertos-2026-eddie-veder-elevo-la-noche-con-una-presentacion-poderosa_20260224/)
+- **Brave! Man Struggles To Sing Both Eddie Vedder and Chris Cornell Parts of “Hunger Strike”**: [Link](https://thehardtimes.net/blog/brave-man-struggles-to-sing-both-eddie-vedder-and-chris-cornell-parts-of-hunger-strike/)
+
+
+### los angeles fc (N/A, 25/02/2026 00:24 Lima)
+
+- **LAFC Aims for CONCACAF Champions Cup Advancement Against Real España**: [Link](https://news.ssbcrack.com/lafc-aims-for-concacaf-champions-cup-advancement-against-real-espana/)
+- **'Only 45 minutes of knife replacement' Son Heung-min failed to attack P for 3 consecutive games → Real Spain won 7-1 total... FIFA Club World Cup Challenge Cruise**: [Link](https://www.starnewskorea.com/en/sports/2026/02/25/2026022512143213947)
+- **Recap | LAFC 1 (7) - 0 (1) | Concacaf Champions Cup**: [Link](https://www.lafc.com/news/recap-lafc-1-7-0-1-concacaf-champions-cup)
+
+
+### rafael olarra (N/A, 25/02/2026 00:24 Lima)
+
+- **Pedro Pascal Seen with Rafael Olarra During Monday Night Outing in New York City**: [Link](https://www.justjared.com/2026/02/17/pedro-pascal-seen-with-rafael-olarra-during-monday-night-outing-in-new-york-city/)
+- **Pedro Pascal & Rafael Olarra Watch 'Wuthering Heights' Together in Theater**: [Link](https://www.tmz.com/2026/02/17/pedro-pascal-rafael-olarra-go-to-movies/)
+- **‘We must be doing something right as a society’: Why the photos of Pedro Pascal walking arm‑in‑arm with a man matter**: [Link](https://english.elpais.com/lifestyle/2026-02-24/we-must-be-doing-something-right-as-a-society-why-the-photos-of-pedro-pascal-walking-arminarm-with-a-man-matter.html)
+
+
+### atv (N/A, 25/02/2026 00:24 Lima)
+
+- **¡Todos atentos! Magaly Medina revela nuevo horario de su programa tras críticas por bajo rating**: [Link](https://elcomercio.pe/respuestas/farandula/todos-atentos-magaly-medina-revela-nuevo-horario-de-su-programa-tras-criticas-por-bajo-rating-tdpe-noticia/)
+- **Andrea Llosa 'parchó' a Magaly Media tras críticas por bajo rating**: [Link](https://www.moda.com.pe/noticias/espectaculos/andrea-llosa-parcho-a-magaly-media-tras-criticas-por-bajo-rating/)
+- **Andrea Llosa expone a Magaly Medina tras afirmar que le dejaba bajo colchón de rating: "No es ambiciosa, es una suerte de Gollum"**: [Link](https://larepublica.pe/espectaculos/2026/02/17/andrea-llosa-expone-a-magaly-medina-tras-afirmar-que-le-dejaba-bajo-colchon-de-rating-no-es-ambiciosa-es-una-suerte-de-gollum-1614133)
+
+
+### sudamericana (N/A, 25/02/2026 00:24 Lima)
+
+- **Flamengo vs Lanus: ¡Juega en la Recopa Sudamericana y gana hasta S/. 600,000 con Meridianbet!**: [Link](https://ovacion.pe/noticias/nota-promocional/flamengo-vs-lanus-juega-recopa-sudamericana-gana-hasta-s-600000)
+- **Clube de Regatas do Flamengo vs Lanús | Pronóstico y cuotas 27.02.2026**: [Link](https://www.transfermarkt.es/apuestas/pronosticos-deportivos/cr-flamengo-vs-lanus-pronostico-apuestas-27-02-2026/)
+- **Pellegrino, cauto tras el triunfo de Lanús: "Una semana sos príncipe y otra, sapo"**: [Link](https://espndeportes.espn.com/futbol/nota/_/id/16335145/mauricio-pellegrino-triunfo-lanus-vs-flamengo-principe-sapo)
+
+
+### alexander zverev (N/A, 25/02/2026 00:24 Lima)
+
+- **Alexander Zverev looks to continue 2026 "game plan", as daughter Mayla joins him in Acapulco**: [Link](https://www.tennis.com/news/articles/alexander-zverev-2026-game-plan-win-hitting-harder-not-physically-fitter-acapulco)
+- **Alexander Zverev on why he chose to reveal his diabetes to the world**: [Link](https://www.tennisworldusa.org/tennis/news/Tennis_Stories/164522/alexander-zverev-on-why-he-chose-to-reveal-his-diabetes-to-the-world/)
+- **Zverev: "I lost the match against Alcaraz in Australia because I got tired"**: [Link](https://www.puntodebreak.com/en/2026/02/24/zverev-i-lost-the-match-against-alcaraz-in-australia-because-i-got-tired)
+
+
 ### warriors - pelicans (N/A, 24/02/2026 21:41 Lima)
 
 - **Warriors vs Pelicans injury report: Steph Curry, Kristaps Porziņģis out**: [Link](https://www.goldenstateofmind.com/warriors-injury-report/108697/warriors-pelicans-injury-report-steph-curry-kristaps-porzingis-draymond-green)
@@ -961,75 +1028,5 @@ Sin noticias relacionadas disponibles.
 - **Drone patrullero M30 de la Municipalidad de Lima se suma a la búsqueda de rescatista desaparecido en el río Rímac**: [Link](https://www.gob.pe/institucion/munilima/noticias/1357156-drone-patrullero-m30-de-la-municipalidad-de-lima-se-suma-a-la-busqueda-de-rescatista-desaparecido-en-el-rio-rimac)
 - **Intensifican búsqueda de policía arrastrado por el río Rímac durante rescate animal**: [Link](https://caretas.pe/nacional/intensifican-busqueda-de-policia-arrastrado-por-el-rio-rimac-durante-rescate-animal/)
 - **Brigadier Mayor CBP Marcos Pajuelo: "No se puede asegurar que prendas encontradas sean del policía"**: [Link](https://www.atv.pe/noticia/brigadier-mayor-cbp-marcos-pajuelo-no-se-puede-asegurar-que-prendas-encontradas-sean-del-policia/)
-
-
-### al nassr (N/A, 21/02/2026 15:31 Lima)
-
-- **Expected Lineup for Al-Nassr Against Al-Hazm in the Roshn League**: [Link](https://www.ysscores.com/en/news/13915185/Expected-Lineup-for-Al-Nassr-Against-Al-Hazm-in-the-Roshn-League)
-- **Video: Cristiano Ronaldo scores for Al Nassr vs Al Hazem during SPL game**: [Link](https://bolavip.com/en/soccer/video-cristiano-ronaldo-scores-for-al-nassr-vs-al-hazem-during-spl-game)
-- **Al Nassr Prepares to Host Al Hazem in Saudi Pro League Clash**: [Link](https://news.ssbcrack.com/al-nassr-prepares-to-host-al-hazem-in-saudi-pro-league-clash/)
-
-
-### mls (N/A, 21/02/2026 15:31 Lima)
-
-- **A letter from Commissioner Don Garber**: [Link](https://www.mlssoccer.com/news/a-letter-from-commissioner-don-garber)
-- **MLS Predictions: Miami, Whitecaps, Union Look for Fast Starts to 2026**: [Link](https://www.si.com/soccer/mls-predictions-miami-whitecaps-union-fast-starts-2026)
-- **Major League Soccer kicks off 2026 season on Apple TV**: [Link](https://www.apple.com/ee/newsroom/2026/02/major-league-soccer-kicks-off-2026-season-on-apple-tv/)
-
-
-### psg - metz (N/A, 21/02/2026 15:31 Lima)
-
-- **PSG : le but express de Désiré Doué pour l’ouverture du score contre Metz**: [Link](https://www.footmercato.net/a122099762779847049-psg-le-but-express-de-desire-doue-pour-louverture-du-score-contre-metz)
-- **Comment regarder Paris Saint-Germain - FC Metz ? Date, heure, streaming et comment regarder la Ligue 1 McDonald’s sur Ligue 1+, disponible sur DAZN​**: [Link](https://www.dazn.com/fr-FR/news/football/comment-regarder-paris-saint-germain-fc-metz-date-heure-streaming-et-comment-regarder-la-ligue-1-mcdonalds-sur-ligue-1-disponible-sur-dazn/evuzfdn560k014r9xrh3mda02)
-- **En direct : PSG-Metz (1-0)**: [Link](https://www.sofoot.com/articles/en-direct-psg-metz)
-
-
-### cagliari - lazio (N/A, 21/02/2026 15:31 Lima)
-
-- **✅ Cagliari-Lazio | UFFICIALI: la scelta su Zaccagni, Esposito e Kilicsoy**: [Link](https://onefootball.com/it/notizie/cagliari-lazio-ufficiali-la-scelta-su-zaccagni-esposito-e-kilicsoy-42446129)
-- **Serie A: Cagliari-Lazio DIRETTA e FOTO**: [Link](https://www.ansa.it/sito/notizie/sport/calcio/2026/02/21/serie-a-cagliari-lazio-diretta-e-foto_26b7a978-fd88-45e7-86b1-569c0f6f600d.html)
-- **I Rossoblù sfidano la Lazio per continuare a risalire in classifica**: [Link](https://www.rainews.it/tgr/sardegna/articoli/2026/02/i-rossoblu-sfidano-la-lazio-per-continuare-a-risalire-in-classifica-ccb246f6-13b6-4326-8e03-18973f220868.html)
-
-
-### konyaspor - galatasaray (N/A, 21/02/2026 11:36 Lima)
-
-- **CANLI| Konyaspor - Galatasaray maçı ne zaman, saat kaçta, hangi kanalda? (11'ler belli oldu)**: [Link](https://www.fanatik.com.tr/galatasaray/live-konyaspor-galatasaray-maci-ne-zaman-saat-kacta-hangi-kanalda-11ler-belli-oldu-2613202)
-- **Osimhen Konyaspor maçında neden yok, oynamayacak mı?**: [Link](https://www.fotomac.com.tr/futbol/2026/02/21/osimhen-konyaspor-macinda-yok-mu-oynamayacak-mi)
-- **Torreira’dan Konyaspor maçı öncesi uyarı: 'Hata pahalıya patlar'**: [Link](https://www.yenicaggazetesi.com/torreiradan-konyaspor-maci-oncesi-uyari-hata-pahaliya-patlar-1003143h.htm)
-
-
-### lecce - inter (N/A, 21/02/2026 11:36 Lima)
-
-- **🔴 Lecce-Inter | UFFICIALI: Bonny o Pio? La scelta su Dimarco e Sottil**: [Link](https://onefootball.com/id/berita/lecce-inter-ufficiali-bonny-o-pio-la-scelta-su-dimarco-e-sottil-42445267)
-- **Le formazioni ufficiali di Lecce-Inter**: [Link](https://www.inter.it/it/notizie/formazioni-ufficiali-lecce-inter-serie-a-25-26)
-- **CALCIO CAMPIONATO SERIE A 26ª giornata LECCE vs INTER – Le Formazioni Ufficiali**: [Link](https://www.lecceoggi.com/calcio-campionato-serie-a-26a-giornata-lecce-vs-inter-le-formazioni-ufficiali/)
-
-
-### osasuna vs. real madrid (N/A, 21/02/2026 11:36 Lima)
-
-- **¿A qué hora juega Real Madrid vs Osasuna HOY por LaLiga de España vía DSports?**: [Link](https://larepublica.pe/deportes/2026/02/20/real-madrid-vs-osasuna-en-vivo-hora-y-canal-del-partido-por-la-fecha-25-de-laliga-de-espana-1635040)
-- **◉ A qué hora juegan y por qué canal transmiten Real Madrid vs. Osasuna EN VIVO hoy por LaLiga en EE.UU., México y España**: [Link](https://gestion.pe/mix/sports/a-que-hora-juega-y-que-canal-transmite-real-madrid-vs-osasuna-en-vivo-hoy-por-laliga-2026-en-eeuu-mexico-y-espana-canales-tv-online-nnda-nnrt-noticia/)
-- **Osasuna vs Real Madrid: posibles alineaciones, Jornada 25, LaLiga**: [Link](https://www.espn.com.pe/futbol/espana/nota/_/id/16337254/osasuna-vs-real-madrid-alineaciones-laliga-2026-jornada-25)
-
-
-### wrexham - ipswich (N/A, 21/02/2026 11:36 Lima)
-
-- **MATCHDAY GUIDE | WREXHAM (A)**: [Link](https://www.itfc.co.uk/news/2026/february/20/matchday-guide-wrexham-a-/)
-- **Lili says it will be lessons learned as Wrexham tackle Cardiff in final**: [Link](https://www.rhyljournal.co.uk/sport/25870850.lilis-looking-forward-wrexhams-big-final-cardiff/)
-- **Man in the middle for Wrexham trip has awarded TEN penalties this season**: [Link](https://www.ipswichstar.co.uk/sport/25872732.wrexham-v-ipswich-town-meet-referee-leigh-doughty/)
-
-
-### aston villa vs (N/A, 21/02/2026 11:36 Lima)
-
-- **Jadon Sancho: ‘The job’s not finished’**: [Link](https://www.vavel.com/en/football/2026/02/20/aston-villa/1251468-jadon-sancho-the-jobs-not-finished.html)
-- **Cash, Elliott, Bizot: Aston Villa injury latest for FPL Gameweek 27**: [Link](https://www.fantasyfootballscout.co.uk/2026/02/20/cash-elliott-bizot-aston-villa-injury-latest-for-fpl-gameweek-27/)
-- **"I'm sure" - Jadon Sancho on Leeds United with Whites admission, prediction and Aston Villa plan**: [Link](https://www.yorkshireeveningpost.co.uk/sport/football/leeds-united/leeds-united-aston-villa-jadon-sancho-premier-league-villa-park-5606712)
-
-
-### chelsea (N/A, 21/02/2026 11:36 Lima)
-
-- **Estevao injury news: Chelsea and Brazil star out, set for scan**: [Link](https://sports.yahoo.com/articles/estevao-injury-news-chelsea-brazil-143345761.html)
-- **Why Estevao Willian has been left out of Chelsea squad by Liam Rosenior for clash with Burnley**: [Link](https://www.goal.com/en-sa/lists/why-estevao-willian-out-chelsea-clash-with-burnley/blt2c9b5dd606c55474)
-- **Chelsea hit with huge new injury blow ahead of Arsenal showdown**: [Link](https://www.standard.co.uk/sport/football/chelsea-fc-estevao-injury-b1271930.html)
 
 
