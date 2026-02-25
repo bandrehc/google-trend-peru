@@ -1,3 +1,10 @@
+### atalanta vs (N/A, 25/02/2026 03:57 Lima)
+
+- **Preview: Atalanta BC vs Borussia Dortmund - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/atalanta-bc/champions-league/preview/atalanta-vs-dortmund-prediction-team-news-lineups_592576.html)
+- **UEFA Champions League: the ticker for the trip to Bergamo**: [Link](https://sports.yahoo.com/articles/uefa-champions-league-ticker-trip-205000779.html)
+- **Palladino: ‘Atalanta have belief in Champions League dream’**: [Link](https://onefootball.com/pt-br/noticias/palladino-atalanta-have-belief-in-champions-league-dream-42461744)
+
+
 ### lakers (N/A, 25/02/2026 00:24 Lima)
 
 - **Dodgers exec Lon Rosen becomes Lakers' president of business ops**: [Link](https://www.espn.com/nba/story/_/id/47980018/long-dodgers-exec-lon-rosen-becomes-lakers-president-business-ops)
@@ -1021,12 +1028,5 @@ Sin noticias relacionadas disponibles.
 - **Bernardo Cuesta: su legado en Melgar, el récord histórico y su agradecimiento a Arequipa por tanto cariño**: [Link](https://depor.com/futbol-peruano/descentralizado/bernardo-cuesta-melgar-su-legado-el-record-de-198-goles-por-que-quiere-seguir-haciendo-historia-y-su-futuro-con-retiro-incluido-liga-1-2026-noticia/)
 - **Cuesta: "Hay 'Bernardocuestimo' para un rato más largo"**: [Link](https://ovacion.pe/noticias/fbc-melgar/cuesta-hay-bernardocuestimo-un-rato-mas-largo)
 - **Sonó para reforzar a Universitario y ahora se convirtió en máximo goleador de campeón peruano**: [Link](https://libero.pe/futbol-peruano/universitario/2026/02/16/sono-reforzar-universitario-ahora-se-convirtio-en-maximo-goleador-de-campeon-peruano-986192)
-
-
-### rescatista rio rimac (N/A, 21/02/2026 15:31 Lima)
-
-- **Drone patrullero M30 de la Municipalidad de Lima se suma a la búsqueda de rescatista desaparecido en el río Rímac**: [Link](https://www.gob.pe/institucion/munilima/noticias/1357156-drone-patrullero-m30-de-la-municipalidad-de-lima-se-suma-a-la-busqueda-de-rescatista-desaparecido-en-el-rio-rimac)
-- **Intensifican búsqueda de policía arrastrado por el río Rímac durante rescate animal**: [Link](https://caretas.pe/nacional/intensifican-busqueda-de-policia-arrastrado-por-el-rio-rimac-durante-rescate-animal/)
-- **Brigadier Mayor CBP Marcos Pajuelo: "No se puede asegurar que prendas encontradas sean del policía"**: [Link](https://www.atv.pe/noticia/brigadier-mayor-cbp-marcos-pajuelo-no-se-puede-asegurar-que-prendas-encontradas-sean-del-policia/)
 
 
