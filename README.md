@@ -1,3 +1,52 @@
+### atalanta vs. napoli (N/A, 25/02/2026 12:12 Lima)
+
+- **Biasin: "Il Napoli è incazzato post Bergamo. Ma un'altra big è uscita con le ossa rotte"**: [Link](https://www.msn.com/it-it/sport/calcio/biasin-il-napoli-%C3%A8-incazzato-post-bergamo-ma-un-altra-big-%C3%A8-uscita-con-le-ossa-rotte/ar-AA1X29nF)
+- **«Il gol di Gutierrez era regolare»**: [Link](https://www.ilroma.net/news/sport/858644/il-gol-di-gutierrez-era-regolare.html)
+- **Open Var, “È #Hien che cerca il contatto falloso con #Hojlund, il gol era regolare” ma assolve il #Var che era d’accordo con #Chiffi Da studio #Tommasi (il messaggero di #Rocchi) minimizza sul Var che non è intervenuto (perché era d'accordo con Chiffi). "È u**: [Link](https://www.facebook.com/ilnapolista/posts/open-var-%C3%A8-hien-che-cerca-il-contatto-falloso-con-hojlund-il-gol-era-regolare-ma/1440927144712603/)
+
+
+### juventus vs galatasaray (N/A, 25/02/2026 12:12 Lima)
+
+- **How much Juventus will earn if they overturn 5-2 Galatasaray scoreline**: [Link](https://football-italia.net/how-much-juventus-will-earn-overturn-gala/)
+- **Spalletti & Kelly: Playing at home gives us belief**: [Link](https://www.juventus.com/en/news/articles/spalletti-kelly-playing-at-home-gives-us-belief-24-02-26)
+- **Buruk Warns Against Complacency as Galatasaray Take Commanding Lead over Juventus to Turin**: [Link](https://turkish-football.com/buruk-warns-against-complacency-as-galatasaray-take-commanding-lead-over-juventus-to-turin/)
+
+
+### ticket master (N/A, 25/02/2026 12:12 Lima)
+
+- **Stocks making the biggest moves premarket: First Solar, GoDaddy, Lowe's, Workday, Cava and more**: [Link](https://www.cnbc.com/2026/02/25/stocks-making-the-biggest-moves-premarket-fslr-gddy-low-wday-cava.html)
+- **Paul Mescal and Gracie Abrams Make Their Red Carpet Debut at the 2026 BAFTA Awards**: [Link](https://people.com/paul-mescal-gracie-abrams-make-red-carpet-debut-at-2026-bafta-awards-photo-11911186)
+- **Paul Mescal and Gracie Abrams Hard-Launch on the 2026 BAFTAs Red Carpet**: [Link](https://www.vogue.com/article/paul-mescal-and-gracie-abrams-hard-launch-2026-baftas-red-carpet)
+
+
+### chiclayo (N/A, 25/02/2026 12:12 Lima)
+
+- **Gobierno Regional despliega respuesta integral en toda la región ante emergencia por lluvias**: [Link](https://www.gob.pe/institucion/regionlambayeque/noticias/1357790-gobierno-regional-despliega-respuesta-integral-en-toda-la-region-ante-emergencia-por-lluvias)
+- **Calles convertidas en ríos: lluvia torrencial provocó aniegos en distintas partes de Chiclayo [VIDEO]**: [Link](https://rpp.pe/peru/lambayeque/chiclayo-lluvia-torrencial-provoco-aniegos-y-calles-inundadas-video-noticia-1677424)
+- **Repunte del río La Leche pone en alerta a Íllimo en vísperas del carnaval 2026**: [Link](https://andina.pe/agencia/noticia-repunte-del-rio-leche-pone-alerta-a-illimo-visperas-del-carnaval-2026-1064375.aspx)
+
+
+### robin williams (N/A, 25/02/2026 12:12 Lima)
+
+- **Ethan Hawke shares why he didn't get along with Robin Williams filming 'Dead Poets Society'**: [Link](https://www.upworthy.com/ethan-hawke-didnt-get-along-with-robin-williams-filming-dead-poets-society/)
+- **Christopher Nolan's 92% RT Killer Thriller Is Required Viewing if You Love Silence of the Lambs**: [Link](https://www.cbr.com/christopher-nolan-insomnia-underrated-crime-movie/)
+- **Stellan Skarsgård Says Good Will Hunting Co-Star Robin Williams Had To ‘Be Funny To Survive’**: [Link](https://www.yahoo.com/entertainment/movies/articles/stellan-skarsg-rd-says-good-020740775.html)
+
+
+### atalanta vs borussia dortmund (N/A, 25/02/2026 12:12 Lima)
+
+- **De Roon: ‘Atalanta can hurt Borussia Dortmund’ after 2-0 defeat**: [Link](https://football-italia.net/de-roon-atalanta-can-hurt-borussia-dortmund/)
+- **Kovač: "We have a good result, nothing more"**: [Link](https://www.bundesliga.com/en/bundesliga/videos/watch/kovac-we-have-a-good-result-nothing-more-r3n7Izpl)
+- **UEFA Champions League: the ticker for the trip to Bergamo**: [Link](https://sports.yahoo.com/articles/uefa-champions-league-ticker-trip-205000779.html)
+
+
+### valle salvaje capítulo 361 (N/A, 25/02/2026 12:12 Lima)
+
+- **Valle Salvaje - Temporada 3 - Episodio 361**: [Link](https://www.rtve.es/play/videos/valle-salvaje/temporada-3-episodio-361/16949627/)
+- **¿Se morirá Adriana en 'Valle Salvaje'? Hoy, el capítulo decisivo**: [Link](https://www.rtve.es/television/20260224/valle-salvaje-adriana-capitulo-decisivo/16950411.shtml)
+- **'Valle Salvaje', avance del capítulo 361 de hoy, martes 24 de febrero: Mercedes teme la alianza entre Victoria y Dámaso**: [Link](https://www.elmundo.es/television/series/2026/02/23/699c21cfe9cf4a3a1e8b457b.html)
+
+
 ### dortmund vs. atalanta (N/A, 25/02/2026 08:18 Lima)
 
 - **Kovac says Dortmund must push themselves to 100% to maintain Atalanta lead**: [Link](https://www.beinsports.com/en-us/soccer/uefa-champions-league/articles/kovac-says-dortmund-must-push-themselves-to-100-to-maintain-atalanta-lead-2026-02-24)
@@ -978,54 +1027,5 @@ Sin noticias relacionadas disponibles.
 - **Apple TV’s new movie is a hit, and just the start of a big year ahead**: [Link](https://9to5mac.com/2026/02/20/apple-tvs-new-movie-is-a-hit-and-just-the-start-of-a-big-year-ahead/)
 - **A24’s ‘Eternity’ asks an impossible question: First love or last?**: [Link](https://www.browndailyherald.com/article/2026/02/a24s-eternity-asks-an-impossible-question-first-love-or-last)
 - **Eternity (2025 film)**: [Link](https://www.mailplus.co.uk/tv/finder/film/441681/eternity-2025-film)
-
-
-### inter miami - lafc (N/A, 21/02/2026 21:42 Lima)
-
-- **LAFC vs Inter Miami: Lineups for 2026 MLS season opener**: [Link](https://bolavip.com/en/soccer/lafc-vs-inter-miami-lineups-for-2026-mls-season-opener)
-- **'I don't really want to' - Heung-min Son snubs Lionel Messi talk ahead of blockbuster MLS opener**: [Link](https://talksport.com/football/4000064/heung-min-son-lionel-messi-snub-lafc-inter-miami/)
-- **How to watch today's Los Angeles FC vs Inter Miami CF Major League Soccer game: Live stream, TV channel, and start time**: [Link](https://www.goal.com/en-us/news/how-to-watch-los-angeles-fc-v-inter-miami-cf-22022026/bltafbf7a38200aaad4)
-
-
-### león - santos (N/A, 21/02/2026 21:42 Lima)
-
-- **Liga MX: Santos Laguna busca retomar el camino y salir del fondo de la tabla**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-santos-laguna-busca-retomar-el-camino-y-salir-del-fondo-de-la-tabla-noticia-1676813)
-- **Qué canal pasa León vs Santos Laguna hoy: dónde ver GRATIS y EN VIVO el partido de la Liga MX**: [Link](https://www.365scores.com/es/news/leon-vs-santos-laguna-donde-ver-gratis/)
-- **¿Por qué no juega Ramiro Sordo en León vs. Santos Laguna por la Jornada 7 del Clausura 2026?**: [Link](https://bolavip.com/mx/ligamx/por-que-no-juega-ramiro-sordo-en-leon-vs-santos-laguna-por-la-jornada-7-del-clausura-2026)
-
-
-### internacional de bogotá - millonarios (N/A, 21/02/2026 21:42 Lima)
-
-- **Pronóstico Internacional De Bogota Millonarios - Primera A Colombia 21/02/26**: [Link](https://www.sportytrader.com/es/pronosticos/internacional-de-bogota-millonarios-328783/)
-- **Un partido inédito se vivirá por las 74 frecuencias de Radio Nacional de Colombia**: [Link](https://www.rtvc.gov.co/noticias/internacional-millonarios-en-vivo-radio-nacional)
-- **Millonarios se devoró el gol debajo del arco de Inter Bogotá**: [Link](https://www.winsports.co/futbol-colombiano/noticias/millonarios-se-devoro-el-gol-debajo-del-arco-de-inter-bogota-410361)
-
-
-### necaxa - toluca (N/A, 21/02/2026 21:42 Lima)
-
-- **Liga MX: Necaxa se enfrentará ante Toluca FC por la fecha 7**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-necaxa-se-enfrentara-ante-toluca-fc-por-la-fecha-7-noticia-1676814)
-- **¿Por qué no juegan Alexis Vega, Nicolás Castro y Helinho en Necaxa vs. Toluca por la Jornada 7 del Clausura...**: [Link](https://bolavip.com/mx/ligamx/por-que-no-juegan-alexis-vega-nicolas-castro-y-helinho-en-necaxa-vs-toluca-por-la-jornada-7-del-clausura-2026)
-- **¡Enfermo atajadón! ¡Manotazo de locos por parte de Luis Manuel García!**: [Link](https://www.tudn.com/futbol/liga-mx/enfermo-atajadon-manotazo-de-locos-por-parte-de-luis-manuel-garcia-video)
-
-
-### rio open 2026 (N/A, 21/02/2026 21:42 Lima)
-
-- **Río Open 2026: Buse ganó otro partidazo, eliminó a Berrettini y se metió por primera vez en semis de un ATP 500**: [Link](https://www.espn.com.pe/tenis/nota/_/id/16337997/rio-open-2026-buse-gano-otro-partidazo-elimino-a-berrettini-y-se-metio-por-primera-vez-en-semifinales-de-un-atp-500)
-- **Ignacio Buse vs. Matteo Berrettini (2-1): video y resumen del partido por cuartos de final del ATP 500 de Río**: [Link](https://depor.com/full-deportes/ignacio-buse-vs-matteo-berrettini-en-vivo-hoy-espn-disney-plus-por-cuartos-de-final-del-atp-500-de-rio-de-janeiro-2026-en-directo-online-por-internet-gratis-video-noticia/)
-- **A horas de enfrentarse en el Rio Open, Joao Fonseca destacó a Ignacio Buse: “Sabemos al nivel que puede jugar”**: [Link](https://bolavip.com/pe/tenis/a-horas-de-enfrentarse-en-el-rio-open-joao-fonseca-destaco-a-ignacio-buse-sabemos-al-nivel-que-puede-jugar)
-
-
-### alianza lima voley (N/A, 21/02/2026 21:42 Lima)
-
-- **Ahora Alianza Lima vs SESI en vivo: se enfrentan por las semifinales de Sudamericano de Clubes de Vóley 2026**: [Link](https://rpp.pe/voley/mas-voley/alianza-lima-vs-sesi-en-vivo-a-que-hora-juegan-y-donde-ver-semifinales-sudamericano-de-clubes-de-voley-2026-via-latina-gratis-noticia-1676832)
-- **Un gesto que no pasó desapercibido: así celebraron Ysabella Sánchez y Clarivett Yllescas el triunfo de Alianza Lima a San Martín**: [Link](https://www.infobae.com/peru/deportes/2026/02/20/un-gesto-que-no-paso-desapercibido-asi-celebraron-ysabella-sanchez-y-clarivett-yllescas-el-triunfo-de-alianza-lima-a-san-martin/)
-- **Sudamericano de Vóley por Latina: Revive AQUÍ el partido entre Universidad San Martín (Perú) vs Banco República (Uruguay)**: [Link](https://www.latina.pe/voley-por-latina/sudamericano-de-voley-por-latina-revive-aqui-el-partido-entre-universidad-san-martin-peru-vs-banco-republica-uruguay_20260220/)
-
-
-### hamnet (N/A, 21/02/2026 21:42 Lima)
-
-- **Oscars bellwether, British awards or both? The identity dilemma facing the Baftas**: [Link](https://www.theguardian.com/film/2026/feb/21/baftas-nominations-british-talent-dilemma)
-- **Who will triumph at the BAFTAs? 'Hamnet' has the home advantage**: [Link](https://www.reuters.com/lifestyle/who-will-triumph-baftas-hamnet-has-home-advantage-2026-02-19/)
-- **BAFTA Winners Predictions: ‘Hamnet,’ ‘One Battle After Another’ and ‘Sinners’ in an Unpredictable Three-Horse Race**: [Link](https://variety.com/2026/film/awards/2026-bafta-awards-winner-predictions-1236665864/)
 
 
