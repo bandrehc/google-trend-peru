@@ -1,3 +1,66 @@
+### copa de campeones concacaf (N/A, 26/02/2026 00:21 Lima)
+
+- **Los Octavos De La Concachampions Suman A LAFC Y Nashville, Que Chocará Con Inter De Messi**: [Link](https://www.barrons.com/news/spanish/los-octavos-de-la-concachampions-suman-a-lafc-y-nashville-que-chocara-con-inter-de-messi-3bc2a2f3)
+- **Inter Miami ya conoce SU DESTINO en la Concacaf Champions Cup**: [Link](https://www.tvazteca.com/aztecadeportes/cuando-debuta-inter-miami-messi-en-concacaf-champions-cup/)
+- **¡Liquida al Ottawa! Jack Maher marca el 4-0 de cabeza para Nashville**: [Link](https://www.tudn.com/futbol/concacaf-champions-cup/liquida-al-ottawa-jack-maher-marca-el-4-0-de-cabeza-para-nashville-video)
+
+
+### vancouver whitecaps (N/A, 26/02/2026 00:21 Lima)
+
+- **Vancouver Whitecaps FC Set for Crucial Match Against CS Cartaginés in Concacaf Champions Cup**: [Link](https://news.ssbcrack.com/vancouver-whitecaps-fc-set-for-crucial-match-against-cs-cartagines-in-concacaf-champions-cup/)
+- **How to watch today's Vancouver Whitecaps vs CS Cartagines CONCACAF Champions Cup game: Live stream, TV channel, and start time**: [Link](https://www.goal.com/en-ug/news/how-to-watch-vancouver-whitecaps-v-cs-cartagines-02262026/blt4b287e83661f6669)
+- **Vancouver Whitecaps down C.S. Cartagines, advance in CONCACAF Champions Cup**: [Link](https://www.thespec.com/sports/soccer/vancouver-whitecaps-down-c-s-cartagines-advance-in-concacaf-champions-cup/article_7ebff7dc-4c3b-5d74-ab05-e8a576b7cf2f.html)
+
+
+### celtics - nuggets (N/A, 26/02/2026 00:21 Lima)
+
+- **Celtics vs. Nuggets Picks & Odds: February 25, 2026**: [Link](https://www.oddsshark.com/nba/celtics-nuggets-picks-odds-february-25-2026)
+- **Jamal Murray News: Officially cleared**: [Link](https://www.rotowire.com/basketball/headlines/jamal-murray-news-officially-cleared-520509)
+- **Tiny Nick's Gambling Picks 02/25**: [Link](https://zonecoverage.com/2026/gambling/tiny-nicks-gambling-picks-02-25-4/)
+
+
+### atv en vivo (N/A, 26/02/2026 00:21 Lima)
+
+- **Fiscalía incorpora a periodista Marisel Linares por supuesto encubrimiento personal**: [Link](https://lpderecho.pe/fiscalia-incorpora-a-periodista-marisel-linares-por-supuesto-encubrimiento-personal/)
+- **Fiscalía incorpora a Marisel Linares como investigada en el caso Lizeth Marzano por presunto encubrimiento**: [Link](https://canaln.pe/actualidad/caso-lizeth-marzano-marisel-linares-incorporada-investigacion-n490566)
+- **La Fiscalía incorpora a Marisel Linares como investigada en el caso del atropello a Lizeth Marzano**: [Link](https://rpp.pe/lima/judiciales/marisel-linares-fiscalia-incluye-a-la-periodista-en-investigacion-por-la-muerte-de-lizeth-marsano-noticia-1677496)
+
+
+### clima trujillo (N/A, 26/02/2026 00:21 Lima)
+
+- **Calor extremo en Trujillo: ciudad registró una temperatura de 32.1 °C, la más alta del año**: [Link](https://andina.pe/agencia/noticia-calor-extremo-trujillo-ciudad-registro-una-temperatura-321-%C2%B0c-mas-alta-del-ano-1064309.aspx)
+- **Conoce el pronóstico del clima para mañana en Trujillo**: [Link](https://www.infobae.com/peru/2026/02/25/conoce-el-pronostico-del-clima-para-manana-en-trujillo/)
+- **Trujillo registra sus días más calurosos del verano: temperatura llega a los 31 °C**: [Link](https://buenapepa.pe/calor-en-trujillo-llega-a-los-31-c/)
+
+
+### carlos alcantara (N/A, 26/02/2026 00:21 Lima)
+
+- **Carlos Alcántara y Jossie Lindley se separaron tras 15 años juntos, afirman**: [Link](https://www.atv.pe/noticia/carlos-alcantara-y-jossie-lindley-se-separaron-tras-15-anos-juntos-afirman/)
+- **Carlos Alcántara se habría separado de su esposa tras más de 15 años juntos: “Han tenido un proceso largo”, revela conductora**: [Link](https://trome.com/espectaculos/tv/carlos-alcantara-se-habria-separado-de-su-esposa-jossie-lindley-tras-mas-de-15-anos-juntos-han-tenido-un-proceso-largo-revela-conductora-video-fotos-farandula-noticia/)
+- **Carlos Alcántara coqueteó con Shirley Arica durante entrevista y le confiesa: “Fue una excusa para conocerte”**: [Link](https://www.infobae.com/peru/2026/02/24/carlos-alcantara-coqueteo-con-shirley-arica-durante-entrevista-y-le-confiesa-fue-una-excusa-para-conocerte/)
+
+
+### miguel bose (N/A, 26/02/2026 00:21 Lima)
+
+- **Miguel Bosé: El eterno disidente del Pop Hispano**: [Link](https://www.radioimagina.cl/2026/02/miguel-bose-el-eterno-disidente-del-pop-hispano/)
+- **Yo Soy conciertos 2026: ¡Miguel Bosé a los 18! una imitación impecable que aún busca soltarse**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-conciertos-2026-miguel-bose-a-los-18-una-imitacion-impecable-que-aun-busca-soltarse_20260225/)
+- **Yo Soy conciertos 2026: ¡Miguel Bosé mostró evolución vocal, pero perdió fuerza en el baile!**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-conciertos-2026-miguel-bose-mostro-evolucion-vocal-pero-perdio-fuerza-en-el-baile_20260223/)
+
+
+### setlist alejandro sanz 2026 (N/A, 26/02/2026 00:21 Lima)
+
+- **Alejandro Sanz en Lima HOY: Setlist, horarios, mapa de ingreso y recomendaciones para sus conciertos en el Estadio Nacional**: [Link](https://rpp.pe/musica/conciertos/alejandro-sanz-en-lima-2026-setlist-de-canciones-horarios-mapa-y-lo-que-se-sabe-de-conciertos-en-estadio-nacional-noticia-1677237)
+- **Alejandro Sanz dará HOY su primer concierto en el Estadio Nacional y sus fanáticos esperan con ansias**: [Link](https://www.atv.pe/noticia/alejandro-sanz-dara-hoy-su-primer-concierto-en-el-estadio-nacional-y-sus-fanaticos-esperan-con-ansias/)
+- **Amplían horario del Metropolitano por concierto de Alejandro Sanz: rutas y paraderos este 25 y 26 de febrero**: [Link](https://larepublica.pe/sociedad/2026/02/25/amplian-horario-del-metropolitano-por-concierto-de-alejandro-sanz-rutas-y-paraderos-este-25-y-26-de-febrero-1661475)
+
+
+### mexico vs (N/A, 26/02/2026 00:21 Lima)
+
+- **Futbol bajo cero: como Islandia maneja una liga profesional**: [Link](https://www.espn.com.ar/futbol/selecciones/nota/_/id/16356378/islandia-futbol-bajo-cero-como-maneja-una-liga-profesional)
+- **Selección Mexicana: Calificaciones tras la victoria ante Islandia**: [Link](https://espndeportes.espn.com/futbol/selecciones/nota/_/id/16359754/mexico-vs-islandia-amistoso-2026-goles-resultado-calificaciones)
+- **Dónde ver México vs. Islandia EN VIVO: canales de TV por TUDN, TV Azteca 7 y Canal 5**: [Link](https://depor.com/futbol-internacional/resto-del-mundo/donde-ver-mexico-vs-islandia-en-vivo-online-canales-de-tv-por-tudn-tv-azteca-7-canal-5-vix-premium-futbol-libre-tv-amistoso-video-noticia/)
+
+
 ### santa fe - atlético nacional (N/A, 25/02/2026 21:36 Lima)
 
 - **¿Una alineación más defensiva? Las precauciones que tomó Arias a la hora de enfrentarse a Santa Fe**: [Link](https://www.elfutbolero.com.co/primeraa/una-alineacion-mas-defensiva-las-precauciones-que-tomo-arias-a-la-hora-de-enfrentarse-a-santa-fe-20260225-73818.html)
@@ -962,68 +1025,5 @@ Sin noticias relacionadas disponibles.
 - **🔴#ENVIVO Conoce las alineaciones de Atlético Grau y Juan Pablo II**: [Link](https://ovacion.pe/noticias/liga1-2026/envivo-conoce-las-alineaciones-atletico-grau-juan-pablo-ii)
 - **Liga 1: Grau recibirá a Juan Pablo II por la fecha 4**: [Link](https://rpp.pe/futbol/descentralizado/liga-1-grau-recibira-a-juan-pablo-ii-por-la-fecha-4-noticia-1676904)
 - **HOY, Atlético Grau vs Juan Pablo II en vivo: A qué hora juegan y dónde ver la Liga 1**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/atletico-grau-vs-juan-pablo-ii-en-vivo-horario-y-donde-ver-la-liga-1-torneo-apertura-2026-l1max-l1play-tdpe-noticia/)
-
-
-### villarreal - valencia c. f. (N/A, 22/02/2026 15:34 Lima)
-
-- **LaLiga EA Sports: Por una nueva edición de el derbi de la Comunitat, Villarreal recibe a Valencia**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-por-una-nueva-edicion-de-el-derbi-de-la-comunitat-villarreal-recibe-a-valencia-noticia-1676901)
-- **Villarreal - Valencia: Sigue pronósticos, mejores apuestas y cuotas**: [Link](https://www.flashscore.pe/noticias/futbol-laliga-villarreal-valencia-pronosticos-apuestas-cuotas/rLqAPcV8/)
-- **Lo que debes saber del Villarreal-Valencia de LaLiga**: [Link](https://www.flashscore.pe/noticias/futbol-laliga-ea-sports-previa-villarreal-valencia-j25/jNlNnE4M/)
-
-
-### málaga - albacete (N/A, 22/02/2026 15:34 Lima)
-
-- **Partido clave del Albacete Balompié en Málaga**: [Link](https://www.albacetebalompie.es/noticias/el-albacete-balompie-se-reta-a-si-mismo-en-un-gran-escenario)
-- **Juanfran Funes vs Alberto González: duelo entre dos amigos y revisionistas del VAR**: [Link](https://as.com/futbol/segunda/juanfran-funes-vs-alberto-gonzalez-duelo-entre-dos-amigos-y-revisionistas-del-var-f202602-n/)
-- **Dos arietes para asaltar el mejor castillo de Segunda**: [Link](https://es.besoccer.com/noticia/albacete-goles-cabeza-puertas-agus-medina-1395730)
-
-
-### lyon fc (N/A, 22/02/2026 15:34 Lima)
-
-- **OL : inquiétude pour Pavel Šulc, sorti sur blessure à Strasbourg**: [Link](https://www.footmercato.net/a3553587648271818044-ol-inquietude-pour-pavel-sulc-sorti-sur-blessure-a-strasbourg)
-- **OL : Énorme coup dur pour l'OL, Pavel Sulc sort sur blessure !**: [Link](https://madeinfoot.ouest-france.fr/infos/article-ol-enorme-coup-dur-pour-l-ol-pavel-sulc-sort-sur-blessure-513706.html)
-- **Pronostic Strasbourg - Lyon, Ligue 1**: [Link](https://www.sportytrader.com/pronostics/rc-strasbourg-lyon-328986/)
-
-
-### milan - parma (N/A, 22/02/2026 11:37 Lima)
-
-- **✅ Milan-Parma | UFFICIALI: le scelte su Leao, Pulisic, Strefezza e Modric**: [Link](https://onefootball.com/it/notizie/milan-parma-ufficiali-le-scelte-su-leao-pulisic-strefezza-e-modric-42450759)
-- **AC Milan-Parma, Serie A Enilive 2025/2026: formazioni ufficiali**: [Link](https://www.acmilan.com/it/news/articoli/serie-a/2026-02-22/milan-parma-le-formazioni-ufficiali)
-- **Milan, Allegri: "Col Napoli scontro diretto per la Champions. Squalifica e Fabregas? Rispondo..."**: [Link](https://www.msn.com/it-it/sport/calcio/milan-allegri-col-napoli-scontro-diretto-per-la-champions-squalifica-e-fabregas-rispondo/ar-AA1WNpP9)
-
-
-### tottenham vs. newcastle (N/A, 22/02/2026 11:37 Lima)
-
-- **Explosive Darwin Nunez Prem return ON as sources reveal huge personal sacrifice player is willing to make**: [Link](https://www.teamtalk.com/news/tottenham-newcastle-hold-talks-darwin-nunez-al-hilal-transfer-escape-exclusive)
-- **Football gossip: Nunez, Sulc, Gomez, Senesi, Delap, Bueno, Gordon, Southgate**: [Link](https://www.bbc.com/sport/football/articles/cwy8n4zw3wmo)
-- **Report: Spurs and Newcastle look at former Liverpool attacker for summer**: [Link](https://sports.yahoo.com/articles/report-spurs-newcastle-look-former-095000736.html)
-
-
-### angers - losc (N/A, 22/02/2026 11:37 Lima)
-
-- **Angers - Lille. Vers un report du match de Ligue 1 à cause des inondations ?**: [Link](https://www.ouest-france.fr/sport/football/angers-sco/football-vers-un-report-du-match-match-de-ligue-1-angers-sco-lille-a-cause-des-inondations-9b0cbbfe-0e33-11f1-8e97-58d10b9feb4d)
-- **Amine Sbaï retrouve une place de titulaire, le onze pour le choc entre Angers SCO et Lille dévoilé**: [Link](https://my-angers.info/02/22/amine-sbai-retrouve-une-place-de-titulaire-le-onze-pour-le-choc-entre-angers-sco-et-lille-devoile/178955)
-- **Hockey sur glace. Ligue Magnus : les Ducs ont rendez-vous chez la lanterne rouge . Sport**: [Link](https://angers.maville.com/sport/detail_-hockey-sur-glace.-ligue-magnus-les-ducs-ont-rendez-vous-chez-la-lanterne-rouge-_-7201892_actu.Htm)
-
-
-### tottenham - arsenal (N/A, 22/02/2026 11:37 Lima)
-
-- **Only 13 Spurs players guaranteed available vs Arsenal**: [Link](https://dailycannon.com/2026/02/spurs-players-available-arsenal/)
-- **Arsenal Face Tottenham In High-Stakes North London Derby Showdown**: [Link](https://evrimagaci.org/gpt/arsenal-face-tottenham-in-highstakes-north-london-derby-showdown-530951)
-- **Would-be Arsenal 'bottle jobs' have far more at stake than north London derby bragging rights in showdown with toiling Tottenham**: [Link](https://www.goal.com/en-us/lists/arsenal-bottle-jobs-north-london-derby-toiling-tottenham/bltd99e888059da9b37)
-
-
-### barca (N/A, 22/02/2026 11:37 Lima)
-
-- **Barcelona XI vs. Levante: Tough Calls Made on Pedri, Rashford—Injury News, Predicted Lineup**: [Link](https://www.si.com/soccer/barcelona-xi-vs-levante-tough-calls-made-pedri-rashford-injury-news-predicted-lineup)
-- **Barcelona vs Levante, La Liga: TV & Streaming, Live Thread**: [Link](https://www.barcablaugranes.com/barcelona-la-liga/113306/barcelona-levante-live-stream-lineups-kickoff-time-tv-channel-how-to-watch-la-liga-online)
-- **Official: Barcelona starting lineup to face Levante | Cancelo starts, Cubarsi benched**: [Link](https://sports.yahoo.com/articles/official-barcelona-starting-lineup-face-141000589.html)
-
-
-### celtic f. c. - hibernian (N/A, 22/02/2026 11:37 Lima)
-
-- **What David Gray told his players about Hibernian’s dismal Celtic Park record**: [Link](https://www.67hailhail.com/news/what-david-gray-told-his-players-about-hibernians-dismal-celtic-park-record/)
-- **Football ACCA Tips: Andy Robson's 18/5 Sunday wager**: [Link](https://betting.betfair.com/football/european-football-tips/football-acca-tips-andy-robsons-185-european-sunday-wager-200226-1302.html)
-- **Owen Elding gets David Gray backing as teen keeps Hibs place for Celtic test**: [Link](https://www.hibsobserver.co.uk/news/25876369.owen-elding-keeps-place-hibs-boss-names-team-celtic/)
 
 
