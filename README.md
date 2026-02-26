@@ -1,3 +1,38 @@
+### smiling friends (N/A, 26/02/2026 03:56 Lima)
+
+- **Why 'Smiling Friends' is ending after 3 seasons in shock announcement**: [Link](https://ftw.usatoday.com/story/entertainment/pop-culture/2026/02/25/why-smiling-friends-is-ending/88872627007/)
+- **Beloved Sitcom To End After Season 3, but All Hope Isn’t Lost**: [Link](https://www.aol.com/articles/beloved-sitcom-end-season-3-042242177.html)
+- **Smiling Friends to End After Season 3; Two Extra Episodes Set to Air April 12**: [Link](https://thephrasemaker.com/2026/02/26/smiling-friends-to-end-after-season-3-two-extra-episodes-set-to-air-april-12/)
+
+
+### bridgerton temporada 4 parte 2 (N/A, 26/02/2026 03:56 Lima)
+
+- **‘Los Bridgerton’: a qué hora se estrena en España la segunda parte de la cuarta temporada**: [Link](https://www.infobae.com/espana/cultura/2026/02/25/los-bridgerton-a-que-hora-se-estrena-en-espana-la-segunda-parte-de-la-cuarta-temporada/)
+- **“Bridgerton” - Temporada 4: conoce cada una de las canciones de la parte 2**: [Link](https://gestion.pe/mix/tendencias-mix/bridgerton-temporada-4-soundtrack-conoce-cada-una-de-las-canciones-de-la-parte-2-nnda-nnlt-noticia/)
+- **Luke Thompson y la bisexualidad de Benedict: "La sexualidad masculina se ha retratado encasillada"**: [Link](https://listindiario.com/entretenimiento/series/20260226/luke-thompson-bisexualidad-benedict-sexualidad-masculina-retratado-encasillada_895495.html)
+
+
+### bridgerton (N/A, 26/02/2026 03:56 Lima)
+
+- **‘Gorgeous’ Covers of Billie Eilish, Charli xcx & Teddy Swims Hits Are Coming to ‘Bridgerton’ Part 2**: [Link](https://www.billboard.com/culture/tv-film/billie-eilish-charli-xcx-songs-covers-bridgerton-season-4-1236185141/)
+- **LSA Exclusive: ‘Bridgerton’ stars Ye-rin Ha & Luke Thompson are in a fairytale**: [Link](https://www.lifestyleasia.com/ind/entertainment/lsa-exclusive-bridgerton-stars-ye-rin-ha-luke-thompson-are-in-a-fairytale/)
+- **Bridgerton Season 4: Welcome Edmund, Kate and Anthony’s Baby**: [Link](https://www.netflix.com/tudum/articles/edmund-bridgerton-kate-anthony-baby)
+
+
+### jossie lindley (N/A, 26/02/2026 03:56 Lima)
+
+- **Carlos Alcántara y Jossie Lindley se separaron tras 15 años juntos, afirman**: [Link](https://www.atv.pe/noticia/carlos-alcantara-y-jossie-lindley-se-separaron-tras-15-anos-juntos-afirman/)
+- **Carlos Alcántara se habría separado de su esposa tras más de 15 años juntos: “Han tenido un proceso largo”, revela conductora**: [Link](https://trome.com/espectaculos/tv/carlos-alcantara-se-habria-separado-de-su-esposa-jossie-lindley-tras-mas-de-15-anos-juntos-han-tenido-un-proceso-largo-revela-conductora-video-fotos-farandula-noticia/)
+- **Carlos Alcántara coqueteó con Shirley Arica durante entrevista y le confiesa: “Fue una excusa para conocerte”**: [Link](https://www.infobae.com/peru/2026/02/24/carlos-alcantara-coqueteo-con-shirley-arica-durante-entrevista-y-le-confiesa-fue-una-excusa-para-conocerte/)
+
+
+### atv (N/A, 26/02/2026 03:56 Lima)
+
+- **¡Atentos! Magaly Medina revela nuevo horario de su programa tras críticas por bajo rating**: [Link](https://elcomercio.pe/respuestas/farandula/todos-atentos-magaly-medina-revela-nuevo-horario-de-su-programa-tras-criticas-por-bajo-rating-tdpe-noticia/)
+- **Andrea Llosa 'parchó' a Magaly Media tras críticas por bajo rating**: [Link](https://www.moda.com.pe/noticias/espectaculos/andrea-llosa-parcho-a-magaly-media-tras-criticas-por-bajo-rating/)
+- **Magaly Medina responde con ironía a las burlas de Tilsa Lozano y Phillip Butters por su rating: “A mí no me den por muerta”**: [Link](https://www.infobae.com/peru/2026/02/19/magaly-medina-responde-con-ironia-a-las-burlas-de-tilsa-lozano-y-phillip-butters-por-su-rating-a-mi-no-me-den-por-muerta/)
+
+
 ### copa de campeones concacaf (N/A, 26/02/2026 00:21 Lima)
 
 - **Los Octavos De La Concachampions Suman A LAFC Y Nashville, Que Chocará Con Inter De Messi**: [Link](https://www.barrons.com/news/spanish/los-octavos-de-la-concachampions-suman-a-lafc-y-nashville-que-chocara-con-inter-de-messi-3bc2a2f3)
@@ -991,39 +1026,5 @@ Sin noticias relacionadas disponibles.
 - **‘El Mencho,’ the leader of one of Mexico’s most powerful cartels, dead after military operation**: [Link](https://www.cnn.com/2026/02/22/americas/mexico-kill-drug-mencho-latam-intl)
 - **Mexico Confirms Death of ‘El Mencho,’ Leader of Jalisco New Generation Cartel**: [Link](https://www.nytimes.com/2026/02/22/world/americas/jalisco-new-generation-cartel-leader-killed.html)
 - **Mexican drug lord "El Mencho" killed in military operation, says government source**: [Link](https://www.reuters.com/world/americas/mexican-drug-lord-el-mencho-killed-military-operation-government-source-2026-02-22/)
-
-
-### lyon (N/A, 22/02/2026 15:34 Lima)
-
-- **"Nous refusons toute instrumentalisation" : l'ambassadeur américain convoqué par le Quai d'Orsay après avoir commenté la mort de Quentin Deranque**: [Link](https://www.franceinfo.fr/faits-divers/mort-de-quentin-militant-identitaire-agresse-a-lyon/nous-refusons-toute-instrumentalisation-paris-convoque-l-ambassadeur-americain-apres-que-l-administration-trump-a-declare-suivre-de-pres-l-enquete-sur-la-mort-de-quentin-deranque_7822595.html)
-- **À Lyon, l’organisatrice de la marche pour Quentin Deranque est mariée à un néonazi violent**: [Link](https://www.streetpress.com/sujet/1771517300-lyon-organisatrice-marche-pour-quentin-deranque-mariee-neonazi-violent-eliot-bertin)
-- **Mort de Quentin Deranque : Une vidéo inédite de la rixe précédant le lynchage du militant d'extrême droite**: [Link](https://www.lecanardenchaine.fr/police-justice/53118-une-video-inedite-de-la-rixe-precedant-le-lynchage-du-militant-d-extreme-droite)
-
-
-### roma fc (N/A, 22/02/2026 15:34 Lima)
-
-- **Donyell Malen told Aston Villa decision 'he should be furious at' as stunning Roma stat emerges**: [Link](https://talksport.com/football/4001567/donyell-malen-transfer-roma-stats-aston-villa-furious/)
-- **Roma to activate Malen’s buy option, drop Zirkzee ahead of summer**: [Link](https://romapress.net/roma-to-activate-malens-buy-option-drop-zirkzee-ahead-of-summer/)
-- **New role sparks turnaround: ex-Bundesliga star suddenly on legendary form**: [Link](https://onefootball.com/de/news/new-role-sparks-turnaround-ex-bundesliga-star-suddenly-on-legendary-form-42448803)
-
-
-### feyenoord vs (N/A, 22/02/2026 15:34 Lima)
-
-- **Feyenoord vs. Telstar (22 Feb, 2026) Live Score**: [Link](https://www.espn.co.uk/football/match/_/gameId/741186)
-- **Preview: Feyenoord vs Telstar - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/feyenoord/preview/feyenoord-vs-telstar-prediction-team-news-lineups_592451.html)
-
-
-### lyon vs (N/A, 22/02/2026 15:34 Lima)
-
-- **Preview: Strasbourg vs Lyon - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/strasbourg/preview/strasbourg-vs-lyon-prediction-team-news-lineups_592366.html)
-- **Football Tracker: Lyon visiting Strasbourg in Ligue 1, Roma in action**: [Link](https://www.flashscore.com/news/football-tracker-live-scores-updates-results/OCdLDAHa/)
-- **Endrick turns Lyon’s tide in Ligue 1**: [Link](https://tribune.com.pk/story/2593593/endrick-turns-lyons-tide-in-ligue-1)
-
-
-### atletico grau (N/A, 22/02/2026 15:34 Lima)
-
-- **🔴#ENVIVO Conoce las alineaciones de Atlético Grau y Juan Pablo II**: [Link](https://ovacion.pe/noticias/liga1-2026/envivo-conoce-las-alineaciones-atletico-grau-juan-pablo-ii)
-- **Liga 1: Grau recibirá a Juan Pablo II por la fecha 4**: [Link](https://rpp.pe/futbol/descentralizado/liga-1-grau-recibira-a-juan-pablo-ii-por-la-fecha-4-noticia-1676904)
-- **HOY, Atlético Grau vs Juan Pablo II en vivo: A qué hora juegan y dónde ver la Liga 1**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/atletico-grau-vs-juan-pablo-ii-en-vivo-horario-y-donde-ver-la-liga-1-torneo-apertura-2026-l1max-l1play-tdpe-noticia/)
 
 
