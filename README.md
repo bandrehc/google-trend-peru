@@ -1,3 +1,38 @@
+### ferencvaros vs (N/A, 26/02/2026 12:04 Lima)
+
+- **Ludogorets’ schedule ahead of the second leg against Ferencvaros in Budapest**: [Link](https://www.ludogorets.com/en/news/?i=7422)
+- **Ferencvaros vs Ludogorets LIVE Score Updates in UEFA Europa League Match**: [Link](https://www.vavel.com/en-us/soccer/2026/02/26/1252140-ferencvaros-vs-ludogorets-live-score-updates-europa-league.html)
+- **Preview: Ferencvaros vs Ludogorets Razgrad - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/ferencvaros/europa-league/preview/ferencvaros-vs-ludogorets-prediction-team-news-lineups_592623.html)
+
+
+### almeria (N/A, 26/02/2026 12:04 Lima)
+
+- **Cristiano Ronaldo compra el 25% del Almería**: [Link](https://as.com/futbol/segunda/cristiano-ronaldo-compra-el-25-del-almeria-f202602-n/)
+- **¿Vuelve Cristiano Ronaldo a España? El ambicioso plan de CR7 tras adquirir acciones del UD Almería**: [Link](https://www.atv.pe/noticia/vuelve-cristiano-ronaldo-a-espana-el-ambicioso-plan-de-cr7-tras-adquirir-acciones-del-ud-almeria/)
+- **Cristiano Ronaldo se convirtió en el nuevo dueño de un club de fútbol en España**: [Link](https://www.infobae.com/deportes/2026/02/26/cristiano-ronaldo-se-convirtio-en-el-nuevo-dueno-de-un-club-de-futbol-en-espana/)
+
+
+### incendio lima (N/A, 26/02/2026 12:04 Lima)
+
+- **Alarma en La Victoria: incendio de gran magnitud se registra a una cuadra del Hospital Almenara**: [Link](https://rpp.pe/lima/actualidad/la-victoria-incendio-de-gran-magnitud-se-registra-a-una-cuadra-del-hospital-almenara-noticia-1677568)
+- **Incendio en La Victoria afecta zonas aledañas al hospital Guillermo Almenara (FOTOS)**: [Link](https://elcomercio.pe/lima/incendio-en-la-victoria-afecta-zonas-aledanas-al-hospital-guillermo-almenara-fotos-ultimas-noticia/)
+- **La Victoria: se registra incendio en almacen**: [Link](https://andina.pe/agencia/noticia-la-victoria-se-registra-incendio-almacen-1064559.aspx)
+
+
+### juan pablo varillas (N/A, 26/02/2026 12:04 Lima)
+
+- **Varillas ganó y se instaló en cuartos del Challenger Tigre 2**: [Link](https://ovacion.pe/noticias/tenis/varillas-gano-se-instalo-cuartos-del-challenger-tigre-2)
+- **Midón se despidió muy pronto del Challenger de Tigre II**: [Link](https://www.diarioellibertador.com.ar/midon-se-despidio-muy-pronto-del-challenger-de-tigre-ii/)
+- **Juan Pablo Varillas vs Joaquín Aguilar: fecha, hora y dónde ver partido por octavos de final de Challenger de Tigre**: [Link](https://www.infobae.com/peru/deportes/2026/02/25/juan-pablo-varillas-vs-joaquin-aguilar-fecha-hora-y-donde-ver-partido-por-octavos-de-final-de-challenger-de-tigre/)
+
+
+### resident evil requiem (N/A, 26/02/2026 12:04 Lima)
+
+- **Review | I played ‘Resident Evil Requiem’ 9 times. Here’s what does and doesn’t work.**: [Link](https://www.washingtonpost.com/entertainment/video-games/2026/02/25/resident-evil-requiem-video-game-review/)
+- **Resident Evil Requiem review - there’s plenty of life in the undead yet**: [Link](https://www.theguardian.com/games/2026/feb/26/resident-evil-requiem-review-theres-plenty-of-life-in-the-undead-yet)
+- **Resident Evil Requiem Review - A Sublime Sepulchre**: [Link](https://gameinformer.com/review/resident-evil-requiem/a-sublime-sepulchre)
+
+
 ### adrian villar atropello (N/A, 26/02/2026 08:19 Lima)
 
 - **PNP detuvo preliminarmente a Adrián Villar por la muerte de la joven Lizeth Marzano en San Isidro**: [Link](https://rpp.pe/lima/judiciales/adrian-villar-pnp-detuvo-preliminarmente-a-adrian-villar-por-la-muerte-de-lizeth-marzano-en-san-isidro-noticia-1677536)
@@ -991,40 +1026,5 @@ Sin noticias relacionadas disponibles.
 - **Tabilo beats Buse & Rio rain, reaches title match**: [Link](https://www.atptour.com/en/news/rio-de-janeiro-2026-sunday)
 - **ATP Rio Final Prediction – Alejandro Tabilo vs Tomas Martin Etcheverry**: [Link](https://lastwordonsports.com/tennis/2026/02/22/atp-rio-final-prediction-tabilo-etcheverry/)
 - **Video : Tomas Martin Etcheverry defeats Alejandro Tabilo at Rio 2026 – Final**: [Link](https://en.tennistemple.com/video/tomas-martin-etcheverry-defeats-alejandr/V7KsE)
-
-
-### que paso en mexico (N/A, 22/02/2026 21:43 Lima)
-
-- **Bloqueo en la Carretera México-Toluca por Desabasto de Agua Potable**: [Link](https://noticiaselpaso.com/manifestantes-bloquean-la-carretera-mexico-toluca-por-desabasto-de-agua-potable/)
-- **Bloquean la México-Toluca por conflicto en Ocoyoacac; vecinos exigen suministro de agua**: [Link](https://planamayor.com.mx/bloquean-la-mexico-toluca-por-conflicto-en-ocoyoacac-vecinos-exigen-suministro-de-agua/)
-- **Rechazan trabajos de rehabilitación hidráulica en Ocoyoacac; escala protesta por el agua**: [Link](https://diariobasta.com/2026/02/20/rechazan-trabajos-de-rehabilitacion-hidraulica-en-ocoyoacac-escala-protesta-por-el-agua/)
-
-
-### celtics - lakers (N/A, 22/02/2026 21:43 Lima)
-
-- **Payton Pritchard Hits Buzzer-Beater to Extend Celtics’ Lead Over Lakers**: [Link](https://news.ssbcrack.com/payton-pritchard-hits-buzzer-beater-to-extend-celtics-lead-over-lakers/)
-- **Lakers hit new low in blowout loss to Celtics**: [Link](https://www.silverscreenandroll.com/lakers-scores-results/108759/lakers-vs-celtics-recap-box-score-stats-final-lebron-james-austin-reaves-luka-doncic)
-- **Final Injury Report for Celtics-Lakers: Will Jayson Tatum, Bronny James Play?**: [Link](https://sports.yahoo.com/articles/final-injury-report-celtics-lakers-193000884.html)
-
-
-### dani lins (N/A, 22/02/2026 21:43 Lima)
-
-- **Dani Lins MVP: veja seleção do Sul-Americano de Clubes Feminino de Vôlei**: [Link](https://noataque.com.br/volei/noticia/2026/02/22/dani-lins-mvp-veja-selecao-do-sul-americano-de-clubes-feminino-de-volei/)
-- **Osasco São Cristóvão Saúde fica com a medalha de prata no Campeonato Sul-americano**: [Link](https://zdl.pressroom.com.br/4623815f88/osasco-sao-cristovao-saude-fica-com-a-medalha-de-prata-no-campeonato-sul-americano.html)
-- **Sesi-Bauru vence Alianza Lima, se garante no Mundial e fará final brasileira no Sul-Americano**: [Link](https://ge.globo.com/sp/tem-esporte/volei/noticia/2026/02/21/sesi-bauru-vence-alianza-lima-se-garante-no-mundial-e-fara-final-brasileira-no-sul-americano.ghtml)
-
-
-### robert aramayo (N/A, 22/02/2026 21:43 Lima)
-
-- **BAFTA Film Awards: ‘One Battle After Another’ Takes Best Film — Full Winners List**: [Link](https://deadline.com/2026/02/2026-bafta-film-awards-winners-1236728271/)
-- **Baftas 2026 red carpet: a kiss for Paul Mescal, Chase Infiniti, Teyana Taylor and bear fashion – in pictures**: [Link](https://www.imdb.com/fr/news/ni65719857/?ref_=nwc_art_perm)
-- **Inside the room at the Alan Cumming-hosted BAFTA Awards, plus a full list of winners**: [Link](https://www.aol.com/articles/inside-room-alan-cumming-hosted-014452795.html)
-
-
-### river (N/A, 22/02/2026 21:43 Lima)
-
-- **Group questions 87,000 pounds of trash found in iconic US river: 'Every candy wrapper, plastic bottle, [and] Red Bull can'**: [Link](https://www.thecooldown.com/outdoors/yellowstone-river-cleanup-montana-2025-results/)
-- **Coast Guard rescues hiker lost for 5 days in Oregon’s Illinois River valley**: [Link](https://www.news.uscg.mil/Press-Releases/Article/4411358/coast-guard-rescues-hiker-lost-for-5-days-in-oregons-illinois-river-valley/)
-- **“He’s Leaving a Trail of Breadcrumbs.” Piecing Together the Disappearance of Gabriel Vaughn.**: [Link](https://www.outsideonline.com/outdoor-adventure/exploration-survival/oregon-gabriel-vaughn/)
 
 
