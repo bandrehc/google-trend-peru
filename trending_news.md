@@ -1,3 +1,71 @@
+### santa fe - atlético nacional (N/A, 25/02/2026 21:36 Lima)
+
+- **¿Una alineación más defensiva? Las precauciones que tomó Arias a la hora de enfrentarse a Santa Fe**: [Link](https://www.elfutbolero.com.co/primeraa/una-alineacion-mas-defensiva-las-precauciones-que-tomo-arias-a-la-hora-de-enfrentarse-a-santa-fe-20260225-73818.html)
+- **Previa Santa Fe Femenino vs. Atlético Nacional Femenino: Doble jornada ante el 'verde paisa'**: [Link](https://www.vavel.com/colombia/futbol-colombiano/2026/02/25/independiente-santa-fe/1252091-previa-santa-fe-femenino-vs-atletico-nacional-femenino-doble-jornada-ante-el-verde-paisa.html)
+- **¡Partidazo de la Liga Femenina por Señal Colombia!**: [Link](https://www.rtvc.gov.co/noticias/liga-femenina-en-vivo-senal-colombia-santa-fe-nacional)
+
+
+### geminis vs universitario (N/A, 25/02/2026 21:36 Lima)
+
+- **Géminis derrota a Universitario 3 a 1: resumen del partido pendiente por Fase 2 de la Liga Peruana de Vóley 2026**: [Link](https://www.infobae.com/peru/deportes/2026/02/25/universitario-vs-geminis-en-vivo-hoy-punto-a-punto-partido-pendiente-fecha-6-fase-2-liga-peruana-de-voley-2026-resumen-resultado/)
+- **Liga Peruana de Vóley 2026: tabla de posiciones de la segunda fase y partidos de la fecha 8**: [Link](https://libero.pe/deportes/voley/2026/02/23/liga-peruana-de-voley-2026-tabla-de-posiciones-de-segunda-fase-programacion-de-fecha-8-resultados-1134107)
+- **Deportivo Géminis derrota a Universitario en la fecha 6 de la FASE 2 de la Liga Peruana de Vóley**: [Link](https://elcomercio.pe/deporte-total/voley/universitario-vs-deportivo-geminis-en-vivo-hora-canal-tv-y-donde-ver-la-liga-peruana-de-voley-latina-tv-video-tdpe-noticia/)
+
+
+### gremio vs atletico mineiro (N/A, 25/02/2026 21:36 Lima)
+
+- **📋 Grêmio and Atlético-MG line up to end poor Brasileiro run**: [Link](https://sports.yahoo.com/articles/gr-mio-atl-tico-mg-233300436.html)
+- **Grêmio Vs Atlético Mineiro: Castro Faces Late Midfield Setback Ahead of Arena Match**: [Link](https://www.filmogaz.com/168696)
+- **Grêmio vs Atlético-MG: pronósticos, cuotas, y datos para apostar!**: [Link](https://www.apwin.com/es/pronosticos/gremio-vs-atletico-mineiro-pronostico-brasileirao-serie-a-25-02-2026/)
+
+
+### erick noriega (N/A, 25/02/2026 21:36 Lima)
+
+- **Noriega cerca del título, Gallese se convierte en muralla y Peña camina hacia el descenso: así les fue a los peruanos en el exterior y qué viene para ellos**: [Link](https://elcomercio.pe/deporte-total/seleccion/seleccion-peruana-erick-noriega-cerca-del-titulo-pedro-gallese-se-convierte-en-muralla-y-sergio-pena-camina-hacia-el-descenso-asi-les-fue-a-los-peruanos-en-el-exterior-y-que-viene-para-ellos-noticia/)
+- **¡Brilla en Brasil! Gol y asistencia de Erick Noriega en clasificación de Gremio vs Juventude**: [Link](https://depor.com/futbol-peruano/peruanos-en-el-mundo/gol-erick-noriega-peruano-dio-asistencia-y-marco-penal-en-semifinal-del-campeonato-gaucho-en-gremio-vs-juventude-video-noticia/)
+- **Carrillo en 'semis' del Paulistao y Noriega en final del Gaucho**: [Link](https://www.americatv.com.pe/deportes/futbol-mundial/carrillo-semis-paulistao-y-noriega-final-gaucho-n452803?ref=portal-amtv)
+
+
+### godoy cruz - deportivo morón (N/A, 25/02/2026 21:36 Lima)
+
+- **Godoy Cruz quedó eliminado de la Copa Argentina y sigue en caída libre**: [Link](https://www.elsol.com.ar/deportes/godoy-cruz-quedo-eliminado-de-la-copa-argentina-y-sigue-en-caida-libre/)
+- **La agenda deportiva del miércoles llega con un partidazo del Tomba en Mendoza por la Copa Argentina**: [Link](https://mendozatoday.com.ar/2026/02/25/la-agenda-deportiva-del-miercoles-llega-con-un-partidazo-del-tomba-en-mendoza-por-la-copa-argentina/)
+- **Dos cruces de primera fase con exclusivos equipos de la Primera Nacional**: [Link](https://deportv.gob.ar/futbol/miercoles-cruces-nid:11432)
+
+
+### local de votación 2026 (N/A, 25/02/2026 21:36 Lima)
+
+- **Elecciones 2026: Conoce aquí tu lugar de votación**: [Link](https://lpderecho.pe/elecciones-2026-conoce-aqui-lugar-votacion/)
+- **Dónde votar en las Elecciones 2026: Link de la ONPE para conocer tu local de votación con tu DNI**: [Link](https://www.infobae.com/peru/2026/02/24/donde-votar-en-las-elecciones-2026-link-de-la-onpe-para-conocer-tu-local-de-votacion-con-tu-dni/)
+- **Así podrás consultar con tu DNI dónde votar en las Elecciones Generales 2026**: [Link](https://peru21.pe/politica/consulta-tu-local-de-votacion-para-elecciones-2026-con-dni/)
+
+
+### concierto de alejandro sanz (N/A, 25/02/2026 21:36 Lima)
+
+- **Alejandro Sanz y Stephanie Cayo: las pistas sobre el posible romance del que todos hablan**: [Link](https://www.hola.com/actualidad/20260224885859/alejandro-sanz-stephanie-cayo-pistas-romance/)
+- **Así reaccionó Alejandro Sanz ante los rumores de un supuesto romance con Stephanie Cayo**: [Link](https://rpp.pe/famosos/celebridades/alejandro-sanz-y-stephanie-cayo-la-inesperada-reaccion-del-cantante-al-ser-consultado-por-su-supuesto-romance-noticia-1677433)
+- **Alejandro Sanz reacciona ante pregunta por Stephanie Cayo**: [Link](https://www.americatv.com.pe/noticias/espectaculos/alejandro-sanz-su-reaccion-cuando-preguntan-stephanie-cayo-n516131)
+
+
+### gremio vs (N/A, 25/02/2026 21:36 Lima)
+
+- **Grêmio vs Atlético-MG: pronósticos, cuotas, y datos para apostar!**: [Link](https://www.apwin.com/es/pronosticos/gremio-vs-atletico-mineiro-pronostico-brasileirao-serie-a-25-02-2026/)
+
+
+### warriors - grizzlies (N/A, 25/02/2026 21:36 Lima)
+
+- **Battered clubs battle as Warriors hobble into Memphis**: [Link](https://www.thesportsleader.com/2026/02/25/battered-clubs-battle-as-warriors-hobble-into-memphis/)
+- **De'Anthony Melton (knee) out Wednesday**: [Link](https://www.fantasypros.com/nba/news/571042/deanthony-melton-knee-out-wednesday.php)
+- **NBA Best Bets: Warriors at Grizzlies Best Prop Bets for Wednesday 2/25/26**: [Link](https://dknetwork.draftkings.com/2026/02/25/nba-best-bets-warriors-at-grizzlies-best-prop-bets-for-wednesday-2-25-26/)
+
+
+### clima lima (N/A, 25/02/2026 21:36 Lima)
+
+- **SENAMHI: Pronóstico del clima hoy miércoles 25 de febrero 2026**: [Link](https://rpp.pe/peru/actualidad/senamhi-pronostico-del-clima-hoy-miercoles-25-de-febrero-2026-noticia-1677376)
+- **¿Cielo nublado y lluvia en Lima? Así estará el clima hoy 22 de febrero, según el Senamhi**: [Link](https://www.infobae.com/noticias/2026/02/22/clima-hoy-en-peru-temperaturas-para-lima-este-22-de-febrero/)
+- **Clima hoy en Lima, Perú: el pronóstico del tiempo para este miércoles 25 febrero de 2026**: [Link](https://www.clarin.com/informacion-general/clima-hoy-lima-peru-pronostico-tiempo-miercoles-25-febrero-2026_0_VFhacQvVQT.html)
+
+
 ### paris vs (N/A, 25/02/2026 15:41 Lima)
 
 - **Jordan Teze : "Faire notre maximum et jouer tous les coups à fond"**: [Link](https://www.asmonaco.com/conference-de-presse-jordan-teze-avant-psg-monaco-barrage-retour-ldc-faire-notre-maximum-et-jouer-tous-les-coups-a-fond/)
@@ -957,75 +1025,5 @@ Sin noticias relacionadas disponibles.
 - **What David Gray told his players about Hibernian’s dismal Celtic Park record**: [Link](https://www.67hailhail.com/news/what-david-gray-told-his-players-about-hibernians-dismal-celtic-park-record/)
 - **Football ACCA Tips: Andy Robson's 18/5 Sunday wager**: [Link](https://betting.betfair.com/football/european-football-tips/football-acca-tips-andy-robsons-185-european-sunday-wager-200226-1302.html)
 - **Owen Elding gets David Gray backing as teen keeps Hibs place for Celtic test**: [Link](https://www.hibsobserver.co.uk/news/25876369.owen-elding-keeps-place-hibs-boss-names-team-celtic/)
-
-
-### adt - utc cajamarca (N/A, 22/02/2026 11:37 Lima)
-
-- **Comerciantes Unidos vs. Univ Tecnica de Cajamarca - Boxscore - Live Score - March 07, 2026**: [Link](https://www.foxsports.com/soccer/peruvian-primera-division-comerciantes-unidos-vs-u-de-cajamarca-mar-07-2026-game-boxscore-700115?tab=boxscore)
-- **Comerciantes Unidos vs. Atletico Grau - Live Score - March 01, 2026**: [Link](https://www.foxsports.com/soccer/peruvian-primera-division-comerciantes-unidos-vs-atletico-grau-mar-01-2026-game-boxscore-687476)
-- **Comerciantes Unidos vs. Univ Tecnica de Cajamarca - Live Score - March 07, 2026**: [Link](https://www.foxsports.com/soccer/peruvian-primera-division-comerciantes-unidos-vs-u-de-cajamarca-mar-07-2026-game-boxscore-700115)
-
-
-### el caballero de los siete reinos capitulo 6 (N/A, 22/02/2026 11:37 Lima)
-
-- **'El caballero de los siete reinos': ¿A qué hora se estrena el capítulo final de la precuela de 'Juego de tronos' en HBO Max?**: [Link](https://larepublica.pe/cine-series/2026/02/21/el-caballero-de-los-siete-reinos-a-que-hora-se-estrena-el-capitulo-final-de-la-precuela-de-juego-de-tronos-en-hbo-max-1928556)
-- **“A Knight of the Seven Kingdoms” Capítulo 6: Hora de estreno confirmado en HBO Max**: [Link](https://elcomercio.pe/respuestas/farandula/a-knight-of-the-seven-kingdoms-capitulo-6-hora-de-estreno-confirmado-hbo-max-game-of-thrones-tdpe-noticia/)
-- **HBO Max arrasa en audiencia con A Knight of the Seven Kingdoms y The Pitt**: [Link](https://www.mundiario.com/cineseries/articulo/hbomax/hbo-max-arrasa-audiencia-knight-of-the-seven-kingdoms-the-pitt/20260221041001049095.html)
-
-
-### barcelona - levante (N/A, 22/02/2026 11:37 Lima)
-
-- **Barcelona - Levante hoy, en directo: LaLiga EA Sports en vivo, última hora en el Spotify Camp Nou**: [Link](https://as.com/futbol/primera/barcelona-levante-en-directo-laliga-ea-sports-hoy-en-vivo-f202602-d/)
-- **Flick apuesta por Bernal en el once ante el Levante**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20260222/1004132687/flick-apuesta-bernal-once-levante.html)
-- **Barcelona vs Levante: posibles alineaciones, Jornada 25, LaLiga**: [Link](https://www.espn.com.ar/futbol/espana/nota/_/id/16341973/barcelona-vs-levante-laliga-2026-alineaciones-jornada-25)
-
-
-### wolves vs. arsenal (N/A, 22/02/2026 11:37 Lima)
-
-- **Arteta: 'We want to write our own destiny' | Press conference | News**: [Link](https://www.arsenal.com/news/arteta-we-want-write-our-own-destiny)
-- **FPL GW27 bonus points: See who earned extras in Saturday's matches**: [Link](https://www.premierleague.com/en/news/4593771/fpl-gw27-bonus-points-see-who-earned-extras-in-saturdays-matches)
-- **'Grow a pair' - Gary Lineker questions Arsenal's mentality in Premier League title fight after latest collapse**: [Link](https://www.goal.com/en/lists/grow-pair-gary-lineker-questions-arsenal-mentality-premier-league-title-collapse/bltcb205c210738b1c1)
-
-
-### getafe - sevilla (N/A, 22/02/2026 08:02 Lima)
-
-- **Cuándo juegan Getafe vs. Sevilla por la LaLiga 2025/26: equipo, fecha y hora**: [Link](https://www.espn.com.pe/futbol/espana/nota/_/id/16324313/cuando-juegan-getafe-vs-sevilla-por-la-laliga-2025-26-equipo-fecha-y-hora)
-- **Lo que debes saber del Getafe-Sevilla de LaLiga**: [Link](https://www.flashscore.pe/noticias/futbol-laliga-ea-sports-previa-getafe-sevilla-j25/r7ER85zH/)
-- **LaLiga EA Sports: Por la fecha 25, Getafe recibirá a Sevilla**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-por-la-fecha-25-getafe-recibira-a-sevilla-noticia-1676862)
-
-
-### genoa - torino (N/A, 22/02/2026 08:02 Lima)
-
-- **✅ Genoa v Torino line-ups: Simeone, Colombo, Malino, Baldanzi in**: [Link](https://onefootball.com/en/news/genoa-v-torino-line-ups-simeone-colombo-malino-baldanzi-in-42449484)
-- **Genoa v Torino Match Stats**: [Link](https://andysbetclub.co.uk/football-fixtures/genoa-v-torino/22022026/9f67b70a-9b9a-45cb-919d-c8f361b528a9/stats/team/)
-- **Preview: Genoa vs Torino - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/genoa/preview/genoa-vs-torino-prediction-team-news-lineups_592378.html)
-
-
-### barcelona vs levante (N/A, 22/02/2026 08:02 Lima)
-
-- **Posible alineación del Barcelona ante el Levante hoy en LaLiga**: [Link](https://as.com/futbol/posible-alineacion-del-barcelona-ante-el-levante-hoy-en-laliga-f202602-n/)
-- **Barça - Levante: El cambio de Flick en el once para aprovechar el regalo del Madrid**: [Link](https://www.sport.es/es/noticias/barca/barca-escapar-regalo-madrid-127122240)
-- **Barcelona vs Levante: posibles alineaciones, Jornada 25, LaLiga**: [Link](https://www.espn.com.ar/futbol/espana/nota/_/id/16341973/barcelona-vs-levante-laliga-2026-alineaciones-jornada-25)
-
-
-### liga mx (N/A, 22/02/2026 08:02 Lima)
-
-- **Quiere dirigir en la Liga MX y ya sonó para Tigres en el pasado, ¿tiembla Pizarro?**: [Link](https://www.elfutbolero.com.mx/ligamx/quiere-dirigir-en-la-liga-mx-y-ya-sono-para-tigres-en-el-pasado-tiembla-pizarro-20260222-149865.html)
-- **Esto es todo lo que tienes que saber previo a El Clásico de México**: [Link](https://onefootball.com/es/noticias/esto-es-todo-lo-que-tienes-que-saber-previo-a-el-clasico-de-mexico-42445979)
-- **Antonio Contreras y Ángel Villacampa se volverán a ver las caras en el Chivas-América**: [Link](https://www.oncediario.com/notas/60947-chivas-america-angel-villacampa-antonio-contreras-liga-mx-femenil-clausura-2026-jornada-10-estadio-akron)
-
-
-### terremoto sismo temblor hoy epicentro (N/A, 22/02/2026 03:39 Lima)
-
-- **Temblor en México EN VIVO hoy, 22 de febrero 2026: hora exacta, magnitud y dónde fue el epicentro del último sismo**: [Link](https://gestion.pe/mix/respuestas/temblor-en-mexico-en-vivo-hoy-22-y-23-de-febrero-2026-hora-exacta-magnitud-y-donde-fue-el-epicentro-del-ultimo-sismo-servicio-sismologico-nacional-nnda-nnrt-noticia/)
-- **Sismo 4.0 en Sayula de Alemán hoy 21 de febrero del 2026**: [Link](https://www.aztecachiapas.com/sismo-4-0-en-sayula-aleman-hoy-21-febrero-del-2026/)
-- **Reportan sismos en México: Oaxaca, Sinaloa y Veracruz**: [Link](https://www.elmanana.com/noticias/nacional/sismo-en-mexico-detalles-sobre-temblores-en-sinaloa/6097207)
-
-
-### tijuana - mazatlán (N/A, 22/02/2026 03:39 Lima)
-
-- **Liga MX: Por la fecha 7 se enfrentarán Tijuana y Mazatlán**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-por-la-fecha-7-se-enfrentaran-tijuana-y-mazatlan-noticia-1676842)
-- **Qué canal pasa Xolos vs Mazatlán hoy: dónde ver GRATIS y EN VIVO el partido de la Liga MX**: [Link](https://www.365scores.com/es/news/xolos-vs-mazatlan-donde-ver-gratis-vivo/)
-- **⚽ ¡No va gratis! Checa a qué HORA y por DÓNDE VER el Tijuana vs Mazatlán de la Liga MX 🐶🆚⚓**: [Link](https://www.facebook.com/MilenioDiario/posts/-no-va-gratis-checa-a-qu%C3%A9-hora-y-por-d%C3%B3nde-ver-el-tijuana-vs-mazatl%C3%A1n-de-la-liga/1394685462688921/)
 
 
