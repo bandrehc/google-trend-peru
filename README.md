@@ -1,3 +1,72 @@
+### racing - independiente rivadavia (N/A, 26/02/2026 15:44 Lima)
+
+- **Qué canal pasa Racing vs Independiente Rivadavia hoy: dónde ver el partido gratis y en vivo de la Liga Profesional**: [Link](https://www.365scores.com/es/news/racing-vs-independiente-rivadavia-canal/)
+- **La sorpresiva variante de Costas en caso de no contar con “Maravilla” Martínez**: [Link](https://noticiasargentinas.com/deportes/la-sorpresiva-variante-de-costas-en-caso-de-no-contar-con--maravilla--martinez_a69a08c94c331fb25183d5bf2)
+- **Maravilla Martínez enciende las alarmas de Racing**: [Link](https://www.elprimergrande.com/noticias/maravilla-martinez-enciende-las-alarmas-de-racing/)
+
+
+### real madrid - bayern (N/A, 26/02/2026 15:44 Lima)
+
+- **Real Madrid-Bayern Munich: EuroLeague returns to the Palacio**: [Link](https://www.realmadrid.com/en-US/news/basket/first-team/fixtures/real-madrid-bayern-munich-26-02-2026)
+- **FC Bayern vs. Madrid: All you need to know**: [Link](https://fcbayern.com/basketball/en/games/profis/euroleague/25-26/real-madrid-fc-bayern-basketball-26-02-2026/preview)
+
+
+### bologna vs (N/A, 26/02/2026 15:44 Lima)
+
+- **Preview: Bologna vs SK Brann - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/bologna/europa-league/preview/bologna-vs-brann-prediction-team-news-lineups_592628.html)
+- **Norway Europa League Soccer**: [Link](https://www.chronicle-tribune.com/sports/wire/norway-europa-league-soccer/image_83e63694-9b08-5e5d-8baa-b3e69ce5f9a3.html)
+- **Di Vaio and Bologna use Fiorentina collapse to motivate squad**: [Link](https://sports.yahoo.com/articles/di-vaio-bologna-fiorentina-collapse-194500391.html)
+
+
+### bologna (N/A, 26/02/2026 15:44 Lima)
+
+- **Bologna: contro il Brann c’è Castro per proseguire la striscia positiva**: [Link](https://onefootball.com/pt-br/noticias/bologna-contro-il-brann-ce-castro-per-proseguire-la-striscia-positiva-42472063)
+- **Di Vaio: “Aspettiamo il vero Orsolini, è imprevedibile: ecco cosa sta succedendo. E Odgaard…”**: [Link](https://www.sosfanta.com/squadra/bologna/di-vaio-aspettiamo-il-vero-orsolini-e-imprevedibile-ecco-cosa-sta-succedendo-e-odgaard/)
+- **Bologna-Brann, i convocati del match: lungo stop per Miranda**: [Link](https://www.bolognasportnews.it/news/549736337976/bologna-brann-i-convocati-del-match-lungo-stop-per-miranda)
+
+
+### lille (N/A, 26/02/2026 15:44 Lima)
+
+- **Lille - Crvena zvezda 0:1**: [Link](https://www.flashscore.com/match/football/crvena-zvezda-ncRzHK14/lille-pfDZL71o/report/?mid=zJe3QYh5)
+- **Serbia Europa League Soccer**: [Link](https://www.thederrick.com/ap/sports/serbia-europa-league-soccer/image_acd447ff-3360-55df-ac61-6461d9520500.html)
+- **Crvena Zvezda Vs Losc: crvena zvezda vs losc preview and team news**: [Link](https://www.filmogaz.com/170014)
+
+
+### genk (N/A, 26/02/2026 15:44 Lima)
+
+- **Ticketinfo KRC Genk - Dinamo Zagreb**: [Link](https://www.krcgenk.be/nl/nieuws/6239/ticketinfo-krc-genk-dinamo-zagreb)
+- **"Misschien hebben we Standard onderschat": Zakaria El Ouahdi laat er geen enkele twijfel over bestaan**: [Link](https://www.voetbalkrant.com/nieuws/2026-02-26/misschien-hebben-we-standard-onderschat-zakaria-el-ouahdi-laat-er-geen-enkele-twijfel-over-bestaan)
+- **Hayen na uitspraak Strupar over de Genkse kansen: “Kijk maar naar Club en Atlético”**: [Link](https://www.voetbalprimeur.be/nieuws/1745910/nicky-hayen-na-uitspraak-strupar-over-de-genkse-kansen.html)
+
+
+### al ahli (N/A, 26/02/2026 15:44 Lima)
+
+- **Saudi Pro League: Riyad Mahrez, the king of key passes**: [Link](https://foot-africa.com/en/news/saudi-pro-league-riyad-mahrez-the-king-of-key-passes-1093970/)
+- **Football Saudi Pro League: Riyad Mahrez stays at Al Ahli**: [Link](https://en.africatopsports.com/2026/02/26/saudi-pro-league-riyad-mahrez-stays-at-al-ahli/)
+- **Riyad Mahrez to stay at Al Ahli amid transfer speculation**: [Link](https://africasoccer.com/riyad-mahrez-stays-al-ahli/)
+
+
+### paok vs. celta de vigo (N/A, 26/02/2026 15:44 Lima)
+
+- **Football Bet Of The Day: James Milton has a 17-10 selection from the Europa League**: [Link](https://www.racingpost.com/sport/football-tips/football-bet-of-the-day-james-milton-has-a-17-10-selection-from-the-europa-league-aogxC2P0NRL9/)
+- **Celta de Vigo vs PAOK LIVE Score Updates in UEFA Europa League Match**: [Link](https://www.vavel.com/en-us/soccer/2026/02/26/1252177-celta-vs-paok-live-score-europa-league.html)
+- **Football Bet of the Day: Back goals at Balaidos on Thursday**: [Link](https://mrfixitstips.co.uk/football-bet-of-the-day-back-goals-at-balaidos-on-thursday/)
+
+
+### genk vs (N/A, 26/02/2026 15:44 Lima)
+
+- **Belgium Europa League Soccer**: [Link](https://lufkindailynews.com/anpa/sports/belgium-europa-league-soccer/image_d9fe71dd-52e6-5e0c-8607-b1dcda9a5caf.html)
+- **Genk vs Dinamo Zagreb LIVE Score Updates: The home team wants to turn the series around (0-0)**: [Link](https://www.vavel.com/en-us/soccer/2026/02/26/1252076-genk-vs-dinamo-zagreb-live-europa-league.html)
+- **Genk-Dinamo Zagreb - Europa League 2025/2026 Statistical Preview**: [Link](https://www.whoscored.com/matches/1967257/preview/europe-europa-league-2025-2026-genk-dinamo-zagreb)
+
+
+### sat (N/A, 26/02/2026 15:44 Lima)
+
+- **SAT de Lima recuerda que este 27 vence el impuesto vehicular y no habrá amnistía**: [Link](https://canaln.pe/actualidad/sat-manana-vence-pago-impuesto-vehicular-n490585)
+- **Evita una multa de S/2750: Plazo para declarar vehículos nuevos adquiridos en 2025 vence este 27 de febrero**: [Link](https://peru21.pe/lima/evita-una-multa-de-s2750-plazo-para-declarar-vehiculos-nuevos-adquiridos-en-2025-vence-este-27-de-febrero/)
+- **Impuesto vehicular, predial y arbitrios vence el 27 de febrero: cómo consultar y pagar en línea**: [Link](https://gestion.pe/peru/impuesto-vehicular-predial-y-arbitrios-vence-el-27-de-febrero-como-consultar-y-pagar-en-linea-noticia/)
+
+
 ### ferencvaros vs (N/A, 26/02/2026 12:04 Lima)
 
 - **Ludogorets’ schedule ahead of the second leg against Ferencvaros in Budapest**: [Link](https://www.ludogorets.com/en/news/?i=7422)
@@ -957,74 +1026,5 @@ Sin noticias relacionadas disponibles.
 - **¡Bronca en el Gallardo! Rabanal, Concha y Fara explotaron contra hinchas de Cristal tras empate**: [Link](https://depor.com/futbol-peruano/descentralizado/universitario-vs-sporting-cristal-javier-rabanal-cain-fara-y-jairo-concha-protagonizaron-una-pelea-con-los-hinchas-en-el-alberto-gallardo-liga-1-video-noticia/)
 - **Javier Rabanal se responsabilizó del empate de Universitario ante Sporting Cristal**: [Link](https://www.espn.com.ar/futbol/peru/nota/_/id/16342659/javier-rabanal-se-responsabilizo-del-empate-de-universitario-ante-sporting-cristal)
 - **Rabanal: "En qué momento nos metimos tan atrás"**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/rabanal-que-momento-se-decidio-que-nos-metieramos-tan-atras-n452794)
-
-
-### rafael lópez aliaga (N/A, 23/02/2026 00:37 Lima)
-
-- **Vladimiro Montesinos asesora la campaña de Keiko Fujimori, afirma Rafael López Aliaga: “A ella no le da tanto el cerebro”**: [Link](https://www.infobae.com/peru/2026/02/23/vladimiro-montesinos-asesora-la-campana-de-keiko-fujimori-afirma-rafael-lopez-aliaga-a-ella-no-le-da-tanto-el-cerebro/)
-- **López Aliaga afirma que Montesinos dirige estrategia política de Keiko Fujimori: “Está en campaña”**: [Link](https://diariocorreo.pe/politica/lopez-aliaga-afirma-que-montesinos-dirige-estrategia-politica-de-keiko-fujimori-esta-en-campana-noticia/)
-- **Rafael López Aliaga afirma que Vladimiro Montesinos asesora a Keiko fujimori**: [Link](https://peru21.pe/politica/rafael-lopez-aliaga-afirma-que-vladimiro-montesinos-asesora-keiko-fujimori/)
-
-
-### encuestas presidenciales 2026 (N/A, 23/02/2026 00:37 Lima)
-
-- **López Aliaga le ganaría a todos sus rivales en una eventual segunda vuelta**: [Link](https://www.ipsos.com/es-pe/lopez-aliaga-le-ganaria-todos-sus-rivales-en-una-eventual-segunda-vuelta)
-- **CPI: así va la intención de voto para las elecciones presidenciales a menos de dos meses de los comicios**: [Link](https://rpp.pe/politica/elecciones/intencion-de-voto-elecciones-presidenciales-peru-2026-encuesta-cpi-revela-liderazgo-de-rafael-lopez-aliaga-y-29-de-indecisos-noticia-1676700)
-- **Entre Cerrón y López Chau**: [Link](https://www.expreso.com.pe/opinion/entre-cerron-y-lopez-chau/)
-
-
-### binacional (N/A, 23/02/2026 00:37 Lima)
-
-- **¿Vuelve Binacional a la Liga 1? Lo que se sabe de este polémico caso a raíz de una publicación que fue desmentida**: [Link](https://www.infobae.com/peru/deportes/2026/02/23/vuelve-binacional-a-la-liga-1-tribunal-constitucional-ordena-a-la-fpf-la-reincorporacion-del-club-al-torneo/)
-- **Campeón nacional descendido administrativamente volverá a la Liga 1 tras dictamen legal**: [Link](https://bolavip.com/pe/liga-1/campeon-nacional-descendido-administrativamente-volvera-a-la-liga-1-tras-dictamen-legal)
-
-
-### gloria estefan (N/A, 23/02/2026 00:37 Lima)
-
-- **Gloria Estefan brilla en la apertura de Viña del Mar 2026 y se lleva gaviotas de plata y oro**: [Link](https://elcomercio.pe/luces/musica/gloria-estefan-brilla-en-la-apertura-de-vina-del-mar-2026-y-se-lleva-gaviotas-de-plata-y-oro-ultimas-noticia/)
-- **Quién es Emily Estefan, la hija de Gloria que está en su show en el Festival de Viña 2026**: [Link](https://www.latercera.com/culto/noticia/quien-es-emily-estefan-la-hija-de-gloria-que-esta-en-su-show-en-el-festival-de-vina-2026/)
-- **La opinión que se repitió por aparición de José Antonio Neme en show de Gloria Estefan en el Festival de Viña**: [Link](https://www.t13.cl/noticia/espectaculos/la-opinion-se-repitio-aparicion-jose-antonio-neme-show-gloria-estefan-festival-22-2-2026)
-
-
-### unión - aldosivi (N/A, 23/02/2026 00:37 Lima)
-
-- **Unión venció a Aldosivi 1 a 0 en el estadio de la Avenida**: [Link](https://www.directvsports.com/futbol/union-vencio-a-aldosivi-1-a-0-en-el-estadio-de-la-avenida-20260219-0021.html)
-- **Unión sufrió pero festejó: triunfo clave ante el Tiburón en el 15 de Abril**: [Link](https://onefootball.com/pt-br/noticias/union-sufrio-pero-festejo-triunfo-clave-ante-el-tiburon-en-el-15-de-abril-42453113)
-- **Galería BICA: Unión-Aldosivi**: [Link](https://www.ellitoral.com/actualidad-tatengue/banco-bica-union-aldosivi-torneo-apertura-fecha-6_5_VGRKKkjiyO.html)
-
-
-### alejandro sanz en lima (N/A, 23/02/2026 00:37 Lima)
-
-- **¡Alejandro Sanz ya está en Perú! Cantante español desata euforia en Lima previo a sus conciertos en el Estadio Nacional**: [Link](https://larepublica.pe/entretenimiento/2026/02/22/alejandro-sanz-ya-esta-en-peru-cantante-espanol-desata-euforia-en-lima-previo-a-sus-conciertos-en-el-estadio-nacional-2026-778052)
-- **Quedan entradas para Alejandro Sanz en Perú: Precios y cómo comprar**: [Link](https://www.sportingnews.com/us-es/tickets/news/quedan-entradas-alejandro-sanz-peru-2026-precios-como-comprar/7b1d2d0de565ec690c4a6746)
-- **Alejandro Sanz en Lima: ¡Consulta aquí el setlist de su gira ‘¿Y ahora qué?’!**: [Link](https://blog.joinnus.com/alejandro-sanz-en-lima-consulta-aqui-el-setlist-de-su-gira-y-ahora-que/)
-
-
-### peñarol - deportivo maldonado (N/A, 22/02/2026 21:43 Lima)
-
-- **Matías Arezo: "Previo a los clásicos siempre es importante ganar"**: [Link](https://www.espn.com.ar/futbol/uruguay/nota/_/id/16347609/matias-arezo-declaraciones-tras-penarol-deportivo-maldonado-previa-clasico)
-- **Transmisión EN VIVO de Peñarol vs Deportivo Maldonado hoy: cómo mirar el partido por TV o streaming**: [Link](https://www.365scores.com/es/news/transmision-penarol-maldonado-auf-hoy/)
-- **VIDEO: ¡Lo empata Peñarol! Arezo marcó el primer gol ante Deportivo Maldonado**: [Link](https://www.directvsports.com/futbol/video-lo-empata-penarol-arezo-marco-el-primer-gol-ante-deportivo-maldonado-20260222-0037.html)
-
-
-### américa - jaguares (N/A, 22/02/2026 21:43 Lima)
-
-- **Cuándo juegan América vs Jaguares por Liga BetPlay: equipo, fecha, hora y TV en vivo**: [Link](https://www.espn.com.ar/futbol/colombia/nota/_/id/16344093/america-vs-jaguares-liga-betplay-equipo-fecha-hora-tv-en-vivo)
-- **América hizo impensado anuncio tras perder contra Junior**: [Link](https://www.deportesrcn.com/futbol/america-hizo-impensado-anuncio-tras-perder-contra-junior-146255)
-- **Van por su primer triunfo fuera de casa**: [Link](https://elmeridiano.co/sucre/deportes/van-por-su-primer-triunfo-fuera-de-casa-d1rd25)
-
-
-### viña del mar 2026 (N/A, 22/02/2026 21:43 Lima)
-
-- **Viña 2026: Juanes, Pet Shop Boys, Yandel, más artistas confirmados, horarios y todo sobre el festival**: [Link](https://rpp.pe/musica/internacional/vina-2026-en-vivo-programacion-por-dia-cartelera-de-artistas-humoristas-y-lo-que-se-sabe-del-festival-en-chile-noticia-1676843)
-- **“Si somos americanos”: El orgullo latino se tomó la obertura del Festival de Viña 2026**: [Link](https://www.latercera.com/culto/noticia/si-somos-americanos-el-orgullo-latino-se-tomo-la-obertura-del-festival-de-vina-2026/)
-- **La particular exigencia de Matteo Bocelli para tener en su camarín en el Festival de Viña 2026**: [Link](https://www.t13.cl/noticia/espectaculos/la-particular-exigencia-matteo-bocelli-tener-su-camarin-festival-vina-2026-22-2-2026)
-
-
-### tomás martín etcheverry (N/A, 22/02/2026 21:43 Lima)
-
-- **Tabilo beats Buse & Rio rain, reaches title match**: [Link](https://www.atptour.com/en/news/rio-de-janeiro-2026-sunday)
-- **ATP Rio Final Prediction – Alejandro Tabilo vs Tomas Martin Etcheverry**: [Link](https://lastwordonsports.com/tennis/2026/02/22/atp-rio-final-prediction-tabilo-etcheverry/)
-- **Video : Tomas Martin Etcheverry defeats Alejandro Tabilo at Rio 2026 – Final**: [Link](https://en.tennistemple.com/video/tomas-martin-etcheverry-defeats-alejandr/V7KsE)
 
 
