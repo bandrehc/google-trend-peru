@@ -1,3 +1,38 @@
+### real madrid vs manchester city (N/A, 27/02/2026 08:11 Lima)
+
+- **UEFA Champions League round of 16, quarter-final and semi-final draw: Where is it, when is it, who is involved?**: [Link](https://www.uefa.com/uefachampionsleague/news/02a2-1ffe3d954170-60c0b7443c85-1000--uefa-champions-league-round-of-16-quarter-final-and-semi/)
+- **Liverpool to face Galatasaray in Champions League last 16**: [Link](https://www.liverpoolfc.com/news/liverpool-face-galatasaray-champions-league-last-16)
+- **Real Madrid-Manchester City in the Champions League Round of 16**: [Link](https://www.realmadrid.com/en-US/news/football/first-team/latest-news/real-madrid-sporting-de-portugal-manchester-city-en-octavos-de-la-champions-27-02-2026)
+
+
+### marca (N/A, 27/02/2026 08:11 Lima)
+
+- **NFZ rozliczy nadwykonania szpitali w 2025 r. Świadczenia limitowane od 30 do 100 proc. wyceny**: [Link](https://politykazdrowotna.com/artykul/nfz-rozliczy-nadwykonania-n2229063)
+- **Szpitale zostają bez pieniędzy. "Czas powiedzieć pacjentom, że nie wszyscy będą leczeni"**: [Link](https://www.msn.com/pl-pl/wiadomosci/polska/szpitale-zostaj%C4%85-bez-pieni%C4%99dzy-czas-powiedzie%C4%87-pacjentom-%C5%BCe-nie-wszyscy-b%C4%99d%C4%85-leczeni/ar-AA1X87q9?cvid=69a0e70fea3f4fb4989db484049a81e1)
+- **NFZ nie płaci szpitalowi, szpital nie zapłacił pracownikom**: [Link](https://ino.online/post/34837/nfz-nie-placi-szpitalowi-szpital-nie-zaplacil-pracownikom.html)
+
+
+### uefa (N/A, 27/02/2026 08:11 Lima)
+
+- **UEFA Avrupa Ligi'nde son 16 turuna kalan takımlar belli oldu**: [Link](https://haberkibris.com/uefa-avrupa-liginde-son-16-turuna-kalan-takimlar-belli-oldu-0929-2026-02-27.html)
+- **BUGÜN HANGİ MAÇLAR VAR 26 ŞUBAT 2026 PERŞEMBE | Bugün maç var mı, bu akşam hangi maçlar var, saat kaçta?**: [Link](https://www.nobetcigazete.com/bugun-hangi-maclar-var-26-subat-2026-persembe-bugun-mac-var-mi-bu-aksam-hangi-maclar-var-saat-kacta)
+- **Avrupa Ligi son 16 turu kura çekimi: Aston Villa Lille ile, Nottingham Forest ise Midtjylland ile karşılaşacak**: [Link](https://www.goal.com/tr/galeri-listesi/avrupa-ligi-son-16-turu-kura-cekimi-aston-villa-lille-ile-nottingham-forest-ise-midtjylland-ile-karsilasacak/blt4ce01dcf41fd44e0)
+
+
+### alejandro sanz y stephanie cayo (N/A, 27/02/2026 08:11 Lima)
+
+- **Alejandro Sanz y Stephanie Cayo: ¿Cuál es la diferencia de edad entre el cantante y la actriz que están siendo vinculados?**: [Link](https://www.infobae.com/peru/2026/02/26/alejandro-sanz-y-stephanie-cayo-cual-es-la-diferencia-de-edad-entre-el-cantante-y-la-actriz-que-estan-siendo-vinculados/)
+- **¿Quién es Stephanie Cayo, el supuesto nuevo amor de Alejandro Sanz?**: [Link](https://www.hola.com/us-es/celebrities/20260227886435/alejandro-sanz-quien-es-nuevo-amor-stephanie-cayo/)
+- **¡Rompe el silencio! Alejandro Sanz lanza enigmático mensaje tras rumores de relación con Stephanie Cayo**: [Link](https://elcomercio.pe/respuestas/farandula/rompe-el-silencio-alejandro-sanz-lanza-enigmatico-mensaje-tras-rumores-de-relacion-con-stephanie-cayo-tdpe-noticia/)
+
+
+### sorteo champions 2026 (N/A, 27/02/2026 08:11 Lima)
+
+- **Sorteo Champions League | Así queda el cuadro y los rivales de Real Madrid, Barcelona y Atlético**: [Link](https://www.marca.com/futbol/champions-league/2026/02/27/69a15a1329935a63fa301a09-directo.html)
+- **Sorteo de octavos de final de la Champions: así han quedado los cruces**: [Link](https://elpais.com/deportes/futbol/2026-02-27/sorteo-de-champions-league-los-cruces-de-octavos-de-final.html)
+- **Euroalerta**: [Link](https://as.com/futbol/champions/euroalerta-f202602-n/)
+
+
 ### tony cooper (N/A, 27/02/2026 03:50 Lima)
 
 - **‘Bridgerton’ Nicholas Braimbridge Tribute: What Happened to Him?**: [Link](https://parade.com/news/bridgerton-nicholas-braimbridge-tribute-tony-cooper)
@@ -989,40 +1024,5 @@
 ### cadiz vs (N/A, 23/02/2026 21:40 Lima)
 
 Sin noticias relacionadas disponibles.
-
-
-### everton (N/A, 23/02/2026 21:40 Lima)
-
-- **Lisandro Martinez to miss Manchester United’s trip to Everton due to injury - The Athletic**: [Link](https://www.nytimes.com/athletic/7065679/2026/02/23/lisandro-martinez-injury-everton-manchester-united/)
-- **Man Utd XI vs Everton: Starting lineup and confirmed team news**: [Link](https://www.msn.com/en-gb/sport/football/man-utd-xi-vs-everton-starting-lineup-and-confirmed-team-news/ar-AA1WNcB3)
-- **‘Unfortunately…’: Michael Carrick sheds light on Lisandro Martinez’s injury condition after untimely layoff**: [Link](https://sports.yahoo.com/articles/unfortunately-michael-carrick-sheds-light-204500486.html)
-
-
-### alaves vs girona (N/A, 23/02/2026 15:51 Lima)
-
-- **Míchel demands consistency from the team before visiting Vitoria**: [Link](https://sports.yahoo.com/articles/m-chel-demands-consistency-team-121000133.html)
-- **Alaves vs. Girona: La Liga betting odds, prediction, pick**: [Link](https://www.usatoday.com/story/sports/soccer/2026/02/23/alaves-vs-girona-la-liga-betting-odds-prediction-pick/88818715007/)
-- **Alavés - Girona live**: [Link](https://www.marca.com/en/soccer/laliga-ea-sports/alaves-girona/2026/02/23/01_0101_20260223_173_2893-live.html)
-
-
-### bolonia vs (N/A, 23/02/2026 15:51 Lima)
-
-- **Everton vs. Man Utd (23 de Feb., 2026) Resultados en Vivo**: [Link](https://www.espn.com.pe/futbol/partido/_/juegoId/740856)
-- **Betis 1-1 Rayo (21 de Feb., 2026) Resultado Final**: [Link](https://www.espn.com.pe/futbol/partido/_/juegoId/748386)
-- **Serie A: Se enfrentan Bologna y Udinese por la fecha 26**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-se-enfrentan-bologna-y-udinese-por-la-fecha-26-noticia-1677002)
-
-
-### bologna vs (N/A, 23/02/2026 15:51 Lima)
-
-- **Preview: Bologna vs Udinese - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/bologna/preview/bologna-vs-udinese-prediction-team-news-lineups_592456.html)
-- **Bologna v Udinese preview**: [Link](https://www.udinese.it/Apps/WebObjects/Udinese.woa/wa/viewSection?id=88760&lang=eng)
-- **✅ Bologna-Udinese line-ups: Orsolini starts, Heggem out ❌**: [Link](https://onefootball.com/en/news/bologna-udinese-line-ups-orsolini-starts-heggem-out-42456704)
-
-
-### bologna (N/A, 23/02/2026 15:51 Lima)
-
-- **🔴 Solet si ferma a Bologna: tegola Udinese, STOP muscolare e cambio 🚑**: [Link](https://onefootball.com/fr/news/solet-si-ferma-a-bologna-tegola-udinese-stop-muscolare-e-cambio-42457082)
-- **Cor Bo – Esame di maturità: cancellare la crisi partita dopo il Friuli**: [Link](https://www.tuttobolognaweb.it/news/cor-bo-esame-di-maturita-cancellare-la-crisi-partita-dopo-il-friuli/)
-- **Udinese, Inler: "Cerchiamo continuità. Buksa? Grandi aspettative, gioca perché lo merita"**: [Link](https://www.tuttomercatoweb.com/serie-a/udinese-inler-cerchiamo-continuita-buksa-grandi-aspettative-gioca-perche-lo-merita-2206065)
 
 
