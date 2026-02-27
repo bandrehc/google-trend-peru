@@ -1,3 +1,24 @@
+### tony cooper (N/A, 27/02/2026 03:50 Lima)
+
+- **‘Bridgerton’ Nicholas Braimbridge Tribute: What Happened to Him?**: [Link](https://parade.com/news/bridgerton-nicholas-braimbridge-tribute-tony-cooper)
+- **Tony Cooper honored in Bridgerton Season 4 finale tribute, longtime crew member dies**: [Link](https://artthreat.net/4302-88136-tony-cooper-honored-in-bridgerton-season-4-finale-tribute-longtime-crew-member-d/)
+- **Who is Tony Cooper as Bridgerton pays tribute?**: [Link](https://www.mirror.co.uk/tv/tv-news/who-tony-cooper-bridgerton-pays-36782779)
+
+
+### blackpink (N/A, 27/02/2026 03:50 Lima)
+
+- **BLACKPINK transcend space and time in 'GO' MV**: [Link](https://www.allkpop.com/video/2026/02/blackpink-transcend-space-and-time-in-go-mv)
+- **BLACKPINK's 'DEADLINE': Every Track Ranked From 'GO' to 'JUMP'**: [Link](https://www.billboard.com/lists/blackpink-deadline-songs-ranked/)
+- **Fans get first listen to BLACKPINK's new album at National Museum of Korea**: [Link](https://www.koreatimes.co.kr/entertainment/20260227/fans-get-first-listen-to-blackpinks-new-album-at-national-museum-of-korea)
+
+
+### jefferson moreno (N/A, 27/02/2026 03:50 Lima)
+
+- **Abogado de Adrián Villar renuncia a su defensa tras su detención por caso Lizeth Marzano**: [Link](https://www.infobae.com/peru/2026/02/27/lizeth-marzano-abogado-de-adrian-villar-renuncia-a-su-defensa-tras-su-detencion-por-caso-lizeth-marzano/)
+- **Jefferson Moreno renuncia a la defensa de Adrián Villar, investigado por muerte de Lizeth Marzano**: [Link](https://rpp.pe/lima/judiciales/jefferson-moreno-renuncia-a-la-defensa-de-adrian-villar-investigado-por-muerte-de-lizeth-marzano-noticia-1677704)
+- **Lizeth Marzano: abogado de Adrián Villar fue colaborador clave en el caso contra la exfiscal Patricia Benavides**: [Link](https://willax.pe/politica/lizeth-marzano-abogado-de-adrian-villar-fue-colaborador-clave-caso-contra-patricia-benavides-willax)
+
+
 ### lakers (N/A, 27/02/2026 00:16 Lima)
 
 - **Lakers vs Suns Odds & Picks Tonight: Value on the Total**: [Link](https://www.oddsshark.com/nba/lakers-suns-picks-odds-february-26-2026)
@@ -1003,26 +1024,5 @@ Sin noticias relacionadas disponibles.
 - **🔴 Solet si ferma a Bologna: tegola Udinese, STOP muscolare e cambio 🚑**: [Link](https://onefootball.com/fr/news/solet-si-ferma-a-bologna-tegola-udinese-stop-muscolare-e-cambio-42457082)
 - **Cor Bo – Esame di maturità: cancellare la crisi partita dopo il Friuli**: [Link](https://www.tuttobolognaweb.it/news/cor-bo-esame-di-maturita-cancellare-la-crisi-partita-dopo-il-friuli/)
 - **Udinese, Inler: "Cerchiamo continuità. Buksa? Grandi aspettative, gioca perché lo merita"**: [Link](https://www.tuttomercatoweb.com/serie-a/udinese-inler-cerchiamo-continuita-buksa-grandi-aspettative-gioca-perche-lo-merita-2206065)
-
-
-### ppk (N/A, 23/02/2026 15:51 Lima)
-
-- **Oto ile pracujący w Polsce odłożyli w PPK. W ciągu miesiąca wzrost o ponad 2 mld zł**: [Link](https://www.money.pl/gospodarka/oto-ile-pracujacy-w-polsce-odlozyli-w-ppk-w-ciagu-miesiaca-wzrost-o-ponad-2-mld-zl-7255744902998464a.html)
-- **Ile tak naprawdę zarabiasz na PPK? Darmowa aplikacja pozwala to sprawdzić**: [Link](https://www.instalki.pl/news/fintech/ile-tak-naprawde-zarabiasz-na-ppk-darmowa-aplikacja-pozwala-to-sprawdzic/)
-- **Wezwania do zawarcia umowy o zarządzanie PPK tylko elektroniczne**: [Link](https://www.gazetaprawna.pl/praca/artykuly/10644300,wezwania-do-zawarcia-umowy-o-zarzadzanie-ppk-tylko-elektroniczne.html)
-
-
-### al fateh (N/A, 23/02/2026 15:51 Lima)
-
-- **A Strong Moral Boost for Al-Fateh Before the Match Against Al-Okhdood**: [Link](https://www.ysscores.com/en/news/13916511/A-Strong-Moral-Boost-for-Al-Fateh-Before-the-Match-Against-Al-Okhdood)
-- **Gomez Explains Vargas’ Absence Against Al-Akhdoud**: [Link](https://koorabreak.com/en/260172/)
-- **Al Fateh - Damac FC ai prediction 26.02.2026 Saudi Pro League**: [Link](https://www.livetipsportal.com/en/sportsbetting-tips/al-fateh-vs-damac-fc-saudi-pro-league-11536148/)
-
-
-### cd moquegua - deportivo garcilaso (N/A, 23/02/2026 15:51 Lima)
-
-- **CD Moquegua vs. Deportivo Garcilaso EN VIVO: dónde ver Liga 1 MAX vía Movistar TV y DIRECTV**: [Link](https://depor.com/futbol-peruano/descentralizado/cd-moquegua-vs-deportivo-garcilaso-en-vivo-gratis-hoy-donde-ver-liga-1-max-futbol-libre-tv-movistar-tv-directv-zapping-claro-tv-en-directo-por-internet-video-noticia/)
-- **Liga 1: Deportivo Moquegua y Deportivo Garcilaso se miden por la fecha 4**: [Link](https://rpp.pe/futbol/descentralizado/liga-1-deportivo-moquegua-y-deportivo-garcilaso-se-miden-por-la-fecha-4-noticia-1677008)
-- **Universidad Cesar Vallejo Moquegua vs Deportivo Garcilaso | Pronóstico y cuotas 23.02.2026**: [Link](https://www.transfermarkt.es/apuestas/pronosticos-deportivos/universidad-cesar-vallejo-moquegua-vs-deportivo-garcilaso-pronostico-apuestas-23-02-2026/)
 
 
