@@ -1,3 +1,67 @@
+### alianza atlético - adt (N/A, 27/02/2026 15:34 Lima)
+
+- **Liga 1: Por la fecha 5, Alianza Atlético recibirá a ADT de Tarma**: [Link](https://rpp.pe/futbol/descentralizado/liga-1-por-la-fecha-5-alianza-atletico-recibira-a-adt-de-tarma-noticia-1677588)
+- **Liga 1: Alianza Atlético sale a ganar hoy a los tarmeños**: [Link](https://diariocorreo.pe/deportes/liga-1-alianza-atletico-sale-a-ganar-hoy-a-los-tarmenos-noticia/)
+- **🔴#ENVIVO Conoce las alineaciones de Alianza Atlético y ADT**: [Link](https://ovacion.pe/noticias/liga1-2026/envivo-conoce-las-alineaciones-alianza-atletico-adt)
+
+
+### augsburgo (N/A, 27/02/2026 15:34 Lima)
+
+Sin noticias relacionadas disponibles.
+
+
+### wolfgang grozo (N/A, 27/02/2026 15:34 Lima)
+
+- **RMP cuestiona a Balcázar y Hernando de Soto: “Estos dos señores de 84 y 83 años están fuera de la realidad”**: [Link](https://larepublica.pe/politica/2026/02/23/rmp-cuestiona-a-balcazar-y-hernando-de-soto-estos-dos-senores-de-84-y-83-anos-estan-fuera-de-la-realidad-hnews-1464755)
+
+
+### al ittihad (N/A, 27/02/2026 15:34 Lima)
+
+- **Al-Ittihad Recovers Striker En-Nesyri After Al-Hazm Absence**: [Link](https://m.elbotola.com/en/article/2026-02-26-13-40-148.html)
+- **Where to Watch Al Ittihad vs Al Khaleej - Live Streaming and TV Channels**: [Link](https://www.sportsdunia.com/football-news/al-ittihad-vs-al-khaleej-live-stream-saudi-pro-league-27th-february-2026)
+- **Al-Ittihad Regains Al-Shehri and Al-Julaydan Ahead of Clash with Al-Khaleej**: [Link](https://koorabreak.com/en/261545/)
+
+
+### porto (N/A, 27/02/2026 15:34 Lima)
+
+- **«Sidny tive uma atitude irrefletida, mas Prestianni também não esteve bem»**: [Link](https://www.abola.pt/video/sidny-tive-uma-atitude-irrefletida-mas-prestianni-tambem-nao-esteve-bem-2026022719243887941)
+- **A dedicatória a Borja Sainz entre as melhores imagens do FC Porto-Arouca**: [Link](https://www.abola.pt/galeria/a-dedicatoria-a-borja-sainz-entre-as-melhores-imagens-do-fc-porto-arouca-2026022720092302707)
+- **O onze do Sporting para o Estoril**: [Link](https://www.abola.pt/galeria/o-onze-do-sporting-para-o-estoril-2026022522471169193)
+
+
+### porto vs (N/A, 27/02/2026 15:34 Lima)
+
+- **Preview: Porto vs Arouca - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/porto/preview/porto-vs-arouca-prediction-team-news-lineups_592687.html)
+- **Live: Arruabarrena Blocks Pietuszewski’s Shot as Gül Misses Rebound (20′)**: [Link](https://www.filmogaz.com/172092)
+- **Francesco Farioli: “Team unity has been a key factor”**: [Link](https://onefootball.com/en/news/francesco-farioli-team-unity-has-been-a-key-factor-42474973)
+
+
+### resident evil 9 (N/A, 27/02/2026 15:34 Lima)
+
+- **Resident Evil Requiem Performance Benchmark Review**: [Link](https://www.techpowerup.com/review/resident-evil-requiem-performance-benchmark/)
+- **What Ending Should You Pick in Resident Evil 9?**: [Link](https://gamerant.com/resident-evil-requiem-destroy-release-elpis-good-bad-ending-re9/)
+- **Resident Evil: Requiem - 22 Minutes of Grace & Leon Switch 2 Gameplay | 4K 60 FPS**: [Link](https://es.ign.com/resident-evil-9/227150/video/resident-evil-requiem-22-minutes-of-grace-leon-switch-2-gameplay-4k-60-fps)
+
+
+### wolves - aston villa (N/A, 27/02/2026 15:34 Lima)
+
+- **Emery missing 3 key men, 2 changes by Edwards: Predicted XIs for Wolves vs Villa**: [Link](https://www.footballfancast.com/predicted-line-up-preview-injury-news-wolves-versus-aston-villa/)
+- **Wolverhampton vs Aston Villa LIVE Score Updates in Premier League Match**: [Link](https://www.vavel.com/en-us/soccer/2026/02/27/1252259-wolves-vs-aston-villa-live-score-premier-league.html)
+- **talkSPORT tips – Best football bets and expert advice on Friday 26 February**: [Link](https://talksport.com/football/4007721/talksport-tips-best-football-bets-friday-26-february/)
+
+
+### levante - alavés (N/A, 27/02/2026 15:34 Lima)
+
+- **Levante - Alavés en directo: LaLiga EA Sports hoy, en vivo**: [Link](https://as.com/futbol/primera/levante-alaves-en-directo-laliga-ea-sports-hoy-en-vivo-f202602-d/)
+- **En medio de los rumores de salida de Coudet, Alavés visita a Levante por LaLiga**: [Link](https://www.espn.com.ar/futbol/argentina/nota/_/id/16366559/alaves-vs-levante-la-liga-eduardo-coudet-river)
+- **Luís Castro: "Es difícil, pero no imposible"**: [Link](https://www.vavel.com/es/futbol/2026/02/27/levante/1252287-luis-castro-es-dificil-pero-no-imposible.html)
+
+
+### al ittihad vs (N/A, 27/02/2026 15:34 Lima)
+
+Sin noticias relacionadas disponibles.
+
+
 ### pokemon (N/A, 27/02/2026 11:48 Lima)
 
 - **The Next Generation of ‘Pokémon’ Games Is Here**: [Link](https://gizmodo.com/pokemon-gen-10-announced-release-date-nintendo-winds-waves-2000727566)
@@ -958,73 +1022,5 @@
 - **En video: así fue el conmovedor reencuentro de Diana Ospina con su familia tras días de desaparición**: [Link](https://www.infobae.com/colombia/2026/02/24/en-video-asi-fue-el-conmovedor-reencuentro-de-diana-ospina-con-su-familia-tras-dias-de-desaparicion/)
 - **Martes 24 de febrero, las noticias más importantes de Armenia y Quindío**: [Link](https://caracol.com.co/2026/02/24/martes-24-de-febrero-las-noticias-mas-importantes-de-armenia-y-quindio/)
 - **La millonaria suma de dinero que robaron a Diana Ospina tras secuestro y paseo millonario en Bogotá**: [Link](https://www.noticiascaracol.com/colombia/bogota/la-millonaria-suma-de-dinero-que-robaron-a-diana-ospina-tras-secuestro-y-paseo-millonario-en-bogota-rg10)
-
-
-### convocatoria onpe (N/A, 24/02/2026 08:19 Lima)
-
-- **ONPE lanza convocatoria 2026 con 23 mil puestos para secundaria completa: pagan S/ 2.000 y así puedes postular**: [Link](https://www.infobae.com/peru/2026/02/24/onpe-lanza-convocatoria-2026-con-23-mil-puestos-para-secundaria-completa-pagan-s-2000-y-asi-puedes-postular/)
-- **ONPE publica lista de 2 769 coordinadores: revisa y presenta tachas de ser el caso**: [Link](https://www.elperuano.pe/noticia/289426-onpe-publica-lista-de-2-769-coordinadores-revisa-y-presenta-tachas-de-ser-el-caso)
-- **Elecciones 2026: ONPE abre 23 mil puestos de coordinador de mesa con sueldo de 2 mil soles**: [Link](https://lalupa.pe/peru/elecciones-2026-onpe-abre-23-mil-puestos-de-coordinador-de-mesa-con-sueldo-de-2-mil-soles-107165)
-
-
-### sky (N/A, 24/02/2026 08:19 Lima)
-
-- **Shrouded Sky update: The hurricane strikes**: [Link](https://arcraiders.com/news/shrouded-sky-content-update)
-- **Embark Shows Off Arc Raiders Shrouded Sky Update With First Look at Two New Threats...and Beards**: [Link](https://www.ign.com/articles/embark-shows-off-arc-raiders-shrouded-sky-update-with-first-look-at-two-new-threatsand-beards)
-- **Arc Raiders adds a flying flamethrower-using murder drone (and also beards)**: [Link](https://www.polygon.com/arc-raiders-shrouded-sky-update-patch-notes/)
-
-
-### coordinador de mesa onpe 2026 (N/A, 24/02/2026 03:56 Lima)
-
-- **ONPE lanza convocatoria 2026 con 23 mil puestos para secundaria completa: pagan S/ 2.000 y así puedes postular**: [Link](https://www.infobae.com/peru/2026/02/24/onpe-lanza-convocatoria-2026-con-23-mil-puestos-para-secundaria-completa-pagan-s-2000-y-asi-puedes-postular/)
-- **ONPE publica lista de 2 769 coordinadores: revisa y presenta tachas de ser el caso**: [Link](https://www.elperuano.pe/noticia/289426-onpe-publica-lista-de-2-769-coordinadores-revisa-y-presenta-tachas-de-ser-el-caso)
-- **Elecciones 2026: ONPE abre 23 mil puestos de coordinador de mesa con sueldo de 2 mil soles**: [Link](https://lalupa.pe/peru/elecciones-2026-onpe-abre-23-mil-puestos-de-coordinador-de-mesa-con-sueldo-de-2-mil-soles-107165)
-
-
-### stephanie cayo (N/A, 24/02/2026 00:22 Lima)
-
-- **¡Agarrados de las manos! Stephani Cayo acompaña a Alejandro Sanz durante su gira**: [Link](https://www.atv.pe/noticia/agarrados-de-las-manos-stephani-cayo-acompana-a-alejandro-sanz-durante-su-gira/)
-- **Stephanie Cayo tendría una relación sentimental con Alejandro Sanz | VIDEO | Farándula | ESPECTACULOS**: [Link](https://trome.com/espectaculos/tv/stephanie-cayo-tendria-una-relacion-sentimental-con-alejandro-sanz-video-farandula-noticia/)
-
-
-### liam gallagher (N/A, 24/02/2026 00:22 Lima)
-
-- **Yungblud wants to record a Bond theme with Oasis**: [Link](https://uk.news.yahoo.com/yungblud-wants-record-bond-theme-120000945.html)
-- **Liam Gallagher has offered Yungblud a strange role on Oasis' James Bond theme tune**: [Link](https://www.dailystar.co.uk/music/liam-gallagher-offered-yungblud-strange-36762946)
-- **Yungblud wants to join Oasis on a James Bond theme after Noel Gallagher addresses 007 rumours**: [Link](https://www.contactmusic.com/story/467/3480233/yungblud-wants-to-join-oasis-on-a-james-bond-theme-after-noel-gallagher-addresses-007-rumours)
-
-
-### miguel bose (N/A, 24/02/2026 00:22 Lima)
-
-- **MIGUEL BOSÉ EN LIMA: ADQUIERE AQUÍ LAS ÚLTIMAS ENTRADAS**: [Link](https://blog.ticketmaster.pe/concierto/miguel-bose-en-lima-adquiere-aqui-las-ultimas-entradas-3763/)
-- **Miguel Bosé llega a Gran Arena Monticello con “Importante Tour”**: [Link](https://www.ossom.cl/miguel-bose-llega-a-gran-arena-monticello-con-importante-tour/)
-- **CONCURSO IMAGINA: ¡Participa por una experiencia completa para Miguel Bosé Chile 2026! Incluye entradas para concierto en Movistar Arena**: [Link](https://www.radioimagina.cl/2026/02/concurso-imagina-participa-por-una-experiencia-completa-para-miguel-bose-chile-2026-incluye-entradas-para-concierto-en-movistar-arena/)
-
-
-### marisel linares y su pareja (N/A, 24/02/2026 00:22 Lima)
-
-- **Dictan 9 meses de impedimento de salida del país contra Adrián Villar**: [Link](https://peru21.pe/policiales/en-vivo-audiencia-requerimiento-de-impedimento-de-salida-del-pais-adrian-villar/)
-- **Caso Lizeth Marzano | Presentó boleta de restaurante y no pasó dosaje | La estrategia legal del joven que atropelló y mató a campeona nacional | video | ACTUALIDAD**: [Link](https://trome.com/actualidad/policiales/caso-lizeth-marzano-presento-boleta-de-restaurante-y-no-paso-dosaje-la-estrategia-legal-del-joven-que-atropello-y-mato-a-campeona-nacional-video-noticia/)
-- **PNP solicitó detención de Adrián Villar y Marisel Linares tras muerte de Lizeth Marzano, pero no procedió**: [Link](https://www.infobae.com/peru/2026/02/23/pnp-solicito-detencion-de-adrian-villar-y-marisel-linares-tras-muerte-de-lizeth-marzano-pero-fiscalia-no-procedio/)
-
-
-### agua (N/A, 24/02/2026 00:22 Lima)
-
-- **Sedimentos en Aguada Blanca ponen en riesgo el abastecimiento de agua en Arequipa (VIDEO)**: [Link](https://diariocorreo.pe/edicion/arequipa/sedimentos-en-aguada-blanca-ponen-en-riesgo-el-abastecimiento-de-agua-en-arequipa-video-noticia/)
-- **Miraflores respalda pedido de declaratoria de emergencia para Arequipa**: [Link](https://www.gob.pe/institucion/munimiraflores-arequipa/noticias/1357808-miraflores-respalda-pedido-de-declaratoria-de-emergencia-para-arequipa)
-- **La catástrofe inminente**: [Link](https://elcomercio.pe/opinion/editorial/la-llegada-de-el-nino-costero-es-un-hecho-y-las-regiones-parecen-libradas-a-su-suerte-noticia/)
-
-
-### carlos alcantara (N/A, 24/02/2026 00:22 Lima)
-
-- **Carlos Alcántara sorprende al elogiar y expresar su admiración por Shirley Arica: "Fue un pretexto para conocerte"**: [Link](https://larepublica.pe/espectaculos/2026/02/23/carlos-alcantara-sorprende-al-elogiar-y-expresar-su-admiracion-por-shirley-arica-fue-un-pretexto-para-conocerte-1390005)
-- **Carlos Alcántara dejó en shock a Shirley Arica al hacerle sorpresiva confesión**: [Link](https://www.ritmoromantica.pe/noticias/espectaculos/carlos-alcantara-dejo-en-shock-a-shirley-arica-al-hacerle-sorpresiva-confesion-video/)
-
-
-### mirtha legrand (N/A, 23/02/2026 21:40 Lima)
-
-- **Del brillante look de la Chiqui en la previa a su cumpleaños 99 a sus consejos para mantenerse espléndida**: [Link](https://www.lanacion.com.ar/espectaculos/personajes/la-noche-de-mirtha-del-brillante-look-de-la-chiqui-en-la-previa-a-su-cumpleanos-99-a-sus-consejos-nid22022026/)
-- **Mirtha Legrand ya festeja a puro lujo su cumpleaños 99**: [Link](https://www.clarin.com/espectaculos/listo-gran-festejo-mirtha-legrand_0_pHVk3O8rqP.html)
-- **Mshow del lunes 23 de febrero de 2026**: [Link](https://www.ciudad.com.ar/videos/magazine/2026/02/23/mshow-programa-del-230226-los-99-de-mirtha-celebracion-especial/)
 
 
