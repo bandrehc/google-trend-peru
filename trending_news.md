@@ -1,3 +1,73 @@
+### lakers - suns (N/A, 26/02/2026 21:34 Lima)
+
+- **Lakers vs Suns Odds & Picks Tonight: Value on the Total**: [Link](https://www.oddsshark.com/nba/lakers-suns-picks-odds-february-26-2026)
+- **Rui Hachimura Injury: Ruled out with illness**: [Link](https://www.rotowire.com/basketball/headlines/rui-hachimura-injury-ruled-out-with-illness-520608)
+- **NBA & NHL betting guide: Luka Doncic’s Lakers vs. Suns and McDavid’s Oilers headline Thursday night odds**: [Link](https://www.dimers.com/news/nba-and-nhl-betting-guide-luka-doncics-lakers-vs-suns-and-mcdavids-oilers-headline-thursday-night-odds)
+
+
+### messi (N/A, 26/02/2026 21:34 Lima)
+
+- **Inter Miami vs. Independiente del Valle: cómo ver el amistoso en vivo**: [Link](https://www.espn.com.pe/futbol/nota/_/id/16358562/inter-miami-vs-independiente-del-valle-como-ver-el-amistoso-en-vivo)
+- **Independiente del Valle vs. Inter Miami hoy online: a qué hora juegan y en qué canal ver el amistoso**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/independiente-del-valle-vs-inter-miami-en-vivo-online-gratis-con-lionel-messi-por-amistoso-a-que-hora-juegan-canal-que-transmite-y-donde-ver-por-espn-disney-plus-video-noticia/)
+- **Cuándo juega Independiente del Valle vs. Inter Miami: equipo, fecha, hora y TV en vivo**: [Link](https://www.espn.com.pe/futbol/nota/_/id/16355279/cuando-juega-independiente-del-valle-vs-inter-miami-equipo-fecha-hora-y-tv-en-vivo)
+
+
+### concierto hoy (N/A, 26/02/2026 21:34 Lima)
+
+- **Con lluvia y mucho romance, Alejandro Sanz enamoró Lima en un emblemático concierto [CRÓNICA]**: [Link](https://rpp.pe/musica/conciertos/alejandro-sanz-enamora-lima-en-plena-lluvia-en-su-concierto-en-el-estadio-nacional-cronica-noticia-1677539)
+- **Alejandro Sanz en su primer concierto en el Estadio Nacional: En medio de una lluvia de amor y melancolía**: [Link](https://andina.pe/agencia/galeria-alejandro-sanz-su-primer-concierto-el-estadio-nacional-medio-una-lluvia-amor-y-melancolia-28792.aspx)
+- **Amplían horario del Metropolitano por concierto de Alejandro Sanz: rutas y paraderos este 25 y 26 de febrero**: [Link](https://larepublica.pe/sociedad/2026/02/25/amplian-horario-del-metropolitano-por-concierto-de-alejandro-sanz-rutas-y-paraderos-este-25-y-26-de-febrero-1661475)
+
+
+### millonarios vs (N/A, 26/02/2026 21:34 Lima)
+
+- **Bustos mantiene el mismo XI con el que perdió ante Inter de Bogotá: así jugará ante Pereira**: [Link](https://www.elfutbolero.com.co/primeraa/bustos-mantiene-el-mismo-xi-con-el-que-perdio-ante-inter-de-bogota-asi-jugara-ante-pereira-20260226-73831.html)
+- **Millonarios y Pereira abrirán la Liga, mientras que Boca Juniors de Cali y Barranquilla FC el Torneo**: [Link](https://www.boyacaradio.com/noticia.php?id=61119)
+- **Inicia la novena fecha de la liga**: [Link](https://elmeridiano.co/sucre/deportes/inicia-la-novena-fecha-de-la-liga-fvjgfy)
+
+
+### tolima - deportivo táchira (N/A, 26/02/2026 21:34 Lima)
+
+- **Copa Libertadores: Por la llave 2 se enfrentarán Tolima y Táchira**: [Link](https://rpp.pe/futbol/ligas-internacionales/copa-libertadores-por-la-llave-2-se-enfrentaran-tolima-y-tachira-noticia-1677473)
+- **Transmisión EN VIVO del Deportes Tolima vs Deportivo Táchira hoy: cómo mirar el partido por TV o streaming**: [Link](https://www.365scores.com/es/news/tolima-vs-tachira-transmision-vivo/)
+- **El Deportivo Táchira se juega la vida en la Copa ante Deportes Tolima en Ibagué**: [Link](https://onefootball.com/en/news/el-deportivo-tachira-se-juega-la-vida-en-la-copa-ante-deportes-tolima-en-ibague-42467460)
+
+
+### santos fc (N/A, 26/02/2026 21:34 Lima)
+
+- **Neymar entra no Top-10 artilheiros do Santos, que provoca René Simões por crítica ao jogador**: [Link](https://www.estadao.com.br/esportes/futebol/neymar-entra-no-top-10-artilheiros-do-santos-que-provoca-rene-simoes-por-critica-ao-jogador/)
+- **Neymar entra no top-10 dos maiores artilheiros da história do Santos**: [Link](https://placar.com.br/brasileirao/neymar-entra-no-top-10-dos-maiores-artilheiros-da-historia-do-santos/)
+- **De virada, Santos FC goleia Grêmio no CT Rei Pelé e segue 100% no Campeonato Brasileiro Sub-20**: [Link](https://www.santosfc.com.br/de-virada-santos-fc-goleia-gremio-no-ct-rei-pele-e-segue-100-no-campeonato-brasileiro-sub-20/)
+
+
+### neymar (N/A, 26/02/2026 21:34 Lima)
+
+- **El estado físico de Neymar lo pone en el ojo del huracán: El brasileño podría alejarse del Mundial**: [Link](https://us.marca.com/soccer/mundial/2026/02/25/699e6a9246163fda418b45cf.html)
+- **El ocaso de Neymar: en el aire su presencia en el Mundial**: [Link](https://www.msn.com/es-es/deportes/futbol/el-ocaso-de-neymar-en-el-aire-su-presencia-en-el-mundial/ar-AA1X24gv)
+- **Ancelotti cuenta con el beneplácito de Lula para no convocar a Neymar**: [Link](https://www.flashscore.pe/noticias/futbol-paulista-con-neymar-en-duda-lula-dice-que-ancelotti-no-llevara-a-nadie-por-el-nombre-al-mundial/OUiKt0ck/)
+
+
+### flamengo - lanús (N/A, 26/02/2026 21:34 Lima)
+
+- **Dónde ver Lanús vs. Flamengo EN VIVO: canales de TV vía ESPN y Disney Plus por la Recopa Sudamericana**: [Link](https://depor.com/futbol-internacional/resto-del-mundo/donde-ver-flamengo-vs-lanus-en-vivo-online-canales-de-tv-espn-disney-plus-fox-sports-pelota-libre-tv-recopa-sudamericana-2026-video-noticia/)
+- **Flamengo vs Lanus: ¡Juega en la Recopa Sudamericana y gana hasta S/. 600,000 con Meridianbet!**: [Link](https://ovacion.pe/noticias/nota-promocional/flamengo-vs-lanus-juega-recopa-sudamericana-gana-hasta-s-600000)
+- **¿Dónde ver Flamengo vs. Lanús EN VIVO minuto a minuto?**: [Link](https://libero.pe/futbol-internacional/2026/02/25/hora-juega-flamengo-vs-lanus-donde-ver-en-vivo-en-canal-pasan-partido-de-recopa-sudamericana-516075)
+
+
+### river (N/A, 26/02/2026 21:34 Lima)
+
+- **When will the Potomac River be free of sewage?**: [Link](https://wamu.org/story/26/02/25/sewage-spill-free-potomac-river-clean/)
+- **REMINDER: DC Water to Meet Tonight with Impacted Residents in Maryland about Potomac Interceptor Repair Efforts and Remediation**: [Link](https://www.dcwater.com/about-dc-water/media/news/reminder-dc-water-meet-tonight-impacted-residents-maryland-about-potomac)
+- **U.S. Army Corps of Engineers Activates Emergency Operations Center in Support of Potomac Interceptor Spill**: [Link](https://www.hstoday.us/subject-matter-areas/emergency-preparedness/u-s-army-corps-of-engineers-activates-emergency-operations-center-in-support-of-potomac-interceptor-spill/)
+
+
+### estudiantes de río cuarto - huracán (N/A, 26/02/2026 21:34 Lima)
+
+- **Estudiantes de Río Cuarto le ganó a Huracán y consiguió su primer triunfo**: [Link](https://www.espn.com.ar/futbol/argentina/nota/_/id/16354698/estudiantes-rio-cuarto-vs-huracan-por-el-torneo-apertura-equipo-fecha-hora-y-tv-en-vivo)
+- **Torneo Apertura: Estudiantes recibe a Huracán en busca de una victoria**: [Link](https://www.puntal.com.ar/estudiantes-rio-cuarto/torneo-apertura-estudiantes-recibe-huracan-busca-una-victoria-n252894)
+- **Huracán visita a Estudiantes RC**: [Link](https://www.afa.com.ar/es/posts/huracan-visita-a-estudiantes-rc)
+
+
 ### racing - independiente rivadavia (N/A, 26/02/2026 15:44 Lima)
 
 - **Qué canal pasa Racing vs Independiente Rivadavia hoy: dónde ver el partido gratis y en vivo de la Liga Profesional**: [Link](https://www.365scores.com/es/news/racing-vs-independiente-rivadavia-canal/)
@@ -956,75 +1026,5 @@ Sin noticias relacionadas disponibles.
 - **¿Vuelve Binacional a la Liga 1? Lo que se sabe de este polémico caso a raíz de una publicación que fue desmentida**: [Link](https://www.infobae.com/peru/deportes/2026/02/23/vuelve-binacional-a-la-liga-1-tribunal-constitucional-ordena-a-la-fpf-la-reincorporacion-del-club-al-torneo/)
 - **Campeón nacional descendido administrativamente volverá a la Liga 1 tras dictamen legal**: [Link](https://bolavip.com/pe/liga-1/campeon-nacional-descendido-administrativamente-volvera-a-la-liga-1-tras-dictamen-legal)
 - **¿Deportivo Binacional vuelve a la Liga 1 a través del Tribunal Constitucional?**: [Link](https://www.futbolperuano.com/liga-1/noticias/deportivo-binacional-vuelve-a-la-liga-1-por-el-tribunal-constitucional-564982)
-
-
-### helicoptero fap (N/A, 23/02/2026 12:05 Lima)
-
-- **MURIERON TODOS LOS OCUPANTES del helicóptero de la FAP que perdió contacto cuando iba a Arequipa**: [Link](https://peru21.pe/peru/desaparece-helicoptero-mi-17-de-la-fap-durante-vuelo-entre-pisco-y-arequipa-con-13-ocupantes/)
-- **Aparece helicóptero de la FAP reportado como desaparecido y todos los ocupantes son hallados muertos**: [Link](https://www.atv.pe/noticia/aparece-helicoptero-de-la-fap-reportado-como-desaparecido-y-todos-los-ocupantes-son-hallados-muertos/)
-- **Buscan a helicóptero FAP perdido en Arequipa**: [Link](https://elperuano.pe/noticia/289751-buscan-a-helicoptero-fap-perdido-en-arequipa)
-
-
-### diario expreso (N/A, 23/02/2026 12:05 Lima)
-
-- **Partidos de hoy, domingo 22 de febrero de 2026: programación, canales TV y resultados en vivo**: [Link](https://www.infobae.com/peru/deportes/2026/02/22/partidos-de-hoy-domingo-22-de-febrero-de-2026-programacion-canales-tv-y-resultados-en-vivo/)
-- **Partidos de hoy, lunes 23 de febrero del 2026 EN VIVO: horarios y canales TV para ver Liga1 y Premier League**: [Link](https://rpp.pe/futbol/futbol-mundial/partidos-de-hoy-liga-1-y-laliga-lunes-23-de-febrero-del-2026-horarios-y-canales-tv-ver-futbol-en-vivo-noticia-1677064)
-- **Partidos de HOY, lunes 23 de febrero del 2026: horarios, canales TV y cómo ver fútbol EN VIVO**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/partidos-de-hoy-lunes-23-de-febrero-del-2026-resultados-programacion-horarios-canales-tv-y-donde-ver-futbol-en-vivo-noticia/)
-
-
-### sportivo luqueño - guaraní (N/A, 23/02/2026 08:18 Lima)
-
-- **Sportivo Luqueño vs. Guaraní en vivo: seguí el partido minuto a minuto**: [Link](https://www.tycsports.com/paraguay/futbol-de-paraguay/paraguay-torneo-apertura-2026-sportivo-luqueno-vs-guarani-fecha-6-id714268.html)
-- **¡Luqueño amanece con todas las luces prendidas!**: [Link](https://onefootball.com/de/news/luqueno-amanece-con-todas-las-luces-prendidas-42455047)
-- **Apagón en el estadio: no hay denuncia de robo de cables en Capiatá**: [Link](https://www.masencarnacion.com/articulo/apagon-en-el-estadio-no-hay-denuncia-de-robo-de-cables-en-capiata)
-
-
-### samahara lobaton (N/A, 23/02/2026 08:18 Lima)
-
-- **Samahara Lobatón se colocó chip de la libido antes de ver a Youna y luego sorprendieron con un beso en transmisión: "Perfecto"**: [Link](https://willax.pe/entretenimiento/samahara-lobaton-youna-beso-chip-libido-willax)
-- **¿Habrá reconciliación? Samahara Lobatón se besa con su expareja Youna y enciende rumores**: [Link](https://peru21.pe/espectaculos/samahara-lobaton-se-besa-con-su-ex-youna-y-enciende-rumores/)
-- **Samahara Lobatón y Youna se besaron en transmisión en vivo**: [Link](https://www.americatv.com.pe/mas-espectaculos/samahara-lobaton-beso-youna-y-confirmaron-reconciliacion-noticia-163014)
-
-
-### inundaciones en arequipa (N/A, 23/02/2026 08:18 Lima)
-
-- **Arequipa: coordinan empadronamiento para entrega de bonos a damnificados por huaico**: [Link](https://andina.pe/agencia/noticia-arequipa-coordinan-empadronamiento-para-entrega-bonos-a-damnificados-huaico-1064009.aspx)
-- **Emergencia en Arequipa: nuevos desbordes de torrenteras inundan viviendas con lodo y piedras**: [Link](https://rpp.pe/peru/arequipa/lluvias-en-arequipa-2026-desborde-de-torrenteras-e-inundaciones-afectan-viviendas-noticia-1677071)
-- **Confirman bono de S/500 hasta por dos años para familias afectadas por lluvias en Arequipa**: [Link](https://larepublica.pe/sociedad/2026/02/22/confirman-bono-de-s500-hasta-por-dos-anos-para-familias-afectadas-por-lluvias-en-arequipa-859342)
-
-
-### el caballero de los siete reinos estreno (N/A, 23/02/2026 08:18 Lima)
-
-- **¿“El Caballero de los Siete Reinos” tendrá segunda temporada?**: [Link](https://www.infobae.com/entretenimiento/2026/02/23/el-caballero-de-los-siete-reinos-tendra-segunda-temporada/)
-- **“A Knight of the Seven Kingdoms” Capítulo 6: Hora de estreno del último episodio en HBO Max**: [Link](https://elcomercio.pe/respuestas/farandula/a-knight-of-the-seven-kingdoms-capitulo-6-hora-de-estreno-confirmado-hbo-max-game-of-thrones-tdpe-noticia/)
-- **El caballero de los Siete Reinos lanza el tráiler de su episodio final horas antes de su estreno en HBO Max**: [Link](https://www.hobbyconsolas.com/hobbycine/caballero-los-siete-reinos-lanza-trailer-su-episodio-final-horas-antes-su-estreno-hbo-max_6937361_0.html)
-
-
-### planta (N/A, 23/02/2026 08:18 Lima)
-
-- **‘Planta’, un libro-juego didáctico de cartas que combina el aprendizaje con la diversión**: [Link](https://www.bierzodiario.es/?p=183680)
-- **La ULE lanza ‘Planta’, el libro-juego de cartas que enseña fisiología vegetal jugando**: [Link](https://ahoraleon.com/la-ule-lanza-planta-el-libro-juego-de-cartas-que-ensena-fisiologia-vegetal-jugando/)
-- **La Universidad de León lanza un libro-juego para la enseñanza de la fisiología vegetal**: [Link](https://inforadiomontanaleonesa.com/contenido/24646/la-universidad-de-leon-lanza-un-libro-juego-para-la-ensenanza-de-la-fisiologia-v)
-
-
-### 7 reinos (N/A, 23/02/2026 03:57 Lima)
-
-- **¿Por qué Aemon Targaryen no apareció en El Caballero de los 7 Reinos?**: [Link](https://www.milenio.com/espectaculos/television/aemon-targaryen-aparecio-caballero-7-reinos)
-- **“El Caballero de los Siete Reinos”: a qué hora se estrena el episodio final**: [Link](https://www.infobae.com/entretenimiento/2026/02/22/el-caballero-de-los-siete-reinos-a-que-hora-se-estrena-el-episodio-final/)
-- **La serie “A Knight of the Seven Kingdoms”, ¿tendrá temporada 2 en HBO Max?**: [Link](https://elcomercio.pe/mag/fama/que-ver/a-knight-of-the-seven-kingdoms-tendra-temporada-2-en-hbo-max-el-caballero-de-los-siete-reinos-nnda-nnlt-noticia/)
-
-
-### seattle sounders (N/A, 23/02/2026 00:37 Lima)
-
-- **SEAvCOL Starting XI: Cristian Roldan wears the captain's armband, Osaze De Rosario lines up as the No. 9**: [Link](https://www.soundersfc.com/news/seavcol-starting-xi-cristian-roldan-wears-the-captain-s-armband-osaze-de-rosario-lines-up-as-the-no-9)
-- **How to watch today's Seattle Sounders FC vs Colorado Rapids Major League Soccer game: Live stream, TV channel, and start time**: [Link](https://www.goal.com/en-sa/news/how-to-watch-seattle-sounders-fc-v-colorado-rapids-02232026/bltda51590c376c4bf0)
-- **Jordan Morris injured, but Paul Rothrock enters and leads Sounders past Colorado**: [Link](https://www.spokesman.com/stories/2026/feb/22/jordan-morris-injured-but-paul-rothrock-enters-and/)
-
-
-### javier rabanal (N/A, 23/02/2026 00:37 Lima)
-
-- **¡Bronca en el Gallardo! Rabanal, Concha y Fara explotaron contra hinchas de Cristal tras empate**: [Link](https://depor.com/futbol-peruano/descentralizado/universitario-vs-sporting-cristal-javier-rabanal-cain-fara-y-jairo-concha-protagonizaron-una-pelea-con-los-hinchas-en-el-alberto-gallardo-liga-1-video-noticia/)
-- **Javier Rabanal se responsabilizó del empate de Universitario ante Sporting Cristal**: [Link](https://www.espn.com.ar/futbol/peru/nota/_/id/16342659/javier-rabanal-se-responsabilizo-del-empate-de-universitario-ante-sporting-cristal)
-- **Rabanal: "En qué momento nos metimos tan atrás"**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/rabanal-que-momento-se-decidio-que-nos-metieramos-tan-atras-n452794)
 
 
