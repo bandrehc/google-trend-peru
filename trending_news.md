@@ -1,3 +1,71 @@
+### lakers (N/A, 27/02/2026 00:16 Lima)
+
+- **Lakers vs Suns Odds & Picks Tonight: Value on the Total**: [Link](https://www.oddsshark.com/nba/lakers-suns-picks-odds-february-26-2026)
+- **Rui Hachimura Injury: Ruled out with illness**: [Link](https://www.rotowire.com/basketball/headlines/rui-hachimura-injury-ruled-out-with-illness-520608)
+- **NBA & NHL betting guide: Luka Doncic’s Lakers vs. Suns and McDavid’s Oilers headline Thursday night odds**: [Link](https://www.dimers.com/news/nba-and-nhl-betting-guide-luka-doncics-lakers-vs-suns-and-mcdavids-oilers-headline-thursday-night-odds)
+
+
+### hugo garcia (N/A, 27/02/2026 00:16 Lima)
+
+- **César Acuña responde a comunicado de Renovación Popular y critica a Rafael López Aliaga: “Candidato desequilibrado”**: [Link](https://www.infobae.com/peru/2026/02/26/cesar-acuna-responde-a-comunicado-de-renovacion-popular-y-critica-a-rafael-lopez-aliaga-candidato-desequilibrado/)
+- **Cesar Acuña cuestiona a Rafael López Aliaga: "Pone a José Balcázar y no le da confianza ¿No estará desequilibrado?"**: [Link](https://www.exitosanoticias.pe/politica/cesar-acuna-cuestiona-rafael-lopez-aliaga-pone-jose-balcazar-le-da-confianza-no-estara-desequilibrado-n169651)
+- **César Acuña llama a Rafael López Aliaga el "candidato de la inestabilidad": "Está desesperado"**: [Link](https://larepublica.pe/politica/2026/02/25/cesar-acuna-llama-a-rafael-lopez-aliaga-el-candidato-de-la-inestabilidad-esta-desesperado-hnews-1475000)
+
+
+### scream (N/A, 27/02/2026 00:16 Lima)
+
+- **Scream 7 First Reviews: Neve Campbell is Fierce in Brutal but Familiar Thriller**: [Link](https://editorial.rottentomatoes.com/article/scream-7-first-reviews/)
+- **‘Scream 7’ Review: Neve Campbell Returns to Face Ghostface**: [Link](https://www.nytimes.com/2026/02/26/movies/scream-7-review-neve-campbell.html)
+- **'Scream 7' review: Kevin Williamson makes Ghostface fun again**: [Link](https://mashable.com/article/scream-7-review)
+
+
+### lizeth marzano (N/A, 27/02/2026 00:16 Lima)
+
+- **Detienen preliminarmente a Adrián Villar, investigado por la muerte de la joven Lizeth Marzano**: [Link](https://lpderecho.pe/detienen-preliminarmente-a-adrian-villar-investigado-por-la-muerte-de-la-joven-lizeth-marzano/)
+- **Caso Lizeth Marzano: atropello, fuga y presunto encubrimiento complican a Adrián Villar y su entorno**: [Link](https://rpp.pe/peru/actualidad/caso-lizeth-marzano-atropello-fuga-y-presunto-encubrimiento-complican-a-adrian-villar-y-su-entorno-noticia-1677602)
+- **Caso Lizeth Marzano: Se debe recalificar el delito a homicidio doloso**: [Link](https://peru21.pe/lima/caso-lizeth-marzano-se-debe-recalificar-el-delito-homicidio-doloso/)
+
+
+### mayra goñi (N/A, 27/02/2026 00:16 Lima)
+
+- **"Estoy acostumbrada a que me engrían": Mayra Goñi revela que debe hacer un hombre para conquistarla**: [Link](https://rpp.pe/famosos/farandula/mayra-goni-revela-que-debe-hacer-un-hombre-para-conquistarla-e-iniciar-un-romance-con-ella-noticia-1677195)
+- **Mayra Goñi revela que le gusta que la engrían y confiesa cómo un hombre puede conquistarla: “Tienen que pagar toda la cena”**: [Link](https://larepublica.pe/espectaculos/2026/02/22/mayra-goni-revela-que-le-gusta-que-la-engrian-y-confiesa-como-un-hombre-puede-conquistarla-tienen-que-pagar-toda-la-cena-2136222)
+- **¡Valentina Valiente llega en marzo a las pantallas de Latina!**: [Link](https://www.latina.pe/entretenimiento/valentina-valiente/valentina-valiente-a-un-paso-de-llegar-a-las-pantallas_20260224/)
+
+
+### julio iglesias (N/A, 27/02/2026 00:16 Lima)
+
+- **Julio Iglesias: entre el mito del seductor y las denuncias de abuso**: [Link](https://oncenoticias.digital/entretenimiento/julio-iglesias-entre-el-mito-del-seductor-y-las-denuncias-de-abuso/551265/)
+- **Morant respalda a Yolanda Díaz tras la demanda de Julio Iglesias: "Son comportamientos fuera de lo aceptable"**: [Link](https://www.notimerica.com/sociedad/noticia-morant-respalda-yolanda-diaz-demanda-julio-iglesias-son-comportamientos-fuera-aceptable-20260225124801.html)
+- **Julio Iglesias y la vulneración del principio de presunción de inocencia**: [Link](https://www.libertaddigital.com/opinion/2026-02-25/editorial-julio-iglesias-y-la-vulneracion-del-principio-de-presuncion-de-inocencia-7364812/)
+
+
+### gorillaz en peru (N/A, 27/02/2026 00:16 Lima)
+
+- **GORILLAZ VISITARÁ PRÓXIMAMENTE MÉXICO CON UN EXCLUSIVO LISTENING PARTY. ¿QUÉ NO ESPERA EN LIMA?**: [Link](https://blog.ticketmaster.pe/noticias-ticketmaster/gorillaz-visitara-proximamente-mexico-con-un-exclusivo-listening-party-que-no-espera-en-lima-3732/)
+- **¿Gorillaz en Perú? Afiches con presuntas coordenadas encienden la expectativa en el país**: [Link](https://www.mercadonegro.pe/marketing/gorillaz-en-peru-afiches-con-presuntas-coordenadas-encienden-la-expectativa-en-el-pais/)
+- **GORILLAZ EN LATINOAMÉRICA: ESTO ES LO QUE SABEMOS DE LA GIRA**: [Link](https://blog.ticketmaster.pe/concierto/gorillaz-en-latinoamerica-esto-es-lo-que-sabemos-de-la-gira-de-la-banda-3789/)
+
+
+### gustavo cerati (N/A, 27/02/2026 00:16 Lima)
+
+- **‘‘Una eternidad esperé este instante’’: falta un mes para la gira de Soda Stereo**: [Link](https://tolimaonline.com/una-eternidad-espere-este-instante-falta-un-mes-para-la-gira-de-soda-stereo/)
+
+
+### inter miami vs independiente del valle (N/A, 27/02/2026 00:16 Lima)
+
+- **Inter Miami vs. Independiente del Valle: cómo ver el amistoso en vivo**: [Link](https://www.espn.com.pe/futbol/nota/_/id/16358562/inter-miami-vs-independiente-del-valle-como-ver-el-amistoso-en-vivo)
+- **Independiente del Valle vs. Inter Miami hoy online: a qué hora juegan y en qué canal ver el amistoso**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/independiente-del-valle-vs-inter-miami-en-vivo-online-gratis-con-lionel-messi-por-amistoso-a-que-hora-juegan-canal-que-transmite-y-donde-ver-por-espn-disney-plus-video-noticia/)
+- **VER ESPN EN VIVO: dónde transmiten Independiente del Valle vs. Inter Miami 2026**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/espn-en-vivo-gratis-idv-vs-inter-miami-hoy-online-via-disney-plus-por-amistoso-del-champions-tour-2026-video-noticia/)
+
+
+### setlist alejandro sanz 2026 (N/A, 27/02/2026 00:16 Lima)
+
+- **"Ella deja el Perú arriba": Alejandro Sanz elogió a baterista peruana Gisella Giurfa durante concierto [VIDEO]**: [Link](https://rpp.pe/famosos/celebridades/alejandro-sanz-elogia-a-baterista-peruana-gisella-giurfa-durante-concierto-en-estadio-nacional-video-noticia-1677633)
+- **Primer concierto de Alejandro Sanz en Lima pese a lluvia**: [Link](https://www.americatv.com.pe/noticias/espectaculos/alejandro-sanz-emociono-fans-su-primer-concierto-lima-n516168)
+- **Alejandro Sanz en su primer concierto en el Estadio Nacional: En medio de una lluvia de amor y melancolía**: [Link](https://andina.pe/agencia/galeria-alejandro-sanz-su-primer-concierto-el-estadio-nacional-medio-una-lluvia-amor-y-melancolia-28792.aspx)
+
+
 ### lakers - suns (N/A, 26/02/2026 21:34 Lima)
 
 - **Lakers vs Suns Odds & Picks Tonight: Value on the Total**: [Link](https://www.oddsshark.com/nba/lakers-suns-picks-odds-february-26-2026)
@@ -956,75 +1024,5 @@ Sin noticias relacionadas disponibles.
 - **CD Moquegua vs. Deportivo Garcilaso EN VIVO: dónde ver Liga 1 MAX vía Movistar TV y DIRECTV**: [Link](https://depor.com/futbol-peruano/descentralizado/cd-moquegua-vs-deportivo-garcilaso-en-vivo-gratis-hoy-donde-ver-liga-1-max-futbol-libre-tv-movistar-tv-directv-zapping-claro-tv-en-directo-por-internet-video-noticia/)
 - **Liga 1: Deportivo Moquegua y Deportivo Garcilaso se miden por la fecha 4**: [Link](https://rpp.pe/futbol/descentralizado/liga-1-deportivo-moquegua-y-deportivo-garcilaso-se-miden-por-la-fecha-4-noticia-1677008)
 - **Universidad Cesar Vallejo Moquegua vs Deportivo Garcilaso | Pronóstico y cuotas 23.02.2026**: [Link](https://www.transfermarkt.es/apuestas/pronosticos-deportivos/universidad-cesar-vallejo-moquegua-vs-deportivo-garcilaso-pronostico-apuestas-23-02-2026/)
-
-
-### al ahli (N/A, 23/02/2026 15:51 Lima)
-
-- **Discover the Factors Leading Al-Ahli to Victory Platforms This Season**: [Link](https://www.ysscores.com/en/news/13916431/Discover-the-Factors-Leading-Al-Ahli-to-Victory-Platforms-This-Season)
-- **Preview: Damac vs Al Shabab Prediction, lineups, betting tips & odds | Saudi Pro League 2025-26**: [Link](https://khelnow.com/football/world-football-damac-vs-al-shabab-preview-202602)
-- **Jaissle Boosted by French Star’s Return Ahead of Damac Clash**: [Link](https://koorabreak.com/en/260122/)
-
-
-### bolonia - udinese (N/A, 23/02/2026 15:51 Lima)
-
-- **Serie A: Se enfrentan Bologna y Udinese por la fecha 26**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-se-enfrentan-bologna-y-udinese-por-la-fecha-26-noticia-1677002)
-- **Bologna vs Udinese Pronóstico: Análisis y Previa del Partido | Serie A 23-02-2026**: [Link](https://betmines.com/es/analisis-partido/bologna-vs-udinese-pronostico-analisis-previa-serie-a-23-02-2026)
-- **Bologna vs Udinese pronostico y comparación de cuotas 23.02.2026**: [Link](https://www.livetipsportal.com/es/pronosticos-apuestas-deportivas/bologna-vs-udinese-serie-a-11129358/)
-
-
-### everton - manchester united (N/A, 23/02/2026 15:51 Lima)
-
-- **Team news for Everton trip**: [Link](https://www.manutd.com/en/news/detail/team-news-for-everton-v-man-utd-on-23-february-2026)
-- **'Great experiences': Michael Carrick explains 'different reasons' why Man Utd must be in Champions League next season**: [Link](https://www.unitedinfocus.com/news/great-experiences-michael-carrick-explains-different-reasons-why-man-utd-must-be-in-champions-league-next-season/)
-- **bet365 bonus code SUN365: £30 bonus for Everton vs Man Utd**: [Link](https://www.thesun.co.uk/betting/38307242/bet365-bonus-code-everton-vs-man-utd-sun365/)
-
-
-### fiorentina - pisa (N/A, 23/02/2026 12:05 Lima)
-
-- **✅UFFICIALI di Fiorentina-Pisa: scelta su De Gea, Gud, Scuffet e Cuadrado 👀**: [Link](https://onefootball.com/it/notizie/ufficiali-di-fiorentina-pisa-scelta-su-de-gea-gud-scuffet-e-cuadrado-42456081)
-- **Calcio in tv: le partite di stasera, lunedì 23 febbraio**: [Link](https://www.lastampa.it/sport/2026/02/23/news/calcio_in_tv_le_partite_di_stasera_lunedi_23_febbraio-15519947/)
-- **Il Giglio contro il Pisa vuole tornare a ballare il griddy**: [Link](https://www.violanews.com/esclusive/le-nostre-esclusive/il-giglio-vuole-tornare-a-ballare-il-griddy/)
-
-
-### fenerbahçe - kasımpaşa (N/A, 23/02/2026 12:05 Lima)
-
-- **Fenerbahçe'nin rakibi Kasımpaşa - Fenerbahçe - Spor Haberleri**: [Link](https://www.milliyet.com.tr/skorer/live-fenerbahcenin-rakibi-kasimpasa-7542875)
-- **Emre Belözoğlu'ndan Fenerbahçe maçı sözleri: Daha gergin geçecek**: [Link](https://www.turkiyegazetesi.com.tr/spor/emre-belozoglundan-fenerbahce-maci-sozleri-daha-gergin-gececek-1772881)
-- **Fenerbahçe Kritik 3 Puan İçin Sahaya Çıkıyor!**: [Link](https://www.sabah.com.tr/spor/futbol/2026/02/23/fenerbahce-kritik-3-puan-icin-sahaya-cikiyor)
-
-
-### onpe (N/A, 23/02/2026 12:05 Lima)
-
-- **ONPE verificó el estado de más de 10,000 locales de votación - Noticias - Oficina Nacional de Procesos Electorales**: [Link](https://www.gob.pe/institucion/onpe/noticias/1357282-onpe-verifico-el-estado-de-mas-de-10-000-locales-de-votacion)
-- **Consulta con DNI tu local de votación para las elecciones presidenciales 2026 en Perú, link**: [Link](https://elcomercio.pe/respuestas/tramites/consulta-con-tu-dni-donde-votar-en-las-proximas-elecciones-presidenciales-2026-en-el-peru-tdpe-noticia/)
-- **ODPE Piura realiza coordinaciones de seguridad con FF.AA para Piura y Veintiséis de Octubre**: [Link](https://diariocorreo.pe/edicion/piura/odpe-piura-realiza-coordinaciones-de-seguridad-con-ffaa-para-piura-y-veintiseis-de-octubre-noticia/)
-
-
-### robin williams (N/A, 23/02/2026 12:05 Lima)
-
-- **Robin Williams' Brother Only Appeared in One Movie, but It Was a '90s Classic**: [Link](https://collider.com/robin-williams-brother-mrs-doubtfire/)
-- **12 Years Later, This Robin Williams Comedy Hits Different**: [Link](https://screenrant.com/night-at-the-museum-3-robin-williams-hits-different/)
-- **‘He Had To Be Funny To Survive’: Stellan Skarsgård on Robin Williams**: [Link](https://www.yahoo.com/entertainment/movies/articles/had-funny-survive-stellan-skarsg-075945955.html)
-
-
-### ticketmaster peru (N/A, 23/02/2026 12:05 Lima)
-
-- **Robbie Williams en Lima: Fecha, lugar y venta de entradas**: [Link](https://www.americatv.com.pe/noticias/espectaculos/robbie-williams-llegara-primera-vez-lima-n516068)
-- **Robbie Williams llega por primera vez al Perú con su gira “BritPop” este 24 de setiembre| Galería Fotográfica**: [Link](https://andina.pe/agencia/galeria-robbie-williams-llega-primera-vez-al-peru-su-gira-britpop-este-24-setiembre-28753.aspx)
-- **Robbie Williams confirma su primer concierto en Perú: fecha de preventa de entradas, cuándo y dónde será**: [Link](https://rpp.pe/musica/conciertos/robbie-williams-en-lima-confirman-su-primer-concierto-en-peru-en-el-arena-1-park-cuando-sera-noticia-1677092)
-
-
-### robbie williams (N/A, 23/02/2026 12:05 Lima)
-
-- **Robbie Williams en Lima: Fecha, lugar y venta de entradas**: [Link](https://www.americatv.com.pe/noticias/espectaculos/robbie-williams-llegara-primera-vez-lima-n516068)
-- **Robbie Williams llega por primera vez al Perú con su gira “BritPop” este 24 de setiembre| Galería Fotográfica**: [Link](https://andina.pe/agencia/galeria-robbie-williams-llega-primera-vez-al-peru-su-gira-britpop-este-24-setiembre-28753.aspx)
-- **Robbie Williams confirma su primer concierto en Perú: fecha de preventa de entradas, cuándo y dónde será**: [Link](https://rpp.pe/musica/conciertos/robbie-williams-en-lima-confirman-su-primer-concierto-en-peru-en-el-arena-1-park-cuando-sera-noticia-1677092)
-
-
-### binacional liga 1 (N/A, 23/02/2026 12:05 Lima)
-
-- **¿Vuelve Binacional a la Liga 1? Lo que se sabe de este polémico caso a raíz de una publicación que fue desmentida**: [Link](https://www.infobae.com/peru/deportes/2026/02/23/vuelve-binacional-a-la-liga-1-tribunal-constitucional-ordena-a-la-fpf-la-reincorporacion-del-club-al-torneo/)
-- **Campeón nacional descendido administrativamente volverá a la Liga 1 tras dictamen legal**: [Link](https://bolavip.com/pe/liga-1/campeon-nacional-descendido-administrativamente-volvera-a-la-liga-1-tras-dictamen-legal)
-- **¿Deportivo Binacional vuelve a la Liga 1 a través del Tribunal Constitucional?**: [Link](https://www.futbolperuano.com/liga-1/noticias/deportivo-binacional-vuelve-a-la-liga-1-por-el-tribunal-constitucional-564982)
 
 
