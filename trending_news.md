@@ -1,3 +1,38 @@
+### pokemon (N/A, 27/02/2026 11:48 Lima)
+
+- **The Next Generation of ‘Pokémon’ Games Is Here**: [Link](https://gizmodo.com/pokemon-gen-10-announced-release-date-nintendo-winds-waves-2000727566)
+- **Pokémon Winds And Waves To Include Brazilian Portuguese Language Option**: [Link](https://www.nintendo-insider.com/pokemon-winds-and-waves-to-include-brazilian-portuguese-language-option/)
+- **News and Updates from the Pokémon Day 2026 Pokémon Presents**: [Link](https://www.pokemon.com/uk/pokemon-news/news-and-updates-from-the-pokemon-day-2026-pokemon-presents)
+
+
+### juan pablo varillas (N/A, 27/02/2026 11:48 Lima)
+
+- **Hoy, Juan Pablo Varillas vs. Diego Dedura EN VIVO: sigue aquí el partido por cuartos del Challenger de Tigre 2**: [Link](https://rpp.pe/tenis/mas-tenis/juan-pablo-varillas-vs-diego-dedura-en-vivo-a-que-hora-juegan-y-donde-ver-cuartos-challenger-de-tigre-ii-2026-via-atp-tour-link-gratis-partidos-de-hoy-noticia-1677718)
+- **Varillas ganó y se instaló en cuartos del Challenger Tigre 2**: [Link](https://ovacion.pe/noticias/tenis/varillas-gano-se-instalo-cuartos-del-challenger-tigre-2)
+- **Se definieron los cuartos de final del AAT Challenger edición Tigre II**: [Link](https://www.infobae.com/deportes/2026/02/26/se-definieron-los-cuartos-de-final-del-aat-challenger-edicion-tigre-ii/)
+
+
+### ssi (N/A, 27/02/2026 11:48 Lima)
+
+- **Social Security March payment schedule: Here’s when recipients get their checks**: [Link](https://www.livenowfox.com/news/social-security-march-payment-schedule)
+- **When do you get your SSI check for March 2026? See payment schedule.**: [Link](https://www.usatoday.com/story/money/2026/02/26/ssi-payment-check-schedule-march-2026/88846338007/)
+- **Why you won't get a Social Security check in March 2026**: [Link](https://www.statesman.com/news/article/social-security-ssi-march-2026-payment-schedule-21938552.php)
+
+
+### barcelona vs newcastle (N/A, 27/02/2026 11:48 Lima)
+
+- **Alan Shearer names who he wants Newcastle to get in the Champions League out of Chelsea or Barcelona**: [Link](https://www.thechelseachronicle.com/news/alan-shearer-names-who-he-wants-newcastle-to-get-in-the-champions-league-out-of-chelsea-or-barcelona/)
+- **Dates set for Magpies' Champions League last 16 tie wit...**: [Link](https://www.newcastleunited.com/en/news/dates-set-for-magpies-champions-league-last-16-tie-with-barcelona)
+- **Barcelona told they must be 'perfect' to beat Newcastle as director Deco wants repeat of earlier Champions League win against Eddie Howe's men**: [Link](https://www.goal.com/en/lists/barcelona-perfect-beat-newcastle-director-deco-champions-league-win-eddie-howe-s-men/blt7b907d7b3d03292c)
+
+
+### alejandro sanz edad (N/A, 27/02/2026 11:48 Lima)
+
+- **Alejandro Sanz cerró su show con un abrazo a Stephanie Cayo**: [Link](https://www.americatv.com.pe/noticias/espectaculos/alejandro-sanz-abrazo-stephanie-cayo-pleno-concierto-n516202)
+- **Alejandro Sanz y Stephanie Cayo: ¿Cuál es la diferencia de edad entre el cantante y la actriz que están siendo vinculados?**: [Link](https://www.infobae.com/peru/2026/02/26/alejandro-sanz-y-stephanie-cayo-cual-es-la-diferencia-de-edad-entre-el-cantante-y-la-actriz-que-estan-siendo-vinculados/)
+- **¡Rompe el silencio! Alejandro Sanz lanza enigmático mensaje tras rumores de relación con Stephanie Cayo**: [Link](https://elcomercio.pe/respuestas/farandula/rompe-el-silencio-alejandro-sanz-lanza-enigmatico-mensaje-tras-rumores-de-relacion-con-stephanie-cayo-tdpe-noticia/)
+
+
 ### real madrid vs manchester city (N/A, 27/02/2026 08:11 Lima)
 
 - **UEFA Champions League round of 16, quarter-final and semi-final draw: Where is it, when is it, who is involved?**: [Link](https://www.uefa.com/uefachampionsleague/news/02a2-1ffe3d954170-60c0b7443c85-1000--uefa-champions-league-round-of-16-quarter-final-and-semi/)
@@ -991,38 +1026,5 @@
 - **Del brillante look de la Chiqui en la previa a su cumpleaños 99 a sus consejos para mantenerse espléndida**: [Link](https://www.lanacion.com.ar/espectaculos/personajes/la-noche-de-mirtha-del-brillante-look-de-la-chiqui-en-la-previa-a-su-cumpleanos-99-a-sus-consejos-nid22022026/)
 - **Mirtha Legrand ya festeja a puro lujo su cumpleaños 99**: [Link](https://www.clarin.com/espectaculos/listo-gran-festejo-mirtha-legrand_0_pHVk3O8rqP.html)
 - **Mshow del lunes 23 de febrero de 2026**: [Link](https://www.ciudad.com.ar/videos/magazine/2026/02/23/mshow-programa-del-230226-los-99-de-mirtha-celebracion-especial/)
-
-
-### gallardo (N/A, 23/02/2026 21:40 Lima)
-
-- **River: Los posibles candidatos para reemplazar a Marcelo Gallardo**: [Link](https://www.espn.com.ar/futbol/argentina/nota/_/id/16350847/river-plate-candidatos-para-reemplazar-marcelo-gallardo-entrenador)
-- **Ruggeri, en ESPN F90: "A Gallardo lo superó la situación"**: [Link](https://espndeportes.espn.com/futbol/argentina/nota/_/id/16349063/video-polemica-en-river-a-gallardo-lo-supero-la-situacion-dijo-ruggeri-en-espn-f90)
-- **¿Dónde se vio River vs Vélez (0-1) por la Liga Profesional?**: [Link](https://depor.com/futbol-internacional/argentina/donde-ver-river-vs-velez-en-vivo-gratis-canales-de-espn-tnt-sports-pelota-libre-tv-disney-plus-torneo-apertura-2026-video-noticia/)
-
-
-### viña del mar 2026 (N/A, 23/02/2026 21:40 Lima)
-
-- **Viña 2026: Pet Shop Boys y el inédito montaje de 20 toneladas**: [Link](https://www.t13.cl/noticia/espectaculos/el-inedito-motivo-obligara-intervenir-escenario-vina-por-primera-vez-23-2-2026)
-- **“Es como ganar la Copa del Mundo”: El estudio y la preparación que hizo Pet Shop Boys para entender el rito de las Gaviotas en el Festival de Viña**: [Link](https://www.theclinic.cl/2026/02/23/es-como-ganar-la-copa-del-mundo-el-estudio-y-la-preparacion-que-hizo-pet-shop-boys-para-entender-el-rito-de-las-gaviotas-en-el-festival-de-vina/)
-- **Festival de Viña 2026: Este es el setlist que interpretará Pet Shop Boys en la Quinta Vergara**: [Link](https://www.fmdos.cl/noticias/festival-de-vina-2026-este-es-el-setlist-que-interpretara-pet-shop-boys-en-la-quinta-vergara/)
-
-
-### pronostico everton vs manchester united (N/A, 23/02/2026 21:40 Lima)
-
-- **Manchester United le ganó a Everton y está cuarto en la Premier League**: [Link](https://www.espn.com.pe/futbol/inglaterra/nota/_/id/16336944/manchester-united-vs-everton-premier-league-equipo-fecha-hora-y-tv-en-vivo)
-- **Premier League: Manchester United visita a Everton por la fecha 27**: [Link](https://rpp.pe/futbol/ligas-internacionales/premier-league-manchester-united-visita-a-everton-por-la-fecha-27-noticia-1677006)
-- **Puntuación del Everton vs Man United, puntos de conversación, los hombres de Carrick apuntan a impulsar las esperanzas de estar entre los cuatro primeros de la Premier League**: [Link](https://www.ucvradio.pe/mas-actualidad/puntuacion-del-everton-vs-man-united-puntos-de-conversacion-los-hombres-de-carrick-apuntan-a-impulsar-las-esperanzas-de-estar-entre-los-cuatro-primeros-de-la-premier-league/138705/)
-
-
-### bbva (N/A, 23/02/2026 21:40 Lima)
-
-- **BBVA Announces Publication of New Share Buyback Program Details**: [Link](https://www.tipranks.com/news/company-announcements/bbva-announces-publication-of-new-share-buyback-program-details)
-- **Elliott woos shareholders backing Toyota Industries buyout, sources say**: [Link](https://www.tradingview.com/news/reuters.com,2026:newsml_L4N3ZG003:0-elliott-woos-shareholders-backing-toyota-industries-buyout-sources-say/)
-- **Preferential US chip tariffs will not change, Taiwan says**: [Link](https://www.tradingview.com/news/reuters.com,2026:newsml_P8N3V204S:0-preferential-us-chip-tariffs-will-not-change-taiwan-says/)
-
-
-### cadiz vs (N/A, 23/02/2026 21:40 Lima)
-
-Sin noticias relacionadas disponibles.
 
 
