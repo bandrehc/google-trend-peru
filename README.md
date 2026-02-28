@@ -1,3 +1,72 @@
+### galatasaray - alanyaspor (N/A, 28/02/2026 11:33 Lima)
+
+- **Galatasaray'da Yunus Akgün Alanyaspor maçı kadrosunda yer almadı**: [Link](https://www.yenicaggazetesi.com/galatasarayda-yunus-akgun-alanyaspor-maci-kadrosunda-yer-almadi-1004967h.htm)
+- **Okan Buruk’tan Osimhen kararı! Galatasaray'da sürpriz kadro**: [Link](https://www.posta.com.tr/galeri/okan-buruktan-osimhen-karari-galatasarayda-surpriz-kadro-2969387)
+- **Galatasaray’ın Alanyaspor Karşısındaki Muhtemel İlk 11’i! Emre Kaplan Son Gelişmeleri Aktardı… - Aspor**: [Link](https://www.aspor.com.tr/webtv/program/yasasin-hafta-sonu/galatasarayin-alanyaspor-karsisindaki-muhtemel-ilk-11i-emre-kaplan-son-gelismeleri-aktardi)
+
+
+### rennes - toulouse (N/A, 28/02/2026 11:33 Lima)
+
+- **Rennes : 38 minutes en 2 matchs… Une recrue du mercato 2025 peut craindre le pire avec Haise**: [Link](https://www.topmercato.com/2008394-rennes-38-minutes-en-2-matchs-une-recrue-du-mercato-2025-peut-craindre-le-pire-avec-haise/)
+- **Stade Rennais : Un cadre offensif déjà fragilisé par l’effet Haise**: [Link](https://mediafoot.net/stade-rennais-un-cadre-offensif-deja-fragilise-par-leffet-haise/)
+- **Ligue 1 : en plein doute, le TFC joue gros chez le Stade Rennais FC**: [Link](https://www.lejournaltoulousain.fr/occitanie/haute-garonne/toulouse/ligue-1-plein-doute-tfc-joue-gros-rennes-365312/)
+
+
+### charlton - wrexham (N/A, 28/02/2026 11:33 Lima)
+
+- **TEAM NEWS | Five changes for Wrexham clash**: [Link](https://www.charltonafc.com/news/team-news-five-changes-wrexham-clash)
+- **Las Vegas trip again? Wrexham players are keeping their Sin City dreams alive!**: [Link](https://www.denbighshirefreepress.co.uk/sport/25891182.wrexham-players-las-vegas-sights/)
+- **'We want a strong finish again' - Parkinson aiming high for Wrexham**: [Link](https://www.bordercountiesadvertizer.co.uk/news/25887214.want-strong-finish-says-wrexham-manager-phil-parkinson/)
+
+
+### mönchengladbach - fc union berlin (N/A, 28/02/2026 11:33 Lima)
+
+- **Borussia Mönchengladbach: Lukas Ullrich mit Tor-Premiere gegen Union**: [Link](https://www.bild.de/sport/fussball/borussia-moenchengladbach-lukas-ullrich-mit-tor-premiere-gegen-union-69a1bf337c787f6a1cef146c)
+- **Konferenz im Ticker – Live: Trimmel und Querfeld müssen in Gladbach bestehen**: [Link](https://www.heute.at/s/live-trimmel-und-querfeld-muessen-in-gladbach-bestehen-120165680)
+- **Union Berlin gegen Mönchengladbach: Bundesliga jetzt live im TV und Stream sehen**: [Link](https://berlin.t-online.de/region/berlin/id_101143920/union-berlin-vs-moenchengladbach-bundesliga-im-tv-jetzt-live-sehen.html)
+
+
+### dubai (N/A, 28/02/2026 11:33 Lima)
+
+- **Saudi Airlines cancels flights, Muscat airport shuts amid Iran-Israel escalation**: [Link](https://www.aa.com.tr/en/middle-east/saudi-airlines-cancels-flights-muscat-airport-shuts-amid-iran-israel-escalation/3843389)
+- **All Flights to and from Dubai International and Al Maktoum International Airports Suspended**: [Link](https://en.traicy.com/posts/2026022833229/)
+- **Airspace closed in multiple Middle Eastern countries; multiple flights from China to the Middle East cancelled**: [Link](https://www.globaltimes.cn/page/202602/1355933.shtml)
+
+
+### aruba (N/A, 28/02/2026 11:33 Lima)
+
+- **Aruba pone a Perú en el mapa de hubs que se disputan el Caribe: ¿sostenible o estacional?**: [Link](https://gestion.pe/economia/aruba-pone-a-peru-en-el-mapa-de-hubs-que-se-disputan-el-caribe-sostenible-o-estacional-noticia/)
+- **This Aruba Hotel Is the Only Hotel on Earth With Two Perfect Green Globe Scores**: [Link](https://www.caribjournal.com/2026/02/26/aruba-green-globe-hotel/)
+
+
+### barca (N/A, 28/02/2026 11:33 Lima)
+
+- **Barcelona vs Villarreal: La Liga – preview, team news, start, lineups**: [Link](https://www.aljazeera.com/sports/2026/2/27/barcelona-vs-villarreal-la-liga-preview-team-news-start-lineups)
+- **Lamine Yamal scores a stunning second goal for Barca**: [Link](https://www.espn.com/video/clip/_/id/48061978)
+- **Barcelona XI vs. Villarreal: Midfield Changes Projected—Injury News, Predicted Lineup**: [Link](https://www.si.com/soccer/barcelona-xi-vs-villarreal-injury-news-predicted-lineup-2-28-26)
+
+
+### hoffenheim vs (N/A, 28/02/2026 11:33 Lima)
+
+- **Preview: Hoffenheim vs St Pauli - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/hoffenheim/preview/hoffenheim-vs-st-pauli-prediction-team-news-lineups_592819.html)
+- **Ilzer: “It's going to be a challenge”**: [Link](https://www.tsg-hoffenheim.de/en/news/overview/2026/02/ilzer-its-going-to-be-a-challenge)
+- **Hoffenheim vs St. Pauli Prediction and Betting Tips | February 28th 2026**: [Link](https://www.sportskeeda.com/football/hoffenheim-vs-st-pauli-prediction-betting-tips-february-28th-2026)
+
+
+### werder bremen - heidenheim (N/A, 28/02/2026 11:33 Lima)
+
+- **Sieg im Keller-Kracher: Bremen springt in der Tabelle, Heidenheim bleibt Letzter**: [Link](https://www.t-online.de/sport/fussball/bundesliga/id_101148956/bundesliga-befreiungsschlag-fuer-werder-bremen-gegen-heidenheim.html)
+- **Werder Bremen: Nächster Trainer-Knall? Werder-Boss mit Klartext**: [Link](https://www.sport.de/news/ne16541056/werder-bremen-naechster-trainer-knall-werder-boss-mit-klartext/)
+- **Bundesliga im Liveticker: Bremer Stürmer scheitern mehrfach vor leerem Tor – St. Pauli führt**: [Link](https://www.welt.de/sport/fussball/bundesliga/article69a2eaf4e168162ea2ac0fb8/bundesliga-im-liveticker-bremer-stuermer-scheitern-mehrfach-vor-leerem-tor-st-pauli-fuehrt.html)
+
+
+### hoffenheim - st. pauli (N/A, 28/02/2026 11:33 Lima)
+
+- **Auch Lemperle ist wieder fit**: [Link](https://www.kicker.de/auch-lemperle-ist-wieder-fit-1197274/artikel)
+- **Pereira Lages Bundesliga-Torpremie sorgt für…**: [Link](https://www.fcstpauli.com/news/spielbericht-auswaertsspiel-tsg-hoffenheim-2526)
+- **"Denken an Schritte": Ilzer bleibt im CL-Rennen zurückhaltend**: [Link](https://www.skysportaustria.at/denken-an-schritte-ilzer-bleibt-im-cl-rennen-zurueckhaltend/)
+
+
 ### leicester city - norwich (N/A, 28/02/2026 07:57 Lima)
 
 - **Leicester vs Norwich City Confirmed Lineups for February 28**: [Link](https://lastwordonsports.com/football/2026/02/28/leicester-vs-norwich-city-confirmed-lineups-february/)
@@ -955,72 +1024,5 @@ Sin noticias relacionadas disponibles.
 - **Warriors-Pelicans Game Statuses Revealed for Melton, Horford, Porzingis, Murphy**: [Link](https://www.si.com/nba/warriors/onsi/news/warriors-pelicans-game-statuses-revealed-for-melton-horford-porzingis-murphy-01kj8j3zfp87)
 - **Warriors Battle Pelicans In High-Stakes NBA Showdown Tonight**: [Link](https://evrimagaci.org/gpt/warriors-battle-pelicans-in-highstakes-nba-showdown-tonight-531453)
 - **Warriors lose in New Orleans tonight.**: [Link](https://uk.sports.yahoo.com/news/warriors-lose-orleans-tonight-035852983.html)
-
-
-### homicidio culposo (N/A, 25/02/2026 08:18 Lima)
-
-- **Quién es el hijo del cantante Leo Mattioli que fue condenado por atropellar y matar a una ciclista en Santa Fe**: [Link](https://tn.com.ar/show/famosos/2026/02/25/quien-es-el-hijo-del-cantante-leo-mattioli-que-fue-condenado-por-atropellar-y-matar-a-una-ciclista-en-santa-fe/)
-- **Condenaron al hijo de Leo Mattioli por atropellar y matar a una ciclista**: [Link](https://www.lmneuquen.com/espectaculos/condenaron-al-hijo-leo-mattioli-atropellar-y-matar-una-ciclista-n1229483)
-- **Califican de "ejemplar" la condena a Nicolás Mattioli: "Creemos que se hizo justicia"**: [Link](https://www.unosantafe.com.ar/judiciales/califican-ejemplar-la-condena-nicolas-mattioli-creemos-que-se-hizo-justicia-n10246211.html)
-
-
-### atalanta vs (N/A, 25/02/2026 03:57 Lima)
-
-- **Preview: Atalanta BC vs Borussia Dortmund - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/atalanta-bc/champions-league/preview/atalanta-vs-dortmund-prediction-team-news-lineups_592576.html)
-- **UEFA Champions League: the ticker for the trip to Bergamo**: [Link](https://sports.yahoo.com/articles/uefa-champions-league-ticker-trip-205000779.html)
-- **Palladino: ‘Atalanta have belief in Champions League dream’**: [Link](https://onefootball.com/pt-br/noticias/palladino-atalanta-have-belief-in-champions-league-dream-42461744)
-
-
-### lakers (N/A, 25/02/2026 00:24 Lima)
-
-- **Dodgers exec Lon Rosen becomes Lakers' president of business ops**: [Link](https://www.espn.com/nba/story/_/id/47980018/long-dodgers-exec-lon-rosen-becomes-lakers-president-business-ops)
-- **“I have a pretty unique seat, because I work with two …**: [Link](https://www.hoopshype.com/story/sports/nba/rumors/2026/02/24/i-have-a-pretty-unique-seat-because-i-work-with-two/88852536007/)
-- **“He’s not going to have day-to-day involvement at all. …**: [Link](https://sports.yahoo.com/articles/not-going-day-day-involvement-021858778.html)
-
-
-### melcochita (N/A, 25/02/2026 00:24 Lima)
-
-- **Melcochita explica por qué Monserrat administraba su dinero: "Los trabajos grandes eran para ella"**: [Link](https://www.atv.pe/noticia/melcochita-explica-por-que-monserrat-administraba-su-dinero-los-trabajos-grandes-eran-para-ella/)
-- **Monserrat habría engañado a Melcochita con un amigo de la familia: Muestran video de la ‘infidelidad’**: [Link](https://trome.com/espectaculos/tv/monserrat-seminario-habria-enganado-a-melcochita-con-un-amigo-de-la-familia-muestran-video-de-la-infidelidad-video-fotos-farandula-noticia/)
-- **Susan Villanueva acusa a Monserrat Seminario de haber sido infiel a Melcochita: "Salía con él, era su amigo"**: [Link](https://larepublica.pe/espectaculos/2026/02/24/susan-villanueva-acusa-a-monserrat-seminario-de-haber-sido-infiel-a-melcochita-salia-con-el-era-su-amigo-872160)
-
-
-### magic - lakers (N/A, 25/02/2026 00:24 Lima)
-
-- **Los Angeles Lakers vs Phoenix Suns Odds - Thursday February 26 2026**: [Link](https://www.oddsshark.com/nba/los-angeles-phoenix-odds-february-26-2026-2479374)
-- **Luka Doncic Injury: Exits to locker room vs. Orlando**: [Link](https://www.rotowire.com/basketball/headlines/luka-doncic-injury-exits-to-locker-room-vs-orlando-520334)
-- **NBA Best Bets: Top Magic vs. Lakers prop bets for Tuesday 2/24/26**: [Link](https://dknetwork.draftkings.com/2026/02/24/nba-best-bets-top-magic-vs-lakers-prop-bets-for-tuesday-2-24-26/)
-
-
-### francesca montenegro influencer (N/A, 25/02/2026 00:24 Lima)
-
-- **Gino Marzano sobre Francesca Montenegro y padre: "Hay dos nuevos personajes, es encubrimiento"**: [Link](https://www.atv.pe/noticia/gino-marzano-sobre-francesca-montenegro-y-padre-hay-dos-nuevos-personajes-es-encubrimiento/)
-
-
-### eddie vedder (N/A, 25/02/2026 00:24 Lima)
-
-- **Yo Soy conciertos 2026: ¡Eddie Veder elevó la noche con una presentación poderosa!**: [Link](https://www.latina.pe/entretenimiento/yo-soy/mejores-momentos-de-yo-soy/yo-soy-conciertos-2026-eddie-veder-elevo-la-noche-con-una-presentacion-poderosa_20260224/)
-- **Brave! Man Struggles To Sing Both Eddie Vedder and Chris Cornell Parts of “Hunger Strike”**: [Link](https://thehardtimes.net/blog/brave-man-struggles-to-sing-both-eddie-vedder-and-chris-cornell-parts-of-hunger-strike/)
-
-
-### los angeles fc (N/A, 25/02/2026 00:24 Lima)
-
-- **LAFC Aims for CONCACAF Champions Cup Advancement Against Real España**: [Link](https://news.ssbcrack.com/lafc-aims-for-concacaf-champions-cup-advancement-against-real-espana/)
-- **'Only 45 minutes of knife replacement' Son Heung-min failed to attack P for 3 consecutive games → Real Spain won 7-1 total... FIFA Club World Cup Challenge Cruise**: [Link](https://www.starnewskorea.com/en/sports/2026/02/25/2026022512143213947)
-- **Recap | LAFC 1 (7) - 0 (1) | Concacaf Champions Cup**: [Link](https://www.lafc.com/news/recap-lafc-1-7-0-1-concacaf-champions-cup)
-
-
-### rafael olarra (N/A, 25/02/2026 00:24 Lima)
-
-- **Pedro Pascal Seen with Rafael Olarra During Monday Night Outing in New York City**: [Link](https://www.justjared.com/2026/02/17/pedro-pascal-seen-with-rafael-olarra-during-monday-night-outing-in-new-york-city/)
-- **Pedro Pascal & Rafael Olarra Watch 'Wuthering Heights' Together in Theater**: [Link](https://www.tmz.com/2026/02/17/pedro-pascal-rafael-olarra-go-to-movies/)
-- **‘We must be doing something right as a society’: Why the photos of Pedro Pascal walking arm‑in‑arm with a man matter**: [Link](https://english.elpais.com/lifestyle/2026-02-24/we-must-be-doing-something-right-as-a-society-why-the-photos-of-pedro-pascal-walking-arminarm-with-a-man-matter.html)
-
-
-### atv (N/A, 25/02/2026 00:24 Lima)
-
-- **¡Todos atentos! Magaly Medina revela nuevo horario de su programa tras críticas por bajo rating**: [Link](https://elcomercio.pe/respuestas/farandula/todos-atentos-magaly-medina-revela-nuevo-horario-de-su-programa-tras-criticas-por-bajo-rating-tdpe-noticia/)
-- **Andrea Llosa 'parchó' a Magaly Media tras críticas por bajo rating**: [Link](https://www.moda.com.pe/noticias/espectaculos/andrea-llosa-parcho-a-magaly-media-tras-criticas-por-bajo-rating/)
-- **Andrea Llosa expone a Magaly Medina tras afirmar que le dejaba bajo colchón de rating: "No es ambiciosa, es una suerte de Gollum"**: [Link](https://larepublica.pe/espectaculos/2026/02/17/andrea-llosa-expone-a-magaly-medina-tras-afirmar-que-le-dejaba-bajo-colchon-de-rating-no-es-ambiciosa-es-una-suerte-de-gollum-1614133)
 
 
