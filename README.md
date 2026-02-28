@@ -1,3 +1,73 @@
+### tabla de posiciones liga 1 (N/A, 28/02/2026 15:32 Lima)
+
+- **Así se jugará la fecha 5 del Apertura de la Liga 1 2026**: [Link](https://www.espn.com.pe/futbol/peru/nota/_/id/16349532/programacion-de-la-fecha-5-del-apertura-liga-1-de-peru)
+- **Tabla de posiciones Liga 1 2026 EN VIVO: partidos, resultados y cómo va la fecha 5 del Torneo Apertura**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/tabla-de-posiciones-liga-1-2026-en-vivo-partidos-resultados-y-posiciones-tras-fecha-5-del-torneo-apertura-noticia/)
+- **Programación fecha 05 del Torneo Apertura Liga1 Te Apuesto**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/programacion-fecha-05-torneo-apertura-liga1-te-apuesto-n452819)
+
+
+### inter milan (N/A, 28/02/2026 15:32 Lima)
+
+- **GdS: Serie A experiencing a ‘European crisis’ – Milan’s supporting role**: [Link](https://sempremilan.com/serie-a-experiencing-european-crisis-milan-role)
+- **Serie A close to extra UCL spot, but Italy underdog against Germany and Spain**: [Link](https://football-italia.net/serie-a-ucl-spot-italy-underdog-spain-germany/)
+- **Italian clubs on brink of historic Champions League embarrassment**: [Link](https://www.bbc.com/sport/football/articles/c4g2j503626o)
+
+
+### jamenei (N/A, 28/02/2026 15:32 Lima)
+
+- **EE.UU. e Israel lanzan un ataque a gran escala contra Irán, se reportan explosiones en Teherán**: [Link](https://www.tvperu.gob.pe/noticias/internacionales/eeuu-e-israel-lanzan-un-ataque-a-gran-escala-contra-iran-se-reportan-explosiones-en-teheran)
+- **Marco Rubio notificó con antelación el ataque contra Irán a algunos congresistas, según CNN**: [Link](https://rpp.pe/mundo/actualidad/marco-rubio-notifico-con-antelacion-el-ataque-contra-iran-a-algunos-congresistas-segun-cnn-noticia-1677968)
+- **¡Alerta!: Estados Unidos e Israel lanzan ataques contra Irán**: [Link](https://diariouno.pe/2026/02/28/alerta-estados-unidos-e-israel-lanzan-ataques-contra-iran/)
+
+
+### le havre vs psg (N/A, 28/02/2026 15:32 Lima)
+
+- **Le Havre AC vs. PSG (28 de Feb., 2026) Resultados en Vivo**: [Link](https://www.espn.com.pe/futbol/partido/_/juegoId/746619)
+- **La compo du PSG contre Le Havre : Luis Enrique change tout**: [Link](https://www.goal.com/fr/listes/la-compo-du-psg-contre-le-havre-luis-enrique-change-tout/blte3eab1e2223c230a)
+- **LIVE : Le Havre - PSG (0-0)**: [Link](https://www.sofoot.com/articles/live-le-havre-psg)
+
+
+### inter vs genoa (N/A, 28/02/2026 15:32 Lima)
+
+- **Cuándo juegan Inter vs. Genoa por la fecha 27 de la Serie A 2025/26: equipo, fecha, hora y TV en vivo**: [Link](https://www.espn.com.pe/futbol/italia/nota/_/id/16353473/inter-vs-genoa-fecha-27-serie-a-equipo-fecha-hora-y-tv-en-vivo)
+- **Pronóstico Inter vs. Genoa - La localía con la obligación de ir por la victoria**: [Link](https://gainblers.com/pe/pronosticos/futbol/italia/serie-a/pronostico-inter-genoa-28-02-2026/)
+- **Serie A: Inter juega ante Genoa para mantenerse en la punta**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-inter-juega-ante-genoa-para-mantenerse-en-la-punta-noticia-1677776)
+
+
+### braga vs (N/A, 28/02/2026 15:32 Lima)
+
+- **Sporting Braga vs. Ferencvaros - Live Score - March 18, 2026**: [Link](https://www.foxsports.com/soccer/europa-league-sporting-braga-vs-ferencvaros-mar-18-2026-game-boxscore-710778)
+- **Preview: Nacional vs Braga - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/nacional/preview/nacional-vs-braga-prediction-team-news-lineups_592804.html)
+- **Nacional v Braga: European push meets survival fight**: [Link](https://onefootball.com/en/news/nacional-v-braga-european-push-meets-survival-fight-42477817)
+
+
+### real oviedo vs (N/A, 28/02/2026 15:32 Lima)
+
+- **🚨 XI Oviedo-Atleti: Changes for Atleti, Julio Díaz starts!**: [Link](https://sports.yahoo.com/articles/xi-oviedo-atleti-changes-atleti-184500826.html)
+- **Real Oviedo-Atletico Madrid - LaLiga 2025/2026 Statistical Preview**: [Link](https://www.whoscored.com/matches/1914141/preview/spain-laliga-2025-2026-real-oviedo-atletico-madrid)
+- **Atlético Returns to the Site of Past Tragedy**: [Link](https://www.el-balad.com/6863404)
+
+
+### le havre - psg (N/A, 28/02/2026 15:32 Lima)
+
+- **La compo du PSG contre Le Havre : Luis Enrique change tout**: [Link](https://www.goal.com/fr/listes/la-compo-du-psg-contre-le-havre-luis-enrique-change-tout/blte3eab1e2223c230a)
+- **LIVE : Le Havre - PSG (0-0)**: [Link](https://www.sofoot.com/articles/live-le-havre-psg)
+- **Match : Comment regarder Le Havre/PSG à l'étranger**: [Link](https://www.culturepsg.com/news/match/comment-regarder-le-havre-psg-a-l-etranger/58747)
+
+
+### al nassr (N/A, 28/02/2026 15:32 Lima)
+
+- **Jesus Settles on a Fiery Attacking Trio in Al-Nassr's Lineup Against Al-Fayha**: [Link](https://www.ysscores.com/en/news/13919390/Jesus-Settles-on-a-Fiery-Attacking-Trio-in-Al-Nassr's-Lineup-Against-Al-Fayha)
+- **How to watch today's Al-Fayha vs Al Nassr FC Saudi Pro League game: Live stream, TV channel, and start time**: [Link](https://www.goal.com/en/news/how-to-watch-al-fayha-v-al-nassr-fc-28022026/bltcf46641ab2f4880e)
+- **"I have a bad feeling", "He will score brace" - Fans make prediction as Cristiano Ronaldo's Al-Nassr name XI for Al-Fayha clash**: [Link](https://www.sportskeeda.com/football/news-i-bad-feeling-he-will-score-brace-fans-make-prediction-cristiano-ronaldo-s-al-nassr-name-xi-al-fayha-clash)
+
+
+### elimination chamber 2026 (N/A, 28/02/2026 15:32 Lima)
+
+- **Final Odds For Both Elimination Chamber Matches Ahead Of Tonight's WWE PLE**: [Link](https://www.thesportster.com/wwe-elimination-chamber-winners-betting-odds/)
+- **WWE’s Elimination Chamber: where to watch, start time, card, ESPN/Netflix/Peacock/ streaming info**: [Link](https://decider.com/2026/02/28/elimination-chamber-wwe-2026-start-time-card-watch-espn-peacock-netflix/)
+- **Wrestling Roundup: Many Loose Ends Will be Tied at Elimination Chamber**: [Link](https://www.thesportingtribune.com/2026/02/27/wwe-chamber-roundup)
+
+
 ### galatasaray - alanyaspor (N/A, 28/02/2026 11:33 Lima)
 
 - **Galatasaray'da Yunus Akgün Alanyaspor maçı kadrosunda yer almadı**: [Link](https://www.yenicaggazetesi.com/galatasarayda-yunus-akgun-alanyaspor-maci-kadrosunda-yer-almadi-1004967h.htm)
@@ -955,74 +1025,5 @@ Sin noticias relacionadas disponibles.
 - **Gobierno Regional despliega respuesta integral en toda la región ante emergencia por lluvias**: [Link](https://www.gob.pe/institucion/regionlambayeque/noticias/1357790-gobierno-regional-despliega-respuesta-integral-en-toda-la-region-ante-emergencia-por-lluvias)
 - **Calles convertidas en ríos: lluvia torrencial provocó aniegos en distintas partes de Chiclayo [VIDEO]**: [Link](https://rpp.pe/peru/lambayeque/chiclayo-lluvia-torrencial-provoco-aniegos-y-calles-inundadas-video-noticia-1677424)
 - **Repunte del río La Leche pone en alerta a Íllimo en vísperas del carnaval 2026**: [Link](https://andina.pe/agencia/noticia-repunte-del-rio-leche-pone-alerta-a-illimo-visperas-del-carnaval-2026-1064375.aspx)
-
-
-### robin williams (N/A, 25/02/2026 12:12 Lima)
-
-- **Ethan Hawke shares why he didn't get along with Robin Williams filming 'Dead Poets Society'**: [Link](https://www.upworthy.com/ethan-hawke-didnt-get-along-with-robin-williams-filming-dead-poets-society/)
-- **Christopher Nolan's 92% RT Killer Thriller Is Required Viewing if You Love Silence of the Lambs**: [Link](https://www.cbr.com/christopher-nolan-insomnia-underrated-crime-movie/)
-- **Stellan Skarsgård Says Good Will Hunting Co-Star Robin Williams Had To ‘Be Funny To Survive’**: [Link](https://www.yahoo.com/entertainment/movies/articles/stellan-skarsg-rd-says-good-020740775.html)
-
-
-### atalanta vs borussia dortmund (N/A, 25/02/2026 12:12 Lima)
-
-- **De Roon: ‘Atalanta can hurt Borussia Dortmund’ after 2-0 defeat**: [Link](https://football-italia.net/de-roon-atalanta-can-hurt-borussia-dortmund/)
-- **Kovač: "We have a good result, nothing more"**: [Link](https://www.bundesliga.com/en/bundesliga/videos/watch/kovac-we-have-a-good-result-nothing-more-r3n7Izpl)
-- **UEFA Champions League: the ticker for the trip to Bergamo**: [Link](https://sports.yahoo.com/articles/uefa-champions-league-ticker-trip-205000779.html)
-
-
-### valle salvaje capítulo 361 (N/A, 25/02/2026 12:12 Lima)
-
-- **Valle Salvaje - Temporada 3 - Episodio 361**: [Link](https://www.rtve.es/play/videos/valle-salvaje/temporada-3-episodio-361/16949627/)
-- **¿Se morirá Adriana en 'Valle Salvaje'? Hoy, el capítulo decisivo**: [Link](https://www.rtve.es/television/20260224/valle-salvaje-adriana-capitulo-decisivo/16950411.shtml)
-- **'Valle Salvaje', avance del capítulo 361 de hoy, martes 24 de febrero: Mercedes teme la alianza entre Victoria y Dámaso**: [Link](https://www.elmundo.es/television/series/2026/02/23/699c21cfe9cf4a3a1e8b457b.html)
-
-
-### dortmund vs. atalanta (N/A, 25/02/2026 08:18 Lima)
-
-- **Kovac says Dortmund must push themselves to 100% to maintain Atalanta lead**: [Link](https://www.beinsports.com/en-us/soccer/uefa-champions-league/articles/kovac-says-dortmund-must-push-themselves-to-100-to-maintain-atalanta-lead-2026-02-24)
-- **UEFA Champions League: the ticker for the trip to Bergamo**: [Link](https://onefootball.com/en/news/uefa-champions-league-the-ticker-for-the-trip-to-bergamo-42462358)
-- **How to watch Atalanta vs. Dortmund online for free**: [Link](https://www.aol.com/articles/watch-atalanta-vs-dortmund-online-080000629.html)
-
-
-### ticketmaster peru (N/A, 25/02/2026 08:18 Lima)
-
-- **Robbie Williams en Lima: la estrella del pop que sobrevivió a la fama y sus demonios**: [Link](https://elcomercio.pe/somos/robbie-williams-en-lima-la-estrella-del-pop-que-sobrevivio-a-la-fama-y-sus-demonios-noticia/)
-- **Robbie Williams llega por primera vez al Perú con su gira “BritPop” este 24 de setiembre| Galería Fotográfica**: [Link](https://andina.pe/agencia/galeria-robbie-williams-llega-primera-vez-al-peru-su-gira-britpop-este-24-setiembre-28753.aspx)
-- **Términos y Condiciones Campaña “Gana entradas para Robbie Williams y su icónica Casaca Roja”**: [Link](https://www.oxigeno.com.pe/concursos/terminos-y-condiciones-campana-gana-entradas-para-robbie-williams-y-su-iconica-casaca-roja-noticia-1677118)
-
-
-### weather (N/A, 25/02/2026 08:18 Lima)
-
-- **San Diego County slips into another period of unseasonably warm, dry winter weather**: [Link](https://www.sandiegouniontribune.com/2026/02/25/san-diego-county-slips-into-another-period-of-unseasonably-warm-dry-winter-weather/)
-- **San Diego's Weather Forecast for February 24, 2026: Warmer days ahead**: [Link](https://www.10news.com/weather/san-diegos-weather-forecast-for-february-24-2026-warmer-days-ahead)
-- **Fog Fizzles, Sun Sizzles As San Diego Sneaks Into The 70s**: [Link](https://hoodline.com/2026/02/fog-fizzles-sun-sizzles-as-san-diego-sneaks-into-the-70s/)
-
-
-### ticketmaster (N/A, 25/02/2026 08:18 Lima)
-
-- **Will Trump’s DOJ actually take on Ticketmaster?**: [Link](https://www.theverge.com/policy/883155/doj-antitrust-division-gail-slater-live-nation-ticketmaster-trial)
-- **Live Nation Files Appeal Motion in DOJ Case Days After Pulling Settlement Blog Post**: [Link](https://www.ticketnews.com/2026/02/live-nation-appeals-motion-doj-case-settlement-blog-post/)
-- **Live Nation Files Motion to Postpone Start of Antitrust Trial**: [Link](https://variety.com/2026/music/news/live-nation-files-motion-postpone-start-antitrust-trial-1236670802/)
-
-
-### eclipse lunar total (N/A, 25/02/2026 08:18 Lima)
-
-- **¿En qué lugares del mundo se podrá ver el Eclipse Lunar del 3 de marzo?**: [Link](https://elcomercio.pe/respuestas/donde/en-que-lugares-del-mundo-se-podra-ver-el-eclipse-lunar-del-3-de-marzo-tdpe-noticia/)
-- **El evento astronómico que ocurrirá el próximo 3 de marzo y no se repetirá hasta el 2028: a qué hora y en qué lugares se podrá ver**: [Link](https://libero.pe/mundo/2026/02/24/evento-astronomico-ocurrira-proximo-3-de-marzo-se-repetira-2028-hora-en-lugares-se-podra-ver-1025832)
-
-
-### lakers - magic (N/A, 25/02/2026 08:18 Lima)
-
-- **Los Angeles Lakers vs Phoenix Suns Odds - Thursday February 26 2026**: [Link](https://www.oddsshark.com/nba/los-angeles-phoenix-odds-february-26-2026-2479374)
-- **Doncic, who was 8-for-24 for the game and 2-for-10 …**: [Link](https://www.hoopshype.com/story/sports/nba/rumors/2026/02/25/doncic-who-was-8-for-24-for-the-game-and-2-for-10/88857550007/)
-- **Luka hesitates, LeBron misses on the last possession of a rough homestand for the slumping Lakers**: [Link](https://sports.yahoo.com/articles/luka-hesitates-lebron-misses-last-075802815.html)
-
-
-### pelicans - warriors (N/A, 25/02/2026 08:18 Lima)
-
-- **Warriors-Pelicans Game Statuses Revealed for Melton, Horford, Porzingis, Murphy**: [Link](https://www.si.com/nba/warriors/onsi/news/warriors-pelicans-game-statuses-revealed-for-melton-horford-porzingis-murphy-01kj8j3zfp87)
-- **Warriors Battle Pelicans In High-Stakes NBA Showdown Tonight**: [Link](https://evrimagaci.org/gpt/warriors-battle-pelicans-in-highstakes-nba-showdown-tonight-531453)
-- **Warriors lose in New Orleans tonight.**: [Link](https://uk.sports.yahoo.com/news/warriors-lose-orleans-tonight-035852983.html)
 
 
