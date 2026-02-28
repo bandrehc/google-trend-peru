@@ -1,3 +1,31 @@
+### iran (N/A, 28/02/2026 03:36 Lima)
+
+- **Israel says it has launched attack on Iran, as explosions reported in Tehran**: [Link](https://www.bbc.com/news/live/cn5ge95q6y7t)
+- **Live updates: US, Israel attack Iran in ‘preemptive strike,’ Trump posts video on Truth Social**: [Link](https://www.cnn.com/world/live-news/israel-iran-attack-02-28-26-hnk-intl)
+- **Trump talks of ‘annihilation’, ‘elimination’ as US, Israel attack Iran**: [Link](https://www.aljazeera.com/news/2026/2/28/trump-talks-of-annihilation-elimination-as-us-israel-attack-iran)
+
+
+### resident evil (N/A, 28/02/2026 03:36 Lima)
+
+- **Horror Awakens in the Cloud: GeForce NOW Unleashes Capcom’s ‘Resident Evil Requiem’**: [Link](https://blogs.nvidia.com/blog/geforce-now-thursday-resident-evil-requiem/)
+- **Path tracing sure is both beautiful and super demanding, but it won't always be a stress for GPUs**: [Link](https://tech.yahoo.com/gaming/articles/path-tracing-sure-both-beautiful-122151546.html)
+- **Resident Evil Requiem: how Capcom hopes to redefine survival horror**: [Link](https://www.bbc.com/news/articles/cewzngve9reo)
+
+
+### barcelona vs villarreal (N/A, 28/02/2026 03:36 Lima)
+
+- **Barcelona vs Villarreal: posibles alineaciones, Jornada 26, LaLiga**: [Link](https://www.espn.com.ar/futbol/nota/_/id/16367734/barcelona-vs-villarreal-posibles-alineaciones-jornada-26-laliga)
+- **Un ‘triplete’ al alcance de muy pocos**: [Link](https://as.com/futbol/primera/un-triplete-al-alcance-de-muy-pocos-f202602-n/)
+- **¿En qué canal transmiten FC Barcelona vs. Villarreal EN VIVO hoy por LaLiga 2026 en EE.UU., México y España? Canales TV online**: [Link](https://gestion.pe/mix/sports/en-que-canal-transmiten-fc-barcelona-vs-villarreal-en-vivo-hoy-por-laliga-2026-en-eeuu-mexico-y-espana-canales-tv-online-nnda-nnrt-noticia/)
+
+
+### pumas vs (N/A, 28/02/2026 03:36 Lima)
+
+- **Pumas vs Toluca: Hora y canal para ver el partido de la Jornada 9 de Liga MX**: [Link](https://www.sdpnoticias.com/deportes/pumas-vs-toluca-hora-y-canal-para-ver-el-partido-de-la-jornada-9-de-liga-mx/)
+- **Boletos para Pumas vs. Toluca por el Clausura 2026: Cómo comprar y precios**: [Link](https://www.sportingnews.com/mx/tickets/news/boletos-pumas-toluca-clausura-2026-precios-como-comprar/2a61833bea14e351d29eedc2)
+- **Nathan Silva jugó ante Tijuana con fractura en la mano: Efraín Juárez**: [Link](https://www.tudn.com/futbol/liga-mx/nathan-silva-jugo-ante-tijuana-con-fractura-en-la-mano-efrain-juarez-video)
+
+
 ### deportivo garcilaso - cienciano (N/A, 27/02/2026 23:57 Lima)
 
 - **Resultado Deportivo Garcilaso vs Cienciano EN VIVO por la Liga 1**: [Link](https://www.365scores.com/es/news/deportivo-garcilaso-vs-cienciano-vivo/)
@@ -996,31 +1024,5 @@ Sin noticias relacionadas disponibles.
 - **Manchester United vs. Crystal Palace - Boxscore - Live Score - March 01, 2026**: [Link](https://www.foxsports.com/soccer/premier-league-manchester-utd-vs-crystal-palace-mar-01-2026-game-boxscore-626964?tab=boxscore)
 - **Manchester United vs Crystal Palace Prediction and Tips - 2 March 2026**: [Link](https://www.statsinsider.com.au/news/manchester-united-vs-crystal-palace-prediction-and-tips-2-march-2026)
 - **Crystal Palace 1-0 Wolves: Late Guessand strike gives Palace win over 10-man Wolves**: [Link](https://www.bbc.com/sport/football/live/cp81ldpd65xt)
-
-
-### gimnasia y esgrima - independiente (N/A, 24/02/2026 21:41 Lima)
-
-- **Gimnasia y Esgrima Mendoza vs Independiente Stats & Insights**: [Link](https://www.betshoot.com/football/19636434-Gimnasia-y-Esgrima-Mendoza-vs-Independiente-prediction/)
-
-
-### marisel linares periodista peruana (N/A, 24/02/2026 21:41 Lima)
-
-- **Si Lizeth, la deportista, se encontraba trotando en la calzada, ¿podría hablarse de autoexposición al peligro? Caro Coria analiza el caso**: [Link](https://lpderecho.pe/si-lizeth-la-deportista-se-encontraba-trotando-en-la-calzada-podria-hablarse-de-autoexposicion-al-peligro-caro-coria-analiza-el-caso/)
-- **¡Primicia! Imágenes EXCLUSIVAS revelan que Marisel Linares estuvo con Adrián Villar tras atropellar a Lizeth Marzano**: [Link](https://www.atv.pe/noticia/primicia-imagenes-exclusivas-revelan-que-marisel-linares-estuvo-con-adrian-villar-tras-atropellar-a-lizeth-marzano/)
-- **Adrián Villar busca evadir la cárcel por atropello mortal de deportista Lizeth Marzano (VIDEO)**: [Link](https://peru21.pe/lima/adrian-villar-intenta-evitar-carcel-por-muerte-de-lizeth-marzano/)
-
-
-### disney plus (N/A, 24/02/2026 21:41 Lima)
-
-- **ITV & Disney Expand Content Pact With Hulu Shows ‘The Stolen Girl’ & ‘The Twisted Tale Of Amanda Knox’**: [Link](https://deadline.com/2026/02/itv-disney-hulu-series-stolen-girl-twisted-tale-amanda-knox-1236734261/)
-- **Disney, ITV Extend U.K. Content Partnership With Exclusive Primetime TV Premieres for Hulu Series**: [Link](https://www.hollywoodreporter.com/tv/tv-news/disney-itv-uk-content-partnership-primetime-hulu-series-1236513433/)
-- **Disney+, ITV Extend U.K. Content-Sharing Partnership With Hulu’s Amanda Knox Drama and ‘The Stolen Girl’**: [Link](https://variety.com/2026/tv/global/disney-itv-partnership-amanda-knox-stolen-girl-1236671083/)
-
-
-### belgrano - atlético tucumán (N/A, 24/02/2026 21:41 Lima)
-
-- **Cuándo juegan Belgrano vs. Atlético Tucumán por el Torneo Apertura: equipo, fecha, hora y TV en vivo**: [Link](https://espndeportes.espn.com/futbol/argentina/nota/_/id/16350776/belgrano-vs-atletico-tucuman-por-el-torneo-apertura-equipo-fecha-hora-y-tv-en-vivo)
-- **El Decano visita al Pirata**: [Link](https://www.vavel.com/ar/futbol-argentino/2026/02/24/atletico-tucuman/1251909-el-decano-visita-al-pirata.html)
-- **El reencuentro de Atlético Tucumán con Ricardo Zielinski, el técnico que dejó su sello en el club**: [Link](https://www.tycsports.com/liga-profesional-de-futbol/el-reencuentro-de-atletico-tucuman-con-ricardo-zielinski-el-tecnico-que-dejo-su-sello-en-el-club-id714706.html)
 
 
