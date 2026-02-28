@@ -1,3 +1,59 @@
+### deportivo garcilaso - cienciano (N/A, 27/02/2026 23:57 Lima)
+
+- **Resultado Deportivo Garcilaso vs Cienciano EN VIVO por la Liga 1**: [Link](https://www.365scores.com/es/news/deportivo-garcilaso-vs-cienciano-vivo/)
+- **Cusco se detiene por el clásico**: [Link](https://caretas.pe/deportes/cusco-se-detiene-por-el-clasico/)
+- **Cienciano se quedó con el clásico cusqueño: derrotó 3-2 a Deportivo Garcilaso**: [Link](https://libero.pe/futbol-peruano/liga-1/2026/02/26/deportivo-garcilaso-vs-cienciano-en-vivo-partido-del-torneo-apertura-liga-1-peru-via-liga-1-max-internet-video-vilb-1566344)
+
+
+### nuggets - thunder (N/A, 27/02/2026 23:57 Lima)
+
+- **Nuggets vs Thunder Picks & Odds Today: Denver To Cover In SGA's Return**: [Link](https://www.oddsshark.com/nba/nuggets-thunder-picks-odds-february-27-2026)
+- **Shai Gilgeous-Alexander + Nikola Jokic Player Props: MVPs Battle on Friday Night**: [Link](https://news.bet365.com/en-us/article/shai-gilgeous-alexander-nikola-jokic-player-props-mvps-battle-on-friday-night/2026022720073148918)
+- **Fantasy Basketball Picks: Top DraftKings NBA DFS Targets, Values for Saturday 2/28/26**: [Link](https://dknetwork.draftkings.com/2026/02/27/fantasy-basketball-picks-top-draftkings-nba-dfs-targets-values-for-saturday-2-28-26/)
+
+
+### steven tyler (N/A, 27/02/2026 23:57 Lima)
+
+- **Remember When: Aerosmith Frontman Steven Tyler Learned His Musical Roots Stretched Back to the Civil War**: [Link](https://americansongwriter.com/remember-when-aerosmith-frontman-steven-tyler-learned-his-musical-roots-stretched-back-to-the-civil-war/)
+- **The surprising genre Steven Tyler said he sings "the best"**: [Link](https://faroutmagazine.co.uk/the-one-genre-steven-tyler-said-he-sings-the-best/)
+- **The time Joe Perry snapped the headstock of one of his favourite guitars: “Steven wanted to throw it into the audience – I had to wrestle him for it!”**: [Link](https://guitar.com/news/music-news/joe-perry-broken-guitar/)
+
+
+### juárez - atlas (N/A, 27/02/2026 23:57 Lima)
+
+- **Liga MX: FC Juárez y Atlas se encuentran en la fecha 8**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-fc-juarez-y-atlas-se-encuentran-en-la-fecha-8-noticia-1677676)
+- **⚽ ¡Imperdible! Esta es la HORA y CANALES para VER el Juárez vs Atlas de la Liga MX 🐴🆚🦊**: [Link](https://www.facebook.com/MilenioDiario/posts/-imperdibleesta-es-la-hora-y-canales-para-ver-el-ju%C3%A1rez-vs-atlas-de-la-liga-mx-/1400401522117315/)
+- **Bravos a salir del bache ante Zorros**: [Link](https://pulsoslp.com.mx/meta/bravos-a-salir-del-bache-ante-zorros-/2022130)
+
+
+### sydney sweeney (N/A, 27/02/2026 23:57 Lima)
+
+- **Sydney Sweeney's Underwear Campaign Goes Even More Viral With 'Do What Makes You Naked' Video**: [Link](https://www.cinemablend.com/movies/sydney-sweeney-underwear-campaign-goes-even-more-viral-do-what-makes-you-naked-video)
+- **Sydney Sweeney Sizzles in New 'Comfy' Panties, Bra Collection**: [Link](https://www.tmz.com/2026/02/26/sydney-sweeney-reveals-panties-bra-collection/)
+- **Sydney Sweeney’s Bold Pose in a Chair Steals the Show for Syrn Campaign**: [Link](https://www.mandatory.com/news/1737254-sydney-sweeney-chair-pose-crop-top-syrn-photos)
+
+
+### tijuana - pumas (N/A, 27/02/2026 23:57 Lima)
+
+- **Liga MX: Pumas UNAM quiere el liderato del torneo frente a Tijuana**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-pumas-unam-quiere-el-liderato-del-torneo-frente-a-tijuana-noticia-1677677)
+- **La pasión también se vive fuera de la cancha: fiesta y hermandad entre aficiones de Xolos y Pumas**: [Link](https://bajanews.mx/Deportes/53118/La-pasion-tambien-se-vive-fuera-de-la-cancha-fiesta-y-hermandad-entre-aficiones-de-Xolos-y-Pumas)
+- **Esto necesita Pumas para ser líder del Clausura 2026**: [Link](https://www.postadeportes.com/futbol/liga-mx/esto-necesita-pumas-para-ser-lider-del-clausura-2026/vl2039457)
+
+
+### miguel bose (N/A, 27/02/2026 23:57 Lima)
+
+- **Noche de baile y euforia: la renovación de votos con Miguel Bosé en Chile**: [Link](https://www.latercera.com/culto/noticia/noche-de-baile-y-euforia-la-renovacion-de-votos-con-miguel-bose-en-chile/)
+- **¿A qué hora comienza el show de Miguel Bosé en el Movistar Arena? Elementos prohibidos y permitidos en el concierto**: [Link](https://www.radioimagina.cl/2026/02/a-que-hora-comienza-el-show-de-miguel-bose-en-el-movistar-arena-elementos-prohibidos-y-permitidos-en-el-concierto/)
+- **Miguel Bosé llega a Gran Arena Monticello con “Importante Tour”**: [Link](https://vi.cl/2026/02/miguel-bose-llega-a-gran-arena-monticello-con-importante-tour-2/)
+
+
+### willax en vivo (N/A, 27/02/2026 23:57 Lima)
+
+- **«No obra en nuestro Archivo Notarial escritura pública»: Notaría descarta transferencia del auto que atropelló a Lizeth Marzano**: [Link](https://lpderecho.pe/no-obra-en-nuestro-archivo-notarial-escritura-publica-notaria-descarta-transferencia-del-auto-que-atropello-a-lizeth-marzano/)
+- **Notaría niega haber tramitado contrato de donación de vehículo entre Marisel Linares y Adrián Villar**: [Link](https://www.infobae.com/peru/2026/02/27/notaria-niega-haber-tramitado-contrato-de-donacion-de-vehiculo-entre-marisel-linares-y-adrian-villar/)
+- **Notaría Carpio Vélez niega haber tramitado donación del vehículo de Marisel Linares a Adrián Villar**: [Link](https://elcomercio.pe/lima/sucesos/lizeth-marzano-notaria-carpio-velez-niega-haber-tramitado-donacion-del-vehiculo-de-marisel-linares-a-adrian-villar-ultimas-noticia/)
+
+
 ### pachuca vs (N/A, 27/02/2026 21:24 Lima)
 
 - **Cambia horario del Querétaro vs América, y Pachuca vs Puebla, informa Liga MX**: [Link](https://www.marca.com/mx/futbol/liga-mx/2026/02/27/69a1f597268e3eda3e8b45a4.html)
@@ -966,61 +1022,5 @@ Sin noticias relacionadas disponibles.
 - **Cuándo juegan Belgrano vs. Atlético Tucumán por el Torneo Apertura: equipo, fecha, hora y TV en vivo**: [Link](https://espndeportes.espn.com/futbol/argentina/nota/_/id/16350776/belgrano-vs-atletico-tucuman-por-el-torneo-apertura-equipo-fecha-hora-y-tv-en-vivo)
 - **El Decano visita al Pirata**: [Link](https://www.vavel.com/ar/futbol-argentino/2026/02/24/atletico-tucuman/1251909-el-decano-visita-al-pirata.html)
 - **El reencuentro de Atlético Tucumán con Ricardo Zielinski, el técnico que dejó su sello en el club**: [Link](https://www.tycsports.com/liga-profesional-de-futbol/el-reencuentro-de-atletico-tucuman-con-ricardo-zielinski-el-tecnico-que-dejo-su-sello-en-el-club-id714706.html)
-
-
-### hull city - derby county (N/A, 24/02/2026 15:42 Lima)
-
-- **Hull City's predicted XI to face Derby County as Tigers hit by latest injury blow**: [Link](https://www.hulldailymail.co.uk/sport/football/football-news/hull-citys-predicted-xi-face-10830473)
-- **Hull City vs Derby County LIVE Score Updates in EFL Championship Match**: [Link](https://www.vavel.com/en-us/soccer/2026/02/24/1251915-hull-city-vs-derby-county-live-scoreefl-championship.html)
-- **Derby County: John Eustace says players know they need to improve**: [Link](https://www.bbc.co.uk/sport/football/articles/c15xl0v8jzgo)
-
-
-### wrexham - portsmouth (N/A, 24/02/2026 15:42 Lima)
-
-- **Mousinho: Recovery And Preparation**: [Link](https://www.portsmouthfc.co.uk/news/2026/february/23/mousinho--recovery-and-preparation/)
-- **Football Bet Of The Day: Jamie Griffith has an 11-10 selection from the Championship**: [Link](https://www.racingpost.com/sport/football-tips/football-bet-of-the-day-jamie-griffith-has-an-11-10-selection-from-the-championship-aDRAg3J9rghU/)
-- **Time never stands still in Wrexham AFC's quest for Championship play-offs**: [Link](https://www.leaderlive.co.uk/sport/25882861.another-big-week-wrexham-afcs-quest-play-offs/)
-
-
-### leverkusen vs. olympiacos (N/A, 24/02/2026 15:42 Lima)
-
-- **Bayer Leverkusen vs Olympiakos: UEFA Champions League stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c626v40vl3dt)
-- **Hjulmand and Leverkusen taking Olympiacos clash 'very seriously'**: [Link](https://www.fotmob.com/news/1c0foas1syson1lkee7xp0tlwf-hjulmand-leverkusen-taking-olympiacos-clash-very-seriously)
-- **Olympiakos and Bayer Leverkusen: A Football Rivalry Reignited**: [Link](https://news.ssbcrack.com/olympiakos-and-bayer-leverkusen-a-football-rivalry-reignited/)
-
-
-### real madrid vs. benfica (N/A, 24/02/2026 15:42 Lima)
-
-- **Mbappé Eyeing Historic Feat For Real Madrid**: [Link](https://www.managingmadrid.com/managing-madrid-editorials/104379/mbappe-eyeing-historic-feat-for-real-madrid)
-- **Why Kylian Mbappe is suddenly out of Real Madrid's do-or-die Champions League tie with Benfica**: [Link](https://www.foxsports.com/articles/soccer/why-kylian-mbappe-is-suddenly-out-of-real-madrids-do-or-die-champions-league-tie-with-benfica)
-- **Real Madrid: Mbappé's fitness, Álvaro Arbeloa reassures ahead of Benfica clash**: [Link](https://foot-africa.com/en/news/real-madrid-mbappes-fitness-lvaro-arbeloa-reassures-ahead-of-benfica-clash-1099973/)
-
-
-### champion (N/A, 24/02/2026 15:42 Lima)
-
-- **Lewis Hamilton: Ferrari driver has 'perfect opportunity' in 2026 F1 season, says former team-mate Jenson Button**: [Link](https://www.skysports.com/f1/news/12040/13508302/lewis-hamilton-ferrari-driver-has-perfect-opportunity-in-2026-f1-season-says-former-team-mate-jenson-button)
-- **Lando Norris says Lewis Hamilton 'should have been' eight-time champion**: [Link](https://www.gpblog.com/en/news/lando-norris-says-lewis-hamilton-should-have-been-eight-time-champion)
-- **Alex Albon makes bold Lewis Hamilton prediction for F1 2026 era**: [Link](https://www.planetf1.com/news/lewis-hamilton-f1-2026-title-boost-alex-albon-ferrari)
-
-
-### salford - shrewsbury town (N/A, 24/02/2026 15:42 Lima)
-
-- **Zach Awe Targets Positive Response Against Shrewsbury**: [Link](https://www.salfordcityfc.co.uk/news/2026/february/23/Zach-Awe-Targets-Positive-Response-Against-Shrewsbury/)
-- **Shrewsbury Town squad news: Gavin Cowan names unchanged side as Salop chase fifth straight win**: [Link](https://www.shropshirestar.com/sport/football/shrewsbury-town-fc/2026/02/24/shrewsbury-town-squad-news-gavin-cowan-names-unchanged-side-as-salop-chase-fifth-straight-win/)
-- **Salford v Shrewsbury Match Stats**: [Link](https://andysbetclub.co.uk/football-fixtures/salford-v-shrewsbury/24022026/019c7859-ad2a-7281-8bc6-792bd8c1a3f8/stats/team/)
-
-
-### mirtha legrand (N/A, 24/02/2026 15:42 Lima)
-
-- **Mirtha Legrand festejó a puro lujo su cumpleaños 99**: [Link](https://www.clarin.com/espectaculos/listo-gran-festejo-mirtha-legrand_0_pHVk3O8rqP.html)
-- **Cuáles son los tres hábitos clave que impactan en forma directa en la longevidad, según un gerontólogo**: [Link](https://es-us.noticias.yahoo.com/cu%C3%A1les-h%C3%A1bitos-clave-impactan-forma-153942836.html)
-- **A qué ídolo popular argentino invitó Mirtha a su fiesta de cumpleaños, qué temas le pidió que cante y por qué el artista debió repasar uno: "No me lo acordaba de memoria”**: [Link](https://www.revistagente.com/entretenimiento/celebrities/a-que-idolo-popular-argentino-invito-mirtha-a-su-fiesta-de-cumpleanos-que-temas-le-pidio-que-cante-y-por-que-el-artista-debio-repasar-uno-no-me-lo-acordaba-de-memoria/)
-
-
-### al khaleej - al-kholood club (N/A, 24/02/2026 15:42 Lima)
-
-- **Al Khaleej - Al Kholood prediction & tips 24.02.2026**: [Link](https://www.transfermarkt.com/betting/tips/al-khaleej-vs-al-kholood-prediction-24-02-2026/)
-- **Al Khaleej vs Al Kholood Preview & Prediction**: [Link](https://www.thestatszone.com/al-khaleej-vs-al-kholood-preview-prediction-172271)
-- **Al Kholood vs Al Riyadh Preview & Prediction**: [Link](https://www.thestatszone.com/al-kholood-vs-al-riyadh-preview-prediction-171313)
 
 
