@@ -1,3 +1,57 @@
+### leicester city - norwich (N/A, 28/02/2026 07:57 Lima)
+
+- **Leicester vs Norwich City Confirmed Lineups for February 28**: [Link](https://lastwordonsports.com/football/2026/02/28/leicester-vs-norwich-city-confirmed-lineups-february/)
+- **Rowett’s Fitness Update: Lascelles, James & Fatawu**: [Link](https://www.lcfc.com/pages/en/media-article/leicester-city-lcfc-norwich-city-ncfc-sky-bet-championship-garry-rowett-fitness-injury)
+- **Boost for Wales as star set to make return from injury**: [Link](https://clwbpeldroed.org/2026/02/26/wales-leicester-city-jordan-james/)
+
+
+### rayo vallecano - athletic (N/A, 28/02/2026 07:57 Lima)
+
+- **Alineación posible del Athletic ante el Rayo en LaLiga EA Sports**: [Link](https://as.com/futbol/primera/alineacion-posible-del-athletic-ante-el-rayo-en-la-liga-ea-sports-f202602-n/)
+- **Apuestas y Pronóstico del Rayo Vallecano vs Athletic Club 28/02/26**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2026/febrero/pronostico-rayo-vallecano-vs-athletic-club-28-02-26)
+- **Rayo Vallecano - Athletic | Todos los focos apuntan al césped: previa, análisis, pronóstico y predicción**: [Link](https://www.marca.com/futbol/primera-division/2026/02/28/rayo-vallecano-athletic-todos-focos-apuntan-cesped-previa-analisis-pronostico-prediccion.html)
+
+
+### bournemouth - sunderland afc (N/A, 28/02/2026 07:57 Lima)
+
+- **Preview: Bournemouth vs. Sunderland - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/bournemouth/preview/bournemouth-vs-sunderland-prediction-team-news-lineups_592726.html)
+- **Premier League LIVE: Latest news, scores & updates**: [Link](https://www.flashscore.co.uk/news/premier-league-live-latest-news-scores-updates/MX1tdMZH/)
+- **Injury news: Cook ruled out of Sunderland clash**: [Link](https://www.afcb.co.uk/news/2026/february/27/injury-news--cook-ruled-out-of-sunderland-clash/)
+
+
+### kasımpaşa - rizespor (N/A, 28/02/2026 07:57 Lima)
+
+Sin noticias relacionadas disponibles.
+
+
+### thunder - nuggets (N/A, 28/02/2026 07:57 Lima)
+
+- **NBA: Shai Gilgeous-Alexander guides Oklahoma City Thunder to victory after injury**: [Link](https://www.bbc.com/sport/basketball/articles/czr01zpp42vo)
+- **Jared McCain on how defense translates to the offensive side | Postgame Media | February 27, 2026**: [Link](https://bvmsports.com/2026/02/28/jared-mccain-on-how-defense-translates-to-the-offensive-side-postgame-media-february-27-2026/)
+- **Celtics Set Historic Shooting Records As Thunder Win In OT On SGA Return**: [Link](https://www.mykhel.com/more-sports/celtics-record-shooting-night-and-thunder-ot-win-sga-return-011-416469.html)
+
+
+### rt (N/A, 28/02/2026 07:57 Lima)
+
+- **TheWealthNet - PIMFA chairman to step down**: [Link](https://www.paminsight.com/twn/article/pimfa-chairman-to-step-down)
+- **The Rt Hon. the Lord Deben Stepping Down as PIMFA Chairman After Nine Years**: [Link](https://www.disruptionbanking.com/2026/02/28/the-rt-hon-the-lord-deben-stepping-down-as-pimfa-chairman-after-nine-years/)
+- **Pimfa president Lord Deben steps down**: [Link](https://citywire.com/new-model-adviser/news/pimfa-president-lord-deben-steps-down/a2484776)
+
+
+### cnn (N/A, 28/02/2026 07:57 Lima)
+
+- **CNN Braces for Ellison's Control**: [Link](https://www.status.news/p/cnn-david-ellison-trump-paramount-wbd-netflix-deal)
+- **Opinion | Hollywood Isn’t Celebrating Ellison’s Win**: [Link](https://www.nytimes.com/2026/02/28/opinion/warner-bros-discovery-paramount-ellison-netflix.html)
+- **With Trump’s apparent blessing, the Ellisons are amassing a media empire**: [Link](https://www.cnn.com/2026/02/26/business/paramount-wbd-merger-david-ellison)
+
+
+### israel (N/A, 28/02/2026 07:57 Lima)
+
+- **U.S., Israel Strike Iran: Live Updates**: [Link](https://www.wsj.com/livecoverage/iran-strikes-2026?gaa_at=eafs&gaa_n=AWEtsqfdUMGrDkBGbHhVWzeF1wS40F5r2Pubnm3i8GNYsOzIkrXd2HawoBP9&gaa_ts=69a2e8e6&gaa_sig=VJBqfO8Z8WyCyImwsi3Hx6HNI8I-BfNRs3sy-MT1H_WfsLcD8sJJIjN6Bh8e1KK-Je2wuzjcBiZsxqc8gLXeLA%3D%3D)
+- **As U.S. Bombs Tehran, Some Iranians Feel Abandoned by Their Leaders**: [Link](https://www.nytimes.com/2026/02/28/world/middleeast/iran-war-mood.html)
+- **Live updates: U.S. and Israel launch attack on Iran as Trump calls for regime change**: [Link](https://www.washingtonpost.com/world/2026/02/28/israel-strikes-iran-live-updates/)
+
+
 ### iran (N/A, 28/02/2026 03:36 Lima)
 
 - **Israel says it has launched attack on Iran, as explosions reported in Tehran**: [Link](https://www.bbc.com/news/live/cn5ge95q6y7t)
@@ -968,61 +1022,5 @@ Sin noticias relacionadas disponibles.
 - **¡Todos atentos! Magaly Medina revela nuevo horario de su programa tras críticas por bajo rating**: [Link](https://elcomercio.pe/respuestas/farandula/todos-atentos-magaly-medina-revela-nuevo-horario-de-su-programa-tras-criticas-por-bajo-rating-tdpe-noticia/)
 - **Andrea Llosa 'parchó' a Magaly Media tras críticas por bajo rating**: [Link](https://www.moda.com.pe/noticias/espectaculos/andrea-llosa-parcho-a-magaly-media-tras-criticas-por-bajo-rating/)
 - **Andrea Llosa expone a Magaly Medina tras afirmar que le dejaba bajo colchón de rating: "No es ambiciosa, es una suerte de Gollum"**: [Link](https://larepublica.pe/espectaculos/2026/02/17/andrea-llosa-expone-a-magaly-medina-tras-afirmar-que-le-dejaba-bajo-colchon-de-rating-no-es-ambiciosa-es-una-suerte-de-gollum-1614133)
-
-
-### sudamericana (N/A, 25/02/2026 00:24 Lima)
-
-- **Flamengo vs Lanus: ¡Juega en la Recopa Sudamericana y gana hasta S/. 600,000 con Meridianbet!**: [Link](https://ovacion.pe/noticias/nota-promocional/flamengo-vs-lanus-juega-recopa-sudamericana-gana-hasta-s-600000)
-- **Clube de Regatas do Flamengo vs Lanús | Pronóstico y cuotas 27.02.2026**: [Link](https://www.transfermarkt.es/apuestas/pronosticos-deportivos/cr-flamengo-vs-lanus-pronostico-apuestas-27-02-2026/)
-- **Pellegrino, cauto tras el triunfo de Lanús: "Una semana sos príncipe y otra, sapo"**: [Link](https://espndeportes.espn.com/futbol/nota/_/id/16335145/mauricio-pellegrino-triunfo-lanus-vs-flamengo-principe-sapo)
-
-
-### alexander zverev (N/A, 25/02/2026 00:24 Lima)
-
-- **Alexander Zverev looks to continue 2026 "game plan", as daughter Mayla joins him in Acapulco**: [Link](https://www.tennis.com/news/articles/alexander-zverev-2026-game-plan-win-hitting-harder-not-physically-fitter-acapulco)
-- **Alexander Zverev on why he chose to reveal his diabetes to the world**: [Link](https://www.tennisworldusa.org/tennis/news/Tennis_Stories/164522/alexander-zverev-on-why-he-chose-to-reveal-his-diabetes-to-the-world/)
-- **Zverev: "I lost the match against Alcaraz in Australia because I got tired"**: [Link](https://www.puntodebreak.com/en/2026/02/24/zverev-i-lost-the-match-against-alcaraz-in-australia-because-i-got-tired)
-
-
-### warriors - pelicans (N/A, 24/02/2026 21:41 Lima)
-
-- **Warriors vs Pelicans injury report: Steph Curry, Kristaps Porziņģis out**: [Link](https://www.goldenstateofmind.com/warriors-injury-report/108697/warriors-pelicans-injury-report-steph-curry-kristaps-porzingis-draymond-green)
-- **Al Horford (toe) ruled out Tuesday**: [Link](https://www.fantasypros.com/nba/news/570919/al-horford-toe-ruled-out-tuesday.php)
-- **Photos: Pelicans vs. Warriors | Game Action 2/24/26**: [Link](https://www.nba.com/pelicans/photos/new-orleans-pelicans-vs-golden-state-warriors-photos-game-action-2-24-2026)
-
-
-### magaly tv (N/A, 24/02/2026 21:41 Lima)
-
-- **¿Dónde ver Magaly TV La Firme EN VIVO? hora y en qué canal seguir el programa de Magaly Medina**: [Link](https://elcomercio.pe/respuestas/farandula/donde-ver-magaly-tv-la-firme-en-vivo-hora-y-en-que-canal-seguir-el-programa-de-magaly-medina-youtube-transmision-fb-atv-tdpe-noticia/)
-- **Si Lizeth, la deportista, se encontraba trotando en la calzada, ¿podría hablarse de autoexposición al peligro? Caro Coria analiza el caso**: [Link](https://lpderecho.pe/si-lizeth-la-deportista-se-encontraba-trotando-en-la-calzada-podria-hablarse-de-autoexposicion-al-peligro-caro-coria-analiza-el-caso/)
-- **¡Primicia! Imágenes EXCLUSIVAS revelan que Marisel Linares estuvo con Adrián Villar tras atropellar a Lizeth Marzano**: [Link](https://www.atv.pe/noticia/primicia-imagenes-exclusivas-revelan-que-marisel-linares-estuvo-con-adrian-villar-tras-atropellar-a-lizeth-marzano/)
-
-
-### independiente (N/A, 24/02/2026 21:41 Lima)
-
-- **Cuándo juegan Gimnasia de Mendoza vs. Independiente por el Torneo Apertura: equipo, fecha, hora y TV en vivo**: [Link](https://www.espn.com.ar/futbol/argentina/nota/_/id/16348733/gimnasia-de-mendoza-vs-independiente-torneo-apertura-equipo-fecha-hora-tv-en-vivo)
-- **Dos sorpresas en el fondo**: [Link](https://onefootball.com/en/news/dos-sorpresas-en-el-fondo-42463191)
-- **Video: el golazo de Santiago Rodríguez con el que el Lobo vence al Rojo**: [Link](https://www.mendozapost.com/deportes/video-golazo-santiago-rodriguez-gimnasia-mendoza-independiente/)
-
-
-### alineaciones de sporting cristal contra club sportivo 2 de mayo (N/A, 24/02/2026 21:41 Lima)
-
-- **Inter vs. Bodo/Glimt (24 de Feb., 2026) Resultados en Vivo**: [Link](https://www.espn.com.pe/futbol/partido/_/juegoId/401858766)
-- **Newcastle vs. FK Qarabag (24 de Feb., 2026) Resultados en Vivo**: [Link](https://www.espn.com.pe/futbol/partido/_/juegoId/401858764)
-- **San Lorenzo vs. Instituto (24 de Feb., 2026) Resultados en Vivo**: [Link](https://www.espn.com.ar/futbol/partido/_/juegoId/762868)
-
-
-### santiago gonzález (N/A, 24/02/2026 21:41 Lima)
-
-- **“Novak Djokovic es una inspiración”: Santiago González asegura que el serbio es un ejemplo para seguir activo**: [Link](https://oem.com.mx/esto/tenis/santiago-gonzalez-asegura-se-inspira-en-novak-djokovic-para-seguir-activo-28641001)
-- **Rodrigo Pacheco Méndez vs. Flavio Cobolli HOY: hora y cómo ver EN VIVO el partido del Abierto Mexicano de T...**: [Link](https://bolavip.com/mx/tenis/rodrigo-pacheco-mendez-vs-flavio-cobolli-hoy-hora-y-como-ver-en-vivo-el-partido-del-abierto-mexicano-de-tenis)
-- **Resumen del James Duckworth - Dalibor Svrcina**: [Link](https://www.eurosport.es/tenis/atp-acapulco/2026/live-james-duckworth-dalibor-svrcina_mtc20005604/live.shtml)
-
-
-### cristal fc (N/A, 24/02/2026 21:41 Lima)
-
-- **Manchester United vs. Crystal Palace - Boxscore - Live Score - March 01, 2026**: [Link](https://www.foxsports.com/soccer/premier-league-manchester-utd-vs-crystal-palace-mar-01-2026-game-boxscore-626964?tab=boxscore)
-- **Manchester United vs Crystal Palace Prediction and Tips - 2 March 2026**: [Link](https://www.statsinsider.com.au/news/manchester-united-vs-crystal-palace-prediction-and-tips-2-march-2026)
-- **Crystal Palace 1-0 Wolves: Late Guessand strike gives Palace win over 10-man Wolves**: [Link](https://www.bbc.com/sport/football/live/cp81ldpd65xt)
 
 
