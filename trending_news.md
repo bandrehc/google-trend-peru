@@ -1,3 +1,73 @@
+### pachuca vs (N/A, 27/02/2026 21:24 Lima)
+
+- **Cambia horario del Querétaro vs América, y Pachuca vs Puebla, informa Liga MX**: [Link](https://www.marca.com/mx/futbol/liga-mx/2026/02/27/69a1f597268e3eda3e8b45a4.html)
+- **Cambio de último minuto para el duelo entre Querétaro y Club América**: [Link](https://americamonumental.bolavip.com/ligamx/cambio-de-ultimo-minuto-para-el-duelo-entre-queretaro-y-club-america)
+- **¡El partido Querétaro ante América tiene cambio de horario!**: [Link](https://www.tudn.com/futbol/liga-mx/liga-mx-anuncia-cambios-de-horarios-para-la-jornada-10-video)
+
+
+### once caldas - boyacá chicó (N/A, 27/02/2026 21:24 Lima)
+
+- **Pronóstico Once Caldas Boyacá Chicó - Primera A Colombia 27/02/26**: [Link](https://www.sportytrader.com/es/pronosticos/once-caldas-boyaca-chico-330261/)
+- **Real Madrid y Manchester City repetirán lo que ya es otro clásico en la Liga de Campeones, con un nuevo enfrentamiento en los octavos de final.**: [Link](https://www.facebook.com/lapatria.manizales/posts/real-madrid-y-manchester-city-repetir%C3%A1n-lo-que-ya-es-otro-cl%C3%A1sico-en-la-liga-de-/1379384747549041/)
+- **Once Caldas vs Boyacá Chicó hoy: Resultado EN VIVO, minuto a minuto y goles del partido**: [Link](https://www.365scores.com/es/news/once-caldas-vs-chico-resultado-vivo/)
+
+
+### querétaro - santos (N/A, 27/02/2026 21:24 Lima)
+
+- **Liga MX: Santos Laguna quiere volver a ganar ante Querétaro**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-santos-laguna-quiere-volver-a-ganar-ante-queretaro-noticia-1677658)
+- **Pronóstico Queretaro Club Santos Laguna - Liga MX 27/02/26**: [Link](https://www.sportytrader.com/es/pronosticos/queretaro-santos-laguna-330353/)
+- **¡Golazo de los Gallos! Autopase de Mateo Coronel para el 1-0**: [Link](https://www.tudn.com/futbol/liga-mx/golazo-de-los-gallos-autopase-de-mateo-coronel-para-el-1-0-video)
+
+
+### mazatlán - pachuca (N/A, 27/02/2026 21:24 Lima)
+
+- **Pronóstico Mazatlan FC CF Pachuca - Liga MX 27/02/26**: [Link](https://www.sportytrader.com/es/pronosticos/monarcas-morelia-cf-pachuca-330384/)
+- **Liga MX: Pachuca quiere mantener su racha frente Mazatlán**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-pachuca-quiere-mantener-su-racha-frente-mazatlan-noticia-1677657)
+- **Levante vs. Alavés (27 de Feb., 2026) Resultados en Vivo**: [Link](https://www.espn.com.co/futbol/partido/_/juegoId/748399)
+
+
+### posiciones de liga 1 (N/A, 27/02/2026 21:24 Lima)
+
+- **Así se jugará la fecha 5 del Apertura de la Liga 1 2026**: [Link](https://www.espn.com.pe/futbol/peru/nota/_/id/16349532/programacion-de-la-fecha-5-del-apertura-liga-1-de-peru)
+- **Tabla de posiciones de la Liga 1 EN VIVO: resultados de la fecha 5 del Torneo Apertura 2026**: [Link](https://depor.com/futbol-peruano/descentralizado/tabla-de-posiciones-de-liga-1-peru-2026-en-vivo-resultados-y-partidos-fecha-5-torneo-apertura-con-alianza-lima-universitario-y-sporting-cristal-noticia/)
+- **Programación fecha 05 del Torneo Apertura Liga1 Te Apuesto**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/programacion-fecha-05-torneo-apertura-liga1-te-apuesto-n452819)
+
+
+### neil sedaka (N/A, 27/02/2026 21:24 Lima)
+
+- **Neil Sedaka, Singing Craftsman of Memorable Pop Songs, Dies at 86**: [Link](https://www.nytimes.com/2026/02/27/arts/music/neil-sedaka-dead.html)
+- **Neil Sedaka, the singer-songwriter behind dozens of hits of the 1960s and ‘70s, dies at age 86**: [Link](https://www.cnn.com/2026/02/27/entertainment/neil-sedaka-death)
+- **Neil Sedaka’s Biggest Billboard Hot 100 Hits: ‘Breaking Up Is Hard to Do’ & Beyond**: [Link](https://www.yahoo.com/entertainment/music/articles/neil-sedaka-biggest-billboard-hot-004316757.html)
+
+
+### jim carrey (N/A, 27/02/2026 21:24 Lima)
+
+- **Jim Carrey Thanks His 'Sublime Companion' Min Ah as He Accepts Lifetime Honor at France's César Awards**: [Link](https://people.com/jim-carrey-thanks-sublime-companion-cesar-awards-honor-speech-11915866)
+- **Jim Carrey Delivers Emotional Speech in French While Receiving Cesar Awards Honor: ‘My Tongue Is Tired’**: [Link](https://variety.com/2026/film/global/jim-carrey-speech-french-cesar-awards-honor-1236674119/)
+- **Jim Carrey's unrecognizable puffy new look sparks fan meltdown: 'Is he wearing a mask?'**: [Link](https://www.dailymail.co.uk/tvshowbiz/article-15599853/Jim-Carrey-appearance-puffy-surgery.html)
+
+
+### melgar - chankas cyc (N/A, 27/02/2026 21:24 Lima)
+
+- **(VIDEO) Los Chankas remontaron y vencieron 2-1 a FBC Melgar para dormir en la punta del Apertura**: [Link](https://ovacion.pe/noticias/liga1-2026/video-chankas-remontaron-vencieron-2-1-fbc-melgar-dormir-punta-del-apertura)
+- **¡Su primera vez! Gol de Matías Zegarra para el 1-0 de Melgar vs. Los Chankas por la Liga 1**: [Link](https://depor.com/futbol-peruano/descentralizado/gol-matias-zegarra-melgar-vs-los-chankas-anotacion-para-el-1-0-tras-pase-de-zanelatto-liga-1-video-noticia/)
+- **Liga 1: FBC Melgar busca reaccionar en casa ante Los Chankas**: [Link](https://diariocorreo.pe/deportes/liga-1-fbc-melgar-busca-reaccionar-en-casa-ante-los-chankas-noticia/)
+
+
+### garcilaso vs cienciano (N/A, 27/02/2026 21:24 Lima)
+
+- **Cusco se detiene por el clásico**: [Link](https://caretas.pe/deportes/cusco-se-detiene-por-el-clasico/)
+- **Pronóstico Deportivo Garcilaso Cienciano - Liga 1 Perú 27/02/26**: [Link](https://www.sportytrader.com/es/pronosticos/deportivo-garcilaso-cienciano-330331/)
+- **🔴#ENVIVO | Cienciano vence 1-0 a Garcilaso en el clásico cusqueño | VIDEO**: [Link](https://ovacion.pe/noticias/liga1-2026/envivo-cienciano-vence-1-0-garcilaso-clasico-cusqueno-video)
+
+
+### segunda división (N/A, 27/02/2026 21:24 Lima)
+
+- **Cristiano Ronaldo cumple con su promesa de ser dueño de un club de fútbol y se une a un selecto grupo**: [Link](https://cnnespanol.cnn.com/2026/02/26/deportes/cristiano-ronaldo-propietario-dueno-equipo-de-futbol-orix)
+- **Cristiano Ronaldo, un reclamo internacional para la Unión Deportiva Almería**: [Link](https://as.com/futbol/segunda/cristiano-ronaldo-un-reclamo-internacional-para-la-union-deportiva-almeria-f202602-n/)
+- **¿Lo llamará? Cristiano Ronaldo compra club donde un peruano es leyenda**: [Link](https://bolavip.com/pe/futbol-internacional/lo-llamara-cristiano-ronaldo-compra-club-donde-un-peruano-es-leyenda)
+
+
 ### alianza atlético - adt (N/A, 27/02/2026 15:34 Lima)
 
 - **Liga 1: Por la fecha 5, Alianza Atlético recibirá a ADT de Tarma**: [Link](https://rpp.pe/futbol/descentralizado/liga-1-por-la-fecha-5-alianza-atletico-recibira-a-adt-de-tarma-noticia-1677588)
@@ -952,75 +1022,5 @@ Sin noticias relacionadas disponibles.
 - **Al Khaleej - Al Kholood prediction & tips 24.02.2026**: [Link](https://www.transfermarkt.com/betting/tips/al-khaleej-vs-al-kholood-prediction-24-02-2026/)
 - **Al Khaleej vs Al Kholood Preview & Prediction**: [Link](https://www.thestatszone.com/al-khaleej-vs-al-kholood-preview-prediction-172271)
 - **Al Kholood vs Al Riyadh Preview & Prediction**: [Link](https://www.thestatszone.com/al-kholood-vs-al-riyadh-preview-prediction-171313)
-
-
-### bayer leverkusen (N/A, 24/02/2026 15:42 Lima)
-
-- **Liveticker | Inter Mailand - FK Bodö/Glimt : | Play-offs | Champions League 2025/26**: [Link](https://www.kicker.at/inter-gegen-bodoeglimt-2026-champions-league-5191290/ticker)
-- **Sky-Kommentator Andreas Brandt mit den Aufstellungen zu Leverkusen-Olympiakos**: [Link](https://www.skysportaustria.at/mediathek/sky-kommentator-andreas-brandt-mit-den-aufstellungen-zu-leverkusen-olympiakos/)
-- **Kurzpässe vor #B04OLY: Fokussiert ins Rückspiel – Kießling und Flekken im Werkself-Radio**: [Link](https://www.bayer04.de/de-de/news/champions-league/kurzpaesse-vor-b04oly-fokussiert-ins-rueckspiel-kiessling-und-flekken-im-werkself-radio)
-
-
-### inter de milán (N/A, 24/02/2026 15:42 Lima)
-
-- **¡EN VIVO! Inter vs. Bodo/Glimt por Champions**: [Link](https://www.espn.com.ar/futbol/champions-league/nota/_/id/16350060/inter-vs-bodo-glimt-por-vuelta-playoffs-champions-equipo-fecha-hora-y-tv-en-vivo)
-- **El profe noruego que vence a Guardiola, Mourinho o Simeone**: [Link](https://as.com/futbol/champions/el-profe-noruego-que-vence-a-guardiola-mourinho-o-simeone-f202602-n/)
-- **Hauge, el 'yeti' de la Champions ultima su 'vendetta' contra el Inter: "El Milan me hizo el hombre que soy hoy"**: [Link](https://www.marca.com/futbol/champions-league/2026/02/24/hauge-yeti-champions-ultima-vendetta-inter-milan-me-hizo-hombre-hoy.html)
-
-
-### atlético madrid - club brujas (N/A, 24/02/2026 12:10 Lima)
-
-- **Atlético de Madrid - Brujas hoy, en directo: última hora del playoff de la Champions League, en vivo**: [Link](https://as.com/futbol/champions/atletico-brujas-en-directo-ultima-hora-del-playoff-de-la-champions-league-hoy-en-vivo-f202602-d/)
-- **Joel Ordóñez y el interés de grandes europeos: "Todo se dará con el tiempo"**: [Link](https://www.espn.com.ar/futbol/champions-league/nota/_/id/16349981/que-dijo-joel-ordonez-sobre-el-interes-de-grandes-europeos)
-- **Diego Simeone: Necesitamos a nuestra gente, que estén cerca del equipo**: [Link](https://cnnespanol.cnn.com/2026/02/23/deportes/video/diego-pablo-simeone-atletico-de-madrid-champions-league-futbol-deportes-tv)
-
-
-### duplicado de dni azul (N/A, 24/02/2026 12:10 Lima)
-
-- **Reniec habilita duplicado de DNI azul a electrónico vía web: tramítalo en 4 pasos**: [Link](https://www.gob.pe/institucion/reniec/noticias/1357302-reniec-habilita-duplicado-de-dni-azul-a-electronico-via-web-tramitalo-en-4-pasos)
-- **DNI electrónico gratis para este grupo de peruanos: descubre si eres uno de los beneficiados**: [Link](https://elcomercio.pe/respuestas/tramites/dni-electronico-gratis-para-este-grupo-de-peruanos-descubre-aqui-si-eres-uno-de-los-beneficiados-tdpe-noticia/)
-- **Campaña de DNI electrónico gratuito en Carabayllo: fecha, lugar y beneficiarios**: [Link](https://caretas.pe/nacional/campana-de-dni-electronico-gratuito-en-carabayllo-fecha-lugar-y-beneficiarios/)
-
-
-### temperatura lima (N/A, 24/02/2026 12:10 Lima)
-
-- **Lima y gran parte de la costa en alerta por incremento de temperaturas “de moderada a extrema intensidad”**: [Link](https://rpp.pe/lima/actualidad/senamhi-lima-y-gran-parte-de-la-costa-en-alerta-por-incremento-de-temperaturas-de-moderada-a-extrema-intensidad-noticia-1677218)
-- **Temperatura en Tacna e Ilo supera los 30°**: [Link](https://radiouno.pe/noticias/266597/temperatura-en-tacna-e-ilo-supera-los-30/)
-- **¡Use sombrero de ala ancha! A 37°C llegará temperatura diurna en costa norte esta semana**: [Link](https://andina.pe/agencia/noticia-use-sombrero-ala-ancha-a-37%C2%B0c-llegara-temperatura-diurna-costa-norte-esta-semana-1064081.aspx)
-
-
-### bancolombia (N/A, 24/02/2026 12:10 Lima)
-
-- **Bancolombia restablece algunos servicios y habilita uso de tarjetas y cajeros tras más de 24 horas de fallas**: [Link](https://www.infobae.com/colombia/2026/02/24/bancolombia-restablece-algunos-servicios-y-habilita-uso-de-tarjetas-y-cajeros-tras-mas-de-24-horas-de-fallas/)
-- **¿Por qué no funciona la App Bancolombia hoy? Razones de la caída este 23 de febrero y qué dice el banco**: [Link](https://www.marca.com/co/2026/02/23/funciona-app-bancolombia-hoy-razones-caida-23-febrero-dice-banco.html)
-- **Marcela Torres Córdoba calificó como “inaceptable” que una entidad permanezca fuera de operación por días y advirtió que la falta de estándares comunes afecta la confianza de los usuarios en el ecosistema de pagos inmediatos**: [Link](https://www.facebook.com/infobaecolombia/posts/marcela-torres-c%C3%B3rdoba-calific%C3%B3-como-inaceptable-que-una-entidad-permanezca-fuer/1360737206069038/)
-
-
-### videos (N/A, 24/02/2026 12:10 Lima)
-
-- **Suspect in Nancy Guthrie case had been to the house before the night of her disappearance, source says**: [Link](https://www.cbsnews.com/news/nancy-guthrie-suspect-had-been-to-house-before/)
-- **Savannah Guthrie offers $1m reward for return of her mother: ‘We still believe in a miracle’**: [Link](https://www.theguardian.com/us-news/2026/feb/24/nancy-guthrie-savannah-reward-information)
-- **One photo of man on Nancy Guthrie's porch may be from an earlier date, before her disappearance**: [Link](https://www.nbcnews.com/news/us-news/nancy-guthrie-disappearance-photos-rcna260368)
-
-
-### maria julissa (N/A, 24/02/2026 12:10 Lima)
-
-- **ATERRADA: Modelo de Only Fans niega vínculos con ‘El Mencho’ y teme por su vida (VIDEO)**: [Link](https://peru21.pe/mundo/aterrada-modelo-de-only-fans-niega-vinculos-con-el-mencho/)
-- **🚨 "La desinformación puede causar mucho daño": Influencer María Julissa rompe el silencio tras ser relacionada con el abatimiento de 'El Mencho'**: [Link](https://www.facebook.com/MilenioDiario/photos/-la-desinformaci%C3%B3n-puede-causar-mucho-da%C3%B1o-influencer-mar%C3%ADa-julissa-rompe-el-sil/1397202839103850/)
-- **Intimidante amenaza a la presunta entregadora de "El Mencho" en México: "Mordiste la mano que te da de tragar"**: [Link](https://www.minutouno.com/mundo/intimidante-amenaza-la-presunta-entregadora-el-mencho-mexico-mordiste-la-mano-que-te-da-tragar-n6248700)
-
-
-### robert carradine (N/A, 24/02/2026 08:19 Lima)
-
-- **Actor Robert Carradine Dies At Age 71**: [Link](https://deadline.com/2026/02/robert-carradine-dead-age-71-1236734055/)
-- **‘Lizzie McGuire’ Star Robert Carradine Dies by Suicide – Hilary Duff & More Pay Tribute**: [Link](https://www.yahoo.com/entertainment/tv/articles/lizzie-mcguire-star-robert-carradine-124503855.html)
-- **Robert Carradine, Revenge of the Nerds and Lizzie McGuire actor, dies aged 71**: [Link](https://www.theguardian.com/film/2026/feb/24/robert-carradine-dies-aged-71-death-revenge-of-the-nerds-actor)
-
-
-### diana ospina desaparecida (N/A, 24/02/2026 08:19 Lima)
-
-- **En video: así fue el conmovedor reencuentro de Diana Ospina con su familia tras días de desaparición**: [Link](https://www.infobae.com/colombia/2026/02/24/en-video-asi-fue-el-conmovedor-reencuentro-de-diana-ospina-con-su-familia-tras-dias-de-desaparicion/)
-- **Martes 24 de febrero, las noticias más importantes de Armenia y Quindío**: [Link](https://caracol.com.co/2026/02/24/martes-24-de-febrero-las-noticias-mas-importantes-de-armenia-y-quindio/)
-- **La millonaria suma de dinero que robaron a Diana Ospina tras secuestro y paseo millonario en Bogotá**: [Link](https://www.noticiascaracol.com/colombia/bogota/la-millonaria-suma-de-dinero-que-robaron-a-diana-ospina-tras-secuestro-y-paseo-millonario-en-bogota-rg10)
 
 
