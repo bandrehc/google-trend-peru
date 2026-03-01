@@ -1,3 +1,73 @@
+### wellington phoenix - sydney (N/A, 28/02/2026 21:49 Lima)
+
+- **Live: Wellington Phoenix v Sydney FC at Sky Stadium - A League**: [Link](https://www.rnz.co.nz/news/sport/588309/live-wellington-phoenix-v-sydney-fc-at-sky-stadium-a-league)
+- **Squads named for Phoenix men’s A-League match against Sydney**: [Link](https://www.friendsoffootballnz.com/2026/02/28/squads-named-for-phoenix-mens-a-league-match-against-sydney/)
+- **Wellington Phoenix v Sydney FC: All you need to know about the round 19 A-League Men fixture**: [Link](https://www.stuff.co.nz/sport/360942081/wellington-phoenix-v-sydney-fc-all-you-need-know-about-round-19-league-men-fixture)
+
+
+### lakers - warriors (N/A, 28/02/2026 21:49 Lima)
+
+- **Live Updates: Saturday Updates and Highlights, Lakers vs. Warriors on ABC**: [Link](https://www.nba.com/news/live-updates-saturday-updates-and-highlights-lakers-vs-warriors-on-abc)
+- **Draymond Green News: Available to play Saturday**: [Link](https://www.rotowire.com/basketball/headlines/draymond-green-news-available-to-play-saturday-520991)
+- **Is Luka Doncic playing tonight vs the Golden State Warriors? Latest update on the Los Angeles Lakers star**: [Link](https://timesofindia.indiatimes.com/sports/nba/top-stories/is-luka-doncic-playing-tonight-vs-the-golden-state-warriors-latest-update-on-the-los-angeles-lakers-stars-injury-report-february-28-2026/articleshow/128898477.cms)
+
+
+### talleres - san lorenzo (N/A, 28/02/2026 21:49 Lima)
+
+- **San Lorenzo empata con el Talleres de Carlos Tevez en la continuidad de la octava fecha del Torneo Apertura**: [Link](https://www.infobae.com/deportes/2026/02/28/san-lorenzo-visitara-al-talleres-de-carlos-tevez-en-la-continuidad-de-la-octava-fecha-del-torneo-apertura-hora-tv-y-formaciones/)
+- **Talleres recibe a San Lorenzo en el Kempes: un duelo clave para entrar a las finales**: [Link](https://cordoba.mitelefe.com/deportes/talleres-recibe-a-san-lorenzo-en-el-kempes-un-duelo-clave-para-entrar-a-las-finales-pid2543747)
+- **Talleres vs San Lorenzo: las mejores fotos de los hinchas en el Kempes por el Apertura 2026**: [Link](https://www.lavoz.com.ar/deportes/talleres-vs-san-lorenzo-mejores-fotos-hinchas-kempes-apertura-2026_0_DezUJya12O.html)
+
+
+### medellín - bucaramanga (N/A, 28/02/2026 21:49 Lima)
+
+- **Cuándo juegan Medellín vs. Bucaramanga por Liga BetPlay: equipo, fecha, hora y TV en vivo**: [Link](https://www.espn.com.ar/futbol/colombia/nota/_/id/16368088/medellin-vs-bucaramanga-liga-betplay-equipo-fecha-hora-tv-en-vivo)
+- **¡Vamos pues, Rojo! Es hora de alcanzar la victoria y ganar en casa | Q´HUBO Medellín**: [Link](https://qhubomedellin.com/deportes/futbol/independiente-medellin/vamos-pues-rojo-es-hora-de-alcanzar-la-victoria-y-ganar-en-casa-LA33994780)
+- **Medellín protagonizó jugada de fantasía que por poco termina en penal**: [Link](https://www.winsports.co/futbol-colombiano/noticias/medellin-protagonizo-jugada-de-fantasia-que-por-poco-termina-en-penal-412138)
+
+
+### kick (N/A, 28/02/2026 21:49 Lima)
+
+- **What we know about Kick streamer Matthewdota, his net worth**: [Link](https://win.gg/matthewdota-net-worth/)
+- **Stake Pushes Back After Analysis Claims Statistical Miracles for Big Kick Streamers**: [Link](https://www.filmogaz.com/173267)
+- **Unlikely Wins and Comped Spins: Inside Stake’s Empire**: [Link](https://www.bloomberg.com/features/2026-stake-drake-crypto-casino-adin-ross-gambling/)
+
+
+### brandon moreno (N/A, 28/02/2026 21:49 Lima)
+
+- **Live Now! UFC Mexico ‘Moreno vs. Kavanagh’ Play-by-Play, Results & Round Scoring**: [Link](https://www.sherdog.com/news/news/UFC-Mexico-Moreno-vs-Kavanagh-PlaybyPlay-Results-Round-Scoring-200281)
+- **Brandon Moreno reacts to finding out his career aligned with Lone'er Kavanagh's years before UFC Mexico City**: [Link](https://bloodyelbow.com/2026/02/27/brandon-moreno-reacts-to-finding-out-his-career-aligned-with-loneer-kavanaghs-years-before-ufc-mexico-city/)
+- **MMA Top Plays: UFC Mexico City**: [Link](https://establishtherun.com/mma-top-plays-ufc-mexico-city-2/)
+
+
+### lafc - dynamo (N/A, 28/02/2026 21:49 Lima)
+
+- **Player Status Report | Houston Dynamo vs. LAFC - 2026 MLS Season**: [Link](https://www.lafc.com/news/player-status-report-houston-dynamo-vs-lafc-2026-mls-season-february-28)
+- **Son Heung-min is the scariest. "South Korean Captain SON is coming." Korea Superstar who also spotlighted his opponent**: [Link](https://www.starnewskorea.com/en/sports/2026/02/28/2026022813464325154)
+- **Houston Dynamo FC announce sellout for Saturday’s match vs LAFC**: [Link](https://www.houstondynamofc.com/news/houston-dynamo-fc-announce-sellout-for-saturday-s-match-vs-lafc)
+
+
+### monterrey - cruz azul (N/A, 28/02/2026 21:49 Lima)
+
+- **Monterrey vs Cruz Azul: posibles alineaciones, Jornada 8, Liga MX**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/16368787/monterrey-vs-cruz-azul-alineaciones-formaciones-jornada-8-liga-mx)
+- **Por Canal 5 online: ver transmisión Monterrey vs. Cruz Azul por el Torneo Clausura**: [Link](https://elcomercio.pe/deporte-total/mexico/canal-5-en-vivo-gratis-ver-monterrey-vs-cruz-azul-hoy-online-via-tudn-vix-por-torneo-clausura-de-la-liga-mx-video-noticia/)
+- **¡RAYADOS, A RETOMAR EL CAMINO!**: [Link](https://onefootball.com/es/noticias/rayados-a-retomar-el-camino-42482488)
+
+
+### elecciones cal (N/A, 28/02/2026 21:49 Lima)
+
+- **[VÍDEO] Pedro Angulo postula al decanato del CAL con propuestas de reforma digital y saneamiento económico**: [Link](https://lpderecho.pe/pedro-angulo-postula-al-decanato-del-cal-con-propuestas-de-reforma-digital-y-saneamiento-economico/)
+- **Hoy son las elecciones en el Colegio de Abogados de Lima: Postulan Delia Espinoza, Humberto Abanto, Pedro Angulo, entre otros**: [Link](https://www.infobae.com/peru/2026/02/28/hoy-son-las-elecciones-para-decano-del-colegio-de-abogados-de-lima-delia-espinoza-humberto-abanto-pedro-angulo-y-mas/)
+- **En medio de incertidumbre, CAL elige a su nuevo decano: Comité Electoral sería disuelto antes de segunda vuelta**: [Link](https://www.expreso.com.pe/?p=1267490)
+
+
+### boys vs (N/A, 28/02/2026 21:49 Lima)
+
+- **Sport Boys vs CD Moquegua en vivo: A qué hora inicia y dónde ver la Liga 1**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/sport-boys-vs-cd-moquegua-en-vivo-hora-y-donde-ver-la-liga-1-fecha-5-torneo-apertura-l1max-l1play-canal-tv-tdpe-noticia/)
+- **Liga 1: Deportivo Moquegua visita a Sport Boys por la fecha 5**: [Link](https://rpp.pe/futbol/descentralizado/liga-1-deportivo-moquegua-visita-a-sport-boys-por-la-fecha-5-noticia-1677846)
+- **Sport Boys tendrá dos bajas de cara al duelo ante CD Moquegua**: [Link](https://ovacion.pe/noticias/sport-boys/sport-boys-tendra-dos-bajas-cara-al-duelo-ante-cd-moquegua)
+
+
 ### tabla de posiciones liga 1 (N/A, 28/02/2026 15:32 Lima)
 
 - **Así se jugará la fecha 5 del Apertura de la Liga 1 2026**: [Link](https://www.espn.com.pe/futbol/peru/nota/_/id/16349532/programacion-de-la-fecha-5-del-apertura-liga-1-de-peru)
@@ -955,75 +1025,5 @@ Sin noticias relacionadas disponibles.
 - **O Santiago Bernabéu vai inaugurar um mosaico diante do Benfica com as mensagens “sem racismo” e “respeito”.**: [Link](https://www.segundabase.com.br/estatisticas/o-santiago-bernabeu-vai-inaugurar-um-mosaico-diante-do-benfica-com-as-mensagens-sem-racismo-e-respeito/138730/)
 - **Torcida do Real mostra faixa após denúncia feita por Vini Jr. 👇🏽**: [Link](https://onefootball.com/en/news/torcida-do-real-mostra-faixa-apos-denuncia-feita-por-vini-jr-42467347)
 - **Veja o onze do Benfica para o jogo com o Real Madrid**: [Link](https://www.cmjornal.pt/desporto/futebol/detalhe/20260225-185202-veja-o-onze-do-benfica-para-o-jogo-com-o-real-madrid)
-
-
-### juventus (N/A, 25/02/2026 15:41 Lima)
-
-- **Spalletti chiama lo Stadium: "Tifosi con noi! Retroscena Yildiz, Bremer di pasta bianconera e Di Gregorio..."**: [Link](https://www.tuttosport.com/news/calcio/serie-a/juventus/2026/02/24-146839509/spalletti_chiama_lo_stadium_tifosi_con_noi_retroscena_yildiz_bremer_di_pasta_bianconera_e_di_gregorio_)
-- **"I supplementari sarebbero già un'impresa", le parole dell'allenatore su Juve-Galatasaray**: [Link](https://tribuna.com/it/news/2026-02-25-i-supplementari-sarebbero-gia-unimpresa-le-parole-dellallenatore-su-juvegalatasaray/)
-- **Chiellini: “Bisogna trasformare la delusione dell’andata in qualcosa di storico”**: [Link](https://www.alfredopedulla.com/chiellini-bisogna-trasformare-la-delusione-dellandata-in-qualcosa-di-storico/)
-
-
-### sport lisboa e benfica (N/A, 25/02/2026 15:41 Lima)
-
-- **Lucas Paquetá sai em defesa de Vinicius Júnior e dispara: “Isto já foi longe demais”**: [Link](https://somosfanaticos.fans/br/futebol-europeu/lucas-paqueta-sai-em-defesa-de-vinicius-junior-e-dispara-isto-ja-foi-longe-demais)
-- **Brasileiros flagram torcedor do Benfica colocando bananas em foto de Vini Jr. em museu do Real**: [Link](https://portalleodias.com/esportes/brasileiros-flagram-torcedor-do-benfica-colocando-bananas-em-foto-de-vini-jr-em-museu-do-real)
-- **Tsohon dan wasan Argentina, Hugo Lamadrid ya bayyana cewa zai dawo daga kwallon kafa ne kawai don karya kafafun Vinicius Júnior.**: [Link](https://www.mixvale.com.br/2026/02/25/tsohon-dan-wasan-argentina-hugo-lamadrid-ya-bayyana-cewa-zai-dawo-daga-kwallon-kafa-ne-kawai-don-karya-kafafun-vinicius-junior-ha/)
-
-
-### futbol (N/A, 25/02/2026 15:41 Lima)
-
-- **Partidos de hoy, 24 de febrero: Horario y canal EN VIVO**: [Link](https://www.americatv.com.pe/deportes/futbol-mundial/partidos-hoy-24-febrero-horarios-y-transmisiones-n452807)
-- **Partidos de hoy EN VIVO, martes 24 de febrero: programación y dónde ver fútbol online**: [Link](https://libero.pe/futbol-internacional/2026/02/23/partidos-de-hoy-en-vivo-martes-24-de-febrero-689287)
-- **Partidos de hoy, martes 24 de febrero: ¿a qué hora y dónde ver fútbol EN VIVO?**: [Link](https://larepublica.pe/deportes/2026/02/24/partidos-de-hoy-horarios-y-canales-de-tv-donde-ver-futbol-en-vivo-y-en-directo-570720)
-
-
-### espn (N/A, 25/02/2026 15:41 Lima)
-
-- **Chiefs QB Patrick Mahomes, Wife Brittany Make TV Announcement**: [Link](https://heavy.com/sports/nfl/kansas-city-chiefs/patrick-mahomes-wife-brittany-tv-announcement/)
-- **Disney+ Are Set to Drop a Three-part NWSL Docuseries**: [Link](https://www.versus.uk.com/articles/disney-are-set-to-drop-a-three-part-nwsl-docuseries/)
-- **Angel City FC Set to be Featured in New ESPN Original Series**: [Link](https://sports.yahoo.com/articles/angel-city-fc-set-featured-224628841.html)
-
-
-### futbol en vivo (N/A, 25/02/2026 15:41 Lima)
-
-- **Champions hoy EN VIVO: partidos, resultados y minuto a minuto**: [Link](https://www.espn.com.ar/futbol/champions-league/nota/_/id/16356577/champions-hoy-en-vivo-partidos-resultados)
-- **Partidos de hoy, miércoles 25 de febrero del 2026: horarios y canales TV para ver Libertadores y Champions League**: [Link](https://rpp.pe/futbol/futbol-mundial/partidos-de-hoy-miercoles-25-de-febrero-del-2026-horarios-y-canales-tv-para-ver-libertadores-y-champions-league-noticia-1677300)
-- **Partidos de hoy EN VIVO, miércoles 25 de febrero: programación, horario y canales de TV**: [Link](https://libero.pe/futbol-internacional/2026/02/24/partidos-de-hoy-miercoles-25-de-febrero-programacion-horarios-donde-ver-337008)
-
-
-### disney (N/A, 25/02/2026 15:41 Lima)
-
-- **The Walt Disney Company to Participate in the Morgan Stanley Technology, Media & Telecom Conference**: [Link](https://www.marketscreener.com/news/the-walt-disney-company-to-participate-in-the-morgan-stanley-technology-media-telecom-conference-ce7e5cd8d889f62d)
-- **Disney CFO Hugh Johnston to Participate in Q&A at Morgan Stanley Technology, Media & Telecom Conference**: [Link](https://www.laughingplace.com/disney-business/hugh-johnston-morgan-stanley-conference-2026/)
-- **Disney CFO to Participate in Morgan Stanley Conference**: [Link](https://intellectia.ai/news/stock/disney-cfo-to-participate-in-morgan-stanley-conference)
-
-
-### atalanta vs. napoli (N/A, 25/02/2026 12:12 Lima)
-
-- **Biasin: "Il Napoli è incazzato post Bergamo. Ma un'altra big è uscita con le ossa rotte"**: [Link](https://www.msn.com/it-it/sport/calcio/biasin-il-napoli-%C3%A8-incazzato-post-bergamo-ma-un-altra-big-%C3%A8-uscita-con-le-ossa-rotte/ar-AA1X29nF)
-- **«Il gol di Gutierrez era regolare»**: [Link](https://www.ilroma.net/news/sport/858644/il-gol-di-gutierrez-era-regolare.html)
-- **Open Var, “È #Hien che cerca il contatto falloso con #Hojlund, il gol era regolare” ma assolve il #Var che era d’accordo con #Chiffi Da studio #Tommasi (il messaggero di #Rocchi) minimizza sul Var che non è intervenuto (perché era d'accordo con Chiffi). "È u**: [Link](https://www.facebook.com/ilnapolista/posts/open-var-%C3%A8-hien-che-cerca-il-contatto-falloso-con-hojlund-il-gol-era-regolare-ma/1440927144712603/)
-
-
-### juventus vs galatasaray (N/A, 25/02/2026 12:12 Lima)
-
-- **How much Juventus will earn if they overturn 5-2 Galatasaray scoreline**: [Link](https://football-italia.net/how-much-juventus-will-earn-overturn-gala/)
-- **Spalletti & Kelly: Playing at home gives us belief**: [Link](https://www.juventus.com/en/news/articles/spalletti-kelly-playing-at-home-gives-us-belief-24-02-26)
-- **Buruk Warns Against Complacency as Galatasaray Take Commanding Lead over Juventus to Turin**: [Link](https://turkish-football.com/buruk-warns-against-complacency-as-galatasaray-take-commanding-lead-over-juventus-to-turin/)
-
-
-### ticket master (N/A, 25/02/2026 12:12 Lima)
-
-- **Stocks making the biggest moves premarket: First Solar, GoDaddy, Lowe's, Workday, Cava and more**: [Link](https://www.cnbc.com/2026/02/25/stocks-making-the-biggest-moves-premarket-fslr-gddy-low-wday-cava.html)
-- **Paul Mescal and Gracie Abrams Make Their Red Carpet Debut at the 2026 BAFTA Awards**: [Link](https://people.com/paul-mescal-gracie-abrams-make-red-carpet-debut-at-2026-bafta-awards-photo-11911186)
-- **Paul Mescal and Gracie Abrams Hard-Launch on the 2026 BAFTAs Red Carpet**: [Link](https://www.vogue.com/article/paul-mescal-and-gracie-abrams-hard-launch-2026-baftas-red-carpet)
-
-
-### chiclayo (N/A, 25/02/2026 12:12 Lima)
-
-- **Gobierno Regional despliega respuesta integral en toda la región ante emergencia por lluvias**: [Link](https://www.gob.pe/institucion/regionlambayeque/noticias/1357790-gobierno-regional-despliega-respuesta-integral-en-toda-la-region-ante-emergencia-por-lluvias)
-- **Calles convertidas en ríos: lluvia torrencial provocó aniegos en distintas partes de Chiclayo [VIDEO]**: [Link](https://rpp.pe/peru/lambayeque/chiclayo-lluvia-torrencial-provoco-aniegos-y-calles-inundadas-video-noticia-1677424)
-- **Repunte del río La Leche pone en alerta a Íllimo en vísperas del carnaval 2026**: [Link](https://andina.pe/agencia/noticia-repunte-del-rio-leche-pone-alerta-a-illimo-visperas-del-carnaval-2026-1064375.aspx)
 
 
