@@ -1,3 +1,24 @@
+### twitch (N/A, 01/03/2026 03:38 Lima)
+
+- **Support a Streamer and Twitch Drops Now Live! — World of Warcraft**: [Link](https://news.blizzard.com/en-us/article/24264010/support-a-streamer-and-twitch-drops-now-live)
+- **TheBurntPeanut is absolutely spot on about all the Marathon hate**: [Link](https://www.indy100.com/gaming/theburntpeanut-marathon-stream-twitch-youtube)
+- **TheBurntPeanut tells fans to stop roasting Marathon already**: [Link](https://www.dexerto.com/gaming/theburntpeanut-tells-fans-to-stop-roasting-marathon-already-3326303/)
+
+
+### ricardo mendoza (N/A, 01/03/2026 03:38 Lima)
+
+- **"No podía perderla": Ricardo Mendoza confiesa que Katya Mosquera le dio ultimátum para formalizar su relación**: [Link](https://rpp.pe/famosos/farandula/ricardo-mendoza-confiesa-que-katya-mosquera-le-dio-ultimatum-para-formalizar-su-relacion-noticia-1677908)
+- **Ricardo Mendoza abrió su corazón a Magaly Medina y revela que se casa pronto**: [Link](https://www.atv.pe/noticia/ricardo-mendoza-abrio-su-corazon-a-magaly-medina-y-revela-que-se-casa-pronto/)
+- **Ricardo Mendoza luce templadazo de su novia Katya: “Ella es muy mujer, no se porta como una niña”**: [Link](https://trome.com/espectaculos/tv/ricardo-mendoza-luce-templadazo-de-su-novia-katya-mosquera-ella-es-muy-mujer-no-se-porta-como-una-nina-video-fotos-farandula-noticia/)
+
+
+### shoichi yamamoto (N/A, 01/03/2026 03:38 Lima)
+
+- **Japan publisher lets sex offender author produce manga under different name**: [Link](https://mainichi.jp/english/articles/20260228/p2g/00m/0na/008000c)
+- **Shogakukan Manga Editor Implicated in Potential Cover-Up of Author's Sexual Abuse of Minor (UPDATED)**: [Link](https://animecorner.me/shogakukan-manga-editor-implicated-in-potential-cover-up-of-authors-sexual-abuse-of-minor/)
+- **Manga Publisher Cancels Big Series Following Reveal of Author’s Controversial Past**: [Link](https://comicbook.com/anime/news/manga-publisher-cancels-big-series-following-reveal-of-authors-controversial-past/)
+
+
 ### jowell y randy (N/A, 01/03/2026 00:18 Lima)
 
 - **Críticas y escándalo en ‘Yo Soy’: Enfrentamiento entre imitadores de Jowell y Randy, y críticas por eliminación de Pedro Suárez Vértiz**: [Link](https://www.infobae.com/peru/2026/02/28/criticas-y-escandalo-en-yo-soy-enfrentamiento-entre-imitadores-de-jowell-y-randy-y-criticas-por-eliminacion-de-pedro-suarez-vertiz/)
@@ -1006,26 +1027,5 @@ Sin noticias relacionadas disponibles.
 - **Géminis derrota a Universitario 3 a 1: resumen del partido pendiente por Fase 2 de la Liga Peruana de Vóley 2026**: [Link](https://www.infobae.com/peru/deportes/2026/02/25/universitario-vs-geminis-en-vivo-hoy-punto-a-punto-partido-pendiente-fecha-6-fase-2-liga-peruana-de-voley-2026-resumen-resultado/)
 - **Liga Peruana de Vóley 2026: tabla de posiciones de la segunda fase y partidos de la fecha 8**: [Link](https://libero.pe/deportes/voley/2026/02/23/liga-peruana-de-voley-2026-tabla-de-posiciones-de-segunda-fase-programacion-de-fecha-8-resultados-1134107)
 - **Deportivo Géminis derrota a Universitario en la fecha 6 de la FASE 2 de la Liga Peruana de Vóley**: [Link](https://elcomercio.pe/deporte-total/voley/universitario-vs-deportivo-geminis-en-vivo-hora-canal-tv-y-donde-ver-la-liga-peruana-de-voley-latina-tv-video-tdpe-noticia/)
-
-
-### gremio vs atletico mineiro (N/A, 25/02/2026 21:36 Lima)
-
-- **📋 Grêmio and Atlético-MG line up to end poor Brasileiro run**: [Link](https://sports.yahoo.com/articles/gr-mio-atl-tico-mg-233300436.html)
-- **Grêmio Vs Atlético Mineiro: Castro Faces Late Midfield Setback Ahead of Arena Match**: [Link](https://www.filmogaz.com/168696)
-- **Grêmio vs Atlético-MG: pronósticos, cuotas, y datos para apostar!**: [Link](https://www.apwin.com/es/pronosticos/gremio-vs-atletico-mineiro-pronostico-brasileirao-serie-a-25-02-2026/)
-
-
-### erick noriega (N/A, 25/02/2026 21:36 Lima)
-
-- **Noriega cerca del título, Gallese se convierte en muralla y Peña camina hacia el descenso: así les fue a los peruanos en el exterior y qué viene para ellos**: [Link](https://elcomercio.pe/deporte-total/seleccion/seleccion-peruana-erick-noriega-cerca-del-titulo-pedro-gallese-se-convierte-en-muralla-y-sergio-pena-camina-hacia-el-descenso-asi-les-fue-a-los-peruanos-en-el-exterior-y-que-viene-para-ellos-noticia/)
-- **¡Brilla en Brasil! Gol y asistencia de Erick Noriega en clasificación de Gremio vs Juventude**: [Link](https://depor.com/futbol-peruano/peruanos-en-el-mundo/gol-erick-noriega-peruano-dio-asistencia-y-marco-penal-en-semifinal-del-campeonato-gaucho-en-gremio-vs-juventude-video-noticia/)
-- **Carrillo en 'semis' del Paulistao y Noriega en final del Gaucho**: [Link](https://www.americatv.com.pe/deportes/futbol-mundial/carrillo-semis-paulistao-y-noriega-final-gaucho-n452803?ref=portal-amtv)
-
-
-### godoy cruz - deportivo morón (N/A, 25/02/2026 21:36 Lima)
-
-- **Godoy Cruz quedó eliminado de la Copa Argentina y sigue en caída libre**: [Link](https://www.elsol.com.ar/deportes/godoy-cruz-quedo-eliminado-de-la-copa-argentina-y-sigue-en-caida-libre/)
-- **La agenda deportiva del miércoles llega con un partidazo del Tomba en Mendoza por la Copa Argentina**: [Link](https://mendozatoday.com.ar/2026/02/25/la-agenda-deportiva-del-miercoles-llega-con-un-partidazo-del-tomba-en-mendoza-por-la-copa-argentina/)
-- **Dos cruces de primera fase con exclusivos equipos de la Primera Nacional**: [Link](https://deportv.gob.ar/futbol/miercoles-cruces-nid:11432)
 
 
