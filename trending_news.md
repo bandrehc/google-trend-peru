@@ -1,3 +1,66 @@
+### jowell y randy (N/A, 01/03/2026 00:18 Lima)
+
+- **Críticas y escándalo en ‘Yo Soy’: Enfrentamiento entre imitadores de Jowell y Randy, y críticas por eliminación de Pedro Suárez Vértiz**: [Link](https://www.infobae.com/peru/2026/02/28/criticas-y-escandalo-en-yo-soy-enfrentamiento-entre-imitadores-de-jowell-y-randy-y-criticas-por-eliminacion-de-pedro-suarez-vertiz/)
+- **Escándalo en 'Yo soy': imitadores de Jowell y Randy habrían sido expulsados tras supuesta pelea en Latina**: [Link](https://larepublica.pe/espectaculos/2026/02/27/polemica-en-yo-soy-imitadores-de-jowell-y-randy-habrian-sido-expulsados-tras-supuesto-intento-de-agresion-en-latina-1188945)
+- **Imitador de 'Yo Soy' sorprende con fuertes acusaciones contra su excompañero tras abrupta expulsión del programa**: [Link](https://wapa.pe/espectaculos-y-tv/farandula/2026/02/28/imitador-yo-soy-sorprende-fuertes-acusaciones-su-excompanero-abrupta-expulsion-programa-641452)
+
+
+### jackie chan (N/A, 01/03/2026 00:18 Lima)
+
+- **Jackie Chan’s Greatest Action Movie That Inspired Tom Holland is Now on HBO Max**: [Link](https://fandomwire.com/jackie-chans-greatest-action-movie-that-inspired-tom-holland-is-now-on-hbo-max/)
+- **HBO Max Is Streaming The '80s Jackie Chan Movie That Changed The Action Genre Forever**: [Link](https://www.slashfilm.com/2111000/jackie-chan-80s-action-movie-police-story-streaming-hbo-max/)
+- **The best movie you can see on a big screen this weekend is basically Kill Bill meets Fury Road**: [Link](https://www.polygon.com/blades-of-the-guardians-review/)
+
+
+### marlon vera (N/A, 01/03/2026 00:18 Lima)
+
+- **Marlon Vera suffers fourth consecutive loss at UFC Mexico City despite coach’s insistence**: [Link](https://bloodyelbow.com/2026/02/28/marlon-vera-suffers-fourth-consecutive-loss-at-ufc-mexico-city-despite-coachs-insistence/)
+- **When Is David Martinez’s Next Fight?**: [Link](https://sports.betmgm.com/en/blog/ufc/when-is-david-martinez-next-fight-bm05/)
+- **UFC Fight Night 268: Marlon Vera vs. David Martinez odds, picks and predictions**: [Link](https://www.elpasotimes.com/story/sports/ufc/2026/02/28/vera-vs-martinez-odds-picks-and-predictions/88907573007/)
+
+
+### liam gallagher (N/A, 01/03/2026 00:18 Lima)
+
+- **What did Noel Gallagher say at Brit Awards 2026?**: [Link](https://metro.co.uk/2026/02/28/itv-bleeps-jack-whitehalls-risky-mandelson-epstein-joke-brit-awards-2026-27162145/)
+- **Noel Gallagher thanks brother Liam as BRIT Award speech censored**: [Link](https://www.facebook.com/ManchesterEveningNews/posts/noel-gallagher-thanks-brother-liam-as-brit-award-speech-censored/1386524833509878/)
+- **Oasis comeback 'moved the needle back' as Noel Gallagher prepares for Brits honour**: [Link](https://www.mirror.co.uk/3am/celebrity-news/oasis-comeback-moved-needle-back-36776201)
+
+
+### daniel zellhuber (N/A, 01/03/2026 00:18 Lima)
+
+- **King Green vows to retire Nate Diaz in callout after rolling back the years to land KO at UFC Mexico City**: [Link](https://bloodyelbow.com/2026/02/28/king-green-vows-to-retire-nate-diaz-in-callout-after-rolling-back-the-years-to-land-ko-at-ufc-mexico-city/)
+- **"Wanted To See A Dead Body" - Ref Under Fire In King Green Win**: [Link](https://www.mmanews.com/article/wanted-see-dead-body-ref-under-fire-king-green-win)
+- **UFC Mexico City: King Green Shines, Silences Daniel Zellhuber**: [Link](https://cagesidepress.com/2026/02/28/ufc-mexico-city-king-green-shines-silences-daniel-zellhuber/)
+
+
+### bobby green (N/A, 01/03/2026 00:18 Lima)
+
+- **Bobby Green’s Tattoos: Meaning and Origin Story Behind King’s Chest, Arms, and Other Inks**: [Link](https://www.essentiallysports.com/ufc-mma-news-bobby-greens-tattoos-meaning-and-origin-story-behind-kings-chest-arms-and-other-inks/)
+- **King Green vows to retire Nate Diaz in callout after rolling back the years to land KO at UFC Mexico City**: [Link](https://bloodyelbow.com/2026/02/28/king-green-vows-to-retire-nate-diaz-in-callout-after-rolling-back-the-years-to-land-ko-at-ufc-mexico-city/)
+- **"Wanted To See A Dead Body" - Ref Under Fire In King Green Win**: [Link](https://www.mmanews.com/article/wanted-see-dead-body-ref-under-fire-king-green-win)
+
+
+### américa - tigres (N/A, 01/03/2026 00:18 Lima)
+
+- **América y Tigres, la rivalidad que más ha crecido en la última década**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/16369966/america-tigres-rivalidad-ha-crecido-en-la-ultima-decada)
+- **VER TUDN EN VIVO: transmisión del América vs. Tigres por fecha 8 del Torneo Clausura**: [Link](https://elcomercio.pe/deporte-total/mexico/tudn-en-vivo-gratis-ver-america-vs-tigres-hoy-online-via-canal-5-vix-por-torneo-clausura-de-liga-mx-video-noticia/)
+- **Transmisión EN VIVO del América vs Tigres hoy: cómo mirar el partido por TV o streaming**: [Link](https://www.365scores.com/es/news/america-vs-tigres-como-ver-transmision/)
+
+
+### toronto - whitecaps (N/A, 01/03/2026 00:18 Lima)
+
+- **PREVIEW: 'Caps face Toronto FC in Maple Leaf Matchup at BC Place, presented by Maple Leaf Self Storage | Watch on Apple TV**: [Link](https://www.whitecapsfc.com/news/preview-caps-face-toronto-fc-maple-leaf-matchup)
+- **Thomas Müller, Brian White, Yohei Takaoka lead Whitecaps to 3-0 victory over Toronto**: [Link](https://www.washingtonpost.com/sports/soccer/2026/03/01/toronto-fc-vancouver-whitecaps-score-mls/0ef4d926-152c-11f1-8e8d-fe91db44677b_story.html)
+- **Battle Of The North: Top 5 Whitecaps vs TFC Matches In Vancouver**: [Link](https://northerntribune.ca/battle-of-the-north-best-whitecaps-toronto-fc-matches/)
+
+
+### danhausen (N/A, 01/03/2026 00:18 Lima)
+
+- **CM Punk's real-life close friend officially leaves AEW - 3 Ways he can debut in WWE**: [Link](https://www.sportskeeda.com/aew/cm-punk-s-real-life-close-friend-officially-leaves-aew-3-ways-can-debut-wwe)
+- **Danhausen revealed as inhabitant of mystery box at WWE Elimination Chamber**: [Link](https://www.postwrestling.com/2026/02/28/danhausen-revealed-as-inhabitant-of-mystery-box-at-wwe-elimination-chamber/)
+- **WWE Stars To Debut In Mystery Crate At Elimination Chamber 2026**: [Link](https://wrestletalk.com/features/wwe-stars-debut-mystery-crate-elimination-chamber-2026/)
+
+
 ### wellington phoenix - sydney (N/A, 28/02/2026 21:49 Lima)
 
 - **Live: Wellington Phoenix v Sydney FC at Sky Stadium - A League**: [Link](https://www.rnz.co.nz/news/sport/588309/live-wellington-phoenix-v-sydney-fc-at-sky-stadium-a-league)
@@ -964,66 +1027,5 @@ Sin noticias relacionadas disponibles.
 - **Godoy Cruz quedó eliminado de la Copa Argentina y sigue en caída libre**: [Link](https://www.elsol.com.ar/deportes/godoy-cruz-quedo-eliminado-de-la-copa-argentina-y-sigue-en-caida-libre/)
 - **La agenda deportiva del miércoles llega con un partidazo del Tomba en Mendoza por la Copa Argentina**: [Link](https://mendozatoday.com.ar/2026/02/25/la-agenda-deportiva-del-miercoles-llega-con-un-partidazo-del-tomba-en-mendoza-por-la-copa-argentina/)
 - **Dos cruces de primera fase con exclusivos equipos de la Primera Nacional**: [Link](https://deportv.gob.ar/futbol/miercoles-cruces-nid:11432)
-
-
-### local de votación 2026 (N/A, 25/02/2026 21:36 Lima)
-
-- **Elecciones 2026: Conoce aquí tu lugar de votación**: [Link](https://lpderecho.pe/elecciones-2026-conoce-aqui-lugar-votacion/)
-- **Dónde votar en las Elecciones 2026: Link de la ONPE para conocer tu local de votación con tu DNI**: [Link](https://www.infobae.com/peru/2026/02/24/donde-votar-en-las-elecciones-2026-link-de-la-onpe-para-conocer-tu-local-de-votacion-con-tu-dni/)
-- **Así podrás consultar con tu DNI dónde votar en las Elecciones Generales 2026**: [Link](https://peru21.pe/politica/consulta-tu-local-de-votacion-para-elecciones-2026-con-dni/)
-
-
-### concierto de alejandro sanz (N/A, 25/02/2026 21:36 Lima)
-
-- **Alejandro Sanz y Stephanie Cayo: las pistas sobre el posible romance del que todos hablan**: [Link](https://www.hola.com/actualidad/20260224885859/alejandro-sanz-stephanie-cayo-pistas-romance/)
-- **Así reaccionó Alejandro Sanz ante los rumores de un supuesto romance con Stephanie Cayo**: [Link](https://rpp.pe/famosos/celebridades/alejandro-sanz-y-stephanie-cayo-la-inesperada-reaccion-del-cantante-al-ser-consultado-por-su-supuesto-romance-noticia-1677433)
-- **Alejandro Sanz reacciona ante pregunta por Stephanie Cayo**: [Link](https://www.americatv.com.pe/noticias/espectaculos/alejandro-sanz-su-reaccion-cuando-preguntan-stephanie-cayo-n516131)
-
-
-### gremio vs (N/A, 25/02/2026 21:36 Lima)
-
-- **Grêmio vs Atlético-MG: pronósticos, cuotas, y datos para apostar!**: [Link](https://www.apwin.com/es/pronosticos/gremio-vs-atletico-mineiro-pronostico-brasileirao-serie-a-25-02-2026/)
-
-
-### warriors - grizzlies (N/A, 25/02/2026 21:36 Lima)
-
-- **Battered clubs battle as Warriors hobble into Memphis**: [Link](https://www.thesportsleader.com/2026/02/25/battered-clubs-battle-as-warriors-hobble-into-memphis/)
-- **De'Anthony Melton (knee) out Wednesday**: [Link](https://www.fantasypros.com/nba/news/571042/deanthony-melton-knee-out-wednesday.php)
-- **NBA Best Bets: Warriors at Grizzlies Best Prop Bets for Wednesday 2/25/26**: [Link](https://dknetwork.draftkings.com/2026/02/25/nba-best-bets-warriors-at-grizzlies-best-prop-bets-for-wednesday-2-25-26/)
-
-
-### clima lima (N/A, 25/02/2026 21:36 Lima)
-
-- **SENAMHI: Pronóstico del clima hoy miércoles 25 de febrero 2026**: [Link](https://rpp.pe/peru/actualidad/senamhi-pronostico-del-clima-hoy-miercoles-25-de-febrero-2026-noticia-1677376)
-- **¿Cielo nublado y lluvia en Lima? Así estará el clima hoy 22 de febrero, según el Senamhi**: [Link](https://www.infobae.com/noticias/2026/02/22/clima-hoy-en-peru-temperaturas-para-lima-este-22-de-febrero/)
-- **Clima hoy en Lima, Perú: el pronóstico del tiempo para este miércoles 25 febrero de 2026**: [Link](https://www.clarin.com/informacion-general/clima-hoy-lima-peru-pronostico-tiempo-miercoles-25-febrero-2026_0_VFhacQvVQT.html)
-
-
-### paris vs (N/A, 25/02/2026 15:41 Lima)
-
-- **Jordan Teze : "Faire notre maximum et jouer tous les coups à fond"**: [Link](https://www.asmonaco.com/conference-de-presse-jordan-teze-avant-psg-monaco-barrage-retour-ldc-faire-notre-maximum-et-jouer-tous-les-coups-a-fond/)
-- **"Il faut prendre le match très au sérieux" : Amara Simba envoie un message aux Parisiens avant PSG-Monaco**: [Link](https://tribuna.com/fr/news/2026-02-25-il-faut-prendre-le-match-tres-au-serieux-amara-simba-envoie-un-message-aux-parisiens-avan/)
-- **Barrage Retour de Ligue des Champions : Suivez Paris Saint-Germain - Monaco EN DIRECT**: [Link](https://www.eurosport.fr/football/ligue-des-champions/2025-2026/live-paris-saint-germain-monaco_mtc1601194/live-commentary.shtml)
-
-
-### championship (N/A, 25/02/2026 15:41 Lima)
-
-- **Swindon man loved wife he is accused of killing, court told**: [Link](https://www.bbc.com/news/articles/ckgly01vjmlo)
-- **'I loved and cherished her': Husband denies ‘tsunami’ of abuse that led to wife’s suicide**: [Link](https://www.lbc.co.uk/article/christopher-trybus-tarryn-baird-manslaughter-swindon-court-5HjdTX2_2/)
-- **Man spared jail over illicit library with almost 40,000 indecent images of children**: [Link](https://www.edp24.co.uk/news/25887331.norwich-man-spared-jail-possession-indecent-images/)
-
-
-### real madrid vs (N/A, 25/02/2026 15:41 Lima)
-
-- **Real Madrid-Benfica, en directo: última hora del playoff de la Champions League, hoy en vivo**: [Link](https://as.com/futbol/champions/real-madrid-benfica-en-directo-ultima-hora-del-playoff-de-la-champions-league-hoy-en-vivo-f202602-d/)
-- **Real Madrid vs. Benfica (25 de Feb., 2026) Resultados en Vivo**: [Link](https://espndeportes.espn.com/futbol/partido/_/juegoId/401858769)
-- **¿Dónde ver TV EN DIRECTO, Real Madrid-Benfica ONLINE por Champions League?**: [Link](https://elcomercio.pe/deporte-total/espana/donde-ver-real-madrid-vs-benfica-hoy-en-directo-a-que-hora-juega-y-en-que-canales-tv-transmiten-partido-de-vuelta-por-playoff-de-champions-league-noticia/)
-
-
-### benfica (N/A, 25/02/2026 15:41 Lima)
-
-- **O Santiago Bernabéu vai inaugurar um mosaico diante do Benfica com as mensagens “sem racismo” e “respeito”.**: [Link](https://www.segundabase.com.br/estatisticas/o-santiago-bernabeu-vai-inaugurar-um-mosaico-diante-do-benfica-com-as-mensagens-sem-racismo-e-respeito/138730/)
-- **Torcida do Real mostra faixa após denúncia feita por Vini Jr. 👇🏽**: [Link](https://onefootball.com/en/news/torcida-do-real-mostra-faixa-apos-denuncia-feita-por-vini-jr-42467347)
-- **Veja o onze do Benfica para o jogo com o Real Madrid**: [Link](https://www.cmjornal.pt/desporto/futebol/detalhe/20260225-185202-veja-o-onze-do-benfica-para-o-jogo-com-o-real-madrid)
 
 
