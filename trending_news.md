@@ -1,3 +1,73 @@
+### colo-colo - u. de chile (N/A, 01/03/2026 15:34 Lima)
+
+- **Canal TNT Sports EN VIVO, Colo Colo vs. U. de Chile: ver clásico vía HBO MAX por internet**: [Link](https://depor.com/futbol-internacional/chile/tnt-sports-en-vivo-colo-colo-vs-u-de-chile-en-directo-como-ver-clasico-chileno-via-hbo-max-futbol-libre-tv-online-por-internet-liga-de-primera-video-noticia/)
+- **¿A qué hora se juega el superclásico Colo Colo vs U. de Chile desde el Monumental?**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/a-que-hora-juega-colo-colo-vs-u-de-chile-hoy-canales-de-television-para-ver-el-superclasico-por-campeonato-nacional-de-chile-noticia/)
+- **Autoridades revisan medidas de seguridad para el Superclásico y destacan uso de torniquetes con control biométrico**: [Link](https://www.latercera.com/nacional/noticia/autoridades-revisan-medidas-de-seguridad-para-el-superclasico-y-destacan-funcionamiento-de-torniquetes-con-control-biometrico/)
+
+
+### real madrid vs getafe (N/A, 01/03/2026 15:34 Lima)
+
+- **Cuándo juegan Real Madrid vs. Getafe por LaLiga: equipo, fecha, hora y TV en vivo**: [Link](https://www.espn.com.pe/futbol/espana/nota/_/id/16364017/real-madrid-vs-getafe-la-liga-fecha-26-equipo-fecha-hora-y-tv-en-vivo)
+- **Huijsen da un paso para volver a la convocatoria; Mbappé sigue out**: [Link](https://www.flashscore.pe/noticias/futbol-laliga-ea-sports-huijsen-vuelve-a-entrenar-con-el-grupo-y-mbappe-sigue-al-margen/0WjWdQeo/)
+- **LaLiga EA Sports: Getafe se enfrentará a Real Madrid por la fecha 26**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-getafe-se-enfrentara-a-real-madrid-por-la-fecha-26-noticia-1678082)
+
+
+### lyon vs (N/A, 01/03/2026 15:34 Lima)
+
+- **Liga de Francia: Olympique de Marsella se enfrenta ante la visita Olympique Lyon por la fecha 24**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-de-francia-olympique-de-marsella-se-enfrenta-ante-la-visita-olympique-lyon-por-la-fecha-24-noticia-1677978)
+- **OL : Des millions d'euros en jeu, Michele Kang arrive au Vélodrome**: [Link](https://www.foot01.com/ol/ol-des-millions-deuros-en-jeu-michele-kang-arrive-au-velodrome)
+- **Ligue 1 McDonald's : "On a bien travaillé", Habib Beye prêt pour l'Olympique lyonnais**: [Link](https://www.dazn.com/fr-FR/news/football/ligue-1-mcdonalds-on-a-bien-travaille-habib-beye-pret-pour-lolympique-lyonnais/1om21o98ve7w111kcwym6tvl8e)
+
+
+### newell's - rosario central (N/A, 01/03/2026 15:34 Lima)
+
+- **Newell’s y Rosario Central animan una nueva edición del clásico por el Torneo Apertura: formaciones confirmadas**: [Link](https://www.infobae.com/deportes/2026/03/01/newells-y-rosario-central-animaran-una-nueva-edicion-del-clasico-por-el-torneo-apertura-hora-tv-y-formaciones/)
+- **Regiardo y Ledesma anticipan el clásico entre Newell's y Central**: [Link](https://www.espn.com.ar/futbol/argentina/nota/_/id/16366666/regiardo-ledesma-anticipo-clasico-rosarino-newells-rosario-central-apertura)
+- **La formación de Newells para el clásico rosarino: el debut de Frank Kudelka ante Central**: [Link](https://www.365scores.com/es/news/newells-rosario-central-xi-lpf/)
+
+
+### lyon fc (N/A, 01/03/2026 15:34 Lima)
+
+- **OL : Des millions d'euros en jeu, Michele Kang arrive au Vélodrome**: [Link](https://www.foot01.com/ol/ol-des-millions-deuros-en-jeu-michele-kang-arrive-au-velodrome)
+- **Ligue 1 McDonald's : "On a bien travaillé", Habib Beye prêt pour l'Olympique lyonnais**: [Link](https://www.dazn.com/fr-FR/news/football/ligue-1-mcdonalds-on-a-bien-travaille-habib-beye-pret-pour-lolympique-lyonnais/1om21o98ve7w111kcwym6tvl8e)
+- **Le but rapide du Lyonnais Corentin Tolisso à Marseille en vidéo**: [Link](https://www.lequipe.fr/Football/Actualites/Le-but-rapide-du-lyonnais-corentin-tolisso-a-marseille-en-video/1656053)
+
+
+### juan pablo vs (N/A, 01/03/2026 15:34 Lima)
+
+- **🔴#ENVIVO Conoce las alineaciones de Juan Pablo II y Cusco FC**: [Link](https://ovacion.pe/noticias/liga1-2026/envivo-conoce-las-alineaciones-juan-pablo-ii-cusco-fc)
+- **Juan Pablo II v Cusco FC en vivo online 0-0 por la fecha 5 del Torneo Apertura de la Liga 1 2026**: [Link](https://www.futbolperuano.com/liga-1/noticias/juan-pablo-ii-v-cusco-fc-en-vivo-online-por-la-fecha-5-del-torneo-apertura-de-la-liga-1-2026-567775)
+- **Liga 1: Juan Pablo II y Cusco FC se encuentran en la fecha 5**: [Link](https://rpp.pe/futbol/descentralizado/liga-1-juan-pablo-ii-y-cusco-fc-se-encuentran-en-la-fecha-5-noticia-1677982)
+
+
+### endrick (N/A, 01/03/2026 15:34 Lima)
+
+- **Why 'The New Pele' Is Still Fighting For a Spot on Brazil's 2026 World Cup Squad**: [Link](https://www.foxsports.com/stories/soccer/endrick-is-showing-real-madrid-what-hes-made-of-during-lyon-loan-but-new-pele-still-fighting-an-uphill-battle-to-earn-brazil-world-cup-spot)
+- **Endrick reveals the inspiration behind his new celebration at Lyon**: [Link](https://tribuna.com/en/blogs/endrick-reveals-the-inspiration-behind-his-new-celebration-a/)
+- **Real Madrid expects to earn over 60 million euros from the sale of the team's star player**: [Link](https://telegrafi.com/en/Real-Madrid-expects-to-earn-over-60-million-euros-from-the-sale-of-the-team%27s-star-player/)
+
+
+### sevilla vs (N/A, 01/03/2026 15:34 Lima)
+
+- **Apuestas y Pronóstico del Betis vs Sevilla 01/03/26**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2026/marzo/pronostico-betis-vs-sevilla-01-03-26)
+- **LaLiga EA Sports: Betis y Sevilla se enfrentan en el Derbi de Sevilla**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-betis-y-sevilla-se-enfrentan-en-el-derbi-de-sevilla-noticia-1677965)
+- **Cuándo juegan Betis vs. Sevilla la liga de España**: [Link](https://www.espn.com.ar/futbol/espana/nota/_/id/16367663/cuando-juegan-betis-vs-sevilla-por-la-laliga-espana-equipo-fecha-y-hora-en-vivo)
+
+
+### girona - celta de vigo (N/A, 01/03/2026 15:34 Lima)
+
+- **LaLiga EA Sports: Girona se enfrentará ante Celta por la fecha 26**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-girona-se-enfrentara-ante-celta-por-la-fecha-26-noticia-1677980)
+- **Apuestas y Pronóstico del Girona vs Celta 01/03/26**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2026/marzo/pronostico-girona-vs-celta-01-03-26)
+- **Míchel: “Seguir en Primera es lo más importante para la estabilidad del club”**: [Link](https://as.com/futbol/primera/michel-seguir-en-primera-es-lo-mas-importante-para-la-estabilidad-del-club-f202602-n/)
+
+
+### girona vs (N/A, 01/03/2026 15:34 Lima)
+
+- **Preview: Girona vs Celta Vigo - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/celta-vigo/preview/girona-vs-celta-vigo-prediction-team-news-lineups_592857.html)
+- **Jones El-Abdellaoui vs. Girona FC – Player props & odds to score a goal on March 1**: [Link](https://prosoccerwire.usatoday.com/story/sports/2026/03/01/jones-el-abdellaoui-soccer-player-props-3-1-2026/88930182007/)
+- **Tickets: Girona vs Celta Vigo LaLiga Montilivi (2026)**: [Link](https://karlobag.eu/en/tickets/football/tickets-for-girona-vs-celta-vigo-laliga-matchday-26-at-montilivi-stadium-in-girona-buy-tickets-online-ljjxf)
+
+
 ### antalyaspor - fenerbahçe (N/A, 01/03/2026 11:35 Lima)
 
 - **Antalyaspor-Fenerbahçe maçının ilk 11’leri belli oldu**: [Link](https://www.yenicaggazetesi.com/antalyaspor-fenerbahce-macinin-ilk-11leri-belli-oldu-1005182h.htm)
@@ -953,75 +1023,5 @@ Sin noticias relacionadas disponibles.
 - **Ticketinfo KRC Genk - Dinamo Zagreb**: [Link](https://www.krcgenk.be/nl/nieuws/6239/ticketinfo-krc-genk-dinamo-zagreb)
 - **"Misschien hebben we Standard onderschat": Zakaria El Ouahdi laat er geen enkele twijfel over bestaan**: [Link](https://www.voetbalkrant.com/nieuws/2026-02-26/misschien-hebben-we-standard-onderschat-zakaria-el-ouahdi-laat-er-geen-enkele-twijfel-over-bestaan)
 - **Hayen na uitspraak Strupar over de Genkse kansen: “Kijk maar naar Club en Atlético”**: [Link](https://www.voetbalprimeur.be/nieuws/1745910/nicky-hayen-na-uitspraak-strupar-over-de-genkse-kansen.html)
-
-
-### al ahli (N/A, 26/02/2026 15:44 Lima)
-
-- **Saudi Pro League: Riyad Mahrez, the king of key passes**: [Link](https://foot-africa.com/en/news/saudi-pro-league-riyad-mahrez-the-king-of-key-passes-1093970/)
-- **Football Saudi Pro League: Riyad Mahrez stays at Al Ahli**: [Link](https://en.africatopsports.com/2026/02/26/saudi-pro-league-riyad-mahrez-stays-at-al-ahli/)
-- **Riyad Mahrez to stay at Al Ahli amid transfer speculation**: [Link](https://africasoccer.com/riyad-mahrez-stays-al-ahli/)
-
-
-### paok vs. celta de vigo (N/A, 26/02/2026 15:44 Lima)
-
-- **Football Bet Of The Day: James Milton has a 17-10 selection from the Europa League**: [Link](https://www.racingpost.com/sport/football-tips/football-bet-of-the-day-james-milton-has-a-17-10-selection-from-the-europa-league-aogxC2P0NRL9/)
-- **Celta de Vigo vs PAOK LIVE Score Updates in UEFA Europa League Match**: [Link](https://www.vavel.com/en-us/soccer/2026/02/26/1252177-celta-vs-paok-live-score-europa-league.html)
-- **Football Bet of the Day: Back goals at Balaidos on Thursday**: [Link](https://mrfixitstips.co.uk/football-bet-of-the-day-back-goals-at-balaidos-on-thursday/)
-
-
-### genk vs (N/A, 26/02/2026 15:44 Lima)
-
-- **Belgium Europa League Soccer**: [Link](https://lufkindailynews.com/anpa/sports/belgium-europa-league-soccer/image_d9fe71dd-52e6-5e0c-8607-b1dcda9a5caf.html)
-- **Genk vs Dinamo Zagreb LIVE Score Updates: The home team wants to turn the series around (0-0)**: [Link](https://www.vavel.com/en-us/soccer/2026/02/26/1252076-genk-vs-dinamo-zagreb-live-europa-league.html)
-- **Genk-Dinamo Zagreb - Europa League 2025/2026 Statistical Preview**: [Link](https://www.whoscored.com/matches/1967257/preview/europe-europa-league-2025-2026-genk-dinamo-zagreb)
-
-
-### sat (N/A, 26/02/2026 15:44 Lima)
-
-- **SAT de Lima recuerda que este 27 vence el impuesto vehicular y no habrá amnistía**: [Link](https://canaln.pe/actualidad/sat-manana-vence-pago-impuesto-vehicular-n490585)
-- **Evita una multa de S/2750: Plazo para declarar vehículos nuevos adquiridos en 2025 vence este 27 de febrero**: [Link](https://peru21.pe/lima/evita-una-multa-de-s2750-plazo-para-declarar-vehiculos-nuevos-adquiridos-en-2025-vence-este-27-de-febrero/)
-- **Impuesto vehicular, predial y arbitrios vence el 27 de febrero: cómo consultar y pagar en línea**: [Link](https://gestion.pe/peru/impuesto-vehicular-predial-y-arbitrios-vence-el-27-de-febrero-como-consultar-y-pagar-en-linea-noticia/)
-
-
-### ferencvaros vs (N/A, 26/02/2026 12:04 Lima)
-
-- **Ludogorets’ schedule ahead of the second leg against Ferencvaros in Budapest**: [Link](https://www.ludogorets.com/en/news/?i=7422)
-- **Ferencvaros vs Ludogorets LIVE Score Updates in UEFA Europa League Match**: [Link](https://www.vavel.com/en-us/soccer/2026/02/26/1252140-ferencvaros-vs-ludogorets-live-score-updates-europa-league.html)
-- **Preview: Ferencvaros vs Ludogorets Razgrad - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/ferencvaros/europa-league/preview/ferencvaros-vs-ludogorets-prediction-team-news-lineups_592623.html)
-
-
-### almeria (N/A, 26/02/2026 12:04 Lima)
-
-- **Cristiano Ronaldo compra el 25% del Almería**: [Link](https://as.com/futbol/segunda/cristiano-ronaldo-compra-el-25-del-almeria-f202602-n/)
-- **¿Vuelve Cristiano Ronaldo a España? El ambicioso plan de CR7 tras adquirir acciones del UD Almería**: [Link](https://www.atv.pe/noticia/vuelve-cristiano-ronaldo-a-espana-el-ambicioso-plan-de-cr7-tras-adquirir-acciones-del-ud-almeria/)
-- **Cristiano Ronaldo se convirtió en el nuevo dueño de un club de fútbol en España**: [Link](https://www.infobae.com/deportes/2026/02/26/cristiano-ronaldo-se-convirtio-en-el-nuevo-dueno-de-un-club-de-futbol-en-espana/)
-
-
-### incendio lima (N/A, 26/02/2026 12:04 Lima)
-
-- **Alarma en La Victoria: incendio de gran magnitud se registra a una cuadra del Hospital Almenara**: [Link](https://rpp.pe/lima/actualidad/la-victoria-incendio-de-gran-magnitud-se-registra-a-una-cuadra-del-hospital-almenara-noticia-1677568)
-- **Incendio en La Victoria afecta zonas aledañas al hospital Guillermo Almenara (FOTOS)**: [Link](https://elcomercio.pe/lima/incendio-en-la-victoria-afecta-zonas-aledanas-al-hospital-guillermo-almenara-fotos-ultimas-noticia/)
-- **La Victoria: se registra incendio en almacen**: [Link](https://andina.pe/agencia/noticia-la-victoria-se-registra-incendio-almacen-1064559.aspx)
-
-
-### juan pablo varillas (N/A, 26/02/2026 12:04 Lima)
-
-- **Varillas ganó y se instaló en cuartos del Challenger Tigre 2**: [Link](https://ovacion.pe/noticias/tenis/varillas-gano-se-instalo-cuartos-del-challenger-tigre-2)
-- **Midón se despidió muy pronto del Challenger de Tigre II**: [Link](https://www.diarioellibertador.com.ar/midon-se-despidio-muy-pronto-del-challenger-de-tigre-ii/)
-- **Juan Pablo Varillas vs Joaquín Aguilar: fecha, hora y dónde ver partido por octavos de final de Challenger de Tigre**: [Link](https://www.infobae.com/peru/deportes/2026/02/25/juan-pablo-varillas-vs-joaquin-aguilar-fecha-hora-y-donde-ver-partido-por-octavos-de-final-de-challenger-de-tigre/)
-
-
-### resident evil requiem (N/A, 26/02/2026 12:04 Lima)
-
-- **Review | I played ‘Resident Evil Requiem’ 9 times. Here’s what does and doesn’t work.**: [Link](https://www.washingtonpost.com/entertainment/video-games/2026/02/25/resident-evil-requiem-video-game-review/)
-- **Resident Evil Requiem review - there’s plenty of life in the undead yet**: [Link](https://www.theguardian.com/games/2026/feb/26/resident-evil-requiem-review-theres-plenty-of-life-in-the-undead-yet)
-- **Resident Evil Requiem Review - A Sublime Sepulchre**: [Link](https://gameinformer.com/review/resident-evil-requiem/a-sublime-sepulchre)
-
-
-### adrian villar atropello (N/A, 26/02/2026 08:19 Lima)
-
-- **PNP detuvo preliminarmente a Adrián Villar por la muerte de la joven Lizeth Marzano en San Isidro**: [Link](https://rpp.pe/lima/judiciales/adrian-villar-pnp-detuvo-preliminarmente-a-adrian-villar-por-la-muerte-de-lizeth-marzano-en-san-isidro-noticia-1677536)
-- **Marisel Linares tendría COMPLICADA SITUACIÓN tras imágenes con su hijastro la noche de la tragedia**: [Link](https://www.atv.pe/noticia/marisel-linares-tendria-complicada-situacion-tras-imagenes-con-su-hijastro-la-noche-de-la-tragedia/)
-- **Caso Lizeth Marzano: Incorporan como INVESTIGADA a Marisel Linares por presunto encubrimiento personal**: [Link](https://peru21.pe/lima/lizeth-marzano-incorporan-como-investigada-marisel-linares-por-presunto-encubrimiento-personal/)
 
 
