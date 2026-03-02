@@ -1,3 +1,31 @@
+### claude (N/A, 02/03/2026 08:11 Lima)
+
+- **How Talks Between Anthropic and the Defense Dept. Fell Apart**: [Link](https://www.nytimes.com/2026/03/01/technology/anthropic-defense-dept-openai-talks.html)
+- **OpenAI strikes deal with Pentagon hours after Trump admin bans Anthropic**: [Link](https://www.cnn.com/2026/02/27/tech/openai-pentagon-deal-ai-systems)
+- **AI executive Dario Amodei on the red lines Anthropic would not cross**: [Link](https://www.cbsnews.com/news/ai-executive-dario-amodei-on-the-red-lines-anthropic-would-not-cross/)
+
+
+### inicio de clases 2026 (N/A, 02/03/2026 08:11 Lima)
+
+- **Inicio de clases 2026: fecha oficial que fijó el Minedu para alumnos de colegios estatales**: [Link](https://www.infobae.com/peru/2026/02/27/inicio-de-clases-2026-esta-es-la-fecha-oficial-que-fijo-el-minedu-para-alumnos-de-colegios-estatales/)
+- **Regreso a clases 4 de marzo: revisa fechas oficiales y vacaciones de invierno por región**: [Link](https://www.elmostrador.cl/datos-utiles/2026/03/02/3222384/)
+- **Este es el PRIMER FERIADO largo que tendrán los estudiantes del Perú tras el inicio del año escolar 2026**: [Link](https://libero.pe/tiempoextra/2026/02/28/es-primer-feriado-largo-tendran-estudiantes-del-peru-inicio-del-ano-escolar-2026-1956080)
+
+
+### hezbola (N/A, 02/03/2026 08:11 Lima)
+
+- **Cientos de aviones de Israel bombardean simultáneamente Irán y Libano**: [Link](https://andina.pe/agencia/noticia-cientos-aviones-israel-bombardean-simultaneamente-iran-y-libano-1064992.aspx)
+- **Hezbolá ataca Israel y Donald Trump estima cuatro semanas más de guerra en Irán**: [Link](https://rpp.pe/mundo/actualidad/hezbola-ataca-israel-y-donald-trump-estima-cuatro-semanas-mas-de-guerra-en-iran-noticia-1678156)
+- **Israel ataca objetivos de Hezbolá "en todo Líbano"**: [Link](https://peru21.pe/mundo/israel-ataca-objetivos-de-hezbola-en-todo-libano/)
+
+
+### zendaya (N/A, 02/03/2026 08:11 Lima)
+
+- **Zendaya and Tom Holland Are Married, Stylist Law Roach Claims: 'You Missed It'**: [Link](https://people.com/zendaya-and-tom-holland-are-married-stylist-law-roach-claims-8769894)
+- **Zendaya Pregnancy Rumors Resurface as Secret Marriage Leaks—Is This the Real Reason for Tying the Knot?**: [Link](https://www.inkl.com/news/zendaya-pregnancy-rumors-resurface-as-secret-marriage-leaks-is-this-the-real-reason-for-tying-the-knot)
+- **Tom Holland, Zendaya 'secret wedding photo' shocks fans**: [Link](https://www.geo.tv/latest/653670-tom-holland-zendaya-secret-wedding-photo-shocks-fans)
+
+
 ### panamericana (N/A, 02/03/2026 03:53 Lima)
 
 - **Puente Piedra: Violento choque entre camión de carga y bus deja varios heridos**: [Link](https://peru21.pe/lima/puente-piedra-violento-choque-entre-camion-de-carga-y-bus-deja-varios-heridos/)
@@ -993,33 +1021,5 @@ Sin noticias relacionadas disponibles.
 - **Lakers vs Suns Odds & Picks Tonight: Value on the Total**: [Link](https://www.oddsshark.com/nba/lakers-suns-picks-odds-february-26-2026)
 - **Rui Hachimura Injury: Ruled out with illness**: [Link](https://www.rotowire.com/basketball/headlines/rui-hachimura-injury-ruled-out-with-illness-520608)
 - **NBA & NHL betting guide: Luka Doncic’s Lakers vs. Suns and McDavid’s Oilers headline Thursday night odds**: [Link](https://www.dimers.com/news/nba-and-nhl-betting-guide-luka-doncics-lakers-vs-suns-and-mcdavids-oilers-headline-thursday-night-odds)
-
-
-### hugo garcia (N/A, 27/02/2026 00:16 Lima)
-
-- **César Acuña responde a comunicado de Renovación Popular y critica a Rafael López Aliaga: “Candidato desequilibrado”**: [Link](https://www.infobae.com/peru/2026/02/26/cesar-acuna-responde-a-comunicado-de-renovacion-popular-y-critica-a-rafael-lopez-aliaga-candidato-desequilibrado/)
-- **Cesar Acuña cuestiona a Rafael López Aliaga: "Pone a José Balcázar y no le da confianza ¿No estará desequilibrado?"**: [Link](https://www.exitosanoticias.pe/politica/cesar-acuna-cuestiona-rafael-lopez-aliaga-pone-jose-balcazar-le-da-confianza-no-estara-desequilibrado-n169651)
-- **César Acuña llama a Rafael López Aliaga el "candidato de la inestabilidad": "Está desesperado"**: [Link](https://larepublica.pe/politica/2026/02/25/cesar-acuna-llama-a-rafael-lopez-aliaga-el-candidato-de-la-inestabilidad-esta-desesperado-hnews-1475000)
-
-
-### scream (N/A, 27/02/2026 00:16 Lima)
-
-- **Scream 7 First Reviews: Neve Campbell is Fierce in Brutal but Familiar Thriller**: [Link](https://editorial.rottentomatoes.com/article/scream-7-first-reviews/)
-- **‘Scream 7’ Review: Neve Campbell Returns to Face Ghostface**: [Link](https://www.nytimes.com/2026/02/26/movies/scream-7-review-neve-campbell.html)
-- **'Scream 7' review: Kevin Williamson makes Ghostface fun again**: [Link](https://mashable.com/article/scream-7-review)
-
-
-### lizeth marzano (N/A, 27/02/2026 00:16 Lima)
-
-- **Detienen preliminarmente a Adrián Villar, investigado por la muerte de la joven Lizeth Marzano**: [Link](https://lpderecho.pe/detienen-preliminarmente-a-adrian-villar-investigado-por-la-muerte-de-la-joven-lizeth-marzano/)
-- **Caso Lizeth Marzano: atropello, fuga y presunto encubrimiento complican a Adrián Villar y su entorno**: [Link](https://rpp.pe/peru/actualidad/caso-lizeth-marzano-atropello-fuga-y-presunto-encubrimiento-complican-a-adrian-villar-y-su-entorno-noticia-1677602)
-- **Caso Lizeth Marzano: Se debe recalificar el delito a homicidio doloso**: [Link](https://peru21.pe/lima/caso-lizeth-marzano-se-debe-recalificar-el-delito-homicidio-doloso/)
-
-
-### mayra goñi (N/A, 27/02/2026 00:16 Lima)
-
-- **"Estoy acostumbrada a que me engrían": Mayra Goñi revela que debe hacer un hombre para conquistarla**: [Link](https://rpp.pe/famosos/farandula/mayra-goni-revela-que-debe-hacer-un-hombre-para-conquistarla-e-iniciar-un-romance-con-ella-noticia-1677195)
-- **Mayra Goñi revela que le gusta que la engrían y confiesa cómo un hombre puede conquistarla: “Tienen que pagar toda la cena”**: [Link](https://larepublica.pe/espectaculos/2026/02/22/mayra-goni-revela-que-le-gusta-que-la-engrian-y-confiesa-como-un-hombre-puede-conquistarla-tienen-que-pagar-toda-la-cena-2136222)
-- **¡Valentina Valiente llega en marzo a las pantallas de Latina!**: [Link](https://www.latina.pe/entretenimiento/valentina-valiente/valentina-valiente-a-un-paso-de-llegar-a-las-pantallas_20260224/)
 
 
