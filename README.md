@@ -1,3 +1,10 @@
+### panamericana (N/A, 02/03/2026 03:53 Lima)
+
+- **Puente Piedra: Violento choque entre camión de carga y bus deja varios heridos**: [Link](https://peru21.pe/lima/puente-piedra-violento-choque-entre-camion-de-carga-y-bus-deja-varios-heridos/)
+- **Choque entre camión de carga y bus de transporte público El Chino en la Panamericana Norte dejó un muerto**: [Link](https://larepublica.pe/sociedad/2026/03/01/choque-entre-camion-de-carga-y-bus-de-el-chino-genera-intenso-trafico-en-la-panamericana-norte-a-la-altura-de-puente-piedra-62121)
+- **🔴🔵#ElInformativoDeExitosa📺📺 | Fatídico accidente en Los Olivos. El chofer de un camión perdió la vida tras chocar contra un bus de 'Los Chinos', muy cerca del óvalo Infantas. Según información preliminar, el vehículo de transporte público se encontraba av**: [Link](https://www.facebook.com/Exitosanoticias/posts/elinformativodeexitosa-fat%C3%ADdico-accidente-en-los-olivos-el-chofer-de-un-cami%C3%B3n-p/1363985349097853/)
+
+
 ### alessandra denegri (N/A, 02/03/2026 00:17 Lima)
 
 - **Alessandra Denegri: reacción por regreso de Cayetana AFHS**: [Link](https://www.americatv.com.pe/mas-espectaculos/alessandra-denegri-y-su-reaccion-al-regreso-cayetana-afhs-noticia-163125)
@@ -1014,12 +1021,5 @@ Sin noticias relacionadas disponibles.
 - **"Estoy acostumbrada a que me engrían": Mayra Goñi revela que debe hacer un hombre para conquistarla**: [Link](https://rpp.pe/famosos/farandula/mayra-goni-revela-que-debe-hacer-un-hombre-para-conquistarla-e-iniciar-un-romance-con-ella-noticia-1677195)
 - **Mayra Goñi revela que le gusta que la engrían y confiesa cómo un hombre puede conquistarla: “Tienen que pagar toda la cena”**: [Link](https://larepublica.pe/espectaculos/2026/02/22/mayra-goni-revela-que-le-gusta-que-la-engrian-y-confiesa-como-un-hombre-puede-conquistarla-tienen-que-pagar-toda-la-cena-2136222)
 - **¡Valentina Valiente llega en marzo a las pantallas de Latina!**: [Link](https://www.latina.pe/entretenimiento/valentina-valiente/valentina-valiente-a-un-paso-de-llegar-a-las-pantallas_20260224/)
-
-
-### julio iglesias (N/A, 27/02/2026 00:16 Lima)
-
-- **Julio Iglesias: entre el mito del seductor y las denuncias de abuso**: [Link](https://oncenoticias.digital/entretenimiento/julio-iglesias-entre-el-mito-del-seductor-y-las-denuncias-de-abuso/551265/)
-- **Morant respalda a Yolanda Díaz tras la demanda de Julio Iglesias: "Son comportamientos fuera de lo aceptable"**: [Link](https://www.notimerica.com/sociedad/noticia-morant-respalda-yolanda-diaz-demanda-julio-iglesias-son-comportamientos-fuera-aceptable-20260225124801.html)
-- **Julio Iglesias y la vulneración del principio de presunción de inocencia**: [Link](https://www.libertaddigital.com/opinion/2026-02-25/editorial-julio-iglesias-y-la-vulneracion-del-principio-de-presuncion-de-inocencia-7364812/)
 
 
