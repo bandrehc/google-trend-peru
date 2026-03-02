@@ -1,3 +1,71 @@
+### catherine o'hara (N/A, 01/03/2026 21:37 Lima)
+
+- **Catherine O'Hara wins posthumous SAG-AFTRA Actor Award for 'The Studio'**: [Link](https://www.nbcnews.com/pop-culture/pop-culture-news/catherine-ohara-wins-posthumous-sag-aftra-actor-award-studio-rcna261248)
+- **Catherine O’Hara Wins Posthumous Actor Award, Seth Rogen Accepts in Moving Tribute (VIDEO)**: [Link](https://www.yahoo.com/entertainment/tv/articles/catherine-o-hara-wins-posthumous-020056520.html)
+- **Seth Rogen Honors “Genius” Catherine O'Hara at Actor Awards**: [Link](https://www.vanityfair.com/hollywood/story/seth-rogen-honors-catherine-ohara-at-actor-awards)
+
+
+### san diego fc (N/A, 01/03/2026 21:37 Lima)
+
+- **San Diego FC v St. Louis SC: Varas hails 'unbelievable' home support as hosts look to build early momentum**: [Link](https://www.beinsports.com/en-us/soccer/mls/articles/san-diego-fc-v-st-louis-sc-varas-hails-unbelievable-home-support-as-hosts-look-to-build-early-momentum-2026-03-01)
+- **San Diego maintaining 2025 momentum entering St. Louis City clash**: [Link](https://fieldlevelmedia.com/mls/san-diego-maintaining-2025-momentum-entering-st-louis-city-clash/)
+- **Pre-match Preview: CITY SC to face San Diego in first road match of 2026**: [Link](https://www.firstalert4.com/2026/02/27/pre-match-preview-city-sc-face-san-diego-first-road-match-2026/)
+
+
+### tom holland (N/A, 01/03/2026 21:37 Lima)
+
+- **When We Weren't Looking, Zendaya and Tom Holland Married in a Secret Ceremony**: [Link](https://www.harpersbazaar.com/celebrity/latest/a70565539/zendaya-tom-holland-married-wedding-details-law-roach-revealed/)
+- **27 Secret Celebrity Weddings That Were Impressively Kept Under Wraps**: [Link](https://www.sheknows.com/entertainment/slideshow/9990/celebrity-couples-married-in-secret/)
+- **‘Euphoria’ Star, 29, Secretly Marries Superhero Boyfriend**: [Link](https://www.thedailybeast.com/obsessed/euphoria-star-zendaya-29-secretly-marries-superhero-boyfriend-tom-holland-29/)
+
+
+### wolfgang grozo (N/A, 01/03/2026 21:37 Lima)
+
+Sin noticias relacionadas disponibles.
+
+
+### césar nakazaki (N/A, 01/03/2026 21:37 Lima)
+
+- **Caso Lizeth Marzano: Estudio de César Nakazaki asume defensa de Adrián Villar**: [Link](https://rpp.pe/lima/judiciales/adrian-villar-estudio-nakazaki-asume-defensa-en-caso-lizeth-marzano-noticia-1678133)
+- **Lizeth Marzano: Ex abogado de Adrián Villar afirma que su renuncia “responde a una decisión personal”**: [Link](https://elcomercio.pe/lima/sucesos/lizeth-marzano-adrian-villar-su-ex-abogado-afirma-que-su-renuncia-responde-a-una-decision-personal-san-isidro-ultimas-noticia/)
+- **Caso Lizeth Marzano: exabogado Jefferson Moreno dice que Villar tuvo dosaje etílico y peritaje psiquiátrico**: [Link](https://canaln.pe/actualidad/caso-lizeth-marzano-exabogado-adrian-villar-afirma-que-hubo-dosaje-etilico-n490618)
+
+
+### oscars 2026 (N/A, 01/03/2026 21:37 Lima)
+
+- **Ryan Coogler on ‘Sinners,’ Making Oscars History and the Weight of the Moment: ‘My Award Is the Opportunity to Have This Job’**: [Link](https://variety.com/2026/film/awards/ryan-coogler-sinners-oscars-history-award-opportunity-job-1236672077/)
+- **Michael B. Jordan feels 'tremendous sense of joy' seeing Ryan Coogler's success**: [Link](https://www.yahoo.com/entertainment/movies/articles/michael-b-jordan-feels-tremendous-131725397.html)
+- **‘Sinners’: Inside the most nominated film in Oscar history**: [Link](https://tribune.com.pk/story/2595187/sinners-inside-the-most-nominated-film-in-oscar-history)
+
+
+### nacional - peñarol (N/A, 01/03/2026 21:37 Lima)
+
+- **Jadson Viera tras la derrota en el clásico: "Nos vamos dolidos"**: [Link](https://www.espn.com.ar/futbol/uruguay/nota/_/id/16377005/jadson-viera-declaraciones-tras-nacional-vs-penarol-torneo-apertura-2026)
+- **Matías Arezo marcó el gol que puso arriba a Peñarol en el clásico**: [Link](https://espndeportes.espn.com/futbol/uruguay/nota/_/id/16376737/nacional-vs-penarol-gol-matias-arezo)
+- **Nacional 0-1 Peñarol: el aurinegro se llevó el clásico por gol de Arezo y quedó como líder del Apertura**: [Link](https://www.elpais.com.uy/ovacion/futbol/nacional-vs-penarol-en-vivo-el-tricolor-recibe-al-aurinegro-por-el-apertura-en-una-nueva-edicion-del-clasico)
+
+
+### palmeiras - são paulo (N/A, 01/03/2026 21:37 Lima)
+
+- **Calleri lamenta eliminação do São Paulo e cita erro contra o Palmeiras: 'Não podia'**: [Link](https://www.lance.com.br/sao-paulo/calleri-lamenta-eliminacao-do-sao-paulo-e-cita-erro-contra-o-palmeiras-nao-podia.html)
+- **Mesmo com nova polêmica no Choque-Rei, Verdão mereceu mais a final**: [Link](https://ge.globo.com/blogs/blog-do-rodrigo-coutinho/post/2026/03/01/mesmo-com-nova-polemica-no-choque-rei-verdao-merece-mais-a-final.ghtml)
+- **Gol do São Paulo! Daiane Muniz marca pênalti polêmico para o tricolor e Calleri converte**: [Link](https://esportes.r7.com/futebol/campeonato-paulista/video/gol-do-sao-paulo-daiane-muniz-marca-penalti-polemico-para-o-tricolor-e-calleri-converte-02032026/)
+
+
+### tolima - atlético nacional (N/A, 01/03/2026 21:37 Lima)
+
+- **Cierre de fronteras para el partido Deportes Tolima - Atlético Nacional**: [Link](https://www.tolimastereo.com/post/cierre-de-fronteras-para-el-partido-deportes-tolima-atl%C3%A9tico-nacional)
+- **Vamos, Atlético Nacional, a seguir la buena racha en la Liga | Q´HUBO Medellín**: [Link](https://qhubomedellin.com/deportes/futbol/atletico-nacional/vamos-atletico-nacional-a-seguir-la-buena-racha-en-la-liga-EH34006651)
+- **Tolima mide fuerzas ante Nacional antes del viaje a Chile**: [Link](https://elcronista.co/destacadas/tolima-mide-fuerzas-ante-nacional-antes-del-viaje-a-chile)
+
+
+### tigre - gimnasia (N/A, 01/03/2026 21:37 Lima)
+
+- **Pronóstico CA Tigre Gimnasia Y Esgrima La Plata - Liga Profesional Argentina 01/03/26**: [Link](https://www.sportytrader.com/es/pronosticos/ca-tigre-gimnasia-la-plata-330573/)
+- **El plantel esperó el partido en Vicente López**: [Link](https://www.eldia.com/nota/2026-3-1-2-0-56-el-plantel-espero-el-partido-en-vicente-lopez-deportes)
+- **Dos goles en un minuto y sigue ganando Gimnasia**: [Link](https://www.ole.com.ar/futbol-primera/torneo-apertura-tigre-gimnasia_0_uihupt7TQU.html)
+
+
 ### colo-colo - u. de chile (N/A, 01/03/2026 15:34 Lima)
 
 - **Canal TNT Sports EN VIVO, Colo Colo vs. U. de Chile: ver clásico vía HBO MAX por internet**: [Link](https://depor.com/futbol-internacional/chile/tnt-sports-en-vivo-colo-colo-vs-u-de-chile-en-directo-como-ver-clasico-chileno-via-hbo-max-futbol-libre-tv-online-por-internet-liga-de-primera-video-noticia/)
@@ -954,74 +1022,5 @@ Sin noticias relacionadas disponibles.
 - **Neymar entra no Top-10 artilheiros do Santos, que provoca René Simões por crítica ao jogador**: [Link](https://www.estadao.com.br/esportes/futebol/neymar-entra-no-top-10-artilheiros-do-santos-que-provoca-rene-simoes-por-critica-ao-jogador/)
 - **Neymar entra no top-10 dos maiores artilheiros da história do Santos**: [Link](https://placar.com.br/brasileirao/neymar-entra-no-top-10-dos-maiores-artilheiros-da-historia-do-santos/)
 - **De virada, Santos FC goleia Grêmio no CT Rei Pelé e segue 100% no Campeonato Brasileiro Sub-20**: [Link](https://www.santosfc.com.br/de-virada-santos-fc-goleia-gremio-no-ct-rei-pele-e-segue-100-no-campeonato-brasileiro-sub-20/)
-
-
-### neymar (N/A, 26/02/2026 21:34 Lima)
-
-- **El estado físico de Neymar lo pone en el ojo del huracán: El brasileño podría alejarse del Mundial**: [Link](https://us.marca.com/soccer/mundial/2026/02/25/699e6a9246163fda418b45cf.html)
-- **El ocaso de Neymar: en el aire su presencia en el Mundial**: [Link](https://www.msn.com/es-es/deportes/futbol/el-ocaso-de-neymar-en-el-aire-su-presencia-en-el-mundial/ar-AA1X24gv)
-- **Ancelotti cuenta con el beneplácito de Lula para no convocar a Neymar**: [Link](https://www.flashscore.pe/noticias/futbol-paulista-con-neymar-en-duda-lula-dice-que-ancelotti-no-llevara-a-nadie-por-el-nombre-al-mundial/OUiKt0ck/)
-
-
-### flamengo - lanús (N/A, 26/02/2026 21:34 Lima)
-
-- **Dónde ver Lanús vs. Flamengo EN VIVO: canales de TV vía ESPN y Disney Plus por la Recopa Sudamericana**: [Link](https://depor.com/futbol-internacional/resto-del-mundo/donde-ver-flamengo-vs-lanus-en-vivo-online-canales-de-tv-espn-disney-plus-fox-sports-pelota-libre-tv-recopa-sudamericana-2026-video-noticia/)
-- **Flamengo vs Lanus: ¡Juega en la Recopa Sudamericana y gana hasta S/. 600,000 con Meridianbet!**: [Link](https://ovacion.pe/noticias/nota-promocional/flamengo-vs-lanus-juega-recopa-sudamericana-gana-hasta-s-600000)
-- **¿Dónde ver Flamengo vs. Lanús EN VIVO minuto a minuto?**: [Link](https://libero.pe/futbol-internacional/2026/02/25/hora-juega-flamengo-vs-lanus-donde-ver-en-vivo-en-canal-pasan-partido-de-recopa-sudamericana-516075)
-
-
-### river (N/A, 26/02/2026 21:34 Lima)
-
-- **When will the Potomac River be free of sewage?**: [Link](https://wamu.org/story/26/02/25/sewage-spill-free-potomac-river-clean/)
-- **REMINDER: DC Water to Meet Tonight with Impacted Residents in Maryland about Potomac Interceptor Repair Efforts and Remediation**: [Link](https://www.dcwater.com/about-dc-water/media/news/reminder-dc-water-meet-tonight-impacted-residents-maryland-about-potomac)
-- **U.S. Army Corps of Engineers Activates Emergency Operations Center in Support of Potomac Interceptor Spill**: [Link](https://www.hstoday.us/subject-matter-areas/emergency-preparedness/u-s-army-corps-of-engineers-activates-emergency-operations-center-in-support-of-potomac-interceptor-spill/)
-
-
-### estudiantes de río cuarto - huracán (N/A, 26/02/2026 21:34 Lima)
-
-- **Estudiantes de Río Cuarto le ganó a Huracán y consiguió su primer triunfo**: [Link](https://www.espn.com.ar/futbol/argentina/nota/_/id/16354698/estudiantes-rio-cuarto-vs-huracan-por-el-torneo-apertura-equipo-fecha-hora-y-tv-en-vivo)
-- **Torneo Apertura: Estudiantes recibe a Huracán en busca de una victoria**: [Link](https://www.puntal.com.ar/estudiantes-rio-cuarto/torneo-apertura-estudiantes-recibe-huracan-busca-una-victoria-n252894)
-- **Huracán visita a Estudiantes RC**: [Link](https://www.afa.com.ar/es/posts/huracan-visita-a-estudiantes-rc)
-
-
-### racing - independiente rivadavia (N/A, 26/02/2026 15:44 Lima)
-
-- **Qué canal pasa Racing vs Independiente Rivadavia hoy: dónde ver el partido gratis y en vivo de la Liga Profesional**: [Link](https://www.365scores.com/es/news/racing-vs-independiente-rivadavia-canal/)
-- **La sorpresiva variante de Costas en caso de no contar con “Maravilla” Martínez**: [Link](https://noticiasargentinas.com/deportes/la-sorpresiva-variante-de-costas-en-caso-de-no-contar-con--maravilla--martinez_a69a08c94c331fb25183d5bf2)
-- **Maravilla Martínez enciende las alarmas de Racing**: [Link](https://www.elprimergrande.com/noticias/maravilla-martinez-enciende-las-alarmas-de-racing/)
-
-
-### real madrid - bayern (N/A, 26/02/2026 15:44 Lima)
-
-- **Real Madrid-Bayern Munich: EuroLeague returns to the Palacio**: [Link](https://www.realmadrid.com/en-US/news/basket/first-team/fixtures/real-madrid-bayern-munich-26-02-2026)
-- **FC Bayern vs. Madrid: All you need to know**: [Link](https://fcbayern.com/basketball/en/games/profis/euroleague/25-26/real-madrid-fc-bayern-basketball-26-02-2026/preview)
-
-
-### bologna vs (N/A, 26/02/2026 15:44 Lima)
-
-- **Preview: Bologna vs SK Brann - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/bologna/europa-league/preview/bologna-vs-brann-prediction-team-news-lineups_592628.html)
-- **Norway Europa League Soccer**: [Link](https://www.chronicle-tribune.com/sports/wire/norway-europa-league-soccer/image_83e63694-9b08-5e5d-8baa-b3e69ce5f9a3.html)
-- **Di Vaio and Bologna use Fiorentina collapse to motivate squad**: [Link](https://sports.yahoo.com/articles/di-vaio-bologna-fiorentina-collapse-194500391.html)
-
-
-### bologna (N/A, 26/02/2026 15:44 Lima)
-
-- **Bologna: contro il Brann c’è Castro per proseguire la striscia positiva**: [Link](https://onefootball.com/pt-br/noticias/bologna-contro-il-brann-ce-castro-per-proseguire-la-striscia-positiva-42472063)
-- **Di Vaio: “Aspettiamo il vero Orsolini, è imprevedibile: ecco cosa sta succedendo. E Odgaard…”**: [Link](https://www.sosfanta.com/squadra/bologna/di-vaio-aspettiamo-il-vero-orsolini-e-imprevedibile-ecco-cosa-sta-succedendo-e-odgaard/)
-- **Bologna-Brann, i convocati del match: lungo stop per Miranda**: [Link](https://www.bolognasportnews.it/news/549736337976/bologna-brann-i-convocati-del-match-lungo-stop-per-miranda)
-
-
-### lille (N/A, 26/02/2026 15:44 Lima)
-
-- **Lille - Crvena zvezda 0:1**: [Link](https://www.flashscore.com/match/football/crvena-zvezda-ncRzHK14/lille-pfDZL71o/report/?mid=zJe3QYh5)
-- **Serbia Europa League Soccer**: [Link](https://www.thederrick.com/ap/sports/serbia-europa-league-soccer/image_acd447ff-3360-55df-ac61-6461d9520500.html)
-- **Crvena Zvezda Vs Losc: crvena zvezda vs losc preview and team news**: [Link](https://www.filmogaz.com/170014)
-
-
-### genk (N/A, 26/02/2026 15:44 Lima)
-
-- **Ticketinfo KRC Genk - Dinamo Zagreb**: [Link](https://www.krcgenk.be/nl/nieuws/6239/ticketinfo-krc-genk-dinamo-zagreb)
-- **"Misschien hebben we Standard onderschat": Zakaria El Ouahdi laat er geen enkele twijfel over bestaan**: [Link](https://www.voetbalkrant.com/nieuws/2026-02-26/misschien-hebben-we-standard-onderschat-zakaria-el-ouahdi-laat-er-geen-enkele-twijfel-over-bestaan)
-- **Hayen na uitspraak Strupar over de Genkse kansen: “Kijk maar naar Club en Atlético”**: [Link](https://www.voetbalprimeur.be/nieuws/1745910/nicky-hayen-na-uitspraak-strupar-over-de-genkse-kansen.html)
 
 
