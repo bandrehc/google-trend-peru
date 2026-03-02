@@ -1,3 +1,38 @@
+### normas legales el peruano (N/A, 02/03/2026 11:56 Lima)
+
+- **Se deroga el logo “¡El Perú a toda máquina!”: revisa la nueva norma**: [Link](https://www.elperuano.pe/noticia/290064-se-deja-sin-efecto-el-uso-obligatorio-de-el-peru-a-toda-maquina-conoce-la-norma)
+- **Gobierno elimina el logo y la frase "¡El Perú a toda máquina!" adoptado por Jerí**: [Link](https://peru21.pe/politica/gobierno-elimina-el-logo-y-la-frase-el-peru-toda-maquina-adoptado-por-jeri/)
+- **PCM deja sin efecto uso obligatorio del lema “¡El Perú a toda máquina!”**: [Link](https://gestion.pe/peru/politica/pcm-de-denisse-miralles-deja-sin-efecto-uso-obligatorio-del-lema-el-peru-a-toda-maquina-de-jose-jeri-noticia/)
+
+
+### marzo (N/A, 02/03/2026 11:56 Lima)
+
+- **Eclipse total de Luna en marzo 2026: guía para Latinoamérica**: [Link](https://www.dw.com/es/eclipse-total-de-luna-en-marzo-2026-gu%C3%ADa-para-latinoam%C3%A9rica/a-76157333)
+- **La Luna se tiñe de rojo: eclipse total iluminará la madrugada del 3 de marzo**: [Link](https://caretas.pe/nacional/la-luna-se-tine-de-rojo-eclipse-total-iluminara-la-madrugada-del-3-de-marzo/)
+- **Luna de Sangre: estos son los signos más impactados por su energía**: [Link](https://www.telemundo.com/shows/hoy-dia/horoscopos/video/luna-de-sangre-estos-son-los-signos-mas-impactados-por-su-energia-tmvo13136308)
+
+
+### kuwait (N/A, 02/03/2026 11:56 Lima)
+
+- **3 U.S. Planes Are Shot Down in ‘Friendly Fire’ in Kuwait, U.S. Military Says**: [Link](https://www.nytimes.com/2026/03/02/world/middleeast/iran-kuwait-us-attack-planes.html)
+- **Videos appear to show the moments U.S. fighter jets were shot down over Kuwait**: [Link](https://www.washingtonpost.com/investigations/2026/03/02/us-fighter-jets-crash-kuwait-iran-f15/)
+- **Pilot seen on the ground after multiple US planes crash in Kuwait**: [Link](https://www.cnn.com/2026/03/02/world/video/kuwait-pilot-plane-crash-digivid-intldsk)
+
+
+### pisa vs (N/A, 02/03/2026 11:56 Lima)
+
+- **Preview: Pisa vs Bologna - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/pisa/preview/pisa-vs-bologna-prediction-team-news-lineups_592929.html)
+- **✅ Pisa v Bologna: choices on Moreo, Castro, Orsolini, Odgaard**: [Link](https://onefootball.com/en/news/pisa-v-bologna-choices-on-moreo-castro-orsolini-odgaard-42493329)
+- **Serie A Week 27 Liveblog: Pisa vs. Bologna and Udinese vs. Fiorentina**: [Link](https://football-italia.net/serie-a-live-pisa-bologna-udinese-fiorentina/)
+
+
+### beirut (N/A, 02/03/2026 11:56 Lima)
+
+- **Israeli attacks kill 31 in Lebanon, Iran strikes across region, and US warplanes crash in Kuwait**: [Link](https://www.bbc.com/news/live/cy0dp1l57nxt)
+- **Iran Live Updates: Israel Strikes Hezbollah in Lebanon as Trump Says He's Prepared to Fight for Weeks**: [Link](https://www.nytimes.com/live/2026/03/01/world/iran-attack-khamenei-trump)
+- **Hezbollah formally enters conflict, fires rockets at Mishmar military site near Haifa**: [Link](https://www.middleeastmonitor.com/20260302-hezbollah-formally-enters-conflict-fires-rockets-at-mishmar-military-site-near-haifa/)
+
+
 ### claude (N/A, 02/03/2026 08:11 Lima)
 
 - **How Talks Between Anthropic and the Defense Dept. Fell Apart**: [Link](https://www.nytimes.com/2026/03/01/technology/anthropic-defense-dept-openai-talks.html)
@@ -986,40 +1021,5 @@ Sin noticias relacionadas disponibles.
 - **Alejandro Sanz y Stephanie Cayo: ¿Cuál es la diferencia de edad entre el cantante y la actriz que están siendo vinculados?**: [Link](https://www.infobae.com/peru/2026/02/26/alejandro-sanz-y-stephanie-cayo-cual-es-la-diferencia-de-edad-entre-el-cantante-y-la-actriz-que-estan-siendo-vinculados/)
 - **¿Quién es Stephanie Cayo, el supuesto nuevo amor de Alejandro Sanz?**: [Link](https://www.hola.com/us-es/celebrities/20260227886435/alejandro-sanz-quien-es-nuevo-amor-stephanie-cayo/)
 - **¡Rompe el silencio! Alejandro Sanz lanza enigmático mensaje tras rumores de relación con Stephanie Cayo**: [Link](https://elcomercio.pe/respuestas/farandula/rompe-el-silencio-alejandro-sanz-lanza-enigmatico-mensaje-tras-rumores-de-relacion-con-stephanie-cayo-tdpe-noticia/)
-
-
-### sorteo champions 2026 (N/A, 27/02/2026 08:11 Lima)
-
-- **Sorteo Champions League | Así queda el cuadro y los rivales de Real Madrid, Barcelona y Atlético**: [Link](https://www.marca.com/futbol/champions-league/2026/02/27/69a15a1329935a63fa301a09-directo.html)
-- **Sorteo de octavos de final de la Champions: así han quedado los cruces**: [Link](https://elpais.com/deportes/futbol/2026-02-27/sorteo-de-champions-league-los-cruces-de-octavos-de-final.html)
-- **Euroalerta**: [Link](https://as.com/futbol/champions/euroalerta-f202602-n/)
-
-
-### tony cooper (N/A, 27/02/2026 03:50 Lima)
-
-- **‘Bridgerton’ Nicholas Braimbridge Tribute: What Happened to Him?**: [Link](https://parade.com/news/bridgerton-nicholas-braimbridge-tribute-tony-cooper)
-- **Tony Cooper honored in Bridgerton Season 4 finale tribute, longtime crew member dies**: [Link](https://artthreat.net/4302-88136-tony-cooper-honored-in-bridgerton-season-4-finale-tribute-longtime-crew-member-d/)
-- **Who is Tony Cooper as Bridgerton pays tribute?**: [Link](https://www.mirror.co.uk/tv/tv-news/who-tony-cooper-bridgerton-pays-36782779)
-
-
-### blackpink (N/A, 27/02/2026 03:50 Lima)
-
-- **BLACKPINK transcend space and time in 'GO' MV**: [Link](https://www.allkpop.com/video/2026/02/blackpink-transcend-space-and-time-in-go-mv)
-- **BLACKPINK's 'DEADLINE': Every Track Ranked From 'GO' to 'JUMP'**: [Link](https://www.billboard.com/lists/blackpink-deadline-songs-ranked/)
-- **Fans get first listen to BLACKPINK's new album at National Museum of Korea**: [Link](https://www.koreatimes.co.kr/entertainment/20260227/fans-get-first-listen-to-blackpinks-new-album-at-national-museum-of-korea)
-
-
-### jefferson moreno (N/A, 27/02/2026 03:50 Lima)
-
-- **Abogado de Adrián Villar renuncia a su defensa tras su detención por caso Lizeth Marzano**: [Link](https://www.infobae.com/peru/2026/02/27/lizeth-marzano-abogado-de-adrian-villar-renuncia-a-su-defensa-tras-su-detencion-por-caso-lizeth-marzano/)
-- **Jefferson Moreno renuncia a la defensa de Adrián Villar, investigado por muerte de Lizeth Marzano**: [Link](https://rpp.pe/lima/judiciales/jefferson-moreno-renuncia-a-la-defensa-de-adrian-villar-investigado-por-muerte-de-lizeth-marzano-noticia-1677704)
-- **Lizeth Marzano: abogado de Adrián Villar fue colaborador clave en el caso contra la exfiscal Patricia Benavides**: [Link](https://willax.pe/politica/lizeth-marzano-abogado-de-adrian-villar-fue-colaborador-clave-caso-contra-patricia-benavides-willax)
-
-
-### lakers (N/A, 27/02/2026 00:16 Lima)
-
-- **Lakers vs Suns Odds & Picks Tonight: Value on the Total**: [Link](https://www.oddsshark.com/nba/lakers-suns-picks-odds-february-26-2026)
-- **Rui Hachimura Injury: Ruled out with illness**: [Link](https://www.rotowire.com/basketball/headlines/rui-hachimura-injury-ruled-out-with-illness-520608)
-- **NBA & NHL betting guide: Luka Doncic’s Lakers vs. Suns and McDavid’s Oilers headline Thursday night odds**: [Link](https://www.dimers.com/news/nba-and-nhl-betting-guide-luka-doncics-lakers-vs-suns-and-mcdavids-oilers-headline-thursday-night-odds)
 
 
