@@ -1,3 +1,72 @@
+### birmingham city (N/A, 02/03/2026 15:42 Lima)
+
+- **Chris Davies sets out Birmingham City's approach, and it could be good news for Middlesbrough**: [Link](https://www.gazettelive.co.uk/sport/football/football-news/chris-davies-sets-out-birmingham-33512528)
+- **talkSPORT tips – Best football bets and expert advice on Monday 2 March**: [Link](https://talksport.com/football/4013414/talksport-tips-best-football-bets-monday-2-march/)
+- **How to watch today's Birmingham vs Middlesbrough Championship game: Live stream, TV channel, and start time**: [Link](https://www.goal.com/en-ca/news/how-to-watch-birmingham-v-middlesbrough-02032026/blte916cd3832b967d5)
+
+
+### benfica vs (N/A, 02/03/2026 15:42 Lima)
+
+- **Posts Tagged Gianni Infantino Breaks His Silence on the Vinicius-Prestianni Case/**: [Link](https://en.africatopsports.com/tag/gianni-infantino-breaks-his-silence-on-the-vinicius-prestianni-case/)
+- **Një rregull i ri nga FIFA, lojtarët tani mund marrin shumë lehtë kartonë të kuq**: [Link](https://reporteri.net/en/sport/A-new-rule-from-FIFA-means-players-can-now-receive-red-cards-very-easily./)
+- **Gianni Infantino's proposal against racism**: [Link](https://sports.yahoo.com/articles/gianni-infantinos-proposal-against-racism-125000584.html)
+
+
+### cordoba vs (N/A, 02/03/2026 15:42 Lima)
+
+- **Ávalos y Marcone anotaron en el agónico triunfo de Independiente sobre Central Córdoba**: [Link](https://www.espn.com.pe/futbol/argentina/nota/_/id/16372687/video-goles-independiente-vs-central-cordoba-avalos-marcone)
+- **Cuándo juegan Independiente vs. Central Córdoba por el Torneo Apertura 2026: equipo, fecha, hora y TV en vivo**: [Link](https://www.espn.com.pe/futbol/argentina/nota/_/id/16356399/independiente-vs-central-cordoba-por-el-torneo-apertura-2026-equipo-fecha-hora-tv-en-vivo)
+
+
+### fiorentina vs (N/A, 02/03/2026 15:42 Lima)
+
+- **Monday's Serie A predictions and previews including Udinese vs. Fiorentina**: [Link](https://www.sportsmole.co.uk/football/fiorentina/serie-a-predictions/feature/udinese-fiorentina-in-thriller-mondays-serie-a-predictions-and-previews_593022.html)
+- **🔴Udinese 1-0 Fiorentina: Zaniolo, Kabasele star, Astori tribute 🥺**: [Link](https://onefootball.com/en/news/udinese-1-0-fiorentina-zaniolo-kabasele-star-astori-tribute-42493977)
+- **Udinese Calcio vs ACF Fiorentina Odds - Monday March 2 2026**: [Link](https://www.oddsshark.com/soccer/ita-serie-a/udinese-fiorentina-odds-march-1-2026-2404754)
+
+
+### vix (N/A, 02/03/2026 15:42 Lima)
+
+- **VIX climbs amid Iran conflict**: [Link](https://www.marketwatch.com/livecoverage/stock-market-today-dow-set-for-600-point-retreat-as-oil-climbs-5-per-barrel-after-attack-on-iran/card/vix-climbs-amid-iran-conflict-uwyUiGz1KF5ZOHC0KSu1?gaa_at=eafs&gaa_n=AWEtsqccUlmdZ_0E47EZXV9HGNJYKTUymCbv5CwU3cdDEZv2zIt8SFvKR-BB&gaa_ts=69a5f924&gaa_sig=rkmEkayJz9X0LiMB8PxmVgsdEouGoibfzMo0O_Pc7zk2TvT1Dmd2hYsGe3KAxZlPqVd9jGqYnYqLm0zHE9yy7Q%3D%3D)
+- **VIX briefly surpasses 22 'trigger' as traders weigh Iran war**: [Link](https://seekingalpha.com/news/4559595-vix-briefly-surpasses-22-trigger-as-traders-weigh-iran-war)
+- **Wall Street's Fear Gauge Climbs**: [Link](https://www.wsj.com/livecoverage/stock-market-today-oil-prices-iran-attack-03-02-2026/card/wall-street-s-fear-gauge-climbs-fmY7MYQwcZEMW9slaLGS?gaa_at=eafs&gaa_n=AWEtsqfd1q-QPhy2MF0jqlmXDNR8c6sFF7aSZANUV6lc8dej2fZ0SNu25p38&gaa_ts=69a5f924&gaa_sig=s-wC3WH6Cr08AJJgURw0UrN3fn5lOnjNbMd_4v-wJZOOP2Mc-rLcsV4hMYssQEzyIU8gx9-afubShMBXdS2Qwg%3D%3D)
+
+
+### gil vicente - benfica (N/A, 02/03/2026 15:42 Lima)
+
+- **Custou mais de 20 milhões de euros no verão e foi deixado fora dos convocados do Benfica para defrontar o Gil Vicente**: [Link](https://bolanarede.pt/especial-bola-na-rede/atualidade/custou-mais-de-20-milhoes-de-euros-no-verao-e-foi-deixado-fora-dos-convocados-do-benfica-para-defrontar-o-gil-vicente/)
+- **Gil Vicente x Benfica pelo Português: onde assistir ao vivo, horário e escalação**: [Link](https://www.estadao.com.br/esportes/futebol/gil-vicente-x-benfica-campeonato-portugues-onde-assistir-ao-vivo-horario-escalacao-npres/)
+- **AO VIVO: Defesa de recurso de Lucão nega o golo inaugural de Rafa (19')**: [Link](https://www.flashscore.pt/noticias/futebol-liga-portugal-betclic-ao-vivo-defesa-de-recurso-de-lucao-nega-o-golo-inaugural-de-rafa-19/6owh5Zo1/)
+
+
+### ignacio buse (N/A, 02/03/2026 15:42 Lima)
+
+- **Ignacio Buse vs Liam Draxl EN VIVO: cuánto va el partido por qualy del ATP Masters 1000 Indian Wells**: [Link](https://elcomercio.pe/deporte-total/polideportivo/ignacio-buse-vs-liam-draxl-en-vivo-online-via-atp-tv-hora-canal-y-donde-ver-la-qualy-del-atp-masters-1000-indian-wells-noticia/)
+- **Hoy, Ignacio Buse vs Liam Draxl EN VIVO: ¿A qué hora juegan y donde ver la Qualy del Masters 1000 de Indian Wells?**: [Link](https://rpp.pe/tenis/mas-tenis/ignacio-buse-vs-liam-draxl-en-vivo-a-que-hora-juegan-y-donde-ver-qualy-atp-masters-1000-indian-wells-via-atp-tv-link-gratis-noticia-1678149)
+- **Buse se inicia en los Masters 1000: el gran momento del tenis peruano con Nacho top y Gonza pensando en los Grand Slams**: [Link](https://elcomercio.pe/deporte-total/ignacio-buse-en-indian-wells-el-gran-momento-del-tenis-peruano-con-nacho-top-100-y-gonzalo-bueno-pensando-en-los-grand-slams-tlcnota-noticia/)
+
+
+### bologna vs pisa (N/A, 02/03/2026 15:42 Lima)
+
+- **Pisa vs Bologna: Serie A stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cp9m8kzep4mt)
+- **Matteo Tramoni vs. Bologna – Player props & odds to score a goal on March 2**: [Link](https://prosoccerwire.usatoday.com/story/sports/2026/03/01/matteo-tramoni-soccer-player-props-3-2-2026/88937144007/)
+- **The opponents. The infirmary is full. The defense is in emergency.**: [Link](https://sport.quotidiano.net/en/calcio/pisa/gli-avversari-infermeria-piena-emergenza-b2d6d919)
+
+
+### thiago pitarch (N/A, 02/03/2026 15:42 Lima)
+
+- **Thiago Pitarch podría ser titular en el Real Madrid - Getafe**: [Link](https://www.flashscore.pe/noticias/futbol-laliga-ea-sports-pitarch-llama-a-la-puerta-de-la-titularidad-en-el-real-madrid/0S8QWynC/)
+- **Official: Real Madrid starting lineup against Getafe – first start for academy gem**: [Link](https://sports.yahoo.com/articles/official-real-madrid-starting-lineup-183000905.html)
+- **Alvaro Arbeloa considers handing first Real Madrid start to 18-year-old midfielder**: [Link](https://www.football-espana.net/2026/03/02/arbeloa-first-real-madrid-start-midfielder)
+
+
+### real madrid - getafe (N/A, 02/03/2026 15:42 Lima)
+
+- **Real Madrid - Getafe hoy, en directo: LaLiga EA Sports en vivo, última hora en el Bernabéu**: [Link](https://as.com/futbol/primera/real-madrid-getafe-en-directo-previa-y-ultima-hora-de-laliga-ea-sports-hoy-en-vivo-f202603-d/)
+- **Convocatoria del Real Madrid contra el Getafe: se queda fuera Camavinga y vuelven Huijsen y Rodrygo**: [Link](https://www.marca.com/futbol/real-madrid/2026/03/02/convovatoria-real-madrid-getafe-queda-fuera-camavinga-vuelven-huijsen-rodrygo.html)
+- **LaLiga: canales de TV para ver Real Madrid vs. Getafe**: [Link](https://depor.com/futbol-internacional/espana/real-madrid-vs-getafe-en-vivo-fecha-horarios-canales-de-tv-y-donde-ver-transmision-por-espn-movistar-laliga-disney-plus-noticia/)
+
+
 ### normas legales el peruano (N/A, 02/03/2026 11:56 Lima)
 
 - **Se deroga el logo “¡El Perú a toda máquina!”: revisa la nueva norma**: [Link](https://www.elperuano.pe/noticia/290064-se-deja-sin-efecto-el-uso-obligatorio-de-el-peru-a-toda-maquina-conoce-la-norma)
@@ -953,73 +1022,5 @@ Sin noticias relacionadas disponibles.
 - **Levante - Alavés en directo: LaLiga EA Sports hoy, en vivo**: [Link](https://as.com/futbol/primera/levante-alaves-en-directo-laliga-ea-sports-hoy-en-vivo-f202602-d/)
 - **En medio de los rumores de salida de Coudet, Alavés visita a Levante por LaLiga**: [Link](https://www.espn.com.ar/futbol/argentina/nota/_/id/16366559/alaves-vs-levante-la-liga-eduardo-coudet-river)
 - **Luís Castro: "Es difícil, pero no imposible"**: [Link](https://www.vavel.com/es/futbol/2026/02/27/levante/1252287-luis-castro-es-dificil-pero-no-imposible.html)
-
-
-### al ittihad vs (N/A, 27/02/2026 15:34 Lima)
-
-Sin noticias relacionadas disponibles.
-
-
-### pokemon (N/A, 27/02/2026 11:48 Lima)
-
-- **The Next Generation of ‘Pokémon’ Games Is Here**: [Link](https://gizmodo.com/pokemon-gen-10-announced-release-date-nintendo-winds-waves-2000727566)
-- **Pokémon Winds And Waves To Include Brazilian Portuguese Language Option**: [Link](https://www.nintendo-insider.com/pokemon-winds-and-waves-to-include-brazilian-portuguese-language-option/)
-- **News and Updates from the Pokémon Day 2026 Pokémon Presents**: [Link](https://www.pokemon.com/uk/pokemon-news/news-and-updates-from-the-pokemon-day-2026-pokemon-presents)
-
-
-### juan pablo varillas (N/A, 27/02/2026 11:48 Lima)
-
-- **Hoy, Juan Pablo Varillas vs. Diego Dedura EN VIVO: sigue aquí el partido por cuartos del Challenger de Tigre 2**: [Link](https://rpp.pe/tenis/mas-tenis/juan-pablo-varillas-vs-diego-dedura-en-vivo-a-que-hora-juegan-y-donde-ver-cuartos-challenger-de-tigre-ii-2026-via-atp-tour-link-gratis-partidos-de-hoy-noticia-1677718)
-- **Varillas ganó y se instaló en cuartos del Challenger Tigre 2**: [Link](https://ovacion.pe/noticias/tenis/varillas-gano-se-instalo-cuartos-del-challenger-tigre-2)
-- **Se definieron los cuartos de final del AAT Challenger edición Tigre II**: [Link](https://www.infobae.com/deportes/2026/02/26/se-definieron-los-cuartos-de-final-del-aat-challenger-edicion-tigre-ii/)
-
-
-### ssi (N/A, 27/02/2026 11:48 Lima)
-
-- **Social Security March payment schedule: Here’s when recipients get their checks**: [Link](https://www.livenowfox.com/news/social-security-march-payment-schedule)
-- **When do you get your SSI check for March 2026? See payment schedule.**: [Link](https://www.usatoday.com/story/money/2026/02/26/ssi-payment-check-schedule-march-2026/88846338007/)
-- **Why you won't get a Social Security check in March 2026**: [Link](https://www.statesman.com/news/article/social-security-ssi-march-2026-payment-schedule-21938552.php)
-
-
-### barcelona vs newcastle (N/A, 27/02/2026 11:48 Lima)
-
-- **Alan Shearer names who he wants Newcastle to get in the Champions League out of Chelsea or Barcelona**: [Link](https://www.thechelseachronicle.com/news/alan-shearer-names-who-he-wants-newcastle-to-get-in-the-champions-league-out-of-chelsea-or-barcelona/)
-- **Dates set for Magpies' Champions League last 16 tie wit...**: [Link](https://www.newcastleunited.com/en/news/dates-set-for-magpies-champions-league-last-16-tie-with-barcelona)
-- **Barcelona told they must be 'perfect' to beat Newcastle as director Deco wants repeat of earlier Champions League win against Eddie Howe's men**: [Link](https://www.goal.com/en/lists/barcelona-perfect-beat-newcastle-director-deco-champions-league-win-eddie-howe-s-men/blt7b907d7b3d03292c)
-
-
-### alejandro sanz edad (N/A, 27/02/2026 11:48 Lima)
-
-- **Alejandro Sanz cerró su show con un abrazo a Stephanie Cayo**: [Link](https://www.americatv.com.pe/noticias/espectaculos/alejandro-sanz-abrazo-stephanie-cayo-pleno-concierto-n516202)
-- **Alejandro Sanz y Stephanie Cayo: ¿Cuál es la diferencia de edad entre el cantante y la actriz que están siendo vinculados?**: [Link](https://www.infobae.com/peru/2026/02/26/alejandro-sanz-y-stephanie-cayo-cual-es-la-diferencia-de-edad-entre-el-cantante-y-la-actriz-que-estan-siendo-vinculados/)
-- **¡Rompe el silencio! Alejandro Sanz lanza enigmático mensaje tras rumores de relación con Stephanie Cayo**: [Link](https://elcomercio.pe/respuestas/farandula/rompe-el-silencio-alejandro-sanz-lanza-enigmatico-mensaje-tras-rumores-de-relacion-con-stephanie-cayo-tdpe-noticia/)
-
-
-### real madrid vs manchester city (N/A, 27/02/2026 08:11 Lima)
-
-- **UEFA Champions League round of 16, quarter-final and semi-final draw: Where is it, when is it, who is involved?**: [Link](https://www.uefa.com/uefachampionsleague/news/02a2-1ffe3d954170-60c0b7443c85-1000--uefa-champions-league-round-of-16-quarter-final-and-semi/)
-- **Liverpool to face Galatasaray in Champions League last 16**: [Link](https://www.liverpoolfc.com/news/liverpool-face-galatasaray-champions-league-last-16)
-- **Real Madrid-Manchester City in the Champions League Round of 16**: [Link](https://www.realmadrid.com/en-US/news/football/first-team/latest-news/real-madrid-sporting-de-portugal-manchester-city-en-octavos-de-la-champions-27-02-2026)
-
-
-### marca (N/A, 27/02/2026 08:11 Lima)
-
-- **NFZ rozliczy nadwykonania szpitali w 2025 r. Świadczenia limitowane od 30 do 100 proc. wyceny**: [Link](https://politykazdrowotna.com/artykul/nfz-rozliczy-nadwykonania-n2229063)
-- **Szpitale zostają bez pieniędzy. "Czas powiedzieć pacjentom, że nie wszyscy będą leczeni"**: [Link](https://www.msn.com/pl-pl/wiadomosci/polska/szpitale-zostaj%C4%85-bez-pieni%C4%99dzy-czas-powiedzie%C4%87-pacjentom-%C5%BCe-nie-wszyscy-b%C4%99d%C4%85-leczeni/ar-AA1X87q9?cvid=69a0e70fea3f4fb4989db484049a81e1)
-- **NFZ nie płaci szpitalowi, szpital nie zapłacił pracownikom**: [Link](https://ino.online/post/34837/nfz-nie-placi-szpitalowi-szpital-nie-zaplacil-pracownikom.html)
-
-
-### uefa (N/A, 27/02/2026 08:11 Lima)
-
-- **UEFA Avrupa Ligi'nde son 16 turuna kalan takımlar belli oldu**: [Link](https://haberkibris.com/uefa-avrupa-liginde-son-16-turuna-kalan-takimlar-belli-oldu-0929-2026-02-27.html)
-- **BUGÜN HANGİ MAÇLAR VAR 26 ŞUBAT 2026 PERŞEMBE | Bugün maç var mı, bu akşam hangi maçlar var, saat kaçta?**: [Link](https://www.nobetcigazete.com/bugun-hangi-maclar-var-26-subat-2026-persembe-bugun-mac-var-mi-bu-aksam-hangi-maclar-var-saat-kacta)
-- **Avrupa Ligi son 16 turu kura çekimi: Aston Villa Lille ile, Nottingham Forest ise Midtjylland ile karşılaşacak**: [Link](https://www.goal.com/tr/galeri-listesi/avrupa-ligi-son-16-turu-kura-cekimi-aston-villa-lille-ile-nottingham-forest-ise-midtjylland-ile-karsilasacak/blt4ce01dcf41fd44e0)
-
-
-### alejandro sanz y stephanie cayo (N/A, 27/02/2026 08:11 Lima)
-
-- **Alejandro Sanz y Stephanie Cayo: ¿Cuál es la diferencia de edad entre el cantante y la actriz que están siendo vinculados?**: [Link](https://www.infobae.com/peru/2026/02/26/alejandro-sanz-y-stephanie-cayo-cual-es-la-diferencia-de-edad-entre-el-cantante-y-la-actriz-que-estan-siendo-vinculados/)
-- **¿Quién es Stephanie Cayo, el supuesto nuevo amor de Alejandro Sanz?**: [Link](https://www.hola.com/us-es/celebrities/20260227886435/alejandro-sanz-quien-es-nuevo-amor-stephanie-cayo/)
-- **¡Rompe el silencio! Alejandro Sanz lanza enigmático mensaje tras rumores de relación con Stephanie Cayo**: [Link](https://elcomercio.pe/respuestas/farandula/rompe-el-silencio-alejandro-sanz-lanza-enigmatico-mensaje-tras-rumores-de-relacion-con-stephanie-cayo-tdpe-noticia/)
 
 
