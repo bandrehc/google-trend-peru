@@ -1,3 +1,70 @@
+### alessandra denegri (N/A, 02/03/2026 00:17 Lima)
+
+- **Alessandra Denegri: reacción por regreso de Cayetana AFHS**: [Link](https://www.americatv.com.pe/mas-espectaculos/alessandra-denegri-y-su-reaccion-al-regreso-cayetana-afhs-noticia-163125)
+- **Al Fondo Hay Sitio: Cayetana Bogani reaparece en la serie**: [Link](https://www.infobae.com/video/peru/al-fondo-hay-sitio-cayetana-bogani-reaparece-en-la-serie/u6kg1fh3/)
+- **¡Cayetana vuelve a 'Al fondo hay sitio' tras más de 10 años!: la 'Chamaquita' pondrá en peligro relación entre Joel y Macarena**: [Link](https://larepublica.pe/cine-series/2026/02/28/cayetana-vuelve-a-al-fondo-hay-sitio-tras-mas-de-10-anos-la-chamaquita-pondra-en-peligro-relacion-entre-joel-y-macarena-454636)
+
+
+### juan montenegro abogado (N/A, 02/03/2026 00:17 Lima)
+
+- **Decano del CAL sostiene que padre de Francesca Montenegro y exdefensa de Adrián Villar podrían ser expulsados: ''Problemas éticos y legales''**: [Link](https://larepublica.pe/sociedad/2026/02/27/decano-del-cal-sostiene-que-padre-de-francesca-montenegro-y-exdefensa-de-adrian-villar-podrian-ser-expulsados-problemas-eticos-y-legales-ntpe-1572021)
+- **"Hay indicios de comportamiento incorrecto": Raúl Canelo sobre padre de Francesca Montenegro**: [Link](https://rpp.pe/videos/prueba-de-fuego/hay-indicios-de-comportamiento-incorrecto-raul-canelo-sobre-padre-de-francesca-montenegro-noticia-1677723)
+- **Colegio de Abogados evalúa expulsar al padre de influencer Francesca Montenegro por posible encubrimiento de Adrián Villar**: [Link](https://www.infobae.com/peru/2026/02/27/colegio-de-abogados-evalua-expulsar-al-padre-de-influencer-francesca-montenegro-por-posible-encubrimiento-de-adrian-villar/)
+
+
+### liam draxl (N/A, 02/03/2026 00:17 Lima)
+
+- **Ignacio Buse vs Liam Draxl: ¿A qué hora juegan y donde ver la Qualy del Masters 1000 de Indian Wells?**: [Link](https://rpp.pe/tenis/mas-tenis/ignacio-buse-vs-liam-draxl-en-vivo-a-que-hora-juegan-y-donde-ver-qualy-atp-masters-1000-indian-wells-via-atp-tv-link-gratis-noticia-1678149)
+- **Buse se inicia en los Masters 1000: el gran momento del tenis peruano con Nacho top y Gonza pensando en los Grand Slams**: [Link](https://elcomercio.pe/deporte-total/ignacio-buse-en-indian-wells-el-gran-momento-del-tenis-peruano-con-nacho-top-100-y-gonzalo-bueno-pensando-en-los-grand-slams-tlcnota-noticia/)
+
+
+### francesca montenegro (N/A, 02/03/2026 00:17 Lima)
+
+- **Francesca Montenegro ofreció contactos de "peces gordos" a Adrián Villar tras muerte de Lizeth Marzano**: [Link](https://peru21.pe/lima/francesca-montenegro-ofrecio-contactos-de-peces-gordos-adrian-villar-tras-muerte-de-lizeth-marzano/)
+- **Revelan chat entre Adrián Villar y Francesca Montenegro: “Para ver si te pasa uno de sus peces gordos”**: [Link](https://trome.com/actualidad/policiales/adrian-villar-y-francesca-montenegro-revelan-chats-entre-ellos-tras-atropello-a-lizeth-marzano-para-que-te-pase-uno-de-sus-peces-gordos-video-historia-de-policiales-noticia/)
+- **“No hemos rehuido a las investigaciones”: padre de expareja de Adrián Villar se pronuncia tras rendir declaración**: [Link](https://rpp.pe/lima/judiciales/lizeth-marzano-padre-de-expareja-de-adrian-villar-rindio-declaracion-en-dependencia-policial-noticia-1678027)
+
+
+### cesar nakazaki (N/A, 02/03/2026 00:17 Lima)
+
+- **Poder Judicial inicia audiencia de prisión preventiva contra Adrián Villar**: [Link](https://andina.pe/agencia/noticia-poder-judicial-inicia-audiencia-prision-preventiva-contra-adrian-villar-1064976.aspx)
+- **Chats inéditos tras el atropello y muerte de Lizeth Marzano**: [Link](https://www.americatv.com.pe/noticias/actualidad/chats-ineditos-atropello-y-muerte-lizeth-marzano-n516260)
+- **Caso Lizeth Marzano: Estudio de César Nakazaki asume defensa de Adrián Villar**: [Link](https://rpp.pe/lima/judiciales/adrian-villar-estudio-nakazaki-asume-defensa-en-caso-lizeth-marzano-noticia-1678133)
+
+
+### panorama (N/A, 02/03/2026 00:17 Lima)
+
+- **Israel dice que lleva a cabo "ataques a gran escala" sobre Teherán**: [Link](https://andina.pe/agencia/noticia-israel-dice-lleva-a-cabo-ataques-a-gran-escala-sobre-teheran-1064979.aspx)
+- **Israel y Arabia Saudí presionaron a Trump para atacar a Irán, según The Washington Post**: [Link](https://rpp.pe/mundo/actualidad/israel-y-arabia-saudi-presionaron-a-trump-para-atacar-a-iran-segun-the-washington-post-noticia-1678055)
+- **Israel asegura que mató a 40 comandantes y altos funcionarios iraníes "en un minuto" últimas**: [Link](https://elcomercio.pe/mundo/oriente-medio/israel-asegura-que-mato-a-40-comandantes-y-altos-funcionarios-iranies-en-un-minuto-ultimas-noticia/)
+
+
+### kings - lakers (N/A, 02/03/2026 00:17 Lima)
+
+- **Lakers’ LeBron James playing vs Kings to close out back-to-back**: [Link](https://nypost.com/2026/03/01/sports/lakers-lebron-james-lands-on-injury-report-ahead-of-kings-game/)
+- **NBA Best Bets: Kings at Lakers Best Prop Bets for Sunday 3/1/26**: [Link](https://dknetwork.draftkings.com/2026/03/01/nba-best-bets-kings-at-lakers-best-prop-bets-for-sunday-3-1-26/)
+- **Injury updates: LeBron James, Keegan Murray and more ahead of Lakers vs. Kings**: [Link](https://sports.yahoo.com/articles/injury-updates-lebron-james-keegan-003311585.html)
+
+
+### canal 5 en vivo (N/A, 02/03/2026 00:17 Lima)
+
+- **Brian Rodríguez marcó un gol en la dura derrota del América**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/16375351/brian-rodriguez-america-gol-vs-tigres-2026)
+- **Qué canal pasa América vs Tigres hoy: dónde ver GRATIS y EN VIVO el partido de la Liga MX**: [Link](https://www.365scores.com/es/news/america-vs-tigres-donde-ver-vivo-gratis/)
+- **Expertos aseguran que la tarjeta roja de Vinicius Lima fue injusta**: [Link](https://americamonumental.bolavip.com/ligamx/expertos-aseguran-que-la-tarjeta-roja-de-vinicius-lima-fue-injusta)
+
+
+### harrison ford (N/A, 02/03/2026 00:17 Lima)
+
+- **Harrison Ford gets tearful while accepting SAG-AFTRA Life Achievement Award**: [Link](https://www.latimes.com/entertainment-arts/awards/story/2026-03-01/harrison-ford-sag-life-achievement-actor-awards-2026-speech)
+- **Special Honoree Harrison Ford Arrives at Actor Awards 2026 With Wife Calista Flockhart**: [Link](https://www.imdb.com/it/news/ni65730777/?ref_=nwc_art_perm)
+- **Woody Harrelson Says He Became Friends with Harrison Ford by Following Him Into a Sushi Restaurant**: [Link](https://www.aol.com/articles/woody-harrelson-says-became-friends-031632128.html)
+
+
+### panamericana tv en vivo (N/A, 02/03/2026 00:17 Lima)
+
+Sin noticias relacionadas disponibles.
+
+
 ### catherine o'hara (N/A, 01/03/2026 21:37 Lima)
 
 - **Catherine O'Hara wins posthumous SAG-AFTRA Actor Award for 'The Studio'**: [Link](https://www.nbcnews.com/pop-culture/pop-culture-news/catherine-ohara-wins-posthumous-sag-aftra-actor-award-studio-rcna261248)
@@ -954,73 +1021,5 @@ Sin noticias relacionadas disponibles.
 - **Julio Iglesias: entre el mito del seductor y las denuncias de abuso**: [Link](https://oncenoticias.digital/entretenimiento/julio-iglesias-entre-el-mito-del-seductor-y-las-denuncias-de-abuso/551265/)
 - **Morant respalda a Yolanda Díaz tras la demanda de Julio Iglesias: "Son comportamientos fuera de lo aceptable"**: [Link](https://www.notimerica.com/sociedad/noticia-morant-respalda-yolanda-diaz-demanda-julio-iglesias-son-comportamientos-fuera-aceptable-20260225124801.html)
 - **Julio Iglesias y la vulneración del principio de presunción de inocencia**: [Link](https://www.libertaddigital.com/opinion/2026-02-25/editorial-julio-iglesias-y-la-vulneracion-del-principio-de-presuncion-de-inocencia-7364812/)
-
-
-### gorillaz en peru (N/A, 27/02/2026 00:16 Lima)
-
-- **GORILLAZ VISITARÁ PRÓXIMAMENTE MÉXICO CON UN EXCLUSIVO LISTENING PARTY. ¿QUÉ NO ESPERA EN LIMA?**: [Link](https://blog.ticketmaster.pe/noticias-ticketmaster/gorillaz-visitara-proximamente-mexico-con-un-exclusivo-listening-party-que-no-espera-en-lima-3732/)
-- **¿Gorillaz en Perú? Afiches con presuntas coordenadas encienden la expectativa en el país**: [Link](https://www.mercadonegro.pe/marketing/gorillaz-en-peru-afiches-con-presuntas-coordenadas-encienden-la-expectativa-en-el-pais/)
-- **GORILLAZ EN LATINOAMÉRICA: ESTO ES LO QUE SABEMOS DE LA GIRA**: [Link](https://blog.ticketmaster.pe/concierto/gorillaz-en-latinoamerica-esto-es-lo-que-sabemos-de-la-gira-de-la-banda-3789/)
-
-
-### gustavo cerati (N/A, 27/02/2026 00:16 Lima)
-
-- **‘‘Una eternidad esperé este instante’’: falta un mes para la gira de Soda Stereo**: [Link](https://tolimaonline.com/una-eternidad-espere-este-instante-falta-un-mes-para-la-gira-de-soda-stereo/)
-
-
-### inter miami vs independiente del valle (N/A, 27/02/2026 00:16 Lima)
-
-- **Inter Miami vs. Independiente del Valle: cómo ver el amistoso en vivo**: [Link](https://www.espn.com.pe/futbol/nota/_/id/16358562/inter-miami-vs-independiente-del-valle-como-ver-el-amistoso-en-vivo)
-- **Independiente del Valle vs. Inter Miami hoy online: a qué hora juegan y en qué canal ver el amistoso**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/independiente-del-valle-vs-inter-miami-en-vivo-online-gratis-con-lionel-messi-por-amistoso-a-que-hora-juegan-canal-que-transmite-y-donde-ver-por-espn-disney-plus-video-noticia/)
-- **VER ESPN EN VIVO: dónde transmiten Independiente del Valle vs. Inter Miami 2026**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/espn-en-vivo-gratis-idv-vs-inter-miami-hoy-online-via-disney-plus-por-amistoso-del-champions-tour-2026-video-noticia/)
-
-
-### setlist alejandro sanz 2026 (N/A, 27/02/2026 00:16 Lima)
-
-- **"Ella deja el Perú arriba": Alejandro Sanz elogió a baterista peruana Gisella Giurfa durante concierto [VIDEO]**: [Link](https://rpp.pe/famosos/celebridades/alejandro-sanz-elogia-a-baterista-peruana-gisella-giurfa-durante-concierto-en-estadio-nacional-video-noticia-1677633)
-- **Primer concierto de Alejandro Sanz en Lima pese a lluvia**: [Link](https://www.americatv.com.pe/noticias/espectaculos/alejandro-sanz-emociono-fans-su-primer-concierto-lima-n516168)
-- **Alejandro Sanz en su primer concierto en el Estadio Nacional: En medio de una lluvia de amor y melancolía**: [Link](https://andina.pe/agencia/galeria-alejandro-sanz-su-primer-concierto-el-estadio-nacional-medio-una-lluvia-amor-y-melancolia-28792.aspx)
-
-
-### lakers - suns (N/A, 26/02/2026 21:34 Lima)
-
-- **Lakers vs Suns Odds & Picks Tonight: Value on the Total**: [Link](https://www.oddsshark.com/nba/lakers-suns-picks-odds-february-26-2026)
-- **Rui Hachimura Injury: Ruled out with illness**: [Link](https://www.rotowire.com/basketball/headlines/rui-hachimura-injury-ruled-out-with-illness-520608)
-- **NBA & NHL betting guide: Luka Doncic’s Lakers vs. Suns and McDavid’s Oilers headline Thursday night odds**: [Link](https://www.dimers.com/news/nba-and-nhl-betting-guide-luka-doncics-lakers-vs-suns-and-mcdavids-oilers-headline-thursday-night-odds)
-
-
-### messi (N/A, 26/02/2026 21:34 Lima)
-
-- **Inter Miami vs. Independiente del Valle: cómo ver el amistoso en vivo**: [Link](https://www.espn.com.pe/futbol/nota/_/id/16358562/inter-miami-vs-independiente-del-valle-como-ver-el-amistoso-en-vivo)
-- **Independiente del Valle vs. Inter Miami hoy online: a qué hora juegan y en qué canal ver el amistoso**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/independiente-del-valle-vs-inter-miami-en-vivo-online-gratis-con-lionel-messi-por-amistoso-a-que-hora-juegan-canal-que-transmite-y-donde-ver-por-espn-disney-plus-video-noticia/)
-- **Cuándo juega Independiente del Valle vs. Inter Miami: equipo, fecha, hora y TV en vivo**: [Link](https://www.espn.com.pe/futbol/nota/_/id/16355279/cuando-juega-independiente-del-valle-vs-inter-miami-equipo-fecha-hora-y-tv-en-vivo)
-
-
-### concierto hoy (N/A, 26/02/2026 21:34 Lima)
-
-- **Con lluvia y mucho romance, Alejandro Sanz enamoró Lima en un emblemático concierto [CRÓNICA]**: [Link](https://rpp.pe/musica/conciertos/alejandro-sanz-enamora-lima-en-plena-lluvia-en-su-concierto-en-el-estadio-nacional-cronica-noticia-1677539)
-- **Alejandro Sanz en su primer concierto en el Estadio Nacional: En medio de una lluvia de amor y melancolía**: [Link](https://andina.pe/agencia/galeria-alejandro-sanz-su-primer-concierto-el-estadio-nacional-medio-una-lluvia-amor-y-melancolia-28792.aspx)
-- **Amplían horario del Metropolitano por concierto de Alejandro Sanz: rutas y paraderos este 25 y 26 de febrero**: [Link](https://larepublica.pe/sociedad/2026/02/25/amplian-horario-del-metropolitano-por-concierto-de-alejandro-sanz-rutas-y-paraderos-este-25-y-26-de-febrero-1661475)
-
-
-### millonarios vs (N/A, 26/02/2026 21:34 Lima)
-
-- **Bustos mantiene el mismo XI con el que perdió ante Inter de Bogotá: así jugará ante Pereira**: [Link](https://www.elfutbolero.com.co/primeraa/bustos-mantiene-el-mismo-xi-con-el-que-perdio-ante-inter-de-bogota-asi-jugara-ante-pereira-20260226-73831.html)
-- **Millonarios y Pereira abrirán la Liga, mientras que Boca Juniors de Cali y Barranquilla FC el Torneo**: [Link](https://www.boyacaradio.com/noticia.php?id=61119)
-- **Inicia la novena fecha de la liga**: [Link](https://elmeridiano.co/sucre/deportes/inicia-la-novena-fecha-de-la-liga-fvjgfy)
-
-
-### tolima - deportivo táchira (N/A, 26/02/2026 21:34 Lima)
-
-- **Copa Libertadores: Por la llave 2 se enfrentarán Tolima y Táchira**: [Link](https://rpp.pe/futbol/ligas-internacionales/copa-libertadores-por-la-llave-2-se-enfrentaran-tolima-y-tachira-noticia-1677473)
-- **Transmisión EN VIVO del Deportes Tolima vs Deportivo Táchira hoy: cómo mirar el partido por TV o streaming**: [Link](https://www.365scores.com/es/news/tolima-vs-tachira-transmision-vivo/)
-- **El Deportivo Táchira se juega la vida en la Copa ante Deportes Tolima en Ibagué**: [Link](https://onefootball.com/en/news/el-deportivo-tachira-se-juega-la-vida-en-la-copa-ante-deportes-tolima-en-ibague-42467460)
-
-
-### santos fc (N/A, 26/02/2026 21:34 Lima)
-
-- **Neymar entra no Top-10 artilheiros do Santos, que provoca René Simões por crítica ao jogador**: [Link](https://www.estadao.com.br/esportes/futebol/neymar-entra-no-top-10-artilheiros-do-santos-que-provoca-rene-simoes-por-critica-ao-jogador/)
-- **Neymar entra no top-10 dos maiores artilheiros da história do Santos**: [Link](https://placar.com.br/brasileirao/neymar-entra-no-top-10-dos-maiores-artilheiros-da-historia-do-santos/)
-- **De virada, Santos FC goleia Grêmio no CT Rei Pelé e segue 100% no Campeonato Brasileiro Sub-20**: [Link](https://www.santosfc.com.br/de-virada-santos-fc-goleia-gremio-no-ct-rei-pele-e-segue-100-no-campeonato-brasileiro-sub-20/)
 
 
