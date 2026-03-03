@@ -1,3 +1,73 @@
+### copa sudamericana (N/A, 02/03/2026 21:40 Lima)
+
+- **Millonarios en marzo: fechas y rivales decisivos en Liga BetPlay y Copa Sudamericana**: [Link](https://www.infobae.com/colombia/deportes/2026/03/01/millonarios-en-marzo-fechas-y-rivales-decisivos-en-liga-betplay-y-copa-sudamericana/)
+- **Sigue en vivo El Vbar de AS: ¿Quién gana entre Nacional y Millonarios?**: [Link](https://colombia.as.com/videos/sigue-en-vivo-el-vbar-de-as-quien-gana-entre-nacional-y-millonarios-f202603-v/)
+- **Edwin Cardona pierde protagonismo en Nacional y queda fuera del duelo ante Millonarios**: [Link](https://www.elheraldo.co/deportes/2026/03/02/edwin-cardona-pierde-protagonismo-en-nacional-y-queda-fuera-del-duelo-ante-millonarios/)
+
+
+### rinky hijikata (N/A, 02/03/2026 21:40 Lima)
+
+- **Vamos, Perú: Ignacio Buse venció 2-0 a Liam Draxl por la Qualy del Masters 1000 de Indian Wells**: [Link](https://rpp.pe/tenis/mas-tenis/ignacio-buse-vs-liam-draxl-en-vivo-a-que-hora-juegan-y-donde-ver-qualy-atp-masters-1000-indian-wells-via-atp-tv-link-gratis-noticia-1678149)
+- **Ignacio Buse venció a canadiense Liam Draxl en la fase previa del Indian Wells**: [Link](https://trome.com/deportes/ignacio-buse-vencio-a-canadiense-liam-draxl-en-la-fase-previa-del-indian-wells-noticia/)
+- **Ignacio Buse ganó al canadiense Liam Draxl y está a un paso de entrar al cuadro principal de Indian**: [Link](https://www.apnoticias.pe/peru/diario-uno/ignacio-buse-gano-al-canadiense-liam-draxl-y-esta-a-un-paso-de-entrar-al-cuadro-principal-de-indian-wells-1492122)
+
+
+### madureira - flamengo (N/A, 02/03/2026 21:40 Lima)
+
+- **Flamengo divulga escalação para semifinal do Carioca 2026; Veja**: [Link](https://francesnews.com.br/post/2026/03/26/16414-flamengo-divulga-escalacao-para-semifinal-do-carioca-2026-veja)
+- **Madureira x Flamengo: acompanhe a transmissão da TMC ao vivo**: [Link](https://tmc.com.br/ultimas-noticias/madureira-x-flamengo-acompanhe-a-transmissao-da-tmc-ao-vivo/)
+- **Aos 3 min do 2º tempo - assistência de Evertton Araujo do Flamengo contra o Madureira**: [Link](https://ge.globo.com/futebol/video/aos-3-min-do-2o-tempo-assistencia-de-evertton-araujo-do-flamengo-contra-o-madureira-14394337.ghtml)
+
+
+### river (N/A, 02/03/2026 21:40 Lima)
+
+- **Small plane makes emergency landing in Hudson River near Newburgh**: [Link](https://www.timesunion.com/hudsonvalley/news/article/plane-crash-hudson-river-newburgh-survivors-21951623.php)
+- **BREAKING… Cessna plane crashes in Hudson River off Newburgh**: [Link](https://midhudsonnews.com/2026/03/02/breaking-cessna-plane-crashed-in-hudson-river-off-newburgh/)
+- **Small plane crashes into Hudson River in New York**: [Link](https://bnonews.com/index.php/2026/03/small-plane-crashes-into-hudson-river-in-new-york/)
+
+
+### banfield - aldosivi (N/A, 02/03/2026 21:40 Lima)
+
+- **Pronóstico CA Banfield Aldosivi - Liga Profesional Argentina 02/03/26**: [Link](https://www.sportytrader.com/es/pronosticos/ca-banfield-aldosivi-331034/)
+- **Preocupante: Aldosivi sumó su cuarta caída en siete partidos**: [Link](https://ahoramardelplata.com.ar/deportes/preocupante-aldosivi-sumo-su-cuarta-caida-en-siete-partidos)
+- **Con gol de Gómez, Banfield le gana a Aldosivi**: [Link](https://www.ole.com.ar/futbol-primera/banfield-aldosivi-apertura_0_gzcxTtS538.html)
+
+
+### carioca serie a (N/A, 02/03/2026 21:40 Lima)
+
+- **Final do Campeonato Carioca 2026: saiba quando e onde assistir**: [Link](https://cbn.globo.com/esporte/noticia/2026/03/02/final-do-campeonato-carioca-2026-saiba-quando-e-onde-assistir.ghtml)
+- **Mauro Cezar aponta favorito claro em Fluminense x Flamengo**: [Link](https://www.lance.com.br/fora-de-campo/mauro-cezar-aponta-favorito-claro-em-fluminense-x-flamengo.html)
+- **Minhas impressões**: [Link](https://tribunaonline.com.br/coluna/gilmar-ferreira/minhas-impressoes-293869)
+
+
+### river plate vs (N/A, 02/03/2026 21:40 Lima)
+
+- **I Rivadavia vs. River Plate (2 de Mar., 2026) Resultados en Vivo**: [Link](https://espndeportes.espn.com/futbol/partido/_/juegoId/762888)
+- **I Rivadavia vs. River Plate (2 de Mar., 2026) Resultados en Vivo**: [Link](https://www.espn.com.pe/futbol/partido/_/juegoId/762888)
+- **A la espera de Coudet, River empató con Independiente Rivadavia por el Torneo Apertura: reviví lo mejor**: [Link](https://www.tycsports.com/liga-profesional-de-futbol/argentina-torneo-apertura-2026-independiente-riv-m-vs-river-plate-fecha-8-id715807.html)
+
+
+### independiente del valle (N/A, 02/03/2026 21:40 Lima)
+
+- **La formación de Independiente del Valle vs. Manta por la Liga Ecuabet**: [Link](https://www.espn.com.ar/futbol/ecuador/nota/_/id/16377904/la-formacion-de-independiente-del-valle-vs-manta-liga-ecuabet)
+- **Manta vs Independiente del Valle por la LigaPro, EN VIVO: los Atuneros presionan y complican al campeón**: [Link](https://www.ole.com.ar/ecuador/liga-pro/manta-independiente-valle-ligapro-fecha2-vivo-horario-ver-tv-canal-videos-golesresultado_0_h9mayeTPnU.html)
+- **Manta vs. Independiente del Valle EN VIVO: minuto a minuto del partido | fecha 2 LigaPro 2026**: [Link](https://www.extra.ec/noticia/deportes/manta-vs-independiente-valle-vivo-minuto-minuto-partido-fecha-2-ligapro-2026-148126.html)
+
+
+### independiente rivadavia - river plate (N/A, 02/03/2026 21:40 Lima)
+
+- **A la espera de Coudet, River empató con Independiente Rivadavia por el Torneo Apertura: reviví lo mejor**: [Link](https://www.tycsports.com/liga-profesional-de-futbol/argentina-torneo-apertura-2026-independiente-riv-m-vs-river-plate-fecha-8-id715807.html)
+- **Gonzalo Ríos se destacó con un bombazo de afuera del área para el 1-0 de Independiente Rivadavia vs. River**: [Link](https://www.espn.com.ar/futbol/argentina/nota/_/id/16380600/video-gol-de-gonzalo-rios-independiente-rivadavia-vs-river-plate)
+- **Montiel llegó al área y empató Independiente Rivadavia vs. River con un gol de cabeza**: [Link](https://espndeportes.espn.com/futbol/argentina/nota/_/id/16380654/independiente-rivadavia-vs-river-video-gonzalo-montiel-gol-apertura)
+
+
+### luna llena (N/A, 02/03/2026 21:40 Lima)
+
+- **Eclipse total lunar de marzo: ¿cuándo y dónde podrá verse la luna de sangre?**: [Link](https://cnnespanol.cnn.com/2026/03/02/ciencia/eclipse-total-lunar-marzo-luna-de-sangre-orix)
+- **Eclipses, lluvias de meteoros y más: los eventos astronómicos de marzo de 2026 que no te puedes perder**: [Link](https://elcomercio.pe/mag/respuestas/ciencias/eclipses-lluvias-de-meteoros-y-mas-los-eventos-astronomicos-de-marzo-de-2026-que-no-te-puedes-perder-nnda-nnrt-noticia/)
+- **Luna de sangre: cuándo y dónde se podrá ver el eclipse lunar total del 3 marzo**: [Link](https://www.infobae.com/america/ciencia-america/2026/03/02/luna-de-sangre-cuando-y-donde-se-podra-ver-el-eclipse-lunar-total-del-3-marzo/)
+
+
 ### birmingham city (N/A, 02/03/2026 15:42 Lima)
 
 - **Chris Davies sets out Birmingham City's approach, and it could be good news for Middlesbrough**: [Link](https://www.gazettelive.co.uk/sport/football/football-news/chris-davies-sets-out-birmingham-33512528)
@@ -956,71 +1026,5 @@ Sin noticias relacionadas disponibles.
 - **Cusco se detiene por el clásico**: [Link](https://caretas.pe/deportes/cusco-se-detiene-por-el-clasico/)
 - **Pronóstico Deportivo Garcilaso Cienciano - Liga 1 Perú 27/02/26**: [Link](https://www.sportytrader.com/es/pronosticos/deportivo-garcilaso-cienciano-330331/)
 - **🔴#ENVIVO | Cienciano vence 1-0 a Garcilaso en el clásico cusqueño | VIDEO**: [Link](https://ovacion.pe/noticias/liga1-2026/envivo-cienciano-vence-1-0-garcilaso-clasico-cusqueno-video)
-
-
-### segunda división (N/A, 27/02/2026 21:24 Lima)
-
-- **Cristiano Ronaldo cumple con su promesa de ser dueño de un club de fútbol y se une a un selecto grupo**: [Link](https://cnnespanol.cnn.com/2026/02/26/deportes/cristiano-ronaldo-propietario-dueno-equipo-de-futbol-orix)
-- **Cristiano Ronaldo, un reclamo internacional para la Unión Deportiva Almería**: [Link](https://as.com/futbol/segunda/cristiano-ronaldo-un-reclamo-internacional-para-la-union-deportiva-almeria-f202602-n/)
-- **¿Lo llamará? Cristiano Ronaldo compra club donde un peruano es leyenda**: [Link](https://bolavip.com/pe/futbol-internacional/lo-llamara-cristiano-ronaldo-compra-club-donde-un-peruano-es-leyenda)
-
-
-### alianza atlético - adt (N/A, 27/02/2026 15:34 Lima)
-
-- **Liga 1: Por la fecha 5, Alianza Atlético recibirá a ADT de Tarma**: [Link](https://rpp.pe/futbol/descentralizado/liga-1-por-la-fecha-5-alianza-atletico-recibira-a-adt-de-tarma-noticia-1677588)
-- **Liga 1: Alianza Atlético sale a ganar hoy a los tarmeños**: [Link](https://diariocorreo.pe/deportes/liga-1-alianza-atletico-sale-a-ganar-hoy-a-los-tarmenos-noticia/)
-- **🔴#ENVIVO Conoce las alineaciones de Alianza Atlético y ADT**: [Link](https://ovacion.pe/noticias/liga1-2026/envivo-conoce-las-alineaciones-alianza-atletico-adt)
-
-
-### augsburgo (N/A, 27/02/2026 15:34 Lima)
-
-Sin noticias relacionadas disponibles.
-
-
-### wolfgang grozo (N/A, 27/02/2026 15:34 Lima)
-
-- **RMP cuestiona a Balcázar y Hernando de Soto: “Estos dos señores de 84 y 83 años están fuera de la realidad”**: [Link](https://larepublica.pe/politica/2026/02/23/rmp-cuestiona-a-balcazar-y-hernando-de-soto-estos-dos-senores-de-84-y-83-anos-estan-fuera-de-la-realidad-hnews-1464755)
-
-
-### al ittihad (N/A, 27/02/2026 15:34 Lima)
-
-- **Al-Ittihad Recovers Striker En-Nesyri After Al-Hazm Absence**: [Link](https://m.elbotola.com/en/article/2026-02-26-13-40-148.html)
-- **Where to Watch Al Ittihad vs Al Khaleej - Live Streaming and TV Channels**: [Link](https://www.sportsdunia.com/football-news/al-ittihad-vs-al-khaleej-live-stream-saudi-pro-league-27th-february-2026)
-- **Al-Ittihad Regains Al-Shehri and Al-Julaydan Ahead of Clash with Al-Khaleej**: [Link](https://koorabreak.com/en/261545/)
-
-
-### porto (N/A, 27/02/2026 15:34 Lima)
-
-- **«Sidny tive uma atitude irrefletida, mas Prestianni também não esteve bem»**: [Link](https://www.abola.pt/video/sidny-tive-uma-atitude-irrefletida-mas-prestianni-tambem-nao-esteve-bem-2026022719243887941)
-- **A dedicatória a Borja Sainz entre as melhores imagens do FC Porto-Arouca**: [Link](https://www.abola.pt/galeria/a-dedicatoria-a-borja-sainz-entre-as-melhores-imagens-do-fc-porto-arouca-2026022720092302707)
-- **O onze do Sporting para o Estoril**: [Link](https://www.abola.pt/galeria/o-onze-do-sporting-para-o-estoril-2026022522471169193)
-
-
-### porto vs (N/A, 27/02/2026 15:34 Lima)
-
-- **Preview: Porto vs Arouca - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/porto/preview/porto-vs-arouca-prediction-team-news-lineups_592687.html)
-- **Live: Arruabarrena Blocks Pietuszewski’s Shot as Gül Misses Rebound (20′)**: [Link](https://www.filmogaz.com/172092)
-- **Francesco Farioli: “Team unity has been a key factor”**: [Link](https://onefootball.com/en/news/francesco-farioli-team-unity-has-been-a-key-factor-42474973)
-
-
-### resident evil 9 (N/A, 27/02/2026 15:34 Lima)
-
-- **Resident Evil Requiem Performance Benchmark Review**: [Link](https://www.techpowerup.com/review/resident-evil-requiem-performance-benchmark/)
-- **What Ending Should You Pick in Resident Evil 9?**: [Link](https://gamerant.com/resident-evil-requiem-destroy-release-elpis-good-bad-ending-re9/)
-- **Resident Evil: Requiem - 22 Minutes of Grace & Leon Switch 2 Gameplay | 4K 60 FPS**: [Link](https://es.ign.com/resident-evil-9/227150/video/resident-evil-requiem-22-minutes-of-grace-leon-switch-2-gameplay-4k-60-fps)
-
-
-### wolves - aston villa (N/A, 27/02/2026 15:34 Lima)
-
-- **Emery missing 3 key men, 2 changes by Edwards: Predicted XIs for Wolves vs Villa**: [Link](https://www.footballfancast.com/predicted-line-up-preview-injury-news-wolves-versus-aston-villa/)
-- **Wolverhampton vs Aston Villa LIVE Score Updates in Premier League Match**: [Link](https://www.vavel.com/en-us/soccer/2026/02/27/1252259-wolves-vs-aston-villa-live-score-premier-league.html)
-- **talkSPORT tips – Best football bets and expert advice on Friday 26 February**: [Link](https://talksport.com/football/4007721/talksport-tips-best-football-bets-friday-26-february/)
-
-
-### levante - alavés (N/A, 27/02/2026 15:34 Lima)
-
-- **Levante - Alavés en directo: LaLiga EA Sports hoy, en vivo**: [Link](https://as.com/futbol/primera/levante-alaves-en-directo-laliga-ea-sports-hoy-en-vivo-f202602-d/)
-- **En medio de los rumores de salida de Coudet, Alavés visita a Levante por LaLiga**: [Link](https://www.espn.com.ar/futbol/argentina/nota/_/id/16366559/alaves-vs-levante-la-liga-eduardo-coudet-river)
-- **Luís Castro: "Es difícil, pero no imposible"**: [Link](https://www.vavel.com/es/futbol/2026/02/27/levante/1252287-luis-castro-es-dificil-pero-no-imposible.html)
 
 
