@@ -1,3 +1,17 @@
+### el peruano normas legales (N/A, 03/03/2026 08:10 Lima)
+
+- **Estas son las normas legales más importantes del martes 3 de marzo del 2026**: [Link](https://andina.pe/agencia/noticia-estas-son-las-normas-legales-mas-importantes-del-martes-3-marzo-del-2026-1065124.aspx)
+- **El Peruano te informa: consulta aquí las principales normas legales para hoy, martes 3 de marzo del 2026**: [Link](https://www.elperuano.pe/noticia/290273-el-peruano-te-informa-consulta-aqui-las-principales-normas-legales-para-hoy-martes-3-de-marzo-del-2026)
+- **Consulta las normas legales más importantes de hoy, domingo 1 de marzo de 2026**: [Link](https://www.radionacional.gob.pe/noticias/politica/consulta-las-normas-legales-mas-importantes-de-hoy-domingo-1-de-marzo-de-2026)
+
+
+### como vs inter (N/A, 03/03/2026 08:10 Lima)
+
+- **Cuándo juegan Como vs. Inter por las semifinales de la Copa Italia: equipo, fecha, hora y TV en vivo**: [Link](https://www.espn.com.ar/futbol/italia/nota/_/id/16378189/como-vs-inter-semifinales-ida-copa-italia-equipo-fecha-hora-y-tv-en-vivo)
+- **Como vs Inter Milan: Fábregas pide a fans una "pequeña Bombonera"**: [Link](https://espndeportes.espn.com/futbol/italia/nota/_/id/16380448/copa-italia-2026-como-vs-inter-milan-dt-cesc-fabregas-fans-pequena-bombonera)
+- **Fábregas 'copia' la receta del Bodo pensando en una histórica final de Coppa**: [Link](https://www.marca.com/futbol/liga-italiana/2026/03/02/fabregas-copia-receta-bodo-pensando-historica-final-coppa.html)
+
+
 ### eclipse (N/A, 03/03/2026 03:51 Lima)
 
 - **A total lunar eclipse will turn the full moon blood red for over 3 billion people tonight (March 3)**: [Link](https://www.space.com/stargazing/lunar-eclipses/a-total-lunar-eclipse-will-turn-the-full-moon-blood-red-for-over-3-billion-people-tonight)
@@ -1012,19 +1026,5 @@ Sin noticias relacionadas disponibles.
 - **Sydney Sweeney's Underwear Campaign Goes Even More Viral With 'Do What Makes You Naked' Video**: [Link](https://www.cinemablend.com/movies/sydney-sweeney-underwear-campaign-goes-even-more-viral-do-what-makes-you-naked-video)
 - **Sydney Sweeney Sizzles in New 'Comfy' Panties, Bra Collection**: [Link](https://www.tmz.com/2026/02/26/sydney-sweeney-reveals-panties-bra-collection/)
 - **Sydney Sweeney’s Bold Pose in a Chair Steals the Show for Syrn Campaign**: [Link](https://www.mandatory.com/news/1737254-sydney-sweeney-chair-pose-crop-top-syrn-photos)
-
-
-### tijuana - pumas (N/A, 27/02/2026 23:57 Lima)
-
-- **Liga MX: Pumas UNAM quiere el liderato del torneo frente a Tijuana**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-pumas-unam-quiere-el-liderato-del-torneo-frente-a-tijuana-noticia-1677677)
-- **La pasión también se vive fuera de la cancha: fiesta y hermandad entre aficiones de Xolos y Pumas**: [Link](https://bajanews.mx/Deportes/53118/La-pasion-tambien-se-vive-fuera-de-la-cancha-fiesta-y-hermandad-entre-aficiones-de-Xolos-y-Pumas)
-- **Esto necesita Pumas para ser líder del Clausura 2026**: [Link](https://www.postadeportes.com/futbol/liga-mx/esto-necesita-pumas-para-ser-lider-del-clausura-2026/vl2039457)
-
-
-### miguel bose (N/A, 27/02/2026 23:57 Lima)
-
-- **Noche de baile y euforia: la renovación de votos con Miguel Bosé en Chile**: [Link](https://www.latercera.com/culto/noticia/noche-de-baile-y-euforia-la-renovacion-de-votos-con-miguel-bose-en-chile/)
-- **¿A qué hora comienza el show de Miguel Bosé en el Movistar Arena? Elementos prohibidos y permitidos en el concierto**: [Link](https://www.radioimagina.cl/2026/02/a-que-hora-comienza-el-show-de-miguel-bose-en-el-movistar-arena-elementos-prohibidos-y-permitidos-en-el-concierto/)
-- **Miguel Bosé llega a Gran Arena Monticello con “Importante Tour”**: [Link](https://vi.cl/2026/02/miguel-bose-llega-a-gran-arena-monticello-con-importante-tour-2/)
 
 
