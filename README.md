@@ -1,3 +1,73 @@
+### barcelona vs psg (N/A, 03/03/2026 15:38 Lima)
+
+- **El Barça recupera a Neymar para la remontada**: [Link](https://www.sport.es/es/noticias/barca/barca-recupera-neymar-remontada-127472714)
+- **Sólo Raphinha había nacido entre los titulares del Barça la gran noche de Pizzi**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20260302/1004138857/raphinha-habia-nacido-titulares-barca-gran-noche-pizzi.html)
+- **Las 6 grandes remontadas en la historia del FC Barcelona**: [Link](https://www.si.com/es-us/futbol/las-6-grandes-remontadas-en-la-historia-del-fc-barcelona)
+
+
+### fcb (N/A, 03/03/2026 15:38 Lima)
+
+- **From backup to key player: Stanisic is becoming increasingly important for Bayern**: [Link](https://fcbinside.com/2026/03/03/from-backup-to-key-player-stanisic-is-becoming-increasingly-important-for-bayern/)
+- **VIDEO: Rebel Yell Podcast: 2026 WPIAL Girls Basketball Team of the Week: Canon-McMillan**: [Link](https://tribhssn.triblive.com/Video/video-rebel-yell-podcast-2026-wpial-girls-basketball-team-of-the-week-canon-mcmillan/)
+- **RebelYellRecap0301**: [Link](https://tribhssn.triblive.com/Video/rebelyellrecap0301/)
+
+
+### betano (N/A, 03/03/2026 15:38 Lima)
+
+- **Betano Casino New Customer Sign Up Bonus March 2026: Get a £10 Bonus and 20 Free Spins**: [Link](https://bookies.com/uk/news/betano-casino-new-customer-sign-up-bonus-3rd-march-2026)
+- **Kaizen Gaming director: Ghana met ‘all the criteria’ for Betano’s second African market entry**: [Link](https://igamingbusiness.com/strategy/kaizen-gaming-george-skarlatos-ghana-betano/)
+- **Cuándo juegan Newcastle vs. Manchester United por Premier League: equipo, fecha, hora y TV en vivo**: [Link](https://www.espn.com.pe/futbol/inglaterra/nota/_/id/16380950/newcastle-vs-manchester-united-premier-league-equipo-fecha-hora-y-tv-en-vivo)
+
+
+### futbol en vivo (N/A, 03/03/2026 15:38 Lima)
+
+- **Partidos de hoy, martes 3 de marzo del 2026: horarios y canales TV para ver EN VIVO Copa del Rey y Libertadores**: [Link](https://rpp.pe/futbol/futbol-mundial/partidos-de-hoy-peru-martes-de-marzo-del-2026-horarios-y-canales-tv-ver-futbol-en-vivo-noticia-1678229)
+- **Partidos de hoy, 03 de marzo: Horario y canal EN VIVO**: [Link](https://www.americatv.com.pe/deportes/futbol-mundial/partidos-hoy-03-marzo-horarios-y-transmisiones-n452876)
+- **Partidos que serán transmitidos EN VIVO por TV el martes 03 de marzo**: [Link](https://www.futbolperuano.com/partidos-por-tv/noticias/programacion-de-partidos-por-tv-del-martes-03-de-marzo-del-2026-567946)
+
+
+### fútbol (N/A, 03/03/2026 15:38 Lima)
+
+- **La Liga Profesional ratificó el paro y reprogramó la fecha 9 del Torneo Apertura 2026**: [Link](https://www.espn.com.ar/futbol/argentina/nota/_/id/16383794/futbol-argentino-afa-paro-ratificado-reprogramacion-fecha-9-torneo-apertura-2026)
+- **Fecha 9 suspendida: el próximo partido del Ciclón será ante Boca**: [Link](https://onefootball.com/de/news/fecha-9-suspendida-el-proximo-partido-del-ciclon-sera-ante-boca-42499712)
+- **La AFA confirma la huelga en Argentina en protesta por investigación judicial a Tapia**: [Link](https://iusport.com/art/146073/la-afa-confirma-la-huelga-en-argentina-en-protesta-por-investigacion-judicial-a-tapia)
+
+
+### fut (N/A, 03/03/2026 15:38 Lima)
+
+- **FUT And Legacy Lock In First ESL Pro League Season 23 Stage 2 Spots**: [Link](https://www.hotspawn.com/counter-strike/news/fut-and-legacy-lock-in-first-esl-pro-league-season-23-stage-2-spots)
+- **FUT Esports are heading into their Stage 2 match, while NIP are on the verge of elimination from ESL Pro League Season 23**: [Link](https://players.com.ua/en/news/fut-esports-are-heading-into-their-stage-2-match-while-nip-are-on-the-verge-of-elimination-from-esl-pro-league-season-23/)
+- **Passion UA lose three-map thriller to FUT, move to 1-1 at ESL Pro League Season 23**: [Link](https://www.dust2.us/news/71202/passion-ua-lose-three-map-thriller-to-fut-move-to-1-1-at-esl-pro-league-season-23)
+
+
+### america (N/A, 03/03/2026 15:38 Lima)
+
+- **Inchcape registra crecimiento de ingresos en el cuarto trimestre de 2025 en medio de desafíos**: [Link](https://es.investing.com/news/transcripts/inchcape-registra-crecimiento-de-ingresos-en-el-cuarto-trimestre-de-2025-en-medio-de-desafios-93CH-3542639)
+- **Inchcape plc autoriza un plan de recompra de acciones**: [Link](https://es.marketscreener.com/noticias/inchcape-plc-autoriza-un-plan-de-recompra-de-acciones-ce7e5cd2dd8cff26)
+- **Ingresos del grupo Inchcape en Chile caen en 2025, pero resultados globales cumplen las expectativas**: [Link](https://www.latercera.com/pulso/noticia/ingresos-de-grupo-inchcape-en-chile-caen-en-2025-pero-resultados-globales-cumplen-las-expectativas/)
+
+
+### audiencia adrian villar (N/A, 03/03/2026 15:38 Lima)
+
+- **[VIVO] César Nakazaki defiende a Adrián Villar en audiencia de prisión preventiva**: [Link](https://lpderecho.pe/vivo-cesar-nakazaki-defiende-a-adrian-villar-en-audiencia-de-prision-preventiva/)
+- **La tesis fiscal "es un poco débil": Abogado advierte que Poder Judicial podría no imponer prisión preventiva a Adrián Villar**: [Link](https://rpp.pe/politica/judiciales/la-tesis-fiscal-es-un-poco-debil-abogado-advierte-que-poder-judicial-podria-no-imponer-prision-preventiva-a-adrian-villar-noticia-1678209)
+- **Caso Lizeth Marzano: Los delitos admitidos por Adrián Villar a horas que se decida la prisión preventiva**: [Link](https://elcomercio.pe/lima/caso-lizeth-marzano-los-delitos-admitidos-por-adrian-villar-a-horas-que-se-decida-la-prision-preventiva-lizeth-marzano-noticia/)
+
+
+### tarjeta roja futbol (N/A, 03/03/2026 15:38 Lima)
+
+- **Mastantuono se expone a dos partidos**: [Link](https://as.com/futbol/primera/mastantuono-alerta-sancion-f202603-n/)
+- **Esperpéntico final: roja directa a Mastantuono y sanciones para Huijsen y Carreras**: [Link](https://www.marca.com/futbol/real-madrid/2026/03/02/huijsen-sera-baja-celta.html)
+- **Revelaron la frase que Franco Mastantuono le dijo al árbitro y provocó su expulsión en la derrota del Real Madrid**: [Link](https://www.infobae.com/deportes/2026/03/03/revelaron-la-frase-que-franco-mastantuono-le-dijo-al-arbitro-y-provoco-su-expulsion-en-la-derrota-del-real-madrid/)
+
+
+### barsa (N/A, 03/03/2026 15:38 Lima)
+
+- **El desliz de Cerezo con los jugadores del Atlético: "Tenemos a Julián Álvarez, a Tomford, a Smith..."**: [Link](https://www.marca.com/futbol/atletico/2026/03/03/desliz-cerezo-jugadores-atletico-julian-alvarez-tomford-smith-video.html)
+- **Video: la increíble respuesta del presidente del Atlético de Madrid antes de jugar la semifinal**: [Link](https://www.ole.com.ar/futbol-internacional/video-increible-respuesta-presidente-atletico-madrid-jugar-semifinal_3_DWU3TGAzUb.html)
+- **Ni Gaudim ni Botafumeiro: el restaurante elegido por Rafa Yuste para la comida de directivas con el Atlético de Madrid**: [Link](https://cronicaglobal.elespanol.com/culemania/culemaniacos/20260302/gaudim-botafumeiro-restaurante-rafa-yuste-atletico-madrid/1003742737438_0.html)
+
+
 ### marathon (N/A, 03/03/2026 11:56 Lima)
 
 - **Marathon's Server Slam Is Almost Here**: [Link](https://www.bungie.net/7/en/News/Article/marathon_server_slam_almost_here)
@@ -958,73 +1028,5 @@ Sin noticias relacionadas disponibles.
 - **Barcelona vs Villarreal: La Liga – preview, team news, start, lineups**: [Link](https://www.aljazeera.com/sports/2026/2/27/barcelona-vs-villarreal-la-liga-preview-team-news-start-lineups)
 - **Lamine Yamal scores a stunning second goal for Barca**: [Link](https://www.espn.com/video/clip/_/id/48061978)
 - **Barcelona XI vs. Villarreal: Midfield Changes Projected—Injury News, Predicted Lineup**: [Link](https://www.si.com/soccer/barcelona-xi-vs-villarreal-injury-news-predicted-lineup-2-28-26)
-
-
-### hoffenheim vs (N/A, 28/02/2026 11:33 Lima)
-
-- **Preview: Hoffenheim vs St Pauli - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/hoffenheim/preview/hoffenheim-vs-st-pauli-prediction-team-news-lineups_592819.html)
-- **Ilzer: “It's going to be a challenge”**: [Link](https://www.tsg-hoffenheim.de/en/news/overview/2026/02/ilzer-its-going-to-be-a-challenge)
-- **Hoffenheim vs St. Pauli Prediction and Betting Tips | February 28th 2026**: [Link](https://www.sportskeeda.com/football/hoffenheim-vs-st-pauli-prediction-betting-tips-february-28th-2026)
-
-
-### werder bremen - heidenheim (N/A, 28/02/2026 11:33 Lima)
-
-- **Sieg im Keller-Kracher: Bremen springt in der Tabelle, Heidenheim bleibt Letzter**: [Link](https://www.t-online.de/sport/fussball/bundesliga/id_101148956/bundesliga-befreiungsschlag-fuer-werder-bremen-gegen-heidenheim.html)
-- **Werder Bremen: Nächster Trainer-Knall? Werder-Boss mit Klartext**: [Link](https://www.sport.de/news/ne16541056/werder-bremen-naechster-trainer-knall-werder-boss-mit-klartext/)
-- **Bundesliga im Liveticker: Bremer Stürmer scheitern mehrfach vor leerem Tor – St. Pauli führt**: [Link](https://www.welt.de/sport/fussball/bundesliga/article69a2eaf4e168162ea2ac0fb8/bundesliga-im-liveticker-bremer-stuermer-scheitern-mehrfach-vor-leerem-tor-st-pauli-fuehrt.html)
-
-
-### hoffenheim - st. pauli (N/A, 28/02/2026 11:33 Lima)
-
-- **Auch Lemperle ist wieder fit**: [Link](https://www.kicker.de/auch-lemperle-ist-wieder-fit-1197274/artikel)
-- **Pereira Lages Bundesliga-Torpremie sorgt für…**: [Link](https://www.fcstpauli.com/news/spielbericht-auswaertsspiel-tsg-hoffenheim-2526)
-- **"Denken an Schritte": Ilzer bleibt im CL-Rennen zurückhaltend**: [Link](https://www.skysportaustria.at/denken-an-schritte-ilzer-bleibt-im-cl-rennen-zurueckhaltend/)
-
-
-### leicester city - norwich (N/A, 28/02/2026 07:57 Lima)
-
-- **Leicester vs Norwich City Confirmed Lineups for February 28**: [Link](https://lastwordonsports.com/football/2026/02/28/leicester-vs-norwich-city-confirmed-lineups-february/)
-- **Rowett’s Fitness Update: Lascelles, James & Fatawu**: [Link](https://www.lcfc.com/pages/en/media-article/leicester-city-lcfc-norwich-city-ncfc-sky-bet-championship-garry-rowett-fitness-injury)
-- **Boost for Wales as star set to make return from injury**: [Link](https://clwbpeldroed.org/2026/02/26/wales-leicester-city-jordan-james/)
-
-
-### rayo vallecano - athletic (N/A, 28/02/2026 07:57 Lima)
-
-- **Alineación posible del Athletic ante el Rayo en LaLiga EA Sports**: [Link](https://as.com/futbol/primera/alineacion-posible-del-athletic-ante-el-rayo-en-la-liga-ea-sports-f202602-n/)
-- **Apuestas y Pronóstico del Rayo Vallecano vs Athletic Club 28/02/26**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2026/febrero/pronostico-rayo-vallecano-vs-athletic-club-28-02-26)
-- **Rayo Vallecano - Athletic | Todos los focos apuntan al césped: previa, análisis, pronóstico y predicción**: [Link](https://www.marca.com/futbol/primera-division/2026/02/28/rayo-vallecano-athletic-todos-focos-apuntan-cesped-previa-analisis-pronostico-prediccion.html)
-
-
-### bournemouth - sunderland afc (N/A, 28/02/2026 07:57 Lima)
-
-- **Preview: Bournemouth vs. Sunderland - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/bournemouth/preview/bournemouth-vs-sunderland-prediction-team-news-lineups_592726.html)
-- **Premier League LIVE: Latest news, scores & updates**: [Link](https://www.flashscore.co.uk/news/premier-league-live-latest-news-scores-updates/MX1tdMZH/)
-- **Injury news: Cook ruled out of Sunderland clash**: [Link](https://www.afcb.co.uk/news/2026/february/27/injury-news--cook-ruled-out-of-sunderland-clash/)
-
-
-### kasımpaşa - rizespor (N/A, 28/02/2026 07:57 Lima)
-
-Sin noticias relacionadas disponibles.
-
-
-### thunder - nuggets (N/A, 28/02/2026 07:57 Lima)
-
-- **NBA: Shai Gilgeous-Alexander guides Oklahoma City Thunder to victory after injury**: [Link](https://www.bbc.com/sport/basketball/articles/czr01zpp42vo)
-- **Jared McCain on how defense translates to the offensive side | Postgame Media | February 27, 2026**: [Link](https://bvmsports.com/2026/02/28/jared-mccain-on-how-defense-translates-to-the-offensive-side-postgame-media-february-27-2026/)
-- **Celtics Set Historic Shooting Records As Thunder Win In OT On SGA Return**: [Link](https://www.mykhel.com/more-sports/celtics-record-shooting-night-and-thunder-ot-win-sga-return-011-416469.html)
-
-
-### rt (N/A, 28/02/2026 07:57 Lima)
-
-- **TheWealthNet - PIMFA chairman to step down**: [Link](https://www.paminsight.com/twn/article/pimfa-chairman-to-step-down)
-- **The Rt Hon. the Lord Deben Stepping Down as PIMFA Chairman After Nine Years**: [Link](https://www.disruptionbanking.com/2026/02/28/the-rt-hon-the-lord-deben-stepping-down-as-pimfa-chairman-after-nine-years/)
-- **Pimfa president Lord Deben steps down**: [Link](https://citywire.com/new-model-adviser/news/pimfa-president-lord-deben-steps-down/a2484776)
-
-
-### cnn (N/A, 28/02/2026 07:57 Lima)
-
-- **CNN Braces for Ellison's Control**: [Link](https://www.status.news/p/cnn-david-ellison-trump-paramount-wbd-netflix-deal)
-- **Opinion | Hollywood Isn’t Celebrating Ellison’s Win**: [Link](https://www.nytimes.com/2026/02/28/opinion/warner-bros-discovery-paramount-ellison-netflix.html)
-- **With Trump’s apparent blessing, the Ellisons are amassing a media empire**: [Link](https://www.cnn.com/2026/02/26/business/paramount-wbd-merger-david-ellison)
 
 
