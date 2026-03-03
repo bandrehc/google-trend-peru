@@ -1,3 +1,24 @@
+### eclipse (N/A, 03/03/2026 03:51 Lima)
+
+- **A total lunar eclipse will turn the full moon blood red for over 3 billion people tonight (March 3)**: [Link](https://www.space.com/stargazing/lunar-eclipses/a-total-lunar-eclipse-will-turn-the-full-moon-blood-red-for-over-3-billion-people-tonight)
+- **Blood moon expected overnight, but western Washington faces cloud cover**: [Link](https://komonews.com/news/local/blood-moon-lunar-eclipse-seattle-western-washington-north-america-weather-clear-skies-march-region-forecast-clear-conditions-warm-front-space-needle-nasa-scientists)
+- **Does the lunar eclipse have a path of totality? When to view blood moon**: [Link](https://www.beaconjournal.com/story/lifestyle/nature-wildlife/2026/03/02/lunar-eclipse-2026-map-shows-ohio-blood-moon-visibility-forecast/88939015007/)
+
+
+### claude ai (N/A, 03/03/2026 03:51 Lima)
+
+- **Anthropic’s Claude Chatbot Goes Down For Thousands of Users**: [Link](https://www.bloomberg.com/news/articles/2026-03-02/anthropic-s-claude-chatbot-goes-down-for-thousands-of-users)
+- **Anthropic’s Claude reports widespread outage**: [Link](https://techcrunch.com/2026/03/02/anthropics-claude-reports-widespread-outage/)
+- **AI chatbot Claude's Monday morning outages resolved, Anthropic says**: [Link](https://www.stamfordadvocate.com/news/article/claude-down-outages-monday-anthropic-21950126.php)
+
+
+### warriors - clippers (N/A, 03/03/2026 03:51 Lima)
+
+- **Warriors vs. Clippers injury report: Kristaps Porziņģis, Steph Curry, and Will Richard out**: [Link](https://www.goldenstateofmind.com/warriors-injury-report/108926/warriors-clippers-injury-report-kristaps-porzingis-steph-curry-will-richard)
+- **Kawhi Leonard 23 Pts, 8 Reb, 4 Ast vs Golden State Warriors (3.2.26)**: [Link](https://www.nba.com/clippers/videos/kawhi-leonard-23-pts-8-reb-4-ast-vs-golden-state-warriors-3-2-26)
+- **Clippers Warriors Basketball**: [Link](https://www.dailyrecordnews.com/ap_news/sports/clippers-warriors-basketball/image_8b3efa8d-ec20-5da1-a8f8-66f8b95ce02f.html)
+
+
 ### nuggets - jazz (N/A, 03/03/2026 00:15 Lima)
 
 - **Nuggets play Jazz on back-to-back**: [Link](https://www.nba.com/nuggets/news/nuggets-play-jazz-on-back-to-back)
@@ -1005,26 +1026,5 @@ Sin noticias relacionadas disponibles.
 - **Noche de baile y euforia: la renovación de votos con Miguel Bosé en Chile**: [Link](https://www.latercera.com/culto/noticia/noche-de-baile-y-euforia-la-renovacion-de-votos-con-miguel-bose-en-chile/)
 - **¿A qué hora comienza el show de Miguel Bosé en el Movistar Arena? Elementos prohibidos y permitidos en el concierto**: [Link](https://www.radioimagina.cl/2026/02/a-que-hora-comienza-el-show-de-miguel-bose-en-el-movistar-arena-elementos-prohibidos-y-permitidos-en-el-concierto/)
 - **Miguel Bosé llega a Gran Arena Monticello con “Importante Tour”**: [Link](https://vi.cl/2026/02/miguel-bose-llega-a-gran-arena-monticello-con-importante-tour-2/)
-
-
-### willax en vivo (N/A, 27/02/2026 23:57 Lima)
-
-- **«No obra en nuestro Archivo Notarial escritura pública»: Notaría descarta transferencia del auto que atropelló a Lizeth Marzano**: [Link](https://lpderecho.pe/no-obra-en-nuestro-archivo-notarial-escritura-publica-notaria-descarta-transferencia-del-auto-que-atropello-a-lizeth-marzano/)
-- **Notaría niega haber tramitado contrato de donación de vehículo entre Marisel Linares y Adrián Villar**: [Link](https://www.infobae.com/peru/2026/02/27/notaria-niega-haber-tramitado-contrato-de-donacion-de-vehiculo-entre-marisel-linares-y-adrian-villar/)
-- **Notaría Carpio Vélez niega haber tramitado donación del vehículo de Marisel Linares a Adrián Villar**: [Link](https://elcomercio.pe/lima/sucesos/lizeth-marzano-notaria-carpio-velez-niega-haber-tramitado-donacion-del-vehiculo-de-marisel-linares-a-adrian-villar-ultimas-noticia/)
-
-
-### pachuca vs (N/A, 27/02/2026 21:24 Lima)
-
-- **Cambia horario del Querétaro vs América, y Pachuca vs Puebla, informa Liga MX**: [Link](https://www.marca.com/mx/futbol/liga-mx/2026/02/27/69a1f597268e3eda3e8b45a4.html)
-- **Cambio de último minuto para el duelo entre Querétaro y Club América**: [Link](https://americamonumental.bolavip.com/ligamx/cambio-de-ultimo-minuto-para-el-duelo-entre-queretaro-y-club-america)
-- **¡El partido Querétaro ante América tiene cambio de horario!**: [Link](https://www.tudn.com/futbol/liga-mx/liga-mx-anuncia-cambios-de-horarios-para-la-jornada-10-video)
-
-
-### once caldas - boyacá chicó (N/A, 27/02/2026 21:24 Lima)
-
-- **Pronóstico Once Caldas Boyacá Chicó - Primera A Colombia 27/02/26**: [Link](https://www.sportytrader.com/es/pronosticos/once-caldas-boyaca-chico-330261/)
-- **Real Madrid y Manchester City repetirán lo que ya es otro clásico en la Liga de Campeones, con un nuevo enfrentamiento en los octavos de final.**: [Link](https://www.facebook.com/lapatria.manizales/posts/real-madrid-y-manchester-city-repetir%C3%A1n-lo-que-ya-es-otro-cl%C3%A1sico-en-la-liga-de-/1379384747549041/)
-- **Once Caldas vs Boyacá Chicó hoy: Resultado EN VIVO, minuto a minuto y goles del partido**: [Link](https://www.365scores.com/es/news/once-caldas-vs-chico-resultado-vivo/)
 
 
