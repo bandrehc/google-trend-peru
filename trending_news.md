@@ -1,3 +1,73 @@
+### marathon (N/A, 03/03/2026 11:56 Lima)
+
+- **Marathon's Server Slam Is Almost Here**: [Link](https://www.bungie.net/7/en/News/Article/marathon_server_slam_almost_here)
+- **'Marathon' game hands-on: Bungie shooter goes back to the future**: [Link](https://mashable.com/article/marathon-bungie-hands-on-gameplay)
+- **Marathon Review So Far**: [Link](https://www.ign.com/articles/marathon-review)
+
+
+### poder judicial (N/A, 03/03/2026 11:56 Lima)
+
+- **Poder Judicial destacó el rol clave de las mujeres en la sociedad y en la administración de justicia**: [Link](https://caretas.pe/politica/poder-judicial-destaco-el-rol-clave-de-las-mujeres-en-la-sociedad-y-en-la-administracion-de-justicia/)
+- **Día de la Mujer: PJ reconoce liderazgo femenino en la judicatura**: [Link](https://www.elperuano.pe/noticia/290264-dia-de-la-mujer-pj-reconoce-liderazgo-femenino-en-la-judicatura)
+- **El Poder Judicial reconoce el impacto estratégico de la mujer en la sociedad y la judicatura -**: [Link](https://www.peruinforma.com/el-poder-judicial-reconoce-el-impacto-estrategico-de-la-mujer-en-la-sociedad-y-la-judicatura/)
+
+
+### rodrygo (N/A, 03/03/2026 11:56 Lima)
+
+- **Rodrygo se rompe el cruzado y dice adiós a la temporada... y al Mundial**: [Link](https://www.marca.com/futbol/real-madrid/2026/03/03/rodrygo-rompe-dice-adios-temporada-mundial.html)
+- **Real Madrid: Rodrygo no jugará el Mundial por lesión de ligamentos**: [Link](https://www.espn.com.ar/futbol/espana/nota/_/id/16382417/real-madrid-rodrygo-lesion-ligamentos-mundial)
+- **Rodrygo se rompió el ligamento cruzado y se pierde el Mundial 2026**: [Link](https://rpp.pe/futbol/futbol-mundial/rodrygo-se-rompio-el-ligamento-cruzado-y-se-pierde-el-mundial-2026-noticia-1678370)
+
+
+### estrecho de ormuz (N/A, 03/03/2026 11:56 Lima)
+
+- **Irán cierra el estrecho de Ormuz: cuál es su importancia estratégica y qué consecuencias tiene ya su clausura**: [Link](https://www.bbc.com/mundo/articles/c86yv180qgxo)
+- **El precio del petróleo aumenta tras el inicio de la guerra con Irán**: [Link](https://cnnespanol.cnn.com/2026/03/02/mundo/video/petroleo-iran-ee-uu)
+- **El gas se dispara otro 30% y el petróleo sigue al alza ante el aumento de la tensión en el golfo Pérsico**: [Link](https://elpais.com/economia/2026-03-03/el-petroleo-sigue-al-alza-ante-el-aumento-de-la-tension-en-el-golfo-persico.html)
+
+
+### ticketmaster (N/A, 03/03/2026 11:56 Lima)
+
+- **DOJ takes Live Nation-Ticketmaster to court for antitrust trial**: [Link](https://www.nbcnews.com/business/business-news/live-nation-ticketmaster-antitrust-trial-doj-what-to-know-rcna261400)
+- **Antitrust Trial to Challenge Live Nation’s Grip on the Music Industry**: [Link](https://www.nytimes.com/2026/03/02/arts/music/live-nation-music-industry-antitrust-trial.html)
+- **Could Concert Tickets Get Cheaper? What the Trial of Live Nation-Ticketmaster Could Mean for You**: [Link](https://www.today.com/popculture/music/concert-ticket-prices-doj-live-nation-ticketmaster-trial-rcna261482)
+
+
+### classroom (N/A, 03/03/2026 11:56 Lima)
+
+- **Teacher v chatbot: my journey into the classroom in the age of AI**: [Link](https://www.theguardian.com/education/ng-interactive/2026/mar/03/cheating-machine-or-powerful-assistant-the-ai-anxieties-of-a-trainee-teacher)
+- **AI=B+**: [Link](https://www.publicbooks.org/aib/)
+- **Aithor launches AI detector to help educators and students identify AI-generated writing**: [Link](https://azbigmedia.com/business/technology/aithor-launches-ai-detector-to-help-educators-and-students-identify-ai-generated-writing/)
+
+
+### juan pablo varillas (N/A, 03/03/2026 11:56 Lima)
+
+- **Diego Elías y Juan Pablo Varillas reciben departamentos por sus logros deportivos en Lima 2019**: [Link](https://elcomercio.pe/deporte-total/polideportivo/medallistas-diego-elias-y-juan-pablo-varillas-reciben-departamentos-por-sus-logros-deportivos-en-juegos-panamericanos-lima-2019-ipd-noticia/)
+- **Diego Elías y Juan Pablo Varillas recibieron departamentos del IPD por Lima 2019**: [Link](https://rpp.pe/multideportes/panamericanos/medallistas-de-lima-2019-diego-elias-y-juan-pablo-varillas-reciben-departamentos-por-sus-logros-deportivos-noticia-1678268)
+- **IPD entregó departamentos a deportistas Diego Elías y Juan Pablo Varillas**: [Link](https://andina.pe/agencia/noticia-ipd-entrego-departamentos-a-deportistas-diego-elias-y-juan-pablo-varillas-1065130.aspx)
+
+
+### pei (N/A, 03/03/2026 11:56 Lima)
+
+- **Opposition leaders speak out on state of P.E.I.'s health-care system, doctors leaving**: [Link](https://www.cbc.ca/news/canada/prince-edward-island/pei-doctors-leaving-opposition-reaction-9.7111712)
+- **Statement from Matt MacFarlane on letter from the Medical Society of PEI: It’s time to stop the damage and rebuild trust with PEI family doctors**: [Link](https://peigreencaucus.ca/2026/02/statement-from-matt-macfarlane-on-letter-from-the-medical-society-of-pei-its-time-to-stop-the-damage-and-rebuild-trust-with-pei-family-doctors/)
+- **Summerside family doctor resigns citing frustrations with Health P.E.I.**: [Link](https://www.saltwire.com/prince-edward-island/summerside-family-doctor-resigns-citing-frustrations-with-health-pei)
+
+
+### carabobo vs sporting cristal (N/A, 03/03/2026 11:56 Lima)
+
+- **Cuándo juegan Carabobo vs. Sporting Cristal por CONMEBOL Libertadores: equipo, fecha, hora y TV en vivo**: [Link](https://www.espn.com.pe/futbol/copa-libertadores/nota/_/id/16372013/sporting-cristal-vs-carabobo-fase-3-ida-copa-libertadores-equipo-fecha-hora-y-tv-en-vivo)
+- **Bilbao: "No tenemos nada que envidiarle a Cristal, somo un plantel técnicamente muy rico"**: [Link](https://ovacion.pe/noticias/futbol-internacional/bilbao-no-tenemos-nada-envidiarle-cristal-somo-un-plantel)
+- **Sporting Cristal: Día y hora de los partidos de ida de la Fase 3 de la Copa Libertadores**: [Link](https://andina.pe/agencia/noticia-sporting-cristal-dia-y-hora-los-partidos-ida-de-fase-3-de-copa-libertadores-1065158.aspx)
+
+
+### barca vs atlético (N/A, 03/03/2026 11:56 Lima)
+
+- **Preview: Barcelona vs Atletico Madrid - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/barcelona/copa-del-rey/preview/barcelona-vs-atletico-prediction-team-news-lineups_593003.html)
+- **Lookman.. From Barcelona's Interest to a Real Threat**: [Link](https://www.ysscores.com/en/news/13921134/Lookman..-From-Barcelona's-Interest-to-a-Real-Threat)
+- **Hansi Flick Targets Comeback: “We Want to Make the Impossible Possible”**: [Link](https://www.beinsports.com/en-us/soccer/copa-del-rey/articles/hansi-flick-targets-comeback-we-want-to-make-the-impossible-possible-2026-03-02)
+
+
 ### el peruano normas legales (N/A, 03/03/2026 08:10 Lima)
 
 - **Estas son las normas legales más importantes del martes 3 de marzo del 2026**: [Link](https://andina.pe/agencia/noticia-estas-son-las-normas-legales-mas-importantes-del-martes-3-marzo-del-2026-1065124.aspx)
@@ -956,75 +1026,5 @@ Sin noticias relacionadas disponibles.
 - **CNN Braces for Ellison's Control**: [Link](https://www.status.news/p/cnn-david-ellison-trump-paramount-wbd-netflix-deal)
 - **Opinion | Hollywood Isn’t Celebrating Ellison’s Win**: [Link](https://www.nytimes.com/2026/02/28/opinion/warner-bros-discovery-paramount-ellison-netflix.html)
 - **With Trump’s apparent blessing, the Ellisons are amassing a media empire**: [Link](https://www.cnn.com/2026/02/26/business/paramount-wbd-merger-david-ellison)
-
-
-### israel (N/A, 28/02/2026 07:57 Lima)
-
-- **U.S., Israel Strike Iran: Live Updates**: [Link](https://www.wsj.com/livecoverage/iran-strikes-2026?gaa_at=eafs&gaa_n=AWEtsqfdUMGrDkBGbHhVWzeF1wS40F5r2Pubnm3i8GNYsOzIkrXd2HawoBP9&gaa_ts=69a2e8e6&gaa_sig=VJBqfO8Z8WyCyImwsi3Hx6HNI8I-BfNRs3sy-MT1H_WfsLcD8sJJIjN6Bh8e1KK-Je2wuzjcBiZsxqc8gLXeLA%3D%3D)
-- **As U.S. Bombs Tehran, Some Iranians Feel Abandoned by Their Leaders**: [Link](https://www.nytimes.com/2026/02/28/world/middleeast/iran-war-mood.html)
-- **Live updates: U.S. and Israel launch attack on Iran as Trump calls for regime change**: [Link](https://www.washingtonpost.com/world/2026/02/28/israel-strikes-iran-live-updates/)
-
-
-### iran (N/A, 28/02/2026 03:36 Lima)
-
-- **Israel says it has launched attack on Iran, as explosions reported in Tehran**: [Link](https://www.bbc.com/news/live/cn5ge95q6y7t)
-- **Live updates: US, Israel attack Iran in ‘preemptive strike,’ Trump posts video on Truth Social**: [Link](https://www.cnn.com/world/live-news/israel-iran-attack-02-28-26-hnk-intl)
-- **Trump talks of ‘annihilation’, ‘elimination’ as US, Israel attack Iran**: [Link](https://www.aljazeera.com/news/2026/2/28/trump-talks-of-annihilation-elimination-as-us-israel-attack-iran)
-
-
-### resident evil (N/A, 28/02/2026 03:36 Lima)
-
-- **Horror Awakens in the Cloud: GeForce NOW Unleashes Capcom’s ‘Resident Evil Requiem’**: [Link](https://blogs.nvidia.com/blog/geforce-now-thursday-resident-evil-requiem/)
-- **Path tracing sure is both beautiful and super demanding, but it won't always be a stress for GPUs**: [Link](https://tech.yahoo.com/gaming/articles/path-tracing-sure-both-beautiful-122151546.html)
-- **Resident Evil Requiem: how Capcom hopes to redefine survival horror**: [Link](https://www.bbc.com/news/articles/cewzngve9reo)
-
-
-### barcelona vs villarreal (N/A, 28/02/2026 03:36 Lima)
-
-- **Barcelona vs Villarreal: posibles alineaciones, Jornada 26, LaLiga**: [Link](https://www.espn.com.ar/futbol/nota/_/id/16367734/barcelona-vs-villarreal-posibles-alineaciones-jornada-26-laliga)
-- **Un ‘triplete’ al alcance de muy pocos**: [Link](https://as.com/futbol/primera/un-triplete-al-alcance-de-muy-pocos-f202602-n/)
-- **¿En qué canal transmiten FC Barcelona vs. Villarreal EN VIVO hoy por LaLiga 2026 en EE.UU., México y España? Canales TV online**: [Link](https://gestion.pe/mix/sports/en-que-canal-transmiten-fc-barcelona-vs-villarreal-en-vivo-hoy-por-laliga-2026-en-eeuu-mexico-y-espana-canales-tv-online-nnda-nnrt-noticia/)
-
-
-### pumas vs (N/A, 28/02/2026 03:36 Lima)
-
-- **Pumas vs Toluca: Hora y canal para ver el partido de la Jornada 9 de Liga MX**: [Link](https://www.sdpnoticias.com/deportes/pumas-vs-toluca-hora-y-canal-para-ver-el-partido-de-la-jornada-9-de-liga-mx/)
-- **Boletos para Pumas vs. Toluca por el Clausura 2026: Cómo comprar y precios**: [Link](https://www.sportingnews.com/mx/tickets/news/boletos-pumas-toluca-clausura-2026-precios-como-comprar/2a61833bea14e351d29eedc2)
-- **Nathan Silva jugó ante Tijuana con fractura en la mano: Efraín Juárez**: [Link](https://www.tudn.com/futbol/liga-mx/nathan-silva-jugo-ante-tijuana-con-fractura-en-la-mano-efrain-juarez-video)
-
-
-### deportivo garcilaso - cienciano (N/A, 27/02/2026 23:57 Lima)
-
-- **Resultado Deportivo Garcilaso vs Cienciano EN VIVO por la Liga 1**: [Link](https://www.365scores.com/es/news/deportivo-garcilaso-vs-cienciano-vivo/)
-- **Cusco se detiene por el clásico**: [Link](https://caretas.pe/deportes/cusco-se-detiene-por-el-clasico/)
-- **Cienciano se quedó con el clásico cusqueño: derrotó 3-2 a Deportivo Garcilaso**: [Link](https://libero.pe/futbol-peruano/liga-1/2026/02/26/deportivo-garcilaso-vs-cienciano-en-vivo-partido-del-torneo-apertura-liga-1-peru-via-liga-1-max-internet-video-vilb-1566344)
-
-
-### nuggets - thunder (N/A, 27/02/2026 23:57 Lima)
-
-- **Nuggets vs Thunder Picks & Odds Today: Denver To Cover In SGA's Return**: [Link](https://www.oddsshark.com/nba/nuggets-thunder-picks-odds-february-27-2026)
-- **Shai Gilgeous-Alexander + Nikola Jokic Player Props: MVPs Battle on Friday Night**: [Link](https://news.bet365.com/en-us/article/shai-gilgeous-alexander-nikola-jokic-player-props-mvps-battle-on-friday-night/2026022720073148918)
-- **Fantasy Basketball Picks: Top DraftKings NBA DFS Targets, Values for Saturday 2/28/26**: [Link](https://dknetwork.draftkings.com/2026/02/27/fantasy-basketball-picks-top-draftkings-nba-dfs-targets-values-for-saturday-2-28-26/)
-
-
-### steven tyler (N/A, 27/02/2026 23:57 Lima)
-
-- **Remember When: Aerosmith Frontman Steven Tyler Learned His Musical Roots Stretched Back to the Civil War**: [Link](https://americansongwriter.com/remember-when-aerosmith-frontman-steven-tyler-learned-his-musical-roots-stretched-back-to-the-civil-war/)
-- **The surprising genre Steven Tyler said he sings "the best"**: [Link](https://faroutmagazine.co.uk/the-one-genre-steven-tyler-said-he-sings-the-best/)
-- **The time Joe Perry snapped the headstock of one of his favourite guitars: “Steven wanted to throw it into the audience – I had to wrestle him for it!”**: [Link](https://guitar.com/news/music-news/joe-perry-broken-guitar/)
-
-
-### juárez - atlas (N/A, 27/02/2026 23:57 Lima)
-
-- **Liga MX: FC Juárez y Atlas se encuentran en la fecha 8**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-fc-juarez-y-atlas-se-encuentran-en-la-fecha-8-noticia-1677676)
-- **⚽ ¡Imperdible! Esta es la HORA y CANALES para VER el Juárez vs Atlas de la Liga MX 🐴🆚🦊**: [Link](https://www.facebook.com/MilenioDiario/posts/-imperdibleesta-es-la-hora-y-canales-para-ver-el-ju%C3%A1rez-vs-atlas-de-la-liga-mx-/1400401522117315/)
-- **Bravos a salir del bache ante Zorros**: [Link](https://pulsoslp.com.mx/meta/bravos-a-salir-del-bache-ante-zorros-/2022130)
-
-
-### sydney sweeney (N/A, 27/02/2026 23:57 Lima)
-
-- **Sydney Sweeney's Underwear Campaign Goes Even More Viral With 'Do What Makes You Naked' Video**: [Link](https://www.cinemablend.com/movies/sydney-sweeney-underwear-campaign-goes-even-more-viral-do-what-makes-you-naked-video)
-- **Sydney Sweeney Sizzles in New 'Comfy' Panties, Bra Collection**: [Link](https://www.tmz.com/2026/02/26/sydney-sweeney-reveals-panties-bra-collection/)
-- **Sydney Sweeney’s Bold Pose in a Chair Steals the Show for Syrn Campaign**: [Link](https://www.mandatory.com/news/1737254-sydney-sweeney-chair-pose-crop-top-syrn-photos)
 
 
