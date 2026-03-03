@@ -1,3 +1,52 @@
+### nuggets - jazz (N/A, 03/03/2026 00:15 Lima)
+
+- **Nuggets play Jazz on back-to-back**: [Link](https://www.nba.com/nuggets/news/nuggets-play-jazz-on-back-to-back)
+- **Nuggets vs. Jazz**: [Link](https://mlq.ai/prediction/market/nba-den-uta-2026-03-02/)
+- **Tiny Nick's Gambling Picks 03/02**: [Link](https://zonecoverage.com/2026/gambling/tiny-nicks-gambling-picks-03-02-4/)
+
+
+### clippers - warriors (N/A, 03/03/2026 00:15 Lima)
+
+- **Clippers vs. Warriors Picks & Odds: March 2, 2026**: [Link](https://www.oddsshark.com/nba/clippers-warriors-picks-odds-march-2-2026)
+- **Draymond Green, John Collins, And 3 Other Underdog Props For Warrriors vs. Clippers**: [Link](https://www.si.com/onsi/fantasy/dfs/draymond-green-john-collins-and-3-other-underdog-props-for-warrriors-vs-clippers)
+- **NBA Warriors vs Clippers Draftstars DFS Captain Contest Preview and Projections for March 3, 2026**: [Link](https://www.statsinsider.com.au/news/nba-warriors-vs-clippers-draftstars-dfs-captain-contest-preview-and-projections-for-march-3-2026)
+
+
+### steven tyler (N/A, 03/03/2026 00:15 Lima)
+
+- **“Steven grabbed it and wanted to throw it out into the audience. I had to wrestle him for it”: That time Joe Perry had to rescue a broken guitar from Steven Tyler in the middle of an Aerosmith gig**: [Link](https://www.guitarworld.com/artists/guitarists/joe-perry-saving-guitar-from-steven-tyler)
+- **The time Joe Perry snapped the headstock of one of his favourite guitars: “Steven wanted to throw it into the audience – I had to wrestle him for it!”**: [Link](https://guitar.com/news/music-news/joe-perry-broken-guitar/)
+- **“Steven grabbed it and wanted to throw it out into the…**: [Link](https://www.inkl.com/news/steven-grabbed-it-and-wanted-to-throw-it-out-into-the-audience-i-had-to-wrestle-him-for-it-that-time-joe-perry-had-to-rescue-a-broken-guitar-from-steven-tyler-in-the-middle-of-an-aerosmith-gig)
+
+
+### liam gallagher (N/A, 03/03/2026 00:15 Lima)
+
+- **'I found it impossible to dislike Liam Gallagher even when he was hurling insults at us on TV'**: [Link](https://www.manchestereveningnews.co.uk/whats-on/music-nightlife-news/i-found-impossible-dislike-liam-33502173)
+- **Exclusive: Alex James reveals his honest thoughts on Liam Gallagher - and Blur's reaction to Oasis tour**: [Link](https://www.hellomagazine.com/celebrities/885125/alex-james-blur-interview-britpop-classical/)
+- **Liam Gallgher's ex-wife says 'it's the best' in admission about relationship now**: [Link](https://www.manchestereveningnews.co.uk/news/showbiz-news/liam-gallghers-ex-wife-says-33518287)
+
+
+### miguel bose (N/A, 03/03/2026 00:15 Lima)
+
+- **Diego Yamashiro: “Para lucir bien hay que tener personalidad, actitud y carisma”**: [Link](https://trome.com/actualidad/nacional/diego-yamashiro-par-lucir-bien-hay-que-tener-peronalidad-actitud-y-carisma-entevista-noticia/)
+- **Famoso diseñador peruano, Diego Yamashiro, confiesa: “Miguel Bosé fue mi padrino”**: [Link](https://www.expreso.com.pe/entretenimiento/famoso-disenador-peruano-diego-yamashiro-confiesa-miguel-bose-fue-mi-padrino-espana-roberto-carlos-cusco-noticia/1267429/)
+- **Conciertos de Miguel Bosé, Milo J, Kiruba, Kudai entre otros eventos en marzo de 2026 en Ecuador**: [Link](https://www.primicias.ec/entretenimiento/conciertos-miguel-bose-miloj-kiruba-kudai-quito-marzo2026-ecuador-116309/)
+
+
+### atv en vivo (N/A, 03/03/2026 00:15 Lima)
+
+- **Clínica San Felipe se pronuncia tras 'aparecer' en chat de Adrián Villar y madre el día del accidente**: [Link](https://www.atv.pe/noticia/clinica-san-felipe-se-pronuncia-tras-aparecer-en-chat-de-adrian-villar-y-madre-el-dia-del-accidente/)
+- **Elio Riera solicita que declaración de Marisel Linares sea virtual por amenazas**: [Link](https://canaln.pe/actualidad/elio-riera-solicita-que-declaracion-marisel-linares-sea-virtual-amenazas-n490645)
+- **Caso Lizeth Marzano: abogado de Marisel Linares pide diligencias virtuales por amenazas contra su patrocinada**: [Link](https://rpp.pe/lima/judiciales/caso-lizeth-marzano-abogado-de-marisel-linares-pide-diligencias-virtuales-por-amenazas-contra-su-patrocinada-noticia-1678213)
+
+
+### primera división (N/A, 03/03/2026 00:15 Lima)
+
+- **El Bernabéu tampoco puede con el viejo Mestalla**: [Link](https://www.lasprovincias.es/valenciacf/bernabeu-tampoco-puede-viejo-mestalla-20260302004516-nt.html)
+- **Mestalla celebra 1.500 partidos en Primera División: un hito en la historia del fútbol español**: [Link](https://www.levante-emv.com/deportes/2026/03/03/mestalla-partidos-1500-primera-division-127461919.html)
+- **1.500 veces Mestalla, el estadio más emblemático de España**: [Link](https://www.superdeporte.es/valencia-cf/2026/03/02/1-500-veces-mestalla-estadio-historia-127458181.html)
+
+
 ### copa sudamericana (N/A, 02/03/2026 21:40 Lima)
 
 - **Millonarios en marzo: fechas y rivales decisivos en Liga BetPlay y Copa Sudamericana**: [Link](https://www.infobae.com/colombia/deportes/2026/03/01/millonarios-en-marzo-fechas-y-rivales-decisivos-en-liga-betplay-y-copa-sudamericana/)
@@ -977,54 +1026,5 @@ Sin noticias relacionadas disponibles.
 - **Pronóstico Once Caldas Boyacá Chicó - Primera A Colombia 27/02/26**: [Link](https://www.sportytrader.com/es/pronosticos/once-caldas-boyaca-chico-330261/)
 - **Real Madrid y Manchester City repetirán lo que ya es otro clásico en la Liga de Campeones, con un nuevo enfrentamiento en los octavos de final.**: [Link](https://www.facebook.com/lapatria.manizales/posts/real-madrid-y-manchester-city-repetir%C3%A1n-lo-que-ya-es-otro-cl%C3%A1sico-en-la-liga-de-/1379384747549041/)
 - **Once Caldas vs Boyacá Chicó hoy: Resultado EN VIVO, minuto a minuto y goles del partido**: [Link](https://www.365scores.com/es/news/once-caldas-vs-chico-resultado-vivo/)
-
-
-### querétaro - santos (N/A, 27/02/2026 21:24 Lima)
-
-- **Liga MX: Santos Laguna quiere volver a ganar ante Querétaro**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-santos-laguna-quiere-volver-a-ganar-ante-queretaro-noticia-1677658)
-- **Pronóstico Queretaro Club Santos Laguna - Liga MX 27/02/26**: [Link](https://www.sportytrader.com/es/pronosticos/queretaro-santos-laguna-330353/)
-- **¡Golazo de los Gallos! Autopase de Mateo Coronel para el 1-0**: [Link](https://www.tudn.com/futbol/liga-mx/golazo-de-los-gallos-autopase-de-mateo-coronel-para-el-1-0-video)
-
-
-### mazatlán - pachuca (N/A, 27/02/2026 21:24 Lima)
-
-- **Pronóstico Mazatlan FC CF Pachuca - Liga MX 27/02/26**: [Link](https://www.sportytrader.com/es/pronosticos/monarcas-morelia-cf-pachuca-330384/)
-- **Liga MX: Pachuca quiere mantener su racha frente Mazatlán**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-pachuca-quiere-mantener-su-racha-frente-mazatlan-noticia-1677657)
-- **Levante vs. Alavés (27 de Feb., 2026) Resultados en Vivo**: [Link](https://www.espn.com.co/futbol/partido/_/juegoId/748399)
-
-
-### posiciones de liga 1 (N/A, 27/02/2026 21:24 Lima)
-
-- **Así se jugará la fecha 5 del Apertura de la Liga 1 2026**: [Link](https://www.espn.com.pe/futbol/peru/nota/_/id/16349532/programacion-de-la-fecha-5-del-apertura-liga-1-de-peru)
-- **Tabla de posiciones de la Liga 1 EN VIVO: resultados de la fecha 5 del Torneo Apertura 2026**: [Link](https://depor.com/futbol-peruano/descentralizado/tabla-de-posiciones-de-liga-1-peru-2026-en-vivo-resultados-y-partidos-fecha-5-torneo-apertura-con-alianza-lima-universitario-y-sporting-cristal-noticia/)
-- **Programación fecha 05 del Torneo Apertura Liga1 Te Apuesto**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/programacion-fecha-05-torneo-apertura-liga1-te-apuesto-n452819)
-
-
-### neil sedaka (N/A, 27/02/2026 21:24 Lima)
-
-- **Neil Sedaka, Singing Craftsman of Memorable Pop Songs, Dies at 86**: [Link](https://www.nytimes.com/2026/02/27/arts/music/neil-sedaka-dead.html)
-- **Neil Sedaka, the singer-songwriter behind dozens of hits of the 1960s and ‘70s, dies at age 86**: [Link](https://www.cnn.com/2026/02/27/entertainment/neil-sedaka-death)
-- **Neil Sedaka’s Biggest Billboard Hot 100 Hits: ‘Breaking Up Is Hard to Do’ & Beyond**: [Link](https://www.yahoo.com/entertainment/music/articles/neil-sedaka-biggest-billboard-hot-004316757.html)
-
-
-### jim carrey (N/A, 27/02/2026 21:24 Lima)
-
-- **Jim Carrey Thanks His 'Sublime Companion' Min Ah as He Accepts Lifetime Honor at France's César Awards**: [Link](https://people.com/jim-carrey-thanks-sublime-companion-cesar-awards-honor-speech-11915866)
-- **Jim Carrey Delivers Emotional Speech in French While Receiving Cesar Awards Honor: ‘My Tongue Is Tired’**: [Link](https://variety.com/2026/film/global/jim-carrey-speech-french-cesar-awards-honor-1236674119/)
-- **Jim Carrey's unrecognizable puffy new look sparks fan meltdown: 'Is he wearing a mask?'**: [Link](https://www.dailymail.co.uk/tvshowbiz/article-15599853/Jim-Carrey-appearance-puffy-surgery.html)
-
-
-### melgar - chankas cyc (N/A, 27/02/2026 21:24 Lima)
-
-- **(VIDEO) Los Chankas remontaron y vencieron 2-1 a FBC Melgar para dormir en la punta del Apertura**: [Link](https://ovacion.pe/noticias/liga1-2026/video-chankas-remontaron-vencieron-2-1-fbc-melgar-dormir-punta-del-apertura)
-- **¡Su primera vez! Gol de Matías Zegarra para el 1-0 de Melgar vs. Los Chankas por la Liga 1**: [Link](https://depor.com/futbol-peruano/descentralizado/gol-matias-zegarra-melgar-vs-los-chankas-anotacion-para-el-1-0-tras-pase-de-zanelatto-liga-1-video-noticia/)
-- **Liga 1: FBC Melgar busca reaccionar en casa ante Los Chankas**: [Link](https://diariocorreo.pe/deportes/liga-1-fbc-melgar-busca-reaccionar-en-casa-ante-los-chankas-noticia/)
-
-
-### garcilaso vs cienciano (N/A, 27/02/2026 21:24 Lima)
-
-- **Cusco se detiene por el clásico**: [Link](https://caretas.pe/deportes/cusco-se-detiene-por-el-clasico/)
-- **Pronóstico Deportivo Garcilaso Cienciano - Liga 1 Perú 27/02/26**: [Link](https://www.sportytrader.com/es/pronosticos/deportivo-garcilaso-cienciano-330331/)
-- **🔴#ENVIVO | Cienciano vence 1-0 a Garcilaso en el clásico cusqueño | VIDEO**: [Link](https://ovacion.pe/noticias/liga1-2026/envivo-cienciano-vence-1-0-garcilaso-clasico-cusqueno-video)
 
 
