@@ -1,3 +1,73 @@
+### corea del sur (N/A, 03/03/2026 21:32 Lima)
+
+- **Las acciones de Asia extienden su caída por tercer día, mientras el petróleo sube**: [Link](https://www.bloomberglinea.com/mercados/las-acciones-de-asia-extienden-su-caida-por-tercer-dia-mientras-el-petroleo-sube/)
+- **El mercado de Corea del Sur abrió en terrenos negativos este 4 de marzo**: [Link](https://www.infobae.com/noticias/2026/03/04/el-mercado-de-corea-del-sur-abrio-en-terrenos-negativos-este-4-de-marzo/)
+- **El Nikkei cae más de un 2 % a la apertura por el conflicto en Oriente Medio Por EFE**: [Link](https://es.investing.com/news/stock-market-news/el-nikkei-cae-mas-de-un-2--a-la-apertura-por-el-conflicto-en-oriente-medio-3544669)
+
+
+### pachuca - necaxa (N/A, 03/03/2026 21:32 Lima)
+
+- **Liga MX: Por la fecha 9 se enfrentarán Pachuca y Necaxa**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-por-la-fecha-9-se-enfrentaran-pachuca-y-necaxa-noticia-1678241)
+- **Pachuca vs. Necaxa en vivo: seguí el partido minuto a minuto**: [Link](https://www.tycsports.com/mexico/liga-mx/mexico-liga-mx-clausura-2026-pachuca-vs-necaxa-fecha-9-id716175.html)
+- **Pachuca vs Necaxa en vivo: horarios, transmisión online y canales del Clausura de la Liga MX en España, Latinoamérica, México y Estados Unidos**: [Link](https://www.dazn.com/es-MX/news/f%C3%BAtbol/pachuca-necaxa-vivo-horarios-transmision-online-canales-clausura-liga-mx-espana-latinoamerica-mexico-estados-unidos/h5h4iu1iofj11q5gypizrj45v)
+
+
+### alianza atlético - deportivo garcilaso (N/A, 03/03/2026 21:32 Lima)
+
+- **Noche de «mata-mata» para los peruanos**: [Link](https://caretas.pe/deportes/noche-de-mata-mata-para-los-peruanos/)
+- **Pronóstico Alianza Atlético Deportivo Garcilaso - Copa Sudamericana 03/03/26**: [Link](https://www.sportytrader.com/es/pronosticos/alianza-atletico-deportivo-garcilaso-331453/)
+- **Alianza Atlético vs. Deportivo Garcilaso EN VIVO: dónde ver por ESPN y Disney Plus**: [Link](https://depor.com/futbol-peruano/copa-sudamericana/alianza-atletico-vs-deportivo-garcilaso-en-vivo-gratis-hoy-espn-futbol-libre-tv-disney-plus-directv-dsports-dgo-donde-ver-transmision-en-directo-por-internet-copa-sudamericana-video-noticia/)
+
+
+### bts (N/A, 03/03/2026 21:32 Lima)
+
+- **BTS Unveil Track List for 'Arirang' Featuring Collabs With Mike WiLL Made-It, El Guincho, More**: [Link](https://www.rollingstone.com/music/music-news/bts-arirang-track-list-1235524160/)
+- **Kevin Parker, Diplo, Flume Have Credits On New BTS LP**: [Link](https://www.yahoo.com/entertainment/music/articles/kevin-parker-diplo-flume-credits-203917452.html)
+- **BTS' New Album Has Contributions From Tame Impala, JPEGMAFIA, Flume, El Guincho, & More**: [Link](https://stereogum.com/2491027/bts-new-album-has-contributions-from-tame-impala-jpegmafia-flume-el-guincho-more/music)
+
+
+### santos - cruz azul (N/A, 03/03/2026 21:32 Lima)
+
+- **Santos vs Cruz Azul: posibles alineaciones, Liga MX, Jornada 9**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/16382419/santos-vs-cruz-azul-alineaciones-jornada-9-clausura-2026-liga-mx)
+- **Santos Laguna vs Cruz Azul | Pronóstico y cuotas 04.03.2026**: [Link](https://www.transfermarkt.es/apuestas/pronosticos-deportivos/santos-laguna-vs-cruz-azul-pronostico-apuestas-04-03-2026/)
+- **Cruz Azul va por el liderato con rostros nuevos: Amaury y Nico Ibáñez asumen el reto**: [Link](https://www.estadiodeportes.mx/ligamx/nicolas-larcamon-apuesta-por-amaury-morales-y-nico-ibanez-ante-santos-20260303-0044.html)
+
+
+### cobresal vs (N/A, 03/03/2026 21:32 Lima)
+
+- **¡EN VIVO! Cobresal y Audax Italiano buscan la fase de grupos de la CONMEBOL Sudamericana**: [Link](https://espndeportes.espn.com/futbol/copa-sudamericana/nota/_/id/16381972/cobresal-vs-audax-italiano-primera-ronda-clasificacion-sudamericana-equipo-fecha-hora-y-tv-en-vivo)
+- **Cuándo juegan Cobresal vs. Audax Italiano por la Conmebol Sudamericana: equipo, fecha, hora y TV en vivo**: [Link](https://www.espn.com.ar/futbol/copa-sudamericana/nota/_/id/16381972/cobresal-vs-audax-italiano-primera-ronda-clasificacion-sudamericana-equipo-fecha-hora-y-tv-en-vivo)
+- **Pronóstico Cobresal Audax Italiano - Copa Sudamericana 03/03/26**: [Link](https://www.sportytrader.com/es/pronosticos/cobresal-audax-italiano-331349/)
+
+
+### ignacio buse (N/A, 03/03/2026 21:32 Lima)
+
+- **Ignacio Buse vs. Rinky Hijikata por la final de la clasificación a Indian Wells vía ESPN y Disney Premium**: [Link](https://depor.com/full-deportes/espn-en-vivo-ignacio-buse-vs-rinky-hijikata-en-directo-donde-ver-transmision-por-disney-plus-futbol-libre-tv-online-por-internet-en-qualy-de-indian-wells-en-estados-unidos-tenis-video-noticia/)
+- **Vamos, Perú: Ignacio Buse venció 2-0 a Liam Draxl por la Qualy del Masters 1000 de Indian Wells**: [Link](https://rpp.pe/tenis/mas-tenis/ignacio-buse-vs-liam-draxl-en-vivo-a-que-hora-juegan-y-donde-ver-qualy-atp-masters-1000-indian-wells-via-atp-tv-link-gratis-noticia-1678149)
+- **Noticias sobre Ignacio Buse vs Liam Draxl**: [Link](https://elcomercio.pe/noticias/ignacio-buse-vs-liam-draxl/)
+
+
+### botafogo (N/A, 03/03/2026 21:32 Lima)
+
+- **Botafogo encara tabu no Equador em busca de vaga na Libertadores**: [Link](https://onefootball.com/pt-br/noticias/botafogo-encara-tabu-no-equador-em-busca-de-vaga-na-libertadores-42496316)
+- **3ª Fase começa com os primeiros duelos rumo à Fase de Grupos**: [Link](https://www.conmebol.com/pt-br/noticias-pt-br/3a-fase-comeca-com-os-primeiros-duelos-rumo-a-fase-de-grupos/)
+- **Tudo sobre Barcelona-EQU x Botafogo (03-03-2026)**: [Link](https://placar.com.br/tudo-sobre/barcelona-equ-botafogo-147556-03-03-2026/)
+
+
+### megan fox (N/A, 03/03/2026 21:32 Lima)
+
+- **Megan Fox Posts Sexy New 'Doomed' Snaps on Instagram**: [Link](https://www.tmz.com/2026/03/03/megan-fox-posts-new-instagram-photos/)
+- **Megan Fox’s New ‘Cheeky’ Photo Already Has 600,000 Likes**: [Link](https://thespun.com/trending/megan-foxs-new-cheeky-photo-already-has-600000-likes)
+- **Megan Fox Exposes Her Buttcheeks in Barely-There Black Thong After Deleting All Her Instagram Photos**: [Link](https://okmagazine.com/p/megan-fox-exposes-butt-thong-after-deleting-instagram-photos/)
+
+
+### atlético tucumán - racing (N/A, 03/03/2026 21:32 Lima)
+
+- **Cuándo juegan Atlético Tucumán vs. Racing por el Torneo Apertura: equipo, fecha, hora y TV en vivo**: [Link](https://www.espn.com.pe/futbol/argentina/nota/_/id/16380385/atletico-tucuman-vs-racing-por-el-torneo-apertura-equipo-fecha-hora-y-tv-en-vivo)
+- **Pronóstico Tucumán vs. Racing Club - Una lucha por la clasificación en la Zoba B**: [Link](https://gainblers.com/pe/pronosticos/futbol/argentina/superliga/pronostico-tucuman-racing-club-04-03-2026/)
+- **Atlético Tucumán y Racing Club se encuentran en la fecha 8**: [Link](https://zona.palmsbet.pe/deportes/futbol/atletico-tucuman-y-racing-club-se-encuentran-en-la-fecha-8/)
+
+
 ### barcelona vs psg (N/A, 03/03/2026 15:38 Lima)
 
 - **El Barça recupera a Neymar para la remontada**: [Link](https://www.sport.es/es/noticias/barca/barca-recupera-neymar-remontada-127472714)
@@ -959,74 +1029,5 @@ Sin noticias relacionadas disponibles.
 - **🚨 XI Oviedo-Atleti: Changes for Atleti, Julio Díaz starts!**: [Link](https://sports.yahoo.com/articles/xi-oviedo-atleti-changes-atleti-184500826.html)
 - **Real Oviedo-Atletico Madrid - LaLiga 2025/2026 Statistical Preview**: [Link](https://www.whoscored.com/matches/1914141/preview/spain-laliga-2025-2026-real-oviedo-atletico-madrid)
 - **Atlético Returns to the Site of Past Tragedy**: [Link](https://www.el-balad.com/6863404)
-
-
-### le havre - psg (N/A, 28/02/2026 15:32 Lima)
-
-- **La compo du PSG contre Le Havre : Luis Enrique change tout**: [Link](https://www.goal.com/fr/listes/la-compo-du-psg-contre-le-havre-luis-enrique-change-tout/blte3eab1e2223c230a)
-- **LIVE : Le Havre - PSG (0-0)**: [Link](https://www.sofoot.com/articles/live-le-havre-psg)
-- **Match : Comment regarder Le Havre/PSG à l'étranger**: [Link](https://www.culturepsg.com/news/match/comment-regarder-le-havre-psg-a-l-etranger/58747)
-
-
-### al nassr (N/A, 28/02/2026 15:32 Lima)
-
-- **Jesus Settles on a Fiery Attacking Trio in Al-Nassr's Lineup Against Al-Fayha**: [Link](https://www.ysscores.com/en/news/13919390/Jesus-Settles-on-a-Fiery-Attacking-Trio-in-Al-Nassr's-Lineup-Against-Al-Fayha)
-- **How to watch today's Al-Fayha vs Al Nassr FC Saudi Pro League game: Live stream, TV channel, and start time**: [Link](https://www.goal.com/en/news/how-to-watch-al-fayha-v-al-nassr-fc-28022026/bltcf46641ab2f4880e)
-- **"I have a bad feeling", "He will score brace" - Fans make prediction as Cristiano Ronaldo's Al-Nassr name XI for Al-Fayha clash**: [Link](https://www.sportskeeda.com/football/news-i-bad-feeling-he-will-score-brace-fans-make-prediction-cristiano-ronaldo-s-al-nassr-name-xi-al-fayha-clash)
-
-
-### elimination chamber 2026 (N/A, 28/02/2026 15:32 Lima)
-
-- **Final Odds For Both Elimination Chamber Matches Ahead Of Tonight's WWE PLE**: [Link](https://www.thesportster.com/wwe-elimination-chamber-winners-betting-odds/)
-- **WWE’s Elimination Chamber: where to watch, start time, card, ESPN/Netflix/Peacock/ streaming info**: [Link](https://decider.com/2026/02/28/elimination-chamber-wwe-2026-start-time-card-watch-espn-peacock-netflix/)
-- **Wrestling Roundup: Many Loose Ends Will be Tied at Elimination Chamber**: [Link](https://www.thesportingtribune.com/2026/02/27/wwe-chamber-roundup)
-
-
-### galatasaray - alanyaspor (N/A, 28/02/2026 11:33 Lima)
-
-- **Galatasaray'da Yunus Akgün Alanyaspor maçı kadrosunda yer almadı**: [Link](https://www.yenicaggazetesi.com/galatasarayda-yunus-akgun-alanyaspor-maci-kadrosunda-yer-almadi-1004967h.htm)
-- **Okan Buruk’tan Osimhen kararı! Galatasaray'da sürpriz kadro**: [Link](https://www.posta.com.tr/galeri/okan-buruktan-osimhen-karari-galatasarayda-surpriz-kadro-2969387)
-- **Galatasaray’ın Alanyaspor Karşısındaki Muhtemel İlk 11’i! Emre Kaplan Son Gelişmeleri Aktardı… - Aspor**: [Link](https://www.aspor.com.tr/webtv/program/yasasin-hafta-sonu/galatasarayin-alanyaspor-karsisindaki-muhtemel-ilk-11i-emre-kaplan-son-gelismeleri-aktardi)
-
-
-### rennes - toulouse (N/A, 28/02/2026 11:33 Lima)
-
-- **Rennes : 38 minutes en 2 matchs… Une recrue du mercato 2025 peut craindre le pire avec Haise**: [Link](https://www.topmercato.com/2008394-rennes-38-minutes-en-2-matchs-une-recrue-du-mercato-2025-peut-craindre-le-pire-avec-haise/)
-- **Stade Rennais : Un cadre offensif déjà fragilisé par l’effet Haise**: [Link](https://mediafoot.net/stade-rennais-un-cadre-offensif-deja-fragilise-par-leffet-haise/)
-- **Ligue 1 : en plein doute, le TFC joue gros chez le Stade Rennais FC**: [Link](https://www.lejournaltoulousain.fr/occitanie/haute-garonne/toulouse/ligue-1-plein-doute-tfc-joue-gros-rennes-365312/)
-
-
-### charlton - wrexham (N/A, 28/02/2026 11:33 Lima)
-
-- **TEAM NEWS | Five changes for Wrexham clash**: [Link](https://www.charltonafc.com/news/team-news-five-changes-wrexham-clash)
-- **Las Vegas trip again? Wrexham players are keeping their Sin City dreams alive!**: [Link](https://www.denbighshirefreepress.co.uk/sport/25891182.wrexham-players-las-vegas-sights/)
-- **'We want a strong finish again' - Parkinson aiming high for Wrexham**: [Link](https://www.bordercountiesadvertizer.co.uk/news/25887214.want-strong-finish-says-wrexham-manager-phil-parkinson/)
-
-
-### mönchengladbach - fc union berlin (N/A, 28/02/2026 11:33 Lima)
-
-- **Borussia Mönchengladbach: Lukas Ullrich mit Tor-Premiere gegen Union**: [Link](https://www.bild.de/sport/fussball/borussia-moenchengladbach-lukas-ullrich-mit-tor-premiere-gegen-union-69a1bf337c787f6a1cef146c)
-- **Konferenz im Ticker – Live: Trimmel und Querfeld müssen in Gladbach bestehen**: [Link](https://www.heute.at/s/live-trimmel-und-querfeld-muessen-in-gladbach-bestehen-120165680)
-- **Union Berlin gegen Mönchengladbach: Bundesliga jetzt live im TV und Stream sehen**: [Link](https://berlin.t-online.de/region/berlin/id_101143920/union-berlin-vs-moenchengladbach-bundesliga-im-tv-jetzt-live-sehen.html)
-
-
-### dubai (N/A, 28/02/2026 11:33 Lima)
-
-- **Saudi Airlines cancels flights, Muscat airport shuts amid Iran-Israel escalation**: [Link](https://www.aa.com.tr/en/middle-east/saudi-airlines-cancels-flights-muscat-airport-shuts-amid-iran-israel-escalation/3843389)
-- **All Flights to and from Dubai International and Al Maktoum International Airports Suspended**: [Link](https://en.traicy.com/posts/2026022833229/)
-- **Airspace closed in multiple Middle Eastern countries; multiple flights from China to the Middle East cancelled**: [Link](https://www.globaltimes.cn/page/202602/1355933.shtml)
-
-
-### aruba (N/A, 28/02/2026 11:33 Lima)
-
-- **Aruba pone a Perú en el mapa de hubs que se disputan el Caribe: ¿sostenible o estacional?**: [Link](https://gestion.pe/economia/aruba-pone-a-peru-en-el-mapa-de-hubs-que-se-disputan-el-caribe-sostenible-o-estacional-noticia/)
-- **This Aruba Hotel Is the Only Hotel on Earth With Two Perfect Green Globe Scores**: [Link](https://www.caribjournal.com/2026/02/26/aruba-green-globe-hotel/)
-
-
-### barca (N/A, 28/02/2026 11:33 Lima)
-
-- **Barcelona vs Villarreal: La Liga – preview, team news, start, lineups**: [Link](https://www.aljazeera.com/sports/2026/2/27/barcelona-vs-villarreal-la-liga-preview-team-news-start-lineups)
-- **Lamine Yamal scores a stunning second goal for Barca**: [Link](https://www.espn.com/video/clip/_/id/48061978)
-- **Barcelona XI vs. Villarreal: Midfield Changes Projected—Injury News, Predicted Lineup**: [Link](https://www.si.com/soccer/barcelona-xi-vs-villarreal-injury-news-predicted-lineup-2-28-26)
 
 
