@@ -1,3 +1,52 @@
+### pelicans - lakers (N/A, 04/03/2026 00:10 Lima)
+
+- **Pelicans vs Lakers Odds & Picks Tonight: NO Undervalued in LA**: [Link](https://www.oddsshark.com/nba/pelicans-lakers-picks-odds-march-3-2026)
+- **Pelicans vs. Lakers**: [Link](https://mlq.ai/prediction/market/nba-nop-lal-2026-03-03/)
+- **Lakers' Maxi Kleber: Added to injury report**: [Link](https://www.cbssports.com/fantasy/basketball/news/lakers-maxi-kleber-added-to-injury-report/)
+
+
+### julio iglesias (N/A, 04/03/2026 00:10 Lima)
+
+- **Julio Iglesias demandó a diario español tras denuncias por agresiones sexuales**: [Link](https://rpp.pe/famosos/celebridades/julio-iglesias-demanda-a-diario-espanol-tras-denuncias-por-agresiones-sexuales-noticia-1678335)
+- **Julio Iglesias presenta demanda por presunto montaje de abusos sexuales contra medio español**: [Link](https://peru21.pe/celebridades/julio-iglesias-demanda-medio-espanol-por-difamacion/)
+- **Julio Iglesias demandará a ‘eldiario.es’ y Univisión por acusarle sin pruebas de «violaciones y agresiones ...**: [Link](https://okdiario.com/espana/julio-iglesias-demandara-eldiario-univision-acusarle-sin-pruebas-violaciones-agresiones-fisicas-16300534)
+
+
+### steven tyler (N/A, 04/03/2026 00:10 Lima)
+
+- **Kelly Osbourne hits back at comments about her appearance at BRIT Awards**: [Link](https://www.usatoday.com/story/entertainment/celebrities/2026/03/01/kelly-osbourne-appearance-weight-loss-brit-awards/88935448007/)
+- **Kelly Osbourne Fires Back at “Cruelty” Over Her Appearance: “I’m Currently Going Through the Hardest Time in My Life”**: [Link](https://ca.news.yahoo.com/kelly-osbourne-fires-back-cruelty-183326340.html)
+- **Kelly Osbourne Slams 'Disgusting' Body-Shaming Comments About Her Recent Appearance**: [Link](https://people.com/kelly-osbourne-addresses-disgusting-body-shaming-comments-slim-appearance-11911725)
+
+
+### puerto cabello - monagas (N/A, 04/03/2026 00:10 Lima)
+
+- **Pronóstico Academia Puerto Cabello Monagas - Copa Sudamericana 03/03/26**: [Link](https://www.sportytrader.com/es/pronosticos/academia-puerto-cabello-monagas-sc-331402/)
+- **Puerto Cabello ganó en penales y clasificó a fase de grupos de la Copa Sudamericana**: [Link](https://ovacion.pe/noticias/copa-sudamericana/puerto-cabello-gano-penales-clasifico-fase-grupos-copa-sudamericana)
+- **Puerto Cabello busca iniciar con triunfo en la Copa Suramericana**: [Link](https://contrapunto.com/deportes/futbol/puerto-cabello-busca-iniciar-con-triunfo-en-la-copa-suramericana/)
+
+
+### pumas - toluca (N/A, 04/03/2026 00:10 Lima)
+
+- **UNAM vs. Toluca (4 de Mar., 2026) Resultados en Vivo**: [Link](https://www.espn.com.ar/futbol/partido/_/juegoId/401840889)
+- **UNAM vs. Toluca (3 de Mar., 2026) Resultados en Vivo**: [Link](https://espndeportes.espn.com/futbol/partido/_/juegoId/401840889)
+- **Liga MX: Pumas UNAM intentará cortar la racha positiva de Toluca FC**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-pumas-unam-intentara-cortar-la-racha-positiva-de-toluca-fc-noticia-1678269)
+
+
+### magaly tv (N/A, 04/03/2026 00:10 Lima)
+
+- **Abogado de Marisel Linares señala que periodista se compromete a pagar reparación civil, pero afirma que "no ha cometido ningún delito"**: [Link](https://larepublica.pe/sociedad/2026/03/01/abogado-de-marisel-linares-responde-sobre-donacion-del-vehiculo-a-adrian-villar-y-reconoce-que-no-fue-elevado-a-escritura-publica-25701)
+- **Fiscalía niega virtualidad: Marisel Linares obligada a declarar presencialmente pese a amenazas**: [Link](https://caretas.pe/sociedad/fiscalia-niega-virtualidad-marisel-linares-obligada-a-declarar-presencialmente-pese-a-amenazas/)
+- **Marisel Linares y Adrián Villar: una sospecha de encubrimiento**: [Link](https://peru21.pe/investigacion/marisel-linares-y-adrian-villar-una-sospecha-de-encubrimiento/)
+
+
+### plaza gwanghwamun (N/A, 04/03/2026 00:10 Lima)
+
+- **BTS comeback show sells out immediately as 260,000 fans set to descend on Seoul**: [Link](https://www.theguardian.com/music/2026/feb/24/bts-comeback-show-sells-out-immediately-as-260000-fans-set-to-descend-on-seoul)
+- **The BTS World Tour (BTS WORLD TOUR ARIRANG), which draws attention from all over the world, will ann..**: [Link](https://www.mk.co.kr/en/society/11977325)
+- **Legal loophole allows fans to camp for BTS concert at Gwanghwamun**: [Link](https://www.koreatimes.co.kr/southkorea/society/20260303/legal-loophole-allows-fans-to-camp-for-bts-concert-at-gwanghwamun)
+
+
 ### corea del sur (N/A, 03/03/2026 21:32 Lima)
 
 - **Las acciones de Asia extienden su caída por tercer día, mientras el petróleo sube**: [Link](https://www.bloomberglinea.com/mercados/las-acciones-de-asia-extienden-su-caida-por-tercer-dia-mientras-el-petroleo-sube/)
@@ -980,54 +1029,5 @@ Sin noticias relacionadas disponibles.
 - **Sport Boys vs CD Moquegua en vivo: A qué hora inicia y dónde ver la Liga 1**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/sport-boys-vs-cd-moquegua-en-vivo-hora-y-donde-ver-la-liga-1-fecha-5-torneo-apertura-l1max-l1play-canal-tv-tdpe-noticia/)
 - **Liga 1: Deportivo Moquegua visita a Sport Boys por la fecha 5**: [Link](https://rpp.pe/futbol/descentralizado/liga-1-deportivo-moquegua-visita-a-sport-boys-por-la-fecha-5-noticia-1677846)
 - **Sport Boys tendrá dos bajas de cara al duelo ante CD Moquegua**: [Link](https://ovacion.pe/noticias/sport-boys/sport-boys-tendra-dos-bajas-cara-al-duelo-ante-cd-moquegua)
-
-
-### tabla de posiciones liga 1 (N/A, 28/02/2026 15:32 Lima)
-
-- **Así se jugará la fecha 5 del Apertura de la Liga 1 2026**: [Link](https://www.espn.com.pe/futbol/peru/nota/_/id/16349532/programacion-de-la-fecha-5-del-apertura-liga-1-de-peru)
-- **Tabla de posiciones Liga 1 2026 EN VIVO: partidos, resultados y cómo va la fecha 5 del Torneo Apertura**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/tabla-de-posiciones-liga-1-2026-en-vivo-partidos-resultados-y-posiciones-tras-fecha-5-del-torneo-apertura-noticia/)
-- **Programación fecha 05 del Torneo Apertura Liga1 Te Apuesto**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/programacion-fecha-05-torneo-apertura-liga1-te-apuesto-n452819)
-
-
-### inter milan (N/A, 28/02/2026 15:32 Lima)
-
-- **GdS: Serie A experiencing a ‘European crisis’ – Milan’s supporting role**: [Link](https://sempremilan.com/serie-a-experiencing-european-crisis-milan-role)
-- **Serie A close to extra UCL spot, but Italy underdog against Germany and Spain**: [Link](https://football-italia.net/serie-a-ucl-spot-italy-underdog-spain-germany/)
-- **Italian clubs on brink of historic Champions League embarrassment**: [Link](https://www.bbc.com/sport/football/articles/c4g2j503626o)
-
-
-### jamenei (N/A, 28/02/2026 15:32 Lima)
-
-- **EE.UU. e Israel lanzan un ataque a gran escala contra Irán, se reportan explosiones en Teherán**: [Link](https://www.tvperu.gob.pe/noticias/internacionales/eeuu-e-israel-lanzan-un-ataque-a-gran-escala-contra-iran-se-reportan-explosiones-en-teheran)
-- **Marco Rubio notificó con antelación el ataque contra Irán a algunos congresistas, según CNN**: [Link](https://rpp.pe/mundo/actualidad/marco-rubio-notifico-con-antelacion-el-ataque-contra-iran-a-algunos-congresistas-segun-cnn-noticia-1677968)
-- **¡Alerta!: Estados Unidos e Israel lanzan ataques contra Irán**: [Link](https://diariouno.pe/2026/02/28/alerta-estados-unidos-e-israel-lanzan-ataques-contra-iran/)
-
-
-### le havre vs psg (N/A, 28/02/2026 15:32 Lima)
-
-- **Le Havre AC vs. PSG (28 de Feb., 2026) Resultados en Vivo**: [Link](https://www.espn.com.pe/futbol/partido/_/juegoId/746619)
-- **La compo du PSG contre Le Havre : Luis Enrique change tout**: [Link](https://www.goal.com/fr/listes/la-compo-du-psg-contre-le-havre-luis-enrique-change-tout/blte3eab1e2223c230a)
-- **LIVE : Le Havre - PSG (0-0)**: [Link](https://www.sofoot.com/articles/live-le-havre-psg)
-
-
-### inter vs genoa (N/A, 28/02/2026 15:32 Lima)
-
-- **Cuándo juegan Inter vs. Genoa por la fecha 27 de la Serie A 2025/26: equipo, fecha, hora y TV en vivo**: [Link](https://www.espn.com.pe/futbol/italia/nota/_/id/16353473/inter-vs-genoa-fecha-27-serie-a-equipo-fecha-hora-y-tv-en-vivo)
-- **Pronóstico Inter vs. Genoa - La localía con la obligación de ir por la victoria**: [Link](https://gainblers.com/pe/pronosticos/futbol/italia/serie-a/pronostico-inter-genoa-28-02-2026/)
-- **Serie A: Inter juega ante Genoa para mantenerse en la punta**: [Link](https://rpp.pe/futbol/ligas-internacionales/serie-a-inter-juega-ante-genoa-para-mantenerse-en-la-punta-noticia-1677776)
-
-
-### braga vs (N/A, 28/02/2026 15:32 Lima)
-
-- **Sporting Braga vs. Ferencvaros - Live Score - March 18, 2026**: [Link](https://www.foxsports.com/soccer/europa-league-sporting-braga-vs-ferencvaros-mar-18-2026-game-boxscore-710778)
-- **Preview: Nacional vs Braga - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/nacional/preview/nacional-vs-braga-prediction-team-news-lineups_592804.html)
-- **Nacional v Braga: European push meets survival fight**: [Link](https://onefootball.com/en/news/nacional-v-braga-european-push-meets-survival-fight-42477817)
-
-
-### real oviedo vs (N/A, 28/02/2026 15:32 Lima)
-
-- **🚨 XI Oviedo-Atleti: Changes for Atleti, Julio Díaz starts!**: [Link](https://sports.yahoo.com/articles/xi-oviedo-atleti-changes-atleti-184500826.html)
-- **Real Oviedo-Atletico Madrid - LaLiga 2025/2026 Statistical Preview**: [Link](https://www.whoscored.com/matches/1914141/preview/spain-laliga-2025-2026-real-oviedo-atletico-madrid)
-- **Atlético Returns to the Site of Past Tragedy**: [Link](https://www.el-balad.com/6863404)
 
 
