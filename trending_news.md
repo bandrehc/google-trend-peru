@@ -1,3 +1,73 @@
+### aberdeen - celtic f. c. (N/A, 04/03/2026 15:37 Lima)
+
+- **Reo Hatate is the destroyer of the Dons: He must be stopped**: [Link](https://www.heraldscotland.com/sport/25905699.celtic-star-destroyed-aberdeen-must-stopped/)
+- **Sunday’s fightback will mean nothing if we don’t take care of business tonight**: [Link](https://thecelticstar.com/sundays-fightback-will-mean-nothing-if-we-dont-take-care-of-business-tonight/)
+- **How Martin O’Neill could make huge statement of intent at Pittodrie // ACSOM A Celtic State of Mind**: [Link](https://www.celticnewsnow.com/news/how-martin-oneill-could-make-huge-statement-of-intent-at-pittodrie-acsom-a-celtic-state-of-mind/695417/)
+
+
+### liga inglesa (N/A, 04/03/2026 15:37 Lima)
+
+- **Pronóstico Newcastle Manchester United FC - Premier League 04/03/26**: [Link](https://www.sportytrader.com/es/pronosticos/newcastle-manchester-united-331621/)
+- **Newcastle vs. Manchester United: ¡Juega en la Premier League y gana hasta S/. 600,000 con Meridianbet!**: [Link](https://ovacion.pe/noticias/nota-promocional/newcastle-vs-manchester-united-juega-premier-league-gana-hasta-s-600000)
+- **Cuándo juegan Newcastle vs. Manchester United por Premier League: equipo, fecha, hora y TV en vivo**: [Link](https://www.espn.com.ar/futbol/inglaterra/nota/_/id/16380950/newcastle-vs-manchester-united-premier-league-equipo-fecha-hora-y-tv-en-vivo)
+
+
+### gas natural gnv (N/A, 04/03/2026 15:37 Lima)
+
+- **Comisión de Defensa del Consumidor exige explicaciones por las consecuencias del desabastecimiento de gas natural y alza de gasolina que afecta a los consumidores**: [Link](https://comunicaciones.congreso.gob.pe/damos-cuenta/comision-de-defensa-del-consumidor-exige-explicaciones-por-las-consecuencias-del-desabastecimiento-de-gas-natural-y-alza-de-gasolina-que-afecta-a-los-consumidores/)
+- **Ejecutan acciones para garantizar seguridad e iniciar reparación en planta de gas natural**: [Link](https://elperuano.pe/noticia/290404-ejecutan-acciones-para-garantizar-seguridad-e-iniciar-reparacion-en-planta-de-gas-natural)
+- **Tarifas de taxis subirán en Lima por restricción de GNV tras emergencia en Camisea**: [Link](https://caretas.pe/nacional/tarifas-de-taxis-subiran-en-lima-por-restriccion-de-gnv-tras-emergencia-en-camisea/)
+
+
+### lazio vs atalanta (N/A, 04/03/2026 15:37 Lima)
+
+- **Preview: Lazio vs Atalanta BC - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/lazio/coppa-italia/preview/lazio-vs-atalanta-prediction-team-news-lineups_593071.html)
+- **Palladino: ‘Atalanta want Coppa Italia for trophy and to guarantee Europe’**: [Link](https://betarena.com/a/football-italia/palladino-atalanta-coppa-italia-trophy-guarantee-europe-1772575302)
+- **Five Key Battles in Lazio vs Atalanta: Can Isaksen Torment Ahanor Again?**: [Link](https://thelaziali.com/2026/03/04/five-key-battles-in-lazio-vs-atalanta-can-isaksen-torment-ahanor-again/)
+
+
+### premier league posiciones (N/A, 04/03/2026 15:37 Lima)
+
+- **La pelea por la Premier League 2025-2026: fixture, tabla y qué necesitan Arsenal y Manchester City para ser campeones**: [Link](https://www.espn.com.ar/futbol/inglaterra/nota/_/id/16339639/arsenal-y-manchester-city-premier-que-necesitan-campeones-fixture-tabla)
+- **Arsenal y Manchester City pelean una Premier League de márgenes mínimos**: [Link](https://espndeportes.espn.com/futbol/inglaterra/nota/_/id/16382531/arsenal-manchester-city-pelea-titulo-campeon-margenes-minimos-premier)
+- **¡La Premier en juego! Otra noche de pulso al límite Arteta-Guardiola**: [Link](https://www.mundodeportivo.com/futbol/premier-league/20260304/1004145146/noche-pulso-limite-arteta-guardiola-brighton-arsenal-city-nottingham-forest.html)
+
+
+### premier (N/A, 04/03/2026 15:37 Lima)
+
+- **(3) Brighton v Arsenal, Manchester City v Nottingham Forest, and more: Premier League – live**: [Link](https://www.theguardian.com/football/live/2026/mar/04/brighton-arsenal-manchester-city-nottingham-forest-aston-villa-chelsea-fulham-west-ham-premier-league-live)
+- **talkSPORT tips – Best football bets and expert advice on Wednesday 4 March**: [Link](https://talksport.com/football/4019258/talksport-tips-best-football-bets-wednesday-4-march/)
+- **Premier League Betting Preview: Jones Knows’ Tips for Wednesday Matches**: [Link](https://news.ssbcrack.com/premier-league-betting-preview-jones-knows-tips-for-wednesday-matches/)
+
+
+### newcastle - manchester united (N/A, 04/03/2026 15:37 Lima)
+
+- **Newcastle vs Manchester United predictions: Magpies still winless**: [Link](https://www.goal.com/en-ca/betting/tips/newcastle-vs-manchester-united-predictions-03-04/A%3Ablt6c8408ea14b46381)
+- **'Carrick sending a message to the squad': Man United fans react to starting XI vs Newcastle**: [Link](https://tribuna.com/en/blogs/carrick-sending-a-message-to-the-squad-man-united-fans-react/)
+- **Confirmed line-up: Ramsdale and Barnes start against Reds**: [Link](https://onefootball.com/en/news/confirmed-line-up-ramsdale-and-barnes-start-against-reds-42504673)
+
+
+### lazio - atalanta (N/A, 04/03/2026 15:37 Lima)
+
+- **Lazio-Atalanta, Fabiani nel pre: "Non è scontato arrivare in semifinale. Sui tifosi..."**: [Link](https://onefootball.com/de/news/lazio-atalanta-fabiani-nel-pre-non-e-scontato-arrivare-in-semifinale-sui-tifosi-42504941)
+- **Calcio Live News: tutte le notizie di giornata in tempo reale**: [Link](https://www.diretta.it/news/calcio-live-news-in-campo-lazio-atalanta-0-0/8Ya56x63/)
+- **Atalanta, Percassi: "Quella contro il BVB è stata una partita unica per la nostra storia"**: [Link](https://gianlucadimarzio.com/percassi-atalanta-intervista-lazio-coppa-italia-4-marzo-2026/)
+
+
+### gaziantep - fenerbahçe (N/A, 04/03/2026 15:37 Lima)
+
+- **Fenerbahçe'de Asensio ve Ederson'un neden kadroya alınmadığı açıklandı**: [Link](https://www.yenicaggazetesi.com/fenerbahcede-asensio-ve-edersonun-neden-kadroya-alinmadigi-aciklandi-1006069h.htm)
+- **Fenerbahçe’de Levent Mercan’ın Sert Şutu Direğe Takıldı! | Gaziantep FK 0-0 Fenerbahçe - Aspor**: [Link](https://www.aspor.com.tr/webtv/program/aspor/fenerbahcede-levent-mercanin-sert-sutu-direge-takildi-gaziantep-fk-0-0-fenerbahce)
+- **Sadettin Saran maça saatler kala müjdeyi verdi**: [Link](https://www.sondakika.com/haber/haber-sadettin-saran-maca-saatler-kala-mujdeyi-verdi-19623850/)
+
+
+### real sociedad - athletic (N/A, 04/03/2026 15:37 Lima)
+
+- **Cuándo juegan Real Sociedad vs. Athletic Club por la semifinal de Copa del Rey: equipo, fecha, hora y TV en vivo**: [Link](https://www.espn.com.pe/futbol/nota/_/id/16384623/real-sociedad-vs-athletic-club-semifinal-copa-del-rey-equipo-fecha-hora-y-tv-en-vivo)
+- **HOY Real Sociedad vs Athletic Club en vivo a qué hora juegan y cómo ver vuelta semifinal Copa del Rey 2026 vía DSports Partidos de hoy**: [Link](https://rpp.pe/futbol/futbol-mundial/real-sociedad-vs-athletic-club-en-vivo-a-que-hora-juegan-y-como-ver-vuelta-semifinal-copa-del-rey-2026-via-dsports-partidos-de-hoy-noticia-1678504)
+- **Pronósticos Real Sociedad vs Athletic Club: los Txuri-Urdin buscan sentenciar en casa**: [Link](https://bolavip.com/pe/apuestas/pronosticos/real-sociedad-vs-athletic-club-04-03-2026)
+
+
 ### panathinaikos - ofi (N/A, 04/03/2026 11:54 Lima)
 
 - **Panathinaikos vs OFI: Super League 1 stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cqxd3lx4x5lt)
@@ -958,75 +1028,5 @@ Sin noticias relacionadas disponibles.
 - **"No podía perderla": Ricardo Mendoza confiesa que Katya Mosquera le dio ultimátum para formalizar su relación**: [Link](https://rpp.pe/famosos/farandula/ricardo-mendoza-confiesa-que-katya-mosquera-le-dio-ultimatum-para-formalizar-su-relacion-noticia-1677908)
 - **Ricardo Mendoza abrió su corazón a Magaly Medina y revela que se casa pronto**: [Link](https://www.atv.pe/noticia/ricardo-mendoza-abrio-su-corazon-a-magaly-medina-y-revela-que-se-casa-pronto/)
 - **Ricardo Mendoza luce templadazo de su novia Katya: “Ella es muy mujer, no se porta como una niña”**: [Link](https://trome.com/espectaculos/tv/ricardo-mendoza-luce-templadazo-de-su-novia-katya-mosquera-ella-es-muy-mujer-no-se-porta-como-una-nina-video-fotos-farandula-noticia/)
-
-
-### shoichi yamamoto (N/A, 01/03/2026 03:38 Lima)
-
-- **Japan publisher lets sex offender author produce manga under different name**: [Link](https://mainichi.jp/english/articles/20260228/p2g/00m/0na/008000c)
-- **Shogakukan Manga Editor Implicated in Potential Cover-Up of Author's Sexual Abuse of Minor (UPDATED)**: [Link](https://animecorner.me/shogakukan-manga-editor-implicated-in-potential-cover-up-of-authors-sexual-abuse-of-minor/)
-- **Manga Publisher Cancels Big Series Following Reveal of Author’s Controversial Past**: [Link](https://comicbook.com/anime/news/manga-publisher-cancels-big-series-following-reveal-of-authors-controversial-past/)
-
-
-### jowell y randy (N/A, 01/03/2026 00:18 Lima)
-
-- **Críticas y escándalo en ‘Yo Soy’: Enfrentamiento entre imitadores de Jowell y Randy, y críticas por eliminación de Pedro Suárez Vértiz**: [Link](https://www.infobae.com/peru/2026/02/28/criticas-y-escandalo-en-yo-soy-enfrentamiento-entre-imitadores-de-jowell-y-randy-y-criticas-por-eliminacion-de-pedro-suarez-vertiz/)
-- **Escándalo en 'Yo soy': imitadores de Jowell y Randy habrían sido expulsados tras supuesta pelea en Latina**: [Link](https://larepublica.pe/espectaculos/2026/02/27/polemica-en-yo-soy-imitadores-de-jowell-y-randy-habrian-sido-expulsados-tras-supuesto-intento-de-agresion-en-latina-1188945)
-- **Imitador de 'Yo Soy' sorprende con fuertes acusaciones contra su excompañero tras abrupta expulsión del programa**: [Link](https://wapa.pe/espectaculos-y-tv/farandula/2026/02/28/imitador-yo-soy-sorprende-fuertes-acusaciones-su-excompanero-abrupta-expulsion-programa-641452)
-
-
-### jackie chan (N/A, 01/03/2026 00:18 Lima)
-
-- **Jackie Chan’s Greatest Action Movie That Inspired Tom Holland is Now on HBO Max**: [Link](https://fandomwire.com/jackie-chans-greatest-action-movie-that-inspired-tom-holland-is-now-on-hbo-max/)
-- **HBO Max Is Streaming The '80s Jackie Chan Movie That Changed The Action Genre Forever**: [Link](https://www.slashfilm.com/2111000/jackie-chan-80s-action-movie-police-story-streaming-hbo-max/)
-- **The best movie you can see on a big screen this weekend is basically Kill Bill meets Fury Road**: [Link](https://www.polygon.com/blades-of-the-guardians-review/)
-
-
-### marlon vera (N/A, 01/03/2026 00:18 Lima)
-
-- **Marlon Vera suffers fourth consecutive loss at UFC Mexico City despite coach’s insistence**: [Link](https://bloodyelbow.com/2026/02/28/marlon-vera-suffers-fourth-consecutive-loss-at-ufc-mexico-city-despite-coachs-insistence/)
-- **When Is David Martinez’s Next Fight?**: [Link](https://sports.betmgm.com/en/blog/ufc/when-is-david-martinez-next-fight-bm05/)
-- **UFC Fight Night 268: Marlon Vera vs. David Martinez odds, picks and predictions**: [Link](https://www.elpasotimes.com/story/sports/ufc/2026/02/28/vera-vs-martinez-odds-picks-and-predictions/88907573007/)
-
-
-### liam gallagher (N/A, 01/03/2026 00:18 Lima)
-
-- **What did Noel Gallagher say at Brit Awards 2026?**: [Link](https://metro.co.uk/2026/02/28/itv-bleeps-jack-whitehalls-risky-mandelson-epstein-joke-brit-awards-2026-27162145/)
-- **Noel Gallagher thanks brother Liam as BRIT Award speech censored**: [Link](https://www.facebook.com/ManchesterEveningNews/posts/noel-gallagher-thanks-brother-liam-as-brit-award-speech-censored/1386524833509878/)
-- **Oasis comeback 'moved the needle back' as Noel Gallagher prepares for Brits honour**: [Link](https://www.mirror.co.uk/3am/celebrity-news/oasis-comeback-moved-needle-back-36776201)
-
-
-### daniel zellhuber (N/A, 01/03/2026 00:18 Lima)
-
-- **King Green vows to retire Nate Diaz in callout after rolling back the years to land KO at UFC Mexico City**: [Link](https://bloodyelbow.com/2026/02/28/king-green-vows-to-retire-nate-diaz-in-callout-after-rolling-back-the-years-to-land-ko-at-ufc-mexico-city/)
-- **"Wanted To See A Dead Body" - Ref Under Fire In King Green Win**: [Link](https://www.mmanews.com/article/wanted-see-dead-body-ref-under-fire-king-green-win)
-- **UFC Mexico City: King Green Shines, Silences Daniel Zellhuber**: [Link](https://cagesidepress.com/2026/02/28/ufc-mexico-city-king-green-shines-silences-daniel-zellhuber/)
-
-
-### bobby green (N/A, 01/03/2026 00:18 Lima)
-
-- **Bobby Green’s Tattoos: Meaning and Origin Story Behind King’s Chest, Arms, and Other Inks**: [Link](https://www.essentiallysports.com/ufc-mma-news-bobby-greens-tattoos-meaning-and-origin-story-behind-kings-chest-arms-and-other-inks/)
-- **King Green vows to retire Nate Diaz in callout after rolling back the years to land KO at UFC Mexico City**: [Link](https://bloodyelbow.com/2026/02/28/king-green-vows-to-retire-nate-diaz-in-callout-after-rolling-back-the-years-to-land-ko-at-ufc-mexico-city/)
-- **"Wanted To See A Dead Body" - Ref Under Fire In King Green Win**: [Link](https://www.mmanews.com/article/wanted-see-dead-body-ref-under-fire-king-green-win)
-
-
-### américa - tigres (N/A, 01/03/2026 00:18 Lima)
-
-- **América y Tigres, la rivalidad que más ha crecido en la última década**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/16369966/america-tigres-rivalidad-ha-crecido-en-la-ultima-decada)
-- **VER TUDN EN VIVO: transmisión del América vs. Tigres por fecha 8 del Torneo Clausura**: [Link](https://elcomercio.pe/deporte-total/mexico/tudn-en-vivo-gratis-ver-america-vs-tigres-hoy-online-via-canal-5-vix-por-torneo-clausura-de-liga-mx-video-noticia/)
-- **Transmisión EN VIVO del América vs Tigres hoy: cómo mirar el partido por TV o streaming**: [Link](https://www.365scores.com/es/news/america-vs-tigres-como-ver-transmision/)
-
-
-### toronto - whitecaps (N/A, 01/03/2026 00:18 Lima)
-
-- **PREVIEW: 'Caps face Toronto FC in Maple Leaf Matchup at BC Place, presented by Maple Leaf Self Storage | Watch on Apple TV**: [Link](https://www.whitecapsfc.com/news/preview-caps-face-toronto-fc-maple-leaf-matchup)
-- **Thomas Müller, Brian White, Yohei Takaoka lead Whitecaps to 3-0 victory over Toronto**: [Link](https://www.washingtonpost.com/sports/soccer/2026/03/01/toronto-fc-vancouver-whitecaps-score-mls/0ef4d926-152c-11f1-8e8d-fe91db44677b_story.html)
-- **Battle Of The North: Top 5 Whitecaps vs TFC Matches In Vancouver**: [Link](https://northerntribune.ca/battle-of-the-north-best-whitecaps-toronto-fc-matches/)
-
-
-### danhausen (N/A, 01/03/2026 00:18 Lima)
-
-- **CM Punk's real-life close friend officially leaves AEW - 3 Ways he can debut in WWE**: [Link](https://www.sportskeeda.com/aew/cm-punk-s-real-life-close-friend-officially-leaves-aew-3-ways-can-debut-wwe)
-- **Danhausen revealed as inhabitant of mystery box at WWE Elimination Chamber**: [Link](https://www.postwrestling.com/2026/02/28/danhausen-revealed-as-inhabitant-of-mystery-box-at-wwe-elimination-chamber/)
-- **WWE Stars To Debut In Mystery Crate At Elimination Chamber 2026**: [Link](https://wrestletalk.com/features/wwe-stars-debut-mystery-crate-elimination-chamber-2026/)
 
 
