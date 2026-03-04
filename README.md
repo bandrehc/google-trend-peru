@@ -1,3 +1,51 @@
+### panathinaikos - ofi (N/A, 04/03/2026 11:54 Lima)
+
+- **Panathinaikos vs OFI: Super League 1 stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cqxd3lx4x5lt)
+- **Panathinaikos - OFI: will the hosts extend their winning streak?**: [Link](https://www.liontips.com/tips/2026/03/03/panathinaikos-ofi-betting-tip-cf-2-15-and-bets-on-the-greek-championship-match-march-4-2026-from-upu)
+
+
+### macbook neo (N/A, 04/03/2026 11:54 Lima)
+
+- **Apple Accidentally Leaks 'MacBook Neo'**: [Link](https://www.macrumors.com/2026/03/03/apple-accidentally-leaks-macbook-neo/)
+- **Say hello to MacBook Neo**: [Link](https://www.apple.com/newsroom/2026/03/say-hello-to-macbook-neo/)
+- **​​Dear Bored Windows Users: The Time To Give Mac A Try Has Finally Arrived**: [Link](https://www.slashgear.com/2115576/why-windows-users-should-try-mac/)
+
+
+### otan (N/A, 04/03/2026 11:54 Lima)
+
+- **La OTAN condena el lanzamiento de Irán de un misil a Turquía y denuncia sus ataques "indiscriminados" en la región**: [Link](https://caretas.pe/mundo/la-otan-condena-el-lanzamiento-de-iran-de-un-misil-a-turquia-y-denuncia-sus-ataques-indiscriminados-en-la-region/)
+- **Defensas de la OTAN interceptaron un misil balístico iraní lanzado hacia Turquía**: [Link](https://elcomercio.pe/mundo/europa/iran-defensas-de-la-otan-interceptaron-un-misil-balistico-irani-lanzado-hacia-turquia-israel-estados-unidos-donald-trump-ultimas-noticia/)
+- **Turquía advierte a Irán de que responderá a actitudes hostiles tras el ataque con un misil**: [Link](https://elcomercio.pe/mundo/oriente-medio/iran-turquia-advierte-a-iran-de-que-respondera-a-actitudes-hostiles-tras-el-ataque-con-un-misil-israel-estados-unidos-donald-trump-ultimas-noticia/)
+
+
+### openai (N/A, 04/03/2026 11:54 Lima)
+
+- **A Dire Warning From the Tech World**: [Link](https://www.theatlantic.com/technology/2026/03/dean-ball-anthropic-interview/686226/)
+- **Anthropic’s AI tool Claude central to U.S. campaign in Iran, amid a bitter feud**: [Link](https://www.washingtonpost.com/technology/2026/03/04/anthropic-ai-iran-campaign/)
+- **Anthropic's Claude AI being used in Iran war by U.S. military, sources say**: [Link](https://www.cbsnews.com/news/anthropic-claude-ai-iran-war-u-s/)
+
+
+### agua (N/A, 04/03/2026 11:54 Lima)
+
+- **Corte de agua para este 05 de marzo: conoce cuáles son las zonas afectadas**: [Link](https://www.infobae.com/peru/2026/03/03/corte-de-agua-para-este-05-de-marzo-conoce-cuales-son-las-zonas-afectadas/)
+- **Cuatro distritos de Lima no tendrán agua este martes 3 de marzo hasta por 12 horas, según Sedapal: conoce las zonas afectadas**: [Link](https://larepublica.pe/sociedad/2026/03/02/cuatro-distritos-de-lima-no-tendran-agua-este-martes-3-de-marzo-hasta-por-12-horas-segun-sedapal-conoce-las-zonas-afectadas-evat-84101)
+- **Sin agua por más de 10 horas: conoce los lugares afectados este 06 de marzo**: [Link](https://elcomercio.pe/respuestas/donde/sin-agua-por-mas-de-10-horas-conoce-los-lugares-afectados-este-06-de-marzo-tdpe-noticia/)
+
+
+### pei (N/A, 04/03/2026 11:54 Lima)
+
+- **Some P.E.I. classes cancelled on March 4, 2026**: [Link](https://www.saltwire.com/prince-edward-island/pei-classes-delayed-march-4-2026)
+- **Schools closed Wednesday in parts of P.E.I. after overnight snow**: [Link](https://www.cbc.ca/news/canada/prince-edward-island/pei-overnight-snowfall-wednesday-some-schools-closed-9.7113835)
+- **Schools closed Wednesday in parts of P.E.I. after overnight snow**: [Link](https://www.cbc.ca/lite/story/9.7113835)
+
+
+### dólar hoy perú (N/A, 04/03/2026 11:54 Lima)
+
+- **Precio del dólar se disparó en Perú: Así cerró el tipo de cambio el 3 de marzo**: [Link](https://www.infobae.com/noticias/2026/03/02/peru-cotizacion-de-apertura-del-dolar-hoy-2-de-marzo-de-usd-a-pen/)
+- **Precio del dólar Perú y tipo de cambio hoy 04 de marzo del 2026**: [Link](https://rpp.pe/economia/economia/precio-del-dolar-peru-y-tipo-de-cambio-hoy-04-de-marzo-del-2026-noticia-1678516)
+- **Dólar se dispara a S/ 3.42: Tensión en Medio Oriente golpea la economía peruana**: [Link](https://caretas.pe/economia/dolar-se-dispara-a-s-3-42-tension-en-medio-oriente-golpea-la-economia-peruana/)
+
+
 ### paro de transportistas (N/A, 04/03/2026 08:09 Lima)
 
 - **Transportistas anuncian nueva marcha contra las extorsiones para el jueves 5 de marzo**: [Link](https://gestion.pe/peru/politica/transportistas-de-lima-anuncian-nueva-marcha-contra-las-extorsiones-para-el-jueves-5-de-marzo-noticia/)
@@ -980,54 +1028,5 @@ Sin noticias relacionadas disponibles.
 - **CM Punk's real-life close friend officially leaves AEW - 3 Ways he can debut in WWE**: [Link](https://www.sportskeeda.com/aew/cm-punk-s-real-life-close-friend-officially-leaves-aew-3-ways-can-debut-wwe)
 - **Danhausen revealed as inhabitant of mystery box at WWE Elimination Chamber**: [Link](https://www.postwrestling.com/2026/02/28/danhausen-revealed-as-inhabitant-of-mystery-box-at-wwe-elimination-chamber/)
 - **WWE Stars To Debut In Mystery Crate At Elimination Chamber 2026**: [Link](https://wrestletalk.com/features/wwe-stars-debut-mystery-crate-elimination-chamber-2026/)
-
-
-### wellington phoenix - sydney (N/A, 28/02/2026 21:49 Lima)
-
-- **Live: Wellington Phoenix v Sydney FC at Sky Stadium - A League**: [Link](https://www.rnz.co.nz/news/sport/588309/live-wellington-phoenix-v-sydney-fc-at-sky-stadium-a-league)
-- **Squads named for Phoenix men’s A-League match against Sydney**: [Link](https://www.friendsoffootballnz.com/2026/02/28/squads-named-for-phoenix-mens-a-league-match-against-sydney/)
-- **Wellington Phoenix v Sydney FC: All you need to know about the round 19 A-League Men fixture**: [Link](https://www.stuff.co.nz/sport/360942081/wellington-phoenix-v-sydney-fc-all-you-need-know-about-round-19-league-men-fixture)
-
-
-### lakers - warriors (N/A, 28/02/2026 21:49 Lima)
-
-- **Live Updates: Saturday Updates and Highlights, Lakers vs. Warriors on ABC**: [Link](https://www.nba.com/news/live-updates-saturday-updates-and-highlights-lakers-vs-warriors-on-abc)
-- **Draymond Green News: Available to play Saturday**: [Link](https://www.rotowire.com/basketball/headlines/draymond-green-news-available-to-play-saturday-520991)
-- **Is Luka Doncic playing tonight vs the Golden State Warriors? Latest update on the Los Angeles Lakers star**: [Link](https://timesofindia.indiatimes.com/sports/nba/top-stories/is-luka-doncic-playing-tonight-vs-the-golden-state-warriors-latest-update-on-the-los-angeles-lakers-stars-injury-report-february-28-2026/articleshow/128898477.cms)
-
-
-### talleres - san lorenzo (N/A, 28/02/2026 21:49 Lima)
-
-- **San Lorenzo empata con el Talleres de Carlos Tevez en la continuidad de la octava fecha del Torneo Apertura**: [Link](https://www.infobae.com/deportes/2026/02/28/san-lorenzo-visitara-al-talleres-de-carlos-tevez-en-la-continuidad-de-la-octava-fecha-del-torneo-apertura-hora-tv-y-formaciones/)
-- **Talleres recibe a San Lorenzo en el Kempes: un duelo clave para entrar a las finales**: [Link](https://cordoba.mitelefe.com/deportes/talleres-recibe-a-san-lorenzo-en-el-kempes-un-duelo-clave-para-entrar-a-las-finales-pid2543747)
-- **Talleres vs San Lorenzo: las mejores fotos de los hinchas en el Kempes por el Apertura 2026**: [Link](https://www.lavoz.com.ar/deportes/talleres-vs-san-lorenzo-mejores-fotos-hinchas-kempes-apertura-2026_0_DezUJya12O.html)
-
-
-### medellín - bucaramanga (N/A, 28/02/2026 21:49 Lima)
-
-- **Cuándo juegan Medellín vs. Bucaramanga por Liga BetPlay: equipo, fecha, hora y TV en vivo**: [Link](https://www.espn.com.ar/futbol/colombia/nota/_/id/16368088/medellin-vs-bucaramanga-liga-betplay-equipo-fecha-hora-tv-en-vivo)
-- **¡Vamos pues, Rojo! Es hora de alcanzar la victoria y ganar en casa | Q´HUBO Medellín**: [Link](https://qhubomedellin.com/deportes/futbol/independiente-medellin/vamos-pues-rojo-es-hora-de-alcanzar-la-victoria-y-ganar-en-casa-LA33994780)
-- **Medellín protagonizó jugada de fantasía que por poco termina en penal**: [Link](https://www.winsports.co/futbol-colombiano/noticias/medellin-protagonizo-jugada-de-fantasia-que-por-poco-termina-en-penal-412138)
-
-
-### kick (N/A, 28/02/2026 21:49 Lima)
-
-- **What we know about Kick streamer Matthewdota, his net worth**: [Link](https://win.gg/matthewdota-net-worth/)
-- **Stake Pushes Back After Analysis Claims Statistical Miracles for Big Kick Streamers**: [Link](https://www.filmogaz.com/173267)
-- **Unlikely Wins and Comped Spins: Inside Stake’s Empire**: [Link](https://www.bloomberg.com/features/2026-stake-drake-crypto-casino-adin-ross-gambling/)
-
-
-### brandon moreno (N/A, 28/02/2026 21:49 Lima)
-
-- **Live Now! UFC Mexico ‘Moreno vs. Kavanagh’ Play-by-Play, Results & Round Scoring**: [Link](https://www.sherdog.com/news/news/UFC-Mexico-Moreno-vs-Kavanagh-PlaybyPlay-Results-Round-Scoring-200281)
-- **Brandon Moreno reacts to finding out his career aligned with Lone'er Kavanagh's years before UFC Mexico City**: [Link](https://bloodyelbow.com/2026/02/27/brandon-moreno-reacts-to-finding-out-his-career-aligned-with-loneer-kavanaghs-years-before-ufc-mexico-city/)
-- **MMA Top Plays: UFC Mexico City**: [Link](https://establishtherun.com/mma-top-plays-ufc-mexico-city-2/)
-
-
-### lafc - dynamo (N/A, 28/02/2026 21:49 Lima)
-
-- **Player Status Report | Houston Dynamo vs. LAFC - 2026 MLS Season**: [Link](https://www.lafc.com/news/player-status-report-houston-dynamo-vs-lafc-2026-mls-season-february-28)
-- **Son Heung-min is the scariest. "South Korean Captain SON is coming." Korea Superstar who also spotlighted his opponent**: [Link](https://www.starnewskorea.com/en/sports/2026/02/28/2026022813464325154)
-- **Houston Dynamo FC announce sellout for Saturday’s match vs LAFC**: [Link](https://www.houstondynamofc.com/news/houston-dynamo-fc-announce-sellout-for-saturday-s-match-vs-lafc)
 
 
