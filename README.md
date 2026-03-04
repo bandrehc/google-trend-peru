@@ -1,3 +1,24 @@
+### paro de transportistas (N/A, 04/03/2026 08:09 Lima)
+
+- **Transportistas anuncian nueva marcha contra las extorsiones para el jueves 5 de marzo**: [Link](https://gestion.pe/peru/politica/transportistas-de-lima-anuncian-nueva-marcha-contra-las-extorsiones-para-el-jueves-5-de-marzo-noticia/)
+- **Sin tregua: Extorsión y sicariato en rutas de transporte**: [Link](https://www.americatv.com.pe/noticias/actualidad/extorsiones-y-asesinatos-desatan-terror-rutas-transporte-n516047)
+- **Presidente Balcázar abordó con transportistas lucha contra las organizaciones criminales**: [Link](https://andina.pe/agencia/noticia-presidente-balcazar-abordo-transportistas-lucha-contra-las-organizaciones-criminales-1065100.aspx)
+
+
+### precio del dolar (N/A, 04/03/2026 08:09 Lima)
+
+- **Precio del dólar se dispara en Perú: Así cerró el tipo de cambio hoy 3 de marzo**: [Link](https://www.infobae.com/noticias/2026/03/02/peru-cotizacion-de-apertura-del-dolar-hoy-2-de-marzo-de-usd-a-pen/)
+- **Dólar cerró al alza ante conflicto entre Irán y Estados Unidos: ¿En cuánto?**: [Link](https://gestion.pe/economia/mercados/tipo-de-cambio-dolar-hoy-en-peru-cuanto-esta-el-precio-del-dolar-este-lunes-2-de-marzo-dolares-a-soles-compra-y-venta-bcrp-noticia/)
+- **¿Cuál es la cotización del dólar hoy martes 3 de marzo del 2026?**: [Link](https://andina.pe/agencia/noticia-cual-es-cotizacion-del-dolar-hoy-martes-3-marzo-del-2026-1065161.aspx)
+
+
+### reloj (N/A, 04/03/2026 08:09 Lima)
+
+- **¿Cuándo cambia la hora en California 2026?: fecha del horario de verano (DST) y lista de ciudades que adelantan el reloj**: [Link](https://elcomercio.pe/mag/usa/local-us/cuando-cambia-la-hora-en-california-2026-fecha-del-horario-de-verano-dst-y-lista-de-ciudades-que-adelantan-el-reloj-nnda-nnrt-noticia/)
+- **Cambio de hora en Florida 2026: fecha oficial y cuándo ajustar el reloj | nnda nnrt | MIX**: [Link](https://gestion.pe/mix/usa/cambio-de-hora-en-florida-2026-fecha-oficial-y-cuando-ajustar-el-reloj-nnda-nnrt-noticia/)
+- **ALERTA con cambio de horario 2026 en EE. UU.: en qué fecha se ajusta el reloj una hora y qué estados lo aplican**: [Link](https://libero.pe/estados-unidos/2026/03/02/alerta-cambio-de-horario-2026-en-estados-unidos-en-fecha-se-ajusta-reloj-hora-estados-aplican-usa-eeuu-lbeu-184534)
+
+
 ### pelicans - lakers (N/A, 04/03/2026 00:10 Lima)
 
 - **Pelicans vs Lakers Odds & Picks Tonight: NO Undervalued in LA**: [Link](https://www.oddsshark.com/nba/pelicans-lakers-picks-odds-march-3-2026)
@@ -1008,26 +1029,5 @@ Sin noticias relacionadas disponibles.
 - **Player Status Report | Houston Dynamo vs. LAFC - 2026 MLS Season**: [Link](https://www.lafc.com/news/player-status-report-houston-dynamo-vs-lafc-2026-mls-season-february-28)
 - **Son Heung-min is the scariest. "South Korean Captain SON is coming." Korea Superstar who also spotlighted his opponent**: [Link](https://www.starnewskorea.com/en/sports/2026/02/28/2026022813464325154)
 - **Houston Dynamo FC announce sellout for Saturday’s match vs LAFC**: [Link](https://www.houstondynamofc.com/news/houston-dynamo-fc-announce-sellout-for-saturday-s-match-vs-lafc)
-
-
-### monterrey - cruz azul (N/A, 28/02/2026 21:49 Lima)
-
-- **Monterrey vs Cruz Azul: posibles alineaciones, Jornada 8, Liga MX**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/16368787/monterrey-vs-cruz-azul-alineaciones-formaciones-jornada-8-liga-mx)
-- **Por Canal 5 online: ver transmisión Monterrey vs. Cruz Azul por el Torneo Clausura**: [Link](https://elcomercio.pe/deporte-total/mexico/canal-5-en-vivo-gratis-ver-monterrey-vs-cruz-azul-hoy-online-via-tudn-vix-por-torneo-clausura-de-la-liga-mx-video-noticia/)
-- **¡RAYADOS, A RETOMAR EL CAMINO!**: [Link](https://onefootball.com/es/noticias/rayados-a-retomar-el-camino-42482488)
-
-
-### elecciones cal (N/A, 28/02/2026 21:49 Lima)
-
-- **[VÍDEO] Pedro Angulo postula al decanato del CAL con propuestas de reforma digital y saneamiento económico**: [Link](https://lpderecho.pe/pedro-angulo-postula-al-decanato-del-cal-con-propuestas-de-reforma-digital-y-saneamiento-economico/)
-- **Hoy son las elecciones en el Colegio de Abogados de Lima: Postulan Delia Espinoza, Humberto Abanto, Pedro Angulo, entre otros**: [Link](https://www.infobae.com/peru/2026/02/28/hoy-son-las-elecciones-para-decano-del-colegio-de-abogados-de-lima-delia-espinoza-humberto-abanto-pedro-angulo-y-mas/)
-- **En medio de incertidumbre, CAL elige a su nuevo decano: Comité Electoral sería disuelto antes de segunda vuelta**: [Link](https://www.expreso.com.pe/?p=1267490)
-
-
-### boys vs (N/A, 28/02/2026 21:49 Lima)
-
-- **Sport Boys vs CD Moquegua en vivo: A qué hora inicia y dónde ver la Liga 1**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/sport-boys-vs-cd-moquegua-en-vivo-hora-y-donde-ver-la-liga-1-fecha-5-torneo-apertura-l1max-l1play-canal-tv-tdpe-noticia/)
-- **Liga 1: Deportivo Moquegua visita a Sport Boys por la fecha 5**: [Link](https://rpp.pe/futbol/descentralizado/liga-1-deportivo-moquegua-visita-a-sport-boys-por-la-fecha-5-noticia-1677846)
-- **Sport Boys tendrá dos bajas de cara al duelo ante CD Moquegua**: [Link](https://ovacion.pe/noticias/sport-boys/sport-boys-tendra-dos-bajas-cara-al-duelo-ante-cd-moquegua)
 
 
