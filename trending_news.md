@@ -1,3 +1,59 @@
+### incendio comas (N/A, 05/03/2026 00:14 Lima)
+
+- **Incendio en Comas: Más de 30 unidades de los bomberos trabajan para controlar la emergencia**: [Link](https://rpp.pe/lima/actualidad/incendio-en-comas-mas-de-20-unidades-de-los-bomberos-trabajan-para-controlar-la-emergencia-noticia-1678638)
+- **Más de 20 unidades de los bomberos combaten incendio de gran proporción en Comas**: [Link](https://www.atv.pe/noticia/mas-de-20-unidades-de-los-bomberos-combaten-incendio-de-gran-proporcion-en-comas/)
+- **Comas: Incendio de gran magnitud en fábrica moviliza a numerosas unidades de bomberos**: [Link](https://diariocorreo.pe/edicion/lima/comas-incendio-de-gran-magnitud-en-fabrica-moviliza-a-numerosas-unidades-de-bomberos-noticia/)
+
+
+### america (N/A, 05/03/2026 00:14 Lima)
+
+- **¿Hacia dónde debería transitar Venezuela?**: [Link](https://elpais.com/america-futura/2026-03-05/hacia-donde-deberia-transitar-venezuela.html)
+- **Cómo Washington intentó provocar el colapso social en Venezuela**: [Link](https://misionverdad.com/venezuela/como-washington-intento-provocar-el-colapso-social-en-venezuela)
+- **Venezuela ahora es modelo para colonizar a otros paÃ­ses**: [Link](https://www.aporrea.org/tiburon/a350447.html)
+
+
+### carlos alcantara (N/A, 05/03/2026 00:14 Lima)
+
+- **Carlos Alcántara es 'ampayado' viviendo su soltería AL MÁXIMO: "Un día con una y al día siguiente con otra"**: [Link](https://www.atv.pe/noticia/carlos-alcantara-es-ampayado-viviendo-su-solteria-al-maximo-un-dia-con-una-y-al-dia-siguiente-con-otra/)
+- **Carlos Alcántara es ampayado besando apasionadamente a mujer en discoteca tras terminar su matrimonio de 15 años**: [Link](https://larepublica.pe/espectaculos/2026/03/04/carlos-alcantara-es-ampayado-besando-apasionadamente-a-misteriosa-mujer-tras-terminar-su-matrimonio-de-15-anos-207464)
+- **¡Asu mare, Machín! Ampayan a Carlos Alcántara viviendo su soltería AL MÁXIMO**: [Link](https://www.exitosanoticias.pe/espectaculos/asu-mare-machin-ampayan-carlos-alcantara-viviendo-su-solteria-maximo-n170263)
+
+
+### eddie vedder (N/A, 05/03/2026 00:14 Lima)
+
+- **Eddie Vedder talks horsing around with Bruce Springsteen in Colts Neck**: [Link](https://www.app.com/story/entertainment/music/2026/03/04/bruce-springsteen-eddie-vedder-howard-stern-show-horseback-riding/88982742007/)
+- **Pearl Jam Frontman Reveals Terrifying Experience Riding Horses with Bruce Springsteen**: [Link](https://www.wideopencountry.com/pearl-jam-frontman-reveals-terrifying-experience-riding-horses-with-bruce-springsteen/)
+- **Pearl Jam’s Eddie Vedder Survives a Wild Horse Ride of Terror With Bruce Springsteen**: [Link](https://www.aol.com/articles/pearl-jam-eddie-vedder-survives-155250080.html)
+
+
+### américa - juárez (N/A, 05/03/2026 00:14 Lima)
+
+- **América vs FC Juárez: posibles alineaciones, Jornada 9, Liga MX**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/16383163/america-vs-fc-juarez-alineaciones-jornada-9-clausura-2026-liga-mx)
+- **¿Dónde puedo ver partido, América-Juárez EN VIVO y en qué canal TV transmiten partido ONLINE GRATIS?**: [Link](https://elcomercio.pe/deporte-total/mexico/donde-ver-america-vs-juarez-en-vivo-online-a-que-hora-juegan-y-en-que-canal-transmiten-partido-por-torneo-clausura-de-liga-mx-2026-noticia/)
+- **¿Por qué no juega Vinícius Lima el Club América vs FC Juárez de la J9 del Clausura 2026?**: [Link](https://bolavip.com/mx/america/por-que-no-juega-vinicius-lima-el-club-america-vs-fc-juarez-de-la-j9-del-clausura-2026)
+
+
+### que es prision preventiva (N/A, 05/03/2026 00:14 Lima)
+
+- **Dictan nueve meses de prisión preventiva contra Adrián Villar tras atropellar y causar la muerte de Lizeth Marzano**: [Link](https://elcomercio.pe/lima/policiales/adrian-villar-en-vivo-poder-judicial-da-a-conocer-decision-sobre-prision-preventiva-por-caso-lizeth-marzano-ultimas-noticia/)
+- **Homicidio doloso por omisión impropia por incumplimiento de un deber de garante por injerencia: caso Lizeth Marzano**: [Link](https://lpderecho.pe/homicidio-doloso-por-omision-impropia-por-incumplimiento-de-un-deber-de-garante-por-injerencia-caso-lizeth-marzano/)
+- **PJ impuso nueve meses de prisión preventiva contra Adrián Villar por atropello y muerte de Lizeth Marzano**: [Link](https://rpp.pe/lima/judiciales/adrian-villar-pj-le-impuso-meses-de-prision-preventiva-por-atropello-y-muerte-de-lizeth-marzano-noticia-1678635)
+
+
+### homicidio culposo (N/A, 05/03/2026 00:14 Lima)
+
+- **Confirman condena por homicidio culposo y fijan reparación civil de 30 mil soles**: [Link](https://radiouno.pe/noticias/267379/confirman-condena-por-homicidio-culposo-y-fijan-reparacion-civil-de-30-mil-soles/)
+- **Poder Judicial levanta secreto de comunicaciones de Adrián Villar, Marisel Linares y policías por muerte de Lizeth Marzano**: [Link](https://www.infobae.com/peru/2026/03/04/poder-judicial-levanta-secreto-de-comunicaciones-de-adrian-villar-marisel-linares-y-policias-por-muerte-de-lizeth-marzano/)
+- **Poder Judicial autoriza el levantamiento de las comunicaciones de Adrián Villar**: [Link](https://willax.pe/politica/poder-judicial-levantamiento-comunicaciones-adrian-villar-willax)
+
+
+### liga mx (N/A, 05/03/2026 00:14 Lima)
+
+- **Pronóstico Atlas FC vs Tijuana jornada 9 Clausura 2026 Liga MX | Sportytrader**: [Link](https://www.sportytrader.com/es/pronosticos/atlas-tijuana-331589/)
+- **¡Poste evita el primero de los Rojinegros! Toño Rodríguez la desvía**: [Link](https://www.tudn.com/futbol/liga-mx/poste-evita-el-primero-de-los-rojinegros-tono-rodriguez-la-desvia-video)
+- **Xolos pierde ante Atlas en el Estadio Jalisco**: [Link](https://bajanews.mx/Deportes/53290/Xolos-pierde-ante-Atlas-en-el-Estadio-Jalisco)
+
+
 ### adrian villar (N/A, 04/03/2026 21:35 Lima)
 
 - **Adrián Villar: Poder Judicial da a conocer esta noche decisión de prisión preventiva por caso Lizeth Marzano**: [Link](https://elcomercio.pe/lima/policiales/adrian-villar-en-vivo-poder-judicial-da-a-conocer-decision-sobre-prision-preventiva-por-caso-lizeth-marzano-ultimas-noticia/)
@@ -976,59 +1032,5 @@ Sin noticias relacionadas disponibles.
 - **Hoy, Arsenal vs Chelsea EN VIVO: sigue EN DIRECTO el partido por fecha 28 de la Premier League**: [Link](https://rpp.pe/futbol/futbol-mundial/arsenal-vs-chelsea-en-vivo-a-que-hora-juegan-y-donde-ver-fecha-28-premier-league-2026-via-espn-partidos-de-hoy-noticia-1678063)
 - **Arsenal vs. Chelsea: ¡Juega en la Premier League y gana hasta S/. 600,000 con Meridianbet!**: [Link](https://altavoz.pe/deportes/arsenal-vs-chelsea-juega-en-la-premier-league-y-gana-hasta-s-600000-con-meridianbet/)
 - **Premier League: Arsenal y otra prueba de credenciales ante Chelsea**: [Link](https://www.espn.com.pe/futbol/champions-league/nota/_/id/16366066/premier-league-arsenal-chelsea-prueba-credenciales)
-
-
-### losc - nantes (N/A, 01/03/2026 11:35 Lima)
-
-- **Lille joue gros pour éviter le divorce**: [Link](https://www.foot01.com/lille/lille-joue-gros-pour-eviter-le-divorce)
-- **LOSC – FC Nantes. Les prédictions d’Opta**: [Link](https://sportune.20minutes.fr/losc-fc-nantes-les-predictions-dopta-396201)
-- **Ex-LOSC – Rémy Cabella : « Pendant 90 minutes, je serai Nantais à 100 % »**: [Link](https://le11hdf.fr/ex-losc-remy-cabella-pendant-90-minutes-nantais-100/)
-
-
-### premier league posiciones (N/A, 01/03/2026 11:35 Lima)
-
-- **El City tiene otro ‘cyborg’**: [Link](https://as.com/futbol/internacional/el-city-tiene-otro-cyborg-f202602-n/)
-- **(VIDEO) Manchester City ganó y continúa acechando al Arsenal**: [Link](https://ovacion.pe/noticias/futbol-internacional/video-manchester-city-gano-continua-acechando-al-arsenal)
-- **Semenyo hace de Haaland para activar la velocidad de crucero en el City**: [Link](https://www.marca.com/futbol/premier-league/cronica/2026/02/28/semenyo-haaland-activar-velocidad-crucero-city.html)
-
-
-### arsenal - chelsea (N/A, 01/03/2026 11:35 Lima)
-
-- **Every word from Mikel Arteta's pre-Chelsea presser | Press conference | News**: [Link](https://www.arsenal.com/news/every-word-mikel-artetas-pre-chelsea-presser-1)
-- **Joe Cole identifies Chelsea weakness that Arsenal could expose**: [Link](https://metro.co.uk/2026/03/01/needs-addressed-joe-cole-identifies-chelsea-weakness-arsenal-expose-27168464/)
-- **Caught on camera: Kai Havertz with Arsenal squad on pre-match walk ahead of Chelsea clash**: [Link](https://tribuna.com/en/blogs/caught-on-camera-kai-havertz-with-arsenal-squad-on-prematch/)
-
-
-### copenhague - randers (N/A, 01/03/2026 11:35 Lima)
-
-- **FC Copenhagen vs Randers Prediction, Betting Tips, Lineups & Odds | 01 Mar 2026**: [Link](https://www.sportsgambler.com/betting-tips/football/fc-copenhagen-vs-randers-prediction-lineups-odds-2026-03-01/)
-
-
-### atalanta vs (N/A, 01/03/2026 11:35 Lima)
-
-- **Serie A | Sassuolo 2-1 Atalanta: Dea stunned by 10 men with Euro hangover**: [Link](https://sports.yahoo.com/articles/serie-sassuolo-2-1-atalanta-160000600.html)
-- **Palladino: ‘Atalanta must focus, Serie A different to Champions League’**: [Link](https://football-italia.net/palladino-atalanta-serie-a-champions-league/)
-- **Atalanta lose ground in Serie A top-six race after costly defeat at 10-man Sassuolo**: [Link](https://www.flashscore.com/news/serie-a-sassuolo-atalanta-report-march-1/MFp9Pd6k/)
-
-
-### frankfurt vs (N/A, 01/03/2026 11:35 Lima)
-
-- **Rund um das Heimspiel gegen Freiburg**: [Link](https://www.deutschebankpark.de/news/rund-um-das-heimspiel-eintracht-frankfurt-gegen-sc-freiburg-24-spieltag-bundesliga-saison-2025-26-176058/)
-- **Nach Stolperstart will Freiburgs Matanovic im «Flow» bleiben**: [Link](https://www.antenne1.de/news/nach-stolperstart-will-freiburgs-matanovic-im-flow-bleiben)
-- **#SGESCF – Auftakt zum Schlussspurt**: [Link](https://onefootball.com/de/news/sgescf-auftakt-zum-schlussspurt-42485523)
-
-
-### stuttgart vs (N/A, 01/03/2026 11:35 Lima)
-
-- **Bundesliga » VfB Stuttgart gegen VfL Wolfsburg » Liveticker**: [Link](https://www.weltfussball.com/spielbericht/co12/deutschland-bundesliga/ma11200586/vfb-stuttgart_vfl-wolfsburg/liveticker/)
-- **Doppelpack Leweling: Stuttgart schubst Wolfsburg auf Platz 17**: [Link](https://www.kicker.de/stuttgart-gegen-wolfsburg-2026-bundesliga-5050961/spielbericht)
-- **Wölfe-Krise spitzt sich zu: Stuttgarts DFB-Stars schubsen Wolfsburg auf einen Abstiegsrang**: [Link](https://www.n-tv.de/sport/fussball/Stuttgarts-DFB-Stars-schubsen-Wolfsburg-auf-einen-Abstiegsrang-id30418772.html)
-
-
-### valencia c. f. - osasuna (N/A, 01/03/2026 11:35 Lima)
-
-- **LaLiga EA Sports: Valencia se enfrenta ante la visita Osasuna por la fecha 26**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-valencia-se-enfrenta-ante-la-visita-osasuna-por-la-fecha-26-noticia-1677938)
-- **Pronóstico Valencia vs. Osasuna - La visita en estado de gracia**: [Link](https://gainblers.com/pe/pronosticos/futbol/espana/liga-primera-division/pronostico-valencia-osasuna-01-03-2026/)
-- **Todo lo que debes saber del Valencia-Osasuna de la Jornada 26 de LaLiga**: [Link](https://www.flashscore.pe/noticias/futbol-laliga-ea-sports-previa-del-valencia-osasuna-curiosidades-estadisticas-datos-y-anecdotas/6Bt3qGhd/)
 
 
