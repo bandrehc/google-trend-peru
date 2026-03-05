@@ -1,3 +1,71 @@
+### juan pablo varillas (N/A, 05/03/2026 13:09 Lima)
+
+- **JNE abre participación para debates, IPD entrega departamentos a medallistas, obras obstaculizan inicio del año escolar**: [Link](https://elcomercio.pe/opinion/columnistas/jne-abre-participacion-para-debates-ipd-entrega-departamentos-a-medallistas-obras-obstaculizan-inicio-del-ano-escolar-noticia/)
+- **IPD entregó departamentos a deportistas Diego Elías y Juan Pablo Varillas**: [Link](https://andina.pe/agencia/noticia-ipd-entrego-departamentos-a-deportistas-diego-elias-y-juan-pablo-varillas-1065130.aspx)
+- **Diego Elías y Juan Pablo Varillas recibieron departamentos del IPD por Lima 2019**: [Link](https://rpp.pe/multideportes/panamericanos/medallistas-de-lima-2019-diego-elias-y-juan-pablo-varillas-reciben-departamentos-por-sus-logros-deportivos-noticia-1678268)
+
+
+### karvina - viktoria plzeň (N/A, 05/03/2026 13:09 Lima)
+
+Sin noticias relacionadas disponibles.
+
+
+### la momia (N/A, 05/03/2026 13:09 Lima)
+
+- **‘La momia 4’ con Brendan Fraser reescribe el canon y obvia la peor de la saga: “Rachel está en esta”**: [Link](https://as.com/meristation/cine/la-momia-4-con-brendan-fraser-reescribe-el-canon-y-obvia-la-peor-de-la-saga-rachel-esta-en-esta-f202603-n/)
+- **'La Momia 4' no va a respetar el resto de la saga. De hecho, hay una película que eliminará por completo**: [Link](https://www.espinof.com/proyectos/momia-4-eliminara-pelicula-saga-continuidad-no-habra-muchos-fans-quejandose)
+- **'La Momia 4' borra del mapa la entrega más odiada por los fans: "Rachel Weisz está en esta, eso responde a la pregunta".**: [Link](https://www.sensacine.com/noticias/cine/noticia-1000192972/)
+
+
+### ticket master (N/A, 05/03/2026 13:09 Lima)
+
+- **Former Barclays Center Executive Says Live Nation Threatened to Pull Tours**: [Link](https://www.nytimes.com/2026/03/04/arts/music/live-nation-trial-barclays-center.html)
+- **‘The concert ticket industry is broken,’ justice department says as Ticketmaster trial begins**: [Link](https://www.theguardian.com/business/2026/mar/03/ticketmaster-trial-begins-concert-tickets)
+- **Live Nation argues it's not a monopoly during DOJ antitrust trial**: [Link](https://www.nbcnews.com/business/business-news/live-nation-argues-not-monopoly-doj-antitrust-trial-rcna261581)
+
+
+### dia de la mujer peru (N/A, 05/03/2026 13:09 Lima)
+
+- **Día de la Mujer: la ley protege derechos; el verdadero reto es aplicarlos efectivamente**: [Link](https://elperuano.pe/noticia/290316-dia-de-la-mujer-la-ley-protege-derechos-el-verdadero-reto-es-aplicarlos-efectivamente)
+- **Violencia en Ayacucho: 55 % de mujeres afectadas**: [Link](https://jornada.com.pe/55-de-mujeres-sufrio-violencia-en-ayacucho-region-supera-promedio-nacional-y-registra-mas-de-560-denuncias-por-violacion-en-un-ano/)
+- **Marcha 8M 2026 Perú: colectivos convocan movilización este 7 de marzo en el Día Internacional de la Mujer**: [Link](https://www.infobae.com/peru/2026/03/04/marcha-8m-2026-peru-colectivos-convocan-movilizacion-este-7-de-marzo-en-el-dia-internacional-de-la-mujer/)
+
+
+### ticketmaster (N/A, 05/03/2026 13:09 Lima)
+
+- **Gorillaz en Lima: precios de entradas y cómo comprar en la preventa para su concierto en Arena 1 Park**: [Link](https://rpp.pe/musica/conciertos/gorillaz-en-lima-2026-precios-y-como-comprar-entradas-en-ticketmaster-concierto-en-arena-1-park-noticia-1678649)
+- **Gorillaz en Perú: euforia por preventa de entradas en Ticketmaster genera largas colas y alta demanda**: [Link](https://www.infobae.com/peru/2026/03/05/euforia-en-peru-por-preventa-de-entradas-para-gorillaz-largas-colas-y-alta-demanda-en-ticketmaster/)
+- **Gorillaz en Perú: la campaña de intriga que anticipó su debut en Lima**: [Link](https://www.mercadonegro.pe/marketing/gorillaz-llega-a-peru-la-campana-que-anticipo-su-debut-en-lima/)
+
+
+### chatgpt (N/A, 05/03/2026 13:09 Lima)
+
+- **OpenAI Scales Back Shopping Plans for ChatGPT**: [Link](https://www.theinformation.com/articles/openai-scales-back-shopping-plans-chatgpt)
+- **Booking Stock, Expedia, DoorDash Jump. Here's What's Behind A 'Relief Rally.'**: [Link](https://www.investors.com/news/technology/booking-stock-openai-shopping-expedia-doordash/)
+- **Online travel stocks rise after report that OpenAI to scale back direct checkouts**: [Link](https://finance.yahoo.com/news/online-travel-stocks-rise-report-164851767.html)
+
+
+### gorillaz (N/A, 05/03/2026 13:09 Lima)
+
+- **Gorillaz announce Denver concert as part of North American tour**: [Link](https://www.denvergazette.com/2026/03/03/gorillaz-announce-denver-concert-as-part-of-north-american-tour/)
+- **Band known as worlds most successful virtual act coming to Ball Arena in October**: [Link](https://kdvr.com/news/local/band-known-as-worlds-most-successful-virtual-act-coming-to-ball-arena-in-october/)
+- **Gorillaz to play Seattle’s Climate Pledge Arena on Halloween**: [Link](https://mynorthwest.com/lifestyle/gorillaz-seattle-halloween/4212135)
+
+
+### teams (N/A, 05/03/2026 13:09 Lima)
+
+- **2026 NFL free agency tracker: Latest signings, trades, contract info for all 32 teams**: [Link](https://www.nfl.com/news/2026-nfl-free-agency-tracker-latest-signings-trades-contract-info-for-all-32-teams)
+- **2026 NFL Free Agency Predictions: Playing fantasy football matchmaker for Kyler Murray, Kenneth Walker III, more**: [Link](https://sports.yahoo.com/fantasy/article/2026-nfl-free-agency-predictions-playing-fantasy-football-matchmaker-for-kyler-murray-kenneth-walker-iii-more-154737606.html)
+- **2026 NFL free agency: Ranking the top 100 players available**: [Link](https://www.espn.com/nfl/story/_/id/48043945/2026-nfl-free-agency-top-100-players-ranking-available-hendrickson-willis)
+
+
+### zoom (N/A, 05/03/2026 13:09 Lima)
+
+- **Zoom (ZM) Shares Skyrocket, What You Need To Know**: [Link](https://finance.yahoo.com/news/zoom-zm-shares-skyrocket-know-214542874.html)
+- **Zoom Communications Inc (ZM) Shares Up 4.31% on Mar 4**: [Link](https://www.gurufocus.com/news/8677939/zoom-communications-inc-zm-shares-up-431-on-mar-4?mobile=true)
+- **Zoom (ZM) Stock Jumps 6.2% in Software Sector Rally — What Investors Need to Know**: [Link](https://blockonomi.com/zoom-zm-stock-jumps-6-2-in-software-sector-rally-what-investors-need-to-know/)
+
+
 ### canal 4 en vivo (N/A, 05/03/2026 08:13 Lima)
 
 - **Barcelona 3-0 Atlético: resumen, goles y resultado**: [Link](https://as.com/futbol/copa_del_rey/barcelona-atletico-de-madrid-hoy-en-directo-copa-del-rey-en-vivo-ultima-hora-en-el-spotify-camp-nou-f202603-d/)
@@ -962,73 +1030,5 @@ Sin noticias relacionadas disponibles.
 - **When We Weren't Looking, Zendaya and Tom Holland Married in a Secret Ceremony**: [Link](https://www.harpersbazaar.com/celebrity/latest/a70565539/zendaya-tom-holland-married-wedding-details-law-roach-revealed/)
 - **27 Secret Celebrity Weddings That Were Impressively Kept Under Wraps**: [Link](https://www.sheknows.com/entertainment/slideshow/9990/celebrity-couples-married-in-secret/)
 - **‘Euphoria’ Star, 29, Secretly Marries Superhero Boyfriend**: [Link](https://www.thedailybeast.com/obsessed/euphoria-star-zendaya-29-secretly-marries-superhero-boyfriend-tom-holland-29/)
-
-
-### wolfgang grozo (N/A, 01/03/2026 21:37 Lima)
-
-Sin noticias relacionadas disponibles.
-
-
-### césar nakazaki (N/A, 01/03/2026 21:37 Lima)
-
-- **Caso Lizeth Marzano: Estudio de César Nakazaki asume defensa de Adrián Villar**: [Link](https://rpp.pe/lima/judiciales/adrian-villar-estudio-nakazaki-asume-defensa-en-caso-lizeth-marzano-noticia-1678133)
-- **Lizeth Marzano: Ex abogado de Adrián Villar afirma que su renuncia “responde a una decisión personal”**: [Link](https://elcomercio.pe/lima/sucesos/lizeth-marzano-adrian-villar-su-ex-abogado-afirma-que-su-renuncia-responde-a-una-decision-personal-san-isidro-ultimas-noticia/)
-- **Caso Lizeth Marzano: exabogado Jefferson Moreno dice que Villar tuvo dosaje etílico y peritaje psiquiátrico**: [Link](https://canaln.pe/actualidad/caso-lizeth-marzano-exabogado-adrian-villar-afirma-que-hubo-dosaje-etilico-n490618)
-
-
-### oscars 2026 (N/A, 01/03/2026 21:37 Lima)
-
-- **Ryan Coogler on ‘Sinners,’ Making Oscars History and the Weight of the Moment: ‘My Award Is the Opportunity to Have This Job’**: [Link](https://variety.com/2026/film/awards/ryan-coogler-sinners-oscars-history-award-opportunity-job-1236672077/)
-- **Michael B. Jordan feels 'tremendous sense of joy' seeing Ryan Coogler's success**: [Link](https://www.yahoo.com/entertainment/movies/articles/michael-b-jordan-feels-tremendous-131725397.html)
-- **‘Sinners’: Inside the most nominated film in Oscar history**: [Link](https://tribune.com.pk/story/2595187/sinners-inside-the-most-nominated-film-in-oscar-history)
-
-
-### nacional - peñarol (N/A, 01/03/2026 21:37 Lima)
-
-- **Jadson Viera tras la derrota en el clásico: "Nos vamos dolidos"**: [Link](https://www.espn.com.ar/futbol/uruguay/nota/_/id/16377005/jadson-viera-declaraciones-tras-nacional-vs-penarol-torneo-apertura-2026)
-- **Matías Arezo marcó el gol que puso arriba a Peñarol en el clásico**: [Link](https://espndeportes.espn.com/futbol/uruguay/nota/_/id/16376737/nacional-vs-penarol-gol-matias-arezo)
-- **Nacional 0-1 Peñarol: el aurinegro se llevó el clásico por gol de Arezo y quedó como líder del Apertura**: [Link](https://www.elpais.com.uy/ovacion/futbol/nacional-vs-penarol-en-vivo-el-tricolor-recibe-al-aurinegro-por-el-apertura-en-una-nueva-edicion-del-clasico)
-
-
-### palmeiras - são paulo (N/A, 01/03/2026 21:37 Lima)
-
-- **Calleri lamenta eliminação do São Paulo e cita erro contra o Palmeiras: 'Não podia'**: [Link](https://www.lance.com.br/sao-paulo/calleri-lamenta-eliminacao-do-sao-paulo-e-cita-erro-contra-o-palmeiras-nao-podia.html)
-- **Mesmo com nova polêmica no Choque-Rei, Verdão mereceu mais a final**: [Link](https://ge.globo.com/blogs/blog-do-rodrigo-coutinho/post/2026/03/01/mesmo-com-nova-polemica-no-choque-rei-verdao-merece-mais-a-final.ghtml)
-- **Gol do São Paulo! Daiane Muniz marca pênalti polêmico para o tricolor e Calleri converte**: [Link](https://esportes.r7.com/futebol/campeonato-paulista/video/gol-do-sao-paulo-daiane-muniz-marca-penalti-polemico-para-o-tricolor-e-calleri-converte-02032026/)
-
-
-### tolima - atlético nacional (N/A, 01/03/2026 21:37 Lima)
-
-- **Cierre de fronteras para el partido Deportes Tolima - Atlético Nacional**: [Link](https://www.tolimastereo.com/post/cierre-de-fronteras-para-el-partido-deportes-tolima-atl%C3%A9tico-nacional)
-- **Vamos, Atlético Nacional, a seguir la buena racha en la Liga | Q´HUBO Medellín**: [Link](https://qhubomedellin.com/deportes/futbol/atletico-nacional/vamos-atletico-nacional-a-seguir-la-buena-racha-en-la-liga-EH34006651)
-- **Tolima mide fuerzas ante Nacional antes del viaje a Chile**: [Link](https://elcronista.co/destacadas/tolima-mide-fuerzas-ante-nacional-antes-del-viaje-a-chile)
-
-
-### tigre - gimnasia (N/A, 01/03/2026 21:37 Lima)
-
-- **Pronóstico CA Tigre Gimnasia Y Esgrima La Plata - Liga Profesional Argentina 01/03/26**: [Link](https://www.sportytrader.com/es/pronosticos/ca-tigre-gimnasia-la-plata-330573/)
-- **El plantel esperó el partido en Vicente López**: [Link](https://www.eldia.com/nota/2026-3-1-2-0-56-el-plantel-espero-el-partido-en-vicente-lopez-deportes)
-- **Dos goles en un minuto y sigue ganando Gimnasia**: [Link](https://www.ole.com.ar/futbol-primera/torneo-apertura-tigre-gimnasia_0_uihupt7TQU.html)
-
-
-### colo-colo - u. de chile (N/A, 01/03/2026 15:34 Lima)
-
-- **Canal TNT Sports EN VIVO, Colo Colo vs. U. de Chile: ver clásico vía HBO MAX por internet**: [Link](https://depor.com/futbol-internacional/chile/tnt-sports-en-vivo-colo-colo-vs-u-de-chile-en-directo-como-ver-clasico-chileno-via-hbo-max-futbol-libre-tv-online-por-internet-liga-de-primera-video-noticia/)
-- **¿A qué hora se juega el superclásico Colo Colo vs U. de Chile desde el Monumental?**: [Link](https://elcomercio.pe/deporte-total/futbol-mundial/a-que-hora-juega-colo-colo-vs-u-de-chile-hoy-canales-de-television-para-ver-el-superclasico-por-campeonato-nacional-de-chile-noticia/)
-- **Autoridades revisan medidas de seguridad para el Superclásico y destacan uso de torniquetes con control biométrico**: [Link](https://www.latercera.com/nacional/noticia/autoridades-revisan-medidas-de-seguridad-para-el-superclasico-y-destacan-funcionamiento-de-torniquetes-con-control-biometrico/)
-
-
-### real madrid vs getafe (N/A, 01/03/2026 15:34 Lima)
-
-- **Cuándo juegan Real Madrid vs. Getafe por LaLiga: equipo, fecha, hora y TV en vivo**: [Link](https://www.espn.com.pe/futbol/espana/nota/_/id/16364017/real-madrid-vs-getafe-la-liga-fecha-26-equipo-fecha-hora-y-tv-en-vivo)
-- **Huijsen da un paso para volver a la convocatoria; Mbappé sigue out**: [Link](https://www.flashscore.pe/noticias/futbol-laliga-ea-sports-huijsen-vuelve-a-entrenar-con-el-grupo-y-mbappe-sigue-al-margen/0WjWdQeo/)
-- **LaLiga EA Sports: Getafe se enfrentará a Real Madrid por la fecha 26**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-getafe-se-enfrentara-a-real-madrid-por-la-fecha-26-noticia-1678082)
-
-
-### lyon vs (N/A, 01/03/2026 15:34 Lima)
-
-- **Liga de Francia: Olympique de Marsella se enfrenta ante la visita Olympique Lyon por la fecha 24**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-de-francia-olympique-de-marsella-se-enfrenta-ante-la-visita-olympique-lyon-por-la-fecha-24-noticia-1677978)
-- **OL : Des millions d'euros en jeu, Michele Kang arrive au Vélodrome**: [Link](https://www.foot01.com/ol/ol-des-millions-deuros-en-jeu-michele-kang-arrive-au-velodrome)
-- **Ligue 1 McDonald's : "On a bien travaillé", Habib Beye prêt pour l'Olympique lyonnais**: [Link](https://www.dazn.com/fr-FR/news/football/ligue-1-mcdonalds-on-a-bien-travaille-habib-beye-pret-pour-lolympique-lyonnais/1om21o98ve7w111kcwym6tvl8e)
 
 
