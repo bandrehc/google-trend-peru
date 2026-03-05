@@ -1,3 +1,43 @@
+### canal 4 en vivo (N/A, 05/03/2026 08:13 Lima)
+
+- **Barcelona 3-0 Atlético: resumen, goles y resultado**: [Link](https://as.com/futbol/copa_del_rey/barcelona-atletico-de-madrid-hoy-en-directo-copa-del-rey-en-vivo-ultima-hora-en-el-spotify-camp-nou-f202603-d/)
+- **La Copa de los imposibles**: [Link](https://www.marca.com/futbol/atletico/2026/03/04/copa-imposibles.html)
+- **¿Qué canal transmite FC Barcelona vs. Atl. de Madrid por vuelta de la Copa del Rey 2026?**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/que-canal-transmite-fc-barcelona-vs-atletico-de-madrid-en-vivo-hoy-por-copa-del-rey-2026-en-eeuu-mexico-y-espana-donde-ver-canales-tv-online-nnda-nnrt-noticia/)
+
+
+### precio del dolar (N/A, 05/03/2026 08:13 Lima)
+
+- **Precio del dólar en Perú del jueves 5 de marzo: cuál es el tipo de cambio**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-a-cuanto-esta-el-dolar-este-jueves-5-de-marzo-2026-conoce-el-tipo-de-cambio-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
+- **¿Cómo inició el dólar la jornada de hoy?**: [Link](https://peru21.pe/economia/dolar-en-peru-cotizacion-y-tendencia-actual-hoy/)
+- **¿Cuál es la cotización del dólar hoy miércoles 4 de marzo del 2026?**: [Link](https://elperuano.pe/noticia/290406-cual-es-la-cotizacion-del-dolar-hoy-miercoles-4-de-marzo-del-2026)
+
+
+### trome (N/A, 05/03/2026 08:13 Lima)
+
+- **¡Soltó todo! Monserrat acusó a Melcochita de ludópata y hasta lo tildó de “cochino”**: [Link](https://trome.com/espectaculos/tv/monserrat-acuso-a-melcochita-de-ludopata-y-hasta-lo-tildo-de-cochino-video-historias-de-farandula-noticia/)
+- **Monserrat Seminario arremete contra Melcochita: “Es ludópata y hasta para la intimidad tenía que lavarlo”**: [Link](https://www.infobae.com/peru/2026/03/05/monserrat-seminario-arremete-contra-melcochita-es-ludopata-y-hasta-para-la-intimidad-tenia-que-lavarlo/)
+- **Monserrat pone condición a Melcochita para darle el divorcio: "Que firme para irme del país con mis hijas"**: [Link](https://www.atv.pe/noticia/monserrat-pone-condicion-a-melcochita-para-darle-el-divorcio-que-firme-para-irme-del-pais-con-mis-hijas/)
+
+
+### ana paula consorte (N/A, 05/03/2026 08:13 Lima)
+
+- **"No estamos juntos": Ana Paula Consorte sorprende al confirmar su separación de Paolo Guerrero**: [Link](https://rpp.pe/famosos/farandula/ana-paula-consorte-revela-su-separacion-de-paolo-guerrero-en-programa-mesa-caliente-noticia-1678621)
+- **Ana Paula Consorte lanza CONTUNDENTE mensaje tras ruptura con Paolo Guerrero: "No tienes que moldearte para encajar"**: [Link](https://www.atv.pe/noticia/ana-paula-consorte-lanza-contundente-mensaje-tras-ruptura-con-paolo-guerrero-no-tienes-que-moldearte-para-encajar/)
+- **¿Paolo Guerrero y Ana Paula Consorte terminaron?**: [Link](https://www.americatv.com.pe/mas-espectaculos/paolo-guerrero-y-ana-paula-terminaron-esto-levanto-sospechas-noticia-163192)
+
+
+### pokopia (N/A, 05/03/2026 08:13 Lima)
+
+- **Play a Limited Time Event in Pokémon Pokopia on Nintendo Switch 2**: [Link](https://www.pokemon.com/us/pokemon-news/play-a-limited-time-event-in-pokemon-pokopia-on-nintendo-switch-2)
+- **Pokemon Pokopia's Lore Has Huge Implications for the Pokemon Universe**: [Link](https://www.ign.com/articles/pokemon-pokopias-lore-has-huge-implications-for-the-pokemon-universe)
+- **The spin-off game starring a 'weirdo' Pokémon that's got reviewers raving**: [Link](https://www.bbc.com/news/articles/cy5791kekwgo)
+
+
+### incendio en comas (N/A, 05/03/2026 08:13 Lima)
+
+Sin noticias relacionadas disponibles.
+
+
 ### incendio en comas hoy (N/A, 05/03/2026 03:52 Lima)
 
 - **Incendio en Comas: Más de 30 unidades de los bomberos trabajan para controlar la emergencia**: [Link](https://rpp.pe/lima/actualidad/incendio-en-comas-mas-de-20-unidades-de-los-bomberos-trabajan-para-controlar-la-emergencia-noticia-1678638)
@@ -990,47 +1030,5 @@ Sin noticias relacionadas disponibles.
 - **Liga de Francia: Olympique de Marsella se enfrenta ante la visita Olympique Lyon por la fecha 24**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-de-francia-olympique-de-marsella-se-enfrenta-ante-la-visita-olympique-lyon-por-la-fecha-24-noticia-1677978)
 - **OL : Des millions d'euros en jeu, Michele Kang arrive au Vélodrome**: [Link](https://www.foot01.com/ol/ol-des-millions-deuros-en-jeu-michele-kang-arrive-au-velodrome)
 - **Ligue 1 McDonald's : "On a bien travaillé", Habib Beye prêt pour l'Olympique lyonnais**: [Link](https://www.dazn.com/fr-FR/news/football/ligue-1-mcdonalds-on-a-bien-travaille-habib-beye-pret-pour-lolympique-lyonnais/1om21o98ve7w111kcwym6tvl8e)
-
-
-### newell's - rosario central (N/A, 01/03/2026 15:34 Lima)
-
-- **Newell’s y Rosario Central animan una nueva edición del clásico por el Torneo Apertura: formaciones confirmadas**: [Link](https://www.infobae.com/deportes/2026/03/01/newells-y-rosario-central-animaran-una-nueva-edicion-del-clasico-por-el-torneo-apertura-hora-tv-y-formaciones/)
-- **Regiardo y Ledesma anticipan el clásico entre Newell's y Central**: [Link](https://www.espn.com.ar/futbol/argentina/nota/_/id/16366666/regiardo-ledesma-anticipo-clasico-rosarino-newells-rosario-central-apertura)
-- **La formación de Newells para el clásico rosarino: el debut de Frank Kudelka ante Central**: [Link](https://www.365scores.com/es/news/newells-rosario-central-xi-lpf/)
-
-
-### lyon fc (N/A, 01/03/2026 15:34 Lima)
-
-- **OL : Des millions d'euros en jeu, Michele Kang arrive au Vélodrome**: [Link](https://www.foot01.com/ol/ol-des-millions-deuros-en-jeu-michele-kang-arrive-au-velodrome)
-- **Ligue 1 McDonald's : "On a bien travaillé", Habib Beye prêt pour l'Olympique lyonnais**: [Link](https://www.dazn.com/fr-FR/news/football/ligue-1-mcdonalds-on-a-bien-travaille-habib-beye-pret-pour-lolympique-lyonnais/1om21o98ve7w111kcwym6tvl8e)
-- **Le but rapide du Lyonnais Corentin Tolisso à Marseille en vidéo**: [Link](https://www.lequipe.fr/Football/Actualites/Le-but-rapide-du-lyonnais-corentin-tolisso-a-marseille-en-video/1656053)
-
-
-### juan pablo vs (N/A, 01/03/2026 15:34 Lima)
-
-- **🔴#ENVIVO Conoce las alineaciones de Juan Pablo II y Cusco FC**: [Link](https://ovacion.pe/noticias/liga1-2026/envivo-conoce-las-alineaciones-juan-pablo-ii-cusco-fc)
-- **Juan Pablo II v Cusco FC en vivo online 0-0 por la fecha 5 del Torneo Apertura de la Liga 1 2026**: [Link](https://www.futbolperuano.com/liga-1/noticias/juan-pablo-ii-v-cusco-fc-en-vivo-online-por-la-fecha-5-del-torneo-apertura-de-la-liga-1-2026-567775)
-- **Liga 1: Juan Pablo II y Cusco FC se encuentran en la fecha 5**: [Link](https://rpp.pe/futbol/descentralizado/liga-1-juan-pablo-ii-y-cusco-fc-se-encuentran-en-la-fecha-5-noticia-1677982)
-
-
-### endrick (N/A, 01/03/2026 15:34 Lima)
-
-- **Why 'The New Pele' Is Still Fighting For a Spot on Brazil's 2026 World Cup Squad**: [Link](https://www.foxsports.com/stories/soccer/endrick-is-showing-real-madrid-what-hes-made-of-during-lyon-loan-but-new-pele-still-fighting-an-uphill-battle-to-earn-brazil-world-cup-spot)
-- **Endrick reveals the inspiration behind his new celebration at Lyon**: [Link](https://tribuna.com/en/blogs/endrick-reveals-the-inspiration-behind-his-new-celebration-a/)
-- **Real Madrid expects to earn over 60 million euros from the sale of the team's star player**: [Link](https://telegrafi.com/en/Real-Madrid-expects-to-earn-over-60-million-euros-from-the-sale-of-the-team%27s-star-player/)
-
-
-### sevilla vs (N/A, 01/03/2026 15:34 Lima)
-
-- **Apuestas y Pronóstico del Betis vs Sevilla 01/03/26**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2026/marzo/pronostico-betis-vs-sevilla-01-03-26)
-- **LaLiga EA Sports: Betis y Sevilla se enfrentan en el Derbi de Sevilla**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-betis-y-sevilla-se-enfrentan-en-el-derbi-de-sevilla-noticia-1677965)
-- **Cuándo juegan Betis vs. Sevilla la liga de España**: [Link](https://www.espn.com.ar/futbol/espana/nota/_/id/16367663/cuando-juegan-betis-vs-sevilla-por-la-laliga-espana-equipo-fecha-y-hora-en-vivo)
-
-
-### girona - celta de vigo (N/A, 01/03/2026 15:34 Lima)
-
-- **LaLiga EA Sports: Girona se enfrentará ante Celta por la fecha 26**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-girona-se-enfrentara-ante-celta-por-la-fecha-26-noticia-1677980)
-- **Apuestas y Pronóstico del Girona vs Celta 01/03/26**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2026/marzo/pronostico-girona-vs-celta-01-03-26)
-- **Míchel: “Seguir en Primera es lo más importante para la estabilidad del club”**: [Link](https://as.com/futbol/primera/michel-seguir-en-primera-es-lo-mas-importante-para-la-estabilidad-del-club-f202602-n/)
 
 
