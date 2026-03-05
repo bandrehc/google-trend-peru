@@ -1,3 +1,73 @@
+### adrian villar (N/A, 04/03/2026 21:35 Lima)
+
+- **Adrián Villar: Poder Judicial da a conocer esta noche decisión de prisión preventiva por caso Lizeth Marzano**: [Link](https://elcomercio.pe/lima/policiales/adrian-villar-en-vivo-poder-judicial-da-a-conocer-decision-sobre-prision-preventiva-por-caso-lizeth-marzano-ultimas-noticia/)
+- **Homicidio doloso por omisión impropia por incumplimiento de un deber de garante por injerencia: caso Lizeth Marzano**: [Link](https://lpderecho.pe/homicidio-doloso-por-omision-impropia-por-incumplimiento-de-un-deber-de-garante-por-injerencia-caso-lizeth-marzano/)
+- **Penalista cuestiona a juez por llamar “hijo” a Adrián Villar durante audiencia de prisión preventiva**: [Link](https://rpp.pe/lima/judiciales/penalista-cuestiona-a-juez-por-llamar-hijo-a-adrian-villar-en-audiencia-de-prision-preventiva-noticia-1678492)
+
+
+### gallese (N/A, 04/03/2026 21:35 Lima)
+
+- **Gallese fue titular en el empate de Deportivo Cali ante Fortaleza**: [Link](https://ovacion.pe/noticias/peruanos-mundo/gallese-fue-titular-empate-deportivo-cali-ante-fortaleza)
+- **Gallese brilla en empate 1-1 entre Deportivo Cali y Fortaleza**: [Link](https://diarioviral.pe/deportes/gallese-brilla-en-empate-1-1-entre-deportivo-cali-y-fortaleza-52496)
+- **Gallese da la cara; Reyna celebra con un gol y Noriega a un paso de ser campeón: así les fue a los peruanos en el exterior y qué viene para ellos**: [Link](https://elcomercio.pe/deporte-total/seleccion/seleccion-peruana-pedro-gallese-da-la-cara-yordy-reyna-celebra-con-un-gol-y-erick-noriega-a-un-paso-de-ser-campeon-asi-les-fue-a-los-peruanos-en-el-exterior-y-que-viene-para-ellos-noticia/)
+
+
+### hornets - celtics (N/A, 04/03/2026 21:35 Lima)
+
+- **Hornets vs Celtics Picks & Odds Today: Charlotte Deserves Respect As Road Underdog**: [Link](https://www.oddsshark.com/nba/hornets-celtics-picks-odds-march-4-2026)
+- **Grant Williams (knee) ruled out Wednesday**: [Link](https://www.fantasypros.com/nba/news/571859/grant-williams-knee-ruled-out-wednesday.php)
+- **Tiny Nick's Gambling Picks 03/04**: [Link](https://zonecoverage.com/2026/gambling/tiny-nicks-gambling-picks-03-04-4/)
+
+
+### valentina valiente (N/A, 04/03/2026 21:35 Lima)
+
+- **'Valentina Valiente': conoce a los protagonistas y personajes de la nueva telenovela de Latina**: [Link](https://www.infobae.com/peru/2026/03/05/valentina-valiente-conoce-a-los-protagonistas-y-personajes-de-la-nueva-telenovela-de-latina/)
+- **¡No te pierdas este miércoles a las 8:00 p.m. el estreno de Valentina Valiente!**: [Link](https://www.latina.pe/entretenimiento/valentina-valiente/no-te-pierdas-manana-a-las-800-p-m-el-estreno-de-valentina-valiente_20260303/)
+- **'Valentina Valiente' reparto: quiénes son los actores y actrices del elenco completo de la nueva novela de Latina**: [Link](https://larepublica.pe/espectaculos/2026/03/04/valentina-valiente-reparto-quienes-son-los-actores-y-actrices-del-elenco-completo-de-la-nueva-novela-de-latina-112244)
+
+
+### macbook neo precio (N/A, 04/03/2026 21:35 Lima)
+
+- **Apple presenta su nueva y más económica MacBook**: [Link](https://cnnespanol.cnn.com/2026/03/04/ciencia/apple-macbook-neo-trax)
+- **MacBook Neo: Apple vuelve a la carga con el MacBook 'barato'. Esta vez sí es barato de verdad**: [Link](https://www.xataka.com/ordenadores/macbook-neo-caracteristicas-ficha-tecnica-precio-fecha-lanzamiento)
+- **Apple presenta el MacBook Neo de US$599: 5 cosas que debes saber antes de comprarlo**: [Link](https://es-us.noticias.yahoo.com/apple-presenta-el-macbook-neo-de-us599-5-cosas-que-debes-saber-antes-de-comprarlo-180118573.html)
+
+
+### puebla - tigres (N/A, 04/03/2026 21:35 Lima)
+
+- **Qué canal pasa Puebla vs Tigres hoy: dónde ver GRATIS y EN VIVO el partido de la Liga MX**: [Link](https://www.365scores.com/es/news/puebla-vs-tigres-donde-ver-gratis-vivo/)
+- **Liga MX: Por la fecha 9, Puebla recibirá a Tigres**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-por-la-fecha-9-puebla-recibira-a-tigres-noticia-1678437)
+- **¡Muralla felina! Nahuel responde con triple atajada y salva a Tigres**: [Link](https://www.tudn.com/futbol/liga-mx/muralla-felina-nahuel-responde-con-triple-atajada-y-salva-a-tigres-video)
+
+
+### sportivo trinidense - olimpia (N/A, 04/03/2026 21:35 Lima)
+
+- **Transmisión EN VIVO de Sp. Trinidense vs Olimpia: cómo ver el partido por TV o streaming**: [Link](https://www.365scores.com/es/news/transmision-vivo-trinidense-vs-olimpia/)
+- **¡Con todo el potencial para el juego más importante del año!**: [Link](https://onefootball.com/en/news/con-todo-el-potencial-para-el-juego-mas-importante-del-ano-42502227)
+- **Equipos Paraguayos inician participación en la Copa Sudamericana**: [Link](https://www.adndigital.com.py/equipos-paraguayos-inician-participacion-en-la-copa-sudamericana/)
+
+
+### palmeiras - novorizontino (N/A, 04/03/2026 21:35 Lima)
+
+- **Novorizontino x Palmeiras: quando será jogo de volta da final? Saiba horário e onde assistir**: [Link](https://cbn.globo.com/esporte/noticia/2026/03/04/novorizontino-x-palmeiras-quando-sera-jogo-de-volta-da-final-saiba-horario-e-onde-assistir.ghtml)
+- **Carlos Miguel minimiza defesa de pênalti em final: 'Muitos minutos ainda'**: [Link](https://www.uol.com.br/esporte/futebol/ultimas-noticias/2026/03/04/carlos-miguel-palmeiras-defesa-penalti-paulistao.htm)
+- **Torcedores se atrasam para chegar em Barueri e perdem início da final**: [Link](https://www.cnnbrasil.com.br/esportes/futebol/campeonato-paulista/torcedores-se-atrasam-para-chegar-em-barueri-e-perdem-inicio-da-final/)
+
+
+### monterrey - querétaro (N/A, 04/03/2026 21:35 Lima)
+
+- **Transmisión EN VIVO del Monterrey vs Querétaro hoy: cómo mirar el partido por TV o streaming**: [Link](https://www.365scores.com/es/news/monterrey-vs-queretaro-hoy-transmision/)
+- **¡Se desata la polémica! Djuka cae en el área pero el árbitro no señala nada**: [Link](https://www.tudn.com/futbol/liga-mx/se-desata-la-polemica-djuka-cae-en-el-area-pero-el-arbitro-no-senala-nada-video)
+- **Por qué no juega Sergio Canales en Rayados vs. Querétaro por la jornada 9 del Clausura 2026**: [Link](https://bolavip.com/mx/ligamx/por-que-no-juega-sergio-canales-en-rayados-vs-queretaro-por-la-jornada-9-del-clausura-2026)
+
+
+### bienvenida la tarde (N/A, 04/03/2026 21:35 Lima)
+
+- **Melissa Paredes y Bienvenida tu tarde en Esto Es Guerra**: [Link](https://www.americatv.com.pe/esto-es-guerra/melissa-paredes-andy-v-y-bienvenida-tu-tarde-esto-guerra-noticia-163195)
+- **¡Histórico! 'Esto es guerra' anuncia que tendrá a exmiembros de 'Combate' y 'Bienvenida la tarde' en una edición especial del reality de competencia**: [Link](https://larepublica.pe/espectaculos/2026/03/04/historico-esto-es-guerra-anuncia-que-tendra-a-exmiembros-de-combate-y-bienvenida-la-tarde-en-una-edicion-especial-del-reality-de-competencia-131552)
+- **Combate, Esto es guerra, y Bienvenida la tarde: ¡Unidos en un desafío sin precedentes!**: [Link](https://www.infobae.com/video/entretenimiento/combate-esto-es-guerra-y-bienvenida-la-tarde-unidos-en-un-desafio-sin-precedentes/IU8YN7eB/)
+
+
 ### aberdeen - celtic f. c. (N/A, 04/03/2026 15:37 Lima)
 
 - **Reo Hatate is the destroyer of the Dons: He must be stopped**: [Link](https://www.heraldscotland.com/sport/25905699.celtic-star-destroyed-aberdeen-must-stopped/)
@@ -960,73 +1030,5 @@ Sin noticias relacionadas disponibles.
 - **LaLiga EA Sports: Valencia se enfrenta ante la visita Osasuna por la fecha 26**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-valencia-se-enfrenta-ante-la-visita-osasuna-por-la-fecha-26-noticia-1677938)
 - **Pronóstico Valencia vs. Osasuna - La visita en estado de gracia**: [Link](https://gainblers.com/pe/pronosticos/futbol/espana/liga-primera-division/pronostico-valencia-osasuna-01-03-2026/)
 - **Todo lo que debes saber del Valencia-Osasuna de la Jornada 26 de LaLiga**: [Link](https://www.flashscore.pe/noticias/futbol-laliga-ea-sports-previa-del-valencia-osasuna-curiosidades-estadisticas-datos-y-anecdotas/6Bt3qGhd/)
-
-
-### milan (N/A, 01/03/2026 08:00 Lima)
-
-- **Allegri plays down Milan exit rumours, makes Pulisic prediction**: [Link](https://football-italia.net/allegri-milan-exit-rumours-pulisic-prediction/)
-- **The five key battles that could win or lose the game for Milan against Cremonese**: [Link](https://sempremilan.com/five-key-battles-cremonese-ac-milan-2025-26)
-- **Nicola, his faith intact: "I believe in salvation."**: [Link](https://sport.quotidiano.net/en/calcio/cremonese/nicola-fiducia-intatta-credo-nella-dcb9940d)
-
-
-### elche c. f. - rcd espanyol (N/A, 01/03/2026 08:00 Lima)
-
-- **Apuestas y Pronóstico del Elche vs Espanyol 01/03/26**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2026/marzo/pronostico-elche-vs-espanyol-01-03-26)
-- **LaLiga EA Sports: Espanyol visita a Elche por la fecha 26**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-espanyol-visita-a-elche-por-la-fecha-26-noticia-1677919)
-- **Pace y Watt, estarán en el Martínez Valero apoyando al equipo**: [Link](https://onefootball.com/es/noticias/pace-y-watt-estaran-en-el-martinez-valero-apoyando-al-equipo-42486697)
-
-
-### rangers - celtic f. c. (N/A, 01/03/2026 08:00 Lima)
-
-- **Inside Rangers and Celtic managers' fight that saw both men banned – 'I snapped'**: [Link](https://www.mirror.co.uk/sport/football/news/rangers-celtic-mccoist-lennon-clash-36790451)
-- **Former Celtic boss explained reason for his infamous touchline fight with Ally McCoist**: [Link](https://www.express.co.uk/sport/football/2176372/rangers-celtic-mccoist-lennon-clash)
-- **Old Firm build-up dominates Sunday's gossip**: [Link](https://www.bbc.com/sport/football/articles/cp324q7675eo)
-
-
-### milan vs (N/A, 01/03/2026 08:00 Lima)
-
-- **Today’s Papers: Super Dimarco, Inter +13, Roma-Juve, Cremonese-Milan**: [Link](https://football-italia.net/todays-papers-super-dimarco-inter-plus-13/)
-- **Chivu: The Title is Not Decided Yet, and I'm Happy with Dimarco's Performance**: [Link](https://www.ysscores.com/en/news/13919972/Chivu:-The-Title-is-Not-Decided-Yet,-and-I'm-Happy-with-Dimarco's-Performance)
-- **Mkhitaryan Among the Best: What Italian Media Wrote After Inter vs Genoa**: [Link](https://sportaran.com/en/post/mhitaryan-sredi-luchshih-chto-napisali-italyanskie-smi-posle-matcha-inter-dzhenoa/)
-
-
-### ajax vs (N/A, 01/03/2026 08:00 Lima)
-
-Sin noticias relacionadas disponibles.
-
-
-### brighton vs (N/A, 01/03/2026 08:00 Lima)
-
-- **The 4-2-3-1 that Vitor Pereira can utilise to help Nottingham Forest beat Brighton**: [Link](https://www.nottinghamforest.news/2026/03/01/the-4-2-3-1-that-vitor-pereira-can-utilise-to-help-nottingham-forest-beat-brighton/)
-- **Hürzeler urges disgruntled fans to back Brighton and Hove Albion**: [Link](https://www.brightonandhovenews.org/2026/02/28/hurzeler-urges-disgruntled-fans-to-back-brighton-and-hove-albion/)
-- **Brighton v Nottingham Forest betting offer: b£10g£30 in free bets on Bally bet**: [Link](https://talksport.com/betting/4013458/brighton-nottingham-forest-bally-bet-30-in-free-bets/)
-
-
-### zwolle - ajax (N/A, 01/03/2026 08:00 Lima)
-
-- **Live Eredivisie | Ontluisterend Ajax ontsnapt aan achterstand tegen PEC Zwolle**: [Link](https://www.nu.nl/voetbal/6387575/live-eredivisie-ontluisterend-ajax-ontsnapt-aan-achterstand-tegen-pec-zwolle.html)
-- **Kwakman kijkt met stijgende verbazing naar Ajax: 'Erbarmelijk, onbegrijpelijk'**: [Link](https://www.voetbalprimeur.nl/nieuws/1747033/kees-kwakman-kraakt-ajax-na-eerste-helft-bij-pec-zwolle.html)
-- **🔴 Ajax wil profiteren van misstap NEC • Weghorst, Klaassen en Gloukh in de basis**: [Link](https://www.nhnieuws.nl/nieuws/357575/ajax-wil-profiteren-van-misstap-nec-weghorst-klaassen-en-gloukh-in-de-basis)
-
-
-### cremonese - milan (N/A, 01/03/2026 08:00 Lima)
-
-- **Tomori suona la carica: "Reagire forte per mantenere la posizione in classifica"**: [Link](https://tribuna.com/it/news/2026-03-01-tomori-suona-la-carica-reagire-forte-per-mantenere-la-posizione-in-classifica/)
-- **Cremonese-Milan, il commento all'intervallo (0-0)**: [Link](https://www.laprovinciacr.it/video/sport/569763/cremonese-milan-il-commento-all-intervallo-0-0.html)
-- **Tare: “Vincere per affrontare la settimana che porta al derby con entusiasmo. L’obiettivo era…”**: [Link](https://www.fcinter1908.it/news/interviste/tare-vincere-settimana-derby-entusiasmi/)
-
-
-### twitch (N/A, 01/03/2026 03:38 Lima)
-
-- **Support a Streamer and Twitch Drops Now Live! — World of Warcraft**: [Link](https://news.blizzard.com/en-us/article/24264010/support-a-streamer-and-twitch-drops-now-live)
-- **TheBurntPeanut is absolutely spot on about all the Marathon hate**: [Link](https://www.indy100.com/gaming/theburntpeanut-marathon-stream-twitch-youtube)
-- **TheBurntPeanut tells fans to stop roasting Marathon already**: [Link](https://www.dexerto.com/gaming/theburntpeanut-tells-fans-to-stop-roasting-marathon-already-3326303/)
-
-
-### ricardo mendoza (N/A, 01/03/2026 03:38 Lima)
-
-- **"No podía perderla": Ricardo Mendoza confiesa que Katya Mosquera le dio ultimátum para formalizar su relación**: [Link](https://rpp.pe/famosos/farandula/ricardo-mendoza-confiesa-que-katya-mosquera-le-dio-ultimatum-para-formalizar-su-relacion-noticia-1677908)
-- **Ricardo Mendoza abrió su corazón a Magaly Medina y revela que se casa pronto**: [Link](https://www.atv.pe/noticia/ricardo-mendoza-abrio-su-corazon-a-magaly-medina-y-revela-que-se-casa-pronto/)
-- **Ricardo Mendoza luce templadazo de su novia Katya: “Ella es muy mujer, no se porta como una niña”**: [Link](https://trome.com/espectaculos/tv/ricardo-mendoza-luce-templadazo-de-su-novia-katya-mosquera-ella-es-muy-mujer-no-se-porta-como-una-nina-video-fotos-farandula-noticia/)
 
 
