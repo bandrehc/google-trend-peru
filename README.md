@@ -1,3 +1,73 @@
+### psg vs. mónaco (N/A, 06/03/2026 15:38 Lima)
+
+- **PSG predicted XI v Monaco: Bradley Barcola to start as No.9?**: [Link](https://www.getfootballnewsfrance.com/2026/psg-predicted-xi-v-monaco-bradley-barcola-to-start-as-no-9/)
+- **Luis Enrique: The best part of the season is about to begin**: [Link](https://www.beinsports.com/en-us/soccer/ligue-1/articles/luis-enrique-the-best-part-of-the-season-is-about-to-begin-2026-03-05)
+- **🚨 Line-ups confirmed: Monaco out for revenge against PSG**: [Link](https://sports.yahoo.com/articles/line-ups-confirmed-monaco-revenge-185000198.html)
+
+
+### ministerio de educación (N/A, 06/03/2026 15:38 Lima)
+
+- **¿El N.° 1 siempre tiene la razón?, por Mirko Lauer**: [Link](https://larepublica.pe/opinion/2026/03/06/el-n-1-siempre-tiene-la-razon-por-mirko-lauer-hnews-500334)
+- **Fernando Rospigliosi: José Balcázar podría ser “procesado” por impulsar una ley que benefició a su hijo tras dejar la Presidencia**: [Link](https://www.infobae.com/peru/2026/03/03/fernando-rospigliosi-jose-balcazar-podria-ser-procesado-por-impulsar-una-ley-que-beneficio-a-su-hijo-tras-dejar-la-presidencia/)
+- **Ministro del Interior sale en defensa de José Balcázar y minimiza cuestionamientos: "Todos tenemos denuncias"**: [Link](https://www.exitosanoticias.pe/politica/ministro-interior-sale-defensa-jose-balcazar-minimiza-cuestionamientos-todos-tenemos-denuncias-n170158)
+
+
+### el peruano (N/A, 06/03/2026 15:38 Lima)
+
+- **Si trabajas en salud, esto te interesa: Gobierno autoriza fondos para mejorar ingresos**: [Link](https://www.elperuano.pe/noticia/290546-si-trabajas-en-salud-esto-te-interesa-gobierno-autoriza-fondos-para-mejorar-ingresos)
+- **El Peruano te informa: consulta aquí las principales normas legales para hoy, viernes 6 de marzo del 2026**: [Link](https://www.elperuano.pe/noticia/290544-el-peruano-te-informa-consulta-aqui-las-principales-normas-legales-para-hoy-viernes-6-de-marzo-del-2026)
+- **Congresistas expresan preocupación por falta de mantenimiento y plan de contingencia para hacer frente a la crisis del gas**: [Link](https://comunicaciones.congreso.gob.pe/noticias/congresistas-expresan-preocupacion-por-falta-de-mantenimiento-y-plan-de-contingencia-para-hacer-frente-a-la-crisis-del-gas/)
+
+
+### alexander zverev (N/A, 06/03/2026 15:38 Lima)
+
+- **Alex de Minaur and Alexander Zverev share the worst coaching advice they’ve ever received**: [Link](https://malaysia.news.yahoo.com/alex-minaur-alexander-zverev-share-180000139.html)
+- **ATP DEBUTS 'ATHLETE ARRIVALS'**: [Link](https://www.atptour.com/en/news/atp-athlete-arrivals-indian-wells-2026-gallery)
+- **PICTURES: Frances Tiafoe, Alexander Zverev & Others Showcase NBA-Style Fashion In New Pre-Game Ritual At Indian Wells**: [Link](https://collegefootballnetwork.com/tennis/frances-tiafoe-alexander-zverev-nba-style-fashion-indian-wells/)
+
+
+### gas (N/A, 06/03/2026 15:38 Lima)
+
+- **Gas prices jump again. Where to find cheapest prices in Bucks County**: [Link](https://www.phillyburbs.com/story/news/local/2026/03/06/who-has-cheapest-gas-in-bucks-county-levittown-doylestown-quakertown-pa-gas-prices-iran-trump/89017467007/)
+- **Subaqueous Gas Infrastructure Capacity Increase to Beach**: [Link](https://www.myclearwater.com/My-Neighborhood-and-Community-Programs/Clearwater-Beach-Construction/Subaqueous-Gas-Infrastructure-Capacity-Increase-to-Beach)
+- **Gas Infrastructure Capacity Increase to Beach**: [Link](https://www.myclearwater.com/My-Neighborhood-and-Community-Programs/Clearwater-Beach-Construction/Gas-Infrastructure-Capacity-Increase-to-Beach)
+
+
+### noticias de hoy (N/A, 06/03/2026 15:38 Lima)
+
+- **Irán asegura que ha atacado un petrolero de Estados Unidos en el estrecho de Ormuz**: [Link](https://elpais.com/internacional/2026-03-05/iran-asegura-que-ha-atacado-un-petrolero-de-estados-unidos-en-el-estrecho-de-ormuz.html)
+- **Irán niega haber cerrado el estrecho de Ormuz: «De momento no tenemos intención de hacerlo»**: [Link](https://caretas.pe/mundo/iran-niega-haber-cerrado-el-estrecho-de-ormuz-de-momento-no-tenemos-intencion-de-hacerlo/)
+- **Irán niega haber cerrado el estrecho de Ormuz: Esa afirmación es "infundada y absurda"**: [Link](https://rpp.pe/mundo/actualidad/iran-niega-haber-cerrado-el-estrecho-de-ormuz-esa-afirmacion-es-infundada-y-absurda-noticia-1678721)
+
+
+### rpp (N/A, 06/03/2026 15:38 Lima)
+
+- **Rayos y lluvia torrencial alarman a vecinos de Lima Este**: [Link](https://caretas.pe/nacional/rayos-y-lluvia-torrencial-alarman-a-vecinos-de-lima-este/)
+- **Relámpagos y truenos iluminan el cielo de Chosica y distritos de Lima**: [Link](https://elcomercio.pe/videos/pais/truenos-y-rayos-en-chosica-por-que-hay-descargas-electricas-en-lima-y-que-zonas-se-veran-afectadas-nnav-amtv-video-noticia/)
+- **Senamhi alerta sobre relámpagos y truenos en Lima Este**: [Link](https://www.americatv.com.pe/noticias/actualidad/senamhi-reporta-relampagos-y-truenos-distritos-lima-este-n516378)
+
+
+### thiago pitarch (N/A, 06/03/2026 15:38 Lima)
+
+- **Real Madrid vs Getafe: Arbeloa set to start a future superstar**: [Link](https://therealchamps.com/real-madrid-vs-getafe-arbeloa-set-to-start-pitarch-football-soccer)
+- **A little miracle fails Morocco**: [Link](https://frenchfootballweekly.com/2026/03/03/a-little-miracle-fails-morocco/)
+- **Alvaro Arbeloa: “Thiago will continue to enjoy opportunities with the first team”**: [Link](https://sports.yahoo.com/articles/alvaro-arbeloa-thiago-continue-enjoy-101227874.html)
+
+
+### bayer (N/A, 06/03/2026 15:38 Lima)
+
+- **Bayer Aktie (DE000BAY0017) im Belastungstest: Glyphosat, Schulden und Restrukturierung im Fokus deut**: [Link](https://www.ad-hoc-news.de/boerse/news/ueberblick/bayer-aktie-de000bay0017-im-belastungstest-glyphosat-schulden-und/68641729)
+- **Bayer vor entscheidender Weichenstellung: Rechtsstreitigkeiten und finanzielle Herausforderungen**: [Link](https://www.it-boltwise.de/bayer-vor-entscheidender-weichenstellung-rechtsstreitigkeiten-und-finanzielle-herausforderungen.html)
+- **Bernhard Vetter zum Bayer-Fazit 2025: Harmlos auf dem Acker, giftig in der Bilanz**: [Link](https://www.agrarzeitung.de/nachrichten/agrarspitzen/bernhard-vetter-zum-bayer-fazit-2025-harmlos-auf-dem-acker-giftig-in-der-bilanz-156083)
+
+
+### paris saint germain (N/A, 06/03/2026 15:38 Lima)
+
+- **@![DAZN[Ｄｉｒｅｃｔ]! PSG Monaco en direct Live Gratuit du Vendredi 6 mars 2026**: [Link](https://apps.palmbeachpost.com/fgh/video/video-psg-monaco-en-liv-fr5408263.html)
+- **Ligue 1+ sur OneFootball : le programme du week-end 🇫🇷📱**: [Link](https://onefootball.com/fr/news/ligue-1-sur-onefootball-le-programme-du-week-end-42514095)
+- **AS Monaco : Vanderson contraint d'être remplacé à cause d'une blessure**: [Link](https://madeinfoot.ouest-france.fr/infos/article-as-monaco-vanderson-contraint-d-etre-remplace-a-cause-d-une-blessure-515063.html)
+
+
 ### tipo de cambio dolar hoy (N/A, 06/03/2026 11:50 Lima)
 
 - **Dólar escala a S/ 3.45 ante incertidumbre por la guerra en Medio Oriente**: [Link](https://gestion.pe/economia/mercados/tipo-de-cambio-dolar-hoy-en-peru-cuanto-esta-el-precio-del-dolar-este-jueves-5-de-marzo-dolares-a-soles-compra-y-venta-bcrp-noticia/)
@@ -963,75 +1033,5 @@ Sin noticias relacionadas disponibles.
 - **Preview: Barcelona vs Atletico Madrid - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/barcelona/copa-del-rey/preview/barcelona-vs-atletico-prediction-team-news-lineups_593003.html)
 - **Lookman.. From Barcelona's Interest to a Real Threat**: [Link](https://www.ysscores.com/en/news/13921134/Lookman..-From-Barcelona's-Interest-to-a-Real-Threat)
 - **Hansi Flick Targets Comeback: “We Want to Make the Impossible Possible”**: [Link](https://www.beinsports.com/en-us/soccer/copa-del-rey/articles/hansi-flick-targets-comeback-we-want-to-make-the-impossible-possible-2026-03-02)
-
-
-### el peruano normas legales (N/A, 03/03/2026 08:10 Lima)
-
-- **Estas son las normas legales más importantes del martes 3 de marzo del 2026**: [Link](https://andina.pe/agencia/noticia-estas-son-las-normas-legales-mas-importantes-del-martes-3-marzo-del-2026-1065124.aspx)
-- **El Peruano te informa: consulta aquí las principales normas legales para hoy, martes 3 de marzo del 2026**: [Link](https://www.elperuano.pe/noticia/290273-el-peruano-te-informa-consulta-aqui-las-principales-normas-legales-para-hoy-martes-3-de-marzo-del-2026)
-- **Consulta las normas legales más importantes de hoy, domingo 1 de marzo de 2026**: [Link](https://www.radionacional.gob.pe/noticias/politica/consulta-las-normas-legales-mas-importantes-de-hoy-domingo-1-de-marzo-de-2026)
-
-
-### como vs inter (N/A, 03/03/2026 08:10 Lima)
-
-- **Cuándo juegan Como vs. Inter por las semifinales de la Copa Italia: equipo, fecha, hora y TV en vivo**: [Link](https://www.espn.com.ar/futbol/italia/nota/_/id/16378189/como-vs-inter-semifinales-ida-copa-italia-equipo-fecha-hora-y-tv-en-vivo)
-- **Como vs Inter Milan: Fábregas pide a fans una "pequeña Bombonera"**: [Link](https://espndeportes.espn.com/futbol/italia/nota/_/id/16380448/copa-italia-2026-como-vs-inter-milan-dt-cesc-fabregas-fans-pequena-bombonera)
-- **Fábregas 'copia' la receta del Bodo pensando en una histórica final de Coppa**: [Link](https://www.marca.com/futbol/liga-italiana/2026/03/02/fabregas-copia-receta-bodo-pensando-historica-final-coppa.html)
-
-
-### eclipse (N/A, 03/03/2026 03:51 Lima)
-
-- **A total lunar eclipse will turn the full moon blood red for over 3 billion people tonight (March 3)**: [Link](https://www.space.com/stargazing/lunar-eclipses/a-total-lunar-eclipse-will-turn-the-full-moon-blood-red-for-over-3-billion-people-tonight)
-- **Blood moon expected overnight, but western Washington faces cloud cover**: [Link](https://komonews.com/news/local/blood-moon-lunar-eclipse-seattle-western-washington-north-america-weather-clear-skies-march-region-forecast-clear-conditions-warm-front-space-needle-nasa-scientists)
-- **Does the lunar eclipse have a path of totality? When to view blood moon**: [Link](https://www.beaconjournal.com/story/lifestyle/nature-wildlife/2026/03/02/lunar-eclipse-2026-map-shows-ohio-blood-moon-visibility-forecast/88939015007/)
-
-
-### claude ai (N/A, 03/03/2026 03:51 Lima)
-
-- **Anthropic’s Claude Chatbot Goes Down For Thousands of Users**: [Link](https://www.bloomberg.com/news/articles/2026-03-02/anthropic-s-claude-chatbot-goes-down-for-thousands-of-users)
-- **Anthropic’s Claude reports widespread outage**: [Link](https://techcrunch.com/2026/03/02/anthropics-claude-reports-widespread-outage/)
-- **AI chatbot Claude's Monday morning outages resolved, Anthropic says**: [Link](https://www.stamfordadvocate.com/news/article/claude-down-outages-monday-anthropic-21950126.php)
-
-
-### warriors - clippers (N/A, 03/03/2026 03:51 Lima)
-
-- **Warriors vs. Clippers injury report: Kristaps Porziņģis, Steph Curry, and Will Richard out**: [Link](https://www.goldenstateofmind.com/warriors-injury-report/108926/warriors-clippers-injury-report-kristaps-porzingis-steph-curry-will-richard)
-- **Kawhi Leonard 23 Pts, 8 Reb, 4 Ast vs Golden State Warriors (3.2.26)**: [Link](https://www.nba.com/clippers/videos/kawhi-leonard-23-pts-8-reb-4-ast-vs-golden-state-warriors-3-2-26)
-- **Clippers Warriors Basketball**: [Link](https://www.dailyrecordnews.com/ap_news/sports/clippers-warriors-basketball/image_8b3efa8d-ec20-5da1-a8f8-66f8b95ce02f.html)
-
-
-### nuggets - jazz (N/A, 03/03/2026 00:15 Lima)
-
-- **Nuggets play Jazz on back-to-back**: [Link](https://www.nba.com/nuggets/news/nuggets-play-jazz-on-back-to-back)
-- **Nuggets vs. Jazz**: [Link](https://mlq.ai/prediction/market/nba-den-uta-2026-03-02/)
-- **Tiny Nick's Gambling Picks 03/02**: [Link](https://zonecoverage.com/2026/gambling/tiny-nicks-gambling-picks-03-02-4/)
-
-
-### clippers - warriors (N/A, 03/03/2026 00:15 Lima)
-
-- **Clippers vs. Warriors Picks & Odds: March 2, 2026**: [Link](https://www.oddsshark.com/nba/clippers-warriors-picks-odds-march-2-2026)
-- **Draymond Green, John Collins, And 3 Other Underdog Props For Warrriors vs. Clippers**: [Link](https://www.si.com/onsi/fantasy/dfs/draymond-green-john-collins-and-3-other-underdog-props-for-warrriors-vs-clippers)
-- **NBA Warriors vs Clippers Draftstars DFS Captain Contest Preview and Projections for March 3, 2026**: [Link](https://www.statsinsider.com.au/news/nba-warriors-vs-clippers-draftstars-dfs-captain-contest-preview-and-projections-for-march-3-2026)
-
-
-### steven tyler (N/A, 03/03/2026 00:15 Lima)
-
-- **“Steven grabbed it and wanted to throw it out into the audience. I had to wrestle him for it”: That time Joe Perry had to rescue a broken guitar from Steven Tyler in the middle of an Aerosmith gig**: [Link](https://www.guitarworld.com/artists/guitarists/joe-perry-saving-guitar-from-steven-tyler)
-- **The time Joe Perry snapped the headstock of one of his favourite guitars: “Steven wanted to throw it into the audience – I had to wrestle him for it!”**: [Link](https://guitar.com/news/music-news/joe-perry-broken-guitar/)
-- **“Steven grabbed it and wanted to throw it out into the…**: [Link](https://www.inkl.com/news/steven-grabbed-it-and-wanted-to-throw-it-out-into-the-audience-i-had-to-wrestle-him-for-it-that-time-joe-perry-had-to-rescue-a-broken-guitar-from-steven-tyler-in-the-middle-of-an-aerosmith-gig)
-
-
-### liam gallagher (N/A, 03/03/2026 00:15 Lima)
-
-- **'I found it impossible to dislike Liam Gallagher even when he was hurling insults at us on TV'**: [Link](https://www.manchestereveningnews.co.uk/whats-on/music-nightlife-news/i-found-impossible-dislike-liam-33502173)
-- **Exclusive: Alex James reveals his honest thoughts on Liam Gallagher - and Blur's reaction to Oasis tour**: [Link](https://www.hellomagazine.com/celebrities/885125/alex-james-blur-interview-britpop-classical/)
-- **Liam Gallgher's ex-wife says 'it's the best' in admission about relationship now**: [Link](https://www.manchestereveningnews.co.uk/news/showbiz-news/liam-gallghers-ex-wife-says-33518287)
-
-
-### miguel bose (N/A, 03/03/2026 00:15 Lima)
-
-- **Diego Yamashiro: “Para lucir bien hay que tener personalidad, actitud y carisma”**: [Link](https://trome.com/actualidad/nacional/diego-yamashiro-par-lucir-bien-hay-que-tener-peronalidad-actitud-y-carisma-entevista-noticia/)
-- **Famoso diseñador peruano, Diego Yamashiro, confiesa: “Miguel Bosé fue mi padrino”**: [Link](https://www.expreso.com.pe/entretenimiento/famoso-disenador-peruano-diego-yamashiro-confiesa-miguel-bose-fue-mi-padrino-espana-roberto-carlos-cusco-noticia/1267429/)
-- **Conciertos de Miguel Bosé, Milo J, Kiruba, Kudai entre otros eventos en marzo de 2026 en Ecuador**: [Link](https://www.primicias.ec/entretenimiento/conciertos-miguel-bose-miloj-kiruba-kudai-quito-marzo2026-ecuador-116309/)
 
 
