@@ -1,3 +1,72 @@
+### formula 1 (N/A, 05/03/2026 21:33 Lima)
+
+- **How Formula 1’s Live Broadcast Center Captures the Story of Speed**: [Link](https://variety.com/2026/sports/news/formula-1-live-broadcast-center-1236678943/)
+- **Here's how two very different films — 'Sirāt' and 'F1' — built worlds in sound**: [Link](https://www.wunc.org/2026-03-02/heres-how-two-very-different-films-sirat-and-f1-built-worlds-in-sound)
+- **Here's how two very different films — 'Sirāt' and 'F1' — built worlds in sound**: [Link](https://www.npr.org/transcripts/nx-s1-5725296)
+
+
+### valentina valiente (N/A, 05/03/2026 21:33 Lima)
+
+- **¡Mira aquí el PRIMER capítulo de Valentina Valiente por Latina!**: [Link](https://www.latina.pe/entretenimiento/valentina-valiente/mejores-momentos-valentina-valiente/mira-aqui-el-primer-capitulo-de-valentina-valiente-por-latina_20260305/)
+- **'Valentina Valiente' reparto: quiénes son los actores y actrices del elenco completo de la nueva novela de Latina**: [Link](https://larepublica.pe/espectaculos/2026/03/04/valentina-valiente-reparto-quienes-son-los-actores-y-actrices-del-elenco-completo-de-la-nueva-novela-de-latina-112244)
+- **El miércoles 4 estrena Valentina valiente por Latina Televisión**: [Link](https://www.produ.com/television/noticias/el-miercoles-4-estrena-valentina-valiente-por-latina-television/)
+
+
+### f1 (N/A, 05/03/2026 21:33 Lima)
+
+- **F1 unveil new look for 2026 season**: [Link](https://racingnews365.com/f1-unveil-new-look-for-2026-season)
+- **It’s Lights Out And Away We Go!**: [Link](https://10.com.au/formula-1/articles/its-lights-out-and-away-we-go/tpa260305ftqgw)
+- **LIVE COVERAGE: First Practice in Australia**: [Link](https://www.formula1.com/en/latest/article/live-coverage-first-practice-in-australia-2026.6yY9JoKzybIoZUlNBuuh92)
+
+
+### junior - alianza (N/A, 05/03/2026 21:33 Lima)
+
+- **Pronóstico CD Junior FC Alianza FC Valledupar - Primera A Colombia 05/03/26**: [Link](https://www.sportytrader.com/es/pronosticos/club-atletico-junior-alianza-fc-valledupar-331939/)
+- **"Si lo convocaste, es pa' ponerlo; no salgas ahora con que es paso a paso": junioristas al DT Arias**: [Link](https://impactonews.co/si-lo-convocaste-es-pa-ponerlo-no-salgas-ahora-con-que-es-paso-a-paso-junioristas-al-dt-arias/)
+- **Regresa el goleador: Bacca reaparece en una convocatoria de Junior tras ocho meses de ausencia**: [Link](https://diariodelnorte.net/deportes/regresa-el-goleador-bacca-reaparece-en-una-convocatoria-de-junior-tras-ocho-meses-de-ausencia/)
+
+
+### warriors - rockets (N/A, 05/03/2026 21:33 Lima)
+
+- **Warriors vs. Rockets 2026 livestream: Watch NBA games for free**: [Link](https://mashable.com/article/warriors-rockets-nba-2026-live-stream-for-free)
+- **NBA Odds, Player Props & Injury Reports for GSW-HOU, DET-SAS, LAL-DEN**: [Link](https://www.hardrock.bet/news/nba-odds-player-props-injury-reports-for-gsw-hou-det-sas-lal-den/)
+- **Alperen Sengun Questionable for Thursday due to Illlness - NBA News | Fantasy Basketball**: [Link](https://www.rotoballer.com/player-news/alperen-sengun-questionable-for-thursday-due-to-illlness/1822641)
+
+
+### 8 de marzo (N/A, 05/03/2026 21:33 Lima)
+
+- **125 frases inspiradoras por el Día Internacional de la Mujer 2026 para mujeres fuertes y seguras de sí mismas**: [Link](https://gestion.pe/mix/respuestas/125-frases-inspiradoras-por-el-dia-internacional-de-la-mujer-2026-para-mujeres-fuertes-y-seguras-de-si-mismas-08-de-marzo-nnda-nnni-noticia/)
+- **140 citas motivacionales para el Día Internacional de la Mujer 2026: envíalas a tu mamá, hermanas, pareja o hijas este 08 de marzo**: [Link](https://elcomercio.pe/mag/respuestas/140-citas-motivacionales-para-el-dia-internacional-de-la-mujer-2026-envialas-a-tu-mama-hermanas-pareja-o-hijas-este-08-de-marzo-nnda-nnni-noticia/)
+- **Día de la Mujer 2026: las mejores imágenes para conmemorar la importante fecha este 8 de marzo**: [Link](https://libero.pe/ocio/redes-sociales/2026/03/05/dia-de-mujer-2026-mejores-imagenes-conmemorar-importante-fecha-8-de-marzo-464945)
+
+
+### bienvenida la tarde (N/A, 05/03/2026 21:33 Lima)
+
+- **Melissa Paredes y Bienvenida tu tarde en Esto Es Guerra**: [Link](https://www.americatv.com.pe/esto-es-guerra/melissa-paredes-andy-v-y-bienvenida-tu-tarde-esto-guerra-noticia-163195)
+- **Así fue la reacción del niño Alfredito al ver a Laura Huarcayo y ‘Bienvenida la tarde’ en Esto Es Guerra**: [Link](https://www.infobae.com/peru/2026/03/06/asi-fue-la-reaccion-del-nino-alfredito-al-ver-a-laura-huarcayo-y-bienvenida-la-tarde-en-esto-es-guerra/)
+- **¡Histórico! 'Esto es guerra' anuncia que tendrá a exmiembros de 'Combate' y 'Bienvenida la tarde' en una edición especial del reality de competencia**: [Link](https://larepublica.pe/espectaculos/2026/03/04/historico-esto-es-guerra-anuncia-que-tendra-a-exmiembros-de-combate-y-bienvenida-la-tarde-en-una-edicion-especial-del-reality-de-competencia-131552)
+
+
+### orense vs (N/A, 05/03/2026 21:33 Lima)
+
+- **Orense vs Macará en vivo por la Copa Sudamericana 2026: transmisión en directo del partido**: [Link](https://www.futbolperuano.com/en-vivo/copa-sudamericana-2026-orense-vs-macara-en-vivo-568411)
+- **Orense vs Macará: previa, horario y cómo llegan para la llave 8 de la Copa Sudamericana**: [Link](https://zona.palmsbet.pe/deportes/futbol/orense-vs-macara-previa-horario-y-como-llegan-para-la-llave-8-de-la-copa-sudamericana/)
+
+
+### natalia jimenez (N/A, 05/03/2026 21:33 Lima)
+
+- **Miguel Bosé en Lima: coreografías de antaño y clásicos en una noche de reencuentro | FOTOS**: [Link](https://elcomercio.pe/luces/musica/miguel-bose-en-lima-coreografias-de-antano-y-clasicos-en-una-noche-de-reencuentro-fotos-noticia/)
+- **Miguel Bosé regresó a Lima tras 14 años con su ‘Importante Tour’ y un concierto lleno de nostalgia**: [Link](https://larepublica.pe/entretenimiento/2026/03/05/miguel-bose-regreso-a-lima-tras-14-anos-con-su-importante-tour-y-un-concierto-lleno-de-nostalgia-55075)
+- **Bosé encendió Lima y tocó el corazón de los peruanos**: [Link](https://andina.pe/agencia/noticia-bose-encendio-lima-y-toco-corazon-los-peruanos-1065513.aspx)
+
+
+### américa - bucaramanga (N/A, 05/03/2026 21:33 Lima)
+
+- **David González sobre América vs Bucaramanga: "Estamos en un buen momento"**: [Link](https://espndeportes.espn.com/futbol/copa-sudamericana/nota/_/id/16388188/david-gonzalez-america-vs-bucaramanga-estamos-en-un-buen-momento)
+- **¡EN VIVO! América de Cali vs Atlético Bucaramanga en la Copa Sudamericana por beIN SPORTS**: [Link](https://www.beinsports.com/es-us/football/conmebol-sudamericana/articles/-en-vivo-am%C3%A9rica-de-cali-vs-atl%C3%A9tico-bucaramanga-en-la-copa-sudamericana-por-bein-sports-2026-03-05)
+- **Leonel Álvarez bajó de la nube a América previo a la Copa Sudamericana**: [Link](https://www.deportesrcn.com/futbol/leonel-alvarez-bajo-de-la-nube-a-america-previo-a-la-copa-sudamericana-146976)
+
+
 ### lyon vs. lens (N/A, 05/03/2026 15:43 Lima)
 
 - **Lyon predicted XI v Lens: Roman Yaremchuk to partner Endrick in attack**: [Link](https://sports.yahoo.com/articles/lyon-predicted-xi-v-lens-085000823.html)
@@ -963,74 +1032,5 @@ Sin noticias relacionadas disponibles.
 - **3 U.S. Planes Are Shot Down in ‘Friendly Fire’ in Kuwait, U.S. Military Says**: [Link](https://www.nytimes.com/2026/03/02/world/middleeast/iran-kuwait-us-attack-planes.html)
 - **Videos appear to show the moments U.S. fighter jets were shot down over Kuwait**: [Link](https://www.washingtonpost.com/investigations/2026/03/02/us-fighter-jets-crash-kuwait-iran-f15/)
 - **Pilot seen on the ground after multiple US planes crash in Kuwait**: [Link](https://www.cnn.com/2026/03/02/world/video/kuwait-pilot-plane-crash-digivid-intldsk)
-
-
-### pisa vs (N/A, 02/03/2026 11:56 Lima)
-
-- **Preview: Pisa vs Bologna - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/pisa/preview/pisa-vs-bologna-prediction-team-news-lineups_592929.html)
-- **✅ Pisa v Bologna: choices on Moreo, Castro, Orsolini, Odgaard**: [Link](https://onefootball.com/en/news/pisa-v-bologna-choices-on-moreo-castro-orsolini-odgaard-42493329)
-- **Serie A Week 27 Liveblog: Pisa vs. Bologna and Udinese vs. Fiorentina**: [Link](https://football-italia.net/serie-a-live-pisa-bologna-udinese-fiorentina/)
-
-
-### beirut (N/A, 02/03/2026 11:56 Lima)
-
-- **Israeli attacks kill 31 in Lebanon, Iran strikes across region, and US warplanes crash in Kuwait**: [Link](https://www.bbc.com/news/live/cy0dp1l57nxt)
-- **Iran Live Updates: Israel Strikes Hezbollah in Lebanon as Trump Says He's Prepared to Fight for Weeks**: [Link](https://www.nytimes.com/live/2026/03/01/world/iran-attack-khamenei-trump)
-- **Hezbollah formally enters conflict, fires rockets at Mishmar military site near Haifa**: [Link](https://www.middleeastmonitor.com/20260302-hezbollah-formally-enters-conflict-fires-rockets-at-mishmar-military-site-near-haifa/)
-
-
-### claude (N/A, 02/03/2026 08:11 Lima)
-
-- **How Talks Between Anthropic and the Defense Dept. Fell Apart**: [Link](https://www.nytimes.com/2026/03/01/technology/anthropic-defense-dept-openai-talks.html)
-- **OpenAI strikes deal with Pentagon hours after Trump admin bans Anthropic**: [Link](https://www.cnn.com/2026/02/27/tech/openai-pentagon-deal-ai-systems)
-- **AI executive Dario Amodei on the red lines Anthropic would not cross**: [Link](https://www.cbsnews.com/news/ai-executive-dario-amodei-on-the-red-lines-anthropic-would-not-cross/)
-
-
-### inicio de clases 2026 (N/A, 02/03/2026 08:11 Lima)
-
-- **Inicio de clases 2026: fecha oficial que fijó el Minedu para alumnos de colegios estatales**: [Link](https://www.infobae.com/peru/2026/02/27/inicio-de-clases-2026-esta-es-la-fecha-oficial-que-fijo-el-minedu-para-alumnos-de-colegios-estatales/)
-- **Regreso a clases 4 de marzo: revisa fechas oficiales y vacaciones de invierno por región**: [Link](https://www.elmostrador.cl/datos-utiles/2026/03/02/3222384/)
-- **Este es el PRIMER FERIADO largo que tendrán los estudiantes del Perú tras el inicio del año escolar 2026**: [Link](https://libero.pe/tiempoextra/2026/02/28/es-primer-feriado-largo-tendran-estudiantes-del-peru-inicio-del-ano-escolar-2026-1956080)
-
-
-### hezbola (N/A, 02/03/2026 08:11 Lima)
-
-- **Cientos de aviones de Israel bombardean simultáneamente Irán y Libano**: [Link](https://andina.pe/agencia/noticia-cientos-aviones-israel-bombardean-simultaneamente-iran-y-libano-1064992.aspx)
-- **Hezbolá ataca Israel y Donald Trump estima cuatro semanas más de guerra en Irán**: [Link](https://rpp.pe/mundo/actualidad/hezbola-ataca-israel-y-donald-trump-estima-cuatro-semanas-mas-de-guerra-en-iran-noticia-1678156)
-- **Israel ataca objetivos de Hezbolá "en todo Líbano"**: [Link](https://peru21.pe/mundo/israel-ataca-objetivos-de-hezbola-en-todo-libano/)
-
-
-### zendaya (N/A, 02/03/2026 08:11 Lima)
-
-- **Zendaya and Tom Holland Are Married, Stylist Law Roach Claims: 'You Missed It'**: [Link](https://people.com/zendaya-and-tom-holland-are-married-stylist-law-roach-claims-8769894)
-- **Zendaya Pregnancy Rumors Resurface as Secret Marriage Leaks—Is This the Real Reason for Tying the Knot?**: [Link](https://www.inkl.com/news/zendaya-pregnancy-rumors-resurface-as-secret-marriage-leaks-is-this-the-real-reason-for-tying-the-knot)
-- **Tom Holland, Zendaya 'secret wedding photo' shocks fans**: [Link](https://www.geo.tv/latest/653670-tom-holland-zendaya-secret-wedding-photo-shocks-fans)
-
-
-### panamericana (N/A, 02/03/2026 03:53 Lima)
-
-- **Puente Piedra: Violento choque entre camión de carga y bus deja varios heridos**: [Link](https://peru21.pe/lima/puente-piedra-violento-choque-entre-camion-de-carga-y-bus-deja-varios-heridos/)
-- **Choque entre camión de carga y bus de transporte público El Chino en la Panamericana Norte dejó un muerto**: [Link](https://larepublica.pe/sociedad/2026/03/01/choque-entre-camion-de-carga-y-bus-de-el-chino-genera-intenso-trafico-en-la-panamericana-norte-a-la-altura-de-puente-piedra-62121)
-- **🔴🔵#ElInformativoDeExitosa📺📺 | Fatídico accidente en Los Olivos. El chofer de un camión perdió la vida tras chocar contra un bus de 'Los Chinos', muy cerca del óvalo Infantas. Según información preliminar, el vehículo de transporte público se encontraba av**: [Link](https://www.facebook.com/Exitosanoticias/posts/elinformativodeexitosa-fat%C3%ADdico-accidente-en-los-olivos-el-chofer-de-un-cami%C3%B3n-p/1363985349097853/)
-
-
-### alessandra denegri (N/A, 02/03/2026 00:17 Lima)
-
-- **Alessandra Denegri: reacción por regreso de Cayetana AFHS**: [Link](https://www.americatv.com.pe/mas-espectaculos/alessandra-denegri-y-su-reaccion-al-regreso-cayetana-afhs-noticia-163125)
-- **Al Fondo Hay Sitio: Cayetana Bogani reaparece en la serie**: [Link](https://www.infobae.com/video/peru/al-fondo-hay-sitio-cayetana-bogani-reaparece-en-la-serie/u6kg1fh3/)
-- **¡Cayetana vuelve a 'Al fondo hay sitio' tras más de 10 años!: la 'Chamaquita' pondrá en peligro relación entre Joel y Macarena**: [Link](https://larepublica.pe/cine-series/2026/02/28/cayetana-vuelve-a-al-fondo-hay-sitio-tras-mas-de-10-anos-la-chamaquita-pondra-en-peligro-relacion-entre-joel-y-macarena-454636)
-
-
-### juan montenegro abogado (N/A, 02/03/2026 00:17 Lima)
-
-- **Decano del CAL sostiene que padre de Francesca Montenegro y exdefensa de Adrián Villar podrían ser expulsados: ''Problemas éticos y legales''**: [Link](https://larepublica.pe/sociedad/2026/02/27/decano-del-cal-sostiene-que-padre-de-francesca-montenegro-y-exdefensa-de-adrian-villar-podrian-ser-expulsados-problemas-eticos-y-legales-ntpe-1572021)
-- **"Hay indicios de comportamiento incorrecto": Raúl Canelo sobre padre de Francesca Montenegro**: [Link](https://rpp.pe/videos/prueba-de-fuego/hay-indicios-de-comportamiento-incorrecto-raul-canelo-sobre-padre-de-francesca-montenegro-noticia-1677723)
-- **Colegio de Abogados evalúa expulsar al padre de influencer Francesca Montenegro por posible encubrimiento de Adrián Villar**: [Link](https://www.infobae.com/peru/2026/02/27/colegio-de-abogados-evalua-expulsar-al-padre-de-influencer-francesca-montenegro-por-posible-encubrimiento-de-adrian-villar/)
-
-
-### liam draxl (N/A, 02/03/2026 00:17 Lima)
-
-- **Ignacio Buse vs Liam Draxl: ¿A qué hora juegan y donde ver la Qualy del Masters 1000 de Indian Wells?**: [Link](https://rpp.pe/tenis/mas-tenis/ignacio-buse-vs-liam-draxl-en-vivo-a-que-hora-juegan-y-donde-ver-qualy-atp-masters-1000-indian-wells-via-atp-tv-link-gratis-noticia-1678149)
-- **Buse se inicia en los Masters 1000: el gran momento del tenis peruano con Nacho top y Gonza pensando en los Grand Slams**: [Link](https://elcomercio.pe/deporte-total/ignacio-buse-en-indian-wells-el-gran-momento-del-tenis-peruano-con-nacho-top-100-y-gonzalo-bueno-pensando-en-los-grand-slams-tlcnota-noticia/)
 
 
