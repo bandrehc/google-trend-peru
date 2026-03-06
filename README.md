@@ -1,3 +1,59 @@
+### tipo de cambio dolar hoy (N/A, 06/03/2026 11:50 Lima)
+
+- **Dólar escala a S/ 3.45 ante incertidumbre por la guerra en Medio Oriente**: [Link](https://gestion.pe/economia/mercados/tipo-de-cambio-dolar-hoy-en-peru-cuanto-esta-el-precio-del-dolar-este-jueves-5-de-marzo-dolares-a-soles-compra-y-venta-bcrp-noticia/)
+- **Precio del dólar en Perú: a cuánto abrió el tipo de cambio HOY, viernes 6 de marzo**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-2026-cuanto-esta-el-dolar-este-viernes-6-de-marzo-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
+- **¡Continúa al alza! Dólar repunta y cierra en S/ 3.45, su mayor cotización en cinco meses**: [Link](https://rpp.pe/economia/economia/dolar-en-peru-subio-345-mayor-cotizacion-del-tipo-de-cambio-en-cinco-meses-a-que-se-debe-noticia-1678749)
+
+
+### bcrp billetes y monedas (N/A, 06/03/2026 11:50 Lima)
+
+- **Aprueban dictamen que precisa uso de símbolos y emblemas en monedas y billetes**: [Link](https://comunicaciones.congreso.gob.pe/noticias/aprueban-dictamen-que-precisa-uso-de-simbolos-y-emblemas-en-monedas-y-billetes/)
+- **Congreso pone “cerrojo” a cambio de monedas y billetes: BCRP tendrá última palabra**: [Link](https://gestion.pe/economia/congreso-pone-cerrojo-a-cambio-de-monedas-y-billetes-bcrp-tendra-ultima-palabra-noticia/)
+- **BCRP ya no tendrá que aumentar tamaño de monedas y poner lema en billetes**: [Link](https://www.infobae.com/peru/2026/03/06/bcrp-ya-no-tendra-que-aumentar-tamano-de-monedas-y-poner-lema-en-billetes/)
+
+
+### claude ai (N/A, 06/03/2026 11:50 Lima)
+
+- **Anthropic Says It Will Fight New Pentagon Move as CEO Apologizes for Leaked Memo**: [Link](https://www.wsj.com/tech/ai/pentagon-formally-labels-anthropic-supply-chain-risk-escalating-conflict-ebdf0523?gaa_at=eafs&gaa_n=AWEtsqfiWImo5EHqPDqygt237dhRWSaqJ6fkOG_mT4KYs5Iuogcq4aFXF7PJ&gaa_ts=69ab0968&gaa_sig=cDBKEm1cucarVUeZzKLx1C4T827QrGn3cW_bgHjYOtbtNUTMYV9RsJZikntTU5brmMwHGMwLodqYllLyie5gIg%3D%3D)
+- **An AI disaster is getting ever closer**: [Link](https://www.economist.com/briefing/2026/03/05/an-ai-disaster-is-getting-ever-closer)
+- **Microsoft says Anthropic’s products remain available to customers after Pentagon blacklist**: [Link](https://www.cnbc.com/2026/03/05/microsoft-says-anthropics-products-can-remain-available-to-customers-after-security-risk-designation.html)
+
+
+### corte de agua sedapal lima (N/A, 06/03/2026 11:50 Lima)
+
+- **Corte de agua para este 07 de marzo: conoce cuáles son las zonas afectadas**: [Link](https://www.infobae.com/peru/2026/03/05/corte-de-agua-para-este-07-de-marzo-conoce-cuales-son-las-zonas-afectadas/)
+- **Sedapal anuncia corte de agua hasta por 12 horas este 7 de marzo: Ate y El Agustino entre los distritos afectados**: [Link](https://larepublica.pe/sociedad/2026/03/06/sedapal-anuncia-corte-de-agua-hasta-por-12-horas-este-sabado-7-de-marzo-ate-y-el-agustino-entre-los-distritos-afectados-evat-118176)
+- **Más de 10 horas sin servicio de agua: revisa las zonas afectadas HOY, 6 de marzo**: [Link](https://elcomercio.pe/respuestas/donde/sin-agua-por-mas-de-10-horas-conoce-los-lugares-afectados-este-06-de-marzo-tdpe-noticia/)
+
+
+### que se celebra hoy (N/A, 06/03/2026 11:50 Lima)
+
+- **Qué se celebra el 5 de marzo en el Perú: un día que marca hitos históricos en suelo peruano**: [Link](https://www.infobae.com/peru/2026/03/05/que-se-celebra-el-5-de-marzo-en-el-peru-un-dia-que-marca-hitos-historicos-en-suelo-peruano/)
+- **¿Qué celebra Trujillo el 5 de marzo?, ¿Por qué es muy importante para esta ciudad peruana?**: [Link](https://andina.pe/agencia/noticia-que-celebra-trujillo-5-marzo-por-es-muy-importante-para-esta-ciudad-peruana-1065234.aspx)
+- **Trujillo celebra su 491° Aniversario de Fundación**: [Link](https://sientetrujillo.com/trujillo-celebra-su-491-aniversario-de-fundacion/)
+
+
+### vladimiro montesinos (N/A, 06/03/2026 11:50 Lima)
+
+- **Ordenan revisar condenas a Vladimiro Montesinos y acercan su posible liberación: lo que se sabe**: [Link](https://www.expreso.com.pe/judicial/ordenan-revisar-condenas-a-vladimiro-montesinos-y-acercan-su-posible-liberacion-lo-que-se-sabe-noticia/1268792/)
+- **Vladimiro Montesinos: Juzgado Constitucional ordena revisar plazo de las condenas impuestas a exasesor de Fujimori**: [Link](https://larepublica.pe/politica/2026/03/05/vladimiro-montesinos-juzgado-constitucional-ordena-revisar-plazo-de-las-condenas-impuestas-a-exasesor-de-fujimori-hnews-120270)
+- **Vladimiro Montesinos podría salir en libertad: ordenan revisar sus condenas**: [Link](https://willax.pe/politica/vladimiro-montesinos-libertad-condenas-willax)
+
+
+### dia internacional de la mujer (N/A, 06/03/2026 11:50 Lima)
+
+- **100 frases poderosas para pancartas y carteles del Día de la Mujer 2026 que puedes llevar a la marcha del 8 de marzo**: [Link](https://gestion.pe/mix/respuestas/100-frases-poderosas-para-pancartas-y-carteles-del-dia-de-la-mujer-2026-que-puedes-llevar-a-la-marcha-del-8-de-marzo-8m-mexico-argentina-espana-nnda-nnrt-noticia/)
+- **Pancartas del Día de la Mujer (8M): 50 imágenes con frases inspiradoras y lemas valientes para conmemorar la lucha de las mujeres**: [Link](https://elcomercio.pe/mag/respuestas/pancartas-del-dia-de-la-mujer-8m-50-imagenes-con-frases-inspiradoras-y-lemas-valientes-para-conmemorar-la-lucha-de-las-mujeres-marcha-8-de-marzo-nnda-nnrt-noticia/)
+- **De la lucha al empoderamiento: frases para carteles y pancartas para la marcha del 8M**: [Link](https://elpais.com/mexico/2026-03-06/de-la-lucha-al-empoderamiento-frases-para-carteles-y-pancartas-para-la-marcha-del-8m.html)
+
+
+### radio exitosa en vivo (N/A, 06/03/2026 11:50 Lima)
+
+- **Juez dicta nueve meses de prisión preventiva contra Adrián Villar**: [Link](https://lpderecho.pe/vivo-cesar-nakazaki-defiende-a-adrian-villar-en-audiencia-de-prision-preventiva/)
+- **Adrián Villar: Inpe informará mañana penal en que cumplirá los 9 meses de prisión preventiva**: [Link](https://elperuano.pe/noticia/290506-adrian-villar-inpe-informara-manana-penal-en-que-cumplira-los-9-meses-de-prision-preventiva)
+- **Trasladan a Adrián Villar para clasificación penitenciaria por muerte de Lizeth Marzano**: [Link](https://canaln.pe/actualidad/caso-lizeth-marzano-trasladan-adrian-villar-clasificacion-penal-n490704)
+
+
 ### precio del dolar (N/A, 06/03/2026 08:08 Lima)
 
 - **Dólar escala a S/ 3.45 ante incertidumbre por la guerra en Medio Oriente**: [Link](https://gestion.pe/economia/mercados/tipo-de-cambio-dolar-hoy-en-peru-cuanto-esta-el-precio-del-dolar-este-jueves-5-de-marzo-dolares-a-soles-compra-y-venta-bcrp-noticia/)
@@ -977,61 +1033,5 @@ Sin noticias relacionadas disponibles.
 - **Diego Yamashiro: “Para lucir bien hay que tener personalidad, actitud y carisma”**: [Link](https://trome.com/actualidad/nacional/diego-yamashiro-par-lucir-bien-hay-que-tener-peronalidad-actitud-y-carisma-entevista-noticia/)
 - **Famoso diseñador peruano, Diego Yamashiro, confiesa: “Miguel Bosé fue mi padrino”**: [Link](https://www.expreso.com.pe/entretenimiento/famoso-disenador-peruano-diego-yamashiro-confiesa-miguel-bose-fue-mi-padrino-espana-roberto-carlos-cusco-noticia/1267429/)
 - **Conciertos de Miguel Bosé, Milo J, Kiruba, Kudai entre otros eventos en marzo de 2026 en Ecuador**: [Link](https://www.primicias.ec/entretenimiento/conciertos-miguel-bose-miloj-kiruba-kudai-quito-marzo2026-ecuador-116309/)
-
-
-### atv en vivo (N/A, 03/03/2026 00:15 Lima)
-
-- **Clínica San Felipe se pronuncia tras 'aparecer' en chat de Adrián Villar y madre el día del accidente**: [Link](https://www.atv.pe/noticia/clinica-san-felipe-se-pronuncia-tras-aparecer-en-chat-de-adrian-villar-y-madre-el-dia-del-accidente/)
-- **Elio Riera solicita que declaración de Marisel Linares sea virtual por amenazas**: [Link](https://canaln.pe/actualidad/elio-riera-solicita-que-declaracion-marisel-linares-sea-virtual-amenazas-n490645)
-- **Caso Lizeth Marzano: abogado de Marisel Linares pide diligencias virtuales por amenazas contra su patrocinada**: [Link](https://rpp.pe/lima/judiciales/caso-lizeth-marzano-abogado-de-marisel-linares-pide-diligencias-virtuales-por-amenazas-contra-su-patrocinada-noticia-1678213)
-
-
-### primera división (N/A, 03/03/2026 00:15 Lima)
-
-- **El Bernabéu tampoco puede con el viejo Mestalla**: [Link](https://www.lasprovincias.es/valenciacf/bernabeu-tampoco-puede-viejo-mestalla-20260302004516-nt.html)
-- **Mestalla celebra 1.500 partidos en Primera División: un hito en la historia del fútbol español**: [Link](https://www.levante-emv.com/deportes/2026/03/03/mestalla-partidos-1500-primera-division-127461919.html)
-- **1.500 veces Mestalla, el estadio más emblemático de España**: [Link](https://www.superdeporte.es/valencia-cf/2026/03/02/1-500-veces-mestalla-estadio-historia-127458181.html)
-
-
-### copa sudamericana (N/A, 02/03/2026 21:40 Lima)
-
-- **Millonarios en marzo: fechas y rivales decisivos en Liga BetPlay y Copa Sudamericana**: [Link](https://www.infobae.com/colombia/deportes/2026/03/01/millonarios-en-marzo-fechas-y-rivales-decisivos-en-liga-betplay-y-copa-sudamericana/)
-- **Sigue en vivo El Vbar de AS: ¿Quién gana entre Nacional y Millonarios?**: [Link](https://colombia.as.com/videos/sigue-en-vivo-el-vbar-de-as-quien-gana-entre-nacional-y-millonarios-f202603-v/)
-- **Edwin Cardona pierde protagonismo en Nacional y queda fuera del duelo ante Millonarios**: [Link](https://www.elheraldo.co/deportes/2026/03/02/edwin-cardona-pierde-protagonismo-en-nacional-y-queda-fuera-del-duelo-ante-millonarios/)
-
-
-### rinky hijikata (N/A, 02/03/2026 21:40 Lima)
-
-- **Vamos, Perú: Ignacio Buse venció 2-0 a Liam Draxl por la Qualy del Masters 1000 de Indian Wells**: [Link](https://rpp.pe/tenis/mas-tenis/ignacio-buse-vs-liam-draxl-en-vivo-a-que-hora-juegan-y-donde-ver-qualy-atp-masters-1000-indian-wells-via-atp-tv-link-gratis-noticia-1678149)
-- **Ignacio Buse venció a canadiense Liam Draxl en la fase previa del Indian Wells**: [Link](https://trome.com/deportes/ignacio-buse-vencio-a-canadiense-liam-draxl-en-la-fase-previa-del-indian-wells-noticia/)
-- **Ignacio Buse ganó al canadiense Liam Draxl y está a un paso de entrar al cuadro principal de Indian**: [Link](https://www.apnoticias.pe/peru/diario-uno/ignacio-buse-gano-al-canadiense-liam-draxl-y-esta-a-un-paso-de-entrar-al-cuadro-principal-de-indian-wells-1492122)
-
-
-### madureira - flamengo (N/A, 02/03/2026 21:40 Lima)
-
-- **Flamengo divulga escalação para semifinal do Carioca 2026; Veja**: [Link](https://francesnews.com.br/post/2026/03/26/16414-flamengo-divulga-escalacao-para-semifinal-do-carioca-2026-veja)
-- **Madureira x Flamengo: acompanhe a transmissão da TMC ao vivo**: [Link](https://tmc.com.br/ultimas-noticias/madureira-x-flamengo-acompanhe-a-transmissao-da-tmc-ao-vivo/)
-- **Aos 3 min do 2º tempo - assistência de Evertton Araujo do Flamengo contra o Madureira**: [Link](https://ge.globo.com/futebol/video/aos-3-min-do-2o-tempo-assistencia-de-evertton-araujo-do-flamengo-contra-o-madureira-14394337.ghtml)
-
-
-### river (N/A, 02/03/2026 21:40 Lima)
-
-- **Small plane makes emergency landing in Hudson River near Newburgh**: [Link](https://www.timesunion.com/hudsonvalley/news/article/plane-crash-hudson-river-newburgh-survivors-21951623.php)
-- **BREAKING… Cessna plane crashes in Hudson River off Newburgh**: [Link](https://midhudsonnews.com/2026/03/02/breaking-cessna-plane-crashed-in-hudson-river-off-newburgh/)
-- **Small plane crashes into Hudson River in New York**: [Link](https://bnonews.com/index.php/2026/03/small-plane-crashes-into-hudson-river-in-new-york/)
-
-
-### banfield - aldosivi (N/A, 02/03/2026 21:40 Lima)
-
-- **Pronóstico CA Banfield Aldosivi - Liga Profesional Argentina 02/03/26**: [Link](https://www.sportytrader.com/es/pronosticos/ca-banfield-aldosivi-331034/)
-- **Preocupante: Aldosivi sumó su cuarta caída en siete partidos**: [Link](https://ahoramardelplata.com.ar/deportes/preocupante-aldosivi-sumo-su-cuarta-caida-en-siete-partidos)
-- **Con gol de Gómez, Banfield le gana a Aldosivi**: [Link](https://www.ole.com.ar/futbol-primera/banfield-aldosivi-apertura_0_gzcxTtS538.html)
-
-
-### carioca serie a (N/A, 02/03/2026 21:40 Lima)
-
-- **Final do Campeonato Carioca 2026: saiba quando e onde assistir**: [Link](https://cbn.globo.com/esporte/noticia/2026/03/02/final-do-campeonato-carioca-2026-saiba-quando-e-onde-assistir.ghtml)
-- **Mauro Cezar aponta favorito claro em Fluminense x Flamengo**: [Link](https://www.lance.com.br/fora-de-campo/mauro-cezar-aponta-favorito-claro-em-fluminense-x-flamengo.html)
-- **Minhas impressões**: [Link](https://tribunaonline.com.br/coluna/gilmar-ferreira/minhas-impressoes-293869)
 
 
