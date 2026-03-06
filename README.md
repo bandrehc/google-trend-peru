@@ -1,3 +1,24 @@
+### precio dolar peru (N/A, 06/03/2026 03:47 Lima)
+
+- **Dólar escala a S/ 3.45 ante incertidumbre por la guerra en Medio Oriente**: [Link](https://gestion.pe/economia/mercados/tipo-de-cambio-dolar-hoy-en-peru-cuanto-esta-el-precio-del-dolar-este-jueves-5-de-marzo-dolares-a-soles-compra-y-venta-bcrp-noticia/)
+- **¡Continúa al alza! Dólar repunta y cierra en S/ 3.45, su mayor cotización en cinco meses**: [Link](https://rpp.pe/economia/economia/dolar-en-peru-subio-345-mayor-cotizacion-del-tipo-de-cambio-en-cinco-meses-a-que-se-debe-noticia-1678749)
+- **¿Cuál es la cotización del dólar hoy jueves 5 de marzo del 2026?**: [Link](https://andina.pe/agencia/noticia-cual-es-cotizacion-del-dolar-hoy-jueves-5-marzo-del-2026-1065535.aspx)
+
+
+### coming up roses harry styles (N/A, 06/03/2026 03:47 Lima)
+
+- **Fred again.. Plays Unreleased Harry Styles Song During Alexandra Palace Show in London**: [Link](https://www.billboard.com/music/pop/fred-again-harry-styles-unreleased-song-london-performance-1236187964/)
+- **Fred Again teases unreleased Harry Styles song during London show**: [Link](https://www.aol.com/fred-again-teases-unreleased-harry-090333505.html)
+- **Harry Styles’s ‘Coming Up Roses’ Is a Love Song About Romances That Don’t Last Forever**: [Link](https://www.elle.com/culture/music/a70632009/harry-styles-coming-up-roses-lyrics-meaning/)
+
+
+### wolves vs. liverpool (N/A, 06/03/2026 03:47 Lima)
+
+- **Arne Slot gives stars dressing-down after conceding another late winner**: [Link](https://www.thetimes.com/sport/football/article/arne-slot-virgil-van-dijk-liverpool-wolves-premier-league-p8ngjmzc8)
+- **One man’s mistake to blame for Wolves loss – Warnock**: [Link](https://www.empireofthekop.com/2026/03/05/one-mans-mistake-to-blame-for-wolves-loss-warnock/)
+- **Wolverhampton Wanderers will be without Andre Trindade and Enso Gonzalez for Liverpool rematch**: [Link](https://tribuna.com/en/news/2026-03-05-wolverhampton-wanderers-will-be-without-andre-trindade-and-enso-gonzalez/)
+
+
 ### graciela alfano (N/A, 06/03/2026 00:11 Lima)
 
 - **Susana Giménez sorprendió con su look en traje de baño para grabar una publicidad**: [Link](https://www.infobae.com/teleshow/2026/03/05/susana-gimenez-sorprendio-con-su-look-en-traje-de-bano-para-grabar-una-publicidad/)
@@ -1012,25 +1033,5 @@ Sin noticias relacionadas disponibles.
 - **Chris Davies sets out Birmingham City's approach, and it could be good news for Middlesbrough**: [Link](https://www.gazettelive.co.uk/sport/football/football-news/chris-davies-sets-out-birmingham-33512528)
 - **talkSPORT tips – Best football bets and expert advice on Monday 2 March**: [Link](https://talksport.com/football/4013414/talksport-tips-best-football-bets-monday-2-march/)
 - **How to watch today's Birmingham vs Middlesbrough Championship game: Live stream, TV channel, and start time**: [Link](https://www.goal.com/en-ca/news/how-to-watch-birmingham-v-middlesbrough-02032026/blte916cd3832b967d5)
-
-
-### benfica vs (N/A, 02/03/2026 15:42 Lima)
-
-- **Posts Tagged Gianni Infantino Breaks His Silence on the Vinicius-Prestianni Case/**: [Link](https://en.africatopsports.com/tag/gianni-infantino-breaks-his-silence-on-the-vinicius-prestianni-case/)
-- **Një rregull i ri nga FIFA, lojtarët tani mund marrin shumë lehtë kartonë të kuq**: [Link](https://reporteri.net/en/sport/A-new-rule-from-FIFA-means-players-can-now-receive-red-cards-very-easily./)
-- **Gianni Infantino's proposal against racism**: [Link](https://sports.yahoo.com/articles/gianni-infantinos-proposal-against-racism-125000584.html)
-
-
-### cordoba vs (N/A, 02/03/2026 15:42 Lima)
-
-- **Ávalos y Marcone anotaron en el agónico triunfo de Independiente sobre Central Córdoba**: [Link](https://www.espn.com.pe/futbol/argentina/nota/_/id/16372687/video-goles-independiente-vs-central-cordoba-avalos-marcone)
-- **Cuándo juegan Independiente vs. Central Córdoba por el Torneo Apertura 2026: equipo, fecha, hora y TV en vivo**: [Link](https://www.espn.com.pe/futbol/argentina/nota/_/id/16356399/independiente-vs-central-cordoba-por-el-torneo-apertura-2026-equipo-fecha-hora-tv-en-vivo)
-
-
-### fiorentina vs (N/A, 02/03/2026 15:42 Lima)
-
-- **Monday's Serie A predictions and previews including Udinese vs. Fiorentina**: [Link](https://www.sportsmole.co.uk/football/fiorentina/serie-a-predictions/feature/udinese-fiorentina-in-thriller-mondays-serie-a-predictions-and-previews_593022.html)
-- **🔴Udinese 1-0 Fiorentina: Zaniolo, Kabasele star, Astori tribute 🥺**: [Link](https://onefootball.com/en/news/udinese-1-0-fiorentina-zaniolo-kabasele-star-astori-tribute-42493977)
-- **Udinese Calcio vs ACF Fiorentina Odds - Monday March 2 2026**: [Link](https://www.oddsshark.com/soccer/ita-serie-a/udinese-fiorentina-odds-march-1-2026-2404754)
 
 
