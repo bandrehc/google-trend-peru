@@ -1,3 +1,38 @@
+### precio del dolar (N/A, 06/03/2026 08:08 Lima)
+
+- **Dólar escala a S/ 3.45 ante incertidumbre por la guerra en Medio Oriente**: [Link](https://gestion.pe/economia/mercados/tipo-de-cambio-dolar-hoy-en-peru-cuanto-esta-el-precio-del-dolar-este-jueves-5-de-marzo-dolares-a-soles-compra-y-venta-bcrp-noticia/)
+- **¡Continúa al alza! Dólar repunta y cierra en S/ 3.45, su mayor cotización en cinco meses**: [Link](https://rpp.pe/economia/economia/dolar-en-peru-subio-345-mayor-cotizacion-del-tipo-de-cambio-en-cinco-meses-a-que-se-debe-noticia-1678749)
+- **¿Cómo inició el dólar la jornada de hoy?**: [Link](https://peru21.pe/economia/dolar-en-peru-cotizacion-y-tendencia-actual-hoy/)
+
+
+### fa cup (N/A, 06/03/2026 08:08 Lima)
+
+- **FA Cup fifth round: things to look out for this weekend**: [Link](https://www.theguardian.com/football/2026/mar/06/fa-cup-fifth-round-things-to-look-out-for-this-weekend)
+- **FA Cup Fifth Round Predictions: Liverpool Seek Revenge, Chelsea Face Hollywood Tie**: [Link](https://www.fotmob.com/embed/news/01kjyr7fyqd7/fa-cup-fifth-round-predictions-liverpool-seek-revenge-chelsea-face-hollywood-tie)
+- **Saturday's FA Cup Tips: Back 17/10 Blues at Wrexham & 9/2 Toon to take down Man City**: [Link](https://onefootball.com/es/noticias/saturdays-fa-cup-tips-back-1710-blues-at-wrexham-92-toon-to-take-down-man-city-42512644)
+
+
+### nuggets - lakers (N/A, 06/03/2026 08:08 Lima)
+
+- **Unc, Ocho, and Iso Joe react to LeBron, Luka & Lakers vs. Jokic & Nuggets | Nightcap**: [Link](https://bvmsports.com/2026/03/05/unc-ocho-and-iso-joe-react-to-lebron-luka-lakers-vs-jokic-nuggets-nightcap/)
+- **Lakers drop nail-biter to Nuggets to kick off tough stretch of opponents**: [Link](https://www.aol.com/articles/lakers-drop-nail-biter-nuggets-055754088.html)
+- **Sombor Survival: Jokic’s yo-yo game enough for Nuggets to beat LA**: [Link](https://denversports.com/nba/denver-nuggets/jokic-yo-yo-lakers/2129062)
+
+
+### gustavo cerati (N/A, 06/03/2026 08:08 Lima)
+
+- **Las 50 mejores bandas de rock en español de todos los tiempos, clasificadas**: [Link](https://www.billboard.com/lists/las-50-mejores-bandas-de-rock-en-espanol-clasificadas/)
+- **Libido y Los Saicos, entre las 50 mejores bandas de rock en español de todos los tiempos, según Billboard Latinoamérica**: [Link](https://rpp.pe/musica/internacional/libido-y-los-saicos-entre-las-50-mejores-bandas-de-rock-en-espanol-de-todos-los-tiempos-segun-billboard-latinoamerica-noticia-1678708)
+- **Billboard: Los Saicos y Líbido, entre las 50 mejores bandas de rock en español**: [Link](https://andina.pe/agencia/noticia-billboard-los-saicos-y-libido-entre-las-50-mejores-bandas-rock-espanol-1065671.aspx)
+
+
+### melendi (N/A, 06/03/2026 08:08 Lima)
+
+- **Miguel Bosé en Lima: coreografías de antaño y clásicos en una noche de reencuentro | FOTOS**: [Link](https://elcomercio.pe/luces/musica/miguel-bose-en-lima-coreografias-de-antano-y-clasicos-en-una-noche-de-reencuentro-fotos-noticia/)
+- **Miguel Bosé regresó a Lima tras 14 años con su ‘Importante Tour’ y un concierto lleno de nostalgia**: [Link](https://larepublica.pe/entretenimiento/2026/03/05/miguel-bose-regreso-a-lima-tras-14-anos-con-su-importante-tour-y-un-concierto-lleno-de-nostalgia-55075)
+- **Bosé encendió Lima y tocó el corazón de los peruanos**: [Link](https://andina.pe/agencia/noticia-bose-encendio-lima-y-toco-corazon-los-peruanos-1065513.aspx)
+
+
 ### precio dolar peru (N/A, 06/03/2026 03:47 Lima)
 
 - **Dólar escala a S/ 3.45 ante incertidumbre por la guerra en Medio Oriente**: [Link](https://gestion.pe/economia/mercados/tipo-de-cambio-dolar-hoy-en-peru-cuanto-esta-el-precio-del-dolar-este-jueves-5-de-marzo-dolares-a-soles-compra-y-venta-bcrp-noticia/)
@@ -998,40 +1033,5 @@ Sin noticias relacionadas disponibles.
 - **Final do Campeonato Carioca 2026: saiba quando e onde assistir**: [Link](https://cbn.globo.com/esporte/noticia/2026/03/02/final-do-campeonato-carioca-2026-saiba-quando-e-onde-assistir.ghtml)
 - **Mauro Cezar aponta favorito claro em Fluminense x Flamengo**: [Link](https://www.lance.com.br/fora-de-campo/mauro-cezar-aponta-favorito-claro-em-fluminense-x-flamengo.html)
 - **Minhas impressões**: [Link](https://tribunaonline.com.br/coluna/gilmar-ferreira/minhas-impressoes-293869)
-
-
-### river plate vs (N/A, 02/03/2026 21:40 Lima)
-
-- **I Rivadavia vs. River Plate (2 de Mar., 2026) Resultados en Vivo**: [Link](https://espndeportes.espn.com/futbol/partido/_/juegoId/762888)
-- **I Rivadavia vs. River Plate (2 de Mar., 2026) Resultados en Vivo**: [Link](https://www.espn.com.pe/futbol/partido/_/juegoId/762888)
-- **A la espera de Coudet, River empató con Independiente Rivadavia por el Torneo Apertura: reviví lo mejor**: [Link](https://www.tycsports.com/liga-profesional-de-futbol/argentina-torneo-apertura-2026-independiente-riv-m-vs-river-plate-fecha-8-id715807.html)
-
-
-### independiente del valle (N/A, 02/03/2026 21:40 Lima)
-
-- **La formación de Independiente del Valle vs. Manta por la Liga Ecuabet**: [Link](https://www.espn.com.ar/futbol/ecuador/nota/_/id/16377904/la-formacion-de-independiente-del-valle-vs-manta-liga-ecuabet)
-- **Manta vs Independiente del Valle por la LigaPro, EN VIVO: los Atuneros presionan y complican al campeón**: [Link](https://www.ole.com.ar/ecuador/liga-pro/manta-independiente-valle-ligapro-fecha2-vivo-horario-ver-tv-canal-videos-golesresultado_0_h9mayeTPnU.html)
-- **Manta vs. Independiente del Valle EN VIVO: minuto a minuto del partido | fecha 2 LigaPro 2026**: [Link](https://www.extra.ec/noticia/deportes/manta-vs-independiente-valle-vivo-minuto-minuto-partido-fecha-2-ligapro-2026-148126.html)
-
-
-### independiente rivadavia - river plate (N/A, 02/03/2026 21:40 Lima)
-
-- **A la espera de Coudet, River empató con Independiente Rivadavia por el Torneo Apertura: reviví lo mejor**: [Link](https://www.tycsports.com/liga-profesional-de-futbol/argentina-torneo-apertura-2026-independiente-riv-m-vs-river-plate-fecha-8-id715807.html)
-- **Gonzalo Ríos se destacó con un bombazo de afuera del área para el 1-0 de Independiente Rivadavia vs. River**: [Link](https://www.espn.com.ar/futbol/argentina/nota/_/id/16380600/video-gol-de-gonzalo-rios-independiente-rivadavia-vs-river-plate)
-- **Montiel llegó al área y empató Independiente Rivadavia vs. River con un gol de cabeza**: [Link](https://espndeportes.espn.com/futbol/argentina/nota/_/id/16380654/independiente-rivadavia-vs-river-video-gonzalo-montiel-gol-apertura)
-
-
-### luna llena (N/A, 02/03/2026 21:40 Lima)
-
-- **Eclipse total lunar de marzo: ¿cuándo y dónde podrá verse la luna de sangre?**: [Link](https://cnnespanol.cnn.com/2026/03/02/ciencia/eclipse-total-lunar-marzo-luna-de-sangre-orix)
-- **Eclipses, lluvias de meteoros y más: los eventos astronómicos de marzo de 2026 que no te puedes perder**: [Link](https://elcomercio.pe/mag/respuestas/ciencias/eclipses-lluvias-de-meteoros-y-mas-los-eventos-astronomicos-de-marzo-de-2026-que-no-te-puedes-perder-nnda-nnrt-noticia/)
-- **Luna de sangre: cuándo y dónde se podrá ver el eclipse lunar total del 3 marzo**: [Link](https://www.infobae.com/america/ciencia-america/2026/03/02/luna-de-sangre-cuando-y-donde-se-podra-ver-el-eclipse-lunar-total-del-3-marzo/)
-
-
-### birmingham city (N/A, 02/03/2026 15:42 Lima)
-
-- **Chris Davies sets out Birmingham City's approach, and it could be good news for Middlesbrough**: [Link](https://www.gazettelive.co.uk/sport/football/football-news/chris-davies-sets-out-birmingham-33512528)
-- **talkSPORT tips – Best football bets and expert advice on Monday 2 March**: [Link](https://talksport.com/football/4013414/talksport-tips-best-football-bets-monday-2-march/)
-- **How to watch today's Birmingham vs Middlesbrough Championship game: Live stream, TV channel, and start time**: [Link](https://www.goal.com/en-ca/news/how-to-watch-birmingham-v-middlesbrough-02032026/blte916cd3832b967d5)
 
 
