@@ -1,3 +1,66 @@
+### graciela alfano (N/A, 06/03/2026 00:11 Lima)
+
+- **Susana Giménez sorprendió con su look en traje de baño para grabar una publicidad**: [Link](https://www.infobae.com/teleshow/2026/03/05/susana-gimenez-sorprendio-con-su-look-en-traje-de-bano-para-grabar-una-publicidad/)
+- **¿Qué hay detrás de la burla de Graciela Alfano a Susana Giménez en redes?**: [Link](https://www.laizquierdadiario.com/Que-hay-detras-de-la-burla-de-Graciela-Alfano-a-Susana-Gimenez-en-redes)
+- **La Diva no tiene edad: se filtró un video de Susana Giménez en traje de baño y es viral**: [Link](https://www.ellitoral.com/show/diva-edad-filtrar-video-susana-gimenez-traje-bano-viral_0_qOQAtyvinW.html)
+
+
+### orense - macará (N/A, 06/03/2026 00:11 Lima)
+
+- **Macará le ganó el duelo a Orense y logró la histórica clasificación en Sudamericana**: [Link](https://espndeportes.espn.com/futbol/copa-sudamericana/nota/_/id/16394790/macara-le-gano-el-duelo-a-orense-y-logro-la-historica-clasificacion-en-sudamericana)
+- **Macará es el último clasificado a fase de grupos de la Copa Sudamericana**: [Link](https://ovacion.pe/noticias/copa-sudamericana/macara-ultimo-clasificado-fase-grupos-copa-sudamericana)
+- **Transmisión EN VIVO del Orense vs Macará hoy: cómo mirar el partido por TV o streaming**: [Link](https://www.365scores.com/es/news/orense-vs-macara-como-mirar-transmision/)
+
+
+### lakers - nuggets (N/A, 06/03/2026 00:11 Lima)
+
+- **Lakers vs Nuggets Odds & Picks Tonight: LA Undervalued**: [Link](https://www.oddsshark.com/nba/lakers-nuggets-picks-odds-march-5-2026)
+- **Player Props for Luka Doncic and Nikola Jokic in Western Conference Showdown**: [Link](https://news.bet365.com/en-us/article/player-props-for-luka-doncic-and-nikola-jokic-in-western-conference-showdown/2026030517353053392)
+- **Live Updates: Thursday Highlights and Updates Across the NBA**: [Link](https://www.nba.com/news/live-updates-lakers-vs-nuggets-pistons-vs-spurs-and-highlights-across-the-nba)
+
+
+### eddie vedder (N/A, 06/03/2026 00:11 Lima)
+
+- **Kate Hudson Reveals Pearl Jam's Role In The 'Song Song Blue' Story**: [Link](https://www.antimusic.com/p/26/r0303kate_hudson_reveals_pearl_jams_role_in_the_song_song_blue_story.shtml)
+- **Kate Hudson Flatters Eddie Vedder With Remark**: [Link](https://www.alternativenation.net/kate-hudson-flatters-eddie-vedder-with-remark/)
+- **"Eddie completely changed this couple's life." Hollywood superstar Kate Hudson reveals how Pearl Jam's Eddie Vedder played a pivotal role in the story behind her new movie**: [Link](https://www.loudersound.com/bands-artists/kate-hudson-eddie-vedder-role-in-song-sung-blue)
+
+
+### melcochita (N/A, 06/03/2026 00:11 Lima)
+
+- **Monserrat Seminario arremete contra Melcochita: “Es ludópata y hasta para la intimidad tenía que lavarlo”**: [Link](https://www.infobae.com/peru/2026/03/05/monserrat-seminario-arremete-contra-melcochita-es-ludopata-y-hasta-para-la-intimidad-tenia-que-lavarlo/)
+- **Monserrat se niega a dejar a sus hijas con Melcochita: "No se puede cuidar ni él"**: [Link](https://www.atv.pe/noticia/monserrat-se-niega-a-dejar-a-sus-hijas-con-melcochita-no-se-puede-cuidar-ni-el/)
+- **Monserrat acusa a Melcochita de ser "ludópata": frecuentaba tragamonedas**: [Link](https://peru21.pe/espectaculos/monserrat-habla-de-melcochita-ludopata-e-infidelidad/)
+
+
+### junior (N/A, 06/03/2026 00:11 Lima)
+
+- **Fayetteville parents meet new principal who will lead John L Colbert Middle School's transition into a junior high**: [Link](https://www.4029tv.com/article/fayetteville-parents-meet-new-principal-who-will-lead-john-l-colbert-middle-schools-transition-into-a-junior-high/70631998)
+- **Brown turns Olympic experience into Halfpipe Junior World title as Swedenborg claims maiden victory**: [Link](https://www.fis-ski.com/freeski-park-and-pipe/news/2025-26/brown-turns-olympic-experience-into-halfpipe-junior-world-title-as-swedenborg-claims-maiden-victory)
+- **Esaian did not qualify for the free program at the Junior World Championships in Tallinn**: [Link](https://sportaran.com/en/post/esayan-ne-proshla-v-proizvolnuyu-programmu-na-yuniorskom-chempionate-mira-v-talline/)
+
+
+### foot ball club melgar (N/A, 06/03/2026 00:11 Lima)
+
+- **Melgar volvió a perder y Chankas es líder parcial del Apertura**: [Link](https://www.espn.com.pe/futbol/peru/nota/_/id/16368307/melgar-volvio-a-perder-y-chankas-es-lider-parcial-del-apertura)
+- **Melgar volvió a sufrir remontada: Los Chankas ganaron con doblete de Abdiel Ayarza y son líderes de la Liga 1 2026**: [Link](https://www.infobae.com/peru/deportes/2026/02/28/melgar-volvio-a-sufrir-remontada-los-chankas-ganaron-con-doblete-de-abdiel-ayarza-y-son-lideres-de-la-liga-1-2026/)
+- **¡Su primera vez! Gol de Matías Zegarra para el 1-0 de Melgar vs. Los Chankas por la Liga 1**: [Link](https://depor.com/futbol-peruano/descentralizado/gol-matias-zegarra-melgar-vs-los-chankas-anotacion-para-el-1-0-tras-pase-de-zanelatto-liga-1-video-noticia/)
+
+
+### shirley arica (N/A, 06/03/2026 00:11 Lima)
+
+- **Magaly Medina comenta el giro radical en la vida de Carlos Alcántara tras su separación: "Como si no hubiera tenido vida"**: [Link](https://www.infobae.com/peru/2026/03/05/magaly-medina-comenta-el-giro-radical-en-la-vida-de-carlos-alcantara-tras-su-separacion-como-si-no-hubiera-tenido-vida/)
+- **A sus 61 años, Carlos Alcántara se coloca 'chip de la juventud' ante rumores de separación de su esposa**: [Link](https://rpp.pe/famosos/farandula/carlos-alcantara-se-coloca-chip-de-la-juventud-ante-rumores-de-separacion-de-su-esposa-jossie-lindley-noticia-1678799)
+- **Carlos Alcántara fue captado besando a una mujer en discoteca de Lima (VIDEO)**: [Link](https://diariocorreo.pe/espectaculos/carlos-alcantara-fue-captado-besando-a-una-mujer-en-discoteca-de-lima-video-noticia/)
+
+
+### mayra goñi (N/A, 06/03/2026 00:11 Lima)
+
+- **Alessandra Fuller sorprende al afirmar que Mayra Goñi y Rodrigo Brand, protagonistas de 'Valentina valiente', se besaron en discoteca**: [Link](https://larepublica.pe/espectaculos/2026/03/05/alessandra-fuller-sorprende-al-afirmar-que-mayra-goni-y-rodrigo-brand-protagonistas-de-valentina-valiente-se-besaron-en-discoteca-200075)
+- **¡Mira aquí el PRIMER capítulo de Valentina Valiente por Latina!**: [Link](https://www.latina.pe/entretenimiento/valentina-valiente/mejores-momentos-valentina-valiente/mira-aqui-el-primer-capitulo-de-valentina-valiente-por-latina_20260305/)
+- **'Valentina Valiente' reparto: quiénes son los actores y actrices del elenco completo de la nueva novela de Latina**: [Link](https://larepublica.pe/espectaculos/2026/03/04/valentina-valiente-reparto-quienes-son-los-actores-y-actrices-del-elenco-completo-de-la-nueva-novela-de-latina-112244)
+
+
 ### formula 1 (N/A, 05/03/2026 21:33 Lima)
 
 - **How Formula 1’s Live Broadcast Center Captures the Story of Speed**: [Link](https://variety.com/2026/sports/news/formula-1-live-broadcast-center-1236678943/)
@@ -969,68 +1032,5 @@ Sin noticias relacionadas disponibles.
 - **Monday's Serie A predictions and previews including Udinese vs. Fiorentina**: [Link](https://www.sportsmole.co.uk/football/fiorentina/serie-a-predictions/feature/udinese-fiorentina-in-thriller-mondays-serie-a-predictions-and-previews_593022.html)
 - **🔴Udinese 1-0 Fiorentina: Zaniolo, Kabasele star, Astori tribute 🥺**: [Link](https://onefootball.com/en/news/udinese-1-0-fiorentina-zaniolo-kabasele-star-astori-tribute-42493977)
 - **Udinese Calcio vs ACF Fiorentina Odds - Monday March 2 2026**: [Link](https://www.oddsshark.com/soccer/ita-serie-a/udinese-fiorentina-odds-march-1-2026-2404754)
-
-
-### vix (N/A, 02/03/2026 15:42 Lima)
-
-- **VIX climbs amid Iran conflict**: [Link](https://www.marketwatch.com/livecoverage/stock-market-today-dow-set-for-600-point-retreat-as-oil-climbs-5-per-barrel-after-attack-on-iran/card/vix-climbs-amid-iran-conflict-uwyUiGz1KF5ZOHC0KSu1?gaa_at=eafs&gaa_n=AWEtsqccUlmdZ_0E47EZXV9HGNJYKTUymCbv5CwU3cdDEZv2zIt8SFvKR-BB&gaa_ts=69a5f924&gaa_sig=rkmEkayJz9X0LiMB8PxmVgsdEouGoibfzMo0O_Pc7zk2TvT1Dmd2hYsGe3KAxZlPqVd9jGqYnYqLm0zHE9yy7Q%3D%3D)
-- **VIX briefly surpasses 22 'trigger' as traders weigh Iran war**: [Link](https://seekingalpha.com/news/4559595-vix-briefly-surpasses-22-trigger-as-traders-weigh-iran-war)
-- **Wall Street's Fear Gauge Climbs**: [Link](https://www.wsj.com/livecoverage/stock-market-today-oil-prices-iran-attack-03-02-2026/card/wall-street-s-fear-gauge-climbs-fmY7MYQwcZEMW9slaLGS?gaa_at=eafs&gaa_n=AWEtsqfd1q-QPhy2MF0jqlmXDNR8c6sFF7aSZANUV6lc8dej2fZ0SNu25p38&gaa_ts=69a5f924&gaa_sig=s-wC3WH6Cr08AJJgURw0UrN3fn5lOnjNbMd_4v-wJZOOP2Mc-rLcsV4hMYssQEzyIU8gx9-afubShMBXdS2Qwg%3D%3D)
-
-
-### gil vicente - benfica (N/A, 02/03/2026 15:42 Lima)
-
-- **Custou mais de 20 milhões de euros no verão e foi deixado fora dos convocados do Benfica para defrontar o Gil Vicente**: [Link](https://bolanarede.pt/especial-bola-na-rede/atualidade/custou-mais-de-20-milhoes-de-euros-no-verao-e-foi-deixado-fora-dos-convocados-do-benfica-para-defrontar-o-gil-vicente/)
-- **Gil Vicente x Benfica pelo Português: onde assistir ao vivo, horário e escalação**: [Link](https://www.estadao.com.br/esportes/futebol/gil-vicente-x-benfica-campeonato-portugues-onde-assistir-ao-vivo-horario-escalacao-npres/)
-- **AO VIVO: Defesa de recurso de Lucão nega o golo inaugural de Rafa (19')**: [Link](https://www.flashscore.pt/noticias/futebol-liga-portugal-betclic-ao-vivo-defesa-de-recurso-de-lucao-nega-o-golo-inaugural-de-rafa-19/6owh5Zo1/)
-
-
-### ignacio buse (N/A, 02/03/2026 15:42 Lima)
-
-- **Ignacio Buse vs Liam Draxl EN VIVO: cuánto va el partido por qualy del ATP Masters 1000 Indian Wells**: [Link](https://elcomercio.pe/deporte-total/polideportivo/ignacio-buse-vs-liam-draxl-en-vivo-online-via-atp-tv-hora-canal-y-donde-ver-la-qualy-del-atp-masters-1000-indian-wells-noticia/)
-- **Hoy, Ignacio Buse vs Liam Draxl EN VIVO: ¿A qué hora juegan y donde ver la Qualy del Masters 1000 de Indian Wells?**: [Link](https://rpp.pe/tenis/mas-tenis/ignacio-buse-vs-liam-draxl-en-vivo-a-que-hora-juegan-y-donde-ver-qualy-atp-masters-1000-indian-wells-via-atp-tv-link-gratis-noticia-1678149)
-- **Buse se inicia en los Masters 1000: el gran momento del tenis peruano con Nacho top y Gonza pensando en los Grand Slams**: [Link](https://elcomercio.pe/deporte-total/ignacio-buse-en-indian-wells-el-gran-momento-del-tenis-peruano-con-nacho-top-100-y-gonzalo-bueno-pensando-en-los-grand-slams-tlcnota-noticia/)
-
-
-### bologna vs pisa (N/A, 02/03/2026 15:42 Lima)
-
-- **Pisa vs Bologna: Serie A stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cp9m8kzep4mt)
-- **Matteo Tramoni vs. Bologna – Player props & odds to score a goal on March 2**: [Link](https://prosoccerwire.usatoday.com/story/sports/2026/03/01/matteo-tramoni-soccer-player-props-3-2-2026/88937144007/)
-- **The opponents. The infirmary is full. The defense is in emergency.**: [Link](https://sport.quotidiano.net/en/calcio/pisa/gli-avversari-infermeria-piena-emergenza-b2d6d919)
-
-
-### thiago pitarch (N/A, 02/03/2026 15:42 Lima)
-
-- **Thiago Pitarch podría ser titular en el Real Madrid - Getafe**: [Link](https://www.flashscore.pe/noticias/futbol-laliga-ea-sports-pitarch-llama-a-la-puerta-de-la-titularidad-en-el-real-madrid/0S8QWynC/)
-- **Official: Real Madrid starting lineup against Getafe – first start for academy gem**: [Link](https://sports.yahoo.com/articles/official-real-madrid-starting-lineup-183000905.html)
-- **Alvaro Arbeloa considers handing first Real Madrid start to 18-year-old midfielder**: [Link](https://www.football-espana.net/2026/03/02/arbeloa-first-real-madrid-start-midfielder)
-
-
-### real madrid - getafe (N/A, 02/03/2026 15:42 Lima)
-
-- **Real Madrid - Getafe hoy, en directo: LaLiga EA Sports en vivo, última hora en el Bernabéu**: [Link](https://as.com/futbol/primera/real-madrid-getafe-en-directo-previa-y-ultima-hora-de-laliga-ea-sports-hoy-en-vivo-f202603-d/)
-- **Convocatoria del Real Madrid contra el Getafe: se queda fuera Camavinga y vuelven Huijsen y Rodrygo**: [Link](https://www.marca.com/futbol/real-madrid/2026/03/02/convovatoria-real-madrid-getafe-queda-fuera-camavinga-vuelven-huijsen-rodrygo.html)
-- **LaLiga: canales de TV para ver Real Madrid vs. Getafe**: [Link](https://depor.com/futbol-internacional/espana/real-madrid-vs-getafe-en-vivo-fecha-horarios-canales-de-tv-y-donde-ver-transmision-por-espn-movistar-laliga-disney-plus-noticia/)
-
-
-### normas legales el peruano (N/A, 02/03/2026 11:56 Lima)
-
-- **Se deroga el logo “¡El Perú a toda máquina!”: revisa la nueva norma**: [Link](https://www.elperuano.pe/noticia/290064-se-deja-sin-efecto-el-uso-obligatorio-de-el-peru-a-toda-maquina-conoce-la-norma)
-- **Gobierno elimina el logo y la frase "¡El Perú a toda máquina!" adoptado por Jerí**: [Link](https://peru21.pe/politica/gobierno-elimina-el-logo-y-la-frase-el-peru-toda-maquina-adoptado-por-jeri/)
-- **PCM deja sin efecto uso obligatorio del lema “¡El Perú a toda máquina!”**: [Link](https://gestion.pe/peru/politica/pcm-de-denisse-miralles-deja-sin-efecto-uso-obligatorio-del-lema-el-peru-a-toda-maquina-de-jose-jeri-noticia/)
-
-
-### marzo (N/A, 02/03/2026 11:56 Lima)
-
-- **Eclipse total de Luna en marzo 2026: guía para Latinoamérica**: [Link](https://www.dw.com/es/eclipse-total-de-luna-en-marzo-2026-gu%C3%ADa-para-latinoam%C3%A9rica/a-76157333)
-- **La Luna se tiñe de rojo: eclipse total iluminará la madrugada del 3 de marzo**: [Link](https://caretas.pe/nacional/la-luna-se-tine-de-rojo-eclipse-total-iluminara-la-madrugada-del-3-de-marzo/)
-- **Luna de Sangre: estos son los signos más impactados por su energía**: [Link](https://www.telemundo.com/shows/hoy-dia/horoscopos/video/luna-de-sangre-estos-son-los-signos-mas-impactados-por-su-energia-tmvo13136308)
-
-
-### kuwait (N/A, 02/03/2026 11:56 Lima)
-
-- **3 U.S. Planes Are Shot Down in ‘Friendly Fire’ in Kuwait, U.S. Military Says**: [Link](https://www.nytimes.com/2026/03/02/world/middleeast/iran-kuwait-us-attack-planes.html)
-- **Videos appear to show the moments U.S. fighter jets were shot down over Kuwait**: [Link](https://www.washingtonpost.com/investigations/2026/03/02/us-fighter-jets-crash-kuwait-iran-f15/)
-- **Pilot seen on the ground after multiple US planes crash in Kuwait**: [Link](https://www.cnn.com/2026/03/02/world/video/kuwait-pilot-plane-crash-digivid-intldsk)
 
 
