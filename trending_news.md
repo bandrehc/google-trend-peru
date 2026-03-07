@@ -1,3 +1,73 @@
+### sporting cristal - alianza atlético (N/A, 07/03/2026 15:32 Lima)
+
+- **Obligados a ganar: la alineación de Sporting Cristal vs. Alianza Atlético en el Gallardo**: [Link](https://depor.com/futbol-peruano/descentralizado/alineacion-sporting-cristal-vs-alianza-atletico-en-vivo-formacion-titular-hoy-de-paulo-autuori-liga-1-2026-fotos-noticia/)
+- **Con Felipe Vizeu: el probable once de Sporting Cristal ante Alianza Atlético en el estadio Alberto Gallardo**: [Link](https://rpp.pe/futbol/descentralizado/sporting-cristal-con-felipe-vizeu-el-probable-once-de-cristal-ante-alianza-atletico-noticia-1678977)
+- **Cuándo juegan Sporting Cristal vs. Alianza Atlético por la Liga 1: equipo, fecha, hora y TV en vivo**: [Link](https://www.espn.com.ar/futbol/peru/nota/_/id/16393129/sporting-cristal-vs-alianza-atletico-por-la-liga-1-equipo-fecha-hora-y-tv-en-vivo)
+
+
+### orlando city - nyc fc (N/A, 07/03/2026 15:32 Lima)
+
+- **Orlando City vs. New York City FC: Preview, How to Watch, TV Info, Live Stream, Lineups, Match Thread, and More**: [Link](https://themaneland.com/2026/03/07/orlando-city-vs-new-york-city-fc-preview-how-to-watch-tv-info-live-stream-lineups-match-thread-and-more-16/)
+- **Keys to the Match | Home Opener**: [Link](https://www.newyorkcityfc.com/news/keys-to-the-match-home-opener-x8964)
+- **Yankee Stadium pitch presents challenges for Orlando City**: [Link](https://www.orlandosentinel.com/2026/03/06/yankee-stadium-pitch-presents-challenges-for-orlando-city/)
+
+
+### psv vs (N/A, 07/03/2026 15:32 Lima)
+
+- **How to watch today's PSV Eindhoven vs AZ Alkmaar Eredivisie game: Live stream, TV channel, and start time**: [Link](https://www.goal.com/en-sa/news/how-to-watch-today-s-psv-eindhoven-vs-az-alkmaar-eredivisie-game-live-stream-tv-channel-and-start-time/blt5a3684070619bb84)
+- **Psv held to 1-1 in Eindhoven as a corner and an error change the game**: [Link](https://www.el-balad.com/16872125)
+- **Preview: PSV Eindhoven vs AZ Alkmaar - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/psv-eindhoven/preview/psv-vs-az-prediction-team-news-lineups_593221.html)
+
+
+### toulouse - marsella (N/A, 07/03/2026 15:32 Lima)
+
+- **OM : Balerdi insulté, La Provence est allée trop loin**: [Link](https://www.foot01.com/marseille/om-balerdi-insulte-la-provence-est-allee-trop-loin)
+- **Ligue 1: Marseille sans défense**: [Link](https://www.la-croix.com/ligue-1-marseille-sans-defense-20260306)
+- **OM-Toulouse: les Toulousains sortent l'OM aux tirs aux but et se qualifient en demi-finale de la Coupe de France**: [Link](https://rmcsport.bfmtv.com/football/coupe-de-france/direct-om-toulouse-suivez-le-quart-de-finale-de-coupe-de-france-en-live_LS-202603040704.html)
+
+
+### juventus vs pisa (N/A, 07/03/2026 15:32 Lima)
+
+- **Spalletti: Vlahovic still out, McKennie’s Juventus extension proves one thing**: [Link](https://football-italia.net/spalletti-vlahovic-out-mckennie-extension-1/)
+- **SC Pisa vs. Torino - Boxscore - Live Score - April 05, 2026**: [Link](https://www.foxsports.com/soccer/serie-a-sc-pisa-vs-torino-apr-05-2026-game-boxscore-625505?tab=boxscore)
+- **🔴 Juventus-Pisa 0-0 | Locatelli-Aebischer clash❗ Grumbles about David 👀**: [Link](https://onefootball.com/fr/news/juventus-pisa-0-0-locatelli-aebischer-clash-grumbles-about-david-42520310)
+
+
+### sporting lisboa (N/A, 07/03/2026 15:32 Lima)
+
+- **Ricardo Horta: «Empate assenta bem num bom jogo de futebol, com golos»**: [Link](https://maisfutebol.iol.pt/sp-braga/ricardo-horta/ricardo-horta-empate-assenta-bem-num-bom-jogo-de-futebol-com-golos)
+- **Sporting deixa fugir a vitória em Braga nos descontos**: [Link](https://www.rtp.pt/noticias/desporto/sporting-deixa-fugir-a-vitoria-em-braga-nos-descontos_e1724369)
+- **O niquinho que faltou ao Sporting foi o que recompensou o SC Braga, outra vez**: [Link](https://tribuna.expresso.pt/cronica-de-jogo/2026-03-07-o-niquinho-que-faltou-ao-sporting-foi-o-que-recompensou-o-sc-braga-outra-vez-ed744506?utm_source=olimpia&utm_medium=category&utm_campaign=WEB&utm_content=/cronica-de-jogo/2026-03-07-o-niquinho-que-faltou-ao-sporting-foi-o-que-recompensou-o-sc-braga-outra-vez-ed744506)
+
+
+### auxerre vs (N/A, 07/03/2026 15:32 Lima)
+
+- **Strasbourg privé de Guéla Doué pour affronter Auxerre en Ligue 1**: [Link](https://www.lequipe.fr/Football/Actualites/Strasbourg-prive-de-guela-doue-pour-affronter-auxerre-en-ligue-1/1657612)
+- **"On est même à côté dans le vestiaire" : à droite de la défense de l'AJA, c'est l'entente cordiale entre Marvin Senaya et Lamine Sy**: [Link](https://www.lyonne.fr/auxerre-89000/sports/on-est-meme-a-cote-dans-le-vestiaire-a-droite-de-la-defense-de-l-aja-c-est-l-entente-cordiale-entre-marvin-senaya-et-lamine-sy_14885939/)
+- **L1 (J25) : L'AJA s'en contentera : Sports - Orange**: [Link](https://sports.orange.fr/football/ligue-1/debrief/l1-j25-l-aja-s-en-contentera-CNT000002nJTNX.html)
+
+
+### newcastle - manchester city (N/A, 07/03/2026 15:32 Lima)
+
+- **Pep delivers updates on Gvardiol, Kovacic and Lewis fitness**: [Link](https://www.mancity.com/news/mens/pep-guardiola-josko-gvardiol-mateo-kovacic-rico-lewis-fitness-63908404)
+- **HARVEY BARNES FIRES NEWCASTLE AHEAAAAAAAAAAD!**: [Link](https://www.besoccer.com/new/live-newcastle-vs-manchester-city-1398106)
+- **Explained: Why Erling Haaland has been left out of Man City squad against Newcastle despite striker not suffering injury**: [Link](https://www.goal.com/en/lists/explained-why-erling-haaland-out-man-city-squad-newcastle-suffering-injury/blt80b4a4524e720ed1)
+
+
+### athletic - barcelona (N/A, 07/03/2026 15:32 Lima)
+
+- **Alineación posible del Barça hoy ante el Athletic en LaLiga EA Sports: Eric y Lewandowski, novedades**: [Link](https://as.com/futbol/primera/posible-alineacion-del-barca-ante-el-athletic-eric-y-lewandowski-las-novedades-f202603-n/)
+- **El posible once del Barça en Bilbao**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20260307/1004147507/posible-once-barca-bilbao.html)
+- **¿A qué hora juega y en qué canal transmiten Athletic Club vs. FC Barcelona EN VIVO por LaLiga 2026 en EE.UU., México y España?**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/a-que-hora-juega-y-que-canal-transmite-athletic-club-vs-fc-barcelona-en-vivo-hoy-por-laliga-2026-en-eeuu-mexico-y-espana-nnda-nnrt-noticia/)
+
+
+### juventus - pisa (N/A, 07/03/2026 15:32 Lima)
+
+- **Khéphren Thuram riparte dall'impresa dell'Olimpico: "Contro la Roma abbiamo capito quanto siamo forti"**: [Link](https://tribuna.com/it/news/2026-03-07-khephren-thuram-riparte-dallimpresa-dellolimpico-contro-la-roma-abbiamo-capito-quanto-sia/)
+- **Juventus, Spalletti: "Ecco il regalo che vorrei al 90°"**: [Link](https://www.calciomercato.com/liste/juventus-spalletti-ecco-il-regalo-che-vorrei-al-90/blt449157ed60337cda)
+- **LIVE Juve-Pisa 0-0: David pasticcia in due occasioni, lo Stadium rumoreggia**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Juventus/07-03-2026/juve-pisa-live-risultato-gol-diretta-serie-a.shtml)
+
+
 ### atalanta - udinese (N/A, 07/03/2026 11:34 Lima)
 
 - **LA DEA si sdoppia**: [Link](https://www.pressreader.com/italy/la-gazzetta-dello-sport-mil/20260307/282535844866652)
@@ -960,75 +1030,5 @@ Sin noticias relacionadas disponibles.
 - **Apple Accidentally Leaks 'MacBook Neo'**: [Link](https://www.macrumors.com/2026/03/03/apple-accidentally-leaks-macbook-neo/)
 - **Say hello to MacBook Neo**: [Link](https://www.apple.com/newsroom/2026/03/say-hello-to-macbook-neo/)
 - **​​Dear Bored Windows Users: The Time To Give Mac A Try Has Finally Arrived**: [Link](https://www.slashgear.com/2115576/why-windows-users-should-try-mac/)
-
-
-### otan (N/A, 04/03/2026 11:54 Lima)
-
-- **La OTAN condena el lanzamiento de Irán de un misil a Turquía y denuncia sus ataques "indiscriminados" en la región**: [Link](https://caretas.pe/mundo/la-otan-condena-el-lanzamiento-de-iran-de-un-misil-a-turquia-y-denuncia-sus-ataques-indiscriminados-en-la-region/)
-- **Defensas de la OTAN interceptaron un misil balístico iraní lanzado hacia Turquía**: [Link](https://elcomercio.pe/mundo/europa/iran-defensas-de-la-otan-interceptaron-un-misil-balistico-irani-lanzado-hacia-turquia-israel-estados-unidos-donald-trump-ultimas-noticia/)
-- **Turquía advierte a Irán de que responderá a actitudes hostiles tras el ataque con un misil**: [Link](https://elcomercio.pe/mundo/oriente-medio/iran-turquia-advierte-a-iran-de-que-respondera-a-actitudes-hostiles-tras-el-ataque-con-un-misil-israel-estados-unidos-donald-trump-ultimas-noticia/)
-
-
-### openai (N/A, 04/03/2026 11:54 Lima)
-
-- **A Dire Warning From the Tech World**: [Link](https://www.theatlantic.com/technology/2026/03/dean-ball-anthropic-interview/686226/)
-- **Anthropic’s AI tool Claude central to U.S. campaign in Iran, amid a bitter feud**: [Link](https://www.washingtonpost.com/technology/2026/03/04/anthropic-ai-iran-campaign/)
-- **Anthropic's Claude AI being used in Iran war by U.S. military, sources say**: [Link](https://www.cbsnews.com/news/anthropic-claude-ai-iran-war-u-s/)
-
-
-### agua (N/A, 04/03/2026 11:54 Lima)
-
-- **Corte de agua para este 05 de marzo: conoce cuáles son las zonas afectadas**: [Link](https://www.infobae.com/peru/2026/03/03/corte-de-agua-para-este-05-de-marzo-conoce-cuales-son-las-zonas-afectadas/)
-- **Cuatro distritos de Lima no tendrán agua este martes 3 de marzo hasta por 12 horas, según Sedapal: conoce las zonas afectadas**: [Link](https://larepublica.pe/sociedad/2026/03/02/cuatro-distritos-de-lima-no-tendran-agua-este-martes-3-de-marzo-hasta-por-12-horas-segun-sedapal-conoce-las-zonas-afectadas-evat-84101)
-- **Sin agua por más de 10 horas: conoce los lugares afectados este 06 de marzo**: [Link](https://elcomercio.pe/respuestas/donde/sin-agua-por-mas-de-10-horas-conoce-los-lugares-afectados-este-06-de-marzo-tdpe-noticia/)
-
-
-### pei (N/A, 04/03/2026 11:54 Lima)
-
-- **Some P.E.I. classes cancelled on March 4, 2026**: [Link](https://www.saltwire.com/prince-edward-island/pei-classes-delayed-march-4-2026)
-- **Schools closed Wednesday in parts of P.E.I. after overnight snow**: [Link](https://www.cbc.ca/news/canada/prince-edward-island/pei-overnight-snowfall-wednesday-some-schools-closed-9.7113835)
-- **Schools closed Wednesday in parts of P.E.I. after overnight snow**: [Link](https://www.cbc.ca/lite/story/9.7113835)
-
-
-### dólar hoy perú (N/A, 04/03/2026 11:54 Lima)
-
-- **Precio del dólar se disparó en Perú: Así cerró el tipo de cambio el 3 de marzo**: [Link](https://www.infobae.com/noticias/2026/03/02/peru-cotizacion-de-apertura-del-dolar-hoy-2-de-marzo-de-usd-a-pen/)
-- **Precio del dólar Perú y tipo de cambio hoy 04 de marzo del 2026**: [Link](https://rpp.pe/economia/economia/precio-del-dolar-peru-y-tipo-de-cambio-hoy-04-de-marzo-del-2026-noticia-1678516)
-- **Dólar se dispara a S/ 3.42: Tensión en Medio Oriente golpea la economía peruana**: [Link](https://caretas.pe/economia/dolar-se-dispara-a-s-3-42-tension-en-medio-oriente-golpea-la-economia-peruana/)
-
-
-### paro de transportistas (N/A, 04/03/2026 08:09 Lima)
-
-- **Transportistas anuncian nueva marcha contra las extorsiones para el jueves 5 de marzo**: [Link](https://gestion.pe/peru/politica/transportistas-de-lima-anuncian-nueva-marcha-contra-las-extorsiones-para-el-jueves-5-de-marzo-noticia/)
-- **Sin tregua: Extorsión y sicariato en rutas de transporte**: [Link](https://www.americatv.com.pe/noticias/actualidad/extorsiones-y-asesinatos-desatan-terror-rutas-transporte-n516047)
-- **Presidente Balcázar abordó con transportistas lucha contra las organizaciones criminales**: [Link](https://andina.pe/agencia/noticia-presidente-balcazar-abordo-transportistas-lucha-contra-las-organizaciones-criminales-1065100.aspx)
-
-
-### precio del dolar (N/A, 04/03/2026 08:09 Lima)
-
-- **Precio del dólar se dispara en Perú: Así cerró el tipo de cambio hoy 3 de marzo**: [Link](https://www.infobae.com/noticias/2026/03/02/peru-cotizacion-de-apertura-del-dolar-hoy-2-de-marzo-de-usd-a-pen/)
-- **Dólar cerró al alza ante conflicto entre Irán y Estados Unidos: ¿En cuánto?**: [Link](https://gestion.pe/economia/mercados/tipo-de-cambio-dolar-hoy-en-peru-cuanto-esta-el-precio-del-dolar-este-lunes-2-de-marzo-dolares-a-soles-compra-y-venta-bcrp-noticia/)
-- **¿Cuál es la cotización del dólar hoy martes 3 de marzo del 2026?**: [Link](https://andina.pe/agencia/noticia-cual-es-cotizacion-del-dolar-hoy-martes-3-marzo-del-2026-1065161.aspx)
-
-
-### reloj (N/A, 04/03/2026 08:09 Lima)
-
-- **¿Cuándo cambia la hora en California 2026?: fecha del horario de verano (DST) y lista de ciudades que adelantan el reloj**: [Link](https://elcomercio.pe/mag/usa/local-us/cuando-cambia-la-hora-en-california-2026-fecha-del-horario-de-verano-dst-y-lista-de-ciudades-que-adelantan-el-reloj-nnda-nnrt-noticia/)
-- **Cambio de hora en Florida 2026: fecha oficial y cuándo ajustar el reloj | nnda nnrt | MIX**: [Link](https://gestion.pe/mix/usa/cambio-de-hora-en-florida-2026-fecha-oficial-y-cuando-ajustar-el-reloj-nnda-nnrt-noticia/)
-- **ALERTA con cambio de horario 2026 en EE. UU.: en qué fecha se ajusta el reloj una hora y qué estados lo aplican**: [Link](https://libero.pe/estados-unidos/2026/03/02/alerta-cambio-de-horario-2026-en-estados-unidos-en-fecha-se-ajusta-reloj-hora-estados-aplican-usa-eeuu-lbeu-184534)
-
-
-### pelicans - lakers (N/A, 04/03/2026 00:10 Lima)
-
-- **Pelicans vs Lakers Odds & Picks Tonight: NO Undervalued in LA**: [Link](https://www.oddsshark.com/nba/pelicans-lakers-picks-odds-march-3-2026)
-- **Pelicans vs. Lakers**: [Link](https://mlq.ai/prediction/market/nba-nop-lal-2026-03-03/)
-- **Lakers' Maxi Kleber: Added to injury report**: [Link](https://www.cbssports.com/fantasy/basketball/news/lakers-maxi-kleber-added-to-injury-report/)
-
-
-### julio iglesias (N/A, 04/03/2026 00:10 Lima)
-
-- **Julio Iglesias demandó a diario español tras denuncias por agresiones sexuales**: [Link](https://rpp.pe/famosos/celebridades/julio-iglesias-demanda-a-diario-espanol-tras-denuncias-por-agresiones-sexuales-noticia-1678335)
-- **Julio Iglesias presenta demanda por presunto montaje de abusos sexuales contra medio español**: [Link](https://peru21.pe/celebridades/julio-iglesias-demanda-medio-espanol-por-difamacion/)
-- **Julio Iglesias demandará a ‘eldiario.es’ y Univisión por acusarle sin pruebas de «violaciones y agresiones ...**: [Link](https://okdiario.com/espana/julio-iglesias-demandara-eldiario-univision-acusarle-sin-pruebas-violaciones-agresiones-fisicas-16300534)
 
 
