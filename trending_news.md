@@ -1,3 +1,73 @@
+### celtics - mavericks (N/A, 06/03/2026 21:27 Lima)
+
+- **Klay Thompson Injury: Probable for Friday's matchup**: [Link](https://www.rotowire.com/basketball/headlines/klay-thompson-injury-probable-for-fridays-matchup-521955)
+- **How to watch Mavericks vs. Celtics: TV channel and streaming options for March 6**: [Link](https://www.nytimes.com/athletic/7093954/2026/03/06/how-to-watch-mavericks-vs-celtics-tv-channel-and-streaming-options-for-march-6/)
+- **Where to watch Mavericks vs. Celtics today: NBA free live stream**: [Link](https://www.syracuse.com/tv/2026/03/where-to-watch-mavericks-vs-celtics-today-nba-free-live-stream.html)
+
+
+### delfin vs (N/A, 06/03/2026 21:27 Lima)
+
+- **Libertad Loja vs. Barcelona - Boxscore - Live Score - March 19, 2026**: [Link](https://www.foxsports.com/soccer/ecuadorian-liga-pro-libertad-loja-vs-barcelona-mar-19-2026-game-boxscore-677761?tab=boxscore)
+- **Delfín vs. Libertad Loja - Live Score - March 21, 2026**: [Link](https://www.foxsports.com/soccer/ecuadorian-liga-pro-delfin-vs-libertad-loja-mar-21-2026-game-boxscore-677775)
+- **Macara vs. Delfín - Boxscore - Live Score - March 18, 2026**: [Link](https://www.foxsports.com/soccer/ecuadorian-liga-pro-macara-vs-delfin-mar-18-2026-game-boxscore-677767?tab=boxscore)
+
+
+### epic games (N/A, 06/03/2026 21:27 Lima)
+
+- **Cyberpunk 2077 Isn't Done With Fortnite Yet**: [Link](https://www.gamespot.com/articles/cyberpunk-2077-isnt-done-with-fortnite-yet/1100-6538639/)
+- **Fortnite x Cyberpunk 2077 Collab Wave 2 is Finally Coming, Here’s What to Expect**: [Link](https://beebom.com/fortnite-x-cyberpunk-2077-collab-wave-2-is-finally-coming-heres-what-to-expect/)
+- **Will Fortnite Get Another Cyberpunk 2077 Collab? First Teaser Appears**: [Link](https://ixbt.games/en/news/2026/03/06/fortnite-snova-polucit-kollab-s-cyberpunk-2077-poiavilsia-zagadocnyi-tizer.html)
+
+
+### valentina valiente (N/A, 06/03/2026 21:27 Lima)
+
+- **Valentina Valiente capítulo 02: ¡Macarena intenta reconquistar a Alejandro! pero una emergencia irrumpe el momento**: [Link](https://www.latina.pe/entretenimiento/valentina-valiente/mejores-momentos-valentina-valiente/valentina-valiente-capitulo-02-macarena-intenta-reconquistar-a-alejandro-pero-una-emergencia-irrumpe-el-momento_20260305/)
+- **🔥 Mayra Goñi agradecida de mantener amistad con Flavia Laos y Ale Fuller: “Amigas forever”**: [Link](https://www.facebook.com/diario.expreso/posts/-mayra-go%C3%B1i-agradecida-de-mantener-amistad-con-flavia-laos-y-ale-fuller-amigas-f/1350436347113973/)
+- **'Valentina Valiente' reparto: quiénes son los actores y actrices del elenco completo de la nueva novela de Latina**: [Link](https://larepublica.pe/espectaculos/2026/03/04/valentina-valiente-reparto-quienes-son-los-actores-y-actrices-del-elenco-completo-de-la-nueva-novela-de-latina-112244)
+
+
+### mazatlán - león (N/A, 06/03/2026 21:27 Lima)
+
+- **Mazatlán vs. León (6 de Mar., 2026) Resultados en Vivo**: [Link](https://espndeportes.espn.com/futbol/partido/_/juegoId/401840895)
+- **Liga MX: Mazatlán recibirá a León por la fecha 10**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-mazatlan-recibira-a-leon-por-la-fecha-10-noticia-1678753)
+- **10 cosas que debes saber del Mazatlán-Léon**: [Link](https://luismiguelguerrero.com/2026/03/06/10-cosas-que-debes-saber-del-mazatlan-leon/)
+
+
+### deportivo cali - once caldas (N/A, 06/03/2026 21:27 Lima)
+
+- **Cuándo juegan Cali vs. Once Caldas por LigaBetPlay: equipo, fecha, hora y TV en vivo**: [Link](https://www.espn.com.ar/futbol/colombia/nota/_/id/16394842/cali-vs-once-caldas-liga-betplay-equipo-fecha-hora-tv-en-vivo)
+- **Pronóstico Deportivo Cali Once Caldas - Primera A Colombia 06/03/26**: [Link](https://www.sportytrader.com/es/pronosticos/deportivo-cali-once-caldas-332050/)
+- **EN VIVO: Cali 0-0 Once Caldas ¡Partidazo en la Liga BetPlay!**: [Link](https://www.winsports.co/futbol-colombiano/noticias/en-vivo-cali-vs-once-caldas-minuto-a-minuto-y-goles-fecha-10-413460)
+
+
+### manuel ángel (N/A, 06/03/2026 21:27 Lima)
+
+- **Burrull y el gol de Valverde: "No hay falta de Manuel Ángel en el origen de la jugada"**: [Link](https://www.marca.com/radio/2026/03/06/burrull-gol-valverde-hay-falta-manuel-angel-origen-jugada.html)
+- **Enfado descomunal del Celta: el gol de Valverde nace de una falta clara**: [Link](https://www.sport.es/es/noticias/real-madrid/enfado-descomunal-celta-gol-valverde-127661891)
+- **Giráldez, sobre la polémica posible falta en el gol de Valverde: "Es clara, lo derriba"**: [Link](https://espanol.eurosport.com/futbol/la-liga/2025-2026/claudio-giraldez-sobre-la-polemica-falta-que-reclama-el-celta-de-vigo-en-el-1-2-del-real-madrid-es-clara_sto23278366/story.shtml)
+
+
+### ben shelton (N/A, 06/03/2026 21:27 Lima)
+
+- **Tien moves behind Roddick on exclusive list...**: [Link](https://www.atptour.com/en/news/tien-indian-wells-2026-friday)
+- **2026 BNP Paribas Open: Walton [91st] vs. Tien [27th] Prediction, Odds and Match Preview**: [Link](https://sportsbookwire.usatoday.com/story/sports/sports-betting/2026/03/04/adam-walton-vs-learner-tien-bnp-paribas-open-tennis-odds-lines-betting-3-6-2026/88992894007/)
+- **Irvine's Tien learning how to win on the big stage**: [Link](https://sports.yahoo.com/articles/irvines-tien-learning-win-big-232419038.html)
+
+
+### posiciones de la liga (N/A, 06/03/2026 21:27 Lima)
+
+- **Así quedaría la tabla de la Liga Peruana de Vóley 2025/2026 tras fallo a favor de Circolo y quita de puntos a San Martín**: [Link](https://www.infobae.com/peru/deportes/2026/03/05/asi-quedaria-la-tabla-de-la-liga-peruana-de-voley-20252026-tras-fallo-a-favor-de-circolo-y-quita-de-puntos-a-san-martin/)
+- **San Martín alineó cuatro extranjeras ante Circolo y fue declarado perdedor de su partido en la Liga Peruana de Vóley**: [Link](https://rpp.pe/multideportes/mas-deportes/liga-peruana-de-voley-2026-san-martin-alineo-cuatro-extranjeras-ante-circolo-y-fue-declarado-perdedor-del-partido-en-fase-2-noticia-1678696)
+- **Alianza Lima estira su ventaja como líder de la liga: campeón peruano perdió puntos en mesa**: [Link](https://libero.pe/deportes/voley/2026/03/05/alianza-lima-estira-su-ventaja-como-lider-de-liga-campeon-peruano-perdio-puntos-en-mesa-universidad-san-martin-68080)
+
+
+### liga (N/A, 06/03/2026 21:27 Lima)
+
+- **Programación fecha 06 del Torneo Apertura Liga1 Te Apuesto**: [Link](https://www.americatv.com.pe/deportes/futbol-peruano/programacion-fecha-06-torneo-apertura-liga1-te-apuesto-n452906)
+- **Torneo Apertura: mira la programación completa de la sexta fecha de la Liga 1**: [Link](https://diariocorreo.pe/deportes/liga-1-torneo-apertura-sexta-fecha-programacion-horarios-y-canales-de-television-l1-max-en-vivo-futbol-peruano-noticia/)
+- **Partidos y tabla de posiciones del Torneo Apertura EN VIVO: así van los equipos en la fecha 6**: [Link](https://latinanoticias.pe/deportes/partidos-y-tabla-de-posiciones-del-torneo-apertura-en-vivo-asi-van-los-equipos-en-la-fecha-6_20260306/)
+
+
 ### psg vs. mónaco (N/A, 06/03/2026 15:38 Lima)
 
 - **PSG predicted XI v Monaco: Bradley Barcola to start as No.9?**: [Link](https://www.getfootballnewsfrance.com/2026/psg-predicted-xi-v-monaco-bradley-barcola-to-start-as-no-9/)
@@ -963,75 +1033,5 @@ Sin noticias relacionadas disponibles.
 - **El desliz de Cerezo con los jugadores del Atlético: "Tenemos a Julián Álvarez, a Tomford, a Smith..."**: [Link](https://www.marca.com/futbol/atletico/2026/03/03/desliz-cerezo-jugadores-atletico-julian-alvarez-tomford-smith-video.html)
 - **Video: la increíble respuesta del presidente del Atlético de Madrid antes de jugar la semifinal**: [Link](https://www.ole.com.ar/futbol-internacional/video-increible-respuesta-presidente-atletico-madrid-jugar-semifinal_3_DWU3TGAzUb.html)
 - **Ni Gaudim ni Botafumeiro: el restaurante elegido por Rafa Yuste para la comida de directivas con el Atlético de Madrid**: [Link](https://cronicaglobal.elespanol.com/culemania/culemaniacos/20260302/gaudim-botafumeiro-restaurante-rafa-yuste-atletico-madrid/1003742737438_0.html)
-
-
-### marathon (N/A, 03/03/2026 11:56 Lima)
-
-- **Marathon's Server Slam Is Almost Here**: [Link](https://www.bungie.net/7/en/News/Article/marathon_server_slam_almost_here)
-- **'Marathon' game hands-on: Bungie shooter goes back to the future**: [Link](https://mashable.com/article/marathon-bungie-hands-on-gameplay)
-- **Marathon Review So Far**: [Link](https://www.ign.com/articles/marathon-review)
-
-
-### poder judicial (N/A, 03/03/2026 11:56 Lima)
-
-- **Poder Judicial destacó el rol clave de las mujeres en la sociedad y en la administración de justicia**: [Link](https://caretas.pe/politica/poder-judicial-destaco-el-rol-clave-de-las-mujeres-en-la-sociedad-y-en-la-administracion-de-justicia/)
-- **Día de la Mujer: PJ reconoce liderazgo femenino en la judicatura**: [Link](https://www.elperuano.pe/noticia/290264-dia-de-la-mujer-pj-reconoce-liderazgo-femenino-en-la-judicatura)
-- **El Poder Judicial reconoce el impacto estratégico de la mujer en la sociedad y la judicatura -**: [Link](https://www.peruinforma.com/el-poder-judicial-reconoce-el-impacto-estrategico-de-la-mujer-en-la-sociedad-y-la-judicatura/)
-
-
-### rodrygo (N/A, 03/03/2026 11:56 Lima)
-
-- **Rodrygo se rompe el cruzado y dice adiós a la temporada... y al Mundial**: [Link](https://www.marca.com/futbol/real-madrid/2026/03/03/rodrygo-rompe-dice-adios-temporada-mundial.html)
-- **Real Madrid: Rodrygo no jugará el Mundial por lesión de ligamentos**: [Link](https://www.espn.com.ar/futbol/espana/nota/_/id/16382417/real-madrid-rodrygo-lesion-ligamentos-mundial)
-- **Rodrygo se rompió el ligamento cruzado y se pierde el Mundial 2026**: [Link](https://rpp.pe/futbol/futbol-mundial/rodrygo-se-rompio-el-ligamento-cruzado-y-se-pierde-el-mundial-2026-noticia-1678370)
-
-
-### estrecho de ormuz (N/A, 03/03/2026 11:56 Lima)
-
-- **Irán cierra el estrecho de Ormuz: cuál es su importancia estratégica y qué consecuencias tiene ya su clausura**: [Link](https://www.bbc.com/mundo/articles/c86yv180qgxo)
-- **El precio del petróleo aumenta tras el inicio de la guerra con Irán**: [Link](https://cnnespanol.cnn.com/2026/03/02/mundo/video/petroleo-iran-ee-uu)
-- **El gas se dispara otro 30% y el petróleo sigue al alza ante el aumento de la tensión en el golfo Pérsico**: [Link](https://elpais.com/economia/2026-03-03/el-petroleo-sigue-al-alza-ante-el-aumento-de-la-tension-en-el-golfo-persico.html)
-
-
-### ticketmaster (N/A, 03/03/2026 11:56 Lima)
-
-- **DOJ takes Live Nation-Ticketmaster to court for antitrust trial**: [Link](https://www.nbcnews.com/business/business-news/live-nation-ticketmaster-antitrust-trial-doj-what-to-know-rcna261400)
-- **Antitrust Trial to Challenge Live Nation’s Grip on the Music Industry**: [Link](https://www.nytimes.com/2026/03/02/arts/music/live-nation-music-industry-antitrust-trial.html)
-- **Could Concert Tickets Get Cheaper? What the Trial of Live Nation-Ticketmaster Could Mean for You**: [Link](https://www.today.com/popculture/music/concert-ticket-prices-doj-live-nation-ticketmaster-trial-rcna261482)
-
-
-### classroom (N/A, 03/03/2026 11:56 Lima)
-
-- **Teacher v chatbot: my journey into the classroom in the age of AI**: [Link](https://www.theguardian.com/education/ng-interactive/2026/mar/03/cheating-machine-or-powerful-assistant-the-ai-anxieties-of-a-trainee-teacher)
-- **AI=B+**: [Link](https://www.publicbooks.org/aib/)
-- **Aithor launches AI detector to help educators and students identify AI-generated writing**: [Link](https://azbigmedia.com/business/technology/aithor-launches-ai-detector-to-help-educators-and-students-identify-ai-generated-writing/)
-
-
-### juan pablo varillas (N/A, 03/03/2026 11:56 Lima)
-
-- **Diego Elías y Juan Pablo Varillas reciben departamentos por sus logros deportivos en Lima 2019**: [Link](https://elcomercio.pe/deporte-total/polideportivo/medallistas-diego-elias-y-juan-pablo-varillas-reciben-departamentos-por-sus-logros-deportivos-en-juegos-panamericanos-lima-2019-ipd-noticia/)
-- **Diego Elías y Juan Pablo Varillas recibieron departamentos del IPD por Lima 2019**: [Link](https://rpp.pe/multideportes/panamericanos/medallistas-de-lima-2019-diego-elias-y-juan-pablo-varillas-reciben-departamentos-por-sus-logros-deportivos-noticia-1678268)
-- **IPD entregó departamentos a deportistas Diego Elías y Juan Pablo Varillas**: [Link](https://andina.pe/agencia/noticia-ipd-entrego-departamentos-a-deportistas-diego-elias-y-juan-pablo-varillas-1065130.aspx)
-
-
-### pei (N/A, 03/03/2026 11:56 Lima)
-
-- **Opposition leaders speak out on state of P.E.I.'s health-care system, doctors leaving**: [Link](https://www.cbc.ca/news/canada/prince-edward-island/pei-doctors-leaving-opposition-reaction-9.7111712)
-- **Statement from Matt MacFarlane on letter from the Medical Society of PEI: It’s time to stop the damage and rebuild trust with PEI family doctors**: [Link](https://peigreencaucus.ca/2026/02/statement-from-matt-macfarlane-on-letter-from-the-medical-society-of-pei-its-time-to-stop-the-damage-and-rebuild-trust-with-pei-family-doctors/)
-- **Summerside family doctor resigns citing frustrations with Health P.E.I.**: [Link](https://www.saltwire.com/prince-edward-island/summerside-family-doctor-resigns-citing-frustrations-with-health-pei)
-
-
-### carabobo vs sporting cristal (N/A, 03/03/2026 11:56 Lima)
-
-- **Cuándo juegan Carabobo vs. Sporting Cristal por CONMEBOL Libertadores: equipo, fecha, hora y TV en vivo**: [Link](https://www.espn.com.pe/futbol/copa-libertadores/nota/_/id/16372013/sporting-cristal-vs-carabobo-fase-3-ida-copa-libertadores-equipo-fecha-hora-y-tv-en-vivo)
-- **Bilbao: "No tenemos nada que envidiarle a Cristal, somo un plantel técnicamente muy rico"**: [Link](https://ovacion.pe/noticias/futbol-internacional/bilbao-no-tenemos-nada-envidiarle-cristal-somo-un-plantel)
-- **Sporting Cristal: Día y hora de los partidos de ida de la Fase 3 de la Copa Libertadores**: [Link](https://andina.pe/agencia/noticia-sporting-cristal-dia-y-hora-los-partidos-ida-de-fase-3-de-copa-libertadores-1065158.aspx)
-
-
-### barca vs atlético (N/A, 03/03/2026 11:56 Lima)
-
-- **Preview: Barcelona vs Atletico Madrid - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/barcelona/copa-del-rey/preview/barcelona-vs-atletico-prediction-team-news-lineups_593003.html)
-- **Lookman.. From Barcelona's Interest to a Real Threat**: [Link](https://www.ysscores.com/en/news/13921134/Lookman..-From-Barcelona's-Interest-to-a-Real-Threat)
-- **Hansi Flick Targets Comeback: “We Want to Make the Impossible Possible”**: [Link](https://www.beinsports.com/en-us/soccer/copa-del-rey/articles/hansi-flick-targets-comeback-we-want-to-make-the-impossible-possible-2026-03-02)
 
 
