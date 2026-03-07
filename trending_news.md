@@ -1,3 +1,66 @@
+### pacers - lakers (N/A, 07/03/2026 00:02 Lima)
+
+- **Lakers vs Pacers LIVE Score Updates: An entertaining night of NBA action (64-51)**: [Link](https://www.vavel.com/en-us/nba/2026/03/07/1252950-lakers-vs-pacers-live-score-nba.html)
+- **Unknowns in L.A., How To Watch Indiana Pacers-Los Angeles Lakers, Lineups, Injury Report, Betting Lines & More**: [Link](https://www.si.com/nba/pacers/onsi/news/unknowns-in-l-a-how-to-watch-indiana-pacers-los-angeles-lakers-lineups-injury-report-betting-lines-more-01kk24937z62)
+- **bet365 Bonus Code BNATION $150 Promo, Pacers vs Lakers Odds, and More for Friday Night**: [Link](https://www.bleachernation.com/betting/2026/03/06/lakers-pacers-bet365/)
+
+
+### lapadula (N/A, 07/03/2026 00:02 Lima)
+
+- **🗞 ¡Aquí la portada del Diario Expreso para este jueves 5 de marzo de 2026! 📲 Visita nuestra web: https://expreso.com.pe**: [Link](https://www.facebook.com/diario.expreso/posts/-aqu%C3%AD-la-portada-del-diario-expreso-para-este-jueves-5-de-marzo-de-2026-visita-n/1349343143889960/)
+- **Sporting Cristal tiene en carpeta a dos jugadores antes del cierre del mercado: “De repente no caerá muy a gusto en Paulo Autuori”**: [Link](https://www.infobae.com/peru/deportes/2026/03/05/sporting-cristal-tiene-en-carpeta-a-dos-jugadores-antes-del-cierre-del-mercado-de-repente-no-caera-muy-a-gusto-en-paulo-autuori/)
+- **¿Refuerzos de selección en el Rímac?**: [Link](https://caretas.pe/deportes/refuerzos-de-seleccion-en-el-rimac/)
+
+
+### indian wells (N/A, 07/03/2026 00:02 Lima)
+
+- **Svrcina remembers 16-year-old Sinner: 'You could definitely see the potential'**: [Link](https://www.atptour.com/en/news/svrcina-indian-wells-2026-feature)
+- **Sabalenka, Sinner, Eala and more at BNP Paribas Open in Indian Wells**: [Link](https://www.desertsun.com/picture-gallery/sports/tennis/bnp/2026/03/06/sabalenka-sinner-eala-and-more-at-bnp-paribas-open-in-indian-wells/89026050007/)
+- **ATP Indian Wells Best Bets Including Jannik Sinner vs Dalibor Svrcina**: [Link](https://lastwordonsports.com/tennis/2026/03/06/atp-indian-wells-best-bets-including-jannik-sinner-vs-dalibor-svrcina/)
+
+
+### penal castro castro (N/A, 07/03/2026 00:02 Lima)
+
+- **Juez dicta nueve meses de prisión preventiva contra Adrián Villar**: [Link](https://lpderecho.pe/vivo-cesar-nakazaki-defiende-a-adrian-villar-en-audiencia-de-prision-preventiva/)
+- **Adrián Villar será recluido en penal Miguel Castro Castro para cumplir prisión preventiva**: [Link](https://elcomercio.pe/lima/sucesos/adrian-villar-sera-recluido-en-penal-miguel-castro-castro-para-cumplir-prision-preventiva-de-9-meses-lizeth-marzano-ultimas-noticia/)
+- **INPE informará este viernes el penal donde Adrián Villar cumplirá prisión preventiva**: [Link](https://www.atv.pe/noticia/inpe-informara-este-viernes-el-penal-donde-adrian-villar-cumplira-prision-preventiva/)
+
+
+### julio iglesias (N/A, 07/03/2026 00:02 Lima)
+
+- **Julio Iglesias demanda a elDiario.es con acusaciones falsas sobre la denuncia de dos mujeres por agresiones sexuales**: [Link](https://www.eldiario.es/politica/julio-iglesias-demanda-eldiario-acusaciones-falsas-denuncia-mujeres-agresiones-sexuales_1_13034611.html)
+- **Varapalo para la Fiscalía: la Audiencia Nacional admite a trámite el recurso de Julio Iglesias**: [Link](https://www.libertaddigital.com/espana/2026-03-05/varapalo-para-la-fiscalia-la-audiencia-nacional-admite-a-tramite-el-recurso-de-julio-iglesias-7369384/)
+- **Un abogado penalista dice “sí” a la pregunta de si la demanda de Julio Iglesias por difamación progresará**: [Link](https://www.telemadrid.es/programas/hablamos-de-madrid/Un-abogado-penalista-dice-si-a-la-pregunta-de-si-la-demanda-de-Julio-Iglesias-por-difamacion-progresara-2-2868033246--20260306065156.html)
+
+
+### steven tyler (N/A, 07/03/2026 00:02 Lima)
+
+- **Steven Tyler’s Daughter Speaks Out About Kelly Osbourne Weight-Loss Controversy**: [Link](https://www.yahoo.com/entertainment/celebrity/articles/steven-tyler-daughter-speaks-kelly-191727012.html)
+- **Kelly Osbourne hits back at comments about her appearance at BRIT Awards**: [Link](https://www.usatoday.com/story/entertainment/celebrities/2026/03/01/kelly-osbourne-appearance-weight-loss-brit-awards/88935448007/)
+- **Daughter of late rock icon responds to weight loss criticism: ‘Going through the hardest time’**: [Link](https://www.syracuse.com/celebrity-news/2026/03/daughter-of-late-rock-icon-responds-to-weight-loss-criticism-going-through-the-hardest-time.html)
+
+
+### necaxa - pumas (N/A, 07/03/2026 00:02 Lima)
+
+- **Liga MX: Necaxa quiere cortar su racha negativa frente a Pumas UNAM**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-necaxa-quiere-cortar-su-racha-negativa-frente-a-pumas-unam-noticia-1678776)
+- **#Video | "Parrillada de papeles" Captan a cubano quemando papeles tras ser expulsado de la embajada de Quito https://mile.io/3OQUlyt**: [Link](https://www.facebook.com/MilenioDiario/posts/video-parrillada-de-papelescaptan-a-cubano-quemando-papeles-tras-ser-expulsado-d/1406571271500340/)
+- **Momento para retomar el camino**: [Link](https://www.yucatan.com.mx/deportes/2026/03/06/momento-para-retomar-el-camino.html)
+
+
+### jannik sinner (N/A, 07/03/2026 00:02 Lima)
+
+- **Tennis: Indian Wells, Sinner al terzo turno contro Shapovalov**: [Link](https://www.prealpina.it/pages/tennis-indian-wells-sinner-al-terzo-turno-contro-shapovalov-407030.html)
+- **Rusedski sceglie tra Carlos Alcaraz e Jannik Sinner a Indian Wells: "Punto su di lui"**: [Link](https://www.tennisworlditalia.com/tennis/news/Interviste_Tennis/104614/rusedski-sceglie-tra-carlos-alcaraz-e-jannik-sinner-a-indian-wells-punto-su-di-lui-/)
+- **Indian Wells, da Sinner e Musetti a Berrettini e Paolini: programma completo**: [Link](https://www.zetatielle.com/indian-wells-da-sinner-e-musetti-a-berrettini-e-paolini-programma-completo/)
+
+
+### boston celtics (N/A, 07/03/2026 00:02 Lima)
+
+- **297 days: Tatum's return a reminder of Celtics' improbable journey**: [Link](https://www.nbcsportsboston.com/nba/boston-celtics/jayson-tatum-return-achilles-injury-mavericks/774299/)
+- **The way he feels now is "night and day" compared to …**: [Link](https://uk.sports.yahoo.com/news/way-feels-now-night-day-214558249.html)
+- **Celtics' Jayson Tatum listed as 'questionable,' on verge of return 9 months after Achilles surgery**: [Link](https://apnews.com/article/jayson-tatum-celtics-return-achilles-tendon-cf720abfddacdb1d9599b2e867024269)
+
+
 ### celtics - mavericks (N/A, 06/03/2026 21:27 Lima)
 
 - **Klay Thompson Injury: Probable for Friday's matchup**: [Link](https://www.rotowire.com/basketball/headlines/klay-thompson-injury-probable-for-fridays-matchup-521955)
@@ -970,68 +1033,5 @@ Sin noticias relacionadas disponibles.
 - **El Barça recupera a Neymar para la remontada**: [Link](https://www.sport.es/es/noticias/barca/barca-recupera-neymar-remontada-127472714)
 - **Sólo Raphinha había nacido entre los titulares del Barça la gran noche de Pizzi**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20260302/1004138857/raphinha-habia-nacido-titulares-barca-gran-noche-pizzi.html)
 - **Las 6 grandes remontadas en la historia del FC Barcelona**: [Link](https://www.si.com/es-us/futbol/las-6-grandes-remontadas-en-la-historia-del-fc-barcelona)
-
-
-### fcb (N/A, 03/03/2026 15:38 Lima)
-
-- **From backup to key player: Stanisic is becoming increasingly important for Bayern**: [Link](https://fcbinside.com/2026/03/03/from-backup-to-key-player-stanisic-is-becoming-increasingly-important-for-bayern/)
-- **VIDEO: Rebel Yell Podcast: 2026 WPIAL Girls Basketball Team of the Week: Canon-McMillan**: [Link](https://tribhssn.triblive.com/Video/video-rebel-yell-podcast-2026-wpial-girls-basketball-team-of-the-week-canon-mcmillan/)
-- **RebelYellRecap0301**: [Link](https://tribhssn.triblive.com/Video/rebelyellrecap0301/)
-
-
-### betano (N/A, 03/03/2026 15:38 Lima)
-
-- **Betano Casino New Customer Sign Up Bonus March 2026: Get a £10 Bonus and 20 Free Spins**: [Link](https://bookies.com/uk/news/betano-casino-new-customer-sign-up-bonus-3rd-march-2026)
-- **Kaizen Gaming director: Ghana met ‘all the criteria’ for Betano’s second African market entry**: [Link](https://igamingbusiness.com/strategy/kaizen-gaming-george-skarlatos-ghana-betano/)
-- **Cuándo juegan Newcastle vs. Manchester United por Premier League: equipo, fecha, hora y TV en vivo**: [Link](https://www.espn.com.pe/futbol/inglaterra/nota/_/id/16380950/newcastle-vs-manchester-united-premier-league-equipo-fecha-hora-y-tv-en-vivo)
-
-
-### futbol en vivo (N/A, 03/03/2026 15:38 Lima)
-
-- **Partidos de hoy, martes 3 de marzo del 2026: horarios y canales TV para ver EN VIVO Copa del Rey y Libertadores**: [Link](https://rpp.pe/futbol/futbol-mundial/partidos-de-hoy-peru-martes-de-marzo-del-2026-horarios-y-canales-tv-ver-futbol-en-vivo-noticia-1678229)
-- **Partidos de hoy, 03 de marzo: Horario y canal EN VIVO**: [Link](https://www.americatv.com.pe/deportes/futbol-mundial/partidos-hoy-03-marzo-horarios-y-transmisiones-n452876)
-- **Partidos que serán transmitidos EN VIVO por TV el martes 03 de marzo**: [Link](https://www.futbolperuano.com/partidos-por-tv/noticias/programacion-de-partidos-por-tv-del-martes-03-de-marzo-del-2026-567946)
-
-
-### fútbol (N/A, 03/03/2026 15:38 Lima)
-
-- **La Liga Profesional ratificó el paro y reprogramó la fecha 9 del Torneo Apertura 2026**: [Link](https://www.espn.com.ar/futbol/argentina/nota/_/id/16383794/futbol-argentino-afa-paro-ratificado-reprogramacion-fecha-9-torneo-apertura-2026)
-- **Fecha 9 suspendida: el próximo partido del Ciclón será ante Boca**: [Link](https://onefootball.com/de/news/fecha-9-suspendida-el-proximo-partido-del-ciclon-sera-ante-boca-42499712)
-- **La AFA confirma la huelga en Argentina en protesta por investigación judicial a Tapia**: [Link](https://iusport.com/art/146073/la-afa-confirma-la-huelga-en-argentina-en-protesta-por-investigacion-judicial-a-tapia)
-
-
-### fut (N/A, 03/03/2026 15:38 Lima)
-
-- **FUT And Legacy Lock In First ESL Pro League Season 23 Stage 2 Spots**: [Link](https://www.hotspawn.com/counter-strike/news/fut-and-legacy-lock-in-first-esl-pro-league-season-23-stage-2-spots)
-- **FUT Esports are heading into their Stage 2 match, while NIP are on the verge of elimination from ESL Pro League Season 23**: [Link](https://players.com.ua/en/news/fut-esports-are-heading-into-their-stage-2-match-while-nip-are-on-the-verge-of-elimination-from-esl-pro-league-season-23/)
-- **Passion UA lose three-map thriller to FUT, move to 1-1 at ESL Pro League Season 23**: [Link](https://www.dust2.us/news/71202/passion-ua-lose-three-map-thriller-to-fut-move-to-1-1-at-esl-pro-league-season-23)
-
-
-### america (N/A, 03/03/2026 15:38 Lima)
-
-- **Inchcape registra crecimiento de ingresos en el cuarto trimestre de 2025 en medio de desafíos**: [Link](https://es.investing.com/news/transcripts/inchcape-registra-crecimiento-de-ingresos-en-el-cuarto-trimestre-de-2025-en-medio-de-desafios-93CH-3542639)
-- **Inchcape plc autoriza un plan de recompra de acciones**: [Link](https://es.marketscreener.com/noticias/inchcape-plc-autoriza-un-plan-de-recompra-de-acciones-ce7e5cd2dd8cff26)
-- **Ingresos del grupo Inchcape en Chile caen en 2025, pero resultados globales cumplen las expectativas**: [Link](https://www.latercera.com/pulso/noticia/ingresos-de-grupo-inchcape-en-chile-caen-en-2025-pero-resultados-globales-cumplen-las-expectativas/)
-
-
-### audiencia adrian villar (N/A, 03/03/2026 15:38 Lima)
-
-- **[VIVO] César Nakazaki defiende a Adrián Villar en audiencia de prisión preventiva**: [Link](https://lpderecho.pe/vivo-cesar-nakazaki-defiende-a-adrian-villar-en-audiencia-de-prision-preventiva/)
-- **La tesis fiscal "es un poco débil": Abogado advierte que Poder Judicial podría no imponer prisión preventiva a Adrián Villar**: [Link](https://rpp.pe/politica/judiciales/la-tesis-fiscal-es-un-poco-debil-abogado-advierte-que-poder-judicial-podria-no-imponer-prision-preventiva-a-adrian-villar-noticia-1678209)
-- **Caso Lizeth Marzano: Los delitos admitidos por Adrián Villar a horas que se decida la prisión preventiva**: [Link](https://elcomercio.pe/lima/caso-lizeth-marzano-los-delitos-admitidos-por-adrian-villar-a-horas-que-se-decida-la-prision-preventiva-lizeth-marzano-noticia/)
-
-
-### tarjeta roja futbol (N/A, 03/03/2026 15:38 Lima)
-
-- **Mastantuono se expone a dos partidos**: [Link](https://as.com/futbol/primera/mastantuono-alerta-sancion-f202603-n/)
-- **Esperpéntico final: roja directa a Mastantuono y sanciones para Huijsen y Carreras**: [Link](https://www.marca.com/futbol/real-madrid/2026/03/02/huijsen-sera-baja-celta.html)
-- **Revelaron la frase que Franco Mastantuono le dijo al árbitro y provocó su expulsión en la derrota del Real Madrid**: [Link](https://www.infobae.com/deportes/2026/03/03/revelaron-la-frase-que-franco-mastantuono-le-dijo-al-arbitro-y-provoco-su-expulsion-en-la-derrota-del-real-madrid/)
-
-
-### barsa (N/A, 03/03/2026 15:38 Lima)
-
-- **El desliz de Cerezo con los jugadores del Atlético: "Tenemos a Julián Álvarez, a Tomford, a Smith..."**: [Link](https://www.marca.com/futbol/atletico/2026/03/03/desliz-cerezo-jugadores-atletico-julian-alvarez-tomford-smith-video.html)
-- **Video: la increíble respuesta del presidente del Atlético de Madrid antes de jugar la semifinal**: [Link](https://www.ole.com.ar/futbol-internacional/video-increible-respuesta-presidente-atletico-madrid-jugar-semifinal_3_DWU3TGAzUb.html)
-- **Ni Gaudim ni Botafumeiro: el restaurante elegido por Rafa Yuste para la comida de directivas con el Atlético de Madrid**: [Link](https://cronicaglobal.elespanol.com/culemania/culemaniacos/20260302/gaudim-botafumeiro-restaurante-rafa-yuste-atletico-madrid/1003742737438_0.html)
 
 
