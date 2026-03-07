@@ -1,3 +1,10 @@
+### ufc 326 (N/A, 07/03/2026 03:38 Lima)
+
+- **Wai‘anae's Max Holloway continues to chase greatness ahead of next UFC bout**: [Link](https://alohastatedaily.com/2026/03/06/waianaes-max-holloway-continues-to-chase-greatness-ahead-of-next-ufc-bout/)
+- **UFC 326 weigh-in results: 'BMF' title fight set; 1 fight canceled**: [Link](https://www.sherdog.com/news/news/UFC-326-weighin-results-BMF-title-fight-set-1-fight-canceled-200352)
+- **UFC 326 Embedded | Episode 6**: [Link](https://www.ufc.com/video/154944)
+
+
 ### pacers - lakers (N/A, 07/03/2026 00:02 Lima)
 
 - **Lakers vs Pacers LIVE Score Updates: An entertaining night of NBA action (64-51)**: [Link](https://www.vavel.com/en-us/nba/2026/03/07/1252950-lakers-vs-pacers-live-score-nba.html)
@@ -1026,12 +1033,5 @@ Sin noticias relacionadas disponibles.
 - **Cuándo juegan Atlético Tucumán vs. Racing por el Torneo Apertura: equipo, fecha, hora y TV en vivo**: [Link](https://www.espn.com.pe/futbol/argentina/nota/_/id/16380385/atletico-tucuman-vs-racing-por-el-torneo-apertura-equipo-fecha-hora-y-tv-en-vivo)
 - **Pronóstico Tucumán vs. Racing Club - Una lucha por la clasificación en la Zoba B**: [Link](https://gainblers.com/pe/pronosticos/futbol/argentina/superliga/pronostico-tucuman-racing-club-04-03-2026/)
 - **Atlético Tucumán y Racing Club se encuentran en la fecha 8**: [Link](https://zona.palmsbet.pe/deportes/futbol/atletico-tucuman-y-racing-club-se-encuentran-en-la-fecha-8/)
-
-
-### barcelona vs psg (N/A, 03/03/2026 15:38 Lima)
-
-- **El Barça recupera a Neymar para la remontada**: [Link](https://www.sport.es/es/noticias/barca/barca-recupera-neymar-remontada-127472714)
-- **Sólo Raphinha había nacido entre los titulares del Barça la gran noche de Pizzi**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20260302/1004138857/raphinha-habia-nacido-titulares-barca-gran-noche-pizzi.html)
-- **Las 6 grandes remontadas en la historia del FC Barcelona**: [Link](https://www.si.com/es-us/futbol/las-6-grandes-remontadas-en-la-historia-del-fc-barcelona)
 
 
