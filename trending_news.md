@@ -1,3 +1,70 @@
+### atalanta - udinese (N/A, 07/03/2026 11:34 Lima)
+
+- **LA DEA si sdoppia**: [Link](https://www.pressreader.com/italy/la-gazzetta-dello-sport-mil/20260307/282535844866652)
+- **Atalanta-Udinese LIVE, le ultime sulle formazioni**: [Link](https://www.calciomercato.com/liste/atalanta-udinese-live/blt7beff9bb0641422c)
+- **Sergej Levak, un cerchio che si chiude: l'Atalanta di Palladino lo convoca in Serie A**: [Link](https://www.gazzettaregionale.it/nazionali/2026/03/07/news/sergej-levak-un-cerchio-che-si-chiude-l-atalanta-di-palladino-lo-convoca-in-serie-a-179652/)
+
+
+### nantes vs (N/A, 07/03/2026 11:34 Lima)
+
+- **Nantes : en pleine crise, Ahmed Kantari écarte Tylel Tati et 4 autres joueurs !**: [Link](https://www.footmercato.net/a7815889086066658719-nantes-en-pleine-crise-ahmed-kantari-ecarte-tylel-tati-et-4-autres-joueurs)
+- **DIRECT. La Ligue 1 et le football européen en live**: [Link](https://www.flashscore.fr/actualites/football-ligue-1-direct-nantes-angers-a-17h00-et-le-tout-football-europeen-en-live-sur-flashscore/tM8XCKRG/)
+- **Un tract et des chants hostiles aux Kita dès le début du match de Ligue 1 entre Nantes et Angers**: [Link](https://www.lequipe.fr/Football/Actualites/Un-tract-et-des-chants-hostiles-aux-kita-des-le-debut-du-match-de-ligue-1-entre-nantes-et-angers/1657567)
+
+
+### beşiktaş - galatasaray (N/A, 07/03/2026 11:34 Lima)
+
+- **Montella Galatasaray-Beşiktaş derbisi için Tüpraş Stadyumu'na geldi**: [Link](https://www.yenicaggazetesi.com/montella-galatasaray-besiktas-derbisi-icin-tupras-stadyumuna-geldi-1006952h.htm)
+- **Sergen Yalçın ve Okan Buruk'un derbi 11'leri belli oldu**: [Link](https://www.nefes.com.tr/sergen-yalcin-ve-okan-burukun-derbi-11leri-belli-oldu-109053)
+- **Beşiktaş – Galatasaray: Dev derbi öncesi istatistikler ve analizler**: [Link](https://www.evrensel.net/haber/5974007/besiktas-galatasaray-dev-derbi-oncesi-istatistikler-ve-analizler)
+
+
+### sin luz (N/A, 07/03/2026 11:34 Lima)
+
+- **SIN LUZ el 7 y 8 de marzo: Estos distritos se verán afectados con el corte del servicio eléctrico**: [Link](https://www.exitosanoticias.pe/actualidad/sin-luz-7-8-marzo-estos-distritos-veran-afectados-corte-servicio-electrico-n170441)
+- **Trujillo y otras 3 provincias liberteñas se quedarán sin luz durante 10 horas el sábado 7**: [Link](https://andina.pe/agencia/noticia-trujillo-y-otras-3-provincias-libertenas-se-quedaran-sin-luz-durante-10-horas-sabado-7-1065801.aspx)
+- **Corte de luz este sábado 7 de marzo hasta por 10 horas: consulta AQUÍ si tu zona será perjudicada con la suspensión**: [Link](https://libero.pe/tiempoextra/2026/03/06/corte-de-luz-sabado-7-de-marzo-10-horas-consulta-aqui-tu-zona-sera-perjudicada-suspension-175290)
+
+
+### cd moquegua - sport huancayo (N/A, 07/03/2026 11:34 Lima)
+
+- **🔴#ENVIVO | CD Moquegua iguala 0-0 con Sport Huancayo en el 25 de Noviembre**: [Link](https://ovacion.pe/noticias/liga1-2026/envivo-cd-moquegua-iguala-0-0-sport-huancayo-25-noviembre)
+- **Liga 1: Por la fecha 6 se enfrentarán Deportivo Moquegua y Sport Huancayo**: [Link](https://rpp.pe/futbol/descentralizado/liga-1-por-la-fecha-6-se-enfrentaran-deportivo-moquegua-y-sport-huancayo-noticia-1678818)
+- **Partido CD Moquegua vs Sport Huancayo EN VIVO por el Torneo Apertura de la Liga 1**: [Link](https://elcomercio.pe/deporte-total/futbol-peruano/cd-moquegua-vs-sport-huancayo-hoy-en-vivo-horario-donde-ver-y-canal-del-partido-por-la-fecha-6-del-apertura-de-la-liga-1-tdpe-noticia/)
+
+
+### groningen - ajax (N/A, 07/03/2026 11:34 Lima)
+
+- **Live Eredivisie | Ajax en FC Groningen halverwege op 1-1, aftellen tot PSV-AZ**: [Link](https://www.nu.nl/voetbal/6388460/live-eredivisie-ajax-en-fc-groningen-halverwege-op-1-1-aftellen-tot-psv-az.html)
+- **Grim kiest vervanger voor Regeer en voert wijziging door op rechtsbuitenpositie**: [Link](https://www.ajaxshowtime.com/hoofdnieuws/grim-kiest-vervanger-voor-regeer-en-voert-wijziging-door-op-rechtsbuitenpositie)
+- **LIVE eredivisie | Davy Klaassen al na dertig seconden met pijn aan de enkel op de grond, Ajax is voorbereid op ‘knokwedstrijd’**: [Link](https://www.ad.nl/voetbal/live-eredivisie-davy-klaassen-al-na-dertig-seconden-met-pijn-aan-de-enkel-op-de-grond-ajax-is-voorbereid-op-knokwedstrijd~ab29742a/)
+
+
+### wolfgang grozo (N/A, 07/03/2026 11:34 Lima)
+
+- **Wolfgang Grozo, candidato presidencial por Integridad Democrática: "Tengo una trayectoria impecable, ni una denuncia"**: [Link](https://willax.pe/politica/wolfgang-grozo-integridad-democratica-denuncia-willax)
+- **Exdirector de Inteligencia de la FAP Wolfgang Grozo ¿el nuevo outsider presidencial?**: [Link](https://limagris.com/exdirector-de-inteligencia-de-la-fap-wolfgang-grozo-el-nuevo-outsider-presidencial/)
+
+
+### mainz vs (N/A, 07/03/2026 11:34 Lima)
+
+- **Da Costa rettet starken Mainzern ein Remis gegen den VfB Stuttgart**: [Link](https://www.swr.de/sport/fussball/mainz-05-vfb-stuttgart-bundesliga-spielbericht-100.html)
+- **Trifft Silas wieder gegen den VfB?**: [Link](https://www.antenne1.de/news/trifft-silas-wieder-gegen-den-vfb)
+- **Interview: Phillipp Mwene schwärmt von Mainz 05 und träumt vom WM-Hit mit Messi**: [Link](https://www.allgemeine-zeitung.de/sport/fussball/fussball-mainz/mwene-schwaermt-von-mainz-05-und-traeumt-vom-wm-hit-mit-messi-5485282)
+
+
+### friburgo vs (N/A, 07/03/2026 11:34 Lima)
+
+Sin noticias relacionadas disponibles.
+
+
+### leipzig vs (N/A, 07/03/2026 11:34 Lima)
+
+- **Mit zwei Änderungen gegen Leipzig**: [Link](https://www.fcaugsburg.de/article/mit-zwei-aenderungen-gegen-leipzig-22920)
+- **Bundesliga-Konferenz - LIVE: ÖFB-Kicker trifft doppelt! RB Leipzig hinten**: [Link](https://www.krone.at/4067296)
+- **Last-Minute-Pech in Leipzig – FCA bringt Favoriten an den Rand der Niederlage**: [Link](https://www.daz-augsburg.de/last-minute-pech-in-leipzig-fca-bringt-favoriten-an-den-rand-der-niederlage/)
+
+
 ### el peruano normas legales (N/A, 07/03/2026 07:59 Lima)
 
 - **Si trabajas en salud, esto te interesa: Gobierno autoriza fondos para mejorar ingresos**: [Link](https://www.elperuano.pe/noticia/290546-si-trabajas-en-salud-esto-te-interesa-gobierno-autoriza-fondos-para-mejorar-ingresos)
@@ -963,75 +1030,5 @@ Sin noticias relacionadas disponibles.
 - **Julio Iglesias demandó a diario español tras denuncias por agresiones sexuales**: [Link](https://rpp.pe/famosos/celebridades/julio-iglesias-demanda-a-diario-espanol-tras-denuncias-por-agresiones-sexuales-noticia-1678335)
 - **Julio Iglesias presenta demanda por presunto montaje de abusos sexuales contra medio español**: [Link](https://peru21.pe/celebridades/julio-iglesias-demanda-medio-espanol-por-difamacion/)
 - **Julio Iglesias demandará a ‘eldiario.es’ y Univisión por acusarle sin pruebas de «violaciones y agresiones ...**: [Link](https://okdiario.com/espana/julio-iglesias-demandara-eldiario-univision-acusarle-sin-pruebas-violaciones-agresiones-fisicas-16300534)
-
-
-### steven tyler (N/A, 04/03/2026 00:10 Lima)
-
-- **Kelly Osbourne hits back at comments about her appearance at BRIT Awards**: [Link](https://www.usatoday.com/story/entertainment/celebrities/2026/03/01/kelly-osbourne-appearance-weight-loss-brit-awards/88935448007/)
-- **Kelly Osbourne Fires Back at “Cruelty” Over Her Appearance: “I’m Currently Going Through the Hardest Time in My Life”**: [Link](https://ca.news.yahoo.com/kelly-osbourne-fires-back-cruelty-183326340.html)
-- **Kelly Osbourne Slams 'Disgusting' Body-Shaming Comments About Her Recent Appearance**: [Link](https://people.com/kelly-osbourne-addresses-disgusting-body-shaming-comments-slim-appearance-11911725)
-
-
-### puerto cabello - monagas (N/A, 04/03/2026 00:10 Lima)
-
-- **Pronóstico Academia Puerto Cabello Monagas - Copa Sudamericana 03/03/26**: [Link](https://www.sportytrader.com/es/pronosticos/academia-puerto-cabello-monagas-sc-331402/)
-- **Puerto Cabello ganó en penales y clasificó a fase de grupos de la Copa Sudamericana**: [Link](https://ovacion.pe/noticias/copa-sudamericana/puerto-cabello-gano-penales-clasifico-fase-grupos-copa-sudamericana)
-- **Puerto Cabello busca iniciar con triunfo en la Copa Suramericana**: [Link](https://contrapunto.com/deportes/futbol/puerto-cabello-busca-iniciar-con-triunfo-en-la-copa-suramericana/)
-
-
-### pumas - toluca (N/A, 04/03/2026 00:10 Lima)
-
-- **UNAM vs. Toluca (4 de Mar., 2026) Resultados en Vivo**: [Link](https://www.espn.com.ar/futbol/partido/_/juegoId/401840889)
-- **UNAM vs. Toluca (3 de Mar., 2026) Resultados en Vivo**: [Link](https://espndeportes.espn.com/futbol/partido/_/juegoId/401840889)
-- **Liga MX: Pumas UNAM intentará cortar la racha positiva de Toluca FC**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-pumas-unam-intentara-cortar-la-racha-positiva-de-toluca-fc-noticia-1678269)
-
-
-### magaly tv (N/A, 04/03/2026 00:10 Lima)
-
-- **Abogado de Marisel Linares señala que periodista se compromete a pagar reparación civil, pero afirma que "no ha cometido ningún delito"**: [Link](https://larepublica.pe/sociedad/2026/03/01/abogado-de-marisel-linares-responde-sobre-donacion-del-vehiculo-a-adrian-villar-y-reconoce-que-no-fue-elevado-a-escritura-publica-25701)
-- **Fiscalía niega virtualidad: Marisel Linares obligada a declarar presencialmente pese a amenazas**: [Link](https://caretas.pe/sociedad/fiscalia-niega-virtualidad-marisel-linares-obligada-a-declarar-presencialmente-pese-a-amenazas/)
-- **Marisel Linares y Adrián Villar: una sospecha de encubrimiento**: [Link](https://peru21.pe/investigacion/marisel-linares-y-adrian-villar-una-sospecha-de-encubrimiento/)
-
-
-### plaza gwanghwamun (N/A, 04/03/2026 00:10 Lima)
-
-- **BTS comeback show sells out immediately as 260,000 fans set to descend on Seoul**: [Link](https://www.theguardian.com/music/2026/feb/24/bts-comeback-show-sells-out-immediately-as-260000-fans-set-to-descend-on-seoul)
-- **The BTS World Tour (BTS WORLD TOUR ARIRANG), which draws attention from all over the world, will ann..**: [Link](https://www.mk.co.kr/en/society/11977325)
-- **Legal loophole allows fans to camp for BTS concert at Gwanghwamun**: [Link](https://www.koreatimes.co.kr/southkorea/society/20260303/legal-loophole-allows-fans-to-camp-for-bts-concert-at-gwanghwamun)
-
-
-### corea del sur (N/A, 03/03/2026 21:32 Lima)
-
-- **Las acciones de Asia extienden su caída por tercer día, mientras el petróleo sube**: [Link](https://www.bloomberglinea.com/mercados/las-acciones-de-asia-extienden-su-caida-por-tercer-dia-mientras-el-petroleo-sube/)
-- **El mercado de Corea del Sur abrió en terrenos negativos este 4 de marzo**: [Link](https://www.infobae.com/noticias/2026/03/04/el-mercado-de-corea-del-sur-abrio-en-terrenos-negativos-este-4-de-marzo/)
-- **El Nikkei cae más de un 2 % a la apertura por el conflicto en Oriente Medio Por EFE**: [Link](https://es.investing.com/news/stock-market-news/el-nikkei-cae-mas-de-un-2--a-la-apertura-por-el-conflicto-en-oriente-medio-3544669)
-
-
-### pachuca - necaxa (N/A, 03/03/2026 21:32 Lima)
-
-- **Liga MX: Por la fecha 9 se enfrentarán Pachuca y Necaxa**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-por-la-fecha-9-se-enfrentaran-pachuca-y-necaxa-noticia-1678241)
-- **Pachuca vs. Necaxa en vivo: seguí el partido minuto a minuto**: [Link](https://www.tycsports.com/mexico/liga-mx/mexico-liga-mx-clausura-2026-pachuca-vs-necaxa-fecha-9-id716175.html)
-- **Pachuca vs Necaxa en vivo: horarios, transmisión online y canales del Clausura de la Liga MX en España, Latinoamérica, México y Estados Unidos**: [Link](https://www.dazn.com/es-MX/news/f%C3%BAtbol/pachuca-necaxa-vivo-horarios-transmision-online-canales-clausura-liga-mx-espana-latinoamerica-mexico-estados-unidos/h5h4iu1iofj11q5gypizrj45v)
-
-
-### alianza atlético - deportivo garcilaso (N/A, 03/03/2026 21:32 Lima)
-
-- **Noche de «mata-mata» para los peruanos**: [Link](https://caretas.pe/deportes/noche-de-mata-mata-para-los-peruanos/)
-- **Pronóstico Alianza Atlético Deportivo Garcilaso - Copa Sudamericana 03/03/26**: [Link](https://www.sportytrader.com/es/pronosticos/alianza-atletico-deportivo-garcilaso-331453/)
-- **Alianza Atlético vs. Deportivo Garcilaso EN VIVO: dónde ver por ESPN y Disney Plus**: [Link](https://depor.com/futbol-peruano/copa-sudamericana/alianza-atletico-vs-deportivo-garcilaso-en-vivo-gratis-hoy-espn-futbol-libre-tv-disney-plus-directv-dsports-dgo-donde-ver-transmision-en-directo-por-internet-copa-sudamericana-video-noticia/)
-
-
-### bts (N/A, 03/03/2026 21:32 Lima)
-
-- **BTS Unveil Track List for 'Arirang' Featuring Collabs With Mike WiLL Made-It, El Guincho, More**: [Link](https://www.rollingstone.com/music/music-news/bts-arirang-track-list-1235524160/)
-- **Kevin Parker, Diplo, Flume Have Credits On New BTS LP**: [Link](https://www.yahoo.com/entertainment/music/articles/kevin-parker-diplo-flume-credits-203917452.html)
-- **BTS' New Album Has Contributions From Tame Impala, JPEGMAFIA, Flume, El Guincho, & More**: [Link](https://stereogum.com/2491027/bts-new-album-has-contributions-from-tame-impala-jpegmafia-flume-el-guincho-more/music)
-
-
-### santos - cruz azul (N/A, 03/03/2026 21:32 Lima)
-
-- **Santos vs Cruz Azul: posibles alineaciones, Liga MX, Jornada 9**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/16382419/santos-vs-cruz-azul-alineaciones-jornada-9-clausura-2026-liga-mx)
-- **Santos Laguna vs Cruz Azul | Pronóstico y cuotas 04.03.2026**: [Link](https://www.transfermarkt.es/apuestas/pronosticos-deportivos/santos-laguna-vs-cruz-azul-pronostico-apuestas-04-03-2026/)
-- **Cruz Azul va por el liderato con rostros nuevos: Amaury y Nico Ibáñez asumen el reto**: [Link](https://www.estadiodeportes.mx/ligamx/nicolas-larcamon-apuesta-por-amaury-morales-y-nico-ibanez-ante-santos-20260303-0044.html)
 
 
