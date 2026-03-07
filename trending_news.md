@@ -1,3 +1,38 @@
+### el peruano normas legales (N/A, 07/03/2026 07:59 Lima)
+
+- **Si trabajas en salud, esto te interesa: Gobierno autoriza fondos para mejorar ingresos**: [Link](https://www.elperuano.pe/noticia/290546-si-trabajas-en-salud-esto-te-interesa-gobierno-autoriza-fondos-para-mejorar-ingresos)
+- **Gobierno autoriza más de S/ 30 millones para incremento salarial del personal de salud**: [Link](https://actualidadlaboral.com/gobierno-autoriza-mas-de-s-30-millones-para-incremento-salarial-del-personal-de-salud/)
+- **El Peruano te informa: consulta aquí las principales normas legales para hoy, viernes 6 de marzo del 2026**: [Link](https://www.elperuano.pe/noticia/290544-el-peruano-te-informa-consulta-aqui-las-principales-normas-legales-para-hoy-viernes-6-de-marzo-del-2026)
+
+
+### osasuna - r.c.d. mallorca (N/A, 07/03/2026 07:59 Lima)
+
+- **LaLiga EA Sports: Mallorca espera frenar su racha negativa y vencer a Osasuna**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-mallorca-espera-frenar-su-racha-negativa-y-vencer-a-osasuna-noticia-1678809)
+- **Lo que debes saber del Osasuna-Mallorca de la Jornada 27 de LaLiga**: [Link](https://www.flashscore.pe/noticias/futbol-laliga-ea-sports-previa-osasuna-mallorca-curiosidades-estadisticas-datos-y-anecdotas/0xrTSdrn/)
+- **Apuestas y Pronóstico del Osasuna vs Mallorca 07/03/26**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2026/marzo/pronostico-osasuna-vs-mallorca-07-03-26)
+
+
+### mansfield - arsenal (N/A, 07/03/2026 07:59 Lima)
+
+- **Arteta on Mansfield test, rotation, Dowman’s return and Saliba’s ankle**: [Link](https://arseblog.news/2026/03/arteta-on-mansfield-test-rotation-dowmans-return-and-salibas-ankle/)
+- **TROSSARD FORCED OFF THE PITCH! HINCAPIE COMES IN**: [Link](https://www.besoccer.com/new/live-mansfield-v-arsenal-1398054)
+- **Mikel Arteta warns Arsenal players to preserve reputation in FA Cup clash with Mansfield**: [Link](https://www.flashscore.com/news/soccer-fa-cup-mikel-arteta-warns-arsenal-players-to-preserve-reputation-in-fa-cup-clash-with-mansfield/bHifkXsh/)
+
+
+### precio del dólar hoy (N/A, 07/03/2026 07:59 Lima)
+
+- **Precio del dólar en Perú del viernes 6 de marzo: cuál fue el cierre del tipo de cambio**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-2026-cuanto-esta-el-dolar-este-viernes-6-de-marzo-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
+- **Dólar trepa: ¿quiénes se frotan las manos con repunte?**: [Link](https://gestion.pe/tu-dinero/dolar-ahora-trepa-quienes-se-alivian-mas-con-repunte-noticia/)
+- **Dólar alcanza nuevo pico de S/3,487 mientras la tensión en Medio Oriente agita los mercados financieros**: [Link](https://caretas.pe/economia/dolar-alcanza-nuevo-pico-de-s-3487-mientras-la-tension-en-medio-oriente-agita-los-mercados-financieros/)
+
+
+### pgl wallachia season 7 (N/A, 07/03/2026 07:59 Lima)
+
+- **PGL Wallachia Season 7 preview - Teams and key storylines to watch**: [Link](https://www.gosugamers.net/dota2/news/78098-pgl-wallachia-season-7-preview-teams-and-key-storylines-to-watch-out-for)
+- **Dota 2 PGL Wallachia Season 7 Overview**: [Link](https://egamersworld.com/blog/dota-2-pgl-wallachia-season-7-overview-oGK4DcCr8)
+- **Parker officially stands in for Pure in Tundra at PGL Wallachia S7**: [Link](https://escorenews.com/en/dota-2/news/76397-parker-officially-stands-in-for-pure-in-tundra-at-pgl-wallachia-s7)
+
+
 ### ufc 326 (N/A, 07/03/2026 03:38 Lima)
 
 - **Wai‘anae's Max Holloway continues to chase greatness ahead of next UFC bout**: [Link](https://alohastatedaily.com/2026/03/06/waianaes-max-holloway-continues-to-chase-greatness-ahead-of-next-ufc-bout/)
@@ -998,40 +1033,5 @@ Sin noticias relacionadas disponibles.
 - **Santos vs Cruz Azul: posibles alineaciones, Liga MX, Jornada 9**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/16382419/santos-vs-cruz-azul-alineaciones-jornada-9-clausura-2026-liga-mx)
 - **Santos Laguna vs Cruz Azul | Pronóstico y cuotas 04.03.2026**: [Link](https://www.transfermarkt.es/apuestas/pronosticos-deportivos/santos-laguna-vs-cruz-azul-pronostico-apuestas-04-03-2026/)
 - **Cruz Azul va por el liderato con rostros nuevos: Amaury y Nico Ibáñez asumen el reto**: [Link](https://www.estadiodeportes.mx/ligamx/nicolas-larcamon-apuesta-por-amaury-morales-y-nico-ibanez-ante-santos-20260303-0044.html)
-
-
-### cobresal vs (N/A, 03/03/2026 21:32 Lima)
-
-- **¡EN VIVO! Cobresal y Audax Italiano buscan la fase de grupos de la CONMEBOL Sudamericana**: [Link](https://espndeportes.espn.com/futbol/copa-sudamericana/nota/_/id/16381972/cobresal-vs-audax-italiano-primera-ronda-clasificacion-sudamericana-equipo-fecha-hora-y-tv-en-vivo)
-- **Cuándo juegan Cobresal vs. Audax Italiano por la Conmebol Sudamericana: equipo, fecha, hora y TV en vivo**: [Link](https://www.espn.com.ar/futbol/copa-sudamericana/nota/_/id/16381972/cobresal-vs-audax-italiano-primera-ronda-clasificacion-sudamericana-equipo-fecha-hora-y-tv-en-vivo)
-- **Pronóstico Cobresal Audax Italiano - Copa Sudamericana 03/03/26**: [Link](https://www.sportytrader.com/es/pronosticos/cobresal-audax-italiano-331349/)
-
-
-### ignacio buse (N/A, 03/03/2026 21:32 Lima)
-
-- **Ignacio Buse vs. Rinky Hijikata por la final de la clasificación a Indian Wells vía ESPN y Disney Premium**: [Link](https://depor.com/full-deportes/espn-en-vivo-ignacio-buse-vs-rinky-hijikata-en-directo-donde-ver-transmision-por-disney-plus-futbol-libre-tv-online-por-internet-en-qualy-de-indian-wells-en-estados-unidos-tenis-video-noticia/)
-- **Vamos, Perú: Ignacio Buse venció 2-0 a Liam Draxl por la Qualy del Masters 1000 de Indian Wells**: [Link](https://rpp.pe/tenis/mas-tenis/ignacio-buse-vs-liam-draxl-en-vivo-a-que-hora-juegan-y-donde-ver-qualy-atp-masters-1000-indian-wells-via-atp-tv-link-gratis-noticia-1678149)
-- **Noticias sobre Ignacio Buse vs Liam Draxl**: [Link](https://elcomercio.pe/noticias/ignacio-buse-vs-liam-draxl/)
-
-
-### botafogo (N/A, 03/03/2026 21:32 Lima)
-
-- **Botafogo encara tabu no Equador em busca de vaga na Libertadores**: [Link](https://onefootball.com/pt-br/noticias/botafogo-encara-tabu-no-equador-em-busca-de-vaga-na-libertadores-42496316)
-- **3ª Fase começa com os primeiros duelos rumo à Fase de Grupos**: [Link](https://www.conmebol.com/pt-br/noticias-pt-br/3a-fase-comeca-com-os-primeiros-duelos-rumo-a-fase-de-grupos/)
-- **Tudo sobre Barcelona-EQU x Botafogo (03-03-2026)**: [Link](https://placar.com.br/tudo-sobre/barcelona-equ-botafogo-147556-03-03-2026/)
-
-
-### megan fox (N/A, 03/03/2026 21:32 Lima)
-
-- **Megan Fox Posts Sexy New 'Doomed' Snaps on Instagram**: [Link](https://www.tmz.com/2026/03/03/megan-fox-posts-new-instagram-photos/)
-- **Megan Fox’s New ‘Cheeky’ Photo Already Has 600,000 Likes**: [Link](https://thespun.com/trending/megan-foxs-new-cheeky-photo-already-has-600000-likes)
-- **Megan Fox Exposes Her Buttcheeks in Barely-There Black Thong After Deleting All Her Instagram Photos**: [Link](https://okmagazine.com/p/megan-fox-exposes-butt-thong-after-deleting-instagram-photos/)
-
-
-### atlético tucumán - racing (N/A, 03/03/2026 21:32 Lima)
-
-- **Cuándo juegan Atlético Tucumán vs. Racing por el Torneo Apertura: equipo, fecha, hora y TV en vivo**: [Link](https://www.espn.com.pe/futbol/argentina/nota/_/id/16380385/atletico-tucuman-vs-racing-por-el-torneo-apertura-equipo-fecha-hora-y-tv-en-vivo)
-- **Pronóstico Tucumán vs. Racing Club - Una lucha por la clasificación en la Zoba B**: [Link](https://gainblers.com/pe/pronosticos/futbol/argentina/superliga/pronostico-tucuman-racing-club-04-03-2026/)
-- **Atlético Tucumán y Racing Club se encuentran en la fecha 8**: [Link](https://zona.palmsbet.pe/deportes/futbol/atletico-tucuman-y-racing-club-se-encuentran-en-la-fecha-8/)
 
 
