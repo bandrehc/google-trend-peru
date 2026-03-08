@@ -1,3 +1,72 @@
+### tigres - monterrey (N/A, 07/03/2026 21:39 Lima)
+
+- **Tigres vs. Rayados: ¿Cómo llegan los equipos al Clásico Regio?**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/16393599/tigres-vs-rayados-clasico-regio-142-liga-mx-clausura-2026-estadio-universitario)
+- **Liga MX: Duelo imperdible entre Tigres y CF Monterrey por el clásico regio**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-duelo-imperdible-entre-tigres-y-cf-monterrey-por-el-clasico-regio-noticia-1678963)
+- **Tigres vs Monterrey hoy online: horario, canal TV y dónde ver el Clásico Regio**: [Link](https://elcomercio.pe/deporte-total/mexico/tigres-vs-monterrey-en-vivo-online-via-azteca-7-fox-one-horarios-canales-tv-y-donde-ver-partido-por-liga-mx-video-noticia/)
+
+
+### gregory rodrigues (N/A, 07/03/2026 21:39 Lima)
+
+- **Brunno Ferreira explains recent weight miss, guarantees problem solved for UFC 326**: [Link](https://www.el-balad.com/16872552)
+- **Gregory Rodrigues | 'RoboCop' Ready For The Sequel**: [Link](https://www.ufc.com/news/gregory-rodrigues-robocop-ready-for-the-sequel-ufc-326)
+- **UFC 326 Main Card Odds, Picks & Predictions (2026)**: [Link](https://www.bettingpros.com/articles/ufc-326-main-card-odds-picks-predictions-2026/)
+
+
+### columbus crew (N/A, 07/03/2026 21:39 Lima)
+
+- **Chicago Vs Columbus: Crew Home Opener Set for March 7, Berhalter Derby Adds Edge**: [Link](https://www.el-balad.com/16872465)
+- **Crew hunt first win in home opener vs. Fire**: [Link](https://fieldlevelmedia.com/mls/crew-hunt-first-win-in-home-opener-vs-fire/)
+- **Columbus Crew vs. Chicago Fire FC**: [Link](https://nationaltoday.com/us/oh/columbus/events/2026/03/07/columbus-crew-vs-chicago-fire-fc/)
+
+
+### warriors - thunder (N/A, 07/03/2026 21:39 Lima)
+
+- **Injury updates: Chet Holmgren, Kristaps Porzingis and more ahead of Thunder vs. Warriors**: [Link](https://sports.yahoo.com/articles/injury-updates-chet-holmgren-kristaps-224231809.html)
+- **Chet Holmgren Out Saturday Due to Illness - NBA News | Fantasy Basketball**: [Link](https://www.rotoballer.com/player-news/chet-holmgren-out-saturday-due-to-illness/1823983)
+- **Warriors vs. Thunder: Live updates, highlights for Saturday's game**: [Link](https://okcthunderwire.usatoday.com/story/sports/nba/thunder/2026/03/07/warriors-vs-thunder-live-updates-highlights-for-saturdays-game/89041252007/)
+
+
+### cody garbrandt (N/A, 07/03/2026 21:39 Lima)
+
+- **Cody Garbrandt vomits in the octagon on way to UFC 326 victory after three low blows**: [Link](https://bloodyelbow.com/2026/03/07/cody-garbrandt-vomits-in-the-octagon-on-way-to-ufc-326-victory-after-three-low-blows/)
+- **The Long Road: Xiao Long discusses journey toward fighting ex-UFC champ**: [Link](https://sports.yahoo.com/articles/long-road-xiao-long-discusses-203036286.html)
+- **Garbrandt vs Xiao Prediction, Pick, Odds for UFC 326 -- 3/7**: [Link](https://www.actionnetwork.com/mma/cody-garbrandt-vs-xiao-long-prediction-pick-odds-ufc-326-saturday-march-7)
+
+
+### ldu (N/A, 07/03/2026 21:39 Lima)
+
+- **Barcelona vs. Universidad Católica - Boxscore - Live Score - March 22, 2026**: [Link](https://www.foxsports.com/soccer/ecuadorian-liga-pro-barcelona-vs-u-catolica-ecu-mar-22-2026-game-boxscore-677770?tab=boxscore)
+- **LDU Quito vs. Universidad Católica - Boxscore - Live Score - March 15, 2026**: [Link](https://www.foxsports.com/soccer/ecuadorian-liga-pro-ldu-quito-vs-u-catolica-ecu-mar-15-2026-game-boxscore-677754?tab=boxscore)
+
+
+### atlas - guadalajara (N/A, 07/03/2026 21:39 Lima)
+
+- **Atlas vs Chivas: Por qué puede ganar cada equipo, las claves y más**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/16397719/atlas-vs-chivas-por-que-puede-ganar-cada-equipo-las-claves-y-mas)
+- **Noche de banderazo rojiblanco en el centro de Guadalajara**: [Link](https://mexico.as.com/videos/noche-de-banderazo-rojiblanco-en-el-centro-de-guadalajara-f202603-v/)
+- **¡Hicieron el ridículo! Raúl Rangel y Fernando González regalaron un gol al Atlas en el Clásico Tapatío**: [Link](https://chivaspasion.bolavip.com/ligamx/hicieron-el-ridiculo-raul-rangel-y-fernando-gonzalez-regalaron-un-gol-al-atlas-en-el-clasico-tapatio)
+
+
+### hermanas un amor compartido capítulo 24 (N/A, 07/03/2026 21:39 Lima)
+
+- **Hermanas, un amor compartido: Capítulo Completo 25 - Germán es mi novio**: [Link](https://www.lasestrellas.tv/telenovelas/hermanas-un-amor-compartido/hermanas-un-amor-compartido-capitulo-completo-25-german-es-mi-novio-video)
+- **Germán le hace romántica propuesta a Aura**: [Link](https://www.lasestrellas.tv/telenovelas/hermanas-un-amor-compartido/german-le-hace-romantica-propuesta-a-aura-video)
+- **Aura acepta sentir algo por Germán**: [Link](https://www.lasestrellas.tv/telenovelas/hermanas-un-amor-compartido/aura-acepta-sentir-algo-por-german-video)
+
+
+### raúl rosas jr. (N/A, 07/03/2026 21:39 Lima)
+
+- **Raul Rosas Jr. is "a one-trick pony", Rob Font will expose UFC 326 weaknesses, per ex-UFC vet**: [Link](https://www.bjpenn.com/mma-news/raul-rosas-jr/raul-rosas-jr-is-a-one-trick-pony-rob-font-will-expose-ufc-326-weaknesses-per-ex-ufc-vet/)
+- **Top 5: Fighters on the rise at UFC 326**: [Link](https://sports.yahoo.com/articles/top-5-fighters-rise-ufc-000712048.html)
+- **Font vs Rosas Prediction, Pick, Odds for UFC 326 -- 3/7**: [Link](https://www.actionnetwork.com/mma/rob-font-vs-raul-rosas-prediction-pick-odds-ufc-326-saturday-march-7)
+
+
+### pachuca - puebla (N/A, 07/03/2026 21:39 Lima)
+
+- **Liga MX: Puebla visita a Pachuca por la fecha 10**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-puebla-visita-a-pachuca-por-la-fecha-10-noticia-1678936)
+- **Puebla busca escalar posiciones en la Liga MX**: [Link](https://cronicapuebla.com/deportes/puebla-busca-escalar-posiciones-en-la-liga-mx)
+- **¡EN VIVO! Pachuca vs Puebla de la Liga MX AQUÍ**: [Link](https://www.tudn.com/futbol/liga-mx/en-vivo-pachuca-vs-puebla-de-la-liga-mx-aqui-video)
+
+
 ### sporting cristal - alianza atlético (N/A, 07/03/2026 15:32 Lima)
 
 - **Obligados a ganar: la alineación de Sporting Cristal vs. Alianza Atlético en el Gallardo**: [Link](https://depor.com/futbol-peruano/descentralizado/alineacion-sporting-cristal-vs-alianza-atletico-en-vivo-formacion-titular-hoy-de-paulo-autuori-liga-1-2026-fotos-noticia/)
@@ -961,74 +1030,5 @@ Sin noticias relacionadas disponibles.
 - **Pronóstico Newcastle Manchester United FC - Premier League 04/03/26**: [Link](https://www.sportytrader.com/es/pronosticos/newcastle-manchester-united-331621/)
 - **Newcastle vs. Manchester United: ¡Juega en la Premier League y gana hasta S/. 600,000 con Meridianbet!**: [Link](https://ovacion.pe/noticias/nota-promocional/newcastle-vs-manchester-united-juega-premier-league-gana-hasta-s-600000)
 - **Cuándo juegan Newcastle vs. Manchester United por Premier League: equipo, fecha, hora y TV en vivo**: [Link](https://www.espn.com.ar/futbol/inglaterra/nota/_/id/16380950/newcastle-vs-manchester-united-premier-league-equipo-fecha-hora-y-tv-en-vivo)
-
-
-### gas natural gnv (N/A, 04/03/2026 15:37 Lima)
-
-- **Comisión de Defensa del Consumidor exige explicaciones por las consecuencias del desabastecimiento de gas natural y alza de gasolina que afecta a los consumidores**: [Link](https://comunicaciones.congreso.gob.pe/damos-cuenta/comision-de-defensa-del-consumidor-exige-explicaciones-por-las-consecuencias-del-desabastecimiento-de-gas-natural-y-alza-de-gasolina-que-afecta-a-los-consumidores/)
-- **Ejecutan acciones para garantizar seguridad e iniciar reparación en planta de gas natural**: [Link](https://elperuano.pe/noticia/290404-ejecutan-acciones-para-garantizar-seguridad-e-iniciar-reparacion-en-planta-de-gas-natural)
-- **Tarifas de taxis subirán en Lima por restricción de GNV tras emergencia en Camisea**: [Link](https://caretas.pe/nacional/tarifas-de-taxis-subiran-en-lima-por-restriccion-de-gnv-tras-emergencia-en-camisea/)
-
-
-### lazio vs atalanta (N/A, 04/03/2026 15:37 Lima)
-
-- **Preview: Lazio vs Atalanta BC - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/lazio/coppa-italia/preview/lazio-vs-atalanta-prediction-team-news-lineups_593071.html)
-- **Palladino: ‘Atalanta want Coppa Italia for trophy and to guarantee Europe’**: [Link](https://betarena.com/a/football-italia/palladino-atalanta-coppa-italia-trophy-guarantee-europe-1772575302)
-- **Five Key Battles in Lazio vs Atalanta: Can Isaksen Torment Ahanor Again?**: [Link](https://thelaziali.com/2026/03/04/five-key-battles-in-lazio-vs-atalanta-can-isaksen-torment-ahanor-again/)
-
-
-### premier league posiciones (N/A, 04/03/2026 15:37 Lima)
-
-- **La pelea por la Premier League 2025-2026: fixture, tabla y qué necesitan Arsenal y Manchester City para ser campeones**: [Link](https://www.espn.com.ar/futbol/inglaterra/nota/_/id/16339639/arsenal-y-manchester-city-premier-que-necesitan-campeones-fixture-tabla)
-- **Arsenal y Manchester City pelean una Premier League de márgenes mínimos**: [Link](https://espndeportes.espn.com/futbol/inglaterra/nota/_/id/16382531/arsenal-manchester-city-pelea-titulo-campeon-margenes-minimos-premier)
-- **¡La Premier en juego! Otra noche de pulso al límite Arteta-Guardiola**: [Link](https://www.mundodeportivo.com/futbol/premier-league/20260304/1004145146/noche-pulso-limite-arteta-guardiola-brighton-arsenal-city-nottingham-forest.html)
-
-
-### premier (N/A, 04/03/2026 15:37 Lima)
-
-- **(3) Brighton v Arsenal, Manchester City v Nottingham Forest, and more: Premier League – live**: [Link](https://www.theguardian.com/football/live/2026/mar/04/brighton-arsenal-manchester-city-nottingham-forest-aston-villa-chelsea-fulham-west-ham-premier-league-live)
-- **talkSPORT tips – Best football bets and expert advice on Wednesday 4 March**: [Link](https://talksport.com/football/4019258/talksport-tips-best-football-bets-wednesday-4-march/)
-- **Premier League Betting Preview: Jones Knows’ Tips for Wednesday Matches**: [Link](https://news.ssbcrack.com/premier-league-betting-preview-jones-knows-tips-for-wednesday-matches/)
-
-
-### newcastle - manchester united (N/A, 04/03/2026 15:37 Lima)
-
-- **Newcastle vs Manchester United predictions: Magpies still winless**: [Link](https://www.goal.com/en-ca/betting/tips/newcastle-vs-manchester-united-predictions-03-04/A%3Ablt6c8408ea14b46381)
-- **'Carrick sending a message to the squad': Man United fans react to starting XI vs Newcastle**: [Link](https://tribuna.com/en/blogs/carrick-sending-a-message-to-the-squad-man-united-fans-react/)
-- **Confirmed line-up: Ramsdale and Barnes start against Reds**: [Link](https://onefootball.com/en/news/confirmed-line-up-ramsdale-and-barnes-start-against-reds-42504673)
-
-
-### lazio - atalanta (N/A, 04/03/2026 15:37 Lima)
-
-- **Lazio-Atalanta, Fabiani nel pre: "Non è scontato arrivare in semifinale. Sui tifosi..."**: [Link](https://onefootball.com/de/news/lazio-atalanta-fabiani-nel-pre-non-e-scontato-arrivare-in-semifinale-sui-tifosi-42504941)
-- **Calcio Live News: tutte le notizie di giornata in tempo reale**: [Link](https://www.diretta.it/news/calcio-live-news-in-campo-lazio-atalanta-0-0/8Ya56x63/)
-- **Atalanta, Percassi: "Quella contro il BVB è stata una partita unica per la nostra storia"**: [Link](https://gianlucadimarzio.com/percassi-atalanta-intervista-lazio-coppa-italia-4-marzo-2026/)
-
-
-### gaziantep - fenerbahçe (N/A, 04/03/2026 15:37 Lima)
-
-- **Fenerbahçe'de Asensio ve Ederson'un neden kadroya alınmadığı açıklandı**: [Link](https://www.yenicaggazetesi.com/fenerbahcede-asensio-ve-edersonun-neden-kadroya-alinmadigi-aciklandi-1006069h.htm)
-- **Fenerbahçe’de Levent Mercan’ın Sert Şutu Direğe Takıldı! | Gaziantep FK 0-0 Fenerbahçe - Aspor**: [Link](https://www.aspor.com.tr/webtv/program/aspor/fenerbahcede-levent-mercanin-sert-sutu-direge-takildi-gaziantep-fk-0-0-fenerbahce)
-- **Sadettin Saran maça saatler kala müjdeyi verdi**: [Link](https://www.sondakika.com/haber/haber-sadettin-saran-maca-saatler-kala-mujdeyi-verdi-19623850/)
-
-
-### real sociedad - athletic (N/A, 04/03/2026 15:37 Lima)
-
-- **Cuándo juegan Real Sociedad vs. Athletic Club por la semifinal de Copa del Rey: equipo, fecha, hora y TV en vivo**: [Link](https://www.espn.com.pe/futbol/nota/_/id/16384623/real-sociedad-vs-athletic-club-semifinal-copa-del-rey-equipo-fecha-hora-y-tv-en-vivo)
-- **HOY Real Sociedad vs Athletic Club en vivo a qué hora juegan y cómo ver vuelta semifinal Copa del Rey 2026 vía DSports Partidos de hoy**: [Link](https://rpp.pe/futbol/futbol-mundial/real-sociedad-vs-athletic-club-en-vivo-a-que-hora-juegan-y-como-ver-vuelta-semifinal-copa-del-rey-2026-via-dsports-partidos-de-hoy-noticia-1678504)
-- **Pronósticos Real Sociedad vs Athletic Club: los Txuri-Urdin buscan sentenciar en casa**: [Link](https://bolavip.com/pe/apuestas/pronosticos/real-sociedad-vs-athletic-club-04-03-2026)
-
-
-### panathinaikos - ofi (N/A, 04/03/2026 11:54 Lima)
-
-- **Panathinaikos vs OFI: Super League 1 stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cqxd3lx4x5lt)
-- **Panathinaikos - OFI: will the hosts extend their winning streak?**: [Link](https://www.liontips.com/tips/2026/03/03/panathinaikos-ofi-betting-tip-cf-2-15-and-bets-on-the-greek-championship-match-march-4-2026-from-upu)
-
-
-### macbook neo (N/A, 04/03/2026 11:54 Lima)
-
-- **Apple Accidentally Leaks 'MacBook Neo'**: [Link](https://www.macrumors.com/2026/03/03/apple-accidentally-leaks-macbook-neo/)
-- **Say hello to MacBook Neo**: [Link](https://www.apple.com/newsroom/2026/03/say-hello-to-macbook-neo/)
-- **​​Dear Bored Windows Users: The Time To Give Mac A Try Has Finally Arrived**: [Link](https://www.slashgear.com/2115576/why-windows-users-should-try-mac/)
 
 
