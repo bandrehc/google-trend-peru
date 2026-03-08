@@ -1,3 +1,50 @@
+### cuándo es día de la mujer (N/A, 08/03/2026 08:00 Lima)
+
+- **Día Internacional de la Mujer: ¿por qué se celebra hoy, 8 de marzo?**: [Link](https://www.infobae.com/sociedad/2026/03/08/dia-internacional-de-la-mujer-por-que-se-celebra-hoy-8-de-marzo/)
+- **Derechos, justicia y acción por y para todas las mujeres y niñas**: [Link](https://elpais.com/america/2026-03-08/derechos-justicia-y-accion-por-y-para-todas-las-mujeres-y-ninas.html)
+- **¿Por qué el Día de la Mujer? Porque la desigualdad continúa, ya sea en la ley, en los Parlamentos o en el cuerpo**: [Link](https://news.un.org/es/story/2026/03/1541219)
+
+
+### lecce vs (N/A, 08/03/2026 08:00 Lima)
+
+- **Preview: Lecce vs. Cremonese - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/lecce/preview/lecce-vs-cremonese-prediction-team-news-lineups_593332.html)
+- **🚨Lecce v Cremonese line-ups: Gandelman, Bonazzoli, Stulic watch 👀**: [Link](https://onefootball.com/fr/news/lecce-v-cremonese-line-ups-gandelman-bonazzoli-stulic-watch-42523368)
+- **US Lecce vs. US Cremonese Prediction, Picks, Live Odds – March 8**: [Link](https://www.bleachernation.com/picks/2026/03/07/us-lecce-vs-us-cremonese-prediction-picks-live-odds-march-8/)
+
+
+### fulham - southampton (N/A, 08/03/2026 08:00 Lima)
+
+- **FA Cup Fifth Round LIVE: Build-up, team news, score and live text updates**: [Link](https://www.bbc.com/sport/football/live/cvgjpjne9kdt)
+- **Is Fulham vs Southampton on TV? Channel, live stream and kick-off time for FA Cup clash**: [Link](https://www.mirror.co.uk/sport/football/news/fulham-vs-southampton-tv-channel-36821442)
+- **Football ACCA Tips: Back Fulham in Andy Robson's 5/1 Sunday wager**: [Link](https://betting.betfair.com/football/fa-cup/football-acca-tips-back-fulham-beat-southampton-andy-robsons-5-1-sunday-wager-050326-1302.html)
+
+
+### ulima (N/A, 08/03/2026 08:00 Lima)
+
+- **Estado anuncia medidas que garanticen servicios esenciales y del gas**: [Link](https://elperuano.pe/noticia/290605-estado-anuncia-medidas-que-garanticen-servicios-esenciales-y-del-gas)
+- **Gremios empresariales y asociaciones de colegios privados cuestionaron las medidas del Gobierno ante la crisis energética del país**: [Link](https://rpp.pe/peru/actualidad/gremios-empresariales-y-asociaciones-de-colegios-privados-cuestionaron-las-medidas-del-gobierno-ante-la-crisis-energetica-del-pais-noticia-1679095)
+- **Teletrabajo es OBLIGATORIO para empleados de entidades públicas: conoce hasta cuándo**: [Link](https://peru21.pe/lima/teletrabajo-lima-obligatorio-para-empleados-de-entidades-publicas/)
+
+
+### lecce - cremonese (N/A, 08/03/2026 08:00 Lima)
+
+Sin noticias relacionadas disponibles.
+
+
+### villarreal vs (N/A, 08/03/2026 08:00 Lima)
+
+- **LaLiga EA Sports: Por la fecha 27, Villarreal recibirá a Elche**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-por-la-fecha-27-villarreal-recibira-a-elche-noticia-1679003)
+- **Misma necesidad de victoria para distintos objetivos**: [Link](https://es-us.noticias.yahoo.com/deportes/necesidad-victoria-distintos-objetivos-125500750.html)
+- **Villarreal - Elche | El balón sustituye los líos del Elche: previa, análisis, pronóstico y predicción**: [Link](https://www.marca.com/futbol/primera-division/2026/03/08/villarreal-elche-balon-sustituye-lios-elche-previa-analisis-pronostico-prediccion.html)
+
+
+### timbers - whitecaps (N/A, 08/03/2026 08:00 Lima)
+
+- **Whitecaps lead in Portland; San Diego & San Jose off to historic starts**: [Link](https://onefootball.com/de/news/whitecaps-lead-in-portland-san-diego-san-jose-off-to-historic-starts-42521775)
+- **MLS Whitecaps Timbers Soccer**: [Link](https://www.hjnews.com/sports/nation/mls-whitecaps-timbers-soccer/image_d916d531-4a6a-577b-af90-636111e543d9.html)
+- **Vancouver remains perfect with road rout of Portland**: [Link](https://fieldlevelmedia.com/mls/vancouver-remains-perfect-with-road-rout-of-portland/)
+
+
 ### international women's day (N/A, 08/03/2026 03:38 Lima)
 
 - **World Baseball Classic - Pool C - Taiwan v South Korea**: [Link](https://www.reutersconnect.com/item/world-baseball-classic-pool-c-taiwan-v-south-korea/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX1VQMUVNMzgwSElMN0Q)
@@ -981,54 +1028,5 @@ Sin noticias relacionadas disponibles.
 ### incendio en comas (N/A, 05/03/2026 08:13 Lima)
 
 Sin noticias relacionadas disponibles.
-
-
-### incendio en comas hoy (N/A, 05/03/2026 03:52 Lima)
-
-- **Incendio en Comas: Más de 30 unidades de los bomberos trabajan para controlar la emergencia**: [Link](https://rpp.pe/lima/actualidad/incendio-en-comas-mas-de-20-unidades-de-los-bomberos-trabajan-para-controlar-la-emergencia-noticia-1678638)
-- **Un incendio de gran magnitud se registra en Comas: Más de 35 unidades de bomberos atienden emergencia**: [Link](https://peru21.pe/lima/incendio-en-comas-mas-de-35-unidades-de-bomberos-atienden-emergencia/)
-- **Essalud: Hospital Marino Molina en alerta para atender heridos de incendio en Comas**: [Link](https://andina.pe/agencia/noticia-essalud-hospital-marino-molina-alerta-para-atender-heridos-incendio-comas-1065501.aspx)
-
-
-### suheyn cipriani (N/A, 05/03/2026 03:52 Lima)
-
-- **Magaly Medina aconseja a Suheyn Cipriani tras volver con Macarius: "No está enamorado de ti, eso se nota"**: [Link](https://www.atv.pe/noticia/magaly-medina-aconseja-a-suheyn-cipriani-tras-volver-con-macarius-no-esta-enamorado-de-ti-eso-se-nota/)
-- **Suheyn Cipriani es sorprendida besando a streamer Macarius y podcast reveló imágenes exclusivas que asegurarían la reconciliación**: [Link](https://larepublica.pe/espectaculos/2026/03/02/suheyn-cipriani-es-sorprendida-besando-a-streamer-macarius-y-podcast-revelo-imagenes-exclusivas-que-asegurarian-la-reconciliacion-156920)
-- **¿Reconciliación confirmada? Reveladoras imágenes de Suheyn Cipriani junto a Macarius salen a la luz**: [Link](https://elcomercio.pe/respuestas/farandula/reconciliacion-confirmada-reveladoras-imagenes-de-suheyn-cipriani-junto-a-macarius-salen-a-la-luz-tdpe-noticia/)
-
-
-### atlas - tijuana (N/A, 05/03/2026 03:52 Lima)
-
-- **Atlas venció a Tijuana y llegará encendido al Clásico Tapatío**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/16390649/atlas-vs-tijuana-clasusura-2026-liga-mx-arturo-gonzlaez-doblet)
-- **Liga MX: Atlas se enfrentará ante Tijuana por la fecha 9**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-atlas-se-enfrentara-ante-tijuana-por-la-fecha-9-noticia-1678461)
-- **¡Poste evita el primero de los Rojinegros! Toño Rodríguez la desvía**: [Link](https://www.tudn.com/futbol/liga-mx/poste-evita-el-primero-de-los-rojinegros-tono-rodriguez-la-desvia-video)
-
-
-### incendio comas (N/A, 05/03/2026 00:14 Lima)
-
-- **Incendio en Comas: Más de 30 unidades de los bomberos trabajan para controlar la emergencia**: [Link](https://rpp.pe/lima/actualidad/incendio-en-comas-mas-de-20-unidades-de-los-bomberos-trabajan-para-controlar-la-emergencia-noticia-1678638)
-- **Más de 20 unidades de los bomberos combaten incendio de gran proporción en Comas**: [Link](https://www.atv.pe/noticia/mas-de-20-unidades-de-los-bomberos-combaten-incendio-de-gran-proporcion-en-comas/)
-- **Comas: Incendio de gran magnitud en fábrica moviliza a numerosas unidades de bomberos**: [Link](https://diariocorreo.pe/edicion/lima/comas-incendio-de-gran-magnitud-en-fabrica-moviliza-a-numerosas-unidades-de-bomberos-noticia/)
-
-
-### america (N/A, 05/03/2026 00:14 Lima)
-
-- **¿Hacia dónde debería transitar Venezuela?**: [Link](https://elpais.com/america-futura/2026-03-05/hacia-donde-deberia-transitar-venezuela.html)
-- **Cómo Washington intentó provocar el colapso social en Venezuela**: [Link](https://misionverdad.com/venezuela/como-washington-intento-provocar-el-colapso-social-en-venezuela)
-- **Venezuela ahora es modelo para colonizar a otros paÃ­ses**: [Link](https://www.aporrea.org/tiburon/a350447.html)
-
-
-### carlos alcantara (N/A, 05/03/2026 00:14 Lima)
-
-- **Carlos Alcántara es 'ampayado' viviendo su soltería AL MÁXIMO: "Un día con una y al día siguiente con otra"**: [Link](https://www.atv.pe/noticia/carlos-alcantara-es-ampayado-viviendo-su-solteria-al-maximo-un-dia-con-una-y-al-dia-siguiente-con-otra/)
-- **Carlos Alcántara es ampayado besando apasionadamente a mujer en discoteca tras terminar su matrimonio de 15 años**: [Link](https://larepublica.pe/espectaculos/2026/03/04/carlos-alcantara-es-ampayado-besando-apasionadamente-a-misteriosa-mujer-tras-terminar-su-matrimonio-de-15-anos-207464)
-- **¡Asu mare, Machín! Ampayan a Carlos Alcántara viviendo su soltería AL MÁXIMO**: [Link](https://www.exitosanoticias.pe/espectaculos/asu-mare-machin-ampayan-carlos-alcantara-viviendo-su-solteria-maximo-n170263)
-
-
-### eddie vedder (N/A, 05/03/2026 00:14 Lima)
-
-- **Eddie Vedder talks horsing around with Bruce Springsteen in Colts Neck**: [Link](https://www.app.com/story/entertainment/music/2026/03/04/bruce-springsteen-eddie-vedder-howard-stern-show-horseback-riding/88982742007/)
-- **Pearl Jam Frontman Reveals Terrifying Experience Riding Horses with Bruce Springsteen**: [Link](https://www.wideopencountry.com/pearl-jam-frontman-reveals-terrifying-experience-riding-horses-with-bruce-springsteen/)
-- **Pearl Jam’s Eddie Vedder Survives a Wild Horse Ride of Terror With Bruce Springsteen**: [Link](https://www.aol.com/articles/pearl-jam-eddie-vedder-survives-155250080.html)
 
 
