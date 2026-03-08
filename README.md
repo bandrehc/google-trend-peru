@@ -1,3 +1,45 @@
+### international women's day (N/A, 08/03/2026 03:38 Lima)
+
+- **World Baseball Classic - Pool C - Taiwan v South Korea**: [Link](https://www.reutersconnect.com/item/world-baseball-classic-pool-c-taiwan-v-south-korea/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX1VQMUVNMzgwSElMN0Q)
+- **North Carolina Primary Election 2026: Live Results**: [Link](https://www.nytimes.com/interactive/2026/us/elections/results-north-carolina-primary.html)
+- **2026 primary elections latest: Polls close at most NC voting sites, Halifax site to stay open later**: [Link](https://www.wral.com/news/nccapitol/north-carolina-primary-voter-guide-tuesday-feb-2026/)
+
+
+### día internacional de la mujer (N/A, 08/03/2026 03:38 Lima)
+
+- **50 frases poderosas por el Día de la Mujer para dedicar el 8 de marzo**: [Link](https://www.infobae.com/peru/2026/03/06/50-frases-poderosas-por-el-dia-de-la-mujer-para-dedicar-el-8-de-marzo/)
+- **💟 100 frases poderosas para pancartas y carteles del Día de la Mujer 2026 que puedes llevar a la marcha del 8 de marzo**: [Link](https://gestion.pe/mix/respuestas/100-frases-poderosas-para-pancartas-y-carteles-del-dia-de-la-mujer-2026-que-puedes-llevar-a-la-marcha-del-8-de-marzo-8m-mexico-argentina-espana-nnda-nnrt-noticia/)
+- **140 citas motivacionales para el Día Internacional de la Mujer 2026: envíalas a tu mamá, hermanas, pareja o hijas este 08 de marzo**: [Link](https://elcomercio.pe/mag/respuestas/140-citas-motivacionales-para-el-dia-internacional-de-la-mujer-2026-envialas-a-tu-mama-hermanas-pareja-o-hijas-este-08-de-marzo-nnda-nnni-noticia/)
+
+
+### que se celebra hoy (N/A, 08/03/2026 03:38 Lima)
+
+- **Día de la Mujer: cuál es su origen y por qué se conmemora el 8 de marzo**: [Link](https://www.clarin.com/internacional/dia-mujer-origen-conmemora-8-marzo_0_tuLH883G4U.html)
+- **Día Internacional de la Mujer**: [Link](https://www.expreso.com.pe/opinion/dia-internacional-de-la-mujer-2/)
+- **Derechos, justicia y acción por y para todas las mujeres y niñas**: [Link](https://elpais.com/america/2026-03-08/derechos-justicia-y-accion-por-y-para-todas-las-mujeres-y-ninas.html)
+
+
+### formula 1 en vivo (N/A, 08/03/2026 03:38 Lima)
+
+- **La descarga eléctrica de Leclerc no puede con Russell y Mercedes**: [Link](https://as.com/motor/formula_1/la-descarga-electrica-de-leclerc-no-puede-con-russell-y-mercedes-f202603-n/)
+- **Russell reina en una locura que tampoco sonríe a los españoles**: [Link](https://www.marca.com/motor/formula1/gp-australia/2026/03/08/russell-reina-locura-tampoco-sonrie-espanoles.html)
+- **A Mercedes le sobra energía: celebra el doblete con Russel y Antonelli en el sorprendente estreno de la F1 en Australia**: [Link](https://elpais.com/deportes/formula-1/2026-03-08/a-mercedes-le-sobra-energia-celebra-el-doblete-con-russel-y-antonelli-en-el-estreno-de-la-temporada-en-australia.html)
+
+
+### ilia topuria (N/A, 08/03/2026 03:38 Lima)
+
+- **UFC's White House Card Announced, Justin Gaethje Vs. Ilia Topuria Headline**: [Link](https://www.tmz.com/2026/03/07/ufc-white-house-card-announced-justin-gaethje-ilia-topuria/)
+- **UFC White House card falling apart in front of Dana White's eyes**: [Link](https://www.the-express.com/sport/mma/201345/ufc-white-house-dana-white)
+- **Ilia Topuria | Celebrity News and Gossip | Entertainment, Photos and Videos**: [Link](https://www.justjared.com/tags/ilia-topuria/)
+
+
+### lafc - fc dallas (N/A, 08/03/2026 03:38 Lima)
+
+- **Son Heung-min, who is tied up 'goalless', is caught in the simulation 'fall' → yellow card... It's embarrassing. "Put your hands up, apple."**: [Link](https://www.starnewskorea.com/en/sports/2026/03/08/2026030811461237772)
+- **LAFC vs. FC Dallas: Prediction, How to Watch for Free (3/7/26)**: [Link](https://globelynews.com/sports/lafc-vs-fc-dallas-prediction-how-to-watch-for-free/)
+- **FC Dallas Falls 1-0 at LAFC**: [Link](https://www.fcdallas.com/news/fc-dallas-falls-1-0-at-lafc)
+
+
 ### f1 en vivo (N/A, 08/03/2026 00:11 Lima)
 
 - **F1 EN VIVO: la carrera del GP de Australia de la F1 2026 | Live Text**: [Link](https://lat.motorsport.com/f1/live-text/f1-directo-carrera-australia-2026/1126448/)
@@ -988,47 +1030,5 @@ Sin noticias relacionadas disponibles.
 - **Eddie Vedder talks horsing around with Bruce Springsteen in Colts Neck**: [Link](https://www.app.com/story/entertainment/music/2026/03/04/bruce-springsteen-eddie-vedder-howard-stern-show-horseback-riding/88982742007/)
 - **Pearl Jam Frontman Reveals Terrifying Experience Riding Horses with Bruce Springsteen**: [Link](https://www.wideopencountry.com/pearl-jam-frontman-reveals-terrifying-experience-riding-horses-with-bruce-springsteen/)
 - **Pearl Jam’s Eddie Vedder Survives a Wild Horse Ride of Terror With Bruce Springsteen**: [Link](https://www.aol.com/articles/pearl-jam-eddie-vedder-survives-155250080.html)
-
-
-### américa - juárez (N/A, 05/03/2026 00:14 Lima)
-
-- **América vs FC Juárez: posibles alineaciones, Jornada 9, Liga MX**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/16383163/america-vs-fc-juarez-alineaciones-jornada-9-clausura-2026-liga-mx)
-- **¿Dónde puedo ver partido, América-Juárez EN VIVO y en qué canal TV transmiten partido ONLINE GRATIS?**: [Link](https://elcomercio.pe/deporte-total/mexico/donde-ver-america-vs-juarez-en-vivo-online-a-que-hora-juegan-y-en-que-canal-transmiten-partido-por-torneo-clausura-de-liga-mx-2026-noticia/)
-- **¿Por qué no juega Vinícius Lima el Club América vs FC Juárez de la J9 del Clausura 2026?**: [Link](https://bolavip.com/mx/america/por-que-no-juega-vinicius-lima-el-club-america-vs-fc-juarez-de-la-j9-del-clausura-2026)
-
-
-### que es prision preventiva (N/A, 05/03/2026 00:14 Lima)
-
-- **Dictan nueve meses de prisión preventiva contra Adrián Villar tras atropellar y causar la muerte de Lizeth Marzano**: [Link](https://elcomercio.pe/lima/policiales/adrian-villar-en-vivo-poder-judicial-da-a-conocer-decision-sobre-prision-preventiva-por-caso-lizeth-marzano-ultimas-noticia/)
-- **Homicidio doloso por omisión impropia por incumplimiento de un deber de garante por injerencia: caso Lizeth Marzano**: [Link](https://lpderecho.pe/homicidio-doloso-por-omision-impropia-por-incumplimiento-de-un-deber-de-garante-por-injerencia-caso-lizeth-marzano/)
-- **PJ impuso nueve meses de prisión preventiva contra Adrián Villar por atropello y muerte de Lizeth Marzano**: [Link](https://rpp.pe/lima/judiciales/adrian-villar-pj-le-impuso-meses-de-prision-preventiva-por-atropello-y-muerte-de-lizeth-marzano-noticia-1678635)
-
-
-### homicidio culposo (N/A, 05/03/2026 00:14 Lima)
-
-- **Confirman condena por homicidio culposo y fijan reparación civil de 30 mil soles**: [Link](https://radiouno.pe/noticias/267379/confirman-condena-por-homicidio-culposo-y-fijan-reparacion-civil-de-30-mil-soles/)
-- **Poder Judicial levanta secreto de comunicaciones de Adrián Villar, Marisel Linares y policías por muerte de Lizeth Marzano**: [Link](https://www.infobae.com/peru/2026/03/04/poder-judicial-levanta-secreto-de-comunicaciones-de-adrian-villar-marisel-linares-y-policias-por-muerte-de-lizeth-marzano/)
-- **Poder Judicial autoriza el levantamiento de las comunicaciones de Adrián Villar**: [Link](https://willax.pe/politica/poder-judicial-levantamiento-comunicaciones-adrian-villar-willax)
-
-
-### liga mx (N/A, 05/03/2026 00:14 Lima)
-
-- **Pronóstico Atlas FC vs Tijuana jornada 9 Clausura 2026 Liga MX | Sportytrader**: [Link](https://www.sportytrader.com/es/pronosticos/atlas-tijuana-331589/)
-- **¡Poste evita el primero de los Rojinegros! Toño Rodríguez la desvía**: [Link](https://www.tudn.com/futbol/liga-mx/poste-evita-el-primero-de-los-rojinegros-tono-rodriguez-la-desvia-video)
-- **Xolos pierde ante Atlas en el Estadio Jalisco**: [Link](https://bajanews.mx/Deportes/53290/Xolos-pierde-ante-Atlas-en-el-Estadio-Jalisco)
-
-
-### adrian villar (N/A, 04/03/2026 21:35 Lima)
-
-- **Adrián Villar: Poder Judicial da a conocer esta noche decisión de prisión preventiva por caso Lizeth Marzano**: [Link](https://elcomercio.pe/lima/policiales/adrian-villar-en-vivo-poder-judicial-da-a-conocer-decision-sobre-prision-preventiva-por-caso-lizeth-marzano-ultimas-noticia/)
-- **Homicidio doloso por omisión impropia por incumplimiento de un deber de garante por injerencia: caso Lizeth Marzano**: [Link](https://lpderecho.pe/homicidio-doloso-por-omision-impropia-por-incumplimiento-de-un-deber-de-garante-por-injerencia-caso-lizeth-marzano/)
-- **Penalista cuestiona a juez por llamar “hijo” a Adrián Villar durante audiencia de prisión preventiva**: [Link](https://rpp.pe/lima/judiciales/penalista-cuestiona-a-juez-por-llamar-hijo-a-adrian-villar-en-audiencia-de-prision-preventiva-noticia-1678492)
-
-
-### gallese (N/A, 04/03/2026 21:35 Lima)
-
-- **Gallese fue titular en el empate de Deportivo Cali ante Fortaleza**: [Link](https://ovacion.pe/noticias/peruanos-mundo/gallese-fue-titular-empate-deportivo-cali-ante-fortaleza)
-- **Gallese brilla en empate 1-1 entre Deportivo Cali y Fortaleza**: [Link](https://diarioviral.pe/deportes/gallese-brilla-en-empate-1-1-entre-deportivo-cali-y-fortaleza-52496)
-- **Gallese da la cara; Reyna celebra con un gol y Noriega a un paso de ser campeón: así les fue a los peruanos en el exterior y qué viene para ellos**: [Link](https://elcomercio.pe/deporte-total/seleccion/seleccion-peruana-pedro-gallese-da-la-cara-yordy-reyna-celebra-con-un-gol-y-erick-noriega-a-un-paso-de-ser-campeon-asi-les-fue-a-los-peruanos-en-el-exterior-y-que-viene-para-ellos-noticia/)
 
 
