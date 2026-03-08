@@ -1,3 +1,73 @@
+### futbol hoy (N/A, 08/03/2026 15:33 Lima)
+
+- **Partidos de hoy, domingo 8 de marzo del 2026: horarios y canales TV para ver EN VIVO Liga1 y Serie A**: [Link](https://rpp.pe/futbol/futbol-mundial/partidos-de-hoy-liga1-y-serie-a-en-vivo-peru-domingo-8-de-marzo-del-2026-horarios-y-canales-tv-ver-futbol-en-vivo-noticia-1679107)
+- **Partidos de hoy EN VIVO, domingo 8 de marzo: programación y dónde ver fútbol online**: [Link](https://libero.pe/futbol-internacional/2026/03/07/partidos-de-hoy-en-vivo-domingo-8-de-marzo-534870)
+- **Partidos de hoy, domingo 8 de marzo de 2026: horarios, canales de TV y plataformas para ver EN VIVO**: [Link](https://www.expreso.com.pe/deportes/partidos-de-hoy-domingo-8-de-marzo-de-2026-horarios-canales-de-tv-y-plataformas-para-ver-en-vivo-futbol-copa-liga-programacion-noticia/1269442/)
+
+
+### knicks - lakers (N/A, 08/03/2026 15:33 Lima)
+
+- **Knicks vs Lakers Odds & Picks Tonight: Lakers Underrated at Home**: [Link](https://www.oddsshark.com/nba/knicks-lakers-picks-odds-march-8-2026)
+- **Live Updates: News, scores & highlights from 10-game Sunday**: [Link](https://www.nba.com/news/live-updates-donovan-mitchell-returns-to-lead-abc-doubleheader-featuring-cavs-celtics-knicks-lakers)
+- **Chalkboard promo code NYPOST: Get a 100% deposit match up to $100 + free pick for Knicks vs. Lakers**: [Link](https://nypost.com/2026/03/08/betting/chalkboard-promo-code-nypost-get-a-100-deposit-match-up-to-100-free-pick-for-knicks-vs-lakers/)
+
+
+### chankas cyc - universitario (N/A, 08/03/2026 15:33 Lima)
+
+- **Parte médico**: [Link](https://universitario.pe/noticias/noticias-primer-equipo/parte-medico-16)
+- **Edison Flores y Héctor Fértoli no jugarán con Universitario vs. Chankas CYC**: [Link](https://www.espn.com.ar/futbol/peru/nota/_/id/16407667/edison-orejas-flores-rayo-fertoli-bajas-en-universitario-vs-chankas)
+- **Universitario vs. Los Chankas EN VIVO: minuto a minuto por internet gratis vía Liga 1 MAX**: [Link](https://depor.com/futbol-peruano/descentralizado/universitario-vs-los-chankas-en-vivo-hoy-minuto-a-minuto-liga-1-max-futbol-libre-tv-movistar-tv-directv-zapping-y-canales-de-transmision-en-directo-por-internet-torneo-apertura-2026-noticia/)
+
+
+### alexander zverev (N/A, 08/03/2026 15:33 Lima)
+
+- **After watching Federer & Djokovic as a kid, Nakashima in Indian Wells spotlight**: [Link](https://www.atptour.com/en/news/nakashima-indian-wells-2026-feature)
+- **[UPDATED R3]. Prediction, H2H of Brandon Nakashima’s draw vs Zverev, Cobolli, Auger-Aliassime, Sinner, Alcaraz to win the Indian Wells**: [Link](https://tennistonic.com/tennis-news/970349/updated-r3-prediction-h2h-of-brandon-nakashimas-draw-vs-zverev-cobolli-auger-aliassime-sinner-alcaraz-to-win-the-indian-wells/)
+- **ATP Indian Wells Best Bets Including Alexander Zverev vs Brandon Nakashima**: [Link](https://lastwordonsports.com/tennis/2026/03/08/atp-indian-wells-best-bets-including-alexander-zverev-vs-brandon-nakashima/)
+
+
+### alianza lima vs melgar (N/A, 08/03/2026 15:33 Lima)
+
+- **Cuándo juegan Alianza Lima vs. Melgar por la Liga 1: equipo, fecha, hora y TV en vivo**: [Link](https://www.espn.com.pe/futbol/peru/nota/_/id/16394752/alianza-lima-vs-melgar-por-la-liga-1-equipo-fecha-hora-y-tv-en-vivo)
+- **Ex Alianza Lima vuelve a Matute y lanza dura advertencia en busca de su revancha: "Tratar de..."**: [Link](https://libero.pe/futbol-peruano/alianza-lima/2026/03/07/ex-alianza-lima-vuelve-matute-lanza-dura-advertencia-en-busca-de-su-revancha-tratar-de-269941)
+- **Pablo Guede sorprende con polémica alineación de Alianza Lima ante Melgar**: [Link](https://bolavip.com/pe/alianza-lima/pablo-guede-sorprende-con-polemica-alineacion-de-alianza-lima-ante-melgar)
+
+
+### lyon vs. lens (N/A, 08/03/2026 15:33 Lima)
+
+- **Match Preview: Lyon vs. Lens – A Coupe de France Quarter-Final Clash**: [Link](https://www.365scores.com/news/match-preview-lyon-vs-lens-a-coupe-de-france-quarter-final-clash)
+- **OL: Moussa Niakhaté issues apology after his penalty miss in Coupe de France**: [Link](https://ca.sports.yahoo.com/news/ol-moussa-niakhat-issues-apology-194500180.html)
+- **Full-length Replay: Quarterfinal: Olympique Lyonnais vs RC Lens**: [Link](https://www.foxsports.com/replay/fmc-2pdbjpx8xj1lxirh)
+
+
+### temblor hoy (N/A, 08/03/2026 15:33 Lima)
+
+- **Sismo en Lima: temblor de 3.8 grados en Chilca se sintió en varios distritos de la capital**: [Link](https://peru21.pe/lima/sismo-de-38-en-chilca-sacude-lima-sin-danos-reportados/)
+- **Dos sismos de regular magnitud remecieron la región Cajamarca este sábado**: [Link](https://rpp.pe/peru/cajamarca/cajamarca-dos-sismos-de-regular-magnitud-remecieron-la-region-este-sabado-noticia-1679070)
+- **Temblor HOY en Lima, 8 de marzo, según IGP: ¿de qué magnitud fue el último sismo?**: [Link](https://larepublica.pe/sociedad/2026/03/08/temblor-en-peru-hoy-domingo-8-de-marzo-del-2026-magnitud-epicentro-y-mas-sobre-sismos-recientes-segun-igp-ultimo-sismo-en-lima-ica-callao-y-otras-provincias-atmp-117971)
+
+
+### valencia c. f. - alavés (N/A, 08/03/2026 15:33 Lima)
+
+- **Apuestas y Pronóstico del Valencia vs Alavés 08/03/26**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2026/marzo/pronostico-valencia-vs-alaves-08-03-26)
+- **LaLiga EA Sports: Valencia y Alavés se miden por la fecha 27**: [Link](https://rpp.pe/futbol/ligas-internacionales/laliga-ea-sports-valencia-y-alaves-se-miden-por-la-fecha-27-noticia-1679041)
+- **Valencia-Alavés, en directo online: ¿Cuándo y dónde ver el partido? - LaLiga 2025-26, Jornada 27 - Resultado en vivo y goles - Highlights - Hoy**: [Link](https://espanol.eurosport.com/futbol/la-liga/2025-2026/live-valencia-alaves_mtc1610839/live-commentary.shtml)
+
+
+### lyon - paris fc (N/A, 08/03/2026 15:33 Lima)
+
+- **PREVIEW | Lyon vs Paris FC - team news, lineups, predictions**: [Link](https://sports.yahoo.com/articles/preview-lyon-vs-paris-fc-195000185.html)
+- **LIVE! Olympique Lyon vs Paris FC in Ligue 1 on beIN SPORTS**: [Link](https://www.beinsports.com/en-us/soccer/ligue-1/articles/live-olympique-lyon-vs-paris-fc-in-ligue-1-on-bein-sports-2026-03-08)
+- **Lyon Set to Host Paris FC in Ligue 1 Showdown**: [Link](https://news.ssbcrack.com/lyon-set-to-host-paris-fc-in-ligue-1-showdown/)
+
+
+### juan pablo ii college (N/A, 08/03/2026 15:33 Lima)
+
+- **Jack Durán rompe el silencio sobre su bronca con Christian Cueva en Trujillo: "Dentro de la cancha no hay amigos"**: [Link](https://willax.pe/deportes/jack-duran-bronca-christian-cueva-trujillo-willax)
+- **Jack Durán recuerda con humor polémica pelea con Christian Cueva antes de jugar juntos en Juan Pablo II: "Lo que pasó en Trujillo quedó ahí"**: [Link](https://larepublica.pe/deportes/2026/03/06/jack-duran-recuerda-con-humor-polemica-pelea-con-christian-cueva-antes-de-jugar-juntos-en-juan-pablo-ii-lo-que-paso-en-trujillo-quedo-ahi-455502)
+- **🔴#ENVIVO | Juan Pablo II College vence por 2-0 a ADT en el estadio Unión Tarma**: [Link](https://ovacion.pe/noticias/liga1-2026/envivo-juan-pablo-ii-college-vence-2-0-adt-estadio-union-tarma)
+
+
 ### fenerbahçe - samsunspor (N/A, 08/03/2026 11:36 Lima)
 
 - **Fenerbahçe – Samsunspor Maç Kadrosu ve Muhtemel 11’ler**: [Link](https://www.alanyapostasi.com.tr/fenerbahce-samsunspor-mac-kadrosu-ve-muhtemel-11ler)
@@ -962,73 +1032,5 @@ Sin noticias relacionadas disponibles.
 - **Statement | Al Kholood vs Al Qadsiah match**: [Link](https://www.spl.com.sa/en/news/1002345/statement-al-kholood-v-al-qadsiah-match)
 - **Don’t miss out on these exhilarating odds: Accumulator Tips for March 05, 2026**: [Link](https://www.telecomasia.net/sports-betting/tips/accumulator/accumulator-tip-for-march-05-predictions-betting-tips-and-odds-05-march-2026/)
 - **Al Kholood vs Al Qadsiah Preview & Prediction**: [Link](https://www.thestatszone.com/al-kholood-vs-al-qadsiah-preview-prediction-174120)
-
-
-### real madrid - bologna (N/A, 05/03/2026 15:43 Lima)
-
-- **Real Madrid-Virtus Bologna: aiming for the 10th consecutive home victory in the EuroLeague**: [Link](https://www.realmadrid.com/en-US/news/basket/first-team/fixtures/real-madrid-virtus-bolonia-05-03-2026)
-- **Virtus faces another test against the Spanish giants. Ivanovic: "Defense and patience against Real Madrid."**: [Link](https://sport.quotidiano.net/en/basket/virtus/virtus-un-altro-esame-con-39319545)
-- **Abalde: "We want to continue in the line of the last game"**: [Link](https://www.realmadrid.com/en-US/news/basket/first-team/latest-news/abaldde-el-partido-de-manana-es-muy-importante-04-03-2026)
-
-
-### kristi noem (N/A, 05/03/2026 15:43 Lima)
-
-- **Exclusive: Trump tells Reuters he did not sign off on ad campaign featuring homeland security secretary**: [Link](https://www.reuters.com/world/us/trump-says-he-didnt-sign-off-200-million-border-security-ad-campaign-2026-03-05/)
-- **Exclusive: Trump Considering Mullin as Replacement for Noem, Privately Furious over Senate Testimony**: [Link](https://www.nationalreview.com/news/exclusive-trump-privately-furious-with-noem-over-senate-testimony-considering-mullin-as-replacement/)
-- **Trump fires homeland security secretary Kristi Noem as Democrats welcome her exit – US politics live**: [Link](https://www.theguardian.com/us-news/live/2026/mar/05/donald-trump-war-powers-latest-news-updates)
-
-
-### fulham vs. tottenham (N/A, 05/03/2026 15:43 Lima)
-
-- **Barcelona Step Up Move to Sign 'World-Class' Tottenham Star, He's Desperate to Leave**: [Link](https://www.givemesport.com/barcelona-tottenham-micky-van-de-ven-wants-to-leave-transfer/)
-- **Football gossip: Van de ven, Fernandes, Kolo Muani, Wilson, Mount, Vlahovic, Laimer**: [Link](https://www.bbc.com/sport/football/articles/c93w1vwdde4o)
-- **Barça pushing to lure Dutch defender**: [Link](https://foot-africa.com/en/news/barca-pushing-to-lure-dutch-defender-1110116/)
-
-
-### lyon - lens (N/A, 05/03/2026 15:43 Lima)
-
-- **Cuándo juegan Olympique Lyon vs. Lens por los cuartos de final de la Copa Francia: equipo, fecha, hora y TV en vivo**: [Link](https://www.espn.com.pe/futbol/francia/nota/_/id/16378940/cundo-juegan-olympique-lyon-vs-lens-por-los-cuartos-de-final-de-la-copa-francia-equipo-fecha-hora-y-tv-en-vivo)
-- **Pronóstico Lyon vs. Lens - Por un cupo en la semifinales de copa**: [Link](https://gainblers.com/pe/pronosticos/futbol/francia/copa/pronostico-lyon-lens-05-03-2026/)
-- **Lyon predicted XI v Lens: Roman Yaremchuk to partner Endrick in attack**: [Link](https://sports.yahoo.com/articles/lyon-predicted-xi-v-lens-085000823.html)
-
-
-### juan pablo varillas (N/A, 05/03/2026 13:09 Lima)
-
-- **JNE abre participación para debates, IPD entrega departamentos a medallistas, obras obstaculizan inicio del año escolar**: [Link](https://elcomercio.pe/opinion/columnistas/jne-abre-participacion-para-debates-ipd-entrega-departamentos-a-medallistas-obras-obstaculizan-inicio-del-ano-escolar-noticia/)
-- **IPD entregó departamentos a deportistas Diego Elías y Juan Pablo Varillas**: [Link](https://andina.pe/agencia/noticia-ipd-entrego-departamentos-a-deportistas-diego-elias-y-juan-pablo-varillas-1065130.aspx)
-- **Diego Elías y Juan Pablo Varillas recibieron departamentos del IPD por Lima 2019**: [Link](https://rpp.pe/multideportes/panamericanos/medallistas-de-lima-2019-diego-elias-y-juan-pablo-varillas-reciben-departamentos-por-sus-logros-deportivos-noticia-1678268)
-
-
-### karvina - viktoria plzeň (N/A, 05/03/2026 13:09 Lima)
-
-Sin noticias relacionadas disponibles.
-
-
-### la momia (N/A, 05/03/2026 13:09 Lima)
-
-- **‘La momia 4’ con Brendan Fraser reescribe el canon y obvia la peor de la saga: “Rachel está en esta”**: [Link](https://as.com/meristation/cine/la-momia-4-con-brendan-fraser-reescribe-el-canon-y-obvia-la-peor-de-la-saga-rachel-esta-en-esta-f202603-n/)
-- **'La Momia 4' no va a respetar el resto de la saga. De hecho, hay una película que eliminará por completo**: [Link](https://www.espinof.com/proyectos/momia-4-eliminara-pelicula-saga-continuidad-no-habra-muchos-fans-quejandose)
-- **'La Momia 4' borra del mapa la entrega más odiada por los fans: "Rachel Weisz está en esta, eso responde a la pregunta".**: [Link](https://www.sensacine.com/noticias/cine/noticia-1000192972/)
-
-
-### ticket master (N/A, 05/03/2026 13:09 Lima)
-
-- **Former Barclays Center Executive Says Live Nation Threatened to Pull Tours**: [Link](https://www.nytimes.com/2026/03/04/arts/music/live-nation-trial-barclays-center.html)
-- **‘The concert ticket industry is broken,’ justice department says as Ticketmaster trial begins**: [Link](https://www.theguardian.com/business/2026/mar/03/ticketmaster-trial-begins-concert-tickets)
-- **Live Nation argues it's not a monopoly during DOJ antitrust trial**: [Link](https://www.nbcnews.com/business/business-news/live-nation-argues-not-monopoly-doj-antitrust-trial-rcna261581)
-
-
-### dia de la mujer peru (N/A, 05/03/2026 13:09 Lima)
-
-- **Día de la Mujer: la ley protege derechos; el verdadero reto es aplicarlos efectivamente**: [Link](https://elperuano.pe/noticia/290316-dia-de-la-mujer-la-ley-protege-derechos-el-verdadero-reto-es-aplicarlos-efectivamente)
-- **Violencia en Ayacucho: 55 % de mujeres afectadas**: [Link](https://jornada.com.pe/55-de-mujeres-sufrio-violencia-en-ayacucho-region-supera-promedio-nacional-y-registra-mas-de-560-denuncias-por-violacion-en-un-ano/)
-- **Marcha 8M 2026 Perú: colectivos convocan movilización este 7 de marzo en el Día Internacional de la Mujer**: [Link](https://www.infobae.com/peru/2026/03/04/marcha-8m-2026-peru-colectivos-convocan-movilizacion-este-7-de-marzo-en-el-dia-internacional-de-la-mujer/)
-
-
-### ticketmaster (N/A, 05/03/2026 13:09 Lima)
-
-- **Gorillaz en Lima: precios de entradas y cómo comprar en la preventa para su concierto en Arena 1 Park**: [Link](https://rpp.pe/musica/conciertos/gorillaz-en-lima-2026-precios-y-como-comprar-entradas-en-ticketmaster-concierto-en-arena-1-park-noticia-1678649)
-- **Gorillaz en Perú: euforia por preventa de entradas en Ticketmaster genera largas colas y alta demanda**: [Link](https://www.infobae.com/peru/2026/03/05/euforia-en-peru-por-preventa-de-entradas-para-gorillaz-largas-colas-y-alta-demanda-en-ticketmaster/)
-- **Gorillaz en Perú: la campaña de intriga que anticipó su debut en Lima**: [Link](https://www.mercadonegro.pe/marketing/gorillaz-llega-a-peru-la-campana-que-anticipo-su-debut-en-lima/)
 
 
