@@ -1,3 +1,73 @@
+### fenerbahçe - samsunspor (N/A, 08/03/2026 11:36 Lima)
+
+- **Fenerbahçe – Samsunspor Maç Kadrosu ve Muhtemel 11’ler**: [Link](https://www.alanyapostasi.com.tr/fenerbahce-samsunspor-mac-kadrosu-ve-muhtemel-11ler)
+- **Trendyol Süper Lig'de AVAR Değişikliği**: [Link](https://www.tff.org/default.aspx?pageID=248&ftxtID=49894)
+- **Fenerbahçe Samsunspor maçı AVAR değişti: Mustafa Savranlar yerine Çağdaş Altay atandı**: [Link](https://www.gzt.com/spor/fenerbahce-samsunspor-maci-avar-degisti-mustafa-savranlar-yerine-cagdas-altay-atandi-4022393)
+
+
+### genoa - roma (N/A, 08/03/2026 11:36 Lima)
+
+- **Diretta Genoa-Roma, oggi Serie A. Live risultato, classifica e aggiornamenti**: [Link](https://www.adnkronos.com/sport/diretta-genoa-roma-oggi-serie-a-live-risultato-aggiornamenti-classifica_7Fr5FjLQHHxxVjRr8LCLiU)
+- **Genoa-Roma: Gasperini sfida De Rossi a Marassi, giallorossi a caccia del quarto posto**: [Link](https://www.ilmessaggero.it/video/roma/genoa_roma_gasperini_de_rossi_quarto_posto_marassi-9403480.html)
+- **Roma, Gasp sceglie Venturino: il dato incredibile sul classe 2006**: [Link](https://www.corrieredellosport.it/news/calcio/serie-a/roma/2026/03/08-147139083/roma_gasp_sceglie_venturino_il_dato_incredibile_sul_classe_2006)
+
+
+### losc - lorient (N/A, 08/03/2026 11:36 Lima)
+
+- **Les compositions probables pour LOSC – FC Lorient**: [Link](https://lepetitlillois.com/2026/03/08/les-compositions-probables-pour-losc-fc-lorient-2/)
+- **L1 (J25) : Tout savoir sur Lille – Lorient**: [Link](https://www.sport365.fr/l1-j25-savoir-lille-lorient-10798104.html)
+- **DIRECT - Ligue 1 : suivez Lille-Lorient sur l'antenne d'Ici Nord**: [Link](https://www.francebleu.fr/hauts-de-france/nord-59/lille/direct-ligue-1-suivez-lille-lorient-sur-l-antenne-d-ici-nord-9605583)
+
+
+### sevilla vs (N/A, 08/03/2026 11:36 Lima)
+
+- **Cuándo juegan Sevilla vs. Rayo Vallecano por LaLiga de España**: [Link](https://www.espn.com.ar/futbol/espana/nota/_/id/16398664/sevilla-vs-rayo-vallecano-por-la-laliga-espana-equipo-fecha-y-hora-en-vivo)
+- **Apuestas y Pronóstico del Sevilla vs Rayo Vallecano 08/03/26**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/primera-division/2026/marzo/pronostico-sevilla-vs-rayo-vallecano-08-03-26)
+- **Alineación posible del Sevilla ante el Rayo en LaLiga EA Sports**: [Link](https://as.com/futbol/primera/alineacion-posible-del-sevilla-ante-el-rayo-en-laliga-ea-sports-f202603-n/)
+
+
+### leeds - norwich (N/A, 08/03/2026 11:36 Lima)
+
+- **FORMER BOSS FARKE WARY OF CANARIES**: [Link](https://www.pressreader.com/uk/the-football-league-paper/20260308/281938844413243)
+- **Leeds vs Norwich: Get up to £40 in free bets on football with talkSPORT BET**: [Link](https://www.thesun.co.uk/sport/38419077/leeds-vs-norwich-free-bets-football-talksport-bet/)
+- **Krul’s Message to Norwich: "Build Your Own Story" at Elland Road**: [Link](https://readnorwich.com/2026/03/08/tim-krul-tells-city-to-believe-at-elland-road-go-there-with-real-confidence)
+
+
+### nac - feyenoord (N/A, 08/03/2026 11:36 Lima)
+
+- **Robin van Persie voelt ‘heel veel vertrouwen’ bij Feyenoord, maar intern wordt uitduel met NAC als cruciaal beschouwd**: [Link](https://www.ad.nl/voetbal/robin-van-persie-voelt-heel-veel-vertrouwen-bij-feyenoord-maar-intern-wordt-uitduel-met-nac-als-cruciaal-beschouwd~a6d8e81a/)
+- **LIVE | Sowah repareert de schade al snel en brengt NAC op gelijke hoogte met Feyenoord**: [Link](https://www.bndestem.nl/nac/live-sowah-repareert-de-schade-al-snel-en-brengt-nac-op-gelijke-hoogte-met-feyenoord~afbf40a1/)
+- **De Bespreking - met Carl Hoefkens #27: 'Wij moeten er een fysieke strijd van maken'**: [Link](https://www.nac.nl/nieuws/de-bespreking-met-carl-hoefkens-27-wij-moeten-er-een-fysieke-strijd-van-maken)
+
+
+### milan vs inter (N/A, 08/03/2026 11:36 Lima)
+
+- **Sneijder reveals Inter’s key midfielder vs. Milan and what Mourinho said before 2009 derby**: [Link](https://football-italia.net/sneijder-inter-key-midfielder-mourinho-derby/)
+- **Sky: Modric buys 60 tickets for friends and family ahead of potential ‘final’ derby**: [Link](https://sempremilan.com/modric-60-tickets-final-derby)
+- **Allegri: "Serie A title race? We focus on ourselves and on our objective"**: [Link](https://milanreports.com/2026/03/08/allegri-focus-on-ourselves-objective/)
+
+
+### genoa vs roma (N/A, 08/03/2026 11:36 Lima)
+
+- **Preview: Genoa vs Roma - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/genoa/preview/genoa-vs-roma-prediction-team-news-lineups_593300.html)
+- **De Rossi has ‘desire for redemption’ against Roma, sends message to Dybala**: [Link](https://football-italia.net/de-rossi-desire-redemption-roma-dybala-message/)
+- **Gasperini to give Venturino a chance versus Genoa**: [Link](https://romapress.net/gasperini-to-give-venturino-a-chance-versus-genoa/)
+
+
+### al fondo hay sitio (N/A, 08/03/2026 11:36 Lima)
+
+- **Al Fondo Hay Sitio 2026: Conoce la fecha y hora del estreno**: [Link](https://www.americatv.com.pe/al-fondo-hay-sitio/al-fondo-hay-sitio-2026-esta-fecha-y-hora-gran-estreno-noticia-163238)
+- **‘Al Fondo Hay Sitio’ se estrenará este 18 de marzo**: [Link](https://canaln.pe/actualidad/al-fondo-hay-sitio-se-estrenara-este-18-marzo-n490752)
+- **¿Miguel Ignacio fue asesinado? ‘Al fondo hay sitio’ lanza inquietante avance y anuncia fecha y hora de estreno de su nueva temporada**: [Link](https://larepublica.pe/cine-series/2026/03/07/miguel-ignacio-fue-asesinado-al-fondo-hay-sitio-lanza-inquietante-avance-y-anuncia-fecha-y-hora-de-estreno-de-su-nueva-temporada-568029)
+
+
+### getafe vs real betis (N/A, 08/03/2026 11:36 Lima)
+
+- **🚨 No Antony, Djené starts...confirmed line-ups for Getafe-Betis**: [Link](https://sports.yahoo.com/articles/no-antony-djen-starts-confirmed-140700961.html)
+- **Getafe vs Real Betis - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/getafe/news/getafe-vs-betis-prediction-team-news-lineups_593350.html)
+- **Álvaro Fidalgo and Betis Face the 'Giant Killer': A True Test at the Coliseum Against Getafe**: [Link](https://www.soyfutbol.com/en/news/alvaro-fidalgo-and-betis-face-the-giant-killer-a-true-test-at-the-coliseum-against-getafe-20260307-0057.html)
+
+
 ### cuándo es día de la mujer (N/A, 08/03/2026 08:00 Lima)
 
 - **Día Internacional de la Mujer: ¿por qué se celebra hoy, 8 de marzo?**: [Link](https://www.infobae.com/sociedad/2026/03/08/dia-internacional-de-la-mujer-por-que-se-celebra-hoy-8-de-marzo/)
@@ -960,73 +1030,5 @@ Sin noticias relacionadas disponibles.
 - **Gorillaz en Lima: precios de entradas y cómo comprar en la preventa para su concierto en Arena 1 Park**: [Link](https://rpp.pe/musica/conciertos/gorillaz-en-lima-2026-precios-y-como-comprar-entradas-en-ticketmaster-concierto-en-arena-1-park-noticia-1678649)
 - **Gorillaz en Perú: euforia por preventa de entradas en Ticketmaster genera largas colas y alta demanda**: [Link](https://www.infobae.com/peru/2026/03/05/euforia-en-peru-por-preventa-de-entradas-para-gorillaz-largas-colas-y-alta-demanda-en-ticketmaster/)
 - **Gorillaz en Perú: la campaña de intriga que anticipó su debut en Lima**: [Link](https://www.mercadonegro.pe/marketing/gorillaz-llega-a-peru-la-campana-que-anticipo-su-debut-en-lima/)
-
-
-### chatgpt (N/A, 05/03/2026 13:09 Lima)
-
-- **OpenAI Scales Back Shopping Plans for ChatGPT**: [Link](https://www.theinformation.com/articles/openai-scales-back-shopping-plans-chatgpt)
-- **Booking Stock, Expedia, DoorDash Jump. Here's What's Behind A 'Relief Rally.'**: [Link](https://www.investors.com/news/technology/booking-stock-openai-shopping-expedia-doordash/)
-- **Online travel stocks rise after report that OpenAI to scale back direct checkouts**: [Link](https://finance.yahoo.com/news/online-travel-stocks-rise-report-164851767.html)
-
-
-### gorillaz (N/A, 05/03/2026 13:09 Lima)
-
-- **Gorillaz announce Denver concert as part of North American tour**: [Link](https://www.denvergazette.com/2026/03/03/gorillaz-announce-denver-concert-as-part-of-north-american-tour/)
-- **Band known as worlds most successful virtual act coming to Ball Arena in October**: [Link](https://kdvr.com/news/local/band-known-as-worlds-most-successful-virtual-act-coming-to-ball-arena-in-october/)
-- **Gorillaz to play Seattle’s Climate Pledge Arena on Halloween**: [Link](https://mynorthwest.com/lifestyle/gorillaz-seattle-halloween/4212135)
-
-
-### teams (N/A, 05/03/2026 13:09 Lima)
-
-- **2026 NFL free agency tracker: Latest signings, trades, contract info for all 32 teams**: [Link](https://www.nfl.com/news/2026-nfl-free-agency-tracker-latest-signings-trades-contract-info-for-all-32-teams)
-- **2026 NFL Free Agency Predictions: Playing fantasy football matchmaker for Kyler Murray, Kenneth Walker III, more**: [Link](https://sports.yahoo.com/fantasy/article/2026-nfl-free-agency-predictions-playing-fantasy-football-matchmaker-for-kyler-murray-kenneth-walker-iii-more-154737606.html)
-- **2026 NFL free agency: Ranking the top 100 players available**: [Link](https://www.espn.com/nfl/story/_/id/48043945/2026-nfl-free-agency-top-100-players-ranking-available-hendrickson-willis)
-
-
-### zoom (N/A, 05/03/2026 13:09 Lima)
-
-- **Zoom (ZM) Shares Skyrocket, What You Need To Know**: [Link](https://finance.yahoo.com/news/zoom-zm-shares-skyrocket-know-214542874.html)
-- **Zoom Communications Inc (ZM) Shares Up 4.31% on Mar 4**: [Link](https://www.gurufocus.com/news/8677939/zoom-communications-inc-zm-shares-up-431-on-mar-4?mobile=true)
-- **Zoom (ZM) Stock Jumps 6.2% in Software Sector Rally — What Investors Need to Know**: [Link](https://blockonomi.com/zoom-zm-stock-jumps-6-2-in-software-sector-rally-what-investors-need-to-know/)
-
-
-### canal 4 en vivo (N/A, 05/03/2026 08:13 Lima)
-
-- **Barcelona 3-0 Atlético: resumen, goles y resultado**: [Link](https://as.com/futbol/copa_del_rey/barcelona-atletico-de-madrid-hoy-en-directo-copa-del-rey-en-vivo-ultima-hora-en-el-spotify-camp-nou-f202603-d/)
-- **La Copa de los imposibles**: [Link](https://www.marca.com/futbol/atletico/2026/03/04/copa-imposibles.html)
-- **¿Qué canal transmite FC Barcelona vs. Atl. de Madrid por vuelta de la Copa del Rey 2026?**: [Link](https://elcomercio.pe/mag/usa/en-vivo-us/que-canal-transmite-fc-barcelona-vs-atletico-de-madrid-en-vivo-hoy-por-copa-del-rey-2026-en-eeuu-mexico-y-espana-donde-ver-canales-tv-online-nnda-nnrt-noticia/)
-
-
-### precio del dolar (N/A, 05/03/2026 08:13 Lima)
-
-- **Precio del dólar en Perú del jueves 5 de marzo: cuál es el tipo de cambio**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-a-cuanto-esta-el-dolar-este-jueves-5-de-marzo-2026-conoce-el-tipo-de-cambio-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
-- **¿Cómo inició el dólar la jornada de hoy?**: [Link](https://peru21.pe/economia/dolar-en-peru-cotizacion-y-tendencia-actual-hoy/)
-- **¿Cuál es la cotización del dólar hoy miércoles 4 de marzo del 2026?**: [Link](https://elperuano.pe/noticia/290406-cual-es-la-cotizacion-del-dolar-hoy-miercoles-4-de-marzo-del-2026)
-
-
-### trome (N/A, 05/03/2026 08:13 Lima)
-
-- **¡Soltó todo! Monserrat acusó a Melcochita de ludópata y hasta lo tildó de “cochino”**: [Link](https://trome.com/espectaculos/tv/monserrat-acuso-a-melcochita-de-ludopata-y-hasta-lo-tildo-de-cochino-video-historias-de-farandula-noticia/)
-- **Monserrat Seminario arremete contra Melcochita: “Es ludópata y hasta para la intimidad tenía que lavarlo”**: [Link](https://www.infobae.com/peru/2026/03/05/monserrat-seminario-arremete-contra-melcochita-es-ludopata-y-hasta-para-la-intimidad-tenia-que-lavarlo/)
-- **Monserrat pone condición a Melcochita para darle el divorcio: "Que firme para irme del país con mis hijas"**: [Link](https://www.atv.pe/noticia/monserrat-pone-condicion-a-melcochita-para-darle-el-divorcio-que-firme-para-irme-del-pais-con-mis-hijas/)
-
-
-### ana paula consorte (N/A, 05/03/2026 08:13 Lima)
-
-- **"No estamos juntos": Ana Paula Consorte sorprende al confirmar su separación de Paolo Guerrero**: [Link](https://rpp.pe/famosos/farandula/ana-paula-consorte-revela-su-separacion-de-paolo-guerrero-en-programa-mesa-caliente-noticia-1678621)
-- **Ana Paula Consorte lanza CONTUNDENTE mensaje tras ruptura con Paolo Guerrero: "No tienes que moldearte para encajar"**: [Link](https://www.atv.pe/noticia/ana-paula-consorte-lanza-contundente-mensaje-tras-ruptura-con-paolo-guerrero-no-tienes-que-moldearte-para-encajar/)
-- **¿Paolo Guerrero y Ana Paula Consorte terminaron?**: [Link](https://www.americatv.com.pe/mas-espectaculos/paolo-guerrero-y-ana-paula-terminaron-esto-levanto-sospechas-noticia-163192)
-
-
-### pokopia (N/A, 05/03/2026 08:13 Lima)
-
-- **Play a Limited Time Event in Pokémon Pokopia on Nintendo Switch 2**: [Link](https://www.pokemon.com/us/pokemon-news/play-a-limited-time-event-in-pokemon-pokopia-on-nintendo-switch-2)
-- **Pokemon Pokopia's Lore Has Huge Implications for the Pokemon Universe**: [Link](https://www.ign.com/articles/pokemon-pokopias-lore-has-huge-implications-for-the-pokemon-universe)
-- **The spin-off game starring a 'weirdo' Pokémon that's got reviewers raving**: [Link](https://www.bbc.com/news/articles/cy5791kekwgo)
-
-
-### incendio en comas (N/A, 05/03/2026 08:13 Lima)
-
-Sin noticias relacionadas disponibles.
 
 
