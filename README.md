@@ -1,3 +1,73 @@
+### f1 en vivo (N/A, 08/03/2026 00:11 Lima)
+
+- **F1 EN VIVO: la carrera del GP de Australia de la F1 2026 | Live Text**: [Link](https://lat.motorsport.com/f1/live-text/f1-directo-carrera-australia-2026/1126448/)
+- **“En el 2026 no ganará necesariamente el más rápido”: Daniel San Román y su análisis sobre la temporada 2026 de Fórmula 1**: [Link](https://elcomercio.pe/deporte-total/formula-1/formula-1-en-el-2026-no-ganara-necesariamente-el-mas-rapido-daniel-san-roman-y-su-analisis-sobre-la-temporada-2026-gp-de-australia-noticia/)
+- **Diferentes autos, cambios en las reglas y el regreso de dos pilotos: lo nuevo de la Fórmula 1 para 2026**: [Link](https://cnnespanol.cnn.com/2026/03/06/deportes/nuevo-formula-1-para-2026-orix)
+
+
+### pluto tv (N/A, 08/03/2026 00:11 Lima)
+
+- **The Best Sci-Fi Show You Haven’t Seen Is Finally Streaming For Free**: [Link](https://www.inverse.com/entertainment/fringe-streaming-pluto-tv)
+- **PARA Stock Today: March 7 – Pluto TV Adds Fringe, FAST Deals Heat Up**: [Link](https://meyka.com/blog/para-stock-today-march-7-pluto-tv-adds-fringe-fast-deals-heat-up-0703/)
+- **Pluto TV Adds 5 New Channels, Including a 24/7 Property Brothers Channel**: [Link](https://cordcuttersnews.com/pluto-tv-adds-5-new-channels-including-a-24-7-property-brothers-channel/)
+
+
+### whitecaps - timbers (N/A, 08/03/2026 00:11 Lima)
+
+- **For the Whitecaps, B.C. Place's bad turf is an advantage**: [Link](https://theprovince.com/sports/soccer/mls/vancouver-whitecaps/whitecaps-bc-place-bad-turf-advantage)
+- **PREVIEW: 'Caps hit the road for first MLS away match of the season, face Cascadia rivals Portland | Watch on Apple TV, TSN**: [Link](https://www.whitecapsfc.com/news/preview-caps-face-cascadia-rivals-portland)
+- **Timbers 360: Conversation with Phil Neville; preview of Vancouver match**: [Link](https://www.kgw.com/video/sports/soccer/timbers/timbers-360-march-6-2026/283-590a6fc0-071f-47f2-b4e8-e8259a4f90b5)
+
+
+### feliz día de la mujer (N/A, 08/03/2026 00:11 Lima)
+
+- **50 frases poderosas por el Día de la Mujer para dedicar el 8 de marzo**: [Link](https://www.infobae.com/peru/2026/03/06/50-frases-poderosas-por-el-dia-de-la-mujer-para-dedicar-el-8-de-marzo/)
+- **▷ 30 tarjetas del 8M Día de la Mujer 2026 con frases celebres y lemas para pancartas sobre mujeres valientes**: [Link](https://gestion.pe/mix/respuestas/30-tarjetas-del-8m-dia-de-la-mujer-2026-con-frases-celebres-y-lemas-para-pancartas-sobre-mujeres-valientes-marcha-8-de-marzo-mexico-argentina-nnda-nnrt-noticia/)
+- **De la lucha al empoderamiento: frases para carteles y pancartas para la marcha del 8M**: [Link](https://elpais.com/mexico/2026-03-06/de-la-lucha-al-empoderamiento-frases-para-carteles-y-pancartas-para-la-marcha-del-8m.html)
+
+
+### disney plus (N/A, 08/03/2026 00:11 Lima)
+
+- **The Biggest Movie of 2025 Is Finally Coming to Streaming**: [Link](https://gizmodo.com/the-biggest-movie-of-2025-is-finally-coming-to-streaming-2000729130)
+- **Zootopia 2: the Disney animated film expected for Christmas 2025**: [Link](https://www.sortiraparis.com/en/what-to-do-in-paris/cinema-series/articles/319875-zootopia-2-disney-s-animated-film-hits-video-on-demand)
+- **Meet The Cast Of Zootopia 2: Characters & Voice Actors**: [Link](https://www.disneyplus.com/explore/articles/zootopia-2-cast-character-guide)
+
+
+### raul rosas jr (N/A, 08/03/2026 00:11 Lima)
+
+- **UFC 326 results: Raul Rosas Jr. scores 16 takedowns to beat Rob Font by unanimous decision**: [Link](https://www.mmafighting.com/ufc/475539/ufc-326-results-raul-rosas-jr-scores-16-takedowns-to-beat-rob-font-by-unanimous-decision)
+- **Raul Rosas Jr. Octagon Interview | UFC 326**: [Link](https://www.ufc.com/video/154970)
+- **Font vs Rosas Prediction, Pick, Odds for UFC 326 -- 3/7**: [Link](https://www.actionnetwork.com/mma/rob-font-vs-raul-rosas-prediction-pick-odds-ufc-326-saturday-march-7)
+
+
+### eddie vedder (N/A, 08/03/2026 00:11 Lima)
+
+- **Eddie Vedder Recalls Chaotic Horseback Ride with Bruce Springsteen: 'I Was Trying to Act Not Terrified'**: [Link](https://people.com/eddie-vedder-recalls-chaotic-horseback-ride-with-bruce-springsteen-11918853)
+- **Pearl Jam’s Eddie Vedder Survives a Wild Horse Ride of Terror With Bruce Springsteen**: [Link](https://www.aol.com/pearl-jam-eddie-vedder-survives-155250080.html)
+- **Pearl Jam Frontman Reveals Terrifying Experience Riding Horses with Bruce Springsteen**: [Link](https://www.wideopencountry.com/pearl-jam-frontman-reveals-terrifying-experience-riding-horses-with-bruce-springsteen/)
+
+
+### fc dallas - lafc (N/A, 08/03/2026 00:11 Lima)
+
+- **Son Heung-min, who is tied up 'goalless', is caught in the simulation 'fall' → yellow card... It's embarrassing. "Put your hands up, apple."**: [Link](https://www.starnewskorea.com/en/sports/2026/03/08/2026030811461237772)
+- **LAFC vs. FC Dallas: Prediction, How to Watch for Free (3/7/26)**: [Link](https://globelynews.com/sports/lafc-vs-fc-dallas-prediction-how-to-watch-for-free/)
+- **Son Heung-min Targets First MLS Goal vs Dallas**: [Link](https://www.chosun.com/english/sports-en/2026/03/08/4HBWVJWXANDXJM4THLAUB4ZEO4/)
+
+
+### drew dober (N/A, 08/03/2026 00:11 Lima)
+
+- **Drew Dober plans to (respectfully) extend knockout record at UFC 326**: [Link](https://mmajunkie.usatoday.com/story/sports/ufc/2026/03/06/ufc-326-drew-dober-knockout-record-michael-johnson/88996990007/)
+- **Denver-based UFC fighter representing Colorado in the octagon on Saturday**: [Link](https://www.cbsnews.com/colorado/video/denver-based-ufc-fighter-representing-colorado-in-the-octagon-on-saturday/)
+- **Anything but fighting: Drew Dober loves video games**: [Link](https://www.mmafighting.com/ufc/474768/anything-but-fighting-drew-dober-loves-video-games)
+
+
+### gp australia (N/A, 08/03/2026 00:11 Lima)
+
+- **(3) Australian Grand Prix: F1 race – live**: [Link](https://www.theguardian.com/sport/live/2026/mar/08/australian-grand-prix-f1-melbourne-race-live)
+- **Anthony Davidson provides theory on what was at fault for Oscar Piastri’s Australian GP crash**: [Link](https://www.f1oversteer.com/news/anthony-davidson-provides-theory-on-what-was-at-fault-for-oscar-piastris-australian-gp-crash/)
+- **Valtteri Bottas to Oscar Piastri: List of all big disappointments at a chaotic Australian GP | Hindustan Times**: [Link](https://www.hindustantimes.com/sports/us-sports/valtteri-bottas-oscar-piastri-isack-hadjar-nico-hulkenberg-australian-gp-list-of-all-big-disappointments-crashes-101772944640735.html)
+
+
 ### tigres - monterrey (N/A, 07/03/2026 21:39 Lima)
 
 - **Tigres vs. Rayados: ¿Cómo llegan los equipos al Clásico Regio?**: [Link](https://www.espn.com.ar/futbol/mexico/nota/_/id/16393599/tigres-vs-rayados-clasico-regio-142-liga-mx-clausura-2026-estadio-universitario)
@@ -960,75 +1030,5 @@ Sin noticias relacionadas disponibles.
 - **Gallese fue titular en el empate de Deportivo Cali ante Fortaleza**: [Link](https://ovacion.pe/noticias/peruanos-mundo/gallese-fue-titular-empate-deportivo-cali-ante-fortaleza)
 - **Gallese brilla en empate 1-1 entre Deportivo Cali y Fortaleza**: [Link](https://diarioviral.pe/deportes/gallese-brilla-en-empate-1-1-entre-deportivo-cali-y-fortaleza-52496)
 - **Gallese da la cara; Reyna celebra con un gol y Noriega a un paso de ser campeón: así les fue a los peruanos en el exterior y qué viene para ellos**: [Link](https://elcomercio.pe/deporte-total/seleccion/seleccion-peruana-pedro-gallese-da-la-cara-yordy-reyna-celebra-con-un-gol-y-erick-noriega-a-un-paso-de-ser-campeon-asi-les-fue-a-los-peruanos-en-el-exterior-y-que-viene-para-ellos-noticia/)
-
-
-### hornets - celtics (N/A, 04/03/2026 21:35 Lima)
-
-- **Hornets vs Celtics Picks & Odds Today: Charlotte Deserves Respect As Road Underdog**: [Link](https://www.oddsshark.com/nba/hornets-celtics-picks-odds-march-4-2026)
-- **Grant Williams (knee) ruled out Wednesday**: [Link](https://www.fantasypros.com/nba/news/571859/grant-williams-knee-ruled-out-wednesday.php)
-- **Tiny Nick's Gambling Picks 03/04**: [Link](https://zonecoverage.com/2026/gambling/tiny-nicks-gambling-picks-03-04-4/)
-
-
-### valentina valiente (N/A, 04/03/2026 21:35 Lima)
-
-- **'Valentina Valiente': conoce a los protagonistas y personajes de la nueva telenovela de Latina**: [Link](https://www.infobae.com/peru/2026/03/05/valentina-valiente-conoce-a-los-protagonistas-y-personajes-de-la-nueva-telenovela-de-latina/)
-- **¡No te pierdas este miércoles a las 8:00 p.m. el estreno de Valentina Valiente!**: [Link](https://www.latina.pe/entretenimiento/valentina-valiente/no-te-pierdas-manana-a-las-800-p-m-el-estreno-de-valentina-valiente_20260303/)
-- **'Valentina Valiente' reparto: quiénes son los actores y actrices del elenco completo de la nueva novela de Latina**: [Link](https://larepublica.pe/espectaculos/2026/03/04/valentina-valiente-reparto-quienes-son-los-actores-y-actrices-del-elenco-completo-de-la-nueva-novela-de-latina-112244)
-
-
-### macbook neo precio (N/A, 04/03/2026 21:35 Lima)
-
-- **Apple presenta su nueva y más económica MacBook**: [Link](https://cnnespanol.cnn.com/2026/03/04/ciencia/apple-macbook-neo-trax)
-- **MacBook Neo: Apple vuelve a la carga con el MacBook 'barato'. Esta vez sí es barato de verdad**: [Link](https://www.xataka.com/ordenadores/macbook-neo-caracteristicas-ficha-tecnica-precio-fecha-lanzamiento)
-- **Apple presenta el MacBook Neo de US$599: 5 cosas que debes saber antes de comprarlo**: [Link](https://es-us.noticias.yahoo.com/apple-presenta-el-macbook-neo-de-us599-5-cosas-que-debes-saber-antes-de-comprarlo-180118573.html)
-
-
-### puebla - tigres (N/A, 04/03/2026 21:35 Lima)
-
-- **Qué canal pasa Puebla vs Tigres hoy: dónde ver GRATIS y EN VIVO el partido de la Liga MX**: [Link](https://www.365scores.com/es/news/puebla-vs-tigres-donde-ver-gratis-vivo/)
-- **Liga MX: Por la fecha 9, Puebla recibirá a Tigres**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-por-la-fecha-9-puebla-recibira-a-tigres-noticia-1678437)
-- **¡Muralla felina! Nahuel responde con triple atajada y salva a Tigres**: [Link](https://www.tudn.com/futbol/liga-mx/muralla-felina-nahuel-responde-con-triple-atajada-y-salva-a-tigres-video)
-
-
-### sportivo trinidense - olimpia (N/A, 04/03/2026 21:35 Lima)
-
-- **Transmisión EN VIVO de Sp. Trinidense vs Olimpia: cómo ver el partido por TV o streaming**: [Link](https://www.365scores.com/es/news/transmision-vivo-trinidense-vs-olimpia/)
-- **¡Con todo el potencial para el juego más importante del año!**: [Link](https://onefootball.com/en/news/con-todo-el-potencial-para-el-juego-mas-importante-del-ano-42502227)
-- **Equipos Paraguayos inician participación en la Copa Sudamericana**: [Link](https://www.adndigital.com.py/equipos-paraguayos-inician-participacion-en-la-copa-sudamericana/)
-
-
-### palmeiras - novorizontino (N/A, 04/03/2026 21:35 Lima)
-
-- **Novorizontino x Palmeiras: quando será jogo de volta da final? Saiba horário e onde assistir**: [Link](https://cbn.globo.com/esporte/noticia/2026/03/04/novorizontino-x-palmeiras-quando-sera-jogo-de-volta-da-final-saiba-horario-e-onde-assistir.ghtml)
-- **Carlos Miguel minimiza defesa de pênalti em final: 'Muitos minutos ainda'**: [Link](https://www.uol.com.br/esporte/futebol/ultimas-noticias/2026/03/04/carlos-miguel-palmeiras-defesa-penalti-paulistao.htm)
-- **Torcedores se atrasam para chegar em Barueri e perdem início da final**: [Link](https://www.cnnbrasil.com.br/esportes/futebol/campeonato-paulista/torcedores-se-atrasam-para-chegar-em-barueri-e-perdem-inicio-da-final/)
-
-
-### monterrey - querétaro (N/A, 04/03/2026 21:35 Lima)
-
-- **Transmisión EN VIVO del Monterrey vs Querétaro hoy: cómo mirar el partido por TV o streaming**: [Link](https://www.365scores.com/es/news/monterrey-vs-queretaro-hoy-transmision/)
-- **¡Se desata la polémica! Djuka cae en el área pero el árbitro no señala nada**: [Link](https://www.tudn.com/futbol/liga-mx/se-desata-la-polemica-djuka-cae-en-el-area-pero-el-arbitro-no-senala-nada-video)
-- **Por qué no juega Sergio Canales en Rayados vs. Querétaro por la jornada 9 del Clausura 2026**: [Link](https://bolavip.com/mx/ligamx/por-que-no-juega-sergio-canales-en-rayados-vs-queretaro-por-la-jornada-9-del-clausura-2026)
-
-
-### bienvenida la tarde (N/A, 04/03/2026 21:35 Lima)
-
-- **Melissa Paredes y Bienvenida tu tarde en Esto Es Guerra**: [Link](https://www.americatv.com.pe/esto-es-guerra/melissa-paredes-andy-v-y-bienvenida-tu-tarde-esto-guerra-noticia-163195)
-- **¡Histórico! 'Esto es guerra' anuncia que tendrá a exmiembros de 'Combate' y 'Bienvenida la tarde' en una edición especial del reality de competencia**: [Link](https://larepublica.pe/espectaculos/2026/03/04/historico-esto-es-guerra-anuncia-que-tendra-a-exmiembros-de-combate-y-bienvenida-la-tarde-en-una-edicion-especial-del-reality-de-competencia-131552)
-- **Combate, Esto es guerra, y Bienvenida la tarde: ¡Unidos en un desafío sin precedentes!**: [Link](https://www.infobae.com/video/entretenimiento/combate-esto-es-guerra-y-bienvenida-la-tarde-unidos-en-un-desafio-sin-precedentes/IU8YN7eB/)
-
-
-### aberdeen - celtic f. c. (N/A, 04/03/2026 15:37 Lima)
-
-- **Reo Hatate is the destroyer of the Dons: He must be stopped**: [Link](https://www.heraldscotland.com/sport/25905699.celtic-star-destroyed-aberdeen-must-stopped/)
-- **Sunday’s fightback will mean nothing if we don’t take care of business tonight**: [Link](https://thecelticstar.com/sundays-fightback-will-mean-nothing-if-we-dont-take-care-of-business-tonight/)
-- **How Martin O’Neill could make huge statement of intent at Pittodrie // ACSOM A Celtic State of Mind**: [Link](https://www.celticnewsnow.com/news/how-martin-oneill-could-make-huge-statement-of-intent-at-pittodrie-acsom-a-celtic-state-of-mind/695417/)
-
-
-### liga inglesa (N/A, 04/03/2026 15:37 Lima)
-
-- **Pronóstico Newcastle Manchester United FC - Premier League 04/03/26**: [Link](https://www.sportytrader.com/es/pronosticos/newcastle-manchester-united-331621/)
-- **Newcastle vs. Manchester United: ¡Juega en la Premier League y gana hasta S/. 600,000 con Meridianbet!**: [Link](https://ovacion.pe/noticias/nota-promocional/newcastle-vs-manchester-united-juega-premier-league-gana-hasta-s-600000)
-- **Cuándo juegan Newcastle vs. Manchester United por Premier League: equipo, fecha, hora y TV en vivo**: [Link](https://www.espn.com.ar/futbol/inglaterra/nota/_/id/16380950/newcastle-vs-manchester-united-premier-league-equipo-fecha-hora-y-tv-en-vivo)
 
 
