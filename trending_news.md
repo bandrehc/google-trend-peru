@@ -1,3 +1,31 @@
+### lazio (N/A, 09/03/2026 03:53 Lima)
+
+- **Ratkov titolare, Doig in panchina: le probabili formazioni di Lazio-Sassuolo**: [Link](https://onefootball.com/de/news/ratkov-titolare-doig-in-panchina-le-probabili-formazioni-di-lazio-sassuolo-42527307)
+- **Grosso: "Laurienté ha alzato il livello, Matic c'è! Su Nzola e Volpato..."**: [Link](https://www.fantacalcio.it/news/calcio-italia/08_03_2026/grosso-lauriente-ha-alzato-il-livello-matic-c-e-su-nzola-e-volpato-490063)
+- **La conferenza stampa di Fabio Grosso prima di Lazio-Sassuolo**: [Link](https://www.sassuolocalcio.it/sassuolo-channel-tv/la-conferenza-stampa-di-fabio-grosso-prima-di-lazio-sassuolo/)
+
+
+### reloj (N/A, 09/03/2026 03:53 Lima)
+
+- **EE.UU. cambia al horario de verano en 2026: ¿cuándo adelantar el reloj y qué hay que saber?**: [Link](https://cnnespanol.cnn.com/2026/03/06/eeuu/horario-cambio-verano-2026-adelantar-reloj-orix)
+- **Cambio de horario en California hoy 8 de marzo — a qué hora debes ajustar la hora del reloj y en qué ciudades se aplica**: [Link](https://elcomercio.pe/mag/usa/local-us/cambio-de-horario-en-california-cuando-ocurre-en-2026-a-que-hora-se-ajusta-el-reloj-y-en-que-ciudades-se-aplica-el-dst-nnda-nnrt-noticia/)
+- **ALERTA MÁXIMA con el cambio de horario de verano en 2026: ¿cuándo es y cómo adelantar el reloj en EE. UU.?**: [Link](https://libero.pe/estados-unidos/2026/03/08/alerta-maxima-cambio-de-horario-de-verano-en-2026-cuando-es-como-adelantar-reloj-en-estados-unidos-usa-eeuu-lbeu-142716)
+
+
+### teams (N/A, 09/03/2026 03:53 Lima)
+
+- **‘Save our girls’: Supporters plead for action over Iranian women’s football team in Australia**: [Link](https://www.cnn.com/2026/03/09/sport/australia-iran-women-soccer-asian-cup-intl-hnk)
+- **Australia urged to protect Iranian football team after elimination at Asian Cup**: [Link](https://www.bbc.com/news/articles/cwy8e978xl8o)
+- **Exiled prince urges Australia to protect Iran women’s football team**: [Link](https://www.iranintl.com/en/202603085908)
+
+
+### campeonato mineiro (N/A, 09/03/2026 03:53 Lima)
+
+- **Cruzeiro x Atlético-MG tem briga generalizada no fim da decisão; assista**: [Link](https://ge.globo.com/mg/futebol/campeonato-mineiro/noticia/2026/03/08/cruzeiro-x-atletico-mg-tem-briga-generalizada-no-fim-da-decisao-assista.ghtml)
+- **O goleiro foi empurrado para dentro da rede depois de... ajoelhar-se sobre seu adversário lesionado.**: [Link](https://www.vietnam.vn/pt/thu-mon-bi-danh-vang-vao-luoi-sau-khi-quy-goi-len-nguoi-doi-thu-dang-nam-chan-thuong)
+- **‘Papai tá aqui’: Kaio Jorge provoca Atlético e Renan Lodi após título do Cruzeiro**: [Link](https://rede98.com.br/esportes/cruzeiro/kaio-jorge-provoca-atletico-renan-lodi-titulo-mineiro-cruzeiro/)
+
+
 ### erick osores (N/A, 09/03/2026 00:21 Lima)
 
 - **Erick Osores y su pronóstico sobre el próximo campeón del Torneo Apertura: "Te gana jugando horrible, pero te gana"**: [Link](https://larepublica.pe/deportes/2026/03/08/erick-osores-y-su-pronostico-sobre-el-proximo-campeon-del-torneo-apertura-te-gana-jugando-horrible-pero-te-gana-726200)
@@ -1002,33 +1030,5 @@ Sin noticias relacionadas disponibles.
 - **Macará le ganó el duelo a Orense y logró la histórica clasificación en Sudamericana**: [Link](https://espndeportes.espn.com/futbol/copa-sudamericana/nota/_/id/16394790/macara-le-gano-el-duelo-a-orense-y-logro-la-historica-clasificacion-en-sudamericana)
 - **Macará es el último clasificado a fase de grupos de la Copa Sudamericana**: [Link](https://ovacion.pe/noticias/copa-sudamericana/macara-ultimo-clasificado-fase-grupos-copa-sudamericana)
 - **Transmisión EN VIVO del Orense vs Macará hoy: cómo mirar el partido por TV o streaming**: [Link](https://www.365scores.com/es/news/orense-vs-macara-como-mirar-transmision/)
-
-
-### lakers - nuggets (N/A, 06/03/2026 00:11 Lima)
-
-- **Lakers vs Nuggets Odds & Picks Tonight: LA Undervalued**: [Link](https://www.oddsshark.com/nba/lakers-nuggets-picks-odds-march-5-2026)
-- **Player Props for Luka Doncic and Nikola Jokic in Western Conference Showdown**: [Link](https://news.bet365.com/en-us/article/player-props-for-luka-doncic-and-nikola-jokic-in-western-conference-showdown/2026030517353053392)
-- **Live Updates: Thursday Highlights and Updates Across the NBA**: [Link](https://www.nba.com/news/live-updates-lakers-vs-nuggets-pistons-vs-spurs-and-highlights-across-the-nba)
-
-
-### eddie vedder (N/A, 06/03/2026 00:11 Lima)
-
-- **Kate Hudson Reveals Pearl Jam's Role In The 'Song Song Blue' Story**: [Link](https://www.antimusic.com/p/26/r0303kate_hudson_reveals_pearl_jams_role_in_the_song_song_blue_story.shtml)
-- **Kate Hudson Flatters Eddie Vedder With Remark**: [Link](https://www.alternativenation.net/kate-hudson-flatters-eddie-vedder-with-remark/)
-- **"Eddie completely changed this couple's life." Hollywood superstar Kate Hudson reveals how Pearl Jam's Eddie Vedder played a pivotal role in the story behind her new movie**: [Link](https://www.loudersound.com/bands-artists/kate-hudson-eddie-vedder-role-in-song-sung-blue)
-
-
-### melcochita (N/A, 06/03/2026 00:11 Lima)
-
-- **Monserrat Seminario arremete contra Melcochita: “Es ludópata y hasta para la intimidad tenía que lavarlo”**: [Link](https://www.infobae.com/peru/2026/03/05/monserrat-seminario-arremete-contra-melcochita-es-ludopata-y-hasta-para-la-intimidad-tenia-que-lavarlo/)
-- **Monserrat se niega a dejar a sus hijas con Melcochita: "No se puede cuidar ni él"**: [Link](https://www.atv.pe/noticia/monserrat-se-niega-a-dejar-a-sus-hijas-con-melcochita-no-se-puede-cuidar-ni-el/)
-- **Monserrat acusa a Melcochita de ser "ludópata": frecuentaba tragamonedas**: [Link](https://peru21.pe/espectaculos/monserrat-habla-de-melcochita-ludopata-e-infidelidad/)
-
-
-### junior (N/A, 06/03/2026 00:11 Lima)
-
-- **Fayetteville parents meet new principal who will lead John L Colbert Middle School's transition into a junior high**: [Link](https://www.4029tv.com/article/fayetteville-parents-meet-new-principal-who-will-lead-john-l-colbert-middle-schools-transition-into-a-junior-high/70631998)
-- **Brown turns Olympic experience into Halfpipe Junior World title as Swedenborg claims maiden victory**: [Link](https://www.fis-ski.com/freeski-park-and-pipe/news/2025-26/brown-turns-olympic-experience-into-halfpipe-junior-world-title-as-swedenborg-claims-maiden-victory)
-- **Esaian did not qualify for the free program at the Junior World Championships in Tallinn**: [Link](https://sportaran.com/en/post/esayan-ne-proshla-v-proizvolnuyu-programmu-na-yuniorskom-chempionate-mira-v-talline/)
 
 
