@@ -1,3 +1,52 @@
+### camara (N/A, 09/03/2026 08:16 Lima)
+
+- **Resultados elecciones 2026: quiénes son los candidatos a la presidencia de Colombia y qué Congreso se encontrará el próximo mandatario tras las legislativas**: [Link](https://www.bbc.com/mundo/articles/ckg1rx7deqeo)
+- **Colombia: izquierda se impone como primer fuerza en Senado**: [Link](https://www.dw.com/es/colombia-izquierda-se-impone-como-primer-fuerza-en-senado/a-76271567)
+- **Resultados elecciones legislativas Colombia 2026, en vivo | El Pacto Histórico refuerza su poder con la mayor bancada en el Senado**: [Link](https://elpais.com/america-colombia/elecciones-presidenciales/2026-03-08/resultados-elecciones-legislativas-colombia-2026-en-vivo-empieza-el-conteo-de-votos-tras-la-jornada-electoral.html)
+
+
+### hola (N/A, 09/03/2026 08:16 Lima)
+
+- **José Eduardo Derbez cuenta cómo fue estafado por un hombre que aseguró ser cercano a su familia**: [Link](https://www.hola.com/us-es/celebrities/20260309888196/jose-eduardo-derbez-estafado/)
+- **José Eduardo Derbez revela estafa millonaria: invirtió su patrimonio en "máquinas de garra" 👉 Local**: [Link](https://enblancoynegro.com.mx/2026/03/08/jose-eduardo-derbez-revela-estafa-millonaria-invirtio-su-patrimonio-en-maquinas-de-garra/)
+- **José Eduardo Derbez pierde fuerte suma al ser estafado por hombre que dijo ser amigo de su familia: “Mi patrimonio”**: [Link](https://www.infobae.com/mexico/2026/03/08/jose-eduardo-derbez-pierde-fuerte-suma-al-ser-estafado-por-hombre-que-dijo-ser-amigo-de-su-familia-mi-patrimonio/)
+
+
+### halo (N/A, 09/03/2026 08:16 Lima)
+
+- **'I find it kind of gross': GOP Commentator reacts to WH videos comparing Iran war to games**: [Link](https://www.cnn.com/2026/03/08/politics/video/strikes-in-iran-leadership-white-house-war-messaging)
+- **A new video from the White House mixes Call of Duty footage with actual video of Iran strikes**: [Link](https://www.theverge.com/games/889701/trump-white-house-call-of-duty-footage-iran)
+- **AMERICA/UNITED STATES - Cardinal Cupich: The war on Iran portrayed as a "video game" represents the failure of our humanity**: [Link](https://www.fides.org/en/news/77448-AMERICA_UNITED_STATES_Cardinal_Cupich_The_war_on_Iran_portrayed_as_a_video_game_represents_the_failure_of_our_humanity)
+
+
+### microsoft (N/A, 09/03/2026 08:16 Lima)
+
+- **Microsoft's CEO to Xbox: We will "always" invest in gaming.**: [Link](https://www.windowscentral.com/gaming/xbox/xbox-ceo-asha-sharma-hosted-microsoft-ceo-satya-nadella-we-will-always-invest-in-gaming)
+- **Microsoft reinforces gaming focus as CEO says it is “long on gaming”**: [Link](https://finance.yahoo.com/news/microsoft-reinforces-gaming-focus-ceo-002122326.html)
+- **COLUMN: Xbox division reshuffles amid failed generation**: [Link](https://www.swoknews.com/opinion/columnists/column-xbox-division-reshuffles-amid-failed-generation/article_e7732901-6b07-583f-85ff-f5b769edd44a.html)
+
+
+### precio del dolar en peru (N/A, 09/03/2026 08:16 Lima)
+
+- **Precio del dólar en Perú: cuál fue el tipo de cambio del domingo 8 de marzo**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-2026-a-cuanto-esta-el-tipo-de-cambio-este-domingo-8-de-marzo-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
+- **Dólar trepa: ¿quiénes se frotan las manos con repunte?**: [Link](https://gestion.pe/tu-dinero/dolar-ahora-trepa-quienes-se-alivian-mas-con-repunte-noticia/)
+- **Dólar, cotización HOY en Perú: ¿cuál es el tipo de cambio este lunes 9 de marzo de 2026?**: [Link](https://www.expreso.com.pe/economia/dolar-cotizacion-hoy-en-peru-cual-es-el-tipo-de-cambio-este-lunes-9-de-marzo-de-2026-sunat-mef-bcrp-ultima-hora-ultimo-minuto-precio-soles-divisa-noticia/1269623/)
+
+
+### sorteo la tinka hoy (N/A, 09/03/2026 08:16 Lima)
+
+- **Resultados de La Tinka del 8 de marzo: números ganadores y pozo millonario del sorteo**: [Link](https://www.infobae.com/peru/2026/03/09/resultados-de-la-tinka-todos-los-numeros-ganadores-del-8-de-marzo/)
+- **Cotejar La Tinka: resultados y jugada ganadora del domingo 8 de marzo de 2026**: [Link](https://elcomercio.pe/respuestas/loterias/la-tinka-hoy-domingo-8-de-marzo-en-vivo-resultados-del-ultimo-sorteo-numeros-y-jugada-ganadora-tinkanet-pozo-millonario-loteria-si-o-si-boliyapa-intralot-lbposting-noticia/)
+- **Sorteo de La Tinka HOY domingo 8 de marzo de 2026: premios, jugada ganadora y Pozo Millonario**: [Link](https://larepublica.pe/sociedad/2026/03/07/sorteo-de-la-tinka-hoy-domingo-8-de-marzo-de-2026-premios-jugada-ganadora-y-pozo-millonario-atmp-156457)
+
+
+### angelo caro (N/A, 09/03/2026 08:16 Lima)
+
+- **Orgullo peruano: Angelo Caro se proclamó subcampeón mundial de skateboarding en Sao Paulo**: [Link](https://rpp.pe/multideportes/mas-deportes/orgullo-peruano-angelo-caro-se-proclamo-subcampeon-mundial-de-skateboarding-en-sao-paulo-noticia-1679192)
+- **¡Histórico! Angelo Caro logró la medalla de plata en el Mundial de Skateboarding 2025**: [Link](https://elcomercio.pe/deporte-total/peruanos-en-el-mundo/angelo-caro-logro-la-medalla-de-plata-en-el-mundial-de-skateboarding-2025-noticia/)
+- **¡Histórico! Caro quedó subcampeón del Mundial de Skateboarding**: [Link](https://ovacion.pe/noticias/skate/historico-caro-quedo-subcampeon-del-mundial-skateboarding)
+
+
 ### lazio (N/A, 09/03/2026 03:53 Lima)
 
 - **Ratkov titolare, Doig in panchina: le probabili formazioni di Lazio-Sassuolo**: [Link](https://onefootball.com/de/news/ratkov-titolare-doig-in-panchina-le-probabili-formazioni-di-lazio-sassuolo-42527307)
@@ -981,54 +1030,5 @@ Sin noticias relacionadas disponibles.
 - **Unc, Ocho, and Iso Joe react to LeBron, Luka & Lakers vs. Jokic & Nuggets | Nightcap**: [Link](https://bvmsports.com/2026/03/05/unc-ocho-and-iso-joe-react-to-lebron-luka-lakers-vs-jokic-nuggets-nightcap/)
 - **Lakers drop nail-biter to Nuggets to kick off tough stretch of opponents**: [Link](https://www.aol.com/articles/lakers-drop-nail-biter-nuggets-055754088.html)
 - **Sombor Survival: Jokic’s yo-yo game enough for Nuggets to beat LA**: [Link](https://denversports.com/nba/denver-nuggets/jokic-yo-yo-lakers/2129062)
-
-
-### gustavo cerati (N/A, 06/03/2026 08:08 Lima)
-
-- **Las 50 mejores bandas de rock en español de todos los tiempos, clasificadas**: [Link](https://www.billboard.com/lists/las-50-mejores-bandas-de-rock-en-espanol-clasificadas/)
-- **Libido y Los Saicos, entre las 50 mejores bandas de rock en español de todos los tiempos, según Billboard Latinoamérica**: [Link](https://rpp.pe/musica/internacional/libido-y-los-saicos-entre-las-50-mejores-bandas-de-rock-en-espanol-de-todos-los-tiempos-segun-billboard-latinoamerica-noticia-1678708)
-- **Billboard: Los Saicos y Líbido, entre las 50 mejores bandas de rock en español**: [Link](https://andina.pe/agencia/noticia-billboard-los-saicos-y-libido-entre-las-50-mejores-bandas-rock-espanol-1065671.aspx)
-
-
-### melendi (N/A, 06/03/2026 08:08 Lima)
-
-- **Miguel Bosé en Lima: coreografías de antaño y clásicos en una noche de reencuentro | FOTOS**: [Link](https://elcomercio.pe/luces/musica/miguel-bose-en-lima-coreografias-de-antano-y-clasicos-en-una-noche-de-reencuentro-fotos-noticia/)
-- **Miguel Bosé regresó a Lima tras 14 años con su ‘Importante Tour’ y un concierto lleno de nostalgia**: [Link](https://larepublica.pe/entretenimiento/2026/03/05/miguel-bose-regreso-a-lima-tras-14-anos-con-su-importante-tour-y-un-concierto-lleno-de-nostalgia-55075)
-- **Bosé encendió Lima y tocó el corazón de los peruanos**: [Link](https://andina.pe/agencia/noticia-bose-encendio-lima-y-toco-corazon-los-peruanos-1065513.aspx)
-
-
-### precio dolar peru (N/A, 06/03/2026 03:47 Lima)
-
-- **Dólar escala a S/ 3.45 ante incertidumbre por la guerra en Medio Oriente**: [Link](https://gestion.pe/economia/mercados/tipo-de-cambio-dolar-hoy-en-peru-cuanto-esta-el-precio-del-dolar-este-jueves-5-de-marzo-dolares-a-soles-compra-y-venta-bcrp-noticia/)
-- **¡Continúa al alza! Dólar repunta y cierra en S/ 3.45, su mayor cotización en cinco meses**: [Link](https://rpp.pe/economia/economia/dolar-en-peru-subio-345-mayor-cotizacion-del-tipo-de-cambio-en-cinco-meses-a-que-se-debe-noticia-1678749)
-- **¿Cuál es la cotización del dólar hoy jueves 5 de marzo del 2026?**: [Link](https://andina.pe/agencia/noticia-cual-es-cotizacion-del-dolar-hoy-jueves-5-marzo-del-2026-1065535.aspx)
-
-
-### coming up roses harry styles (N/A, 06/03/2026 03:47 Lima)
-
-- **Fred again.. Plays Unreleased Harry Styles Song During Alexandra Palace Show in London**: [Link](https://www.billboard.com/music/pop/fred-again-harry-styles-unreleased-song-london-performance-1236187964/)
-- **Fred Again teases unreleased Harry Styles song during London show**: [Link](https://www.aol.com/fred-again-teases-unreleased-harry-090333505.html)
-- **Harry Styles’s ‘Coming Up Roses’ Is a Love Song About Romances That Don’t Last Forever**: [Link](https://www.elle.com/culture/music/a70632009/harry-styles-coming-up-roses-lyrics-meaning/)
-
-
-### wolves vs. liverpool (N/A, 06/03/2026 03:47 Lima)
-
-- **Arne Slot gives stars dressing-down after conceding another late winner**: [Link](https://www.thetimes.com/sport/football/article/arne-slot-virgil-van-dijk-liverpool-wolves-premier-league-p8ngjmzc8)
-- **One man’s mistake to blame for Wolves loss – Warnock**: [Link](https://www.empireofthekop.com/2026/03/05/one-mans-mistake-to-blame-for-wolves-loss-warnock/)
-- **Wolverhampton Wanderers will be without Andre Trindade and Enso Gonzalez for Liverpool rematch**: [Link](https://tribuna.com/en/news/2026-03-05-wolverhampton-wanderers-will-be-without-andre-trindade-and-enso-gonzalez/)
-
-
-### graciela alfano (N/A, 06/03/2026 00:11 Lima)
-
-- **Susana Giménez sorprendió con su look en traje de baño para grabar una publicidad**: [Link](https://www.infobae.com/teleshow/2026/03/05/susana-gimenez-sorprendio-con-su-look-en-traje-de-bano-para-grabar-una-publicidad/)
-- **¿Qué hay detrás de la burla de Graciela Alfano a Susana Giménez en redes?**: [Link](https://www.laizquierdadiario.com/Que-hay-detras-de-la-burla-de-Graciela-Alfano-a-Susana-Gimenez-en-redes)
-- **La Diva no tiene edad: se filtró un video de Susana Giménez en traje de baño y es viral**: [Link](https://www.ellitoral.com/show/diva-edad-filtrar-video-susana-gimenez-traje-bano-viral_0_qOQAtyvinW.html)
-
-
-### orense - macará (N/A, 06/03/2026 00:11 Lima)
-
-- **Macará le ganó el duelo a Orense y logró la histórica clasificación en Sudamericana**: [Link](https://espndeportes.espn.com/futbol/copa-sudamericana/nota/_/id/16394790/macara-le-gano-el-duelo-a-orense-y-logro-la-historica-clasificacion-en-sudamericana)
-- **Macará es el último clasificado a fase de grupos de la Copa Sudamericana**: [Link](https://ovacion.pe/noticias/copa-sudamericana/macara-ultimo-clasificado-fase-grupos-copa-sudamericana)
-- **Transmisión EN VIVO del Orense vs Macará hoy: cómo mirar el partido por TV o streaming**: [Link](https://www.365scores.com/es/news/orense-vs-macara-como-mirar-transmision/)
 
 
