@@ -1,3 +1,71 @@
+### minedu (N/A, 08/03/2026 21:41 Lima)
+
+- **Minedu exhorta a colegios privados a acatar clases virtuales durante emergencia energética**: [Link](https://andina.pe/agencia/noticia-minedu-exhorta-a-colegios-privados-a-acatar-clases-virtuales-durante-emergencia-energetica-1066044.aspx)
+- **Servir: Implementación del teletrabajo obligatorio en el sector público por emergencia de gas natural**: [Link](https://lpderecho.pe/servir-implementacion-del-teletrabajo-obligatorio-en-el-sector-publico-por-emergencia-de-gas-natural/)
+- **Minedu: Colegios privados deberán acatar las clases virtuales para reducir la movilidad urbana**: [Link](https://elperuano.pe/noticia/290706-minedu-colegios-privados-deberan-acatar-las-clases-virtuales-para-reducir-la-movilidad-urbana)
+
+
+### wolfgang grozo (N/A, 08/03/2026 21:41 Lima)
+
+Sin noticias relacionadas disponibles.
+
+
+### tijuana vs (N/A, 08/03/2026 21:41 Lima)
+
+- **Liga MX: Santos Laguna se enfrentará a Tijuana por la fecha 10**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-santos-laguna-se-enfrentara-a-tijuana-por-la-fecha-10-noticia-1679086)
+- **Xolos cierra la jornada 10 al recibir a Santos**: [Link](https://pulsoslp.com.mx/meta/xolos-cierra-la-jornada-10-al-recibir-a-santos/2025245)
+- **Horario y dónde ver el Tijuana vs. Santos de la Jornada 10 del Clausura 2026**: [Link](https://www.tudn.com/futbol/liga-mx/tijuana-vs-santos-laguna-horario-y-donde-ver-el-partido-de-la-jornada-10-de-la-liga-mx-clausura-2026)
+
+
+### el peruano (N/A, 08/03/2026 21:41 Lima)
+
+- **El Peruano te informa: consulta aquí las principales normas legales para hoy, domingo 8 de marzo del 2026**: [Link](https://elperuano.pe/noticia/290683-el-peruano-te-informa-consulta-aqui-las-principales-normas-legales-para-hoy-domingo-8-de-marzo-del-2026)
+- **Estas son las normas legales más importantes del domingo 8 de marzo del 2026**: [Link](https://andina.pe/agencia/noticia-estas-son-las-normas-legales-mas-importantes-del-domingo-8-marzo-del-2026-1065964.aspx)
+- **Gobierno autoriza más de S/ 30 millones para incremento salarial del personal de salud**: [Link](https://actualidadlaboral.com/gobierno-autoriza-mas-de-s-30-millones-para-incremento-salarial-del-personal-de-salud/)
+
+
+### tgp (N/A, 08/03/2026 21:41 Lima)
+
+- **Gremio de taxistas pide bono de S/ 800 por crisis energética**: [Link](https://caretas.pe/nacional/gremio-de-taxistas-pide-bono-de-s-800-por-crisis-energetica/)
+- **Jefa del Gabinete y ministros de Estado viajaron a Megantoni para supervisar reparación del ducto**: [Link](https://elperuano.pe/noticia/290644-jefa-del-gabinete-y-ministros-de-estado-viajaron-a-megantoni-para-supervisar-reparacion-del-ducto)
+- **Cálidda informa a usuarios sobre la priorización del gas natural**: [Link](https://gestion.pe/economia/calidda-informa-a-usuarios-sobre-la-priorizacion-del-gas-natural-noticia/)
+
+
+### resultados unmsm (N/A, 08/03/2026 21:41 Lima)
+
+- **Admisión UNMSM 2026-II: teléfonos, billeteras, metales y todo lo que está prohibido llevar| Galería Fotográfica**: [Link](https://andina.pe/agencia/galeria-admision-unmsm-2026ii-telefonos-billeteras-metales-y-todo-que-esta-prohibido-llevar-28871.aspx)
+- **Resultados Examen de admisión San Marcos 2026-II: ver puntajes y lista de ingresantes para las áreas D y E**: [Link](https://libero.pe/tiempoextra/2026/03/07/resultados-examen-de-admision-unmsm-2026ii-ver-puntajes-lista-de-ingresantes-areas-d-544836)
+- **Resultados San Marcos 2026-II: Conoce quiénes lograron una vacante en esta primera fecha**: [Link](https://elperuano.pe/noticia/290653-resultados-san-marcos-2026-ii-conoce-quienes-lograron-una-vacante-en-esta-primera-fecha)
+
+
+### debate presidencial 2026 (N/A, 08/03/2026 21:41 Lima)
+
+- **🔴🔵#EligeBien ✅🇵🇪 | En declaraciones para Exitosa, el candidato presidencial por el partido Cívico Obras, Ricardo Belmont, cuestionó el debate presidencial organizado por el Jurado Nacional de Elecciones (JNE) . Ello, tras mencionar que no tiene planes d**: [Link](https://www.facebook.com/Exitosanoticias/posts/eligebien-en-declaraciones-para-exitosa-el-candidato-presidencial-por-el-partido/1362060019290386/)
+- **Elecciones 2026: Revisa la hoja de vida de Ricardo Belmont del partido Obras**: [Link](https://andina.pe/agencia/noticia-elecciones-2026-revisa-hoja-vida-ricardo-belmont-del-partido-obras-1065331.aspx)
+- **JNE exhorta a candidato Ricardo Belmont a participar del debate presidencial**: [Link](https://larepublica.pe/politica/2026/03/06/jne-exhorta-a-candidato-ricardo-belmont-a-participar-del-debate-presidencial-hnews-486756)
+
+
+### alianza voley (N/A, 08/03/2026 21:41 Lima)
+
+- **Alianza Lima vs Deportivo Soan 3-1: resumen y jugadas del triunfo blanquiazul en la fecha 9 de la Liga Peruana de Vóley**: [Link](https://www.infobae.com/peru/deportes/2026/03/08/alianza-lima-vs-deportivo-soan-en-vivo-hoy-punto-a-punto-partido-fecha-9-fase-2-liga-peruana-de-voley-2026-resumen-resultado/)
+- **Universitario no pudo: San Martín ganó 3-0 en la última fecha de Fase 2 de Liga Peruana de Vóley 2026**: [Link](https://rpp.pe/voley/mas-voley/universitario-vs-san-martin-en-vivo-a-que-hora-juegan-y-donde-ver-ultima-fecha-fase-2-liga-peruana-de-voley-2026-via-latina-noticia-1678911)
+- **Conoce cruces, fechas y horas de los 4tos. de la Liga Peruana de Vóley**: [Link](https://ovacion.pe/noticias/voley-apuesta-total/conoce-cruces-fechas-horas-4tos-liga-peruana-voley)
+
+
+### palestino - cobresal (N/A, 08/03/2026 21:41 Lima)
+
+- **EN VIVO: ¡En juego el segundo tiempo! Palestino lidera 1-0 sobre Cobresal**: [Link](https://www.t13.cl/noticia/deportes13/en-vivo-en-juego-el-segundo-tiempo-palestino-lidera-1-0-sobre-cobresal-08-03-2026)
+- **Tras Palestino vs Cobresal, así marcha Colo Colo en la tabla de posiciones**: [Link](https://dalealbo.cl/colocolo/tras-palestino-vs-cobresal-asi-marcha-colo-colo-en-la-tabla-de-posiciones)
+- **Palestino mantuvo su alza en la Liga de Primera con un triunfo sobre Cobresal**: [Link](https://www.cooperativa.cl/noticias/deportes/futbol/liga-de-primera/palestino-mantuvo-su-alza-en-la-liga-de-primera-con-un-triunfo-sobre/2026-03-08/223728.html)
+
+
+### cruzeiro - atlético mineiro (N/A, 08/03/2026 21:41 Lima)
+
+- **Cruzeiro x Atlético-MG tem briga generalizada no fim da decisão; assista**: [Link](https://ge.globo.com/mg/futebol/campeonato-mineiro/noticia/2026/03/08/cruzeiro-x-atletico-mg-tem-briga-generalizada-no-fim-da-decisao-assista.ghtml)
+- **Kaio Jorge chega ao 5º gol em clássicos contra o Atlético e volta a provocar o rival**: [Link](https://rede98.com.br/esportes/cruzeiro/kaio-jorge-gol-final-mineiro-provoca-atletico/)
+- **Mano projeta Hulk decisivo em final do Mineiro: "Tudo para fazer história"**: [Link](https://www.cnnbrasil.com.br/esportes/futebol/campeonato-mineiro/mano-projeta-hulk-decisivo-em-final-do-mineiro-tudo-para-fazer-historia/)
+
+
 ### futbol hoy (N/A, 08/03/2026 15:33 Lima)
 
 - **Partidos de hoy, domingo 8 de marzo del 2026: horarios y canales TV para ver EN VIVO Liga1 y Serie A**: [Link](https://rpp.pe/futbol/futbol-mundial/partidos-de-hoy-liga1-y-serie-a-en-vivo-peru-domingo-8-de-marzo-del-2026-horarios-y-canales-tv-ver-futbol-en-vivo-noticia-1679107)
@@ -963,74 +1031,5 @@ Sin noticias relacionadas disponibles.
 - **125 frases inspiradoras por el Día Internacional de la Mujer 2026 para mujeres fuertes y seguras de sí mismas**: [Link](https://gestion.pe/mix/respuestas/125-frases-inspiradoras-por-el-dia-internacional-de-la-mujer-2026-para-mujeres-fuertes-y-seguras-de-si-mismas-08-de-marzo-nnda-nnni-noticia/)
 - **140 citas motivacionales para el Día Internacional de la Mujer 2026: envíalas a tu mamá, hermanas, pareja o hijas este 08 de marzo**: [Link](https://elcomercio.pe/mag/respuestas/140-citas-motivacionales-para-el-dia-internacional-de-la-mujer-2026-envialas-a-tu-mama-hermanas-pareja-o-hijas-este-08-de-marzo-nnda-nnni-noticia/)
 - **Día de la Mujer 2026: las mejores imágenes para conmemorar la importante fecha este 8 de marzo**: [Link](https://libero.pe/ocio/redes-sociales/2026/03/05/dia-de-mujer-2026-mejores-imagenes-conmemorar-importante-fecha-8-de-marzo-464945)
-
-
-### bienvenida la tarde (N/A, 05/03/2026 21:33 Lima)
-
-- **Melissa Paredes y Bienvenida tu tarde en Esto Es Guerra**: [Link](https://www.americatv.com.pe/esto-es-guerra/melissa-paredes-andy-v-y-bienvenida-tu-tarde-esto-guerra-noticia-163195)
-- **Así fue la reacción del niño Alfredito al ver a Laura Huarcayo y ‘Bienvenida la tarde’ en Esto Es Guerra**: [Link](https://www.infobae.com/peru/2026/03/06/asi-fue-la-reaccion-del-nino-alfredito-al-ver-a-laura-huarcayo-y-bienvenida-la-tarde-en-esto-es-guerra/)
-- **¡Histórico! 'Esto es guerra' anuncia que tendrá a exmiembros de 'Combate' y 'Bienvenida la tarde' en una edición especial del reality de competencia**: [Link](https://larepublica.pe/espectaculos/2026/03/04/historico-esto-es-guerra-anuncia-que-tendra-a-exmiembros-de-combate-y-bienvenida-la-tarde-en-una-edicion-especial-del-reality-de-competencia-131552)
-
-
-### orense vs (N/A, 05/03/2026 21:33 Lima)
-
-- **Orense vs Macará en vivo por la Copa Sudamericana 2026: transmisión en directo del partido**: [Link](https://www.futbolperuano.com/en-vivo/copa-sudamericana-2026-orense-vs-macara-en-vivo-568411)
-- **Orense vs Macará: previa, horario y cómo llegan para la llave 8 de la Copa Sudamericana**: [Link](https://zona.palmsbet.pe/deportes/futbol/orense-vs-macara-previa-horario-y-como-llegan-para-la-llave-8-de-la-copa-sudamericana/)
-
-
-### natalia jimenez (N/A, 05/03/2026 21:33 Lima)
-
-- **Miguel Bosé en Lima: coreografías de antaño y clásicos en una noche de reencuentro | FOTOS**: [Link](https://elcomercio.pe/luces/musica/miguel-bose-en-lima-coreografias-de-antano-y-clasicos-en-una-noche-de-reencuentro-fotos-noticia/)
-- **Miguel Bosé regresó a Lima tras 14 años con su ‘Importante Tour’ y un concierto lleno de nostalgia**: [Link](https://larepublica.pe/entretenimiento/2026/03/05/miguel-bose-regreso-a-lima-tras-14-anos-con-su-importante-tour-y-un-concierto-lleno-de-nostalgia-55075)
-- **Bosé encendió Lima y tocó el corazón de los peruanos**: [Link](https://andina.pe/agencia/noticia-bose-encendio-lima-y-toco-corazon-los-peruanos-1065513.aspx)
-
-
-### américa - bucaramanga (N/A, 05/03/2026 21:33 Lima)
-
-- **David González sobre América vs Bucaramanga: "Estamos en un buen momento"**: [Link](https://espndeportes.espn.com/futbol/copa-sudamericana/nota/_/id/16388188/david-gonzalez-america-vs-bucaramanga-estamos-en-un-buen-momento)
-- **¡EN VIVO! América de Cali vs Atlético Bucaramanga en la Copa Sudamericana por beIN SPORTS**: [Link](https://www.beinsports.com/es-us/football/conmebol-sudamericana/articles/-en-vivo-am%C3%A9rica-de-cali-vs-atl%C3%A9tico-bucaramanga-en-la-copa-sudamericana-por-bein-sports-2026-03-05)
-- **Leonel Álvarez bajó de la nube a América previo a la Copa Sudamericana**: [Link](https://www.deportesrcn.com/futbol/leonel-alvarez-bajo-de-la-nube-a-america-previo-a-la-copa-sudamericana-146976)
-
-
-### lyon vs. lens (N/A, 05/03/2026 15:43 Lima)
-
-- **Lyon predicted XI v Lens: Roman Yaremchuk to partner Endrick in attack**: [Link](https://sports.yahoo.com/articles/lyon-predicted-xi-v-lens-085000823.html)
-- **Match Preview: Lyon vs. Lens – A Coupe de France Quarter-Final Clash**: [Link](https://www.365scores.com/news/match-preview-lyon-vs-lens-a-coupe-de-france-quarter-final-clash)
-- **Lyon Fc: Official Lineups Announced for Coupe de France Quarter Against Lens**: [Link](https://www.el-balad.com/16869201)
-
-
-### lyon vs (N/A, 05/03/2026 15:43 Lima)
-
-- **OL - Lens : La composition inattendue de Paulo Fonseca pour arracher la demie**: [Link](https://www.goal.com/fr/news/ol-lens-la-composition-inattendue-de-paulo-fonseca-pour-arracher-la-demie/blt276b83587f83a6b1)
-- **Coupe de France : Wesley Saïd s’est blessé à l’échauffement, nouveau forfait pour le Racing à Lyon**: [Link](https://www.lavoixdunord.fr/1680755/article/2026-03-05/coupe-de-france-wesley-said-s-est-blesse-l-echauffement-nouveau-forfait-pour-le)
-- **Programme TV Foot : Émission veille de match à 18h30, le choc Lyon-Lens en Coupe de France**: [Link](https://www.webgirondins.com/actualite-girondins-programme-tv-foot-emission-veille-de-match-a-18h30-le-choc-lyon-lens-en-coupe-de-france-132374)
-
-
-### basel vs (N/A, 05/03/2026 15:43 Lima)
-
-- **FCSG-Coach Maassen stichelt vor dem Duell gegen den Leader**: [Link](https://www.blick.ch/sport/fussball/superleague/thun-hat-ueberperformt-fcsg-coach-maassen-stichelt-vor-dem-duell-gegen-den-leader-id21752937.html)
-- **Görtler hält in der ersten Hälfte sein Wort**: [Link](https://www.kicker.de/goertler-haelt-in-der-ersten-haelfte-sein-wort-1199133/artikel)
-- **Klassiker Basel gegen GC ++ Thun oder St. Gallen – wer gewinnt den Spitzenkampf?**: [Link](https://www.bluewin.ch/de/sport/super-league/klassiker-basel-gegen-gc-thun-oder-st-gallen-wer-gewinnt-den-spitzenkampf-3128057.html)
-
-
-### apple macbook neo (N/A, 05/03/2026 15:43 Lima)
-
-- **MacBook Neo**: [Link](https://www.apple.com/macbook-neo/)
-- **Apple Accidentally Leaks 'MacBook Neo'**: [Link](https://www.macrumors.com/2026/03/03/apple-accidentally-leaks-macbook-neo/)
-- **Our first hands-on look at Apple’s MacBook Neo**: [Link](https://www.theverge.com/tech/888712/macbook-neo-laptop-iphone-chip-apple-event-photos-price-features)
-
-
-### pokemon pokopia (N/A, 05/03/2026 15:43 Lima)
-
-- **Pokémon Pokopia Is Available Now on Nintendo Switch 2**: [Link](https://www.pokemon.com/us/pokemon-news/pokemon-pokopia-is-available-now-on-nintendo-switch-2)
-- **Pokémon Pokopia Review**: [Link](https://www.ign.com/articles/pokemon-pokopia-review)
-- **Pokémon Pokopia Is Getting Its First Limited-Time Event Next Week**: [Link](https://gameinformer.com/2026/03/05/pokemon-pokopia-is-getting-its-first-limited-time-event-next-week)
-
-
-### al qadisiya (N/A, 05/03/2026 15:43 Lima)
-
-- **Statement | Al Kholood vs Al Qadsiah match**: [Link](https://www.spl.com.sa/en/news/1002345/statement-al-kholood-v-al-qadsiah-match)
-- **Don’t miss out on these exhilarating odds: Accumulator Tips for March 05, 2026**: [Link](https://www.telecomasia.net/sports-betting/tips/accumulator/accumulator-tip-for-march-05-predictions-betting-tips-and-odds-05-march-2026/)
-- **Al Kholood vs Al Qadsiah Preview & Prediction**: [Link](https://www.thestatszone.com/al-kholood-vs-al-qadsiah-preview-prediction-174120)
 
 
