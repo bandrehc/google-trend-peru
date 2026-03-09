@@ -1,3 +1,65 @@
+### erick osores (N/A, 09/03/2026 00:21 Lima)
+
+- **Erick Osores y su pronóstico sobre el próximo campeón del Torneo Apertura: "Te gana jugando horrible, pero te gana"**: [Link](https://larepublica.pe/deportes/2026/03/08/erick-osores-y-su-pronostico-sobre-el-proximo-campeon-del-torneo-apertura-te-gana-jugando-horrible-pero-te-gana-726200)
+- **Erick Osores dio su pronóstico del campeón del Torneo Apertura 2026 y advierte: "Me puedo equivocar"**: [Link](https://libero.pe/futbol-peruano/liga-1/2026/03/08/erick-osores-dio-su-pronostico-del-campeon-del-torneo-apertura-2026-advierte-me-puedo-equivocar-259824)
+
+
+### erick noriega (N/A, 09/03/2026 00:21 Lima)
+
+- **Erick Noriega celebró el histórico título del Campeonato Gaúcho 2026 con Gremio: anotó asistencia y gritó campeón**: [Link](https://larepublica.pe/deportes/2026/03/08/erick-noriega-celebro-el-historico-titulo-del-campeonato-gaucho-2026-con-gremio-anoto-asistencia-y-grito-campeon-212936)
+- **Erick Noriega se lució con gran asistencia para el gol que le está dando el título a Gremio**: [Link](https://libero.pe/videos/videos-futbol-internacional/2026/03/08/erick-noriega-se-lucio-gran-asistencia-gol-le-dando-titulo-de-gremio-479048)
+- **Internacional vs. Gremio con Erick Noriega: Pronóstico y cuando juegan por la final de vuelta del Torneo Gaucho 2026**: [Link](https://www.futbolperuano.com/peruanos-en-el-exterior/noticias/internacional-vs-gremio-con-erick-noriega-en-vivo-online-por-la-final-de-vuelta-del-torneo-gaucho-2026-568742)
+
+
+### spurs - rockets (N/A, 09/03/2026 00:21 Lima)
+
+- **Spurs' emphatic win over Rockets comes with a special caveat**: [Link](https://airalamo.com/spurs-emphatic-win-over-rockets-comes-with-a-special-caveat)
+- **Game Recap: Spurs 145, Rockets 120**: [Link](https://www.nba.com/watch/video/game-recap-spurs-145-rockets-120?plsrc=nba&collection=2025-26-game-recaps)
+- **Houston Rockets vs San Antonio Spurs Betting Pick & Prediction for 3/8**: [Link](https://www.bangthebook.com/houston-rockets-vs-san-antonio-spurs-betting-pick-prediction-for-3-8)
+
+
+### tijuana - santos (N/A, 09/03/2026 00:21 Lima)
+
+- **Liga MX: Santos Laguna se enfrentará a Tijuana por la fecha 10**: [Link](https://rpp.pe/futbol/ligas-internacionales/liga-mx-santos-laguna-se-enfrentara-a-tijuana-por-la-fecha-10-noticia-1679086)
+- **Xolos vs Santos EN VIVO hoy: partido peleado (1-2)**: [Link](https://www.vavel.com/mx/futbol-mexicano/2026/03/09/liga-mx/1253282-xolos-vs-santos-en-vivo-liga-mx.html)
+- **¡Acevedo en el fondo! El arquero de Santos evita el gol de los Xolos**: [Link](https://www.tudn.com/futbol/liga-mx/acevedo-en-el-fondo-el-arquero-de-santos-evita-el-gol-de-los-xolos-video)
+
+
+### paolo hurtado (N/A, 09/03/2026 00:21 Lima)
+
+- **Paolo Hurtado contó pelea con Diego Penny y la dura respuesta que le dio: "Cuando ganes dos millones hablas conmigo"**: [Link](https://willax.pe/deportes/paolo-hurtado-pelea-diego-penny-respuesta-dos-millones-willax)
+- **Paolo Hurtado lanzó tremendo calificativo sobre Alex Valera: "Es un..."**: [Link](https://libero.pe/futbol-peruano/universitario/2026/03/08/paolo-hurtado-lanzo-tremendo-calificativo-alex-valera-es-583832)
+- **Paolo Hurtado reveló la ‘promesa’ fallida que le hizo ‘Chicho’ Salas cuando dirigía Alianza Lima**: [Link](https://libero.pe/futbol-peruano/2026/03/08/paolo-hurtado-revelo-promesa-fallida-le-hizo-chicho-salas-cuando-dirigia-alianza-lima-250736)
+
+
+### encuestas presidenciales 2026 (N/A, 09/03/2026 00:21 Lima)
+
+- **Nueva encuesta de CPI confirma tercer lugar de Alfonso López Chau y aparición de Wolfgang Grozo**: [Link](https://www.infobae.com/peru/2026/03/07/nueva-encuesta-de-cpi-confirma-tercer-lugar-de-alfonso-lopez-chau-y-aparicion-de-wolfgang-grozo/)
+- **Perú: qué dicen las encuestas presidenciales a 5 semanas de las elecciones**: [Link](https://www.ex-ante.cl/peru-que-dicen-las-encuestas-presidenciales-a-5-semanas-de-las-elecciones/)
+- **Encuesta Datum: Empieza a moverse el tablero electoral a casi un mes de las elecciones**: [Link](https://elcomercio.pe/politica/encuesta-datum-empieza-a-moverse-el-tablero-electoral-a-casi-un-mes-de-las-elecciones-keiko-fujimori-rafael-lopez-aliaga-alfonso-lopez-chau-carlos-alvarez-wolfgang-crozo-cesar-acuna-tlcnota-noticia/)
+
+
+### jorge nieto (N/A, 09/03/2026 00:21 Lima)
+
+- **Elecciones 2026: Revisa la hoja de vida de Jorge Nieto de Partido del Buen Gobierno**: [Link](https://andina.pe/agencia/noticia-elecciones-2026-revisa-hoja-vida-jorge-nieto-partido-del-buen-gobierno-1065628.aspx)
+- **Jorge Nieto: “La lucha anticorrupción será liderada desde el Poder Ejecutivo”**: [Link](https://elperuano.pe/noticia/290280-jorge-nieto-la-lucha-anticorrupcion-sera-liderada-desde-el-poder-ejecutivo)
+- **Jorge Nieto Montesinos: ¿quién es el candidato presidencial del partido del Buen Gobierno?**: [Link](https://larepublica.pe/politica/2026/03/04/jorge-nieto-montesinos-quien-es-el-candidato-presidencial-del-partido-buen-gobierno-hnews-95384)
+
+
+### coco gauff (N/A, 09/03/2026 00:21 Lima)
+
+- **Alexandra Eala proves her stunning popularity again as she wins on her Indian Wells debut**: [Link](https://www.hitc.com/alexandra-eala-proves-her-stunning-popularity-again-as-she-wins-on-her-indian-wells-debut/)
+- **Aryna Sabalenka and Naomi Osaka make it to round of 16 at Indian Wells as Coco Gauff retires**: [Link](https://www.flashscore.com/news/tennis-indian-wells-wta-singles-aryna-sabalenka-and-naomi-osaka-make-it-to-round-of-16-at-indian-wells-as-coco-gauff-retires/Q5ndnAFD/)
+- **Gauff retires from Indian Wells with sore arm**: [Link](https://www.beinsports.com/en-au/tennis/articles-video/gauff-retires-from-indian-wells-with-sore-arm-2026-03-09)
+
+
+### candidatos presidenciales 2026 (N/A, 09/03/2026 00:21 Lima)
+
+- **Resultados elecciones 2026: quiénes son los candidatos a la presidencia de Colombia y qué Congreso se encontrará el próximo mandatario tras las legislativas**: [Link](https://www.bbc.com/mundo/articles/ckg1rx7deqeo)
+- **Así quedaría el Senado de Colombia: el Pacto Histórico y el Centro Democrático tendrían mayorías**: [Link](https://www.infobae.com/colombia/2026/03/09/asi-quedaria-el-senado-de-colombia-el-pacto-historico-y-el-centro-democratico-tendrian-mayorias/)
+- **Resultados elecciones legislativas Colombia 2026, en vivo | El Pacto Histórico refuerza su poder con la mayor bancada en el Senado**: [Link](https://elpais.com/america-colombia/elecciones-presidenciales/2026-03-08/resultados-elecciones-legislativas-colombia-2026-en-vivo-empieza-el-conteo-de-votos-tras-la-jornada-electoral.html)
+
+
 ### minedu (N/A, 08/03/2026 21:41 Lima)
 
 - **Minedu exhorta a colegios privados a acatar clases virtuales durante emergencia energética**: [Link](https://andina.pe/agencia/noticia-minedu-exhorta-a-colegios-privados-a-acatar-clases-virtuales-durante-emergencia-energetica-1066044.aspx)
@@ -968,68 +1030,5 @@ Sin noticias relacionadas disponibles.
 - **Fayetteville parents meet new principal who will lead John L Colbert Middle School's transition into a junior high**: [Link](https://www.4029tv.com/article/fayetteville-parents-meet-new-principal-who-will-lead-john-l-colbert-middle-schools-transition-into-a-junior-high/70631998)
 - **Brown turns Olympic experience into Halfpipe Junior World title as Swedenborg claims maiden victory**: [Link](https://www.fis-ski.com/freeski-park-and-pipe/news/2025-26/brown-turns-olympic-experience-into-halfpipe-junior-world-title-as-swedenborg-claims-maiden-victory)
 - **Esaian did not qualify for the free program at the Junior World Championships in Tallinn**: [Link](https://sportaran.com/en/post/esayan-ne-proshla-v-proizvolnuyu-programmu-na-yuniorskom-chempionate-mira-v-talline/)
-
-
-### foot ball club melgar (N/A, 06/03/2026 00:11 Lima)
-
-- **Melgar volvió a perder y Chankas es líder parcial del Apertura**: [Link](https://www.espn.com.pe/futbol/peru/nota/_/id/16368307/melgar-volvio-a-perder-y-chankas-es-lider-parcial-del-apertura)
-- **Melgar volvió a sufrir remontada: Los Chankas ganaron con doblete de Abdiel Ayarza y son líderes de la Liga 1 2026**: [Link](https://www.infobae.com/peru/deportes/2026/02/28/melgar-volvio-a-sufrir-remontada-los-chankas-ganaron-con-doblete-de-abdiel-ayarza-y-son-lideres-de-la-liga-1-2026/)
-- **¡Su primera vez! Gol de Matías Zegarra para el 1-0 de Melgar vs. Los Chankas por la Liga 1**: [Link](https://depor.com/futbol-peruano/descentralizado/gol-matias-zegarra-melgar-vs-los-chankas-anotacion-para-el-1-0-tras-pase-de-zanelatto-liga-1-video-noticia/)
-
-
-### shirley arica (N/A, 06/03/2026 00:11 Lima)
-
-- **Magaly Medina comenta el giro radical en la vida de Carlos Alcántara tras su separación: "Como si no hubiera tenido vida"**: [Link](https://www.infobae.com/peru/2026/03/05/magaly-medina-comenta-el-giro-radical-en-la-vida-de-carlos-alcantara-tras-su-separacion-como-si-no-hubiera-tenido-vida/)
-- **A sus 61 años, Carlos Alcántara se coloca 'chip de la juventud' ante rumores de separación de su esposa**: [Link](https://rpp.pe/famosos/farandula/carlos-alcantara-se-coloca-chip-de-la-juventud-ante-rumores-de-separacion-de-su-esposa-jossie-lindley-noticia-1678799)
-- **Carlos Alcántara fue captado besando a una mujer en discoteca de Lima (VIDEO)**: [Link](https://diariocorreo.pe/espectaculos/carlos-alcantara-fue-captado-besando-a-una-mujer-en-discoteca-de-lima-video-noticia/)
-
-
-### mayra goñi (N/A, 06/03/2026 00:11 Lima)
-
-- **Alessandra Fuller sorprende al afirmar que Mayra Goñi y Rodrigo Brand, protagonistas de 'Valentina valiente', se besaron en discoteca**: [Link](https://larepublica.pe/espectaculos/2026/03/05/alessandra-fuller-sorprende-al-afirmar-que-mayra-goni-y-rodrigo-brand-protagonistas-de-valentina-valiente-se-besaron-en-discoteca-200075)
-- **¡Mira aquí el PRIMER capítulo de Valentina Valiente por Latina!**: [Link](https://www.latina.pe/entretenimiento/valentina-valiente/mejores-momentos-valentina-valiente/mira-aqui-el-primer-capitulo-de-valentina-valiente-por-latina_20260305/)
-- **'Valentina Valiente' reparto: quiénes son los actores y actrices del elenco completo de la nueva novela de Latina**: [Link](https://larepublica.pe/espectaculos/2026/03/04/valentina-valiente-reparto-quienes-son-los-actores-y-actrices-del-elenco-completo-de-la-nueva-novela-de-latina-112244)
-
-
-### formula 1 (N/A, 05/03/2026 21:33 Lima)
-
-- **How Formula 1’s Live Broadcast Center Captures the Story of Speed**: [Link](https://variety.com/2026/sports/news/formula-1-live-broadcast-center-1236678943/)
-- **Here's how two very different films — 'Sirāt' and 'F1' — built worlds in sound**: [Link](https://www.wunc.org/2026-03-02/heres-how-two-very-different-films-sirat-and-f1-built-worlds-in-sound)
-- **Here's how two very different films — 'Sirāt' and 'F1' — built worlds in sound**: [Link](https://www.npr.org/transcripts/nx-s1-5725296)
-
-
-### valentina valiente (N/A, 05/03/2026 21:33 Lima)
-
-- **¡Mira aquí el PRIMER capítulo de Valentina Valiente por Latina!**: [Link](https://www.latina.pe/entretenimiento/valentina-valiente/mejores-momentos-valentina-valiente/mira-aqui-el-primer-capitulo-de-valentina-valiente-por-latina_20260305/)
-- **'Valentina Valiente' reparto: quiénes son los actores y actrices del elenco completo de la nueva novela de Latina**: [Link](https://larepublica.pe/espectaculos/2026/03/04/valentina-valiente-reparto-quienes-son-los-actores-y-actrices-del-elenco-completo-de-la-nueva-novela-de-latina-112244)
-- **El miércoles 4 estrena Valentina valiente por Latina Televisión**: [Link](https://www.produ.com/television/noticias/el-miercoles-4-estrena-valentina-valiente-por-latina-television/)
-
-
-### f1 (N/A, 05/03/2026 21:33 Lima)
-
-- **F1 unveil new look for 2026 season**: [Link](https://racingnews365.com/f1-unveil-new-look-for-2026-season)
-- **It’s Lights Out And Away We Go!**: [Link](https://10.com.au/formula-1/articles/its-lights-out-and-away-we-go/tpa260305ftqgw)
-- **LIVE COVERAGE: First Practice in Australia**: [Link](https://www.formula1.com/en/latest/article/live-coverage-first-practice-in-australia-2026.6yY9JoKzybIoZUlNBuuh92)
-
-
-### junior - alianza (N/A, 05/03/2026 21:33 Lima)
-
-- **Pronóstico CD Junior FC Alianza FC Valledupar - Primera A Colombia 05/03/26**: [Link](https://www.sportytrader.com/es/pronosticos/club-atletico-junior-alianza-fc-valledupar-331939/)
-- **"Si lo convocaste, es pa' ponerlo; no salgas ahora con que es paso a paso": junioristas al DT Arias**: [Link](https://impactonews.co/si-lo-convocaste-es-pa-ponerlo-no-salgas-ahora-con-que-es-paso-a-paso-junioristas-al-dt-arias/)
-- **Regresa el goleador: Bacca reaparece en una convocatoria de Junior tras ocho meses de ausencia**: [Link](https://diariodelnorte.net/deportes/regresa-el-goleador-bacca-reaparece-en-una-convocatoria-de-junior-tras-ocho-meses-de-ausencia/)
-
-
-### warriors - rockets (N/A, 05/03/2026 21:33 Lima)
-
-- **Warriors vs. Rockets 2026 livestream: Watch NBA games for free**: [Link](https://mashable.com/article/warriors-rockets-nba-2026-live-stream-for-free)
-- **NBA Odds, Player Props & Injury Reports for GSW-HOU, DET-SAS, LAL-DEN**: [Link](https://www.hardrock.bet/news/nba-odds-player-props-injury-reports-for-gsw-hou-det-sas-lal-den/)
-- **Alperen Sengun Questionable for Thursday due to Illlness - NBA News | Fantasy Basketball**: [Link](https://www.rotoballer.com/player-news/alperen-sengun-questionable-for-thursday-due-to-illlness/1822641)
-
-
-### 8 de marzo (N/A, 05/03/2026 21:33 Lima)
-
-- **125 frases inspiradoras por el Día Internacional de la Mujer 2026 para mujeres fuertes y seguras de sí mismas**: [Link](https://gestion.pe/mix/respuestas/125-frases-inspiradoras-por-el-dia-internacional-de-la-mujer-2026-para-mujeres-fuertes-y-seguras-de-si-mismas-08-de-marzo-nnda-nnni-noticia/)
-- **140 citas motivacionales para el Día Internacional de la Mujer 2026: envíalas a tu mamá, hermanas, pareja o hijas este 08 de marzo**: [Link](https://elcomercio.pe/mag/respuestas/140-citas-motivacionales-para-el-dia-internacional-de-la-mujer-2026-envialas-a-tu-mama-hermanas-pareja-o-hijas-este-08-de-marzo-nnda-nnni-noticia/)
-- **Día de la Mujer 2026: las mejores imágenes para conmemorar la importante fecha este 8 de marzo**: [Link](https://libero.pe/ocio/redes-sociales/2026/03/05/dia-de-mujer-2026-mejores-imagenes-conmemorar-importante-fecha-8-de-marzo-464945)
 
 
