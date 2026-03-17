@@ -1,3 +1,73 @@
+### chelsea - psg (N/A, 17/03/2026 14:31 Lima)
+
+- **La composition de l'équipe de Chelsea a de nouveau fuité juste avant leur match contre le PSG.**: [Link](https://www.vietnam.vn/fr/chelsea-lai-bi-ro-ri-doi-hinh-ngay-truoc-tran-gap-psg)
+- **Ligue des champions : tous ces joueurs qui sont sous la menace d’une suspension en cas de quart de finale**: [Link](https://www.goal.com/fr/listes/ligue-des-champions-tous-ces-joueurs-qui-sont-sous-la-menace-d-une-suspension-en-cas-de-quart-de-finale/blt8e6301107bb8d4fa)
+- **[Podcasts] La Une - Rothen : "Je ne me fais pas de souci, le PSG va réussir à contrer ce Chelsea" – 17/03**: [Link](https://rmcsport.bfmtv.com/replay-emissions/rothen-regale/la-une-rothen-je-ne-me-fais-pas-de-souci-le-psg-va-reussir-a-contrer-ce-chelsea-17-03_EN-202603170806.html)
+
+
+### arsenal - leverkusen (N/A, 17/03/2026 14:31 Lima)
+
+- **Mikel asks fans for "all the energy in the world" | Quotes | News**: [Link](https://www.arsenal.com/news/mikel-asks-fans-all-energy-world)
+- **Arsenal vs Bayer Leverkusen: Date, Time And Everything You Need To Know About The Champions League Clash**: [Link](https://www.beinsports.com/en-us/soccer/uefa-champions-league/articles/arsenal-vs-bayer-leverkusen-date-time-and-everything-you-need-to-know-about-the-champions-league-clash-2026-03-17)
+- **Jurriën Timber's pain could become Bukayo Saka's gain**: [Link](https://paininthearsenal.com/jurrien-timber-pain-become-bukayo-saka-gain)
+
+
+### palermo vs (N/A, 17/03/2026 14:31 Lima)
+
+- **Palermo-Juve Stabia 0-1: la sblocca Leone dal dischetto**: [Link](https://www.lasicilia.it/news/sport/3024460/palermo-juve-stabia-la-diretta-del-match.html)
+- **Il sogno non è finito. E se Inzaghi avrà ragione...**: [Link](https://palermo.repubblica.it/sport/2026/03/17/news/il_sogno_non_e_finito_e_se_inzaghi_avra_ragione-425227099/)
+- **Tgs e Rgs raccontano la partita dal Barbera**: [Link](https://palermo.gds.it/articoli/calcio/2026/03/17/tgs-e-rgs-raccontano-la-partita-dal-barbera-98d8dedc-d35d-453e-bb5f-440da70b62e2/)
+
+
+### manchester city - real madrid (N/A, 17/03/2026 14:31 Lima)
+
+- **The stat raising concern for Guardiola ahead of the Real Madrid clash**: [Link](https://www.beinsports.com/en-us/soccer/uefa-champions-league/articles/the-stat-raising-concern-for-guardiola-ahead-of-the-real-madrid-clash-2026-03-17)
+- **The president, with the team in Manchester**: [Link](https://www.realmadrid.com/en-US/news/football/first-team/latest-news/el-presidente-con-el-equipo-en-manchester-17-03-2026)
+- **Fernandinho: ‘Manchester City have opportunity to make history tonight’**: [Link](https://tribuna.com/en/news/2026-03-17-fernandinho-manchester-city-have-opportunity-to-make-history-tonight/)
+
+
+### gonçalo inácio (N/A, 17/03/2026 14:31 Lima)
+
+- **VÍDEO: em dia de recorde, Inácio relança a esperança do Sporting!**: [Link](https://www.abola.pt/noticias/video-em-dia-de-recorde-inacio-relanca-a-esperanca-do-sporting-2026031718281070987)
+- **Depois de tanto remate, finalmente o golo: Gonçalo Inácio faz o 1-0 para o Sporting contra o Bodo/Glimt**: [Link](https://bolanarede.pt/especial-bola-na-rede/atualidade/depois-de-tanto-remate-finalmente-o-golo-goncalo-inacio-faz-o-1-0-para-o-sporting-contra-o-bodo-glimt/)
+- **Gonçalo Inácio já é o jogador do Sporting com mais jogos na Champions**: [Link](https://golo.fm/destaque/goncalo-inacio-ja-e-o-jogador-do-sporting-com-mais-jogos-na-champions/)
+
+
+### andrea vidal (N/A, 17/03/2026 14:31 Lima)
+
+- **Caso Andrea Vidal: capturan a presunto implicado en asesinato de extrabajadora del Congreso**: [Link](https://lpderecho.pe/caso-andrea-vidal-capturan-presunto-implicado-asesinato-extrabajadora-congreso/)
+- **Capturan en Piura a implicado en el asesinato de Andrea Vidal -**: [Link](https://caretas.pe/nacional/andrea-vidal-capturan-en-piura-a-acusado-david-more-cuando-intentaba-huir-a-ecuador/)
+- **Sospechoso del asesinato de Andrea Vidal intentaba huir a Ecuador y cayó en Piura**: [Link](https://www.atv.pe/noticia/sospechoso-del-asesinato-de-andrea-vidal-intentaba-huir-a-ecuador-y-cayo-en-piura/)
+
+
+### champions hoy (N/A, 17/03/2026 14:31 Lima)
+
+- **Manchester City vs Real Madrid: Posibles alineaciones, octavos UCL**: [Link](https://www.espn.com.ar/futbol/champions-league/nota/_/id/16447805/uefa-champions-league-2026-manchester-city-vs-real-madrid-alineaciones-octavos-de-final-vuelta-ucl)
+- **Cuándo juegan Manchester City vs. Real Madrid por la UEFA Champions League: equipo, fecha, hora y TV en vivo**: [Link](https://espndeportes.espn.com/futbol/champions-league/nota/_/id/16446358/manchester-city-vs-real-madrid-octavos-de-final-vuelta-champions-league-equipo-fecha-hora-tv-en-vivo)
+- **🌐 Movistar Plus EN DIRECTO - dónde televisan Real Madrid — Man. City por Fútbol TV y Movistar Liga de Campeones Online**: [Link](https://gestion.pe/mix/sports/movistar-plus-en-directo-como-ver-partido-real-madrid-man-city-por-futbol-tv-y-movistar-liga-de-campeones-online-nnda-nnrt-noticia/)
+
+
+### miralles (N/A, 17/03/2026 14:31 Lima)
+
+- **[Lo último] Presidencia da por concluida designación de Denisse Miralles como Jefa del Gabinete**: [Link](https://elperuano.pe/noticia/291448-lo-ultimo-presidencia-da-por-concluida-designacion-de-denisse-miralles-como-jefa-del-gabinete)
+- **Ministros de Estado presentan balance de acciones tras 21 días de gestión**: [Link](https://rpp.pe/politica/gobierno/ministros-de-estado-presentan-balance-de-acciones-tras-21-dias-de-gestion-live-3245)
+- **José María Balcázar tomará juramento a su nuevo Gabinete Ministerial tras renuncia de Denisse Miralles**: [Link](https://elcomercio.pe/politica/gobierno/jose-maria-balcazar-tomara-juramento-a-su-nuevo-gabinete-ministerial-tras-renuncia-de-denisse-miralles-voto-de-confianza-congreso-ultimas-noticia/)
+
+
+### champion (N/A, 17/03/2026 14:31 Lima)
+
+- **The Second Act: Can England's European hopefuls rewrite their Champions League stories?**: [Link](https://thehardtackle.com/opinion/the-second-act-can-englands-european-hopefuls-rewrite-their-champions-league-stories/)
+- **Champions League Acca Tips: Joe Casey has a 26-1 acca for Tuesday's matches**: [Link](https://www.racingpost.com/sport/football-tips/football-acca-tips/champions-league-acca-tips-joe-casey-has-a-26-1-acca-for-tuesdays-matches-a6csR1P3JSos/)
+- **UEFA Champions League fixtures (Round of 16 – second leg) - World - Sports**: [Link](https://english.ahram.org.eg/News/563834.aspx)
+
+
+### tom holland (N/A, 17/03/2026 14:31 Lima)
+
+- **Law Roach Confirms Zendaya & Tom Holland’s Wedding: ‘I Said What I Said’ (Exclusive)**: [Link](https://extratv.com/2026/03/15/law-roach-confirms-zendaya-and-tom-holland-s-wedding-i-said-what-i-said-exclusive/)
+- **Zendaya Might Have Just Confirmed She Secretly Married Tom Holland**: [Link](https://people.com/zendaya-might-have-just-confirmed-she-secretly-married-tom-holland-11925277)
+- **Zendaya's Wedding Photos are AI, but Her Runway Fashion is Very Real**: [Link](https://www.wmagazine.com/fashion/zendaya-ai-wedding-photos-sheer-maxi-dress-jimmy-kimmel-live-los-angeles)
+
+
 ### camara (N/A, 09/03/2026 08:16 Lima)
 
 - **Resultados elecciones 2026: quiénes son los candidatos a la presidencia de Colombia y qué Congreso se encontrará el próximo mandatario tras las legislativas**: [Link](https://www.bbc.com/mundo/articles/ckg1rx7deqeo)
@@ -960,75 +1030,5 @@ Sin noticias relacionadas disponibles.
 - **Dólar escala a S/ 3.45 ante incertidumbre por la guerra en Medio Oriente**: [Link](https://gestion.pe/economia/mercados/tipo-de-cambio-dolar-hoy-en-peru-cuanto-esta-el-precio-del-dolar-este-jueves-5-de-marzo-dolares-a-soles-compra-y-venta-bcrp-noticia/)
 - **Precio del dólar en Perú: a cuánto abrió el tipo de cambio HOY, viernes 6 de marzo**: [Link](https://elcomercio.pe/economia/mercados/precio-del-dolar-hoy-en-peru-2026-cuanto-esta-el-dolar-este-viernes-6-de-marzo-tasa-cotizacion-compra-y-venta-segun-bcrp-dolares-a-soles-sbs-ocona-lbposting-noticia/)
 - **¡Continúa al alza! Dólar repunta y cierra en S/ 3.45, su mayor cotización en cinco meses**: [Link](https://rpp.pe/economia/economia/dolar-en-peru-subio-345-mayor-cotizacion-del-tipo-de-cambio-en-cinco-meses-a-que-se-debe-noticia-1678749)
-
-
-### bcrp billetes y monedas (N/A, 06/03/2026 11:50 Lima)
-
-- **Aprueban dictamen que precisa uso de símbolos y emblemas en monedas y billetes**: [Link](https://comunicaciones.congreso.gob.pe/noticias/aprueban-dictamen-que-precisa-uso-de-simbolos-y-emblemas-en-monedas-y-billetes/)
-- **Congreso pone “cerrojo” a cambio de monedas y billetes: BCRP tendrá última palabra**: [Link](https://gestion.pe/economia/congreso-pone-cerrojo-a-cambio-de-monedas-y-billetes-bcrp-tendra-ultima-palabra-noticia/)
-- **BCRP ya no tendrá que aumentar tamaño de monedas y poner lema en billetes**: [Link](https://www.infobae.com/peru/2026/03/06/bcrp-ya-no-tendra-que-aumentar-tamano-de-monedas-y-poner-lema-en-billetes/)
-
-
-### claude ai (N/A, 06/03/2026 11:50 Lima)
-
-- **Anthropic Says It Will Fight New Pentagon Move as CEO Apologizes for Leaked Memo**: [Link](https://www.wsj.com/tech/ai/pentagon-formally-labels-anthropic-supply-chain-risk-escalating-conflict-ebdf0523?gaa_at=eafs&gaa_n=AWEtsqfiWImo5EHqPDqygt237dhRWSaqJ6fkOG_mT4KYs5Iuogcq4aFXF7PJ&gaa_ts=69ab0968&gaa_sig=cDBKEm1cucarVUeZzKLx1C4T827QrGn3cW_bgHjYOtbtNUTMYV9RsJZikntTU5brmMwHGMwLodqYllLyie5gIg%3D%3D)
-- **An AI disaster is getting ever closer**: [Link](https://www.economist.com/briefing/2026/03/05/an-ai-disaster-is-getting-ever-closer)
-- **Microsoft says Anthropic’s products remain available to customers after Pentagon blacklist**: [Link](https://www.cnbc.com/2026/03/05/microsoft-says-anthropics-products-can-remain-available-to-customers-after-security-risk-designation.html)
-
-
-### corte de agua sedapal lima (N/A, 06/03/2026 11:50 Lima)
-
-- **Corte de agua para este 07 de marzo: conoce cuáles son las zonas afectadas**: [Link](https://www.infobae.com/peru/2026/03/05/corte-de-agua-para-este-07-de-marzo-conoce-cuales-son-las-zonas-afectadas/)
-- **Sedapal anuncia corte de agua hasta por 12 horas este 7 de marzo: Ate y El Agustino entre los distritos afectados**: [Link](https://larepublica.pe/sociedad/2026/03/06/sedapal-anuncia-corte-de-agua-hasta-por-12-horas-este-sabado-7-de-marzo-ate-y-el-agustino-entre-los-distritos-afectados-evat-118176)
-- **Más de 10 horas sin servicio de agua: revisa las zonas afectadas HOY, 6 de marzo**: [Link](https://elcomercio.pe/respuestas/donde/sin-agua-por-mas-de-10-horas-conoce-los-lugares-afectados-este-06-de-marzo-tdpe-noticia/)
-
-
-### que se celebra hoy (N/A, 06/03/2026 11:50 Lima)
-
-- **Qué se celebra el 5 de marzo en el Perú: un día que marca hitos históricos en suelo peruano**: [Link](https://www.infobae.com/peru/2026/03/05/que-se-celebra-el-5-de-marzo-en-el-peru-un-dia-que-marca-hitos-historicos-en-suelo-peruano/)
-- **¿Qué celebra Trujillo el 5 de marzo?, ¿Por qué es muy importante para esta ciudad peruana?**: [Link](https://andina.pe/agencia/noticia-que-celebra-trujillo-5-marzo-por-es-muy-importante-para-esta-ciudad-peruana-1065234.aspx)
-- **Trujillo celebra su 491° Aniversario de Fundación**: [Link](https://sientetrujillo.com/trujillo-celebra-su-491-aniversario-de-fundacion/)
-
-
-### vladimiro montesinos (N/A, 06/03/2026 11:50 Lima)
-
-- **Ordenan revisar condenas a Vladimiro Montesinos y acercan su posible liberación: lo que se sabe**: [Link](https://www.expreso.com.pe/judicial/ordenan-revisar-condenas-a-vladimiro-montesinos-y-acercan-su-posible-liberacion-lo-que-se-sabe-noticia/1268792/)
-- **Vladimiro Montesinos: Juzgado Constitucional ordena revisar plazo de las condenas impuestas a exasesor de Fujimori**: [Link](https://larepublica.pe/politica/2026/03/05/vladimiro-montesinos-juzgado-constitucional-ordena-revisar-plazo-de-las-condenas-impuestas-a-exasesor-de-fujimori-hnews-120270)
-- **Vladimiro Montesinos podría salir en libertad: ordenan revisar sus condenas**: [Link](https://willax.pe/politica/vladimiro-montesinos-libertad-condenas-willax)
-
-
-### dia internacional de la mujer (N/A, 06/03/2026 11:50 Lima)
-
-- **100 frases poderosas para pancartas y carteles del Día de la Mujer 2026 que puedes llevar a la marcha del 8 de marzo**: [Link](https://gestion.pe/mix/respuestas/100-frases-poderosas-para-pancartas-y-carteles-del-dia-de-la-mujer-2026-que-puedes-llevar-a-la-marcha-del-8-de-marzo-8m-mexico-argentina-espana-nnda-nnrt-noticia/)
-- **Pancartas del Día de la Mujer (8M): 50 imágenes con frases inspiradoras y lemas valientes para conmemorar la lucha de las mujeres**: [Link](https://elcomercio.pe/mag/respuestas/pancartas-del-dia-de-la-mujer-8m-50-imagenes-con-frases-inspiradoras-y-lemas-valientes-para-conmemorar-la-lucha-de-las-mujeres-marcha-8-de-marzo-nnda-nnrt-noticia/)
-- **De la lucha al empoderamiento: frases para carteles y pancartas para la marcha del 8M**: [Link](https://elpais.com/mexico/2026-03-06/de-la-lucha-al-empoderamiento-frases-para-carteles-y-pancartas-para-la-marcha-del-8m.html)
-
-
-### radio exitosa en vivo (N/A, 06/03/2026 11:50 Lima)
-
-- **Juez dicta nueve meses de prisión preventiva contra Adrián Villar**: [Link](https://lpderecho.pe/vivo-cesar-nakazaki-defiende-a-adrian-villar-en-audiencia-de-prision-preventiva/)
-- **Adrián Villar: Inpe informará mañana penal en que cumplirá los 9 meses de prisión preventiva**: [Link](https://elperuano.pe/noticia/290506-adrian-villar-inpe-informara-manana-penal-en-que-cumplira-los-9-meses-de-prision-preventiva)
-- **Trasladan a Adrián Villar para clasificación penitenciaria por muerte de Lizeth Marzano**: [Link](https://canaln.pe/actualidad/caso-lizeth-marzano-trasladan-adrian-villar-clasificacion-penal-n490704)
-
-
-### precio del dolar (N/A, 06/03/2026 08:08 Lima)
-
-- **Dólar escala a S/ 3.45 ante incertidumbre por la guerra en Medio Oriente**: [Link](https://gestion.pe/economia/mercados/tipo-de-cambio-dolar-hoy-en-peru-cuanto-esta-el-precio-del-dolar-este-jueves-5-de-marzo-dolares-a-soles-compra-y-venta-bcrp-noticia/)
-- **¡Continúa al alza! Dólar repunta y cierra en S/ 3.45, su mayor cotización en cinco meses**: [Link](https://rpp.pe/economia/economia/dolar-en-peru-subio-345-mayor-cotizacion-del-tipo-de-cambio-en-cinco-meses-a-que-se-debe-noticia-1678749)
-- **¿Cómo inició el dólar la jornada de hoy?**: [Link](https://peru21.pe/economia/dolar-en-peru-cotizacion-y-tendencia-actual-hoy/)
-
-
-### fa cup (N/A, 06/03/2026 08:08 Lima)
-
-- **FA Cup fifth round: things to look out for this weekend**: [Link](https://www.theguardian.com/football/2026/mar/06/fa-cup-fifth-round-things-to-look-out-for-this-weekend)
-- **FA Cup Fifth Round Predictions: Liverpool Seek Revenge, Chelsea Face Hollywood Tie**: [Link](https://www.fotmob.com/embed/news/01kjyr7fyqd7/fa-cup-fifth-round-predictions-liverpool-seek-revenge-chelsea-face-hollywood-tie)
-- **Saturday's FA Cup Tips: Back 17/10 Blues at Wrexham & 9/2 Toon to take down Man City**: [Link](https://onefootball.com/es/noticias/saturdays-fa-cup-tips-back-1710-blues-at-wrexham-92-toon-to-take-down-man-city-42512644)
-
-
-### nuggets - lakers (N/A, 06/03/2026 08:08 Lima)
-
-- **Unc, Ocho, and Iso Joe react to LeBron, Luka & Lakers vs. Jokic & Nuggets | Nightcap**: [Link](https://bvmsports.com/2026/03/05/unc-ocho-and-iso-joe-react-to-lebron-luka-lakers-vs-jokic-nuggets-nightcap/)
-- **Lakers drop nail-biter to Nuggets to kick off tough stretch of opponents**: [Link](https://www.aol.com/articles/lakers-drop-nail-biter-nuggets-055754088.html)
-- **Sombor Survival: Jokic’s yo-yo game enough for Nuggets to beat LA**: [Link](https://denversports.com/nba/denver-nuggets/jokic-yo-yo-lakers/2129062)
 
 
